@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Nissan warns owners of older vehicles not to drive them due to risk of exploding air bag inflators](https://www.yahoo.com/news/nissan-warns-owners-older-vehicles-130058883.html)
-- May 29 - [Indian climber rescued from Everest dies in hospital as season closes](https://www.yahoo.com/news/indian-climber-rescued-everest-dies-115006822.html)
-- May 29 - [Here’s how much you can expect your Social Security benefits to be — if you make $35K, $50K or $80K](https://finance.yahoo.com/news/much-expect-social-security-benefits-110800713.html)
-- May 29 - [Weeks after being added to historical buildings list, former Columbus bakery is razed](https://www.yahoo.com/news/weeks-being-added-historical-buildings-110000946.html)
-- May 29 - [Gen X is the 401(k) 'experiment generation.' Here's how that's playing out.](https://finance.yahoo.com/news/gen-x-is-the-401k-experiment-generation-heres-how-thats-playing-out-100010909.html)
+- May 29 - [Think tank close to Kremlin says Russia should consider a 'demonstrative' nuclear explosion](https://www.yahoo.com/news/think-tank-close-kremlin-says-164723170.html)
+- May 29 - [Charges Against Pro Golfer Scottie Scheffler to Be Dropped: Reports](https://sports.yahoo.com/charges-against-pro-golfer-scottie-162536969.html)
+- May 29 - [American Airlines’ ‘Odor’ Excuse Reeked of Racism: Lawsuit](https://www.yahoo.com/news/american-airlines-odor-excuse-reeked-153136400.html)
+- May 29 - [Building explosion kills bank employee and injures 7 others in Youngstown, Ohio](https://www.yahoo.com/news/building-explosion-kills-bank-employee-145712268.html)
+- May 29 - [11 of the best high-protein foods for weight loss, according to dietitians](https://www.yahoo.com/news/11-best-high-protein-foods-140710873.html)
 <!-- feed end -->
 
 ### Onstream
