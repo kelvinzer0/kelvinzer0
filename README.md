@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 29 - [Stock market today: US futures sink as rising Treasury yields rattle nerves](https://finance.yahoo.com/news/stock-market-today-us-futures-sink-as-rising-treasury-yields-rattle-nerves-115257822.html)
-- May 29 - [15 Aggravating Things Workplaces Literally Banned Their Employees From Doing At Work](https://www.yahoo.com/lifestyle/15-aggravating-things-workplaces-literally-111602516.html)
-- May 29 - [Exploring Three Dividend Stocks In The United States For May 2024](https://finance.yahoo.com/news/exploring-three-dividend-stocks-united-110520320.html)
+- May 29 - [Nvidia Rallies on Astronomical Revenue Growth and Stock Split. Is It Too Late to Buy the Stock?](https://finance.yahoo.com/news/nvidia-rallies-astronomical-revenue-growth-115000714.html)
+- May 29 - [NC agents make drug arrests, seize guns in investigation of downtown Raleigh bars](https://www.yahoo.com/news/nc-special-agents-charge-suspects-114231262.html)
+- May 29 - [US consumers show the Fed its backward problem with high rates: Morning Brief](https://finance.yahoo.com/news/us-consumers-show-the-fed-its-backward-problem-with-high-rates-morning-brief-100047960.html)
 - May 29 - [Gen X is the 401(k) 'experiment generation.' Here's how that's playing out.](https://finance.yahoo.com/news/gen-x-is-the-401k-experiment-generation-heres-how-thats-playing-out-100010909.html)
-- May 29 - [Ted Kennedy Warned Us About Samuel Alito. He Was Ignored.](https://www.yahoo.com/news/ted-kennedy-warned-us-samuel-100000696.html)
 <!-- feed end -->
 
 ### Onstream
