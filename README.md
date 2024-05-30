@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [Dell Escapes Nvidia’s Shadow as Its Own AI Tailwinds Accelerate](https://finance.yahoo.com/news/dell-escapes-nvidia-shadow-own-121238032.html)
+- May 30 - [Planning to Work While Receiving Social Security? Don't Let This Lesser-Known Rule Cost You Money.](https://finance.yahoo.com/news/planning-while-receiving-social-security-114500014.html)
 - May 30 - [Stuck at sea for years, a sailor's plight highlights a surge in shipowner abandonment](https://www.yahoo.com/news/stuck-sea-years-sailors-plight-110453421.html)
-- May 30 - [Jill Biden Sums Up Donald Trump With 1 Withering Word](https://www.yahoo.com/news/jill-biden-sums-donald-trump-075236600.html)
-- May 30 - [Opinion | Justice Stephen Breyer says (politely) that the SCOTUS majority is doing it all wrong](https://www.yahoo.com/news/opinion-justice-stephen-breyer-says-004403703.html)
-- May 29 - [Family Held at Gunpoint in Terrifying Carjacking](https://www.yahoo.com/news/family-held-gunpoint-terrifying-carjacking-214604959.html)
-- May 29 - [Scientists sound alarm as growing threat looms over coastal states: 'We are preparing for the wrong disaster'](https://www.yahoo.com/news/scientists-sound-alarm-growing-threat-020000701.html)
+- May 30 - [Biden Mocks Reporter's 'All 4 Years' Question: 'Did You Fall On Your Head Or Something?'](https://www.yahoo.com/news/biden-mocks-reporters-4-years-104102433.html)
+- May 30 - [Construction update: What business will locate on upper Peach Street near I-90?](https://finance.yahoo.com/news/construction-business-locate-upper-peach-091554494.html)
 <!-- feed end -->
 
 ### Onstream
