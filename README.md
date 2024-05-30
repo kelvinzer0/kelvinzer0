@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Boeing reaches deadline for reporting how it will fix aircraft safety and quality problems](https://finance.yahoo.com/news/boeing-reaches-deadline-reporting-fix-040722023.html)
 - May 30 - [Opinion | Justice Stephen Breyer says (politely) that the SCOTUS majority is doing it all wrong](https://www.yahoo.com/news/opinion-justice-stephen-breyer-says-004403703.html)
 - May 30 - [Judge stunned when man with suspended license joins court Zoom call while driving](https://www.yahoo.com/news/judge-stunned-man-suspended-license-010540156.html)
-- May 29 - [Man in critical condition after being on fire at Plant City Publix, police say](https://www.yahoo.com/news/man-critical-condition-being-fire-235000249.html)
 - May 29 - [Chiefs DT Isaiah Buggs reportedly accused of animal cruelty, shoving Tuscaloosa police chief](https://sports.yahoo.com/chiefs-dt-isaiah-buggs-reportedly-accused-of-animal-cruelty-shoving-tuscaloosa-police-chief-225328303.html)
+- May 29 - [‘I was exhausted’: Boston nurse drives off top floor of hospital  garage after shift](https://www.yahoo.com/news/nurse-drives-off-top-floor-212132961.html)
+- May 29 - [Apple is getting a once-in-a-decade secret weapon in AI-enabled ‘intelliphones.’ Bank of America sees its stock surging 20%](https://finance.yahoo.com/news/apple-getting-once-decade-secret-212338660.html)
 <!-- feed end -->
 
 ### Onstream
