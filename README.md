@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [Archaeologists found a secret chamber at the base of the Great Pyramid of Giza, and they have no idea what it is](https://www.yahoo.com/news/archaeologists-found-secret-chamber-great-155943662.html)
+- May 30 - [Trump's jury asked to re-hear the judge's 'rain metaphor' instruction — here's what that might mean](https://www.yahoo.com/news/trumps-jury-asked-hear-judges-154427605.html)
+- May 30 - [Steven Seagal’s Acting Career Hits New Low in Nutso Kremlin Speech](https://www.yahoo.com/entertainment/steven-seagal-acting-career-hits-153943375.html)
 - May 30 - [‘You may want to call an attorney right away’: Details of Rory McIlroy’s divorce emerge](https://www.yahoo.com/entertainment/may-want-call-attorney-away-153350476.html)
-- May 30 - [Billionaire Bill Gates Has A McDonald's 'Gold Card' That Gives Him Free Food For Life Worldwide](https://finance.yahoo.com/news/billionaire-bill-gates-mcdonalds-gold-140011115.html)
-- May 30 - [I Went to the Trump Rally for His Black and Hispanic Voters. What I Saw Wasn’t Comforting.](https://www.yahoo.com/news/went-trump-rally-black-hispanic-140000092.html)
-- May 30 - ["Good day for Trump's prosecutors": Experts say jury note may be a bad sign for Trump](https://www.yahoo.com/news/good-day-trumps-prosecutors-experts-134303319.html)
-- May 30 - [US Abrams tanks failing in Ukraine as Russia mocks them as ‘empty tin cans’](https://www.yahoo.com/news/us-abrams-tanks-failing-ukraine-132511636.html)
+- May 30 - [Clerk over Alex Murdaugh trial spent thousands on bonuses, meals and gifts, ethics complaint says](https://www.yahoo.com/news/clerk-over-alex-murdaugh-trial-151054061.html)
 <!-- feed end -->
 
 ### Onstream
