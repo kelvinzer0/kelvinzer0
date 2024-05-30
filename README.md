@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [More Canadian car buyers shunning EVs in 2024: J.D. Power](https://finance.yahoo.com/news/more-canadian-car-buyers-shunning-evs-in-2024-jd-power-110052536.html)
+- May 30 - [Hundreds of thousands of US internet routers destroyed in newly discovered 2023 hack](https://finance.yahoo.com/news/hundreds-thousands-us-internet-routers-142544224.html)
 - May 30 - [US Abrams tanks failing in Ukraine as Russia mocks them as ‘empty tin cans’](https://www.yahoo.com/news/us-abrams-tanks-failing-ukraine-132511636.html)
+- May 30 - [Why scientists say we need to send clocks to the moon — and soon](https://www.yahoo.com/news/no-one-knows-time-moon-123108022.html)
 - May 30 - [GDP: US economy grew at a slower pace than initially thought in Q1](https://finance.yahoo.com/news/gdp-us-economy-grew-at-a-slower-pace-than-initially-thought-in-q1-131220924.html)
-- May 30 - ['Dine and Dash' Couple Jailed After Racking Up ‘Huge' Restaurants Bills: ‘Brazen Offending’](https://www.yahoo.com/news/dine-dash-couple-jailed-racking-125116209.html)
-- May 30 - [Planning to Work While Receiving Social Security? Don't Let This Lesser-Known Rule Cost You Money.](https://finance.yahoo.com/news/planning-while-receiving-social-security-114500014.html)
+- May 30 - [Police monitor Taylor Swift gig decibels as Madrid locals fume at noise](https://www.yahoo.com/news/police-monitor-taylor-swift-gig-130858621.html)
 <!-- feed end -->
 
 ### Onstream
