@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [Indian space startup Agnikul launches country's second privately built rocket](https://www.yahoo.com/news/indian-space-startup-agnikul-launches-043829305.html)
 - May 30 - [Opinion | Justice Stephen Breyer says (politely) that the SCOTUS majority is doing it all wrong](https://www.yahoo.com/news/opinion-justice-stephen-breyer-says-004403703.html)
-- May 29 - [‘I was exhausted’: Boston nurse drives off top floor of hospital  garage after shift](https://www.yahoo.com/news/nurse-drives-off-top-floor-212132961.html)
-- May 29 - [Prehistoric discovery in US lake leaves experts in shock and awe](https://www.yahoo.com/lifestyle/prehistoric-discovery-us-lake-leaves-204949110.html)
-- May 29 - [WATCH: Snake mating ball spotted on Lake Erie shore](https://www.yahoo.com/news/watch-snake-mating-ball-spotted-201330555.html)
-- May 29 - [Baltimore’s historic dawn redwood tree destroyed by lightning, ‘literally exploded’](https://www.yahoo.com/news/baltimore-historic-dawn-redwood-tree-195500991.html)
+- May 29 - [Chiefs DT Isaiah Buggs reportedly accused of animal cruelty, shoving Tuscaloosa police chief](https://sports.yahoo.com/chiefs-dt-isaiah-buggs-reportedly-accused-of-animal-cruelty-shoving-tuscaloosa-police-chief-225328303.html)
+- May 29 - [Apple is getting a once-in-a-decade secret weapon in AI-enabled ‘intelliphones.’ Bank of America sees its stock surging 20%](https://finance.yahoo.com/news/apple-getting-once-decade-secret-212338660.html)
+- May 29 - [Two charged with deadly head-on-crash in Scranton](https://www.yahoo.com/news/two-charged-deadly-head-crash-204300673.html)
 <!-- feed end -->
 
 ### Onstream
