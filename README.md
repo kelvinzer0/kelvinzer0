@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - ['Shameful': Republicans quickly come to Trump's defense after his conviction](https://www.yahoo.com/news/shameful-republicans-quickly-come-trumps-213500132.html)
 - May 30 - [Explainer-Can Trump be president despite his criminal conviction?](https://www.yahoo.com/news/explainer-trump-president-despite-criminal-211259916.html)
 - May 30 - [US State Department official resigns, says US report on Gaza inaccurate](https://www.yahoo.com/news/us-state-department-official-resigns-210626006.html)
-- May 30 - [Why the Dow fell 1,000 points in the last three days](https://finance.yahoo.com/news/why-dow-fallen-1-000-133407288.html)
-- May 30 - [Tens of billions of dollars in gold flows illegally out of Africa each year, a new report says](https://finance.yahoo.com/news/tens-billions-dollars-gold-flows-180148637.html)
-- May 30 - ["Over 8 Million People Are Living With Brain Worms": Anxiety Over Brain Worms Is At An All-Time High. Here's What An Expert Says You Need To Know.](https://www.yahoo.com/news/over-8-million-people-living-175125250.html)
+- May 30 - [The US Navy botched the design of its new $1 billion frigates: report](https://www.yahoo.com/news/us-navy-botched-design-1-210255299.html)
+- May 30 - [Fact Check: Rumor Claims Karine Jean-Pierre Abruptly Ended Briefing After Reporter Asked If White House in 'Full-Blown Freakout Mode.' Here's the Truth](https://www.yahoo.com/news/fact-check-rumor-claims-karine-201500975.html)
 <!-- feed end -->
 
 ### Onstream
