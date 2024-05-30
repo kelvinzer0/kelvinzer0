@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Jamie Dimon says there could be 'hell to pay' if the swelling private-credit market starts showing cracks](https://finance.yahoo.com/news/jamie-dimon-says-could-hell-013007790.html)
-- May 30 - [Thinking Of Buying AT&T For Its 6.5% Dividend Yield? Consider This Alternative Option](https://finance.yahoo.com/news/thinking-buying-t-6-5-195008500.html)
+- May 30 - [Explainer-Can Trump be president despite his criminal conviction?](https://www.yahoo.com/news/explainer-trump-president-despite-criminal-211259916.html)
+- May 30 - [US State Department official resigns, says US report on Gaza inaccurate](https://www.yahoo.com/news/us-state-department-official-resigns-210626006.html)
+- May 30 - [Why the Dow fell 1,000 points in the last three days](https://finance.yahoo.com/news/why-dow-fallen-1-000-133407288.html)
 - May 30 - [Tens of billions of dollars in gold flows illegally out of Africa each year, a new report says](https://finance.yahoo.com/news/tens-billions-dollars-gold-flows-180148637.html)
 - May 30 - ["Over 8 Million People Are Living With Brain Worms": Anxiety Over Brain Worms Is At An All-Time High. Here's What An Expert Says You Need To Know.](https://www.yahoo.com/news/over-8-million-people-living-175125250.html)
-- May 30 - [Officer who arrested Scottie Scheffler: 'Yes, the department has us buying freaking $80 pants'](https://sports.yahoo.com/officer-arrested-scottie-scheffler-yes-174351056.html)
 <!-- feed end -->
 
 ### Onstream
