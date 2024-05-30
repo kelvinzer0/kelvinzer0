@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Chiefs DT Isaiah Buggs reportedly accused of animal cruelty, shoving Tuscaloosa police chief](https://sports.yahoo.com/chiefs-dt-isaiah-buggs-reportedly-accused-of-animal-cruelty-shoving-tuscaloosa-police-chief-225328303.html)
 - May 29 - [‘I was exhausted’: Boston nurse drives off top floor of hospital  garage after shift](https://www.yahoo.com/news/nurse-drives-off-top-floor-212132961.html)
 - May 29 - [Prehistoric discovery in US lake leaves experts in shock and awe](https://www.yahoo.com/lifestyle/prehistoric-discovery-us-lake-leaves-204949110.html)
-- May 29 - [Boeing making progress on 737 MAX engine issue delaying certification of some models](https://finance.yahoo.com/news/boeing-says-making-progress-737-202940553.html)
-- May 29 - [Michigan judge astonished at how man shows up to virtual hearing for driving with suspended license charge](https://www.yahoo.com/news/michigan-judge-astonished-man-shows-202411240.html)
+- May 29 - [Team Trump Lashes Out After New Stormy Daniels Revelations](https://www.yahoo.com/news/team-trump-lashes-stormy-daniels-203411759.html)
+- May 29 - [Musk's $56 billion pay package opposed by CalPERS, CNBC reports](https://finance.yahoo.com/news/musks-56-billion-pay-package-193940664.html)
+- May 29 - [A 6th house has collapsed into the Atlantic Ocean along North Carolina's Outer Banks](https://www.yahoo.com/news/6th-house-collapsed-atlantic-ocean-185858658.html)
 <!-- feed end -->
 
 ### Onstream
