@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Dell Escapes Nvidia’s Shadow as Its Own AI Tailwinds Accelerate](https://finance.yahoo.com/news/dell-escapes-nvidia-shadow-own-121238032.html)
+- May 30 - [More Canadian car buyers shunning EVs in 2024: J.D. Power](https://finance.yahoo.com/news/more-canadian-car-buyers-shunning-evs-in-2024-jd-power-110052536.html)
+- May 30 - [US Abrams tanks failing in Ukraine as Russia mocks them as ‘empty tin cans’](https://www.yahoo.com/news/us-abrams-tanks-failing-ukraine-132511636.html)
+- May 30 - [GDP: US economy grew at a slower pace than initially thought in Q1](https://finance.yahoo.com/news/gdp-us-economy-grew-at-a-slower-pace-than-initially-thought-in-q1-131220924.html)
+- May 30 - ['Dine and Dash' Couple Jailed After Racking Up ‘Huge' Restaurants Bills: ‘Brazen Offending’](https://www.yahoo.com/news/dine-dash-couple-jailed-racking-125116209.html)
 - May 30 - [Planning to Work While Receiving Social Security? Don't Let This Lesser-Known Rule Cost You Money.](https://finance.yahoo.com/news/planning-while-receiving-social-security-114500014.html)
-- May 30 - [Stuck at sea for years, a sailor's plight highlights a surge in shipowner abandonment](https://www.yahoo.com/news/stuck-sea-years-sailors-plight-110453421.html)
-- May 30 - [Biden Mocks Reporter's 'All 4 Years' Question: 'Did You Fall On Your Head Or Something?'](https://www.yahoo.com/news/biden-mocks-reporters-4-years-104102433.html)
-- May 30 - [Construction update: What business will locate on upper Peach Street near I-90?](https://finance.yahoo.com/news/construction-business-locate-upper-peach-091554494.html)
 <!-- feed end -->
 
 ### Onstream
