@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [‘I was exhausted’: Boston nurse drives off top floor of hospital  garage after shift](https://www.yahoo.com/news/nurse-drives-off-top-floor-212132961.html)
-- May 29 - [Prehistoric discovery in US lake leaves experts in shock and awe](https://www.yahoo.com/lifestyle/prehistoric-discovery-us-lake-leaves-204949110.html)
-- May 29 - [Team Trump Lashes Out After New Stormy Daniels Revelations](https://www.yahoo.com/news/team-trump-lashes-stormy-daniels-203411759.html)
-- May 29 - [Musk's $56 billion pay package opposed by CalPERS, CNBC reports](https://finance.yahoo.com/news/musks-56-billion-pay-package-193940664.html)
-- May 29 - [A 6th house has collapsed into the Atlantic Ocean along North Carolina's Outer Banks](https://www.yahoo.com/news/6th-house-collapsed-atlantic-ocean-185858658.html)
+- May 30 - [Louisville cop who arrested Scottie Scheffler: ‘Yes, the department has us buying freaking $80 pants’](https://sports.yahoo.com/louisville-cop-arrested-scottie-scheffler-033412628.html)
+- May 30 - [Opinion | Justice Stephen Breyer says (politely) that the SCOTUS majority is doing it all wrong](https://www.yahoo.com/news/opinion-justice-stephen-breyer-says-004403703.html)
+- May 29 - [Man in critical condition after being on fire at Plant City Publix, police say](https://www.yahoo.com/news/man-critical-condition-being-fire-235000249.html)
+- May 29 - [Attack victim, mom react after Shawnee Mission East student pleads guilty to aggravated battery](https://www.yahoo.com/news/attack-victim-mom-react-shawnee-230646736.html)
+- May 29 - [Chiefs DT Isaiah Buggs reportedly accused of animal cruelty, shoving Tuscaloosa police chief](https://sports.yahoo.com/chiefs-dt-isaiah-buggs-reportedly-accused-of-animal-cruelty-shoving-tuscaloosa-police-chief-225328303.html)
 <!-- feed end -->
 
 ### Onstream
