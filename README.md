@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [Why the Dow has fallen 1,000 points in the last three days](https://finance.yahoo.com/news/why-dow-fallen-1-000-133407288.html)
+- May 30 - [Scott Peterson suffers big setback in effort to prove he did not kill wife, unborn son](https://www.yahoo.com/news/scott-peterson-suffers-big-setback-162812433.html)
+- May 30 - [Donald Trump can sue niece over NY Times article, NY appeals court rules](https://www.yahoo.com/news/donald-trump-sue-niece-over-161215365.html)
 - May 30 - [Archaeologists found a secret chamber at the base of the Great Pyramid of Giza, and they have no idea what it is](https://www.yahoo.com/news/archaeologists-found-secret-chamber-great-155943662.html)
 - May 30 - [Trump's jury asked to re-hear the judge's 'rain metaphor' instruction — here's what that might mean](https://www.yahoo.com/news/trumps-jury-asked-hear-judges-154427605.html)
-- May 30 - [Steven Seagal’s Acting Career Hits New Low in Nutso Kremlin Speech](https://www.yahoo.com/entertainment/steven-seagal-acting-career-hits-153943375.html)
-- May 30 - [‘You may want to call an attorney right away’: Details of Rory McIlroy’s divorce emerge](https://www.yahoo.com/entertainment/may-want-call-attorney-away-153350476.html)
-- May 30 - [Clerk over Alex Murdaugh trial spent thousands on bonuses, meals and gifts, ethics complaint says](https://www.yahoo.com/news/clerk-over-alex-murdaugh-trial-151054061.html)
 <!-- feed end -->
 
 ### Onstream
