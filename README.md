@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Why the Dow has fallen 1,000 points in the last three days](https://finance.yahoo.com/news/why-dow-fallen-1-000-133407288.html)
-- May 30 - [Scott Peterson suffers big setback in effort to prove he did not kill wife, unborn son](https://www.yahoo.com/news/scott-peterson-suffers-big-setback-162812433.html)
+- May 30 - [CEO Who Said No to $49 Billion Must Now Dismantle Anglo American](https://finance.yahoo.com/news/ceo-said-no-49-billion-181438866.html)
+- May 30 - ["Over 8 Million People Are Living With Brain Worms": Anxiety Over Brain Worms Is At An All-Time High. Here's What An Expert Says You Need To Know.](https://www.yahoo.com/news/over-8-million-people-living-175125250.html)
+- May 30 - [RHONY’s Sonja Morgan Loses Huge Sum in Final Sale of Iconic NYC Townhouse](https://www.yahoo.com/entertainment/rhony-sonja-morgan-loses-huge-172952954.html)
 - May 30 - [Donald Trump can sue niece over NY Times article, NY appeals court rules](https://www.yahoo.com/news/donald-trump-sue-niece-over-161215365.html)
 - May 30 - [Archaeologists found a secret chamber at the base of the Great Pyramid of Giza, and they have no idea what it is](https://www.yahoo.com/news/archaeologists-found-secret-chamber-great-155943662.html)
-- May 30 - [Trump's jury asked to re-hear the judge's 'rain metaphor' instruction — here's what that might mean](https://www.yahoo.com/news/trumps-jury-asked-hear-judges-154427605.html)
 <!-- feed end -->
 
 ### Onstream
