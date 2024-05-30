@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [3 Reasons Retirees Could Be Surprised by the Most Recent 2025 Social Security Cost-of-Living Adjustment (COLA) Forecast](https://finance.yahoo.com/news/3-reasons-retirees-could-surprised-101500405.html)
-- May 30 - [Russia says it may take extra nuclear deterrence steps if US puts missiles in Europe/Asia](https://www.yahoo.com/news/russia-says-may-extra-nuclear-074154039.html)
-- May 30 - [Indian space startup Agnikul launches country's second privately built rocket](https://www.yahoo.com/news/indian-space-startup-agnikul-launches-043829305.html)
-- May 30 - [Louisville cop who arrested Scottie Scheffler: ‘Yes, the department has us buying freaking $80 pants’](https://sports.yahoo.com/louisville-cop-arrested-scottie-scheffler-033412628.html)
+- May 30 - [Stuck at sea for years, a sailor's plight highlights a surge in shipowner abandonment](https://www.yahoo.com/news/stuck-sea-years-sailors-plight-110453421.html)
+- May 30 - [Jill Biden Sums Up Donald Trump With 1 Withering Word](https://www.yahoo.com/news/jill-biden-sums-donald-trump-075236600.html)
 - May 30 - [Opinion | Justice Stephen Breyer says (politely) that the SCOTUS majority is doing it all wrong](https://www.yahoo.com/news/opinion-justice-stephen-breyer-says-004403703.html)
+- May 29 - [Family Held at Gunpoint in Terrifying Carjacking](https://www.yahoo.com/news/family-held-gunpoint-terrifying-carjacking-214604959.html)
+- May 29 - [Scientists sound alarm as growing threat looms over coastal states: 'We are preparing for the wrong disaster'](https://www.yahoo.com/news/scientists-sound-alarm-growing-threat-020000701.html)
 <!-- feed end -->
 
 ### Onstream
