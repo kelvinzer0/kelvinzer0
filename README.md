@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Hundreds of thousands of US internet routers destroyed in newly discovered 2023 hack](https://finance.yahoo.com/news/hundreds-thousands-us-internet-routers-142544224.html)
+- May 30 - [‘You may want to call an attorney right away’: Details of Rory McIlroy’s divorce emerge](https://www.yahoo.com/entertainment/may-want-call-attorney-away-153350476.html)
+- May 30 - [Billionaire Bill Gates Has A McDonald's 'Gold Card' That Gives Him Free Food For Life Worldwide](https://finance.yahoo.com/news/billionaire-bill-gates-mcdonalds-gold-140011115.html)
+- May 30 - [I Went to the Trump Rally for His Black and Hispanic Voters. What I Saw Wasn’t Comforting.](https://www.yahoo.com/news/went-trump-rally-black-hispanic-140000092.html)
+- May 30 - ["Good day for Trump's prosecutors": Experts say jury note may be a bad sign for Trump](https://www.yahoo.com/news/good-day-trumps-prosecutors-experts-134303319.html)
 - May 30 - [US Abrams tanks failing in Ukraine as Russia mocks them as ‘empty tin cans’](https://www.yahoo.com/news/us-abrams-tanks-failing-ukraine-132511636.html)
-- May 30 - [Why scientists say we need to send clocks to the moon — and soon](https://www.yahoo.com/news/no-one-knows-time-moon-123108022.html)
-- May 30 - [GDP: US economy grew at a slower pace than initially thought in Q1](https://finance.yahoo.com/news/gdp-us-economy-grew-at-a-slower-pace-than-initially-thought-in-q1-131220924.html)
-- May 30 - [Police monitor Taylor Swift gig decibels as Madrid locals fume at noise](https://www.yahoo.com/news/police-monitor-taylor-swift-gig-130858621.html)
 <!-- feed end -->
 
 ### Onstream
