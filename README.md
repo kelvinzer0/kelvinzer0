@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [CEO Who Said No to $49 Billion Must Now Dismantle Anglo American](https://finance.yahoo.com/news/ceo-said-no-49-billion-181438866.html)
+- May 30 - [Why the Dow has fallen 1,000 points in the last three days](https://finance.yahoo.com/news/why-dow-fallen-1-000-133407288.html)
+- May 30 - [Tens of billions of dollars in gold flows illegally out of Africa each year, a new report says](https://finance.yahoo.com/news/tens-billions-dollars-gold-flows-180148637.html)
 - May 30 - ["Over 8 Million People Are Living With Brain Worms": Anxiety Over Brain Worms Is At An All-Time High. Here's What An Expert Says You Need To Know.](https://www.yahoo.com/news/over-8-million-people-living-175125250.html)
-- May 30 - [RHONY’s Sonja Morgan Loses Huge Sum in Final Sale of Iconic NYC Townhouse](https://www.yahoo.com/entertainment/rhony-sonja-morgan-loses-huge-172952954.html)
-- May 30 - [Donald Trump can sue niece over NY Times article, NY appeals court rules](https://www.yahoo.com/news/donald-trump-sue-niece-over-161215365.html)
-- May 30 - [Archaeologists found a secret chamber at the base of the Great Pyramid of Giza, and they have no idea what it is](https://www.yahoo.com/news/archaeologists-found-secret-chamber-great-155943662.html)
+- May 30 - [Hamas says it is ready for a 'complete agreement' if Israel stops war](https://www.yahoo.com/news/hamas-ready-reach-complete-agreement-173942399.html)
+- May 30 - [UAW's Fain takes oversight of union's Stellantis Department from vice president](https://finance.yahoo.com/news/uaws-fain-takes-oversight-unions-172700900.html)
 <!-- feed end -->
 
 ### Onstream
