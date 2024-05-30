@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Michigan man with suspended license logs into Zoom court hearing while driving](https://www.yahoo.com/news/michigan-man-suspended-license-logs-002022502.html)
 - May 29 - [Chiefs DT Isaiah Buggs reportedly accused of animal cruelty, shoving Tuscaloosa police chief](https://sports.yahoo.com/chiefs-dt-isaiah-buggs-reportedly-accused-of-animal-cruelty-shoving-tuscaloosa-police-chief-225328303.html)
-- May 29 - [Were you inside Fresno Yosemite International Airport on May 19?](https://www.yahoo.com/news/were-inside-fresno-yosemite-international-224743511.html)
 - May 29 - [‘I was exhausted’: Boston nurse drives off top floor of hospital  garage after shift](https://www.yahoo.com/news/nurse-drives-off-top-floor-212132961.html)
-- May 29 - [Peltz's Trian sells out Disney stake after board fight, CNBC reports](https://finance.yahoo.com/news/peltzs-trian-sells-disney-stock-215714384.html)
+- May 29 - [Prehistoric discovery in US lake leaves experts in shock and awe](https://www.yahoo.com/lifestyle/prehistoric-discovery-us-lake-leaves-204949110.html)
+- May 29 - [Boeing making progress on 737 MAX engine issue delaying certification of some models](https://finance.yahoo.com/news/boeing-says-making-progress-737-202940553.html)
+- May 29 - [Michigan judge astonished at how man shows up to virtual hearing for driving with suspended license charge](https://www.yahoo.com/news/michigan-judge-astonished-man-shows-202411240.html)
 <!-- feed end -->
 
 ### Onstream
