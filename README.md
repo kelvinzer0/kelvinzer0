@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Catawba Indians to start construction of $700M NC casino near Charlotte, with 2,000 jobs](https://finance.yahoo.com/news/catawba-indians-start-construction-700m-182825713.html)
-- May 31 - [Watch: Lauren Boebert Exposes Just How Useless She Is](https://www.yahoo.com/news/watch-lauren-boebert-exposes-just-152558013.html)
-- May 31 - [Scientists Discovered Promethium in 1945. They Only Just Learned What It Actually Does.](https://www.yahoo.com/news/scientists-discovered-promethium-1945-only-151000088.html)
-- May 31 - [Police say several people have been hurt in a stabbing in the German city of Mannheim](https://www.yahoo.com/news/police-several-people-hurt-stabbing-142607781.html)
-- May 31 - [They went on a honeymoon to Europe. Then 60 seconds of hell in the air turned it into an experience they'll never forget.](https://www.yahoo.com/news/went-honeymoon-europe-then-60-130753804.html)
+- May 31 - [Guilty Trump's press conference was a disaster. Republicans need to replace him – fast.](https://www.yahoo.com/news/guilty-trumps-press-conference-disaster-184526876.html)
+- May 31 - [Robert De Niro Is Stripped Of Award After Trump Takedown At Courthouse](https://www.yahoo.com/entertainment/robert-niro-stripped-award-trump-183819466.html)
+- May 31 - [Can You Realistically Follow Dave Ramsey’s 8% Retirement Rule?](https://finance.yahoo.com/news/realistically-dave-ramsey-8-retirement-165222513.html)
+- May 31 - [SpaceX Launch Targets Safe Reentry of Starship Megarocket—If It Doesn't Explode First](https://www.yahoo.com/tech/spacex-launch-targets-safe-reentry-163500288.html)
+- May 31 - [Costco’s new CFO makes announcement about $1.50 hot dog combo](https://finance.yahoo.com/news/costco-cfo-makes-announcement-1-155240945.html)
 <!-- feed end -->
 
 ### Onstream
