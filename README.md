@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Inflation rises moderately in April, spending slows](https://finance.yahoo.com/video/inflation-rises-moderately-april-spending-162702918.html)
+- May 31 - [Can You Realistically Follow Dave Ramsey’s 8% Retirement Rule?](https://finance.yahoo.com/news/realistically-dave-ramsey-8-retirement-165222513.html)
+- May 31 - [Could Northern California see northern lights again? Here’s what the latest forecast says](https://www.yahoo.com/news/could-northern-california-see-northern-163607864.html)
 - May 31 - [Watch: Lauren Boebert Exposes Just How Useless She Is](https://www.yahoo.com/news/watch-lauren-boebert-exposes-just-152558013.html)
 - May 31 - [Cybertruck owner says he's stuck with a vehicle that's too big for his parking spot, and Tesla won't let him return or resell it](https://autos.yahoo.com/cybertruck-owner-says-hes-stuck-145729136.html)
 - May 31 - [Andree Goldberg apologizes for Kylie Kelce confrontation at Jersey shore](https://www.yahoo.com/entertainment/andree-goldberg-apologies-kylie-kelce-144310968.html)
-- May 31 - [They went on a honeymoon to Europe. Then 60 seconds of hell in the air turned it into an experience they'll never forget.](https://www.yahoo.com/news/went-honeymoon-europe-then-60-130753804.html)
 <!-- feed end -->
 
 ### Onstream
