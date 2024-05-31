@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 31 - [Ivanka Trump Breaks Silence With 4-Word Message For Dad After Guilty Verdict](https://www.yahoo.com/news/ivanka-trump-breaks-silence-4-081724240.html)
+- May 31 - [Judge to consider recalling death sentence of man who killed 12-year-old Polly Klaas](https://www.yahoo.com/news/judge-consider-recalling-death-sentence-050356205.html)
+- May 31 - [Trump supporters call for riots and violent retribution after verdict](https://www.yahoo.com/news/trump-supporters-call-riots-violent-041835137.html)
 - May 31 - [India cenbank moves 100 tons of gold from UK to domestic vaults, TOI reports](https://finance.yahoo.com/news/india-cenbank-moves-100-tons-032148705.html)
-- May 31 - [WNBA player Brittney Griner shocked by critics who claim she's unpatriotic: ‘I’m blown away’](https://www.yahoo.com/news/wnba-player-brittney-griner-shocked-010043082.html)
 - May 30 - [Police officer, 2 civilians and shooter dead, 2nd officer hurt in south Minneapolis shooting](https://www.yahoo.com/news/two-officers-shot-multiple-other-232200054.html)
-- May 30 - [Arab-Muslim lawyer files lawsuit against Chicago-based firm over revoked job offer](https://www.yahoo.com/news/arab-muslim-lawyer-files-lawsuit-231500748.html)
 <!-- feed end -->
 
 ### Onstream
