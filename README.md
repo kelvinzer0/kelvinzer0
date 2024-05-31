@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Levelland, Tahoka storms provide lessons for next severe weather event](https://www.yahoo.com/news/levelland-tahoka-storms-lessons-next-235510919.html)
+- May 31 - [Ivanka Offers Just Four Words of Support After Dad Becomes a Felon](https://www.yahoo.com/news/ivanka-offers-just-four-words-015406398.html)
+- May 31 - [A robot traveled to the deep sea. See what it found](https://www.yahoo.com/news/robot-traveled-deep-sea-see-214903663.html)
 - May 30 - [Trump adviser on Hogan’s verdict remarks: You just ended your campaign](https://www.yahoo.com/news/trump-adviser-hogan-verdict-remarks-230417539.html)
-- May 30 - [Trump campaign donation page crashes after guilty verdict](https://www.yahoo.com/news/trump-campaign-donation-page-crashes-222115101.html)
 - May 30 - [Explainer-Can Trump be president despite his criminal conviction?](https://www.yahoo.com/news/explainer-trump-president-despite-criminal-211259916.html)
 - May 30 - [US State Department official resigns, says US report on Gaza inaccurate](https://www.yahoo.com/news/us-state-department-official-resigns-210626006.html)
 <!-- feed end -->
