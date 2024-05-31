@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [Man refuses to switch seats with passenger on flight](https://www.yahoo.com/lifestyle/man-refuses-switch-seats-passenger-195114164.html)
 - May 31 - [Guilty Trump's press conference was a disaster. Republicans need to replace him – fast.](https://www.yahoo.com/news/guilty-trumps-press-conference-disaster-184526876.html)
-- May 31 - [Robert De Niro Is Stripped Of Award After Trump Takedown At Courthouse](https://www.yahoo.com/entertainment/robert-niro-stripped-award-trump-183819466.html)
-- May 31 - [Can You Realistically Follow Dave Ramsey’s 8% Retirement Rule?](https://finance.yahoo.com/news/realistically-dave-ramsey-8-retirement-165222513.html)
-- May 31 - [SpaceX Launch Targets Safe Reentry of Starship Megarocket—If It Doesn't Explode First](https://www.yahoo.com/tech/spacex-launch-targets-safe-reentry-163500288.html)
+- May 31 - [Fitness Influencer Tried To Sweep Officer's Leg During Arrest, Police Say](https://www.yahoo.com/news/fitness-influencer-tried-sweep-officers-175539949.html)
 - May 31 - [Costco’s new CFO makes announcement about $1.50 hot dog combo](https://finance.yahoo.com/news/costco-cfo-makes-announcement-1-155240945.html)
+- May 31 - [Viral Utah ‘Karen’ got fired from AG’s office same day she was charged with sexual battery](https://www.yahoo.com/news/viral-utah-karen-got-fired-153709576.html)
 <!-- feed end -->
 
 ### Onstream
