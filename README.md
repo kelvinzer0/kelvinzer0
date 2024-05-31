@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Arab-Muslim lawyer files lawsuit against Chicago-based firm over revoked job offer](https://www.yahoo.com/news/arab-muslim-lawyer-files-lawsuit-231500748.html)
-- May 30 - [Trump adviser on Hogan’s verdict remarks: You just ended your campaign](https://www.yahoo.com/news/trump-adviser-hogan-verdict-remarks-230417539.html)
-- May 30 - [Trump campaign donation page crashes after guilty verdict](https://www.yahoo.com/news/trump-campaign-donation-page-crashes-222115101.html)
-- May 30 - [Explainer-Can Trump be president despite his criminal conviction?](https://www.yahoo.com/news/explainer-trump-president-despite-criminal-211259916.html)
-- May 30 - [There's a New Kind of Blueberry in Stores Now](https://www.yahoo.com/lifestyle/theres-kind-blueberry-stores-now-200000069.html)
+- May 31 - [Judge to consider recalling death sentence of man who killed 12-year-old Polly Klaas](https://www.yahoo.com/news/judge-consider-recalling-death-sentence-050356205.html)
+- May 31 - [New Yorker Pokes Trump In His Most Infamous Sore Spot With Scathing New Cover](https://www.yahoo.com/entertainment/yorker-pokes-trump-most-infamous-043731915.html)
+- May 31 - [India cenbank moves 100 tons of gold from UK to domestic vaults, TOI reports](https://finance.yahoo.com/news/india-cenbank-moves-100-tons-032148705.html)
+- May 31 - [A robot traveled to the deep sea. See what it found](https://www.yahoo.com/news/robot-traveled-deep-sea-see-214903663.html)
+- May 30 - [Buc-ee's co-founder’s son indicted on multiple counts for secretly filming guests in bathroom at lake house](https://www.yahoo.com/news/buc-ees-co-founder-son-233042274.html)
 <!-- feed end -->
 
 ### Onstream
