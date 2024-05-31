@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Time Magazine Literally Brings The Gavel Down On Donald Trump In Brutal New Cover](https://www.yahoo.com/news/time-magazine-literally-brings-gavel-114108492.html)
-- May 31 - [Japan Spent Record $62 Billion to Prop Up Yen in Past Month](https://finance.yahoo.com/news/japan-spent-record-62-billion-102434065.html)
-- May 31 - [4 Signs You’re at Risk of Outliving Your Retirement Savings](https://finance.yahoo.com/news/4-signs-risk-outliving-retirement-113056520.html)
-- May 31 - [Charlie Munger once revealed how investors can beat the stock market — here are 3 of his essential tips](https://finance.yahoo.com/news/charlie-munger-once-revealed-investors-102200901.html)
+- May 31 - [Houthis Say They Attacked Warship After Deadly US-UK Strikes](https://finance.yahoo.com/news/yemen-houthis-us-uk-carried-081226700.html)
 - May 31 - [Roaches and improperly handling raw meat at Myrtle Beach’s worst restaurant inspections](https://www.yahoo.com/news/roaches-improperly-handling-raw-meat-090000560.html)
+- May 31 - [Ivanka Trump Breaks Silence With 4-Word Message For Dad After Guilty Verdict](https://www.yahoo.com/news/ivanka-trump-breaks-silence-4-081724240.html)
+- May 31 - [The Social Security COLA Forecast for 2025 Was Just Updated. Here's the Good News and Bad News for Retirees](https://finance.yahoo.com/news/social-security-cola-forecast-2025-073600518.html)
+- May 31 - [International reaction to Donald Trump's criminal conviction](https://www.yahoo.com/news/international-reaction-donald-trumps-criminal-065319942.html)
 <!-- feed end -->
 
 ### Onstream
