@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - ['Shameful': Republicans quickly come to Trump's defense after his conviction](https://www.yahoo.com/news/shameful-republicans-quickly-come-trumps-213500132.html)
+- May 30 - [Levelland, Tahoka storms provide lessons for next severe weather event](https://www.yahoo.com/news/levelland-tahoka-storms-lessons-next-235510919.html)
+- May 30 - [Trump adviser on Hogan’s verdict remarks: You just ended your campaign](https://www.yahoo.com/news/trump-adviser-hogan-verdict-remarks-230417539.html)
+- May 30 - [Trump campaign donation page crashes after guilty verdict](https://www.yahoo.com/news/trump-campaign-donation-page-crashes-222115101.html)
 - May 30 - [Explainer-Can Trump be president despite his criminal conviction?](https://www.yahoo.com/news/explainer-trump-president-despite-criminal-211259916.html)
 - May 30 - [US State Department official resigns, says US report on Gaza inaccurate](https://www.yahoo.com/news/us-state-department-official-resigns-210626006.html)
-- May 30 - [The US Navy botched the design of its new $1 billion frigates: report](https://www.yahoo.com/news/us-navy-botched-design-1-210255299.html)
-- May 30 - [Fact Check: Rumor Claims Karine Jean-Pierre Abruptly Ended Briefing After Reporter Asked If White House in 'Full-Blown Freakout Mode.' Here's the Truth](https://www.yahoo.com/news/fact-check-rumor-claims-karine-201500975.html)
 <!-- feed end -->
 
 ### Onstream
