@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [How the cashless society is hurting the poorest](https://finance.yahoo.com/news/cashless-society-hurting-poorest-073008556.html)
 - May 31 - [Judge to consider recalling death sentence of man who killed 12-year-old Polly Klaas](https://www.yahoo.com/news/judge-consider-recalling-death-sentence-050356205.html)
 - May 31 - [India cenbank moves 100 tons of gold from UK to domestic vaults, TOI reports](https://finance.yahoo.com/news/india-cenbank-moves-100-tons-032148705.html)
 - May 31 - [McConnell comes to Trump’s defense after guilty verdict](https://www.yahoo.com/news/mcconnell-comes-trump-defense-guilty-022601488.html)
-- May 31 - [Disturbing video shows Southern California student being assaulted in alleged hazing incident](https://www.yahoo.com/news/disturbing-video-shows-southern-california-005235020.html)
-- May 30 - [Arab-Muslim lawyer files lawsuit against Chicago-based firm over revoked job offer](https://www.yahoo.com/news/arab-muslim-lawyer-files-lawsuit-231500748.html)
+- May 31 - [China suspends tariff concessions on 134 items under Taiwan trade deal](https://www.yahoo.com/news/china-suspends-tariff-concessions-134-010113814.html)
 <!-- feed end -->
 
 ### Onstream
