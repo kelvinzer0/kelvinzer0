@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [BofA Says Drop in US Tech Could Be Next Pain Trade for Equities](https://finance.yahoo.com/news/bofa-says-drop-us-tech-102839763.html)
 - May 31 - [Ivanka Trump Breaks Silence With 4-Word Message For Dad After Guilty Verdict](https://www.yahoo.com/news/ivanka-trump-breaks-silence-4-081724240.html)
+- May 31 - [The Social Security COLA Forecast for 2025 Was Just Updated. Here's the Good News and Bad News for Retirees](https://finance.yahoo.com/news/social-security-cola-forecast-2025-073600518.html)
 - May 31 - [Judge to consider recalling death sentence of man who killed 12-year-old Polly Klaas](https://www.yahoo.com/news/judge-consider-recalling-death-sentence-050356205.html)
 - May 31 - [Trump supporters call for riots and violent retribution after verdict](https://www.yahoo.com/news/trump-supporters-call-riots-violent-041835137.html)
-- May 31 - [India cenbank moves 100 tons of gold from UK to domestic vaults, TOI reports](https://finance.yahoo.com/news/india-cenbank-moves-100-tons-032148705.html)
-- May 30 - [Police officer, 2 civilians and shooter dead, 2nd officer hurt in south Minneapolis shooting](https://www.yahoo.com/news/two-officers-shot-multiple-other-232200054.html)
 <!-- feed end -->
 
 ### Onstream
