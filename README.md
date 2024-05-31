@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Warren Buffett's son Howard Buffett on his life as the potential next chairman of Berkshire Hathaway](https://finance.yahoo.com/news/warren-buffetts-son-howard-buffett-on-his-life-as-the-potential-next-chairman-of-berkshire-hathaway-125023078.html)
-- May 31 - [Anti-Trump attorney yells at CNN contributor in fierce argument over Trump conviction: 'You're lying!'](https://www.yahoo.com/news/anti-trump-attorney-yells-cnn-124313220.html)
-- May 31 - [Time Magazine Literally Brings The Gavel Down On Donald Trump In Brutal New Cover](https://www.yahoo.com/news/time-magazine-literally-brings-gavel-114108492.html)
-- May 31 - [A Few Years From Now, You'll Wish You Bought This High-Growth Stock](https://finance.yahoo.com/news/few-years-now-youll-wish-110000011.html)
-- May 31 - [Fact Check: We Looked into Actor Terrence Howard's Claim That He Holds Patent on Augmented/Virtual Reality Technology](https://www.yahoo.com/entertainment/fact-check-looked-actor-terrence-110000401.html)
+- May 31 - [Inflation rises moderately in April, spending slows](https://finance.yahoo.com/video/inflation-rises-moderately-april-spending-162702918.html)
+- May 31 - [Watch: Lauren Boebert Exposes Just How Useless She Is](https://www.yahoo.com/news/watch-lauren-boebert-exposes-just-152558013.html)
+- May 31 - [Cybertruck owner says he's stuck with a vehicle that's too big for his parking spot, and Tesla won't let him return or resell it](https://autos.yahoo.com/cybertruck-owner-says-hes-stuck-145729136.html)
+- May 31 - [Andree Goldberg apologizes for Kylie Kelce confrontation at Jersey shore](https://www.yahoo.com/entertainment/andree-goldberg-apologies-kylie-kelce-144310968.html)
+- May 31 - [They went on a honeymoon to Europe. Then 60 seconds of hell in the air turned it into an experience they'll never forget.](https://www.yahoo.com/news/went-honeymoon-europe-then-60-130753804.html)
 <!-- feed end -->
 
 ### Onstream
