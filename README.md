@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 31 - [Ivanka Offers Just Four Words of Support After Dad Becomes a Felon](https://www.yahoo.com/news/ivanka-offers-just-four-words-015406398.html)
-- May 31 - [A robot traveled to the deep sea. See what it found](https://www.yahoo.com/news/robot-traveled-deep-sea-see-214903663.html)
+- May 31 - [Disturbing video shows Southern California student being assaulted in alleged hazing incident](https://www.yahoo.com/news/disturbing-video-shows-southern-california-005235020.html)
+- May 30 - [Arab-Muslim lawyer files lawsuit against Chicago-based firm over revoked job offer](https://www.yahoo.com/news/arab-muslim-lawyer-files-lawsuit-231500748.html)
 - May 30 - [Trump adviser on Hogan’s verdict remarks: You just ended your campaign](https://www.yahoo.com/news/trump-adviser-hogan-verdict-remarks-230417539.html)
-- May 30 - [Explainer-Can Trump be president despite his criminal conviction?](https://www.yahoo.com/news/explainer-trump-president-despite-criminal-211259916.html)
-- May 30 - [US State Department official resigns, says US report on Gaza inaccurate](https://www.yahoo.com/news/us-state-department-official-resigns-210626006.html)
+- May 30 - [El Paso man killed in Patriot Freeway 'road rage' shooting identified](https://www.yahoo.com/news/el-paso-man-killed-patriot-224629635.html)
 <!-- feed end -->
 
 ### Onstream
