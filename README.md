@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 31 - [Judge to consider recalling death sentence of man who killed 12-year-old Polly Klaas](https://www.yahoo.com/news/judge-consider-recalling-death-sentence-050356205.html)
-- May 31 - [New Yorker Pokes Trump In His Most Infamous Sore Spot With Scathing New Cover](https://www.yahoo.com/entertainment/yorker-pokes-trump-most-infamous-043731915.html)
 - May 31 - [India cenbank moves 100 tons of gold from UK to domestic vaults, TOI reports](https://finance.yahoo.com/news/india-cenbank-moves-100-tons-032148705.html)
-- May 31 - [A robot traveled to the deep sea. See what it found](https://www.yahoo.com/news/robot-traveled-deep-sea-see-214903663.html)
-- May 30 - [Buc-ee's co-founder’s son indicted on multiple counts for secretly filming guests in bathroom at lake house](https://www.yahoo.com/news/buc-ees-co-founder-son-233042274.html)
+- May 31 - [McConnell comes to Trump’s defense after guilty verdict](https://www.yahoo.com/news/mcconnell-comes-trump-defense-guilty-022601488.html)
+- May 31 - [Disturbing video shows Southern California student being assaulted in alleged hazing incident](https://www.yahoo.com/news/disturbing-video-shows-southern-california-005235020.html)
+- May 30 - [Arab-Muslim lawyer files lawsuit against Chicago-based firm over revoked job offer](https://www.yahoo.com/news/arab-muslim-lawyer-files-lawsuit-231500748.html)
 <!-- feed end -->
 
 ### Onstream
