@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Disturbing video shows Southern California student being assaulted in alleged hazing incident](https://www.yahoo.com/news/disturbing-video-shows-southern-california-005235020.html)
 - May 30 - [Arab-Muslim lawyer files lawsuit against Chicago-based firm over revoked job offer](https://www.yahoo.com/news/arab-muslim-lawyer-files-lawsuit-231500748.html)
 - May 30 - [Trump adviser on Hogan’s verdict remarks: You just ended your campaign](https://www.yahoo.com/news/trump-adviser-hogan-verdict-remarks-230417539.html)
 - May 30 - [Trump campaign donation page crashes after guilty verdict](https://www.yahoo.com/news/trump-campaign-donation-page-crashes-222115101.html)
 - May 30 - [Explainer-Can Trump be president despite his criminal conviction?](https://www.yahoo.com/news/explainer-trump-president-despite-criminal-211259916.html)
+- May 30 - [There's a New Kind of Blueberry in Stores Now](https://www.yahoo.com/lifestyle/theres-kind-blueberry-stores-now-200000069.html)
 <!-- feed end -->
 
 ### Onstream
