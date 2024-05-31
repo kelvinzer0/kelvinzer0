@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [Northern lights could be visible in the US again tonight: What states should look to the sky](https://www.yahoo.com/news/northern-lights-could-visible-us-211756100.html)
+- May 31 - [Major US airlines will not commit to boosting military travel benefits, USDOT says](https://finance.yahoo.com/news/major-us-airlines-not-commit-205851143.html)
+- May 31 - [I Was In The Courtroom When Donald Trump Was Found Guilty. Here's What You Didn't See.](https://www.yahoo.com/news/courtroom-donald-trump-found-guilty-205741476.html)
+- May 31 - [New Jersey attorney general blames shore town for having too few police on boardwalk during melee](https://www.yahoo.com/news/jersey-attorney-general-blames-shore-195256247.html)
 - May 31 - [Man refuses to switch seats with passenger on flight](https://www.yahoo.com/lifestyle/man-refuses-switch-seats-passenger-195114164.html)
-- May 31 - [Guilty Trump's press conference was a disaster. Republicans need to replace him – fast.](https://www.yahoo.com/news/guilty-trumps-press-conference-disaster-184526876.html)
-- May 31 - [Fitness Influencer Tried To Sweep Officer's Leg During Arrest, Police Say](https://www.yahoo.com/news/fitness-influencer-tried-sweep-officers-175539949.html)
-- May 31 - [Costco’s new CFO makes announcement about $1.50 hot dog combo](https://finance.yahoo.com/news/costco-cfo-makes-announcement-1-155240945.html)
-- May 31 - [Viral Utah ‘Karen’ got fired from AG’s office same day she was charged with sexual battery](https://www.yahoo.com/news/viral-utah-karen-got-fired-153709576.html)
 <!-- feed end -->
 
 ### Onstream
