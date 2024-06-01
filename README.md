@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Northern California casino looking to fill over 100 positions during June job fairs](https://finance.yahoo.com/news/northern-california-casino-looking-fill-023006700.html)
+- Jun 01 - [Gabby Petito's mom forgives killer Brian Laundrie but calls out 'evil' Roberta: 'You deserve to be forgotten'](https://www.yahoo.com/news/gabby-petitos-mom-forgives-killer-003210046.html)
 - Jun 01 - [Tesla shareholder sues Musk for alleged $7.5 billion insider trading](https://finance.yahoo.com/news/tesla-shareholder-sues-musk-alleged-002335130.html)
-- May 31 - [China food security law comes into force, aims for absolute self-sufficiency](https://www.yahoo.com/news/china-food-security-law-comes-230239095.html)
 - May 31 - [Northern lights could be visible in the US again tonight: What states should look to the sky](https://www.yahoo.com/news/northern-lights-could-visible-us-211756100.html)
-- May 31 - [I Was In The Courtroom When Donald Trump Was Found Guilty. Here's What You Didn't See.](https://www.yahoo.com/news/courtroom-donald-trump-found-guilty-205741476.html)
+- May 31 - [Gallaudet University named most dangerous campus in America: report](https://www.yahoo.com/news/gallaudet-university-named-most-dangerous-211357650.html)
+- May 31 - [Major US airlines will not commit to boosting military travel benefits, USDOT says](https://finance.yahoo.com/news/major-us-airlines-not-commit-205851143.html)
 <!-- feed end -->
 
 ### Onstream
