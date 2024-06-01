@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Northern California casino looking to fill over 100 positions during June job fairs](https://finance.yahoo.com/news/northern-california-casino-looking-fill-023006700.html)
 - Jun 01 - [Tesla shareholder sues Musk for alleged $7.5 billion insider trading](https://finance.yahoo.com/news/tesla-shareholder-sues-musk-alleged-002335130.html)
+- May 31 - [China food security law comes into force, aims for absolute self-sufficiency](https://www.yahoo.com/news/china-food-security-law-comes-230239095.html)
 - May 31 - [Northern lights could be visible in the US again tonight: What states should look to the sky](https://www.yahoo.com/news/northern-lights-could-visible-us-211756100.html)
-- May 31 - [Major US airlines will not commit to boosting military travel benefits, USDOT says](https://finance.yahoo.com/news/major-us-airlines-not-commit-205851143.html)
-- May 31 - [Man sentenced for forging Purdue professors' signatures to change his grades](https://www.yahoo.com/news/man-sentenced-forging-purdue-professors-200844033.html)
-- May 31 - [Man refuses to switch seats with passenger on flight](https://www.yahoo.com/lifestyle/man-refuses-switch-seats-passenger-195114164.html)
+- May 31 - [I Was In The Courtroom When Donald Trump Was Found Guilty. Here's What You Didn't See.](https://www.yahoo.com/news/courtroom-donald-trump-found-guilty-205741476.html)
 <!-- feed end -->
 
 ### Onstream
