@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - May 31 - [Northern lights could be visible in the US again tonight: What states should look to the sky](https://www.yahoo.com/news/northern-lights-could-visible-us-211756100.html)
 - May 31 - [Major US airlines will not commit to boosting military travel benefits, USDOT says](https://finance.yahoo.com/news/major-us-airlines-not-commit-205851143.html)
 - May 31 - [Man sentenced for forging Purdue professors' signatures to change his grades](https://www.yahoo.com/news/man-sentenced-forging-purdue-professors-200844033.html)
-- May 31 - [NYC's rat-hating mayor, Eric Adams, is once again ticketed for rats at his Brooklyn property](https://www.yahoo.com/news/nycs-rat-hating-mayor-eric-184226215.html)
+- May 31 - [New Jersey attorney general blames shore town for having too few police on boardwalk during melee](https://www.yahoo.com/news/jersey-attorney-general-blames-shore-195256247.html)
 <!-- feed end -->
 
 ### Onstream
