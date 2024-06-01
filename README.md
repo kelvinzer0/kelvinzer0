@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Putin’s next conquests are already in his sights](https://www.yahoo.com/news/putin-next-conquests-already-sights-120000736.html)
-- Jun 01 - [20-acre wildfire burning southwest of Eugene near Veneta](https://www.yahoo.com/news/20-acre-wildfire-burning-southwest-010826031.html)
-- Jun 01 - [Here are the airlines most likely to lose your luggage — guess which one is the absolute worst](https://www.yahoo.com/news/airlines-most-likely-lose-luggage-001325238.html)
-- May 31 - [China food security law comes into force, aims for absolute self-sufficiency](https://www.yahoo.com/news/china-food-security-law-comes-230239095.html)
-- May 31 - [Toyota, Mazda, Subaru Announce Plans For The Engine Reborn](https://autos.yahoo.com/toyota-mazda-subaru-announce-plans-213000381.html)
+- Jun 01 - [Delta Air sees healthy demand, especially on international routes](https://finance.yahoo.com/news/delta-air-lines-committed-boeing-124002631.html)
+- Jun 01 - [Japan billionaire Maezawa cancels moon trip due to uncertainty over SpaceX rocket development](https://www.yahoo.com/tech/japan-billionaire-maezawa-cancels-moon-121050633.html)
+- Jun 01 - [She was 14 when a U.S. pilot was shot down near her home in France. 80 years later, she’s keeping his memory alive.](https://www.yahoo.com/news/she-14-u-pilot-shot-120000618.html)
+- Jun 01 - [Video shows Ukrainian drone taking out a jet ski with 2 Russian soldiers who were attempting to cross the Dnipro River](https://www.yahoo.com/news/video-shows-ukrainian-drone-taking-113007853.html)
+- Jun 01 - [Israel's Netanyahu says there cannot be permanent Gaza ceasefire until Hamas destroyed](https://www.yahoo.com/news/israels-netanyahu-says-cannot-permanent-102606689.html)
 <!-- feed end -->
 
 ### Onstream
