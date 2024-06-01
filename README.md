@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 01 - [Emily Ratajkowski Models Her New swimsuit on the New York City Streets](https://www.yahoo.com/entertainment/emily-ratajkowski-models-her-swimsuit-171400587.html)
-- Jun 01 - [People Are Sharing The Unexpected Early Symptoms Of Cancer, And That's It, I'm Scheduling An Appointment With My Doctor](https://www.yahoo.com/news/people-sharing-unexpected-early-symptoms-151602677.html)
 - Jun 01 - [Panama prepares to evacuate first island in face of rising sea levels](https://www.yahoo.com/news/panama-prepares-evacuate-first-island-151000223.html)
 - Jun 01 - [Japan billionaire Maezawa cancels moon trip due to uncertainty over SpaceX rocket development](https://www.yahoo.com/tech/japan-billionaire-maezawa-cancels-moon-121050633.html)
+- Jun 01 - [Video shows Ukrainian drone taking out a jet ski with 2 Russian soldiers who were attempting to cross the Dnipro River](https://www.yahoo.com/news/video-shows-ukrainian-drone-taking-113007948.html)
 - Jun 01 - [I drove Hyundai's $52,000 Palisade, and now I understand why people rave about the family SUV](https://www.yahoo.com/news/drove-hyundais-52-000-palisade-111901424.html)
 <!-- feed end -->
 
