@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Archaeologists discover Norman bridge during dig](https://www.yahoo.com/news/archaeologists-discover-norman-bridge-during-063459864.html)
+- Jun 01 - [Is It Better to Collect Social Security at 62 or 67? An Extensive Study Weighs In and Provides a Clear Answer.](https://finance.yahoo.com/news/better-collect-social-security-62-074400377.html)
+- Jun 01 - [Northern California casino looking to fill over 100 positions during June job fairs](https://finance.yahoo.com/news/northern-california-casino-looking-fill-023006700.html)
 - Jun 01 - [Tesla shareholder sues Musk for alleged $7.5 billion insider trading](https://finance.yahoo.com/news/tesla-shareholder-sues-musk-alleged-002335130.html)
-- May 31 - [Hiking trail outside of Portland is one of the newest National Recreation Trails](https://www.yahoo.com/lifestyle/hiking-trail-outside-portland-one-232502328.html)
-- May 31 - [Merced’s ‘GB’ rapper among 41 arrested in operation, deputies say](https://www.yahoo.com/news/merced-gb-rapper-among-41-230640815.html)
-- May 31 - [China food security law comes into force, aims for absolute self-sufficiency](https://www.yahoo.com/news/china-food-security-law-comes-230239095.html)
+- May 31 - [Northern lights could be visible in the US again tonight: What states should look to the sky](https://www.yahoo.com/news/northern-lights-could-visible-us-211756100.html)
+- May 31 - [Gallaudet University named most dangerous campus in America: report](https://www.yahoo.com/news/gallaudet-university-named-most-dangerous-211357650.html)
 <!-- feed end -->
 
 ### Onstream
