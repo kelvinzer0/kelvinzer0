@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Florida Cop Who Shot Black Airman in His Own Home Fired](https://www.yahoo.com/news/florida-cop-shot-black-airman-155158178.html)
+- Jun 01 - [Vladimir Putin is testing Nato borders for weak spots, security chiefs warn](https://www.yahoo.com/news/vladimir-putin-testing-nato-borders-160855102.html)
+- Jun 01 - [Former Navy Admiral charged with taking bribes while on the job](https://www.yahoo.com/news/former-navy-admiral-charged-taking-155606246.html)
 - Jun 01 - [People Are Sharing The Unexpected Early Symptoms Of Cancer, And That's It, I'm Scheduling An Appointment With My Doctor](https://www.yahoo.com/news/people-sharing-unexpected-early-symptoms-151602677.html)
-- Jun 01 - [Panama prepares to evacuate first island in face of rising sea level](https://www.yahoo.com/news/panama-prepares-evacuate-first-island-151000223.html)
+- Jun 01 - [Panama prepares to evacuate first island in face of rising sea levels](https://www.yahoo.com/news/panama-prepares-evacuate-first-island-151000223.html)
 - Jun 01 - [Japan billionaire Maezawa cancels moon trip due to uncertainty over SpaceX rocket development](https://www.yahoo.com/tech/japan-billionaire-maezawa-cancels-moon-121050633.html)
-- Jun 01 - [She was 14 when a U.S. pilot was shot down near her home in France. 80 years later, she’s keeping his memory alive.](https://www.yahoo.com/news/she-14-u-pilot-shot-120000618.html)
 <!-- feed end -->
 
 ### Onstream
