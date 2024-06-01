@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Nvidia's 10-for-1 Stock Split: Everything You Need to Know](https://finance.yahoo.com/news/nvidias-10-1-stock-split-091600011.html)
-- Jun 01 - [2 Stocks to Buy Before They Take Off](https://finance.yahoo.com/news/2-stocks-buy-off-085000204.html)
+- Jun 01 - [Penn State takes one-month pause on plan to tear down historic barn. The future is still unclear](https://www.yahoo.com/news/penn-state-takes-one-month-094500537.html)
+- Jun 01 - [Watch Boeing’s Starliner mission attempt its historic first crewed launch](https://www.yahoo.com/tech/watch-boeing-starliner-mission-attempt-083015458.html)
+- Jun 01 - [Boonsboro High senior denied chance to walk on graduation stage due to makeup 'concerns'](https://www.yahoo.com/news/boonsboro-high-senior-denied-chance-080248278.html)
 - Jun 01 - [Las Vegas locals say they feel forgotten as city expands](https://www.yahoo.com/news/las-vegas-locals-feel-forgotten-012442109.html)
 - Jun 01 - [Tesla shareholder sues Musk for alleged $7.5 billion insider trading](https://finance.yahoo.com/news/tesla-shareholder-sues-musk-alleged-002335130.html)
-- May 31 - [Cop found locked in back of squad car with female suspect lied about ‘sexual conversations’, probe finds](https://www.yahoo.com/news/cop-found-locked-back-squad-215553618.html)
 <!-- feed end -->
 
 ### Onstream
