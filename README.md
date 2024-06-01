@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [2050's Grand Forks will likely have a denser downtown, a more sprawling west side and 36,000 more people](https://www.yahoo.com/news/2050s-grand-forks-likely-denser-143700694.html)
+- Jun 01 - [Florida Cop Who Shot Black Airman in His Own Home Fired](https://www.yahoo.com/news/florida-cop-shot-black-airman-155158178.html)
+- Jun 01 - [People Are Sharing The Unexpected Early Symptoms Of Cancer, And That's It, I'm Scheduling An Appointment With My Doctor](https://www.yahoo.com/news/people-sharing-unexpected-early-symptoms-151602677.html)
+- Jun 01 - [Panama prepares to evacuate first island in face of rising sea level](https://www.yahoo.com/news/panama-prepares-evacuate-first-island-151000223.html)
 - Jun 01 - [Japan billionaire Maezawa cancels moon trip due to uncertainty over SpaceX rocket development](https://www.yahoo.com/tech/japan-billionaire-maezawa-cancels-moon-121050633.html)
 - Jun 01 - [She was 14 when a U.S. pilot was shot down near her home in France. 80 years later, she’s keeping his memory alive.](https://www.yahoo.com/news/she-14-u-pilot-shot-120000618.html)
-- Jun 01 - [Israel's Netanyahu says there cannot be permanent Gaza ceasefire until Hamas destroyed](https://www.yahoo.com/news/israels-netanyahu-says-cannot-permanent-102606689.html)
-- Jun 01 - [I’m 57 and single. I have $630,000 in retirement savings. Should I pay my 3.75% mortgage before retirement?](https://finance.yahoo.com/news/m-57-single-630-000-102100629.html)
 <!-- feed end -->
 
 ### Onstream
