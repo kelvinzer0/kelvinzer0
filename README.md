@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Man shot while in courtyard between buildings on Pittsburgh’s North Shore](https://www.yahoo.com/news/man-shot-while-courtyard-between-121244172.html)
+- Jun 02 - [Next Boeing CEO should understand past mistakes, airlines boss says](https://finance.yahoo.com/news/next-boeing-ceo-understand-past-133044208.html)
+- Jun 02 - [Three friends filmed in final embrace before being swept away by flash floods in Italy](https://www.yahoo.com/news/three-friends-filmed-final-embrace-122646229.html)
 - Jun 02 - [China lands on moon's far side in historic mission](https://www.yahoo.com/news/china-lands-moons-far-side-115531131.html)
-- Jun 02 - [Managers at Boeing's largest factory 'hound mechanics' to keep quiet about safety concerns, employee says](https://www.yahoo.com/news/managers-boeings-largest-factory-hound-115027041.html)
-- Jun 02 - [At Missouri boarding school, ‘they preached the Bible, but they were straight from hell’](https://www.yahoo.com/news/missouri-boarding-school-preached-bible-110000891.html)
 - Jun 02 - [South Korea vows 'unbearable' retaliation against North Korea over its launch of trash balloons](https://www.yahoo.com/news/south-korea-vows-unbearable-retaliation-102834042.html)
+- Jun 02 - [New Jersey senior left ‘devastated’ after Atlantic City casino denies her $2.5 million jackpot](https://finance.yahoo.com/news/jersey-senior-left-devastated-atlantic-102200688.html)
 <!-- feed end -->
 
 ### Onstream
