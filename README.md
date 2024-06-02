@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [I Used to Think Social Security Wouldn't Be There for Me in Retirement. Now I Know the Truth](https://finance.yahoo.com/news/used-think-social-security-wouldnt-084800119.html)
+- Jun 02 - [Iran's hard-line former President Mahmoud Ahmadinejad registers for June 28 presidential election](https://www.yahoo.com/news/irans-hard-line-former-president-064640712.html)
 - Jun 02 - [Rubio’s Coastal Grill closes over a dozen San Diego-area stores](https://finance.yahoo.com/news/rubio-coastal-grill-closes-over-005955742.html)
-- Jun 01 - [Air Force Pilot Who Had Been Ordered to Prevent 9/11 Hijacked Plane from Reaching Washington, D.C., Retires](https://www.yahoo.com/news/air-force-pilot-had-ordered-213322523.html)
+- Jun 01 - [Heart-pounding video shows bear chase dog, then Minnesota woman in driveway: 'Lunged at me'](https://www.yahoo.com/lifestyle/heart-pounding-video-shows-bear-232200683.html)
 - Jun 01 - [Mexican officials again criticize volunteer searcher after she finds more bodies](https://www.yahoo.com/news/mexican-officials-again-criticize-volunteer-211708520.html)
-- Jun 01 - [Malaysian climber who died near top of Alaska's Denali, North America's tallest peak, is identified](https://www.yahoo.com/news/malaysian-climber-died-cave-near-194534929.html)
-- Jun 01 - [Minneapolis mass shooting: Suspect identified by officials](https://www.yahoo.com/news/minneapolis-mass-shooting-suspect-identified-193342215.html)
 <!-- feed end -->
 
 ### Onstream
