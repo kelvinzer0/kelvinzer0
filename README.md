@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [Beware the retirement savings 'time bomb,' tax expert warns](https://finance.yahoo.com/news/beware-the-retirement-savings-time-bomb-tax-expert-warns-150007851.html)
+- Jun 02 - [Media tycoon Rupert Murdoch marries for fifth time](https://www.yahoo.com/news/media-tycoon-rupert-murdoch-marries-141957057.html)
 - Jun 02 - [‘Starved, beaten and abused’ – Ukrainian policewoman returns home after two years in captivity](https://www.yahoo.com/news/starved-beaten-abused-ukrainian-policewoman-132500879.html)
+- Jun 02 - [Nvidia says its next-generation AI chip platform to be rolled out in 2026](https://finance.yahoo.com/news/nvidia-says-next-generation-ai-125330569.html)
 - Jun 02 - [Three friends filmed in final embrace before being swept away by flash floods in Italy](https://www.yahoo.com/news/three-friends-filmed-final-embrace-122646229.html)
-- Jun 02 - [Mass parachute jump over Normandy kicks off commemorations for the 80th anniversary of D-Day](https://www.yahoo.com/news/mass-parachute-jump-over-normandy-122619431.html)
-- Jun 02 - [China lands on moon's far side in historic mission](https://www.yahoo.com/news/china-lands-moons-far-side-115531131.html)
-- Jun 02 - [South Korea vows 'unbearable' retaliation against North Korea over its launch of trash balloons](https://www.yahoo.com/news/south-korea-vows-unbearable-retaliation-102834042.html)
 <!-- feed end -->
 
 ### Onstream
