@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [LIVE UPDATES: Here’s where water services have been restored](https://www.yahoo.com/news/water-main-break-leaves-large-153513639.html)
-- Jun 02 - [I’m a Real Estate Agent: Here Are 8 Things You Must Never Do Before Closing on a House](https://finance.yahoo.com/news/m-real-estate-agent-8-160031143.html)
-- Jun 02 - [Arrest made after downtown Pensacola shooting early Sunday morning](https://www.yahoo.com/news/arrest-made-downtown-pensacola-shooting-152359238.html)
 - Jun 02 - [Beware the retirement savings 'time bomb,' tax expert warns](https://finance.yahoo.com/news/beware-the-retirement-savings-time-bomb-tax-expert-warns-150007851.html)
+- Jun 02 - [10 of America's most affordable retirement spots, where the weather is good and healthcare is top-notch](https://www.yahoo.com/news/10-americas-most-affordable-retirement-141023165.html)
 - Jun 02 - [‘Starved, beaten and abused’ – Ukrainian policewoman returns home after two years in captivity](https://www.yahoo.com/news/starved-beaten-abused-ukrainian-policewoman-132500879.html)
+- Jun 02 - [Nvidia says its next-generation AI chip platform to be rolled out in 2026](https://finance.yahoo.com/news/nvidia-says-next-generation-ai-125330569.html)
+- Jun 02 - [Three friends filmed in final embrace before being swept away by flash floods in Italy](https://www.yahoo.com/news/three-friends-filmed-final-embrace-122646229.html)
 <!-- feed end -->
 
 ### Onstream
