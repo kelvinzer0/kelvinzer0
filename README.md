@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [How scammers use deepfakes of celebs to steal millions from fans](https://finance.yahoo.com/news/scammers-deepfakes-celebs-steal-millions-182952859.html)
 - Jun 01 - [Heart-pounding video shows bear chase dog, then Minnesota woman in driveway: 'Lunged at me'](https://www.yahoo.com/lifestyle/heart-pounding-video-shows-bear-232200683.html)
 - Jun 01 - [Trump campaign sends Bob Good cease-and-desist over yard signs](https://www.yahoo.com/news/trump-campaign-sends-bob-good-224631047.html)
-- Jun 01 - [Air Force Pilot Who Had Been Ordered to Prevent 9/11 Hijacked Plane from Reaching Washington, D.C., Retires](https://www.yahoo.com/news/air-force-pilot-had-ordered-213322523.html)
 - Jun 01 - [Mexican officials again criticize volunteer searcher after she finds more bodies](https://www.yahoo.com/news/mexican-officials-again-criticize-volunteer-211708520.html)
-- Jun 01 - [Cracker Barrel is in a battle for relevancy. One of its solutions is surprising](https://finance.yahoo.com/news/cracker-barrel-battle-relevancy-one-200015288.html)
+- Jun 01 - [Nvidia’s market cap could more than triple to $10 trillion as it enjoys an ‘impenetrable’ advantage over AI rivals, analyst says](https://finance.yahoo.com/news/nvidia-market-cap-could-more-193910909.html)
 <!-- feed end -->
 
 ### Onstream
