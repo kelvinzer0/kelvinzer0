@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [Man shot while in courtyard between buildings on Pittsburgh’s North Shore](https://www.yahoo.com/news/man-shot-while-courtyard-between-121244172.html)
 - Jun 02 - [China lands on moon's far side in historic mission](https://www.yahoo.com/news/china-lands-moons-far-side-115531131.html)
+- Jun 02 - [Managers at Boeing's largest factory 'hound mechanics' to keep quiet about safety concerns, employee says](https://www.yahoo.com/news/managers-boeings-largest-factory-hound-115027041.html)
+- Jun 02 - [At Missouri boarding school, ‘they preached the Bible, but they were straight from hell’](https://www.yahoo.com/news/missouri-boarding-school-preached-bible-110000891.html)
 - Jun 02 - [South Korea vows 'unbearable' retaliation against North Korea over its launch of trash balloons](https://www.yahoo.com/news/south-korea-vows-unbearable-retaliation-102834042.html)
-- Jun 02 - [At least 1 dead, 26 wounded in Akron mass shooting at Kelly Avenue and 8th Avenue](https://www.yahoo.com/news/least-1-dead-26-wounded-101243643.html)
-- Jun 02 - [U.S. Money Supply Is Doing Something So Scarce That It Hasn't Happened Since the Great Depression -- and a Big Move in Stocks May Be Forthcoming](https://finance.yahoo.com/news/u-money-supply-doing-something-090600529.html)
-- Jun 02 - [Homeless Heroes secures funds, details plans for Astro Motel property](https://www.yahoo.com/news/homeless-heroes-secures-funds-details-090515793.html)
 <!-- feed end -->
 
 ### Onstream
