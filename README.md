@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [German police officer dies of wounds suffered in knife attack](https://www.yahoo.com/news/german-police-officer-dies-wounds-190636082.html)
 - Jun 02 - [Passenger on killer turbulence plane so badly hurt he may have to give up job](https://www.yahoo.com/news/passenger-killer-turbulence-plane-badly-183214247.html)
-- Jun 02 - [These 10 Used Cars Will Last Longer Than an Average New Vehicle](https://finance.yahoo.com/news/10-used-cars-last-longer-185141023.html)
-- Jun 02 - [Beware the retirement savings 'time bomb,' tax expert warns](https://finance.yahoo.com/news/beware-the-retirement-savings-time-bomb-tax-expert-warns-150007851.html)
-- Jun 02 - [Media tycoon Rupert Murdoch marries for fifth time](https://www.yahoo.com/news/media-tycoon-rupert-murdoch-marries-141957057.html)
-- Jun 02 - [Watch NASA's Artemis 1 Spacecraft, Moon and Earth In Same Shot During Close Approach](https://www.yahoo.com/news/watch-nasas-artemis-1-spacecraft-150000490.html)
+- Jun 02 - [Airplanes Collide in Disastrous Portuguese Air Show Mishap, Killing 1](https://www.yahoo.com/news/airplanes-collide-disastrous-portuguese-air-170829487.html)
+- Jun 02 - [Tampa roads reopen after ‘serious’ deadly crash prompts closure; police investigating](https://www.yahoo.com/news/serious-deadly-crash-prompts-road-162756096.html)
+- Jun 02 - [Federal judge shoots down ‘orchestrated campaign’ to remove Trump-appointed judge in classified documents case](https://www.yahoo.com/news/federal-judge-shoots-down-orchestrated-161931696.html)
 <!-- feed end -->
 
 ### Onstream
