@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [North Korea sends about 600 more trash balloons into South Korea](https://www.yahoo.com/news/north-korea-sends-600-more-065050944.html)
 - Jun 02 - [Rubio’s Coastal Grill closes over a dozen San Diego-area stores](https://finance.yahoo.com/news/rubio-coastal-grill-closes-over-005955742.html)
 - Jun 01 - [Heart-pounding video shows bear chase dog, then Minnesota woman in driveway: 'Lunged at me'](https://www.yahoo.com/lifestyle/heart-pounding-video-shows-bear-232200683.html)
-- Jun 01 - [Trump campaign sends Bob Good cease-and-desist over yard signs](https://www.yahoo.com/news/trump-campaign-sends-bob-good-224631047.html)
+- Jun 01 - [9-Day Forecast: Triple digits, thunderstorms in Borderland](https://www.yahoo.com/news/9-day-forecast-triple-digits-221534123.html)
 - Jun 01 - [Mexican officials again criticize volunteer searcher after she finds more bodies](https://www.yahoo.com/news/mexican-officials-again-criticize-volunteer-211708520.html)
-- Jun 01 - [Malaysian climber who died near top of Alaska's Denali, North America's tallest peak, is identified](https://www.yahoo.com/news/malaysian-climber-died-cave-near-194534929.html)
 <!-- feed end -->
 
 ### Onstream
