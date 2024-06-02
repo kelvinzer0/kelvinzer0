@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [S. Korean president to host Africa summit eyeing minerals, trade](https://finance.yahoo.com/news/korean-president-host-africa-summit-031949454.html)
+- Jun 02 - [6 Common Mistakes You Should Avoid When Investing In Bonds](https://finance.yahoo.com/news/6-common-mistakes-avoid-investing-010052086.html)
 - Jun 02 - [Rubio’s Coastal Grill closes over a dozen San Diego-area stores](https://finance.yahoo.com/news/rubio-coastal-grill-closes-over-005955742.html)
-- Jun 01 - [China lands on moon's far side in historic sample-retrieval mission](https://www.yahoo.com/news/china-lands-uncrewed-spacecraft-far-234524668.html)
 - Jun 01 - [Trump campaign sends Bob Good cease-and-desist over yard signs](https://www.yahoo.com/news/trump-campaign-sends-bob-good-224631047.html)
+- Jun 01 - [Air Force Pilot Who Had Been Ordered to Prevent 9/11 Hijacked Plane from Reaching Washington, D.C., Retires](https://www.yahoo.com/news/air-force-pilot-had-ordered-213322523.html)
 - Jun 01 - [Mexican officials again criticize volunteer searcher after she finds more bodies](https://www.yahoo.com/news/mexican-officials-again-criticize-volunteer-211708520.html)
 <!-- feed end -->
 
