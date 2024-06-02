@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Beware the retirement savings 'time bomb,' tax expert warns](https://finance.yahoo.com/news/beware-the-retirement-savings-time-bomb-tax-expert-warns-150007851.html)
-- Jun 02 - [10 of America's most affordable retirement spots, where the weather is good and healthcare is top-notch](https://www.yahoo.com/news/10-americas-most-affordable-retirement-141023165.html)
-- Jun 02 - [‘Starved, beaten and abused’ – Ukrainian policewoman returns home after two years in captivity](https://www.yahoo.com/news/starved-beaten-abused-ukrainian-policewoman-132500879.html)
-- Jun 02 - [Nvidia says its next-generation AI chip platform to be rolled out in 2026](https://finance.yahoo.com/news/nvidia-says-next-generation-ai-125330569.html)
-- Jun 02 - [Three friends filmed in final embrace before being swept away by flash floods in Italy](https://www.yahoo.com/news/three-friends-filmed-final-embrace-122646229.html)
+- Jun 02 - [The United States is lurching towards civil war](https://www.yahoo.com/news/united-states-lurching-towards-civil-181613015.html)
+- Jun 02 - [Ukraine ‘fires Himars into Russia for first time’](https://www.yahoo.com/news/ukraine-fires-himars-russia-first-163607931.html)
+- Jun 02 - [Media tycoon Rupert Murdoch marries for fifth time](https://www.yahoo.com/news/media-tycoon-rupert-murdoch-marries-141957057.html)
+- Jun 02 - [St. Louis residents clean up after car windows smashed on Magnolia Avenue](https://www.yahoo.com/news/st-louis-residents-clean-car-142542120.html)
+- Jun 02 - [Watch NASA's Artemis 1 Spacecraft, Moon and Earth In Same Shot During Close Approach](https://www.yahoo.com/news/watch-nasas-artemis-1-spacecraft-150000490.html)
 <!-- feed end -->
 
 ### Onstream
