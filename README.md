@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [The United States is lurching towards civil war](https://www.yahoo.com/news/united-states-lurching-towards-civil-181613015.html)
-- Jun 02 - [Ukraine ‘fires Himars into Russia for first time’](https://www.yahoo.com/news/ukraine-fires-himars-russia-first-163607931.html)
+- Jun 02 - [Passenger on killer turbulence plane so badly hurt he may have to give up job](https://www.yahoo.com/news/passenger-killer-turbulence-plane-badly-183214247.html)
+- Jun 02 - [These 10 Used Cars Will Last Longer Than an Average New Vehicle](https://finance.yahoo.com/news/10-used-cars-last-longer-185141023.html)
+- Jun 02 - [Beware the retirement savings 'time bomb,' tax expert warns](https://finance.yahoo.com/news/beware-the-retirement-savings-time-bomb-tax-expert-warns-150007851.html)
 - Jun 02 - [Media tycoon Rupert Murdoch marries for fifth time](https://www.yahoo.com/news/media-tycoon-rupert-murdoch-marries-141957057.html)
-- Jun 02 - [St. Louis residents clean up after car windows smashed on Magnolia Avenue](https://www.yahoo.com/news/st-louis-residents-clean-car-142542120.html)
 - Jun 02 - [Watch NASA's Artemis 1 Spacecraft, Moon and Earth In Same Shot During Close Approach](https://www.yahoo.com/news/watch-nasas-artemis-1-spacecraft-150000490.html)
 <!-- feed end -->
 
