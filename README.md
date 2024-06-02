@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Former second in command of U.S. Navy  arrested in connection with alleged bribery scheme](https://www.yahoo.com/news/former-second-command-u-navy-225054330.html)
-- Jun 01 - [Rainfall for May 2024 was well above normal in Middle TN!](https://www.yahoo.com/news/rainfall-may-2024-well-above-212833497.html)
+- Jun 01 - [China makes historic landing on far side of the moon](https://www.yahoo.com/news/china-lands-uncrewed-spacecraft-far-234524668.html)
+- Jun 01 - [Trump campaign sends Bob Good cease-and-desist over yard signs](https://www.yahoo.com/news/trump-campaign-sends-bob-good-224631047.html)
 - Jun 01 - [Mexican officials again criticize volunteer searcher after she finds more bodies](https://www.yahoo.com/news/mexican-officials-again-criticize-volunteer-211708520.html)
-- Jun 01 - [Amazing video shows Lego-like bricks that can withstand a bulldozer — and they're made from plastic trash](https://www.yahoo.com/tech/amazing-video-shows-lego-bricks-180000989.html)
-- Jun 01 - [Emily Ratajkowski Models Her New swimsuit on the New York City Streets](https://www.yahoo.com/entertainment/emily-ratajkowski-models-her-swimsuit-171400587.html)
+- Jun 01 - [Nvidia’s market cap could more than triple to $10 trillion as it enjoys an ‘impenetrable’ advantage over AI rivals, analyst says](https://finance.yahoo.com/news/nvidia-market-cap-could-more-193910909.html)
+- Jun 01 - [United Airlines plane to undergo deep cleaning after several passengers report feeling sick on Vancouver-to-Houston flight](https://www.yahoo.com/news/united-airlines-plane-undergo-deep-192838748.html)
 <!-- feed end -->
 
 ### Onstream
