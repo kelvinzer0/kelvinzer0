@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [First Windham and Raymond Pride event goes on, with a drag show after all](https://www.yahoo.com/lifestyle/first-windham-raymond-pride-event-224800505.html)
+- Jun 02 - [Plane passenger called ‘incredibly rude’ for refusing to switch seats hours into transatlantic journey](https://www.yahoo.com/news/plane-passenger-called-incredibly-rude-213849858.html)
 - Jun 02 - [Two suffer broken ankles after jumping off Toquerville Falls](https://www.yahoo.com/news/two-suffer-broken-ankles-jumping-201953691.html)
-- Jun 02 - [College students leave behind hoard of trash at California’s Shasta Lake](https://www.yahoo.com/news/college-students-leave-behind-hoard-201754490.html)
 - Jun 02 - [German police officer dies of wounds suffered in knife attack](https://www.yahoo.com/news/german-police-officer-dies-wounds-190636082.html)
-- Jun 02 - [Passenger on killer turbulence plane so badly hurt he may have to give up job](https://www.yahoo.com/news/passenger-killer-turbulence-plane-badly-183214247.html)
-- Jun 02 - [At least 8 injured after shooting at DeKalb County strip club](https://www.yahoo.com/news/least-8-injured-shooting-dekalb-182116659.html)
+- Jun 02 - [Shark attack prompts beach closure in Del Mar](https://www.yahoo.com/news/shark-attack-prompts-beach-closure-183527598.html)
 <!-- feed end -->
 
 ### Onstream
