@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [2 High-Yield Dividend Stocks That Are Screaming Buys in June](https://finance.yahoo.com/news/2-high-yield-dividend-stocks-101300972.html)
+- Jun 02 - [China hands over the keys to the railway as African countries take control of 2 major belt and road projects](https://finance.yahoo.com/news/china-hands-over-keys-railway-093000412.html)
 - Jun 02 - [Iran's hard-line former President Mahmoud Ahmadinejad registers for June 28 presidential election](https://www.yahoo.com/news/irans-hard-line-former-president-064640712.html)
 - Jun 02 - [Rubio’s Coastal Grill closes over a dozen San Diego-area stores](https://finance.yahoo.com/news/rubio-coastal-grill-closes-over-005955742.html)
-- Jun 01 - [Trump campaign sends Bob Good cease-and-desist over yard signs](https://www.yahoo.com/news/trump-campaign-sends-bob-good-224631047.html)
-- Jun 01 - [9-Day Forecast: Triple digits, thunderstorms in Borderland](https://www.yahoo.com/news/9-day-forecast-triple-digits-221534123.html)
 - Jun 01 - [Mexican officials again criticize volunteer searcher after she finds more bodies](https://www.yahoo.com/news/mexican-officials-again-criticize-volunteer-211708520.html)
 <!-- feed end -->
 
