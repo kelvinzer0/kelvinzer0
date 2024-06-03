@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Russian top diplomat arrives in Guinea for official visit](https://www.yahoo.com/news/russian-top-diplomat-arrives-guinea-105416352.html)
+- Jun 03 - [Exclusive-Tesla director Gebbia says he discussed selling house to Musk](https://finance.yahoo.com/news/exclusive-tesla-director-gebbia-says-102009837.html)
+- Jun 03 - [From decay to dazzling. Ford restores grandeur to former eyesore Detroit train station](https://finance.yahoo.com/news/decay-dazzling-ford-restores-grandeur-100047776.html)
+- Jun 03 - [An angry Trump pledges to appeal ‘this scam’ conviction as Republicans vow resistance](https://www.yahoo.com/news/angry-trump-pledges-appeal-scam-095932854.html)
 - Jun 03 - [China maintains stance on disputed Gulf islands despite Iran's anger](https://www.yahoo.com/news/china-maintains-stance-disputed-gulf-092327202.html)
-- Jun 03 - [Which local city made the Top 25 for 'Best Place to Live'? South Bend, of course.](https://www.yahoo.com/news/local-city-made-top-25-090510871.html)
-- Jun 03 - [Holy smokes Batman: My electric bill is how much? Where some can get help](https://www.yahoo.com/lifestyle/holy-smokes-batman-electric-bill-090439328.html)
-- Jun 03 - [Warehouse complex west of Delray hailed as 'game changer' for Palm Beach County's economy](https://finance.yahoo.com/news/warehouse-complex-west-delray-hailed-090329117.html)
-- Jun 03 - [Beware the retirement savings 'time bomb,' tax expert warns](https://finance.yahoo.com/news/beware-the-retirement-savings-time-bomb-tax-expert-warns-150007851.html)
 <!-- feed end -->
 
 ### Onstream
