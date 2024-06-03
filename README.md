@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [GameStop Set to Jump as Keith Gill Post Shows $116 Million Bet](https://finance.yahoo.com/news/gamestop-set-jump-keith-gill-031044287.html)
-- Jun 03 - [AMD launches new AI chips to take on leader Nvidia](https://finance.yahoo.com/news/amd-launches-ai-chips-leader-030326679.html)
+- Jun 03 - [President Milei's surprising devotion to Judaism and Israel provokes tension in Argentina and beyond](https://www.yahoo.com/news/president-mileis-surprising-devotion-judaism-041008306.html)
+- Jun 03 - [Kevin McCarthy Wants Matt Gaetz 'Convicted' Over 'Underage Women'](https://www.yahoo.com/news/kevin-mccarthy-wants-matt-gaetz-035124611.html)
+- Jun 03 - [AMD launches new AI chips to take on leader Nvidia](https://www.yahoo.com/tech/amd-launches-ai-chips-leader-030326871.html)
 - Jun 03 - [Rep. Sheila Jackson Lee announces pancreatic cancer diagnosis](https://www.yahoo.com/news/rep-sheila-jackson-lee-announces-025659903.html)
-- Jun 03 - [Northern California environmental groups suing Caltrans over Interstate 80 widening project](https://www.yahoo.com/news/northern-california-environmental-groups-suing-011856626.html)
-- Jun 02 - [China lands on 'dark side' of moon](https://www.yahoo.com/tech/china-lands-dark-side-moon-223738594.html)
+- Jun 03 - [India's Modi plans post-election reforms to rival Chinese manufacturing](https://finance.yahoo.com/news/indias-modi-plans-post-election-020332761.html)
 <!-- feed end -->
 
 ### Onstream
