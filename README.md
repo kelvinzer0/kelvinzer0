@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [After China, Zara expands live shopping experiment to Europe and US](https://finance.yahoo.com/news/china-zara-expands-live-shopping-051004280.html)
 - Jun 03 - [President Milei's surprising devotion to Judaism and Israel provokes tension in Argentina and beyond](https://www.yahoo.com/news/president-mileis-surprising-devotion-judaism-041008306.html)
-- Jun 03 - [Kevin McCarthy Wants Matt Gaetz 'Convicted' Over 'Underage Women'](https://www.yahoo.com/news/kevin-mccarthy-wants-matt-gaetz-035124611.html)
 - Jun 03 - [Rep. Sheila Jackson Lee announces pancreatic cancer diagnosis](https://www.yahoo.com/news/rep-sheila-jackson-lee-announces-025659903.html)
+- Jun 03 - [Zelenskyy in Philippines to promote peace summit he says China and Russia are trying to undermine](https://www.yahoo.com/news/zelenskyy-philippines-promote-peace-summit-012832243.html)
 - Jun 03 - [Northern California environmental groups suing Caltrans over Interstate 80 widening project](https://www.yahoo.com/news/northern-california-environmental-groups-suing-011856626.html)
-- Jun 02 - [1 person detained at protest at the University of Pittsburgh, Cathedral of Learning closed](https://www.yahoo.com/news/protest-begins-university-pittsburgh-cathedral-232916186.html)
 <!-- feed end -->
 
 ### Onstream
