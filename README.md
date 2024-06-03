@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Tories face ‘existential risk’ as Farage declares he will stand as a candidate for Reform UK](https://www.yahoo.com/news/nigel-farage-confirms-stand-reform-152639372.html)
-- Jun 03 - [China lands on far side of the moon](https://www.yahoo.com/tech/china-lands-dark-side-moon-223738594.html)
-- Jun 03 - [2 Leon County restaurants get perfect scores; 8 fail inspection](https://www.yahoo.com/lifestyle/2-leon-county-restaurants-perfect-143731872.html)
-- Jun 03 - [Lebanon's Hezbollah fires drone squadron at Israel as violence intensifies](https://www.yahoo.com/news/lebanons-hezbollah-launches-drones-squadron-141144760.html)
-- Jun 03 - [Bombshell Report Reveals Team Trump Is Rewarding Key Trial Witnesses](https://www.yahoo.com/news/bombshell-report-reveals-team-trump-141058553.html)
+- Jun 03 - [Israel says 4 more hostages found dead in Gaza, including 3 older men who appeared in video](https://www.yahoo.com/news/israel-confirms-deaths-4-more-175156563.html)
+- Jun 03 - [Olive Garden Cook Sues Over Co-Worker’s Ceaseless Dry-Humping](https://www.yahoo.com/news/olive-garden-cook-sues-over-172737879.html)
+- Jun 03 - [GOP chair reprimands Greene for refusing to call Fauci ‘doctor’](https://www.yahoo.com/news/gop-chair-reprimands-greene-refusing-172645232.html)
+- Jun 03 - [Fraud trial juror reports getting bag of $120,000 and promise of more if she'll acquit](https://www.yahoo.com/news/fraud-trial-juror-reports-getting-172402539.html)
+- Jun 03 - [Southern Education Foundation president Raymond C. Pierce on racial segregation in public schools](https://www.yahoo.com/news/southern-education-foundation-president-raymond-170905577.html)
 <!-- feed end -->
 
 ### Onstream
