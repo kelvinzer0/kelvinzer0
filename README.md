@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Russian top diplomat arrives in Guinea for official visit](https://www.yahoo.com/news/russian-top-diplomat-arrives-guinea-105416352.html)
+- Jun 03 - [2 Artificial Intelligence (AI) Stocks That Could Be the Next Nvidia](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-120700288.html)
+- Jun 03 - [WFISD: Legacy, Memorial will welcome students even if some construction continues](https://www.yahoo.com/news/wfisd-legacy-memorial-welcome-students-110213265.html)
+- Jun 03 - [Toyota apologizes for cheating on vehicle testing and halts production of three models](https://finance.yahoo.com/news/toyota-apologizes-cheating-vehicle-testing-102117211.html)
 - Jun 03 - [Exclusive-Tesla director Gebbia says he discussed selling house to Musk](https://finance.yahoo.com/news/exclusive-tesla-director-gebbia-says-102009837.html)
-- Jun 03 - [From decay to dazzling. Ford restores grandeur to former eyesore Detroit train station](https://finance.yahoo.com/news/decay-dazzling-ford-restores-grandeur-100047776.html)
-- Jun 03 - [An angry Trump pledges to appeal ‘this scam’ conviction as Republicans vow resistance](https://www.yahoo.com/news/angry-trump-pledges-appeal-scam-095932854.html)
-- Jun 03 - [China maintains stance on disputed Gulf islands despite Iran's anger](https://www.yahoo.com/news/china-maintains-stance-disputed-gulf-092327202.html)
+- Jun 03 - [After 13 years, a homeless Angeleno broke into her old, vacant home and wants to stay forever](https://www.yahoo.com/news/13-years-homeless-angeleno-broke-100038136.html)
 <!-- feed end -->
 
 ### Onstream
