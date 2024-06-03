@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Larry Hogan receives backlash for Trump verdict comments](https://www.yahoo.com/news/larry-hogan-receives-backlash-trump-190700516.html)
-- Jun 03 - [I'm a British mom living in the US. In the UK kids get a shorter summer break and have mandatory uniforms.](https://www.yahoo.com/news/im-british-mom-living-us-184050210.html)
-- Jun 03 - [Pickleball’s ‘ultimate ambassador’ took $50 million from investors - who now say they were duped](https://finance.yahoo.com/news/pickleball-ultimate-ambassador-took-50-183828046.html)
-- Jun 03 - [Alligator missing for 10 days found alive in Kansas City’s Northland. What’s next for it?](https://www.yahoo.com/news/alligator-missing-10-days-found-181122200.html)
-- Jun 03 - [This Perfectly Polished Cybertruck Looks Like a Real Hazard on the Road](https://www.yahoo.com/tech/perfectly-polished-cybertruck-looks-real-180918005.html)
+- Jun 03 - [Boeing’s Starliner will make its next launch attempt Wednesday](https://www.yahoo.com/tech/boeing-starliner-next-launch-attempt-201943476.html)
+- Jun 03 - [Trades after NYSE glitch will 'certainly be cancelled' - strategist](https://finance.yahoo.com/video/trades-nyse-glitch-certainly-cancelled-201515511.html)
+- Jun 03 - [Are You Richer Than Your Peers? The Net Worth Needed To Be In The Top 10% Of Your Age](https://finance.yahoo.com/news/richer-peers-net-worth-needed-200324549.html)
+- Jun 03 - [Pat McAfee walks back profane statement he made while trying to praise Caitlin Clark](https://sports.yahoo.com/pat-mcafee-makes-controversial-profane-193046925.html)
+- Jun 03 - [Jeffrey Epstein accuser sues prominent psychiatrist for making her 'sex slave'](https://www.yahoo.com/news/jeffrey-epstein-accuser-sues-prominent-190238756.html)
 <!-- feed end -->
 
 ### Onstream
