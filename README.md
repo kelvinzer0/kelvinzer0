@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Ukraine says China is in Russia's pocket. It may be the other way around.](https://www.yahoo.com/news/ukraine-says-china-russias-pocket-121741324.html)
+- Jun 03 - [The accident that nearly killed Nigel Farage](https://www.yahoo.com/news/the-accident-that-nearly-killed-nigel-farage-162639600.html)
+- Jun 03 - [Rich people have 'greater cancer risk' than poor, study finds](https://www.yahoo.com/lifestyle/rich-people-greater-cancer-study-131138512.html)
+- Jun 03 - [At least 8 injured after shooting at DeKalb County strip club](https://www.yahoo.com/news/least-8-injured-shooting-dekalb-182116659.html)
+- Jun 03 - [Fears as gardens and driveways collapse near 300-home new build estate](https://www.yahoo.com/news/fears-gardens-driveways-collapse-near-124818502.html)
 - Jun 03 - [Conspiracy theorist Alex Jones breaks down sobbing on Infowars show claiming feds are trying to shutter show](https://www.yahoo.com/news/conspiracy-theorist-alex-jones-breaks-120536608.html)
-- Jun 03 - [GameStop leaps in premarket as Roaring Kitty may hold large position](https://finance.yahoo.com/news/gamestop-leaps-premarket-roaring-kitty-115910223.html)
-- Jun 03 - [Cucumbers Recalled From 14 States Due to Salmonella Risk](https://www.yahoo.com/news/cucumbers-recalled-14-states-due-114500409.html)
-- Jun 03 - [How AP covered the D-Day landings and lost photographer Bede Irvin in the battle for Normandy](https://www.yahoo.com/news/ap-covered-d-day-landings-112316030.html)
 <!-- feed end -->
 
 ### Onstream
