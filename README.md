@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [First Windham and Raymond Pride event goes on, with a drag show after all](https://www.yahoo.com/lifestyle/first-windham-raymond-pride-event-224800505.html)
-- Jun 02 - [Plane passenger called ‘incredibly rude’ for refusing to switch seats hours into transatlantic journey](https://www.yahoo.com/news/plane-passenger-called-incredibly-rude-213849858.html)
-- Jun 02 - [Two suffer broken ankles after jumping off Toquerville Falls](https://www.yahoo.com/news/two-suffer-broken-ankles-jumping-201953691.html)
+- Jun 03 - [Hansen's Mushroom installation a must-see on Lost Creek Hiking Trail](https://www.yahoo.com/lifestyle/hansens-mushroom-installation-must-see-000600076.html)
+- Jun 02 - [Protest begins at University of Pittsburgh, Cathedral of Learning closed](https://www.yahoo.com/news/protest-begins-university-pittsburgh-cathedral-232916186.html)
+- Jun 02 - [Stephanopoulos cuts off Trump lawyer after he suggests Biden was behind Trump conviction](https://www.yahoo.com/news/stephanopoulos-cuts-off-trump-lawyer-211659101.html)
 - Jun 02 - [German police officer dies of wounds suffered in knife attack](https://www.yahoo.com/news/german-police-officer-dies-wounds-190636082.html)
-- Jun 02 - [Shark attack prompts beach closure in Del Mar](https://www.yahoo.com/news/shark-attack-prompts-beach-closure-183527598.html)
+- Jun 02 - [3.5-magnitude quake shakes L.A. County](https://www.yahoo.com/news/3-5-magnitude-quake-shakes-171003634.html)
 <!-- feed end -->
 
 ### Onstream
