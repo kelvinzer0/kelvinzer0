@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 03 - [President Milei's surprising devotion to Judaism and Israel provokes tension in Argentina and beyond](https://www.yahoo.com/news/president-mileis-surprising-devotion-judaism-041008306.html)
 - Jun 03 - [Kevin McCarthy Wants Matt Gaetz 'Convicted' Over 'Underage Women'](https://www.yahoo.com/news/kevin-mccarthy-wants-matt-gaetz-035124611.html)
-- Jun 03 - [AMD launches new AI chips to take on leader Nvidia](https://www.yahoo.com/tech/amd-launches-ai-chips-leader-030326871.html)
 - Jun 03 - [Rep. Sheila Jackson Lee announces pancreatic cancer diagnosis](https://www.yahoo.com/news/rep-sheila-jackson-lee-announces-025659903.html)
-- Jun 03 - [India's Modi plans post-election reforms to rival Chinese manufacturing](https://finance.yahoo.com/news/indias-modi-plans-post-election-020332761.html)
+- Jun 03 - [Northern California environmental groups suing Caltrans over Interstate 80 widening project](https://www.yahoo.com/news/northern-california-environmental-groups-suing-011856626.html)
+- Jun 02 - [1 person detained at protest at the University of Pittsburgh, Cathedral of Learning closed](https://www.yahoo.com/news/protest-begins-university-pittsburgh-cathedral-232916186.html)
 <!-- feed end -->
 
 ### Onstream
