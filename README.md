@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [China maintains stance on disputed Gulf islands despite Iran's anger](https://www.yahoo.com/news/china-maintains-stance-disputed-gulf-092327202.html)
+- Jun 03 - [Which local city made the Top 25 for 'Best Place to Live'? South Bend, of course.](https://www.yahoo.com/news/local-city-made-top-25-090510871.html)
+- Jun 03 - [Holy smokes Batman: My electric bill is how much? Where some can get help](https://www.yahoo.com/lifestyle/holy-smokes-batman-electric-bill-090439328.html)
+- Jun 03 - [Warehouse complex west of Delray hailed as 'game changer' for Palm Beach County's economy](https://finance.yahoo.com/news/warehouse-complex-west-delray-hailed-090329117.html)
 - Jun 03 - [Beware the retirement savings 'time bomb,' tax expert warns](https://finance.yahoo.com/news/beware-the-retirement-savings-time-bomb-tax-expert-warns-150007851.html)
-- Jun 03 - [Japan is determined to keep hunting whales. And now it has a brand new ‘mothership’](https://www.yahoo.com/news/japan-determined-keep-hunting-whales-210015567.html)
-- Jun 03 - [President Milei's surprising devotion to Judaism and Israel provokes tension in Argentina and beyond](https://www.yahoo.com/news/president-mileis-surprising-devotion-judaism-041008306.html)
-- Jun 03 - [Kevin McCarthy Wants Matt Gaetz 'Convicted' Over 'Underage Women'](https://www.yahoo.com/news/kevin-mccarthy-wants-matt-gaetz-035124611.html)
-- Jun 03 - [Rep. Sheila Jackson Lee announces pancreatic cancer diagnosis](https://www.yahoo.com/news/rep-sheila-jackson-lee-announces-025659903.html)
 <!-- feed end -->
 
 ### Onstream
