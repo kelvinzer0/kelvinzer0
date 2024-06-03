@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Israel says 4 more hostages found dead in Gaza, including 3 older men who appeared in video](https://www.yahoo.com/news/israel-confirms-deaths-4-more-175156563.html)
-- Jun 03 - [Olive Garden Cook Sues Over Co-Worker’s Ceaseless Dry-Humping](https://www.yahoo.com/news/olive-garden-cook-sues-over-172737879.html)
+- Jun 03 - [Escaped birds captured and return to Roger Williams Park Zoo. How they baited the birds back.](https://www.yahoo.com/news/escaped-birds-captured-return-roger-184151182.html)
+- Jun 03 - [Alligator missing for 10 days found alive in Kansas City’s Northland. What’s next for it?](https://www.yahoo.com/news/alligator-missing-10-days-found-181122200.html)
+- Jun 03 - [Israel declares 4 more hostages are dead in Gaza, including 3 older men who appeared in video](https://www.yahoo.com/news/israel-confirms-deaths-4-more-175156563.html)
 - Jun 03 - [GOP chair reprimands Greene for refusing to call Fauci ‘doctor’](https://www.yahoo.com/news/gop-chair-reprimands-greene-refusing-172645232.html)
 - Jun 03 - [Fraud trial juror reports getting bag of $120,000 and promise of more if she'll acquit](https://www.yahoo.com/news/fraud-trial-juror-reports-getting-172402539.html)
-- Jun 03 - [Southern Education Foundation president Raymond C. Pierce on racial segregation in public schools](https://www.yahoo.com/news/southern-education-foundation-president-raymond-170905577.html)
 <!-- feed end -->
 
 ### Onstream
