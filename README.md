@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [GameStop Set to Jump as Keith Gill Post Shows $116 Million Bet](https://finance.yahoo.com/news/gamestop-set-jump-keith-gill-031044287.html)
+- Jun 03 - [AMD launches new AI chips to take on leader Nvidia](https://finance.yahoo.com/news/amd-launches-ai-chips-leader-030326679.html)
+- Jun 03 - [Rep. Sheila Jackson Lee announces pancreatic cancer diagnosis](https://www.yahoo.com/news/rep-sheila-jackson-lee-announces-025659903.html)
+- Jun 03 - [Northern California environmental groups suing Caltrans over Interstate 80 widening project](https://www.yahoo.com/news/northern-california-environmental-groups-suing-011856626.html)
 - Jun 02 - [China lands on 'dark side' of moon](https://www.yahoo.com/tech/china-lands-dark-side-moon-223738594.html)
-- Jun 02 - [Moriarty drops murder charges against state trooper in shooting](https://www.yahoo.com/news/hennepin-county-attorney-mary-moriarty-214500989.html)
-- Jun 02 - [Stephanopoulos cuts off Trump lawyer after he suggests Biden was behind Trump conviction](https://www.yahoo.com/news/stephanopoulos-cuts-off-trump-lawyer-211659101.html)
-- Jun 02 - [Revised Skydance offer would let Paramount shareholders cash out at $15/shr, WSJ reports](https://finance.yahoo.com/news/revised-skydance-offer-let-paramount-195636052.html)
-- Jun 02 - [The Real Companies Behind Your Favorite Costco Alcohol](https://finance.yahoo.com/news/real-companies-behind-favorite-costco-191522956.html)
 <!-- feed end -->
 
 ### Onstream
