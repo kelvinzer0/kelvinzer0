@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Ask An Advisor: I'm 65, Earning More Than Ever and Won't Retire Soon. Should I Use My Roth IRA for a $30K Home Improvement Project?](https://finance.yahoo.com/news/ask-advisor-im-65-earning-192928957.html)
 - Jun 02 - [China lands on 'dark side' of moon](https://www.yahoo.com/tech/china-lands-dark-side-moon-223738594.html)
-- Jun 02 - [1 person detained at protest at the University of Pittsburgh, Cathedral of Learning closed](https://www.yahoo.com/news/protest-begins-university-pittsburgh-cathedral-232916186.html)
-- Jun 02 - [1 person killed in crash that closes Border Highway](https://www.yahoo.com/news/1-person-killed-crash-closes-221059599.html)
+- Jun 02 - [Moriarty drops murder charges against state trooper in shooting](https://www.yahoo.com/news/hennepin-county-attorney-mary-moriarty-214500989.html)
 - Jun 02 - [Stephanopoulos cuts off Trump lawyer after he suggests Biden was behind Trump conviction](https://www.yahoo.com/news/stephanopoulos-cuts-off-trump-lawyer-211659101.html)
+- Jun 02 - [Revised Skydance offer would let Paramount shareholders cash out at $15/shr, WSJ reports](https://finance.yahoo.com/news/revised-skydance-offer-let-paramount-195636052.html)
+- Jun 02 - [The Real Companies Behind Your Favorite Costco Alcohol](https://finance.yahoo.com/news/real-companies-behind-favorite-costco-191522956.html)
 <!-- feed end -->
 
 ### Onstream
