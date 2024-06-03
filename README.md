@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [2 Artificial Intelligence (AI) Stocks That Could Be the Next Nvidia](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-120700288.html)
-- Jun 03 - [WFISD: Legacy, Memorial will welcome students even if some construction continues](https://www.yahoo.com/news/wfisd-legacy-memorial-welcome-students-110213265.html)
-- Jun 03 - [Toyota apologizes for cheating on vehicle testing and halts production of three models](https://finance.yahoo.com/news/toyota-apologizes-cheating-vehicle-testing-102117211.html)
-- Jun 03 - [Exclusive-Tesla director Gebbia says he discussed selling house to Musk](https://finance.yahoo.com/news/exclusive-tesla-director-gebbia-says-102009837.html)
-- Jun 03 - [After 13 years, a homeless Angeleno broke into her old, vacant home and wants to stay forever](https://www.yahoo.com/news/13-years-homeless-angeleno-broke-100038136.html)
+- Jun 03 - [Ukraine says China is in Russia's pocket. It may be the other way around.](https://www.yahoo.com/news/ukraine-says-china-russias-pocket-121741324.html)
+- Jun 03 - [Conspiracy theorist Alex Jones breaks down sobbing on Infowars show claiming feds are trying to shutter show](https://www.yahoo.com/news/conspiracy-theorist-alex-jones-breaks-120536608.html)
+- Jun 03 - [GameStop leaps in premarket as Roaring Kitty may hold large position](https://finance.yahoo.com/news/gamestop-leaps-premarket-roaring-kitty-115910223.html)
+- Jun 03 - [Cucumbers Recalled From 14 States Due to Salmonella Risk](https://www.yahoo.com/news/cucumbers-recalled-14-states-due-114500409.html)
+- Jun 03 - [How AP covered the D-Day landings and lost photographer Bede Irvin in the battle for Normandy](https://www.yahoo.com/news/ap-covered-d-day-landings-112316030.html)
 <!-- feed end -->
 
 ### Onstream
