@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Ferrari-driving conman arrested at UK airport after five years on the run](https://www.yahoo.com/news/ferrari-driving-conman-arrested-uk-215202252.html)
-- Jun 03 - [Authorities identify man killed in police-involved shooting outside Lowe’s in New Hampshire](https://www.yahoo.com/news/ag-investigating-fatal-officer-involved-031904610.html)
-- Jun 03 - [Are You Richer Than Your Peers? The Net Worth Needed To Be In The Top 10% Of Your Age](https://finance.yahoo.com/news/richer-peers-net-worth-needed-200324549.html)
-- Jun 03 - [E*Trade considering kicking Keith Gill off its platform, WSJ reports](https://www.yahoo.com/tech/e-trade-considering-kicking-keith-195939501.html)
-- Jun 03 - [‘Everything you read about D-Day is a load of rubbish, I was there’](https://www.yahoo.com/news/everything-read-d-day-load-192914372.html)
+- Jun 03 - [He left 2 people behind after running from a Kennewick crash. Here’s how he was caught](https://www.yahoo.com/news/left-2-people-behind-running-221740230.html)
+- Jun 03 - [Judge affirms settlement of lawsuit filed by family of man who died after police pulled him from car](https://www.yahoo.com/news/judge-affirms-settlement-lawsuit-filed-213754236.html)
+- Jun 03 - [Do you return your shopping cart? A psychologist's answer on TikTok enraged thousands](https://www.yahoo.com/lifestyle/return-shopping-cart-psychologists-answer-211915098.html)
+- Jun 03 - [She had sex with a student while teaching at Puyallup high school. Here’s her sentence](https://www.yahoo.com/news/she-had-sex-student-while-210912639.html)
+- Jun 03 - [The Viral Story About a Defendant Driving With a Suspended License Was Fake News](https://www.yahoo.com/news/viral-story-defendant-driving-suspended-202015577.html)
 <!-- feed end -->
 
 ### Onstream
