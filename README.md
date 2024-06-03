@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Escaped birds captured and return to Roger Williams Park Zoo. How they baited the birds back.](https://www.yahoo.com/news/escaped-birds-captured-return-roger-184151182.html)
+- Jun 03 - [Larry Hogan receives backlash for Trump verdict comments](https://www.yahoo.com/news/larry-hogan-receives-backlash-trump-190700516.html)
+- Jun 03 - [I'm a British mom living in the US. In the UK kids get a shorter summer break and have mandatory uniforms.](https://www.yahoo.com/news/im-british-mom-living-us-184050210.html)
+- Jun 03 - [Pickleball’s ‘ultimate ambassador’ took $50 million from investors - who now say they were duped](https://finance.yahoo.com/news/pickleball-ultimate-ambassador-took-50-183828046.html)
 - Jun 03 - [Alligator missing for 10 days found alive in Kansas City’s Northland. What’s next for it?](https://www.yahoo.com/news/alligator-missing-10-days-found-181122200.html)
-- Jun 03 - [Israel declares 4 more hostages are dead in Gaza, including 3 older men who appeared in video](https://www.yahoo.com/news/israel-confirms-deaths-4-more-175156563.html)
-- Jun 03 - [GOP chair reprimands Greene for refusing to call Fauci ‘doctor’](https://www.yahoo.com/news/gop-chair-reprimands-greene-refusing-172645232.html)
-- Jun 03 - [Fraud trial juror reports getting bag of $120,000 and promise of more if she'll acquit](https://www.yahoo.com/news/fraud-trial-juror-reports-getting-172402539.html)
+- Jun 03 - [This Perfectly Polished Cybertruck Looks Like a Real Hazard on the Road](https://www.yahoo.com/tech/perfectly-polished-cybertruck-looks-real-180918005.html)
 <!-- feed end -->
 
 ### Onstream
