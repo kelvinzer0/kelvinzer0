@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Boeing’s Starliner will make its next launch attempt Wednesday](https://www.yahoo.com/tech/boeing-starliner-next-launch-attempt-201943476.html)
-- Jun 03 - [Trades after NYSE glitch will 'certainly be cancelled' - strategist](https://finance.yahoo.com/video/trades-nyse-glitch-certainly-cancelled-201515511.html)
+- Jun 03 - [Ferrari-driving conman arrested at UK airport after five years on the run](https://www.yahoo.com/news/ferrari-driving-conman-arrested-uk-215202252.html)
+- Jun 03 - [Authorities identify man killed in police-involved shooting outside Lowe’s in New Hampshire](https://www.yahoo.com/news/ag-investigating-fatal-officer-involved-031904610.html)
 - Jun 03 - [Are You Richer Than Your Peers? The Net Worth Needed To Be In The Top 10% Of Your Age](https://finance.yahoo.com/news/richer-peers-net-worth-needed-200324549.html)
-- Jun 03 - [Pat McAfee walks back profane statement he made while trying to praise Caitlin Clark](https://sports.yahoo.com/pat-mcafee-makes-controversial-profane-193046925.html)
-- Jun 03 - [Jeffrey Epstein accuser sues prominent psychiatrist for making her 'sex slave'](https://www.yahoo.com/news/jeffrey-epstein-accuser-sues-prominent-190238756.html)
+- Jun 03 - [E*Trade considering kicking Keith Gill off its platform, WSJ reports](https://www.yahoo.com/tech/e-trade-considering-kicking-keith-195939501.html)
+- Jun 03 - [‘Everything you read about D-Day is a load of rubbish, I was there’](https://www.yahoo.com/news/everything-read-d-day-load-192914372.html)
 <!-- feed end -->
 
 ### Onstream
