@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [General election 2024 latest: Tories pledge immigration cap as Sunak and Starmer gear up for first TV debate](https://www.yahoo.com/news/general-election-latest-sunak-unveils-060303318.html)
-- Jun 04 - [Parents call for public inquiry after deaths of nine babies at scandal-hit NHS trust](https://www.yahoo.com/news/parents-call-public-inquiry-deaths-083154890.html)
-- Jun 04 - [Mount Kanlaon volcano erupts sending 3-mile ash plume into the sky](https://www.yahoo.com/news/mount-kanlaon-volcano-erupts-sending-063835621.html)
-- Jun 04 - [German army to boost Rheinmetall artillery shell order by 200,000, document shows](https://www.yahoo.com/news/german-army-increase-rheinmetall-artillery-061048165.html)
+- Jun 04 - [A contractor walked away from Fayetteville parks projects worth millions. What happens now?](https://www.yahoo.com/news/contractor-walked-away-fayetteville-parks-090549155.html)
+- Jun 04 - [1 Bay County restaurant fails state inspection, 4 get perfect scores](https://www.yahoo.com/news/1-bay-county-restaurant-fails-090239786.html)
+- Jun 04 - [Stephen Colbert's Audience Goes Wild With 1 Brutally Honest Message For Trump](https://www.yahoo.com/entertainment/stephen-colberts-audience-goes-wild-071208673.html)
 - Jun 04 - [Amanda Knox will defend herself in an Italian court against a 16-year-old slander charge](https://www.yahoo.com/news/amanda-knox-defend-herself-italian-050318442.html)
+- Jun 04 - [TSMC says it has discussed moving fabs out of Taiwan but such a move impossible](https://finance.yahoo.com/news/tsmc-says-discussed-moving-fabs-041039286.html)
 <!-- feed end -->
 
 ### Onstream
