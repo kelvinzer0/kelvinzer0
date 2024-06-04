@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Chapel Hill mid-century modern ‘masterpiece’ for sale. Take a look inside the house.](https://finance.yahoo.com/news/chapel-hill-mid-century-modern-123726117.html)
+- Jun 04 - [Storms with large hail, damaging winds, possible tornadoes expected in KC. Here’s when](https://www.yahoo.com/news/large-hail-damaging-winds-maybe-125302383.html)
+- Jun 04 - [A 74-year-old in hospice care was declared dead, a sheriff’s official said. Hours later, something truly astonishing happened](https://www.yahoo.com/news/funeral-home-worker-found-woman-072636994.html)
+- Jun 04 - [Woman Spots 5-Foot-Long Monster Lizard While Driving](https://www.yahoo.com/news/woman-spots-5-foot-long-122002650.html)
 - Jun 04 - [Kremlin welcomes Turkey's reported desire to join BRICS](https://www.yahoo.com/news/kremlin-welcomes-turkeys-reported-desire-120633328.html)
 - Jun 04 - [Mexican mayor killed hours after first woman elected president](https://www.yahoo.com/news/mexican-mayor-killed-hours-first-114357188.html)
-- Jun 04 - [Fauci says ‘unusual’ antics by Marjorie Taylor Greene at hearing is reason he gets death threats](https://www.yahoo.com/news/fauci-says-unusual-antics-marjorie-110538012.html)
-- Jun 04 - [Stormy Daniels Sends Stark Message To Melania Trump](https://www.yahoo.com/news/stormy-daniels-sends-stark-message-102613618.html)
 <!-- feed end -->
 
 ### Onstream
