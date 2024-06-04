@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Hunter Biden’s wife eviscerates ex-Trump aide at gun trial: ‘Nazi piece of s***’](https://www.yahoo.com/news/hunter-biden-wife-calls-ex-170521409.html)
-- Jun 04 - [Shar Pei Mix Puppy Who Was 'Dragged Behind a Truck' Finally Gets Her Happy Ending](https://www.yahoo.com/lifestyle/shar-pei-mix-puppy-dragged-181500613.html)
+- Jun 04 - ['You Nazi piece of s---': Hunter Biden's wife confronts Trump ally in hallway outside gun trial](https://www.yahoo.com/news/nazi-piece-hunter-bidens-wife-200903330.html)
+- Jun 04 - [Chicago-area cicadas may soon be infected with STD that turns them into ‘zombies’](https://www.yahoo.com/news/chicago-area-cicadas-may-soon-184553394.html)
 - Jun 04 - [Super Hornet Armed With SM-6 Missile Spotted Over California](https://www.yahoo.com/tech/super-hornet-armed-sm-6-180853983.html)
-- Jun 04 - [Pro-Skier and Girlfriend Found in Each Other’s Arms After Deadly Mountain Fall](https://sports.yahoo.com/pro-skier-girlfriend-found-other-172350413.html)
-- Jun 04 - [Bond set for suspect in Giant Eagle attack that killed toddler](https://www.yahoo.com/news/toddler-dies-stabbing-local-giant-101830528.html)
+- Jun 04 - [Former top US Army general in Europe calls Ukrainian complaints about the M1 Abrams tank 'BS'](https://www.yahoo.com/news/former-top-us-army-general-180544709.html)
+- Jun 04 - [Experienced hunter, teacher and mom solves the 2024 Eagle Medallion Hunt](https://www.yahoo.com/news/experienced-hunter-teacher-mom-solves-173954538.html)
 <!-- feed end -->
 
 ### Onstream
