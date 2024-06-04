@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [Attorney General Merrick Garland blasts conspiracy theories about Trump criminal case and FBI](https://www.yahoo.com/news/attorney-general-merrick-garland-blasts-144800616.html)
+- Jun 04 - [The Northern Lights May Make a Comeback This Week in the US—Here's How to See Them](https://www.yahoo.com/news/northern-lights-may-comeback-week-143756890.html)
+- Jun 04 - [A company developing Russia's answer to Musk's Starlink says it completed its first tests](https://www.yahoo.com/news/company-developing-russias-answer-musks-140939596.html)
 - Jun 04 - [Storms with large hail, damaging winds, possible tornadoes expected in KC. Here’s when](https://www.yahoo.com/news/large-hail-damaging-winds-maybe-125302383.html)
-- Jun 04 - [A 74-year-old in hospice care was declared dead, a sheriff’s official said. Hours later, something truly astonishing happened](https://www.yahoo.com/news/funeral-home-worker-found-woman-072636994.html)
-- Jun 04 - [Woman Spots 5-Foot-Long Monster Lizard While Driving](https://www.yahoo.com/news/woman-spots-5-foot-long-122002650.html)
 - Jun 04 - [Kremlin welcomes Turkey's reported desire to join BRICS](https://www.yahoo.com/news/kremlin-welcomes-turkeys-reported-desire-120633328.html)
-- Jun 04 - [Mexican mayor killed hours after first woman elected president](https://www.yahoo.com/news/mexican-mayor-killed-hours-first-114357188.html)
 <!-- feed end -->
 
 ### Onstream
