@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [Amanda Knox will defend herself in an Italian court against a 16-year-old slander charge](https://www.yahoo.com/news/amanda-knox-defend-herself-italian-050318442.html)
 - Jun 04 - [She's the world's most expensive cow, and part of Brazil's plan to put beef on everyone's plate](https://www.yahoo.com/news/shes-worlds-most-expensive-cow-040156493.html)
-- Jun 04 - [Intel battles AMD with new data center chips](https://finance.yahoo.com/news/intel-battles-amd-data-center-030430762.html)
-- Jun 04 - [The Intel we know is dead, but its new Lunar Lake chips are very much alive](https://www.yahoo.com/tech/intel-know-dead-lunar-lake-030018086.html)
-- Jun 04 - [She didn’t treat the wound of her Autistic daughter before a deadly infection. Now, she won’t spend a day in prison](https://www.yahoo.com/news/she-didn-t-treat-wound-025322058.html)
 - Jun 04 - [Bison gores 83-year-old woman in Yellowstone National Park](https://www.yahoo.com/news/bison-gores-83-old-woman-015009426.html)
+- Jun 04 - [China's spacecraft carrying rocks from the far side of the moon leaves the lunar surface](https://www.yahoo.com/news/chinas-spacecraft-carrying-rocks-far-012758007.html)
+- Jun 04 - [Temperatures to reach over 100 degrees in parts of San Diego County this week](https://www.yahoo.com/news/temperatures-reach-over-100-parts-012204005.html)
 <!-- feed end -->
 
 ### Onstream
