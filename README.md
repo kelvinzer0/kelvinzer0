@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - ['You Nazi piece of s---': Hunter Biden's wife confronts Trump ally in hallway outside gun trial](https://www.yahoo.com/news/nazi-piece-hunter-bidens-wife-200903330.html)
-- Jun 04 - [Chicago-area cicadas may soon be infected with STD that turns them into ‘zombies’](https://www.yahoo.com/news/chicago-area-cicadas-may-soon-184553394.html)
+- Jun 04 - [E*Trade possibly ousting GameStop bull 'Roaring Kitty' spurs online backlash](https://finance.yahoo.com/news/e-trade-possibly-ousting-gamestop-211531497.html)
+- Jun 04 - [Serious weekend crash on the Outer Banks closed all lanes of highway for over 2 hours](https://www.yahoo.com/news/serious-weekend-crash-outer-banks-211000980.html)
+- Jun 04 - [Fact Check: Photo Shared on X Purportedly Shows Marjorie Taylor Greene Wearing Mask in Airport. Here Are the Facts](https://www.yahoo.com/news/fact-check-photo-shared-x-184700761.html)
+- Jun 04 - ['Sensitive moment' for entire Biden family: Hunter Biden's gun trial resume today](https://www.yahoo.com/news/sensitive-moment-entire-biden-family-183628720.html)
 - Jun 04 - [Super Hornet Armed With SM-6 Missile Spotted Over California](https://www.yahoo.com/tech/super-hornet-armed-sm-6-180853983.html)
-- Jun 04 - [Former top US Army general in Europe calls Ukrainian complaints about the M1 Abrams tank 'BS'](https://www.yahoo.com/news/former-top-us-army-general-180544709.html)
-- Jun 04 - [Experienced hunter, teacher and mom solves the 2024 Eagle Medallion Hunt](https://www.yahoo.com/news/experienced-hunter-teacher-mom-solves-173954538.html)
 <!-- feed end -->
 
 ### Onstream
