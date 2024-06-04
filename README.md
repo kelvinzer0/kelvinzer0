@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jun 04 - [China's Chang'e-6 probe lifts off from far side of moon](https://www.yahoo.com/news/chinas-change-6-probe-lifts-001345760.html)
 - Jun 04 - [Woman's 12-hour torture killing took place Christmas Day, judge hears in manslaughter plea](https://www.yahoo.com/news/womans-12-hour-torture-killing-001344153.html)
 - Jun 04 - [Congressman's son steals show on House floor, hamming it up for cameras](https://www.yahoo.com/entertainment/congressmans-son-steals-show-house-000006566.html)
-- Jun 03 - [After 1,000 complaints in one week, court no longer accepting ‘orchestrated’ complaints about judge in Trump’s Florida case](https://www.yahoo.com/news/1-000-complaints-one-week-222502357.html)
+- Jun 03 - [Judge affirms settlement of lawsuit filed by family of man who died after police pulled him from car](https://www.yahoo.com/news/judge-affirms-settlement-lawsuit-filed-213754236.html)
 <!-- feed end -->
 
 ### Onstream
