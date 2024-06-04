@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Attorney General Merrick Garland blasts conspiracy theories about Trump criminal case and FBI](https://www.yahoo.com/news/attorney-general-merrick-garland-blasts-144800616.html)
-- Jun 04 - [The Northern Lights May Make a Comeback This Week in the US—Here's How to See Them](https://www.yahoo.com/news/northern-lights-may-comeback-week-143756890.html)
-- Jun 04 - [A company developing Russia's answer to Musk's Starlink says it completed its first tests](https://www.yahoo.com/news/company-developing-russias-answer-musks-140939596.html)
-- Jun 04 - [Storms with large hail, damaging winds, possible tornadoes expected in KC. Here’s when](https://www.yahoo.com/news/large-hail-damaging-winds-maybe-125302383.html)
-- Jun 04 - [Kremlin welcomes Turkey's reported desire to join BRICS](https://www.yahoo.com/news/kremlin-welcomes-turkeys-reported-desire-120633328.html)
+- Jun 04 - [Ukraine says extending use of Western arms will weaken Russia near border](https://www.yahoo.com/news/ukraine-says-extending-western-arms-144538711.html)
+- Jun 04 - [A Parachute Failed to Deploy During Jeff Bezos' Space Tourism Comeback Mission](https://www.yahoo.com/tech/parachute-failed-deploy-during-jeff-141000377.html)
+- Jun 04 - [Felon Trump’s Really Dumb Defense Reveals Republican Hypocrisy](https://www.yahoo.com/news/felon-trump-really-dumb-defense-140632738.html)
+- Jun 04 - [A blue painted shrine is the latest discovery in Pompeii ‘treasure chest’](https://www.yahoo.com/news/blue-painted-shrine-latest-discovery-140200570.html)
+- Jun 04 - [An elite bodybuilder says he doesn't use protein shakes to build muscle. Here's what he eats instead.](https://www.yahoo.com/lifestyle/elite-bodybuilder-says-doesnt-protein-135725103.html)
 <!-- feed end -->
 
 ### Onstream
