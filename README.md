@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Executive order limiting asylum at the U.S.-Mexico border to be signed by Biden](https://www.yahoo.com/news/executive-order-limiting-asylum-u-160411826.html)
+- Jun 04 - [5 Expensive Car Brands with the Least Reliable Engines](https://finance.yahoo.com/news/5-expensive-car-brands-least-174934250.html)
+- Jun 04 - [Hunter Biden’s wife calls ex-Trump aide a ‘Nazi piece of s***’ at gun trial](https://www.yahoo.com/news/hunter-biden-wife-calls-ex-170521409.html)
+- Jun 04 - [Suspect in Giant Eagle attack that killed toddler used kitchen knife, charges now filed](https://www.yahoo.com/news/toddler-dies-stabbing-local-giant-101830528.html)
 - Jun 04 - [Joe Scarborough Loses It Over Clip Of Trump Talking About Relationship With God](https://www.yahoo.com/news/joe-scarborough-loses-over-clip-160240064.html)
-- Jun 04 - [Toyota Commercial Is Everything Wrong With Automakers](https://autos.yahoo.com/toyota-commercial-everything-wrong-automakers-170000900.html)
-- Jun 04 - [Baby Giraffe at Houston Zoo Runs with Excitement Upon Seeing Human Child](https://www.yahoo.com/lifestyle/baby-giraffe-houston-zoo-runs-145144961.html)
-- Jun 04 - [Ukraine says extending use of Western arms will weaken Russia near border](https://www.yahoo.com/news/ukraine-says-extending-western-arms-144538711.html)
+- Jun 04 - [Emails show Elon Musk diverted a $500 million shipment of Nvidia chips intended for Tesla to X instead](https://autos.yahoo.com/emails-show-elon-musk-diverted-155159751.html)
 <!-- feed end -->
 
 ### Onstream
