@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [She's the world's most expensive cow, and part of Brazil's plan to put beef on everyone's plate](https://www.yahoo.com/news/shes-worlds-most-expensive-cow-040156493.html)
+- Jun 04 - [Intel battles AMD with new data center chips](https://finance.yahoo.com/news/intel-battles-amd-data-center-030430762.html)
+- Jun 04 - [The Intel we know is dead, but its new Lunar Lake chips are very much alive](https://www.yahoo.com/tech/intel-know-dead-lunar-lake-030018086.html)
+- Jun 04 - [She didn’t treat the wound of her Autistic daughter before a deadly infection. Now, she won’t spend a day in prison](https://www.yahoo.com/news/she-didn-t-treat-wound-025322058.html)
 - Jun 04 - [Bison gores 83-year-old woman in Yellowstone National Park](https://www.yahoo.com/news/bison-gores-83-old-woman-015009426.html)
-- Jun 04 - [China's spacecraft carrying rocks from the far side of the moon leaves the lunar surface](https://www.yahoo.com/news/chinas-spacecraft-carrying-rocks-far-012758007.html)
-- Jun 04 - [China's Chang'e-6 probe lifts off from far side of moon](https://www.yahoo.com/news/chinas-change-6-probe-lifts-001345760.html)
-- Jun 04 - [Congressman's son steals show on House floor, hamming it up for cameras](https://www.yahoo.com/entertainment/congressmans-son-steals-show-house-000006566.html)
-- Jun 03 - [Judge affirms settlement of lawsuit filed by family of man who died after police pulled him from car](https://www.yahoo.com/news/judge-affirms-settlement-lawsuit-filed-213754236.html)
 <!-- feed end -->
 
 ### Onstream
