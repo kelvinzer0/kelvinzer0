@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Dow Jones Futures Fall As Growth Fears Mount; 7 Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-meta-buy-points/?src=A00220&yptr=yahoo)
+- Jun 04 - [Chapel Hill mid-century modern ‘masterpiece’ for sale. Take a look inside the house.](https://finance.yahoo.com/news/chapel-hill-mid-century-modern-123726117.html)
+- Jun 04 - [Kremlin welcomes Turkey's reported desire to join BRICS](https://www.yahoo.com/news/kremlin-welcomes-turkeys-reported-desire-120633328.html)
 - Jun 04 - [Mexican mayor killed hours after first woman elected president](https://www.yahoo.com/news/mexican-mayor-killed-hours-first-114357188.html)
-- Jun 04 - [This Is One Of The Biggest Signs Of High-Functioning Depression People Often Miss](https://www.yahoo.com/lifestyle/one-biggest-signs-high-functioning-111602470.html)
 - Jun 04 - [Fauci says ‘unusual’ antics by Marjorie Taylor Greene at hearing is reason he gets death threats](https://www.yahoo.com/news/fauci-says-unusual-antics-marjorie-110538012.html)
 - Jun 04 - [Stormy Daniels Sends Stark Message To Melania Trump](https://www.yahoo.com/news/stormy-daniels-sends-stark-message-102613618.html)
 <!-- feed end -->
