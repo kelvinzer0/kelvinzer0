@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [German army to boost Rheinmetall artillery shell order by 200,000, document shows](https://www.yahoo.com/news/german-army-increase-rheinmetall-artillery-061048165.html)
 - Jun 04 - [Amanda Knox will defend herself in an Italian court against a 16-year-old slander charge](https://www.yahoo.com/news/amanda-knox-defend-herself-italian-050318442.html)
+- Jun 04 - [TSMC says it has discussed moving fabs out of Taiwan but such a move impossible](https://finance.yahoo.com/news/tsmc-says-discussed-moving-fabs-041039286.html)
 - Jun 04 - [She's the world's most expensive cow, and part of Brazil's plan to put beef on everyone's plate](https://www.yahoo.com/news/shes-worlds-most-expensive-cow-040156493.html)
-- Jun 04 - [Bison gores 83-year-old woman in Yellowstone National Park](https://www.yahoo.com/news/bison-gores-83-old-woman-015009426.html)
-- Jun 04 - [China's spacecraft carrying rocks from the far side of the moon leaves the lunar surface](https://www.yahoo.com/news/chinas-spacecraft-carrying-rocks-far-012758007.html)
-- Jun 04 - [Temperatures to reach over 100 degrees in parts of San Diego County this week](https://www.yahoo.com/news/temperatures-reach-over-100-parts-012204005.html)
+- Jun 04 - [Chinese battery developer announces latest cell technology capable of reaching almost full charge in under 10 minutes: 'Ready for immediate mass production'](https://www.yahoo.com/tech/chinese-battery-developer-announces-latest-020000516.html)
 <!-- feed end -->
 
 ### Onstream
