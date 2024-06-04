@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Dow Jones Futures Fall After Strong Market Close; Meta Leads 7 Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-meta-buy-points/?src=A00220&yptr=yahoo)
-- Jun 04 - [2 Artificial Intelligence Stocks to Buy and Hold for Great Long-Term Potential](https://finance.yahoo.com/news/2-artificial-intelligence-stocks-buy-101500488.html)
-- Jun 04 - [Palm Beach County schools need to start later by 2026. Here are 3 plans to make it happen](https://www.yahoo.com/news/palm-beach-county-schools-start-090930151.html)
-- Jun 04 - [Mount Kanlaon volcano erupts sending 3-mile ash plume into the sky](https://www.yahoo.com/news/mount-kanlaon-volcano-erupts-sending-063835621.html)
-- Jun 04 - [JonBenet Ramsey’s father John claims Colorado police officer said they are ‘just waiting' for him to die](https://www.yahoo.com/news/jonbenet-ramsey-father-john-claims-080014611.html)
+- Jun 04 - [Dow Jones Futures Fall As Growth Fears Mount; 7 Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-meta-buy-points/?src=A00220&yptr=yahoo)
+- Jun 04 - [Mexican mayor killed hours after first woman elected president](https://www.yahoo.com/news/mexican-mayor-killed-hours-first-114357188.html)
+- Jun 04 - [This Is One Of The Biggest Signs Of High-Functioning Depression People Often Miss](https://www.yahoo.com/lifestyle/one-biggest-signs-high-functioning-111602470.html)
+- Jun 04 - [Fauci says ‘unusual’ antics by Marjorie Taylor Greene at hearing is reason he gets death threats](https://www.yahoo.com/news/fauci-says-unusual-antics-marjorie-110538012.html)
+- Jun 04 - [Stormy Daniels Sends Stark Message To Melania Trump](https://www.yahoo.com/news/stormy-daniels-sends-stark-message-102613618.html)
 <!-- feed end -->
 
 ### Onstream
