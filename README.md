@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [He left 2 people behind after running from a Kennewick crash. Here’s how he was caught](https://www.yahoo.com/news/left-2-people-behind-running-221740230.html)
+- Jun 04 - [Dow Jones Futures: Market Closes Strong As Nvidia Jumps; Meta Among 7 Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-meta-buy-points/?src=A00220&yptr=yahoo)
+- Jun 04 - [Angered by wisecrack, Broward science teacher slammed student’s head into table: cops](https://www.yahoo.com/news/angered-wisecrack-broward-science-teacher-010025242.html)
+- Jun 04 - [China's Chang'e-6 probe lifts off from far side of moon](https://www.yahoo.com/news/chinas-change-6-probe-lifts-001345760.html)
+- Jun 04 - [Congressman's son steals show on House floor, hamming it up for cameras](https://www.yahoo.com/entertainment/congressmans-son-steals-show-house-000006566.html)
 - Jun 03 - [Judge affirms settlement of lawsuit filed by family of man who died after police pulled him from car](https://www.yahoo.com/news/judge-affirms-settlement-lawsuit-filed-213754236.html)
-- Jun 03 - [Do you return your shopping cart? A psychologist's answer on TikTok enraged thousands](https://www.yahoo.com/lifestyle/return-shopping-cart-psychologists-answer-211915098.html)
-- Jun 03 - [She had sex with a student while teaching at Puyallup high school. Here’s her sentence](https://www.yahoo.com/news/she-had-sex-student-while-210912639.html)
-- Jun 03 - [The Viral Story About a Defendant Driving With a Suspended License Was Fake News](https://www.yahoo.com/news/viral-story-defendant-driving-suspended-202015577.html)
 <!-- feed end -->
 
 ### Onstream
