@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Columbia University settles lawsuit over campus safety amid protests](https://www.yahoo.com/news/columbia-university-settles-lawsuit-over-184826766.html)
+- Jun 04 - [Hunter Biden’s wife eviscerates ex-Trump aide at gun trial: ‘Nazi piece of s***’](https://www.yahoo.com/news/hunter-biden-wife-calls-ex-170521409.html)
+- Jun 04 - [Shar Pei Mix Puppy Who Was 'Dragged Behind a Truck' Finally Gets Her Happy Ending](https://www.yahoo.com/lifestyle/shar-pei-mix-puppy-dragged-181500613.html)
+- Jun 04 - [Super Hornet Armed With SM-6 Missile Spotted Over California](https://www.yahoo.com/tech/super-hornet-armed-sm-6-180853983.html)
+- Jun 04 - [Pro-Skier and Girlfriend Found in Each Other’s Arms After Deadly Mountain Fall](https://sports.yahoo.com/pro-skier-girlfriend-found-other-172350413.html)
 - Jun 04 - [Bond set for suspect in Giant Eagle attack that killed toddler](https://www.yahoo.com/news/toddler-dies-stabbing-local-giant-101830528.html)
-- Jun 04 - [If You Had Invested $1,000 in Gold 10 Years Ago, Here’s How Much Money You’d Have Today](https://finance.yahoo.com/news/had-invested-1-000-gold-170124838.html)
-- Jun 04 - [Prisoner dies 12 days after Pennsylvania judge granted compassionate release for health reasons](https://www.yahoo.com/news/prisoner-dies-12-days-pennsylvania-165010563.html)
-- Jun 04 - [Joe Scarborough Loses It Over Clip Of Trump Talking About Relationship With God](https://www.yahoo.com/news/joe-scarborough-loses-over-clip-160240064.html)
 <!-- feed end -->
 
 ### Onstream
