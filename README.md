@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [5 Expensive Car Brands with the Least Reliable Engines](https://finance.yahoo.com/news/5-expensive-car-brands-least-174934250.html)
-- Jun 04 - [Hunter Biden’s wife calls ex-Trump aide a ‘Nazi piece of s***’ at gun trial](https://www.yahoo.com/news/hunter-biden-wife-calls-ex-170521409.html)
-- Jun 04 - [Suspect in Giant Eagle attack that killed toddler used kitchen knife, charges now filed](https://www.yahoo.com/news/toddler-dies-stabbing-local-giant-101830528.html)
+- Jun 04 - [Columbia University settles lawsuit over campus safety amid protests](https://www.yahoo.com/news/columbia-university-settles-lawsuit-over-184826766.html)
+- Jun 04 - [Bond set for suspect in Giant Eagle attack that killed toddler](https://www.yahoo.com/news/toddler-dies-stabbing-local-giant-101830528.html)
+- Jun 04 - [If You Had Invested $1,000 in Gold 10 Years Ago, Here’s How Much Money You’d Have Today](https://finance.yahoo.com/news/had-invested-1-000-gold-170124838.html)
+- Jun 04 - [Prisoner dies 12 days after Pennsylvania judge granted compassionate release for health reasons](https://www.yahoo.com/news/prisoner-dies-12-days-pennsylvania-165010563.html)
 - Jun 04 - [Joe Scarborough Loses It Over Clip Of Trump Talking About Relationship With God](https://www.yahoo.com/news/joe-scarborough-loses-over-clip-160240064.html)
-- Jun 04 - [Emails show Elon Musk diverted a $500 million shipment of Nvidia chips intended for Tesla to X instead](https://autos.yahoo.com/emails-show-elon-musk-diverted-155159751.html)
 <!-- feed end -->
 
 ### Onstream
