@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [E*Trade possibly ousting GameStop bull 'Roaring Kitty' spurs online backlash](https://finance.yahoo.com/news/e-trade-possibly-ousting-gamestop-211531497.html)
-- Jun 04 - [Serious weekend crash on the Outer Banks closed all lanes of highway for over 2 hours](https://www.yahoo.com/news/serious-weekend-crash-outer-banks-211000980.html)
-- Jun 04 - [Fact Check: Photo Shared on X Purportedly Shows Marjorie Taylor Greene Wearing Mask in Airport. Here Are the Facts](https://www.yahoo.com/news/fact-check-photo-shared-x-184700761.html)
-- Jun 04 - ['Sensitive moment' for entire Biden family: Hunter Biden's gun trial resume today](https://www.yahoo.com/news/sensitive-moment-entire-biden-family-183628720.html)
+- Jun 04 - [Distasteful Kobe Bryant Costume Appears At Chinese Comic Con, Causing Massive Backlash](https://www.yahoo.com/entertainment/distasteful-kobe-bryant-costume-appears-200550779.html)
+- Jun 04 - [Three boys discovered teenage T. rex fossil in northern US: 'Incredible dinosaur discovery'](https://www.yahoo.com/news/three-boys-discovered-teenage-t-194318588.html)
 - Jun 04 - [Super Hornet Armed With SM-6 Missile Spotted Over California](https://www.yahoo.com/tech/super-hornet-armed-sm-6-180853983.html)
+- Jun 04 - [Former top US Army general in Europe calls Ukrainian complaints about the M1 Abrams tank 'BS'](https://www.yahoo.com/news/former-top-us-army-general-180544709.html)
+- Jun 04 - [Pro-Skier and Girlfriend Found in Each Other’s Arms After Deadly Mountain Fall](https://sports.yahoo.com/pro-skier-girlfriend-found-other-172350413.html)
 <!-- feed end -->
 
 ### Onstream
