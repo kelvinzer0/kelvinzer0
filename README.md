@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [China’s Chang’e-6 probe lifts off with samples from moon’s far side in historic first](https://www.yahoo.com/news/china-chang-e-6-probe-073014459.html)
+- Jun 04 - [General election 2024 latest: Tories pledge immigration cap as Sunak and Starmer gear up for first TV debate](https://www.yahoo.com/news/general-election-latest-sunak-unveils-060303318.html)
+- Jun 04 - [Parents call for public inquiry after deaths of nine babies at scandal-hit NHS trust](https://www.yahoo.com/news/parents-call-public-inquiry-deaths-083154890.html)
 - Jun 04 - [Mount Kanlaon volcano erupts sending 3-mile ash plume into the sky](https://www.yahoo.com/news/mount-kanlaon-volcano-erupts-sending-063835621.html)
 - Jun 04 - [German army to boost Rheinmetall artillery shell order by 200,000, document shows](https://www.yahoo.com/news/german-army-increase-rheinmetall-artillery-061048165.html)
 - Jun 04 - [Amanda Knox will defend herself in an Italian court against a 16-year-old slander charge](https://www.yahoo.com/news/amanda-knox-defend-herself-italian-050318442.html)
-- Jun 04 - [She's the world's most expensive cow, and part of Brazil's plan to put beef on everyone's plate](https://www.yahoo.com/news/shes-worlds-most-expensive-cow-040156493.html)
 <!-- feed end -->
 
 ### Onstream
