@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Minnesota Gov. Walz signs law banning 'excited delirium' for police](https://www.yahoo.com/news/minnesota-gov-walz-signs-law-190600605.html)
-- Jun 05 - [House Republicans issue criminal referrals against James and Hunter Biden, alleging false testimony](https://www.yahoo.com/news/house-republicans-issue-criminal-referrals-182826679.html)
-- Jun 05 - [Former MPD officer’s rape case dismissed in court](https://www.yahoo.com/news/former-mpd-officer-rape-case-180946579.html)
 - Jun 05 - [‘The day has finally come’: Years in the making, evidence leads investigators to Rex Heuermann](https://www.yahoo.com/news/day-finally-come-years-making-124531216.html)
-- Jun 05 - [Bogey Inn tees up for Memorial Tournament event](https://www.yahoo.com/entertainment/bogey-inn-tees-memorial-tournament-180414759.html)
+- Jun 05 - [Putin warns that Russia could provide long-range weapons to others to strike Western targets](https://www.yahoo.com/news/putin-takes-questions-international-journalists-173512376.html)
+- Jun 05 - ['National security issue': Ex-WH doctor raises alarms on Biden's mental health after bombshell report](https://www.yahoo.com/news/national-security-issue-ex-wh-173459444.html)
+- Jun 05 - [Billionaire David Tepper Just Made a Once-in-a-Generation Bet on This Stock. Time to Buy?](https://finance.yahoo.com/news/billionaire-david-tepper-just-made-170100747.html)
+- Jun 05 - [Famous scenic waterfall in China goes viral after video appears to show water coming from pipe](https://www.yahoo.com/news/famous-scenic-waterfall-china-goes-160041872.html)
 <!-- feed end -->
 
 ### Onstream
