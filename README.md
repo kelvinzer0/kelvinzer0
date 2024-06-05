@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [A Russian military planner says he doesn't tell the men he's sending out to fight that they are very likely to die](https://www.yahoo.com/news/russian-military-planner-says-doesnt-104723763.html)
+- Jun 05 - [Man seriously injured, hospitalized after Town of Horseheads motorcycle crash](https://www.yahoo.com/news/man-seriously-injured-hospitalized-town-121709980.html)
+- Jun 05 - [Newsom praises court ruling dismissing environmental groups' challenge of Sites Reservoir](https://www.yahoo.com/news/newsom-praises-court-ruling-dismissing-120055479.html)
 - Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
+- Jun 05 - [Boeing Starliner launch livestream: Watch latest attempt to send NASA astronauts to ISS](https://www.yahoo.com/tech/boeing-starliner-launch-livestream-watch-101937403.html)
 - Jun 05 - [I'm 62, Have $800,000 and Will Receive $2,600 Monthly from Social Security. What's My Retirement Budget?](https://finance.yahoo.com/news/im-62-800-000-receive-100000521.html)
-- Jun 05 - [This 7.5%-Yielding Dividend Stock Is Another Step Closer to Securing a Once-in-a-Generation Investment Opportunity](https://finance.yahoo.com/news/7-5-yielding-dividend-stock-094800307.html)
-- Jun 05 - [Britain is falling for the same military trap that vanquished the Nazis](https://www.yahoo.com/news/britain-falling-same-military-trap-090000666.html)
 <!-- feed end -->
 
 ### Onstream
