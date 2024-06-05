@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
+- Jun 05 - [A Wisconsin mom of 3 who made $250,000 secretly working 2 remote jobs said it allowed her husband to leave a stressful job and become a stay-at-home dad](https://finance.yahoo.com/news/gen-x-mom-3-made-180301310.html)
 - Jun 05 - [Fact Check: Rumor Says Ukraine's President Zelenskyy Bought a Casino in Cyprus. Here Are the Facts](https://www.yahoo.com/news/fact-check-rumor-says-ukraines-001900679.html)
 - Jun 05 - [2 million pounds of nuts lost in Northern California storage facility fire](https://www.yahoo.com/news/2-million-pounds-nuts-lost-000316733.html)
 - Jun 04 - [New study finds Earth warming at record rate, but no evidence of climate change accelerating](https://www.yahoo.com/news/study-finds-earth-warming-record-231817375.html)
-- Jun 04 - [Joro spiders, giant, venomous flying arachnids, are here to stay, pest experts say](https://www.yahoo.com/news/joro-spiders-giant-venomous-flying-212000340.html)
-- Jun 04 - [E*Trade possibly ousting GameStop bull 'Roaring Kitty' spurs online backlash](https://finance.yahoo.com/news/e-trade-possibly-ousting-gamestop-211531497.html)
 <!-- feed end -->
 
 ### Onstream
