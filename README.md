@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Nvidia Stock Got a Massive Order From This Popular Artificial Intelligence (AI) Company](https://finance.yahoo.com/news/nvidia-stock-got-massive-order-130000905.html)
-- Jun 05 - [NBA nears rights deal worth $76 billion with NBC, ESPN and Amazon, WSJ reports](https://finance.yahoo.com/news/nba-nears-tv-deals-worth-124344516.html)
-- Jun 05 - [A court ruled embryos are children. These Christian couples agree yet wrestle with IVF choices](https://www.yahoo.com/news/court-ruled-embryos-children-christian-123201816.html)
-- Jun 05 - [46% of middle class workers are slashing — or cutting out — contributions to their retirement funds. Here's why](https://finance.yahoo.com/news/46-middle-class-workers-slashing-115100807.html)
-- Jun 05 - [People are exiting the stock market in droves](https://finance.yahoo.com/news/people-exiting-stock-market-droves-113729092.html)
+- Jun 05 - [Man dies after falling from ‘Mission Impossible’ cliff in Norway](https://www.yahoo.com/news/man-dies-falling-mission-impossible-155303477.html)
+- Jun 05 - ['My heart stopped': Giraffe picks up toddler during a family trip to Texas wildlife center](https://www.yahoo.com/news/heart-stopped-giraffe-picks-toddler-144033576.html)
+- Jun 05 - [FBI reinstates security clearance for former employee who raised questions about Jan. 6 attack](https://www.yahoo.com/news/fbi-reinstates-security-clearance-former-142923395.html)
+- Jun 05 - [If You Invested Last Year's $2,812 Average Tax Refund In Nvidia Stock, Here's How Much It Would Be Worth Today](https://finance.yahoo.com/news/invested-last-years-2-812-130722370.html)
+- Jun 05 - [North Hardin High School staff and students grieving death of school's band director](https://www.yahoo.com/news/north-hardin-high-school-staff-124358348.html)
 <!-- feed end -->
 
 ### Onstream
