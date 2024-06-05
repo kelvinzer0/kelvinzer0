@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Putin says West is wrong to assume Russia would never use nuclear weapons](https://www.yahoo.com/news/putin-says-west-wrong-assume-211322017.html)
-- Jun 05 - [White dad stops daughter from shaking Black superintendent’s hand - at school infamous for Nazi salute photo](https://www.yahoo.com/news/white-dad-stops-daughter-shaking-210553499.html)
-- Jun 05 - [Fact Check: Photo Purports To Show Giant Octopus Washed Up on Indonesian Coast. Here's What We Learned](https://www.yahoo.com/news/fact-check-photo-purports-show-203100304.html)
-- Jun 05 - [1 injured after road rage shooting on I-675](https://www.yahoo.com/news/1-injured-apparent-road-rage-153433488.html)
 - Jun 05 - [‘The day has finally come’: Years in the making, evidence leads investigators to Rex Heuermann](https://www.yahoo.com/news/day-finally-come-years-making-124531216.html)
+- Jun 05 - [Ship at full throttle in harbor causes major South Carolina bridge to close until it passes safely](https://www.yahoo.com/news/ship-full-throttle-harbor-causes-215150970.html)
+- Jun 05 - [White dad stops daughter from shaking Black superintendent’s hand - at school infamous for Nazi salute photo](https://www.yahoo.com/news/white-dad-stops-daughter-shaking-210553499.html)
+- Jun 05 - [Fact Check: Chick-fil-A Food Packaging Purportedly Says, 'Made With 100% Heterosexual Chicken.' Here's the Truth](https://www.yahoo.com/news/fact-check-chick-fil-food-203200406.html)
+- Jun 05 - [Fact Check: Photo Purports To Show Giant Octopus Washed Up on Indonesian Coast. Here's What We Learned](https://www.yahoo.com/news/fact-check-photo-purports-show-203100304.html)
 <!-- feed end -->
 
 ### Onstream
