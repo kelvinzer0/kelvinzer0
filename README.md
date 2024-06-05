@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Man seriously injured, hospitalized after Town of Horseheads motorcycle crash](https://www.yahoo.com/news/man-seriously-injured-hospitalized-town-121709980.html)
-- Jun 05 - [Newsom praises court ruling dismissing environmental groups' challenge of Sites Reservoir](https://www.yahoo.com/news/newsom-praises-court-ruling-dismissing-120055479.html)
+- Jun 05 - [Elon Musk Isn’t Making Vote on $50 Billion Pay Package Easy on Tesla Investors](https://www.barrons.com/articles/elon-musk-tesla-ai-pay-vote-6134f0f6?siteid=yhoof2&yptr=yahoo)
+- Jun 05 - [46% of middle class workers are slashing — or cutting out — contributions to their retirement funds. Here's why](https://finance.yahoo.com/news/46-middle-class-workers-slashing-115100807.html)
+- Jun 05 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-113000701.html)
 - Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
-- Jun 05 - [Boeing Starliner launch livestream: Watch latest attempt to send NASA astronauts to ISS](https://www.yahoo.com/tech/boeing-starliner-launch-livestream-watch-101937403.html)
-- Jun 05 - [I'm 62, Have $800,000 and Will Receive $2,600 Monthly from Social Security. What's My Retirement Budget?](https://finance.yahoo.com/news/im-62-800-000-receive-100000521.html)
+- Jun 05 - [Top news app in US has Chinese origins and ‘writes fiction’ with the help of AI](https://www.yahoo.com/news/top-news-app-us-chinese-100328243.html)
 <!-- feed end -->
 
 ### Onstream
