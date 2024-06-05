@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Britain is falling for the same military trap that vanquished the Nazis](https://www.yahoo.com/news/britain-falling-same-military-trap-090000666.html)
+- Jun 05 - [Disney, Florida to make up, agree to 5th theme park](https://www.yahoo.com/news/disney-florida-agree-5th-theme-032001929.html)
+- Jun 05 - [Parents sue Tennessee governor and school district, claiming kids were punished after officials misinterpreted state statute](https://www.yahoo.com/news/parents-sue-tennessee-governor-school-052702992.html)
+- Jun 05 - [Now that the fight with DeSantis appointees has ended, Disney set to invest $17B in Florida parks](https://finance.yahoo.com/news/now-fight-desantis-appointees-ended-043913760.html)
 - Jun 05 - [In France, D-Day evokes both the joys of liberation and the pain of Normandy's 20,000 civilian dead](https://www.yahoo.com/news/france-d-day-evokes-both-041055662.html)
-- Jun 05 - [Trump takes a hit in New Jersey: 5 takeaways from Tuesday’s primaries](https://www.yahoo.com/news/trump-takes-hit-jersey-5-040555615.html)
-- Jun 05 - [Colorado officials reach $8.5 million settlement with woman who was left handcuffed in a police car that was hit by a train](https://www.yahoo.com/news/colorado-officials-reach-8-5-035642891.html)
-- Jun 05 - [SpaceX plans for Thursday morning launch of megarocket from Texas](https://www.yahoo.com/tech/spacex-plans-thursday-morning-launch-033602702.html)
-- Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
 <!-- feed end -->
 
 ### Onstream
