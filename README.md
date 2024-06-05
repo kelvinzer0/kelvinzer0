@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Putin says West is wrong to assume Russia would never use nuclear weapons](https://www.yahoo.com/news/putin-says-west-wrong-assume-211322017.html)
+- Jun 05 - [White dad stops daughter from shaking Black superintendent’s hand - at school infamous for Nazi salute photo](https://www.yahoo.com/news/white-dad-stops-daughter-shaking-210553499.html)
+- Jun 05 - [Fact Check: Photo Purports To Show Giant Octopus Washed Up on Indonesian Coast. Here's What We Learned](https://www.yahoo.com/news/fact-check-photo-purports-show-203100304.html)
+- Jun 05 - [1 injured after road rage shooting on I-675](https://www.yahoo.com/news/1-injured-apparent-road-rage-153433488.html)
 - Jun 05 - [‘The day has finally come’: Years in the making, evidence leads investigators to Rex Heuermann](https://www.yahoo.com/news/day-finally-come-years-making-124531216.html)
-- Jun 05 - [Putin warns that Russia could provide long-range weapons to others to strike Western targets](https://www.yahoo.com/news/putin-takes-questions-international-journalists-173512376.html)
-- Jun 05 - ['National security issue': Ex-WH doctor raises alarms on Biden's mental health after bombshell report](https://www.yahoo.com/news/national-security-issue-ex-wh-173459444.html)
-- Jun 05 - [Billionaire David Tepper Just Made a Once-in-a-Generation Bet on This Stock. Time to Buy?](https://finance.yahoo.com/news/billionaire-david-tepper-just-made-170100747.html)
-- Jun 05 - [Famous scenic waterfall in China goes viral after video appears to show water coming from pipe](https://www.yahoo.com/news/famous-scenic-waterfall-china-goes-160041872.html)
 <!-- feed end -->
 
 ### Onstream
