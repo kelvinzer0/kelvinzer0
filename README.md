@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Putin warns that Russia could provide long-range weapons to others to strike Western targets](https://www.yahoo.com/news/putin-takes-questions-international-journalists-173512376.html)
-- Jun 05 - [‘After 39 wonderful years,’ Kansas City restaurateur will close his last location](https://www.yahoo.com/lifestyle/39-wonderful-years-kansas-city-172515173.html)
-- Jun 05 - [‘We wouldn’t swim in the water here’: Mass. beaches closed due to excessive bacteria](https://www.yahoo.com/news/wouldn-t-swim-water-mass-165807920.html)
-- Jun 05 - [Famous scenic waterfall in China goes viral after video appears to show water coming from pipe](https://www.yahoo.com/news/famous-scenic-waterfall-china-goes-160041872.html)
-- Jun 05 - [White House fires back at Wall Street Journal over Biden story](https://www.yahoo.com/news/white-house-fires-back-wall-145553126.html)
+- Jun 05 - [Minnesota Gov. Walz signs law banning 'excited delirium' for police](https://www.yahoo.com/news/minnesota-gov-walz-signs-law-190600605.html)
+- Jun 05 - [House Republicans issue criminal referrals against James and Hunter Biden, alleging false testimony](https://www.yahoo.com/news/house-republicans-issue-criminal-referrals-182826679.html)
+- Jun 05 - [Former MPD officer’s rape case dismissed in court](https://www.yahoo.com/news/former-mpd-officer-rape-case-180946579.html)
+- Jun 05 - [‘The day has finally come’: Years in the making, evidence leads investigators to Rex Heuermann](https://www.yahoo.com/news/day-finally-come-years-making-124531216.html)
+- Jun 05 - [Bogey Inn tees up for Memorial Tournament event](https://www.yahoo.com/entertainment/bogey-inn-tees-memorial-tournament-180414759.html)
 <!-- feed end -->
 
 ### Onstream
