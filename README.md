@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Russia’s New TOS-3 ‘Dragon’ Thermobaric Rocket Launcher Breaks Cover](https://www.yahoo.com/news/russia-tos-3-dragon-thermobaric-221228825.html)
-- Jun 04 - [Man Mistakenly Drives Stranger's Car After Picking Up Pizza](https://www.yahoo.com/news/man-mistakenly-drives-strangers-car-220202483.html)
-- Jun 04 - [Ex-husband of 'Real Housewives' star convicted of hiring mobster to assault her boyfriend](https://www.yahoo.com/entertainment/ex-husband-real-housewives-star-215709171.html)
-- Jun 04 - [JPMorgan’s Jamie Dimon is bracing for stagflation, but the economy could be headed for a 1950s-style boom instead](https://finance.yahoo.com/news/jpmorgan-jamie-dimon-bracing-stagflation-203314361.html)
-- Jun 04 - [Insects, unwashed hands shut down Lexington restaurant. What else did inspectors find?](https://www.yahoo.com/news/lexington-taqueria-shut-down-scoring-195523590.html)
+- Jun 05 - [Fact Check: Rumor Says Ukraine's President Zelenskyy Bought a Casino in Cyprus. Here Are the Facts](https://www.yahoo.com/news/fact-check-rumor-says-ukraines-001900679.html)
+- Jun 05 - [2 million pounds of nuts lost in Northern California storage facility fire](https://www.yahoo.com/news/2-million-pounds-nuts-lost-000316733.html)
+- Jun 04 - [New study finds Earth warming at record rate, but no evidence of climate change accelerating](https://www.yahoo.com/news/study-finds-earth-warming-record-231817375.html)
+- Jun 04 - [Joro spiders, giant, venomous flying arachnids, are here to stay, pest experts say](https://www.yahoo.com/news/joro-spiders-giant-venomous-flying-212000340.html)
+- Jun 04 - [E*Trade possibly ousting GameStop bull 'Roaring Kitty' spurs online backlash](https://finance.yahoo.com/news/e-trade-possibly-ousting-gamestop-211531497.html)
 <!-- feed end -->
 
 ### Onstream
