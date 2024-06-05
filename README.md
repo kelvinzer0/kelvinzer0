@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Now that the fight with DeSantis appointees has ended, Disney set to invest $17B in Florida parks](https://www.yahoo.com/news/now-fight-desantis-appointees-ended-043913760.html)
 - Jun 05 - [Judge Cannon expands hearing on Trump’s request to declare special counsel’s appointment invalid](https://www.yahoo.com/news/judge-cannon-expands-hearing-trump-021325283.html)
 - Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
 - Jun 05 - [Fact Check: Rumor Says Ukraine's President Zelenskyy Bought a Casino in Cyprus. Here Are the Facts](https://www.yahoo.com/news/fact-check-rumor-says-ukraines-001900679.html)
 - Jun 05 - [2 million pounds of nuts lost in Northern California storage facility fire](https://www.yahoo.com/news/2-million-pounds-nuts-lost-000316733.html)
+- Jun 05 - [Home prices could drop for the next 6 months as inventory rises by the biggest margin since the financial crisis, investment strategist says](https://finance.yahoo.com/news/home-prices-could-drop-next-160241135.html)
 <!-- feed end -->
 
 ### Onstream
