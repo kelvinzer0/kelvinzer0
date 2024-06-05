@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [A Russian military planner says he doesn't tell the men he's sending out to fight that they are very likely to die](https://www.yahoo.com/news/russian-military-planner-says-doesnt-104723763.html)
+- Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
+- Jun 05 - [I'm 62, Have $800,000 and Will Receive $2,600 Monthly from Social Security. What's My Retirement Budget?](https://finance.yahoo.com/news/im-62-800-000-receive-100000521.html)
+- Jun 05 - [This 7.5%-Yielding Dividend Stock Is Another Step Closer to Securing a Once-in-a-Generation Investment Opportunity](https://finance.yahoo.com/news/7-5-yielding-dividend-stock-094800307.html)
 - Jun 05 - [Britain is falling for the same military trap that vanquished the Nazis](https://www.yahoo.com/news/britain-falling-same-military-trap-090000666.html)
-- Jun 05 - [Disney, Florida to make up, agree to 5th theme park](https://www.yahoo.com/news/disney-florida-agree-5th-theme-032001929.html)
-- Jun 05 - [Parents sue Tennessee governor and school district, claiming kids were punished after officials misinterpreted state statute](https://www.yahoo.com/news/parents-sue-tennessee-governor-school-052702992.html)
-- Jun 05 - [Now that the fight with DeSantis appointees has ended, Disney set to invest $17B in Florida parks](https://finance.yahoo.com/news/now-fight-desantis-appointees-ended-043913760.html)
-- Jun 05 - [In France, D-Day evokes both the joys of liberation and the pain of Normandy's 20,000 civilian dead](https://www.yahoo.com/news/france-d-day-evokes-both-041055662.html)
 <!-- feed end -->
 
 ### Onstream
