@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Black Pepper Recalled Nationwide Due to Possible Salmonella Contamination](https://www.yahoo.com/news/black-pepper-recalled-nationwide-due-143638580.html)
-- Jun 05 - [Collier County man faces charges after pointing firearm at bicyclist in road rage incident](https://www.yahoo.com/news/collier-county-man-faces-charges-142243195.html)
-- Jun 05 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-113000701.html)
-- Jun 05 - [Damaged East St. Louis bridge may be closed for months. Why is it taking so long to fix?](https://www.yahoo.com/news/damaged-east-st-louis-bridge-110000211.html)
-- Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
+- Jun 05 - [Nvidia Stock Got a Massive Order From This Popular Artificial Intelligence (AI) Company](https://finance.yahoo.com/news/nvidia-stock-got-massive-order-130000905.html)
+- Jun 05 - [NBA nears rights deal worth $76 billion with NBC, ESPN and Amazon, WSJ reports](https://finance.yahoo.com/news/nba-nears-tv-deals-worth-124344516.html)
+- Jun 05 - [A court ruled embryos are children. These Christian couples agree yet wrestle with IVF choices](https://www.yahoo.com/news/court-ruled-embryos-children-christian-123201816.html)
+- Jun 05 - [46% of middle class workers are slashing — or cutting out — contributions to their retirement funds. Here's why](https://finance.yahoo.com/news/46-middle-class-workers-slashing-115100807.html)
+- Jun 05 - [People are exiting the stock market in droves](https://finance.yahoo.com/news/people-exiting-stock-market-droves-113729092.html)
 <!-- feed end -->
 
 ### Onstream
