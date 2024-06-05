@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Elon Musk Isn’t Making Vote on $50 Billion Pay Package Easy on Tesla Investors](https://www.barrons.com/articles/elon-musk-tesla-ai-pay-vote-6134f0f6?siteid=yhoof2&yptr=yahoo)
-- Jun 05 - [46% of middle class workers are slashing — or cutting out — contributions to their retirement funds. Here's why](https://finance.yahoo.com/news/46-middle-class-workers-slashing-115100807.html)
+- Jun 05 - [Black Pepper Recalled Nationwide Due to Possible Salmonella Contamination](https://www.yahoo.com/news/black-pepper-recalled-nationwide-due-143638580.html)
+- Jun 05 - [Collier County man faces charges after pointing firearm at bicyclist in road rage incident](https://www.yahoo.com/news/collier-county-man-faces-charges-142243195.html)
 - Jun 05 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-113000701.html)
+- Jun 05 - [Damaged East St. Louis bridge may be closed for months. Why is it taking so long to fix?](https://www.yahoo.com/news/damaged-east-st-louis-bridge-110000211.html)
 - Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
-- Jun 05 - [Top news app in US has Chinese origins and ‘writes fiction’ with the help of AI](https://www.yahoo.com/news/top-news-app-us-chinese-100328243.html)
 <!-- feed end -->
 
 ### Onstream
