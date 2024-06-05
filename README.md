@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Distasteful Kobe Bryant Costume Appears At Chinese Comic Con, Causing Massive Backlash](https://www.yahoo.com/entertainment/distasteful-kobe-bryant-costume-appears-200550779.html)
-- Jun 04 - [Three boys discovered teenage T. rex fossil in northern US: 'Incredible dinosaur discovery'](https://www.yahoo.com/news/three-boys-discovered-teenage-t-194318588.html)
-- Jun 04 - [Super Hornet Armed With SM-6 Missile Spotted Over California](https://www.yahoo.com/tech/super-hornet-armed-sm-6-180853983.html)
-- Jun 04 - [Former top US Army general in Europe calls Ukrainian complaints about the M1 Abrams tank 'BS'](https://www.yahoo.com/news/former-top-us-army-general-180544709.html)
-- Jun 04 - [Pro-Skier and Girlfriend Found in Each Other’s Arms After Deadly Mountain Fall](https://sports.yahoo.com/pro-skier-girlfriend-found-other-172350413.html)
+- Jun 04 - [Russia’s New TOS-3 ‘Dragon’ Thermobaric Rocket Launcher Breaks Cover](https://www.yahoo.com/news/russia-tos-3-dragon-thermobaric-221228825.html)
+- Jun 04 - [Man Mistakenly Drives Stranger's Car After Picking Up Pizza](https://www.yahoo.com/news/man-mistakenly-drives-strangers-car-220202483.html)
+- Jun 04 - [Ex-husband of 'Real Housewives' star convicted of hiring mobster to assault her boyfriend](https://www.yahoo.com/entertainment/ex-husband-real-housewives-star-215709171.html)
+- Jun 04 - [JPMorgan’s Jamie Dimon is bracing for stagflation, but the economy could be headed for a 1950s-style boom instead](https://finance.yahoo.com/news/jpmorgan-jamie-dimon-bracing-stagflation-203314361.html)
+- Jun 04 - [Insects, unwashed hands shut down Lexington restaurant. What else did inspectors find?](https://www.yahoo.com/news/lexington-taqueria-shut-down-scoring-195523590.html)
 <!-- feed end -->
 
 ### Onstream
