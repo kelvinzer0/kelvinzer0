@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Now that the fight with DeSantis appointees has ended, Disney set to invest $17B in Florida parks](https://www.yahoo.com/news/now-fight-desantis-appointees-ended-043913760.html)
+- Jun 05 - [In France, D-Day evokes both the joys of liberation and the pain of Normandy's 20,000 civilian dead](https://www.yahoo.com/news/france-d-day-evokes-both-041055662.html)
 - Jun 05 - [Trump takes a hit in New Jersey: 5 takeaways from Tuesday’s primaries](https://www.yahoo.com/news/trump-takes-hit-jersey-5-040555615.html)
+- Jun 05 - [Colorado officials reach $8.5 million settlement with woman who was left handcuffed in a police car that was hit by a train](https://www.yahoo.com/news/colorado-officials-reach-8-5-035642891.html)
+- Jun 05 - [SpaceX plans for Thursday morning launch of megarocket from Texas](https://www.yahoo.com/tech/spacex-plans-thursday-morning-launch-033602702.html)
 - Jun 05 - [‘Shark Tank’ star has idea to reduce national debt. He says he’ll vote for whoever makes it happen](https://finance.yahoo.com/video/shark-tank-star-idea-reduce-234109708.html)
-- Jun 05 - [2 million pounds of nuts lost in Northern California storage facility fire](https://www.yahoo.com/news/2-million-pounds-nuts-lost-000316733.html)
-- Jun 04 - [New study finds Earth warming at record rate, but no evidence of climate change accelerating](https://www.yahoo.com/news/study-finds-earth-warming-record-231817375.html)
 <!-- feed end -->
 
 ### Onstream
