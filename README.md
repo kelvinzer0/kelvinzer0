@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [‘After 39 wonderful years,’ Kansas City restaurateur will close his last location](https://www.yahoo.com/lifestyle/39-wonderful-years-kansas-city-172515173.html)
+- Jun 05 - [Man Shocked to Discover Rescue Cat Remembers Exactly Where He Was Picked Up as a Stray](https://www.yahoo.com/lifestyle/man-shocked-discover-rescue-cat-165424260.html)
+- Jun 05 - [Famous scenic waterfall in China goes viral after video appears to show water coming from pipe](https://www.yahoo.com/news/famous-scenic-waterfall-china-goes-160041872.html)
 - Jun 05 - [Man dies after falling from ‘Mission Impossible’ cliff in Norway](https://www.yahoo.com/news/man-dies-falling-mission-impossible-155303477.html)
-- Jun 05 - ['My heart stopped': Giraffe picks up toddler during a family trip to Texas wildlife center](https://www.yahoo.com/news/heart-stopped-giraffe-picks-toddler-144033576.html)
-- Jun 05 - [FBI reinstates security clearance for former employee who raised questions about Jan. 6 attack](https://www.yahoo.com/news/fbi-reinstates-security-clearance-former-142923395.html)
-- Jun 05 - [If You Invested Last Year's $2,812 Average Tax Refund In Nvidia Stock, Here's How Much It Would Be Worth Today](https://finance.yahoo.com/news/invested-last-years-2-812-130722370.html)
-- Jun 05 - [North Hardin High School staff and students grieving death of school's band director](https://www.yahoo.com/news/north-hardin-high-school-staff-124358348.html)
+- Jun 05 - [United CEO says ultra-low-cost airlines like Frontier are 'going out of business' thanks to poor customer service and a 'flawed' business model](https://www.yahoo.com/news/united-ceo-says-ultra-low-153413882.html)
 <!-- feed end -->
 
 ### Onstream
