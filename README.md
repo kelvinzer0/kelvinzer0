@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [‘The day has finally come’: Years in the making, evidence leads investigators to Rex Heuermann](https://www.yahoo.com/news/day-finally-come-years-making-124531216.html)
+- Jun 05 - [Russian warships headed to Caribbean for drills as tensions rise over Ukraine, US officials say](https://www.yahoo.com/news/russian-warships-headed-caribbean-drills-230025538.html)
 - Jun 05 - [Ship at full throttle in harbor causes major South Carolina bridge to close until it passes safely](https://www.yahoo.com/news/ship-full-throttle-harbor-causes-215150970.html)
-- Jun 05 - [White dad stops daughter from shaking Black superintendent’s hand - at school infamous for Nazi salute photo](https://www.yahoo.com/news/white-dad-stops-daughter-shaking-210553499.html)
-- Jun 05 - [Fact Check: Chick-fil-A Food Packaging Purportedly Says, 'Made With 100% Heterosexual Chicken.' Here's the Truth](https://www.yahoo.com/news/fact-check-chick-fil-food-203200406.html)
+- Jun 05 - [Judge rules unconstitutional Gov. J.B. Pritzker-backed election law that aided Democrats in November](https://www.yahoo.com/news/judge-rules-unconstitutional-gov-j-215100939.html)
+- Jun 05 - [Following Trump's guilty verdict, first swing state poll reveals how it impacts voters' decisions](https://www.yahoo.com/news/following-trumps-guilty-verdict-first-211234702.html)
 - Jun 05 - [Fact Check: Photo Purports To Show Giant Octopus Washed Up on Indonesian Coast. Here's What We Learned](https://www.yahoo.com/news/fact-check-photo-purports-show-203100304.html)
 <!-- feed end -->
 
