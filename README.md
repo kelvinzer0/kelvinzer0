@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 06 - [Trump Did A Weird Thing With His Mouth And You'll Never Un-See It](https://www.yahoo.com/entertainment/trump-did-weird-thing-mouth-080505551.html)
-- Jun 06 - [The boss of Russia's biggest bank said the country's economy is 'definitely and strongly overheated'](https://www.yahoo.com/news/boss-russias-biggest-bank-said-051127316.html)
-- Jun 05 - [Woman arrested after deadly hit-and-run in Las Vegas: police](https://www.yahoo.com/news/woman-arrested-deadly-hit-run-234218597.html)
 - Jun 05 - [Russian warships headed to Caribbean for drills as tensions rise over Ukraine, US officials say](https://www.yahoo.com/news/russian-warships-headed-caribbean-drills-230025538.html)
 - Jun 05 - [Putin says Russia could deploy missiles in striking distance of the West](https://www.yahoo.com/news/putin-says-west-wrong-assume-211322017.html)
+- Jun 05 - [Following Trump's guilty verdict, first swing state poll reveals how it impacts voters' decisions](https://www.yahoo.com/news/following-trumps-guilty-verdict-first-211234702.html)
+- Jun 05 - [Jared Kushner’s Latest Real Estate Deal Comes With Shocking Condition](https://www.yahoo.com/news/jared-kushner-latest-real-estate-194925867.html)
 <!-- feed end -->
 
 ### Onstream
