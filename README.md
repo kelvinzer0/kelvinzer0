@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Boeing's Starliner spacecraft encounters issues on its approach to space station](https://www.yahoo.com/news/boeings-starliner-spacecraft-encounters-issues-163207702.html)
-- Jun 06 - [Trump ally Bannon ordered to report to prison for defying Jan. 6 probe](https://www.yahoo.com/news/trump-ally-bannon-ordered-report-162312682.html)
-- Jun 06 - [Report: Eagles owner Jeffrey Lurie is exploring a sale of minority stake in the franchise](https://finance.yahoo.com/news/report-eagles-owner-jeffrey-lurie-161040407.html)
-- Jun 06 - [Air LORA, Israel's Biggest Air-Launched Ballistic Missile, Emerges From The Shadows](https://www.yahoo.com/news/air-lora-israels-biggest-air-152936362.html)
+- Jun 06 - [Boeing's Starliner Is Having Trouble Docking With ISS](https://www.yahoo.com/news/boeings-starliner-having-trouble-docking-170103659.html)
+- Jun 06 - [Rivian overhauled the R1S and R1T to entice new buyers ahead of cheaper R2 launch](https://www.yahoo.com/news/rivian-overhauled-r1s-r1t-entice-160015197.html)
 - Jun 06 - [Tom Hanks on potential Trump return: ‘Journey to a more perfect union has missteps’](https://www.yahoo.com/entertainment/tom-hanks-potential-trump-return-151613541.html)
+- Jun 06 - [A Chilling Discovery Suggests This King Built Funerary Huts With Blood From 41 Sacrifice Victims](https://www.yahoo.com/news/chilling-discovery-suggests-king-built-150900495.html)
+- Jun 06 - [Time running out to turn in $2.9 million lottery ticket bought in Los Angeles](https://www.yahoo.com/news/time-running-turn-2-9-144521084.html)
 <!-- feed end -->
 
 ### Onstream
