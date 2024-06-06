@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [YouTuber charged for stunt where fireworks were shot at his Lamborghini from flying helicopter](https://www.yahoo.com/news/youtuber-charged-stunt-where-fireworks-170704951.html)
-- Jun 06 - [Rivian overhauled the R1S and R1T to entice new buyers ahead of cheaper R2 launch](https://www.yahoo.com/news/rivian-overhauled-r1s-r1t-entice-160015197.html)
-- Jun 06 - [Tom Hanks on potential Trump return: ‘Journey to a more perfect union has missteps’](https://www.yahoo.com/entertainment/tom-hanks-potential-trump-return-151613541.html)
-- Jun 06 - [A Chilling Discovery Suggests This King Built Funerary Huts With Blood From 41 Sacrifice Victims](https://www.yahoo.com/news/chilling-discovery-suggests-king-built-150900495.html)
-- Jun 06 - [Starship lands in the ocean with its engines firing for the first time, bringing Elon Musk one step closer to Mars](https://www.yahoo.com/news/starship-lands-ocean-engines-firing-140728148.html)
+- Jun 06 - [GameStop stock soars 47% as 'Roaring Kitty' announces livestream](https://finance.yahoo.com/news/gamestop-stock-soars-47-as-roaring-kitty-announces-livestream-184950197.html)
+- Jun 06 - [Steve Bannon’s Lawyer Goes Ballistic Over Prison Sentence](https://www.yahoo.com/news/steve-bannon-lawyer-goes-ballistic-180820876.html)
+- Jun 06 - [Mississippi River observation deck to open in 2026](https://www.yahoo.com/lifestyle/mississippi-river-observation-deck-open-175338787.html)
+- Jun 06 - [Boeing's Starliner Is Having Trouble Docking With ISS](https://www.yahoo.com/news/boeings-starliner-having-trouble-docking-170103659.html)
+- Jun 06 - [Israeli troops uncover Hamas tunnel entrance inside child's room in Rafah](https://www.yahoo.com/news/israeli-troops-uncover-hamas-tunnel-162218412.html)
 <!-- feed end -->
 
 ### Onstream
