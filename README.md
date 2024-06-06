@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [‘I’m divorcing after a lot of heartache’: Should I suggest my husband keep his $200,000 401(k), so I can take our $360,000 house?](https://finance.yahoo.com/news/m-divorcing-lot-heartache-suggest-215800092.html)
+- Jun 06 - [Boeing's Starliner spacecraft encounters issues on its approach to space station](https://www.yahoo.com/news/boeings-starliner-spacecraft-encounters-issues-163207702.html)
+- Jun 06 - [Trump ally Bannon ordered to report to prison for defying Jan. 6 probe](https://www.yahoo.com/news/trump-ally-bannon-ordered-report-162312682.html)
+- Jun 06 - [Report: Eagles owner Jeffrey Lurie is exploring a sale of minority stake in the franchise](https://finance.yahoo.com/news/report-eagles-owner-jeffrey-lurie-161040407.html)
+- Jun 06 - [Air LORA, Israel's Biggest Air-Launched Ballistic Missile, Emerges From The Shadows](https://www.yahoo.com/news/air-lora-israels-biggest-air-152936362.html)
 - Jun 06 - [Tom Hanks on potential Trump return: ‘Journey to a more perfect union has missteps’](https://www.yahoo.com/entertainment/tom-hanks-potential-trump-return-151613541.html)
-- Jun 06 - [Starship lands in the ocean with its engines firing for the first time, bringing Elon Musk one step closer to Mars](https://www.yahoo.com/news/starship-lands-ocean-engines-firing-140728148.html)
-- Jun 06 - [The 4 most dangerous missions American troops carried out 80 years ago on D-Day](https://www.yahoo.com/news/4-most-dangerous-missions-american-133008749.html)
-- Jun 06 - [SpaceX's mega rocket completes its fourth test flight from Texas without exploding](https://www.yahoo.com/tech/spacexs-mega-rocket-makes-fourth-125111876.html)
 <!-- feed end -->
 
 ### Onstream
