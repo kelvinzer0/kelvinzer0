@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Video shows a Ukrainian drone finding an easy way around a Russian tank's 'turtle' defenses](https://www.yahoo.com/news/video-shows-ukrainian-drone-finding-121402440.html)
-- Jun 06 - [After Singapore summit, a question of US priorities in Asia’s ‘hot zone’](https://www.yahoo.com/news/singapore-summit-us-priorities-asia-110000342.html)
-- Jun 06 - [Northern Lights forecast June 6: Will the aurora borealis be visible tonight?](https://www.yahoo.com/news/northern-lights-forecast-june-6-100916923.html)
-- Jun 06 - [US Payroll Gains Not as Robust as Reported, BLS Data Suggest](https://finance.yahoo.com/news/us-payroll-gains-not-robust-100001082.html)
-- Jun 06 - [I ran the office prosecuting Hunter Biden. I can't fathom why this trial is happening.](https://www.yahoo.com/news/ran-office-prosecuting-hunter-biden-091226399.html)
+- Jun 06 - [Israeli strike kills at least 33 at UN school in Gaza the military claims was being used by Hamas](https://www.yahoo.com/news/israeli-strike-kills-least-33-125640322.html)
+- Jun 06 - [SpaceX's mega rocket completes its fourth test flight from Texas without exploding](https://www.yahoo.com/tech/spacexs-mega-rocket-makes-fourth-125111876.html)
+- Jun 06 - [Southern Baptists are poised to ban churches with women pastors. Some are urging them to reconsider](https://www.yahoo.com/news/southern-baptists-poised-ban-churches-123238863.html)
+- Jun 06 - [Russia to build high-speed railway between Moscow and St. Petersburg](https://www.yahoo.com/news/russia-build-high-speed-railway-104043274.html)
+- Jun 06 - [Boeing Starliner capsule nears first crewed ISS docking as new issues arise](https://www.yahoo.com/news/boeings-starliner-capsule-set-docking-100443738.html)
 <!-- feed end -->
 
 ### Onstream
