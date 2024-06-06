@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [GameStop stock soars 47% as 'Roaring Kitty' announces livestream](https://finance.yahoo.com/news/gamestop-stock-soars-47-as-roaring-kitty-announces-livestream-184950197.html)
-- Jun 06 - [Steve Bannon’s Lawyer Goes Ballistic Over Prison Sentence](https://www.yahoo.com/news/steve-bannon-lawyer-goes-ballistic-180820876.html)
-- Jun 06 - [Mississippi River observation deck to open in 2026](https://www.yahoo.com/lifestyle/mississippi-river-observation-deck-open-175338787.html)
-- Jun 06 - [Boeing's Starliner Is Having Trouble Docking With ISS](https://www.yahoo.com/news/boeings-starliner-having-trouble-docking-170103659.html)
-- Jun 06 - [Israeli troops uncover Hamas tunnel entrance inside child's room in Rafah](https://www.yahoo.com/news/israeli-troops-uncover-hamas-tunnel-162218412.html)
+- Jun 06 - [Is a tiger loose in Cincinnati? They've been captured in other cities](https://www.yahoo.com/news/tiger-loose-cincinnati-theyve-captured-201235457.html)
+- Jun 06 - [GameStop stock soars 47% as 'Roaring Kitty' announces livestream, reveals $382 million unrealized gain](https://finance.yahoo.com/news/gamestop-stock-soars-47-as-roaring-kitty-announces-livestream-reveals-382-million-unrealized-gain-200804291.html)
+- Jun 06 - [France to provide Mirage 2000 warplanes to Ukraine, Macron says](https://www.yahoo.com/news/france-mirage-2000-warplanes-ukraine-193732684.html)
+- Jun 06 - [How Missouri got the nickname ‘Show Me State’](https://www.yahoo.com/lifestyle/missouri-got-nickname-show-state-193246764.html)
+- Jun 06 - [Green Bay PD identify woman who was found dead on Kepler Drive by a passerby](https://www.yahoo.com/news/green-bay-pd-identify-woman-193006443.html)
 <!-- feed end -->
 
 ### Onstream
