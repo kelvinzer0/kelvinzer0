@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Trump’s potential VP picks narrow to four men - here are the frontrunnerss](https://www.yahoo.com/news/trump-potential-vp-picks-narrow-001030572.html)
 - Jun 05 - [Woman arrested after deadly hit-and-run in Las Vegas: police](https://www.yahoo.com/news/woman-arrested-deadly-hit-run-234218597.html)
+- Jun 05 - [Southwest passenger: ‘Crying and screaming’ as plane makes emergency landing at DIA](https://www.yahoo.com/news/southwest-airlines-passenger-lot-tears-224743824.html)
 - Jun 05 - [Ship at full throttle in harbor causes major South Carolina bridge to close until it passes safely](https://www.yahoo.com/news/ship-full-throttle-harbor-causes-215150970.html)
 - Jun 05 - [Judge rules unconstitutional Gov. J.B. Pritzker-backed election law that aided Democrats in November](https://www.yahoo.com/news/judge-rules-unconstitutional-gov-j-215100939.html)
-- Jun 05 - [Fact Check: Photo Purports To Show Giant Octopus Washed Up on Indonesian Coast. Here's What We Learned](https://www.yahoo.com/news/fact-check-photo-purports-show-203100304.html)
-- Jun 05 - [Jared Kushner’s Latest Real Estate Deal Comes With Shocking Condition](https://www.yahoo.com/news/jared-kushner-latest-real-estate-194925867.html)
 <!-- feed end -->
 
 ### Onstream
