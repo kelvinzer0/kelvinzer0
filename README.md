@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Starship survives reentry to splash down in the Indian Ocean after successful fourth flight test](https://www.yahoo.com/news/starship-survives-reentry-to-splash-down-in-the-indian-ocean-after-successful-fourth-flight-test-142912013.html)
+- Jun 06 - [‘I’m divorcing after a lot of heartache’: Should I suggest my husband keep his $200,000 401(k), so I can take our $360,000 house?](https://finance.yahoo.com/news/m-divorcing-lot-heartache-suggest-215800092.html)
+- Jun 06 - [Tom Hanks on potential Trump return: ‘Journey to a more perfect union has missteps’](https://www.yahoo.com/entertainment/tom-hanks-potential-trump-return-151613541.html)
 - Jun 06 - [Starship lands in the ocean with its engines firing for the first time, bringing Elon Musk one step closer to Mars](https://www.yahoo.com/news/starship-lands-ocean-engines-firing-140728148.html)
-- Jun 06 - [Southern Baptists are poised to ban churches with women pastors. Some are urging them to reconsider](https://www.yahoo.com/news/southern-baptists-poised-ban-churches-123238863.html)
-- Jun 06 - [Video shows a Ukrainian drone finding an easy way around a Russian tank's 'turtle' defenses](https://www.yahoo.com/news/video-shows-ukrainian-drone-finding-121402440.html)
-- Jun 06 - [Russia to build high-speed railway between Moscow and St. Petersburg](https://www.yahoo.com/news/russia-build-high-speed-railway-104043274.html)
+- Jun 06 - [The 4 most dangerous missions American troops carried out 80 years ago on D-Day](https://www.yahoo.com/news/4-most-dangerous-missions-american-133008749.html)
+- Jun 06 - [SpaceX's mega rocket completes its fourth test flight from Texas without exploding](https://www.yahoo.com/tech/spacexs-mega-rocket-makes-fourth-125111876.html)
 <!-- feed end -->
 
 ### Onstream
