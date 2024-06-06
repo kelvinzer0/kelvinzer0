@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Live Kansas City traffic updates: Accidents, road closures, delays on KC-area highways](https://www.yahoo.com/news/live-kansas-city-traffic-updates-053801379.html)
 - Jun 06 - [Trump’s potential VP picks narrow to four men - here are the frontrunnerss](https://www.yahoo.com/news/trump-potential-vp-picks-narrow-001030572.html)
-- Jun 05 - [Woman arrested after deadly hit-and-run in Las Vegas: police](https://www.yahoo.com/news/woman-arrested-deadly-hit-run-234218597.html)
-- Jun 05 - [Southwest passenger: ‘Crying and screaming’ as plane makes emergency landing at DIA](https://www.yahoo.com/news/southwest-airlines-passenger-lot-tears-224743824.html)
+- Jun 05 - [As Palm Springs airport grows, some residents worry it will lose its charm](https://www.yahoo.com/news/palm-springs-airport-grows-residents-235917573.html)
 - Jun 05 - [Ship at full throttle in harbor causes major South Carolina bridge to close until it passes safely](https://www.yahoo.com/news/ship-full-throttle-harbor-causes-215150970.html)
 - Jun 05 - [Judge rules unconstitutional Gov. J.B. Pritzker-backed election law that aided Democrats in November](https://www.yahoo.com/news/judge-rules-unconstitutional-gov-j-215100939.html)
 <!-- feed end -->
