@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Trump’s potential VP picks narrow to four men - here are the frontrunners](https://www.yahoo.com/news/trump-potential-vp-picks-narrow-001030572.html)
+- Jun 05 - [Las Vegas bus passengers duck for cover as bullets fly: ‘I wake up shaking at night’](https://www.yahoo.com/news/las-vegas-bus-passengers-duck-235126624.html)
 - Jun 05 - [Russian warships headed to Caribbean for drills as tensions rise over Ukraine, US officials say](https://www.yahoo.com/news/russian-warships-headed-caribbean-drills-230025538.html)
-- Jun 05 - [Ship at full throttle in harbor causes major South Carolina bridge to close until it passes safely](https://www.yahoo.com/news/ship-full-throttle-harbor-causes-215150970.html)
-- Jun 05 - [Judge rules unconstitutional Gov. J.B. Pritzker-backed election law that aided Democrats in November](https://www.yahoo.com/news/judge-rules-unconstitutional-gov-j-215100939.html)
+- Jun 05 - [Putin says Russia could deploy missiles in striking distance of the West](https://www.yahoo.com/news/putin-says-west-wrong-assume-211322017.html)
 - Jun 05 - [Following Trump's guilty verdict, first swing state poll reveals how it impacts voters' decisions](https://www.yahoo.com/news/following-trumps-guilty-verdict-first-211234702.html)
-- Jun 05 - [Fact Check: Photo Purports To Show Giant Octopus Washed Up on Indonesian Coast. Here's What We Learned](https://www.yahoo.com/news/fact-check-photo-purports-show-203100304.html)
 <!-- feed end -->
 
 ### Onstream
