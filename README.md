@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [A murderous romance or a frame job? Things to know about Boston's Karen Read murder trial](https://www.yahoo.com/news/murderous-romance-frame-job-things-213046482.html)
+- Jun 06 - [Conservative Latino Family Regretful After Moving To Red State Idaho To Escape California 'Politics'](https://www.yahoo.com/news/conservative-latino-family-regretful-moving-220056774.html)
+- Jun 06 - [Judge dismisses attempted murder and other charges in state case against Paul Pelosi's attacker](https://www.yahoo.com/news/judge-dismisses-attempted-murder-other-213248873.html)
 - Jun 06 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
-- Jun 06 - [Homebuyers are in a bittersweet market as mortgage rates drop below 7% but prices remain high](https://finance.yahoo.com/news/homebuyers-are-in-a-bittersweet-market-as-mortgage-rates-drop-below-7-but-prices-remain-high-201027956.html)
+- Jun 06 - [Short bets against Nvidia stand at $34 billion, S3 Partners says](https://finance.yahoo.com/news/short-bets-against-nvidia-stand-202747041.html)
 - Jun 06 - [GameStop stock soars 47% as 'Roaring Kitty' announces livestream, reveals $382 million unrealized gain](https://finance.yahoo.com/news/gamestop-stock-soars-47-as-roaring-kitty-announces-livestream-reveals-382-million-unrealized-gain-200804291.html)
-- Jun 06 - [Jan. 6 rioter Andrew Taake sentenced to prison after being caught in dating app sting](https://www.yahoo.com/news/jan-6-rioter-andrew-taake-200419142.html)
 <!-- feed end -->
 
 ### Onstream
