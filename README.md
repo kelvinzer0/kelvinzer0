@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Live Kansas City traffic updates: Accidents, road closures, delays on KC-area highways](https://www.yahoo.com/news/live-kansas-city-traffic-updates-053801379.html)
 - Jun 06 - [Trump’s potential VP picks narrow to four men - here are the frontrunnerss](https://www.yahoo.com/news/trump-potential-vp-picks-narrow-001030572.html)
-- Jun 05 - [As Palm Springs airport grows, some residents worry it will lose its charm](https://www.yahoo.com/news/palm-springs-airport-grows-residents-235917573.html)
-- Jun 05 - [Ship at full throttle in harbor causes major South Carolina bridge to close until it passes safely](https://www.yahoo.com/news/ship-full-throttle-harbor-causes-215150970.html)
-- Jun 05 - [Judge rules unconstitutional Gov. J.B. Pritzker-backed election law that aided Democrats in November](https://www.yahoo.com/news/judge-rules-unconstitutional-gov-j-215100939.html)
+- Jun 05 - [Putin says Russia could deploy missiles in striking distance of the West](https://www.yahoo.com/news/putin-says-west-wrong-assume-211322017.html)
+- Jun 05 - [Following Trump's guilty verdict, first swing state poll reveals how it impacts voters' decisions](https://www.yahoo.com/news/following-trumps-guilty-verdict-first-211234702.html)
+- Jun 05 - [Fact Check: Photo Purports To Show Giant Octopus Washed Up on Indonesian Coast. Here's What We Learned](https://www.yahoo.com/news/fact-check-photo-purports-show-203100304.html)
+- Jun 05 - [Jared Kushner’s Latest Real Estate Deal Comes With Shocking Condition](https://www.yahoo.com/news/jared-kushner-latest-real-estate-194925867.html)
 <!-- feed end -->
 
 ### Onstream
