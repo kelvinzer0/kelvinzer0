@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [ECB cuts interest rates for first time in five years to 3.75%](https://uk.finance.yahoo.com/news/ecb-cuts-interest-rates-eurozone-115734294.html)
+- Jun 06 - [Video shows a Ukrainian drone finding an easy way around a Russian tank's 'turtle' defenses](https://www.yahoo.com/news/video-shows-ukrainian-drone-finding-121402440.html)
+- Jun 06 - [After Singapore summit, a question of US priorities in Asia’s ‘hot zone’](https://www.yahoo.com/news/singapore-summit-us-priorities-asia-110000342.html)
 - Jun 06 - [Northern Lights forecast June 6: Will the aurora borealis be visible tonight?](https://www.yahoo.com/news/northern-lights-forecast-june-6-100916923.html)
-- Jun 06 - [How the ‘Corridor of Death’ Saved the D-Day Invasion](https://www.yahoo.com/news/corridor-death-saved-d-day-085930236.html)
-- Jun 06 - [Nvidia Executes Its 10-for-1 Stock Split Tomorrow. History Says the Artificial Intelligence (AI) Stock Will Do This Next (Hint: It May Shock You).](https://finance.yahoo.com/news/nvidia-executes-10-1-stock-081200165.html)
-- Jun 06 - [Trump Did A Weird Thing With His Mouth And You'll Never Un-See It](https://www.yahoo.com/entertainment/trump-did-weird-thing-mouth-080505551.html)
+- Jun 06 - [US Payroll Gains Not as Robust as Reported, BLS Data Suggest](https://finance.yahoo.com/news/us-payroll-gains-not-robust-100001082.html)
+- Jun 06 - [I ran the office prosecuting Hunter Biden. I can't fathom why this trial is happening.](https://www.yahoo.com/news/ran-office-prosecuting-hunter-biden-091226399.html)
 <!-- feed end -->
 
 ### Onstream
