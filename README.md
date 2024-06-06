@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Remembering a beloved uncle 80 years after he fought the Nazis at Omaha Beach](https://www.yahoo.com/news/remembering-beloved-uncle-80-years-100900631.html)
+- Jun 06 - [How the tiny Wisconsin community where Flag Day was born turned it into a celebration](https://www.yahoo.com/lifestyle/tiny-wisconsin-community-where-flag-100243125.html)
+- Jun 06 - [Nvidia Executes Its 10-for-1 Stock Split Tomorrow. History Says the Artificial Intelligence (AI) Stock Will Do This Next (Hint: It May Shock You).](https://finance.yahoo.com/news/nvidia-executes-10-1-stock-081200165.html)
 - Jun 06 - [Trump Did A Weird Thing With His Mouth And You'll Never Un-See It](https://www.yahoo.com/entertainment/trump-did-weird-thing-mouth-080505551.html)
-- Jun 05 - [Russian warships headed to Caribbean for drills as tensions rise over Ukraine, US officials say](https://www.yahoo.com/news/russian-warships-headed-caribbean-drills-230025538.html)
-- Jun 05 - [Putin says Russia could deploy missiles in striking distance of the West](https://www.yahoo.com/news/putin-says-west-wrong-assume-211322017.html)
-- Jun 05 - [Following Trump's guilty verdict, first swing state poll reveals how it impacts voters' decisions](https://www.yahoo.com/news/following-trumps-guilty-verdict-first-211234702.html)
-- Jun 05 - [Jared Kushner’s Latest Real Estate Deal Comes With Shocking Condition](https://www.yahoo.com/news/jared-kushner-latest-real-estate-194925867.html)
+- Jun 06 - [Tornado hits Michigan without warning, killing toddler, while twister in Maryland injures 5](https://www.yahoo.com/news/tornado-hits-michigan-without-warning-052159009.html)
 <!-- feed end -->
 
 ### Onstream
