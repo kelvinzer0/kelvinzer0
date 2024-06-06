@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Is a tiger loose in Cincinnati? They've been captured in other cities](https://www.yahoo.com/news/tiger-loose-cincinnati-theyve-captured-201235457.html)
+- Jun 06 - [A murderous romance or a frame job? Things to know about Boston's Karen Read murder trial](https://www.yahoo.com/news/murderous-romance-frame-job-things-213046482.html)
+- Jun 06 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- Jun 06 - [Homebuyers are in a bittersweet market as mortgage rates drop below 7% but prices remain high](https://finance.yahoo.com/news/homebuyers-are-in-a-bittersweet-market-as-mortgage-rates-drop-below-7-but-prices-remain-high-201027956.html)
 - Jun 06 - [GameStop stock soars 47% as 'Roaring Kitty' announces livestream, reveals $382 million unrealized gain](https://finance.yahoo.com/news/gamestop-stock-soars-47-as-roaring-kitty-announces-livestream-reveals-382-million-unrealized-gain-200804291.html)
-- Jun 06 - [France to provide Mirage 2000 warplanes to Ukraine, Macron says](https://www.yahoo.com/news/france-mirage-2000-warplanes-ukraine-193732684.html)
-- Jun 06 - [How Missouri got the nickname ‘Show Me State’](https://www.yahoo.com/lifestyle/missouri-got-nickname-show-state-193246764.html)
-- Jun 06 - [Green Bay PD identify woman who was found dead on Kepler Drive by a passerby](https://www.yahoo.com/news/green-bay-pd-identify-woman-193006443.html)
+- Jun 06 - [Jan. 6 rioter Andrew Taake sentenced to prison after being caught in dating app sting](https://www.yahoo.com/news/jan-6-rioter-andrew-taake-200419142.html)
 <!-- feed end -->
 
 ### Onstream
