@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Authorities identify driver whose SUV careened over Boston intersection onto I-93 ramp](https://www.yahoo.com/news/authorities-identify-driver-whose-suv-233727188.html)
-- Jun 07 - [Firefighters continue extinguishing the Blue 2 Fire near Ruidoso](https://www.yahoo.com/news/firefighters-continue-extinguishing-blue-2-113056423.html)
-- Jun 07 - [Alexander Zverev settles abuse case with former girlfriend hours before French Open semi-final](https://sports.yahoo.com/alexander-zverev-settles-abuse-case-103608463.html)
-- Jun 07 - [Opinion: Helping Ukraine to strike inside Russia is already paying off](https://www.yahoo.com/news/opinion-helping-ukraine-strike-inside-100044178.html)
-- Jun 07 - [Nvidia Stock Shocks the World Ahead of Its 10-for-1 Stock Split. Here's What's Next for Investors.](https://finance.yahoo.com/news/nvidia-stock-shocks-world-ahead-091500419.html)
+- Jun 07 - [Rochester WWII veteran Robert Persichitti dies at 102 on way to D-Day ceremony in France](https://www.yahoo.com/news/rochester-wwii-veteran-robert-persichitti-122419317.html)
+- Jun 07 - [Do we really need $1M in retirement savings? Not even close, one top economist says](https://finance.yahoo.com/news/really-1m-retirement-savings-not-091427748.html)
+- Jun 07 - [Chinese armed vessels patrol waters around disputed islands, angering Japan](https://www.yahoo.com/news/chinese-armed-vessels-patrol-waters-085121389.html)
+- Jun 07 - [RoaringKitty a GameStop Billionaire by Friday? Crypto Traders Are Placing 50% Odds](https://finance.yahoo.com/news/roaringkitty-gamestop-billionaire-friday-crypto-082124785.html)
+- Jun 07 - [A South Korean weapons company once seen as a dinosaur is now churning out howitzers twice as fast as its Western competitors](https://www.yahoo.com/news/south-korean-weapons-company-once-072157477.html)
 <!-- feed end -->
 
 ### Onstream
