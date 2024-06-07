@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Alex Jones agrees to liquidate his assets to pay Sandy Hook families, in move that would end his ownership of Infowars](https://finance.yahoo.com/news/alex-jones-agrees-liquidate-assets-014619981.html)
+- Jun 06 - [Conservative Latino Family Regretful After Moving To Red State Idaho To Escape California 'Politics'](https://www.yahoo.com/news/conservative-latino-family-regretful-moving-220056774.html)
 - Jun 06 - [Judge dismisses attempted murder and other charges in state case against Paul Pelosi's attacker](https://www.yahoo.com/news/judge-dismisses-attempted-murder-other-213248873.html)
-- Jun 06 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 - Jun 06 - [Short bets against Nvidia stand at $34 billion, S3 Partners says](https://finance.yahoo.com/news/short-bets-against-nvidia-stand-202747041.html)
-- Jun 06 - [Homebuyers are in a bittersweet market as mortgage rates drop below 7% but prices remain high](https://finance.yahoo.com/news/homebuyers-are-in-a-bittersweet-market-as-mortgage-rates-drop-below-7-but-prices-remain-high-201027956.html)
 - Jun 06 - [Stop Doing These Biceps Exercises. Do These Moves Instead.](https://www.yahoo.com/lifestyle/stop-doing-biceps-exercises-moves-200200361.html)
 <!-- feed end -->
 
