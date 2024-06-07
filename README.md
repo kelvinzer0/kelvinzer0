@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Tesla shareholders to vote on $56B Musk pay package](https://finance.yahoo.com/video/tesla-shareholders-vote-56b-musk-204815265.html)
-- Jun 07 - [9 members of Congress parachute jump over Normandy for D-Day anniversary](https://www.yahoo.com/news/8-members-congress-parachute-jump-204731661.html)
-- Jun 07 - [Tesla Chair Warns Elon Musk Might Quit Tesla If He Doesn't Get His Pay Package. Fans Say Fine, We're Fed Up With Him](https://finance.yahoo.com/news/tesla-chair-warns-elon-musk-175654108.html)
-- Jun 07 - [The Best Small Town to Retire Where $100K in Savings Will Last You the Longest](https://finance.yahoo.com/news/best-small-town-retire-where-173715518.html)
+- Jun 07 - [Expect delays on I-84 in Caldwell for at least the next year as road construction begins](https://www.yahoo.com/news/expect-delays-84-caldwell-least-214508321.html)
+- Jun 07 - [Nvidia Is Splitting Its Stock. Don’t Count on the Rally to End.](https://www.barrons.com/articles/nvidia-stock-split-price-today-e2225f52?siteid=yhoof2&yptr=yahoo)
+- Jun 07 - [Denmark's Prime Minister Frederiksen assaulted in central Copenhagen, man arrested](https://www.yahoo.com/news/danish-pm-attacked-central-copenhagen-194324477.html)
+- Jun 07 - [This Johnson County restaurant and sports lounge just closed. Here’s what’s coming in](https://www.yahoo.com/entertainment/johnson-county-restaurant-sports-lounge-192821476.html)
 - Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
 <!-- feed end -->
 
