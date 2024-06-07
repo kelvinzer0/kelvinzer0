@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Fires in Brazil wetlands surge as drought looms](https://www.yahoo.com/news/fires-brazil-wetlands-surge-drought-073514740.html)
+- Jun 07 - [Chinese armed vessels patrol waters around disputed islands, angering Japan](https://www.yahoo.com/news/chinese-armed-vessels-patrol-waters-085121389.html)
+- Jun 07 - [India election results 2024 live: Modi accused of stock market manipulation as BJP sets date for his inauguration](https://www.yahoo.com/news/india-election-2024-live-exit-075724838.html)
+- Jun 07 - [Photo shows Israel weapons test, not 'Philippines launching missile'](https://www.yahoo.com/news/photo-shows-israel-weapons-test-082827038.html)
+- Jun 07 - [Nvidia Is About to Split Its Stock. Don’t Count on the Rally to End.](https://www.barrons.com/articles/nvidia-stock-split-price-today-e2225f52?siteid=yhoof2&yptr=yahoo)
 - Jun 07 - [CNN host, Dr. Phil disagree over Trump trial: ‘I don’t understand how you can say that’](https://www.yahoo.com/news/cnn-host-dr-phil-disagree-030422972.html)
-- Jun 07 - [Alex Jones agrees to liquidate his assets to pay Sandy Hook families, in move that would end his ownership of Infowars](https://finance.yahoo.com/news/alex-jones-agrees-liquidate-assets-014619981.html)
-- Jun 07 - [Russell Brand: If it's a choice between Trump or Biden, only one candidate will protect democracy and freedom](https://www.yahoo.com/news/russell-brand-choice-between-trump-010010344.html)
-- Jun 06 - [Suspect in deadly Giant Eagle stabbing was released from jail 3 days earlier](https://www.yahoo.com/news/suspect-deadly-giant-eagle-stabbing-225901811.html)
 <!-- feed end -->
 
 ### Onstream
