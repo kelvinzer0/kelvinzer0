@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [India election results 2024 live: Modi accused of stock market manipulation over exit polls](https://www.yahoo.com/news/india-election-2024-live-exit-075724838.html)
 - Jun 07 - [Alex Jones agrees to liquidate his assets to pay Sandy Hook families, in move that would end his ownership of Infowars](https://finance.yahoo.com/news/alex-jones-agrees-liquidate-assets-014619981.html)
+- Jun 07 - [Seeking revenge, Xavien Howard texted boy sexual photos of his mother: court records](https://www.yahoo.com/entertainment/seeking-revenge-xavien-howard-texted-010220896.html)
 - Jun 07 - [Russell Brand: If it's a choice between Trump or Biden, only one candidate will protect democracy and freedom](https://www.yahoo.com/news/russell-brand-choice-between-trump-010010344.html)
 - Jun 06 - [Stocks are about to hit a 'wall of money' that will drive the market to record highs in July, Goldman Sachs says](https://finance.yahoo.com/news/stocks-hit-wall-money-drive-221910509.html)
-- Jun 06 - [Livonia neighbors mourn 3-year-old's death after tornado](https://www.yahoo.com/news/livonia-neighbors-mourn-3-olds-221207399.html)
-- Jun 06 - [Judge dismisses attempted murder and other charges in state case against Paul Pelosi's attacker](https://www.yahoo.com/news/judge-dismisses-attempted-murder-other-213248873.html)
 <!-- feed end -->
 
 ### Onstream
