@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Tesla objects to $5.6 billion payout for lawyers who voided Musk's pay](https://finance.yahoo.com/news/tesla-objects-5-6-billion-160418435.html)
-- Jun 07 - [Black D-Day combat medic's long-denied medal tenderly laid on Omaha Beach where he bled, saved lives](https://www.yahoo.com/news/black-d-day-combat-medics-153508413.html)
-- Jun 07 - [Now That It's Tourist Season, Here Are Some Of The Most Infuriating, Entitled, And Unhinged Tourists That Should Have Their Passports Revoked](https://www.yahoo.com/lifestyle/now-tourist-season-most-infuriating-151602397.html)
-- Jun 07 - [Wisconsin dad tells cops why he pushed superintendent off stage so he couldn’t shake daughter’s hand](https://www.yahoo.com/news/wisconsin-dad-tells-cops-why-143654491.html)
-- Jun 07 - [Prepare to get wet, KC. Here’s when storms, straight-line winds expected to move in](https://www.yahoo.com/news/prepare-wet-kansas-city-thunderstorms-131733426.html)
+- Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
+- Jun 07 - [Ultra-Rich With $150 Billion Mark New Private-Equity Era](https://finance.yahoo.com/video/ultra-rich-150-billion-mark-173429928.html)
+- Jun 07 - [People Are Sharing Their Most "Boomer Complaints," And I Agree With All 32 Of These](https://www.yahoo.com/lifestyle/people-sharing-most-boomer-complaints-171932092.html)
+- Jun 07 - [Camry Flees Arkansas Trooper And Crashes At A Chick-Fil-A](https://autos.yahoo.com/camry-flees-arkansas-trooper-crashes-170000572.html)
+- Jun 07 - [U.S. Marshals arrest Oklahoma man on rape charge](https://www.yahoo.com/news/u-marshals-arrest-oklahoma-man-163238742.html)
 <!-- feed end -->
 
 ### Onstream
