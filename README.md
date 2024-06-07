@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Swedish defense chief says actions against Philippines in South China Sea threaten global security](https://www.yahoo.com/news/swedish-defense-chief-says-actions-064106706.html)
-- Jun 07 - [India election results 2024 live: Modi accused of stock market manipulation over exit polls](https://www.yahoo.com/news/india-election-2024-live-exit-075724838.html)
+- Jun 07 - [Fires in Brazil wetlands surge as drought looms](https://www.yahoo.com/news/fires-brazil-wetlands-surge-drought-073514740.html)
 - Jun 07 - [CNN host, Dr. Phil disagree over Trump trial: ‘I don’t understand how you can say that’](https://www.yahoo.com/news/cnn-host-dr-phil-disagree-030422972.html)
-- Jun 07 - [L.A. Asian American Groups Call for Shane Gillis to Apologize for ‘Offensive Racial Remarks’ — or Netflix Should Cut Ties](https://www.yahoo.com/entertainment/l-asian-american-groups-call-021942764.html)
 - Jun 07 - [Alex Jones agrees to liquidate his assets to pay Sandy Hook families, in move that would end his ownership of Infowars](https://finance.yahoo.com/news/alex-jones-agrees-liquidate-assets-014619981.html)
+- Jun 07 - [Russell Brand: If it's a choice between Trump or Biden, only one candidate will protect democracy and freedom](https://www.yahoo.com/news/russell-brand-choice-between-trump-010010344.html)
+- Jun 06 - [Suspect in deadly Giant Eagle stabbing was released from jail 3 days earlier](https://www.yahoo.com/news/suspect-deadly-giant-eagle-stabbing-225901811.html)
 <!-- feed end -->
 
 ### Onstream
