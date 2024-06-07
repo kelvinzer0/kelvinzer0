@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Expect delays on I-84 in Caldwell for at least the next year as road construction begins](https://www.yahoo.com/news/expect-delays-84-caldwell-least-214508321.html)
-- Jun 07 - [Nvidia Is Splitting Its Stock. Don’t Count on the Rally to End.](https://www.barrons.com/articles/nvidia-stock-split-price-today-e2225f52?siteid=yhoof2&yptr=yahoo)
 - Jun 07 - [Denmark's Prime Minister Frederiksen assaulted in central Copenhagen, man arrested](https://www.yahoo.com/news/danish-pm-attacked-central-copenhagen-194324477.html)
-- Jun 07 - [This Johnson County restaurant and sports lounge just closed. Here’s what’s coming in](https://www.yahoo.com/entertainment/johnson-county-restaurant-sports-lounge-192821476.html)
+- Jun 07 - [Vietnam speeding up South China Sea island-building pace, US researchers say](https://www.yahoo.com/news/vietnam-speeding-south-china-sea-174026474.html)
 - Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
+- Jun 07 - [Lubbock police report: Drowning victims were cooling off in the lake before going under](https://www.yahoo.com/news/lubbock-police-report-drowning-victims-170237220.html)
+- Jun 07 - [Obnoxious ‘rich kid of instagram’ gets arrested on his father’s boat after drunkenly harassing restaurant staff](https://www.yahoo.com/entertainment/obnoxious-rich-kid-instagram-gets-170205473.html)
 <!-- feed end -->
 
 ### Onstream
