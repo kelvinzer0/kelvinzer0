@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 07 - [Alex Jones agrees to liquidate his assets to pay Sandy Hook families, in move that would end his ownership of Infowars](https://finance.yahoo.com/news/alex-jones-agrees-liquidate-assets-014619981.html)
-- Jun 06 - [Conservative Latino Family Regretful After Moving To Red State Idaho To Escape California 'Politics'](https://www.yahoo.com/news/conservative-latino-family-regretful-moving-220056774.html)
+- Jun 07 - [Russell Brand: If it's a choice between Trump or Biden, only one candidate will protect democracy and freedom](https://www.yahoo.com/news/russell-brand-choice-between-trump-010010344.html)
+- Jun 06 - [Stocks are about to hit a 'wall of money' that will drive the market to record highs in July, Goldman Sachs says](https://finance.yahoo.com/news/stocks-hit-wall-money-drive-221910509.html)
+- Jun 06 - [Livonia neighbors mourn 3-year-old's death after tornado](https://www.yahoo.com/news/livonia-neighbors-mourn-3-olds-221207399.html)
 - Jun 06 - [Judge dismisses attempted murder and other charges in state case against Paul Pelosi's attacker](https://www.yahoo.com/news/judge-dismisses-attempted-murder-other-213248873.html)
-- Jun 06 - [Short bets against Nvidia stand at $34 billion, S3 Partners says](https://finance.yahoo.com/news/short-bets-against-nvidia-stand-202747041.html)
-- Jun 06 - [Stop Doing These Biceps Exercises. Do These Moves Instead.](https://www.yahoo.com/lifestyle/stop-doing-biceps-exercises-moves-200200361.html)
 <!-- feed end -->
 
 ### Onstream
