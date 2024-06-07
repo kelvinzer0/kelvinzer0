@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Chinese armed vessels patrol waters around disputed islands, angering Japan](https://www.yahoo.com/news/chinese-armed-vessels-patrol-waters-085121389.html)
-- Jun 07 - [India election results 2024 live: Modi accused of stock market manipulation as BJP sets date for his inauguration](https://www.yahoo.com/news/india-election-2024-live-exit-075724838.html)
-- Jun 07 - [Photo shows Israel weapons test, not 'Philippines launching missile'](https://www.yahoo.com/news/photo-shows-israel-weapons-test-082827038.html)
-- Jun 07 - [Nvidia Is About to Split Its Stock. Don’t Count on the Rally to End.](https://www.barrons.com/articles/nvidia-stock-split-price-today-e2225f52?siteid=yhoof2&yptr=yahoo)
+- Jun 07 - [Nvidia Stock Shocks the World Ahead of Its 10-for-1 Stock Split. Here's What's Next for Investors.](https://finance.yahoo.com/news/nvidia-stock-shocks-world-ahead-091500419.html)
+- Jun 07 - [Do we really need $1M in retirement savings? Not even close, one top economist says](https://finance.yahoo.com/news/really-1m-retirement-savings-not-091427748.html)
+- Jun 07 - [A South Korean weapons company once seen as a dinosaur is now churning out howitzers twice as fast as its Western competitors](https://www.yahoo.com/news/south-korean-weapons-company-once-072157102.html)
 - Jun 07 - [CNN host, Dr. Phil disagree over Trump trial: ‘I don’t understand how you can say that’](https://www.yahoo.com/news/cnn-host-dr-phil-disagree-030422972.html)
+- Jun 07 - [Russell Brand: If it's a choice between Trump or Biden, only one candidate will protect democracy and freedom](https://www.yahoo.com/news/russell-brand-choice-between-trump-010010344.html)
 <!-- feed end -->
 
 ### Onstream
