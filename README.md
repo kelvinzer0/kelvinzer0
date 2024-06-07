@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Wisconsin dad tells cops why he pushed superintendent off stage so he couldn’t shake daughter’s hand](https://www.yahoo.com/news/wisconsin-dad-tells-cops-why-143654491.html)
+- Jun 07 - [Thinking Of Buying Pfizer For Its 5.8% Dividend Yield? Consider This Alternative Option Instead](https://finance.yahoo.com/news/thinking-buying-pfizer-5-8-141950937.html)
 - Jun 07 - [Morale plummets inside The Washington Post as staffers express alarm over publisher’s attempts to squash story](https://finance.yahoo.com/news/morale-plummets-inside-washington-post-113926057.html)
-- Jun 07 - [Video shows cyclist tell dad to put his toddler ‘on a leash’ on Kent Trails](https://www.yahoo.com/news/video-shows-cyclist-tell-dad-112949206.html)
-- Jun 07 - [41 Things People Said That Were So Dumb Someone Should Check Their Pulse](https://www.yahoo.com/entertainment/41-things-people-said-were-091602870.html)
 - Jun 07 - [Do we really need $1M in retirement savings? Not even close, one top economist says](https://finance.yahoo.com/news/really-1m-retirement-savings-not-091427748.html)
 - Jun 07 - [Chinese armed vessels patrol waters around disputed islands, angering Japan](https://www.yahoo.com/news/chinese-armed-vessels-patrol-waters-085121389.html)
 <!-- feed end -->
