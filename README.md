@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [India election results 2024 live: Modi accused of stock market manipulation over exit polls](https://www.yahoo.com/news/india-election-2024-live-exit-075724838.html)
+- Jun 07 - [War over Taiwan would change world, says Australia ambassador to US Kevin Rudd](https://www.yahoo.com/news/war-over-taiwan-change-world-020033988.html)
 - Jun 07 - [Alex Jones agrees to liquidate his assets to pay Sandy Hook families, in move that would end his ownership of Infowars](https://finance.yahoo.com/news/alex-jones-agrees-liquidate-assets-014619981.html)
-- Jun 07 - [Seeking revenge, Xavien Howard texted boy sexual photos of his mother: court records](https://www.yahoo.com/entertainment/seeking-revenge-xavien-howard-texted-010220896.html)
 - Jun 07 - [Russell Brand: If it's a choice between Trump or Biden, only one candidate will protect democracy and freedom](https://www.yahoo.com/news/russell-brand-choice-between-trump-010010344.html)
-- Jun 06 - [Stocks are about to hit a 'wall of money' that will drive the market to record highs in July, Goldman Sachs says](https://finance.yahoo.com/news/stocks-hit-wall-money-drive-221910509.html)
+- Jun 07 - [Strong-arm robbery of woman in San Francisco Chinatown captured on video](https://www.yahoo.com/news/strong-arm-robbery-woman-san-004038563.html)
+- Jun 06 - [Authorities identify driver whose SUV careened over Boston intersection onto I-93 ramp](https://www.yahoo.com/news/authorities-identify-driver-whose-suv-233727188.html)
 <!-- feed end -->
 
 ### Onstream
