@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Stocks are about to hit a 'wall of money' that will drive the market to record highs in July, Goldman Sachs says](https://finance.yahoo.com/news/stocks-hit-wall-money-drive-221910509.html)
 - Jun 06 - [Conservative Latino Family Regretful After Moving To Red State Idaho To Escape California 'Politics'](https://www.yahoo.com/news/conservative-latino-family-regretful-moving-220056774.html)
+- Jun 06 - [Putin makes rare claim on Ukraine war casualties](https://www.yahoo.com/news/putin-makes-rare-claim-ukraine-215159971.html)
 - Jun 06 - [Judge dismisses attempted murder and other charges in state case against Paul Pelosi's attacker](https://www.yahoo.com/news/judge-dismisses-attempted-murder-other-213248873.html)
-- Jun 06 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 - Jun 06 - [Short bets against Nvidia stand at $34 billion, S3 Partners says](https://finance.yahoo.com/news/short-bets-against-nvidia-stand-202747041.html)
-- Jun 06 - [GameStop stock soars 47% as 'Roaring Kitty' announces livestream, reveals $382 million unrealized gain](https://finance.yahoo.com/news/gamestop-stock-soars-47-as-roaring-kitty-announces-livestream-reveals-382-million-unrealized-gain-200804291.html)
 <!-- feed end -->
 
 ### Onstream
