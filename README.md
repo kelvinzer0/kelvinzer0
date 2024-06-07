@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Nvidia Stock Shocks the World Ahead of Its 10-for-1 Stock Split. Here's What's Next for Investors.](https://finance.yahoo.com/news/nvidia-stock-shocks-world-ahead-091500419.html)
+- Jun 07 - [Starship splashes down for first time in 4th test: See progression of the SpaceX flights](https://www.yahoo.com/news/starship-splashes-down-first-time-100115222.html)
 - Jun 07 - [Do we really need $1M in retirement savings? Not even close, one top economist says](https://finance.yahoo.com/news/really-1m-retirement-savings-not-091427748.html)
+- Jun 07 - [Chinese armed vessels patrol waters around disputed islands, angering Japan](https://www.yahoo.com/news/chinese-armed-vessels-patrol-waters-085121389.html)
+- Jun 07 - [Trade the Nvidia Stock Split? The Tried-and-True Method to Make the Best Profits on the Leading AI Stock](https://finance.yahoo.com/news/trade-nvidia-stock-split-tried-073300473.html)
 - Jun 07 - [A South Korean weapons company once seen as a dinosaur is now churning out howitzers twice as fast as its Western competitors](https://www.yahoo.com/news/south-korean-weapons-company-once-072157102.html)
-- Jun 07 - [CNN host, Dr. Phil disagree over Trump trial: ‘I don’t understand how you can say that’](https://www.yahoo.com/news/cnn-host-dr-phil-disagree-030422972.html)
-- Jun 07 - [Russell Brand: If it's a choice between Trump or Biden, only one candidate will protect democracy and freedom](https://www.yahoo.com/news/russell-brand-choice-between-trump-010010344.html)
 <!-- feed end -->
 
 ### Onstream
