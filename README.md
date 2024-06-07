@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [France to send Mirage jets to Ukraine – but are they worth the bother?](https://www.yahoo.com/news/france-send-mirage-jets-ukraine-175509937.html)
+- Jun 07 - [Tesla shareholders to vote on $56B Musk pay package](https://finance.yahoo.com/video/tesla-shareholders-vote-56b-musk-204815265.html)
+- Jun 07 - [9 members of Congress parachute jump over Normandy for D-Day anniversary](https://www.yahoo.com/news/8-members-congress-parachute-jump-204731661.html)
+- Jun 07 - [Tesla Chair Warns Elon Musk Might Quit Tesla If He Doesn't Get His Pay Package. Fans Say Fine, We're Fed Up With Him](https://finance.yahoo.com/news/tesla-chair-warns-elon-musk-175654108.html)
+- Jun 07 - [The Best Small Town to Retire Where $100K in Savings Will Last You the Longest](https://finance.yahoo.com/news/best-small-town-retire-where-173715518.html)
 - Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
-- Jun 07 - [So Many Unsold Teslas Are Piling Up That You Can See Them From Space](https://autos.yahoo.com/many-unsold-teslas-piling-see-170500028.html)
-- Jun 07 - [Tech startup develops solution to electrify semi-truck fleets: 'There's no modifications needed whatsoever to the diesel truck itself'](https://autos.yahoo.com/tech-startup-develops-solution-electrify-170000797.html)
-- Jun 07 - [Mexico's president vows to press ahead with changes to Constitution despite market nervousness](https://finance.yahoo.com/news/mexicos-president-vows-press-ahead-162652702.html)
 <!-- feed end -->
 
 ### Onstream
