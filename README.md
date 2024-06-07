@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Confident Putin warns Europe is ‘defenceless’](https://www.yahoo.com/news/confident-putin-warns-europe-defenceless-183543007.html)
+- Jun 07 - [The Best Small Town to Retire Where $100K in Savings Will Last You the Longest](https://finance.yahoo.com/news/best-small-town-retire-where-173715518.html)
 - Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
-- Jun 07 - [Ultra-Rich With $150 Billion Mark New Private-Equity Era](https://finance.yahoo.com/video/ultra-rich-150-billion-mark-173429928.html)
-- Jun 07 - [People Are Sharing Their Most "Boomer Complaints," And I Agree With All 32 Of These](https://www.yahoo.com/lifestyle/people-sharing-most-boomer-complaints-171932092.html)
-- Jun 07 - [Camry Flees Arkansas Trooper And Crashes At A Chick-Fil-A](https://autos.yahoo.com/camry-flees-arkansas-trooper-crashes-170000572.html)
-- Jun 07 - [U.S. Marshals arrest Oklahoma man on rape charge](https://www.yahoo.com/news/u-marshals-arrest-oklahoma-man-163238742.html)
+- Jun 07 - [Humans and Neanderthals only had sex for a brief period, but it still fundamentally changed our DNA](https://www.yahoo.com/news/humans-neanderthals-only-had-sex-162508495.html)
+- Jun 07 - [Nvidia's 10-for-1 stock split: Is now the time to buy?](https://finance.yahoo.com/video/nvidias-10-1-stock-split-162208931.html)
 <!-- feed end -->
 
 ### Onstream
