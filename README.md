@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Confident Putin warns Europe is ‘defenceless’](https://www.yahoo.com/news/confident-putin-warns-europe-defenceless-183543007.html)
-- Jun 07 - [The Best Small Town to Retire Where $100K in Savings Will Last You the Longest](https://finance.yahoo.com/news/best-small-town-retire-where-173715518.html)
+- Jun 07 - [France to send Mirage jets to Ukraine – but are they worth the bother?](https://www.yahoo.com/news/france-send-mirage-jets-ukraine-175509937.html)
 - Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
-- Jun 07 - [Humans and Neanderthals only had sex for a brief period, but it still fundamentally changed our DNA](https://www.yahoo.com/news/humans-neanderthals-only-had-sex-162508495.html)
-- Jun 07 - [Nvidia's 10-for-1 stock split: Is now the time to buy?](https://finance.yahoo.com/video/nvidias-10-1-stock-split-162208931.html)
+- Jun 07 - [So Many Unsold Teslas Are Piling Up That You Can See Them From Space](https://autos.yahoo.com/many-unsold-teslas-piling-see-170500028.html)
+- Jun 07 - [Tech startup develops solution to electrify semi-truck fleets: 'There's no modifications needed whatsoever to the diesel truck itself'](https://autos.yahoo.com/tech-startup-develops-solution-electrify-170000797.html)
+- Jun 07 - [Mexico's president vows to press ahead with changes to Constitution despite market nervousness](https://finance.yahoo.com/news/mexicos-president-vows-press-ahead-162652702.html)
 <!-- feed end -->
 
 ### Onstream
