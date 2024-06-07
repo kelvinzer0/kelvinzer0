@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Tesla objects to $5.6 billion payout for lawyers who voided Musk's pay](https://finance.yahoo.com/news/tesla-objects-5-6-billion-160418435.html)
+- Jun 07 - [Black D-Day combat medic's long-denied medal tenderly laid on Omaha Beach where he bled, saved lives](https://www.yahoo.com/news/black-d-day-combat-medics-153508413.html)
+- Jun 07 - [Now That It's Tourist Season, Here Are Some Of The Most Infuriating, Entitled, And Unhinged Tourists That Should Have Their Passports Revoked](https://www.yahoo.com/lifestyle/now-tourist-season-most-infuriating-151602397.html)
 - Jun 07 - [Wisconsin dad tells cops why he pushed superintendent off stage so he couldn’t shake daughter’s hand](https://www.yahoo.com/news/wisconsin-dad-tells-cops-why-143654491.html)
-- Jun 07 - [Thinking Of Buying Pfizer For Its 5.8% Dividend Yield? Consider This Alternative Option Instead](https://finance.yahoo.com/news/thinking-buying-pfizer-5-8-141950937.html)
-- Jun 07 - [Morale plummets inside The Washington Post as staffers express alarm over publisher’s attempts to squash story](https://finance.yahoo.com/news/morale-plummets-inside-washington-post-113926057.html)
-- Jun 07 - [Do we really need $1M in retirement savings? Not even close, one top economist says](https://finance.yahoo.com/news/really-1m-retirement-savings-not-091427748.html)
-- Jun 07 - [Chinese armed vessels patrol waters around disputed islands, angering Japan](https://www.yahoo.com/news/chinese-armed-vessels-patrol-waters-085121389.html)
+- Jun 07 - [Prepare to get wet, KC. Here’s when storms, straight-line winds expected to move in](https://www.yahoo.com/news/prepare-wet-kansas-city-thunderstorms-131733426.html)
 <!-- feed end -->
 
 ### Onstream
