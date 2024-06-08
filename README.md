@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Judge in Trump hush money trial flags Facebook post claiming juror spoke about case](https://www.yahoo.com/news/judge-trump-hush-money-trial-213500152.html)
 - Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
-- Jun 07 - [You can now buy a used Tesla for just $21,000 thanks to Hertz’s fire sale](https://finance.yahoo.com/news/now-buy-used-tesla-just-193819307.html)
+- Jun 07 - [Police: Palm Beach store owner charged with selling counterfeit goods worth $2 million](https://www.yahoo.com/news/police-palm-beach-store-owner-194444995.html)
+- Jun 07 - [Neanderthals and humans interbred 47,000 years ago for nearly 7,000 years, research suggests](https://www.yahoo.com/news/neanderthals-humans-interbred-47-000-191057338.html)
 - Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
 - Jun 07 - [So Many Unsold Teslas Are Piling Up That You Can See Them From Space](https://autos.yahoo.com/many-unsold-teslas-piling-see-170500028.html)
 <!-- feed end -->
