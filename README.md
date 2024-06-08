@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [After reversal of his N.Y. conviction, Harvey Weinstein appeals L.A. rape conviction](https://www.yahoo.com/news/reversal-n-y-conviction-harvey-183048379.html)
-- Jun 08 - [Illinois State Police operation in metro-east’s ‘high crime areas’ leads to 26 arrests](https://www.yahoo.com/news/illinois-state-police-operation-metro-174120315.html)
+- Jun 08 - [These San Diego-area cities are among ‘hottest housing markets’ in US, according to Realtor.com](https://finance.yahoo.com/news/san-diego-area-cities-among-161259796.html)
 - Jun 08 - [Ukraine war video appears to show US-supplied Bradley fighting vehicle and Russian APC in a head-on firefight](https://www.yahoo.com/news/ukraine-war-video-appears-show-160901707.html)
 - Jun 08 - [A freighter ship in Lake Superior collided with something underwater, Coast Guards says](https://www.yahoo.com/news/freighter-ship-lake-superior-collided-151830601.html)
-- Jun 08 - [China built a new modern aircraft carrier, but it's got a 'steep learning curve' to beat before it can match the US Navy](https://www.yahoo.com/news/china-built-modern-aircraft-carrier-132335162.html)
+- Jun 08 - [Russia puts former Ukrainian Prime Minister Yulia Tymoshenko on its wanted list](https://www.yahoo.com/news/russia-puts-former-ukrainian-prime-131753586.html)
+- Jun 08 - [Here's what happened when Boeing Starliner reached the ISS, narrowly averting crisis](https://www.yahoo.com/news/heres-happened-boeing-starliner-reached-130103832.html)
 <!-- feed end -->
 
 ### Onstream
