@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 08 - [Florida Sen. Rick Scott says he'll vote against recreational pot after brother's death](https://www.yahoo.com/news/florida-sen-rick-scott-says-040927686.html)
+- Jun 07 - [Judge in Trump hush money trial flags Facebook post claiming juror spoke about case](https://www.yahoo.com/news/judge-trump-hush-money-trial-213500152.html)
 - Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
-- Jun 07 - [PennDOT names contractor for $259M project on the top two highways in Centre County](https://www.yahoo.com/news/penndot-names-contractor-259m-project-203830375.html)
-- Jun 07 - [The Amount of Trash Being Removed from Everest Is Wild](https://www.yahoo.com/lifestyle/amount-trash-being-removed-everest-192244180.html)
-- Jun 07 - [Video Shows Flames Shooting Out of Air Canada Flight Just Moments After Take Off](https://www.yahoo.com/news/video-shows-flames-shooting-air-191329446.html)
+- Jun 07 - [Former Atlanta city attorney sentenced to 7 years in prison for stealing $15 million in PPP funds](https://www.yahoo.com/news/former-atlanta-city-attorney-sentenced-201138741.html)
+- Jun 07 - [You can now buy a used Tesla for just $21,000 thanks to Hertz’s fire sale](https://finance.yahoo.com/news/now-buy-used-tesla-just-193819307.html)
 <!-- feed end -->
 
 ### Onstream
