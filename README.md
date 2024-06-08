@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Denmark's Prime Minister Frederiksen assaulted in central Copenhagen, man arrested](https://www.yahoo.com/news/danish-pm-attacked-central-copenhagen-194324477.html)
-- Jun 07 - [Vietnam speeding up South China Sea island-building pace, US researchers say](https://www.yahoo.com/news/vietnam-speeding-south-china-sea-174026474.html)
+- Jun 07 - [Judge in Trump hush money trial flags Facebook post claiming juror spoke about case](https://www.yahoo.com/news/judge-trump-hush-money-trial-213500152.html)
 - Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
-- Jun 07 - [Lubbock police report: Drowning victims were cooling off in the lake before going under](https://www.yahoo.com/news/lubbock-police-report-drowning-victims-170237220.html)
-- Jun 07 - [Obnoxious ‘rich kid of instagram’ gets arrested on his father’s boat after drunkenly harassing restaurant staff](https://www.yahoo.com/entertainment/obnoxious-rich-kid-instagram-gets-170205473.html)
+- Jun 07 - [Officials warn of quicksand conditions at popular New England beach](https://www.yahoo.com/news/officials-warn-quicksand-conditions-popular-161438439.html)
+- Jun 07 - [Bear vs tiger: Watch 2 of nature's heavyweights face off in the wild in India](https://www.yahoo.com/news/bear-vs-tiger-watch-2-153650281.html)
+- Jun 07 - [Salmon-Farming Giant Faces Billion-Dollar Lawsuit](https://www.yahoo.com/news/salmon-farming-giant-faces-billion-152733939.html)
 <!-- feed end -->
 
 ### Onstream
