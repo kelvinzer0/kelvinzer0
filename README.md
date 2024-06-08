@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-155408649.html)
 - Jun 08 - [This Florida Trooper Teaches Entitled Woman A Valuable Lesson](https://autos.yahoo.com/florida-trooper-teaches-entitled-woman-151000004.html)
 - Jun 08 - [These San Diego-area cities are among ‘hottest housing markets’ in US, according to Realtor.com](https://finance.yahoo.com/news/san-diego-area-cities-among-161259796.html)
 - Jun 08 - [Ukraine war video appears to show US-supplied Bradley fighting vehicle and Russian APC in a head-on firefight](https://www.yahoo.com/news/ukraine-war-video-appears-show-160901707.html)
 - Jun 08 - [A freighter ship in Lake Superior collided with something underwater, Coast Guards says](https://www.yahoo.com/news/freighter-ship-lake-superior-collided-151830601.html)
-- Jun 08 - [Who are the 4 hostages rescued by Israeli forces from captivity in Gaza?](https://www.yahoo.com/news/four-hostages-rescued-israeli-forces-150717692.html)
 <!-- feed end -->
 
 ### Onstream
