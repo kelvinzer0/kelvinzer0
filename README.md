@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Watch: Israeli hostage Noa Argamani is reunited with father after Hamas kidnapping](https://www.yahoo.com/news/watch-israeli-hostage-noa-argamani-164623017.html)
+- Jun 08 - [Texas Democrats try to unify against GOP “extremism” as their own challenges and strife persist](https://www.yahoo.com/news/texas-democrats-try-unify-against-172101199.html)
+- Jun 08 - [Dive into Austin’s public pools, swimming holes with this quick summer guide](https://www.yahoo.com/lifestyle/dive-austin-public-pools-swimming-171410339.html)
+- Jun 08 - [Woman has arm amputated after being bitten by shark in Florida](https://www.yahoo.com/news/woman-arm-amputated-being-bitten-164817829.html)
 - Jun 08 - [Ukraine war video appears to show US-supplied Bradley fighting vehicle and Russian APC in a head-on firefight](https://www.yahoo.com/news/ukraine-war-video-appears-show-160901707.html)
 - Jun 08 - [A freighter ship in Lake Superior collided with something underwater, Coast Guards says](https://www.yahoo.com/news/freighter-ship-lake-superior-collided-151830601.html)
-- Jun 08 - [China built a new modern aircraft carrier, but it's got a 'steep learning curve' to beat before it can match the US Navy](https://www.yahoo.com/news/china-built-modern-aircraft-carrier-132335162.html)
-- Jun 08 - [Russia puts former Ukrainian Prime Minister Yulia Tymoshenko on its wanted list](https://www.yahoo.com/news/russia-puts-former-ukrainian-prime-131753586.html)
 <!-- feed end -->
 
 ### Onstream
