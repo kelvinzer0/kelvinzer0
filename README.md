@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [A weaker dollar, skyrocketing prices and ‘record’ visitor numbers: Good luck in Europe this summer](https://www.yahoo.com/lifestyle/weaker-dollar-skyrocketing-prices-record-083016609.html)
-- Jun 08 - [Editorial: Bye-bye Bannon: Former Trump aide heads where he belongs](https://www.yahoo.com/news/editorial-bye-bye-bannon-former-080000835.html)
-- Jun 08 - [Here's Exactly How Much Social Security Checks Are Forecast to Rise in 2025](https://finance.yahoo.com/news/heres-exactly-much-social-security-074400721.html)
+- Jun 08 - [Nvidia Has Completed Its 10-for-1 Stock Split: Here's Why I'm Still Not Touching This Artificial Intelligence (AI) Titan With a 10-Foot Pole](https://finance.yahoo.com/news/nvidia-completed-10-1-stock-090600282.html)
 - Jun 08 - [Iran helicopter crash shows Tehran's reliance on an aging fleet as well as its challenges at home](https://www.yahoo.com/news/iran-helicopter-crash-shows-tehrans-050901107.html)
 - Jun 08 - [Florida Sen. Rick Scott says he'll vote against recreational pot after brother's death](https://www.yahoo.com/news/florida-sen-rick-scott-says-040927686.html)
+- Jun 08 - [After $560 million Mega Millions winner, jackpot for Friday, June 7, back at $20 million](https://www.yahoo.com/news/560-million-mega-millions-winner-020604801.html)
+- Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
 <!-- feed end -->
 
 ### Onstream
