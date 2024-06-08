@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Florida Sen. Rick Scott says he'll vote against recreational pot after brother's death](https://www.yahoo.com/news/florida-sen-rick-scott-says-040927686.html)
 - Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
-- Jun 07 - [Police: Palm Beach store owner charged with selling counterfeit goods worth $2 million](https://www.yahoo.com/news/police-palm-beach-store-owner-194444995.html)
-- Jun 07 - [Neanderthals and humans interbred 47,000 years ago for nearly 7,000 years, research suggests](https://www.yahoo.com/news/neanderthals-humans-interbred-47-000-191057338.html)
-- Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
-- Jun 07 - [So Many Unsold Teslas Are Piling Up That You Can See Them From Space](https://autos.yahoo.com/many-unsold-teslas-piling-see-170500028.html)
+- Jun 07 - [PennDOT names contractor for $259M project on the top two highways in Centre County](https://www.yahoo.com/news/penndot-names-contractor-259m-project-203830375.html)
+- Jun 07 - [The Amount of Trash Being Removed from Everest Is Wild](https://www.yahoo.com/lifestyle/amount-trash-being-removed-everest-192244180.html)
+- Jun 07 - [Video Shows Flames Shooting Out of Air Canada Flight Just Moments After Take Off](https://www.yahoo.com/news/video-shows-flames-shooting-air-191329446.html)
 <!-- feed end -->
 
 ### Onstream
