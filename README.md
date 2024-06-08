@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Nvidia Has Completed Its 10-for-1 Stock Split: Here's Why I'm Still Not Touching This Artificial Intelligence (AI) Titan With a 10-Foot Pole](https://finance.yahoo.com/news/nvidia-completed-10-1-stock-090600282.html)
+- Jun 08 - [Russia puts former Ukrainian Prime Minister Yulia Tymoshenko on its wanted list](https://www.yahoo.com/news/russia-puts-former-ukrainian-prime-131753586.html)
+- Jun 08 - [From vacant to vibrant: How Indio is revitalizing downtown with new shops, dining, homes](https://www.yahoo.com/news/vacant-vibrant-indio-revitalizing-downtown-130117905.html)
+- Jun 08 - [The Daily Weather Update from FOX Weather: Severe weather threat isn't over](https://www.yahoo.com/news/daily-weather-fox-weather-severe-111154775.html)
 - Jun 08 - [Iran helicopter crash shows Tehran's reliance on an aging fleet as well as its challenges at home](https://www.yahoo.com/news/iran-helicopter-crash-shows-tehrans-050901107.html)
-- Jun 08 - [Florida Sen. Rick Scott says he'll vote against recreational pot after brother's death](https://www.yahoo.com/news/florida-sen-rick-scott-says-040927686.html)
-- Jun 08 - [After $560 million Mega Millions winner, jackpot for Friday, June 7, back at $20 million](https://www.yahoo.com/news/560-million-mega-millions-winner-020604801.html)
 - Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
 <!-- feed end -->
 
