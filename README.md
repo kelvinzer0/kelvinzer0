@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Florida Sen. Rick Scott says he'll vote against recreational pot after brother's death](https://www.yahoo.com/news/florida-sen-rick-scott-says-040927686.html)
-- Jun 07 - [Judge in Trump hush money trial flags Facebook post claiming juror spoke about case](https://www.yahoo.com/news/judge-trump-hush-money-trial-213500152.html)
+- Jun 08 - [Iran helicopter crash shows Tehran's reliance on an aging fleet as well as its challenges at home](https://www.yahoo.com/news/iran-helicopter-crash-shows-tehrans-050901107.html)
+- Jun 07 - [Local filmmakers produce documentary on The West Bank](https://www.yahoo.com/entertainment/local-filmmakers-produce-documentary-west-213425139.html)
 - Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
 - Jun 07 - [Former Atlanta city attorney sentenced to 7 years in prison for stealing $15 million in PPP funds](https://www.yahoo.com/news/former-atlanta-city-attorney-sentenced-201138741.html)
-- Jun 07 - [You can now buy a used Tesla for just $21,000 thanks to Hertz’s fire sale](https://finance.yahoo.com/news/now-buy-used-tesla-just-193819307.html)
+- Jun 07 - [Police: Palm Beach store owner charged with selling counterfeit goods worth $2 million](https://www.yahoo.com/news/police-palm-beach-store-owner-194444995.html)
 <!-- feed end -->
 
 ### Onstream
