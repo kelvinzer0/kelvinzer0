@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Man shot and killed Saturday on west side of Indianapolis, IMPD says](https://www.yahoo.com/news/man-shot-killed-saturday-west-140204086.html)
 - Jun 08 - [Russia puts former Ukrainian Prime Minister Yulia Tymoshenko on its wanted list](https://www.yahoo.com/news/russia-puts-former-ukrainian-prime-131753586.html)
 - Jun 08 - [From vacant to vibrant: How Indio is revitalizing downtown with new shops, dining, homes](https://www.yahoo.com/news/vacant-vibrant-indio-revitalizing-downtown-130117905.html)
-- Jun 08 - [The Daily Weather Update from FOX Weather: Severe weather threat isn't over](https://www.yahoo.com/news/daily-weather-fox-weather-severe-111154775.html)
-- Jun 08 - [Iran helicopter crash shows Tehran's reliance on an aging fleet as well as its challenges at home](https://www.yahoo.com/news/iran-helicopter-crash-shows-tehrans-050901107.html)
-- Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
+- Jun 08 - [Here's what happened when Boeing Starliner reached the ISS, narrowly averting crisis](https://www.yahoo.com/news/heres-happened-boeing-starliner-reached-130103832.html)
+- Jun 08 - [American Airlines flight attendants say their pay is so low, they fight for airplane meals to save money and sleep in their cars—and they’re ready to strike](https://finance.yahoo.com/news/american-airlines-flight-attendants-pay-111000049.html)
 <!-- feed end -->
 
 ### Onstream
