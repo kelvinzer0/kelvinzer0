@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Man dies in deputy-involved shooting after ramming patrol vehicle Friday evening](https://www.yahoo.com/news/man-dies-deputy-involved-shooting-012417863.html)
+- Jun 07 - [Judge in Trump hush money trial flags Facebook post claiming juror spoke about case](https://www.yahoo.com/news/judge-trump-hush-money-trial-213500152.html)
 - Jun 07 - [Scientists finally think they know where the most dangerous part of this US earthquake zone is and it's bad news for Washington](https://www.yahoo.com/tech/scientists-finally-think-know-where-211535016.html)
-- Jun 07 - [Former Atlanta city attorney sentenced to 7 years in prison for stealing $15 million in PPP funds](https://www.yahoo.com/news/former-atlanta-city-attorney-sentenced-201138741.html)
-- Jun 07 - [9 members of Congress parachute jump over Normandy for D-Day anniversary](https://www.yahoo.com/news/8-members-congress-parachute-jump-204731661.html)
 - Jun 07 - [The Best Small Town to Retire Where $100K in Savings Will Last You the Longest](https://finance.yahoo.com/news/best-small-town-retire-where-173715518.html)
+- Jun 07 - [California law bars ex-LAPD officer Mark Fuhrman, who lied at OJ Simpson trial, from policing](https://www.yahoo.com/news/california-law-bars-ex-lapd-173442638.html)
+- Jun 07 - [So Many Unsold Teslas Are Piling Up That You Can See Them From Space](https://autos.yahoo.com/many-unsold-teslas-piling-see-170500028.html)
 <!-- feed end -->
 
 ### Onstream
