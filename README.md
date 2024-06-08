@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Watch: Israeli hostage Noa Argamani is reunited with father after Hamas kidnapping](https://www.yahoo.com/news/watch-israeli-hostage-noa-argamani-164623017.html)
+- Jun 08 - [Ukraine war video appears to show US-supplied Bradley fighting vehicle and Russian APC in a head-on firefight](https://www.yahoo.com/news/ukraine-war-video-appears-show-160901707.html)
+- Jun 08 - [A freighter ship in Lake Superior collided with something underwater, Coast Guards says](https://www.yahoo.com/news/freighter-ship-lake-superior-collided-151830601.html)
+- Jun 08 - [China built a new modern aircraft carrier, but it's got a 'steep learning curve' to beat before it can match the US Navy](https://www.yahoo.com/news/china-built-modern-aircraft-carrier-132335162.html)
 - Jun 08 - [Russia puts former Ukrainian Prime Minister Yulia Tymoshenko on its wanted list](https://www.yahoo.com/news/russia-puts-former-ukrainian-prime-131753586.html)
-- Jun 08 - [A guest on Joe Rogan’s podcast dumped a 'ridiculous' $1 million in cash on his desk — here's why](https://finance.yahoo.com/news/guest-joe-rogan-podcast-dumped-104400442.html)
-- Jun 08 - [Scientists Intrigued by Signal From Space Repeating Every Hour](https://www.yahoo.com/news/scientists-intrigued-signal-space-repeating-103055450.html)
-- Jun 08 - [The Stock Market Is Doing Something It Hasn't Done in 23 Years, and It Could Signal a Big Investment Opportunity](https://finance.yahoo.com/news/stock-market-doing-something-hasnt-074000722.html)
-- Jun 08 - [Iran helicopter crash shows Tehran's reliance on an aging fleet as well as its challenges at home](https://www.yahoo.com/news/iran-helicopter-crash-shows-tehrans-050901107.html)
 <!-- feed end -->
 
 ### Onstream
