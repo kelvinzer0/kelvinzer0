@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Ryan Garcia arrested for alleged felony vandalism at Beverly Hills hotel](https://sports.yahoo.com/ryan-garcia-arrested-for-alleged-felony-vandalism-at-beverly-hills-hotel-030522430.html)
 - Jun 09 - [Large chunk of Wyoming's Teton Pass road collapses; unclear how quickly it can be rebuilt](https://www.yahoo.com/news/massive-chunk-wyomings-teton-pass-004112008.html)
+- Jun 09 - [Mass. woman wins $2M prize on $50 scratch ticket purchased at gas station](https://www.yahoo.com/news/mass-woman-wins-2m-prize-003545900.html)
+- Jun 08 - [Ravenna celebrates 225th birthday with party, arts event](https://www.yahoo.com/lifestyle/ravenna-celebrates-225th-birthday-party-224106585.html)
 - Jun 08 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-155408649.html)
-- Jun 08 - [T.J.Maxx Just Announced a Controversial Change & Shoppers Are Not Happy](https://www.yahoo.com/news/t-j-maxx-just-announced-194500509.html)
-- Jun 08 - [Palestinians report hundreds dead as Israel frees four Hamas hostages](https://www.yahoo.com/news/palestinians-report-hundreds-dead-israel-194444767.html)
-- Jun 08 - [Python swallows woman whole in Indonesia](https://www.yahoo.com/news/python-swallows-woman-whole-indonesia-165250920.html)
 <!-- feed end -->
 
 ### Onstream
