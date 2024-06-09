@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Fresno officials should have noticed a phishing scam that cost taxpayers more than $600,000, jury says](https://www.yahoo.com/news/fresno-officials-noticed-phishing-scam-205413982.html)
-- Jun 09 - ['Ultimate surprise': How an Israeli raid freed 4 hostages and killed scores of Palestinians in Gaza](https://www.yahoo.com/news/ultimate-surprise-israeli-raid-freed-200843594.html)
-- Jun 09 - [Macron calls shock French elections after far-right rout](https://www.yahoo.com/news/le-pens-party-trounces-macrons-180812897.html)
-- Jun 09 - [Judge in Trump hush money trial flags Facebook post claiming juror spoke about case](https://www.yahoo.com/news/judge-trump-hush-money-trial-213500152.html)
-- Jun 09 - [Jeff Bezos’ Ex-wife MacKenzie Scott Is Going Viral for Using Part of Her Fortune to Help Black Maternal Health](https://www.yahoo.com/lifestyle/jeff-bezos-ex-wife-mackenzie-170237800.html)
+- Jun 09 - [The US Debt Is at $34 Trillion: Why Are We Struggling To Pay Our Loans If the Government Can’t?](https://finance.yahoo.com/news/us-debt-34-trillion-why-220009992.html)
+- Jun 09 - [Trump tells rally-goers not to die in searing Vegas heat: ‘I don’t care about you, I just want your vote’](https://www.yahoo.com/news/trump-tells-rally-goers-not-215430076.html)
+- Jun 09 - [North Korea leader's sister warns of new response against S.Korean loudspeakers, leaflets](https://www.yahoo.com/news/north-korea-leaders-sister-warns-214259717.html)
+- Jun 09 - [Employee killed in apparent Lancaster County workplace accident](https://www.yahoo.com/news/employee-killed-apparent-lancaster-county-213048138.html)
+- Jun 09 - [People Who Were Introverted as Children Usually Develop These 11 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-introverted-children-usually-201000088.html)
 <!-- feed end -->
 
 ### Onstream
