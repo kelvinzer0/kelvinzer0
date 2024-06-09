@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Armenian archbishop calls four days of protests to seek ouster of PM](https://www.yahoo.com/news/armenian-archbishop-calls-four-days-183251798.html)
 - Jun 09 - [‘Traveling 143 MPH in a what?’ Police clocks driver going nearly 80 MPH over speed limit on GA 400](https://www.yahoo.com/news/traveling-143-mph-police-clocks-161621185.html)
 - Jun 09 - [Black Hole Potentially 6000 Light-Years Away - Evidence From Hubble Space Telescope](https://www.yahoo.com/news/black-hole-potentially-6000-light-160000625.html)
 - Jun 09 - [Biden, France's Macron reach agreement on using Russian assets for Ukraine](https://www.yahoo.com/news/biden-frances-macron-reach-agreement-155119638.html)
-- Jun 09 - [VASCAR: An Old Speed Enforcement Method That’s Making A Comeback](https://autos.yahoo.com/vascar-old-speed-enforcement-method-180000229.html)
-- Jun 09 - [17 Signs That Are Way, Way, Way, Way, Way, Way Funnier Than You](https://www.yahoo.com/entertainment/17-signs-way-way-way-151601419.html)
+- Jun 09 - [Ukraine shows even the toughest tanks can't go to war anymore without cage armor to shield them from exploding drones](https://www.yahoo.com/news/ukraine-shows-even-toughest-tanks-141801355.html)
 <!-- feed end -->
 
 ### Onstream
