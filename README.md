@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Polk County Sheriff's Office creates new artificial intelligence lab with Florida Poly](https://www.yahoo.com/news/polk-county-sheriffs-office-creates-221520129.html)
+- Jun 09 - [Massive chunk of Wyoming's Teton Pass crumbles; unclear how quickly the road can be rebuilt](https://www.yahoo.com/news/massive-chunk-wyomings-teton-pass-004112008.html)
 - Jun 08 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-155408649.html)
 - Jun 08 - [Palestinians report hundreds dead as Israel frees four Hamas hostages](https://www.yahoo.com/news/palestinians-report-hundreds-dead-israel-194444767.html)
-- Jun 08 - [This Florida Trooper Teaches Entitled Woman A Valuable Lesson](https://autos.yahoo.com/florida-trooper-teaches-entitled-woman-151000004.html)
-- Jun 08 - [These San Diego-area cities are among ‘hottest housing markets’ in US, according to Realtor.com](https://finance.yahoo.com/news/san-diego-area-cities-among-161259796.html)
+- Jun 08 - [Unionized workers reject agreement with Tops](https://www.yahoo.com/news/unionized-workers-reject-agreement-tops-194442020.html)
+- Jun 08 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://autos.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
 <!-- feed end -->
 
 ### Onstream
