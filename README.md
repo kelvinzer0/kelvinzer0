@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [A Christian group teaches public school students during the school day. Their footprint is growing](https://www.yahoo.com/news/christian-group-teaches-public-school-040110522.html)
+- Jun 09 - [Tesla will not launch refreshed Model Y this year, Musk says](https://finance.yahoo.com/news/tesla-not-launch-refreshed-model-033724657.html)
 - Jun 09 - [Ryan Garcia arrested for alleged felony vandalism at Beverly Hills hotel](https://sports.yahoo.com/ryan-garcia-arrested-for-alleged-felony-vandalism-at-beverly-hills-hotel-030522430.html)
 - Jun 09 - [Large chunk of Wyoming's Teton Pass road collapses; unclear how quickly it can be rebuilt](https://www.yahoo.com/news/massive-chunk-wyomings-teton-pass-004112008.html)
 - Jun 08 - [Ravenna celebrates 225th birthday with party, arts event](https://www.yahoo.com/lifestyle/ravenna-celebrates-225th-birthday-party-224106585.html)
-- Jun 08 - [Travis County assistant district attorney arrested, charged with aggravated assault](https://www.yahoo.com/news/travis-county-assistant-district-attorney-222137032.html)
+- Jun 08 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-155408649.html)
 <!-- feed end -->
 
 ### Onstream
