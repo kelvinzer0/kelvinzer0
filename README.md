@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Opinion | I’m 26 years sober. I see Republicans’ attacks on Hunter Biden’s sobriety as a warning.](https://www.yahoo.com/news/opinion-m-26-years-sober-141502040.html)
+- Jun 09 - [UK dismisses statement by Yemen's Houthis saying they attacked British destroyer](https://www.yahoo.com/news/uk-dismisses-statement-yemens-houthis-134444795.html)
+- Jun 09 - [80-year-old driver arrested for DUI after allegedly crashing into wall of Jacksonville Publix](https://www.yahoo.com/news/80-old-driver-arrested-dui-132609187.html)
 - Jun 09 - [You Should Never, Ever Tweeze Or Wax Your Nose Hair. Here's Why.](https://www.yahoo.com/lifestyle/never-ever-tweeze-wax-nose-111602805.html)
-- Jun 09 - [Ukraine says latest-generation Russian fighter jet hit for first time](https://www.yahoo.com/news/ukraine-says-latest-generation-russian-084833664.html)
-- Jun 09 - [Body of missing British TV presenter Michael Mosley found on Greek island](https://www.yahoo.com/news/body-believed-missing-tv-presenter-081648850.html)
-- Jun 09 - [Democrats 'fear' this possible Trump VP pick who 'could spell the end for Biden': Insiders](https://www.yahoo.com/news/democrats-fear-possible-trump-vp-080004962.html)
-- Jun 09 - [The German board game that changed the face of war](https://www.yahoo.com/news/german-board-game-changed-face-060000742.html)
+- Jun 09 - [This is the dangerous Venezuelan gang infiltrating the US that you probably know nothing about but should](https://www.yahoo.com/news/dangerous-venezuelan-gang-infiltrating-us-110048415.html)
 <!-- feed end -->
 
 ### Onstream
