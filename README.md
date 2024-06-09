@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Massive chunk of Wyoming's Teton Pass crumbles; unclear how quickly the road can be rebuilt](https://www.yahoo.com/news/massive-chunk-wyomings-teton-pass-004112008.html)
+- Jun 09 - [Adults and teens turn to 'dumbphones' to cut screen time](https://www.yahoo.com/lifestyle/adults-teens-turn-dumbphones-cut-015630391.html)
 - Jun 08 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-155408649.html)
 - Jun 08 - [Palestinians report hundreds dead as Israel frees four Hamas hostages](https://www.yahoo.com/news/palestinians-report-hundreds-dead-israel-194444767.html)
 - Jun 08 - [Unionized workers reject agreement with Tops](https://www.yahoo.com/news/unionized-workers-reject-agreement-tops-194442020.html)
-- Jun 08 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://autos.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
+- Jun 08 - [Can You Realistically Follow Dave Ramsey’s 8% Retirement Rule?](https://finance.yahoo.com/news/realistically-dave-ramsey-8-retirement-165222513.html)
 <!-- feed end -->
 
 ### Onstream
