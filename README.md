@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [‘Traveling 143 MPH in a what?’ Police clocks driver going nearly 80 MPH over speed limit on GA 400](https://www.yahoo.com/news/traveling-143-mph-police-clocks-161621185.html)
+- Jun 09 - [Black Hole Potentially 6000 Light-Years Away - Evidence From Hubble Space Telescope](https://www.yahoo.com/news/black-hole-potentially-6000-light-160000625.html)
 - Jun 09 - [Biden, France's Macron reach agreement on using Russian assets for Ukraine](https://www.yahoo.com/news/biden-frances-macron-reach-agreement-155119638.html)
-- Jun 09 - [Opinion | I’m 26 years sober. I see Republicans’ attacks on Hunter Biden’s sobriety as a warning.](https://www.yahoo.com/news/opinion-m-26-years-sober-141502040.html)
-- Jun 09 - [Volatile Sunspot Gets Photobombed By The Moon In Amazing Spacecraft View](https://www.yahoo.com/news/volatile-sunspot-gets-photobombed-moon-120500795.html)
-- Jun 09 - [‘I flip abandoned homes in rural Japan – people offer me houses for free’](https://www.yahoo.com/lifestyle/flip-abandoned-homes-rural-japan-130000682.html)
-- Jun 09 - [Why Robert F. Kennedy's Jr.'s current presidential polling numbers might not hold up into November](https://www.yahoo.com/news/why-robert-f-kennedys-jr-115853133.html)
+- Jun 09 - [VASCAR: An Old Speed Enforcement Method That’s Making A Comeback](https://autos.yahoo.com/vascar-old-speed-enforcement-method-180000229.html)
+- Jun 09 - [17 Signs That Are Way, Way, Way, Way, Way, Way Funnier Than You](https://www.yahoo.com/entertainment/17-signs-way-way-way-151601419.html)
 <!-- feed end -->
 
 ### Onstream
