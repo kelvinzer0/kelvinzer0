@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Blood test may spot Alzheimer’s 10 to 15 years before symptoms show](https://www.yahoo.com/news/blood-test-may-spot-alzheimer-200000864.html)
-- Jun 09 - [Jeff Bezos’ Ex-wife MacKenzie Scott Is Going Viral for Using Part of Her Fortune to Help Black Maternal Health](https://www.yahoo.com/lifestyle/jeff-bezos-ex-wife-mackenzie-170237800.html)
+- Jun 09 - [Trump loyalists proud to support 'felon' at Las Vegas rally](https://www.yahoo.com/news/trump-loyalists-proud-support-felon-203657257.html)
+- Jun 09 - ['Ultimate surprise': How an Israeli raid freed 4 hostages and killed scores of Palestinians in Gaza](https://www.yahoo.com/news/ultimate-surprise-israeli-raid-freed-200843594.html)
+- Jun 09 - [Investigation underway after ship collides with underwater object, takes on water in Lake Superior, US Coast Guard says](https://www.yahoo.com/news/investigation-underway-ship-collides-underwater-190334023.html)
+- Jun 09 - [Macron calls shock French elections after far-right rout](https://www.yahoo.com/news/le-pens-party-trounces-macrons-180812897.html)
 - Jun 09 - [Apple declares beloved older iPhone obsolete – what that means](https://www.yahoo.com/tech/apple-declares-beloved-older-iphone-164012658.html)
-- Jun 09 - [‘Traveling 143 MPH in a what?’ Police clocks driver going nearly 80 MPH over speed limit on GA 400](https://www.yahoo.com/news/traveling-143-mph-police-clocks-161621185.html)
-- Jun 09 - [Black Hole Potentially 6000 Light-Years Away - Evidence From Hubble Space Telescope](https://www.yahoo.com/news/black-hole-potentially-6000-light-160000625.html)
 <!-- feed end -->
 
 ### Onstream
