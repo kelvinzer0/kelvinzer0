@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Father of Israeli hostage Almog Jan ‘died of grief’ hours before son’s rescue](https://www.yahoo.com/news/father-israeli-hostage-almog-jan-115624189.html)
 - Jun 09 - [You Should Never, Ever Tweeze Or Wax Your Nose Hair. Here's Why.](https://www.yahoo.com/lifestyle/never-ever-tweeze-wax-nose-111602805.html)
-- Jun 09 - [Republicans want to control women so much they voted against protecting contraception](https://www.yahoo.com/news/republicans-want-control-women-much-090827738.html)
 - Jun 09 - [Ukraine says latest-generation Russian fighter jet hit for first time](https://www.yahoo.com/news/ukraine-says-latest-generation-russian-084833664.html)
 - Jun 09 - [Body of missing British TV presenter Michael Mosley found on Greek island](https://www.yahoo.com/news/body-believed-missing-tv-presenter-081648850.html)
+- Jun 09 - [Democrats 'fear' this possible Trump VP pick who 'could spell the end for Biden': Insiders](https://www.yahoo.com/news/democrats-fear-possible-trump-vp-080004962.html)
+- Jun 09 - [The German board game that changed the face of war](https://www.yahoo.com/news/german-board-game-changed-face-060000742.html)
 <!-- feed end -->
 
 ### Onstream
