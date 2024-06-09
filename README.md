@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Opinion | I’m 26 years sober. I see Republicans’ attacks on Hunter Biden’s sobriety as a warning.](https://www.yahoo.com/news/opinion-m-26-years-sober-141502040.html)
-- Jun 09 - [UK dismisses statement by Yemen's Houthis saying they attacked British destroyer](https://www.yahoo.com/news/uk-dismisses-statement-yemens-houthis-134444795.html)
-- Jun 09 - [80-year-old driver arrested for DUI after allegedly crashing into wall of Jacksonville Publix](https://www.yahoo.com/news/80-old-driver-arrested-dui-132609187.html)
+- Jun 09 - [‘I flip abandoned homes in rural Japan – people offer me houses for free’](https://www.yahoo.com/lifestyle/flip-abandoned-homes-rural-japan-130000682.html)
+- Jun 09 - [China says US provoking arms race in moves into South China Sea](https://www.yahoo.com/news/china-says-us-provoking-arms-123119730.html)
+- Jun 09 - [Why Robert F. Kennedy's Jr.'s current presidential polling numbers might not hold up into November](https://www.yahoo.com/news/why-robert-f-kennedys-jr-115853133.html)
 - Jun 09 - [You Should Never, Ever Tweeze Or Wax Your Nose Hair. Here's Why.](https://www.yahoo.com/lifestyle/never-ever-tweeze-wax-nose-111602805.html)
 - Jun 09 - [This is the dangerous Venezuelan gang infiltrating the US that you probably know nothing about but should](https://www.yahoo.com/news/dangerous-venezuelan-gang-infiltrating-us-110048415.html)
 <!-- feed end -->
