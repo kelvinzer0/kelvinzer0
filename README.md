@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Macron ‘laying trap’ for hard-Right](https://www.yahoo.com/news/macron-laying-trap-hard-184416667.html)
-- Jun 10 - [Apple launches AI-fueled tools for iPhone, Mac and iPad](https://www.yahoo.com/tech/apple-launches-ai-fueled-tools-183842887.html)
-- Jun 10 - [Austrian Airlines plane's nose, cockpit windows damaged during flight by severe hail storm](https://www.yahoo.com/news/austrian-airlines-planes-nose-cockpit-183009923.html)
-- Jun 10 - [6-year-old girl dies on family vacation after being struck by piece of badminton racket](https://www.yahoo.com/news/6-old-girl-dies-family-183000597.html)
-- Jun 10 - [A clemency petition is his last hope. The Missouri inmate is unhappy with it.](https://www.yahoo.com/news/clemency-petition-last-hope-missouri-181022298.html)
+- Jun 10 - [Apple debuts iOS 18 with customizable home screen, updates to macOS, watchOS](https://finance.yahoo.com/news/apple-debuts-ios-18-with-customizable-home-screen-updates-to-macos-watchos-191906778.html)
+- Jun 10 - [Everything Apple announced at WWDC 2024](https://www.yahoo.com/tech/everything-apple-announced-wwdc-2024-172937234.html)
+- Jun 10 - [Chipmaker Intel to halt $25-billion Israel plant, news website says](https://finance.yahoo.com/news/chipmaker-intel-halt-25-billion-191640654.html)
+- Jun 10 - [Apple Debuts ‘Apple Intelligence’ AI Feature With ChatGPT Integration](https://www.yahoo.com/tech/apple-debuts-apple-intelligence-ai-191441335.html)
+- Jun 10 - [Lakers guard sues 'Million Dollar Wheels' car dealer over $1-million Ferrari purchase](https://www.yahoo.com/entertainment/laker-guard-sues-million-dollar-191252413.html)
 <!-- feed end -->
 
 ### Onstream
