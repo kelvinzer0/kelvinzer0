@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Switzerland says 90 states, organizations signed up for Ukraine summit](https://www.yahoo.com/news/switzerland-says-90-states-organizations-072530040.html)
-- Jun 10 - [Trump fumes over tech problems at his Las Vegas rally, threatens not to pay the crew](https://www.yahoo.com/news/trump-fumes-over-tech-problems-023746603.html)
-- Jun 10 - [Georgia Republican convicted in Jan. 6 riot walks out during televised congressional primary debate](https://www.yahoo.com/news/georgia-republican-convicted-jan-6-011721689.html)
-- Jun 09 - [Donald Trump accuses the Biden Administration of something Trump has threatened to do](https://www.yahoo.com/news/donald-trump-accuses-biden-administration-235051411.html)
-- Jun 09 - [Widow of IS leader reveals details of their life together](https://www.yahoo.com/news/widow-leader-reveals-details-life-234601830.html)
+- Jun 10 - [Rutgers summit tackles disparities for Black New Jerseyans with disabilities](https://www.yahoo.com/news/rutgers-summit-tackles-disparities-black-083103717.html)
+- Jun 10 - [Rochester night spot was an instant hit when it opened in 1999. 5 years later it was gone](https://www.yahoo.com/lifestyle/rochester-night-spot-instant-hit-071028487.html)
+- Jun 10 - [Mark Hamill Torches Trump Over Moment He 'Accidentally' Told The Truth](https://www.yahoo.com/entertainment/mark-hamill-torches-trump-over-062019054.html)
+- Jun 10 - [European nations compete for Chinese EV factories, jobs even as EU weighs tariffs](https://finance.yahoo.com/news/european-nations-compete-chinese-ev-060305268.html)
+- Jun 10 - [Family remembers woman killed in alleged street racing crash](https://www.yahoo.com/news/family-remembers-woman-killed-alleged-030935272.html)
 <!-- feed end -->
 
 ### Onstream
