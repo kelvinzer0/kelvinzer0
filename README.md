@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Chrysler recalls more than 211,000 SUVs and pickup trucks due to software malfunction](https://finance.yahoo.com/news/chrysler-recalls-more-211-000-152720561.html)
-- Jun 10 - [6 rescued by Coast Guard after boat catches fire, sinks in Lake Tahoe, Placer sheriff says](https://www.yahoo.com/news/6-rescued-coast-guard-boat-152325044.html)
-- Jun 10 - [Russia was scared to fly its Su-57 in combat, fearing a loss. Ukraine scored a hit on one anyway.](https://www.yahoo.com/news/russia-scared-fly-su-57-152227546.html)
-- Jun 10 - [Reclassifying Cannabis: A Potential Game-Changer For Real Estate And Lending In The Industry](https://finance.yahoo.com/news/reclassifying-cannabis-potential-game-changer-150016310.html)
-- Jun 10 - [Midlands car lot says it was forced out for new development. Leaders say it was a nuisance](https://www.yahoo.com/news/midlands-car-lot-says-forced-141652970.html)
+- Jun 10 - [Mark Cuban's Advice For Lotto Winners: Cash Or Annuity?](https://finance.yahoo.com/news/mark-cubans-advice-lotto-winners-161515277.html)
+- Jun 10 - [What gold, copper futures are telling us about the economy](https://finance.yahoo.com/video/gold-copper-futures-telling-us-155156865.html)
+- Jun 10 - [Edgar Bronfman Jr. eyes over $2 billion bid for Paramount owner, WSJ reports](https://finance.yahoo.com/news/edgar-bronfman-eyes-more-2-154721544.html)
+- Jun 10 - [Fact Check: Image Claims to Show Giant Octopus Photographed on Indonesian Coast. Here's What It Is](https://www.yahoo.com/tech/fact-check-image-claims-show-130000528.html)
+- Jun 10 - [Kia, Honda, Toyota, Ford among 687,000 vehicles recalled: Check car recalls here](https://www.yahoo.com/news/kia-honda-toyota-ford-among-124428517.html)
 <!-- feed end -->
 
 ### Onstream
