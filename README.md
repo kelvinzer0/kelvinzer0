@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [Haiti PM condemns killing of police officers in gang ambush](https://www.yahoo.com/news/haiti-pm-condemns-killing-police-224839560.html)
+- Jun 10 - [Judge denies bid to dismiss certain counts in Trump classified documents indictment](https://www.yahoo.com/news/judge-denies-bid-dismiss-certain-223539422.html)
+- Jun 10 - [Shaver drowning victim ID’d as Orosi teen. He had life vest but didn’t clip it, sheriff says](https://www.yahoo.com/news/shaver-drowning-victim-id-d-222433563.html)
+- Jun 10 - [Elon Musk threatens to ban iPhones and MacBooks at his companies after Apple announces OpenAI partnership](https://www.yahoo.com/tech/elon-musk-threatens-ban-iphones-222341654.html)
 - Jun 10 - [Musk threatens Apple device ban if OpenAI integrated at OS level](https://finance.yahoo.com/video/musk-threatens-apple-device-ban-212643736.html)
-- Jun 10 - [Elon Musk says he will ban Apple devices if it integrates OS with OpenAI](https://www.yahoo.com/tech/elon-musk-says-ban-apple-204647804.html)
-- Jun 10 - [Everything Apple announced at WWDC 2024: iOS 18, AI, and more](https://www.yahoo.com/tech/everything-apple-announced-wwdc-2024-172937234.html)
-- Jun 10 - [iOS 18 is official. Here’s how it’s going to change your iPhone forever](https://www.yahoo.com/tech/ios-18-official-going-change-171448350.html)
-- Jun 10 - [City demands thousands of Chicago police officers pay off pension error](https://www.yahoo.com/news/city-demands-thousands-chicago-police-195200334.html)
 <!-- feed end -->
 
 ### Onstream
