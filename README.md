@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Hamas welcomes UN Security Council resolution for Gaza ceasefire](https://www.yahoo.com/news/hamas-welcomes-un-security-council-202950387.html)
+- Jun 10 - [Musk threatens Apple device ban if OpenAI integrated at OS level](https://finance.yahoo.com/video/musk-threatens-apple-device-ban-212643736.html)
+- Jun 10 - [Elon Musk says he will ban Apple devices if it integrates OS with OpenAI](https://www.yahoo.com/tech/elon-musk-says-ban-apple-204647804.html)
+- Jun 10 - [Everything Apple announced at WWDC 2024: iOS 18, AI, and more](https://www.yahoo.com/tech/everything-apple-announced-wwdc-2024-172937234.html)
 - Jun 10 - [iOS 18 is official. Here’s how it’s going to change your iPhone forever](https://www.yahoo.com/tech/ios-18-official-going-change-171448350.html)
-- Jun 10 - [Apple's Huge AI Announcement Is a Chatbot and an Image Generator, Which Is the Exact Same Boring Offering as Microsoft, Google and Meta](https://www.yahoo.com/tech/apples-huge-ai-announcement-chatbot-201358378.html)
-- Jun 10 - [Medics flee as rebels attack and shut down North Darfur’s main hospital](https://www.yahoo.com/news/medics-flee-rebels-attack-shut-163230665.html)
-- Jun 10 - [Sen. John Fetterman, wife Gisele involved in weekend car crash](https://www.yahoo.com/news/sen-john-fetterman-wife-gisele-192040599.html)
+- Jun 10 - [City demands thousands of Chicago police officers pay off pension error](https://www.yahoo.com/news/city-demands-thousands-chicago-police-195200334.html)
 <!-- feed end -->
 
 ### Onstream
