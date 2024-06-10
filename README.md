@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [GameStop tumbles for second day as meme-stock rally fades](https://finance.yahoo.com/news/gamestop-tumbles-second-day-meme-173500703.html)
-- Jun 10 - [DeSantis raises teacher pay, blames unions for Florida's education woes](https://www.yahoo.com/news/desantis-raises-teacher-pay-blames-173245164.html)
-- Jun 10 - [iOS 18 is official. Here’s how it’s going to change your iPhone forever](https://www.yahoo.com/tech/ios-18-official-going-change-171448350.html)
-- Jun 10 - [Massachusetts school allowed to ban student's 'two genders' shirt, court rules](https://www.yahoo.com/news/massachusetts-school-allowed-ban-students-165403668.html)
-- Jun 10 - [Fact Check: Image Claims to Show Giant Octopus Photographed on Indonesian Coast. Here's What It Is](https://www.yahoo.com/tech/fact-check-image-claims-show-130000528.html)
+- Jun 10 - [Macron ‘laying trap’ for hard-Right](https://www.yahoo.com/news/macron-laying-trap-hard-184416667.html)
+- Jun 10 - [Apple launches AI-fueled tools for iPhone, Mac and iPad](https://www.yahoo.com/tech/apple-launches-ai-fueled-tools-183842887.html)
+- Jun 10 - [Austrian Airlines plane's nose, cockpit windows damaged during flight by severe hail storm](https://www.yahoo.com/news/austrian-airlines-planes-nose-cockpit-183009923.html)
+- Jun 10 - [6-year-old girl dies on family vacation after being struck by piece of badminton racket](https://www.yahoo.com/news/6-old-girl-dies-family-183000597.html)
+- Jun 10 - [A clemency petition is his last hope. The Missouri inmate is unhappy with it.](https://www.yahoo.com/news/clemency-petition-last-hope-missouri-181022298.html)
 <!-- feed end -->
 
 ### Onstream
