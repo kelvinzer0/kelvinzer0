@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Mark Cuban's Advice For Lotto Winners: Cash Or Annuity?](https://finance.yahoo.com/news/mark-cubans-advice-lotto-winners-161515277.html)
-- Jun 10 - [What gold, copper futures are telling us about the economy](https://finance.yahoo.com/video/gold-copper-futures-telling-us-155156865.html)
-- Jun 10 - [Edgar Bronfman Jr. eyes over $2 billion bid for Paramount owner, WSJ reports](https://finance.yahoo.com/news/edgar-bronfman-eyes-more-2-154721544.html)
+- Jun 10 - [GameStop tumbles for second day as meme-stock rally fades](https://finance.yahoo.com/news/gamestop-tumbles-second-day-meme-173500703.html)
+- Jun 10 - [DeSantis raises teacher pay, blames unions for Florida's education woes](https://www.yahoo.com/news/desantis-raises-teacher-pay-blames-173245164.html)
+- Jun 10 - [iOS 18 is official. Here’s how it’s going to change your iPhone forever](https://www.yahoo.com/tech/ios-18-official-going-change-171448350.html)
+- Jun 10 - [Massachusetts school allowed to ban student's 'two genders' shirt, court rules](https://www.yahoo.com/news/massachusetts-school-allowed-ban-students-165403668.html)
 - Jun 10 - [Fact Check: Image Claims to Show Giant Octopus Photographed on Indonesian Coast. Here's What It Is](https://www.yahoo.com/tech/fact-check-image-claims-show-130000528.html)
-- Jun 10 - [Kia, Honda, Toyota, Ford among 687,000 vehicles recalled: Check car recalls here](https://www.yahoo.com/news/kia-honda-toyota-ford-among-124428517.html)
 <!-- feed end -->
 
 ### Onstream
