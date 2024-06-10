@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Japan's economy is shrinking, although slightly less than previously thought](https://finance.yahoo.com/news/japans-economy-shrinking-although-slightly-035625161.html)
+- Jun 10 - [Trump fumes over tech problems at his Las Vegas rally, threatens not to pay the crew](https://www.yahoo.com/news/trump-fumes-over-tech-problems-023746603.html)
 - Jun 10 - [Georgia Republican convicted in Jan. 6 riot walks out during televised congressional primary debate](https://www.yahoo.com/news/georgia-republican-convicted-jan-6-011721689.html)
 - Jun 09 - [Widow of IS leader reveals details of their life together](https://www.yahoo.com/news/widow-leader-reveals-details-life-234601830.html)
-- Jun 09 - [I’m a Frugal Self-Made Millionaire: 6 Things I Never Waste Money On](https://finance.yahoo.com/news/m-frugal-self-made-millionaire-110118358.html)
 - Jun 09 - [North Korea leader's sister warns of new response against S.Korean loudspeakers, leaflets](https://www.yahoo.com/news/north-korea-leaders-sister-warns-214259717.html)
+- Jun 09 - [People Who Were Introverted as Children Usually Develop These 11 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-introverted-children-usually-201000088.html)
 <!-- feed end -->
 
 ### Onstream
