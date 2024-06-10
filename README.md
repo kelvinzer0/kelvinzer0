@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Rutgers summit tackles disparities for Black New Jerseyans with disabilities](https://www.yahoo.com/news/rutgers-summit-tackles-disparities-black-083103717.html)
-- Jun 10 - [Rochester night spot was an instant hit when it opened in 1999. 5 years later it was gone](https://www.yahoo.com/lifestyle/rochester-night-spot-instant-hit-071028487.html)
+- Jun 10 - [Trump Demands Biden Remove Ad of Him Calling Dead Soldiers ‘Suckers’ and ‘Losers’](https://www.yahoo.com/news/trump-demands-biden-remove-ad-093232346.html)
+- Jun 10 - [Dutch Bros, Chick-fil-A, In-N-Out coming to Trinity Parkway in Stockton. Not all are happy](https://www.yahoo.com/news/dutch-bros-chick-fil-n-090818036.html)
+- Jun 10 - [Is downtown Augusta safe? Residents give their thoughts after Saturday shooting](https://www.yahoo.com/news/downtown-augusta-safe-residents-thoughts-080431664.html)
 - Jun 10 - [Mark Hamill Torches Trump Over Moment He 'Accidentally' Told The Truth](https://www.yahoo.com/entertainment/mark-hamill-torches-trump-over-062019054.html)
-- Jun 10 - [European nations compete for Chinese EV factories, jobs even as EU weighs tariffs](https://finance.yahoo.com/news/european-nations-compete-chinese-ev-060305268.html)
-- Jun 10 - [Family remembers woman killed in alleged street racing crash](https://www.yahoo.com/news/family-remembers-woman-killed-alleged-030935272.html)
+- Jun 10 - [Trump will speak to a Christian group that calls for abortion to be 'eradicated entirely'](https://www.yahoo.com/news/trump-speak-christian-group-calls-043527970.html)
 <!-- feed end -->
 
 ### Onstream
