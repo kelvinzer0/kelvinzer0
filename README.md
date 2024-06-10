@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Apple debuts iOS 18 with customizable home screen, updates to macOS, watchOS](https://finance.yahoo.com/news/apple-debuts-ios-18-with-customizable-home-screen-updates-to-macos-watchos-191906778.html)
-- Jun 10 - [Everything Apple announced at WWDC 2024](https://www.yahoo.com/tech/everything-apple-announced-wwdc-2024-172937234.html)
-- Jun 10 - [Chipmaker Intel to halt $25-billion Israel plant, news website says](https://finance.yahoo.com/news/chipmaker-intel-halt-25-billion-191640654.html)
-- Jun 10 - [Apple Debuts ‘Apple Intelligence’ AI Feature With ChatGPT Integration](https://www.yahoo.com/tech/apple-debuts-apple-intelligence-ai-191441335.html)
-- Jun 10 - [Lakers guard sues 'Million Dollar Wheels' car dealer over $1-million Ferrari purchase](https://www.yahoo.com/entertainment/laker-guard-sues-million-dollar-191252413.html)
+- Jun 10 - [Hamas welcomes UN Security Council resolution for Gaza ceasefire](https://www.yahoo.com/news/hamas-welcomes-un-security-council-202950387.html)
+- Jun 10 - [iOS 18 is official. Here’s how it’s going to change your iPhone forever](https://www.yahoo.com/tech/ios-18-official-going-change-171448350.html)
+- Jun 10 - [Apple's Huge AI Announcement Is a Chatbot and an Image Generator, Which Is the Exact Same Boring Offering as Microsoft, Google and Meta](https://www.yahoo.com/tech/apples-huge-ai-announcement-chatbot-201358378.html)
+- Jun 10 - [Medics flee as rebels attack and shut down North Darfur’s main hospital](https://www.yahoo.com/news/medics-flee-rebels-attack-shut-163230665.html)
+- Jun 10 - [Sen. John Fetterman, wife Gisele involved in weekend car crash](https://www.yahoo.com/news/sen-john-fetterman-wife-gisele-192040599.html)
 <!-- feed end -->
 
 ### Onstream
