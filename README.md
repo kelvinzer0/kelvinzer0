@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [Elliott Targets Southwest CEO in $1.9 Billion Activist Push](https://finance.yahoo.com/news/elliott-takes-stake-southwest-air-132330497.html)
+- Jun 10 - [Nightly closures planned for Legacy Parkway starting tonight](https://www.yahoo.com/news/nightly-closures-planned-legacy-parkway-124709194.html)
+- Jun 10 - [A Boeing 737 was only 10 feet off the ground as it cleared the runway when a software glitch meant it didn't have enough thrust](https://www.yahoo.com/news/boeing-737-only-10-feet-121307203.html)
 - Jun 10 - [Nvidia sparks chatter over possible Dow inclusion after stock split](https://finance.yahoo.com/news/nvidia-sparks-chatter-over-possible-120113773.html)
-- Jun 10 - [Starliner flight is one big step for Boeing's space capsule, but many hurdles remain](https://finance.yahoo.com/news/starliner-flight-one-big-step-101457355.html)
-- Jun 10 - [Ukraine's air force may keep some F-16 warplanes abroad to protect them from Russian strikes](https://www.yahoo.com/news/ukraines-air-force-may-keep-100143298.html)
-- Jun 10 - [Coast Guard Academy official resigns, says she was directed to lie to Congress as part of ‘cruel’ sexual assault coverup](https://www.yahoo.com/news/coast-guard-academy-official-resigns-100016693.html)
-- Jun 10 - [A Gen Xer got $110,000 in student loans forgiven after he'd paid off more than he borrowed. It's allowed him to scrap his plans to work part-time in retirement.](https://www.yahoo.com/news/gen-xer-got-110-000-095901249.html)
+- Jun 10 - [Raging fires in Brazil wetlands surge 980 percent](https://www.yahoo.com/news/raging-fires-brazil-wetlands-surge-113310475.html)
 <!-- feed end -->
 
 ### Onstream
