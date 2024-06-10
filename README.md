@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Elliott Targets Southwest CEO in $1.9 Billion Activist Push](https://finance.yahoo.com/news/elliott-takes-stake-southwest-air-132330497.html)
-- Jun 10 - [Nightly closures planned for Legacy Parkway starting tonight](https://www.yahoo.com/news/nightly-closures-planned-legacy-parkway-124709194.html)
-- Jun 10 - [A Boeing 737 was only 10 feet off the ground as it cleared the runway when a software glitch meant it didn't have enough thrust](https://www.yahoo.com/news/boeing-737-only-10-feet-121307203.html)
+- Jun 10 - [Barclays Warns Treasuries Overhaul Will Stunt Systematic Trading](https://finance.yahoo.com/news/barclays-warns-treasuries-overhaul-stunt-140000656.html)
+- Jun 10 - [Fact Check: Image Claims to Show Giant Octopus Photographed on Indonesian Coast. Here's What It Is](https://www.yahoo.com/tech/fact-check-image-claims-show-130000528.html)
+- Jun 10 - [Kia, Honda, Toyota, Ford among 687,000 vehicles recalled: Check car recalls here](https://www.yahoo.com/news/kia-honda-toyota-ford-among-124428517.html)
 - Jun 10 - [Nvidia sparks chatter over possible Dow inclusion after stock split](https://finance.yahoo.com/news/nvidia-sparks-chatter-over-possible-120113773.html)
 - Jun 10 - [Raging fires in Brazil wetlands surge 980 percent](https://www.yahoo.com/news/raging-fires-brazil-wetlands-surge-113310475.html)
 <!-- feed end -->
