@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [The US Debt Is at $34 Trillion: Why Are We Struggling To Pay Our Loans If the Government Can’t?](https://finance.yahoo.com/news/us-debt-34-trillion-why-220009992.html)
-- Jun 09 - [Trump tells rally-goers not to die in searing Vegas heat: ‘I don’t care about you, I just want your vote’](https://www.yahoo.com/news/trump-tells-rally-goers-not-215430076.html)
 - Jun 09 - [North Korea leader's sister warns of new response against S.Korean loudspeakers, leaflets](https://www.yahoo.com/news/north-korea-leaders-sister-warns-214259717.html)
-- Jun 09 - [Employee killed in apparent Lancaster County workplace accident](https://www.yahoo.com/news/employee-killed-apparent-lancaster-county-213048138.html)
+- Jun 09 - [Motorcyclist dies in crash that causes closure of I-95 in Volsuia County, troopers said](https://www.yahoo.com/news/motorcyclist-dies-crash-causes-closure-213454837.html)
 - Jun 09 - [People Who Were Introverted as Children Usually Develop These 11 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-introverted-children-usually-201000088.html)
+- Jun 09 - ['Ultimate surprise': How an Israeli raid freed 4 hostages and killed scores of Palestinians in Gaza](https://www.yahoo.com/news/ultimate-surprise-israeli-raid-freed-200843594.html)
+- Jun 09 - [One of nation's most polluted beaches making California residents sick](https://www.yahoo.com/news/one-nations-most-polluted-beaches-191124491.html)
 <!-- feed end -->
 
 ### Onstream
