@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Barclays Warns Treasuries Overhaul Will Stunt Systematic Trading](https://finance.yahoo.com/news/barclays-warns-treasuries-overhaul-stunt-140000656.html)
-- Jun 10 - [Fact Check: Image Claims to Show Giant Octopus Photographed on Indonesian Coast. Here's What It Is](https://www.yahoo.com/tech/fact-check-image-claims-show-130000528.html)
-- Jun 10 - [Kia, Honda, Toyota, Ford among 687,000 vehicles recalled: Check car recalls here](https://www.yahoo.com/news/kia-honda-toyota-ford-among-124428517.html)
-- Jun 10 - [Nvidia sparks chatter over possible Dow inclusion after stock split](https://finance.yahoo.com/news/nvidia-sparks-chatter-over-possible-120113773.html)
-- Jun 10 - [Raging fires in Brazil wetlands surge 980 percent](https://www.yahoo.com/news/raging-fires-brazil-wetlands-surge-113310475.html)
+- Jun 10 - [Chrysler recalls more than 211,000 SUVs and pickup trucks due to software malfunction](https://finance.yahoo.com/news/chrysler-recalls-more-211-000-152720561.html)
+- Jun 10 - [6 rescued by Coast Guard after boat catches fire, sinks in Lake Tahoe, Placer sheriff says](https://www.yahoo.com/news/6-rescued-coast-guard-boat-152325044.html)
+- Jun 10 - [Russia was scared to fly its Su-57 in combat, fearing a loss. Ukraine scored a hit on one anyway.](https://www.yahoo.com/news/russia-scared-fly-su-57-152227546.html)
+- Jun 10 - [Reclassifying Cannabis: A Potential Game-Changer For Real Estate And Lending In The Industry](https://finance.yahoo.com/news/reclassifying-cannabis-potential-game-changer-150016310.html)
+- Jun 10 - [Midlands car lot says it was forced out for new development. Leaders say it was a nuisance](https://www.yahoo.com/news/midlands-car-lot-says-forced-141652970.html)
 <!-- feed end -->
 
 ### Onstream
