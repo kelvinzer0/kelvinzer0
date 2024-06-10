@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [A Gen Xer got $110,000 in student loans forgiven after he'd paid off more than he borrowed. It's allowed him to scrap his plans to work part-time in retirement.](https://www.yahoo.com/news/gen-xer-got-110-000-095901249.html)
-- Jun 10 - [Mother blames VA in Navy vet’s death: ‘Look at what they’ve done’](https://www.yahoo.com/news/mother-blames-va-navy-vet-090000652.html)
-- Jun 10 - [Rochester night spot was an instant hit when it opened in 1999. 5 years later it was gone](https://www.yahoo.com/lifestyle/rochester-night-spot-instant-hit-071028487.html)
-- Jun 10 - [Olaf Scholz has been humiliated – and Germany is now in crisis](https://www.yahoo.com/news/olaf-scholz-humiliated-germany-now-063054949.html)
-- Jun 10 - [Mark Hamill Torches Trump Over Moment He 'Accidentally' Told The Truth](https://www.yahoo.com/entertainment/mark-hamill-torches-trump-over-062019054.html)
+- Jun 10 - [15 Affordable, Promising Cities To Buy Real Estate in 2024](https://finance.yahoo.com/news/15-affordable-promising-cities-buy-140018783.html)
+- Jun 10 - [You Won't Believe What Palantir CEO Alex Karp Just Said](https://finance.yahoo.com/news/wont-believe-palantir-ceo-alex-120000312.html)
+- Jun 10 - [The US is still holding Ukraine back by limiting what it can take out on Russian soil: ISW](https://www.yahoo.com/news/us-still-holding-ukraine-back-114003873.html)
+- Jun 10 - [Iowa City school board to appoint new board member Tuesday: Meet the 7 candidates](https://www.yahoo.com/news/iowa-city-school-board-appoint-110251666.html)
+- Jun 10 - [Ukraine's air force may keep some F-16 warplanes abroad to protect them from Russian strikes](https://www.yahoo.com/news/ukraines-air-force-may-keep-100143298.html)
 <!-- feed end -->
 
 ### Onstream
