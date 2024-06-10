@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [European nations compete for Chinese EV factories, jobs even as EU weighs tariffs](https://finance.yahoo.com/news/european-nations-compete-chinese-ev-060305268.html)
-- Jun 10 - [Iraq's Mosul springs back to life 10 years after it fell to ISIS](https://www.yahoo.com/news/iraqs-mosul-springs-back-life-050434578.html)
-- Jun 10 - [Israel-Gaza live updates: US calls for Security Council vote on Gaza cease-fire, hostage deal resolution](https://www.yahoo.com/news/israel-gaza-live-updates-us-040200812.html)
+- Jun 10 - [Switzerland says 90 states, organizations signed up for Ukraine summit](https://www.yahoo.com/news/switzerland-says-90-states-organizations-072530040.html)
 - Jun 10 - [Trump fumes over tech problems at his Las Vegas rally, threatens not to pay the crew](https://www.yahoo.com/news/trump-fumes-over-tech-problems-023746603.html)
 - Jun 10 - [Georgia Republican convicted in Jan. 6 riot walks out during televised congressional primary debate](https://www.yahoo.com/news/georgia-republican-convicted-jan-6-011721689.html)
+- Jun 09 - [Donald Trump accuses the Biden Administration of something Trump has threatened to do](https://www.yahoo.com/news/donald-trump-accuses-biden-administration-235051411.html)
+- Jun 09 - [Widow of IS leader reveals details of their life together](https://www.yahoo.com/news/widow-leader-reveals-details-life-234601830.html)
 <!-- feed end -->
 
 ### Onstream
