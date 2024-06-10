@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [European nations compete for Chinese EV factories, jobs even as EU weighs tariffs](https://finance.yahoo.com/news/european-nations-compete-chinese-ev-060305268.html)
+- Jun 10 - [Iraq's Mosul springs back to life 10 years after it fell to ISIS](https://www.yahoo.com/news/iraqs-mosul-springs-back-life-050434578.html)
+- Jun 10 - [Israel-Gaza live updates: US calls for Security Council vote on Gaza cease-fire, hostage deal resolution](https://www.yahoo.com/news/israel-gaza-live-updates-us-040200812.html)
 - Jun 10 - [Trump fumes over tech problems at his Las Vegas rally, threatens not to pay the crew](https://www.yahoo.com/news/trump-fumes-over-tech-problems-023746603.html)
 - Jun 10 - [Georgia Republican convicted in Jan. 6 riot walks out during televised congressional primary debate](https://www.yahoo.com/news/georgia-republican-convicted-jan-6-011721689.html)
-- Jun 09 - [Widow of IS leader reveals details of their life together](https://www.yahoo.com/news/widow-leader-reveals-details-life-234601830.html)
-- Jun 09 - [North Korea leader's sister warns of new response against S.Korean loudspeakers, leaflets](https://www.yahoo.com/news/north-korea-leaders-sister-warns-214259717.html)
-- Jun 09 - [People Who Were Introverted as Children Usually Develop These 11 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-introverted-children-usually-201000088.html)
 <!-- feed end -->
 
 ### Onstream
