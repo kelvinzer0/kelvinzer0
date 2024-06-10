@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [Asia shares stumble; political uncertainty grips euro](https://finance.yahoo.com/news/asia-shares-stumble-political-uncertainty-020452017.html)
 - Jun 10 - [Georgia Republican convicted in Jan. 6 riot walks out during televised congressional primary debate](https://www.yahoo.com/news/georgia-republican-convicted-jan-6-011721689.html)
-- Jun 10 - [Milwaukee, state leaders mourn death of Marquette President Michael Lovell](https://www.yahoo.com/news/milwaukee-state-leaders-mourn-death-011259723.html)
-- Jun 09 - [Netanyahu asks Gantz not to resign from Israel’s War Cabinet](https://www.yahoo.com/news/netanyahu-asks-gantz-not-resign-234639219.html)
+- Jun 09 - [Widow of IS leader reveals details of their life together](https://www.yahoo.com/news/widow-leader-reveals-details-life-234601830.html)
 - Jun 09 - [I’m a Frugal Self-Made Millionaire: 6 Things I Never Waste Money On](https://finance.yahoo.com/news/m-frugal-self-made-millionaire-110118358.html)
 - Jun 09 - [Chechen leader Kadyrov says Russian troops capture Ukrainian border village](https://www.yahoo.com/news/chechen-leader-kadyrov-says-russian-220237163.html)
 <!-- feed end -->
