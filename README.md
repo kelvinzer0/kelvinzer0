@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Trump Demands Biden Remove Ad of Him Calling Dead Soldiers ‘Suckers’ and ‘Losers’](https://www.yahoo.com/news/trump-demands-biden-remove-ad-093232346.html)
-- Jun 10 - [Dutch Bros, Chick-fil-A, In-N-Out coming to Trinity Parkway in Stockton. Not all are happy](https://www.yahoo.com/news/dutch-bros-chick-fil-n-090818036.html)
-- Jun 10 - [Is downtown Augusta safe? Residents give their thoughts after Saturday shooting](https://www.yahoo.com/news/downtown-augusta-safe-residents-thoughts-080431664.html)
+- Jun 10 - [A Gen Xer got $110,000 in student loans forgiven after he'd paid off more than he borrowed. It's allowed him to scrap his plans to work part-time in retirement.](https://www.yahoo.com/news/gen-xer-got-110-000-095901249.html)
+- Jun 10 - [Mother blames VA in Navy vet’s death: ‘Look at what they’ve done’](https://www.yahoo.com/news/mother-blames-va-navy-vet-090000652.html)
+- Jun 10 - [Rochester night spot was an instant hit when it opened in 1999. 5 years later it was gone](https://www.yahoo.com/lifestyle/rochester-night-spot-instant-hit-071028487.html)
+- Jun 10 - [Olaf Scholz has been humiliated – and Germany is now in crisis](https://www.yahoo.com/news/olaf-scholz-humiliated-germany-now-063054949.html)
 - Jun 10 - [Mark Hamill Torches Trump Over Moment He 'Accidentally' Told The Truth](https://www.yahoo.com/entertainment/mark-hamill-torches-trump-over-062019054.html)
-- Jun 10 - [Trump will speak to a Christian group that calls for abortion to be 'eradicated entirely'](https://www.yahoo.com/news/trump-speak-christian-group-calls-043527970.html)
 <!-- feed end -->
 
 ### Onstream
