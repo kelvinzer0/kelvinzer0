@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [China urges greater BRICS role as Western sanctions mount](https://www.yahoo.com/news/china-urges-greater-brics-role-105024061.html)
-- Jun 11 - [Gary Glitter victim awarded more than £500,000 in damages for abuse at hands of disgraced rock star](https://www.yahoo.com/news/gary-glitter-victim-wins-508-092729621.html)
+- Jun 11 - [King and Queen to visit Channel Islands after doctors give him the OK](https://www.yahoo.com/lifestyle/king-queen-visit-channel-islands-115013946.html)
+- Jun 11 - [GameStop’s price declines, 'time decay’ hammer Roaring Kitty’s option position](https://www.yahoo.com/news/gamestop-price-declines-time-decay-101141110.html)
 - Jun 11 - [Nicolle Wallace Flags A 'Slow-Moving Scandal' Involving Donald Trump And Fox News](https://www.yahoo.com/news/nicolle-wallace-flags-slow-moving-100147367.html)
-- Jun 11 - [Amazon workers ‘made to pledge not to take water or bathroom breaks’ during 50C heatwave](https://www.yahoo.com/news/amazon-workers-made-pledge-not-093651739.html)
 - Jun 11 - [Rescued Israeli hostages beaten ‘almost every day’ in Hamas captivity](https://www.yahoo.com/news/rescued-israeli-hostages-beaten-almost-091625121.html)
+- Jun 11 - [Rare lady crab spotted at Hampton Beach: Why is this ‘vicious’ crab in the Gulf of Maine?](https://www.yahoo.com/news/rare-lady-crab-spotted-hampton-090628056.html)
 <!-- feed end -->
 
 ### Onstream
