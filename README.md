@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Four US college instructors stabbed in public park in China](https://www.yahoo.com/news/four-us-college-instructors-hurt-011521932.html)
-- Jun 11 - [3 Big Social Security Changes Coming in 2025 May Surprise Many Americans](https://finance.yahoo.com/news/3-big-social-security-changes-074800945.html)
-- Jun 11 - [Taiwan arrests former Chinese navy captain whose speedboat entered Taipei harbour](https://www.yahoo.com/news/taiwan-arrests-former-chinese-navy-023027197.html)
-- Jun 11 - [These 17 Bizarre Photos Might Just Convince You There's Something Beyond This World — For Better Or Worse](https://www.yahoo.com/lifestyle/17-mystifying-photos-might-just-021602023.html)
-- Jun 11 - [Plant-based ultraprocessed foods linked to heart disease, early death, study says](https://www.yahoo.com/news/not-plant-based-foods-equal-223016973.html)
+- Jun 11 - [China urges greater BRICS role as Western sanctions mount](https://www.yahoo.com/news/china-urges-greater-brics-role-105024061.html)
+- Jun 11 - [Gary Glitter victim awarded more than £500,000 in damages for abuse at hands of disgraced rock star](https://www.yahoo.com/news/gary-glitter-victim-wins-508-092729621.html)
+- Jun 11 - [Nicolle Wallace Flags A 'Slow-Moving Scandal' Involving Donald Trump And Fox News](https://www.yahoo.com/news/nicolle-wallace-flags-slow-moving-100147367.html)
+- Jun 11 - [Amazon workers ‘made to pledge not to take water or bathroom breaks’ during 50C heatwave](https://www.yahoo.com/news/amazon-workers-made-pledge-not-093651739.html)
+- Jun 11 - [Rescued Israeli hostages beaten ‘almost every day’ in Hamas captivity](https://www.yahoo.com/news/rescued-israeli-hostages-beaten-almost-091625121.html)
 <!-- feed end -->
 
 ### Onstream
