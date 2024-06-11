@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Four US college instructors stabbed in public park in China](https://www.yahoo.com/news/four-us-college-instructors-hurt-011521932.html)
-- Jun 11 - [Chinese stocks slump as economic concerns spoil investor mood](https://finance.yahoo.com/news/chinese-stocks-slump-economic-concerns-033843507.html)
-- Jun 11 - [Trump blasts "two-tiered justice system,” but he’s the one with special treatment](https://www.yahoo.com/news/trump-blasts-two-tiered-justice-033801297.html)
-- Jun 11 - [South Korean troops fired warning shots after North Korean soldiers briefly crossed land border](https://www.yahoo.com/news/south-korean-troops-fired-warning-013456419.html)
+- Jun 11 - [More sugar than coke, more caffeine than coffee – the ‘dangerous’ energy drinks that Britain’s teens are hooked on](https://www.yahoo.com/news/more-sugar-coke-more-caffeine-180000914.html)
+- Jun 11 - [Russia's new co-operation pact with Iran suspended, RIA agency reports](https://www.yahoo.com/news/russias-co-operation-pact-iran-043240157.html)
 - Jun 11 - [Indians get hooked on 10-minute grocery apps, squeezing small retailers](https://finance.yahoo.com/news/indians-hooked-10-minute-grocery-013326019.html)
+- Jun 11 - [Philippines must prepare as external threats grow, president says](https://www.yahoo.com/news/philippines-must-prepare-external-threat-000038079.html)
+- Jun 10 - [U.S. Army Officer Confirms Russian A-50 Radar Jet Was Shot Down With Patriot Missile](https://www.yahoo.com/news/u-army-officer-confirms-russian-225524455.html)
 <!-- feed end -->
 
 ### Onstream
