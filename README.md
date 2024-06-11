@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Apple to Stage the Stage for Broader Generative AI Usage: TECHnalysis](https://finance.yahoo.com/video/apple-stage-stage-broader-generative-033245516.html)
+- Jun 11 - [J.D. Vance reveals question he was asked in Trump’s VP vetting process](https://www.yahoo.com/news/j-d-vance-reveals-asked-032227699.html)
 - Jun 11 - [‘I own my mistakes’: Chief Balderrama addresses ‘inappropriate off-duty’ relationship](https://www.yahoo.com/news/own-mistakes-chief-balderrama-addresses-022837276.html)
 - Jun 11 - [South Korean troops fired warning shots after North Korean soldiers briefly crossed land border](https://www.yahoo.com/news/south-korean-troops-fired-warning-013456419.html)
+- Jun 11 - [Indians get hooked on 10-minute grocery apps, squeezing small retailers](https://finance.yahoo.com/news/indians-hooked-10-minute-grocery-013326019.html)
 - Jun 11 - [Plant-based ultraprocessed foods linked to heart disease, early death, study says](https://www.yahoo.com/news/not-plant-based-foods-equal-223016973.html)
-- Jun 11 - [Philippines must prepare as external threats grow, president says](https://www.yahoo.com/news/philippines-must-prepare-external-threat-000038079.html)
 <!-- feed end -->
 
 ### Onstream
