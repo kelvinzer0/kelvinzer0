@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Trump's company: New Jersey golf club liquor license probe doesn't apply to ex-president](https://www.yahoo.com/news/trumps-company-jersey-golf-club-205023720.html)
+- Jun 11 - [Operations of the hotly contested East Coast natural gas pipeline can begin, regulators say](https://www.yahoo.com/news/operations-hotly-contested-east-coast-225032137.html)
+- Jun 11 - [Oregon man who spiked his daughter's friends smoothies with sedatives during sleepover sentenced to 2 years in prison](https://www.yahoo.com/news/oregon-man-spiked-daughters-friends-221750069.html)
+- Jun 11 - [Morning Bid: China CPI lands ahead of U.S. CPI, Fed double whammy](https://finance.yahoo.com/news/morning-bid-china-cpi-lands-214808568.html)
 - Jun 11 - [Hamas responds to Egypt, Qatar on Gaza ceasefire plan; source says group proposes new timeline](https://www.yahoo.com/news/hamas-responds-egypt-qatar-gaza-193806020.html)
-- Jun 11 - [US-made Abrams tanks are fighting a dangerous new kind of war, but Ukrainians are building unusual armor to help them survive it](https://www.yahoo.com/news/us-made-abrams-tanks-fighting-191836418.html)
-- Jun 11 - [Clarence Thomas raised him 'as a son.' Now he's facing 25-plus years on weapons and drug charges.](https://www.yahoo.com/news/clarence-thomas-raised-him-son-190827914.html)
-- Jun 11 - [Reported birth of rare white buffalo calf in Yellowstone park fulfills Lakota prophecy](https://www.yahoo.com/news/reported-birth-rare-white-buffalo-184557014.html)
+- Jun 11 - [Gainesville finishes construction on road that helps connect Newberry and Archer roads](https://www.yahoo.com/news/gainesville-finishes-construction-road-helps-190427576.html)
 <!-- feed end -->
 
 ### Onstream
