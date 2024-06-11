@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [ISU, McFarland nearing $50,000 a year rental agreement as CYTown’s first tenant](https://finance.yahoo.com/news/isu-mcfarland-nearing-50-000-183738731.html)
-- Jun 11 - [100 Top Money Tips From Tony Robbins That Are Always Relevant](https://finance.yahoo.com/news/100-top-money-tips-tony-180125908.html)
+- Jun 11 - [Paramount stock plummets after Shari Redstone kills Skydance deal](https://finance.yahoo.com/news/paramount-stock-plummets-after-shari-redstone-kills-skydance-deal-204129885.html)
+- Jun 11 - [Hamas responds to Egypt, Qatar on Gaza ceasefire plan; source says group proposes new timeline](https://www.yahoo.com/news/hamas-responds-egypt-qatar-gaza-193806020.html)
+- Jun 11 - [Reported birth of rare white buffalo calf in Yellowstone park fulfills Lakota prophecy](https://www.yahoo.com/news/reported-birth-rare-white-buffalo-184557014.html)
+- Jun 11 - [American Airlines Flight Attendants Can't Afford Food, Shelter](https://autos.yahoo.com/american-airlines-flight-attendants-cant-174500748.html)
 - Jun 11 - [Sandy Hook shooting survivors to graduate with mixed emotions without 20 of their classmates](https://www.yahoo.com/news/sandy-hook-shooting-survivors-graduate-173219369.html)
-- Jun 11 - [Donald Trump Gave a Pretty Honest Answer About Melania's Feelings After His Conviction](https://www.yahoo.com/entertainment/donald-trump-gave-pretty-honest-173031540.html)
-- Jun 11 - [Singer sues hospital, says staff thought he was mentally ill and wasn't member of Four Tops](https://www.yahoo.com/entertainment/singer-sues-hospital-says-staff-164443466.html)
 <!-- feed end -->
 
 ### Onstream
