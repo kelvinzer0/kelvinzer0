@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [French Poll Puts Le Pen in Lead on 35% in Election First Round](https://finance.yahoo.com/news/french-poll-puts-le-pen-152809534.html)
+- Jun 11 - [Defense attorney for rapper Young Thug found in contempt, ordered to spend 10 weekends in jail](https://www.yahoo.com/news/defense-attorney-rapper-young-thug-161413188.html)
+- Jun 11 - [Hamas leader said civilian death toll could benefit militant group in Gaza war, WSJ reports](https://www.yahoo.com/news/hamas-leader-says-israelis-where-131130670.html)
+- Jun 11 - [‘A unicorn’ of a cat discovered at Oregon shelter. Find out why the kitten is so rare](https://www.yahoo.com/lifestyle/unicorn-cat-discovered-oregon-shelter-154443047.html)
 - Jun 11 - [Boeing sales tumble as the company gets no orders for the 737 Max for the second straight month](https://finance.yahoo.com/news/boeing-sales-tumble-company-gets-151533286.html)
-- Jun 11 - [Hunter Biden trial live updates: Hunter Biden guilty on all charges in historic gun case](https://www.yahoo.com/news/hunter-biden-jury-verdict-reached-150506678.html)
-- Jun 11 - [Apple stock surges to record high after AI announcements](https://finance.yahoo.com/news/apple-stock-surges-to-record-high-after-ai-announcements-150325922.html)
-- Jun 11 - [Pamela Smart, serving life, accepts responsibility for her husband's 1990 killing for the first time](https://www.yahoo.com/news/pamela-smart-serving-life-accepts-145237016.html)
+- Jun 11 - [US bars imports from China footwear, seafood, aluminum firms over Uyghur labor](https://www.yahoo.com/news/us-bars-imports-footwear-seafood-141338282.html)
 <!-- feed end -->
 
 ### Onstream
