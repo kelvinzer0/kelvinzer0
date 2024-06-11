@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [J.D. Vance reveals question he was asked in Trump’s VP vetting process](https://www.yahoo.com/news/j-d-vance-reveals-asked-032227699.html)
-- Jun 11 - [‘I own my mistakes’: Chief Balderrama addresses ‘inappropriate off-duty’ relationship](https://www.yahoo.com/news/own-mistakes-chief-balderrama-addresses-022837276.html)
-- Jun 11 - [South Korean troops fired warning shots after North Korean soldiers briefly crossed land border](https://www.yahoo.com/news/south-korean-troops-fired-warning-013456419.html)
-- Jun 11 - [Indians get hooked on 10-minute grocery apps, squeezing small retailers](https://finance.yahoo.com/news/indians-hooked-10-minute-grocery-013326019.html)
+- Jun 11 - [Fire at Thailand's famous Chatuchak Weekend Market kills hundreds of caged animals](https://www.yahoo.com/news/fire-thailands-famous-chatuchak-weekend-060215868.html)
 - Jun 11 - [Plant-based ultraprocessed foods linked to heart disease, early death, study says](https://www.yahoo.com/news/not-plant-based-foods-equal-223016973.html)
+- Jun 11 - [Alito and his wife are captured in audio recordings talking about abortion leak, flag controversy](https://www.yahoo.com/news/alito-wife-captured-audio-recordings-002925683.html)
+- Jun 10 - [Junk removal company in Northern California caught dumping trash illegally](https://www.yahoo.com/news/junk-removal-company-northern-california-230819208.html)
+- Jun 10 - [U.S. Army Officer Confirms Russian A-50 Radar Jet Was Shot Down With Patriot Missile](https://www.yahoo.com/news/u-army-officer-confirms-russian-225524455.html)
 <!-- feed end -->
 
 ### Onstream
