@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [King and Queen to visit Channel Islands after doctors give him the OK](https://www.yahoo.com/lifestyle/king-queen-visit-channel-islands-115013946.html)
 - Jun 11 - [GameStop’s price declines, 'time decay’ hammer Roaring Kitty’s option position](https://www.yahoo.com/news/gamestop-price-declines-time-decay-101141110.html)
-- Jun 11 - [Nicolle Wallace Flags A 'Slow-Moving Scandal' Involving Donald Trump And Fox News](https://www.yahoo.com/news/nicolle-wallace-flags-slow-moving-100147367.html)
+- Jun 11 - [Nicolle Wallace Flags A ‘Slow-Moving Scandal’ Involving Donald Trump And Fox News](https://www.yahoo.com/news/nicolle-wallace-flags-slow-moving-100147367.html)
 - Jun 11 - [Rescued Israeli hostages beaten ‘almost every day’ in Hamas captivity](https://www.yahoo.com/news/rescued-israeli-hostages-beaten-almost-091625121.html)
-- Jun 11 - [Rare lady crab spotted at Hampton Beach: Why is this ‘vicious’ crab in the Gulf of Maine?](https://www.yahoo.com/news/rare-lady-crab-spotted-hampton-090628056.html)
+- Jun 11 - [US lifts ban on sending weapons to a controversial Ukrainian military unit](https://www.yahoo.com/news/us-lifts-weapons-ban-high-084249194.html)
+- Jun 11 - [Malawi's vice president and 9 others are confirmed dead after the wreckage of their plane is located](https://www.yahoo.com/news/soldiers-police-forest-rangers-continue-080555066.html)
 <!-- feed end -->
 
 ### Onstream
