@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [ISU, McFarland nearing $50,000 a year rental agreement as CYTown’s first tenant](https://finance.yahoo.com/news/isu-mcfarland-nearing-50-000-183738731.html)
+- Jun 11 - [100 Top Money Tips From Tony Robbins That Are Always Relevant](https://finance.yahoo.com/news/100-top-money-tips-tony-180125908.html)
 - Jun 11 - [Sandy Hook shooting survivors to graduate with mixed emotions without 20 of their classmates](https://www.yahoo.com/news/sandy-hook-shooting-survivors-graduate-173219369.html)
-- Jun 11 - [Hunter Biden's Reaction To Guilty Verdict Raises Eyebrows](https://www.yahoo.com/news/hunter-bidens-reaction-guilty-verdict-163041541.html)
-- Jun 11 - [King Charles’ Unusual Red Portrait Received a Major Transformation & It’s Not What You’d Expect](https://www.yahoo.com/entertainment/king-charles-unusual-red-portrait-162020149.html)
-- Jun 11 - [Defense attorney for rapper Young Thug found in contempt, ordered to spend 10 weekends in jail](https://www.yahoo.com/news/defense-attorney-rapper-young-thug-161413188.html)
-- Jun 11 - [‘A unicorn’ of a cat discovered at Oregon shelter. Find out why the kitten is so rare](https://www.yahoo.com/lifestyle/unicorn-cat-discovered-oregon-shelter-154443047.html)
+- Jun 11 - [Donald Trump Gave a Pretty Honest Answer About Melania's Feelings After His Conviction](https://www.yahoo.com/entertainment/donald-trump-gave-pretty-honest-173031540.html)
+- Jun 11 - [Singer sues hospital, says staff thought he was mentally ill and wasn't member of Four Tops](https://www.yahoo.com/entertainment/singer-sues-hospital-says-staff-164443466.html)
 <!-- feed end -->
 
 ### Onstream
