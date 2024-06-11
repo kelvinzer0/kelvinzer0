@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Paramount stock plummets after Shari Redstone kills Skydance deal](https://finance.yahoo.com/news/paramount-stock-plummets-after-shari-redstone-kills-skydance-deal-204129885.html)
+- Jun 11 - [Trump's company: New Jersey golf club liquor license probe doesn't apply to ex-president](https://www.yahoo.com/news/trumps-company-jersey-golf-club-205023720.html)
 - Jun 11 - [Hamas responds to Egypt, Qatar on Gaza ceasefire plan; source says group proposes new timeline](https://www.yahoo.com/news/hamas-responds-egypt-qatar-gaza-193806020.html)
+- Jun 11 - [US-made Abrams tanks are fighting a dangerous new kind of war, but Ukrainians are building unusual armor to help them survive it](https://www.yahoo.com/news/us-made-abrams-tanks-fighting-191836418.html)
+- Jun 11 - [Clarence Thomas raised him 'as a son.' Now he's facing 25-plus years on weapons and drug charges.](https://www.yahoo.com/news/clarence-thomas-raised-him-son-190827914.html)
 - Jun 11 - [Reported birth of rare white buffalo calf in Yellowstone park fulfills Lakota prophecy](https://www.yahoo.com/news/reported-birth-rare-white-buffalo-184557014.html)
-- Jun 11 - [American Airlines Flight Attendants Can't Afford Food, Shelter](https://autos.yahoo.com/american-airlines-flight-attendants-cant-174500748.html)
-- Jun 11 - [Sandy Hook shooting survivors to graduate with mixed emotions without 20 of their classmates](https://www.yahoo.com/news/sandy-hook-shooting-survivors-graduate-173219369.html)
 <!-- feed end -->
 
 ### Onstream
