@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [King Charles’ new portrait covered in graffiti by activists at London gallery](https://www.independent.co.uk/news/uk/home-news/king-charles-portrait-vandalised-rspca-animal-rising-b2560535.html)
-- Jun 11 - [Condemned Missouri inmate is 'accepting is fate,' his spiritual adviser says](https://www.yahoo.com/news/condemned-missouri-inmate-accepting-fate-144621393.html)
-- Jun 11 - [NHC monitoring 1st tropical disturbance of the season near Florida](https://www.yahoo.com/news/nhc-monitoring-tropical-disturbance-near-123324863.html)
-- Jun 11 - [What’s that being built off Highway 1? New Cuesta College building taking shape](https://www.yahoo.com/news/being-built-off-highway-1-120000883.html)
-- Jun 11 - [GameStop’s price declines, 'time decay’ hammer Roaring Kitty’s option position](https://www.yahoo.com/news/gamestop-price-declines-time-decay-101141110.html)
+- Jun 11 - [French Poll Puts Le Pen in Lead on 35% in Election First Round](https://finance.yahoo.com/news/french-poll-puts-le-pen-152809534.html)
+- Jun 11 - [Boeing sales tumble as the company gets no orders for the 737 Max for the second straight month](https://finance.yahoo.com/news/boeing-sales-tumble-company-gets-151533286.html)
+- Jun 11 - [Hunter Biden trial live updates: Hunter Biden guilty on all charges in historic gun case](https://www.yahoo.com/news/hunter-biden-jury-verdict-reached-150506678.html)
+- Jun 11 - [Apple stock surges to record high after AI announcements](https://finance.yahoo.com/news/apple-stock-surges-to-record-high-after-ai-announcements-150325922.html)
+- Jun 11 - [Pamela Smart, serving life, accepts responsibility for her husband's 1990 killing for the first time](https://www.yahoo.com/news/pamela-smart-serving-life-accepts-145237016.html)
 <!-- feed end -->
 
 ### Onstream
