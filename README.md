@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Sandy Hook shooting survivors to graduate with mixed emotions without 20 of their classmates](https://www.yahoo.com/news/sandy-hook-shooting-survivors-graduate-173219369.html)
+- Jun 11 - [Hunter Biden's Reaction To Guilty Verdict Raises Eyebrows](https://www.yahoo.com/news/hunter-bidens-reaction-guilty-verdict-163041541.html)
+- Jun 11 - [King Charles’ Unusual Red Portrait Received a Major Transformation & It’s Not What You’d Expect](https://www.yahoo.com/entertainment/king-charles-unusual-red-portrait-162020149.html)
 - Jun 11 - [Defense attorney for rapper Young Thug found in contempt, ordered to spend 10 weekends in jail](https://www.yahoo.com/news/defense-attorney-rapper-young-thug-161413188.html)
-- Jun 11 - [Hamas leader said civilian death toll could benefit militant group in Gaza war, WSJ reports](https://www.yahoo.com/news/hamas-leader-says-israelis-where-131130670.html)
 - Jun 11 - [‘A unicorn’ of a cat discovered at Oregon shelter. Find out why the kitten is so rare](https://www.yahoo.com/lifestyle/unicorn-cat-discovered-oregon-shelter-154443047.html)
-- Jun 11 - [Boeing sales tumble as the company gets no orders for the 737 Max for the second straight month](https://finance.yahoo.com/news/boeing-sales-tumble-company-gets-151533286.html)
-- Jun 11 - [US bars imports from China footwear, seafood, aluminum firms over Uyghur labor](https://www.yahoo.com/news/us-bars-imports-footwear-seafood-141338282.html)
 <!-- feed end -->
 
 ### Onstream
