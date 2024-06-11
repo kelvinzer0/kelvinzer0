@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [More sugar than coke, more caffeine than coffee – the ‘dangerous’ energy drinks that Britain’s teens are hooked on](https://www.yahoo.com/news/more-sugar-coke-more-caffeine-180000914.html)
-- Jun 11 - [Russia's new co-operation pact with Iran suspended, RIA agency reports](https://www.yahoo.com/news/russias-co-operation-pact-iran-043240157.html)
-- Jun 11 - [Indians get hooked on 10-minute grocery apps, squeezing small retailers](https://finance.yahoo.com/news/indians-hooked-10-minute-grocery-013326019.html)
-- Jun 11 - [Philippines must prepare as external threats grow, president says](https://www.yahoo.com/news/philippines-must-prepare-external-threat-000038079.html)
-- Jun 10 - [U.S. Army Officer Confirms Russian A-50 Radar Jet Was Shot Down With Patriot Missile](https://www.yahoo.com/news/u-army-officer-confirms-russian-225524455.html)
+- Jun 11 - [Four US college instructors stabbed in public park in China](https://www.yahoo.com/news/four-us-college-instructors-hurt-011521932.html)
+- Jun 11 - [3 Big Social Security Changes Coming in 2025 May Surprise Many Americans](https://finance.yahoo.com/news/3-big-social-security-changes-074800945.html)
+- Jun 11 - [Taiwan arrests former Chinese navy captain whose speedboat entered Taipei harbour](https://www.yahoo.com/news/taiwan-arrests-former-chinese-navy-023027197.html)
+- Jun 11 - [These 17 Bizarre Photos Might Just Convince You There's Something Beyond This World — For Better Or Worse](https://www.yahoo.com/lifestyle/17-mystifying-photos-might-just-021602023.html)
+- Jun 11 - [Plant-based ultraprocessed foods linked to heart disease, early death, study says](https://www.yahoo.com/news/not-plant-based-foods-equal-223016973.html)
 <!-- feed end -->
 
 ### Onstream
