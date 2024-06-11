@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [GameStop’s price declines, 'time decay’ hammer Roaring Kitty’s option position](https://www.yahoo.com/news/gamestop-price-declines-time-decay-101141110.html)
-- Jun 11 - [Nicolle Wallace Flags A ‘Slow-Moving Scandal’ Involving Donald Trump And Fox News](https://www.yahoo.com/news/nicolle-wallace-flags-slow-moving-100147367.html)
-- Jun 11 - [Rescued Israeli hostages beaten ‘almost every day’ in Hamas captivity](https://www.yahoo.com/news/rescued-israeli-hostages-beaten-almost-091625121.html)
-- Jun 11 - [US lifts ban on sending weapons to a controversial Ukrainian military unit](https://www.yahoo.com/news/us-lifts-weapons-ban-high-084249194.html)
-- Jun 11 - [Malawi's vice president and 9 others are confirmed dead after the wreckage of their plane is located](https://www.yahoo.com/news/soldiers-police-forest-rangers-continue-080555066.html)
+- Jun 11 - [New King Charles portrait vandalized by activists at London gallery](https://www.yahoo.com/news/king-charles-portrait-vandalized-animal-132433784.html)
+- Jun 11 - [Hamas leader says ‘we have the Israelis right where we want them’ in leaked messages, WSJ reports](https://www.yahoo.com/news/hamas-leader-says-israelis-where-131130670.html)
+- Jun 11 - [Three High-Yield Dividend Stocks Offering Up To 8.9% Returns](https://finance.yahoo.com/news/three-high-yield-dividend-stocks-130935697.html)
+- Jun 11 - [Ryanair flies British couple to the wrong country after ‘unbelievable’ airport mistake](https://www.yahoo.com/news/ryanair-flies-british-couple-wrong-102424440.html)
+- Jun 11 - [Fire breaks out at historic Cape Cod hotel](https://www.yahoo.com/news/fire-breaks-historic-cape-cod-110019067.html)
 <!-- feed end -->
 
 ### Onstream
