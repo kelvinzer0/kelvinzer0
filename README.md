@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Haiti PM condemns killing of police officers in gang ambush](https://www.yahoo.com/news/haiti-pm-condemns-killing-police-224839560.html)
-- Jun 10 - [Judge denies bid to dismiss certain counts in Trump classified documents indictment](https://www.yahoo.com/news/judge-denies-bid-dismiss-certain-223539422.html)
-- Jun 10 - [Shaver drowning victim ID’d as Orosi teen. He had life vest but didn’t clip it, sheriff says](https://www.yahoo.com/news/shaver-drowning-victim-id-d-222433563.html)
-- Jun 10 - [Elon Musk threatens to ban iPhones and MacBooks at his companies after Apple announces OpenAI partnership](https://www.yahoo.com/tech/elon-musk-threatens-ban-iphones-222341654.html)
+- Jun 10 - [U.S. Army Officer Confirms Russian A-50 Radar Jet Was Shot Down With Patriot Missile](https://www.yahoo.com/news/u-army-officer-confirms-russian-225524455.html)
+- Jun 10 - [Judge strikes paragraph from Trump classified docs indictment but denies request to dismiss charges](https://www.yahoo.com/news/judge-denies-bid-dismiss-certain-223539422.html)
 - Jun 10 - [Musk threatens Apple device ban if OpenAI integrated at OS level](https://finance.yahoo.com/video/musk-threatens-apple-device-ban-212643736.html)
+- Jun 10 - [California socialite sentenced to 15 years to life for 2020 hit-and-run deaths of two young brothers](https://www.yahoo.com/news/california-socialite-sentenced-15-years-211031150.html)
+- Jun 10 - [Musk warns that he will ban Apple devices if OpenAI is integrated at operating system level](https://finance.yahoo.com/news/elon-musk-says-ban-apple-204647804.html)
 <!-- feed end -->
 
 ### Onstream
