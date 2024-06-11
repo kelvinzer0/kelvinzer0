@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Fire at Thailand's famous Chatuchak Weekend Market kills hundreds of caged animals](https://www.yahoo.com/news/fire-thailands-famous-chatuchak-weekend-060215868.html)
+- Jun 11 - [Taiwan arrests former Chinese navy captain whose speedboat entered Taipei harbour](https://www.yahoo.com/news/taiwan-arrests-former-chinese-navy-023027197.html)
+- Jun 11 - [East Charlotte bar fined for ‘inappropriate sexual behavior’](https://www.yahoo.com/news/east-charlotte-bar-fined-inappropriate-002310407.html)
 - Jun 11 - [Plant-based ultraprocessed foods linked to heart disease, early death, study says](https://www.yahoo.com/news/not-plant-based-foods-equal-223016973.html)
-- Jun 11 - [Alito and his wife are captured in audio recordings talking about abortion leak, flag controversy](https://www.yahoo.com/news/alito-wife-captured-audio-recordings-002925683.html)
-- Jun 10 - [Junk removal company in Northern California caught dumping trash illegally](https://www.yahoo.com/news/junk-removal-company-northern-california-230819208.html)
-- Jun 10 - [U.S. Army Officer Confirms Russian A-50 Radar Jet Was Shot Down With Patriot Missile](https://www.yahoo.com/news/u-army-officer-confirms-russian-225524455.html)
+- Jun 11 - [Florida deluge for days](https://www.yahoo.com/news/florida-deluge-days-001524374.html)
+- Jun 11 - [Philippines must prepare as external threats grow, president says](https://www.yahoo.com/news/philippines-must-prepare-external-threat-000038079.html)
 <!-- feed end -->
 
 ### Onstream
