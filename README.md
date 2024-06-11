@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [New King Charles portrait vandalized by activists at London gallery](https://www.yahoo.com/news/king-charles-portrait-vandalized-animal-132433784.html)
-- Jun 11 - [Hamas leader says ‘we have the Israelis right where we want them’ in leaked messages, WSJ reports](https://www.yahoo.com/news/hamas-leader-says-israelis-where-131130670.html)
-- Jun 11 - [Three High-Yield Dividend Stocks Offering Up To 8.9% Returns](https://finance.yahoo.com/news/three-high-yield-dividend-stocks-130935697.html)
-- Jun 11 - [Ryanair flies British couple to the wrong country after ‘unbelievable’ airport mistake](https://www.yahoo.com/news/ryanair-flies-british-couple-wrong-102424440.html)
-- Jun 11 - [Fire breaks out at historic Cape Cod hotel](https://www.yahoo.com/news/fire-breaks-historic-cape-cod-110019067.html)
+- Jun 11 - [King Charles’ new portrait covered in graffiti by activists at London gallery](https://www.independent.co.uk/news/uk/home-news/king-charles-portrait-vandalised-rspca-animal-rising-b2560535.html)
+- Jun 11 - [Condemned Missouri inmate is 'accepting is fate,' his spiritual adviser says](https://www.yahoo.com/news/condemned-missouri-inmate-accepting-fate-144621393.html)
+- Jun 11 - [NHC monitoring 1st tropical disturbance of the season near Florida](https://www.yahoo.com/news/nhc-monitoring-tropical-disturbance-near-123324863.html)
+- Jun 11 - [What’s that being built off Highway 1? New Cuesta College building taking shape](https://www.yahoo.com/news/being-built-off-highway-1-120000883.html)
+- Jun 11 - [GameStop’s price declines, 'time decay’ hammer Roaring Kitty’s option position](https://www.yahoo.com/news/gamestop-price-declines-time-decay-101141110.html)
 <!-- feed end -->
 
 ### Onstream
