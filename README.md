@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Operations of the hotly contested East Coast natural gas pipeline can begin, regulators say](https://www.yahoo.com/news/operations-hotly-contested-east-coast-225032137.html)
-- Jun 11 - [Oregon man who spiked his daughter's friends smoothies with sedatives during sleepover sentenced to 2 years in prison](https://www.yahoo.com/news/oregon-man-spiked-daughters-friends-221750069.html)
+- Jun 11 - [U.S. deploys warships as Russian fleet makes close pass to Florida in approach to Cuba](https://www.yahoo.com/news/u-deploys-warships-russian-fleet-223456919.html)
 - Jun 11 - [Morning Bid: China CPI lands ahead of U.S. CPI, Fed double whammy](https://finance.yahoo.com/news/morning-bid-china-cpi-lands-214808568.html)
-- Jun 11 - [Hamas responds to Egypt, Qatar on Gaza ceasefire plan; source says group proposes new timeline](https://www.yahoo.com/news/hamas-responds-egypt-qatar-gaza-193806020.html)
 - Jun 11 - [Gainesville finishes construction on road that helps connect Newberry and Archer roads](https://www.yahoo.com/news/gainesville-finishes-construction-road-helps-190427576.html)
+- Jun 11 - [Adult entertainment industry sues again over law requiring pornographic sites to verify users' ages](https://www.yahoo.com/news/adult-entertainment-industry-sues-again-181947669.html)
+- Jun 11 - [Unhappy customer: Why I finally took my business from Vanguard to Charles Schwab](https://finance.yahoo.com/news/unhappy-customer-why-i-finally-took-my-business-from-vanguard-to-charles-schwab-180758503.html)
 <!-- feed end -->
 
 ### Onstream
