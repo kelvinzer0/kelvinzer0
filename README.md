@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Cincinnati settles suit against Vinebrook Homes](https://www.yahoo.com/news/cincinnati-settles-suit-against-vinebrook-193248310.html)
+- Jun 12 - [Chipmaker Broadcom raises annual revenue forecast, unveils stock split](https://finance.yahoo.com/news/chipmaker-broadcom-raises-annual-revenue-202143388.html)
 - Jun 12 - [Who were the victims of Maya sacrifice? Ancient DNA reveals an unexpected finding](https://www.yahoo.com/news/ancient-dna-dispels-outdated-assumption-182739399.html)
-- Jun 12 - [Israeli hostage faced ‘punishments’ during eight months in Hamas captivity, family says](https://www.yahoo.com/news/israeli-hostage-faced-punishments-during-172842462.html)
+- Jun 12 - [GOP women who helped defeat a near-total abortion ban are losing reelection in South Carolina](https://www.yahoo.com/news/gop-women-helped-defeat-near-192014993.html)
 - Jun 12 - [I retired in my 30s with a net worth of $2.5 million over a decade ago. Now, I'm going back to work at 46.](https://finance.yahoo.com/news/retired-34-46-now-back-191737761.html)
-- Jun 12 - [The White House isn't ruling out a potential commutation for Hunter Biden after his conviction](https://www.yahoo.com/news/white-house-isnt-ruling-potential-160445530.html)
+- Jun 12 - [The fast-food industry claims the California minimum wage law is costing jobs. Its numbers are fake](https://finance.yahoo.com/news/fast-food-industry-claims-california-181056511.html)
 <!-- feed end -->
 
 ### Onstream
