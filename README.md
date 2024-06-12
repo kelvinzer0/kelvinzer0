@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Roaring Kitty may have cut GameStop options position, strategists say](https://finance.yahoo.com/news/roaring-kitty-may-cut-gamestop-213801473.html)
+- Jun 12 - [2 No-Brainer Energy Stocks to Buy Right Now for Less Than $500](https://finance.yahoo.com/news/2-no-brainer-energy-stocks-221100478.html)
+- Jun 12 - [SLO County wildfire grows to 750 acres, structure threatened](https://www.yahoo.com/news/slo-county-wildfire-grows-175-204312036.html)
 - Jun 12 - [Tommy's Pizza, a campus mainstay at Ohio State University for 45 years, is closing](https://www.yahoo.com/lifestyle/tommys-pizza-campus-mainstay-ohio-203612967.html)
+- Jun 12 - [Arkansas Racing Commission votes to proceed with Cherokee Nation proposal for Pope County casino](https://www.yahoo.com/news/arkansas-racing-commission-votes-proceed-202843861.html)
 - Jun 12 - [Who were the victims of Maya sacrifice? Ancient DNA reveals an unexpected finding](https://www.yahoo.com/news/ancient-dna-dispels-outdated-assumption-182739399.html)
-- Jun 12 - [Israeli hostage faced ‘punishments’ during eight months in Hamas captivity, family says](https://www.yahoo.com/news/israeli-hostage-faced-punishments-during-172842462.html)
-- Jun 12 - [GOP women who helped defeat a near-total abortion ban are losing reelection in South Carolina](https://www.yahoo.com/news/gop-women-helped-defeat-near-192014993.html)
 <!-- feed end -->
 
 ### Onstream
