@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [South Florida getting drenched with streets, homes flooding. More rain is on the way](https://www.yahoo.com/news/south-florida-getting-drenched-streets-155730628.html)
 - Jun 12 - [Hezbollah rains rockets on Israel after strike kills commander](https://www.yahoo.com/news/hezbollah-rains-rockets-israel-strike-083308958.html)
-- Jun 12 - [Legendary investor Peter Lynch’s advice for how to invest when stock prices look frighteningly overpriced](https://finance.yahoo.com/news/legendary-investor-peter-lynch-advice-115800210.html)
-- Jun 12 - [Indianapolis men bought an abandoned baseball stadium for just $1 — and transformed it into luxury apartments](https://finance.yahoo.com/news/indianapolis-men-bought-abandoned-baseball-110700199.html)
+- Jun 12 - [Kyiv’s wonder-weapons are decimating the Russian army](https://www.yahoo.com/news/kyiv-wonder-weapons-decimating-russian-141906316.html)
+- Jun 12 - [Passengers took off their clothes and appeared to pass out when their flight was delayed in a 95-degree heat wave](https://www.yahoo.com/news/passengers-took-off-clothes-appeared-125717957.html)
 - Jun 12 - [Airlines sometimes turn their planes around and fly thousands of miles home when they have problems. Here's why.](https://www.yahoo.com/news/airlines-sometimes-turn-planes-around-103516075.html)
-- Jun 12 - [Apple becomes the first $1 trillion global brand, Nvidia's value triples, report says](https://finance.yahoo.com/news/apple-becomes-first-1-trillion-100250484.html)
 <!-- feed end -->
 
 ### Onstream
