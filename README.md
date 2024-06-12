@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Tesla shareholder sues Musk to return billions in alleged unlawful profits](https://www.yahoo.com/news/tesla-shareholder-sues-musk-return-235741721.html)
+- Jun 11 - [GameStop raises $2.14 billion amid Roaring Kitty-fueled retail trading frenzy](https://finance.yahoo.com/news/gamestop-raises-2-14-billion-230142169.html)
+- Jun 11 - [Experts warn of billion-dollar septic problem threatening US South: 'These are ticking time bombs under the ground'](https://www.yahoo.com/news/experts-warn-billion-dollar-septic-230000110.html)
 - Jun 11 - [U.S. deploys warships as Russian fleet makes close pass to Florida in approach to Cuba](https://www.yahoo.com/news/u-deploys-warships-russian-fleet-223456919.html)
 - Jun 11 - [Morning Bid: China CPI lands ahead of U.S. CPI, Fed double whammy](https://finance.yahoo.com/news/morning-bid-china-cpi-lands-214808568.html)
-- Jun 11 - [Gainesville finishes construction on road that helps connect Newberry and Archer roads](https://www.yahoo.com/news/gainesville-finishes-construction-road-helps-190427576.html)
-- Jun 11 - [Adult entertainment industry sues again over law requiring pornographic sites to verify users' ages](https://www.yahoo.com/news/adult-entertainment-industry-sues-again-181947669.html)
-- Jun 11 - [Unhappy customer: Why I finally took my business from Vanguard to Charles Schwab](https://finance.yahoo.com/news/unhappy-customer-why-i-finally-took-my-business-from-vanguard-to-charles-schwab-180758503.html)
 <!-- feed end -->
 
 ### Onstream
