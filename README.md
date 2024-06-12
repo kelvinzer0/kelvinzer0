@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [Cincinnati settles suit against Vinebrook Homes](https://www.yahoo.com/news/cincinnati-settles-suit-against-vinebrook-193248310.html)
+- Jun 12 - [Who were the victims of Maya sacrifice? Ancient DNA reveals an unexpected finding](https://www.yahoo.com/news/ancient-dna-dispels-outdated-assumption-182739399.html)
 - Jun 12 - [Israeli hostage faced ‘punishments’ during eight months in Hamas captivity, family says](https://www.yahoo.com/news/israeli-hostage-faced-punishments-during-172842462.html)
-- Jun 12 - [Mother says $15,000 family cruise was canceled after she posted booking details on Facebook](https://www.yahoo.com/news/mother-says-15-000-family-162250779.html)
+- Jun 12 - [I retired in my 30s with a net worth of $2.5 million over a decade ago. Now, I'm going back to work at 46.](https://finance.yahoo.com/news/retired-34-46-now-back-191737761.html)
 - Jun 12 - [The White House isn't ruling out a potential commutation for Hunter Biden after his conviction](https://www.yahoo.com/news/white-house-isnt-ruling-potential-160445530.html)
-- Jun 12 - [“So rude of you”: Republican snaps after Democratic lawmaker reminds him that a jury convicted Trump](https://www.yahoo.com/news/rude-republican-snaps-democratic-lawmaker-155313020.html)
-- Jun 12 - [Russia, hit by new US sanctions, halts dollar and euro trade on main bourse](https://www.yahoo.com/news/moscow-exchange-stop-trading-dollars-153650665.html)
 <!-- feed end -->
 
 ### Onstream
