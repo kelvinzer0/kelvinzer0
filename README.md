@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [South Florida getting drenched with streets, homes flooding. More rain is on the way](https://www.yahoo.com/news/south-florida-getting-drenched-streets-155730628.html)
-- Jun 12 - [Hezbollah rains rockets on Israel after strike kills commander](https://www.yahoo.com/news/hezbollah-rains-rockets-israel-strike-083308958.html)
+- Jun 12 - [The White House isn't ruling out a potential commutation for Hunter Biden after his conviction](https://www.yahoo.com/news/white-house-isnt-ruling-potential-160445530.html)
+- Jun 12 - [Watch: Pitch-invading baseball fan tasered by police after performing backflip](https://sports.yahoo.com/watch-pitch-invading-baseball-fan-154514697.html)
+- Jun 12 - [Lauren Boebert Gets Brutal Reminder After Attack on Hunter Biden](https://www.yahoo.com/news/lauren-boebert-gets-brutal-reminder-154453245.html)
+- Jun 12 - [Nvidia Stock Investors Just Got Spectacular News From Oracle](https://finance.yahoo.com/news/nvidia-stock-investors-just-got-143903870.html)
 - Jun 12 - [Kyiv’s wonder-weapons are decimating the Russian army](https://www.yahoo.com/news/kyiv-wonder-weapons-decimating-russian-141906316.html)
-- Jun 12 - [Passengers took off their clothes and appeared to pass out when their flight was delayed in a 95-degree heat wave](https://www.yahoo.com/news/passengers-took-off-clothes-appeared-125717957.html)
-- Jun 12 - [Airlines sometimes turn their planes around and fly thousands of miles home when they have problems. Here's why.](https://www.yahoo.com/news/airlines-sometimes-turn-planes-around-103516075.html)
 <!-- feed end -->
 
 ### Onstream
