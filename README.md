@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Why AP called Rep. Nancy Mace the winner in the South Carolina U.S. House Republican primary](https://www.yahoo.com/news/why-ap-called-rep-nancy-014951553.html)
+- Jun 12 - [Sen. Lindsey Graham says he will block Democrats' effort to unanimously pass Supreme Court ethics bill](https://www.yahoo.com/news/sen-lindsey-graham-says-block-025136590.html)
+- Jun 12 - [Dog found with pounds of matted fur wins makeover contest for Española Humane](https://www.yahoo.com/lifestyle/dog-found-pounds-matted-fur-022340485.html)
 - Jun 12 - [Las Vegas driver allegedly googled crash in hours after fatal hit-and-run, drove to Pahrump for repairs](https://www.yahoo.com/news/las-vegas-driver-allegedly-googled-005510855.html)
+- Jun 11 - [GameStop raises $2.14 billion amid Roaring Kitty-fueled retail trading frenzy](https://finance.yahoo.com/news/gamestop-raises-2-14-billion-230142169.html)
 - Jun 11 - [U.S. deploys warships as Russian fleet makes close pass to Florida in approach to Cuba](https://www.yahoo.com/news/u-deploys-warships-russian-fleet-223456919.html)
-- Jun 11 - [Archaeologists make deathly discovery at bottom of 800-year-old shipwreck](https://www.yahoo.com/lifestyle/archaeologists-deathly-discovery-bottom-800-213457171.html)
-- Jun 11 - [Police: Man arrested in fatal hit-and-run from April](https://www.yahoo.com/news/police-man-arrested-fatal-hit-211515147.html)
 <!-- feed end -->
 
 ### Onstream
