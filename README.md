@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [2 Millionaire-Maker Artificial Intelligence (AI) Stocks](https://finance.yahoo.com/news/2-millionaire-maker-artificial-intelligence-110000887.html)
+- Jun 12 - [Hezbollah rains rockets on Israel after strike kills commander](https://www.yahoo.com/news/hezbollah-rains-rockets-israel-strike-083308958.html)
 - Jun 12 - [There they grow again: Visit the latest Augusta-area supermarket to undergo a redesign](https://www.yahoo.com/news/grow-again-visit-latest-augusta-080518713.html)
 - Jun 12 - [Sen. Lindsey Graham says he will block Democrats' effort to unanimously pass Supreme Court ethics bill](https://www.yahoo.com/news/sen-lindsey-graham-says-block-025136590.html)
-- Jun 12 - [Dog found with pounds of matted fur wins makeover contest for Española Humane](https://www.yahoo.com/lifestyle/dog-found-pounds-matted-fur-022340485.html)
 - Jun 12 - [Las Vegas driver allegedly googled crash in hours after fatal hit-and-run, drove to Pahrump for repairs](https://www.yahoo.com/news/las-vegas-driver-allegedly-googled-005510855.html)
-- Jun 12 - [Fewer people may need statins to prevent heart disease, new study suggests](https://www.yahoo.com/news/fewer-people-may-statins-prevent-000320493.html)
 <!-- feed end -->
 
 ### Onstream
