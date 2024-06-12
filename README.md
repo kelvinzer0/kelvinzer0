@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Don’t Buy a House in These 10 US Cities: Growing Populations and Overcrowding](https://finance.yahoo.com/news/don-t-buy-house-10-175424640.html)
-- Jun 12 - [Ukraine extends blackouts as Russian bombings continue](https://www.yahoo.com/news/ukraine-extends-blackouts-russian-bombings-115659078.html)
+- Jun 12 - [US consumer prices flat in May, defying expectations for slight rise](https://finance.yahoo.com/news/us-consumer-prices-flat-may-123401788.html)
+- Jun 12 - [Giant hail, damaging winds, and heavy rains possible in Kansas City area. Here’s when](https://www.yahoo.com/news/giant-hail-damaging-winds-heavy-121737126.html)
+- Jun 12 - [A woman who met Elon Musk as a SpaceX intern says they had sex: report](https://www.yahoo.com/tech/woman-met-elon-musk-spacex-114937120.html)
 - Jun 12 - [How long will feckless Joe Biden ignore the grave threat of sharks and electric boats?](https://www.yahoo.com/entertainment/long-feckless-joe-biden-ignore-091205841.html)
 - Jun 12 - [EU to hit Chinese electrical vehicles with extra tariffs of up to 38%](https://finance.yahoo.com/news/eu-impose-tariffs-25-chinese-045416012.html)
-- Jun 12 - [Sen. Lindsey Graham says he will block Democrats' effort to unanimously pass Supreme Court ethics bill](https://www.yahoo.com/news/sen-lindsey-graham-says-block-025136590.html)
 <!-- feed end -->
 
 ### Onstream
