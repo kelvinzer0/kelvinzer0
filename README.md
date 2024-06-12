@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Debunking 3 Tampa Bay myths, from St. Petersburg’s name to that Pier bathroom](https://www.yahoo.com/lifestyle/debunking-3-tampa-bay-myths-120000018.html)
+- Jun 12 - [Hezbollah rains rockets on Israel after strike kills commander](https://www.yahoo.com/news/hezbollah-rains-rockets-israel-strike-083308958.html)
+- Jun 12 - [Legendary investor Peter Lynch’s advice for how to invest when stock prices look frighteningly overpriced](https://finance.yahoo.com/news/legendary-investor-peter-lynch-advice-115800210.html)
+- Jun 12 - [Indianapolis men bought an abandoned baseball stadium for just $1 — and transformed it into luxury apartments](https://finance.yahoo.com/news/indianapolis-men-bought-abandoned-baseball-110700199.html)
+- Jun 12 - [Airlines sometimes turn their planes around and fly thousands of miles home when they have problems. Here's why.](https://www.yahoo.com/news/airlines-sometimes-turn-planes-around-103516075.html)
 - Jun 12 - [Apple becomes the first $1 trillion global brand, Nvidia's value triples, report says](https://finance.yahoo.com/news/apple-becomes-first-1-trillion-100250484.html)
-- Jun 12 - [Tesla receives approval to build massive new factory to produce Megapack batteries: 'Leading to record profitability for the energy business'](https://autos.yahoo.com/tesla-receives-approval-build-massive-100000096.html)
-- Jun 12 - [Who was Charlotte man who killed 4 officers? Friends, records paint conflicting view.](https://www.yahoo.com/news/charlotte-man-killed-4-officers-093000371.html)
-- Jun 12 - [How long will feckless Joe Biden ignore the grave threat of sharks and electric boats?](https://www.yahoo.com/entertainment/long-feckless-joe-biden-ignore-091205841.html)
 <!-- feed end -->
 
 ### Onstream
