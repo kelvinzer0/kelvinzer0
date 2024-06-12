@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Chipmaker Broadcom raises annual revenue forecast, unveils stock split](https://finance.yahoo.com/news/chipmaker-broadcom-raises-annual-revenue-202143388.html)
+- Jun 12 - [Roaring Kitty may have cut GameStop options position, strategists say](https://finance.yahoo.com/news/roaring-kitty-may-cut-gamestop-213801473.html)
+- Jun 12 - [Tommy's Pizza, a campus mainstay at Ohio State University for 45 years, is closing](https://www.yahoo.com/lifestyle/tommys-pizza-campus-mainstay-ohio-203612967.html)
 - Jun 12 - [Who were the victims of Maya sacrifice? Ancient DNA reveals an unexpected finding](https://www.yahoo.com/news/ancient-dna-dispels-outdated-assumption-182739399.html)
+- Jun 12 - [Israeli hostage faced ‘punishments’ during eight months in Hamas captivity, family says](https://www.yahoo.com/news/israeli-hostage-faced-punishments-during-172842462.html)
 - Jun 12 - [GOP women who helped defeat a near-total abortion ban are losing reelection in South Carolina](https://www.yahoo.com/news/gop-women-helped-defeat-near-192014993.html)
-- Jun 12 - [I retired in my 30s with a net worth of $2.5 million over a decade ago. Now, I'm going back to work at 46.](https://finance.yahoo.com/news/retired-34-46-now-back-191737761.html)
-- Jun 12 - [The fast-food industry claims the California minimum wage law is costing jobs. Its numbers are fake](https://finance.yahoo.com/news/fast-food-industry-claims-california-181056511.html)
 <!-- feed end -->
 
 ### Onstream
