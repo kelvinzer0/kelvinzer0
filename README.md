@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [Mother says $15,000 family cruise was canceled after she posted booking details on Facebook](https://www.yahoo.com/news/mother-says-15-000-family-162250779.html)
 - Jun 12 - [The White House isn't ruling out a potential commutation for Hunter Biden after his conviction](https://www.yahoo.com/news/white-house-isnt-ruling-potential-160445530.html)
 - Jun 12 - [Watch: Pitch-invading baseball fan tasered by police after performing backflip](https://sports.yahoo.com/watch-pitch-invading-baseball-fan-154514697.html)
-- Jun 12 - [Lauren Boebert Gets Brutal Reminder After Attack on Hunter Biden](https://www.yahoo.com/news/lauren-boebert-gets-brutal-reminder-154453245.html)
-- Jun 12 - [Nvidia Stock Investors Just Got Spectacular News From Oracle](https://finance.yahoo.com/news/nvidia-stock-investors-just-got-143903870.html)
-- Jun 12 - [Kyiv’s wonder-weapons are decimating the Russian army](https://www.yahoo.com/news/kyiv-wonder-weapons-decimating-russian-141906316.html)
+- Jun 12 - [Russia, hit by new US sanctions, halts dollar and euro trade on main bourse](https://www.yahoo.com/news/moscow-exchange-stop-trading-dollars-153650665.html)
+- Jun 12 - [Did Trump Just Accidentally Admit to Another Felony?](https://www.yahoo.com/news/did-trump-just-accidentally-admit-143329063.html)
 <!-- feed end -->
 
 ### Onstream
