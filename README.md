@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [In-N-Out confirms price changes on Double-Double and other menu items](https://www.yahoo.com/news/n-confirms-price-changes-double-150127364.html)
 - Jun 13 - [NASA calls off astronauts' ISS spacewalk over 'spacesuit discomfort'](https://www.yahoo.com/news/nasa-calls-off-astronauts-iss-144928528.html)
-- Jun 13 - [Kamala Harris and ‘Abbott Elementary’ Star Lisa Ann Walter Partner on National Call for Abortion Rights | Exclusive](https://www.yahoo.com/news/kamala-harris-abbott-elementary-star-140000313.html)
-- Jun 13 - [Wells Fargo Fires Over a Dozen for ‘Simulation of Keyboard Activity’](https://finance.yahoo.com/news/wells-fargo-fires-over-dozen-133711267.html)
 - Jun 13 - [El Niño is dead. Here’s what to expect in the coming months](https://www.yahoo.com/news/el-ni-o-dead-expect-130115377.html)
-- Jun 13 - [Witness Beautifully Slams Door On GOP Senator's Loaded Abortion Question](https://www.yahoo.com/news/witness-beautifully-slams-door-gop-114116067.html)
+- Jun 13 - [Trump’s F-Bomb Rant to Mike Johnson Sparks Desperate GOP Moves](https://www.yahoo.com/news/trump-f-bomb-rant-mike-130010229.html)
+- Jun 13 - [Woman punched repeatedly in line for ride at Cedar Point: Report](https://www.yahoo.com/news/woman-punched-repeatedly-line-ride-115822698.html)
 <!-- feed end -->
 
 ### Onstream
