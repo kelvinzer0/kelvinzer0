@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [S-500 Prometheus Air Defense System Now Protecting Russia’s Kerch Bridge: Ukraine’s Spy Boss](https://www.yahoo.com/news/500-prometheus-air-defense-system-001900448.html)
+- Jun 13 - [El Paso man dies in alleged hot tub electrocution in Mexico beach resort in Puerto Peñasco](https://www.yahoo.com/news/el-pasoan-dies-alleged-jacuzzi-002319923.html)
 - Jun 12 - [CNN Host Literally Shows Receipts While Brutally Fact Checking GOP Rep](https://www.yahoo.com/news/cnn-host-literally-shows-receipts-233705152.html)
-- Jun 12 - [GoFundMe pages created for families of Oshkosh girls who died in ATV crash](https://www.yahoo.com/news/gofundme-pages-created-families-oshkosh-224354079.html)
-- Jun 12 - [Polar explorer Shackleton's ship found in Canada](https://www.yahoo.com/news/polar-explorer-shackletons-ship-found-222131683.html)
-- Jun 12 - [Tommy's Pizza, a campus mainstay at Ohio State University for 45 years, is closing](https://www.yahoo.com/lifestyle/tommys-pizza-campus-mainstay-ohio-203612967.html)
+- Jun 12 - [All the rain in Miami and Fort Lauderdale did that? Take a look at what people posted](https://www.yahoo.com/news/rain-miami-fort-lauderdale-did-230654578.html)
+- Jun 12 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
+- Jun 12 - [US wishes India luck with 'structural issues' in strained China ties](https://www.yahoo.com/news/us-wishes-india-luck-structural-214103601.html)
 <!-- feed end -->
 
 ### Onstream
