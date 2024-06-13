@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Two Earth-Facing Sunspots Blasting Powerful X And M Flares](https://www.yahoo.com/news/two-earth-facing-sunspots-blasting-170000586.html)
-- Jun 13 - [Poacher shoots pregnant deer with arrow, leaves it to die slowly, Washington cops say](https://www.yahoo.com/news/poacher-shoots-pregnant-deer-arrow-165802537.html)
-- Jun 13 - [Trump humiliates Marjorie Taylor Greene, telling her to ‘be nice’ to Speaker Johnson after her push to oust him](https://www.yahoo.com/news/trump-humiliates-marjorie-taylor-greene-164037536.html)
-- Jun 13 - [Chicago begins evicting entire migrant families from city shelters](https://www.yahoo.com/news/chicago-begins-evicting-entire-migrant-154100617.html)
-- Jun 13 - [In-N-Out confirms price changes on Double-Double and other menu items](https://www.yahoo.com/news/n-confirms-price-changes-double-150127364.html)
+- Jun 13 - [Jacksonville man faces up to 30 years in prison after pleading guilty to bank fraud](https://www.yahoo.com/news/jacksonville-man-faces-30-years-180752332.html)
+- Jun 13 - [Woman faces 30 years in prison after bong water is found during Minnesota traffic stop](https://www.yahoo.com/news/woman-faces-30-years-prison-170136290.html)
+- Jun 13 - [Washington's Makah Tribe could once again harpoon whales as US waives conservation law](https://www.yahoo.com/news/washington-states-makah-tribe-clears-163355936.html)
+- Jun 13 - [Here’s every AI feature coming to your iPhone with iOS 18](https://www.yahoo.com/tech/every-ai-feature-coming-iphone-150005249.html)
+- Jun 13 - [NASA calls off astronauts' ISS spacewalk over 'spacesuit discomfort'](https://www.yahoo.com/news/nasa-calls-off-astronauts-iss-144928528.html)
 <!-- feed end -->
 
 ### Onstream
