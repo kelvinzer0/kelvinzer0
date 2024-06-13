@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Insta360's GO 3S is its new tiny wearable camera with 4K video](https://www.yahoo.com/news/insta360s-go-3s-is-its-new-tiny-wearable-camera-with-4k-video-130044121.html)
-- Jun 13 - [Apple unveils satellite messaging feature. Here’s how it works.](https://finance.yahoo.com/video/apple-unveils-satellite-messaging-feature-130000055.html)
-- Jun 13 - [Man who killed three soldiers in attack on India’s Red Fort to be hanged after president rejects mercy plea](https://www.yahoo.com/news/man-killed-three-soldiers-attack-121607555.html)
-- Jun 13 - [7 Places To Live in Arizona With High Salaries and a Low Cost of Living](https://finance.yahoo.com/news/7-places-live-arizona-high-121515542.html)
+- Jun 13 - [Bye bye, El Nino. Cooler hurricane-helping La Nina to replace the phenomenon that adds heat to Earth](https://www.yahoo.com/news/bye-bye-el-nino-cooler-130317957.html)
+- Jun 13 - [Almost 500 new homes planned in Cathedral City. Here's where](https://www.yahoo.com/news/almost-500-homes-planned-cathedral-130119842.html)
 - Jun 13 - [Witness Beautifully Slams Door On GOP Senator's Loaded Abortion Question](https://www.yahoo.com/news/witness-beautifully-slams-door-gop-114116067.html)
+- Jun 13 - [US market expert warns of 'a bigger crash' than 2008 — says there's 'nowhere to hide' except in this 1 asset](https://finance.yahoo.com/news/us-market-expert-warns-bigger-113200972.html)
+- Jun 13 - [France Is Sending Sophisticated Fighter Jets to Ukraine. Will They Crush Russian Air Dominance?](https://www.yahoo.com/news/france-sending-sophisticated-fighter-jets-113000099.html)
 <!-- feed end -->
 
 ### Onstream
