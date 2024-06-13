@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Donald Trump’s ‘Unhinged’ Email Has Critics Asking: ‘Is He Out Of Control?’](https://www.yahoo.com/news/donald-trump-unhinged-email-critics-075548120.html)
+- Jun 13 - ['Sign Me Up': Critics Think Sean Hannity Has Perfect Argument To Vote For Biden](https://www.yahoo.com/news/sign-critics-think-sean-hannity-084410010.html)
 - Jun 13 - [Senior Hamas leader says proposed amendments to Gaza ceasefire 'not significant'](https://www.yahoo.com/news/hamas-proposed-amendments-gaza-ceasefire-052222123.html)
-- Jun 13 - [China became the world's factory by selling cheap goods. This strategy won't work for EVs.](https://www.yahoo.com/news/china-became-worlds-factory-selling-051455605.html)
+- Jun 13 - [4 suspects with alleged gang ties arrested in violent Southern California home invasion robbery](https://www.yahoo.com/news/4-suspects-alleged-gang-ties-031923947.html)
 - Jun 13 - [Musk says Tesla shareholders voting yes for his $56 billion pay package](https://finance.yahoo.com/news/musk-says-both-tesla-shareholder-025925427.html)
 - Jun 13 - [NASA accidentally broadcasts simulation of distressed astronauts on space station](https://www.yahoo.com/news/nasa-accidentally-broadcasts-simulation-distressed-024453559.html)
 <!-- feed end -->
