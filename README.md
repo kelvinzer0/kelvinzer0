@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [China became the world's factory by selling cheap goods. This strategy won't work for EVs.](https://www.yahoo.com/news/china-became-worlds-factory-selling-051455605.html)
+- Jun 13 - [Texas man dies after being electrocuted in Jacuzzi at Mexican resort](https://www.yahoo.com/news/texas-man-dies-being-electrocuted-032142237.html)
 - Jun 13 - [Musk says Tesla shareholders voting yes for his $56 billion pay package](https://finance.yahoo.com/news/musk-says-both-tesla-shareholder-025925427.html)
 - Jun 13 - [NASA accidentally broadcasts simulation of distressed astronauts on space station](https://www.yahoo.com/news/nasa-accidentally-broadcasts-simulation-distressed-024453559.html)
-- Jun 12 - [Neil Goldschmidt, former Oregon governor who confessed to sex with a minor in the 1970s, has died](https://www.yahoo.com/news/neil-goldschmidt-former-oregon-governor-234905959.html)
-- Jun 12 - [CNN Host Literally Shows Receipts While Brutally Fact Checking GOP Rep](https://www.yahoo.com/news/cnn-host-literally-shows-receipts-233705152.html)
+- Jun 13 - [‘I do magic for money,’ Las Vegas magician to accept expulsion from historic Hollywood invite-only magic club](https://www.yahoo.com/entertainment/magic-money-las-vegas-magician-020324175.html)
+- Jun 13 - [DeSantis appointees bury the hatchet with Disney by approving new development deal](https://www.yahoo.com/news/desantis-appointees-bury-hatchet-disney-005534771.html)
 <!-- feed end -->
 
 ### Onstream
