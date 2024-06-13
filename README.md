@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [JPMorgan Asset Management foresees stock rally continuing in H2](https://finance.yahoo.com/video/jpmorgan-asset-management-foresees-stock-205211635.html)
-- Jun 13 - [Woman dies after collapsing on Colorado National Monument trail; NPS warns of heat exhaustion](https://www.yahoo.com/news/woman-dies-collapsing-colorado-national-204517634.html)
-- Jun 13 - [Road rage blamed for I-240 shooting that hurt 4 kids, dad](https://www.yahoo.com/news/road-rage-blamed-240-shooting-185517192.html)
-- Jun 13 - [Man, 32, becomes fully paralyzed within days of catching Covid due to rare syndrome](https://www.yahoo.com/news/man-32-becomes-fully-paralyzed-175323906.html)
-- Jun 13 - [Woman faces 30 years in prison after bong water is found during Minnesota traffic stop](https://www.yahoo.com/news/woman-faces-30-years-prison-170136290.html)
+- Jun 13 - [Tesla's Musk secures $56B pay package after shareholder vote](https://finance.yahoo.com/video/teslas-musk-secures-56b-pay-214150255.html)
+- Jun 13 - [Elon Musk wins Tesla shareholder battle to keep his record-breaking pay](https://finance.yahoo.com/news/elon-musk-wins-tesla-shareholder-battle-to-keep-his-record-breaking-pay-211135704.html)
+- Jun 13 - [Roaring Kitty nearly doubles GameStop holdings to 9 million shares, Reddit post shows](https://www.yahoo.com/tech/roaring-kitty-nearly-doubles-gamestop-210012833.html)
+- Jun 13 - [A Harvard processed foods expert shares 3 simple food swaps you can make for a healthier brain and gut](https://www.yahoo.com/news/harvard-processed-foods-expert-shares-202918049.html)
+- Jun 13 - [N.Y. sushi restaurant owner out of coma after dine-and-dash attack over $425 bill](https://www.yahoo.com/news/n-y-sushi-restaurant-owner-194803594.html)
 <!-- feed end -->
 
 ### Onstream
