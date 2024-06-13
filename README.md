@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Tesla shareholders voting yes for Musk's $56 billion pay package, CEO says on X](https://finance.yahoo.com/news/musk-says-both-tesla-shareholder-025925427.html)
+- Jun 13 - [Musk says Tesla shareholders voting yes for his $56 billion pay package](https://finance.yahoo.com/news/musk-says-both-tesla-shareholder-025925427.html)
+- Jun 13 - [NASA accidentally broadcasts simulation of distressed astronauts on space station](https://www.yahoo.com/news/nasa-accidentally-broadcasts-simulation-distressed-024453559.html)
 - Jun 13 - [Japan's Honda to start selling micro-sized electric vans in October](https://finance.yahoo.com/news/japans-honda-start-selling-micro-020506631.html)
-- Jun 12 - [Neil Goldschmidt, former Oregon governor who confessed to sex with a minor in the 1970s, has died](https://www.yahoo.com/news/neil-goldschmidt-former-oregon-governor-234905959.html)
-- Jun 12 - [CNN Host Literally Shows Receipts While Brutally Fact Checking GOP Rep](https://www.yahoo.com/news/cnn-host-literally-shows-receipts-233705152.html)
-- Jun 12 - [All the rain in Miami and Fort Lauderdale did that? Take a look at what people posted](https://www.yahoo.com/news/rain-miami-fort-lauderdale-did-230654578.html)
+- Jun 13 - [DeSantis appointees bury the hatchet with Disney by approving new development deal](https://www.yahoo.com/news/desantis-appointees-bury-hatchet-disney-005534771.html)
+- Jun 13 - [DeSantis uses line-item veto on state budget. What Jacksonville area projects got nixed?](https://www.yahoo.com/news/desantis-uses-line-item-veto-002246289.html)
 <!-- feed end -->
 
 ### Onstream
