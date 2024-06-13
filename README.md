@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Tesla's Musk secures $56B pay package after shareholder vote](https://finance.yahoo.com/video/teslas-musk-secures-56b-pay-214150255.html)
+- Jun 13 - [What Apple Intelligence means for Apple's stock: YF Reports](https://finance.yahoo.com/video/apple-intelligence-means-apples-stock-230000796.html)
+- Jun 13 - [Shocking footage shows moments after a gator ate a 41-year-old woman in Florida](https://www.yahoo.com/news/shocking-footage-shows-moments-gator-222455975.html)
+- Jun 13 - [Deputies apprehend man accused of violent attack on woman leaving Publix lot in Stuart](https://www.yahoo.com/news/deputies-apprehend-man-accused-violent-215907698.html)
 - Jun 13 - [Elon Musk wins Tesla shareholder battle to keep his record-breaking pay](https://finance.yahoo.com/news/elon-musk-wins-tesla-shareholder-battle-to-keep-his-record-breaking-pay-211135704.html)
 - Jun 13 - [Roaring Kitty nearly doubles GameStop holdings to 9 million shares, Reddit post shows](https://www.yahoo.com/tech/roaring-kitty-nearly-doubles-gamestop-210012833.html)
-- Jun 13 - [A Harvard processed foods expert shares 3 simple food swaps you can make for a healthier brain and gut](https://www.yahoo.com/news/harvard-processed-foods-expert-shares-202918049.html)
-- Jun 13 - [N.Y. sushi restaurant owner out of coma after dine-and-dash attack over $425 bill](https://www.yahoo.com/news/n-y-sushi-restaurant-owner-194803594.html)
 <!-- feed end -->
 
 ### Onstream
