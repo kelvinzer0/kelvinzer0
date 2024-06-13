@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - ['Sign Me Up': Critics Think Sean Hannity Has Perfect Argument To Vote For Biden](https://www.yahoo.com/news/sign-critics-think-sean-hannity-084410010.html)
-- Jun 13 - [Senior Hamas leader says proposed amendments to Gaza ceasefire 'not significant'](https://www.yahoo.com/news/hamas-proposed-amendments-gaza-ceasefire-052222123.html)
-- Jun 13 - [4 suspects with alleged gang ties arrested in violent Southern California home invasion robbery](https://www.yahoo.com/news/4-suspects-alleged-gang-ties-031923947.html)
-- Jun 13 - [Musk says Tesla shareholders voting yes for his $56 billion pay package](https://finance.yahoo.com/news/musk-says-both-tesla-shareholder-025925427.html)
-- Jun 13 - [NASA accidentally broadcasts simulation of distressed astronauts on space station](https://www.yahoo.com/news/nasa-accidentally-broadcasts-simulation-distressed-024453559.html)
+- Jun 13 - [Witness Beautifully Slams Door On GOP Senator's Loaded Abortion Question](https://www.yahoo.com/news/witness-beautifully-slams-door-gop-114116067.html)
+- Jun 13 - [US market expert warns of 'a bigger crash' than 2008 — says there's 'nowhere to hide' except in this 1 asset](https://finance.yahoo.com/news/us-market-expert-warns-bigger-113200972.html)
+- Jun 13 - [Meet Gwynne Shotwell, the woman who really runs SpaceX for Elon Musk](https://www.yahoo.com/tech/meet-gwynne-shotwell-woman-really-112815536.html)
+- Jun 13 - [Russians told to mobilise to inflict 'maximum harm' on West in response to sanctions](https://www.yahoo.com/news/russians-told-mobilise-inflict-maximum-110425606.html)
+- Jun 13 - [‘Dyson spheres’ were theorized as a way to detect alien life. Scientists say they’ve found potential evidence](https://www.yahoo.com/news/dyson-spheres-were-theorized-way-110027862.html)
 <!-- feed end -->
 
 ### Onstream
