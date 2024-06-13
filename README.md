@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Maddow Blog | GOP’s Ron Johnson: Harmless grandparents arrested after Jan. 6](https://www.yahoo.com/news/gop-ron-johnson-harmless-grandparents-155043981.html)
-- Jun 13 - ['Not your victim': Man gets 8 life sentences in kidnapping, rape of Alabama teens](https://www.yahoo.com/news/not-victim-man-gets-8-154005122.html)
-- Jun 13 - [NASA calls off astronauts' ISS spacewalk over 'spacesuit discomfort'](https://www.yahoo.com/news/nasa-calls-off-astronauts-iss-144928528.html)
-- Jun 13 - [A crocodile was terrorizing this Australian town. So residents cooked and ate it](https://www.yahoo.com/news/crocodile-terrorizing-australian-town-residents-144437774.html)
-- Jun 13 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
+- Jun 13 - [Two Earth-Facing Sunspots Blasting Powerful X And M Flares](https://www.yahoo.com/news/two-earth-facing-sunspots-blasting-170000586.html)
+- Jun 13 - [Poacher shoots pregnant deer with arrow, leaves it to die slowly, Washington cops say](https://www.yahoo.com/news/poacher-shoots-pregnant-deer-arrow-165802537.html)
+- Jun 13 - [Trump humiliates Marjorie Taylor Greene, telling her to ‘be nice’ to Speaker Johnson after her push to oust him](https://www.yahoo.com/news/trump-humiliates-marjorie-taylor-greene-164037536.html)
+- Jun 13 - [Chicago begins evicting entire migrant families from city shelters](https://www.yahoo.com/news/chicago-begins-evicting-entire-migrant-154100617.html)
+- Jun 13 - [In-N-Out confirms price changes on Double-Double and other menu items](https://www.yahoo.com/news/n-confirms-price-changes-double-150127364.html)
 <!-- feed end -->
 
 ### Onstream
