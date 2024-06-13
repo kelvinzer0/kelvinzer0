@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Jacksonville man faces up to 30 years in prison after pleading guilty to bank fraud](https://www.yahoo.com/news/jacksonville-man-faces-30-years-180752332.html)
-- Jun 13 - [Woman faces 30 years in prison after bong water is found during Minnesota traffic stop](https://www.yahoo.com/news/woman-faces-30-years-prison-170136290.html)
-- Jun 13 - [Washington's Makah Tribe could once again harpoon whales as US waives conservation law](https://www.yahoo.com/news/washington-states-makah-tribe-clears-163355936.html)
-- Jun 13 - [Here’s every AI feature coming to your iPhone with iOS 18](https://www.yahoo.com/tech/every-ai-feature-coming-iphone-150005249.html)
-- Jun 13 - [NASA calls off astronauts' ISS spacewalk over 'spacesuit discomfort'](https://www.yahoo.com/news/nasa-calls-off-astronauts-iss-144928528.html)
+- Jun 13 - [Firefighter, 1 other injured in fire at Xenia restaurant](https://www.yahoo.com/news/firefighter-1-other-injured-fire-195145366.html)
+- Jun 13 - [Jon Stewart Breaks Down Why His Apple Show Was Never Going to Work](https://www.yahoo.com/entertainment/jon-stewart-breaks-down-why-193151389.html)
+- Jun 13 - [Musk's small-investor army cheers apparent approval of $56 billion Tesla pay package](https://finance.yahoo.com/news/musks-small-investor-army-cheers-182703308.html)
+- Jun 13 - [Man, 32, becomes fully paralyzed within days of catching Covid due to rare syndrome](https://www.yahoo.com/news/man-32-becomes-fully-paralyzed-175323906.html)
+- Jun 13 - [Republicans in Panic Mode After Trump Trashes Milwaukee](https://www.yahoo.com/news/trump-uses-republican-strategy-meeting-164709942.html)
 <!-- feed end -->
 
 ### Onstream
