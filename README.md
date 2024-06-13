@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [In-N-Out confirms price changes on Double-Double and other menu items](https://www.yahoo.com/news/n-confirms-price-changes-double-150127364.html)
+- Jun 13 - [Maddow Blog | GOP’s Ron Johnson: Harmless grandparents arrested after Jan. 6](https://www.yahoo.com/news/gop-ron-johnson-harmless-grandparents-155043981.html)
+- Jun 13 - ['Not your victim': Man gets 8 life sentences in kidnapping, rape of Alabama teens](https://www.yahoo.com/news/not-victim-man-gets-8-154005122.html)
 - Jun 13 - [NASA calls off astronauts' ISS spacewalk over 'spacesuit discomfort'](https://www.yahoo.com/news/nasa-calls-off-astronauts-iss-144928528.html)
-- Jun 13 - [El Niño is dead. Here’s what to expect in the coming months](https://www.yahoo.com/news/el-ni-o-dead-expect-130115377.html)
-- Jun 13 - [Trump’s F-Bomb Rant to Mike Johnson Sparks Desperate GOP Moves](https://www.yahoo.com/news/trump-f-bomb-rant-mike-130010229.html)
-- Jun 13 - [Woman punched repeatedly in line for ride at Cedar Point: Report](https://www.yahoo.com/news/woman-punched-repeatedly-line-ride-115822698.html)
+- Jun 13 - [A crocodile was terrorizing this Australian town. So residents cooked and ate it](https://www.yahoo.com/news/crocodile-terrorizing-australian-town-residents-144437774.html)
+- Jun 13 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
 <!-- feed end -->
 
 ### Onstream
