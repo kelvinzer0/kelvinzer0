@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [El Paso man dies in alleged hot tub electrocution in Mexico beach resort in Puerto Peñasco](https://www.yahoo.com/news/el-pasoan-dies-alleged-jacuzzi-002319923.html)
+- Jun 13 - [Elko New Market's request to increase water use for bottling plant gets DNR's OK](https://www.yahoo.com/news/elko-markets-request-increase-water-022800489.html)
+- Jun 13 - [Japan's Honda to start selling micro-sized electric vans in October](https://finance.yahoo.com/news/japans-honda-start-selling-micro-020506631.html)
+- Jun 12 - [Neil Goldschmidt, former Oregon governor who confessed to sex with a minor in the 1970s, has died](https://www.yahoo.com/news/neil-goldschmidt-former-oregon-governor-234905959.html)
 - Jun 12 - [CNN Host Literally Shows Receipts While Brutally Fact Checking GOP Rep](https://www.yahoo.com/news/cnn-host-literally-shows-receipts-233705152.html)
 - Jun 12 - [All the rain in Miami and Fort Lauderdale did that? Take a look at what people posted](https://www.yahoo.com/news/rain-miami-fort-lauderdale-did-230654578.html)
-- Jun 12 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
-- Jun 12 - [US wishes India luck with 'structural issues' in strained China ties](https://www.yahoo.com/news/us-wishes-india-luck-structural-214103601.html)
 <!-- feed end -->
 
 ### Onstream
