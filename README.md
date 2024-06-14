@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Groton City police call for help when python gets loose in a cruiser](https://www.yahoo.com/news/groton-city-police-call-help-003400429.html)
-- Jun 14 - [Fake Anne Frank quote in Indian Hills HS yearbook 'unacceptable' and 'won't be tolerated'](https://www.yahoo.com/news/fake-anne-frank-quote-indian-002657392.html)
+- Jun 13 - [The US fines Middle Eastern airline Emirates $1.8 million for flights that passed too low over Iraq](https://www.yahoo.com/news/us-fines-middle-eastern-airline-214902775.html)
+- Jun 13 - ['Excited': Owners, staff of new Crumbl in Alexandria ready to share their cookies](https://www.yahoo.com/lifestyle/excited-owners-staff-crumbl-alexandria-214555999.html)
 - Jun 13 - [Roaring Kitty nearly doubles GameStop holdings to 9 million shares, Reddit post shows](https://www.yahoo.com/tech/roaring-kitty-nearly-doubles-gamestop-210012833.html)
-- Jun 13 - [Trump Weighs in on Milwaukee Flub and Somehow Makes It Even Worse](https://www.yahoo.com/news/trump-weighs-milwaukee-flub-somehow-203824355.html)
-- Jun 13 - [Man Cancels Family Get-Together After Brother-in-Law Drives Over His Porsche with 'Huge Pickup'](https://www.yahoo.com/lifestyle/man-cancels-family-together-brother-200000428.html)
+- Jun 13 - [I'm Retired. When Can I Stop Filing Taxes?](https://finance.yahoo.com/news/im-senior-ever-stop-filing-130049838.html)
+- Jun 13 - [Cheating husband sues Apple after wife discovered ‘deleted’ messages sent to sex workers](https://www.yahoo.com/tech/cheating-husband-sues-apple-wife-191044208.html)
 <!-- feed end -->
 
 ### Onstream
