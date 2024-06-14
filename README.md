@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 14 - [Violent road-rage fight at L.A. airport leaves elderly woman unconscious](https://www.yahoo.com/news/violent-road-rage-fight-l-025726480.html)
-- Jun 14 - [Person rescued in Yosemite after fall in Mist Trail](https://www.yahoo.com/news/person-rescued-yosemite-fall-mist-023136893.html)
-- Jun 13 - [Teen girl that went missing near Kings Automall found safe in North Carolina, police say](https://www.yahoo.com/news/14-old-girl-abducted-near-232356447.html)
 - Jun 13 - [Canada lawmakers who knowingly helped other nations must be removed, party leader says](https://www.yahoo.com/news/canada-lawmakers-knowingly-helped-other-222630028.html)
-- Jun 13 - [Deputies apprehend man accused of violent attack on woman leaving Publix lot in Stuart](https://www.yahoo.com/news/deputies-apprehend-man-accused-violent-215907698.html)
+- Jun 13 - [The US fines Middle Eastern airline Emirates $1.8 million for flights that passed too low over Iraq](https://www.yahoo.com/news/us-fines-middle-eastern-airline-214902775.html)
+- Jun 13 - [Roaring Kitty Ditches GameStop Options, Scoops Up Stock. He Now Has a $262 Million Stake.](https://www.barrons.com/articles/gamestop-stock-price-amc-meme-roaring-kitty-f3b1abe5?siteid=yhoof2&yptr=yahoo)
+- Jun 13 - [UPDATE: 1 dead, 3 injured in Interstate 10 crash; FHP officials say](https://www.yahoo.com/news/florida-highway-patrol-investigating-deadly-210247389.html)
 <!-- feed end -->
 
 ### Onstream
