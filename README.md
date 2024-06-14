@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Severe thunderstorm warning issued for parts of eastern Massachusetts](https://www.yahoo.com/news/severe-thunderstorm-warning-issued-parts-174343150.html)
+- Jun 14 - [Pic captures beachgoer minutes before she was run over by Horry police truck. Woman named](https://www.yahoo.com/news/pic-captures-beachgoer-minutes-she-171337476.html)
 - Jun 14 - [NASA's Voyager 1, the most distant spacecraft from Earth, is doing science again after problem](https://www.yahoo.com/news/nasas-voyager-1-most-distant-164016162.html)
 - Jun 14 - [“Walks like a duck, swims like a duck”: Sonia Sotomayor torches Supreme Court’s bump stock ruling](https://www.yahoo.com/news/walks-duck-swims-duck-sonia-155100166.html)
 - Jun 14 - [Southwest Airlines Boeing 737 Max sustains 'substantial' damage from 'Dutch roll' incident](https://www.yahoo.com/news/southwest-airlines-boeing-737-max-154528552.html)
