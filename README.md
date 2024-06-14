@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Pic captures beachgoer minutes before she was run over by Horry police truck. Woman named](https://www.yahoo.com/news/pic-captures-beachgoer-minutes-she-171337476.html)
+- Jun 14 - [Adobe Inc (NYSE:ADBE): The Best AI Stock to Buy After Blockbuster Q2 Results?](https://finance.yahoo.com/news/adobe-inc-nyse-adbe-best-195141925.html)
+- Jun 14 - [Oklahoma State will freeze tuition again for the third year in a row](https://www.yahoo.com/news/oklahoma-state-freeze-tuition-again-190804940.html)
 - Jun 14 - [NASA's Voyager 1, the most distant spacecraft from Earth, is doing science again after problem](https://www.yahoo.com/news/nasas-voyager-1-most-distant-164016162.html)
-- Jun 14 - [“Walks like a duck, swims like a duck”: Sonia Sotomayor torches Supreme Court’s bump stock ruling](https://www.yahoo.com/news/walks-duck-swims-duck-sonia-155100166.html)
 - Jun 14 - [Southwest Airlines Boeing 737 Max sustains 'substantial' damage from 'Dutch roll' incident](https://www.yahoo.com/news/southwest-airlines-boeing-737-max-154528552.html)
-- Jun 14 - [Bond traders worry liquidity will worsen as US market size grows](https://finance.yahoo.com/news/bond-traders-worry-liquidity-worsen-142924937.html)
+- Jun 14 - [US navy faces its most intense combat since World War II against Yemen's Houthi rebels](https://www.yahoo.com/news/us-navy-faces-most-intense-154327645.html)
 <!-- feed end -->
 
 ### Onstream
