@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [What Apple Intelligence means for Apple's stock: YF Reports](https://finance.yahoo.com/video/apple-intelligence-means-apples-stock-230000796.html)
-- Jun 13 - [Shocking footage shows moments after a gator ate a 41-year-old woman in Florida](https://www.yahoo.com/news/shocking-footage-shows-moments-gator-222455975.html)
-- Jun 13 - [Deputies apprehend man accused of violent attack on woman leaving Publix lot in Stuart](https://www.yahoo.com/news/deputies-apprehend-man-accused-violent-215907698.html)
-- Jun 13 - [Elon Musk wins Tesla shareholder battle to keep his record-breaking pay](https://finance.yahoo.com/news/elon-musk-wins-tesla-shareholder-battle-to-keep-his-record-breaking-pay-211135704.html)
+- Jun 14 - [Groton City police call for help when python gets loose in a cruiser](https://www.yahoo.com/news/groton-city-police-call-help-003400429.html)
+- Jun 14 - [Fake Anne Frank quote in Indian Hills HS yearbook 'unacceptable' and 'won't be tolerated'](https://www.yahoo.com/news/fake-anne-frank-quote-indian-002657392.html)
 - Jun 13 - [Roaring Kitty nearly doubles GameStop holdings to 9 million shares, Reddit post shows](https://www.yahoo.com/tech/roaring-kitty-nearly-doubles-gamestop-210012833.html)
+- Jun 13 - [Trump Weighs in on Milwaukee Flub and Somehow Makes It Even Worse](https://www.yahoo.com/news/trump-weighs-milwaukee-flub-somehow-203824355.html)
+- Jun 13 - [Man Cancels Family Get-Together After Brother-in-Law Drives Over His Porsche with 'Huge Pickup'](https://www.yahoo.com/lifestyle/man-cancels-family-together-brother-200000428.html)
 <!-- feed end -->
 
 ### Onstream
