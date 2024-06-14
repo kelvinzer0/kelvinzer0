@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [Justice Thomas’ former clerk reacts to claim that he took more trips on GOP megadonor’s private plane](https://www.yahoo.com/news/justice-thomas-former-clerk-reacts-221747911.html)
 - Jun 14 - [Inmate uses jail-made shiv in brutal attack on Southern California deputy](https://www.yahoo.com/news/inmate-uses-jail-made-shiv-004035365.html)
 - Jun 13 - [Canada lawmakers who knowingly helped other nations must be removed, party leader says](https://www.yahoo.com/news/canada-lawmakers-knowingly-helped-other-222630028.html)
-- Jun 13 - [Cheating husband sues Apple after wife discovered ‘deleted’ messages sent to sex workers](https://www.yahoo.com/tech/cheating-husband-sues-apple-wife-191044208.html)
-- Jun 13 - [Tyson Foods heir suspended as CFO after second alcohol-related arrest](https://finance.yahoo.com/news/tyson-foods-heir-suspended-cfo-181146757.html)
-- Jun 13 - [If You Had Invested $1,000 in an S&P 500 Index Fund 10 Years Ago, Here’s How Much Money You’d Have Today](https://finance.yahoo.com/news/had-invested-1-000-p-180009879.html)
+- Jun 13 - [The US fines Middle Eastern airline Emirates $1.8 million for flights that passed too low over Iraq](https://www.yahoo.com/news/us-fines-middle-eastern-airline-214902775.html)
+- Jun 13 - [Jacksonville Sheriff’s Office addresses ‘squatting’ law set to go in effect July 1](https://www.yahoo.com/news/jacksonville-sheriff-office-addresses-squatting-211425337.html)
 <!-- feed end -->
 
 ### Onstream
