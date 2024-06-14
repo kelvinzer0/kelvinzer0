@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Damaging winds, no tornado: A look at Thursday night's storm in northern Boone County](https://www.yahoo.com/news/damaging-winds-no-tornado-look-160802774.html)
+- Jun 14 - [Severe thunderstorm warning issued for parts of eastern Massachusetts](https://www.yahoo.com/news/severe-thunderstorm-warning-issued-parts-174343150.html)
+- Jun 14 - [NASA's Voyager 1, the most distant spacecraft from Earth, is doing science again after problem](https://www.yahoo.com/news/nasas-voyager-1-most-distant-164016162.html)
+- Jun 14 - [“Walks like a duck, swims like a duck”: Sonia Sotomayor torches Supreme Court’s bump stock ruling](https://www.yahoo.com/news/walks-duck-swims-duck-sonia-155100166.html)
 - Jun 14 - [Southwest Airlines Boeing 737 Max sustains 'substantial' damage from 'Dutch roll' incident](https://www.yahoo.com/news/southwest-airlines-boeing-737-max-154528552.html)
-- Jun 14 - [Super Micro Could Be Next to Join Nasdaq 100. Walgreens Could Be Dropped.](https://www.barrons.com/articles/nasdaq-100-additions-arm-217b09c8?siteid=yhoof2&yptr=yahoo)
-- Jun 14 - [Former Nashville officer arrested after allegedly participating in an adult video while on duty](https://www.yahoo.com/news/former-nashville-officer-arrested-allegedly-150538702.html)
-- Jun 14 - [Elon Musk Demands Money Back From Employees He Laid Off](https://www.yahoo.com/news/elon-musk-demands-money-back-135837629.html)
+- Jun 14 - [Bond traders worry liquidity will worsen as US market size grows](https://finance.yahoo.com/news/bond-traders-worry-liquidity-worsen-142924937.html)
 <!-- feed end -->
 
 ### Onstream
