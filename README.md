@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [South Lebanon village shaken by deadly Israeli strike](https://www.yahoo.com/news/south-lebanon-village-shaken-deadly-134711382.html)
+- Jun 14 - [Video shows man pull knife before deputy shot him in La Quinta](https://www.yahoo.com/news/video-shows-man-pull-knife-125909930.html)
+- Jun 14 - [Arizona man says his gap insurance won't pay an $18,000 claim for his totaled BMW because of a 60-cent mistake](https://finance.yahoo.com/news/arizona-man-says-gap-insurance-110100024.html)
+- Jun 14 - [A Southwest Boeing 737 Max experienced a rare but serious 'Dutch roll,' and has now been out of service for almost 3 weeks](https://www.yahoo.com/news/southwest-boeing-737-max-experienced-110011997.html)
 - Jun 14 - [US Navy faces its most intense combat since World War II against Yemen's Iran-backed Houthi rebels](https://www.yahoo.com/news/us-navy-faces-most-intense-105458639.html)
-- Jun 14 - [Putin offers truce if Ukraine exits Moscow-occupied areas and drops NATO bid — nonstarters for Kyiv](https://www.yahoo.com/news/putin-pledges-cease-fire-ukraine-104521553.html)
-- Jun 14 - [Laura Ingraham’s Donald Trump Prediction Sends Shudders Across Social Media](https://www.yahoo.com/news/laura-ingrahams-donald-trump-prediction-085739610.html)
-- Jun 14 - [Donald Trump’s Wild New Debate Claim Has People Saying, Hmm, OK](https://www.yahoo.com/news/donald-trumps-wild-debate-claim-074640769.html)
-- Jun 14 - [Violent road-rage fight at L.A. airport leaves elderly woman unconscious](https://www.yahoo.com/news/violent-road-rage-fight-l-025726480.html)
 <!-- feed end -->
 
 ### Onstream
