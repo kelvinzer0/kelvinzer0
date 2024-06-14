@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [UK hits Russia’s shadow oil fleet with sanctions to weaken Russia’s military](https://finance.yahoo.com/news/uk-hits-russia-shadow-oil-103723506.html)
-- Jun 14 - [Ask an Advisor: When I Claim My $4,000 Social Security, Will My Wife Automatically Get a Spousal Benefit?](https://finance.yahoo.com/news/claim-4-000-social-security-110000022.html)
+- Jun 14 - [After Nvidia's Stock Split, Can It Reach $1,200 Again?](https://finance.yahoo.com/news/nvidias-stock-split-reach-1-110000475.html)
+- Jun 14 - [Putin offers truce if Ukraine exits Moscow-occupied areas and drops NATO bid — a nonstarter for Kyiv](https://www.yahoo.com/news/putin-pledges-cease-fire-ukraine-104521553.html)
 - Jun 14 - [Laura Ingraham's Donald Trump Prediction Sends Shudders Across Social Media](https://www.yahoo.com/news/laura-ingrahams-donald-trump-prediction-085739610.html)
-- Jun 14 - [Donald Trump's Wild New Debate Claim Has People Saying, Hmm OK](https://www.yahoo.com/news/donald-trumps-wild-debate-claim-074640769.html)
-- Jun 14 - [Violent road-rage fight at L.A. airport leaves elderly woman unconscious](https://www.yahoo.com/news/violent-road-rage-fight-l-025726480.html)
+- Jun 14 - [Donald Trump’s Wild New Debate Claim Has People Saying, Hmm, OK](https://www.yahoo.com/news/donald-trumps-wild-debate-claim-074640769.html)
+- Jun 14 - [Boeing finds new flaws in 787 jets: sources](https://finance.yahoo.com/video/boeing-finds-flaws-787-jets-070657505.html)
 <!-- feed end -->
 
 ### Onstream
