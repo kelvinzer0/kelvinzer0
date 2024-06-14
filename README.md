@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [Trending tickers: Tesco, Adobe, Tesla and Crest Nicholson](https://uk.finance.yahoo.com/news/tesco-adobe-tesla-crest-nicholson-trending-tickers-082927552.html)
+- Jun 14 - [Senior US diplomat warns of risks of accidental conflict sparked by China's moves](https://www.yahoo.com/news/senior-us-diplomat-warns-risks-064221705.html)
 - Jun 14 - [Violent road-rage fight at L.A. airport leaves elderly woman unconscious](https://www.yahoo.com/news/violent-road-rage-fight-l-025726480.html)
 - Jun 13 - [Donald Trump Mocked As He Appears To Back Out Of Head-To-Head 'Press Conferences' With Joe Biden](https://www.yahoo.com/news/donald-trump-mocked-appears-back-230048193.html)
 - Jun 13 - [Canada lawmakers who knowingly helped other nations must be removed, party leader says](https://www.yahoo.com/news/canada-lawmakers-knowingly-helped-other-222630028.html)
-- Jun 13 - [The US fines Middle Eastern airline Emirates $1.8 million for flights that passed too low over Iraq](https://www.yahoo.com/news/us-fines-middle-eastern-airline-214902775.html)
-- Jun 13 - [UPDATE: 1 dead, 3 injured in Interstate 10 crash; FHP officials say](https://www.yahoo.com/news/florida-highway-patrol-investigating-deadly-210247389.html)
 <!-- feed end -->
 
 ### Onstream
