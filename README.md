@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [South Lebanon village shaken by deadly Israeli strike](https://www.yahoo.com/news/south-lebanon-village-shaken-deadly-134711382.html)
-- Jun 14 - [Video shows man pull knife before deputy shot him in La Quinta](https://www.yahoo.com/news/video-shows-man-pull-knife-125909930.html)
+- Jun 14 - [They Broke Up In 1989, But Now His Ex-Girlfriend Is Inheriting His $1 Million Retirement Account After Nearly 40 Years](https://finance.yahoo.com/news/broke-1989-now-ex-girlfriend-133011668.html)
+- Jun 14 - [Fleeing Dodge Charger Driver Outraged Police Pitted Him](https://autos.yahoo.com/fleeing-dodge-charger-driver-outraged-130000539.html)
+- Jun 14 - [‘Still against the law’: OKCPD issue reminder to gun owners after road rage arrest](https://www.yahoo.com/news/still-against-law-okcpd-issue-111700934.html)
+- Jun 14 - [Remember the mystery creature at Amarillo Zoo? 2 years later, it's still a mystery](https://www.yahoo.com/news/remember-mystery-creature-amarillo-zoo-110328429.html)
 - Jun 14 - [Arizona man says his gap insurance won't pay an $18,000 claim for his totaled BMW because of a 60-cent mistake](https://finance.yahoo.com/news/arizona-man-says-gap-insurance-110100024.html)
-- Jun 14 - [A Southwest Boeing 737 Max experienced a rare but serious 'Dutch roll,' and has now been out of service for almost 3 weeks](https://www.yahoo.com/news/southwest-boeing-737-max-experienced-110011997.html)
-- Jun 14 - [US Navy faces its most intense combat since World War II against Yemen's Iran-backed Houthi rebels](https://www.yahoo.com/news/us-navy-faces-most-intense-105458639.html)
 <!-- feed end -->
 
 ### Onstream
