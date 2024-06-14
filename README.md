@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Minnesota dad told landlord he 'already dug a hole' before executing daughter's boyfriend for suspected abuse](https://www.yahoo.com/news/minnesota-dad-told-landlord-already-131930845.html)
-- Jun 14 - [Tennessee Zoo Mourns Death of Antelope After He Choked on Banned Item Human Brought In](https://www.yahoo.com/news/tennessee-zoo-mourns-death-antelope-130000030.html)
-- Jun 14 - [US Navy faces its most intense combat since World War II against Yemen's Iran-backed Houthi rebels](https://www.yahoo.com/news/us-navy-faces-most-intense-105458639.html)
-- Jun 14 - [Putin offers truce if Ukraine exits Russian-claimed areas and drops NATO bid. Kyiv calls it 'absurd'](https://www.yahoo.com/news/putin-pledges-cease-fire-ukraine-104521553.html)
-- Jun 14 - [Fain, UAW VP trade barbs in letters over Stellantis Department](https://www.yahoo.com/news/fain-uaw-vp-trade-barbs-100800271.html)
+- Jun 14 - [Damaging winds, no tornado: A look at Thursday night's storm in northern Boone County](https://www.yahoo.com/news/damaging-winds-no-tornado-look-160802774.html)
+- Jun 14 - [Southwest Airlines Boeing 737 Max sustains 'substantial' damage from 'Dutch roll' incident](https://www.yahoo.com/news/southwest-airlines-boeing-737-max-154528552.html)
+- Jun 14 - [Super Micro Could Be Next to Join Nasdaq 100. Walgreens Could Be Dropped.](https://www.barrons.com/articles/nasdaq-100-additions-arm-217b09c8?siteid=yhoof2&yptr=yahoo)
+- Jun 14 - [Former Nashville officer arrested after allegedly participating in an adult video while on duty](https://www.yahoo.com/news/former-nashville-officer-arrested-allegedly-150538702.html)
+- Jun 14 - [Elon Musk Demands Money Back From Employees He Laid Off](https://www.yahoo.com/news/elon-musk-demands-money-back-135837629.html)
 <!-- feed end -->
 
 ### Onstream
