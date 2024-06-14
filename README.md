@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [A Southwest pilot nearly crashed his flight into the ocean: report](https://www.yahoo.com/news/southwest-pilot-nearly-crashed-flight-205246170.html)
+- Jun 14 - [Shot fired inside a Louisiana Walmart Friday](https://www.yahoo.com/news/shot-fired-inside-louisiana-walmart-195908466.html)
 - Jun 14 - [Aides' vehicle in a convoy carrying Mexico's next president involved in a crash that killed 1](https://www.yahoo.com/news/aides-vehicle-convoy-carrying-mexicos-193931607.html)
-- Jun 14 - [NASA's Voyager 1, the most distant spacecraft from Earth, is doing science again after problem](https://www.yahoo.com/news/nasas-voyager-1-most-distant-164016162.html)
-- Jun 14 - [Southwest Airlines Boeing 737 Max sustains 'substantial' damage from 'Dutch roll' incident](https://www.yahoo.com/news/southwest-airlines-boeing-737-max-154528552.html)
-- Jun 14 - [US navy faces its most intense combat since World War II against Yemen's Houthi rebels](https://www.yahoo.com/news/us-navy-faces-most-intense-154327645.html)
-- Jun 14 - [Treasure trove recovered from ancient shipwrecks 5,000 feet underwater](https://www.yahoo.com/news/treasure-trove-recovered-ancient-shipwrecks-152709824.html)
+- Jun 14 - [Prince Harry & Meghan Markle Might Be Going Back to Their Royal Exit Plan That Queen Elizabeth Nixed](https://www.yahoo.com/entertainment/prince-harry-meghan-markle-might-185102978.html)
+- Jun 14 - [Pic captures beachgoer minutes before she was run over by Horry police truck. Woman named](https://www.yahoo.com/news/pic-captures-beachgoer-minutes-she-171337476.html)
 <!-- feed end -->
 
 ### Onstream
