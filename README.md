@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Trending tickers: Tesco, Adobe, Tesla and Crest Nicholson](https://uk.finance.yahoo.com/news/tesco-adobe-tesla-crest-nicholson-trending-tickers-082927552.html)
+- Jun 14 - [Former Salisbury City Council member, longtime firefighter Gary Comegys dies at age 69](https://www.yahoo.com/news/former-salisbury-city-council-member-090647865.html)
+- Jun 14 - [Donald Trump's Wild New Debate Claim Has People Saying, Hmm OK](https://www.yahoo.com/news/donald-trumps-wild-debate-claim-074640769.html)
+- Jun 14 - [Boeing finds new flaws in 787 jets: sources](https://finance.yahoo.com/video/boeing-finds-flaws-787-jets-070657505.html)
 - Jun 14 - [Senior US diplomat warns of risks of accidental conflict sparked by China's moves](https://www.yahoo.com/news/senior-us-diplomat-warns-risks-064221705.html)
-- Jun 14 - [Violent road-rage fight at L.A. airport leaves elderly woman unconscious](https://www.yahoo.com/news/violent-road-rage-fight-l-025726480.html)
-- Jun 13 - [Donald Trump Mocked As He Appears To Back Out Of Head-To-Head 'Press Conferences' With Joe Biden](https://www.yahoo.com/news/donald-trump-mocked-appears-back-230048193.html)
-- Jun 13 - [Canada lawmakers who knowingly helped other nations must be removed, party leader says](https://www.yahoo.com/news/canada-lawmakers-knowingly-helped-other-222630028.html)
+- Jun 14 - [There Is No Magnificent Seven. There’s Simply the Magnificent One.](https://www.barrons.com/articles/magnificient-seven-nvdia-apple-stocks-18f0dc4c?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
