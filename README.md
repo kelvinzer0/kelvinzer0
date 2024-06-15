@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [My Head Is Spinning After Seeing These 19 Extremely Dumb Things People Actually Thought It Was A Good Idea To Post On The Internet Last Week](https://www.yahoo.com/entertainment/head-spinning-seeing-19-extremely-134850560.html)
+- Jun 15 - [3 Dividend Stocks To Consider For A $250 Investment](https://finance.yahoo.com/news/3-dividend-stocks-consider-250-153211249.html)
 - Jun 15 - [Dementia Experts Shared 7 Rules You Should Follow To Keep Your Mind Sharp](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-rules-131601718.html)
-- Jun 15 - [OKC woman allegedly assaults Sonic employee with knife over order](https://www.yahoo.com/news/okc-woman-allegedly-assaults-sonic-113100317.html)
-- Jun 15 - [3 reasons why boomers are eating through their retirement savings so quickly — how to preserve your nest egg](https://finance.yahoo.com/news/3-reasons-why-boomers-eating-103700045.html)
+- Jun 15 - [Princess Anne struggles with unruly horse during Trooping the Colour – watch](https://www.yahoo.com/lifestyle/princess-anne-struggles-unruly-horse-111430357.html)
+- Jun 15 - [Philippines files UN claim to extended continental shelf in South China Sea](https://www.yahoo.com/news/philippines-files-un-claim-extended-101811288.html)
 - Jun 15 - [South Florida condo owners are dumping their homes after getting slapped with six-figure special assessments](https://finance.yahoo.com/news/south-florida-condo-owners-dumping-101000141.html)
 <!-- feed end -->
 
