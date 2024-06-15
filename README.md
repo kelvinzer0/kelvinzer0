@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 15 - [‘I talk to a lot of presidents’: Serena Williams gets testy when asked about Trump after being named on regular call list](https://www.yahoo.com/entertainment/talk-lot-presidents-serena-williams-203518898.html)
+- Jun 15 - [Here’s why there are 263 miles of cables under the LDS Salt Lake Temple](https://www.yahoo.com/news/why-263-miles-cables-under-193326722.html)
+- Jun 15 - [‘I don’t live extravagantly by any means’: I have $68,000 in credit-card debt and $50,000 in a 401(k). How can I dig myself out of this trap on a $55,000 salary?](https://finance.yahoo.com/news/don-t-live-extravagantly-means-123700825.html)
 - Jun 15 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
 - Jun 15 - [Missouri woman's murder conviction tossed after 43 years. Her lawyers say a police officer did it](https://www.yahoo.com/news/missouri-womans-murder-conviction-tossed-164344457.html)
-- Jun 15 - [Divers find remains of Finnish WWII plane that was shot down by Moscow with a US diplomat aboard](https://www.yahoo.com/news/divers-remains-finnish-wwii-plane-145508675.html)
-- Jun 15 - [US forces destroy Houthi radars in Yemen that allowed Iranian-backed group to target commercial ships, CENTCOM says](https://www.yahoo.com/news/civilian-mariner-remains-missing-2-030947033.html)
 <!-- feed end -->
 
 ### Onstream
