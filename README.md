@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [15 Shocking Things A Woman's Body Is Capable Of Doing, And I Had No Idea Any Of These Things Could Happen To Us](https://www.yahoo.com/lifestyle/15-shocking-things-womans-body-221602989.html)
+- Jun 14 - [Dutch Bros among 3 businesses threatened by ’eminent domain action’ in Fresno](https://www.yahoo.com/news/dutch-bros-among-3-businesses-223024845.html)
+- Jun 14 - [The #1 Snack at Costco to Lower Your Triglyceride Levels, Recommended by Dietitians](https://www.yahoo.com/lifestyle/1-snack-costco-lower-triglyceride-215752278.html)
+- Jun 14 - [DeSantis quietly signs controversial condo bill. Owners are already threatening to sue](https://www.yahoo.com/news/desantis-quietly-signs-controversial-condo-213646553.html)
 - Jun 14 - [Conservative media uses misleading camera angle of Biden to falsely claim he was wandering aimlessly](https://www.yahoo.com/news/conservative-media-uses-misleading-camera-202913162.html)
-- Jun 14 - [Aides' vehicle in a convoy carrying Mexico's next president involved in a crash that killed 1](https://www.yahoo.com/news/aides-vehicle-convoy-carrying-mexicos-193931607.html)
-- Jun 14 - [Prince Harry & Meghan Markle Might Be Going Back to Their Royal Exit Plan That Queen Elizabeth Nixed](https://www.yahoo.com/entertainment/prince-harry-meghan-markle-might-185102978.html)
-- Jun 14 - [Tesla Teases Three Upcoming Models, Possibly Including a Van](https://autos.yahoo.com/tesla-teases-three-upcoming-models-171400667.html)
+- Jun 14 - [Massive hole opens up in Hernando County](https://www.yahoo.com/news/live-massive-hole-opens-hernando-185835182.html)
 <!-- feed end -->
 
 ### Onstream
