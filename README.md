@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [I’m a Wealthy Retiree: 6 Reasons Taking Social Security at Age 70 Was Right for Me](https://finance.yahoo.com/news/m-wealthy-retiree-6-reasons-110224342.html)
 - Jun 15 - [South Florida condo owners are dumping their homes after getting slapped with six-figure special assessments](https://finance.yahoo.com/news/south-florida-condo-owners-dumping-101000141.html)
-- Jun 15 - [2 Warren Buffett Stocks to Buy Hand Over Fist and 1 to Avoid](https://finance.yahoo.com/news/2-warren-buffett-stocks-buy-094500630.html)
-- Jun 15 - [US Department of the Treasury makes significant last-minute change to vehicle tax credit rules: 'Fair and logical'](https://www.yahoo.com/news/us-department-treasury-makes-significant-060000588.html)
+- Jun 15 - [Judge issues ruling in bankruptcy case of Deion Sanders' son Shilo](https://www.yahoo.com/news/judge-issues-ruling-bankruptcy-case-100535156.html)
+- Jun 15 - [Several hurt in Russia's Belgorod region as strike causes collapse of residential building](https://www.yahoo.com/news/several-hurt-russias-belgorod-region-073542531.html)
 - Jun 15 - [US military targets Houthi radar sites in Yemen after a merchant sailor goes missing](https://www.yahoo.com/news/us-military-targets-houthi-radar-044138426.html)
-- Jun 14 - [Las Vegas police agencies arrest 12 in sex offender compliance check operation](https://www.yahoo.com/news/las-vegas-police-agencies-arrest-230809837.html)
 <!-- feed end -->
 
 ### Onstream
