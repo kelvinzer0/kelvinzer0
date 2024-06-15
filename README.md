@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Dutch Bros among 3 businesses threatened by ’eminent domain action’ in Fresno](https://www.yahoo.com/news/dutch-bros-among-3-businesses-223024845.html)
-- Jun 14 - [The #1 Snack at Costco to Lower Your Triglyceride Levels, Recommended by Dietitians](https://www.yahoo.com/lifestyle/1-snack-costco-lower-triglyceride-215752278.html)
 - Jun 14 - [DeSantis quietly signs controversial condo bill. Owners are already threatening to sue](https://www.yahoo.com/news/desantis-quietly-signs-controversial-condo-213646553.html)
-- Jun 14 - [Conservative media uses misleading camera angle of Biden to falsely claim he was wandering aimlessly](https://www.yahoo.com/news/conservative-media-uses-misleading-camera-202913162.html)
-- Jun 14 - [Massive hole opens up in Hernando County](https://www.yahoo.com/news/live-massive-hole-opens-hernando-185835182.html)
+- Jun 14 - [A Southwest pilot nearly crashed his flight into the ocean: report](https://www.yahoo.com/news/southwest-pilot-nearly-crashed-flight-205246170.html)
+- Jun 14 - [Shot fired inside a Louisiana Walmart Friday](https://www.yahoo.com/news/shot-fired-inside-louisiana-walmart-195908466.html)
+- Jun 14 - [Aides' vehicle in a convoy carrying Mexico's next president involved in a crash that killed 1](https://www.yahoo.com/news/aides-vehicle-convoy-carrying-mexicos-193931607.html)
+- Jun 14 - [US imposes sanctions on Nordic Resistance Movement in fight against white supremacy](https://www.yahoo.com/news/us-imposes-sanctions-nordic-resistance-192214695.html)
 <!-- feed end -->
 
 ### Onstream
