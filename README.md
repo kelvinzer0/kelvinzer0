@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [I’m a Wealthy Retiree: 6 Reasons Taking Social Security at Age 70 Was Right for Me](https://finance.yahoo.com/news/m-wealthy-retiree-6-reasons-110224342.html)
+- Jun 15 - [Princess Anne struggles with unruly horse during Trooping the Colour – watch](https://www.yahoo.com/lifestyle/princess-anne-struggles-unruly-horse-111430357.html)
 - Jun 15 - [South Florida condo owners are dumping their homes after getting slapped with six-figure special assessments](https://finance.yahoo.com/news/south-florida-condo-owners-dumping-101000141.html)
 - Jun 15 - [Judge issues ruling in bankruptcy case of Deion Sanders' son Shilo](https://www.yahoo.com/news/judge-issues-ruling-bankruptcy-case-100535156.html)
-- Jun 15 - [Several hurt in Russia's Belgorod region as strike causes collapse of residential building](https://www.yahoo.com/news/several-hurt-russias-belgorod-region-073542531.html)
 - Jun 15 - [US military targets Houthi radar sites in Yemen after a merchant sailor goes missing](https://www.yahoo.com/news/us-military-targets-houthi-radar-044138426.html)
+- Jun 14 - [Jacksonville Sheriff’s Office arrests 14 people during Safety and Sobriety Checkpoint](https://www.yahoo.com/news/jacksonville-sheriff-office-arrests-14-234912050.html)
 <!-- feed end -->
 
 ### Onstream
