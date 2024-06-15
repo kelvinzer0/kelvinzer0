@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Hiker seriously injured in fall at Koko Head Crater Trail](https://www.yahoo.com/news/hiker-seriously-injured-fall-koko-035700597.html)
+- Jun 15 - [8-year-old girl has medical emergency on SkyWest flight to Chicago and dies](https://www.yahoo.com/news/8-old-girl-medical-emergency-212653301.html)
+- Jun 14 - [Jacksonville Sheriff’s Office arrests 14 people during Safety and Sobriety Checkpoint](https://www.yahoo.com/news/jacksonville-sheriff-office-arrests-14-234912050.html)
+- Jun 14 - [Las Vegas police agencies arrest 12 in sex offender compliance check operation](https://www.yahoo.com/news/las-vegas-police-agencies-arrest-230809837.html)
 - Jun 14 - [DeSantis quietly signs controversial condo bill. Owners are already threatening to sue](https://www.yahoo.com/news/desantis-quietly-signs-controversial-condo-213646553.html)
-- Jun 14 - [A Southwest pilot nearly crashed his flight into the ocean: report](https://www.yahoo.com/news/southwest-pilot-nearly-crashed-flight-205246170.html)
 - Jun 14 - [B-52 Future Stratofortress: The Upgrades That Will Transform The B-52H Into The B-52J](https://www.yahoo.com/tech/b-52-future-stratofortress-upgrades-203305950.html)
-- Jun 14 - [Aides' vehicle in a convoy carrying Mexico's next president involved in a crash that killed 1](https://www.yahoo.com/news/aides-vehicle-convoy-carrying-mexicos-193931607.html)
 <!-- feed end -->
 
 ### Onstream
