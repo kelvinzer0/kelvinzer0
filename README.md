@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [French footballers, shocked at EU vote, stress importance of voting](https://sports.yahoo.com/french-footballers-shocked-eu-vote-154316865.html)
-- Jun 15 - [Divers find remains of Finnish WWII plane that was shot down by Moscow with a US diplomat aboard](https://www.yahoo.com/news/divers-remains-finnish-wwii-plane-145508675.html)
 - Jun 15 - [Dementia Experts Shared 7 Rules You Should Follow To Keep Your Mind Sharp](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-rules-131601718.html)
 - Jun 15 - [Princess Anne struggles with unruly horse during Trooping the Colour – watch](https://www.yahoo.com/lifestyle/princess-anne-struggles-unruly-horse-111430357.html)
 - Jun 15 - [South Florida condo owners are dumping their homes after getting slapped with six-figure special assessments](https://finance.yahoo.com/news/south-florida-condo-owners-dumping-101000141.html)
+- Jun 15 - [Judge issues ruling in bankruptcy case of Deion Sanders' son Shilo](https://www.yahoo.com/news/judge-issues-ruling-bankruptcy-case-100535156.html)
+- Jun 15 - [US military targets Houthi radar sites in Yemen after a merchant sailor goes missing](https://www.yahoo.com/news/us-military-targets-houthi-radar-044138426.html)
 <!-- feed end -->
 
 ### Onstream
