@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [US military targets Houthi radar sites in Yemen after a merchant sailor goes missing](https://www.yahoo.com/news/us-military-targets-houthi-radar-044138426.html)
 - Jun 14 - [DeSantis quietly signs controversial condo bill. Owners are already threatening to sue](https://www.yahoo.com/news/desantis-quietly-signs-controversial-condo-213646553.html)
-- Jun 14 - [Wife of man electrocuted in jacuzzi at Mexican resort files lawsuit](https://www.yahoo.com/news/wife-man-electrocuted-jacuzzi-mexican-210635037.html)
-- Jun 14 - [Elderly woman knocked unconscious at LAX during fight between 2 men](https://www.yahoo.com/news/elderly-woman-knocked-unconscious-lax-203440988.html)
+- Jun 14 - [B-52 Future Stratofortress: The Upgrades That Will Transform The B-52H Into The B-52J](https://www.yahoo.com/tech/b-52-future-stratofortress-upgrades-203305950.html)
 - Jun 14 - [Aides' vehicle in a convoy carrying Mexico's next president involved in a crash that killed 1](https://www.yahoo.com/news/aides-vehicle-convoy-carrying-mexicos-193931607.html)
-- Jun 14 - [Elon Musk’s prediction that Chinese carmakers would ‘demolish’ global rivals is coming true as they overtake U.S. competitors](https://finance.yahoo.com/news/elon-musk-prediction-chinese-carmakers-193258881.html)
+- Jun 14 - [US imposes sanctions on Nordic Resistance Movement in fight against white supremacy](https://www.yahoo.com/news/us-imposes-sanctions-nordic-resistance-192214695.html)
 <!-- feed end -->
 
 ### Onstream
