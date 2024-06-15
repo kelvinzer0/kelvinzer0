@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Side hustle to full-time: Spinning your hobby into a career](https://finance.yahoo.com/video/side-hustle-full-time-spinning-130015116.html)
 - Jun 15 - [Princess Anne struggles with unruly horse during Trooping the Colour – watch](https://www.yahoo.com/lifestyle/princess-anne-struggles-unruly-horse-111430357.html)
+- Jun 15 - [Cathie Wood’s stunning new $2,600 Telsa prophecy and Wall Street’s Nvidia stock prediction share an often overlooked investing truth](https://finance.yahoo.com/news/cathie-wood-stunning-2-600-110000890.html)
+- Jun 15 - [Philippines files UN claim to extended continental shelf in South China Sea](https://www.yahoo.com/news/philippines-files-un-claim-extended-101811288.html)
 - Jun 15 - [South Florida condo owners are dumping their homes after getting slapped with six-figure special assessments](https://finance.yahoo.com/news/south-florida-condo-owners-dumping-101000141.html)
-- Jun 15 - [Judge issues ruling in bankruptcy case of Deion Sanders' son Shilo](https://www.yahoo.com/news/judge-issues-ruling-bankruptcy-case-100535156.html)
-- Jun 15 - [US military targets Houthi radar sites in Yemen after a merchant sailor goes missing](https://www.yahoo.com/news/us-military-targets-houthi-radar-044138426.html)
-- Jun 14 - [Jacksonville Sheriff’s Office arrests 14 people during Safety and Sobriety Checkpoint](https://www.yahoo.com/news/jacksonville-sheriff-office-arrests-14-234912050.html)
 <!-- feed end -->
 
 ### Onstream
