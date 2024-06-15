@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Scientists raise concerns as computer models reveal historic loss of sea ice — and consequences could be disastrous](https://www.yahoo.com/news/scientists-raise-concerns-computer-models-023000738.html)
 - Jun 15 - [8-year-old girl has medical emergency on SkyWest flight to Chicago and dies](https://www.yahoo.com/news/8-old-girl-medical-emergency-212653301.html)
-- Jun 14 - [Jacksonville Sheriff’s Office arrests 14 people during Safety and Sobriety Checkpoint](https://www.yahoo.com/news/jacksonville-sheriff-office-arrests-14-234912050.html)
-- Jun 14 - [Las Vegas police agencies arrest 12 in sex offender compliance check operation](https://www.yahoo.com/news/las-vegas-police-agencies-arrest-230809837.html)
 - Jun 14 - [DeSantis quietly signs controversial condo bill. Owners are already threatening to sue](https://www.yahoo.com/news/desantis-quietly-signs-controversial-condo-213646553.html)
-- Jun 14 - [B-52 Future Stratofortress: The Upgrades That Will Transform The B-52H Into The B-52J](https://www.yahoo.com/tech/b-52-future-stratofortress-upgrades-203305950.html)
+- Jun 14 - [Cedar Hill Fire grows to 5 acres near Pleasant Hill, fire teams attacking](https://www.yahoo.com/news/2-acre-wildfire-reported-near-210959239.html)
+- Jun 14 - [Wife of man electrocuted in jacuzzi at Mexican resort files lawsuit](https://www.yahoo.com/news/wife-man-electrocuted-jacuzzi-mexican-210635037.html)
 <!-- feed end -->
 
 ### Onstream
