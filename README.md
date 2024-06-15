@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Angie Harmon's 18-year-old daughter arrested in North Carolina](https://www.yahoo.com/entertainment/angie-harmons-18-old-daughter-224804383.html)
+- Jun 15 - [8-year-old girl has medical emergency on SkyWest flight to Chicago and dies](https://www.yahoo.com/news/8-old-girl-medical-emergency-212653301.html)
+- Jun 14 - [Airport carjackers shot Uber driver, but couldn’t get cars in gear: police report](https://www.yahoo.com/news/airport-carjackers-shot-uber-driver-222048330.html)
 - Jun 14 - [DeSantis quietly signs controversial condo bill. Owners are already threatening to sue](https://www.yahoo.com/news/desantis-quietly-signs-controversial-condo-213646553.html)
-- Jun 14 - [A Southwest pilot nearly crashed his flight into the ocean: report](https://www.yahoo.com/news/southwest-pilot-nearly-crashed-flight-205246170.html)
 - Jun 14 - [Elderly woman knocked unconscious at LAX during fight between 2 men](https://www.yahoo.com/news/elderly-woman-knocked-unconscious-lax-203440988.html)
 - Jun 14 - [Aides' vehicle in a convoy carrying Mexico's next president involved in a crash that killed 1](https://www.yahoo.com/news/aides-vehicle-convoy-carrying-mexicos-193931607.html)
 <!-- feed end -->
