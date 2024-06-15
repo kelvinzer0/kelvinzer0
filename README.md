@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Rite of summer: Savannah police offer reminder of city's nighttime curfew](https://www.yahoo.com/news/rite-summer-savannah-police-offer-193946020.html)
-- Jun 15 - [AP Top Stories June 15 P](https://www.yahoo.com/news/ap-top-stories-june-15-193801105.html)
-- Jun 15 - [5 Car Brands That Could Cost You Double in Repairs Compared to Others](https://finance.yahoo.com/news/5-car-brands-could-cost-180153189.html)
 - Jun 15 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
-- Jun 15 - [Nvidia alone accounts for more than a third of the S&P 500’s gains this year—and it’s a big risk for investors, top economist warns](https://finance.yahoo.com/news/nvidia-alone-accounts-more-third-171637949.html)
+- Jun 15 - [Missouri woman's murder conviction tossed after 43 years. Her lawyers say a police officer did it](https://www.yahoo.com/news/missouri-womans-murder-conviction-tossed-164344457.html)
+- Jun 15 - [Fly Over The 'Grand Canyon' Of Mars In High-Resolution Orbiter Imagery](https://www.yahoo.com/news/fly-over-grand-canyon-mars-110500202.html)
+- Jun 15 - [Divers find remains of Finnish WWII plane that was shot down by Moscow with a US diplomat aboard](https://www.yahoo.com/news/divers-remains-finnish-wwii-plane-145508675.html)
+- Jun 15 - [Donald Trump Revealed Why He ‘Doesn’t Like to Have His Picture Taken’ Next to His Youngest Son Barron](https://www.yahoo.com/entertainment/donald-trump-revealed-why-doesn-142232791.html)
 <!-- feed end -->
 
 ### Onstream
