@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [‘I talk to a lot of presidents’: Serena Williams gets testy when asked about Trump after being named on regular call list](https://www.yahoo.com/entertainment/talk-lot-presidents-serena-williams-203518898.html)
 - Jun 15 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
 - Jun 15 - [Missouri woman's murder conviction tossed after 43 years. Her lawyers say a police officer did it](https://www.yahoo.com/news/missouri-womans-murder-conviction-tossed-164344457.html)
-- Jun 15 - [Fly Over The 'Grand Canyon' Of Mars In High-Resolution Orbiter Imagery](https://www.yahoo.com/news/fly-over-grand-canyon-mars-110500202.html)
 - Jun 15 - [Divers find remains of Finnish WWII plane that was shot down by Moscow with a US diplomat aboard](https://www.yahoo.com/news/divers-remains-finnish-wwii-plane-145508675.html)
-- Jun 15 - [Donald Trump Revealed Why He ‘Doesn’t Like to Have His Picture Taken’ Next to His Youngest Son Barron](https://www.yahoo.com/entertainment/donald-trump-revealed-why-doesn-142232791.html)
+- Jun 15 - [US forces destroy Houthi radars in Yemen that allowed Iranian-backed group to target commercial ships, CENTCOM says](https://www.yahoo.com/news/civilian-mariner-remains-missing-2-030947033.html)
 <!-- feed end -->
 
 ### Onstream
