@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [South Florida condo owners are dumping their homes after getting slapped with six-figure special assessments](https://finance.yahoo.com/news/south-florida-condo-owners-dumping-101000141.html)
+- Jun 15 - [2 Warren Buffett Stocks to Buy Hand Over Fist and 1 to Avoid](https://finance.yahoo.com/news/2-warren-buffett-stocks-buy-094500630.html)
+- Jun 15 - [US Department of the Treasury makes significant last-minute change to vehicle tax credit rules: 'Fair and logical'](https://www.yahoo.com/news/us-department-treasury-makes-significant-060000588.html)
 - Jun 15 - [US military targets Houthi radar sites in Yemen after a merchant sailor goes missing](https://www.yahoo.com/news/us-military-targets-houthi-radar-044138426.html)
-- Jun 14 - [DeSantis quietly signs controversial condo bill. Owners are already threatening to sue](https://www.yahoo.com/news/desantis-quietly-signs-controversial-condo-213646553.html)
-- Jun 14 - [B-52 Future Stratofortress: The Upgrades That Will Transform The B-52H Into The B-52J](https://www.yahoo.com/tech/b-52-future-stratofortress-upgrades-203305950.html)
-- Jun 14 - [Aides' vehicle in a convoy carrying Mexico's next president involved in a crash that killed 1](https://www.yahoo.com/news/aides-vehicle-convoy-carrying-mexicos-193931607.html)
-- Jun 14 - [US imposes sanctions on Nordic Resistance Movement in fight against white supremacy](https://www.yahoo.com/news/us-imposes-sanctions-nordic-resistance-192214695.html)
+- Jun 14 - [Las Vegas police agencies arrest 12 in sex offender compliance check operation](https://www.yahoo.com/news/las-vegas-police-agencies-arrest-230809837.html)
 <!-- feed end -->
 
 ### Onstream
