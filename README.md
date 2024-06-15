@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Bear pictured in Charlotte neighborhood prompts alert. ‘All neighbors, be aware.’](https://www.yahoo.com/news/bear-pictured-charlotte-neighborhood-prompts-184948466.html)
-- Jun 15 - [Eight Israeli soldiers killed as fighting continues in Rafah](https://www.yahoo.com/news/eight-israeli-soldiers-killed-fighting-153412492.html)
-- Jun 15 - [Divers find remains of Finnish WWII plane that was shot down by Moscow with a US diplomat aboard](https://www.yahoo.com/news/divers-remains-finnish-wwii-plane-145508675.html)
-- Jun 15 - [Dementia Experts Shared 7 Rules You Should Follow To Keep Your Mind Sharp](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-rules-131601718.html)
-- Jun 15 - [Princess Anne struggles with unruly horse during Trooping the Colour – watch](https://www.yahoo.com/lifestyle/princess-anne-struggles-unruly-horse-111430357.html)
+- Jun 15 - [Rite of summer: Savannah police offer reminder of city's nighttime curfew](https://www.yahoo.com/news/rite-summer-savannah-police-offer-193946020.html)
+- Jun 15 - [AP Top Stories June 15 P](https://www.yahoo.com/news/ap-top-stories-june-15-193801105.html)
+- Jun 15 - [5 Car Brands That Could Cost You Double in Repairs Compared to Others](https://finance.yahoo.com/news/5-car-brands-could-cost-180153189.html)
+- Jun 15 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
+- Jun 15 - [Nvidia alone accounts for more than a third of the S&P 500’s gains this year—and it’s a big risk for investors, top economist warns](https://finance.yahoo.com/news/nvidia-alone-accounts-more-third-171637949.html)
 <!-- feed end -->
 
 ### Onstream
