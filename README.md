@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Hundreds gather in Kyiv for war-shrouded Pride march](https://www.yahoo.com/news/hundreds-gather-kyiv-war-shrouded-143746953.html)
-- Jun 16 - [National Research (NASDAQ:NRC) Is Due To Pay A Dividend Of $0.12](https://finance.yahoo.com/news/national-research-nasdaq-nrc-due-132938231.html)
-- Jun 16 - [Army Vet Survives Attack by Bear on Honeymoon at Yosemite](https://www.yahoo.com/news/army-vet-survives-attack-bear-130052124.html)
+- Jun 16 - [Tories accuse BBC of ‘lefty Blairite bias’ over Laura Kuenssberg panel](https://www.yahoo.com/news/tories-accuse-bbc-lefty-blairite-124021403.html)
+- Jun 16 - [Russian troops surrender to an elite brigade as the Kharkiv front holds, Ukraine says](https://www.yahoo.com/news/russian-troops-surrender-elite-brigade-134514673.html)
 - Jun 16 - [This part of the US is at highest risk for a devastating tsunami](https://www.yahoo.com/news/part-us-highest-risk-devastating-123016950.html)
 - Jun 16 - [Stocks enter shortened trading week near record highs: What to know this week](https://finance.yahoo.com/news/stocks-enter-shortened-trading-week-near-record-highs-what-to-know-this-week-110034200.html)
+- Jun 16 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
 <!-- feed end -->
 
 ### Onstream
