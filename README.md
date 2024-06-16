@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Ukraine conference concludes in Switzerland, Zelenskyy and von der Leyen comment](https://www.yahoo.com/news/ukraine-conference-concludes-switzerland-zelenskyy-170715922.html)
-- Jun 16 - [Police identify Michigan splash pad shooter but there's still no word on a motive](https://www.yahoo.com/news/police-identify-michigan-splash-pad-163007198.html)
-- Jun 16 - [Researchers find significant potential of energy source below US-Mexico border region: 'A really good development target'](https://www.yahoo.com/news/researchers-significant-potential-energy-source-150000760.html)
-- Jun 16 - [I Have Driven Over 200 Cars — These Are the 4 Best and Worst American-Made Cars for Your Money](https://finance.yahoo.com/news/driven-over-200-cars-4-140033765.html)
+- Jun 16 - [Jerry Seinfeld Goes to Town on Anti-Israel Heckler Who Interrupted His Set](https://www.yahoo.com/entertainment/jerry-seinfeld-goes-town-anti-181723081.html)
+- Jun 16 - [Longtime Southern Baptist leader Paul Pressler, who was accused of sexual abuse, dies at 94](https://www.yahoo.com/news/longtime-southern-baptist-leader-paul-175847472.html)
+- Jun 16 - [29 Of The Strangest Smells People Admit They Secretly Love, And Some Of Them Are Real Freaky](https://www.yahoo.com/lifestyle/people-sharing-absolute-weirdest-weird-174953514.html)
+- Jun 16 - [McDonalds is removing its AI drive-thru voice ordering system from over 100 restaurants after its mishaps went viral](https://www.yahoo.com/news/mcdonalds-removing-ai-drive-thru-170738051.html)
 - Jun 16 - [Russian troops surrender to an elite brigade as the Kharkiv front holds, Ukraine says](https://www.yahoo.com/news/russian-troops-surrender-elite-brigade-134514673.html)
 <!-- feed end -->
 
