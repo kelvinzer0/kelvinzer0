@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Toyota shareholders demand vote against chairman Toyoda as automaker embroiled in testing scandal](https://finance.yahoo.com/news/toyota-shareholders-demand-vote-against-030742193.html)
-- Jun 16 - [Trump challenges Biden to a cognitive test but confuses the name of the doctor who tested him](https://www.yahoo.com/news/trump-challenges-biden-cognitive-test-003445170.html)
-- Jun 15 - [US forces destroy Houthi radars in Yemen that allowed Iranian-backed group to target commercial ships, CENTCOM says](https://www.yahoo.com/news/civilian-mariner-remains-missing-2-030947033.html)
-- Jun 15 - [New Jersey couple just sitting in their backyard when massive object falls from sky 'out of nowhere'](https://www.yahoo.com/news/jersey-couple-just-sitting-backyard-211346119.html)
-- Jun 15 - [‘I talk to a lot of presidents’: Serena Williams gets testy when asked about Trump after being named on regular call list](https://www.yahoo.com/entertainment/talk-lot-presidents-serena-williams-203518898.html)
+- Jun 16 - [China's Wuhan Tianyu says inclusion on US sanctions list may impact forex transactions](https://www.yahoo.com/news/chinas-wuhan-tianyu-says-inclusion-100847921.html)
+- Jun 16 - [Microsoft deal could bring billions of dollars in data center investment to Licking County](https://finance.yahoo.com/news/microsoft-deal-could-bring-billions-100406653.html)
+- Jun 16 - [Hamas response to Gaza ceasefire proposal 'consistent' with principles of US plan, leader says](https://www.yahoo.com/news/hamas-leader-says-groups-response-080358329.html)
+- Jun 16 - [Hertz is giving drivers thousands off slightly used electric vehicles — here's how to get your hands on one](https://autos.yahoo.com/hertz-giving-drivers-thousands-off-233000458.html)
+- Jun 16 - [Church crowd chants 'Trump' as former president arrives for Detroit visit](https://www.yahoo.com/news/church-crowd-chants-trump-former-013816527.html)
 <!-- feed end -->
 
 ### Onstream
