@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [China views Taiwan's 'elimination' as national cause, Taiwan president says](https://www.yahoo.com/news/china-views-taiwans-elimination-national-041848871.html)
 - Jun 16 - [Trump challenges Biden to a cognitive test but confuses the name of the doctor who tested him](https://www.yahoo.com/news/trump-challenges-biden-cognitive-test-003445170.html)
+- Jun 15 - [‘I talk to a lot of presidents’: Serena Williams gets testy when asked about Trump after being named on regular call list](https://www.yahoo.com/entertainment/talk-lot-presidents-serena-williams-203518898.html)
 - Jun 15 - [Missouri abortion ban wasn't about lawmakers imposing religious beliefs, judge says](https://www.yahoo.com/news/judge-rejects-religious-leaders-challenge-201924335.html)
 - Jun 15 - [Bear pictured in Charlotte neighborhood prompts alert. ‘All neighbors, be aware.’](https://www.yahoo.com/news/bear-pictured-charlotte-neighborhood-prompts-184948466.html)
-- Jun 15 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
+- Jun 15 - [‘I don’t live extravagantly by any means’: I have $68,000 in credit-card debt and $50,000 in a 401(k). How can I dig myself out of this trap on a $55,000 salary?](https://finance.yahoo.com/news/don-t-live-extravagantly-means-123700825.html)
 <!-- feed end -->
 
 ### Onstream
