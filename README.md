@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 16 - [Trump Lets Loose With Unhinged Father’s Day Message for His Enemies](https://www.yahoo.com/news/trump-lets-loose-unhinged-father-211814982.html)
 - Jun 16 - [Pro-life candidate in Colorado race asked about girlfriend’s abortion in excruciating interview](https://www.yahoo.com/news/pro-life-candidate-colorado-race-211334018.html)
-- Jun 16 - [2 people seriously injured after small plane crashes near interstate south of Denver](https://www.yahoo.com/news/2-people-seriously-injured-small-205334361.html)
-- Jun 16 - [Chiefs' Isaiah Buggs arrested again on burglary, domestic violence charges, per Tuscaloosa Sheriff's Office](https://sports.yahoo.com/chiefs-isaiah-buggs-arrested-again-on-burglary-domestic-violence-charges-per-tuscaloosa-sheriffs-office-194514470.html)
+- Jun 16 - [GOP Rep says House sergeant-at-arms should take Garland into custody](https://www.yahoo.com/news/gop-rep-says-house-sergeant-194350166.html)
+- Jun 16 - [Yemen's Houthis say they attacked two ships and American destroyer](https://www.yahoo.com/news/yemens-houthis-attacked-two-ships-192152717.html)
 - Jun 16 - [More tourists missing on Greek islands as body of American is found](https://www.yahoo.com/news/more-tourists-missing-greek-islands-181912809.html)
 <!-- feed end -->
 
