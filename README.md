@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [China's Wuhan Tianyu says inclusion on US sanctions list may impact forex transactions](https://www.yahoo.com/news/chinas-wuhan-tianyu-says-inclusion-100847921.html)
-- Jun 16 - [Microsoft deal could bring billions of dollars in data center investment to Licking County](https://finance.yahoo.com/news/microsoft-deal-could-bring-billions-100406653.html)
-- Jun 16 - [Hamas response to Gaza ceasefire proposal 'consistent' with principles of US plan, leader says](https://www.yahoo.com/news/hamas-leader-says-groups-response-080358329.html)
-- Jun 16 - [Hertz is giving drivers thousands off slightly used electric vehicles — here's how to get your hands on one](https://autos.yahoo.com/hertz-giving-drivers-thousands-off-233000458.html)
-- Jun 16 - [Church crowd chants 'Trump' as former president arrives for Detroit visit](https://www.yahoo.com/news/church-crowd-chants-trump-former-013816527.html)
+- Jun 16 - [Tesla vs. Toyota: Kevin Paffrath compares automaker growth](https://finance.yahoo.com/video/tesla-vs-toyota-kevin-paffrath-120012460.html)
+- Jun 16 - [Stocks enter shortened trading week near record highs: What to know this week](https://finance.yahoo.com/news/stocks-enter-shortened-trading-week-near-record-highs-what-to-know-this-week-110034200.html)
+- Jun 16 - [Investing $100,000 in This Vanguard ETF Could Generate Over $6,800 in Annual Income](https://finance.yahoo.com/news/investing-100-000-vanguard-etf-105000135.html)
+- Jun 16 - [‘Worried about our campuses.’ Penn State faculty still have questions after buyouts](https://www.yahoo.com/news/worried-campuses-penn-state-faculty-104800404.html)
+- Jun 16 - [‘I made millions for doing nothing!’: Vanilla Ice built a real estate empire and is reportedly worth $20M now](https://finance.yahoo.com/news/made-millions-doing-nothing-vanilla-102000350.html)
 <!-- feed end -->
 
 ### Onstream
