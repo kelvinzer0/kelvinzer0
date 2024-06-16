@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 16 - [Trump challenges Biden to a cognitive test but confuses the name of the doctor who tested him](https://www.yahoo.com/news/trump-challenges-biden-cognitive-test-003445170.html)
-- Jun 15 - [Hertz is giving drivers thousands off slightly used electric vehicles — here's how to get your hands on one](https://autos.yahoo.com/hertz-giving-drivers-thousands-off-233000458.html)
 - Jun 15 - [‘I talk to a lot of presidents’: Serena Williams gets testy when asked about Trump after being named on regular call list](https://www.yahoo.com/entertainment/talk-lot-presidents-serena-williams-203518898.html)
-- Jun 15 - [Here’s why there are 263 miles of cables under the LDS Salt Lake Temple](https://www.yahoo.com/news/why-263-miles-cables-under-193326722.html)
-- Jun 15 - [‘I don’t live extravagantly by any means’: I have $68,000 in credit-card debt and $50,000 in a 401(k). How can I dig myself out of this trap on a $55,000 salary?](https://finance.yahoo.com/news/don-t-live-extravagantly-means-123700825.html)
+- Jun 15 - [Missouri abortion ban wasn't about lawmakers imposing religious beliefs, judge says](https://www.yahoo.com/news/judge-rejects-religious-leaders-challenge-201924335.html)
+- Jun 15 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
+- Jun 15 - [3 charged, 4 injured after Montage Mountain fight](https://www.yahoo.com/news/3-charged-4-injured-montage-175611759.html)
 <!-- feed end -->
 
 ### Onstream
