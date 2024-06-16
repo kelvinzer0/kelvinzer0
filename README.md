@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [This part of the US is at highest risk for a devastating tsunami](https://www.yahoo.com/news/part-us-highest-risk-devastating-123016950.html)
-- Jun 16 - [Don’t Buy a House in These 10 US Cities: Growing Populations and Overcrowding](https://finance.yahoo.com/news/don-t-buy-house-10-175424640.html)
-- Jun 16 - [80 countries at Swiss conference agree Ukraine's territorial integrity must be basis of any peace](https://www.yahoo.com/news/nations-discuss-children-nuclear-safety-112053808.html)
-- Jun 16 - [Stocks enter shortened trading week near record highs: What to know this week](https://finance.yahoo.com/news/stocks-enter-shortened-trading-week-near-record-highs-what-to-know-this-week-110034200.html)
-- Jun 16 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
+- Jun 16 - [American found dead on Greek island as search continues for three other missing tourists](https://www.yahoo.com/news/american-found-dead-greek-island-161836434.html)
+- Jun 16 - [Texas and Louisiana on alert for deluge of tropical rainfall](https://www.yahoo.com/news/texas-louisiana-alert-deluge-tropical-173901949.html)
+- Jun 16 - [Columbus police arrest man in connection to Sunday morning homicide on West Side](https://www.yahoo.com/news/columbus-police-arrest-man-connection-173149317.html)
+- Jun 16 - [Wildfire erupts burning more than 11,000 acres near Los Angeles, mass evacuation underway](https://www.yahoo.com/news/wildfire-erupts-burning-more-11-170734558.html)
+- Jun 16 - [I Have Driven Over 200 Cars — These Are the 4 Best and Worst American-Made Cars for Your Money](https://finance.yahoo.com/news/driven-over-200-cars-4-140033765.html)
 <!-- feed end -->
 
 ### Onstream
