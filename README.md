@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [American found dead on Greek island as search continues for three other missing tourists](https://www.yahoo.com/news/american-found-dead-greek-island-161836434.html)
-- Jun 16 - [Texas and Louisiana on alert for deluge of tropical rainfall](https://www.yahoo.com/news/texas-louisiana-alert-deluge-tropical-173901949.html)
-- Jun 16 - [Columbus police arrest man in connection to Sunday morning homicide on West Side](https://www.yahoo.com/news/columbus-police-arrest-man-connection-173149317.html)
-- Jun 16 - [Wildfire erupts burning more than 11,000 acres near Los Angeles, mass evacuation underway](https://www.yahoo.com/news/wildfire-erupts-burning-more-11-170734558.html)
+- Jun 16 - [Ukraine conference concludes in Switzerland, Zelenskyy and von der Leyen comment](https://www.yahoo.com/news/ukraine-conference-concludes-switzerland-zelenskyy-170715922.html)
+- Jun 16 - [Police identify Michigan splash pad shooter but there's still no word on a motive](https://www.yahoo.com/news/police-identify-michigan-splash-pad-163007198.html)
+- Jun 16 - [Researchers find significant potential of energy source below US-Mexico border region: 'A really good development target'](https://www.yahoo.com/news/researchers-significant-potential-energy-source-150000760.html)
 - Jun 16 - [I Have Driven Over 200 Cars — These Are the 4 Best and Worst American-Made Cars for Your Money](https://finance.yahoo.com/news/driven-over-200-cars-4-140033765.html)
+- Jun 16 - [Russian troops surrender to an elite brigade as the Kharkiv front holds, Ukraine says](https://www.yahoo.com/news/russian-troops-surrender-elite-brigade-134514673.html)
 <!-- feed end -->
 
 ### Onstream
