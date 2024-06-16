@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Toyota shareholders demand vote against chairman Toyoda as automaker embroiled in testing scandal](https://finance.yahoo.com/news/toyota-shareholders-demand-vote-against-030742193.html)
 - Jun 16 - [Trump challenges Biden to a cognitive test but confuses the name of the doctor who tested him](https://www.yahoo.com/news/trump-challenges-biden-cognitive-test-003445170.html)
+- Jun 15 - [US forces destroy Houthi radars in Yemen that allowed Iranian-backed group to target commercial ships, CENTCOM says](https://www.yahoo.com/news/civilian-mariner-remains-missing-2-030947033.html)
+- Jun 15 - [New Jersey couple just sitting in their backyard when massive object falls from sky 'out of nowhere'](https://www.yahoo.com/news/jersey-couple-just-sitting-backyard-211346119.html)
 - Jun 15 - [‘I talk to a lot of presidents’: Serena Williams gets testy when asked about Trump after being named on regular call list](https://www.yahoo.com/entertainment/talk-lot-presidents-serena-williams-203518898.html)
-- Jun 15 - [Missouri abortion ban wasn't about lawmakers imposing religious beliefs, judge says](https://www.yahoo.com/news/judge-rejects-religious-leaders-challenge-201924335.html)
-- Jun 15 - [Bear pictured in Charlotte neighborhood prompts alert. ‘All neighbors, be aware.’](https://www.yahoo.com/news/bear-pictured-charlotte-neighborhood-prompts-184948466.html)
-- Jun 15 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
 <!-- feed end -->
 
 ### Onstream
