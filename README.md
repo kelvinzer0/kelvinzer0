@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [More tourists missing on Greek islands as body of American is found](https://www.yahoo.com/news/more-tourists-missing-greek-islands-181912809.html)
 - Jun 16 - [Jerry Seinfeld Goes to Town on Anti-Israel Heckler Who Interrupted His Set](https://www.yahoo.com/entertainment/jerry-seinfeld-goes-town-anti-181723081.html)
 - Jun 16 - [Longtime Southern Baptist leader Paul Pressler, who was accused of sexual abuse, dies at 94](https://www.yahoo.com/news/longtime-southern-baptist-leader-paul-175847472.html)
 - Jun 16 - [29 Of The Strangest Smells People Admit They Secretly Love, And Some Of Them Are Real Freaky](https://www.yahoo.com/lifestyle/people-sharing-absolute-weirdest-weird-174953514.html)
-- Jun 16 - [McDonalds is removing its AI drive-thru voice ordering system from over 100 restaurants after its mishaps went viral](https://www.yahoo.com/news/mcdonalds-removing-ai-drive-thru-170738051.html)
-- Jun 16 - [Russian troops surrender to an elite brigade as the Kharkiv front holds, Ukraine says](https://www.yahoo.com/news/russian-troops-surrender-elite-brigade-134514673.html)
+- Jun 16 - [Police identify Michigan splash pad shooter but there's still no word on a motive](https://www.yahoo.com/news/police-identify-michigan-splash-pad-163007198.html)
 <!-- feed end -->
 
 ### Onstream
