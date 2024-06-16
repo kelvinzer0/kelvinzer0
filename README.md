@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Tesla vs. Toyota: Kevin Paffrath compares automaker growth](https://finance.yahoo.com/video/tesla-vs-toyota-kevin-paffrath-120012460.html)
 - Jun 16 - [Stocks enter shortened trading week near record highs: What to know this week](https://finance.yahoo.com/news/stocks-enter-shortened-trading-week-near-record-highs-what-to-know-this-week-110034200.html)
-- Jun 16 - [Investing $100,000 in This Vanguard ETF Could Generate Over $6,800 in Annual Income](https://finance.yahoo.com/news/investing-100-000-vanguard-etf-105000135.html)
 - Jun 16 - [‘Worried about our campuses.’ Penn State faculty still have questions after buyouts](https://www.yahoo.com/news/worried-campuses-penn-state-faculty-104800404.html)
+- Jun 16 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
+- Jun 16 - [Ukraine says peace summit communique takes Kyiv's positions into consideration](https://www.yahoo.com/news/ukraine-says-peace-summit-communique-103202412.html)
 - Jun 16 - [‘I made millions for doing nothing!’: Vanilla Ice built a real estate empire and is reportedly worth $20M now](https://finance.yahoo.com/news/made-millions-doing-nothing-vanilla-102000350.html)
 <!-- feed end -->
 
