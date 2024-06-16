@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Tories accuse BBC of ‘lefty Blairite bias’ over Laura Kuenssberg panel](https://www.yahoo.com/news/tories-accuse-bbc-lefty-blairite-124021403.html)
-- Jun 16 - [Russian troops surrender to an elite brigade as the Kharkiv front holds, Ukraine says](https://www.yahoo.com/news/russian-troops-surrender-elite-brigade-134514673.html)
 - Jun 16 - [This part of the US is at highest risk for a devastating tsunami](https://www.yahoo.com/news/part-us-highest-risk-devastating-123016950.html)
+- Jun 16 - [Don’t Buy a House in These 10 US Cities: Growing Populations and Overcrowding](https://finance.yahoo.com/news/don-t-buy-house-10-175424640.html)
+- Jun 16 - [80 countries at Swiss conference agree Ukraine's territorial integrity must be basis of any peace](https://www.yahoo.com/news/nations-discuss-children-nuclear-safety-112053808.html)
 - Jun 16 - [Stocks enter shortened trading week near record highs: What to know this week](https://finance.yahoo.com/news/stocks-enter-shortened-trading-week-near-record-highs-what-to-know-this-week-110034200.html)
 - Jun 16 - [Rocket company develops massive catapult to launch satellites into space without using jet fuel: '10,000 times the force of Earth's gravity'](https://www.yahoo.com/tech/rocket-company-develops-massive-catapult-180000267.html)
 <!-- feed end -->
