@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Man was out on bail when he raped a Fresno teen, prosecutors say. He’s been sentenced](https://www.yahoo.com/news/man-bail-raped-fresno-teen-191543111.html)
+- Jun 17 - [Shipping Container Launcher Packing 126 Kamikaze Drones Hits The Market](https://www.yahoo.com/news/shipping-container-launcher-packing-126-194409165.html)
 - Jun 17 - [Judge orders railway to pay Washington tribe nearly $400 million for trespassing with oil trains](https://www.yahoo.com/news/judge-orders-bnsf-pay-washington-190218921.html)
+- Jun 17 - ["He couldn't even remember me": Trump has "severe memory issues," says author who interviewed him](https://www.yahoo.com/news/couldn-t-even-remember-trump-185551036.html)
+- Jun 17 - [Restaurant opened this Kansas City location right before COVID. It’s closing Sunday](https://www.yahoo.com/news/restaurant-opened-kansas-city-location-185053035.html)
 - Jun 17 - [Historic SS United States is ordered out of its berth in Philadelphia. Can it find new shores?](https://www.yahoo.com/news/historic-ship-ss-united-states-182830680.html)
-- Jun 17 - [Marjorie Taylor Greene Shared A Picture Of Her Receipt, And It's Going Viral](https://www.yahoo.com/news/marjorie-taylor-greene-shared-picture-180546529.html)
-- Jun 17 - [This IRS penalty may cost you. Here’s how to avoid it.](https://finance.yahoo.com/video/irs-penalty-may-cost-avoid-160745628.html)
 <!-- feed end -->
 
 ### Onstream
