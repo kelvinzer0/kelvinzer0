@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 17 - [NATO in talks to put nuclear weapons on standby, boss tells UK's Telegraph](https://www.yahoo.com/news/nato-talks-put-nuclear-weapons-063627762.html)
+- Jun 17 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/news/passenger-gets-banned-flight-using-142458145.html)
 - Jun 17 - [The war in Gaza is wiping out entire Palestinian families, one branch at a time. This is how](https://www.yahoo.com/news/war-gaza-wiping-entire-palestinian-051911049.html)
-- Jun 17 - [War in Gaza is wiping out entire Palestinian families. This is what happened to one of them.](https://www.yahoo.com/news/war-gaza-wiping-entire-palestinian-040051048.html)
-- Jun 17 - [Hospital in L.A. County asking for public’s help in identifying patient](https://www.yahoo.com/news/hospital-l-county-asking-public-030706976.html)
-- Jun 17 - [South Korea's loudspeakers face questions over reach into North](https://www.yahoo.com/news/south-koreas-loudspeakers-face-questions-010439629.html)
+- Jun 17 - [US aircraft carrier counters false Houthi claims with 'Taco Tuesdays' as deployment stretches on](https://www.yahoo.com/news/us-aircraft-carrier-counters-false-050456396.html)
+- Jun 17 - [US as many as 15 years behind China on nuclear power, report says](https://www.yahoo.com/news/us-many-15-years-behind-040405880.html)
 <!-- feed end -->
 
 ### Onstream
