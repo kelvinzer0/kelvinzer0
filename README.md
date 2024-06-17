@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Arlington police search for shooter in suspected road rage incident on I-20](https://www.yahoo.com/news/arlington-police-search-shooter-suspected-181552632.html)
-- Jun 17 - [Sheriff: Friday night bomb threat at Verona DQ came from Alabama prison](https://www.yahoo.com/news/sheriff-friday-night-bomb-threat-173256036.html)
-- Jun 17 - [APD releases photos of suspects after deadly shooting near Austin Waffle House](https://www.yahoo.com/news/apd-releases-photos-suspects-deadly-164221567.html)
+- Jun 17 - [Man was out on bail when he raped a Fresno teen, prosecutors say. He’s been sentenced](https://www.yahoo.com/news/man-bail-raped-fresno-teen-191543111.html)
+- Jun 17 - [Judge orders railway to pay Washington tribe nearly $400 million for trespassing with oil trains](https://www.yahoo.com/news/judge-orders-bnsf-pay-washington-190218921.html)
+- Jun 17 - [Historic SS United States is ordered out of its berth in Philadelphia. Can it find new shores?](https://www.yahoo.com/news/historic-ship-ss-united-states-182830680.html)
+- Jun 17 - [Marjorie Taylor Greene Shared A Picture Of Her Receipt, And It's Going Viral](https://www.yahoo.com/news/marjorie-taylor-greene-shared-picture-180546529.html)
 - Jun 17 - [This IRS penalty may cost you. Here’s how to avoid it.](https://finance.yahoo.com/video/irs-penalty-may-cost-avoid-160745628.html)
-- Jun 17 - [Steve Bannon Exposes Trump’s Chilling Top Revenge List](https://www.yahoo.com/news/steve-bannon-exposes-trump-chilling-153554586.html)
 <!-- feed end -->
 
 ### Onstream
