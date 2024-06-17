@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [Pro-life candidate in Colorado race asked about girlfriend’s abortion in excruciating interview](https://www.yahoo.com/news/pro-life-candidate-colorado-race-211334018.html)
+- Jun 17 - [Japan reports record spike in potentially deadly bacterial infection](https://www.yahoo.com/news/japan-reports-record-spike-potentially-072607122.html)
+- Jun 17 - [Wildfires burning in Southern and Northern California](https://www.yahoo.com/news/wildfires-burning-southern-northern-california-071222658.html)
 - Jun 17 - [NATO in talks to put nuclear weapons on standby, boss tells UK's Telegraph](https://www.yahoo.com/news/nato-talks-put-nuclear-weapons-063627762.html)
 - Jun 17 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/news/passenger-gets-banned-flight-using-142458145.html)
-- Jun 17 - [The war in Gaza is wiping out entire Palestinian families, one branch at a time. This is how](https://www.yahoo.com/news/war-gaza-wiping-entire-palestinian-051911049.html)
-- Jun 17 - [US aircraft carrier counters false Houthi claims with 'Taco Tuesdays' as deployment stretches on](https://www.yahoo.com/news/us-aircraft-carrier-counters-false-050456396.html)
-- Jun 17 - [US as many as 15 years behind China on nuclear power, report says](https://www.yahoo.com/news/us-many-15-years-behind-040405880.html)
 <!-- feed end -->
 
 ### Onstream
