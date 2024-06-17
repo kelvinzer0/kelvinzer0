@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [Lagarde Says ECB Is Watching Markets After French Turbulence](https://finance.yahoo.com/news/ecb-sees-market-repricing-not-085131170.html)
+- Jun 17 - [Injured cow mowed down by police officer offered ‘idyllic’ retirement home after escaping breeding farm](https://www.independent.co.uk/news/uk/home-news/surrey-police-injured-cow-new-home-breeding-farm-b2563875.html)
 - Jun 17 - [The British Army trains in Kenya. Many women say soldiers raped them and abandoned children they fathered](https://www.yahoo.com/news/british-army-trains-kenya-many-092710933.html)
-- Jun 17 - [Ukraine to get German-made ‘Frankenstein’ tank](https://www.yahoo.com/news/ukraine-german-made-frankenstein-tank-105144931.html)
-- Jun 17 - [One-Two Punch From the Skies Is a Massive Blow to Putin](https://www.yahoo.com/news/one-two-punch-skies-massive-085032896.html)
-- Jun 17 - [How Traffic Changed At California Restaurants After The Minimum Wage Increase](https://finance.yahoo.com/news/traffic-changed-california-restaurants-minimum-082150337.html)
-- Jun 17 - [Japan reports record spike in potentially deadly bacterial infection](https://www.yahoo.com/news/japan-reports-record-spike-potentially-072607122.html)
+- Jun 17 - [Nvidia CEO Jensen Huang says a Japanese gardener taught him one of the most ‘profound learnings’ of his life—it’s why he can be on top of every detail at the $3.2 trillion chip giant](https://finance.yahoo.com/news/nvidia-ceo-jensen-huang-says-102645928.html)
+- Jun 17 - [Latest inflation data provides potential for 'even greater upside' in the stock market rally](https://finance.yahoo.com/news/latest-inflation-data-provides-potential-for-even-greater-upside-in-the-stock-market-rally-100054916.html)
 <!-- feed end -->
 
 ### Onstream
