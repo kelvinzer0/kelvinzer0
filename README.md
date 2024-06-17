@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Police: Motorcyclist arrested for driving over 140mph in New Hampshire](https://www.yahoo.com/news/police-motorcyclist-arrested-driving-over-002906743.html)
+- Jun 17 - [18 Signs From The Past Week That Made Me Laugh So Hard, My Face Still Hurts](https://www.yahoo.com/entertainment/18-signs-past-week-made-031602524.html)
 - Jun 16 - [Chinese investors' rush for offshore assets spurs Hong Kong wealth inflows](https://finance.yahoo.com/news/chinese-investors-rush-offshore-assets-230441650.html)
-- Jun 16 - [Tillman County Sheriff William Ingram has died, officials confirm](https://www.yahoo.com/news/tillman-county-sheriff-william-ingram-224429787.html)
-- Jun 16 - [AMBER Alert for San Antonio 15-year-old ends](https://www.yahoo.com/news/amber-alert-issued-missing-15-213150307.html)
 - Jun 16 - [Trump Lets Loose With Unhinged Father’s Day Message for His Enemies](https://www.yahoo.com/news/trump-lets-loose-unhinged-father-211814982.html)
+- Jun 16 - [Woman’s body found outside Legacy Good Samaritan in NW Portland](https://www.yahoo.com/news/police-investigate-suspicious-death-northwest-203132875.html)
+- Jun 16 - [Chinese Submarine's Torpedo Destroys Amphibious Landing Ship During Exercise](https://www.yahoo.com/news/chinese-navy-submarines-torpedo-seen-202312593.html)
 <!-- feed end -->
 
 ### Onstream
