@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Gulf Breeze plastic surgeon Ben Brown arrested, charged with death of wife, Hillary Brown](https://www.yahoo.com/news/gulf-breeze-plastic-surgeon-ben-153838108.html)
-- Jun 17 - [This is what happens to your body when you eat very spicy food](https://www.yahoo.com/lifestyle/spicy-food-what-happens-body-response-145559974.html)
-- Jun 17 - [I-TEAM: Crackdown coming on busy local highway](https://www.yahoo.com/news/team-crackdown-coming-busy-local-134803483.html)
-- Jun 17 - [Scientists may have found an answer to the mystery of dark matter. It involves an unexpected byproduct](https://www.yahoo.com/news/primordial-black-holes-could-explain-100620147.html)
-- Jun 17 - [The IRS wants to end another major tax loophole for the wealthy and raise $50 billion in the process](https://finance.yahoo.com/news/irs-wants-end-another-major-124532819.html)
+- Jun 17 - [Arlington police search for shooter in suspected road rage incident on I-20](https://www.yahoo.com/news/arlington-police-search-shooter-suspected-181552632.html)
+- Jun 17 - [Sheriff: Friday night bomb threat at Verona DQ came from Alabama prison](https://www.yahoo.com/news/sheriff-friday-night-bomb-threat-173256036.html)
+- Jun 17 - [APD releases photos of suspects after deadly shooting near Austin Waffle House](https://www.yahoo.com/news/apd-releases-photos-suspects-deadly-164221567.html)
+- Jun 17 - [This IRS penalty may cost you. Here’s how to avoid it.](https://finance.yahoo.com/video/irs-penalty-may-cost-avoid-160745628.html)
+- Jun 17 - [Steve Bannon Exposes Trump’s Chilling Top Revenge List](https://www.yahoo.com/news/steve-bannon-exposes-trump-chilling-153554586.html)
 <!-- feed end -->
 
 ### Onstream
