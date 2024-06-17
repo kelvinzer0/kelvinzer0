@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [2 killed after World War II-era plane crashes near California airport: Officials](https://www.yahoo.com/news/2-killed-world-war-ii-222900533.html)
+- Jun 16 - [Chinese investors' rush for offshore assets spurs Hong Kong wealth inflows](https://finance.yahoo.com/news/chinese-investors-rush-offshore-assets-230441650.html)
 - Jun 16 - [Tillman County Sheriff William Ingram has died, officials confirm](https://www.yahoo.com/news/tillman-county-sheriff-william-ingram-224429787.html)
+- Jun 16 - [Trump Lets Loose With Unhinged Father’s Day Message for His Enemies](https://www.yahoo.com/news/trump-lets-loose-unhinged-father-211814982.html)
 - Jun 16 - [Pro-life candidate in Colorado race asked about girlfriend’s abortion in excruciating interview](https://www.yahoo.com/news/pro-life-candidate-colorado-race-211334018.html)
-- Jun 16 - [Man forced to clear damage from overnight Germantown car crash](https://www.yahoo.com/news/man-forced-clear-damage-overnight-201531228.html)
-- Jun 16 - [Chiefs' Isaiah Buggs arrested again on burglary, domestic violence charges, per Tuscaloosa Sheriff's Office](https://sports.yahoo.com/chiefs-isaiah-buggs-arrested-again-on-burglary-domestic-violence-charges-per-tuscaloosa-sheriffs-office-194514470.html)
-- Jun 16 - [GOP Rep says House sergeant-at-arms should take Garland into custody](https://www.yahoo.com/news/gop-rep-says-house-sergeant-194350166.html)
 <!-- feed end -->
 
 ### Onstream
