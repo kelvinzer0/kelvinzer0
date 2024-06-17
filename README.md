@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [This is what happens to your body when you eat very spicy food](https://www.yahoo.com/lifestyle/spicy-food-what-happens-body-response-145559974.html)
-- Jun 17 - [Injured cow mowed down by police officer offered ‘idyllic’ retirement home after escaping breeding farm](https://www.independent.co.uk/news/uk/home-news/surrey-police-injured-cow-new-home-breeding-farm-b2563875.html)
-- Jun 17 - [Oil prices moving in response to China's weak demand, output](https://finance.yahoo.com/video/oil-price-moving-response-chinas-134243113.html)
 - Jun 17 - [Scientists may have found an answer to the mystery of dark matter. It involves an unexpected byproduct](https://www.yahoo.com/news/primordial-black-holes-could-explain-100620147.html)
 - Jun 17 - [The IRS wants to end another major tax loophole for the wealthy and raise $50 billion in the process](https://finance.yahoo.com/news/irs-wants-end-another-major-124532819.html)
+- Jun 17 - [Hajj pilgrimage ends amid deadly Saudi heat spike](https://www.yahoo.com/news/hajj-pilgrimage-ends-amid-deadly-115539765.html)
+- Jun 17 - [Caterpillar's Russian assets transferred to firm owned by Armenian fund](https://finance.yahoo.com/news/caterpillars-russian-assets-transferred-firm-113610384.html)
+- Jun 17 - [Ukraine to get German-made ‘Frankenstein’ tank](https://www.yahoo.com/news/ukraine-german-made-frankenstein-tank-105144931.html)
 <!-- feed end -->
 
 ### Onstream
