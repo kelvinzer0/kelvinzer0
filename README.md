@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [NATO in talks to put nuclear weapons on standby, boss tells UK's Telegraph](https://www.yahoo.com/news/nato-talks-put-nuclear-weapons-063627762.html)
+- Jun 17 - [The war in Gaza is wiping out entire Palestinian families, one branch at a time. This is how](https://www.yahoo.com/news/war-gaza-wiping-entire-palestinian-051911049.html)
 - Jun 17 - [War in Gaza is wiping out entire Palestinian families. This is what happened to one of them.](https://www.yahoo.com/news/war-gaza-wiping-entire-palestinian-040051048.html)
-- Jun 17 - [China says a Chinese vessel and Philippine supply ship collided in the disputed South China Sea](https://www.yahoo.com/news/china-says-chinese-vessel-philippine-031745486.html)
-- Jun 17 - [Burger King tests newly designed cups that could set new standard for fast-food packaging: 'We can mitigate the negative … impacts'](https://www.yahoo.com/news/burger-king-tests-newly-designed-001500925.html)
-- Jun 16 - [Chinese investors' rush for offshore assets spurs Hong Kong wealth inflows](https://finance.yahoo.com/news/chinese-investors-rush-offshore-assets-230441650.html)
-- Jun 16 - [Trump Lets Loose With Unhinged Father’s Day Message for His Enemies](https://www.yahoo.com/news/trump-lets-loose-unhinged-father-211814982.html)
+- Jun 17 - [Hospital in L.A. County asking for public’s help in identifying patient](https://www.yahoo.com/news/hospital-l-county-asking-public-030706976.html)
+- Jun 17 - [South Korea's loudspeakers face questions over reach into North](https://www.yahoo.com/news/south-koreas-loudspeakers-face-questions-010439629.html)
 <!-- feed end -->
 
 ### Onstream
