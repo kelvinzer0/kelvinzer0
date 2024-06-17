@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Pro-life candidate in Colorado race asked about girlfriend’s abortion in excruciating interview](https://www.yahoo.com/news/pro-life-candidate-colorado-race-211334018.html)
+- Jun 17 - [Trump’s war on cities backfires: Attack on Milwaukee may be too far for MAGA](https://www.yahoo.com/news/trump-war-cities-backfires-attack-093005226.html)
+- Jun 17 - [One-Two Punch From the Skies Is a Massive Blow to Putin](https://www.yahoo.com/news/one-two-punch-skies-massive-085032896.html)
 - Jun 17 - [Japan reports record spike in potentially deadly bacterial infection](https://www.yahoo.com/news/japan-reports-record-spike-potentially-072607122.html)
-- Jun 17 - [Wildfires burning in Southern and Northern California](https://www.yahoo.com/news/wildfires-burning-southern-northern-california-071222658.html)
 - Jun 17 - [NATO in talks to put nuclear weapons on standby, boss tells UK's Telegraph](https://www.yahoo.com/news/nato-talks-put-nuclear-weapons-063627762.html)
 - Jun 17 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/news/passenger-gets-banned-flight-using-142458145.html)
 <!-- feed end -->
