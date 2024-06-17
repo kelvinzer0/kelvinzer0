@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [China's industrial output, housing sector slow its recovery](https://finance.yahoo.com/video/chinas-industrial-output-housing-sector-141007805.html)
+- Jun 17 - [This is what happens to your body when you eat very spicy food](https://www.yahoo.com/lifestyle/spicy-food-what-happens-body-response-145559974.html)
+- Jun 17 - [Injured cow mowed down by police officer offered ‘idyllic’ retirement home after escaping breeding farm](https://www.independent.co.uk/news/uk/home-news/surrey-police-injured-cow-new-home-breeding-farm-b2563875.html)
+- Jun 17 - [Oil prices moving in response to China's weak demand, output](https://finance.yahoo.com/video/oil-price-moving-response-chinas-134243113.html)
 - Jun 17 - [Scientists may have found an answer to the mystery of dark matter. It involves an unexpected byproduct](https://www.yahoo.com/news/primordial-black-holes-could-explain-100620147.html)
 - Jun 17 - [The IRS wants to end another major tax loophole for the wealthy and raise $50 billion in the process](https://finance.yahoo.com/news/irs-wants-end-another-major-124532819.html)
-- Jun 17 - [Crews searching for 58-year-old man who fell off boat in Lake Michigan’s ‘Playpen’ and never resurfaced](https://www.yahoo.com/news/crews-searching-58-old-man-122916202.html)
-- Jun 17 - [Warrant issued for suspect in fatal shooting of 79-year-old Army veteran](https://www.yahoo.com/news/warrant-issued-suspect-fatal-shooting-120752565.html)
 <!-- feed end -->
 
 ### Onstream
