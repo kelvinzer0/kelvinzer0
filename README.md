@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [War in Gaza is wiping out entire Palestinian families. This is what happened to one of them.](https://www.yahoo.com/news/war-gaza-wiping-entire-palestinian-040051048.html)
+- Jun 17 - [China says a Chinese vessel and Philippine supply ship collided in the disputed South China Sea](https://www.yahoo.com/news/china-says-chinese-vessel-philippine-031745486.html)
 - Jun 17 - [Burger King tests newly designed cups that could set new standard for fast-food packaging: 'We can mitigate the negative … impacts'](https://www.yahoo.com/news/burger-king-tests-newly-designed-001500925.html)
-- Jun 16 - [AMBER Alert for San Antonio 15-year-old ends](https://www.yahoo.com/news/amber-alert-issued-missing-15-213150307.html)
+- Jun 16 - [Chinese investors' rush for offshore assets spurs Hong Kong wealth inflows](https://finance.yahoo.com/news/chinese-investors-rush-offshore-assets-230441650.html)
 - Jun 16 - [Trump Lets Loose With Unhinged Father’s Day Message for His Enemies](https://www.yahoo.com/news/trump-lets-loose-unhinged-father-211814982.html)
-- Jun 16 - [Chinese Submarine's Torpedo Destroys Amphibious Landing Ship During Exercise](https://www.yahoo.com/news/chinese-navy-submarines-torpedo-seen-202312593.html)
-- Jun 16 - [Teachers Are Revealing The Worst Thing They've Ever Caught A Student Doing, And I Have No Words](https://www.yahoo.com/lifestyle/teachers-revealing-worst-thing-theyve-201603789.html)
 <!-- feed end -->
 
 ### Onstream
