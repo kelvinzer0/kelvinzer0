@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [2 killed after World War II-era plane crashes near California airport: Officials](https://www.yahoo.com/news/2-killed-world-war-ii-222900533.html)
+- Jun 17 - [Police: Motorcyclist arrested for driving over 140mph in New Hampshire](https://www.yahoo.com/news/police-motorcyclist-arrested-driving-over-002906743.html)
 - Jun 16 - [Chinese investors' rush for offshore assets spurs Hong Kong wealth inflows](https://finance.yahoo.com/news/chinese-investors-rush-offshore-assets-230441650.html)
 - Jun 16 - [Tillman County Sheriff William Ingram has died, officials confirm](https://www.yahoo.com/news/tillman-county-sheriff-william-ingram-224429787.html)
+- Jun 16 - [AMBER Alert for San Antonio 15-year-old ends](https://www.yahoo.com/news/amber-alert-issued-missing-15-213150307.html)
 - Jun 16 - [Trump Lets Loose With Unhinged Father’s Day Message for His Enemies](https://www.yahoo.com/news/trump-lets-loose-unhinged-father-211814982.html)
-- Jun 16 - [Pro-life candidate in Colorado race asked about girlfriend’s abortion in excruciating interview](https://www.yahoo.com/news/pro-life-candidate-colorado-race-211334018.html)
 <!-- feed end -->
 
 ### Onstream
