@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Trump’s war on cities backfires: Attack on Milwaukee may be too far for MAGA](https://www.yahoo.com/news/trump-war-cities-backfires-attack-093005226.html)
+- Jun 17 - [What Rate of Return Should I Expect for My Investments in Retirement?](https://finance.yahoo.com/news/realistic-rate-return-retirement-130013374.html)
+- Jun 17 - [Kremlin says NATO chief's nuclear weapons remarks are an escalation](https://www.yahoo.com/news/kremlin-says-nato-chiefs-nuclear-095021644.html)
+- Jun 17 - [The British Army trains in Kenya. Many women say soldiers raped them and abandoned children they fathered](https://www.yahoo.com/news/british-army-trains-kenya-many-092710933.html)
 - Jun 17 - [One-Two Punch From the Skies Is a Massive Blow to Putin](https://www.yahoo.com/news/one-two-punch-skies-massive-085032896.html)
 - Jun 17 - [Japan reports record spike in potentially deadly bacterial infection](https://www.yahoo.com/news/japan-reports-record-spike-potentially-072607122.html)
-- Jun 17 - [NATO in talks to put nuclear weapons on standby, boss tells UK's Telegraph](https://www.yahoo.com/news/nato-talks-put-nuclear-weapons-063627762.html)
-- Jun 17 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/news/passenger-gets-banned-flight-using-142458145.html)
 <!-- feed end -->
 
 ### Onstream
