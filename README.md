@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Lagarde Says ECB Is Watching Markets After French Turbulence](https://finance.yahoo.com/news/ecb-sees-market-repricing-not-085131170.html)
-- Jun 17 - [Injured cow mowed down by police officer offered ‘idyllic’ retirement home after escaping breeding farm](https://www.independent.co.uk/news/uk/home-news/surrey-police-injured-cow-new-home-breeding-farm-b2563875.html)
-- Jun 17 - [The British Army trains in Kenya. Many women say soldiers raped them and abandoned children they fathered](https://www.yahoo.com/news/british-army-trains-kenya-many-092710933.html)
-- Jun 17 - [Nvidia CEO Jensen Huang says a Japanese gardener taught him one of the most ‘profound learnings’ of his life—it’s why he can be on top of every detail at the $3.2 trillion chip giant](https://finance.yahoo.com/news/nvidia-ceo-jensen-huang-says-102645928.html)
-- Jun 17 - [Latest inflation data provides potential for 'even greater upside' in the stock market rally](https://finance.yahoo.com/news/latest-inflation-data-provides-potential-for-even-greater-upside-in-the-stock-market-rally-100054916.html)
+- Jun 17 - [China's industrial output, housing sector slow its recovery](https://finance.yahoo.com/video/chinas-industrial-output-housing-sector-141007805.html)
+- Jun 17 - [Scientists may have found an answer to the mystery of dark matter. It involves an unexpected byproduct](https://www.yahoo.com/news/primordial-black-holes-could-explain-100620147.html)
+- Jun 17 - [The IRS wants to end another major tax loophole for the wealthy and raise $50 billion in the process](https://finance.yahoo.com/news/irs-wants-end-another-major-124532819.html)
+- Jun 17 - [Crews searching for 58-year-old man who fell off boat in Lake Michigan’s ‘Playpen’ and never resurfaced](https://www.yahoo.com/news/crews-searching-58-old-man-122916202.html)
+- Jun 17 - [Warrant issued for suspect in fatal shooting of 79-year-old Army veteran](https://www.yahoo.com/news/warrant-issued-suspect-fatal-shooting-120752565.html)
 <!-- feed end -->
 
 ### Onstream
