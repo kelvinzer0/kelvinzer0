@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Shortage of public defenders in Maine allowed release of man who caused fiery standoff](https://www.yahoo.com/news/shortage-public-defenders-maine-allowed-214909993.html)
+- Jun 17 - [I’m a Frugal Self-Made Millionaire: 6 Things I Never Waste Money On](https://finance.yahoo.com/news/m-frugal-self-made-millionaire-110118358.html)
+- Jun 17 - [Green Bay man sentenced to prison for deadly hit and run while intoxicated](https://www.yahoo.com/news/green-bay-man-sentenced-prison-213504375.html)
 - Jun 17 - [Russian official says Ukraine pouring troops into contested Kharkiv region](https://www.yahoo.com/news/russian-official-says-ukraine-pouring-210027273.html)
-- Jun 17 - [44 Photos Of Terrible Bosses And Workplaces That Have Me Drafting Angry "I QUIT!" Letters To Companies I Don't Even Work At](https://www.yahoo.com/lifestyle/44-photos-terrible-bosses-workplaces-201602248.html)
-- Jun 17 - [Docs: Marine wanted to violate 11-year-old, kill family](https://www.yahoo.com/news/docs-marine-wanted-violate-11-200931368.html)
-- Jun 17 - [Jack Smith’s Moment of Truth at the Supreme Court](https://www.yahoo.com/news/jack-smith-moment-truth-supreme-200715891.html)
+- Jun 17 - [Shipping Container Launcher Packing 126 Kamikaze Drones Hits The Market](https://www.yahoo.com/news/shipping-container-launcher-packing-126-194409165.html)
+- Jun 17 - ["He couldn't even remember me": Trump has "severe memory issues," says author who interviewed him](https://www.yahoo.com/news/couldn-t-even-remember-trump-185551036.html)
 <!-- feed end -->
 
 ### Onstream
