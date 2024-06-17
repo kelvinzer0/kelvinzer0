@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [What Rate of Return Should I Expect for My Investments in Retirement?](https://finance.yahoo.com/news/realistic-rate-return-retirement-130013374.html)
-- Jun 17 - [Kremlin says NATO chief's nuclear weapons remarks are an escalation](https://www.yahoo.com/news/kremlin-says-nato-chiefs-nuclear-095021644.html)
 - Jun 17 - [The British Army trains in Kenya. Many women say soldiers raped them and abandoned children they fathered](https://www.yahoo.com/news/british-army-trains-kenya-many-092710933.html)
+- Jun 17 - [Ukraine to get German-made ‘Frankenstein’ tank](https://www.yahoo.com/news/ukraine-german-made-frankenstein-tank-105144931.html)
 - Jun 17 - [One-Two Punch From the Skies Is a Massive Blow to Putin](https://www.yahoo.com/news/one-two-punch-skies-massive-085032896.html)
+- Jun 17 - [How Traffic Changed At California Restaurants After The Minimum Wage Increase](https://finance.yahoo.com/news/traffic-changed-california-restaurants-minimum-082150337.html)
 - Jun 17 - [Japan reports record spike in potentially deadly bacterial infection](https://www.yahoo.com/news/japan-reports-record-spike-potentially-072607122.html)
 <!-- feed end -->
 
