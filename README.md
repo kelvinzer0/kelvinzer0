@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Jasmine Crockett reveals a fight almost broke out on the House floor after ‘bleach blonde bad body’ comment](https://www.yahoo.com/news/jasmine-crockett-reveals-fight-almost-195853247.html)
-- Jun 18 - [A Radical New Magnet Without Rare-Earth Metals Is About to Change Motors Forever](https://www.yahoo.com/tech/radical-magnet-without-rare-earth-192900586.html)
-- Jun 18 - [Satellite images show Russia's putting ships in the path of Ukraine's naval drones to protect Putin's prize, but it's likely not enough](https://www.yahoo.com/news/satellite-images-show-russias-putting-192715360.html)
-- Jun 18 - [Wichitans found affordable rent by camping long-term at Lake Afton. Sedgwick County shut it down.](https://www.yahoo.com/news/wichitans-found-affordable-rent-camping-192626190.html)
-- Jun 18 - [A 'potty-mouthed parrot' is up for adoption. 300 people came forward for the cursing conure.](https://www.yahoo.com/lifestyle/potty-mouthed-parrot-adoption-300-191743608.html)
+- Jun 18 - [Detroit Three automakers should exit China, leading analyst says](https://finance.yahoo.com/news/detroit-three-automakers-exit-china-211555552.html)
+- Jun 18 - [The 9 Healthiest Nuts](https://www.yahoo.com/lifestyle/9-healthiest-nuts-202442649.html)
+- Jun 18 - [Vermont lawmaker apologizes for repeatedly pouring water in her colleague's bag](https://www.yahoo.com/news/vermont-lawmaker-apologizes-repeatedly-pouring-200458870.html)
+- Jun 18 - [Trump holds rally in Wisconsin city where his promises of new jobs fell short](https://www.yahoo.com/news/trump-holds-rally-wisconsin-city-200358145.html)
+- Jun 18 - [Trump Is Now Openly Threatening CEOs Who Don’t Support Him](https://finance.yahoo.com/news/trump-now-openly-threatening-ceos-200153707.html)
 <!-- feed end -->
 
 ### Onstream
