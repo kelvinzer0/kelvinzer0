@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [I’m a Frugal Self-Made Millionaire: 6 Things I Never Waste Money On](https://finance.yahoo.com/news/m-frugal-self-made-millionaire-110118358.html)
-- Jun 17 - [Green Bay man sentenced to prison for deadly hit and run while intoxicated](https://www.yahoo.com/news/green-bay-man-sentenced-prison-213504375.html)
-- Jun 17 - [Russian official says Ukraine pouring troops into contested Kharkiv region](https://www.yahoo.com/news/russian-official-says-ukraine-pouring-210027273.html)
-- Jun 17 - [Shipping Container Launcher Packing 126 Kamikaze Drones Hits The Market](https://www.yahoo.com/news/shipping-container-launcher-packing-126-194409165.html)
-- Jun 17 - ["He couldn't even remember me": Trump has "severe memory issues," says author who interviewed him](https://www.yahoo.com/news/couldn-t-even-remember-trump-185551036.html)
+- Jun 18 - [Secret Service agent robbed at gunpoint during Biden's Los Angeles trip, police say](https://www.yahoo.com/news/secret-agent-robbed-gunpoint-during-001409861.html)
+- Jun 17 - [Heading out of town on Idaho 55? Transportation officials warn of construction delays](https://www.yahoo.com/news/heading-town-idaho-55-transportation-234023379.html)
+- Jun 17 - [Harris meets with former Israeli hostage who described being sexually assaulted in Gaza](https://www.yahoo.com/news/harris-meets-former-israeli-hostage-224451834.html)
+- Jun 17 - [Ukraine Captures Its First Russian Turtle Tank](https://www.yahoo.com/news/ukraine-captures-first-russian-turtle-222623902.html)
+- Jun 17 - [Carrie Underwood Suffers Home Tragedy While Celebrating Father's Day](https://www.yahoo.com/entertainment/carrie-underwood-suffers-home-tragedy-205234305.html)
 <!-- feed end -->
 
 ### Onstream
