@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Lawmakers grill Boeing CEO David Calhoun in new hearing as plane manufacturer flounders](https://www.yahoo.com/news/lawmakers-grill-boeing-ceo-david-194936690.html)
+- Jun 18 - [Jasmine Crockett reveals a fight almost broke out on the House floor after ‘bleach blonde bad body’ comment](https://www.yahoo.com/news/jasmine-crockett-reveals-fight-almost-195853247.html)
 - Jun 18 - [Mom of transgender girl athlete says Florida's investigation has destroyed her daughter's life](https://www.yahoo.com/news/mom-transgender-girl-athlete-says-184618999.html)
+- Jun 18 - [Huge tech ETF set to buy $10 billion in Nvidia shares](https://finance.yahoo.com/news/huge-tech-etf-set-buy-184231900.html)
+- Jun 18 - [Bill Gates' former assistant is worth $154 billion — and could soon be richer than the Microsoft cofounder](https://finance.yahoo.com/news/bill-gates-former-assistant-worlds-200910166.html)
 - Jun 18 - [Kansas City Italian restaurant once had several locations. The last one just closed](https://www.yahoo.com/news/kansas-city-italian-restaurant-once-173611525.html)
-- Jun 18 - [Panicked Matt Gaetz Tries to Downplay New Ethics Investigation](https://www.yahoo.com/news/panicked-matt-gaetz-tries-downplay-170726218.html)
-- Jun 18 - [Texas doctor charged with taking private patient information on transgender care](https://www.yahoo.com/news/texas-doctor-charged-taking-private-164733184.html)
 <!-- feed end -->
 
 ### Onstream
