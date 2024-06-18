@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Small but once influential, a Des Moines neighborhood loses its official status](https://www.yahoo.com/news/small-once-influential-des-moines-124522916.html)
+- Jun 18 - [James Carville Surprises Ari Melber With Trump-Biden Debate Prediction](https://www.yahoo.com/news/james-carville-surprises-ari-melber-122837852.html)
+- Jun 18 - [I’m a Retirement Expert: Why You’ll Regret Putting Too Much Money in Your 401(K)](https://finance.yahoo.com/news/m-retirement-expert-why-ll-120009043.html)
 - Jun 18 - [AI Stocks: Tech Giants, Cloud Titans, Chipmakers Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jun 18 - [Britain’s richest family Hindujas ‘spent more on dog than they paid servant’](https://www.independent.co.uk/news/uk/home-news/hinduja-family-net-worth-british-billionaires-b2564416.html)
-- Jun 18 - [General election polls: Are Labour or the Conservatives on track to win in July?](https://www.yahoo.com/news/general-election-rishi-sunak-tories-162323918.html)
-- Jun 18 - [Signs of Alzheimer’s were everywhere. Then his brain improved](https://www.yahoo.com/news/signs-alzheimer-were-everywhere-then-060003462.html)
-- Jun 18 - [Apple seeks to balance privacy, innovation with ChatGPT deal](https://www.yahoo.com/tech/apple-seeks-balance-privacy-innovation-100000027.html)
+- Jun 18 - [Gone fishing: Wichita Falls couple are new owners of landmark Lake Kickapoo fishing camp](https://www.yahoo.com/lifestyle/gone-fishing-wichita-falls-couple-113054589.html)
 <!-- feed end -->
 
 ### Onstream
