@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [TX woman who testified on abortion: Maybe Ted Cruz skipped hearing because he's a coward](https://www.yahoo.com/news/tx-woman-testified-abortion-maybe-031949205.html)
+- Jun 18 - [Britain is already at war, and nobody wants to admit it](https://www.yahoo.com/news/britain-already-war-nobody-wants-050000482.html)
+- Jun 18 - [Gen Xers are nearing retirement. About half say they need a miracle.](https://finance.yahoo.com/news/gen-xers-nearing-retirement-half-040117367.html)
 - Jun 18 - [Taiwan keeping watch after Chinese submarine surfaces in Taiwan Strait](https://www.yahoo.com/news/taiwan-keeping-watch-chinese-submarine-025558775.html)
+- Jun 18 - [Texas man with previous DWIs had 'entire arm' in passenger seat after hitting, killing pedestrian, police say](https://www.yahoo.com/news/texas-man-previous-dwis-had-020657917.html)
 - Jun 18 - [Maserati driver who was cut off and shot at woman, D.C. bystanders is sentenced to 32 years](https://www.yahoo.com/news/maserati-driver-cut-off-shot-013351344.html)
-- Jun 18 - [New images released of suspect in rape of 13-year-old girl at Queens park](https://www.yahoo.com/news/images-released-suspect-rape-13-002404752.html)
-- Jun 18 - [Chicago suburb named 'safest and most affordable' city in US, survey finds](https://www.yahoo.com/news/chicago-suburb-named-safest-most-001210517.html)
 <!-- feed end -->
 
 ### Onstream
