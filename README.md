@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Britain’s richest family Hindujas ‘spent more on dog than they paid servant’](https://www.independent.co.uk/news/uk/home-news/hinduja-family-net-worth-british-billionaires-b2564416.html)
-- Jun 18 - [California wildfires grow amid warm temperatures, gusty winds](https://www.yahoo.com/news/california-wildfires-grow-amid-warm-143112239.html)
-- Jun 18 - [An Intrinsic Calculation For Interfor Corporation (TSE:IFP) Suggests It's 26% Undervalued](https://finance.yahoo.com/news/intrinsic-calculation-interfor-corporation-tse-142351180.html)
 - Jun 18 - [A Russian submarine that just left Cuba is 'falling apart' with its soundproofing panels falling off](https://www.yahoo.com/news/russian-submarine-just-left-cuba-140444636.html)
-- Jun 18 - [A Mysterious Object Is Emitting Microwaves in Deep Space. It's Unlike Anything Ever Known.](https://www.yahoo.com/news/mysterious-object-emitting-microwaves-deep-134200072.html)
+- Jun 18 - [Hyundai to start manufacturing IONIQ 5 electric SUVs at new Georgia plant this fall](https://finance.yahoo.com/news/hyundai-start-manufacturing-ioniq-5-133610211.html)
+- Jun 18 - [Donald Trump’s Wild ‘Apprentice’ Behavior: Meltdowns on Set, a Shocking Nickname for an NBC Exec, an ‘Obsession’ with Debra Messing and More](https://www.yahoo.com/entertainment/donald-trump-wild-apprentice-behavior-133253080.html)
+- Jun 18 - [Fisker files for bankruptcy protection, the second electric vehicle maker to do so in the past year](https://finance.yahoo.com/news/fisker-files-bankruptcy-protection-second-123308094.html)
+- Jun 18 - [Ukrainian drone attacks on Russian oil refineries and infrastructure](https://www.yahoo.com/news/ukrainian-drone-attacks-russian-oil-122854244.html)
 <!-- feed end -->
 
 ### Onstream
