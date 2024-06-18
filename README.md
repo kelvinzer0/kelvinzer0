@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jun 18 - [People Are Sharing The "Normal" Things In Our Society That Are Actually Pretty Weird](https://www.yahoo.com/lifestyle/people-sharing-normal-things-society-021602971.html)
 - Jun 18 - [Vivek Ramaswamy's 'Truth': What the Trump VP prospect's podcast reveals about his future](https://www.yahoo.com/news/vivek-ramaswamys-truth-trump-vp-020021928.html)
 - Jun 18 - [Maserati driver who was cut off and shot at woman, D.C. bystanders is sentenced to 32 years](https://www.yahoo.com/news/maserati-driver-cut-off-shot-013351344.html)
-- Jun 18 - [Secret Service agent robbed at gunpoint during Biden's Los Angeles trip, police say](https://www.yahoo.com/news/secret-agent-robbed-gunpoint-during-001409861.html)
-- Jun 18 - [Father takes matters into his own hands after catching rideshare driver assaulting his daughter: police](https://www.yahoo.com/news/father-takes-matters-own-hands-001045863.html)
+- Jun 18 - [Steve Bannon won’t be spending his prison term in a ‘Club Fed’ as he had hoped, sources say](https://www.yahoo.com/news/steve-bannon-won-t-spending-205929094.html)
+- Jun 17 - [The 8 Best Canned Foods for High Blood Pressure, Recommended by Dietitians](https://www.yahoo.com/lifestyle/8-best-canned-foods-high-233234271.html)
 <!-- feed end -->
 
 ### Onstream
