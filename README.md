@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [People Are Sharing The "Normal" Things In Our Society That Are Actually Pretty Weird](https://www.yahoo.com/lifestyle/people-sharing-normal-things-society-021602971.html)
-- Jun 18 - [Vivek Ramaswamy's 'Truth': What the Trump VP prospect's podcast reveals about his future](https://www.yahoo.com/news/vivek-ramaswamys-truth-trump-vp-020021928.html)
+- Jun 18 - [TX woman who testified on abortion: Maybe Ted Cruz skipped hearing because he's a coward](https://www.yahoo.com/news/tx-woman-testified-abortion-maybe-031949205.html)
+- Jun 18 - [Taiwan keeping watch after Chinese submarine surfaces in Taiwan Strait](https://www.yahoo.com/news/taiwan-keeping-watch-chinese-submarine-025558775.html)
 - Jun 18 - [Maserati driver who was cut off and shot at woman, D.C. bystanders is sentenced to 32 years](https://www.yahoo.com/news/maserati-driver-cut-off-shot-013351344.html)
-- Jun 18 - [Steve Bannon won’t be spending his prison term in a ‘Club Fed’ as he had hoped, sources say](https://www.yahoo.com/news/steve-bannon-won-t-spending-205929094.html)
-- Jun 17 - [The 8 Best Canned Foods for High Blood Pressure, Recommended by Dietitians](https://www.yahoo.com/lifestyle/8-best-canned-foods-high-233234271.html)
+- Jun 18 - [New images released of suspect in rape of 13-year-old girl at Queens park](https://www.yahoo.com/news/images-released-suspect-rape-13-002404752.html)
+- Jun 18 - [Chicago suburb named 'safest and most affordable' city in US, survey finds](https://www.yahoo.com/news/chicago-suburb-named-safest-most-001210517.html)
 <!-- feed end -->
 
 ### Onstream
