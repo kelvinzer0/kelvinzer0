@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Florida plastic surgeon arrested after wife died following procedure](https://www.yahoo.com/news/florida-plastic-surgeon-arrested-wife-134030422.html)
-- Jun 18 - [Three children who went missing after trip to Thorpe Park found](https://www.independent.co.uk/news/uk/home-news/children-missing-thorpe-park-surrey-b2564485.html)
-- Jun 18 - [Fisker files for bankruptcy protection, the second electric vehicle maker to do so in the past year](https://finance.yahoo.com/news/fisker-files-bankruptcy-protection-second-123308094.html)
-- Jun 18 - [Ukrainian drone attacks on Russian oil refineries and infrastructure](https://www.yahoo.com/news/ukrainian-drone-attacks-russian-oil-122854244.html)
-- Jun 18 - [James Carville Surprises Ari Melber With Trump-Biden Debate Prediction](https://www.yahoo.com/news/james-carville-surprises-ari-melber-122837852.html)
+- Jun 18 - [Britain’s richest family Hindujas ‘spent more on dog than they paid servant’](https://www.independent.co.uk/news/uk/home-news/hinduja-family-net-worth-british-billionaires-b2564416.html)
+- Jun 18 - [California wildfires grow amid warm temperatures, gusty winds](https://www.yahoo.com/news/california-wildfires-grow-amid-warm-143112239.html)
+- Jun 18 - [An Intrinsic Calculation For Interfor Corporation (TSE:IFP) Suggests It's 26% Undervalued](https://finance.yahoo.com/news/intrinsic-calculation-interfor-corporation-tse-142351180.html)
+- Jun 18 - [A Russian submarine that just left Cuba is 'falling apart' with its soundproofing panels falling off](https://www.yahoo.com/news/russian-submarine-just-left-cuba-140444636.html)
+- Jun 18 - [A Mysterious Object Is Emitting Microwaves in Deep Space. It's Unlike Anything Ever Known.](https://www.yahoo.com/news/mysterious-object-emitting-microwaves-deep-134200072.html)
 <!-- feed end -->
 
 ### Onstream
