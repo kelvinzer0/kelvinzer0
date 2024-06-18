@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Granderson: One pillar of American racism is also propping up Fox News](https://www.yahoo.com/news/granderson-one-pillar-american-racism-100028472.html)
-- Jun 18 - [Forget AMD: 2 Artificial Intelligence (AI) Stocks to Buy Instead](https://finance.yahoo.com/news/forget-amd-2-artificial-intelligence-091500773.html)
-- Jun 18 - [US renews warning it's obligated to defend the Philippines after its new clash with China at sea](https://www.yahoo.com/news/us-renews-warning-obligated-defend-065953757.html)
-- Jun 18 - [CNN Data Reporter 'Speechless' By New Donald Trump-Joe Biden Poll: 'Holy Cow, Folks!'](https://www.yahoo.com/news/cnn-data-reporter-speechless-donald-065504319.html)
-- Jun 18 - ['I Almost Threw Up': Jimmy Kimmel Grossed Out By Trump's Weird Hair Confession](https://www.yahoo.com/entertainment/almost-threw-jimmy-kimmel-grossed-061850586.html)
+- Jun 18 - [AI Stocks: Tech Giants, Cloud Titans, Chipmakers Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jun 18 - [Britain’s richest family Hindujas ‘spent more on dog than they paid servant’](https://www.independent.co.uk/news/uk/home-news/hinduja-family-net-worth-british-billionaires-b2564416.html)
+- Jun 18 - [General election polls: Are Labour or the Conservatives on track to win in July?](https://www.yahoo.com/news/general-election-rishi-sunak-tories-162323918.html)
+- Jun 18 - [Signs of Alzheimer’s were everywhere. Then his brain improved](https://www.yahoo.com/news/signs-alzheimer-were-everywhere-then-060003462.html)
+- Jun 18 - [Apple seeks to balance privacy, innovation with ChatGPT deal](https://www.yahoo.com/tech/apple-seeks-balance-privacy-innovation-100000027.html)
 <!-- feed end -->
 
 ### Onstream
