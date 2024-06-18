@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Unserviceable American Flags disposed in community ceremony June 14](https://www.yahoo.com/news/unserviceable-american-flags-disposed-community-075119864.html)
 - Jun 18 - [US renews warning it's obligated to defend the Philippines after its new clash with China at sea](https://www.yahoo.com/news/us-renews-warning-obligated-defend-065953757.html)
 - Jun 18 - [CNN Data Reporter 'Speechless' By New Donald Trump-Joe Biden Poll: 'Holy Cow, Folks!'](https://www.yahoo.com/news/cnn-data-reporter-speechless-donald-065504319.html)
 - Jun 18 - ['I Almost Threw Up': Jimmy Kimmel Grossed Out By Trump's Weird Hair Confession](https://www.yahoo.com/entertainment/almost-threw-jimmy-kimmel-grossed-061850586.html)
-- Jun 18 - [TX woman who testified on abortion: Maybe Ted Cruz skipped hearing because he's a coward](https://www.yahoo.com/news/tx-woman-testified-abortion-maybe-031949205.html)
+- Jun 18 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/lifestyle/passenger-gets-banned-flight-using-142458145.html)
+- Jun 18 - [Britain is already at war, and nobody wants to admit it](https://www.yahoo.com/news/britain-already-war-nobody-wants-050000482.html)
 <!-- feed end -->
 
 ### Onstream
