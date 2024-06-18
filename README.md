@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Apple suspends work on next high-end headset, to focus on cheaper model, the Information reports](https://www.yahoo.com/tech/apple-suspends-next-high-end-162218234.html)
+- Jun 18 - [Haiti gang leader Germine ‘Yonyon’ Joly asks U.S. federal judge for forgiveness, leniency](https://www.yahoo.com/news/haiti-gang-leader-germine-yonyon-175539705.html)
 - Jun 18 - [Ukraine’s newest weapon should terrify Russia’s flailing strategists](https://www.yahoo.com/news/ukraine-newest-weapon-terrify-russia-161858978.html)
-- Jun 18 - [Boeing Starliner's return to Earth pushed to June 26](https://www.yahoo.com/news/boeing-starliners-crewed-return-earth-161701339.html)
-- Jun 18 - [Iranian activist and Nobel Peace prize winner Narges Mohammadi sentenced to further year in prison](https://www.yahoo.com/news/iranian-activist-nobel-peace-prize-161207749.html)
+- Jun 18 - [Moose chased by bear stops to look back; ‘You still coming?’](https://www.yahoo.com/news/moose-chased-bear-stops-look-160154945.html)
+- Jun 18 - [MAGA Pushes New Conspiracy to Prep for Trump Losing Biden Debate](https://www.yahoo.com/news/maga-pushes-conspiracy-prep-trump-155642938.html)
 - Jun 18 - [Vermont man sentenced to 25 years in prison for kidnapping woman and son outside of a mall](https://www.yahoo.com/news/vermont-man-sentenced-25-years-150729965.html)
 <!-- feed end -->
 
