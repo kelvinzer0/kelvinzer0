@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [CNN Data Reporter 'Speechless' By New Donald Trump-Joe Biden Poll: 'Holy Cow, Folks!'](https://www.yahoo.com/news/cnn-data-reporter-speechless-donald-065504319.html)
+- Jun 18 - ['I Almost Threw Up': Jimmy Kimmel Grossed Out By Trump's Weird Hair Confession](https://www.yahoo.com/entertainment/almost-threw-jimmy-kimmel-grossed-061850586.html)
 - Jun 18 - [Britain is already at war, and nobody wants to admit it](https://www.yahoo.com/news/britain-already-war-nobody-wants-050000482.html)
-- Jun 18 - [Maserati driver who was cut off and shot at woman, D.C. bystanders is sentenced to 32 years](https://www.yahoo.com/news/maserati-driver-cut-off-shot-013351344.html)
-- Jun 18 - [Secret Service agent robbed at gunpoint during Biden's Los Angeles trip, police say](https://www.yahoo.com/news/secret-agent-robbed-gunpoint-during-001409861.html)
-- Jun 18 - [Chicago suburb named 'safest and most affordable' city in US, survey finds](https://www.yahoo.com/news/chicago-suburb-named-safest-most-001210517.html)
-- Jun 17 - [Seminole County gator attack leaves man with amputated arm](https://www.yahoo.com/news/seminole-county-gator-attack-leaves-224727951.html)
+- Jun 18 - [Taiwan keeping watch after Chinese submarine surfaces in Taiwan Strait](https://www.yahoo.com/news/taiwan-keeping-watch-chinese-submarine-025558775.html)
+- Jun 18 - [People Are Sharing The "Normal" Things In Our Society That Are Actually Pretty Weird](https://www.yahoo.com/lifestyle/people-sharing-normal-things-society-021602971.html)
 <!-- feed end -->
 
 ### Onstream
