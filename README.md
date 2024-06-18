@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Dollar wobbles as markets await more Fed clues; RBA meeting in focus](https://finance.yahoo.com/news/dollar-wobbles-markets-await-more-011631466.html)
-- Jun 18 - [B-52s With New Rolls Royce Engines Won't Fly Operational Missions Until 2033](https://www.yahoo.com/news/b-52s-rolls-royce-engines-010205978.html)
-- Jun 18 - [Body Of Woman Missing For 25 Years Believed To Be Found On Ex-Boyfriend’s Property](https://www.yahoo.com/news/body-woman-missing-25-years-004510632.html)
+- Jun 18 - [People Are Sharing The "Normal" Things In Our Society That Are Actually Pretty Weird](https://www.yahoo.com/lifestyle/people-sharing-normal-things-society-021602971.html)
+- Jun 18 - [Vivek Ramaswamy's 'Truth': What the Trump VP prospect's podcast reveals about his future](https://www.yahoo.com/news/vivek-ramaswamys-truth-trump-vp-020021928.html)
+- Jun 18 - [Maserati driver who was cut off and shot at woman, D.C. bystanders is sentenced to 32 years](https://www.yahoo.com/news/maserati-driver-cut-off-shot-013351344.html)
 - Jun 18 - [Secret Service agent robbed at gunpoint during Biden's Los Angeles trip, police say](https://www.yahoo.com/news/secret-agent-robbed-gunpoint-during-001409861.html)
-- Jun 17 - [Man dead after being hit by 2 vehicles in Porterville](https://www.yahoo.com/news/man-dead-being-hit-2-223841828.html)
+- Jun 18 - [Father takes matters into his own hands after catching rideshare driver assaulting his daughter: police](https://www.yahoo.com/news/father-takes-matters-own-hands-001045863.html)
 <!-- feed end -->
 
 ### Onstream
