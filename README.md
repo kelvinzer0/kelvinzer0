@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 18 - [Jasmine Crockett reveals a fight almost broke out on the House floor after ‘bleach blonde bad body’ comment](https://www.yahoo.com/news/jasmine-crockett-reveals-fight-almost-195853247.html)
-- Jun 18 - [Mom of transgender girl athlete says Florida's investigation has destroyed her daughter's life](https://www.yahoo.com/news/mom-transgender-girl-athlete-says-184618999.html)
-- Jun 18 - [Huge tech ETF set to buy $10 billion in Nvidia shares](https://finance.yahoo.com/news/huge-tech-etf-set-buy-184231900.html)
-- Jun 18 - [Bill Gates' former assistant is worth $154 billion — and could soon be richer than the Microsoft cofounder](https://finance.yahoo.com/news/bill-gates-former-assistant-worlds-200910166.html)
-- Jun 18 - [Kansas City Italian restaurant once had several locations. The last one just closed](https://www.yahoo.com/news/kansas-city-italian-restaurant-once-173611525.html)
+- Jun 18 - [A Radical New Magnet Without Rare-Earth Metals Is About to Change Motors Forever](https://www.yahoo.com/tech/radical-magnet-without-rare-earth-192900586.html)
+- Jun 18 - [Satellite images show Russia's putting ships in the path of Ukraine's naval drones to protect Putin's prize, but it's likely not enough](https://www.yahoo.com/news/satellite-images-show-russias-putting-192715360.html)
+- Jun 18 - [Wichitans found affordable rent by camping long-term at Lake Afton. Sedgwick County shut it down.](https://www.yahoo.com/news/wichitans-found-affordable-rent-camping-192626190.html)
+- Jun 18 - [A 'potty-mouthed parrot' is up for adoption. 300 people came forward for the cursing conure.](https://www.yahoo.com/lifestyle/potty-mouthed-parrot-adoption-300-191743608.html)
 <!-- feed end -->
 
 ### Onstream
