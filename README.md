@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Major Johnson County interchange to close for months as U.S. 69 expands, adds express lanes](https://www.yahoo.com/news/major-johnson-county-interchange-close-170217967.html)
-- Jun 18 - [Why Many Regret Moving to Texas Post-Pandemic](https://finance.yahoo.com/news/why-many-regret-moving-texas-170009198.html)
+- Jun 18 - [Lawmakers grill Boeing CEO David Calhoun in new hearing as plane manufacturer flounders](https://www.yahoo.com/news/lawmakers-grill-boeing-ceo-david-194936690.html)
+- Jun 18 - [Mom of transgender girl athlete says Florida's investigation has destroyed her daughter's life](https://www.yahoo.com/news/mom-transgender-girl-athlete-says-184618999.html)
+- Jun 18 - [Kansas City Italian restaurant once had several locations. The last one just closed](https://www.yahoo.com/news/kansas-city-italian-restaurant-once-173611525.html)
+- Jun 18 - [Panicked Matt Gaetz Tries to Downplay New Ethics Investigation](https://www.yahoo.com/news/panicked-matt-gaetz-tries-downplay-170726218.html)
 - Jun 18 - [Texas doctor charged with taking private patient information on transgender care](https://www.yahoo.com/news/texas-doctor-charged-taking-private-164733184.html)
-- Jun 18 - [Moose chased by bear stops to look back; ‘You still coming?’](https://www.yahoo.com/news/moose-chased-bear-stops-look-160154945.html)
-- Jun 18 - [Marjorie Taylor Greene Falls for Bogus Supreme Court Trump Video](https://www.yahoo.com/news/marjorie-taylor-greene-falls-bogus-154611673.html)
 <!-- feed end -->
 
 ### Onstream
