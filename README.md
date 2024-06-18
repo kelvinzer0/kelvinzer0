@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Dollar wobbles as markets await more Fed clues; RBA meeting in focus](https://finance.yahoo.com/news/dollar-wobbles-markets-await-more-011631466.html)
+- Jun 18 - [B-52s With New Rolls Royce Engines Won't Fly Operational Missions Until 2033](https://www.yahoo.com/news/b-52s-rolls-royce-engines-010205978.html)
+- Jun 18 - [Body Of Woman Missing For 25 Years Believed To Be Found On Ex-Boyfriend’s Property](https://www.yahoo.com/news/body-woman-missing-25-years-004510632.html)
 - Jun 18 - [Secret Service agent robbed at gunpoint during Biden's Los Angeles trip, police say](https://www.yahoo.com/news/secret-agent-robbed-gunpoint-during-001409861.html)
-- Jun 17 - [Heading out of town on Idaho 55? Transportation officials warn of construction delays](https://www.yahoo.com/news/heading-town-idaho-55-transportation-234023379.html)
-- Jun 17 - [Harris meets with former Israeli hostage who described being sexually assaulted in Gaza](https://www.yahoo.com/news/harris-meets-former-israeli-hostage-224451834.html)
-- Jun 17 - [Ukraine Captures Its First Russian Turtle Tank](https://www.yahoo.com/news/ukraine-captures-first-russian-turtle-222623902.html)
-- Jun 17 - [Carrie Underwood Suffers Home Tragedy While Celebrating Father's Day](https://www.yahoo.com/entertainment/carrie-underwood-suffers-home-tragedy-205234305.html)
+- Jun 17 - [Man dead after being hit by 2 vehicles in Porterville](https://www.yahoo.com/news/man-dead-being-hit-2-223841828.html)
 <!-- feed end -->
 
 ### Onstream
