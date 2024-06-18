@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Haiti gang leader Germine ‘Yonyon’ Joly asks U.S. federal judge for forgiveness, leniency](https://www.yahoo.com/news/haiti-gang-leader-germine-yonyon-175539705.html)
-- Jun 18 - [Ukraine’s newest weapon should terrify Russia’s flailing strategists](https://www.yahoo.com/news/ukraine-newest-weapon-terrify-russia-161858978.html)
+- Jun 18 - [Major Johnson County interchange to close for months as U.S. 69 expands, adds express lanes](https://www.yahoo.com/news/major-johnson-county-interchange-close-170217967.html)
+- Jun 18 - [Why Many Regret Moving to Texas Post-Pandemic](https://finance.yahoo.com/news/why-many-regret-moving-texas-170009198.html)
+- Jun 18 - [Texas doctor charged with taking private patient information on transgender care](https://www.yahoo.com/news/texas-doctor-charged-taking-private-164733184.html)
 - Jun 18 - [Moose chased by bear stops to look back; ‘You still coming?’](https://www.yahoo.com/news/moose-chased-bear-stops-look-160154945.html)
-- Jun 18 - [MAGA Pushes New Conspiracy to Prep for Trump Losing Biden Debate](https://www.yahoo.com/news/maga-pushes-conspiracy-prep-trump-155642938.html)
-- Jun 18 - [Vermont man sentenced to 25 years in prison for kidnapping woman and son outside of a mall](https://www.yahoo.com/news/vermont-man-sentenced-25-years-150729965.html)
+- Jun 18 - [Marjorie Taylor Greene Falls for Bogus Supreme Court Trump Video](https://www.yahoo.com/news/marjorie-taylor-greene-falls-bogus-154611673.html)
 <!-- feed end -->
 
 ### Onstream
