@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 18 - [Britain is already at war, and nobody wants to admit it](https://www.yahoo.com/news/britain-already-war-nobody-wants-050000482.html)
-- Jun 18 - [Gen Xers are nearing retirement. About half say they need a miracle.](https://finance.yahoo.com/news/gen-xers-nearing-retirement-half-040117367.html)
-- Jun 18 - [Taiwan keeping watch after Chinese submarine surfaces in Taiwan Strait](https://www.yahoo.com/news/taiwan-keeping-watch-chinese-submarine-025558775.html)
-- Jun 18 - [Texas man with previous DWIs had 'entire arm' in passenger seat after hitting, killing pedestrian, police say](https://www.yahoo.com/news/texas-man-previous-dwis-had-020657917.html)
 - Jun 18 - [Maserati driver who was cut off and shot at woman, D.C. bystanders is sentenced to 32 years](https://www.yahoo.com/news/maserati-driver-cut-off-shot-013351344.html)
+- Jun 18 - [Secret Service agent robbed at gunpoint during Biden's Los Angeles trip, police say](https://www.yahoo.com/news/secret-agent-robbed-gunpoint-during-001409861.html)
+- Jun 18 - [Chicago suburb named 'safest and most affordable' city in US, survey finds](https://www.yahoo.com/news/chicago-suburb-named-safest-most-001210517.html)
+- Jun 17 - [Seminole County gator attack leaves man with amputated arm](https://www.yahoo.com/news/seminole-county-gator-attack-leaves-224727951.html)
 <!-- feed end -->
 
 ### Onstream
