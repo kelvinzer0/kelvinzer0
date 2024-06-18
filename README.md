@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [A Russian submarine that just left Cuba is 'falling apart' with its soundproofing panels falling off](https://www.yahoo.com/news/russian-submarine-just-left-cuba-140444636.html)
-- Jun 18 - [Hyundai to start manufacturing IONIQ 5 electric SUVs at new Georgia plant this fall](https://finance.yahoo.com/news/hyundai-start-manufacturing-ioniq-5-133610211.html)
-- Jun 18 - [Donald Trump’s Wild ‘Apprentice’ Behavior: Meltdowns on Set, a Shocking Nickname for an NBC Exec, an ‘Obsession’ with Debra Messing and More](https://www.yahoo.com/entertainment/donald-trump-wild-apprentice-behavior-133253080.html)
-- Jun 18 - [Fisker files for bankruptcy protection, the second electric vehicle maker to do so in the past year](https://finance.yahoo.com/news/fisker-files-bankruptcy-protection-second-123308094.html)
-- Jun 18 - [Ukrainian drone attacks on Russian oil refineries and infrastructure](https://www.yahoo.com/news/ukrainian-drone-attacks-russian-oil-122854244.html)
+- Jun 18 - [Apple suspends work on next high-end headset, to focus on cheaper model, the Information reports](https://www.yahoo.com/tech/apple-suspends-next-high-end-162218234.html)
+- Jun 18 - [Ukraine’s newest weapon should terrify Russia’s flailing strategists](https://www.yahoo.com/news/ukraine-newest-weapon-terrify-russia-161858978.html)
+- Jun 18 - [Boeing Starliner's return to Earth pushed to June 26](https://www.yahoo.com/news/boeing-starliners-crewed-return-earth-161701339.html)
+- Jun 18 - [Iranian activist and Nobel Peace prize winner Narges Mohammadi sentenced to further year in prison](https://www.yahoo.com/news/iranian-activist-nobel-peace-prize-161207749.html)
+- Jun 18 - [Vermont man sentenced to 25 years in prison for kidnapping woman and son outside of a mall](https://www.yahoo.com/news/vermont-man-sentenced-25-years-150729965.html)
 <!-- feed end -->
 
 ### Onstream
