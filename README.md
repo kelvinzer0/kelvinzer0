@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Miss Wisconsin Rapids' Teen Addison Morin says she has broken out of shell and is ready to compete for state title](https://www.yahoo.com/lifestyle/miss-wisconsin-rapids-teen-addison-102015747.html)
-- Jun 19 - [Ukraine’s new ‘Frankenstein’ tank will put the fear of God into Putin](https://www.yahoo.com/news/ukraine-frankenstein-tank-put-fear-094700916.html)
-- Jun 19 - [Dr. Anthony Fauci Recalls Surprising Aftermath Of Correcting Donald Trump On Live TV](https://www.yahoo.com/news/dr-anthony-fauci-recalls-surprising-084127128.html)
+- Jun 19 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 19 - [State police ID 3 people who suffered ‘significant injuries’ in head-on crash at NH toll plaza](https://www.yahoo.com/news/state-police-id-3-people-120414473.html)
 - Jun 19 - [Trump's Attempt To Mock Biden's Cognition Backfires When He Gets The Term Wrong](https://www.yahoo.com/news/trumps-attempt-mock-bidens-cognition-083346407.html)
-- Jun 19 - [USC student, 19, arrested in fatal stabbing of burglary suspect identified](https://www.yahoo.com/news/usc-student-19-arrested-fatal-054709726.html)
+- Jun 19 - [Poisoned trees gave a wealthy couple in Maine a killer ocean view. Residents wonder, at what cost?](https://www.yahoo.com/news/poisoned-trees-gave-wealthy-couple-043241687.html)
+- Jun 19 - [Baby moose trapped in a lake is saved by Alaska man and police as its worried mom watches](https://www.yahoo.com/news/baby-moose-trapped-lake-saved-040817519.html)
 <!-- feed end -->
 
 ### Onstream
