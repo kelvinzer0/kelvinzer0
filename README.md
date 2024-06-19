@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Trump Loses It At Fox News, Says No One Can Trust It](https://www.yahoo.com/news/trump-loses-fox-news-says-210928095.html)
-- Jun 19 - [Jury in manslaughter trial of aristocrat Constance Marten and partner Mark Gordon discharged](https://www.yahoo.com/news/jury-manslaughter-trial-aristocrat-constance-110911714.html)
-- Jun 19 - [Tallahassee City Commission OKs up to $3.4 million in settlements](https://www.yahoo.com/news/tallahassee-city-commission-oks-3-204340430.html)
+- Jun 19 - [The Supreme Court’s approach on ‘history and tradition’ is irking Amy Coney Barrett](https://www.yahoo.com/news/supreme-court-approach-history-tradition-141513038.html)
 - Jun 19 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
+- Jun 19 - [Trump Loses It At Fox News, Says No One Can Trust It](https://www.yahoo.com/news/trump-loses-fox-news-says-210928095.html)
+- Jun 19 - [Pornhub to leave five more states over age-verification laws](https://www.yahoo.com/news/pornhub-to-leave-five-more-states-over-age-verification-laws-194906657.html)
 - Jun 19 - [Former OpenAI chief scientist to start a new AI company](https://finance.yahoo.com/news/former-openai-chief-scientist-start-185054630.html)
 <!-- feed end -->
 
