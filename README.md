@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Pornhub to leave five more states over age-verification laws](https://www.yahoo.com/news/pornhub-to-leave-five-more-states-over-age-verification-laws-194906657.html)
-- Jun 19 - [Hezbollah leader threatens Cyprus as tensions with Israel ramp up](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 19 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
 - Jun 19 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
+- Jun 19 - [Car Crashes Into Police Car in the Middle of Empty Highway](https://www.yahoo.com/news/car-crashes-police-car-middle-163119566.html)
 - Jun 19 - [Head of Lebanon's Hezbollah threatens Israel and Cyprus](https://www.yahoo.com/news/head-lebanons-hezbollah-threatens-israel-155858809.html)
-- Jun 19 - [9 Things the Middle Class Stopped Doing When They Became Wealthy](https://finance.yahoo.com/news/9-things-middle-class-stopped-150008262.html)
+- Jun 19 - [Russia's Putin praises Vietnam for its stance on Ukraine](https://www.yahoo.com/news/russias-putin-praises-vietnam-stance-153547874.html)
 <!-- feed end -->
 
 ### Onstream
