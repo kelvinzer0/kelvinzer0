@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Attorneys for Baltimore seek to keep crew members from bridge collapse ship from returning home](https://www.yahoo.com/news/attorneys-baltimore-seek-keep-crew-235516993.html)
-- Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 18 - [A Missouri college student went missing in Nashville. Police now know what killed him](https://www.yahoo.com/news/missouri-college-student-riley-strain-191517139.html)
+- Jun 18 - [City of Astoria among those facing $10M in lawsuit over Buoy Brewery collapse](https://www.yahoo.com/news/city-astoria-among-those-facing-221307981.html)
 - Jun 18 - [US pushing Netherlands, Japan to restrict more chipmaking equipment to China, source says](https://finance.yahoo.com/news/us-pushing-netherlands-japan-restrict-215531348.html)
 - Jun 18 - [Detroit Three automakers should exit China, leading analyst says](https://finance.yahoo.com/news/detroit-three-automakers-exit-china-211555552.html)
 - Jun 18 - [Jacksonville woman sentenced to federal prison for funding ‘animal crush’ videos](https://www.yahoo.com/news/jacksonville-woman-sentenced-federal-prison-204235348.html)
