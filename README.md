@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Texas megachurch pastor resigns after woman says he sexually abused her in the 1980s](https://www.yahoo.com/news/texas-megachurch-pastor-resigns-woman-223929465.html)
+- Jun 18 - [Florida plastic surgeon who waited to call 911 as wife had cardiac arrest on his operating table is charged with homicide](https://www.yahoo.com/news/florida-plastic-surgeon-waited-call-230923276.html)
 - Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
 - Jun 18 - [US pushing Netherlands, Japan to restrict more chipmaking equipment to China, source says](https://finance.yahoo.com/news/us-pushing-netherlands-japan-restrict-215531348.html)
-- Jun 18 - [The #1 Snack for Better Gut Health, Recommended by a Gastroenterologist](https://www.yahoo.com/lifestyle/1-snack-better-gut-health-212256141.html)
-- Jun 18 - [Jacksonville woman sentenced to federal prison for funding ‘animal crush’ videos](https://www.yahoo.com/news/jacksonville-woman-sentenced-federal-prison-204235348.html)
+- Jun 18 - [Detroit Three automakers should exit China, leading analyst says](https://finance.yahoo.com/news/detroit-three-automakers-exit-china-211555552.html)
+- Jun 18 - [Trump decries state of economy in Wisconsin city where his promise of jobs fell short](https://www.yahoo.com/news/trump-holds-rally-wisconsin-city-200358145.html)
 <!-- feed end -->
 
 ### Onstream
