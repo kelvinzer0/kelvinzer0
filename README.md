@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [Trump Loses It At Fox News, Says No One Can Trust It](https://www.yahoo.com/news/trump-loses-fox-news-says-210928095.html)
+- Jun 19 - [Jury in manslaughter trial of aristocrat Constance Marten and partner Mark Gordon discharged](https://www.yahoo.com/news/jury-manslaughter-trial-aristocrat-constance-110911714.html)
+- Jun 19 - [Tallahassee City Commission OKs up to $3.4 million in settlements](https://www.yahoo.com/news/tallahassee-city-commission-oks-3-204340430.html)
 - Jun 19 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
-- Jun 19 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
-- Jun 19 - [Car Crashes Into Police Car in the Middle of Empty Highway](https://www.yahoo.com/news/car-crashes-police-car-middle-163119566.html)
-- Jun 19 - [Head of Lebanon's Hezbollah threatens Israel and Cyprus](https://www.yahoo.com/news/head-lebanons-hezbollah-threatens-israel-155858809.html)
-- Jun 19 - [Russia's Putin praises Vietnam for its stance on Ukraine](https://www.yahoo.com/news/russias-putin-praises-vietnam-stance-153547874.html)
+- Jun 19 - [Former OpenAI chief scientist to start a new AI company](https://finance.yahoo.com/news/former-openai-chief-scientist-start-185054630.html)
 <!-- feed end -->
 
 ### Onstream
