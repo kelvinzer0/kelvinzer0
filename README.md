@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 19 - [Miss Wisconsin Rapids' Teen Addison Morin says she has broken out of shell and is ready to compete for state title](https://www.yahoo.com/lifestyle/miss-wisconsin-rapids-teen-addison-102015747.html)
 - Jun 19 - [Ukraine’s new ‘Frankenstein’ tank will put the fear of God into Putin](https://www.yahoo.com/news/ukraine-frankenstein-tank-put-fear-094700916.html)
-- Jun 19 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/lifestyle/passenger-gets-banned-flight-using-142458145.html)
-- Jun 18 - [Attorneys for Baltimore seek to keep crew members from bridge collapse ship from returning home](https://www.yahoo.com/news/attorneys-baltimore-seek-keep-crew-235516993.html)
-- Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 19 - [Dr. Anthony Fauci Recalls Surprising Aftermath Of Correcting Donald Trump On Live TV](https://www.yahoo.com/news/dr-anthony-fauci-recalls-surprising-084127128.html)
+- Jun 19 - [Trump's Attempt To Mock Biden's Cognition Backfires When He Gets The Term Wrong](https://www.yahoo.com/news/trumps-attempt-mock-bidens-cognition-083346407.html)
+- Jun 19 - [USC student, 19, arrested in fatal stabbing of burglary suspect identified](https://www.yahoo.com/news/usc-student-19-arrested-fatal-054709726.html)
 <!-- feed end -->
 
 ### Onstream
