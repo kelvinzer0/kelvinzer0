@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Detroit Three automakers should exit China, leading analyst says](https://finance.yahoo.com/news/detroit-three-automakers-exit-china-211555552.html)
-- Jun 18 - [The 9 Healthiest Nuts](https://www.yahoo.com/lifestyle/9-healthiest-nuts-202442649.html)
-- Jun 18 - [Vermont lawmaker apologizes for repeatedly pouring water in her colleague's bag](https://www.yahoo.com/news/vermont-lawmaker-apologizes-repeatedly-pouring-200458870.html)
-- Jun 18 - [Trump holds rally in Wisconsin city where his promises of new jobs fell short](https://www.yahoo.com/news/trump-holds-rally-wisconsin-city-200358145.html)
-- Jun 18 - [Trump Is Now Openly Threatening CEOs Who Don’t Support Him](https://finance.yahoo.com/news/trump-now-openly-threatening-ceos-200153707.html)
+- Jun 18 - [Texas megachurch pastor resigns after woman says he sexually abused her in the 1980s](https://www.yahoo.com/news/texas-megachurch-pastor-resigns-woman-223929465.html)
+- Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 18 - [US pushing Netherlands, Japan to restrict more chipmaking equipment to China, source says](https://finance.yahoo.com/news/us-pushing-netherlands-japan-restrict-215531348.html)
+- Jun 18 - [The #1 Snack for Better Gut Health, Recommended by a Gastroenterologist](https://www.yahoo.com/lifestyle/1-snack-better-gut-health-212256141.html)
+- Jun 18 - [Jacksonville woman sentenced to federal prison for funding ‘animal crush’ videos](https://www.yahoo.com/news/jacksonville-woman-sentenced-federal-prison-204235348.html)
 <!-- feed end -->
 
 ### Onstream
