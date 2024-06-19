@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Placer DA: Roseville mom sat on 9-year-old son, torturing him as dad did nothing to stop it](https://www.yahoo.com/news/placer-da-roseville-mom-sat-120000047.html)
-- Jun 19 - [Poisoned trees gave a wealthy couple in Maine a killer ocean view. Residents wonder, at what cost?](https://www.yahoo.com/news/poisoned-trees-gave-wealthy-couple-043241687.html)
+- Jun 19 - [Miss Wisconsin Rapids' Teen Addison Morin says she has broken out of shell and is ready to compete for state title](https://www.yahoo.com/lifestyle/miss-wisconsin-rapids-teen-addison-102015747.html)
+- Jun 19 - [Ukraine’s new ‘Frankenstein’ tank will put the fear of God into Putin](https://www.yahoo.com/news/ukraine-frankenstein-tank-put-fear-094700916.html)
+- Jun 19 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/lifestyle/passenger-gets-banned-flight-using-142458145.html)
 - Jun 18 - [Attorneys for Baltimore seek to keep crew members from bridge collapse ship from returning home](https://www.yahoo.com/news/attorneys-baltimore-seek-keep-crew-235516993.html)
-- Jun 18 - [Waukesha bowling alley rampage; police seek men who caused $1K damage](https://www.yahoo.com/news/waukesha-bowling-alley-rampage-police-224333695.html)
 - Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
 <!-- feed end -->
 
