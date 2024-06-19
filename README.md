@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [3 Milwaukee leaders leaving top executive roles at Advocate Health system](https://www.yahoo.com/news/3-milwaukee-leaders-leaving-top-100838997.html)
+- Jun 19 - [Placer DA: Roseville mom sat on 9-year-old son, torturing him as dad did nothing to stop it](https://www.yahoo.com/news/placer-da-roseville-mom-sat-120000047.html)
 - Jun 19 - [Poisoned trees gave a wealthy couple in Maine a killer ocean view. Residents wonder, at what cost?](https://www.yahoo.com/news/poisoned-trees-gave-wealthy-couple-043241687.html)
 - Jun 18 - [Attorneys for Baltimore seek to keep crew members from bridge collapse ship from returning home](https://www.yahoo.com/news/attorneys-baltimore-seek-keep-crew-235516993.html)
+- Jun 18 - [Waukesha bowling alley rampage; police seek men who caused $1K damage](https://www.yahoo.com/news/waukesha-bowling-alley-rampage-police-224333695.html)
 - Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
-- Jun 18 - [9 unlicensed contractors cited in SLO County sting operation](https://www.yahoo.com/news/9-unlicensed-contractors-cited-slo-212739421.html)
 <!-- feed end -->
 
 ### Onstream
