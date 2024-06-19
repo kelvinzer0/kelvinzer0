@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [In Ukraine, ‘We Know Why We Fight’](https://www.yahoo.com/news/ukraine-know-why-fight-064500052.html)
+- Jun 19 - [Why some scientists think extreme heat could be behind people disappearing in Greece](https://www.yahoo.com/news/why-scientists-think-extreme-heat-074729295.html)
+- Jun 19 - [China approves autonomous driving startup Momenta's US IPO](https://finance.yahoo.com/news/china-approves-autonomous-driving-startup-073828767.html)
 - Jun 19 - [Poisoned trees gave a wealthy couple in Maine a killer ocean view. Residents wonder, at what cost?](https://www.yahoo.com/news/poisoned-trees-gave-wealthy-couple-043241687.html)
-- Jun 19 - [Chinese automakers seek retaliatory tariffs on EU cars, state media reports](https://finance.yahoo.com/news/chinese-automakers-seek-retaliatory-tariffs-042706409.html)
-- Jun 19 - [Baby moose trapped in a lake is saved by Alaska man and police as its worried mom watches](https://www.yahoo.com/news/baby-moose-trapped-lake-saved-040817519.html)
-- Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 18 - [Attorneys for Baltimore seek to keep crew members from bridge collapse ship from returning home](https://www.yahoo.com/news/attorneys-baltimore-seek-keep-crew-235516993.html)
+- Jun 18 - [A Missouri college student went missing in Nashville. Police now know what killed him](https://www.yahoo.com/news/missouri-college-student-riley-strain-191517139.html)
 <!-- feed end -->
 
 ### Onstream
