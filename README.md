@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Dutch police arrest suspect in Spanish politician's shooting](https://www.yahoo.com/news/dutch-police-arrest-suspect-spanish-161348950.html)
-- Jun 19 - [Connected vehicle technologies market in APAC poised to grow at 4% CAGR during 2023-2028](https://finance.yahoo.com/news/connected-vehicle-technologies-market-apac-160241350.html)
-- Jun 19 - [Disney told L.A. residents to move to Florida for a planned campus. They did, it was canceled and now they're suing](https://finance.yahoo.com/news/disney-employees-sue-company-over-153413141.html)
+- Jun 19 - [Head of Lebanon's Hezbollah threatens Israel, Cyprus in televised address](https://www.yahoo.com/news/head-lebanons-hezbollah-threatens-israel-155858809.html)
+- Jun 19 - [75-year-old Cache County woman facing 18 child sex abuse charges over last 30 years](https://www.yahoo.com/news/75-old-cache-county-woman-150519162.html)
+- Jun 19 - [Dell, Super Micro providing server racks for xAI's supercomputer](https://www.yahoo.com/tech/dell-assembling-racks-xais-supercomputer-144701934.html)
 - Jun 19 - [The Supreme Court’s approach on ‘history and tradition’ is irking Amy Coney Barrett](https://www.yahoo.com/news/supreme-court-approach-history-tradition-141513038.html)
-- Jun 19 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 19 - [Former CIA analyst: North Korea’s Kim doesn’t look ‘healthy’](https://www.yahoo.com/news/former-cia-analyst-north-korea-132647614.html)
 <!-- feed end -->
 
 ### Onstream
