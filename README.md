@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Passenger gets banned from flight for using viral packing trick](https://www.yahoo.com/lifestyle/passenger-gets-banned-flight-using-142458145.html)
+- Jun 19 - [In Ukraine, ‘We Know Why We Fight’](https://www.yahoo.com/news/ukraine-know-why-fight-064500052.html)
 - Jun 19 - [Poisoned trees gave a wealthy couple in Maine a killer ocean view. Residents wonder, at what cost?](https://www.yahoo.com/news/poisoned-trees-gave-wealthy-couple-043241687.html)
+- Jun 19 - [Chinese automakers seek retaliatory tariffs on EU cars, state media reports](https://finance.yahoo.com/news/chinese-automakers-seek-retaliatory-tariffs-042706409.html)
 - Jun 19 - [Baby moose trapped in a lake is saved by Alaska man and police as its worried mom watches](https://www.yahoo.com/news/baby-moose-trapped-lake-saved-040817519.html)
-- Jun 18 - [Texas woman convicted of hate crimes for 2022 racist assault on Asian American women](https://www.yahoo.com/news/texas-woman-convicted-hate-crimes-235116195.html)
 - Jun 18 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
 <!-- feed end -->
 
