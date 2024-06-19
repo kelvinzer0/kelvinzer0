@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [Dutch police arrest suspect in Spanish politician's shooting](https://www.yahoo.com/news/dutch-police-arrest-suspect-spanish-161348950.html)
+- Jun 19 - [Connected vehicle technologies market in APAC poised to grow at 4% CAGR during 2023-2028](https://finance.yahoo.com/news/connected-vehicle-technologies-market-apac-160241350.html)
+- Jun 19 - [Disney told L.A. residents to move to Florida for a planned campus. They did, it was canceled and now they're suing](https://finance.yahoo.com/news/disney-employees-sue-company-over-153413141.html)
+- Jun 19 - [The Supreme Court’s approach on ‘history and tradition’ is irking Amy Coney Barrett](https://www.yahoo.com/news/supreme-court-approach-history-tradition-141513038.html)
 - Jun 19 - [Israel warns of prospect of ‘all-out war’ after Hezbollah publishes video of military, civilian sites](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
-- Jun 19 - [What's happening to the Red Lobsters in Appleton and Ashwaubenon following company's bankruptcy | The Buzz](https://finance.yahoo.com/news/whats-happening-red-lobsters-appleton-100547595.html)
-- Jun 19 - [Ukraine’s new ‘Frankenstein’ tank will put the fear of God into Putin](https://www.yahoo.com/news/ukraine-frankenstein-tank-put-fear-094700916.html)
-- Jun 19 - [How did North Korean soldiers wander across the world's most heavily guarded border?](https://www.yahoo.com/news/did-north-korean-soldiers-wander-084953911.html)
-- Jun 19 - [Trump's Attempt To Mock Biden's Cognition Backfires When He Gets The Term Wrong](https://www.yahoo.com/news/trumps-attempt-mock-bidens-cognition-083346407.html)
 <!-- feed end -->
 
 ### Onstream
