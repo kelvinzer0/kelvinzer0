@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [5 arrested, more than 70 cited, several vehicles impounded during ‘Operation Decelerate’ in Jacksonville](https://www.yahoo.com/news/jacksonville-sheriff-office-announce-results-143435158.html)
-- Jun 19 - [Employees Who Joined Nvidia 5 Years Ago Now Millionaires And Coasting In 'Semi-Retirement'](https://finance.yahoo.com/news/employees-joined-nvidia-5-years-160012281.html)
-- Jun 19 - [Head of Lebanon's Hezbollah threatens Israel, Cyprus in televised address](https://www.yahoo.com/news/head-lebanons-hezbollah-threatens-israel-155858809.html)
-- Jun 19 - [Russia's Putin praises Vietnam for its stance on Ukraine](https://www.yahoo.com/news/russias-putin-praises-vietnam-stance-153547874.html)
+- Jun 19 - [Pornhub to leave five more states over age-verification laws](https://www.yahoo.com/news/pornhub-to-leave-five-more-states-over-age-verification-laws-194906657.html)
+- Jun 19 - [Hezbollah leader threatens Cyprus as tensions with Israel ramp up](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 19 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
+- Jun 19 - [Head of Lebanon's Hezbollah threatens Israel and Cyprus](https://www.yahoo.com/news/head-lebanons-hezbollah-threatens-israel-155858809.html)
 - Jun 19 - [9 Things the Middle Class Stopped Doing When They Became Wealthy](https://finance.yahoo.com/news/9-things-middle-class-stopped-150008262.html)
 <!-- feed end -->
 
