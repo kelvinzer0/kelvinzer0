@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [Nasa rover finds mysterious never-seen-before light-toned boulder on Mars](https://www.yahoo.com/news/nasa-rover-finds-mysterious-never-053449488.html)
 - Jun 19 - [Poisoned trees gave a wealthy couple in Maine a killer ocean view. Residents wonder, at what cost?](https://www.yahoo.com/news/poisoned-trees-gave-wealthy-couple-043241687.html)
-- Jun 19 - [Senators grill Boeing CEO about salary and safety record](https://www.yahoo.com/news/senators-grill-boeing-ceo-salary-042249568.html)
 - Jun 19 - [Baby moose trapped in a lake is saved by Alaska man and police as its worried mom watches](https://www.yahoo.com/news/baby-moose-trapped-lake-saved-040817519.html)
-- Jun 19 - [In South China Sea dispute, Philippines' bolder hand tests Beijing](https://www.yahoo.com/news/south-china-sea-dispute-philippines-021114323.html)
-- Jun 18 - [A Missouri college student went missing in Nashville. Police now know what killed him](https://www.yahoo.com/news/missouri-college-student-riley-strain-191517139.html)
+- Jun 18 - [Attorneys for Baltimore seek to keep crew members from bridge collapse ship from returning home](https://www.yahoo.com/news/attorneys-baltimore-seek-keep-crew-235516993.html)
+- Jun 18 - [US pushing Netherlands, Japan to restrict more chipmaking equipment to China, source says](https://finance.yahoo.com/news/us-pushing-netherlands-japan-restrict-215531348.html)
 <!-- feed end -->
 
 ### Onstream
