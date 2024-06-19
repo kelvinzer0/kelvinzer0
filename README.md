@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [5 arrested, more than 70 cited, several vehicles impounded during ‘Operation Decelerate’ in Jacksonville](https://www.yahoo.com/news/jacksonville-sheriff-office-announce-results-143435158.html)
+- Jun 19 - [Employees Who Joined Nvidia 5 Years Ago Now Millionaires And Coasting In 'Semi-Retirement'](https://finance.yahoo.com/news/employees-joined-nvidia-5-years-160012281.html)
 - Jun 19 - [Head of Lebanon's Hezbollah threatens Israel, Cyprus in televised address](https://www.yahoo.com/news/head-lebanons-hezbollah-threatens-israel-155858809.html)
-- Jun 19 - [75-year-old Cache County woman facing 18 child sex abuse charges over last 30 years](https://www.yahoo.com/news/75-old-cache-county-woman-150519162.html)
-- Jun 19 - [Dell, Super Micro providing server racks for xAI's supercomputer](https://www.yahoo.com/tech/dell-assembling-racks-xais-supercomputer-144701934.html)
-- Jun 19 - [The Supreme Court’s approach on ‘history and tradition’ is irking Amy Coney Barrett](https://www.yahoo.com/news/supreme-court-approach-history-tradition-141513038.html)
-- Jun 19 - [Former CIA analyst: North Korea’s Kim doesn’t look ‘healthy’](https://www.yahoo.com/news/former-cia-analyst-north-korea-132647614.html)
+- Jun 19 - [Russia's Putin praises Vietnam for its stance on Ukraine](https://www.yahoo.com/news/russias-putin-praises-vietnam-stance-153547874.html)
+- Jun 19 - [9 Things the Middle Class Stopped Doing When They Became Wealthy](https://finance.yahoo.com/news/9-things-middle-class-stopped-150008262.html)
 <!-- feed end -->
 
 ### Onstream
