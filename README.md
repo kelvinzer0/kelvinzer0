@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Confused Trump Forgets Names Again And Again And Again In Brutal Supercut Video](https://www.yahoo.com/entertainment/confused-trump-forgets-names-again-034640706.html)
+- Jun 20 - [North Korea says deal between Putin and Kim requires immediate military assistance in event of war](https://www.yahoo.com/news/north-korea-says-deal-between-014918001.html)
 - Jun 20 - [Family in Southern California shaken after burglary crew ransacks home](https://www.yahoo.com/news/family-southern-california-shaken-burglary-005115170.html)
 - Jun 20 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
 - Jun 19 - [Wife of Toronto gunman says two victims allegedly defrauded family of life savings](https://www.yahoo.com/news/wife-toronto-gunman-says-two-222239036.html)
-- Jun 19 - [The Supreme Court’s approach on ‘history and tradition’ is irking Amy Coney Barrett](https://www.yahoo.com/news/supreme-court-approach-history-tradition-141513038.html)
-- Jun 19 - [Vehicles Scorched in New Mexico as Deadly Wildfires Continue](https://www.yahoo.com/news/vehicles-scorched-mexico-deadly-wildfires-214126664.html)
 <!-- feed end -->
 
 ### Onstream
