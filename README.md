@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [These Milwaukee college students helped fix an issue on campus — and say others can, too](https://www.yahoo.com/news/milwaukee-college-students-helped-fix-100109127.html)
-- Jun 20 - [Forget Nvidia: Prominent Billionaires Are Selling It and Piling Into These 4 Artificial Intelligence (AI) Stocks Instead](https://finance.yahoo.com/news/forget-nvidia-prominent-billionaires-selling-090600908.html)
-- Jun 20 - [India shuns China's calls to resume passenger flights after 4 years, officials say](https://www.yahoo.com/news/india-shuns-chinas-calls-resume-080402457.html)
-- Jun 20 - [Welcome to Rochester, a place of strange names and confounding contradictions](https://www.yahoo.com/lifestyle/welcome-rochester-place-strange-names-070053480.html)
-- Jun 20 - [Raped by Russian soldiers, Ukraine women speak out to erase stigma](https://www.yahoo.com/news/raped-russian-soldiers-ukraine-women-065707644.html)
+- Jun 20 - [Ukraine got the go-ahead to hit Russia with F-16s, but doing so could be a waste of a good jet](https://www.yahoo.com/news/ukraine-got-ahead-hit-russia-114101743.html)
+- Jun 20 - [‘Of course I’m concerned:’ Billionaire speaking against Trump expects retaliation](https://finance.yahoo.com/video/course-m-concerned-billionaire-speaking-110021262.html)
+- Jun 20 - [Choosing to go micro: More NC communities offer transit that’s more like Uber](https://www.yahoo.com/news/choosing-micro-more-nc-communities-110000718.html)
+- Jun 20 - [Putin, Kim bond over dogs, horses and driving](https://www.yahoo.com/news/putin-kim-bond-over-dogs-103139758.html)
+- Jun 20 - [Nvidia’s surge reveals a pitfall of passive investing: Morning Brief](https://finance.yahoo.com/news/nvidias-surge-reveals-a-pitfall-of-passive-investing-morning-brief-100128356.html)
 <!-- feed end -->
 
 ### Onstream
