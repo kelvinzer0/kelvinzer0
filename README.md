@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jun 20 - [North Korea says deal between Putin and Kim requires immediate military assistance in event of war](https://www.yahoo.com/news/north-korea-says-deal-between-014918001.html)
 - Jun 20 - [Family in Southern California shaken after burglary crew ransacks home](https://www.yahoo.com/news/family-southern-california-shaken-burglary-005115170.html)
 - Jun 20 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
-- Jun 19 - [Wife of Toronto gunman says two victims allegedly defrauded family of life savings](https://www.yahoo.com/news/wife-toronto-gunman-says-two-222239036.html)
+- Jun 19 - [Hezbollah leader threatens Cyprus as tensions with Israel ramp up](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
 <!-- feed end -->
 
 ### Onstream
