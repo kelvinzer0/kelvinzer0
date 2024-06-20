@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [As Nvidia, Apple Grab Headlines, This Mag 7 Lays Down AI 'Bedrock'](https://www.investors.com/research/ibd-stock-analysis/amazon-stock-ai-bedrock-aws/?src=A00220&yptr=yahoo)
-- Jun 20 - [“We should all pay attention": Experts identify the "most chilling" part of secret Roger Stone tape](https://www.yahoo.com/news/pay-attention-experts-identify-most-143612891.html)
+- Jun 20 - [Citizens insurance hike reveals Florida's needless cruelty to those in need | Commentary](https://www.yahoo.com/news/citizens-insurance-hike-reveals-floridas-144316824.html)
+- Jun 20 - [The Supreme Court upholds the conviction of woman who challenged expert testimony in a drug case](https://www.yahoo.com/news/supreme-court-upholds-conviction-woman-143234979.html)
+- Jun 20 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
 - Jun 20 - [McDonald’s releases a new $5 value meal to combat inflation](https://finance.yahoo.com/news/mcdonald-releases-5-value-meal-122812646.html)
-- Jun 20 - [Dave Ramsey gives reality check to Seattle man who follows FIRE Movement and has 3 jobs, $2M net worth and no life](https://finance.yahoo.com/news/dave-ramsey-gives-reality-check-111300701.html)
 - Jun 20 - [Putin, Kim bond over dogs, horses and driving](https://www.yahoo.com/news/putin-kim-bond-over-dogs-103139758.html)
 <!-- feed end -->
 
