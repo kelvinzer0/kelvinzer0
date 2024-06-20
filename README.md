@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [‘Pretty heroic.’ Lifeguards rescue drowning teen. Pasco pool is shut down](https://www.yahoo.com/news/pretty-heroic-lifeguards-rescue-drowning-190857601.html)
-- Jun 20 - [Motorcyclist has life-threatening injuries after delivery truck turned in front of him](https://www.yahoo.com/news/motorcyclist-life-threatening-injuries-delivery-184715263.html)
+- Jun 20 - [Firestorm erupts over requiring women to sign up for military draft](https://www.yahoo.com/news/firestorm-erupts-over-requiring-women-200500398.html)
+- Jun 20 - [Metro Atlanta judge arrested at Buckhead bar after hitting officer, report says](https://www.yahoo.com/news/metro-atlanta-judge-arrested-buckhead-154705358.html)
+- Jun 20 - [Woman’s Legs Mysteriously Go Numb During Hike. She Thought It Was a Bite, But Here’s What Really Happened](https://www.yahoo.com/news/woman-legs-mysteriously-during-hike-193915494.html)
 - Jun 20 - [PCB Chief of Police J.R. Talamantez placed on leave due to ongoing investigation](https://www.yahoo.com/news/pcb-chief-police-j-r-181513420.html)
-- Jun 20 - [Low-flying commercial jet skims Oklahoma City suburb, startling residents](https://www.yahoo.com/news/low-flying-commercial-jet-skims-171435988.html)
-- Jun 20 - [Putin says South Korea would be making 'a big mistake' if it supplies arms to Ukraine](https://www.yahoo.com/news/putin-says-south-korea-making-165406967.html)
+- Jun 20 - [Supreme Court Sends Out an Ominous Sign](https://www.yahoo.com/news/supreme-court-sends-ominous-sign-165442624.html)
 <!-- feed end -->
 
 ### Onstream
