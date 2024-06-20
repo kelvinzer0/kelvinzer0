@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Citizens insurance hike reveals Florida's needless cruelty to those in need | Commentary](https://www.yahoo.com/news/citizens-insurance-hike-reveals-floridas-144316824.html)
-- Jun 20 - [The Supreme Court upholds the conviction of woman who challenged expert testimony in a drug case](https://www.yahoo.com/news/supreme-court-upholds-conviction-woman-143234979.html)
+- Jun 20 - [American Airlines CEO says the removal of several Black passengers from a flight was 'unacceptable'](https://www.yahoo.com/news/american-airlines-ceo-says-removal-162504120.html)
 - Jun 20 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
 - Jun 20 - [McDonald’s releases a new $5 value meal to combat inflation](https://finance.yahoo.com/news/mcdonald-releases-5-value-meal-122812646.html)
-- Jun 20 - [Putin, Kim bond over dogs, horses and driving](https://www.yahoo.com/news/putin-kim-bond-over-dogs-103139758.html)
+- Jun 20 - [Rap star Travis Scott was arrested in South Beach. There was a yacht incident, police say](https://www.yahoo.com/entertainment/rap-star-travis-scott-arrested-122810433.html)
+- Jun 20 - ['A sad day for downtown Springfield': Building damaged by fire will come down](https://www.yahoo.com/news/sad-day-downtown-springfield-building-114124145.html)
 <!-- feed end -->
 
 ### Onstream
