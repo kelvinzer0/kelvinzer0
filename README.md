@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Tropical storm Alberto moves inland in Mexico's coast after three fatalities](https://www.yahoo.com/news/tropical-storm-alberto-moves-inland-123110736.html)
+- Jun 20 - [Death of K9 killed in the line of duty mourned by Richland County Sheriff’s Department](https://www.yahoo.com/news/death-k9-killed-line-duty-131819345.html)
+- Jun 20 - [1 Stock to Buy With Ambitions of Becoming the Leading Artificial Intelligence (AI) Company in the World](https://finance.yahoo.com/news/1-stock-buy-ambitions-becoming-130500469.html)
+- Jun 20 - [Abu Dhabi’s Biggest Fund Hires Ex-JD Executive in China](https://finance.yahoo.com/news/abu-dhabi-biggest-fund-hires-094249824.html)
 - Jun 20 - [These 6 Affordable Cars Should Last Throughout Your Entire Retirement](https://finance.yahoo.com/news/6-affordable-cars-last-throughout-110140501.html)
-- Jun 20 - [Putin, Kim bond over dogs, horses and driving](https://www.yahoo.com/news/putin-kim-bond-over-dogs-103139758.html)
-- Jun 20 - [Nvidia’s surge reveals a pitfall of passive investing: Morning Brief](https://finance.yahoo.com/news/nvidias-surge-reveals-a-pitfall-of-passive-investing-morning-brief-100128356.html)
-- Jun 20 - [India shuns China's calls to resume passenger flights after 4 years, officials say](https://www.yahoo.com/news/india-shuns-chinas-calls-resume-080402457.html)
+- Jun 20 - [‘Only pirates do this’: Philippines accuses China of using bladed weapons in major South China Sea escalation](https://www.yahoo.com/news/only-pirates-philippines-accuses-china-055541972.html)
 <!-- feed end -->
 
 ### Onstream
