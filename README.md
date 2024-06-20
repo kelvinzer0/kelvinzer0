@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Minimum price mechanism for Ukrainian food exports to start in August, official says](https://www.yahoo.com/news/minimum-price-mechanism-ukrainian-food-073952318.html)
+- Jun 20 - [North Korea's Kim gives pair of dogs to Putin](https://www.yahoo.com/news/north-koreas-kim-gives-pair-064607750.html)
 - Jun 20 - [Russia obliterates front-line Ukraine towns by retrofitting bombs and expanding its air base network](https://www.yahoo.com/news/russia-obliterates-front-line-ukraine-061247201.html)
-- Jun 20 - [Confused Trump Forgets Names Again And Again And Again In Brutal Supercut Video](https://www.yahoo.com/entertainment/confused-trump-forgets-names-again-034640706.html)
-- Jun 20 - [Family in Southern California shaken after burglary crew ransacks home](https://www.yahoo.com/news/family-southern-california-shaken-burglary-005115170.html)
-- Jun 20 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
-- Jun 19 - [Hezbollah leader threatens Cyprus as tensions with Israel ramp up](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
+- Jun 20 - [Suicide of IDF soldier leaves Israel on the brink](https://www.yahoo.com/news/suicide-idf-soldier-leaves-israel-060600316.html)
+- Jun 20 - [Leaders gather in Paris to discuss boosting vaccine production in Africa](https://www.yahoo.com/news/leaders-gather-paris-discuss-boosting-054310348.html)
 <!-- feed end -->
 
 ### Onstream
