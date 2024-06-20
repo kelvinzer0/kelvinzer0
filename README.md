@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Family in Southern California shaken after burglary crew ransacks home](https://www.yahoo.com/news/family-southern-california-shaken-burglary-005115170.html)
 - Jun 20 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
-- Jun 19 - [Trump left red-faced in Virginia after MAGA candidate fails to grab decisive win](https://www.yahoo.com/news/trump-left-red-faced-virginia-203520886.html)
-- Jun 19 - [Blue Springs school board president resigns following recent allegations](https://www.yahoo.com/news/blue-springs-school-board-president-221849629.html)
-- Jun 19 - [New Orleans police investigate fatal crash on Interstate 610](https://www.yahoo.com/news/orleans-police-investigate-fatal-crash-202429162.html)
-- Jun 19 - [Pornhub to leave five more states over age-verification laws](https://www.yahoo.com/news/pornhub-to-leave-five-more-states-over-age-verification-laws-194906657.html)
+- Jun 19 - [Wife of Toronto gunman says two victims allegedly defrauded family of life savings](https://www.yahoo.com/news/wife-toronto-gunman-says-two-222239036.html)
+- Jun 19 - [The Supreme Court’s approach on ‘history and tradition’ is irking Amy Coney Barrett](https://www.yahoo.com/news/supreme-court-approach-history-tradition-141513038.html)
+- Jun 19 - [Vehicles Scorched in New Mexico as Deadly Wildfires Continue](https://www.yahoo.com/news/vehicles-scorched-mexico-deadly-wildfires-214126664.html)
 <!-- feed end -->
 
 ### Onstream
