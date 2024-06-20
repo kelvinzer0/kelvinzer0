@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Firestorm erupts over requiring women to sign up for military draft](https://www.yahoo.com/news/firestorm-erupts-over-requiring-women-200500398.html)
-- Jun 20 - [Metro Atlanta judge arrested at Buckhead bar after hitting officer, report says](https://www.yahoo.com/news/metro-atlanta-judge-arrested-buckhead-154705358.html)
+- Jun 20 - [Exxon-Hess arbitration panel incomplete, Hess sale to Chevron stalled](https://finance.yahoo.com/news/exxon-hess-arbitration-panel-incomplete-213718946.html)
+- Jun 20 - [Powerful storm transformed 'relatively flat' New Mexico village into 'large lake,' forecasters say](https://www.yahoo.com/news/powerful-storm-transformed-relatively-flat-211015940.html)
+- Jun 20 - [California sheriff's deputy died on duty from the effects of methamphetamine in an accident, authorities say](https://www.yahoo.com/news/california-sheriffs-deputy-died-duty-204236853.html)
+- Jun 20 - [The Putin-Kim summit produced an unusual — and speedy — flurry of glimpses into North Korea](https://www.yahoo.com/news/putin-kim-summit-produced-unusual-200614230.html)
 - Jun 20 - [Woman’s Legs Mysteriously Go Numb During Hike. She Thought It Was a Bite, But Here’s What Really Happened](https://www.yahoo.com/news/woman-legs-mysteriously-during-hike-193915494.html)
-- Jun 20 - [PCB Chief of Police J.R. Talamantez placed on leave due to ongoing investigation](https://www.yahoo.com/news/pcb-chief-police-j-r-181513420.html)
-- Jun 20 - [Supreme Court Sends Out an Ominous Sign](https://www.yahoo.com/news/supreme-court-sends-ominous-sign-165442624.html)
 <!-- feed end -->
 
 ### Onstream
