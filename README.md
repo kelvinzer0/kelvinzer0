@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Supreme Court Sends Out an Ominous Sign](https://www.yahoo.com/news/supreme-court-sends-ominous-sign-165442624.html)
+- Jun 20 - [‘Pretty heroic.’ Lifeguards rescue drowning teen. Pasco pool is shut down](https://www.yahoo.com/news/pretty-heroic-lifeguards-rescue-drowning-190857601.html)
+- Jun 20 - [Motorcyclist has life-threatening injuries after delivery truck turned in front of him](https://www.yahoo.com/news/motorcyclist-life-threatening-injuries-delivery-184715263.html)
+- Jun 20 - [PCB Chief of Police J.R. Talamantez placed on leave due to ongoing investigation](https://www.yahoo.com/news/pcb-chief-police-j-r-181513420.html)
+- Jun 20 - [Low-flying commercial jet skims Oklahoma City suburb, startling residents](https://www.yahoo.com/news/low-flying-commercial-jet-skims-171435988.html)
 - Jun 20 - [Putin says South Korea would be making 'a big mistake' if it supplies arms to Ukraine](https://www.yahoo.com/news/putin-says-south-korea-making-165406967.html)
-- Jun 20 - [American Airlines CEO says the removal of several Black passengers from a flight was 'unacceptable'](https://www.yahoo.com/news/american-airlines-ceo-says-removal-162504120.html)
-- Jun 20 - [Trump Flips Out Over Devastating Fox News Poll](https://www.yahoo.com/news/trump-flips-over-devastating-fox-155124297.html)
-- Jun 20 - [LIVE UPDATES: Search for armed suspect in Oklahoma killings ends, suspect in police custody](https://www.yahoo.com/news/live-updates-morrilton-manhunt-armed-145005998.html)
 <!-- feed end -->
 
 ### Onstream
