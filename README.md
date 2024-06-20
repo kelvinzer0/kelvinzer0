@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Russia obliterates front-line Ukraine towns by retrofitting bombs and expanding its air base network](https://www.yahoo.com/news/russia-obliterates-front-line-ukraine-061247201.html)
 - Jun 20 - [Confused Trump Forgets Names Again And Again And Again In Brutal Supercut Video](https://www.yahoo.com/entertainment/confused-trump-forgets-names-again-034640706.html)
-- Jun 20 - [North Korea says deal between Putin and Kim requires immediate military assistance in event of war](https://www.yahoo.com/news/north-korea-says-deal-between-014918001.html)
 - Jun 20 - [Family in Southern California shaken after burglary crew ransacks home](https://www.yahoo.com/news/family-southern-california-shaken-burglary-005115170.html)
 - Jun 20 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
 - Jun 19 - [Hezbollah leader threatens Cyprus as tensions with Israel ramp up](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
