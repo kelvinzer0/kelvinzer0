@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Exxon-Hess arbitration panel incomplete, Hess sale to Chevron stalled](https://finance.yahoo.com/news/exxon-hess-arbitration-panel-incomplete-213718946.html)
-- Jun 20 - [Powerful storm transformed 'relatively flat' New Mexico village into 'large lake,' forecasters say](https://www.yahoo.com/news/powerful-storm-transformed-relatively-flat-211015940.html)
 - Jun 20 - [California sheriff's deputy died on duty from the effects of methamphetamine in an accident, authorities say](https://www.yahoo.com/news/california-sheriffs-deputy-died-duty-204236853.html)
-- Jun 20 - [The Putin-Kim summit produced an unusual — and speedy — flurry of glimpses into North Korea](https://www.yahoo.com/news/putin-kim-summit-produced-unusual-200614230.html)
+- Jun 20 - [Boeing temporarily shifts some engineers to help focus on commercial planes](https://finance.yahoo.com/news/boeing-shifting-engineers-help-focus-194927435.html)
 - Jun 20 - [Woman’s Legs Mysteriously Go Numb During Hike. She Thought It Was a Bite, But Here’s What Really Happened](https://www.yahoo.com/news/woman-legs-mysteriously-during-hike-193915494.html)
+- Jun 20 - [Why Olive Garden doesn’t want to give discounts](https://finance.yahoo.com/news/why-olive-garden-doesn-t-190716469.html)
+- Jun 20 - [Bombshell Report on Judge Cannon Uncovers More Bias in Trump Case](https://www.yahoo.com/news/bombshell-report-judge-cannon-uncovers-185356350.html)
 <!-- feed end -->
 
 ### Onstream
