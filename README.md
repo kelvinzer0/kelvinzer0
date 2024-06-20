@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Fiery, three-car wreck on I-5 Thursday morning leaves several injured. WSP investigating](https://www.yahoo.com/news/fiery-three-car-wreck-5-175334678.html)
+- Jun 20 - [Putin says South Korea would be making 'a big mistake' if it supplies arms to Ukraine](https://www.yahoo.com/news/putin-says-south-korea-making-165406967.html)
+- Jun 20 - [A US veteran died at a nursing home, abandoned. Hundreds of strangers came to say goodbye](https://www.yahoo.com/news/us-veteran-died-nursing-home-164442394.html)
 - Jun 20 - [American Airlines CEO says the removal of several Black passengers from a flight was 'unacceptable'](https://www.yahoo.com/news/american-airlines-ceo-says-removal-162504120.html)
-- Jun 20 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
-- Jun 20 - [McDonald’s releases a new $5 value meal to combat inflation](https://finance.yahoo.com/news/mcdonald-releases-5-value-meal-122812646.html)
-- Jun 20 - [Rap star Travis Scott was arrested in South Beach. There was a yacht incident, police say](https://www.yahoo.com/entertainment/rap-star-travis-scott-arrested-122810433.html)
-- Jun 20 - ['A sad day for downtown Springfield': Building damaged by fire will come down](https://www.yahoo.com/news/sad-day-downtown-springfield-building-114124145.html)
+- Jun 20 - [South L.A. deputy died from 'effects of methamphetamine,' medical examiner finds](https://www.yahoo.com/news/south-l-deputy-died-effects-155707991.html)
 <!-- feed end -->
 
 ### Onstream
