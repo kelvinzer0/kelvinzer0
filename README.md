@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 20 - [Hezbollah leader threatens Cyprus as tensions with Israel ramp up](https://www.yahoo.com/news/israel-warns-prospect-war-hezbollah-222948944.html)
-- Jun 20 - [Raped by Russian soldiers, Ukraine women speak out to erase stigma](https://www.yahoo.com/news/raped-russian-soldiers-ukraine-women-065707644.html)
+- Jun 20 - [Welcome to Rochester, a place of strange names and confounding contradictions](https://www.yahoo.com/lifestyle/welcome-rochester-place-strange-names-070053480.html)
 - Jun 20 - [North Korea's Kim gives pair of dogs to Putin](https://www.yahoo.com/news/north-koreas-kim-gives-pair-064607750.html)
 - Jun 20 - [Russia obliterates front-line Ukraine towns by retrofitting bombs and expanding its air base network](https://www.yahoo.com/news/russia-obliterates-front-line-ukraine-061247201.html)
 - Jun 20 - [Confused Trump Forgets Names Again And Again And Again In Brutal Supercut Video](https://www.yahoo.com/entertainment/confused-trump-forgets-names-again-034640706.html)
