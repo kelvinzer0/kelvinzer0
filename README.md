@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Fiery, three-car wreck on I-5 Thursday morning leaves several injured. WSP investigating](https://www.yahoo.com/news/fiery-three-car-wreck-5-175334678.html)
+- Jun 20 - [Supreme Court Sends Out an Ominous Sign](https://www.yahoo.com/news/supreme-court-sends-ominous-sign-165442624.html)
 - Jun 20 - [Putin says South Korea would be making 'a big mistake' if it supplies arms to Ukraine](https://www.yahoo.com/news/putin-says-south-korea-making-165406967.html)
-- Jun 20 - [A US veteran died at a nursing home, abandoned. Hundreds of strangers came to say goodbye](https://www.yahoo.com/news/us-veteran-died-nursing-home-164442394.html)
 - Jun 20 - [American Airlines CEO says the removal of several Black passengers from a flight was 'unacceptable'](https://www.yahoo.com/news/american-airlines-ceo-says-removal-162504120.html)
-- Jun 20 - [South L.A. deputy died from 'effects of methamphetamine,' medical examiner finds](https://www.yahoo.com/news/south-l-deputy-died-effects-155707991.html)
+- Jun 20 - [Trump Flips Out Over Devastating Fox News Poll](https://www.yahoo.com/news/trump-flips-over-devastating-fox-155124297.html)
+- Jun 20 - [LIVE UPDATES: Search for armed suspect in Oklahoma killings ends, suspect in police custody](https://www.yahoo.com/news/live-updates-morrilton-manhunt-armed-145005998.html)
 <!-- feed end -->
 
 ### Onstream
