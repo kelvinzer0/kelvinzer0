@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [The Supreme Court’s approach on ‘history and tradition’ is irking Amy Coney Barrett](https://www.yahoo.com/news/supreme-court-approach-history-tradition-141513038.html)
-- Jun 19 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
+- Jun 20 - [Two astronauts wait to come home as Boeing races to understand spacecraft issues. Here’s what’s at stake](https://www.yahoo.com/news/two-astronauts-wait-come-home-190005153.html)
+- Jun 19 - [Vehicles Scorched in New Mexico as Deadly Wildfires Continue](https://www.yahoo.com/news/vehicles-scorched-mexico-deadly-wildfires-214126664.html)
 - Jun 19 - [Trump Loses It At Fox News, Says No One Can Trust It](https://www.yahoo.com/news/trump-loses-fox-news-says-210928095.html)
 - Jun 19 - [Pornhub to leave five more states over age-verification laws](https://www.yahoo.com/news/pornhub-to-leave-five-more-states-over-age-verification-laws-194906657.html)
-- Jun 19 - [Former OpenAI chief scientist to start a new AI company](https://finance.yahoo.com/news/former-openai-chief-scientist-start-185054630.html)
+- Jun 19 - [Popular Cape Cod beach town announces restrictions for Fourth of July amid spike in unruly behavior](https://www.yahoo.com/news/popular-cape-cod-beach-town-190113058.html)
 <!-- feed end -->
 
 ### Onstream
