@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [California sheriff's deputy died on duty from the effects of methamphetamine in an accident, authorities say](https://www.yahoo.com/news/california-sheriffs-deputy-died-duty-204236853.html)
-- Jun 20 - [Boeing temporarily shifts some engineers to help focus on commercial planes](https://finance.yahoo.com/news/boeing-shifting-engineers-help-focus-194927435.html)
-- Jun 20 - [Woman’s Legs Mysteriously Go Numb During Hike. She Thought It Was a Bite, But Here’s What Really Happened](https://www.yahoo.com/news/woman-legs-mysteriously-during-hike-193915494.html)
-- Jun 20 - [Why Olive Garden doesn’t want to give discounts](https://finance.yahoo.com/news/why-olive-garden-doesn-t-190716469.html)
-- Jun 20 - [Bombshell Report on Judge Cannon Uncovers More Bias in Trump Case](https://www.yahoo.com/news/bombshell-report-judge-cannon-uncovers-185356350.html)
+- Jun 21 - [Oil prices slip as rate hike worries come into focus](https://finance.yahoo.com/news/oil-prices-slip-rate-hike-004052889.html)
+- Jun 21 - [Duval County named eviction filing capital of Florida according to new UNF study](https://www.yahoo.com/news/duval-county-named-eviction-filing-000544517.html)
+- Jun 20 - [I lost 42 pounds with Ozempic, but was shaken by the drug's psychological toll](https://www.yahoo.com/lifestyle/lost-42-pounds-ozempic-shaken-235814498.html)
+- Jun 20 - [Judge to weigh removing Jack Smith in Trump classified documents case](https://www.yahoo.com/news/judge-weigh-removing-jack-smith-225752205.html)
+- Jun 20 - [Trump says foreigners who graduate from US colleges should get green cards](https://www.yahoo.com/news/trump-says-foreign-college-graduates-222429964.html)
 <!-- feed end -->
 
 ### Onstream
