@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [China, Australia to issue five-year visas to citizens for tourism, business](https://www.yahoo.com/news/china-australia-issue-five-visas-103051587.html)
-- Jun 21 - [Middle Tennessee chief to retire after hundreds of cases, 46 years in law enforcement](https://www.yahoo.com/news/middle-tennessee-chief-retire-hundreds-100100304.html)
+- Jun 21 - [Russia tells US: we need to talk, but Ukraine must be on agenda](https://www.yahoo.com/news/russia-tells-us-talk-ukraine-112657181.html)
 - Jun 21 - [Prankster Coaxes CNN-Hating Donald Trump Fan Into Making Hilariously Awkward Admission](https://www.yahoo.com/entertainment/prankster-coaxes-cnn-hating-donald-091712872.html)
-- Jun 21 - [Nikki Haley is the clear choice for Trump's VP pick. So I'm sure he'll go full MAGA.](https://www.yahoo.com/news/nikki-haley-clear-choice-trumps-080415487.html)
+- Jun 21 - [A Carmel swimmer's deadly crash, the dog who saved his mom from grief at U.S. Swim Trials](https://sports.yahoo.com/carmel-swimmers-deadly-crash-dog-090905831.html)
 - Jun 21 - [So THAT'S Why Mosquitoes Bite Some People More Than Others](https://www.yahoo.com/lifestyle/thats-why-mosquitoes-bite-people-034601636.html)
+- Jun 21 - [Japan has no right to meddle in China-Philippines maritime issues, says Chinese embassy in Japan](https://www.yahoo.com/news/japan-no-meddle-china-philippines-003326898.html)
 <!-- feed end -->
 
 ### Onstream
