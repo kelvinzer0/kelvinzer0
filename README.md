@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [How AI is transforming small businesses: Intuit CFO](https://finance.yahoo.com/video/ai-transforming-small-businesses-intuit-164546792.html)
+- Jun 21 - [UK's richest family get jail terms for exploiting staff at Swiss villa](https://www.yahoo.com/news/uks-richest-family-jail-terms-172351291.html)
+- Jun 21 - [Shiny monolith removed from mountains outside Las Vegas. How it got there still is a mystery](https://www.yahoo.com/news/shiny-monolith-removed-mountains-outside-170306950.html)
 - Jun 21 - [Video appears to capture the first use of Russia's monstrous 6,600-pound glide bomb in Ukraine and the immense destruction it causes](https://www.yahoo.com/news/video-appears-capture-first-russias-160613863.html)
 - Jun 21 - ["After I lost the election": Legal expert says new Trump recording could be "admissible evidence"](https://www.yahoo.com/news/lost-election-legal-expert-says-152120847.html)
-- Jun 21 - [Death toll from India tainted liquor tragedy rises](https://www.yahoo.com/news/death-toll-india-tainted-liquor-145622192.html)
-- Jun 21 - [Newly released video raises questions about Saudi Arabia's connection to 9/11 attacks](https://www.yahoo.com/news/newly-released-video-raises-questions-142307621.html)
+- Jun 21 - [American arrested in Turks and Caicos over ammo in bag is sentenced](https://www.yahoo.com/news/american-arrested-turks-caicos-over-145711075.html)
 <!-- feed end -->
 
 ### Onstream
