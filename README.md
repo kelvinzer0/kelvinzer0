@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [Labour plans fines for sewage spills that water firms ‘can’t afford to ignore’](https://www.yahoo.com/news/labour-plans-fines-sewage-spills-214012900.html)
+- Jun 21 - [Letters: Michael Gove is wrong about why voters lost faith in the Conservatives](https://www.yahoo.com/news/letters-michael-gove-wrong-why-213000202.html)
 - Jun 21 - [Obesity drug used in Mounjaro and Zepbound may help treat dangerous sleep apnea](https://www.yahoo.com/news/obesity-drug-used-mounjaro-zepbound-195428951.html)
-- Jun 21 - [‘My body can’t take it’: Brutal nighttime temperatures give Delhi residents little respite from India’s searing heatwave](https://www.yahoo.com/news/body-t-brutal-nighttime-temperatures-065251858.html)
-- Jun 21 - [Who is Shivon Zilis? Meet the Neuralink exec and AI expert who reportedly had a third child with Elon Musk](https://autos.yahoo.com/shivon-zilis-meet-neuralink-exec-195219749.html)
 - Jun 21 - [UK's richest family get jail terms for exploiting staff at Swiss villa](https://www.yahoo.com/news/uks-richest-family-jail-terms-172351291.html)
-- Jun 21 - [Police searching for Cow Head woman connected to missing Stephenville inmate](https://www.yahoo.com/news/police-searching-cow-head-woman-175002480.html)
+- Jun 21 - [More than half a million portable device chargers sold at Costco recalled after two homes catch fire](https://www.yahoo.com/news/more-half-million-portable-device-190358182.html)
 <!-- feed end -->
 
 ### Onstream
