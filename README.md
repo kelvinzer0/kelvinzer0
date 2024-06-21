@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 21 - [Looks like Elon Musk just added Melinda French Gates to his list of billionaires' ex-wives who 'might be the downfall of Western civilization'](https://www.yahoo.com/tech/looks-elon-musk-just-added-034406940.html)
-- Jun 20 - [MultCo Chair defends decisions made in closed-door meetings for revised Measure 110](https://www.yahoo.com/news/multco-chair-defends-decisions-made-235533188.html)
-- Jun 20 - [The Putin-Kim summit produced an unusual — and speedy — flurry of glimpses into North Korea](https://www.yahoo.com/news/putin-kim-summit-produced-unusual-200614230.html)
-- Jun 20 - [Metro Atlanta judge arrested at Buckhead bar after hitting officer, report says](https://www.yahoo.com/news/metro-atlanta-judge-arrested-buckhead-154705358.html)
-- Jun 20 - [Connecticut woman contracts deadly flesh-eating infection spreading at rapid levels in Japan](https://www.yahoo.com/news/connecticut-woman-contracts-deadly-flesh-191632136.html)
+- Jun 21 - [Trump says he wants foreign nationals who graduate from US colleges to ‘automatically’ receive green cards](https://www.yahoo.com/news/trump-says-wants-foreign-nationals-031421157.html)
+- Jun 20 - [Judge to weigh removing Jack Smith in Trump classified documents case](https://www.yahoo.com/news/judge-weigh-removing-jack-smith-225752205.html)
+- Jun 20 - [Exclusive-Boeing nearing deal with supplier Spirit Aero after months of talks, sources say](https://finance.yahoo.com/news/exclusive-boeing-nearing-deal-supplier-211833576.html)
+- Jun 20 - [California sheriff's deputy died on duty from the effects of methamphetamine in an accident, authorities say](https://www.yahoo.com/news/california-sheriffs-deputy-died-duty-204236853.html)
 <!-- feed end -->
 
 ### Onstream
