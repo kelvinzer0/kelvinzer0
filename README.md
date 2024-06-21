@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Many cockroaches at multiple food facilities: See latest Stanislaus County inspections](https://www.yahoo.com/news/many-cockroaches-multiple-food-facilities-130000787.html)
-- Jun 21 - [India's May oil imports: Russia at record high, Saudi lowest in 10-mth](https://finance.yahoo.com/news/indias-may-oil-imports-russia-124513835.html)
+- Jun 21 - [Ancient pig-like animal shows beginnings of mammalian brain evolution](https://www.yahoo.com/news/ancient-pig-animal-shows-beginnings-125914131.html)
+- Jun 21 - [Giving Slovak jets, air defence to Kyiv was sabotage, new government says](https://www.yahoo.com/news/giving-slovak-jets-air-defence-122555239.html)
+- Jun 21 - [Horry Police alters beach truck use after officer ran over beachgoer in Myrtle Beach area](https://www.yahoo.com/news/horry-police-alters-beach-truck-120037491.html)
 - Jun 21 - [Russia tells US: we need to talk, but Ukraine must be on agenda](https://www.yahoo.com/news/russia-tells-us-talk-ukraine-112657181.html)
-- Jun 21 - [This is What June’s Full Moon—the Strawberry Moon—Means for You](https://www.yahoo.com/lifestyle/june-full-moon-strawberry-moon-100600808.html)
-- Jun 21 - [Prankster Coaxes CNN-Hating Donald Trump Fan Into Making Hilariously Awkward Admission](https://www.yahoo.com/entertainment/prankster-coaxes-cnn-hating-donald-091712872.html)
+- Jun 21 - [The truth about Russia’s turtle tanks](https://www.yahoo.com/news/truth-russia-turtle-tanks-105258503.html)
 <!-- feed end -->
 
 ### Onstream
