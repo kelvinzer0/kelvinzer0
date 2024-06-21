@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Federal officials reintroduce apex predator decades after it was hunted to extinction: 'The odds are in their favor'](https://www.yahoo.com/news/federal-officials-reintroduce-apex-predator-004500011.html)
-- Jun 21 - [Japan has no right to meddle in China-Philippines maritime issues, says Chinese embassy in Japan](https://www.yahoo.com/news/japan-no-meddle-china-philippines-003326898.html)
-- Jun 20 - [4-year-old boy missing from Huntington Lake campground in Fresno County mountains](https://www.yahoo.com/news/4-old-boy-missing-huntington-231509095.html)
+- Jun 20 - [MultCo Chair defends decisions made in closed-door meetings for revised Measure 110](https://www.yahoo.com/news/multco-chair-defends-decisions-made-235533188.html)
 - Jun 20 - [Judge to weigh removing Jack Smith in Trump classified documents case](https://www.yahoo.com/news/judge-weigh-removing-jack-smith-225752205.html)
 - Jun 20 - [Trump says foreigners who graduate from US colleges should get green cards](https://www.yahoo.com/news/trump-says-foreign-college-graduates-222429964.html)
+- Jun 20 - [Exclusive-Boeing nearing deal with supplier Spirit Aero after months of talks, sources say](https://finance.yahoo.com/news/exclusive-boeing-nearing-deal-supplier-211833576.html)
+- Jun 20 - [The Putin-Kim summit produced an unusual — and speedy — flurry of glimpses into North Korea](https://www.yahoo.com/news/putin-kim-summit-produced-unusual-200614230.html)
 <!-- feed end -->
 
 ### Onstream
