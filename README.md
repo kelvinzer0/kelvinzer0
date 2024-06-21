@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Missouri Republican tells Black Americans to ‘kindly’ leave US if they don’t like country](https://www.yahoo.com/news/missouri-republican-tells-black-americans-164604273.html)
-- Jun 21 - [Fond du Lac teenagers lead county deputy on high-speed pursuit; passenger cited for underage drinking](https://www.yahoo.com/news/fond-du-lac-teenagers-lead-142458812.html)
-- Jun 21 - ["This Is The First Time I’ve Actually Felt Genuinely Scared For This Country": 15 People Shared Their Honest, Raw Thoughts About "Project 2025" — Far Right Conservatives' Plan For The Future](https://www.yahoo.com/news/first-time-ve-actually-felt-140647860.html)
-- Jun 21 - [Taylor Swift fans welcomed to London with Eras-inspired Tube map](https://www.yahoo.com/news/taylor-swift-fans-welcomed-london-140551562.html)
-- Jun 21 - [July's Smoke in the Valley in Canisteo canceled. What we know](https://www.yahoo.com/news/julys-smoke-valley-canisteo-canceled-135305874.html)
+- Jun 21 - [Dave Ramsey’s Best Passive Income Ideas for 2024 — 15 ‘Steady, Profitable’ Ways To Build Wealth Fast](https://finance.yahoo.com/news/dave-ramsey-best-passive-income-160219417.html)
+- Jun 21 - [1 killed, 1 airlifted, 4 evaluated in crash involving tractor-trailers on I-485 in NE Charlotte](https://www.yahoo.com/news/developing-major-wreck-involving-overturned-114642250.html)
+- Jun 21 - [Russia tells US: we need to talk, but Ukraine must be on agenda](https://www.yahoo.com/news/russia-tells-us-talk-ukraine-112657181.html)
+- Jun 21 - [Nissan halts production at Changzhou plant as China woes persist](https://finance.yahoo.com/news/nissan-halts-production-changzhou-plant-102112946.html)
+- Jun 21 - [Intel Foundry Takes a Step Forward With Intel 3 Process](https://finance.yahoo.com/news/intel-foundry-takes-step-forward-094500977.html)
 <!-- feed end -->
 
 ### Onstream
