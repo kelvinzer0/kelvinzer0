@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [FOUND: Missing boy near Huntington Lake safe](https://www.yahoo.com/news/found-missing-boy-near-huntington-152226222.html)
-- Jun 21 - [Greece heatwave latest: New fire ‘every ten minutes’ amid hunt for arsonist and search for missing American](https://www.yahoo.com/news/greece-missing-tourists-latest-four-075336617.html)
-- Jun 21 - [Truck driver arrested after fatal crash on I-380](https://www.yahoo.com/news/380-offramp-closed-fatal-crash-123957776.html)
-- Jun 21 - [Giving Slovak jets, air defence to Kyiv was sabotage, new government says](https://www.yahoo.com/news/giving-slovak-jets-air-defence-122555239.html)
-- Jun 21 - [1 killed, 1 airlifted, 4 evaluated in crash involving tractor-trailers on I-485 in NE Charlotte](https://www.yahoo.com/news/developing-major-wreck-involving-overturned-114642250.html)
+- Jun 21 - [How AI is transforming small businesses: Intuit CFO](https://finance.yahoo.com/video/ai-transforming-small-businesses-intuit-164546792.html)
+- Jun 21 - [Video appears to capture the first use of Russia's monstrous 6,600-pound glide bomb in Ukraine and the immense destruction it causes](https://www.yahoo.com/news/video-appears-capture-first-russias-160613863.html)
+- Jun 21 - ["After I lost the election": Legal expert says new Trump recording could be "admissible evidence"](https://www.yahoo.com/news/lost-election-legal-expert-says-152120847.html)
+- Jun 21 - [Death toll from India tainted liquor tragedy rises](https://www.yahoo.com/news/death-toll-india-tainted-liquor-145622192.html)
+- Jun 21 - [Newly released video raises questions about Saudi Arabia's connection to 9/11 attacks](https://www.yahoo.com/news/newly-released-video-raises-questions-142307621.html)
 <!-- feed end -->
 
 ### Onstream
