@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Labour plans fines for sewage spills that water firms ‘can’t afford to ignore’](https://www.yahoo.com/news/labour-plans-fines-sewage-spills-214012900.html)
-- Jun 21 - [Letters: Michael Gove is wrong about why voters lost faith in the Conservatives](https://www.yahoo.com/news/letters-michael-gove-wrong-why-213000202.html)
+- Jun 21 - [Jay Slater missing – latest: Police in Tenerife refuse help of British cops in search for teenager](https://www.independent.co.uk/news/uk/home-news/jay-slater-missing-tenerife-phone-search-latest-update-b2566372.html)
+- Jun 21 - [Kyle Rittenhouse’s Family: We’re His Collateral Damage](https://www.yahoo.com/news/kyle-rittenhouse-family-publicly-throws-212008805.html)
 - Jun 21 - [Obesity drug used in Mounjaro and Zepbound may help treat dangerous sleep apnea](https://www.yahoo.com/news/obesity-drug-used-mounjaro-zepbound-195428951.html)
+- Jun 21 - [Satellite images show apparent mock-ups of US fifth-gen fighter jets and a runway with blast marks and craters in a Chinese desert](https://www.yahoo.com/news/satellite-images-show-apparent-mock-194357732.html)
 - Jun 21 - [UK's richest family get jail terms for exploiting staff at Swiss villa](https://www.yahoo.com/news/uks-richest-family-jail-terms-172351291.html)
-- Jun 21 - [More than half a million portable device chargers sold at Costco recalled after two homes catch fire](https://www.yahoo.com/news/more-half-million-portable-device-190358182.html)
 <!-- feed end -->
 
 ### Onstream
