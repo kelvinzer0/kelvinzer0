@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Ancient pig-like animal shows beginnings of mammalian brain evolution](https://www.yahoo.com/news/ancient-pig-animal-shows-beginnings-125914131.html)
-- Jun 21 - [Giving Slovak jets, air defence to Kyiv was sabotage, new government says](https://www.yahoo.com/news/giving-slovak-jets-air-defence-122555239.html)
-- Jun 21 - [Horry Police alters beach truck use after officer ran over beachgoer in Myrtle Beach area](https://www.yahoo.com/news/horry-police-alters-beach-truck-120037491.html)
-- Jun 21 - [Russia tells US: we need to talk, but Ukraine must be on agenda](https://www.yahoo.com/news/russia-tells-us-talk-ukraine-112657181.html)
-- Jun 21 - [The truth about Russia’s turtle tanks](https://www.yahoo.com/news/truth-russia-turtle-tanks-105258503.html)
+- Jun 21 - [Missouri Republican tells Black Americans to ‘kindly’ leave US if they don’t like country](https://www.yahoo.com/news/missouri-republican-tells-black-americans-164604273.html)
+- Jun 21 - [Fond du Lac teenagers lead county deputy on high-speed pursuit; passenger cited for underage drinking](https://www.yahoo.com/news/fond-du-lac-teenagers-lead-142458812.html)
+- Jun 21 - ["This Is The First Time I’ve Actually Felt Genuinely Scared For This Country": 15 People Shared Their Honest, Raw Thoughts About "Project 2025" — Far Right Conservatives' Plan For The Future](https://www.yahoo.com/news/first-time-ve-actually-felt-140647860.html)
+- Jun 21 - [Taylor Swift fans welcomed to London with Eras-inspired Tube map](https://www.yahoo.com/news/taylor-swift-fans-welcomed-london-140551562.html)
+- Jun 21 - [July's Smoke in the Valley in Canisteo canceled. What we know](https://www.yahoo.com/news/julys-smoke-valley-canisteo-canceled-135305874.html)
 <!-- feed end -->
 
 ### Onstream
