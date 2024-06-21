@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [François Hollande is back - and he’s breaking France](https://www.yahoo.com/news/unlikely-revenge-president-normal-060000854.html)
+- Jun 21 - [Nikki Haley is the clear choice for Trump's VP pick. So I'm sure he'll go full MAGA.](https://www.yahoo.com/news/nikki-haley-clear-choice-trumps-080415487.html)
+- Jun 21 - [Greece heatwave latest: New fire ‘every ten minutes’ amid hunt for arsonist and search for missing American](https://www.yahoo.com/news/greece-missing-tourists-latest-four-075336617.html)
 - Jun 21 - [So THAT'S Why Mosquitoes Bite Some People More Than Others](https://www.yahoo.com/lifestyle/thats-why-mosquitoes-bite-people-034601636.html)
 - Jun 21 - [Looks like Elon Musk just added Melinda French Gates to his list of billionaires' ex-wives who 'might be the downfall of Western civilization'](https://www.yahoo.com/tech/looks-elon-musk-just-added-034406940.html)
-- Jun 21 - [Trump says he wants foreign nationals who graduate from US colleges to ‘automatically’ receive green cards](https://www.yahoo.com/news/trump-says-wants-foreign-nationals-031421157.html)
-- Jun 20 - [Judge to weigh removing Jack Smith in Trump classified documents case](https://www.yahoo.com/news/judge-weigh-removing-jack-smith-225752205.html)
+- Jun 20 - [The search continues for at-risk man last seen in Salt Lake, police seek more help](https://www.yahoo.com/news/search-continues-risk-man-last-231028342.html)
 <!-- feed end -->
 
 ### Onstream
