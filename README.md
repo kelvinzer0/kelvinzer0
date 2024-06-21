@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 21 - [Looks like Elon Musk just added Melinda French Gates to his list of billionaires' ex-wives who 'might be the downfall of Western civilization'](https://www.yahoo.com/tech/looks-elon-musk-just-added-034406940.html)
+- Jun 21 - [Family-run retail theft crew in Southern California taken down by L.A. police](https://www.yahoo.com/news/family-run-retail-theft-crew-034239568.html)
 - Jun 21 - [Trump says he wants foreign nationals who graduate from US colleges to ‘automatically’ receive green cards](https://www.yahoo.com/news/trump-says-wants-foreign-nationals-031421157.html)
+- Jun 21 - [Japan has no right to meddle in China-Philippines maritime issues, says Chinese embassy in Japan](https://www.yahoo.com/news/japan-no-meddle-china-philippines-003326898.html)
 - Jun 20 - [Judge to weigh removing Jack Smith in Trump classified documents case](https://www.yahoo.com/news/judge-weigh-removing-jack-smith-225752205.html)
-- Jun 20 - [Exclusive-Boeing nearing deal with supplier Spirit Aero after months of talks, sources say](https://finance.yahoo.com/news/exclusive-boeing-nearing-deal-supplier-211833576.html)
-- Jun 20 - [California sheriff's deputy died on duty from the effects of methamphetamine in an accident, authorities say](https://www.yahoo.com/news/california-sheriffs-deputy-died-duty-204236853.html)
 <!-- feed end -->
 
 ### Onstream
