@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Husband left paralyzed after riding Myrtle Beach amusement ride, lawsuit claims](https://www.yahoo.com/news/husband-left-paralyzed-riding-myrtle-191613155.html)
+- Jun 21 - [Obesity drug used in Mounjaro and Zepbound may help treat dangerous sleep apnea](https://www.yahoo.com/news/obesity-drug-used-mounjaro-zepbound-195428951.html)
 - Jun 21 - [‘My body can’t take it’: Brutal nighttime temperatures give Delhi residents little respite from India’s searing heatwave](https://www.yahoo.com/news/body-t-brutal-nighttime-temperatures-065251858.html)
+- Jun 21 - [Who is Shivon Zilis? Meet the Neuralink exec and AI expert who reportedly had a third child with Elon Musk](https://autos.yahoo.com/shivon-zilis-meet-neuralink-exec-195219749.html)
+- Jun 21 - [UK's richest family get jail terms for exploiting staff at Swiss villa](https://www.yahoo.com/news/uks-richest-family-jail-terms-172351291.html)
 - Jun 21 - [Police searching for Cow Head woman connected to missing Stephenville inmate](https://www.yahoo.com/news/police-searching-cow-head-woman-175002480.html)
-- Jun 21 - [Shiny monolith removed from mountains outside Las Vegas. How it got there still is a mystery](https://www.yahoo.com/news/shiny-monolith-removed-mountains-outside-170306950.html)
-- Jun 21 - [Elon Musk quietly had a 3rd child with his Neuralink executive Shivon Zilis](https://www.yahoo.com/tech/elon-musk-quietly-had-third-163507689.html)
 <!-- feed end -->
 
 ### Onstream
