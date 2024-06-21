@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [Prankster Coaxes CNN-Hating Donald Trump Fan Into Making Hilariously Awkward Admission](https://www.yahoo.com/entertainment/prankster-coaxes-cnn-hating-donald-091712872.html)
+- Jun 21 - [County fair board will put $100,000 from state toward funding to rebuild restrooms](https://www.yahoo.com/news/county-fair-board-put-100-090609930.html)
 - Jun 21 - [Nikki Haley is the clear choice for Trump's VP pick. So I'm sure he'll go full MAGA.](https://www.yahoo.com/news/nikki-haley-clear-choice-trumps-080415487.html)
-- Jun 21 - [Greece heatwave latest: New fire ‘every ten minutes’ amid hunt for arsonist and search for missing American](https://www.yahoo.com/news/greece-missing-tourists-latest-four-075336617.html)
+- Jun 21 - [‘My body can’t take it’: Brutal nighttime temperatures give Delhi residents little respite from India’s searing heatwave](https://www.yahoo.com/news/body-t-brutal-nighttime-temperatures-065251858.html)
 - Jun 21 - [So THAT'S Why Mosquitoes Bite Some People More Than Others](https://www.yahoo.com/lifestyle/thats-why-mosquitoes-bite-people-034601636.html)
-- Jun 21 - [Looks like Elon Musk just added Melinda French Gates to his list of billionaires' ex-wives who 'might be the downfall of Western civilization'](https://www.yahoo.com/tech/looks-elon-musk-just-added-034406940.html)
-- Jun 20 - [The search continues for at-risk man last seen in Salt Lake, police seek more help](https://www.yahoo.com/news/search-continues-risk-man-last-231028342.html)
 <!-- feed end -->
 
 ### Onstream
