@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Dave Ramsey’s Best Passive Income Ideas for 2024 — 15 ‘Steady, Profitable’ Ways To Build Wealth Fast](https://finance.yahoo.com/news/dave-ramsey-best-passive-income-160219417.html)
+- Jun 21 - [FOUND: Missing boy near Huntington Lake safe](https://www.yahoo.com/news/found-missing-boy-near-huntington-152226222.html)
+- Jun 21 - [Greece heatwave latest: New fire ‘every ten minutes’ amid hunt for arsonist and search for missing American](https://www.yahoo.com/news/greece-missing-tourists-latest-four-075336617.html)
+- Jun 21 - [Truck driver arrested after fatal crash on I-380](https://www.yahoo.com/news/380-offramp-closed-fatal-crash-123957776.html)
+- Jun 21 - [Giving Slovak jets, air defence to Kyiv was sabotage, new government says](https://www.yahoo.com/news/giving-slovak-jets-air-defence-122555239.html)
 - Jun 21 - [1 killed, 1 airlifted, 4 evaluated in crash involving tractor-trailers on I-485 in NE Charlotte](https://www.yahoo.com/news/developing-major-wreck-involving-overturned-114642250.html)
-- Jun 21 - [Russia tells US: we need to talk, but Ukraine must be on agenda](https://www.yahoo.com/news/russia-tells-us-talk-ukraine-112657181.html)
-- Jun 21 - [Nissan halts production at Changzhou plant as China woes persist](https://finance.yahoo.com/news/nissan-halts-production-changzhou-plant-102112946.html)
-- Jun 21 - [Intel Foundry Takes a Step Forward With Intel 3 Process](https://finance.yahoo.com/news/intel-foundry-takes-step-forward-094500977.html)
 <!-- feed end -->
 
 ### Onstream
