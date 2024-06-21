@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [South Korean activists say they flew anti-North Korean propaganda leaflets across the border](https://www.yahoo.com/news/south-korean-activists-flew-anti-021109529.html)
-- Jun 20 - [I lost 42 pounds with Ozempic, but was shaken by the drug's psychological toll](https://www.yahoo.com/lifestyle/lost-42-pounds-ozempic-shaken-235814498.html)
+- Jun 21 - [Federal officials reintroduce apex predator decades after it was hunted to extinction: 'The odds are in their favor'](https://www.yahoo.com/news/federal-officials-reintroduce-apex-predator-004500011.html)
+- Jun 21 - [Japan has no right to meddle in China-Philippines maritime issues, says Chinese embassy in Japan](https://www.yahoo.com/news/japan-no-meddle-china-philippines-003326898.html)
 - Jun 20 - [4-year-old boy missing from Huntington Lake campground in Fresno County mountains](https://www.yahoo.com/news/4-old-boy-missing-huntington-231509095.html)
 - Jun 20 - [Judge to weigh removing Jack Smith in Trump classified documents case](https://www.yahoo.com/news/judge-weigh-removing-jack-smith-225752205.html)
 - Jun 20 - [Trump says foreigners who graduate from US colleges should get green cards](https://www.yahoo.com/news/trump-says-foreign-college-graduates-222429964.html)
