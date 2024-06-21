@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [China, Australia to issue five-year visas to citizens for tourism, business](https://www.yahoo.com/news/china-australia-issue-five-visas-103051587.html)
+- Jun 21 - [Middle Tennessee chief to retire after hundreds of cases, 46 years in law enforcement](https://www.yahoo.com/news/middle-tennessee-chief-retire-hundreds-100100304.html)
 - Jun 21 - [Prankster Coaxes CNN-Hating Donald Trump Fan Into Making Hilariously Awkward Admission](https://www.yahoo.com/entertainment/prankster-coaxes-cnn-hating-donald-091712872.html)
-- Jun 21 - [County fair board will put $100,000 from state toward funding to rebuild restrooms](https://www.yahoo.com/news/county-fair-board-put-100-090609930.html)
 - Jun 21 - [Nikki Haley is the clear choice for Trump's VP pick. So I'm sure he'll go full MAGA.](https://www.yahoo.com/news/nikki-haley-clear-choice-trumps-080415487.html)
-- Jun 21 - [‘My body can’t take it’: Brutal nighttime temperatures give Delhi residents little respite from India’s searing heatwave](https://www.yahoo.com/news/body-t-brutal-nighttime-temperatures-065251858.html)
 - Jun 21 - [So THAT'S Why Mosquitoes Bite Some People More Than Others](https://www.yahoo.com/lifestyle/thats-why-mosquitoes-bite-people-034601636.html)
 <!-- feed end -->
 
