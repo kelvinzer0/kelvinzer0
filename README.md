@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [François Hollande is back - and he’s breaking France](https://www.yahoo.com/news/unlikely-revenge-president-normal-060000854.html)
+- Jun 21 - [So THAT'S Why Mosquitoes Bite Some People More Than Others](https://www.yahoo.com/lifestyle/thats-why-mosquitoes-bite-people-034601636.html)
 - Jun 21 - [Looks like Elon Musk just added Melinda French Gates to his list of billionaires' ex-wives who 'might be the downfall of Western civilization'](https://www.yahoo.com/tech/looks-elon-musk-just-added-034406940.html)
-- Jun 21 - [Family-run retail theft crew in Southern California taken down by L.A. police](https://www.yahoo.com/news/family-run-retail-theft-crew-034239568.html)
 - Jun 21 - [Trump says he wants foreign nationals who graduate from US colleges to ‘automatically’ receive green cards](https://www.yahoo.com/news/trump-says-wants-foreign-nationals-031421157.html)
-- Jun 21 - [Japan has no right to meddle in China-Philippines maritime issues, says Chinese embassy in Japan](https://www.yahoo.com/news/japan-no-meddle-china-philippines-003326898.html)
 - Jun 20 - [Judge to weigh removing Jack Smith in Trump classified documents case](https://www.yahoo.com/news/judge-weigh-removing-jack-smith-225752205.html)
 <!-- feed end -->
 
