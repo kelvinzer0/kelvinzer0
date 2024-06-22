@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Today’s white working-class young men who turn to racist violence are part of a long, sad American history](https://www.yahoo.com/news/todays-white-working-class-young-122245329.html)
 - Jun 22 - [Ukraine’s prisoners flock to the front line for revenge, not amnesty](https://www.yahoo.com/news/main-goal-protect-country-meet-113000368.html)
+- Jun 22 - [Fleeing Blackout Camaro Driver Cries Like A Baby](https://autos.yahoo.com/fleeing-blackout-camaro-driver-cries-170000278.html)
+- Jun 22 - [I May Need To Go To The Doctor Because I Physically Can't Stop Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/may-doctor-because-physically-cant-131602790.html)
+- Jun 22 - [Ohio woman wins $15M jackpot but will take home just $4.5M after taxes — did she throw money down the drain?](https://finance.yahoo.com/news/ohio-woman-wins-15m-jackpot-100300295.html)
 - Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
-- Jun 22 - [Trump Just Revealed How He’ll Attack Biden at Debate—and It’s Vile](https://www.yahoo.com/news/trump-just-revealed-ll-attack-100000560.html)
-- Jun 22 - [Meet the millionaires next door. These Americans made millions out of nothing.](https://finance.yahoo.com/news/meet-millionaires-next-door-americans-092038319.html)
 <!-- feed end -->
 
 ### Onstream
