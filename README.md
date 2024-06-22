@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Ukraine’s prisoners flock to the front line for revenge, not amnesty](https://www.yahoo.com/news/main-goal-protect-country-meet-113000368.html)
-- Jun 22 - [Motorcycle goes off bridge into water killing woman](https://www.yahoo.com/news/motorcycle-goes-off-bridge-water-124832182.html)
+- Jun 22 - [Houthi claim of attack on US aircraft carrier false, US officials say](https://www.yahoo.com/news/houthi-claim-attack-us-aircraft-194530355.html)
+- Jun 22 - [NHS midwife told a black woman who was having a miscarriage: ‘You people have a high pain threshold’](https://www.yahoo.com/news/nhs-midwife-told-black-woman-175839919.html)
+- Jun 22 - [The 10 most expensive EVs and PHEVs to operate for 5 years](https://www.autoblog.com/article/the-10-most-expensive-evs-and-phevs-to-operate-for-5-years/)
+- Jun 22 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
 - Jun 22 - [What it's like setting sail aboard the only remaining US Navy ship to have sunk an enemy warship in battle](https://www.yahoo.com/news/setting-sail-aboard-only-remaining-114701068.html)
-- Jun 22 - [Where’s John Pertzborn? Reporter acts fast after seeing a warning](https://www.yahoo.com/news/where-john-pertzborn-reporter-acts-104202181.html)
-- Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
 <!-- feed end -->
 
 ### Onstream
