@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Judge frets over ‘losing entire career’ after cops stopped her on drunk-driving suspicion amid high-profile murder case](https://www.yahoo.com/news/judge-fret-losing-entire-career-013259489.html)
+- Jun 22 - [University of Oklahoma takes McClendon name off its Honors College, but won't say why](https://www.yahoo.com/news/university-oklahoma-takes-mcclendon-name-110237599.html)
 - Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
-- Jun 22 - [1 Magnificent Dividend Stock Down 16% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-dividend-stock-down-100000962.html)
-- Jun 22 - [Think Nvidia Stock Will Only Go Up? The 17-Year Money-Losing Lesson From Microsoft You Need to Hear](https://finance.yahoo.com/news/think-nvidia-stock-only-17-070500345.html)
-- Jun 22 - [16-Year-Old Girl Rescues Zip-Tied Brothers In Escape From Abusive Home: Police Say](https://www.yahoo.com/news/16-old-girl-rescues-zip-010328864.html)
+- Jun 22 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Track to Do Something That Hasn't Happened in 28 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400754.html)
+- Jun 22 - [Boebert is running for Congress in this GOP primary. Hear what voters from the district think](https://www.yahoo.com/news/boebert-running-congress-gop-primary-022853509.html)
+- Jun 22 - [Officials celebrate recovery of iconic American lake as water levels peak for first time in years: 'Extremely encouraging'](https://www.yahoo.com/news/officials-celebrate-recovery-iconic-american-020000656.html)
 <!-- feed end -->
 
 ### Onstream
