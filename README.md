@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Apple stock gets fresh upgrades pointing to 14% upside as it becomes a leader in the AI race](https://finance.yahoo.com/news/apple-stock-gets-fresh-upgrades-023328687.html)
-- Jun 22 - [Judge fret ‘losing entire career’ after cops stopped her on drunk-driving suspicion amid high-profile murder case](https://www.yahoo.com/news/judge-fret-losing-entire-career-013259489.html)
-- Jun 22 - [Bethel Park Art & Music Festival to be held next month](https://www.yahoo.com/lifestyle/bethel-park-art-music-festival-022430533.html)
-- Jun 22 - [NYC mobster known as ‘Tony Cakes’ identified as pedestrian decapitated by truck: report](https://www.yahoo.com/news/nyc-mobster-known-tony-cakes-003048580.html)
+- Jun 22 - [Sioux Falls activates Emergency Operations Center as flooding, heavy rains continue](https://www.yahoo.com/news/sioux-falls-activates-emergency-operations-011231861.html)
 - Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
+- Jun 21 - [Reality TV's Julie Chrisley must be resentenced in bank fraud, tax evasion case, appeals judges rule](https://www.yahoo.com/news/reality-tvs-julie-chrisley-must-235305537.html)
+- Jun 21 - [An 8-year-old girl was sucked into a swimming pool pipe at a Hilton hotel. The management company blamed her parents](https://www.yahoo.com/news/8-old-girl-sucked-swimming-234202947.html)
+- Jun 21 - [What Nvidia sell-off, triple witching say about the market](https://finance.yahoo.com/video/nvidia-sell-off-triple-witching-203022845.html)
 <!-- feed end -->
 
 ### Onstream
