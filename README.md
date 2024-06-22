@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 22 - [Robert Morris warned sex abuse accuser she could be prosecuted for seeking compensation, emails show](https://www.yahoo.com/news/robert-morris-warned-sex-abuse-022926850.html)
-- Jun 22 - [Officials celebrate recovery of iconic American lake as water levels peak for first time in years: 'Extremely encouraging'](https://www.yahoo.com/news/officials-celebrate-recovery-iconic-american-020000656.html)
+- Jun 22 - [NYC mobster known as ‘Tony Cakes’ identified as pedestrian decapitated by truck: report](https://www.yahoo.com/news/nyc-mobster-known-tony-cakes-003048580.html)
 - Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
 - Jun 21 - [An 8-year-old girl was sucked into a swimming pool pipe at a Hilton hotel. The management company blamed her parents](https://www.yahoo.com/news/8-old-girl-sucked-swimming-234202947.html)
-- Jun 21 - [‘We are at a loss for words’: Neighbors mourn parents who drowned in Florida while on vacation with their six kids](https://www.yahoo.com/news/loss-words-neighbors-mourn-parents-215420012.html)
+- Jun 21 - [Obesity drug used in Mounjaro and Zepbound may help treat dangerous sleep apnea](https://www.yahoo.com/news/obesity-drug-used-mounjaro-zepbound-195428951.html)
 <!-- feed end -->
 
 ### Onstream
