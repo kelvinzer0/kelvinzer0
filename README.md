@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Jay Slater missing – latest: Police in Tenerife refuse help of British cops in search for teenager](https://www.independent.co.uk/news/uk/home-news/jay-slater-missing-tenerife-phone-search-latest-update-b2566372.html)
-- Jun 21 - [Kyle Rittenhouse’s Family: We’re His Collateral Damage](https://www.yahoo.com/news/kyle-rittenhouse-family-publicly-throws-212008805.html)
-- Jun 21 - [Obesity drug used in Mounjaro and Zepbound may help treat dangerous sleep apnea](https://www.yahoo.com/news/obesity-drug-used-mounjaro-zepbound-195428951.html)
-- Jun 21 - [Satellite images show apparent mock-ups of US fifth-gen fighter jets and a runway with blast marks and craters in a Chinese desert](https://www.yahoo.com/news/satellite-images-show-apparent-mock-194357732.html)
-- Jun 21 - [UK's richest family get jail terms for exploiting staff at Swiss villa](https://www.yahoo.com/news/uks-richest-family-jail-terms-172351291.html)
+- Jun 22 - [In signing anti-ethics bill, DeSantis sides with crooked politicians | Commentary](https://www.yahoo.com/news/signing-anti-ethics-bill-desantis-003801295.html)
+- Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
+- Jun 21 - [An 8-year-old girl was sucked into a swimming pool pipe at a Hilton hotel. The management company blamed her parents](https://www.yahoo.com/news/8-old-girl-sucked-swimming-234202947.html)
+- Jun 21 - [Slain 9-year-old Topeka boy loved telling stories, playing with Legos, his principal says](https://www.yahoo.com/news/slain-9-old-topeka-boy-230224766.html)
+- Jun 21 - [‘We are at a loss for words’: Neighbors mourn parents who drowned in Florida while on vacation with their six kids](https://www.yahoo.com/news/loss-words-neighbors-mourn-parents-215420012.html)
 <!-- feed end -->
 
 ### Onstream
