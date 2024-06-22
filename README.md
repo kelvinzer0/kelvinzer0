@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [In signing anti-ethics bill, DeSantis sides with crooked politicians | Commentary](https://www.yahoo.com/news/signing-anti-ethics-bill-desantis-003801295.html)
+- Jun 22 - [Idaho murder suspect Bryan Kohberger targeted one of his victims, explosive new theory claims](https://www.yahoo.com/news/idaho-murder-suspect-bryan-kohberger-012406053.html)
 - Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
+- Jun 21 - [Reality TV's Julie Chrisley must be resentenced in bank fraud, tax evasion case, appeals judges rule](https://www.yahoo.com/news/reality-tvs-julie-chrisley-must-235305537.html)
 - Jun 21 - [An 8-year-old girl was sucked into a swimming pool pipe at a Hilton hotel. The management company blamed her parents](https://www.yahoo.com/news/8-old-girl-sucked-swimming-234202947.html)
-- Jun 21 - [Slain 9-year-old Topeka boy loved telling stories, playing with Legos, his principal says](https://www.yahoo.com/news/slain-9-old-topeka-boy-230224766.html)
 - Jun 21 - [‘We are at a loss for words’: Neighbors mourn parents who drowned in Florida while on vacation with their six kids](https://www.yahoo.com/news/loss-words-neighbors-mourn-parents-215420012.html)
 <!-- feed end -->
 
