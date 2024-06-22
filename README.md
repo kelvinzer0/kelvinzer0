@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [3 Dividend Stocks That Recently Raised Their Payouts](https://finance.yahoo.com/news/3-dividend-stocks-recently-raised-144700086.html)
 - Jun 22 - [I May Need To Go To The Doctor Because I Physically Can't Stop Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/may-doctor-because-physically-cant-131602790.html)
 - Jun 22 - [Live updates: 3 young men drowned in Gulf of Mexico in Bay County Florida](https://www.yahoo.com/news/live-updates-3-young-men-114239654.html)
+- Jun 22 - [Knoxville woman sent her car in for repairs — but then the dealership sold it. Here’s how you could be at risk too](https://finance.yahoo.com/news/knoxville-woman-sent-her-car-100100727.html)
 - Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
-- Jun 22 - [Trump Just Revealed How He’ll Attack Biden at Debate—and It’s Vile](https://www.yahoo.com/news/trump-just-revealed-ll-attack-100000560.html)
-- Jun 22 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Track to Do Something That Hasn't Happened in 28 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400754.html)
 <!-- feed end -->
 
 ### Onstream
