@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Jay Slater missing – latest: Police in Tenerife refuse help of British cops in search for teenager](https://www.independent.co.uk/news/uk/home-news/jay-slater-missing-tenerife-phone-search-latest-update-b2566372.html)
-- Jun 22 - [NYC mobster known as ‘Tony Cakes’ identified as pedestrian decapitated by truck: report](https://www.yahoo.com/news/nyc-mobster-known-tony-cakes-003048580.html)
-- Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
+- Jun 22 - [Jay Slater missing – latest: Teenager’s Instagram ‘mysteriously accessed since vanishing’ in Tenerife](https://www.independent.co.uk/news/uk/home-news/jay-slater-missing-tenerife-phone-search-latest-update-b2566372.html)
+- Jun 22 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Track to Do Something That Hasn't Happened in 28 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400754.html)
 - Jun 21 - [An 8-year-old girl was sucked into a swimming pool pipe at a Hilton hotel. The management company blamed her parents](https://www.yahoo.com/news/8-old-girl-sucked-swimming-234202947.html)
-- Jun 21 - [Obesity drug used in Mounjaro and Zepbound may help treat dangerous sleep apnea](https://www.yahoo.com/news/obesity-drug-used-mounjaro-zepbound-195428951.html)
+- Jun 21 - [Slain 9-year-old Topeka boy loved telling stories, playing with Legos, his principal says](https://www.yahoo.com/news/slain-9-old-topeka-boy-230224766.html)
+- Jun 21 - [Massachusetts family sues school district, employees after a third grader was restrained multiple times](https://www.yahoo.com/news/massachusetts-family-sues-school-district-222803599.html)
 <!-- feed end -->
 
 ### Onstream
