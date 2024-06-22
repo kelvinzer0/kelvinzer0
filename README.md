@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Track to Do Something That Hasn't Happened in 28 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400754.html)
-- Jun 22 - [This Parent Is Speaking Out After Their Children Were Outed By Their School. Here's What They Wish More Parents Understood](https://www.yahoo.com/lifestyle/parent-speaking-children-were-outed-030103674.html)
-- Jun 22 - [NYC mobster known as ‘Tony Cakes’ identified as pedestrian decapitated by truck: report](https://www.yahoo.com/news/nyc-mobster-known-tony-cakes-003048580.html)
-- Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
-- Jun 21 - [Reality TV's Julie Chrisley must be resentenced in bank fraud, tax evasion case, appeals judges rule](https://www.yahoo.com/news/reality-tvs-julie-chrisley-must-235305537.html)
+- Jun 22 - [Judge frets over ‘losing entire career’ after cops stopped her on drunk-driving suspicion amid high-profile murder case](https://www.yahoo.com/news/judge-fret-losing-entire-career-013259489.html)
+- Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
+- Jun 22 - [1 Magnificent Dividend Stock Down 16% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-dividend-stock-down-100000962.html)
+- Jun 22 - [Think Nvidia Stock Will Only Go Up? The 17-Year Money-Losing Lesson From Microsoft You Need to Hear](https://finance.yahoo.com/news/think-nvidia-stock-only-17-070500345.html)
+- Jun 22 - [16-Year-Old Girl Rescues Zip-Tied Brothers In Escape From Abusive Home: Police Say](https://www.yahoo.com/news/16-old-girl-rescues-zip-010328864.html)
 <!-- feed end -->
 
 ### Onstream
