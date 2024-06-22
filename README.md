@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [UFC on ABC 6 results: Tempers flare after Alexander Volkov outpoints Sergei Pavlovich](https://sports.yahoo.com/ufc-abc-6-results-tempers-213035127.html)
-- Jun 22 - [Bird flu outbreak spreads to mammals in 31 states. At least 21 cats infected. What to know](https://www.yahoo.com/news/bird-flu-outbreak-spreads-mammals-212508666.html)
-- Jun 22 - [Lindenwood University proceeds with staff layoffs after enrollment concerns](https://www.yahoo.com/news/lindenwood-university-proceeds-staff-layoffs-182936972.html)
-- Jun 22 - [Atlanta police release body camera footage of judge’s arrest after incident with officer](https://www.yahoo.com/news/atlanta-police-release-body-camera-174018101.html)
-- Jun 22 - [Cuomo: Trump NY hush money case ‘should have never been brought’ forth](https://www.yahoo.com/news/cuomo-trump-ny-hush-money-155827194.html)
+- Jun 22 - [Tragic update: Missing Plymouth man is found dead after several days of searching](https://www.yahoo.com/news/tragic-missing-plymouth-man-found-211223088.html)
+- Jun 22 - [After 22 hours in the wilderness, 4-year-old boy from Torrance found safe](https://www.yahoo.com/news/22-hours-wilderness-4-old-193736293.html)
+- Jun 22 - [As U.S.-supplied weapons show impact inside Russia, Ukrainian soldiers hope for deeper strikes](https://www.yahoo.com/news/u-supplied-weapons-show-impact-141126374.html)
+- Jun 22 - [I May Need To Go To The Doctor Because I Physically Can't Stop Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/may-doctor-because-physically-cant-131602790.html)
+- Jun 22 - [Motorcycle goes off bridge into water killing woman](https://www.yahoo.com/news/motorcycle-goes-off-bridge-water-124832182.html)
 <!-- feed end -->
 
 ### Onstream
