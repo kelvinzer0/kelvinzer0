@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [NHS midwife told a black woman who was having a miscarriage: ‘You people have a high pain threshold’](https://www.yahoo.com/news/nhs-midwife-told-black-woman-175839919.html)
-- Jun 22 - [Motorcycle goes off bridge into water killing woman](https://www.yahoo.com/news/motorcycle-goes-off-bridge-water-124832182.html)
-- Jun 22 - [What it's like setting sail aboard the only remaining US Navy ship to have sunk an enemy warship in battle](https://www.yahoo.com/news/setting-sail-aboard-only-remaining-114701068.html)
-- Jun 22 - [Ohio woman wins $15M jackpot but will take home just $4.5M after taxes — did she throw money down the drain?](https://finance.yahoo.com/news/ohio-woman-wins-15m-jackpot-100300295.html)
-- Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
+- Jun 22 - [UFC on ABC 6 results: Tempers flare after Alexander Volkov outpoints Sergei Pavlovich](https://sports.yahoo.com/ufc-abc-6-results-tempers-213035127.html)
+- Jun 22 - [Bird flu outbreak spreads to mammals in 31 states. At least 21 cats infected. What to know](https://www.yahoo.com/news/bird-flu-outbreak-spreads-mammals-212508666.html)
+- Jun 22 - [Lindenwood University proceeds with staff layoffs after enrollment concerns](https://www.yahoo.com/news/lindenwood-university-proceeds-staff-layoffs-182936972.html)
+- Jun 22 - [Atlanta police release body camera footage of judge’s arrest after incident with officer](https://www.yahoo.com/news/atlanta-police-release-body-camera-174018101.html)
+- Jun 22 - [Cuomo: Trump NY hush money case ‘should have never been brought’ forth](https://www.yahoo.com/news/cuomo-trump-ny-hush-money-155827194.html)
 <!-- feed end -->
 
 ### Onstream
