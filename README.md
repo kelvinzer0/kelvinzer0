@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Jay Slater missing – latest: Teenager’s Instagram ‘mysteriously accessed since vanishing’ in Tenerife](https://www.independent.co.uk/news/uk/home-news/jay-slater-missing-tenerife-phone-search-latest-update-b2566372.html)
 - Jun 22 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Track to Do Something That Hasn't Happened in 28 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400754.html)
-- Jun 21 - [An 8-year-old girl was sucked into a swimming pool pipe at a Hilton hotel. The management company blamed her parents](https://www.yahoo.com/news/8-old-girl-sucked-swimming-234202947.html)
-- Jun 21 - [Slain 9-year-old Topeka boy loved telling stories, playing with Legos, his principal says](https://www.yahoo.com/news/slain-9-old-topeka-boy-230224766.html)
-- Jun 21 - [Massachusetts family sues school district, employees after a third grader was restrained multiple times](https://www.yahoo.com/news/massachusetts-family-sues-school-district-222803599.html)
+- Jun 22 - [This Parent Is Speaking Out After Their Children Were Outed By Their School. Here's What They Wish More Parents Understood](https://www.yahoo.com/lifestyle/parent-speaking-children-were-outed-030103674.html)
+- Jun 22 - [NYC mobster known as ‘Tony Cakes’ identified as pedestrian decapitated by truck: report](https://www.yahoo.com/news/nyc-mobster-known-tony-cakes-003048580.html)
+- Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
+- Jun 21 - [Reality TV's Julie Chrisley must be resentenced in bank fraud, tax evasion case, appeals judges rule](https://www.yahoo.com/news/reality-tvs-julie-chrisley-must-235305537.html)
 <!-- feed end -->
 
 ### Onstream
