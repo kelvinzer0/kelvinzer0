@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 22 - [Ukraine’s prisoners flock to the front line for revenge, not amnesty](https://www.yahoo.com/news/main-goal-protect-country-meet-113000368.html)
-- Jun 22 - [Fleeing Blackout Camaro Driver Cries Like A Baby](https://autos.yahoo.com/fleeing-blackout-camaro-driver-cries-170000278.html)
-- Jun 22 - [I May Need To Go To The Doctor Because I Physically Can't Stop Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/may-doctor-because-physically-cant-131602790.html)
-- Jun 22 - [Ohio woman wins $15M jackpot but will take home just $4.5M after taxes — did she throw money down the drain?](https://finance.yahoo.com/news/ohio-woman-wins-15m-jackpot-100300295.html)
+- Jun 22 - [Motorcycle goes off bridge into water killing woman](https://www.yahoo.com/news/motorcycle-goes-off-bridge-water-124832182.html)
+- Jun 22 - [What it's like setting sail aboard the only remaining US Navy ship to have sunk an enemy warship in battle](https://www.yahoo.com/news/setting-sail-aboard-only-remaining-114701068.html)
+- Jun 22 - [Where’s John Pertzborn? Reporter acts fast after seeing a warning](https://www.yahoo.com/news/where-john-pertzborn-reporter-acts-104202181.html)
 - Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
 <!-- feed end -->
 
