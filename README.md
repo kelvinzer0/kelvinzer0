@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Live updates: 3 young men drowned in Gulf of Mexico in Bay County Florida](https://www.yahoo.com/news/live-updates-3-young-men-114239654.html)
+- Jun 22 - [Today’s white working-class young men who turn to racist violence are part of a long, sad American history](https://www.yahoo.com/news/todays-white-working-class-young-122245329.html)
 - Jun 22 - [Ukraine’s prisoners flock to the front line for revenge, not amnesty](https://www.yahoo.com/news/main-goal-protect-country-meet-113000368.html)
-- Jun 22 - [Lauren Boebert was dodging foam pool noodles in one of her final campaign appearances](https://www.yahoo.com/news/lauren-boebert-dodging-foam-pool-105926856.html)
-- Jun 22 - [Knoxville woman sent her car in for repairs — but then the dealership sold it. Here’s how you could be at risk too](https://finance.yahoo.com/news/knoxville-woman-sent-her-car-100100727.html)
 - Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
+- Jun 22 - [Trump Just Revealed How He’ll Attack Biden at Debate—and It’s Vile](https://www.yahoo.com/news/trump-just-revealed-ll-attack-100000560.html)
+- Jun 22 - [Meet the millionaires next door. These Americans made millions out of nothing.](https://finance.yahoo.com/news/meet-millionaires-next-door-americans-092038319.html)
 <!-- feed end -->
 
 ### Onstream
