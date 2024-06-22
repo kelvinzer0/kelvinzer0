@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [University of Oklahoma takes McClendon name off its Honors College, but won't say why](https://www.yahoo.com/news/university-oklahoma-takes-mcclendon-name-110237599.html)
 - Jun 22 - [Woman sues American Airlines over in-flight incident with ‘uncontrollably drunk’ seatmate](https://www.yahoo.com/news/woman-sues-american-airlines-over-100000800.html)
+- Jun 22 - [Dripping grease and grime buildup. The worst restaurant inspections in North Myrtle Beach](https://www.yahoo.com/news/dripping-grease-grime-buildup-worst-090000013.html)
 - Jun 22 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Track to Do Something That Hasn't Happened in 28 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400754.html)
 - Jun 22 - [Boebert is running for Congress in this GOP primary. Hear what voters from the district think](https://www.yahoo.com/news/boebert-running-congress-gop-primary-022853509.html)
-- Jun 22 - [Officials celebrate recovery of iconic American lake as water levels peak for first time in years: 'Extremely encouraging'](https://www.yahoo.com/news/officials-celebrate-recovery-iconic-american-020000656.html)
+- Jun 21 - [A new COVID variant is dominant in the US: What are its symptoms?](https://www.yahoo.com/news/2-covid-variants-called-flirt-223845613.html)
 <!-- feed end -->
 
 ### Onstream
