@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [NC leaders Berger and Moore, pull this state off the child care funding cliff | Opinion](https://www.yahoo.com/news/nc-leaders-berger-moore-pull-093000167.html)
-- Jun 23 - [Philippines not in business of instigating wars, says President Marcos](https://www.yahoo.com/news/philippines-not-business-instigating-wars-032615339.html)
-- Jun 23 - [‘They saved their whole lives for this’: American woman’s heartbreak as parents die on Hajj](https://www.yahoo.com/news/saved-whole-lives-american-woman-234540038.html)
-- Jun 22 - [Trump says he’s decided on his running mate](https://www.yahoo.com/news/trump-says-decided-running-mate-230535380.html)
-- Jun 22 - [About 2,500 without power in Jenison area](https://www.yahoo.com/news/over-4-000-without-power-224529070.html)
+- Jun 23 - [Here's why baby boomers in America are in serious financial trouble — do any of these reasons apply to you?](https://finance.yahoo.com/news/heres-why-baby-boomers-america-101200293.html)
+- Jun 23 - [Prisoners fight Tennessee's confusing life sentence laws — and notch some wins](https://www.yahoo.com/news/prisoners-fight-tennessees-confusing-life-100103663.html)
+- Jun 23 - [Ukraine sends over 30 drones into Russia after bombing of Kharkiv leaves 3 dead and dozens injured](https://www.yahoo.com/news/ukraine-sends-over-30-drones-091435383.html)
+- Jun 23 - [Forget Nvidia: I Just Doubled Down on Another Unstoppable Artificial Intelligence (AI) Stock. Here's Why](https://finance.yahoo.com/news/forget-nvidia-just-doubled-down-091300033.html)
+- Jun 23 - [There Might Actually Be Some Science Behind Eldest Daughter Syndrome](https://www.yahoo.com/news/might-actually-science-behind-eldest-090030286.html)
 <!-- feed end -->
 
 ### Onstream
