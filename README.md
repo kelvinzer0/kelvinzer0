@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Hiker missing for 10 days in California mountains survived by drinking a gallon of water each day](https://www.yahoo.com/news/hiker-missing-10-days-california-172750930.html)
+- Jun 23 - [An Engine Explosion at the Finish Line Lands John Force in the Hospital](https://autos.yahoo.com/engine-explosion-finish-line-lands-191000053.html)
+- Jun 23 - [UN-led Doha meeting with Taliban sparks outcry over women's rights](https://www.yahoo.com/news/un-led-doha-meeting-taliban-185348361.html)
+- Jun 23 - [Parish council quits over backlash after claims man’s voluntary clear-up was ‘criminal damage’](https://www.yahoo.com/news/parish-council-quits-claims-man-184439319.html)
+- Jun 23 - [US has ‘dramatically’ reduced arms supplies to Israel, Netanyahu claims](https://www.yahoo.com/news/us-dramatically-reduced-arms-supplies-183639022.html)
 - Jun 23 - [Ukrainian Atacms blows up over Crimean beach forcing sunbathers to flee as Russia claims five killed](https://www.yahoo.com/news/ukrainian-atacms-blows-over-crimean-160906716.html)
-- Jun 23 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
-- Jun 23 - [Village on Ukraine's doorstep set to become NATO's biggest European airbase as Putin vows to go 'to the end' in the war](https://www.yahoo.com/news/village-ukraines-doorstep-set-become-130808293.html)
-- Jun 23 - [I Have Driven Over 250 Car Models: These Are the 3 Best and Worst for Your Money](https://finance.yahoo.com/news/driven-over-250-car-models-180030663.html)
 <!-- feed end -->
 
 ### Onstream
