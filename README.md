@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Why it’s too late to stop World War 3](https://www.yahoo.com/news/why-too-stop-world-war-120000865.html)
-- Jun 23 - [Nvidia to launch in Middle East amid U.S. curbs on AI exports to region, Ooredoo CEO says](https://finance.yahoo.com/news/nvidia-launch-middle-east-amid-115237966.html)
-- Jun 23 - [Strong scattered storms will develop Sunday afternoon](https://www.yahoo.com/news/strong-scattered-storms-develop-sunday-113019395.html)
+- Jun 23 - [A year ago, her engagement ring vanished at a hospital. She still cherishes the man who gave it to her](https://www.yahoo.com/news/ago-her-engagement-ring-vanished-090015722.html)
+- Jun 23 - [Woman dead after 4-alarm fire in Georgetown](https://www.yahoo.com/news/woman-dead-4-alarm-fire-121014351.html)
 - Jun 23 - [Lyme disease is becoming a bigger problem. Which states have the most cases?](https://www.yahoo.com/news/lyme-disease-becoming-bigger-problem-113019664.html)
+- Jun 23 - [What's a Good Monthly Retirement Income for a Couple?](https://finance.yahoo.com/news/american-couples-count-needing-least-130036437.html)
 - Jun 23 - [There Might Actually Be Some Science Behind Eldest Daughter Syndrome](https://www.yahoo.com/news/might-actually-science-behind-eldest-090030286.html)
 <!-- feed end -->
 
