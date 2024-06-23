@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Thousands of Iran-backed fighters offer to join Hezbollah in its fight against Israel](https://www.yahoo.com/news/thousands-iran-backed-fighters-offer-050420137.html)
-- Jun 23 - [It was meant to be a Christian utopia. Now this Nigerian community is helpless against rising seas](https://www.yahoo.com/news/meant-christian-utopia-now-nigerian-040411805.html)
-- Jun 23 - [UPDATE: 1 person dead, 1 seriously hurt in off-road crash](https://www.yahoo.com/news/2-hurt-crash-involving-terrain-014952901.html)
+- Jun 23 - [NC leaders Berger and Moore, pull this state off the child care funding cliff | Opinion](https://www.yahoo.com/news/nc-leaders-berger-moore-pull-093000167.html)
+- Jun 23 - [Philippines not in business of instigating wars, says President Marcos](https://www.yahoo.com/news/philippines-not-business-instigating-wars-032615339.html)
 - Jun 23 - [‘They saved their whole lives for this’: American woman’s heartbreak as parents die on Hajj](https://www.yahoo.com/news/saved-whole-lives-american-woman-234540038.html)
 - Jun 22 - [Trump says he’s decided on his running mate](https://www.yahoo.com/news/trump-says-decided-running-mate-230535380.html)
+- Jun 22 - [About 2,500 without power in Jenison area](https://www.yahoo.com/news/over-4-000-without-power-224529070.html)
 <!-- feed end -->
 
 ### Onstream
