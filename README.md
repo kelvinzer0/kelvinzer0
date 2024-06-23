@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [Thousands of Iran-backed fighters offer to join Hezbollah in its fight against Israel](https://www.yahoo.com/news/thousands-iran-backed-fighters-offer-050420137.html)
+- Jun 23 - [It was meant to be a Christian utopia. Now this Nigerian community is helpless against rising seas](https://www.yahoo.com/news/meant-christian-utopia-now-nigerian-040411805.html)
 - Jun 23 - [‘They saved their whole lives for this’: American woman’s heartbreak as parents die on Hajj](https://www.yahoo.com/news/saved-whole-lives-american-woman-234540038.html)
-- Jun 22 - [Salt Lake City police arrest 20 people along Jordan River Trail using undercover officers](https://www.yahoo.com/news/salt-lake-city-police-arrest-212258679.html)
-- Jun 22 - [Multiple arrested in Vancouver Fred Meyer retail theft mission](https://www.yahoo.com/news/multiple-arrested-vancouver-fred-meyer-210827677.html)
+- Jun 22 - [Trump says he’s decided on his running mate](https://www.yahoo.com/news/trump-says-decided-running-mate-230535380.html)
 - Jun 22 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
-- Jun 22 - [The Unhealthiest Steak Cuts You Can Buy](https://www.yahoo.com/lifestyle/unhealthiest-steak-cuts-buy-163028543.html)
 <!-- feed end -->
 
 ### Onstream
