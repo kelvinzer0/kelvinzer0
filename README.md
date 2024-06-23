@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [An Engine Explosion at the Finish Line Lands John Force in the Hospital](https://autos.yahoo.com/engine-explosion-finish-line-lands-191000053.html)
-- Jun 23 - [UN-led Doha meeting with Taliban sparks outcry over women's rights](https://www.yahoo.com/news/un-led-doha-meeting-taliban-185348361.html)
-- Jun 23 - [Parish council quits over backlash after claims man’s voluntary clear-up was ‘criminal damage’](https://www.yahoo.com/news/parish-council-quits-claims-man-184439319.html)
-- Jun 23 - [US has ‘dramatically’ reduced arms supplies to Israel, Netanyahu claims](https://www.yahoo.com/news/us-dramatically-reduced-arms-supplies-183639022.html)
-- Jun 23 - [Ukrainian Atacms blows up over Crimean beach forcing sunbathers to flee as Russia claims five killed](https://www.yahoo.com/news/ukrainian-atacms-blows-over-crimean-160906716.html)
+- Jun 23 - [Priest and six law enforcement officers killed in attacks on synagogues and church in Russia’s Dagestan](https://www.yahoo.com/news/priest-six-law-enforcement-officers-183748619.html)
+- Jun 23 - [Jacksonville rapper Julio Foolio fatally shot in Tampa while celebrating birthday, attorney confirms](https://www.yahoo.com/news/jacksonville-rapper-julio-foolio-fatally-195106400.html)
+- Jun 23 - [Animals Who Mourned Their Humans](https://www.yahoo.com/news/animals-mourned-humans-140053847.html)
+- Jun 23 - [Coca-Cola Is a Rock-Solid Dividend King, but So Is This Dirt Cheap Stock That's Down 13% in the Past 3 Months](https://finance.yahoo.com/news/coca-cola-rock-solid-dividend-134500179.html)
+- Jun 23 - [Village on Ukraine's doorstep set to become NATO's biggest European airbase as Putin vows to go 'to the end' in the war](https://www.yahoo.com/news/village-ukraines-doorstep-set-become-130808293.html)
 <!-- feed end -->
 
 ### Onstream
