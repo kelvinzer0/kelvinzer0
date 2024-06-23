@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Kristi Noem Grilled on Nonexistent Meeting With Kim Jong Un](https://www.yahoo.com/news/kristi-noem-grilled-nonexistent-meeting-164015307.html)
-- Jun 23 - [The Brand Behind Costco's Kirkland Organic Blueberries](https://finance.yahoo.com/news/brand-behind-costcos-kirkland-organic-163047442.html)
-- Jun 23 - [Ukrainian Atacms blows up over Crimean beach forcing sunbathers to flee as Russia claims five killed](https://www.yahoo.com/news/ukrainian-atacms-blows-over-crimean-160906189.html)
+- Jun 23 - [Ukrainian Atacms blows up over Crimean beach forcing sunbathers to flee as Russia claims five killed](https://www.yahoo.com/news/ukrainian-atacms-blows-over-crimean-160906716.html)
+- Jun 23 - [Remember When An Arizona Police Administrator Was Pulled Over](https://autos.yahoo.com/remember-arizona-police-administrator-pulled-140000464.html)
+- Jun 23 - [Construction workers are dying from suicide at an alarming rate](https://www.yahoo.com/news/construction-workers-dying-suicide-alarming-140042793.html)
+- Jun 23 - [Coca-Cola Is a Rock-Solid Dividend King, but So Is This Dirt Cheap Stock That's Down 13% in the Past 3 Months](https://finance.yahoo.com/news/coca-cola-rock-solid-dividend-134500179.html)
 - Jun 23 - [Village on Ukraine's doorstep set to become NATO's biggest European airbase as Putin vows to go 'to the end' in the war](https://www.yahoo.com/news/village-ukraines-doorstep-set-become-130808293.html)
-- Jun 23 - [Multiple hospitalized after crash on Interstate 70 in west Columbus](https://www.yahoo.com/news/multiple-hospitalized-crash-interstate-70-124701487.html)
 <!-- feed end -->
 
 ### Onstream
