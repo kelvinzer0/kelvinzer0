@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Here's why baby boomers in America are in serious financial trouble — do any of these reasons apply to you?](https://finance.yahoo.com/news/heres-why-baby-boomers-america-101200293.html)
-- Jun 23 - [Prisoners fight Tennessee's confusing life sentence laws — and notch some wins](https://www.yahoo.com/news/prisoners-fight-tennessees-confusing-life-100103663.html)
-- Jun 23 - [Ukraine sends over 30 drones into Russia after bombing of Kharkiv leaves 3 dead and dozens injured](https://www.yahoo.com/news/ukraine-sends-over-30-drones-091435383.html)
-- Jun 23 - [Forget Nvidia: I Just Doubled Down on Another Unstoppable Artificial Intelligence (AI) Stock. Here's Why](https://finance.yahoo.com/news/forget-nvidia-just-doubled-down-091300033.html)
+- Jun 23 - [Why it’s too late to stop World War 3](https://www.yahoo.com/news/why-too-stop-world-war-120000865.html)
+- Jun 23 - [Nvidia to launch in Middle East amid U.S. curbs on AI exports to region, Ooredoo CEO says](https://finance.yahoo.com/news/nvidia-launch-middle-east-amid-115237966.html)
+- Jun 23 - [Strong scattered storms will develop Sunday afternoon](https://www.yahoo.com/news/strong-scattered-storms-develop-sunday-113019395.html)
+- Jun 23 - [Lyme disease is becoming a bigger problem. Which states have the most cases?](https://www.yahoo.com/news/lyme-disease-becoming-bigger-problem-113019664.html)
 - Jun 23 - [There Might Actually Be Some Science Behind Eldest Daughter Syndrome](https://www.yahoo.com/news/might-actually-science-behind-eldest-090030286.html)
 <!-- feed end -->
 
