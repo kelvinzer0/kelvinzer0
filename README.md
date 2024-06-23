@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [United Way of Monroe/Lenawee Counties: Summer an opportunity to relax, prepare for fall](https://www.yahoo.com/lifestyle/united-way-monroe-lenawee-counties-070615472.html)
-- Jun 23 - [Yaccarino shakes up X amid Musk's pressure on costs, FT says](https://finance.yahoo.com/news/yaccarino-shakes-x-amid-musks-051206525.html)
 - Jun 23 - [Thousands of Iran-backed fighters offer to join Hezbollah in its fight against Israel](https://www.yahoo.com/news/thousands-iran-backed-fighters-offer-050420137.html)
 - Jun 23 - [It was meant to be a Christian utopia. Now this Nigerian community is helpless against rising seas](https://www.yahoo.com/news/meant-christian-utopia-now-nigerian-040411805.html)
-- Jun 23 - [Illinois may soon return land the US stole from a Prairie Band Potawatomi chief 175 years ago](https://www.yahoo.com/news/illinois-may-soon-return-land-040126883.html)
+- Jun 23 - [UPDATE: 1 person dead, 1 seriously hurt in off-road crash](https://www.yahoo.com/news/2-hurt-crash-involving-terrain-014952901.html)
+- Jun 23 - [‘They saved their whole lives for this’: American woman’s heartbreak as parents die on Hajj](https://www.yahoo.com/news/saved-whole-lives-american-woman-234540038.html)
+- Jun 22 - [Trump says he’s decided on his running mate](https://www.yahoo.com/news/trump-says-decided-running-mate-230535380.html)
 <!-- feed end -->
 
 ### Onstream
