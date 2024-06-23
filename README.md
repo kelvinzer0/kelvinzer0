@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Keurig Dr Pepper Inc. (NASDAQ:KDP) Will Pay A US$0.215 Dividend In Four Days](https://finance.yahoo.com/news/keurig-dr-pepper-inc-nasdaq-125111255.html)
+- Jun 23 - [Pirates Preview: Paul Skenes Gets Series Finale Against Rays](https://sports.yahoo.com/pirates-preview-paul-skenes-gets-143228902.html)
+- Jun 23 - [I Have Driven Over 250 Car Models: These Are the 3 Best and Worst for Your Money](https://finance.yahoo.com/news/driven-over-250-car-models-180030663.html)
 - Jun 23 - [Celebrity stag put down after hikers feed him croissants](https://www.yahoo.com/news/hikers-proffering-junk-food-blamed-124017382.html)
-- Jun 23 - [Why it’s too late to stop World War 3](https://www.yahoo.com/news/why-too-stop-world-war-120000865.html)
-- Jun 23 - [Columbus mass shooting wounds 10 in Short North; police seek suspect vehicle](https://www.yahoo.com/news/columbus-mass-shooting-wounds-10-115555089.html)
-- Jun 23 - [Lyme disease is becoming a bigger problem. Which states have the most cases?](https://www.yahoo.com/news/lyme-disease-becoming-bigger-problem-113019664.html)
+- Jun 23 - [Bystander hurt when ‘multiple people’ open fire in a Pittsburgh neighborhood overnight, police say](https://www.yahoo.com/news/bystander-hurt-multiple-people-open-120945269.html)
+- Jun 23 - [Is Intel Corporation's (NASDAQ:INTC) Stock Price Struggling As A Result Of Its Mixed Financials?](https://finance.yahoo.com/news/intel-corporations-nasdaq-intc-stock-120050306.html)
 <!-- feed end -->
 
 ### Onstream
