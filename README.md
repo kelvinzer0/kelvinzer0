@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [A year ago, her engagement ring vanished at a hospital. She still cherishes the man who gave it to her](https://www.yahoo.com/news/ago-her-engagement-ring-vanished-090015722.html)
-- Jun 23 - [Woman dead after 4-alarm fire in Georgetown](https://www.yahoo.com/news/woman-dead-4-alarm-fire-121014351.html)
+- Jun 23 - [Keurig Dr Pepper Inc. (NASDAQ:KDP) Will Pay A US$0.215 Dividend In Four Days](https://finance.yahoo.com/news/keurig-dr-pepper-inc-nasdaq-125111255.html)
+- Jun 23 - [Celebrity stag put down after hikers feed him croissants](https://www.yahoo.com/news/hikers-proffering-junk-food-blamed-124017382.html)
+- Jun 23 - [Why it’s too late to stop World War 3](https://www.yahoo.com/news/why-too-stop-world-war-120000865.html)
+- Jun 23 - [Columbus mass shooting wounds 10 in Short North; police seek suspect vehicle](https://www.yahoo.com/news/columbus-mass-shooting-wounds-10-115555089.html)
 - Jun 23 - [Lyme disease is becoming a bigger problem. Which states have the most cases?](https://www.yahoo.com/news/lyme-disease-becoming-bigger-problem-113019664.html)
-- Jun 23 - [What's a Good Monthly Retirement Income for a Couple?](https://finance.yahoo.com/news/american-couples-count-needing-least-130036437.html)
-- Jun 23 - [There Might Actually Be Some Science Behind Eldest Daughter Syndrome](https://www.yahoo.com/news/might-actually-science-behind-eldest-090030286.html)
 <!-- feed end -->
 
 ### Onstream
