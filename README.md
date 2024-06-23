@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 23 - [‘They saved their whole lives for this’: American woman’s heartbreak as parents die on Hajj](https://www.yahoo.com/news/saved-whole-lives-american-woman-234540038.html)
-- Jun 22 - [Trump says he’s decided on his running mate](https://www.yahoo.com/news/trump-says-decided-running-mate-230535380.html)
 - Jun 22 - [Salt Lake City police arrest 20 people along Jordan River Trail using undercover officers](https://www.yahoo.com/news/salt-lake-city-police-arrest-212258679.html)
-- Jun 22 - [A US Navy carrier strike group is headed home after months battling the Houthis in the Red Sea](https://www.yahoo.com/news/us-navy-carrier-strike-group-211337920.html)
+- Jun 22 - [Multiple arrested in Vancouver Fred Meyer retail theft mission](https://www.yahoo.com/news/multiple-arrested-vancouver-fred-meyer-210827677.html)
 - Jun 22 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
+- Jun 22 - [The Unhealthiest Steak Cuts You Can Buy](https://www.yahoo.com/lifestyle/unhealthiest-steak-cuts-buy-163028543.html)
 <!-- feed end -->
 
 ### Onstream
