@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [Hiker missing for 10 days in California mountains survived by drinking a gallon of water each day](https://www.yahoo.com/news/hiker-missing-10-days-california-172750930.html)
 - Jun 23 - [Ukrainian Atacms blows up over Crimean beach forcing sunbathers to flee as Russia claims five killed](https://www.yahoo.com/news/ukrainian-atacms-blows-over-crimean-160906716.html)
-- Jun 23 - [Remember When An Arizona Police Administrator Was Pulled Over](https://autos.yahoo.com/remember-arizona-police-administrator-pulled-140000464.html)
-- Jun 23 - [Construction workers are dying from suicide at an alarming rate](https://www.yahoo.com/news/construction-workers-dying-suicide-alarming-140042793.html)
-- Jun 23 - [Coca-Cola Is a Rock-Solid Dividend King, but So Is This Dirt Cheap Stock That's Down 13% in the Past 3 Months](https://finance.yahoo.com/news/coca-cola-rock-solid-dividend-134500179.html)
+- Jun 23 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
 - Jun 23 - [Village on Ukraine's doorstep set to become NATO's biggest European airbase as Putin vows to go 'to the end' in the war](https://www.yahoo.com/news/village-ukraines-doorstep-set-become-130808293.html)
+- Jun 23 - [I Have Driven Over 250 Car Models: These Are the 3 Best and Worst for Your Money](https://finance.yahoo.com/news/driven-over-250-car-models-180030663.html)
 <!-- feed end -->
 
 ### Onstream
