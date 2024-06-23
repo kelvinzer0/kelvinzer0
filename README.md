@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Tragic update: Missing Plymouth man is found dead after several days of searching](https://www.yahoo.com/news/tragic-missing-plymouth-man-found-211223088.html)
-- Jun 22 - [After 22 hours in the wilderness, 4-year-old boy from Torrance found safe](https://www.yahoo.com/news/22-hours-wilderness-4-old-193736293.html)
-- Jun 22 - [As U.S.-supplied weapons show impact inside Russia, Ukrainian soldiers hope for deeper strikes](https://www.yahoo.com/news/u-supplied-weapons-show-impact-141126374.html)
-- Jun 22 - [I May Need To Go To The Doctor Because I Physically Can't Stop Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/may-doctor-because-physically-cant-131602790.html)
-- Jun 22 - [Motorcycle goes off bridge into water killing woman](https://www.yahoo.com/news/motorcycle-goes-off-bridge-water-124832182.html)
+- Jun 22 - [‘They saved their whole lives for this’: American woman’s heartbreak as parents die on Hajj](https://www.yahoo.com/news/saved-whole-lives-american-woman-234540038.html)
+- Jun 22 - [Salt Lake City police arrest 20 people along Jordan River Trail using undercover officers](https://www.yahoo.com/news/salt-lake-city-police-arrest-212258679.html)
+- Jun 22 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
+- Jun 22 - [Atlanta police release body camera footage of judge’s arrest after incident with officer](https://www.yahoo.com/news/atlanta-police-release-body-camera-174018101.html)
+- Jun 22 - [Firefighters responding to large field fire in Tolono](https://www.yahoo.com/news/firefighters-responding-large-field-fire-163454716.html)
 <!-- feed end -->
 
 ### Onstream
