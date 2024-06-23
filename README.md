@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [Russia's North Korea defense deal could create friction with China: US general](https://www.yahoo.com/news/russias-north-korea-defense-deal-220702040.html)
 - Jun 23 - [At least nine dead, 25 injured as gunmen attack synagogues and churches in Russia’s Dagestan](https://www.yahoo.com/news/priest-six-law-enforcement-officers-183748619.html)
 - Jun 23 - [Under curfew, Ukrainians mark midsummer with bonfire jumping at a festival with pagan roots](https://www.yahoo.com/news/under-curfew-ukrainians-mark-midsummer-205730529.html)
 - Jun 23 - [Heads of churches say Israeli government is demanding they pay property tax, upsetting status quo](https://www.yahoo.com/news/heads-churches-israeli-government-demanding-202531128.html)
 - Jun 23 - [At least 5 dead after missile fragments scatter over beachgoers in Russian-occupied Crimea](https://www.yahoo.com/news/least-5-dead-missile-fragments-202318893.html)
-- Jun 23 - [Jacksonville rapper Julio Foolio fatally shot in Tampa while celebrating birthday, attorney confirms](https://www.yahoo.com/news/jacksonville-rapper-julio-foolio-fatally-195106400.html)
 <!-- feed end -->
 
 ### Onstream
