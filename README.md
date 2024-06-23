@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Pirates Preview: Paul Skenes Gets Series Finale Against Rays](https://sports.yahoo.com/pirates-preview-paul-skenes-gets-143228902.html)
+- Jun 23 - [Jacksonville rapper Julio Foolio fatally shot in Tampa while celebrating birthday, attorney confirms](https://www.yahoo.com/news/jacksonville-rapper-julio-foolio-fatally-151727711.html)
+- Jun 23 - [Trump Reignites Long-Running Feud With ‘Highly Overrated’ Bill Maher](https://www.yahoo.com/entertainment/trump-reignites-long-running-feud-142126724.html)
+- Jun 23 - [A woman is accused of attempting to drown a 3-year-old Muslim child in possible hate crime incident](https://www.yahoo.com/news/woman-accused-attempting-drown-3-224545741.html)
+- Jun 23 - [Coca-Cola Is a Rock-Solid Dividend King, but So Is This Dirt Cheap Stock That's Down 13% in the Past 3 Months](https://finance.yahoo.com/news/coca-cola-rock-solid-dividend-134500179.html)
 - Jun 23 - [I Have Driven Over 250 Car Models: These Are the 3 Best and Worst for Your Money](https://finance.yahoo.com/news/driven-over-250-car-models-180030663.html)
-- Jun 23 - [Celebrity stag put down after hikers feed him croissants](https://www.yahoo.com/news/hikers-proffering-junk-food-blamed-124017382.html)
-- Jun 23 - [Bystander hurt when ‘multiple people’ open fire in a Pittsburgh neighborhood overnight, police say](https://www.yahoo.com/news/bystander-hurt-multiple-people-open-120945269.html)
-- Jun 23 - [Is Intel Corporation's (NASDAQ:INTC) Stock Price Struggling As A Result Of Its Mixed Financials?](https://finance.yahoo.com/news/intel-corporations-nasdaq-intc-stock-120050306.html)
 <!-- feed end -->
 
 ### Onstream
