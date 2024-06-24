@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Missing hiker survives by drinking gallon of water a day](https://www.yahoo.com/news/missing-hiker-survives-drinking-gallon-223320144.html)
+- Jun 24 - [Captive-bred Scottish wildcats give birth in wild](https://www.yahoo.com/news/captive-bred-scottish-wildcats-birth-092515476.html)
+- Jun 24 - [Why Trump is suddenly talking up Biden after months of slamming his cognitive capacity](https://www.yahoo.com/news/why-trump-suddenly-talking-biden-040015893.html)
+- Jun 24 - [I'm the parent of a trans daughter. There's nothing conservative about blocking her care.](https://www.yahoo.com/news/im-parent-trans-daughter-theres-090717164.html)
+- Jun 24 - [Marco Island approves variances for adding pickleball courts at racquet center](https://www.yahoo.com/news/marco-island-approves-variances-adding-090657156.html)
 - Jun 24 - [Finally, an answer to a mystery surrounding these 1,000-year-old trees](https://www.yahoo.com/news/finally-answer-mystery-surrounding-1-081301413.html)
-- Jun 24 - [Rival Groups Clash Outside Synagogue in LA](https://www.yahoo.com/news/rival-groups-clash-outside-synagogue-080449114.html)
-- Jun 24 - [Eric Trump's 'Unvarnished' Claim About Dad Gets Brutal Instant Fact-Check](https://www.yahoo.com/news/eric-trumps-unvarnished-claim-dad-075141750.html)
-- Jun 24 - [ASPIRE initiative at Adrian Public Schools to be 'refocused' prior to 2024-25 school year](https://www.yahoo.com/news/aspire-initiative-adrian-public-schools-074122020.html)
 <!-- feed end -->
 
 ### Onstream
