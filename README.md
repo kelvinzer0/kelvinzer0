@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Tribes, States Get $10M for Veteran Suicide Prevention](https://www.yahoo.com/news/tribes-states-10m-veteran-suicide-195247399.html)
+- Jun 24 - [Former North Dakota lawmaker to plead guilty to traveling to pay for sex with minor](https://www.yahoo.com/news/former-north-dakota-lawmaker-plead-203854599.html)
+- Jun 24 - [Explainer-How Boeing's Starliner can bring its astronauts back to Earth](https://www.yahoo.com/news/explainer-boeings-starliner-bring-astronauts-192318552.html)
 - Jun 24 - [A Russian soldier's killing of a wounded comrade highlights the 'brutal culture' rampant inside Russia's military, war analysts say](https://www.yahoo.com/news/russian-soldiers-killing-wounded-comrade-190154691.html)
-- Jun 24 - [US needs Chinese students in humanities, Indian students for sciences, US diplomat says](https://www.yahoo.com/news/us-needs-chinese-students-humanities-181506683.html)
-- Jun 24 - [Hooters closes several ‘underperforming’ restaurants](https://finance.yahoo.com/news/hooters-closes-several-underperforming-restaurants-155618388.html)
-- Jun 24 - [Bankruptcy trustee discloses plan to shut down Alex Jones' Infowars and liquidate assets](https://www.yahoo.com/news/bankruptcy-trustee-discloses-plan-shut-171548221.html)
+- Jun 24 - [10 English Muffins Made With The Highest Quality Ingredients](https://www.yahoo.com/lifestyle/10-english-muffins-made-highest-183000161.html)
+- Jun 24 - [Body found believed to be missing hiker: SDPD](https://www.yahoo.com/news/body-found-believed-missing-hiker-182928026.html)
 <!-- feed end -->
 
 ### Onstream
