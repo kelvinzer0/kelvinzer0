@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - ['Truly Shocking': Prankster Reveals Trump Rally Moment That 'Knocked Me Over'](https://www.yahoo.com/entertainment/truly-shocking-prankster-reveals-trump-044529479.html)
+- Jun 24 - [Conservative-backed group is creating a list of federal workers it suspects could resist Trump plans](https://www.yahoo.com/news/conservative-backed-group-creating-list-041630123.html)
 - Jun 24 - [Exclusive-China's ByteDance working with Broadcom to develop advanced AI chip, sources say](https://finance.yahoo.com/news/exclusive-chinas-bytedance-working-broadcom-031153598.html)
-- Jun 24 - [Dow Jones Futures: Nvidia Skid Raises Questions; Three Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-fed-inflation-gauge/?src=A00220&yptr=yahoo)
 - Jun 24 - [At least 5 dead after missile fragments scatter over beachgoers in Russian-occupied Crimea](https://www.yahoo.com/news/least-5-dead-missile-fragments-202318893.html)
 - Jun 24 - [NHRA legend John Force hospitalized in ICU after fiery crash at Virginia Nationals](https://sports.yahoo.com/nhra-legend-john-force-hospitalized-in-icu-after-fiery-crash-at-virginia-nationals-010651843.html)
-- Jun 24 - [Oil extends losses as strong dollar weighs on commodities markets](https://finance.yahoo.com/news/oil-extends-losses-strong-dollar-005306718.html)
 <!-- feed end -->
 
 ### Onstream
