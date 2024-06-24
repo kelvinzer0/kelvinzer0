@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [UK trailblazer for desegregation and one of first Black graduates has died](https://www.yahoo.com/news/uk-trailblazer-desegregation-one-first-180506501.html)
-- Jun 24 - [For intolerant Farage supporters, grown-up debate has clearly become a farce](https://www.yahoo.com/news/intolerant-farage-supporters-grown-debate-180000755.html)
-- Jun 24 - [Workers jump to their deaths from burning Moscow research centre](https://www.yahoo.com/news/workers-jump-deaths-burning-moscow-175058173.html)
+- Jun 24 - [US needs Chinese students in humanities, Indian students for sciences, US diplomat says](https://www.yahoo.com/news/us-needs-chinese-students-humanities-181506683.html)
+- Jun 24 - [Banker Who Punched Woman After NYC Pride Event Finally Resigns](https://www.yahoo.com/news/banker-punched-woman-nyc-pride-180120881.html)
+- Jun 24 - [Body of man swept away by river after ‘last hug’ found in Italy](https://www.yahoo.com/news/body-man-swept-away-river-175549855.html)
 - Jun 24 - [Bankruptcy trustee discloses plan to shut down Alex Jones' Infowars and liquidate assets](https://www.yahoo.com/news/bankruptcy-trustee-discloses-plan-shut-171548221.html)
-- Jun 24 - [Electric-vehicle maker Rivian simplifies output, cuts costs, aiming for first profit](https://finance.yahoo.com/news/electric-vehicle-maker-rivian-simplifies-171445708.html)
+- Jun 24 - [Electric-vehicle maker Rivian simplifies output, cuts costs, aiming for first profit](https://finance.yahoo.com/news/electric-vehicle-maker-rivian-simplifies-171445078.html)
 <!-- feed end -->
 
 ### Onstream
