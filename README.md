@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Russia is crumbling from within](https://www.yahoo.com/news/russia-crumbling-within-142947072.html)
-- Jun 24 - [Editorial: Cannon fodder: Judge Aileen Cannon is there to advance an agenda](https://www.yahoo.com/news/editorial-cannon-fodder-judge-aileen-142900553.html)
-- Jun 24 - [Supreme Court rejects COVID-19 vaccine appeals from nonprofit founded by Robert F. Kennedy Jr.](https://www.yahoo.com/news/supreme-court-rejects-covid-19-142047808.html)
-- Jun 24 - [Fight over a kiss leads to Myrtle Beach, SC area man’s nose nearly sliced off from sword](https://www.yahoo.com/news/fight-over-kiss-leads-myrtle-134809951.html)
-- Jun 24 - [Dali cargo ship leaves Baltimore for Virginia, nearly 3 months after bridge collapse](https://www.yahoo.com/news/dali-cargo-ship-leaves-baltimore-132603169.html)
+- Jun 24 - [Texas' abortion ban tied to more Infant deaths, study indicates](https://www.yahoo.com/news/texas-abortion-ban-tied-more-155631059.html)
+- Jun 24 - [Watch: Black bear gets up close and personal at Gatlinburg theme park concession stand](https://www.yahoo.com/news/watch-black-bear-gets-close-154723872.html)
+- Jun 24 - [Chiefs reportedly releasing Isaiah Buggs after numerous offseason legal issues](https://sports.yahoo.com/chiefs-reportedly-releasing-isaiah-buggs-after-numerous-offseason-legal-issues-151325150.html)
+- Jun 24 - [AI Stocks: Tech Giants, Cloud Titans, Chipmakers Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jun 24 - [German investigators detain 2 men who allegedly tried to blackmail the family of Michael Schumacher](https://www.yahoo.com/news/german-investigators-detain-2-men-145544678.html)
 <!-- feed end -->
 
 ### Onstream
