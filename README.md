@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Holly Willoughby kidnap trial – live: Man accused of murder and rape plot ‘violent towards women in real life’](https://www.yahoo.com/news/holly-willoughby-kidnap-trial-live-082703315.html)
-- Jun 24 - [Princess Anne in hospital with concussion after ‘being kicked by horse’](https://www.independent.co.uk/news/uk/home-news/princess-anne-hospital-concussion-injury-health-palace-b2567752.html)
 - Jun 24 - [Russia summons the American ambassador over a deadly attack that Moscow says used US-made missiles](https://www.yahoo.com/news/russia-summons-american-ambassador-over-120106637.html)
-- Jun 24 - [The stock market is having its best election year ever](https://finance.yahoo.com/news/stock-market-having-best-election-113241270.html)
-- Jun 24 - [Ukraine destroyed columns of waiting Russian troops as soon as it was allowed to strike across the border, commander says](https://www.yahoo.com/news/ukraine-destroyed-columns-waiting-russian-113148740.html)
+- Jun 24 - [Several animals rescued from “horrific” Adams County school bus case put down](https://www.yahoo.com/news/several-animals-rescued-horrific-adams-113708012.html)
+- Jun 24 - [Ukraine destroyed columns of waiting Russian troops as soon as it was allowed to strike across the border, commander says](https://www.yahoo.com/news/ukraine-destroyed-columns-waiting-russian-113148244.html)
+- Jun 24 - [Fact check: Trump says George Washington ‘probably didn’t’ own slaves. Washington did](https://www.yahoo.com/news/fact-check-trump-says-george-112808533.html)
+- Jun 24 - [Donald Trump Talks About Taking Off His Shirt To Show 'Wounds.' Internet Can't Even.](https://www.yahoo.com/entertainment/donald-trump-talks-taking-off-105630724.html)
 <!-- feed end -->
 
 ### Onstream
