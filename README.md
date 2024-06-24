@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [China is greenlighting possible death penalties for 'diehard' supporters of Taiwan gaining independence](https://www.yahoo.com/news/china-greenlighting-possible-death-penalties-051356316.html)
+- Jun 24 - [Philippines to continue South China Sea resupply missions, Defense Sec says](https://www.yahoo.com/news/philippines-continue-south-china-sea-065803481.html)
+- Jun 24 - ['Look At The Evidence': Karl Rove Drops Bad News For Trump Live On Fox News](https://www.yahoo.com/news/look-evidence-karl-rove-drops-062303153.html)
+- Jun 24 - [Will Hungary hijack the EU during its presidency?](https://www.yahoo.com/news/hungary-hijack-eu-during-presidency-052325885.html)
 - Jun 24 - ['Truly Shocking': Prankster Reveals Trump Rally Moment That 'Knocked Me Over'](https://www.yahoo.com/entertainment/truly-shocking-prankster-reveals-trump-044529479.html)
 - Jun 24 - [Legendary Pipeline Surfer Tamayo Perry Killed in Shark Attack](https://www.yahoo.com/news/legendary-pipeline-surfer-tamayo-perry-042635123.html)
-- Jun 24 - [Why Trump is suddenly talking up Biden after months of slamming his cognitive capacity](https://www.yahoo.com/news/why-trump-suddenly-talking-biden-040015893.html)
-- Jun 24 - [Exclusive-China's ByteDance working with Broadcom to develop advanced AI chip, sources say](https://finance.yahoo.com/news/exclusive-chinas-bytedance-working-broadcom-031153598.html)
 <!-- feed end -->
 
 ### Onstream
