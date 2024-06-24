@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Philippines to continue South China Sea resupply missions, Defense Sec says](https://www.yahoo.com/news/philippines-continue-south-china-sea-065803481.html)
+- Jun 24 - [Nvidia CEO Jensen Huang Sold $95 Million of Stock. Other Chip CEOs Are Selling.](https://www.barrons.com/articles/nvidia-stock-sales-chip-ceos-26aa9eee?siteid=yhoof2&yptr=yahoo)
+- Jun 24 - [Pakistani police charge 23 people with being part of a mob that murdered a blasphemy suspect](https://www.yahoo.com/news/pakistani-police-charge-23-people-064650387.html)
 - Jun 24 - ['Look At The Evidence': Karl Rove Drops Bad News For Trump Live On Fox News](https://www.yahoo.com/news/look-evidence-karl-rove-drops-062303153.html)
-- Jun 24 - [Will Hungary hijack the EU during its presidency?](https://www.yahoo.com/news/hungary-hijack-eu-during-presidency-052325885.html)
 - Jun 24 - ['Truly Shocking': Prankster Reveals Trump Rally Moment That 'Knocked Me Over'](https://www.yahoo.com/entertainment/truly-shocking-prankster-reveals-trump-044529479.html)
 - Jun 24 - [Legendary Pipeline Surfer Tamayo Perry Killed in Shark Attack](https://www.yahoo.com/news/legendary-pipeline-surfer-tamayo-perry-042635123.html)
 <!-- feed end -->
