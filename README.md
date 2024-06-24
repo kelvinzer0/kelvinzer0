@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [North Carolina Family of 5 Tortured with Hot Metal During Home Invasion: Police](https://www.yahoo.com/news/north-carolina-family-5-tortured-000919137.html)
-- Jun 23 - [Missing hiker survives by drinking gallon of water a day](https://www.yahoo.com/news/missing-hiker-survives-drinking-gallon-223320144.html)
-- Jun 23 - [Hiker goes missing on Black Mountain trail: SDPD](https://www.yahoo.com/news/hiker-goes-missing-black-mountain-220936265.html)
-- Jun 23 - [Russia's North Korea defense deal could create friction with China: US general](https://www.yahoo.com/news/russias-north-korea-defense-deal-220702040.html)
-- Jun 23 - [Under curfew, Ukrainians mark midsummer with bonfire jumping at a festival with pagan roots](https://www.yahoo.com/news/under-curfew-ukrainians-mark-midsummer-205730529.html)
+- Jun 24 - [Dow Jones Futures: Nvidia Skid Raises Questions; Three Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-fed-inflation-gauge/?src=A00220&yptr=yahoo)
+- Jun 24 - [China wants EU to scrap EV tariffs on EVs by July 4, Chinese state media reports](https://finance.yahoo.com/news/china-wants-eu-scrap-ev-021607550.html)
+- Jun 24 - [NHRA legend John Force hospitalized in ICU after fiery crash at Virginia Nationals](https://sports.yahoo.com/nhra-legend-john-force-hospitalized-in-icu-after-fiery-crash-at-virginia-nationals-010651843.html)
+- Jun 24 - [Oil extends losses as strong dollar weighs on commodities markets](https://finance.yahoo.com/news/oil-extends-losses-strong-dollar-005306718.html)
+- Jun 23 - [Maryland couple among thousands dead while on pilgrimage to Mecca amid severe heat](https://www.yahoo.com/news/maryland-couple-among-thousands-dead-213424063.html)
 <!-- feed end -->
 
 ### Onstream
