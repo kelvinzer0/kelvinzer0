@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Captive-bred Scottish wildcats give birth in wild](https://www.yahoo.com/news/captive-bred-scottish-wildcats-birth-092515476.html)
-- Jun 24 - [Why Trump is suddenly talking up Biden after months of slamming his cognitive capacity](https://www.yahoo.com/news/why-trump-suddenly-talking-biden-040015893.html)
-- Jun 24 - [I'm the parent of a trans daughter. There's nothing conservative about blocking her care.](https://www.yahoo.com/news/im-parent-trans-daughter-theres-090717164.html)
-- Jun 24 - [Marco Island approves variances for adding pickleball courts at racquet center](https://www.yahoo.com/news/marco-island-approves-variances-adding-090657156.html)
+- Jun 24 - [Dow Jones Futures: Nvidia Skid Raises Questions; Three Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-fed-inflation-gauge/?src=A00220&yptr=yahoo)
+- Jun 24 - [Here are 5 common traits of Americans who can never, ever retire — how many do you have?](https://finance.yahoo.com/news/5-common-traits-americans-never-100200194.html)
+- Jun 24 - [When is the first day of school for Nashville and Middle Tennessee districts?](https://www.yahoo.com/news/first-day-school-nashville-middle-100059351.html)
 - Jun 24 - [Finally, an answer to a mystery surrounding these 1,000-year-old trees](https://www.yahoo.com/news/finally-answer-mystery-surrounding-1-081301413.html)
+- Jun 24 - [Eric Trump's 'Unvarnished' Claim About Dad Gets Brutal Instant Fact-Check](https://www.yahoo.com/news/eric-trumps-unvarnished-claim-dad-075141750.html)
 <!-- feed end -->
 
 ### Onstream
