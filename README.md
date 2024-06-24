@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Things to know about dangerous rip currents and how swimmers caught in one can escape](https://www.yahoo.com/news/things-know-dangerous-rip-currents-162534163.html)
-- Jun 24 - [Witnesses heard screams for help coming from a camper at Lake Lanier. What deputies discovered later](https://www.yahoo.com/news/witnesses-heard-screams-help-coming-152254852.html)
-- Jun 24 - [AI Stocks: Tech Giants, Cloud Titans, Chipmakers Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jun 24 - [Texas' anti-abortion heartbeat law aimed to save babies. Instead more infants died.](https://www.yahoo.com/news/texas-anti-abortion-heartbeat-law-150049517.html)
-- Jun 24 - [‘I had a mountain lion that was following me’: Hiker missing for 10 days describes experience](https://www.yahoo.com/news/had-mountain-lion-following-hiker-143855282.html)
+- Jun 24 - [UK trailblazer for desegregation and one of first Black graduates has died](https://www.yahoo.com/news/uk-trailblazer-desegregation-one-first-180506501.html)
+- Jun 24 - [For intolerant Farage supporters, grown-up debate has clearly become a farce](https://www.yahoo.com/news/intolerant-farage-supporters-grown-debate-180000755.html)
+- Jun 24 - [Workers jump to their deaths from burning Moscow research centre](https://www.yahoo.com/news/workers-jump-deaths-burning-moscow-175058173.html)
+- Jun 24 - [Bankruptcy trustee discloses plan to shut down Alex Jones' Infowars and liquidate assets](https://www.yahoo.com/news/bankruptcy-trustee-discloses-plan-shut-171548221.html)
+- Jun 24 - [Electric-vehicle maker Rivian simplifies output, cuts costs, aiming for first profit](https://finance.yahoo.com/news/electric-vehicle-maker-rivian-simplifies-171445708.html)
 <!-- feed end -->
 
 ### Onstream
