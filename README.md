@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [Tribes, States Get $10M for Veteran Suicide Prevention](https://www.yahoo.com/news/tribes-states-10m-veteran-suicide-195247399.html)
+- Jun 24 - [A Russian soldier's killing of a wounded comrade highlights the 'brutal culture' rampant inside Russia's military, war analysts say](https://www.yahoo.com/news/russian-soldiers-killing-wounded-comrade-190154691.html)
 - Jun 24 - [US needs Chinese students in humanities, Indian students for sciences, US diplomat says](https://www.yahoo.com/news/us-needs-chinese-students-humanities-181506683.html)
-- Jun 24 - [Banker Who Punched Woman After NYC Pride Event Finally Resigns](https://www.yahoo.com/news/banker-punched-woman-nyc-pride-180120881.html)
-- Jun 24 - [Body of man swept away by river after ‘last hug’ found in Italy](https://www.yahoo.com/news/body-man-swept-away-river-175549855.html)
+- Jun 24 - [Hooters closes several ‘underperforming’ restaurants](https://finance.yahoo.com/news/hooters-closes-several-underperforming-restaurants-155618388.html)
 - Jun 24 - [Bankruptcy trustee discloses plan to shut down Alex Jones' Infowars and liquidate assets](https://www.yahoo.com/news/bankruptcy-trustee-discloses-plan-shut-171548221.html)
-- Jun 24 - [Electric-vehicle maker Rivian simplifies output, cuts costs, aiming for first profit](https://finance.yahoo.com/news/electric-vehicle-maker-rivian-simplifies-171445078.html)
 <!-- feed end -->
 
 ### Onstream
