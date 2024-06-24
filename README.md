@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Dow Jones Futures: Nvidia Skid Raises Questions; Three Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-fed-inflation-gauge/?src=A00220&yptr=yahoo)
-- Jun 24 - [China wants EU to scrap EV tariffs on EVs by July 4, Chinese state media reports](https://finance.yahoo.com/news/china-wants-eu-scrap-ev-021607550.html)
+- Jun 24 - [At least 5 dead after missile fragments scatter over beachgoers in Russian-occupied Crimea](https://www.yahoo.com/news/least-5-dead-missile-fragments-202318893.html)
 - Jun 24 - [NHRA legend John Force hospitalized in ICU after fiery crash at Virginia Nationals](https://sports.yahoo.com/nhra-legend-john-force-hospitalized-in-icu-after-fiery-crash-at-virginia-nationals-010651843.html)
 - Jun 24 - [Oil extends losses as strong dollar weighs on commodities markets](https://finance.yahoo.com/news/oil-extends-losses-strong-dollar-005306718.html)
-- Jun 23 - [Maryland couple among thousands dead while on pilgrimage to Mecca amid severe heat](https://www.yahoo.com/news/maryland-couple-among-thousands-dead-213424063.html)
+- Jun 24 - [Parts of Modi’s Agenda Face Risk in India’s Fractured Parliament](https://www.yahoo.com/news/parts-modi-agenda-face-risk-000000679.html)
+- Jun 23 - [Missing hiker survives by drinking gallon of water a day](https://www.yahoo.com/news/missing-hiker-survives-drinking-gallon-223320144.html)
 <!-- feed end -->
 
 ### Onstream
