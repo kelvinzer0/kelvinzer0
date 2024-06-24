@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 24 - [Former North Dakota lawmaker to plead guilty to traveling to pay for sex with minor](https://www.yahoo.com/news/former-north-dakota-lawmaker-plead-203854599.html)
-- Jun 24 - [Explainer-How Boeing's Starliner can bring its astronauts back to Earth](https://www.yahoo.com/news/explainer-boeings-starliner-bring-astronauts-192318552.html)
-- Jun 24 - [A Russian soldier's killing of a wounded comrade highlights the 'brutal culture' rampant inside Russia's military, war analysts say](https://www.yahoo.com/news/russian-soldiers-killing-wounded-comrade-190154691.html)
-- Jun 24 - [10 English Muffins Made With The Highest Quality Ingredients](https://www.yahoo.com/lifestyle/10-english-muffins-made-highest-183000161.html)
-- Jun 24 - [Body found believed to be missing hiker: SDPD](https://www.yahoo.com/news/body-found-believed-missing-hiker-182928026.html)
+- Jun 24 - [Gov. Sanders orders flags to half-staff to honor victims of deadly Fordyce mass shooting](https://www.yahoo.com/news/gov-sanders-orders-flags-half-201834365.html)
+- Jun 24 - [Amid increasing mountain lion sightings, California county turns to Facebook to share info](https://www.yahoo.com/news/amid-increasing-mountain-lion-sightings-200037917.html)
+- Jun 24 - [Hooters abruptly closes dozens of locations across US, including these in Florida](https://www.yahoo.com/news/hooters-abruptly-closes-dozens-locations-195541644.html)
+- Jun 24 - [Judge Aileen Cannon Dresses Down Trump Prosecutor: ‘I Don’t Appreciate Your Tone’](https://www.yahoo.com/news/judge-cannon-entertains-trump-complaints-194102718.html)
 <!-- feed end -->
 
 ### Onstream
