@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [Supreme Court rejects challenge to Connecticut law that eliminated religious vaccination exemption](https://www.yahoo.com/news/supreme-court-rejects-challenge-connecticut-134032511.html)
+- Jun 24 - [Three Stocks That May Be Trading Below Their Estimated Value In June 2024](https://finance.yahoo.com/news/three-stocks-may-trading-below-130338422.html)
 - Jun 24 - [Russia summons the American ambassador over a deadly attack that Moscow says used US-made missiles](https://www.yahoo.com/news/russia-summons-american-ambassador-over-120106637.html)
-- Jun 24 - [Several animals rescued from “horrific” Adams County school bus case put down](https://www.yahoo.com/news/several-animals-rescued-horrific-adams-113708012.html)
 - Jun 24 - [Ukraine destroyed columns of waiting Russian troops as soon as it was allowed to strike across the border, commander says](https://www.yahoo.com/news/ukraine-destroyed-columns-waiting-russian-113148244.html)
 - Jun 24 - [Fact check: Trump says George Washington ‘probably didn’t’ own slaves. Washington did](https://www.yahoo.com/news/fact-check-trump-says-george-112808533.html)
-- Jun 24 - [Donald Trump Talks About Taking Off His Shirt To Show 'Wounds.' Internet Can't Even.](https://www.yahoo.com/entertainment/donald-trump-talks-taking-off-105630724.html)
 <!-- feed end -->
 
 ### Onstream
