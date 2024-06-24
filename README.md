@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [Vice President Harris slams Trump on anniversary of Supreme Court abortion decision](https://www.yahoo.com/news/vice-president-harris-slams-trump-224500188.html)
+- Jun 24 - [Trump has spent months painting Biden as incompetent. Now he's changing his tone before the debate](https://www.yahoo.com/news/trump-spent-months-painting-biden-220005863.html)
+- Jun 24 - [Husband of bride who was killed on wedding night in an alleged DUI crash awarded $1.3 million in wrongful death settlement](https://www.yahoo.com/news/husband-bride-killed-wedding-night-214226857.html)
+- Jun 24 - [Trump Facing More Trouble After Shady Meeting With Oil Executives](https://www.yahoo.com/news/trump-facing-more-trouble-shady-210920355.html)
 - Jun 24 - [Former North Dakota lawmaker to plead guilty to traveling to pay for sex with minor](https://www.yahoo.com/news/former-north-dakota-lawmaker-plead-203854599.html)
-- Jun 24 - [Gov. Sanders orders flags to half-staff to honor victims of deadly Fordyce mass shooting](https://www.yahoo.com/news/gov-sanders-orders-flags-half-201834365.html)
-- Jun 24 - [Amid increasing mountain lion sightings, California county turns to Facebook to share info](https://www.yahoo.com/news/amid-increasing-mountain-lion-sightings-200037917.html)
-- Jun 24 - [Hooters abruptly closes dozens of locations across US, including these in Florida](https://www.yahoo.com/news/hooters-abruptly-closes-dozens-locations-195541644.html)
-- Jun 24 - [Judge Aileen Cannon Dresses Down Trump Prosecutor: ‘I Don’t Appreciate Your Tone’](https://www.yahoo.com/news/judge-cannon-entertains-trump-complaints-194102718.html)
 <!-- feed end -->
 
 ### Onstream
