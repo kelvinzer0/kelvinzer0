@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Supreme Court rejects challenge to Connecticut law that eliminated religious vaccination exemption](https://www.yahoo.com/news/supreme-court-rejects-challenge-connecticut-134032511.html)
-- Jun 24 - [Three Stocks That May Be Trading Below Their Estimated Value In June 2024](https://finance.yahoo.com/news/three-stocks-may-trading-below-130338422.html)
-- Jun 24 - [Russia summons the American ambassador over a deadly attack that Moscow says used US-made missiles](https://www.yahoo.com/news/russia-summons-american-ambassador-over-120106637.html)
-- Jun 24 - [Ukraine destroyed columns of waiting Russian troops as soon as it was allowed to strike across the border, commander says](https://www.yahoo.com/news/ukraine-destroyed-columns-waiting-russian-113148244.html)
-- Jun 24 - [Fact check: Trump says George Washington ‘probably didn’t’ own slaves. Washington did](https://www.yahoo.com/news/fact-check-trump-says-george-112808533.html)
+- Jun 24 - [Russia is crumbling from within](https://www.yahoo.com/news/russia-crumbling-within-142947072.html)
+- Jun 24 - [Editorial: Cannon fodder: Judge Aileen Cannon is there to advance an agenda](https://www.yahoo.com/news/editorial-cannon-fodder-judge-aileen-142900553.html)
+- Jun 24 - [Supreme Court rejects COVID-19 vaccine appeals from nonprofit founded by Robert F. Kennedy Jr.](https://www.yahoo.com/news/supreme-court-rejects-covid-19-142047808.html)
+- Jun 24 - [Fight over a kiss leads to Myrtle Beach, SC area man’s nose nearly sliced off from sword](https://www.yahoo.com/news/fight-over-kiss-leads-myrtle-134809951.html)
+- Jun 24 - [Dali cargo ship leaves Baltimore for Virginia, nearly 3 months after bridge collapse](https://www.yahoo.com/news/dali-cargo-ship-leaves-baltimore-132603169.html)
 <!-- feed end -->
 
 ### Onstream
