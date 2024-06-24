@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [China is greenlighting possible death penalties for 'diehard' supporters of Taiwan gaining independence](https://www.yahoo.com/news/china-greenlighting-possible-death-penalties-051356316.html)
 - Jun 24 - ['Truly Shocking': Prankster Reveals Trump Rally Moment That 'Knocked Me Over'](https://www.yahoo.com/entertainment/truly-shocking-prankster-reveals-trump-044529479.html)
-- Jun 24 - [Conservative-backed group is creating a list of federal workers it suspects could resist Trump plans](https://www.yahoo.com/news/conservative-backed-group-creating-list-041630123.html)
+- Jun 24 - [Legendary Pipeline Surfer Tamayo Perry Killed in Shark Attack](https://www.yahoo.com/news/legendary-pipeline-surfer-tamayo-perry-042635123.html)
+- Jun 24 - [Why Trump is suddenly talking up Biden after months of slamming his cognitive capacity](https://www.yahoo.com/news/why-trump-suddenly-talking-biden-040015893.html)
 - Jun 24 - [Exclusive-China's ByteDance working with Broadcom to develop advanced AI chip, sources say](https://finance.yahoo.com/news/exclusive-chinas-bytedance-working-broadcom-031153598.html)
-- Jun 24 - [At least 5 dead after missile fragments scatter over beachgoers in Russian-occupied Crimea](https://www.yahoo.com/news/least-5-dead-missile-fragments-202318893.html)
-- Jun 24 - [NHRA legend John Force hospitalized in ICU after fiery crash at Virginia Nationals](https://sports.yahoo.com/nhra-legend-john-force-hospitalized-in-icu-after-fiery-crash-at-virginia-nationals-010651843.html)
 <!-- feed end -->
 
 ### Onstream
