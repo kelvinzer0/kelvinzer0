@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Texas' abortion ban tied to more Infant deaths, study indicates](https://www.yahoo.com/news/texas-abortion-ban-tied-more-155631059.html)
-- Jun 24 - [Watch: Black bear gets up close and personal at Gatlinburg theme park concession stand](https://www.yahoo.com/news/watch-black-bear-gets-close-154723872.html)
-- Jun 24 - [Chiefs reportedly releasing Isaiah Buggs after numerous offseason legal issues](https://sports.yahoo.com/chiefs-reportedly-releasing-isaiah-buggs-after-numerous-offseason-legal-issues-151325150.html)
+- Jun 24 - [Things to know about dangerous rip currents and how swimmers caught in one can escape](https://www.yahoo.com/news/things-know-dangerous-rip-currents-162534163.html)
+- Jun 24 - [Witnesses heard screams for help coming from a camper at Lake Lanier. What deputies discovered later](https://www.yahoo.com/news/witnesses-heard-screams-help-coming-152254852.html)
 - Jun 24 - [AI Stocks: Tech Giants, Cloud Titans, Chipmakers Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jun 24 - [German investigators detain 2 men who allegedly tried to blackmail the family of Michael Schumacher](https://www.yahoo.com/news/german-investigators-detain-2-men-145544678.html)
+- Jun 24 - [Texas' anti-abortion heartbeat law aimed to save babies. Instead more infants died.](https://www.yahoo.com/news/texas-anti-abortion-heartbeat-law-150049517.html)
+- Jun 24 - [‘I had a mountain lion that was following me’: Hiker missing for 10 days describes experience](https://www.yahoo.com/news/had-mountain-lion-following-hiker-143855282.html)
 <!-- feed end -->
 
 ### Onstream
