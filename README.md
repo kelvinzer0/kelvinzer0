@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [‘Million Dollar Listing’ Star Josh Altman: Buy in These 5 Cities Before Homes Become Unaffordable](https://finance.yahoo.com/news/million-dollar-listing-star-josh-160603348.html)
-- Jun 25 - [Zelensky sacks commander ‘who killed more Ukrainians than any Russian’](https://www.yahoo.com/news/zelensky-sacks-commander-killed-more-154357256.html)
-- Jun 25 - [Alien Warp Drives May Have Left Trails Through Space That We Could Detect, Scientists Say](https://www.yahoo.com/news/alien-warp-drives-may-left-150042021.html)
-- Jun 25 - [Elon Musk confirms 12th child as he and Shivon Zilis welcomed new baby earlier this year](https://www.yahoo.com/entertainment/elon-musk-confirms-12th-child-163147002.html)
-- Jun 25 - [Panicking Trump Tries Yet Another Get-Out-of-Debate-Free Card](https://www.yahoo.com/news/panicking-trump-tries-yet-another-134945473.html)
+- Jun 25 - [We finally know how many Cybertrucks Tesla has sold so far](https://finance.yahoo.com/news/we-finally-know-how-many-cybertrucks-tesla-has-sold-so-far-163314428.html)
+- Jun 25 - [US carrier strike group's new video captures the Navy's explosive front-line combat in the Red Sea](https://www.yahoo.com/news/us-carrier-strike-groups-video-162010609.html)
+- Jun 25 - [‘We’re heartbroken’: Raging blaze tears through historic restaurant under construction in Boston](https://www.yahoo.com/news/insane-raging-blaze-tears-historic-123357052.html)
+- Jun 25 - [After a wet May, June turns to drought across the Shenandoah Valley](https://www.yahoo.com/news/wet-may-june-turns-drought-154613357.html)
+- Jun 25 - [WILD VIDEO: Bystander captures road rage shooting at busy Plaza Midwood intersection](https://www.yahoo.com/news/wild-video-bystander-captures-road-140845756.html)
 <!-- feed end -->
 
 ### Onstream
