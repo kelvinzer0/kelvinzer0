@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Clinton family now homeless after car crash leaves their house uninhabitable](https://www.yahoo.com/news/clinton-family-now-homeless-car-020336473.html)
-- Jun 25 - [Apple pauses planned RTP campus as tech giant seeks to push back North Carolina agreement](https://finance.yahoo.com/news/apple-pauses-planned-rtp-campus-001457356.html)
-- Jun 25 - [Who is Travis Posey? Look into the Fordyce mass shooting suspect’s background](https://www.yahoo.com/news/travis-posey-look-fordyce-mass-001202315.html)
-- Jun 24 - [Alabama town's first Black mayor, who had been locked out of office, will return under settlement](https://www.yahoo.com/news/alabama-towns-first-black-mayor-234709068.html)
-- Jun 24 - [Trump has spent months painting Biden as incompetent. Now he's changing his tone before the debate](https://www.yahoo.com/news/trump-spent-months-painting-biden-220005863.html)
+- Jun 25 - [China's BYD launches third EV model in Japan](https://finance.yahoo.com/news/chinas-byd-launches-third-ev-020951558.html)
+- Jun 25 - [Savannah Chrisley Reacts to Mom Julie's Overturned Prison Sentence](https://www.yahoo.com/entertainment/savannah-chrisley-reacts-mom-julies-015211943.html)
+- Jun 25 - [Boeing offers to buy 737 supplier Spirit Aero for $35/shr, Bloomberg News reports](https://finance.yahoo.com/news/boeing-bid-spirit-aero-values-013128103.html)
+- Jun 25 - [An overload of warning signals mark the 'last straw' that could send the S&P 500 plunging 70%, famed permabear says](https://finance.yahoo.com/news/overload-warning-signals-mark-last-012546123.html)
+- Jun 25 - [Costco CEO says 1 item is more important than everything else sold in the store](https://finance.yahoo.com/news/costco-ceo-says-1-item-004803243.html)
 <!-- feed end -->
 
 ### Onstream
