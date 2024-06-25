@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [‘A&E staff told me my catatonic schizophrenic wife was not a priority’, says ‘broken’ husband](https://www.yahoo.com/news/catatonic-wife-repeatedly-told-she-230146869.html)
-- Jun 25 - [Jordan Klepper Explains How He Avoids Getting Killed By MAGA Fans At Trump Rallies](https://www.yahoo.com/entertainment/jordan-klepper-explains-avoids-getting-083853847.html)
+- Jun 25 - [Water shoots from break in Scott Township](https://www.yahoo.com/news/water-shoots-break-scott-township-093242112.html)
 - Jun 25 - [Will Trump chicken out of the presidential debate? Probably. He's a Grade-A coward.](https://www.yahoo.com/news/trump-chicken-presidential-debate-probably-080629745.html)
+- Jun 25 - [Elon Musk confirms 12th child as he and Shivon Zilis welcomed new baby earlier this year](https://www.yahoo.com/entertainment/elon-musk-confirms-12th-child-163147002.html)
 - Jun 25 - [Vietnam's VinFast looks to tiny EV, priced at less than $10,000, to change its fortunes](https://finance.yahoo.com/news/vietnams-vinfast-looks-tiny-ev-043538433.html)
 - Jun 25 - [Céline Dion suffers 'unimaginable' medical crisis on camera: Her doctor explains what happened](https://www.yahoo.com/news/c-line-dion-suffers-unimaginable-040019804.html)
 <!-- feed end -->
