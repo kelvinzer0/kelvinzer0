@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 25 - [‘A&E staff told me my catatonic schizophrenic wife was not a priority’, says ‘broken’ husband](https://www.yahoo.com/news/catatonic-wife-repeatedly-told-she-230146869.html)
-- Jun 25 - [Explosion at homeless encampment injures, hospitalizes LA firefighter responding to flames](https://www.yahoo.com/news/explosion-homeless-encampment-injures-hospitalizes-124020009.html)
-- Jun 25 - [$5,000 reward as Detroit police seek tips on fatal shooting of Oakland County deputy](https://www.yahoo.com/news/5-000-reward-detroit-police-123932066.html)
-- Jun 25 - [Oklahoma Educators Hall of Fame inducts 3 more people, but still has no home for portraits](https://www.yahoo.com/news/oklahoma-educators-hall-fame-inducts-122714399.html)
+- Jun 25 - [Analysis-Engine maker's Boeing dilemma helped to stall Airbus's output plans](https://finance.yahoo.com/news/analysis-engine-makers-boeing-dilemma-125341557.html)
+- Jun 25 - [The corrupt behavior of SCOTUS Justices Alito and Thomas | Opinion](https://www.yahoo.com/news/corrupt-behavior-scotus-justices-alito-125112740.html)
+- Jun 25 - [Judge imposes 21 life terms against woman who sexually abused her two sons, family dog](https://www.yahoo.com/news/judge-imposes-21-life-terms-122456393.html)
 - Jun 25 - [Ford recalls over 550,000 pickup trucks because transmissions can suddenly downshift to 1st gear](https://www.yahoo.com/news/ford-recalls-over-550-000-105618024.html)
 <!-- feed end -->
 
