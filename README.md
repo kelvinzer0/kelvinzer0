@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Apple pauses planned RTP campus as tech giant seeks to push back North Carolina agreement](https://finance.yahoo.com/news/apple-pauses-planned-rtp-campus-001457356.html)
-- Jun 24 - [‘My catatonic wife repeatedly told she wasn’t a priority’ says husband battling the NHS mental health system](https://www.yahoo.com/news/catatonic-wife-repeatedly-told-she-230146869.html)
-- Jun 24 - [Tillis pushes back on conservatives’ bid for GOP rules reform](https://www.yahoo.com/news/tillis-pushes-back-conservatives-bid-221607024.html)
+- Jun 25 - [Who is Travis Posey? Look into the Fordyce mass shooting suspect’s background](https://www.yahoo.com/news/travis-posey-look-fordyce-mass-001202315.html)
+- Jun 24 - [Alabama town's first Black mayor, who had been locked out of office, will return under settlement](https://www.yahoo.com/news/alabama-towns-first-black-mayor-234709068.html)
+- Jun 24 - [Experienced pilot lost power, lands in Columbia River](https://www.yahoo.com/news/pilot-makes-emergency-landing-columbia-231328653.html)
 - Jun 24 - [Trump has spent months painting Biden as incompetent. Now he's changing his tone before the debate](https://www.yahoo.com/news/trump-spent-months-painting-biden-220005863.html)
 - Jun 24 - [Trump Facing More Trouble After Shady Meeting With Oil Executives](https://www.yahoo.com/news/trump-facing-more-trouble-shady-210920355.html)
 <!-- feed end -->
