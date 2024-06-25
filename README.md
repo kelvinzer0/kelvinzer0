@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 25 - [Exclusive-Trump reviews plan to halt US military aid to Ukraine unless it negotiates peace with Moscow](https://www.yahoo.com/news/exclusive-trump-reviews-plan-halt-050114838.html)
-- Jun 25 - [Evacuations ordered as 600-acre-plus wildfire burns in Butte County, Cal Fire says](https://www.yahoo.com/news/evacuations-ordered-nearly-500-acre-042002232.html)
 - Jun 25 - [Céline Dion suffers 'unimaginable' medical crisis on camera: Her doctor explains what happened](https://www.yahoo.com/news/c-line-dion-suffers-unimaginable-040019804.html)
 - Jun 25 - [China's BYD launches third EV model in Japan](https://finance.yahoo.com/news/chinas-byd-launches-third-ev-020951558.html)
-- Jun 25 - [Costco CEO says 1 item is more important than everything else sold in the store](https://finance.yahoo.com/news/costco-ceo-says-1-item-004803243.html)
+- Jun 25 - [An overload of warning signals mark the 'last straw' that could send the S&P 500 plunging 70%, famed permabear says](https://finance.yahoo.com/news/overload-warning-signals-mark-last-012546123.html)
+- Jun 25 - [One Oregon region identified as potential ‘hotbed’ for 2024 wildfire season](https://www.yahoo.com/news/one-oregon-region-identified-potential-005525659.html)
 <!-- feed end -->
 
 ### Onstream
