@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Boeing offers to buy 737 supplier Spirit Aero for $35/shr, Bloomberg News reports](https://finance.yahoo.com/news/boeing-bid-spirit-aero-values-013128103.html)
-- Jun 25 - [Apple pauses planned RTP campus as tech giant seeks to push back North Carolina agreement](https://finance.yahoo.com/news/apple-pauses-planned-rtp-campus-001457356.html)
-- Jun 24 - [Experienced pilot lost power, lands in Columbia River](https://www.yahoo.com/news/pilot-makes-emergency-landing-columbia-231328653.html)
-- Jun 24 - [‘Please send help. I’m stuck’: RTA driver pleads for assistance after bus surrounded](https://www.yahoo.com/news/please-send-help-m-stuck-224007356.html)
-- Jun 24 - [Trump has spent months painting Biden as incompetent. Now he's changing his tone before the debate](https://www.yahoo.com/news/trump-spent-months-painting-biden-220005863.html)
+- Jun 25 - [Exclusive-Trump reviews plan to halt US military aid to Ukraine unless it negotiates peace with Moscow](https://www.yahoo.com/news/exclusive-trump-reviews-plan-halt-050114838.html)
+- Jun 25 - [Evacuations ordered as 600-acre-plus wildfire burns in Butte County, Cal Fire says](https://www.yahoo.com/news/evacuations-ordered-nearly-500-acre-042002232.html)
+- Jun 25 - [Céline Dion suffers 'unimaginable' medical crisis on camera: Her doctor explains what happened](https://www.yahoo.com/news/c-line-dion-suffers-unimaginable-040019804.html)
+- Jun 25 - [China's BYD launches third EV model in Japan](https://finance.yahoo.com/news/chinas-byd-launches-third-ev-020951558.html)
+- Jun 25 - [Costco CEO says 1 item is more important than everything else sold in the store](https://finance.yahoo.com/news/costco-ceo-says-1-item-004803243.html)
 <!-- feed end -->
 
 ### Onstream
