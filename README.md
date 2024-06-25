@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Nvidia short sellers make $5 billion, data shows](https://finance.yahoo.com/video/nvidia-short-sellers-5-billion-181045363.html)
+- Jun 25 - [Man charged with luring children into Lancaster County park bathroom stall](https://www.yahoo.com/news/man-charged-luring-children-lancaster-181328825.html)
 - Jun 25 - [15 People Snapped Photos Of The Most Ridiculous Signs Management (And Other Coworkers) Posted At Work](https://www.yahoo.com/lifestyle/15-people-snapped-photos-most-180438105.html)
 - Jun 25 - [California fast-food franchise owners, consumers feel brunt of minimum wage hike](https://finance.yahoo.com/news/california-fast-food-franchise-owners-consumers-feel-brunt-of-minimum-wage-hike-174515934.html)
-- Jun 25 - [Disney Tried To Get Gina Carano's 'Mandalorian' Lawsuit Quickly Dismissed, But The Judge Said Not So Fast](https://www.yahoo.com/entertainment/disney-tried-gina-caranos-mandalorian-170000794.html)
 - Jun 25 - [California radiologist who drove car off cliff with family inside will not face trial](https://www.yahoo.com/news/california-radiologist-drove-car-off-165429747.html)
+- Jun 25 - [Monica Lewinsky says Judge Cannon should be impeached](https://www.yahoo.com/news/monica-lewinsky-says-judge-cannon-164340821.html)
 <!-- feed end -->
 
 ### Onstream
