@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [We finally know how many Cybertrucks Tesla has sold so far](https://finance.yahoo.com/news/we-finally-know-how-many-cybertrucks-tesla-has-sold-so-far-163314428.html)
-- Jun 25 - [US carrier strike group's new video captures the Navy's explosive front-line combat in the Red Sea](https://www.yahoo.com/news/us-carrier-strike-groups-video-162010609.html)
-- Jun 25 - [‘We’re heartbroken’: Raging blaze tears through historic restaurant under construction in Boston](https://www.yahoo.com/news/insane-raging-blaze-tears-historic-123357052.html)
-- Jun 25 - [After a wet May, June turns to drought across the Shenandoah Valley](https://www.yahoo.com/news/wet-may-june-turns-drought-154613357.html)
-- Jun 25 - [WILD VIDEO: Bystander captures road rage shooting at busy Plaza Midwood intersection](https://www.yahoo.com/news/wild-video-bystander-captures-road-140845756.html)
+- Jun 25 - [Nvidia short sellers make $5 billion, data shows](https://finance.yahoo.com/video/nvidia-short-sellers-5-billion-181045363.html)
+- Jun 25 - [15 People Snapped Photos Of The Most Ridiculous Signs Management (And Other Coworkers) Posted At Work](https://www.yahoo.com/lifestyle/15-people-snapped-photos-most-180438105.html)
+- Jun 25 - [California fast-food franchise owners, consumers feel brunt of minimum wage hike](https://finance.yahoo.com/news/california-fast-food-franchise-owners-consumers-feel-brunt-of-minimum-wage-hike-174515934.html)
+- Jun 25 - [Disney Tried To Get Gina Carano's 'Mandalorian' Lawsuit Quickly Dismissed, But The Judge Said Not So Fast](https://www.yahoo.com/entertainment/disney-tried-gina-caranos-mandalorian-170000794.html)
+- Jun 25 - [California radiologist who drove car off cliff with family inside will not face trial](https://www.yahoo.com/news/california-radiologist-drove-car-off-165429747.html)
 <!-- feed end -->
 
 ### Onstream
