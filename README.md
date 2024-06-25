@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [Sacramento County imprisoned an innocent man for 19 years. Now they’re failing him again | Opinion](https://www.yahoo.com/news/sacramento-county-imprisoned-innocent-man-120000680.html)
+- Jun 25 - [Antisemitism rose more than 80% in Germany last year, watchdog says](https://www.yahoo.com/news/antisemitism-rose-more-80-germany-115817933.html)
+- Jun 25 - [This is Who Owns the Most Apple Stock. Hint: It's Not Tim Cook.](https://finance.yahoo.com/news/owns-most-apple-stock-hint-112900301.html)
 - Jun 25 - [‘A&E staff told me my catatonic schizophrenic wife was not a priority’, says ‘broken’ husband](https://www.yahoo.com/news/catatonic-wife-repeatedly-told-she-230146869.html)
-- Jun 25 - [Will Trump chicken out of the presidential debate? Probably. He's a Grade-A coward.](https://www.yahoo.com/news/trump-chicken-presidential-debate-probably-080629745.html)
-- Jun 25 - [Bankers who helped Putin's friend move millions via Swiss bank accounts lose appeal](https://www.yahoo.com/news/bankers-helped-putins-friend-move-074850672.html)
-- Jun 25 - [Nvidia Stock Is Cracking. How to Sidestep the Damage.](https://www.barrons.com/articles/nvidia-stock-falling-what-to-do-298c9ad7?siteid=yhoof2&yptr=yahoo)
-- Jun 25 - [A Chinese lunar probe returns to Earth with the world's first samples from the far side of the moon](https://www.yahoo.com/news/chinese-lunar-probe-returns-earth-061504693.html)
+- Jun 25 - [Chevy Chase sandwich restaurant closing, but it’s moving to a new Lexington location](https://www.yahoo.com/lifestyle/chevy-chase-sandwiches-restaurant-closing-110828880.html)
 <!-- feed end -->
 
 ### Onstream
