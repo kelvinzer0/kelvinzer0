@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Exclusive-Trump reviews plan to halt US military aid to Ukraine unless it negotiates peace with Moscow](https://www.yahoo.com/news/exclusive-trump-reviews-plan-halt-050114838.html)
+- Jun 25 - [Will there be more air travel chaos this summer?](https://www.yahoo.com/news/more-air-travel-chaos-summer-040758171.html)
+- Jun 25 - [Elon Musk confirms 12th child as he and Shivon Zilis welcomed new baby earlier this year](https://www.yahoo.com/entertainment/elon-musk-confirms-12th-child-163147002.html)
+- Jun 25 - [Western arms reach Ukraine front lines, relieving some pressure](https://www.yahoo.com/news/fresh-western-munitions-satiate-ukrainian-053517656.html)
+- Jun 25 - [Vietnam's VinFast looks to tiny EV, priced at less than $10,000, to change its fortunes](https://finance.yahoo.com/news/vietnams-vinfast-looks-tiny-ev-043538433.html)
 - Jun 25 - [Céline Dion suffers 'unimaginable' medical crisis on camera: Her doctor explains what happened](https://www.yahoo.com/news/c-line-dion-suffers-unimaginable-040019804.html)
-- Jun 25 - [China's BYD launches third EV model in Japan](https://finance.yahoo.com/news/chinas-byd-launches-third-ev-020951558.html)
-- Jun 25 - [An overload of warning signals mark the 'last straw' that could send the S&P 500 plunging 70%, famed permabear says](https://finance.yahoo.com/news/overload-warning-signals-mark-last-012546123.html)
-- Jun 25 - [One Oregon region identified as potential ‘hotbed’ for 2024 wildfire season](https://www.yahoo.com/news/one-oregon-region-identified-potential-005525659.html)
 <!-- feed end -->
 
 ### Onstream
