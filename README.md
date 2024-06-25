@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Vice President Harris slams Trump on anniversary of Supreme Court abortion decision](https://www.yahoo.com/news/vice-president-harris-slams-trump-224500188.html)
+- Jun 25 - [Apple pauses planned RTP campus as tech giant seeks to push back North Carolina agreement](https://finance.yahoo.com/news/apple-pauses-planned-rtp-campus-001457356.html)
+- Jun 24 - [‘My catatonic wife repeatedly told she wasn’t a priority’ says husband battling the NHS mental health system](https://www.yahoo.com/news/catatonic-wife-repeatedly-told-she-230146869.html)
+- Jun 24 - [Tillis pushes back on conservatives’ bid for GOP rules reform](https://www.yahoo.com/news/tillis-pushes-back-conservatives-bid-221607024.html)
 - Jun 24 - [Trump has spent months painting Biden as incompetent. Now he's changing his tone before the debate](https://www.yahoo.com/news/trump-spent-months-painting-biden-220005863.html)
-- Jun 24 - [Husband of bride who was killed on wedding night in an alleged DUI crash awarded $1.3 million in wrongful death settlement](https://www.yahoo.com/news/husband-bride-killed-wedding-night-214226857.html)
 - Jun 24 - [Trump Facing More Trouble After Shady Meeting With Oil Executives](https://www.yahoo.com/news/trump-facing-more-trouble-shady-210920355.html)
-- Jun 24 - [Former North Dakota lawmaker to plead guilty to traveling to pay for sex with minor](https://www.yahoo.com/news/former-north-dakota-lawmaker-plead-203854599.html)
 <!-- feed end -->
 
 ### Onstream
