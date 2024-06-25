@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Beaufort’s ‘crown jewel’ waterfront faces an uncertain future. Businesses watching closely](https://www.yahoo.com/news/beaufort-crown-jewel-waterfront-faces-153904715.html)
-- Jun 25 - [Decades Of Data Reveal A Steady Decline In America's Middle Class, According To Latest Research](https://finance.yahoo.com/news/decades-data-reveal-steady-decline-151931906.html)
-- Jun 25 - [73-year-old Tallahassee man was struck by lightning, killed during March walk in park](https://www.yahoo.com/news/73-old-tallahassee-man-struck-141752713.html)
+- Jun 25 - [‘Million Dollar Listing’ Star Josh Altman: Buy in These 5 Cities Before Homes Become Unaffordable](https://finance.yahoo.com/news/million-dollar-listing-star-josh-160603348.html)
+- Jun 25 - [Zelensky sacks commander ‘who killed more Ukrainians than any Russian’](https://www.yahoo.com/news/zelensky-sacks-commander-killed-more-154357256.html)
+- Jun 25 - [Alien Warp Drives May Have Left Trails Through Space That We Could Detect, Scientists Say](https://www.yahoo.com/news/alien-warp-drives-may-left-150042021.html)
+- Jun 25 - [Elon Musk confirms 12th child as he and Shivon Zilis welcomed new baby earlier this year](https://www.yahoo.com/entertainment/elon-musk-confirms-12th-child-163147002.html)
 - Jun 25 - [Panicking Trump Tries Yet Another Get-Out-of-Debate-Free Card](https://www.yahoo.com/news/panicking-trump-tries-yet-another-134945473.html)
-- Jun 25 - [American POW accounted for 82 years after Bataan Death March](https://www.yahoo.com/news/american-pow-accounted-82-years-130900909.html)
 <!-- feed end -->
 
 ### Onstream
