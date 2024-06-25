@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [China's BYD launches third EV model in Japan](https://finance.yahoo.com/news/chinas-byd-launches-third-ev-020951558.html)
-- Jun 25 - [Savannah Chrisley Reacts to Mom Julie's Overturned Prison Sentence](https://www.yahoo.com/entertainment/savannah-chrisley-reacts-mom-julies-015211943.html)
 - Jun 25 - [Boeing offers to buy 737 supplier Spirit Aero for $35/shr, Bloomberg News reports](https://finance.yahoo.com/news/boeing-bid-spirit-aero-values-013128103.html)
-- Jun 25 - [An overload of warning signals mark the 'last straw' that could send the S&P 500 plunging 70%, famed permabear says](https://finance.yahoo.com/news/overload-warning-signals-mark-last-012546123.html)
-- Jun 25 - [Costco CEO says 1 item is more important than everything else sold in the store](https://finance.yahoo.com/news/costco-ceo-says-1-item-004803243.html)
+- Jun 25 - [Apple pauses planned RTP campus as tech giant seeks to push back North Carolina agreement](https://finance.yahoo.com/news/apple-pauses-planned-rtp-campus-001457356.html)
+- Jun 24 - [Experienced pilot lost power, lands in Columbia River](https://www.yahoo.com/news/pilot-makes-emergency-landing-columbia-231328653.html)
+- Jun 24 - [‘Please send help. I’m stuck’: RTA driver pleads for assistance after bus surrounded](https://www.yahoo.com/news/please-send-help-m-stuck-224007356.html)
+- Jun 24 - [Trump has spent months painting Biden as incompetent. Now he's changing his tone before the debate](https://www.yahoo.com/news/trump-spent-months-painting-biden-220005863.html)
 <!-- feed end -->
 
 ### Onstream
