@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Massive Shelf Cloud Hovers Over Western Michigan City](https://www.yahoo.com/news/massive-shelf-cloud-hovers-over-195604213.html)
+- Jun 25 - [Rivian stock soars as Volkswagen says it will invest up to $5 billion in new joint venture](https://finance.yahoo.com/news/rivian-stock-soars-as-volkswagen-says-it-will-invest-up-to-5-billion-in-new-joint-venture-210921047.html)
 - Jun 25 - [Dutch volleyball player who raped 12-year-old British girl qualifies for Paris Olympics](https://www.yahoo.com/news/dutch-volleyball-player-raped-12-193257208.html)
 - Jun 25 - [California police chief resigns after investigation into relationship with officer’s wife](https://www.yahoo.com/news/california-police-chief-resigns-investigation-185512149.html)
-- Jun 25 - [15 People Snapped Photos Of The Most Ridiculous Signs Management (And Other Coworkers) Posted At Work](https://www.yahoo.com/lifestyle/15-people-snapped-photos-most-180438105.html)
 - Jun 25 - [California fast-food franchise owners, consumers feel brunt of minimum wage hike](https://finance.yahoo.com/news/california-fast-food-franchise-owners-consumers-feel-brunt-of-minimum-wage-hike-174515934.html)
+- Jun 25 - [We finally know how many Cybertrucks Tesla has sold so far](https://finance.yahoo.com/news/we-finally-know-how-many-cybertrucks-tesla-has-sold-so-far-163314428.html)
 <!-- feed end -->
 
 ### Onstream
