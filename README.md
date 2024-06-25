@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Sacramento County imprisoned an innocent man for 19 years. Now they’re failing him again | Opinion](https://www.yahoo.com/news/sacramento-county-imprisoned-innocent-man-120000680.html)
-- Jun 25 - [Antisemitism rose more than 80% in Germany last year, watchdog says](https://www.yahoo.com/news/antisemitism-rose-more-80-germany-115817933.html)
-- Jun 25 - [This is Who Owns the Most Apple Stock. Hint: It's Not Tim Cook.](https://finance.yahoo.com/news/owns-most-apple-stock-hint-112900301.html)
 - Jun 25 - [‘A&E staff told me my catatonic schizophrenic wife was not a priority’, says ‘broken’ husband](https://www.yahoo.com/news/catatonic-wife-repeatedly-told-she-230146869.html)
-- Jun 25 - [Chevy Chase sandwich restaurant closing, but it’s moving to a new Lexington location](https://www.yahoo.com/lifestyle/chevy-chase-sandwiches-restaurant-closing-110828880.html)
+- Jun 25 - [Explosion at homeless encampment injures, hospitalizes LA firefighter responding to flames](https://www.yahoo.com/news/explosion-homeless-encampment-injures-hospitalizes-124020009.html)
+- Jun 25 - [$5,000 reward as Detroit police seek tips on fatal shooting of Oakland County deputy](https://www.yahoo.com/news/5-000-reward-detroit-police-123932066.html)
+- Jun 25 - [Oklahoma Educators Hall of Fame inducts 3 more people, but still has no home for portraits](https://www.yahoo.com/news/oklahoma-educators-hall-fame-inducts-122714399.html)
+- Jun 25 - [Ford recalls over 550,000 pickup trucks because transmissions can suddenly downshift to 1st gear](https://www.yahoo.com/news/ford-recalls-over-550-000-105618024.html)
 <!-- feed end -->
 
 ### Onstream
