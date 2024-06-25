@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [‘A&E staff told me my catatonic schizophrenic wife was not a priority’, says ‘broken’ husband](https://www.yahoo.com/news/catatonic-wife-repeatedly-told-she-230146869.html)
-- Jun 25 - [Analysis-Engine maker's Boeing dilemma helped to stall Airbus's output plans](https://finance.yahoo.com/news/analysis-engine-makers-boeing-dilemma-125341557.html)
-- Jun 25 - [The corrupt behavior of SCOTUS Justices Alito and Thomas | Opinion](https://www.yahoo.com/news/corrupt-behavior-scotus-justices-alito-125112740.html)
+- Jun 25 - [Elon Musk confirms 12th child as he and Shivon Zilis welcomed new baby earlier this year](https://www.yahoo.com/entertainment/elon-musk-confirms-12th-child-163147002.html)
+- Jun 25 - [Panicking Trump Tries Yet Another Get-Out-of-Debate Free Card](https://www.yahoo.com/news/panicking-trump-tries-yet-another-134945473.html)
+- Jun 25 - [American POW accounted for 82 years after Bataan Death March](https://www.yahoo.com/news/american-pow-accounted-82-years-130900909.html)
 - Jun 25 - [Judge imposes 21 life terms against woman who sexually abused her two sons, family dog](https://www.yahoo.com/news/judge-imposes-21-life-terms-122456393.html)
-- Jun 25 - [Ford recalls over 550,000 pickup trucks because transmissions can suddenly downshift to 1st gear](https://www.yahoo.com/news/ford-recalls-over-550-000-105618024.html)
+- Jun 25 - [Toyota Customer Gives Us An Update On The Dealership Tracking Device](https://autos.yahoo.com/toyota-customer-gives-us-dealership-120000218.html)
 <!-- feed end -->
 
 ### Onstream
