@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Scandal-Scarred Lauren Boebert’s Election Gamble Pays Off Big Time](https://www.yahoo.com/news/scandal-scarred-lauren-boebert-election-013348844.html)
+- Jun 25 - [Olympic champion swimmers tell Congress U.S. athletes have lost faith in anti-doping regulator](https://www.yahoo.com/news/olympic-champion-swimmers-tell-congress-232221805.html)
 - Jun 25 - [Man who diverted national park river to ease boat access to Lake Michigan is put on probation](https://www.yahoo.com/news/man-diverted-national-park-river-231916428.html)
-- Jun 25 - [FDA warns maker of Sara Lee and Entenmann's not to claim foods contain allergens when they don't](https://www.yahoo.com/news/fda-warns-maker-sara-lee-221237049.html)
-- Jun 25 - [Rivian stock soars as Volkswagen says it will invest up to $5 billion in new joint venture](https://finance.yahoo.com/news/rivian-stock-soars-as-volkswagen-says-it-will-invest-up-to-5-billion-in-new-joint-venture-210921047.html)
-- Jun 25 - [St. Louis prepares for surge in immigrant arrivals, calls for community action](https://www.yahoo.com/news/st-louis-braces-surge-immigrant-195012988.html)
-- Jun 25 - [Dutch volleyball player who raped 12-year-old British girl qualifies for Paris Olympics](https://www.yahoo.com/news/dutch-volleyball-player-raped-12-193257208.html)
+- Jun 25 - [A $100 Billion Bet on China’s Economy Sours as Warehouses Empty](https://finance.yahoo.com/news/100-billion-bet-china-economy-230000717.html)
+- Jun 25 - [Canton residents lambaste mayor, commissioner for lack of emergency flooding response plan](https://www.yahoo.com/news/canton-residents-lambaste-mayor-commissioner-215454237.html)
 <!-- feed end -->
 
 ### Onstream
