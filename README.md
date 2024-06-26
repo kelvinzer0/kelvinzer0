@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Storm bringing 86 mph winds cuts power to thousands of Topeka-area homes and businesses](https://www.yahoo.com/news/storm-bringing-86-mph-winds-115817073.html)
+- Jun 26 - [Watch: Trump Appears to Short-Circuit During Interview](https://www.yahoo.com/news/watch-trump-appears-short-circuit-134049317.html)
+- Jun 26 - [Think the CDK outage is just about cars and dealerships? Think again](https://finance.yahoo.com/news/think-cdk-outage-just-cars-103042007.html)
+- Jun 26 - [Analysis-A mountain of asset sales loom after oil megamerger era](https://finance.yahoo.com/news/analysis-mountain-asset-sales-loom-100153015.html)
 - Jun 26 - [Chipotle's 50-for-1 stock split just went into effect. Here's what it means for investors.](https://finance.yahoo.com/news/chipotles-50-for-1-stock-split-just-went-into-effect-heres-what-it-means-for-investors-090004926.html)
-- Jun 26 - [Fast-Food Chains Jacked Up Their Prices. Now They’re Trying to Win You Back With Value Menus.](https://www.barrons.com/articles/fast-food-mcdonalds-inflation-price-war-wendys-chipotle-burger-king-3fdf5d47?siteid=yhoof2&yptr=yahoo)
-- Jun 26 - [Republican Jeff Hurd beats election denier boosted by Democrats in race for Boebert seat](https://www.yahoo.com/news/republican-jeff-hurd-beats-election-020231928.html)
-- Jun 26 - [Nurse Lucy Letby 'caught virtually red-handed' dislodging premature baby's breathing tube: prosecutors](https://www.yahoo.com/news/nurse-lucy-letby-caught-virtually-000955939.html)
+- Jun 26 - [Warren Buffett Just Bought $435 Million of This Stock and Plans to Hold It Forever](https://finance.yahoo.com/news/warren-buffett-just-bought-435-085000603.html)
 <!-- feed end -->
 
 ### Onstream
