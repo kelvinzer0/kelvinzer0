@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - ['Go Now': Evacuation Orders as Wildfire Grows in Central Oregon](https://www.yahoo.com/news/now-evacuation-orders-wildfire-grows-105921656.html)
-- Jun 26 - [With the Panthers HQ gone, is Rock Hill’s new $90 million I-77 exit a bridge to nowhere?](https://www.yahoo.com/news/panthers-hq-gone-rock-hill-100000075.html)
+- Jun 26 - [Storm bringing 86 mph winds cuts power to thousands of Topeka-area homes and businesses](https://www.yahoo.com/news/storm-bringing-86-mph-winds-115817073.html)
 - Jun 26 - [Chipotle's 50-for-1 stock split just went into effect. Here's what it means for investors.](https://finance.yahoo.com/news/chipotles-50-for-1-stock-split-just-went-into-effect-heres-what-it-means-for-investors-090004926.html)
-- Jun 26 - [Newsmax Slaps Very Awkward Note On Screen During Donald Trump Interview](https://www.yahoo.com/news/newsmax-slaps-very-awkward-note-081721294.html)
-- Jun 26 - [Entire Hells Angels chapter arrested in California in kidnapping and assault probe, police say](https://www.yahoo.com/news/entire-hells-angels-chapter-arrested-063356724.html)
+- Jun 26 - [Fast-Food Chains Jacked Up Their Prices. Now They’re Trying to Win You Back With Value Menus.](https://www.barrons.com/articles/fast-food-mcdonalds-inflation-price-war-wendys-chipotle-burger-king-3fdf5d47?siteid=yhoof2&yptr=yahoo)
+- Jun 26 - [Republican Jeff Hurd beats election denier boosted by Democrats in race for Boebert seat](https://www.yahoo.com/news/republican-jeff-hurd-beats-election-020231928.html)
+- Jun 26 - [Nurse Lucy Letby 'caught virtually red-handed' dislodging premature baby's breathing tube: prosecutors](https://www.yahoo.com/news/nurse-lucy-letby-caught-virtually-000955939.html)
 <!-- feed end -->
 
 ### Onstream
