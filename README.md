@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [Man who diverted national park river to ease boat access to Lake Michigan is put on probation](https://www.yahoo.com/news/man-diverted-national-park-river-231916428.html)
+- Jun 25 - [FDA warns maker of Sara Lee and Entenmann's not to claim foods contain allergens when they don't](https://www.yahoo.com/news/fda-warns-maker-sara-lee-221237049.html)
 - Jun 25 - [Rivian stock soars as Volkswagen says it will invest up to $5 billion in new joint venture](https://finance.yahoo.com/news/rivian-stock-soars-as-volkswagen-says-it-will-invest-up-to-5-billion-in-new-joint-venture-210921047.html)
-- Jun 25 - [Texas woman ‘fighting for life’ after hit-&-run accident when she fell out of mom’s truck](https://www.yahoo.com/news/texas-woman-fighting-life-hit-204821791.html)
-- Jun 25 - [St. Louis braces for surge in immigrant arrivals, calls for community action](https://www.yahoo.com/news/st-louis-braces-surge-immigrant-195012988.html)
+- Jun 25 - [St. Louis prepares for surge in immigrant arrivals, calls for community action](https://www.yahoo.com/news/st-louis-braces-surge-immigrant-195012988.html)
 - Jun 25 - [Dutch volleyball player who raped 12-year-old British girl qualifies for Paris Olympics](https://www.yahoo.com/news/dutch-volleyball-player-raped-12-193257208.html)
-- Jun 25 - [California police chief resigns after investigation into relationship with officer’s wife](https://www.yahoo.com/news/california-police-chief-resigns-investigation-185512149.html)
 <!-- feed end -->
 
 ### Onstream
