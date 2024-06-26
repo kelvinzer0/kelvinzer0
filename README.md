@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [A Palestinian was shot, beaten and tied to an Israeli army jeep. The army says he posed no threat](https://www.yahoo.com/news/palestinian-shot-beaten-tied-israeli-043354552.html)
+- Jun 26 - [Newsmax Slaps Very Awkward Note On Screen During Donald Trump Interview](https://www.yahoo.com/news/newsmax-slaps-very-awkward-note-081721294.html)
 - Jun 26 - [Republican Jeff Hurd beats election denier boosted by Democrats in race for Boebert seat](https://www.yahoo.com/news/republican-jeff-hurd-beats-election-020231928.html)
+- Jun 26 - [Man killed 2 North Texas gas station clerks over lottery tickets for new apartment: arrest affidavit](https://www.yahoo.com/news/man-killed-2-north-texas-015437518.html)
+- Jun 26 - [Beauty shops in Las Vegas, Henderson close; unpaid wages claimed by employees](https://www.yahoo.com/news/beauty-shops-las-vegas-henderson-014801447.html)
 - Jun 26 - [Jamaal Bowman becomes first member of the 'Squad' to lose 2024 primary as Democrats divide over Israel](https://www.yahoo.com/news/jamaal-bowman-becomes-first-member-014153221.html)
-- Jun 25 - [Olympic champion swimmers tell Congress U.S. athletes have lost faith in anti-doping regulator](https://www.yahoo.com/news/olympic-champion-swimmers-tell-congress-232221805.html)
-- Jun 25 - [A $100 Billion Bet on China’s Economy Sours as Warehouses Empty](https://finance.yahoo.com/news/100-billion-bet-china-economy-230000717.html)
 <!-- feed end -->
 
 ### Onstream
