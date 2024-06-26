@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [US charges Russian in Ukraine hack, offers $10 million reward](https://www.yahoo.com/news/us-charges-russian-ukraine-hack-182036529.html)
+- Jun 26 - [Riders jump off Roaring Rapids at Six Flags Over Texas to escape stuck raft in viral video](https://www.yahoo.com/news/riders-jump-off-roaring-rapids-180711658.html)
 - Jun 26 - [Marjorie Taylor Greene Swung at a Drag Queen—and Missed](https://www.yahoo.com/news/marjorie-taylor-greene-swung-drag-173631552.html)
-- Jun 26 - [New laws that involve the First Amendment are soon taking effect in Florida](https://www.yahoo.com/news/laws-involve-first-amendment-soon-170045653.html)
 - Jun 26 - [Supreme Court Nukes Hunter Biden Laptop Conspiracy in Brutal Ruling](https://www.yahoo.com/news/supreme-court-nukes-hunter-biden-165229642.html)
-- Jun 26 - [He flipped off a trooper and got charged. Now Vermont is on the hook for $175,000](https://www.yahoo.com/news/flipped-off-trooper-got-charged-152906016.html)
-- Jun 26 - [US new home sales slump; supply at more than 16-year high](https://finance.yahoo.com/news/us-home-sales-slump-six-141932626.html)
+- Jun 26 - [Letters to the Editor: We don't need a Trump-Biden debate to know one of them is totally unfit for office](https://www.yahoo.com/news/letters-editor-dont-trump-biden-160932797.html)
 <!-- feed end -->
 
 ### Onstream
