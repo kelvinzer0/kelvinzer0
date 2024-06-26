@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Victor Valley College receives seven-year accreditation extension](https://www.yahoo.com/news/victor-valley-college-receives-seven-090334699.html)
+- Jun 26 - [Analysis-A mountain of asset sales loom after oil megamerger era](https://finance.yahoo.com/news/analysis-mountain-asset-sales-loom-100153015.html)
 - Jun 26 - [Newsmax Slaps Very Awkward Note On Screen During Donald Trump Interview](https://www.yahoo.com/news/newsmax-slaps-very-awkward-note-081721294.html)
 - Jun 26 - [Republican Jeff Hurd beats election denier boosted by Democrats in race for Boebert seat](https://www.yahoo.com/news/republican-jeff-hurd-beats-election-020231928.html)
 - Jun 26 - [Man killed 2 North Texas gas station clerks over lottery tickets for new apartment: arrest affidavit](https://www.yahoo.com/news/man-killed-2-north-texas-015437518.html)
-- Jun 26 - [Jamaal Bowman becomes first member of the 'Squad' to lose 2024 primary as Democrats divide over Israel](https://www.yahoo.com/news/jamaal-bowman-becomes-first-member-014153221.html)
+- Jun 26 - [Joe and Jill Biden refinanced their Delaware home 20 times — raking in $4.2M from the $350K property](https://finance.yahoo.com/news/joe-jill-biden-refinanced-delaware-001743821.html)
 <!-- feed end -->
 
 ### Onstream
