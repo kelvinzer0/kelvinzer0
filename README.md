@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Analysis-A mountain of asset sales loom after oil megamerger era](https://finance.yahoo.com/news/analysis-mountain-asset-sales-loom-100153015.html)
+- Jun 26 - ['Go Now': Evacuation Orders as Wildfire Grows in Central Oregon](https://www.yahoo.com/news/now-evacuation-orders-wildfire-grows-105921656.html)
+- Jun 26 - [With the Panthers HQ gone, is Rock Hill’s new $90 million I-77 exit a bridge to nowhere?](https://www.yahoo.com/news/panthers-hq-gone-rock-hill-100000075.html)
+- Jun 26 - [Chipotle's 50-for-1 stock split just went into effect. Here's what it means for investors.](https://finance.yahoo.com/news/chipotles-50-for-1-stock-split-just-went-into-effect-heres-what-it-means-for-investors-090004926.html)
 - Jun 26 - [Newsmax Slaps Very Awkward Note On Screen During Donald Trump Interview](https://www.yahoo.com/news/newsmax-slaps-very-awkward-note-081721294.html)
-- Jun 26 - [Republican Jeff Hurd beats election denier boosted by Democrats in race for Boebert seat](https://www.yahoo.com/news/republican-jeff-hurd-beats-election-020231928.html)
-- Jun 26 - [Man killed 2 North Texas gas station clerks over lottery tickets for new apartment: arrest affidavit](https://www.yahoo.com/news/man-killed-2-north-texas-015437518.html)
-- Jun 26 - [Joe and Jill Biden refinanced their Delaware home 20 times — raking in $4.2M from the $350K property](https://finance.yahoo.com/news/joe-jill-biden-refinanced-delaware-001743821.html)
+- Jun 26 - [Entire Hells Angels chapter arrested in California in kidnapping and assault probe, police say](https://www.yahoo.com/news/entire-hells-angels-chapter-arrested-063356724.html)
 <!-- feed end -->
 
 ### Onstream
