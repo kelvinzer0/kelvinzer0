@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Fire breaks out on Icon of the Seas cruise boat just months after the largest ship set sail](https://www.yahoo.com/news/fire-breaks-icon-seas-cruise-131234667.html)
-- Jun 26 - [‘Excuse me? This is funny, Ms. Read?’: Judge, defense get into heated argument over verdict slip](https://www.yahoo.com/news/excuse-funny-ms-read-judge-151644459.html)
-- Jun 26 - [Police: Dog dies inside doctor's hot vehicle in hospital parking lot](https://www.yahoo.com/news/police-dog-dies-inside-doctors-144755596.html)
+- Jun 26 - [Biden will face ‘serious pressure’ to stand down if he stumbles in debate, warn Democrat insiders](https://www.yahoo.com/news/biden-face-serious-pressure-stand-164807341.html)
+- Jun 26 - [Letters to the Editor: We don't need a Trump-Biden debate to know one of them is totally unfit for office](https://www.yahoo.com/news/letters-editor-dont-trump-biden-160932797.html)
+- Jun 26 - [Three female GOP state senators who filibustered S.C. abortion ban lost their primaries](https://www.yahoo.com/news/three-female-gop-state-senators-142126813.html)
 - Jun 26 - [Treasury Secretary Yellen: Here's why food prices are rising](https://finance.yahoo.com/video/treasury-secretary-yellen-heres-why-134355499.html)
-- Jun 26 - [Watch: Trump Appears to Short-Circuit During Interview](https://www.yahoo.com/news/watch-trump-appears-short-circuit-134049317.html)
+- Jun 26 - [Rivian founder tells investors why incoming shareholder Volkswagen needs his help to take on Tesla just as much as he needs the cash injection](https://finance.yahoo.com/news/rivian-founder-tells-investors-why-134239247.html)
 <!-- feed end -->
 
 ### Onstream
