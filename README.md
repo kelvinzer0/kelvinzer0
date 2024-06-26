@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 26 - [Jamaal Bowman becomes first member of the 'Squad' to lose 2024 primary as Democrats divide over Israel](https://www.yahoo.com/news/jamaal-bowman-becomes-first-member-014153221.html)
 - Jun 26 - [Scandal-Scarred Lauren Boebert’s Election Gamble Pays Off Big Time](https://www.yahoo.com/news/scandal-scarred-lauren-boebert-election-013348844.html)
+- Jun 25 - [Olympic champion swimmers tell Congress U.S. athletes have lost faith in anti-doping regulator](https://www.yahoo.com/news/olympic-champion-swimmers-tell-congress-232221805.html)
+- Jun 25 - [Man who diverted national park river to ease boat access to Lake Michigan is put on probation](https://www.yahoo.com/news/man-diverted-national-park-river-231916428.html)
 - Jun 25 - [A $100 Billion Bet on China’s Economy Sours as Warehouses Empty](https://finance.yahoo.com/news/100-billion-bet-china-economy-230000717.html)
-- Jun 25 - [FDA warns maker of Sara Lee and Entenmann's not to claim foods contain allergens when they don't](https://www.yahoo.com/news/fda-warns-maker-sara-lee-221237049.html)
-- Jun 25 - [$395M Mega Millions jackpot: Winner with 1 of 2 tickets sold at same California store ID'd](https://www.yahoo.com/news/395m-mega-millions-jackpot-winner-195324820.html)
 <!-- feed end -->
 
 ### Onstream
