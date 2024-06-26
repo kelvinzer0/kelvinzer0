@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Is The Stock Market Closed On Independence Day? Wall Street Holidays 2024](https://www.investors.com/research/stock-market-holidays-2024/?src=A00220&yptr=yahoo)
-- Jun 26 - [Riders jump off Roaring Rapids at Six Flags Over Texas to escape stuck raft in viral video](https://www.yahoo.com/news/riders-jump-off-roaring-rapids-180711658.html)
-- Jun 26 - [Supreme Court Nukes Hunter Biden Laptop Conspiracy in Brutal Ruling](https://www.yahoo.com/news/supreme-court-nukes-hunter-biden-165229642.html)
-- Jun 26 - [Letters to the Editor: We don't need a Trump-Biden debate to know one of them is totally unfit for office](https://www.yahoo.com/news/letters-editor-dont-trump-biden-160932797.html)
-- Jun 26 - [He flipped off a trooper and got charged. Now Vermont is on the hook for $175,000](https://www.yahoo.com/news/flipped-off-trooper-got-charged-152906016.html)
+- Jun 26 - [Rivian stock soars as Volkswagen says it will invest up to $5 billion in new joint venture](https://finance.yahoo.com/news/rivian-stock-soars-as-volkswagen-says-it-will-invest-up-to-5-billion-in-new-joint-venture-210921047.html)
+- Jun 26 - [Shreveport-Bossier SWEPCO customers without power following severe thunderstorms](https://www.yahoo.com/news/shreveport-bossier-swepco-customers-without-194951545.html)
+- Jun 26 - ['Mom, our deer are famous': Stow woman's photos of baby deer playing in pool goes viral](https://www.yahoo.com/lifestyle/mom-deer-famous-stow-womans-184312394.html)
+- Jun 26 - [CNN host fires back at Ramaswamy over terms of Biden-Trump debate](https://www.yahoo.com/news/cnn-host-fires-back-ramaswamy-182208735.html)
+- Jun 26 - [Marjorie Taylor Greene Swung at a Drag Queen—and Missed](https://www.yahoo.com/news/marjorie-taylor-greene-swung-drag-173631552.html)
 <!-- feed end -->
 
 ### Onstream
