@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Supreme Court wipes out anti-corruption law that bars officials from taking gifts for past favors](https://www.yahoo.com/news/supreme-court-wipes-anti-corruption-141944490.html)
-- Jun 26 - [The Supreme Court rules for Biden administration in a social media dispute with conservative states](https://www.yahoo.com/news/supreme-court-rules-biden-administration-140359363.html)
 - Jun 26 - [Fire breaks out on Icon of the Seas cruise boat just months after the largest ship set sail](https://www.yahoo.com/news/fire-breaks-icon-seas-cruise-131234667.html)
+- Jun 26 - [‘Excuse me? This is funny, Ms. Read?’: Judge, defense get into heated argument over verdict slip](https://www.yahoo.com/news/excuse-funny-ms-read-judge-151644459.html)
+- Jun 26 - [Police: Dog dies inside doctor's hot vehicle in hospital parking lot](https://www.yahoo.com/news/police-dog-dies-inside-doctors-144755596.html)
 - Jun 26 - [Treasury Secretary Yellen: Here's why food prices are rising](https://finance.yahoo.com/video/treasury-secretary-yellen-heres-why-134355499.html)
 - Jun 26 - [Watch: Trump Appears to Short-Circuit During Interview](https://www.yahoo.com/news/watch-trump-appears-short-circuit-134049317.html)
 <!-- feed end -->
