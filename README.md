@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Biden will face ‘serious pressure’ to stand down if he stumbles in debate, warn Democrat insiders](https://www.yahoo.com/news/biden-face-serious-pressure-stand-164807341.html)
-- Jun 26 - [Letters to the Editor: We don't need a Trump-Biden debate to know one of them is totally unfit for office](https://www.yahoo.com/news/letters-editor-dont-trump-biden-160932797.html)
-- Jun 26 - [Three female GOP state senators who filibustered S.C. abortion ban lost their primaries](https://www.yahoo.com/news/three-female-gop-state-senators-142126813.html)
-- Jun 26 - [Treasury Secretary Yellen: Here's why food prices are rising](https://finance.yahoo.com/video/treasury-secretary-yellen-heres-why-134355499.html)
-- Jun 26 - [Rivian founder tells investors why incoming shareholder Volkswagen needs his help to take on Tesla just as much as he needs the cash injection](https://finance.yahoo.com/news/rivian-founder-tells-investors-why-134239247.html)
+- Jun 26 - [Marjorie Taylor Greene Swung at a Drag Queen—and Missed](https://www.yahoo.com/news/marjorie-taylor-greene-swung-drag-173631552.html)
+- Jun 26 - [New laws that involve the First Amendment are soon taking effect in Florida](https://www.yahoo.com/news/laws-involve-first-amendment-soon-170045653.html)
+- Jun 26 - [Supreme Court Nukes Hunter Biden Laptop Conspiracy in Brutal Ruling](https://www.yahoo.com/news/supreme-court-nukes-hunter-biden-165229642.html)
+- Jun 26 - [He flipped off a trooper and got charged. Now Vermont is on the hook for $175,000](https://www.yahoo.com/news/flipped-off-trooper-got-charged-152906016.html)
+- Jun 26 - [US new home sales slump; supply at more than 16-year high](https://finance.yahoo.com/news/us-home-sales-slump-six-141932626.html)
 <!-- feed end -->
 
 ### Onstream
