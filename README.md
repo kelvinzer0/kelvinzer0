@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Nvidia Stock Is Up 150% in 2024. History Says the AI Stock Will Do This in the Second Half of the Year (Hint: It May Shock You).](https://finance.yahoo.com/news/nvidia-stock-150-2024-history-081200424.html)
-- Jun 27 - [Taiwan warns against travel to China after execution threat](https://www.yahoo.com/news/taiwan-tells-citizens-avoid-unnecessary-080942809.html)
-- Jun 27 - [Cleary University bumped from 650 students to 1,050. Why?](https://www.yahoo.com/news/cleary-university-bumped-650-students-080616919.html)
+- Jun 27 - [New law to release Jeffrey Epstein grand jury documents takes effect July 1. What's next?](https://www.yahoo.com/news/law-release-jeffrey-epstein-grand-091010221.html)
+- Jun 27 - [Russia considering downgrading relations with the West, the Kremlin says](https://www.yahoo.com/news/russia-considering-downgrading-relations-west-090836378.html)
+- Jun 27 - [China calls on scientists of all nations to study lunar samples, but notes obstacle with the US](https://www.yahoo.com/news/china-calls-scientists-nations-study-090348077.html)
 - Jun 27 - [She managed to flee Gaza after half her family was killed in an Israeli strike. She blames Israel and Hamas for what happened](https://www.yahoo.com/news/she-managed-leave-gaza-half-040142161.html)
-- Jun 27 - [The Latest | Israeli military releases photos it says prove slain charity worker was a militant](https://www.yahoo.com/news/latest-israeli-military-releases-photos-075352908.html)
+- Jun 27 - [NTSB sanctions Boeing over release of 737 MAX investigation details, flags to DOJ](https://finance.yahoo.com/news/ntsb-sanctions-boeing-over-release-060427297.html)
 <!-- feed end -->
 
 ### Onstream
