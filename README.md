@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Here’s a look at the crater left behind by a collapsed mine on an Alton soccer field](https://www.yahoo.com/news/look-crater-left-behind-collapsed-223405513.html)
 - Jun 26 - [Rivian stock soars as Volkswagen says it will invest up to $5 billion in new joint venture](https://finance.yahoo.com/news/rivian-stock-soars-as-volkswagen-says-it-will-invest-up-to-5-billion-in-new-joint-venture-210921047.html)
-- Jun 26 - [US Navy nuclear ballistic missile submarine surfaces off Norway in unusual flex as 'Doomsday' plane flies overhead](https://www.yahoo.com/news/us-navy-nuclear-ballistic-missile-192333805.html)
-- Jun 26 - [Marjorie Taylor Greene Swung at a Drag Queen—and Missed](https://www.yahoo.com/news/marjorie-taylor-greene-swung-drag-173631552.html)
-- Jun 26 - [‘Excuse me? This is funny, Ms. Read?’: Judge, defense get into heated argument over verdict slip](https://www.yahoo.com/news/excuse-funny-ms-read-judge-151644459.html)
-- Jun 26 - [Supreme Court Nukes Hunter Biden Laptop Conspiracy in Brutal Ruling](https://www.yahoo.com/news/supreme-court-nukes-hunter-biden-165229642.html)
+- Jun 26 - [Toyota Tundra Bullies South Carolina Highway Patrol](https://autos.yahoo.com/toyota-tundra-bullies-south-carolina-203000053.html)
+- Jun 26 - [Hilton Head road rage brawl: Two women battle to the ground in the middle of U.S. 278](https://www.yahoo.com/news/hilton-head-road-rage-brawl-195616888.html)
+- Jun 26 - [CNN host fires back at Ramaswamy over terms of Biden-Trump debate](https://www.yahoo.com/news/cnn-host-fires-back-ramaswamy-182208735.html)
 <!-- feed end -->
 
 ### Onstream
