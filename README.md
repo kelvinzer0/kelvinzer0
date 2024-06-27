@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Police seeking masked suspects after ATM was uprooted and emptied in dead of night](https://www.yahoo.com/news/police-seeking-masked-suspects-atm-131400810.html)
+- Jun 27 - [Moment Massive Sinkhole Opens on Soccer Field Captured by CCTV](https://www.yahoo.com/news/moment-massive-sinkhole-opens-soccer-122951945.html)
+- Jun 27 - [US stockpiles of the rare earth minerals it would need to fight a war against an adversary like China are a mystery, and experts warn it's a problem](https://www.yahoo.com/news/us-stockpiles-rare-earth-minerals-120202517.html)
+- Jun 27 - [India's monsoon overcomes delay, set to cover country on time](https://www.yahoo.com/news/indias-monsoon-overcomes-delay-set-113001384.html)
 - Jun 27 - [Warren Buffett believes the vast wealth gap in America is due to 1 'inevitable consequence'](https://finance.yahoo.com/news/warren-buffett-believes-vast-wealth-113000714.html)
-- Jun 27 - [Chris Wallace's Stunning Claim On Trump Strategy For Debate Cracks Up CNN Pundit](https://www.yahoo.com/news/chris-wallaces-stunning-claim-trump-101742483.html)
-- Jun 27 - [McConnell breaks with Trump on vilification of Biden](https://www.yahoo.com/news/mcconnell-breaks-trump-vilification-biden-100000780.html)
-- Jun 27 - [Russia considering downgrading relations with the West, the Kremlin says](https://www.yahoo.com/news/russia-considering-downgrading-relations-west-090836378.html)
-- Jun 27 - [China calls on scientists of all nations to study lunar samples, but notes obstacle with the US](https://www.yahoo.com/news/china-calls-scientists-nations-study-090348077.html)
 <!-- feed end -->
 
 ### Onstream
