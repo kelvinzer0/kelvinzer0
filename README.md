@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Are You Looking for a High-Growth Dividend Stock?](https://finance.yahoo.com/news/looking-high-growth-dividend-stock-154502846.html)
+- Jun 27 - [Judge stops parents' effort to collect on $50M Alex Jones owes for saying Newtown shooting was hoax](https://www.yahoo.com/news/judge-stops-parents-effort-collect-173957059.html)
+- Jun 27 - [Sent to jail for raping a child, Dutch beach volleyball player qualifies for Paris Olympics representing the Netherlands](https://www.yahoo.com/news/sent-jail-raping-child-dutch-130101163.html)
+- Jun 27 - [‘We know this news will come as a shock’: Mass. college announces plans to close its doors](https://www.yahoo.com/news/know-news-come-shock-mass-160208863.html)
+- Jun 27 - [J.D. Power 2024 U.S. Initial Quality Study: American car makers fare well in major study](https://www.yahoo.com/news/j-d-power-2024-u-160132343.html)
 - Jun 27 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
-- Jun 27 - [Israel's bombs flatten swaths of Lebanon village amid fears of wider war](https://www.yahoo.com/news/israels-bombs-flatten-swaths-lebanon-150122857.html)
-- Jun 27 - [Gator strolls through Florida beach town ‘casually eating a snake’](https://www.yahoo.com/news/gator-strolls-famous-florida-beach-150115525.html)
-- Jun 27 - [The Supreme Court strips the SEC of a critical enforcement tool in fraud cases](https://www.yahoo.com/news/supreme-court-strips-sec-critical-141239096.html)
 <!-- feed end -->
 
 ### Onstream
