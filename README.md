@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Critics Clown Marjorie Taylor Greene Over Wild Election 'Self-Own': 'NO Self Awareness'](https://www.yahoo.com/news/critics-clown-marjorie-taylor-greene-054343778.html)
+- Jun 27 - [Live Kansas City traffic updates: Accidents, road closures, delays on KC-area highways](https://www.yahoo.com/news/live-kansas-city-traffic-updates-063201486.html)
 - Jun 27 - [She managed to leave Gaza after half of her family was killed in Israeli strike. She blames Hamas for what happened](https://www.yahoo.com/news/she-managed-leave-gaza-half-040142161.html)
 - Jun 27 - [As ice melts, Everest's 'death zone' gives up its ghosts](https://www.yahoo.com/news/ice-melts-everests-death-zone-032836170.html)
-- Jun 26 - [NASA taps Elon Musk's SpaceX to bring International Space Station out of orbit in a few more years](https://www.yahoo.com/news/nasa-taps-elon-musks-spacex-233514224.html)
-- Jun 26 - [Austin airport offering new TSA PreCheck enrollment option, no appointment required](https://www.yahoo.com/news/austin-airport-offering-tsa-precheck-232707234.html)
+- Jun 27 - [Philippines needs to 'do more' than protest China's actions in South China Sea, Marcos says](https://www.yahoo.com/news/philippines-needs-more-protest-chinas-023538327.html)
+- Jun 27 - [‘Disaster emergency’ declared in Canyon County as severe storms rip through Idaho](https://www.yahoo.com/news/disaster-emergency-declared-possible-tornado-021722329.html)
 <!-- feed end -->
 
 ### Onstream
