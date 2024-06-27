@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [She managed to leave Gaza after half of her family was killed in Israeli strike. She blames Hamas for what happened](https://www.yahoo.com/news/she-managed-leave-gaza-half-040142161.html)
-- Jun 27 - [As ice melts, Everest's 'death zone' gives up its ghosts](https://www.yahoo.com/news/ice-melts-everests-death-zone-032836170.html)
-- Jun 27 - [Philippines needs to 'do more' than protest China's actions in South China Sea, Marcos says](https://www.yahoo.com/news/philippines-needs-more-protest-chinas-023538327.html)
-- Jun 26 - [NASA taps Elon Musk's SpaceX to bring International Space Station out of orbit in a few more years](https://www.yahoo.com/news/nasa-taps-elon-musks-spacex-233514224.html)
-- Jun 26 - [Here’s a look at the crater left behind by a collapsed mine on an Alton soccer field](https://www.yahoo.com/news/look-crater-left-behind-collapsed-223405513.html)
+- Jun 27 - [Nvidia Stock Is Up 150% in 2024. History Says the AI Stock Will Do This in the Second Half of the Year (Hint: It May Shock You).](https://finance.yahoo.com/news/nvidia-stock-150-2024-history-081200424.html)
+- Jun 27 - [Taiwan warns against travel to China after execution threat](https://www.yahoo.com/news/taiwan-tells-citizens-avoid-unnecessary-080942809.html)
+- Jun 27 - [Cleary University bumped from 650 students to 1,050. Why?](https://www.yahoo.com/news/cleary-university-bumped-650-students-080616919.html)
+- Jun 27 - [She managed to flee Gaza after half her family was killed in an Israeli strike. She blames Israel and Hamas for what happened](https://www.yahoo.com/news/she-managed-leave-gaza-half-040142161.html)
+- Jun 27 - [The Latest | Israeli military releases photos it says prove slain charity worker was a militant](https://www.yahoo.com/news/latest-israeli-military-releases-photos-075352908.html)
 <!-- feed end -->
 
 ### Onstream
