@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Philippines needs to 'do more' than protest China's actions in South China Sea, Marcos says](https://www.yahoo.com/news/philippines-needs-more-protest-chinas-023538327.html)
+- Jun 27 - [She managed to leave Gaza after half of her family was killed in Israeli strike. She blames Hamas for what happened](https://www.yahoo.com/news/she-managed-leave-gaza-half-040142161.html)
+- Jun 27 - [Las Vegas man accused of racing Maserati 120 mph before deadly rollover crash](https://www.yahoo.com/news/las-vegas-man-accused-racing-012801671.html)
 - Jun 27 - [White West Virginia couple accused of adopting Black children and forcing them to work ‘as slaves’](https://www.yahoo.com/news/white-west-virginia-couple-accused-011445671.html)
 - Jun 27 - ['I'm sorry': Texas executes Ramiro Gonzales on birthday of 18-year-old he raped and killed](https://www.yahoo.com/news/texas-executes-ramiro-gonzales-birthday-003751430.html)
-- Jun 27 - [Las Vegas family says their livelihood is at stake thanks to camera-spray-painting thief](https://www.yahoo.com/news/las-vegas-family-says-livelihood-000437767.html)
 - Jun 26 - [NASA taps Elon Musk's SpaceX to bring International Space Station out of orbit in a few more years](https://www.yahoo.com/news/nasa-taps-elon-musks-spacex-233514224.html)
 <!-- feed end -->
 
