@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [NASA taps Elon Musk's SpaceX to bring International Space Station out of orbit in a few more years](https://www.yahoo.com/news/nasa-taps-elon-musks-spacex-233514224.html)
 - Jun 26 - [Here’s a look at the crater left behind by a collapsed mine on an Alton soccer field](https://www.yahoo.com/news/look-crater-left-behind-collapsed-223405513.html)
 - Jun 26 - [Rivian stock soars as Volkswagen says it will invest up to $5 billion in new joint venture](https://finance.yahoo.com/news/rivian-stock-soars-as-volkswagen-says-it-will-invest-up-to-5-billion-in-new-joint-venture-210921047.html)
-- Jun 26 - [Toyota Tundra Bullies South Carolina Highway Patrol](https://autos.yahoo.com/toyota-tundra-bullies-south-carolina-203000053.html)
-- Jun 26 - [Hilton Head road rage brawl: Two women battle to the ground in the middle of U.S. 278](https://www.yahoo.com/news/hilton-head-road-rage-brawl-195616888.html)
+- Jun 26 - ['Mom, our deer are famous': Stow woman's photos of baby deer playing in pool goes viral](https://www.yahoo.com/lifestyle/mom-deer-famous-stow-womans-184312394.html)
 - Jun 26 - [CNN host fires back at Ramaswamy over terms of Biden-Trump debate](https://www.yahoo.com/news/cnn-host-fires-back-ramaswamy-182208735.html)
 <!-- feed end -->
 
