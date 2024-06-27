@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Huge sinkhole opens up under football pitch in Illinois](https://www.yahoo.com/news/huge-sinkhole-opens-under-football-184917303.html)
-- Jun 27 - [China Finds Something Strange in Sample Retrieved From Moon](https://www.yahoo.com/news/china-finds-something-strange-sample-172924134.html)
-- Jun 27 - [Sent to jail for raping a child, Dutch beach volleyball player qualifies for Paris Olympics representing the Netherlands](https://www.yahoo.com/news/sent-jail-raping-child-dutch-130101163.html)
-- Jun 27 - [Judge in Trump classified documents case grants his request for one hearing, denies bid for another](https://www.yahoo.com/news/judge-trump-classified-docs-case-165759262.html)
-- Jun 27 - [‘We know this news will come as a shock’: Mass. college announces plans to close its doors](https://www.yahoo.com/news/know-news-come-shock-mass-160208863.html)
+- Jun 27 - [Rich Gulf States Have Huge Ambitions. Will Extreme Heat Hold Them Back?](https://www.yahoo.com/news/rich-gulf-states-huge-ambitions-195800989.html)
+- Jun 27 - [Reno's East, longtime MSU sports hangout, closing; sold to One North](https://www.yahoo.com/news/renos-east-longtime-msu-sports-194702671.html)
+- Jun 27 - [Walgreens will close a significant number of US stores, shutting down many unprofitable locations](https://finance.yahoo.com/news/walgreens-close-significant-number-8-124102716.html)
+- Jun 27 - [Man charged with threatening to kill presidential candidates found dead as jury was deciding verdict](https://www.yahoo.com/news/man-charged-threatening-kill-presidential-191031762.html)
+- Jun 27 - [‘Back to the negotiating table’: US Supreme Court puts $100M of NC opioid funds in limbo](https://www.yahoo.com/news/back-negotiating-table-us-supreme-184238883.html)
 <!-- feed end -->
 
 ### Onstream
