@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Rich Gulf States Have Huge Ambitions. Will Extreme Heat Hold Them Back?](https://www.yahoo.com/news/rich-gulf-states-huge-ambitions-195800989.html)
-- Jun 27 - [Reno's East, longtime MSU sports hangout, closing; sold to One North](https://www.yahoo.com/news/renos-east-longtime-msu-sports-194702671.html)
-- Jun 27 - [Walgreens will close a significant number of US stores, shutting down many unprofitable locations](https://finance.yahoo.com/news/walgreens-close-significant-number-8-124102716.html)
 - Jun 27 - [Man charged with threatening to kill presidential candidates found dead as jury was deciding verdict](https://www.yahoo.com/news/man-charged-threatening-kill-presidential-191031762.html)
-- Jun 27 - [‘Back to the negotiating table’: US Supreme Court puts $100M of NC opioid funds in limbo](https://www.yahoo.com/news/back-negotiating-table-us-supreme-184238883.html)
+- Jun 27 - [Elon Musk won $56 billion payday because of vote, Tesla argues in court](https://www.yahoo.com/tech/elon-musk-won-56-billion-174846977.html)
+- Jun 27 - [A Tesla driver says he crashed his brand new Cybertruck after the brakes stopped working](https://autos.yahoo.com/tesla-driver-says-crashed-brand-173136894.html)
+- Jun 27 - [China Finds Something Strange in Sample Retrieved From Moon](https://www.yahoo.com/news/china-finds-something-strange-sample-172924134.html)
+- Jun 27 - [New Hampshire teacher says student she drove to abortion clinic was 18, denies law was broken](https://www.yahoo.com/news/hampshire-teacher-says-student-she-172047702.html)
 <!-- feed end -->
 
 ### Onstream
