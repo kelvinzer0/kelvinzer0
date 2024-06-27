@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Chris Wallace's Stunning Claim On Trump Strategy For Debate Cracks Up CNN Pundit](https://www.yahoo.com/news/chris-wallaces-stunning-claim-trump-101742483.html)
-- Jun 27 - [How a San Diego doctor led the antiabortion movement to embrace controversial pill 'reversal'](https://www.yahoo.com/news/san-diego-doctor-led-antiabortion-100006999.html)
+- Jun 27 - [California limits suspensions to address disparities. Do they exist in Sacramento schools?](https://www.yahoo.com/news/california-limits-suspensions-address-disparities-120000641.html)
+- Jun 27 - [Why the prime suspect from Madeleine McCann’s disappearance might be released from prison](https://www.yahoo.com/lifestyle/why-prime-suspect-madeleine-mccann-115048821.html)
+- Jun 27 - [Warren Buffett believes the vast wealth gap in America is due to 1 'inevitable consequence'](https://finance.yahoo.com/news/warren-buffett-believes-vast-wealth-113000714.html)
 - Jun 27 - [Russia considering downgrading relations with the West, the Kremlin says](https://www.yahoo.com/news/russia-considering-downgrading-relations-west-090836378.html)
 - Jun 27 - [China calls on scientists of all nations to study lunar samples, but notes obstacle with the US](https://www.yahoo.com/news/china-calls-scientists-nations-study-090348077.html)
-- Jun 27 - [She managed to flee Gaza after half her family was killed in an Israeli strike. She blames Israel and Hamas for what happened](https://www.yahoo.com/news/she-managed-leave-gaza-half-040142161.html)
 <!-- feed end -->
 
 ### Onstream
