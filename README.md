@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Stock Market Holidays 2024: When Does Wall Street Close For Independence Day?](https://www.investors.com/research/stock-market-holidays-2024/?src=A00220&yptr=yahoo)
+- Jun 27 - [Are You Looking for a High-Growth Dividend Stock?](https://finance.yahoo.com/news/looking-high-growth-dividend-stock-154502846.html)
 - Jun 27 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
-- Jun 27 - [Public warned of traffic disruptions as FBI conducts large evidence search in Mass. beach town](https://www.yahoo.com/news/public-warned-traffic-disruptions-fbi-150717842.html)
-- Jun 27 - [The housing market is ‘stuck’ until at least 2026, Bank of America warns](https://finance.yahoo.com/news/housing-market-stuck-until-least-103642258.html)
+- Jun 27 - [Israel's bombs flatten swaths of Lebanon village amid fears of wider war](https://www.yahoo.com/news/israels-bombs-flatten-swaths-lebanon-150122857.html)
+- Jun 27 - [Gator strolls through Florida beach town ‘casually eating a snake’](https://www.yahoo.com/news/gator-strolls-famous-florida-beach-150115525.html)
 - Jun 27 - [The Supreme Court strips the SEC of a critical enforcement tool in fraud cases](https://www.yahoo.com/news/supreme-court-strips-sec-critical-141239096.html)
 <!-- feed end -->
 
