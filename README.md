@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Critics Clown Marjorie Taylor Greene Over Wild Election 'Self-Own': 'NO Self Awareness'](https://www.yahoo.com/news/critics-clown-marjorie-taylor-greene-054343778.html)
 - Jun 27 - [She managed to leave Gaza after half of her family was killed in Israeli strike. She blames Hamas for what happened](https://www.yahoo.com/news/she-managed-leave-gaza-half-040142161.html)
-- Jun 27 - [Las Vegas man accused of racing Maserati 120 mph before deadly rollover crash](https://www.yahoo.com/news/las-vegas-man-accused-racing-012801671.html)
-- Jun 27 - [White West Virginia couple accused of adopting Black children and forcing them to work ‘as slaves’](https://www.yahoo.com/news/white-west-virginia-couple-accused-011445671.html)
-- Jun 27 - ['I'm sorry': Texas executes Ramiro Gonzales on birthday of 18-year-old he raped and killed](https://www.yahoo.com/news/texas-executes-ramiro-gonzales-birthday-003751430.html)
+- Jun 27 - [As ice melts, Everest's 'death zone' gives up its ghosts](https://www.yahoo.com/news/ice-melts-everests-death-zone-032836170.html)
 - Jun 26 - [NASA taps Elon Musk's SpaceX to bring International Space Station out of orbit in a few more years](https://www.yahoo.com/news/nasa-taps-elon-musks-spacex-233514224.html)
+- Jun 26 - [Austin airport offering new TSA PreCheck enrollment option, no appointment required](https://www.yahoo.com/news/austin-airport-offering-tsa-precheck-232707234.html)
 <!-- feed end -->
 
 ### Onstream
