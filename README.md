@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Senior Russian diplomat says US must take heed of discussions on nuclear doctrine](https://www.yahoo.com/news/senior-russian-diplomat-says-us-023324506.html)
+- Jun 27 - [Philippines needs to 'do more' than protest China's actions in South China Sea, Marcos says](https://www.yahoo.com/news/philippines-needs-more-protest-chinas-023538327.html)
+- Jun 27 - [White West Virginia couple accused of adopting Black children and forcing them to work ‘as slaves’](https://www.yahoo.com/news/white-west-virginia-couple-accused-011445671.html)
+- Jun 27 - ['I'm sorry': Texas executes Ramiro Gonzales on birthday of 18-year-old he raped and killed](https://www.yahoo.com/news/texas-executes-ramiro-gonzales-birthday-003751430.html)
 - Jun 27 - [Las Vegas family says their livelihood is at stake thanks to camera-spray-painting thief](https://www.yahoo.com/news/las-vegas-family-says-livelihood-000437767.html)
 - Jun 26 - [NASA taps Elon Musk's SpaceX to bring International Space Station out of orbit in a few more years](https://www.yahoo.com/news/nasa-taps-elon-musks-spacex-233514224.html)
-- Jun 26 - [Austin airport offering new TSA PreCheck enrollment option, no appointment required](https://www.yahoo.com/news/austin-airport-offering-tsa-precheck-232707234.html)
-- Jun 26 - [Here’s a look at the crater left behind by a collapsed mine on an Alton soccer field](https://www.yahoo.com/news/look-crater-left-behind-collapsed-223405513.html)
 <!-- feed end -->
 
 ### Onstream
