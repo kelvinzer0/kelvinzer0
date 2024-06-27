@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jun 27 - [Biden Campaign Has Just 3 Words After Trump Seems To Leak Debate Talking Points](https://www.yahoo.com/news/biden-campaign-just-3-words-211739028.html)
 - Jun 27 - [Here's the Net Worth of Married Couples by Age: How Do You Stack Up?](https://finance.yahoo.com/news/average-retirement-savings-married-couples-180729139.html)
 - Jun 27 - [Walgreens will close a significant number of US stores, shutting down many unprofitable locations](https://finance.yahoo.com/news/walgreens-close-significant-number-8-124102716.html)
-- Jun 27 - [I’m Almost a Millionaire: 3 Money Challenges Keeping My Net Worth at 6 Figures](https://finance.yahoo.com/news/m-almost-millionaire-3-money-180009070.html)
-- Jun 27 - [China Finds Something Strange in Sample Retrieved From Moon](https://www.yahoo.com/news/china-finds-something-strange-sample-172924134.html)
+- Jun 27 - [Sinkhole swallows soccer field in Illinois in shocking video](https://www.yahoo.com/news/sinkhole-swallows-soccer-field-illinois-150529594.html)
+- Jun 27 - [Michelle Obama ‘not campaigning for Biden over treatment of her friend’](https://www.yahoo.com/news/michelle-obama-not-campaigning-biden-170936643.html)
 <!-- feed end -->
 
 ### Onstream
