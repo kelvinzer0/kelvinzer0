@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [How ‘mentally unfit’ Biden can survive a 90-minute TV battle with Trump](https://www.yahoo.com/news/mentally-unfit-biden-survive-90-141647861.html)
-- Jun 27 - [Vigilante fake NYPD cop pepper-sprays Manhattan tourist subway fare evader](https://www.yahoo.com/news/vigilante-fake-nypd-cop-pepper-134700190.html)
+- Jun 27 - [Stock Market Holidays 2024: When Does Wall Street Close For Independence Day?](https://www.investors.com/research/stock-market-holidays-2024/?src=A00220&yptr=yahoo)
 - Jun 27 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
-- Jun 27 - [Taco Bell enters the value meal wars with its biggest deal ever](https://finance.yahoo.com/news/taco-bell-enters-value-meal-120042111.html)
-- Jun 27 - [India's monsoon overcomes delay, set to cover country on time](https://www.yahoo.com/news/indias-monsoon-overcomes-delay-set-113001384.html)
+- Jun 27 - [Public warned of traffic disruptions as FBI conducts large evidence search in Mass. beach town](https://www.yahoo.com/news/public-warned-traffic-disruptions-fbi-150717842.html)
+- Jun 27 - [The housing market is ‘stuck’ until at least 2026, Bank of America warns](https://finance.yahoo.com/news/housing-market-stuck-until-least-103642258.html)
+- Jun 27 - [The Supreme Court strips the SEC of a critical enforcement tool in fraud cases](https://www.yahoo.com/news/supreme-court-strips-sec-critical-141239096.html)
 <!-- feed end -->
 
 ### Onstream
