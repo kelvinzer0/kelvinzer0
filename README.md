@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Judge stops parents' effort to collect on $50M Alex Jones owes for saying Newtown shooting was hoax](https://www.yahoo.com/news/judge-stops-parents-effort-collect-173957059.html)
+- Jun 27 - [Huge sinkhole opens up under football pitch in Illinois](https://www.yahoo.com/news/huge-sinkhole-opens-under-football-184917303.html)
+- Jun 27 - [China Finds Something Strange in Sample Retrieved From Moon](https://www.yahoo.com/news/china-finds-something-strange-sample-172924134.html)
 - Jun 27 - [Sent to jail for raping a child, Dutch beach volleyball player qualifies for Paris Olympics representing the Netherlands](https://www.yahoo.com/news/sent-jail-raping-child-dutch-130101163.html)
+- Jun 27 - [Judge in Trump classified documents case grants his request for one hearing, denies bid for another](https://www.yahoo.com/news/judge-trump-classified-docs-case-165759262.html)
 - Jun 27 - [‘We know this news will come as a shock’: Mass. college announces plans to close its doors](https://www.yahoo.com/news/know-news-come-shock-mass-160208863.html)
-- Jun 27 - [J.D. Power 2024 U.S. Initial Quality Study: American car makers fare well in major study](https://www.yahoo.com/news/j-d-power-2024-u-160132343.html)
-- Jun 27 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
 <!-- feed end -->
 
 ### Onstream
