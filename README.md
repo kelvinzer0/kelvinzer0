@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [Curiosity Discovered Evidence Of Water On Ancient Mars](https://www.yahoo.com/news/curiosity-discovered-evidence-water-ancient-170000841.html)
+- Jun 28 - [Kansas City barbecue restaurant will expand again with a 4th location. Here’s where](https://www.yahoo.com/news/kansas-city-barbecue-restaurant-expand-163417855.html)
 - Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
+- Jun 28 - [A Southwest flight appeared to take off from a closed runway that had a vehicle on it without being cleared by air traffic control](https://www.yahoo.com/news/southwest-flight-appeared-off-closed-144047705.html)
 - Jun 28 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-202416711.html)
-- Jun 28 - [Opinion: I’m a champion debate coach. Here’s how they scored](https://www.yahoo.com/news/debate-coach-biden-trump-both-120848204.html)
-- Jun 28 - [These major cruise lines are changing their displayed prices. Here's why.](https://finance.yahoo.com/news/major-cruise-lines-changing-displayed-132347913.html)
-- Jun 28 - [NTSB, FAA to investigate Southwest flight that departed from closed runway in Maine](https://www.yahoo.com/news/faa-investigate-southwest-flight-departed-123816356.html)
 <!-- feed end -->
 
 ### Onstream
