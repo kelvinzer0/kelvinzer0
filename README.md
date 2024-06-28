@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
 - Jun 28 - [Debate-watchers in the Biden and Trump camps seem to agree on something. Biden had a bad night](https://www.yahoo.com/news/debate-watchers-biden-trump-camps-054644662.html)
-- Jun 28 - [‘This wasn’t a debate, it was a medical emergency’: Our writers give their verdicts](https://www.yahoo.com/news/won-us-presidential-debate-writers-025125694.html)
-- Jun 28 - [Biden Should Never Have Debated Trump — and CNN Did Him No Favors](https://www.yahoo.com/news/biden-never-debated-trump-cnn-030017345.html)
+- Jun 28 - [‘WTF’: Panicked Dems start looking for alternatives to Biden](https://www.yahoo.com/news/democrats-consider-unthinkable-time-biden-035218727.html)
+- Jun 28 - [Dems freak out over Biden’s debate performance: ‘Biden is toast’](https://www.yahoo.com/news/biden-toast-calling-now-biden-021518381.html)
 - Jun 28 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
 <!-- feed end -->
 
