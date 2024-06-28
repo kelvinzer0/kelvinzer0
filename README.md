@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [This New Jersey town second only to New York for expensive rent](https://finance.yahoo.com/news/jersey-town-second-only-york-195255010.html)
-- Jun 28 - [New 59-unit project in downtown Grover Beach breaks ground. Take a look at the construction](https://www.yahoo.com/news/59-unit-project-downtown-grover-191617484.html)
-- Jun 28 - [EVs are giving new owners more headaches, and Tesla is a big reason why: J.D. Power study](https://finance.yahoo.com/news/evs-are-giving-new-owners-more-headaches-and-tesla-is-a-big-reason-why-jd-power-study-180922855.html)
-- Jun 28 - [OTD In Space – June 28: SpaceX Rocket Explodes After Liftoff](https://www.yahoo.com/news/otd-space-june-28-spacex-180000670.html)
-- Jun 28 - [Watch: Nancy Pelosi Gives Ominous Answer on Replacing Biden](https://www.yahoo.com/news/watch-nancy-pelosi-gives-ominous-174502127.html)
+- Jun 28 - [US miners' union head calls House Republican effort to block silica dust rule an 'attack' on workers](https://www.yahoo.com/news/us-miners-union-head-calls-204554094.html)
+- Jun 28 - [U.S. Supreme Court flips precedent that empowered federal agencies](https://www.yahoo.com/news/u-supreme-court-flips-precedent-200157209.html)
+- Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
+- Jun 28 - [At Least 30 Egyptian Tombs Have Reappeared—and Archaeologists Are Astounded](https://www.yahoo.com/news/lost-egyptian-port-reappeared-archaeologists-185700376.html)
+- Jun 28 - [Flight Attendants Are Sharing The Most Entitled Passengers They've Ever Had To Deal With, And I'm Disgusted](https://www.yahoo.com/entertainment/flight-attendants-sharing-most-entitled-181602275.html)
 <!-- feed end -->
 
 ### Onstream
