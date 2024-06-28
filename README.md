@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [Debate-watchers in the Biden and Trump camps seem to agree on something. Biden had a bad night](https://www.yahoo.com/news/debate-watchers-biden-trump-camps-054644662.html)
 - Jun 28 - [Jon Stewart Can’t Defend Biden Debate Disaster: ‘This Cannot Be Real Life’](https://www.yahoo.com/entertainment/jon-stewart-t-defend-biden-043318527.html)
 - Jun 28 - [‘WTF’: Panicked Dems start looking for alternatives to Biden](https://www.yahoo.com/news/democrats-consider-unthinkable-time-biden-035218727.html)
 - Jun 28 - [Biden Should Never Have Debated Trump — and CNN Did Him No Favors](https://www.yahoo.com/news/biden-never-debated-trump-cnn-030017345.html)
-- Jun 28 - [Bette Midler, Big Boi & More React to Biden/Trump Debate: ‘How Many TV Screens Are Going to Be Broken Tonight?’](https://www.yahoo.com/entertainment/bette-midler-big-boi-more-023842967.html)
 - Jun 28 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
 <!-- feed end -->
 
