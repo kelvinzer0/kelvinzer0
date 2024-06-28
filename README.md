@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Curiosity Discovered Evidence Of Water On Ancient Mars](https://www.yahoo.com/news/curiosity-discovered-evidence-water-ancient-170000841.html)
+- Jun 28 - [EVs are giving new owners more headaches, and Tesla is a big reason why: J.D. Power study](https://finance.yahoo.com/news/evs-are-giving-new-owners-more-headaches-and-tesla-is-a-big-reason-why-jd-power-study-180922855.html)
+- Jun 28 - [North Korea cracking down on wedding dresses and slang - report](https://www.yahoo.com/news/north-korea-cracking-down-wedding-102640644.html)
 - Jun 28 - [Kansas City barbecue restaurant will expand again with a 4th location. Here’s where](https://www.yahoo.com/news/kansas-city-barbecue-restaurant-expand-163417855.html)
 - Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
-- Jun 28 - [A Southwest flight appeared to take off from a closed runway that had a vehicle on it without being cleared by air traffic control](https://www.yahoo.com/news/southwest-flight-appeared-off-closed-144047705.html)
-- Jun 28 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-202416711.html)
+- Jun 28 - [In fight against blight, Detroit cracks down on business owners who illegally post signs](https://www.yahoo.com/news/fight-against-blight-detroit-cracks-161659061.html)
 <!-- feed end -->
 
 ### Onstream
