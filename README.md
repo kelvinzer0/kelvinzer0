@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Biden is a danger to the West](https://www.yahoo.com/news/biden-danger-west-083909542.html)
+- Jun 28 - [Trump Media shares climb after Biden's shaky debate showing against Trump](https://finance.yahoo.com/news/trump-media-shares-climb-bidens-104450201.html)
+- Jun 28 - [Russia warns it can take unspecified measures in response to US drone flights over Black Sea](https://www.yahoo.com/news/russia-warns-unspecified-measures-response-101236571.html)
+- Jun 28 - [Debate expert: probably the worst performance of an incumbent candidate ever](https://www.yahoo.com/news/debate-expert-probably-worst-performance-095503194.html)
 - Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
 - Jun 28 - [Debate-watchers in the Biden and Trump camps seem to agree on something. Biden had a bad night](https://www.yahoo.com/news/debate-watchers-biden-trump-camps-054644662.html)
-- Jun 28 - [Jon Stewart Can’t Defend Biden Debate Disaster: ‘This Cannot Be Real Life’](https://www.yahoo.com/entertainment/jon-stewart-t-defend-biden-043318527.html)
-- Jun 28 - [‘This wasn’t a debate, it was a medical emergency’: Our writers give their verdicts](https://www.yahoo.com/news/won-us-presidential-debate-writers-025125694.html)
 <!-- feed end -->
 
 ### Onstream
