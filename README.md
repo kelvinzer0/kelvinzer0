@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Biden Campaign Has Just 3 Words After Trump Seems To Leak Debate Talking Points](https://www.yahoo.com/news/biden-campaign-just-3-words-211739028.html)
-- Jun 27 - [Here's the Net Worth of Married Couples by Age: How Do You Stack Up?](https://finance.yahoo.com/news/average-retirement-savings-married-couples-180729139.html)
 - Jun 27 - [Walgreens will close a significant number of US stores, shutting down many unprofitable locations](https://finance.yahoo.com/news/walgreens-close-significant-number-8-124102716.html)
-- Jun 27 - [Sinkhole swallows soccer field in Illinois in shocking video](https://www.yahoo.com/news/sinkhole-swallows-soccer-field-illinois-150529594.html)
-- Jun 27 - [Michelle Obama ‘not campaigning for Biden over treatment of her friend’](https://www.yahoo.com/news/michelle-obama-not-campaigning-biden-170936643.html)
+- Jun 27 - [Jen Psaki Warns of a Biden Weakness That Could ‘Lose the Audience’ Mid-Debate | Video](https://www.yahoo.com/news/jen-psaki-warns-biden-weakness-235105480.html)
+- Jun 27 - [Taco Bell enters the value meal wars with its biggest deal ever](https://finance.yahoo.com/news/taco-bell-enters-value-meal-120042111.html)
+- Jun 27 - [Pete Buttigieg Demolishes GOP Rep’s Complaint About Electric Cars](https://www.yahoo.com/news/pete-buttigieg-demolishes-gop-rep-224211193.html)
+- Jun 27 - [‘Cat-sized’ rats taking over Dupont Circle apartment building, tenants say](https://www.yahoo.com/news/cat-sized-rats-taking-over-213638389.html)
 <!-- feed end -->
 
 ### Onstream
