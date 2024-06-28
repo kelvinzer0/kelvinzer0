@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Trump Media shares climb after Biden's shaky debate showing against Trump](https://finance.yahoo.com/news/trump-media-shares-climb-bidens-104450201.html)
 - Jun 28 - [Russia warns it can take unspecified measures in response to US drone flights over Black Sea](https://www.yahoo.com/news/russia-warns-unspecified-measures-response-101236571.html)
-- Jun 28 - [Debate expert: probably the worst performance of an incumbent candidate ever](https://www.yahoo.com/news/debate-expert-probably-worst-performance-095503194.html)
 - Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
 - Jun 28 - [Debate-watchers in the Biden and Trump camps seem to agree on something. Biden had a bad night](https://www.yahoo.com/news/debate-watchers-biden-trump-camps-054644662.html)
+- Jun 28 - [Frustrated Kamala Harris clashes with CNN's Anderson Cooper after Biden's rough debate](https://www.yahoo.com/news/frustrated-kamala-harris-clashes-cnns-054204479.html)
+- Jun 28 - [‘WTF’: Panicked Dems start looking for alternatives to Biden](https://www.yahoo.com/news/democrats-consider-unthinkable-time-biden-035218727.html)
 <!-- feed end -->
 
 ### Onstream
