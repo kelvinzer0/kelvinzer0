@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [NTSB, FAA to investigate Southwest flight that departed from closed runway in Maine](https://www.yahoo.com/news/faa-investigate-southwest-flight-departed-123816356.html)
+- Jun 28 - [Axelrod to GOP strategists: If Biden is replaced, ‘you guys are in trouble’](https://www.yahoo.com/news/axelrod-gop-strategists-biden-replaced-123242747.html)
 - Jun 28 - [‘Morning Joe’ in Full Meltdown: ‘Biden Cannot Beat Trump’](https://www.yahoo.com/news/morning-joe-full-meltdown-biden-121422820.html)
 - Jun 28 - [This Florida woman used lifetime warranties to cheaply maintain her car for 43 years. Here’s how you can do the same](https://finance.yahoo.com/news/florida-woman-used-lifetime-warranties-105500169.html)
-- Jun 28 - [Did MS Coast casino security use ‘unreasonable force’ in arresting VIP? Jury set to decide](https://www.yahoo.com/news/did-ms-coast-casino-security-103000961.html)
 - Jun 28 - [Tropical Storm Beryl expected soon as system approaches Caribbean. See spaghetti models](https://www.yahoo.com/news/tropical-storm-beryl-expected-soon-101802969.html)
+- Jun 28 - [Russia warns it can take unspecified measures in response to US drone flights over Black Sea](https://www.yahoo.com/news/russia-warns-unspecified-measures-response-101236571.html)
 <!-- feed end -->
 
 ### Onstream
