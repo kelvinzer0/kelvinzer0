@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Biden’s Gaffes Hand Trump a Weapon: ‘Finally Beat Medicare’](https://www.yahoo.com/news/bidens-gaffes-hand-trump-weapon-012657536.html)
-- Jun 27 - [Walgreens will close a significant number of US stores, shutting down many unprofitable locations](https://finance.yahoo.com/news/walgreens-close-significant-number-8-124102716.html)
-- Jun 27 - [Taco Bell enters the value meal wars with its biggest deal ever](https://finance.yahoo.com/news/taco-bell-enters-value-meal-120042111.html)
-- Jun 27 - [Connecticut governor to replant more than 180 trees, thousands of bushes cut down behind his house](https://www.yahoo.com/news/connecticut-governor-replant-more-180-230323691.html)
-- Jun 27 - [Pete Buttigieg Demolishes GOP Rep’s Complaint About Electric Cars](https://www.yahoo.com/news/pete-buttigieg-demolishes-gop-rep-224211193.html)
+- Jun 28 - [Dems freak out over Biden’s debate performance: ‘Biden is toast’](https://www.yahoo.com/news/biden-toast-calling-now-biden-021518381.html)
+- Jun 28 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
+- Jun 28 - ['A disaster so far': Biden freezing on stage during debate draws fire on social media](https://www.yahoo.com/news/doesnt-biden-freezing-stage-during-020725203.html)
+- Jun 28 - [Donald Trump’s ‘Afterbirth Abortion’ Debate Lie Ignites Fury: ‘There Is No Such F–king Thing’](https://www.yahoo.com/entertainment/donald-trump-afterbirth-abortion-debate-020254640.html)
+- Jun 28 - [The first debate was a complete disaster for Joe Biden](https://www.yahoo.com/news/first-debate-complete-disaster-joe-015234155.html)
 <!-- feed end -->
 
 ### Onstream
