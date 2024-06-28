@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [Putin says Russia to resume production of nuclear-capable intermediate range missiles](https://www.yahoo.com/news/putin-says-russia-resume-production-155954077.html)
+- Jun 28 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-202416711.html)
 - Jun 28 - [Axelrod to GOP strategists: If Biden is replaced, ‘you guys are in trouble’](https://www.yahoo.com/news/axelrod-gop-strategists-biden-replaced-123242747.html)
-- Jun 28 - [‘Morning Joe’ in Full Meltdown: ‘Biden Cannot Beat Trump’](https://www.yahoo.com/news/morning-joe-full-meltdown-biden-121422820.html)
+- Jun 28 - [Dave Ramsey busts 6 popular myths about his money advice — did you fall for any of them?](https://finance.yahoo.com/news/dave-ramsey-busts-6-popular-120100296.html)
 - Jun 28 - [This Florida woman used lifetime warranties to cheaply maintain her car for 43 years. Here’s how you can do the same](https://finance.yahoo.com/news/florida-woman-used-lifetime-warranties-105500169.html)
-- Jun 28 - [Tropical Storm Beryl expected soon as system approaches Caribbean. See spaghetti models](https://www.yahoo.com/news/tropical-storm-beryl-expected-soon-101802969.html)
-- Jun 28 - [Russia warns it can take unspecified measures in response to US drone flights over Black Sea](https://www.yahoo.com/news/russia-warns-unspecified-measures-response-101236571.html)
 <!-- feed end -->
 
 ### Onstream
