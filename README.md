@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Dems freak out over Biden’s debate performance: ‘Biden is toast’](https://www.yahoo.com/news/biden-toast-calling-now-biden-021518381.html)
+- Jun 28 - [Biden Should Never Have Debated Trump — and CNN Did Him No Favors](https://www.yahoo.com/news/biden-never-debated-trump-cnn-030017345.html)
+- Jun 28 - [Trump Says The 1 Line We Never Thought We'd Hear At A Presidential Debate](https://www.yahoo.com/news/trump-says-1-line-never-025837837.html)
 - Jun 28 - [‘This disorder has almost killed me’: His addiction to ultraprocessed food began as a child](https://www.yahoo.com/news/sugary-food-drug-growing-number-090043703.html)
 - Jun 28 - ['A disaster so far': Biden freezing on stage during debate draws fire on social media](https://www.yahoo.com/news/doesnt-biden-freezing-stage-during-020725203.html)
 - Jun 28 - [Donald Trump’s ‘Afterbirth Abortion’ Debate Lie Ignites Fury: ‘There Is No Such F–king Thing’](https://www.yahoo.com/entertainment/donald-trump-afterbirth-abortion-debate-020254640.html)
-- Jun 28 - [The first debate was a complete disaster for Joe Biden](https://www.yahoo.com/news/first-debate-complete-disaster-joe-015234155.html)
 <!-- feed end -->
 
 ### Onstream
