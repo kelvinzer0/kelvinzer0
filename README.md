@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Putin says Russia to resume production of nuclear-capable intermediate range missiles](https://www.yahoo.com/news/putin-says-russia-resume-production-155954077.html)
+- Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
 - Jun 28 - [7 Democrats who could replace Biden if he drops his 2024 reelection bid](https://www.yahoo.com/news/7-democrats-could-replace-biden-202416711.html)
-- Jun 28 - [Axelrod to GOP strategists: If Biden is replaced, ‘you guys are in trouble’](https://www.yahoo.com/news/axelrod-gop-strategists-biden-replaced-123242747.html)
-- Jun 28 - [Dave Ramsey busts 6 popular myths about his money advice — did you fall for any of them?](https://finance.yahoo.com/news/dave-ramsey-busts-6-popular-120100296.html)
-- Jun 28 - [This Florida woman used lifetime warranties to cheaply maintain her car for 43 years. Here’s how you can do the same](https://finance.yahoo.com/news/florida-woman-used-lifetime-warranties-105500169.html)
+- Jun 28 - [Opinion: I’m a champion debate coach. Here’s how they scored](https://www.yahoo.com/news/debate-coach-biden-trump-both-120848204.html)
+- Jun 28 - [These major cruise lines are changing their displayed prices. Here's why.](https://finance.yahoo.com/news/major-cruise-lines-changing-displayed-132347913.html)
+- Jun 28 - [NTSB, FAA to investigate Southwest flight that departed from closed runway in Maine](https://www.yahoo.com/news/faa-investigate-southwest-flight-departed-123816356.html)
 <!-- feed end -->
 
 ### Onstream
