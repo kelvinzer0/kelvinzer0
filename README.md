@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [This New Jersey town second only to New York for expensive rent](https://finance.yahoo.com/news/jersey-town-second-only-york-195255010.html)
+- Jun 28 - [New 59-unit project in downtown Grover Beach breaks ground. Take a look at the construction](https://www.yahoo.com/news/59-unit-project-downtown-grover-191617484.html)
 - Jun 28 - [EVs are giving new owners more headaches, and Tesla is a big reason why: J.D. Power study](https://finance.yahoo.com/news/evs-are-giving-new-owners-more-headaches-and-tesla-is-a-big-reason-why-jd-power-study-180922855.html)
-- Jun 28 - [North Korea cracking down on wedding dresses and slang - report](https://www.yahoo.com/news/north-korea-cracking-down-wedding-102640644.html)
-- Jun 28 - [Kansas City barbecue restaurant will expand again with a 4th location. Here’s where](https://www.yahoo.com/news/kansas-city-barbecue-restaurant-expand-163417855.html)
-- Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
-- Jun 28 - [In fight against blight, Detroit cracks down on business owners who illegally post signs](https://www.yahoo.com/news/fight-against-blight-detroit-cracks-161659061.html)
+- Jun 28 - [OTD In Space – June 28: SpaceX Rocket Explodes After Liftoff](https://www.yahoo.com/news/otd-space-june-28-spacex-180000670.html)
+- Jun 28 - [Watch: Nancy Pelosi Gives Ominous Answer on Replacing Biden](https://www.yahoo.com/news/watch-nancy-pelosi-gives-ominous-174502127.html)
 <!-- feed end -->
 
 ### Onstream
