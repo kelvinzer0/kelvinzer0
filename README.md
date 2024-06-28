@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [This Florida woman used lifetime warranties to cheaply maintain her car for 43 years. Here’s how you can do the same](https://finance.yahoo.com/news/florida-woman-used-lifetime-warranties-105500169.html)
+- Jun 28 - [Tropical Storm Beryl expected soon as system approaches Caribbean. See spaghetti models](https://www.yahoo.com/news/tropical-storm-beryl-expected-soon-101802969.html)
 - Jun 28 - [Russia warns it can take unspecified measures in response to US drone flights over Black Sea](https://www.yahoo.com/news/russia-warns-unspecified-measures-response-101236571.html)
 - Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
 - Jun 28 - [Debate-watchers in the Biden and Trump camps seem to agree on something. Biden had a bad night](https://www.yahoo.com/news/debate-watchers-biden-trump-camps-054644662.html)
-- Jun 28 - [Frustrated Kamala Harris clashes with CNN's Anderson Cooper after Biden's rough debate](https://www.yahoo.com/news/frustrated-kamala-harris-clashes-cnns-054204479.html)
-- Jun 28 - [‘WTF’: Panicked Dems start looking for alternatives to Biden](https://www.yahoo.com/news/democrats-consider-unthinkable-time-biden-035218727.html)
 <!-- feed end -->
 
 ### Onstream
