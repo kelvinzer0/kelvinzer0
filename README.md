@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
-- Jun 28 - [Buc-ee’s looking to expand to Oklahoma](https://www.yahoo.com/news/buc-ee-looking-expand-oklahoma-193925277.html)
-- Jun 28 - [At Least 30 Egyptian Tombs Have Reappeared—and Archaeologists Are Astounded](https://www.yahoo.com/news/lost-egyptian-port-reappeared-archaeologists-185700376.html)
+- Jun 28 - [Flight Attendants Are Sharing The Most Entitled Passengers They've Ever Had To Deal With, And I'm Disgusted](https://www.yahoo.com/entertainment/flight-attendants-sharing-most-entitled-181602275.html)
 - Jun 28 - [EVs are giving new owners more headaches, and Tesla is a big reason why: J.D. Power study](https://finance.yahoo.com/news/evs-are-giving-new-owners-more-headaches-and-tesla-is-a-big-reason-why-jd-power-study-180922855.html)
-- Jun 28 - [I Grew Up Rich: 6 Money Lessons I Wish My Parents Would Have Taught Me](https://finance.yahoo.com/news/grew-rich-6-money-lessons-180010744.html)
+- Jun 28 - [OTD In Space – June 28: SpaceX Rocket Explodes After Liftoff](https://www.yahoo.com/news/otd-space-june-28-spacex-180000670.html)
+- Jun 28 - [Amy Word found guilty; prosecutor says evidence was 'overwhelming'](https://www.yahoo.com/news/jury-returns-guilty-verdict-amy-174849995.html)
+- Jun 28 - [Watch: Nancy Pelosi Gives Ominous Answer on Replacing Biden](https://www.yahoo.com/news/watch-nancy-pelosi-gives-ominous-174502127.html)
 <!-- feed end -->
 
 ### Onstream
