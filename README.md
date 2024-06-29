@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jun 29 - [Minnesota family store is demolished from its perch near dam damaged by surging river](https://www.yahoo.com/news/minnesota-family-store-demolished-perch-001307177.html)
 - Jun 28 - [A frozen wolf discovered in Siberia turned out to be 44,000 years old. It's so well-preserved that scientists are checking its gut for ancient viruses.](https://www.yahoo.com/news/frozen-wolf-discovered-siberia-turned-214206566.html)
 - Jun 28 - [Top U.S. banks hike dividends after sailing through Fed's stress test](https://finance.yahoo.com/news/top-u-banks-hike-dividends-205959368.html)
-- Jun 28 - [Red Rocks employees report seeing UFO in night sky above famed Colorado concert venue](https://www.yahoo.com/news/red-rocks-employees-report-seeing-195258376.html)
+- Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
 <!-- feed end -->
 
 ### Onstream
