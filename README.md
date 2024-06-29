@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Russia presses its offensive in Ukraine and issues new threats as the West tries to blunt the push](https://www.yahoo.com/news/russia-presses-offensive-ukraine-issues-042053338.html)
 - Jun 29 - [Las Vegas escort dies after man allegedly strangles her inside hotel room](https://www.yahoo.com/news/las-vegas-escort-dies-incident-020718798.html)
 - Jun 29 - [Minnesota family store is demolished from its perch near dam damaged by surging river](https://www.yahoo.com/news/minnesota-family-store-demolished-perch-001307177.html)
 - Jun 28 - [A frozen wolf discovered in Siberia turned out to be 44,000 years old. It's so well-preserved that scientists are checking its gut for ancient viruses.](https://www.yahoo.com/news/frozen-wolf-discovered-siberia-turned-214206566.html)
 - Jun 28 - [Newly discovered asteroid larger than the Great Pyramid of Giza will zoom between Earth and the moon on Saturday](https://www.yahoo.com/news/newly-discovered-asteroid-larger-great-213320101.html)
-- Jun 28 - [Video: Porsche 911 GT2 RS Wrecks After Sketchy Pass on Truck](https://autos.yahoo.com/video-porsche-911-gt2-rs-201400765.html)
 <!-- feed end -->
 
 ### Onstream
