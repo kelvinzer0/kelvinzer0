@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Carville on Biden’s dismal debate: He relies on ‘employees’ not ‘advisers’](https://www.yahoo.com/news/carville-biden-dismal-debate-relies-183422169.html)
 - Jun 29 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
-- Jun 29 - [You have 4 days to get paid up to $349 as part of an Apple iPhone settlement — here's how to know if you qualify](https://www.yahoo.com/tech/iphone-users-could-entitled-350-164823538.html)
 - Jun 29 - [Downtown Los Angeles street takeover ends in inferno](https://www.yahoo.com/news/downtown-los-angeles-street-takeover-145416749.html)
 - Jun 29 - [China issues rare earth regulations to further protect domestic supply](https://finance.yahoo.com/news/china-issues-rare-earth-regulations-144946340.html)
-- Jun 29 - [Shots fired at XL bully in street after woman attacked](https://www.yahoo.com/news/woman-injured-xl-bully-street-075011914.html)
+- Jun 29 - [Startup unveils 'world's largest aircraft' with out-of-the-box design — here's how it could change the transportation industry](https://www.yahoo.com/tech/startup-unveils-worlds-largest-aircraft-110000005.html)
 <!-- feed end -->
 
 ### Onstream
