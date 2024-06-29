@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Gaza displaced express their despair as they seek respite from soaring temperatures](https://www.yahoo.com/news/gaza-displaced-express-despair-seek-160230244.html)
 - Jun 29 - [Downtown Los Angeles street takeover ends in inferno](https://www.yahoo.com/news/downtown-los-angeles-street-takeover-145416749.html)
-- Jun 29 - [Major mining company is testing a new type of energy-saving truck that's heavier than a blue whale: 'We are offering our mines in Brazil as a testing ground'](https://autos.yahoo.com/major-mining-company-testing-type-130000754.html)
-- Jun 29 - [Bob Woodward brands Biden debate performance a ‘political h-bomb’](https://www.yahoo.com/news/bob-woodward-brands-biden-debate-120428035.html)
 - Jun 29 - [It took a woman 3 years and cost her $200K to kick a tenant out of her LA home. She says she cried when she saw the bloody mess he left.](https://www.yahoo.com/news/took-woman-3-years-cost-110102236.html)
-- Jun 29 - [NASA's Juno probe reveals lava lakes across Jupiter's volcanic moon Io (image)](https://www.yahoo.com/news/nasas-juno-probe-reveals-lava-100019987.html)
+- Jun 29 - [India steel, trade ministries in talks over rising Chinese imports, says source](https://finance.yahoo.com/news/india-steel-trade-ministries-talks-092500769.html)
+- Jun 29 - [World's largest solar plant featuring over 5 million panels gets switched on in China: 'It looks really cool'](https://www.yahoo.com/news/worlds-largest-solar-plant-featuring-083000242.html)
 <!-- feed end -->
 
 ### Onstream
