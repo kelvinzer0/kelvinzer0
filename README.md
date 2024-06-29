@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [After president's debate debacle, Jill Biden delivering the message that they're still all in](https://www.yahoo.com/news/presidents-debate-debacle-jill-biden-204623962.html)
 - Jun 29 - [Carville on Biden’s dismal debate: He relies on ‘employees’ not ‘advisers’](https://www.yahoo.com/news/carville-biden-dismal-debate-relies-183422169.html)
 - Jun 29 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
+- Jun 29 - [Nvidia will produce such a massive ‘cash gusher’ that it will have to buy back more stock because all that money has nowhere else to go, analyst says](https://finance.yahoo.com/news/nvidia-produce-massive-cash-gusher-165619422.html)
 - Jun 29 - [Downtown Los Angeles street takeover ends in inferno](https://www.yahoo.com/news/downtown-los-angeles-street-takeover-145416749.html)
-- Jun 29 - [China issues rare earth regulations to further protect domestic supply](https://finance.yahoo.com/news/china-issues-rare-earth-regulations-144946340.html)
-- Jun 29 - [Startup unveils 'world's largest aircraft' with out-of-the-box design — here's how it could change the transportation industry](https://www.yahoo.com/tech/startup-unveils-worlds-largest-aircraft-110000005.html)
 <!-- feed end -->
 
 ### Onstream
