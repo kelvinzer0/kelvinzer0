@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Gaza displaced express their despair as they seek respite from soaring temperatures](https://www.yahoo.com/news/gaza-displaced-express-despair-seek-160230244.html)
+- Jun 29 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
+- Jun 29 - [You have 4 days to get paid up to $349 as part of an Apple iPhone settlement — here's how to know if you qualify](https://www.yahoo.com/tech/iphone-users-could-entitled-350-164823538.html)
 - Jun 29 - [Downtown Los Angeles street takeover ends in inferno](https://www.yahoo.com/news/downtown-los-angeles-street-takeover-145416749.html)
-- Jun 29 - [It took a woman 3 years and cost her $200K to kick a tenant out of her LA home. She says she cried when she saw the bloody mess he left.](https://www.yahoo.com/news/took-woman-3-years-cost-110102236.html)
-- Jun 29 - [India steel, trade ministries in talks over rising Chinese imports, says source](https://finance.yahoo.com/news/india-steel-trade-ministries-talks-092500769.html)
-- Jun 29 - [World's largest solar plant featuring over 5 million panels gets switched on in China: 'It looks really cool'](https://www.yahoo.com/news/worlds-largest-solar-plant-featuring-083000242.html)
+- Jun 29 - [China issues rare earth regulations to further protect domestic supply](https://finance.yahoo.com/news/china-issues-rare-earth-regulations-144946340.html)
+- Jun 29 - [Shots fired at XL bully in street after woman attacked](https://www.yahoo.com/news/woman-injured-xl-bully-street-075011914.html)
 <!-- feed end -->
 
 ### Onstream
