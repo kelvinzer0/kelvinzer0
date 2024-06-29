@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [The Best Dividend ETF to Invest $1,000 in Right Now](https://finance.yahoo.com/news/best-dividend-etf-invest-1-103000993.html)
+- Jun 29 - [An Indian military tank sinks while crossing a river in a region bordering China, killing 5 soldiers](https://www.yahoo.com/news/indian-military-tank-sinks-while-075721962.html)
 - Jun 29 - [Russia presses its offensive in Ukraine and issues new threats as the West tries to blunt the push](https://www.yahoo.com/news/russia-presses-offensive-ukraine-issues-042053338.html)
-- Jun 29 - [I Ended Up In The ER During A Vacation In Spain. Here’s What Shocked Me The Most.](https://www.yahoo.com/lifestyle/ended-er-during-vacation-spain-031602945.html)
+- Jun 29 - [An Emergency Room Visit In Spain While On Vacation Highlighted Some Shocking Differences Between Healthcare In The US And Elsewhere](https://www.yahoo.com/lifestyle/ended-er-during-vacation-spain-031602945.html)
 - Jun 29 - [Las Vegas escort dies after man allegedly strangles her inside hotel room](https://www.yahoo.com/news/las-vegas-escort-dies-incident-020718798.html)
-- Jun 28 - [A frozen wolf discovered in Siberia turned out to be 44,000 years old. It's so well-preserved that scientists are checking its gut for ancient viruses.](https://www.yahoo.com/news/frozen-wolf-discovered-siberia-turned-214206566.html)
-- Jun 28 - [Newly discovered asteroid larger than the Great Pyramid of Giza will zoom between Earth and the moon on Saturday](https://www.yahoo.com/news/newly-discovered-asteroid-larger-great-213320101.html)
 <!-- feed end -->
 
 ### Onstream
