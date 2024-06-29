@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [With time running out, Sartell school board approves employee contracts — but not without a fight](https://www.yahoo.com/news/time-running-sartell-school-board-143000665.html)
+- Jun 29 - [Tropical storm Beryl expected to become first Atlantic hurricane of 2024 season](https://www.yahoo.com/news/tropical-storm-beryl-expected-become-160212194.html)
+- Jun 29 - [Stolen truck bursts into flames during deputy pursuit in South Carolina. Man arrested](https://www.yahoo.com/news/stolen-truck-bursts-flames-during-144134945.html)
+- Jun 29 - [How the US Navy tried — and failed — to sink carrier USS America for weeks](https://www.yahoo.com/news/us-navy-tried-mdash-failed-101302557.html)
+- Jun 29 - [World's largest solar plant featuring over 5 million panels gets switched on in China: 'It looks really cool'](https://www.yahoo.com/news/worlds-largest-solar-plant-featuring-083000242.html)
 - Jun 29 - [She just moved into a neighborhood of 3D printed homes in Texas — see what it's like inside](https://www.yahoo.com/tech/she-just-moved-neighborhood-3d-080102143.html)
-- Jun 29 - [An Indian military tank sinks while crossing a river in a region bordering China, killing 5 soldiers](https://www.yahoo.com/news/indian-military-tank-sinks-while-075721962.html)
-- Jun 29 - [Russia presses its offensive in Ukraine and issues new threats as the West tries to blunt the push](https://www.yahoo.com/news/russia-presses-offensive-ukraine-issues-042053338.html)
-- Jun 29 - [An Emergency Room Visit In Spain While On Vacation Highlighted Some Shocking Differences Between Healthcare In The US And Elsewhere](https://www.yahoo.com/lifestyle/ended-er-during-vacation-spain-031602945.html)
 <!-- feed end -->
 
 ### Onstream
