@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [The Best Dividend ETF to Invest $1,000 in Right Now](https://finance.yahoo.com/news/best-dividend-etf-invest-1-103000993.html)
+- Jun 29 - [How the US Navy tried — and failed — to sink carrier USS America for weeks](https://www.yahoo.com/news/us-navy-tried-mdash-failed-101302557.html)
+- Jun 29 - [India steel, trade ministries in talks over rising Chinese imports, says source](https://finance.yahoo.com/news/india-steel-trade-ministries-talks-092500769.html)
 - Jun 29 - [An Indian military tank sinks while crossing a river in a region bordering China, killing 5 soldiers](https://www.yahoo.com/news/indian-military-tank-sinks-while-075721962.html)
 - Jun 29 - [Russia presses its offensive in Ukraine and issues new threats as the West tries to blunt the push](https://www.yahoo.com/news/russia-presses-offensive-ukraine-issues-042053338.html)
 - Jun 29 - [An Emergency Room Visit In Spain While On Vacation Highlighted Some Shocking Differences Between Healthcare In The US And Elsewhere](https://www.yahoo.com/lifestyle/ended-er-during-vacation-spain-031602945.html)
-- Jun 29 - [Las Vegas escort dies after man allegedly strangles her inside hotel room](https://www.yahoo.com/news/las-vegas-escort-dies-incident-020718798.html)
 <!-- feed end -->
 
 ### Onstream
