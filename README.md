@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Kentucky judge rules against Jewish women who challenged state’s abortion ban](https://www.yahoo.com/news/kentucky-judge-rules-against-jewish-011108790.html)
+- Jun 29 - [Minnesota family store is demolished from its perch near dam damaged by surging river](https://www.yahoo.com/news/minnesota-family-store-demolished-perch-001307177.html)
+- Jun 28 - [Tornado confirmed in Jacksonville as video shows truck flipping multiple times at local business](https://www.yahoo.com/news/tornado-confirmed-jacksonville-video-shows-205319578.html)
 - Jun 28 - [A frozen wolf discovered in Siberia turned out to be 44,000 years old. It's so well-preserved that scientists are checking its gut for ancient viruses.](https://www.yahoo.com/news/frozen-wolf-discovered-siberia-turned-214206566.html)
 - Jun 28 - [Top U.S. banks hike dividends after sailing through Fed's stress test](https://finance.yahoo.com/news/top-u-banks-hike-dividends-205959368.html)
-- Jun 28 - [At Least 30 Egyptian Tombs Have Reappeared—and Archaeologists Are Astounded](https://www.yahoo.com/news/lost-egyptian-port-reappeared-archaeologists-185700376.html)
-- Jun 28 - [EVs are giving new owners more headaches, and Tesla is a big reason why: J.D. Power study](https://finance.yahoo.com/news/evs-are-giving-new-owners-more-headaches-and-tesla-is-a-big-reason-why-jd-power-study-180922855.html)
+- Jun 28 - [Opinion: The real loser in Thursday’s debate](https://www.yahoo.com/news/opinion-real-loser-thursday-debate-061755587.html)
 <!-- feed end -->
 
 ### Onstream
