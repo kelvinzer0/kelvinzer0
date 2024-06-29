@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Tropical storm Beryl expected to become first Atlantic hurricane of 2024 season](https://www.yahoo.com/news/tropical-storm-beryl-expected-become-160212194.html)
-- Jun 29 - [Stolen truck bursts into flames during deputy pursuit in South Carolina. Man arrested](https://www.yahoo.com/news/stolen-truck-bursts-flames-during-144134945.html)
-- Jun 29 - [How the US Navy tried — and failed — to sink carrier USS America for weeks](https://www.yahoo.com/news/us-navy-tried-mdash-failed-101302557.html)
+- Jun 29 - [Teen shot and killed by police in upstate New York, authorities say](https://www.yahoo.com/news/teen-shot-killed-police-upstate-164936650.html)
+- Jun 29 - [Pittsburgh motorcycle paramedic taken to hospital after being hit by car Downtown](https://www.yahoo.com/news/pittsburgh-motorcycle-paramedic-taken-hospital-153128957.html)
+- Jun 29 - [Major mining company is testing a new type of energy-saving truck that's heavier than a blue whale: 'We are offering our mines in Brazil as a testing ground'](https://autos.yahoo.com/major-mining-company-testing-type-130000754.html)
+- Jun 29 - [Chicago man arrested for North Side home invasion and stabbing](https://www.yahoo.com/news/chicago-man-arrested-north-side-123403490.html)
 - Jun 29 - [World's largest solar plant featuring over 5 million panels gets switched on in China: 'It looks really cool'](https://www.yahoo.com/news/worlds-largest-solar-plant-featuring-083000242.html)
-- Jun 29 - [She just moved into a neighborhood of 3D printed homes in Texas — see what it's like inside](https://www.yahoo.com/tech/she-just-moved-neighborhood-3d-080102143.html)
 <!-- feed end -->
 
 ### Onstream
