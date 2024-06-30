@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [Philippines firecracker depot blast leaves five dead and dozens injured](https://www.yahoo.com/news/philippines-firecracker-depot-blast-leaves-113756623.html)
+- Jun 30 - [Body of hiker who fell over waterfall at popular swim spot in Tuolumne County is recovered](https://www.yahoo.com/news/body-hiker-fell-over-waterfall-170019717.html)
+- Jun 30 - [This 12-year-old memorized the periodic table at age 2. He’s heading to NYU after finishing high school in just 2 years](https://www.yahoo.com/news/12-old-memorized-periodic-table-165754752.html)
+- Jun 30 - [They thought this rare, tiny flower was extinct since WWI. Now it’s a symbol of hope](https://www.yahoo.com/news/thought-rare-tiny-flower-extinct-160042210.html)
 - Jun 30 - [Severe thunderstorm watch issued for nearly all of Massachusetts](https://www.yahoo.com/news/severe-thunderstorm-watch-issued-nearly-152311012.html)
-- Jun 30 - [Watch: Chinese rocket crashes into mountain after unexpected launch](https://www.yahoo.com/news/watch-chinese-rocket-crashes-mountain-151420517.html)
-- Jun 30 - [A fintech collapse is rippling through a small corner of the banking world](https://finance.yahoo.com/news/a-fintech-collapse-is-rippling-through-a-small-corner-of-the-banking-world-143054499.html)
-- Jun 30 - [Historian who predicted 9 of the last 10 election results says Democrats shouldn't drop Joe Biden](https://www.yahoo.com/news/historian-predicted-9-last-10-134450729.html)
-- Jun 30 - [Beryl expected to become Category 4 hurricane by early Monday morning](https://www.yahoo.com/news/beryl-expected-become-category-4-121658670.html)
 <!-- feed end -->
 
 ### Onstream
