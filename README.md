@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [Severe thunderstorm watch issued for nearly all of Massachusetts](https://www.yahoo.com/news/severe-thunderstorm-watch-issued-nearly-152311012.html)
+- Jun 30 - [Watch: Chinese rocket crashes into mountain after unexpected launch](https://www.yahoo.com/news/watch-chinese-rocket-crashes-mountain-151420517.html)
 - Jun 30 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
-- Jun 30 - [Historian who predicted 9 of the last 10 election results says Democrats shouldn't drop Joe Biden](https://www.yahoo.com/news/historian-predicted-9-last-10-134450729.html)
-- Jun 30 - [WA to become third state to punish ‘stealthing.’ Here’s what else will become law on Monday](https://www.yahoo.com/news/wa-become-third-state-punish-120000232.html)
 - Jun 30 - [18 Signs That Made Me Laugh So Hard I Forgot My Name, Birthday, And Credit Card Number](https://www.yahoo.com/entertainment/18-signs-made-laugh-hard-111603987.html)
-- Jun 30 - [I went on board the Embraer Phenom 300E and saw why this private jet is the most flown aircraft in the US](https://www.yahoo.com/news/went-board-embraer-phenom-300e-101802892.html)
+- Jun 30 - [Why Nvidia stock is now in treacherous waters: Morning Brief](https://finance.yahoo.com/news/why-nvidia-stock-is-now-in-treacherous-waters-morning-brief-100140753.html)
 <!-- feed end -->
 
 ### Onstream
