@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Rishi Sunak says he is proud of disastrous election campaign - and claims he will win](https://www.yahoo.com/news/rishi-sunak-says-proud-disastrous-095119629.html)
-- Jun 30 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
+- Jun 30 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
+- Jun 30 - [Historian who predicted 9 of the last 10 election results says Democrats shouldn't drop Joe Biden](https://www.yahoo.com/news/historian-predicted-9-last-10-134450729.html)
 - Jun 30 - [WA to become third state to punish ‘stealthing.’ Here’s what else will become law on Monday](https://www.yahoo.com/news/wa-become-third-state-punish-120000232.html)
-- Jun 30 - [Ohio judge overturns jury verdict in 'exceptional' murder case](https://www.yahoo.com/news/ohio-judge-overturns-jury-verdict-100435792.html)
-- Jun 30 - [Why Nvidia stock is now in treacherous waters: Morning Brief](https://finance.yahoo.com/news/why-nvidia-stock-is-now-in-treacherous-waters-morning-brief-100140753.html)
+- Jun 30 - [18 Signs That Made Me Laugh So Hard I Forgot My Name, Birthday, And Credit Card Number](https://www.yahoo.com/entertainment/18-signs-made-laugh-hard-111603987.html)
+- Jun 30 - [I went on board the Embraer Phenom 300E and saw why this private jet is the most flown aircraft in the US](https://www.yahoo.com/news/went-board-embraer-phenom-300e-101802892.html)
 <!-- feed end -->
 
 ### Onstream
