@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [How can you be smarter with your money? Follow these five tips](https://finance.yahoo.com/news/smarter-money-five-tips-090735785.html)
 - Jun 30 - [Russia wants to confront NATO but dares not fight it on the battlefield – so it’s waging a hybrid war instead](https://www.yahoo.com/news/russia-wants-confront-nato-dares-070643289.html)
+- Jun 30 - [‘My electric car has been soul-destroying – I can’t wait to go back to petrol’](https://www.yahoo.com/news/electric-car-soul-destroying-t-060000860.html)
 - Jun 30 - [A year ago, she drank battery acid to escape life under the Taliban. Today, she has a message for other Afghan girls](https://www.yahoo.com/news/ago-she-drank-battery-acid-170816367.html)
 - Jun 30 - [A private call of top Democrats fuels more insider anger about Biden's debate performance](https://www.yahoo.com/news/private-call-top-democrats-fuels-011541312.html)
-- Jun 29 - [Prepare for two nights of I-5 lane closures as crews create ‘bridge to nowhere’](https://www.yahoo.com/news/prepare-two-nights-5-lane-221143130.html)
-- Jun 29 - [After president's debate debacle, Jill Biden delivering the message that they're still all in](https://www.yahoo.com/news/presidents-debate-debacle-jill-biden-204623962.html)
 <!-- feed end -->
 
 ### Onstream
