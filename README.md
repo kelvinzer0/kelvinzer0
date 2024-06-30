@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [How can you be smarter with your money? Follow these five tips](https://finance.yahoo.com/news/smarter-money-five-tips-090735785.html)
+- Jun 30 - [Rishi Sunak says he is proud of disastrous election campaign - and claims he will win](https://www.yahoo.com/news/rishi-sunak-says-proud-disastrous-095119629.html)
+- Jun 30 - [Why Nvidia stock is now in treacherous waters: Morning Brief](https://finance.yahoo.com/news/why-nvidia-stock-is-now-in-treacherous-waters-morning-brief-100140753.html)
+- Jun 30 - [Under the Dome: NC gubernatorial candidates Stein, Robinson release new campaign ads](https://www.yahoo.com/news/under-dome-nc-gubernatorial-candidates-100000340.html)
 - Jun 30 - [Russia wants to confront NATO but dares not fight it on the battlefield – so it’s waging a hybrid war instead](https://www.yahoo.com/news/russia-wants-confront-nato-dares-070643289.html)
-- Jun 30 - [‘My electric car has been soul-destroying – I can’t wait to go back to petrol’](https://www.yahoo.com/news/electric-car-soul-destroying-t-060000860.html)
 - Jun 30 - [A year ago, she drank battery acid to escape life under the Taliban. Today, she has a message for other Afghan girls](https://www.yahoo.com/news/ago-she-drank-battery-acid-170816367.html)
-- Jun 30 - [A private call of top Democrats fuels more insider anger about Biden's debate performance](https://www.yahoo.com/news/private-call-top-democrats-fuels-011541312.html)
 <!-- feed end -->
 
 ### Onstream
