@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Mica Miller protesters at Myrtle Beach, SC church sprayed by sprinklers, claim assault](https://www.yahoo.com/news/protesters-solid-rock-church-myrtle-201608849.html)
-- Jun 30 - [Several parts of North Miami Beach, including Biscayne Boulevard, are flooded, cops say](https://www.yahoo.com/news/several-parts-north-miami-beach-171908205.html)
-- Jun 30 - [James Webb Observes Mysterious Structures Above Jupiter's Great Red Spot](https://www.yahoo.com/news/james-webb-observes-mysterious-structures-170042390.html)
-- Jun 30 - [This 12-year-old memorized the periodic table at age 2. He’s heading to NYU after finishing high school in just 2 years](https://www.yahoo.com/news/12-old-memorized-periodic-table-165754752.html)
-- Jun 30 - [Survey details 'stark differences' between younger and older wealthy investors](https://finance.yahoo.com/news/survey-bank-of-america-younger-and-older-wealthy-investors-163053034.html)
+- Jun 30 - [Community gathers to remember 15-year-old killed in police shooting](https://www.yahoo.com/news/community-gathers-remember-15-old-215507420.html)
+- Jun 30 - [Exclusive-Boeing agrees deal to buy Spirit Aero for $4.7 billion - sources](https://finance.yahoo.com/news/exclusive-boeing-agrees-deal-buy-212125120.html)
+- Jun 30 - [Family demands accountability for NY police killing of 13-year-old boy. Police said he aimed BB gun](https://www.yahoo.com/news/kin-community-demand-accountability-fatal-162441730.html)
+- Jun 30 - [21 Clueless Bosses Who TRULY Are Making Their Employees' Lives A Living Hell](https://www.yahoo.com/entertainment/21-clueless-bosses-truly-making-161602678.html)
+- Jun 30 - [Giant alligator lunging at cars in NC road shooed away after firefighters take clever approach](https://www.yahoo.com/news/giant-alligator-lunging-cars-nc-151601680.html)
 <!-- feed end -->
 
 ### Onstream
