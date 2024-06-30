@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [A year ago, she drank battery acid to escape life under the Taliban. Today, she has a message for other Afghan girls](https://www.yahoo.com/news/ago-she-drank-battery-acid-170816367.html)
 - Jun 30 - [A private call of top Democrats fuels more insider anger about Biden's debate performance](https://www.yahoo.com/news/private-call-top-democrats-fuels-011541312.html)
-- Jun 29 - [Gov. Newsom signs law allowing restaurants and bars to charge service fees with prior disclosure](https://www.yahoo.com/news/gov-newsom-signs-law-restaurants-235258258.html)
 - Jun 29 - [Prepare for two nights of I-5 lane closures as crews create ‘bridge to nowhere’](https://www.yahoo.com/news/prepare-two-nights-5-lane-221143130.html)
 - Jun 29 - [After president's debate debacle, Jill Biden delivering the message that they're still all in](https://www.yahoo.com/news/presidents-debate-debacle-jill-biden-204623962.html)
 - Jun 29 - [Israel FM to Iran: regime threatening destruction deserves destruction](https://www.yahoo.com/news/israel-fm-iran-regime-threatening-203350939.html)
