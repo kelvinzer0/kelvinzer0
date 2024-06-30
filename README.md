@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [He flipped off a trooper and got charged. Now Vermont is on the hook for $175,000](https://www.yahoo.com/news/flipped-off-trooper-got-charged-184431767.html)
-- Jun 29 - [Gov. Newsom signs new law: Restaurants and bars can continue to charge service fees, if posted](https://www.yahoo.com/news/gov-newsom-signs-law-restaurants-235258258.html)
-- Jun 29 - [North Korea state media says there is an 'important report' amid key party meeting](https://www.yahoo.com/news/north-koreas-state-media-says-215316904.html)
+- Jun 30 - [Migrant families at Terminal E dwindle over the weekend as state forces them to leave](https://www.yahoo.com/news/migrant-families-terminal-e-dwindle-012146021.html)
+- Jun 30 - [A private call of top Democrats fuels more insider anger about Biden's debate performance](https://www.yahoo.com/news/private-call-top-democrats-fuels-011541312.html)
+- Jun 29 - [You Can Outperform 88% of Professional Fund Managers by Using This Simple Investment Strategy](https://finance.yahoo.com/news/outperform-88-professional-fund-managers-210400950.html)
 - Jun 29 - [After president's debate debacle, Jill Biden delivering the message that they're still all in](https://www.yahoo.com/news/presidents-debate-debacle-jill-biden-204623962.html)
-- Jun 29 - [Employee dead, two others hurt in crash at Flagship Carwash in Fairfax](https://www.yahoo.com/news/pedestrian-dead-two-others-hurt-192413807.html)
+- Jun 29 - [Israel FM to Iran: regime threatening destruction deserves destruction](https://www.yahoo.com/news/israel-fm-iran-regime-threatening-203350939.html)
 <!-- feed end -->
 
 ### Onstream
