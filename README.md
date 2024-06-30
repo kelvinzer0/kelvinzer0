@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Utica police releases bodycam footage in fatal shooting of Nyah Mway](https://www.yahoo.com/news/utica-police-releases-bodycam-footage-195017365.html)
-- Jun 30 - [Far right wins first round in France election](https://www.yahoo.com/news/far-wins-first-round-france-194734072.html)
+- Jun 30 - [Mica Miller protesters at Myrtle Beach, SC church sprayed by sprinklers, claim assault](https://www.yahoo.com/news/protesters-solid-rock-church-myrtle-201608849.html)
+- Jun 30 - [Several parts of North Miami Beach, including Biscayne Boulevard, are flooded, cops say](https://www.yahoo.com/news/several-parts-north-miami-beach-171908205.html)
 - Jun 30 - [James Webb Observes Mysterious Structures Above Jupiter's Great Red Spot](https://www.yahoo.com/news/james-webb-observes-mysterious-structures-170042390.html)
 - Jun 30 - [This 12-year-old memorized the periodic table at age 2. He’s heading to NYU after finishing high school in just 2 years](https://www.yahoo.com/news/12-old-memorized-periodic-table-165754752.html)
-- Jun 30 - [Giant alligator lunging at cars in NC road shooed away after firefighters take clever approach](https://www.yahoo.com/news/giant-alligator-lunging-cars-nc-151601680.html)
+- Jun 30 - [Survey details 'stark differences' between younger and older wealthy investors](https://finance.yahoo.com/news/survey-bank-of-america-younger-and-older-wealthy-investors-163053034.html)
 <!-- feed end -->
 
 ### Onstream
