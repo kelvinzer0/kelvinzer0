@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 30 - [Severe thunderstorm watch issued for nearly all of Massachusetts](https://www.yahoo.com/news/severe-thunderstorm-watch-issued-nearly-152311012.html)
 - Jun 30 - [Watch: Chinese rocket crashes into mountain after unexpected launch](https://www.yahoo.com/news/watch-chinese-rocket-crashes-mountain-151420517.html)
-- Jun 30 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
-- Jun 30 - [18 Signs That Made Me Laugh So Hard I Forgot My Name, Birthday, And Credit Card Number](https://www.yahoo.com/entertainment/18-signs-made-laugh-hard-111603987.html)
-- Jun 30 - [Why Nvidia stock is now in treacherous waters: Morning Brief](https://finance.yahoo.com/news/why-nvidia-stock-is-now-in-treacherous-waters-morning-brief-100140753.html)
+- Jun 30 - [A fintech collapse is rippling through a small corner of the banking world](https://finance.yahoo.com/news/a-fintech-collapse-is-rippling-through-a-small-corner-of-the-banking-world-143054499.html)
+- Jun 30 - [Historian who predicted 9 of the last 10 election results says Democrats shouldn't drop Joe Biden](https://www.yahoo.com/news/historian-predicted-9-last-10-134450729.html)
+- Jun 30 - [Beryl expected to become Category 4 hurricane by early Monday morning](https://www.yahoo.com/news/beryl-expected-become-category-4-121658670.html)
 <!-- feed end -->
 
 ### Onstream
