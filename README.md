@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 30 - [Rishi Sunak says he is proud of disastrous election campaign - and claims he will win](https://www.yahoo.com/news/rishi-sunak-says-proud-disastrous-095119629.html)
+- Jun 30 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
+- Jun 30 - [WA to become third state to punish ‘stealthing.’ Here’s what else will become law on Monday](https://www.yahoo.com/news/wa-become-third-state-punish-120000232.html)
+- Jun 30 - [Ohio judge overturns jury verdict in 'exceptional' murder case](https://www.yahoo.com/news/ohio-judge-overturns-jury-verdict-100435792.html)
 - Jun 30 - [Why Nvidia stock is now in treacherous waters: Morning Brief](https://finance.yahoo.com/news/why-nvidia-stock-is-now-in-treacherous-waters-morning-brief-100140753.html)
-- Jun 30 - [Tech company unveils tiny spheres that outperform solar panels using both sun and artificial light — and the company says they could hit 60 times the current capacity](https://www.yahoo.com/tech/tech-company-unveils-tiny-spheres-090000924.html)
-- Jun 30 - [The 2025 Social Security Cost-of-Living Adjustment (COLA) Forecast Just Changed, and It Could Pleasantly Surprise Many Retirees](https://finance.yahoo.com/news/2025-social-security-cost-living-090000990.html)
-- Jun 30 - [Russia wants to confront NATO but dares not fight it on the battlefield – so it’s waging a hybrid war instead](https://www.yahoo.com/news/russia-wants-confront-nato-dares-070643289.html)
 <!-- feed end -->
 
 ### Onstream
