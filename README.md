@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [He flipped off a trooper and got charged. Now Vermont is on the hook for $175,000](https://www.yahoo.com/news/flipped-off-trooper-got-charged-184431767.html)
+- Jun 29 - [Gov. Newsom signs new law: Restaurants and bars can continue to charge service fees, if posted](https://www.yahoo.com/news/gov-newsom-signs-law-restaurants-235258258.html)
+- Jun 29 - [North Korea state media says there is an 'important report' amid key party meeting](https://www.yahoo.com/news/north-koreas-state-media-says-215316904.html)
 - Jun 29 - [After president's debate debacle, Jill Biden delivering the message that they're still all in](https://www.yahoo.com/news/presidents-debate-debacle-jill-biden-204623962.html)
-- Jun 29 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
-- Jun 29 - [John Deere announces mass layoffs in Midwest amid production shift to Mexico](https://finance.yahoo.com/news/john-deere-announces-mass-layoffs-172937300.html)
-- Jun 29 - [Nvidia will produce such a massive ‘cash gusher’ that it will have to buy back more stock because all that money has nowhere else to go, analyst says](https://finance.yahoo.com/news/nvidia-produce-massive-cash-gusher-165619422.html)
-- Jun 29 - [I Want to Put My RMDs in a Roth IRA, But Was Told I Can't. Is That True?](https://finance.yahoo.com/news/planning-taking-rmds-converting-them-123000986.html)
+- Jun 29 - [Employee dead, two others hurt in crash at Flagship Carwash in Fairfax](https://www.yahoo.com/news/pedestrian-dead-two-others-hurt-192413807.html)
 <!-- feed end -->
 
 ### Onstream
