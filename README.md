@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 30 - [Philippines firecracker depot blast leaves five dead and dozens injured](https://www.yahoo.com/news/philippines-firecracker-depot-blast-leaves-113756623.html)
 - Jun 30 - [Body of hiker who fell over waterfall at popular swim spot in Tuolumne County is recovered](https://www.yahoo.com/news/body-hiker-fell-over-waterfall-170019717.html)
-- Jun 30 - [This 12-year-old memorized the periodic table at age 2. He’s heading to NYU after finishing high school in just 2 years](https://www.yahoo.com/news/12-old-memorized-periodic-table-165754752.html)
+- Jun 30 - [Survey details 'stark differences' between younger and older wealthy investors](https://finance.yahoo.com/news/survey-bank-of-america-younger-and-older-wealthy-investors-163053034.html)
 - Jun 30 - [They thought this rare, tiny flower was extinct since WWI. Now it’s a symbol of hope](https://www.yahoo.com/news/thought-rare-tiny-flower-extinct-160042210.html)
 - Jun 30 - [Severe thunderstorm watch issued for nearly all of Massachusetts](https://www.yahoo.com/news/severe-thunderstorm-watch-issued-nearly-152311012.html)
 <!-- feed end -->
