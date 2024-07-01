@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [Russia says Ukraine launched scores of drones at three regions](https://www.yahoo.com/news/russia-says-ukraine-launched-scores-043330790.html)
+- Jul 01 - [Israel-Gaza live updates: Hostage speaks 1st time since release](https://www.yahoo.com/news/israel-gaza-live-updates-hostage-041600223.html)
+- Jul 01 - [Maine man who confessed to killing parents, 2 others will enter pleas to settle case, lawyer says](https://www.yahoo.com/news/maine-man-confessed-killing-parents-040120198.html)
+- Jul 01 - [Residents of popular Southern California city on edge amid wave of violence](https://www.yahoo.com/news/residents-popular-southern-california-city-020245043.html)
 - Jul 01 - [Ph.D. student makes waves after debunking common misinformation pushed by popular podcast: 'People often get this wrong'](https://www.yahoo.com/lifestyle/ph-d-student-makes-waves-011500827.html)
-- Jun 30 - [Officials welcome first wild bison in 10,000 years after major restoration initiative: 'It's a learning process for us too'](https://www.yahoo.com/news/officials-welcome-first-wild-bison-233000409.html)
-- Jun 30 - [Early morning blaze scorches SLO County auto wreckage yard and cars](https://www.yahoo.com/news/early-morning-blaze-scorches-slo-220952111.html)
-- Jun 30 - [Will Hurricane Beryl impact Palm Beach County or Florida? Category 4 storm's path forecast](https://www.yahoo.com/news/hurricane-beryl-impact-palm-beach-173236541.html)
-- Jun 30 - [Several parts of North Miami Beach, including Biscayne Boulevard, are flooded, cops say](https://www.yahoo.com/news/several-parts-north-miami-beach-171908205.html)
 <!-- feed end -->
 
 ### Onstream
