@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Netflix, Amazon Lead With 53% of Original Streaming Title Orders in First Quarter of 2024, Study Finds](https://finance.yahoo.com/news/netflix-amazon-lead-53-original-083000616.html)
+- Jul 01 - [Pot, guns at Airbnb? Jacksonville woman pleads in drug-ring case using short-term rentals](https://www.yahoo.com/news/pot-guns-airbnb-jacksonville-woman-091058709.html)
 - Jul 01 - [Trump Throws Middle-Of-The-Night Fit After Nancy Pelosi Called Him Out On Live TV](https://www.yahoo.com/news/trump-throws-middle-night-fit-075515160.html)
 - Jul 01 - [Ukraine's convicts offered release at a high price: Joining the fight against Russia](https://www.yahoo.com/news/ukraines-convicts-offered-release-high-051017150.html)
 - Jul 01 - [Residents of popular Southern California city on edge amid wave of violence](https://www.yahoo.com/news/residents-popular-southern-california-city-020245043.html)
