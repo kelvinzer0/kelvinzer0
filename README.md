@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [A historic pavilion was set for demolition. Now, the city is finalizing renovation plans](https://www.yahoo.com/news/historic-pavilion-set-demolition-now-011526323.html)
+- Jul 01 - [81-year-old reported missing after leaving senior living facility](https://www.yahoo.com/news/81-old-reported-missing-leaving-010035656.html)
 - Jun 30 - [Officials welcome first wild bison in 10,000 years after major restoration initiative: 'It's a learning process for us too'](https://www.yahoo.com/news/officials-welcome-first-wild-bison-233000409.html)
+- Jun 30 - [Early morning blaze scorches SLO County auto wreckage yard and cars](https://www.yahoo.com/news/early-morning-blaze-scorches-slo-220952111.html)
 - Jun 30 - [Ex-Philippines president Duterte's senate election bid poses threat to former ally Marcos](https://www.yahoo.com/news/ex-philippines-president-dutertes-senate-220522662.html)
-- Jun 30 - [Exclusive: Boeing agrees to deal to buy Spirit Aero for $4.7 billion: Sources](https://finance.yahoo.com/news/exclusive-boeing-agrees-deal-buy-212125120.html)
-- Jun 30 - [Will Hurricane Beryl impact Palm Beach County or Florida? Category 4 storm's path forecast](https://www.yahoo.com/news/hurricane-beryl-impact-palm-beach-173236541.html)
+- Jun 30 - [Mica Miller protesters at Myrtle Beach, SC church sprayed by sprinklers, claim assault](https://www.yahoo.com/news/protesters-solid-rock-church-myrtle-201608849.html)
 <!-- feed end -->
 
 ### Onstream
