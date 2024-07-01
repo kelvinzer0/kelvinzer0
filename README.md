@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [AI-focused tech firms see big jump in market cap in June](https://finance.yahoo.com/news/ai-focused-tech-firms-see-102644400.html)
-- Jul 01 - [25 years ago, Bricktown canal's opening set the course for OKC's revitalization](https://www.yahoo.com/news/25-years-ago-bricktown-canals-100819346.html)
-- Jul 01 - [Tesla deliveries set to fall for second straight quarter](https://finance.yahoo.com/news/tesla-deliveries-set-fall-second-100420922.html)
-- Jul 01 - [Trump Throws Middle-Of-The-Night Fit After Nancy Pelosi Called Him Out On Live TV](https://www.yahoo.com/news/trump-throws-middle-night-fit-075515160.html)
-- Jul 01 - [China offers foreign permanent residents of Hong Kong, Macau five-year visas](https://www.yahoo.com/news/china-offers-foreign-permanent-residents-065039017.html)
+- Jul 01 - [Stock Futures Are Rising After Encouraging Inflation Data](https://www.barrons.com/livecoverage/stock-market-today-070124/card/stock-futures-mixed-after-encouraging-inflation-data-E4Qx5kQt9wtMP9OjJHqZ?siteid=yhoof2&yptr=yahoo)
+- Jul 01 - [Transient people ‘terrorize’ neighborhoods in Belleville’s Ward 1, residents tell police](https://www.yahoo.com/news/transient-people-terrorize-neighborhoods-belleville-110000900.html)
+- Jul 01 - [Man in critical condition after being bitten by shark while fishing in Florida](https://www.yahoo.com/news/man-critical-condition-being-bitten-105627834.html)
+- Jul 01 - [Tech company unveils tiny spheres that outperform solar panels using both sun and artificial light — and the company says they could hit 60 times the current capacity](https://www.yahoo.com/tech/tech-company-unveils-tiny-spheres-090000924.html)
+- Jul 01 - [US Supreme Court to rule in case involving debit card 'swipe fees'](https://www.yahoo.com/news/us-supreme-court-rule-case-101707243.html)
 <!-- feed end -->
 
 ### Onstream
