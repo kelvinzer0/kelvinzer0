@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Water rescue underway near Action Sports Center in Dayton](https://www.yahoo.com/news/water-rescue-underway-near-action-001517250.html)
+- Jul 01 - [A historic pavilion was set for demolition. Now, the city is finalizing renovation plans](https://www.yahoo.com/news/historic-pavilion-set-demolition-now-011526323.html)
 - Jun 30 - [Officials welcome first wild bison in 10,000 years after major restoration initiative: 'It's a learning process for us too'](https://www.yahoo.com/news/officials-welcome-first-wild-bison-233000409.html)
-- Jun 30 - [Biden’s family privately criticizes top advisers and pushes for their ouster at Camp David meeting](https://www.yahoo.com/news/biden-family-privately-criticizes-top-224934652.html)
-- Jun 30 - [3 Stocks Lead The Charge In Dividend Growth And Innovation](https://finance.yahoo.com/news/3-stocks-lead-charge-dividend-180612871.html)
+- Jun 30 - [Ex-Philippines president Duterte's senate election bid poses threat to former ally Marcos](https://www.yahoo.com/news/ex-philippines-president-dutertes-senate-220522662.html)
+- Jun 30 - [Exclusive: Boeing agrees to deal to buy Spirit Aero for $4.7 billion: Sources](https://finance.yahoo.com/news/exclusive-boeing-agrees-deal-buy-212125120.html)
 - Jun 30 - [Will Hurricane Beryl impact Palm Beach County or Florida? Category 4 storm's path forecast](https://www.yahoo.com/news/hurricane-beryl-impact-palm-beach-173236541.html)
 <!-- feed end -->
 
