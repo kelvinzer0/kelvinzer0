@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Lee County Sheriff Carmine Marceno links Three Oaks Park murder to drugs](https://www.yahoo.com/news/lee-county-sheriff-carmine-marceno-183415102.html)
-- Jul 01 - [Lawsuit says Pennsylvania county deliberately hid decisions to invalidate some mail-in ballots](https://www.yahoo.com/news/lawsuit-says-pennsylvania-county-deliberately-182806532.html)
-- Jul 01 - [Sabrina Carpenter Scores Unprecedented Double Shot of No. 1s on Global Charts With ‘Please Please Please’ & ‘Espresso’](https://www.yahoo.com/entertainment/sabrina-carpenter-scores-unprecedented-double-175237120.html)
-- Jul 01 - [Steve Bannon Press Conference Outside Prison Ends in Total Disaster](https://www.yahoo.com/news/steve-bannon-press-conference-outside-173402756.html)
-- Jul 01 - [Looking to move? Here's how to find affordable rent.](https://finance.yahoo.com/video/looking-move-heres-affordable-rent-163603178.html)
+- Jul 01 - [Average weight of new cars rises by nearly 400kg in seven years](https://autos.yahoo.com/average-weight-cars-rises-nearly-230520051.html)
+- Jul 01 - [Tesla Extends Breakout; BYD In Buy Zone As Sales Near 1 Million](https://www.investors.com/news/tesla-vs-byd-ev-sales-robotaxis/?src=A00220&yptr=yahoo)
+- Jul 01 - [Wind and Strong Swells Lash Barbados as Effects of Beryl Linger](https://www.yahoo.com/news/wind-strong-swells-lash-barbados-224514844.html)
+- Jul 01 - [13-year-old killed by police after officers say teen fled and pointed replica handgun at them](https://www.yahoo.com/news/13-old-killed-police-officers-191250489.html)
+- Jul 01 - [2 hotels unveiled as homeless shelters: ‘Something like this has never been done in Baltimore’](https://www.yahoo.com/news/2-hotels-unveiled-homeless-shelters-193400206.html)
 <!-- feed end -->
 
 ### Onstream
