@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Russia says Ukraine launched scores of drones at three regions](https://www.yahoo.com/news/russia-says-ukraine-launched-scores-043330790.html)
-- Jul 01 - [Israel-Gaza live updates: Hostage speaks 1st time since release](https://www.yahoo.com/news/israel-gaza-live-updates-hostage-041600223.html)
-- Jul 01 - [Maine man who confessed to killing parents, 2 others will enter pleas to settle case, lawyer says](https://www.yahoo.com/news/maine-man-confessed-killing-parents-040120198.html)
+- Jul 01 - [Ukraine's convicts offered release at a high price: Joining the fight against Russia](https://www.yahoo.com/news/ukraines-convicts-offered-release-high-051017150.html)
+- Jul 01 - [Did you see the sky over Bucks County on Sunday night? Mammatus clouds put in a show](https://www.yahoo.com/news/did-see-sky-over-bucks-023809971.html)
 - Jul 01 - [Residents of popular Southern California city on edge amid wave of violence](https://www.yahoo.com/news/residents-popular-southern-california-city-020245043.html)
 - Jul 01 - [Ph.D. student makes waves after debunking common misinformation pushed by popular podcast: 'People often get this wrong'](https://www.yahoo.com/lifestyle/ph-d-student-makes-waves-011500827.html)
+- Jul 01 - ['Extremely dangerous Category 4 Hurricane Beryl closing in on Windward Islands,' NHC warns](https://www.yahoo.com/news/extremely-dangerous-category-4-hurricane-001232380.html)
 <!-- feed end -->
 
 ### Onstream
