@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Gretchen Whitmer insists Joe Biden can win Michigan and says she backs the president 100%, AP Explains](https://www.yahoo.com/news/gretchen-whitmer-insists-joe-biden-202844962.html)
+- Jul 01 - [Lee County Sheriff Carmine Marceno links Three Oaks Park murder to drugs](https://www.yahoo.com/news/lee-county-sheriff-carmine-marceno-183415102.html)
 - Jul 01 - [Lawsuit says Pennsylvania county deliberately hid decisions to invalidate some mail-in ballots](https://www.yahoo.com/news/lawsuit-says-pennsylvania-county-deliberately-182806532.html)
-- Jul 01 - [They were secret for 16 years. Now a judge has released the Epstein grand jury records](https://www.yahoo.com/news/were-secret-16-years-now-182222411.html)
 - Jul 01 - [Sabrina Carpenter Scores Unprecedented Double Shot of No. 1s on Global Charts With ‘Please Please Please’ & ‘Espresso’](https://www.yahoo.com/entertainment/sabrina-carpenter-scores-unprecedented-double-175237120.html)
 - Jul 01 - [Steve Bannon Press Conference Outside Prison Ends in Total Disaster](https://www.yahoo.com/news/steve-bannon-press-conference-outside-173402756.html)
+- Jul 01 - [Looking to move? Here's how to find affordable rent.](https://finance.yahoo.com/video/looking-move-heres-affordable-rent-163603178.html)
 <!-- feed end -->
 
 ### Onstream
