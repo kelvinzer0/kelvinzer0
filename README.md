@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Average Retirement Savings for 55-Year-Olds Only $50K – Investors Say There’s Still Time to Catch Up](https://finance.yahoo.com/news/average-retirement-savings-55-olds-192258380.html)
-- Jul 01 - [Karen Read will be retried for murder in John O’Keefe’s death following mistrial, DA says](https://www.yahoo.com/news/karen-read-retried-murder-john-191751979.html)
-- Jul 01 - [Borderlands Mexico: Mexican government to drop planned import ban on genetically modified US corn](https://finance.yahoo.com/news/borderlands-mexico-mexican-government-drop-191219413.html)
-- Jul 01 - [Small Asteroid Captured Hours Prior To Earth Impact](https://www.yahoo.com/news/watch-small-asteroid-captured-hours-220000587.html)
-- Jul 01 - [The Karen Read murder case ends in a mistrial. Prosecutors say they will try again](https://www.yahoo.com/news/karen-read-deadlocked-jury-leads-184130029.html)
+- Jul 01 - [Gretchen Whitmer insists Joe Biden can win Michigan and says she backs the president 100%, AP Explains](https://www.yahoo.com/news/gretchen-whitmer-insists-joe-biden-202844962.html)
+- Jul 01 - [Lawsuit says Pennsylvania county deliberately hid decisions to invalidate some mail-in ballots](https://www.yahoo.com/news/lawsuit-says-pennsylvania-county-deliberately-182806532.html)
+- Jul 01 - [They were secret for 16 years. Now a judge has released the Epstein grand jury records](https://www.yahoo.com/news/were-secret-16-years-now-182222411.html)
+- Jul 01 - [Sabrina Carpenter Scores Unprecedented Double Shot of No. 1s on Global Charts With ‘Please Please Please’ & ‘Espresso’](https://www.yahoo.com/entertainment/sabrina-carpenter-scores-unprecedented-double-175237120.html)
+- Jul 01 - [Steve Bannon Press Conference Outside Prison Ends in Total Disaster](https://www.yahoo.com/news/steve-bannon-press-conference-outside-173402756.html)
 <!-- feed end -->
 
 ### Onstream
