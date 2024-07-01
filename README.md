@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Stock Futures Are Rising After Encouraging Inflation Data](https://www.barrons.com/livecoverage/stock-market-today-070124/card/stock-futures-mixed-after-encouraging-inflation-data-E4Qx5kQt9wtMP9OjJHqZ?siteid=yhoof2&yptr=yahoo)
-- Jul 01 - [Transient people ‘terrorize’ neighborhoods in Belleville’s Ward 1, residents tell police](https://www.yahoo.com/news/transient-people-terrorize-neighborhoods-belleville-110000900.html)
-- Jul 01 - [Man in critical condition after being bitten by shark while fishing in Florida](https://www.yahoo.com/news/man-critical-condition-being-bitten-105627834.html)
-- Jul 01 - [Tech company unveils tiny spheres that outperform solar panels using both sun and artificial light — and the company says they could hit 60 times the current capacity](https://www.yahoo.com/tech/tech-company-unveils-tiny-spheres-090000924.html)
-- Jul 01 - [US Supreme Court to rule in case involving debit card 'swipe fees'](https://www.yahoo.com/news/us-supreme-court-rule-case-101707243.html)
+- Jul 01 - [July is off to hot, stormy start. Here’s when large hail, tornadoes are possible in KC](https://www.yahoo.com/news/july-off-hot-stormy-start-123812474.html)
+- Jul 01 - [Titanic shipbuilder suspends shares amid row with auditors](https://finance.yahoo.com/news/titanic-shipbuilder-suspends-shares-amid-120530116.html)
+- Jul 01 - [Voters kick all the Republican women out of the South Carolina Senate](https://www.yahoo.com/news/voters-kick-republican-women-south-114230340.html)
+- Jul 01 - [Modi, Gandhi Face Off in India Parliament Over Religious Tension](https://www.yahoo.com/news/modi-gandhi-face-off-india-114148198.html)
+- Jul 01 - [Airbus agrees to pay $1 for Spirit AeroSystems assets in deal sparked by Boeing 737 Max blowout](https://www.yahoo.com/news/airbus-agrees-pay-1-spirit-114037606.html)
 <!-- feed end -->
 
 ### Onstream
