@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
-- Jul 01 - [Voters kick all the Republican women out of the South Carolina Senate](https://www.yahoo.com/news/voters-kick-republican-women-south-114230340.html)
-- Jul 01 - [Tech company unveils tiny spheres that outperform solar panels using both sun and artificial light — and the company says they could hit 60 times the current capacity](https://www.yahoo.com/tech/tech-company-unveils-tiny-spheres-090000924.html)
-- Jul 01 - [COVID Is Surging Right Now—This Is the #1 Symptom to Look Out For, According to Infectious Disease Experts](https://www.yahoo.com/news/covid-surging-now-1-symptom-102500140.html)
-- Jul 01 - [Supreme Court 'swipe fees' ruling may open US regulations to more suits](https://www.yahoo.com/news/us-supreme-court-rule-case-101707243.html)
+- Jul 01 - [Celebrity chef Justin Sutherland charged with threatening to shoot girlfriend in St. Paul](https://www.yahoo.com/news/celebrity-chef-justin-sutherland-charged-144700634.html)
+- Jul 01 - [Kentucky doctor accused of touching female patients inappropriately gives up license](https://www.yahoo.com/news/kentucky-doctor-accused-touching-female-144208666.html)
+- Jul 01 - [Trump immunity ruling hands big decisions to Judge Tanya Chutkan](https://www.yahoo.com/news/trump-immunity-ruling-hands-big-144006176.html)
+- Jul 01 - [Supreme Court rules ex-presidents have broad immunity, dimming chance of a pre-election Trump trial](https://www.yahoo.com/news/supreme-court-sends-trump-immunity-143459717.html)
+- Jul 01 - [Israeli airline says Turkish airport staff refused to refuel its plane after it made an emergency landing](https://www.yahoo.com/news/israeli-airline-says-turkish-airport-101822216.html)
 <!-- feed end -->
 
 ### Onstream
