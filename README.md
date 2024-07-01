@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Celebrity chef Justin Sutherland charged with threatening to shoot girlfriend in St. Paul](https://www.yahoo.com/news/celebrity-chef-justin-sutherland-charged-144700634.html)
-- Jul 01 - [Kentucky doctor accused of touching female patients inappropriately gives up license](https://www.yahoo.com/news/kentucky-doctor-accused-touching-female-144208666.html)
-- Jul 01 - [Trump immunity ruling hands big decisions to Judge Tanya Chutkan](https://www.yahoo.com/news/trump-immunity-ruling-hands-big-144006176.html)
-- Jul 01 - [Supreme Court rules ex-presidents have broad immunity, dimming chance of a pre-election Trump trial](https://www.yahoo.com/news/supreme-court-sends-trump-immunity-143459717.html)
-- Jul 01 - [Israeli airline says Turkish airport staff refused to refuel its plane after it made an emergency landing](https://www.yahoo.com/news/israeli-airline-says-turkish-airport-101822216.html)
+- Jul 01 - [Brothers jailed for 'brutal' attack after review](https://www.yahoo.com/news/brothers-jailed-brutal-attack-review-153946136.html)
+- Jul 01 - [Sotomayor Offers Terrifying List of Things Trump Could Do as President After Immunity Ruling](https://www.yahoo.com/news/sotomayor-offers-terrifying-list-things-153032016.html)
+- Jul 01 - [Swedes take a new step in parental leave. Grandparents can now get paid to take care of grandkids](https://www.yahoo.com/lifestyle/swedes-step-parental-leave-grandparents-151350183.html)
+- Jul 01 - [A mummified 44,000-year-old wolf is so perfectly preserved its stomach could contain remnants of its last meal](https://www.yahoo.com/tech/frozen-wolf-discovered-siberia-turned-214206566.html)
+- Jul 01 - [Nigerian customs agents seize weapons, cough syrup in twin busts](https://www.yahoo.com/news/nigerian-customs-agents-seize-weapons-145023331.html)
 <!-- feed end -->
 
 ### Onstream
