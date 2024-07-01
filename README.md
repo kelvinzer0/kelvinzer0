@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Pot, guns at Airbnb? Jacksonville woman pleads in drug-ring case using short-term rentals](https://www.yahoo.com/news/pot-guns-airbnb-jacksonville-woman-091058709.html)
+- Jul 01 - [AI-focused tech firms see big jump in market cap in June](https://finance.yahoo.com/news/ai-focused-tech-firms-see-102644400.html)
+- Jul 01 - [25 years ago, Bricktown canal's opening set the course for OKC's revitalization](https://www.yahoo.com/news/25-years-ago-bricktown-canals-100819346.html)
+- Jul 01 - [Tesla deliveries set to fall for second straight quarter](https://finance.yahoo.com/news/tesla-deliveries-set-fall-second-100420922.html)
 - Jul 01 - [Trump Throws Middle-Of-The-Night Fit After Nancy Pelosi Called Him Out On Live TV](https://www.yahoo.com/news/trump-throws-middle-night-fit-075515160.html)
-- Jul 01 - [Ukraine's convicts offered release at a high price: Joining the fight against Russia](https://www.yahoo.com/news/ukraines-convicts-offered-release-high-051017150.html)
-- Jul 01 - [Residents of popular Southern California city on edge amid wave of violence](https://www.yahoo.com/news/residents-popular-southern-california-city-020245043.html)
-- Jul 01 - [Ph.D. student makes waves after debunking common misinformation pushed by popular podcast: 'People often get this wrong'](https://www.yahoo.com/lifestyle/ph-d-student-makes-waves-011500827.html)
+- Jul 01 - [China offers foreign permanent residents of Hong Kong, Macau five-year visas](https://www.yahoo.com/news/china-offers-foreign-permanent-residents-065039017.html)
 <!-- feed end -->
 
 ### Onstream
