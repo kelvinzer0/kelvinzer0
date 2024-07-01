@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [July is off to hot, stormy start. Here’s when large hail, tornadoes are possible in KC](https://www.yahoo.com/news/july-off-hot-stormy-start-123812474.html)
-- Jul 01 - [Titanic shipbuilder suspends shares amid row with auditors](https://finance.yahoo.com/news/titanic-shipbuilder-suspends-shares-amid-120530116.html)
+- Jul 01 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
 - Jul 01 - [Voters kick all the Republican women out of the South Carolina Senate](https://www.yahoo.com/news/voters-kick-republican-women-south-114230340.html)
-- Jul 01 - [Modi, Gandhi Face Off in India Parliament Over Religious Tension](https://www.yahoo.com/news/modi-gandhi-face-off-india-114148198.html)
-- Jul 01 - [Airbus agrees to pay $1 for Spirit AeroSystems assets in deal sparked by Boeing 737 Max blowout](https://www.yahoo.com/news/airbus-agrees-pay-1-spirit-114037606.html)
+- Jul 01 - [Tech company unveils tiny spheres that outperform solar panels using both sun and artificial light — and the company says they could hit 60 times the current capacity](https://www.yahoo.com/tech/tech-company-unveils-tiny-spheres-090000924.html)
+- Jul 01 - [COVID Is Surging Right Now—This Is the #1 Symptom to Look Out For, According to Infectious Disease Experts](https://www.yahoo.com/news/covid-surging-now-1-symptom-102500140.html)
+- Jul 01 - [Supreme Court 'swipe fees' ruling may open US regulations to more suits](https://www.yahoo.com/news/us-supreme-court-rule-case-101707243.html)
 <!-- feed end -->
 
 ### Onstream
