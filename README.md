@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Small plane crash kills Ga. family of 5 returning from N.Y. baseball tournament](https://www.yahoo.com/news/small-plane-crash-kills-ga-175303522.html)
-- Jul 01 - [This electric car battery takes less than 5 minutes to charge](https://finance.yahoo.com/news/electric-car-battery-takes-less-125905041.html)
-- Jul 01 - [Brothers jailed for 'brutal' attack after review](https://www.yahoo.com/news/brothers-jailed-brutal-attack-review-153946136.html)
-- Jul 01 - [Belarus threatens nuclear use as Russia blamed for jamming GPS - Ukraine: The Latest, Podcast](https://www.yahoo.com/news/belarus-threatens-nuclear-russia-blamed-153852727.html)
-- Jul 01 - [Sotomayor Offers Terrifying List of Things Trump Could Do as President After Immunity Ruling](https://www.yahoo.com/news/sotomayor-offers-terrifying-list-things-153032016.html)
+- Jul 01 - [Average Retirement Savings for 55-Year-Olds Only $50K – Investors Say There’s Still Time to Catch Up](https://finance.yahoo.com/news/average-retirement-savings-55-olds-192258380.html)
+- Jul 01 - [Karen Read will be retried for murder in John O’Keefe’s death following mistrial, DA says](https://www.yahoo.com/news/karen-read-retried-murder-john-191751979.html)
+- Jul 01 - [Borderlands Mexico: Mexican government to drop planned import ban on genetically modified US corn](https://finance.yahoo.com/news/borderlands-mexico-mexican-government-drop-191219413.html)
+- Jul 01 - [Small Asteroid Captured Hours Prior To Earth Impact](https://www.yahoo.com/news/watch-small-asteroid-captured-hours-220000587.html)
+- Jul 01 - [The Karen Read murder case ends in a mistrial. Prosecutors say they will try again](https://www.yahoo.com/news/karen-read-deadlocked-jury-leads-184130029.html)
 <!-- feed end -->
 
 ### Onstream
