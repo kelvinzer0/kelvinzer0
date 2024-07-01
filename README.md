@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [81-year-old reported missing after leaving senior living facility](https://www.yahoo.com/news/81-old-reported-missing-leaving-010035656.html)
+- Jul 01 - [Ph.D. student makes waves after debunking common misinformation pushed by popular podcast: 'People often get this wrong'](https://www.yahoo.com/lifestyle/ph-d-student-makes-waves-011500827.html)
 - Jun 30 - [Officials welcome first wild bison in 10,000 years after major restoration initiative: 'It's a learning process for us too'](https://www.yahoo.com/news/officials-welcome-first-wild-bison-233000409.html)
 - Jun 30 - [Early morning blaze scorches SLO County auto wreckage yard and cars](https://www.yahoo.com/news/early-morning-blaze-scorches-slo-220952111.html)
-- Jun 30 - [Ex-Philippines president Duterte's senate election bid poses threat to former ally Marcos](https://www.yahoo.com/news/ex-philippines-president-dutertes-senate-220522662.html)
-- Jun 30 - [Mica Miller protesters at Myrtle Beach, SC church sprayed by sprinklers, claim assault](https://www.yahoo.com/news/protesters-solid-rock-church-myrtle-201608849.html)
+- Jun 30 - [Will Hurricane Beryl impact Palm Beach County or Florida? Category 4 storm's path forecast](https://www.yahoo.com/news/hurricane-beryl-impact-palm-beach-173236541.html)
+- Jun 30 - [Several parts of North Miami Beach, including Biscayne Boulevard, are flooded, cops say](https://www.yahoo.com/news/several-parts-north-miami-beach-171908205.html)
 <!-- feed end -->
 
 ### Onstream
