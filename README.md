@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [I’m a Lawyer: This Is How Much I Made in My First Job and How Much I Make Now](https://finance.yahoo.com/news/m-lawyer-much-made-first-164223202.html)
-- Jul 01 - [Justice Thomas Goes Rogue on Trump Immunity Case, Pushes to Ditch Special Prosecutors](https://www.yahoo.com/news/scotus-hints-another-bombshell-ruling-160518068.html)
-- Jul 01 - [‘Hello from my Black job’: Black Democrats share workplace photos after Trump’s offensive debate line](https://www.yahoo.com/news/hello-black-job-black-democrats-164140570.html)
-- Jul 01 - [Brothers jailed for 'brutal' attack after review](https://www.yahoo.com/news/brothers-jailed-brutal-attack-review-153946136.html)
-- Jul 01 - [Belarus threatens nuclear use as Russia blamed for jamming GPS - Ukraine: The Latest, Podcast](https://www.yahoo.com/news/belarus-threatens-nuclear-russia-blamed-153852727.html)
+- Jul 01 - [Supreme Court betrays conservatism with disastrous Trump presidential immunity ruling | Opinion](https://www.yahoo.com/news/supreme-court-betrays-conservatism-disastrous-174531080.html)
+- Jul 01 - [Dow Jones Up, Donald Trump Stock Rallies After Supreme Court Ruling; This Meme Stock 34% Off Highs (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-nasdaq-sp500-boeing-spirit-nvidia-tesla-roaring-kitty/?src=A00220&yptr=yahoo)
+- Jul 01 - [Tesla Extends Breakout; BYD In Buy Zone As Sales Near 1 Million](https://www.investors.com/news/tesla-vs-byd-ev-sales-robotaxis/?src=A00220&yptr=yahoo)
+- Jul 01 - [Do you qualify? Biden rule expanding overtime pay goes into effect](https://www.yahoo.com/news/qualify-biden-rule-expanding-overtime-162105122.html)
+- Jul 01 - [Hendrick cuts ties with Hooters](https://autos.yahoo.com/hendrick-cuts-ties-hooters-161514923.html)
 <!-- feed end -->
 
 ### Onstream
