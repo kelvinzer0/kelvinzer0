@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [I’m a Lawyer: This Is How Much I Made in My First Job and How Much I Make Now](https://finance.yahoo.com/news/m-lawyer-much-made-first-164223202.html)
+- Jul 01 - [Justice Thomas Goes Rogue on Trump Immunity Case, Pushes to Ditch Special Prosecutors](https://www.yahoo.com/news/scotus-hints-another-bombshell-ruling-160518068.html)
+- Jul 01 - [‘Hello from my Black job’: Black Democrats share workplace photos after Trump’s offensive debate line](https://www.yahoo.com/news/hello-black-job-black-democrats-164140570.html)
 - Jul 01 - [Brothers jailed for 'brutal' attack after review](https://www.yahoo.com/news/brothers-jailed-brutal-attack-review-153946136.html)
-- Jul 01 - [Sotomayor Offers Terrifying List of Things Trump Could Do as President After Immunity Ruling](https://www.yahoo.com/news/sotomayor-offers-terrifying-list-things-153032016.html)
-- Jul 01 - [Swedes take a new step in parental leave. Grandparents can now get paid to take care of grandkids](https://www.yahoo.com/lifestyle/swedes-step-parental-leave-grandparents-151350183.html)
-- Jul 01 - [A mummified 44,000-year-old wolf is so perfectly preserved its stomach could contain remnants of its last meal](https://www.yahoo.com/tech/frozen-wolf-discovered-siberia-turned-214206566.html)
-- Jul 01 - [Nigerian customs agents seize weapons, cough syrup in twin busts](https://www.yahoo.com/news/nigerian-customs-agents-seize-weapons-145023331.html)
+- Jul 01 - [Belarus threatens nuclear use as Russia blamed for jamming GPS - Ukraine: The Latest, Podcast](https://www.yahoo.com/news/belarus-threatens-nuclear-russia-blamed-153852727.html)
 <!-- feed end -->
 
 ### Onstream
