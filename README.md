@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Community gathers to remember 15-year-old killed in police shooting](https://www.yahoo.com/news/community-gathers-remember-15-old-215507420.html)
-- Jun 30 - [Exclusive-Boeing agrees deal to buy Spirit Aero for $4.7 billion - sources](https://finance.yahoo.com/news/exclusive-boeing-agrees-deal-buy-212125120.html)
-- Jun 30 - [Family demands accountability for NY police killing of 13-year-old boy. Police said he aimed BB gun](https://www.yahoo.com/news/kin-community-demand-accountability-fatal-162441730.html)
-- Jun 30 - [21 Clueless Bosses Who TRULY Are Making Their Employees' Lives A Living Hell](https://www.yahoo.com/entertainment/21-clueless-bosses-truly-making-161602678.html)
-- Jun 30 - [Giant alligator lunging at cars in NC road shooed away after firefighters take clever approach](https://www.yahoo.com/news/giant-alligator-lunging-cars-nc-151601680.html)
+- Jul 01 - [Water rescue underway near Action Sports Center in Dayton](https://www.yahoo.com/news/water-rescue-underway-near-action-001517250.html)
+- Jun 30 - [Officials welcome first wild bison in 10,000 years after major restoration initiative: 'It's a learning process for us too'](https://www.yahoo.com/news/officials-welcome-first-wild-bison-233000409.html)
+- Jun 30 - [Biden’s family privately criticizes top advisers and pushes for their ouster at Camp David meeting](https://www.yahoo.com/news/biden-family-privately-criticizes-top-224934652.html)
+- Jun 30 - [3 Stocks Lead The Charge In Dividend Growth And Innovation](https://finance.yahoo.com/news/3-stocks-lead-charge-dividend-180612871.html)
+- Jun 30 - [Will Hurricane Beryl impact Palm Beach County or Florida? Category 4 storm's path forecast](https://www.yahoo.com/news/hurricane-beryl-impact-palm-beach-173236541.html)
 <!-- feed end -->
 
 ### Onstream
