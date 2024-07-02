@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Some Nebraskans say misleading words led them to sign petitions on abortion they don't support](https://www.yahoo.com/news/nebraskans-misleading-words-led-them-002242734.html)
 - Jul 01 - [Costco makes major changes to its $5 rotisserie chicken...here is what to expect](https://www.yahoo.com/lifestyle/costco-makes-major-changes-5-235727463.html)
 - Jul 01 - [Gardena gang recruit found guilty of killing retired federal agent's son](https://www.yahoo.com/news/gardena-gang-recruit-found-guilty-235308274.html)
 - Jul 01 - [Hunter Biden sues Fox News over explicit images featured in a streaming series](https://www.yahoo.com/news/hunter-biden-sues-fox-news-234335465.html)
 - Jul 01 - [Prostitution bust in Northern California leads to nearly 80 citations, 15 vehicles towed](https://www.yahoo.com/news/prostitution-bust-northern-california-leads-232513301.html)
-- Jul 01 - [Gastro Doctors Share The 1 Food They Never (Or Rarely) Eat](https://www.yahoo.com/lifestyle/gastro-doctors-share-1-food-230452366.html)
 <!-- feed end -->
 
 ### Onstream
