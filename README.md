@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Ford urges its managers to buy more EVs with new leasing policy](https://finance.yahoo.com/news/ford-urges-managers-buy-more-195256476.html)
 - Jul 02 - [Five SCOTUS Justices’ Comments on Prez Immunity Come Back to Haunt Them](https://www.yahoo.com/news/five-scotus-justices-comments-prez-192138949.html)
-- Jul 02 - [CT bar announces closing following double stabbing, years of disturbances](https://www.yahoo.com/news/ct-bar-announces-closing-following-183200422.html)
+- Jul 02 - [Driver drank 18 beers before fatal nail salon crash on Long Island, prosecutors say](https://www.yahoo.com/news/driver-drank-18-beers-fatal-183251374.html)
 - Jul 02 - [French ‘Excalibur’ mysteriously disappears after 1,300 years stuck in a rock](https://www.yahoo.com/news/french-excalibur-mysteriously-disappears-1-173117685.html)
 - Jul 02 - [Researchers Make Breakthrough in Study of Mysterious 2000-Year-Old Computer Found in Shipwreck](https://www.yahoo.com/news/researchers-breakthrough-study-worlds-oldest-171831481.html)
-- Jul 02 - [Murderous mom Susan Smith told suitor in jailhouse call she is ‘ready to go’ ahead of parole hearing: report](https://www.yahoo.com/news/murderous-mom-susan-smith-told-171436171.html)
 <!-- feed end -->
 
 ### Onstream
