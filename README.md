@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Billionaire Bill Ackman Has Almost 20% of His Pershing Square Portfolio Invested in This "Magnificent Seven" Stock](https://finance.yahoo.com/news/billionaire-bill-ackman-almost-20-103000451.html)
+- Jul 02 - [Hurricane Beryl rips through open waters after devastating the southeast Caribbean](https://www.yahoo.com/news/hurricane-beryl-rips-open-waters-104323844.html)
 - Jul 02 - [Trooper Proctor, lead investigator in Karen Read murder case, relieved of duty](https://www.yahoo.com/news/trooper-michael-proctor-lead-investigator-011736971.html)
-- Jul 02 - [These are the 10 highest-paid city of Austin officials and their salaries?](https://www.yahoo.com/news/10-highest-paid-city-austin-100416217.html)
-- Jul 02 - [3 Steps to Claiming the $4,873 Max Monthly Social Security Benefit](https://finance.yahoo.com/news/3-steps-claiming-4-873-091100138.html)
+- Jul 02 - [Spirit Aero chief in spotlight as Boeing searches for new CEO](https://finance.yahoo.com/news/spirit-aero-chief-spotlight-boeing-100246797.html)
+- Jul 02 - [Why one South Korean island is at war with deer](https://www.yahoo.com/news/why-one-south-korean-island-085347818.html)
 - Jul 02 - [The Supreme Court just did Biden a huge favor by giving Trump immunity](https://www.yahoo.com/news/supreme-court-just-did-biden-080618305.html)
 <!-- feed end -->
 
