@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [A $55 million sports venue for Meridian? Here’s how the city hopes to make it happen](https://www.yahoo.com/news/55-million-sports-venue-meridian-100000084.html)
+- Jul 02 - [Want a newly constructed home in Fort Worth for $238,000? This is what you’ll get](https://www.yahoo.com/news/want-newly-constructed-home-fort-100000872.html)
+- Jul 02 - [Newark Valley seniors pay tribute to classmate Connor VanZile at graduation](https://www.yahoo.com/news/newark-valley-seniors-pay-tribute-090404228.html)
+- Jul 02 - [Lexington mother sentenced to prison for the stabbing death of her 2 children](https://www.yahoo.com/news/lexington-mother-sentenced-prison-stabbing-084500683.html)
 - Jul 02 - [The Supreme Court just did Biden a huge favor by giving Trump immunity](https://www.yahoo.com/news/supreme-court-just-did-biden-080618305.html)
-- Jul 02 - [Sinkholes spread fear in Turkey's parched breadbasket](https://www.yahoo.com/news/sinkholes-spread-fear-turkeys-parched-062854000.html)
-- Jul 02 - [China's BYD posts 21% jump in quarterly EV sales, closes gap with Tesla](https://finance.yahoo.com/news/chinas-byd-posts-21-jump-050644577.html)
-- Jul 02 - [Woman accused of using large magnet bought online to help her shoplift: Clearwater police](https://www.yahoo.com/news/woman-accused-using-large-magnet-030635095.html)
-- Jul 02 - [Some Nebraskans say misleading words led them to sign petitions on abortion they don't support](https://www.yahoo.com/news/nebraskans-misleading-words-led-them-002242734.html)
 <!-- feed end -->
 
 ### Onstream
