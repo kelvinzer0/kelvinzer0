@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Trump sneaker line sues over knockoffs days after Lauren Boebert brags about her ‘very China’ counterfeit pair](https://www.yahoo.com/news/trump-sneaker-line-sues-over-162846115.html)
-- Jul 02 - [If You'd Invested $1,000 in Microsoft Stock 10 Years Ago, Here's How Much You'd Have Today](https://finance.yahoo.com/news/youd-invested-1-000-microsoft-154308294.html)
-- Jul 02 - [Car Experts Say Don’t Buy These 7 SUVs That Cost the Most Money Over Time](https://finance.yahoo.com/news/car-experts-don-t-buy-150040150.html)
-- Jul 02 - [I’m Retired and I Regret Investing In My 401(k) — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-investing-401-130019583.html)
-- Jul 02 - [SpaceX will attempt the first commercial spacewalk](https://www.yahoo.com/news/spacex-attempt-first-commercial-spacewalk-141056733.html)
+- Jul 02 - [French ‘Excalibur’ mysteriously disappears after 1,300 years stuck in a rock](https://www.yahoo.com/news/french-excalibur-mysteriously-disappears-1-173117685.html)
+- Jul 02 - [Biden staffers are ‘scared s***less of him’ and ‘worry about setting him off’](https://www.yahoo.com/news/biden-staffers-scared-less-him-164607597.html)
+- Jul 02 - [6 teenage baseball players charged as adults in South Dakota rape case take plea deals](https://www.yahoo.com/news/6-teenage-baseball-players-charged-150709384.html)
+- Jul 02 - [California’s deadliest road is likely one you drive on every day](https://www.yahoo.com/news/california-deadliest-road-likely-one-143002124.html)
+- Jul 02 - [Dozens rally in Pakistan after a Christian man is sentenced to death for blasphemy](https://www.yahoo.com/news/dozens-rally-pakistan-christian-man-130807955.html)
 <!-- feed end -->
 
 ### Onstream
