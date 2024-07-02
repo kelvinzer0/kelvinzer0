@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [2 men were arrested on a road within Oprah's Hawaii ranch. They're suspected of illegal hunting](https://www.yahoo.com/news/2-men-were-arrested-road-003433276.html)
 - Jul 02 - [Some Nebraskans say misleading words led them to sign petitions on abortion they don't support](https://www.yahoo.com/news/nebraskans-misleading-words-led-them-002242734.html)
-- Jul 01 - [The Latest Contender for Paramount Is Its Former CEO Who Once Let the Studio Slip Away](https://finance.yahoo.com/news/latest-contender-paramount-former-ceo-234402812.html)
-- Jul 01 - [Gastro Doctors Share The 1 Food They Never (Or Rarely) Eat](https://www.yahoo.com/lifestyle/gastro-doctors-share-1-food-230452366.html)
+- Jul 01 - [Costco makes major changes to its $5 rotisserie chicken...here is what to expect](https://www.yahoo.com/lifestyle/costco-makes-major-changes-5-235727463.html)
+- Jul 01 - [Hunter Biden sues Fox News over explicit images featured in a streaming series](https://www.yahoo.com/news/hunter-biden-sues-fox-news-234335465.html)
 - Jul 01 - [Trump says he can end the Russia-Ukraine war in one day. Russia's UN ambassador says he can't](https://www.yahoo.com/news/trump-says-end-russia-ukraine-230229310.html)
+- Jul 01 - [Video: Dirt bikes take over Cleveland streets, tear up park](https://www.yahoo.com/news/video-dirt-bikes-over-cleveland-225007107.html)
 <!-- feed end -->
 
 ### Onstream
