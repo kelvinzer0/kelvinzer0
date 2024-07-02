@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 02 - [Ford urges its managers to buy more EVs with new leasing policy](https://finance.yahoo.com/news/ford-urges-managers-buy-more-195256476.html)
 - Jul 02 - [Five SCOTUS Justices’ Comments on Prez Immunity Come Back to Haunt Them](https://www.yahoo.com/news/five-scotus-justices-comments-prez-192138949.html)
-- Jul 02 - [Driver drank 18 beers before fatal nail salon crash on Long Island, prosecutors say](https://www.yahoo.com/news/driver-drank-18-beers-fatal-183251374.html)
-- Jul 02 - [French ‘Excalibur’ mysteriously disappears after 1,300 years stuck in a rock](https://www.yahoo.com/news/french-excalibur-mysteriously-disappears-1-173117685.html)
-- Jul 02 - [Researchers Make Breakthrough in Study of Mysterious 2000-Year-Old Computer Found in Shipwreck](https://www.yahoo.com/news/researchers-breakthrough-study-worlds-oldest-171831481.html)
+- Jul 02 - [‘Made a mistake.’ Philipsburg business announces closure, points blame at borough and others](https://finance.yahoo.com/news/made-mistake-philipsburg-business-announces-175819279.html)
+- Jul 02 - [‘Sad sight’: Kalamazoo County roundabout project damaged overnight](https://www.yahoo.com/news/sad-sight-kalamazoo-county-roundabout-174841967.html)
+- Jul 02 - [Union sues Philadelphia over requirement that city workers return to the office full time](https://www.yahoo.com/news/union-sues-philadelphia-over-requirement-174815960.html)
 <!-- feed end -->
 
 ### Onstream
