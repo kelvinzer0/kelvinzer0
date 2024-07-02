@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Scotland’s national galleries refuse to drop sponsor over ‘Israel links’](https://www.yahoo.com/news/scotland-national-galleries-refuse-drop-125340449.html)
+- Jul 02 - [Stellantis invests additional $55 million in air taxi maker Archer](https://finance.yahoo.com/news/stellantis-invests-additional-55-million-131558588.html)
+- Jul 02 - [Dozens rally in Pakistan after a Christian man is sentenced to death for blasphemy](https://www.yahoo.com/news/dozens-rally-pakistan-christian-man-130807955.html)
+- Jul 02 - [Wake-Up Weather: heat advisory and hazy skies before the holiday weekend as hurricane Beryl breaks records](https://www.yahoo.com/news/wake-weather-heat-advisory-hazy-123151275.html)
 - Jul 02 - [‘Once-in-a-lifetime’ cosmic event to appear in night sky after star explodes](https://www.yahoo.com/news/once-lifetime-cosmic-event-appear-113642792.html)
-- Jul 02 - [How Much People Have in Their 401(k) Plans at Different Income Levels](https://finance.yahoo.com/news/much-people-401-k-plans-110041856.html)
-- Jul 02 - [Tracking the Tropics: Beryl strengthens into Category 5 hurricane](https://www.yahoo.com/news/tracking-tropics-beryl-strengthens-category-101039133.html)
-- Jul 02 - [The Supreme Court just did Biden a huge favor by giving Trump immunity](https://www.yahoo.com/news/supreme-court-just-did-biden-080618305.html)
+- Jul 02 - [5 members of a Georgia family returning from a baseball tournament are dead after a plane crash in upstate New York](https://www.yahoo.com/news/5-members-georgia-family-returning-201002123.html)
 <!-- feed end -->
 
 ### Onstream
