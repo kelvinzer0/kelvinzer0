@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Manhattan DA agrees to delay Trump’s hush money sentencing](https://www.yahoo.com/news/manhattan-da-agrees-delay-trump-151505874.html)
-- Jul 02 - [Suspected Chinese spy bases in Cuba are growing, including one near a US naval base: report](https://www.yahoo.com/news/suspected-chinese-spy-bases-cuba-153454479.html)
-- Jul 02 - ["All the evidence is about to come out": Legal experts say SCOTUS ruling could backfire on Trump](https://www.yahoo.com/news/evidence-come-legal-experts-scotus-150204515.html)
+- Jul 02 - [Trump sneaker line sues over knockoffs days after Lauren Boebert brags about her ‘very China’ counterfeit pair](https://www.yahoo.com/news/trump-sneaker-line-sues-over-162846115.html)
+- Jul 02 - [If You'd Invested $1,000 in Microsoft Stock 10 Years Ago, Here's How Much You'd Have Today](https://finance.yahoo.com/news/youd-invested-1-000-microsoft-154308294.html)
 - Jul 02 - [Car Experts Say Don’t Buy These 7 SUVs That Cost the Most Money Over Time](https://finance.yahoo.com/news/car-experts-don-t-buy-150040150.html)
-- Jul 02 - [Defense Secretary Austin says the US will provide $2.3 billion more in military aid to Ukraine](https://www.yahoo.com/news/us-defense-chief-austin-says-143642682.html)
+- Jul 02 - [I’m Retired and I Regret Investing In My 401(k) — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-investing-401-130019583.html)
+- Jul 02 - [SpaceX will attempt the first commercial spacewalk](https://www.yahoo.com/news/spacex-attempt-first-commercial-spacewalk-141056733.html)
 <!-- feed end -->
 
 ### Onstream
