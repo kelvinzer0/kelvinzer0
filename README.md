@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jul 02 - ['Very Bad News' For Trump: Lawrence O'Donnell Says Ruling Could Backfire Quickly](https://www.yahoo.com/news/very-bad-news-trump-lawrence-050034007.html)
 - Jul 02 - [Final person to plead guilty in Denver fire that killed 5 people from Senegal could get 60 years](https://www.yahoo.com/news/final-person-plead-guilty-denver-040628843.html)
 - Jul 02 - [2 men were arrested on public road within Oprah's Hawaii ranch. They're suspected of illegal hunting](https://www.yahoo.com/news/2-men-were-arrested-road-003433276.html)
-- Jul 02 - [Some Nebraskans say misleading words led them to sign petitions on abortion they don't support](https://www.yahoo.com/news/nebraskans-misleading-words-led-them-002242734.html)
+- Jul 01 - [Hunter Biden sues Fox News over explicit images featured in a streaming series](https://www.yahoo.com/news/hunter-biden-sues-fox-news-234335465.html)
 <!-- feed end -->
 
 ### Onstream
