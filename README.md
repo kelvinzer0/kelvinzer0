@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Manhattan DA agrees to delay Trump’s hush money sentencing](https://www.yahoo.com/news/manhattan-da-agrees-delay-trump-151505874.html)
+- Jul 02 - [Suspected Chinese spy bases in Cuba are growing, including one near a US naval base: report](https://www.yahoo.com/news/suspected-chinese-spy-bases-cuba-153454479.html)
+- Jul 02 - ["All the evidence is about to come out": Legal experts say SCOTUS ruling could backfire on Trump](https://www.yahoo.com/news/evidence-come-legal-experts-scotus-150204515.html)
+- Jul 02 - [Car Experts Say Don’t Buy These 7 SUVs That Cost the Most Money Over Time](https://finance.yahoo.com/news/car-experts-don-t-buy-150040150.html)
 - Jul 02 - [Defense Secretary Austin says the US will provide $2.3 billion more in military aid to Ukraine](https://www.yahoo.com/news/us-defense-chief-austin-says-143642682.html)
-- Jul 02 - [Trump amplifies posts calling for televised military tribunal for Liz Cheney](https://www.yahoo.com/news/trump-amplifies-posts-calling-televised-131200508.html)
-- Jul 02 - [Dozens rally in Pakistan after a Christian man is sentenced to death for blasphemy](https://www.yahoo.com/news/dozens-rally-pakistan-christian-man-130807955.html)
-- Jul 02 - [5 members of a Georgia family returning from a baseball tournament are dead after a plane crash in upstate New York](https://www.yahoo.com/news/5-members-georgia-family-returning-201002123.html)
-- Jul 02 - [University of Iowa and Iowa State University drop in U.S. News & World Report global ranks](https://www.yahoo.com/news/university-iowa-iowa-state-university-110442061.html)
 <!-- feed end -->
 
 ### Onstream
