@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Stellantis invests additional $55 million in air taxi maker Archer](https://finance.yahoo.com/news/stellantis-invests-additional-55-million-131558588.html)
+- Jul 02 - [Defense Secretary Austin says the US will provide $2.3 billion more in military aid to Ukraine](https://www.yahoo.com/news/us-defense-chief-austin-says-143642682.html)
+- Jul 02 - [Trump amplifies posts calling for televised military tribunal for Liz Cheney](https://www.yahoo.com/news/trump-amplifies-posts-calling-televised-131200508.html)
 - Jul 02 - [Dozens rally in Pakistan after a Christian man is sentenced to death for blasphemy](https://www.yahoo.com/news/dozens-rally-pakistan-christian-man-130807955.html)
-- Jul 02 - [Wake-Up Weather: heat advisory and hazy skies before the holiday weekend as hurricane Beryl breaks records](https://www.yahoo.com/news/wake-weather-heat-advisory-hazy-123151275.html)
-- Jul 02 - [‘Once-in-a-lifetime’ cosmic event to appear in night sky after star explodes](https://www.yahoo.com/news/once-lifetime-cosmic-event-appear-113642792.html)
 - Jul 02 - [5 members of a Georgia family returning from a baseball tournament are dead after a plane crash in upstate New York](https://www.yahoo.com/news/5-members-georgia-family-returning-201002123.html)
+- Jul 02 - [University of Iowa and Iowa State University drop in U.S. News & World Report global ranks](https://www.yahoo.com/news/university-iowa-iowa-state-university-110442061.html)
 <!-- feed end -->
 
 ### Onstream
