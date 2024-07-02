@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Ford urges its managers to buy more EVs with new leasing policy](https://finance.yahoo.com/news/ford-urges-managers-buy-more-195256476.html)
+- Jul 02 - [Taiwan says China seizes fishing boat near Chinese coast](https://www.yahoo.com/news/taiwan-says-china-seizes-fishing-223726462.html)
+- Jul 02 - [These student loan payments can still be halved this month. What Californians should know](https://www.yahoo.com/news/student-loan-payments-could-still-215042418.html)
 - Jul 02 - [Five SCOTUS Justices’ Comments on Prez Immunity Come Back to Haunt Them](https://www.yahoo.com/news/five-scotus-justices-comments-prez-192138949.html)
-- Jul 02 - [‘Made a mistake.’ Philipsburg business announces closure, points blame at borough and others](https://finance.yahoo.com/news/made-mistake-philipsburg-business-announces-175819279.html)
-- Jul 02 - [‘Sad sight’: Kalamazoo County roundabout project damaged overnight](https://www.yahoo.com/news/sad-sight-kalamazoo-county-roundabout-174841967.html)
 - Jul 02 - [Union sues Philadelphia over requirement that city workers return to the office full time](https://www.yahoo.com/news/union-sues-philadelphia-over-requirement-174815960.html)
+- Jul 02 - [French ‘Excalibur’ mysteriously disappears after 1,300 years stuck in a rock](https://www.yahoo.com/news/french-excalibur-mysteriously-disappears-1-173117685.html)
 <!-- feed end -->
 
 ### Onstream
