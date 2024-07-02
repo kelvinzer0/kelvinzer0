@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Ukrainian air base under frequent fire as Russia aims at F-16 arrivals](https://www.yahoo.com/news/ukrainian-air-under-fire-russia-050143712.html)
-- Jul 02 - [Trooper Michael Proctor, lead investigator in Karen Read case, relieved of duty](https://www.yahoo.com/news/trooper-michael-proctor-lead-investigator-011736971.html)
-- Jul 02 - [Why LCRA won’t use Lake Buchanan to fill Lake Travis](https://www.yahoo.com/news/why-lcra-won-t-lake-010248331.html)
-- Jul 01 - [Costco makes major changes to its $5 rotisserie chicken...here is what to expect](https://www.yahoo.com/lifestyle/costco-makes-major-changes-5-235727463.html)
-- Jul 01 - [Hunter Biden sues Fox News over explicit images featured in a streaming series](https://www.yahoo.com/news/hunter-biden-sues-fox-news-234335465.html)
+- Jul 02 - [The Supreme Court just did Biden a huge favor by giving Trump immunity](https://www.yahoo.com/news/supreme-court-just-did-biden-080618305.html)
+- Jul 02 - [Sinkholes spread fear in Turkey's parched breadbasket](https://www.yahoo.com/news/sinkholes-spread-fear-turkeys-parched-062854000.html)
+- Jul 02 - [China's BYD posts 21% jump in quarterly EV sales, closes gap with Tesla](https://finance.yahoo.com/news/chinas-byd-posts-21-jump-050644577.html)
+- Jul 02 - [Woman accused of using large magnet bought online to help her shoplift: Clearwater police](https://www.yahoo.com/news/woman-accused-using-large-magnet-030635095.html)
+- Jul 02 - [Some Nebraskans say misleading words led them to sign petitions on abortion they don't support](https://www.yahoo.com/news/nebraskans-misleading-words-led-them-002242734.html)
 <!-- feed end -->
 
 ### Onstream
