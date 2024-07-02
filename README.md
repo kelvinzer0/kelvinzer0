@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Ukraine to be told it is too corrupt to join Nato](https://www.yahoo.com/news/ukraine-told-too-corrupt-join-183608149.html)
+- Jul 02 - [Sun Erupts With Multiple X-Class Solar Flares Captured In A 4K Spacecraft Time-Lapse](https://www.yahoo.com/news/sun-erupts-multiple-x-class-150000106.html)
+- Jul 02 - [President Joe Biden to sit down with ABC News on Friday for first TV interview since debate](https://www.yahoo.com/news/president-joe-biden-sit-down-182100540.html)
+- Jul 02 - [FDA approves a second Alzheimer's drug that can modestly slow disease](https://finance.yahoo.com/news/fda-approves-second-alzheimers-drug-181046642.html)
 - Jul 02 - [French ‘Excalibur’ mysteriously disappears after 1,300 years stuck in a rock](https://www.yahoo.com/news/french-excalibur-mysteriously-disappears-1-173117685.html)
-- Jul 02 - [Biden staffers are ‘scared s***less of him’ and ‘worry about setting him off’](https://www.yahoo.com/news/biden-staffers-scared-less-him-164607597.html)
-- Jul 02 - [6 teenage baseball players charged as adults in South Dakota rape case take plea deals](https://www.yahoo.com/news/6-teenage-baseball-players-charged-150709384.html)
-- Jul 02 - [California’s deadliest road is likely one you drive on every day](https://www.yahoo.com/news/california-deadliest-road-likely-one-143002124.html)
-- Jul 02 - [Dozens rally in Pakistan after a Christian man is sentenced to death for blasphemy](https://www.yahoo.com/news/dozens-rally-pakistan-christian-man-130807955.html)
 <!-- feed end -->
 
 ### Onstream
