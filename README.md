@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Average weight of new cars rises by nearly 400kg in seven years](https://autos.yahoo.com/average-weight-cars-rises-nearly-230520051.html)
-- Jul 01 - [Tesla Extends Breakout; BYD In Buy Zone As Sales Near 1 Million](https://www.investors.com/news/tesla-vs-byd-ev-sales-robotaxis/?src=A00220&yptr=yahoo)
-- Jul 01 - [Wind and Strong Swells Lash Barbados as Effects of Beryl Linger](https://www.yahoo.com/news/wind-strong-swells-lash-barbados-224514844.html)
-- Jul 01 - [13-year-old killed by police after officers say teen fled and pointed replica handgun at them](https://www.yahoo.com/news/13-old-killed-police-officers-191250489.html)
-- Jul 01 - [2 hotels unveiled as homeless shelters: ‘Something like this has never been done in Baltimore’](https://www.yahoo.com/news/2-hotels-unveiled-homeless-shelters-193400206.html)
+- Jul 02 - [2 men were arrested on a road within Oprah's Hawaii ranch. They're suspected of illegal hunting](https://www.yahoo.com/news/2-men-were-arrested-road-003433276.html)
+- Jul 02 - [Some Nebraskans say misleading words led them to sign petitions on abortion they don't support](https://www.yahoo.com/news/nebraskans-misleading-words-led-them-002242734.html)
+- Jul 01 - [The Latest Contender for Paramount Is Its Former CEO Who Once Let the Studio Slip Away](https://finance.yahoo.com/news/latest-contender-paramount-former-ceo-234402812.html)
+- Jul 01 - [Gastro Doctors Share The 1 Food They Never (Or Rarely) Eat](https://www.yahoo.com/lifestyle/gastro-doctors-share-1-food-230452366.html)
+- Jul 01 - [Trump says he can end the Russia-Ukraine war in one day. Russia's UN ambassador says he can't](https://www.yahoo.com/news/trump-says-end-russia-ukraine-230229310.html)
 <!-- feed end -->
 
 ### Onstream
