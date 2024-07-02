@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Ukraine to be told it is too corrupt to join Nato](https://www.yahoo.com/news/ukraine-told-too-corrupt-join-183608149.html)
-- Jul 02 - [Sun Erupts With Multiple X-Class Solar Flares Captured In A 4K Spacecraft Time-Lapse](https://www.yahoo.com/news/sun-erupts-multiple-x-class-150000106.html)
-- Jul 02 - [President Joe Biden to sit down with ABC News on Friday for first TV interview since debate](https://www.yahoo.com/news/president-joe-biden-sit-down-182100540.html)
-- Jul 02 - [FDA approves a second Alzheimer's drug that can modestly slow disease](https://finance.yahoo.com/news/fda-approves-second-alzheimers-drug-181046642.html)
+- Jul 02 - [Five SCOTUS Justices’ Comments on Prez Immunity Come Back to Haunt Them](https://www.yahoo.com/news/five-scotus-justices-comments-prez-192138949.html)
+- Jul 02 - [CT bar announces closing following double stabbing, years of disturbances](https://www.yahoo.com/news/ct-bar-announces-closing-following-183200422.html)
 - Jul 02 - [French ‘Excalibur’ mysteriously disappears after 1,300 years stuck in a rock](https://www.yahoo.com/news/french-excalibur-mysteriously-disappears-1-173117685.html)
+- Jul 02 - [Researchers Make Breakthrough in Study of Mysterious 2000-Year-Old Computer Found in Shipwreck](https://www.yahoo.com/news/researchers-breakthrough-study-worlds-oldest-171831481.html)
+- Jul 02 - [Murderous mom Susan Smith told suitor in jailhouse call she is ‘ready to go’ ahead of parole hearing: report](https://www.yahoo.com/news/murderous-mom-susan-smith-told-171436171.html)
 <!-- feed end -->
 
 ### Onstream
