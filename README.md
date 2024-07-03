@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Two SCOTUS Cases Show How an Unaccountable Administrative State Hurts 'Ordinary People'](https://www.yahoo.com/news/two-scotus-cases-show-unaccountable-040114933.html)
 - Jul 03 - [Guatemalan woman shot by Nebraska neighbor 'felt like this was the end' as she rushed to save grandson](https://www.yahoo.com/news/seven-people-shot-neighbor-nebraska-013851616.html)
-- Jul 02 - [A bridge near a Minnesota dam may collapse. Officials say they can do little to stop it](https://www.yahoo.com/news/bridge-near-minnesota-dam-may-233319593.html)
-- Jul 02 - [The Dietary Habit Change a Registered Dietitian Is Begging People Over 50 to Make ASAP](https://www.yahoo.com/lifestyle/dietary-habit-change-registered-dietitian-232500669.html)
-- Jul 02 - [Black farmers' association calls for Tractor Supply CEO's resignation after company cuts DEI efforts](https://www.yahoo.com/news/black-farmers-association-calls-tractor-231802840.html)
-- Jul 02 - [Mental health crisis prompts large police presence at local Kroger](https://www.yahoo.com/news/mental-health-crisis-prompts-large-222358708.html)
+- Jul 03 - [Florida Keys sailboat was a floating house of horrors for couple’s children, cops say](https://www.yahoo.com/news/florida-keys-sailboat-floating-house-034308313.html)
+- Jul 03 - [New Poll Finds 1 Democrat Absolutely Trouncing Trump](https://www.yahoo.com/news/poll-finds-1-democrat-absolutely-034301837.html)
+- Jul 03 - [Taiwan says China told Taiwan's coast guard to not interfere in the detention of Taiwanese boat crew](https://www.yahoo.com/news/taiwan-says-china-told-taiwans-025201903.html)
 <!-- feed end -->
 
 ### Onstream
