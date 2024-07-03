@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Taiwan says China seizes fishing boat near Chinese coast](https://www.yahoo.com/news/taiwan-says-china-seizes-fishing-223726462.html)
-- Jul 02 - [These student loan payments can still be halved this month. What Californians should know](https://www.yahoo.com/news/student-loan-payments-could-still-215042418.html)
-- Jul 02 - [Five SCOTUS Justices’ Comments on Prez Immunity Come Back to Haunt Them](https://www.yahoo.com/news/five-scotus-justices-comments-prez-192138949.html)
-- Jul 02 - [Union sues Philadelphia over requirement that city workers return to the office full time](https://www.yahoo.com/news/union-sues-philadelphia-over-requirement-174815960.html)
-- Jul 02 - [French ‘Excalibur’ mysteriously disappears after 1,300 years stuck in a rock](https://www.yahoo.com/news/french-excalibur-mysteriously-disappears-1-173117685.html)
+- Jul 02 - [Biden says he 'nearly fell asleep' during debate after world travel](https://www.yahoo.com/news/biden-says-nearly-fell-asleep-234349268.html)
+- Jul 02 - [Japan Revamps Banknotes in Move That May Unleash Mattress Cash](https://finance.yahoo.com/news/japan-revamps-banknotes-move-may-233037615.html)
+- Jul 02 - [Black farmers' association calls for Tractor Supply CEO's resignation after company cuts DEI efforts](https://www.yahoo.com/news/black-farmers-association-calls-tractor-231802840.html)
+- Jul 02 - [2 missing Georgia firefighters found dead in Tennessee](https://www.yahoo.com/news/2-missing-georgia-firefighters-found-223740490.html)
+- Jul 02 - [US new-vehicle sales barely rose in the second quarter as buyers balked at still-high prices](https://finance.yahoo.com/news/us-vehicle-sales-barely-rose-210920651.html)
 <!-- feed end -->
 
 ### Onstream
