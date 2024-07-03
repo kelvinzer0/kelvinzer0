@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Israel studying Hamas response to Gaza ceasefire proposal, says Mossad](https://www.yahoo.com/news/israel-studying-hamas-response-gaza-184628666.html)
+- Jul 03 - [Tourist killed in Newport Beach shopping mall robbery identified](https://www.yahoo.com/news/tourist-killed-newport-beach-shopping-172505305.html)
+- Jul 03 - [Georgia election workers who won $148M judgment against Giuliani want his bankruptcy case thrown out](https://www.yahoo.com/news/georgia-election-workers-won-148m-171019325.html)
 - Jul 03 - [Bone analysis sheds new light on mysterious species of ancient human](https://www.yahoo.com/news/bone-analysis-sheds-light-mysterious-170919662.html)
-- Jul 03 - [Mark Cuban Asked ChatGPT Whether It Would Hire Trump Or Biden For A 'Job' Based Solely On The Debate Transcript — Here's Who It Chose](https://finance.yahoo.com/news/mark-cuban-asked-chatgpt-whether-155504071.html)
-- Jul 03 - [Colorado monolith torn down by landowner](https://www.yahoo.com/news/mysterious-colorado-monolith-removed-landowner-154946917.html)
-- Jul 03 - [LIST: These St. Louis-area Fourth of July events are postponed due to weather](https://www.yahoo.com/news/list-st-louis-area-fireworks-153711174.html)
-- Jul 03 - [Renowned Nazi hunter in France advises Jews to choose far right over far left in elections](https://www.yahoo.com/news/renowned-nazi-hunter-france-advises-150617488.html)
+- Jul 03 - [Brevard: Fatal crash on I-95 causes shutdown](https://www.yahoo.com/news/brevard-crash-95-causes-shutdown-163011384.html)
 <!-- feed end -->
 
 ### Onstream
