@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Biden says he 'nearly fell asleep' during debate after world travel](https://www.yahoo.com/news/biden-says-nearly-fell-asleep-234349268.html)
-- Jul 02 - [Japan Revamps Banknotes in Move That May Unleash Mattress Cash](https://finance.yahoo.com/news/japan-revamps-banknotes-move-may-233037615.html)
+- Jul 03 - [Ex-astronaut who died in Washington plane crash was doing a flyby near a friend's home, NTSB says](https://www.yahoo.com/news/ex-astronaut-died-washington-plane-011003610.html)
 - Jul 02 - [Black farmers' association calls for Tractor Supply CEO's resignation after company cuts DEI efforts](https://www.yahoo.com/news/black-farmers-association-calls-tractor-231802840.html)
 - Jul 02 - [2 missing Georgia firefighters found dead in Tennessee](https://www.yahoo.com/news/2-missing-georgia-firefighters-found-223740490.html)
-- Jul 02 - [US new-vehicle sales barely rose in the second quarter as buyers balked at still-high prices](https://finance.yahoo.com/news/us-vehicle-sales-barely-rose-210920651.html)
+- Jul 02 - [Untreated water tied to salmonella outbreak in cucumbers that sickened 450 people in US](https://www.yahoo.com/news/untreated-water-used-cucumbers-tied-214741136.html)
+- Jul 02 - [Five SCOTUS Justices’ Comments on Prez Immunity Come Back to Haunt Them](https://www.yahoo.com/news/five-scotus-justices-comments-prez-192138949.html)
 <!-- feed end -->
 
 ### Onstream
