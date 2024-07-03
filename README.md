@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jul 03 - [Florida Keys sailboat was a floating house of horrors for couple’s children, cops say](https://www.yahoo.com/news/florida-keys-sailboat-floating-house-034308313.html)
 - Jul 03 - [New Poll Finds 1 Democrat Absolutely Trouncing Trump](https://www.yahoo.com/news/poll-finds-1-democrat-absolutely-034301837.html)
 - Jul 03 - [A growing club led by Xi and Putin to counter the US is adding a staunchly pro-Russia member](https://www.yahoo.com/news/growing-club-led-xi-putin-033036615.html)
-- Jul 03 - [Severe storms hit Kansas City area, knocking down trees, power lines and semis](https://www.yahoo.com/news/severe-storms-hit-kansas-city-023356568.html)
+- Jul 03 - [Ex-astronaut who died in Washington plane crash was doing a flyby near a friend's home, NTSB says](https://www.yahoo.com/news/ex-astronaut-died-washington-plane-011003610.html)
 <!-- feed end -->
 
 ### Onstream
