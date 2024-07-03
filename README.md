@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Ask an Advisor: We're 56 With $1.2 Million in Cash and Investments. Can We Afford to Use $60k-$80k Per Year for Retirement?](https://finance.yahoo.com/news/ask-advisor-were-56-1-120000397.html)
+- Jul 03 - [Project 2025 head says 'second American Revolution' will be 'bloodless if the left allows'](https://www.yahoo.com/news/project-2025-head-says-second-141756076.html)
 - Jul 03 - [As it gets hotter, 13,000 families in this pocket of America live without electricity](https://www.yahoo.com/news/gets-hotter-13-000-families-090044664.html)
+- Jul 03 - [Philippine senator makes Tiktok claim about China missile plans](https://www.yahoo.com/news/philippine-senator-makes-tiktok-claim-125821711.html)
 - Jul 03 - [South African police find the body of former high jump world champion Freitag, who was shot](https://www.yahoo.com/news/south-african-police-body-former-125233466.html)
-- Jul 03 - [To save spotted owls, US officials plan to kill hundreds of thousands of another owl species](https://www.yahoo.com/news/save-spotted-owls-us-officials-124604652.html)
-- Jul 03 - [In pictures: Hurricane Beryl devastates Caribbean islands](https://www.yahoo.com/news/pictures-hurricane-beryl-devastates-caribbean-103829780.html)
-- Jul 03 - [Man ‘executed’ over parking space at Lenox Square. Shooter gets life in prison without parole](https://www.yahoo.com/news/man-executed-over-parking-space-002620670.html)
 <!-- feed end -->
 
 ### Onstream
