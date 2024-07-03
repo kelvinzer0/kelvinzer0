@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [NASA names Andre Douglas as backup Artemis II crew member](https://www.yahoo.com/news/nasa-names-andre-douglas-backup-174526185.html)
+- Jul 03 - [Bone analysis sheds new light on mysterious species of ancient human](https://www.yahoo.com/news/bone-analysis-sheds-light-mysterious-170919662.html)
 - Jul 03 - [Mark Cuban Asked ChatGPT Whether It Would Hire Trump Or Biden For A 'Job' Based Solely On The Debate Transcript — Here's Who It Chose](https://finance.yahoo.com/news/mark-cuban-asked-chatgpt-whether-155504071.html)
+- Jul 03 - [Colorado monolith torn down by landowner](https://www.yahoo.com/news/mysterious-colorado-monolith-removed-landowner-154946917.html)
 - Jul 03 - [LIST: These St. Louis-area Fourth of July events are postponed due to weather](https://www.yahoo.com/news/list-st-louis-area-fireworks-153711174.html)
 - Jul 03 - [Renowned Nazi hunter in France advises Jews to choose far right over far left in elections](https://www.yahoo.com/news/renowned-nazi-hunter-france-advises-150617488.html)
-- Jul 03 - [Fossils show huge salamanderlike predator with sharp fangs existed before the dinosaurs](https://www.yahoo.com/news/fossils-show-huge-salamanderlike-predator-150336539.html)
 <!-- feed end -->
 
 ### Onstream
