@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Suspects in custody after deadly shooting at Fashion Island in Newport Beach](https://www.yahoo.com/news/suspects-custody-deadly-shooting-fashion-011901831.html)
-- Jul 02 - [Biden says he 'nearly fell asleep' during debate after world travel](https://www.yahoo.com/news/biden-says-nearly-fell-asleep-234349268.html)
+- Jul 03 - [Guatemalan woman shot by Nebraska neighbor 'felt like this was the end' as she rushed to save grandson](https://www.yahoo.com/news/seven-people-shot-neighbor-nebraska-013851616.html)
 - Jul 02 - [A bridge near a Minnesota dam may collapse. Officials say they can do little to stop it](https://www.yahoo.com/news/bridge-near-minnesota-dam-may-233319593.html)
+- Jul 02 - [The Dietary Habit Change a Registered Dietitian Is Begging People Over 50 to Make ASAP](https://www.yahoo.com/lifestyle/dietary-habit-change-registered-dietitian-232500669.html)
 - Jul 02 - [Black farmers' association calls for Tractor Supply CEO's resignation after company cuts DEI efforts](https://www.yahoo.com/news/black-farmers-association-calls-tractor-231802840.html)
-- Jul 02 - [Untreated water tied to salmonella outbreak in cucumbers that sickened 450 people in US](https://www.yahoo.com/news/untreated-water-used-cucumbers-tied-214741136.html)
+- Jul 02 - [Mental health crisis prompts large police presence at local Kroger](https://www.yahoo.com/news/mental-health-crisis-prompts-large-222358708.html)
 <!-- feed end -->
 
 ### Onstream
