@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Ex-astronaut who died in Washington plane crash was doing a flyby near a friend's home, NTSB says](https://www.yahoo.com/news/ex-astronaut-died-washington-plane-011003610.html)
+- Jul 03 - [Suspects in custody after deadly shooting at Fashion Island in Newport Beach](https://www.yahoo.com/news/suspects-custody-deadly-shooting-fashion-011901831.html)
+- Jul 02 - [Biden says he 'nearly fell asleep' during debate after world travel](https://www.yahoo.com/news/biden-says-nearly-fell-asleep-234349268.html)
+- Jul 02 - [A bridge near a Minnesota dam may collapse. Officials say they can do little to stop it](https://www.yahoo.com/news/bridge-near-minnesota-dam-may-233319593.html)
 - Jul 02 - [Black farmers' association calls for Tractor Supply CEO's resignation after company cuts DEI efforts](https://www.yahoo.com/news/black-farmers-association-calls-tractor-231802840.html)
-- Jul 02 - [2 missing Georgia firefighters found dead in Tennessee](https://www.yahoo.com/news/2-missing-georgia-firefighters-found-223740490.html)
 - Jul 02 - [Untreated water tied to salmonella outbreak in cucumbers that sickened 450 people in US](https://www.yahoo.com/news/untreated-water-used-cucumbers-tied-214741136.html)
-- Jul 02 - [Five SCOTUS Justices’ Comments on Prez Immunity Come Back to Haunt Them](https://www.yahoo.com/news/five-scotus-justices-comments-prez-192138949.html)
 <!-- feed end -->
 
 ### Onstream
