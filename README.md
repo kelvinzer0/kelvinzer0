@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Ask an Advisor: We're 56 With $1.2 Million in Cash and Investments. Can We Afford to Use $60k-$80k Per Year for Retirement?](https://finance.yahoo.com/news/ask-advisor-were-56-1-120000397.html)
-- Jul 03 - [Project 2025 head says 'second American Revolution' will be 'bloodless if the left allows'](https://www.yahoo.com/news/project-2025-head-says-second-141756076.html)
-- Jul 03 - [As it gets hotter, 13,000 families in this pocket of America live without electricity](https://www.yahoo.com/news/gets-hotter-13-000-families-090044664.html)
-- Jul 03 - [Philippine senator makes Tiktok claim about China missile plans](https://www.yahoo.com/news/philippine-senator-makes-tiktok-claim-125821711.html)
-- Jul 03 - [South African police find the body of former high jump world champion Freitag, who was shot](https://www.yahoo.com/news/south-african-police-body-former-125233466.html)
+- Jul 03 - [Putin has drawn Nato into a trap](https://www.yahoo.com/news/putin-drawn-nato-trap-154532355.html)
+- Jul 03 - [Fisker seeks judge's approval to sell Ocean EVs at $14,000 per SUV](https://finance.yahoo.com/news/fisker-seeks-judges-approval-sell-145117997.html)
+- Jul 03 - [Former Indianapolis Colts player Daniel Muir arrested. What we know about him](https://www.yahoo.com/news/former-indianapolis-colts-player-daniel-142548020.html)
+- Jul 03 - [This Uber-Popular McDonald’s Menu Item Could Soon Outpace the Chain’s Burgers](https://finance.yahoo.com/news/uber-popular-mcdonald-menu-item-135757538.html)
+- Jul 03 - [Moscow hit by heat not seen in over a century](https://www.yahoo.com/news/moscow-hit-heat-not-seen-134100582.html)
 <!-- feed end -->
 
 ### Onstream
