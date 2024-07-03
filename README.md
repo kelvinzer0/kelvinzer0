@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Ukraine ‘bridge’ to NATO could be dangerous, experts warn](https://www.yahoo.com/news/ukraine-bridge-nato-could-dangerous-213805156.html)
+- Jul 03 - [Oklahoma City police release deceased suspect's name after Tuesday's hours long standoff](https://www.yahoo.com/news/oklahoma-city-police-release-deceased-214821557.html)
+- Jul 03 - [Denisovans were living on the Tibetan plateau surprisingly recently, scientists say](https://www.yahoo.com/news/bone-analysis-sheds-light-mysterious-170919662.html)
 - Jul 03 - [Turkey's Erdogan offers to help end Russia-Ukraine war; Kremlin rules him out as intermediary](https://www.yahoo.com/news/turkeys-erdogan-offers-help-end-195045843.html)
-- Jul 03 - [Lake Mead, nation’s deadliest national park, is becoming even deadlier](https://www.yahoo.com/news/lake-mead-nation-deadliest-national-181249436.html)
-- Jul 03 - [Former church of accused rapist had previous scandal involving Lexington staff](https://www.yahoo.com/news/former-church-accused-rapist-had-175531769.html)
-- Jul 03 - [Tourist killed in Newport Beach shopping mall robbery identified](https://www.yahoo.com/news/tourist-killed-newport-beach-shopping-172505305.html)
+- Jul 03 - [Israel studying Hamas response to Gaza ceasefire proposal, says Mossad](https://www.yahoo.com/news/israel-studying-hamas-response-gaza-184628666.html)
+- Jul 03 - [XQ-58 Valkyrie Can Now Take Off From Runways Thanks To New Launch Trolly System](https://www.yahoo.com/news/xq-58-valkyrie-now-off-183332022.html)
 <!-- feed end -->
 
 ### Onstream
