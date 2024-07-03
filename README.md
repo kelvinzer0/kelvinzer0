@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Hurricane Beryl closing in on Jamaica. . It remains a dangerous Category 4 hurricane](https://www.yahoo.com/news/hurricane-beryl-closing-jamaica-dangerous-120817512.html)
-- Jul 03 - [Chad Daybell’s murder home scooped up by mysterious buyer days after hitting the market](https://www.yahoo.com/news/chad-daybell-murder-home-scooped-115704478.html)
+- Jul 03 - [I stayed at a North Korean summer camp. We polished statues and played a game where we destroyed the White House.](https://www.yahoo.com/news/stayed-north-korean-summer-camp-115102352.html)
 - Jul 03 - [Drone captures waves as Beryl nears Dominican Republic](https://www.yahoo.com/news/drone-captures-waves-beryl-nears-115027418.html)
-- Jul 03 - [Ohio has 76 state parks, here are 10 that are among the most popular with visitors](https://www.yahoo.com/lifestyle/ohio-75-state-parks-10-090636758.html)
+- Jul 03 - [Russia says it will respond to Finland giving U.S. access to bases](https://www.yahoo.com/news/russia-says-respond-finland-giving-112420598.html)
 - Jul 03 - [Daughter, Zara Tindall, ‘Shaken to the Core’ by Princess Anne’s Amnesia](https://www.yahoo.com/entertainment/daughter-zara-tindall-shaken-core-082508214.html)
+- Jul 03 - [Lebanese farmers dig for answers on Israel's white phosphorus use](https://www.yahoo.com/news/lebanese-farmers-dig-answers-israels-081913637.html)
 <!-- feed end -->
 
 ### Onstream
