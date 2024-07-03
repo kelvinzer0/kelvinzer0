@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Putin has drawn Nato into a trap](https://www.yahoo.com/news/putin-drawn-nato-trap-154532355.html)
+- Jul 03 - [NC woman was dating Carrboro man before shooting. She’s now charged with his murder.](https://www.yahoo.com/news/nc-woman-dating-carrboro-man-165445557.html)
+- Jul 03 - [Elliptical machine vs. treadmill: Which cardio equipment is better for you? Pros, cons and use cases.](https://www.yahoo.com/lifestyle/elliptical-machine-vs-treadmill-160143571.html)
+- Jul 03 - [Mark Cuban Asked ChatGPT Whether It Would Hire Trump Or Biden For A 'Job' Based Solely On The Debate Transcript — Here's Who It Chose](https://finance.yahoo.com/news/mark-cuban-asked-chatgpt-whether-155504071.html)
+- Jul 03 - [Fossils show huge salamanderlike predator with sharp fangs existed before the dinosaurs](https://www.yahoo.com/news/fossils-show-huge-salamanderlike-predator-150336539.html)
 - Jul 03 - [Fisker seeks judge's approval to sell Ocean EVs at $14,000 per SUV](https://finance.yahoo.com/news/fisker-seeks-judges-approval-sell-145117997.html)
-- Jul 03 - [Former Indianapolis Colts player Daniel Muir arrested. What we know about him](https://www.yahoo.com/news/former-indianapolis-colts-player-daniel-142548020.html)
-- Jul 03 - [This Uber-Popular McDonald’s Menu Item Could Soon Outpace the Chain’s Burgers](https://finance.yahoo.com/news/uber-popular-mcdonald-menu-item-135757538.html)
-- Jul 03 - [Moscow hit by heat not seen in over a century](https://www.yahoo.com/news/moscow-hit-heat-not-seen-134100582.html)
 <!-- feed end -->
 
 ### Onstream
