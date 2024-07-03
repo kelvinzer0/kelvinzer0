@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Two SCOTUS Cases Show How an Unaccountable Administrative State Hurts 'Ordinary People'](https://www.yahoo.com/news/two-scotus-cases-show-unaccountable-040114933.html)
-- Jul 03 - [Guatemalan woman shot by Nebraska neighbor 'felt like this was the end' as she rushed to save grandson](https://www.yahoo.com/news/seven-people-shot-neighbor-nebraska-013851616.html)
 - Jul 03 - [Florida Keys sailboat was a floating house of horrors for couple’s children, cops say](https://www.yahoo.com/news/florida-keys-sailboat-floating-house-034308313.html)
 - Jul 03 - [New Poll Finds 1 Democrat Absolutely Trouncing Trump](https://www.yahoo.com/news/poll-finds-1-democrat-absolutely-034301837.html)
-- Jul 03 - [Taiwan says China told Taiwan's coast guard to not interfere in the detention of Taiwanese boat crew](https://www.yahoo.com/news/taiwan-says-china-told-taiwans-025201903.html)
+- Jul 03 - [Mega Millions winning numbers for July 2 drawing: Jackpot grows to $137 million](https://www.yahoo.com/news/mega-millions-winning-numbers-july-010142088.html)
+- Jul 02 - [She exposed how the nation's poorest state spent federal welfare money. Now she might go to jail.](https://www.yahoo.com/news/she-exposed-nations-poorest-state-235500018.html)
+- Jul 02 - [A bridge near a Minnesota dam may collapse. Officials say they can do little to stop it](https://www.yahoo.com/news/bridge-near-minnesota-dam-may-233319593.html)
 <!-- feed end -->
 
 ### Onstream
