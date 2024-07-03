@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [NC woman was dating Carrboro man before shooting. She’s now charged with his murder.](https://www.yahoo.com/news/nc-woman-dating-carrboro-man-165445557.html)
-- Jul 03 - [Elliptical machine vs. treadmill: Which cardio equipment is better for you? Pros, cons and use cases.](https://www.yahoo.com/lifestyle/elliptical-machine-vs-treadmill-160143571.html)
+- Jul 03 - [NASA names Andre Douglas as backup Artemis II crew member](https://www.yahoo.com/news/nasa-names-andre-douglas-backup-174526185.html)
 - Jul 03 - [Mark Cuban Asked ChatGPT Whether It Would Hire Trump Or Biden For A 'Job' Based Solely On The Debate Transcript — Here's Who It Chose](https://finance.yahoo.com/news/mark-cuban-asked-chatgpt-whether-155504071.html)
+- Jul 03 - [LIST: These St. Louis-area Fourth of July events are postponed due to weather](https://www.yahoo.com/news/list-st-louis-area-fireworks-153711174.html)
+- Jul 03 - [Renowned Nazi hunter in France advises Jews to choose far right over far left in elections](https://www.yahoo.com/news/renowned-nazi-hunter-france-advises-150617488.html)
 - Jul 03 - [Fossils show huge salamanderlike predator with sharp fangs existed before the dinosaurs](https://www.yahoo.com/news/fossils-show-huge-salamanderlike-predator-150336539.html)
-- Jul 03 - [Fisker seeks judge's approval to sell Ocean EVs at $14,000 per SUV](https://finance.yahoo.com/news/fisker-seeks-judges-approval-sell-145117997.html)
 <!-- feed end -->
 
 ### Onstream
