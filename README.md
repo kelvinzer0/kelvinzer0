@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [I stayed at a North Korean summer camp. We polished statues and played a game where we destroyed the White House.](https://www.yahoo.com/news/stayed-north-korean-summer-camp-115102352.html)
-- Jul 03 - [Drone captures waves as Beryl nears Dominican Republic](https://www.yahoo.com/news/drone-captures-waves-beryl-nears-115027418.html)
-- Jul 03 - [Russia says it will respond to Finland giving U.S. access to bases](https://www.yahoo.com/news/russia-says-respond-finland-giving-112420598.html)
-- Jul 03 - [Daughter, Zara Tindall, ‘Shaken to the Core’ by Princess Anne’s Amnesia](https://www.yahoo.com/entertainment/daughter-zara-tindall-shaken-core-082508214.html)
-- Jul 03 - [Lebanese farmers dig for answers on Israel's white phosphorus use](https://www.yahoo.com/news/lebanese-farmers-dig-answers-israels-081913637.html)
+- Jul 03 - [As it gets hotter, 13,000 families in this pocket of America live without electricity](https://www.yahoo.com/news/gets-hotter-13-000-families-090044664.html)
+- Jul 03 - [South African police find the body of former high jump world champion Freitag, who was shot](https://www.yahoo.com/news/south-african-police-body-former-125233466.html)
+- Jul 03 - [To save spotted owls, US officials plan to kill hundreds of thousands of another owl species](https://www.yahoo.com/news/save-spotted-owls-us-officials-124604652.html)
+- Jul 03 - [In pictures: Hurricane Beryl devastates Caribbean islands](https://www.yahoo.com/news/pictures-hurricane-beryl-devastates-caribbean-103829780.html)
+- Jul 03 - [Man ‘executed’ over parking space at Lenox Square. Shooter gets life in prison without parole](https://www.yahoo.com/news/man-executed-over-parking-space-002620670.html)
 <!-- feed end -->
 
 ### Onstream
