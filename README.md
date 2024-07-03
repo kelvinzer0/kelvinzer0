@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 03 - [Florida Keys sailboat was a floating house of horrors for couple’s children, cops say](https://www.yahoo.com/news/florida-keys-sailboat-floating-house-034308313.html)
 - Jul 03 - [New Poll Finds 1 Democrat Absolutely Trouncing Trump](https://www.yahoo.com/news/poll-finds-1-democrat-absolutely-034301837.html)
-- Jul 03 - [Ex-astronaut who died in Washington plane crash was doing a flyby near a friend's home, NTSB says](https://www.yahoo.com/news/ex-astronaut-died-washington-plane-011003610.html)
-- Jul 03 - [Archaeologists discover ancient relic believed to be tied to Moses and the Ten Commandments](https://www.yahoo.com/lifestyle/archaeologists-discover-ancient-relic-believed-002739137.html)
-- Jul 03 - [Man ‘executed’ over parking space at an Atlanta mall. Shooter sentenced to life in prison](https://www.yahoo.com/news/man-executed-over-parking-space-002620670.html)
+- Jul 03 - [A growing club led by Xi and Putin to counter the US is adding a staunchly pro-Russia member](https://www.yahoo.com/news/growing-club-led-xi-putin-033036615.html)
+- Jul 03 - [Crash closes all lanes at Gateway West at Airway, transports 6 people](https://www.yahoo.com/news/crash-closes-lanes-gateway-west-002535779.html)
+- Jul 02 - [A bridge near a Minnesota dam may collapse. Officials say they can do little to stop it](https://www.yahoo.com/news/bridge-near-minnesota-dam-may-233319593.html)
 <!-- feed end -->
 
 ### Onstream
