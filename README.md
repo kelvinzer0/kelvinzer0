@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Daughter, Zara Tindall, ‘Shaken to the Core’ by Princess Anne’s Amnesia](https://www.yahoo.com/entertainment/daughter-zara-tindall-shaken-core-082508214.html)
 - Jul 03 - [Florida Keys sailboat was a floating house of horrors for couple’s children, cops say](https://www.yahoo.com/news/florida-keys-sailboat-floating-house-034308313.html)
 - Jul 03 - [New Poll Finds 1 Democrat Absolutely Trouncing Trump](https://www.yahoo.com/news/poll-finds-1-democrat-absolutely-034301837.html)
 - Jul 03 - [A growing club led by Xi and Putin to counter the US is adding a staunchly pro-Russia member](https://www.yahoo.com/news/growing-club-led-xi-putin-033036615.html)
-- Jul 03 - [Crash closes all lanes at Gateway West at Airway, transports 6 people](https://www.yahoo.com/news/crash-closes-lanes-gateway-west-002535779.html)
-- Jul 02 - [A bridge near a Minnesota dam may collapse. Officials say they can do little to stop it](https://www.yahoo.com/news/bridge-near-minnesota-dam-may-233319593.html)
+- Jul 03 - [Severe storms hit Kansas City area, knocking down trees, power lines and semis](https://www.yahoo.com/news/severe-storms-hit-kansas-city-023356568.html)
 <!-- feed end -->
 
 ### Onstream
