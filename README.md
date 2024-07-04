@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Which sodas contain BVO? After FDA bans food additive, avoid these products](https://www.yahoo.com/news/sodas-contain-bvo-fda-bans-014559358.html)
+- Jul 04 - [Gunman dies in shootout with rangers inside Yellowstone National Park](https://www.yahoo.com/news/gunman-dies-shootout-rangers-inside-202450899.html)
 - Jul 04 - [Biden tells Democratic governors he needs more sleep and plans to stop scheduling events after 8 p.m.](https://www.yahoo.com/news/biden-tells-democratic-governors-needs-182708189.html)
+- Jul 04 - [‘Our loyalty isn’t worth anything’: I paid $70 for a seat with more legroom, but two women grabbed similar empty seats for free. Is that fair?](https://finance.yahoo.com/news/loyalty-isn-t-worth-anything-102100548.html)
+- Jul 04 - [Is T-Mobile A Buy On Broadband Growth Ahead Of Big October Event?](https://www.investors.com/news/technology/tmus-stock-buy-tmobile-stock-buy/?src=A00220&yptr=yahoo)
 - Jul 04 - [White House now says Biden was seen by his doctor days after debate](https://www.yahoo.com/news/white-house-now-says-biden-140102214.html)
-- Jul 04 - [Updates: Cleveland police officer killed on July 4 identified as Jamieson Ritter](https://www.yahoo.com/news/team-cleveland-police-officer-shot-061252566.html)
-- Jul 04 - [Teacher who had sex with two schoolboys jailed](https://www.yahoo.com/news/teacher-had-sex-two-schoolboys-123027852.html)
 <!-- feed end -->
 
 ### Onstream
