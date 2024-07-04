@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Ukrainian forces pull back from part of strategic eastern town](https://www.yahoo.com/news/ukrainian-forces-pull-back-part-085303523.html)
-- Jul 04 - [Seattle Police seek woman suspect in bank robbery](https://www.yahoo.com/news/seattle-police-seek-woman-suspect-035733941.html)
+- Jul 04 - [Nvidia Owns 4 Artificial Intelligence (AI) Stocks, and These 2 Have Soared the Most](https://finance.yahoo.com/news/nvidia-owns-4-artificial-intelligence-093600208.html)
 - Jul 04 - ["Coffee Badging" Is The Newest Return-To-Office Trend That's Stirring Up Controversy — Here's What You Need To Know](https://www.yahoo.com/lifestyle/coffee-badging-newest-return-office-031602775.html)
 - Jul 04 - [Van Jones says Democrats are discussing ‘how’ to replace Biden, ‘not whether’](https://www.yahoo.com/news/van-jones-says-democrats-discussing-025259272.html)
-- Jul 04 - [Which sodas contain BVO? After FDA bans food additive, avoid these products](https://www.yahoo.com/news/sodas-contain-bvo-fda-bans-014559358.html)
+- Jul 03 - [Vote-Hunting Rishi Sunak Left Stunned by Britain’s Most Tattooed Woman](https://www.yahoo.com/entertainment/vote-hunting-rishi-sunak-left-234503239.html)
+- Jul 03 - [Denisovans were living on the Tibetan plateau surprisingly recently, scientists say](https://www.yahoo.com/news/bone-analysis-sheds-light-mysterious-170919662.html)
 <!-- feed end -->
 
 ### Onstream
