@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - ["Coffee Badging" Is The Newest Return-To-Office Trend That's Stirring Up Controversy — Here's What You Need To Know](https://www.yahoo.com/lifestyle/coffee-badging-newest-return-office-031602775.html)
 - Jul 04 - [Biden ‘seriously considering’ leaving election race](https://www.yahoo.com/news/biden-seriously-considering-leaving-election-153601243.html)
+- Jul 04 - [A new COVID variant is on the rise in the US. What are its most common symptoms?](https://www.yahoo.com/news/covid-variant-rise-us-most-004810828.html)
 - Jul 03 - [Vote-Hunting Rishi Sunak Left Stunned by Britain’s Most Tattooed Woman](https://www.yahoo.com/entertainment/vote-hunting-rishi-sunak-left-234503239.html)
-- Jul 03 - [Oklahoma City police release deceased suspect's name after Tuesday's hours long standoff](https://www.yahoo.com/news/oklahoma-city-police-release-deceased-214821557.html)
 - Jul 03 - [Denisovans were living on the Tibetan plateau surprisingly recently, scientists say](https://www.yahoo.com/news/bone-analysis-sheds-light-mysterious-170919662.html)
-- Jul 03 - [Three injured, one critically, after crash near Easton on Columbus' NE Side](https://www.yahoo.com/news/three-injured-one-critically-crash-211105530.html)
 <!-- feed end -->
 
 ### Onstream
