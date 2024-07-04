@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [President Kamala would be a disaster for the world](https://www.yahoo.com/news/president-kamala-disaster-world-165045196.html)
+- Jul 04 - [An American swims in Paris' Seine River before the Olympics despite contamination concerns](https://www.yahoo.com/news/american-swims-paris-seine-river-162643115.html)
 - Jul 04 - [Teacher who had sex with two schoolboys jailed](https://www.yahoo.com/news/teacher-had-sex-two-schoolboys-123027852.html)
 - Jul 04 - [12,000-year-old ritual passed down 500 generations may be world’s oldest](https://www.yahoo.com/news/12-000-old-ritual-passed-145901996.html)
-- Jul 04 - [I-Team identifies suspect in murder of Cleveland officer](https://www.yahoo.com/news/team-identifies-suspect-murder-cleveland-141856907.html)
-- Jul 04 - [Washed-up giant shark removed from beach by forklift](https://www.yahoo.com/news/washed-giant-shark-removed-beach-113600426.html)
-- Jul 04 - [When to expect Fourth of July F-15 fighter jet flyovers in Salem, 16 other Oregon cities](https://www.yahoo.com/news/expect-fourth-july-f-15-110300641.html)
+- Jul 04 - [Elon Musk's $1 Million Uninsured McLaren F1 Crash While Trying To Impress Another Billionaire](https://autos.yahoo.com/elon-musks-1-million-uninsured-204331866.html)
 <!-- feed end -->
 
 ### Onstream
