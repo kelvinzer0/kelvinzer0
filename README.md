@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Sean Combs is subject of federal criminal investigation: sources](https://www.yahoo.com/news/sean-combs-subject-federal-criminal-122137355.html)
+- Jul 04 - [Experts Say These Signs Point To Affordable Housing Ahead In Florida's Key Markets](https://finance.yahoo.com/news/experts-signs-point-affordable-housing-134451569.html)
+- Jul 04 - [Beijing is laughing at the West’s weakness](https://www.yahoo.com/news/beijing-laughing-west-weakness-131135474.html)
 - Jul 04 - [Washed-up giant shark removed from beach by forklift](https://www.yahoo.com/news/washed-giant-shark-removed-beach-113600426.html)
-- Jul 04 - [U.S. Money Supply Is Finally Growing Again, and It Could Signal a Big Change Is Coming in the Stock Market](https://finance.yahoo.com/news/u-money-supply-finally-growing-110700974.html)
 - Jul 04 - [Ukraine’s army retreats from positions as Russia gets closer to seizing strategically important town](https://www.yahoo.com/news/ukraine-army-retreats-positions-russia-102608897.html)
 - Jul 04 - [How deep is Lake Erie? How was it named? Facts about Ohio's Great Lake and its cousins](https://www.yahoo.com/lifestyle/deep-lake-erie-named-facts-100830408.html)
 <!-- feed end -->
