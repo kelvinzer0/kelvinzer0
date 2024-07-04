@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Teacher who had sex with two schoolboys jailed](https://www.yahoo.com/news/teacher-had-sex-two-schoolboys-123027852.html)
+- Jul 04 - [White House now says Biden was seen by his doctor days after debate](https://www.yahoo.com/news/white-house-now-says-biden-140102214.html)
+- Jul 04 - [Schoolboy victim of jailed teacher: ‘Because of my gender this is seen as a lesser crime’](https://www.yahoo.com/news/schoolboy-victim-jailed-teacher-because-135553194.html)
 - Jul 04 - [Washed-up giant shark removed from beach by forklift](https://www.yahoo.com/news/washed-giant-shark-removed-beach-113600426.html)
 - Jul 04 - [Ukraine’s army retreats from positions as Russia gets closer to seizing strategically important town](https://www.yahoo.com/news/ukraine-army-retreats-positions-russia-102608897.html)
-- Jul 04 - [The sperm donor at the center of 'The Man with 1000 Kids' says he plans to sue Netflix. Here's where Jonathan Jacob Meijer is now.](https://www.yahoo.com/entertainment/sperm-donor-center-man-1000-093430750.html)
-- Jul 04 - [Conservative Commentator Says Trump’s Post-Debate Move Is ‘Freaking A Lot Of People Out’](https://www.yahoo.com/news/conservative-commentator-says-trumps-post-090807239.html)
+- Jul 04 - [Suze Orman says this 1 spending rule is the key to financial security. Are you following it — or ignoring it?](https://finance.yahoo.com/news/suze-orman-says-1-spending-100900779.html)
 <!-- feed end -->
 
 ### Onstream
