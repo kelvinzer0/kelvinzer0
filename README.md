@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [President Kamala would be a disaster for the world](https://www.yahoo.com/news/president-kamala-disaster-world-165045196.html)
-- Jul 04 - [An American swims in Paris' Seine River before the Olympics despite contamination concerns](https://www.yahoo.com/news/american-swims-paris-seine-river-162643115.html)
+- Jul 04 - [Which sodas contain BVO? After FDA bans food additive, avoid these products](https://www.yahoo.com/news/sodas-contain-bvo-fda-bans-014559358.html)
+- Jul 04 - [Biden tells Democratic governors he needs more sleep and plans to stop scheduling events after 8 p.m.](https://www.yahoo.com/news/biden-tells-democratic-governors-needs-182708189.html)
+- Jul 04 - [White House now says Biden was seen by his doctor days after debate](https://www.yahoo.com/news/white-house-now-says-biden-140102214.html)
+- Jul 04 - [Updates: Cleveland police officer killed on July 4 identified as Jamieson Ritter](https://www.yahoo.com/news/team-cleveland-police-officer-shot-061252566.html)
 - Jul 04 - [Teacher who had sex with two schoolboys jailed](https://www.yahoo.com/news/teacher-had-sex-two-schoolboys-123027852.html)
-- Jul 04 - [12,000-year-old ritual passed down 500 generations may be world’s oldest](https://www.yahoo.com/news/12-000-old-ritual-passed-145901996.html)
-- Jul 04 - [Elon Musk's $1 Million Uninsured McLaren F1 Crash While Trying To Impress Another Billionaire](https://autos.yahoo.com/elon-musks-1-million-uninsured-204331866.html)
 <!-- feed end -->
 
 ### Onstream
