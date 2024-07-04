@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Experts Say These Signs Point To Affordable Housing Ahead In Florida's Key Markets](https://finance.yahoo.com/news/experts-signs-point-affordable-housing-134451569.html)
-- Jul 04 - [Beijing is laughing at the West’s weakness](https://www.yahoo.com/news/beijing-laughing-west-weakness-131135474.html)
+- Jul 04 - [Teacher who had sex with two schoolboys jailed](https://www.yahoo.com/news/teacher-had-sex-two-schoolboys-123027852.html)
 - Jul 04 - [Washed-up giant shark removed from beach by forklift](https://www.yahoo.com/news/washed-giant-shark-removed-beach-113600426.html)
 - Jul 04 - [Ukraine’s army retreats from positions as Russia gets closer to seizing strategically important town](https://www.yahoo.com/news/ukraine-army-retreats-positions-russia-102608897.html)
-- Jul 04 - [How deep is Lake Erie? How was it named? Facts about Ohio's Great Lake and its cousins](https://www.yahoo.com/lifestyle/deep-lake-erie-named-facts-100830408.html)
+- Jul 04 - [The sperm donor at the center of 'The Man with 1000 Kids' says he plans to sue Netflix. Here's where Jonathan Jacob Meijer is now.](https://www.yahoo.com/entertainment/sperm-donor-center-man-1000-093430750.html)
+- Jul 04 - [Conservative Commentator Says Trump’s Post-Debate Move Is ‘Freaking A Lot Of People Out’](https://www.yahoo.com/news/conservative-commentator-says-trumps-post-090807239.html)
 <!-- feed end -->
 
 ### Onstream
