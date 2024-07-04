@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Teacher who had sex with two schoolboys jailed](https://www.yahoo.com/news/teacher-had-sex-two-schoolboys-123027852.html)
 - Jul 04 - [12,000-year-old ritual passed down 500 generations may be world’s oldest](https://www.yahoo.com/news/12-000-old-ritual-passed-145901996.html)
-- Jul 04 - [Schoolboy victim of jailed teacher: ‘Because of my gender this is seen as a lesser crime’](https://www.yahoo.com/news/schoolboy-victim-jailed-teacher-because-135553194.html)
-- Jul 04 - [Oh No-ee! Original Texas Buc-ee’s location is destroyed in massive fire](https://www.yahoo.com/news/oh-no-ee-original-texas-003334566.html)
+- Jul 04 - [I-Team identifies suspect in murder of Cleveland officer](https://www.yahoo.com/news/team-identifies-suspect-murder-cleveland-141856907.html)
 - Jul 04 - [Washed-up giant shark removed from beach by forklift](https://www.yahoo.com/news/washed-giant-shark-removed-beach-113600426.html)
 - Jul 04 - [When to expect Fourth of July F-15 fighter jet flyovers in Salem, 16 other Oregon cities](https://www.yahoo.com/news/expect-fourth-july-f-15-110300641.html)
 <!-- feed end -->
