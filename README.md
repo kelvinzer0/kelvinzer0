@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [White House now says Biden was seen by his doctor days after debate](https://www.yahoo.com/news/white-house-now-says-biden-140102214.html)
+- Jul 04 - [12,000-year-old ritual passed down 500 generations may be world’s oldest](https://www.yahoo.com/news/12-000-old-ritual-passed-145901996.html)
 - Jul 04 - [Schoolboy victim of jailed teacher: ‘Because of my gender this is seen as a lesser crime’](https://www.yahoo.com/news/schoolboy-victim-jailed-teacher-because-135553194.html)
+- Jul 04 - [Oh No-ee! Original Texas Buc-ee’s location is destroyed in massive fire](https://www.yahoo.com/news/oh-no-ee-original-texas-003334566.html)
 - Jul 04 - [Washed-up giant shark removed from beach by forklift](https://www.yahoo.com/news/washed-giant-shark-removed-beach-113600426.html)
-- Jul 04 - [Ukraine’s army retreats from positions as Russia gets closer to seizing strategically important town](https://www.yahoo.com/news/ukraine-army-retreats-positions-russia-102608897.html)
-- Jul 04 - [Suze Orman says this 1 spending rule is the key to financial security. Are you following it — or ignoring it?](https://finance.yahoo.com/news/suze-orman-says-1-spending-100900779.html)
+- Jul 04 - [When to expect Fourth of July F-15 fighter jet flyovers in Salem, 16 other Oregon cities](https://www.yahoo.com/news/expect-fourth-july-f-15-110300641.html)
 <!-- feed end -->
 
 ### Onstream
