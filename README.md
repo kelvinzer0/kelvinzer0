@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [How much is the monthly payment on a $300,000 mortgage?](https://finance.yahoo.com/personal-finance/mortgage-payment-on-300k-175009470.html)
+- Jul 05 - [Multiple Buffalo parks damaged during Fourth of July celebrations](https://www.yahoo.com/news/multiple-buffalo-parks-damaged-during-164833974.html)
 - Jul 05 - [Rail cars carrying hazardous material derail and catch fire in North Dakota](https://www.yahoo.com/news/rail-cars-carrying-hazardous-material-164714571.html)
-- Jul 05 - [MrBeast Fires Back: 'Not Just Gonna Stand By And Do Nothing' As He Builds 100 Homes Despite Criticism And Public Backlash For Getting Involved](https://finance.yahoo.com/news/mrbeast-fires-back-not-just-155206884.html)
-- Jul 05 - [Little Rock repair shop destroyed in Fourth of July fire](https://www.yahoo.com/news/little-rock-repair-shop-destroyed-151609048.html)
-- Jul 05 - [Charlotte restaurant gets 3rd consecutive ‘B’ grade for bugs, improper food storage](https://www.yahoo.com/news/charlotte-restaurant-gets-3rd-consecutive-145309752.html)
-- Jul 05 - ["I Threw Up On His Shoes" — 14 Stories From Employees Who Got Petty Revenge On Their Awful Bosses](https://www.yahoo.com/entertainment/threw-shoes-14-stories-employees-141603250.html)
+- Jul 05 - [Biden cancels remarks at teacher's group convention after strike](https://www.yahoo.com/news/biden-cancels-remarks-teachers-group-163526367.html)
+- Jul 05 - [Kentucky firefighter, bystander injured after Fourth of July fireworks accident](https://www.yahoo.com/news/kentucky-firefighter-bystander-injured-fourth-161207935.html)
 <!-- feed end -->
 
 ### Onstream
