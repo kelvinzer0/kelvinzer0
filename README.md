@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Hotel Guests in Cancun Brace for Hurricane Conditions as Beryl Lashes Yucatan Peninsula](https://www.yahoo.com/news/hotel-guests-cancun-brace-hurricane-160319952.html)
-- Jul 05 - [Shocking moment fireworks malfunction and fly into crowd during July 4 event in Utah stadium](https://www.yahoo.com/news/shocking-moment-fireworks-malfunction-fly-155554068.html)
+- Jul 05 - [The Supreme Court is grabbing more power, and it’s forgetting the common good | Opinion](https://www.yahoo.com/news/supreme-court-grabbing-more-power-163906084.html)
+- Jul 05 - [MrBeast Fires Back: 'Not Just Gonna Stand By And Do Nothing' As He Builds 100 Homes Despite Criticism And Public Backlash For Getting Involved](https://finance.yahoo.com/news/mrbeast-fires-back-not-just-155206884.html)
+- Jul 05 - [I Have Regrets About Retiring Early: 4 Expenses I Should Have Prepared For](https://finance.yahoo.com/news/regrets-retiring-early-4-expenses-110008401.html)
+- Jul 05 - [Charlotte restaurant gets 3rd consecutive ‘B’ grade for bugs, improper food storage](https://www.yahoo.com/news/charlotte-restaurant-gets-3rd-consecutive-145309752.html)
 - Jul 05 - [Musk suggests late Twitter disclosure was a mistake, seeks to end lawsuit](https://finance.yahoo.com/news/musk-suggests-twitter-disclosure-mistake-144349996.html)
-- Jul 05 - ["I Threw Up On His Shoes" — 14 Stories From Employees Who Got Petty Revenge On Their Awful Bosses](https://www.yahoo.com/entertainment/threw-shoes-14-stories-employees-141603250.html)
-- Jul 05 - [Earth’s core has slowed so much it’s moving backward, scientists confirm. Here’s what it could mean](https://www.yahoo.com/news/scientists-ve-confirmed-slowdown-earth-100054337.html)
 <!-- feed end -->
 
 ### Onstream
