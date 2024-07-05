@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Off-duty deputy shoots dead family’s 3-year-old dog in front of horrified homeowner after the pup gets loose](https://www.yahoo.com/news/off-duty-deputy-shoots-dead-191912711.html)
-- Jul 05 - [Trump disavows Project 2025 transition plan after a key official calls for a new American Revolution](https://www.yahoo.com/news/trump-disavows-project-2025-transition-183441515.html)
-- Jul 05 - [St. Louis man accused of banging hammer on neighbor’s door](https://www.yahoo.com/news/st-louis-man-accused-banging-182309945.html)
+- Jul 05 - [Driver who plowed into crowd at NYC park, killing 3, is substance abuse counselor, sources say](https://www.yahoo.com/news/driver-plowed-crowd-nyc-park-201800323.html)
+- Jul 05 - [Man sentenced for killing thousands of salmon after pouring bleach into Oregon hatchery pond](https://www.yahoo.com/news/man-sentenced-killing-thousands-salmon-192952794.html)
+- Jul 05 - [Trump denies knowing about Project 2025, his allies' sweeping plan to transform the US government](https://www.yahoo.com/news/trump-disavows-project-2025-transition-183441515.html)
 - Jul 05 - [How much is the monthly payment on a $300,000 mortgage?](https://finance.yahoo.com/personal-finance/mortgage-payment-on-300k-175009470.html)
 - Jul 05 - [Man dies after placing lit firework on his head during Fourth of July party](https://www.yahoo.com/news/man-dies-placing-lit-firework-174721758.html)
 <!-- feed end -->
