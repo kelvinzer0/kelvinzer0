@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [The Supreme Court is grabbing more power, and it’s forgetting the common good | Opinion](https://www.yahoo.com/news/supreme-court-grabbing-more-power-163906084.html)
+- Jul 05 - [Rail cars carrying hazardous material derail and catch fire in North Dakota](https://www.yahoo.com/news/rail-cars-carrying-hazardous-material-164714571.html)
 - Jul 05 - [MrBeast Fires Back: 'Not Just Gonna Stand By And Do Nothing' As He Builds 100 Homes Despite Criticism And Public Backlash For Getting Involved](https://finance.yahoo.com/news/mrbeast-fires-back-not-just-155206884.html)
-- Jul 05 - [I Have Regrets About Retiring Early: 4 Expenses I Should Have Prepared For](https://finance.yahoo.com/news/regrets-retiring-early-4-expenses-110008401.html)
+- Jul 05 - [Little Rock repair shop destroyed in Fourth of July fire](https://www.yahoo.com/news/little-rock-repair-shop-destroyed-151609048.html)
 - Jul 05 - [Charlotte restaurant gets 3rd consecutive ‘B’ grade for bugs, improper food storage](https://www.yahoo.com/news/charlotte-restaurant-gets-3rd-consecutive-145309752.html)
-- Jul 05 - [Musk suggests late Twitter disclosure was a mistake, seeks to end lawsuit](https://finance.yahoo.com/news/musk-suggests-twitter-disclosure-mistake-144349996.html)
+- Jul 05 - ["I Threw Up On His Shoes" — 14 Stories From Employees Who Got Petty Revenge On Their Awful Bosses](https://www.yahoo.com/entertainment/threw-shoes-14-stories-employees-141603250.html)
 <!-- feed end -->
 
 ### Onstream
