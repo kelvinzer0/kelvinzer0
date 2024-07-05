@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Driver who plowed into crowd at NYC park, killing 3, is substance abuse counselor, sources say](https://www.yahoo.com/news/driver-plowed-crowd-nyc-park-201800323.html)
-- Jul 05 - [Man sentenced for killing thousands of salmon after pouring bleach into Oregon hatchery pond](https://www.yahoo.com/news/man-sentenced-killing-thousands-salmon-192952794.html)
+- Jul 05 - [A new COVID variant is on the rise in the US. What are its most common symptoms?](https://www.yahoo.com/news/covid-variant-rise-us-most-004810828.html)
+- Jul 05 - ['Astonished' Germany says Hungary cancelled foreign minister meeting](https://www.yahoo.com/news/astonished-germany-says-hungary-cancelled-202115569.html)
 - Jul 05 - [Trump denies knowing about Project 2025, his allies' sweeping plan to transform the US government](https://www.yahoo.com/news/trump-disavows-project-2025-transition-183441515.html)
 - Jul 05 - [How much is the monthly payment on a $300,000 mortgage?](https://finance.yahoo.com/personal-finance/mortgage-payment-on-300k-175009470.html)
 - Jul 05 - [Man dies after placing lit firework on his head during Fourth of July party](https://www.yahoo.com/news/man-dies-placing-lit-firework-174721758.html)
