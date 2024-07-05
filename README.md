@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Powerful Florida family sold DeSantis administration toxic land, lawsuit alleges](https://www.yahoo.com/news/powerful-florida-family-sold-desantis-093000396.html)
 - Jul 05 - [Ukraine navy chief says Russia is losing Crimean hub in Black Sea](https://www.yahoo.com/news/ukraine-navy-chief-says-russia-062134051.html)
 - Jul 05 - [The UK election winner only becomes prime minister when King Charles III says so](https://www.yahoo.com/news/uk-election-winner-only-becomes-044756024.html)
+- Jul 05 - [PHOTOS: Portland Fire responds to heavy pallet fire downing power lines, threatening buildings](https://www.yahoo.com/news/photos-portland-fire-responds-heavy-032255072.html)
 - Jul 05 - [Trump Throws 4th Of July Fit In 'Disgraceful' New Holiday Tantrum](https://www.yahoo.com/news/trump-throws-4th-july-fit-030448434.html)
-- Jul 04 - [‘Our loyalty isn’t worth anything’: I paid $70 for a seat with more legroom, but two women grabbed similar empty seats for free. Is that fair?](https://finance.yahoo.com/news/loyalty-isn-t-worth-anything-102100548.html)
-- Jul 04 - [Which sodas contain BVO? After FDA bans food additive, avoid these products](https://www.yahoo.com/news/sodas-contain-bvo-fda-bans-014559358.html)
 <!-- feed end -->
 
 ### Onstream
