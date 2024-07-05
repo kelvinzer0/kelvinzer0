@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [‘I’m innocent,’ says Lucy Letby as she’s led out of dock after whole-life sentence](https://www.yahoo.com/news/m-innocent-says-lucy-letby-115116071.html)
-- Jul 05 - [Texas 3D printing firm unveils next-gen construction technology: 'Something radical and courageous needs to happen'](https://www.yahoo.com/tech/texas-3d-printing-firm-unveils-170000515.html)
-- Jul 05 - [Tennessee man goes from janitor to driving a $3 million Bugatti, calls this asset 'better' than real estate](https://finance.yahoo.com/news/tennessee-man-goes-janitor-driving-103300661.html)
-- Jul 05 - [Powerful Florida family sold DeSantis administration toxic land, lawsuit alleges](https://www.yahoo.com/news/powerful-florida-family-sold-desantis-093000396.html)
-- Jul 05 - [Exclusive-Philippines turned down US help amid South China Sea tensions - military chief](https://www.yahoo.com/news/exclusive-philippines-turned-down-us-084613237.html)
+- Jul 05 - [French election campaign rocked by violence as minister says more than 50 attacks made ahead of crunch vote](https://www.yahoo.com/news/french-election-campaign-rocked-violence-123342370.html)
+- Jul 05 - [Heat advisory issued for Palm Beach County as 'feels like' temperatures could soar to 110](https://www.yahoo.com/news/heat-advisory-issued-palm-beach-131521563.html)
+- Jul 05 - [Why the S&P 500 is poised to rocket 100% in 5 years](https://finance.yahoo.com/news/why-the-sp-500-is-poised-to-rocket-100-in-5-years-130007834.html)
+- Jul 05 - [Indianapolis has violent Fourth of July night. Police use curfew to bust up groups downtown](https://www.yahoo.com/news/indianapolis-violent-fourth-july-night-125844650.html)
+- Jul 05 - [Biden's bad week just got worse after saying he's proud to be the 'first black woman' to serve in the White House](https://www.yahoo.com/news/biden-said-hes-proud-first-125306298.html)
 <!-- feed end -->
 
 ### Onstream
