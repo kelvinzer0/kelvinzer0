@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Analysis-China, struggling to make use of a boom in energy storage, calls for even more](https://finance.yahoo.com/news/analysis-china-struggling-boom-energy-054147467.html)
-- Jul 05 - [‘Once-in-a-lifetime’ cosmic event to appear in night sky after star explodes](https://www.yahoo.com/news/once-lifetime-cosmic-event-appear-113642792.html)
+- Jul 05 - [The UK election winner only becomes prime minister when King Charles III says so](https://www.yahoo.com/news/uk-election-winner-only-becomes-044756024.html)
+- Jul 05 - [King Charles wakes up in Labour constituency for first time in central London](https://www.yahoo.com/news/king-charles-wakes-labour-constituency-044411213.html)
+- Jul 05 - [WATCH: Fireworks launch into crowd at Stadium of Fire, 6 taken to the hospital](https://www.yahoo.com/news/fireworks-launch-crowd-stadium-fire-030908411.html)
 - Jul 05 - [Trump Throws 4th Of July Fit In 'Disgraceful' New Holiday Tantrum](https://www.yahoo.com/news/trump-throws-4th-july-fit-030448434.html)
 - Jul 05 - [Bankrupt EV start-up Fisker wants to sell its 3,300 unsold electric vehicles at an 80% discount to a company that rents cars to NYC Uber and Lyft drivers](https://www.yahoo.com/news/bankrupt-ev-start-fisker-wants-012652413.html)
-- Jul 04 - [Tornado hit West End of Louisville, National Weather Service reports](https://www.yahoo.com/news/tornado-hit-west-end-louisville-224521825.html)
 <!-- feed end -->
 
 ### Onstream
