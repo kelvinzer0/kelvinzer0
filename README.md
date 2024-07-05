@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Royal audience with new prime minister is a momentous event for the King](https://www.yahoo.com/lifestyle/royal-audience-prime-minister-momentous-211623933.html)
 - Jul 04 - [‘Our loyalty isn’t worth anything’: I paid $70 for a seat with more legroom, but two women grabbed similar empty seats for free. Is that fair?](https://finance.yahoo.com/news/loyalty-isn-t-worth-anything-102100548.html)
-- Jul 04 - [Which sodas contain BVO? After FDA bans food additive, avoid these products](https://www.yahoo.com/news/sodas-contain-bvo-fda-bans-014559358.html)
-- Jul 04 - [Grass Fires Disrupt Fourth of July Celebrations in Abilene](https://www.yahoo.com/news/grass-fires-disrupt-fourth-july-190939306.html)
 - Jul 04 - [Comedian Tony Knight dead at 54 following 'terrible accident'](https://www.yahoo.com/entertainment/comedian-tony-knight-dead-54-185714571.html)
+- Jul 04 - [Man dead after apparent Husky dog attack in Fresno County](https://www.yahoo.com/news/man-dead-apparent-husky-dog-175802882.html)
+- Jul 04 - [White House now says Biden was seen by his doctor days after debate](https://www.yahoo.com/news/white-house-now-says-biden-140102214.html)
+- Jul 04 - [Updates: Cleveland police officer killed on July 4 identified as Jamieson Ritter](https://www.yahoo.com/news/team-cleveland-police-officer-shot-061252566.html)
 <!-- feed end -->
 
 ### Onstream
