@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Here's the Average Stock Market Return Under Democratic and Republican Presidents (Hint: It May Surprise You)](https://finance.yahoo.com/news/heres-average-stock-market-return-084500070.html)
 - Jul 05 - [The UK election winner only becomes prime minister when King Charles III says so](https://www.yahoo.com/news/uk-election-winner-only-becomes-044756024.html)
 - Jul 05 - [Trump Throws 4th Of July Fit In 'Disgraceful' New Holiday Tantrum](https://www.yahoo.com/news/trump-throws-4th-july-fit-030448434.html)
-- Jul 05 - [Bankrupt EV start-up Fisker wants to sell its 3,300 unsold electric vehicles at an 80% discount to a company that rents cars to NYC Uber and Lyft drivers](https://www.yahoo.com/news/bankrupt-ev-start-fisker-wants-012652413.html)
 - Jul 04 - [The real estate market is in for sharp correction with losses that could take a decade to recover from, strategist says](https://finance.yahoo.com/news/real-estate-market-sharp-correction-123002153.html)
 - Jul 04 - [‘Our loyalty isn’t worth anything’: I paid $70 for a seat with more legroom, but two women grabbed similar empty seats for free. Is that fair?](https://finance.yahoo.com/news/loyalty-isn-t-worth-anything-102100548.html)
 <!-- feed end -->
