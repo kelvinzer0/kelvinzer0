@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Analysis-China, struggling to make use of a boom in energy storage, calls for even more](https://finance.yahoo.com/news/analysis-china-struggling-boom-energy-054147467.html)
 - Jul 05 - [‘Once-in-a-lifetime’ cosmic event to appear in night sky after star explodes](https://www.yahoo.com/news/once-lifetime-cosmic-event-appear-113642792.html)
 - Jul 05 - [Trump Throws 4th Of July Fit In 'Disgraceful' New Holiday Tantrum](https://www.yahoo.com/news/trump-throws-4th-july-fit-030448434.html)
-- Jul 04 - [The real estate market is in for sharp correction with losses that could take a decade to recover from, strategist says](https://finance.yahoo.com/news/real-estate-market-sharp-correction-123002153.html)
-- Jul 04 - [Comedian Tony Knight dead at 54 following 'terrible accident'](https://www.yahoo.com/entertainment/comedian-tony-knight-dead-54-185714571.html)
-- Jul 04 - [The Fastest Growing Automotive Brand in the World](https://finance.yahoo.com/news/fastest-growing-automotive-brand-world-153732947.html)
+- Jul 05 - [Bankrupt EV start-up Fisker wants to sell its 3,300 unsold electric vehicles at an 80% discount to a company that rents cars to NYC Uber and Lyft drivers](https://www.yahoo.com/news/bankrupt-ev-start-fisker-wants-012652413.html)
+- Jul 04 - [Tornado hit West End of Louisville, National Weather Service reports](https://www.yahoo.com/news/tornado-hit-west-end-louisville-224521825.html)
 <!-- feed end -->
 
 ### Onstream
