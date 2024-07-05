@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Off-duty deputy shoots dead family’s 3-year-old dog in front of horrified homeowner after the pup gets loose](https://www.yahoo.com/news/off-duty-deputy-shoots-dead-191912711.html)
+- Jul 05 - [Trump disavows Project 2025 transition plan after a key official calls for a new American Revolution](https://www.yahoo.com/news/trump-disavows-project-2025-transition-183441515.html)
+- Jul 05 - [St. Louis man accused of banging hammer on neighbor’s door](https://www.yahoo.com/news/st-louis-man-accused-banging-182309945.html)
 - Jul 05 - [How much is the monthly payment on a $300,000 mortgage?](https://finance.yahoo.com/personal-finance/mortgage-payment-on-300k-175009470.html)
-- Jul 05 - [Multiple Buffalo parks damaged during Fourth of July celebrations](https://www.yahoo.com/news/multiple-buffalo-parks-damaged-during-164833974.html)
-- Jul 05 - [Rail cars carrying hazardous material derail and catch fire in North Dakota](https://www.yahoo.com/news/rail-cars-carrying-hazardous-material-164714571.html)
-- Jul 05 - [Biden cancels remarks at teacher's group convention after strike](https://www.yahoo.com/news/biden-cancels-remarks-teachers-group-163526367.html)
-- Jul 05 - [Kentucky firefighter, bystander injured after Fourth of July fireworks accident](https://www.yahoo.com/news/kentucky-firefighter-bystander-injured-fourth-161207935.html)
+- Jul 05 - [Man dies after placing lit firework on his head during Fourth of July party](https://www.yahoo.com/news/man-dies-placing-lit-firework-174721758.html)
 <!-- feed end -->
 
 ### Onstream
