@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [French election campaign rocked by violence as minister says more than 50 attacks made ahead of crunch vote](https://www.yahoo.com/news/french-election-campaign-rocked-violence-123342370.html)
-- Jul 05 - [Heat advisory issued for Palm Beach County as 'feels like' temperatures could soar to 110](https://www.yahoo.com/news/heat-advisory-issued-palm-beach-131521563.html)
+- Jul 05 - [Can you go to Great Wolf Lodge waterparks without staying the night? What to know](https://www.yahoo.com/lifestyle/great-wolf-lodge-waterparks-without-144312069.html)
+- Jul 05 - [Man faces murder charge; police tried to save the victim's life on the scene](https://www.yahoo.com/news/man-faces-murder-charge-police-143600235.html)
+- Jul 05 - [Earth’s core has slowed so much it’s moving backward, scientists confirm. Here’s what it could mean](https://www.yahoo.com/news/scientists-ve-confirmed-slowdown-earth-100054337.html)
 - Jul 05 - [Why the S&P 500 is poised to rocket 100% in 5 years](https://finance.yahoo.com/news/why-the-sp-500-is-poised-to-rocket-100-in-5-years-130007834.html)
-- Jul 05 - [Indianapolis has violent Fourth of July night. Police use curfew to bust up groups downtown](https://www.yahoo.com/news/indianapolis-violent-fourth-july-night-125844650.html)
 - Jul 05 - [Biden's bad week just got worse after saying he's proud to be the 'first black woman' to serve in the White House](https://www.yahoo.com/news/biden-said-hes-proud-first-125306298.html)
 <!-- feed end -->
 
