@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Can you go to Great Wolf Lodge waterparks without staying the night? What to know](https://www.yahoo.com/lifestyle/great-wolf-lodge-waterparks-without-144312069.html)
-- Jul 05 - [Man faces murder charge; police tried to save the victim's life on the scene](https://www.yahoo.com/news/man-faces-murder-charge-police-143600235.html)
+- Jul 05 - [Hotel Guests in Cancun Brace for Hurricane Conditions as Beryl Lashes Yucatan Peninsula](https://www.yahoo.com/news/hotel-guests-cancun-brace-hurricane-160319952.html)
+- Jul 05 - [Shocking moment fireworks malfunction and fly into crowd during July 4 event in Utah stadium](https://www.yahoo.com/news/shocking-moment-fireworks-malfunction-fly-155554068.html)
+- Jul 05 - [Musk suggests late Twitter disclosure was a mistake, seeks to end lawsuit](https://finance.yahoo.com/news/musk-suggests-twitter-disclosure-mistake-144349996.html)
+- Jul 05 - ["I Threw Up On His Shoes" — 14 Stories From Employees Who Got Petty Revenge On Their Awful Bosses](https://www.yahoo.com/entertainment/threw-shoes-14-stories-employees-141603250.html)
 - Jul 05 - [Earth’s core has slowed so much it’s moving backward, scientists confirm. Here’s what it could mean](https://www.yahoo.com/news/scientists-ve-confirmed-slowdown-earth-100054337.html)
-- Jul 05 - [Why the S&P 500 is poised to rocket 100% in 5 years](https://finance.yahoo.com/news/why-the-sp-500-is-poised-to-rocket-100-in-5-years-130007834.html)
-- Jul 05 - [Biden's bad week just got worse after saying he's proud to be the 'first black woman' to serve in the White House](https://www.yahoo.com/news/biden-said-hes-proud-first-125306298.html)
 <!-- feed end -->
 
 ### Onstream
