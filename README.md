@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [What's the most expensive property sold in RI? July 6 real estate transactions](https://www.yahoo.com/news/whats-most-expensive-property-sold-112419970.html)
-- Jul 05 - [So you're contributing to a 401(k) while investing and saving a lot — 3 retirement fouls you might still be committing](https://finance.yahoo.com/news/youre-contributing-401-k-while-112200359.html)
-- Jul 05 - [Time running out for Ukrainians fleeing Russia's advance](https://www.yahoo.com/news/time-running-ukrainians-fleeing-russias-104608523.html)
-- Jul 05 - [Scientists say they’ve confirmed a slowdown in Earth’s inner core rotation. Now what?](https://www.yahoo.com/news/scientists-ve-confirmed-slowdown-earth-100054337.html)
+- Jul 05 - [‘I’m innocent,’ says Lucy Letby as she’s led out of dock after whole-life sentence](https://www.yahoo.com/news/m-innocent-says-lucy-letby-115116071.html)
+- Jul 05 - [Texas 3D printing firm unveils next-gen construction technology: 'Something radical and courageous needs to happen'](https://www.yahoo.com/tech/texas-3d-printing-firm-unveils-170000515.html)
+- Jul 05 - [Tennessee man goes from janitor to driving a $3 million Bugatti, calls this asset 'better' than real estate](https://finance.yahoo.com/news/tennessee-man-goes-janitor-driving-103300661.html)
 - Jul 05 - [Powerful Florida family sold DeSantis administration toxic land, lawsuit alleges](https://www.yahoo.com/news/powerful-florida-family-sold-desantis-093000396.html)
+- Jul 05 - [Exclusive-Philippines turned down US help amid South China Sea tensions - military chief](https://www.yahoo.com/news/exclusive-philippines-turned-down-us-084613237.html)
 <!-- feed end -->
 
 ### Onstream
