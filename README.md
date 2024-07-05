@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 04 - [‘Our loyalty isn’t worth anything’: I paid $70 for a seat with more legroom, but two women grabbed similar empty seats for free. Is that fair?](https://finance.yahoo.com/news/loyalty-isn-t-worth-anything-102100548.html)
+- Jul 04 - [Which sodas contain BVO? After FDA bans food additive, avoid these products](https://www.yahoo.com/news/sodas-contain-bvo-fda-bans-014559358.html)
+- Jul 04 - [‘Military helicopters’ in formation over Chicago: What we know](https://www.yahoo.com/news/military-helicopters-formation-over-chicago-191530277.html)
 - Jul 04 - [Comedian Tony Knight dead at 54 following 'terrible accident'](https://www.yahoo.com/entertainment/comedian-tony-knight-dead-54-185714571.html)
-- Jul 04 - [Man dead after apparent Husky dog attack in Fresno County](https://www.yahoo.com/news/man-dead-apparent-husky-dog-175802882.html)
-- Jul 04 - [White House now says Biden was seen by his doctor days after debate](https://www.yahoo.com/news/white-house-now-says-biden-140102214.html)
-- Jul 04 - [Updates: Cleveland police officer killed on July 4 identified as Jamieson Ritter](https://www.yahoo.com/news/team-cleveland-police-officer-shot-061252566.html)
+- Jul 04 - [Two men arrested after I-84 pursuit that ended in Boise crash, wildfire on Wednesday](https://www.yahoo.com/news/two-men-arrested-84-pursuit-182502152.html)
 <!-- feed end -->
 
 ### Onstream
