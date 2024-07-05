@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [What's the most expensive property sold in RI? July 6 real estate transactions](https://www.yahoo.com/news/whats-most-expensive-property-sold-112419970.html)
+- Jul 05 - [So you're contributing to a 401(k) while investing and saving a lot — 3 retirement fouls you might still be committing](https://finance.yahoo.com/news/youre-contributing-401-k-while-112200359.html)
+- Jul 05 - [Time running out for Ukrainians fleeing Russia's advance](https://www.yahoo.com/news/time-running-ukrainians-fleeing-russias-104608523.html)
+- Jul 05 - [Scientists say they’ve confirmed a slowdown in Earth’s inner core rotation. Now what?](https://www.yahoo.com/news/scientists-ve-confirmed-slowdown-earth-100054337.html)
 - Jul 05 - [Powerful Florida family sold DeSantis administration toxic land, lawsuit alleges](https://www.yahoo.com/news/powerful-florida-family-sold-desantis-093000396.html)
-- Jul 05 - [Ukraine navy chief says Russia is losing Crimean hub in Black Sea](https://www.yahoo.com/news/ukraine-navy-chief-says-russia-062134051.html)
-- Jul 05 - [The UK election winner only becomes prime minister when King Charles III says so](https://www.yahoo.com/news/uk-election-winner-only-becomes-044756024.html)
-- Jul 05 - [PHOTOS: Portland Fire responds to heavy pallet fire downing power lines, threatening buildings](https://www.yahoo.com/news/photos-portland-fire-responds-heavy-032255072.html)
-- Jul 05 - [Trump Throws 4th Of July Fit In 'Disgraceful' New Holiday Tantrum](https://www.yahoo.com/news/trump-throws-4th-july-fit-030448434.html)
 <!-- feed end -->
 
 ### Onstream
