@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Driver who plowed into NYC Fourth of July gathering in suspected DUI was a substance abuse counselor and author](https://www.yahoo.com/news/driver-plowed-nyc-fourth-july-211118559.html)
-- Jul 05 - [Photo of Delta’s ‘Spoiled’ Meals That Were Served to Passengers Reveals Mold on Food: ‘Tasted Really Sour’](https://www.yahoo.com/news/photo-delta-spoiled-meals-were-194600816.html)
-- Jul 05 - [Eastern Wisconsin community evacuated after floodwaters breach dam](https://www.yahoo.com/news/people-evacuated-southeastern-wisconsin-community-192130014.html)
+- Jul 05 - ['Astonished' Germany says Hungary cancelled foreign minister meeting](https://www.yahoo.com/news/astonished-germany-says-hungary-cancelled-202115569.html)
 - Jul 05 - [Trump denies knowing about Project 2025, his allies' sweeping plan to transform the US government](https://www.yahoo.com/news/trump-disavows-project-2025-transition-183441515.html)
 - Jul 05 - [How much is the monthly payment on a $300,000 mortgage?](https://finance.yahoo.com/personal-finance/mortgage-payment-on-300k-175009470.html)
+- Jul 05 - [Man dies after placing lit firework on his head during Fourth of July party](https://www.yahoo.com/news/man-dies-placing-lit-firework-174721758.html)
+- Jul 05 - [When will the housing market crash again?](https://finance.yahoo.com/personal-finance/when-will-the-housing-market-crash-again-170038789.html)
 <!-- feed end -->
 
 ### Onstream
