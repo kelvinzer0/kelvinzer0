@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Music lovers gather for Waterfront Blues Festival in Portland despite scorching heat](https://www.yahoo.com/news/music-lovers-gather-waterfront-blues-152714805.html)
+- Jul 06 - [New images reveal an asteroid that just whizzed by Earth has an unexpected companion](https://www.yahoo.com/news/images-reveal-asteroid-just-whizzed-141958053.html)
+- Jul 06 - [Meghan McCain: Biden won’t be elected to a second term ‘one way or another’](https://www.yahoo.com/news/meghan-mccain-biden-won-t-130317768.html)
 - Jul 06 - [These 6 Affordable Cars Should Last Throughout Your Entire Retirement](https://finance.yahoo.com/news/6-affordable-cars-last-throughout-110140501.html)
 - Jul 06 - [17 Signs From The Past Week That Made Me Laugh So Hard, I Choked On A Little Bit Of Spit In The Back Of My Throat](https://www.yahoo.com/entertainment/17-signs-past-week-made-121602420.html)
-- Jul 06 - [Walgreens Is Closing 91 Stores This Year — Here's the Full List](https://finance.yahoo.com/news/walgreens-closing-91-stores-heres-120000763.html)
-- Jul 06 - [I’m 60 and all my retirement savings is in pre-tax 401(k) and IRA accounts — how do I minimize taxes on my withdrawals?](https://finance.yahoo.com/news/m-60-retirement-savings-pre-114400914.html)
-- Jul 06 - [Why the S&P 500 is poised to rocket 100% in 5 years](https://finance.yahoo.com/news/why-the-sp-500-is-poised-to-rocket-100-in-5-years-130007834.html)
 <!-- feed end -->
 
 ### Onstream
