@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Who are the favourites to be the next Tory leader?](https://www.yahoo.com/news/tory-party-next-leader-odds-poll-election-185309681.html)
 - Jul 06 - [Walgreens Is Closing 91 Stores This Year — Here's the Full List](https://finance.yahoo.com/news/walgreens-closing-91-stores-heres-120000763.html)
-- Jul 06 - [Tributes to 'true gentleman' as killer jailed](https://www.yahoo.com/news/tributes-true-gentleman-killer-jailed-114820692.html)
+- Jul 06 - [I’m 60 and all my retirement savings is in pre-tax 401(k) and IRA accounts — how do I minimize taxes on my withdrawals?](https://finance.yahoo.com/news/m-60-retirement-savings-pre-114400914.html)
 - Jul 06 - [Warren Buffett said that he could end America's deficit problem 'in five minutes' — here's what he would do](https://finance.yahoo.com/news/warren-buffett-said-could-end-113400320.html)
 - Jul 06 - [Hamas clears the way for a possible cease-fire after dropping key demand, officials say](https://www.yahoo.com/news/hamas-clears-way-possible-cease-111110561.html)
-- Jul 06 - [Chicago homeowner stunned after getting a notice that his property taxes skyrocketed from $1,800 to over $30K](https://finance.yahoo.com/news/chicago-homeowner-stunned-getting-notice-101600890.html)
 <!-- feed end -->
 
 ### Onstream
