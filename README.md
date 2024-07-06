@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Danny Trejo says he was racially targeted in 4th of July water balloon brawl](https://www.yahoo.com/entertainment/danny-trejo-says-racially-targeted-184600523.html)
-- Jul 06 - [Fiery railcars with hazardous material mostly contained after derailment in North Dakota](https://finance.yahoo.com/news/fiery-railcars-hazardous-material-mostly-184119422.html)
-- Jul 06 - [Pamplona bull running festival kicks off with firecracker](https://www.yahoo.com/news/pamplona-bull-running-festival-kicks-183548764.html)
-- Jul 06 - [Why are those longhorns grazing off Highway 101? How picturesque cattle got to SLO County](https://www.yahoo.com/lifestyle/why-those-longhorns-grazing-off-170000507.html)
+- Jul 06 - [2nd local radio host says they were given questions ahead of Biden interview](https://www.yahoo.com/news/2nd-radio-host-says-were-190232337.html)
+- Jul 06 - [These People Became Landlords, Hoping To Earn Passive Income: Here’s Why They Regret It](https://finance.yahoo.com/news/people-became-landlords-hoping-earn-170157288.html)
 - Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
+- Jul 06 - [5 Oil Change Scams That Will Cost You Money — or Even Your Car](https://finance.yahoo.com/news/5-oil-change-scams-cost-150242876.html)
+- Jul 06 - ['COVID Tongue' Is Definitely a Thing—Here's What It Is and How to Know if You Have It](https://www.yahoo.com/news/covid-tongue-definitely-thing-heres-142500438.html)
 <!-- feed end -->
 
 ### Onstream
