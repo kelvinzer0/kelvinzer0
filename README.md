@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [PA advocates calling for hate crime charges to be filed against man accused of killing teen](https://www.yahoo.com/news/pa-advocates-calling-hate-crime-214711079.html)
+- Jul 06 - [2nd local radio host says they were given questions ahead of Biden interview](https://www.yahoo.com/news/2nd-radio-host-says-were-190232337.html)
 - Jul 06 - [How a Seattle couple achieved financial independence in their mid-30s with a net worth over $4 million — and why they don't want to retire early](https://finance.yahoo.com/news/seattle-couple-achieved-financial-independence-173702561.html)
 - Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
-- Jul 06 - [Car found underwater at Scioto River by fisherman, prompting investigation](https://www.yahoo.com/news/car-found-underwater-scioto-river-150924802.html)
-- Jul 06 - ['COVID Tongue' Is Definitely a Thing—Here's What It Is and How to Know if You Have It](https://www.yahoo.com/news/covid-tongue-definitely-thing-heres-142500438.html)
-- Jul 06 - [The folding wingtips on Boeing's massive new 777X are a first in commercial aviation. Here's why the plane needs them.](https://www.yahoo.com/news/folding-wingtips-boeings-massive-777x-134036728.html)
+- Jul 06 - [Tampa resident guns down man who entered house through window: police](https://www.yahoo.com/news/tampa-resident-guns-down-man-151949505.html)
 <!-- feed end -->
 
 ### Onstream
