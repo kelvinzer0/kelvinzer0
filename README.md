@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [New MP told public rally: ‘Let’s make Israel burn’](https://www.yahoo.com/news/mp-once-told-public-rally-170126337.html)
+- Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
 - Jul 06 - [5 Oil Change Scams That Will Cost You Money — or Even Your Car](https://finance.yahoo.com/news/5-oil-change-scams-cost-150242876.html)
-- Jul 06 - [New images reveal an asteroid that just whizzed by Earth has an unexpected companion](https://www.yahoo.com/news/images-reveal-asteroid-just-whizzed-141958053.html)
-- Jul 06 - [1 Stock I Wouldn't Touch With a 10-Foot Pole -- and Here's Why](https://finance.yahoo.com/news/1-stock-wouldnt-touch-10-133000557.html)
-- Jul 06 - [Meghan McCain: Biden won’t be elected to a second term ‘one way or another’](https://www.yahoo.com/news/meghan-mccain-biden-won-t-130317768.html)
-- Jul 06 - [I’m a Boomer Who’s Driven Dozens of Car Models — These Are the 5 Best for Your Retirement Dollar](https://finance.yahoo.com/news/m-boomer-driven-dozens-car-120050962.html)
+- Jul 06 - ['COVID Tongue' Is Definitely a Thing—Here's What It Is and How to Know if You Have It](https://www.yahoo.com/news/covid-tongue-definitely-thing-heres-142500438.html)
+- Jul 06 - [The folding wingtips on Boeing's massive new 777X are a first in commercial aviation. Here's why the plane needs them.](https://www.yahoo.com/news/folding-wingtips-boeings-massive-777x-134036728.html)
 <!-- feed end -->
 
 ### Onstream
