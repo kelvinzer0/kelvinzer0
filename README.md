@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [I’m 60 and all my retirement savings is in pre-tax 401(k) and IRA accounts — how do I minimize taxes on my withdrawals?](https://finance.yahoo.com/news/m-60-retirement-savings-pre-114400914.html)
-- Jul 06 - [Why the S&P 500 is poised to rocket 100% in 5 years](https://finance.yahoo.com/news/why-the-sp-500-is-poised-to-rocket-100-in-5-years-130007834.html)
-- Jul 06 - [This Italian vacation hotspot is turning tourists away as it runs out of water](https://www.yahoo.com/news/italian-vacation-hotspot-turning-tourists-090042526.html)
-- Jul 06 - [China anchors 'monster ship' in South China Sea, Philippine coast guard says](https://www.yahoo.com/news/china-anchors-monster-ship-south-070325627.html)
-- Jul 06 - [Hamas accepts US proposal on talks over Israeli hostages, Hamas source says](https://www.yahoo.com/news/talks-free-israeli-hostages-start-041553937.html)
+- Jul 06 - [Walgreens Is Closing 91 Stores This Year — Here's the Full List](https://finance.yahoo.com/news/walgreens-closing-91-stores-heres-120000763.html)
+- Jul 06 - [Tributes to 'true gentleman' as killer jailed](https://www.yahoo.com/news/tributes-true-gentleman-killer-jailed-114820692.html)
+- Jul 06 - [Warren Buffett said that he could end America's deficit problem 'in five minutes' — here's what he would do](https://finance.yahoo.com/news/warren-buffett-said-could-end-113400320.html)
+- Jul 06 - [Hamas clears the way for a possible cease-fire after dropping key demand, officials say](https://www.yahoo.com/news/hamas-clears-way-possible-cease-111110561.html)
+- Jul 06 - [Chicago homeowner stunned after getting a notice that his property taxes skyrocketed from $1,800 to over $30K](https://finance.yahoo.com/news/chicago-homeowner-stunned-getting-notice-101600890.html)
 <!-- feed end -->
 
 ### Onstream
