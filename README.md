@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [12-year-old girl killed, nine others injured in multi-car crash in South L.A.](https://www.yahoo.com/news/12-old-girl-killed-nine-044545394.html)
 - Jul 06 - [Doctors And Nurses Are Revealing The Biggest "Health Misconceptions" That More People Should Know](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-biggest-health-034602789.html)
 - Jul 06 - [6 takeaways from Biden’s high-stakes interview with ABC News’ George Stephanopoulos](https://www.yahoo.com/news/6-takeaways-from-bidens-high-stakes-interview-with-abc-news-george-stephanopoulos-015311863.html)
 - Jul 06 - [Biden's attempt to save his campaign and presidency was too underwhelming for the moment](https://www.yahoo.com/news/bidens-attempt-save-campaign-presidency-013544821.html)
-- Jul 06 - [This SLO County city just broke a 17-year-old heat record. Here’s how hot it got](https://www.yahoo.com/news/slo-county-city-just-broke-010242088.html)
 - Jul 05 - [Several Northern California residents to be surprised by firework citations in the mail](https://www.yahoo.com/news/several-northern-california-residents-surprised-233321845.html)
 <!-- feed end -->
 
