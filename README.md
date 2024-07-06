@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [I’m 60 and all my retirement savings is in pre-tax 401(k) and IRA accounts — how do I minimize taxes on my withdrawals?](https://finance.yahoo.com/news/m-60-retirement-savings-pre-114400914.html)
+- Jul 06 - [Why the S&P 500 is poised to rocket 100% in 5 years](https://finance.yahoo.com/news/why-the-sp-500-is-poised-to-rocket-100-in-5-years-130007834.html)
 - Jul 06 - [This Italian vacation hotspot is turning tourists away as it runs out of water](https://www.yahoo.com/news/italian-vacation-hotspot-turning-tourists-090042526.html)
 - Jul 06 - [China anchors 'monster ship' in South China Sea, Philippine coast guard says](https://www.yahoo.com/news/china-anchors-monster-ship-south-070325627.html)
-- Jul 06 - [Hamas accepts US proposal on talks over Israeli hostages 16 days after first phase, Hamas source says](https://www.yahoo.com/news/talks-free-israeli-hostages-start-041553937.html)
-- Jul 06 - [Doctors And Nurses Are Revealing The Biggest "Health Misconceptions" That More People Should Know](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-biggest-health-034602789.html)
-- Jul 06 - [Mount Everest's highest camp is littered with frozen garbage, and cleanup is likely to take years](https://www.yahoo.com/news/mount-everests-highest-camp-littered-030846199.html)
+- Jul 06 - [Hamas accepts US proposal on talks over Israeli hostages, Hamas source says](https://www.yahoo.com/news/talks-free-israeli-hostages-start-041553937.html)
 <!-- feed end -->
 
 ### Onstream
