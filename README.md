@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [North Asheville restaurant abruptly closes after nearly 15 years](https://www.yahoo.com/news/north-asheville-restaurant-abruptly-closes-152501314.html)
-- Jul 07 - [Students Target Teachers in Group TikTok Attack, Shaking Their School](https://www.yahoo.com/news/students-target-teachers-group-tiktok-142107267.html)
-- Jul 07 - [Rancho Palos Verdes landslide is creating a new beach. 'It's unreal'](https://www.yahoo.com/news/rancho-palos-verdes-landslide-creating-140510998.html)
-- Jul 07 - [Iran’s naval destroyer has sunk, state media says](https://www.yahoo.com/news/iran-naval-destroyer-sunk-state-135515489.html)
-- Jul 07 - ['I Almost Died of a Heart Attack At 48—This Is the First Symptom I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-heart-attack-48-132500673.html)
+- Jul 07 - [I’d like to believe the Moon landings were faked – the alternative is far bleaker](https://www.yahoo.com/entertainment/d-believe-moon-landings-were-180000599.html)
+- Jul 07 - [Mystery solved after American teen vanished on cruise around Germany](https://www.yahoo.com/news/mystery-solved-american-teen-vanished-173518615.html)
+- Jul 07 - [Minnesota drivers hit thousands of deer a year. Here's where it happens most.](https://www.yahoo.com/news/minnesota-drivers-hit-thousands-deer-160000631.html)
+- Jul 07 - [One person killed in crash on South Carolina road, Highway Patrol says](https://www.yahoo.com/news/one-person-killed-crash-south-155306097.html)
+- Jul 07 - [Apple Watch Series 10 expected to boast larger displays, while a plastic SE may be in the works](https://www.yahoo.com/news/apple-watch-series-10-expected-to-boast-larger-displays-while-a-plastic-se-may-be-in-the-works-154027422.html)
 <!-- feed end -->
 
 ### Onstream
