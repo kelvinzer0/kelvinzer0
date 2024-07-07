@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Report: WWE Has Discussed Women’s Intercontinental And United States Titles](https://www.yahoo.com/entertainment/report-wwe-discussed-women-intercontinental-154649944.html)
 - Jul 07 - [North Asheville restaurant abruptly closes after nearly 15 years](https://www.yahoo.com/news/north-asheville-restaurant-abruptly-closes-152501314.html)
-- Jul 07 - [New report reveals staggering increase of wind and solar power generation in last 5 years: 'A historic, permanent shift'](https://www.yahoo.com/news/report-reveals-staggering-increase-wind-150000337.html)
 - Jul 07 - [Students Target Teachers in Group TikTok Attack, Shaking Their School](https://www.yahoo.com/news/students-target-teachers-group-tiktok-142107267.html)
-- Jul 07 - [Inflation data, Powell speaks, and big banks report earnings: What to know this week](https://finance.yahoo.com/news/inflation-data-powell-speaks-and-big-banks-report-earnings-what-to-know-this-week-141737717.html)
+- Jul 07 - [Rancho Palos Verdes landslide is creating a new beach. 'It's unreal'](https://www.yahoo.com/news/rancho-palos-verdes-landslide-creating-140510998.html)
+- Jul 07 - [Iran’s naval destroyer has sunk, state media says](https://www.yahoo.com/news/iran-naval-destroyer-sunk-state-135515489.html)
+- Jul 07 - ['I Almost Died of a Heart Attack At 48—This Is the First Symptom I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-heart-attack-48-132500673.html)
 <!-- feed end -->
 
 ### Onstream
