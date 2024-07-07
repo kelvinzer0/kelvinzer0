@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [A 'beautiful soul': Sister mourns Shane Miller, killed in Florence mass shooting](https://www.yahoo.com/news/beautiful-soul-sister-mourns-shane-201648663.html)
-- Jul 07 - [Clarkson offered landlady £1m for pub within minutes of meeting her](https://www.yahoo.com/entertainment/clarkson-offered-landlady-1m-pub-191439761.html)
+- Jul 07 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
+- Jul 07 - [The One Food Nutritionists Are Begging People Over 50 to Start Eating ASAP](https://www.yahoo.com/lifestyle/one-food-nutritionists-begging-people-192500802.html)
 - Jul 07 - [Iranian warship capsizes in Gulf port ‘accident’](https://www.yahoo.com/news/iranian-warship-capsizes-gulf-port-185320495.html)
 - Jul 07 - [I’d like to believe the Moon landings were faked – the alternative is far bleaker](https://www.yahoo.com/entertainment/d-believe-moon-landings-were-180000599.html)
-- Jul 07 - [Mystery solved after American teen vanished on cruise around Germany](https://www.yahoo.com/news/mystery-solved-american-teen-vanished-173518615.html)
+- Jul 07 - [Coast Guard rescues 5 boaters after vessel capsizes 11 miles offshore from Mayport](https://www.yahoo.com/news/coast-guard-rescues-5-boaters-170600621.html)
 <!-- feed end -->
 
 ### Onstream
