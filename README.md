@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Scammers are swiping billions from Americans every year. Worse, most crooks are getting away with it](https://www.yahoo.com/news/scammers-swiping-billions-americans-every-040329024.html)
 - Jul 07 - [Hawaii governor says Biden could decide within days whether to remain in the presidential race](https://www.yahoo.com/news/hawaii-governor-says-biden-could-005426995.html)
 - Jul 06 - [Barron Trump’s Super-Rare Public Appearance With Dad Donald Shows the Hobby They Share](https://www.yahoo.com/entertainment/barron-trump-super-rare-public-205114027.html)
-- Jul 06 - [2nd local radio host says they were given questions ahead of Biden interview](https://www.yahoo.com/news/2nd-radio-host-says-were-190232337.html)
 - Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
+- Jul 06 - [Tampa resident guns down man who entered house through window: police](https://www.yahoo.com/news/tampa-resident-guns-down-man-151949505.html)
+- Jul 06 - [Car found underwater at Scioto River by fisherman, prompting investigation](https://www.yahoo.com/news/car-found-underwater-scioto-river-150924802.html)
 <!-- feed end -->
 
 ### Onstream
