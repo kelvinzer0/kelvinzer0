@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Major improvements underway on Jacksonville’s Northbank Riverwalk: Expect closures and detours](https://www.yahoo.com/news/major-improvements-underway-jacksonville-northbank-120307170.html)
+- Jul 07 - [China’s dirty and dangerous race to become a space superpower](https://www.yahoo.com/news/china-dirty-dangerous-race-become-120000632.html)
 - Jul 07 - [Crew of NASA's earthbound simulated Mars habitat emerge after a year](https://www.yahoo.com/news/crew-nasas-earthbound-simulated-mars-105547425.html)
 - Jul 07 - [It was their dream home until the hoarder next door turned it into a pricey prison](https://www.yahoo.com/news/dream-home-until-hoarder-next-100031042.html)
-- Jul 07 - [Opinion: The force propping up Trump that we still don't talk about](https://www.yahoo.com/news/opinion-force-propping-trump-still-100003949.html)
 - Jul 07 - [‘This is what happens when you make a nerd mad’: How one man uses Facebook to frighten his children’s mother and why police do nothing](https://www.yahoo.com/news/happens-nerd-mad-one-man-100000411.html)
-- Jul 07 - [A Ukrainian drone triggers warehouse explosions in Russia as a war of attrition grinds on](https://www.yahoo.com/news/ukrainian-drone-triggers-warehouse-explosions-093007820.html)
 <!-- feed end -->
 
 ### Onstream
