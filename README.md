@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Interstate 270 ramp to U.S. 23 north to close for three months starting Monday](https://www.yahoo.com/news/interstate-270-ramp-u-23-142646119.html)
+- Jul 07 - [How to shield your savings from a Labour tax raid](https://finance.yahoo.com/news/shield-savings-labour-tax-raid-141730647.html)
+- Jul 07 - [How $300 Per Month Can Create $42,000 in Annual Dividend Income](https://finance.yahoo.com/news/300-per-month-create-42-143100085.html)
+- Jul 07 - [Students Target Teachers in Group TikTok Attack, Shaking Their School](https://www.yahoo.com/news/students-target-teachers-group-tiktok-142107267.html)
+- Jul 07 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
 - Jul 07 - [Iran’s naval destroyer has sunk, state media says](https://www.yahoo.com/news/iran-naval-destroyer-sunk-state-135515489.html)
-- Jul 07 - [China’s dirty and dangerous race to become a space superpower](https://www.yahoo.com/news/china-dirty-dangerous-race-become-120000632.html)
-- Jul 07 - [Is the $1M nest egg irrelevant? 81% of retirees 65-plus with $50K-$100K in savings say they're living decently](https://finance.yahoo.com/news/1m-nest-egg-irrelevant-81-112000524.html)
-- Jul 07 - [Crew of NASA's earthbound simulated Mars habitat emerge after a year](https://www.yahoo.com/news/crew-nasas-earthbound-simulated-mars-105547425.html)
 <!-- feed end -->
 
 ### Onstream
