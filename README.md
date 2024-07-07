@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Correctional officer injured during incident with inmate at IDOC’s Miami County facility](https://www.yahoo.com/news/correctional-officer-injured-during-incident-225106630.html)
+- Jul 07 - [Radio host who interviewed Biden leaves station after admitting campaign aides gave her pre-selected questions](https://finance.yahoo.com/news/radio-host-interviewed-biden-leaves-213440913.html)
 - Jul 07 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
-- Jul 07 - [The One Food Nutritionists Are Begging People Over 50 to Start Eating ASAP](https://www.yahoo.com/lifestyle/one-food-nutritionists-begging-people-192500802.html)
-- Jul 07 - [Iranian warship capsizes in Gulf port ‘accident’](https://www.yahoo.com/news/iranian-warship-capsizes-gulf-port-185320495.html)
-- Jul 07 - [I’d like to believe the Moon landings were faked – the alternative is far bleaker](https://www.yahoo.com/entertainment/d-believe-moon-landings-were-180000599.html)
-- Jul 07 - [Coast Guard rescues 5 boaters after vessel capsizes 11 miles offshore from Mayport](https://www.yahoo.com/news/coast-guard-rescues-5-boaters-170600621.html)
+- Jul 07 - [People Who Moved at Least Once During Childhood Usually Develop These 10 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-moved-least-once-during-201000589.html)
+- Jul 07 - [Pitstop packed in Baldwin as thousands head home from 4th of July](https://www.yahoo.com/news/pitstop-packed-baldwin-thousands-head-192728975.html)
 <!-- feed end -->
 
 ### Onstream
