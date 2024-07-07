@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [How to shield your savings from a Labour tax raid](https://finance.yahoo.com/news/shield-savings-labour-tax-raid-141730647.html)
-- Jul 07 - [How $300 Per Month Can Create $42,000 in Annual Dividend Income](https://finance.yahoo.com/news/300-per-month-create-42-143100085.html)
+- Jul 07 - [Report: WWE Has Discussed Women’s Intercontinental And United States Titles](https://www.yahoo.com/entertainment/report-wwe-discussed-women-intercontinental-154649944.html)
+- Jul 07 - [North Asheville restaurant abruptly closes after nearly 15 years](https://www.yahoo.com/news/north-asheville-restaurant-abruptly-closes-152501314.html)
+- Jul 07 - [New report reveals staggering increase of wind and solar power generation in last 5 years: 'A historic, permanent shift'](https://www.yahoo.com/news/report-reveals-staggering-increase-wind-150000337.html)
 - Jul 07 - [Students Target Teachers in Group TikTok Attack, Shaking Their School](https://www.yahoo.com/news/students-target-teachers-group-tiktok-142107267.html)
-- Jul 07 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
-- Jul 07 - [Iran’s naval destroyer has sunk, state media says](https://www.yahoo.com/news/iran-naval-destroyer-sunk-state-135515489.html)
+- Jul 07 - [Inflation data, Powell speaks, and big banks report earnings: What to know this week](https://finance.yahoo.com/news/inflation-data-powell-speaks-and-big-banks-report-earnings-what-to-know-this-week-141737717.html)
 <!-- feed end -->
 
 ### Onstream
