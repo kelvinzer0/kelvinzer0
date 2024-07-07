@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Here's the Best-Performing Stock-Split Stock of 2024 So Far -- and It Isn't Even Close](https://finance.yahoo.com/news/heres-best-performing-stock-split-095000521.html)
+- Jul 07 - [Prediction: 2 AI Stocks That'll Be Worth More Than Palantir 3 Years From Now](https://finance.yahoo.com/news/prediction-2-ai-stocks-thatll-083500685.html)
+- Jul 07 - [Scammers are swiping billions from Americans every year. Worse, most crooks are getting away with it](https://www.yahoo.com/news/scammers-swiping-billions-americans-every-040329024.html)
 - Jul 07 - [Hawaii governor says Biden could decide within days whether to remain in the presidential race](https://www.yahoo.com/news/hawaii-governor-says-biden-could-005426995.html)
-- Jul 06 - [Barron Trump’s Super-Rare Public Appearance With Dad Donald Shows the Hobby They Share](https://www.yahoo.com/entertainment/barron-trump-super-rare-public-205114027.html)
-- Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
-- Jul 06 - ['COVID Tongue' Is Definitely a Thing—Here's What It Is and How to Know if You Have It](https://www.yahoo.com/news/covid-tongue-definitely-thing-heres-142500438.html)
-- Jul 06 - [The folding wingtips on Boeing's massive new 777X are a first in commercial aviation. Here's why the plane needs them.](https://www.yahoo.com/news/folding-wingtips-boeings-massive-777x-134036728.html)
+- Jul 06 - [NASA spots unexpected X-shaped structures in Earth's upper atmosphere — and scientists are struggling to explain them](https://www.yahoo.com/news/nasa-spots-unexpected-x-shaped-220000614.html)
 <!-- feed end -->
 
 ### Onstream
