@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [How a Placerville woman raised thousands to buy mountain lion attack victim a new truck](https://www.yahoo.com/news/placerville-woman-raised-thousands-buy-140100590.html)
-- Jul 07 - [Stunning video shows scientists release 200 gallons of synthetic blood into ocean to lure a great white shark](https://www.yahoo.com/news/stunning-video-shows-scientists-release-122338156.html)
+- Jul 07 - [Interstate 270 ramp to U.S. 23 north to close for three months starting Monday](https://www.yahoo.com/news/interstate-270-ramp-u-23-142646119.html)
+- Jul 07 - [Iran’s naval destroyer has sunk, state media says](https://www.yahoo.com/news/iran-naval-destroyer-sunk-state-135515489.html)
 - Jul 07 - [China’s dirty and dangerous race to become a space superpower](https://www.yahoo.com/news/china-dirty-dangerous-race-become-120000632.html)
+- Jul 07 - [Is the $1M nest egg irrelevant? 81% of retirees 65-plus with $50K-$100K in savings say they're living decently](https://finance.yahoo.com/news/1m-nest-egg-irrelevant-81-112000524.html)
 - Jul 07 - [Crew of NASA's earthbound simulated Mars habitat emerge after a year](https://www.yahoo.com/news/crew-nasas-earthbound-simulated-mars-105547425.html)
-- Jul 07 - [It was their dream home until the hoarder next door turned it into a pricey prison](https://www.yahoo.com/news/dream-home-until-hoarder-next-100031042.html)
 <!-- feed end -->
 
 ### Onstream
