@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Clarkson offered landlady £1m for pub within minutes of meeting her](https://www.yahoo.com/entertainment/clarkson-offered-landlady-1m-pub-191439761.html)
+- Jul 07 - [French left-wing alliance wins big in unexpected snap election result](https://www.yahoo.com/news/french-left-wing-alliance-wins-190035880.html)
+- Jul 07 - [Iranian warship capsizes in Gulf port ‘accident’](https://www.yahoo.com/news/iranian-warship-capsizes-gulf-port-185320495.html)
 - Jul 07 - [I’d like to believe the Moon landings were faked – the alternative is far bleaker](https://www.yahoo.com/entertainment/d-believe-moon-landings-were-180000599.html)
-- Jul 07 - [Mystery solved after American teen vanished on cruise around Germany](https://www.yahoo.com/news/mystery-solved-american-teen-vanished-173518615.html)
-- Jul 07 - [Minnesota drivers hit thousands of deer a year. Here's where it happens most.](https://www.yahoo.com/news/minnesota-drivers-hit-thousands-deer-160000631.html)
-- Jul 07 - [One person killed in crash on South Carolina road, Highway Patrol says](https://www.yahoo.com/news/one-person-killed-crash-south-155306097.html)
-- Jul 07 - [Apple Watch Series 10 expected to boast larger displays, while a plastic SE may be in the works](https://www.yahoo.com/news/apple-watch-series-10-expected-to-boast-larger-displays-while-a-plastic-se-may-be-in-the-works-154027422.html)
+- Jul 07 - [Coast Guard rescues 5 boaters after vessel capsizes 11 miles offshore from Mayport](https://www.yahoo.com/news/coast-guard-rescues-5-boaters-170600621.html)
 <!-- feed end -->
 
 ### Onstream
