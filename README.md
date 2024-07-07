@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 07 - [Scammers are swiping billions from Americans every year. Worse, most crooks are getting away with it](https://www.yahoo.com/news/scammers-swiping-billions-americans-every-040329024.html)
 - Jul 07 - [Hawaii governor says Biden could decide within days whether to remain in the presidential race](https://www.yahoo.com/news/hawaii-governor-says-biden-could-005426995.html)
-- Jul 06 - [Protesters in Barcelona tell tourists to go home](https://www.yahoo.com/news/protesters-barcelona-tell-tourists-home-224139896.html)
 - Jul 06 - [Barron Trump’s Super-Rare Public Appearance With Dad Donald Shows the Hobby They Share](https://www.yahoo.com/entertainment/barron-trump-super-rare-public-205114027.html)
-- Jul 06 - [This ancient tree may replace Florida’s old citrus groves as farmers seek new crop](https://www.yahoo.com/news/ancient-tree-may-replace-florida-182423143.html)
+- Jul 06 - [2nd local radio host says they were given questions ahead of Biden interview](https://www.yahoo.com/news/2nd-radio-host-says-were-190232337.html)
+- Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
 <!-- feed end -->
 
 ### Onstream
