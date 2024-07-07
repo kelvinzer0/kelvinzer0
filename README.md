@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Here's the Best-Performing Stock-Split Stock of 2024 So Far -- and It Isn't Even Close](https://finance.yahoo.com/news/heres-best-performing-stock-split-095000521.html)
-- Jul 07 - [Prediction: 2 AI Stocks That'll Be Worth More Than Palantir 3 Years From Now](https://finance.yahoo.com/news/prediction-2-ai-stocks-thatll-083500685.html)
-- Jul 07 - [Scammers are swiping billions from Americans every year. Worse, most crooks are getting away with it](https://www.yahoo.com/news/scammers-swiping-billions-americans-every-040329024.html)
+- Jul 07 - [It was their dream home until the hoarder next door turned it into a pricey prison](https://www.yahoo.com/news/dream-home-until-hoarder-next-100031042.html)
+- Jul 07 - [‘This is what happens when you make a nerd mad’: How one man uses Facebook to frighten his children’s mother and why police do nothing](https://www.yahoo.com/news/happens-nerd-mad-one-man-100000411.html)
+- Jul 07 - [A Ukrainian drone triggers warehouse explosions in Russia as a war of attrition grinds on](https://www.yahoo.com/news/ukrainian-drone-triggers-warehouse-explosions-093007820.html)
+- Jul 07 - [Who can now stop Trump? It’s not Kamala, but there is a woman who can](https://www.yahoo.com/news/now-stop-trump-not-kamala-090000184.html)
 - Jul 07 - [Hawaii governor says Biden could decide within days whether to remain in the presidential race](https://www.yahoo.com/news/hawaii-governor-says-biden-could-005426995.html)
-- Jul 06 - [NASA spots unexpected X-shaped structures in Earth's upper atmosphere — and scientists are struggling to explain them](https://www.yahoo.com/news/nasa-spots-unexpected-x-shaped-220000614.html)
 <!-- feed end -->
 
 ### Onstream
