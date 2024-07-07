@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Hawaii governor says Biden could decide within days whether to remain in the presidential race](https://www.yahoo.com/news/hawaii-governor-says-biden-could-005426995.html)
+- Jul 06 - [Protesters in Barcelona tell tourists to go home](https://www.yahoo.com/news/protesters-barcelona-tell-tourists-home-224139896.html)
+- Jul 06 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
 - Jul 06 - [Barron Trump’s Super-Rare Public Appearance With Dad Donald Shows the Hobby They Share](https://www.yahoo.com/entertainment/barron-trump-super-rare-public-205114027.html)
 - Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
-- Jul 06 - [5 Oil Change Scams That Will Cost You Money — or Even Your Car](https://finance.yahoo.com/news/5-oil-change-scams-cost-150242876.html)
-- Jul 06 - ['COVID Tongue' Is Definitely a Thing—Here's What It Is and How to Know if You Have It](https://www.yahoo.com/news/covid-tongue-definitely-thing-heres-142500438.html)
-- Jul 06 - [The folding wingtips on Boeing's massive new 777X are a first in commercial aviation. Here's why the plane needs them.](https://www.yahoo.com/news/folding-wingtips-boeings-massive-777x-134036728.html)
 <!-- feed end -->
 
 ### Onstream
