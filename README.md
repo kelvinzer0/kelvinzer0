@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jul 07 - [Hawaii governor says Biden could decide within days whether to remain in the presidential race](https://www.yahoo.com/news/hawaii-governor-says-biden-could-005426995.html)
 - Jul 06 - [Barron Trump’s Super-Rare Public Appearance With Dad Donald Shows the Hobby They Share](https://www.yahoo.com/entertainment/barron-trump-super-rare-public-205114027.html)
 - Jul 06 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
-- Jul 06 - [Tampa resident guns down man who entered house through window: police](https://www.yahoo.com/news/tampa-resident-guns-down-man-151949505.html)
-- Jul 06 - [Car found underwater at Scioto River by fisherman, prompting investigation](https://www.yahoo.com/news/car-found-underwater-scioto-river-150924802.html)
+- Jul 06 - ['COVID Tongue' Is Definitely a Thing—Here's What It Is and How to Know if You Have It](https://www.yahoo.com/news/covid-tongue-definitely-thing-heres-142500438.html)
+- Jul 06 - [The folding wingtips on Boeing's massive new 777X are a first in commercial aviation. Here's why the plane needs them.](https://www.yahoo.com/news/folding-wingtips-boeings-massive-777x-134036728.html)
 <!-- feed end -->
 
 ### Onstream
