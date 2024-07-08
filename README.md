@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Opinion | The Roberts Court has checkmated the other branches](https://www.yahoo.com/news/opinion-roberts-court-checkmated-other-105735969.html)
-- Jul 08 - [‘While we looked, Julian didn’t’: Sister of man found dead says his boyfriend had bizarre reaction](https://www.yahoo.com/news/while-looked-julian-didn-t-041107524.html)
-- Jul 08 - [ASML CEO says world needs the legacy chips China is producing, Handelsblatt reports](https://finance.yahoo.com/news/asml-ceo-says-world-needs-100835456.html)
-- Jul 08 - [An entire Florida homeowners association board quits after $60K special assessment dispute — what happened](https://finance.yahoo.com/news/entire-florida-homeowners-association-board-100800168.html)
-- Jul 08 - [Little White Schoolhouse replica, constructed by high school students, headed to Milwaukee for Republican National Convention](https://www.yahoo.com/news/little-white-schoolhouse-replica-constructed-100557083.html)
+- Jul 08 - [Boeing to plead guilty in DOJ case tied to deadly 737 Max crashes](https://finance.yahoo.com/news/boeing-to-plead-guilty-in-doj-case-tied-to-deadly-737-max-crashes-120956161.html)
+- Jul 08 - [Leaders across Europe express relief mixed with concern about the French election result](https://www.yahoo.com/news/across-europe-leaders-express-relief-113259033.html)
+- Jul 08 - [Australian tourist town declares three-day curfew after spate of violence](https://www.yahoo.com/news/australian-tourist-town-declares-three-111806206.html)
+- Jul 08 - ['Insanity': Hurricane Beryl Lashes Texas](https://www.yahoo.com/news/insanity-hurricane-beryl-lashes-texas-111529009.html)
+- Jul 08 - [A scientist lost weight without trying after he stopped eating the types of ultra-processed foods he helped create. Here are 3 ways he cut down.](https://www.yahoo.com/lifestyle/scientist-lost-weight-without-trying-105237152.html)
 <!-- feed end -->
 
 ### Onstream
