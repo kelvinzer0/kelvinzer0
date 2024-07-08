@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Families on Viola Street in Appleton dig out after flooding crashed their Fourth of July](https://www.yahoo.com/news/families-viola-street-appleton-dig-215534485.html)
+- Jul 08 - [Ruling could permit a new reservoir for the water-starved Panama Canal, but it could take 6 years](https://www.yahoo.com/news/ruling-could-permit-reservoir-water-224350680.html)
 - Jul 08 - [Defense says jurors had ‘agreement’ to find Karen Read ‘not guilty’ of murder charge](https://www.yahoo.com/news/defense-says-jurors-had-agreement-154405869.html)
-- Jul 08 - [Political scientists weigh in on Mark Robinson's controversial remarks at NC church](https://www.starnewsonline.com/story/news/politics/elections/2024/07/08/candidate-for-nc-governor-mark-robinsons-controversial-remarks-at-bladen-county-church/74327805007/)
-- Jul 08 - [Parkinson's expert visited White House 8 times in 8 months, met with Biden's doctor](https://www.yahoo.com/news/parkinsons-expert-visited-white-house-181300865.html)
-- Jul 08 - [New cyberattack targets iPhone Apple IDs. Here's how to protect yourself.](https://www.yahoo.com/tech/cyberattack-targets-iphone-apple-ids-191000974.html)
+- Jul 08 - [I was scammed out of nearly $300,000 and was forced to abandon my retirement dreams](https://finance.yahoo.com/news/scammed-nearly-300-000-forced-212158398.html)
+- Jul 08 - [100-year-old find snarls Conner Street reconstruction project in Noblesville](https://www.yahoo.com/news/100-old-snarls-conner-street-203130823.html)
+- Jul 08 - [Docs: Las Cruces man facing child abuse charge after weekend incident](https://www.yahoo.com/news/docs-las-cruces-man-facing-202845056.html)
 <!-- feed end -->
 
 ### Onstream
