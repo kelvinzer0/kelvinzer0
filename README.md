@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Investors spending millions in South Mississippi on new hotels with community amenities](https://finance.yahoo.com/news/investors-spending-millions-south-mississippi-100000943.html)
-- Jul 08 - [From lush forest views to spectacular city sights, 6 NJ scenic overlooks you must see](https://www.yahoo.com/lifestyle/lush-forest-views-spectacular-city-085048141.html)
-- Jul 08 - [Israeli tanks storm Gaza City districts, residents report heavy fire](https://www.yahoo.com/news/israeli-tanks-storm-gaza-city-063747686.html)
-- Jul 08 - [How to have sex like a saint – according to the 14th century’s naughtiest author](https://www.yahoo.com/entertainment/sex-saint-according-14th-century-061500741.html)
-- Jul 08 - [The plane is ready, the fundraisers are booked: Trump's VP search comes down to its last days](https://www.yahoo.com/news/plane-ready-fundraisers-booked-trumps-041214294.html)
+- Jul 08 - [Opinion | The Roberts Court has checkmated the other branches](https://www.yahoo.com/news/opinion-roberts-court-checkmated-other-105735969.html)
+- Jul 08 - [‘While we looked, Julian didn’t’: Sister of man found dead says his boyfriend had bizarre reaction](https://www.yahoo.com/news/while-looked-julian-didn-t-041107524.html)
+- Jul 08 - [ASML CEO says world needs the legacy chips China is producing, Handelsblatt reports](https://finance.yahoo.com/news/asml-ceo-says-world-needs-100835456.html)
+- Jul 08 - [An entire Florida homeowners association board quits after $60K special assessment dispute — what happened](https://finance.yahoo.com/news/entire-florida-homeowners-association-board-100800168.html)
+- Jul 08 - [Little White Schoolhouse replica, constructed by high school students, headed to Milwaukee for Republican National Convention](https://www.yahoo.com/news/little-white-schoolhouse-replica-constructed-100557083.html)
 <!-- feed end -->
 
 ### Onstream
