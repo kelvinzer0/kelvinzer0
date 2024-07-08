@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Boeing's guilty plea could cause the stock to rebound: Analyst](https://finance.yahoo.com/video/boeings-guilty-plea-could-cause-135405289.html)
-- Jul 08 - [Teenage Rohingya refugee killed in Bangladesh by shell fired from Myanmar](https://www.yahoo.com/news/teenage-rohingya-refugee-killed-bangladesh-131632245.html)
-- Jul 08 - [National Hurricane Center tracking Beryl after landfall, 3 tropical waves](https://www.yahoo.com/news/national-hurricane-center-tracking-beryl-125112837.html)
-- Jul 08 - [This May Be the Most Overlooked COVID Symptom](https://www.yahoo.com/news/may-most-overlooked-covid-symptom-122142413.html)
-- Jul 08 - [2024 Toyota Mirai gets a huge July promotion, up to $33,000 off MSRP](https://www.autoblog.com/2024/07/08/2024-toyota-mirai-gets-a-huge-july-promotion-up-to-33000-off-msrp/)
+- Jul 08 - [Waters Rise on Galveston Island as Beryl Makes Landfall on Texas Gulf Coast](https://www.yahoo.com/news/waters-rise-galveston-island-beryl-144245952.html)
+- Jul 08 - [‘They have been so rude’: Travelers upset after flight to London suddenly diverted to Boston](https://www.yahoo.com/news/travelers-scrambling-flight-london-suddenly-103123277.html)
+- Jul 08 - [Hurricane Beryl moving north after landfall. See expected path, impacts in Houston, Austin](https://www.yahoo.com/news/hurricane-beryl-moving-north-landfall-134112122.html)
+- Jul 08 - [Woman Who Moved into New Home Has 'No Words' After 98-Year-Old Neighbor Shows Up on Doorstep with Gift](https://www.yahoo.com/lifestyle/woman-moved-home-no-words-133000689.html)
+- Jul 08 - [Who is Marine Tondelier? Meet the Green leader who inspired France to vote against the far-right](https://www.yahoo.com/news/marine-tondelier-meet-green-leader-125934885.html)
 <!-- feed end -->
 
 ### Onstream
