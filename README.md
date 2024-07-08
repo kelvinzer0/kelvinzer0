@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Card skimmers are hard to spot and on the rise. Here's what you can do to protect yourself.](https://finance.yahoo.com/news/card-skimmers-hard-spot-rise-171440370.html)
 - Jul 08 - [Motorcycle tour of Death Valley turns fatal as thermometer cracks 128 degrees](https://www.yahoo.com/news/motorcycle-tour-death-valley-turns-011043327.html)
 - Jul 08 - [Radio host who interviewed Biden leaves station after admitting campaign aides gave her pre-selected questions](https://finance.yahoo.com/news/radio-host-interviewed-biden-leaves-213440913.html)
-- Jul 08 - [Hold out a little longer, SLO County — rain may be on the way, plus cooler temps](https://www.yahoo.com/news/hold-little-longer-slo-county-001411925.html)
+- Jul 08 - [Sister of North Korean leader Kim calls South Korea's live-fire drills 'suicidal hysteria'](https://www.yahoo.com/news/sister-north-korean-leader-kim-000704297.html)
 - Jul 07 - [We Finally Know What Turned on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-turned-lights-dawn-231623632.html)
+- Jul 07 - [Engineers warn prolonged outages could soon strike one of the world's most populous countries: 'If the situation continues, there are fair chances of a grid disturbance'](https://www.yahoo.com/news/engineers-warn-prolonged-outages-could-230000361.html)
 <!-- feed end -->
 
 ### Onstream
