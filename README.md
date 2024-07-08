@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Skydance's David Ellison describes Paramount's tech-media hybrid future](https://finance.yahoo.com/news/skydances-david-ellison-describes-paramounts-204819827.html)
-- Jul 08 - [This Labour Government will have a ‘Nato first’ defence strategy](https://www.yahoo.com/news/labour-government-nato-first-defence-203000275.html)
-- Jul 08 - [Copper, Gold Stocks Sparkle On Rate-Cut Hopes, Among 5 Leaders Near Buy Points](https://www.investors.com/news/copper-gold-stocks-agnico-eagle-stocks-buy-points/?src=A00220&yptr=yahoo)
+- Jul 08 - [Families on Viola Street in Appleton dig out after flooding crashed their Fourth of July](https://www.yahoo.com/news/families-viola-street-appleton-dig-215534485.html)
+- Jul 08 - [Defense says jurors had ‘agreement’ to find Karen Read ‘not guilty’ of murder charge](https://www.yahoo.com/news/defense-says-jurors-had-agreement-154405869.html)
+- Jul 08 - [Political scientists weigh in on Mark Robinson's controversial remarks at NC church](https://www.starnewsonline.com/story/news/politics/elections/2024/07/08/candidate-for-nc-governor-mark-robinsons-controversial-remarks-at-bladen-county-church/74327805007/)
+- Jul 08 - [Parkinson's expert visited White House 8 times in 8 months, met with Biden's doctor](https://www.yahoo.com/news/parkinsons-expert-visited-white-house-181300865.html)
 - Jul 08 - [New cyberattack targets iPhone Apple IDs. Here's how to protect yourself.](https://www.yahoo.com/tech/cyberattack-targets-iphone-apple-ids-191000974.html)
-- Jul 08 - [St. Louis region braces for heavy rain and flash flooding](https://www.yahoo.com/news/st-louis-region-braces-heavy-184617127.html)
 <!-- feed end -->
 
 ### Onstream
