@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Fight with Kash: Trump loyalist mythologizes former president while building his own brand](https://www.yahoo.com/news/fight-kash-trump-loyalist-mythologizes-040146002.html)
-- Jul 08 - [Virgin Galactic Holdings, Inc. (SPCE): Is It Among the Best Stock to Buy According to Reddit’s WallStreetBets?](https://finance.yahoo.com/news/virgin-galactic-holdings-inc-spce-032723009.html)
+- Jul 08 - [Exclusive-South Korea's Yoon to discuss Pyongyang's 'distinct threat' to Europe at NATO](https://www.yahoo.com/news/exclusive-south-koreas-yoon-discuss-050108552.html)
+- Jul 08 - [The plane is ready, the fundraisers are booked: Trump's VP search comes down to its last days](https://www.yahoo.com/news/plane-ready-fundraisers-booked-trumps-041214294.html)
+- Jul 08 - [Boeing accepts a plea deal to avoid a criminal trial over 737 Max crashes, Justice Department says](https://www.yahoo.com/news/boeing-accepts-plea-deal-avoid-035959364.html)
 - Jul 08 - [Motorcycle tour of Death Valley turns fatal as thermometer cracks 128 degrees](https://www.yahoo.com/news/motorcycle-tour-death-valley-turns-011043327.html)
-- Jul 08 - [Radio host who interviewed Biden leaves station after admitting campaign aides gave her pre-selected questions](https://finance.yahoo.com/news/radio-host-interviewed-biden-leaves-213440913.html)
-- Jul 08 - [Sister of North Korean leader Kim calls South Korea's live-fire drills 'suicidal hysteria'](https://www.yahoo.com/news/sister-north-korean-leader-kim-000704297.html)
+- Jul 08 - [Men who drowned in Northern California river on Fourth of July identified](https://www.yahoo.com/news/men-drowned-northern-california-river-004933815.html)
 <!-- feed end -->
 
 ### Onstream
