@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Defense says jurors had ‘agreement’ to find Karen Read ‘not guilty’ of murder charge](https://www.yahoo.com/news/defense-says-jurors-had-agreement-154405869.html)
+- Jul 08 - [Beryl made landfall in Texas as a hurricane, about 200 miles from Austin. What we know](https://www.yahoo.com/news/beryl-made-landfall-texas-hurricane-163100003.html)
+- Jul 08 - [The far right seemed to have a lock on France's legislative elections. Here's why it didn't it win](https://www.yahoo.com/news/far-seemed-lock-frances-legislative-160630077.html)
+- Jul 08 - [Trump is 'existential threat to democracy' while Biden is 'the best messenger' for U.S.: Rep. Meeks](https://www.yahoo.com/news/trump-existential-threat-democracy-while-155954311.html)
+- Jul 08 - [Wind and Rain Wallop Southern Oklahoma](https://www.yahoo.com/news/wind-rain-wallop-southern-oklahoma-155351273.html)
 - Jul 08 - ['Bob's Burgers' actor pleads guilty to interfering with police during Capitol riot](https://www.yahoo.com/news/bobs-burgers-actor-pleads-guilty-153814011.html)
-- Jul 08 - [Are You Rich Enough To Join The Top 2%? Here's Exactly How Much You Need To Rank Among The Wealthiest](https://finance.yahoo.com/news/rich-enough-join-top-2-151354677.html)
-- Jul 08 - [Ozempic v. Mounjaro? There's a clear winner for weight loss, study finds.](https://www.yahoo.com/news/ozempic-v-mounjaro-theres-clear-150543243.html)
-- Jul 08 - [Waters Rise on Galveston Island as Beryl Makes Landfall on Texas Gulf Coast](https://www.yahoo.com/news/waters-rise-galveston-island-beryl-144245952.html)
 <!-- feed end -->
 
 ### Onstream
