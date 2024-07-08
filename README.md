@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [4 things to watch for as NATO leaders meet in US capital for high-stakes summit](https://www.yahoo.com/news/4-things-watch-nato-leaders-183423630.html)
-- Jul 08 - [Tories won’t recover unless they listen to Reform voters, warns Braverman](https://www.yahoo.com/news/tories-won-t-recover-unless-182500476.html)
-- Jul 08 - [What Can Happen To Your Body If You Eat Canned Tuna Every Day?](https://www.yahoo.com/lifestyle/happen-body-eat-canned-tuna-172550384.html)
-- Jul 08 - [Helicopter to spray “thick brown liquid” over Central Pennsylvania communities](https://www.yahoo.com/news/helicopter-spray-thick-brown-liquid-164128185.html)
-- Jul 08 - [Iran's president-elect reaffirms policy towards Israel](https://www.yahoo.com/news/irans-president-elect-reaffirms-policy-162553758.html)
+- Jul 08 - [Copper, Gold Stocks Sparkle On Rate-Cut Hopes, Among 5 Leaders Near Buy Points](https://www.investors.com/news/copper-gold-stocks-agnico-eagle-stocks-buy-points/?src=A00220&yptr=yahoo)
+- Jul 08 - [Parkinson's expert visited White House 8 times in 8 months, met with Biden's doctor](https://www.yahoo.com/news/parkinsons-expert-visited-white-house-181300865.html)
+- Jul 08 - [Defense says jurors had ‘agreement’ to find Karen Read ‘not guilty’ of murder charge](https://www.yahoo.com/news/defense-says-jurors-had-agreement-154405869.html)
+- Jul 08 - [Trooper Michael Proctor, lead investigator in Karen Read case, suspended without pay](https://www.yahoo.com/news/trooper-michael-proctor-lead-investigator-184622980.html)
+- Jul 08 - [Chicago Mayor Speaks Out as More Than 100 People Were Shot Over July Fourth Weekend](https://www.yahoo.com/entertainment/chicago-mayor-speaks-more-100-183801384.html)
 <!-- feed end -->
 
 ### Onstream
