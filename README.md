@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Beryl made landfall in Texas as a hurricane, about 200 miles from Austin. What we know](https://www.yahoo.com/news/beryl-made-landfall-texas-hurricane-163100003.html)
-- Jul 08 - [The far right seemed to have a lock on France's legislative elections. Here's why it didn't it win](https://www.yahoo.com/news/far-seemed-lock-frances-legislative-160630077.html)
-- Jul 08 - [Trump is 'existential threat to democracy' while Biden is 'the best messenger' for U.S.: Rep. Meeks](https://www.yahoo.com/news/trump-existential-threat-democracy-while-155954311.html)
-- Jul 08 - [Wind and Rain Wallop Southern Oklahoma](https://www.yahoo.com/news/wind-rain-wallop-southern-oklahoma-155351273.html)
-- Jul 08 - ['Bob's Burgers' actor pleads guilty to interfering with police during Capitol riot](https://www.yahoo.com/news/bobs-burgers-actor-pleads-guilty-153814011.html)
+- Jul 08 - [Macron emboldened France’s increasingly hateful Left](https://www.yahoo.com/news/macron-emboldened-france-increasingly-hateful-174956647.html)
+- Jul 08 - [Karen Read’s defense team says jurors were unanimous on acquitting her of murder](https://www.yahoo.com/news/karen-read-defense-team-says-172705153.html)
+- Jul 08 - [South Dakota Gov. Noem's official social media accounts seem to disappear without explanation](https://www.yahoo.com/news/south-dakota-gov-noems-official-170047427.html)
+- Jul 08 - [3 Columbia University officials lose posts over texts that 'touched on ancient antisemitic tropes'](https://www.yahoo.com/news/3-columbia-university-officials-lose-170001490.html)
+- Jul 08 - ["We're going to come afer you": Kash Patel pledges revenge if Trump wins again](https://www.yahoo.com/news/were-going-come-afer-kash-164447290.html)
 <!-- feed end -->
 
 ### Onstream
