@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Exclusive-South Korea's Yoon to discuss Pyongyang's 'distinct threat' to Europe at NATO](https://www.yahoo.com/news/exclusive-south-koreas-yoon-discuss-050108552.html)
+- Jul 08 - [Will NATO disappoint Ukraine again in Washington?](https://www.yahoo.com/news/nato-disappoint-ukraine-again-washington-055915475.html)
 - Jul 08 - [The plane is ready, the fundraisers are booked: Trump's VP search comes down to its last days](https://www.yahoo.com/news/plane-ready-fundraisers-booked-trumps-041214294.html)
 - Jul 08 - [Boeing accepts a plea deal to avoid a criminal trial over 737 Max crashes, Justice Department says](https://www.yahoo.com/news/boeing-accepts-plea-deal-avoid-035959364.html)
 - Jul 08 - [Motorcycle tour of Death Valley turns fatal as thermometer cracks 128 degrees](https://www.yahoo.com/news/motorcycle-tour-death-valley-turns-011043327.html)
-- Jul 08 - [Men who drowned in Northern California river on Fourth of July identified](https://www.yahoo.com/news/men-drowned-northern-california-river-004933815.html)
+- Jul 08 - [Radio host who interviewed Biden leaves station after admitting campaign aides gave her pre-selected questions](https://finance.yahoo.com/news/radio-host-interviewed-biden-leaves-213440913.html)
 <!-- feed end -->
 
 ### Onstream
