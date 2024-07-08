@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Defense says jurors had ‘agreement’ to find Karen Read ‘not guilty’ of murder charge](https://www.yahoo.com/news/defense-says-jurors-had-agreement-154405869.html)
+- Jul 08 - ['Bob's Burgers' actor pleads guilty to interfering with police during Capitol riot](https://www.yahoo.com/news/bobs-burgers-actor-pleads-guilty-153814011.html)
+- Jul 08 - [Are You Rich Enough To Join The Top 2%? Here's Exactly How Much You Need To Rank Among The Wealthiest](https://finance.yahoo.com/news/rich-enough-join-top-2-151354677.html)
+- Jul 08 - [Ozempic v. Mounjaro? There's a clear winner for weight loss, study finds.](https://www.yahoo.com/news/ozempic-v-mounjaro-theres-clear-150543243.html)
 - Jul 08 - [Waters Rise on Galveston Island as Beryl Makes Landfall on Texas Gulf Coast](https://www.yahoo.com/news/waters-rise-galveston-island-beryl-144245952.html)
-- Jul 08 - [‘They have been so rude’: Travelers upset after flight to London suddenly diverted to Boston](https://www.yahoo.com/news/travelers-scrambling-flight-london-suddenly-103123277.html)
-- Jul 08 - [Hurricane Beryl moving north after landfall. See expected path, impacts in Houston, Austin](https://www.yahoo.com/news/hurricane-beryl-moving-north-landfall-134112122.html)
-- Jul 08 - [Woman Who Moved into New Home Has 'No Words' After 98-Year-Old Neighbor Shows Up on Doorstep with Gift](https://www.yahoo.com/lifestyle/woman-moved-home-no-words-133000689.html)
-- Jul 08 - [Who is Marine Tondelier? Meet the Green leader who inspired France to vote against the far-right](https://www.yahoo.com/news/marine-tondelier-meet-green-leader-125934885.html)
 <!-- feed end -->
 
 ### Onstream
