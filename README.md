@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Israel opposition offers PM lifeline if he signs ceasefire](https://www.yahoo.com/news/israel-opposition-offers-pm-lifeline-125253804.html)
-- Jul 08 - [‘After bleeding on a restaurant floor I finally found out the real cause of my extreme periods’](https://www.yahoo.com/lifestyle/woman-extreme-periods-rare-tumour-cancer-124713501.html)
-- Jul 08 - ['Insanity': Hurricane Beryl Lashes Texas](https://www.yahoo.com/news/insanity-hurricane-beryl-lashes-texas-111529009.html)
-- Jul 08 - [A scientist lost weight without trying after he stopped eating the types of ultra-processed foods he helped create. Here are 3 ways he cut down.](https://www.yahoo.com/news/scientist-lost-weight-without-trying-105237152.html)
-- Jul 08 - [Ford, Toyota, General Motors among 57,000 vehicles recalled: Check car recalls here](https://www.yahoo.com/news/ford-toyota-general-motors-among-104035395.html)
+- Jul 08 - [Boeing's guilty plea could cause the stock to rebound: Analyst](https://finance.yahoo.com/video/boeings-guilty-plea-could-cause-135405289.html)
+- Jul 08 - [Teenage Rohingya refugee killed in Bangladesh by shell fired from Myanmar](https://www.yahoo.com/news/teenage-rohingya-refugee-killed-bangladesh-131632245.html)
+- Jul 08 - [National Hurricane Center tracking Beryl after landfall, 3 tropical waves](https://www.yahoo.com/news/national-hurricane-center-tracking-beryl-125112837.html)
+- Jul 08 - [This May Be the Most Overlooked COVID Symptom](https://www.yahoo.com/news/may-most-overlooked-covid-symptom-122142413.html)
+- Jul 08 - [2024 Toyota Mirai gets a huge July promotion, up to $33,000 off MSRP](https://www.autoblog.com/2024/07/08/2024-toyota-mirai-gets-a-huge-july-promotion-up-to-33000-off-msrp/)
 <!-- feed end -->
 
 ### Onstream
