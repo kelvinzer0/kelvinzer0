@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Boeing to plead guilty in DOJ case tied to deadly 737 Max crashes](https://finance.yahoo.com/news/boeing-to-plead-guilty-in-doj-case-tied-to-deadly-737-max-crashes-120956161.html)
-- Jul 08 - [Leaders across Europe express relief mixed with concern about the French election result](https://www.yahoo.com/news/across-europe-leaders-express-relief-113259033.html)
-- Jul 08 - [Australian tourist town declares three-day curfew after spate of violence](https://www.yahoo.com/news/australian-tourist-town-declares-three-111806206.html)
+- Jul 08 - [Israel opposition offers PM lifeline if he signs ceasefire](https://www.yahoo.com/news/israel-opposition-offers-pm-lifeline-125253804.html)
+- Jul 08 - [‘After bleeding on a restaurant floor I finally found out the real cause of my extreme periods’](https://www.yahoo.com/lifestyle/woman-extreme-periods-rare-tumour-cancer-124713501.html)
 - Jul 08 - ['Insanity': Hurricane Beryl Lashes Texas](https://www.yahoo.com/news/insanity-hurricane-beryl-lashes-texas-111529009.html)
-- Jul 08 - [A scientist lost weight without trying after he stopped eating the types of ultra-processed foods he helped create. Here are 3 ways he cut down.](https://www.yahoo.com/lifestyle/scientist-lost-weight-without-trying-105237152.html)
+- Jul 08 - [A scientist lost weight without trying after he stopped eating the types of ultra-processed foods he helped create. Here are 3 ways he cut down.](https://www.yahoo.com/news/scientist-lost-weight-without-trying-105237152.html)
+- Jul 08 - [Ford, Toyota, General Motors among 57,000 vehicles recalled: Check car recalls here](https://www.yahoo.com/news/ford-toyota-general-motors-among-104035395.html)
 <!-- feed end -->
 
 ### Onstream
