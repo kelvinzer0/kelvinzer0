@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Card skimmers are hard to spot and on the rise. Here's what you can do to protect yourself.](https://finance.yahoo.com/news/card-skimmers-hard-spot-rise-171440370.html)
+- Jul 08 - [Motorcycle tour of Death Valley turns fatal as thermometer cracks 128 degrees](https://www.yahoo.com/news/motorcycle-tour-death-valley-turns-011043327.html)
 - Jul 08 - [Radio host who interviewed Biden leaves station after admitting campaign aides gave her pre-selected questions](https://finance.yahoo.com/news/radio-host-interviewed-biden-leaves-213440913.html)
-- Jul 07 - [France's far right 'sad and disappointed' over election result](https://www.yahoo.com/news/frances-far-sad-disappointed-over-222938298.html)
-- Jul 07 - [People Who Moved at Least Once During Childhood Usually Develop These 10 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-moved-least-once-during-201000589.html)
-- Jul 07 - [I’d like to believe the Moon landings were faked – the alternative is far bleaker](https://www.yahoo.com/entertainment/d-believe-moon-landings-were-180000599.html)
-- Jul 07 - [Utah CEO, daughter identified as victims of fatal Ogden crash](https://www.yahoo.com/news/utah-ceo-daughter-identified-victims-174742094.html)
+- Jul 08 - [Hold out a little longer, SLO County — rain may be on the way, plus cooler temps](https://www.yahoo.com/news/hold-little-longer-slo-county-001411925.html)
+- Jul 07 - [We Finally Know What Turned on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-turned-lights-dawn-231623632.html)
 <!-- feed end -->
 
 ### Onstream
