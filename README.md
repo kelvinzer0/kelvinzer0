@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Macron emboldened France’s increasingly hateful Left](https://www.yahoo.com/news/macron-emboldened-france-increasingly-hateful-174956647.html)
-- Jul 08 - [Karen Read’s defense team says jurors were unanimous on acquitting her of murder](https://www.yahoo.com/news/karen-read-defense-team-says-172705153.html)
-- Jul 08 - [South Dakota Gov. Noem's official social media accounts seem to disappear without explanation](https://www.yahoo.com/news/south-dakota-gov-noems-official-170047427.html)
-- Jul 08 - [3 Columbia University officials lose posts over texts that 'touched on ancient antisemitic tropes'](https://www.yahoo.com/news/3-columbia-university-officials-lose-170001490.html)
-- Jul 08 - ["We're going to come afer you": Kash Patel pledges revenge if Trump wins again](https://www.yahoo.com/news/were-going-come-afer-kash-164447290.html)
+- Jul 08 - [4 things to watch for as NATO leaders meet in US capital for high-stakes summit](https://www.yahoo.com/news/4-things-watch-nato-leaders-183423630.html)
+- Jul 08 - [Tories won’t recover unless they listen to Reform voters, warns Braverman](https://www.yahoo.com/news/tories-won-t-recover-unless-182500476.html)
+- Jul 08 - [What Can Happen To Your Body If You Eat Canned Tuna Every Day?](https://www.yahoo.com/lifestyle/happen-body-eat-canned-tuna-172550384.html)
+- Jul 08 - [Helicopter to spray “thick brown liquid” over Central Pennsylvania communities](https://www.yahoo.com/news/helicopter-spray-thick-brown-liquid-164128185.html)
+- Jul 08 - [Iran's president-elect reaffirms policy towards Israel](https://www.yahoo.com/news/irans-president-elect-reaffirms-policy-162553758.html)
 <!-- feed end -->
 
 ### Onstream
