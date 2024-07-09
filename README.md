@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Jay Slater missing - latest: Father rages ‘everything stinks’ as search for teenager enters fourth week](https://www.yahoo.com/lifestyle/jay-slater-missing-live-family-091147840.html)
-- Jul 09 - [‘Donald Trump is a liar’: Biden-Harris campaign responds to latest social security lie](https://www.yahoo.com/news/donald-trump-liar-biden-harris-031927094.html)
 - Jul 09 - [White House doctor offers explanation for Parkinson's expert's visits](https://www.yahoo.com/news/white-house-doctor-offers-explanation-022500137.html)
 - Jul 09 - [Petition launched in response to deadly crash involving Utah CEO, daughter in Ogden Canyon](https://www.yahoo.com/news/petition-launched-response-deadly-crash-011340312.html)
-- Jul 09 - [Scientists find a molecule never before found outside our solar system on a planet with glass rain](https://www.yahoo.com/news/nearby-exoplanet-reeks-rotten-eggs-225141714.html)
+- Jul 09 - [Reporter: Trump’s dislike of facial feature could affect VP pick](https://www.yahoo.com/news/reporter-trump-dislike-facial-feature-010726768.html)
+- Jul 08 - [What the polls show 11 days after the Biden-Trump debate](https://www.yahoo.com/news/polls-show-11-days-biden-234839618.html)
+- Jul 08 - [Cuba foils plot to sneak arms onto island from U.S., official says](https://www.yahoo.com/news/cuba-foils-plot-sneak-arms-231623993.html)
 <!-- feed end -->
 
 ### Onstream
