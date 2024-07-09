@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Texas federal judge partially blocks FTC ban on noncompetes](https://finance.yahoo.com/video/texas-federal-judge-partially-blocks-155806827.html)
+- Jul 09 - [Discovery Of Lagoon In Argentina That Could Provide 'Earliest Signs Of Life' On Earth](https://www.yahoo.com/lifestyle/discovery-lagoon-argentina-could-earliest-170000420.html)
+- Jul 09 - [Actor And Adult Film Star Jesse Jane's Cause Of Death Released](https://www.yahoo.com/entertainment/actor-adult-film-star-jesse-164538720.html)
+- Jul 09 - [Russia lacks munitions, troops for big Ukraine offensive, says NATO official](https://www.yahoo.com/news/russia-lacks-munitions-troops-big-164522461.html)
 - Jul 09 - [A woman who received a pig kidney transplant plus a heart pump has died](https://www.yahoo.com/news/woman-received-pig-kidney-transplant-154745318.html)
-- Jul 09 - [Church's Chicken employee killed after argument with drive-thru customer; no arrest made](https://www.yahoo.com/news/churchs-chicken-employee-killed-argument-153639479.html)
-- Jul 09 - [The body of an American climber buried by an avalanche 22 years ago in Peru has been found](https://www.yahoo.com/news/body-american-climber-buried-avalanche-153222599.html)
 - Jul 09 - [Photos show the mysterious ancient objects that mountaineers are finding on the Alps' melting glaciers](https://www.yahoo.com/tech/photos-show-mysterious-ancient-objects-151617346.html)
 <!-- feed end -->
 
