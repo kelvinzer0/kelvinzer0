@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Biden hosts NATO summit amid race exit calls](https://finance.yahoo.com/video/biden-hosts-nato-summit-amid-140241208.html)
-- Jul 09 - [Fed's Powell says US making 'modest' progress on inflation](https://finance.yahoo.com/news/feds-powell-says-us-making-140003653.html)
-- Jul 09 - [No guns: Legal ways to kill a Burmese python in Florida Python Challenge](https://www.yahoo.com/news/no-guns-legal-ways-kill-133704129.html)
-- Jul 09 - [Biden didn't show up for an early evening meeting with the German chancellor because he had to go to bed: report](https://www.yahoo.com/news/biden-didnt-show-early-evening-132414233.html)
-- Jul 09 - [Jury selection begins in Alec Baldwin's involuntary manslaughter trial](https://www.yahoo.com/news/jury-selection-begins-alec-baldwins-125156716.html)
+- Jul 09 - [Japan Navy helicopters' fatal crash caused by inadequate instructions to crew, says probe report](https://www.yahoo.com/news/japan-navy-helicopters-fatal-crash-142603164.html)
+- Jul 09 - [Putin decrees patriotic 'Russia' exhibition become a permanent landmark](https://www.yahoo.com/news/putin-decrees-patriotic-russia-exhibition-111331700.html)
+- Jul 09 - [Can I Retire at 62 With $1 Million in a Roth IRA and a $2,250 Social Security Check?](https://finance.yahoo.com/news/1-million-roth-ira-receive-120000338.html)
+- Jul 09 - [Pagers and drones: How Hezbollah aims to counter Israel's high-tech surveillance](https://www.yahoo.com/news/pagers-drones-hezbollah-aims-counter-104822735.html)
+- Jul 09 - [Passengers got into an argument so heated about switching seats that their Ryanair flight had to turn back after just a few minutes](https://www.yahoo.com/news/passengers-got-argument-heated-switching-103335976.html)
 <!-- feed end -->
 
 ### Onstream
