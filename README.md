@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Pressure is mounting on Biden to take a cognitive test. It could be a 'slippery slope' for future presidents, experts say.](https://www.yahoo.com/news/pressure-mounting-biden-cognitive-test-114947858.html)
+- Jul 09 - [Does setting my AC to 78 degrees save money during California heat wave? What expert says](https://www.yahoo.com/news/does-setting-ac-78-degrees-130000205.html)
+- Jul 09 - [I-465 ramp closures coming ... again. Here's what to expect in the days ahead](https://www.yahoo.com/news/465-ramp-closures-coming-again-124352429.html)
+- Jul 09 - [Des Moines metro colleges Drake, DMACC duel in trademark lawsuit over use of the letter D](https://www.yahoo.com/news/des-moines-metro-colleges-drake-123026556.html)
 - Jul 09 - [Putin decrees patriotic 'Russia' exhibition become a permanent landmark](https://www.yahoo.com/news/putin-decrees-patriotic-russia-exhibition-111331700.html)
 - Jul 09 - [Can I Retire at 62 With $1 Million in a Roth IRA and a $2,250 Social Security Check?](https://finance.yahoo.com/news/1-million-roth-ira-receive-120000338.html)
-- Jul 09 - [National Hurricane Center tracking Tropical Depression Beryl, 2 tropical waves](https://www.yahoo.com/news/national-hurricane-center-tracking-tropical-102717905.html)
-- Jul 09 - [He bought a cheap house in Italy to improve his life expectancy](https://www.yahoo.com/lifestyle/bought-cheap-house-italy-improve-101215697.html)
 <!-- feed end -->
 
 ### Onstream
