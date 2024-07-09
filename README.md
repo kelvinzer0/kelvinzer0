@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Modi, Putin hold talks amid outrage over Ukraine strikes](https://www.yahoo.com/news/modi-putin-hold-talks-amid-020951659.html)
+- Jul 09 - [Scientists find a molecule never before found outside our solar system on a planet with glass rain](https://www.yahoo.com/news/nearby-exoplanet-reeks-rotten-eggs-225141714.html)
+- Jul 09 - [Police say Santa Monica Pier melee started after vendor 'sexually battered' several women](https://www.yahoo.com/news/police-santa-monica-pier-melee-000716109.html)
+- Jul 08 - [Tacoma attorney who represents victims’ families reacts to Boeing settlement](https://www.yahoo.com/news/tacoma-attorney-represents-victims-families-201338712.html)
 - Jul 08 - [What the polls show 11 days after the Biden-Trump debate](https://www.yahoo.com/news/polls-show-11-days-biden-234839618.html)
-- Jul 08 - [Austin Police identify body found as missing man last seen in June](https://www.yahoo.com/news/austin-police-identify-body-found-222112785.html)
-- Jul 08 - [Teen boy identified after fatal crash in far East El Paso](https://www.yahoo.com/news/teen-boy-identified-fatal-crash-212836099.html)
-- Jul 08 - [I was scammed out of nearly $300,000 and was forced to abandon my retirement dreams](https://finance.yahoo.com/news/scammed-nearly-300-000-forced-212158398.html)
-- Jul 08 - [NYU settles antisemitism lawsuit brought by Jewish students](https://www.yahoo.com/news/nyu-settles-antisemitism-lawsuit-court-203902810.html)
 <!-- feed end -->
 
 ### Onstream
