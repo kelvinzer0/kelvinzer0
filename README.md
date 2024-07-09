@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [White House doctor offers explanation for Parkinson's expert's visits](https://www.yahoo.com/news/white-house-doctor-offers-explanation-022500137.html)
 - Jul 09 - [Petition launched in response to deadly crash involving Utah CEO, daughter in Ogden Canyon](https://www.yahoo.com/news/petition-launched-response-deadly-crash-011340312.html)
 - Jul 09 - [Reporter: Trump’s dislike of facial feature could affect VP pick](https://www.yahoo.com/news/reporter-trump-dislike-facial-feature-010726768.html)
 - Jul 08 - [What the polls show 11 days after the Biden-Trump debate](https://www.yahoo.com/news/polls-show-11-days-biden-234839618.html)
 - Jul 08 - [Cuba foils plot to sneak arms onto island from U.S., official says](https://www.yahoo.com/news/cuba-foils-plot-sneak-arms-231623993.html)
+- Jul 08 - [Assistant chief no longer with Memphis Police after Georgia residency controversy](https://www.yahoo.com/news/watch-mayor-young-mpd-davis-212156649.html)
 <!-- feed end -->
 
 ### Onstream
