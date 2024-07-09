@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Tehran police close Turkish Airlines office after its employees defy Iran's headscarf law](https://www.yahoo.com/news/tehran-police-close-turkish-airlines-181930133.html)
+- Jul 09 - [Utah CEO and His Daughter Dead After Bulldozer Falls on Their Car](https://www.yahoo.com/news/utah-ceo-daughter-dead-bulldozer-170040109.html)
 - Jul 09 - [Discovery Of Lagoon In Argentina That Could Provide 'Earliest Signs Of Life' On Earth](https://www.yahoo.com/lifestyle/discovery-lagoon-argentina-could-earliest-170000420.html)
-- Jul 09 - [Actor And Adult Film Star Jesse Jane's Cause Of Death Released](https://www.yahoo.com/entertainment/actor-adult-film-star-jesse-164538720.html)
 - Jul 09 - [Russia lacks munitions, troops for big Ukraine offensive, says NATO official](https://www.yahoo.com/news/russia-lacks-munitions-troops-big-164522461.html)
-- Jul 09 - [A woman who received a pig kidney transplant plus a heart pump has died](https://www.yahoo.com/news/woman-received-pig-kidney-transplant-154745318.html)
-- Jul 09 - [Photos show the mysterious ancient objects that mountaineers are finding on the Alps' melting glaciers](https://www.yahoo.com/tech/photos-show-mysterious-ancient-objects-151617346.html)
+- Jul 09 - [The body of an American climber buried by an avalanche 22 years ago in Peru is found in the ice](https://www.yahoo.com/news/body-american-climber-buried-avalanche-153222599.html)
 <!-- feed end -->
 
 ### Onstream
