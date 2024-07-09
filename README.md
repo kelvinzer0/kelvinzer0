@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Lawyer for megachurch pastor blamed 12-year-old for initiating ‘inappropriate’ sexual conduct](https://www.yahoo.com/news/lawyer-megachurch-pastor-blamed-12-150012933.html)
 - Jul 09 - [Drunken driver who snapped photo going 141 mph before deadly collision imprisoned for 17 years](https://www.yahoo.com/news/drunken-driver-snapped-photo-going-193017836.html)
+- Jul 09 - [Driver in fatal Malibu crash identified as 32-year-old social media influencer](https://www.yahoo.com/news/driver-fatal-malibu-crash-identified-191048997.html)
+- Jul 09 - ["We do not make this request lightly": Senators demand criminal investigation into Clarence Thomas](https://www.yahoo.com/news/not-request-lightly-senators-demand-184103813.html)
 - Jul 09 - [Tehran police close Turkish Airlines office after its employees defy Iran's headscarf law](https://www.yahoo.com/news/tehran-police-close-turkish-airlines-181930133.html)
-- Jul 09 - [Discovery Of Lagoon In Argentina That Could Provide 'Earliest Signs Of Life' On Earth](https://www.yahoo.com/lifestyle/discovery-lagoon-argentina-could-earliest-170000420.html)
-- Jul 09 - [Actor And Adult Film Star Jesse Jane's Cause Of Death Released](https://www.yahoo.com/entertainment/actor-adult-film-star-jesse-164538720.html)
-- Jul 09 - [Russia lacks munitions, troops for big Ukraine offensive, says NATO official](https://www.yahoo.com/news/russia-lacks-munitions-troops-big-164522461.html)
 <!-- feed end -->
 
 ### Onstream
