@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Supporting Biden is a stab in America’s back. Beshear must speak up about the president.](https://www.yahoo.com/news/supporting-biden-stab-america-back-082036065.html)
-- Jul 09 - [Brett Favre is asking an appeals court to reinstate his defamation lawsuit against Shannon Sharpe](https://www.yahoo.com/news/brett-favre-asking-appeals-court-040739951.html)
-- Jul 09 - [Reporter: Trump’s dislike of facial feature could affect VP pick](https://www.yahoo.com/news/reporter-trump-dislike-facial-feature-010726768.html)
-- Jul 08 - [Austin Police identify body found as missing man last seen in June](https://www.yahoo.com/news/austin-police-identify-body-found-222112785.html)
-- Jul 08 - [Mayor Brandon Johnson says ‘no decision’ yet on moving NASCAR from 4th of July weekend](https://www.yahoo.com/news/mayor-brandon-johnson-says-no-220200847.html)
+- Jul 09 - [Maggie Haberman Says 'This Is Exactly What Trump's Advisers Had Been Concerned About'](https://www.yahoo.com/news/maggie-haberman-says-exactly-trumps-091008572.html)
+- Jul 09 - [Traffic concerns in Palm Beach drive opposition to Paramount Theatre renovation plans](https://www.yahoo.com/news/traffic-concerns-palm-beach-drive-090207222.html)
+- Jul 09 - [Poll finds Biden damaged by debate; with Harris and Clinton best positioned to win](https://www.yahoo.com/news/poll-finds-biden-damaged-debate-090100054.html)
+- Jul 09 - [Kremlin says Kyiv children's hospital was hit by anti-missile fire, not by Russia](https://www.yahoo.com/news/kremlin-says-kyiv-childrens-hospital-083135640.html)
+- Jul 09 - [Jon Stewart Shuts Down 1 Of The Biggest Arguments Against Replacing Biden](https://www.yahoo.com/news/jon-stewart-shuts-down-1-062055963.html)
 <!-- feed end -->
 
 ### Onstream
