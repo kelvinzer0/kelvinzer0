@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Petition launched in response to deadly crash involving Utah CEO, daughter in Ogden Canyon](https://www.yahoo.com/news/petition-launched-response-deadly-crash-011340312.html)
+- Jul 09 - [Russia’s Embrace of Chinese Yuan Stalls Over Risk from Sanctions](https://finance.yahoo.com/news/russia-embrace-chinese-yuan-stalls-063840781.html)
+- Jul 09 - [Brett Favre is asking an appeals court to reinstate his defamation lawsuit against Shannon Sharpe](https://www.yahoo.com/news/brett-favre-asking-appeals-court-040739951.html)
+- Jul 09 - [Defense says jurors had ‘agreement’ to find Karen Read ‘not guilty’ of murder charge](https://www.yahoo.com/news/defense-says-jurors-had-agreement-154405869.html)
 - Jul 09 - [Reporter: Trump’s dislike of facial feature could affect VP pick](https://www.yahoo.com/news/reporter-trump-dislike-facial-feature-010726768.html)
-- Jul 08 - [What the polls show 11 days after the Biden-Trump debate](https://www.yahoo.com/news/polls-show-11-days-biden-234839618.html)
-- Jul 08 - [Cuba foils plot to sneak arms onto island from U.S., official says](https://www.yahoo.com/news/cuba-foils-plot-sneak-arms-231623993.html)
-- Jul 08 - [Assistant chief no longer with Memphis Police after Georgia residency controversy](https://www.yahoo.com/news/watch-mayor-young-mpd-davis-212156649.html)
+- Jul 09 - [Police say Santa Monica Pier melee started after vendor 'sexually battered' several women](https://www.yahoo.com/news/police-santa-monica-pier-melee-000716109.html)
 <!-- feed end -->
 
 ### Onstream
