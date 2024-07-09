@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Ruling could permit a new reservoir for the water-starved Panama Canal, but it could take 6 years](https://www.yahoo.com/news/ruling-could-permit-reservoir-water-224350680.html)
-- Jul 08 - [Defense says jurors had ‘agreement’ to find Karen Read ‘not guilty’ of murder charge](https://www.yahoo.com/news/defense-says-jurors-had-agreement-154405869.html)
+- Jul 08 - [What the polls show 11 days after the Biden-Trump debate](https://www.yahoo.com/news/polls-show-11-days-biden-234839618.html)
+- Jul 08 - [Austin Police identify body found as missing man last seen in June](https://www.yahoo.com/news/austin-police-identify-body-found-222112785.html)
+- Jul 08 - [Teen boy identified after fatal crash in far East El Paso](https://www.yahoo.com/news/teen-boy-identified-fatal-crash-212836099.html)
 - Jul 08 - [I was scammed out of nearly $300,000 and was forced to abandon my retirement dreams](https://finance.yahoo.com/news/scammed-nearly-300-000-forced-212158398.html)
-- Jul 08 - [100-year-old find snarls Conner Street reconstruction project in Noblesville](https://www.yahoo.com/news/100-old-snarls-conner-street-203130823.html)
-- Jul 08 - [Docs: Las Cruces man facing child abuse charge after weekend incident](https://www.yahoo.com/news/docs-las-cruces-man-facing-202845056.html)
+- Jul 08 - [NYU settles antisemitism lawsuit brought by Jewish students](https://www.yahoo.com/news/nyu-settles-antisemitism-lawsuit-court-203902810.html)
 <!-- feed end -->
 
 ### Onstream
