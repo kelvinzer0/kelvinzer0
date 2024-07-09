@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Does setting my AC to 78 degrees save money during California heat wave? What expert says](https://www.yahoo.com/news/does-setting-ac-78-degrees-130000205.html)
-- Jul 09 - [I-465 ramp closures coming ... again. Here's what to expect in the days ahead](https://www.yahoo.com/news/465-ramp-closures-coming-again-124352429.html)
-- Jul 09 - [Des Moines metro colleges Drake, DMACC duel in trademark lawsuit over use of the letter D](https://www.yahoo.com/news/des-moines-metro-colleges-drake-123026556.html)
-- Jul 09 - [Putin decrees patriotic 'Russia' exhibition become a permanent landmark](https://www.yahoo.com/news/putin-decrees-patriotic-russia-exhibition-111331700.html)
-- Jul 09 - [Can I Retire at 62 With $1 Million in a Roth IRA and a $2,250 Social Security Check?](https://finance.yahoo.com/news/1-million-roth-ira-receive-120000338.html)
+- Jul 09 - [Biden hosts NATO summit amid race exit calls](https://finance.yahoo.com/video/biden-hosts-nato-summit-amid-140241208.html)
+- Jul 09 - [Fed's Powell says US making 'modest' progress on inflation](https://finance.yahoo.com/news/feds-powell-says-us-making-140003653.html)
+- Jul 09 - [No guns: Legal ways to kill a Burmese python in Florida Python Challenge](https://www.yahoo.com/news/no-guns-legal-ways-kill-133704129.html)
+- Jul 09 - [Biden didn't show up for an early evening meeting with the German chancellor because he had to go to bed: report](https://www.yahoo.com/news/biden-didnt-show-early-evening-132414233.html)
+- Jul 09 - [Jury selection begins in Alec Baldwin's involuntary manslaughter trial](https://www.yahoo.com/news/jury-selection-begins-alec-baldwins-125156716.html)
 <!-- feed end -->
 
 ### Onstream
