@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Japan Navy helicopters' fatal crash caused by inadequate instructions to crew, says probe report](https://www.yahoo.com/news/japan-navy-helicopters-fatal-crash-142603164.html)
-- Jul 09 - [Putin decrees patriotic 'Russia' exhibition become a permanent landmark](https://www.yahoo.com/news/putin-decrees-patriotic-russia-exhibition-111331700.html)
-- Jul 09 - [Can I Retire at 62 With $1 Million in a Roth IRA and a $2,250 Social Security Check?](https://finance.yahoo.com/news/1-million-roth-ira-receive-120000338.html)
-- Jul 09 - [Pagers and drones: How Hezbollah aims to counter Israel's high-tech surveillance](https://www.yahoo.com/news/pagers-drones-hezbollah-aims-counter-104822735.html)
-- Jul 09 - [Passengers got into an argument so heated about switching seats that their Ryanair flight had to turn back after just a few minutes](https://www.yahoo.com/news/passengers-got-argument-heated-switching-103335976.html)
+- Jul 09 - [Texas federal judge partially blocks FTC ban on noncompetes](https://finance.yahoo.com/video/texas-federal-judge-partially-blocks-155806827.html)
+- Jul 09 - [What does non-dom mean and how are the rules changing?](https://www.yahoo.com/news/does-non-dom-mean-rules-155438656.html)
+- Jul 09 - [Take nearly half off Ring Video Doorbells, outdoor smart cameras and more from $30](https://www.yahoo.com/tech/nearly-half-off-ring-video-154812896.html)
+- Jul 09 - ['Ridin' with Biden': House Democrats hold meeting amid campaign concerns](https://www.yahoo.com/news/ridin-biden-house-democrats-hold-152138125.html)
+- Jul 09 - ['Donald Trump should resign': GOP strategist shares why he thinks party 'will split'](https://www.yahoo.com/news/donald-trump-resign-gop-strategist-144855892.html)
 <!-- feed end -->
 
 ### Onstream
