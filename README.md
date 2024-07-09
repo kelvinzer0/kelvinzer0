@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 09 - [Texas federal judge partially blocks FTC ban on noncompetes](https://finance.yahoo.com/video/texas-federal-judge-partially-blocks-155806827.html)
-- Jul 09 - [What does non-dom mean and how are the rules changing?](https://www.yahoo.com/news/does-non-dom-mean-rules-155438656.html)
-- Jul 09 - [Take nearly half off Ring Video Doorbells, outdoor smart cameras and more from $30](https://www.yahoo.com/tech/nearly-half-off-ring-video-154812896.html)
-- Jul 09 - ['Ridin' with Biden': House Democrats hold meeting amid campaign concerns](https://www.yahoo.com/news/ridin-biden-house-democrats-hold-152138125.html)
-- Jul 09 - ['Donald Trump should resign': GOP strategist shares why he thinks party 'will split'](https://www.yahoo.com/news/donald-trump-resign-gop-strategist-144855892.html)
+- Jul 09 - [A woman who received a pig kidney transplant plus a heart pump has died](https://www.yahoo.com/news/woman-received-pig-kidney-transplant-154745318.html)
+- Jul 09 - [Church's Chicken employee killed after argument with drive-thru customer; no arrest made](https://www.yahoo.com/news/churchs-chicken-employee-killed-argument-153639479.html)
+- Jul 09 - [The body of an American climber buried by an avalanche 22 years ago in Peru has been found](https://www.yahoo.com/news/body-american-climber-buried-avalanche-153222599.html)
+- Jul 09 - [Photos show the mysterious ancient objects that mountaineers are finding on the Alps' melting glaciers](https://www.yahoo.com/tech/photos-show-mysterious-ancient-objects-151617346.html)
 <!-- feed end -->
 
 ### Onstream
