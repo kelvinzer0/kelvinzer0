@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Mapped: Russian missile strikes kill dozens across Ukraine](https://www.yahoo.com/news/mapped-russian-missiles-strikes-kill-085814897.html)
+- Jul 09 - [National Hurricane Center tracking Tropical Depression Beryl, 3 tropical waves](https://www.yahoo.com/news/national-hurricane-center-tracking-tropical-102717905.html)
+- Jul 09 - [First Mt. Juliet Whataburger opens Monday. Second location in the works](https://www.yahoo.com/news/first-mt-juliet-whataburger-opens-100452190.html)
 - Jul 09 - [Maggie Haberman Says 'This Is Exactly What Trump's Advisers Had Been Concerned About'](https://www.yahoo.com/news/maggie-haberman-says-exactly-trumps-091008572.html)
-- Jul 09 - [Traffic concerns in Palm Beach drive opposition to Paramount Theatre renovation plans](https://www.yahoo.com/news/traffic-concerns-palm-beach-drive-090207222.html)
 - Jul 09 - [Poll finds Biden damaged by debate; with Harris and Clinton best positioned to win](https://www.yahoo.com/news/poll-finds-biden-damaged-debate-090100054.html)
-- Jul 09 - [Kremlin says Kyiv children's hospital was hit by anti-missile fire, not by Russia](https://www.yahoo.com/news/kremlin-says-kyiv-childrens-hospital-083135640.html)
-- Jul 09 - [Jon Stewart Shuts Down 1 Of The Biggest Arguments Against Replacing Biden](https://www.yahoo.com/news/jon-stewart-shuts-down-1-062055963.html)
 <!-- feed end -->
 
 ### Onstream
