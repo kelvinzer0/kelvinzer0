@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Mapped: Russian missile strikes kill dozens across Ukraine](https://www.yahoo.com/news/mapped-russian-missiles-strikes-kill-085814897.html)
-- Jul 09 - [National Hurricane Center tracking Tropical Depression Beryl, 3 tropical waves](https://www.yahoo.com/news/national-hurricane-center-tracking-tropical-102717905.html)
-- Jul 09 - [First Mt. Juliet Whataburger opens Monday. Second location in the works](https://www.yahoo.com/news/first-mt-juliet-whataburger-opens-100452190.html)
-- Jul 09 - [Maggie Haberman Says 'This Is Exactly What Trump's Advisers Had Been Concerned About'](https://www.yahoo.com/news/maggie-haberman-says-exactly-trumps-091008572.html)
-- Jul 09 - [Poll finds Biden damaged by debate; with Harris and Clinton best positioned to win](https://www.yahoo.com/news/poll-finds-biden-damaged-debate-090100054.html)
+- Jul 09 - [Pressure is mounting on Biden to take a cognitive test. It could be a 'slippery slope' for future presidents, experts say.](https://www.yahoo.com/news/pressure-mounting-biden-cognitive-test-114947858.html)
+- Jul 09 - [Putin decrees patriotic 'Russia' exhibition become a permanent landmark](https://www.yahoo.com/news/putin-decrees-patriotic-russia-exhibition-111331700.html)
+- Jul 09 - [Can I Retire at 62 With $1 Million in a Roth IRA and a $2,250 Social Security Check?](https://finance.yahoo.com/news/1-million-roth-ira-receive-120000338.html)
+- Jul 09 - [National Hurricane Center tracking Tropical Depression Beryl, 2 tropical waves](https://www.yahoo.com/news/national-hurricane-center-tracking-tropical-102717905.html)
+- Jul 09 - [He bought a cheap house in Italy to improve his life expectancy](https://www.yahoo.com/lifestyle/bought-cheap-house-italy-improve-101215697.html)
 <!-- feed end -->
 
 ### Onstream
