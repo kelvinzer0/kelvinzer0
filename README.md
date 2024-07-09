@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Modi, Putin hold talks amid outrage over Ukraine strikes](https://www.yahoo.com/news/modi-putin-hold-talks-amid-020951659.html)
+- Jul 09 - [White House doctor offers explanation for Parkinson's expert's visits](https://www.yahoo.com/news/white-house-doctor-offers-explanation-022500137.html)
+- Jul 09 - [Reporter: Trump’s dislike of facial feature could affect VP pick](https://www.yahoo.com/news/reporter-trump-dislike-facial-feature-010726768.html)
 - Jul 09 - [Scientists find a molecule never before found outside our solar system on a planet with glass rain](https://www.yahoo.com/news/nearby-exoplanet-reeks-rotten-eggs-225141714.html)
 - Jul 09 - [Police say Santa Monica Pier melee started after vendor 'sexually battered' several women](https://www.yahoo.com/news/police-santa-monica-pier-melee-000716109.html)
-- Jul 08 - [Tacoma attorney who represents victims’ families reacts to Boeing settlement](https://www.yahoo.com/news/tacoma-attorney-represents-victims-families-201338712.html)
 - Jul 08 - [What the polls show 11 days after the Biden-Trump debate](https://www.yahoo.com/news/polls-show-11-days-biden-234839618.html)
 <!-- feed end -->
 
