@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Supporting Biden is a stab in America’s back. Beshear must speak up about the president.](https://www.yahoo.com/news/supporting-biden-stab-america-back-082036065.html)
+- Jul 09 - [Brett Favre is asking an appeals court to reinstate his defamation lawsuit against Shannon Sharpe](https://www.yahoo.com/news/brett-favre-asking-appeals-court-040739951.html)
 - Jul 09 - [Reporter: Trump’s dislike of facial feature could affect VP pick](https://www.yahoo.com/news/reporter-trump-dislike-facial-feature-010726768.html)
-- Jul 09 - [Police warning neighbors about rattlesnake sightings in Westmoreland County](https://www.yahoo.com/news/police-warning-neighbors-rattlesnake-sightings-010231900.html)
-- Jul 08 - [What the polls show 11 days after the Biden-Trump debate](https://www.yahoo.com/news/polls-show-11-days-biden-234839618.html)
-- Jul 08 - [Assistant chief no longer with Memphis Police after Georgia residency controversy](https://www.yahoo.com/news/watch-mayor-young-mpd-davis-212156649.html)
-- Jul 08 - [China's BYD Fires Warning Shot To Western EV Rivals — Including Tesla — With This Move](https://www.investors.com/news/byd-stock-tesla-archrival-1-billion-turkey-factory/?src=A00220&yptr=yahoo)
+- Jul 08 - [Austin Police identify body found as missing man last seen in June](https://www.yahoo.com/news/austin-police-identify-body-found-222112785.html)
+- Jul 08 - [Mayor Brandon Johnson says ‘no decision’ yet on moving NASCAR from 4th of July weekend](https://www.yahoo.com/news/mayor-brandon-johnson-says-no-220200847.html)
 <!-- feed end -->
 
 ### Onstream
