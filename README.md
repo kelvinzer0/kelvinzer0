@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Actor George Clooney, a high-profile Biden supporter and fundraiser, asks president to leave race](https://www.yahoo.com/news/actor-george-clooney-high-profile-152332163.html)
-- Jul 10 - [Kevin O'Leary Says You Can Survive On $500,000 And 'Do Nothing Else To Make Money'](https://finance.yahoo.com/news/kevin-oleary-says-survive-500-140519576.html)
-- Jul 10 - [Why Nvidia could be headed for a seismic moment: Another $3 trillion in market cap](https://finance.yahoo.com/news/why-nvidia-could-be-headed-for-a-seismic-moment-another-3-trillion-in-market-cap-133122970.html)
-- Jul 10 - [Watch: Trump Fumbles Repeatedly in Terrifying Speech at Florida Rally](https://www.yahoo.com/news/watch-trump-fumbles-repeatedly-terrifying-132651013.html)
-- Jul 10 - [BBC star John Hunt's wife and two daughters killed at home in 'triple murder'](https://www.yahoo.com/lifestyle/bbc-star-john-hunts-wife-130901171.html)
+- Jul 10 - [Russia declares newspaper The Moscow Times 'undesirable' amid crackdown on criticism](https://www.yahoo.com/news/russia-declares-newspaper-moscow-times-163944390.html)
+- Jul 10 - [Jim Jordan worries dozens of members may leave en masse over House Freedom Caucus civil war](https://www.yahoo.com/news/jim-jordan-worries-dozens-members-154941720.html)
+- Jul 10 - [Clarence Thomas Took Free Yacht Trip to Russia, Chopper Flight to Putin’s Hometown: Dems](https://www.yahoo.com/news/clarence-thomas-took-free-yacht-154806567.html)
+- Jul 10 - [I can't wait for all of the media coverage of Trump's confusing Tuesday night rally](https://www.yahoo.com/news/cant-wait-media-coverage-trumps-153039472.html)
+- Jul 10 - [A Black man got a job interview after he changed the name on his resume. Now, he’s suing for discrimination](https://www.yahoo.com/news/black-man-got-job-interview-153022948.html)
 <!-- feed end -->
 
 ### Onstream
