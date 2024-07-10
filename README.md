@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [ABC News’ George Stephanopoulous Backs Away From Remark on Biden’s White House Chances](https://www.yahoo.com/news/abc-news-george-stephanopoulos-apologizes-015548794.html)
-- Jul 10 - [New York Times, Politico, others criticized for 'offensive' obituaries on deceased former GOP senator](https://www.yahoo.com/news/york-times-politico-others-criticized-000034974.html)
-- Jul 09 - [Defence minister urges Ukrainians throughout Europe to join new legion](https://www.yahoo.com/news/defence-minister-urges-ukrainians-throughout-232403366.html)
+- Jul 10 - [ABC News’ George Stephanopoulos Backs Off Remark Doubting Biden’s White House Chances](https://www.yahoo.com/news/abc-news-george-stephanopoulos-apologizes-015548794.html)
+- Jul 09 - [Redding Rancheria can relocate casino to Strawberry Fields off I-5](https://www.yahoo.com/news/redding-rancheria-relocate-casino-strawberry-231736658.html)
 - Jul 09 - [SLO County cyclist thought a mountain lion attacked him. Here’s what it actually was](https://www.yahoo.com/news/slo-county-cyclist-thought-mountain-221922824.html)
 - Jul 09 - [Dozens of Chicago area Mariano's, Jewel-Osco stores to be sold in supermarket merger talks](https://finance.yahoo.com/news/dozens-chicago-area-marianos-jewel-213652882.html)
+- Jul 09 - [Two Dogs Locked in Car in 100 Degree Heat Saved by Cop](https://www.yahoo.com/news/two-dogs-locked-car-100-212057593.html)
 <!-- feed end -->
 
 ### Onstream
