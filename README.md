@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 10 - [California fast food workers now earn $20 per hour. Franchisees are responding by cutting hours.](https://finance.yahoo.com/news/california-fast-food-workers-now-050715601.html)
+- Jul 10 - [National Weather Service confirms multiple tornadoes from Monday severe weather caused by Beryl in Arkansas](https://www.yahoo.com/news/national-weather-confirms-multiple-tornadoes-041323173.html)
+- Jul 10 - [Florida Police Break Car Window to Help 'Distressed' Dog](https://www.yahoo.com/news/florida-police-break-car-window-020255203.html)
 - Jul 10 - [George Stephanopoulos Says He ‘Shouldn’t Have’ Commented on President Joe Biden’s Ability to Serve Second Term](https://www.yahoo.com/news/abc-news-george-stephanopoulos-apologizes-015548794.html)
-- Jul 09 - [Defence minister urges Ukrainians throughout Europe to join new legion](https://www.yahoo.com/news/defence-minister-urges-ukrainians-throughout-232403366.html)
-- Jul 09 - [Redding Rancheria can relocate casino to Strawberry Fields off I-5](https://www.yahoo.com/news/redding-rancheria-relocate-casino-strawberry-231736658.html)
 - Jul 09 - [Dozens of Chicago area Mariano's, Jewel-Osco stores to be sold in supermarket merger talks](https://finance.yahoo.com/news/dozens-chicago-area-marianos-jewel-213652882.html)
 <!-- feed end -->
 
