@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Rudy Giuliani threatened with jail as he yells at judge during chaotic bankruptcy hearing](https://www.yahoo.com/news/rudy-giuliani-threatened-jail-yells-162714731.html)
-- Jul 10 - [Palm Desert residents cry foul as developer builds ‘a mountain behind us’](https://www.yahoo.com/news/palm-desert-residents-cry-foul-164753953.html)
-- Jul 10 - [Elon Musk beats $500 million severance lawsuit by fired Twitter workers](https://finance.yahoo.com/news/elon-musk-beats-500-million-164236526.html)
+- Jul 10 - [Biden vows 'We can and will defend every inch of NATO territory' at first summit working session](https://www.yahoo.com/news/biden-vows-defend-every-inch-183836092.html)
+- Jul 10 - [Alexandria Ocasio-Cortez introduces articles of impeachment for Supreme Court Justices Samuel Alito, Clarence Thomas](https://www.yahoo.com/news/alexandria-ocasio-cortez-introduces-articles-181143536.html)
+- Jul 10 - [Kroger and Albertsons reveal list of grocery stores at risk of sale under merger](https://www.yahoo.com/news/kroger-albertsons-reveal-list-grocery-180332649.html)
 - Jul 10 - [Jim Jordan worries dozens of members may leave en masse over House Freedom Caucus civil war](https://www.yahoo.com/news/jim-jordan-worries-dozens-members-154941720.html)
 - Jul 10 - [Clarence Thomas Took Free Yacht Trip to Russia, Chopper Flight to Putin’s Hometown: Dems](https://www.yahoo.com/news/clarence-thomas-took-free-yacht-154806567.html)
 <!-- feed end -->
