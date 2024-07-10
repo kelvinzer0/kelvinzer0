@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - ['Roll up your sleeves': Gov. Whitmer calls on Democrats to focus on Biden reelection](https://www.yahoo.com/news/roll-sleeves-gov-whitmer-calls-034259609.html)
+- Jul 10 - [NATO leaders seek to bolster Ukraine as gloom grows](https://www.yahoo.com/news/nato-leaders-seek-bolster-ukraine-052319702.html)
+- Jul 10 - [California fast food workers now earn $20 per hour. Franchisees are responding by cutting hours.](https://finance.yahoo.com/news/california-fast-food-workers-now-050715601.html)
 - Jul 10 - [George Stephanopoulos Says He ‘Shouldn’t Have’ Commented on President Joe Biden’s Ability to Serve Second Term](https://www.yahoo.com/news/abc-news-george-stephanopoulos-apologizes-015548794.html)
 - Jul 10 - [China's coast guard says 'allowed' Philippines to evacuate sick person in S.China Sea](https://www.yahoo.com/news/chinas-coast-guard-says-allowed-003052806.html)
-- Jul 09 - [SLO County cyclist thought a mountain lion attacked him. Here’s what it actually was](https://www.yahoo.com/news/slo-county-cyclist-thought-mountain-221922824.html)
-- Jul 09 - [Two Dogs Locked in Car in 100 Degree Heat Saved by Cop](https://www.yahoo.com/news/two-dogs-locked-car-100-212057593.html)
+- Jul 09 - [Defence minister urges Ukrainians throughout Europe to join new legion](https://www.yahoo.com/news/defence-minister-urges-ukrainians-throughout-232403366.html)
 <!-- feed end -->
 
 ### Onstream
