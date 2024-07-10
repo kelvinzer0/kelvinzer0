@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 10 - [California fast food workers now earn $20 per hour. Franchisees are responding by cutting hours.](https://finance.yahoo.com/news/california-fast-food-workers-now-050715601.html)
-- Jul 10 - [National Weather Service confirms multiple tornadoes from Monday severe weather caused by Beryl in Arkansas](https://www.yahoo.com/news/national-weather-confirms-multiple-tornadoes-041323173.html)
+- Jul 10 - [Heavy rain to return to mid-Michigan on Wednesday](https://www.yahoo.com/news/heavy-rain-return-mid-michigan-024844556.html)
+- Jul 10 - [Half-sunken 54-foot boat stuck in Detroit River for days, 20 people rescued](https://www.yahoo.com/news/half-sunken-54-foot-boat-023309673.html)
 - Jul 10 - [Florida Police Break Car Window to Help 'Distressed' Dog](https://www.yahoo.com/news/florida-police-break-car-window-020255203.html)
-- Jul 10 - [George Stephanopoulos Says He ‘Shouldn’t Have’ Commented on President Joe Biden’s Ability to Serve Second Term](https://www.yahoo.com/news/abc-news-george-stephanopoulos-apologizes-015548794.html)
-- Jul 09 - [Dozens of Chicago area Mariano's, Jewel-Osco stores to be sold in supermarket merger talks](https://finance.yahoo.com/news/dozens-chicago-area-marianos-jewel-213652882.html)
+- Jul 10 - [China's coast guard says 'allowed' Philippines to evacuate sick person in S.China Sea](https://www.yahoo.com/news/chinas-coast-guard-says-allowed-003052806.html)
 <!-- feed end -->
 
 ### Onstream
