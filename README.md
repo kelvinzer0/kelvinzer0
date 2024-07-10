@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Actor George Clooney, a high-profile Biden supporter and fundraiser, asks president to leave race](https://www.yahoo.com/news/actor-george-clooney-high-profile-152332163.html)
 - Jul 10 - [Kevin O'Leary Says You Can Survive On $500,000 And 'Do Nothing Else To Make Money'](https://finance.yahoo.com/news/kevin-oleary-says-survive-500-140519576.html)
-- Jul 10 - [F-16 jets being sent to Ukraine from Denmark and the Netherlands, Blinken says](https://www.yahoo.com/news/f-16-jets-being-sent-140214589.html)
 - Jul 10 - [Why Nvidia could be headed for a seismic moment: Another $3 trillion in market cap](https://finance.yahoo.com/news/why-nvidia-could-be-headed-for-a-seismic-moment-another-3-trillion-in-market-cap-133122970.html)
+- Jul 10 - [Watch: Trump Fumbles Repeatedly in Terrifying Speech at Florida Rally](https://www.yahoo.com/news/watch-trump-fumbles-repeatedly-terrifying-132651013.html)
 - Jul 10 - [BBC star John Hunt's wife and two daughters killed at home in 'triple murder'](https://www.yahoo.com/lifestyle/bbc-star-john-hunts-wife-130901171.html)
-- Jul 10 - [Iraqi court sentences wife of slain Islamic State leader to death for crimes against Yazidi women](https://www.yahoo.com/news/iraqi-court-sentences-wife-slain-122804553.html)
 <!-- feed end -->
 
 ### Onstream
