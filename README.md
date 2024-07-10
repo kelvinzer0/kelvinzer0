@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Nvidia Stock Skyrocketed 150% in the 1st Half of 2024. Here's Why It Could Go Even Higher.](https://finance.yahoo.com/news/nvidia-stock-skyrocketed-150-1st-094800329.html)
+- Jul 10 - [John Bolton ‘Wouldn’t Put It Past’ Donald Trump To Pull This Running Mate Stunt](https://www.yahoo.com/news/john-bolton-wouldn-t-put-085925136.html)
+- Jul 10 - [Flying aboard the Ghostrider, a deadly aircraft carrying America’s biggest gun in the sky](https://www.yahoo.com/news/flying-aboard-ghostrider-deadly-aircraft-001223610.html)
 - Jul 10 - [California fast food workers now earn $20 per hour. Franchisees are responding by cutting hours.](https://finance.yahoo.com/news/california-fast-food-workers-now-050715601.html)
-- Jul 10 - [Heavy rain to return to mid-Michigan on Wednesday](https://www.yahoo.com/news/heavy-rain-return-mid-michigan-024844556.html)
-- Jul 10 - [Half-sunken 54-foot boat stuck in Detroit River for days, 20 people rescued](https://www.yahoo.com/news/half-sunken-54-foot-boat-023309673.html)
-- Jul 10 - [Florida Police Break Car Window to Help 'Distressed' Dog](https://www.yahoo.com/news/florida-police-break-car-window-020255203.html)
-- Jul 10 - [China's coast guard says 'allowed' Philippines to evacuate sick person in S.China Sea](https://www.yahoo.com/news/chinas-coast-guard-says-allowed-003052806.html)
+- Jul 10 - [Ray's shortstop Wander Franco formally charged with sexually abusing a 14-year-old girl](https://www.yahoo.com/news/rays-shortstop-wander-franco-formally-030013051.html)
 <!-- feed end -->
 
 ### Onstream
