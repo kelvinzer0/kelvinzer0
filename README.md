@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Russia declares newspaper The Moscow Times 'undesirable' amid crackdown on criticism](https://www.yahoo.com/news/russia-declares-newspaper-moscow-times-163944390.html)
+- Jul 10 - [Rudy Giuliani threatened with jail as he yells at judge during chaotic bankruptcy hearing](https://www.yahoo.com/news/rudy-giuliani-threatened-jail-yells-162714731.html)
+- Jul 10 - [Palm Desert residents cry foul as developer builds ‘a mountain behind us’](https://www.yahoo.com/news/palm-desert-residents-cry-foul-164753953.html)
+- Jul 10 - [Elon Musk beats $500 million severance lawsuit by fired Twitter workers](https://finance.yahoo.com/news/elon-musk-beats-500-million-164236526.html)
 - Jul 10 - [Jim Jordan worries dozens of members may leave en masse over House Freedom Caucus civil war](https://www.yahoo.com/news/jim-jordan-worries-dozens-members-154941720.html)
 - Jul 10 - [Clarence Thomas Took Free Yacht Trip to Russia, Chopper Flight to Putin’s Hometown: Dems](https://www.yahoo.com/news/clarence-thomas-took-free-yacht-154806567.html)
-- Jul 10 - [I can't wait for all of the media coverage of Trump's confusing Tuesday night rally](https://www.yahoo.com/news/cant-wait-media-coverage-trumps-153039472.html)
-- Jul 10 - [A Black man got a job interview after he changed the name on his resume. Now, he’s suing for discrimination](https://www.yahoo.com/news/black-man-got-job-interview-153022948.html)
 <!-- feed end -->
 
 ### Onstream
