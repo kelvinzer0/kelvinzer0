@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [ABC News’ George Stephanopoulos Backs Off Remark Doubting Biden’s White House Chances](https://www.yahoo.com/news/abc-news-george-stephanopoulos-apologizes-015548794.html)
-- Jul 09 - [Redding Rancheria can relocate casino to Strawberry Fields off I-5](https://www.yahoo.com/news/redding-rancheria-relocate-casino-strawberry-231736658.html)
-- Jul 09 - [SLO County cyclist thought a mountain lion attacked him. Here’s what it actually was](https://www.yahoo.com/news/slo-county-cyclist-thought-mountain-221922824.html)
-- Jul 09 - [Dozens of Chicago area Mariano's, Jewel-Osco stores to be sold in supermarket merger talks](https://finance.yahoo.com/news/dozens-chicago-area-marianos-jewel-213652882.html)
-- Jul 09 - [Two Dogs Locked in Car in 100 Degree Heat Saved by Cop](https://www.yahoo.com/news/two-dogs-locked-car-100-212057593.html)
+- Jul 10 - [Fuming EU partners to show Hungary PM 'yellow card'](https://www.yahoo.com/news/fuming-eu-partners-show-hungary-032412972.html)
+- Jul 10 - [Florida Police Break Car Window to Help 'Distressed' Dog](https://www.yahoo.com/news/florida-police-break-car-window-020255203.html)
+- Jul 10 - [George Stephanopoulos Says He ‘Shouldn’t Have’ Commented on President Joe Biden’s Ability to Serve Second Term](https://www.yahoo.com/news/abc-news-george-stephanopoulos-apologizes-015548794.html)
+- Jul 10 - [China's coast guard says 'allowed' Philippines to evacuate sick person in S.China Sea](https://www.yahoo.com/news/chinas-coast-guard-says-allowed-003052806.html)
+- Jul 09 - [Defence minister urges Ukrainians throughout Europe to join new legion](https://www.yahoo.com/news/defence-minister-urges-ukrainians-throughout-232403366.html)
 <!-- feed end -->
 
 ### Onstream
