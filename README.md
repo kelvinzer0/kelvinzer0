@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Ultra-runner near the end of a 50-mile excursion attacked by a bear in Yosemite Valley](https://www.yahoo.com/news/ultra-runner-near-end-50-100048360.html)
+- Jul 10 - [Yandex split nears completion as Russian traders finalise share exchange](https://finance.yahoo.com/news/yandex-split-nears-completion-russian-123352713.html)
+- Jul 10 - [Iraqi court sentences wife of slain Islamic State leader to death for crimes against Yazidi women](https://www.yahoo.com/news/iraqi-court-sentences-wife-slain-122804553.html)
+- Jul 10 - [How Do We Protect Our Savings From a Nursing Home? We Have $250k in an IRA, a House and More](https://finance.yahoo.com/news/nursing-home-savings-250k-ira-133540731.html)
 - Jul 10 - [Hurricane Beryl may have caused $32bn losses to US](https://www.yahoo.com/news/hurricane-beryl-may-caused-32bn-091729706.html)
-- Jul 10 - [NASA astronauts, stuck on ISS after issues with Boeing's Starliner, to give press conference](https://www.yahoo.com/news/nasa-astronauts-stuck-iss-issues-091214403.html)
 - Jul 10 - [China investigating after media report finds same trucks transport edible oil and a form of coal](https://www.yahoo.com/news/china-investigating-media-report-finds-090452086.html)
-- Jul 10 - [Flying aboard the Ghostrider, a deadly aircraft carrying America’s biggest gun in the sky](https://www.yahoo.com/news/flying-aboard-ghostrider-deadly-aircraft-001223610.html)
 <!-- feed end -->
 
 ### Onstream
