@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Costco raises membership fees for first time since 2017](https://finance.yahoo.com/video/costco-raises-membership-fee-first-205449566.html)
 - Jul 10 - [Alexandria Ocasio-Cortez introduces articles of impeachment for Supreme Court Justices Samuel Alito, Clarence Thomas](https://www.yahoo.com/news/alexandria-ocasio-cortez-introduces-articles-181143536.html)
-- Jul 10 - [Nasa astronauts from Boeing’s Starliner may be stuck in space until August](https://www.yahoo.com/news/nasa-astronauts-boeing-starliner-may-191108496.html)
 - Jul 10 - [More ER patients in Florida test positive for COVID. The surge is different this time](https://www.yahoo.com/news/more-er-patients-florida-test-181543777.html)
-- Jul 10 - [City Council considering changes to cannabis ordinance](https://www.yahoo.com/news/city-council-considering-changes-cannabis-181001238.html)
 - Jul 10 - [Kroger and Albertsons reveal list of grocery stores at risk of sale under merger](https://www.yahoo.com/news/kroger-albertsons-reveal-list-grocery-180332649.html)
+- Jul 10 - [Tornado touches down in Western New York as Beryl remnants hit](https://www.yahoo.com/news/tornado-touches-down-western-york-174201754.html)
 <!-- feed end -->
 
 ### Onstream
