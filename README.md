@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Nvidia Stock Skyrocketed 150% in the 1st Half of 2024. Here's Why It Could Go Even Higher.](https://finance.yahoo.com/news/nvidia-stock-skyrocketed-150-1st-094800329.html)
-- Jul 10 - [John Bolton ‘Wouldn’t Put It Past’ Donald Trump To Pull This Running Mate Stunt](https://www.yahoo.com/news/john-bolton-wouldn-t-put-085925136.html)
+- Jul 10 - [China investigating after media report finds same trucks transport edible oil and a form of coal](https://www.yahoo.com/news/china-investigating-media-report-finds-090452086.html)
 - Jul 10 - [Flying aboard the Ghostrider, a deadly aircraft carrying America’s biggest gun in the sky](https://www.yahoo.com/news/flying-aboard-ghostrider-deadly-aircraft-001223610.html)
+- Jul 10 - [University student who yelled 'Free Palestine' reportedly deported as UAE weighs Israel-Hamas war](https://www.yahoo.com/news/university-student-yelled-free-palestine-080545786.html)
+- Jul 10 - [5 Super Semiconductor Stocks to Buy Hand Over Fist for the Artificial Intelligence (AI) Revolution](https://finance.yahoo.com/news/5-super-semiconductor-stocks-buy-074700527.html)
 - Jul 10 - [California fast food workers now earn $20 per hour. Franchisees are responding by cutting hours.](https://finance.yahoo.com/news/california-fast-food-workers-now-050715601.html)
-- Jul 10 - [Ray's shortstop Wander Franco formally charged with sexually abusing a 14-year-old girl](https://www.yahoo.com/news/rays-shortstop-wander-franco-formally-030013051.html)
 <!-- feed end -->
 
 ### Onstream
