@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Billionaire investor Ackman kicks off fundraising for new US fund](https://finance.yahoo.com/news/billionaire-investor-ackman-kicks-off-202530625.html)
-- Jul 09 - [Drunken driver who snapped photo going 141 mph before deadly collision imprisoned for 17 years](https://www.yahoo.com/news/drunken-driver-snapped-photo-going-193017836.html)
-- Jul 09 - ["We do not make this request lightly": Senators demand criminal investigation into Clarence Thomas](https://www.yahoo.com/news/not-request-lightly-senators-demand-184103813.html)
-- Jul 09 - [2 Georgia School Employees Accused of Sexually Abusing Students](https://www.yahoo.com/news/2-georgia-school-employees-accused-183939906.html)
-- Jul 09 - [Iconic Massachusetts home up for auction with low starting bid, but there’s a catch](https://www.yahoo.com/news/iconic-massachusetts-home-auction-low-182112690.html)
+- Jul 09 - [7th Democrat in House urges Biden to withdraw from presidential race](https://www.yahoo.com/news/7th-democrat-house-urges-biden-235234144.html)
+- Jul 09 - [Defence minister urges Ukrainians throughout Europe to join new legion](https://www.yahoo.com/news/defence-minister-urges-ukrainians-throughout-232403366.html)
+- Jul 09 - [SLO County cyclist thought a mountain lion attacked him. Here’s what it actually was](https://www.yahoo.com/news/slo-county-cyclist-thought-mountain-221922824.html)
+- Jul 09 - [Two Dogs Locked in Car in 100 Degree Heat Saved by Cop](https://www.yahoo.com/news/two-dogs-locked-car-100-212057593.html)
+- Jul 09 - [Tehran police close Turkish Airlines office after its employees defy Iran's headscarf law](https://www.yahoo.com/news/tehran-police-close-turkish-airlines-181930133.html)
 <!-- feed end -->
 
 ### Onstream
