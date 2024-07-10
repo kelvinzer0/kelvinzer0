@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Yandex split nears completion as Russian traders finalise share exchange](https://finance.yahoo.com/news/yandex-split-nears-completion-russian-123352713.html)
+- Jul 10 - [Why Nvidia could be headed for a seismic moment: Another $3 trillion in market cap](https://finance.yahoo.com/news/why-nvidia-could-be-headed-for-a-seismic-moment-another-3-trillion-in-market-cap-133122970.html)
+- Jul 10 - [A new US-Swedish bomb may have already been pulled from Ukraine because it's useless against Russian jamming](https://www.yahoo.com/news/us-swedish-bomb-may-already-125847933.html)
+- Jul 10 - [Drag Racer Dies In Crash At Lebanon Valley Speedway](https://autos.yahoo.com/drag-racer-dies-crash-lebanon-123000034.html)
 - Jul 10 - [Iraqi court sentences wife of slain Islamic State leader to death for crimes against Yazidi women](https://www.yahoo.com/news/iraqi-court-sentences-wife-slain-122804553.html)
-- Jul 10 - [How Do We Protect Our Savings From a Nursing Home? We Have $250k in an IRA, a House and More](https://finance.yahoo.com/news/nursing-home-savings-250k-ira-133540731.html)
-- Jul 10 - [Hurricane Beryl may have caused $32bn losses to US](https://www.yahoo.com/news/hurricane-beryl-may-caused-32bn-091729706.html)
-- Jul 10 - [China investigating after media report finds same trucks transport edible oil and a form of coal](https://www.yahoo.com/news/china-investigating-media-report-finds-090452086.html)
+- Jul 10 - [Thunderstorms with hail, severe winds expected in El Paso on Wednesday](https://www.yahoo.com/news/thunderstorms-hail-severe-winds-expected-120146147.html)
 <!-- feed end -->
 
 ### Onstream
