@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [China tells NATO not to create chaos in Asia and rejects label of 'enabler' of Russia's Ukraine war](https://www.yahoo.com/news/china-tells-nato-not-create-081705199.html)
+- Jul 11 - [Yemen Houthi rebels fired an Iranian missile at Norwegian-flagged ship, debris analyzed by US shows](https://www.yahoo.com/news/yemen-houthi-rebels-fired-iranian-095239392.html)
+- Jul 11 - [Covert to a Roth IRA or not? It's an important retirement question facing Gen X.](https://finance.yahoo.com/news/covert-roth-ira-not-important-090601704.html)
 - Jul 11 - [Woman swept to sea while swimming at a Japanese beach is rescued 37 hours later and 50 miles away](https://www.yahoo.com/news/woman-swept-sea-while-swimming-080012152.html)
 - Jul 11 - [Clarence Thomas accepted a free yacht trip to Russia and got flown out on a complimentary helicopter ride to Putin's hometown, 2 Democratic senators say](https://www.yahoo.com/news/clarence-thomas-accepted-free-yacht-070633968.html)
 - Jul 11 - [Mary Trump Counters George Clooney With ‘Much Bigger News’ About Her Uncle](https://www.yahoo.com/news/mary-trump-counters-george-clooney-070556923.html)
-- Jul 11 - [US Coast Guard patrol spots Chinese naval ships off Alaska island](https://www.yahoo.com/news/us-coast-guard-patrol-spots-043848273.html)
 <!-- feed end -->
 
 ### Onstream
