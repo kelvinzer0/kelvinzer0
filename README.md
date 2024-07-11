@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Al Sharpton delivers eulogy for Black man who died after being held down by Milwaukee hotel guards](https://www.yahoo.com/news/al-sharpton-delivers-eulogy-black-203839169.html)
-- Jul 11 - [US announces further Ukraine military aid package worth $255 million](https://www.yahoo.com/news/us-announces-further-ukraine-military-201210914.html)
+- Jul 11 - [A Newly Discovered Ancient Artifact Comes With a Threat: 'Whoever Breaks This Will Die'](https://www.yahoo.com/news/newly-discovered-ancient-artifact-comes-183400250.html)
 - Jul 11 - [Archaeologists Found 2 Roman Villas That Tell New Secrets of an Ancient Civilization](https://www.yahoo.com/news/archaeologists-found-2-roman-villas-181800710.html)
-- Jul 11 - [Eastbound I-40 backed up at I-430 interchange after crash closes all lanes](https://www.yahoo.com/news/eastbound-40-backed-430-interchange-174210505.html)
-- Jul 11 - [Billionaire Palm Beacher, Dolphins owner Stephen Ross steps away from Related. What's next?](https://www.yahoo.com/news/report-says-billionaire-palm-beacher-173521251.html)
+- Jul 11 - [Houston keeps buckling under storms like Beryl. The fixes aren't coming fast enough](https://www.yahoo.com/news/houston-keeps-buckling-under-storms-181145482.html)
+- Jul 11 - [GOP bill to fund legislative branch fails on House floor](https://www.yahoo.com/news/gop-bill-fund-legislative-branch-152014637.html)
+- Jul 11 - [Best-selling author arrested in New Hampshire on felony child porn charges](https://www.yahoo.com/news/best-selling-author-arrested-hampshire-144254645.html)
 <!-- feed end -->
 
 ### Onstream
