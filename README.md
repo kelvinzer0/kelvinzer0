@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Biden Refers to Zelenskiy as Putin, Corrects Himself](https://finance.yahoo.com/video/biden-refers-zelenskiy-putin-corrects-221722185.html)
+- Jul 11 - [Biden mistakenly refers to Zelenskiy as Putin before correcting himself](https://www.yahoo.com/news/biden-corrects-himself-mistakenly-referring-215611436.html)
+- Jul 11 - [UN demands Russia withdraw from Europe's largest nuclear power plant in Ukraine](https://www.yahoo.com/news/un-demands-russia-withdraw-europes-213832869.html)
 - Jul 11 - [A Newly Discovered Ancient Artifact Comes With a Threat: 'Whoever Breaks This Will Die'](https://www.yahoo.com/news/newly-discovered-ancient-artifact-comes-183400250.html)
-- Jul 11 - [Archaeologists Found 2 Roman Villas That Tell New Secrets of an Ancient Civilization](https://www.yahoo.com/news/archaeologists-found-2-roman-villas-181800710.html)
-- Jul 11 - [Houston keeps buckling under storms like Beryl. The fixes aren't coming fast enough](https://www.yahoo.com/news/houston-keeps-buckling-under-storms-181145482.html)
-- Jul 11 - [GOP bill to fund legislative branch fails on House floor](https://www.yahoo.com/news/gop-bill-fund-legislative-branch-152014637.html)
-- Jul 11 - [Best-selling author arrested in New Hampshire on felony child porn charges](https://www.yahoo.com/news/best-selling-author-arrested-hampshire-144254645.html)
+- Jul 11 - [UAW President Shawn Fain accused of seeking benefits for fiancee and her sister](https://www.yahoo.com/news/uaw-president-shawn-fain-accused-182959453.html)
 <!-- feed end -->
 
 ### Onstream
