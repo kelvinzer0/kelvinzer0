@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [China Forbids New Coal-Based Steelmaking for First Time in Years](https://finance.yahoo.com/news/china-forbids-coal-based-steelmaking-000000126.html)
-- Jul 10 - [Huma Abedin and Alex Soros are engaged: 'Couldn't be happier'](https://www.yahoo.com/entertainment/huma-abedin-alex-soros-engaged-233715513.html)
 - Jul 10 - [ARK Investment's Cathie Wood defends strategy in letter to investors](https://finance.yahoo.com/news/ark-investments-cathie-wood-defends-224504411.html)
-- Jul 10 - [Man sentenced to 4-plus years in death of original 'Mickey Mouse Club' cast member](https://www.yahoo.com/news/man-sentenced-4-plus-years-223739050.html)
-- Jul 10 - [Sharks are coming within feet of Massachusetts beaches. See a list of recently spotted great whites](https://www.yahoo.com/news/sharks-coming-within-feet-massachusetts-192940209.html)
+- Jul 10 - [Dangerous Flash Flooding Tears Apart New Mexico House](https://www.yahoo.com/news/dangerous-flash-flooding-tears-apart-220803509.html)
+- Jul 10 - [Fort Worth contractor charged with felony theft after failing to complete $23,000 renovation job](https://www.yahoo.com/news/fort-worth-contractor-charged-felony-211928676.html)
+- Jul 10 - [NATO declares US ballistic missile defense base in Poland mission ready](https://www.yahoo.com/news/nato-declares-us-ballistic-missile-211045459.html)
+- Jul 10 - [Alexandria Ocasio-Cortez introduces articles of impeachment for Supreme Court Justices Samuel Alito, Clarence Thomas](https://www.yahoo.com/news/alexandria-ocasio-cortez-introduces-articles-181143536.html)
 <!-- feed end -->
 
 ### Onstream
