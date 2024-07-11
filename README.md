@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [PepsiCo falls on mixed earnings, consumer weakness worries](https://finance.yahoo.com/video/pepsico-falls-mixed-earnings-consumer-134605727.html)
-- Jul 11 - [Can you stop a panic attack? Here's what experts say you should know.](https://www.yahoo.com/lifestyle/how-to-stop-a-panic-attack-133911305.html)
+- Jul 11 - [Best-selling author arrested in New Hampshire on felony child porn charges](https://www.yahoo.com/news/best-selling-author-arrested-hampshire-144254645.html)
+- Jul 11 - [G7 denounces Israel's settlement expansion in West Bank](https://www.yahoo.com/news/g7-denounces-israels-settlement-expansion-135356237.html)
 - Jul 11 - [Donald Trump Fires Back at George Clooney Over Biden Op-Ed: He ‘Should Get Out of Politics and Go Back to TV. Movies Never Really Worked Out’](https://www.yahoo.com/news/donald-trump-fires-back-george-131627732.html)
-- Jul 11 - [Yen Jumps 2% After US Inflation, Fueling Intervention Jitters](https://finance.yahoo.com/news/yen-jumps-2-us-inflation-131041076.html)
 - Jul 11 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/lifestyle/moms-support-trump-divided-family-120644913.html)
+- Jul 11 - [Israeli weapons packed with shrapnel causing devastating injuries to children in Gaza, doctors say](https://www.yahoo.com/news/israeli-weapons-packed-shrapnel-causing-110023231.html)
 <!-- feed end -->
 
 ### Onstream
