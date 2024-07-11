@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [China building more wind, solar capacity than rest of world combined: report](https://www.yahoo.com/news/china-building-more-wind-solar-040119145.html)
 - Jul 10 - [ARK Investment's Cathie Wood defends strategy in letter to investors](https://finance.yahoo.com/news/ark-investments-cathie-wood-defends-224504411.html)
+- Jul 10 - [Man sentenced to 4-plus years in death of original 'Mickey Mouse Club' cast member](https://www.yahoo.com/news/man-sentenced-4-plus-years-223739050.html)
+- Jul 10 - [Smiling El Paso man arrested on murder charge in Northeast sidewalk shooting death](https://www.yahoo.com/news/smiling-el-paso-man-arrested-220457627.html)
 - Jul 10 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 - Jul 10 - [Fort Worth contractor charged with felony theft after failing to complete $23,000 renovation job](https://www.yahoo.com/news/fort-worth-contractor-charged-felony-211928676.html)
-- Jul 10 - [NATO declares US ballistic missile defense base in Poland mission ready](https://www.yahoo.com/news/nato-declares-us-ballistic-missile-211045459.html)
 <!-- feed end -->
 
 ### Onstream
