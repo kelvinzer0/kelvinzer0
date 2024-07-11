@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Gunman at large after ambushing, killing deputy following assault on pizza worker over wrong order: Officials](https://www.yahoo.com/news/gunman-large-ambushing-killing-deputy-131900783.html)
+- Jul 11 - [A Newly Discovered Ancient Artifact Comes With a Threat: 'Whoever Breaks This Will Die'](https://www.yahoo.com/news/newly-discovered-ancient-artifact-comes-183400250.html)
+- Jul 11 - [Street Racer Whines For His Mommy And Daddy](https://autos.yahoo.com/street-racer-whines-mommy-daddy-180000284.html)
 - Jul 11 - [Zelenskyy says the problem with the coming F-16 fighter jets is the same one Ukraine had with the Abrams tanks](https://www.yahoo.com/news/zelenskyy-says-problem-coming-f-172515612.html)
-- Jul 11 - [Lauren Boebert is laughed at on the House floor as she’s fact-checked by EPA head](https://www.yahoo.com/news/lauren-boebert-laughed-house-floor-141818077.html)
-- Jul 11 - [Costco increases membership fees: Here's how much each tier will cost](https://www.yahoo.com/news/costco-increases-membership-fees-heres-151601833.html)
-- Jul 11 - [Best-selling author arrested in New Hampshire on felony child porn charges](https://www.yahoo.com/news/best-selling-author-arrested-hampshire-144254645.html)
-- Jul 11 - [Jim Cramer: NVIDIA Corp (NASDAQ:NVDA) is ‘Unrivaled’ in the New Industrial Revolution](https://finance.yahoo.com/news/jim-cramer-nvidia-corp-nasdaq-134103996.html)
+- Jul 11 - [Watch A Shelby GT500 Absolutely Roast Police](https://autos.yahoo.com/watch-shelby-gt500-absolutely-roast-170000900.html)
 <!-- feed end -->
 
 ### Onstream
