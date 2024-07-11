@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Yemen Houthi rebels fired an Iranian missile at Norwegian-flagged ship, debris analyzed by US shows](https://www.yahoo.com/news/yemen-houthi-rebels-fired-iranian-095239392.html)
-- Jul 11 - [Covert to a Roth IRA or not? It's an important retirement question facing Gen X.](https://finance.yahoo.com/news/covert-roth-ira-not-important-090601704.html)
-- Jul 11 - [Woman swept to sea while swimming at a Japanese beach is rescued 37 hours later and 50 miles away](https://www.yahoo.com/news/woman-swept-sea-while-swimming-080012152.html)
-- Jul 11 - [Clarence Thomas accepted a free yacht trip to Russia and got flown out on a complimentary helicopter ride to Putin's hometown, 2 Democratic senators say](https://www.yahoo.com/news/clarence-thomas-accepted-free-yacht-070633968.html)
-- Jul 11 - [Mary Trump Counters George Clooney With ‘Much Bigger News’ About Her Uncle](https://www.yahoo.com/news/mary-trump-counters-george-clooney-070556923.html)
+- Jul 11 - [Anthony Scaramucci Lays Out How He Believes Democrats Can Beat Trump](https://www.yahoo.com/news/anthony-scaramucci-lays-believes-democrats-102421306.html)
+- Jul 11 - [What’s not the matter with Kansas? Maybe we’re not voting against our own interests. | Opinion](https://www.yahoo.com/news/not-matter-kansas-maybe-not-100500641.html)
+- Jul 11 - [Could improvements at Idaho gun range prevent another fatal accidental shooting? | Opinion](https://www.yahoo.com/news/could-improvements-idaho-gun-range-100000840.html)
+- Jul 11 - [This coast-to-coast heat wave isn’t normal. When will it cool down?](https://www.yahoo.com/news/coast-coast-heat-wave-isn-090950839.html)
+- Jul 11 - [Rehoboth Beach and the case of the incredible shrinking bathing suits](https://www.yahoo.com/lifestyle/rehoboth-beach-case-incredible-shrinking-090145785.html)
 <!-- feed end -->
 
 ### Onstream
