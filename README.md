@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [$280K Mega Millions ticket sold in Southern California](https://www.yahoo.com/news/280k-mega-millions-ticket-sold-035644193.html)
+- Jul 11 - [Patients demanding answers as Shelby County dentist files for bankruptcy](https://www.yahoo.com/news/patients-demanding-answers-shelby-county-030501852.html)
+- Jul 11 - [Russia's thwarting of precision Western weapons in Ukraine shows the value of things like old-fashioned, unguided artillery, European general says](https://www.yahoo.com/news/russias-thwarting-precision-western-weapons-020432261.html)
 - Jul 10 - [ARK Investment's Cathie Wood defends strategy in letter to investors](https://finance.yahoo.com/news/ark-investments-cathie-wood-defends-224504411.html)
 - Jul 10 - [Man sentenced to 4-plus years in death of original 'Mickey Mouse Club' cast member](https://www.yahoo.com/news/man-sentenced-4-plus-years-223739050.html)
-- Jul 10 - [Smiling El Paso man arrested on murder charge in Northeast sidewalk shooting death](https://www.yahoo.com/news/smiling-el-paso-man-arrested-220457627.html)
-- Jul 10 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
-- Jul 10 - [Fort Worth contractor charged with felony theft after failing to complete $23,000 renovation job](https://www.yahoo.com/news/fort-worth-contractor-charged-felony-211928676.html)
 <!-- feed end -->
 
 ### Onstream
