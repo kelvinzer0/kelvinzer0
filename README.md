@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Zelenskyy says the problem with the coming F-16 fighter jets is the same one Ukraine had with the Abrams tanks](https://www.yahoo.com/news/zelenskyy-says-problem-coming-f-172515646.html)
+- Jul 11 - [Zelenskyy says the problem with the coming F-16 fighter jets is the same one Ukraine had with the Abrams tanks](https://www.yahoo.com/news/zelenskyy-says-problem-coming-f-172515612.html)
 - Jul 11 - [Lauren Boebert is laughed at on the House floor as she’s fact-checked by EPA head](https://www.yahoo.com/news/lauren-boebert-laughed-house-floor-141818077.html)
-- Jul 11 - [Ossoff votes with Republicans to block controversial Biden nominee](https://www.yahoo.com/news/ossoff-votes-republicans-block-controversial-154614746.html)
 - Jul 11 - [Costco increases membership fees: Here's how much each tier will cost](https://www.yahoo.com/news/costco-increases-membership-fees-heres-151601833.html)
-- Jul 11 - [Thousands evacuate in face of emergency as monstrous fire surges out of control: 'It's going to be a challenge both day and night'](https://www.yahoo.com/news/thousands-evacuate-face-emergency-monstrous-150000279.html)
+- Jul 11 - [Best-selling author arrested in New Hampshire on felony child porn charges](https://www.yahoo.com/news/best-selling-author-arrested-hampshire-144254645.html)
+- Jul 11 - [Jim Cramer: NVIDIA Corp (NASDAQ:NVDA) is ‘Unrivaled’ in the New Industrial Revolution](https://finance.yahoo.com/news/jim-cramer-nvidia-corp-nasdaq-134103996.html)
 <!-- feed end -->
 
 ### Onstream
