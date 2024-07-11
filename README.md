@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [$280K Mega Millions ticket sold in Southern California](https://www.yahoo.com/news/280k-mega-millions-ticket-sold-035644193.html)
-- Jul 11 - [Patients demanding answers as Shelby County dentist files for bankruptcy](https://www.yahoo.com/news/patients-demanding-answers-shelby-county-030501852.html)
+- Jul 11 - [Clarence Thomas accepted a free yacht trip to Russia and got flown out on a complimentary helicopter ride to Putin's hometown, 2 Democratic senators say](https://www.yahoo.com/news/clarence-thomas-accepted-free-yacht-070633871.html)
+- Jul 11 - [US Coast Guard patrol spots Chinese naval ships off Alaska island](https://www.yahoo.com/news/us-coast-guard-patrol-spots-043848273.html)
 - Jul 11 - [Russia's thwarting of precision Western weapons in Ukraine shows the value of things like old-fashioned, unguided artillery, European general says](https://www.yahoo.com/news/russias-thwarting-precision-western-weapons-020432261.html)
 - Jul 10 - [ARK Investment's Cathie Wood defends strategy in letter to investors](https://finance.yahoo.com/news/ark-investments-cathie-wood-defends-224504411.html)
 - Jul 10 - [Man sentenced to 4-plus years in death of original 'Mickey Mouse Club' cast member](https://www.yahoo.com/news/man-sentenced-4-plus-years-223739050.html)
