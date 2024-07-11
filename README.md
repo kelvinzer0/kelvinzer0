@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Russian diplomat says Moscow won't attend a second Ukraine peace summit](https://www.yahoo.com/news/russian-diplomat-says-moscow-wont-115556838.html)
-- Jul 11 - [Ukrainian soldiers survived 70 days of encirclement by being air-dropped ammo and supplies by drone](https://www.yahoo.com/news/ukrainian-soldiers-survived-70-days-112112523.html)
-- Jul 11 - [Seth Meyers takes a brutal 'Closer Look' at pro-Trump Project 2025](https://www.yahoo.com/entertainment/seth-meyers-takes-brutal-closer-100239768.html)
-- Jul 11 - [This coast-to-coast heat wave isn’t normal. When will it cool down?](https://www.yahoo.com/news/coast-coast-heat-wave-isn-090950839.html)
-- Jul 11 - [Rehoboth Beach and the case of the incredible shrinking bathing suits](https://www.yahoo.com/lifestyle/rehoboth-beach-case-incredible-shrinking-090145785.html)
+- Jul 11 - [Say goodbye to Redbox](https://www.yahoo.com/news/say-goodbye-to-redbox-130044411.html)
+- Jul 11 - [US consumer prices unexpectedly fall in June](https://www.yahoo.com/news/us-consumer-prices-unexpectedly-fall-123545749.html)
+- Jul 11 - [What US sub-hunter planes can learn watching advanced Russian submarines like the one that showed up near Florida](https://www.yahoo.com/news/us-sub-hunter-planes-learn-120702141.html)
+- Jul 11 - [The Samsung Galaxy Ring may change wearables forever](https://www.yahoo.com/tech/samsung-galaxy-ring-may-change-120006976.html)
+- Jul 11 - [Yemen Houthi rebels fired an Iranian missile at Norwegian-flagged ship, debris analyzed by US shows](https://www.yahoo.com/news/yemen-houthi-rebels-fired-iranian-095239392.html)
 <!-- feed end -->
 
 ### Onstream
