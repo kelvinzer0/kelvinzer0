@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Say goodbye to Redbox](https://www.yahoo.com/news/say-goodbye-to-redbox-130044411.html)
-- Jul 11 - [US consumer prices unexpectedly fall in June](https://www.yahoo.com/news/us-consumer-prices-unexpectedly-fall-123545749.html)
-- Jul 11 - [What US sub-hunter planes can learn watching advanced Russian submarines like the one that showed up near Florida](https://www.yahoo.com/news/us-sub-hunter-planes-learn-120702141.html)
-- Jul 11 - [The Samsung Galaxy Ring may change wearables forever](https://www.yahoo.com/tech/samsung-galaxy-ring-may-change-120006976.html)
-- Jul 11 - [Yemen Houthi rebels fired an Iranian missile at Norwegian-flagged ship, debris analyzed by US shows](https://www.yahoo.com/news/yemen-houthi-rebels-fired-iranian-095239392.html)
+- Jul 11 - [PepsiCo falls on mixed earnings, consumer weakness worries](https://finance.yahoo.com/video/pepsico-falls-mixed-earnings-consumer-134605727.html)
+- Jul 11 - [Can you stop a panic attack? Here's what experts say you should know.](https://www.yahoo.com/lifestyle/how-to-stop-a-panic-attack-133911305.html)
+- Jul 11 - [Donald Trump Fires Back at George Clooney Over Biden Op-Ed: He ‘Should Get Out of Politics and Go Back to TV. Movies Never Really Worked Out’](https://www.yahoo.com/news/donald-trump-fires-back-george-131627732.html)
+- Jul 11 - [Yen Jumps 2% After US Inflation, Fueling Intervention Jitters](https://finance.yahoo.com/news/yen-jumps-2-us-inflation-131041076.html)
+- Jul 11 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/lifestyle/moms-support-trump-divided-family-120644913.html)
 <!-- feed end -->
 
 ### Onstream
