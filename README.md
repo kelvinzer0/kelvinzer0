@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Anthony Scaramucci Lays Out How He Believes Democrats Can Beat Trump](https://www.yahoo.com/news/anthony-scaramucci-lays-believes-democrats-102421306.html)
-- Jul 11 - [What’s not the matter with Kansas? Maybe we’re not voting against our own interests. | Opinion](https://www.yahoo.com/news/not-matter-kansas-maybe-not-100500641.html)
-- Jul 11 - [Could improvements at Idaho gun range prevent another fatal accidental shooting? | Opinion](https://www.yahoo.com/news/could-improvements-idaho-gun-range-100000840.html)
+- Jul 11 - [Russian diplomat says Moscow won't attend a second Ukraine peace summit](https://www.yahoo.com/news/russian-diplomat-says-moscow-wont-115556838.html)
+- Jul 11 - [Ukrainian soldiers survived 70 days of encirclement by being air-dropped ammo and supplies by drone](https://www.yahoo.com/news/ukrainian-soldiers-survived-70-days-112112523.html)
+- Jul 11 - [Seth Meyers takes a brutal 'Closer Look' at pro-Trump Project 2025](https://www.yahoo.com/entertainment/seth-meyers-takes-brutal-closer-100239768.html)
 - Jul 11 - [This coast-to-coast heat wave isn’t normal. When will it cool down?](https://www.yahoo.com/news/coast-coast-heat-wave-isn-090950839.html)
 - Jul 11 - [Rehoboth Beach and the case of the incredible shrinking bathing suits](https://www.yahoo.com/lifestyle/rehoboth-beach-case-incredible-shrinking-090145785.html)
 <!-- feed end -->
