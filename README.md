@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [States that will see biggest summer bump in electric bills](https://finance.yahoo.com/video/states-see-biggest-summer-bump-161335796.html)
+- Jul 11 - [Delta’s Sagging Profit Signals Trouble for Airlines This Summer](https://finance.yahoo.com/news/delta-sagging-profit-signals-trouble-103000349.html)
+- Jul 11 - [Disney World's New Rival Theme Park Could Be a Blessing in Disguise](https://finance.yahoo.com/news/disney-worlds-rival-theme-park-155000080.html)
+- Jul 11 - [Lauren Boebert is laughed at on the House floor as she’s fact-checked by EPA head](https://www.yahoo.com/news/lauren-boebert-laughed-house-floor-141818077.html)
 - Jul 11 - [Best-selling author arrested in New Hampshire on felony child porn charges](https://www.yahoo.com/news/best-selling-author-arrested-hampshire-144254645.html)
-- Jul 11 - [G7 denounces Israel's settlement expansion in West Bank](https://www.yahoo.com/news/g7-denounces-israels-settlement-expansion-135356237.html)
-- Jul 11 - [Donald Trump Fires Back at George Clooney Over Biden Op-Ed: He ‘Should Get Out of Politics and Go Back to TV. Movies Never Really Worked Out’](https://www.yahoo.com/news/donald-trump-fires-back-george-131627732.html)
-- Jul 11 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/lifestyle/moms-support-trump-divided-family-120644913.html)
-- Jul 11 - [Israeli weapons packed with shrapnel causing devastating injuries to children in Gaza, doctors say](https://www.yahoo.com/news/israeli-weapons-packed-shrapnel-causing-110023231.html)
 <!-- feed end -->
 
 ### Onstream
