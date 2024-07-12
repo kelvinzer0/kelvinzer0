@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [Russia is already fighting NATO, just not with tanks and fighter jets, argues a former top US general](https://www.yahoo.com/news/russia-already-fighting-nato-just-175629174.html)
+- Jul 12 - [‘There are no words’: Missing Sutton girl with autism found dead in neighbor’s pool, police say](https://www.yahoo.com/news/missing-4-old-sutton-girl-143827879.html)
 - Jul 12 - [The gods must be angry: Mexico 'cancels' statue of Greek god Poseidon after dispute with local deity](https://www.yahoo.com/news/gods-must-angry-mexico-cancels-165428831.html)
 - Jul 12 - [Number of prostitutes registered in Germany rises slightly](https://www.yahoo.com/news/number-prostitutes-registered-germany-rises-165129890.html)
-- Jul 12 - [Man told cops he wanted to ‘take on an alligator’ on Hilton Head. Was he hallucinating?](https://www.yahoo.com/news/man-told-cops-wanted-alligator-163559087.html)
 - Jul 12 - [Judge in Alec Baldwin ‘Rust’ Trial Sends Jurors Home as She Weighs Surprise Motion to Dismiss](https://www.yahoo.com/news/alec-baldwin-files-surprise-motion-160328292.html)
-- Jul 12 - [Dave Ramsey: This Is the Point When You Can Start Enjoying Your Money](https://finance.yahoo.com/news/dave-ramsey-point-start-enjoying-153704845.html)
 <!-- feed end -->
 
 ### Onstream
