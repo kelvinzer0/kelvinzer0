@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Biden has minor slips at NATO press conference, fails to allay Dem. fears](https://www.yahoo.com/news/biden-minor-slips-nato-press-114545356.html)
+- Jul 12 - [Sharks are coming within feet of Massachusetts beaches. See a list of recently spotted great whites](https://www.yahoo.com/news/sharks-coming-within-feet-massachusetts-192940209.html)
+- Jul 12 - [Over 100 officers from outside law enforcement agencies arrive in Houston | CW39 Houston](https://www.yahoo.com/news/over-100-officers-outside-law-112712699.html)
 - Jul 12 - [Baby boomers are bringing their hard-earned dollars to this fast-growing city in the U.S.](https://finance.yahoo.com/news/baby-boomers-bringing-hard-earned-101100967.html)
 - Jul 12 - [Markets are saying what Powell can't: Morning Brief](https://finance.yahoo.com/news/markets-are-saying-what-powell-cant-morning-brief-100045877.html)
 - Jul 12 - [Israeli forces pull back after Gaza City offensive, leaving dozens of bodies, rescue service says](https://www.yahoo.com/news/israeli-forces-pull-back-gaza-094050746.html)
-- Jul 12 - [Purdue reverses last-minute swaps of student leases](https://www.yahoo.com/news/purdue-reverses-last-minute-swaps-091204148.html)
 <!-- feed end -->
 
 ### Onstream
