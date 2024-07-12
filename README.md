@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - ['I'm in good shape': Biden defends his health](https://www.yahoo.com/news/im-good-shape-biden-defends-024534633.html)
+- Jul 12 - [Philippines rejects undermining of its South China Sea interests, especially by force](https://www.yahoo.com/news/philippines-says-rejects-undermining-south-014352508.html)
 - Jul 12 - [SLO doctor’s license suspended for ‘mental condition.’ Lawsuit says he did meth in the office](https://www.yahoo.com/news/slo-doctor-license-suspended-mental-002927185.html)
 - Jul 11 - [India's Adani Ports to invest $1.2 billion in transshipment terminal, Bloomberg News reports](https://finance.yahoo.com/news/indias-adani-ports-invest-1-234748667.html)
+- Jul 11 - [Biden looks finished – there’s surely no coming back from this](https://www.yahoo.com/news/biden-looks-finished-surely-no-234140709.html)
 - Jul 11 - [Billions of gallons of water from Lake Shasta disappearing into thin air](https://www.yahoo.com/news/hundreds-millions-gallons-water-lake-223656915.html)
-- Jul 11 - [Pentagon to accept deliveries of Lockheed F-35s after yearlong pause](https://www.yahoo.com/news/pentagon-accept-deliveries-lockheed-f-201626762.html)
 <!-- feed end -->
 
 ### Onstream
