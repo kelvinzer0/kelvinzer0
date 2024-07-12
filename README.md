@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 12 - [Biden was raspy, mumbly, but mostly fine. That’s the worst scenario for Democrats | Opinion](https://www.yahoo.com/news/biden-raspy-mumbly-mostly-fine-003101546.html)
+- Jul 12 - [SLO doctor’s license suspended for ‘mental condition.’ Lawsuit says he did meth in the office](https://www.yahoo.com/news/slo-doctor-license-suspended-mental-002927185.html)
 - Jul 11 - [Biden looks finished – there’s surely no coming back from this](https://www.yahoo.com/news/biden-looks-finished-surely-no-234140709.html)
-- Jul 11 - [Rare Camaro ZL1 Destroyed By Dealer](https://autos.yahoo.com/rare-camaro-zl1-destroyed-dealer-193000731.html)
-- Jul 11 - [The former Best Buy in Appleton has a new tenant, here's who | The Buzz](https://www.yahoo.com/news/former-best-buy-appleton-tenant-191729535.html)
-- Jul 11 - [A Newly Discovered Ancient Artifact Comes With a Threat: 'Whoever Breaks This Will Die'](https://www.yahoo.com/news/newly-discovered-ancient-artifact-comes-183400250.html)
+- Jul 11 - [Billions of gallons of water from Lake Shasta disappearing into thin air](https://www.yahoo.com/news/hundreds-millions-gallons-water-lake-223656915.html)
+- Jul 11 - [Pentagon to accept deliveries of Lockheed F-35s after yearlong pause](https://www.yahoo.com/news/pentagon-accept-deliveries-lockheed-f-201626762.html)
 <!-- feed end -->
 
 ### Onstream
