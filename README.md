@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Why now is 'a great time' to buy a house](https://finance.yahoo.com/video/why-now-great-time-buy-164938386.html)
-- Jul 12 - [Elon Musk’s X Accused By European Union Of Deceiving Users As It Becomes First Social Media Platform To Fall Foul Of New Act](https://www.yahoo.com/news/elon-musk-x-accused-european-162546194.html)
-- Jul 12 - [Residents say bodies lie in streets in once-vibrant Gaza neighbourhood](https://www.yahoo.com/news/residents-bodies-lie-streets-once-161704442.html)
+- Jul 12 - [The gods must be angry: Mexico 'cancels' statue of Greek god Poseidon after dispute with local deity](https://www.yahoo.com/news/gods-must-angry-mexico-cancels-165428831.html)
+- Jul 12 - [Number of prostitutes registered in Germany rises slightly](https://www.yahoo.com/news/number-prostitutes-registered-germany-rises-165129890.html)
+- Jul 12 - [Man told cops he wanted to ‘take on an alligator’ on Hilton Head. Was he hallucinating?](https://www.yahoo.com/news/man-told-cops-wanted-alligator-163559087.html)
+- Jul 12 - [Judge in Alec Baldwin ‘Rust’ Trial Sends Jurors Home as She Weighs Surprise Motion to Dismiss](https://www.yahoo.com/news/alec-baldwin-files-surprise-motion-160328292.html)
 - Jul 12 - [Dave Ramsey: This Is the Point When You Can Start Enjoying Your Money](https://finance.yahoo.com/news/dave-ramsey-point-start-enjoying-153704845.html)
-- Jul 12 - [How to know if you were affected by the AT&T data breach and what to do next](https://www.yahoo.com/news/know-were-affected-t-data-153036461.html)
 <!-- feed end -->
 
 ### Onstream
