@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [These are the 10 best places to fish in SC, new ranking shows. Can you guess the No. 1 spot?](https://www.yahoo.com/lifestyle/10-best-places-fish-sc-100000497.html)
-- Jul 12 - [Trucker finds abandoned 1-year-old boy alive along highway a day after his sibling was found dead, authorities say](https://www.yahoo.com/news/trucker-finds-abandoned-1-old-080103904.html)
-- Jul 12 - [Taiwan to withdraw honour guards from Chiang Kai-shek memorial](https://www.yahoo.com/news/taiwan-withdraw-honour-guards-chiang-063736923.html)
-- Jul 12 - [I Have Major Secondhand Embarrassment After Reading These 23 Horribly Dumb Mistakes People Have Made At Work](https://www.yahoo.com/entertainment/major-secondhand-embarrassment-reading-23-041502732.html)
-- Jul 12 - [Lawrence: Biden was asked several questions about NATO that Donald Trump couldn't answer](https://www.yahoo.com/news/lawrence-biden-asked-several-questions-033023123.html)
+- Jul 12 - [Biden has minor slips at NATO press conference, fails to allay Dem. fears](https://www.yahoo.com/news/biden-minor-slips-nato-press-114545356.html)
+- Jul 12 - [Baby boomers are bringing their hard-earned dollars to this fast-growing city in the U.S.](https://finance.yahoo.com/news/baby-boomers-bringing-hard-earned-101100967.html)
+- Jul 12 - [Markets are saying what Powell can't: Morning Brief](https://finance.yahoo.com/news/markets-are-saying-what-powell-cant-morning-brief-100045877.html)
+- Jul 12 - [Israeli forces pull back after Gaza City offensive, leaving dozens of bodies, rescue service says](https://www.yahoo.com/news/israeli-forces-pull-back-gaza-094050746.html)
+- Jul 12 - [Purdue reverses last-minute swaps of student leases](https://www.yahoo.com/news/purdue-reverses-last-minute-swaps-091204148.html)
 <!-- feed end -->
 
 ### Onstream
