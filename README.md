@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Fact check: Biden’s false and misleading claims at high-stakes news conference](https://www.yahoo.com/news/fact-check-biden-false-misleading-031751217.html)
-- Jul 12 - [Patrick Mahomes’ Father Bags Another Run-In With The Law After DWI Arrest](https://www.yahoo.com/news/patrick-mahomes-father-bags-another-121515523.html)
-- Jul 12 - [Baby boomers are bringing their hard-earned dollars to this fast-growing city in the U.S.](https://finance.yahoo.com/news/baby-boomers-bringing-hard-earned-101100967.html)
-- Jul 12 - [Markets are saying what Powell can't: Morning Brief](https://finance.yahoo.com/news/markets-are-saying-what-powell-cant-morning-brief-100045877.html)
-- Jul 12 - [Rescuers say they find dozens of bodies after Israelis scale back Gaza City fight with Hamas](https://www.yahoo.com/news/israeli-forces-pull-back-gaza-094050746.html)
+- Jul 12 - [The iPhone 16 might be more important than you think](https://www.yahoo.com/tech/iphone-16-might-more-important-143312696.html)
+- Jul 12 - [Russian Passenger Jet Crashes Outside Moscow, Killing All on Board](https://www.yahoo.com/news/russian-passenger-jet-crashes-outside-134934287.html)
+- Jul 12 - [North Korea executed 30 teenagers for watching South Korean dramas: reports](https://www.yahoo.com/news/north-korea-executed-30-teenagers-133020737.html)
+- Jul 12 - [How AT&T’s recent data breach affects you](https://finance.yahoo.com/video/t-recent-data-breach-affects-123934850.html)
+- Jul 12 - [Dog Abandoned in Dumpster Saved by South Carolina Rescue](https://www.yahoo.com/news/dog-abandoned-dumpster-saved-south-113654453.html)
 <!-- feed end -->
 
 ### Onstream
