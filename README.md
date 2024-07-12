@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 12 - [Trump names four finalists for running mate as he compares vice presidential race to The Apprentice](https://www.yahoo.com/news/trump-names-four-finalists-running-190245350.html)
-- Jul 12 - [Cop Wrecks Out Trying To Catch C6 Corvette](https://autos.yahoo.com/cop-wrecks-trying-catch-c6-180000954.html)
+- Jul 12 - [Robber breaks into popular Lexington Italian restaurant, uses dolly to take safe](https://www.yahoo.com/news/robber-breaks-popular-lexington-italian-175820236.html)
+- Jul 12 - [Actor Matthew McConaughey tells governors he is still mulling future run for political office](https://www.yahoo.com/news/actor-matthew-mcconaughey-tells-governors-171724322.html)
 - Jul 12 - [The gods must be angry: Mexico 'cancels' statue of Greek god Poseidon after dispute with local deity](https://www.yahoo.com/news/gods-must-angry-mexico-cancels-165428831.html)
 - Jul 12 - [Number of prostitutes registered in Germany rises slightly](https://www.yahoo.com/news/number-prostitutes-registered-germany-rises-165129890.html)
-- Jul 12 - [How to know if you were affected by the AT&T data breach and what to do next](https://www.yahoo.com/news/know-were-affected-t-data-153036461.html)
 <!-- feed end -->
 
 ### Onstream
