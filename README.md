@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Biden Refers to Zelenskiy as Putin, Corrects Himself](https://finance.yahoo.com/video/biden-refers-zelenskiy-putin-corrects-221722185.html)
-- Jul 11 - [Biden mistakenly refers to Zelenskiy as Putin before correcting himself](https://www.yahoo.com/news/biden-corrects-himself-mistakenly-referring-215611436.html)
-- Jul 11 - [UN demands Russia withdraw from Europe's largest nuclear power plant in Ukraine](https://www.yahoo.com/news/un-demands-russia-withdraw-europes-213832869.html)
+- Jul 12 - [Biden was raspy, mumbly, but mostly fine. That’s the worst scenario for Democrats | Opinion](https://www.yahoo.com/news/biden-raspy-mumbly-mostly-fine-003101546.html)
+- Jul 11 - [Biden looks finished – there’s surely no coming back from this](https://www.yahoo.com/news/biden-looks-finished-surely-no-234140709.html)
+- Jul 11 - [Rare Camaro ZL1 Destroyed By Dealer](https://autos.yahoo.com/rare-camaro-zl1-destroyed-dealer-193000731.html)
+- Jul 11 - [The former Best Buy in Appleton has a new tenant, here's who | The Buzz](https://www.yahoo.com/news/former-best-buy-appleton-tenant-191729535.html)
 - Jul 11 - [A Newly Discovered Ancient Artifact Comes With a Threat: 'Whoever Breaks This Will Die'](https://www.yahoo.com/news/newly-discovered-ancient-artifact-comes-183400250.html)
-- Jul 11 - [UAW President Shawn Fain accused of seeking benefits for fiancee and her sister](https://www.yahoo.com/news/uaw-president-shawn-fain-accused-182959453.html)
 <!-- feed end -->
 
 ### Onstream
