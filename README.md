@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [These are the 10 best places to fish in SC, new ranking shows. Can you guess the No. 1 spot?](https://www.yahoo.com/lifestyle/10-best-places-fish-sc-100000497.html)
+- Jul 12 - [Trucker finds abandoned 1-year-old boy alive along highway a day after his sibling was found dead, authorities say](https://www.yahoo.com/news/trucker-finds-abandoned-1-old-080103904.html)
 - Jul 12 - [Taiwan to withdraw honour guards from Chiang Kai-shek memorial](https://www.yahoo.com/news/taiwan-withdraw-honour-guards-chiang-063736923.html)
-- Jul 12 - [SpaceX Falcon 9 rocket suffers major malfunction during Starlink launch](https://www.yahoo.com/news/spacex-falcon-9-rocket-suffers-054346132.html)
 - Jul 12 - [I Have Major Secondhand Embarrassment After Reading These 23 Horribly Dumb Mistakes People Have Made At Work](https://www.yahoo.com/entertainment/major-secondhand-embarrassment-reading-23-041502732.html)
 - Jul 12 - [Lawrence: Biden was asked several questions about NATO that Donald Trump couldn't answer](https://www.yahoo.com/news/lawrence-biden-asked-several-questions-033023123.html)
-- Jul 12 - [This San Diego County freeway is one of the most dangerous in California, study says](https://www.yahoo.com/news/san-diego-county-freeway-one-023201616.html)
 <!-- feed end -->
 
 ### Onstream
