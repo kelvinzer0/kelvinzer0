@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [The iPhone 16 might be more important than you think](https://www.yahoo.com/tech/iphone-16-might-more-important-143312696.html)
-- Jul 12 - [Russian Passenger Jet Crashes Outside Moscow, Killing All on Board](https://www.yahoo.com/news/russian-passenger-jet-crashes-outside-134934287.html)
+- Jul 12 - [‘There are no words’: Missing Sutton girl with autism found dead in neighbor’s pool, police say](https://www.yahoo.com/news/missing-4-old-sutton-girl-143827879.html)
+- Jul 12 - [How to know if you were affected by the AT&T data breach and what to do next](https://www.yahoo.com/news/know-were-affected-t-data-153036461.html)
 - Jul 12 - [North Korea executed 30 teenagers for watching South Korean dramas: reports](https://www.yahoo.com/news/north-korea-executed-30-teenagers-133020737.html)
-- Jul 12 - [How AT&T’s recent data breach affects you](https://finance.yahoo.com/video/t-recent-data-breach-affects-123934850.html)
-- Jul 12 - [Dog Abandoned in Dumpster Saved by South Carolina Rescue](https://www.yahoo.com/news/dog-abandoned-dumpster-saved-south-113654453.html)
+- Jul 12 - [Red Bull RB17 hypercar unveiled: 1,200-hp naturally-aspirated V10 redlines at 15,000 rpm](https://www.autoblog.com/2024/07/12/red-bull-rb17-hypercar-unveiled-1200-hp-naturally-aspirated-v10-redlines-at-15000-rpm/)
+- Jul 12 - [7 Luxury Cars Predicted To Appreciate in Value Over the Next 5 Years](https://finance.yahoo.com/news/7-luxury-cars-predicted-appreciate-130043760.html)
 <!-- feed end -->
 
 ### Onstream
