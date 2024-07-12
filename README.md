@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Lawrence: Biden was asked several questions about NATO that Donald Trump couldn't answer](https://www.yahoo.com/news/lawrence-biden-asked-several-questions-033023123.html)
 - Jul 12 - [This San Diego County freeway is one of the most dangerous in California, study says](https://www.yahoo.com/news/san-diego-county-freeway-one-023201616.html)
 - Jul 12 - [Philippines rejects 'use of force' to undermine its South China Sea interests](https://www.yahoo.com/news/philippines-says-rejects-undermining-south-014352508.html)
-- Jul 11 - [India's Adani Ports to invest $1.2 billion in transshipment terminal, Bloomberg News reports](https://finance.yahoo.com/news/indias-adani-ports-invest-1-234748667.html)
+- Jul 11 - [Biden looks finished – there’s surely no coming back from this](https://www.yahoo.com/news/biden-looks-finished-surely-no-234140709.html)
 - Jul 11 - [Billions of gallons of water from Lake Shasta disappearing into thin air](https://www.yahoo.com/news/hundreds-millions-gallons-water-lake-223656915.html)
+- Jul 11 - [These 4 Southern California cities among America's wealthiest suburbs, report says](https://finance.yahoo.com/news/4-southern-california-cities-among-202914620.html)
 <!-- feed end -->
 
 ### Onstream
