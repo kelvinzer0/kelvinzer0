@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Wildlife officials issue coyote warning after 2 women bitten in Henderson](https://www.yahoo.com/news/wildlife-officials-issue-coyote-warning-005924113.html)
-- Jul 12 - [Iran's Pezeshkian rejects U.S. pressure, praises Russia, China](https://www.yahoo.com/news/irans-pezeshkian-rejects-u-pressure-231101137.html)
-- Jul 12 - [One woman escaped a 'dungeon’ beneath a Missouri home, another was killed. Here's a look at the case](https://www.yahoo.com/news/one-woman-escaped-dungeon-beneath-224606360.html)
+- Jul 13 - [Russia loses ‘astronomical’ 70,000 troops in 60 days](https://www.yahoo.com/news/russia-loses-astronomical-70-000-060000133.html)
+- Jul 12 - [5 people escape hot, acidic pond after SUV drove into inactive geyser in Yellowstone National Park](https://www.yahoo.com/news/5-people-escape-hot-acidic-231440987.html)
 - Jul 12 - [Man gets 226-year prison sentences for killing 2 Alaska Native women. He filmed the torture of one](https://www.yahoo.com/news/man-gets-226-prison-sentences-222035006.html)
 - Jul 12 - [Russia reaches out to Pentagon for call after NATO summit](https://www.yahoo.com/news/russia-reaches-pentagon-call-nato-212252649.html)
+- Jul 12 - [Stop & Shop Store Closings: See list of 32 grocery stores to close in the Northeast](https://finance.yahoo.com/news/stop-shop-store-closings-see-204103915.html)
 <!-- feed end -->
 
 ### Onstream
