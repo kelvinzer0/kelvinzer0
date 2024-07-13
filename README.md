@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Clarence Thomas, a $267,000 RV, and Why American Health Care Sucks](https://www.yahoo.com/news/clarence-thomas-267-000-rv-130000424.html)
+- Jul 13 - [Potential lightning strikes prompt fire warnings through Sunday in parts of Riverside County](https://www.yahoo.com/news/potential-lightning-strikes-prompt-fire-154747855.html)
+- Jul 13 - [Bill Maher picks date when Joe Biden will step down - and it has a huge tie to presidential history](https://www.yahoo.com/news/bill-maher-picks-date-joe-135258777.html)
 - Jul 13 - [Iran's new president vows balance with all countries but warns US his country won't be pressured](https://www.yahoo.com/news/irans-president-vows-balance-countries-120259611.html)
+- Jul 13 - [Feds seek public comment on Nisqually’s proposed casino-resort project in Lacey](https://www.yahoo.com/news/feds-seek-public-nisqually-proposed-120000698.html)
 - Jul 13 - [The One Unexpected Thing Infectious Disease Experts Are Begging You to Stop Doing if You Don't Want to Get COVID This Summer](https://www.yahoo.com/news/one-unexpected-thing-infectious-disease-112500645.html)
-- Jul 13 - [An Indian billionaire’s son is married after lavish celebrations that spotlight his global clout](https://www.yahoo.com/entertainment/indian-billionaire-son-married-lavish-094626388.html)
-- Jul 13 - [Boeing begins 777-9 certification flight trials with US FAA](https://finance.yahoo.com/news/boeing-begins-777x-certification-flight-080652714.html)
 <!-- feed end -->
 
 ### Onstream
