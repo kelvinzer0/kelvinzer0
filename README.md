@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [What’s going to happen when the lifeguard contract expires in Myrtle Beach this fall?](https://www.yahoo.com/news/going-happen-lifeguard-contract-expires-090000907.html)
+- Jul 13 - [Israel targets Hamas military chief; Gaza officials say at least 71 killed](https://www.yahoo.com/news/dozens-palestinians-killed-wounded-israeli-091953217.html)
+- Jul 13 - [Is It Finally Time to Sell Nvidia Stock?](https://finance.yahoo.com/news/finally-time-sell-nvidia-stock-083500474.html)
 - Jul 13 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Pace to Do Something That Hasn't Occurred in 32 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400116.html)
 - Jul 13 - [Timelapse Satellite Imagery Shows Storm Beryl's Formation](https://www.yahoo.com/news/timelapse-satellite-imagery-shows-storm-052315123.html)
-- Jul 12 - [5 people escape hot, acidic pond after SUV drove into inactive geyser in Yellowstone National Park](https://www.yahoo.com/news/5-people-escape-hot-acidic-231440987.html)
-- Jul 12 - [Iran's Pezeshkian rejects U.S. pressure, praises Russia, China](https://www.yahoo.com/news/irans-pezeshkian-rejects-u-pressure-231101137.html)
+- Jul 12 - [Federal appeals court says there is no fundamental right to change one's sex on a birth certificate](https://www.yahoo.com/news/federal-appeals-court-says-no-232854250.html)
 <!-- feed end -->
 
 ### Onstream
