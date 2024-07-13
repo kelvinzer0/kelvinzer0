@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Dolphin mass stranding on Cape Cod found to be the largest in US history](https://www.yahoo.com/news/dolphin-mass-stranding-cape-cod-174804237.html)
+- Jul 13 - [Fatal crash causes roadway shutdown in Las Vegas, expected to last 8 hours](https://www.yahoo.com/news/fatal-crash-causes-roadway-shutdown-165515477.html)
 - Jul 13 - [Is Biden competent to serve again? Here's what health experts say](https://www.yahoo.com/news/biden-competent-serve-again-heres-163541479.html)
+- Jul 13 - [Delta Air Lines adopts new rules for flight attendant uniforms after Palestinian pin flap](https://www.yahoo.com/news/delta-air-lines-adopts-rules-162231649.html)
 - Jul 13 - [Man accused of holding girlfriend captive in Minnesota college dorm room reaches plea deal](https://www.yahoo.com/news/man-accused-holding-girlfriend-captive-152628744.html)
 - Jul 13 - [Bill Maher picks date when Joe Biden will step down - and it has a huge tie to presidential history](https://www.yahoo.com/news/bill-maher-picks-date-joe-135258777.html)
-- Jul 13 - [Heavy equipment begins clearing a huge logjam at the downtown Des Moines river confluence](https://www.yahoo.com/news/heavy-equipment-begins-clearing-huge-122810959.html)
 <!-- feed end -->
 
 ### Onstream
