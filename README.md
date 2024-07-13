@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jul 12 - [Federal appeals court says there is no fundamental right to change one's sex on a birth certificate](https://www.yahoo.com/news/federal-appeals-court-says-no-232854250.html)
 - Jul 12 - [5 people escape hot, acidic pond after SUV drove into inactive geyser in Yellowstone National Park](https://www.yahoo.com/news/5-people-escape-hot-acidic-231440987.html)
 - Jul 12 - [One woman escaped a 'dungeon’ beneath a Missouri home, another was killed. Here's a look at the case](https://www.yahoo.com/news/one-woman-escaped-dungeon-beneath-224606360.html)
-- Jul 12 - [Salt Lake woman douses husband with lighter fluid, sets him on fire, police say](https://www.yahoo.com/news/salt-lake-woman-douses-husband-222228463.html)
 - Jul 12 - [Stop & Shop Store Closings: See list of 32 grocery stores to close in the Northeast](https://finance.yahoo.com/news/stop-shop-store-closings-see-204103915.html)
+- Jul 12 - [Trump teases his VP pick timing and names 4 finalists](https://www.yahoo.com/news/trump-teases-vp-pick-timing-202924837.html)
 <!-- feed end -->
 
 ### Onstream
