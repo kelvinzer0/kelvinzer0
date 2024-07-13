@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [3 Hyper-Growth Stocks That Are Screaming Buys Right Now](https://finance.yahoo.com/news/3-hyper-growth-stocks-screaming-120000361.html)
+- Jul 13 - [One VC shares how he uses AI to find the next big innovator](https://finance.yahoo.com/video/one-vc-shares-uses-ai-110900400.html)
 - Jul 13 - [Israel targets Hamas military chief; Gaza officials say at least 71 killed](https://www.yahoo.com/news/dozens-palestinians-killed-wounded-israeli-091953217.html)
-- Jul 13 - [Is It Finally Time to Sell Nvidia Stock?](https://finance.yahoo.com/news/finally-time-sell-nvidia-stock-083500474.html)
+- Jul 13 - [Institutions snapping up Chinese treasury bonds are shorting the economy, state media says](https://finance.yahoo.com/news/institutions-snapping-chinese-treasury-bonds-080229328.html)
 - Jul 13 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Pace to Do Something That Hasn't Occurred in 32 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400116.html)
-- Jul 13 - [Timelapse Satellite Imagery Shows Storm Beryl's Formation](https://www.yahoo.com/news/timelapse-satellite-imagery-shows-storm-052315123.html)
-- Jul 12 - [Federal appeals court says there is no fundamental right to change one's sex on a birth certificate](https://www.yahoo.com/news/federal-appeals-court-says-no-232854250.html)
 <!-- feed end -->
 
 ### Onstream
