@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [At odds with CPS over staffing cuts, Mayor Johnson signals ‘increased costs’ above $9.9B proposed budget](https://www.yahoo.com/news/odds-cps-over-staffing-cuts-232100520.html)
-- Jul 12 - [Man gets 226-year prison sentences for killing 2 Alaska Native women. He filmed the torture of one](https://www.yahoo.com/news/man-gets-226-prison-sentences-222035006.html)
+- Jul 13 - [Wall Street is bullish on stocks for the 2nd half of the year. Here are each firm's exact forecasts.](https://finance.yahoo.com/news/wall-street-bullish-stocks-2nd-020136106.html)
+- Jul 12 - [5 people escape hot, acidic pond after SUV drove into inactive geyser in Yellowstone National Park](https://www.yahoo.com/news/5-people-escape-hot-acidic-231440987.html)
 - Jul 12 - [Stop & Shop Store Closings: See list of 32 grocery stores to close in the Northeast](https://finance.yahoo.com/news/stop-shop-store-closings-see-204103915.html)
 - Jul 12 - [Trump teases his VP pick timing and names 4 finalists](https://www.yahoo.com/news/trump-teases-vp-pick-timing-202924837.html)
 - Jul 12 - [Judge ends Rudy Giuliani bankruptcy case, says he flouted the process with his lack of transparency](https://www.yahoo.com/news/judge-throws-rudy-giulianis-bankruptcy-190904699.html)
