@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [10 Best Money Moves To Make Every Time $5,000 Is Deposited in Your Checking Account](https://finance.yahoo.com/news/10-best-money-moves-every-130029469.html)
+- Jul 13 - [Bill Maher picks date when Joe Biden will step down - and it has a huge tie to presidential history](https://www.yahoo.com/news/bill-maher-picks-date-joe-135258744.html)
+- Jul 13 - [WCPO 'aware' of incident involving chief meteorologist Steve Raleigh's family](https://www.yahoo.com/news/wcpo-aware-incident-involving-chief-122106828.html)
 - Jul 13 - [Iran's new president vows balance with all countries but warns US his country won't be pressured](https://www.yahoo.com/news/irans-president-vows-balance-countries-120259611.html)
-- Jul 13 - [In aftermath of Hurricane Beryl, Rockets host storm relief drive for Houston community](https://www.yahoo.com/news/aftermath-hurricane-beryl-rockets-host-115728239.html)
-- Jul 13 - [Israel targets Hamas military chief; Gaza health officials say at least 71 killed](https://www.yahoo.com/news/dozens-palestinians-killed-wounded-israeli-091953217.html)
-- Jul 13 - [Boeing begins 777-9 certification flight trials with US FAA](https://finance.yahoo.com/news/boeing-begins-777x-certification-flight-080652714.html)
+- Jul 13 - [The One Unexpected Thing Infectious Disease Experts Are Begging You to Stop Doing if You Don't Want to Get COVID This Summer](https://www.yahoo.com/news/one-unexpected-thing-infectious-disease-112500645.html)
+- Jul 13 - [An Indian billionaire’s son is married after lavish celebrations that spotlight his global clout](https://www.yahoo.com/entertainment/indian-billionaire-son-married-lavish-094626388.html)
 <!-- feed end -->
 
 ### Onstream
