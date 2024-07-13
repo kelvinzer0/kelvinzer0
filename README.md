@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [Federal appeals court says there is no fundamental right to change one's sex on a birth certificate](https://www.yahoo.com/news/federal-appeals-court-says-no-232854250.html)
+- Jul 12 - [5 people escape hot, acidic pond after SUV drove into inactive geyser in Yellowstone National Park](https://www.yahoo.com/news/5-people-escape-hot-acidic-231440987.html)
 - Jul 12 - [One woman escaped a 'dungeon’ beneath a Missouri home, another was killed. Here's a look at the case](https://www.yahoo.com/news/one-woman-escaped-dungeon-beneath-224606360.html)
-- Jul 12 - [Man gets 226-year prison sentences for killing 2 Alaska Native women. He filmed the torture of one](https://www.yahoo.com/news/man-gets-226-prison-sentences-222035006.html)
-- Jul 12 - [Trump teases his VP pick timing and names 4 finalists](https://www.yahoo.com/news/trump-teases-vp-pick-timing-202924837.html)
-- Jul 12 - [Judge ends Rudy Giuliani bankruptcy case, says he flouted the process with his lack of transparency](https://www.yahoo.com/news/judge-throws-rudy-giulianis-bankruptcy-190904699.html)
-- Jul 12 - [US court rejects challenges to FCC approval of SpaceX satellites](https://finance.yahoo.com/news/us-court-rejects-challenges-fcc-175501164.html)
+- Jul 12 - [Salt Lake woman douses husband with lighter fluid, sets him on fire, police say](https://www.yahoo.com/news/salt-lake-woman-douses-husband-222228463.html)
+- Jul 12 - [Stop & Shop Store Closings: See list of 32 grocery stores to close in the Northeast](https://finance.yahoo.com/news/stop-shop-store-closings-see-204103915.html)
 <!-- feed end -->
 
 ### Onstream
