@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [One woman escaped a 'dungeon’ beneath a Missouri home, another was killed. Here's a look at the case](https://www.yahoo.com/news/one-woman-escaped-dungeon-beneath-224606360.html)
+- Jul 12 - [Man gets 226-year prison sentences for killing 2 Alaska Native women. He filmed the torture of one](https://www.yahoo.com/news/man-gets-226-prison-sentences-222035006.html)
 - Jul 12 - [Trump teases his VP pick timing and names 4 finalists](https://www.yahoo.com/news/trump-teases-vp-pick-timing-202924837.html)
-- Jul 12 - [Russia fires back at Biden over Putin comments at NATO summit: ‘Absolutely unacceptable’](https://www.yahoo.com/news/russia-fires-back-biden-over-195316657.html)
-- Jul 12 - [The gods must be angry: Mexico 'cancels' statue of Greek god Poseidon after dispute with local deity](https://www.yahoo.com/news/gods-must-angry-mexico-cancels-165428831.html)
-- Jul 12 - [Number of prostitutes registered in Germany rises slightly](https://www.yahoo.com/news/number-prostitutes-registered-germany-rises-165129890.html)
-- Jul 12 - [Germany set to abstain in vote on EU tariffs for China EVs, sources say](https://finance.yahoo.com/news/germany-set-abstain-vote-eu-153057923.html)
+- Jul 12 - [Judge ends Rudy Giuliani bankruptcy case, says he flouted the process with his lack of transparency](https://www.yahoo.com/news/judge-throws-rudy-giulianis-bankruptcy-190904699.html)
+- Jul 12 - [US court rejects challenges to FCC approval of SpaceX satellites](https://finance.yahoo.com/news/us-court-rejects-challenges-fcc-175501164.html)
 <!-- feed end -->
 
 ### Onstream
