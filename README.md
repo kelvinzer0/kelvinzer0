@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Dolphin mass stranding on Cape Cod found to be the largest in US history](https://www.yahoo.com/news/dolphin-mass-stranding-cape-cod-174804237.html)
+- Jul 13 - [Trump is safe, Secret Service says after shots ring out at rally](https://www.yahoo.com/news/sounds-multiple-shots-heard-trump-222428725.html)
+- Jul 13 - [The Stock Market Is Doing Something Unseen Since the Year 2000. History Says This Happens Next.](https://finance.yahoo.com/news/stock-market-doing-something-unseen-200800942.html)
+- Jul 13 - [Trump leaves rally after loud noises erupt](https://www.yahoo.com/news/trump-leaves-rally-loud-noises-181816878.html)
 - Jul 13 - [Fatal crash causes roadway shutdown in Las Vegas, expected to last 8 hours](https://www.yahoo.com/news/fatal-crash-causes-roadway-shutdown-165515477.html)
 - Jul 13 - [Is Biden competent to serve again? Here's what health experts say](https://www.yahoo.com/news/biden-competent-serve-again-heres-163541479.html)
-- Jul 13 - [Delta Air Lines adopts new rules for flight attendant uniforms after Palestinian pin flap](https://www.yahoo.com/news/delta-air-lines-adopts-rules-162231649.html)
-- Jul 13 - [Man accused of holding girlfriend captive in Minnesota college dorm room reaches plea deal](https://www.yahoo.com/news/man-accused-holding-girlfriend-captive-152628744.html)
 <!-- feed end -->
 
 ### Onstream
