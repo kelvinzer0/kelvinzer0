@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [3 Hyper-Growth Stocks That Are Screaming Buys Right Now](https://finance.yahoo.com/news/3-hyper-growth-stocks-screaming-120000361.html)
-- Jul 13 - [One VC shares how he uses AI to find the next big innovator](https://finance.yahoo.com/video/one-vc-shares-uses-ai-110900400.html)
-- Jul 13 - [Israel targets Hamas military chief; Gaza officials say at least 71 killed](https://www.yahoo.com/news/dozens-palestinians-killed-wounded-israeli-091953217.html)
+- Jul 13 - [WCPO 'aware' of incident involving chief meteorologist Steve Raleigh's family](https://www.yahoo.com/news/wcpo-aware-incident-involving-chief-122106828.html)
+- Jul 13 - [Israel targets Hamas military chief; Gaza health officials say at least 71 killed](https://www.yahoo.com/news/dozens-palestinians-killed-wounded-israeli-091953217.html)
+- Jul 13 - [Boeing begins 777-9 certification flight trials with US FAA](https://finance.yahoo.com/news/boeing-begins-777x-certification-flight-080652714.html)
 - Jul 13 - [Institutions snapping up Chinese treasury bonds are shorting the economy, state media says](https://finance.yahoo.com/news/institutions-snapping-chinese-treasury-bonds-080229328.html)
 - Jul 13 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Is on Pace to Do Something That Hasn't Occurred in 32 Years](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400116.html)
 <!-- feed end -->
