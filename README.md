@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Trump is safe, Secret Service says after shots ring out at rally](https://www.yahoo.com/news/sounds-multiple-shots-heard-trump-222428725.html)
-- Jul 13 - [The Stock Market Is Doing Something Unseen Since the Year 2000. History Says This Happens Next.](https://finance.yahoo.com/news/stock-market-doing-something-unseen-200800942.html)
-- Jul 13 - [Trump leaves rally after loud noises erupt](https://www.yahoo.com/news/trump-leaves-rally-loud-noises-181816878.html)
-- Jul 13 - [Fatal crash causes roadway shutdown in Las Vegas, expected to last 8 hours](https://www.yahoo.com/news/fatal-crash-causes-roadway-shutdown-165515477.html)
-- Jul 13 - [Is Biden competent to serve again? Here's what health experts say](https://www.yahoo.com/news/biden-competent-serve-again-heres-163541479.html)
+- Jul 14 - [Trump rally shooting witness says he saw rifle-toting man ‘crawling up the roof’ before Secret Service ‘blew his head off’](https://www.yahoo.com/news/trump-rally-shooting-witness-claims-002027344.html)
+- Jul 14 - [Secret Service killed suspected shooter at Trump rally, according to law enforcement](https://www.yahoo.com/news/secret-killed-suspected-shooter-trump-001010940.html)
+- Jul 13 - [Photo of bloodied Trump fist pumping immediately spotlighted by his allies](https://www.yahoo.com/news/photo-bloodied-trump-fist-bumping-234322596.html)
+- Jul 13 - [North Korea's Kim sacks 'irresponsible' officials over new town project](https://www.yahoo.com/news/north-koreas-kim-sacks-irresponsible-234228663.html)
+- Jul 13 - [Breaking: Trump rushed offstage at Pennsylvania event](https://www.yahoo.com/news/breaking-trump-rushed-offstage-pennsylvania-223408310.html)
 <!-- feed end -->
 
 ### Onstream
