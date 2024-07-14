@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Here's what we know about Thomas Matthew Crooks, the suspected Trump rally shooter](https://www.yahoo.com/news/heres-know-thomas-matthew-crooks-084127479.html)
 - Jul 14 - [Rising seas wiped out an entire US species for the first time. Scientists say it’s a sign of things to come](https://www.yahoo.com/news/rising-seas-wiped-entire-us-070250635.html)
-- Jul 14 - [CBS anchor chides Trump statement after assassination attempt: 'No call for lowering the temperature'](https://www.yahoo.com/news/cbs-anchor-chides-trump-statement-042239004.html)
 - Jul 14 - [What's worse than thieves hacking into your bank account? When they steal your phone number, too](https://www.yahoo.com/news/whats-worse-thieves-hacking-bank-040154283.html)
-- Jul 14 - [The West finally allowed Ukraine to strike back at Russia — and it seems to be working](https://www.yahoo.com/news/west-finally-allowed-ukraine-strike-040042229.html)
-- Jul 14 - [The attempt on Trump’s life changes everything](https://www.yahoo.com/news/attempt-trump-life-changes-everything-021346890.html)
+- Jul 14 - [A shocking act that will reshape the presidential race](https://www.yahoo.com/news/shocking-act-reshape-presidential-race-024948167.html)
+- Jul 14 - [This could hand Trump the White House](https://www.yahoo.com/news/attempt-trump-life-changes-everything-021346890.html)
 <!-- feed end -->
 
 ### Onstream
