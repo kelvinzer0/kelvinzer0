@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Condo seeking to evict dogs gets gobsmacking legal estimate to make their case](https://www.yahoo.com/entertainment/condo-seeking-evict-dogs-gets-120027428.html)
 - Jul 14 - [14 Things I Just Learned About Women's Bodies That Have Me Baffled](https://www.yahoo.com/lifestyle/14-things-just-learned-womens-111603434.html)
-- Jul 14 - [I Absolutely Prefer a Traditional IRA to a Roth IRA for Retirement Savings. Here's Why.](https://finance.yahoo.com/news/absolutely-prefer-traditional-ira-roth-102000250.html)
-- Jul 14 - [Popular CT restaurant closes after not paying rent, court documents say](https://www.yahoo.com/news/popular-ct-restaurant-closes-not-100000505.html)
+- Jul 14 - [I'm moving to America's fastest-growing city. I get why it's so popular, but I hope it keeps the small-town Texas charm.](https://www.yahoo.com/news/im-moving-americas-fastest-growing-102302764.html)
+- Jul 14 - [Who was Thomas Matthew Crooks? What we know about Trump’s attempted assassin](https://www.yahoo.com/news/thomas-matthew-crooks-know-trump-101624279.html)
+- Jul 14 - [Astronaut Photographs Glowing Orbs Far Below Space Station](https://www.yahoo.com/news/astronaut-photographs-glowing-orbs-far-100050537.html)
 - Jul 14 - [Experts Say This Is The One Food You Should Be Eating More Of As You Age](https://www.yahoo.com/lifestyle/experts-one-food-eating-more-091602456.html)
 <!-- feed end -->
 
