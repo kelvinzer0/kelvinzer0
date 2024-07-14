@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Trump rally shooting victim died shielding family from bullets](https://www.yahoo.com/news/trump-rally-shooting-victim-died-193109557.html)
 - Jul 14 - [Gun in assassination attempt belonged to Trump shooter's father, sources say](https://www.yahoo.com/news/gun-assassination-attempt-belonged-trump-192239292.html)
-- Jul 14 - [Authorities Reveal Suspicions from Strange Scene Where Noah Presgrove’s Body Was Found (Exclusive)](https://www.yahoo.com/news/authorities-reveal-suspicions-strange-scene-192158923.html)
-- Jul 14 - [More than 2,000 patients potentially exposed to HIV and Hepatitis by an anesthesiologist](https://www.yahoo.com/news/more-2-000-patients-potentially-174701946.html)
-- Jul 14 - [Suspect in Trump rally shooting had explosive materials in vehicle, source says](https://www.yahoo.com/news/suspect-trump-rally-shooting-had-161555875.html)
+- Jul 14 - [Twin Cities hit with hail and power outages: When will power be restored?](https://www.yahoo.com/news/twin-cities-hit-hail-power-161522803.html)
+- Jul 14 - [Wounded Russian soldiers – some on crutches – used in ‘meat wave’ attacks](https://www.yahoo.com/news/wounded-russian-soldiers-crutches-used-161048083.html)
+- Jul 14 - [Extravagant wedding celebrations for the son of Asia's richest man conclude with a reception](https://www.yahoo.com/entertainment/extravagant-wedding-celebrations-son-asias-155626706.html)
+- Jul 14 - [Neighbor speaks out amid investigation at Trump rally gunman's home](https://www.yahoo.com/news/neighbor-speaks-amid-investigation-trump-152311710.html)
 <!-- feed end -->
 
 ### Onstream
