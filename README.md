@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [What's worse than thieves hacking into your bank account? When they steal your phone number, too](https://www.yahoo.com/news/whats-worse-thieves-hacking-bank-040154283.html)
 - Jul 14 - [The West finally allowed Ukraine to strike back at Russia — and it seems to be working](https://www.yahoo.com/news/west-finally-allowed-ukraine-strike-040042229.html)
 - Jul 14 - [The attempt on Trump’s life changes everything](https://www.yahoo.com/news/attempt-trump-life-changes-everything-021346890.html)
 - Jul 14 - [Billionaire Bill Ackman endorses Trump in US presidential race](https://www.yahoo.com/news/billionaire-bill-ackman-endorses-trump-021130759.html)
-- Jul 14 - [MAGA Immediately Blames Biden for Trump Assassination Attempt](https://www.yahoo.com/news/maga-immediately-blames-biden-trump-015131639.html)
-- Jul 14 - [Trump rally shooting breeds social media lies and sick conspiracies. What's wrong with us?](https://www.yahoo.com/news/trump-rally-shooting-breeds-social-012506275.html)
+- Jul 14 - [At a Trump rally, shocking images fill TV screens. Then reporters rush to find out what it means](https://www.yahoo.com/news/trump-rally-shocking-images-fill-015833040.html)
 <!-- feed end -->
 
 ### Onstream
