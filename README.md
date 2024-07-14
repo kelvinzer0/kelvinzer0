@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Treasury Secretary Janet Yellen dismisses notion of ‘sticker shock’ in US grocery stores](https://finance.yahoo.com/news/treasury-secretary-janet-yellen-dismisses-114400670.html)
 - Jul 14 - [A shocking act that will reshape the presidential race](https://www.yahoo.com/news/shocking-act-reshape-presidential-race-024948167.html)
 - Jul 14 - [14 Things I Just Learned About Women's Bodies That Have Me Baffled](https://www.yahoo.com/lifestyle/14-things-just-learned-womens-111603434.html)
-- Jul 14 - [See inside the $21 million Embraer Praetor 600, one of the most advanced midsize private jets on the market](https://www.yahoo.com/news/see-inside-21-million-embraer-104302973.html)
-- Jul 14 - [I'm moving to America's fastest-growing city. I get why it's so popular, but I hope it keeps the small-town Texas charm.](https://www.yahoo.com/news/im-moving-americas-fastest-growing-102302764.html)
+- Jul 14 - [I Have Driven Hundreds Of Luxury Cars These Are The Three Best and Worst For Your Money](https://finance.yahoo.com/news/driven-hundreds-luxury-cars-three-110132016.html)
 - Jul 14 - [Astronaut Photographs Glowing Orbs Far Below Space Station](https://www.yahoo.com/news/astronaut-photographs-glowing-orbs-far-100050537.html)
 <!-- feed end -->
 
