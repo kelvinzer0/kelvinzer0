@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Kinzinger says JD Vance’s response to shooting should ‘disqualify’ him from VP consideration](https://www.yahoo.com/news/kinzinger-says-jd-vance-response-204240668.html)
+- Jul 14 - [Ex-Secret Service special agents explain why counter-sniper who saved Trump's life may have lost crucial seconds](https://www.yahoo.com/news/ex-secret-special-agents-explain-201237595.html)
 - Jul 14 - [Gun in assassination attempt belonged to Trump shooter's father, sources say](https://www.yahoo.com/news/gun-assassination-attempt-belonged-trump-192239292.html)
-- Jul 14 - [Twin Cities hit with hail and power outages: When will power be restored?](https://www.yahoo.com/news/twin-cities-hit-hail-power-161522803.html)
-- Jul 14 - [Wounded Russian soldiers – some on crutches – used in ‘meat wave’ attacks](https://www.yahoo.com/news/wounded-russian-soldiers-crutches-used-161048083.html)
-- Jul 14 - [Extravagant wedding celebrations for the son of Asia's richest man conclude with a reception](https://www.yahoo.com/entertainment/extravagant-wedding-celebrations-son-asias-155626706.html)
-- Jul 14 - [Neighbor speaks out amid investigation at Trump rally gunman's home](https://www.yahoo.com/news/neighbor-speaks-amid-investigation-trump-152311710.html)
+- Jul 14 - [Confrontation over ‘anti-Trump’ sign turns violent, APD says](https://www.yahoo.com/news/confrontation-over-anti-trump-sign-185630329.html)
+- Jul 14 - [More than 2,000 patients potentially exposed to HIV and Hepatitis by an anesthesiologist](https://www.yahoo.com/news/more-2-000-patients-potentially-174701946.html)
 <!-- feed end -->
 
 ### Onstream
