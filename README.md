@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Biden speaks out about shooting at Trump rally](https://www.yahoo.com/news/sick-biden-reacts-shooting-trump-003648204.html)
+- Jul 14 - [Witness at Trump rally describes seeing the person who died being shot in head](https://www.yahoo.com/news/witness-trump-rally-describes-seeing-031647430.html)
+- Jul 14 - [Trump security was warned about gunman four minutes before shooting, witness claims](https://www.yahoo.com/news/trump-security-warned-gunman-four-021520167.html)
 - Jul 14 - [The attempt on Trump’s life changes everything](https://www.yahoo.com/news/attempt-trump-life-changes-everything-021346890.html)
 - Jul 14 - [MAGA Immediately Blames Biden for Trump Assasination Attempt](https://www.yahoo.com/news/maga-immediately-blames-biden-trump-015131639.html)
-- Jul 14 - [What we know about the shooting at a Donald Trump rally](https://www.yahoo.com/news/know-reports-shots-fired-donald-224724479.html)
-- Jul 14 - [Gunman Crawled Up on Nearby Roof Before Shooting at Trump, Witnesses Say](https://www.yahoo.com/news/gunman-crawled-nearby-roof-shooting-005656429.html)
-- Jul 14 - [Doctor details treating audience member shot at Trump rally](https://www.yahoo.com/news/doctor-details-treating-audience-member-004923098.html)
 <!-- feed end -->
 
 ### Onstream
