@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Rising seas wiped out an entire US species for the first time. Scientists say it’s a sign of things to come](https://www.yahoo.com/news/rising-seas-wiped-entire-us-070250635.html)
+- Jul 14 - [CBS anchor chides Trump statement after assassination attempt: 'No call for lowering the temperature'](https://www.yahoo.com/news/cbs-anchor-chides-trump-statement-042239004.html)
 - Jul 14 - [What's worse than thieves hacking into your bank account? When they steal your phone number, too](https://www.yahoo.com/news/whats-worse-thieves-hacking-bank-040154283.html)
 - Jul 14 - [The West finally allowed Ukraine to strike back at Russia — and it seems to be working](https://www.yahoo.com/news/west-finally-allowed-ukraine-strike-040042229.html)
 - Jul 14 - [The attempt on Trump’s life changes everything](https://www.yahoo.com/news/attempt-trump-life-changes-everything-021346890.html)
-- Jul 14 - [Billionaire Bill Ackman endorses Trump in US presidential race](https://www.yahoo.com/news/billionaire-bill-ackman-endorses-trump-021130759.html)
-- Jul 14 - [At a Trump rally, shocking images fill TV screens. Then reporters rush to find out what it means](https://www.yahoo.com/news/trump-rally-shocking-images-fill-015833040.html)
 <!-- feed end -->
 
 ### Onstream
