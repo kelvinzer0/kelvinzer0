@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Treasury Secretary Janet Yellen dismisses notion of ‘sticker shock’ in US grocery stores](https://finance.yahoo.com/news/treasury-secretary-janet-yellen-dismisses-114400670.html)
-- Jul 14 - [A shocking act that will reshape the presidential race](https://www.yahoo.com/news/shocking-act-reshape-presidential-race-024948167.html)
-- Jul 14 - [14 Things I Just Learned About Women's Bodies That Have Me Baffled](https://www.yahoo.com/lifestyle/14-things-just-learned-womens-111603434.html)
-- Jul 14 - [I Have Driven Hundreds Of Luxury Cars These Are The Three Best and Worst For Your Money](https://finance.yahoo.com/news/driven-hundreds-luxury-cars-three-110132016.html)
-- Jul 14 - [Astronaut Photographs Glowing Orbs Far Below Space Station](https://www.yahoo.com/news/astronaut-photographs-glowing-orbs-far-100050537.html)
+- Jul 14 - [Here's How Much You Need To Walk Every Day To Reduce Your Risk Of Heart Disease](https://www.yahoo.com/lifestyle/heres-much-walk-every-day-151603009.html)
+- Jul 14 - [ER doctor who helped Trump rally shooting victim recalls emotional moment with Army vet](https://www.yahoo.com/news/er-doctor-helped-trump-rally-151007106.html)
+- Jul 14 - [Reagan survived an assassination attempt and his response changed the trajectory of his presidency](https://www.yahoo.com/news/reagan-survived-assassination-attempt-response-143700970.html)
+- Jul 14 - [6 Foreign Cars That Lose Their Value Right Off the Lot](https://finance.yahoo.com/news/6-foreign-cars-lose-value-140034041.html)
+- Jul 14 - [FBI identifies Trump rally gunman, searches his home](https://www.yahoo.com/news/fbi-identifies-trump-rally-gunman-122352289.html)
 <!-- feed end -->
 
 ### Onstream
