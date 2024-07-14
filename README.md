@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Condo seeking to evict dogs gets gobsmacking legal estimate to make their case](https://www.yahoo.com/entertainment/condo-seeking-evict-dogs-gets-120027428.html)
+- Jul 14 - [14 Things I Just Learned About Women's Bodies That Have Me Baffled](https://www.yahoo.com/lifestyle/14-things-just-learned-womens-111603434.html)
+- Jul 14 - [I Absolutely Prefer a Traditional IRA to a Roth IRA for Retirement Savings. Here's Why.](https://finance.yahoo.com/news/absolutely-prefer-traditional-ira-roth-102000250.html)
 - Jul 14 - [Popular CT restaurant closes after not paying rent, court documents say](https://www.yahoo.com/news/popular-ct-restaurant-closes-not-100000505.html)
-- Jul 14 - [Rising seas wiped out an entire US species for the first time. Scientists say it’s a sign of things to come](https://www.yahoo.com/news/rising-seas-wiped-entire-us-070250635.html)
-- Jul 14 - [What's worse than thieves hacking into your bank account? When they steal your phone number, too](https://www.yahoo.com/news/whats-worse-thieves-hacking-bank-040154283.html)
-- Jul 14 - [The West finally allowed Ukraine to strike back at Russia — and it seems to be working](https://www.yahoo.com/news/west-finally-allowed-ukraine-strike-040042229.html)
-- Jul 14 - [A shocking act that will reshape the presidential race](https://www.yahoo.com/news/shocking-act-reshape-presidential-race-024948167.html)
+- Jul 14 - [Experts Say This Is The One Food You Should Be Eating More Of As You Age](https://www.yahoo.com/lifestyle/experts-one-food-eating-more-091602456.html)
 <!-- feed end -->
 
 ### Onstream
