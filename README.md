@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 14 - [Trump rally shooting witness says he saw rifle-toting man ‘crawling up the roof’ before Secret Service ‘blew his head off’](https://www.yahoo.com/news/trump-rally-shooting-witness-claims-002027344.html)
-- Jul 14 - [Secret Service killed suspected shooter at Trump rally, according to law enforcement](https://www.yahoo.com/news/secret-killed-suspected-shooter-trump-001010940.html)
-- Jul 13 - [Photo of bloodied Trump fist pumping immediately spotlighted by his allies](https://www.yahoo.com/news/photo-bloodied-trump-fist-bumping-234322596.html)
+- Jul 14 - [MAGA Immediately Blames Biden for Trump Assasination Attempt](https://www.yahoo.com/news/maga-immediately-blames-biden-trump-015131639.html)
+- Jul 14 - [What we know about the shooting at a Donald Trump rally](https://www.yahoo.com/news/know-reports-shots-fired-donald-224724479.html)
+- Jul 14 - [Doctor details treating audience member shot at Trump rally](https://www.yahoo.com/news/doctor-details-treating-audience-member-004923098.html)
 - Jul 13 - [North Korea's Kim sacks 'irresponsible' officials over new town project](https://www.yahoo.com/news/north-koreas-kim-sacks-irresponsible-234228663.html)
-- Jul 13 - [Breaking: Trump rushed offstage at Pennsylvania event](https://www.yahoo.com/news/breaking-trump-rushed-offstage-pennsylvania-223408310.html)
 <!-- feed end -->
 
 ### Onstream
