@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [There’s finally a retro PC emulator on the App Store](https://www.yahoo.com/news/theres-finally-a-pc-emulator-on-the-app-store-175320490.html)
-- Jul 14 - [Several Republican lawmakers blame Democrats' rhetoric for Trump assassination attempt](https://www.yahoo.com/news/several-republican-lawmakers-blame-democrats-153110879.html)
-- Jul 14 - [ER doctor who helped Trump rally shooting victim recalls emotional moment with Army vet](https://www.yahoo.com/news/er-doctor-helped-trump-rally-151007106.html)
-- Jul 14 - [Reagan survived an assassination attempt and his response changed the trajectory of his presidency](https://www.yahoo.com/news/reagan-survived-assassination-attempt-response-143700970.html)
-- Jul 14 - [FBI identifies Trump rally gunman, searches his home](https://www.yahoo.com/news/fbi-identifies-trump-rally-gunman-122352289.html)
+- Jul 14 - [Authorities Reveal Suspicions from Strange Scene Where Noah Presgrove’s Body Was Found (Exclusive)](https://www.yahoo.com/news/authorities-reveal-suspicions-strange-scene-192158923.html)
+- Jul 14 - [Former fire chief identified as spectator killed during Trump rally shooting](https://www.yahoo.com/news/former-fire-chief-identified-spectator-160129578.html)
+- Jul 14 - [Trump rally shooting suspect's photo released](https://www.yahoo.com/news/trump-rally-shooting-suspects-photo-174356505.html)
+- Jul 14 - [Suspect in Trump rally shooting had explosive materials in vehicle, source says](https://www.yahoo.com/news/suspect-trump-rally-shooting-had-161555875.html)
+- Jul 14 - [Wounded Russian soldiers – some on crutches – used in ‘meat wave’ attacks](https://www.yahoo.com/news/wounded-russian-soldiers-crutches-used-161048083.html)
 <!-- feed end -->
 
 ### Onstream
