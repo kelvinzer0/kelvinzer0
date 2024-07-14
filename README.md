@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [A shocking act that will reshape the presidential race](https://www.yahoo.com/news/shocking-act-reshape-presidential-race-024948167.html)
-- Jul 14 - [Witness at Trump rally describes seeing the person who died being shot in head](https://www.yahoo.com/news/witness-trump-rally-describes-seeing-031647430.html)
-- Jul 14 - [Trump security was warned about gunman four minutes before shooting, witness claims](https://www.yahoo.com/news/trump-security-warned-gunman-four-021520167.html)
+- Jul 14 - [The West finally allowed Ukraine to strike back at Russia — and it seems to be working](https://www.yahoo.com/news/west-finally-allowed-ukraine-strike-040042229.html)
 - Jul 14 - [The attempt on Trump’s life changes everything](https://www.yahoo.com/news/attempt-trump-life-changes-everything-021346890.html)
 - Jul 14 - [Billionaire Bill Ackman endorses Trump in US presidential race](https://www.yahoo.com/news/billionaire-bill-ackman-endorses-trump-021130759.html)
+- Jul 14 - [MAGA Immediately Blames Biden for Trump Assassination Attempt](https://www.yahoo.com/news/maga-immediately-blames-biden-trump-015131639.html)
+- Jul 14 - [Trump rally shooting breeds social media lies and sick conspiracies. What's wrong with us?](https://www.yahoo.com/news/trump-rally-shooting-breeds-social-012506275.html)
 <!-- feed end -->
 
 ### Onstream
