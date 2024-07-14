@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Taliban leaders filmed in Afghanistan dancing despite ban](https://www.yahoo.com/news/taliban-leaders-filmed-afghanistan-dancing-162012232.html)
-- Jul 14 - [Suspect in Trump rally shooting had explosive materials in vehicle, source says](https://www.yahoo.com/news/suspect-trump-rally-shooting-had-161555875.html)
-- Jul 14 - [Wounded Russian soldiers – some on crutches – used in ‘meat wave’ attacks](https://www.yahoo.com/news/wounded-russian-soldiers-crutches-used-161048083.html)
+- Jul 14 - [There’s finally a retro PC emulator on the App Store](https://www.yahoo.com/news/theres-finally-a-pc-emulator-on-the-app-store-175320490.html)
+- Jul 14 - [Several Republican lawmakers blame Democrats' rhetoric for Trump assassination attempt](https://www.yahoo.com/news/several-republican-lawmakers-blame-democrats-153110879.html)
+- Jul 14 - [ER doctor who helped Trump rally shooting victim recalls emotional moment with Army vet](https://www.yahoo.com/news/er-doctor-helped-trump-rally-151007106.html)
 - Jul 14 - [Reagan survived an assassination attempt and his response changed the trajectory of his presidency](https://www.yahoo.com/news/reagan-survived-assassination-attempt-response-143700970.html)
-- Jul 14 - [Former Secret Service agent who took a bullet for Reagan said the Trump shooting was a failure 'plain and simple'](https://www.yahoo.com/news/former-secret-agent-took-bullet-131923633.html)
+- Jul 14 - [FBI identifies Trump rally gunman, searches his home](https://www.yahoo.com/news/fbi-identifies-trump-rally-gunman-122352289.html)
 <!-- feed end -->
 
 ### Onstream
