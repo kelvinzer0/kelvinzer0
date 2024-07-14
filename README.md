@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Wounded Russian soldiers – some on crutches – used in ‘meat wave’ attacks](https://www.yahoo.com/news/wounded-russian-soldiers-crutches-used-161048083.html)
 - Jul 14 - [Here's How Much You Need To Walk Every Day To Reduce Your Risk Of Heart Disease](https://www.yahoo.com/lifestyle/heres-much-walk-every-day-151603009.html)
-- Jul 14 - [ER doctor who helped Trump rally shooting victim recalls emotional moment with Army vet](https://www.yahoo.com/news/er-doctor-helped-trump-rally-151007106.html)
+- Jul 14 - [Melania Trump Gives Rare Statement After Donald Trump's Rally Shooting](https://www.yahoo.com/news/melania-trump-gives-rare-statement-145425591.html)
 - Jul 14 - [Reagan survived an assassination attempt and his response changed the trajectory of his presidency](https://www.yahoo.com/news/reagan-survived-assassination-attempt-response-143700970.html)
-- Jul 14 - [6 Foreign Cars That Lose Their Value Right Off the Lot](https://finance.yahoo.com/news/6-foreign-cars-lose-value-140034041.html)
 - Jul 14 - [FBI identifies Trump rally gunman, searches his home](https://www.yahoo.com/news/fbi-identifies-trump-rally-gunman-122352289.html)
 <!-- feed end -->
 
