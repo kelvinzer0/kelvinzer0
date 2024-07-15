@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Scientists have confirmed a cave on the moon that could be used to shelter future explorers](https://www.yahoo.com/news/scientists-confirmed-cave-moon-could-150533928.html)
-- Jul 15 - [All Life on Earth Comes From One Single Ancestor. And It's So Much Older Than We Thought.](https://www.yahoo.com/news/life-earth-comes-one-single-144200846.html)
-- Jul 15 - [Fossil of an ancient shark that swam in the age of dinosaurs solves centuries-long mystery](https://www.yahoo.com/news/fossil-ancient-shark-swam-age-140204611.html)
-- Jul 15 - [Oil tanker seized by Iran in 2023 anchors near UAE coast, tracking data shows](https://www.yahoo.com/news/oil-tanker-seized-iran-2023-140121471.html)
-- Jul 15 - [Judge tosses Trump documents case, ruling prosecutor was unlawfully appointed](https://www.yahoo.com/news/judge-tosses-trump-documents-case-135928486.html)
+- Jul 15 - [Lexington officer resigns after violating dept. policies on body camera, leaving his post](https://www.yahoo.com/news/lexington-officer-resigns-violating-dept-180150823.html)
+- Jul 15 - [New England fishermen sentenced in complex herring fraud case](https://www.yahoo.com/news/england-fishermen-sentenced-complex-herring-172956527.html)
+- Jul 15 - [The Latest | Israeli drone strike kills a prominent Syrian businessman with close ties to Assad](https://www.yahoo.com/news/latest-israeli-drone-strike-kills-172119726.html)
+- Jul 15 - [Growing Kansas restaurant chain opens 3rd KC area spot this week. A 4th is coming soon](https://www.yahoo.com/news/growing-kansas-restaurant-chain-opens-170203032.html)
+- Jul 15 - [What to expect from Netflix, TSMC, ASML earnings this week](https://finance.yahoo.com/video/expect-netflix-tsmc-asml-earnings-165628449.html)
 <!-- feed end -->
 
 ### Onstream
