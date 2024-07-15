@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 15 - [In beachy Galveston, locals buckle down without power after Beryl's blow during peak tourist season](https://www.yahoo.com/news/beachy-galveston-locals-buckle-down-051312876.html)
+- Jul 15 - [Analysis-Nvidia investor dilemma: how much is too much in a stock portfolio?](https://finance.yahoo.com/news/analysis-nvidia-investor-dilemma-much-050809578.html)
 - Jul 15 - [From basement to battlefield: Ukrainian startups create low-cost robots to fight Russia](https://www.yahoo.com/news/basement-battlefield-ukrainian-startups-create-041009326.html)
 - Jul 15 - [If You're Doing This In Your Sleep, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/youre-doing-sleep-time-see-021602135.html)
 - Jul 15 - [Ocasio-Cortez rips House Democrat over anonymous quote: ‘You should absolutely retire’](https://www.yahoo.com/news/ocasio-cortez-rips-house-democrat-005524323.html)
-- Jul 15 - [TSMC second-quarter profit seen jumping 30% on surging AI chip demand](https://finance.yahoo.com/news/tsmc-second-quarter-profit-seen-005203812.html)
 <!-- feed end -->
 
 ### Onstream
