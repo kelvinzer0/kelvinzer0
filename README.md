@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [String of layoffs in Fresno area in 2024 keep adding up. Here’s how many jobs so far](https://www.yahoo.com/news/string-layoffs-fresno-area-2024-123000457.html)
+- Jul 15 - [New details emerge on alleged shooter at Trump rally](https://www.yahoo.com/news/details-emerge-alleged-shooter-trump-112744173.html)
 - Jul 15 - [Trump addresses assassination attempt: 'I'm supposed to be dead'](https://www.yahoo.com/news/trump-addresses-assassination-attempt-im-111025746.html)
-- Jul 15 - [Johnston developer at center of fraud allegations remains free in North Liberty](https://www.yahoo.com/news/johnston-developer-center-fraud-allegations-110316944.html)
-- Jul 15 - [What Republicans won't say and Democrats don't like to discuss about US inflation](https://finance.yahoo.com/news/republicans-wont-democrats-dont-discuss-100353331.html)
-- Jul 15 - [Democrat Sidman raises 4 times more than Rep. Tricia Cotham in high-profile NC House race](https://www.yahoo.com/news/democrat-sidman-raises-4-times-100000497.html)
-- Jul 15 - [World’s rarest whale may have washed up on New Zealand beach, possibly shedding clues on species](https://www.yahoo.com/news/world-rarest-whale-may-washed-095034883.html)
+- Jul 15 - [US importers balk at return of $10,000 container shipping rate](https://finance.yahoo.com/news/us-importers-balk-return-10-110234066.html)
+- Jul 15 - [Officials unveil 'world premiere' highway technology that could change the future of EVs: 'Will be the most powerful in the world'](https://www.yahoo.com/tech/officials-unveil-world-premiere-highway-110000137.html)
 <!-- feed end -->
 
 ### Onstream
