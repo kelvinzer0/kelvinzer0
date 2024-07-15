@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Thomas Matthew Crooks: What we know about the Trump attacker](https://www.yahoo.com/news/know-far-trump-shooting-suspect-111144437.html)
-- Jul 15 - [TSMC second-quarter profit seen jumping 30% on surging AI chip demand](https://finance.yahoo.com/news/tsmc-second-quarter-profit-seen-005203812.html)
+- Jul 15 - [US health officials confirm four new bird flu cases, in Colorado poultry workers](https://www.yahoo.com/news/us-health-officials-confirm-four-034608158.html)
+- Jul 15 - [If You're Doing This In Your Sleep, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/youre-doing-sleep-time-see-021602135.html)
+- Jul 15 - [Ocasio-Cortez rips House Democrat over anonymous quote: ‘You should absolutely retire’](https://www.yahoo.com/news/ocasio-cortez-rips-house-democrat-005524323.html)
 - Jul 14 - [Instagram influencer jailed for trafficking and slavery](https://www.yahoo.com/news/instagram-influencer-jailed-trafficking-slavery-232414692.html)
-- Jul 14 - [4 of America’s wealthiest suburbs are in Southern California: report](https://finance.yahoo.com/news/4-america-wealthiest-suburbs-southern-212313572.html)
-- Jul 14 - [People Who Were Told They Were 'Too Sensitive' as Children Usually Develop These 14 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-told-were-too-201000520.html)
+- Jul 14 - [Analysis-Thai economy faces upheaval due to factory closures and cheap Chinese imports](https://finance.yahoo.com/news/analysis-thai-economy-faces-upheaval-230848112.html)
 <!-- feed end -->
 
 ### Onstream
