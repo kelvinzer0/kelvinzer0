@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [In beachy Galveston, locals buckle down without power after Beryl's blow during peak tourist season](https://www.yahoo.com/news/beachy-galveston-locals-buckle-down-051312876.html)
-- Jul 15 - [Analysis-Nvidia investor dilemma: how much is too much in a stock portfolio?](https://finance.yahoo.com/news/analysis-nvidia-investor-dilemma-much-050809578.html)
-- Jul 15 - [From basement to battlefield: Ukrainian startups create low-cost robots to fight Russia](https://www.yahoo.com/news/basement-battlefield-ukrainian-startups-create-041009326.html)
-- Jul 15 - [If You're Doing This In Your Sleep, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/youre-doing-sleep-time-see-021602135.html)
+- Jul 15 - [Instagram influencer jailed for trafficking and slavery](https://www.yahoo.com/news/instagram-influencer-jailed-trafficking-slavery-232414692.html)
+- Jul 15 - [Adviser to Democratic donor apologizes for saying Trump shooting may be staged](https://www.yahoo.com/news/adviser-democratic-donor-apologizes-saying-061138790.html)
 - Jul 15 - [Ocasio-Cortez rips House Democrat over anonymous quote: ‘You should absolutely retire’](https://www.yahoo.com/news/ocasio-cortez-rips-house-democrat-005524323.html)
+- Jul 14 - [Analysis-Thai economy faces upheaval due to factory closures and cheap Chinese imports](https://finance.yahoo.com/news/analysis-thai-economy-faces-upheaval-230848112.html)
+- Jul 14 - [Kinzinger says JD Vance’s response to shooting should ‘disqualify’ him from VP consideration](https://www.yahoo.com/news/kinzinger-says-jd-vance-response-204240668.html)
 <!-- feed end -->
 
 ### Onstream
