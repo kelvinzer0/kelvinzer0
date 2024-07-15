@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 15 - [Thomas Matthew Crooks: What we know about the Trump attacker](https://www.yahoo.com/news/know-far-trump-shooting-suspect-111144437.html)
+- Jul 15 - [TSMC second-quarter profit seen jumping 30% on surging AI chip demand](https://finance.yahoo.com/news/tsmc-second-quarter-profit-seen-005203812.html)
 - Jul 14 - [Instagram influencer jailed for trafficking and slavery](https://www.yahoo.com/news/instagram-influencer-jailed-trafficking-slavery-232414692.html)
-- Jul 14 - [Texas Gov. Greg Abbott demands answers as customers remain without power after Beryl](https://www.yahoo.com/news/texas-gov-greg-abbott-demands-215440946.html)
-- Jul 14 - [Trump follows Biden remarks with 2-word post](https://www.yahoo.com/news/trump-follows-biden-remarks-2-212247738.html)
-- Jul 14 - [More than 2,000 patients potentially exposed to HIV and Hepatitis by an anesthesiologist](https://www.yahoo.com/news/more-2-000-patients-potentially-174701946.html)
+- Jul 14 - [4 of America’s wealthiest suburbs are in Southern California: report](https://finance.yahoo.com/news/4-america-wealthiest-suburbs-southern-212313572.html)
+- Jul 14 - [People Who Were Told They Were 'Too Sensitive' as Children Usually Develop These 14 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-told-were-too-201000520.html)
 <!-- feed end -->
 
 ### Onstream
