@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Three hikers die in Utah parks as temperatures hit triple digits](https://www.yahoo.com/news/three-hikers-die-utah-parks-195403699.html)
+- Jul 15 - [American convicted in killing of Italian plainclothes officer gets house arrest after appeal](https://www.yahoo.com/news/american-convicted-killing-italian-plainclothes-201442449.html)
+- Jul 15 - [Search suspended for pilot and passenger after tour helicopter crash off Hawaii's Kauai island](https://www.yahoo.com/news/search-suspended-pilot-passenger-tour-200308550.html)
+- Jul 15 - [‘Yeah, I stabbed him’: Fayetteville man admits to police he stabbed his cousin](https://www.yahoo.com/news/yeah-stabbed-him-fayetteville-man-194508147.html)
+- Jul 15 - [Head of Colombia’s soccer governing body arrested after Copa chaos in Miami](https://www.yahoo.com/news/head-colombia-soccer-governing-body-192929389.html)
 - Jul 15 - [Mexico's costly Maya Train draws few passengers in its first six months of partial operation](https://www.yahoo.com/news/mexicos-costly-maya-train-draws-191842022.html)
-- Jul 15 - [Scientists Found a Surprise New Continent Hiding Beneath Greenland](https://www.yahoo.com/news/scientists-found-surprise-continent-hiding-181900347.html)
-- Jul 15 - [A Colorado couple with a net worth of $800,000 shares how the FIRE movement is helping them reach their goal of retiring in their 40s](https://finance.yahoo.com/news/colorado-couple-net-worth-800-180302197.html)
-- Jul 15 - [Jon Jones charged with 2 misdemeanors after allegedly threatening a 'terrified' drug-testing agent](https://sports.yahoo.com/jon-jones-charged-with-2-misdemeanors-after-allegedly-threatening-a-terrified-drug-testing-agent-175403975.html)
 <!-- feed end -->
 
 ### Onstream
