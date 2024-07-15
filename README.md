@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Lexington officer resigns after violating dept. policies on body camera, leaving his post](https://www.yahoo.com/news/lexington-officer-resigns-violating-dept-180150823.html)
-- Jul 15 - [New England fishermen sentenced in complex herring fraud case](https://www.yahoo.com/news/england-fishermen-sentenced-complex-herring-172956527.html)
-- Jul 15 - [The Latest | Israeli drone strike kills a prominent Syrian businessman with close ties to Assad](https://www.yahoo.com/news/latest-israeli-drone-strike-kills-172119726.html)
-- Jul 15 - [Growing Kansas restaurant chain opens 3rd KC area spot this week. A 4th is coming soon](https://www.yahoo.com/news/growing-kansas-restaurant-chain-opens-170203032.html)
-- Jul 15 - [What to expect from Netflix, TSMC, ASML earnings this week](https://finance.yahoo.com/video/expect-netflix-tsmc-asml-earnings-165628449.html)
+- Jul 15 - [US school spending to remain muted in 2024, Deloitte says](https://finance.yahoo.com/video/us-school-spending-remain-muted-181834351.html)
+- Jul 15 - [A Colorado couple with a net worth of $800,000 shares how the FIRE movement is helping them reach their goal of retiring in their 40s](https://finance.yahoo.com/news/colorado-couple-net-worth-800-180302197.html)
+- Jul 15 - [Jon Jones charged with 2 misdemeanors after allegedly threatening a 'terrified' drug-testing agent](https://sports.yahoo.com/jon-jones-charged-with-2-misdemeanors-after-allegedly-threatening-a-terrified-drug-testing-agent-175403975.html)
+- Jul 15 - [Clarence Thomas Couldn’t Cover $267,000 For An RV, But Wanted Patients To Pay Out Of Pocket For Life-Saving Care](https://autos.yahoo.com/clarence-thomas-couldn-t-cover-174000048.html)
+- Jul 15 - [Is the Blobfish Unjustly Cast as the World's Ugliest Animal?](https://www.yahoo.com/lifestyle/blobfish-unjustly-cast-worlds-ugliest-173200870.html)
 <!-- feed end -->
 
 ### Onstream
