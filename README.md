@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [String of layoffs in Fresno area in 2024 keep adding up. Here’s how many jobs so far](https://www.yahoo.com/news/string-layoffs-fresno-area-2024-123000457.html)
+- Jul 15 - [Putin’s last naval patrol ship in annexed Crimea flees after attacks on Black Sea Fleet, claims Ukraine](https://www.yahoo.com/news/putin-last-naval-patrol-ship-133255290.html)
+- Jul 15 - [65,000 Coffee Mugs Have Gone Missing From Tesla's German Gigafactory That Has Just 12,000 Workers](https://autos.yahoo.com/65-000-coffee-mugs-gone-130000057.html)
+- Jul 15 - [Thailand is set to roll out a controversial $13.8 billion handout plan in digital money to citizens](https://finance.yahoo.com/news/thailand-set-roll-controversial-13-123922083.html)
+- Jul 15 - [Temasek aims to invest up to $12 billion in India as China weighs](https://finance.yahoo.com/news/temasek-aims-invest-12-billion-123151563.html)
 - Jul 15 - [New details emerge on alleged shooter at Trump rally](https://www.yahoo.com/news/details-emerge-alleged-shooter-trump-112744173.html)
-- Jul 15 - [Trump addresses assassination attempt: 'I'm supposed to be dead'](https://www.yahoo.com/news/trump-addresses-assassination-attempt-im-111025746.html)
-- Jul 15 - [US importers balk at return of $10,000 container shipping rate](https://finance.yahoo.com/news/us-importers-balk-return-10-110234066.html)
-- Jul 15 - [Officials unveil 'world premiere' highway technology that could change the future of EVs: 'Will be the most powerful in the world'](https://www.yahoo.com/tech/officials-unveil-world-premiere-highway-110000137.html)
 <!-- feed end -->
 
 ### Onstream
