@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [Trump addresses assassination attempt: 'I'm supposed to be dead'](https://www.yahoo.com/news/trump-addresses-assassination-attempt-im-111025746.html)
+- Jul 15 - [Johnston developer at center of fraud allegations remains free in North Liberty](https://www.yahoo.com/news/johnston-developer-center-fraud-allegations-110316944.html)
 - Jul 15 - [What Republicans won't say and Democrats don't like to discuss about US inflation](https://finance.yahoo.com/news/republicans-wont-democrats-dont-discuss-100353331.html)
-- Jul 15 - [I am deeply ashamed of my fellow Democrats who are abandoning Joe Biden | Opinion](https://www.yahoo.com/news/am-deeply-ashamed-fellow-democrats-100000829.html)
 - Jul 15 - [Democrat Sidman raises 4 times more than Rep. Tricia Cotham in high-profile NC House race](https://www.yahoo.com/news/democrat-sidman-raises-4-times-100000497.html)
-- Jul 15 - [Manitowoc man arrested after tip from Bikers Against Predators sentenced to probation.](https://www.yahoo.com/news/manitowoc-man-arrested-tip-bikers-095820223.html)
-- Jul 15 - [Cathie Wood says she wouldn't have sold Nvidia stake 'had we known that the market was going to reward it'](https://www.yahoo.com/tech/cathie-wood-says-she-wouldnt-073221060.html)
+- Jul 15 - [World’s rarest whale may have washed up on New Zealand beach, possibly shedding clues on species](https://www.yahoo.com/news/world-rarest-whale-may-washed-095034883.html)
 <!-- feed end -->
 
 ### Onstream
