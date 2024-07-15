@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Germany shuts one of its busiest rail routes for 5 months, launching drive to improve reliability](https://www.yahoo.com/news/germany-shuts-one-busiest-rail-084204844.html)
+- Jul 15 - [Estonia's Kallas, fierce Russia critic and new EU foreign policy chief](https://www.yahoo.com/news/estonias-kallas-fierce-russia-critic-092612757.html)
+- Jul 15 - [Lee Baca, 82, former L.A. County Sheriff, missing after walking away from home](https://www.yahoo.com/news/lee-baca-82-former-l-065345603.html)
+- Jul 15 - [Adviser to Democratic donor apologizes for saying Trump shooting may be staged](https://www.yahoo.com/news/adviser-democratic-donor-apologizes-saying-061138790.html)
 - Jul 15 - [In beachy Galveston, locals buckle down without power after Beryl's blow during peak tourist season](https://www.yahoo.com/news/beachy-galveston-locals-buckle-down-051312876.html)
-- Jul 15 - [From basement to battlefield: Ukrainian startups create low-cost robots to fight Russia](https://www.yahoo.com/news/basement-battlefield-ukrainian-startups-create-041009326.html)
-- Jul 15 - [Ocasio-Cortez rips House Democrat over anonymous quote: ‘You should absolutely retire’](https://www.yahoo.com/news/ocasio-cortez-rips-house-democrat-005524323.html)
-- Jul 15 - [TSMC second-quarter profit seen jumping 30% on surging AI chip demand](https://finance.yahoo.com/news/tsmc-second-quarter-profit-seen-005203812.html)
+- Jul 15 - [Nvidia investor dilemma: how much is too much in a stock portfolio?](https://finance.yahoo.com/news/analysis-nvidia-investor-dilemma-much-050809578.html)
 <!-- feed end -->
 
 ### Onstream
