@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Putin’s last naval patrol ship in annexed Crimea flees after attacks on Black Sea Fleet, claims Ukraine](https://www.yahoo.com/news/putin-last-naval-patrol-ship-133255290.html)
-- Jul 15 - [65,000 Coffee Mugs Have Gone Missing From Tesla's German Gigafactory That Has Just 12,000 Workers](https://autos.yahoo.com/65-000-coffee-mugs-gone-130000057.html)
-- Jul 15 - [Thailand is set to roll out a controversial $13.8 billion handout plan in digital money to citizens](https://finance.yahoo.com/news/thailand-set-roll-controversial-13-123922083.html)
-- Jul 15 - [Temasek aims to invest up to $12 billion in India as China weighs](https://finance.yahoo.com/news/temasek-aims-invest-12-billion-123151563.html)
-- Jul 15 - [New details emerge on alleged shooter at Trump rally](https://www.yahoo.com/news/details-emerge-alleged-shooter-trump-112744173.html)
+- Jul 15 - [RTX unit Pratt & Whitney completes preliminary design review of engine upgrade](https://finance.yahoo.com/news/rtx-unit-pratt-whitney-completes-143310338.html)
+- Jul 15 - [OpenAI working on new ‘Strawberry’ project](https://finance.yahoo.com/video/openai-working-strawberry-project-140428355.html)
+- Jul 15 - [Oil tanker seized by Iran in 2023 anchors near UAE coast, tracking data shows](https://www.yahoo.com/news/oil-tanker-seized-iran-2023-140121471.html)
+- Jul 15 - [Judge tosses Trump documents case, ruling that the prosecutor was unlawfully appointed](https://www.yahoo.com/news/judge-tosses-trump-documents-case-135928486.html)
+- Jul 15 - [Battered by Hurricane Idalia last year, Florida village ponders future as hurricane season begins](https://www.yahoo.com/news/battered-hurricane-idalia-last-florida-133036807.html)
 <!-- feed end -->
 
 ### Onstream
