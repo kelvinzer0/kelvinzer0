@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Estonia's Kallas, fierce Russia critic and new EU foreign policy chief](https://www.yahoo.com/news/estonias-kallas-fierce-russia-critic-092612757.html)
-- Jul 15 - [Lee Baca, 82, former L.A. County Sheriff, missing after walking away from home](https://www.yahoo.com/news/lee-baca-82-former-l-065345603.html)
-- Jul 15 - [Adviser to Democratic donor apologizes for saying Trump shooting may be staged](https://www.yahoo.com/news/adviser-democratic-donor-apologizes-saying-061138790.html)
-- Jul 15 - [In beachy Galveston, locals buckle down without power after Beryl's blow during peak tourist season](https://www.yahoo.com/news/beachy-galveston-locals-buckle-down-051312876.html)
-- Jul 15 - [Nvidia investor dilemma: how much is too much in a stock portfolio?](https://finance.yahoo.com/news/analysis-nvidia-investor-dilemma-much-050809578.html)
+- Jul 15 - [What Republicans won't say and Democrats don't like to discuss about US inflation](https://finance.yahoo.com/news/republicans-wont-democrats-dont-discuss-100353331.html)
+- Jul 15 - [I am deeply ashamed of my fellow Democrats who are abandoning Joe Biden | Opinion](https://www.yahoo.com/news/am-deeply-ashamed-fellow-democrats-100000829.html)
+- Jul 15 - [Democrat Sidman raises 4 times more than Rep. Tricia Cotham in high-profile NC House race](https://www.yahoo.com/news/democrat-sidman-raises-4-times-100000497.html)
+- Jul 15 - [Manitowoc man arrested after tip from Bikers Against Predators sentenced to probation.](https://www.yahoo.com/news/manitowoc-man-arrested-tip-bikers-095820223.html)
+- Jul 15 - [Cathie Wood says she wouldn't have sold Nvidia stake 'had we known that the market was going to reward it'](https://www.yahoo.com/tech/cathie-wood-says-she-wouldnt-073221060.html)
 <!-- feed end -->
 
 ### Onstream
