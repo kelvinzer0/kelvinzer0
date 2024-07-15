@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [American convicted in killing of Italian plainclothes officer gets house arrest after appeal](https://www.yahoo.com/news/american-convicted-killing-italian-plainclothes-201442449.html)
-- Jul 15 - [Search suspended for pilot and passenger after tour helicopter crash off Hawaii's Kauai island](https://www.yahoo.com/news/search-suspended-pilot-passenger-tour-200308550.html)
+- Jul 15 - [Judge removed from long-running gang and racketeering case against rapper Young Thug and others](https://www.yahoo.com/news/judge-removed-long-running-gang-205708391.html)
+- Jul 15 - [Cape Cod's fishhook topography makes it a global hotspot for mass strandings by dolphins](https://www.yahoo.com/news/cape-cods-fishhook-topography-makes-204301071.html)
+- Jul 15 - [Three hikers die in Utah parks as temperatures hit triple digits](https://www.yahoo.com/news/three-hikers-die-utah-parks-195403699.html)
 - Jul 15 - [‘Yeah, I stabbed him’: Fayetteville man admits to police he stabbed his cousin](https://www.yahoo.com/news/yeah-stabbed-him-fayetteville-man-194508147.html)
-- Jul 15 - [Head of Colombia’s soccer governing body arrested after Copa chaos in Miami](https://www.yahoo.com/news/head-colombia-soccer-governing-body-192929389.html)
 - Jul 15 - [Mexico's costly Maya Train draws few passengers in its first six months of partial operation](https://www.yahoo.com/news/mexicos-costly-maya-train-draws-191842022.html)
 <!-- feed end -->
 
