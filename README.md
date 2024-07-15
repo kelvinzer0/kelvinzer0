@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [US school spending to remain muted in 2024, Deloitte says](https://finance.yahoo.com/video/us-school-spending-remain-muted-181834351.html)
+- Jul 15 - [Three hikers die in Utah parks as temperatures hit triple digits](https://www.yahoo.com/news/three-hikers-die-utah-parks-195403699.html)
+- Jul 15 - [Mexico's costly Maya Train draws few passengers in its first six months of partial operation](https://www.yahoo.com/news/mexicos-costly-maya-train-draws-191842022.html)
+- Jul 15 - [Scientists Found a Surprise New Continent Hiding Beneath Greenland](https://www.yahoo.com/news/scientists-found-surprise-continent-hiding-181900347.html)
 - Jul 15 - [A Colorado couple with a net worth of $800,000 shares how the FIRE movement is helping them reach their goal of retiring in their 40s](https://finance.yahoo.com/news/colorado-couple-net-worth-800-180302197.html)
 - Jul 15 - [Jon Jones charged with 2 misdemeanors after allegedly threatening a 'terrified' drug-testing agent](https://sports.yahoo.com/jon-jones-charged-with-2-misdemeanors-after-allegedly-threatening-a-terrified-drug-testing-agent-175403975.html)
-- Jul 15 - [Clarence Thomas Couldn’t Cover $267,000 For An RV, But Wanted Patients To Pay Out Of Pocket For Life-Saving Care](https://autos.yahoo.com/clarence-thomas-couldn-t-cover-174000048.html)
-- Jul 15 - [Is the Blobfish Unjustly Cast as the World's Ugliest Animal?](https://www.yahoo.com/lifestyle/blobfish-unjustly-cast-worlds-ugliest-173200870.html)
 <!-- feed end -->
 
 ### Onstream
