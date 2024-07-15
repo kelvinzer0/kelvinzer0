@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Comedian Bill Maher cancels Milwaukee show citing travel problems](https://www.yahoo.com/entertainment/comedian-bill-maher-cancels-milwaukee-005529222.html)
+- Jul 15 - [Thomas Matthew Crooks: What we know about the Trump attacker](https://www.yahoo.com/news/know-far-trump-shooting-suspect-111144437.html)
 - Jul 14 - [Instagram influencer jailed for trafficking and slavery](https://www.yahoo.com/news/instagram-influencer-jailed-trafficking-slavery-232414692.html)
 - Jul 14 - [Texas Gov. Greg Abbott demands answers as customers remain without power after Beryl](https://www.yahoo.com/news/texas-gov-greg-abbott-demands-215440946.html)
 - Jul 14 - [Trump follows Biden remarks with 2-word post](https://www.yahoo.com/news/trump-follows-biden-remarks-2-212247738.html)
-- Jul 14 - [Kinzinger says JD Vance’s response to shooting should ‘disqualify’ him from VP consideration](https://www.yahoo.com/news/kinzinger-says-jd-vance-response-204240668.html)
+- Jul 14 - [More than 2,000 patients potentially exposed to HIV and Hepatitis by an anesthesiologist](https://www.yahoo.com/news/more-2-000-patients-potentially-174701946.html)
 <!-- feed end -->
 
 ### Onstream
