@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Dozens evacuated after Fort Lauderdale rehab center goes up in flames, reports say](https://www.yahoo.com/news/dozens-evacuated-fort-lauderdale-rehab-160118038.html)
 - Jul 15 - [Scientists have confirmed a cave on the moon that could be used to shelter future explorers](https://www.yahoo.com/news/scientists-confirmed-cave-moon-could-150533928.html)
+- Jul 15 - [All Life on Earth Comes From One Single Ancestor. And It's So Much Older Than We Thought.](https://www.yahoo.com/news/life-earth-comes-one-single-144200846.html)
 - Jul 15 - [Fossil of an ancient shark that swam in the age of dinosaurs solves centuries-long mystery](https://www.yahoo.com/news/fossil-ancient-shark-swam-age-140204611.html)
+- Jul 15 - [Oil tanker seized by Iran in 2023 anchors near UAE coast, tracking data shows](https://www.yahoo.com/news/oil-tanker-seized-iran-2023-140121471.html)
 - Jul 15 - [Judge tosses Trump documents case, ruling prosecutor was unlawfully appointed](https://www.yahoo.com/news/judge-tosses-trump-documents-case-135928486.html)
-- Jul 15 - [Police: New Hampshire motorcyclist arrested for reckless driving while speeding 158 mph](https://www.yahoo.com/news/police-hampshire-motorcyclist-arrested-reckless-114659045.html)
 <!-- feed end -->
 
 ### Onstream
