@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Judge removed from long-running gang and racketeering case against rapper Young Thug and others](https://www.yahoo.com/news/judge-removed-long-running-gang-205708391.html)
-- Jul 15 - [Cape Cod's fishhook topography makes it a global hotspot for mass strandings by dolphins](https://www.yahoo.com/news/cape-cods-fishhook-topography-makes-204301071.html)
-- Jul 15 - [Three hikers die in Utah parks as temperatures hit triple digits](https://www.yahoo.com/news/three-hikers-die-utah-parks-195403699.html)
-- Jul 15 - [‘Yeah, I stabbed him’: Fayetteville man admits to police he stabbed his cousin](https://www.yahoo.com/news/yeah-stabbed-him-fayetteville-man-194508147.html)
+- Jul 15 - [NFL Hall of Famer says he was unjustly handcuffed and 'humiliated' on a flight](https://www.yahoo.com/news/nfl-hall-famer-says-unjustly-222110694.html)
+- Jul 15 - [4 reasons hardware will drive big tech earnings: Fund manager](https://finance.yahoo.com/video/4-reasons-hardware-drive-big-210230960.html)
+- Jul 15 - [Trump Chooses J.D. Vance As His Running Mate, And People Bring Receipts](https://www.yahoo.com/news/trump-chooses-j-d-vance-201832543.html)
 - Jul 15 - [Mexico's costly Maya Train draws few passengers in its first six months of partial operation](https://www.yahoo.com/news/mexicos-costly-maya-train-draws-191842022.html)
+- Jul 15 - [SUV Carrying 5 People Sinks Into Yellowstone Thermal Feature After Running Off Road](https://www.yahoo.com/news/suv-carrying-5-people-sinks-191041892.html)
 <!-- feed end -->
 
 ### Onstream
