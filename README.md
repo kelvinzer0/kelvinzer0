@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Bank of America leans on Wall Street as high rates pose challenges to Main Street operations](https://finance.yahoo.com/news/bank-of-america-leans-on-wall-street-as-high-rates-pose-challenges-to-main-street-operations-122457107.html)
+- Jul 16 - [Burial operation for pod of 77 whales begins](https://www.yahoo.com/news/burial-operation-pod-77-whales-133835310.html)
+- Jul 16 - [Russian farmers fight to salvage harvest as major region cuts forecast](https://www.yahoo.com/news/russian-farmers-fight-salvage-harvest-132505245.html)
+- Jul 16 - ['Hellishly hot' southern Europe bakes under heat wave, worst still to come as temperatures top 104F](https://www.yahoo.com/news/hellishly-hot-southern-europe-bakes-132452548.html)
+- Jul 16 - [Barstool Sports Founder Dave Portnoy Rescued by U.S. Coast Guard: 'No Power, No Radio, No Anchor, No Nothin'](https://www.yahoo.com/entertainment/barstool-sports-founder-dave-portnoy-121838787.html)
 - Jul 16 - [Alleged Trump shooter was spotted before getting on roof: Officials](https://www.yahoo.com/news/alleged-trump-shooter-spotted-getting-112906705.html)
-- Jul 16 - [Three victims identified after fiery I-81 crash in Cumberland County](https://www.yahoo.com/news/81-closed-due-fatal-vehicle-185332383.html)
-- Jul 16 - [Larry Fink says America’s $35 trillion national debt will be a ‘big burden on the backs of our children’ unless the private sector is given room to grow](https://finance.yahoo.com/news/larry-fink-says-america-35-100533294.html)
-- Jul 16 - [New study finds household appliance tied to nearly 20,000 premature deaths: 'We should focus on solutions'](https://www.yahoo.com/lifestyle/study-finds-household-appliance-tied-090000605.html)
 <!-- feed end -->
 
 ### Onstream
