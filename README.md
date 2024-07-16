@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [A US Navy captain was in disbelief when his destroyer came under fire from missiles never before seen in combat while dealing with pirates](https://www.yahoo.com/news/us-navy-captain-disbelief-destroyer-165638510.html)
+- Jul 16 - [June retail sales see 'positivity' still in consumer spending](https://finance.yahoo.com/video/june-retail-sales-see-positivity-164913754.html)
+- Jul 16 - [U.S hits Mexican accountants and firms with sanctions for timeshare scams that support drug cartel](https://www.yahoo.com/news/u-hits-mexican-accountants-firms-164350574.html)
+- Jul 16 - [Lavrov says US threatens multilateralism, US rejects remarks as 'whining'](https://www.yahoo.com/news/lavrov-says-us-threatens-multilateralism-163432180.html)
 - Jul 16 - [‘It’s a very ugly American trait’: I cried foul when basic-economy passengers grabbed premium-economy seats. The airline has finally shown me respect.](https://finance.yahoo.com/news/very-ugly-american-trait-cried-090500761.html)
-- Jul 16 - [Popular Cape Cod beach ‘likely’ closed for rest of summer due to ‘potential for catastrophic event’](https://www.yahoo.com/news/popular-cape-cod-beach-likely-150513133.html)
-- Jul 16 - [EU may cut China EV import tariffs for Volkswagen and BMW, sources say](https://finance.yahoo.com/news/brussels-may-rethink-china-ev-144753076.html)
-- Jul 16 - [Baltic countries notify Russia and Belarus they will exit the Moscow-controlled electricity grid](https://www.yahoo.com/news/baltic-countries-notify-russia-belarus-143038295.html)
-- Jul 16 - [Six people are found dead in a hotel in downtown Bangkok, with poisoning a possibility](https://www.yahoo.com/news/six-people-found-dead-hotel-141325137.html)
 <!-- feed end -->
 
 ### Onstream
