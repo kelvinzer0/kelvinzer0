@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Baltic countries notify Russia and Belarus they will exit the Moscow-controlled electricity grid](https://www.yahoo.com/news/baltic-countries-notify-russia-belarus-143038295.html)
-- Jul 16 - [Russian farmers fight to salvage harvest as major region cuts forecast](https://www.yahoo.com/news/russian-farmers-fight-salvage-harvest-132505245.html)
-- Jul 16 - [6 Cars That Are Plummeting in Value](https://finance.yahoo.com/news/6-cars-plummeting-value-120022965.html)
-- Jul 16 - [Best Income Stocks to Buy for July 16th](https://finance.yahoo.com/news/best-income-stocks-buy-july-121600893.html)
-- Jul 16 - [Baltic countries to leave joint power grid with Russia and Belarus](https://www.yahoo.com/news/baltic-countries-leave-joint-power-114836284.html)
+- Jul 16 - [‘It’s a very ugly American trait’: I cried foul when basic-economy passengers grabbed premium-economy seats. The airline has finally shown me respect.](https://finance.yahoo.com/news/very-ugly-american-trait-cried-090500761.html)
+- Jul 16 - [Popular Cape Cod beach ‘likely’ closed for rest of summer due to ‘potential for catastrophic event’](https://www.yahoo.com/news/popular-cape-cod-beach-likely-150513133.html)
+- Jul 16 - [India market presents 'long-term promise' for Apple: Analyst](https://finance.yahoo.com/video/india-market-presents-long-term-152525209.html)
+- Jul 16 - [Bill Gates Owns 275,000 Acres Of U.S. Farmland. His Answer To Why He's Buying So Much Of It Might Surprise You](https://finance.yahoo.com/news/bill-gates-owns-275-000-150012766.html)
+- Jul 16 - [Archaeologists Found the Lost Remnants of a Maya Civilization Hiding in the Jungle](https://www.yahoo.com/news/archaeologists-found-lost-remnants-maya-145900640.html)
 <!-- feed end -->
 
 ### Onstream
