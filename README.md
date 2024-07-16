@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Bank of America leans on Wall Street as high rates pose challenges to Main Street operations](https://finance.yahoo.com/news/bank-of-america-leans-on-wall-street-as-high-rates-pose-challenges-to-main-street-operations-122457107.html)
+- Jul 16 - [Alleged Trump shooter was spotted before getting on roof: Officials](https://www.yahoo.com/news/alleged-trump-shooter-spotted-getting-112906705.html)
+- Jul 16 - [Three victims identified after fiery I-81 crash in Cumberland County](https://www.yahoo.com/news/81-closed-due-fatal-vehicle-185332383.html)
+- Jul 16 - [Larry Fink says America’s $35 trillion national debt will be a ‘big burden on the backs of our children’ unless the private sector is given room to grow](https://finance.yahoo.com/news/larry-fink-says-america-35-100533294.html)
 - Jul 16 - [New study finds household appliance tied to nearly 20,000 premature deaths: 'We should focus on solutions'](https://www.yahoo.com/lifestyle/study-finds-household-appliance-tied-090000605.html)
-- Jul 16 - [Exclusive-German-linked logistics firm helped sanctioned Russian manufacturers](https://finance.yahoo.com/news/exclusive-german-linked-logistics-firm-050319628.html)
-- Jul 16 - [Woman violently attacked, tased by juveniles at L’Enfant Plaza Metro Station](https://www.yahoo.com/news/woman-violently-attacked-tased-juveniles-040150137.html)
-- Jul 16 - [Anti-LGBTQ rhetoric plays a prominent role in first night of RNC](https://www.yahoo.com/news/anti-lgbtq-rhetoric-plays-prominent-034600123.html)
-- Jul 16 - [Day labourers seek dwindling jobs pre-dawn in Shanghai suburb](https://www.yahoo.com/news/day-labourers-seek-dwindling-jobs-034004272.html)
 <!-- feed end -->
 
 ### Onstream
