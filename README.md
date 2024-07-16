@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [A US Navy captain was in disbelief when his destroyer came under fire from missiles never before seen in combat while dealing with pirates](https://www.yahoo.com/news/us-navy-captain-disbelief-destroyer-165638510.html)
-- Jul 16 - [U.S hits Mexican accountants and firms with sanctions for timeshare scams that support drug cartel](https://www.yahoo.com/news/u-hits-mexican-accountants-firms-164350574.html)
-- Jul 16 - [Lavrov says US threatens multilateralism, US rejects remarks as 'whining'](https://www.yahoo.com/news/lavrov-says-us-threatens-multilateralism-163432180.html)
-- Jul 16 - [‘It’s a very ugly American trait’: I cried foul when basic-economy passengers grabbed premium-economy seats. The airline has finally shown me respect.](https://finance.yahoo.com/news/very-ugly-american-trait-cried-090500761.html)
-- Jul 16 - [Popular Cape Cod beach ‘likely’ closed for rest of summer due to ‘potential for catastrophic event’](https://www.yahoo.com/news/popular-cape-cod-beach-likely-150513133.html)
+- Jul 16 - [Stocks in 'last gasp' of bull market -portfolio manager](https://finance.yahoo.com/video/stocks-last-gasp-bull-market-195312748.html)
+- Jul 16 - [Elon Musk says he's moving SpaceX, X headquarters from California to Texas](https://finance.yahoo.com/news/elon-musk-says-hes-moving-195127441.html)
+- Jul 16 - [The president of Florida's only public historically Black university resigns after donation debacle](https://www.yahoo.com/news/president-floridas-only-public-historically-181753920.html)
+- Jul 16 - [US received intel of Iranian plot to assassinate Trump, CNN reports](https://www.yahoo.com/news/us-received-intel-iranian-plot-181507040.html)
+- Jul 16 - [Second group of Kenyan police officers arrives in Haiti as part of a UN-backed mission to quell gang violence](https://www.yahoo.com/news/second-group-kenyan-police-officers-180238382.html)
 <!-- feed end -->
 
 ### Onstream
