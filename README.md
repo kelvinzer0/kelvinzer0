@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Brush fire south of Eugene Airport, evacuations off Green Hill Road](https://www.yahoo.com/news/brush-fire-reported-south-eugene-234742752.html)
 - Jul 15 - [President of Dickinson State University in North Dakota resigns after nursing faculty quit](https://www.yahoo.com/news/president-dickinson-state-university-north-233655675.html)
 - Jul 15 - [Terrell Davis says he was handcuffed by FBI on United flight after false accusation: 'Disgusting display of injustice'](https://sports.yahoo.com/terrell-davis-says-he-was-handcuffed-by-fbi-on-united-flight-after-false-accusation-disgusting-display-of-injustice-231052551.html)
-- Jul 15 - [NFL Hall of Famer says he was unjustly handcuffed and 'humiliated' on a flight](https://www.yahoo.com/news/nfl-hall-famer-says-unjustly-222110694.html)
+- Jul 15 - [Farmers scramble after devastating drought leaves entire herds without water: 'We can't let the animals die'](https://www.yahoo.com/news/farmers-scramble-devastating-drought-leaves-230000636.html)
+- Jul 15 - [Humpback whales put on a show off Pismo Beach. See the photos](https://www.yahoo.com/lifestyle/humpback-whales-put-show-off-224101989.html)
 - Jul 15 - [Man pleads to selling thousands of mPerks account logins](https://www.yahoo.com/news/man-pleads-selling-thousands-mperks-222105187.html)
 <!-- feed end -->
 
