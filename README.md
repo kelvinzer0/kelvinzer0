@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [NFL Hall of Famer says he was unjustly handcuffed and 'humiliated' on a flight](https://www.yahoo.com/news/nfl-hall-famer-says-unjustly-222110694.html)
+- Jul 15 - [President of Dickinson State University in North Dakota resigns after nursing faculty quit](https://www.yahoo.com/news/president-dickinson-state-university-north-233655675.html)
+- Jul 15 - [Terrell Davis says he was handcuffed by FBI on United flight after false accusation: 'Disgusting display of injustice'](https://sports.yahoo.com/terrell-davis-says-he-was-handcuffed-by-fbi-on-united-flight-after-false-accusation-disgusting-display-of-injustice-231052551.html)
+- Jul 15 - [Medical entrepreneur and her DJ husband arrested over $900m healthcare fraud scheme](https://www.yahoo.com/news/medical-entrepreneur-her-dj-husband-211153984.html)
 - Jul 15 - [4 reasons hardware will drive big tech earnings: Fund manager](https://finance.yahoo.com/video/4-reasons-hardware-drive-big-210230960.html)
-- Jul 15 - [Trump Chooses J.D. Vance As His Running Mate, And People Bring Receipts](https://www.yahoo.com/news/trump-chooses-j-d-vance-201832543.html)
-- Jul 15 - [Mexico's costly Maya Train draws few passengers in its first six months of partial operation](https://www.yahoo.com/news/mexicos-costly-maya-train-draws-191842022.html)
-- Jul 15 - [SUV Carrying 5 People Sinks Into Yellowstone Thermal Feature After Running Off Road](https://www.yahoo.com/news/suv-carrying-5-people-sinks-191041892.html)
+- Jul 15 - [3 hikers die in Utah parks as temperatures hit triple digits](https://www.yahoo.com/news/three-hikers-die-utah-parks-195403699.html)
 <!-- feed end -->
 
 ### Onstream
