@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Burial operation for pod of 77 whales begins](https://www.yahoo.com/news/burial-operation-pod-77-whales-133835310.html)
+- Jul 16 - [Baltic countries notify Russia and Belarus they will exit the Moscow-controlled electricity grid](https://www.yahoo.com/news/baltic-countries-notify-russia-belarus-143038295.html)
 - Jul 16 - [Russian farmers fight to salvage harvest as major region cuts forecast](https://www.yahoo.com/news/russian-farmers-fight-salvage-harvest-132505245.html)
-- Jul 16 - ['Hellishly hot' southern Europe bakes under heat wave, worst still to come as temperatures top 104F](https://www.yahoo.com/news/hellishly-hot-southern-europe-bakes-132452548.html)
-- Jul 16 - [Barstool Sports Founder Dave Portnoy Rescued by U.S. Coast Guard: 'No Power, No Radio, No Anchor, No Nothin'](https://www.yahoo.com/entertainment/barstool-sports-founder-dave-portnoy-121838787.html)
-- Jul 16 - [Alleged Trump shooter was spotted before getting on roof: Officials](https://www.yahoo.com/news/alleged-trump-shooter-spotted-getting-112906705.html)
+- Jul 16 - [6 Cars That Are Plummeting in Value](https://finance.yahoo.com/news/6-cars-plummeting-value-120022965.html)
+- Jul 16 - [Best Income Stocks to Buy for July 16th](https://finance.yahoo.com/news/best-income-stocks-buy-july-121600893.html)
+- Jul 16 - [Baltic countries to leave joint power grid with Russia and Belarus](https://www.yahoo.com/news/baltic-countries-leave-joint-power-114836284.html)
 <!-- feed end -->
 
 ### Onstream
