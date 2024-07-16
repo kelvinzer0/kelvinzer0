@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Waste crisis deepens misery in Gaza as war rages](https://www.yahoo.com/news/waste-crisis-deepens-misery-gaza-102426028.html)
 - Jul 16 - [Global elite flock to extravagant Indian wedding of billionaire Ambani's son](https://www.yahoo.com/news/global-elite-flock-extravagant-indian-090025142.html)
+- Jul 16 - [Sen. Ron Johnson’s RNC Speech Gaffe Stuns Rachel Maddow: ‘Cannot Believe This Is Real’](https://www.yahoo.com/news/sen-ron-johnson-rnc-speech-080931087.html)
+- Jul 16 - [The true bull market may finally 'wake up' as investors eye rate cuts](https://finance.yahoo.com/news/the-true-bull-market-may-finally-wake-up-as-investors-eye-rate-cuts-080027716.html)
 - Jul 16 - [Exclusive-German-linked logistics firm helped sanctioned Russian manufacturers](https://finance.yahoo.com/news/exclusive-german-linked-logistics-firm-050319628.html)
-- Jul 16 - [Analysis-China tries to hit more birds with one stone in property rescue push](https://finance.yahoo.com/news/analysis-china-tries-hit-more-040701279.html)
-- Jul 16 - [Anti-LGBTQ rhetoric plays a prominent role in first night of RNC](https://www.yahoo.com/news/anti-lgbtq-rhetoric-plays-prominent-034600123.html)
-- Jul 16 - [Day labourers seek dwindling jobs pre-dawn in Shanghai suburb](https://www.yahoo.com/news/day-labourers-seek-dwindling-jobs-034004272.html)
 <!-- feed end -->
 
 ### Onstream
