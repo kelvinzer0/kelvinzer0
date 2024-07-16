@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Gold hits a new record: What's driving prices higher](https://finance.yahoo.com/video/gold-hits-record-whats-driving-205934195.html)
-- Jul 16 - [Democratic calls for Biden to step down may ‘be getting more organized’ despite apparent lull](https://www.yahoo.com/news/democratic-calls-biden-step-down-205746828.html)
+- Jul 16 - [‘It’s a very ugly American trait’: I cried foul when basic-economy passengers grabbed premium-economy seats. The airline has finally shown me respect.](https://finance.yahoo.com/news/very-ugly-american-trait-cried-090500761.html)
+- Jul 16 - [Johnson to remove George Washington statue from outside his City Hall office](https://www.yahoo.com/news/johnson-remove-george-washington-statue-212600977.html)
+- Jul 16 - [J.D. Vance Caught on Video Telling Far-Right Group Alex Jones Is Right](https://www.yahoo.com/news/j-d-vance-caught-video-202454683.html)
+- Jul 16 - [Stocks in 'last gasp' of bull market -portfolio manager](https://finance.yahoo.com/video/stocks-last-gasp-bull-market-195312748.html)
 - Jul 16 - [Sparks Fly as Stolen Coffee Truck Topples Over](https://www.yahoo.com/news/sparks-fly-stolen-coffee-truck-193950274.html)
-- Jul 16 - [Former White House official accused of acting as South Korea agent](https://www.yahoo.com/news/ex-white-house-official-indicted-190842306.html)
-- Jul 16 - [The president of Florida's only public historically Black university resigns after donation debacle](https://www.yahoo.com/news/president-floridas-only-public-historically-181753920.html)
 <!-- feed end -->
 
 ### Onstream
