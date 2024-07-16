@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 16 - [Exclusive-German-linked logistics firm helped sanctioned Russian manufacturers](https://finance.yahoo.com/news/exclusive-german-linked-logistics-firm-050319628.html)
-- Jul 16 - [When is the first day of school? A list of 2024 start dates for Cincinnati, NKY](https://www.yahoo.com/lifestyle/first-day-school-list-2024-040212848.html)
+- Jul 16 - [Analysis-China tries to hit more birds with one stone in property rescue push](https://finance.yahoo.com/news/analysis-china-tries-hit-more-040701279.html)
 - Jul 16 - [Anti-LGBTQ rhetoric plays a prominent role in first night of RNC](https://www.yahoo.com/news/anti-lgbtq-rhetoric-plays-prominent-034600123.html)
-- Jul 16 - [Day labourers seek dwindling jobs pre-dawn in Shanghai suburb](https://www.yahoo.com/news/day-labourers-seek-dwindling-jobs-034004272.html)
-- Jul 16 - [Japan maintains warnings against sharp yen falls](https://finance.yahoo.com/news/japan-keeps-warnings-against-sharp-033052082.html)
+- Jul 16 - [Trump shooting suspect 'seemed to stand away' - Neighbors](https://www.yahoo.com/news/trump-shooting-suspect-seemed-stand-024117419.html)
+- Jul 16 - [North Korea warns of 'devastating consequences' over leaflets from South](https://www.yahoo.com/news/north-korea-warns-devastating-consequences-021049079.html)
 <!-- feed end -->
 
 ### Onstream
