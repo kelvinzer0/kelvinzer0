@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [How long will the investment banking boost last?](https://finance.yahoo.com/video/long-investment-banking-boost-last-203846171.html)
-- Jul 16 - [This Is What Your Net Worth Should Be at 62 To Be on Track for a Comfortable Retirement](https://finance.yahoo.com/news/net-worth-62-track-comfortable-200751065.html)
-- Jul 16 - [Official describes the moment a Butler officer confronted the Trump shooter](https://www.yahoo.com/news/official-describes-moment-butler-officer-183058057.html)
+- Jul 16 - [Gold hits a new record: What's driving prices higher](https://finance.yahoo.com/video/gold-hits-record-whats-driving-205934195.html)
+- Jul 16 - [Democratic calls for Biden to step down may ‘be getting more organized’ despite apparent lull](https://www.yahoo.com/news/democratic-calls-biden-step-down-205746828.html)
+- Jul 16 - [Sparks Fly as Stolen Coffee Truck Topples Over](https://www.yahoo.com/news/sparks-fly-stolen-coffee-truck-193950274.html)
+- Jul 16 - [Former White House official accused of acting as South Korea agent](https://www.yahoo.com/news/ex-white-house-official-indicted-190842306.html)
 - Jul 16 - [The president of Florida's only public historically Black university resigns after donation debacle](https://www.yahoo.com/news/president-floridas-only-public-historically-181753920.html)
-- Jul 16 - [US received intel of Iranian plot to assassinate Trump, CNN reports](https://www.yahoo.com/news/us-received-intel-iranian-plot-181507040.html)
 <!-- feed end -->
 
 ### Onstream
