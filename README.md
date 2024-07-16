@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Stocks in 'last gasp' of bull market -portfolio manager](https://finance.yahoo.com/video/stocks-last-gasp-bull-market-195312748.html)
-- Jul 16 - [Elon Musk says he's moving SpaceX, X headquarters from California to Texas](https://finance.yahoo.com/news/elon-musk-says-hes-moving-195127441.html)
+- Jul 16 - [How long will the investment banking boost last?](https://finance.yahoo.com/video/long-investment-banking-boost-last-203846171.html)
+- Jul 16 - [This Is What Your Net Worth Should Be at 62 To Be on Track for a Comfortable Retirement](https://finance.yahoo.com/news/net-worth-62-track-comfortable-200751065.html)
+- Jul 16 - [Official describes the moment a Butler officer confronted the Trump shooter](https://www.yahoo.com/news/official-describes-moment-butler-officer-183058057.html)
 - Jul 16 - [The president of Florida's only public historically Black university resigns after donation debacle](https://www.yahoo.com/news/president-floridas-only-public-historically-181753920.html)
 - Jul 16 - [US received intel of Iranian plot to assassinate Trump, CNN reports](https://www.yahoo.com/news/us-received-intel-iranian-plot-181507040.html)
-- Jul 16 - [Second group of Kenyan police officers arrives in Haiti as part of a UN-backed mission to quell gang violence](https://www.yahoo.com/news/second-group-kenyan-police-officers-180238382.html)
 <!-- feed end -->
 
 ### Onstream
