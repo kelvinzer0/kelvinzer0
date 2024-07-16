@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 16 - [Anti-LGBTQ rhetoric plays a prominent role in first night of RNC](https://www.yahoo.com/news/anti-lgbtq-rhetoric-plays-prominent-034600123.html)
 - Jul 16 - [North Korea warns of 'devastating consequences' over leaflets from South](https://www.yahoo.com/news/north-korea-warns-devastating-consequences-021049079.html)
+- Jul 16 - [Japan finds a 'stealth' cure for zombie businesses: Let them fail](https://finance.yahoo.com/news/japan-finds-stealth-cure-zombie-010410004.html)
 - Jul 15 - [President of Dickinson State University in North Dakota resigns after nursing faculty quit](https://www.yahoo.com/news/president-dickinson-state-university-north-233655675.html)
 - Jul 15 - [Terrell Davis says he was handcuffed by FBI on United flight after false accusation: 'Disgusting display of injustice'](https://sports.yahoo.com/terrell-davis-says-he-was-handcuffed-by-fbi-on-united-flight-after-false-accusation-disgusting-display-of-injustice-231052551.html)
-- Jul 15 - [Farmers scramble after devastating drought leaves entire herds without water: 'We can't let the animals die'](https://www.yahoo.com/news/farmers-scramble-devastating-drought-leaves-230000636.html)
 <!-- feed end -->
 
 ### Onstream
