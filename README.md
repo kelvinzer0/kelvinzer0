@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [Brush fire south of Eugene Airport, evacuations off Green Hill Road](https://www.yahoo.com/news/brush-fire-reported-south-eugene-234742752.html)
 - Jul 15 - [President of Dickinson State University in North Dakota resigns after nursing faculty quit](https://www.yahoo.com/news/president-dickinson-state-university-north-233655675.html)
 - Jul 15 - [Terrell Davis says he was handcuffed by FBI on United flight after false accusation: 'Disgusting display of injustice'](https://sports.yahoo.com/terrell-davis-says-he-was-handcuffed-by-fbi-on-united-flight-after-false-accusation-disgusting-display-of-injustice-231052551.html)
-- Jul 15 - [Medical entrepreneur and her DJ husband arrested over $900m healthcare fraud scheme](https://www.yahoo.com/news/medical-entrepreneur-her-dj-husband-211153984.html)
-- Jul 15 - [4 reasons hardware will drive big tech earnings: Fund manager](https://finance.yahoo.com/video/4-reasons-hardware-drive-big-210230960.html)
-- Jul 15 - [3 hikers die in Utah parks as temperatures hit triple digits](https://www.yahoo.com/news/three-hikers-die-utah-parks-195403699.html)
+- Jul 15 - [NFL Hall of Famer says he was unjustly handcuffed and 'humiliated' on a flight](https://www.yahoo.com/news/nfl-hall-famer-says-unjustly-222110694.html)
+- Jul 15 - [Man pleads to selling thousands of mPerks account logins](https://www.yahoo.com/news/man-pleads-selling-thousands-mperks-222105187.html)
 <!-- feed end -->
 
 ### Onstream
