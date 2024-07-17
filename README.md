@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [‘It’s a very ugly American trait’: I cried foul when basic-economy passengers grabbed premium-economy seats. The airline has finally shown me respect.](https://finance.yahoo.com/news/very-ugly-american-trait-cried-090500761.html)
-- Jul 16 - [Johnson to remove George Washington statue from outside his City Hall office](https://www.yahoo.com/news/johnson-remove-george-washington-statue-212600977.html)
-- Jul 16 - [J.D. Vance Caught on Video Telling Far-Right Group Alex Jones Is Right](https://www.yahoo.com/news/j-d-vance-caught-video-202454683.html)
-- Jul 16 - [Stocks in 'last gasp' of bull market -portfolio manager](https://finance.yahoo.com/video/stocks-last-gasp-bull-market-195312748.html)
-- Jul 16 - [Sparks Fly as Stolen Coffee Truck Topples Over](https://www.yahoo.com/news/sparks-fly-stolen-coffee-truck-193950274.html)
+- Jul 17 - [Gaetz Interrupts McCarthy’s CNN Interview in Heated RNC Floor Feud](https://www.yahoo.com/news/gaetz-interrupts-mccarthy-cnn-interview-004639988.html)
+- Jul 17 - [Houthi rebels release video said to show latest attack on commercial vessel in Red Sea](https://www.yahoo.com/news/houthi-rebels-release-video-said-002805341.html)
+- Jul 16 - [Russia's Medvedev says Ukraine joining NATO would mean war](https://www.yahoo.com/news/russias-medvedev-says-ukraine-joining-233735826.html)
+- Jul 16 - [A Colorado couple with a net worth of $800,000 shares how the FIRE movement is helping them reach their goal of retiring in their 40s](https://finance.yahoo.com/news/colorado-couple-net-worth-800-180302197.html)
+- Jul 16 - [Aiken businessmen indicted after allegedly swindling elderly woman worth $8 million](https://www.yahoo.com/news/aiken-businessmen-indicted-allegedly-swindling-223430902.html)
 <!-- feed end -->
 
 ### Onstream
