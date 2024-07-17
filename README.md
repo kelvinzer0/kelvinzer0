@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Meta will reportedly withhold multimodal AI models from the EU amid regulatory uncertainty](https://www.yahoo.com/news/meta-will-reportedly-withhold-multimodal-ai-models-from-the-eu-amid-regulatory-uncertainty-215543292.html)
+- Jul 17 - [Shopify Stock Is Rising After Upgrade. It’s ‘Turned a Corner’ on Growth.](https://www.barrons.com/articles/shopify-stock-wall-street-upgrade-93662956?siteid=yhoof2&yptr=yahoo)
+- Jul 17 - [New car prices remain high despite high inventory. Here's why](https://finance.yahoo.com/video/car-prices-remain-high-despite-213618196.html)
 - Jul 17 - [Opinion: The Democrats Need a Hero. They Actually Already Have One](https://www.yahoo.com/news/democrats-hero-actually-already-one-213148251.html)
-- Jul 17 - [‘Cut that crap out’: Biden lashes out at Democrat in heated call](https://www.yahoo.com/news/cut-crap-biden-lashes-democrat-172650539.html)
-- Jul 17 - [If Your Pee Looks Or Smells Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/pee-looks-smells-time-see-181603259.html)
-- Jul 17 - [What is the monthly payment on a $600,000 mortgage?](https://finance.yahoo.com/personal-finance/600000-mortgage-165448068.html)
+- Jul 17 - [Flight attendant held up broken bathroom door for entire 16-hour trip from Hong Kong to New York](https://www.yahoo.com/news/flight-attendant-held-broken-bathroom-211551205.html)
+- Jul 17 - [UPDATE: Wisconsin man facing child porn & trafficking charges tied to Phillippines appears in court](https://www.yahoo.com/news/investigation-wisconsin-man-arrest-culminates-162932412.html)
 <!-- feed end -->
 
 ### Onstream
