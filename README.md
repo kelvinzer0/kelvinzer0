@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Fire crews battle blaze off McKenzie View Drive](https://www.yahoo.com/news/oregon-wildfire-erupts-off-mckenzie-030858781.html)
+- Jul 17 - [1 Unstoppable Stock Set to Join Nvidia, Apple, and Microsoft in the $3 Trillion Club](https://finance.yahoo.com/news/1-unstoppable-stock-set-join-084600815.html)
 - Jul 17 - [China strives to lure foreign tourists, but it's a hard sell for some](https://www.yahoo.com/news/china-strives-lure-foreign-tourists-010401442.html)
+- Jul 17 - [Sam Altman's infinity pool flooded his $27 million Russian Hill mansion, lawsuit says](https://www.yahoo.com/news/sam-altmans-infinity-pool-flooded-010339285.html)
 - Jul 17 - [Houthi rebels release video said to show latest attack on commercial vessel in Red Sea](https://www.yahoo.com/news/houthi-rebels-release-video-said-002805341.html)
-- Jul 16 - [Russia's Medvedev says Ukraine joining NATO would mean war](https://www.yahoo.com/news/russias-medvedev-says-ukraine-joining-233735826.html)
-- Jul 16 - [A tornado ripped the roof of a Des Moines apartment. A resident captured it on video.](https://www.yahoo.com/news/tornado-ripped-roof-des-moines-213419173.html)
+- Jul 16 - [Elon Musk says he is moving X, SpaceX headquarters to Texas](https://finance.yahoo.com/video/elon-musk-says-moving-x-202756999.html)
 <!-- feed end -->
 
 ### Onstream
