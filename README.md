@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jul 17 - [China strives to lure foreign tourists, but it's a hard sell for some](https://www.yahoo.com/news/china-strives-lure-foreign-tourists-010401442.html)
 - Jul 17 - [Police in Thailand investigate death of six people in hotel room in downtown Bangkok](https://www.yahoo.com/news/police-thailand-investigate-death-six-001044822.html)
 - Jul 16 - [Russia's Medvedev says Ukraine joining NATO would mean war](https://www.yahoo.com/news/russias-medvedev-says-ukraine-joining-233735826.html)
-- Jul 16 - [A tornado ripped the roof of a Des Moines apartment. A resident captured it on video.](https://www.yahoo.com/news/tornado-ripped-roof-des-moines-213419173.html)
 - Jul 16 - [Gold hits a new record: What's driving prices higher](https://finance.yahoo.com/video/gold-hits-record-whats-driving-205934195.html)
+- Jul 16 - [This Is What Your Net Worth Should Be at 62 To Be on Track for a Comfortable Retirement](https://finance.yahoo.com/news/net-worth-62-track-comfortable-200751065.html)
 <!-- feed end -->
 
 ### Onstream
