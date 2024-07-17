@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [ASML shares fall as risk of China measures clouds solid Q2 earnings](https://finance.yahoo.com/news/asml-posts-second-quarter-earnings-051147076.html)
-- Jul 17 - [Fire crews battle blaze off McKenzie View Drive](https://www.yahoo.com/news/oregon-wildfire-erupts-off-mckenzie-030858781.html)
-- Jul 17 - [China strives to lure foreign tourists, but it's a hard sell for some](https://www.yahoo.com/news/china-strives-lure-foreign-tourists-010401442.html)
-- Jul 17 - [Houthi rebels release video said to show latest attack on commercial vessel in Red Sea](https://www.yahoo.com/news/houthi-rebels-release-video-said-002805341.html)
-- Jul 16 - [Russia's Medvedev says Ukraine joining NATO would mean war](https://www.yahoo.com/news/russias-medvedev-says-ukraine-joining-233735826.html)
+- Jul 17 - [Carolina home inspector points out major problems in new builds — how to make sure you don’t buy a money pit](https://finance.yahoo.com/news/carolina-home-inspector-points-major-111700999.html)
+- Jul 17 - [I’m 58 years old and have $1.5M in savings — how much can I spend per month if I retire today?](https://finance.yahoo.com/news/m-58-years-old-1-111200651.html)
+- Jul 17 - [Boeing Seattle factory workers to send 'strong message' at strike sanction vote, union says](https://www.yahoo.com/news/boeing-seattle-factory-workers-send-100244011.html)
+- Jul 17 - [60,000 Scouts went to this camp near McCall. An Albertson family development firm just bought it](https://www.yahoo.com/news/60-000-scouts-went-camp-100000847.html)
+- Jul 17 - [Former CIA analyst Sue Mi Terry indicted on charges of secretly working for South Korea](https://www.yahoo.com/news/former-cia-analyst-sue-mi-054716249.html)
 <!-- feed end -->
 
 ### Onstream
