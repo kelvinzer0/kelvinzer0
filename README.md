@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [BREAKING: Schiff calls on Biden to drop out of 2024 race](https://www.yahoo.com/news/breaking-schiff-calls-biden-drop-185232888.html)
 - Jul 17 - [If Your Pee Looks Or Smells Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/pee-looks-smells-time-see-181603259.html)
-- Jul 17 - [Dave Ramsey Slams Instagram Rich: Your Fancy Friends Are Probably Broke](https://finance.yahoo.com/news/dave-ramsey-slams-instagram-rich-170014645.html)
+- Jul 17 - [‘Cut that crap out’: Biden lashes out at Democrat in heated call](https://www.yahoo.com/news/cut-crap-biden-lashes-democrat-172650539.html)
 - Jul 17 - [What is the monthly payment on a $600,000 mortgage?](https://finance.yahoo.com/personal-finance/600000-mortgage-165448068.html)
-- Jul 17 - [Flood Alerts issued in Washington, Baltimore as millions along I-95 corridor brace for severe weather Wednesday](https://www.yahoo.com/news/flood-alerts-issued-washington-baltimore-153225332.html)
-- Jul 17 - [‘I truly hate him’: Bill O’Reilly reunites with Jon Stewart on ‘The Daily Show’](https://www.yahoo.com/entertainment/truly-hate-him-bill-o-142409224.html)
+- Jul 17 - [Lee’s Summit couple sues KC hospital over ‘dirty’ infection. ‘It’s been devastating’](https://www.yahoo.com/news/lee-summit-couple-sue-kc-164703957.html)
 <!-- feed end -->
 
 ### Onstream
