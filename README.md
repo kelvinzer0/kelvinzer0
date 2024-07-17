@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [BREAKING: Schiff calls on Biden to drop out of 2024 race](https://www.yahoo.com/news/breaking-schiff-calls-biden-drop-185232888.html)
-- Jul 17 - [If Your Pee Looks Or Smells Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/pee-looks-smells-time-see-181603259.html)
+- Jul 17 - [J.B. Hunt stock falls on Q2 earnings miss](https://finance.yahoo.com/video/j-b-hunt-stock-falls-203947358.html)
+- Jul 17 - [Rudy Giuliani blows through $30K in seven days since last bankruptcy hearing](https://finance.yahoo.com/news/rudy-giuliani-blows-30k-seven-200512576.html)
+- Jul 17 - [Blade collapse, New York launch and New Jersey research show uneven progress of offshore wind](https://www.yahoo.com/news/blade-collapse-york-launch-jersey-200809830.html)
 - Jul 17 - [‘Cut that crap out’: Biden lashes out at Democrat in heated call](https://www.yahoo.com/news/cut-crap-biden-lashes-democrat-172650539.html)
-- Jul 17 - [What is the monthly payment on a $600,000 mortgage?](https://finance.yahoo.com/personal-finance/600000-mortgage-165448068.html)
-- Jul 17 - [Lee’s Summit couple sues KC hospital over ‘dirty’ infection. ‘It’s been devastating’](https://www.yahoo.com/news/lee-summit-couple-sue-kc-164703957.html)
+- Jul 17 - [Microburst toppled 150 trees, damaged cars and homes in New Hampshire, NWS says](https://www.yahoo.com/news/microburst-toppled-150-trees-damaged-191041123.html)
 <!-- feed end -->
 
 ### Onstream
