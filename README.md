@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [From 'he is unhinged' to 'we agree more often than we disagree': Nikki Haley changes tune on Trump](https://www.yahoo.com/news/unhinged-agree-more-often-disagree-150105979.html)
-- Jul 17 - [Queen Camilla Embraces Statement Shoulders in Fiona Clare Gown With Crown From Queen Elizabeth II’s Collection for State Opening of Parliament Alongside King Charles III](https://www.yahoo.com/entertainment/queen-camilla-embraces-statement-shoulders-135519484.html)
-- Jul 17 - [Carolina home inspector points out major problems in new builds — how to make sure you don’t buy a money pit](https://finance.yahoo.com/news/carolina-home-inspector-points-major-111700999.html)
-- Jul 17 - [Millions in Northeast brace for another round of powerful storms along I-95 corridor](https://www.yahoo.com/news/millions-northeast-brace-another-round-105128925.html)
-- Jul 17 - [Many US solar factories are lagging. Except those China owns](https://finance.yahoo.com/news/many-us-solar-factories-lagging-101038526.html)
+- Jul 17 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- Jul 17 - [Dollywood forced to close for the day an hour after opening. Here’s why](https://www.yahoo.com/news/dollywood-forced-close-day-hour-154944662.html)
+- Jul 17 - [‘I truly hate him’: Bill O’Reilly reunites with Jon Stewart on ‘The Daily Show’](https://www.yahoo.com/entertainment/truly-hate-him-bill-o-142409224.html)
+- Jul 17 - [Mike Johnson Pushes Wildly Racist Conspiracy During RNC Speech](https://www.yahoo.com/news/mike-johnson-pushes-wildly-racist-142344495.html)
+- Jul 17 - [Google, Microsoft offer Nvidia chips to Chinese companies, the Information reports](https://finance.yahoo.com/news/google-microsoft-offer-nvidia-chips-133606546.html)
 <!-- feed end -->
 
 ### Onstream
