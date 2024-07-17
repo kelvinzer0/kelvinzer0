@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 17 - [China strives to lure foreign tourists, but it's a hard sell for some](https://www.yahoo.com/news/china-strives-lure-foreign-tourists-010401442.html)
-- Jul 17 - [Police in Thailand investigate death of six people in hotel room in downtown Bangkok](https://www.yahoo.com/news/police-thailand-investigate-death-six-001044822.html)
+- Jul 17 - [Houthi rebels release video said to show latest attack on commercial vessel in Red Sea](https://www.yahoo.com/news/houthi-rebels-release-video-said-002805341.html)
 - Jul 16 - [Russia's Medvedev says Ukraine joining NATO would mean war](https://www.yahoo.com/news/russias-medvedev-says-ukraine-joining-233735826.html)
-- Jul 16 - [Gold hits a new record: What's driving prices higher](https://finance.yahoo.com/video/gold-hits-record-whats-driving-205934195.html)
-- Jul 16 - [This Is What Your Net Worth Should Be at 62 To Be on Track for a Comfortable Retirement](https://finance.yahoo.com/news/net-worth-62-track-comfortable-200751065.html)
+- Jul 16 - [A Colorado couple with a net worth of $800,000 shares how the FIRE movement is helping them reach their goal of retiring in their 40s](https://finance.yahoo.com/news/colorado-couple-net-worth-800-180302197.html)
+- Jul 16 - [Anger over Houston power outages after Beryl has repair crews facing threats from some residents](https://www.yahoo.com/news/anger-over-houston-power-outages-220948335.html)
 <!-- feed end -->
 
 ### Onstream
