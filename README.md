@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [1 Unstoppable Stock Set to Join Nvidia, Apple, and Microsoft in the $3 Trillion Club](https://finance.yahoo.com/news/1-unstoppable-stock-set-join-084600815.html)
+- Jul 17 - [US dollars exit China's VC market, ending 2-decade marriage that enabled rise of start-ups](https://finance.yahoo.com/news/us-dollars-exit-chinas-vc-093000966.html)
+- Jul 17 - [Scientists warn that ancient Greek sanctuary could be sinking into sea: 'Condemned to disappear in around 50 years'](https://www.yahoo.com/news/scientists-warn-ancient-greek-sanctuary-053000939.html)
+- Jul 17 - [ASML shares fall as risk of China measures clouds solid Q2 earnings](https://finance.yahoo.com/news/asml-posts-second-quarter-earnings-051147076.html)
+- Jul 17 - [Fire crews battle blaze off McKenzie View Drive](https://www.yahoo.com/news/oregon-wildfire-erupts-off-mckenzie-030858781.html)
 - Jul 17 - [China strives to lure foreign tourists, but it's a hard sell for some](https://www.yahoo.com/news/china-strives-lure-foreign-tourists-010401442.html)
-- Jul 17 - [Sam Altman's infinity pool flooded his $27 million Russian Hill mansion, lawsuit says](https://www.yahoo.com/news/sam-altmans-infinity-pool-flooded-010339285.html)
-- Jul 17 - [Houthi rebels release video said to show latest attack on commercial vessel in Red Sea](https://www.yahoo.com/news/houthi-rebels-release-video-said-002805341.html)
-- Jul 16 - [Elon Musk says he is moving X, SpaceX headquarters to Texas](https://finance.yahoo.com/video/elon-musk-says-moving-x-202756999.html)
 <!-- feed end -->
 
 ### Onstream
