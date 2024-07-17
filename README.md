@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Gaetz Interrupts McCarthy’s CNN Interview in Heated RNC Floor Feud](https://www.yahoo.com/news/gaetz-interrupts-mccarthy-cnn-interview-004639988.html)
-- Jul 17 - [Houthi rebels release video said to show latest attack on commercial vessel in Red Sea](https://www.yahoo.com/news/houthi-rebels-release-video-said-002805341.html)
+- Jul 17 - [China strives to lure foreign tourists, but it's a hard sell for some](https://www.yahoo.com/news/china-strives-lure-foreign-tourists-010401442.html)
+- Jul 17 - [Police in Thailand investigate death of six people in hotel room in downtown Bangkok](https://www.yahoo.com/news/police-thailand-investigate-death-six-001044822.html)
 - Jul 16 - [Russia's Medvedev says Ukraine joining NATO would mean war](https://www.yahoo.com/news/russias-medvedev-says-ukraine-joining-233735826.html)
-- Jul 16 - [A Colorado couple with a net worth of $800,000 shares how the FIRE movement is helping them reach their goal of retiring in their 40s](https://finance.yahoo.com/news/colorado-couple-net-worth-800-180302197.html)
-- Jul 16 - [Aiken businessmen indicted after allegedly swindling elderly woman worth $8 million](https://www.yahoo.com/news/aiken-businessmen-indicted-allegedly-swindling-223430902.html)
+- Jul 16 - [A tornado ripped the roof of a Des Moines apartment. A resident captured it on video.](https://www.yahoo.com/news/tornado-ripped-roof-des-moines-213419173.html)
+- Jul 16 - [Gold hits a new record: What's driving prices higher](https://finance.yahoo.com/video/gold-hits-record-whats-driving-205934195.html)
 <!-- feed end -->
 
 ### Onstream
