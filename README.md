@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Two deaths in Canada linked to Silk, Great Value product recall: Listeria symptoms, prevention tips & more to know](https://www.yahoo.com/lifestyle/two-deaths-in-canada-linked-to-silk-great-value-product-recall-listeria-symptoms-prevention-tips--more-to-know-135043033.html)
+- Jul 18 - [The Ukrainian army pulls out from another eastern village as Russia smashes defensive positions](https://www.yahoo.com/news/ukrainian-army-pulls-another-eastern-140226915.html)
+- Jul 18 - [Can I Use My RMDs to Make Contributions to My Roth IRA?](https://finance.yahoo.com/news/rmds-transfer-money-roth-ira-121600034.html)
+- Jul 18 - [US agency says apps that let workers access paychecks before payday are providing loans](https://finance.yahoo.com/news/us-agency-says-apps-let-132943578.html)
 - Jul 18 - [Slovakia, Hungary say Ukraine has halted Lukoil's Russian oil transit](https://www.yahoo.com/news/slovakia-hungary-ukraine-halted-lukoils-132728436.html)
 - Jul 18 - [TV personality videotaped sex sting operation in Traverse City](https://www.yahoo.com/news/tv-personality-videotaped-sex-sting-123200431.html)
-- Jul 18 - [Ford pivots from EV plans to heavy-duty trucks at Canada facility](https://finance.yahoo.com/news/ford-pivots-ev-plans-heavy-120102777.html)
-- Jul 18 - [7 Questions You Should Never Answer When Buying a Car](https://finance.yahoo.com/news/7-questions-never-answer-buying-130031537.html)
 <!-- feed end -->
 
 ### Onstream
