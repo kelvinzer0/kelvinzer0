@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Schumer told Biden he should end reelection bid, ABC News reports](https://www.yahoo.com/news/schumer-told-biden-end-reelection-232158369.html)
-- Jul 17 - [Suspect in custody after apparent road rage on Interstate 10, South MS authorities say](https://www.yahoo.com/news/suspect-custody-apparent-road-rage-213554516.html)
+- Jul 18 - [Remains found in wastewater well last month identified as TAMU-CC student Caleb Harris](https://www.yahoo.com/news/remains-found-wastewater-well-last-011455720.html)
+- Jul 18 - [J. Michael Cline Dies In Fall From Midtown Manhattan Hotel Suite; Fandango Founder Was 64](https://www.yahoo.com/news/j-michael-cline-dies-fall-005328146.html)
+- Jul 17 - [Oregon man ‘scared’ after learning he may be infected due to hospital error affecting thousands](https://www.yahoo.com/news/oregon-man-scared-learning-may-235441535.html)
+- Jul 17 - [Beloved Disney World character is ‘too offensive’ for bear show](https://www.yahoo.com/news/beloved-drunk-bear-too-offensive-231242893.html)
 - Jul 17 - [Opinion: The Democrats Need a Hero. They Actually Already Have One](https://www.yahoo.com/news/democrats-hero-actually-already-one-213148251.html)
-- Jul 17 - [Flight attendant held up broken bathroom door for entire 16-hour trip from Hong Kong to New York](https://www.yahoo.com/news/flight-attendant-held-broken-bathroom-211551205.html)
-- Jul 17 - [New York storm topples B-52 bomber, tears roof off church](https://www.yahoo.com/news/york-storm-topples-b-52-203901341.html)
 <!-- feed end -->
 
 ### Onstream
