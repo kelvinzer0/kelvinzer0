@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Vietnam files UN claim to extended continental shelf in South China Sea](https://www.yahoo.com/news/vietnam-files-un-claim-extended-020251775.html)
+- Jul 18 - [This grass can go weeks without water — and Utah just approved it](https://www.yahoo.com/news/grass-weeks-without-water-utah-005352205.html)
 - Jul 18 - [J. Michael Cline Dies In Fall From Midtown Manhattan Hotel Suite; Fandango Founder Was 64](https://www.yahoo.com/news/j-michael-cline-dies-fall-005328146.html)
 - Jul 18 - ['You better start packing now’: Former ICE director sends message to undocumented migrants](https://www.yahoo.com/news/better-start-packing-now-former-002615796.html)
-- Jul 17 - [Oregon man ‘scared’ after learning he may be infected due to hospital error affecting thousands](https://www.yahoo.com/news/oregon-man-scared-learning-may-235441535.html)
-- Jul 17 - [New car prices remain high despite high inventory. Here's why](https://finance.yahoo.com/video/car-prices-remain-high-despite-213618196.html)
-- Jul 17 - [Suspect in custody after apparent road rage on Interstate 10, South MS authorities say](https://www.yahoo.com/news/suspect-custody-apparent-road-rage-213554516.html)
+- Jul 18 - [Scientists issue critical warning after US city confirms case of serious disease spread by fleas: 'An infected person must be treated promptly'](https://www.yahoo.com/news/scientists-issue-critical-warning-us-001500811.html)
 <!-- feed end -->
 
 ### Onstream
