@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [The School Music Group that Led Zeppelin Loves](https://www.yahoo.com/entertainment/school-music-group-led-zeppelin-123000666.html)
-- Jul 18 - [There’s still one recourse for Supreme Court justices who lied at their confirmations | Opinion](https://www.yahoo.com/news/still-one-recourse-supreme-court-110600752.html)
-- Jul 18 - [Italy carrier strike group joins Australia war games, will visit Philippines](https://www.yahoo.com/news/italy-carrier-strike-group-joins-093036333.html)
-- Jul 18 - [Check out NASA's next space station. It won't orbit Earth.](https://www.yahoo.com/lifestyle/check-nasas-next-space-station-093000463.html)
-- Jul 18 - [Sealed bottles of tattoo and permanent makeup ink test positive for millions of bacteria, FDA says](https://www.yahoo.com/news/sealed-bottles-tattoo-permanent-makeup-090043023.html)
+- Jul 18 - [Two deaths in Canada linked to Silk, Great Value product recall: Listeria symptoms, prevention tips & more to know](https://www.yahoo.com/lifestyle/two-deaths-in-canada-linked-to-silk-great-value-product-recall-listeria-symptoms-prevention-tips--more-to-know-135043033.html)
+- Jul 18 - [Slovakia, Hungary say Ukraine has halted Lukoil's Russian oil transit](https://www.yahoo.com/news/slovakia-hungary-ukraine-halted-lukoils-132728436.html)
+- Jul 18 - [TV personality videotaped sex sting operation in Traverse City](https://www.yahoo.com/news/tv-personality-videotaped-sex-sting-123200431.html)
+- Jul 18 - [Ford pivots from EV plans to heavy-duty trucks at Canada facility](https://finance.yahoo.com/news/ford-pivots-ev-plans-heavy-120102777.html)
+- Jul 18 - [7 Questions You Should Never Answer When Buying a Car](https://finance.yahoo.com/news/7-questions-never-answer-buying-130031537.html)
 <!-- feed end -->
 
 ### Onstream
