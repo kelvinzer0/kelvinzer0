@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Key U.S. mortgage rate drops to lowest since March, Freddie Mac says](https://finance.yahoo.com/news/key-u-mortgage-rate-drops-193101566.html)
 - Jul 18 - ['We're close to the end': Biden world braces for the possibility that the president steps aside](https://www.yahoo.com/news/were-close-end-biden-world-191219107.html)
 - Jul 18 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
-- Jul 18 - [Search continues for missing 2-year-old girl in Canton](https://www.yahoo.com/news/search-continues-missing-2-old-185443552.html)
+- Jul 18 - [Aerospace workers challenge planemakers over mandatory overtime](https://finance.yahoo.com/news/aerospace-workers-challenge-planemakers-over-182658534.html)
 - Jul 18 - [Boeing is closer to understanding thruster failures on its first astronaut flight with latest test](https://www.yahoo.com/news/boeing-closer-understanding-thruster-failures-182527565.html)
-- Jul 18 - [US appeals court blocks all of Biden student debt relief plan](https://www.yahoo.com/news/us-appeals-court-blocks-biden-182436377.html)
 <!-- feed end -->
 
 ### Onstream
