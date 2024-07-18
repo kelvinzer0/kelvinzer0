@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [This towering KC landmark deserves to shine again, especially with World Cup on the way](https://www.yahoo.com/news/towering-kc-landmark-deserves-shine-103000633.html)
-- Jul 18 - [Mold, mice and a bunny: What Kansas food safety inspections found in Topeka last month](https://www.yahoo.com/news/mold-mice-bunny-kansas-food-090243076.html)
-- Jul 18 - [Rare pictures released of uncontacted Amazon rainforest tribe in Peru emerging near logging site](https://www.yahoo.com/news/rare-pictures-released-uncontacted-amazon-074335458.html)
-- Jul 18 - [Man who escaped Oregon prison 30 years ago was found in Georgia with a stolen identity, authorities say](https://www.yahoo.com/news/man-escaped-oregon-prison-30-065103755.html)
-- Jul 18 - [J. Michael Cline Dies In Fall From Midtown Manhattan Hotel Suite; Fandango Founder Was 64](https://www.yahoo.com/news/j-michael-cline-dies-fall-005328146.html)
+- Jul 18 - [This Artificial Intelligence (AI) Stock Is Outperforming Nvidia. Can It Keep Doing So?](https://finance.yahoo.com/news/artificial-intelligence-ai-stock-outperforming-105500402.html)
+- Jul 18 - [Italy carrier strike group joins Australia war games, will visit Philippines](https://www.yahoo.com/news/italy-carrier-strike-group-joins-093036333.html)
+- Jul 18 - [After Trump comments, Taiwan officials respond](https://www.yahoo.com/news/trump-comments-taiwan-officials-respond-081732858.html)
+- Jul 18 - [Time to Pounce: 2 Beaten-Down Ultra-High-Yield Dividend Stocks That Are Begging to Be Bought Right Now](https://finance.yahoo.com/news/time-pounce-2-beaten-down-075100515.html)
+- Jul 18 - [Wedbush says Palantir stock could nearly double from here. Here's how](https://finance.yahoo.com/news/wedbush-says-palantir-stock-could-065407841.html)
 <!-- feed end -->
 
 ### Onstream
