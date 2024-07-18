@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [NWS confirms second tornado hit Rochester region on Monday. Here's where it touched down](https://www.yahoo.com/news/nws-confirms-second-tornado-hit-093701701.html)
-- Jul 18 - [‘Drunk’ Disney bear cancelled over ‘derogatory and offensive’ name](https://www.yahoo.com/news/beloved-drunk-bear-too-offensive-231242893.html)
-- Jul 18 - [Here's the Very Latest 2025 Social Security COLA Estimate](https://finance.yahoo.com/news/heres-very-latest-2025-social-075900779.html)
+- Jul 18 - [This towering KC landmark deserves to shine again, especially with World Cup on the way](https://www.yahoo.com/news/towering-kc-landmark-deserves-shine-103000633.html)
+- Jul 18 - [Mold, mice and a bunny: What Kansas food safety inspections found in Topeka last month](https://www.yahoo.com/news/mold-mice-bunny-kansas-food-090243076.html)
+- Jul 18 - [Rare pictures released of uncontacted Amazon rainforest tribe in Peru emerging near logging site](https://www.yahoo.com/news/rare-pictures-released-uncontacted-amazon-074335458.html)
 - Jul 18 - [Man who escaped Oregon prison 30 years ago was found in Georgia with a stolen identity, authorities say](https://www.yahoo.com/news/man-escaped-oregon-prison-30-065103755.html)
 - Jul 18 - [J. Michael Cline Dies In Fall From Midtown Manhattan Hotel Suite; Fandango Founder Was 64](https://www.yahoo.com/news/j-michael-cline-dies-fall-005328146.html)
 <!-- feed end -->
