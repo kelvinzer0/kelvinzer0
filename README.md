@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Joe Biden is taking Paxlovid, even though doctors know it doesn't really work](https://www.yahoo.com/lifestyle/joe-biden-taking-paxlovid-even-153939832.html)
 - Jul 18 - [US-made Abrams are better than Russia's best tanks in the war, Ukrainian commander says, and it's not even close](https://www.yahoo.com/news/us-made-abrams-better-russias-150201324.html)
 - Jul 18 - [The Ukrainian army pulls out from another eastern village as Russia smashes defensive positions](https://www.yahoo.com/news/ukrainian-army-pulls-another-eastern-140226915.html)
 - Jul 18 - [US agency says apps that let workers access paychecks before payday are providing loans](https://finance.yahoo.com/news/us-agency-says-apps-let-132943578.html)
 - Jul 18 - [Slovakia, Hungary say Ukraine has halted Lukoil's Russian oil transit](https://www.yahoo.com/news/slovakia-hungary-ukraine-halted-lukoils-132728436.html)
-- Jul 18 - [Archaeologists Found a Lost Temple in the Sand That Solves a Major Historical Puzzle](https://www.yahoo.com/news/archaeologists-found-lost-temple-sand-131500221.html)
 <!-- feed end -->
 
 ### Onstream
