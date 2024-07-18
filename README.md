@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [This Artificial Intelligence (AI) Stock Is Outperforming Nvidia. Can It Keep Doing So?](https://finance.yahoo.com/news/artificial-intelligence-ai-stock-outperforming-105500402.html)
+- Jul 18 - [The School Music Group that Led Zeppelin Loves](https://www.yahoo.com/entertainment/school-music-group-led-zeppelin-123000666.html)
+- Jul 18 - [There’s still one recourse for Supreme Court justices who lied at their confirmations | Opinion](https://www.yahoo.com/news/still-one-recourse-supreme-court-110600752.html)
 - Jul 18 - [Italy carrier strike group joins Australia war games, will visit Philippines](https://www.yahoo.com/news/italy-carrier-strike-group-joins-093036333.html)
-- Jul 18 - [After Trump comments, Taiwan officials respond](https://www.yahoo.com/news/trump-comments-taiwan-officials-respond-081732858.html)
-- Jul 18 - [Time to Pounce: 2 Beaten-Down Ultra-High-Yield Dividend Stocks That Are Begging to Be Bought Right Now](https://finance.yahoo.com/news/time-pounce-2-beaten-down-075100515.html)
-- Jul 18 - [Wedbush says Palantir stock could nearly double from here. Here's how](https://finance.yahoo.com/news/wedbush-says-palantir-stock-could-065407841.html)
+- Jul 18 - [Check out NASA's next space station. It won't orbit Earth.](https://www.yahoo.com/lifestyle/check-nasas-next-space-station-093000463.html)
+- Jul 18 - [Sealed bottles of tattoo and permanent makeup ink test positive for millions of bacteria, FDA says](https://www.yahoo.com/news/sealed-bottles-tattoo-permanent-makeup-090043023.html)
 <!-- feed end -->
 
 ### Onstream
