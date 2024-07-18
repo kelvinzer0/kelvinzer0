@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Shopify Stock Is Rising After Upgrade. It’s ‘Turned a Corner’ on Growth.](https://www.barrons.com/articles/shopify-stock-wall-street-upgrade-93662956?siteid=yhoof2&yptr=yahoo)
-- Jul 17 - [New car prices remain high despite high inventory. Here's why](https://finance.yahoo.com/video/car-prices-remain-high-despite-213618196.html)
+- Jul 17 - [Schumer told Biden he should end reelection bid, ABC News reports](https://www.yahoo.com/news/schumer-told-biden-end-reelection-232158369.html)
+- Jul 17 - [Suspect in custody after apparent road rage on Interstate 10, South MS authorities say](https://www.yahoo.com/news/suspect-custody-apparent-road-rage-213554516.html)
 - Jul 17 - [Opinion: The Democrats Need a Hero. They Actually Already Have One](https://www.yahoo.com/news/democrats-hero-actually-already-one-213148251.html)
 - Jul 17 - [Flight attendant held up broken bathroom door for entire 16-hour trip from Hong Kong to New York](https://www.yahoo.com/news/flight-attendant-held-broken-bathroom-211551205.html)
-- Jul 17 - [UPDATE: Wisconsin man facing child porn & trafficking charges tied to Phillippines appears in court](https://www.yahoo.com/news/investigation-wisconsin-man-arrest-culminates-162932412.html)
+- Jul 17 - [New York storm topples B-52 bomber, tears roof off church](https://www.yahoo.com/news/york-storm-topples-b-52-203901341.html)
 <!-- feed end -->
 
 ### Onstream
