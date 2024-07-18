@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Woman with newborn sexually assaulted in upscale Los Angeles neighborhood](https://www.yahoo.com/news/woman-newborn-sexually-assaulted-upscale-041712015.html)
+- Jul 18 - [Remains found in wastewater well last month identified as TAMU-CC student Caleb Harris](https://www.yahoo.com/news/remains-found-wastewater-well-last-011455720.html)
+- Jul 18 - [This grass can go weeks without water — and Utah just approved it](https://www.yahoo.com/news/grass-weeks-without-water-utah-005352205.html)
 - Jul 18 - [J. Michael Cline Dies In Fall From Midtown Manhattan Hotel Suite; Fandango Founder Was 64](https://www.yahoo.com/news/j-michael-cline-dies-fall-005328146.html)
 - Jul 18 - ['You better start packing now’: Former ICE director sends message to undocumented migrants](https://www.yahoo.com/news/better-start-packing-now-former-002615796.html)
-- Jul 18 - [Scientists issue critical warning after US city confirms case of serious disease spread by fleas: 'An infected person must be treated promptly'](https://www.yahoo.com/news/scientists-issue-critical-warning-us-001500811.html)
 - Jul 17 - [Oregon man ‘scared’ after learning he may be infected due to hospital error affecting thousands](https://www.yahoo.com/news/oregon-man-scared-learning-may-235441535.html)
 <!-- feed end -->
 
