@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [US rock band manager Travis Leake sentenced to 13 years in Russian penal colony, following drug charges](https://www.yahoo.com/news/us-rock-band-manager-travis-145712615.html)
-- Jul 18 - [Biden Finally Sees Writing on the Wall After Brutal Triple Leak](https://www.yahoo.com/news/biden-finally-sees-writing-wall-145212934.html)
-- Jul 18 - [The Ukrainian army pulls out from another eastern village as Russia smashes defensive positions](https://www.yahoo.com/news/ukrainian-army-pulls-another-eastern-140226915.html)
-- Jul 18 - [Can I Use My RMDs to Make Contributions to My Roth IRA?](https://finance.yahoo.com/news/rmds-transfer-money-roth-ira-121600034.html)
-- Jul 18 - [Slovakia, Hungary say Ukraine has halted Lukoil's Russian oil transit](https://www.yahoo.com/news/slovakia-hungary-ukraine-halted-lukoils-132728436.html)
+- Jul 18 - [Boeing is closer to understanding thruster failures on its first astronaut flight with latest test](https://www.yahoo.com/news/boeing-closer-understanding-thruster-failures-182527565.html)
+- Jul 18 - [Swimmer reported missing at East Matunuck](https://www.yahoo.com/news/swimmer-reported-missing-east-matunuck-181607105.html)
+- Jul 18 - [Boise State warns of a sexual battery near campus. Police are searching for a suspect](https://www.yahoo.com/news/boise-state-warns-sexual-battery-180809206.html)
+- Jul 18 - [Montana's largest nursing home prepares to close following patient safety violations](https://www.yahoo.com/news/montanas-largest-nursing-home-prepares-172527570.html)
+- Jul 18 - [Multiple people arrested in connection with Kansas City theft ring](https://www.yahoo.com/news/multiple-people-arrested-connection-kansas-152420633.html)
 <!-- feed end -->
 
 ### Onstream
