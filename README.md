@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [Microsoft IT outage live: Crowdstrike boss ‘deeply sorry’ as airline and hospital chaos could last for days](https://www.yahoo.com/news/microsoft-outage-latest-flights-grounded-073238102.html)
+- Jul 19 - [150 geese were a ‘nuisance’ in this Kansas City suburb. So homeowners had them killed](https://www.yahoo.com/news/150-geese-were-nuisance-kansas-143150660.html)
 - Jul 19 - [Why is Microsoft365 down? Is it a cyberattack? How Crowdstrike outage is impacting Tennessee](https://www.yahoo.com/news/why-microsoft365-down-cyberattack-crowdstrike-131541714.html)
-- Jul 19 - [Long before his arrest, US reporter lamented that many friends in Russia were being locked up](https://www.yahoo.com/news/long-arrest-us-reporter-lamented-125313159.html)
+- Jul 19 - [Treasury warns that anti-woke banking laws such as those in Florida are national security risk](https://www.yahoo.com/news/treasury-department-warns-anti-woke-130027413.html)
 - Jul 19 - [My parents got me whole life insurance for nearly $700 a month when I was 17 — am I completely screwed?](https://finance.yahoo.com/news/parents-got-whole-life-insurance-122200837.html)
-- Jul 19 - [Exclusive-ExxonMobil selling Malaysia oil and gas assets to Petronas, sources say](https://finance.yahoo.com/news/exclusive-exxonmobil-selling-malaysia-oil-110814879.html)
-- Jul 19 - [Kremlin: Interruptions in Russian oil transit via Ukraine a 'crisis' for buyers](https://www.yahoo.com/news/kremlin-interruptions-russian-oil-transit-104712813.html)
 <!-- feed end -->
 
 ### Onstream
