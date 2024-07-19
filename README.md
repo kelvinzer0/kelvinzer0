@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 19 - [Microsoft IT outage live: Crowdstrike boss ‘deeply sorry’ as airline and hospital chaos could last for days](https://www.yahoo.com/news/microsoft-outage-latest-flights-grounded-073238102.html)
-- Jul 19 - [Microsoft Recommends Rebooting Your Computer 15 Times as Blue Screen of Death Strikes Worldwide](https://www.yahoo.com/tech/microsoft-recommends-rebooting-computer-15-173405565.html)
-- Jul 19 - [Biden Could Make Major Announcement Soon After Trump Officially Accepts Republican Nomination](https://www.yahoo.com/news/biden-could-major-announcement-soon-172900983.html)
-- Jul 19 - [A Windows version from 1992 is saving Southwest’s butt right now](https://www.yahoo.com/news/windows-version-1992-saving-southwest-171922788.html)
-- Jul 19 - [NASA’s Artemis II moon mission rocket core stage on way to KSC](https://www.yahoo.com/news/nasa-artemis-ii-moon-mission-155000395.html)
+- Jul 19 - [AOC Issues Dire Warning on Threats to Come if Biden Drops Out](https://www.yahoo.com/news/aoc-issues-dire-warning-threats-150640403.html)
+- Jul 19 - [150 geese were a ‘nuisance’ in this Kansas City suburb. So homeowners had them killed](https://www.yahoo.com/news/150-geese-were-nuisance-kansas-143150660.html)
+- Jul 19 - [Why is Microsoft365 down? Crowdstrike outage ‘negatively impacted’ some Tennessee services, state says](https://www.yahoo.com/news/why-microsoft365-down-cyberattack-crowdstrike-131541714.html)
+- Jul 19 - [Treasury warns that anti-woke banking laws such as those in Florida are national security risk](https://www.yahoo.com/news/treasury-department-warns-anti-woke-130027413.html)
 <!-- feed end -->
 
 ### Onstream
