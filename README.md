@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Cooper calls Leeds disorder 'audacious criminality'](https://www.yahoo.com/news/cooper-calls-leeds-disorder-audacious-194333426.html)
-- Jul 19 - [Meghan McCain Doesn’t ‘Believe’ Biden Has COVID](https://www.yahoo.com/news/meghan-mccain-doesn-t-believe-182049842.html)
-- Jul 19 - [I'm a software engineer stranded in the IT outage airport chaos. CrowdStrike broke a cardinal rule of software development and I can't believe the fallout.](https://www.yahoo.com/tech/im-software-engineer-stranded-outage-175852425.html)
-- Jul 19 - [Microsoft Recommends Rebooting Your Computer 15 Times as Blue Screen of Death Strikes Worldwide](https://www.yahoo.com/tech/microsoft-recommends-rebooting-computer-15-173405565.html)
-- Jul 19 - [AOC Issues Dire Warning on Threats to Come if Biden Drops Out](https://www.yahoo.com/news/aoc-issues-dire-warning-threats-150640403.html)
+- Jul 19 - [US to support Philippines' efforts to resupply ship on atoll, Sullivan says](https://www.yahoo.com/news/us-support-philippines-efforts-resupply-202224022.html)
+- Jul 19 - [Woman Pulled Out Of Her Truck In Seattle Road Rage Beating](https://autos.yahoo.com/woman-pulled-her-truck-seattle-180000039.html)
+- Jul 19 - [I'm a software engineer stranded in the IT-outage airport chaos. CrowdStrike broke a cardinal rule of software development, and I can't believe the fallout.](https://www.yahoo.com/tech/im-software-engineer-stranded-outage-175852425.html)
+- Jul 19 - [Johnson County bar owner says he’ll be forced to move: ‘It’s been a roller coaster’](https://www.yahoo.com/news/johnson-county-bar-owner-says-174803719.html)
+- Jul 19 - [A Windows version from 1992 is saving Southwest’s butt right now](https://www.yahoo.com/news/windows-version-1992-saving-southwest-171922788.html)
 <!-- feed end -->
 
 ### Onstream
