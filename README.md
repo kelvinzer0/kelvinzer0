@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [What is CrowdStrike? Security firm  at the heart of Global tech outage](https://www.yahoo.com/news/crowdstrike-security-firm-heart-global-120119593.html)
-- Jul 19 - [Israeli PM blocks hospital for sick Gaza children in Israel](https://www.yahoo.com/news/israeli-pm-blocks-hospital-sick-114043764.html)
+- Jul 19 - [My parents got me whole life insurance for nearly $700 a month when I was 17 — am I completely screwed?](https://finance.yahoo.com/news/parents-got-whole-life-insurance-122200837.html)
+- Jul 19 - [25 Wild Pictures Showing "Blue Screens Of Death" From Around The World Because Of The IT Outage](https://www.yahoo.com/tech/25-wild-pictures-showing-blue-115736279.html)
 - Jul 19 - [Kremlin: Interruptions in Russian oil transit via Ukraine a 'crisis' for buyers](https://www.yahoo.com/news/kremlin-interruptions-russian-oil-transit-104712813.html)
 - Jul 19 - [Scientists issue critical warning after US city confirms case of serious disease spread by fleas: 'An infected person must be treated promptly'](https://www.yahoo.com/news/scientists-issue-critical-warning-us-001500811.html)
-- Jul 19 - [This growing Nashville suburb could soon get a new emergency room to serve patients needs](https://www.yahoo.com/news/growing-nashville-suburb-could-soon-100535023.html)
+- Jul 19 - [Trump Utters The 1 Word He Wasn't Supposed To Say During RNC Speech](https://www.yahoo.com/news/trump-utters-1-word-wasnt-094324147.html)
 <!-- feed end -->
 
 ### Onstream
