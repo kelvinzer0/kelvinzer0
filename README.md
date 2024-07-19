@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [Internet outage latest | Airlines, businesses hit by global technology disruption](https://www.yahoo.com/news/internet-outage-latest-airlines-businesses-095702111.html)
+- Jul 19 - [What is causing the Microsoft IT outage that broke flights, banks and trains across the world?](https://www.yahoo.com/news/causing-microsoft-outage-broke-flights-091312661.html)
+- Jul 19 - [Faulty cybersecurity update takes out banks, airlines and other major companies worldwide](https://www.yahoo.com/news/faulty-cybersecurity-update-takes-out-banks-airlines-and-other-major-companies-worldwide-085142264.html)
+- Jul 19 - [Rioters torch bus, flip police car in UK city](https://www.yahoo.com/news/rioters-torch-bus-flip-police-064927927.html)
 - Jul 19 - [Curiosity Cracked Open a Rock on Mars And Found a Huge Surprise](https://www.yahoo.com/news/curiosity-cracked-open-rock-mars-060920344.html)
-- Jul 19 - [Domestic dispute in Southern California ends in deadly Samurai sword attack](https://www.yahoo.com/news/1-killed-2-injured-samurai-043132096.html)
-- Jul 19 - [6 vehicles involved in fiery crash on Highway 101 in SLO County](https://www.yahoo.com/news/6-vehicles-involved-fiery-crash-004554870.html)
-- Jul 19 - [Former NFL star Lawrence Taylor in and out of Broward jail — again](https://www.yahoo.com/news/former-nfl-star-lawrence-taylor-002800370.html)
-- Jul 18 - [E-biking teens are attacking people, businesses in this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
 <!-- feed end -->
 
 ### Onstream
