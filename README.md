@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Trump Utters The 1 Word He Wasn't Supposed To Say During RNC Speech](https://www.yahoo.com/news/trump-utters-1-word-wasnt-094324147.html)
-- Jul 19 - [Mass IT outage: here's a list of companies and operations affected](https://www.yahoo.com/tech/mass-outage-heres-list-companies-090211522.html)
-- Jul 19 - [Order restored in the UK city of Leeds after overnight unrest](https://www.yahoo.com/news/order-restored-uk-city-leeds-080311366.html)
-- Jul 19 - [Social Security's 2025 COLA Could Do Something This Generation Has Never Seen](https://finance.yahoo.com/news/social-securitys-2025-cola-could-074400001.html)
-- Jul 19 - [Curiosity Cracked Open a Rock on Mars And Found a Huge Surprise](https://www.yahoo.com/news/curiosity-cracked-open-rock-mars-060920344.html)
+- Jul 19 - [What is CrowdStrike? Security firm  at the heart of Global tech outage](https://www.yahoo.com/news/crowdstrike-security-firm-heart-global-120119593.html)
+- Jul 19 - [Israeli PM blocks hospital for sick Gaza children in Israel](https://www.yahoo.com/news/israeli-pm-blocks-hospital-sick-114043764.html)
+- Jul 19 - [Kremlin: Interruptions in Russian oil transit via Ukraine a 'crisis' for buyers](https://www.yahoo.com/news/kremlin-interruptions-russian-oil-transit-104712813.html)
+- Jul 19 - [Scientists issue critical warning after US city confirms case of serious disease spread by fleas: 'An infected person must be treated promptly'](https://www.yahoo.com/news/scientists-issue-critical-warning-us-001500811.html)
+- Jul 19 - [This growing Nashville suburb could soon get a new emergency room to serve patients needs](https://www.yahoo.com/news/growing-nashville-suburb-could-soon-100535023.html)
 <!-- feed end -->
 
 ### Onstream
