@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Internet outage latest | Airlines, businesses hit by global technology disruption](https://www.yahoo.com/news/internet-outage-latest-airlines-businesses-095702111.html)
-- Jul 19 - [What is causing the Microsoft IT outage that broke flights, banks and trains across the world?](https://www.yahoo.com/news/causing-microsoft-outage-broke-flights-091312661.html)
-- Jul 19 - [Faulty cybersecurity update takes out banks, airlines and other major companies worldwide](https://www.yahoo.com/news/faulty-cybersecurity-update-takes-out-banks-airlines-and-other-major-companies-worldwide-085142264.html)
-- Jul 19 - [Rioters torch bus, flip police car in UK city](https://www.yahoo.com/news/rioters-torch-bus-flip-police-064927927.html)
+- Jul 19 - [Trump Utters The 1 Word He Wasn't Supposed To Say During RNC Speech](https://www.yahoo.com/news/trump-utters-1-word-wasnt-094324147.html)
+- Jul 19 - [Mass IT outage: here's a list of companies and operations affected](https://www.yahoo.com/tech/mass-outage-heres-list-companies-090211522.html)
+- Jul 19 - [Order restored in the UK city of Leeds after overnight unrest](https://www.yahoo.com/news/order-restored-uk-city-leeds-080311366.html)
+- Jul 19 - [Social Security's 2025 COLA Could Do Something This Generation Has Never Seen](https://finance.yahoo.com/news/social-securitys-2025-cola-could-074400001.html)
 - Jul 19 - [Curiosity Cracked Open a Rock on Mars And Found a Huge Surprise](https://www.yahoo.com/news/curiosity-cracked-open-rock-mars-060920344.html)
 <!-- feed end -->
 
