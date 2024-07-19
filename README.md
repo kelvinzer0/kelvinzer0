@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Northern California teacher sentenced for having sex with 8th-grade student on graduation day](https://www.yahoo.com/news/northern-california-teacher-sentenced-having-210649843.html)
-- Jul 19 - [Kent County to establish Office of Public Defender](https://www.yahoo.com/news/kent-county-establish-office-public-203421734.html)
+- Jul 19 - [Living in cars and motels - what it's like to work at the 'Happiest Place on Earth'](https://www.yahoo.com/news/living-cars-motels-happiest-place-211117366.html)
+- Jul 19 - [Family of boy who drowned in a ‘borrow pit’ calls for more arrests after 10- and 11-year-old are charged weeks later](https://www.yahoo.com/news/family-boy-drowned-borrow-pit-215318672.html)
 - Jul 19 - [US to support Philippines' efforts to resupply ship on atoll, Sullivan says](https://www.yahoo.com/news/us-support-philippines-efforts-resupply-202224022.html)
 - Jul 19 - [Why a CD should be part of your retirement savings plan](https://finance.yahoo.com/personal-finance/cd-retirement-plan-200900133.html)
 - Jul 19 - [Penn State’s grad school gets name change thanks to largest gift in its history. What to know](https://www.yahoo.com/news/penn-state-grad-school-gets-194003862.html)
