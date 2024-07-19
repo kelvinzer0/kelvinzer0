@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 19 - [Microsoft IT outage live: Crowdstrike boss ‘deeply sorry’ as airline and hospital chaos could last for days](https://www.yahoo.com/news/microsoft-outage-latest-flights-grounded-073238102.html)
-- Jul 19 - [150 geese were a ‘nuisance’ in this Kansas City suburb. So homeowners had them killed](https://www.yahoo.com/news/150-geese-were-nuisance-kansas-143150660.html)
+- Jul 19 - [53-Year-Old Caller Asks Dave Ramsey, 'Are We Going To Have To Live On Beans And Rice Through Retirement?' — Here's Where They're At](https://finance.yahoo.com/news/53-old-caller-asks-dave-160016897.html)
+- Jul 19 - [Sources: Biden family begins discussing possible exit plan](https://www.yahoo.com/news/sources-biden-family-begins-discussing-145839045.html)
+- Jul 19 - [Rare 1968 Ford Mustang Lightweight with Rich Racing Heritage](https://autos.yahoo.com/rare-1968-ford-mustang-lightweight-133039041.html)
 - Jul 19 - [Why is Microsoft365 down? Is it a cyberattack? How Crowdstrike outage is impacting Tennessee](https://www.yahoo.com/news/why-microsoft365-down-cyberattack-crowdstrike-131541714.html)
-- Jul 19 - [Treasury warns that anti-woke banking laws such as those in Florida are national security risk](https://www.yahoo.com/news/treasury-department-warns-anti-woke-130027413.html)
-- Jul 19 - [My parents got me whole life insurance for nearly $700 a month when I was 17 — am I completely screwed?](https://finance.yahoo.com/news/parents-got-whole-life-insurance-122200837.html)
 <!-- feed end -->
 
 ### Onstream
