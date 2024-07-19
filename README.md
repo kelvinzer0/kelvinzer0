@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [‘Gone Bankrupt!’ Ammon Bundy declares bankruptcy — but can he avoid paying St. Luke’s?](https://www.yahoo.com/news/gone-bankrupt-ammon-bundy-declares-235731117.html)
+- Jul 19 - ['Not what Milwaukee is about': People seek out events unaffiliated with RNC](https://www.yahoo.com/news/not-milwaukee-people-seek-events-014849551.html)
+- Jul 19 - [Former NFL star Lawrence Taylor in and out of Broward jail — again](https://www.yahoo.com/news/former-nfl-star-lawrence-taylor-002800370.html)
+- Jul 18 - [Woman sues Kennywood for alleged ‘serious’ injuries sustained on Thunderbolt roller coaster](https://www.yahoo.com/news/woman-sues-kennywood-alleged-serious-231941119.html)
 - Jul 18 - [Teens on e-bikes are terrorizing this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
 - Jul 18 - [Netflix is ending basic $11.99 plan with no ads: Here's which subscription plans remain](https://finance.yahoo.com/news/netflix-ending-basic-11-99-222921486.html)
-- Jul 18 - [Colorado Red Lobster restaurant finds rare orange lobster in shipment, takes it to Denver aquarium](https://www.yahoo.com/news/colorado-red-lobster-restaurant-finds-214051604.html)
-- Jul 18 - [Buc-ee's car wash opens in Daytona Beach. Here's why it's the 'trippiest.'](https://www.yahoo.com/lifestyle/buc-ees-car-wash-opens-212208894.html)
 <!-- feed end -->
 
 ### Onstream
