@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [Curiosity Cracked Open a Rock on Mars And Found a Huge Surprise](https://www.yahoo.com/news/curiosity-cracked-open-rock-mars-060920344.html)
 - Jul 19 - [Domestic dispute in Southern California ends in deadly Samurai sword attack](https://www.yahoo.com/news/1-killed-2-injured-samurai-043132096.html)
-- Jul 19 - [Tel Aviv hit by drone attack claimed by Iranian-backed Houthis](https://www.yahoo.com/news/israeli-military-says-checking-possible-015519066.html)
-- Jul 19 - [Teen Sought Help Moments Before Her Boyfriend Allegedly Ran Her Over With His Truck](https://www.yahoo.com/news/teen-sought-help-moments-her-005219920.html)
+- Jul 19 - [6 vehicles involved in fiery crash on Highway 101 in SLO County](https://www.yahoo.com/news/6-vehicles-involved-fiery-crash-004554870.html)
 - Jul 19 - [Former NFL star Lawrence Taylor in and out of Broward jail — again](https://www.yahoo.com/news/former-nfl-star-lawrence-taylor-002800370.html)
 - Jul 18 - [E-biking teens are attacking people, businesses in this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
 <!-- feed end -->
