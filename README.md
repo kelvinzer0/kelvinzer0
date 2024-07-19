@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [1 killed, 2 injured in Samurai sword attack in Southern California](https://www.yahoo.com/news/1-killed-2-injured-samurai-043132096.html)
 - Jul 19 - ['Hong Kong's Dr Fauci' sounds alarm on next pandemic](https://www.yahoo.com/news/hong-kongs-dr-fauci-sounds-030041123.html)
-- Jul 19 - [China reveals first-of-its-kind passenger train with game-changing features: 'Towards a greener, low-carbon future'](https://www.yahoo.com/tech/china-reveals-first-kind-passenger-023000422.html)
-- Jul 19 - [6 vehicles involved in fiery crash on Highway 101 in SLO County](https://www.yahoo.com/news/6-vehicles-involved-fiery-crash-004554870.html)
-- Jul 19 - [Former NFL star Lawrence Taylor in and out of Broward jail — again](https://www.yahoo.com/news/former-nfl-star-lawrence-taylor-002800370.html)
-- Jul 18 - [Body of autistic 3-year-old boy found after he went missing from resort near Disney](https://www.yahoo.com/news/body-autistic-3-old-boy-224329438.html)
+- Jul 18 - [E-biking teens are attacking people, businesses in this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
+- Jul 18 - [Netflix is ending basic $11.99 plan with no ads: Here's which subscription plans remain](https://finance.yahoo.com/news/netflix-ending-basic-11-99-222921486.html)
+- Jul 18 - [Colorado Red Lobster restaurant finds rare orange lobster in shipment, takes it to Denver aquarium](https://www.yahoo.com/news/colorado-red-lobster-restaurant-finds-214051604.html)
 <!-- feed end -->
 
 ### Onstream
