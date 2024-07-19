@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [‘Polls are BS’: Biden ‘more in touch with actual Americans’ than Dem insiders source reportedly says](https://www.yahoo.com/news/polls-bs-biden-more-touch-003837243.html)
-- Jul 18 - [Teens on e-bikes are terrorizing this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
-- Jul 18 - [Netflix is ending basic $11.99 plan with no ads: Here's which subscription plans remain](https://finance.yahoo.com/news/netflix-ending-basic-11-99-222921486.html)
-- Jul 18 - [Colorado Red Lobster restaurant finds rare orange lobster in shipment, takes it to Denver aquarium](https://www.yahoo.com/news/colorado-red-lobster-restaurant-finds-214051604.html)
-- Jul 18 - [OpenAI holds talks with Broadcom about developing new AI chip, the Information reports](https://finance.yahoo.com/news/openai-holds-talks-broadcom-developing-210031089.html)
+- Jul 19 - [University of Florida president Ben Sasse is resigning after his wife was diagnosed with epilepsy](https://www.yahoo.com/news/university-florida-president-ben-sasse-030657979.html)
+- Jul 19 - [Teen Sought Help Moments Before Her Boyfriend Allegedly Ran Her Over With His Truck](https://www.yahoo.com/news/teen-sought-help-moments-her-005219920.html)
+- Jul 18 - [‘Gone Bankrupt!’ Ammon Bundy declares bankruptcy — but can he avoid paying St. Luke’s?](https://www.yahoo.com/news/gone-bankrupt-ammon-bundy-declares-235731117.html)
+- Jul 18 - [Woman sues Kennywood for alleged ‘serious’ injuries sustained on Thunderbolt roller coaster](https://www.yahoo.com/news/woman-sues-kennywood-alleged-serious-231941119.html)
+- Jul 18 - [E-biking teens are attacking people, businesses in this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
 <!-- feed end -->
 
 ### Onstream
