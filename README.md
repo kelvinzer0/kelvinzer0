@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 19 - [Microsoft IT outage live: Crowdstrike boss ‘deeply sorry’ as airline and hospital chaos could last for days](https://www.yahoo.com/news/microsoft-outage-latest-flights-grounded-073238102.html)
-- Jul 19 - [Trump sanctions prompted China Xiaomi’s EV entry, CEO says](https://finance.yahoo.com/news/trump-sanctions-prompted-china-xiaomi-141958056.html)
-- Jul 19 - [I Will Claim a $3,750 Social Security Benefit. Will My Wife Automatically Get a Spousal Benefit?](https://finance.yahoo.com/news/claim-3-750-social-security-140728754.html)
-- Jul 19 - [Kremlin: Interruptions in Russian oil transit via Ukraine a 'crisis' for buyers](https://www.yahoo.com/news/kremlin-interruptions-russian-oil-transit-104712813.html)
-- Jul 19 - [Scientists issue critical warning after US city confirms case of serious disease spread by fleas: 'An infected person must be treated promptly'](https://www.yahoo.com/news/scientists-issue-critical-warning-us-001500811.html)
+- Jul 19 - [Microsoft Recommends Rebooting Your Computer 15 Times as Blue Screen of Death Strikes Worldwide](https://www.yahoo.com/tech/microsoft-recommends-rebooting-computer-15-173405565.html)
+- Jul 19 - [Biden Could Make Major Announcement Soon After Trump Officially Accepts Republican Nomination](https://www.yahoo.com/news/biden-could-major-announcement-soon-172900983.html)
+- Jul 19 - [A Windows version from 1992 is saving Southwest’s butt right now](https://www.yahoo.com/news/windows-version-1992-saving-southwest-171922788.html)
+- Jul 19 - [NASA’s Artemis II moon mission rocket core stage on way to KSC](https://www.yahoo.com/news/nasa-artemis-ii-moon-mission-155000395.html)
 <!-- feed end -->
 
 ### Onstream
