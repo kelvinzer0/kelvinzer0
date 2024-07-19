@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jul 18 - [Teens on e-bikes are terrorizing this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
 - Jul 18 - [Netflix is ending basic $11.99 plan with no ads: Here's which subscription plans remain](https://finance.yahoo.com/news/netflix-ending-basic-11-99-222921486.html)
 - Jul 18 - [Colorado Red Lobster restaurant finds rare orange lobster in shipment, takes it to Denver aquarium](https://www.yahoo.com/news/colorado-red-lobster-restaurant-finds-214051604.html)
-- Jul 18 - [Buc-ee's car wash opens in Daytona Beach. Here's why it's the 'trippiest.'](https://www.yahoo.com/lifestyle/buc-ees-car-wash-opens-212208894.html)
+- Jul 18 - [OpenAI holds talks with Broadcom about developing new AI chip, the Information reports](https://finance.yahoo.com/news/openai-holds-talks-broadcom-developing-210031089.html)
 <!-- feed end -->
 
 ### Onstream
