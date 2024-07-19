@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Microsoft IT outage live: Crowdstrike boss ‘deeply sorry’ as airline and hospital chaos could last for days](https://www.yahoo.com/news/microsoft-outage-latest-flights-grounded-073238102.html)
+- Jul 19 - [Cooper calls Leeds disorder 'audacious criminality'](https://www.yahoo.com/news/cooper-calls-leeds-disorder-audacious-194333426.html)
+- Jul 19 - [Meghan McCain Doesn’t ‘Believe’ Biden Has COVID](https://www.yahoo.com/news/meghan-mccain-doesn-t-believe-182049842.html)
+- Jul 19 - [I'm a software engineer stranded in the IT outage airport chaos. CrowdStrike broke a cardinal rule of software development and I can't believe the fallout.](https://www.yahoo.com/tech/im-software-engineer-stranded-outage-175852425.html)
+- Jul 19 - [Microsoft Recommends Rebooting Your Computer 15 Times as Blue Screen of Death Strikes Worldwide](https://www.yahoo.com/tech/microsoft-recommends-rebooting-computer-15-173405565.html)
 - Jul 19 - [AOC Issues Dire Warning on Threats to Come if Biden Drops Out](https://www.yahoo.com/news/aoc-issues-dire-warning-threats-150640403.html)
-- Jul 19 - [150 geese were a ‘nuisance’ in this Kansas City suburb. So homeowners had them killed](https://www.yahoo.com/news/150-geese-were-nuisance-kansas-143150660.html)
-- Jul 19 - [Why is Microsoft365 down? Crowdstrike outage ‘negatively impacted’ some Tennessee services, state says](https://www.yahoo.com/news/why-microsoft365-down-cyberattack-crowdstrike-131541714.html)
-- Jul 19 - [Treasury warns that anti-woke banking laws such as those in Florida are national security risk](https://www.yahoo.com/news/treasury-department-warns-anti-woke-130027413.html)
 <!-- feed end -->
 
 ### Onstream
