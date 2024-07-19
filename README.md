@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 19 - [Microsoft IT outage live: Crowdstrike boss ‘deeply sorry’ as airline and hospital chaos could last for days](https://www.yahoo.com/news/microsoft-outage-latest-flights-grounded-073238102.html)
-- Jul 19 - [53-Year-Old Caller Asks Dave Ramsey, 'Are We Going To Have To Live On Beans And Rice Through Retirement?' — Here's Where They're At](https://finance.yahoo.com/news/53-old-caller-asks-dave-160016897.html)
-- Jul 19 - [Sources: Biden family begins discussing possible exit plan](https://www.yahoo.com/news/sources-biden-family-begins-discussing-145839045.html)
-- Jul 19 - [Rare 1968 Ford Mustang Lightweight with Rich Racing Heritage](https://autos.yahoo.com/rare-1968-ford-mustang-lightweight-133039041.html)
-- Jul 19 - [Why is Microsoft365 down? Is it a cyberattack? How Crowdstrike outage is impacting Tennessee](https://www.yahoo.com/news/why-microsoft365-down-cyberattack-crowdstrike-131541714.html)
+- Jul 19 - [Trump sanctions prompted China Xiaomi’s EV entry, CEO says](https://finance.yahoo.com/news/trump-sanctions-prompted-china-xiaomi-141958056.html)
+- Jul 19 - [I Will Claim a $3,750 Social Security Benefit. Will My Wife Automatically Get a Spousal Benefit?](https://finance.yahoo.com/news/claim-3-750-social-security-140728754.html)
+- Jul 19 - [Kremlin: Interruptions in Russian oil transit via Ukraine a 'crisis' for buyers](https://www.yahoo.com/news/kremlin-interruptions-russian-oil-transit-104712813.html)
+- Jul 19 - [Scientists issue critical warning after US city confirms case of serious disease spread by fleas: 'An infected person must be treated promptly'](https://www.yahoo.com/news/scientists-issue-critical-warning-us-001500811.html)
 <!-- feed end -->
 
 ### Onstream
