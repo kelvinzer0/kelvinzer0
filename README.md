@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [University of Florida president Ben Sasse is resigning after his wife was diagnosed with epilepsy](https://www.yahoo.com/news/university-florida-president-ben-sasse-030657979.html)
-- Jul 19 - [Teen Sought Help Moments Before Her Boyfriend Allegedly Ran Her Over With His Truck](https://www.yahoo.com/news/teen-sought-help-moments-her-005219920.html)
-- Jul 18 - [‘Gone Bankrupt!’ Ammon Bundy declares bankruptcy — but can he avoid paying St. Luke’s?](https://www.yahoo.com/news/gone-bankrupt-ammon-bundy-declares-235731117.html)
-- Jul 18 - [Woman sues Kennywood for alleged ‘serious’ injuries sustained on Thunderbolt roller coaster](https://www.yahoo.com/news/woman-sues-kennywood-alleged-serious-231941119.html)
-- Jul 18 - [E-biking teens are attacking people, businesses in this Southern California city](https://www.yahoo.com/news/teens-e-bikes-terrorizing-southern-224225387.html)
+- Jul 19 - ['Hong Kong's Dr Fauci' sounds alarm on next pandemic](https://www.yahoo.com/news/hong-kongs-dr-fauci-sounds-030041123.html)
+- Jul 19 - [China reveals first-of-its-kind passenger train with game-changing features: 'Towards a greener, low-carbon future'](https://www.yahoo.com/tech/china-reveals-first-kind-passenger-023000422.html)
+- Jul 19 - [6 vehicles involved in fiery crash on Highway 101 in SLO County](https://www.yahoo.com/news/6-vehicles-involved-fiery-crash-004554870.html)
+- Jul 19 - [Former NFL star Lawrence Taylor in and out of Broward jail — again](https://www.yahoo.com/news/former-nfl-star-lawrence-taylor-002800370.html)
+- Jul 18 - [Body of autistic 3-year-old boy found after he went missing from resort near Disney](https://www.yahoo.com/news/body-autistic-3-old-boy-224329438.html)
 <!-- feed end -->
 
 ### Onstream
