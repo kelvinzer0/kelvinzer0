@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [12 Seafood Chains That Are About To Take Over The US](https://finance.yahoo.com/news/12-seafood-chains-over-us-172533662.html)
+- Jul 20 - [Israeli jets strike Houthi targets in Yemen in response to attacks, military says](https://www.yahoo.com/news/israeli-jets-strike-houthi-targets-170603876.html)
+- Jul 20 - [Unsafe visitor behavior forces closure, changes at Northern California state park](https://www.yahoo.com/news/unsafe-visitor-behavior-forces-closure-152612080.html)
 - Jul 20 - [Scientist Takes High Dose of Psilocybin, Clambers Into MRI Machine to Scan His Own Brain](https://www.yahoo.com/news/scientist-takes-high-dose-psilocybin-113056709.html)
 - Jul 20 - [Ukrainian former lawmaker killed in suspected assassination as civilians die in Russian airstrikes](https://www.yahoo.com/news/least-6-dead-thousands-without-112508439.html)
-- Jul 20 - [JD Vance Left His Venmo Public and There's Some Wild Stuff in There](https://www.yahoo.com/news/jd-vance-left-venmo-public-093053170.html)
-- Jul 20 - [Nutritionists And Dietitians Reveal The One "Healthy" Food That Could Be Harming You As You Age](https://www.yahoo.com/lifestyle/experts-one-healthy-food-may-091602206.html)
-- Jul 20 - [Another sign of trouble? South Florida condo sales drop by double-digits, report shows](https://finance.yahoo.com/news/another-sign-trouble-south-florida-090000028.html)
 <!-- feed end -->
 
 ### Onstream
