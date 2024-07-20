@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Flightradar shows US airline traffic during tech outage](https://www.yahoo.com/news/flightradar-shows-us-airline-traffic-030929705.html)
 - Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
 - Jul 19 - [Mass IT outage: here's a list of companies and operations affected](https://www.yahoo.com/tech/mass-outage-heres-list-companies-090211522.html)
-- Jul 19 - [Best Buy is having a huge open-box sale — here’s what’s worth buying](https://www.yahoo.com/tech/best-buy-having-huge-open-215524309.html)
+- Jul 19 - [The Sasse resignation: Mixed emotions and wondering what might have been](https://www.yahoo.com/news/sasse-resignation-mixed-emotions-wondering-221948552.html)
 - Jul 19 - [CDC warns of listeria outbreak linked to deli meat that has left 28 sick, 2 dead](https://www.yahoo.com/news/cdc-warns-listeria-outbreak-linked-213732247.html)
-- Jul 19 - [US to support Philippines' efforts to resupply ship on atoll, Sullivan says](https://www.yahoo.com/news/us-support-philippines-efforts-resupply-202224022.html)
 <!-- feed end -->
 
 ### Onstream
