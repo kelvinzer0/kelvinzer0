@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Three dead in upstate New York head-on collision; investigation ongoing](https://www.yahoo.com/news/three-dead-upstate-york-head-191342010.html)
-- Jul 20 - [US FAA probes latest Southwest Airlines flight that posed safety issues](https://finance.yahoo.com/news/us-faa-probes-latest-southwest-191210114.html)
 - Jul 20 - [12 Seafood Chains That Are About To Take Over The US](https://finance.yahoo.com/news/12-seafood-chains-over-us-172533662.html)
-- Jul 20 - [B-1B Named Rage Brought Out Of Mothballs To Fly Once Again](https://www.yahoo.com/news/b-1b-named-rage-brought-165531795.html)
+- Jul 20 - [Super Hornet pilot who battled the Houthis became 1st US female aviator to score an air-to-air kill, Navy says](https://www.yahoo.com/news/super-hornet-pilot-battled-houthis-153056611.html)
 - Jul 20 - [Unsafe visitor behavior forces closure, changes at Northern California state park](https://www.yahoo.com/news/unsafe-visitor-behavior-forces-closure-152612080.html)
+- Jul 20 - [Rolex prices are falling and supplies are rising](https://finance.yahoo.com/news/rolex-prices-are-falling-and-supplies-are-rising-151919533.html)
+- Jul 20 - [Lightning strikes tree near man walking his dog](https://www.yahoo.com/news/lightning-strikes-tree-near-man-143430495.html)
 <!-- feed end -->
 
 ### Onstream
