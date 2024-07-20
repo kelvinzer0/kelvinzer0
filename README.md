@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Boeing to supply E-7 in first major win since plea deal](https://finance.yahoo.com/news/us-air-force-reaches-affordable-122155785.html)
-- Jul 20 - [He raped and kidnapped two Pierce County women at knifepoint. Here is his sentence](https://www.yahoo.com/news/raped-kidnapped-two-pierce-county-121500424.html)
 - Jul 20 - [Scientist Takes High Dose of Psilocybin, Clambers Into MRI Machine to Scan His Own Brain](https://www.yahoo.com/news/scientist-takes-high-dose-psilocybin-113056709.html)
 - Jul 20 - [Ukrainian former lawmaker killed in suspected assassination as civilians die in Russian airstrikes](https://www.yahoo.com/news/least-6-dead-thousands-without-112508439.html)
-- Jul 20 - [What will happen to a closed Myrtle Beach restaurant that caught fire? What we know](https://www.yahoo.com/news/happen-closed-myrtle-beach-restaurant-100000452.html)
+- Jul 20 - [JD Vance Left His Venmo Public and There's Some Wild Stuff in There](https://www.yahoo.com/news/jd-vance-left-venmo-public-093053170.html)
+- Jul 20 - [Nutritionists And Dietitians Reveal The One "Healthy" Food That Could Be Harming You As You Age](https://www.yahoo.com/lifestyle/experts-one-healthy-food-may-091602206.html)
+- Jul 20 - [Another sign of trouble? South Florida condo sales drop by double-digits, report shows](https://finance.yahoo.com/news/another-sign-trouble-south-florida-090000028.html)
 <!-- feed end -->
 
 ### Onstream
