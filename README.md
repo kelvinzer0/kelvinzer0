@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Outside the RNC, small Milwaukee businesses and their regulars tried to salvage a sluggish week](https://www.yahoo.com/news/outside-rnc-small-milwaukee-businesses-040724102.html)
-- Jul 20 - [Flightradar shows US airline traffic during tech outage](https://www.yahoo.com/news/flightradar-shows-us-airline-traffic-030929705.html)
+- Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
 - Jul 20 - [Zuckerberg reveals his endorsement decision for the 2024 election](https://www.yahoo.com/news/zuckerberg-reveals-endorsement-decision-2024-002856394.html)
-- Jul 19 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
+- Jul 19 - [Atlanta church in danger of being sold over unpaid taxes they didn’t know they owed](https://www.yahoo.com/news/atlanta-church-danger-being-sold-221647065.html)
 - Jul 19 - [Woman suffers life-threatening injuries after ‘chaotic’ attack by pack of dogs](https://www.yahoo.com/news/woman-suffers-life-threatening-injuries-221418161.html)
+- Jul 19 - [Family of boy who drowned in a ‘borrow pit’ calls for more arrests after 10- and 11-year-old are charged weeks later](https://www.yahoo.com/news/family-boy-drowned-borrow-pit-215318672.html)
 <!-- feed end -->
 
 ### Onstream
