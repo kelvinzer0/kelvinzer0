@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [What caused the Microsoft IT outage that broke flights, banks and trains across the world?](https://www.yahoo.com/news/causing-microsoft-outage-broke-flights-091312661.html)
+- Jul 20 - [Outside the RNC, small Milwaukee businesses and their regulars tried to salvage a sluggish week](https://www.yahoo.com/news/outside-rnc-small-milwaukee-businesses-040724102.html)
 - Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
 - Jul 20 - [Zuckerberg reveals his endorsement decision for the 2024 election](https://www.yahoo.com/news/zuckerberg-reveals-endorsement-decision-2024-002856394.html)
-- Jul 19 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
-- Jul 19 - [CDC warns of listeria outbreak linked to deli meat that has left 28 sick, 2 dead](https://www.yahoo.com/news/cdc-warns-listeria-outbreak-linked-213732247.html)
-- Jul 19 - [US to support Philippines' efforts to resupply ship on atoll, Sullivan says](https://www.yahoo.com/news/us-support-philippines-efforts-resupply-202224022.html)
+- Jul 19 - [Waterfront restaurant with views of Irondequoit Bay closing](https://www.yahoo.com/news/waterfront-restaurant-views-irondequoit-bay-225756259.html)
 <!-- feed end -->
 
 ### Onstream
