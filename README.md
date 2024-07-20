@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Woman who burned Quran outside Dearborn mosque vows to return to city](https://www.yahoo.com/news/woman-burned-quran-outside-dearborn-100310065.html)
-- Jul 20 - [Missouri woman who served 43 years in prison is free after her murder conviction was overturned](https://www.yahoo.com/news/missouri-woman-served-43-years-035328240.html)
+- Jul 20 - [Experts Say This Is The One Healthy Food You May Want To Avoid As You Age](https://www.yahoo.com/lifestyle/experts-one-healthy-food-may-091602206.html)
+- Jul 20 - [Outside the RNC, small Milwaukee businesses and their regulars tried to salvage a sluggish week](https://www.yahoo.com/news/outside-rnc-small-milwaukee-businesses-040724102.html)
+- Jul 20 - [Rep. Sheila Jackson Lee dies at 74](https://www.yahoo.com/news/rep-sheila-jackson-lee-dies-030500628.html)
 - Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
-- Jul 20 - [Zuckerberg reveals his endorsement decision for the 2024 election](https://www.yahoo.com/news/zuckerberg-reveals-endorsement-decision-2024-002856394.html)
 - Jul 20 - [Documents reveal fatal shooting of 13-year-old in Kent started with OfferUp meeting to buy camera](https://www.yahoo.com/news/documents-reveal-fatal-shooting-13-001616169.html)
 <!-- feed end -->
 
