@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Boeing expects 787 suppliers to catch up by year's end, restoring output](https://finance.yahoo.com/news/boeing-expects-787-suppliers-catch-120659924.html)
+- Jul 20 - [Ukrainian former lawmaker killed in suspected assassination as civilians die in Russian airstrikes](https://www.yahoo.com/news/least-6-dead-thousands-without-112508439.html)
+- Jul 20 - [JD Vance Left His Venmo Public and There's Some Wild Stuff in There](https://www.yahoo.com/news/jd-vance-left-venmo-public-093053170.html)
 - Jul 20 - [Experts Say This Is The One Healthy Food You May Want To Avoid As You Age](https://www.yahoo.com/lifestyle/experts-one-healthy-food-may-091602206.html)
-- Jul 20 - [Outside the RNC, small Milwaukee businesses and their regulars tried to salvage a sluggish week](https://www.yahoo.com/news/outside-rnc-small-milwaukee-businesses-040724102.html)
-- Jul 20 - [Rep. Sheila Jackson Lee dies at 74](https://www.yahoo.com/news/rep-sheila-jackson-lee-dies-030500628.html)
-- Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
-- Jul 20 - [Documents reveal fatal shooting of 13-year-old in Kent started with OfferUp meeting to buy camera](https://www.yahoo.com/news/documents-reveal-fatal-shooting-13-001616169.html)
+- Jul 20 - [Pepsi Is a Rock-Solid Dividend King, but So Is This High-Yield Value Stock That Paid $3 Billion in Dividends Over the Past Year](https://finance.yahoo.com/news/pepsi-rock-solid-dividend-king-090000330.html)
 <!-- feed end -->
 
 ### Onstream
