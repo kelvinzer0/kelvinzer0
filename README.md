@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Boeing expects 787 suppliers to catch up by year's end, restoring output](https://finance.yahoo.com/news/boeing-expects-787-suppliers-catch-120659924.html)
+- Jul 20 - [US resumes taking F-35 after delays over software upgrade](https://finance.yahoo.com/news/us-resumes-taking-f-35-133349056.html)
 - Jul 20 - [Ukrainian former lawmaker killed in suspected assassination as civilians die in Russian airstrikes](https://www.yahoo.com/news/least-6-dead-thousands-without-112508439.html)
 - Jul 20 - [JD Vance Left His Venmo Public and There's Some Wild Stuff in There](https://www.yahoo.com/news/jd-vance-left-venmo-public-093053170.html)
 - Jul 20 - [Experts Say This Is The One Healthy Food You May Want To Avoid As You Age](https://www.yahoo.com/lifestyle/experts-one-healthy-food-may-091602206.html)
-- Jul 20 - [Pepsi Is a Rock-Solid Dividend King, but So Is This High-Yield Value Stock That Paid $3 Billion in Dividends Over the Past Year](https://finance.yahoo.com/news/pepsi-rock-solid-dividend-king-090000330.html)
+- Jul 20 - [It's time. Biden should drop out so Democrats can run a historic two-woman ticket.](https://www.yahoo.com/news/time-biden-drop-democrats-run-080258720.html)
 <!-- feed end -->
 
 ### Onstream
