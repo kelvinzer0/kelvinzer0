@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [2 dead in listeria outbreak likely linked to sliced deli meats](https://www.yahoo.com/news/2-dead-listeria-outbreak-likely-021527539.html)
+- Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
 - Jul 19 - [Mass IT outage: here's a list of companies and operations affected](https://www.yahoo.com/tech/mass-outage-heres-list-companies-090211522.html)
 - Jul 19 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
-- Jul 19 - [Computer scam targets SLO County seniors, sheriff warns. One lost $120,000](https://www.yahoo.com/news/computer-scam-targets-slo-county-230225591.html)
-- Jul 19 - [Why a CD should be part of your retirement savings plan](https://finance.yahoo.com/personal-finance/cd-retirement-plan-200900133.html)
+- Jul 19 - [CDC warns of listeria outbreak linked to deli meat that has left 28 sick, 2 dead](https://www.yahoo.com/news/cdc-warns-listeria-outbreak-linked-213732247.html)
+- Jul 19 - [US to support Philippines' efforts to resupply ship on atoll, Sullivan says](https://www.yahoo.com/news/us-support-philippines-efforts-resupply-202224022.html)
 <!-- feed end -->
 
 ### Onstream
