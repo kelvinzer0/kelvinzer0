@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Living in cars and motels - what it's like to work at the 'Happiest Place on Earth'](https://www.yahoo.com/news/living-cars-motels-happiest-place-211117366.html)
-- Jul 19 - [Family of boy who drowned in a ‘borrow pit’ calls for more arrests after 10- and 11-year-old are charged weeks later](https://www.yahoo.com/news/family-boy-drowned-borrow-pit-215318672.html)
+- Jul 19 - [Mass IT outage: here's a list of companies and operations affected](https://www.yahoo.com/tech/mass-outage-heres-list-companies-090211522.html)
 - Jul 19 - [US to support Philippines' efforts to resupply ship on atoll, Sullivan says](https://www.yahoo.com/news/us-support-philippines-efforts-resupply-202224022.html)
-- Jul 19 - [Why a CD should be part of your retirement savings plan](https://finance.yahoo.com/personal-finance/cd-retirement-plan-200900133.html)
-- Jul 19 - [Penn State’s grad school gets name change thanks to largest gift in its history. What to know](https://www.yahoo.com/news/penn-state-grad-school-gets-194003862.html)
+- Jul 19 - [I'm a software engineer stranded in the IT-outage airport chaos. CrowdStrike broke a cardinal rule of software development, and I can't believe the fallout.](https://www.yahoo.com/tech/im-software-engineer-stranded-outage-175852425.html)
+- Jul 19 - [How the sixth-generation fighter jet will upend air warfare](https://www.yahoo.com/news/sixth-generation-fighter-jet-upend-174412723.html)
+- Jul 19 - [Dozens arrested in Sacramento-area operation against prostitution, sex buyers](https://www.yahoo.com/news/dozens-arrested-sacramento-area-operation-160153775.html)
 <!-- feed end -->
 
 ### Onstream
