@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Woman who burned Quran outside Dearborn mosque vows to return to city](https://www.yahoo.com/news/woman-burned-quran-outside-dearborn-100310065.html)
+- Jul 20 - [Missouri woman who served 43 years in prison is free after her murder conviction was overturned](https://www.yahoo.com/news/missouri-woman-served-43-years-035328240.html)
 - Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
 - Jul 20 - [Zuckerberg reveals his endorsement decision for the 2024 election](https://www.yahoo.com/news/zuckerberg-reveals-endorsement-decision-2024-002856394.html)
-- Jul 19 - [Atlanta church in danger of being sold over unpaid taxes they didn’t know they owed](https://www.yahoo.com/news/atlanta-church-danger-being-sold-221647065.html)
-- Jul 19 - [Woman suffers life-threatening injuries after ‘chaotic’ attack by pack of dogs](https://www.yahoo.com/news/woman-suffers-life-threatening-injuries-221418161.html)
-- Jul 19 - [Family of boy who drowned in a ‘borrow pit’ calls for more arrests after 10- and 11-year-old are charged weeks later](https://www.yahoo.com/news/family-boy-drowned-borrow-pit-215318672.html)
+- Jul 20 - [Documents reveal fatal shooting of 13-year-old in Kent started with OfferUp meeting to buy camera](https://www.yahoo.com/news/documents-reveal-fatal-shooting-13-001616169.html)
 <!-- feed end -->
 
 ### Onstream
