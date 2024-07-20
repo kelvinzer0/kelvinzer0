@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
-- Jul 19 - [Mass IT outage: here's a list of companies and operations affected](https://www.yahoo.com/tech/mass-outage-heres-list-companies-090211522.html)
-- Jul 19 - [Atlanta church in danger of being sold over unpaid taxes they didn’t know they owed](https://www.yahoo.com/news/atlanta-church-danger-being-sold-221647065.html)
+- Jul 20 - [Zuckerberg reveals his endorsement decision for the 2024 election](https://www.yahoo.com/news/zuckerberg-reveals-endorsement-decision-2024-002856394.html)
+- Jul 19 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
 - Jul 19 - [CDC warns of listeria outbreak linked to deli meat that has left 28 sick, 2 dead](https://www.yahoo.com/news/cdc-warns-listeria-outbreak-linked-213732247.html)
 - Jul 19 - [US to support Philippines' efforts to resupply ship on atoll, Sullivan says](https://www.yahoo.com/news/us-support-philippines-efforts-resupply-202224022.html)
 <!-- feed end -->
