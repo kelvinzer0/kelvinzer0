@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [What caused the Microsoft IT outage that broke flights, banks and trains across the world?](https://www.yahoo.com/news/causing-microsoft-outage-broke-flights-091312661.html)
 - Jul 20 - [Outside the RNC, small Milwaukee businesses and their regulars tried to salvage a sluggish week](https://www.yahoo.com/news/outside-rnc-small-milwaukee-businesses-040724102.html)
-- Jul 20 - [Exclusive-US-Japan Patriot missile production plan hits Boeing component roadblock](https://finance.yahoo.com/news/exclusive-us-japan-patriot-missile-020049216.html)
+- Jul 20 - [Flightradar shows US airline traffic during tech outage](https://www.yahoo.com/news/flightradar-shows-us-airline-traffic-030929705.html)
 - Jul 20 - [Zuckerberg reveals his endorsement decision for the 2024 election](https://www.yahoo.com/news/zuckerberg-reveals-endorsement-decision-2024-002856394.html)
-- Jul 19 - [Waterfront restaurant with views of Irondequoit Bay closing](https://www.yahoo.com/news/waterfront-restaurant-views-irondequoit-bay-225756259.html)
+- Jul 19 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
+- Jul 19 - [Woman suffers life-threatening injuries after ‘chaotic’ attack by pack of dogs](https://www.yahoo.com/news/woman-suffers-life-threatening-injuries-221418161.html)
 <!-- feed end -->
 
 ### Onstream
