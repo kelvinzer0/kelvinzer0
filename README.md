@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [In 50 years, Hampton Roads could feel more like Louisiana, new climate map reveals](https://www.yahoo.com/news/50-years-hampton-roads-could-174000874.html)
 - Jul 20 - [12 Seafood Chains That Are About To Take Over The US](https://finance.yahoo.com/news/12-seafood-chains-over-us-172533662.html)
 - Jul 20 - [Israeli jets strike Houthi targets in Yemen in response to attacks, military says](https://www.yahoo.com/news/israeli-jets-strike-houthi-targets-170603876.html)
+- Jul 20 - [I’m a Boomer Who’s Driven Dozens of Car Models — These Are the 5 Best for Your Retirement Dollar](https://finance.yahoo.com/news/m-boomer-driven-dozens-car-120050962.html)
 - Jul 20 - [Unsafe visitor behavior forces closure, changes at Northern California state park](https://www.yahoo.com/news/unsafe-visitor-behavior-forces-closure-152612080.html)
-- Jul 20 - [Scientist Takes High Dose of Psilocybin, Clambers Into MRI Machine to Scan His Own Brain](https://www.yahoo.com/news/scientist-takes-high-dose-psilocybin-113056709.html)
-- Jul 20 - [Ukrainian former lawmaker killed in suspected assassination as civilians die in Russian airstrikes](https://www.yahoo.com/news/least-6-dead-thousands-without-112508439.html)
 <!-- feed end -->
 
 ### Onstream
