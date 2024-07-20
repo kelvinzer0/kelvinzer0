@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 20 - [Trump's former physician gives new details on gunshot wound](https://www.yahoo.com/news/trumps-former-physician-gives-details-204731782.html)
-- Jul 20 - [I’m a Boomer Who’s Driven Dozens of Car Models — These Are the 5 Best for Your Retirement Dollar](https://finance.yahoo.com/news/m-boomer-driven-dozens-car-120050962.html)
-- Jul 20 - [Super Hornet pilot who battled the Houthis became 1st US female aviator to score an air-to-air kill, Navy says](https://www.yahoo.com/news/super-hornet-pilot-battled-houthis-153056611.html)
+- Jul 20 - [12 Seafood Chains That Are About To Take Over The US](https://finance.yahoo.com/news/12-seafood-chains-over-us-172533662.html)
 - Jul 20 - [Unsafe visitor behavior forces closure, changes at Northern California state park](https://www.yahoo.com/news/unsafe-visitor-behavior-forces-closure-152612080.html)
 - Jul 20 - [Rolex prices are falling and supplies are rising](https://finance.yahoo.com/news/rolex-prices-are-falling-and-supplies-are-rising-151919533.html)
+- Jul 20 - [What became of the flags Apollo astronauts left on the moon?](https://www.yahoo.com/news/became-flags-apollo-astronauts-left-150000313.html)
 <!-- feed end -->
 
 ### Onstream
