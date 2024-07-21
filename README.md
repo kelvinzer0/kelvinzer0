@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Joe Biden's family members react on decision to drop out of race](https://www.yahoo.com/news/joe-bidens-family-members-react-193722451.html)
 - Jul 21 - [IRS Finalizes 10-Year Rule For Retirement Withdrawals, Making Things 'Even More Insanely Complicated'](https://finance.yahoo.com/news/irs-finalizes-10-rule-retirement-193341910.html)
 - Jul 21 - [Possible Democratic challengers to Kamala Harris say they're standing down](https://www.yahoo.com/news/possible-democratic-challengers-kamala-harris-192134701.html)
-- Jul 21 - [With Biden out, Michelle Obama would be Donald Trump’s worst self-inflicted nightmare | Opinion](https://www.yahoo.com/news/biden-michelle-obama-donald-trump-181556157.html)
+- Jul 21 - [House Republicans say Biden must resign after ending reelection campaign](https://www.yahoo.com/news/house-republicans-biden-must-resign-184744199.html)
 - Jul 21 - [The final days: How Biden and his inner circle blew it](https://www.yahoo.com/news/final-days-biden-inner-circle-181556165.html)
-- Jul 21 - [Boeing and NASA engineers have wrapped up ground tests on the Starliner thruster](https://www.yahoo.com/news/boeing-and-nasa-engineers-have-wrapped-up-ground-tests-on-the-starliner-thruster-180027494.html)
 <!-- feed end -->
 
 ### Onstream
