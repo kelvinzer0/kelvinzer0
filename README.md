@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Joe Biden Drops Out of the 2024 Presidential Race](https://www.yahoo.com/news/joe-biden-drops-2024-presidential-175315060.html)
+- Jul 21 - [Aaron Sorkin Says Democrats Should Replace Biden With This Familiar Republican](https://www.yahoo.com/news/aaron-sorkin-says-democrats-replace-170311219.html)
+- Jul 21 - [International Space Station Crew Finds A Long-Lost Tomato](https://www.yahoo.com/news/international-space-station-crew-finds-120000731.html)
+- Jul 21 - [Boeing exec says planemaker has settled on design for MAX 7 icing issue](https://finance.yahoo.com/news/boeing-exec-says-planemaker-settled-155226131.html)
 - Jul 21 - [5 Grocery Stores You Might Want To Avoid When Purchasing Ground Beef, According To Customer Reviews](https://www.yahoo.com/lifestyle/5-grocery-stores-might-want-152513166.html)
-- Jul 21 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
-- Jul 21 - [Dozens of illnesses across 28 states are now linked to a company's 'microdosing' gummies and chocolate bars](https://www.yahoo.com/lifestyle/dozens-illnesses-across-28-states-132414063.html)
-- Jul 21 - [‘I’ve always stayed out of debt’: I’m suddenly widowed and in my 70s. My financial adviser wants me to invest 20% of my assets in annuities. Is that a good idea?](https://finance.yahoo.com/news/m-slowly-learning-m-70s-084700921.html)
-- Jul 21 - [You Have Less Than 6 Months to Prepare for These 2025 Social Security Changes](https://finance.yahoo.com/news/less-6-months-prepare-2025-084400064.html)
 <!-- feed end -->
 
 ### Onstream
