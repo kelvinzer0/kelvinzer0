@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [4 Dallas firefighters injured as engine crashes off bridge, lands on railway below](https://www.yahoo.com/news/4-dallas-firefighters-injured-engine-150037161.html)
-- Jul 21 - [Boeing sees significant improvement in 737 MAX factory production](https://finance.yahoo.com/news/boeing-sees-significant-improvement-737-135543695.html)
-- Jul 21 - [Nearly 7,000 pounds of hot dogs recalled after producer missed federal safety inspection](https://www.yahoo.com/lifestyle/usda-recalls-nearly-7-000-151526099.html)
-- Jul 21 - [Dozens of illnesses across 28 states are now linked to a company's 'microdosing' gummies and chocolate bars](https://www.yahoo.com/lifestyle/dozens-illnesses-across-28-states-132414063.html)
-- Jul 21 - [Union Pacific (NYSE:UNP) Has Announced That It Will Be Increasing Its Dividend To $1.34](https://finance.yahoo.com/news/union-pacific-nyse-unp-announced-121059141.html)
+- Jul 21 - [Boeing exec says planemaker has settled on design for MAX 7 icing issue](https://finance.yahoo.com/news/boeing-exec-says-planemaker-settled-155226131.html)
+- Jul 21 - [170 MPH High-Speed Chase In Nashville Ends in Fiery Crash](https://autos.yahoo.com/170-mph-high-speed-chase-153000094.html)
+- Jul 21 - [‘I’ve always stayed out of debt’: I’m suddenly widowed and in my 70s. My financial adviser wants me to invest 20% of my assets in annuities. Is that a good idea?](https://finance.yahoo.com/news/m-slowly-learning-m-70s-084700921.html)
+- Jul 21 - [A history buff bought a piece of a tent from Goodwill for $1,700. It really did belong to George Washington](https://www.yahoo.com/news/history-buff-bought-piece-tent-105800427.html)
+- Jul 21 - [5 surprising signs you’re no longer ‘middle class’ in America and you've clawed your way up the class ladder](https://finance.yahoo.com/news/5-surprising-signs-no-longer-100400837.html)
 <!-- feed end -->
 
 ### Onstream
