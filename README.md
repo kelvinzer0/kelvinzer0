@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Billionaires Are Selling Nvidia Stock and Buying an Index Fund That Could Soar Up to 5,655%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/billionaires-selling-nvidia-stock-buying-090500461.html)
+- Jul 21 - [In these Missouri towns, murals paint pictures of history and culture](https://www.yahoo.com/lifestyle/missouri-towns-murals-paint-pictures-090256146.html)
+- Jul 21 - [‘We lost.’ Settlement in case against ‘King of Coconut Grove’ angers buyers of townhouses](https://www.yahoo.com/news/lost-settlement-case-against-king-090000241.html)
+- Jul 21 - [You Have Less Than 6 Months to Prepare for These 2025 Social Security Changes](https://finance.yahoo.com/news/less-6-months-prepare-2025-084400064.html)
 - Jul 21 - [Vatican's Pius XII archives shed light on another contentious chapter: The Legion of Christ scandal](https://www.yahoo.com/news/vaticans-pius-xii-archives-shed-051356956.html)
-- Jul 21 - ['Ludicrous': Donors leave call with Kamala Harris frustrated and annoyed](https://www.yahoo.com/news/ludicrous-donors-leave-call-kamala-040432993.html)
-- Jul 21 - [As Georgia presses on with 'Russia-style' laws, its citizens describe a country on the brink](https://www.yahoo.com/news/georgia-presses-russia-style-laws-040342340.html)
-- Jul 21 - [Man skydived from plane 30 minutes before deadly crash in Niagara County](https://www.yahoo.com/news/man-skydived-plane-30-minutes-024115580.html)
-- Jul 20 - [People Are Revealing Their Final Acts Of Defiance Towards Obnoxious Bosses Before Quitting, And I'm Screamingggggg](https://www.yahoo.com/entertainment/people-revealing-final-acts-defiance-221602645.html)
 <!-- feed end -->
 
 ### Onstream
