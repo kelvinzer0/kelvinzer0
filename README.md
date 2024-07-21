@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [China and the Philippines reach deal in effort to stop clashes at fiercely disputed shoal](https://www.yahoo.com/news/philippines-china-reach-deal-avoid-101501362.html)
-- Jul 21 - [5 surprising signs you’re no longer ‘middle class’ in America and you've clawed your way up the class ladder](https://finance.yahoo.com/news/5-surprising-signs-no-longer-100400837.html)
+- Jul 21 - [Israeli military to offer polio vaccination to soldiers in Gaza](https://www.yahoo.com/news/israeli-military-offer-polio-vaccination-125457040.html)
+- Jul 21 - [IRS makes it easier to tap retirement accounts for emergencies](https://finance.yahoo.com/video/irs-makes-easier-tap-retirement-120027779.html)
+- Jul 21 - [A history buff bought a piece of a tent from Goodwill for $1,700. It really did belong to George Washington](https://www.yahoo.com/news/history-buff-bought-piece-tent-105800427.html)
 - Jul 21 - [Billionaires Are Selling Nvidia Stock and Buying an Index Fund That Could Soar Up to 5,655%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/billionaires-selling-nvidia-stock-buying-090500461.html)
-- Jul 21 - [You Have Less Than 6 Months to Prepare for These 2025 Social Security Changes](https://finance.yahoo.com/news/less-6-months-prepare-2025-084400064.html)
-- Jul 21 - [Taiwan must protect its sovereignty, know its own history, president says](https://www.yahoo.com/news/taiwan-must-protect-sovereignty-know-073237813.html)
+- Jul 21 - [‘We lost.’ Settlement in case against ‘King of Coconut Grove’ angers buyers of townhouses](https://www.yahoo.com/news/lost-settlement-case-against-king-090000241.html)
 <!-- feed end -->
 
 ### Onstream
