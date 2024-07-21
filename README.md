@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - ['Ludicrous': Donors leave call with Kamala Harris frustrated and annoyed](https://www.yahoo.com/news/ludicrous-donors-leave-call-kamala-040432993.html)
+- Jul 21 - [They used to work for China’s biggest companies. Now they’re doing manual labor](https://finance.yahoo.com/news/used-china-biggest-companies-now-013723675.html)
+- Jul 20 - [People Are Revealing Their Final Acts Of Defiance Towards Obnoxious Bosses Before Quitting, And I'm Screamingggggg](https://www.yahoo.com/entertainment/people-revealing-final-acts-defiance-221602645.html)
 - Jul 20 - [Trump's former physician gives new details on gunshot wound](https://www.yahoo.com/news/trumps-former-physician-gives-details-204731782.html)
-- Jul 20 - [Texas Man Found With Stolen Lamborghini At His House](https://autos.yahoo.com/texas-man-found-stolen-lamborghini-210000859.html)
-- Jul 20 - [Ga. man holds escaped inmate at gunpoint until deputies arrive to arrest him](https://www.yahoo.com/news/ga-man-holds-escaped-inmate-173856405.html)
 - Jul 20 - [12 Seafood Chains That Are About To Take Over The US](https://finance.yahoo.com/news/12-seafood-chains-over-us-172533662.html)
-- Jul 20 - [Here's what to do with deli meats as the CDC investigates a listeria outbreak across the U.S.](https://www.yahoo.com/news/heres-deli-meats-cdc-investigates-162130399.html)
 <!-- feed end -->
 
 ### Onstream
