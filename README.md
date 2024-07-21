@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [What happens next: Joe Biden wants to pass the baton to Kamala Harris. Here's how that might work](https://www.yahoo.com/news/happens-next-joe-biden-wants-182842146.html)
 - Jul 21 - [With Biden out, Michelle Obama would be Donald Trump’s worst self-inflicted nightmare | Opinion](https://www.yahoo.com/news/biden-michelle-obama-donald-trump-181556157.html)
+- Jul 21 - [The final days: How Biden and his inner circle blew it](https://www.yahoo.com/news/final-days-biden-inner-circle-181556165.html)
 - Jul 21 - [Boeing and NASA engineers have wrapped up ground tests on the Starliner thruster](https://www.yahoo.com/news/boeing-and-nasa-engineers-have-wrapped-up-ground-tests-on-the-starliner-thruster-180027494.html)
 - Jul 21 - [Joe Biden Drops Out of 2024 Race and Endorses Kamala After 23-Minute Pause](https://www.yahoo.com/news/joe-biden-drops-2024-race-175550815.html)
-- Jul 21 - [I'm 66 With $745,000 in a 401(k). I've Started Taking Social Security, So Is It Too Late to Convert to a Roth IRA?](https://finance.yahoo.com/news/im-66-taking-social-security-110000060.html)
+- Jul 21 - [Anti-whaling campaigner arrested in Greenland and police say he may be extradited to Japan](https://www.yahoo.com/news/anti-whaling-campaigner-arrested-greenland-171428755.html)
 <!-- feed end -->
 
 ### Onstream
