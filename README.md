@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Israeli military to offer polio vaccination to soldiers in Gaza](https://www.yahoo.com/news/israeli-military-offer-polio-vaccination-125457040.html)
+- Jul 21 - [Nearly 7,000 pounds of hot dogs recalled after producer missed federal safety inspection](https://www.yahoo.com/lifestyle/usda-recalls-nearly-7-000-151526099.html)
 - Jul 21 - [IRS makes it easier to tap retirement accounts for emergencies](https://finance.yahoo.com/video/irs-makes-easier-tap-retirement-120027779.html)
+- Jul 21 - [5 SUVs That Will Save You the Most Money Over Time, According to the Experts](https://finance.yahoo.com/news/5-suvs-save-most-money-110059936.html)
 - Jul 21 - [A history buff bought a piece of a tent from Goodwill for $1,700. It really did belong to George Washington](https://www.yahoo.com/news/history-buff-bought-piece-tent-105800427.html)
 - Jul 21 - [Billionaires Are Selling Nvidia Stock and Buying an Index Fund That Could Soar Up to 5,655%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/billionaires-selling-nvidia-stock-buying-090500461.html)
-- Jul 21 - [‘We lost.’ Settlement in case against ‘King of Coconut Grove’ angers buyers of townhouses](https://www.yahoo.com/news/lost-settlement-case-against-king-090000241.html)
 <!-- feed end -->
 
 ### Onstream
