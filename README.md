@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Boeing exec says planemaker has settled on design for MAX 7 icing issue](https://finance.yahoo.com/news/boeing-exec-says-planemaker-settled-155226131.html)
-- Jul 21 - [170 MPH High-Speed Chase In Nashville Ends in Fiery Crash](https://autos.yahoo.com/170-mph-high-speed-chase-153000094.html)
+- Jul 21 - [5 Grocery Stores You Might Want To Avoid When Purchasing Ground Beef, According To Customer Reviews](https://www.yahoo.com/lifestyle/5-grocery-stores-might-want-152513166.html)
+- Jul 21 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
+- Jul 21 - [Dozens of illnesses across 28 states are now linked to a company's 'microdosing' gummies and chocolate bars](https://www.yahoo.com/lifestyle/dozens-illnesses-across-28-states-132414063.html)
 - Jul 21 - [‘I’ve always stayed out of debt’: I’m suddenly widowed and in my 70s. My financial adviser wants me to invest 20% of my assets in annuities. Is that a good idea?](https://finance.yahoo.com/news/m-slowly-learning-m-70s-084700921.html)
-- Jul 21 - [A history buff bought a piece of a tent from Goodwill for $1,700. It really did belong to George Washington](https://www.yahoo.com/news/history-buff-bought-piece-tent-105800427.html)
-- Jul 21 - [5 surprising signs you’re no longer ‘middle class’ in America and you've clawed your way up the class ladder](https://finance.yahoo.com/news/5-surprising-signs-no-longer-100400837.html)
+- Jul 21 - [You Have Less Than 6 Months to Prepare for These 2025 Social Security Changes](https://finance.yahoo.com/news/less-6-months-prepare-2025-084400064.html)
 <!-- feed end -->
 
 ### Onstream
