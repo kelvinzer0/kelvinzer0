@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [4 Dallas firefighters injured as engine crashes off bridge, lands on railway below](https://www.yahoo.com/news/4-dallas-firefighters-injured-engine-150037161.html)
+- Jul 21 - [Boeing sees significant improvement in 737 MAX factory production](https://finance.yahoo.com/news/boeing-sees-significant-improvement-737-135543695.html)
 - Jul 21 - [Nearly 7,000 pounds of hot dogs recalled after producer missed federal safety inspection](https://www.yahoo.com/lifestyle/usda-recalls-nearly-7-000-151526099.html)
-- Jul 21 - [IRS makes it easier to tap retirement accounts for emergencies](https://finance.yahoo.com/video/irs-makes-easier-tap-retirement-120027779.html)
-- Jul 21 - [5 SUVs That Will Save You the Most Money Over Time, According to the Experts](https://finance.yahoo.com/news/5-suvs-save-most-money-110059936.html)
-- Jul 21 - [A history buff bought a piece of a tent from Goodwill for $1,700. It really did belong to George Washington](https://www.yahoo.com/news/history-buff-bought-piece-tent-105800427.html)
-- Jul 21 - [Billionaires Are Selling Nvidia Stock and Buying an Index Fund That Could Soar Up to 5,655%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/billionaires-selling-nvidia-stock-buying-090500461.html)
+- Jul 21 - [Dozens of illnesses across 28 states are now linked to a company's 'microdosing' gummies and chocolate bars](https://www.yahoo.com/lifestyle/dozens-illnesses-across-28-states-132414063.html)
+- Jul 21 - [Union Pacific (NYSE:UNP) Has Announced That It Will Be Increasing Its Dividend To $1.34](https://finance.yahoo.com/news/union-pacific-nyse-unp-announced-121059141.html)
 <!-- feed end -->
 
 ### Onstream
