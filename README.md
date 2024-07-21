@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Grandma, mother, 2 children fatally stabbed in Brooklyn, relative in custody: NYPD](https://www.yahoo.com/news/grandma-mother-2-children-fatally-003700567.html)
 - Jul 20 - [Trump's former physician gives new details on gunshot wound](https://www.yahoo.com/news/trumps-former-physician-gives-details-204731782.html)
+- Jul 20 - [Suspect photo released in sucker punch of 89-year-old comedian: NYPD](https://www.yahoo.com/news/suspect-photo-released-sucker-punch-185421695.html)
 - Jul 20 - [12 Seafood Chains That Are About To Take Over The US](https://finance.yahoo.com/news/12-seafood-chains-over-us-172533662.html)
-- Jul 20 - [Unsafe visitor behavior forces closure, changes at Northern California state park](https://www.yahoo.com/news/unsafe-visitor-behavior-forces-closure-152612080.html)
-- Jul 20 - [Rolex prices are falling and supplies are rising](https://finance.yahoo.com/news/rolex-prices-are-falling-and-supplies-are-rising-151919533.html)
-- Jul 20 - [What became of the flags Apollo astronauts left on the moon?](https://www.yahoo.com/news/became-flags-apollo-astronauts-left-150000313.html)
+- Jul 20 - [Here's what to do with deli meats as the CDC investigates a listeria outbreak across the U.S.](https://www.yahoo.com/news/heres-deli-meats-cdc-investigates-162130399.html)
 <!-- feed end -->
 
 ### Onstream
