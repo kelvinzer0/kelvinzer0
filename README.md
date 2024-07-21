@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Joe Biden Drops Out of the 2024 Presidential Race](https://www.yahoo.com/news/joe-biden-drops-2024-presidential-175315060.html)
-- Jul 21 - [Aaron Sorkin Says Democrats Should Replace Biden With This Familiar Republican](https://www.yahoo.com/news/aaron-sorkin-says-democrats-replace-170311219.html)
-- Jul 21 - [International Space Station Crew Finds A Long-Lost Tomato](https://www.yahoo.com/news/international-space-station-crew-finds-120000731.html)
-- Jul 21 - [Boeing exec says planemaker has settled on design for MAX 7 icing issue](https://finance.yahoo.com/news/boeing-exec-says-planemaker-settled-155226131.html)
-- Jul 21 - [5 Grocery Stores You Might Want To Avoid When Purchasing Ground Beef, According To Customer Reviews](https://www.yahoo.com/lifestyle/5-grocery-stores-might-want-152513166.html)
+- Jul 21 - [What happens next: Joe Biden wants to pass the baton to Kamala Harris. Here's how that might work](https://www.yahoo.com/news/happens-next-joe-biden-wants-182842146.html)
+- Jul 21 - [With Biden out, Michelle Obama would be Donald Trump’s worst self-inflicted nightmare | Opinion](https://www.yahoo.com/news/biden-michelle-obama-donald-trump-181556157.html)
+- Jul 21 - [Boeing and NASA engineers have wrapped up ground tests on the Starliner thruster](https://www.yahoo.com/news/boeing-and-nasa-engineers-have-wrapped-up-ground-tests-on-the-starliner-thruster-180027494.html)
+- Jul 21 - [Joe Biden Drops Out of 2024 Race and Endorses Kamala After 23-Minute Pause](https://www.yahoo.com/news/joe-biden-drops-2024-race-175550815.html)
+- Jul 21 - [I'm 66 With $745,000 in a 401(k). I've Started Taking Social Security, So Is It Too Late to Convert to a Roth IRA?](https://finance.yahoo.com/news/im-66-taking-social-security-110000060.html)
 <!-- feed end -->
 
 ### Onstream
