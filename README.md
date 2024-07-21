@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Iwan Thomas: ‘I stopped doing Park Run when a nine-year-old boy kept beating me’](https://www.yahoo.com/lifestyle/iwan-thomas-stopped-doing-park-074531766.html)
-- Jul 21 - [Vatican's Pius XII archives shed light on another contentious chapter: The Legion of Christ scandal](https://www.yahoo.com/news/vaticans-pius-xii-archives-shed-051356956.html)
+- Jul 21 - ['No one noticed that': CCPD Assistant Chief provides details on Caleb Harris' remains](https://www.yahoo.com/news/no-one-noticed-ccpd-assistant-042748335.html)
 - Jul 21 - ['Ludicrous': Donors leave call with Kamala Harris frustrated and annoyed](https://www.yahoo.com/news/ludicrous-donors-leave-call-kamala-040432993.html)
-- Jul 20 - [Chicago police issue alert for armed robberies in 3 neighborhoods](https://www.yahoo.com/news/chicago-police-issue-alert-armed-233209333.html)
 - Jul 20 - [People Are Revealing Their Final Acts Of Defiance Towards Obnoxious Bosses Before Quitting, And I'm Screamingggggg](https://www.yahoo.com/entertainment/people-revealing-final-acts-defiance-221602645.html)
+- Jul 20 - [Rescuers ‘amazed’ to find missing man alive after 14 days at Red River Gorge](https://www.yahoo.com/news/rescuers-amazed-missing-man-alive-214254913.html)
+- Jul 20 - [Trump's former physician gives new details on gunshot wound](https://www.yahoo.com/news/trumps-former-physician-gives-details-204731782.html)
 <!-- feed end -->
 
 ### Onstream
