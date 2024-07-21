@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [China and the Philippines reach deal in effort to stop clashes at fiercely disputed shoal](https://www.yahoo.com/news/philippines-china-reach-deal-avoid-101501362.html)
+- Jul 21 - [5 surprising signs you’re no longer ‘middle class’ in America and you've clawed your way up the class ladder](https://finance.yahoo.com/news/5-surprising-signs-no-longer-100400837.html)
 - Jul 21 - [Billionaires Are Selling Nvidia Stock and Buying an Index Fund That Could Soar Up to 5,655%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/billionaires-selling-nvidia-stock-buying-090500461.html)
-- Jul 21 - [In these Missouri towns, murals paint pictures of history and culture](https://www.yahoo.com/lifestyle/missouri-towns-murals-paint-pictures-090256146.html)
-- Jul 21 - [‘We lost.’ Settlement in case against ‘King of Coconut Grove’ angers buyers of townhouses](https://www.yahoo.com/news/lost-settlement-case-against-king-090000241.html)
 - Jul 21 - [You Have Less Than 6 Months to Prepare for These 2025 Social Security Changes](https://finance.yahoo.com/news/less-6-months-prepare-2025-084400064.html)
-- Jul 21 - [Vatican's Pius XII archives shed light on another contentious chapter: The Legion of Christ scandal](https://www.yahoo.com/news/vaticans-pius-xii-archives-shed-051356956.html)
+- Jul 21 - [Taiwan must protect its sovereignty, know its own history, president says](https://www.yahoo.com/news/taiwan-must-protect-sovereignty-know-073237813.html)
 <!-- feed end -->
 
 ### Onstream
