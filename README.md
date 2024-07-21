@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - ['No one noticed that': CCPD Assistant Chief provides details on Caleb Harris' remains](https://www.yahoo.com/news/no-one-noticed-ccpd-assistant-042748335.html)
+- Jul 21 - [Vatican's Pius XII archives shed light on another contentious chapter: The Legion of Christ scandal](https://www.yahoo.com/news/vaticans-pius-xii-archives-shed-051356956.html)
 - Jul 21 - ['Ludicrous': Donors leave call with Kamala Harris frustrated and annoyed](https://www.yahoo.com/news/ludicrous-donors-leave-call-kamala-040432993.html)
+- Jul 21 - [As Georgia presses on with 'Russia-style' laws, its citizens describe a country on the brink](https://www.yahoo.com/news/georgia-presses-russia-style-laws-040342340.html)
+- Jul 21 - [Man skydived from plane 30 minutes before deadly crash in Niagara County](https://www.yahoo.com/news/man-skydived-plane-30-minutes-024115580.html)
 - Jul 20 - [People Are Revealing Their Final Acts Of Defiance Towards Obnoxious Bosses Before Quitting, And I'm Screamingggggg](https://www.yahoo.com/entertainment/people-revealing-final-acts-defiance-221602645.html)
-- Jul 20 - [Rescuers ‘amazed’ to find missing man alive after 14 days at Red River Gorge](https://www.yahoo.com/news/rescuers-amazed-missing-man-alive-214254913.html)
-- Jul 20 - [Trump's former physician gives new details on gunshot wound](https://www.yahoo.com/news/trumps-former-physician-gives-details-204731782.html)
 <!-- feed end -->
 
 ### Onstream
