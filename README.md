@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [A Greenville bar is changing after liquor liability insurance costs strain business](https://www.yahoo.com/news/greenville-bar-changing-liquor-liability-175023789.html)
-- Jul 22 - [People Are Not Loving Donald Trump's Nickname For Kamala Harris](https://www.yahoo.com/entertainment/people-seriously-unimpressed-donald-trumps-165709609.html)
-- Jul 22 - [Here's How 12 Trump-Supporting Celebrities Reacted To Joe Biden Endorsing Kamala Harris For President](https://www.yahoo.com/entertainment/heres-12-trump-supporting-celebrities-161245685.html)
-- Jul 22 - [Scientists discover ‘dark’ oxygen being produced more than 13,000 feet below the ocean surface](https://www.yahoo.com/news/scientists-discover-dark-oxygen-being-152753585.html)
-- Jul 22 - [Porsche waters down EV ambitions, says transition will take 'years'](https://finance.yahoo.com/news/porsche-waters-down-ev-ambitions-154326096.html)
+- Jul 22 - [CrowdStrike says more machines fixed as customers, regulators await details on what caused meltdown](https://finance.yahoo.com/news/crowdstrike-says-more-machines-fixed-185137819.html)
+- Jul 22 - [Elon Musk, With Tesla Factories in China, Tweets AI Video of Chinese President Xi Jinping Wearing Pooh Clothes](https://finance.yahoo.com/news/elon-musk-tesla-factories-china-174549965.html)
+- Jul 22 - [Self-professed 'Wolf of Airbnb' sentenced to over 4 years in prison for defrauding landlords](https://www.yahoo.com/news/self-professed-wolf-airbnb-sentenced-173635392.html)
+- Jul 22 - [Embraer formalizes C-390 sales to Austria, Netherlands; deliveries from 2027](https://finance.yahoo.com/news/embraer-formalizes-c-390-sales-171642809.html)
+- Jul 22 - [‘You are full of s***’: GOP lawmaker rips into Secret Service director](https://www.yahoo.com/news/full-gop-lawmaker-rips-secret-171606976.html)
 <!-- feed end -->
 
 ### Onstream
