@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [CrowdStrike says more machines fixed as customers, regulators await details on what caused meltdown](https://finance.yahoo.com/news/crowdstrike-says-more-machines-fixed-185137819.html)
-- Jul 22 - [Elon Musk, With Tesla Factories in China, Tweets AI Video of Chinese President Xi Jinping Wearing Pooh Clothes](https://finance.yahoo.com/news/elon-musk-tesla-factories-china-174549965.html)
+- Jul 22 - [Music fans rub shoulders with generals and artists at Kyiv festival, united by inescapable war](https://www.yahoo.com/news/music-fans-rub-shoulders-generals-200006829.html)
+- Jul 22 - [Thief tunnels into California gun store, steals $40,000 in guns — ‘we have them all’ on video](https://www.yahoo.com/news/thief-tunnels-california-gun-store-184008405.html)
+- Jul 22 - [Four wildfires reach ‘megafire’ status in Oregon, scorching thousands of acres](https://www.yahoo.com/news/four-wildfires-reach-megafire-status-181128728.html)
 - Jul 22 - [Self-professed 'Wolf of Airbnb' sentenced to over 4 years in prison for defrauding landlords](https://www.yahoo.com/news/self-professed-wolf-airbnb-sentenced-173635392.html)
 - Jul 22 - [Embraer formalizes C-390 sales to Austria, Netherlands; deliveries from 2027](https://finance.yahoo.com/news/embraer-formalizes-c-390-sales-171642809.html)
-- Jul 22 - [‘You are full of s***’: GOP lawmaker rips into Secret Service director](https://www.yahoo.com/news/full-gop-lawmaker-rips-secret-171606976.html)
 <!-- feed end -->
 
 ### Onstream
