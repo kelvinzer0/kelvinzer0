@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Mass killer who ‘hunted’ black people says police encouraged him](https://www.yahoo.com/news/mass-killer-hunted-black-people-002230929.html)
+- Jul 22 - [Huthi harbour still ablaze days after Israel strikes on Yemen](https://www.yahoo.com/news/huthi-harbour-still-ablaze-days-084129588.html)
+- Jul 22 - [A PhD student at a top Chinese university publicly accuses her supervisor of sexual harassment](https://www.yahoo.com/news/phd-student-top-chinese-university-081951540.html)
+- Jul 22 - [Nikki Haley's Dire Trump Prediction Is Coming Back To Haunt MAGA Voters](https://www.yahoo.com/news/nikki-haleys-dire-trump-prediction-075635532.html)
 - Jul 22 - [Donald Trump Fumes Over Biden Leaving Race In Unhinged Late Night Rant: 'It's Not Over!'](https://www.yahoo.com/news/donald-trump-fumes-over-biden-050213864.html)
-- Jul 22 - [Utah death row inmate who is imprisoned for 1998 murder asks parole board for mercy ahead of hearing](https://www.yahoo.com/news/utah-death-row-inmate-imprisoned-040531570.html)
-- Jul 22 - [Exclusive-Nvidia preparing version of new flagship AI chip for Chinese market, sources say](https://www.yahoo.com/tech/nvidia-preparing-version-flaghip-ai-040220055.html)
-- Jul 22 - [Nvidia preparing version of new flagship AI chip for Chinese market, sources say](https://finance.yahoo.com/news/nvidia-preparing-version-of-new-flagship-ai-chip-for-chinese-market-sources-say-040220913.html)
-- Jul 22 - [Jon Stewart Has Legendary 1-Word Response To Joe Biden Dropping Out](https://www.yahoo.com/entertainment/jon-stewart-legendary-1-word-025413415.html)
 <!-- feed end -->
 
 ### Onstream
