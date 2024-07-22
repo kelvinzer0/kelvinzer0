@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [A toddler died of a fentanyl overdose. DCFS trusted his mom's friend to keep him safe](https://www.yahoo.com/news/toddler-died-fentanyl-overdose-dcfs-100025969.html)
-- Jul 22 - [A PhD student at a top Chinese university publicly accuses her supervisor of sexual harassment](https://www.yahoo.com/news/phd-student-top-chinese-university-081951540.html)
-- Jul 22 - [Nikki Haley's Dire Trump Prediction Is Coming Back To Haunt MAGA Voters](https://www.yahoo.com/news/nikki-haleys-dire-trump-prediction-075635532.html)
-- Jul 22 - [Donald Trump Fumes Over Biden Leaving Race In Unhinged Late Night Rant: 'It's Not Over!'](https://www.yahoo.com/news/donald-trump-fumes-over-biden-050213864.html)
-- Jul 22 - [India ed-tech firm Byju's founder faces reckoning as startup implodes](https://finance.yahoo.com/news/india-ed-tech-firm-byjus-015609201.html)
+- Jul 22 - [Delta cancels another 600 flights on Monday in wake of cyber outage](https://finance.yahoo.com/news/delta-cancels-another-600-flights-114520314.html)
+- Jul 22 - [Israel declares two more Gaza hostages dead](https://www.yahoo.com/news/israel-declares-two-more-gaza-105054179.html)
+- Jul 22 - [Troubled Boeing stays close to the ground at a major UK air show](https://finance.yahoo.com/news/troubled-boeing-stays-close-ground-091228465.html)
+- Jul 22 - [GOP VP nominee J.D. Vance is linked to Catholic Integralism. What is it?](https://www.yahoo.com/news/gop-vp-nominee-j-d-090011723.html)
+- Jul 22 - [Huthi harbour still ablaze days after Israel strikes on Yemen](https://www.yahoo.com/news/huthi-harbour-still-ablaze-days-084129588.html)
 <!-- feed end -->
 
 ### Onstream
