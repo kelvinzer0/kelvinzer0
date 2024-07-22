@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [New study makes surprising find about households with rooftop solar panels — here's what it means](https://www.yahoo.com/news/study-makes-surprising-households-rooftop-110000754.html)
-- Jul 22 - [Israel declares two more Gaza hostages dead](https://www.yahoo.com/news/israel-declares-two-more-gaza-105054179.html)
-- Jul 22 - [GOP VP nominee J.D. Vance is linked to Catholic Integralism. What is it?](https://www.yahoo.com/news/gop-vp-nominee-j-d-090011723.html)
-- Jul 22 - [China to allow delayed retirement to combat population woes](https://www.yahoo.com/news/china-allow-delayed-retirement-combat-075132261.html)
-- Jul 22 - [Donald Trump Fumes Over Biden Leaving Race In Unhinged Late Night Rant: 'It's Not Over!'](https://www.yahoo.com/news/donald-trump-fumes-over-biden-050213864.html)
+- Jul 22 - [Israel strikes on Yemen port: what is the damage?](https://www.yahoo.com/news/israel-strikes-yemen-port-damage-133018224.html)
+- Jul 22 - [In Kyiv, music fans rub shoulders with generals and famous artists, united by the inescapable war](https://www.yahoo.com/news/kyiv-music-fans-rub-shoulders-131624323.html)
+- Jul 22 - [Paris Poised to Eclipse London in Olympic Sponsor Hospitality](https://finance.yahoo.com/news/paris-poised-eclipse-london-olympic-130000127.html)
+- Jul 22 - [Troubled Boeing stays close to the ground at a major UK air show](https://finance.yahoo.com/news/troubled-boeing-stays-close-ground-091228465.html)
+- Jul 22 - [List shows top cities in the U.S. for people to move to. Where does Jacksonville fall?](https://www.yahoo.com/lifestyle/list-shows-top-cities-u-090122932.html)
 <!-- feed end -->
 
 ### Onstream
