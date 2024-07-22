@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Donald Trump Fumes Over Biden Leaving Race In Unhinged Late Night Rant: 'It's Not Over!'](https://www.yahoo.com/news/donald-trump-fumes-over-biden-050213864.html)
+- Jul 22 - [Exclusive-Nvidia preparing version of new flagship AI chip for Chinese market, sources say](https://finance.yahoo.com/news/nvidia-preparing-version-flaghip-ai-040220030.html)
 - Jul 22 - [Jon Stewart Has Legendary 1-Word Response To Joe Biden Dropping Out](https://www.yahoo.com/entertainment/jon-stewart-legendary-1-word-025413415.html)
 - Jul 22 - [India ed-tech firm Byju's founder faces reckoning as startup implodes](https://finance.yahoo.com/news/india-ed-tech-firm-byjus-015609201.html)
-- Jul 22 - [Beekeepers develop surprisingly simple solution to fight major invasive species wreaking havoc on hives: 'Its effectiveness was staggering'](https://www.yahoo.com/news/beekeepers-develop-surprisingly-simple-solution-010000321.html)
 - Jul 21 - [Fast-moving Riverside County wildfire forces evacuations](https://www.yahoo.com/news/fast-moving-riverside-county-wildfire-233705579.html)
-- Jul 21 - [I-35 in Faribault shut down: Video shows standoff on highway](https://www.yahoo.com/news/35-faribault-shut-down-video-232133734.html)
 <!-- feed end -->
 
 ### Onstream
