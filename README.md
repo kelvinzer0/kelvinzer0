@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Missouri judge overturns the murder conviction of a man imprisoned for more than 30 years](https://www.yahoo.com/news/missouri-judge-overturns-murder-conviction-212100560.html)
+- Jul 22 - [LA Police Officers Shot During Traffic Stop With AR-15](https://www.yahoo.com/news/la-police-officers-shot-during-211540899.html)
+- Jul 22 - [Las Vegas woman says she recorded child sex assault to avoid blackmail: police](https://www.yahoo.com/news/las-vegas-woman-says-she-205826099.html)
+- Jul 22 - [High School Student with Disability Who Had to Sit in Audience for Graduation Files Lawsuit: 'Humiliating'](https://www.yahoo.com/news/high-school-student-disability-had-201842977.html)
 - Jul 22 - [No prison for a nursing home owner who sent 800 residents to ride out a hurricane in squalor](https://www.yahoo.com/news/no-prison-nursing-home-owner-201703363.html)
-- Jul 22 - [Woman who died from ME begged GP for help after hospital ‘did nothing’](https://www.yahoo.com/news/woman-died-begged-gp-help-191900414.html)
-- Jul 22 - [Arrest made after injured dog left to die in El Paso ditch, city says](https://www.yahoo.com/news/arrest-made-injured-dog-left-184241468.html)
-- Jul 22 - [Self-professed 'Wolf of Airbnb' sentenced to over 4 years in prison for defrauding landlords](https://www.yahoo.com/news/self-professed-wolf-airbnb-sentenced-173635392.html)
-- Jul 22 - [Embraer formalizes C-390 sales to Austria, Netherlands; deliveries from 2027](https://finance.yahoo.com/news/embraer-formalizes-c-390-sales-171642809.html)
 <!-- feed end -->
 
 ### Onstream
