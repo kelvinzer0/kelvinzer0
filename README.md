@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 22 - [No prison for a nursing home owner who sent 800 residents to ride out a hurricane in squalor](https://www.yahoo.com/news/no-prison-nursing-home-owner-201703363.html)
-- Jul 22 - [Why Delta is still canceling flights as other airlines return to normal](https://finance.yahoo.com/news/why-delta-still-canceling-flights-124538153.html)
-- Jul 22 - [Police Pit Mustang at Over 100 MPH in Rainy High-Speed Chase](https://autos.yahoo.com/police-pit-mustang-over-100-195800558.html)
-- Jul 22 - [Delta Airlines taking steps to ‘make it right’ for customers after global tech outage](https://www.yahoo.com/news/delta-airlines-taking-steps-customers-194258456.html)
 - Jul 22 - [Woman who died from ME begged GP for help after hospital ‘did nothing’](https://www.yahoo.com/news/woman-died-begged-gp-help-191900414.html)
+- Jul 22 - [Arrest made after injured dog left to die in El Paso ditch, city says](https://www.yahoo.com/news/arrest-made-injured-dog-left-184241468.html)
+- Jul 22 - [Self-professed 'Wolf of Airbnb' sentenced to over 4 years in prison for defrauding landlords](https://www.yahoo.com/news/self-professed-wolf-airbnb-sentenced-173635392.html)
+- Jul 22 - [Embraer formalizes C-390 sales to Austria, Netherlands; deliveries from 2027](https://finance.yahoo.com/news/embraer-formalizes-c-390-sales-171642809.html)
 <!-- feed end -->
 
 ### Onstream
