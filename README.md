@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Jon Stewart Has Legendary 1-Word Response To Joe Biden Dropping Out](https://www.yahoo.com/entertainment/jon-stewart-legendary-1-word-025413415.html)
+- Jul 22 - [Beekeepers develop surprisingly simple solution to fight major invasive species wreaking havoc on hives: 'Its effectiveness was staggering'](https://www.yahoo.com/news/beekeepers-develop-surprisingly-simple-solution-010000321.html)
 - Jul 21 - [Harris vs. Trump: What the polls tell us](https://www.yahoo.com/news/harris-vs-trump-polls-tell-230020198.html)
+- Jul 21 - [Hollywood reacts to Joe Biden exiting the presidential race](https://www.yahoo.com/entertainment/hollywood-reacts-joe-biden-exiting-214353243.html)
 - Jul 21 - [Teens Laugh After Crashing Kia Into Los Angeles Storefront](https://autos.yahoo.com/teens-laugh-crashing-kia-los-140000070.html)
-- Jul 21 - [Barack Obama and Nancy Pelosi Both Fail to Endorse Kamala](https://www.yahoo.com/news/barack-obama-nancy-pelosi-both-205612063.html)
-- Jul 21 - [IRS Finalizes 10-Year Rule For Retirement Withdrawals, Making Things 'Even More Insanely Complicated'](https://finance.yahoo.com/news/irs-finalizes-10-rule-retirement-193341910.html)
-- Jul 21 - [Fish species returns to river after vanishing over a century ago: 'This is a fantastic start'](https://www.yahoo.com/news/fish-species-returns-river-vanishing-190000163.html)
 <!-- feed end -->
 
 ### Onstream
