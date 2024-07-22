@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Mass killer who ‘hunted’ black people says police encouraged him](https://www.yahoo.com/news/mass-killer-hunted-black-people-002230929.html)
-- Jul 22 - [Huthi harbour still ablaze days after Israel strikes on Yemen](https://www.yahoo.com/news/huthi-harbour-still-ablaze-days-084129588.html)
+- Jul 22 - [A toddler died of a fentanyl overdose. DCFS trusted his mom's friend to keep him safe](https://www.yahoo.com/news/toddler-died-fentanyl-overdose-dcfs-100025969.html)
 - Jul 22 - [A PhD student at a top Chinese university publicly accuses her supervisor of sexual harassment](https://www.yahoo.com/news/phd-student-top-chinese-university-081951540.html)
 - Jul 22 - [Nikki Haley's Dire Trump Prediction Is Coming Back To Haunt MAGA Voters](https://www.yahoo.com/news/nikki-haleys-dire-trump-prediction-075635532.html)
 - Jul 22 - [Donald Trump Fumes Over Biden Leaving Race In Unhinged Late Night Rant: 'It's Not Over!'](https://www.yahoo.com/news/donald-trump-fumes-over-biden-050213864.html)
+- Jul 22 - [India ed-tech firm Byju's founder faces reckoning as startup implodes](https://finance.yahoo.com/news/india-ed-tech-firm-byjus-015609201.html)
 <!-- feed end -->
 
 ### Onstream
