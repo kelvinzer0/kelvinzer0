@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [How the West became dangerously dependent on Microsoft](https://www.yahoo.com/news/west-became-dangerously-dependent-microsoft-162949658.html)
-- Jul 22 - [Great wealth transfer: The 'four horses' of managing wealth](https://finance.yahoo.com/video/great-wealth-transfer-four-horses-162246608.html)
-- Jul 22 - [Officials to release video of officer shooting Black woman in her home after responding to 911 call](https://www.yahoo.com/news/officials-release-video-officer-shooting-162127029.html)
+- Jul 22 - [A Greenville bar is changing after liquor liability insurance costs strain business](https://www.yahoo.com/news/greenville-bar-changing-liquor-liability-175023789.html)
+- Jul 22 - [People Are Not Loving Donald Trump's Nickname For Kamala Harris](https://www.yahoo.com/entertainment/people-seriously-unimpressed-donald-trumps-165709609.html)
 - Jul 22 - [Here's How 12 Trump-Supporting Celebrities Reacted To Joe Biden Endorsing Kamala Harris For President](https://www.yahoo.com/entertainment/heres-12-trump-supporting-celebrities-161245685.html)
 - Jul 22 - [Scientists discover ‘dark’ oxygen being produced more than 13,000 feet below the ocean surface](https://www.yahoo.com/news/scientists-discover-dark-oxygen-being-152753585.html)
+- Jul 22 - [Porsche waters down EV ambitions, says transition will take 'years'](https://finance.yahoo.com/news/porsche-waters-down-ev-ambitions-154326096.html)
 <!-- feed end -->
 
 ### Onstream
