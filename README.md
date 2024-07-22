@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Philippine president orders shutdown of Chinese-run online gambling industry employing thousands.](https://www.yahoo.com/news/philippine-president-orders-shutdown-chinese-133813957.html)
-- Jul 22 - [In Kyiv, a music festival returns as fans, artists and soldiers are united by the inescapable war](https://www.yahoo.com/news/kyiv-music-fans-rub-shoulders-131624323.html)
-- Jul 22 - [New study makes surprising find about households with rooftop solar panels — here's what it means](https://www.yahoo.com/news/study-makes-surprising-households-rooftop-110000754.html)
-- Jul 22 - [Archaeologists Found a Lost Temple in the Sand That Solves a Major Historical Puzzle](https://www.yahoo.com/news/archaeologists-found-lost-temple-sand-120000716.html)
-- Jul 22 - [Israel declares two more Gaza hostages dead](https://www.yahoo.com/news/israel-declares-two-more-gaza-105054179.html)
+- Jul 22 - [How the West became dangerously dependent on Microsoft](https://www.yahoo.com/news/west-became-dangerously-dependent-microsoft-162949658.html)
+- Jul 22 - [Great wealth transfer: The 'four horses' of managing wealth](https://finance.yahoo.com/video/great-wealth-transfer-four-horses-162246608.html)
+- Jul 22 - [Officials to release video of officer shooting Black woman in her home after responding to 911 call](https://www.yahoo.com/news/officials-release-video-officer-shooting-162127029.html)
+- Jul 22 - [Here's How 12 Trump-Supporting Celebrities Reacted To Joe Biden Endorsing Kamala Harris For President](https://www.yahoo.com/entertainment/heres-12-trump-supporting-celebrities-161245685.html)
+- Jul 22 - [Scientists discover ‘dark’ oxygen being produced more than 13,000 feet below the ocean surface](https://www.yahoo.com/news/scientists-discover-dark-oxygen-being-152753585.html)
 <!-- feed end -->
 
 ### Onstream
