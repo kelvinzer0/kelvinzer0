@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Delta cancels another 600 flights on Monday in wake of cyber outage](https://finance.yahoo.com/news/delta-cancels-another-600-flights-114520314.html)
+- Jul 22 - [New study makes surprising find about households with rooftop solar panels — here's what it means](https://www.yahoo.com/news/study-makes-surprising-households-rooftop-110000754.html)
 - Jul 22 - [Israel declares two more Gaza hostages dead](https://www.yahoo.com/news/israel-declares-two-more-gaza-105054179.html)
-- Jul 22 - [Troubled Boeing stays close to the ground at a major UK air show](https://finance.yahoo.com/news/troubled-boeing-stays-close-ground-091228465.html)
 - Jul 22 - [GOP VP nominee J.D. Vance is linked to Catholic Integralism. What is it?](https://www.yahoo.com/news/gop-vp-nominee-j-d-090011723.html)
-- Jul 22 - [Huthi harbour still ablaze days after Israel strikes on Yemen](https://www.yahoo.com/news/huthi-harbour-still-ablaze-days-084129588.html)
+- Jul 22 - [China to allow delayed retirement to combat population woes](https://www.yahoo.com/news/china-allow-delayed-retirement-combat-075132261.html)
+- Jul 22 - [Donald Trump Fumes Over Biden Leaving Race In Unhinged Late Night Rant: 'It's Not Over!'](https://www.yahoo.com/news/donald-trump-fumes-over-biden-050213864.html)
 <!-- feed end -->
 
 ### Onstream
