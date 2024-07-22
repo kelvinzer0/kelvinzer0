@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 22 - [Jon Stewart Has Legendary 1-Word Response To Joe Biden Dropping Out](https://www.yahoo.com/entertainment/jon-stewart-legendary-1-word-025413415.html)
+- Jul 22 - [India ed-tech firm Byju's founder faces reckoning as startup implodes](https://finance.yahoo.com/news/india-ed-tech-firm-byjus-015609201.html)
 - Jul 22 - [Beekeepers develop surprisingly simple solution to fight major invasive species wreaking havoc on hives: 'Its effectiveness was staggering'](https://www.yahoo.com/news/beekeepers-develop-surprisingly-simple-solution-010000321.html)
-- Jul 21 - [Harris vs. Trump: What the polls tell us](https://www.yahoo.com/news/harris-vs-trump-polls-tell-230020198.html)
-- Jul 21 - [Hollywood reacts to Joe Biden exiting the presidential race](https://www.yahoo.com/entertainment/hollywood-reacts-joe-biden-exiting-214353243.html)
-- Jul 21 - [Teens Laugh After Crashing Kia Into Los Angeles Storefront](https://autos.yahoo.com/teens-laugh-crashing-kia-los-140000070.html)
+- Jul 21 - [Fast-moving Riverside County wildfire forces evacuations](https://www.yahoo.com/news/fast-moving-riverside-county-wildfire-233705579.html)
+- Jul 21 - [Hugh Hendry warns: 'The money system is dying'](https://finance.yahoo.com/video/hugh-hendry-warns-money-system-231316673.html)
 <!-- feed end -->
 
 ### Onstream
