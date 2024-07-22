@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Israel strikes on Yemen port: what is the damage?](https://www.yahoo.com/news/israel-strikes-yemen-port-damage-133018224.html)
-- Jul 22 - [In Kyiv, music fans rub shoulders with generals and famous artists, united by the inescapable war](https://www.yahoo.com/news/kyiv-music-fans-rub-shoulders-131624323.html)
-- Jul 22 - [Paris Poised to Eclipse London in Olympic Sponsor Hospitality](https://finance.yahoo.com/news/paris-poised-eclipse-london-olympic-130000127.html)
-- Jul 22 - [Troubled Boeing stays close to the ground at a major UK air show](https://finance.yahoo.com/news/troubled-boeing-stays-close-ground-091228465.html)
-- Jul 22 - [List shows top cities in the U.S. for people to move to. Where does Jacksonville fall?](https://www.yahoo.com/lifestyle/list-shows-top-cities-u-090122932.html)
+- Jul 22 - [US ambassador visits Haiti to meet new leaders and Kenyan police helping to curb gang violence](https://www.yahoo.com/news/us-ambassador-visits-haiti-meet-144705023.html)
+- Jul 22 - [Crisis-hit Boeing flies high at Farnborough Airshow](https://www.yahoo.com/news/crisis-hit-boeing-flies-high-142700661.html)
+- Jul 22 - [Hunter Biden drops lawsuit against Fox News over explicit images featured in streaming series](https://www.yahoo.com/news/hunter-biden-drops-lawsuit-against-142615399.html)
+- Jul 22 - [Kremlin welcomes Zelensky stance on talks and awaits new US course](https://www.yahoo.com/news/kremlin-welcomes-zelensky-stance-talks-140751400.html)
+- Jul 22 - [Listen To A Meteor Slam Into Mars and Watch The Aftermath](https://www.yahoo.com/news/listen-meteor-slam-mars-watch-124500501.html)
 <!-- feed end -->
 
 ### Onstream
