@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [US ambassador visits Haiti to meet new leaders and Kenyan police helping to curb gang violence](https://www.yahoo.com/news/us-ambassador-visits-haiti-meet-144705023.html)
-- Jul 22 - [Crisis-hit Boeing flies high at Farnborough Airshow](https://www.yahoo.com/news/crisis-hit-boeing-flies-high-142700661.html)
-- Jul 22 - [Hunter Biden drops lawsuit against Fox News over explicit images featured in streaming series](https://www.yahoo.com/news/hunter-biden-drops-lawsuit-against-142615399.html)
-- Jul 22 - [Kremlin welcomes Zelensky stance on talks and awaits new US course](https://www.yahoo.com/news/kremlin-welcomes-zelensky-stance-talks-140751400.html)
-- Jul 22 - [Listen To A Meteor Slam Into Mars and Watch The Aftermath](https://www.yahoo.com/news/listen-meteor-slam-mars-watch-124500501.html)
+- Jul 22 - [Philippine president orders shutdown of Chinese-run online gambling industry employing thousands.](https://www.yahoo.com/news/philippine-president-orders-shutdown-chinese-133813957.html)
+- Jul 22 - [In Kyiv, a music festival returns as fans, artists and soldiers are united by the inescapable war](https://www.yahoo.com/news/kyiv-music-fans-rub-shoulders-131624323.html)
+- Jul 22 - [New study makes surprising find about households with rooftop solar panels — here's what it means](https://www.yahoo.com/news/study-makes-surprising-households-rooftop-110000754.html)
+- Jul 22 - [Archaeologists Found a Lost Temple in the Sand That Solves a Major Historical Puzzle](https://www.yahoo.com/news/archaeologists-found-lost-temple-sand-120000716.html)
+- Jul 22 - [Israel declares two more Gaza hostages dead](https://www.yahoo.com/news/israel-declares-two-more-gaza-105054179.html)
 <!-- feed end -->
 
 ### Onstream
