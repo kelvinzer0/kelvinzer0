@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Joe Biden's family members react on decision to drop out of race](https://www.yahoo.com/news/joe-bidens-family-members-react-193722451.html)
-- Jul 21 - [Barack Obama releases statement after Biden drops out of 2024 race for president](https://www.yahoo.com/news/barack-obama-releases-statement-biden-204247661.html)
+- Jul 22 - [NBA player’s ‘unique’ home on Sacramento River finds buyer within 24 hours. Take a look](https://www.yahoo.com/news/nba-player-unique-home-sacramento-010000656.html)
+- Jul 21 - [Harris vs. Trump: What the polls tell us](https://www.yahoo.com/news/harris-vs-trump-polls-tell-230020198.html)
+- Jul 21 - [LSU cornerback Javien Toviano arrested on accusation of video voyeurism, authorities say](https://www.yahoo.com/news/lsu-cornerback-javien-toviano-arrested-223648774.html)
+- Jul 21 - [Barack Obama and Nancy Pelosi Both Fail to Endorse Kamala](https://www.yahoo.com/news/barack-obama-nancy-pelosi-both-205612063.html)
 - Jul 21 - [IRS Finalizes 10-Year Rule For Retirement Withdrawals, Making Things 'Even More Insanely Complicated'](https://finance.yahoo.com/news/irs-finalizes-10-rule-retirement-193341910.html)
-- Jul 21 - [Possible Democratic challengers to Kamala Harris say they're standing down](https://www.yahoo.com/news/possible-democratic-challengers-kamala-harris-192134701.html)
-- Jul 21 - [Fish species returns to river after vanishing over a century ago: 'This is a fantastic start'](https://www.yahoo.com/news/fish-species-returns-river-vanishing-190000163.html)
 <!-- feed end -->
 
 ### Onstream
