@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 23 - [Charlotte Dujardin ‘hit horse repeatedly on legs’ in video that sparked Olympics withdrawal](https://sports.yahoo.com/charlotte-dujardin-withdraws-olympics-video-144631651.html)
-- Jul 23 - [Kremlin to pay soldiers £50,000 in Ukraine war recruitment drive](https://www.yahoo.com/news/kremlin-pay-soldiers-50-000-155701914.html)
-- Jul 23 - [Indian priests invoke heavenly powers for Kamala Harris](https://www.yahoo.com/news/indian-priests-invoke-heavenly-powers-154231182.html)
+- Jul 23 - [Brussel strips Hungary of key EU defense meeting over Ukraine stance](https://www.yahoo.com/news/brussel-strips-hungary-key-eu-153505594.html)
+- Jul 23 - [Bianca Censori Pushes The Limit With Her Racy Outfit As She Flouts A Restaurant's Dress Code](https://www.yahoo.com/entertainment/bianca-censori-pushes-limit-her-153048270.html)
 - Jul 23 - [Shark bite reported in Hilton Head Island waters Monday afternoon, beach patrol says](https://www.yahoo.com/news/shark-bite-reported-hilton-head-150522491.html)
-- Jul 23 - [Oscar Mayer Wienermobile flips onto its side after crash along suburban Chicago highway](https://www.yahoo.com/news/oscar-mayer-wienermobile-flips-onto-143616297.html)
+- Jul 23 - [3 Army Reserve officers disciplined after reservist killed 18 people in Maine](https://www.yahoo.com/news/3-army-officers-disciplined-reservist-140324279.html)
 <!-- feed end -->
 
 ### Onstream
