@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Truist boosts Carnival Corporation price target](https://finance.yahoo.com/video/truist-boosts-carnival-corporation-price-205420980.html)
 - Jul 23 - [Missouri prison ignores court order to free wrongfully convicted inmate for second time in weeks](https://www.yahoo.com/news/missouri-prison-ignores-court-order-203734196.html)
-- Jul 23 - [Unwanted Olympics tickets spiral to more than quarter of a million over Paris concerns](https://sports.yahoo.com/unwanted-olympics-tickets-spiral-more-202427553.html)
 - Jul 23 - [People Are Sharing The Worst Medical Advice They've Ever Gotten From A Doctor, And It's Beyond Frightening](https://www.yahoo.com/lifestyle/people-sharing-worst-medical-advice-201602780.html)
-- Jul 23 - [Wisconsin man charged with fleeing to Ireland to avoid prison term for Capitol riot role](https://www.yahoo.com/news/wisconsin-man-charged-fleeing-ireland-195346868.html)
+- Jul 23 - [‘I had to do it’: Main Event security guard shot co-worker twice in head, witnesses say](https://www.yahoo.com/news/had-main-event-security-guard-201507031.html)
+- Jul 23 - [Tesla misses Wall Street targets as price cuts, incentives weigh](https://finance.yahoo.com/news/tesla-revenue-sees-surprise-rise-200629519.html)
+- Jul 23 - [Missing Southern California girl, 15, found safe](https://www.yahoo.com/news/missing-southern-california-girl-15-182004142.html)
 <!-- feed end -->
 
 ### Onstream
