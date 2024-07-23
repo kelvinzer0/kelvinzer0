@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [People Are Sharing The Worst Job They Ever Had And These Horror Stories Will Make You Hate Your Own A Little Less](https://www.yahoo.com/entertainment/people-sharing-worst-job-ever-034602781.html)
+- Jul 23 - [Tired of the heat? Here's what the Old Farmer's Almanac predicts for 2024 fall weather](https://www.yahoo.com/news/tired-heat-heres-old-farmers-091413602.html)
 - Jul 23 - [Southwest flight into Tampa has 'close call' 150 feet above Courtney Campbell Causeway: 'It's hard to believe'](https://www.yahoo.com/news/southwest-flight-tampa-close-call-014513730.html)
 - Jul 23 - [Scientists discover ‘dark’ oxygen being produced more than 13,000 feet below the ocean surface](https://www.yahoo.com/news/scientists-discover-dark-oxygen-being-152753585.html)
 - Jul 23 - [Musk says trans child was figuratively 'killed by the woke mind virus,' vows to destroy it: 'My son is dead'](https://www.yahoo.com/news/musk-says-trans-child-figuratively-004959254.html)
-- Jul 23 - [Lucy-Bleu Knight, Slash's Stepdaughter, Dead at 25](https://www.yahoo.com/entertainment/lucy-bleu-knight-slashs-stepdaughter-001902608.html)
+- Jul 23 - [Marjorie Taylor Greene's Attack On Secret Service Director Manages To Backfire](https://www.yahoo.com/news/marjorie-taylor-greenes-attack-secret-000531157.html)
 <!-- feed end -->
 
 ### Onstream
