@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [Marjorie Taylor Greene's Attack On Secret Service Director Manages To Backfire](https://www.yahoo.com/news/marjorie-taylor-greenes-attack-secret-000531157.html)
+- Jul 22 - [‘We’re expecting!’: Boston Mayor Michelle Wu announces she’s pregnant with third child](https://www.yahoo.com/news/expecting-boston-mayor-michelle-wu-235449026.html)
+- Jul 22 - [NYCB closes sale of about $6 billion mortgage warehouse loans to JPMorgan Chase](https://finance.yahoo.com/news/nycb-closes-sale-mortgage-warehouse-223616442.html)
 - Jul 22 - [Missouri judge overturns the murder conviction of a man imprisoned for more than 30 years](https://www.yahoo.com/news/missouri-judge-overturns-murder-conviction-212100560.html)
-- Jul 22 - [LA Police Officers Shot During Traffic Stop With AR-15](https://www.yahoo.com/news/la-police-officers-shot-during-211540899.html)
 - Jul 22 - [Las Vegas woman says she recorded child sex assault to avoid blackmail: police](https://www.yahoo.com/news/las-vegas-woman-says-she-205826099.html)
-- Jul 22 - [High School Student with Disability Who Had to Sit in Audience for Graduation Files Lawsuit: 'Humiliating'](https://www.yahoo.com/news/high-school-student-disability-had-201842977.html)
-- Jul 22 - [No prison for a nursing home owner who sent 800 residents to ride out a hurricane in squalor](https://www.yahoo.com/news/no-prison-nursing-home-owner-201703363.html)
 <!-- feed end -->
 
 ### Onstream
