@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [U.S. Presidential Election Will Now Be a 'Very Competitive' Race: Kevin O'Leary](https://finance.yahoo.com/video/u-presidential-election-now-very-185826550.html)
-- Jul 23 - [Charlotte Dujardin out of Olympics after video. Gold medalist is suspended](https://sports.yahoo.com/olympic-gold-medalist-charlotte-dujardin-173702512.html)
-- Jul 23 - [Bulls, Blackhawks owners unveil $7 billion plan to transform area around United Center](https://finance.yahoo.com/news/bulls-blackhawks-owners-unveil-7-172554965.html)
-- Jul 23 - [Poll says 32% of Ukrainians open to territorial concessions for quick peace](https://www.yahoo.com/news/poll-says-32-ukrainians-open-160320757.html)
-- Jul 23 - [Florida's population passes 23 million for the first time due to residents moving from other states](https://www.yahoo.com/news/floridas-population-passes-23-million-155046934.html)
+- Jul 23 - [Truist boosts Carnival Corporation price target](https://finance.yahoo.com/video/truist-boosts-carnival-corporation-price-205420980.html)
+- Jul 23 - [Missouri prison ignores court order to free wrongfully convicted inmate for second time in weeks](https://www.yahoo.com/news/missouri-prison-ignores-court-order-203734196.html)
+- Jul 23 - [Unwanted Olympics tickets spiral to more than quarter of a million over Paris concerns](https://sports.yahoo.com/unwanted-olympics-tickets-spiral-more-202427553.html)
+- Jul 23 - [People Are Sharing The Worst Medical Advice They've Ever Gotten From A Doctor, And It's Beyond Frightening](https://www.yahoo.com/lifestyle/people-sharing-worst-medical-advice-201602780.html)
+- Jul 23 - [Wisconsin man charged with fleeing to Ireland to avoid prison term for Capitol riot role](https://www.yahoo.com/news/wisconsin-man-charged-fleeing-ireland-195346868.html)
 <!-- feed end -->
 
 ### Onstream
