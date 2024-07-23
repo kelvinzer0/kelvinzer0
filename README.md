@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Can Russia compete at the Olympics and what is AIN?](https://sports.yahoo.com/russia-olympics-russian-athletes-compete-113211129.html)
-- Jul 23 - [Meta's AI assistant is coming to Quest headsets in the US and Canada](https://www.yahoo.com/news/metas-ai-assistant-is-coming-to-quest-headsets-in-the-us-and-canada-150033530.html)
-- Jul 23 - [McDonald's extends $5 meal, Wendy's adds $1 breakfast sandwich](https://www.yahoo.com/news/mcdonalds-extends-5-meal-wendys-140449379.html)
-- Jul 23 - [Repairing A Totalled Cybertruck Is Much More Trouble Than It's Worth](https://autos.yahoo.com/repairing-totalled-cybertruck-much-more-132500884.html)
-- Jul 23 - [My Son Died Of A Fentanyl Overdose. Here's What No One Is Telling You About This Crisis.](https://www.yahoo.com/news/son-died-fentanyl-overdose-heres-123012592.html)
+- Jul 23 - [Charlotte Dujardin ‘hit horse repeatedly on legs’ in video that sparked Olympics withdrawal](https://sports.yahoo.com/charlotte-dujardin-withdraws-olympics-video-144631651.html)
+- Jul 23 - [Kremlin to pay soldiers £50,000 in Ukraine war recruitment drive](https://www.yahoo.com/news/kremlin-pay-soldiers-50-000-155701914.html)
+- Jul 23 - [Indian priests invoke heavenly powers for Kamala Harris](https://www.yahoo.com/news/indian-priests-invoke-heavenly-powers-154231182.html)
+- Jul 23 - [Shark bite reported in Hilton Head Island waters Monday afternoon, beach patrol says](https://www.yahoo.com/news/shark-bite-reported-hilton-head-150522491.html)
+- Jul 23 - [Oscar Mayer Wienermobile flips onto its side after crash along suburban Chicago highway](https://www.yahoo.com/news/oscar-mayer-wienermobile-flips-onto-143616297.html)
 <!-- feed end -->
 
 ### Onstream
