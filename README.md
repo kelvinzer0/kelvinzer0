@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Man Sues After Explicit Reply-All Work Email Lands Him in Some Very Hot Water](https://www.yahoo.com/news/man-sues-explicit-reply-email-021901910.html)
+- Jul 23 - [FTSE 100 LIVE: European stocks mixed as Kamala Harris clinches enough support for nomination](https://uk.finance.yahoo.com/news/live/ftse-100-live-stocks-wall-street-kamala-harris-nomination-080234958.html)
+- Jul 23 - [People Are Sharing The Worst Job They Ever Had And These Horror Stories Will Make You Hate Your Own A Little Less](https://www.yahoo.com/entertainment/people-sharing-worst-job-ever-034602781.html)
+- Jul 23 - [WWE pro wrestler ‘heartbroken’ after family’s Cleveland restaurant destroyed by fire](https://www.yahoo.com/news/wwe-pro-wrestler-heartbroken-family-014720883.html)
 - Jul 23 - [Scientists discover ‘dark’ oxygen being produced more than 13,000 feet below the ocean surface](https://www.yahoo.com/news/scientists-discover-dark-oxygen-being-152753585.html)
 - Jul 23 - [Musk says trans child was figuratively 'killed by the woke mind virus,' vows to destroy it: 'My son is dead'](https://www.yahoo.com/news/musk-says-trans-child-figuratively-004959254.html)
-- Jul 23 - [Lucy-Bleu Knight, Slash's Stepdaughter, Dead at 25](https://www.yahoo.com/entertainment/lucy-bleu-knight-slashs-stepdaughter-001902608.html)
-- Jul 23 - [Marjorie Taylor Greene's Attack On Secret Service Director Manages To Backfire](https://www.yahoo.com/news/marjorie-taylor-greenes-attack-secret-000531157.html)
 <!-- feed end -->
 
 ### Onstream
