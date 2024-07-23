@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [My Son Died Of A Fentanyl Overdose. Here's What No One Is Telling You About This Crisis.](https://www.yahoo.com/news/son-died-fentanyl-overdose-heres-123012592.html)
 - Jul 23 - [Florida condo owners face unretiring or selling homes after being hit with $100,000 in special assessment fees](https://finance.yahoo.com/news/florida-condo-owners-face-unretiring-112000881.html)
-- Jul 23 - [Tired of the heat? Here's what the Old Farmer's Almanac predicts for 2024 fall weather](https://www.yahoo.com/news/tired-heat-heres-old-farmers-091413602.html)
-- Jul 23 - [Monmouth University on lockdown due to 'active investigation'; students shelter in place](https://www.yahoo.com/news/monmouth-university-lockdown-due-active-084258201.html)
-- Jul 23 - [People Are Sharing The Worst Job They Ever Had And These Horror Stories Will Make You Hate Your Own A Little Less](https://www.yahoo.com/entertainment/people-sharing-worst-job-ever-034602781.html)
-- Jul 23 - [Southwest flight into Tampa has 'close call' 150 feet above Courtney Campbell Causeway: 'It's hard to believe'](https://www.yahoo.com/news/southwest-flight-tampa-close-call-014513730.html)
+- Jul 23 - [Critics Squirm Over 1 Particular Moment In Fox News Interview With Trump And Vance](https://www.yahoo.com/news/critics-squirm-over-1-particular-101918582.html)
+- Jul 23 - [UPS misses quarterly estimates on high labor costs, weak small-package demand](https://finance.yahoo.com/news/ups-quarterly-profit-falls-high-100606178.html)
+- Jul 23 - [Two drivers arrested in suspected DUI crash that killed four people identified](https://www.yahoo.com/news/two-drivers-arrested-suspected-dui-024958033.html)
 <!-- feed end -->
 
 ### Onstream
