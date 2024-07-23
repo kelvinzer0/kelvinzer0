@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 23 - [Scientists discover ‘dark’ oxygen being produced more than 13,000 feet below the ocean surface](https://www.yahoo.com/news/scientists-discover-dark-oxygen-being-152753585.html)
+- Jul 23 - [Musk says trans child was figuratively 'killed by the woke mind virus,' vows to destroy it: 'My son is dead'](https://www.yahoo.com/news/musk-says-trans-child-figuratively-004959254.html)
+- Jul 23 - [Lucy-Bleu Knight, Slash's Stepdaughter, Dead at 25](https://www.yahoo.com/entertainment/lucy-bleu-knight-slashs-stepdaughter-001902608.html)
 - Jul 23 - [Marjorie Taylor Greene's Attack On Secret Service Director Manages To Backfire](https://www.yahoo.com/news/marjorie-taylor-greenes-attack-secret-000531157.html)
-- Jul 22 - [Fact Check: Claims About JD Vance's Middle-Class Upbringing in Suburban Ohio Are Partly True, Partly False](https://www.yahoo.com/news/fact-check-claims-jd-vances-214200815.html)
-- Jul 22 - [LA Police Officers Shot During Traffic Stop With AR-15](https://www.yahoo.com/news/la-police-officers-shot-during-211540899.html)
-- Jul 22 - [Las Vegas diner faces costly vandalism, part of ongoing trend](https://www.yahoo.com/news/las-vegas-diner-faces-costly-210445510.html)
+- Jul 22 - [NYCB closes sale of about $6 billion mortgage warehouse loans to JPMorgan Chase](https://finance.yahoo.com/news/nycb-closes-sale-mortgage-warehouse-223616442.html)
 <!-- feed end -->
 
 ### Onstream
