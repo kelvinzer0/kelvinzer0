@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [Exploring Undervalued Opportunities On The Swedish Exchange With Discounts Ranging From 17.6% To 38.5%](https://finance.yahoo.com/news/exploring-undervalued-opportunities-swedish-exchange-020230940.html)
+- Jul 23 - [Scientists discover ‘dark’ oxygen being produced more than 13,000 feet below the ocean surface](https://www.yahoo.com/news/scientists-discover-dark-oxygen-being-152753585.html)
+- Jul 23 - [Lucy-Bleu Knight, Slash's Stepdaughter, Dead at 25](https://www.yahoo.com/entertainment/lucy-bleu-knight-slashs-stepdaughter-001902608.html)
 - Jul 23 - [Marjorie Taylor Greene's Attack On Secret Service Director Manages To Backfire](https://www.yahoo.com/news/marjorie-taylor-greenes-attack-secret-000531157.html)
-- Jul 22 - [‘We’re expecting!’: Boston Mayor Michelle Wu announces she’s pregnant with third child](https://www.yahoo.com/news/expecting-boston-mayor-michelle-wu-235449026.html)
 - Jul 22 - [NYCB closes sale of about $6 billion mortgage warehouse loans to JPMorgan Chase](https://finance.yahoo.com/news/nycb-closes-sale-mortgage-warehouse-223616442.html)
-- Jul 22 - [Missouri judge overturns the murder conviction of a man imprisoned for more than 30 years](https://www.yahoo.com/news/missouri-judge-overturns-murder-conviction-212100560.html)
-- Jul 22 - [Las Vegas woman says she recorded child sex assault to avoid blackmail: police](https://www.yahoo.com/news/las-vegas-woman-says-she-205826099.html)
 <!-- feed end -->
 
 ### Onstream
