@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Billionaires Are Loading Up on This Surging Dow Stock. Should You?](https://finance.yahoo.com/news/billionaires-loading-surging-dow-stock-133000788.html)
-- Jul 23 - [Netanyahu meets with families of American-Israeli hostages](https://www.yahoo.com/news/netanyahu-meets-families-american-israeli-125646211.html)
-- Jul 23 - [Airbus and Boeing snap up deals as Qatar Airways weighs wide-body options](https://finance.yahoo.com/news/airbus-snaps-deals-qatar-airways-114806774.html)
-- Jul 23 - [Bill Gates' company breaks ground on first-of-its-kind project — see how new technology could change the future of nuclear power](https://www.yahoo.com/news/bill-gates-company-breaks-ground-110000322.html)
-- Jul 23 - [Neuralink's value jump leaves some Musk employees itching to cash out](https://www.yahoo.com/tech/neuralinks-value-jump-leaves-musk-100341014.html)
+- Jul 23 - [Can Russia compete at the Olympics and what is AIN?](https://sports.yahoo.com/russia-olympics-russian-athletes-compete-113211129.html)
+- Jul 23 - [Meta's AI assistant is coming to Quest headsets in the US and Canada](https://www.yahoo.com/news/metas-ai-assistant-is-coming-to-quest-headsets-in-the-us-and-canada-150033530.html)
+- Jul 23 - [McDonald's extends $5 meal, Wendy's adds $1 breakfast sandwich](https://www.yahoo.com/news/mcdonalds-extends-5-meal-wendys-140449379.html)
+- Jul 23 - [Repairing A Totalled Cybertruck Is Much More Trouble Than It's Worth](https://autos.yahoo.com/repairing-totalled-cybertruck-much-more-132500884.html)
+- Jul 23 - [My Son Died Of A Fentanyl Overdose. Here's What No One Is Telling You About This Crisis.](https://www.yahoo.com/news/son-died-fentanyl-overdose-heres-123012592.html)
 <!-- feed end -->
 
 ### Onstream
