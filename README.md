@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 23 - [Charlotte Dujardin ‘hit horse repeatedly on legs’ in video that sparked Olympics withdrawal](https://sports.yahoo.com/charlotte-dujardin-withdraws-olympics-video-144631651.html)
-- Jul 23 - [Brussel strips Hungary of key EU defense meeting over Ukraine stance](https://www.yahoo.com/news/brussel-strips-hungary-key-eu-153505594.html)
-- Jul 23 - [Bianca Censori Pushes The Limit With Her Racy Outfit As She Flouts A Restaurant's Dress Code](https://www.yahoo.com/entertainment/bianca-censori-pushes-limit-her-153048270.html)
-- Jul 23 - [Shark bite reported in Hilton Head Island waters Monday afternoon, beach patrol says](https://www.yahoo.com/news/shark-bite-reported-hilton-head-150522491.html)
-- Jul 23 - [3 Army Reserve officers disciplined after reservist killed 18 people in Maine](https://www.yahoo.com/news/3-army-officers-disciplined-reservist-140324279.html)
+- Jul 23 - [Bulls, Blackhawks owners unveil $7 billion plan to transform area around United Center](https://finance.yahoo.com/news/bulls-blackhawks-owners-unveil-7-172554965.html)
+- Jul 23 - [Poll says 32% of Ukrainians open to territorial concessions for quick peace](https://www.yahoo.com/news/poll-says-32-ukrainians-open-160320757.html)
+- Jul 23 - [Florida's population passes 23 million for the first time due to residents moving from other states](https://www.yahoo.com/news/floridas-population-passes-23-million-155046934.html)
+- Jul 23 - [The Shocking Name Left Off Kamala Harris’s List of V.P. Contenders](https://www.yahoo.com/news/shocking-name-left-off-kamala-143805191.html)
 <!-- feed end -->
 
 ### Onstream
