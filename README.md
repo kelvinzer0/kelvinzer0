@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Fires threaten towns, close interstate in Pacific Northwest as heat wave continues](https://www.yahoo.com/news/fires-threaten-towns-close-interstate-183230550.html)
-- Jul 23 - [Mark Cuban’s 2 Biggest Business Mistakes and How You Can Avoid Them](https://finance.yahoo.com/news/mark-cuban-2-biggest-business-180031931.html)
+- Jul 23 - [U.S. Presidential Election Will Now Be a 'Very Competitive' Race: Kevin O'Leary](https://finance.yahoo.com/video/u-presidential-election-now-very-185826550.html)
 - Jul 23 - [Charlotte Dujardin out of Olympics after video. Gold medalist is suspended](https://sports.yahoo.com/olympic-gold-medalist-charlotte-dujardin-173702512.html)
 - Jul 23 - [Bulls, Blackhawks owners unveil $7 billion plan to transform area around United Center](https://finance.yahoo.com/news/bulls-blackhawks-owners-unveil-7-172554965.html)
-- Jul 23 - [Broke Rudy Giuliani explains first-class trip to RNC that infuriated creditors](https://finance.yahoo.com/news/broke-rudy-giuliani-explains-first-171451324.html)
+- Jul 23 - [Poll says 32% of Ukrainians open to territorial concessions for quick peace](https://www.yahoo.com/news/poll-says-32-ukrainians-open-160320757.html)
+- Jul 23 - [Florida's population passes 23 million for the first time due to residents moving from other states](https://www.yahoo.com/news/floridas-population-passes-23-million-155046934.html)
 <!-- feed end -->
 
 ### Onstream
