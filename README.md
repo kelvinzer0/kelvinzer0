@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [My Son Died Of A Fentanyl Overdose. Here's What No One Is Telling You About This Crisis.](https://www.yahoo.com/news/son-died-fentanyl-overdose-heres-123012592.html)
-- Jul 23 - [Florida condo owners face unretiring or selling homes after being hit with $100,000 in special assessment fees](https://finance.yahoo.com/news/florida-condo-owners-face-unretiring-112000881.html)
-- Jul 23 - [Critics Squirm Over 1 Particular Moment In Fox News Interview With Trump And Vance](https://www.yahoo.com/news/critics-squirm-over-1-particular-101918582.html)
-- Jul 23 - [UPS misses quarterly estimates on high labor costs, weak small-package demand](https://finance.yahoo.com/news/ups-quarterly-profit-falls-high-100606178.html)
-- Jul 23 - [Two drivers arrested in suspected DUI crash that killed four people identified](https://www.yahoo.com/news/two-drivers-arrested-suspected-dui-024958033.html)
+- Jul 23 - [Billionaires Are Loading Up on This Surging Dow Stock. Should You?](https://finance.yahoo.com/news/billionaires-loading-surging-dow-stock-133000788.html)
+- Jul 23 - [Netanyahu meets with families of American-Israeli hostages](https://www.yahoo.com/news/netanyahu-meets-families-american-israeli-125646211.html)
+- Jul 23 - [Airbus and Boeing snap up deals as Qatar Airways weighs wide-body options](https://finance.yahoo.com/news/airbus-snaps-deals-qatar-airways-114806774.html)
+- Jul 23 - [Bill Gates' company breaks ground on first-of-its-kind project — see how new technology could change the future of nuclear power](https://www.yahoo.com/news/bill-gates-company-breaks-ground-110000322.html)
+- Jul 23 - [Neuralink's value jump leaves some Musk employees itching to cash out](https://www.yahoo.com/tech/neuralinks-value-jump-leaves-musk-100341014.html)
 <!-- feed end -->
 
 ### Onstream
