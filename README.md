@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Strike at plant that makes truck seats forces production stoppage for Missouri General Motors](https://www.yahoo.com/news/strike-plant-makes-truck-seats-161950541.html)
-- Jul 24 - [Jordan Chiles Recalls Being 'Traumatized' By Diet Restrictions in Early Gymnastics Career: 'I Wouldn’t Eat Anything'](https://www.yahoo.com/lifestyle/jordan-chiles-recalls-being-traumatized-161423484.html)
-- Jul 24 - [Dramatic footage appears to show a Ukrainian missile taking out a prized Russian jet](https://www.yahoo.com/news/dramatic-footage-appears-show-ukrainian-150921558.html)
-- Jul 24 - [Police identify person injured in Tuesday's motorcycle crash in South Lubbock](https://www.yahoo.com/news/police-identify-person-injured-tuesdays-150850272.html)
-- Jul 24 - [Salt Lake handed 2034 Winter Olympics but with IOC warning](https://sports.yahoo.com/salt-lake-handed-2034-winter-110754552.html)
+- Jul 24 - [What Microsoft has to offer in Qualcomm-powered AI laptop](https://finance.yahoo.com/video/microsoft-offer-qualcomm-powered-ai-180000040.html)
+- Jul 24 - [France struggles with its hijab rules for Olympics opening ceremony](https://www.yahoo.com/news/france-struggles-hijab-rules-olympics-174530280.html)
+- Jul 24 - [US anti-doping chief accuses IOC of 'threats' over 2034 Salt Lake Olympics](https://sports.yahoo.com/salt-lake-handed-2034-winter-110754552.html)
+- Jul 24 - [CrowdStrike offers a $10 apology gift card to say sorry for outage](https://www.yahoo.com/news/crowdstrike-offers-10-apology-gift-154113821.html)
+- Jul 24 - [A former candidate for governor is disbarred over possessing images of child sexual abuse](https://www.yahoo.com/news/former-candidate-governor-disbarred-over-152234362.html)
 <!-- feed end -->
 
 ### Onstream
