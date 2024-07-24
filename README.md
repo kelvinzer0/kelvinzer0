@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Streets turned into rivers as Typhoon Gaemi blows past Philippines](https://www.yahoo.com/news/streets-turned-rivers-typhoon-gaemi-035220478.html)
-- Jul 24 - [Drone Attack on Tel Aviv Provokes Rapid Response](https://www.yahoo.com/news/drone-attack-tel-aviv-provokes-064800084.html)
-- Jul 24 - [Heavy rain from Typhoon Gaemi floods Manila streets, homes](https://www.yahoo.com/news/heavy-rain-typhoon-gaemi-floods-061048778.html)
+- Jul 24 - [Want $1 Million in Retirement? 4 ETFs to Buy Now and Hold for Decades](https://finance.yahoo.com/news/want-1-million-retirement-4-082900980.html)
 - Jul 24 - [Lawyer for man charged with killing 4 University of Idaho students wants trial moved to Boise](https://www.yahoo.com/news/lawyer-man-charged-killing-4-015449907.html)
 - Jul 24 - [18-year-old man charged in the killing of 13-year-old Kent teen during OfferUp meeting](https://www.yahoo.com/news/documents-reveal-fatal-shooting-13-001616169.html)
+- Jul 23 - [Defense for Bryan Kohberger, suspect in Moscow killings, argues for murder trial in Boise](https://www.yahoo.com/news/defense-bryan-kohberger-suspect-moscow-224650980.html)
+- Jul 23 - [Tennessee Republican files articles of impeachment against Harris](https://www.yahoo.com/news/tennessee-republican-files-articles-impeachment-213210443.html)
 <!-- feed end -->
 
 ### Onstream
