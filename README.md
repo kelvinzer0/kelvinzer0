@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Dramatic footage appears to show a Ukrainian missile taking out a prized Russian jet](https://www.yahoo.com/news/dramatic-footage-appears-show-ukrainian-150921558.html)
+- Jul 24 - [Netanyahu's visit to Congress 'divorced from reality'](https://www.yahoo.com/news/netanyahus-visit-congress-divorced-reality-150559805.html)
 - Jul 24 - [Salt Lake handed 2034 Winter Olympics but with IOC warning](https://sports.yahoo.com/salt-lake-handed-2034-winter-110754552.html)
-- Jul 24 - [Disney reaches tentative agreement with California theme park workers](https://www.yahoo.com/news/disney-reaches-tentative-agreement-california-145235746.html)
 - Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
-- Jul 24 - [Rare bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
-- Jul 24 - [CrowdStrike says bug in quality control process led to botched update](https://finance.yahoo.com/news/crowdstrike-says-bug-quality-control-104409772.html)
+- Jul 24 - [Watch This Time-Lapse Animation Of The International Space Station Being Assembled](https://www.yahoo.com/news/watch-time-lapse-animation-international-120000101.html)
 <!-- feed end -->
 
 ### Onstream
