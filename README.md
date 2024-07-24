@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Update: NHRA Great John Force Leaves Rehab Facility](https://autos.yahoo.com/nhra-great-john-force-leaves-224400734.html)
+- Jul 23 - [Boeing resumes deliveries of 737 MAX airplanes to China](https://finance.yahoo.com/news/boeing-resumes-deliveries-737-max-215421622.html)
+- Jul 23 - [Elon Musk backs down from $45 million a month pledge to Trump, says he doesn’t ‘subscribe to cult of personality’](https://finance.yahoo.com/news/elon-musk-backs-down-45-213513039.html)
 - Jul 23 - [He was fired over an email that asked the D.A. about her panties. He said it was a mistake](https://www.yahoo.com/news/fired-over-email-asked-d-211934299.html)
-- Jul 23 - [People Are Sharing The Worst Medical Advice They've Ever Gotten From A Doctor, And It's Beyond Frightening](https://www.yahoo.com/lifestyle/people-sharing-worst-medical-advice-201602780.html)
-- Jul 23 - [Labor unions unite behind Kamala Harris but concern emerges about potential VP pick Mark Kelly](https://www.yahoo.com/news/labor-unions-unite-behind-kamala-201004708.html)
-- Jul 23 - [Tesla profit margins worst in five years as price cuts, incentives weigh](https://finance.yahoo.com/news/tesla-revenue-sees-surprise-rise-200629519.html)
+- Jul 23 - [Capital One profit drops 61% as it stockpiles more money for loan losses](https://finance.yahoo.com/news/capital-one-profit-declines-61-202015290.html)
+- Jul 23 - [Hydrothermal explosion at Biscuit Basin in Yellowstone National Park damages boardwalk](https://www.yahoo.com/news/hydrothermal-explosion-biscuit-basin-yellowstone-201904975.html)
 <!-- feed end -->
 
 ### Onstream
