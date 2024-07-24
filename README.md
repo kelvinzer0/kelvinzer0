@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Ask an Advisor: We're in Our 70s With Only $120k in Savings. How Do We Make It Last?](https://finance.yahoo.com/news/ask-advisor-were-70s-120k-120000875.html)
-- Jul 24 - [An Au Pair Shot A Man In Her Employers’ Home. The Twists In The Case Keep Coming.](https://www.yahoo.com/news/au-pair-shot-man-her-110000071.html)
+- Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
 - Jul 24 - [CrowdStrike says bug in quality control process led to botched update](https://finance.yahoo.com/news/crowdstrike-says-bug-quality-control-104409772.html)
-- Jul 24 - [The spinning of Earth's inner core is slowing down. Is this how it all ends?](https://www.yahoo.com/news/spinning-earths-inner-core-slowing-100008419.html)
-- Jul 24 - [What Rock Hill needs to know about Charlotte’s plan to divert Catawba River water](https://www.yahoo.com/news/rock-hill-needs-know-charlotte-100000526.html)
+- Jul 24 - [I-69 almost at "finish line": Interchange to connect to I-465 to open in August](https://www.yahoo.com/news/69-almost-finish-line-interchange-090954757.html)
+- Jul 24 - [For Americans confronting the push to retire, self-awareness makes all the difference](https://finance.yahoo.com/news/for-americans-confronting-the-push-to-retire-self-awareness-makes-all-the-difference-090030725.html)
+- Jul 24 - [Elon Musk is probably getting a little nervous](https://autos.yahoo.com/elon-musk-probably-getting-little-044739992.html)
 <!-- feed end -->
 
 ### Onstream
