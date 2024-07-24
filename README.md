@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [What Microsoft has to offer in Qualcomm-powered AI laptop](https://finance.yahoo.com/video/microsoft-offer-qualcomm-powered-ai-180000040.html)
+- Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
+- Jul 24 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
+- Jul 24 - [A millennial who's been looking for a job for over 4 years says his degrees have offered little value: 'I can't get anything even at minimum wage'](https://finance.yahoo.com/news/millennial-whos-looking-job-over-180302509.html)
 - Jul 24 - [France struggles with its hijab rules for Olympics opening ceremony](https://www.yahoo.com/news/france-struggles-hijab-rules-olympics-174530280.html)
 - Jul 24 - [US anti-doping chief accuses IOC of 'threats' over 2034 Salt Lake Olympics](https://sports.yahoo.com/salt-lake-handed-2034-winter-110754552.html)
-- Jul 24 - [CrowdStrike offers a $10 apology gift card to say sorry for outage](https://www.yahoo.com/news/crowdstrike-offers-10-apology-gift-154113821.html)
-- Jul 24 - [A former candidate for governor is disbarred over possessing images of child sexual abuse](https://www.yahoo.com/news/former-candidate-governor-disbarred-over-152234362.html)
 <!-- feed end -->
 
 ### Onstream
