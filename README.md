@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Want $1 Million in Retirement? 4 ETFs to Buy Now and Hold for Decades](https://finance.yahoo.com/news/want-1-million-retirement-4-082900980.html)
-- Jul 24 - [Lawyer for man charged with killing 4 University of Idaho students wants trial moved to Boise](https://www.yahoo.com/news/lawyer-man-charged-killing-4-015449907.html)
-- Jul 24 - [18-year-old man charged in the killing of 13-year-old Kent teen during OfferUp meeting](https://www.yahoo.com/news/documents-reveal-fatal-shooting-13-001616169.html)
-- Jul 23 - [Defense for Bryan Kohberger, suspect in Moscow killings, argues for murder trial in Boise](https://www.yahoo.com/news/defense-bryan-kohberger-suspect-moscow-224650980.html)
-- Jul 23 - [Tennessee Republican files articles of impeachment against Harris](https://www.yahoo.com/news/tennessee-republican-files-articles-impeachment-213210443.html)
+- Jul 24 - [EU warns Slovakia against foreign agent law for NGOs](https://www.yahoo.com/news/eu-warns-slovakia-against-foreign-095049938.html)
+- Jul 24 - [This Ultra-High-Yield Dividend Stock Hits Yet Another Setback](https://finance.yahoo.com/news/ultra-high-yield-dividend-stock-090500799.html)
+- Jul 24 - [For Americans confronting the push to retire, self-awareness makes all the difference](https://finance.yahoo.com/news/for-americans-confronting-the-push-to-retire-self-awareness-makes-all-the-difference-090030725.html)
+- Jul 24 - [PPP loans earned a Miami lender $680 million. Now it’s being sued by the Federal Reserve](https://finance.yahoo.com/news/ppp-loans-earned-miami-lender-090000085.html)
+- Jul 24 - [How a Georgetown megachurch plans to serve booming Latin Sussex population](https://www.yahoo.com/news/georgetown-megachurch-plans-serve-booming-085134660.html)
 <!-- feed end -->
 
 ### Onstream
