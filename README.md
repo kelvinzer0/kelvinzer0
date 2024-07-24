@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Elon Musk warns ‘America is going bankrupt’ as interest payments on US debt consumed 76% of June’s income tax revenue](https://finance.yahoo.com/news/elon-musk-warns-america-going-103300553.html)
-- Jul 24 - [Billionaire Bill Ackman Owns 37% of This Company That Most Investors Have Never Heard Of](https://finance.yahoo.com/news/billionaire-bill-ackman-owns-37-100300097.html)
-- Jul 24 - [Lawyer for man charged with killing 4 University of Idaho students wants trial moved to Boise](https://www.yahoo.com/news/lawyer-man-charged-killing-4-015449907.html)
-- Jul 24 - [18-year-old man charged in the killing of 13-year-old Kent teen during OfferUp meeting](https://www.yahoo.com/news/documents-reveal-fatal-shooting-13-001616169.html)
-- Jul 23 - [Defense for Bryan Kohberger, suspect in Moscow killings, argues for murder trial in Boise](https://www.yahoo.com/news/defense-bryan-kohberger-suspect-moscow-224650980.html)
+- Jul 24 - [Ask an Advisor: We're in Our 70s With Only $120k in Savings. How Do We Make It Last?](https://finance.yahoo.com/news/ask-advisor-were-70s-120k-120000875.html)
+- Jul 24 - [An Au Pair Shot A Man In Her Employers’ Home. The Twists In The Case Keep Coming.](https://www.yahoo.com/news/au-pair-shot-man-her-110000071.html)
+- Jul 24 - [CrowdStrike says bug in quality control process led to botched update](https://finance.yahoo.com/news/crowdstrike-says-bug-quality-control-104409772.html)
+- Jul 24 - [The spinning of Earth's inner core is slowing down. Is this how it all ends?](https://www.yahoo.com/news/spinning-earths-inner-core-slowing-100008419.html)
+- Jul 24 - [What Rock Hill needs to know about Charlotte’s plan to divert Catawba River water](https://www.yahoo.com/news/rock-hill-needs-know-charlotte-100000526.html)
 <!-- feed end -->
 
 ### Onstream
