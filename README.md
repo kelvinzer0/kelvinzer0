@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Strike at plant that makes truck seats forces production stoppage for Missouri General Motors](https://www.yahoo.com/news/strike-plant-makes-truck-seats-161950541.html)
+- Jul 24 - [Jordan Chiles Recalls Being 'Traumatized' By Diet Restrictions in Early Gymnastics Career: 'I Wouldn’t Eat Anything'](https://www.yahoo.com/lifestyle/jordan-chiles-recalls-being-traumatized-161423484.html)
 - Jul 24 - [Dramatic footage appears to show a Ukrainian missile taking out a prized Russian jet](https://www.yahoo.com/news/dramatic-footage-appears-show-ukrainian-150921558.html)
-- Jul 24 - [Netanyahu's visit to Congress 'divorced from reality'](https://www.yahoo.com/news/netanyahus-visit-congress-divorced-reality-150559805.html)
+- Jul 24 - [Police identify person injured in Tuesday's motorcycle crash in South Lubbock](https://www.yahoo.com/news/police-identify-person-injured-tuesdays-150850272.html)
 - Jul 24 - [Salt Lake handed 2034 Winter Olympics but with IOC warning](https://sports.yahoo.com/salt-lake-handed-2034-winter-110754552.html)
-- Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
-- Jul 24 - [Watch This Time-Lapse Animation Of The International Space Station Being Assembled](https://www.yahoo.com/news/watch-time-lapse-animation-international-120000101.html)
 <!-- feed end -->
 
 ### Onstream
