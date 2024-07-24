@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [My Dumb Little Brain Just Got Blown After Seeing These 22 Absolutely Fascinating Pictures For The Very First Time Last Week](https://www.yahoo.com/entertainment/dumb-little-brain-just-got-133152585.html)
-- Jul 24 - [Dutch Olympian who raped British child arrives at Paris Games amid fury](https://www.yahoo.com/news/volleyball-player-raped-child-12-olympics-steven-van-de-velde-075702438.html)
+- Jul 24 - [Salt Lake handed 2034 Winter Olympics but with IOC warning](https://sports.yahoo.com/salt-lake-handed-2034-winter-110754552.html)
+- Jul 24 - [Disney reaches tentative agreement with California theme park workers](https://www.yahoo.com/news/disney-reaches-tentative-agreement-california-145235746.html)
 - Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
 - Jul 24 - [Rare bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
 - Jul 24 - [CrowdStrike says bug in quality control process led to botched update](https://finance.yahoo.com/news/crowdstrike-says-bug-quality-control-104409772.html)
