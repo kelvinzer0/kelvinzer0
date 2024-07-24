@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [China’s Burgeoning Chicken Feet Market at Risk From Brazil Ban](https://finance.yahoo.com/news/china-burgeoning-chicken-feet-market-041536402.html)
 - Jul 24 - [Lawyer for man charged with killing 4 University of Idaho students wants trial moved to Boise](https://www.yahoo.com/news/lawyer-man-charged-killing-4-015449907.html)
-- Jul 24 - [Watch: Whale of New Hampshire slams into fishing boat, hurling men into the Atlantic](https://www.yahoo.com/news/watch-whale-hampshire-slams-fishing-011746677.html)
-- Jul 24 - [Las Vegas man arrested for fatal hit-and-run after daughter calls police](https://www.yahoo.com/news/las-vegas-man-arrested-fatal-002250569.html)
-- Jul 23 - [St. Louis suburb named in top 100 places to live survey](https://www.yahoo.com/lifestyle/st-louis-suburb-named-top-213519533.html)
+- Jul 23 - [New Orleans police searching for car in fatal I-610 crash](https://www.yahoo.com/news/orleans-police-searching-car-fatal-220857390.html)
+- Jul 23 - [St. Louis suburb named in top 100 places to live survey](https://www.yahoo.com/news/st-louis-suburb-named-top-213519533.html)
 - Jul 23 - [Missouri prison ignores court order to free wrongfully convicted inmate for second time in weeks](https://www.yahoo.com/news/missouri-prison-ignores-court-order-203734196.html)
 <!-- feed end -->
 
