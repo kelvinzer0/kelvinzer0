@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [This MSNBC Anchor Was Fully Gagged When Confronted About The "Age Issue" In The 2024 Election](https://www.yahoo.com/entertainment/msnbc-anchor-fully-gagged-confronted-192404268.html)
-- Jul 24 - [A self-declared 'free citizen' flying an unlicensed plane almost caused a midair crash, feds say](https://www.yahoo.com/news/self-declared-free-citizen-flying-181815055.html)
+- Jul 24 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
+- Jul 24 - [Oregon fire is the largest burning in the US. Officials warn an impending storm could exacerbate it](https://www.yahoo.com/news/oregon-fire-largest-burning-us-200222368.html)
+- Jul 24 - [This Senator's Clap Back Fully Gagged An MSNBC Anchor, And The Clip Is Going Viral](https://www.yahoo.com/entertainment/msnbc-anchor-fully-gagged-confronted-192404268.html)
 - Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
 - Jul 24 - [A millennial who's been looking for a job for over 4 years says his degrees have offered little value: 'I can't get anything even at minimum wage'](https://finance.yahoo.com/news/millennial-whos-looking-job-over-180302509.html)
-- Jul 24 - [France struggles with its hijab rules for Olympics opening ceremony](https://www.yahoo.com/news/france-struggles-hijab-rules-olympics-174530280.html)
 <!-- feed end -->
 
 ### Onstream
