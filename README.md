@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 24 - [Lawyer for man charged with killing 4 University of Idaho students wants trial moved to Boise](https://www.yahoo.com/news/lawyer-man-charged-killing-4-015449907.html)
-- Jul 24 - [Columbia County sheriff's deputies responding to fetus found in Grovetown Walmart dumpster](https://www.yahoo.com/news/columbia-county-sheriffs-deputies-responding-010844956.html)
+- Jul 24 - [Watch: Whale of New Hampshire slams into fishing boat, hurling men into the Atlantic](https://www.yahoo.com/news/watch-whale-hampshire-slams-fishing-011746677.html)
+- Jul 24 - [Las Vegas man arrested for fatal hit-and-run after daughter calls police](https://www.yahoo.com/news/las-vegas-man-arrested-fatal-002250569.html)
 - Jul 23 - [St. Louis suburb named in top 100 places to live survey](https://www.yahoo.com/lifestyle/st-louis-suburb-named-top-213519533.html)
-- Jul 23 - [Rapper Tekashi 6ix9ine's Luxury Cars Get Auctioned Off By IRS Months After Being Seized](https://www.yahoo.com/entertainment/rapper-tekashi-6ix9ines-luxury-cars-213056184.html)
-- Jul 23 - [Tesla's 2Q profit falls 45% to $1.48 billion as sales drop despite price cuts and low-interest loans](https://finance.yahoo.com/news/teslas-2q-profit-falls-45-202333216.html)
+- Jul 23 - [Missouri prison ignores court order to free wrongfully convicted inmate for second time in weeks](https://www.yahoo.com/news/missouri-prison-ignores-court-order-203734196.html)
 <!-- feed end -->
 
 ### Onstream
