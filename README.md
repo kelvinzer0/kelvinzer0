@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [My Dumb Little Brain Just Got Blown After Seeing These 22 Absolutely Fascinating Pictures For The Very First Time Last Week](https://www.yahoo.com/entertainment/dumb-little-brain-just-got-133152585.html)
+- Jul 24 - [Dutch Olympian who raped British child arrives at Paris Games amid fury](https://www.yahoo.com/news/volleyball-player-raped-child-12-olympics-steven-van-de-velde-075702438.html)
 - Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
+- Jul 24 - [Rare bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
 - Jul 24 - [CrowdStrike says bug in quality control process led to botched update](https://finance.yahoo.com/news/crowdstrike-says-bug-quality-control-104409772.html)
-- Jul 24 - [I-69 almost at "finish line": Interchange to connect to I-465 to open in August](https://www.yahoo.com/news/69-almost-finish-line-interchange-090954757.html)
-- Jul 24 - [For Americans confronting the push to retire, self-awareness makes all the difference](https://finance.yahoo.com/news/for-americans-confronting-the-push-to-retire-self-awareness-makes-all-the-difference-090030725.html)
-- Jul 24 - [Elon Musk is probably getting a little nervous](https://autos.yahoo.com/elon-musk-probably-getting-little-044739992.html)
 <!-- feed end -->
 
 ### Onstream
