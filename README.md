@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 24 - [Lawyer for man charged with killing 4 University of Idaho students wants trial moved to Boise](https://www.yahoo.com/news/lawyer-man-charged-killing-4-015449907.html)
-- Jul 23 - [He was fired over an email that asked the D.A. about her panties. He said it was a mistake](https://www.yahoo.com/news/fired-over-email-asked-d-211934299.html)
-- Jul 23 - [Missouri prison ignores court order to free wrongfully convicted inmate for second time in weeks](https://www.yahoo.com/news/missouri-prison-ignores-court-order-203734196.html)
+- Jul 23 - [Driver arrested after hitting 63-year-old bicyclist in Kennewick’s Columbia Park](https://www.yahoo.com/news/driver-arrested-hitting-63-old-215119886.html)
+- Jul 23 - [St. Louis suburb named in top 100 places to live survey](https://www.yahoo.com/lifestyle/st-louis-suburb-named-top-213519533.html)
+- Jul 23 - [Tesla's 2Q profit falls 45% to $1.48 billion as sales drop despite price cuts and low-interest loans](https://finance.yahoo.com/news/teslas-2q-profit-falls-45-202333216.html)
 - Jul 23 - [Capital One profit drops 61% as it stockpiles more money for loan losses](https://finance.yahoo.com/news/capital-one-profit-declines-61-202015290.html)
-- Jul 23 - [People Are Sharing The Worst Medical Advice They've Ever Gotten From A Doctor, And It's Beyond Frightening](https://www.yahoo.com/lifestyle/people-sharing-worst-medical-advice-201602780.html)
 <!-- feed end -->
 
 ### Onstream
