@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jul 24 - [Rare bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
 - Jul 24 - [Israeli forces recover bodies of two hostages from Gaza, Army Radio reports](https://www.yahoo.com/news/israeli-forces-recover-bodies-two-212224301.html)
 - Jul 24 - [Pro-Palestine Protesters Dump Maggots at Watergate Hotel During Netanyahu Visit](https://www.yahoo.com/news/pro-palestine-protesters-dump-maggots-212205556.html)
+- Jul 24 - [Squatter gets 40 years for illegally taking over Panama City Beach condo in Florida](https://www.yahoo.com/news/squatter-gets-40-years-illegally-210526878.html)
 - Jul 24 - [20-year-old college student dies after falling from Yosemite's Half Dome hike](https://www.yahoo.com/news/20-old-college-student-dies-210233378.html)
-- Jul 24 - [Oregon fire is the largest burning in the US. Officials warn an impending storm could exacerbate it](https://www.yahoo.com/news/oregon-fire-largest-burning-us-200222368.html)
 <!-- feed end -->
 
 ### Onstream
