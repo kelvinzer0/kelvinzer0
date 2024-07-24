@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
+- Jul 24 - [Rare bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
+- Jul 24 - [Israeli forces recover bodies of two hostages from Gaza, Army Radio reports](https://www.yahoo.com/news/israeli-forces-recover-bodies-two-212224301.html)
+- Jul 24 - [Pro-Palestine Protesters Dump Maggots at Watergate Hotel During Netanyahu Visit](https://www.yahoo.com/news/pro-palestine-protesters-dump-maggots-212205556.html)
+- Jul 24 - [20-year-old college student dies after falling from Yosemite's Half Dome hike](https://www.yahoo.com/news/20-old-college-student-dies-210233378.html)
 - Jul 24 - [Oregon fire is the largest burning in the US. Officials warn an impending storm could exacerbate it](https://www.yahoo.com/news/oregon-fire-largest-burning-us-200222368.html)
-- Jul 24 - [This Senator's Clap Back Fully Gagged An MSNBC Anchor, And The Clip Is Going Viral](https://www.yahoo.com/entertainment/msnbc-anchor-fully-gagged-confronted-192404268.html)
-- Jul 24 - [Boat hits massive 23-foot shark in rare video footage](https://www.yahoo.com/news/boat-hits-massive-23-foot-070002294.html)
-- Jul 24 - [A millennial who's been looking for a job for over 4 years says his degrees have offered little value: 'I can't get anything even at minimum wage'](https://finance.yahoo.com/news/millennial-whos-looking-job-over-180302509.html)
 <!-- feed end -->
 
 ### Onstream
