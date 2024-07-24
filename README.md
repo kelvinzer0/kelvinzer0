@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 24 - [Lawyer for man charged with killing 4 University of Idaho students wants trial moved to Boise](https://www.yahoo.com/news/lawyer-man-charged-killing-4-015449907.html)
-- Jul 23 - [Driver arrested after hitting 63-year-old bicyclist in Kennewick’s Columbia Park](https://www.yahoo.com/news/driver-arrested-hitting-63-old-215119886.html)
-- Jul 23 - [St. Louis suburb named in top 100 places to live survey](https://www.yahoo.com/lifestyle/st-louis-suburb-named-top-213519533.html)
+- Jul 23 - [Boeing resumes deliveries of 737 MAX airplanes to China](https://finance.yahoo.com/news/boeing-resumes-deliveries-737-max-215421622.html)
+- Jul 23 - [St. Louis suburb named in top 100 places to live survey](https://www.yahoo.com/news/st-louis-suburb-named-top-213519533.html)
+- Jul 23 - [3 people, including 2 teens, suffer major injuries in crash on Highway 99 after CHP pursuit](https://www.yahoo.com/news/3-people-including-2-teens-212519895.html)
 - Jul 23 - [Tesla's 2Q profit falls 45% to $1.48 billion as sales drop despite price cuts and low-interest loans](https://finance.yahoo.com/news/teslas-2q-profit-falls-45-202333216.html)
-- Jul 23 - [Capital One profit drops 61% as it stockpiles more money for loan losses](https://finance.yahoo.com/news/capital-one-profit-declines-61-202015290.html)
 <!-- feed end -->
 
 ### Onstream
