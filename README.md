@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Automakers hit 'significant storm,' as buyers reject lofty prices at time of huge capital outlays](https://finance.yahoo.com/news/automakers-hit-significant-storm-buyers-201410852.html)
+- Jul 25 - [El Paso newscaster Fidel Moreno-Meza leaving CBS4, KFOX14 in August](https://www.yahoo.com/news/el-paso-newscaster-fidel-moreno-201212358.html)
+- Jul 25 - [Macro hedge funds to dump $45 billion in equities, says Morgan Stanley](https://finance.yahoo.com/news/macro-hedge-funds-dump-45-191551733.html)
 - Jul 25 - [Tesla warns against wet towel charging trick two months too late](https://www.yahoo.com/news/tesla-warns-against-wet-towel-charging-trick-two-months-too-late-190237430.html)
-- Jul 25 - [USS Tarawa sent to ocean floor in Rim of the Pacific exercise](https://www.yahoo.com/news/uss-tarawa-sent-ocean-floor-181732936.html)
-- Jul 25 - [Bodies of Israeli hostages were retrieved from Gaza tunnel, military says](https://www.yahoo.com/news/bodies-israeli-hostages-were-retrieved-164222435.html)
-- Jul 25 - [Multiple crew failures and wind shear led to January crash of B-1 bomber, Air Force says](https://www.yahoo.com/news/multiple-crew-failures-wind-shear-160235237.html)
-- Jul 25 - [Harris campaign hits Trump over Fox News interview: ‘This guy shouldn’t be president ever again’](https://www.yahoo.com/news/harris-campaign-hits-trump-over-152511174.html)
+- Jul 25 - [Daughter of Hall of Fame pitcher Dennis Eckersley on trial, accused of abandoning newborn in cold](https://www.yahoo.com/news/daughter-hall-fame-pitcher-dennis-181215145.html)
 <!-- feed end -->
 
 ### Onstream
