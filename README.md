@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
+- Jul 25 - [Death toll rises in explosion and fire at factory belonging to one of Mexico’s most famous tequila brands](https://www.yahoo.com/news/death-toll-rises-explosion-fire-021005404.html)
 - Jul 25 - [Analysis-China's secretive spaceplane likely testing 'dual use' technology, experts say](https://www.yahoo.com/news/analysis-chinas-secretive-spaceplane-likely-000434681.html)
-- Jul 24 - [Stock market has worst day since 2022 as tech giants drop, AP Explains](https://www.yahoo.com/news/stock-market-worst-day-since-235352291.html)
-- Jul 24 - [20-year-old dies after falling from 'unnecessarily dangerous' cables at Yosemite's Half Dome, family says](https://www.yahoo.com/news/20-old-college-student-dies-210233378.html)
-- Jul 24 - [Fisherman caught with oversized stripers in NH; planned to sell them in Mass.](https://www.yahoo.com/news/fisherman-caught-oversized-stripers-nh-194034442.html)
+- Jul 24 - [18 People Killed After Plane Crashes During Takeoff, Leaving Pilot as Lone Survivor](https://www.yahoo.com/entertainment/18-people-killed-plane-crashes-225001090.html)
+- Jul 24 - [Three Growth Stocks With Insider Ownership As High As 30%](https://finance.yahoo.com/news/three-growth-stocks-insider-ownership-213216468.html)
+- Jul 24 - [Textron close to buying Spirit Aero fuselage program for V-280 military aircraft, source says](https://finance.yahoo.com/news/textron-close-buying-spirit-aero-212948825.html)
 <!-- feed end -->
 
 ### Onstream
