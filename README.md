@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [3 Unstoppable Growth Stocks to Buy if There's a Stock Market Sell-Off](https://finance.yahoo.com/news/3-unstoppable-growth-stocks-buy-123000264.html)
-- Jul 25 - [Randolph County Schools suspends teacher accused of indecent liberties](https://www.yahoo.com/news/randolph-county-schools-suspends-teacher-104559784.html)
-- Jul 25 - [Southwest breaks with 50-year tradition and will assign seats; profit falls at Southwest, American](https://finance.yahoo.com/news/southwest-breaks-50-tradition-plans-103853024.html)
-- Jul 25 - [‘I Approve This Message’: Kamala Harris Instantly Uses Trump’s Own Words Against Him](https://www.yahoo.com/news/approve-message-kamala-harris-instantly-081918030.html)
-- Jul 25 - [Massive Interstate 495/Mass Pike interchange project is prompting traffic changes](https://www.yahoo.com/news/massive-interstate-495-mass-pike-081420712.html)
+- Jul 25 - [NBA Loss Sinks Warner Bros. Discovery Stock – Bad For Max, Could Hasten Linear Decline, Wall Street Fears](https://finance.yahoo.com/news/nba-loss-sinks-warner-bros-133854834.html)
+- Jul 25 - [20 Examples Of Just How Much Inflation Has Increased Prices Of Everything](https://finance.yahoo.com/news/20-examples-just-much-inflation-131602653.html)
+- Jul 25 - [Evacuations ordered as Park Fire grows in California](https://www.yahoo.com/news/evacuations-ordered-park-fire-grows-112831022.html)
+- Jul 25 - [I’m a Retired Boomer: Here Are 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
+- Jul 25 - [Kremlin says Russia is open to talks with Ukraine while Zelenskiy is in power but needs more details](https://www.yahoo.com/news/kremlin-says-russia-open-talks-104436140.html)
 <!-- feed end -->
 
 ### Onstream
