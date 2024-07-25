@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Secret DEA files show agents joked about rape in WhatsApp chat. Then one of them was accused of it.](https://www.yahoo.com/news/secret-dea-files-show-agents-045342212.html)
+- Jul 25 - [Japanese restaurants say they’re not charging tourists more – they’re just charging locals less](https://www.yahoo.com/news/japanese-restaurants-not-charging-tourists-031714789.html)
 - Jul 25 - [FBI Is Not Fully Convinced Trump Was Struck by a Bullet](https://www.yahoo.com/news/fbi-not-fully-convinced-trump-031354127.html)
 - Jul 25 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
-- Jul 25 - [Analysis-China's secretive spaceplane likely testing 'dual use' technology, experts say](https://www.yahoo.com/news/analysis-chinas-secretive-spaceplane-likely-000434681.html)
-- Jul 24 - [We finally know what caused the global tech outage - and how much it cost](https://finance.yahoo.com/news/finally-know-caused-global-tech-161356307.html)
-- Jul 24 - [Protected bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
+- Jul 25 - [Man dies in Northern California after getting trapped between two vehicles, CHP says](https://www.yahoo.com/news/man-dies-northern-california-getting-024027799.html)
 <!-- feed end -->
 
 ### Onstream
