@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Death toll rises in explosion and fire at factory belonging to one of Mexico’s most famous tequila brands](https://www.yahoo.com/news/death-toll-rises-explosion-fire-021005404.html)
+- Jul 25 - [FBI Is Not Fully Convinced Trump Was Struck by a Bullet](https://www.yahoo.com/news/fbi-not-fully-convinced-trump-031354127.html)
 - Jul 25 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
+- Jul 25 - [Idaho Power shuts off power to thousands in Boise area for first time with wildfire plan](https://www.yahoo.com/news/idaho-power-shuts-off-power-011322902.html)
+- Jul 25 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
 - Jul 25 - [Analysis-China's secretive spaceplane likely testing 'dual use' technology, experts say](https://www.yahoo.com/news/analysis-chinas-secretive-spaceplane-likely-000434681.html)
-- Jul 24 - [Protected bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
-- Jul 24 - [20-year-old dies after falling from 'unnecessarily dangerous' cables at Yosemite's Half Dome, family says](https://www.yahoo.com/news/20-old-college-student-dies-210233378.html)
 <!-- feed end -->
 
 ### Onstream
