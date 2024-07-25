@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Rare bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
-- Jul 24 - [Israeli forces recover bodies of two hostages from Gaza, Army Radio reports](https://www.yahoo.com/news/israeli-forces-recover-bodies-two-212224301.html)
-- Jul 24 - [Pro-Palestine Protesters Dump Maggots at Watergate Hotel During Netanyahu Visit](https://www.yahoo.com/news/pro-palestine-protesters-dump-maggots-212205556.html)
-- Jul 24 - [Squatter gets 40 years for illegally taking over Panama City Beach condo in Florida](https://www.yahoo.com/news/squatter-gets-40-years-illegally-210526878.html)
-- Jul 24 - [20-year-old college student dies after falling from Yosemite's Half Dome hike](https://www.yahoo.com/news/20-old-college-student-dies-210233378.html)
+- Jul 25 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
+- Jul 25 - [Analysis-China's secretive spaceplane likely testing 'dual use' technology, experts say](https://www.yahoo.com/news/analysis-chinas-secretive-spaceplane-likely-000434681.html)
+- Jul 24 - [Stock market has worst day since 2022 as tech giants drop, AP Explains](https://www.yahoo.com/news/stock-market-worst-day-since-235352291.html)
+- Jul 24 - [20-year-old dies after falling from 'unnecessarily dangerous' cables at Yosemite's Half Dome, family says](https://www.yahoo.com/news/20-old-college-student-dies-210233378.html)
+- Jul 24 - [Fisherman caught with oversized stripers in NH; planned to sell them in Mass.](https://www.yahoo.com/news/fisherman-caught-oversized-stripers-nh-194034442.html)
 <!-- feed end -->
 
 ### Onstream
