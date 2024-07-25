@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Biden meets Netanyahu to discuss Gaza ceasefire](https://www.yahoo.com/news/biden-meets-netanyahu-discuss-gaza-183508165.html)
-- Jul 25 - [Smoke Rises From Fire-Affected Butte County](https://www.yahoo.com/news/smoke-rises-fire-affected-butte-183023300.html)
-- Jul 25 - [Virginia boy, 11, accused of making swatting calls to Flagler Schools at the end of the year](https://www.yahoo.com/news/virginia-boy-11-accused-making-180633475.html)
-- Jul 25 - [Fact Check: Photo of Kamala Harris and Jeffrey Epstein Embracing on Beach is Fake](https://www.yahoo.com/news/fact-check-photo-kamala-harris-175700661.html)
+- Jul 25 - [Tesla warns against wet towel charging trick two months too late](https://www.yahoo.com/news/tesla-warns-against-wet-towel-charging-trick-two-months-too-late-190237430.html)
+- Jul 25 - [USS Tarawa sent to ocean floor in Rim of the Pacific exercise](https://www.yahoo.com/news/uss-tarawa-sent-ocean-floor-181732936.html)
 - Jul 25 - [Bodies of Israeli hostages were retrieved from Gaza tunnel, military says](https://www.yahoo.com/news/bodies-israeli-hostages-were-retrieved-164222435.html)
+- Jul 25 - [Multiple crew failures and wind shear led to January crash of B-1 bomber, Air Force says](https://www.yahoo.com/news/multiple-crew-failures-wind-shear-160235237.html)
+- Jul 25 - [Harris campaign hits Trump over Fox News interview: ‘This guy shouldn’t be president ever again’](https://www.yahoo.com/news/harris-campaign-hits-trump-over-152511174.html)
 <!-- feed end -->
 
 ### Onstream
