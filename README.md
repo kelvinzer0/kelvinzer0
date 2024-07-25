@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [NBA Loss Sinks Warner Bros. Discovery Stock – Bad For Max, Could Hasten Linear Decline, Wall Street Fears](https://finance.yahoo.com/news/nba-loss-sinks-warner-bros-133854834.html)
-- Jul 25 - [20 Examples Of Just How Much Inflation Has Increased Prices Of Everything](https://finance.yahoo.com/news/20-examples-just-much-inflation-131602653.html)
-- Jul 25 - [Evacuations ordered as Park Fire grows in California](https://www.yahoo.com/news/evacuations-ordered-park-fire-grows-112831022.html)
-- Jul 25 - [I’m a Retired Boomer: Here Are 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
-- Jul 25 - [Kremlin says Russia is open to talks with Ukraine while Zelenskiy is in power but needs more details](https://www.yahoo.com/news/kremlin-says-russia-open-talks-104436140.html)
+- Jul 25 - [Analysis-Battered Hamas confounds Israel's bid to declare victory](https://www.yahoo.com/news/analysis-battered-hamas-confounds-israels-143654421.html)
+- Jul 25 - [Mile-and-a-half-long train plows into 18-wheeler in Gulfport, police say. Expect delays](https://www.yahoo.com/news/mile-half-train-collides-18-134719415.html)
+- Jul 25 - [Prisoners fight against working in heat on former slave plantation, raising hope for change in South](https://www.yahoo.com/news/prisoners-fight-against-working-heat-130649466.html)
+- Jul 25 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
+- Jul 25 - [Camaro Rides The Wall In Spectator Race Crash](https://autos.yahoo.com/camaro-rides-wall-spectator-race-123000203.html)
 <!-- feed end -->
 
 ### Onstream
