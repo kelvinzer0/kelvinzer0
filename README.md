@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [When will Southwest start assigning seats? Airline to change rules](https://www.yahoo.com/news/southwest-start-assigning-seats-airline-180520741.html)
-- Jul 25 - [Self-awareness an important attribute ahead of retirement](https://finance.yahoo.com/video/self-awareness-important-attribute-ahead-180152691.html)
-- Jul 25 - [Astronaut Shows Photo He Shot in Space That Would Be Impossible to Take Now](https://www.yahoo.com/news/astronaut-shows-photo-shot-space-164506164.html)
+- Jul 25 - [Biden meets Netanyahu to discuss Gaza ceasefire](https://www.yahoo.com/news/biden-meets-netanyahu-discuss-gaza-183508165.html)
+- Jul 25 - [Smoke Rises From Fire-Affected Butte County](https://www.yahoo.com/news/smoke-rises-fire-affected-butte-183023300.html)
+- Jul 25 - [Virginia boy, 11, accused of making swatting calls to Flagler Schools at the end of the year](https://www.yahoo.com/news/virginia-boy-11-accused-making-180633475.html)
+- Jul 25 - [Fact Check: Photo of Kamala Harris and Jeffrey Epstein Embracing on Beach is Fake](https://www.yahoo.com/news/fact-check-photo-kamala-harris-175700661.html)
 - Jul 25 - [Bodies of Israeli hostages were retrieved from Gaza tunnel, military says](https://www.yahoo.com/news/bodies-israeli-hostages-were-retrieved-164222435.html)
-- Jul 25 - [Newsom issues executive order for removal of homeless encampments in California](https://www.yahoo.com/news/newsom-issues-executive-order-removal-151834237.html)
 <!-- feed end -->
 
 ### Onstream
