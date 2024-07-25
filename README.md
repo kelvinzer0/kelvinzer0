@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [A 2,000-Year-Old Sarcophagus Was Just Unsealed—and the Mummy Inside is Mind-Blowing](https://www.yahoo.com/news/2-000-old-sarcophagus-just-144500866.html)
-- Jul 25 - [Analysis-Battered Hamas confounds Israel's bid to declare victory](https://www.yahoo.com/news/analysis-battered-hamas-confounds-israels-143654421.html)
-- Jul 25 - [Argentine President Milei travels to France to meet Macron after outcry over racist soccer chants](https://www.yahoo.com/news/argentine-president-milei-travels-france-140858059.html)
-- Jul 25 - [The Vacuum of Space Won't Last Forever. In Fact, It Ends Much Sooner Than We Thought.](https://www.yahoo.com/news/vacuum-space-wont-last-forever-140000244.html)
-- Jul 25 - [Mile-and-a-half-long train plows into 18-wheeler in Gulfport, police say. Expect delays](https://www.yahoo.com/news/mile-half-train-collides-18-134719415.html)
+- Jul 25 - [When will Southwest start assigning seats? Airline to change rules](https://www.yahoo.com/news/southwest-start-assigning-seats-airline-180520741.html)
+- Jul 25 - [Self-awareness an important attribute ahead of retirement](https://finance.yahoo.com/video/self-awareness-important-attribute-ahead-180152691.html)
+- Jul 25 - [Astronaut Shows Photo He Shot in Space That Would Be Impossible to Take Now](https://www.yahoo.com/news/astronaut-shows-photo-shot-space-164506164.html)
+- Jul 25 - [Bodies of Israeli hostages were retrieved from Gaza tunnel, military says](https://www.yahoo.com/news/bodies-israeli-hostages-were-retrieved-164222435.html)
+- Jul 25 - [Newsom issues executive order for removal of homeless encampments in California](https://www.yahoo.com/news/newsom-issues-executive-order-removal-151834237.html)
 <!-- feed end -->
 
 ### Onstream
