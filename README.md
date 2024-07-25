@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Kremlin says Russia is open to talks with Ukraine while Zelenskiy is in power but needs more details](https://www.yahoo.com/news/kremlin-says-russia-open-talks-104436140.html)
+- Jul 25 - [Jordan Peterson revealed he once earned $400,000 a month — ways to pump up wealth even if you're not famous](https://finance.yahoo.com/news/jordan-peterson-revealed-once-earned-101500841.html)
+- Jul 25 - [44-acre property sold near shopping in D’Iberville. Here’s what’s planned for the site](https://finance.yahoo.com/news/44-acre-property-sold-near-100000064.html)
 - Jul 25 - ['I Approve This Message': Kamala Harris Instantly Uses Trump's Own Words Against Him](https://www.yahoo.com/news/approve-message-kamala-harris-instantly-081918030.html)
 - Jul 25 - [3 tree workers shot while clearing way for power company before suspect shot by cops during arrest](https://www.yahoo.com/news/3-tree-workers-shot-while-063414951.html)
-- Jul 25 - [FBI Is Not Fully Convinced Trump Was Struck by a Bullet](https://www.yahoo.com/news/fbi-not-fully-convinced-trump-031354127.html)
-- Jul 25 - [Man dies in Northern California after getting trapped between two vehicles, CHP says](https://www.yahoo.com/news/man-dies-northern-california-getting-024027799.html)
-- Jul 25 - [Sea urchins fed cabbage in Japan to help fight marine damage](https://www.yahoo.com/news/sea-urchins-fed-cabbage-japan-023718700.html)
 <!-- feed end -->
 
 ### Onstream
