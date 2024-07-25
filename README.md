@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - ['War wounds the soul': Israeli soldiers recount trauma of Gaza war](https://www.yahoo.com/news/war-wounds-soul-israeli-soldiers-155531066.html)
-- Jul 25 - [Newsom issues executive order for removal of homeless encampments in California](https://www.yahoo.com/news/newsom-issues-executive-order-removal-151834237.html)
-- Jul 25 - [Bangladesh says it forgot to remove UN logos from vehicles as it contained unrest](https://www.yahoo.com/news/bangladesh-says-forgot-remove-un-151707192.html)
-- Jul 25 - [Southwest ditches open seating, Delta recovers from outages](https://finance.yahoo.com/video/southwest-ditches-open-seating-delta-150000394.html)
-- Jul 25 - [Kodak has had many secrets. This one was hiding in plain sight](https://www.yahoo.com/news/kodak-had-many-secrets-one-145040963.html)
+- Jul 25 - [A 2,000-Year-Old Sarcophagus Was Just Unsealed—and the Mummy Inside is Mind-Blowing](https://www.yahoo.com/news/2-000-old-sarcophagus-just-144500866.html)
+- Jul 25 - [Analysis-Battered Hamas confounds Israel's bid to declare victory](https://www.yahoo.com/news/analysis-battered-hamas-confounds-israels-143654421.html)
+- Jul 25 - [Argentine President Milei travels to France to meet Macron after outcry over racist soccer chants](https://www.yahoo.com/news/argentine-president-milei-travels-france-140858059.html)
+- Jul 25 - [The Vacuum of Space Won't Last Forever. In Fact, It Ends Much Sooner Than We Thought.](https://www.yahoo.com/news/vacuum-space-wont-last-forever-140000244.html)
+- Jul 25 - [Mile-and-a-half-long train plows into 18-wheeler in Gulfport, police say. Expect delays](https://www.yahoo.com/news/mile-half-train-collides-18-134719415.html)
 <!-- feed end -->
 
 ### Onstream
