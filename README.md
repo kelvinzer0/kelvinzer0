@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Analysis-Battered Hamas confounds Israel's bid to declare victory](https://www.yahoo.com/news/analysis-battered-hamas-confounds-israels-143654421.html)
-- Jul 25 - [Mile-and-a-half-long train plows into 18-wheeler in Gulfport, police say. Expect delays](https://www.yahoo.com/news/mile-half-train-collides-18-134719415.html)
-- Jul 25 - [Prisoners fight against working in heat on former slave plantation, raising hope for change in South](https://www.yahoo.com/news/prisoners-fight-against-working-heat-130649466.html)
-- Jul 25 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
-- Jul 25 - [Camaro Rides The Wall In Spectator Race Crash](https://autos.yahoo.com/camaro-rides-wall-spectator-race-123000203.html)
+- Jul 25 - ['War wounds the soul': Israeli soldiers recount trauma of Gaza war](https://www.yahoo.com/news/war-wounds-soul-israeli-soldiers-155531066.html)
+- Jul 25 - [Newsom issues executive order for removal of homeless encampments in California](https://www.yahoo.com/news/newsom-issues-executive-order-removal-151834237.html)
+- Jul 25 - [Bangladesh says it forgot to remove UN logos from vehicles as it contained unrest](https://www.yahoo.com/news/bangladesh-says-forgot-remove-un-151707192.html)
+- Jul 25 - [Southwest ditches open seating, Delta recovers from outages](https://finance.yahoo.com/video/southwest-ditches-open-seating-delta-150000394.html)
+- Jul 25 - [Kodak has had many secrets. This one was hiding in plain sight](https://www.yahoo.com/news/kodak-had-many-secrets-one-145040963.html)
 <!-- feed end -->
 
 ### Onstream
