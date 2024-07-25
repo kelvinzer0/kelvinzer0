@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 25 - [FBI Is Not Fully Convinced Trump Was Struck by a Bullet](https://www.yahoo.com/news/fbi-not-fully-convinced-trump-031354127.html)
 - Jul 25 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
-- Jul 25 - [Idaho Power shuts off power to thousands in Boise area for first time with wildfire plan](https://www.yahoo.com/news/idaho-power-shuts-off-power-011322902.html)
-- Jul 25 - [I’m a Bank Teller: 4 Reasons You Should Withdraw Your Savings Right Now](https://finance.yahoo.com/news/m-bank-teller-4-reasons-140101610.html)
 - Jul 25 - [Analysis-China's secretive spaceplane likely testing 'dual use' technology, experts say](https://www.yahoo.com/news/analysis-chinas-secretive-spaceplane-likely-000434681.html)
+- Jul 24 - [We finally know what caused the global tech outage - and how much it cost](https://finance.yahoo.com/news/finally-know-caused-global-tech-161356307.html)
+- Jul 24 - [Protected bird killed and eaten on reality TV show by contestant](https://www.yahoo.com/news/rare-bird-killed-eaten-reality-113944754.html)
 <!-- feed end -->
 
 ### Onstream
