@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Why I Can't Stop Buying This Phenomenal High-Yield Dividend Stock](https://finance.yahoo.com/news/why-cant-stop-buying-phenomenal-111300662.html)
+- Jul 25 - [3 Unstoppable Growth Stocks to Buy if There's a Stock Market Sell-Off](https://finance.yahoo.com/news/3-unstoppable-growth-stocks-buy-123000264.html)
 - Jul 25 - [Randolph County Schools suspends teacher accused of indecent liberties](https://www.yahoo.com/news/randolph-county-schools-suspends-teacher-104559784.html)
 - Jul 25 - [Southwest breaks with 50-year tradition and will assign seats; profit falls at Southwest, American](https://finance.yahoo.com/news/southwest-breaks-50-tradition-plans-103853024.html)
-- Jul 25 - [Florida HOA upholds ban against parking pickup trucks and work vehicles in driveways — despite new state law](https://finance.yahoo.com/news/florida-hoa-upholds-ban-against-100600685.html)
 - Jul 25 - [‘I Approve This Message’: Kamala Harris Instantly Uses Trump’s Own Words Against Him](https://www.yahoo.com/news/approve-message-kamala-harris-instantly-081918030.html)
+- Jul 25 - [Massive Interstate 495/Mass Pike interchange project is prompting traffic changes](https://www.yahoo.com/news/massive-interstate-495-mass-pike-081420712.html)
 <!-- feed end -->
 
 ### Onstream
