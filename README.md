@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [City to look at relief vessels to provide more service to islands](https://www.yahoo.com/news/city-look-relief-vessels-more-205034201.html)
+- Jul 25 - [How This Retired NBA Player Invested His Way To A Net Worth Of $600 Million: Hint, It's Not Magic Johnson, Shaq, or Jordan](https://finance.yahoo.com/news/retired-nba-player-invested-way-210011728.html)
 - Jul 25 - [Judge who ordered Trump to pay $454 million says he was ‘accosted’ by lawyer and won’t recuse himself from case](https://www.yahoo.com/news/judge-ordered-trump-pay-454-192337033.html)
 - Jul 25 - [Automakers hit 'significant storm,' as buyers reject lofty prices at time of huge capital outlays](https://finance.yahoo.com/news/automakers-hit-significant-storm-buyers-201410852.html)
-- Jul 25 - [West Virginia is asking the US Supreme Court to consider transgender surgery Medicaid coverage case](https://www.yahoo.com/news/west-virginia-asking-us-supreme-195031984.html)
+- Jul 25 - [Missing California woman’s car found in Morro Bay as her search continues](https://www.yahoo.com/news/missing-california-woman-car-found-195730876.html)
 - Jul 25 - [Tesla warns against wet towel charging trick two months too late](https://www.yahoo.com/news/tesla-warns-against-wet-towel-charging-trick-two-months-too-late-190237430.html)
 <!-- feed end -->
 
