@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Secret DEA files show agents joked about rape in WhatsApp chat. Then one of them was accused of it.](https://www.yahoo.com/news/secret-dea-files-show-agents-045342212.html)
+- Jul 25 - [3 tree workers shot while clearing way for power company before suspect shot by cops during arrest](https://www.yahoo.com/news/3-tree-workers-shot-while-063414951.html)
+- Jul 25 - [Japanese restaurants say they’re not charging tourists more – they’re just charging locals less](https://www.yahoo.com/news/japanese-restaurants-not-charging-tourists-031714789.html)
 - Jul 25 - [FBI Is Not Fully Convinced Trump Was Struck by a Bullet](https://www.yahoo.com/news/fbi-not-fully-convinced-trump-031354127.html)
-- Jul 25 - [Analysis - Taiwanese rocket startup may be early test of Japan's space hub plans](https://www.yahoo.com/news/analysis-taiwanese-rocket-startup-may-025805128.html)
 - Jul 25 - [Police filmed stamping on man's head at airport](https://www.yahoo.com/news/police-filmed-stamping-mans-head-171049371.html)
 - Jul 25 - [Sea urchins fed cabbage in Japan to help fight marine damage](https://www.yahoo.com/news/sea-urchins-fed-cabbage-japan-023718700.html)
 <!-- feed end -->
