@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [New fire in southern Glacier Park grows to 30 acres](https://www.yahoo.com/news/fire-southern-glacier-park-grows-022700969.html)
 - Jul 26 - [Elon Musk’s transgender daughter, in first interview, says he berated her for being queer as a child](https://www.yahoo.com/entertainment/elon-musk-transgender-daughter-first-013039771.html)
-- Jul 25 - [After Mocking JD Vance, Kentucky Gov. Issues An Apology... To Diet Mountain Dew](https://www.yahoo.com/news/mocking-jd-vance-kentucky-gov-225627719.html)
+- Jul 26 - [Chico man, 42, suspected of starting massive Park Fire that is burning out of control](https://www.yahoo.com/news/chico-man-42-suspected-starting-005507531.html)
 - Jul 25 - [Gizmo the dog went missing in Las Vegas in 2015. He's been found alive after 9 years](https://www.yahoo.com/news/gizmo-dog-went-missing-las-224553156.html)
 - Jul 25 - [‘The View’s’ Ana Navarro Uses Nude Melania Trump Photo to Defend Kamala Harris](https://www.yahoo.com/entertainment/view-ana-navarro-uses-nude-224511676.html)
-- Jul 25 - [FBI Director Says Trump May Not Have Been Shot by Bullet](https://www.yahoo.com/news/fbi-director-says-trump-may-221403633.html)
 <!-- feed end -->
 
 ### Onstream
