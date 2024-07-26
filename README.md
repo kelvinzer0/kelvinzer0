@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [France foiled four plots to sabotage Olympics](https://www.yahoo.com/news/france-foiled-four-plots-sabotage-195513940.html)
-- Jul 26 - [Massachusetts grocery store chains close delis for cleaning after Boar’s Head recall](https://www.yahoo.com/news/massachusetts-grocery-stores-close-delis-185016896.html)
+- Jul 26 - [Alison Chao’s father arrested by Monterey Park police](https://www.yahoo.com/news/alison-chao-father-arrested-monterey-191621242.html)
 - Jul 26 - [Exclusive-Boeing asks suppliers for decade-long titanium paper trail as check for forgeries widens](https://finance.yahoo.com/news/exclusive-boeing-asks-suppliers-decade-181249924.html)
-- Jul 26 - [‘At a loss for words’: Families must move out as nearly 200 more condos are deemed unsafe](https://www.yahoo.com/news/loss-words-families-must-move-170300999.html)
+- Jul 26 - [Lost dog survived in deep woods nearly two months: ‘She defied the odds’](https://www.yahoo.com/news/lost-dog-survived-deep-woods-174923447.html)
+- Jul 26 - [Former police officer said bosses retaliated after she refused to sign bogus search warrant](https://www.yahoo.com/news/former-police-officer-said-bosses-173035979.html)
 - Jul 26 - [Florida's housing market is seeing 'nightmare scenarios' as buyers back out due to affordability concerns, Redfin says](https://www.yahoo.com/news/floridas-housing-market-seeing-nightmare-002450610.html)
 <!-- feed end -->
 
