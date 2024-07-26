@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [US Fed's favored inflation measure cools further in June](https://finance.yahoo.com/news/us-feds-favored-inflation-measure-124647438.html)
-- Jul 26 - [Massive attack on French rail network brings travel chaos ahead of Olympic opening ceremony](https://www.yahoo.com/news/massive-attack-french-rail-network-125315926.html)
-- Jul 26 - [Major Shifts Beneath the Surface in a New Trump-Harris Poll](https://www.yahoo.com/news/major-shifts-beneath-surface-trump-115419276.html)
+- Jul 26 - [Toyota will replace engines in recalled Tundras and Lexus LXs](https://www.autoblog.com/2024/07/26/toyota-will-replace-engines-in-recalled-tundras-and-lexus-lxs/)
+- Jul 26 - [Both highways in Pismo Beach are about to face a month of traffic slowdowns. Here’s why](https://www.yahoo.com/news/both-highways-pismo-beach-face-120000157.html)
+- Jul 26 - [Mexican Sinaloa drug cartel kingpins turn themselves in to US authorities](https://www.yahoo.com/news/mexican-sinaloa-drug-cartel-kingpins-092856715.html)
 - Jul 26 - [They expected an Olympic boon. But some Paris businesses are experiencing a bust](https://www.yahoo.com/news/expected-olympic-boon-paris-businesses-085207310.html)
-- Jul 26 - [These 3 Social Security Changes Are Coming in January. Prepare Yourself Now.](https://finance.yahoo.com/news/3-social-security-changes-coming-073600362.html)
+- Jul 26 - [A mysterious pile of bones could hold evidence of Japanese war crimes, activists say](https://www.yahoo.com/news/mysterious-pile-bones-could-hide-052501043.html)
 <!-- feed end -->
 
 ### Onstream
