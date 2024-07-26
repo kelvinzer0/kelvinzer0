@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [India lost its vultures, and scientists say humans have paid the price](https://www.yahoo.com/news/india-lost-vultures-scientists-humans-164209069.html)
-- Jul 26 - [The Health of the Economy in Every State When Trump Was President](https://finance.yahoo.com/news/health-economy-every-state-trump-141038224.html)
+- Jul 26 - [Namibia turns the visa tables on Western nations](https://www.yahoo.com/news/namibia-turns-visa-tables-western-002221439.html)
+- Jul 26 - [Ex-KCPD lawyer leaked documents alleging misconduct. Now he could lose his law license](https://www.yahoo.com/news/ex-kcpd-lawyer-leaked-documents-180514796.html)
 - Jul 26 - ['Awfully weird': Trump 'absolutely' regretting picking JD Vance](https://www.yahoo.com/news/awfully-weird-trump-absolutely-regretting-150245538.html)
+- Jul 26 - [Fast Food Chains That Could Go Bankrupt In 2024](https://finance.yahoo.com/news/fast-food-chains-could-bankrupt-144004927.html)
 - Jul 26 - [A 3-year-old Minnesota boy attacked by pit bulls is not expected to survive](https://www.yahoo.com/news/3-old-minnesota-boy-attacked-133513700.html)
-- Jul 26 - [Toyota will replace engines in recalled Tundras and Lexus LXs](https://www.autoblog.com/2024/07/26/toyota-will-replace-engines-in-recalled-tundras-and-lexus-lxs/)
 <!-- feed end -->
 
 ### Onstream
