@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Stock market today: Asian shares mostly advance after Wall St comeback from worst loss since 2022](https://finance.yahoo.com/news/stock-market-today-asian-shares-072713215.html)
-- Jul 26 - [A mysterious pile of bones could hide evidence of Japanese war crimes, activists say](https://www.yahoo.com/news/mysterious-pile-bones-could-hide-052501043.html)
+- Jul 26 - [Camden grad recipient of hospital's $50,000 nursing scholarship](https://www.yahoo.com/news/camden-grad-recipient-hospitals-50-080730594.html)
+- Jul 26 - [A mysterious pile of bones could hold evidence of Japanese war crimes, activists say](https://www.yahoo.com/news/mysterious-pile-bones-could-hide-052501043.html)
+- Jul 26 - [Harris Taunts Trump After He Backs Out of Debates](https://www.yahoo.com/news/harris-taunts-trump-backs-debates-015716574.html)
 - Jul 26 - [Elon Musk’s transgender daughter, in first interview, says he berated her for being queer as a child](https://www.yahoo.com/entertainment/elon-musk-transgender-daughter-first-013039771.html)
-- Jul 25 - [Gizmo the dog went missing in Las Vegas in 2015. He's been found alive after 9 years](https://www.yahoo.com/news/gizmo-dog-went-missing-las-224553156.html)
-- Jul 25 - [‘The View’s’ Ana Navarro Uses Nude Melania Trump Photo to Defend Kamala Harris](https://www.yahoo.com/entertainment/view-ana-navarro-uses-nude-224511676.html)
+- Jul 26 - [Chico man, 42, suspected of starting massive Park Fire that is burning out of control](https://www.yahoo.com/news/chico-man-42-suspected-starting-005507531.html)
 <!-- feed end -->
 
 ### Onstream
