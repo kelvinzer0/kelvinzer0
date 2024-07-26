@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [How This Retired NBA Player Invested His Way To A Net Worth Of $600 Million: Hint, It's Not Magic Johnson, Shaq, or Jordan](https://finance.yahoo.com/news/retired-nba-player-invested-way-210011728.html)
-- Jul 25 - [Judge who ordered Trump to pay $454 million says he was ‘accosted’ by lawyer and won’t recuse himself from case](https://www.yahoo.com/news/judge-ordered-trump-pay-454-192337033.html)
-- Jul 25 - [Automakers hit 'significant storm,' as buyers reject lofty prices at time of huge capital outlays](https://finance.yahoo.com/news/automakers-hit-significant-storm-buyers-201410852.html)
-- Jul 25 - [Missing California woman’s car found in Morro Bay as her search continues](https://www.yahoo.com/news/missing-california-woman-car-found-195730876.html)
-- Jul 25 - [Tesla warns against wet towel charging trick two months too late](https://www.yahoo.com/news/tesla-warns-against-wet-towel-charging-trick-two-months-too-late-190237430.html)
+- Jul 25 - [Former U.S. gymnast says she suffers anaphylactic reaction in the Olympic Village](https://sports.yahoo.com/former-u-gymnast-says-she-230838307.html)
+- Jul 25 - [After Mocking JD Vance, Kentucky Gov. Issues An Apology... To Diet Mountain Dew](https://www.yahoo.com/news/mocking-jd-vance-kentucky-gov-225627719.html)
+- Jul 25 - [Gizmo the dog went missing in Las Vegas in 2015. He's been found alive after 9 years](https://www.yahoo.com/news/gizmo-dog-went-missing-las-224553156.html)
+- Jul 25 - [Laguna Beach woman lashes out at beachgoers in viral ‘Karen’ video](https://www.yahoo.com/news/laguna-beach-woman-lashes-beachgoers-215814937.html)
+- Jul 25 - [Black bear and cub destroy car in Connecticut after getting trapped inside](https://www.yahoo.com/news/black-bear-cub-destroy-car-215006816.html)
 <!-- feed end -->
 
 ### Onstream
