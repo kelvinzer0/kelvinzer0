@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [G20 finance ministers agree to work toward effectively taxing the super-rich](https://finance.yahoo.com/news/g20-finance-ministers-agree-toward-215503677.html)
-- Jul 26 - [Justin Timberlake was ‘not intoxicated’ when stopped by Hamptons cops for DWI, his lawyer claims](https://www.yahoo.com/news/justin-timberlake-not-intoxicated-stopped-211356114.html)
+- Jul 26 - [Canadians mourn as Jasper, jewel of the Rockies, burns](https://www.yahoo.com/news/canadians-mourn-jasper-jewel-rockies-213426788.html)
+- Jul 26 - [Dangerous river levels cancel unlimited hydro racing 1st day of Tri-Cities Water Follies](https://sports.yahoo.com/dangerous-river-levels-cancel-unlimited-212741361.html)
 - Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
-- Jul 26 - [Alison Chao’s father arrested by Monterey Park police](https://www.yahoo.com/news/alison-chao-father-arrested-monterey-191621242.html)
-- Jul 26 - [New tropical disturbance being tracked in the Atlantic](https://www.yahoo.com/news/tropical-disturbance-being-tracked-atlantic-181539725.html)
+- Jul 26 - [Bitcoin to Account for 7% of Global Wealth, Surge in Price to $13M in 21 Years: Michael Saylor](https://finance.yahoo.com/news/bitcoin-account-7-global-wealth-201455806.html)
+- Jul 26 - [Grandmother kills college track coach in murder-suicide in wealthy New York neighborhood: police](https://www.yahoo.com/news/grandmother-kills-college-track-coach-194803999.html)
 <!-- feed end -->
 
 ### Onstream
