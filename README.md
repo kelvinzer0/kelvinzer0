@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Petrobras wrapping up due diligence to buy back refinery from Mubadala, sources say](https://finance.yahoo.com/news/petrobras-wrapping-due-diligence-buy-100303358.html)
-- Jul 26 - [Rival gangs sign truce in Haiti's largest shantytown](https://www.yahoo.com/news/rival-gangs-sign-truce-haitis-070606775.html)
-- Jul 26 - [Elon Musk’s transgender daughter, in first interview, says he berated her for being queer as a child](https://www.yahoo.com/entertainment/elon-musk-transgender-daughter-first-013039771.html)
-- Jul 26 - [Alexandria Ocasio-Cortez Puts Elon Musk In His Place With Perfectly Patronizing Reminder](https://www.yahoo.com/news/alexandria-ocasio-cortez-puts-elon-005518684.html)
-- Jul 26 - [Palm Springs will move ‘Forever Marilyn’ statue to city park to settle lawsuit](https://www.yahoo.com/news/palm-springs-move-forever-marilyn-004635715.html)
+- Jul 26 - [Wildfire sparked by a burning car triples in size in a day. A 42-year-old man is arrested](https://www.yahoo.com/news/wildfire-sparked-burning-car-triples-121422686.html)
+- Jul 26 - [Paris Olympics travel chaos – your questions answered](https://www.yahoo.com/lifestyle/paris-olympics-travel-chaos-questions-111711536.html)
+- Jul 26 - [Mexican Sinaloa drug cartel kingpins turn themselves in to US authorities](https://www.yahoo.com/news/mexican-sinaloa-drug-cartel-kingpins-092856715.html)
+- Jul 26 - [Ukraine's US-provided Bradley armored fighting vehicles are turning heads in tough battles against Russia](https://www.yahoo.com/news/ukraines-us-provided-bradley-armored-091502622.html)
+- Jul 26 - [They expected an Olympic boon. But some Paris businesses are experiencing a bust](https://www.yahoo.com/news/expected-olympic-boon-paris-businesses-085207310.html)
 <!-- feed end -->
 
 ### Onstream
