@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [CT gangster gets 14 years in prison for racketeering crimes that includes multiple shootings](https://www.yahoo.com/news/ct-gangster-gets-14-years-094300323.html)
-- Jul 26 - [Harris Taunts Trump After He Backs Out of Debates](https://www.yahoo.com/news/harris-taunts-trump-backs-debates-015716574.html)
+- Jul 26 - [Petrobras wrapping up due diligence to buy back refinery from Mubadala, sources say](https://finance.yahoo.com/news/petrobras-wrapping-due-diligence-buy-100303358.html)
+- Jul 26 - [Rival gangs sign truce in Haiti's largest shantytown](https://www.yahoo.com/news/rival-gangs-sign-truce-haitis-070606775.html)
 - Jul 26 - [Elon Musk’s transgender daughter, in first interview, says he berated her for being queer as a child](https://www.yahoo.com/entertainment/elon-musk-transgender-daughter-first-013039771.html)
-- Jul 25 - [Former U.S. gymnast says she suffered anaphylactic reaction in the Olympic Village](https://sports.yahoo.com/former-u-gymnast-says-she-230838307.html)
-- Jul 25 - [FBI Director Says Trump May Not Have Been Shot by Bullet](https://www.yahoo.com/news/fbi-director-says-trump-may-221403633.html)
+- Jul 26 - [Alexandria Ocasio-Cortez Puts Elon Musk In His Place With Perfectly Patronizing Reminder](https://www.yahoo.com/news/alexandria-ocasio-cortez-puts-elon-005518684.html)
+- Jul 26 - [Palm Springs will move ‘Forever Marilyn’ statue to city park to settle lawsuit](https://www.yahoo.com/news/palm-springs-move-forever-marilyn-004635715.html)
 <!-- feed end -->
 
 ### Onstream
