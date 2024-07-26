@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Toyota will replace engines in recalled Tundras and Lexus LXs](https://www.autoblog.com/2024/07/26/toyota-will-replace-engines-in-recalled-tundras-and-lexus-lxs/)
+- Jul 26 - [Rare SC waterspout spins over Lake Murray. See the video](https://www.yahoo.com/news/rare-sc-waterspout-spins-over-144203801.html)
+- Jul 26 - [This is the most dangerous Olympics in living memory](https://www.yahoo.com/news/most-dangerous-olympics-living-memory-144108185.html)
 - Jul 26 - [Both highways in Pismo Beach are about to face a month of traffic slowdowns. Here’s why](https://www.yahoo.com/news/both-highways-pismo-beach-face-120000157.html)
-- Jul 26 - [Mexican Sinaloa drug cartel kingpins turn themselves in to US authorities](https://www.yahoo.com/news/mexican-sinaloa-drug-cartel-kingpins-092856715.html)
-- Jul 26 - [They expected an Olympic boon. But some Paris businesses are experiencing a bust](https://www.yahoo.com/news/expected-olympic-boon-paris-businesses-085207310.html)
-- Jul 26 - [A mysterious pile of bones could hold evidence of Japanese war crimes, activists say](https://www.yahoo.com/news/mysterious-pile-bones-could-hide-052501043.html)
+- Jul 26 - [36 Historical Images That Are Genuinely Wild To See Now](https://www.yahoo.com/lifestyle/36-historical-images-genuinely-wild-091602268.html)
+- Jul 26 - [Ukraine's US-provided Bradley armored fighting vehicles are turning heads in tough battles against Russia](https://www.yahoo.com/news/ukraines-us-provided-bradley-armored-091502622.html)
 <!-- feed end -->
 
 ### Onstream
