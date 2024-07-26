@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [G20 finance ministers agree to work toward effectively taxing the super-rich](https://finance.yahoo.com/news/g20-finance-ministers-agree-toward-215503677.html)
+- Jul 26 - [Justin Timberlake was ‘not intoxicated’ when stopped by Hamptons cops for DWI, his lawyer claims](https://www.yahoo.com/news/justin-timberlake-not-intoxicated-stopped-211356114.html)
+- Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
 - Jul 26 - [Alison Chao’s father arrested by Monterey Park police](https://www.yahoo.com/news/alison-chao-father-arrested-monterey-191621242.html)
-- Jul 26 - [Exclusive-Boeing asks suppliers for decade-long titanium paper trail as check for forgeries widens](https://finance.yahoo.com/news/exclusive-boeing-asks-suppliers-decade-181249924.html)
-- Jul 26 - [Lost dog survived in deep woods nearly two months: ‘She defied the odds’](https://www.yahoo.com/news/lost-dog-survived-deep-woods-174923447.html)
-- Jul 26 - [Former police officer said bosses retaliated after she refused to sign bogus search warrant](https://www.yahoo.com/news/former-police-officer-said-bosses-173035979.html)
-- Jul 26 - [Florida's housing market is seeing 'nightmare scenarios' as buyers back out due to affordability concerns, Redfin says](https://www.yahoo.com/news/floridas-housing-market-seeing-nightmare-002450610.html)
+- Jul 26 - [New tropical disturbance being tracked in the Atlantic](https://www.yahoo.com/news/tropical-disturbance-being-tracked-atlantic-181539725.html)
 <!-- feed end -->
 
 ### Onstream
