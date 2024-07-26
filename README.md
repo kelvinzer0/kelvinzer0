@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jul 26 - [Elon Musk’s transgender daughter, in first interview, says he berated her for being queer as a child](https://www.yahoo.com/entertainment/elon-musk-transgender-daughter-first-013039771.html)
 - Jul 25 - [Former U.S. gymnast says she suffers anaphylactic reaction in the Olympic Village](https://sports.yahoo.com/former-u-gymnast-says-she-230838307.html)
 - Jul 25 - [After Mocking JD Vance, Kentucky Gov. Issues An Apology... To Diet Mountain Dew](https://www.yahoo.com/news/mocking-jd-vance-kentucky-gov-225627719.html)
+- Jul 25 - [Gizmo the dog went missing in Las Vegas in 2015. He's been found alive after 9 years](https://www.yahoo.com/news/gizmo-dog-went-missing-las-224553156.html)
 - Jul 25 - [‘The View’s’ Ana Navarro Uses Nude Melania Trump Photo to Defend Kamala Harris](https://www.yahoo.com/entertainment/view-ana-navarro-uses-nude-224511676.html)
-- Jul 25 - [Laguna Beach woman lashes out at beachgoers in viral ‘Karen’ video](https://www.yahoo.com/news/laguna-beach-woman-lashes-beachgoers-215814937.html)
 <!-- feed end -->
 
 ### Onstream
