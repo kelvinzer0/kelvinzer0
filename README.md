@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [Limited-time offer: Earn 100K points for future travels with the Amex Business Gold](https://finance.yahoo.com/personal-finance/amex-business-gold-card-new-offer-165242553.html)
 - Jul 26 - [The Health of the Economy in Every State When Trump Was President](https://finance.yahoo.com/news/health-economy-every-state-trump-141038224.html)
 - Jul 26 - ['Awfully weird': Trump 'absolutely' regretting picking JD Vance](https://www.yahoo.com/news/awfully-weird-trump-absolutely-regretting-150245538.html)
-- Jul 26 - [Recall of Boar's Head deli meats announced during investigation of listeria outbreak](https://www.yahoo.com/news/recall-boars-head-deli-meats-144330187.html)
-- Jul 26 - [Pennsylvania Lottery ticket worth $400,000 sold in Central Pennsylvania](https://www.yahoo.com/news/pennsylvania-lottery-ticket-worth-400-143754181.html)
-- Jul 26 - [Toyota will replace engines in recalled Tundras and Lexus LXs](https://www.autoblog.com/2024/07/26/toyota-will-replace-engines-in-recalled-tundras-and-lexus-lxs/)
+- Jul 26 - [Fast Food Chains That Could Go Bankrupt In 2024](https://finance.yahoo.com/news/fast-food-chains-could-bankrupt-144004927.html)
+- Jul 26 - [Trump’s Shortest Term Official Predicts When J.D. Vance Is Out](https://www.yahoo.com/news/trump-shortest-term-official-predicts-141704355.html)
 <!-- feed end -->
 
 ### Onstream
