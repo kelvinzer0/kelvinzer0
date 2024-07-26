@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Limited-time offer: Earn 100K points for future travels with the Amex Business Gold](https://finance.yahoo.com/personal-finance/amex-business-gold-card-new-offer-165242553.html)
+- Jul 26 - [India lost its vultures, and scientists say humans have paid the price](https://www.yahoo.com/news/india-lost-vultures-scientists-humans-164209069.html)
 - Jul 26 - [The Health of the Economy in Every State When Trump Was President](https://finance.yahoo.com/news/health-economy-every-state-trump-141038224.html)
 - Jul 26 - ['Awfully weird': Trump 'absolutely' regretting picking JD Vance](https://www.yahoo.com/news/awfully-weird-trump-absolutely-regretting-150245538.html)
-- Jul 26 - [Fast Food Chains That Could Go Bankrupt In 2024](https://finance.yahoo.com/news/fast-food-chains-could-bankrupt-144004927.html)
-- Jul 26 - [Trump’s Shortest Term Official Predicts When J.D. Vance Is Out](https://www.yahoo.com/news/trump-shortest-term-official-predicts-141704355.html)
+- Jul 26 - [A 3-year-old Minnesota boy attacked by pit bulls is not expected to survive](https://www.yahoo.com/news/3-old-minnesota-boy-attacked-133513700.html)
+- Jul 26 - [Toyota will replace engines in recalled Tundras and Lexus LXs](https://www.autoblog.com/2024/07/26/toyota-will-replace-engines-in-recalled-tundras-and-lexus-lxs/)
 <!-- feed end -->
 
 ### Onstream
