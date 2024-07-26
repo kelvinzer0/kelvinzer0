@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Camden grad recipient of hospital's $50,000 nursing scholarship](https://www.yahoo.com/news/camden-grad-recipient-hospitals-50-080730594.html)
-- Jul 26 - [A mysterious pile of bones could hold evidence of Japanese war crimes, activists say](https://www.yahoo.com/news/mysterious-pile-bones-could-hide-052501043.html)
+- Jul 26 - [CT gangster gets 14 years in prison for racketeering crimes that includes multiple shootings](https://www.yahoo.com/news/ct-gangster-gets-14-years-094300323.html)
 - Jul 26 - [Harris Taunts Trump After He Backs Out of Debates](https://www.yahoo.com/news/harris-taunts-trump-backs-debates-015716574.html)
 - Jul 26 - [Elon Musk’s transgender daughter, in first interview, says he berated her for being queer as a child](https://www.yahoo.com/entertainment/elon-musk-transgender-daughter-first-013039771.html)
-- Jul 26 - [Chico man, 42, suspected of starting massive Park Fire that is burning out of control](https://www.yahoo.com/news/chico-man-42-suspected-starting-005507531.html)
+- Jul 25 - [Former U.S. gymnast says she suffered anaphylactic reaction in the Olympic Village](https://sports.yahoo.com/former-u-gymnast-says-she-230838307.html)
+- Jul 25 - [FBI Director Says Trump May Not Have Been Shot by Bullet](https://www.yahoo.com/news/fbi-director-says-trump-may-221403633.html)
 <!-- feed end -->
 
 ### Onstream
