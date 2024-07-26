@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [A mysterious pile of bones could hide evidence of Japanese war crimes, activists say](https://www.yahoo.com/news/mysterious-pile-bones-could-hide-052501043.html)
 - Jul 26 - [Elon Musk’s transgender daughter, in first interview, says he berated her for being queer as a child](https://www.yahoo.com/entertainment/elon-musk-transgender-daughter-first-013039771.html)
-- Jul 25 - [Metro couple recovering after being shot in the face from road rage incident](https://www.yahoo.com/news/metro-couple-recovering-being-shot-232659988.html)
+- Jul 26 - [Palm Springs will move ‘Forever Marilyn’ statue to city park to settle lawsuit](https://www.yahoo.com/news/palm-springs-move-forever-marilyn-004635715.html)
 - Jul 25 - [Former U.S. gymnast says she suffered anaphylactic reaction in the Olympic Village](https://sports.yahoo.com/former-u-gymnast-says-she-230838307.html)
-- Jul 25 - [Gizmo the dog went missing in Las Vegas in 2015. He's been found alive after 9 years](https://www.yahoo.com/news/gizmo-dog-went-missing-las-224553156.html)
-- Jul 25 - [‘The View’s’ Ana Navarro Uses Nude Melania Trump Photo to Defend Kamala Harris](https://www.yahoo.com/entertainment/view-ana-navarro-uses-nude-224511676.html)
+- Jul 25 - [FBI Director Says Trump May Not Have Been Shot by Bullet](https://www.yahoo.com/news/fbi-director-says-trump-may-221403633.html)
 <!-- feed end -->
 
 ### Onstream
