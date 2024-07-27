@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Was Gavin Newsom in SLO County this week? Yep, and here’s what he was doing](https://www.yahoo.com/news/gavin-newsom-slo-county-week-160000906.html)
+- Jul 27 - [Ukrainian man plugged his whole house into a Tesla parked in his yard as locals find novel ways to battle rolling blackouts, report says](https://www.yahoo.com/news/ukrainian-man-plugged-whole-house-171335789.html)
+- Jul 27 - [Fears for father still in jail 19 years after laptop robbery under ‘scandalous’ IPP sentence](https://www.yahoo.com/news/fears-father-still-jail-19-162534171.html)
+- Jul 27 - [Body of missing 61-year-old Fort Worth man found in Jack County, officials say](https://www.yahoo.com/news/body-missing-61-old-fort-165939598.html)
+- Jul 27 - [Drag queens shine at Olympics opening, but 'Last Supper' tableau draws criticism](https://www.yahoo.com/entertainment/drag-queens-shine-olympics-opening-161950731.html)
 - Jul 27 - [Olympics Apologize For Colossal Mistake At Opening Ceremony](https://www.yahoo.com/news/olympics-apologize-colossal-mistake-opening-152248043.html)
-- Jul 27 - [Hungary's Orban says Russia stands to gain as 'irrational' West loses power](https://www.yahoo.com/news/hungarys-orban-says-russia-stands-115859509.html)
-- Jul 27 - [Retired Astronaut Admits Boeing's Starliner Has Trapped Crew in Space](https://www.yahoo.com/news/retired-astronaut-admits-boeings-starliner-110005438.html)
-- Jul 27 - [California's Park Fire now among one of the largest in state history](https://www.yahoo.com/news/californias-park-fire-now-among-105756794.html)
 <!-- feed end -->
 
 ### Onstream
