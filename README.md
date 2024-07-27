@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [National Hurricane Center tracking 'area of disturbed weather' in central Atlantic](https://www.yahoo.com/news/national-hurricane-center-tracking-area-124828523.html)
 - Jul 27 - [Hungary's Orban says Russia stands to gain as 'irrational' West loses power](https://www.yahoo.com/news/hungarys-orban-says-russia-stands-115859509.html)
+- Jul 27 - [Historic downtown Oklahoma City building purchased, will be turned into housing](https://finance.yahoo.com/news/historic-downtown-oklahoma-city-building-110331757.html)
 - Jul 27 - [Dave Ramsey says he only has 3 investments — and doesn't need stock tips from your golfing buddy. Here's what they are](https://finance.yahoo.com/news/dave-ramsey-says-only-3-104400433.html)
-- Jul 27 - [The taxes Rachel Reeves could make you pay to fill Britain’s £19bn black hole](https://finance.yahoo.com/news/taxes-rachel-reeves-could-pay-100000038.html)
-- Jul 27 - [‘A point of no return:’ Why Europe has become an epicenter for anti-tourism protests this summer](https://www.yahoo.com/news/point-no-return-why-europe-083002975.html)
+- Jul 27 - [Coca-Cola Just Agreed With Pepsi and McDonald's About the Economy. Here's What It Could Mean for Investors.](https://finance.yahoo.com/news/coca-cola-just-agreed-pepsi-093700127.html)
+- Jul 27 - [Fred Trump III: ‘Donald was the kind of child who could drive almost anyone around the bend’](https://www.yahoo.com/news/fred-trump-iii-donald-kind-050000040.html)
 <!-- feed end -->
 
 ### Onstream
