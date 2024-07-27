@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
 - Jul 27 - [Trump Tells Christians They Won’t Have to Vote in Future: ‘We’ll Have It Fixed’](https://www.yahoo.com/news/trump-tells-christians-won-t-034613098.html)
 - Jul 26 - [NASA just scored a badly needed win: The best potential evidence of alien life yet](https://www.yahoo.com/news/nasa-just-scored-badly-needed-235724855.html)
-- Jul 26 - [California education official embezzled over $16 million, hid cash in mini fridge](https://www.yahoo.com/news/california-education-official-embezzled-over-211600620.html)
-- Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
+- Jul 26 - [2 Delta Passengers Take Over VIP Lounge After Flight Delay](https://www.yahoo.com/news/2-delta-passengers-over-vip-222103018.html)
+- Jul 26 - [Major rollover crash in west suburbs: Two drivers injured, road remains closed](https://www.yahoo.com/news/major-rollover-crash-west-suburbs-213235683.html)
 <!-- feed end -->
 
 ### Onstream
