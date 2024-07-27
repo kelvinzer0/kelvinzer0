@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Bethel Park School District mourns death of beloved high school teacher](https://www.yahoo.com/news/bethel-park-school-district-mourns-023059856.html)
-- Jul 26 - [NASA just scored a badly needed win: The best potential evidence of alien life yet](https://www.yahoo.com/news/nasa-just-scored-badly-needed-235724855.html)
-- Jul 26 - [2 Delta Passengers Take Over VIP Lounge After Flight Delay](https://www.yahoo.com/news/2-delta-passengers-over-vip-222103018.html)
-- Jul 26 - [Dangerous river levels cancel unlimited hydro racing 1st day of Tri-Cities Water Follies](https://sports.yahoo.com/dangerous-river-levels-cancel-unlimited-212741361.html)
-- Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
+- Jul 26 - [Major rollover crash in west suburbs: Two drivers injured, road remains closed](https://www.yahoo.com/news/major-rollover-crash-west-suburbs-213235683.html)
+- Jul 26 - [Can You Guess What Percent Of People Have $500,000 Saved For Retirement? Shockingly, It's Probably Less Than You Think](https://finance.yahoo.com/news/guess-percent-people-500-000-201512267.html)
+- Jul 26 - [Sun blasts out most powerful flare of current solar cycle, sends massive coronal mass ejection into space (video)](https://www.yahoo.com/news/sun-blasts-most-powerful-flare-192951374.html)
+- Jul 26 - [Alison Chao’s father arrested by Monterey Park police](https://www.yahoo.com/news/alison-chao-father-arrested-monterey-191621242.html)
+- Jul 26 - [Boeing asks suppliers for decade-long titanium paper trail as check for forgeries widens](https://finance.yahoo.com/news/exclusive-boeing-asks-suppliers-decade-181249165.html)
 <!-- feed end -->
 
 ### Onstream
