@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Note to JD Vance: Appalachia is in no need of political charlatans and their elegies](https://www.yahoo.com/news/note-jd-vance-appalachia-no-175300147.html)
+- Jul 27 - [Trump Declares Outrageous Reason He Won't Pronounce 'Kamala' Correctly](https://www.yahoo.com/news/trump-declares-outrageous-reason-wont-164231288.html)
 - Jul 27 - [Drag queens shine at Olympics opening, but 'Last Supper' tableau draws criticism](https://www.yahoo.com/entertainment/drag-queens-shine-olympics-opening-161950731.html)
 - Jul 27 - [Olympics Apologize For Colossal Mistake At Opening Ceremony](https://www.yahoo.com/news/olympics-apologize-colossal-mistake-opening-152248043.html)
 - Jul 27 - [Three members of family gospel group The Nelons killed in Wyoming plane crash](https://www.yahoo.com/news/three-members-family-gospel-group-145119967.html)
-- Jul 27 - [Historic downtown Oklahoma City building purchased, will be turned into housing](https://finance.yahoo.com/news/historic-downtown-oklahoma-city-building-110331757.html)
+- Jul 27 - [Trump urges Christians to vote: ‘You won’t have to do it’ in four years](https://www.yahoo.com/news/trump-urges-christians-vote-won-105653666.html)
 <!-- feed end -->
 
 ### Onstream
