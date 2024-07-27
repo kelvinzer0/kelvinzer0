@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Rocket kills 10 at a football pitch in Israeli-occupied Golan](https://www.yahoo.com/news/nine-people-killed-rocket-hits-171916545.html)
-- Jul 27 - [Trump Declares Outrageous Reason He Won't Pronounce 'Kamala' Correctly](https://www.yahoo.com/news/trump-declares-outrageous-reason-wont-164231288.html)
+- Jul 27 - [32-year-old Menasha man dies after falling at Ariens Nordic Center in Brillion](https://www.yahoo.com/news/32-old-menasha-man-dies-182559697.html)
+- Jul 27 - [Israel says Hezbollah rocket kills 11 at football ground, vows response](https://www.yahoo.com/news/nine-people-killed-rocket-hits-171916545.html)
 - Jul 27 - [Drag queens shine at Olympics opening, but 'Last Supper' tableau draws criticism](https://www.yahoo.com/entertainment/drag-queens-shine-olympics-opening-161950731.html)
 - Jul 27 - [Olympics Apologize For Colossal Mistake At Opening Ceremony](https://www.yahoo.com/news/olympics-apologize-colossal-mistake-opening-152248043.html)
 - Jul 27 - [Three members of family gospel group The Nelons killed in Wyoming plane crash](https://www.yahoo.com/news/three-members-family-gospel-group-145119967.html)
