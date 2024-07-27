@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Canadians mourn as Jasper, jewel of the Rockies, burns](https://www.yahoo.com/news/canadians-mourn-jasper-jewel-rockies-213426788.html)
-- Jul 26 - [Dangerous river levels cancel unlimited hydro racing 1st day of Tri-Cities Water Follies](https://sports.yahoo.com/dangerous-river-levels-cancel-unlimited-212741361.html)
+- Jul 26 - [Convicted killer fights sentence over age, disability](https://www.yahoo.com/news/convicted-killer-fights-sentence-over-220523559.html)
 - Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
-- Jul 26 - [Bitcoin to Account for 7% of Global Wealth, Surge in Price to $13M in 21 Years: Michael Saylor](https://finance.yahoo.com/news/bitcoin-account-7-global-wealth-201455806.html)
+- Jul 26 - [Can You Guess What Percent Of People Have $500,000 Saved For Retirement? Shockingly, It's Probably Less Than You Think](https://finance.yahoo.com/news/guess-percent-people-500-000-201512267.html)
 - Jul 26 - [Grandmother kills college track coach in murder-suicide in wealthy New York neighborhood: police](https://www.yahoo.com/news/grandmother-kills-college-track-coach-194803999.html)
+- Jul 26 - [Alison Chao’s father arrested by Monterey Park police](https://www.yahoo.com/news/alison-chao-father-arrested-monterey-191621242.html)
 <!-- feed end -->
 
 ### Onstream
