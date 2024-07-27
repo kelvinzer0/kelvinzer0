@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Ukrainian man plugged his whole house into a Tesla parked in his yard as locals find novel ways to battle rolling blackouts, report says](https://www.yahoo.com/news/ukrainian-man-plugged-whole-house-171335789.html)
-- Jul 27 - [Fears for father still in jail 19 years after laptop robbery under ‘scandalous’ IPP sentence](https://www.yahoo.com/news/fears-father-still-jail-19-162534171.html)
-- Jul 27 - [Body of missing 61-year-old Fort Worth man found in Jack County, officials say](https://www.yahoo.com/news/body-missing-61-old-fort-165939598.html)
+- Jul 27 - [Rocket kills 10 at a football pitch in Israeli-occupied Golan](https://www.yahoo.com/news/nine-people-killed-rocket-hits-171916545.html)
+- Jul 27 - [Trump Declares Outrageous Reason He Won't Pronounce 'Kamala' Correctly](https://www.yahoo.com/news/trump-declares-outrageous-reason-wont-164231288.html)
 - Jul 27 - [Drag queens shine at Olympics opening, but 'Last Supper' tableau draws criticism](https://www.yahoo.com/entertainment/drag-queens-shine-olympics-opening-161950731.html)
 - Jul 27 - [Olympics Apologize For Colossal Mistake At Opening Ceremony](https://www.yahoo.com/news/olympics-apologize-colossal-mistake-opening-152248043.html)
+- Jul 27 - [Three members of family gospel group The Nelons killed in Wyoming plane crash](https://www.yahoo.com/news/three-members-family-gospel-group-145119967.html)
 <!-- feed end -->
 
 ### Onstream
