@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Britain is 'broke and broken', new government declares](https://www.yahoo.com/news/britain-broke-broken-government-declares-213506948.html)
 - Jul 27 - [Trump Declares Outrageous Reason He Won't Pronounce 'Kamala' Correctly](https://www.yahoo.com/news/trump-declares-outrageous-reason-wont-164231288.html)
 - Jul 27 - [Drag queens shine at Olympics opening, but 'Last Supper' tableau draws criticism](https://www.yahoo.com/entertainment/drag-queens-shine-olympics-opening-161950731.html)
 - Jul 27 - [Olympics Apologize For Colossal Mistake At Opening Ceremony](https://www.yahoo.com/news/olympics-apologize-colossal-mistake-opening-152248043.html)
-- Jul 27 - [Three members of family gospel group The Nelons killed in Wyoming plane crash](https://www.yahoo.com/news/three-members-family-gospel-group-145119967.html)
-- Jul 27 - [Trump urges Christians to vote: ‘You won’t have to do it’ in four years](https://www.yahoo.com/news/trump-urges-christians-vote-won-105653666.html)
+- Jul 27 - [Hungary's Orban says Russia stands to gain as 'irrational' West loses power](https://www.yahoo.com/news/hungarys-orban-says-russia-stands-115859509.html)
 <!-- feed end -->
 
 ### Onstream
