@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Olympic organizers apologize for introducing South Korean athletes as North Korea](https://www.yahoo.com/news/olympic-organizers-apologize-introducing-south-092256844.html)
-- Jul 27 - [Historic Rapid Transit Building in Erie to sell nearly 500 items at 'old school' auction](https://www.yahoo.com/news/historic-rapid-transit-building-erie-091129065.html)
-- Jul 27 - [How a Vermont game warden got a bear out of the attic at a Stowe condominium](https://www.yahoo.com/news/vermont-game-warden-got-bear-090754969.html)
+- Jul 27 - [Dave Ramsey says he only has 3 investments — and doesn't need stock tips from your golfing buddy. Here's what they are](https://finance.yahoo.com/news/dave-ramsey-says-only-3-104400433.html)
 - Jul 27 - [‘A point of no return:’ Why Europe has become an epicenter for anti-tourism protests this summer](https://www.yahoo.com/news/point-no-return-why-europe-083002975.html)
-- Jul 27 - [2 Magnificent S&P 500 Dividend Stocks to Buy Now and Hold Forever](https://finance.yahoo.com/news/2-magnificent-p-500-dividend-082200187.html)
+- Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
+- Jul 27 - [Fresno County man sentenced to 29 years for sexually assaulting children, dog](https://www.yahoo.com/news/fresno-county-man-sentenced-29-020749160.html)
+- Jul 27 - [Homeless people say they will likely return to sites if California clears them under Newsom's order](https://www.yahoo.com/news/homeless-people-likely-return-sites-003423821.html)
 <!-- feed end -->
 
 ### Onstream
