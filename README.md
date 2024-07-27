@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [‘A point of no return:’ Why Europe has become an epicenter for anti-tourism protests this summer](https://www.yahoo.com/news/point-no-return-why-europe-083002975.html)
+- Jul 27 - [Richland County marriage licenses recorded July 15-19](https://www.yahoo.com/lifestyle/richland-county-marriage-licenses-recorded-090448356.html)
 - Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
 - Jul 27 - [Trump Tells Christians They Won’t Have to Vote in Future: ‘We’ll Have It Fixed’](https://www.yahoo.com/news/trump-tells-christians-won-t-034613098.html)
-- Jul 26 - [2 Delta Passengers Take Over VIP Lounge After Flight Delay](https://www.yahoo.com/news/2-delta-passengers-over-vip-222103018.html)
-- Jul 26 - [‘From house party to hoosegow’: Deputies make 10 arrests in Polk County house party bust](https://www.yahoo.com/news/house-party-hoosegow-deputies-10-203048592.html)
+- Jul 27 - [Bethel Park School District mourns death of beloved high school teacher](https://www.yahoo.com/news/bethel-park-school-district-mourns-023059856.html)
+- Jul 27 - [Fresno County man sentenced to 29 years for sexually assaulting children, dog](https://www.yahoo.com/news/fresno-county-man-sentenced-29-020749160.html)
 <!-- feed end -->
 
 ### Onstream
