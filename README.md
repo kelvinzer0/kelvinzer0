@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
-- Jul 27 - [Trump Tells Christians They Won’t Have to Vote in Future: ‘We’ll Have It Fixed’](https://www.yahoo.com/news/trump-tells-christians-won-t-034613098.html)
-- Jul 26 - [NASA just scored a badly needed win: The best potential evidence of alien life yet](https://www.yahoo.com/news/nasa-just-scored-badly-needed-235724855.html)
-- Jul 26 - [2 Delta Passengers Take Over VIP Lounge After Flight Delay](https://www.yahoo.com/news/2-delta-passengers-over-vip-222103018.html)
-- Jul 26 - [Major rollover crash in west suburbs: Two drivers injured, road remains closed](https://www.yahoo.com/news/major-rollover-crash-west-suburbs-213235683.html)
+- Jul 26 - [Convicted killer fights sentence over age, disability](https://www.yahoo.com/news/convicted-killer-fights-sentence-over-220523559.html)
+- Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
+- Jul 26 - [Can You Guess What Percent Of People Have $500,000 Saved For Retirement? Shockingly, It's Probably Less Than You Think](https://finance.yahoo.com/news/guess-percent-people-500-000-201512267.html)
+- Jul 26 - [Grandmother kills college track coach in murder-suicide in wealthy New York neighborhood: police](https://www.yahoo.com/news/grandmother-kills-college-track-coach-194803999.html)
 <!-- feed end -->
 
 ### Onstream
