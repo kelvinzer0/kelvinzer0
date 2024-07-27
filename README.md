@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Video shows an explosives-laden Jet Ski-style vehicle likely belonging to Ukraine floating off a beach in Turkey](https://www.yahoo.com/news/video-shows-explosives-laden-jet-122224187.html)
 - Jul 27 - [Hungary's Orban says Russia stands to gain as 'irrational' West loses power](https://www.yahoo.com/news/hungarys-orban-says-russia-stands-115859509.html)
-- Jul 27 - [Historic downtown Oklahoma City building purchased, will be turned into housing](https://finance.yahoo.com/news/historic-downtown-oklahoma-city-building-110331757.html)
-- Jul 27 - [Dave Ramsey says he only has 3 investments — and doesn't need stock tips from your golfing buddy. Here's what they are](https://finance.yahoo.com/news/dave-ramsey-says-only-3-104400433.html)
+- Jul 27 - [Trump urges Christians to vote: ‘You won’t have to do it’ in four years](https://www.yahoo.com/news/trump-urges-christians-vote-won-105653666.html)
 - Jul 27 - [Coca-Cola Just Agreed With Pepsi and McDonald's About the Economy. Here's What It Could Mean for Investors.](https://finance.yahoo.com/news/coca-cola-just-agreed-pepsi-093700127.html)
-- Jul 27 - [Fred Trump III: ‘Donald was the kind of child who could drive almost anyone around the bend’](https://www.yahoo.com/news/fred-trump-iii-donald-kind-050000040.html)
+- Jul 27 - [Historic Rapid Transit Building in Erie to sell nearly 500 items at 'old school' auction](https://www.yahoo.com/news/historic-rapid-transit-building-erie-091129065.html)
 <!-- feed end -->
 
 ### Onstream
