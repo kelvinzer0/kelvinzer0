@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Richland County marriage licenses recorded July 15-19](https://www.yahoo.com/lifestyle/richland-county-marriage-licenses-recorded-090448356.html)
-- Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
-- Jul 27 - [Trump Tells Christians They Won’t Have to Vote in Future: ‘We’ll Have It Fixed’](https://www.yahoo.com/news/trump-tells-christians-won-t-034613098.html)
-- Jul 27 - [Bethel Park School District mourns death of beloved high school teacher](https://www.yahoo.com/news/bethel-park-school-district-mourns-023059856.html)
-- Jul 27 - [Fresno County man sentenced to 29 years for sexually assaulting children, dog](https://www.yahoo.com/news/fresno-county-man-sentenced-29-020749160.html)
+- Jul 27 - [Olympic organizers apologize for introducing South Korean athletes as North Korea](https://www.yahoo.com/news/olympic-organizers-apologize-introducing-south-092256844.html)
+- Jul 27 - [Historic Rapid Transit Building in Erie to sell nearly 500 items at 'old school' auction](https://www.yahoo.com/news/historic-rapid-transit-building-erie-091129065.html)
+- Jul 27 - [How a Vermont game warden got a bear out of the attic at a Stowe condominium](https://www.yahoo.com/news/vermont-game-warden-got-bear-090754969.html)
+- Jul 27 - [‘A point of no return:’ Why Europe has become an epicenter for anti-tourism protests this summer](https://www.yahoo.com/news/point-no-return-why-europe-083002975.html)
+- Jul 27 - [2 Magnificent S&P 500 Dividend Stocks to Buy Now and Hold Forever](https://finance.yahoo.com/news/2-magnificent-p-500-dividend-082200187.html)
 <!-- feed end -->
 
 ### Onstream
