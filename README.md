@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Olympics Apologize For Colossal Mistake At Opening Ceremony](https://www.yahoo.com/news/olympics-apologize-colossal-mistake-opening-152248043.html)
 - Jul 27 - [Video shows an explosives-laden Jet Ski-style vehicle likely belonging to Ukraine floating off a beach in Turkey](https://www.yahoo.com/news/video-shows-explosives-laden-jet-122224187.html)
 - Jul 27 - [Hungary's Orban says Russia stands to gain as 'irrational' West loses power](https://www.yahoo.com/news/hungarys-orban-says-russia-stands-115859509.html)
-- Jul 27 - [Trump urges Christians to vote: ‘You won’t have to do it’ in four years](https://www.yahoo.com/news/trump-urges-christians-vote-won-105653666.html)
-- Jul 27 - [Coca-Cola Just Agreed With Pepsi and McDonald's About the Economy. Here's What It Could Mean for Investors.](https://finance.yahoo.com/news/coca-cola-just-agreed-pepsi-093700127.html)
-- Jul 27 - [Historic Rapid Transit Building in Erie to sell nearly 500 items at 'old school' auction](https://www.yahoo.com/news/historic-rapid-transit-building-erie-091129065.html)
+- Jul 27 - [Historic downtown Oklahoma City building purchased, will be turned into housing](https://finance.yahoo.com/news/historic-downtown-oklahoma-city-building-110331757.html)
+- Jul 27 - [Retired Astronaut Admits Boeing's Starliner Has Trapped Crew in Space](https://www.yahoo.com/news/retired-astronaut-admits-boeings-starliner-110005438.html)
 <!-- feed end -->
 
 ### Onstream
