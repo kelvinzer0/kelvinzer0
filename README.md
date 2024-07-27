@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Major rollover crash in west suburbs: Two drivers injured, road remains closed](https://www.yahoo.com/news/major-rollover-crash-west-suburbs-213235683.html)
-- Jul 26 - [Can You Guess What Percent Of People Have $500,000 Saved For Retirement? Shockingly, It's Probably Less Than You Think](https://finance.yahoo.com/news/guess-percent-people-500-000-201512267.html)
-- Jul 26 - [Sun blasts out most powerful flare of current solar cycle, sends massive coronal mass ejection into space (video)](https://www.yahoo.com/news/sun-blasts-most-powerful-flare-192951374.html)
-- Jul 26 - [Alison Chao’s father arrested by Monterey Park police](https://www.yahoo.com/news/alison-chao-father-arrested-monterey-191621242.html)
-- Jul 26 - [Boeing asks suppliers for decade-long titanium paper trail as check for forgeries widens](https://finance.yahoo.com/news/exclusive-boeing-asks-suppliers-decade-181249165.html)
+- Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
+- Jul 27 - [Bethel Park School District mourns death of beloved high school teacher](https://www.yahoo.com/news/bethel-park-school-district-mourns-023059856.html)
+- Jul 26 - [UPDATED: Big Country crash claims life of teenager](https://www.yahoo.com/news/updated-big-country-crash-claims-221943837.html)
+- Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
+- Jul 26 - [Jekyll Island Club Resort up for Best Destination Resort in the U.S.](https://www.yahoo.com/lifestyle/jekyll-island-club-resort-best-201553218.html)
 <!-- feed end -->
 
 ### Onstream
