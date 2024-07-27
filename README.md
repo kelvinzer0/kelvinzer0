@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
-- Jul 27 - [Bethel Park School District mourns death of beloved high school teacher](https://www.yahoo.com/news/bethel-park-school-district-mourns-023059856.html)
-- Jul 26 - [UPDATED: Big Country crash claims life of teenager](https://www.yahoo.com/news/updated-big-country-crash-claims-221943837.html)
+- Jul 27 - [Trump Tells Christians They Won’t Have to Vote in Future: ‘We’ll Have It Fixed’](https://www.yahoo.com/news/trump-tells-christians-won-t-034613098.html)
+- Jul 26 - [NASA just scored a badly needed win: The best potential evidence of alien life yet](https://www.yahoo.com/news/nasa-just-scored-badly-needed-235724855.html)
+- Jul 26 - [California education official embezzled over $16 million, hid cash in mini fridge](https://www.yahoo.com/news/california-education-official-embezzled-over-211600620.html)
 - Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
-- Jul 26 - [Jekyll Island Club Resort up for Best Destination Resort in the U.S.](https://www.yahoo.com/lifestyle/jekyll-island-club-resort-best-201553218.html)
 <!-- feed end -->
 
 ### Onstream
