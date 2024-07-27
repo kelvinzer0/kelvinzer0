@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [‘A point of no return:’ Why Europe has become an epicenter for anti-tourism protests this summer](https://www.yahoo.com/news/point-no-return-why-europe-083002975.html)
 - Jul 27 - [China's foreign minister warns Philippines over US missile deployment](https://www.yahoo.com/news/chinas-foreign-minister-warns-philippines-040220667.html)
-- Jul 26 - [Convicted killer fights sentence over age, disability](https://www.yahoo.com/news/convicted-killer-fights-sentence-over-220523559.html)
-- Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
-- Jul 26 - [Can You Guess What Percent Of People Have $500,000 Saved For Retirement? Shockingly, It's Probably Less Than You Think](https://finance.yahoo.com/news/guess-percent-people-500-000-201512267.html)
-- Jul 26 - [Grandmother kills college track coach in murder-suicide in wealthy New York neighborhood: police](https://www.yahoo.com/news/grandmother-kills-college-track-coach-194803999.html)
+- Jul 27 - [Trump Tells Christians They Won’t Have to Vote in Future: ‘We’ll Have It Fixed’](https://www.yahoo.com/news/trump-tells-christians-won-t-034613098.html)
+- Jul 26 - [2 Delta Passengers Take Over VIP Lounge After Flight Delay](https://www.yahoo.com/news/2-delta-passengers-over-vip-222103018.html)
+- Jul 26 - [‘From house party to hoosegow’: Deputies make 10 arrests in Polk County house party bust](https://www.yahoo.com/news/house-party-hoosegow-deputies-10-203048592.html)
 <!-- feed end -->
 
 ### Onstream
