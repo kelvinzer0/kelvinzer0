@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Convicted killer fights sentence over age, disability](https://www.yahoo.com/news/convicted-killer-fights-sentence-over-220523559.html)
+- Jul 26 - [NASA just scored a badly needed win: The best potential evidence of alien life yet](https://www.yahoo.com/news/nasa-just-scored-badly-needed-235724855.html)
+- Jul 26 - [California education official embezzled over $16 million, hid cash in mini fridge](https://www.yahoo.com/news/california-education-official-embezzled-over-211600620.html)
 - Jul 26 - [Donald Trump Seen in Public Without Ear Bandage](https://www.yahoo.com/news/donald-trump-seen-public-without-205550050.html)
 - Jul 26 - [Can You Guess What Percent Of People Have $500,000 Saved For Retirement? Shockingly, It's Probably Less Than You Think](https://finance.yahoo.com/news/guess-percent-people-500-000-201512267.html)
-- Jul 26 - [Grandmother kills college track coach in murder-suicide in wealthy New York neighborhood: police](https://www.yahoo.com/news/grandmother-kills-college-track-coach-194803999.html)
 - Jul 26 - [Alison Chao’s father arrested by Monterey Park police](https://www.yahoo.com/news/alison-chao-father-arrested-monterey-191621242.html)
 <!-- feed end -->
 
