@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [‘It feels really out of nowhere’: Patrons stunned by closure of popular Robinson Township restaurant](https://www.yahoo.com/news/feels-really-nowhere-patrons-stunned-015921441.html)
+- Jul 28 - [Harris camp responds to Trump telling Christians they 'don't have to vote again' if he gets elected](https://www.yahoo.com/news/harris-camp-responds-trump-telling-010825886.html)
 - Jul 27 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 - Jul 27 - [NYC mayor issues emergency order suspending parts of new solitary confinement law](https://www.yahoo.com/news/nyc-mayor-issues-emergency-order-225300294.html)
-- Jul 27 - [Don Jr. Slams ‘Satanic’ Olympics Opening: ‘Mom Was Olympian’](https://www.yahoo.com/entertainment/don-jr-slams-satanic-olympics-203353454.html)
-- Jul 27 - [Note to JD Vance: Appalachia is in no need of political charlatans and their elegies](https://www.yahoo.com/news/note-jd-vance-appalachia-no-175300147.html)
-- Jul 27 - [Trump Declares Outrageous Reason He Won't Pronounce 'Kamala' Correctly](https://www.yahoo.com/news/trump-declares-outrageous-reason-wont-164231288.html)
+- Jul 27 - [Inside the Sordid Case of a Predator Teacher Who Had Teen's Baby, Then Cried in Court During Sentencing](https://www.yahoo.com/news/inside-sordid-case-predator-teacher-210000756.html)
 <!-- feed end -->
 
 ### Onstream
