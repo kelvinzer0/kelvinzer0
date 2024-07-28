@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [A prized golf course in Virginia Beach has fallen into disrepair. It needs millions of dollars of work.](https://www.yahoo.com/news/prized-golf-course-virginia-beach-174600224.html)
+- Jul 28 - [How a millennial couple went from $750,000 in debt to being on track to retire in their 40s](https://finance.yahoo.com/news/millennial-couple-went-750-000-173702431.html)
+- Jul 28 - [California's Park Fire continues to grow as thousands of residents flee area for safety](https://www.yahoo.com/news/californias-park-fire-continues-grow-160524846.html)
 - Jul 28 - [38 Pictures Of Olympians That Basically Just Completely Freak Me Out](https://www.yahoo.com/entertainment/38-pictures-olympians-basically-just-150656140.html)
+- Jul 28 - [Vermont farms face another round of devastating flooding for second summer in a row](https://www.yahoo.com/news/vermont-farms-face-another-round-140801443.html)
 - Jul 28 - [Hamas sends hostage torture video with direct warning to Israeli minister](https://www.yahoo.com/news/hamas-sends-hostage-torture-video-134411858.html)
-- Jul 28 - [Why regional banks are now willing to take billions in losses](https://finance.yahoo.com/news/why-regional-banks-are-now-willing-to-take-billions-in-losses-123009272.html)
-- Jul 28 - [Why Britain’s F-35s could be consigned to the scrap heap](https://www.yahoo.com/news/why-britain-f-35s-could-110000357.html)
 <!-- feed end -->
 
 ### Onstream
