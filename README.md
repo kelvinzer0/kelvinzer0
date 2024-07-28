@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [This Ultra-High-Yield Dividend Stock Battled Headwinds and Came Out On Top](https://finance.yahoo.com/news/ultra-high-yield-dividend-stock-122800429.html)
 - Jul 28 - [Why Britain’s F-35s could be consigned to the scrap heap](https://www.yahoo.com/news/why-britain-f-35s-could-110000357.html)
 - Jul 28 - [Putin warns the United States of Cold War-style missile crisis](https://www.yahoo.com/news/putin-warns-united-states-cold-091234744.html)
-- Jul 28 - [Philippines says China 'mischaracterised' South China Sea resupply mission deal](https://www.yahoo.com/news/philippines-says-china-mischaracterised-south-082923672.html)
 - Jul 28 - [Wisconsin Republicans ask voters to take away governor's power to spend federal money](https://www.yahoo.com/news/wisconsin-republicans-ask-voters-away-050315130.html)
 - Jul 28 - [Southern California man beaten, stabbed in the head by neighbor](https://www.yahoo.com/news/southern-california-man-beaten-stabbed-025410535.html)
 <!-- feed end -->
