@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Where It Paid Most to Sell Your Home This Spring. Think 55.8% Gains.](https://www.barrons.com/articles/where-it-paid-most-to-sell-your-home-55-percent-gains-10d3fcef?siteid=yhoof2&yptr=yahoo)
 - Jul 28 - [Wisconsin Republicans ask voters to take away governor's power to spend federal money](https://www.yahoo.com/news/wisconsin-republicans-ask-voters-away-050315130.html)
 - Jul 28 - [Southern California man beaten, stabbed in the head by neighbor](https://www.yahoo.com/news/southern-california-man-beaten-stabbed-025410535.html)
 - Jul 28 - [‘It feels really out of nowhere’: Patrons stunned by closure of popular Robinson Township restaurant](https://www.yahoo.com/news/feels-really-nowhere-patrons-stunned-015921441.html)
 - Jul 28 - [Harris camp responds to Trump telling Christians they 'don't have to vote again' if he gets elected](https://www.yahoo.com/news/harris-camp-responds-trump-telling-010825886.html)
-- Jul 27 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 <!-- feed end -->
 
 ### Onstream
