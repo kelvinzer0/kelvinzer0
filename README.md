@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Britain is 'broke and broken', new government declares](https://www.yahoo.com/news/britain-broke-broken-government-declares-213506948.html)
+- Jul 27 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- Jul 27 - [NYC mayor issues emergency order suspending parts of new solitary confinement law](https://www.yahoo.com/news/nyc-mayor-issues-emergency-order-225300294.html)
+- Jul 27 - [Don Jr. Slams ‘Satanic’ Olympics Opening: ‘Mom Was Olympian’](https://www.yahoo.com/entertainment/don-jr-slams-satanic-olympics-203353454.html)
+- Jul 27 - [Note to JD Vance: Appalachia is in no need of political charlatans and their elegies](https://www.yahoo.com/news/note-jd-vance-appalachia-no-175300147.html)
 - Jul 27 - [Trump Declares Outrageous Reason He Won't Pronounce 'Kamala' Correctly](https://www.yahoo.com/news/trump-declares-outrageous-reason-wont-164231288.html)
-- Jul 27 - [Drag queens shine at Olympics opening, but 'Last Supper' tableau draws criticism](https://www.yahoo.com/entertainment/drag-queens-shine-olympics-opening-161950731.html)
-- Jul 27 - [Olympics Apologize For Colossal Mistake At Opening Ceremony](https://www.yahoo.com/news/olympics-apologize-colossal-mistake-opening-152248043.html)
-- Jul 27 - [Hungary's Orban says Russia stands to gain as 'irrational' West loses power](https://www.yahoo.com/news/hungarys-orban-says-russia-stands-115859509.html)
 <!-- feed end -->
 
 ### Onstream
