@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Putin’s family values tsar ‘leaves Orthodox priest husband for billionaire’](https://www.yahoo.com/news/putin-family-values-tsar-leaves-141706379.html)
 - Jul 28 - [Hamas sends hostage torture video with direct warning to Israeli minister](https://www.yahoo.com/news/hamas-sends-hostage-torture-video-134411858.html)
-- Jul 28 - [Why Britain’s F-35s could be consigned to the scrap heap](https://www.yahoo.com/news/why-britain-f-35s-could-110000357.html)
-- Jul 28 - [Italy's Meloni vows to 'relaunch' cooperation with China](https://www.yahoo.com/news/italys-meloni-vows-relaunch-cooperation-104402351.html)
-- Jul 28 - [Putin warns the United States of Cold War-style missile crisis](https://www.yahoo.com/news/putin-warns-united-states-cold-091234744.html)
-- Jul 28 - [Wisconsin Republicans ask voters to take away governor's power to spend federal money](https://www.yahoo.com/news/wisconsin-republicans-ask-voters-away-050315130.html)
+- Jul 28 - [Mechanics: Don’t Buy These 8 Trucks That Cost the Most Money Over Time](https://finance.yahoo.com/news/mechanics-don-t-buy-8-130102328.html)
+- Jul 28 - [Why regional banks are now willing to take billions in losses](https://finance.yahoo.com/news/why-regional-banks-are-now-willing-to-take-billions-in-losses-123009272.html)
+- Jul 28 - [A man missing for 14 days in Kentucky’s wilderness was found on the last day of the search for him](https://www.yahoo.com/news/ohio-hiker-rescued-missing-14-000002060.html)
 <!-- feed end -->
 
 ### Onstream
