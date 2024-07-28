@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Israel attacks targets in Lebanon after deadly Golan Heights strike](https://www.yahoo.com/news/israel-attacks-targets-lebanon-deadly-062241818.html)
 - Jul 28 - [Beijing pressures lawmakers from 6 countries not to attend conference in Taiwan](https://www.yahoo.com/news/beijing-pressures-lawmakers-6-countries-061736056.html)
 - Jul 28 - [Wisconsin Republicans ask voters to take away governor's power to spend federal money](https://www.yahoo.com/news/wisconsin-republicans-ask-voters-away-050315130.html)
 - Jul 28 - [Southern California man beaten, stabbed in the head by neighbor](https://www.yahoo.com/news/southern-california-man-beaten-stabbed-025410535.html)
 - Jul 28 - [‘It feels really out of nowhere’: Patrons stunned by closure of popular Robinson Township restaurant](https://www.yahoo.com/news/feels-really-nowhere-patrons-stunned-015921441.html)
+- Jul 28 - [Harris camp responds to Trump telling Christians they 'don't have to vote again' if he gets elected](https://www.yahoo.com/news/harris-camp-responds-trump-telling-010825886.html)
 <!-- feed end -->
 
 ### Onstream
