@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Dozens of Wagner fighters killed and Russian helicopter destroyed in Mali ambush](https://www.yahoo.com/news/dozens-wagner-fighters-killed-russian-192007431.html)
+- Jul 28 - [Apple's artificial intelligence features to be delayed, Bloomberg News reports](https://finance.yahoo.com/news/apples-artificial-intelligence-features-delayed-185715406.html)
 - Jul 28 - [How a millennial couple went from $750,000 in debt to being on track to retire in their 40s](https://finance.yahoo.com/news/millennial-couple-went-750-000-173702431.html)
-- Jul 28 - [California's Park Fire continues to grow as thousands of residents flee area for safety](https://www.yahoo.com/news/californias-park-fire-continues-grow-160524846.html)
-- Jul 28 - [38 Pictures Of Olympians That Basically Just Completely Freak Me Out](https://www.yahoo.com/entertainment/38-pictures-olympians-basically-just-150656140.html)
-- Jul 28 - [Vermont farms face another round of devastating flooding for second summer in a row](https://www.yahoo.com/news/vermont-farms-face-another-round-140801443.html)
-- Jul 28 - [Hamas sends hostage torture video with direct warning to Israeli minister](https://www.yahoo.com/news/hamas-sends-hostage-torture-video-134411858.html)
+- Jul 28 - [Thousands in Ukraine honor soldiers killed in blast and urge government to get prisoners freed](https://www.yahoo.com/news/thousands-ukraine-honor-soldiers-killed-172354233.html)
+- Jul 28 - [Air tanker pilot killed in Eastern Oregon crash identified](https://www.yahoo.com/news/air-tanker-pilot-killed-eastern-163759974.html)
 <!-- feed end -->
 
 ### Onstream
