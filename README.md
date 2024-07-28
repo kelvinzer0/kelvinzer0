@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Erdogan says Turkey might enter Israel to help Palestinians](https://www.yahoo.com/news/erdogan-says-turkey-might-enter-201117666.html)
+- Jul 28 - [Kamala Harris rally draws hundreds of golf carts in conservative Florida community, the Villages](https://www.yahoo.com/news/kamala-harris-rally-draws-hundreds-of-golf-carts-in-conservative-florida-community-the-villages-200715047.html)
 - Jul 28 - [Dozens of Wagner fighters killed and Russian helicopter destroyed in Mali ambush](https://www.yahoo.com/news/dozens-wagner-fighters-killed-russian-192007431.html)
 - Jul 28 - [Apple's artificial intelligence features to be delayed, Bloomberg News reports](https://finance.yahoo.com/news/apples-artificial-intelligence-features-delayed-185715406.html)
-- Jul 28 - [How a millennial couple went from $750,000 in debt to being on track to retire in their 40s](https://finance.yahoo.com/news/millennial-couple-went-750-000-173702431.html)
-- Jul 28 - [Thousands in Ukraine honor soldiers killed in blast and urge government to get prisoners freed](https://www.yahoo.com/news/thousands-ukraine-honor-soldiers-killed-172354233.html)
-- Jul 28 - [Air tanker pilot killed in Eastern Oregon crash identified](https://www.yahoo.com/news/air-tanker-pilot-killed-eastern-163759974.html)
+- Jul 28 - [Cotton says Trump’s ‘you won’t have to vote anymore’ comment was him ‘obviously making a joke’](https://www.yahoo.com/news/cotton-says-trump-won-t-181713991.html)
 <!-- feed end -->
 
 ### Onstream
