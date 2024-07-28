@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Woman dies after attack while walking dog](https://www.yahoo.com/news/woman-dies-attack-while-walking-212124284.html)
-- Jul 28 - [Employee refuses to give ‘condolence money’ after not receiving any themselves](https://www.yahoo.com/lifestyle/employee-refuses-condolence-money-not-204033329.html)
 - Jul 28 - [Erdogan says Turkey might enter Israel to help Palestinians](https://www.yahoo.com/news/erdogan-says-turkey-might-enter-201117666.html)
 - Jul 28 - [Kamala Harris rally draws hundreds of golf carts in conservative Florida community, the Villages](https://www.yahoo.com/news/kamala-harris-rally-draws-hundreds-of-golf-carts-in-conservative-florida-community-the-villages-200715047.html)
 - Jul 28 - [Dozens of Wagner fighters killed and Russian helicopter destroyed in Mali ambush](https://www.yahoo.com/news/dozens-wagner-fighters-killed-russian-192007431.html)
+- Jul 28 - [Apple's artificial intelligence features to be delayed, Bloomberg News reports](https://finance.yahoo.com/news/apples-artificial-intelligence-features-delayed-185715335.html)
+- Jul 28 - [Rare soaking rain event Monday in Seattle and Puget Sound](https://www.yahoo.com/news/rare-soaking-rain-event-monday-181056229.html)
 <!-- feed end -->
 
 ### Onstream
