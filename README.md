@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Lawmakers from 6 countries say Beijing is pressuring them not to attend summit in Taiwan.](https://www.yahoo.com/news/beijing-pressures-lawmakers-6-countries-061736056.html)
+- Jul 28 - [Priti Patel becomes fifth to declare Tory leadership bid](https://www.yahoo.com/news/priti-patel-becomes-fifth-declare-100038946.html)
+- Jul 28 - [Putin warns the United States of Cold War-style missile crisis](https://www.yahoo.com/news/putin-warns-united-states-cold-091234744.html)
+- Jul 28 - [Don't Fall for These 3 Dividend Stocks: Cuts Are Coming](https://finance.yahoo.com/news/dont-fall-3-dividend-stocks-075700039.html)
 - Jul 28 - [Wisconsin Republicans ask voters to take away governor's power to spend federal money](https://www.yahoo.com/news/wisconsin-republicans-ask-voters-away-050315130.html)
 - Jul 28 - [Southern California man beaten, stabbed in the head by neighbor](https://www.yahoo.com/news/southern-california-man-beaten-stabbed-025410535.html)
-- Jul 28 - [‘It feels really out of nowhere’: Patrons stunned by closure of popular Robinson Township restaurant](https://www.yahoo.com/news/feels-really-nowhere-patrons-stunned-015921441.html)
-- Jul 28 - [Officials issue warning about invasive species taking over local lake: 'We know very well the damage and harm [they] do'](https://www.yahoo.com/news/officials-issue-warning-invasive-species-013000060.html)
 <!-- feed end -->
 
 ### Onstream
