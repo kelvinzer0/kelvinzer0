@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Putin’s family values tsar ‘leaves Orthodox priest husband for billionaire’](https://www.yahoo.com/news/putin-family-values-tsar-leaves-141706379.html)
+- Jul 28 - [38 Pictures Of Olympians That Basically Just Completely Freak Me Out](https://www.yahoo.com/entertainment/38-pictures-olympians-basically-just-150656140.html)
+- Jul 28 - [Man held at Richland County jail dies after being taken to hospital, SC officials say](https://www.yahoo.com/news/man-held-richland-county-jail-150553664.html)
+- Jul 28 - [DC police release photos of group accused of armed carjacking in Southeast](https://www.yahoo.com/news/dc-police-release-photos-group-144458880.html)
+- Jul 28 - [How Hong Kong turned into what some observers call a police state](https://www.yahoo.com/news/hong-kong-turned-observers-call-142205599.html)
 - Jul 28 - [Hamas sends hostage torture video with direct warning to Israeli minister](https://www.yahoo.com/news/hamas-sends-hostage-torture-video-134411858.html)
-- Jul 28 - [Mechanics: Don’t Buy These 8 Trucks That Cost the Most Money Over Time](https://finance.yahoo.com/news/mechanics-don-t-buy-8-130102328.html)
-- Jul 28 - [Why regional banks are now willing to take billions in losses](https://finance.yahoo.com/news/why-regional-banks-are-now-willing-to-take-billions-in-losses-123009272.html)
-- Jul 28 - [A man missing for 14 days in Kentucky’s wilderness was found on the last day of the search for him](https://www.yahoo.com/news/ohio-hiker-rescued-missing-14-000002060.html)
 <!-- feed end -->
 
 ### Onstream
