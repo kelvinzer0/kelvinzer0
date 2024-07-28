@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Olympics opening ceremony tableau sparks outrage among Christian community](https://www.yahoo.com/news/olympics-opening-ceremony-tableau-sparks-025408404.html)
 - Jul 28 - [‘It feels really out of nowhere’: Patrons stunned by closure of popular Robinson Township restaurant](https://www.yahoo.com/news/feels-really-nowhere-patrons-stunned-015921441.html)
 - Jul 28 - [Harris camp responds to Trump telling Christians they 'don't have to vote again' if he gets elected](https://www.yahoo.com/news/harris-camp-responds-trump-telling-010825886.html)
-- Jul 27 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
-- Jul 27 - [NYC mayor issues emergency order suspending parts of new solitary confinement law](https://www.yahoo.com/news/nyc-mayor-issues-emergency-order-225300294.html)
-- Jul 27 - [Inside the Sordid Case of a Predator Teacher Who Had Teen's Baby, Then Cried in Court During Sentencing](https://www.yahoo.com/news/inside-sordid-case-predator-teacher-210000756.html)
+- Jul 27 - [Polish journalist suspended for calling 'Imagine' a 'vision of communism' during Olympic opening](https://www.yahoo.com/news/polish-journalist-suspended-calling-imagine-192822016.html)
+- Jul 27 - [Hot Springs woman facing several charges after allegedly running over elderly man in Benton](https://www.yahoo.com/news/hot-springs-woman-facing-several-183433880.html)
 <!-- feed end -->
 
 ### Onstream
