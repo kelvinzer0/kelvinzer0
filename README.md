@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [38 Pictures Of Olympians That Basically Just Completely Freak Me Out](https://www.yahoo.com/entertainment/38-pictures-olympians-basically-just-150656140.html)
-- Jul 28 - [Man held at Richland County jail dies after being taken to hospital, SC officials say](https://www.yahoo.com/news/man-held-richland-county-jail-150553664.html)
-- Jul 28 - [DC police release photos of group accused of armed carjacking in Southeast](https://www.yahoo.com/news/dc-police-release-photos-group-144458880.html)
+- Jul 28 - [How ‘back to basics’ police chief brought shoplifters to justice](https://www.yahoo.com/news/back-basics-police-chief-brought-165326000.html)
+- Jul 28 - [Officials Say Park Fire Shows 'Extreme Fire Behavior'](https://www.yahoo.com/news/officials-park-fire-shows-extreme-162536474.html)
+- Jul 28 - [26-year-old woman fatally stabbed late Friday during argument with man in Winter Haven](https://www.yahoo.com/news/26-old-woman-fatally-stabbed-154907220.html)
 - Jul 28 - [How Hong Kong turned into what some observers call a police state](https://www.yahoo.com/news/hong-kong-turned-observers-call-142205599.html)
-- Jul 28 - [Hamas sends hostage torture video with direct warning to Israeli minister](https://www.yahoo.com/news/hamas-sends-hostage-torture-video-134411858.html)
+- Jul 28 - [Photos show what it was like to eat at McDonald's in the 1980s](https://www.yahoo.com/news/photos-show-eat-mcdonalds-1980s-160853244.html)
 <!-- feed end -->
 
 ### Onstream
