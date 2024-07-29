@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Man, 83, is found safe days after he went missing during Crowdstrike IT outage and missed his flight home](https://www.yahoo.com/news/man-83-found-safe-days-212930309.html)
+- Jul 29 - [At training event in Philippines, harsh climate challenges sustainment](https://www.yahoo.com/news/training-event-philippines-harsh-climate-213042450.html)
 - Jul 29 - [Myrtle Beach, SC pastor John-Paul Miller in court regarding his late wife, Mica Miller](https://www.yahoo.com/news/myrtle-beach-sc-pastor-john-204819144.html)
-- Jul 29 - [McDonald's Pops Above Key Level Despite Earnings Miss On This 'Value' Shift](https://www.investors.com/news/mcdonalds-stock-mcdonalds-earnings-q2-2024-5-meal-deal/?src=A00220&yptr=yahoo)
+- Jul 29 - [Car plunges hundreds of feet off Devil's Slide along California's Highway 1, killing 3](https://www.yahoo.com/news/car-plunges-hundreds-feet-off-203825570.html)
 - Jul 29 - [Supreme Court Rocked by New Leak of Bitter Abortion Split](https://www.yahoo.com/news/supreme-court-rocked-leak-bitter-195143865.html)
-- Jul 29 - [PD: Man arrested after he knocks on door, stabs resident](https://www.yahoo.com/news/pd-man-arrested-knocks-door-195009860.html)
-- Jul 29 - [Trial canceled in North Dakota abortion ban lawsuit as judge ponders dismissal](https://www.yahoo.com/news/trial-canceled-north-dakota-abortion-191737075.html)
 <!-- feed end -->
 
 ### Onstream
