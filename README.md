@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Cognitive Decline? Trump Makes Major Slip-Up in Attacking Ilhan Omar](https://www.yahoo.com/news/cognitive-decline-trump-makes-major-145001863.html)
-- Jul 29 - [Paramilitaries gang rape girls as young as nine in Sudan, report warns](https://www.yahoo.com/news/paramilitaries-gang-rape-girls-young-134658781.html)
-- Jul 29 - [Prison officer who had sex with inmate on video pleads guilty](https://www.yahoo.com/news/prison-officer-had-sex-inmate-134248467.html)
-- Jul 29 - ['The crew is vomiting': United Airlines flight diverted after 'biohazard' reported](https://www.yahoo.com/news/crew-vomiting-united-airlines-flight-133857023.html)
-- Jul 29 - [The discovery of a possible sign of life in Venus’ clouds sparked controversy. Now, scientists say they have more proof](https://www.yahoo.com/news/venus-atmosphere-shows-potential-signs-103004385.html)
+- Jul 29 - [Hezbollah has exposed the West’s fatal cowardice](https://www.yahoo.com/news/hezbollah-exposed-west-fatal-cowardice-160012363.html)
+- Jul 29 - [Maduro’s Next Move Is Key With US and Brazil Questioning His Victory](https://finance.yahoo.com/news/maduro-next-move-key-us-153501167.html)
+- Jul 29 - ["Old and quite weird": Democrats finally discover new effective attack — and Republicans hate it](https://www.yahoo.com/news/old-quite-weird-democrats-finally-152816300.html)
+- Jul 29 - [Two 4-year-old boys and woman, 72, die when their boat being towed capsized](https://www.yahoo.com/news/two-4-old-boys-woman-151458278.html)
+- Jul 29 - [WesBanco to acquire Ohio bank in $959M all stock deal](https://finance.yahoo.com/news/wesbanco-acquire-ohio-bank-959m-145639007.html)
 <!-- feed end -->
 
 ### Onstream
