@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jul 29 - [‘Not prepared’: Congressional panel calls for huge defense buildup](https://www.yahoo.com/news/not-prepared-congressional-panel-calls-123701505.html)
-- Jul 29 - [Russia makes breakthroughs in eastern Ukraine](https://www.yahoo.com/news/russia-makes-breakthroughs-eastern-ukraine-110607467.html)
-- Jul 29 - [Watch Florida Highway Patrol Drop The Hammer On A Street Takeover](https://autos.yahoo.com/watch-florida-highway-patrol-drop-120000315.html)
-- Jul 29 - [Ukraine developed new shields for its US-made Bradleys, which are excelling against Russia](https://www.yahoo.com/news/ukraine-developed-shields-us-made-112242481.html)
+- Jul 29 - [6 ways to tell your health is improving without weighing yourself](https://www.yahoo.com/lifestyle/health-improve-weight-loss-scales-135136568.html)
+- Jul 29 - [Starbucks expected to report weak sales as it pushes popping pearls and value plays](https://finance.yahoo.com/news/starbucks-expected-to-report-weak-sales-as-it-pushes-popping-pearls-and-value-plays-133900442.html)
+- Jul 29 - [Weekend bomb threat on Mackinac Island deemed not credible](https://www.yahoo.com/news/weekend-bomb-threat-mackinac-island-133312305.html)
+- Jul 29 - [Biden calls for Supreme Court reforms, including code of ethics for justices](https://www.yahoo.com/news/biden-calls-supreme-court-reforms-132625424.html)
+- Jul 29 - [The discovery of a possible sign of life in Venus’ clouds sparked controversy. Now, scientists say they have more proof](https://www.yahoo.com/news/venus-atmosphere-shows-potential-signs-103004385.html)
 <!-- feed end -->
 
 ### Onstream
