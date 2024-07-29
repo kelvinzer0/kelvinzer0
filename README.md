@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [6 ways to tell your health is improving without weighing yourself](https://www.yahoo.com/lifestyle/health-improve-weight-loss-scales-135136568.html)
-- Jul 29 - [Starbucks expected to report weak sales as it pushes popping pearls and value plays](https://finance.yahoo.com/news/starbucks-expected-to-report-weak-sales-as-it-pushes-popping-pearls-and-value-plays-133900442.html)
-- Jul 29 - [Weekend bomb threat on Mackinac Island deemed not credible](https://www.yahoo.com/news/weekend-bomb-threat-mackinac-island-133312305.html)
-- Jul 29 - [Biden calls for Supreme Court reforms, including code of ethics for justices](https://www.yahoo.com/news/biden-calls-supreme-court-reforms-132625424.html)
+- Jul 29 - [Cognitive Decline? Trump Makes Major Slip-Up in Attacking Ilhan Omar](https://www.yahoo.com/news/cognitive-decline-trump-makes-major-145001863.html)
+- Jul 29 - [Paramilitaries gang rape girls as young as nine in Sudan, report warns](https://www.yahoo.com/news/paramilitaries-gang-rape-girls-young-134658781.html)
+- Jul 29 - [Prison officer who had sex with inmate on video pleads guilty](https://www.yahoo.com/news/prison-officer-had-sex-inmate-134248467.html)
+- Jul 29 - ['The crew is vomiting': United Airlines flight diverted after 'biohazard' reported](https://www.yahoo.com/news/crew-vomiting-united-airlines-flight-133857023.html)
 - Jul 29 - [The discovery of a possible sign of life in Venus’ clouds sparked controversy. Now, scientists say they have more proof](https://www.yahoo.com/news/venus-atmosphere-shows-potential-signs-103004385.html)
 <!-- feed end -->
 
