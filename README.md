@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Melinda French Gates Says Elon Musk, Peter Thiel and Other Billionaires Are Not Philanthropists](https://www.yahoo.com/news/melinda-french-gates-says-elon-234437664.html)
+- Jul 28 - [Former Rockwell Collins chief being considered for Boeing CEO, report says](https://finance.yahoo.com/news/former-rockwell-collins-chief-being-220404879.html)
+- Jul 28 - [Last Chance for Vance? Could Trump Ditch VP Pick? Polling Momentum For Harris Shows Close Race Ahead](https://www.yahoo.com/news/last-chance-vance-could-trump-214000316.html)
+- Jul 28 - [Missing man out of Orlando International Airport has been located safe and sound](https://www.yahoo.com/news/missing-man-orlando-international-airport-202854681.html)
 - Jul 28 - [Erdogan says Turkey might enter Israel to help Palestinians](https://www.yahoo.com/news/erdogan-says-turkey-might-enter-201117666.html)
-- Jul 28 - [Kamala Harris rally draws hundreds of golf carts in conservative Florida community, the Villages](https://www.yahoo.com/news/kamala-harris-rally-draws-hundreds-of-golf-carts-in-conservative-florida-community-the-villages-200715047.html)
-- Jul 28 - [Dozens of Wagner fighters killed and Russian helicopter destroyed in Mali ambush](https://www.yahoo.com/news/dozens-wagner-fighters-killed-russian-192007431.html)
-- Jul 28 - [Apple's artificial intelligence features to be delayed, Bloomberg News reports](https://finance.yahoo.com/news/apples-artificial-intelligence-features-delayed-185715335.html)
-- Jul 28 - [Rare soaking rain event Monday in Seattle and Puget Sound](https://www.yahoo.com/news/rare-soaking-rain-event-monday-181056229.html)
 <!-- feed end -->
 
 ### Onstream
