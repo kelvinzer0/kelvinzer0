@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 29 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jul 29 - [12 Reasons You Should Claim Social Security Right Now](https://finance.yahoo.com/news/12-reasons-claim-social-security-130041621.html)
+- Jul 29 - [‘Not prepared’: Congressional panel calls for huge defense buildup](https://www.yahoo.com/news/not-prepared-congressional-panel-calls-123701505.html)
+- Jul 29 - [Russia makes breakthroughs in eastern Ukraine](https://www.yahoo.com/news/russia-makes-breakthroughs-eastern-ukraine-110607467.html)
+- Jul 29 - [Watch Florida Highway Patrol Drop The Hammer On A Street Takeover](https://autos.yahoo.com/watch-florida-highway-patrol-drop-120000315.html)
 - Jul 29 - [Ukraine developed new shields for its US-made Bradleys, which are excelling against Russia](https://www.yahoo.com/news/ukraine-developed-shields-us-made-112242481.html)
-- Jul 29 - [North Korean officials looking for medicines for Kim's obesity-related health problems, Seoul says](https://www.yahoo.com/news/north-korean-officials-looking-medicines-110628114.html)
-- Jul 29 - [Kremlin rejects Western media speculation that Russia was behind rail sabotage in France](https://www.yahoo.com/news/kremlin-rejects-western-media-speculation-101631427.html)
 <!-- feed end -->
 
 ### Onstream
