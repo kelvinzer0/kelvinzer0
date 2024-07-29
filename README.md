@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - ['Name It What It Is': Gov. Tim Walz Hits Trump & Co. With Scathing 1-Word Takedown](https://www.yahoo.com/news/name-gov-tim-walz-hits-063823028.html)
-- Jul 29 - [Japan puts the brakes on electric rideable suitcases](https://www.yahoo.com/news/japan-launches-crackdown-electric-rideable-060000100.html)
-- Jul 29 - [Museums closed Native American exhibits 6 months ago. Tribes are still waiting to get items back](https://www.yahoo.com/news/museums-closed-native-american-exhibits-040541551.html)
-- Jul 29 - [5,000 people rescued from flooding in North Korea in evacuation efforts led by Kim, report says](https://www.yahoo.com/news/5-000-people-rescued-flooding-025720544.html)
-- Jul 28 - [Video: This Is What A Gas Station Explosion Looks Like](https://autos.yahoo.com/video-gas-station-explosion-looks-143000280.html)
+- Jul 29 - [Just Stop Oil activists block Gatwick Airport departure gates in London](https://www.yahoo.com/news/just-stop-oil-activists-block-080511535.html)
+- Jul 29 - [Kremlin rejects Western media speculation that Russia was behind rail sabotage in France](https://www.yahoo.com/news/kremlin-rejects-western-media-speculation-101631427.html)
+- Jul 29 - [A flight carrying almost 200 passengers was met by emergency services after the copilot reportedly fainted in midair](https://www.yahoo.com/news/flight-carrying-almost-200-passengers-094538848.html)
+- Jul 29 - [3 Ultra-High-Yield Dividend Stocks I'm Buying for Decades of Passive Income](https://finance.yahoo.com/news/3-ultra-high-yield-dividend-094500823.html)
+- Jul 29 - [Biden unveils plan for Supreme Court changes, says US stands at 'breach' as public confidence sinks](https://www.yahoo.com/news/biden-unveils-plan-supreme-court-093547267.html)
 <!-- feed end -->
 
 ### Onstream
