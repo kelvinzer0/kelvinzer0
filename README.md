@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Bangladesh restores internet as students call off job-quota protests](https://www.yahoo.com/news/bangladesh-restores-internet-students-call-065320667.html)
 - Jul 29 - [Japan launches crackdown on electric rideable suitcases](https://www.yahoo.com/news/japan-launches-crackdown-electric-rideable-060000100.html)
 - Jul 29 - [Blinken says US has 'serious concerns' about announced result of Venezuelan election](https://www.yahoo.com/news/blinken-says-us-serious-concerns-050908928.html)
-- Jul 29 - [Sharks are congregating at a California beach. AI is trying to keep swimmers safe](https://www.yahoo.com/news/sharks-congregating-california-beach-ai-041041498.html)
-- Jul 29 - [Museums closed Native American exhibits 6 months ago. Tribes are still waiting to get items back](https://www.yahoo.com/news/museums-closed-native-american-exhibits-040541551.html)
 - Jul 29 - [5,000 people rescued from flooding in North Korea in evacuation efforts led by Kim, report says](https://www.yahoo.com/news/5-000-people-rescued-flooding-025720544.html)
+- Jul 28 - [Melinda French Gates Says Elon Musk, Peter Thiel and Other Billionaires Are Not Philanthropists](https://www.yahoo.com/news/melinda-french-gates-says-elon-234437664.html)
 <!-- feed end -->
 
 ### Onstream
