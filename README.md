@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Myrtle Beach, SC pastor John-Paul Miller in court regarding his late wife, Mica Miller](https://www.yahoo.com/news/myrtle-beach-sc-pastor-john-204819144.html)
 - Jul 29 - [McDonald's Pops Above Key Level Despite Earnings Miss On This 'Value' Shift](https://www.investors.com/news/mcdonalds-stock-mcdonalds-earnings-q2-2024-5-meal-deal/?src=A00220&yptr=yahoo)
+- Jul 29 - [Supreme Court Rocked by New Leak of Bitter Abortion Split](https://www.yahoo.com/news/supreme-court-rocked-leak-bitter-195143865.html)
+- Jul 29 - [PD: Man arrested after he knocks on door, stabs resident](https://www.yahoo.com/news/pd-man-arrested-knocks-door-195009860.html)
 - Jul 29 - [Trial canceled in North Dakota abortion ban lawsuit as judge ponders dismissal](https://www.yahoo.com/news/trial-canceled-north-dakota-abortion-191737075.html)
-- Jul 29 - [Paris Uses Fake Flame for Olympic Games](https://www.yahoo.com/news/paris-uses-fake-flame-olympic-190208790.html)
-- Jul 29 - ['Top Chef' alum Shirley Chung was diagnosed with tongue cancer — and 'a series of dental issues' were her first clue something was wrong](https://www.yahoo.com/lifestyle/top-chef-alum-shirley-chung-180635665.html)
-- Jul 29 - [Prison officer who had sex with inmate on video pleads guilty](https://www.yahoo.com/news/prison-officer-had-sex-inmate-134248467.html)
 <!-- feed end -->
 
 ### Onstream
