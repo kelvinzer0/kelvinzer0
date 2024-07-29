@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 28 - [Melinda French Gates Says Elon Musk, Peter Thiel and Other Billionaires Are Not Philanthropists](https://www.yahoo.com/news/melinda-french-gates-says-elon-234437664.html)
+- Jul 28 - [I Retired a Millionaire 10 Years Early: Try These 6 Money Tricks To Help You Get Rich, Too](https://finance.yahoo.com/news/retired-millionaire-10-years-early-230153050.html)
 - Jul 28 - [Former Rockwell Collins chief being considered for Boeing CEO, report says](https://finance.yahoo.com/news/former-rockwell-collins-chief-being-220404879.html)
-- Jul 28 - [Last Chance for Vance? Could Trump Ditch VP Pick? Polling Momentum For Harris Shows Close Race Ahead](https://www.yahoo.com/news/last-chance-vance-could-trump-214000316.html)
-- Jul 28 - [Missing man out of Orlando International Airport has been located safe and sound](https://www.yahoo.com/news/missing-man-orlando-international-airport-202854681.html)
 - Jul 28 - [Erdogan says Turkey might enter Israel to help Palestinians](https://www.yahoo.com/news/erdogan-says-turkey-might-enter-201117666.html)
+- Jul 28 - [Kamala Harris rally draws hundreds of golf carts in conservative Florida community, the Villages](https://www.yahoo.com/news/kamala-harris-rally-draws-hundreds-of-golf-carts-in-conservative-florida-community-the-villages-200715047.html)
 <!-- feed end -->
 
 ### Onstream
