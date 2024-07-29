@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Telecoms installations vandalised in France - Le Parisien, BFM TV](https://www.yahoo.com/news/telecoms-installations-vandalised-france-le-082914294.html)
 - Jul 29 - ['Name It What It Is': Gov. Tim Walz Hits Trump & Co. With Scathing 1-Word Takedown](https://www.yahoo.com/news/name-gov-tim-walz-hits-063823028.html)
-- Jul 29 - [Kim Jong Un visits helicopter evacuation site as flooding hits North Korea](https://www.yahoo.com/news/kim-jong-un-visits-helicopter-063420588.html)
-- Jul 29 - [Employee refuses to give ‘condolence money’ after not receiving any themselves](https://www.yahoo.com/lifestyle/employee-refuses-condolence-money-not-204033329.html)
+- Jul 29 - [Japan puts the brakes on electric rideable suitcases](https://www.yahoo.com/news/japan-launches-crackdown-electric-rideable-060000100.html)
 - Jul 29 - [Museums closed Native American exhibits 6 months ago. Tribes are still waiting to get items back](https://www.yahoo.com/news/museums-closed-native-american-exhibits-040541551.html)
+- Jul 29 - [5,000 people rescued from flooding in North Korea in evacuation efforts led by Kim, report says](https://www.yahoo.com/news/5-000-people-rescued-flooding-025720544.html)
+- Jul 28 - [Video: This Is What A Gas Station Explosion Looks Like](https://autos.yahoo.com/video-gas-station-explosion-looks-143000280.html)
 <!-- feed end -->
 
 ### Onstream
