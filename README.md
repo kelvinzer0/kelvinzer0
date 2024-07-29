@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [5,000 people rescued from flooding in North Korea in evacuation efforts led by Kim, report says](https://www.yahoo.com/news/5-000-people-rescued-flooding-025720544.html)
 - Jul 28 - [Melinda French Gates Says Elon Musk, Peter Thiel and Other Billionaires Are Not Philanthropists](https://www.yahoo.com/news/melinda-french-gates-says-elon-234437664.html)
 - Jul 28 - [Pete Buttigieg Schools Fox News on What Trump Actually Thinks About Abortion: ‘He Lies All the Time’ | Video](https://www.yahoo.com/news/pete-buttigieg-schools-fox-news-225731968.html)
 - Jul 28 - [Former Rockwell Collins chief being considered for Boeing CEO, report says](https://finance.yahoo.com/news/former-rockwell-collins-chief-being-220404879.html)
 - Jul 28 - [Last Chance for Vance? Could Trump Ditch VP Pick? Polling Momentum For Harris Shows Close Race Ahead](https://www.yahoo.com/news/last-chance-vance-could-trump-214000316.html)
+- Jul 28 - [Erdogan says Turkey might enter Israel to help Palestinians](https://www.yahoo.com/news/erdogan-says-turkey-might-enter-201117666.html)
 <!-- feed end -->
 
 ### Onstream
