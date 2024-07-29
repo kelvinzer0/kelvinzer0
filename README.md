@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Hezbollah has exposed the West’s fatal cowardice](https://www.yahoo.com/news/hezbollah-exposed-west-fatal-cowardice-160012363.html)
-- Jul 29 - [Maduro’s Next Move Is Key With US and Brazil Questioning His Victory](https://finance.yahoo.com/news/maduro-next-move-key-us-153501167.html)
-- Jul 29 - ["Old and quite weird": Democrats finally discover new effective attack — and Republicans hate it](https://www.yahoo.com/news/old-quite-weird-democrats-finally-152816300.html)
-- Jul 29 - [Two 4-year-old boys and woman, 72, die when their boat being towed capsized](https://www.yahoo.com/news/two-4-old-boys-woman-151458278.html)
-- Jul 29 - [WesBanco to acquire Ohio bank in $959M all stock deal](https://finance.yahoo.com/news/wesbanco-acquire-ohio-bank-959m-145639007.html)
+- Jul 29 - [Kim Jong Un Drives Into Deep Flood in His Lexus LX 600](https://www.yahoo.com/lifestyle/kim-jong-un-drives-deep-162800453.html)
+- Jul 29 - [‘Incredible and rare’: Hammerhead shark spotted in water off Massachusetts](https://www.yahoo.com/news/incredible-rare-hammerhead-shark-spotted-162656244.html)
+- Jul 29 - [Tiffany Haddish defends Zimbabwe video after backlash](https://www.yahoo.com/entertainment/tiffany-haddish-defends-zimbabwe-video-160019737.html)
+- Jul 29 - [Biden Administration Buys Nearly 5 Million Barrels of Oil as It Refills Reserve](https://finance.yahoo.com/news/biden-administration-buys-nearly-5-161253852.html)
+- Jul 29 - [McDonald's just admitted that it's too expensive, and it's driving some customers away](https://www.yahoo.com/news/mcdonalds-just-admitted-too-expensive-161132739.html)
 <!-- feed end -->
 
 ### Onstream
