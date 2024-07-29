@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Mexican president issues public appeal to drug cartels not to fight after detention of drug lord](https://www.yahoo.com/news/mexican-president-issues-public-appeal-181322501.html)
+- Jul 29 - ['Top Chef' alum Shirley Chung was diagnosed with tongue cancer — and 'a series of dental issues' were her first clue something was wrong](https://www.yahoo.com/lifestyle/top-chef-alum-shirley-chung-was-diagnosed-with-tongue-cancer--and-a-series-of-dental-issues-were-her-first-clue-something-was-wrong-180557691.html)
 - Jul 29 - [Prison officer who had sex with inmate on video pleads guilty](https://www.yahoo.com/news/prison-officer-had-sex-inmate-134248467.html)
-- Jul 29 - [McDonald's Pops Above Key Level Despite Earnings Miss On This 'Value' Shift](https://www.investors.com/news/mcdonalds-stock-mcdonalds-earnings-q2-2024-5-meal-deal/?src=A00220&yptr=yahoo)
 - Jul 29 - [Former Army officer died after five-hour wait in ambulance as there was no bed available for him](https://www.yahoo.com/news/former-army-officer-died-five-170912479.html)
-- Jul 29 - [Exhibit in Gainesville reveals history of local family, American Legion Hall, more](https://www.yahoo.com/lifestyle/exhibit-gainesville-reveals-history-local-160256377.html)
-- Jul 29 - [Former NRA chief says appointing a financial monitor would be 'putting a knife' into the gun group](https://www.yahoo.com/news/former-nra-chief-says-appointing-155620718.html)
+- Jul 29 - [Kim Jong Un Drives Into Deep Flood in His Lexus LX 600](https://www.yahoo.com/lifestyle/kim-jong-un-drives-deep-162800453.html)
 <!-- feed end -->
 
 ### Onstream
