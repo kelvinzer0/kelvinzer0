@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Man, 83, is found safe days after he went missing during Crowdstrike IT outage and missed his flight home](https://www.yahoo.com/news/man-83-found-safe-days-212930309.html)
-- Jul 29 - [At training event in Philippines, harsh climate challenges sustainment](https://www.yahoo.com/news/training-event-philippines-harsh-climate-213042450.html)
-- Jul 29 - [Myrtle Beach, SC pastor John-Paul Miller in court regarding his late wife, Mica Miller](https://www.yahoo.com/news/myrtle-beach-sc-pastor-john-204819144.html)
+- Jul 29 - [Dozens of Russian mercenaries killed in rebel ambush in Mali, in their worst known loss in Africa](https://www.yahoo.com/news/dozens-russian-mercenaries-killed-rebel-200508785.html)
+- Jul 29 - ['Every parent's worst nightmare': Teen who was sexually assaulted by passenger sues Delta Air Lines](https://www.yahoo.com/news/every-parents-worst-nightmare-teen-220933562.html)
+- Jul 29 - [Delta Air Lines to seek compensation over cyber outage, CNBC reports](https://finance.yahoo.com/news/delta-air-lines-seek-compensation-211908080.html)
 - Jul 29 - [Car plunges hundreds of feet off Devil's Slide along California's Highway 1, killing 3](https://www.yahoo.com/news/car-plunges-hundreds-feet-off-203825570.html)
-- Jul 29 - [Supreme Court Rocked by New Leak of Bitter Abortion Split](https://www.yahoo.com/news/supreme-court-rocked-leak-bitter-195143865.html)
+- Jul 29 - [Nearly a dozen drivers caught going 100+ mph over Water Follies weekend in Tri-Cities](https://www.yahoo.com/news/nearly-dozen-drivers-caught-going-193635557.html)
 <!-- feed end -->
 
 ### Onstream
