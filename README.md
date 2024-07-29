@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Kim Jong Un Drives Into Deep Flood in His Lexus LX 600](https://www.yahoo.com/lifestyle/kim-jong-un-drives-deep-162800453.html)
-- Jul 29 - [‘Incredible and rare’: Hammerhead shark spotted in water off Massachusetts](https://www.yahoo.com/news/incredible-rare-hammerhead-shark-spotted-162656244.html)
-- Jul 29 - [Tiffany Haddish defends Zimbabwe video after backlash](https://www.yahoo.com/entertainment/tiffany-haddish-defends-zimbabwe-video-160019737.html)
-- Jul 29 - [Biden Administration Buys Nearly 5 Million Barrels of Oil as It Refills Reserve](https://finance.yahoo.com/news/biden-administration-buys-nearly-5-161253852.html)
-- Jul 29 - [McDonald's just admitted that it's too expensive, and it's driving some customers away](https://www.yahoo.com/news/mcdonalds-just-admitted-too-expensive-161132739.html)
+- Jul 29 - [Prison officer who had sex with inmate on video pleads guilty](https://www.yahoo.com/news/prison-officer-had-sex-inmate-134248467.html)
+- Jul 29 - [McDonald's Pops Above Key Level Despite Earnings Miss On This 'Value' Shift](https://www.investors.com/news/mcdonalds-stock-mcdonalds-earnings-q2-2024-5-meal-deal/?src=A00220&yptr=yahoo)
+- Jul 29 - [Former Army officer died after five-hour wait in ambulance as there was no bed available for him](https://www.yahoo.com/news/former-army-officer-died-five-170912479.html)
+- Jul 29 - [Exhibit in Gainesville reveals history of local family, American Legion Hall, more](https://www.yahoo.com/lifestyle/exhibit-gainesville-reveals-history-local-160256377.html)
+- Jul 29 - [Former NRA chief says appointing a financial monitor would be 'putting a knife' into the gun group](https://www.yahoo.com/news/former-nra-chief-says-appointing-155620718.html)
 <!-- feed end -->
 
 ### Onstream
