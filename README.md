@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Procter & Gamble Faces FX Headwinds Despite Positive Volume Growth in Q4](https://finance.yahoo.com/news/procter-gamble-faces-fx-headwinds-161428161.html)
 - Jul 30 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jul 30 - [In these hyperpartisan times, SC’s Trey Gowdy got it right on childless Americans | Opinion](https://www.yahoo.com/news/hyperpartisan-times-sc-trey-gowdy-154502054.html)
+- Jul 30 - [Olympian Ilona Maher Had the Ultimate Mic-Drop Response to Body-Shamers: 'I'm Going to the Olympics. You're Not'](https://www.yahoo.com/entertainment/olympian-ilona-maher-had-ultimate-153918040.html)
 - Jul 30 - [Olympics-At Paris 2024, Israeli and Palestinian athletes joust over Gaza war](https://www.yahoo.com/news/olympics-paris-2024-israeli-palestinian-152229559.html)
-- Jul 30 - [Pictured: ‘Curious kiss’ between Macron and French sports minister](https://www.yahoo.com/entertainment/pictured-curious-kiss-between-macron-142626353.html)
-- Jul 30 - [US oil and gas mergers continue at furious pace in Q2, says Enverus](https://finance.yahoo.com/news/us-oil-gas-mergers-continue-133541864.html)
-- Jul 30 - [William Calley, who led the My Lai massacre that shamed US military in Vietnam, has died](https://www.yahoo.com/news/william-calley-led-lai-massacre-132939111.html)
 <!-- feed end -->
 
 ### Onstream
