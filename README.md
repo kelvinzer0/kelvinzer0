@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Acting Secret Service director says he’s ‘ashamed’ about Trump assassination attempt, as he avoids Sen. Lee’s questions](https://www.yahoo.com/news/acting-secret-director-says-ashamed-205206830.html)
-- Jul 30 - [Seattle court sentences former medical testing executive for failing to report to prison](https://www.yahoo.com/news/seattle-court-sentences-former-medical-202119662.html)
-- Jul 30 - [Trader Joe’s reps touring Tri-Cities sites. Here’s what we know](https://www.yahoo.com/news/trader-joe-reps-touring-tri-201436677.html)
-- Jul 30 - [L.A. consumer group calls FAIR Plan insurance reforms an industry 'bailout'](https://www.yahoo.com/news/l-consumer-group-calls-fair-194655715.html)
-- Jul 30 - [Norah O’Donnell to Exit as ‘CBS Evening News’ Anchor to Become Senior Correspondent](https://www.yahoo.com/news/norah-o-donnell-exit-cbs-192000033.html)
+- Jul 30 - [Nvidia falls, volatility may rise in August: Top market trends](https://finance.yahoo.com/video/nvidia-falls-volatility-may-rise-212355687.html)
+- Jul 30 - [AMD stock jumps on earnings beat driven by AI chip sales](https://finance.yahoo.com/news/amd-stock-jumps-on-earnings-beat-driven-by-ai-chip-sales-202426077.html)
+- Jul 30 - [NASA images unlock complex history of two near-Earth asteroids](https://www.yahoo.com/news/nasa-images-unlock-complex-history-183742991.html)
+- Jul 30 - [Donald Trump says Kamala Harris, who's married to a Jewish man, 'doesn't like Jewish people'](https://www.yahoo.com/news/donald-trump-says-kamala-harris-175616095.html)
+- Jul 30 - [4 people arrested after 20-mile chase in New Hampshire, police say](https://www.yahoo.com/news/4-people-arrested-20-mile-174248052.html)
 <!-- feed end -->
 
 ### Onstream
