@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Severe Flooding Destroys Vermont Roads](https://www.yahoo.com/news/severe-flooding-destroys-vermont-roads-182242680.html)
 - Jul 30 - [NRA dodges government monitor in corruption case but must bar former exec Wayne LaPierre, New York court rules](https://www.yahoo.com/news/nra-dodges-government-monitor-corruption-003515907.html)
-- Jul 30 - [Ukraine says Russian cruise missile submarines are out in force as its Black Sea surface fleet falls back](https://www.yahoo.com/news/ukraine-says-russian-cruise-missile-172131673.html)
-- Jul 30 - [83-year-old Alabama former legislator sentenced to 13 months in federal prison for kickback scheme](https://www.yahoo.com/news/83-old-alabama-former-legislator-170720913.html)
-- Jul 30 - [Inmate linked to Blood Family Mafia gang tortured and disfigured in Quebec City prison](https://www.yahoo.com/news/inmate-linked-blood-family-mafia-164020341.html)
-- Jul 30 - [Terrell Davis says United banned him after flight incident. Airline says it was already rescinded](https://www.yahoo.com/news/terrell-davis-says-united-banned-162837523.html)
+- Jul 30 - [Donald Trump says Kamala Harris, who is married to a Jewish man, 'doesn't like Jewish people'](https://www.yahoo.com/news/donald-trump-says-kamala-harris-175616095.html)
+- Jul 30 - [Upstate NY beach closed to swimming because of suspected blue-green algae](https://www.yahoo.com/news/upstate-ny-beach-closed-swimming-174229315.html)
+- Jul 30 - [Police recruit who lost both legs in 'barbaric hazing ritual' sues Denver, paramedics and officers](https://www.yahoo.com/news/police-recruit-lost-both-legs-174019117.html)
 <!-- feed end -->
 
 ### Onstream
