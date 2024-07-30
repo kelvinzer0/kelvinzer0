@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [BP: Refineries will shut across Europe as West abandons fossil fuels](https://finance.yahoo.com/news/bp-refineries-shut-across-europe-131824099.html)
-- Jul 30 - [US home prices unchanged in May; annual gain smallest in 10 months](https://finance.yahoo.com/news/us-home-prices-unchanged-may-130439366.html)
-- Jul 30 - [7 Highly Rated Cars To Stay Away From](https://finance.yahoo.com/news/7-highly-rated-cars-stay-130034028.html)
-- Jul 30 - [Megan Thee Stallion performing at Kamala Harris rally in Atlanta. Here's what we know](https://www.yahoo.com/news/megan-thee-stallion-performing-kamala-125826060.html)
-- Jul 30 - [McDonald's sales dip as customers balk at high fast food prices](https://www.yahoo.com/news/mcdonalds-sales-dip-customers-balk-122715519.html)
+- Jul 30 - [Drop in Magnificent Seven could drag down U.S. stocks, top fund manager says](https://finance.yahoo.com/news/drop-magnificent-seven-could-drag-140416221.html)
+- Jul 30 - [Home Prices Kept Climbing in May. Where They’re Headed Next.](https://www.barrons.com/articles/home-prices-likely-kept-climbing-where-theyre-headed-next-d67e8443?siteid=yhoof2&yptr=yahoo)
+- Jul 30 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jul 30 - [William Calley, who led the My Lai massacre that shamed US military in Vietnam, has died](https://www.yahoo.com/news/william-calley-led-lai-massacre-132939111.html)
+- Jul 30 - [Trump Doubles Down on Ominous Election Threat in Creepy Fox Interview](https://www.yahoo.com/news/trump-escalates-ominous-election-threat-132707697.html)
 <!-- feed end -->
 
 ### Onstream
