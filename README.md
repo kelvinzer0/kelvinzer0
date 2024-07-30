@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Nvidia falls, volatility may rise in August: Top market trends](https://finance.yahoo.com/video/nvidia-falls-volatility-may-rise-212355687.html)
+- Jul 30 - [Families seek answers after inmates' bodies returned without internal organs](https://www.yahoo.com/news/families-seek-answers-inmates-bodies-224321580.html)
+- Jul 30 - [Microsoft sinks, chipmakers climb as AI rally faces divide](https://finance.yahoo.com/news/microsoft-sinks-chipmakers-climb-ai-221149862.html)
+- Jul 30 - [‘Thank God I got out safely’ – female fighter’s relief after facing boxer who failed gender tests](https://sports.yahoo.com/thank-god-got-safely-female-214227867.html)
+- Jul 30 - [The City with the Highest Weed Consumption in the US](https://finance.yahoo.com/news/city-highest-weed-consumption-us-211733462.html)
 - Jul 30 - [AMD stock jumps on earnings beat driven by AI chip sales](https://finance.yahoo.com/news/amd-stock-jumps-on-earnings-beat-driven-by-ai-chip-sales-202426077.html)
-- Jul 30 - [NASA images unlock complex history of two near-Earth asteroids](https://www.yahoo.com/news/nasa-images-unlock-complex-history-183742991.html)
-- Jul 30 - [Donald Trump says Kamala Harris, who's married to a Jewish man, 'doesn't like Jewish people'](https://www.yahoo.com/news/donald-trump-says-kamala-harris-175616095.html)
-- Jul 30 - [4 people arrested after 20-mile chase in New Hampshire, police say](https://www.yahoo.com/news/4-people-arrested-20-mile-174248052.html)
 <!-- feed end -->
 
 ### Onstream
