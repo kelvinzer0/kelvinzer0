@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Appeals court blocks US airline fee disclosure rule](https://finance.yahoo.com/news/appeals-court-blocks-us-airline-002051554.html)
+- Jul 29 - [Dycom Industries, Inc. (DY): One of Peconic Partners’ Top Stock Picks Right Now?](https://finance.yahoo.com/news/dycom-industries-inc-dy-one-231542492.html)
 - Jul 29 - [Dozens of Russian mercenaries killed in rebel ambush in Mali, in their worst known loss in Africa](https://www.yahoo.com/news/dozens-russian-mercenaries-killed-rebel-200508785.html)
+- Jul 29 - [Texas Crude Oil Pipelines Full to the Brim, Getting Worse](https://finance.yahoo.com/news/texas-crude-oil-pipelines-full-171511090.html)
 - Jul 29 - ['Every parent's worst nightmare': Teen who was sexually assaulted by passenger sues Delta Air Lines](https://www.yahoo.com/news/every-parents-worst-nightmare-teen-220933562.html)
-- Jul 29 - [Delta Air Lines to seek compensation over cyber outage, CNBC reports](https://finance.yahoo.com/news/delta-air-lines-seek-compensation-211908080.html)
-- Jul 29 - [Car plunges hundreds of feet off Devil's Slide along California's Highway 1, killing 3](https://www.yahoo.com/news/car-plunges-hundreds-feet-off-203825570.html)
-- Jul 29 - [Nearly a dozen drivers caught going 100+ mph over Water Follies weekend in Tri-Cities](https://www.yahoo.com/news/nearly-dozen-drivers-caught-going-193635557.html)
 <!-- feed end -->
 
 ### Onstream
