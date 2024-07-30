@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Taiwan president warns on China, pushes defence self-reliance](https://www.yahoo.com/news/taiwan-president-lai-says-chinas-055307056.html)
 - Jul 30 - [‘White Dudes for Harris’ X Account Suspended After Raising $4 Million for Kamala Harris](https://www.yahoo.com/news/white-dudes-harris-x-account-044441002.html)
+- Jul 30 - [William Calley, convicted over the My Lai massacre in Vietnam, dies aged 80](https://www.yahoo.com/news/william-calley-charged-over-lai-041653214.html)
 - Jul 30 - [Trump Explains Why He Told Crowd They Won’t Have To Vote, And Makes It Sound Worse](https://www.yahoo.com/news/trump-explains-why-told-crowd-035903863.html)
-- Jul 30 - [Donald Trump says he 'probably' will debate Kamala Harris but 'can also make a case for not'](https://www.yahoo.com/news/donald-trump-says-probably-debate-011635447.html)
-- Jul 30 - [New Russian Long-Range Drone Appears In Ukraine](https://www.yahoo.com/news/russian-long-range-drone-appears-010923255.html)
+- Jul 30 - [Dozens of Russian mercenaries killed in rebel ambush in Mali, in their worst known loss in Africa](https://www.yahoo.com/news/dozens-russian-mercenaries-killed-rebel-200508785.html)
+- Jul 30 - [Rep. Swalwell: Many freedoms will be gone if Trump reelected](https://www.yahoo.com/news/rep-swalwell-many-freedoms-gone-031917569.html)
 <!-- feed end -->
 
 ### Onstream
