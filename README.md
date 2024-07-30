@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Dozens of Russian mercenaries killed in rebel ambush in Mali, in their worst known loss in Africa](https://www.yahoo.com/news/dozens-russian-mercenaries-killed-rebel-200508785.html)
 - Jul 30 - [Donald Trump says he 'probably' will debate Kamala Harris but 'can also make a case for not'](https://www.yahoo.com/news/donald-trump-says-probably-debate-011635447.html)
-- Jul 30 - [NC Gov. Cooper opted out of Harris VP vetting, in part over worry about GOP lieutenant: AP sources](https://www.yahoo.com/news/nc-gov-cooper-opted-harris-001105515.html)
 - Jul 29 - [GOP senator, Fox News host battle over Harris ‘ding dong’ remark](https://www.yahoo.com/news/gop-senator-fox-news-host-230052891.html)
-- Jul 29 - ['Every parent's worst nightmare': Teen who was sexually assaulted by passenger sues Delta Air Lines](https://www.yahoo.com/news/every-parents-worst-nightmare-teen-220933562.html)
-- Jul 29 - [Apple used Google's chips to train two AI models, research paper shows](https://finance.yahoo.com/news/apple-says-uses-no-nvidia-220349455.html)
+- Jul 29 - [These Scientists Were Shamed for Claiming Signs of Life on Venus, But Now They're Back With More Evidence](https://www.yahoo.com/news/scientists-were-shamed-claiming-signs-223407615.html)
+- Jul 29 - [Stocks are approaching a 'watershed' moment as rate cuts unlock opportunity in unloved areas of the market, Wharton professor Jeremy Siegel says](https://finance.yahoo.com/news/stocks-approaching-watershed-moment-rate-223033366.html)
 <!-- feed end -->
 
 ### Onstream
