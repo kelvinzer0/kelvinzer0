@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [India not rethinking issue of allowing Chinese investment, trade minister says](https://finance.yahoo.com/news/india-not-rethinking-issue-allowing-052830175.html)
-- Jul 30 - [‘White Dudes for Harris’ X Account Suspended After Raising $4 Million for Kamala Harris](https://www.yahoo.com/news/white-dudes-harris-x-account-044441002.html)
-- Jul 30 - [Trump Explains Why He Told Crowd They Won’t Have To Vote, And Makes It Sound Worse](https://www.yahoo.com/news/trump-explains-why-told-crowd-035903863.html)
-- Jul 30 - [Dallas woman warns of new jury duty scam after nearly falling for it](https://www.yahoo.com/news/dallas-woman-warns-jury-duty-020133631.html)
-- Jul 30 - [Donald Trump says he 'probably' will debate Kamala Harris but 'can also make a case for not'](https://www.yahoo.com/news/donald-trump-says-probably-debate-011635447.html)
+- Jul 30 - [Missing six-year-old seen walking streets of London alone found ‘safe and well’](https://www.yahoo.com/lifestyle/police-extremely-concerned-missing-six-065110064.html)
+- Jul 30 - [BP shares jump as oil giant beats forecasts, hikes dividend](https://finance.yahoo.com/video/bp-shares-jump-oil-giant-093011321.html)
+- Jul 30 - [Fear and ambition: why the South China Sea is so important to Beijing](https://finance.yahoo.com/news/fear-ambition-why-south-china-093000509.html)
+- Jul 30 - [Woman with US passport found chained to tree and left to die in India jungle](https://www.yahoo.com/news/police-charge-former-husband-woman-074155508.html)
+- Jul 30 - [Swim in an old quarry, bike among quilt gardens and learn cast iron cooking. Plus more.](https://www.yahoo.com/lifestyle/swim-old-quarry-bike-among-090612612.html)
 <!-- feed end -->
 
 ### Onstream
