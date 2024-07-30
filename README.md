@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Dogs locked up in Bangkok house without food eat body of dead owner](https://www.yahoo.com/news/dogs-locked-bangkok-house-without-122442739.html)
-- Jul 30 - [OneWater (NASDAQ:ONEW) Misses Q2 Revenue Estimates, Stock Drops 14.6%](https://finance.yahoo.com/news/onewater-nasdaq-onew-misses-q2-122136793.html)
-- Jul 30 - [This Is What Your Net Worth Should Be at 62 To Be on Track for a Comfortable Retirement](https://finance.yahoo.com/news/net-worth-62-track-comfortable-200751065.html)
-- Jul 30 - [Your August 2024 Horoscope Brings Virgo Season, an Aquarius Full Moon, and Mercury Retrograde](https://www.yahoo.com/lifestyle/august-2024-horoscope-brings-virgo-110000818.html)
-- Jul 30 - [CrowdStrike stock falls after report Delta will seek compensation for IT outage](https://finance.yahoo.com/news/crowdstrike-down-report-delta-air-105743974.html)
+- Jul 30 - [BP: Refineries will shut across Europe as West abandons fossil fuels](https://finance.yahoo.com/news/bp-refineries-shut-across-europe-131824099.html)
+- Jul 30 - [US home prices unchanged in May; annual gain smallest in 10 months](https://finance.yahoo.com/news/us-home-prices-unchanged-may-130439366.html)
+- Jul 30 - [7 Highly Rated Cars To Stay Away From](https://finance.yahoo.com/news/7-highly-rated-cars-stay-130034028.html)
+- Jul 30 - [Megan Thee Stallion performing at Kamala Harris rally in Atlanta. Here's what we know](https://www.yahoo.com/news/megan-thee-stallion-performing-kamala-125826060.html)
+- Jul 30 - [McDonald's sales dip as customers balk at high fast food prices](https://www.yahoo.com/news/mcdonalds-sales-dip-customers-balk-122715519.html)
 <!-- feed end -->
 
 ### Onstream
