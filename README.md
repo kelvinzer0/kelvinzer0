@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Girl, 9, dies from Southport stabbing injuries as death toll rises after ‘ferocious’ dance class attack](https://www.yahoo.com/news/girl-9-dies-southport-stabbing-112449094.html)
-- Jul 30 - [Bond investors see 'dovish hold' from Fed, pile on yield curve steepeners](https://finance.yahoo.com/news/bond-investors-see-dovish-hold-110249220.html)
-- Jul 30 - [BBC commentator’s daughter killed in crossbow attack ‘phoned police to say she had been shot’](https://www.yahoo.com/news/daughters-bbc-commentator-john-hunt-104124445.html)
-- Jul 30 - [What the Old Farmer's Almanac is predicting about fall weather in Wisconsin](https://www.yahoo.com/news/old-farmers-almanac-predicting-fall-100056223.html)
-- Jul 30 - [Nvidia Stock Plunges: Why Some Wall Street Analysts Think It's Still a No-Brainer Buy](https://finance.yahoo.com/news/nvidia-stock-plunges-why-wall-094500398.html)
+- Jul 30 - [Dogs locked up in Bangkok house without food eat body of dead owner](https://www.yahoo.com/news/dogs-locked-bangkok-house-without-122442739.html)
+- Jul 30 - [OneWater (NASDAQ:ONEW) Misses Q2 Revenue Estimates, Stock Drops 14.6%](https://finance.yahoo.com/news/onewater-nasdaq-onew-misses-q2-122136793.html)
+- Jul 30 - [This Is What Your Net Worth Should Be at 62 To Be on Track for a Comfortable Retirement](https://finance.yahoo.com/news/net-worth-62-track-comfortable-200751065.html)
+- Jul 30 - [Your August 2024 Horoscope Brings Virgo Season, an Aquarius Full Moon, and Mercury Retrograde](https://www.yahoo.com/lifestyle/august-2024-horoscope-brings-virgo-110000818.html)
+- Jul 30 - [CrowdStrike stock falls after report Delta will seek compensation for IT outage](https://finance.yahoo.com/news/crowdstrike-down-report-delta-air-105743974.html)
 <!-- feed end -->
 
 ### Onstream
