@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Kremlin rejects 'absurd' accusations it is trying to meddle in U.S. election](https://www.yahoo.com/news/kremlin-rejects-absurd-accusations-trying-103636651.html)
-- Jul 30 - [Missing six-year-old seen walking streets of London alone found ‘safe and well’](https://www.yahoo.com/lifestyle/police-extremely-concerned-missing-six-065110064.html)
-- Jul 30 - [Ethiopia's IMF deal paves way for debt restructuring, official says](https://www.yahoo.com/news/ethiopias-imf-deal-paves-way-094131251.html)
-- Jul 30 - [Tech war: China eyes supercomputers for building LLMs amid US sanctions on advanced chips](https://finance.yahoo.com/news/tech-war-china-eyes-supercomputers-093000995.html)
-- Jul 30 - [Las Vegas valley restaurant chain fined $475K, owner calls it ‘honest mistake’](https://www.yahoo.com/news/las-vegas-valley-restaurant-chain-061937294.html)
+- Jul 30 - [Girl, 9, dies from Southport stabbing injuries as death toll rises after ‘ferocious’ dance class attack](https://www.yahoo.com/news/girl-9-dies-southport-stabbing-112449094.html)
+- Jul 30 - [Bond investors see 'dovish hold' from Fed, pile on yield curve steepeners](https://finance.yahoo.com/news/bond-investors-see-dovish-hold-110249220.html)
+- Jul 30 - [BBC commentator’s daughter killed in crossbow attack ‘phoned police to say she had been shot’](https://www.yahoo.com/news/daughters-bbc-commentator-john-hunt-104124445.html)
+- Jul 30 - [What the Old Farmer's Almanac is predicting about fall weather in Wisconsin](https://www.yahoo.com/news/old-farmers-almanac-predicting-fall-100056223.html)
+- Jul 30 - [Nvidia Stock Plunges: Why Some Wall Street Analysts Think It's Still a No-Brainer Buy](https://finance.yahoo.com/news/nvidia-stock-plunges-why-wall-094500398.html)
 <!-- feed end -->
 
 ### Onstream
