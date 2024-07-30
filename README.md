@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Procter & Gamble Faces FX Headwinds Despite Positive Volume Growth in Q4](https://finance.yahoo.com/news/procter-gamble-faces-fx-headwinds-161428161.html)
-- Jul 30 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jul 30 - [In these hyperpartisan times, SC’s Trey Gowdy got it right on childless Americans | Opinion](https://www.yahoo.com/news/hyperpartisan-times-sc-trey-gowdy-154502054.html)
-- Jul 30 - [Olympian Ilona Maher Had the Ultimate Mic-Drop Response to Body-Shamers: 'I'm Going to the Olympics. You're Not'](https://www.yahoo.com/entertainment/olympian-ilona-maher-had-ultimate-153918040.html)
-- Jul 30 - [Olympics-At Paris 2024, Israeli and Palestinian athletes joust over Gaza war](https://www.yahoo.com/news/olympics-paris-2024-israeli-palestinian-152229559.html)
+- Jul 30 - [NRA dodges government monitor in corruption case but must bar former exec Wayne LaPierre, New York court rules](https://www.yahoo.com/news/nra-dodges-government-monitor-corruption-003515907.html)
+- Jul 30 - [Ukraine says Russian cruise missile submarines are out in force as its Black Sea surface fleet falls back](https://www.yahoo.com/news/ukraine-says-russian-cruise-missile-172131673.html)
+- Jul 30 - [83-year-old Alabama former legislator sentenced to 13 months in federal prison for kickback scheme](https://www.yahoo.com/news/83-old-alabama-former-legislator-170720913.html)
+- Jul 30 - [Inmate linked to Blood Family Mafia gang tortured and disfigured in Quebec City prison](https://www.yahoo.com/news/inmate-linked-blood-family-mafia-164020341.html)
+- Jul 30 - [Terrell Davis says United banned him after flight incident. Airline says it was already rescinded](https://www.yahoo.com/news/terrell-davis-says-united-banned-162837523.html)
 <!-- feed end -->
 
 ### Onstream
