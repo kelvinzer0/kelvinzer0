@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Severe Flooding Destroys Vermont Roads](https://www.yahoo.com/news/severe-flooding-destroys-vermont-roads-182242680.html)
-- Jul 30 - [NRA dodges government monitor in corruption case but must bar former exec Wayne LaPierre, New York court rules](https://www.yahoo.com/news/nra-dodges-government-monitor-corruption-003515907.html)
-- Jul 30 - [Donald Trump says Kamala Harris, who is married to a Jewish man, 'doesn't like Jewish people'](https://www.yahoo.com/news/donald-trump-says-kamala-harris-175616095.html)
-- Jul 30 - [Upstate NY beach closed to swimming because of suspected blue-green algae](https://www.yahoo.com/news/upstate-ny-beach-closed-swimming-174229315.html)
+- Jul 30 - [CrowdStrike Holdings, Inc. (CRWD): Hedge Funds Are Bullish on This Cybersecurity Stock Now](https://finance.yahoo.com/news/crowdstrike-holdings-inc-crwd-hedge-193351877.html)
+- Jul 30 - [Edgar Bronfman Jr. Evaluating Potential Bid for Paramount Global to Counter Skydance Deal](https://finance.yahoo.com/news/edgar-bronfman-jr-evaluating-potential-191258842.html)
+- Jul 30 - [To cut costs and keep vehicle prices down, Stellantis makes buyout offers to US white-collar workers](https://finance.yahoo.com/news/cut-costs-keep-vehicle-prices-191207833.html)
+- Jul 30 - [Donald Trump says Kamala Harris, who's married to a Jewish man, 'doesn't like Jewish people'](https://www.yahoo.com/news/donald-trump-says-kamala-harris-175616095.html)
 - Jul 30 - [Police recruit who lost both legs in 'barbaric hazing ritual' sues Denver, paramedics and officers](https://www.yahoo.com/news/police-recruit-lost-both-legs-174019117.html)
 <!-- feed end -->
 
