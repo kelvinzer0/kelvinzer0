@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 30 - [Donald Trump says he 'probably' will debate Kamala Harris but 'can also make a case for not'](https://www.yahoo.com/news/donald-trump-says-probably-debate-011635447.html)
-- Jul 30 - [Zuck got so excited talking open platforms and AI with Jensen Huang that he dropped a big old F-bomb](https://www.yahoo.com/tech/zuck-got-excited-talking-open-002244817.html)
 - Jul 30 - [NC Gov. Cooper opted out of Harris VP vetting, in part over worry about GOP lieutenant: AP sources](https://www.yahoo.com/news/nc-gov-cooper-opted-harris-001105515.html)
-- Jul 29 - [Dozens of Russian mercenaries killed in rebel ambush in Mali, in their worst known loss in Africa](https://www.yahoo.com/news/dozens-russian-mercenaries-killed-rebel-200508785.html)
+- Jul 29 - [GOP senator, Fox News host battle over Harris ‘ding dong’ remark](https://www.yahoo.com/news/gop-senator-fox-news-host-230052891.html)
 - Jul 29 - ['Every parent's worst nightmare': Teen who was sexually assaulted by passenger sues Delta Air Lines](https://www.yahoo.com/news/every-parents-worst-nightmare-teen-220933562.html)
+- Jul 29 - [Apple used Google's chips to train two AI models, research paper shows](https://finance.yahoo.com/news/apple-says-uses-no-nvidia-220349455.html)
 <!-- feed end -->
 
 ### Onstream
