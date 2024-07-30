@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Taiwan president warns on China, pushes defence self-reliance](https://www.yahoo.com/news/taiwan-president-lai-says-chinas-055307056.html)
 - Jul 30 - [‘White Dudes for Harris’ X Account Suspended After Raising $4 Million for Kamala Harris](https://www.yahoo.com/news/white-dudes-harris-x-account-044441002.html)
-- Jul 30 - [Mark Zuckerberg predicts a future where nearly everyone is wearing AI-powered smart glasses](https://www.yahoo.com/tech/mark-zuckerberg-predicts-future-where-013626858.html)
+- Jul 30 - [Trump Explains Why He Told Crowd They Won’t Have To Vote, And Makes It Sound Worse](https://www.yahoo.com/news/trump-explains-why-told-crowd-035903863.html)
 - Jul 30 - [Donald Trump says he 'probably' will debate Kamala Harris but 'can also make a case for not'](https://www.yahoo.com/news/donald-trump-says-probably-debate-011635447.html)
 - Jul 30 - [New Russian Long-Range Drone Appears In Ukraine](https://www.yahoo.com/news/russian-long-range-drone-appears-010923255.html)
-- Jul 30 - [NC Gov. Cooper opted out of Harris VP vetting, in part over worry about GOP lieutenant: AP sources](https://www.yahoo.com/news/nc-gov-cooper-opted-harris-001105515.html)
 <!-- feed end -->
 
 ### Onstream
