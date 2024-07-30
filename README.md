@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Kremlin rejects 'absurd' accusations it is trying to meddle in U.S. election](https://www.yahoo.com/news/kremlin-rejects-absurd-accusations-trying-103636651.html)
 - Jul 30 - [Missing six-year-old seen walking streets of London alone found ‘safe and well’](https://www.yahoo.com/lifestyle/police-extremely-concerned-missing-six-065110064.html)
-- Jul 30 - [BP shares jump as oil giant beats forecasts, hikes dividend](https://finance.yahoo.com/video/bp-shares-jump-oil-giant-093011321.html)
-- Jul 30 - [Fear and ambition: why the South China Sea is so important to Beijing](https://finance.yahoo.com/news/fear-ambition-why-south-china-093000509.html)
-- Jul 30 - [Woman with US passport found chained to tree and left to die in India jungle](https://www.yahoo.com/news/police-charge-former-husband-woman-074155508.html)
-- Jul 30 - [Swim in an old quarry, bike among quilt gardens and learn cast iron cooking. Plus more.](https://www.yahoo.com/lifestyle/swim-old-quarry-bike-among-090612612.html)
+- Jul 30 - [Ethiopia's IMF deal paves way for debt restructuring, official says](https://www.yahoo.com/news/ethiopias-imf-deal-paves-way-094131251.html)
+- Jul 30 - [Tech war: China eyes supercomputers for building LLMs amid US sanctions on advanced chips](https://finance.yahoo.com/news/tech-war-china-eyes-supercomputers-093000995.html)
+- Jul 30 - [Las Vegas valley restaurant chain fined $475K, owner calls it ‘honest mistake’](https://www.yahoo.com/news/las-vegas-valley-restaurant-chain-061937294.html)
 <!-- feed end -->
 
 ### Onstream
