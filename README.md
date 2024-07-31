@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Starbucks sales tumble as customers reject high-priced coffee](https://finance.yahoo.com/news/starbucks-sales-tumble-customers-reject-214649008.html)
+- Jul 31 - [People Are Revealing Their Worst, Most Unprofessional Encounters With Doctors, And It's Incredibly Jarring](https://www.yahoo.com/lifestyle/people-revealing-worst-most-unprofessional-001502651.html)
+- Jul 30 - [Florida school board suspends employee who allowed her transgender daughter to play girls volleyball](https://www.yahoo.com/news/florida-school-board-suspends-employee-233251419.html)
+- Jul 30 - [Microsoft sinks, chipmakers climb as AI rally faces divide](https://finance.yahoo.com/news/microsoft-sinks-chipmakers-climb-ai-221149862.html)
 - Jul 30 - [‘Thank God I got out safely’ – female fighter’s relief after facing boxer who failed gender tests](https://sports.yahoo.com/thank-god-got-safely-female-214227867.html)
 - Jul 30 - [Intel plans to cut thousands of jobs to finance recovery, Bloomberg News reports](https://finance.yahoo.com/news/intel-plans-cut-thousands-jobs-213346349.html)
-- Jul 30 - [The State With the Most Beautiful Women in the US](https://finance.yahoo.com/news/state-most-beautiful-women-us-205536214.html)
-- Jul 30 - [AMD raises forecast for AI chip revenue and sees supplies remaining tight](https://finance.yahoo.com/news/amd-forecasts-third-quarter-revenue-202119619.html)
 <!-- feed end -->
 
 ### Onstream
