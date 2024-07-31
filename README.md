@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 31 - [North-South Korea Olympic podium selfie goes viral](https://sports.yahoo.com/north-south-korea-olympic-podium-042606699.html)
-- Jul 31 - [North Korea leader and senior officials board small boat to inspect impact of devastating floods](https://www.yahoo.com/news/north-korea-leader-senior-officials-040950035.html)
 - Jul 31 - [You Need To Avoid Saying These Seemingly Harmless Phrases To Someone You're Dining With](https://www.yahoo.com/lifestyle/avoid-saying-seemingly-harmless-phrases-034602051.html)
-- Jul 31 - [Evacuation orders issued as Nixon Fire burns uncontrolled in Southern California](https://www.yahoo.com/news/evacuation-orders-issued-nixon-fire-190002176.html)
-- Jul 31 - [Hamas says its leader Ismail Haniyeh was assassinated in Tehran by an Israeli airstrike](https://www.yahoo.com/news/iran-state-tv-reporting-hamas-030935149.html)
+- Jul 31 - [Hamas leader Ismail Haniyeh is killed in Iran by an alleged Israeli strike, threatening escalation](https://www.yahoo.com/news/iran-state-tv-reporting-hamas-030935149.html)
+- Jul 31 - [New research suggests major change in China's air pollution may have kick-started bizarre effects: 'It will give us surprises'](https://www.yahoo.com/news/research-suggests-major-change-chinas-020000089.html)
+- Jul 31 - [Panama orders retaliatory aviation measure against Venezuela](https://www.yahoo.com/news/panama-orders-retaliatory-aviation-measure-011835959.html)
 <!-- feed end -->
 
 ### Onstream
