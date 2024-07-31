@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Who will Harris choose as her running mate? VP to hold rally with pick on Tuesday](https://www.yahoo.com/news/harris-choose-her-running-mate-184813951.html)
-- Jul 31 - [Vicki Gunvalson Sued for Financial Elder Abuse by 74-Year-Old Woman](https://www.yahoo.com/entertainment/vicki-gunvalson-sued-financial-elder-173040985.html)
-- Jul 31 - [Iran has no good options after two deadly strikes on senior allies](https://www.yahoo.com/news/iran-no-good-options-two-120657295.html)
+- Jul 31 - [‘A very rude introduction’: Trump attacks Black conference moderator](https://www.yahoo.com/news/very-rude-introduction-trump-attacks-185222232.html)
+- Jul 31 - [Former CCSD superintendent Jara accepts new job](https://www.yahoo.com/news/former-ccsd-superintendent-jara-accepts-193310429.html)
+- Jul 31 - [Rudy Giuliani agrees to deal to end his bankruptcy case, pay creditors' financial adviser $400k](https://finance.yahoo.com/news/rudy-giuliani-agrees-deal-end-184118948.html)
+- Jul 31 - [Photos show what life is like in the world's most isolated settlement](https://www.yahoo.com/news/worlds-most-isolated-settlement-sits-165553847.html)
 - Jul 31 - [Eric Trump Freaks Out After His Cousin Endorses Kamala Harris](https://www.yahoo.com/entertainment/eric-trump-freaks-cousin-endorses-165614982.html)
-- Jul 31 - [Feds arrest ex-US Green Beret in connection to failed 2020 raid of Venezuela to remove Maduro](https://www.yahoo.com/news/feds-arrest-ex-us-green-165108707.html)
 <!-- feed end -->
 
 ### Onstream
