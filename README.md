@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jul 31 - [From Swanky Lounges to Spacious Showers: 6 Private Jet Interiors That Are Like Penthouses in the Sky](https://www.yahoo.com/lifestyle/swanky-lounges-spacious-showers-6-140000998.html)
+- Jul 31 - [Emaciated American Woman Found Chained to a Tree in Indian Forest](https://www.yahoo.com/news/emaciated-american-woman-found-chained-135700285.html)
+- Jul 31 - [Iran has no good options after two deadly strikes on senior allies](https://www.yahoo.com/news/iran-no-good-options-two-120657295.html)
 - Jul 31 - [How did Neanderthals disappear? New DNA analysis sheds light on the mystery](https://www.yahoo.com/news/dna-analysis-sheds-light-neanderthals-111011205.html)
-- Jul 31 - [Extortion and gang violence are hitting even big corporations and business leaders in Mexico](https://www.yahoo.com/news/extortion-gang-violence-hitting-even-130146642.html)
-- Jul 31 - [Tommy Fleetwod stunned by ‘horrific’ knife attack in his hometown of Southport](https://sports.yahoo.com/tommy-fleetwod-stunned-horrific-knife-125902498.html)
-- Jul 31 - [Donald Trump Gets Basic English Lesson After Ridiculous Comment About His ‘Pronouns’](https://www.yahoo.com/entertainment/donald-trump-gets-basic-english-123624171.html)
+- Jul 31 - [McDonald’s Rolls Out Biggest Burger Ever to Revive Sales](https://finance.yahoo.com/news/mcdonald-rolls-14-ounce-big-125136434.html)
 <!-- feed end -->
 
 ### Onstream
