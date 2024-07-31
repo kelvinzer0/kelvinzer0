@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Boeing names aerospace veteran Kelly Ortberg CEO to steer turnaround](https://finance.yahoo.com/news/boeing-names-kelly-ortberg-ceo-113753846.html)
+- Jul 31 - [Huw Edwards charged with ‘making’ indecent images of children – but what does that mean?](https://www.yahoo.com/news/huw-edwards-charged-making-indecent-113625940.html)
+- Jul 31 - [Pritzker Touts Another Win as United Buys Green Fuel for O’Hare](https://finance.yahoo.com/news/pritzker-touts-another-win-united-113538862.html)
 - Jul 31 - [Zelenskiy signs law allowing Ukraine debt payment suspension](https://www.yahoo.com/news/zelenskiy-signs-law-allowing-ukraine-102203509.html)
 - Jul 31 - [George W. Bush uttered 'the 10 most important words in the history of economics' in 2008, Warren Buffett says](https://finance.yahoo.com/news/george-w-bush-uttered-10-102000379.html)
-- Jul 31 - [You Need To Avoid Saying These Seemingly Harmless Phrases To Someone You're Dining With](https://www.yahoo.com/lifestyle/avoid-saying-seemingly-harmless-phrases-034602051.html)
-- Jul 31 - [Hamas leader Ismail Haniyeh is killed in Iran by an alleged Israeli strike, threatening escalation](https://www.yahoo.com/news/iran-state-tv-reporting-hamas-030935149.html)
-- Jul 31 - [New research suggests major change in China's air pollution may have kick-started bizarre effects: 'It will give us surprises'](https://www.yahoo.com/news/research-suggests-major-change-chinas-020000089.html)
 <!-- feed end -->
 
 ### Onstream
