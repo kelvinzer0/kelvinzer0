@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Observers invited by Venezuela condemn election](https://www.yahoo.com/news/observers-invited-venezuela-condemn-election-125258914.html)
-- Jul 31 - [Donald Trump Gets Basic English Lesson After Ridiculous Comment About His ‘Pronouns’](https://www.yahoo.com/entertainment/donald-trump-gets-basic-english-123624171.html)
-- Jul 31 - [Boeing names aerospace veteran Kelly Ortberg CEO to steer turnaround](https://finance.yahoo.com/news/boeing-names-kelly-ortberg-ceo-113753846.html)
-- Jul 31 - [Woman says she was charged more than $4,700 in fines for using Peach Pass lanes](https://www.yahoo.com/news/metro-woman-says-she-charged-232422032.html)
 - Jul 31 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jul 31 - [How did Neanderthals disappear? New DNA analysis sheds light on the mystery](https://www.yahoo.com/news/dna-analysis-sheds-light-neanderthals-111011205.html)
+- Jul 31 - [Extortion and gang violence are hitting even big corporations and business leaders in Mexico](https://www.yahoo.com/news/extortion-gang-violence-hitting-even-130146642.html)
+- Jul 31 - [Tommy Fleetwod stunned by ‘horrific’ knife attack in his hometown of Southport](https://sports.yahoo.com/tommy-fleetwod-stunned-horrific-knife-125902498.html)
+- Jul 31 - [Donald Trump Gets Basic English Lesson After Ridiculous Comment About His ‘Pronouns’](https://www.yahoo.com/entertainment/donald-trump-gets-basic-english-123624171.html)
 <!-- feed end -->
 
 ### Onstream
