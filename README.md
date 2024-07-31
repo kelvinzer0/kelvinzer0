@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Observers invited by Venezuela condemn election](https://www.yahoo.com/news/observers-invited-venezuela-condemn-election-125258914.html)
+- Jul 31 - [Donald Trump Gets Basic English Lesson After Ridiculous Comment About His ‘Pronouns’](https://www.yahoo.com/entertainment/donald-trump-gets-basic-english-123624171.html)
 - Jul 31 - [Boeing names aerospace veteran Kelly Ortberg CEO to steer turnaround](https://finance.yahoo.com/news/boeing-names-kelly-ortberg-ceo-113753846.html)
-- Jul 31 - [Huw Edwards charged with ‘making’ indecent images of children – but what does that mean?](https://www.yahoo.com/news/huw-edwards-charged-making-indecent-113625940.html)
-- Jul 31 - [Pritzker Touts Another Win as United Buys Green Fuel for O’Hare](https://finance.yahoo.com/news/pritzker-touts-another-win-united-113538862.html)
-- Jul 31 - [Zelenskiy signs law allowing Ukraine debt payment suspension](https://www.yahoo.com/news/zelenskiy-signs-law-allowing-ukraine-102203509.html)
-- Jul 31 - [George W. Bush uttered 'the 10 most important words in the history of economics' in 2008, Warren Buffett says](https://finance.yahoo.com/news/george-w-bush-uttered-10-102000379.html)
+- Jul 31 - [Woman says she was charged more than $4,700 in fines for using Peach Pass lanes](https://www.yahoo.com/news/metro-woman-says-she-charged-232422032.html)
+- Jul 31 - [AI Stocks: Tech Giants, Cloud Titans Battle For An Edge](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
