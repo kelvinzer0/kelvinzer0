@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Families seek answers after inmates' bodies returned without internal organs](https://www.yahoo.com/news/families-seek-answers-inmates-bodies-224321580.html)
+- Jul 31 - [People Are Revealing Their Worst, Most Unprofessional Encounters With Doctors, And It's Incredibly Jarring](https://www.yahoo.com/lifestyle/people-revealing-worst-most-unprofessional-001502651.html)
+- Jul 30 - [Florida school board suspends employee who allowed her transgender daughter to play girls volleyball](https://www.yahoo.com/news/florida-school-board-suspends-employee-233251419.html)
+- Jul 30 - [US rejects airlines bid for more time on passenger obligations](https://finance.yahoo.com/news/us-warns-airlines-passenger-refund-223648744.html)
 - Jul 30 - [Microsoft sinks, chipmakers climb as AI rally faces divide](https://finance.yahoo.com/news/microsoft-sinks-chipmakers-climb-ai-221149862.html)
-- Jul 30 - [‘Thank God I got out safely’ – female fighter’s relief after facing boxer who failed gender tests](https://sports.yahoo.com/thank-god-got-safely-female-214227867.html)
-- Jul 30 - [The City with the Highest Weed Consumption in the US](https://finance.yahoo.com/news/city-highest-weed-consumption-us-211733462.html)
-- Jul 30 - [AMD stock jumps on earnings beat driven by AI chip sales](https://finance.yahoo.com/news/amd-stock-jumps-on-earnings-beat-driven-by-ai-chip-sales-202426077.html)
+- Jul 30 - [Starbucks sales tumble as customers reject high-priced coffee](https://finance.yahoo.com/news/starbucks-sales-tumble-customers-reject-214649008.html)
 <!-- feed end -->
 
 ### Onstream
