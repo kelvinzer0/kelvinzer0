@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Man who sent child sex abuse images to Huw Edwards identified](https://www.yahoo.com/news/man-sent-child-sex-abuse-154828982.html)
 - Jul 31 - [Khaled Meshaal, who survived Israeli assassination attempt, tipped to be new Hamas leader](https://www.yahoo.com/news/khaled-meshaal-survived-israeli-assassination-153722815.html)
-- Jul 31 - [2 Artificial Intelligence (AI) Stocks to Buy Now and Hold for Decades](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-144700841.html)
+- Jul 31 - [Independent crime reporter attacked at memorial gathering for upstate NY mass shooting victims](https://www.yahoo.com/news/independent-crime-reporter-attacked-memorial-150524698.html)
+- Jul 31 - [US suspends $95 million in aid to Georgia after passage of foreign agent law that sparked protests](https://www.yahoo.com/news/us-suspends-95-million-aid-144414621.html)
 - Jul 31 - [Delta CEO lashes out at CrowdStrike: This cost us $500 million and they offered us nothing](https://finance.yahoo.com/news/delta-ceo-lashes-crowdstrike-cost-135953941.html)
 - Jul 31 - [Starving American Yoga Student Chained to Tree ‘For 40 Days’](https://www.yahoo.com/news/emaciated-american-woman-found-chained-135700285.html)
 <!-- feed end -->
