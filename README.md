@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [This New Paramount Bidder’s Deal Sounds Too Good to Pass Up](https://finance.yahoo.com/news/paramount-bidder-deal-sounds-too-183000918.html)
+- Jul 31 - [Level 2 evacuation order for Lane 1 wildfire near Cottage Grove](https://www.yahoo.com/news/level-2-evacuation-order-lane-182556721.html)
+- Jul 31 - [Tesla that hit and killed Seattle motorcyclist was in 'Full Self-Driving' mode, police say](https://finance.yahoo.com/news/tesla-full-self-driving-mode-181008793.html)
 - Jul 31 - [Iran has no good options after two deadly strikes on senior allies](https://www.yahoo.com/news/iran-no-good-options-two-120657295.html)
 - Jul 31 - [Eric Trump Freaks Out After His Cousin Endorses Kamala Harris](https://www.yahoo.com/entertainment/eric-trump-freaks-cousin-endorses-165614982.html)
-- Jul 31 - [Why does Vermont keep flooding? It's complicated, but experts warn it could become the norm](https://www.yahoo.com/news/why-does-vermont-keep-flooding-164952954.html)
-- Jul 31 - [American woman found in Indian forest had been chained to tree for 40 days](https://www.yahoo.com/news/us-woman-found-india-chained-153833138.html)
-- Jul 31 - [Khaled Meshaal, who survived Israeli assassination attempt, tipped to be new Hamas leader](https://www.yahoo.com/news/khaled-meshaal-survived-israeli-assassination-153722815.html)
 <!-- feed end -->
 
 ### Onstream
