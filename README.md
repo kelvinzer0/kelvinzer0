@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Exclusive-New US rule on foreign chip equipment exports to China to exempt some allies, sources say](https://finance.yahoo.com/news/exclusive-us-rule-foreign-chip-052925440.html)
+- Jul 31 - [North-South Korea Olympic podium selfie goes viral](https://sports.yahoo.com/north-south-korea-olympic-podium-042606699.html)
+- Jul 31 - [North Korea leader and senior officials board small boat to inspect impact of devastating floods](https://www.yahoo.com/news/north-korea-leader-senior-officials-040950035.html)
 - Jul 31 - [You Need To Avoid Saying These Seemingly Harmless Phrases To Someone You're Dining With](https://www.yahoo.com/lifestyle/avoid-saying-seemingly-harmless-phrases-034602051.html)
+- Jul 31 - [Evacuation orders issued as Nixon Fire burns uncontrolled in Southern California](https://www.yahoo.com/news/evacuation-orders-issued-nixon-fire-190002176.html)
 - Jul 31 - [Hamas says its leader Ismail Haniyeh was assassinated in Tehran by an Israeli airstrike](https://www.yahoo.com/news/iran-state-tv-reporting-hamas-030935149.html)
-- Jul 31 - [China reveals nuclear energy breakthrough with world's first 'meltdown-proof' plant — here's how it could change the future of nuclear power](https://www.yahoo.com/tech/china-reveals-nuclear-energy-breakthrough-003000330.html)
-- Jul 31 - [Russia launches one of war's largest drone attacks on Ukraine, Kyiv's military says](https://www.yahoo.com/news/russia-launches-drone-attack-ukraine-002410619.html)
 <!-- feed end -->
 
 ### Onstream
