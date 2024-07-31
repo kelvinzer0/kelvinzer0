@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [You Need To Avoid Saying These Seemingly Harmless Phrases To Someone You're Dining With](https://www.yahoo.com/lifestyle/avoid-saying-seemingly-harmless-phrases-034602051.html)
 - Jul 31 - [Hamas says its leader Ismail Haniyeh was assassinated in Tehran by an Israeli airstrike](https://www.yahoo.com/news/iran-state-tv-reporting-hamas-030935149.html)
-- Jul 31 - [China lodges protest with Japan over remarks at meeting with US](https://www.yahoo.com/news/china-official-protests-japans-negative-010309562.html)
-- Jul 31 - [Possible tornado sweeps through Warrick County as storms hit Evansville area](https://www.yahoo.com/news/possible-tornado-sweeps-warrick-county-004924568.html)
+- Jul 31 - [Panama orders retaliatory aviation measure against Venezuela](https://www.yahoo.com/news/panama-orders-retaliatory-aviation-measure-011835959.html)
 - Jul 31 - [China reveals nuclear energy breakthrough with world's first 'meltdown-proof' plant — here's how it could change the future of nuclear power](https://www.yahoo.com/tech/china-reveals-nuclear-energy-breakthrough-003000330.html)
-- Jul 30 - [Police in Southern California warn residents to beware of parking tickets that look like this](https://www.yahoo.com/news/police-southern-california-warn-residents-231621850.html)
+- Jul 30 - [Florida school board suspends employee who allowed her transgender daughter to play girls volleyball](https://www.yahoo.com/news/florida-school-board-suspends-employee-233251419.html)
 <!-- feed end -->
 
 ### Onstream
