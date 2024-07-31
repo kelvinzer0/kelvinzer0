@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Exclusive-New US rule on foreign chip equipment exports to China to exempt some allies, sources say](https://finance.yahoo.com/news/exclusive-us-rule-foreign-chip-052925440.html)
 - Jul 31 - [You Need To Avoid Saying These Seemingly Harmless Phrases To Someone You're Dining With](https://www.yahoo.com/lifestyle/avoid-saying-seemingly-harmless-phrases-034602051.html)
 - Jul 31 - [Hamas says its leader Ismail Haniyeh was assassinated in Tehran by an Israeli airstrike](https://www.yahoo.com/news/iran-state-tv-reporting-hamas-030935149.html)
-- Jul 31 - [Panama orders retaliatory aviation measure against Venezuela](https://www.yahoo.com/news/panama-orders-retaliatory-aviation-measure-011835959.html)
 - Jul 31 - [China reveals nuclear energy breakthrough with world's first 'meltdown-proof' plant — here's how it could change the future of nuclear power](https://www.yahoo.com/tech/china-reveals-nuclear-energy-breakthrough-003000330.html)
-- Jul 30 - [Florida school board suspends employee who allowed her transgender daughter to play girls volleyball](https://www.yahoo.com/news/florida-school-board-suspends-employee-233251419.html)
+- Jul 31 - [Russia launches one of war's largest drone attacks on Ukraine, Kyiv's military says](https://www.yahoo.com/news/russia-launches-drone-attack-ukraine-002410619.html)
 <!-- feed end -->
 
 ### Onstream
