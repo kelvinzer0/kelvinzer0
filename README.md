@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [With a NATO war and Ukraine's knack for shooting down planes in mind, Russia is holding back its airpower and most advanced jets](https://www.yahoo.com/news/nato-war-ukraines-knack-shooting-090002889.html)
-- Jul 31 - [Get a Microsoft Office Professional license that never expires for just $40](https://www.yahoo.com/tech/microsoft-office-professional-license-never-090000345.html)
+- Jul 31 - [Zelenskiy signs law allowing Ukraine debt payment suspension](https://www.yahoo.com/news/zelenskiy-signs-law-allowing-ukraine-102203509.html)
+- Jul 31 - [George W. Bush uttered 'the 10 most important words in the history of economics' in 2008, Warren Buffett says](https://finance.yahoo.com/news/george-w-bush-uttered-10-102000379.html)
 - Jul 31 - [You Need To Avoid Saying These Seemingly Harmless Phrases To Someone You're Dining With](https://www.yahoo.com/lifestyle/avoid-saying-seemingly-harmless-phrases-034602051.html)
 - Jul 31 - [Hamas leader Ismail Haniyeh is killed in Iran by an alleged Israeli strike, threatening escalation](https://www.yahoo.com/news/iran-state-tv-reporting-hamas-030935149.html)
 - Jul 31 - [New research suggests major change in China's air pollution may have kick-started bizarre effects: 'It will give us surprises'](https://www.yahoo.com/news/research-suggests-major-change-chinas-020000089.html)
