@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Property owner sues Sacramento after homeless people broke into vacant commercial building](https://www.yahoo.com/news/property-owner-sues-sacramento-homeless-211303606.html)
+- Jul 31 - [Families face food insecurity in Republican-led states that turned down federal aid this summer](https://www.yahoo.com/news/families-face-food-insecurity-republican-201713051.html)
 - Jul 31 - [‘A very rude introduction’: Trump attacks Black conference moderator](https://www.yahoo.com/news/very-rude-introduction-trump-attacks-185222232.html)
-- Jul 31 - [Former CCSD superintendent Jara accepts new job](https://www.yahoo.com/news/former-ccsd-superintendent-jara-accepts-193310429.html)
 - Jul 31 - [Rudy Giuliani agrees to deal to end his bankruptcy case, pay creditors' financial adviser $400k](https://finance.yahoo.com/news/rudy-giuliani-agrees-deal-end-184118948.html)
-- Jul 31 - [Photos show what life is like in the world's most isolated settlement](https://www.yahoo.com/news/worlds-most-isolated-settlement-sits-165553847.html)
-- Jul 31 - [Eric Trump Freaks Out After His Cousin Endorses Kamala Harris](https://www.yahoo.com/entertainment/eric-trump-freaks-cousin-endorses-165614982.html)
+- Jul 31 - [Level 2 evacuation order for Lane 1 wildfire near Cottage Grove](https://www.yahoo.com/news/level-2-evacuation-order-lane-182556721.html)
 <!-- feed end -->
 
 ### Onstream
