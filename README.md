@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [From Swanky Lounges to Spacious Showers: 6 Private Jet Interiors That Are Like Penthouses in the Sky](https://www.yahoo.com/lifestyle/swanky-lounges-spacious-showers-6-140000998.html)
-- Jul 31 - [Emaciated American Woman Found Chained to a Tree in Indian Forest](https://www.yahoo.com/news/emaciated-american-woman-found-chained-135700285.html)
-- Jul 31 - [Iran has no good options after two deadly strikes on senior allies](https://www.yahoo.com/news/iran-no-good-options-two-120657295.html)
-- Jul 31 - [How did Neanderthals disappear? New DNA analysis sheds light on the mystery](https://www.yahoo.com/news/dna-analysis-sheds-light-neanderthals-111011205.html)
-- Jul 31 - [McDonald’s Rolls Out Biggest Burger Ever to Revive Sales](https://finance.yahoo.com/news/mcdonald-rolls-14-ounce-big-125136434.html)
+- Jul 31 - [Man who sent child sex abuse images to Huw Edwards identified](https://www.yahoo.com/news/man-sent-child-sex-abuse-154828982.html)
+- Jul 31 - [Khaled Meshaal, who survived Israeli assassination attempt, tipped to be new Hamas leader](https://www.yahoo.com/news/khaled-meshaal-survived-israeli-assassination-153722815.html)
+- Jul 31 - [2 Artificial Intelligence (AI) Stocks to Buy Now and Hold for Decades](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-144700841.html)
+- Jul 31 - [Delta CEO lashes out at CrowdStrike: This cost us $500 million and they offered us nothing](https://finance.yahoo.com/news/delta-ceo-lashes-crowdstrike-cost-135953941.html)
+- Jul 31 - [Starving American Yoga Student Chained to Tree ‘For 40 Days’](https://www.yahoo.com/news/emaciated-american-woman-found-chained-135700285.html)
 <!-- feed end -->
 
 ### Onstream
