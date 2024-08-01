@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Intel to cut 15% jobs, suspend dividend in turnaround push; shares plummet](https://finance.yahoo.com/news/intel-forecasts-third-quarter-revenue-200355230.html)
 - Aug 01 - [14 Real-Life Photos That Genuinely Scared The Living Daylights Out Of Me](https://www.yahoo.com/entertainment/14-real-life-photos-genuinely-181602002.html)
-- Aug 01 - [Tracking Invest 97L: Tropical wave has a 70% chance of formation](https://www.yahoo.com/news/track-tropical-disturbance-shifts-towards-095553651.html)
-- Aug 01 - [In-N-Out Burger eyes new Middle Tennessee location. Here's where](https://www.yahoo.com/news/n-burger-eyes-middle-tennessee-131338300.html)
-- Aug 01 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
-- Aug 01 - [US Army captain becomes first female nurse to graduate from the Army’s elite Ranger Course](https://www.yahoo.com/news/us-army-captain-becomes-first-220002913.html)
+- Aug 01 - [Teens invent remarkable device while searching for way to save community: 'Can be implemented anywhere in the world'](https://www.yahoo.com/tech/teens-invent-remarkable-device-while-180000437.html)
+- Aug 01 - [Trump posts photo of Kamala Harris wearing Indian attire in new ‘she became Black’ smear](https://www.yahoo.com/news/trump-posts-photo-kamala-harris-174900438.html)
+- Aug 01 - [Identity of Southport stabbing suspect revealed as he appears in court accused of murdering three girls](https://www.yahoo.com/news/teenage-southport-stabbing-suspect-appears-093652980.html)
 <!-- feed end -->
 
 ### Onstream
