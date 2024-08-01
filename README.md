@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Prince Harry and Meghan Markle Are Headed to Colombia](https://www.yahoo.com/entertainment/prince-harry-meghan-markle-headed-132200166.html)
-- Aug 01 - [Putin Releases Americans Gershkovich and Whelan in Prisoner Swap Deal](https://www.yahoo.com/news/putin-releases-americans-gershkovich-whelan-115611229.html)
-- Aug 01 - [Police seek public's help to identify man at upstate NY park mass shooting](https://www.yahoo.com/news/police-seek-publics-help-identify-110851636.html)
-- Aug 01 - [Exxon Almost Walked Away From Its $1 Trillion Oil Discovery](https://finance.yahoo.com/news/exxon-almost-walked-away-1-100001374.html)
-- Aug 01 - [South Korea says ready to offer flood relief to North Korea](https://www.yahoo.com/news/south-korea-says-ready-offer-081233294.html)
+- Aug 01 - [10 Small Towns Where You Should Buy Vacation Property](https://finance.yahoo.com/news/10-small-towns-where-buy-140026230.html)
+- Aug 01 - [In-N-Out Burger eyes new Middle Tennessee location. Here's where](https://www.yahoo.com/news/n-burger-eyes-middle-tennessee-131338300.html)
+- Aug 01 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
+- Aug 01 - [Turkey blocks NATO-Israel cooperation over Gaza war, sources say](https://www.yahoo.com/news/turkey-blocks-nato-israel-cooperation-124104534.html)
+- Aug 01 - [Four Tennessee schools make 2024 best value colleges list by Princeton Review](https://www.yahoo.com/news/four-tennessee-schools-2024-best-100418115.html)
 <!-- feed end -->
 
 ### Onstream
