@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Materialise Second Quarter 2024 Earnings: Beats Expectations](https://finance.yahoo.com/news/materialise-second-quarter-2024-earnings-124339504.html)
+- Aug 01 - [Plant remains survived 3,000 years on Bronze Age bracelets](https://www.yahoo.com/news/plant-remains-survived-3-000-123627818.html)
+- Aug 01 - [Vice President Kamala Harris returning to Georgia next week with mysterious running mate](https://www.yahoo.com/news/vice-president-kamala-harris-returning-120518946.html)
 - Aug 01 - [Putin Releases Americans Gershkovich and Whelan in Prisoner Swap Deal](https://www.yahoo.com/news/putin-releases-americans-gershkovich-whelan-115611229.html)
-- Aug 01 - [Trump and his allies had a plan for how to hit Harris. Then he opened his mouth.](https://www.yahoo.com/news/trump-allies-had-plan-hit-090000603.html)
-- Aug 01 - [South Korea says ready to offer flood relief to North Korea](https://www.yahoo.com/news/south-korea-says-ready-offer-081233294.html)
-- Aug 01 - [After $4 billion Infosys demand, India may target other IT majors, source says](https://finance.yahoo.com/news/india-may-send-tax-notices-074107279.html)
-- Aug 01 - [Hawaii's beaches are disappearing: The uncertain future of Oahu's iconic Waikiki](https://www.yahoo.com/news/hawaiis-beaches-disappearing-uncertain-future-070050755.html)
+- Aug 01 - [Police seek public's help to identify man at upstate NY park mass shooting](https://www.yahoo.com/news/police-seek-publics-help-identify-110851636.html)
 <!-- feed end -->
 
 ### Onstream
