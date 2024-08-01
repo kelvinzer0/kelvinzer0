@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Biden Expertly Trolls Nancy Mace Over Russia Prisoner Swap](https://www.yahoo.com/news/biden-expertly-trolls-nancy-mace-202305113.html)
 - Aug 01 - [Intel to cut 15% jobs, suspend dividend in turnaround push; shares plummet](https://finance.yahoo.com/news/intel-forecasts-third-quarter-revenue-200355230.html)
-- Aug 01 - [Trump shooter autopsy reveals cause of death after attempted assassination](https://www.yahoo.com/news/trump-shooter-autopsy-reveals-cause-183908566.html)
+- Aug 01 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
+- Aug 01 - [Hezbollah leader warns battle has started following assassination of senior commander](https://www.yahoo.com/news/hezbollah-leader-warns-battle-started-194625743.html)
 - Aug 01 - [14 Real-Life Photos That Genuinely Scared The Living Daylights Out Of Me](https://www.yahoo.com/entertainment/14-real-life-photos-genuinely-181602002.html)
-- Aug 01 - [Teens invent remarkable device while searching for way to save community: 'Can be implemented anywhere in the world'](https://www.yahoo.com/tech/teens-invent-remarkable-device-while-180000437.html)
-- Aug 01 - [Trump posts photo of Kamala Harris wearing Indian attire in new ‘she became Black’ smear](https://www.yahoo.com/news/trump-posts-photo-kamala-harris-174900438.html)
 <!-- feed end -->
 
 ### Onstream
