@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [10 Small Towns Where You Should Buy Vacation Property](https://finance.yahoo.com/news/10-small-towns-where-buy-140026230.html)
-- Aug 01 - [In-N-Out Burger eyes new Middle Tennessee location. Here's where](https://www.yahoo.com/news/n-burger-eyes-middle-tennessee-131338300.html)
-- Aug 01 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
-- Aug 01 - [Turkey blocks NATO-Israel cooperation over Gaza war, sources say](https://www.yahoo.com/news/turkey-blocks-nato-israel-cooperation-124104534.html)
-- Aug 01 - [Four Tennessee schools make 2024 best value colleges list by Princeton Review](https://www.yahoo.com/news/four-tennessee-schools-2024-best-100418115.html)
+- Aug 01 - [Man charged with murder after Markham woman's remains ID'd](https://www.yahoo.com/news/man-charged-murder-markham-womans-153512564.html)
+- Aug 01 - [Pair charged in Summer Kneebone's death have case adjourned until fall](https://www.yahoo.com/news/pair-charged-summer-kneebones-death-152052724.html)
+- Aug 01 - [King Charles Kicks Off His Summer Vacation in Scotland in Style](https://www.yahoo.com/entertainment/king-charles-kicks-off-summer-150300684.html)
+- Aug 01 - [Ukraine finally received F-16 fighter jets — but might not be able to use them how it wants](https://www.yahoo.com/news/ukraine-finally-received-f-16-141735888.html)
+- Aug 01 - [Deputies arrest Prairieville woman accused of having sex with teen](https://www.yahoo.com/news/deputies-arrest-prairieville-woman-accused-133127910.html)
 <!-- feed end -->
 
 ### Onstream
