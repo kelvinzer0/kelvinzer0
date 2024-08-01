@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Howards Grove schools, Wells Fargo, 52 Stafford: The latest on several Sheboygan County projects](https://www.yahoo.com/news/howards-grove-schools-wells-fargo-095552200.html)
 - Aug 01 - [Critics Stunned By Donald Trump’s ‘Heartless’ Punchline About Man Killed At His Rally](https://www.yahoo.com/news/critics-stunned-donald-trump-heartless-062248619.html)
-- Aug 01 - [Canadian warship passes through Taiwan Strait, drawing China's ire](https://www.yahoo.com/news/canadian-warship-passes-taiwan-strait-012859895.html)
+- Aug 01 - [Tourist splurge in Japan creates new headache for luxury brands](https://finance.yahoo.com/news/tourist-splurge-japan-creates-headache-050047969.html)
+- Aug 01 - [Iran has no good options after two deadly strikes on senior allies](https://www.yahoo.com/news/iran-no-good-options-two-120657295.html)
 - Aug 01 - [Trump world erupts amid reports Kellyanne Conway trashing JD Vance](https://www.yahoo.com/news/trump-world-erupts-amid-reports-012024645.html)
-- Aug 01 - [Researchers develop unexpected solution to fight invasive species wreaking havoc on Everglades: 'The females can lay hundreds of eggs at a time'](https://www.yahoo.com/news/researchers-develop-unexpected-solution-fight-000000104.html)
-- Jul 31 - [14 sex buyers arrested, 10 victims recovered in human trafficking sting at Comic-Con](https://www.yahoo.com/news/14-sex-buyers-arrested-10-235633499.html)
 <!-- feed end -->
 
 ### Onstream
