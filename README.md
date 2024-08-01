@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 01 - [Critics Stunned By Donald Trump’s ‘Heartless’ Punchline About Man Killed At His Rally](https://www.yahoo.com/news/critics-stunned-donald-trump-heartless-062248619.html)
 - Aug 01 - [Tourist splurge in Japan creates new headache for luxury brands](https://finance.yahoo.com/news/tourist-splurge-japan-creates-headache-050047969.html)
 - Aug 01 - [‘A very rude introduction’: Trump attacks Black conference moderator](https://www.yahoo.com/news/very-rude-introduction-trump-attacks-185222232.html)
-- Aug 01 - [Canadian warship passes through Taiwan Strait, drawing China's ire](https://www.yahoo.com/news/canadian-warship-passes-taiwan-strait-012859895.html)
 - Aug 01 - [Trump world erupts amid reports Kellyanne Conway trashing JD Vance](https://www.yahoo.com/news/trump-world-erupts-amid-reports-012024645.html)
+- Aug 01 - [Researchers develop unexpected solution to fight invasive species wreaking havoc on Everglades: 'The females can lay hundreds of eggs at a time'](https://www.yahoo.com/news/researchers-develop-unexpected-solution-fight-000000104.html)
 <!-- feed end -->
 
 ### Onstream
