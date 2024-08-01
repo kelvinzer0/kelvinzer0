@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Tropical disturbance could bring heavy rain to Central Florida](https://www.yahoo.com/news/tropical-disturbance-gets-more-organized-104429940.html)
 - Aug 01 - [Canadian warship passes through Taiwan Strait, drawing China's ire](https://www.yahoo.com/news/canadian-warship-passes-taiwan-strait-012859895.html)
 - Jul 31 - [Asked about cognitive ability, Trump brings up Harris' bar-exam results: What to know](https://www.yahoo.com/news/asked-cognitive-ability-trump-brings-225921459.html)
 - Jul 31 - [Nearly half of dementia cases could be avoided or delayed by tackling 14 risk factors](https://www.yahoo.com/news/tackling-14-risk-factors-dementia-201502767.html)
 - Jul 31 - [Cancer rates in millennials, Gen X-ers have risen starkly in recent years, study finds. Experts have 1 prime suspect.](https://www.yahoo.com/lifestyle/cancer-rates-in-millennials-gen-x-ers-have-risen-starkly-in-recent-years-study-finds-experts-have-1-prime-suspect-223840496.html)
-- Jul 31 - [Nova explosion 3,000 light-years away will be seen from Earth with the naked eye](https://www.yahoo.com/news/earth-soon-naked-eye-view-222113219.html)
 <!-- feed end -->
 
 ### Onstream
