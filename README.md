@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Park Fire updates: While the blaze continues to grow, Shasta County evacuations eased](https://www.yahoo.com/news/park-fire-updates-while-blaze-175352647.html)
-- Aug 01 - [Tracking Invest 97L: Tropical wave has a 70% chance of formation](https://www.yahoo.com/news/track-tropical-disturbance-shifts-towards-095553651.html)
+- Aug 01 - [14 Real-Life Photos That Genuinely Scared The Living Daylights Out Of Me](https://www.yahoo.com/entertainment/14-real-life-photos-genuinely-181602002.html)
+- Aug 01 - ['Gateway to Teacher Education' certificate could help reduce South Dakota's teacher shortage](https://www.yahoo.com/news/gateway-teacher-education-certificate-could-180049415.html)
+- Aug 01 - [Israeli strike on Beirut shatters diplomatic understandings, sources say](https://www.yahoo.com/news/israeli-strike-beirut-shatters-diplomatic-143840084.html)
 - Aug 01 - [In-N-Out Burger eyes new Middle Tennessee location. Here's where](https://www.yahoo.com/news/n-burger-eyes-middle-tennessee-131338300.html)
 - Aug 01 - [OTD In Space – June 29: Cosmonauts Found Dead After Returning](https://www.yahoo.com/news/otd-space-june-29-cosmonauts-180000949.html)
-- Aug 01 - [US Army captain becomes first female nurse to graduate from the Army’s elite Ranger Course](https://www.yahoo.com/news/us-army-captain-becomes-first-220002913.html)
 <!-- feed end -->
 
 ### Onstream
