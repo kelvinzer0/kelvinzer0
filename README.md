@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Stock market news today: S&P 500, Nasdaq futures climb as Fed delivers and Meta jumps](https://finance.yahoo.com/news/stock-market-news-today-sp-500-nasdaq-futures-climb-as-fed-delivers-and-meta-jumps-103710563.html)
-- Aug 01 - [Blinken hails closer ties with Mongolia in rare visit](https://www.yahoo.com/news/blinken-hails-closer-ties-mongolia-081857561.html)
+- Aug 01 - [Putin Releases Americans Gershkovich and Whelan in Prisoner Swap Deal](https://www.yahoo.com/news/putin-releases-americans-gershkovich-whelan-115611229.html)
 - Aug 01 - [Trump and his allies had a plan for how to hit Harris. Then he opened his mouth.](https://www.yahoo.com/news/trump-allies-had-plan-hit-090000603.html)
 - Aug 01 - [South Korea says ready to offer flood relief to North Korea](https://www.yahoo.com/news/south-korea-says-ready-offer-081233294.html)
-- Aug 01 - [Critics Stunned By Donald Trump’s ‘Heartless’ Punchline About Man Killed At His Rally](https://www.yahoo.com/news/critics-stunned-donald-trump-heartless-062248619.html)
+- Aug 01 - [After $4 billion Infosys demand, India may target other IT majors, source says](https://finance.yahoo.com/news/india-may-send-tax-notices-074107279.html)
+- Aug 01 - [Hawaii's beaches are disappearing: The uncertain future of Oahu's iconic Waikiki](https://www.yahoo.com/news/hawaiis-beaches-disappearing-uncertain-future-070050755.html)
 <!-- feed end -->
 
 ### Onstream
