@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Pete Buttigieg Spots How Trump Made History With 'Wildly Unpopular' Project 2025](https://www.yahoo.com/news/pete-buttigieg-spots-trump-made-051951525.html)
+- Aug 01 - [Critics Stunned By Donald Trump’s ‘Heartless’ Punchline About Man Killed At His Rally](https://www.yahoo.com/news/critics-stunned-donald-trump-heartless-062248619.html)
 - Aug 01 - [Tourist splurge in Japan creates new headache for luxury brands](https://finance.yahoo.com/news/tourist-splurge-japan-creates-headache-050047969.html)
 - Aug 01 - [‘A very rude introduction’: Trump attacks Black conference moderator](https://www.yahoo.com/news/very-rude-introduction-trump-attacks-185222232.html)
 - Aug 01 - [Canadian warship passes through Taiwan Strait, drawing China's ire](https://www.yahoo.com/news/canadian-warship-passes-taiwan-strait-012859895.html)
