@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [New Jersey lottery player wins $5,000 a month for life on $3 scratch-off lottery ticket](https://www.yahoo.com/news/jersey-lottery-player-wins-5-004534428.html)
+- Jul 31 - [Asked about cognitive ability, Trump brings up Harris' bar-exam results: What to know](https://www.yahoo.com/news/asked-cognitive-ability-trump-brings-225921459.html)
+- Jul 31 - [Nearly half of dementia cases could be avoided or delayed by tackling 14 risk factors](https://www.yahoo.com/news/tackling-14-risk-factors-dementia-201502767.html)
 - Jul 31 - [Cancer rates in millennials, Gen X-ers have risen starkly in recent years, study finds. Experts have 1 prime suspect.](https://www.yahoo.com/lifestyle/cancer-rates-in-millennials-gen-x-ers-have-risen-starkly-in-recent-years-study-finds-experts-have-1-prime-suspect-223840496.html)
-- Jul 31 - [JD Vance says Simone Biles shouldn’t be praised for quitting Tokyo Olympics in poorly-aged resurfaced clip](https://www.yahoo.com/news/jd-vance-says-simone-biles-203833968.html)
-- Jul 31 - [‘A very rude introduction’: Trump attacks Black conference moderator](https://www.yahoo.com/news/very-rude-introduction-trump-attacks-185222232.html)
-- Jul 31 - [Rudy Giuliani agrees to deal to end his bankruptcy case, pay creditors' financial adviser $400k](https://finance.yahoo.com/news/rudy-giuliani-agrees-deal-end-184118948.html)
-- Jul 31 - [Eric Trump Freaks Out After His Cousin Endorses Kamala Harris](https://www.yahoo.com/entertainment/eric-trump-freaks-cousin-endorses-165614982.html)
+- Jul 31 - [Nova explosion 3,000 light-years away will be seen from Earth with the naked eye](https://www.yahoo.com/news/earth-soon-naked-eye-view-222113219.html)
 <!-- feed end -->
 
 ### Onstream
