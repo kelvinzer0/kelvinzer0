@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Man charged with murder after Markham woman's remains ID'd](https://www.yahoo.com/news/man-charged-murder-markham-womans-153512564.html)
-- Aug 01 - [Pair charged in Summer Kneebone's death have case adjourned until fall](https://www.yahoo.com/news/pair-charged-summer-kneebones-death-152052724.html)
-- Aug 01 - [King Charles Kicks Off His Summer Vacation in Scotland in Style](https://www.yahoo.com/entertainment/king-charles-kicks-off-summer-150300684.html)
-- Aug 01 - [Ukraine finally received F-16 fighter jets — but might not be able to use them how it wants](https://www.yahoo.com/news/ukraine-finally-received-f-16-141735888.html)
-- Aug 01 - [Deputies arrest Prairieville woman accused of having sex with teen](https://www.yahoo.com/news/deputies-arrest-prairieville-woman-accused-133127910.html)
+- Aug 01 - [Tracking Invest 97L: Disturbance could strengthen into hurricane this weekend](https://www.yahoo.com/news/track-tropical-disturbance-shifts-towards-095553651.html)
+- Aug 01 - [Togo president keeps PM, promises new government](https://www.yahoo.com/news/togo-president-keeps-pm-promises-160850717.html)
+- Aug 01 - [The Amazing NASA Probe Footage Flying Through The Sun's Corona](https://www.yahoo.com/news/amazing-nasa-probe-footage-flying-150000170.html)
+- Aug 01 - [In-N-Out Burger eyes new Middle Tennessee location. Here's where](https://www.yahoo.com/news/n-burger-eyes-middle-tennessee-131338300.html)
+- Aug 01 - [The Fed is about to do something it hasn’t done since the pandemic](https://finance.yahoo.com/news/fed-something-hasn-t-done-093003474.html)
 <!-- feed end -->
 
 ### Onstream
