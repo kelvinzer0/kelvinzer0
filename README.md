@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Howards Grove schools, Wells Fargo, 52 Stafford: The latest on several Sheboygan County projects](https://www.yahoo.com/news/howards-grove-schools-wells-fargo-095552200.html)
+- Aug 01 - [Stock market news today: S&P 500, Nasdaq futures climb as Fed delivers and Meta jumps](https://finance.yahoo.com/news/stock-market-news-today-sp-500-nasdaq-futures-climb-as-fed-delivers-and-meta-jumps-103710563.html)
+- Aug 01 - [Blinken hails closer ties with Mongolia in rare visit](https://www.yahoo.com/news/blinken-hails-closer-ties-mongolia-081857561.html)
+- Aug 01 - [Trump and his allies had a plan for how to hit Harris. Then he opened his mouth.](https://www.yahoo.com/news/trump-allies-had-plan-hit-090000603.html)
+- Aug 01 - [South Korea says ready to offer flood relief to North Korea](https://www.yahoo.com/news/south-korea-says-ready-offer-081233294.html)
 - Aug 01 - [Critics Stunned By Donald Trump’s ‘Heartless’ Punchline About Man Killed At His Rally](https://www.yahoo.com/news/critics-stunned-donald-trump-heartless-062248619.html)
-- Aug 01 - [Tourist splurge in Japan creates new headache for luxury brands](https://finance.yahoo.com/news/tourist-splurge-japan-creates-headache-050047969.html)
-- Aug 01 - [Iran has no good options after two deadly strikes on senior allies](https://www.yahoo.com/news/iran-no-good-options-two-120657295.html)
-- Aug 01 - [Trump world erupts amid reports Kellyanne Conway trashing JD Vance](https://www.yahoo.com/news/trump-world-erupts-amid-reports-012024645.html)
 <!-- feed end -->
 
 ### Onstream
