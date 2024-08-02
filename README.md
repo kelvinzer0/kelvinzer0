@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Biden Expertly Trolls Nancy Mace Over Russia Prisoner Swap](https://www.yahoo.com/news/biden-expertly-trolls-nancy-mace-202305113.html)
-- Aug 01 - [Intel to cut 15% jobs, suspend dividend in turnaround push; shares plummet](https://finance.yahoo.com/news/intel-forecasts-third-quarter-revenue-200355230.html)
-- Aug 01 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
-- Aug 01 - [Hezbollah leader warns battle has started following assassination of senior commander](https://www.yahoo.com/news/hezbollah-leader-warns-battle-started-194625743.html)
+- Aug 02 - [Trump lashes out at Biden over historic prisoner exchange that freed Paul Whelan, Evan Gershkovich](https://www.yahoo.com/news/trump-lashes-biden-over-historic-230000829.html)
+- Aug 01 - [Man accused of beheading father in their home is competent to stand trial, judge rules](https://www.yahoo.com/news/man-accused-beheading-father-home-202208151.html)
+- Aug 01 - [Intel to cut 15% jobs, suspend dividend in turnaround push; shares plummet](https://finance.yahoo.com/news/intel-forecasts-third-quarter-revenue-200355979.html)
 - Aug 01 - [14 Real-Life Photos That Genuinely Scared The Living Daylights Out Of Me](https://www.yahoo.com/entertainment/14-real-life-photos-genuinely-181602002.html)
+- Aug 01 - [Drunk driving suspect rams 2 police cars, nearly runs down bystanders in Shelby Township](https://www.yahoo.com/news/drunk-driving-suspect-rams-2-180417881.html)
 <!-- feed end -->
 
 ### Onstream
