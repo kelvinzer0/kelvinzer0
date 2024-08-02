@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Flash floods damage North Korean weapons factories](https://www.yahoo.com/news/flash-floods-damage-north-korean-115458182.html)
+- Aug 02 - [Dow Jones Futures Fall As Jobs Report Looms; Amazon Dives On Earnings](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-amazon-dives-market-sell-off-jobs-report/?src=A00220&yptr=yahoo)
+- Aug 02 - [Retiring in 2034 When Social Security Is Projected to Run Out? 9 Things To Do Now](https://finance.yahoo.com/news/retiring-2034-social-security-projected-110030164.html)
 - Aug 02 - [Simone Biles Turns 1 Of Donald Trump's Controversial Terms Into A Winning Tweet](https://www.yahoo.com/entertainment/simone-biles-turns-1-donald-114631740.html)
-- Aug 02 - [Track shows tropical disturbance could impact Central Florida this weekend](https://www.yahoo.com/news/track-shows-tropical-disturbance-could-100600860.html)
-- Aug 02 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
 - Aug 02 - [Mayor who resigned days ago is arrested for alleged sex with minor](https://www.yahoo.com/news/mayor-arrested-alleged-sex-minor-101130918.html)
+- Aug 02 - [Turkey blocks access to Instagram. It's in response to removal of posts on Hamas chief, reports say](https://www.yahoo.com/news/turkey-blocks-access-instagram-reports-070951439.html)
 <!-- feed end -->
 
 ### Onstream
