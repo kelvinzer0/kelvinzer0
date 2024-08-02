@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Memphis police officer, civilian killed after Downtown car crash, second cop critically injured](https://www.yahoo.com/news/memphis-police-officer-civilian-killed-131018263.html)
+- Aug 02 - [Chevron to Quit California for Texas After Warning on Rules](https://finance.yahoo.com/news/chevron-misses-estimates-adding-hess-102154971.html)
 - Aug 02 - [Afghanistan sprinter uses Olympic trip to shine light on how women are treated in her country](https://www.yahoo.com/news/afghanistan-sprinter-uses-olympic-trip-122329153.html)
 - Aug 02 - [Simone Biles Turns 1 Of Donald Trump's Controversial Terms Into A Winning Tweet](https://www.yahoo.com/entertainment/simone-biles-turns-1-donald-114631740.html)
 - Aug 02 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
-- Aug 02 - [Warner Robins restaurant fails 2 health inspections in July. Will it keep its permit?](https://www.yahoo.com/news/warner-robins-restaurant-fails-2-103000669.html)
+- Aug 02 - [Mayor who resigned days ago is arrested for alleged sex with minor](https://www.yahoo.com/news/mayor-arrested-alleged-sex-minor-101130918.html)
 <!-- feed end -->
 
 ### Onstream
