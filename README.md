@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Fleeing Motorcyclist Catches Fire In Wild Police Chase](https://autos.yahoo.com/fleeing-motorcyclist-catches-fire-wild-183000061.html)
+- Aug 02 - [U.S. sues TikTok, alleging millions of child privacy violations](https://www.yahoo.com/news/u-sues-tiktok-alleging-millions-193714727.html)
+- Aug 02 - [A North Carolina Republican who mocked women for abortions runs ad with his wife's own story](https://www.yahoo.com/news/north-carolina-republican-mocked-women-191048674.html)
+- Aug 02 - [Supreme Court returns Trump Jan. 6 immunity judgment to lower court](https://www.yahoo.com/news/supreme-court-returns-trump-immunity-185909537.html)
+- Aug 02 - [Anthony Scaramucci Says Trump Could Drop His Presidential Bid Against Kamala Harris If This Happens: 'I Know How This Man Thinks'](https://finance.yahoo.com/news/anthony-scaramucci-says-trump-could-184920640.html)
 - Aug 02 - [Scientists have spotted unexpected X- and C-shaped structures in the atmosphere. They are struggling to explain them](https://www.yahoo.com/news/scientists-spotted-unexpected-x-c-090004454.html)
-- Aug 02 - [It's Sounding Like Boeing's Starliner May Have Completely Failed](https://www.yahoo.com/news/sounding-boeings-starliner-may-completely-165211616.html)
-- Aug 02 - [Woman Killed In Crash After Dodge Challenger Test Drive Hits 124 MPH](https://autos.yahoo.com/woman-killed-crash-dodge-challenger-163000923.html)
-- Aug 02 - [Live Updates: NHC expects Tropical Storm Debby on Saturday, Sarasota, Bradenton in path](https://www.yahoo.com/news/live-updates-11-m-sarasota-152509129.html)
 <!-- feed end -->
 
 ### Onstream
