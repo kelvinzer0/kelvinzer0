@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Harshbarger upsets veteran Sen. Lundberg in East Tennessee GOP primary](https://www.yahoo.com/news/harshbarger-upsets-veteran-sen-lundberg-025522902.html)
-- Aug 02 - [Trump lashes out at Biden over historic prisoner exchange that freed Paul Whelan, Evan Gershkovich](https://www.yahoo.com/news/trump-lashes-biden-over-historic-230000829.html)
-- Aug 01 - [Man accused of beheading father in their home is competent to stand trial, judge rules](https://www.yahoo.com/news/man-accused-beheading-father-home-202208151.html)
-- Aug 01 - [Intel to cut 15% jobs, suspend dividend in turnaround push; shares plummet](https://finance.yahoo.com/news/intel-forecasts-third-quarter-revenue-200355979.html)
-- Aug 01 - [Hezbollah leader warns battle has started following assassination of senior commander](https://www.yahoo.com/news/hezbollah-leader-warns-battle-started-194625743.html)
+- Aug 02 - [Thousands were arrested at college protests. For students, the fallout was only beginning](https://www.yahoo.com/news/thousands-were-arrested-college-protests-040336650.html)
+- Aug 02 - [This Idaho Mom Is Going Viral For Sharing What An Absurd New Library Law Looks Like In Practice](https://www.yahoo.com/news/idaho-mom-going-viral-sharing-030104559.html)
+- Aug 01 - [White House Brutally Mocks Rep. Nancy Mace's Troll Tweet With Just 3 Words](https://www.yahoo.com/news/white-house-brutally-mocks-rep-224013706.html)
+- Aug 01 - [Lone bidder on Interstate 95 bridge reconstruction project wins $625M contract](https://www.yahoo.com/news/lone-bidder-interstate-95-bridge-223107768.html)
+- Aug 01 - [4 Las Vegas teens agree to plead guilty as juveniles in deadly beating of high school student](https://www.yahoo.com/news/4-las-vegas-teens-agree-222436383.html)
 <!-- feed end -->
 
 ### Onstream
