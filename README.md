@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Starmer told to ‘wake up’ and protect UK from cyber attacks before it is too late](https://www.yahoo.com/news/starmer-told-wake-protect-uk-063017856.html)
-- Aug 02 - [Scientists reveal new details about ‘screaming’ Egyptian mummy’s life and death](https://www.yahoo.com/news/scientists-reveal-details-screaming-egyptian-040502815.html)
+- Aug 02 - [Signal Buried in Biggest Explosion Ever Seen Hints at Total Annihilation](https://www.yahoo.com/news/signal-buried-biggest-explosion-ever-024849049.html)
 - Aug 02 - [‘Trump’s frustration is clear’: Burnett reacts to Trump’s comments about prisoner swap](https://www.yahoo.com/news/trump-frustration-clear-burnett-reacts-013145080.html)
-- Aug 01 - [4 Las Vegas teens agree to plead guilty as juveniles in deadly beating of high school student](https://www.yahoo.com/news/4-las-vegas-teens-agree-222436383.html)
+- Aug 01 - [Severe weather warnings issued for southeastern San Diego County](https://www.yahoo.com/news/severe-weather-warnings-issued-southeastern-235825066.html)
+- Aug 01 - [Gov. DeSantis declares state of emergency as coming heavy rains might cause ‘major disaster’](https://www.yahoo.com/news/gov-desantis-declares-state-emergency-230545536.html)
 - Aug 01 - [Pictured: Southport suspect, 17, named as Axel Rudakubana](https://www.yahoo.com/news/pictured-southport-suspect-17-named-113121956.html)
 <!-- feed end -->
 
