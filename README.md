@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Exxon delivers $9.2 billion second-quarter profit, raises output target](https://finance.yahoo.com/news/exxon-delivers-9-2-billion-103738043.html)
+- Aug 02 - [Flash floods damage North Korean weapons factories](https://www.yahoo.com/news/flash-floods-damage-north-korean-115458182.html)
+- Aug 02 - [Simone Biles Turns 1 Of Donald Trump's Controversial Terms Into A Winning Tweet](https://www.yahoo.com/entertainment/simone-biles-turns-1-donald-114631740.html)
 - Aug 02 - [Track shows tropical disturbance could impact Central Florida this weekend](https://www.yahoo.com/news/track-shows-tropical-disturbance-could-100600860.html)
-- Aug 02 - [Signal Buried in Biggest Explosion Ever Seen Hints at Total Annihilation](https://www.yahoo.com/news/signal-buried-biggest-explosion-ever-024849049.html)
-- Aug 02 - [‘Trump’s frustration is clear’: Burnett reacts to Trump’s comments about prisoner swap](https://www.yahoo.com/news/trump-frustration-clear-burnett-reacts-013145080.html)
-- Aug 01 - ['You're going to die': Shocking video shows Chick-fil-A worker fight off gunman](https://www.yahoo.com/news/youre-going-die-shocking-video-224650718.html)
+- Aug 02 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
+- Aug 02 - [Mayor who resigned days ago is arrested for alleged sex with minor](https://www.yahoo.com/news/mayor-arrested-alleged-sex-minor-101130918.html)
 <!-- feed end -->
 
 ### Onstream
