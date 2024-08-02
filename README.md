@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Dow Jones Futures Fall As Apple, Amazon Follow Market Expectations Breaker; Nvidia Tumbles](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-apple-amazon-earnings-expectations-breaker-nvidia/?src=A00220&yptr=yahoo)
+- Aug 02 - [Harshbarger upsets veteran Sen. Lundberg in East Tennessee GOP primary](https://www.yahoo.com/news/harshbarger-upsets-veteran-sen-lundberg-025522902.html)
 - Aug 02 - [Trump lashes out at Biden over historic prisoner exchange that freed Paul Whelan, Evan Gershkovich](https://www.yahoo.com/news/trump-lashes-biden-over-historic-230000829.html)
-- Aug 01 - [Shasta County drops controversial media policy amid backlash from sheriff](https://www.yahoo.com/news/shasta-county-drops-controversial-media-233407802.html)
-- Aug 01 - [Pictured: Southport suspect, 17, named as Axel Rudakubana](https://www.yahoo.com/news/pictured-southport-suspect-17-named-113121956.html)
 - Aug 01 - [Man accused of beheading father in their home is competent to stand trial, judge rules](https://www.yahoo.com/news/man-accused-beheading-father-home-202208151.html)
+- Aug 01 - [Intel to cut 15% jobs, suspend dividend in turnaround push; shares plummet](https://finance.yahoo.com/news/intel-forecasts-third-quarter-revenue-200355979.html)
+- Aug 01 - [Hezbollah leader warns battle has started following assassination of senior commander](https://www.yahoo.com/news/hezbollah-leader-warns-battle-started-194625743.html)
 <!-- feed end -->
 
 ### Onstream
