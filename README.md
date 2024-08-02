@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Signal Buried in Biggest Explosion Ever Seen Hints at Total Annihilation](https://www.yahoo.com/news/signal-buried-biggest-explosion-ever-024849049.html)
-- Aug 02 - [‘Trump’s frustration is clear’: Burnett reacts to Trump’s comments about prisoner swap](https://www.yahoo.com/news/trump-frustration-clear-burnett-reacts-013145080.html)
+- Aug 02 - [Bank of England cuts interest rate to 5% in first drop since 2020](https://finance.yahoo.com/news/bank-england-cuts-interest-rate-110815888.html)
+- Aug 02 - [Who is being freed in major Russia-West prisoner swap?](https://www.yahoo.com/news/being-freed-major-russia-west-085206186.html)
+- Aug 02 - [Airlines avoid some Mideast airspace, cancel Israel flights as tensions mount](https://finance.yahoo.com/news/airlines-avoid-mideast-airspace-cancel-080115857.html)
 - Aug 01 - [Severe weather warnings issued for southeastern San Diego County](https://www.yahoo.com/news/severe-weather-warnings-issued-southeastern-235825066.html)
-- Aug 01 - [Gov. DeSantis declares state of emergency as coming heavy rains might cause ‘major disaster’](https://www.yahoo.com/news/gov-desantis-declares-state-emergency-230545536.html)
-- Aug 01 - [Pictured: Southport suspect, 17, named as Axel Rudakubana](https://www.yahoo.com/news/pictured-southport-suspect-17-named-113121956.html)
+- Aug 01 - [Lone bidder on Interstate 95 bridge reconstruction project wins $625M contract](https://www.yahoo.com/news/lone-bidder-interstate-95-bridge-223107768.html)
 <!-- feed end -->
 
 ### Onstream
