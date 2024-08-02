@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Amid Knoxville housing shortage, a new affordable development is expanding near downtown](https://www.yahoo.com/news/amid-knoxville-housing-shortage-affordable-090845154.html)
-- Aug 02 - [Will York get relief from the heat? Old Farmer's Almanac predicts fall forecast](https://www.yahoo.com/news/york-relief-heat-old-farmers-090504715.html)
+- Aug 02 - [Exxon delivers $9.2 billion second-quarter profit, raises output target](https://finance.yahoo.com/news/exxon-delivers-9-2-billion-103738043.html)
+- Aug 02 - [Track shows tropical disturbance could impact Central Florida this weekend](https://www.yahoo.com/news/track-shows-tropical-disturbance-could-100600860.html)
 - Aug 02 - [Signal Buried in Biggest Explosion Ever Seen Hints at Total Annihilation](https://www.yahoo.com/news/signal-buried-biggest-explosion-ever-024849049.html)
 - Aug 02 - [‘Trump’s frustration is clear’: Burnett reacts to Trump’s comments about prisoner swap](https://www.yahoo.com/news/trump-frustration-clear-burnett-reacts-013145080.html)
-- Aug 01 - [Gov. DeSantis declares state of emergency as coming heavy rains might cause ‘major disaster’](https://www.yahoo.com/news/gov-desantis-declares-state-emergency-230545536.html)
+- Aug 01 - ['You're going to die': Shocking video shows Chick-fil-A worker fight off gunman](https://www.yahoo.com/news/youre-going-die-shocking-video-224650718.html)
 <!-- feed end -->
 
 ### Onstream
