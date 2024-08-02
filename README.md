@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 02 - [Dow Jones Futures Fall As Apple, Amazon Follow Market Expectations Breaker; Nvidia Tumbles](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-apple-amazon-earnings-expectations-breaker-nvidia/?src=A00220&yptr=yahoo)
 - Aug 02 - [Trump lashes out at Biden over historic prisoner exchange that freed Paul Whelan, Evan Gershkovich](https://www.yahoo.com/news/trump-lashes-biden-over-historic-230000829.html)
-- Aug 01 - ['You're going to die': Shocking video shows Chick-fil-A worker fight off gunman](https://www.yahoo.com/news/youre-going-die-shocking-video-224650718.html)
-- Aug 01 - [White House Brutally Mocks Rep. Nancy Mace's Troll Tweet With Just 3 Words](https://www.yahoo.com/news/white-house-brutally-mocks-rep-224013706.html)
-- Aug 01 - [4 Las Vegas teens agree to plead guilty as juveniles in deadly beating of high school student](https://www.yahoo.com/news/4-las-vegas-teens-agree-222436383.html)
+- Aug 01 - [Shasta County drops controversial media policy amid backlash from sheriff](https://www.yahoo.com/news/shasta-county-drops-controversial-media-233407802.html)
+- Aug 01 - [Pictured: Southport suspect, 17, named as Axel Rudakubana](https://www.yahoo.com/news/pictured-southport-suspect-17-named-113121956.html)
+- Aug 01 - [Man accused of beheading father in their home is competent to stand trial, judge rules](https://www.yahoo.com/news/man-accused-beheading-father-home-202208151.html)
 <!-- feed end -->
 
 ### Onstream
