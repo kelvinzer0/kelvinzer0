@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Chevron to Quit California for Texas After Warning on Rules](https://finance.yahoo.com/news/chevron-misses-estimates-adding-hess-102154971.html)
-- Aug 02 - [Afghanistan sprinter uses Olympic trip to shine light on how women are treated in her country](https://www.yahoo.com/news/afghanistan-sprinter-uses-olympic-trip-122329153.html)
-- Aug 02 - [Simone Biles Turns 1 Of Donald Trump's Controversial Terms Into A Winning Tweet](https://www.yahoo.com/entertainment/simone-biles-turns-1-donald-114631740.html)
+- Aug 02 - [Bitcoin Risk-Reward Remains Compelling Even After Price More Than Doubled in a Year](https://finance.yahoo.com/video/bitcoin-risk-reward-remains-compelling-153527460.html)
+- Aug 02 - [North Korea's former No.2 diplomat in Cuba recalls dramatic, swift defection in likely blow to Kim](https://www.yahoo.com/news/north-koreas-former-no-2-152057976.html)
+- Aug 02 - [Children of undercover Russian spy couple only learned their nationality on flight to Moscow](https://www.yahoo.com/news/children-undercover-russian-spy-couple-151828909.html)
 - Aug 02 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
-- Aug 02 - [Mayor who resigned days ago is arrested for alleged sex with minor](https://www.yahoo.com/news/mayor-arrested-alleged-sex-minor-101130918.html)
+- Aug 02 - [Hezbollah resumes steady rocket, artillery fire against Israel](https://www.yahoo.com/news/hezbollah-resumes-steady-rocket-artillery-145154092.html)
 <!-- feed end -->
 
 ### Onstream
