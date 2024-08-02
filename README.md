@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Thousands were arrested at college protests. For students, the fallout was only beginning](https://www.yahoo.com/news/thousands-were-arrested-college-protests-040336650.html)
-- Aug 02 - [This Idaho Mom Is Going Viral For Sharing What An Absurd New Library Law Looks Like In Practice](https://www.yahoo.com/news/idaho-mom-going-viral-sharing-030104559.html)
+- Aug 02 - [‘Trump’s frustration is clear’: Burnett reacts to Trump’s comments about prisoner swap](https://www.yahoo.com/news/trump-frustration-clear-burnett-reacts-013145080.html)
+- Aug 02 - [US launches Nvidia antitrust probe after rivals' complaints, The Information reports](https://finance.yahoo.com/news/nvidia-faces-us-doj-probe-010334229.html)
+- Aug 01 - [Severe weather warnings issued for southeastern San Diego County](https://www.yahoo.com/news/severe-weather-warnings-issued-southeastern-235825066.html)
 - Aug 01 - [White House Brutally Mocks Rep. Nancy Mace's Troll Tweet With Just 3 Words](https://www.yahoo.com/news/white-house-brutally-mocks-rep-224013706.html)
-- Aug 01 - [Lone bidder on Interstate 95 bridge reconstruction project wins $625M contract](https://www.yahoo.com/news/lone-bidder-interstate-95-bridge-223107768.html)
-- Aug 01 - [4 Las Vegas teens agree to plead guilty as juveniles in deadly beating of high school student](https://www.yahoo.com/news/4-las-vegas-teens-agree-222436383.html)
+- Aug 01 - [Pictured: Southport suspect, 17, named as Axel Rudakubana](https://www.yahoo.com/news/pictured-southport-suspect-17-named-113121956.html)
 <!-- feed end -->
 
 ### Onstream
