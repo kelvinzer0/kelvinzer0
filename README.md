@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Live Updates: Tropical Storm Watch issued for Sarasota, Manatee](https://www.yahoo.com/news/live-updates-11-m-sarasota-152509129.html)
-- Aug 02 - [North Korea's former No.2 diplomat in Cuba recalls dramatic, swift defection in likely blow to Kim](https://www.yahoo.com/news/north-koreas-former-no-2-152057976.html)
-- Aug 02 - [Children of undercover Russian spy couple only learned their nationality on flight to Moscow](https://www.yahoo.com/news/children-undercover-russian-spy-couple-151828909.html)
-- Aug 02 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
-- Aug 02 - [Chevron, the oil giant born in California 145 years ago, is moving to Texas](https://finance.yahoo.com/news/chevron-blow-california-says-relocating-144154749.html)
+- Aug 02 - [Fleeing Motorcyclist Catches Fire In Wild Police Chase](https://autos.yahoo.com/fleeing-motorcyclist-catches-fire-wild-183000061.html)
+- Aug 02 - [Scientists have spotted unexpected X- and C-shaped structures in the atmosphere. They are struggling to explain them](https://www.yahoo.com/news/scientists-spotted-unexpected-x-c-090004454.html)
+- Aug 02 - [It's Sounding Like Boeing's Starliner May Have Completely Failed](https://www.yahoo.com/news/sounding-boeings-starliner-may-completely-165211616.html)
+- Aug 02 - [Woman Killed In Crash After Dodge Challenger Test Drive Hits 124 MPH](https://autos.yahoo.com/woman-killed-crash-dodge-challenger-163000923.html)
+- Aug 02 - [Live Updates: NHC expects Tropical Storm Debby on Saturday, Sarasota, Bradenton in path](https://www.yahoo.com/news/live-updates-11-m-sarasota-152509129.html)
 <!-- feed end -->
 
 ### Onstream
