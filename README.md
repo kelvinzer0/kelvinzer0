@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Bitcoin Risk-Reward Remains Compelling Even After Price More Than Doubled in a Year](https://finance.yahoo.com/video/bitcoin-risk-reward-remains-compelling-153527460.html)
+- Aug 02 - [Kyle Rittenhouse says he will not vote for Trump](https://www.yahoo.com/news/kyle-rittenhouse-says-not-vote-152122308.html)
 - Aug 02 - [North Korea's former No.2 diplomat in Cuba recalls dramatic, swift defection in likely blow to Kim](https://www.yahoo.com/news/north-koreas-former-no-2-152057976.html)
 - Aug 02 - [Children of undercover Russian spy couple only learned their nationality on flight to Moscow](https://www.yahoo.com/news/children-undercover-russian-spy-couple-151828909.html)
 - Aug 02 - [Why the stock market is suddenly freaking out](https://finance.yahoo.com/news/why-stock-market-suddenly-freaking-200354177.html)
-- Aug 02 - [Hezbollah resumes steady rocket, artillery fire against Israel](https://www.yahoo.com/news/hezbollah-resumes-steady-rocket-artillery-145154092.html)
+- Aug 02 - [Emergency crews on scene of train derailment in Adrian; 'No threat to the community'](https://www.yahoo.com/news/emergency-crews-scene-train-derailment-141440064.html)
 <!-- feed end -->
 
 ### Onstream
