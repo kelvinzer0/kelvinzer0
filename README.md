@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [Schumer: Democrats have to make clear how ‘ludicrous’ and ‘unhinged’ the Trump-Vance ticket is](https://www.yahoo.com/news/schumer-democrats-clear-ludicrous-unhinged-211222654.html)
 - Aug 02 - [A North Carolina Republican who mocked women for abortions runs ad with his wife's own story](https://www.yahoo.com/news/north-carolina-republican-mocked-women-191048674.html)
+- Aug 02 - [Three sobriety checkpoints in NE Ohio tonight](https://www.yahoo.com/news/three-sobriety-checkpoints-ne-ohio-113151615.html)
+- Aug 02 - [Supreme Court returns Trump Jan. 6 immunity judgment to lower court](https://www.yahoo.com/news/supreme-court-returns-trump-immunity-185909537.html)
 - Aug 02 - [Anthony Scaramucci Says Trump Could Drop His Presidential Bid Against Kamala Harris If This Happens: 'I Know How This Man Thinks'](https://finance.yahoo.com/news/anthony-scaramucci-says-trump-could-184920640.html)
-- Aug 02 - [Scientists have spotted unexpected X- and C-shaped structures in the atmosphere. They are struggling to explain them](https://www.yahoo.com/news/scientists-spotted-unexpected-x-c-090004454.html)
-- Aug 02 - [Hard Rock Opening Act to close Aug. 12 in preparation for permanent casino's grand opening](https://finance.yahoo.com/news/hard-rock-opening-act-close-181351614.html)
-- Aug 02 - [It's Sounding Like Boeing's Starliner May Have Completely Failed](https://www.yahoo.com/news/sounding-boeings-starliner-may-completely-165211616.html)
 <!-- feed end -->
 
 ### Onstream
