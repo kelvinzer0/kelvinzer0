@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Two more Fresno mom-and-pop restaurants close. ‘It’s tough in California,’ says owner](https://www.yahoo.com/news/two-more-fresno-mom-pop-190000835.html)
 - Aug 03 - [‘Astonishing’ Antarctica heat wave sends temperatures 50 degrees above normal](https://www.yahoo.com/news/astonishing-antarctica-heat-wave-sends-180002281.html)
 - Aug 03 - [Trump says he'll skip an ABC debate with Harris in September and wants them to face off on Fox News](https://www.yahoo.com/news/trump-says-hell-skip-abc-175650251.html)
+- Aug 03 - [3 arrested after ‘large amounts’ of explosives, drugs found in KC home](https://www.yahoo.com/news/3-arrested-large-amounts-explosives-164903059.html)
 - Aug 03 - [Ukraine says it sank Russian submarine in Crimea](https://www.yahoo.com/news/ukraine-says-sank-russian-submarine-163958962.html)
-- Aug 03 - [Trail-cam footage shows bears 'foreplaying' in Yukon forest](https://www.yahoo.com/lifestyle/trail-cam-footage-shows-bears-162617287.html)
-- Aug 03 - [Passenger caused fatal motorway crash after pulling handbrake at 70mph during row with ex-partner](https://www.yahoo.com/news/passenger-caused-fatal-motorway-pile-161936272.html)
 <!-- feed end -->
 
 ### Onstream
