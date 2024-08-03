@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Alachua County issues state of emergency ahead of potential tropical cyclone](https://www.yahoo.com/news/alachua-county-issues-state-emergency-233959801.html)
-- Aug 02 - [Man dies after attempting illegal BASE jump at the Grand Canyon: NPS](https://www.yahoo.com/news/man-dies-attempting-illegal-jump-223825046.html)
+- Aug 03 - [Chinese company makes first-of-its-kind advancement using sea water — see how the new technology could change the future of nuclear power](https://www.yahoo.com/tech/chinese-company-makes-first-kind-001500243.html)
+- Aug 03 - [Officials urge people to kill and eat highly invasive fish devastating ecosystems: 'Maryland may have to eat itself out of this mess'](https://www.yahoo.com/news/officials-urge-people-kill-eat-000000222.html)
+- Aug 02 - [Gerald Wood takes the stand as day 3 of Tina Peters trial](https://www.yahoo.com/news/gerald-wood-takes-stand-day-234140952.html)
+- Aug 02 - [A humpback whale in Washington state is missing its tail. One expert calls the sight 'heartbreaking'](https://www.yahoo.com/news/humpback-whale-washington-state-missing-215920648.html)
 - Aug 02 - [Meteorite impacts identified as driver of moon's tenuous atmosphere](https://www.yahoo.com/news/meteorite-impacts-identified-driver-moons-194214406.html)
-- Aug 02 - [A North Carolina Republican who mocked women for abortions runs ad with his wife's own story](https://www.yahoo.com/news/north-carolina-republican-mocked-women-191048674.html)
-- Aug 02 - [Jury reaches split verdict in baby abandonment case involving Dennis Eckersley's daughter](https://www.yahoo.com/news/jury-reaches-verdict-baby-abandonment-184454198.html)
 <!-- feed end -->
 
 ### Onstream
