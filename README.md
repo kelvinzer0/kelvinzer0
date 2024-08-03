@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 03 - [Chinese company makes first-of-its-kind advancement using sea water — see how the new technology could change the future of nuclear power](https://www.yahoo.com/tech/chinese-company-makes-first-kind-001500243.html)
-- Aug 02 - [Alachua County issues state of emergency ahead of potential tropical cyclone](https://www.yahoo.com/news/alachua-county-issues-state-emergency-233959801.html)
-- Aug 02 - [A humpback whale in Washington state is missing its tail. One expert calls the sight 'heartbreaking'](https://www.yahoo.com/news/humpback-whale-washington-state-missing-215920648.html)
 - Aug 02 - [New court filing says 4 jurors contacted Commonwealth regarding Karen Read murder trial decision](https://www.yahoo.com/news/court-filing-says-4-jurors-152958958.html)
+- Aug 02 - [General Hospital spoilers: week of August 5-9](https://www.yahoo.com/entertainment/general-hospital-spoilers-week-august-213920909.html)
 - Aug 02 - [Meteorite impacts identified as driver of moon's tenuous atmosphere](https://www.yahoo.com/news/meteorite-impacts-identified-driver-moons-194214406.html)
+- Aug 02 - [The gold & silver medals that will not be in Olympic table](https://sports.yahoo.com/gold-silver-medals-not-olympic-193028940.html)
 <!-- feed end -->
 
 ### Onstream
