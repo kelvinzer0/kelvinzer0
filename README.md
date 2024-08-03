@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Coca-Cola to pay $6 billion in IRS back taxes case while appealing judge's decision](https://finance.yahoo.com/news/coca-cola-pay-6-billion-001528228.html)
 - Aug 03 - [Chinese company makes first-of-its-kind advancement using sea water — see how the new technology could change the future of nuclear power](https://www.yahoo.com/tech/chinese-company-makes-first-kind-001500243.html)
 - Aug 02 - [Alachua County issues state of emergency ahead of potential tropical cyclone](https://www.yahoo.com/news/alachua-county-issues-state-emergency-233959801.html)
+- Aug 02 - [New court filing says 4 jurors contacted Commonwealth regarding Karen Read murder trial decision](https://www.yahoo.com/news/court-filing-says-4-jurors-152958958.html)
 - Aug 02 - [JPMorgan considers suing consumer watchdog over Zelle](https://finance.yahoo.com/news/jpmorgan-considers-suing-consumer-watchdog-205720363.html)
 - Aug 02 - [Meteorite impacts identified as driver of moon's tenuous atmosphere](https://www.yahoo.com/news/meteorite-impacts-identified-driver-moons-194214406.html)
 <!-- feed end -->
