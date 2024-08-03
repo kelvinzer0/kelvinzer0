@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 02 - [A humpback whale in Washington state is missing its tail. One expert calls the sight 'heartbreaking'](https://www.yahoo.com/news/humpback-whale-washington-state-missing-215920648.html)
-- Aug 02 - [New court filing says 4 jurors contacted Commonwealth regarding Karen Read murder trial decision](https://www.yahoo.com/news/court-filing-says-4-jurors-152958958.html)
-- Aug 02 - [Plane Grounded in Emergency Landing After Passengers Spot Lice Crawling in Woman's Hair Mid-Flight (Exclusive)](https://www.yahoo.com/news/plane-grounded-emergency-landing-passengers-205500674.html)
+- Aug 02 - [Florida man accused of causing deadly Lake Nona crash that left construction worker dead](https://www.yahoo.com/news/florida-man-accused-causing-deadly-193839860.html)
 - Aug 02 - [A North Carolina Republican who mocked women for abortions runs ad with his wife's own story](https://www.yahoo.com/news/north-carolina-republican-mocked-women-191048674.html)
-- Aug 02 - [Supreme Court returns Trump Jan. 6 immunity judgment to lower court](https://www.yahoo.com/news/supreme-court-returns-trump-immunity-185909537.html)
+- Aug 02 - [Three sobriety checkpoints in NE Ohio tonight](https://www.yahoo.com/news/three-sobriety-checkpoints-ne-ohio-113151615.html)
+- Aug 02 - [Anthony Scaramucci Says Trump Could Drop His Presidential Bid Against Kamala Harris If This Happens: 'I Know How This Man Thinks'](https://finance.yahoo.com/news/anthony-scaramucci-says-trump-could-184920640.html)
 <!-- feed end -->
 
 ### Onstream
