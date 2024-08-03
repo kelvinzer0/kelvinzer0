@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 03 - [Chinese company makes first-of-its-kind advancement using sea water — see how the new technology could change the future of nuclear power](https://www.yahoo.com/tech/chinese-company-makes-first-kind-001500243.html)
-- Aug 03 - [Officials urge people to kill and eat highly invasive fish devastating ecosystems: 'Maryland may have to eat itself out of this mess'](https://www.yahoo.com/news/officials-urge-people-kill-eat-000000222.html)
-- Aug 02 - [Gerald Wood takes the stand as day 3 of Tina Peters trial](https://www.yahoo.com/news/gerald-wood-takes-stand-day-234140952.html)
+- Aug 02 - [Alachua County issues state of emergency ahead of potential tropical cyclone](https://www.yahoo.com/news/alachua-county-issues-state-emergency-233959801.html)
 - Aug 02 - [A humpback whale in Washington state is missing its tail. One expert calls the sight 'heartbreaking'](https://www.yahoo.com/news/humpback-whale-washington-state-missing-215920648.html)
+- Aug 02 - [New court filing says 4 jurors contacted Commonwealth regarding Karen Read murder trial decision](https://www.yahoo.com/news/court-filing-says-4-jurors-152958958.html)
 - Aug 02 - [Meteorite impacts identified as driver of moon's tenuous atmosphere](https://www.yahoo.com/news/meteorite-impacts-identified-driver-moons-194214406.html)
 <!-- feed end -->
 
