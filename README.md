@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [A colon cancer breakthrough, a major deli meat recall and the link between dementia and wildfire smoke: Catch up on the week's health news](https://www.yahoo.com/lifestyle/a-colon-cancer-breakthrough-a-major-deli-meat-recall-and-the-link-between-dementia-and-wildfire-smoke-catch-up-on-the-weeks-health-news-100009843.html)
-- Aug 03 - [Church expresses interest in building a senior living center in Belmont](https://www.yahoo.com/news/church-expresses-interest-building-senior-090640212.html)
+- Aug 03 - [3 High-Yielding Dividend Stocks to Buy for Less Than $100](https://finance.yahoo.com/news/3-high-yielding-dividend-stocks-091000244.html)
 - Aug 03 - [Israeli airstrike kills 5 in West Bank, including Hamas commander - Palestinian media](https://www.yahoo.com/news/israeli-airstrike-kills-5-west-052759078.html)
-- Aug 02 - [Gerald Wood takes the stand as day 3 of Tina Peters trial](https://www.yahoo.com/news/gerald-wood-takes-stand-day-234140952.html)
-- Aug 02 - [A humpback whale in Washington state is missing its tail. One expert calls the sight 'heartbreaking'](https://www.yahoo.com/news/humpback-whale-washington-state-missing-215920648.html)
+- Aug 03 - [CNN reporter visits where JD Vance grew up. Hear what voters think of him](https://www.yahoo.com/news/cnn-reporter-visits-where-jd-020545618.html)
+- Aug 03 - [Coca-Cola to pay $6 billion in IRS back taxes case while appealing judge's decision](https://finance.yahoo.com/news/coca-cola-pay-6-billion-001528228.html)
+- Aug 02 - [Meteorite impacts identified as driver of moon's tenuous atmosphere](https://www.yahoo.com/news/meteorite-impacts-identified-driver-moons-194214406.html)
 <!-- feed end -->
 
 ### Onstream
