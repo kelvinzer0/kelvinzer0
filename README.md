@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [A colon cancer breakthrough, a major deli meat recall and the link between dementia and wildfire smoke: Catch up on the week's health news](https://www.yahoo.com/lifestyle/a-colon-cancer-breakthrough-a-major-deli-meat-recall-and-the-link-between-dementia-and-wildfire-smoke-catch-up-on-the-weeks-health-news-100009843.html)
+- Aug 03 - [Church expresses interest in building a senior living center in Belmont](https://www.yahoo.com/news/church-expresses-interest-building-senior-090640212.html)
 - Aug 03 - [Israeli airstrike kills 5 in West Bank, including Hamas commander - Palestinian media](https://www.yahoo.com/news/israeli-airstrike-kills-5-west-052759078.html)
-- Aug 03 - [1 of 3 killed in Nevada prison brawl was white supremacist gang member who killed an inmate in 2016](https://www.yahoo.com/news/1-3-killed-nevada-prison-002808567.html)
-- Aug 03 - [Chinese company makes first-of-its-kind advancement using sea water — see how the new technology could change the future of nuclear power](https://www.yahoo.com/tech/chinese-company-makes-first-kind-001500243.html)
-- Aug 02 - [Alachua County issues state of emergency ahead of potential tropical cyclone](https://www.yahoo.com/news/alachua-county-issues-state-emergency-233959801.html)
+- Aug 02 - [Gerald Wood takes the stand as day 3 of Tina Peters trial](https://www.yahoo.com/news/gerald-wood-takes-stand-day-234140952.html)
 - Aug 02 - [A humpback whale in Washington state is missing its tail. One expert calls the sight 'heartbreaking'](https://www.yahoo.com/news/humpback-whale-washington-state-missing-215920648.html)
 <!-- feed end -->
 
