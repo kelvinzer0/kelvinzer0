@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Ukraine says it sank Russian submarine in Crimea](https://www.yahoo.com/news/ukraine-says-sank-russian-submarine-163958962.html)
 - Aug 03 - [Passenger caused fatal motorway crash after pulling handbrake at 70mph during row with ex-partner](https://www.yahoo.com/news/passenger-caused-fatal-motorway-pile-161936272.html)
-- Aug 03 - [Spectator dragged from arena for holding up Taiwan banner during Olympic badminton match](https://www.yahoo.com/news/spectator-dragged-arena-holding-taiwan-115921757.html)
 - Aug 03 - [Frontier Airlines pilot arrested and escorted off aircraft by police in Houston](https://www.yahoo.com/news/frontier-airlines-pilot-arrested-escorted-153807545.html)
+- Aug 03 - [What homebuyers and sellers need to know as seismic changes take hold](https://finance.yahoo.com/news/what-homebuyers-and-sellers-need-to-know-as-seismic-changes-take-hold-152726845.html)
 - Aug 03 - [Fast Food Chains That Serve The Highest And Lowest Quality Burgers](https://www.yahoo.com/lifestyle/fast-food-chains-serve-highest-144013621.html)
-- Aug 03 - [Berkshire halves Apple stake, boosts cash to $277 billion as it gets 'defensive’](https://finance.yahoo.com/news/berkshires-cash-hits-277-billion-123056697.html)
 <!-- feed end -->
 
 ### Onstream
