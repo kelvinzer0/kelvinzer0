@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [This Top Dividend Stock Has Raised Its Payout for 62 Straight Years: Is It a No-Brainer Buy?](https://finance.yahoo.com/news/top-dividend-stock-raised-payout-131500416.html)
-- Aug 03 - [Berkshire's cash hits $277 billion as Buffett slashes Apple stake; operating profit sets record](https://finance.yahoo.com/news/berkshires-cash-hits-277-billion-123056697.html)
-- Aug 03 - [I'm 59. How Do I Make Sure My $1.3 Million IRA Lasts the Rest of My Life?](https://finance.yahoo.com/news/im-59-1-3-million-130000012.html)
+- Aug 03 - [Fast Food Chains That Serve The Highest And Lowest Quality Burgers](https://www.yahoo.com/lifestyle/fast-food-chains-serve-highest-144013621.html)
+- Aug 03 - [Berkshire halves Apple stake, boosts cash to $277 billion even as operating profit sets record](https://finance.yahoo.com/news/berkshires-cash-hits-277-billion-123056697.html)
+- Aug 03 - [Live roaches, flies over food and more in Midlands restaurants with worst July inspections](https://www.yahoo.com/news/live-roaches-flies-over-food-100000901.html)
 - Aug 03 - [‘An atrocious wrongdoing’: Florida neighborhood floods regularly after homeowner plugs its only drainpipe](https://www.yahoo.com/news/atrocious-wrongdoing-florida-neighborhood-floods-080000538.html)
 - Aug 03 - ['They were ambushed': Florida sheriff gives update on shooting of Lake County deputies](https://www.yahoo.com/news/were-ambushed-florida-sheriff-gives-063521903.html)
 <!-- feed end -->
