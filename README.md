@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Delay to Nvidia's new AI chip could affect Microsoft, Google, Meta, the Information says](https://finance.yahoo.com/news/delay-nvidias-ai-chip-could-224522920.html)
+- Aug 03 - [El Paso Walmart mass shooting milestone: 'A despicable act of hate'](https://www.yahoo.com/news/el-paso-walmart-mass-shooting-221004608.html)
 - Aug 03 - [Chairs and bottles thrown as protesters clash in resort](https://www.yahoo.com/news/chairs-bottles-thrown-protesters-clash-195332585.html)
-- Aug 03 - [Storms with 70-mph gusts, quarter-size hail threaten Charlotte on Saturday, NWS says](https://www.yahoo.com/news/storms-70-mph-gusts-quarter-190459215.html)
-- Aug 03 - [Bill Gross says don’t buy the dip as stocks crash while Warren Buffett’s moves hint at ‘sell signal’](https://finance.yahoo.com/news/bill-gross-says-don-t-190328757.html)
-- Aug 03 - [Watch: Ominous skies seen over waters of Fort Myers Beach as storm approaches](https://www.yahoo.com/news/watch-ominous-skies-seen-over-185655892.html)
-- Aug 03 - [Frontier Airlines pilot arrested and escorted off aircraft by police in Houston](https://www.yahoo.com/news/frontier-airlines-pilot-arrested-escorted-153807545.html)
+- Aug 03 - [Prince Harry & Meghan's Colombia Tour Raises Eyebrows After The Duke Labeled UK 'Dangerous'](https://www.yahoo.com/entertainment/prince-harry-meghans-colombia-tour-204537727.html)
+- Aug 03 - [Watch YouTuber WhistlinDiesel Stress Test His Tesla Cybertruck and Snap Its Frame](https://autos.yahoo.com/watch-cybertruck-attempts-tow-ford-194000459.html)
 <!-- feed end -->
 
 ### Onstream
