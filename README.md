@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 03 - [Chairs and bottles thrown as protesters clash in resort](https://www.yahoo.com/news/chairs-bottles-thrown-protesters-clash-195332585.html)
-- Aug 03 - [‘Astonishing’ Antarctica heat wave sends temperatures 50 degrees above normal](https://www.yahoo.com/news/astonishing-antarctica-heat-wave-sends-180002281.html)
-- Aug 03 - [Trump says he'll skip an ABC debate with Harris in September and wants them to face off on Fox News](https://www.yahoo.com/news/trump-says-hell-skip-abc-175650251.html)
-- Aug 03 - [3 arrested after ‘large amounts’ of explosives, drugs found in KC home](https://www.yahoo.com/news/3-arrested-large-amounts-explosives-164903059.html)
-- Aug 03 - [Ukraine says it sank Russian submarine in Crimea](https://www.yahoo.com/news/ukraine-says-sank-russian-submarine-163958962.html)
+- Aug 03 - [Storms with 70-mph gusts, quarter-size hail threaten Charlotte on Saturday, NWS says](https://www.yahoo.com/news/storms-70-mph-gusts-quarter-190459215.html)
+- Aug 03 - [Bill Gross says don’t buy the dip as stocks crash while Warren Buffett’s moves hint at ‘sell signal’](https://finance.yahoo.com/news/bill-gross-says-don-t-190328757.html)
+- Aug 03 - [Watch: Ominous skies seen over waters of Fort Myers Beach as storm approaches](https://www.yahoo.com/news/watch-ominous-skies-seen-over-185655892.html)
+- Aug 03 - [Frontier Airlines pilot arrested and escorted off aircraft by police in Houston](https://www.yahoo.com/news/frontier-airlines-pilot-arrested-escorted-153807545.html)
 <!-- feed end -->
 
 ### Onstream
