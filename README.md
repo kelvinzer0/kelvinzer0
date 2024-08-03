@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [A humpback whale in Washington state is missing its tail. One expert calls the sight 'heartbreaking'](https://www.yahoo.com/news/humpback-whale-washington-state-missing-215920648.html)
-- Aug 02 - [Florida man accused of causing deadly Lake Nona crash that left construction worker dead](https://www.yahoo.com/news/florida-man-accused-causing-deadly-193839860.html)
+- Aug 02 - [Alachua County issues state of emergency ahead of potential tropical cyclone](https://www.yahoo.com/news/alachua-county-issues-state-emergency-233959801.html)
+- Aug 02 - [Man dies after attempting illegal BASE jump at the Grand Canyon: NPS](https://www.yahoo.com/news/man-dies-attempting-illegal-jump-223825046.html)
+- Aug 02 - [Meteorite impacts identified as driver of moon's tenuous atmosphere](https://www.yahoo.com/news/meteorite-impacts-identified-driver-moons-194214406.html)
 - Aug 02 - [A North Carolina Republican who mocked women for abortions runs ad with his wife's own story](https://www.yahoo.com/news/north-carolina-republican-mocked-women-191048674.html)
-- Aug 02 - [Three sobriety checkpoints in NE Ohio tonight](https://www.yahoo.com/news/three-sobriety-checkpoints-ne-ohio-113151615.html)
-- Aug 02 - [Anthony Scaramucci Says Trump Could Drop His Presidential Bid Against Kamala Harris If This Happens: 'I Know How This Man Thinks'](https://finance.yahoo.com/news/anthony-scaramucci-says-trump-could-184920640.html)
+- Aug 02 - [Jury reaches split verdict in baby abandonment case involving Dennis Eckersley's daughter](https://www.yahoo.com/news/jury-reaches-verdict-baby-abandonment-184454198.html)
 <!-- feed end -->
 
 ### Onstream
