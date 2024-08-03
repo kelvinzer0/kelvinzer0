@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [‘Astonishing’ Antarctica heat wave sends temperatures 50 degrees above normal](https://www.yahoo.com/news/astonishing-antarctica-heat-wave-sends-180002281.html)
+- Aug 03 - [Trump says he'll skip an ABC debate with Harris in September and wants them to face off on Fox News](https://www.yahoo.com/news/trump-says-hell-skip-abc-175650251.html)
 - Aug 03 - [Ukraine says it sank Russian submarine in Crimea](https://www.yahoo.com/news/ukraine-says-sank-russian-submarine-163958962.html)
+- Aug 03 - [Trail-cam footage shows bears 'foreplaying' in Yukon forest](https://www.yahoo.com/lifestyle/trail-cam-footage-shows-bears-162617287.html)
 - Aug 03 - [Passenger caused fatal motorway crash after pulling handbrake at 70mph during row with ex-partner](https://www.yahoo.com/news/passenger-caused-fatal-motorway-pile-161936272.html)
-- Aug 03 - [Frontier Airlines pilot arrested and escorted off aircraft by police in Houston](https://www.yahoo.com/news/frontier-airlines-pilot-arrested-escorted-153807545.html)
-- Aug 03 - [What homebuyers and sellers need to know as seismic changes take hold](https://finance.yahoo.com/news/what-homebuyers-and-sellers-need-to-know-as-seismic-changes-take-hold-152726845.html)
-- Aug 03 - [Fast Food Chains That Serve The Highest And Lowest Quality Burgers](https://www.yahoo.com/lifestyle/fast-food-chains-serve-highest-144013621.html)
 <!-- feed end -->
 
 ### Onstream
