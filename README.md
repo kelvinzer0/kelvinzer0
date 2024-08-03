@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [3 Unstoppable Stocks to Buy in August](https://finance.yahoo.com/news/3-unstoppable-stocks-buy-august-114500700.html)
-- Aug 03 - [Prediction: This Big Bet by Meta Platforms Will Equal Billions for Nvidia](https://finance.yahoo.com/news/prediction-big-bet-meta-platforms-113500535.html)
 - Aug 03 - ['They were ambushed': Florida sheriff gives update on shooting of Lake County deputies](https://www.yahoo.com/news/were-ambushed-florida-sheriff-gives-063521903.html)
-- Aug 03 - [Israeli airstrike kills 5 in West Bank, including Hamas commander - Palestinian media](https://www.yahoo.com/news/israeli-airstrike-kills-5-west-052759078.html)
+- Aug 03 - [Israeli airstrikes kill nine in West Bank, including a Hamas commander](https://www.yahoo.com/news/israeli-airstrike-kills-5-west-052759078.html)
+- Aug 03 - [Tempe police officer celebrated for curbing drunk driving arrested in DUI](https://www.yahoo.com/news/tempe-police-officer-celebrated-curbing-040534112.html)
 - Aug 03 - [CNN reporter visits where JD Vance grew up. Hear what voters think of him](https://www.yahoo.com/news/cnn-reporter-visits-where-jd-020545618.html)
+- Aug 03 - [Video of road rage slap prompts assault charge against unapologetic driver](https://www.yahoo.com/news/video-road-rage-slap-prompts-002922095.html)
 <!-- feed end -->
 
 ### Onstream
