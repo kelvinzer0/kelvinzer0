@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [31 Cities Where Luxury Home Values Are Soaring](https://finance.yahoo.com/news/31-cities-where-luxury-home-140412022.html)
 - Aug 04 - [Ukraine finally deploying F-16 fighter jets, says Zelenskiy](https://www.yahoo.com/news/ukraine-finally-deploying-f-16-133644686.html)
-- Aug 04 - [Owner of Olalla Bay Market files $35M claim against Kitsap County after complaints](https://www.yahoo.com/news/owner-olalla-bay-market-files-121500919.html)
 - Aug 04 - [IOC calls tests that sparked vitriol targeting boxers Imane Khelif and Lin Yu-Ting impossibly flawed](https://sports.yahoo.com/ioc-calls-tests-sparked-vitriol-112143818.html)
+- Aug 04 - [Silicon Valley exec accidentally sent $400,000 down payment to a scammer — now she's warning house hunters](https://finance.yahoo.com/news/silicon-valley-exec-accidentally-sent-111700889.html)
 - Aug 04 - [Global stock traders face dip-buying dilemma after crushing selloff](https://finance.yahoo.com/news/analysis-global-stock-traders-face-110220729.html)
+- Aug 04 - [Real estate deals in America are getting canceled at the last minute — for the most insignificant reasons](https://finance.yahoo.com/news/real-estate-deals-america-getting-102700324.html)
 <!-- feed end -->
 
 ### Onstream
