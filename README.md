@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Silicon Valley exec accidentally sent $400,000 down payment to a scammer — now she's warning house hunters](https://finance.yahoo.com/news/silicon-valley-exec-accidentally-sent-111700889.html)
+- Aug 04 - [Legislative intern spearheads House interim study on water contamination](https://www.yahoo.com/news/legislative-intern-spearheads-house-interim-110122624.html)
+- Aug 04 - [Real estate deals in America are getting canceled at the last minute — for the most insignificant reasons](https://finance.yahoo.com/news/real-estate-deals-america-getting-102700324.html)
 - Aug 04 - [Forgive Me, I'm Still Laughing At The 19 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/forgive-im-still-laughing-19-091602187.html)
-- Aug 04 - [‘Worst season ever’: How things got ugly on Greece’s ‘Instagram island’](https://www.yahoo.com/lifestyle/worst-season-ever-things-got-040102458.html)
-- Aug 04 - [Putin vows support to North Korea after devastating floods](https://www.yahoo.com/news/putin-vows-support-north-korea-013436226.html)
-- Aug 04 - [Trump reopens old feud in Georgia. Some Republicans are scratching their heads.](https://www.yahoo.com/news/trump-reopening-old-feud-blasts-005606074.html)
-- Aug 04 - [County-by-county closings, cancellations, resources for Northeast Florida due to Tropical Storm Debby](https://www.yahoo.com/news/county-county-closings-cancellations-resources-023527710.html)
+- Aug 04 - [U.S. Money Supply Has Done Something So Unusual That It Hasn't Happened Since the Great Depression -- and a Big Move in Stocks May Await](https://finance.yahoo.com/news/u-money-supply-done-something-085100215.html)
 <!-- feed end -->
 
 ### Onstream
