@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Belgium withdraws from mixed relay triathlon after athlete who swam in Seine River falls ill](https://sports.yahoo.com/belgium-withdraws-mixed-relay-triathlon-173701804.html)
+- Aug 04 - [Navy chef lured colleague into ship’s scullery before locking door and assaulting him, court hears](https://www.yahoo.com/news/navy-chef-lured-colleague-ship-180621605.html)
+- Aug 04 - [World’s largest iceberg spins in the ocean, refusing to melt](https://www.yahoo.com/news/world-largest-iceberg-spins-ocean-175229422.html)
+- Aug 04 - [Belgium withdraws from mixed relay triathlon after athlete who swam in Seine River falls ill](https://www.yahoo.com/news/belgium-withdraws-mixed-relay-triathlon-173701804.html)
 - Aug 04 - ['You just repeated the slur:' Stephanopoulos presses Trump ally on Harris identity attack](https://www.yahoo.com/news/just-repeated-slur-stephanopoulos-presses-170608757.html)
 - Aug 04 - [Ukraine's Zelenskyy displays newly arrived F-16 fighter jets to combat Russia in the air](https://www.yahoo.com/news/ukraines-zelenskyy-displays-newly-arrived-142038077.html)
-- Aug 04 - [EV costs on track to match gas guzzlers as early as next year as battery prices drop 'dramatically'](https://finance.yahoo.com/news/ev-costs-on-track-to-match-gas-guzzlers-as-early-as-next-year-as-battery-prices-drop-dramatically-140056938.html)
-- Aug 04 - [Ukraine finally deploying F-16 fighter jets, says Zelenskiy](https://www.yahoo.com/news/ukraine-finally-deploying-f-16-133644686.html)
 <!-- feed end -->
 
 ### Onstream
