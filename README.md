@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Debby could bring 'catastrophic' rain to Savannah; up to 30 inches possible in areas](https://www.yahoo.com/news/debby-could-bring-catastrophic-rain-165713228.html)
-- Aug 04 - [Israel in a multi-front war, Netanyahu warns](https://www.yahoo.com/news/israel-multi-front-war-netanyahu-165201049.html)
-- Aug 04 - [‘We just had to wait’: Several flights diverted to Boston due to weather leaving passengers stranded](https://www.yahoo.com/news/just-had-wait-several-flights-161041481.html)
-- Aug 04 - [The Vatican Finally Responds To Olympics “Last Supper” Controversy](https://www.yahoo.com/news/vatican-finally-responds-olympics-last-154101057.html)
-- Aug 04 - [Mayor Johnson to issue Emergency Order for Savannah](https://www.yahoo.com/news/mayor-johnson-issue-emergency-order-150823291.html)
+- Aug 04 - [Belgium withdraws from mixed relay triathlon after athlete who swam in Seine River falls ill](https://sports.yahoo.com/belgium-withdraws-mixed-relay-triathlon-173701804.html)
+- Aug 04 - ['You just repeated the slur:' Stephanopoulos presses Trump ally on Harris identity attack](https://www.yahoo.com/news/just-repeated-slur-stephanopoulos-presses-170608757.html)
+- Aug 04 - [Ukraine's Zelenskyy displays newly arrived F-16 fighter jets to combat Russia in the air](https://www.yahoo.com/news/ukraines-zelenskyy-displays-newly-arrived-142038077.html)
+- Aug 04 - [EV costs on track to match gas guzzlers as early as next year as battery prices drop 'dramatically'](https://finance.yahoo.com/news/ev-costs-on-track-to-match-gas-guzzlers-as-early-as-next-year-as-battery-prices-drop-dramatically-140056938.html)
+- Aug 04 - [Ukraine finally deploying F-16 fighter jets, says Zelenskiy](https://www.yahoo.com/news/ukraine-finally-deploying-f-16-133644686.html)
 <!-- feed end -->
 
 ### Onstream
