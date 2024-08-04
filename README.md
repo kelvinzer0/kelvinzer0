@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Why I Can't Wait to Buy Even More of These 2 High-Yielding Dividend Stocks in August](https://finance.yahoo.com/news/why-cant-wait-buy-even-134200724.html)
+- Aug 04 - [31 Cities Where Luxury Home Values Are Soaring](https://finance.yahoo.com/news/31-cities-where-luxury-home-140412022.html)
 - Aug 04 - [Ukraine finally deploying F-16 fighter jets, says Zelenskiy](https://www.yahoo.com/news/ukraine-finally-deploying-f-16-133644686.html)
+- Aug 04 - [Owner of Olalla Bay Market files $35M claim against Kitsap County after complaints](https://www.yahoo.com/news/owner-olalla-bay-market-files-121500919.html)
 - Aug 04 - [IOC calls tests that sparked vitriol targeting boxers Imane Khelif and Lin Yu-Ting impossibly flawed](https://sports.yahoo.com/ioc-calls-tests-sparked-vitriol-112143818.html)
-- Aug 04 - [Forgive Me, I'm Still Laughing At The 19 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/forgive-im-still-laughing-19-091602187.html)
-- Aug 04 - [MSP: Woman slips out of handcuffs and steals patrol car, prompting chase](https://www.yahoo.com/news/msp-woman-slips-handcuffs-steals-022607938.html)
+- Aug 04 - [Global stock traders face dip-buying dilemma after crushing selloff](https://finance.yahoo.com/news/analysis-global-stock-traders-face-110220729.html)
 <!-- feed end -->
 
 ### Onstream
