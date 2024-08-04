@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Delay to Nvidia's new AI chip could affect Microsoft, Google, Meta, the Information says](https://finance.yahoo.com/news/delay-nvidias-ai-chip-could-224522920.html)
-- Aug 03 - [El Paso Walmart mass shooting milestone: 'A despicable act of hate'](https://www.yahoo.com/news/el-paso-walmart-mass-shooting-221004608.html)
+- Aug 03 - [Israeli Iron Dome air defense system intercepts an attack from Lebanon over the Galilee region](https://www.yahoo.com/news/israeli-iron-dome-air-defense-225338477.html)
+- Aug 03 - [Delay to Nvidia's new AI chip could affect Microsoft, Google, Meta, the Information says](https://finance.yahoo.com/news/delay-nvidias-ai-chip-could-224522286.html)
 - Aug 03 - [Chairs and bottles thrown as protesters clash in resort](https://www.yahoo.com/news/chairs-bottles-thrown-protesters-clash-195332585.html)
-- Aug 03 - [Prince Harry & Meghan's Colombia Tour Raises Eyebrows After The Duke Labeled UK 'Dangerous'](https://www.yahoo.com/entertainment/prince-harry-meghans-colombia-tour-204537727.html)
+- Aug 03 - [Invest $50K in Johnson & Johnson to Become a Dividend Millionaire in 10 Years](https://finance.yahoo.com/news/invest-50k-johnson-johnson-become-200008688.html)
 - Aug 03 - [Watch YouTuber WhistlinDiesel Stress Test His Tesla Cybertruck and Snap Its Frame](https://autos.yahoo.com/watch-cybertruck-attempts-tow-ford-194000459.html)
 <!-- feed end -->
 
