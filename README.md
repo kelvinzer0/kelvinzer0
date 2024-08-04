@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Ukraine finally deploying F-16 fighter jets, says Zelenskiy](https://www.yahoo.com/news/ukraine-finally-deploying-f-16-133644686.html)
-- Aug 04 - [IOC calls tests that sparked vitriol targeting boxers Imane Khelif and Lin Yu-Ting impossibly flawed](https://sports.yahoo.com/ioc-calls-tests-sparked-vitriol-112143818.html)
-- Aug 04 - [Silicon Valley exec accidentally sent $400,000 down payment to a scammer — now she's warning house hunters](https://finance.yahoo.com/news/silicon-valley-exec-accidentally-sent-111700889.html)
-- Aug 04 - [Global stock traders face dip-buying dilemma after crushing selloff](https://finance.yahoo.com/news/analysis-global-stock-traders-face-110220729.html)
-- Aug 04 - [Real estate deals in America are getting canceled at the last minute — for the most insignificant reasons](https://finance.yahoo.com/news/real-estate-deals-america-getting-102700324.html)
+- Aug 04 - [Debby could bring 'catastrophic' rain to Savannah; up to 30 inches possible in areas](https://www.yahoo.com/news/debby-could-bring-catastrophic-rain-165713228.html)
+- Aug 04 - [Israel in a multi-front war, Netanyahu warns](https://www.yahoo.com/news/israel-multi-front-war-netanyahu-165201049.html)
+- Aug 04 - [‘We just had to wait’: Several flights diverted to Boston due to weather leaving passengers stranded](https://www.yahoo.com/news/just-had-wait-several-flights-161041481.html)
+- Aug 04 - [The Vatican Finally Responds To Olympics “Last Supper” Controversy](https://www.yahoo.com/news/vatican-finally-responds-olympics-last-154101057.html)
+- Aug 04 - [Mayor Johnson to issue Emergency Order for Savannah](https://www.yahoo.com/news/mayor-johnson-issue-emergency-order-150823291.html)
 <!-- feed end -->
 
 ### Onstream
