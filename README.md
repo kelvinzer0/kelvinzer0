@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [IDF uncovers massive smuggling tunnel for vehicles on Gaza-Egypt border](https://www.yahoo.com/news/idf-uncovers-massive-smuggling-tunnel-180747648.html)
+- Aug 04 - [First Alert Weather: First Alert Weather Day Through Tuesday](https://www.yahoo.com/news/first-alert-weather-first-alert-203744173.html)
+- Aug 04 - [Former Trump administration official Kellyanne Conway registers as lobbyist for Ukrainian billionaire with past ties to Trump](https://www.yahoo.com/news/former-trump-administration-official-kellyanne-202320816.html)
+- Aug 04 - [I’m a Retired Boomer: Here Are 7 New Cars I’m Considering Buying](https://finance.yahoo.com/news/m-retired-boomer-7-cars-180021401.html)
 - Aug 04 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://finance.yahoo.com/news/charger-hogs-ruining-electric-vehicle-180002845.html)
 - Aug 04 - [World’s largest iceberg spins in the ocean, refusing to melt](https://www.yahoo.com/news/world-largest-iceberg-spins-ocean-175229422.html)
-- Aug 04 - [Belgium withdraws from mixed relay triathlon after athlete who swam in Seine River falls ill](https://www.yahoo.com/news/belgium-withdraws-mixed-relay-triathlon-173701804.html)
-- Aug 04 - [Ukraine's Zelenskyy displays newly arrived F-16 fighter jets to combat Russia in the air](https://www.yahoo.com/news/ukraines-zelenskyy-displays-newly-arrived-142038077.html)
 <!-- feed end -->
 
 ### Onstream
