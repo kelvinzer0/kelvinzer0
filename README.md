@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [France urges nationals to leave Lebanon as fear of war looms](https://www.yahoo.com/news/france-urges-nationals-leave-lebanon-183437414.html)
-- Aug 04 - [Navy chef lured colleague into ship’s scullery before locking door and assaulting him, court hears](https://www.yahoo.com/news/navy-chef-lured-colleague-ship-180621605.html)
+- Aug 04 - [IDF uncovers massive smuggling tunnel for vehicles on Gaza-Egypt border](https://www.yahoo.com/news/idf-uncovers-massive-smuggling-tunnel-180747648.html)
+- Aug 04 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://finance.yahoo.com/news/charger-hogs-ruining-electric-vehicle-180002845.html)
 - Aug 04 - [World’s largest iceberg spins in the ocean, refusing to melt](https://www.yahoo.com/news/world-largest-iceberg-spins-ocean-175229422.html)
-- Aug 04 - [Belgium withdraws from mixed relay triathlon after athlete who swam in Seine River falls ill](https://sports.yahoo.com/belgium-withdraws-mixed-relay-triathlon-173701804.html)
-- Aug 04 - ['You just repeated the slur:' Stephanopoulos presses Trump ally on Harris identity attack](https://www.yahoo.com/news/just-repeated-slur-stephanopoulos-presses-170608757.html)
+- Aug 04 - [Belgium withdraws from mixed relay triathlon after athlete who swam in Seine River falls ill](https://www.yahoo.com/news/belgium-withdraws-mixed-relay-triathlon-173701804.html)
+- Aug 04 - [Ukraine's Zelenskyy displays newly arrived F-16 fighter jets to combat Russia in the air](https://www.yahoo.com/news/ukraines-zelenskyy-displays-newly-arrived-142038077.html)
 <!-- feed end -->
 
 ### Onstream
