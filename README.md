@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Silicon Valley exec accidentally sent $400,000 down payment to a scammer — now she's warning house hunters](https://finance.yahoo.com/news/silicon-valley-exec-accidentally-sent-111700889.html)
-- Aug 04 - [Legislative intern spearheads House interim study on water contamination](https://www.yahoo.com/news/legislative-intern-spearheads-house-interim-110122624.html)
-- Aug 04 - [Real estate deals in America are getting canceled at the last minute — for the most insignificant reasons](https://finance.yahoo.com/news/real-estate-deals-america-getting-102700324.html)
+- Aug 04 - [Russians pay homage to Wagner fighters killed in Mali](https://www.yahoo.com/news/russians-pay-homage-wagner-fighters-125657362.html)
+- Aug 04 - [Black female cattle rancher from Fresno breaks stereotypes as she blazes new trail](https://www.yahoo.com/news/black-female-cattle-rancher-fresno-123000590.html)
 - Aug 04 - [Forgive Me, I'm Still Laughing At The 19 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/forgive-im-still-laughing-19-091602187.html)
-- Aug 04 - [U.S. Money Supply Has Done Something So Unusual That It Hasn't Happened Since the Great Depression -- and a Big Move in Stocks May Await](https://finance.yahoo.com/news/u-money-supply-done-something-085100215.html)
+- Aug 04 - [Dear Abby: My friends are upset that I called the police on their suicidal daughter — should I have intervened?](https://www.yahoo.com/lifestyle/dear-abby-friends-upset-called-070000531.html)
+- Aug 04 - [Putin vows support to North Korea after devastating floods](https://www.yahoo.com/news/putin-vows-support-north-korea-013436226.html)
 <!-- feed end -->
 
 ### Onstream
