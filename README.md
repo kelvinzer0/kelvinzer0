@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Warm Gulf waters could help slow-moving Tropical Storm Debby strengthen to a Category 1 hurricane before landfall](https://www.yahoo.com/news/warm-gulf-waters-could-help-060148365.html)
-- Aug 04 - [These San Diego parks and trails are closed amid triple digit temperatures](https://www.yahoo.com/news/san-diego-parks-trails-closed-055826859.html)
+- Aug 04 - [Forgive Me, I'm Still Laughing At The 19 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/forgive-im-still-laughing-19-091602187.html)
+- Aug 04 - [‘Worst season ever’: How things got ugly on Greece’s ‘Instagram island’](https://www.yahoo.com/lifestyle/worst-season-ever-things-got-040102458.html)
 - Aug 04 - [Putin vows support to North Korea after devastating floods](https://www.yahoo.com/news/putin-vows-support-north-korea-013436226.html)
-- Aug 03 - [Chairs and bottles thrown as protesters clash in resort](https://www.yahoo.com/news/chairs-bottles-thrown-protesters-clash-195332585.html)
-- Aug 03 - [Invest $50K in Johnson & Johnson to Become a Dividend Millionaire in 10 Years](https://finance.yahoo.com/news/invest-50k-johnson-johnson-become-200008688.html)
+- Aug 04 - [Trump reopens old feud in Georgia. Some Republicans are scratching their heads.](https://www.yahoo.com/news/trump-reopening-old-feud-blasts-005606074.html)
+- Aug 04 - [County-by-county closings, cancellations, resources for Northeast Florida due to Tropical Storm Debby](https://www.yahoo.com/news/county-county-closings-cancellations-resources-023527710.html)
 <!-- feed end -->
 
 ### Onstream
