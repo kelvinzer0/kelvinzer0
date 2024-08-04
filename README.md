@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [First Alert Weather: First Alert Weather Day Through Tuesday](https://www.yahoo.com/news/first-alert-weather-first-alert-203744173.html)
-- Aug 04 - [Former Trump administration official Kellyanne Conway registers as lobbyist for Ukrainian billionaire with past ties to Trump](https://www.yahoo.com/news/former-trump-administration-official-kellyanne-202320816.html)
-- Aug 04 - [I’m a Retired Boomer: Here Are 7 New Cars I’m Considering Buying](https://finance.yahoo.com/news/m-retired-boomer-7-cars-180021401.html)
+- Aug 04 - [Dave Ramsey: Why You Shouldn’t Rent Long Term Even if You Don’t Want To Own](https://finance.yahoo.com/news/dave-ramsey-why-shouldn-t-220009608.html)
+- Aug 04 - [Morning Bid: Goodbye soft landing, hello emergency landing](https://finance.yahoo.com/news/morning-bid-goodbye-soft-landing-215148168.html)
+- Aug 04 - [IDF uncovers massive smuggling tunnel for vehicles on Gaza-Egypt border](https://www.yahoo.com/news/idf-uncovers-massive-smuggling-tunnel-180747648.html)
 - Aug 04 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://finance.yahoo.com/news/charger-hogs-ruining-electric-vehicle-180002845.html)
 - Aug 04 - [World’s largest iceberg spins in the ocean, refusing to melt](https://www.yahoo.com/news/world-largest-iceberg-spins-ocean-175229422.html)
 <!-- feed end -->
