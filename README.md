@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [These San Diego parks and trails are closed amid triple digit temperatures](https://www.yahoo.com/news/san-diego-parks-trails-closed-055826859.html)
 - Aug 04 - [‘Worst season ever’: How things got ugly on Greece’s ‘Instagram island’](https://www.yahoo.com/lifestyle/worst-season-ever-things-got-040102458.html)
 - Aug 04 - [Putin vows support to North Korea after devastating floods](https://www.yahoo.com/news/putin-vows-support-north-korea-013436226.html)
 - Aug 04 - [Trump reopens old feud in Georgia. Some Republicans are scratching their heads.](https://www.yahoo.com/news/trump-reopening-old-feud-blasts-005606074.html)
-- Aug 03 - [Delay to Nvidia's new AI chip could affect Microsoft, Google, Meta, the Information says](https://finance.yahoo.com/news/delay-nvidias-ai-chip-could-224522286.html)
-- Aug 03 - [Chairs and bottles thrown as protesters clash in resort](https://www.yahoo.com/news/chairs-bottles-thrown-protesters-clash-195332585.html)
+- Aug 03 - [Israeli Iron Dome air defense system intercepts an attack from Lebanon over the Galilee region](https://www.yahoo.com/news/israeli-iron-dome-air-defense-225338477.html)
 <!-- feed end -->
 
 ### Onstream
