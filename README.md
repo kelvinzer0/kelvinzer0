@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 04 - [Putin vows support to North Korea after devastating floods](https://www.yahoo.com/news/putin-vows-support-north-korea-013436226.html)
-- Aug 03 - [Delay to Nvidia's new AI chip could affect Microsoft, Google, Meta, the Information says](https://finance.yahoo.com/news/delay-nvidias-ai-chip-could-224522286.html)
+- Aug 04 - [Trump reopens old feud in Georgia. Some Republicans are scratching their heads.](https://www.yahoo.com/news/trump-reopening-old-feud-blasts-005606074.html)
+- Aug 03 - [L.A. hospital seeks help identifying injured woman found lying on ground](https://www.yahoo.com/news/l-hospital-seeks-help-identifying-235551150.html)
 - Aug 03 - [Chairs and bottles thrown as protesters clash in resort](https://www.yahoo.com/news/chairs-bottles-thrown-protesters-clash-195332585.html)
 - Aug 03 - [Invest $50K in Johnson & Johnson to Become a Dividend Millionaire in 10 Years](https://finance.yahoo.com/news/invest-50k-johnson-johnson-become-200008688.html)
-- Aug 03 - [Watch YouTuber WhistlinDiesel Stress Test His Tesla Cybertruck and Snap Its Frame](https://autos.yahoo.com/watch-cybertruck-attempts-tow-ford-194000459.html)
 <!-- feed end -->
 
 ### Onstream
