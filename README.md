@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [Washington attorney general and sheriff who helped nab Green River Killer fight for governor's seat](https://www.yahoo.com/news/washington-attorney-general-sheriff-helped-040807993.html)
+- Aug 05 - [Investors' comments on market sell-off](https://finance.yahoo.com/news/investors-comments-market-sell-off-030030091.html)
 - Aug 05 - [North Korean leader marks the delivery of 250 nuclear-capable missile launchers to frontline units](https://www.yahoo.com/news/north-korean-leader-marks-delivery-025304593.html)
 - Aug 05 - [China's services activity expands further, but external demand slows, Caixin PMI shows](https://finance.yahoo.com/news/chinas-services-activity-expands-further-015146087.html)
 - Aug 04 - [Olympic boxer Imane Khelif calls for end to bullying after backlash over gender misconceptions](https://sports.yahoo.com/olympic-boxer-imane-khelif-calls-234741056.html)
-- Aug 04 - [Stocks routed by US recession risk, bonds bet on rapid rate cuts](https://finance.yahoo.com/news/stocks-shaken-us-recession-fears-233737120.html)
-- Aug 04 - [Mark Kelly Appears to Exit Race for Kamala Harris’ VP, Then Deletes Tweet: ‘My Mission Is Serving Arizonans’](https://www.yahoo.com/news/mark-kelly-appears-exit-race-230505315.html)
 <!-- feed end -->
 
 ### Onstream
