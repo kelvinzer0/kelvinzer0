@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Analysis-Global market rout has more to do with end of cheap funding than US economy](https://finance.yahoo.com/news/analysis-global-market-rout-more-144141218.html)
+- Aug 05 - [Amazon deal of the day: The iPad mini 6 is back at its Prime Day price](https://www.yahoo.com/tech/amazon-deal-day-ipad-mini-153114857.html)
+- Aug 05 - [Has Harris finally broken Trump? He's flailing, glitching and running scared.](https://www.yahoo.com/news/harris-finally-broken-trump-hes-153050470.html)
+- Aug 05 - [Schwab, Fidelity, other online trading brokerages appear to go dark during huge market sell-off](https://finance.yahoo.com/news/schwab-fidelity-other-online-trading-151427399.html)
+- Aug 05 - [Why the stock market is freaking out again](https://finance.yahoo.com/news/why-stock-market-freaking-again-144251618.html)
 - Aug 05 - [Intel is taking another of ASML's High NA tools, says CEO](https://finance.yahoo.com/news/intel-taking-another-asmls-high-141533952.html)
-- Aug 05 - [Nearly 300 households in Cathedral City without power amid excessive heat warning](https://www.yahoo.com/news/nearly-300-households-cathedral-city-141454012.html)
-- Aug 05 - [I Did Everything 'Right' And I Still Got Herpes. Years Later, I'm Finally Making My Peace With That.](https://www.yahoo.com/lifestyle/did-everything-still-got-herpes-130002159.html)
-- Aug 05 - [Magnificent Seven set to shed $900 billion in value, led by Apple, Nvidia](https://finance.yahoo.com/news/magnificent-seven-set-shed-1-121217049.html)
 <!-- feed end -->
 
 ### Onstream
