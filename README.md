@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [UK riots: No10 slaps down Elon Musk over 'civil war is inevitable' post](https://www.yahoo.com/news/social-media-acted-rocket-booster-104844302.html)
-- Aug 05 - [Stock market news today: Nasdaq futures sink 4%, Dow futures cascade down as global sell-off intensifies](https://finance.yahoo.com/news/stock-market-news-today-nasdaq-futures-sink-4-dow-futures-cascade-down-as-global-sell-off-intensifies-113202522.html)
-- Aug 05 - [Ukraine released its first official footage of its devastating Storm Shadow missiles in combat](https://www.yahoo.com/news/ukraine-released-first-official-footage-110705738.html)
-- Aug 05 - [Semi submerged in Tampa Bypass Canal off I-75; road shut down](https://www.yahoo.com/news/live-semi-submerged-tampa-bypass-094024577.html)
-- Aug 05 - [Wall St set to tumble as recession worries spook investors](https://finance.yahoo.com/news/u-futures-tumble-recession-fears-091838069.html)
+- Aug 05 - [Wall Street 'fear gauge' posts record intraday jump as stocks slide](https://finance.yahoo.com/news/wall-street-fear-gauge-posts-132532564.html)
+- Aug 05 - [Pope Francis names new archbishop of Boston, replacing Cardinal Sean O’Malley](https://www.yahoo.com/news/pope-francis-names-archbishop-boston-103213098.html)
+- Aug 05 - [I Did Everything 'Right' And I Still Got Herpes. Years Later, I'm Finally Making My Peace With That.](https://www.yahoo.com/lifestyle/did-everything-still-got-herpes-130002159.html)
+- Aug 05 - [Magnificent Seven set to shed $1 trillion in value, led by Apple, Nvidia](https://finance.yahoo.com/news/magnificent-seven-set-shed-1-121217049.html)
+- Aug 05 - [Nearly two dozen new principals will lead El Paso schools in 2024-2025 school year](https://www.yahoo.com/news/nearly-two-dozen-principals-lead-120140125.html)
 <!-- feed end -->
 
 ### Onstream
