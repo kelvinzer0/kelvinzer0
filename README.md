@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Police release images of suspects and car in killing of actor Johnny Wactor in Los Angeles](https://www.yahoo.com/news/police-release-images-suspects-car-180144038.html)
+- Aug 05 - [TV star accused of murder in shooting death of man in Houston parking lot](https://www.yahoo.com/news/tv-star-accused-murder-shooting-180038904.html)
+- Aug 05 - [Live updates: Macon can expect heavy rain from Tropical Storm Debby. Check here for impact](https://www.yahoo.com/news/live-updates-macon-expect-heavy-160405925.html)
 - Aug 05 - [Nine UNRWA staff may have been involved in Oct. 7 attack on Israel, says UN](https://www.yahoo.com/news/nine-unrwa-staff-may-involved-165826739.html)
 - Aug 05 - [Financial markets around the globe are falling. Here's what to know about how we got here](https://finance.yahoo.com/news/financial-markets-around-globe-falling-163758749.html)
 - Aug 05 - [Prosecutors plan to charge former Kansas police chief over his conduct following newspaper raid](https://www.yahoo.com/news/prosecutors-plan-charge-former-kansas-163229577.html)
-- Aug 05 - [Has Harris finally broken Trump? He's flailing, glitching and running scared.](https://www.yahoo.com/news/harris-finally-broken-trump-hes-153050470.html)
 <!-- feed end -->
 
 ### Onstream
