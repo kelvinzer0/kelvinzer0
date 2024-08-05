@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Trading Platforms Suffer Service Breaks as Markets Plunge](https://finance.yahoo.com/news/trading-platforms-suffer-breaks-markets-200000707.html)
-- Aug 05 - [Judge sentences former school board member Amy Word in common nuisance case](https://www.yahoo.com/news/judge-sentences-former-school-board-193711577.html)
-- Aug 05 - [From baller to businessman: Check out Tom Brady’s fancy new office space in Miami Beach](https://finance.yahoo.com/news/baller-businessman-check-tom-brady-192350422.html)
-- Aug 05 - [UPDATE: Rain from Debby reaches Savannah; 10-20 inches still possible, forecasters say](https://www.yahoo.com/news/rain-debby-reaches-savannah-10-191225413.html)
-- Aug 05 - [US Supreme Court declines to halt Trump's sentencing in hush money case](https://www.yahoo.com/news/us-supreme-court-declines-halt-184804444.html)
+- Aug 05 - [Nvidia's AI chip demand to face limited impact from potential production delay, analysts say](https://finance.yahoo.com/news/nvidias-ai-chip-demand-face-203007476.html)
+- Aug 05 - [Family of ex-Yorkshire cricketer Azeem Rafiq fears leaving home due to Rotherham violence](https://www.yahoo.com/news/family-ex-yorkshire-cricketer-azeem-201730826.html)
+- Aug 05 - [Palantir raises annual revenue forecast on GenAI strength; shares surge](https://finance.yahoo.com/news/palantir-raises-annual-revenue-forecast-200650589.html)
+- Aug 05 - [Wife of banker jailed for fraud must hand over luxury house and golf club](https://www.yahoo.com/news/wife-banker-jailed-fraud-must-195857088.html)
+- Aug 05 - [Laguna Beach woman who told beachgoers to 'get out of here!' reportedly targeted by Coastal Commission](https://www.yahoo.com/news/laguna-beach-woman-told-beachgoers-191435831.html)
 <!-- feed end -->
 
 ### Onstream
