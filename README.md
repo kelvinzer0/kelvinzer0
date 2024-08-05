@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Nasdaq Market Correction: 3 No-Brainer Stocks to Buy on the Pullback](https://finance.yahoo.com/news/nasdaq-market-correction-3-no-094200193.html)
-- Aug 05 - [Iran says it does not want regional escalation but must 'punish' Israel](https://www.yahoo.com/news/iran-says-does-not-want-084444365.html)
-- Aug 05 - [Cash, condo and ramen for Philippine double gold gymnast](https://sports.yahoo.com/cash-condo-ramen-philippine-double-070020239.html)
-- Aug 05 - [CrowdStrike tells Delta not to blame it for flight chaos](https://finance.yahoo.com/video/crowdstrike-tells-delta-not-blame-062902221.html)
-- Aug 05 - [Cambodia breaks ground on China-funded canal and says it will be built 'no matter the cost'](https://www.yahoo.com/news/cambodia-breaks-ground-china-funded-060207988.html)
+- Aug 05 - [How to shield your money from the stock market downturn](https://finance.yahoo.com/news/shield-money-stock-market-downturn-101843531.html)
+- Aug 05 - [Airlines cancel flights to Israel, Jordan and Lebanon as Middle East tension mounts](https://www.yahoo.com/news/airlines-cancel-flights-israel-jordan-101429698.html)
+- Aug 05 - [Waukesha DA candidates say crime from Milwaukee is their biggest problem. What the data shows](https://www.yahoo.com/news/waukesha-da-candidates-crime-milwaukee-100539773.html)
+- Aug 05 - [U.S. futures tumble as recession fears grip investors](https://finance.yahoo.com/news/u-futures-tumble-recession-fears-091838069.html)
+- Aug 05 - [Red flags: Beachgoers saved one Florida shark attack victim. Then came a second attack](https://www.yahoo.com/news/red-flags-beachgoers-saved-one-091533255.html)
 <!-- feed end -->
 
 ### Onstream
