@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Nvidia's AI chip demand to face limited impact from potential production delay, analysts say](https://finance.yahoo.com/news/nvidias-ai-chip-demand-face-203007476.html)
-- Aug 05 - [Family of ex-Yorkshire cricketer Azeem Rafiq fears leaving home due to Rotherham violence](https://www.yahoo.com/news/family-ex-yorkshire-cricketer-azeem-201730826.html)
-- Aug 05 - [Palantir raises annual revenue forecast on GenAI strength; shares surge](https://finance.yahoo.com/news/palantir-raises-annual-revenue-forecast-200650589.html)
+- Aug 05 - [A Suspicious Wife Discovered a Horrifying Folder on Her Husband's Computer. The Husband Said He 'Had a Problem'](https://www.yahoo.com/entertainment/suspicious-wife-discovered-horrifying-folder-205724207.html)
+- Aug 05 - [X will close its headquarters after Elon Musk trashed San Francisco — but he's not done with California yet](https://www.yahoo.com/tech/x-close-headquarters-elon-musk-204311281.html)
 - Aug 05 - [Wife of banker jailed for fraud must hand over luxury house and golf club](https://www.yahoo.com/news/wife-banker-jailed-fraud-must-195857088.html)
+- Aug 05 - [Escambia County sheriff’s deputy arrested and fired — what we’ve learned](https://www.yahoo.com/news/escambia-county-sheriff-deputy-arrested-192631703.html)
 - Aug 05 - [Laguna Beach woman who told beachgoers to 'get out of here!' reportedly targeted by Coastal Commission](https://www.yahoo.com/news/laguna-beach-woman-told-beachgoers-191435831.html)
 <!-- feed end -->
 
