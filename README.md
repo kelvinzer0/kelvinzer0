@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [North Korean leader marks the delivery of 250 nuclear-capable missile launchers to frontline units](https://www.yahoo.com/news/north-korean-leader-marks-delivery-025304593.html)
 - Aug 05 - [China's services activity expands further, but external demand slows, Caixin PMI shows](https://finance.yahoo.com/news/chinas-services-activity-expands-further-015146087.html)
 - Aug 04 - [Olympic boxer Imane Khelif calls for end to bullying after backlash over gender misconceptions](https://sports.yahoo.com/olympic-boxer-imane-khelif-calls-234741056.html)
 - Aug 04 - [Stocks routed by US recession risk, bonds bet on rapid rate cuts](https://finance.yahoo.com/news/stocks-shaken-us-recession-fears-233737120.html)
 - Aug 04 - [Mark Kelly Appears to Exit Race for Kamala Harris’ VP, Then Deletes Tweet: ‘My Mission Is Serving Arizonans’](https://www.yahoo.com/news/mark-kelly-appears-exit-race-230505315.html)
-- Aug 04 - [Robert F. Kennedy Jr. Admits In Video That He Dumped Dead Bear Cub In New York Park](https://www.yahoo.com/news/robert-f-kennedy-jr-admits-222351573.html)
 <!-- feed end -->
 
 ### Onstream
