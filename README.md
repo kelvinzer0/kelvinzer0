@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Washington attorney general and sheriff who helped nab Green River Killer fight for governor's seat](https://www.yahoo.com/news/washington-attorney-general-sheriff-helped-040807993.html)
+- Aug 05 - [Did a father tell his teenage son to kill rapper PnB Rock? Jurors to hear closing arguments at trial](https://www.yahoo.com/news/did-father-tell-teenage-son-043012147.html)
+- Aug 05 - [Russell Vought, a Project 2025 architect, is ready to shock Washington if Trump wins second term](https://www.yahoo.com/news/russell-vought-project-2025-architect-040546649.html)
+- Aug 05 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://finance.yahoo.com/news/charger-hogs-ruining-electric-vehicle-180002845.html)
 - Aug 05 - [Investors' comments on market sell-off](https://finance.yahoo.com/news/investors-comments-market-sell-off-030030091.html)
 - Aug 05 - [North Korean leader marks the delivery of 250 nuclear-capable missile launchers to frontline units](https://www.yahoo.com/news/north-korean-leader-marks-delivery-025304593.html)
-- Aug 05 - [China's services activity expands further, but external demand slows, Caixin PMI shows](https://finance.yahoo.com/news/chinas-services-activity-expands-further-015146087.html)
-- Aug 04 - [Olympic boxer Imane Khelif calls for end to bullying after backlash over gender misconceptions](https://sports.yahoo.com/olympic-boxer-imane-khelif-calls-234741056.html)
 <!-- feed end -->
 
 ### Onstream
