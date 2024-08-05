@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [US recession fears spark fresh stock market rout](https://finance.yahoo.com/news/us-recession-fears-spark-fresh-074900691.html)
-- Aug 05 - [Lebanon crisis: Flights sell out as people flee ahead of feared broader war in Middle East](https://www.yahoo.com/news/lebanon-crisis-flights-sell-people-075725972.html)
-- Aug 05 - [She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence](https://www.yahoo.com/news/she-wanted-world-her-daughter-212717420.html)
+- Aug 05 - [Nasdaq Market Correction: 3 No-Brainer Stocks to Buy on the Pullback](https://finance.yahoo.com/news/nasdaq-market-correction-3-no-094200193.html)
+- Aug 05 - [Iran says it does not want regional escalation but must 'punish' Israel](https://www.yahoo.com/news/iran-says-does-not-want-084444365.html)
+- Aug 05 - [Cash, condo and ramen for Philippine double gold gymnast](https://sports.yahoo.com/cash-condo-ramen-philippine-double-070020239.html)
+- Aug 05 - [CrowdStrike tells Delta not to blame it for flight chaos](https://finance.yahoo.com/video/crowdstrike-tells-delta-not-blame-062902221.html)
 - Aug 05 - [Cambodia breaks ground on China-funded canal and says it will be built 'no matter the cost'](https://www.yahoo.com/news/cambodia-breaks-ground-china-funded-060207988.html)
-- Aug 05 - [Russell Vought, a Project 2025 architect, is ready to shock Washington if Trump wins second term](https://www.yahoo.com/news/russell-vought-project-2025-architect-040546649.html)
 <!-- feed end -->
 
 ### Onstream
