@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence](https://www.yahoo.com/news/she-wanted-world-her-daughter-212717420.html)
-- Aug 05 - [Starmer’s honeymoon was over before it even began](https://www.yahoo.com/news/starmer-honeymoon-over-even-began-060000953.html)
+- Aug 05 - [Cambodia breaks ground on China-funded canal and says it will be built 'no matter the cost'](https://www.yahoo.com/news/cambodia-breaks-ground-china-funded-060207988.html)
+- Aug 05 - [Israel-Hamas war latest: Hezbollah says it launched a drone attack on northern Israel](https://www.yahoo.com/news/israel-hamas-war-latest-hezbollah-055837575.html)
+- Aug 05 - [The Longest Inverted Yield Curve In U.S. History May End Soon. What It Means for Stocks.](https://www.barrons.com/articles/recession-stocks-inverted-yield-curve-30108156?siteid=yhoof2&yptr=yahoo)
 - Aug 05 - [Russell Vought, a Project 2025 architect, is ready to shock Washington if Trump wins second term](https://www.yahoo.com/news/russell-vought-project-2025-architect-040546649.html)
 - Aug 05 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://finance.yahoo.com/news/charger-hogs-ruining-electric-vehicle-180002845.html)
-- Aug 05 - [Investors' comments on global stocks rout](https://finance.yahoo.com/news/investors-comments-market-sell-off-030030091.html)
 <!-- feed end -->
 
 ### Onstream
