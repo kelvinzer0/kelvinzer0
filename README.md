@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Amazon deal of the day: The iPad mini 6 is back at its Prime Day price](https://www.yahoo.com/tech/amazon-deal-day-ipad-mini-153114857.html)
+- Aug 05 - [RFK Jr. admits to dumping dead bear cub in Central Park in 2014. What to know about the bizarre story.](https://www.yahoo.com/news/rfk-jr-admits-to-dumping-dead-bear-cub-in-central-park-in-2014-what-to-know-about-the-bizarre-story-170553483.html)
+- Aug 05 - [Warren Buffett’s stock empire loses $15bn in global market crash](https://finance.yahoo.com/news/warren-buffett-stock-empire-loses-170200123.html)
+- Aug 05 - [Northrop Grumman spacecraft hitches ride on SpaceX rocket for NASA resupply mission](https://www.yahoo.com/news/northrop-grumman-spacecraft-hitches-ride-163719265.html)
+- Aug 05 - [Live updates: Macon can expect heavy rain from Tropical Storm Debby. Check here for impact](https://www.yahoo.com/news/live-updates-macon-expect-heavy-160405925.html)
 - Aug 05 - [Has Harris finally broken Trump? He's flailing, glitching and running scared.](https://www.yahoo.com/news/harris-finally-broken-trump-hes-153050470.html)
-- Aug 05 - [Schwab, Fidelity, other online trading brokerages appear to go dark during huge market sell-off](https://finance.yahoo.com/news/schwab-fidelity-other-online-trading-151427399.html)
-- Aug 05 - [Why the stock market is freaking out again](https://finance.yahoo.com/news/why-stock-market-freaking-again-144251618.html)
-- Aug 05 - [Intel is taking another of ASML's High NA tools, says CEO](https://finance.yahoo.com/news/intel-taking-another-asmls-high-141533952.html)
 <!-- feed end -->
 
 ### Onstream
