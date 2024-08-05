@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [NASA Made a World-Shaking Discovery: Compelling Evidence of Past Life on Mars](https://www.yahoo.com/news/nasa-made-world-shaking-discovery-120000819.html)
-- Aug 05 - [OKC homeless shelters are at capacity but the solution isn't more beds, organizers say. It's housing.](https://www.yahoo.com/news/okc-homeless-shelters-capacity-solution-110145438.html)
-- Aug 05 - [How to turn a markets crash into an investing opportunity](https://finance.yahoo.com/news/shield-money-stock-market-downturn-101843531.html)
+- Aug 05 - [UK riots: No10 slaps down Elon Musk over 'civil war is inevitable' post](https://www.yahoo.com/news/social-media-acted-rocket-booster-104844302.html)
+- Aug 05 - [Stock market news today: Nasdaq futures sink 4%, Dow futures cascade down as global sell-off intensifies](https://finance.yahoo.com/news/stock-market-news-today-nasdaq-futures-sink-4-dow-futures-cascade-down-as-global-sell-off-intensifies-113202522.html)
+- Aug 05 - [Ukraine released its first official footage of its devastating Storm Shadow missiles in combat](https://www.yahoo.com/news/ukraine-released-first-official-footage-110705738.html)
 - Aug 05 - [Semi submerged in Tampa Bypass Canal off I-75; road shut down](https://www.yahoo.com/news/live-semi-submerged-tampa-bypass-094024577.html)
-- Aug 05 - [U.S. futures slide as recession fears spook investors](https://finance.yahoo.com/news/u-futures-tumble-recession-fears-091838069.html)
+- Aug 05 - [Wall St set to tumble as recession worries spook investors](https://finance.yahoo.com/news/u-futures-tumble-recession-fears-091838069.html)
 <!-- feed end -->
 
 ### Onstream
