@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [TV star accused of murder in shooting death of man in Houston parking lot](https://www.yahoo.com/news/tv-star-accused-murder-shooting-180038904.html)
-- Aug 05 - [Live updates: Macon can expect heavy rain from Tropical Storm Debby. Check here for impact](https://www.yahoo.com/news/live-updates-macon-expect-heavy-160405925.html)
-- Aug 05 - [Nine UNRWA staff may have been involved in Oct. 7 attack on Israel, says UN](https://www.yahoo.com/news/nine-unrwa-staff-may-involved-165826739.html)
-- Aug 05 - [Financial markets around the globe are falling. Here's what to know about how we got here](https://finance.yahoo.com/news/financial-markets-around-globe-falling-163758749.html)
-- Aug 05 - [Prosecutors plan to charge former Kansas police chief over his conduct following newspaper raid](https://www.yahoo.com/news/prosecutors-plan-charge-former-kansas-163229577.html)
+- Aug 05 - [Trading Platforms Suffer Service Breaks as Markets Plunge](https://finance.yahoo.com/news/trading-platforms-suffer-breaks-markets-200000707.html)
+- Aug 05 - [Judge sentences former school board member Amy Word in common nuisance case](https://www.yahoo.com/news/judge-sentences-former-school-board-193711577.html)
+- Aug 05 - [From baller to businessman: Check out Tom Brady’s fancy new office space in Miami Beach](https://finance.yahoo.com/news/baller-businessman-check-tom-brady-192350422.html)
+- Aug 05 - [UPDATE: Rain from Debby reaches Savannah; 10-20 inches still possible, forecasters say](https://www.yahoo.com/news/rain-debby-reaches-savannah-10-191225413.html)
+- Aug 05 - [US Supreme Court declines to halt Trump's sentencing in hush money case](https://www.yahoo.com/news/us-supreme-court-declines-halt-184804444.html)
 <!-- feed end -->
 
 ### Onstream
