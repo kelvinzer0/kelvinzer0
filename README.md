@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Dave Ramsey: Why You Shouldn’t Rent Long Term Even if You Don’t Want To Own](https://finance.yahoo.com/news/dave-ramsey-why-shouldn-t-220009608.html)
-- Aug 04 - [Morning Bid: Goodbye soft landing, hello emergency landing](https://finance.yahoo.com/news/morning-bid-goodbye-soft-landing-215148168.html)
+- Aug 04 - [Olympic boxer Imane Khelif calls for end to bullying after backlash over gender misconceptions](https://sports.yahoo.com/olympic-boxer-imane-khelif-calls-234741056.html)
+- Aug 04 - [Mark Kelly Appears to Exit Race for Kamala Harris’ VP, Then Deletes Tweet: ‘My Mission Is Serving Arizonans’](https://www.yahoo.com/news/mark-kelly-appears-exit-race-230505315.html)
+- Aug 04 - [Robert F. Kennedy Jr. Admits In Video That He Dumped Dead Bear Cub In New York Park](https://www.yahoo.com/news/robert-f-kennedy-jr-admits-222351573.html)
+- Aug 04 - [Morning Bid: Goodbye soft landing, hello emergency landing](https://finance.yahoo.com/news/morning-bid-goodbye-soft-landing-215148028.html)
 - Aug 04 - [IDF uncovers massive smuggling tunnel for vehicles on Gaza-Egypt border](https://www.yahoo.com/news/idf-uncovers-massive-smuggling-tunnel-180747648.html)
-- Aug 04 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://finance.yahoo.com/news/charger-hogs-ruining-electric-vehicle-180002845.html)
-- Aug 04 - [World’s largest iceberg spins in the ocean, refusing to melt](https://www.yahoo.com/news/world-largest-iceberg-spins-ocean-175229422.html)
 <!-- feed end -->
 
 ### Onstream
