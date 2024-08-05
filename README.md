@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Did a father tell his teenage son to kill rapper PnB Rock? Jurors to hear closing arguments at trial](https://www.yahoo.com/news/did-father-tell-teenage-son-043012147.html)
+- Aug 05 - [Israel-Hamas war latest: Hezbollah says it launched a drone attack on northern Israel](https://www.yahoo.com/news/israel-hamas-war-latest-hezbollah-055837575.html)
 - Aug 05 - [Russell Vought, a Project 2025 architect, is ready to shock Washington if Trump wins second term](https://www.yahoo.com/news/russell-vought-project-2025-architect-040546649.html)
 - Aug 05 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://finance.yahoo.com/news/charger-hogs-ruining-electric-vehicle-180002845.html)
-- Aug 05 - [Investors' comments on market sell-off](https://finance.yahoo.com/news/investors-comments-market-sell-off-030030091.html)
-- Aug 05 - [North Korean leader marks the delivery of 250 nuclear-capable missile launchers to frontline units](https://www.yahoo.com/news/north-korean-leader-marks-delivery-025304593.html)
+- Aug 05 - [CrowdStrike rejects Delta Air Lines claims over flight woes](https://finance.yahoo.com/news/crowdstrike-says-not-blamed-delta-024536514.html)
+- Aug 05 - [Miami Beach Lashed by Strong Winds as Tropical Storm Debby Intensifies](https://www.yahoo.com/news/miami-beach-lashed-strong-winds-024511971.html)
 <!-- feed end -->
 
 ### Onstream
