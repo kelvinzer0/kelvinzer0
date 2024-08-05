@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [How to shield your money from the stock market downturn](https://finance.yahoo.com/news/shield-money-stock-market-downturn-101843531.html)
-- Aug 05 - [Airlines cancel flights to Israel, Jordan and Lebanon as Middle East tension mounts](https://www.yahoo.com/news/airlines-cancel-flights-israel-jordan-101429698.html)
-- Aug 05 - [Waukesha DA candidates say crime from Milwaukee is their biggest problem. What the data shows](https://www.yahoo.com/news/waukesha-da-candidates-crime-milwaukee-100539773.html)
-- Aug 05 - [U.S. futures tumble as recession fears grip investors](https://finance.yahoo.com/news/u-futures-tumble-recession-fears-091838069.html)
-- Aug 05 - [Red flags: Beachgoers saved one Florida shark attack victim. Then came a second attack](https://www.yahoo.com/news/red-flags-beachgoers-saved-one-091533255.html)
+- Aug 05 - [NASA Made a World-Shaking Discovery: Compelling Evidence of Past Life on Mars](https://www.yahoo.com/news/nasa-made-world-shaking-discovery-120000819.html)
+- Aug 05 - [OKC homeless shelters are at capacity but the solution isn't more beds, organizers say. It's housing.](https://www.yahoo.com/news/okc-homeless-shelters-capacity-solution-110145438.html)
+- Aug 05 - [How to turn a markets crash into an investing opportunity](https://finance.yahoo.com/news/shield-money-stock-market-downturn-101843531.html)
+- Aug 05 - [Semi submerged in Tampa Bypass Canal off I-75; road shut down](https://www.yahoo.com/news/live-semi-submerged-tampa-bypass-094024577.html)
+- Aug 05 - [U.S. futures slide as recession fears spook investors](https://finance.yahoo.com/news/u-futures-tumble-recession-fears-091838069.html)
 <!-- feed end -->
 
 ### Onstream
