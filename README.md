@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [RFK Jr. admits to dumping dead bear cub in Central Park in 2014. What to know about the bizarre story.](https://www.yahoo.com/news/rfk-jr-admits-to-dumping-dead-bear-cub-in-central-park-in-2014-what-to-know-about-the-bizarre-story-170553483.html)
-- Aug 05 - [Warren Buffett’s stock empire loses $15bn in global market crash](https://finance.yahoo.com/news/warren-buffett-stock-empire-loses-170200123.html)
-- Aug 05 - [Northrop Grumman spacecraft hitches ride on SpaceX rocket for NASA resupply mission](https://www.yahoo.com/news/northrop-grumman-spacecraft-hitches-ride-163719265.html)
-- Aug 05 - [Live updates: Macon can expect heavy rain from Tropical Storm Debby. Check here for impact](https://www.yahoo.com/news/live-updates-macon-expect-heavy-160405925.html)
+- Aug 05 - [Police release images of suspects and car in killing of actor Johnny Wactor in Los Angeles](https://www.yahoo.com/news/police-release-images-suspects-car-180144038.html)
+- Aug 05 - [Nine UNRWA staff may have been involved in Oct. 7 attack on Israel, says UN](https://www.yahoo.com/news/nine-unrwa-staff-may-involved-165826739.html)
+- Aug 05 - [Financial markets around the globe are falling. Here's what to know about how we got here](https://finance.yahoo.com/news/financial-markets-around-globe-falling-163758749.html)
+- Aug 05 - [Prosecutors plan to charge former Kansas police chief over his conduct following newspaper raid](https://www.yahoo.com/news/prosecutors-plan-charge-former-kansas-163229577.html)
 - Aug 05 - [Has Harris finally broken Trump? He's flailing, glitching and running scared.](https://www.yahoo.com/news/harris-finally-broken-trump-hes-153050470.html)
 <!-- feed end -->
 
