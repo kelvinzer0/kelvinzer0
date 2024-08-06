@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Elon Musk to completely shut down X’s San Francisco headquarters](https://finance.yahoo.com/news/elon-musk-completely-shut-down-124917701.html)
-- Aug 06 - [Russia warns Ukraine: peace terms will only get worse](https://www.yahoo.com/news/russia-warns-ukraine-peace-terms-122512188.html)
-- Aug 06 - [Putin asks Iran to avoid civilian casualties in Israel response, sources say](https://www.yahoo.com/news/putin-asks-iran-avoid-civilian-115030111.html)
-- Aug 06 - [Woman accused of stabbing worker in head following fight at Boston restaurant](https://www.yahoo.com/news/woman-accused-stabbing-worker-head-112505957.html)
-- Aug 06 - [Busy Lexington road shut down during rush-hour commute after deadly collision](https://www.yahoo.com/news/busy-lexington-road-shut-down-112014970.html)
+- Aug 06 - [NHC tracking new tropical disturbance, early forecast follows Beryl's path to Texas](https://www.yahoo.com/news/nhc-tracking-tropical-disturbance-early-145044929.html)
+- Aug 06 - [UK riots: Shock as young girl shouts racist abuse while holding hands with adult in Belfast street](https://www.yahoo.com/news/uk-riots-shock-young-girl-140906673.html)
+- Aug 06 - [Fox News host knocks Trump: ‘You either own the markets or you don’t’](https://finance.yahoo.com/news/fox-news-host-knocks-trump-133221737.html)
+- Aug 06 - [Trump slams Stephanopoulos over ‘nasty and totally inappropriate’ Donalds interview](https://www.yahoo.com/news/trump-slams-stephanopoulos-over-nasty-131306442.html)
+- Aug 06 - [Who Is Tim Walz? Why Harris Picked the Minnesota Governor as Running Mate](https://finance.yahoo.com/video/tim-walz-why-minnesota-governor-131300550.html)
 <!-- feed end -->
 
 ### Onstream
