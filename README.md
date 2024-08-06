@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Reclusive tribe attacks loggers suspected of encroaching on their land in Peru's Amazon](https://www.yahoo.com/news/reclusive-tribe-attacks-loggers-suspected-224401208.html)
-- Aug 05 - [X will close its headquarters after Elon Musk trashed San Francisco — but he's not done with California yet](https://www.yahoo.com/tech/x-close-headquarters-elon-musk-204311281.html)
-- Aug 05 - [Nvidia's AI chip demand to face limited impact from potential production delay, analysts say](https://finance.yahoo.com/news/nvidias-ai-chip-demand-face-203007476.html)
-- Aug 05 - [Laguna Beach woman who told beachgoers to 'get out of here!' reportedly targeted by Coastal Commission](https://www.yahoo.com/news/laguna-beach-woman-told-beachgoers-191435831.html)
-- Aug 05 - [US Supreme Court declines to halt Trump's sentencing in hush money case](https://www.yahoo.com/news/us-supreme-court-declines-halt-184804444.html)
+- Aug 06 - [1 Magnificent S&P 500 Dividend Stock Down 10% to Buy Right Now While Its Dividend Yield Is at a Once-in-a-Decade High](https://finance.yahoo.com/news/1-magnificent-p-500-dividend-004200366.html)
+- Aug 05 - [Deputy who shot Sonya Massey thought her rebuke 'in the name of Jesus' indicated intent to kill him](https://www.yahoo.com/news/deputy-shot-sonya-massey-thought-231338745.html)
+- Aug 05 - [‘Crime here seems to get worse and worse’: Several KC businesses broken into overnight](https://www.yahoo.com/news/crime-seems-worse-worse-several-215356452.html)
+- Aug 05 - [State of Emergency declared in North Carolina ahead of Tropical Storm Debby](https://www.yahoo.com/news/state-emergency-declared-north-carolina-214630341.html)
+- Aug 05 - [CrowdStrike is sued by fliers after massive outage disrupts air travel](https://finance.yahoo.com/news/crowdstrike-sued-fliers-massive-outage-213238215.html)
 <!-- feed end -->
 
 ### Onstream
