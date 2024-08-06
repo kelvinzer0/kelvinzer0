@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Elon Musk's X sues advertisers over alleged 'massive advertiser boycott' after Twitter takeover](https://finance.yahoo.com/news/elon-musks-x-sues-advertisers-162213500.html)
+- Aug 06 - ['1 in 100 million': Watch as beautiful, rare, cotton candy lobster explores new home](https://www.yahoo.com/news/1-100-million-watch-beautiful-170643648.html)
 - Aug 06 - [Texas man sentenced to 40 years in prison for brutal murder of newlywed wife](https://www.yahoo.com/news/texas-man-sentenced-40-years-161626898.html)
-- Aug 06 - [At the start of August, Florida has seen nearly as many mass shootings as it did in 2023](https://www.yahoo.com/news/start-august-florida-seen-nearly-155027017.html)
-- Aug 06 - [Robert Kiyosaki predicts up to 15,000% upside in these 3 assets, saying 'best time to get rich is approaching'](https://finance.yahoo.com/news/robert-kiyosaki-predicts-15-000-154000215.html)
 - Aug 06 - [Boeing's Stranded Starliner Has Failed So Spectacularly That It Looks Like It'll Push Back SpaceX's Next Astronaut Launch](https://www.yahoo.com/news/boeings-stranded-starliner-failed-spectacularly-152901744.html)
+- Aug 06 - [Romanian PM to boycott Olympics' closing ceremony after 'scandalous situation' in gymnastics ruling](https://www.yahoo.com/news/romanian-pm-boycott-olympics-closing-152445637.html)
+- Aug 06 - [Fossils suggest even smaller ‘hobbits’ roamed an Indonesian island 700,000 years ago](https://www.yahoo.com/news/fossils-suggest-even-smaller-hobbits-150225679.html)
 <!-- feed end -->
 
 ### Onstream
