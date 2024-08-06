@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Voices: Why Kamala’s VP pick might have already sunk Trump’s ‘weird’ running mate](https://www.yahoo.com/news/voices-why-calling-trump-weird-133952982.html)
-- Aug 06 - [3 REITs Yielding Up to 6.4% to Buy for Monthly Income](https://finance.yahoo.com/news/3-reits-yielding-6-4-120024135.html)
-- Aug 06 - [Hurricane Debby causes severe flooding in Florida towns](https://www.yahoo.com/news/hurricane-debby-causes-severe-flooding-094422453.html)
-- Aug 06 - [Warren Buffett's Unprecedented $132 Billion Warning to Wall Street Can't Be Ignored Any Longer](https://finance.yahoo.com/news/warren-buffetts-unprecedented-132-billion-080600021.html)
-- Aug 06 - [Police: family tied up, left in deplorable conditions in Bellefontaine Neighbors](https://www.yahoo.com/news/police-family-tied-left-deplorable-032402739.html)
+- Aug 06 - [Elon Musk to completely shut down X’s San Francisco headquarters](https://finance.yahoo.com/news/elon-musk-completely-shut-down-124917701.html)
+- Aug 06 - [Russia warns Ukraine: peace terms will only get worse](https://www.yahoo.com/news/russia-warns-ukraine-peace-terms-122512188.html)
+- Aug 06 - [Putin asks Iran to avoid civilian casualties in Israel response, sources say](https://www.yahoo.com/news/putin-asks-iran-avoid-civilian-115030111.html)
+- Aug 06 - [Woman accused of stabbing worker in head following fight at Boston restaurant](https://www.yahoo.com/news/woman-accused-stabbing-worker-head-112505957.html)
+- Aug 06 - [Busy Lexington road shut down during rush-hour commute after deadly collision](https://www.yahoo.com/news/busy-lexington-road-shut-down-112014970.html)
 <!-- feed end -->
 
 ### Onstream
