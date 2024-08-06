@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 05 - [Rural Nevada sheriff probes potential hate crime after Black man says he was racially harassed](https://www.yahoo.com/news/rural-nevada-sheriff-probes-potential-234507068.html)
 - Aug 05 - ['I Almost Died of Liver Failure at Age 50—This Is the First Sign I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-liver-failure-age-232500054.html)
 - Aug 05 - [Dad Learns His 2 Daughters Died After Tracking Their Phones to Crash Site: 'Tremendous Loss'](https://www.yahoo.com/news/dad-learns-2-daughters-died-231925720.html)
-- Aug 05 - [Albuquerque man sentenced to 36 years for rape of underage girl](https://www.yahoo.com/news/albuquerque-man-sentenced-36-years-230605543.html)
-- Aug 05 - [How did ancient Egyptians stack those heavy stones of the oldest pyramid? Scientists float new theory](https://www.yahoo.com/news/engineers-theory-egypt-first-pyramid-211938317.html)
+- Aug 05 - [Deputy who shot Sonya Massey thought her rebuke 'in the name of Jesus' indicated intent to kill him](https://www.yahoo.com/news/deputy-shot-sonya-massey-thought-231338745.html)
+- Aug 05 - [Boeing delivers new helicopter part of Air Force fleet modernization plan](https://www.yahoo.com/news/boeing-delivers-helicopter-part-air-224022290.html)
 <!-- feed end -->
 
 ### Onstream
