@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Downtown Gaylord stores to offer special sidewalk sales](https://www.yahoo.com/lifestyle/downtown-gaylord-stores-offer-special-080430703.html)
+- Aug 06 - [Two men killed in fatal crash near Honolulu airport](https://www.yahoo.com/news/two-men-killed-fatal-crash-043309876.html)
+- Aug 06 - [Whitefish Bay OWI arrest; woman speeds, laughs at police](https://www.yahoo.com/news/whitefish-bay-owi-arrest-woman-031427137.html)
 - Aug 06 - [Billions Actor Akili McDowell Arrested and Charged With Murder](https://www.yahoo.com/entertainment/billions-actor-akili-mcdowell-arrested-012902775.html)
-- Aug 06 - [The Most Advanced Country in the World](https://finance.yahoo.com/news/most-advanced-country-world-000844613.html)
-- Aug 05 - [Rural Nevada sheriff probes potential hate crime after Black man says he was racially harassed](https://www.yahoo.com/news/rural-nevada-sheriff-probes-potential-234507068.html)
-- Aug 05 - ['I Almost Died of Liver Failure at Age 50—This Is the First Sign I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-liver-failure-age-232500054.html)
-- Aug 05 - [Dad Learns His 2 Daughters Died After Tracking Their Phones to Crash Site: 'Tremendous Loss'](https://www.yahoo.com/news/dad-learns-2-daughters-died-231925720.html)
+- Aug 06 - [Meta says Malaysian PM Anwar's posts on Haniyeh assassination were removed in error](https://www.yahoo.com/tech/meta-apologises-removal-malaysian-pms-012320460.html)
 <!-- feed end -->
 
 ### Onstream
