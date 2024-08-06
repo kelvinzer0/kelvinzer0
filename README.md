@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Hilton Head Island mayor on Tropical Storm Debby](https://www.yahoo.com/news/hilton-head-island-mayor-tropical-193839914.html)
 - Aug 06 - [It Turns Out Boeing's Derelict Starliner Is Unable to Fly Without a Crew on Board](https://www.yahoo.com/news/turns-boeings-derelict-starliner-unable-193548453.html)
-- Aug 06 - [People Are Making A Lot Of Nancy Pelosi Jokes After Kamala Harris Picked Tim Walz As Her VP](https://www.yahoo.com/entertainment/people-making-lot-nancy-pelosi-191850402.html)
-- Aug 06 - [Hamas names Yahya Sinwar, mastermind of the Oct. 7 attacks, as its new leader in show of defiance](https://www.yahoo.com/news/hamas-says-chosen-yahya-sinwar-181030234.html)
-- Aug 06 - [Why Katie Ledecky Initially Kept Her POTS Diagnosis Private](https://www.yahoo.com/entertainment/why-katie-ledecky-initially-kept-164826131.html)
-- Aug 06 - [El Paso Police identify body found at Transmountain last month](https://www.yahoo.com/news/el-paso-police-identify-body-164703745.html)
+- Aug 06 - [The Internet Can't Stop Making Nancy Pelosi Jokes Over Kamala Harris' Tim Walz VP Pick](https://www.yahoo.com/entertainment/people-making-lot-nancy-pelosi-191850402.html)
+- Aug 06 - [Elon Musk declares war and files a huge lawsuit on X advertisers: ‘We tried peace for 2 years, now it is war’](https://finance.yahoo.com/news/elon-musk-declares-war-files-185850277.html)
+- Aug 06 - [Citigroup whistleblower denied share of $400 million penalty](https://finance.yahoo.com/news/citigroup-whistleblower-denied-share-400-182857175.html)
 <!-- feed end -->
 
 ### Onstream
