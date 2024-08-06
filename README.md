@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Hilton Head Island mayor on Tropical Storm Debby](https://www.yahoo.com/news/hilton-head-island-mayor-tropical-193839914.html)
+- Aug 06 - [A dozen Bay County restaurants cited for high-priority violations](https://www.yahoo.com/news/dozen-bay-county-restaurants-cited-210119535.html)
+- Aug 06 - [Indiana's completion of a 16-year highway extension project is a 'historic milestone,' governor says](https://www.yahoo.com/news/indianas-completion-16-highway-extension-201456143.html)
 - Aug 06 - [It Turns Out Boeing's Derelict Starliner Is Unable to Fly Without a Crew on Board](https://www.yahoo.com/news/turns-boeings-derelict-starliner-unable-193548453.html)
+- Aug 06 - [4 dead after airplane crash near Yukon airport](https://www.yahoo.com/news/4-dead-airplane-crash-nw-192504270.html)
 - Aug 06 - [The Internet Can't Stop Making Nancy Pelosi Jokes Over Kamala Harris' Tim Walz VP Pick](https://www.yahoo.com/entertainment/people-making-lot-nancy-pelosi-191850402.html)
-- Aug 06 - [Elon Musk declares war and files a huge lawsuit on X advertisers: ‘We tried peace for 2 years, now it is war’](https://finance.yahoo.com/news/elon-musk-declares-war-files-185850277.html)
-- Aug 06 - [Citigroup whistleblower denied share of $400 million penalty](https://finance.yahoo.com/news/citigroup-whistleblower-denied-share-400-182857175.html)
 <!-- feed end -->
 
 ### Onstream
