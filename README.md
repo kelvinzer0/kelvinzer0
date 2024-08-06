@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - ['1 in 100 million': Watch as beautiful, rare, cotton candy lobster explores new home](https://www.yahoo.com/news/1-100-million-watch-beautiful-170643648.html)
+- Aug 06 - [Hamas says it has chosen Yahya Sinwar, mastermind of the Oct. 7 attacks, as its new leader](https://www.yahoo.com/news/hamas-says-chosen-yahya-sinwar-181030234.html)
+- Aug 06 - [Venezuelan electoral authority presents official results to top court](https://www.yahoo.com/news/venezuelan-electoral-authority-presents-official-173915231.html)
+- Aug 06 - [Why Katie Ledecky Initially Kept Her POTS Diagnosis Private](https://www.yahoo.com/entertainment/why-katie-ledecky-initially-kept-164826131.html)
 - Aug 06 - [Texas man sentenced to 40 years in prison for brutal murder of newlywed wife](https://www.yahoo.com/news/texas-man-sentenced-40-years-161626898.html)
-- Aug 06 - [Boeing's Stranded Starliner Has Failed So Spectacularly That It Looks Like It'll Push Back SpaceX's Next Astronaut Launch](https://www.yahoo.com/news/boeings-stranded-starliner-failed-spectacularly-152901744.html)
-- Aug 06 - [Romanian PM to boycott Olympics' closing ceremony after 'scandalous situation' in gymnastics ruling](https://www.yahoo.com/news/romanian-pm-boycott-olympics-closing-152445637.html)
-- Aug 06 - [Fossils suggest even smaller ‘hobbits’ roamed an Indonesian island 700,000 years ago](https://www.yahoo.com/news/fossils-suggest-even-smaller-hobbits-150225679.html)
+- Aug 06 - [Microsoft blames Delta for its struggle to recover from global cyber outage](https://finance.yahoo.com/news/microsoft-blames-delta-struggle-recover-160749920.html)
 <!-- feed end -->
 
 ### Onstream
