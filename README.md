@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Putin asks Iran to avoid civilian casualties in Israel response, sources say](https://www.yahoo.com/news/putin-asks-iran-avoid-civilian-115030111.html)
+- Aug 06 - [Weather Alert: Rain today, more on the way](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
+- Aug 06 - [This New 89-Foot Yacht Is an Exemplar of Made in Italy Excellence](https://www.yahoo.com/lifestyle/89-foot-yacht-exemplar-made-110000810.html)
 - Aug 06 - [Warren Buffett's Unprecedented $132 Billion Warning to Wall Street Can't Be Ignored Any Longer](https://finance.yahoo.com/news/warren-buffetts-unprecedented-132-billion-080600021.html)
 - Aug 06 - [Hillary Clinton Shreds Donald Trump's Latest Move As 'Traitorous And Pathetic'](https://www.yahoo.com/news/hillary-clinton-shreds-donald-trumps-071550629.html)
-- Aug 06 - [Russia suspected Ukrainian attack on Navy Day parade, state TV says](https://www.yahoo.com/news/russia-suspected-ukrainian-attack-navy-060635277.html)
-- Aug 06 - [Billions Actor Akili McDowell Arrested and Charged With Murder](https://www.yahoo.com/entertainment/billions-actor-akili-mcdowell-arrested-012902775.html)
-- Aug 06 - [Meta says Malaysian PM Anwar's posts on Haniyeh assassination were removed in error](https://www.yahoo.com/tech/meta-apologises-removal-malaysian-pms-012320460.html)
 <!-- feed end -->
 
 ### Onstream
