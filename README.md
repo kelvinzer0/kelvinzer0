@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Hamas says it has chosen Yahya Sinwar, mastermind of the Oct. 7 attacks, as its new leader](https://www.yahoo.com/news/hamas-says-chosen-yahya-sinwar-181030234.html)
-- Aug 06 - [Venezuelan electoral authority presents official results to top court](https://www.yahoo.com/news/venezuelan-electoral-authority-presents-official-173915231.html)
+- Aug 06 - [It Turns Out Boeing's Derelict Starliner Is Unable to Fly Without a Crew on Board](https://www.yahoo.com/news/turns-boeings-derelict-starliner-unable-193548453.html)
+- Aug 06 - [People Are Making A Lot Of Nancy Pelosi Jokes After Kamala Harris Picked Tim Walz As Her VP](https://www.yahoo.com/entertainment/people-making-lot-nancy-pelosi-191850402.html)
+- Aug 06 - [Hamas names Yahya Sinwar, mastermind of the Oct. 7 attacks, as its new leader in show of defiance](https://www.yahoo.com/news/hamas-says-chosen-yahya-sinwar-181030234.html)
 - Aug 06 - [Why Katie Ledecky Initially Kept Her POTS Diagnosis Private](https://www.yahoo.com/entertainment/why-katie-ledecky-initially-kept-164826131.html)
-- Aug 06 - [Texas man sentenced to 40 years in prison for brutal murder of newlywed wife](https://www.yahoo.com/news/texas-man-sentenced-40-years-161626898.html)
-- Aug 06 - [Microsoft blames Delta for its struggle to recover from global cyber outage](https://finance.yahoo.com/news/microsoft-blames-delta-struggle-recover-160749920.html)
+- Aug 06 - [El Paso Police identify body found at Transmountain last month](https://www.yahoo.com/news/el-paso-police-identify-body-164703745.html)
 <!-- feed end -->
 
 ### Onstream
