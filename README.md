@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [NHC tracking new tropical disturbance, early forecast follows Beryl's path to Texas](https://www.yahoo.com/news/nhc-tracking-tropical-disturbance-early-145044929.html)
-- Aug 06 - [UK riots: Shock as young girl shouts racist abuse while holding hands with adult in Belfast street](https://www.yahoo.com/news/uk-riots-shock-young-girl-140906673.html)
-- Aug 06 - [Fox News host knocks Trump: ‘You either own the markets or you don’t’](https://finance.yahoo.com/news/fox-news-host-knocks-trump-133221737.html)
-- Aug 06 - [Trump slams Stephanopoulos over ‘nasty and totally inappropriate’ Donalds interview](https://www.yahoo.com/news/trump-slams-stephanopoulos-over-nasty-131306442.html)
-- Aug 06 - [Who Is Tim Walz? Why Harris Picked the Minnesota Governor as Running Mate](https://finance.yahoo.com/video/tim-walz-why-minnesota-governor-131300550.html)
+- Aug 06 - [A Restaurant In Paris Has Responded After Serena Williams Publicly Claimed That She And Her Kids Were Denied A Table There](https://www.yahoo.com/entertainment/restaurant-paris-responded-serena-williams-154945914.html)
+- Aug 06 - [What to know about Tim Walz, Kamala Harris' running mate](https://www.yahoo.com/news/know-tim-walz-kamala-harris-153052294.html)
+- Aug 06 - [Romanian PM to boycott Olympics' closing ceremony after 'scandalous situation' in gymnastics ruling](https://www.yahoo.com/news/romanian-pm-boycott-olympics-closing-152445637.html)
+- Aug 06 - [Police are no match for the teenage punks that control Gilbert](https://www.yahoo.com/news/police-no-match-teenage-punks-145133554.html)
+- Aug 06 - [Fifth inmate dies at Wisconsin prison as former warden set to appear in court on misconduct charge](https://www.yahoo.com/news/fifth-inmate-dies-wisconsin-prison-142327195.html)
 <!-- feed end -->
 
 ### Onstream
