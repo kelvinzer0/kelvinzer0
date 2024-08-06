@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [1 Magnificent S&P 500 Dividend Stock Down 10% to Buy Right Now While Its Dividend Yield Is at a Once-in-a-Decade High](https://finance.yahoo.com/news/1-magnificent-p-500-dividend-004200366.html)
-- Aug 05 - [Deputy who shot Sonya Massey thought her rebuke 'in the name of Jesus' indicated intent to kill him](https://www.yahoo.com/news/deputy-shot-sonya-massey-thought-231338745.html)
-- Aug 05 - [‘Crime here seems to get worse and worse’: Several KC businesses broken into overnight](https://www.yahoo.com/news/crime-seems-worse-worse-several-215356452.html)
-- Aug 05 - [State of Emergency declared in North Carolina ahead of Tropical Storm Debby](https://www.yahoo.com/news/state-emergency-declared-north-carolina-214630341.html)
-- Aug 05 - [CrowdStrike is sued by fliers after massive outage disrupts air travel](https://finance.yahoo.com/news/crowdstrike-sued-fliers-massive-outage-213238215.html)
+- Aug 05 - [Rural Nevada sheriff probes potential hate crime after Black man says he was racially harassed](https://www.yahoo.com/news/rural-nevada-sheriff-probes-potential-234507068.html)
+- Aug 05 - ['I Almost Died of Liver Failure at Age 50—This Is the First Sign I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-liver-failure-age-232500054.html)
+- Aug 05 - [Dad Learns His 2 Daughters Died After Tracking Their Phones to Crash Site: 'Tremendous Loss'](https://www.yahoo.com/news/dad-learns-2-daughters-died-231925720.html)
+- Aug 05 - [How did ancient Egyptians stack those heavy stones of the oldest pyramid? Scientists float new theory](https://www.yahoo.com/news/engineers-theory-egypt-first-pyramid-211938317.html)
+- Aug 05 - [Mississippi Coast man headed to prison for molesting child during holiday visit](https://www.yahoo.com/news/mississippi-coast-man-headed-prison-213645832.html)
 <!-- feed end -->
 
 ### Onstream
