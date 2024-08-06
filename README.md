@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Warren Buffett's Unprecedented $132 Billion Warning to Wall Street Can't Be Ignored Any Longer](https://finance.yahoo.com/news/warren-buffetts-unprecedented-132-billion-080600021.html)
 - Aug 06 - [Hillary Clinton Shreds Donald Trump's Latest Move As 'Traitorous And Pathetic'](https://www.yahoo.com/news/hillary-clinton-shreds-donald-trumps-071550629.html)
 - Aug 06 - [Russia suspected Ukrainian attack on Navy Day parade, state TV says](https://www.yahoo.com/news/russia-suspected-ukrainian-attack-navy-060635277.html)
-- Aug 06 - ["People Were Told As Children Never To Walk Past The House": 13 Stories Of Small-Town Lore That Sent A Shiver Down My Spine](https://www.yahoo.com/entertainment/people-were-told-children-never-034602677.html)
-- Aug 05 - [Rural Nevada sheriff probes potential hate crime after Black man says he was racially harassed](https://www.yahoo.com/news/rural-nevada-sheriff-probes-potential-234507068.html)
-- Aug 05 - ['I Almost Died of Liver Failure at Age 50—This Is the First Sign I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-liver-failure-age-232500054.html)
+- Aug 06 - [Billions Actor Akili McDowell Arrested and Charged With Murder](https://www.yahoo.com/entertainment/billions-actor-akili-mcdowell-arrested-012902775.html)
+- Aug 06 - [Meta says Malaysian PM Anwar's posts on Haniyeh assassination were removed in error](https://www.yahoo.com/tech/meta-apologises-removal-malaysian-pms-012320460.html)
 <!-- feed end -->
 
 ### Onstream
