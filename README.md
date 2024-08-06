@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Bangladesh’s Sheikh Hasina to ‘seek asylum in UK’ despite calls for probe into her protest crackdown](https://www.yahoo.com/news/bangladesh-sheikh-hasina-seek-asylum-052128200.html)
 - Aug 05 - [Rural Nevada sheriff probes potential hate crime after Black man says he was racially harassed](https://www.yahoo.com/news/rural-nevada-sheriff-probes-potential-234507068.html)
 - Aug 05 - ['I Almost Died of Liver Failure at Age 50—This Is the First Sign I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-liver-failure-age-232500054.html)
 - Aug 05 - [Dad Learns His 2 Daughters Died After Tracking Their Phones to Crash Site: 'Tremendous Loss'](https://www.yahoo.com/news/dad-learns-2-daughters-died-231925720.html)
 - Aug 05 - [Deputy who shot Sonya Massey thought her rebuke 'in the name of Jesus' indicated intent to kill him](https://www.yahoo.com/news/deputy-shot-sonya-massey-thought-231338745.html)
-- Aug 05 - [FOUND: 2 hikers located after 2 days missing in Yosemite National Park](https://www.yahoo.com/news/2-hikers-missing-yosemite-national-050801384.html)
 <!-- feed end -->
 
 ### Onstream
