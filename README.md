@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Aug 05 - ['I Almost Died of Liver Failure at Age 50—This Is the First Sign I Wish I'd Paid Attention To'](https://www.yahoo.com/lifestyle/almost-died-liver-failure-age-232500054.html)
 - Aug 05 - [Dad Learns His 2 Daughters Died After Tracking Their Phones to Crash Site: 'Tremendous Loss'](https://www.yahoo.com/news/dad-learns-2-daughters-died-231925720.html)
 - Aug 05 - [Deputy who shot Sonya Massey thought her rebuke 'in the name of Jesus' indicated intent to kill him](https://www.yahoo.com/news/deputy-shot-sonya-massey-thought-231338745.html)
-- Aug 05 - [Boeing delivers new helicopter part of Air Force fleet modernization plan](https://www.yahoo.com/news/boeing-delivers-helicopter-part-air-224022290.html)
+- Aug 05 - [FOUND: 2 hikers located after 2 days missing in Yosemite National Park](https://www.yahoo.com/news/2-hikers-missing-yosemite-national-050801384.html)
 <!-- feed end -->
 
 ### Onstream
