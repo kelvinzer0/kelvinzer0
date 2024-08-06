@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [A Restaurant In Paris Has Responded After Serena Williams Publicly Claimed That She And Her Kids Were Denied A Table There](https://www.yahoo.com/entertainment/restaurant-paris-responded-serena-williams-154945914.html)
-- Aug 06 - [What to know about Tim Walz, Kamala Harris' running mate](https://www.yahoo.com/news/know-tim-walz-kamala-harris-153052294.html)
-- Aug 06 - [Romanian PM to boycott Olympics' closing ceremony after 'scandalous situation' in gymnastics ruling](https://www.yahoo.com/news/romanian-pm-boycott-olympics-closing-152445637.html)
-- Aug 06 - [Police are no match for the teenage punks that control Gilbert](https://www.yahoo.com/news/police-no-match-teenage-punks-145133554.html)
-- Aug 06 - [Fifth inmate dies at Wisconsin prison as former warden set to appear in court on misconduct charge](https://www.yahoo.com/news/fifth-inmate-dies-wisconsin-prison-142327195.html)
+- Aug 06 - [Elon Musk's X sues advertisers over alleged 'massive advertiser boycott' after Twitter takeover](https://finance.yahoo.com/news/elon-musks-x-sues-advertisers-162213500.html)
+- Aug 06 - [Texas man sentenced to 40 years in prison for brutal murder of newlywed wife](https://www.yahoo.com/news/texas-man-sentenced-40-years-161626898.html)
+- Aug 06 - [At the start of August, Florida has seen nearly as many mass shootings as it did in 2023](https://www.yahoo.com/news/start-august-florida-seen-nearly-155027017.html)
+- Aug 06 - [Robert Kiyosaki predicts up to 15,000% upside in these 3 assets, saying 'best time to get rich is approaching'](https://finance.yahoo.com/news/robert-kiyosaki-predicts-15-000-154000215.html)
+- Aug 06 - [Boeing's Stranded Starliner Has Failed So Spectacularly That It Looks Like It'll Push Back SpaceX's Next Astronaut Launch](https://www.yahoo.com/news/boeings-stranded-starliner-failed-spectacularly-152901744.html)
 <!-- feed end -->
 
 ### Onstream
