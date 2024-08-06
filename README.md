@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [A dozen Bay County restaurants cited for high-priority violations](https://www.yahoo.com/news/dozen-bay-county-restaurants-cited-210119535.html)
+- Aug 06 - [Realty Income (O) Q2 2024 Earnings Call Transcript](https://finance.yahoo.com/news/realty-income-o-q2-2024-223015650.html)
+- Aug 06 - [Mexico invites Putin to presidential inauguration, Russia's Izvestia newspaper says](https://www.yahoo.com/news/mexico-invites-putin-presidential-inauguration-220611526.html)
+- Aug 06 - [Opening of Trump campaign office in Georgia descends into chaos with fist fight](https://www.yahoo.com/news/opening-trump-campaign-office-georgia-202117688.html)
 - Aug 06 - [Indiana's completion of a 16-year highway extension project is a 'historic milestone,' governor says](https://www.yahoo.com/news/indianas-completion-16-highway-extension-201456143.html)
 - Aug 06 - [It Turns Out Boeing's Derelict Starliner Is Unable to Fly Without a Crew on Board](https://www.yahoo.com/news/turns-boeings-derelict-starliner-unable-193548453.html)
-- Aug 06 - [4 dead after airplane crash near Yukon airport](https://www.yahoo.com/news/4-dead-airplane-crash-nw-192504270.html)
-- Aug 06 - [The Internet Can't Stop Making Nancy Pelosi Jokes Over Kamala Harris' Tim Walz VP Pick](https://www.yahoo.com/entertainment/people-making-lot-nancy-pelosi-191850402.html)
 <!-- feed end -->
 
 ### Onstream
