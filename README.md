@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Realty Income (O) Q2 2024 Earnings Call Transcript](https://finance.yahoo.com/news/realty-income-o-q2-2024-223015650.html)
+- Aug 06 - [Student who beat teacher’s aide over Nintendo Switch sentenced to prison](https://www.yahoo.com/news/student-beat-teacher-aide-over-224750792.html)
+- Aug 06 - [Rivian lost $1.46B in Q2 as it drives toward a VW-linked future](https://www.yahoo.com/news/rivian-lost-1-46-billion-202843808.html)
 - Aug 06 - [Mexico invites Putin to presidential inauguration, Russia's Izvestia newspaper says](https://www.yahoo.com/news/mexico-invites-putin-presidential-inauguration-220611526.html)
-- Aug 06 - [Opening of Trump campaign office in Georgia descends into chaos with fist fight](https://www.yahoo.com/news/opening-trump-campaign-office-georgia-202117688.html)
-- Aug 06 - [Indiana's completion of a 16-year highway extension project is a 'historic milestone,' governor says](https://www.yahoo.com/news/indianas-completion-16-highway-extension-201456143.html)
-- Aug 06 - [It Turns Out Boeing's Derelict Starliner Is Unable to Fly Without a Crew on Board](https://www.yahoo.com/news/turns-boeings-derelict-starliner-unable-193548453.html)
+- Aug 06 - [Longview woman dies after being ‘intentionally’ struck by vehicle, officials say](https://www.yahoo.com/news/longview-woman-dies-being-intentionally-202816519.html)
+- Aug 06 - [Super Micro gives margin, profit forecasts below estimates; shares tumble](https://finance.yahoo.com/news/super-micro-forecasts-first-quarter-202245498.html)
 <!-- feed end -->
 
 ### Onstream
