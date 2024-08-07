@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Sonos Ace Review: The Best New Headphones Release in Years](https://www.yahoo.com/tech/sonos-ace-review-best-headphones-161010746.html)
-- Aug 07 - [Daughter of Utah death row inmate navigates complicated dance of grief and healing before execution](https://www.yahoo.com/news/daughter-utah-death-row-inmate-154825511.html)
-- Aug 07 - [People Are Making Dad Jokes About Tim Walz, And They Are Way, Way Funnier Than They Should Be](https://www.yahoo.com/entertainment/people-making-dad-jokes-tim-153408462.html)
-- Aug 07 - [Iran's president tells Macron aggression will not be tolerated](https://www.yahoo.com/news/irans-president-tells-macron-aggression-141823827.html)
-- Aug 07 - [A Submersible Uncovered Secret Structures. Then, It Vanished Under Antarctic Waters.](https://www.yahoo.com/news/submersible-uncovered-secret-structures-then-140000355.html)
+- Aug 07 - [Breeze Airways announces new Florida flights from South Bend International Airport](https://www.yahoo.com/news/breeze-airways-announces-florida-flights-173611977.html)
+- Aug 07 - [Membership required: Costco to scan member cards, check ID at all locations](https://www.yahoo.com/news/membership-required-costco-scan-member-172543423.html)
+- Aug 07 - [Republicans Are Calling Tim Walz "Tampon Tim," And The Backlash From Women Is Too Good Not To Share](https://www.yahoo.com/news/republicans-calling-tim-walz-tampon-171023189.html)
+- Aug 07 - [As Tropical Storm Debby inches closer to NC, here’s when the heaviest rain is likely](https://www.yahoo.com/news/tropical-storm-debby-inches-closer-152858269.html)
+- Aug 07 - [Ford Falcon Emerges From Decades Of Dust to Fetch $247,000 at Auction](https://autos.yahoo.com/ford-falcon-emerges-decades-dust-200005957.html)
 <!-- feed end -->
 
 ### Onstream
