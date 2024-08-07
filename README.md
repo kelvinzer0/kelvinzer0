@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [As Tropical Storm Debby inches closer to NC, here’s when the heaviest rain is likely](https://www.yahoo.com/news/tropical-storm-debby-inches-closer-152858098.html)
-- Aug 07 - [Primary election results for Michigan's US House races](https://www.yahoo.com/news/primary-election-results-michigans-us-113150727.html)
-- Aug 07 - [‘A serious problem’: Minnesota woman’s car make and model dropped by State Farm — you might not be covered either](https://finance.yahoo.com/news/serious-problem-minnesota-woman-car-110500746.html)
-- Aug 07 - [US 30-year mortgage rate drops on weak jobs data, Fed rate-cut signals](https://finance.yahoo.com/news/us-30-mortgage-rate-drops-110227559.html)
-- Aug 07 - [How chip giant Intel spurned OpenAI and fell behind the times](https://finance.yahoo.com/news/chip-giant-intel-spurned-openai-110138000.html)
+- Aug 07 - [Sonos Ace Review: The Best New Headphones Release in Years](https://www.yahoo.com/tech/sonos-ace-review-best-headphones-161010746.html)
+- Aug 07 - [Daughter of Utah death row inmate navigates complicated dance of grief and healing before execution](https://www.yahoo.com/news/daughter-utah-death-row-inmate-154825511.html)
+- Aug 07 - [People Are Making Dad Jokes About Tim Walz, And They Are Way, Way Funnier Than They Should Be](https://www.yahoo.com/entertainment/people-making-dad-jokes-tim-153408462.html)
+- Aug 07 - [Iran's president tells Macron aggression will not be tolerated](https://www.yahoo.com/news/irans-president-tells-macron-aggression-141823827.html)
+- Aug 07 - [A Submersible Uncovered Secret Structures. Then, It Vanished Under Antarctic Waters.](https://www.yahoo.com/news/submersible-uncovered-secret-structures-then-140000355.html)
 <!-- feed end -->
 
 ### Onstream
