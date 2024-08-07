@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [4 hotel employees charged with being party to felony murder in connection with Black man’s death](https://www.yahoo.com/news/4-hotel-employees-charged-being-231002161.html)
 - Aug 06 - [Student who beat teacher’s aide over Nintendo Switch sentenced to prison](https://www.yahoo.com/news/student-beat-teacher-aide-over-224750792.html)
-- Aug 06 - [Rivian lost $1.46B in Q2 as it drives toward a VW-linked future](https://www.yahoo.com/news/rivian-lost-1-46-billion-202843808.html)
+- Aug 06 - [Major Earth Systems on Track for Collapse, Scientists Find](https://www.yahoo.com/news/major-earth-systems-track-collapse-223031664.html)
 - Aug 06 - [Mexico invites Putin to presidential inauguration, Russia's Izvestia newspaper says](https://www.yahoo.com/news/mexico-invites-putin-presidential-inauguration-220611526.html)
-- Aug 06 - [Longview woman dies after being ‘intentionally’ struck by vehicle, officials say](https://www.yahoo.com/news/longview-woman-dies-being-intentionally-202816519.html)
-- Aug 06 - [Super Micro gives margin, profit forecasts below estimates; shares tumble](https://finance.yahoo.com/news/super-micro-forecasts-first-quarter-202245498.html)
+- Aug 06 - [Migrant day laborers sue Home Depot, CPD and city of Chicago, alleging abuse and harassment](https://www.yahoo.com/news/migrant-day-laborers-sue-home-214500837.html)
 <!-- feed end -->
 
 ### Onstream
