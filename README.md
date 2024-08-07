@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Olympic sprinter Gabby Thomas wins gold in the 200-meter race: What to know about her healthy routine](https://sports.yahoo.com/olympic-sprinter-gabby-thomas-wins-055710867.html)
+- Aug 07 - [Russia's defence ministry says Ukraine keeps up air attacks on Kursk](https://www.yahoo.com/news/ukraine-keeps-air-attacks-russias-035330860.html)
 - Aug 07 - [Cori Bush becomes second 'Squad' member to lose 2024 primary as Democrats split over Israel](https://www.yahoo.com/news/cori-bush-becomes-second-squad-030104679.html)
-- Aug 06 - [Northern California business fined after flying American flag](https://www.yahoo.com/news/northern-california-business-fined-flying-232315195.html)
-- Aug 06 - [4 hotel employees charged with being party to felony murder in connection with Black man’s death](https://www.yahoo.com/news/4-hotel-employees-charged-being-231002161.html)
-- Aug 06 - [Major Earth Systems on Track for Collapse, Scientists Find](https://www.yahoo.com/news/major-earth-systems-track-collapse-223031664.html)
-- Aug 06 - [Rivian lost $1.46B in Q2 as it drives toward a VW-linked future](https://www.yahoo.com/news/rivian-lost-1-46-billion-202843808.html)
+- Aug 07 - [Road-rage fueled fistfight in Southern California parking lot leaves 1 dead](https://www.yahoo.com/news/man-killed-violence-breaks-west-011538647.html)
+- Aug 07 - [Judge dismisses most claims in federal lawsuit filed by Black Texas student punished over hairstyle](https://www.yahoo.com/news/judge-dismisses-most-claims-federal-011431465.html)
 <!-- feed end -->
 
 ### Onstream
