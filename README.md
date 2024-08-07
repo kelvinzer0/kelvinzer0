@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Indian wrestling star Vinesh Phogat disqualified before gold medal bout after coming in 100 grams overweight](https://sports.yahoo.com/indian-wrestling-star-vinesh-phogat-070945837.html)
+- Aug 07 - [Americans just can’t quit their giant, gas-burning trucks](https://finance.yahoo.com/news/americans-just-t-quit-giant-090002443.html)
+- Aug 07 - [Prediction: This Will Be One of the World's First $5 Trillion Artificial Intelligence (AI) Stocks](https://finance.yahoo.com/news/prediction-one-worlds-first-5-085100673.html)
+- Aug 07 - [OOPS! People Spot Hilarious Problem With JD Vance's Speech Backdrop](https://www.yahoo.com/entertainment/oops-people-spot-hilarious-problem-081907604.html)
 - Aug 07 - [Harley-Davidson faces 'woke' accusations from Sturgis bikers: 'Breaks my heart'](https://www.yahoo.com/lifestyle/harley-davidson-faces-woke-accusations-080043128.html)
 - Aug 07 - [Utility company's proposal to rat out hidden marijuana operations to police raises privacy concerns](https://www.yahoo.com/news/utility-companys-proposal-rat-hidden-042447520.html)
-- Aug 07 - [‘I lost everything’: Sarasota residents navigate next steps amid rising floodwaters](https://www.yahoo.com/news/lost-everything-sarasota-residents-navigate-032641251.html)
-- Aug 07 - [Cori Bush becomes second 'Squad' member to lose 2024 primary as Democrats split over Israel](https://www.yahoo.com/news/cori-bush-becomes-second-squad-030104679.html)
 <!-- feed end -->
 
 ### Onstream
