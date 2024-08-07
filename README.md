@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [It Looks Like Democrats Finally Have Their MAGA Hat](https://www.yahoo.com/entertainment/looks-democrats-finally-maga-hat-175613941.html)
-- Aug 07 - [Breeze Airways announces new Florida flights from South Bend International Airport](https://www.yahoo.com/news/breeze-airways-announces-florida-flights-173611977.html)
+- Aug 07 - [Egypt asks its airlines to avoid Iran airspace for three hours on Thursday](https://www.yahoo.com/news/egypt-asks-airlines-avoid-iran-183300050.html)
+- Aug 07 - [Democrats May Have Found Their Own Version Of The MAGA Hat](https://www.yahoo.com/entertainment/looks-democrats-finally-maga-hat-175613941.html)
 - Aug 07 - [Republicans Are Calling Tim Walz "Tampon Tim," And The Backlash From Women Is Too Good Not To Share](https://www.yahoo.com/news/republicans-calling-tim-walz-tampon-171023189.html)
+- Aug 07 - [Carvings at site in Turkey could depict comet strike that ushered in civilization: Study](https://www.yahoo.com/news/carvings-turkey-could-depict-comet-165637468.html)
 - Aug 07 - [Crew of Titan sub knew they were going to die before implosion, according to more than $50M lawsuit](https://www.yahoo.com/news/family-explorer-died-titan-sub-165025703.html)
-- Aug 07 - [Boeing Furious at NASA Plan to Return Stranded Astronauts on SpaceX Craft](https://www.yahoo.com/news/boeing-furious-nasa-plan-return-164854933.html)
 <!-- feed end -->
 
 ### Onstream
