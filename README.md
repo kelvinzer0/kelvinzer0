@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Here’s how much rain Debby has dumped on Columbia, SC so far and what’s still to come, NWS says](https://www.yahoo.com/news/much-rain-debby-dumped-columbia-140044875.html)
+- Aug 07 - [Rioters become first jailed over far-right disorder in Southport and Liverpool](https://www.yahoo.com/news/rioters-become-first-jailed-over-111953099.html)
 - Aug 07 - [‘A serious problem’: Minnesota woman’s car make and model dropped by State Farm — you might not be covered either](https://finance.yahoo.com/news/serious-problem-minnesota-woman-car-110500746.html)
-- Aug 07 - [What Happened in Crypto Today: Bullish Signals Are Finally Emerging!](https://finance.yahoo.com/news/happened-crypto-today-bullish-signals-101605599.html)
-- Aug 07 - [At On Top of the World Clearwater, chaos reigns over retirees](https://www.yahoo.com/news/top-world-clearwater-chaos-reigns-100000765.html)
-- Aug 07 - [China cracks down on 'fan culture' during the Olympics, arresting a woman for social media posts](https://www.yahoo.com/news/china-cracks-down-fan-culture-092027093.html)
+- Aug 07 - [How chip giant Intel spurned OpenAI and fell behind the times](https://finance.yahoo.com/news/chip-giant-intel-spurned-openai-110138000.html)
+- Aug 07 - [Belgium's imec reports breakthroughs with new ASML chip printing machine](https://finance.yahoo.com/news/belgiums-imec-reports-breakthroughs-asml-102416956.html)
+- Aug 07 - [‘It’s beyond scary’: This California single mom was shocked to discover she owes $180K on ‘zombie mortgage’](https://finance.yahoo.com/news/beyond-scary-california-single-mom-101800185.html)
 <!-- feed end -->
 
 ### Onstream
