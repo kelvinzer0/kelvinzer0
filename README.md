@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Indian female wrestler is disqualified from gold medal match after making Olympic history](https://sports.yahoo.com/indian-female-wrestler-disqualified-gold-203746901.html)
+- Aug 07 - ['I'm a monster': Utah man set for execution says he makes no excuses but wants mercy](https://www.yahoo.com/news/im-monster-utah-man-set-194615026.html)
+- Aug 07 - [Assemi family member trying to block sale of $2 billion California farming empire](https://www.yahoo.com/news/assemi-family-member-trying-block-185902307.html)
 - Aug 07 - [Egypt asks its airlines to avoid Iran airspace for three hours on Thursday](https://www.yahoo.com/news/egypt-asks-airlines-avoid-iran-183300050.html)
-- Aug 07 - [Democrats May Have Found Their Own Version Of The MAGA Hat](https://www.yahoo.com/entertainment/looks-democrats-finally-maga-hat-175613941.html)
-- Aug 07 - [Republicans Are Calling Tim Walz "Tampon Tim," And The Backlash From Women Is Too Good Not To Share](https://www.yahoo.com/news/republicans-calling-tim-walz-tampon-171023189.html)
-- Aug 07 - [Carvings at site in Turkey could depict comet strike that ushered in civilization: Study](https://www.yahoo.com/news/carvings-turkey-could-depict-comet-165637468.html)
-- Aug 07 - [Crew of Titan sub knew they were going to die before implosion, according to more than $50M lawsuit](https://www.yahoo.com/news/family-explorer-died-titan-sub-165025703.html)
+- Aug 07 - [Meet Briar, a weeks-old mountain lion cub rescued by the Oakland Zoo](https://www.yahoo.com/news/meet-briar-weeks-old-mountain-183042081.html)
 <!-- feed end -->
 
 ### Onstream
