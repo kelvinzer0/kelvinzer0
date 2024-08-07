@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [J.D. Vance Awkwardly Retreats After Bizarre Attempt to Storm Harris’ Empty Plane](https://www.yahoo.com/news/j-d-vance-awkwardly-retreats-205300674.html)
 - Aug 07 - [Indian female wrestler is disqualified from gold medal match after making Olympic history](https://sports.yahoo.com/indian-female-wrestler-disqualified-gold-203746901.html)
-- Aug 07 - ['I'm a monster': Utah man set for execution says he makes no excuses but wants mercy](https://www.yahoo.com/news/im-monster-utah-man-set-194615026.html)
+- Aug 07 - [After baby's death, Kentucky parents sue infant formula maker at center of 2022 crisis](https://www.yahoo.com/news/babys-death-kentucky-parents-sue-202634212.html)
+- Aug 07 - [Russian Mi-28 Havoc Attack Helicopter Engaged In Mid-Air By Ukrainian Drone](https://www.yahoo.com/news/russian-mi-28-havoc-attack-191337137.html)
 - Aug 07 - [Assemi family member trying to block sale of $2 billion California farming empire](https://www.yahoo.com/news/assemi-family-member-trying-block-185902307.html)
-- Aug 07 - [Egypt asks its airlines to avoid Iran airspace for three hours on Thursday](https://www.yahoo.com/news/egypt-asks-airlines-avoid-iran-183300050.html)
-- Aug 07 - [Meet Briar, a weeks-old mountain lion cub rescued by the Oakland Zoo](https://www.yahoo.com/news/meet-briar-weeks-old-mountain-183042081.html)
 <!-- feed end -->
 
 ### Onstream
