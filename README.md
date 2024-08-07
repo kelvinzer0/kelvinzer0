@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [It Looks Like Democrats Finally Have Their MAGA Hat](https://www.yahoo.com/entertainment/looks-democrats-finally-maga-hat-175613941.html)
 - Aug 07 - [Breeze Airways announces new Florida flights from South Bend International Airport](https://www.yahoo.com/news/breeze-airways-announces-florida-flights-173611977.html)
-- Aug 07 - [Membership required: Costco to scan member cards, check ID at all locations](https://www.yahoo.com/news/membership-required-costco-scan-member-172543423.html)
 - Aug 07 - [Republicans Are Calling Tim Walz "Tampon Tim," And The Backlash From Women Is Too Good Not To Share](https://www.yahoo.com/news/republicans-calling-tim-walz-tampon-171023189.html)
-- Aug 07 - [As Tropical Storm Debby inches closer to NC, here’s when the heaviest rain is likely](https://www.yahoo.com/news/tropical-storm-debby-inches-closer-152858269.html)
-- Aug 07 - [Ford Falcon Emerges From Decades Of Dust to Fetch $247,000 at Auction](https://autos.yahoo.com/ford-falcon-emerges-decades-dust-200005957.html)
+- Aug 07 - [Crew of Titan sub knew they were going to die before implosion, according to more than $50M lawsuit](https://www.yahoo.com/news/family-explorer-died-titan-sub-165025703.html)
+- Aug 07 - [Boeing Furious at NASA Plan to Return Stranded Astronauts on SpaceX Craft](https://www.yahoo.com/news/boeing-furious-nasa-plan-return-164854933.html)
 <!-- feed end -->
 
 ### Onstream
