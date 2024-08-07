@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [How Kamala Harris Trusted Her Gut and Picked Tim Walz](https://www.yahoo.com/news/kamala-harris-trusted-her-gut-113832405.html)
-- Aug 07 - [Want to Get Rich? Buy the Dip on This Dividend-Growth Stock and Never Sell](https://finance.yahoo.com/news/want-rich-buy-dip-dividend-113600317.html)
+- Aug 07 - [Here’s how much rain Debby has dumped on Columbia, SC so far and what’s still to come, NWS says](https://www.yahoo.com/news/much-rain-debby-dumped-columbia-140044875.html)
+- Aug 07 - [‘A serious problem’: Minnesota woman’s car make and model dropped by State Farm — you might not be covered either](https://finance.yahoo.com/news/serious-problem-minnesota-woman-car-110500746.html)
+- Aug 07 - [What Happened in Crypto Today: Bullish Signals Are Finally Emerging!](https://finance.yahoo.com/news/happened-crypto-today-bullish-signals-101605599.html)
 - Aug 07 - [At On Top of the World Clearwater, chaos reigns over retirees](https://www.yahoo.com/news/top-world-clearwater-chaos-reigns-100000765.html)
 - Aug 07 - [China cracks down on 'fan culture' during the Olympics, arresting a woman for social media posts](https://www.yahoo.com/news/china-cracks-down-fan-culture-092027093.html)
-- Aug 07 - [OOPS! People Spot Hilarious Problem With JD Vance's Speech Backdrop](https://www.yahoo.com/entertainment/oops-people-spot-hilarious-problem-081907604.html)
 <!-- feed end -->
 
 ### Onstream
