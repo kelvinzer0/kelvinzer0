@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Fishers River Place development at 96th Street nears finish](https://www.yahoo.com/news/fishers-river-place-development-96th-083118453.html)
+- Aug 07 - [UK house prices rise in July as mortgage rates fall](https://uk.finance.yahoo.com/news/house-prices-rise-july-cheaper-mortgages-080659707.html)
 - Aug 07 - [Utility company's proposal to rat out hidden marijuana operations to police raises privacy concerns](https://www.yahoo.com/news/utility-companys-proposal-rat-hidden-042447520.html)
-- Aug 07 - [Russia's defence ministry says Ukraine keeps up air attacks on Kursk](https://www.yahoo.com/news/ukraine-keeps-air-attacks-russias-035330860.html)
 - Aug 07 - [Cori Bush becomes second 'Squad' member to lose 2024 primary as Democrats split over Israel](https://www.yahoo.com/news/cori-bush-becomes-second-squad-030104679.html)
 - Aug 07 - [China arrests woman suspected of 'defaming' Olympic table tennis players](https://www.yahoo.com/news/china-arrests-woman-suspected-defaming-025007830.html)
-- Aug 07 - [Road-rage fueled fistfight in Southern California parking lot leaves 1 dead](https://www.yahoo.com/news/man-killed-violence-breaks-west-011538647.html)
 <!-- feed end -->
 
 ### Onstream
