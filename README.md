@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Fishers River Place development at 96th Street nears finish](https://www.yahoo.com/news/fishers-river-place-development-96th-083118453.html)
-- Aug 07 - [UK house prices rise in July as mortgage rates fall](https://uk.finance.yahoo.com/news/house-prices-rise-july-cheaper-mortgages-080659707.html)
-- Aug 07 - [Utility company's proposal to rat out hidden marijuana operations to police raises privacy concerns](https://www.yahoo.com/news/utility-companys-proposal-rat-hidden-042447520.html)
-- Aug 07 - [Cori Bush becomes second 'Squad' member to lose 2024 primary as Democrats split over Israel](https://www.yahoo.com/news/cori-bush-becomes-second-squad-030104679.html)
-- Aug 07 - [China arrests woman suspected of 'defaming' Olympic table tennis players](https://www.yahoo.com/news/china-arrests-woman-suspected-defaming-025007830.html)
+- Aug 07 - [Nvidia Dropped to $100 in the Market Sell-Off: Buy, Sell, or Hold?](https://finance.yahoo.com/news/nvidia-dropped-100-market-sell-090500230.html)
+- Aug 07 - [Buffalo man buys lemon from local used car lot, gets help from Erie Times-News](https://www.yahoo.com/news/buffalo-man-buys-lemon-local-085633606.html)
+- Aug 07 - [Indian wrestling star Vinesh Phogat disqualified before gold medal bout after coming in 100 grams overweight](https://sports.yahoo.com/indian-wrestling-star-vinesh-phogat-070945837.html)
+- Aug 07 - [How Lahaina's more than 150-year-old banyan tree is coming back to life after devastating fire](https://www.yahoo.com/news/lahainas-more-150-old-banyan-042037546.html)
+- Aug 07 - [‘I lost everything’: Sarasota residents navigate next steps amid rising floodwaters](https://www.yahoo.com/news/lost-everything-sarasota-residents-navigate-032641251.html)
 <!-- feed end -->
 
 ### Onstream
