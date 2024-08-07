@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 07 - [Cori Bush becomes second 'Squad' member to lose 2024 primary as Democrats split over Israel](https://www.yahoo.com/news/cori-bush-becomes-second-squad-030104679.html)
-- Aug 07 - [Judge dismisses most claims in federal lawsuit filed by Black Texas student punished over hairstyle](https://www.yahoo.com/news/judge-dismisses-most-claims-federal-011431465.html)
-- Aug 07 - [Officials speak out after major US city confirms sighting of giant, disease-carrying snail: 'The discovery is a frustrating addition…'](https://www.yahoo.com/news/officials-speak-major-us-city-000000577.html)
 - Aug 06 - [Northern California business fined after flying American flag](https://www.yahoo.com/news/northern-california-business-fined-flying-232315195.html)
 - Aug 06 - [4 hotel employees charged with being party to felony murder in connection with Black man’s death](https://www.yahoo.com/news/4-hotel-employees-charged-being-231002161.html)
+- Aug 06 - [Major Earth Systems on Track for Collapse, Scientists Find](https://www.yahoo.com/news/major-earth-systems-track-collapse-223031664.html)
+- Aug 06 - [Rivian lost $1.46B in Q2 as it drives toward a VW-linked future](https://www.yahoo.com/news/rivian-lost-1-46-billion-202843808.html)
 <!-- feed end -->
 
 ### Onstream
