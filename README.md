@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Americans just can’t quit their giant, gas-burning trucks](https://finance.yahoo.com/news/americans-just-t-quit-giant-090002443.html)
-- Aug 07 - [Prediction: This Will Be One of the World's First $5 Trillion Artificial Intelligence (AI) Stocks](https://finance.yahoo.com/news/prediction-one-worlds-first-5-085100673.html)
+- Aug 07 - [How Kamala Harris Trusted Her Gut and Picked Tim Walz](https://www.yahoo.com/news/kamala-harris-trusted-her-gut-113832405.html)
+- Aug 07 - [Want to Get Rich? Buy the Dip on This Dividend-Growth Stock and Never Sell](https://finance.yahoo.com/news/want-rich-buy-dip-dividend-113600317.html)
+- Aug 07 - [At On Top of the World Clearwater, chaos reigns over retirees](https://www.yahoo.com/news/top-world-clearwater-chaos-reigns-100000765.html)
+- Aug 07 - [China cracks down on 'fan culture' during the Olympics, arresting a woman for social media posts](https://www.yahoo.com/news/china-cracks-down-fan-culture-092027093.html)
 - Aug 07 - [OOPS! People Spot Hilarious Problem With JD Vance's Speech Backdrop](https://www.yahoo.com/entertainment/oops-people-spot-hilarious-problem-081907604.html)
-- Aug 07 - [Harley-Davidson faces 'woke' accusations from Sturgis bikers: 'Breaks my heart'](https://www.yahoo.com/lifestyle/harley-davidson-faces-woke-accusations-080043128.html)
-- Aug 07 - [Utility company's proposal to rat out hidden marijuana operations to police raises privacy concerns](https://www.yahoo.com/news/utility-companys-proposal-rat-hidden-042447520.html)
 <!-- feed end -->
 
 ### Onstream
