@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [SUV crash that killed 9 family members followed matriarch's 80th birthday celebration in Florida](https://www.yahoo.com/news/suv-crash-killed-9-family-223142167.html)
+- Aug 07 - ['Her last jump of the day': Skydiving teacher dies after hitting dust devil, student injured](https://www.yahoo.com/news/her-last-jump-day-skydiving-213541617.html)
+- Aug 07 - [NASA admits it's been working with SpaceX on a backup plan to retrieve Boeing's 2 stuck astronauts. It doesn't sound ideal.](https://www.yahoo.com/news/nasa-admits-working-spacex-backup-213015884.html)
 - Aug 07 - [J.D. Vance Awkwardly Retreats After Bizarre Attempt to Storm Harris’ Empty Plane](https://www.yahoo.com/news/j-d-vance-awkwardly-retreats-205300674.html)
 - Aug 07 - [Indian female wrestler is disqualified from gold medal match after making Olympic history](https://sports.yahoo.com/indian-female-wrestler-disqualified-gold-203746901.html)
-- Aug 07 - [After baby's death, Kentucky parents sue infant formula maker at center of 2022 crisis](https://www.yahoo.com/news/babys-death-kentucky-parents-sue-202634212.html)
-- Aug 07 - [Russian Mi-28 Havoc Attack Helicopter Engaged In Mid-Air By Ukrainian Drone](https://www.yahoo.com/news/russian-mi-28-havoc-attack-191337137.html)
-- Aug 07 - [Assemi family member trying to block sale of $2 billion California farming empire](https://www.yahoo.com/news/assemi-family-member-trying-block-185902307.html)
 <!-- feed end -->
 
 ### Onstream
