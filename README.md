@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Rioters become first jailed over far-right disorder in Southport and Liverpool](https://www.yahoo.com/news/rioters-become-first-jailed-over-111953099.html)
+- Aug 07 - [As Tropical Storm Debby inches closer to NC, here’s when the heaviest rain is likely](https://www.yahoo.com/news/tropical-storm-debby-inches-closer-152858098.html)
+- Aug 07 - [Primary election results for Michigan's US House races](https://www.yahoo.com/news/primary-election-results-michigans-us-113150727.html)
 - Aug 07 - [‘A serious problem’: Minnesota woman’s car make and model dropped by State Farm — you might not be covered either](https://finance.yahoo.com/news/serious-problem-minnesota-woman-car-110500746.html)
+- Aug 07 - [US 30-year mortgage rate drops on weak jobs data, Fed rate-cut signals](https://finance.yahoo.com/news/us-30-mortgage-rate-drops-110227559.html)
 - Aug 07 - [How chip giant Intel spurned OpenAI and fell behind the times](https://finance.yahoo.com/news/chip-giant-intel-spurned-openai-110138000.html)
-- Aug 07 - [Belgium's imec reports breakthroughs with new ASML chip printing machine](https://finance.yahoo.com/news/belgiums-imec-reports-breakthroughs-asml-102416956.html)
-- Aug 07 - [‘It’s beyond scary’: This California single mom was shocked to discover she owes $180K on ‘zombie mortgage’](https://finance.yahoo.com/news/beyond-scary-california-single-mom-101800185.html)
 <!-- feed end -->
 
 ### Onstream
