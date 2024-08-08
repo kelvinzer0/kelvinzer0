@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Hunter Biden 'received compensation' from Romanian businessman aiming to influence U.S. policy, special counsel in tax case says](https://www.yahoo.com/news/hunter-biden-received-compensation-romanian-055553127.html)
 - Aug 08 - [Mark Cuban says he once supported Trump. Then he got to know him: 'He was unethical then, and he's still unethical.'](https://www.yahoo.com/news/mark-cuban-says-once-supported-033130315.html)
-- Aug 08 - [New XQ-58 Valkyrie Variant With Built-In Landing Gear To Fly Soon](https://www.yahoo.com/news/xq-58-valkyrie-variant-built-010404113.html)
+- Aug 07 - [City agrees to buy Moda Center, land for $7.13 million, plans ‘major renovation’](https://www.yahoo.com/news/city-agrees-buy-moda-center-224750882.html)
 - Aug 07 - [Journey keyboardist asks judge to resolve deadlock with band's lead guitarist](https://www.yahoo.com/entertainment/journey-keyboardist-asks-judge-resolve-214451744.html)
-- Aug 07 - ['Her last jump of the day': Skydiving teacher dies after hitting dust devil, student injured](https://www.yahoo.com/news/her-last-jump-day-skydiving-213541617.html)
 - Aug 07 - [J.D. Vance Awkwardly Retreats After Bizarre Attempt to Storm Harris’ Empty Plane](https://www.yahoo.com/news/j-d-vance-awkwardly-retreats-205300674.html)
 <!-- feed end -->
 
