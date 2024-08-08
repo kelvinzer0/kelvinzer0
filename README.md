@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 08 - [Woman dies after getting caught in baggage carousel at Chicago O'Hare](https://www.yahoo.com/news/woman-dies-getting-caught-baggage-191427771.html)
-- Aug 08 - [Do You Know How Much You Must Save Each Month To Retire With $1 Million By 65? Here's A Breakdown At Each Age](https://finance.yahoo.com/news/know-much-must-save-month-193114977.html)
+- Aug 08 - [The Early Days Of Buick](https://autos.yahoo.com/early-days-buick-170000262.html)
 - Aug 08 - [Iranian brothers charged in alleged smuggling operation that led to deaths of 2 Navy SEALs](https://www.yahoo.com/news/iranian-brothers-charged-alleged-smuggling-185730935.html)
-- Aug 08 - [Dozens of Russian Soldiers Surrender to Invading Ukrainian Forces](https://www.yahoo.com/news/dozens-russian-soldiers-surrender-invading-170313482.html)
-- Aug 08 - [Ex-White House aide says ‘self-announced’ presser shows Trump is ‘panicking’](https://www.yahoo.com/news/ex-white-house-aide-says-170158224.html)
+- Aug 08 - [Scientists obtain deepest rock sample from Earth's mantle](https://www.yahoo.com/news/scientists-obtain-deepest-rock-sample-180442100.html)
+- Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
 <!-- feed end -->
 
 ### Onstream
