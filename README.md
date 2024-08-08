@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 08 - [Woman dies after getting caught in baggage carousel at Chicago O'Hare](https://www.yahoo.com/news/woman-dies-getting-caught-baggage-191427771.html)
-- Aug 08 - [The Early Days Of Buick](https://autos.yahoo.com/early-days-buick-170000262.html)
+- Aug 08 - [Redding man alleges he spent a night confused and alone after hospital discharge](https://www.yahoo.com/news/redding-man-alleges-spent-night-203422907.html)
+- Aug 08 - [Trump's press conference was more of what you'd expect from him: Rambling nonsense](https://www.yahoo.com/news/trumps-press-conference-more-youd-201240061.html)
+- Aug 08 - [The smoke is firmly in Boise’s eyes. When can the city expect to see fresh air again?](https://www.yahoo.com/news/smoke-firmly-boise-eyes-city-195448445.html)
 - Aug 08 - [Iranian brothers charged in alleged smuggling operation that led to deaths of 2 Navy SEALs](https://www.yahoo.com/news/iranian-brothers-charged-alleged-smuggling-185730935.html)
-- Aug 08 - [Scientists obtain deepest rock sample from Earth's mantle](https://www.yahoo.com/news/scientists-obtain-deepest-rock-sample-180442100.html)
-- Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
 <!-- feed end -->
 
 ### Onstream
