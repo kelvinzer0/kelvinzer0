@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Hindus in Bangladesh try to flee to India amid violence](https://www.yahoo.com/news/hindus-bangladesh-try-flee-india-124139328.html)
-- Aug 08 - [It looks like Russia was massively unprepared for Ukraine's attack on its territory](https://www.yahoo.com/news/looks-russia-massively-unprepared-ukraines-114156759.html)
-- Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
 - Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
-- Aug 08 - [California homeowner spent $200K on remodels only to be dropped by insurer over drone-captured images of ‘clutter’](https://finance.yahoo.com/news/california-homeowner-spent-200k-remodels-100100220.html)
+- Aug 08 - [LIVE UPDATES: Take a look at the Myrtle Beach areas after Tropical Storm Debby](https://www.yahoo.com/news/live-updates-look-myrtle-beach-105306515.html)
+- Aug 08 - [A powerful earthquake hits off southern Japan; tsunami advisory issued](https://www.yahoo.com/news/powerful-earthquake-hits-off-southern-103005607.html)
+- Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
+- Aug 08 - [Tropical Storm Debby Spotted Off Coast of Carolinas](https://www.yahoo.com/news/tropical-storm-debby-spotted-off-101714189.html)
 <!-- feed end -->
 
 ### Onstream
