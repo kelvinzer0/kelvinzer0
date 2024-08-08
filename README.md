@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Why Ukraine’s generals may have rolled the dice on an incursion into Russia](https://www.yahoo.com/news/why-ukraine-generals-may-rolled-154754482.html)
-- Aug 08 - [Africa CDC likely to declare mpox public health emergency next week](https://www.yahoo.com/news/africa-cdc-likely-declare-mpox-154301697.html)
-- Aug 08 - [Veteran actor lured in women, sexually assaulted them: Police](https://www.yahoo.com/news/veteran-actor-lured-women-sexually-151457221.html)
-- Aug 08 - [Trump Adviser Stephen Miller’s Bizarre Biden-Harris ‘Sex Slavery’ Meltdown](https://www.yahoo.com/news/trump-adviser-stephen-miller-bizarre-151315623.html)
-- Aug 08 - [Coca-Cola Is a Rock-Solid Dow Dividend Stock, but So Is This Dividend King That Plans to Pay $10 Billion in Dividends Over the Next Year.](https://finance.yahoo.com/news/coca-cola-rock-solid-dow-141500398.html)
+- Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
+- Aug 08 - [Why Ukraine launched an audacious cross-border attack on Putin’s forces in Russia’s Kursk](https://www.yahoo.com/news/why-ukraine-launched-audacious-cross-170505146.html)
+- Aug 08 - [DNA on weapons implicates ex-U.S. Green Beret in attempted Venezuelan coup, federal officials say](https://www.yahoo.com/news/dna-weapons-implicates-ex-u-163810525.html)
+- Aug 08 - [Dog Chews Through Battery, Setting Living Room on Fire](https://www.yahoo.com/news/dog-chews-battery-setting-living-163302057.html)
+- Aug 08 - [Watch This USAF AC-130J Ghostrider Land on an Arkansas Highway](https://autos.yahoo.com/watch-usaf-ac-130j-ghostrider-154600119.html)
 <!-- feed end -->
 
 ### Onstream
