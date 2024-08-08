@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
-- Aug 08 - [Why Ukraine launched an audacious cross-border attack on Putin’s forces in Russia’s Kursk](https://www.yahoo.com/news/why-ukraine-launched-audacious-cross-170505146.html)
-- Aug 08 - [DNA on weapons implicates ex-U.S. Green Beret in attempted Venezuelan coup, federal officials say](https://www.yahoo.com/news/dna-weapons-implicates-ex-u-163810525.html)
+- Aug 08 - [Officer who killed a teen in a traffic stop performed at the Olympics opener. The family is incensed](https://www.yahoo.com/news/officer-killed-teen-traffic-stop-174910684.html)
 - Aug 08 - [Dog Chews Through Battery, Setting Living Room on Fire](https://www.yahoo.com/news/dog-chews-battery-setting-living-163302057.html)
-- Aug 08 - [Watch This USAF AC-130J Ghostrider Land on an Arkansas Highway](https://autos.yahoo.com/watch-usaf-ac-130j-ghostrider-154600119.html)
+- Aug 08 - [Powerful 7.1 earthquake rattles southwestern Japan](https://www.yahoo.com/news/powerful-7-1-earthquake-rattles-152302284.html)
+- Aug 08 - [Veteran actor lured in women, sexually assaulted them: Police](https://www.yahoo.com/news/veteran-actor-lured-women-sexually-151457221.html)
+- Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
 <!-- feed end -->
 
 ### Onstream
