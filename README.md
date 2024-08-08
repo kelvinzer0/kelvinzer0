@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Tropical Storm Debby makes landfall for second time in US as it barrels into South Carolina coast](https://www.yahoo.com/news/tropical-storm-debby-makes-landfall-072814740.html)
 - Aug 08 - [Mark Cuban says he once supported Trump. Then he got to know him: 'He was unethical then, and he's still unethical.'](https://www.yahoo.com/news/mark-cuban-says-once-supported-033130315.html)
+- Aug 08 - [China announces nuclear energy breakthrough with fourth-gen, gas-cooled reactor plant — here's how it could power over 15 million homes](https://www.yahoo.com/tech/china-announces-nuclear-energy-breakthrough-020603873.html)
 - Aug 08 - [New XQ-58 Valkyrie Variant With Built-In Landing Gear To Fly Soon](https://www.yahoo.com/news/xq-58-valkyrie-variant-built-010404113.html)
 - Aug 07 - [SUV crash that killed 9 family members followed matriarch's 80th birthday celebration in Florida](https://www.yahoo.com/news/suv-crash-killed-9-family-223142167.html)
-- Aug 07 - [J.D. Vance Awkwardly Retreats After Bizarre Attempt to Storm Harris’ Empty Plane](https://www.yahoo.com/news/j-d-vance-awkwardly-retreats-205300674.html)
+- Aug 07 - [Hikers get video of dramatic snake fight between two venomous Massachusetts rattlers: Watch](https://www.yahoo.com/news/hikers-video-dramatic-snake-fight-222018173.html)
 <!-- feed end -->
 
 ### Onstream
