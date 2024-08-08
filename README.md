@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Taylor fans feel mix of disappointment and relief](https://www.yahoo.com/news/taylor-fans-feel-mix-disappointment-121406644.html)
-- Aug 08 - [Taylor Swift cancels Vienna shows after thwarted terrorist attack](https://www.yahoo.com/news/taylor-swift-cancels-vienna-shows-112239224.html)
+- Aug 08 - [Hindus in Bangladesh try to flee to India amid violence](https://www.yahoo.com/news/hindus-bangladesh-try-flee-india-124139328.html)
+- Aug 08 - [It looks like Russia was massively unprepared for Ukraine's attack on its territory](https://www.yahoo.com/news/looks-russia-massively-unprepared-ukraines-114156759.html)
+- Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
 - Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
-- Aug 08 - [OnlyFans athlete Alysha Newman causes controversy by twerking to celebrate medal](https://www.yahoo.com/entertainment/onlyfans-athlete-alysha-newman-sparks-091804875.html)
-- Aug 08 - [Russia battles Ukrainian troops for a third day after major incursion](https://www.yahoo.com/news/russia-battles-ukrainian-troops-third-073828017.html)
+- Aug 08 - [California homeowner spent $200K on remodels only to be dropped by insurer over drone-captured images of ‘clutter’](https://finance.yahoo.com/news/california-homeowner-spent-200k-remodels-100100220.html)
 <!-- feed end -->
 
 ### Onstream
