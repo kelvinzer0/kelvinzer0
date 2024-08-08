@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [SUV crash that killed 9 family members followed matriarch's 80th birthday celebration in Florida](https://www.yahoo.com/news/suv-crash-killed-9-family-223142167.html)
-- Aug 07 - [Journey keyboardist asks judge to resolve deadlock with band's lead guitarist](https://www.yahoo.com/entertainment/journey-keyboardist-asks-judge-resolve-214451744.html)
-- Aug 07 - ['Her last jump of the day': Skydiving teacher dies after hitting dust devil, student injured](https://www.yahoo.com/news/her-last-jump-day-skydiving-213541617.html)
+- Aug 07 - [Jim Cramer Says NVIDIA Corp (NASDAQ:NVDA) ‘Has Become a Wasteland’](https://finance.yahoo.com/news/jim-cramer-says-nvidia-corp-210343365.html)
 - Aug 07 - [Megyn Kelly's Embrace Of 'Tampon Tim' Insult Backfires Badly](https://www.yahoo.com/news/megyn-kellys-embrace-tampon-tim-213050147.html)
+- Aug 07 - [NASA says chances are growing that astronauts may switch from Boeing to a SpaceX ride back to Earth](https://www.yahoo.com/news/nasa-says-chances-growing-astronauts-211004565.html)
 - Aug 07 - [J.D. Vance Awkwardly Retreats After Bizarre Attempt to Storm Harris’ Empty Plane](https://www.yahoo.com/news/j-d-vance-awkwardly-retreats-205300674.html)
+- Aug 07 - [Indian female wrestler is disqualified from gold medal match after making Olympic history](https://sports.yahoo.com/indian-female-wrestler-disqualified-gold-203746901.html)
 <!-- feed end -->
 
 ### Onstream
