@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Officer who killed a teen in a traffic stop performed at the Olympics opener. The family is incensed](https://www.yahoo.com/news/officer-killed-teen-traffic-stop-174910684.html)
-- Aug 08 - [Dog Chews Through Battery, Setting Living Room on Fire](https://www.yahoo.com/news/dog-chews-battery-setting-living-163302057.html)
-- Aug 08 - [Powerful 7.1 earthquake rattles southwestern Japan](https://www.yahoo.com/news/powerful-7-1-earthquake-rattles-152302284.html)
-- Aug 08 - [Veteran actor lured in women, sexually assaulted them: Police](https://www.yahoo.com/news/veteran-actor-lured-women-sexually-151457221.html)
-- Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
+- Aug 08 - [Woman dies after getting caught in baggage carousel at Chicago O'Hare](https://www.yahoo.com/news/woman-dies-getting-caught-baggage-191427771.html)
+- Aug 08 - [Do You Know How Much You Must Save Each Month To Retire With $1 Million By 65? Here's A Breakdown At Each Age](https://finance.yahoo.com/news/know-much-must-save-month-193114977.html)
+- Aug 08 - [Iranian brothers charged in alleged smuggling operation that led to deaths of 2 Navy SEALs](https://www.yahoo.com/news/iranian-brothers-charged-alleged-smuggling-185730935.html)
+- Aug 08 - [Dozens of Russian Soldiers Surrender to Invading Ukrainian Forces](https://www.yahoo.com/news/dozens-russian-soldiers-surrender-invading-170313482.html)
+- Aug 08 - [Ex-White House aide says ‘self-announced’ presser shows Trump is ‘panicking’](https://www.yahoo.com/news/ex-white-house-aide-says-170158224.html)
 <!-- feed end -->
 
 ### Onstream
