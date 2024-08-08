@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [First cases of Oropouche detected in Europe after two deaths in Brazil](https://www.yahoo.com/news/first-cases-oropouche-detected-europe-142014578.html)
 - Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
-- Aug 08 - [LIVE UPDATES: Take a look at the Myrtle Beach areas after Tropical Storm Debby](https://www.yahoo.com/news/live-updates-look-myrtle-beach-105306515.html)
-- Aug 08 - [A powerful earthquake hits off southern Japan; tsunami advisory issued](https://www.yahoo.com/news/powerful-earthquake-hits-off-southern-103005607.html)
+- Aug 08 - [Boeing’s new CEO is already making an overdue change his first day on the job](https://finance.yahoo.com/news/boeing-ceo-already-making-overdue-110002499.html)
 - Aug 08 - [Thousands of the far-right were expected to riot on Wednesday – why didn’t they turn up?](https://www.yahoo.com/news/thousands-far-were-expected-riot-102225204.html)
-- Aug 08 - [Tropical Storm Debby Spotted Off Coast of Carolinas](https://www.yahoo.com/news/tropical-storm-debby-spotted-off-101714189.html)
+- Aug 08 - [Russia battles Ukrainian troops for a third day after major incursion](https://www.yahoo.com/news/russia-battles-ukrainian-troops-third-073828017.html)
 <!-- feed end -->
 
 ### Onstream
