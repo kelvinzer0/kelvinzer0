@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Paramedic accused of poisoning daughter, 11, with eyedrops years after allegedly killing wife with same substance](https://www.yahoo.com/news/paramedic-accused-poisoning-daughter-11-151943499.html)
-- Aug 08 - [Crews Respond to Crozier Fire in El Dorado County](https://www.yahoo.com/news/crews-respond-crozier-fire-el-151544154.html)
+- Aug 08 - [Why Ukraine’s generals may have rolled the dice on an incursion into Russia](https://www.yahoo.com/news/why-ukraine-generals-may-rolled-154754482.html)
+- Aug 08 - [Africa CDC likely to declare mpox public health emergency next week](https://www.yahoo.com/news/africa-cdc-likely-declare-mpox-154301697.html)
+- Aug 08 - [Veteran actor lured in women, sexually assaulted them: Police](https://www.yahoo.com/news/veteran-actor-lured-women-sexually-151457221.html)
 - Aug 08 - [Trump Adviser Stephen Miller’s Bizarre Biden-Harris ‘Sex Slavery’ Meltdown](https://www.yahoo.com/news/trump-adviser-stephen-miller-bizarre-151315623.html)
-- Aug 08 - [Datadog rises on Q2 earnings beat, upbeat guidance](https://finance.yahoo.com/video/datadog-rises-q2-earnings-beat-151248947.html)
-- Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
+- Aug 08 - [Coca-Cola Is a Rock-Solid Dow Dividend Stock, but So Is This Dividend King That Plans to Pay $10 Billion in Dividends Over the Next Year.](https://finance.yahoo.com/news/coca-cola-rock-solid-dow-141500398.html)
 <!-- feed end -->
 
 ### Onstream
