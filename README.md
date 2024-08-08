@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Pensacola demands answers from ST Engineering on hiring after Chilean workers laid off](https://www.yahoo.com/news/pensacola-demands-answers-st-engineering-091050410.html)
-- Aug 08 - [Ukrainian troops were seen pushing 6 miles into Russian territory, and the Kremlin can't decide if it's a 'large-scale provocation' or 'under control'](https://www.yahoo.com/news/ukrainian-troops-were-seen-pushing-052158265.html)
-- Aug 08 - [Mark Cuban says he once supported Trump. Then he got to know him: 'He was unethical then, and he's still unethical.'](https://www.yahoo.com/news/mark-cuban-says-once-supported-033130315.html)
-- Aug 07 - [SUV crash that killed 9 family members followed matriarch's 80th birthday celebration in Florida](https://www.yahoo.com/news/suv-crash-killed-9-family-223142167.html)
-- Aug 07 - [J.D. Vance Awkwardly Retreats After Bizarre Attempt to Storm Harris’ Empty Plane](https://www.yahoo.com/news/j-d-vance-awkwardly-retreats-205300674.html)
+- Aug 08 - [Taylor Swift concert terror suspect, 17, began working at venue days before foiled plot, say police](https://www.yahoo.com/news/taylor-swift-concert-terror-suspect-105423949.html)
+- Aug 08 - [British holidaymakers cancelling trips to Mallorca following ‘dangerous’ anti-tourist protests](https://www.yahoo.com/news/british-holidaymakers-cancelling-trips-mallorca-094211891.html)
+- Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
+- Aug 08 - [OnlyFans athlete Alysha Newman sparks controversy by twerking to celebrate medal](https://www.yahoo.com/entertainment/onlyfans-athlete-alysha-newman-sparks-091804875.html)
+- Aug 08 - [Russia battles Ukrainian troops for a third day after major incursion](https://www.yahoo.com/news/russia-battles-ukrainian-troops-third-073828017.html)
 <!-- feed end -->
 
 ### Onstream
