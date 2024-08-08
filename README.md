@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Taylor Swift concert terror suspect, 17, began working at venue days before foiled plot, say police](https://www.yahoo.com/news/taylor-swift-concert-terror-suspect-105423949.html)
-- Aug 08 - [British holidaymakers cancelling trips to Mallorca following ‘dangerous’ anti-tourist protests](https://www.yahoo.com/news/british-holidaymakers-cancelling-trips-mallorca-094211891.html)
+- Aug 08 - [Taylor fans feel mix of disappointment and relief](https://www.yahoo.com/news/taylor-fans-feel-mix-disappointment-121406644.html)
+- Aug 08 - [Taylor Swift cancels Vienna shows after thwarted terrorist attack](https://www.yahoo.com/news/taylor-swift-cancels-vienna-shows-112239224.html)
 - Aug 08 - [A man lost 100 pounds and kept them off by making two simple lifestyle changes](https://www.yahoo.com/lifestyle/man-lost-100-pounds-kept-075102188.html)
-- Aug 08 - [OnlyFans athlete Alysha Newman sparks controversy by twerking to celebrate medal](https://www.yahoo.com/entertainment/onlyfans-athlete-alysha-newman-sparks-091804875.html)
+- Aug 08 - [OnlyFans athlete Alysha Newman causes controversy by twerking to celebrate medal](https://www.yahoo.com/entertainment/onlyfans-athlete-alysha-newman-sparks-091804875.html)
 - Aug 08 - [Russia battles Ukrainian troops for a third day after major incursion](https://www.yahoo.com/news/russia-battles-ukrainian-troops-third-073828017.html)
 <!-- feed end -->
 
