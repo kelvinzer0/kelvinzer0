@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [What does Donald Trump stand for? Key policies from abortion to immigration](https://www.yahoo.com/news/where-donald-trump-stands-key-061406131.html)
 - Aug 08 - [A pot of gold coins uncovered in Turkey could have been the life savings of an ancient Greek mercenary, experts say](https://www.yahoo.com/news/pot-gold-coins-uncovered-turkey-234247857.html)
-- Aug 08 - [Army’s successful hypersonic missile test puts fielding on horizon](https://www.yahoo.com/news/army-successful-hypersonic-missile-test-220735687.html)
+- Aug 08 - [SLO police identify suspect, seize car in deadly hit-and-run crash](https://www.yahoo.com/news/slo-police-identify-suspect-seize-232045753.html)
 - Aug 08 - [Woman dies after getting caught in baggage carousel at Chicago O'Hare](https://www.yahoo.com/news/woman-dies-getting-caught-baggage-191427771.html)
 - Aug 08 - [Family members arrested in rural Nevada over altercation that Black man says involved a racial slur](https://www.yahoo.com/news/family-members-arrested-rural-nevada-214247174.html)
-- Aug 08 - [7-mile backup reported after crash on I-64](https://www.yahoo.com/news/tractor-trailer-crash-64-westbound-200959179.html)
 <!-- feed end -->
 
 ### Onstream
