@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [Israel strike in south Lebanon kills Hamas commander](https://www.yahoo.com/news/lebanon-security-source-says-israel-165307465.html)
+- Aug 09 - [Iran leader's order to 'harshly punish' Israel will be carried out, Guards deputy chief says](https://www.yahoo.com/news/iran-leaders-order-harshly-punish-181926011.html)
+- Aug 09 - [Amanda Knox wasn't coerced but 'freely' accused a bar owner in roommate's murder, Italian court says](https://www.yahoo.com/news/amanda-knox-wasnt-coerced-freely-172342940.html)
+- Aug 09 - [Northern lights may be visible in US this weekend: Check the forecast in your area](https://www.yahoo.com/news/northern-lights-may-visible-us-171040848.html)
 - Aug 09 - [Panama offers safe passage to Venezuela's Maduro to allow for transition](https://www.yahoo.com/news/panama-offers-asylum-venezuelas-maduro-170735994.html)
-- Aug 09 - [Olympians are turning to OnlyFans to fund dreams as they face a 'broken' finance system](https://www.yahoo.com/news/olympians-turning-onlyfans-fund-dreams-164846601.html)
-- Aug 09 - [All 4 Milwaukee hotel workers charged with murder in Black man's death now in custody](https://www.yahoo.com/news/4-milwaukee-hotel-workers-charged-153743150.html)
-- Aug 09 - [Jimmy Carter started hospice nearly a year and a half ago. His experience is challenging common misconceptions about end-of-life care.](https://www.yahoo.com/lifestyle/jimmy-carter-started-hospice-nearly-a-year-and-a-half-ago-his-experience-is-challenging-common-misconceptions-about-end-of-life-care-144843226.html)
-- Aug 09 - [120-mile detour in place due to Pennsylvania Turnpike closure this weekend](https://www.yahoo.com/news/120-mile-detour-place-due-143253114.html)
 <!-- feed end -->
 
 ### Onstream
