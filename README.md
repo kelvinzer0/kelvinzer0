@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Iran leader's order to 'harshly punish' Israel will be carried out, Guards deputy chief says](https://www.yahoo.com/news/iran-leaders-order-harshly-punish-181926011.html)
-- Aug 09 - [MAGA Chaos Ensues as Joe Rogan Refuses to Endorse Trump](https://www.yahoo.com/news/maga-chaos-ensues-joe-rogan-174446792.html)
-- Aug 09 - [Stellantis to lay off up to 2,450 factory workers as classic Ram production ends](https://finance.yahoo.com/news/stellantis-lay-off-2-450-171900884.html)
-- Aug 09 - [Panama offers safe passage to Venezuela's Maduro to allow for transition](https://www.yahoo.com/news/panama-offers-asylum-venezuelas-maduro-170735994.html)
-- Aug 09 - [Researchers discover potentially catastrophic exploit present in AMD chips for decades](https://www.yahoo.com/news/researchers-discover-potentially-catastrophic-exploit-present-in-amd-chips-for-decades-161541359.html)
+- Aug 09 - [Northrop’s Stealthy Loyal Wingman Drone Breaks Cover And It Has A Cockpit](https://www.yahoo.com/news/northrop-stealthy-drone-breaks-cover-121615249.html)
+- Aug 09 - [How Avidity Biosciences Just Dropped The Hammer On Sarepta Therapeutics](https://www.investors.com/news/technology/biotech-stock-avidity-biosciences-rna-stock-sarepta-therapeutics-duchenne/?src=A00220&yptr=yahoo)
+- Aug 09 - [Stellantis announces layoffs as Ram 1500 production ends at Michigan plant](https://finance.yahoo.com/news/stellantis-announces-layoffs-ram-1500-194536210.html)
+- Aug 09 - [Israel strike in south Lebanon kills Hamas commander](https://www.yahoo.com/news/lebanon-security-source-says-israel-165307465.html)
+- Aug 09 - [Passenger Plane 'Free Falls' Ahead of Crash in Brazil: Video](https://www.yahoo.com/news/passenger-plane-free-falls-ahead-183232412.html)
 <!-- feed end -->
 
 ### Onstream
