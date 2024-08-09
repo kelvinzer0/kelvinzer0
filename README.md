@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 08 - [A pot of gold coins uncovered in Turkey could have been the life savings of an ancient Greek mercenary, experts say](https://www.yahoo.com/news/pot-gold-coins-uncovered-turkey-234247857.html)
-- Aug 08 - [Bee swarm attacks California family hospitalizing 3 and killing 'spunky' family dog](https://www.yahoo.com/news/bee-swarm-attacks-california-family-224026959.html)
-- Aug 08 - [Officer in Wisconsin praised for helping woman and child stranded with nothing](https://www.yahoo.com/news/officer-wisconsin-praised-helping-woman-220100785.html)
-- Aug 08 - [The ‘ad cartel’ Elon Musk accused of collusion is shutting down rather than fight X’s lawsuit](https://finance.yahoo.com/news/ad-cartel-elon-musk-accused-215811569.html)
+- Aug 08 - [Army’s successful hypersonic missile test puts fielding on horizon](https://www.yahoo.com/news/army-successful-hypersonic-missile-test-220735687.html)
 - Aug 08 - [Woman dies after getting caught in baggage carousel at Chicago O'Hare](https://www.yahoo.com/news/woman-dies-getting-caught-baggage-191427771.html)
+- Aug 08 - [Family members arrested in rural Nevada over altercation that Black man says involved a racial slur](https://www.yahoo.com/news/family-members-arrested-rural-nevada-214247174.html)
+- Aug 08 - [7-mile backup reported after crash on I-64](https://www.yahoo.com/news/tractor-trailer-crash-64-westbound-200959179.html)
 <!-- feed end -->
 
 ### Onstream
