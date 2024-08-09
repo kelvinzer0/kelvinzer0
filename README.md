@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Northrop’s Stealthy Loyal Wingman Drone Breaks Cover And It Has A Cockpit](https://www.yahoo.com/news/northrop-stealthy-drone-breaks-cover-121615249.html)
-- Aug 09 - [How Avidity Biosciences Just Dropped The Hammer On Sarepta Therapeutics](https://www.investors.com/news/technology/biotech-stock-avidity-biosciences-rna-stock-sarepta-therapeutics-duchenne/?src=A00220&yptr=yahoo)
-- Aug 09 - [Stellantis announces layoffs as Ram 1500 production ends at Michigan plant](https://finance.yahoo.com/news/stellantis-announces-layoffs-ram-1500-194536210.html)
-- Aug 09 - [Israel strike in south Lebanon kills Hamas commander](https://www.yahoo.com/news/lebanon-security-source-says-israel-165307465.html)
-- Aug 09 - [Passenger Plane 'Free Falls' Ahead of Crash in Brazil: Video](https://www.yahoo.com/news/passenger-plane-free-falls-ahead-183232412.html)
+- Aug 09 - [Does Japan's megaquake alert mean the 'big one' is coming?](https://www.yahoo.com/news/does-japans-megaquake-alert-mean-213655746.html)
+- Aug 09 - [British crocodile expert sentenced for sexually abusing, killing dozens of dogs: Reports](https://www.yahoo.com/news/british-crocodile-expert-sentenced-sexually-210552339.html)
+- Aug 09 - [GMC Sierra Police Chase Turns Chaotic Fast](https://autos.yahoo.com/gmc-sierra-police-chase-turns-203000812.html)
+- Aug 09 - [Idaho farmer goes viral after trading in his F-250 for a Cybertruck: 'It’s really fast'](https://www.yahoo.com/tech/idaho-farmer-goes-viral-trading-201221906.html)
+- Aug 09 - [What JD Vance did in Iraq, as told by the friend who served with him](https://www.yahoo.com/news/jd-vance-did-iraq-told-193338532.html)
 <!-- feed end -->
 
 ### Onstream
