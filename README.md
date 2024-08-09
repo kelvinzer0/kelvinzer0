@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [3rd person in custody over foiled plot targeting now-canceled Taylor Swift shows in Vienna](https://www.yahoo.com/news/3rd-person-custody-over-foiled-085519316.html)
+- Aug 09 - [1 Unstoppable Stock That Could Join Apple, Microsoft, Nvidia, Alphabet, Amazon, and Meta in the $1 Trillion Club](https://finance.yahoo.com/news/1-unstoppable-stock-could-join-070000293.html)
 - Aug 09 - [In Zimbabwe, schoolchildren face threats from animals. Now they are learning how to spot the dangers](https://www.yahoo.com/news/zimbabwe-schoolchildren-face-threats-animals-054051939.html)
-- Aug 09 - [Europe’s Auto Chipmakers Have a Deepening China Habit](https://finance.yahoo.com/news/europe-auto-chipmakers-deepening-china-040000021.html)
 - Aug 09 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/lifestyle/moms-support-trump-divided-family-031602108.html)
 - Aug 09 - [Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened](https://www.yahoo.com/news/trump-said-went-down-helicopter-024733517.html)
+- Aug 09 - [California lawmaker switches party, criticizes Democratic leadership](https://www.yahoo.com/news/california-lawmaker-switches-party-criticizes-001749479.html)
 <!-- feed end -->
 
 ### Onstream
