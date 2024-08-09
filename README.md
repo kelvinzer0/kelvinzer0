@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Russia struggles to repel deep incursion by Ukraine](https://www.yahoo.com/news/russia-struggles-repel-deep-incursion-101605897.html)
-- Aug 09 - [Warren Buffett says income from these 2 investments will likely increase in the next decades](https://finance.yahoo.com/news/warren-buffett-says-income-2-101200189.html)
-- Aug 09 - [Auto industry faces 'panic,' wild uncertainty as US EV adoption lags expectations](https://www.yahoo.com/news/auto-industry-faces-panic-wild-100134346.html)
+- Aug 09 - [Russia declares federal emergency as Ukrainian troops continue cross-border assault](https://www.yahoo.com/news/russia-declares-federal-emergency-ukrainian-114156568.html)
+- Aug 09 - [Boeing’s Starliner astronauts may be in space another 6 months. Here’s what they’ll do](https://www.yahoo.com/news/boeing-starliner-astronauts-may-space-103655981.html)
+- Aug 09 - [In Zimbabwe, schoolchildren face threats from animals. Now they are learning how to spot the dangers](https://www.yahoo.com/news/zimbabwe-schoolchildren-face-threats-animals-054051939.html)
 - Aug 09 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/lifestyle/moms-support-trump-divided-family-031602108.html)
 - Aug 09 - [Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened](https://www.yahoo.com/news/trump-said-went-down-helicopter-024733517.html)
 <!-- feed end -->
