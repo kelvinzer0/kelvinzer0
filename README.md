@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Taylor Swift's canceled concert: Officials found explosives, detonators, and a stockpile of chemicals in a 19-year-old's home](https://www.yahoo.com/entertainment/taylor-swifts-canceled-concert-officials-031850205.html)
-- Aug 09 - [U.S., Egypt, Qatar call on Israel and Hamas to resume cease-fire talks](https://www.yahoo.com/news/u-egypt-qatar-call-israel-025636773.html)
 - Aug 09 - [Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened](https://www.yahoo.com/news/trump-said-went-down-helicopter-024733517.html)
 - Aug 08 - [A pot of gold coins uncovered in Turkey could have been the life savings of an ancient Greek mercenary, experts say](https://www.yahoo.com/news/pot-gold-coins-uncovered-turkey-234247857.html)
-- Aug 08 - [SLO police identify suspect, seize car in deadly hit-and-run crash](https://www.yahoo.com/news/slo-police-identify-suspect-seize-232045753.html)
+- Aug 08 - [Bee swarm attacks California family hospitalizing 3 and killing 'spunky' family dog](https://www.yahoo.com/news/bee-swarm-attacks-california-family-224026959.html)
+- Aug 08 - [Moody's downgrades Intel's senior unsecured rating](https://finance.yahoo.com/news/moodys-downgrades-intels-senior-unsecured-223746528.html)
+- Aug 08 - [Woman dies after getting caught in baggage carousel at Chicago O'Hare](https://www.yahoo.com/news/woman-dies-getting-caught-baggage-191427771.html)
 <!-- feed end -->
 
 ### Onstream
