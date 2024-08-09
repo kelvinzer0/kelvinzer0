@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Cisco Paring Thousands of Jobs in New Cutbacks, Reuters Says](https://finance.yahoo.com/news/cisco-paring-thousands-jobs-cutbacks-155421210.html)
-- Aug 09 - [Russia's Deripaska under fire for rare anti-war comments](https://www.yahoo.com/news/russias-deripaska-under-fire-rare-145138943.html)
+- Aug 09 - [Panama offers safe passage to Venezuela's Maduro to allow for transition](https://www.yahoo.com/news/panama-offers-asylum-venezuelas-maduro-170735994.html)
+- Aug 09 - [Olympians are turning to OnlyFans to fund dreams as they face a 'broken' finance system](https://www.yahoo.com/news/olympians-turning-onlyfans-fund-dreams-164846601.html)
+- Aug 09 - [All 4 Milwaukee hotel workers charged with murder in Black man's death now in custody](https://www.yahoo.com/news/4-milwaukee-hotel-workers-charged-153743150.html)
 - Aug 09 - [Jimmy Carter started hospice nearly a year and a half ago. His experience is challenging common misconceptions about end-of-life care.](https://www.yahoo.com/lifestyle/jimmy-carter-started-hospice-nearly-a-year-and-a-half-ago-his-experience-is-challenging-common-misconceptions-about-end-of-life-care-144843226.html)
-- Aug 09 - [Divers Accidentally Discovered an 18th-Century Pirate Ship Loaded With Priceless Loot](https://www.yahoo.com/news/divers-accidentally-discovered-18th-century-140000332.html)
-- Aug 09 - [Tractor-trailer hauling windmill blade overturns after striking bridge on New England highway](https://www.yahoo.com/news/tractor-trailer-hauling-windmill-blade-134628479.html)
+- Aug 09 - [120-mile detour in place due to Pennsylvania Turnpike closure this weekend](https://www.yahoo.com/news/120-mile-detour-place-due-143253114.html)
 <!-- feed end -->
 
 ### Onstream
