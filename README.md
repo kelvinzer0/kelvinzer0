@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Does Japan's megaquake alert mean the 'big one' is coming?](https://www.yahoo.com/news/does-japans-megaquake-alert-mean-213655746.html)
 - Aug 09 - [British crocodile expert sentenced for sexually abusing, killing dozens of dogs: Reports](https://www.yahoo.com/news/british-crocodile-expert-sentenced-sexually-210552339.html)
-- Aug 09 - [GMC Sierra Police Chase Turns Chaotic Fast](https://autos.yahoo.com/gmc-sierra-police-chase-turns-203000812.html)
-- Aug 09 - [Idaho farmer goes viral after trading in his F-250 for a Cybertruck: 'It’s really fast'](https://www.yahoo.com/tech/idaho-farmer-goes-viral-trading-201221906.html)
-- Aug 09 - [What JD Vance did in Iraq, as told by the friend who served with him](https://www.yahoo.com/news/jd-vance-did-iraq-told-193338532.html)
+- Aug 09 - [Former President Gerald Ford once warned what would happen if a woman became president](https://www.yahoo.com/news/former-president-gerald-ford-once-185841280.html)
+- Aug 09 - [Reagan-appointed judge uses footnote to ding the Supreme Court’s Trump immunity ruling](https://www.yahoo.com/news/reagan-appointed-judge-uses-footnote-185144553.html)
+- Aug 09 - [Israel strike in south Lebanon kills Hamas commander](https://www.yahoo.com/news/lebanon-security-source-says-israel-165307465.html)
+- Aug 09 - [Iran set to carry out leader's order to 'harshly punish' Israel, Guards deputy chief says](https://www.yahoo.com/news/iran-leaders-order-harshly-punish-181926011.html)
 <!-- feed end -->
 
 ### Onstream
