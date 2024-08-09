@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Israel strike in south Lebanon kills Hamas commander](https://www.yahoo.com/news/lebanon-security-source-says-israel-165307465.html)
 - Aug 09 - [Iran leader's order to 'harshly punish' Israel will be carried out, Guards deputy chief says](https://www.yahoo.com/news/iran-leaders-order-harshly-punish-181926011.html)
-- Aug 09 - [Amanda Knox wasn't coerced but 'freely' accused a bar owner in roommate's murder, Italian court says](https://www.yahoo.com/news/amanda-knox-wasnt-coerced-freely-172342940.html)
-- Aug 09 - [Northern lights may be visible in US this weekend: Check the forecast in your area](https://www.yahoo.com/news/northern-lights-may-visible-us-171040848.html)
+- Aug 09 - [MAGA Chaos Ensues as Joe Rogan Refuses to Endorse Trump](https://www.yahoo.com/news/maga-chaos-ensues-joe-rogan-174446792.html)
+- Aug 09 - [Stellantis to lay off up to 2,450 factory workers as classic Ram production ends](https://finance.yahoo.com/news/stellantis-lay-off-2-450-171900884.html)
 - Aug 09 - [Panama offers safe passage to Venezuela's Maduro to allow for transition](https://www.yahoo.com/news/panama-offers-asylum-venezuelas-maduro-170735994.html)
+- Aug 09 - [Researchers discover potentially catastrophic exploit present in AMD chips for decades](https://www.yahoo.com/news/researchers-discover-potentially-catastrophic-exploit-present-in-amd-chips-for-decades-161541359.html)
 <!-- feed end -->
 
 ### Onstream
