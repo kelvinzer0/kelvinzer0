@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Ukraine’s surprise cross-border incursion seen as a tactical reply to Russia's grinding gains](https://www.yahoo.com/news/ukraine-surprise-cross-border-incursion-120508399.html)
 - Aug 09 - [Watch: Ukraine wipes out entire battalion inside Russia ‘in one of war’s bloodiest strikes’](https://www.yahoo.com/news/watch-russian-drives-past-trail-114519189.html)
-- Aug 09 - [Russia declares an emergency in Kursk, under attack by Ukraine. 11 killed in Russian strike on mall](https://www.yahoo.com/news/russia-declares-federal-emergency-border-104939320.html)
-- Aug 09 - [Fed president throws doubt onto September rate cut Wall Street is desperate for](https://finance.yahoo.com/news/fed-president-throws-doubt-onto-103346703.html)
-- Aug 09 - [Warren Buffett says income from these 2 investments will likely increase in the next decades](https://finance.yahoo.com/news/warren-buffett-says-income-2-101200189.html)
+- Aug 09 - [Japan's Kishida cancels Asia trip after scientists urge preparations for a possible 'megaquake'](https://www.yahoo.com/news/japans-kishida-cancels-asia-trip-130239804.html)
+- Aug 09 - [Ukraine’s surprise cross-border incursion seen as a tactical reply to Russia's grinding gains](https://www.yahoo.com/news/ukraine-surprise-cross-border-incursion-120508399.html)
+- Aug 09 - [Game-changing 'floating wall of wind' gets green light to move forward: 'An important milestone'](https://www.yahoo.com/tech/game-changing-floating-wall-wind-073000931.html)
+- Aug 09 - [I-15 SB lanes closed near Las Vegas Strip due to deadly freeway shooting: police](https://www.yahoo.com/news/lanes-blocked-along-15-near-045305774.html)
 <!-- feed end -->
 
 ### Onstream
