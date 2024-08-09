@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [3rd person in custody over foiled plot targeting now-canceled Taylor Swift shows in Vienna](https://www.yahoo.com/news/3rd-person-custody-over-foiled-085519316.html)
 - Aug 09 - [In Zimbabwe, schoolchildren face threats from animals. Now they are learning how to spot the dangers](https://www.yahoo.com/news/zimbabwe-schoolchildren-face-threats-animals-054051939.html)
-- Aug 09 - [Researchers develop 'holy grail' solution to fight invasive vampire species: 'Something nobody has ever done before'](https://www.yahoo.com/news/researchers-develop-holy-grail-solution-011500935.html)
-- Aug 09 - [Judge orders MyPillow mogul Mike Lindell to pay attorney fees to winner of 'Prove Mike Wrong' contest](https://www.yahoo.com/news/judge-orders-mypillow-mogul-mike-010126504.html)
-- Aug 09 - [California lawmaker switches party, criticizes Democratic leadership](https://www.yahoo.com/news/california-lawmaker-switches-party-criticizes-001749479.html)
-- Aug 08 - [Moody's downgrades Intel's senior unsecured rating](https://finance.yahoo.com/news/moodys-downgrades-intels-senior-unsecured-223746528.html)
+- Aug 09 - [Europe’s Auto Chipmakers Have a Deepening China Habit](https://finance.yahoo.com/news/europe-auto-chipmakers-deepening-china-040000021.html)
+- Aug 09 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/lifestyle/moms-support-trump-divided-family-031602108.html)
+- Aug 09 - [Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened](https://www.yahoo.com/news/trump-said-went-down-helicopter-024733517.html)
 <!-- feed end -->
 
 ### Onstream
