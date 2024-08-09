@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [Divers Accidentally Discovered an 18th-Century Pirate Ship Loaded With Priceless Loot](https://www.yahoo.com/news/divers-accidentally-discovered-18th-century-140000332.html)
+- Aug 09 - [White Dudes for Harris says it ‘broke’ Fox News after awkward segment where Jesse Watters tries to force co-host to wear merch](https://www.yahoo.com/news/white-dudes-harris-says-broke-133148376.html)
+- Aug 09 - [Tractor-trailer hauling windmill blade overturns after striking bridge on New England highway](https://www.yahoo.com/news/tractor-trailer-hauling-windmill-blade-134628479.html)
 - Aug 09 - [Watch: Ukraine wipes out entire battalion inside Russia ‘in one of war’s bloodiest strikes’](https://www.yahoo.com/news/watch-russian-drives-past-trail-114519189.html)
 - Aug 09 - [Japan's Kishida cancels Asia trip after scientists urge preparations for a possible 'megaquake'](https://www.yahoo.com/news/japans-kishida-cancels-asia-trip-130239804.html)
-- Aug 09 - [Ukraine’s surprise cross-border incursion seen as a tactical reply to Russia's grinding gains](https://www.yahoo.com/news/ukraine-surprise-cross-border-incursion-120508399.html)
-- Aug 09 - [Game-changing 'floating wall of wind' gets green light to move forward: 'An important milestone'](https://www.yahoo.com/tech/game-changing-floating-wall-wind-073000931.html)
-- Aug 09 - [I-15 SB lanes closed near Las Vegas Strip due to deadly freeway shooting: police](https://www.yahoo.com/news/lanes-blocked-along-15-near-045305774.html)
 <!-- feed end -->
 
 ### Onstream
