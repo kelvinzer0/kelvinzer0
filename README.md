@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/lifestyle/moms-support-trump-divided-family-031602108.html)
 - Aug 09 - [Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened](https://www.yahoo.com/news/trump-said-went-down-helicopter-024733517.html)
+- Aug 09 - [Judge orders MyPillow mogul Mike Lindell to pay attorney fees to winner of 'Prove Mike Wrong' contest](https://www.yahoo.com/news/judge-orders-mypillow-mogul-mike-010126504.html)
 - Aug 09 - [California lawmaker switches party, criticizes Democratic leadership](https://www.yahoo.com/news/california-lawmaker-switches-party-criticizes-001749479.html)
-- Aug 08 - [Columbia University deans resign after sending disparaging text messages with ‘antisemitic tropes’](https://www.yahoo.com/news/columbia-university-deans-resign-sending-224126234.html)
-- Aug 08 - [Bee swarm attacks California family hospitalizing 3 and killing 'spunky' family dog](https://www.yahoo.com/news/bee-swarm-attacks-california-family-224026959.html)
 - Aug 08 - [Moody's downgrades Intel's senior unsecured rating](https://finance.yahoo.com/news/moodys-downgrades-intels-senior-unsecured-223746528.html)
 <!-- feed end -->
 
