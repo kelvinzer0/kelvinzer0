@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Trump Wasn’t Lying About Near-Death Chopper Ride—But He Did Mix-Up Two Black Men](https://www.yahoo.com/news/trump-wasn-t-lying-near-142401062.html)
+- Aug 10 - [Cyber thieves made 5,100 purchases with Charlotte victims’ bank cards, feds say](https://www.yahoo.com/news/cyber-thieves-made-5-100-150120246.html)
+- Aug 10 - [Aliens probably exist – but there’s a terrifying reason why we’ve never met them](https://www.yahoo.com/entertainment/aliens-probably-exist-terrifying-reason-140000235.html)
+- Aug 10 - [2 Breakout Growth Stocks You Can Buy and Hold for the Next Decade](https://finance.yahoo.com/news/2-breakout-growth-stocks-buy-133700281.html)
 - Aug 10 - [Ukraine is striking targets hundreds of miles inside Russia for 3 key reasons, experts say](https://www.yahoo.com/news/ukraine-striking-targets-hundreds-miles-122215833.html)
-- Aug 10 - [Kamala Harris and Tim Walz's campaign tour poster looks like its for a concert. It's by design.](https://www.yahoo.com/entertainment/kamala-harris-and-tim-walzs-campaign-tour-poster-looks-like-its-for-a-concert-its-by-design-120003477.html)
-- Aug 10 - [An American Airlines passenger on an oversold flight stayed in Italy for an extra 3 nights to collect $3,550 in travel vouchers](https://www.yahoo.com/news/american-airlines-passenger-oversold-flight-093201584.html)
-- Aug 10 - [Susan Wojcicki, Former YouTube CEO and Influential Google Exec, Dies at 56](https://www.yahoo.com/news/susan-wojcicki-former-youtube-ceo-053944988.html)
+- Aug 10 - [Social Security's COLA Could Break a 32-Year Record in 2025. Will It?](https://finance.yahoo.com/news/social-securitys-cola-could-break-120600156.html)
 <!-- feed end -->
 
 ### Onstream
