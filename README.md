@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Russia launches air attack on Ukraine's Kyiv, mayor says](https://www.yahoo.com/news/russia-launches-air-attack-ukraines-215610195.html)
 - Aug 10 - [Biden’s Beach Snooze Roils GOP: Who’s Running the Country?](https://www.yahoo.com/news/biden-beach-snooze-roils-gop-210312422.html)
+- Aug 10 - [Disney expected to announce plans for its theme parks](https://finance.yahoo.com/news/disney-expected-announce-plans-theme-194614808.html)
 - Aug 10 - [Former California lawmaker Nate Holden says he was on the scary helicopter ride with Trump](https://www.yahoo.com/news/former-california-lawmaker-nate-holden-141843762.html)
-- Aug 10 - [Guy Mouths Off To A Trooper Who Just Loses It](https://autos.yahoo.com/guy-mouths-off-trooper-just-213000921.html)
-- Aug 10 - [We received internal Trump documents from ‘Robert.’ The campaign just confirmed it was hacked.](https://www.yahoo.com/news/trump-campaign-hacked-campaign-says-184139703.html)
-- Aug 10 - [5 Things That Will Skyrocket in Price This Fall](https://finance.yahoo.com/news/5-things-skyrocket-price-fall-180030840.html)
+- Aug 10 - [One man decided to take on Google Maps, 20 years later OpenStreetMap is still going strong](https://www.yahoo.com/news/one-man-decided-google-maps-160000289.html)
 <!-- feed end -->
 
 ### Onstream
