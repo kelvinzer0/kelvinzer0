@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [We received internal Trump documents from ‘Robert.’ The campaign just confirmed it was hacked.](https://www.yahoo.com/news/trump-campaign-hacked-campaign-says-184139703.html)
+- Aug 10 - [The health care industry is defying America’s slowing job market](https://finance.yahoo.com/news/industry-defying-america-slowing-job-170002192.html)
 - Aug 10 - [Trump stokes fears with ‘unconstitutional’ Harris talk](https://www.yahoo.com/news/trump-stokes-fears-unconstitutional-harris-160000703.html)
 - Aug 10 - [No-car Games: Los Angeles Olympic venues will only be accessible by public transportation](https://www.yahoo.com/news/no-car-games-los-angeles-143309855.html)
 - Aug 10 - [Aliens probably exist – but there’s a terrifying reason why we’ve never met them](https://www.yahoo.com/entertainment/aliens-probably-exist-terrifying-reason-140000235.html)
-- Aug 10 - [If You Have $1 Million in Retirement Savings, Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/1-million-retirement-savings-much-130015039.html)
-- Aug 10 - [This Nashville neighborhood among the most ‘up-and-coming’ in US: TravelMag](https://www.yahoo.com/lifestyle/nashville-neighborhood-among-most-coming-130000080.html)
 <!-- feed end -->
 
 ### Onstream
