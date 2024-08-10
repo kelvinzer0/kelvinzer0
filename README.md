@@ -60,12 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Coming to Cocoa: Aspiration Academy, a program focused on early-learning reading and 
-math](https://www.yahoo.com/news/coming-cocoa-aspiration-academy-program-090128874.html)
+- Aug 10 - [Nvidia's Stock Has Peaked, and the First Domino to Fall Will Only Exacerbate Its Sell-Off](https://finance.yahoo.com/news/nvidias-stock-peaked-first-domino-080600574.html)
 - Aug 10 - [Susan Wojcicki, Former YouTube CEO and Influential Google Exec, Dies at 56](https://www.yahoo.com/news/susan-wojcicki-former-youtube-ceo-053944988.html)
+- Aug 10 - [EF- 1 tornado touches down in Virginia, leaving path of destruction](https://www.yahoo.com/news/ef-1-tornado-touches-down-012530014.html)
+- Aug 10 - [Large geological feature known as the 'Double Arch' and the 'Toilet Bowl' collapses in southern Utah](https://www.yahoo.com/news/large-geological-feature-known-double-010718074.html)
 - Aug 10 - [Tesla stops taking orders for cheapest Cybertruck, offers $100,000 version now](https://finance.yahoo.com/news/tesla-stops-taking-orders-cheapest-002525641.html)
-- Aug 10 - [Listen: Cops Scramble to Secure Hospital for Biden Health Scare](https://www.yahoo.com/news/listen-cops-scramble-secure-hospital-002336745.html)
-- Aug 09 - [US ambassador confirms Mexican drug lord Ismael 'El Mayo' Zambada was brought to US against his will](https://www.yahoo.com/news/us-ambassador-confirms-mexican-drug-231237605.html)
 <!-- feed end -->
 
 ### Onstream
