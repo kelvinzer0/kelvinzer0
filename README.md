@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Canada paid for extra police during Harry and Meghan visit](https://www.yahoo.com/lifestyle/canada-paid-extra-police-during-162155370.html)
+- Aug 10 - [Susan Wojcicki, Former YouTube CEO and Influential Google Exec, Dies at 56](https://www.yahoo.com/news/susan-wojcicki-former-youtube-ceo-053944988.html)
 - Aug 10 - [Trump Dinner Guest Nick Fuentes Declares ‘War’ on the Ex-Prez](https://www.yahoo.com/news/trump-dinner-guest-nick-fuentes-034117393.html)
-- Aug 10 - [Tri-Cities planetarium director with a passion for education suffers fatal medical event](https://www.yahoo.com/news/tri-cities-planetarium-director-passion-011349988.html)
 - Aug 10 - [Tesla stops taking orders for cheapest Cybertruck, offers $100,000 version now](https://finance.yahoo.com/news/tesla-stops-taking-orders-cheapest-002525641.html)
 - Aug 09 - [US ambassador confirms Mexican drug lord Ismael 'El Mayo' Zambada was brought to US against his will](https://www.yahoo.com/news/us-ambassador-confirms-mexican-drug-231237605.html)
-- Aug 09 - [Near mid-air collision and safety violations led to fatal crash of Marine Corps Osprey in Australia](https://www.yahoo.com/news/near-mid-air-collision-safety-222854958.html)
 <!-- feed end -->
 
 ### Onstream
