@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Jordan will not be a battlefield for Iran or Israel, foreign minister warns](https://www.yahoo.com/news/jordan-not-battlefield-iran-israel-192705397.html)
 - Aug 10 - [We received internal Trump documents from ‘Robert.’ The campaign just confirmed it was hacked.](https://www.yahoo.com/news/trump-campaign-hacked-campaign-says-184139703.html)
-- Aug 10 - [The health care industry is defying America’s slowing job market](https://finance.yahoo.com/news/industry-defying-america-slowing-job-170002192.html)
-- Aug 10 - [Trump stokes fears with ‘unconstitutional’ Harris talk](https://www.yahoo.com/news/trump-stokes-fears-unconstitutional-harris-160000703.html)
+- Aug 10 - [Jim Cramer Says, 'We Saw This Nonsense Many Times Back In The 90s,' Must Stop Saying Every Tick Down Is From A Recession Scare'](https://finance.yahoo.com/news/jim-cramer-says-saw-nonsense-154514515.html)
 - Aug 10 - [No-car Games: Los Angeles Olympic venues will only be accessible by public transportation](https://www.yahoo.com/news/no-car-games-los-angeles-143309855.html)
 - Aug 10 - [Aliens probably exist – but there’s a terrifying reason why we’ve never met them](https://www.yahoo.com/entertainment/aliens-probably-exist-terrifying-reason-140000235.html)
 <!-- feed end -->
