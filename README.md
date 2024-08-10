@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Nvidia's Stock Has Peaked, and the First Domino to Fall Will Only Exacerbate Its Sell-Off](https://finance.yahoo.com/news/nvidias-stock-peaked-first-domino-080600574.html)
+- Aug 10 - [Sierra Leone court sentences soldiers to long jail terms for failed coup](https://www.yahoo.com/news/sierra-leone-court-sentences-soldiers-105151903.html)
 - Aug 10 - [Susan Wojcicki, Former YouTube CEO and Influential Google Exec, Dies at 56](https://www.yahoo.com/news/susan-wojcicki-former-youtube-ceo-053944988.html)
 - Aug 10 - [EF- 1 tornado touches down in Virginia, leaving path of destruction](https://www.yahoo.com/news/ef-1-tornado-touches-down-012530014.html)
 - Aug 10 - [Large geological feature known as the 'Double Arch' and the 'Toilet Bowl' collapses in southern Utah](https://www.yahoo.com/news/large-geological-feature-known-double-010718074.html)
