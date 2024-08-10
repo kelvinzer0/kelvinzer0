@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [French Left celebrates gender-row boxer’s victory as defeat of ‘fascism’](https://www.yahoo.com/news/french-left-celebrates-gender-row-161329190.html)
+- Aug 10 - [No-car Games: Los Angeles Olympic venues will only be accessible by public transportation](https://www.yahoo.com/news/no-car-games-los-angeles-143309855.html)
 - Aug 10 - [Aliens probably exist – but there’s a terrifying reason why we’ve never met them](https://www.yahoo.com/entertainment/aliens-probably-exist-terrifying-reason-140000235.html)
+- Aug 10 - [Park Ridge BMO Harris Bank robbed at gunpoint; police seek suspect](https://www.yahoo.com/news/park-ridge-bmo-harris-bank-132723923.html)
+- Aug 10 - [If You Have $1 Million in Retirement Savings, Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/1-million-retirement-savings-much-130015039.html)
 - Aug 10 - [This Nashville neighborhood among the most ‘up-and-coming’ in US: TravelMag](https://www.yahoo.com/lifestyle/nashville-neighborhood-among-most-coming-130000080.html)
-- Aug 10 - [Ukraine is striking targets hundreds of miles inside Russia for 3 key reasons, experts say](https://www.yahoo.com/news/ukraine-striking-targets-hundreds-miles-122215833.html)
-- Aug 10 - [Kamala Harris and Tim Walz's campaign tour poster looks like its for a concert. It's by design.](https://www.yahoo.com/entertainment/kamala-harris-and-tim-walzs-campaign-tour-poster-looks-like-its-for-a-concert-its-by-design-120003477.html)
 <!-- feed end -->
 
 ### Onstream
