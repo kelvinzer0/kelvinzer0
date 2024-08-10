@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [US Coast Guard patrol spots Russian military ship off Alaska islands](https://www.yahoo.com/news/us-coast-guard-patrol-spots-221938531.html)
-- Aug 09 - [Suburban school worker pleads guilty to stealing $1.5M worth of chicken wings from district](https://www.yahoo.com/news/suburban-school-worker-pleads-guilty-213740930.html)
+- Aug 10 - [Tesla stops taking orders for cheapest Cybertruck, offers $100,000 version now](https://finance.yahoo.com/news/tesla-stops-taking-orders-cheapest-002525641.html)
+- Aug 10 - [Listen: Cops Scramble to Secure Hospital for Biden Health Scare](https://www.yahoo.com/news/listen-cops-scramble-secure-hospital-002336745.html)
+- Aug 09 - ['We have the flight records': Trump insists that he was on helicopter with Willie Brown](https://www.yahoo.com/news/know-willie-brown-very-well-230959367.html)
 - Aug 09 - [British crocodile expert sentenced for sexually abusing, killing dozens of dogs: Reports](https://www.yahoo.com/news/british-crocodile-expert-sentenced-sexually-210552339.html)
 - Aug 09 - [I’m a Retired Boomer: Here Are 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
-- Aug 09 - [What JD Vance did in Iraq, as told by the friend who served with him](https://www.yahoo.com/news/jd-vance-did-iraq-told-193338532.html)
 <!-- feed end -->
 
 ### Onstream
