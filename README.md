@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 10 - [Trump Dinner Guest Nick Fuentes Declares ‘War’ on the Ex-Prez](https://www.yahoo.com/news/trump-dinner-guest-nick-fuentes-034117393.html)
-- Aug 10 - [Large geological feature known as the 'Double Arch' and the 'Toilet Bowl' collapses in southern Utah](https://www.yahoo.com/news/large-geological-feature-known-double-010718074.html)
+- Aug 10 - [Tri-Cities planetarium director with a passion for education suffers fatal medical event](https://www.yahoo.com/news/tri-cities-planetarium-director-passion-011349988.html)
 - Aug 10 - [Tesla stops taking orders for cheapest Cybertruck, offers $100,000 version now](https://finance.yahoo.com/news/tesla-stops-taking-orders-cheapest-002525641.html)
-- Aug 10 - [Alexis Bellino’s Divorce Settlement Details Revealed: Everything We Know](https://www.yahoo.com/entertainment/alexis-bellino-divorce-settlement-details-000000614.html)
 - Aug 09 - [US ambassador confirms Mexican drug lord Ismael 'El Mayo' Zambada was brought to US against his will](https://www.yahoo.com/news/us-ambassador-confirms-mexican-drug-231237605.html)
+- Aug 09 - [Near mid-air collision and safety violations led to fatal crash of Marine Corps Osprey in Australia](https://www.yahoo.com/news/near-mid-air-collision-safety-222854958.html)
 <!-- feed end -->
 
 ### Onstream
