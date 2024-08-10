@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Tesla stops taking orders for cheapest Cybertruck, offers $100,000 version now](https://finance.yahoo.com/news/tesla-stops-taking-orders-cheapest-002525641.html)
+- Aug 10 - [Deadly crash on Sagamore Bridge snarls traffic heading to Cape Cod](https://www.yahoo.com/news/deadly-crash-sagamore-bridge-snarls-005815879.html)
 - Aug 10 - [Listen: Cops Scramble to Secure Hospital for Biden Health Scare](https://www.yahoo.com/news/listen-cops-scramble-secure-hospital-002336745.html)
+- Aug 09 - [US ambassador confirms Mexican drug lord Ismael 'El Mayo' Zambada was brought to US against his will](https://www.yahoo.com/news/us-ambassador-confirms-mexican-drug-231237605.html)
+- Aug 09 - [Community members mourn loss of Arkansas Drug Task Force agent who leaves behind infant daughter](https://www.yahoo.com/news/community-members-mourn-loss-arkansas-231102103.html)
 - Aug 09 - ['We have the flight records': Trump insists that he was on helicopter with Willie Brown](https://www.yahoo.com/news/know-willie-brown-very-well-230959367.html)
-- Aug 09 - [British crocodile expert sentenced for sexually abusing, killing dozens of dogs: Reports](https://www.yahoo.com/news/british-crocodile-expert-sentenced-sexually-210552339.html)
-- Aug 09 - [I’m a Retired Boomer: Here Are 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
 <!-- feed end -->
 
 ### Onstream
