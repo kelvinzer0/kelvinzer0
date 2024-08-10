@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Trump Dinner Guest Nick Fuentes Declares ‘War’ on the Ex-Prez](https://www.yahoo.com/news/trump-dinner-guest-nick-fuentes-034117393.html)
 - Aug 10 - [Large geological feature known as the 'Double Arch' and the 'Toilet Bowl' collapses in southern Utah](https://www.yahoo.com/news/large-geological-feature-known-double-010718074.html)
-- Aug 09 - [Community members mourn loss of Arkansas Drug Task Force agent who leaves behind infant daughter](https://www.yahoo.com/news/community-members-mourn-loss-arkansas-231102103.html)
-- Aug 09 - ['We have the flight records': Trump insists that he was on helicopter with Willie Brown](https://www.yahoo.com/news/know-willie-brown-very-well-230959367.html)
-- Aug 09 - [I’m a Retired Boomer: Here Are 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
-- Aug 09 - [Tornado watch issued for parts of Massachusetts](https://www.yahoo.com/news/tornado-watch-issued-parts-massachusetts-174813531.html)
+- Aug 10 - [Armed Louisiana man leads Oak Brook police on high-speed chase in stolen vehicle: prosecutors](https://www.yahoo.com/news/armed-louisiana-man-leads-oak-002955385.html)
+- Aug 10 - [Portland police announce ‘one of the largest single-day’ drug busts in its history](https://www.yahoo.com/news/portland-police-announce-one-largest-001847378.html)
+- Aug 10 - [Alexis Bellino’s Divorce Settlement Details Revealed: Everything We Know](https://www.yahoo.com/entertainment/alexis-bellino-divorce-settlement-details-000000614.html)
 <!-- feed end -->
 
 ### Onstream
