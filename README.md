@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Trump Wasn’t Lying About Near-Death Chopper Ride—But He Did Mix-Up Two Black Men](https://www.yahoo.com/news/trump-wasn-t-lying-near-142401062.html)
 - Aug 10 - [Ukraine is striking targets hundreds of miles inside Russia for 3 key reasons, experts say](https://www.yahoo.com/news/ukraine-striking-targets-hundreds-miles-122215833.html)
 - Aug 10 - [Kamala Harris and Tim Walz's campaign tour poster looks like its for a concert. It's by design.](https://www.yahoo.com/entertainment/kamala-harris-and-tim-walzs-campaign-tour-poster-looks-like-its-for-a-concert-its-by-design-120003477.html)
-- Aug 10 - [Watch Police Hold Nothing Back To Chase Down A Cop Killer](https://autos.yahoo.com/watch-police-hold-nothing-back-203000466.html)
-- Aug 10 - [Promises of happier, healthier living drove tourists to Costa Rica in droves. Now, locals say the Blue Zone lifestyle is dying out.](https://www.yahoo.com/lifestyle/promises-happier-healthier-living-drove-110902437.html)
-- Aug 10 - [Nvidia's Stock Has Peaked, and the First Domino to Fall Will Only Exacerbate Its Sell-Off](https://finance.yahoo.com/news/nvidias-stock-peaked-first-domino-080600574.html)
+- Aug 10 - [An American Airlines passenger on an oversold flight stayed in Italy for an extra 3 nights to collect $3,550 in travel vouchers](https://www.yahoo.com/news/american-airlines-passenger-oversold-flight-093201584.html)
+- Aug 10 - [Susan Wojcicki, Former YouTube CEO and Influential Google Exec, Dies at 56](https://www.yahoo.com/news/susan-wojcicki-former-youtube-ceo-053944988.html)
 <!-- feed end -->
 
 ### Onstream
