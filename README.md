@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 10 - [Trump Dinner Guest Nick Fuentes Declares ‘War’ on the Ex-Prez](https://www.yahoo.com/news/trump-dinner-guest-nick-fuentes-034117393.html)
 - Aug 10 - [Large geological feature known as the 'Double Arch' and the 'Toilet Bowl' collapses in southern Utah](https://www.yahoo.com/news/large-geological-feature-known-double-010718074.html)
-- Aug 10 - [Armed Louisiana man leads Oak Brook police on high-speed chase in stolen vehicle: prosecutors](https://www.yahoo.com/news/armed-louisiana-man-leads-oak-002955385.html)
-- Aug 10 - [Portland police announce ‘one of the largest single-day’ drug busts in its history](https://www.yahoo.com/news/portland-police-announce-one-largest-001847378.html)
+- Aug 10 - [Tesla stops taking orders for cheapest Cybertruck, offers $100,000 version now](https://finance.yahoo.com/news/tesla-stops-taking-orders-cheapest-002525641.html)
 - Aug 10 - [Alexis Bellino’s Divorce Settlement Details Revealed: Everything We Know](https://www.yahoo.com/entertainment/alexis-bellino-divorce-settlement-details-000000614.html)
+- Aug 09 - [US ambassador confirms Mexican drug lord Ismael 'El Mayo' Zambada was brought to US against his will](https://www.yahoo.com/news/us-ambassador-confirms-mexican-drug-231237605.html)
 <!-- feed end -->
 
 ### Onstream
