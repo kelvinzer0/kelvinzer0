@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Sierra Leone court sentences soldiers to long jail terms for failed coup](https://www.yahoo.com/news/sierra-leone-court-sentences-soldiers-105151903.html)
+- Aug 10 - [Southport victim’s older sister saw attack and escaped, says family](https://www.yahoo.com/news/southport-victim-older-sister-saw-121855188.html)
+- Aug 10 - [SilverCrest Metals Inc. Earnings Missed Analyst Estimates: Here's What Analysts Are Forecasting Now](https://finance.yahoo.com/news/silvercrest-metals-inc-earnings-missed-121500979.html)
+- Aug 10 - [Kamala Harris and Tim Walz's campaign tour poster looks like its for a concert. It's by design.](https://www.yahoo.com/entertainment/kamala-harris-and-tim-walzs-campaign-tour-poster-looks-like-its-for-a-concert-its-by-design-120003477.html)
+- Aug 10 - [Promises of happier, healthier living drove tourists to Costa Rica in droves. Now, locals say the Blue Zone lifestyle is dying out.](https://www.yahoo.com/lifestyle/promises-happier-healthier-living-drove-110902437.html)
 - Aug 10 - [Susan Wojcicki, Former YouTube CEO and Influential Google Exec, Dies at 56](https://www.yahoo.com/news/susan-wojcicki-former-youtube-ceo-053944988.html)
-- Aug 10 - [EF- 1 tornado touches down in Virginia, leaving path of destruction](https://www.yahoo.com/news/ef-1-tornado-touches-down-012530014.html)
-- Aug 10 - [Large geological feature known as the 'Double Arch' and the 'Toilet Bowl' collapses in southern Utah](https://www.yahoo.com/news/large-geological-feature-known-double-010718074.html)
-- Aug 10 - [Tesla stops taking orders for cheapest Cybertruck, offers $100,000 version now](https://finance.yahoo.com/news/tesla-stops-taking-orders-cheapest-002525641.html)
 <!-- feed end -->
 
 ### Onstream
