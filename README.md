@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Project 2025 wants to reach into your bedroom](https://www.yahoo.com/news/project-2025-wants-reach-bedroom-183128398.html)
+- Aug 11 - [A millennial couple who make $250,000 say they can't find a home in their budget: 'We refuse to become house-poor'](https://finance.yahoo.com/news/millennial-couple-250-000-cant-180302580.html)
+- Aug 11 - [State Farm Is Getting Sued For Cheaping Out On Repairs](https://autos.yahoo.com/state-farm-getting-sued-cheaping-120000080.html)
 - Aug 11 - [Trump’s Anger Out of Control as Poll Numbers Keep Cratering](https://www.yahoo.com/news/trump-advisers-deeply-rattled-spiraling-161207179.html)
 - Aug 11 - [US families are 'woefully underprepared' for the great wealth transfer](https://finance.yahoo.com/news/us-families-are-woefully-underprepared-for-the-great-wealth-transfer-154037080.html)
-- Aug 11 - [‘Manipulated’ Trump Blows Up Billionaire Megadonor’s Phone With Angry Texts](https://www.yahoo.com/news/manipulated-trump-blows-billionaire-megadonor-152517448.html)
-- Aug 11 - [Schumer says he will work to block any effort in the Senate to significantly cut the CDC's budget](https://www.yahoo.com/news/schumer-says-block-effort-senate-140952076.html)
-- Aug 11 - [India markets regulator asks investors to remain calm on Hindenburg allegations against chief](https://finance.yahoo.com/news/india-markets-regulator-asks-investors-140724446.html)
 <!-- feed end -->
 
 ### Onstream
