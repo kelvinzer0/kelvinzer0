@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Autonomous vehicles to be 'huge tailwind' for rideshares: Lyft CEO](https://finance.yahoo.com/video/autonomous-vehicles-huge-tailwind-rideshares-130012598.html)
-- Aug 11 - [Prince Harry Urged to Apologize for Cocaine Use During Colombia Trip](https://www.yahoo.com/entertainment/prince-harry-urged-apologize-cocaine-124211667.html)
+- Aug 11 - [Death toll from Uganda rubbish dump collapse reaches 18](https://www.yahoo.com/news/death-toll-uganda-rubbish-dump-131643573.html)
+- Aug 11 - [A reckoning is coming for Florida's condo owners as buildings face millions in repairs](https://www.yahoo.com/news/reckoning-coming-floridas-condo-owners-120000653.html)
 - Aug 11 - [Eight cancer doctors among dead in Brazil plane crash – as seven others changed flight at last minute](https://www.yahoo.com/news/eight-cancer-doctors-among-dead-083324765.html)
-- Aug 11 - [19 Signs From The Past Week That I Guarantee Are Funnier Than Most People You Know](https://www.yahoo.com/entertainment/19-signs-past-week-guarantee-111602972.html)
-- Aug 11 - [A fenced lot in Salem has dozens of silver Chargers and Durangos. Why is that?](https://www.yahoo.com/news/fenced-lot-salem-dozens-silver-110118925.html)
+- Aug 11 - [Lexington megachurch launches a fourth location in an area poised for growth](https://www.yahoo.com/news/lexington-megachurch-launches-fourth-location-110000276.html)
+- Aug 11 - [As flood waters swallow neighborhoods, frustrated Sarasota residents blame development](https://www.yahoo.com/news/flood-waters-swallow-neighborhoods-frustrated-080133657.html)
 <!-- feed end -->
 
 ### Onstream
