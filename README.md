@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Bill Gates And Warren Buffett Have Been Friends For Decades. But Rising Tensions Now Threaten Their Philanthropic Partnership](https://finance.yahoo.com/news/bill-gates-warren-buffett-friends-201514188.html)
+- Aug 11 - [The alarming world of ‘Project 2025’ training videos featuring Trump officials and allies](https://www.yahoo.com/news/alarming-world-project-2025-training-202702504.html)
+- Aug 11 - [House explosion in Maryland kills one, damages surrounding neighborhood](https://www.yahoo.com/news/house-explosion-maryland-kills-one-201649416.html)
 - Aug 11 - [Elon Musk brands Humza Yousaf a ‘super racist scumbag’](https://www.yahoo.com/news/elon-musk-brands-humza-yousaf-195822769.html)
-- Aug 11 - [Browns' plans for move to new dome stadium hits snag as county backs city's renovation proposal](https://www.yahoo.com/news/browns-plans-move-dome-stadium-192825542.html)
+- Aug 11 - [Bank of America CEO says research team ‘does not have any recession predicted anymore’](https://finance.yahoo.com/news/bank-america-ceo-says-research-191825409.html)
 - Aug 11 - [Project 2025 wants to reach into your bedroom](https://www.yahoo.com/news/project-2025-wants-reach-bedroom-183128398.html)
-- Aug 11 - [Gen AI is real and 'its magical': SoundHound CEO](https://finance.yahoo.com/video/gen-ai-real-magical-soundhound-170050065.html)
 <!-- feed end -->
 
 ### Onstream
