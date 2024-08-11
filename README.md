@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Trump spreads false conspiracy theory about Harris’ Detroit crowd size](https://www.yahoo.com/news/trump-spreads-false-conspiracy-theory-215554714.html)
+- Aug 11 - [Man Attacks Teens In Florida Gas Station Road Rage Incident](https://autos.yahoo.com/man-attacks-teens-florida-gas-220000329.html)
+- Aug 11 - [One SpaceX launch scrubbed, another still a go](https://www.yahoo.com/news/one-spacex-launch-scrubbed-another-211308342.html)
 - Aug 11 - [The alarming world of ‘Project 2025’ training videos featuring Trump officials and allies](https://www.yahoo.com/news/alarming-world-project-2025-training-202702504.html)
 - Aug 11 - [House explosion in Maryland kills one, damages surrounding neighborhood](https://www.yahoo.com/news/house-explosion-maryland-kills-one-201649416.html)
-- Aug 11 - [Elon Musk brands Humza Yousaf a ‘super racist scumbag’](https://www.yahoo.com/news/elon-musk-brands-humza-yousaf-195822769.html)
-- Aug 11 - [Bank of America CEO says research team ‘does not have any recession predicted anymore’](https://finance.yahoo.com/news/bank-america-ceo-says-research-191825409.html)
-- Aug 11 - [Project 2025 wants to reach into your bedroom](https://www.yahoo.com/news/project-2025-wants-reach-bedroom-183128398.html)
 <!-- feed end -->
 
 ### Onstream
