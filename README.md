@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Bill Gates And Warren Buffett Have Been Friends For Decades. But Rising Tensions Now Threaten Their Philanthropic Partnership](https://finance.yahoo.com/news/bill-gates-warren-buffett-friends-201514188.html)
+- Aug 11 - [Elon Musk brands Humza Yousaf a ‘super racist scumbag’](https://www.yahoo.com/news/elon-musk-brands-humza-yousaf-195822769.html)
+- Aug 11 - [Browns' plans for move to new dome stadium hits snag as county backs city's renovation proposal](https://www.yahoo.com/news/browns-plans-move-dome-stadium-192825542.html)
 - Aug 11 - [Project 2025 wants to reach into your bedroom](https://www.yahoo.com/news/project-2025-wants-reach-bedroom-183128398.html)
-- Aug 11 - [A millennial couple who make $250,000 say they can't find a home in their budget: 'We refuse to become house-poor'](https://finance.yahoo.com/news/millennial-couple-250-000-cant-180302580.html)
-- Aug 11 - [State Farm Is Getting Sued For Cheaping Out On Repairs](https://autos.yahoo.com/state-farm-getting-sued-cheaping-120000080.html)
-- Aug 11 - [Trump’s Anger Out of Control as Poll Numbers Keep Cratering](https://www.yahoo.com/news/trump-advisers-deeply-rattled-spiraling-161207179.html)
-- Aug 11 - [US families are 'woefully underprepared' for the great wealth transfer](https://finance.yahoo.com/news/us-families-are-woefully-underprepared-for-the-great-wealth-transfer-154037080.html)
+- Aug 11 - [Gen AI is real and 'its magical': SoundHound CEO](https://finance.yahoo.com/video/gen-ai-real-magical-soundhound-170050065.html)
 <!-- feed end -->
 
 ### Onstream
