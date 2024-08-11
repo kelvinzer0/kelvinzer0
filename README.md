@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 11 - [US colleges are cutting majors and slashing programs after years of putting it off](https://www.yahoo.com/news/us-colleges-cutting-majors-slashing-040120430.html)
-- Aug 11 - [Austin Pride meets with Palestinian advocates, commits to steps forward](https://www.yahoo.com/news/austin-pride-meets-palestinian-advocates-013517913.html)
 - Aug 10 - [Celine Dion Sinks Trump Campaign's Use Of Iconic Song With 4-Word Question](https://www.yahoo.com/news/celine-dion-sinks-trump-campaigns-233259752.html)
+- Aug 10 - [Yikes! Biggest slithering Burmese pythons caught in Florida Python Challenge](https://www.yahoo.com/news/yikes-biggest-slithering-burmese-pythons-225454570.html)
 - Aug 10 - [Father, 4-year-old son die in Russian air attack on Kyiv region, Ukraine says](https://www.yahoo.com/news/russia-launches-air-attack-ukraines-215610195.html)
-- Aug 10 - [Biden’s Beach Snooze Roils GOP: Who’s Running the Country?](https://www.yahoo.com/news/biden-beach-snooze-roils-gop-210312422.html)
+- Aug 10 - [Jordan will not be a battlefield for Iran or Israel, foreign minister warns](https://www.yahoo.com/news/jordan-not-battlefield-iran-israel-192705397.html)
 <!-- feed end -->
 
 ### Onstream
