@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Death toll from Uganda rubbish dump collapse reaches 18](https://www.yahoo.com/news/death-toll-uganda-rubbish-dump-131643573.html)
-- Aug 11 - [A reckoning is coming for Florida's condo owners as buildings face millions in repairs](https://www.yahoo.com/news/reckoning-coming-floridas-condo-owners-120000653.html)
-- Aug 11 - [Eight cancer doctors among dead in Brazil plane crash – as seven others changed flight at last minute](https://www.yahoo.com/news/eight-cancer-doctors-among-dead-083324765.html)
-- Aug 11 - [Lexington megachurch launches a fourth location in an area poised for growth](https://www.yahoo.com/news/lexington-megachurch-launches-fourth-location-110000276.html)
-- Aug 11 - [As flood waters swallow neighborhoods, frustrated Sarasota residents blame development](https://www.yahoo.com/news/flood-waters-swallow-neighborhoods-frustrated-080133657.html)
+- Aug 11 - [Is Pfizer Stock a Buy Now After Earnings?](https://finance.yahoo.com/news/pfizer-stock-buy-now-earnings-141500350.html)
+- Aug 11 - [Schumer says he will work to block any effort in the Senate to significantly cut the CDC's budget](https://www.yahoo.com/news/schumer-says-block-effort-senate-140952076.html)
+- Aug 11 - [No water, no power, hordes of birds: who will buy San Francisco’s $25m private island?](https://finance.yahoo.com/news/no-water-no-power-hordes-140015894.html)
+- Aug 11 - [Joe Biden Tells ‘CBS Sunday Morning’ That He Thought Staying In 2024 Race Would Be “A Real Distraction” To Effort To Defeat Donald Trump](https://www.yahoo.com/news/joe-biden-tells-cbs-sunday-135603935.html)
+- Aug 11 - [Navy SEALs dropped in on a nuclear-powered submarine in the Pacific, drilling for a higher-end fight](https://www.yahoo.com/news/navy-seals-dropped-nuclear-powered-122101302.html)
 <!-- feed end -->
 
 ### Onstream
