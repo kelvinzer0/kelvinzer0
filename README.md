@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Zelensky: North Korean missile likely killed father and son near Kiev](https://www.yahoo.com/news/zelensky-north-korean-missile-likely-114130103.html)
+- Aug 11 - [Autonomous vehicles to be 'huge tailwind' for rideshares: Lyft CEO](https://finance.yahoo.com/video/autonomous-vehicles-huge-tailwind-rideshares-130012598.html)
+- Aug 11 - [Prince Harry Urged to Apologize for Cocaine Use During Colombia Trip](https://www.yahoo.com/entertainment/prince-harry-urged-apologize-cocaine-124211667.html)
 - Aug 11 - [Eight cancer doctors among dead in Brazil plane crash – as seven others changed flight at last minute](https://www.yahoo.com/news/eight-cancer-doctors-among-dead-083324765.html)
 - Aug 11 - [19 Signs From The Past Week That I Guarantee Are Funnier Than Most People You Know](https://www.yahoo.com/entertainment/19-signs-past-week-guarantee-111602972.html)
-- Aug 11 - [Girl, 3, and boy, 4, confirmed dead in Brazilian plane crash as rescuers retrieve bodies](https://www.yahoo.com/news/girl-3-boy-4-confirmed-104915781.html)
-- Aug 11 - [Warren Buffett’s sale of 510 million Apple shares will go down as one of the best bets of his career](https://finance.yahoo.com/news/warren-buffett-sale-510-million-090000768.html)
+- Aug 11 - [A fenced lot in Salem has dozens of silver Chargers and Durangos. Why is that?](https://www.yahoo.com/news/fenced-lot-salem-dozens-silver-110118925.html)
 <!-- feed end -->
 
 ### Onstream
