@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Is Pfizer Stock a Buy Now After Earnings?](https://finance.yahoo.com/news/pfizer-stock-buy-now-earnings-141500350.html)
-- Aug 11 - [Schumer says he will work to block any effort in the Senate to significantly cut the CDC's budget](https://www.yahoo.com/news/schumer-says-block-effort-senate-140952076.html)
-- Aug 11 - [No water, no power, hordes of birds: who will buy San Francisco’s $25m private island?](https://finance.yahoo.com/news/no-water-no-power-hordes-140015894.html)
-- Aug 11 - [Joe Biden Tells ‘CBS Sunday Morning’ That He Thought Staying In 2024 Race Would Be “A Real Distraction” To Effort To Defeat Donald Trump](https://www.yahoo.com/news/joe-biden-tells-cbs-sunday-135603935.html)
-- Aug 11 - [Navy SEALs dropped in on a nuclear-powered submarine in the Pacific, drilling for a higher-end fight](https://www.yahoo.com/news/navy-seals-dropped-nuclear-powered-122101302.html)
+- Aug 11 - [31 Hilarious Tweets From Just This Weekend](https://www.yahoo.com/entertainment/31-hilarious-tweets-just-weekend-155008418.html)
+- Aug 11 - [Catch the Perseid meteor shower at its peak late tonight into tomorrow](https://www.yahoo.com/news/catch-the-perseid-meteor-shower-at-its-peak-late-tonight-into-tomorrow-153441606.html)
+- Aug 11 - [‘Manipulated’ Trump Blows Up Billionaire Megadonor’s Phone With Angry Texts](https://www.yahoo.com/news/manipulated-trump-blows-billionaire-megadonor-152517448.html)
+- Aug 11 - [31 Cities Where Luxury Home Values Are Soaring](https://finance.yahoo.com/news/31-cities-where-luxury-home-140412022.html)
+- Aug 11 - [‘I was freed in the prison swap – but I would have stayed in Russia if I could’](https://www.yahoo.com/news/freed-prison-swap-stayed-russia-145337597.html)
 <!-- feed end -->
 
 ### Onstream
