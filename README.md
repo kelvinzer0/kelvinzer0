@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 11 - [Eight cancer doctors among dead in Brazil plane crash – as seven others changed flight at last minute](https://www.yahoo.com/news/eight-cancer-doctors-among-dead-083324765.html)
-- Aug 11 - ["I couldn't afford to run a high street barbers - so I set up a shop in my garden"](https://www.yahoo.com/news/couldnt-afford-run-high-street-083130140.html)
 - Aug 10 - [Celine Dion Sinks Trump Campaign's Use Of Iconic Song With 4-Word Question](https://www.yahoo.com/news/celine-dion-sinks-trump-campaigns-233259752.html)
-- Aug 10 - [Father, 4-year-old son die in Russian air attack on Kyiv region, Ukraine says](https://www.yahoo.com/news/russia-launches-air-attack-ukraines-215610195.html)
-- Aug 10 - [OKC plane crash victims identified as a military veteran, his two sons and pilot](https://www.yahoo.com/news/okc-plane-crash-victims-identified-213945046.html)
+- Aug 10 - [Biden’s Beach Snooze Roils GOP: Who’s Running the Country?](https://www.yahoo.com/news/biden-beach-snooze-roils-gop-210312422.html)
+- Aug 10 - [Former California lawmaker Nate Holden says he was on the scary helicopter ride with Trump](https://www.yahoo.com/news/former-california-lawmaker-nate-holden-141843762.html)
+- Aug 10 - [Jordan will not be a battlefield for Iran or Israel, foreign minister warns](https://www.yahoo.com/news/jordan-not-battlefield-iran-israel-192705397.html)
 <!-- feed end -->
 
 ### Onstream
