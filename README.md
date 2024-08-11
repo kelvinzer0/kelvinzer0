@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 11 - [US colleges are cutting majors and slashing programs after years of putting it off](https://www.yahoo.com/news/us-colleges-cutting-majors-slashing-040120430.html)
 - Aug 10 - [Celine Dion Sinks Trump Campaign's Use Of Iconic Song With 4-Word Question](https://www.yahoo.com/news/celine-dion-sinks-trump-campaigns-233259752.html)
 - Aug 10 - [Father, 4-year-old son die in Russian air attack on Kyiv region, Ukraine says](https://www.yahoo.com/news/russia-launches-air-attack-ukraines-215610195.html)
-- Aug 10 - [Jordan will not be a battlefield for Iran or Israel, foreign minister warns](https://www.yahoo.com/news/jordan-not-battlefield-iran-israel-192705397.html)
-- Aug 10 - [Trump stokes fears with ‘unconstitutional’ Harris talk](https://www.yahoo.com/news/trump-stokes-fears-unconstitutional-harris-160000703.html)
+- Aug 10 - [Biden’s Beach Snooze Roils GOP: Who’s Running the Country?](https://www.yahoo.com/news/biden-beach-snooze-roils-gop-210312422.html)
+- Aug 10 - [Former California lawmaker Nate Holden says he was on the scary helicopter ride with Trump](https://www.yahoo.com/news/former-california-lawmaker-nate-holden-141843762.html)
 <!-- feed end -->
 
 ### Onstream
