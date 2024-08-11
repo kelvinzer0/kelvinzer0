@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 10 - [Celine Dion Sinks Trump Campaign's Use Of Iconic Song With 4-Word Question](https://www.yahoo.com/news/celine-dion-sinks-trump-campaigns-233259752.html)
 - Aug 10 - [Yikes! Biggest slithering Burmese pythons caught in Florida Python Challenge](https://www.yahoo.com/news/yikes-biggest-slithering-burmese-pythons-225454570.html)
-- Aug 10 - [This 9% Yielding Energy Stock Just Increased Its Dividend Payment](https://finance.yahoo.com/news/9-yielding-energy-stock-just-224200350.html)
+- Aug 10 - [Russia launches air attack on Ukraine's Kyiv, mayor says](https://www.yahoo.com/news/russia-launches-air-attack-ukraines-215610195.html)
+- Aug 10 - [Road Rage Doesn’t End Well For Ford Escape](https://autos.yahoo.com/road-rage-doesn-t-end-190000389.html)
 - Aug 10 - [Biden’s Beach Snooze Roils GOP: Who’s Running the Country?](https://www.yahoo.com/news/biden-beach-snooze-roils-gop-210312422.html)
-- Aug 10 - [Disney expected to announce plans for its theme parks](https://finance.yahoo.com/news/disney-expected-announce-plans-theme-194614808.html)
 <!-- feed end -->
 
 ### Onstream
