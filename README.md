@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Breaking community defends b-girl Raygun and is hopeful for return to Olympic program](https://sports.yahoo.com/breaking-community-defends-b-girl-164718847.html)
-- Aug 11 - [Maps shows where thunderstorms will hit in coming days](https://www.yahoo.com/news/weather-maps-thunderstorms-hit-coming-days-164706040.html)
-- Aug 11 - [Perseid meteor shower to peak tonight alongside northern lights](https://www.yahoo.com/news/biggest-meteor-shower-2024-peak-133745484.html)
-- Aug 11 - [SC Little Pee Dee River goes from drought to flood. What other rivers did Debby impact?](https://www.yahoo.com/news/sc-little-pee-dee-river-161817240.html)
+- Aug 11 - [Gen AI is real and 'its magical': SoundHound CEO](https://finance.yahoo.com/video/gen-ai-real-magical-soundhound-170050065.html)
+- Aug 11 - [Trump’s Anger Out of Control as Poll Numbers Keep Cratering](https://www.yahoo.com/news/trump-advisers-deeply-rattled-spiraling-161207179.html)
 - Aug 11 - [US families are 'woefully underprepared' for the great wealth transfer](https://finance.yahoo.com/news/us-families-are-woefully-underprepared-for-the-great-wealth-transfer-154037080.html)
+- Aug 11 - [‘Manipulated’ Trump Blows Up Billionaire Megadonor’s Phone With Angry Texts](https://www.yahoo.com/news/manipulated-trump-blows-billionaire-megadonor-152517448.html)
+- Aug 11 - [Georgia Trooper Does Brutal PIT On Fleeing Suspect](https://autos.yahoo.com/georgia-trooper-does-brutal-pit-190000299.html)
 <!-- feed end -->
 
 ### Onstream
