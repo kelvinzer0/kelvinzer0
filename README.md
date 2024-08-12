@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [The quirky and unexpected hobbies favoured by modern politicians](https://www.yahoo.com/lifestyle/quirky-unexpected-hobbies-favoured-modern-060000525.html)
+- Aug 12 - [Israeli minister tells US that large-scale Iranian attack expected, Axios reports](https://www.yahoo.com/news/israeli-minister-tells-us-large-071700664.html)
 - Aug 12 - [Russia evacuates another border region amid growing threat from Ukrainian units](https://www.yahoo.com/news/russia-evacuates-another-border-region-052526413.html)
-- Aug 12 - [China test-flies biggest cargo drone as low-altitude economy takes off](https://www.yahoo.com/tech/china-test-flies-biggest-cargo-035315950.html)
-- Aug 12 - [CNN anchor presses Vance on Trump’s military deferment after attacking Walz](https://www.yahoo.com/news/cnn-anchor-presses-vance-trump-015803662.html)
-- Aug 12 - [US arrests of Mexican drug lords could bring fresh charges in home country](https://www.yahoo.com/news/us-arrests-mexican-drug-lords-013227637.html)
+- Aug 12 - [Mob of teens violently assault man, break his leg in downtown Los Angeles](https://www.yahoo.com/news/mob-teens-violently-assault-man-045935463.html)
+- Aug 12 - [China trials cargo drones, air taxis as low-altitude economy gains speed](https://finance.yahoo.com/news/china-test-flies-biggest-cargo-035315950.html)
+- Aug 12 - [Yen slips, markets brace for US inflation data](https://finance.yahoo.com/news/yen-slips-markets-brace-us-010954506.html)
 <!-- feed end -->
 
 ### Onstream
