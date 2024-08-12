@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Trump’s insult to Harris: That she sounds more like ‘Trump than Trump’](https://www.yahoo.com/news/trump-insult-harris-she-sounds-144046599.html)
-- Aug 12 - [Why a 50-basis-point cut from the Fed would be 'a mistake'](https://finance.yahoo.com/video/why-50-basis-point-cut-142559783.html)
-- Aug 12 - [Dozens of pregnant women, some bleeding or in labor, being turned away from ERs despite federal law](https://www.yahoo.com/news/dozens-pregnant-women-bleeding-labor-131907966.html)
-- Aug 12 - [Company deploys end-of-life solution to tackle wind turbine waste: 'Hundreds of wind turbines are being decommissioned to make way for even larger wind turbines'](https://www.yahoo.com/tech/company-deploys-end-life-solution-110000502.html)
-- Aug 12 - [Biggest shakeup in a century set to hit real estate agents this week: Here’s how they’re preparing](https://finance.yahoo.com/news/biggest-shakeup-century-set-hit-104515299.html)
+- Aug 12 - [Oil prices rise for 5th straight session on Mideast tensions](https://finance.yahoo.com/video/oil-prices-rise-5th-straight-160232506.html)
+- Aug 12 - [Nuclear Submarine Captain Fired After Sex Video Claims Surface](https://www.yahoo.com/news/nuclear-submarine-captain-fired-sex-153903238.html)
+- Aug 12 - [Hunter Biden's lawyers say claims about foreign business dealing have no place in upcoming tax trial](https://www.yahoo.com/news/hunter-bidens-lawyers-claims-foreign-151217039.html)
+- Aug 12 - ["His head is exploding": Trump melts down on Truth Social as bad poll numbers get even worse](https://www.yahoo.com/news/head-exploding-trump-melts-down-150202609.html)
+- Aug 12 - [Potential Tropical Cyclone 5 developing in the Atlantic](https://www.yahoo.com/news/potential-tropical-cyclone-5-developing-132217903.html)
 <!-- feed end -->
 
 ### Onstream
