@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Woman jailed for murdering man who loved her](https://www.yahoo.com/news/woman-jailed-murdering-man-loved-191140364.html)
-- Aug 12 - [Prosecutors won't charge officers who killed armed student outside Wisconsin school](https://www.yahoo.com/news/prosecutors-wont-charge-officers-killed-190427731.html)
-- Aug 12 - [New Mars study suggests an ocean's worth of water may be hiding beneath the red dusty surface](https://www.yahoo.com/news/mars-study-suggests-oceans-worth-190401657.html)
-- Aug 12 - [Will India and Sri Lanka Benefit From Unrest in Bangladesh?](https://www.yahoo.com/news/india-sri-lanka-benefit-unrest-190000558.html)
-- Aug 12 - [Judge says Maine can forbid discrimination by religious schools that take state tuition money](https://www.yahoo.com/news/judge-says-maine-forbid-discrimination-181025421.html)
+- Aug 12 - [My Lungs Are Physically Sore From Laughing So Hard At These 21 Black Tweets From The Week](https://www.yahoo.com/entertainment/lungs-physically-sore-laughing-hard-202500220.html)
+- Aug 12 - [Underground reservoir on Mars could fill oceans on the planet’s surface, study finds](https://www.yahoo.com/news/evidence-suggests-may-reservoir-water-193315547.html)
+- Aug 12 - [What caused Brazil plane crash that killed 62 people?](https://www.yahoo.com/news/caused-brazil-plane-crash-killed-195955433.html)
+- Aug 12 - [Lesbian Woman Banned From American Airlines For Mistaken Identity With Drunk Passenger Who Had Sexual Relations With A Man](https://autos.yahoo.com/lesbian-woman-banned-american-airlines-194913913.html)
+- Aug 12 - [An estimated 290 residences damaged by flooding from lake dammed by Alaska glacier, officials say](https://www.yahoo.com/news/estimated-290-residences-damaged-flooding-194312268.html)
 <!-- feed end -->
 
 ### Onstream
