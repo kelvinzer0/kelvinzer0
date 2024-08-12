@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Forecasters announced a tropical storm warning for portions of the leeward islands](https://www.yahoo.com/news/forecasters-announced-tropical-storm-warning-120903392.html)
-- Aug 12 - [Bank of America (NYSE:BAC) Is Increasing Its Dividend To $0.26](https://finance.yahoo.com/news/bank-america-nyse-bac-increasing-112133976.html)
-- Aug 12 - [North Korean defects to South by crossing Yellow Sea maritime border](https://www.yahoo.com/news/north-korean-defects-south-crossing-110823279.html)
-- Aug 12 - [Russia complained that its 'peaceful' people don't deserve to be invaded](https://www.yahoo.com/news/russia-complained-peaceful-people-dont-104124564.html)
+- Aug 12 - [Russians collect humanitarian aid for evacuees from border regions after Ukraine’s incursion](https://www.yahoo.com/news/russians-collect-humanitarian-aid-evacuees-125427313.html)
+- Aug 12 - [Labour’s energy policy is economically and environmentally illiterate](https://finance.yahoo.com/news/labour-energy-policy-economically-environmentally-115033321.html)
+- Aug 12 - [Elon Musk initially said the Cybertruck would cost from $39,900. Now, you can't buy it for much less than $100,000.](https://autos.yahoo.com/elon-musk-initially-said-cybertruck-102140149.html)
+- Aug 12 - [Why a Church of Christ congregation near Nashville sold its building and moved into a school](https://www.yahoo.com/news/why-church-christ-congregation-near-100713014.html)
 - Aug 12 - [Doctors Say Walking This Much Per Day Could Decrease Disease-Causing Inflammation](https://www.yahoo.com/lifestyle/doctors-walking-much-per-day-100000888.html)
 <!-- feed end -->
 
