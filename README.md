@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 12 - [Pentagon chief orders submarine to the Middle East, tells aircraft carrier to hasten its transit](https://www.yahoo.com/news/pentagon-chief-orders-submarine-middle-005538619.html)
 - Aug 12 - [I Saw Blood In The Toilet. I Never Expected A Common Drug Could Be The Cause.](https://www.yahoo.com/lifestyle/saw-blood-toilet-never-expected-001602476.html)
-- Aug 12 - [Antarctic Glacier Sped Up As Its Ice Shelf Collapsed](https://www.yahoo.com/lifestyle/antarctic-glacier-sped-ice-shelf-000000765.html)
-- Aug 11 - [Trump spreads false conspiracy theory about Harris’ Detroit crowd size](https://www.yahoo.com/news/trump-spreads-false-conspiracy-theory-215554714.html)
-- Aug 11 - [Browns' plans for move to new dome stadium hits snag as county backs city's renovation proposal](https://www.yahoo.com/news/browns-plans-move-dome-stadium-192825542.html)
+- Aug 11 - [Harris campaign fires back at Trump after he accuses her of faking ‘massive’ crowd sizes](https://www.yahoo.com/news/harris-campaign-fires-back-trump-224225594.html)
+- Aug 11 - [House explosion in Maryland kills one, damages surrounding neighborhood](https://www.yahoo.com/news/house-explosion-maryland-kills-one-201649416.html)
+- Aug 11 - [Elon Musk brands Humza Yousaf a ‘super racist scumbag’](https://www.yahoo.com/news/elon-musk-brands-humza-yousaf-195822769.html)
 <!-- feed end -->
 
 ### Onstream
