@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Russia evacuates another border region amid growing threat from Ukrainian units](https://www.yahoo.com/news/russia-evacuates-another-border-region-052526413.html)
+- Aug 12 - [High hopes in Israel for 'super hero' cocoa that survived frontline conditions](https://www.yahoo.com/news/high-hopes-israel-super-hero-051038390.html)
+- Aug 12 - [Elon Musk's X targeted with nine privacy complaints after grabbing EU users' data for training Grok](https://www.yahoo.com/news/elon-musks-x-targeted-nine-050000654.html)
+- Aug 12 - [China test-flies biggest cargo drone as low-altitude economy takes off](https://www.yahoo.com/tech/china-test-flies-biggest-cargo-035315950.html)
 - Aug 12 - [CNN anchor presses Vance on Trump’s military deferment after attacking Walz](https://www.yahoo.com/news/cnn-anchor-presses-vance-trump-015803662.html)
-- Aug 12 - [Pentagon chief orders submarine to the Middle East, tells aircraft carrier to hasten its transit](https://www.yahoo.com/news/pentagon-chief-orders-submarine-middle-005538619.html)
-- Aug 12 - [I Saw Blood In The Toilet. I Never Expected A Common Drug Could Be The Cause.](https://www.yahoo.com/lifestyle/saw-blood-toilet-never-expected-001602476.html)
-- Aug 11 - [Harris campaign fires back at Trump after he accuses her of faking ‘massive’ crowd sizes](https://www.yahoo.com/news/harris-campaign-fires-back-trump-224225594.html)
-- Aug 11 - [Elon Musk brands Humza Yousaf a ‘super racist scumbag’](https://www.yahoo.com/news/elon-musk-brands-humza-yousaf-195822769.html)
 <!-- feed end -->
 
 ### Onstream
