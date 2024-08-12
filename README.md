@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Trump’s insult to Harris: That she sounds more like ‘Trump than Trump’](https://www.yahoo.com/news/trump-insult-harris-she-sounds-144046599.html)
+- Aug 12 - [Why a 50-basis-point cut from the Fed would be 'a mistake'](https://finance.yahoo.com/video/why-50-basis-point-cut-142559783.html)
 - Aug 12 - [Dozens of pregnant women, some bleeding or in labor, being turned away from ERs despite federal law](https://www.yahoo.com/news/dozens-pregnant-women-bleeding-labor-131907966.html)
-- Aug 12 - [Theme parks reporting drop in revenue](https://www.yahoo.com/news/theme-parks-reporting-drop-revenue-131538792.html)
-- Aug 12 - [Russians collect humanitarian aid for evacuees from border regions after Ukraine’s incursion](https://www.yahoo.com/news/russians-collect-humanitarian-aid-evacuees-125427313.html)
-- Aug 12 - [Elon Musk initially said the Cybertruck would cost from $39,900. Now, you can't buy it for much less than $100,000.](https://autos.yahoo.com/elon-musk-initially-said-cybertruck-102140149.html)
-- Aug 12 - [Doctors Say Walking This Much Per Day Could Decrease Disease-Causing Inflammation](https://www.yahoo.com/lifestyle/doctors-walking-much-per-day-100000888.html)
+- Aug 12 - [Company deploys end-of-life solution to tackle wind turbine waste: 'Hundreds of wind turbines are being decommissioned to make way for even larger wind turbines'](https://www.yahoo.com/tech/company-deploys-end-life-solution-110000502.html)
+- Aug 12 - [Biggest shakeup in a century set to hit real estate agents this week: Here’s how they’re preparing](https://finance.yahoo.com/news/biggest-shakeup-century-set-hit-104515299.html)
 <!-- feed end -->
 
 ### Onstream
