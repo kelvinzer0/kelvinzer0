@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Faceless mannequins show off clothes in Afghanistan](https://www.yahoo.com/news/faceless-mannequins-show-off-clothes-022904111.html)
+- Aug 12 - [US arrests of Mexican drug lords could bring fresh charges in home country](https://www.yahoo.com/news/us-arrests-mexican-drug-lords-013227637.html)
+- Aug 12 - [Yen slips, markets brace for US inflation data](https://finance.yahoo.com/news/yen-slips-markets-brace-us-010954807.html)
 - Aug 12 - [Pentagon chief orders submarine to the Middle East, tells aircraft carrier to hasten its transit](https://www.yahoo.com/news/pentagon-chief-orders-submarine-middle-005538619.html)
 - Aug 12 - [I Saw Blood In The Toilet. I Never Expected A Common Drug Could Be The Cause.](https://www.yahoo.com/lifestyle/saw-blood-toilet-never-expected-001602476.html)
 - Aug 11 - [Harris campaign fires back at Trump after he accuses her of faking ‘massive’ crowd sizes](https://www.yahoo.com/news/harris-campaign-fires-back-trump-224225594.html)
-- Aug 11 - [House explosion in Maryland kills one, damages surrounding neighborhood](https://www.yahoo.com/news/house-explosion-maryland-kills-one-201649416.html)
 <!-- feed end -->
 
 ### Onstream
