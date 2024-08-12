@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [How to watch Google launch the Pixel 9 line at Made by Google event tomorrow](https://www.yahoo.com/news/how-to-watch-google-launch-the-pixel-9-line-at-made-by-google-event-tomorrow-161207616.html)
+- Aug 12 - [Mexican prosecutors consider treason charges after US jails drug lord ‘El Mayo’ Zambada](https://www.yahoo.com/news/mexican-prosecutors-consider-treason-charges-173100948.html)
+- Aug 12 - [Graham Thorpe died after being hit by train as family confirm he took own life](https://www.yahoo.com/news/graham-thorpe-took-own-life-071445044.html)
+- Aug 12 - [GA man dies after jumping from moving car going 70 mph on I-75](https://www.yahoo.com/news/ga-man-dies-jumping-moving-162754844.html)
 - Aug 12 - [Devastating New Poll Is Worst News Yet for J.D. Vance and Trump](https://www.yahoo.com/news/devastating-poll-worst-news-yet-161247829.html)
-- Aug 12 - [This 4-Second Clip Of Kamala Harris Greeting Reporters On A Tarmac Is Taking Over My Timeline, And Now It's A Meme](https://www.yahoo.com/entertainment/4-second-clip-kamala-harris-160204694.html)
 - Aug 12 - [Lion-bumping incident in South Africa 'dealt with at highest level'](https://www.yahoo.com/news/lion-bumping-incident-south-africa-154526345.html)
-- Aug 12 - [Mark Cuban: 6 Terrible Ways To Invest Your Money](https://finance.yahoo.com/news/mark-cuban-6-terrible-ways-154107778.html)
 <!-- feed end -->
 
 ### Onstream
