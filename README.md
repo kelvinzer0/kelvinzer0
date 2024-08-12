@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Forecasters announced a tropical storm warning for portions of the leeward islands](https://www.yahoo.com/news/forecasters-announced-tropical-storm-warning-120903392.html)
+- Aug 12 - [Bank of America (NYSE:BAC) Is Increasing Its Dividend To $0.26](https://finance.yahoo.com/news/bank-america-nyse-bac-increasing-112133976.html)
+- Aug 12 - [North Korean defects to South by crossing Yellow Sea maritime border](https://www.yahoo.com/news/north-korean-defects-south-crossing-110823279.html)
+- Aug 12 - [Russia complained that its 'peaceful' people don't deserve to be invaded](https://www.yahoo.com/news/russia-complained-peaceful-people-dont-104124564.html)
 - Aug 12 - [Doctors Say Walking This Much Per Day Could Decrease Disease-Causing Inflammation](https://www.yahoo.com/lifestyle/doctors-walking-much-per-day-100000888.html)
-- Aug 12 - [Atlantic County man admits role in cockfighting operation](https://www.yahoo.com/news/atlantic-county-man-admits-role-095212327.html)
-- Aug 12 - [Owner of downtown Erie building shuttered after June search appeals alleged violations](https://www.yahoo.com/news/owner-downtown-erie-building-shuttered-091552856.html)
-- Aug 12 - [Scott Peterson’s Mistress Makes Bombshell Claims in Netflix Docuseries](https://www.yahoo.com/entertainment/scott-peterson-mistress-makes-bombshell-090347927.html)
-- Aug 12 - [Iranian vice president resigns after only 11 days in office](https://www.yahoo.com/news/iranian-vice-president-resigns-only-084119806.html)
 <!-- feed end -->
 
 ### Onstream
