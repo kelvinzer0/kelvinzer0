@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Dozens of pregnant women, some bleeding or in labor, being turned away from ERs despite federal law](https://www.yahoo.com/news/dozens-pregnant-women-bleeding-labor-131907966.html)
+- Aug 12 - [Theme parks reporting drop in revenue](https://www.yahoo.com/news/theme-parks-reporting-drop-revenue-131538792.html)
 - Aug 12 - [Russians collect humanitarian aid for evacuees from border regions after Ukraine’s incursion](https://www.yahoo.com/news/russians-collect-humanitarian-aid-evacuees-125427313.html)
-- Aug 12 - [Labour’s energy policy is economically and environmentally illiterate](https://finance.yahoo.com/news/labour-energy-policy-economically-environmentally-115033321.html)
 - Aug 12 - [Elon Musk initially said the Cybertruck would cost from $39,900. Now, you can't buy it for much less than $100,000.](https://autos.yahoo.com/elon-musk-initially-said-cybertruck-102140149.html)
-- Aug 12 - [Why a Church of Christ congregation near Nashville sold its building and moved into a school](https://www.yahoo.com/news/why-church-christ-congregation-near-100713014.html)
 - Aug 12 - [Doctors Say Walking This Much Per Day Could Decrease Disease-Causing Inflammation](https://www.yahoo.com/lifestyle/doctors-walking-much-per-day-100000888.html)
 <!-- feed end -->
 
