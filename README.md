@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Israeli minister tells US that large-scale Iranian attack expected, Axios reports](https://www.yahoo.com/news/israeli-minister-tells-us-large-071700664.html)
-- Aug 12 - [High hopes in Israel for 'super hero' cocoa that survived frontline conditions](https://www.yahoo.com/news/high-hopes-israel-super-hero-051038390.html)
-- Aug 12 - [Mob of teens violently assault man, break his leg in downtown Los Angeles](https://www.yahoo.com/news/mob-teens-violently-assault-man-045935463.html)
-- Aug 12 - [China trials cargo drones, air taxis as low-altitude economy gains speed](https://finance.yahoo.com/news/china-test-flies-biggest-cargo-035315950.html)
-- Aug 12 - [CNN anchor presses Vance on Trump’s military deferment after attacking Walz](https://www.yahoo.com/news/cnn-anchor-presses-vance-trump-015803662.html)
+- Aug 12 - [Why Nvidia, Tesla are betting on AI-powered humanoid robots](https://finance.yahoo.com/video/why-nvidia-tesla-betting-ai-095516804.html)
+- Aug 12 - [The Perseid meteor shower peaks tonight – here’s where to watch it](https://www.yahoo.com/lifestyle/where-britain-darkest-skies-100000822.html)
+- Aug 12 - [Owner of downtown Erie building shuttered after June search appeals alleged violations](https://www.yahoo.com/news/owner-downtown-erie-building-shuttered-091552856.html)
+- Aug 12 - [As Richmond Hill neighborhoods were ravaged by floods, volunteers showed up in droves](https://www.yahoo.com/news/richmond-hill-neighborhoods-were-ravaged-091058860.html)
+- Aug 12 - [Two years later, mystery still surrounds Evansville's infamous Ohio River camper](https://www.yahoo.com/news/two-years-later-mystery-still-090950874.html)
 <!-- feed end -->
 
 ### Onstream
