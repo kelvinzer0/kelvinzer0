@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Oil prices rise for 5th straight session on Mideast tensions](https://finance.yahoo.com/video/oil-prices-rise-5th-straight-160232506.html)
-- Aug 12 - [Nuclear Submarine Captain Fired After Sex Video Claims Surface](https://www.yahoo.com/news/nuclear-submarine-captain-fired-sex-153903238.html)
-- Aug 12 - [Hunter Biden's lawyers say claims about foreign business dealing have no place in upcoming tax trial](https://www.yahoo.com/news/hunter-bidens-lawyers-claims-foreign-151217039.html)
-- Aug 12 - ["His head is exploding": Trump melts down on Truth Social as bad poll numbers get even worse](https://www.yahoo.com/news/head-exploding-trump-melts-down-150202609.html)
-- Aug 12 - [Potential Tropical Cyclone 5 developing in the Atlantic](https://www.yahoo.com/news/potential-tropical-cyclone-5-developing-132217903.html)
+- Aug 12 - [How to watch Google launch the Pixel 9 line at Made by Google event tomorrow](https://www.yahoo.com/news/how-to-watch-google-launch-the-pixel-9-line-at-made-by-google-event-tomorrow-161207616.html)
+- Aug 12 - [Devastating New Poll Is Worst News Yet for J.D. Vance and Trump](https://www.yahoo.com/news/devastating-poll-worst-news-yet-161247829.html)
+- Aug 12 - [This 4-Second Clip Of Kamala Harris Greeting Reporters On A Tarmac Is Taking Over My Timeline, And Now It's A Meme](https://www.yahoo.com/entertainment/4-second-clip-kamala-harris-160204694.html)
+- Aug 12 - [Lion-bumping incident in South Africa 'dealt with at highest level'](https://www.yahoo.com/news/lion-bumping-incident-south-africa-154526345.html)
+- Aug 12 - [Mark Cuban: 6 Terrible Ways To Invest Your Money](https://finance.yahoo.com/news/mark-cuban-6-terrible-ways-154107778.html)
 <!-- feed end -->
 
 ### Onstream
