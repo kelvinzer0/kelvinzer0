@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [British energy giant reports violating toxic pollutant limits at Louisiana wood pellet facilities](https://www.yahoo.com/news/british-energy-giant-reports-violating-183932444.html)
+- Aug 12 - [Woman jailed for murdering man who loved her](https://www.yahoo.com/news/woman-jailed-murdering-man-loved-191140364.html)
+- Aug 12 - [Prosecutors won't charge officers who killed armed student outside Wisconsin school](https://www.yahoo.com/news/prosecutors-wont-charge-officers-killed-190427731.html)
+- Aug 12 - [New Mars study suggests an ocean's worth of water may be hiding beneath the red dusty surface](https://www.yahoo.com/news/mars-study-suggests-oceans-worth-190401657.html)
+- Aug 12 - [Will India and Sri Lanka Benefit From Unrest in Bangladesh?](https://www.yahoo.com/news/india-sri-lanka-benefit-unrest-190000558.html)
 - Aug 12 - [Judge says Maine can forbid discrimination by religious schools that take state tuition money](https://www.yahoo.com/news/judge-says-maine-forbid-discrimination-181025421.html)
-- Aug 12 - [Person taken to hospital from incident in Penn Hills](https://www.yahoo.com/news/person-taken-hospital-incident-penn-180918918.html)
-- Aug 12 - [Malibu Businessmen’s Beach ‘Sandbox’ Spat Spills Into Court](https://finance.yahoo.com/news/malibu-businessmen-beach-sandbox-spat-173258708.html)
-- Aug 12 - [Graham Thorpe died after being hit by train as family confirm he took own life](https://www.yahoo.com/news/graham-thorpe-took-own-life-071445044.html)
 <!-- feed end -->
 
 ### Onstream
