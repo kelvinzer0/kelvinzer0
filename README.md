@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Why Nvidia, Tesla are betting on AI-powered humanoid robots](https://finance.yahoo.com/video/why-nvidia-tesla-betting-ai-095516804.html)
-- Aug 12 - [The Perseid meteor shower peaks tonight – here’s where to watch it](https://www.yahoo.com/lifestyle/where-britain-darkest-skies-100000822.html)
+- Aug 12 - [Doctors Say Walking This Much Per Day Could Decrease Disease-Causing Inflammation](https://www.yahoo.com/lifestyle/doctors-walking-much-per-day-100000888.html)
+- Aug 12 - [Atlantic County man admits role in cockfighting operation](https://www.yahoo.com/news/atlantic-county-man-admits-role-095212327.html)
 - Aug 12 - [Owner of downtown Erie building shuttered after June search appeals alleged violations](https://www.yahoo.com/news/owner-downtown-erie-building-shuttered-091552856.html)
-- Aug 12 - [As Richmond Hill neighborhoods were ravaged by floods, volunteers showed up in droves](https://www.yahoo.com/news/richmond-hill-neighborhoods-were-ravaged-091058860.html)
-- Aug 12 - [Two years later, mystery still surrounds Evansville's infamous Ohio River camper](https://www.yahoo.com/news/two-years-later-mystery-still-090950874.html)
+- Aug 12 - [Scott Peterson’s Mistress Makes Bombshell Claims in Netflix Docuseries](https://www.yahoo.com/entertainment/scott-peterson-mistress-makes-bombshell-090347927.html)
+- Aug 12 - [Iranian vice president resigns after only 11 days in office](https://www.yahoo.com/news/iranian-vice-president-resigns-only-084119806.html)
 <!-- feed end -->
 
 ### Onstream
