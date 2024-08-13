@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - ['Astonishing View' of Canada Wildfires Captured in Satellite Imagery](https://www.yahoo.com/news/astonishing-view-canada-wildfires-captured-151201026.html)
-- Aug 13 - [Video shows police officer beating detainee in back of patrol car](https://www.yahoo.com/news/video-shows-police-officer-beating-144733981.html)
-- Aug 13 - [Oregon is among the worst states to live in, according to WalletHub](https://www.yahoo.com/news/oregon-among-worst-states-live-143000776.html)
-- Aug 13 - [UAW files charges against Trump, Musk for trying to intimidate workers](https://finance.yahoo.com/news/uaw-files-labor-charges-against-141622265.html)
-- Aug 13 - [Team Trump Fumes After Trainwreck Elon Musk Interview](https://www.yahoo.com/news/team-trump-fumes-trainwreck-elon-133415399.html)
+- Aug 13 - [Small business optimism rising. What it indicates for prices](https://finance.yahoo.com/video/small-business-optimism-rising-indicates-165049965.html)
+- Aug 13 - [University of Florida board of trustees approves raises for faculty and staff](https://www.yahoo.com/news/university-florida-board-trustees-approves-164533287.html)
+- Aug 13 - [Stock market today: S&P 500, Nasdaq jump higher as key inflation data comes in cool](https://finance.yahoo.com/news/stock-market-today-sp-500-nasdaq-jump-higher-as-key-inflation-data-comes-in-cool-151409529.html)
+- Aug 13 - [Starbucks boss ousted after Israel boycott fuels sales slump](https://finance.yahoo.com/news/starbucks-boss-ousted-israel-boycott-160252888.html)
+- Aug 13 - [17 Unnerving Facts I Learned About Adorable Animals This Week, And Now I Really Don't Like How My Dog Looks At Me When He Has A Squeaky Toy](https://www.yahoo.com/lifestyle/17-unnerving-facts-learned-adorable-151601609.html)
 <!-- feed end -->
 
 ### Onstream
