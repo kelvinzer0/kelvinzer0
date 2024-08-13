@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Here are all the AI features coming to the Pixel 9 phones](https://www.yahoo.com/news/here-are-all-the-ai-features-coming-to-the-pixel-9-phones-173551511.html)
+- Aug 13 - [Google Pixel 9 vs. Samsung Galaxy S24: how the flagship Android phones compare](https://www.yahoo.com/news/google-pixel-9-vs-samsung-galaxy-s24-how-the-flagship-android-phones-compare-171550491.html)
+- Aug 13 - [25 Best Jobs in the US in 2024 — How Much Do They Pay?](https://finance.yahoo.com/news/25-best-jobs-us-2024-170022139.html)
 - Aug 13 - [Small business optimism rising. What it indicates for prices](https://finance.yahoo.com/video/small-business-optimism-rising-indicates-165049965.html)
-- Aug 13 - [University of Florida board of trustees approves raises for faculty and staff](https://www.yahoo.com/news/university-florida-board-trustees-approves-164533287.html)
-- Aug 13 - [Stock market today: S&P 500, Nasdaq jump higher as key inflation data comes in cool](https://finance.yahoo.com/news/stock-market-today-sp-500-nasdaq-jump-higher-as-key-inflation-data-comes-in-cool-151409529.html)
-- Aug 13 - [Starbucks boss ousted after Israel boycott fuels sales slump](https://finance.yahoo.com/news/starbucks-boss-ousted-israel-boycott-160252888.html)
-- Aug 13 - [17 Unnerving Facts I Learned About Adorable Animals This Week, And Now I Really Don't Like How My Dog Looks At Me When He Has A Squeaky Toy](https://www.yahoo.com/lifestyle/17-unnerving-facts-learned-adorable-151601609.html)
+- Aug 13 - [VIDEO: Parkland High School coach slamming student onto gym floor raises concerns for parents](https://www.yahoo.com/news/video-parkland-high-school-coach-155403949.html)
 <!-- feed end -->
 
 ### Onstream
