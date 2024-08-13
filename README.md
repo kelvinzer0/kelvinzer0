@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Spirit Aero CEO Shanahan to get $28.5 million 'golden parachute'](https://finance.yahoo.com/news/spirit-aero-ceo-shanahan-28-223140355.html)
+- Aug 12 - [Ingham County restaurant inspections: Hotel ordered to discard egg, cheese and bacon wraps](https://www.yahoo.com/news/ingham-county-restaurant-inspections-hotel-230022325.html)
+- Aug 12 - [Spirit Aero CEO Shanahan to get $28.5 million 'golden parachute'](https://finance.yahoo.com/news/spirit-aero-ceo-shanahan-28-223140921.html)
 - Aug 12 - [Something Is Wrong](https://www.yahoo.com/news/something-wrong-223122379.html)
-- Aug 12 - [EU’s Breton reminds Musk of legal obligations ahead of Trump interview](https://www.yahoo.com/news/eu-breton-reminds-musk-legal-205541324.html)
-- Aug 12 - [Exactly How Much Cash Will A $50,000 Annuity Pay You Every Month?](https://finance.yahoo.com/news/exactly-much-cash-50-000-203018497.html)
-- Aug 12 - [Layoffs with ‘no warning’. What’s going on at Dr. Phil’s Fort Worth media company?](https://www.yahoo.com/news/layoffs-no-warning-going-dr-202242257.html)
+- Aug 12 - [Arkansas officer fired after being caught on video beating inmate in back of patrol car](https://www.yahoo.com/news/arkansas-officer-fired-being-caught-215329825.html)
+- Aug 12 - [Exxon reports 59 layoffs to Texas agency post-Pioneer acquisition](https://finance.yahoo.com/news/exxon-lays-off-59-workers-213507986.html)
 <!-- feed end -->
 
 ### Onstream
