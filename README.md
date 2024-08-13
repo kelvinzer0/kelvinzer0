@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Martian subsurface harbours oceans of life-giving liquid water](https://www.yahoo.com/news/martian-subsurface-harbours-oceans-life-015213832.html)
-- Aug 13 - [Trump’s interview with Musk devolves into yet another X catastrophe](https://www.yahoo.com/news/trumps-interview-musk-devolves-yet-010516645.html)
+- Aug 13 - [Trump rambles, slurs his way through Elon Musk interview. It was an unmitigated disaster.](https://www.yahoo.com/news/trump-rambles-slurs-way-elon-023006095.html)
+- Aug 13 - [Pennsylvania man accused of shooting at people who asked him to turn his music down](https://www.yahoo.com/news/pennsylvania-man-accused-shooting-people-021243386.html)
+- Aug 13 - [Indians who prepaid $1,000 to order Tesla EVs ask for their money back as cars fail to arrive](https://www.yahoo.com/news/indians-prepaid-1-000-order-021021287.html)
 - Aug 12 - [Spirit Aero CEO Shanahan to get $28.5 million 'golden parachute'](https://finance.yahoo.com/news/spirit-aero-ceo-shanahan-28-223140921.html)
 - Aug 12 - [Something Is Wrong](https://www.yahoo.com/news/something-wrong-223122379.html)
-- Aug 12 - [Arkansas officer fired after being caught on video beating inmate in back of patrol car](https://www.yahoo.com/news/arkansas-officer-fired-being-caught-215329825.html)
 <!-- feed end -->
 
 ### Onstream
