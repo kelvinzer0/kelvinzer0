@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Greece battles deadly wildfire for third day](https://www.yahoo.com/news/eu-firefighters-join-greece-battles-064123298.html)
-- Aug 13 - [Trump repeats same talking points during Musk interview - but the former president’s ‘lisp’ steals the show](https://www.yahoo.com/news/trump-musk-interview-underway-tech-010643485.html)
-- Aug 13 - [New lobster food truck drawing big crowds. What to know before you go](https://www.yahoo.com/lifestyle/lobster-food-truck-drawing-big-070532569.html)
-- Aug 13 - [Ukraine pummels Russia in bid to carve out bigger slice of territory](https://www.yahoo.com/news/ukraine-keeps-air-attacks-kursk-054728070.html)
-- Aug 13 - [US Rep. Ilhan Omar, a member of the progressive 'Squad,' faces repeat primary challenge in Minnesota](https://www.yahoo.com/news/us-rep-ilhan-omar-member-050127588.html)
+- Aug 13 - [Coca-Cola Stock Soars to a New Peak. Here's Why I'm Doubling Down.](https://finance.yahoo.com/news/coca-cola-stock-soars-peak-105000279.html)
+- Aug 13 - [Home Depot trims guidance with anxiety about the broader economy up among contractors and homeowners](https://finance.yahoo.com/news/home-depot-trims-guidance-anxiety-102342631.html)
+- Aug 13 - [Abortion rights amendment to Missouri Constitution could have unintended consequences | Opinion](https://www.yahoo.com/news/abortion-rights-amendment-missouri-constitution-100800057.html)
+- Aug 13 - [Zach Young wins local office, makes history as LGBTQ+ member of Nashville school board](https://www.yahoo.com/news/zach-young-wins-local-office-100216154.html)
+- Aug 13 - [MS Coast city looking to honor the lives of legendary Native American, pirate with markers](https://www.yahoo.com/news/ms-coast-city-looking-honor-100000118.html)
 <!-- feed end -->
 
 ### Onstream
