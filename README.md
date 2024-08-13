@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Google rolls out Pixel 9 phones earlier than usual as AI race with Apple heats up](https://www.yahoo.com/news/google-rolls-pixel-9-phones-204825640.html)
+- Aug 13 - [US approves $20 billion weapons package for Israel](https://www.yahoo.com/news/us-approves-20-billion-weapons-213825104.html)
+- Aug 13 - [Utah woman gets plea deal after pulling teen's skirt down in viral TikTok video](https://www.yahoo.com/news/utah-woman-gets-plea-deal-204151443.html)
 - Aug 13 - [Texas judge in lawsuit by Musk's X against advertisers exits case](https://finance.yahoo.com/news/texas-judge-lawsuit-musks-x-194022978.html)
-- Aug 13 - [Four family members killed returning from Six Flags after street racer slams into their SUV](https://www.yahoo.com/news/four-family-members-killed-returning-192429308.html)
 - Aug 13 - [Before lobster, Maine had a thriving sardine industry. A sunken ship reminds us of its storied past](https://www.yahoo.com/news/lobster-maine-had-thriving-sardine-183441177.html)
 - Aug 13 - [Intel is sued by Jewish fired employee over ex-supervisor's alleged antisemitism](https://finance.yahoo.com/news/intel-sued-jewish-fired-employee-183304545.html)
 <!-- feed end -->
