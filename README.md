@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Stock market today: S&P 500, Nasdaq rip higher as key inflation data comes in cool](https://finance.yahoo.com/news/stock-market-today-sp-500-nasdaq-rip-higher-as-key-inflation-data-comes-in-cool-151409209.html)
+- Aug 13 - [Coca-Cola and PepsiCo Are Both Resilient, but One Is More Attractive](https://finance.yahoo.com/news/coca-cola-pepsico-both-resilient-140002496.html)
 - Aug 13 - [How to receive money from the Cash App data breach settlement](https://www.yahoo.com/news/receive-money-cash-app-data-134724562.html)
-- Aug 13 - [Stock market today: US stocks jump as key inflation data comes in cool](https://finance.yahoo.com/news/stock-market-today-us-stocks-jump-as-key-inflation-data-comes-in-cool-133115871.html)
-- Aug 13 - [11 Top COVID Symptoms People Are Experiencing During the Summer Surge](https://www.yahoo.com/news/11-top-covid-symptoms-people-132000148.html)
-- Aug 13 - [Child Rapist Cries After Being Booed at Paris Olympics](https://sports.yahoo.com/child-rapist-cries-being-booed-131025558.html)
-- Aug 13 - [Gainesville begins mosquito spraying to control rising numbers after Hurricane Debby](https://www.yahoo.com/news/gainesville-begins-mosquito-spraying-control-130745440.html)
+- Aug 13 - [Team Trump Fumes After Trainwreck Elon Musk Interview](https://www.yahoo.com/news/team-trump-fumes-trainwreck-elon-133415399.html)
+- Aug 13 - [Ford, Mazda warn owners to stop driving older vehicles with dangerous Takata air bag inflators](https://www.yahoo.com/news/ford-mazda-warn-owners-stop-133035472.html)
 <!-- feed end -->
 
 ### Onstream
