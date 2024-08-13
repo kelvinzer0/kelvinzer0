@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [People Are Once Again Laying Out All Their "Boomer Complaints," And They Have A Point](https://www.yahoo.com/entertainment/people-once-again-laying-boomer-183102731.html)
 - Aug 13 - [Here are all the AI features coming to the Pixel 9 phones](https://www.yahoo.com/news/here-are-all-the-ai-features-coming-to-the-pixel-9-phones-173551511.html)
-- Aug 13 - [Google Pixel 9 vs. Samsung Galaxy S24: how the flagship Android phones compare](https://www.yahoo.com/news/google-pixel-9-vs-samsung-galaxy-s24-how-the-flagship-android-phones-compare-171550491.html)
-- Aug 13 - [25 Best Jobs in the US in 2024 — How Much Do They Pay?](https://finance.yahoo.com/news/25-best-jobs-us-2024-170022139.html)
-- Aug 13 - [Small business optimism rising. What it indicates for prices](https://finance.yahoo.com/video/small-business-optimism-rising-indicates-165049965.html)
-- Aug 13 - [VIDEO: Parkland High School coach slamming student onto gym floor raises concerns for parents](https://www.yahoo.com/news/video-parkland-high-school-coach-155403949.html)
+- Aug 13 - [Toyota Mirai Turned Into Hydrogen Bomb By Ukrainian Forces Explodes With The Force Of 400 Pounds Of TNT](https://autos.yahoo.com/toyota-mirai-turned-hydrogen-bomb-171500247.html)
+- Aug 13 - [Crane operator involved in Harbor Bridge accident reaches settlement with OSHA](https://www.yahoo.com/news/crane-operator-involved-harbor-bridge-165033825.html)
+- Aug 13 - [Gaza war protesters shut down 405 Freeway during morning commute](https://www.yahoo.com/news/gaza-war-protesters-shut-down-164525796.html)
 <!-- feed end -->
 
 ### Onstream
