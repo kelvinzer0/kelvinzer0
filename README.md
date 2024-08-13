@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 13 - [Trump repeats same talking points during Musk interview - but the former president’s ‘lisp’ steals the show](https://www.yahoo.com/news/trump-musk-interview-underway-tech-010643485.html)
 - Aug 13 - [US Rep. Ilhan Omar, a member of the progressive 'Squad,' faces repeat primary challenge in Minnesota](https://www.yahoo.com/news/us-rep-ilhan-omar-member-050127588.html)
+- Aug 13 - [Older Americans prepare themselves for a world altered by artificial intelligence](https://www.yahoo.com/news/older-americans-prepare-themselves-world-042049336.html)
 - Aug 13 - [News outlets were leaked insider material from the Trump campaign. They chose not to print it](https://www.yahoo.com/news/news-outlets-were-leaked-insider-041110554.html)
 - Aug 13 - [Trump rambles, slurs his way through Elon Musk interview. It was an unmitigated disaster.](https://www.yahoo.com/news/trump-rambles-slurs-way-elon-023006095.html)
-- Aug 13 - [Judge declines to accept plea deal for Las Vegas teens accused of killing classmate](https://www.yahoo.com/news/judge-declines-accept-plea-deal-004407078.html)
 <!-- feed end -->
 
 ### Onstream
