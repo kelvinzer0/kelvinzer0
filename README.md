@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [US approves $20 billion weapons package for Israel](https://www.yahoo.com/news/us-approves-20-billion-weapons-213825104.html)
+- Aug 13 - [Breaking up Google an option being considered by US, Bloomberg News reports](https://finance.yahoo.com/news/breaking-google-option-being-considered-221901956.html)
+- Aug 13 - [‘El Matador Consulting’: Former Fresno Police Chief starts new company](https://finance.yahoo.com/news/el-matador-consulting-former-fresno-205451371.html)
 - Aug 13 - [Utah woman gets plea deal after pulling teen's skirt down in viral TikTok video](https://www.yahoo.com/news/utah-woman-gets-plea-deal-204151443.html)
 - Aug 13 - [Texas judge in lawsuit by Musk's X against advertisers exits case](https://finance.yahoo.com/news/texas-judge-lawsuit-musks-x-194022978.html)
-- Aug 13 - [Before lobster, Maine had a thriving sardine industry. A sunken ship reminds us of its storied past](https://www.yahoo.com/news/lobster-maine-had-thriving-sardine-183441177.html)
-- Aug 13 - [Intel is sued by Jewish fired employee over ex-supervisor's alleged antisemitism](https://finance.yahoo.com/news/intel-sued-jewish-fired-employee-183304545.html)
+- Aug 13 - [Indiana attorney general drops suit over privacy of Ohio girl who traveled for abortion](https://www.yahoo.com/news/indiana-attorney-general-drops-suit-185137825.html)
 <!-- feed end -->
 
 ### Onstream
