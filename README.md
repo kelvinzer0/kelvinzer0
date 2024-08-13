@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [People Are Once Again Laying Out All Their "Boomer Complaints," And They Have A Point](https://www.yahoo.com/entertainment/people-once-again-laying-boomer-183102731.html)
-- Aug 13 - [Here are all the AI features coming to the Pixel 9 phones](https://www.yahoo.com/news/here-are-all-the-ai-features-coming-to-the-pixel-9-phones-173551511.html)
+- Aug 13 - [Before lobster, Maine had a thriving sardine industry. A sunken ship reminds us of its storied past](https://www.yahoo.com/news/lobster-maine-had-thriving-sardine-183441177.html)
+- Aug 13 - [Intel is sued by Jewish fired employee over ex-supervisor's alleged antisemitism](https://finance.yahoo.com/news/intel-sued-jewish-fired-employee-183304545.html)
+- Aug 13 - [A Gazan father went to register his twins’ births. They were killed in an Israeli airstrike, hospital officials say](https://www.yahoo.com/news/gazan-father-went-register-twins-182314070.html)
+- Aug 13 - [Fact Check: No, Photos Do Not Show Young Kamala Harris Working as an 'Escort'](https://www.yahoo.com/news/fact-check-no-photos-not-174500574.html)
 - Aug 13 - [Toyota Mirai Turned Into Hydrogen Bomb By Ukrainian Forces Explodes With The Force Of 400 Pounds Of TNT](https://autos.yahoo.com/toyota-mirai-turned-hydrogen-bomb-171500247.html)
-- Aug 13 - [Crane operator involved in Harbor Bridge accident reaches settlement with OSHA](https://www.yahoo.com/news/crane-operator-involved-harbor-bridge-165033825.html)
-- Aug 13 - [Gaza war protesters shut down 405 Freeway during morning commute](https://www.yahoo.com/news/gaza-war-protesters-shut-down-164525796.html)
 <!-- feed end -->
 
 ### Onstream
