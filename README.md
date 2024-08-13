@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Tropical Storm Ernesto is plowing through Caribbean islands. Here’s where it could go next.](https://www.yahoo.com/news/tropical-storm-ernesto-plowing-caribbean-122110033.html)
-- Aug 13 - [Genetically engineered ‘super wood’ absorbs more carbon and reduces emissions](https://www.yahoo.com/news/genetically-engineered-super-wood-absorbs-122021217.html)
-- Aug 13 - [Huawei readies new AI chip to challenge Nvidia in China, WSJ reports](https://finance.yahoo.com/news/huawei-readies-ai-chip-challenge-103518741.html)
-- Aug 13 - [Man who died flying a helicopter that crashed on Cairns hotel roof had not flown in Australia before](https://www.yahoo.com/news/man-died-flying-helicopter-crashed-103016511.html)
-- Aug 13 - [Colorado shopper confused by mysterious 2.5% charge on her receipt. What are PIFs and where’s your money going?](https://finance.yahoo.com/news/colorado-shopper-confused-mysterious-2-100800213.html)
+- Aug 13 - [How to receive money from the Cash App data breach settlement](https://www.yahoo.com/news/receive-money-cash-app-data-134724562.html)
+- Aug 13 - [Stock market today: US stocks jump as key inflation data comes in cool](https://finance.yahoo.com/news/stock-market-today-us-stocks-jump-as-key-inflation-data-comes-in-cool-133115871.html)
+- Aug 13 - [11 Top COVID Symptoms People Are Experiencing During the Summer Surge](https://www.yahoo.com/news/11-top-covid-symptoms-people-132000148.html)
+- Aug 13 - [Child Rapist Cries After Being Booed at Paris Olympics](https://sports.yahoo.com/child-rapist-cries-being-booed-131025558.html)
+- Aug 13 - [Gainesville begins mosquito spraying to control rising numbers after Hurricane Debby](https://www.yahoo.com/news/gainesville-begins-mosquito-spraying-control-130745440.html)
 <!-- feed end -->
 
 ### Onstream
