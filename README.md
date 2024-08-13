@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Israeli hardliner Ben-Gvir draws anger with Jerusalem prayer call](https://www.yahoo.com/news/israeli-hardliner-ben-gvir-draws-114126629.html)
+- Aug 13 - [Tropical Storm Ernesto is plowing through Caribbean islands. Here’s where it could go next.](https://www.yahoo.com/news/tropical-storm-ernesto-plowing-caribbean-122110033.html)
+- Aug 13 - [Genetically engineered ‘super wood’ absorbs more carbon and reduces emissions](https://www.yahoo.com/news/genetically-engineered-super-wood-absorbs-122021217.html)
+- Aug 13 - [Huawei readies new AI chip to challenge Nvidia in China, WSJ reports](https://finance.yahoo.com/news/huawei-readies-ai-chip-challenge-103518741.html)
 - Aug 13 - [Man who died flying a helicopter that crashed on Cairns hotel roof had not flown in Australia before](https://www.yahoo.com/news/man-died-flying-helicopter-crashed-103016511.html)
 - Aug 13 - [Colorado shopper confused by mysterious 2.5% charge on her receipt. What are PIFs and where’s your money going?](https://finance.yahoo.com/news/colorado-shopper-confused-mysterious-2-100800213.html)
-- Aug 13 - [TownHall owner Bobby George charged with rape, attempted murder](https://www.yahoo.com/news/townhall-owner-bobby-george-charged-230537925.html)
-- Aug 13 - [MoDOT needs to update environmental study for I-70 expansion. Here's how to comment](https://www.yahoo.com/news/modot-needs-environmental-study-70-090745819.html)
 <!-- feed end -->
 
 ### Onstream
