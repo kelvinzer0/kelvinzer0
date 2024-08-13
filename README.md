@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Trump repeats same talking points during Musk interview - but the former president’s ‘lisp’ steals the show](https://www.yahoo.com/news/trump-musk-interview-underway-tech-010643485.html)
+- Aug 13 - [News outlets were leaked insider material from the Trump campaign. They chose not to print it](https://www.yahoo.com/news/news-outlets-were-leaked-insider-041110554.html)
 - Aug 13 - [Trump rambles, slurs his way through Elon Musk interview. It was an unmitigated disaster.](https://www.yahoo.com/news/trump-rambles-slurs-way-elon-023006095.html)
-- Aug 13 - [Indians who prepaid $1,000 to order Tesla EVs ask for their money back as cars fail to arrive](https://www.yahoo.com/news/indians-prepaid-1-000-order-021021287.html)
 - Aug 13 - [Judge declines to accept plea deal for Las Vegas teens accused of killing classmate](https://www.yahoo.com/news/judge-declines-accept-plea-deal-004407078.html)
-- Aug 12 - [TownHall owner Bobby George charged with rape, attempted murder](https://www.yahoo.com/news/townhall-owner-bobby-george-charged-230537925.html)
+- Aug 13 - [Construction begins on two major Albuquerque interchanges](https://www.yahoo.com/news/construction-begins-two-major-albuquerque-002055276.html)
+- Aug 12 - [Spirit Aero CEO Shanahan to get $28.5 million 'golden parachute'](https://finance.yahoo.com/news/spirit-aero-ceo-shanahan-28-223140355.html)
 <!-- feed end -->
 
 ### Onstream
