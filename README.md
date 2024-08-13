@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Coca-Cola Stock Soars to a New Peak. Here's Why I'm Doubling Down.](https://finance.yahoo.com/news/coca-cola-stock-soars-peak-105000279.html)
-- Aug 13 - [Home Depot trims guidance with anxiety about the broader economy up among contractors and homeowners](https://finance.yahoo.com/news/home-depot-trims-guidance-anxiety-102342631.html)
-- Aug 13 - [Abortion rights amendment to Missouri Constitution could have unintended consequences | Opinion](https://www.yahoo.com/news/abortion-rights-amendment-missouri-constitution-100800057.html)
-- Aug 13 - [Zach Young wins local office, makes history as LGBTQ+ member of Nashville school board](https://www.yahoo.com/news/zach-young-wins-local-office-100216154.html)
-- Aug 13 - [MS Coast city looking to honor the lives of legendary Native American, pirate with markers](https://www.yahoo.com/news/ms-coast-city-looking-honor-100000118.html)
+- Aug 13 - [Israeli hardliner Ben-Gvir draws anger with Jerusalem prayer call](https://www.yahoo.com/news/israeli-hardliner-ben-gvir-draws-114126629.html)
+- Aug 13 - [Man who died flying a helicopter that crashed on Cairns hotel roof had not flown in Australia before](https://www.yahoo.com/news/man-died-flying-helicopter-crashed-103016511.html)
+- Aug 13 - [Colorado shopper confused by mysterious 2.5% charge on her receipt. What are PIFs and where’s your money going?](https://finance.yahoo.com/news/colorado-shopper-confused-mysterious-2-100800213.html)
+- Aug 13 - [TownHall owner Bobby George charged with rape, attempted murder](https://www.yahoo.com/news/townhall-owner-bobby-george-charged-230537925.html)
+- Aug 13 - [MoDOT needs to update environmental study for I-70 expansion. Here's how to comment](https://www.yahoo.com/news/modot-needs-environmental-study-70-090745819.html)
 <!-- feed end -->
 
 ### Onstream
