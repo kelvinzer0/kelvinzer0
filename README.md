@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Greece battles deadly wildfire for third day](https://www.yahoo.com/news/eu-firefighters-join-greece-battles-064123298.html)
 - Aug 13 - [Trump repeats same talking points during Musk interview - but the former president’s ‘lisp’ steals the show](https://www.yahoo.com/news/trump-musk-interview-underway-tech-010643485.html)
+- Aug 13 - [New lobster food truck drawing big crowds. What to know before you go](https://www.yahoo.com/lifestyle/lobster-food-truck-drawing-big-070532569.html)
 - Aug 13 - [Ukraine pummels Russia in bid to carve out bigger slice of territory](https://www.yahoo.com/news/ukraine-keeps-air-attacks-kursk-054728070.html)
 - Aug 13 - [US Rep. Ilhan Omar, a member of the progressive 'Squad,' faces repeat primary challenge in Minnesota](https://www.yahoo.com/news/us-rep-ilhan-omar-member-050127588.html)
-- Aug 13 - [News outlets were leaked insider material from the Trump campaign. They chose not to print it](https://www.yahoo.com/news/news-outlets-were-leaked-insider-041110554.html)
-- Aug 13 - [Marine who died trying to save crew in fiery Osprey crash to receive service's top noncombat medal](https://www.yahoo.com/news/marine-died-trying-save-crew-040357394.html)
 <!-- feed end -->
 
 ### Onstream
