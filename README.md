@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Python hunt: Florida has dangerous animals that can kill. Here's a list of the deadliest](https://www.yahoo.com/news/python-hunt-florida-dangerous-animals-153401625.html)
-- Aug 14 - [Inflation Slipped to 2.9% in July, Keeping Fed on Track to Cut Rates](https://finance.yahoo.com/video/inflation-slipped-2-9-july-153100327.html)
-- Aug 14 - [Parvovirus B19 increasing in U.S., CDC warns. How to prevent it, recognize symptoms.](https://www.yahoo.com/news/parvovirus-b19-increasing-u-cdc-140611330.html)
+- Aug 14 - [South Lebanon Twp. Police look for leads after multiple vehicle entries and thefts](https://www.yahoo.com/news/south-lebanon-twp-police-look-162158110.html)
+- Aug 14 - [Kyiv says it creates 'buffer zone' in Kursk region, plans evacuation corridors](https://www.yahoo.com/news/kyiv-says-creates-buffer-zone-150043046.html)
+- Aug 14 - ['The risks are real': Coast Guard urges people not to participate in Sunday's Float Down](https://www.yahoo.com/news/risks-real-coast-guard-urges-141850942.html)
 - Aug 14 - [Mark Cuban Recalls The Conversation That Made Him See The Truth About Trump](https://www.yahoo.com/entertainment/mark-cuban-recalls-conversation-made-133205826.html)
 - Aug 14 - [Russian lawmaker Butina says the West is 'poking the bear' with Ukraine incursion](https://www.yahoo.com/news/russian-lawmaker-butina-says-west-124244216.html)
 <!-- feed end -->
