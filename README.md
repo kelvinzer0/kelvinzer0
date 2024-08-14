@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Iran’s fatal weakness has been exposed](https://www.yahoo.com/news/iran-fatal-weakness-exposed-093728263.html)
-- Aug 14 - [Poland received German request to arrest suspect in Nord Stream probe](https://www.yahoo.com/news/germany-issues-arrest-warrant-ukrainian-064758887.html)
-- Aug 14 - [A Russian lawmaker says the military knew Ukraine was planning to hit Kursk, but everyone was told 'not to panic' because 'those above know better'](https://www.yahoo.com/news/russian-lawmaker-says-military-knew-053535592.html)
-- Aug 14 - [The Taliban have ruled Afghanistan for 3 years. Here are 5 things to know](https://www.yahoo.com/news/taliban-ruled-afghanistan-3-years-041431484.html)
-- Aug 14 - ['It's monstrous': Canton dad killed in alleged neighbor dispute involving mulch](https://www.yahoo.com/news/monstrous-canton-dad-killed-alleged-031600124.html)
+- Aug 14 - [Storm track could change, but Ernesto currently targeting Maritimes](https://www.yahoo.com/news/storm-track-could-change-ernesto-104124703.html)
+- Aug 14 - [A second Russian border region declares an emergency as Ukrainian forces press their incursion](https://www.yahoo.com/news/second-russian-border-region-declares-101416560.html)
+- Aug 14 - [What will fall weather be like for the Middle Tennessee area? Here's what Nashville can expect](https://www.yahoo.com/news/fall-weather-middle-tennessee-area-100537046.html)
+- Aug 14 - [World’s Top Steel Producer Warns of ‘Severe’ Industry Crisis](https://finance.yahoo.com/news/world-biggest-steel-producer-warns-032756752.html)
+- Aug 14 - [SoundHound AI Shares Soar on Acquisition and Strong Revenue Growth. Is It Too Late to Buy the Stock?](https://finance.yahoo.com/news/soundhound-ai-shares-soar-acquisition-080800584.html)
 <!-- feed end -->
 
 ### Onstream
