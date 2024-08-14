@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 14 - [UCLA can't allow protesters to block Jewish students from campus, judge rules](https://www.yahoo.com/news/ucla-cant-allow-protesters-block-014458314.html)
+- Aug 14 - [Michelle Peduto, superintendent of Pittsburgh Catholic schools, dies of cancer](https://www.yahoo.com/news/michelle-peduto-superintendent-pittsburgh-catholic-013759569.html)
 - Aug 14 - [Maui judge's ruling bars insurers from going after defendants who agreed to $4B wildfire settlement](https://www.yahoo.com/news/maui-judges-ruling-bars-insurers-012005835.html)
-- Aug 14 - [New Zealand food bank distributes candy made from a potentially lethal amount of methamphetamine](https://www.yahoo.com/news/zealand-food-bank-distributes-candy-000504621.html)
+- Aug 13 - [I gave up my dream of being a doctor at a local hospital just one year out of medical school. That decision cost me close to half a million dollars, but it was worth it.](https://www.yahoo.com/lifestyle/gave-dream-being-doctor-local-234202030.html)
 - Aug 13 - [Intel sells stake in chip designer Arm Holdings](https://finance.yahoo.com/news/intel-sells-stake-chip-designer-222050360.html)
-- Aug 13 - [The Trump Campaign Just Tweeted Something Really Racist](https://www.yahoo.com/news/trump-campaign-just-tweeted-something-211358755.html)
 <!-- feed end -->
 
 ### Onstream
