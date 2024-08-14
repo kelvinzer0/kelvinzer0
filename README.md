@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Donald Trump Staring At His Phone While Talking To Elon Musk Is A Hilarious New Meme](https://www.yahoo.com/entertainment/donald-trump-staring-phone-while-180821098.html)
+- Aug 14 - [Apple is reportedly forging ahead with a rotating, iPad-like tabletop device](https://www.yahoo.com/news/apple-is-reportedly-forging-ahead-with-a-rotating-ipad-like-tabletop-device-193236425.html)
+- Aug 14 - [Battle Creek woman dies while hiking at Isle Royale National Park](https://www.yahoo.com/news/battle-creek-woman-dies-while-185149695.html)
+- Aug 14 - [Tiny Southern California fault poses a bigger threat than San Andreas](https://www.yahoo.com/news/tiny-southern-california-fault-experts-173414739.html)
 - Aug 14 - [West Virginia senator removed as committee chair after indecent exposure charges](https://www.yahoo.com/news/west-virginia-senator-removed-committee-165946510.html)
-- Aug 14 - [Two toddlers in diapers on highway after being ejected in car accident](https://www.yahoo.com/news/two-toddlers-diapers-highway-being-164554930.html)
-- Aug 14 - [Jamaica declares southern state of emergency after Sunday night killings](https://www.yahoo.com/news/jamaica-declares-southern-state-emergency-160144623.html)
-- Aug 14 - [Kyiv says it creates 'buffer zone' in Kursk region, plans evacuation corridors](https://www.yahoo.com/news/kyiv-says-creates-buffer-zone-150043046.html)
+- Aug 14 - [Chili’s take on the Big Mac is beating McDonald’s at its own game](https://finance.yahoo.com/news/chili-big-mac-beating-mcdonald-165804405.html)
 <!-- feed end -->
 
 ### Onstream
