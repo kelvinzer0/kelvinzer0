@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [South Lebanon Twp. Police look for leads after multiple vehicle entries and thefts](https://www.yahoo.com/news/south-lebanon-twp-police-look-162158110.html)
+- Aug 14 - [Hunter Biden reportedly sought US government help for Ukrainian gas company Burisma](https://www.yahoo.com/news/hunter-biden-reportedly-sought-us-180516396.html)
+- Aug 14 - [‘Doesn’t have to move for anybody’: John Sullivan compares Putin to ‘Goodfellas’ character](https://www.yahoo.com/news/doesn-t-move-anybody-john-172956550.html)
+- Aug 14 - [Jamaica declares southern state of emergency after Sunday night killings](https://www.yahoo.com/news/jamaica-declares-southern-state-emergency-160144623.html)
+- Aug 14 - [Former Swedish Prime Minister says Kursk invasion has changed entire political picture](https://www.yahoo.com/news/former-swedish-prime-minister-says-152401656.html)
 - Aug 14 - [Kyiv says it creates 'buffer zone' in Kursk region, plans evacuation corridors](https://www.yahoo.com/news/kyiv-says-creates-buffer-zone-150043046.html)
-- Aug 14 - ['The risks are real': Coast Guard urges people not to participate in Sunday's Float Down](https://www.yahoo.com/news/risks-real-coast-guard-urges-141850942.html)
-- Aug 14 - [Mark Cuban Recalls The Conversation That Made Him See The Truth About Trump](https://www.yahoo.com/entertainment/mark-cuban-recalls-conversation-made-133205826.html)
-- Aug 14 - [Russian lawmaker Butina says the West is 'poking the bear' with Ukraine incursion](https://www.yahoo.com/news/russian-lawmaker-butina-says-west-124244216.html)
 <!-- feed end -->
 
 ### Onstream
