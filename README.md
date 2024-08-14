@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [UCLA can't allow protesters to block Jewish students from campus, judge rules](https://www.yahoo.com/news/ucla-cant-allow-protesters-block-014458314.html)
-- Aug 14 - [Michelle Peduto, superintendent of Pittsburgh Catholic schools, dies of cancer](https://www.yahoo.com/news/michelle-peduto-superintendent-pittsburgh-catholic-013759569.html)
-- Aug 14 - [Maui judge's ruling bars insurers from going after defendants who agreed to $4B wildfire settlement](https://www.yahoo.com/news/maui-judges-ruling-bars-insurers-012005835.html)
+- Aug 14 - [FTSE 100 Live 14 August: Inflation rises in July; index poised for gains](https://finance.yahoo.com/news/ftse-100-live-uk-inflation-054640909.html)
+- Aug 14 - [A Russian lawmaker says the military knew Ukraine was planning to hit Kursk, but everyone was told 'not to panic' because 'those above know better'](https://www.yahoo.com/news/russian-lawmaker-says-military-knew-053535592.html)
 - Aug 13 - [I gave up my dream of being a doctor at a local hospital just one year out of medical school. That decision cost me close to half a million dollars, but it was worth it.](https://www.yahoo.com/lifestyle/gave-dream-being-doctor-local-234202030.html)
 - Aug 13 - [Intel sells stake in chip designer Arm Holdings](https://finance.yahoo.com/news/intel-sells-stake-chip-designer-222050360.html)
+- Aug 13 - [The Trump Campaign Just Tweeted Something Really Racist](https://www.yahoo.com/news/trump-campaign-just-tweeted-something-211358755.html)
 <!-- feed end -->
 
 ### Onstream
