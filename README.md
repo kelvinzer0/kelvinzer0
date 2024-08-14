@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [FTSE 100 Live 14 August: Inflation rises in July; index rallies](https://finance.yahoo.com/news/ftse-100-live-uk-inflation-054640909.html)
-- Aug 14 - [Residents left 'trapped' in homes after swarms of flies invade village](https://www.yahoo.com/news/residents-left-trapped-homes-swarms-073725636.html)
-- Aug 14 - [Germany asks Poland to arrest Ukrainian diver in Nord Stream probe, media reports](https://www.yahoo.com/news/germany-issues-arrest-warrant-ukrainian-064758887.html)
+- Aug 14 - [Iran’s fatal weakness has been exposed](https://www.yahoo.com/news/iran-fatal-weakness-exposed-093728263.html)
+- Aug 14 - [Poland received German request to arrest suspect in Nord Stream probe](https://www.yahoo.com/news/germany-issues-arrest-warrant-ukrainian-064758887.html)
 - Aug 14 - [A Russian lawmaker says the military knew Ukraine was planning to hit Kursk, but everyone was told 'not to panic' because 'those above know better'](https://www.yahoo.com/news/russian-lawmaker-says-military-knew-053535592.html)
 - Aug 14 - [The Taliban have ruled Afghanistan for 3 years. Here are 5 things to know](https://www.yahoo.com/news/taliban-ruled-afghanistan-3-years-041431484.html)
+- Aug 14 - ['It's monstrous': Canton dad killed in alleged neighbor dispute involving mulch](https://www.yahoo.com/news/monstrous-canton-dad-killed-alleged-031600124.html)
 <!-- feed end -->
 
 ### Onstream
