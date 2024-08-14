@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 14 - [FTSE 100 Live 14 August: Inflation rises in July; index rallies](https://finance.yahoo.com/news/ftse-100-live-uk-inflation-054640909.html)
 - Aug 14 - [Residents left 'trapped' in homes after swarms of flies invade village](https://www.yahoo.com/news/residents-left-trapped-homes-swarms-073725636.html)
-- Aug 14 - [Surprising Signs of Neanderthal Adaptability Discovered in Ancient Rock Shelter](https://www.yahoo.com/news/surprising-signs-neanderthal-adaptability-discovered-072834495.html)
+- Aug 14 - [Germany asks Poland to arrest Ukrainian diver in Nord Stream probe, media reports](https://www.yahoo.com/news/germany-issues-arrest-warrant-ukrainian-064758887.html)
 - Aug 14 - [A Russian lawmaker says the military knew Ukraine was planning to hit Kursk, but everyone was told 'not to panic' because 'those above know better'](https://www.yahoo.com/news/russian-lawmaker-says-military-knew-053535592.html)
 - Aug 14 - [The Taliban have ruled Afghanistan for 3 years. Here are 5 things to know](https://www.yahoo.com/news/taliban-ruled-afghanistan-3-years-041431484.html)
 <!-- feed end -->
