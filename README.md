@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Lexington restaurant evicted from National Avenue spot after fatal mass shooting](https://www.yahoo.com/news/lexington-restaurant-evicted-national-avenue-134702992.html)
 - Aug 14 - [Mark Cuban Recalls The Conversation That Made Him See The Truth About Trump](https://www.yahoo.com/entertainment/mark-cuban-recalls-conversation-made-133205826.html)
-- Aug 14 - [July CPI supports disinflation scenario for Sept ease](https://finance.yahoo.com/news/unsurprising-july-cpi-supports-disinflation-130218832.html)
 - Aug 14 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
 - Aug 14 - [North Korea to open border for foreign tourists in December, tour operators say](https://www.yahoo.com/news/north-korea-open-border-foreign-114448045.html)
+- Aug 14 - [World’s Top Steel Producer Warns of ‘Severe’ Industry Crisis](https://finance.yahoo.com/news/world-biggest-steel-producer-warns-032756752.html)
+- Aug 14 - [Chinese scientists say they've found a way to make hypersonic missiles skip in the sky to strike deeper. US experts aren't convinced it'll be effective.](https://www.yahoo.com/news/chinese-scientists-theyve-found-way-090316157.html)
 <!-- feed end -->
 
 ### Onstream
