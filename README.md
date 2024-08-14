@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Breaking up Google an option being considered by US, Bloomberg News reports](https://finance.yahoo.com/news/breaking-google-option-being-considered-221901956.html)
-- Aug 13 - [‘El Matador Consulting’: Former Fresno Police Chief starts new company](https://finance.yahoo.com/news/el-matador-consulting-former-fresno-205451371.html)
-- Aug 13 - [Utah woman gets plea deal after pulling teen's skirt down in viral TikTok video](https://www.yahoo.com/news/utah-woman-gets-plea-deal-204151443.html)
-- Aug 13 - [Texas judge in lawsuit by Musk's X against advertisers exits case](https://finance.yahoo.com/news/texas-judge-lawsuit-musks-x-194022978.html)
-- Aug 13 - [Indiana attorney general drops suit over privacy of Ohio girl who traveled for abortion](https://www.yahoo.com/news/indiana-attorney-general-drops-suit-185137825.html)
+- Aug 14 - [Google just held the worst product launch event of 2024](https://www.yahoo.com/tech/google-just-held-worst-product-000056454.html)
+- Aug 13 - [Ex-NFL player gets prison time in death of 5-year-old girl in Las Vegas](https://www.yahoo.com/news/ex-nfl-player-gets-prison-233433501.html)
+- Aug 13 - [Intel sells stake in chip designer Arm Holdings](https://finance.yahoo.com/news/intel-sells-stake-chip-designer-222050360.html)
+- Aug 13 - [The Trump Campaign Just Tweeted Something Really Racist](https://www.yahoo.com/news/trump-campaign-just-tweeted-something-211358755.html)
+- Aug 13 - [Festival Foods to close its Greenfield location, lay off 91 employees](https://www.yahoo.com/news/festival-foods-close-greenfield-location-205005922.html)
 <!-- feed end -->
 
 ### Onstream
