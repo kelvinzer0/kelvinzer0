@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Storm track could change, but Ernesto currently targeting Maritimes](https://www.yahoo.com/news/storm-track-could-change-ernesto-104124703.html)
-- Aug 14 - [A second Russian border region declares an emergency as Ukrainian forces press their incursion](https://www.yahoo.com/news/second-russian-border-region-declares-101416560.html)
-- Aug 14 - [What will fall weather be like for the Middle Tennessee area? Here's what Nashville can expect](https://www.yahoo.com/news/fall-weather-middle-tennessee-area-100537046.html)
-- Aug 14 - [World’s Top Steel Producer Warns of ‘Severe’ Industry Crisis](https://finance.yahoo.com/news/world-biggest-steel-producer-warns-032756752.html)
-- Aug 14 - [SoundHound AI Shares Soar on Acquisition and Strong Revenue Growth. Is It Too Late to Buy the Stock?](https://finance.yahoo.com/news/soundhound-ai-shares-soar-acquisition-080800584.html)
+- Aug 14 - [Ukraine claims more advances, prisoners taken as it presses an incursion into Russia](https://www.yahoo.com/news/second-russian-border-region-declares-101416560.html)
+- Aug 14 - [Chinese scientists say they've found a way to make hypersonic missiles skip in the sky to strike deeper. US experts aren't convinced it'll be effective.](https://www.yahoo.com/news/chinese-scientists-theyve-found-way-090316157.html)
+- Aug 14 - [No respite for Chinese officials as economy shows new signs of weakness](https://finance.yahoo.com/news/no-respite-chinese-officials-economy-070624992.html)
+- Aug 14 - [Oakland neighbors take matters into their own hands to prevent sideshows](https://www.yahoo.com/news/oakland-neighbors-matters-own-hands-061150172.html)
+- Aug 14 - [The Taliban have ruled Afghanistan for 3 years. Here are 5 things to know](https://www.yahoo.com/news/taliban-ruled-afghanistan-3-years-041431484.html)
 <!-- feed end -->
 
 ### Onstream
