@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Python hunt: Florida has dangerous animals that can kill. Here's a list of the deadliest](https://www.yahoo.com/news/python-hunt-florida-dangerous-animals-153401625.html)
+- Aug 14 - [Inflation Slipped to 2.9% in July, Keeping Fed on Track to Cut Rates](https://finance.yahoo.com/video/inflation-slipped-2-9-july-153100327.html)
+- Aug 14 - [Parvovirus B19 increasing in U.S., CDC warns. How to prevent it, recognize symptoms.](https://www.yahoo.com/news/parvovirus-b19-increasing-u-cdc-140611330.html)
 - Aug 14 - [Mark Cuban Recalls The Conversation That Made Him See The Truth About Trump](https://www.yahoo.com/entertainment/mark-cuban-recalls-conversation-made-133205826.html)
-- Aug 14 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
-- Aug 14 - [North Korea to open border for foreign tourists in December, tour operators say](https://www.yahoo.com/news/north-korea-open-border-foreign-114448045.html)
-- Aug 14 - [World’s Top Steel Producer Warns of ‘Severe’ Industry Crisis](https://finance.yahoo.com/news/world-biggest-steel-producer-warns-032756752.html)
-- Aug 14 - [Chinese scientists say they've found a way to make hypersonic missiles skip in the sky to strike deeper. US experts aren't convinced it'll be effective.](https://www.yahoo.com/news/chinese-scientists-theyve-found-way-090316157.html)
+- Aug 14 - [Russian lawmaker Butina says the West is 'poking the bear' with Ukraine incursion](https://www.yahoo.com/news/russian-lawmaker-butina-says-west-124244216.html)
 <!-- feed end -->
 
 ### Onstream
