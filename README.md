@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Ilhan Omar survives primary challenge after Bowman, Bush taken from ‘Squad’](https://www.yahoo.com/news/ilhan-omar-survives-primary-challenge-025024462.html)
 - Aug 14 - [UCLA can't allow protesters to block Jewish students from campus, judge rules](https://www.yahoo.com/news/ucla-cant-allow-protesters-block-014458314.html)
-- Aug 14 - [Maui judge's ruling bars insurers from going after defendants who agreed to $4B wildfire settlement](https://www.yahoo.com/news/maui-judges-ruling-bars-insurers-012005835.html)
+- Aug 14 - [Russia’s Aspirational Grom Combat Drone’s Design Totally Changes, Ditches Stealth For Speed](https://www.yahoo.com/news/russia-aspirational-grom-combat-drone-005226338.html)
 - Aug 14 - [New Zealand food bank distributes candy made from a potentially lethal amount of methamphetamine](https://www.yahoo.com/news/zealand-food-bank-distributes-candy-000504621.html)
-- Aug 13 - [I gave up my dream of being a doctor at a local hospital just one year out of medical school. That decision cost me close to half a million dollars, but it was worth it.](https://www.yahoo.com/lifestyle/gave-dream-being-doctor-local-234202030.html)
 - Aug 13 - [Intel sells stake in chip designer Arm Holdings](https://finance.yahoo.com/news/intel-sells-stake-chip-designer-222050360.html)
 <!-- feed end -->
 
