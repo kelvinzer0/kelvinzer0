@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Apple is reportedly forging ahead with a rotating, iPad-like tabletop device](https://www.yahoo.com/news/apple-is-reportedly-forging-ahead-with-a-rotating-ipad-like-tabletop-device-193236425.html)
+- Aug 14 - [Data to train AI models is becoming restricted. Here's why.](https://finance.yahoo.com/video/data-train-ai-models-becoming-220005477.html)
 - Aug 14 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
-- Aug 14 - [West Virginia senator removed as committee chair after indecent exposure charges](https://www.yahoo.com/news/west-virginia-senator-removed-committee-165946510.html)
+- Aug 14 - [A Charlotte company seeks to move its HQ to the Lake Norman area. Here’s what to know](https://finance.yahoo.com/news/charlotte-company-seeks-move-hq-193407941.html)
+- Aug 14 - [The owner of an MLB team is accused of taking sand from a public Malibu beach for a construction project at his posh home](https://www.yahoo.com/news/owner-mlb-team-accused-taking-181325279.html)
 - Aug 14 - [Chili’s take on the Big Mac is beating McDonald’s at its own game](https://finance.yahoo.com/news/chili-big-mac-beating-mcdonald-165804405.html)
-- Aug 14 - [Jamaica declares southern state of emergency after Sunday night killings](https://www.yahoo.com/news/jamaica-declares-southern-state-emergency-160144623.html)
 <!-- feed end -->
 
 ### Onstream
