@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Swedish EV maker Polestar starts U.S. production, avoiding heavy tariffs](https://finance.yahoo.com/news/swedish-ev-maker-polestar-starts-120333918.html)
+- Aug 14 - [Lexington restaurant evicted from National Avenue spot after fatal mass shooting](https://www.yahoo.com/news/lexington-restaurant-evicted-national-avenue-134702992.html)
+- Aug 14 - [Mark Cuban Recalls The Conversation That Made Him See The Truth About Trump](https://www.yahoo.com/entertainment/mark-cuban-recalls-conversation-made-133205826.html)
+- Aug 14 - [July CPI supports disinflation scenario for Sept ease](https://finance.yahoo.com/news/unsurprising-july-cpi-supports-disinflation-130218832.html)
+- Aug 14 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
 - Aug 14 - [North Korea to open border for foreign tourists in December, tour operators say](https://www.yahoo.com/news/north-korea-open-border-foreign-114448045.html)
-- Aug 14 - [Biden declares emergency in Puerto Rico: Follow Tropical Storm Ernesto's path](https://www.yahoo.com/news/biden-declares-emergency-puerto-rico-110858394.html)
-- Aug 14 - [NFL Star Jailed for Murder of Child Forced to Exercise for Being Overweight](https://www.yahoo.com/news/nfl-star-jailed-murder-child-093040485.html)
-- Aug 14 - [Bitcoin Miner Capitulation and Record High Hashrate Point to Possible Price Bottom: CryptoQuant](https://finance.yahoo.com/news/bitcoin-miner-capitulation-record-high-070116410.html)
 <!-- feed end -->
 
 ### Onstream
