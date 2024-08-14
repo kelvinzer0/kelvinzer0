@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Google just held the worst product launch event of 2024](https://www.yahoo.com/tech/google-just-held-worst-product-000056454.html)
-- Aug 13 - [Ex-NFL player gets prison time in death of 5-year-old girl in Las Vegas](https://www.yahoo.com/news/ex-nfl-player-gets-prison-233433501.html)
+- Aug 14 - [UCLA can't allow protesters to block Jewish students from campus, judge rules](https://www.yahoo.com/news/ucla-cant-allow-protesters-block-014458314.html)
 - Aug 13 - [Intel sells stake in chip designer Arm Holdings](https://finance.yahoo.com/news/intel-sells-stake-chip-designer-222050360.html)
 - Aug 13 - [The Trump Campaign Just Tweeted Something Really Racist](https://www.yahoo.com/news/trump-campaign-just-tweeted-something-211358755.html)
 - Aug 13 - [Festival Foods to close its Greenfield location, lay off 91 employees](https://www.yahoo.com/news/festival-foods-close-greenfield-location-205005922.html)
+- Aug 13 - [Trucking company owner pleads guilty to charges related to crash that killed 7 bikers](https://www.yahoo.com/news/trucking-company-owner-pleads-guilty-202359091.html)
 <!-- feed end -->
 
 ### Onstream
