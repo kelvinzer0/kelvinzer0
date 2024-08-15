@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Hidden-camera video shows Project 2025 co-author discussing his secret work preparing for a second Trump term](https://www.yahoo.com/news/hidden-camera-video-shows-project-141328967.html)
 - Aug 15 - [E-commerce giant Alibaba misses first-quarter revenue estimates](https://finance.yahoo.com/video/e-commerce-giant-alibaba-misses-144055642.html)
 - Aug 15 - [Medicare announces lower prices on 10 common, high-cost drugs](https://www.yahoo.com/news/first-time-medicare-cuts-prices-110000619.html)
-- Aug 15 - [Kansas City Chiefs player offers to cover $1.5M in stolen chicken wings to free woman](https://www.yahoo.com/news/kansas-city-chiefs-player-offers-130842906.html)
+- Aug 15 - [Newborn baby found in trash truck in northwest Harris County](https://www.yahoo.com/news/newborn-baby-found-trash-truck-112857531.html)
 - Aug 15 - [A doctor who says he's reversed his age by 20 years eats these 7 foods every week to boost his longevity](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-152627804.html)
-- Aug 15 - [Toyota bets big on hybrid-only models as EV demand slows](https://finance.yahoo.com/news/toyota-bets-big-hybrid-only-100315975.html)
 <!-- feed end -->
 
 ### Onstream
