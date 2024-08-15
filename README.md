@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [2.9 billion records, including Social Security numbers, stolen in data hack: What to know](https://www.yahoo.com/news/2-9-billion-records-including-133227073.html)
-- Aug 15 - [For the first time, Medicare cuts prices on 10 of the costliest medications](https://www.yahoo.com/news/first-time-medicare-cuts-prices-110000619.html)
+- Aug 15 - [E-commerce giant Alibaba misses first-quarter revenue estimates](https://finance.yahoo.com/video/e-commerce-giant-alibaba-misses-144055642.html)
+- Aug 15 - [Medicare announces lower prices on 10 common, high-cost drugs](https://www.yahoo.com/news/first-time-medicare-cuts-prices-110000619.html)
+- Aug 15 - [Kansas City Chiefs player offers to cover $1.5M in stolen chicken wings to free woman](https://www.yahoo.com/news/kansas-city-chiefs-player-offers-130842906.html)
 - Aug 15 - [A doctor who says he's reversed his age by 20 years eats these 7 foods every week to boost his longevity](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-152627804.html)
 - Aug 15 - [Toyota bets big on hybrid-only models as EV demand slows](https://finance.yahoo.com/news/toyota-bets-big-hybrid-only-100315975.html)
-- Aug 15 - [Trump is either delusional or confused. He's unfit for the White House either way](https://www.yahoo.com/news/trump-either-delusional-confused-hes-100009492.html)
 <!-- feed end -->
 
 ### Onstream
