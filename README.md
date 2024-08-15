@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Deputies arrest 21-year-old mom seen in viral video appearing to hit, scream at baby](https://www.yahoo.com/news/deputies-arrest-woman-seen-viral-212548223.html)
+- Aug 15 - [7 Obvious Signs That Tell Other People You’re Upper Middle Class](https://finance.yahoo.com/news/7-obvious-signs-tell-other-170021719.html)
+- Aug 15 - [Mom shares warning after kids' near-kidnapping caught on camera](https://www.yahoo.com/news/mom-shares-warning-kids-near-165617812.html)
 - Aug 15 - [Plumes of smoke rise from town in southern Lebanon as tensions escalate between Hezbollah and Israel](https://www.yahoo.com/news/plumes-smoke-rise-town-southern-163342661.html)
+- Aug 15 - [Facts about the Russian town of Sudza claimed by Ukraine as part of its incursion](https://www.yahoo.com/news/facts-russian-town-sudza-claimed-154906330.html)
 - Aug 15 - [Donald Trump asks judge to delay sentencing in hush money case until after November election](https://www.yahoo.com/news/donald-trump-asks-judge-delay-152104409.html)
-- Aug 15 - [Hidden-camera video shows Project 2025 co-author discussing his secret work preparing for a second Trump term](https://www.yahoo.com/news/hidden-camera-video-shows-project-141328967.html)
-- Aug 15 - [Potentially massive pay package for Starbucks new CEO, and he doesn't even have to move to Seattle](https://finance.yahoo.com/news/potentially-massive-pay-package-starbucks-134744273.html)
 <!-- feed end -->
 
 ### Onstream
