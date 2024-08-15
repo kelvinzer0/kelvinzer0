@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Russia's throwing away an advantage of the Soviet-style tank by building weird cage armor to shield them from drones](https://www.yahoo.com/news/russias-throwing-away-advantage-soviet-202124875.html)
+- Aug 15 - [12-year-old Texas girl dies after parents used smoothies to treat life-threatening injuries](https://www.yahoo.com/news/12-old-texas-girl-dies-203538520.html)
 - Aug 15 - [Soon-to-Be Jobless Biden Unloads on Trump Like Never Before](https://www.yahoo.com/news/soon-jobless-biden-unloads-trump-201336550.html)
+- Aug 15 - [Matthew Perry death: Doctor asked ‘how much will this moron pay’ for ketamine](https://www.yahoo.com/news/matthew-perry-death-doctor-asked-173511787.html)
 - Aug 15 - [Robert Griffin III reacted to his ESPN firing with the perfect meme](https://www.yahoo.com/entertainment/robert-griffin-iii-reacted-espn-195053122.html)
 - Aug 15 - [A New Virus Is Surging In The United States. Doctors Say This Is The Top Symptom To Watch Out For](https://www.yahoo.com/news/virus-surging-united-states-doctors-181600093.html)
-- Aug 15 - [Scientists discover where the huge dinosaur-killing asteroid came from](https://www.yahoo.com/lifestyle/scientists-discover-where-huge-dinosaur-180000219.html)
 <!-- feed end -->
 
 ### Onstream
