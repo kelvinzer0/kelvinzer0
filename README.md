@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [AA passengers diverted to foreign country for 14 hours: 'Everyone sat in limbo'](https://www.yahoo.com/news/aa-passengers-diverted-foreign-country-112246953.html)
+- Aug 15 - [2.9 billion records, including Social Security numbers, stolen in data hack: What to know](https://www.yahoo.com/news/2-9-billion-records-including-133227073.html)
 - Aug 15 - [For the first time, Medicare cuts prices on 10 of the costliest medications](https://www.yahoo.com/news/first-time-medicare-cuts-prices-110000619.html)
 - Aug 15 - [A doctor who says he's reversed his age by 20 years eats these 7 foods every week to boost his longevity](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-152627804.html)
+- Aug 15 - [Toyota bets big on hybrid-only models as EV demand slows](https://finance.yahoo.com/news/toyota-bets-big-hybrid-only-100315975.html)
 - Aug 15 - [Trump is either delusional or confused. He's unfit for the White House either way](https://www.yahoo.com/news/trump-either-delusional-confused-hes-100009492.html)
-- Aug 15 - [An astronaut stuck on the International Space Station due to Boeing Starliner delays is roughing it in a sleeping bag over in the Japanese space module](https://www.yahoo.com/news/astronaut-stuck-international-space-station-094255937.html)
 <!-- feed end -->
 
 ### Onstream
