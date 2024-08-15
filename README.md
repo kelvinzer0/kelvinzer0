@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Market strategist's best advice: 'Avoid the shiny object'](https://finance.yahoo.com/video/market-strategists-best-advice-avoid-100000999.html)
+- Aug 15 - [Billionaires Are Buying This Cryptocurrency That Could Soar 20,000%, According to MicroStrategy Executive Chairman Michael Saylor](https://finance.yahoo.com/news/billionaires-buying-cryptocurrency-could-soar-093000855.html)
 - Aug 15 - [A Ukrainian soldier said Russian troops in Kursk were 'sitting in the forest and drinking coffee,' unaware they were being invaded](https://www.yahoo.com/news/ukrainian-soldier-said-russian-troops-045814890.html)
-- Aug 15 - [Gunfire erupts after exchange of words on Southern California street](https://www.yahoo.com/news/gunfire-erupts-exchange-words-southern-034444417.html)
-- Aug 15 - [US Army invests billions to battle highly invasive species wreaking havoc on state waterways: 'A significant victory'](https://www.yahoo.com/news/us-army-invests-billions-battle-011500251.html)
 - Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
-- Aug 14 - [Iconic Rochester pizzeria reopening again — this time in the suburbs](https://www.yahoo.com/lifestyle/iconic-rochester-pizzeria-reopening-again-224722487.html)
+- Aug 14 - [Warren Buffett details Berkshire's Apple, Chevron and Capital One sales while also buying more Chubb](https://finance.yahoo.com/news/warren-buffett-details-berkshires-apple-224315002.html)
 <!-- feed end -->
 
 ### Onstream
