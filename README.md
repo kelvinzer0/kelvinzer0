@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [7 Obvious Signs That Tell Other People You’re Upper Middle Class](https://finance.yahoo.com/news/7-obvious-signs-tell-other-170021719.html)
-- Aug 15 - [Mom shares warning after kids' near-kidnapping caught on camera](https://www.yahoo.com/news/mom-shares-warning-kids-near-165617812.html)
-- Aug 15 - [Plumes of smoke rise from town in southern Lebanon as tensions escalate between Hezbollah and Israel](https://www.yahoo.com/news/plumes-smoke-rise-town-southern-163342661.html)
-- Aug 15 - [Facts about the Russian town of Sudza claimed by Ukraine as part of its incursion](https://www.yahoo.com/news/facts-russian-town-sudza-claimed-154906330.html)
-- Aug 15 - [Donald Trump asks judge to delay sentencing in hush money case until after November election](https://www.yahoo.com/news/donald-trump-asks-judge-delay-152104409.html)
+- Aug 15 - [Here's How Much Berkshire Hathaway Will Earn In Dividends From Its Stake In Bank Of America Stock](https://finance.yahoo.com/news/heres-much-berkshire-hathaway-earn-180013583.html)
+- Aug 15 - [Police searching for 11-year-old boy missing from Myerstown: Can you help?](https://www.yahoo.com/news/police-searching-11-old-boy-175716270.html)
+- Aug 15 - [Why Nvidia Embodies Today's Word On Wall Street](https://www.investors.com/how-to-invest/investors-corner/investing-in-stocks-stock-investing-with-three-step-routine/?src=A00220&yptr=yahoo)
+- Aug 15 - [Watch: Ukrainian armoured vehicle rams into Russian checkpoint in ‘suicide mission’](https://www.yahoo.com/news/watch-ukrainian-armoured-vehicle-rams-175000987.html)
+- Aug 15 - [Belarus' Lukashenko urges Russia and Ukraine to end war as Kursk incursion continues](https://www.yahoo.com/news/belarus-lukashenko-urges-russia-ukraine-172903667.html)
 <!-- feed end -->
 
 ### Onstream
