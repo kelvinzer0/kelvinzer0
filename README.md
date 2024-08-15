@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Data to train AI models is becoming restricted. Here's why.](https://finance.yahoo.com/video/data-train-ai-models-becoming-220005477.html)
-- Aug 14 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
-- Aug 14 - [A Charlotte company seeks to move its HQ to the Lake Norman area. Here’s what to know](https://finance.yahoo.com/news/charlotte-company-seeks-move-hq-193407941.html)
-- Aug 14 - [The owner of an MLB team is accused of taking sand from a public Malibu beach for a construction project at his posh home](https://www.yahoo.com/news/owner-mlb-team-accused-taking-181325279.html)
-- Aug 14 - [Chili’s take on the Big Mac is beating McDonald’s at its own game](https://finance.yahoo.com/news/chili-big-mac-beating-mcdonald-165804405.html)
+- Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
+- Aug 14 - [Iconic Rochester pizzeria reopening again — this time in the suburbs](https://www.yahoo.com/lifestyle/iconic-rochester-pizzeria-reopening-again-224722487.html)
+- Aug 14 - [Jekyll Island Club Resort voted No. 2 Best Destination Resort in the U.S.](https://www.yahoo.com/lifestyle/jekyll-island-club-resort-voted-215506776.html)
+- Aug 14 - [A teen was falling asleep during a courtroom field trip. She ended up in cuffs and jail clothes](https://www.yahoo.com/news/teen-falling-asleep-during-courtroom-213903240.html)
+- Aug 14 - [Mysterious black ring appears in the sky over Williamsburg](https://www.yahoo.com/news/mysterious-black-ring-appears-sky-212530161.html)
 <!-- feed end -->
 
 ### Onstream
