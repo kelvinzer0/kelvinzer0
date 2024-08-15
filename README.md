@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Deputies arrest 21-year-old mom seen in viral video appearing to hit, scream at baby](https://www.yahoo.com/news/deputies-arrest-woman-seen-viral-212548223.html)
+- Aug 15 - [Plumes of smoke rise from town in southern Lebanon as tensions escalate between Hezbollah and Israel](https://www.yahoo.com/news/plumes-smoke-rise-town-southern-163342661.html)
+- Aug 15 - [Donald Trump asks judge to delay sentencing in hush money case until after November election](https://www.yahoo.com/news/donald-trump-asks-judge-delay-152104409.html)
 - Aug 15 - [Hidden-camera video shows Project 2025 co-author discussing his secret work preparing for a second Trump term](https://www.yahoo.com/news/hidden-camera-video-shows-project-141328967.html)
-- Aug 15 - [E-commerce giant Alibaba misses first-quarter revenue estimates](https://finance.yahoo.com/video/e-commerce-giant-alibaba-misses-144055642.html)
-- Aug 15 - [Medicare announces lower prices on 10 common, high-cost drugs](https://www.yahoo.com/news/first-time-medicare-cuts-prices-110000619.html)
-- Aug 15 - [Newborn baby found in trash truck in northwest Harris County](https://www.yahoo.com/news/newborn-baby-found-trash-truck-112857531.html)
-- Aug 15 - [A doctor who says he's reversed his age by 20 years eats these 7 foods every week to boost his longevity](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-152627804.html)
+- Aug 15 - [Potentially massive pay package for Starbucks new CEO, and he doesn't even have to move to Seattle](https://finance.yahoo.com/news/potentially-massive-pay-package-starbucks-134744273.html)
 <!-- feed end -->
 
 ### Onstream
