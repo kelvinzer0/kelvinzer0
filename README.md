@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Kids Narrowly Avoid Being Hit by Flying Backyard Pool During Deadly Storm](https://www.yahoo.com/news/backyard-pool-goes-flying-narrowly-163055642.html)
+- Aug 15 - [A Ukrainian soldier said Russian troops in Kursk were 'sitting in the forest and drinking coffee,' unaware they were being invaded](https://www.yahoo.com/news/ukrainian-soldier-said-russian-troops-045814890.html)
 - Aug 15 - [Ukraine gambled on an incursion deep into Russian territory. The bold move changed the battlefield](https://www.yahoo.com/news/ukraine-gambled-incursion-deep-russian-042802109.html)
-- Aug 15 - [US Army invests billions to battle highly invasive species wreaking havoc on state waterways: 'A significant victory'](https://www.yahoo.com/news/us-army-invests-billions-battle-011500251.html)
+- Aug 15 - [Gunfire erupts after exchange of words on Southern California street](https://www.yahoo.com/news/gunfire-erupts-exchange-words-southern-034444417.html)
 - Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
-- Aug 14 - [Now JD Vance Accused of Dissing All ‘Postmenopausal’ Women](https://www.yahoo.com/news/vance-runs-resurfaced-podcast-chat-235208921.html)
-- Aug 14 - [Warren Buffett details Berkshire's Apple, Chevron and Capital One sales while also buying more Chubb](https://finance.yahoo.com/news/warren-buffett-details-berkshires-apple-224315002.html)
 <!-- feed end -->
 
 ### Onstream
