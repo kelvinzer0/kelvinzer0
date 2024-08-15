@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [‘Like a bomb exploding.’ Witness details personal watercraft crashing in Florida Keys](https://www.yahoo.com/news/bomb-exploding-witness-details-personal-191438518.html)
+- Aug 15 - [Russia's throwing away an advantage of the Soviet-style tank by building weird cage armor to shield them from drones](https://www.yahoo.com/news/russias-throwing-away-advantage-soviet-202124875.html)
+- Aug 15 - [Soon-to-Be Jobless Biden Unloads on Trump Like Never Before](https://www.yahoo.com/news/soon-jobless-biden-unloads-trump-201336550.html)
+- Aug 15 - [Robert Griffin III reacted to his ESPN firing with the perfect meme](https://www.yahoo.com/entertainment/robert-griffin-iii-reacted-espn-195053122.html)
 - Aug 15 - [A New Virus Is Surging In The United States. Doctors Say This Is The Top Symptom To Watch Out For](https://www.yahoo.com/news/virus-surging-united-states-doctors-181600093.html)
 - Aug 15 - [Scientists discover where the huge dinosaur-killing asteroid came from](https://www.yahoo.com/lifestyle/scientists-discover-where-huge-dinosaur-180000219.html)
-- Aug 15 - [Watch: Ukrainian armoured vehicle rams into Russian checkpoint in ‘suicide mission’](https://www.yahoo.com/news/watch-ukrainian-armoured-vehicle-rams-175000987.html)
-- Aug 15 - [Belarus' Lukashenko urges Russia and Ukraine to end war as Kursk incursion continues](https://www.yahoo.com/news/belarus-lukashenko-urges-russia-ukraine-172903667.html)
 <!-- feed end -->
 
 ### Onstream
