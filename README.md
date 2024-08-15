@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [How the empire that Google built could be remade following monopoly ruling](https://finance.yahoo.com/news/how-the-empire-that-google-built-could-be-remade-following-monopoly-ruling-080024368.html)
-- Aug 15 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
-- Aug 14 - [Lawyer for teacher on trial for sexual relationship with recent graduate argues 'no exploitation'](https://www.yahoo.com/news/lawyer-teacher-trial-sexual-relationship-230317238.html)
-- Aug 14 - [Warren Buffett details Berkshire's Apple, Chevron and Capital One sales while also buying more Chubb](https://finance.yahoo.com/news/warren-buffett-details-berkshires-apple-224315002.html)
-- Aug 14 - [Two French pilots die after Rafale jets collide mid-air](https://www.yahoo.com/news/two-french-pilots-die-rafale-221436162.html)
+- Aug 15 - [A Ukrainian soldier said Russian troops in Kursk were 'sitting in the forest and drinking coffee,' unaware they were being invaded](https://www.yahoo.com/news/ukrainian-soldier-said-russian-troops-045814890.html)
+- Aug 15 - [Gunfire erupts after exchange of words on Southern California street](https://www.yahoo.com/news/gunfire-erupts-exchange-words-southern-034444417.html)
+- Aug 15 - [US Army invests billions to battle highly invasive species wreaking havoc on state waterways: 'A significant victory'](https://www.yahoo.com/news/us-army-invests-billions-battle-011500251.html)
+- Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
+- Aug 14 - [Iconic Rochester pizzeria reopening again — this time in the suburbs](https://www.yahoo.com/lifestyle/iconic-rochester-pizzeria-reopening-again-224722487.html)
 <!-- feed end -->
 
 ### Onstream
