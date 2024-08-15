@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Black box shows Brazil plane crashed 1 minute after pilots sensed trouble, local media says](https://www.yahoo.com/news/black-box-shows-brazil-plane-012404634.html)
+- Aug 15 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
 - Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
+- Aug 14 - [Now JD Vance Accused of Dissing All ‘Postmenopausal’ Women](https://www.yahoo.com/news/vance-runs-resurfaced-podcast-chat-235208921.html)
 - Aug 14 - [Iconic Rochester pizzeria reopening again — this time in the suburbs](https://www.yahoo.com/lifestyle/iconic-rochester-pizzeria-reopening-again-224722487.html)
-- Aug 14 - [Jekyll Island Club Resort voted No. 2 Best Destination Resort in the U.S.](https://www.yahoo.com/lifestyle/jekyll-island-club-resort-voted-215506776.html)
-- Aug 14 - [A teen was falling asleep during a courtroom field trip. She ended up in cuffs and jail clothes](https://www.yahoo.com/news/teen-falling-asleep-during-courtroom-213903240.html)
-- Aug 14 - [Mysterious black ring appears in the sky over Williamsburg](https://www.yahoo.com/news/mysterious-black-ring-appears-sky-212530161.html)
 <!-- feed end -->
 
 ### Onstream
