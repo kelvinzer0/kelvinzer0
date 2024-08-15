@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 15 - [Black box shows Brazil plane crashed 1 minute after pilots sensed trouble, local media says](https://www.yahoo.com/news/black-box-shows-brazil-plane-012404634.html)
-- Aug 15 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
-- Aug 14 - [Iconic Rochester pizzeria reopening again — this time in the suburbs](https://www.yahoo.com/lifestyle/iconic-rochester-pizzeria-reopening-again-224722487.html)
-- Aug 14 - [Warren Buffett details Berkshire's Apple, Chevron and Capital One sales while also buying more Chubb](https://finance.yahoo.com/news/warren-buffett-details-berkshires-apple-224315002.html)
 - Aug 14 - [Two French pilots die after Rafale jets collide mid-air](https://www.yahoo.com/news/two-french-pilots-die-rafale-221436162.html)
+- Aug 14 - [Kids Run Home After Man Tries to Lure Them Into SUV](https://www.yahoo.com/news/kids-run-home-man-tries-220359675.html)
+- Aug 14 - [Mysterious black ring appears in the sky over Williamsburg](https://www.yahoo.com/news/mysterious-black-ring-appears-sky-212530161.html)
+- Aug 14 - [Dividend Investor Who Earns $4000 Per Month Shares His Top 7 Portfolio Holdings](https://finance.yahoo.com/news/dividend-investor-earns-4000-per-210013129.html)
 <!-- feed end -->
 
 ### Onstream
