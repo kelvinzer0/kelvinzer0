@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 15 - [Black box shows Brazil plane crashed 1 minute after pilots sensed trouble, local media says](https://www.yahoo.com/news/black-box-shows-brazil-plane-012404634.html)
 - Aug 15 - [Disney wants wrongful death suit thrown out because widower bought an Epcot ticket and had Disney+](https://finance.yahoo.com/news/disney-wants-wrongful-death-suit-122348551.html)
-- Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
-- Aug 14 - [Now JD Vance Accused of Dissing All ‘Postmenopausal’ Women](https://www.yahoo.com/news/vance-runs-resurfaced-podcast-chat-235208921.html)
 - Aug 14 - [Iconic Rochester pizzeria reopening again — this time in the suburbs](https://www.yahoo.com/lifestyle/iconic-rochester-pizzeria-reopening-again-224722487.html)
+- Aug 14 - [Warren Buffett details Berkshire's Apple, Chevron and Capital One sales while also buying more Chubb](https://finance.yahoo.com/news/warren-buffett-details-berkshires-apple-224315002.html)
+- Aug 14 - [Two French pilots die after Rafale jets collide mid-air](https://www.yahoo.com/news/two-french-pilots-die-rafale-221436162.html)
 <!-- feed end -->
 
 ### Onstream
