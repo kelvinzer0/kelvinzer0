@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Black box shows Brazil plane crashed 1 minute after pilots sensed trouble, local media says](https://www.yahoo.com/news/black-box-shows-brazil-plane-012404634.html)
-- Aug 14 - [Two French pilots die after Rafale jets collide mid-air](https://www.yahoo.com/news/two-french-pilots-die-rafale-221436162.html)
-- Aug 14 - [Kids Run Home After Man Tries to Lure Them Into SUV](https://www.yahoo.com/news/kids-run-home-man-tries-220359675.html)
-- Aug 14 - [Mysterious black ring appears in the sky over Williamsburg](https://www.yahoo.com/news/mysterious-black-ring-appears-sky-212530161.html)
-- Aug 14 - [Dividend Investor Who Earns $4000 Per Month Shares His Top 7 Portfolio Holdings](https://finance.yahoo.com/news/dividend-investor-earns-4000-per-210013129.html)
+- Aug 15 - [Ukraine gambled on an incursion deep into Russian territory. The bold move changed the battlefield](https://www.yahoo.com/news/ukraine-gambled-incursion-deep-russian-042802109.html)
+- Aug 15 - [US Army invests billions to battle highly invasive species wreaking havoc on state waterways: 'A significant victory'](https://www.yahoo.com/news/us-army-invests-billions-battle-011500251.html)
+- Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
+- Aug 14 - [Now JD Vance Accused of Dissing All ‘Postmenopausal’ Women](https://www.yahoo.com/news/vance-runs-resurfaced-podcast-chat-235208921.html)
+- Aug 14 - [Warren Buffett details Berkshire's Apple, Chevron and Capital One sales while also buying more Chubb](https://finance.yahoo.com/news/warren-buffett-details-berkshires-apple-224315002.html)
 <!-- feed end -->
 
 ### Onstream
