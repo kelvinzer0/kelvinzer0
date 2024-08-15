@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Market strategist's best advice: 'Avoid the shiny object'](https://finance.yahoo.com/video/market-strategists-best-advice-avoid-100000999.html)
-- Aug 15 - [Billionaires Are Buying This Cryptocurrency That Could Soar 20,000%, According to MicroStrategy Executive Chairman Michael Saylor](https://finance.yahoo.com/news/billionaires-buying-cryptocurrency-could-soar-093000855.html)
+- Aug 15 - [A doctor who says he's reversed his age by 20 years eats these 7 foods every week to boost his longevity](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-152627804.html)
+- Aug 15 - [An astronaut stuck on the International Space Station due to Boeing Starliner delays is roughing it in a sleeping bag over in the Japanese space module](https://www.yahoo.com/news/astronaut-stuck-international-space-station-094255937.html)
+- Aug 15 - [Interest Rates Are About to Do Something They Haven't Done Since March 2020, and It Could Trigger a Big Move in the Stock Market](https://finance.yahoo.com/news/interest-rates-something-havent-done-085500772.html)
 - Aug 15 - [A Ukrainian soldier said Russian troops in Kursk were 'sitting in the forest and drinking coffee,' unaware they were being invaded](https://www.yahoo.com/news/ukrainian-soldier-said-russian-troops-045814890.html)
-- Aug 15 - [Trump's North Carolina speech went predictably off the rails. Can he even spell 'economy'?](https://www.yahoo.com/news/trumps-north-carolina-speech-went-000008469.html)
-- Aug 14 - [Warren Buffett details Berkshire's Apple, Chevron and Capital One sales while also buying more Chubb](https://finance.yahoo.com/news/warren-buffett-details-berkshires-apple-224315002.html)
+- Aug 15 - [US Army invests billions to battle highly invasive species wreaking havoc on state waterways: 'A significant victory'](https://www.yahoo.com/news/us-army-invests-billions-battle-011500251.html)
 <!-- feed end -->
 
 ### Onstream
