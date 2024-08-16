@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Ukraine incursion destroys key Russian bridge](https://www.yahoo.com/news/ukraine-incursion-destroys-key-russian-182646911.html)
-- Aug 16 - [This Eye Doctor Is Revealing The Absolute Worst Thing You Can Do For Your Eyes, And It's Really Bad](https://www.yahoo.com/lifestyle/eye-doctor-revealing-absolute-worst-172758300.html)
-- Aug 16 - [A Boise couple in their 60s lived in an RV on a home’s property. Then someone complained](https://www.yahoo.com/news/boise-couple-60s-lived-rv-171215611.html)
-- Aug 16 - [Tennessee family's lawsuit says video long kept from them shows police force, not drugs, killed son](https://www.yahoo.com/news/tennessee-familys-lawsuit-says-video-165027048.html)
-- Aug 16 - [Romanian gymnast Ana Bărbosu gets Olympic medal amid Jordan Chiles controversy](https://sports.yahoo.com/romanian-gymnast-ana-b-rbosu-160855325.html)
+- Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
+- Aug 16 - [8 States That Could Suffer the Most From a Trump Presidency](https://finance.yahoo.com/news/8-states-could-suffer-most-193837424.html)
+- Aug 16 - [Delta says it's reviewing how man boarded wrong flight. A family says he was following them](https://www.yahoo.com/news/delta-says-reviewing-man-boarded-184910180.html)
+- Aug 16 - [Cain Velasquez cuts deal, pleads no contest to attempted murder, gun charges](https://www.yahoo.com/news/cain-velasquez-cuts-deal-pleads-184512476.html)
+- Aug 16 - [New California laws aim to reduce smash-and-grab robberies, car thefts and shoplifting](https://www.yahoo.com/news/california-laws-aim-reduce-smash-175215943.html)
 <!-- feed end -->
 
 ### Onstream
