@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Ukrainian forces left a path of destruction on their march to the Russian town of Sudzha](https://www.yahoo.com/news/ukrainian-forces-left-path-destruction-205647913.html)
 - Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
 - Aug 16 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- Aug 16 - [A sandwich restaurant in the Market Common area closed. It’s unclear why](https://www.yahoo.com/news/sandwich-restaurant-market-common-area-194132967.html)
 - Aug 16 - [Exclusive-Boeing, Lockheed Martin in talks to sell rocket-launch firm ULA to Sierra Space](https://finance.yahoo.com/news/exclusive-boeing-lockheed-martin-talks-192615901.html)
-- Aug 16 - [New Hampshire highway closed for hours after crash leaves logging truck hanging over wall](https://www.yahoo.com/news/hampshire-highway-closed-crash-leaves-124932044.html)
-- Aug 16 - [Massive data breach that includes Social Security numbers may be even worse than suspected](https://www.yahoo.com/news/massive-data-breach-includes-social-185601458.html)
 <!-- feed end -->
 
 ### Onstream
