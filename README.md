@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 16 - [Round 2 of US Rep. Gaetz vs. former Speaker McCarthy plays out in Florida GOP primary](https://www.yahoo.com/news/round-2-us-rep-gaetz-040311985.html)
+- Aug 16 - [People Are Revealing The Subtle Everyday Signs That Scream "I'm Not Feeling Good Mentally"](https://www.yahoo.com/lifestyle/people-revealing-subtle-everyday-signs-031502637.html)
 - Aug 16 - [Nevada gaming regulators accuse Resorts World casino of accommodating illegal gambling](https://www.yahoo.com/news/nevada-gaming-regulators-accuse-resorts-025133667.html)
-- Aug 16 - [Supercarrier USS George H.W. Bush Now Has First Of its Kind Drone Control Center](https://www.yahoo.com/news/supercarrier-uss-george-h-w-011616791.html)
-- Aug 16 - [When The Pandemic Came, Zoos Shut, And Animals Began to Act Differently](https://www.yahoo.com/news/pandemic-came-zoos-shut-animals-005825950.html)
-- Aug 16 - [Backyard stargazers find object moving 1 million mph](https://www.yahoo.com/news/backyard-stargazers-object-moving-1-000901922.html)
+- Aug 15 - [If Someone Uses These 7 Phrases, They May Be Trying to Control You, According to Psychologists](https://www.yahoo.com/lifestyle/someone-uses-7-phrases-may-231000561.html)
+- Aug 15 - [College Student Pleads Guilty to Assault After Racist Attack](https://www.yahoo.com/news/college-student-pleads-guilty-assault-223853718.html)
 <!-- feed end -->
 
 ### Onstream
