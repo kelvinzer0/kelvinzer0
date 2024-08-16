@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
-- Aug 16 - [8 States That Could Suffer the Most From a Trump Presidency](https://finance.yahoo.com/news/8-states-could-suffer-most-193837424.html)
-- Aug 16 - [Delta says it's reviewing how man boarded wrong flight. A family says he was following them](https://www.yahoo.com/news/delta-says-reviewing-man-boarded-184910180.html)
-- Aug 16 - [Cain Velasquez cuts deal, pleads no contest to attempted murder, gun charges](https://www.yahoo.com/news/cain-velasquez-cuts-deal-pleads-184512476.html)
-- Aug 16 - [New California laws aim to reduce smash-and-grab robberies, car thefts and shoplifting](https://www.yahoo.com/news/california-laws-aim-reduce-smash-175215943.html)
+- Aug 16 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- Aug 16 - [Exclusive-Boeing, Lockheed Martin in talks to sell rocket-launch firm ULA to Sierra Space](https://finance.yahoo.com/news/exclusive-boeing-lockheed-martin-talks-192615901.html)
+- Aug 16 - [New Hampshire highway closed for hours after crash leaves logging truck hanging over wall](https://www.yahoo.com/news/hampshire-highway-closed-crash-leaves-124932044.html)
+- Aug 16 - [Massive data breach that includes Social Security numbers may be even worse than suspected](https://www.yahoo.com/news/massive-data-breach-includes-social-185601458.html)
 <!-- feed end -->
 
 ### Onstream
