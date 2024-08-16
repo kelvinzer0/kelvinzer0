@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [A guide to ketamine and how it can be used to treat depression](https://www.yahoo.com/news/know-ketamine-why-nhs-prescribing-110000846.html)
-- Aug 16 - [Forget Devon Energy: Buy This Magnificent High-Yield Stock Instead](https://finance.yahoo.com/news/forget-devon-energy-buy-magnificent-073900966.html)
+- Aug 16 - [Belarus says there is a high chance of armed provocation from Ukraine](https://www.yahoo.com/news/belarus-warns-high-chance-armed-092210922.html)
+- Aug 16 - [Warren Buffett's Once-Silent Warning to Wall Street Has Turned Into a $277 Billion Deafening Roar](https://finance.yahoo.com/news/warren-buffetts-once-silent-warning-090600423.html)
+- Aug 16 - [Nancy Mace Claims Kamala Harris 'Doesn't Know What A Woman Is' In Train Wreck CNN Appearance](https://www.yahoo.com/news/nancy-mace-claims-kamala-harris-055105035.html)
+- Aug 16 - [Russian MP says Ukrainian incursion could lead to global war, RIA reports](https://www.yahoo.com/news/russian-mp-says-ukrainian-incursion-044439058.html)
 - Aug 16 - [Round 2 of US Rep. Gaetz vs. former Speaker McCarthy plays out in Florida GOP primary](https://www.yahoo.com/news/round-2-us-rep-gaetz-040311985.html)
-- Aug 16 - [I thought I had the flu. It was a rare reaction to a medication that almost killed me](https://www.yahoo.com/lifestyle/thought-had-flu-rare-reaction-001913996.html)
-- Aug 15 - [If Someone Uses These 7 Phrases, They May Be Trying to Control You, According to Psychologists](https://www.yahoo.com/lifestyle/someone-uses-7-phrases-may-231000561.html)
 <!-- feed end -->
 
 ### Onstream
