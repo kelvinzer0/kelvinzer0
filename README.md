@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - ['Chickens have come home to roost': Mounting criticism over Canada's low-wage temporary foreign worker program](https://finance.yahoo.com/news/chickens-have-come-home-to-roost-mounting-criticism-over-canadas-low-wage-temporary-foreign-worker-program-151122458.html)
-- Aug 16 - [Turkish MPs brawl during debate on jailed opposition lawmaker](https://www.yahoo.com/news/turkish-mps-brawl-during-debate-141854588.html)
-- Aug 16 - [New Hampshire highway closed after crash leaves logging truck hanging over wall](https://www.yahoo.com/news/hampshire-highway-closed-crash-leaves-124932044.html)
-- Aug 16 - [Philippines says China was `dramatically' alarmed over US missile system deployed to its north](https://www.yahoo.com/news/philippines-says-china-dramatically-alarmed-124906825.html)
-- Aug 16 - [Belarus says there is a high chance of armed provocation from Ukraine](https://www.yahoo.com/news/belarus-warns-high-chance-armed-092210922.html)
+- Aug 16 - [Woman charged with trying to defraud Elvis Presley's family through sale of iconic Graceland](https://www.yahoo.com/news/woman-charged-trying-defraud-elvis-154149035.html)
+- Aug 16 - [Everyone Is Pointing Out The Unfortunate Newspaper Headline In JD Vance And Mike Waltz's Mountain Dew Picture](https://www.yahoo.com/entertainment/everyone-pointing-unfortunate-newspaper-headline-142251561.html)
+- Aug 16 - [Ford recalling about 85,000 Explorer police vehicles because of potential for an engine fire](https://www.yahoo.com/news/ford-recalling-85-000-explorer-133158406.html)
+- Aug 16 - [Beryl developed in the Atlantic Ocean and is shifting toward the Caribbean Sea](https://www.yahoo.com/news/beryl-developed-atlantic-ocean-shifting-122201923.html)
+- Aug 16 - [Construction problem stalled work on new hilltop hotel in Paso Robles. When will it open?](https://www.yahoo.com/news/construction-problem-stalled-hilltop-hotel-120000017.html)
 <!-- feed end -->
 
 ### Onstream
