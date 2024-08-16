@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Israel asks Gaza civilians to flee, US 'appalled' by settler violence](https://www.yahoo.com/news/israel-asks-gaza-civilians-flee-114123066.html)
+- Aug 16 - [Philippines says China was `dramatically' alarmed over US missile system deployed to its north](https://www.yahoo.com/news/philippines-says-china-dramatically-alarmed-124906825.html)
+- Aug 16 - [Biden/Harris swap revealed a truth about 2024 campaign, and it’s bad news for Trump | Opinion](https://www.yahoo.com/news/biden-harris-swap-revealed-truth-103500568.html)
+- Aug 16 - [The hidden risk behind tech giants dominating S&P 500](https://finance.yahoo.com/video/hidden-risk-behind-tech-giants-103006589.html)
 - Aug 16 - [Belarus says there is a high chance of armed provocation from Ukraine](https://www.yahoo.com/news/belarus-warns-high-chance-armed-092210922.html)
-- Aug 16 - [Nancy Mace Claims Kamala Harris 'Doesn't Know What A Woman Is' In Train Wreck CNN Appearance](https://www.yahoo.com/news/nancy-mace-claims-kamala-harris-055105035.html)
 - Aug 16 - [Round 2 of US Rep. Gaetz vs. former Speaker McCarthy plays out in Florida GOP primary](https://www.yahoo.com/news/round-2-us-rep-gaetz-040311985.html)
-- Aug 16 - [Nevada gaming regulators accuse Resorts World casino of accommodating illegal gambling](https://www.yahoo.com/news/nevada-gaming-regulators-accuse-resorts-025133667.html)
 <!-- feed end -->
 
 ### Onstream
