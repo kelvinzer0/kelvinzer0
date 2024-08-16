@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Romanian gymnast Ana Bărbosu gets Olympic medal amid Jordan Chiles controversy](https://sports.yahoo.com/romanian-gymnast-ana-b-rbosu-160855325.html)
+- Aug 16 - [Pilot dies in plane crash at French air show](https://www.yahoo.com/news/plane-crashes-sea-during-french-164025256.html)
+- Aug 16 - [Rail bridge collapses on US-Canada border](https://www.yahoo.com/news/rail-bridge-collapses-us-canada-164918978.html)
+- Aug 16 - [Europe warned to prepare for mpox as Pakistan reports first case](https://www.yahoo.com/news/europe-warned-prepare-mpox-pakistan-162445745.html)
 - Aug 16 - [Woman charged with trying to defraud Elvis Presley's family through sale of Graceland](https://www.yahoo.com/news/woman-charged-trying-defraud-elvis-154149035.html)
-- Aug 16 - [Everyone Is Pointing Out The Unfortunate Newspaper Headline In JD Vance And Mike Waltz's Mountain Dew Picture](https://www.yahoo.com/entertainment/everyone-pointing-unfortunate-newspaper-headline-142251561.html)
-- Aug 16 - [Scaramucci: Trump ‘coming to grips’ with defeat, ‘growing darker’](https://www.yahoo.com/news/scaramucci-trump-coming-grips-defeat-133536663.html)
-- Aug 16 - [Ford recalling about 85,000 Explorer police vehicles because of potential for an engine fire](https://www.yahoo.com/news/ford-recalling-85-000-explorer-133158406.html)
+- Aug 16 - [14 sobriety checkpoints this weekend: Here’s where](https://www.yahoo.com/news/sobriety-checkpoints-weekend-where-121150131.html)
 <!-- feed end -->
 
 ### Onstream
