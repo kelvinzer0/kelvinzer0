@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Round 2 of US Rep. Gaetz vs. former Speaker McCarthy plays out in Florida GOP primary](https://www.yahoo.com/news/round-2-us-rep-gaetz-040311985.html)
+- Aug 16 - [People Are Revealing The Subtle Everyday Signs That Scream "I'm Not Feeling Good Mentally"](https://www.yahoo.com/lifestyle/people-revealing-subtle-everyday-signs-031502637.html)
 - Aug 16 - [Nevada gaming regulators accuse Resorts World casino of accommodating illegal gambling](https://www.yahoo.com/news/nevada-gaming-regulators-accuse-resorts-025133667.html)
-- Aug 16 - [I thought I had the flu. It was a rare reaction to a medication that almost killed me](https://www.yahoo.com/lifestyle/thought-had-flu-rare-reaction-001913996.html)
+- Aug 16 - [Supercarrier USS George H.W. Bush Now Has First Of its Kind Drone Control Center](https://www.yahoo.com/news/supercarrier-uss-george-h-w-011616791.html)
 - Aug 15 - [College Student Pleads Guilty to Assault After Racist Attack](https://www.yahoo.com/news/college-student-pleads-guilty-assault-223853718.html)
-- Aug 15 - [“This Has Been Going On And On”: CNN Cuts Away From Donald Trump Press Conference As Former President Makes Marathon Opening Statement — Update](https://www.yahoo.com/news/going-cnn-cuts-away-donald-213023198.html)
-- Aug 15 - [Congresswoman Anna Paulina Luna addresses viral MAGA swimsuit video](https://www.yahoo.com/entertainment/congresswoman-anna-paulina-luna-addresses-205600931.html)
 <!-- feed end -->
 
 ### Onstream
