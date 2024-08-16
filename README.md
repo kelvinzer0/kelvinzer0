@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - ['Chickens have come home to roost': Mounting criticism over Canada's low-wage temporary foreign worker program](https://finance.yahoo.com/news/chickens-have-come-home-to-roost-mounting-criticism-over-canadas-low-wage-temporary-foreign-worker-program-151122458.html)
+- Aug 16 - [Turkish MPs brawl during debate on jailed opposition lawmaker](https://www.yahoo.com/news/turkish-mps-brawl-during-debate-141854588.html)
+- Aug 16 - [New Hampshire highway closed after crash leaves logging truck hanging over wall](https://www.yahoo.com/news/hampshire-highway-closed-crash-leaves-124932044.html)
 - Aug 16 - [Philippines says China was `dramatically' alarmed over US missile system deployed to its north](https://www.yahoo.com/news/philippines-says-china-dramatically-alarmed-124906825.html)
-- Aug 16 - [Biden/Harris swap revealed a truth about 2024 campaign, and it’s bad news for Trump | Opinion](https://www.yahoo.com/news/biden-harris-swap-revealed-truth-103500568.html)
-- Aug 16 - [The hidden risk behind tech giants dominating S&P 500](https://finance.yahoo.com/video/hidden-risk-behind-tech-giants-103006589.html)
 - Aug 16 - [Belarus says there is a high chance of armed provocation from Ukraine](https://www.yahoo.com/news/belarus-warns-high-chance-armed-092210922.html)
-- Aug 16 - [Round 2 of US Rep. Gaetz vs. former Speaker McCarthy plays out in Florida GOP primary](https://www.yahoo.com/news/round-2-us-rep-gaetz-040311985.html)
 <!-- feed end -->
 
 ### Onstream
