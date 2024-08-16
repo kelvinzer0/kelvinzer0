@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - ['They are failing to deliver:' St. Johns County neighbors furious over trash troubles](https://www.yahoo.com/news/failing-deliver-st-johns-county-013826073.html)
-- Aug 15 - [Biden Hits Trump With A New Nickname, Slams GOP For Refusing To Lower Drug Prices](https://www.yahoo.com/news/biden-hits-trump-nickname-slams-222419224.html)
+- Aug 16 - [Dow Jones Futures: Market Sends Clear Message, Are You Listening? Nvidia, Meta, Tesla Lead New Buys](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-meta-tesla-buys/?src=A00220&yptr=yahoo)
+- Aug 15 - [Cougar spotted climbing trees, roaming yards in South Eugene](https://www.yahoo.com/news/cougar-spotted-climbing-trees-roaming-230217093.html)
+- Aug 15 - [College Student Pleads Guilty to Assault After Racist Attack](https://www.yahoo.com/news/college-student-pleads-guilty-assault-223853718.html)
+- Aug 15 - [“This Has Been Going On And On”: CNN Cuts Away From Donald Trump Press Conference As Former President Makes Marathon Opening Statement — Update](https://www.yahoo.com/news/going-cnn-cuts-away-donald-213023198.html)
 - Aug 15 - [Man who terrorized neighbors explodes at wife of victim during sentencing. He got life](https://www.yahoo.com/news/man-terrorized-neighbors-explodes-wife-205453665.html)
-- Aug 15 - [Russia's throwing away an advantage of the Soviet-style tank by building weird cage armor to shield them from drones](https://www.yahoo.com/news/russias-throwing-away-advantage-soviet-202124875.html)
-- Aug 15 - [Soon-to-Be Jobless Biden Unloads on Trump Like Never Before](https://www.yahoo.com/news/soon-jobless-biden-unloads-trump-201336550.html)
 <!-- feed end -->
 
 ### Onstream
