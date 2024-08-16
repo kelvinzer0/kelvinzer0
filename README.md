@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Mexico's truth commission reveals new evidence of ‘death flights’ during 1965-1990 'dirty war'](https://www.yahoo.com/news/mexicos-truth-commission-reveals-evidence-064610872.html)
+- Aug 16 - [Tennessee Guardsman found dead and bound with zip ties in 2019 was shot over custody dispute, authorities say](https://www.yahoo.com/news/tennessee-guardsman-found-dead-bound-050912009.html)
 - Aug 16 - [Round 2 of US Rep. Gaetz vs. former Speaker McCarthy plays out in Florida GOP primary](https://www.yahoo.com/news/round-2-us-rep-gaetz-040311985.html)
+- Aug 16 - [Nevada gaming regulators accuse Resorts World casino of accommodating illegal gambling](https://www.yahoo.com/news/nevada-gaming-regulators-accuse-resorts-025133667.html)
 - Aug 16 - [Supercarrier USS George H.W. Bush Now Has First Of its Kind Drone Control Center](https://www.yahoo.com/news/supercarrier-uss-george-h-w-011616791.html)
-- Aug 15 - [Cougar spotted climbing trees, roaming yards in South Eugene](https://www.yahoo.com/news/cougar-spotted-climbing-trees-roaming-230217093.html)
-- Aug 15 - [Florida Python hunter recounts bloody battle: “She got me, son”](https://www.yahoo.com/news/florida-python-hunter-recounts-bloody-212625248.html)
-- Aug 15 - [A rarely seen deep sea fish is found in California, and scientists want to know why](https://www.yahoo.com/news/rarely-seen-deep-sea-fish-202035589.html)
 <!-- feed end -->
 
 ### Onstream
