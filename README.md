@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [A guide to ketamine and how it can be used to treat depression](https://www.yahoo.com/news/know-ketamine-why-nhs-prescribing-110000846.html)
+- Aug 16 - [Forget Devon Energy: Buy This Magnificent High-Yield Stock Instead](https://finance.yahoo.com/news/forget-devon-energy-buy-magnificent-073900966.html)
 - Aug 16 - [Round 2 of US Rep. Gaetz vs. former Speaker McCarthy plays out in Florida GOP primary](https://www.yahoo.com/news/round-2-us-rep-gaetz-040311985.html)
-- Aug 16 - [People Are Revealing The Subtle Everyday Signs That Scream "I'm Not Feeling Good Mentally"](https://www.yahoo.com/lifestyle/people-revealing-subtle-everyday-signs-031502637.html)
-- Aug 16 - [Nevada gaming regulators accuse Resorts World casino of accommodating illegal gambling](https://www.yahoo.com/news/nevada-gaming-regulators-accuse-resorts-025133667.html)
+- Aug 16 - [I thought I had the flu. It was a rare reaction to a medication that almost killed me](https://www.yahoo.com/lifestyle/thought-had-flu-rare-reaction-001913996.html)
 - Aug 15 - [If Someone Uses These 7 Phrases, They May Be Trying to Control You, According to Psychologists](https://www.yahoo.com/lifestyle/someone-uses-7-phrases-may-231000561.html)
-- Aug 15 - [College Student Pleads Guilty to Assault After Racist Attack](https://www.yahoo.com/news/college-student-pleads-guilty-assault-223853718.html)
 <!-- feed end -->
 
 ### Onstream
