@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - ['Incredibly rare' dead sea serpent surfaces in California waters; just 1 of 20 since 1901](https://www.yahoo.com/news/incredibly-rare-dead-sea-serpent-225834055.html)
-- Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
 - Aug 16 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
-- Aug 16 - [Ed Daniels, legendary WGNO Sports Director, dies at 67](https://www.yahoo.com/news/ed-daniels-legendary-wgno-sports-212555836.html)
-- Aug 16 - [Watch: Black bear crashes Gatlinburg family deck gathering. 'Honey, you gotta go!'](https://www.yahoo.com/news/watch-black-bear-crashes-gatlinburg-201116052.html)
+- Aug 16 - [New Twist in Death of Woman on Airport Luggage Carousel](https://www.yahoo.com/news/woman-dead-five-hours-chicago-221544349.html)
+- Aug 16 - [Heroic dog who alerted family in Morrison house fire found dead days later](https://www.yahoo.com/news/heroic-dog-alerted-family-morrison-205109295.html)
+- Aug 16 - [RFK Jr. stuck his hand in the Central Park bear's mouth. Necropsy shows he may have been knuckle-deep in her leaked brain.](https://www.yahoo.com/news/rfk-jr-stuck-hand-central-204358044.html)
+- Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
 <!-- feed end -->
 
 ### Onstream
