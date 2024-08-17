@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 17 - [‘Bikini airline’ tycoon faces multi-million pound fine after losing High Court case](https://www.yahoo.com/news/bikini-airline-tycoon-faces-multi-150038463.html)
-- Aug 17 - [What those who served with them say about the VP nominees’ time in the military](https://www.yahoo.com/news/those-served-them-vp-nominees-140155446.html)
 - Aug 17 - [These are the 10 longest-lasting vehicles on the road today](https://www.yahoo.com/news/10-longest-lasting-vehicles-road-140000120.html)
-- Aug 17 - [He stumbled onto a large tusk in a Mississippi creek. It turned out to be a first-of-its-kind discovery](https://www.yahoo.com/news/nearly-600-pound-ice-age-060002284.html)
 - Aug 17 - [Ukraine Is Getting Ready to Unleash a Swarm of Robot Dogs](https://www.yahoo.com/news/ukraine-getting-ready-unleash-swarm-124552244.html)
+- Aug 17 - [Thieves hit 3 7-Eleven stores in 20 mins, hours after Newsom signed 'smash-and-grab' tackling bills](https://www.yahoo.com/news/thieves-hit-3-7-eleven-123537568.html)
+- Aug 17 - [Seaside car park owner blocks travellers inside with concrete bollards and demands exit fee](https://www.yahoo.com/news/seaside-car-park-owner-accused-122704651.html)
 <!-- feed end -->
 
 ### Onstream
