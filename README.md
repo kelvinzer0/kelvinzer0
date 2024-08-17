@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - ['The buck stops with me': Mayor Ginther promises more bad news about Columbus cyber attack](https://www.yahoo.com/news/buck-stops-mayor-ginther-promises-174535304.html)
+- Aug 17 - [Train drivers’ pay has grown twice as much as wages for teachers, doctors and soldiers](https://www.yahoo.com/news/train-drivers-pay-grown-twice-193425296.html)
+- Aug 17 - [Chechen warlord invites Musk to Russia after he's filmed driving machine-gun mounted Cybertruck](https://www.yahoo.com/news/chechen-warlord-invites-musk-russia-183632492.html)
+- Aug 17 - [Fact Check: Yes, Pic Shows Barron Trump Taking Melania Trump's Photo While on Her Lap](https://www.yahoo.com/news/fact-check-yes-pic-shows-180000086.html)
 - Aug 17 - [Shootings reported at Joint Base San Antonio-Lackland between guards and passing vehicle](https://www.yahoo.com/news/shooting-reported-joint-san-antonio-162750173.html)
-- Aug 17 - [‘Bikini airline’ tycoon faces multi-million pound fine after losing High Court case](https://www.yahoo.com/news/bikini-airline-tycoon-faces-multi-150038463.html)
-- Aug 17 - [These are the 10 longest-lasting vehicles on the road today](https://www.yahoo.com/news/10-longest-lasting-vehicles-road-140000120.html)
-- Aug 17 - [Aldi Announces Major Store Change That Will Take Place in 2025](https://finance.yahoo.com/news/aldi-announces-major-store-change-134500881.html)
+- Aug 17 - [Foxconn chief defends hiring practices after report married women rejected in India](https://www.yahoo.com/news/foxconn-chief-defends-hiring-practices-151409182.html)
 <!-- feed end -->
 
 ### Onstream
