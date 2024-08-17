@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Ukraine offensive doesn't alter Western anti-escalation stance, Poland says](https://www.yahoo.com/news/ukraine-offensive-doesnt-alter-western-180003840.html)
+- Aug 17 - [SLO County named the second-best place to retire in California](https://www.yahoo.com/lifestyle/slo-county-named-second-best-170000279.html)
+- Aug 17 - [Shootings reported at Joint Base San Antonio-Lackland between guards and passing vehicle](https://www.yahoo.com/news/shooting-reported-joint-san-antonio-162750173.html)
 - Aug 17 - [‘Bikini airline’ tycoon faces multi-million pound fine after losing High Court case](https://www.yahoo.com/news/bikini-airline-tycoon-faces-multi-150038463.html)
 - Aug 17 - [These are the 10 longest-lasting vehicles on the road today](https://www.yahoo.com/news/10-longest-lasting-vehicles-road-140000120.html)
-- Aug 17 - [Ukraine Is Getting Ready to Unleash a Swarm of Robot Dogs](https://www.yahoo.com/news/ukraine-getting-ready-unleash-swarm-124552244.html)
-- Aug 17 - [Thieves hit 3 7-Eleven stores in 20 mins, hours after Newsom signed 'smash-and-grab' tackling bills](https://www.yahoo.com/news/thieves-hit-3-7-eleven-123537568.html)
-- Aug 17 - [Seaside car park owner blocks travellers inside with concrete bollards and demands exit fee](https://www.yahoo.com/news/seaside-car-park-owner-accused-122704651.html)
 <!-- feed end -->
 
 ### Onstream
