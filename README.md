@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [What those who served with them say about the VP nominees’ time as enlisted vets](https://www.yahoo.com/news/those-served-them-vp-nominees-140155446.html)
+- Aug 17 - [‘Bikini airline’ tycoon faces multi-million pound fine after losing High Court case](https://www.yahoo.com/news/bikini-airline-tycoon-faces-multi-150038463.html)
+- Aug 17 - [What those who served with them say about the VP nominees’ time in the military](https://www.yahoo.com/news/those-served-them-vp-nominees-140155446.html)
 - Aug 17 - [These are the 10 longest-lasting vehicles on the road today](https://www.yahoo.com/news/10-longest-lasting-vehicles-road-140000120.html)
 - Aug 17 - [He stumbled onto a large tusk in a Mississippi creek. It turned out to be a first-of-its-kind discovery](https://www.yahoo.com/news/nearly-600-pound-ice-age-060002284.html)
 - Aug 17 - [Ukraine Is Getting Ready to Unleash a Swarm of Robot Dogs](https://www.yahoo.com/news/ukraine-getting-ready-unleash-swarm-124552244.html)
-- Aug 17 - [China is rapidly building an unusual assault ship with an apparent catapult system for launching aircraft, but its purpose is still a mystery](https://www.yahoo.com/news/china-rapidly-building-unusual-assault-114702522.html)
 <!-- feed end -->
 
 ### Onstream
