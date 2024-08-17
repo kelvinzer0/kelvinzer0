@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Prediction: Nvidia Is Going to Be Crushed by Competition Over the Next 2 Years -- but Not for the Reason You Might Think](https://finance.yahoo.com/news/prediction-nvidia-going-crushed-competition-084100910.html)
+- Aug 17 - [Billionaire Investor Bill Ackman Has 100% of His $10 Billion Portfolio in Just 9 Stocks, But There Were Seismic Changes During the Quarter](https://finance.yahoo.com/news/billionaire-investor-bill-ackman-100-070200241.html)
 - Aug 17 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire (Updated)](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
 - Aug 17 - [Scientists celebrate birth of animal centuries after species was hunted to extinction — here's why it matters](https://www.yahoo.com/news/scientists-celebrate-birth-animal-centuries-023000117.html)
 - Aug 17 - [Veterans of Foreign Wars blasts Trump statement as ‘asinine’](https://www.yahoo.com/news/veterans-foreign-wars-blasts-trump-015745846.html)
-- Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
+- Aug 16 - ['Incredibly rare' dead sea serpent surfaces in California waters; just 1 of 20 since 1901](https://www.yahoo.com/news/incredibly-rare-dead-sea-serpent-225834055.html)
 <!-- feed end -->
 
 ### Onstream
