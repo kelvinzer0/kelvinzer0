@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 17 - [Scientists celebrate birth of animal centuries after species was hunted to extinction — here's why it matters](https://www.yahoo.com/news/scientists-celebrate-birth-animal-centuries-023000117.html)
 - Aug 17 - [Veterans of Foreign Wars blasts Trump statement as ‘asinine’](https://www.yahoo.com/news/veterans-foreign-wars-blasts-trump-015745846.html)
-- Aug 16 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
-- Aug 16 - [Newlyweds killed in I-70 crash after semitruck overturns](https://www.yahoo.com/news/newlyweds-killed-70-crash-semitruck-213003236.html)
+- Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
+- Aug 16 - [New Twist in Death of Woman on Airport Luggage Carousel](https://www.yahoo.com/news/woman-dead-five-hours-chicago-221544349.html)
 - Aug 16 - [Ed Daniels, legendary WGNO Sports Director, dies at 67](https://www.yahoo.com/news/ed-daniels-legendary-wgno-sports-212555836.html)
 <!-- feed end -->
 
