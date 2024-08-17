@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire (Updated)](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
-- Aug 17 - [Scientists celebrate birth of animal centuries after species was hunted to extinction — here's why it matters](https://www.yahoo.com/news/scientists-celebrate-birth-animal-centuries-023000117.html)
-- Aug 17 - [Veterans of Foreign Wars blasts Trump statement as ‘asinine’](https://www.yahoo.com/news/veterans-foreign-wars-blasts-trump-015745846.html)
-- Aug 16 - [Major US lake reaches 100% capacity second year in a row after prolonged drought: 'Didn't always seem like a possibility'](https://www.yahoo.com/news/major-us-lake-reaches-100-233000233.html)
-- Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
+- Aug 17 - [Ukraine Is Getting Ready to Unleash a Swarm of Robot Dogs](https://www.yahoo.com/news/ukraine-getting-ready-unleash-swarm-124552244.html)
+- Aug 17 - [Minister accused of failing to help lawyer who disappeared under aunt’s regime in Bangladesh](https://www.yahoo.com/news/minister-accused-failing-help-lawyer-123657989.html)
+- Aug 17 - [Seaside car park owner blocks travellers inside with concrete bollards and demands exit fee](https://www.yahoo.com/news/seaside-car-park-owner-accused-122704651.html)
+- Aug 17 - [Duchess Meghan Changes into Fabulous Oscar de la Renta Gown for Private Luncheon](https://www.yahoo.com/entertainment/duchess-meghan-changes-fabulous-oscar-114500416.html)
+- Aug 17 - [I’m a Social Security Expert: 7 Things Americans Should Never Do With Their Checks](https://finance.yahoo.com/news/m-social-security-expert-7-110235319.html)
 <!-- feed end -->
 
 ### Onstream
