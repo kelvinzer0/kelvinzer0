@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 17 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire (Updated)](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
-- Aug 17 - [Scientists celebrate birth of animal centuries after species was hunted to extinction — here's why it matters](https://www.yahoo.com/news/scientists-celebrate-birth-animal-centuries-023000117.html)
 - Aug 17 - [Veterans of Foreign Wars blasts Trump statement as ‘asinine’](https://www.yahoo.com/news/veterans-foreign-wars-blasts-trump-015745846.html)
 - Aug 16 - [Couple Unexpectedly Delivers Their Baby Daughter at Home](https://www.yahoo.com/news/couple-unexpectedly-delivers-baby-daughter-222744193.html)
-- Aug 16 - [Auroras headed to the US again in aftermath of gargantuan 'X-class' solar flare](https://www.yahoo.com/news/auroras-headed-us-again-aftermath-212912114.html)
+- Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
+- Aug 16 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 <!-- feed end -->
 
 ### Onstream
