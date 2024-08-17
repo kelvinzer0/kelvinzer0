@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Prediction: These 3 Vanguard ETFs Will Double Investors' Money in 5 Years](https://finance.yahoo.com/news/prediction-3-vanguard-etfs-double-221200461.html)
+- Aug 17 - [No tsunami threat to Hawaii after magnitude 7.0 quake off Russia](https://www.yahoo.com/news/no-tsunami-threat-hawaii-magnitude-213700198.html)
 - Aug 17 - [Chechen warlord invites Musk to Russia after he's filmed driving machine-gun mounted Cybertruck](https://www.yahoo.com/news/chechen-warlord-invites-musk-russia-183632492.html)
 - Aug 17 - [Fact Check: Yes, Pic Shows Barron Trump Taking Melania Trump's Photo While on Her Lap](https://www.yahoo.com/news/fact-check-yes-pic-shows-180000086.html)
 - Aug 17 - [Shootings reported at Joint Base San Antonio-Lackland between guards and passing vehicle](https://www.yahoo.com/news/shooting-reported-joint-san-antonio-162750173.html)
-- Aug 17 - [Foxconn chief defends hiring practices after report married women rejected in India](https://www.yahoo.com/news/foxconn-chief-defends-hiring-practices-151409182.html)
-- Aug 17 - [‘Bikini airline’ tycoon faces multi-million pound fine after losing High Court case](https://www.yahoo.com/news/bikini-airline-tycoon-faces-multi-150038463.html)
 <!-- feed end -->
 
 ### Onstream
