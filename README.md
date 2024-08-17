@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Ukraine offensive doesn't alter Western anti-escalation stance, Poland says](https://www.yahoo.com/news/ukraine-offensive-doesnt-alter-western-180003840.html)
-- Aug 17 - [SLO County named the second-best place to retire in California](https://www.yahoo.com/lifestyle/slo-county-named-second-best-170000279.html)
+- Aug 17 - ['The buck stops with me': Mayor Ginther promises more bad news about Columbus cyber attack](https://www.yahoo.com/news/buck-stops-mayor-ginther-promises-174535304.html)
 - Aug 17 - [Shootings reported at Joint Base San Antonio-Lackland between guards and passing vehicle](https://www.yahoo.com/news/shooting-reported-joint-san-antonio-162750173.html)
 - Aug 17 - [‘Bikini airline’ tycoon faces multi-million pound fine after losing High Court case](https://www.yahoo.com/news/bikini-airline-tycoon-faces-multi-150038463.html)
 - Aug 17 - [These are the 10 longest-lasting vehicles on the road today](https://www.yahoo.com/news/10-longest-lasting-vehicles-road-140000120.html)
+- Aug 17 - [Aldi Announces Major Store Change That Will Take Place in 2025](https://finance.yahoo.com/news/aldi-announces-major-store-change-134500881.html)
 <!-- feed end -->
 
 ### Onstream
