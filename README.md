@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Train drivers’ pay has grown twice as much as wages for teachers, doctors and soldiers](https://www.yahoo.com/news/train-drivers-pay-grown-twice-193425296.html)
+- Aug 17 - [Heading to the Cincinnati Open, Reds game on Sunday? Here's the weather forecast](https://www.yahoo.com/news/heading-cincinnati-open-reds-game-200614121.html)
+- Aug 17 - [Amid a 14% Sell-Off, Nvidia Just Hit Investors With a Rude Awakening. What Should Investors Do?](https://finance.yahoo.com/news/amid-14-sell-off-nvidia-190000810.html)
 - Aug 17 - [Chechen warlord invites Musk to Russia after he's filmed driving machine-gun mounted Cybertruck](https://www.yahoo.com/news/chechen-warlord-invites-musk-russia-183632492.html)
-- Aug 17 - [Fact Check: Yes, Pic Shows Barron Trump Taking Melania Trump's Photo While on Her Lap](https://www.yahoo.com/news/fact-check-yes-pic-shows-180000086.html)
-- Aug 17 - [Shootings reported at Joint Base San Antonio-Lackland between guards and passing vehicle](https://www.yahoo.com/news/shooting-reported-joint-san-antonio-162750173.html)
-- Aug 17 - [Foxconn chief defends hiring practices after report married women rejected in India](https://www.yahoo.com/news/foxconn-chief-defends-hiring-practices-151409182.html)
+- Aug 17 - [‘Bikini airline’ tycoon faces multi-million pound fine after losing High Court case](https://www.yahoo.com/news/bikini-airline-tycoon-faces-multi-150038463.html)
+- Aug 17 - [These are the 10 longest-lasting vehicles on the road today](https://www.yahoo.com/news/10-longest-lasting-vehicles-road-140000120.html)
 <!-- feed end -->
 
 ### Onstream
