@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [What those who served with them say about the VP nominees’ time as enlisted vets](https://www.yahoo.com/news/those-served-them-vp-nominees-140155446.html)
+- Aug 17 - [These are the 10 longest-lasting vehicles on the road today](https://www.yahoo.com/news/10-longest-lasting-vehicles-road-140000120.html)
+- Aug 17 - [He stumbled onto a large tusk in a Mississippi creek. It turned out to be a first-of-its-kind discovery](https://www.yahoo.com/news/nearly-600-pound-ice-age-060002284.html)
 - Aug 17 - [Ukraine Is Getting Ready to Unleash a Swarm of Robot Dogs](https://www.yahoo.com/news/ukraine-getting-ready-unleash-swarm-124552244.html)
-- Aug 17 - [Minister accused of failing to help lawyer who disappeared under aunt’s regime in Bangladesh](https://www.yahoo.com/news/minister-accused-failing-help-lawyer-123657989.html)
-- Aug 17 - [Seaside car park owner blocks travellers inside with concrete bollards and demands exit fee](https://www.yahoo.com/news/seaside-car-park-owner-accused-122704651.html)
-- Aug 17 - [Duchess Meghan Changes into Fabulous Oscar de la Renta Gown for Private Luncheon](https://www.yahoo.com/entertainment/duchess-meghan-changes-fabulous-oscar-114500416.html)
-- Aug 17 - [I’m a Social Security Expert: 7 Things Americans Should Never Do With Their Checks](https://finance.yahoo.com/news/m-social-security-expert-7-110235319.html)
+- Aug 17 - [China is rapidly building an unusual assault ship with an apparent catapult system for launching aircraft, but its purpose is still a mystery](https://www.yahoo.com/news/china-rapidly-building-unusual-assault-114702522.html)
 <!-- feed end -->
 
 ### Onstream
