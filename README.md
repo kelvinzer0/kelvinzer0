@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Billionaire Investor Bill Ackman Has 100% of His $10 Billion Portfolio in Just 9 Stocks, But There Were Seismic Changes During the Quarter](https://finance.yahoo.com/news/billionaire-investor-bill-ackman-100-070200241.html)
 - Aug 17 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire (Updated)](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
 - Aug 17 - [Scientists celebrate birth of animal centuries after species was hunted to extinction — here's why it matters](https://www.yahoo.com/news/scientists-celebrate-birth-animal-centuries-023000117.html)
 - Aug 17 - [Veterans of Foreign Wars blasts Trump statement as ‘asinine’](https://www.yahoo.com/news/veterans-foreign-wars-blasts-trump-015745846.html)
-- Aug 16 - ['Incredibly rare' dead sea serpent surfaces in California waters; just 1 of 20 since 1901](https://www.yahoo.com/news/incredibly-rare-dead-sea-serpent-225834055.html)
+- Aug 16 - [Major US lake reaches 100% capacity second year in a row after prolonged drought: 'Didn't always seem like a possibility'](https://www.yahoo.com/news/major-us-lake-reaches-100-233000233.html)
+- Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
 <!-- feed end -->
 
 ### Onstream
