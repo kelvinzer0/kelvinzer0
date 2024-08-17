@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Gov. Gavin Newsom signs California laws aiming to reduce robberies, car thefts and shoplifting](https://www.yahoo.com/news/gov-gavin-newsom-signs-california-232349924.html)
 - Aug 16 - ['Incredibly rare' dead sea serpent surfaces in California waters; just 1 of 20 since 1901](https://www.yahoo.com/news/incredibly-rare-dead-sea-serpent-225834055.html)
+- Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
 - Aug 16 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
 - Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
-- Aug 16 - [General Hospital Spoilers August 19: Alarming News Hits Dante Hard](https://www.yahoo.com/entertainment/general-hospital-spoilers-august-19-194226723.html)
-- Aug 16 - [Exclusive-Boeing, Lockheed Martin in talks to sell rocket-launch firm ULA to Sierra Space](https://finance.yahoo.com/news/exclusive-boeing-lockheed-martin-talks-192615901.html)
 <!-- feed end -->
 
 ### Onstream
