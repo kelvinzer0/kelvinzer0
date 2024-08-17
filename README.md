@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Gov. Gavin Newsom signs California laws aiming to reduce robberies, car thefts and shoplifting](https://www.yahoo.com/news/gov-gavin-newsom-signs-california-232349924.html)
 - Aug 16 - ['Incredibly rare' dead sea serpent surfaces in California waters; just 1 of 20 since 1901](https://www.yahoo.com/news/incredibly-rare-dead-sea-serpent-225834055.html)
 - Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
 - Aug 16 - [Soviet Aircraft Carrier Turned Failed Chinese Tourist Attraction Is On Fire](https://www.yahoo.com/news/soviet-aircraft-carrier-turned-failed-222855723.html)
-- Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
+- Aug 16 - [Ed Daniels, legendary WGNO Sports Director, dies at 67](https://www.yahoo.com/news/ed-daniels-legendary-wgno-sports-212555836.html)
+- Aug 16 - [Watch: Black bear crashes Gatlinburg family deck gathering. 'Honey, you gotta go!'](https://www.yahoo.com/news/watch-black-bear-crashes-gatlinburg-201116052.html)
 <!-- feed end -->
 
 ### Onstream
