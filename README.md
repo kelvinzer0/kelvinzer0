@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Scientists celebrate birth of animal centuries after species was hunted to extinction — here's why it matters](https://www.yahoo.com/news/scientists-celebrate-birth-animal-centuries-023000117.html)
+- Aug 17 - [US Army combat veteran found dead after hike on McKelligon Canyon in Franklin Mountains](https://www.yahoo.com/news/us-army-combat-veteran-found-061844849.html)
 - Aug 17 - [Veterans of Foreign Wars blasts Trump statement as ‘asinine’](https://www.yahoo.com/news/veterans-foreign-wars-blasts-trump-015745846.html)
-- Aug 16 - [Pharmacist blamed for deaths in US meningitis outbreak will plead no contest in Michigan case](https://www.yahoo.com/news/pharmacist-blamed-deaths-us-meningitis-224736104.html)
-- Aug 16 - [New Twist in Death of Woman on Airport Luggage Carousel](https://www.yahoo.com/news/woman-dead-five-hours-chicago-221544349.html)
-- Aug 16 - [Ed Daniels, legendary WGNO Sports Director, dies at 67](https://www.yahoo.com/news/ed-daniels-legendary-wgno-sports-212555836.html)
+- Aug 16 - [Couple Unexpectedly Delivers Their Baby Daughter at Home](https://www.yahoo.com/news/couple-unexpectedly-delivers-baby-daughter-222744193.html)
+- Aug 16 - [Trans teens file lawsuit challenging New Hampshire law banning them from girls' sports](https://www.yahoo.com/news/trans-teens-file-lawsuit-challenging-200345668.html)
+- Aug 16 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 <!-- feed end -->
 
 ### Onstream
