@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Dow Jones Futures: Powell Due After Market's Best Week Of 2024; Three AI Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-powell-jackson-hole-speech-nvidia-ai-stocks/?src=A00220&yptr=yahoo)
-- Aug 18 - [Woman accused of hit-and-run crash in GA Publix parking lot](https://www.yahoo.com/news/woman-accused-hit-run-crash-192047479.html)
-- Aug 18 - [Prince Harry and Meghan hailed as ‘symbol of resistance’ by Colombian vice-president](https://www.yahoo.com/lifestyle/prince-harry-meghan-hailed-symbol-183332968.html)
-- Aug 18 - [Raging muddy water carry cars through Austrian ski resort](https://www.yahoo.com/news/raging-muddy-water-carry-cars-164003093.html)
-- Aug 18 - [JD Vance Compares Kamala Harris to Jeffrey Epstein in Fox News Interview](https://www.yahoo.com/news/jd-vance-compares-kamala-harris-161029425.html)
+- Aug 18 - [Princess Lilibet has found her voice aged three, Meghan tells Afro Women event](https://www.yahoo.com/lifestyle/prince-harry-meghan-hailed-symbol-183332968.html)
+- Aug 18 - [Buckeye man arrested after shooting at police in domestic violence incident, police say](https://www.yahoo.com/news/buckeye-man-arrested-shooting-police-201953832.html)
+- Aug 18 - [Hamas says new Gaza proposal too close to Israel's demands](https://www.yahoo.com/news/hamas-says-gaza-proposal-too-192320700.html)
+- Aug 18 - [CHP: Driver got ticket speeding on Cuesta Grade. Minutes later, they crashed into a boulder](https://www.yahoo.com/news/chp-driver-got-ticket-speeding-174428347.html)
+- Aug 18 - [Marjorie Taylor Greene slams Planned Parenthood for offering free vasectomies and abortions near DNC](https://www.yahoo.com/news/marjorie-taylor-greene-slams-planned-173013473.html)
 <!-- feed end -->
 
 ### Onstream
