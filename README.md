@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [3 Rare Coins Expected To Soar in Value by the End of 2025](https://finance.yahoo.com/news/3-rare-coins-expected-soar-150009989.html)
+- Aug 18 - [Here's What We Found About Claim Disneyland Uses Army of Feral Cats to Control Rodent Population](https://www.yahoo.com/entertainment/heres-found-claim-disneyland-uses-180000441.html)
 - Aug 18 - [Marjorie Taylor Greene slams Planned Parenthood for offering free vasectomies and abortions near DNC](https://www.yahoo.com/news/marjorie-taylor-greene-slams-planned-173013473.html)
-- Aug 18 - [Outer Banks home falls into the ocean, highlighting a grim trend. See the photos.](https://www.yahoo.com/news/outer-banks-home-falls-into-the-ocean-highlighting-a-grim-trend-see-the-photos-161838235.html)
+- Aug 18 - [Raging muddy water carry cars through Austrian ski resort](https://www.yahoo.com/news/raging-muddy-water-carry-cars-164003093.html)
 - Aug 18 - [JD Vance Compares Kamala Harris to Jeffrey Epstein in Fox News Interview](https://www.yahoo.com/news/jd-vance-compares-kamala-harris-161029425.html)
-- Aug 18 - [Sen. Lindsey Graham: 'Trump the provocateur, the showman, may not win this election'](https://www.yahoo.com/news/sen-lindsey-graham-trump-provocateur-160257727.html)
-- Aug 18 - [Hear who this former Haley supporter says she’ll vote for in November](https://www.yahoo.com/news/hear-former-haley-supporter-says-160219779.html)
 <!-- feed end -->
 
 ### Onstream
