@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Grant Cardone blasts 'American dream' of homeownership — here’s how he chooses to build wealth instead](https://finance.yahoo.com/news/grant-cardone-blasts-american-dream-102800084.html)
-- Aug 18 - [Warning issued after family of shoplifters hit West Seattle stores](https://www.yahoo.com/news/warning-issued-family-shoplifters-hit-063823690.html)
-- Aug 18 - [A hunter’s graveyard shift: grabbing pythons in the Everglades](https://www.yahoo.com/news/hunter-graveyard-shift-grabbing-pythons-042841505.html)
-- Aug 18 - [Russia launches third ballistic missile attack on Kyiv this month, Ukraine says](https://www.yahoo.com/news/russia-launches-third-ballistic-missile-041831952.html)
-- Aug 18 - [Technicians remove nearly 20,000 pounds of pest species from dam and donate it to local food bank: 'Can amplify our ability to manage invasive fishes and limit their spread'](https://www.yahoo.com/news/technicians-remove-nearly-20-000-023000936.html)
+- Aug 18 - [Ukrainian troops have struck 2 key bridges in Russia. Could it mean they're there to stay?](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
+- Aug 18 - [It’s time to end the myth that the US needed to drop atomic bombs to end World War II | Opinion](https://www.yahoo.com/news/time-end-myth-us-needed-110700250.html)
+- Aug 18 - [Migrant who pushed man onto Tube tracks was in process of appealing deportation for sex crimes](https://www.yahoo.com/news/migrant-pushed-man-onto-tube-110520198.html)
+- Aug 18 - [Trump’s ‘nuclear explosion’ on Kemp was months in the making. He could pay a price in November.](https://www.yahoo.com/news/nuclear-explosion-inside-trump-feud-110000393.html)
+- Aug 18 - [Gender surgeries, migraine tips, 'Zika-like' virus and more top health stories](https://www.yahoo.com/news/gender-surgeries-migraine-tips-zika-100019052.html)
 <!-- feed end -->
 
 ### Onstream
