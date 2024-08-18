@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 18 - [Russia launches third ballistic missile attack on Kyiv this month, Ukraine says](https://www.yahoo.com/news/russia-launches-third-ballistic-missile-041831952.html)
-- Aug 18 - [Severe weather causes ‘huge impact’ at Beaverton Night Market](https://www.yahoo.com/news/severe-weather-causes-huge-impact-041700977.html)
+- Aug 18 - [Technicians remove nearly 20,000 pounds of pest species from dam and donate it to local food bank: 'Can amplify our ability to manage invasive fishes and limit their spread'](https://www.yahoo.com/news/technicians-remove-nearly-20-000-023000936.html)
 - Aug 18 - [Volcano erupts in Russia after 7.0-magnitude earthquake, sending ash column 5 miles high](https://www.yahoo.com/news/7-0-magnitude-earthquake-strikes-202414300.html)
 - Aug 18 - [McConnell says Congress has the power to vote by proxy](https://www.yahoo.com/news/mcconnell-says-congress-power-vote-012848412.html)
-- Aug 17 - [Trump again decries two gold medalist Olympic athletes, falsely labeling the female boxers as men](https://www.yahoo.com/news/trump-again-decries-two-gold-234704958.html)
+- Aug 18 - [UPDATE: Power partially restored after Shasta County storm](https://www.yahoo.com/news/shasta-county-storm-more-2-011328951.html)
 <!-- feed end -->
 
 ### Onstream
