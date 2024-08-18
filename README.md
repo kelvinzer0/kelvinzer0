@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [3 Rare Coins Expected To Soar in Value by the End of 2025](https://finance.yahoo.com/news/3-rare-coins-expected-soar-150009989.html)
-- Aug 18 - [Here's What We Found About Claim Disneyland Uses Army of Feral Cats to Control Rodent Population](https://www.yahoo.com/entertainment/heres-found-claim-disneyland-uses-180000441.html)
-- Aug 18 - [Marjorie Taylor Greene slams Planned Parenthood for offering free vasectomies and abortions near DNC](https://www.yahoo.com/news/marjorie-taylor-greene-slams-planned-173013473.html)
+- Aug 18 - [Dow Jones Futures: Powell Due After Market's Best Week Of 2024; Three AI Stocks Near Buy Points](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-powell-jackson-hole-speech-nvidia-ai-stocks/?src=A00220&yptr=yahoo)
+- Aug 18 - [Woman accused of hit-and-run crash in GA Publix parking lot](https://www.yahoo.com/news/woman-accused-hit-run-crash-192047479.html)
+- Aug 18 - [Prince Harry and Meghan hailed as ‘symbol of resistance’ by Colombian vice-president](https://www.yahoo.com/lifestyle/prince-harry-meghan-hailed-symbol-183332968.html)
 - Aug 18 - [Raging muddy water carry cars through Austrian ski resort](https://www.yahoo.com/news/raging-muddy-water-carry-cars-164003093.html)
 - Aug 18 - [JD Vance Compares Kamala Harris to Jeffrey Epstein in Fox News Interview](https://www.yahoo.com/news/jd-vance-compares-kamala-harris-161029425.html)
 <!-- feed end -->
