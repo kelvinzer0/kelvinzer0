@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Busy Five Points road to be closed and won’t reopen until repairs are done](https://www.yahoo.com/news/busy-road-heart-five-points-143547047.html)
-- Aug 18 - [Charlie Munger's Words On Real Estate Being A "Lousy Investment" Show The Difference Between Knowledge And Wisdom](https://finance.yahoo.com/news/charlie-mungers-words-real-estate-140018446.html)
-- Aug 18 - [I’m a Multimillionaire — 3 Ways I Maintain a Frugal Lifestyle To Stay That Way](https://finance.yahoo.com/news/m-multimillionaire-3-ways-maintain-181651866.html)
-- Aug 18 - [Ukrainian troops have struck 2 key bridges in Russia's Kursk area. Could it mean they plan to stay?](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
+- Aug 18 - [I’m an Estate Planner: 4 Things You Should Never Put in a Living Trust](https://finance.yahoo.com/news/m-estate-planner-4-things-150129110.html)
+- Aug 18 - [How Indian women tricked into sex with promises of marriage are seeking justice](https://www.yahoo.com/news/indian-women-tricked-sex-promises-141112624.html)
+- Aug 18 - [Tampa man dies in head-on collision with semi-truck while trying to pass slower traffic](https://www.yahoo.com/news/tampa-man-dies-head-collision-125206660.html)
+- Aug 18 - [Ukrainian forces strike 2 key bridges in Russia's Kursk area in a possible sign they intend to stay](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
 - Aug 18 - [It’s time to end the myth that the US needed to drop atomic bombs to end World War II | Opinion](https://www.yahoo.com/news/time-end-myth-us-needed-110700250.html)
 <!-- feed end -->
 
