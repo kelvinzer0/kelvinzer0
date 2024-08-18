@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [Marjorie Taylor Greene slams Planned Parenthood for offering free vasectomies and abortions near DNC](https://www.yahoo.com/news/marjorie-taylor-greene-slams-planned-173013473.html)
+- Aug 18 - [Outer Banks home falls into the ocean, highlighting a grim trend. See the photos.](https://www.yahoo.com/news/outer-banks-home-falls-into-the-ocean-highlighting-a-grim-trend-see-the-photos-161838235.html)
 - Aug 18 - [JD Vance Compares Kamala Harris to Jeffrey Epstein in Fox News Interview](https://www.yahoo.com/news/jd-vance-compares-kamala-harris-161029425.html)
-- Aug 18 - [Mark Cuban Says 'Everybody's Chasing Power, And Nothing Will Give You More Power Than Military And AI'](https://finance.yahoo.com/news/mark-cuban-says-everybodys-chasing-160018786.html)
-- Aug 18 - [August's Rare Super Blue Moon: How and When You Can See It](https://www.yahoo.com/news/augusts-rare-super-blue-moon-135052682.html)
-- Aug 18 - [Tampa man dies in head-on collision with semi-truck while trying to pass slower traffic](https://www.yahoo.com/news/tampa-man-dies-head-collision-125206660.html)
-- Aug 18 - [Ukrainian forces strike 2 key bridges in Russia's Kursk area in a possible sign they intend to stay](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
+- Aug 18 - [Sen. Lindsey Graham: 'Trump the provocateur, the showman, may not win this election'](https://www.yahoo.com/news/sen-lindsey-graham-trump-provocateur-160257727.html)
+- Aug 18 - [Hear who this former Haley supporter says she’ll vote for in November](https://www.yahoo.com/news/hear-former-haley-supporter-says-160219779.html)
 <!-- feed end -->
 
 ### Onstream
