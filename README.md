@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Aug 18 - [It’s time to end the myth that the US needed to drop atomic bombs to end World War II | Opinion](https://www.yahoo.com/news/time-end-myth-us-needed-110700250.html)
 - Aug 18 - [Migrant who pushed man onto Tube tracks was in process of appealing deportation for sex crimes](https://www.yahoo.com/news/migrant-pushed-man-onto-tube-110520198.html)
 - Aug 18 - [Trump’s ‘nuclear explosion’ on Kemp was months in the making. He could pay a price in November.](https://www.yahoo.com/news/nuclear-explosion-inside-trump-feud-110000393.html)
-- Aug 18 - [Gender surgeries, migraine tips, 'Zika-like' virus and more top health stories](https://www.yahoo.com/news/gender-surgeries-migraine-tips-zika-100019052.html)
+- Aug 18 - [2 Growth Stocks Down Over 60% to Buy Right Now](https://finance.yahoo.com/news/2-growth-stocks-down-over-092000481.html)
 <!-- feed end -->
 
 ### Onstream
