@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Is Ohio really Trump country? There's a way Kamala Harris can win Buckeye State.](https://www.yahoo.com/news/ohio-really-trump-country-theres-091531472.html)
+- Aug 18 - [Grant Cardone blasts 'American dream' of homeownership — here’s how he chooses to build wealth instead](https://finance.yahoo.com/news/grant-cardone-blasts-american-dream-102800084.html)
+- Aug 18 - [Warning issued after family of shoplifters hit West Seattle stores](https://www.yahoo.com/news/warning-issued-family-shoplifters-hit-063823690.html)
 - Aug 18 - [A hunter’s graveyard shift: grabbing pythons in the Everglades](https://www.yahoo.com/news/hunter-graveyard-shift-grabbing-pythons-042841505.html)
 - Aug 18 - [Russia launches third ballistic missile attack on Kyiv this month, Ukraine says](https://www.yahoo.com/news/russia-launches-third-ballistic-missile-041831952.html)
 - Aug 18 - [Technicians remove nearly 20,000 pounds of pest species from dam and donate it to local food bank: 'Can amplify our ability to manage invasive fishes and limit their spread'](https://www.yahoo.com/news/technicians-remove-nearly-20-000-023000936.html)
-- Aug 18 - [Volcano erupts in Russia after 7.0-magnitude earthquake, sending ash column 5 miles high](https://www.yahoo.com/news/7-0-magnitude-earthquake-strikes-202414300.html)
 <!-- feed end -->
 
 ### Onstream
