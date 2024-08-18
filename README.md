@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [A hunter’s graveyard shift: grabbing pythons in the Everglades](https://www.yahoo.com/news/hunter-graveyard-shift-grabbing-pythons-042841505.html)
 - Aug 18 - [Russia launches third ballistic missile attack on Kyiv this month, Ukraine says](https://www.yahoo.com/news/russia-launches-third-ballistic-missile-041831952.html)
 - Aug 18 - [Technicians remove nearly 20,000 pounds of pest species from dam and donate it to local food bank: 'Can amplify our ability to manage invasive fishes and limit their spread'](https://www.yahoo.com/news/technicians-remove-nearly-20-000-023000936.html)
 - Aug 18 - [Volcano erupts in Russia after 7.0-magnitude earthquake, sending ash column 5 miles high](https://www.yahoo.com/news/7-0-magnitude-earthquake-strikes-202414300.html)
 - Aug 18 - [McConnell says Congress has the power to vote by proxy](https://www.yahoo.com/news/mcconnell-says-congress-power-vote-012848412.html)
-- Aug 17 - [Trump again decries two gold medalist Olympic athletes, falsely labeling the female boxers as men](https://www.yahoo.com/news/trump-again-decries-two-gold-234704958.html)
 <!-- feed end -->
 
 ### Onstream
