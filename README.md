@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Sterling College faculty members vote ‘no confidence’ in president after repeated clashes](https://www.yahoo.com/news/sterling-college-faculty-members-vote-134900793.html)
-- Aug 18 - [Russia denies media report about indirect talks with Ukraine](https://www.yahoo.com/news/russia-denies-media-report-indirect-124809283.html)
-- Aug 18 - [Fleeing Motorcyclist Taken Out By Bystander In Truck](https://autos.yahoo.com/fleeing-motorcyclist-taken-bystander-truck-120000149.html)
+- Aug 18 - [Busy Five Points road to be closed and won’t reopen until repairs are done](https://www.yahoo.com/news/busy-road-heart-five-points-143547047.html)
+- Aug 18 - [Charlie Munger's Words On Real Estate Being A "Lousy Investment" Show The Difference Between Knowledge And Wisdom](https://finance.yahoo.com/news/charlie-mungers-words-real-estate-140018446.html)
+- Aug 18 - [I’m a Multimillionaire — 3 Ways I Maintain a Frugal Lifestyle To Stay That Way](https://finance.yahoo.com/news/m-multimillionaire-3-ways-maintain-181651866.html)
 - Aug 18 - [Ukrainian troops have struck 2 key bridges in Russia's Kursk area. Could it mean they plan to stay?](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
 - Aug 18 - [It’s time to end the myth that the US needed to drop atomic bombs to end World War II | Opinion](https://www.yahoo.com/news/time-end-myth-us-needed-110700250.html)
 <!-- feed end -->
