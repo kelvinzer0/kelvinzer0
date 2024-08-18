@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [I’m an Estate Planner: 4 Things You Should Never Put in a Living Trust](https://finance.yahoo.com/news/m-estate-planner-4-things-150129110.html)
-- Aug 18 - [How Indian women tricked into sex with promises of marriage are seeking justice](https://www.yahoo.com/news/indian-women-tricked-sex-promises-141112624.html)
+- Aug 18 - [JD Vance Compares Kamala Harris to Jeffrey Epstein in Fox News Interview](https://www.yahoo.com/news/jd-vance-compares-kamala-harris-161029425.html)
+- Aug 18 - [Mark Cuban Says 'Everybody's Chasing Power, And Nothing Will Give You More Power Than Military And AI'](https://finance.yahoo.com/news/mark-cuban-says-everybodys-chasing-160018786.html)
+- Aug 18 - [August's Rare Super Blue Moon: How and When You Can See It](https://www.yahoo.com/news/augusts-rare-super-blue-moon-135052682.html)
 - Aug 18 - [Tampa man dies in head-on collision with semi-truck while trying to pass slower traffic](https://www.yahoo.com/news/tampa-man-dies-head-collision-125206660.html)
 - Aug 18 - [Ukrainian forces strike 2 key bridges in Russia's Kursk area in a possible sign they intend to stay](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
-- Aug 18 - [It’s time to end the myth that the US needed to drop atomic bombs to end World War II | Opinion](https://www.yahoo.com/news/time-end-myth-us-needed-110700250.html)
 <!-- feed end -->
 
 ### Onstream
