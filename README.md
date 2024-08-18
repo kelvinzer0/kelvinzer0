@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 18 - [McConnell says Congress has the power to vote by proxy](https://www.yahoo.com/news/mcconnell-says-congress-power-vote-012848412.html)
 - Aug 17 - [Trump again decries two gold medalist Olympic athletes, falsely labeling the female boxers as men](https://www.yahoo.com/news/trump-again-decries-two-gold-234704958.html)
 - Aug 17 - [If You Have $1 Million in Retirement Savings, Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/1-million-retirement-savings-much-130015039.html)
-- Aug 17 - [Wildfire erupts in hills between Paso Robles and Cambria](https://www.yahoo.com/news/wildfire-erupts-hills-between-paso-212332975.html)
-- Aug 17 - [Chechen warlord invites Musk to Russia after he's filmed driving machine-gun mounted Cybertruck](https://www.yahoo.com/news/chechen-warlord-invites-musk-russia-183632492.html)
+- Aug 17 - [Fact Check: Yes, Pic Shows Barron Trump Taking Melania Trump's Photo While on Her Lap](https://www.yahoo.com/news/fact-check-yes-pic-shows-180000086.html)
+- Aug 17 - [‘I’m a Cardiologist With Perfect Cholesterol Numbers—Here’s What a Typical Day of Eating Looks Like for Me’](https://www.yahoo.com/lifestyle/m-cardiologist-perfect-cholesterol-numbers-180000012.html)
 <!-- feed end -->
 
 ### Onstream
