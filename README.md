@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Ukrainian troops have struck 2 key bridges in Russia. Could it mean they're there to stay?](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
+- Aug 18 - [Sterling College faculty members vote ‘no confidence’ in president after repeated clashes](https://www.yahoo.com/news/sterling-college-faculty-members-vote-134900793.html)
+- Aug 18 - [Russia denies media report about indirect talks with Ukraine](https://www.yahoo.com/news/russia-denies-media-report-indirect-124809283.html)
+- Aug 18 - [Fleeing Motorcyclist Taken Out By Bystander In Truck](https://autos.yahoo.com/fleeing-motorcyclist-taken-bystander-truck-120000149.html)
+- Aug 18 - [Ukrainian troops have struck 2 key bridges in Russia's Kursk area. Could it mean they plan to stay?](https://www.yahoo.com/news/ukrainian-troops-struck-2-key-110914136.html)
 - Aug 18 - [It’s time to end the myth that the US needed to drop atomic bombs to end World War II | Opinion](https://www.yahoo.com/news/time-end-myth-us-needed-110700250.html)
-- Aug 18 - [Migrant who pushed man onto Tube tracks was in process of appealing deportation for sex crimes](https://www.yahoo.com/news/migrant-pushed-man-onto-tube-110520198.html)
-- Aug 18 - [Trump’s ‘nuclear explosion’ on Kemp was months in the making. He could pay a price in November.](https://www.yahoo.com/news/nuclear-explosion-inside-trump-feud-110000393.html)
-- Aug 18 - [2 Growth Stocks Down Over 60% to Buy Right Now](https://finance.yahoo.com/news/2-growth-stocks-down-over-092000481.html)
 <!-- feed end -->
 
 ### Onstream
