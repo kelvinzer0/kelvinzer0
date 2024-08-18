@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [Political Turmoil Threatens Baht Resurgence as Traders Await BOT](https://finance.yahoo.com/news/political-turmoil-threatens-baht-resurgence-213222552.html)
 - Aug 18 - [‘Pump Switching’ and Other Gas Station Scams To Avoid at All Costs](https://finance.yahoo.com/news/gas-station-scam-pump-switching-190107842.html)
-- Aug 18 - [Rocket Lab CEO: 'We have the right combination' to break SpaceX’s monopoly](https://finance.yahoo.com/news/rocket-lab-ceo-we-have-the-right-combination-to-break-spacexs-monopoly-194214038.html)
-- Aug 18 - [CHP: Driver got ticket speeding on Cuesta Grade. Minutes later, they crashed into a boulder](https://www.yahoo.com/news/chp-driver-got-ticket-speeding-174428347.html)
+- Aug 18 - [Hamas says new Gaza proposal too close to Israel's demands](https://www.yahoo.com/news/hamas-says-gaza-proposal-too-192320700.html)
+- Aug 18 - [Here's What We Found About Claim Disneyland Uses Army of Feral Cats to Control Rodent Population](https://www.yahoo.com/entertainment/heres-found-claim-disneyland-uses-180000441.html)
 - Aug 18 - [Marjorie Taylor Greene slams Planned Parenthood for offering free vasectomies and abortions near DNC](https://www.yahoo.com/news/marjorie-taylor-greene-slams-planned-173013473.html)
-- Aug 18 - [Kalmar 9X9 condenses 40 years of Porsche 911 ideas into one package](https://www.yahoo.com/news/kalmar-9x9-condenses-40-years-164500686.html)
 <!-- feed end -->
 
 ### Onstream
