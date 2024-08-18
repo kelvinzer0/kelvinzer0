@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [Volcano erupts in Russia after 7.0-magnitude earthquake, sending ash column 5 miles high](https://www.yahoo.com/news/7-0-magnitude-earthquake-strikes-202414300.html)
 - Aug 18 - [McConnell says Congress has the power to vote by proxy](https://www.yahoo.com/news/mcconnell-says-congress-power-vote-012848412.html)
 - Aug 17 - [Trump again decries two gold medalist Olympic athletes, falsely labeling the female boxers as men](https://www.yahoo.com/news/trump-again-decries-two-gold-234704958.html)
 - Aug 17 - [If You Have $1 Million in Retirement Savings, Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/1-million-retirement-savings-much-130015039.html)
 - Aug 17 - [Chechen warlord invites Musk to Russia after he's filmed driving machine-gun mounted Cybertruck](https://www.yahoo.com/news/chechen-warlord-invites-musk-russia-183632492.html)
-- Aug 17 - [Fact Check: Yes, Pic Shows Barron Trump Taking Melania Trump's Photo While on Her Lap](https://www.yahoo.com/news/fact-check-yes-pic-shows-180000086.html)
 <!-- feed end -->
 
 ### Onstream
