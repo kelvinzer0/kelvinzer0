@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Top 3 TSX Dividend Stocks To Boost Your Portfolio](https://finance.yahoo.com/news/top-3-tsx-dividend-stocks-120703128.html)
-- Aug 19 - [Old aircraft carrier, once part of mighty Soviet fleet, burns in Chinese lagoon](https://www.yahoo.com/news/old-aircraft-carrier-once-part-045430601.html)
-- Aug 19 - [If a neighbor's tree falls on your property, who has to pay for the damage?](https://finance.yahoo.com/news/neighbors-tree-falls-property-pay-105000020.html)
-- Aug 19 - [Ukraine destroys 3rd key bridge, threatening to cut off Russian troops, amid incursion, Russian military bloggers say](https://www.yahoo.com/news/ukraine-destroys-3rd-key-bridge-103300035.html)
-- Aug 19 - [One dead and six people missing after tornado sinks luxury yacht off Sicily](https://www.yahoo.com/news/one-dead-six-people-missing-093033198.html)
+- Aug 19 - [Colony of 10,000 bees discovered living inside the ceiling of an East London pub](https://www.yahoo.com/news/colony-10-000-bees-discovered-134602889.html)
+- Aug 19 - [5 Dividend Growth Stocks to Buy and Hold Forever](https://finance.yahoo.com/news/5-dividend-growth-stocks-buy-133000340.html)
+- Aug 19 - ['There is no timeline:’ Wildwood Thorofare bridge closed indefinitely](https://www.yahoo.com/news/no-timeline-wildwood-thorofare-bridge-131150353.html)
+- Aug 19 - [Fed to deliver three 25 quarter-point rate cuts this year; recession unlikely: Reuters poll](https://finance.yahoo.com/news/fed-deliver-three-25-quarter-125428100.html)
+- Aug 19 - [When is Joe Biden speaking at the Democratic National Convention?](https://www.yahoo.com/news/joe-biden-speaking-democratic-national-124633537.html)
 <!-- feed end -->
 
 ### Onstream
