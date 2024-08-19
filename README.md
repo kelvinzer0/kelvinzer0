@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Colony of 10,000 bees discovered living inside the ceiling of an East London pub](https://www.yahoo.com/news/colony-10-000-bees-discovered-134602889.html)
-- Aug 19 - [5 Dividend Growth Stocks to Buy and Hold Forever](https://finance.yahoo.com/news/5-dividend-growth-stocks-buy-133000340.html)
-- Aug 19 - ['There is no timeline:’ Wildwood Thorofare bridge closed indefinitely](https://www.yahoo.com/news/no-timeline-wildwood-thorofare-bridge-131150353.html)
-- Aug 19 - [Fed to deliver three 25 quarter-point rate cuts this year; recession unlikely: Reuters poll](https://finance.yahoo.com/news/fed-deliver-three-25-quarter-125428100.html)
-- Aug 19 - [When is Joe Biden speaking at the Democratic National Convention?](https://www.yahoo.com/news/joe-biden-speaking-democratic-national-124633537.html)
+- Aug 19 - [Watch: Soviet aircraft carrier burns in Chinese lagoon](https://www.yahoo.com/news/watch-soviet-aircraft-carrier-burns-145030466.html)
+- Aug 19 - [Mark Cuban Says He Drove Cars That Cost $200 With Holes In The Floorboard And Lived Off Mac And Cheese Because He Wanted To Retire Early](https://finance.yahoo.com/news/mark-cuban-says-drove-cars-144516563.html)
+- Aug 19 - [Alleged stalker shows up in NC with knife, rope. Federal lawsuit blames Verizon.](https://www.yahoo.com/news/alleged-stalker-shows-nc-knife-140908712.html)
+- Aug 19 - [Koenigsegg Jesko Attack sets Laguna Seca production car record](https://www.yahoo.com/news/koenigsegg-jesko-attack-sets-laguna-134100680.html)
+- Aug 19 - [SpaceX is about to send four people on a wild — and risky — mission into the radiation belts. Here’s what to know](https://www.yahoo.com/news/billionaire-lead-first-private-spacewalk-090002442.html)
 <!-- feed end -->
 
 ### Onstream
