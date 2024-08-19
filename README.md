@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Ukraine destroys 3rd key bridge, threatening to cut off Russian troops, amid incursion, Russian military bloggers say](https://www.yahoo.com/news/ukraine-destroys-3rd-key-bridge-103300035.html)
+- Aug 19 - [‘He called me a liar’: I inherited a $650,000 house from my grandparents, but my husband says I’ll never have any money when I’m older. Is he right?](https://finance.yahoo.com/news/called-liar-inherited-650-000-112800985.html)
 - Aug 19 - [Expect 'tough love' from Powell's Jackson Hole speech: Economist](https://finance.yahoo.com/video/expect-tough-love-powells-jackson-100046928.html)
-- Aug 19 - [Chinese and Philippine ships collide again in disputed waters, and the countries are trading blame](https://www.yahoo.com/news/chinese-philippine-ships-collide-again-095450811.html)
-- Aug 19 - [US House Republicans say Biden committed impeachable offenses](https://www.yahoo.com/news/us-house-republicans-biden-committed-090352994.html)
-- Aug 19 - [Former Saudi official alleges Prince Mohammed forged king's signature on Yemen war decree, BBC says](https://www.yahoo.com/news/former-saudi-official-alleges-prince-064657247.html)
-- Aug 19 - [Laura Ingraham Roasted Over Truly Clueless Complaint About Democratic Convention](https://www.yahoo.com/news/laura-ingraham-roasted-over-truly-061546156.html)
+- Aug 19 - [Moscow says Ukraine struck a third bridge over Seym river in Russia's Kursk region](https://www.yahoo.com/news/moscow-says-ukraine-struck-third-095054109.html)
+- Aug 19 - [She 'sarcastically' said Obama should be killed. Now she wants to control kids' education.](https://www.yahoo.com/news/she-sarcastically-said-obama-killed-091041846.html)
 <!-- feed end -->
 
 ### Onstream
