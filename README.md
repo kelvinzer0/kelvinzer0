@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [McDonald's foot-traffic rebound will be the story to watch for the next decade, analyst says](https://finance.yahoo.com/news/mcdonalds-foot-traffic-rebound-will-be-the-story-to-watch-for-the-next-decade-analyst-says-154317574.html)
+- Aug 19 - [MU said student group had to rename Welcome Black BBQ. Group says it's 'heartbroken'](https://www.yahoo.com/news/mu-said-student-group-had-163308646.html)
+- Aug 19 - [Satellite images capture the broken aftermath of the Ukrainian air force strikes on key Russian bridges to back the Kursk invasion](https://www.yahoo.com/news/satellite-images-capture-broken-aftermath-161730946.html)
+- Aug 19 - [Big changes to how you buy and sell a home go into effect today: What you need to know](https://finance.yahoo.com/news/big-changes-buy-sell-home-070002475.html)
 - Aug 19 - [GOP lawmakers stood by as Ryan Walters stonewalled Oklahomans. Now he’s doing it to them | Opinion](https://www.yahoo.com/news/gop-lawmakers-stood-ryan-walters-153000507.html)
-- Aug 19 - [“The View” star says former boss Donald Trump feels threatened by Kamala Harris 'because she's pretty'](https://www.yahoo.com/entertainment/view-star-says-former-boss-151846601.html)
-- Aug 19 - [US workers more glum on compensation and work prospects, New York Fed says](https://finance.yahoo.com/news/us-workers-more-glum-compensation-151103759.html)
-- Aug 19 - [Blue Supermoon: Rare celestial phenomenon to appear in the sky tonight](https://www.yahoo.com/news/blue-supermoon-rare-celestial-phenomenon-150939467.html)
+- Aug 19 - [Archaeologists find mastodon skull in Iowa, search for evidence it interacted with humans](https://www.yahoo.com/news/archaeologists-mastodon-skull-iowa-search-151755877.html)
 <!-- feed end -->
 
 ### Onstream
