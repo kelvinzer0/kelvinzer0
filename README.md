@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Survivor of Yacht That Sank Off Sicily's Coast Recalls How She Used 'All My Strength' to Save Her 1-Year-Old](https://www.yahoo.com/news/survivor-yacht-sank-off-sicilys-212918812.html)
+- Aug 19 - [Judge allows transgender New Hampshire girl to play soccer as lawsuit challenges new law](https://www.yahoo.com/news/judge-allows-transgender-hampshire-girl-212040086.html)
+- Aug 19 - [Meet the 15 members of the $100 billion club — who are jointly worth more than Google](https://finance.yahoo.com/news/meet-15-members-100-billion-203855987.html)
 - Aug 19 - [Putin has decided that Russia is going to be a 'safe haven' for people who want to trade liberal Western ways for Russian 'moral values'](https://www.yahoo.com/news/putin-decided-russia-going-safe-202856217.html)
-- Aug 19 - [Biden takes inaugural flight in long-delayed new 'Marine One' helicopter](https://www.yahoo.com/news/biden-takes-inaugural-flight-long-201022909.html)
-- Aug 19 - [Ron DeSantis-backed law barring Chinese from owning land in Florida galvanizes Asian Americans](https://www.yahoo.com/news/ron-desantis-backed-law-barring-190040291.html)
-- Aug 19 - [Sorry, I'm Still Laughing At The 32 Funniest Tweets From This Week](https://www.yahoo.com/entertainment/sorry-im-still-laughing-32-182542799.html)
-- Aug 19 - [Wisconsin woman who said she legally killed sex trafficker gets 11 years in prison](https://www.yahoo.com/news/wisconsin-woman-argued-she-legally-182018824.html)
+- Aug 19 - [Multiple crashes force closing of Massachusetts Turnpike eastbound in Charlton](https://www.yahoo.com/news/multiple-crashes-force-closing-massachusetts-190501536.html)
 <!-- feed end -->
 
 ### Onstream
