@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Expect 'tough love' from Powell's Jackson Hole speech: Economist](https://finance.yahoo.com/video/expect-tough-love-powells-jackson-100046928.html)
+- Aug 19 - [Chinese and Philippine ships collide again in disputed waters, and the countries are trading blame](https://www.yahoo.com/news/chinese-philippine-ships-collide-again-095450811.html)
+- Aug 19 - [US House Republicans say Biden committed impeachable offenses](https://www.yahoo.com/news/us-house-republicans-biden-committed-090352994.html)
 - Aug 19 - [Former Saudi official alleges Prince Mohammed forged king's signature on Yemen war decree, BBC says](https://www.yahoo.com/news/former-saudi-official-alleges-prince-064657247.html)
-- Aug 19 - [German warships await orders on crossing Taiwan Strait](https://www.yahoo.com/news/german-warships-await-orders-crossing-060617746.html)
-- Aug 19 - [Gay man says he was assaulted by Shake Shack employees after kissing his boyfriend at D.C. location](https://www.yahoo.com/news/gay-man-says-assaulted-shake-051338085.html)
-- Aug 19 - [One of Earth's Continents Is Rising Up, And The Effects Could Be Huge](https://www.yahoo.com/news/one-earths-continents-rising-effects-015733741.html)
-- Aug 19 - [Officials speak out after video confirms sighting of giant, alligator-like lizard along busy road: 'Why … would someone have that for a pet?'](https://www.yahoo.com/news/officials-speak-video-confirms-sighting-003000371.html)
+- Aug 19 - [Laura Ingraham Roasted Over Truly Clueless Complaint About Democratic Convention](https://www.yahoo.com/news/laura-ingraham-roasted-over-truly-061546156.html)
 <!-- feed end -->
 
 ### Onstream
