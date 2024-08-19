@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [TUI Third Quarter 2024 Earnings: Revenues Beat Expectations, EPS Lags](https://finance.yahoo.com/news/tui-third-quarter-2024-earnings-044102192.html)
+- Aug 19 - [Chinese and Philippine ships collide again in disputed waters, and the countries are trading blame](https://www.yahoo.com/news/china-accuses-philippines-deliberately-crashing-022145597.html)
 - Aug 19 - [One of Earth's Continents Is Rising Up, And The Effects Could Be Huge](https://www.yahoo.com/news/one-earths-continents-rising-effects-015733741.html)
+- Aug 19 - [Singapore Prime Minister Warns US Stance on China Is 'Hardening'](https://finance.yahoo.com/video/singapore-prime-minister-warns-us-015724292.html)
 - Aug 18 - [Multiple people injured during ride ‘incident’ at western Pa. amusement park](https://www.yahoo.com/news/multiple-people-injured-during-ride-233452351.html)
-- Aug 18 - [Father jumps into American River to save son, doesn’t return to surface, sheriff’s office says](https://www.yahoo.com/news/placer-county-sheriff-office-searching-223918065.html)
-- Aug 18 - [Crowds gather despite warnings for Port Huron Float Down](https://www.yahoo.com/news/crowds-gather-despite-warnings-port-202853623.html)
-- Aug 18 - [‘Pump Switching’ and Other Gas Station Scams To Avoid at All Costs](https://finance.yahoo.com/news/gas-station-scam-pump-switching-190107842.html)
 <!-- feed end -->
 
 ### Onstream
