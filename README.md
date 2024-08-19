@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Watch: Soviet aircraft carrier burns in Chinese lagoon](https://www.yahoo.com/news/watch-soviet-aircraft-carrier-burns-145030466.html)
-- Aug 19 - [Mark Cuban Says He Drove Cars That Cost $200 With Holes In The Floorboard And Lived Off Mac And Cheese Because He Wanted To Retire Early](https://finance.yahoo.com/news/mark-cuban-says-drove-cars-144516563.html)
-- Aug 19 - [Alleged stalker shows up in NC with knife, rope. Federal lawsuit blames Verizon.](https://www.yahoo.com/news/alleged-stalker-shows-nc-knife-140908712.html)
-- Aug 19 - [Koenigsegg Jesko Attack sets Laguna Seca production car record](https://www.yahoo.com/news/koenigsegg-jesko-attack-sets-laguna-134100680.html)
-- Aug 19 - [SpaceX is about to send four people on a wild — and risky — mission into the radiation belts. Here’s what to know](https://www.yahoo.com/news/billionaire-lead-first-private-spacewalk-090002442.html)
+- Aug 19 - [McDonald's foot-traffic rebound will be the story to watch for the next decade, analyst says](https://finance.yahoo.com/news/mcdonalds-foot-traffic-rebound-will-be-the-story-to-watch-for-the-next-decade-analyst-says-154317574.html)
+- Aug 19 - [GOP lawmakers stood by as Ryan Walters stonewalled Oklahomans. Now he’s doing it to them | Opinion](https://www.yahoo.com/news/gop-lawmakers-stood-ryan-walters-153000507.html)
+- Aug 19 - [“The View” star says former boss Donald Trump feels threatened by Kamala Harris 'because she's pretty'](https://www.yahoo.com/entertainment/view-star-says-former-boss-151846601.html)
+- Aug 19 - [US workers more glum on compensation and work prospects, New York Fed says](https://finance.yahoo.com/news/us-workers-more-glum-compensation-151103759.html)
+- Aug 19 - [Blue Supermoon: Rare celestial phenomenon to appear in the sky tonight](https://www.yahoo.com/news/blue-supermoon-rare-celestial-phenomenon-150939467.html)
 <!-- feed end -->
 
 ### Onstream
