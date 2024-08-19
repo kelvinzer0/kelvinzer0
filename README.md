@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [German warships await orders on crossing disputed Taiwan Strait](https://www.yahoo.com/news/german-warships-await-orders-crossing-060617746.html)
-- Aug 19 - [Gay man says he was assaulted by Shake Shack employees after kissing his boyfriend at D.C. location](https://www.yahoo.com/news/gay-man-says-assaulted-shake-051338085.html)
+- Aug 19 - [Indian doctors demand tougher laws after a colleague was raped and killed at a hospital](https://www.yahoo.com/news/indian-doctors-demand-tougher-laws-070815934.html)
+- Aug 19 - [Former Saudi official alleges Prince Mohammed forged king's signature on Yemen war decree, BBC says](https://www.yahoo.com/news/former-saudi-official-alleges-prince-064657247.html)
+- Aug 19 - [German warships await orders on crossing Taiwan Strait](https://www.yahoo.com/news/german-warships-await-orders-crossing-060617746.html)
 - Aug 19 - [Ukrainian soldiers suspected they would invade Russia when they got new rifles, but still thought it was a joke when the orders came through](https://www.yahoo.com/news/ukrainian-soldiers-suspected-invade-russia-050326753.html)
 - Aug 19 - [Too many people, not enough management: A look at the chaos of 'overtourism' in the summer of 2024](https://www.yahoo.com/news/too-many-people-not-enough-042051066.html)
-- Aug 19 - [Chinese and Philippine ships collide again in disputed waters, and the countries are trading blame](https://www.yahoo.com/news/china-accuses-philippines-deliberately-crashing-022145597.html)
 <!-- feed end -->
 
 ### Onstream
