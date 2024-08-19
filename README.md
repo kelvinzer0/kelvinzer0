@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Maddow Blog | Trump’s unsettling new question: ‘Why are we having an election?’](https://www.yahoo.com/news/maddow-blog-trump-unsettling-why-175119806.html)
+- Aug 19 - [Sorry, I'm Still Laughing At The 32 Funniest Tweets From This Week](https://www.yahoo.com/entertainment/sorry-im-still-laughing-32-182542799.html)
+- Aug 19 - [Wisconsin woman who argued she legally killed sex trafficker gets 11 years in prison](https://www.yahoo.com/news/wisconsin-woman-argued-she-legally-182018824.html)
 - Aug 19 - [Duck boat rescues baby boy who fell into Charles River, dad who jumped in after him](https://www.yahoo.com/news/could-hear-screaming-boston-duck-144025128.html)
-- Aug 19 - [The Mennonites Making the Amazon Their Home](https://www.yahoo.com/news/mennonites-making-amazon-home-173229610.html)
-- Aug 19 - [Lamborghini’s New Temerario Supercar Is a 907-Horsepower Hybrid Beast](https://www.yahoo.com/tech/lamborghini-temerario-supercar-907-horsepower-173000261.html)
-- Aug 19 - [Learner driver who killed three 16 year-old friends in high-speed crash jailed](https://www.yahoo.com/news/learner-driver-killed-three-16-111425778.html)
-- Aug 19 - [Republicans Wrap Up Impeachment Inquiry Against Joe Biden With No Impeachment](https://www.yahoo.com/news/republicans-wrap-impeachment-inquiry-against-160150849.html)
+- Aug 19 - [Zelenskiy: if Ukraine could strike deep in Russia, no need for Kursk incursion](https://www.yahoo.com/news/zelenskiy-ukraine-controls-92-settlements-173720990.html)
 <!-- feed end -->
 
 ### Onstream
