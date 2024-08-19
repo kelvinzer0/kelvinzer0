@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Swarmbiotics founders grew 'obsessed with robot swarms' and now plan to bring them to the battlefield](https://www.yahoo.com/news/swarmbiotics-founders-grew-obsessed-robot-192946115.html)
+- Aug 19 - [How sinking of luxury yacht off Sicily unfolded](https://www.yahoo.com/news/sinking-luxury-yacht-off-sicily-192143119.html)
+- Aug 19 - [I Put Together These Photos Of Historical Landmarks In The 1900s Versus Today, And It Is So Fascinating](https://www.yahoo.com/lifestyle/put-together-photos-historical-landmarks-191602044.html)
+- Aug 19 - [Europe's Jupiter probe to stage daring lunar-Earth fly-by](https://www.yahoo.com/news/europes-jupiter-probe-stage-daring-190502538.html)
 - Aug 19 - [Maddow Blog | Trump’s unsettling new question: ‘Why are we having an election?’](https://www.yahoo.com/news/maddow-blog-trump-unsettling-why-175119806.html)
-- Aug 19 - [Sorry, I'm Still Laughing At The 32 Funniest Tweets From This Week](https://www.yahoo.com/entertainment/sorry-im-still-laughing-32-182542799.html)
-- Aug 19 - [Wisconsin woman who argued she legally killed sex trafficker gets 11 years in prison](https://www.yahoo.com/news/wisconsin-woman-argued-she-legally-182018824.html)
-- Aug 19 - [Duck boat rescues baby boy who fell into Charles River, dad who jumped in after him](https://www.yahoo.com/news/could-hear-screaming-boston-duck-144025128.html)
-- Aug 19 - [Zelenskiy: if Ukraine could strike deep in Russia, no need for Kursk incursion](https://www.yahoo.com/news/zelenskiy-ukraine-controls-92-settlements-173720990.html)
 <!-- feed end -->
 
 ### Onstream
