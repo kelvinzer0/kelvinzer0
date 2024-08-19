@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Aug 19 - [Top 3 TSX Dividend Stocks To Boost Your Portfolio](https://finance.yahoo.com/news/top-3-tsx-dividend-stocks-120703128.html)
+- Aug 19 - [Old aircraft carrier, once part of mighty Soviet fleet, burns in Chinese lagoon](https://www.yahoo.com/news/old-aircraft-carrier-once-part-045430601.html)
+- Aug 19 - [If a neighbor's tree falls on your property, who has to pay for the damage?](https://finance.yahoo.com/news/neighbors-tree-falls-property-pay-105000020.html)
 - Aug 19 - [Ukraine destroys 3rd key bridge, threatening to cut off Russian troops, amid incursion, Russian military bloggers say](https://www.yahoo.com/news/ukraine-destroys-3rd-key-bridge-103300035.html)
 - Aug 19 - [One dead and six people missing after tornado sinks luxury yacht off Sicily](https://www.yahoo.com/news/one-dead-six-people-missing-093033198.html)
-- Aug 19 - [‘He called me a liar’: I inherited a $650,000 house from my grandparents, but my husband says I’ll never have any money when I’m older. Is he right?](https://finance.yahoo.com/news/called-liar-inherited-650-000-112800985.html)
-- Aug 19 - [Republicans ask Supreme Court to block 40,000 Arizonans from voting in November](https://www.yahoo.com/news/republicans-ask-supreme-court-block-100050322.html)
 <!-- feed end -->
 
 ### Onstream
