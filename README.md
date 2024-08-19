@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Swarmbiotics founders grew 'obsessed with robot swarms' and now plan to bring them to the battlefield](https://www.yahoo.com/news/swarmbiotics-founders-grew-obsessed-robot-192946115.html)
-- Aug 19 - [How sinking of luxury yacht off Sicily unfolded](https://www.yahoo.com/news/sinking-luxury-yacht-off-sicily-192143119.html)
-- Aug 19 - [I Put Together These Photos Of Historical Landmarks In The 1900s Versus Today, And It Is So Fascinating](https://www.yahoo.com/lifestyle/put-together-photos-historical-landmarks-191602044.html)
-- Aug 19 - [Europe's Jupiter probe to stage daring lunar-Earth fly-by](https://www.yahoo.com/news/europes-jupiter-probe-stage-daring-190502538.html)
-- Aug 19 - [Maddow Blog | Trump’s unsettling new question: ‘Why are we having an election?’](https://www.yahoo.com/news/maddow-blog-trump-unsettling-why-175119806.html)
+- Aug 19 - [Putin has decided that Russia is going to be a 'safe haven' for people who want to trade liberal Western ways for Russian 'moral values'](https://www.yahoo.com/news/putin-decided-russia-going-safe-202856217.html)
+- Aug 19 - [Biden takes inaugural flight in long-delayed new 'Marine One' helicopter](https://www.yahoo.com/news/biden-takes-inaugural-flight-long-201022909.html)
+- Aug 19 - [Ron DeSantis-backed law barring Chinese from owning land in Florida galvanizes Asian Americans](https://www.yahoo.com/news/ron-desantis-backed-law-barring-190040291.html)
+- Aug 19 - [Sorry, I'm Still Laughing At The 32 Funniest Tweets From This Week](https://www.yahoo.com/entertainment/sorry-im-still-laughing-32-182542799.html)
+- Aug 19 - [Wisconsin woman who said she legally killed sex trafficker gets 11 years in prison](https://www.yahoo.com/news/wisconsin-woman-argued-she-legally-182018824.html)
 <!-- feed end -->
 
 ### Onstream
