@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
 - Aug 19 - [Ukraine destroys 3rd key bridge, threatening to cut off Russian troops, amid incursion, Russian military bloggers say](https://www.yahoo.com/news/ukraine-destroys-3rd-key-bridge-103300035.html)
+- Aug 19 - [One dead and six people missing after tornado sinks luxury yacht off Sicily](https://www.yahoo.com/news/one-dead-six-people-missing-093033198.html)
 - Aug 19 - [‘He called me a liar’: I inherited a $650,000 house from my grandparents, but my husband says I’ll never have any money when I’m older. Is he right?](https://finance.yahoo.com/news/called-liar-inherited-650-000-112800985.html)
-- Aug 19 - [Expect 'tough love' from Powell's Jackson Hole speech: Economist](https://finance.yahoo.com/video/expect-tough-love-powells-jackson-100046928.html)
-- Aug 19 - [Moscow says Ukraine struck a third bridge over Seym river in Russia's Kursk region](https://www.yahoo.com/news/moscow-says-ukraine-struck-third-095054109.html)
-- Aug 19 - [She 'sarcastically' said Obama should be killed. Now she wants to control kids' education.](https://www.yahoo.com/news/she-sarcastically-said-obama-killed-091041846.html)
+- Aug 19 - [Republicans ask Supreme Court to block 40,000 Arizonans from voting in November](https://www.yahoo.com/news/republicans-ask-supreme-court-block-100050322.html)
 <!-- feed end -->
 
 ### Onstream
