@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Suspect in multi-county police chase, SWAT standoff booked in jail](https://www.yahoo.com/news/suspect-multi-county-police-chase-021753178.html)
 - Aug 19 - [One of Earth's Continents Is Rising Up, And The Effects Could Be Huge](https://www.yahoo.com/news/one-earths-continents-rising-effects-015733741.html)
 - Aug 19 - [Melrose post office to be renamed for deceased letter carrier attacked by dogs](https://www.yahoo.com/news/melrose-post-office-renamed-deceased-013624693.html)
-- Aug 19 - [Philippines, China trade blame after vessels collide in the South China Sea](https://www.yahoo.com/news/china-says-philippine-vessel-deliberately-001717905.html)
+- Aug 19 - [Violent extortionist targeting Koreatown karaoke bars gets 22 years in jail](https://www.yahoo.com/news/violent-extortionist-targeting-koreatown-karaoke-002545767.html)
 - Aug 18 - [Multiple people injured during ride ‘incident’ at western Pa. amusement park](https://www.yahoo.com/news/multiple-people-injured-during-ride-233452351.html)
-- Aug 18 - [Video shows North Carolina home collapse into the Atlantic Ocean](https://www.yahoo.com/news/video-shows-north-carolina-home-224049848.html)
 <!-- feed end -->
 
 ### Onstream
