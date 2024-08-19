@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [MU said student group had to rename Welcome Black BBQ. Group says it's 'heartbroken'](https://www.yahoo.com/news/mu-said-student-group-had-163308646.html)
-- Aug 19 - [Satellite images capture the broken aftermath of the Ukrainian air force strikes on key Russian bridges to back the Kursk invasion](https://www.yahoo.com/news/satellite-images-capture-broken-aftermath-161730946.html)
-- Aug 19 - [Big changes to how you buy and sell a home go into effect today: What you need to know](https://finance.yahoo.com/news/big-changes-buy-sell-home-070002475.html)
-- Aug 19 - [GOP lawmakers stood by as Ryan Walters stonewalled Oklahomans. Now he’s doing it to them | Opinion](https://www.yahoo.com/news/gop-lawmakers-stood-ryan-walters-153000507.html)
-- Aug 19 - [Archaeologists find mastodon skull in Iowa, search for evidence it interacted with humans](https://www.yahoo.com/news/archaeologists-mastodon-skull-iowa-search-151755877.html)
+- Aug 19 - [Duck boat rescues baby boy who fell into Charles River, dad who jumped in after him](https://www.yahoo.com/news/could-hear-screaming-boston-duck-144025128.html)
+- Aug 19 - [The Mennonites Making the Amazon Their Home](https://www.yahoo.com/news/mennonites-making-amazon-home-173229610.html)
+- Aug 19 - [Lamborghini’s New Temerario Supercar Is a 907-Horsepower Hybrid Beast](https://www.yahoo.com/tech/lamborghini-temerario-supercar-907-horsepower-173000261.html)
+- Aug 19 - [Learner driver who killed three 16 year-old friends in high-speed crash jailed](https://www.yahoo.com/news/learner-driver-killed-three-16-111425778.html)
+- Aug 19 - [Republicans Wrap Up Impeachment Inquiry Against Joe Biden With No Impeachment](https://www.yahoo.com/news/republicans-wrap-impeachment-inquiry-against-160150849.html)
 <!-- feed end -->
 
 ### Onstream
