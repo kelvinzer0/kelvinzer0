@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [3 shot at popular south Charlotte shopping center](https://www.yahoo.com/news/3-shot-popular-south-charlotte-025046811.html)
+- Aug 20 - [How the full moon affects your sleep](https://www.yahoo.com/lifestyle/full-moon-sleep-supermoon-080515838.html)
+- Aug 20 - [Israeli military says it has recovered the bodies of 6 hostages in a Gaza operation](https://www.yahoo.com/news/israeli-military-says-recovered-bodies-071047120.html)
+- Aug 20 - [Why is Israel demanding control over 2 Gaza corridors in the cease-fire talks?](https://www.yahoo.com/news/why-israel-demanding-control-over-044255080.html)
 - Aug 20 - [Gwen Walz reveals she underwent a different treatment, not IVF, in new details about fertility struggles](https://www.yahoo.com/news/gwen-walz-reveals-she-underwent-042920453.html)
-- Aug 20 - [Scientists achieve major breakthrough in the quest for limitless energy: 'It's setting a world record'](https://www.yahoo.com/tech/scientists-achieve-major-breakthrough-quest-040000936.html)
 - Aug 20 - [Officials offer critical warning after US state confirms cases of rare but serious infection spread by animals: 'It is transmitted by various rodents'](https://www.yahoo.com/news/officials-offer-critical-warning-us-014500277.html)
-- Aug 20 - [Suspension of most Columbia students disciplined over Gaza protests is removed](https://www.yahoo.com/news/suspension-most-columbia-students-disciplined-012640294.html)
 <!-- feed end -->
 
 ### Onstream
