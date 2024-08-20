@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 20 - [Agricultural show apologises for access issues](https://www.yahoo.com/news/agricultural-show-apologises-access-issues-053744741.html)
+- Aug 20 - [Who is Mike Lynch? The billionaire tech entrepreneur missing after sailing yacht Bayesian sinks in Italy](https://www.yahoo.com/news/mike-lynch-billionaire-tech-entrepreneur-140058746.html)
+- Aug 20 - [‘I felt like this was my last moment’: ‘Ewa woman after being attacked by over 15 dogs](https://www.yahoo.com/news/felt-last-moment-ewa-woman-035512717.html)
 - Aug 20 - [Officials offer critical warning after US state confirms cases of rare but serious infection spread by animals: 'It is transmitted by various rodents'](https://www.yahoo.com/news/officials-offer-critical-warning-us-014500277.html)
-- Aug 20 - [Several vehicles catch fire after crash on I-80 in Sacramento](https://www.yahoo.com/news/several-vehicles-catch-fire-crash-000411817.html)
 - Aug 19 - [JD Vance Risks Unforgivable Cheese Faux Pas in Philadelphia](https://www.yahoo.com/news/jd-vance-nearly-makes-major-234947286.html)
-- Aug 19 - [This Boise teacher’s suspension caused a walkout. The district is paying her a large sum](https://www.yahoo.com/news/boise-teacher-suspension-caused-walkout-224033546.html)
-- Aug 19 - [Aunt Rescues Her 7-Year-Old Niece From Alleged Kidnapper](https://www.yahoo.com/news/aunt-rescues-her-7-old-220202674.html)
 <!-- feed end -->
 
 ### Onstream
