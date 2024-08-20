@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Is there a vaccine for mpox? Who can get the shot and where? How to find it in Florida](https://www.yahoo.com/news/vaccine-mpox-shot-where-florida-090000200.html)
+- Aug 20 - [Lilly weight loss drug prevents diabetes, company says](https://www.yahoo.com/news/lilly-weight-loss-drug-prevents-104525425.html)
+- Aug 20 - [‘I lost so much’: California Home Depot fired 70-year-old woman who processed $5K in fraudulent transactions — now she’s suing](https://finance.yahoo.com/news/lost-much-california-home-depot-100500578.html)
 - Aug 20 - [She says Israeli military killed her husband and daughter. Then soldiers brought her to an Israeli hospital](https://www.yahoo.com/news/her-mother-says-israeli-military-040202892.html)
-- Aug 20 - [How the full moon affects your sleep](https://www.yahoo.com/lifestyle/full-moon-sleep-supermoon-080515838.html)
-- Aug 20 - [Russia hits energy infrastructure in airstrikes on Ukraine](https://www.yahoo.com/news/russia-launches-fifth-missile-attack-043415320.html)
-- Aug 20 - [Trump to participate in Fox News town hall after debate doesn’t materialize](https://www.yahoo.com/news/trump-participate-fox-news-town-040250087.html)
+- Aug 20 - [Experts sound alarm after finding invasive species capable of wiping out ecosystem in major US river: 'The ramifications cannot be underestimated or overstated'](https://www.yahoo.com/news/experts-sound-alarm-finding-invasive-053000107.html)
+- Aug 20 - [Gwen Walz reveals she underwent a different treatment, not IVF, in new details about fertility struggles](https://www.yahoo.com/news/gwen-walz-reveals-she-underwent-042920453.html)
 <!-- feed end -->
 
 ### Onstream
