@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Dr. Jill Biden honors husband Joe Biden at Democratic convention](https://www.yahoo.com/news/dr-jill-biden-honors-husband-033213954.html)
-- Aug 20 - [North Korean soldier defects to the South, Yonhap reports](https://www.yahoo.com/news/north-korea-soldier-defects-south-002516992.html)
+- Aug 20 - [Officials offer critical warning after US state confirms cases of rare but serious infection spread by animals: 'It is transmitted by various rodents'](https://www.yahoo.com/news/officials-offer-critical-warning-us-014500277.html)
+- Aug 20 - [Several vehicles catch fire after crash on I-80 in Sacramento](https://www.yahoo.com/news/several-vehicles-catch-fire-crash-000411817.html)
 - Aug 19 - [JD Vance Risks Unforgivable Cheese Faux Pas in Philadelphia](https://www.yahoo.com/news/jd-vance-nearly-makes-major-234947286.html)
 - Aug 19 - [This Boise teacher’s suspension caused a walkout. The district is paying her a large sum](https://www.yahoo.com/news/boise-teacher-suspension-caused-walkout-224033546.html)
-- Aug 19 - [Austin man frustrated after apartment complex wouldn't pay for damage to his truck](https://www.yahoo.com/news/austin-man-frustrated-apartment-complex-220530385.html)
+- Aug 19 - [Aunt Rescues Her 7-Year-Old Niece From Alleged Kidnapper](https://www.yahoo.com/news/aunt-rescues-her-7-old-220202674.html)
 <!-- feed end -->
 
 ### Onstream
