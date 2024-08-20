@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Aunt Rescues Her 7-Year-Old Niece From Alleged Kidnapper](https://www.yahoo.com/news/aunt-rescues-her-7-old-220202674.html)
+- Aug 19 - [Revised LDS handbook updates transgender policies, medical restrictions to garments](https://www.yahoo.com/news/revised-lds-handbook-updates-transgender-212851593.html)
 - Aug 19 - [Judge allows transgender New Hampshire girl to play soccer as lawsuit challenges new law](https://www.yahoo.com/news/judge-allows-transgender-hampshire-girl-212040086.html)
-- Aug 19 - [Meet the 15 members of the $100 billion club — who are jointly worth more than Google](https://finance.yahoo.com/news/meet-15-members-100-billion-203855987.html)
-- Aug 19 - [This bizarre discovery on a Southern California beach wasn’t what it seemed](https://www.yahoo.com/news/bizarre-discovery-southern-california-beach-203642314.html)
-- Aug 19 - [Putin has decided that Russia is going to be a 'safe haven' for people who want to trade liberal Western ways for Russian 'moral values'](https://www.yahoo.com/news/putin-decided-russia-going-safe-202856217.html)
-- Aug 19 - [The Big Misconception You Shouldn't Believe About Costco's Free Samples](https://www.yahoo.com/lifestyle/big-misconception-shouldnt-believe-costcos-200541882.html)
+- Aug 19 - [TBI report: Memphis Police Department cleared less than 14% of major offenses in 2023](https://www.yahoo.com/news/tbi-report-memphis-police-department-211024102.html)
+- Aug 19 - [Trump says he may end EV tax credit; is open to naming Elon Musk as an adviser](https://finance.yahoo.com/news/trump-says-consider-ending-7-205139477.html)
 <!-- feed end -->
 
 ### Onstream
