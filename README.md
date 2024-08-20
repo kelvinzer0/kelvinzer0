@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [The Internet Is "Very Demure, Very Mindful" Right Now. Here Are 20 Of The Best Tweets From This Cutesy Movement](https://www.yahoo.com/entertainment/internet-very-demure-very-mindful-154701487.html)
+- Aug 20 - [Factbox-What we know about the sinking of the superyacht off Sicily](https://www.yahoo.com/news/factbox-know-sinking-superyacht-off-164639582.html)
+- Aug 20 - [Burke County Sheriff: Identities released in fatal ATV crash, family creates GoFundMe](https://www.yahoo.com/news/burke-county-sheriff-identities-released-162452131.html)
+- Aug 20 - [Meghan McCain slams whatever 'a--hole' put Joe Biden on DNC stage late at night: 'Disrespectful'](https://www.yahoo.com/entertainment/meghan-mccain-slams-whatever-hole-152147141.html)
 - Aug 20 - [After yacht sinks, experts say Mediterranean growing more dangerous](https://www.yahoo.com/news/yacht-sinks-experts-mediterranean-growing-150724981.html)
-- Aug 20 - [Trump Melts Down After Harris’s Debate Decision Leaves Him Rattled](https://www.yahoo.com/news/trump-melts-down-harris-debate-134656547.html)
-- Aug 20 - [How the world’s tallest bridge changed the map of Europe](https://www.yahoo.com/news/world-tallest-bridge-changed-map-093109219.html)
-- Aug 20 - [Posh Tacoma home owned by ex-NFL player is really events venue, unhappy neighbors say](https://www.yahoo.com/news/posh-tacoma-home-owned-ex-120000362.html)
+- Aug 20 - [Money pours in for Indy hot dog man seeking to buy a food truck](https://www.yahoo.com/news/money-pours-indy-hot-dog-142510718.html)
 <!-- feed end -->
 
 ### Onstream
