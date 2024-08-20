@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Blinken meets Qatari Emir at Lusail Palace in Doha](https://www.yahoo.com/news/blinken-meets-qatari-emir-lusail-194337871.html)
+- Aug 20 - [Convicted cancer doctor Farid Fata begs for early release: I'll die if I don't get out](https://www.yahoo.com/news/convicted-cancer-doctor-farid-fata-200344374.html)
 - Aug 20 - [Apple event rumor roundup: What to expect at the iPhone 16 keynote](https://www.yahoo.com/news/apple-event-rumor-roundup-what-to-expect-at-the-iphone-16-keynote-192347591.html)
+- Aug 20 - [Sinaloa cartel infighting rises in northern Mexico following the detention of 2 drug lords in July](https://www.yahoo.com/news/sinaloa-cartel-infighting-rises-northern-192141030.html)
 - Aug 20 - [CCTV footage shows the moment missing tycoon Mike Lynch’s Bayesian yacht is engulfed by storm](https://www.yahoo.com/news/cctv-footage-shows-moment-missing-192132351.html)
-- Aug 20 - [RFK Jr said to weigh dropping US presidential bid to join up with Trump](https://www.yahoo.com/news/rfk-jr-said-weigh-dropping-191159226.html)
-- Aug 20 - [Nvidia earnings preview, Netflix jumps, and recession fears: Catalysts](https://finance.yahoo.com/video/nvidia-earnings-preview-netflix-jumps-172842318.html)
+- Aug 20 - [Ex-officer convicted in George Floyd's killing is moved to new prison months after stabbing](https://www.yahoo.com/news/ex-officer-convicted-george-floyds-184013388.html)
 <!-- feed end -->
 
 ### Onstream
