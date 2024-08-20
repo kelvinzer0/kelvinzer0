@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Agricultural show apologises for access issues](https://www.yahoo.com/news/agricultural-show-apologises-access-issues-053744741.html)
-- Aug 20 - [Who is Mike Lynch? The billionaire tech entrepreneur missing after sailing yacht Bayesian sinks in Italy](https://www.yahoo.com/news/mike-lynch-billionaire-tech-entrepreneur-140058746.html)
-- Aug 20 - [‘I felt like this was my last moment’: ‘Ewa woman after being attacked by over 15 dogs](https://www.yahoo.com/news/felt-last-moment-ewa-woman-035512717.html)
+- Aug 20 - [3 shot at popular south Charlotte shopping center](https://www.yahoo.com/news/3-shot-popular-south-charlotte-025046811.html)
+- Aug 20 - [Gwen Walz reveals she underwent a different treatment, not IVF, in new details about fertility struggles](https://www.yahoo.com/news/gwen-walz-reveals-she-underwent-042920453.html)
+- Aug 20 - [Scientists achieve major breakthrough in the quest for limitless energy: 'It's setting a world record'](https://www.yahoo.com/tech/scientists-achieve-major-breakthrough-quest-040000936.html)
 - Aug 20 - [Officials offer critical warning after US state confirms cases of rare but serious infection spread by animals: 'It is transmitted by various rodents'](https://www.yahoo.com/news/officials-offer-critical-warning-us-014500277.html)
-- Aug 19 - [JD Vance Risks Unforgivable Cheese Faux Pas in Philadelphia](https://www.yahoo.com/news/jd-vance-nearly-makes-major-234947286.html)
+- Aug 20 - [Suspension of most Columbia students disciplined over Gaza protests is removed](https://www.yahoo.com/news/suspension-most-columbia-students-disciplined-012640294.html)
 <!-- feed end -->
 
 ### Onstream
