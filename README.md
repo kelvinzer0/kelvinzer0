@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Boeing Official Says He's Not Surprised Starliner Astronauts Still Stuck in Space](https://www.yahoo.com/news/boeing-official-says-hes-not-141728394.html)
+- Aug 20 - [The Internet Is "Very Demure, Very Mindful" Right Now. Here Are 20 Of The Best Tweets From This Cutesy Movement](https://www.yahoo.com/entertainment/internet-very-demure-very-mindful-154701487.html)
+- Aug 20 - [After yacht sinks, experts say Mediterranean growing more dangerous](https://www.yahoo.com/news/yacht-sinks-experts-mediterranean-growing-150724981.html)
 - Aug 20 - [Trump Melts Down After Harris’s Debate Decision Leaves Him Rattled](https://www.yahoo.com/news/trump-melts-down-harris-debate-134656547.html)
-- Aug 20 - [Gunfire damages Muscogee school bus while transporting students, Columbus police say](https://www.yahoo.com/news/gunfire-damages-muscogee-school-bus-124722014.html)
+- Aug 20 - [How the world’s tallest bridge changed the map of Europe](https://www.yahoo.com/news/world-tallest-bridge-changed-map-093109219.html)
 - Aug 20 - [Posh Tacoma home owned by ex-NFL player is really events venue, unhappy neighbors say](https://www.yahoo.com/news/posh-tacoma-home-owned-ex-120000362.html)
-- Aug 20 - [Humans age dramatically at two key points in their life, study finds](https://www.yahoo.com/news/humans-age-dramatically-two-key-113218810.html)
 <!-- feed end -->
 
 ### Onstream
