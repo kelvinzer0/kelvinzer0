@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Scott Peterson reveals what he thinks happened to Laci Peterson](https://www.yahoo.com/news/scott-peterson-reveals-thinks-happened-114324100.html)
-- Aug 20 - [More evacuations take place in Russia’s Kursk region following Ukraine’s incursion](https://www.yahoo.com/news/more-evacuations-place-russia-kursk-105700845.html)
-- Aug 20 - [Ohio University's fine arts building to be renamed after central Ohio philanthropists](https://www.yahoo.com/news/ohio-universitys-fine-arts-building-101529089.html)
+- Aug 20 - [Google sues Russia Today after YouTube ban triggers legal battle](https://www.yahoo.com/news/google-sues-russia-today-youtube-123257286.html)
+- Aug 20 - [Eastern WA site may become largest trucking services complex for hundreds of miles](https://www.yahoo.com/news/eastern-wa-may-become-largest-120000264.html)
 - Aug 20 - [Exclusive-Hess Guyana's secret value becomes part of Exxon arbitration, sources say](https://finance.yahoo.com/news/exclusive-hess-guyanas-secret-value-100705086.html)
-- Aug 20 - [‘I lost so much’: California Home Depot fired 70-year-old woman who processed $5K in fraudulent transactions — now she’s suing](https://finance.yahoo.com/news/lost-much-california-home-depot-100500578.html)
+- Aug 20 - [Experts sound alarm after finding invasive species capable of wiping out ecosystem in major US river: 'The ramifications cannot be underestimated or overstated'](https://www.yahoo.com/news/experts-sound-alarm-finding-invasive-053000107.html)
+- Aug 20 - [Russia hits energy infrastructure in airstrikes on Ukraine](https://www.yahoo.com/news/russia-launches-fifth-missile-attack-043415320.html)
 <!-- feed end -->
 
 ### Onstream
