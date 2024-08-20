@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Factbox-What we know about the sinking of the superyacht off Sicily](https://www.yahoo.com/news/factbox-know-sinking-superyacht-off-164639582.html)
-- Aug 20 - [Burke County Sheriff: Identities released in fatal ATV crash, family creates GoFundMe](https://www.yahoo.com/news/burke-county-sheriff-identities-released-162452131.html)
-- Aug 20 - [Meghan McCain slams whatever 'a--hole' put Joe Biden on DNC stage late at night: 'Disrespectful'](https://www.yahoo.com/entertainment/meghan-mccain-slams-whatever-hole-152147141.html)
+- Aug 20 - [India flags concerns with Disney-Reliance merger](https://finance.yahoo.com/video/india-flags-concerns-disney-reliance-170903417.html)
 - Aug 20 - [After yacht sinks, experts say Mediterranean growing more dangerous](https://www.yahoo.com/news/yacht-sinks-experts-mediterranean-growing-150724981.html)
-- Aug 20 - [Money pours in for Indy hot dog man seeking to buy a food truck](https://www.yahoo.com/news/money-pours-indy-hot-dog-142510718.html)
+- Aug 20 - [Alphabet's Waymo robotaxi unit doubles its paid rides in three months](https://finance.yahoo.com/news/alphabets-waymo-robotaxi-unit-doubles-150248686.html)
+- Aug 20 - [Ukrainian Drones Target Russian Pontoon and Military Vehicle in Kursk Oblast](https://www.yahoo.com/news/ukrainian-drones-target-russian-pontoon-141526274.html)
+- Aug 20 - [Trump Melts Down After Harris’s Debate Decision Leaves Him Rattled](https://www.yahoo.com/news/trump-melts-down-harris-debate-134656547.html)
 <!-- feed end -->
 
 ### Onstream
