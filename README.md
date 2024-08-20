@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [In Pictures: Rare blue Supermoon lights up night skies globally](https://www.yahoo.com/news/pictures-rare-blue-supermoon-lights-012122979.html)
+- Aug 20 - [Hillary Clinton warns Democrats that progress isn’t guaranteed as Harris aims to break glass ceiling she missed in 2024](https://www.yahoo.com/news/hillary-clinton-warns-democrats-progress-021009350.html)
+- Aug 20 - [Cell phone policies change in local school districts](https://www.yahoo.com/news/cell-phone-policies-change-local-011028084.html)
 - Aug 19 - [JD Vance Risks Unforgivable Cheese Faux Pas in Philadelphia](https://www.yahoo.com/news/jd-vance-nearly-makes-major-234947286.html)
+- Aug 19 - [This Boise teacher’s suspension caused a walkout. The district is paying her a large sum](https://www.yahoo.com/news/boise-teacher-suspension-caused-walkout-224033546.html)
 - Aug 19 - [Aunt Rescues Her 7-Year-Old Niece From Alleged Kidnapper](https://www.yahoo.com/news/aunt-rescues-her-7-old-220202674.html)
-- Aug 19 - [Revised LDS handbook updates transgender policies, medical restrictions to garments](https://www.yahoo.com/news/revised-lds-handbook-updates-transgender-212851593.html)
-- Aug 19 - [Judge allows transgender New Hampshire girl to play soccer as lawsuit challenges new law](https://www.yahoo.com/news/judge-allows-transgender-hampshire-girl-212040086.html)
 <!-- feed end -->
 
 ### Onstream
