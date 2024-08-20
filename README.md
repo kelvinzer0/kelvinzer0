@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Columbia, Boone County team up for housing summit. How to apply to attend](https://www.yahoo.com/news/columbia-boone-county-team-housing-085023164.html)
+- Aug 20 - [Is there a vaccine for mpox? Who can get the shot and where? How to find it in Florida](https://www.yahoo.com/news/vaccine-mpox-shot-where-florida-090000200.html)
+- Aug 20 - [She says Israeli military killed her husband and daughter. Then soldiers brought her to an Israeli hospital](https://www.yahoo.com/news/her-mother-says-israeli-military-040202892.html)
 - Aug 20 - [How the full moon affects your sleep](https://www.yahoo.com/lifestyle/full-moon-sleep-supermoon-080515838.html)
-- Aug 20 - [Israel recovers bodies of 6 hostages from Gaza as Blinken tries to advance cease-fire deal](https://www.yahoo.com/news/israeli-military-says-recovered-bodies-071047120.html)
-- Aug 20 - [How sinking of luxury yacht off Sicily unfolded](https://www.yahoo.com/news/sinking-luxury-yacht-off-sicily-192143119.html)
-- Aug 20 - [Boeing halts 777X test flights after discovering damage in structure](https://www.yahoo.com/news/boeing-halts-777x-test-flights-052627178.html)
+- Aug 20 - [Russia hits energy infrastructure in airstrikes on Ukraine](https://www.yahoo.com/news/russia-launches-fifth-missile-attack-043415320.html)
+- Aug 20 - [Trump to participate in Fox News town hall after debate doesn’t materialize](https://www.yahoo.com/news/trump-participate-fox-news-town-040250087.html)
 <!-- feed end -->
 
 ### Onstream
