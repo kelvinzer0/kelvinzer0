@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Google sues Russia Today after YouTube ban triggers legal battle](https://www.yahoo.com/news/google-sues-russia-today-youtube-123257286.html)
+- Aug 20 - [Hopewell Police make arrests in unrelated shooting, hit-and-run incidents](https://www.yahoo.com/news/hopewell-police-arrests-unrelated-shooting-130105779.html)
+- Aug 20 - [Hamas says Biden remark about group backing away from Gaza truce deal 'misleading'](https://www.yahoo.com/news/hamas-says-biden-remark-group-120819518.html)
 - Aug 20 - [Eastern WA site may become largest trucking services complex for hundreds of miles](https://www.yahoo.com/news/eastern-wa-may-become-largest-120000264.html)
+- Aug 20 - [50 Pictures That Prove The American Education System Is 100% Totally And Completely Doomed](https://www.yahoo.com/entertainment/50-pictures-prove-american-education-113319673.html)
 - Aug 20 - [Exclusive-Hess Guyana's secret value becomes part of Exxon arbitration, sources say](https://finance.yahoo.com/news/exclusive-hess-guyanas-secret-value-100705086.html)
-- Aug 20 - [Experts sound alarm after finding invasive species capable of wiping out ecosystem in major US river: 'The ramifications cannot be underestimated or overstated'](https://www.yahoo.com/news/experts-sound-alarm-finding-invasive-053000107.html)
-- Aug 20 - [Russia hits energy infrastructure in airstrikes on Ukraine](https://www.yahoo.com/news/russia-launches-fifth-missile-attack-043415320.html)
 <!-- feed end -->
 
 ### Onstream
