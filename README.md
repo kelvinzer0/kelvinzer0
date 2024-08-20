@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [India flags concerns with Disney-Reliance merger](https://finance.yahoo.com/video/india-flags-concerns-disney-reliance-170903417.html)
+- Aug 20 - [Retired but Want To Make Passive Income? 6 Ideas for Retirees To Boost Financial Security](https://finance.yahoo.com/news/retired-want-passive-income-6-120043265.html)
+- Aug 20 - [Elon Musk’s Twitter Buyout Is Officially the Worst Deal Since Financial Crisis](https://finance.yahoo.com/news/elon-musk-twitter-buyout-officially-161518178.html)
 - Aug 20 - [After yacht sinks, experts say Mediterranean growing more dangerous](https://www.yahoo.com/news/yacht-sinks-experts-mediterranean-growing-150724981.html)
-- Aug 20 - [Alphabet's Waymo robotaxi unit doubles its paid rides in three months](https://finance.yahoo.com/news/alphabets-waymo-robotaxi-unit-doubles-150248686.html)
+- Aug 20 - [Former MPD officer Thomas Lane released from federal prison](https://www.yahoo.com/news/former-mpd-officer-thomas-lane-144048798.html)
 - Aug 20 - [Ukrainian Drones Target Russian Pontoon and Military Vehicle in Kursk Oblast](https://www.yahoo.com/news/ukrainian-drones-target-russian-pontoon-141526274.html)
-- Aug 20 - [Trump Melts Down After Harris’s Debate Decision Leaves Him Rattled](https://www.yahoo.com/news/trump-melts-down-harris-debate-134656547.html)
 <!-- feed end -->
 
 ### Onstream
