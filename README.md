@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 20 - [There's a Problem With Rescuing the Stranded Astronauts: SpaceX and Boeing Spacesuits Aren't Compatible](https://www.yahoo.com/news/theres-problem-rescuing-stranded-astronauts-222929214.html)
+- Aug 20 - [Housing supply is surging as a record number of buyers get cold feet amid sky-high prices, Redfin says](https://finance.yahoo.com/news/housing-supply-surging-record-number-141226406.html)
 - Aug 20 - [Gov. Jim Justice tries to halt foreclosure of his West Virginia hotel as he runs for US Senate](https://www.yahoo.com/news/gov-jim-justice-tries-halt-212113401.html)
-- Aug 20 - [Elon Musk made a $13 billion blunder. Wall Street still wants to work with him.](https://www.yahoo.com/tech/elon-musk-made-13-billion-204539902.html)
-- Aug 20 - [Apple event rumor roundup: What to expect at the iPhone 16 keynote](https://www.yahoo.com/news/apple-event-rumor-roundup-what-to-expect-at-the-iphone-16-keynote-192347591.html)
-- Aug 20 - [Sinaloa cartel infighting rises in northern Mexico following the detention of 2 drug lords in July](https://www.yahoo.com/news/sinaloa-cartel-infighting-rises-northern-192141030.html)
-- Aug 20 - [CCTV footage shows the moment missing tycoon Mike Lynch’s Bayesian yacht is engulfed by storm](https://www.yahoo.com/news/cctv-footage-shows-moment-missing-192132351.html)
+- Aug 20 - [Sale of Perry Hall Mansion to Baltimore County businessman falls through](https://www.yahoo.com/news/sale-perry-hall-mansion-baltimore-204000080.html)
+- Aug 20 - [Putin makes surprise trip to Chechnya amid Ukraine's cross-border incursion](https://www.yahoo.com/news/putin-makes-surprise-trip-chechnya-203230829.html)
 <!-- feed end -->
 
 ### Onstream
