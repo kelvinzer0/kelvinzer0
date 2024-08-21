@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [42 Tweets From Night Two Of The DNC That Are Way Funnier Than They Should Be](https://www.yahoo.com/entertainment/42-tweets-night-two-dnc-114232276.html)
+- Aug 21 - [Target may have solved one of retail's biggest problems: Theft](https://finance.yahoo.com/news/target-may-have-solved-one-of-retails-biggest-problems-theft-103150947.html)
+- Aug 21 - [Russia's Rostec chief suggests protective measures on assembled car imports](https://finance.yahoo.com/news/russias-rostec-chief-suggests-protective-080647125.html)
 - Aug 21 - [China says it is 'seriously concerned' about US nuclear strategic report](https://www.yahoo.com/news/china-says-seriously-concerned-us-072653082.html)
-- Aug 21 - [Elon Musk is foreclosing on an LA home. The owners, who Musk lent money to, say they 'owe him such a spiritual debt.'](https://www.yahoo.com/news/elon-musk-foreclosing-la-home-064957491.html)
 - Aug 21 - [DNC Hits Trump Where It Hurts With Scathing Supercut Aimed At His Newest Sore Spot](https://www.yahoo.com/news/dnc-hits-trump-where-hurts-042146735.html)
-- Aug 21 - ['Rotten-tail kids': China's rising youth unemployment breeds new working class](https://www.yahoo.com/news/rotten-tail-kids-chinas-rising-010427723.html)
-- Aug 21 - [Ukraine attacks Moscow in one of largest ever drone attacks on the Russian capital](https://www.yahoo.com/news/ukraine-launches-drone-attack-moscow-005200234.html)
 <!-- feed end -->
 
 ### Onstream
