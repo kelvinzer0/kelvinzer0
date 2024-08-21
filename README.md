@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 21 - ['Rotten-tail kids': China's rising youth unemployment breeds new working class](https://www.yahoo.com/news/rotten-tail-kids-chinas-rising-010427723.html)
 - Aug 21 - [Florida doctor who didn't wear hearing aids during colonoscopy couldn't hear patient yelling, state health officials say](https://www.yahoo.com/news/florida-doctor-didnt-wear-hearing-005857661.html)
 - Aug 21 - [Ukraine launches 'one of largest ever' drone attacks on Moscow, mayor says](https://www.yahoo.com/news/ukraine-launches-drone-attack-moscow-005200234.html)
-- Aug 21 - [Putin inspects troops readying to fight Ukraine in surprise trip to Chechnya](https://www.yahoo.com/news/putin-inspects-troops-readying-fight-000808195.html)
 - Aug 21 - [Trump's Former Press Secretary Shows DNC A Troubling Text With Melania](https://www.yahoo.com/news/trumps-former-press-secretary-shows-000331978.html)
+- Aug 20 - [There is a link between the meat you eat and a chronic disease, according to new research](https://www.yahoo.com/news/global-study-shows-between-red-223002008.html)
 <!-- feed end -->
 
 ### Onstream
