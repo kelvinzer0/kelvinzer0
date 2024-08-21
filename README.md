@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 21 - [Trump Surprised by Who Hurt His Feelings the Most at the DNC](https://www.yahoo.com/news/trump-surprised-hurt-feelings-most-131421079.html)
-- Aug 21 - [Ford changes EV plans, will delay pickup truck, axe three-row SUV](https://finance.yahoo.com/news/ford-plans-low-cost-ev-120607969.html)
+- Aug 21 - [Ford slows EV plans, delaying pickup and axing three-row SUV, to cut costs](https://finance.yahoo.com/news/ford-plans-low-cost-ev-120607969.html)
 - Aug 21 - [Scientists have more evidence to explain why billions of crabs vanished around Alaska](https://www.yahoo.com/news/billions-crabs-vanished-around-alaska-090002095.html)
 - Aug 21 - [42 Tweets From Night Two Of The DNC That Are Way Funnier Than They Should Be](https://www.yahoo.com/entertainment/42-tweets-night-two-dnc-114232276.html)
 - Aug 21 - [Target may have solved one of retail's biggest problems: Theft](https://finance.yahoo.com/news/target-may-have-solved-one-of-retails-biggest-problems-theft-103150947.html)
