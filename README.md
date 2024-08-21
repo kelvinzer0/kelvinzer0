@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 21 - [DNC Hits Trump Where It Hurts With Scathing Supercut Aimed At His Newest Sore Spot](https://www.yahoo.com/news/dnc-hits-trump-where-hurts-042146735.html)
 - Aug 21 - [Putin's slow response to the Kursk attack could test the patience of some of his backers in Russia](https://www.yahoo.com/news/putins-slow-response-kursk-attack-041035733.html)
 - Aug 21 - ['Rotten-tail kids': China's rising youth unemployment breeds new working class](https://www.yahoo.com/news/rotten-tail-kids-chinas-rising-010427723.html)
-- Aug 21 - [Florida doctor who didn't wear hearing aids during colonoscopy couldn't hear patient yelling, state health officials say](https://www.yahoo.com/news/florida-doctor-didnt-wear-hearing-005857661.html)
 - Aug 21 - [Ukraine attacks Moscow in one of largest ever drone attacks on the Russian capital](https://www.yahoo.com/news/ukraine-launches-drone-attack-moscow-005200234.html)
+- Aug 21 - [Putin inspects troops readying to fight Ukraine in surprise trip to Chechnya](https://www.yahoo.com/news/putin-inspects-troops-readying-fight-000808195.html)
 <!-- feed end -->
 
 ### Onstream
