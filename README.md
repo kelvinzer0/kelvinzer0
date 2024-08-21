@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [42 Tweets From Night Two Of The DNC That Are Way Funnier Than They Should Be](https://www.yahoo.com/entertainment/42-tweets-night-two-dnc-114232276.html)
+- Aug 21 - [BofA’s 15 Stocks for the End of the AI Trade](https://www.barrons.com/articles/ai-stocks-apple-nvidia-0a7d14ea?siteid=yhoof2&yptr=yahoo)
+- Aug 21 - [Scientists have more evidence to explain why billions of crabs vanished around Alaska](https://www.yahoo.com/news/billions-crabs-vanished-around-alaska-090002095.html)
 - Aug 21 - [Target may have solved one of retail's biggest problems: Theft](https://finance.yahoo.com/news/target-may-have-solved-one-of-retails-biggest-problems-theft-103150947.html)
+- Aug 21 - [Police raid Andrew Tate's home in Romania as new allegations emerge involving minors](https://www.yahoo.com/news/police-raid-andrew-tates-home-101543106.html)
 - Aug 21 - [Russia's Rostec chief suggests protective measures on assembled car imports](https://finance.yahoo.com/news/russias-rostec-chief-suggests-protective-080647125.html)
-- Aug 21 - [China says it is 'seriously concerned' about US nuclear strategic report](https://www.yahoo.com/news/china-says-seriously-concerned-us-072653082.html)
-- Aug 21 - [DNC Hits Trump Where It Hurts With Scathing Supercut Aimed At His Newest Sore Spot](https://www.yahoo.com/news/dnc-hits-trump-where-hurts-042146735.html)
 <!-- feed end -->
 
 ### Onstream
