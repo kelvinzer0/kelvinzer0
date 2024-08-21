@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [We are 'cautious bulls' on market -portfolio manager](https://finance.yahoo.com/video/cautious-bulls-market-portfolio-manager-195407752.html)
-- Aug 21 - [Wildfire Breaks Out Along Highway Near Denver](https://www.yahoo.com/news/wildfire-breaks-along-highway-near-184243660.html)
-- Aug 21 - [Russia appears to be using wired, unjammable fiber-optic drones that could fix a big problem its operators have faced in this war](https://www.yahoo.com/news/russia-appears-using-wired-unjammable-180442739.html)
-- Aug 21 - [Teens and kids with long COVID are showing surprising new symptoms](https://www.yahoo.com/news/teens-kids-long-covid-showing-160058515.html)
-- Aug 21 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
+- Aug 21 - [With Child Victims Act on the line, Baltimore man alleges sex abuse by St. Mary’s seminarian: ‘He was like, untouchable’](https://www.yahoo.com/news/child-victims-act-line-baltimore-202800383.html)
+- Aug 21 - [Payroll revisions unlikely to sway Fed outlook: Economist](https://finance.yahoo.com/video/payroll-revisions-unlikely-sway-fed-202245205.html)
+- Aug 21 - [This man predicted all recent presidential election winners. Will he be right this time? | Opinion](https://www.yahoo.com/news/man-predicted-recent-presidential-election-200344463.html)
+- Aug 21 - [Russia appears to be using wired, unjammable fiber-optic drones that could fix a big problem its operators have faced in this war](https://www.yahoo.com/news/russia-appears-using-wired-unjammable-180442633.html)
+- Aug 21 - [Airlines Won't Let You Fly When The Entire Top Of Your Skull Is Bleeding, Apparently](https://autos.yahoo.com/airlines-wont-let-fly-entire-151000411.html)
 <!-- feed end -->
 
 ### Onstream
