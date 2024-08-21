@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Two people killed and another person hospitalized after crash in South Carolina, cops say](https://www.yahoo.com/news/two-people-killed-another-person-164306607.html)
+- Aug 21 - [We are 'cautious bulls' on market -portfolio manager](https://finance.yahoo.com/video/cautious-bulls-market-portfolio-manager-195407752.html)
+- Aug 21 - [Wildfire Breaks Out Along Highway Near Denver](https://www.yahoo.com/news/wildfire-breaks-along-highway-near-184243660.html)
+- Aug 21 - [Russia appears to be using wired, unjammable fiber-optic drones that could fix a big problem its operators have faced in this war](https://www.yahoo.com/news/russia-appears-using-wired-unjammable-180442739.html)
+- Aug 21 - [Teens and kids with long COVID are showing surprising new symptoms](https://www.yahoo.com/news/teens-kids-long-covid-showing-160058515.html)
 - Aug 21 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
-- Aug 21 - [Dodge the 401(K) and IRA ‘ticking tax time bomb’ by going all-in on Roths, expert says](https://finance.yahoo.com/news/dodge-401-k-ira-ticking-151200868.html)
-- Aug 21 - [Stellantis ‘Starting To Come Apart’ As CEO Flies To Detroit To Salvage Sales](https://autos.yahoo.com/stellantis-starting-come-apart-ceo-134500519.html)
-- Aug 21 - [Trump Surprised by Who Hurt His Feelings the Most at the DNC](https://www.yahoo.com/news/trump-surprised-hurt-feelings-most-131421079.html)
 <!-- feed end -->
 
 ### Onstream
