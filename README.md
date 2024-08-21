@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 21 - [DNC Hits Trump Where It Hurts With Scathing Supercut Aimed At His Newest Sore Spot](https://www.yahoo.com/news/dnc-hits-trump-where-hurts-042146735.html)
-- Aug 21 - [JD Vance accused Tim Walz of lying about his IVF experience. Fertility doctors say confusion is common.](https://www.yahoo.com/news/jd-vance-accused-tim-walz-034957312.html)
+- Aug 21 - [Actor Wendell Pierce gives message to Black men: ‘There’s blood on that ballot box’](https://www.yahoo.com/news/actor-wendell-pierce-gives-message-025240169.html)
+- Aug 21 - [2-year-old pedestrian dies in Ocean City Tram collision on Boardwalk: police](https://www.yahoo.com/news/ocean-city-police-scene-serious-010531270.html)
 - Aug 21 - ['Rotten-tail kids': China's rising youth unemployment breeds new working class](https://www.yahoo.com/news/rotten-tail-kids-chinas-rising-010427723.html)
 - Aug 21 - [Florida doctor who didn't wear hearing aids during colonoscopy couldn't hear patient yelling, state health officials say](https://www.yahoo.com/news/florida-doctor-didnt-wear-hearing-005857661.html)
-- Aug 21 - [Ukraine launches 'one of largest ever' drone attacks on Moscow, mayor says](https://www.yahoo.com/news/ukraine-launches-drone-attack-moscow-005200234.html)
 <!-- feed end -->
 
 ### Onstream
