@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Ford revises EV strategy. Will it pay off in the long run?](https://finance.yahoo.com/video/ford-revises-ev-strategy-pay-212752652.html)
+- Aug 21 - [What time is former president Bill Clinton speaking at the DNC Wednesday night?](https://www.yahoo.com/news/time-former-president-bill-clinton-222523570.html)
+- Aug 21 - [Patient underwent 1 surgery but was billed for 2. Even after being sued, she refused to pay](https://www.yahoo.com/news/patient-underwent-1-surgery-billed-210637852.html)
 - Aug 21 - [Iran’s Bizarre ‘Aircraft Carrier’ Seen In New Detail](https://www.yahoo.com/news/iran-bizarre-aircraft-carrier-seen-205149299.html)
 - Aug 21 - [This man predicted all recent presidential election winners. Will he be right this time? | Opinion](https://www.yahoo.com/news/man-predicted-recent-presidential-election-200344463.html)
-- Aug 21 - [Defense attorneys for Boston Marathon bomber seek recusal of judge overseeing case](https://www.yahoo.com/news/defense-attorneys-boston-marathon-bomber-181637452.html)
-- Aug 21 - [Fox News Busted for Airing Blatant Election Lie Without Any Proof](https://www.yahoo.com/news/fox-news-busted-airing-blatant-180830234.html)
+- Aug 21 - [Traffic alert: Wreck closes multiple lanes of I-75 in Lexington for ‘several hours’](https://www.yahoo.com/news/traffic-alert-wreck-closes-multiple-182657384.html)
 <!-- feed end -->
 
 ### Onstream
