@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [China says it is 'seriously concerned' about US nuclear strategic report](https://www.yahoo.com/news/china-says-seriously-concerned-us-072653082.html)
+- Aug 21 - [Elon Musk is foreclosing on an LA home. The owners, who Musk lent money to, say they 'owe him such a spiritual debt.'](https://www.yahoo.com/news/elon-musk-foreclosing-la-home-064957491.html)
 - Aug 21 - [DNC Hits Trump Where It Hurts With Scathing Supercut Aimed At His Newest Sore Spot](https://www.yahoo.com/news/dnc-hits-trump-where-hurts-042146735.html)
-- Aug 21 - [Arizona father loses job after detainment video goes viral. He called 911 to report his child missing](https://www.yahoo.com/news/arizona-father-loses-job-detainment-023643014.html)
 - Aug 21 - ['Rotten-tail kids': China's rising youth unemployment breeds new working class](https://www.yahoo.com/news/rotten-tail-kids-chinas-rising-010427723.html)
 - Aug 21 - [Ukraine attacks Moscow in one of largest ever drone attacks on the Russian capital](https://www.yahoo.com/news/ukraine-launches-drone-attack-moscow-005200234.html)
-- Aug 20 - [There is a link between the meat you eat and a chronic disease, according to new research](https://www.yahoo.com/news/global-study-shows-between-red-223002008.html)
 <!-- feed end -->
 
 ### Onstream
