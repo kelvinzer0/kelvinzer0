@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [How 2 Astronauts Stuck in Space Spend Their Time While Waiting for Rescue](https://www.yahoo.com/news/2-astronauts-stuck-space-spend-161727289.html)
-- Aug 21 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
-- Aug 21 - [Airlines Won't Let You Fly When The Entire Top Of Your Skull Is Bleeding, Apparently](https://autos.yahoo.com/airlines-wont-let-fly-entire-151000411.html)
+- Aug 21 - [How cold will fall be in Kansas City? See what the National Weather Service predicts](https://www.yahoo.com/news/cold-fall-kansas-city-see-152233075.html)
 - Aug 21 - [Trump Surprised by Who Hurt His Feelings the Most at the DNC](https://www.yahoo.com/news/trump-surprised-hurt-feelings-most-131421079.html)
+- Aug 21 - [A Construction Worker Accidentally Found a Secret Stash of 700-Year-Old Coins](https://www.yahoo.com/news/construction-worker-accidentally-found-secret-130000645.html)
 - Aug 21 - [Scientists have more evidence to explain why billions of crabs vanished around Alaska](https://www.yahoo.com/news/billions-crabs-vanished-around-alaska-090002095.html)
+- Aug 21 - [42 Tweets From Night Two Of The DNC That Are Way Funnier Than They Should Be](https://www.yahoo.com/entertainment/42-tweets-night-two-dnc-114232276.html)
 <!-- feed end -->
 
 ### Onstream
