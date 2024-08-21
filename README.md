@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [With Child Victims Act on the line, Baltimore man alleges sex abuse by St. Mary’s seminarian: ‘He was like, untouchable’](https://www.yahoo.com/news/child-victims-act-line-baltimore-202800383.html)
-- Aug 21 - [Payroll revisions unlikely to sway Fed outlook: Economist](https://finance.yahoo.com/video/payroll-revisions-unlikely-sway-fed-202245205.html)
+- Aug 21 - [Ford revises EV strategy. Will it pay off in the long run?](https://finance.yahoo.com/video/ford-revises-ev-strategy-pay-212752652.html)
+- Aug 21 - [Iran’s Bizarre ‘Aircraft Carrier’ Seen In New Detail](https://www.yahoo.com/news/iran-bizarre-aircraft-carrier-seen-205149299.html)
 - Aug 21 - [This man predicted all recent presidential election winners. Will he be right this time? | Opinion](https://www.yahoo.com/news/man-predicted-recent-presidential-election-200344463.html)
-- Aug 21 - [Russia appears to be using wired, unjammable fiber-optic drones that could fix a big problem its operators have faced in this war](https://www.yahoo.com/news/russia-appears-using-wired-unjammable-180442633.html)
-- Aug 21 - [Airlines Won't Let You Fly When The Entire Top Of Your Skull Is Bleeding, Apparently](https://autos.yahoo.com/airlines-wont-let-fly-entire-151000411.html)
+- Aug 21 - [Defense attorneys for Boston Marathon bomber seek recusal of judge overseeing case](https://www.yahoo.com/news/defense-attorneys-boston-marathon-bomber-181637452.html)
+- Aug 21 - [Fox News Busted for Airing Blatant Election Lie Without Any Proof](https://www.yahoo.com/news/fox-news-busted-airing-blatant-180830234.html)
 <!-- feed end -->
 
 ### Onstream
