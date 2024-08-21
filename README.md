@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Watch: Russian soldier blows up base before defecting to Ukraine](https://www.yahoo.com/news/watch-russian-soldier-blows-defecting-152658264.html)
-- Aug 21 - [Will Buffett's 'put' on oil firm Occidental halt share drop?](https://finance.yahoo.com/news/buffetts-put-oil-firm-occidental-133815667.html)
+- Aug 21 - [How 2 Astronauts Stuck in Space Spend Their Time While Waiting for Rescue](https://www.yahoo.com/news/2-astronauts-stuck-space-spend-161727289.html)
+- Aug 21 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
+- Aug 21 - [Airlines Won't Let You Fly When The Entire Top Of Your Skull Is Bleeding, Apparently](https://autos.yahoo.com/airlines-wont-let-fly-entire-151000411.html)
 - Aug 21 - [Trump Surprised by Who Hurt His Feelings the Most at the DNC](https://www.yahoo.com/news/trump-surprised-hurt-feelings-most-131421079.html)
-- Aug 21 - [A Construction Worker Accidentally Found a Secret Stash of 700-Year-Old Coins](https://www.yahoo.com/news/construction-worker-accidentally-found-secret-130000645.html)
-- Aug 21 - [Ford slows EV plans, delaying pickup and axing three-row SUV, to cut costs](https://finance.yahoo.com/news/ford-plans-low-cost-ev-120607969.html)
+- Aug 21 - [Scientists have more evidence to explain why billions of crabs vanished around Alaska](https://www.yahoo.com/news/billions-crabs-vanished-around-alaska-090002095.html)
 <!-- feed end -->
 
 ### Onstream
