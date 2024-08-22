@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Exclusive-Israeli demands for troops in Gaza blocking truce deal, sources say](https://www.yahoo.com/news/exclusive-israeli-demands-troops-gaza-143909693.html)
-- Aug 22 - [Car Rams Through Facade of DC Whole Foods in Parking Garage Mishap](https://www.yahoo.com/news/car-rams-facade-dc-whole-143546420.html)
+- Aug 22 - [Dividend Investing Insight From 2 Motley Fool Experts](https://finance.yahoo.com/news/dividend-investing-insight-2-motley-145500261.html)
 - Aug 22 - [Group drives hours to visit abandoned GA hospital they saw on TikTok. Now they’re facing charges](https://www.yahoo.com/news/group-drives-hours-visit-abandoned-131508498.html)
+- Aug 22 - [Deadly officer involved shooting cancels classes at Franklin High School](https://www.yahoo.com/news/1-dead-classes-canceled-franklin-131316406.html)
 - Aug 22 - [Quiet millionaires: 5 understated signs that whisper wealth in America](https://finance.yahoo.com/news/quiet-millionaires-5-understated-signs-113500245.html)
-- Aug 22 - [Canton, South Dakota residents call for accountability in aftermath of 'thousand-year flood'](https://www.yahoo.com/news/canton-south-dakota-residents-call-110211304.html)
+- Aug 22 - [Mike Lindell Sports New Look In 'Disguise' At DNC, Spews Election Lies At Kid](https://www.yahoo.com/news/mike-lindell-sports-look-disguise-104348581.html)
 <!-- feed end -->
 
 ### Onstream
