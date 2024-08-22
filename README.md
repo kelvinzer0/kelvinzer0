@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Customer loyalty cards with dubious discounts to avoid, according to Which?](https://uk.finance.yahoo.com/news/loyalty-cards-discounts-which-050041333.html)
-- Aug 22 - [Mexico to bring charges against capo, not for drugs, but for turning over another drug lord to US](https://www.yahoo.com/news/mexico-bring-charges-against-capo-031618971.html)
+- Aug 22 - ['Forget politics': How Tim Walz's son, Gus, floored TV news hosts, from MSNBC to Fox News](https://www.yahoo.com/entertainment/forget-politics-tim-walzs-son-050947862.html)
+- Aug 22 - [Poorly trained recruits contribute to loss of Ukrainian territory on eastern front, commanders say](https://www.yahoo.com/news/poorly-trained-recruits-contribute-loss-040911075.html)
 - Aug 21 - [Remains found on Michigan property confirmed to be from woman missing since 2021](https://www.yahoo.com/news/remains-found-michigan-property-confirmed-234521598.html)
 - Aug 21 - [Scientists brace for highly destructive, seemingly ceaseless disease spread by birds: 'Not if, but when'](https://www.yahoo.com/news/scientists-brace-highly-destructive-seemingly-233000456.html)
 - Aug 21 - [It's Official: Scientists Confirmed What's Inside The Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-232852908.html)
