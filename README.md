@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Canada's Largest Freight Railroads Shut Down, Locking Out Thousands Of Workers](https://www.yahoo.com/news/canadas-largest-freight-railroads-shut-164902808.html)
-- Aug 22 - [Police: 15-year-old charged with murder of man who was trying to sell AirPods](https://www.yahoo.com/news/police-15-old-charged-murder-094803098.html)
+- Aug 22 - [World's second largest diamond found in Botswana](https://www.yahoo.com/news/worlds-second-largest-diamond-found-175336988.html)
+- Aug 22 - [Are classic cars a sound alternative investment?](https://finance.yahoo.com/video/classic-cars-sound-alternative-investment-173325466.html)
 - Aug 22 - [Ferry loaded with fuel sinks at Russian port after Ukrainian attack](https://www.yahoo.com/news/fire-breaks-russian-port-ukrainian-154000996.html)
-- Aug 22 - [Beach erosion threatens homes in North Carolina's Outer Banks](https://www.yahoo.com/news/beach-erosion-threatens-homes-north-145223990.html)
-- Aug 22 - [Jack Daniel's renounces 'woke' agenda, latest iconic US brand to 'bring sanity back' to business](https://www.yahoo.com/lifestyle/jack-daniels-renounces-woke-agenda-135905382.html)
+- Aug 22 - [How To Create a Sustainable Withdrawal Strategy for Your Retirement Fund](https://finance.yahoo.com/news/create-sustainable-withdrawal-strategy-retirement-150024575.html)
+- Aug 22 - [Group drives hours to visit abandoned GA hospital they saw on TikTok. Now they’re facing charges](https://www.yahoo.com/news/group-drives-hours-visit-abandoned-131508498.html)
 <!-- feed end -->
 
 ### Onstream
