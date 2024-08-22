@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [What time is former president Bill Clinton speaking at the DNC Wednesday night?](https://www.yahoo.com/news/time-former-president-bill-clinton-222523570.html)
-- Aug 21 - [Patient underwent 1 surgery but was billed for 2. Even after being sued, she refused to pay](https://www.yahoo.com/news/patient-underwent-1-surgery-billed-210637852.html)
-- Aug 21 - [Iran’s Bizarre ‘Aircraft Carrier’ Seen In New Detail](https://www.yahoo.com/news/iran-bizarre-aircraft-carrier-seen-205149299.html)
-- Aug 21 - [This man predicted all recent presidential election winners. Will he be right this time? | Opinion](https://www.yahoo.com/news/man-predicted-recent-presidential-election-200344463.html)
-- Aug 21 - [Traffic alert: Wreck closes multiple lanes of I-75 in Lexington for ‘several hours’](https://www.yahoo.com/news/traffic-alert-wreck-closes-multiple-182657384.html)
+- Aug 21 - [Remains found on Michigan property confirmed to be from woman missing since 2021](https://www.yahoo.com/news/remains-found-michigan-property-confirmed-234521598.html)
+- Aug 21 - [It's Official: Scientists Confirmed What's Inside The Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-232852908.html)
+- Aug 21 - [An unusual object is moving so fast it could escape the Milky Way. Scientists aren’t certain what it is](https://www.yahoo.com/news/rare-hypervelocity-star-may-able-191548544.html)
+- Aug 21 - [Rachel’s Mediterranean sued by construction company, latest in string of suits](https://www.yahoo.com/news/rachel-mediterranean-sued-construction-company-220634943.html)
+- Aug 21 - [Sunset at the Zoo celebrates Native American and Alaska Native culture](https://www.yahoo.com/lifestyle/sunset-zoo-celebrates-native-american-210858138.html)
 <!-- feed end -->
 
 ### Onstream
