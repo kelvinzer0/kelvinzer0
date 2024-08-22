@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 21 - [Remains found on Michigan property confirmed to be from woman missing since 2021](https://www.yahoo.com/news/remains-found-michigan-property-confirmed-234521598.html)
-- Aug 21 - [Sunset at the Zoo celebrates Native American and Alaska Native culture](https://www.yahoo.com/lifestyle/sunset-zoo-celebrates-native-american-210858138.html)
-- Aug 21 - [Patient underwent 1 surgery but was billed for 2. Even after being sued, she refused to pay](https://www.yahoo.com/news/patient-underwent-1-surgery-billed-210637852.html)
+- Aug 21 - [An unusual object is moving so fast it could escape the Milky Way. Scientists aren’t certain what it is](https://www.yahoo.com/news/rare-hypervelocity-star-may-able-191548544.html)
 - Aug 21 - [Iran’s Bizarre ‘Aircraft Carrier’ Seen In New Detail](https://www.yahoo.com/news/iran-bizarre-aircraft-carrier-seen-205149299.html)
-- Aug 21 - [Mall guard tells jurors he would not have joined confrontation that led to man's death](https://www.yahoo.com/news/mall-guard-tells-jurors-not-204440861.html)
+- Aug 21 - [Fears grow for one of Boise’s largest construction projects as time runs out. Why?](https://www.yahoo.com/news/fears-grow-one-boise-largest-204436769.html)
+- Aug 21 - [Missing Navy pilot found: Pensacola Police](https://www.yahoo.com/news/missing-navy-pilot-found-pensacola-203832531.html)
 <!-- feed end -->
 
 ### Onstream
