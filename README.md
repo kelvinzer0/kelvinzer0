@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 22 - [Yacht Sank in Sicily Due to ‘Endless Chain of Errors,' Ship Maker's Owner Speculates: ‘Everything Was Predictable’](https://www.yahoo.com/news/yacht-sank-sicily-due-endless-181647907.html)
-- Aug 22 - [Man caught on video stealing lemonade-stand money from Virginia 10-year-old siblings](https://www.yahoo.com/news/man-caught-video-stealing-lemonade-180643133.html)
+- Aug 22 - [Inherited IRA rules are changing: What you need to know](https://finance.yahoo.com/video/inherited-ira-rules-changing-know-181500297.html)
 - Aug 22 - [World's second largest diamond found in Botswana](https://www.yahoo.com/news/worlds-second-largest-diamond-found-175336988.html)
-- Aug 22 - [What's Going On With Super Micro Computer Stock On Thursday?](https://finance.yahoo.com/news/whats-going-super-micro-computer-175320843.html)
-- Aug 22 - [Ferry loaded with fuel sinks at Russian port after Ukrainian attack](https://www.yahoo.com/news/fire-breaks-russian-port-ukrainian-154000996.html)
+- Aug 22 - [Venezuela’s Supreme Court certifies Maduro’s claims that he won presidential election](https://www.yahoo.com/news/venezuela-supreme-court-certifies-maduro-164101119.html)
+- Aug 22 - [Panama announces more migrant deportation flights to Ecuador, India and China](https://www.yahoo.com/news/panama-announces-more-migrant-deportation-154825314.html)
 <!-- feed end -->
 
 ### Onstream
