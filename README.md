@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Rochester's 14609 ZIP code is one of the hottest in the U.S. Here's why](https://www.yahoo.com/news/rochesters-14609-zip-code-one-070524417.html)
-- Aug 22 - ['Forget politics': How Tim Walz's son, Gus, floored TV news hosts, from MSNBC to Fox News](https://www.yahoo.com/entertainment/forget-politics-tim-walzs-son-050947862.html)
-- Aug 22 - [Poorly trained recruits contribute to loss of Ukrainian territory on eastern front, commanders say](https://www.yahoo.com/news/poorly-trained-recruits-contribute-loss-040911075.html)
-- Aug 22 - [Florida high school mom arrested for allegedly joining daughter's bus stop fistfight in video](https://www.yahoo.com/news/florida-high-school-mom-arrested-021307633.html)
-- Aug 21 - [Scientists brace for highly destructive, seemingly ceaseless disease spread by birds: 'Not if, but when'](https://www.yahoo.com/news/scientists-brace-highly-destructive-seemingly-233000456.html)
+- Aug 22 - [Stellantis responds to UAW allegations over US investment](https://finance.yahoo.com/news/stellantis-responds-uaw-allegations-over-101257076.html)
+- Aug 22 - [Chile President Halts Speech to Assist Psychiatric Patient During Event](https://www.yahoo.com/news/chile-president-halts-speech-assist-095559030.html)
+- Aug 22 - [Police: 15-year-old charged with murder of man who was trying to sell AirPods](https://www.yahoo.com/news/police-15-old-charged-murder-094803098.html)
+- Aug 22 - [Charlotte wants an airport ‘fit for a queen’. Nearby residents ask: What about us?](https://www.yahoo.com/news/charlotte-wants-airport-fit-queen-093000553.html)
+- Aug 22 - [Trump Goes Off The Rails In Midnight Attack On 'Highly Overrated Jewish Governor'](https://www.yahoo.com/news/trump-goes-off-rails-midnight-055701912.html)
 <!-- feed end -->
 
 ### Onstream
