@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Customer loyalty cards with dubious discounts to avoid, according to Which?](https://uk.finance.yahoo.com/news/loyalty-cards-discounts-which-050041333.html)
+- Aug 22 - [Mexico to bring charges against capo, not for drugs, but for turning over another drug lord to US](https://www.yahoo.com/news/mexico-bring-charges-against-capo-031618971.html)
 - Aug 21 - [Remains found on Michigan property confirmed to be from woman missing since 2021](https://www.yahoo.com/news/remains-found-michigan-property-confirmed-234521598.html)
-- Aug 21 - [An unusual object is moving so fast it could escape the Milky Way. Scientists aren’t certain what it is](https://www.yahoo.com/news/rare-hypervelocity-star-may-able-191548544.html)
-- Aug 21 - [Patient underwent 1 surgery but was billed for 2. Even after being sued, she refused to pay](https://www.yahoo.com/news/patient-underwent-1-surgery-billed-210637852.html)
-- Aug 21 - [Iran’s Bizarre ‘Aircraft Carrier’ Seen In New Detail](https://www.yahoo.com/news/iran-bizarre-aircraft-carrier-seen-205149299.html)
-- Aug 21 - [Reston Gold's Gym shooting: What we know about the suspect Steven Ha](https://www.yahoo.com/news/reston-golds-gym-shooting-know-204818157.html)
+- Aug 21 - [Scientists brace for highly destructive, seemingly ceaseless disease spread by birds: 'Not if, but when'](https://www.yahoo.com/news/scientists-brace-highly-destructive-seemingly-233000456.html)
+- Aug 21 - [It's Official: Scientists Confirmed What's Inside The Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-232852908.html)
 <!-- feed end -->
 
 ### Onstream
