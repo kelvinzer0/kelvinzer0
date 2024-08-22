@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Sri Lanka approves free tourist visas for 35 countries to boost tourism](https://www.yahoo.com/news/sri-lanka-approves-free-tourist-065643005.html)
+- Aug 22 - [Rochester's 14609 ZIP code is one of the hottest in the U.S. Here's why](https://www.yahoo.com/news/rochesters-14609-zip-code-one-070524417.html)
 - Aug 22 - ['Forget politics': How Tim Walz's son, Gus, floored TV news hosts, from MSNBC to Fox News](https://www.yahoo.com/entertainment/forget-politics-tim-walzs-son-050947862.html)
 - Aug 22 - [Poorly trained recruits contribute to loss of Ukrainian territory on eastern front, commanders say](https://www.yahoo.com/news/poorly-trained-recruits-contribute-loss-040911075.html)
-- Aug 21 - [Remains found on Michigan property confirmed to be from woman missing since 2021](https://www.yahoo.com/news/remains-found-michigan-property-confirmed-234521598.html)
+- Aug 22 - [Florida high school mom arrested for allegedly joining daughter's bus stop fistfight in video](https://www.yahoo.com/news/florida-high-school-mom-arrested-021307633.html)
 - Aug 21 - [Scientists brace for highly destructive, seemingly ceaseless disease spread by birds: 'Not if, but when'](https://www.yahoo.com/news/scientists-brace-highly-destructive-seemingly-233000456.html)
 <!-- feed end -->
 
