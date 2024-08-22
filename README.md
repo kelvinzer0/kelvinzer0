@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Yacht Sank in Sicily Due to ‘Endless Chain of Errors,' Ship Maker's Owner Speculates: ‘Everything Was Predictable’](https://www.yahoo.com/news/yacht-sank-sicily-due-endless-181647907.html)
+- Aug 22 - [Man caught on video stealing lemonade-stand money from Virginia 10-year-old siblings](https://www.yahoo.com/news/man-caught-video-stealing-lemonade-180643133.html)
 - Aug 22 - [World's second largest diamond found in Botswana](https://www.yahoo.com/news/worlds-second-largest-diamond-found-175336988.html)
-- Aug 22 - [Are classic cars a sound alternative investment?](https://finance.yahoo.com/video/classic-cars-sound-alternative-investment-173325466.html)
+- Aug 22 - [What's Going On With Super Micro Computer Stock On Thursday?](https://finance.yahoo.com/news/whats-going-super-micro-computer-175320843.html)
 - Aug 22 - [Ferry loaded with fuel sinks at Russian port after Ukrainian attack](https://www.yahoo.com/news/fire-breaks-russian-port-ukrainian-154000996.html)
-- Aug 22 - [How To Create a Sustainable Withdrawal Strategy for Your Retirement Fund](https://finance.yahoo.com/news/create-sustainable-withdrawal-strategy-retirement-150024575.html)
-- Aug 22 - [Group drives hours to visit abandoned GA hospital they saw on TikTok. Now they’re facing charges](https://www.yahoo.com/news/group-drives-hours-visit-abandoned-131508498.html)
 <!-- feed end -->
 
 ### Onstream
