@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Stellantis responds to UAW allegations over US investment](https://finance.yahoo.com/news/stellantis-responds-uaw-allegations-over-101257076.html)
-- Aug 22 - [Chile President Halts Speech to Assist Psychiatric Patient During Event](https://www.yahoo.com/news/chile-president-halts-speech-assist-095559030.html)
-- Aug 22 - [Police: 15-year-old charged with murder of man who was trying to sell AirPods](https://www.yahoo.com/news/police-15-old-charged-murder-094803098.html)
-- Aug 22 - [Charlotte wants an airport ‘fit for a queen’. Nearby residents ask: What about us?](https://www.yahoo.com/news/charlotte-wants-airport-fit-queen-093000553.html)
-- Aug 22 - [Trump Goes Off The Rails In Midnight Attack On 'Highly Overrated Jewish Governor'](https://www.yahoo.com/news/trump-goes-off-rails-midnight-055701912.html)
+- Aug 22 - [Rooftop Garden employment program for young adults seeks to plant seeds for the future](https://www.yahoo.com/lifestyle/rooftop-garden-employment-program-young-114724094.html)
+- Aug 22 - [This Undervalued Stock Could Join the Race With Eli Lilly to the $1 Trillion Club](https://finance.yahoo.com/news/undervalued-stock-could-join-race-101700161.html)
+- Aug 22 - [It's Very, Very Funny How These 31 Extremely American Things Confuse The Bloody Hell Out Of British People](https://www.yahoo.com/entertainment/very-very-funny-31-extremely-101603897.html)
+- Aug 22 - [3 High-Yield Dividend Stocks That Could Soar More than 20%, According to Wall Street](https://finance.yahoo.com/news/3-high-yield-dividend-stocks-094100385.html)
+- Aug 22 - [Woman in Southern California goes on violent rampage against firefighter, police](https://www.yahoo.com/news/woman-southern-california-goes-violent-052746437.html)
 <!-- feed end -->
 
 ### Onstream
