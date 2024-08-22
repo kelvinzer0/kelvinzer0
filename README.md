@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [‘If Goodwill and Home Depot had a baby’: Large discount store opens in Pierce County](https://www.yahoo.com/news/goodwill-home-depot-had-baby-123000764.html)
+- Aug 22 - [Exclusive-Israeli demands for troops in Gaza blocking truce deal, sources say](https://www.yahoo.com/news/exclusive-israeli-demands-troops-gaza-143909693.html)
+- Aug 22 - [Car Rams Through Facade of DC Whole Foods in Parking Garage Mishap](https://www.yahoo.com/news/car-rams-facade-dc-whole-143546420.html)
+- Aug 22 - [Group drives hours to visit abandoned GA hospital they saw on TikTok. Now they’re facing charges](https://www.yahoo.com/news/group-drives-hours-visit-abandoned-131508498.html)
+- Aug 22 - [Quiet millionaires: 5 understated signs that whisper wealth in America](https://finance.yahoo.com/news/quiet-millionaires-5-understated-signs-113500245.html)
 - Aug 22 - [Canton, South Dakota residents call for accountability in aftermath of 'thousand-year flood'](https://www.yahoo.com/news/canton-south-dakota-residents-call-110211304.html)
-- Aug 22 - [Mike Lindell Sports New Look In 'Disguise' At DNC, Spews Election Lies At Kid](https://www.yahoo.com/news/mike-lindell-sports-look-disguise-104348581.html)
-- Aug 22 - [Gilma becomes a powerful Category 3 hurricane and is forecast to strengthen as it stays at sea](https://www.yahoo.com/news/gilma-becomes-powerful-category-3-095008556.html)
-- Aug 22 - [Sri Lanka approves free tourist visas for 35 countries to boost tourism](https://www.yahoo.com/news/sri-lanka-approves-free-tourist-065643005.html)
 <!-- feed end -->
 
 ### Onstream
