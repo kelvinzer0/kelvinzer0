@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Trump, probably: 'Nobody is watching the DNC, and all the crowds are TOTALLY FAKE'](https://www.yahoo.com/entertainment/trump-probably-nobody-watching-dnc-011814197.html)
-- Aug 22 - [A hospital told family their daughter had checked out. They found out a year later her body was in storage](https://www.yahoo.com/news/hospital-told-family-daughter-had-003113865.html)
-- Aug 21 - [An unusual object is moving so fast it could escape the Milky Way. Scientists aren’t certain what it is](https://www.yahoo.com/news/rare-hypervelocity-star-may-able-191548544.html)
-- Aug 21 - [Rachel’s Mediterranean sued by construction company, latest in string of suits](https://www.yahoo.com/news/rachel-mediterranean-sued-construction-company-220634943.html)
+- Aug 21 - [Remains found on Michigan property confirmed to be from woman missing since 2021](https://www.yahoo.com/news/remains-found-michigan-property-confirmed-234521598.html)
 - Aug 21 - [Sunset at the Zoo celebrates Native American and Alaska Native culture](https://www.yahoo.com/lifestyle/sunset-zoo-celebrates-native-american-210858138.html)
+- Aug 21 - [Patient underwent 1 surgery but was billed for 2. Even after being sued, she refused to pay](https://www.yahoo.com/news/patient-underwent-1-surgery-billed-210637852.html)
+- Aug 21 - [Iran’s Bizarre ‘Aircraft Carrier’ Seen In New Detail](https://www.yahoo.com/news/iran-bizarre-aircraft-carrier-seen-205149299.html)
+- Aug 21 - [Mall guard tells jurors he would not have joined confrontation that led to man's death](https://www.yahoo.com/news/mall-guard-tells-jurors-not-204440861.html)
 <!-- feed end -->
 
 ### Onstream
