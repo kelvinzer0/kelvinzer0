@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [US jobless claims rise in latest week](https://finance.yahoo.com/news/us-jobless-claims-rise-latest-123819134.html)
-- Aug 22 - [Billionaires Were Busy Buying This AI Software Stock in Q2](https://finance.yahoo.com/news/billionaires-were-busy-buying-ai-123000342.html)
-- Aug 22 - [Quiet millionaires: 5 understated signs that whisper wealth in America](https://finance.yahoo.com/news/quiet-millionaires-5-understated-signs-113500245.html)
-- Aug 22 - [Ukraine conducts drone attack on Russian airbase in Volgograd region, source says](https://www.yahoo.com/news/ukraine-conducts-drone-attack-russian-101918838.html)
-- Aug 22 - [The 22 people on board the Bayesian and how they were celebrating after years of court battles](https://www.yahoo.com/news/were-passengers-board-bayesian-superyacht-174654392.html)
+- Aug 22 - [‘If Goodwill and Home Depot had a baby’: Large discount store opens in Pierce County](https://www.yahoo.com/news/goodwill-home-depot-had-baby-123000764.html)
+- Aug 22 - [Canton, South Dakota residents call for accountability in aftermath of 'thousand-year flood'](https://www.yahoo.com/news/canton-south-dakota-residents-call-110211304.html)
+- Aug 22 - [Mike Lindell Sports New Look In 'Disguise' At DNC, Spews Election Lies At Kid](https://www.yahoo.com/news/mike-lindell-sports-look-disguise-104348581.html)
+- Aug 22 - [Gilma becomes a powerful Category 3 hurricane and is forecast to strengthen as it stays at sea](https://www.yahoo.com/news/gilma-becomes-powerful-category-3-095008556.html)
+- Aug 22 - [Sri Lanka approves free tourist visas for 35 countries to boost tourism](https://www.yahoo.com/news/sri-lanka-approves-free-tourist-065643005.html)
 <!-- feed end -->
 
 ### Onstream
