@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 22 - [Yacht Sank in Sicily Due to ‘Endless Chain of Errors,' Ship Maker's Owner Speculates: ‘Everything Was Predictable’](https://www.yahoo.com/news/yacht-sank-sicily-due-endless-181647907.html)
-- Aug 22 - [Inherited IRA rules are changing: What you need to know](https://finance.yahoo.com/video/inherited-ira-rules-changing-know-181500297.html)
-- Aug 22 - [World's second largest diamond found in Botswana](https://www.yahoo.com/news/worlds-second-largest-diamond-found-175336988.html)
-- Aug 22 - [Venezuela’s Supreme Court certifies Maduro’s claims that he won presidential election](https://www.yahoo.com/news/venezuela-supreme-court-certifies-maduro-164101119.html)
-- Aug 22 - [Panama announces more migrant deportation flights to Ecuador, India and China](https://www.yahoo.com/news/panama-announces-more-migrant-deportation-154825314.html)
+- Aug 22 - [Ferry loaded with fuel sinks at Russian port after Ukrainian attack](https://www.yahoo.com/news/fire-breaks-russian-port-ukrainian-154000996.html)
+- Aug 22 - [UPDATE: Northbound I-5 reopens, southbound traffic still closed due to crash](https://www.yahoo.com/news/traffic-backed-both-directions-5-152208176.html)
+- Aug 22 - [Group drives hours to visit abandoned GA hospital they saw on TikTok. Now they’re facing charges](https://www.yahoo.com/news/group-drives-hours-visit-abandoned-131508498.html)
+- Aug 22 - [Hellcat Driver Runs From Police, Ejects At 160 MPH](https://autos.yahoo.com/hellcat-driver-runs-police-ejects-130000049.html)
 <!-- feed end -->
 
 ### Onstream
