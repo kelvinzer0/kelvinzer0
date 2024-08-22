@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Gus Walz broke the internet with his tearful love for his dad. Then the bullying began](https://www.yahoo.com/news/gus-walz-broke-internet-tearful-210322699.html)
-- Aug 22 - [Gwinnett father only referred to daughter as ‘the child’ before her death, DFCS worker testifies](https://www.yahoo.com/news/gwinnett-father-only-referred-daughter-210033114.html)
+- Aug 22 - [Ship Full Of Fuel Train Cars Detonates In Russian Port, Ukrainian Neptune Missile Suspected](https://www.yahoo.com/news/ship-full-fuel-train-cars-211252568.html)
 - Aug 22 - [JD Vance Has Cringey Interaction With Donut Shop Workers](https://www.yahoo.com/news/jd-vance-cringey-interaction-donut-205749777.html)
+- Aug 22 - [A 50bps rate cut would guarantee recession: Strategist](https://finance.yahoo.com/video/50bps-rate-cut-guarantee-recession-202956879.html)
 - Aug 22 - [The Kansas City Chiefs' cheerleaders are wearing cuffs to honor former squad member Krystal Anderson following her death: 'She was always sparkling'](https://www.yahoo.com/lifestyle/the-kansas-city-chiefs-cheerleaders-are-wearing-cuffs-to-honor-former-squad-member-krystal-anderson-following-her-death-she-was-always-sparkling-201326159.html)
 - Aug 22 - [NASA says decision on Boeing Starliner crew's path home coming Saturday](https://www.yahoo.com/news/nasa-says-decision-boeing-starliner-200034400.html)
 <!-- feed end -->
