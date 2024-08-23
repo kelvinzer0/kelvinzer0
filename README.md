@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Fires observed on board Greek-flagged tanker in Red Sea, says maritime agency](https://www.yahoo.com/news/fires-observed-board-greek-flagged-162507697.html)
+- Aug 23 - [Takeaways from Fed Chair Powell's speech at Jackson Hole](https://finance.yahoo.com/news/takeaways-fed-chair-powells-speech-161744238.html)
 - Aug 23 - [This ex porn star sued Diddy back in July. Here’s what she just told Miami Beach cops](https://www.yahoo.com/news/ex-porn-star-sued-diddy-151846239.html)
 - Aug 23 - [These Pictures Compare The Crowds At Donald Trump's And Kamala Harris's Rallies](https://www.yahoo.com/news/pictures-compare-crowds-donald-trumps-151749515.html)
 - Aug 23 - [Social Security number leak: 7 steps to take if you're affected, according to the Social Security Administration](https://www.yahoo.com/tech/social-security-number-leak-7-125202468.html)
-- Aug 23 - [Manslaughter Probe Launched as Final Body in Superyacht Disaster Is Found](https://www.yahoo.com/news/manslaughter-probe-launched-final-body-132423746.html)
-- Aug 23 - [Last body recovered from sunken superyacht off Sicily brought back to land](https://www.yahoo.com/news/last-body-recovered-sunken-superyacht-122525791.html)
 <!-- feed end -->
 
 ### Onstream
