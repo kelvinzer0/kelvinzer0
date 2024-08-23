@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [An injured baby was evacuated from Gaza. Most of his family died in the war](https://www.yahoo.com/news/injured-baby-evacuated-gaza-most-090305629.html)
 - Aug 23 - [Ukraine's Navy says it destroyed Russian ferry in attack](https://www.yahoo.com/news/ukraines-navy-says-destroyed-russian-073057164.html)
-- Aug 23 - [Russian ambassador says US plans to give Ukraine carte blanche on weapons](https://www.yahoo.com/news/russian-ambassador-says-us-plans-035417618.html)
+- Aug 23 - [All aboard presumed dead in Thailand plane crash: authorities](https://www.yahoo.com/news/aboard-presumed-dead-thailand-plane-065728859.html)
+- Aug 23 - [Russian ambassador to U.S. says Putin has plan of action for Kursk incursion](https://www.yahoo.com/news/russian-ambassador-says-us-plans-035417618.html)
 - Aug 23 - [A small mining firm just saw its stock surge 91% after it discovered the world's 2nd-largest diamond](https://finance.yahoo.com/news/small-mining-firm-just-saw-031008476.html)
-- Aug 22 - [‘In Danger’: Donald Trump Suddenly Cuts NewsNation Interview Short](https://www.yahoo.com/news/danger-donald-trump-suddenly-cuts-235155614.html)
+- Aug 23 - [Officials clear homeless encampment at California state beach](https://www.yahoo.com/news/officials-clear-homeless-encampment-california-005934640.html)
 <!-- feed end -->
 
 ### Onstream
