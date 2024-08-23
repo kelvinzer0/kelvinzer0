@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Anesthesiologist with 'chloroform fetish' admits to drugging, sexually abusing family's nanny](https://www.yahoo.com/news/anesthesiologist-chloroform-fetish-admits-drugging-181444128.html)
+- Aug 23 - [U.S. Treasuries not the safe bet they once were, research says](https://finance.yahoo.com/news/u-treasuries-not-safe-bet-183713281.html)
 - Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
-- Aug 23 - [Former Kentucky band teacher gets 25 years in prison for sex crimes involving student](https://www.yahoo.com/news/former-kentucky-band-teacher-gets-165253338.html)
-- Aug 23 - [These Pictures Compare The Crowds At Donald Trump's And Kamala Harris's Rallies](https://www.yahoo.com/news/pictures-compare-crowds-donald-trumps-151749515.html)
-- Aug 23 - [4 Chicago suburbs ranked among the top safest, wealthiest cities in the country: study](https://www.yahoo.com/news/4-chicago-suburbs-ranked-among-142408288.html)
+- Aug 23 - [Judge rules Breonna Taylor's boyfriend caused her death, dismisses some charges against ex-officers](https://www.yahoo.com/news/judge-rules-breonna-taylors-boyfriend-154359942.html)
+- Aug 23 - [These Pictures Compare The Crowds At Donald Trump's And Kamala Harris's Rallies](https://www.buzzfeed.com/ashleyholt1/comparing-rally-crowds-donald-trump-kamala-harris)
+- Aug 23 - [US judge tosses machine gun possession case, calls ban unconstitutional](https://www.yahoo.com/news/us-judge-tosses-machine-gun-150600067.html)
 <!-- feed end -->
 
 ### Onstream
