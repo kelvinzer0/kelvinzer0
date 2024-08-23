@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [5 Cities in the South Where It’s Cheaper To Buy a Home Than Rent](https://finance.yahoo.com/news/5-cities-south-where-cheaper-201505391.html)
-- Aug 23 - [U.S. Treasuries not the safe bet they once were, research says](https://finance.yahoo.com/news/u-treasuries-not-safe-bet-183713281.html)
-- Aug 23 - [This Epic Monument From 6,000 Years Ago Is a Feat of Stone Age Engineering](https://www.yahoo.com/news/epic-monument-6-000-years-180046283.html)
+- Aug 23 - [If Warren Buffett's Son Didn't Sell His 90K Berkshire Hathaway Inheritance 47 Years Ago To 'Buy Time,' He Would Have This Much Today](https://finance.yahoo.com/news/warren-buffetts-son-didnt-sell-213017552.html)
+- Aug 23 - [Webster police issue coyote warning after numerous sightings reported](https://www.yahoo.com/news/webster-police-issue-coyote-warning-204707427.html)
+- Aug 23 - [US Border Patrol agent told women to show him their breasts to get into country: Feds](https://www.yahoo.com/news/us-border-patrol-agent-told-202544775.html)
+- Aug 23 - [US crackdown on advanced chips gives China an opening on old technology](https://finance.yahoo.com/news/us-crackdown-on-advanced-chips-gives-china-an-opening-on-old-technology-190009540.html)
 - Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
-- Aug 23 - [This ex porn star sued Diddy back in July. Here’s what she just told Miami Beach cops](https://www.yahoo.com/news/ex-porn-star-sued-diddy-151846239.html)
 <!-- feed end -->
 
 ### Onstream
