@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Ukraine got America's top tank without the latest and greatest armor upgrades, which are 'top secret,' but it's adding its own](https://www.yahoo.com/news/ukraine-got-americas-top-tank-092701799.html)
 - Aug 23 - [Ukraine's Navy says it destroyed Russian ferry in attack](https://www.yahoo.com/news/ukraines-navy-says-destroyed-russian-073057164.html)
 - Aug 23 - [All aboard presumed dead in Thailand plane crash: authorities](https://www.yahoo.com/news/aboard-presumed-dead-thailand-plane-065728859.html)
 - Aug 23 - [Russian ambassador to U.S. says Putin has plan of action for Kursk incursion](https://www.yahoo.com/news/russian-ambassador-says-us-plans-035417618.html)
-- Aug 23 - [A small mining firm just saw its stock surge 91% after it discovered the world's 2nd-largest diamond](https://finance.yahoo.com/news/small-mining-firm-just-saw-031008476.html)
-- Aug 23 - [Officials clear homeless encampment at California state beach](https://www.yahoo.com/news/officials-clear-homeless-encampment-california-005934640.html)
+- Aug 23 - [L.A. hospital seeks help identifying injured woman found on street](https://www.yahoo.com/news/l-hospital-seeks-help-identifying-032448265.html)
 <!-- feed end -->
 
 ### Onstream
