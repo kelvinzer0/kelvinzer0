@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Farming program aims to help Guatemalans mitigate hunger](https://www.yahoo.com/news/farming-program-aims-help-guatemalans-222425693.html)
+- Aug 23 - [Pentagon sends more weapons to Ukraine ahead of its Independence Day](https://www.yahoo.com/news/pentagon-sends-more-weapons-ukraine-221705017.html)
 - Aug 23 - [If Warren Buffett's Son Didn't Sell His 90K Berkshire Hathaway Inheritance 47 Years Ago To 'Buy Time,' He Would Have This Much Today](https://finance.yahoo.com/news/warren-buffetts-son-didnt-sell-213017552.html)
-- Aug 23 - [Webster police issue coyote warning after numerous sightings reported](https://www.yahoo.com/news/webster-police-issue-coyote-warning-204707427.html)
-- Aug 23 - [US Border Patrol agent told women to show him their breasts to get into country: Feds](https://www.yahoo.com/news/us-border-patrol-agent-told-202544775.html)
-- Aug 23 - [US crackdown on advanced chips gives China an opening on old technology](https://finance.yahoo.com/news/us-crackdown-on-advanced-chips-gives-china-an-opening-on-old-technology-190009540.html)
-- Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
+- Aug 23 - [Alina Habba hits Kinzinger for attacks on Trump in DNC speech: ‘Sit the hell down’](https://www.yahoo.com/news/alina-habba-hits-kinzinger-attacks-192930700.html)
+- Aug 23 - [This Epic Monument From 6,000 Years Ago Is a Feat of Stone Age Engineering](https://www.yahoo.com/news/epic-monument-6-000-years-180046283.html)
 <!-- feed end -->
 
 ### Onstream
