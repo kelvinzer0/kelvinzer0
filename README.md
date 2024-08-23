@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Tributes paid to Mike Lynch and daughter Hannah after bodies found](https://www.yahoo.com/news/tributes-paid-mike-lynch-daughter-122007485.html)
-- Aug 23 - [This Prominent Billionaire Has $6 Billion Invested in These 2 AI Stocks](https://finance.yahoo.com/news/prominent-billionaire-6-billion-invested-120500087.html)
 - Aug 23 - [Ford Taurus Explodes In Fatal Police Chase](https://autos.yahoo.com/ford-taurus-explodes-fatal-police-120000407.html)
-- Aug 23 - [Ukraine says it has recaptured land in the Kharkiv region, reversing some Russian gains there](https://www.yahoo.com/news/ukraine-says-recaptured-land-kharkiv-112855915.html)
+- Aug 23 - [Ukraine says it used US glide bombs in Russia's Kursk region and has retaken some land in Kharkiv](https://www.yahoo.com/news/ukraine-says-recaptured-land-kharkiv-112855915.html)
 - Aug 23 - [Ukraine got America's top tank without the latest and greatest armor upgrades, which are 'top secret,' but it's adding its own](https://www.yahoo.com/news/ukraine-got-americas-top-tank-092701770.html)
+- Aug 23 - [Long-hidden family scandal in Jamestown colony revealed 400 years later by ancient DNA](https://www.yahoo.com/news/long-hidden-family-scandal-jamestown-080249128.html)
+- Aug 23 - [Philippines could provoke China at 'another Chinese island', says Global Times](https://www.yahoo.com/news/philippines-could-provoke-china-another-050452035.html)
 <!-- feed end -->
 
 ### Onstream
