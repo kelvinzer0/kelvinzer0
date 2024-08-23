@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Britain's smallest shoe shop proves a tight fit for customers - at just 3ft wide](https://www.yahoo.com/news/britains-smallest-shoe-shop-proves-074358990.html)
-- Aug 23 - [Philippines could provoke China at 'another Chinese island', says Global Times](https://www.yahoo.com/news/philippines-could-provoke-china-another-050452035.html)
+- Aug 23 - [An injured baby was evacuated from Gaza. Most of his family died in the war](https://www.yahoo.com/news/injured-baby-evacuated-gaza-most-090305629.html)
+- Aug 23 - [Ukraine's Navy says it destroyed Russian ferry in attack](https://www.yahoo.com/news/ukraines-navy-says-destroyed-russian-073057164.html)
 - Aug 23 - [Russian ambassador says US plans to give Ukraine carte blanche on weapons](https://www.yahoo.com/news/russian-ambassador-says-us-plans-035417618.html)
-- Aug 23 - [Fire crews, police respond to Las Vegas hotel fire, multiple floors evacuated, police say](https://www.yahoo.com/news/fire-crews-police-respond-las-035334423.html)
 - Aug 23 - [A small mining firm just saw its stock surge 91% after it discovered the world's 2nd-largest diamond](https://finance.yahoo.com/news/small-mining-firm-just-saw-031008476.html)
+- Aug 22 - [‘In Danger’: Donald Trump Suddenly Cuts NewsNation Interview Short](https://www.yahoo.com/news/danger-donald-trump-suddenly-cuts-235155614.html)
 <!-- feed end -->
 
 ### Onstream
