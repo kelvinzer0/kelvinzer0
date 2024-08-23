@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [A small mining firm just saw its stock surge 91% after it discovered the world's 2nd-largest diamond](https://finance.yahoo.com/news/small-mining-firm-just-saw-031008476.html)
-- Aug 23 - [Officials clear homeless encampment at California state beach](https://www.yahoo.com/news/officials-clear-homeless-encampment-california-005934640.html)
+- Aug 23 - [Russian ambassador says US plans to give Ukraine carte blanche on weapons](https://www.yahoo.com/news/russian-ambassador-says-us-plans-035417618.html)
 - Aug 23 - [Russian Jets Damaged In Ukrainian Long-Range Drone Attack On Air Base](https://www.yahoo.com/news/russian-jets-damaged-ukrainian-long-004031051.html)
 - Aug 22 - [‘In Danger’: Donald Trump Suddenly Cuts NewsNation Interview Short](https://www.yahoo.com/news/danger-donald-trump-suddenly-cuts-235155614.html)
-- Aug 22 - ["Parts Of It Literally Turn To Bone": Here's The Area Of Your Body You Must Stretch As You Age](https://www.yahoo.com/lifestyle/doing-1-simple-stretch-older-211602576.html)
+- Aug 22 - [19 arrested, $250K seized in prostitution raid in Arcadia](https://www.yahoo.com/news/19-arrested-250k-seized-prostitution-223849413.html)
+- Aug 22 - [Contaminated fuel complaints spike in North Carolina, drivers met with costly repairs](https://www.yahoo.com/news/contaminated-fuel-complaints-spike-north-222646407.html)
 <!-- feed end -->
 
 ### Onstream
