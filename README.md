@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Finland defends law allowing it to push migrants back over Russian border](https://www.yahoo.com/news/finland-defends-law-allowing-push-144218815.html)
+- Aug 23 - [CNN Pundit Scott Jennings Hits A Nerve With Joke About Flag-Burning Democrats At DNC](https://www.yahoo.com/entertainment/cnn-pundit-scott-jennings-hits-131358628.html)
+- Aug 23 - [Hurricane center tracks 2 tropical waves as Labor Day weekend, peak of hurricane season nears](https://www.yahoo.com/news/hurricane-center-tracks-2-tropical-125442124.html)
 - Aug 23 - [Ford Taurus Explodes In Fatal Police Chase](https://autos.yahoo.com/ford-taurus-explodes-fatal-police-120000407.html)
-- Aug 23 - [Ukraine says it used US glide bombs in Russia's Kursk region and has retaken some land in Kharkiv](https://www.yahoo.com/news/ukraine-says-recaptured-land-kharkiv-112855915.html)
-- Aug 23 - [Ukraine got America's top tank without the latest and greatest armor upgrades, which are 'top secret,' but it's adding its own](https://www.yahoo.com/news/ukraine-got-americas-top-tank-092701770.html)
-- Aug 23 - [Long-hidden family scandal in Jamestown colony revealed 400 years later by ancient DNA](https://www.yahoo.com/news/long-hidden-family-scandal-jamestown-080249128.html)
-- Aug 23 - [Philippines could provoke China at 'another Chinese island', says Global Times](https://www.yahoo.com/news/philippines-could-provoke-china-another-050452035.html)
+- Aug 23 - [Subway announces a new price for footlongs as it enters the value menu wars](https://finance.yahoo.com/news/subway-announces-price-footlongs-enters-112951719.html)
 <!-- feed end -->
 
 ### Onstream
