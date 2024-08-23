@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Ukraine says it has recaptured land in the Kharkiv region, reversing some Russian gains there](https://www.yahoo.com/news/ukraine-says-recaptured-land-kharkiv-112855915.html)
 - Aug 23 - [Ukraine got America's top tank without the latest and greatest armor upgrades, which are 'top secret,' but it's adding its own](https://www.yahoo.com/news/ukraine-got-americas-top-tank-092701799.html)
+- Aug 23 - [I've been to North Korea more than 180 times. Here's how tourists can stay out of trouble.](https://www.yahoo.com/news/ive-north-korea-more-180-085645001.html)
+- Aug 23 - [Long-hidden family scandal in Jamestown colony revealed 400 years later by ancient DNA](https://www.yahoo.com/news/long-hidden-family-scandal-jamestown-080249128.html)
 - Aug 23 - [Ukraine's Navy says it destroyed Russian ferry in attack](https://www.yahoo.com/news/ukraines-navy-says-destroyed-russian-073057164.html)
-- Aug 23 - [All aboard presumed dead in Thailand plane crash: authorities](https://www.yahoo.com/news/aboard-presumed-dead-thailand-plane-065728859.html)
-- Aug 23 - [Russian ambassador to U.S. says Putin has plan of action for Kursk incursion](https://www.yahoo.com/news/russian-ambassador-says-us-plans-035417618.html)
-- Aug 23 - [L.A. hospital seeks help identifying injured woman found on street](https://www.yahoo.com/news/l-hospital-seeks-help-identifying-032448265.html)
 <!-- feed end -->
 
 ### Onstream
