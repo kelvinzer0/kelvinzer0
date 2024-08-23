@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [5 Cities in the South Where It’s Cheaper To Buy a Home Than Rent](https://finance.yahoo.com/news/5-cities-south-where-cheaper-201505391.html)
 - Aug 23 - [U.S. Treasuries not the safe bet they once were, research says](https://finance.yahoo.com/news/u-treasuries-not-safe-bet-183713281.html)
+- Aug 23 - [This Epic Monument From 6,000 Years Ago Is a Feat of Stone Age Engineering](https://www.yahoo.com/news/epic-monument-6-000-years-180046283.html)
 - Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
-- Aug 23 - [Judge rules Breonna Taylor's boyfriend caused her death, dismisses some charges against ex-officers](https://www.yahoo.com/news/judge-rules-breonna-taylors-boyfriend-154359942.html)
-- Aug 23 - [These Pictures Compare The Crowds At Donald Trump's And Kamala Harris's Rallies](https://www.buzzfeed.com/ashleyholt1/comparing-rally-crowds-donald-trump-kamala-harris)
-- Aug 23 - [US judge tosses machine gun possession case, calls ban unconstitutional](https://www.yahoo.com/news/us-judge-tosses-machine-gun-150600067.html)
+- Aug 23 - [This ex porn star sued Diddy back in July. Here’s what she just told Miami Beach cops](https://www.yahoo.com/news/ex-porn-star-sued-diddy-151846239.html)
 <!-- feed end -->
 
 ### Onstream
