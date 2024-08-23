@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [US stock futures rise with Powell speech, rate cuts in focus](https://finance.yahoo.com/news/us-stock-futures-rise-powell-004020115.html)
-- Aug 22 - [‘In Danger’: Donald Trump Suddenly Cuts NewsNation Interview Short](https://www.yahoo.com/news/danger-donald-trump-suddenly-cuts-235155614.html)
-- Aug 22 - [This Is What Your Net Worth Should Be at 62 To Be on Track for a Comfortable Retirement](https://finance.yahoo.com/news/net-worth-62-track-comfortable-200751065.html)
+- Aug 22 - [Contaminated fuel complaints spike in North Carolina, drivers met with costly repairs](https://www.yahoo.com/news/contaminated-fuel-complaints-spike-north-222646407.html)
 - Aug 22 - ["Parts Of It Literally Turn To Bone": Here's The Area Of Your Body You Must Stretch As You Age](https://www.yahoo.com/lifestyle/doing-1-simple-stretch-older-211602576.html)
 - Aug 22 - [Ship Full Of Fuel Train Cars Detonates In Russian Port, Ukrainian Neptune Missile Suspected (Updated)](https://www.yahoo.com/news/ship-full-fuel-train-cars-211252568.html)
+- Aug 22 - [JD Vance Has Cringey Interaction With Donut Shop Workers](https://www.yahoo.com/news/jd-vance-cringey-interaction-donut-205749777.html)
+- Aug 22 - [The Kansas City Chiefs' cheerleaders are wearing cuffs to honor former squad member Krystal Anderson following her death: 'She was always sparkling'](https://www.yahoo.com/lifestyle/the-kansas-city-chiefs-cheerleaders-are-wearing-cuffs-to-honor-former-squad-member-krystal-anderson-following-her-death-she-was-always-sparkling-201326159.html)
 <!-- feed end -->
 
 ### Onstream
