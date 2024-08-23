@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Fires observed on board Greek-flagged tanker in Red Sea, says maritime agency](https://www.yahoo.com/news/fires-observed-board-greek-flagged-162507697.html)
-- Aug 23 - [Takeaways from Fed Chair Powell's speech at Jackson Hole](https://finance.yahoo.com/news/takeaways-fed-chair-powells-speech-161744238.html)
-- Aug 23 - [This ex porn star sued Diddy back in July. Here’s what she just told Miami Beach cops](https://www.yahoo.com/news/ex-porn-star-sued-diddy-151846239.html)
+- Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
+- Aug 23 - [NY man charged with spying on Chinese dissidents for Beijing](https://www.yahoo.com/news/ny-man-charged-spying-chinese-171719487.html)
+- Aug 23 - [One of the police officers involved in Scottie Scheffler's arrest at PGA Championship was charged and arrested for theft](https://www.yahoo.com/news/one-police-officers-involved-scottie-164157561.html)
+- Aug 23 - [Man with serious injures transported to hospital following I-94 crash in Waukesha County](https://www.yahoo.com/news/94-closed-both-directions-morning-161620719.html)
 - Aug 23 - [These Pictures Compare The Crowds At Donald Trump's And Kamala Harris's Rallies](https://www.yahoo.com/news/pictures-compare-crowds-donald-trumps-151749515.html)
-- Aug 23 - [Social Security number leak: 7 steps to take if you're affected, according to the Social Security Administration](https://www.yahoo.com/tech/social-security-number-leak-7-125202468.html)
 <!-- feed end -->
 
 ### Onstream
