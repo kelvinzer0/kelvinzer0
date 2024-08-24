@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Five Mike Lynch superyacht victims found in same cabin ‘trying to escape’](https://www.yahoo.com/news/five-bodies-found-same-cabin-095701198.html)
-- Aug 24 - [Lake Norman waterfront community wants public banned from its shoreline, despite rules](https://www.yahoo.com/news/lake-norman-waterfront-community-wants-103000768.html)
-- Aug 24 - ['Like a bomb': Exploding tire that killed L.A. County firefighter was a little-known risk](https://www.yahoo.com/news/bomb-exploding-tire-killed-l-100024032.html)
-- Aug 24 - [Streets in downtown Myrtle Beach, SC to close for over a year. What roads will shut down](https://www.yahoo.com/news/streets-downtown-myrtle-beach-sc-100000018.html)
+- Aug 24 - [Five superyacht victims found in same cabin ‘trying to escape’](https://www.yahoo.com/news/five-bodies-found-same-cabin-095701198.html)
 - Aug 24 - [23 People Who Tried — Really Tried! — But Absolutely Should Not Have](https://www.yahoo.com/entertainment/23-people-tried-really-tried-091602170.html)
+- Aug 24 - [Nvidia's Stock Has Soared 30% Since It Announced Its 10-for-1 Stock Split. History Says This Will Happen Next.](https://finance.yahoo.com/news/nvidias-stock-soared-30-since-091200788.html)
+- Aug 24 - [America's X-37B vs. China's Shenlong: Top space planes and their shadowy role in orbital war](https://www.yahoo.com/news/americas-x-37b-vs-chinas-090002219.html)
+- Aug 24 - [US 'kinetic strike' takes out senior leader of terrorist group aligned with al Qaeda in Syria](https://www.yahoo.com/news/us-kinetic-strike-takes-senior-002512351.html)
 <!-- feed end -->
 
 ### Onstream
