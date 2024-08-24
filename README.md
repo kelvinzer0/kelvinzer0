@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Five superyacht victims found in same cabin ‘trying to escape’](https://www.yahoo.com/news/five-bodies-found-same-cabin-095701198.html)
+- Aug 24 - [Is the VanEck Semiconductor ETF Still a Millionaire Maker?](https://finance.yahoo.com/news/vaneck-semiconductor-etf-still-millionaire-130500784.html)
+- Aug 24 - [‘Invest, borrow against it, and die’: Scott Galloway explains how the rich avoid long-term capital gains taxes](https://finance.yahoo.com/news/invest-borrow-against-die-scott-114400643.html)
 - Aug 24 - [23 People Who Tried — Really Tried! — But Absolutely Should Not Have](https://www.yahoo.com/entertainment/23-people-tried-really-tried-091602170.html)
-- Aug 24 - [Nvidia's Stock Has Soared 30% Since It Announced Its 10-for-1 Stock Split. History Says This Will Happen Next.](https://finance.yahoo.com/news/nvidias-stock-soared-30-since-091200788.html)
 - Aug 24 - [America's X-37B vs. China's Shenlong: Top space planes and their shadowy role in orbital war](https://www.yahoo.com/news/americas-x-37b-vs-chinas-090002219.html)
-- Aug 24 - [US 'kinetic strike' takes out senior leader of terrorist group aligned with al Qaeda in Syria](https://www.yahoo.com/news/us-kinetic-strike-takes-senior-002512351.html)
+- Aug 24 - [Eliminating These 3 Foods From Your Diet Can Be A Game-Changer For Heart Health](https://www.yahoo.com/lifestyle/eliminating-3-foods-diet-game-070015416.html)
 <!-- feed end -->
 
 ### Onstream
