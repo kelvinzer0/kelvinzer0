@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 24 - [NASA says astronauts stuck in space will not return on Boeing capsule, will wait for SpaceX craft](https://www.yahoo.com/news/nasa-says-astronauts-stuck-space-171540497.html)
+- Aug 24 - [5 Lessons Parents Should Teach Teens About Money, According to ‘Rich Dad’ Robert Kiyosaki](https://finance.yahoo.com/news/5-lessons-parents-teach-teens-180009947.html)
 - Aug 24 - [Fauci recovering after hospitalization for West Nile virus](https://www.yahoo.com/news/fauci-recovering-hospitalization-west-nile-120002943.html)
 - Aug 24 - [NASA decides to keep 2 astronauts in space until February, nixes return on troubled Boeing capsule](https://www.yahoo.com/news/nasa-decides-keep-2-astronauts-171658226.html)
 - Aug 24 - [Watch: Black bear approaches girl, grabs her leg in ‘scary moment’](https://www.yahoo.com/news/watch-black-bear-approaches-girl-160155164.html)
-- Aug 24 - [The Biggest Recalls In Tyson Foods' History](https://www.yahoo.com/news/biggest-recalls-tyson-foods-history-153013134.html)
 <!-- feed end -->
 
 ### Onstream
