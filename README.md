@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Carroll County deputy shot in the line of duty has died](https://www.yahoo.com/news/carroll-county-deputy-shot-line-064603637.html)
-- Aug 24 - [Mega Millions winning numbers for August 23 drawing; jackpot soars to $527 million](https://www.yahoo.com/news/mega-millions-winning-numbers-august-004758151.html)
-- Aug 23 - [If Warren Buffett's Son Didn't Sell His 90K Berkshire Hathaway Inheritance 47 Years Ago To 'Buy Time,' He Would Have This Much Today](https://finance.yahoo.com/news/warren-buffetts-son-didnt-sell-213017552.html)
+- Aug 24 - [Prediction: 2 Stocks That'll Be Worth More Than Apple 10 Years From Now](https://finance.yahoo.com/news/prediction-2-stocks-thatll-worth-075900357.html)
+- Aug 23 - [Damage reported after microburst impacts Phoenix metro](https://www.yahoo.com/news/damage-reported-microburst-impacts-phoenix-221032635.html)
 - Aug 23 - [Supermassive black holes have masses of more than a million suns – but their growth has slowed as the universe aged](https://www.yahoo.com/news/supermassive-black-holes-masses-more-211155176.html)
-- Aug 23 - [Hopewell High School principal suspended days before CMS school year starts](https://www.yahoo.com/news/hopewell-high-school-principal-suspended-203550965.html)
+- Aug 23 - [Man slashed driver’s throat on I-5 after smoking meth, fentanyl in Tacoma, charges say](https://www.yahoo.com/news/man-slashed-driver-throat-5-201836528.html)
+- Aug 23 - [US crackdown on advanced chips gives China an opening on old technology](https://finance.yahoo.com/news/us-crackdown-on-advanced-chips-gives-china-an-opening-on-old-technology-190009540.html)
 <!-- feed end -->
 
 ### Onstream
