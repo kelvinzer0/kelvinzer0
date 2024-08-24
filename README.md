@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Dump truck leaves hole in covered bridge when it crashes into river in Maine](https://www.yahoo.com/news/dump-truck-leaves-hole-covered-222822367.html)
+- Aug 23 - [Damage reported after microburst impacts Phoenix metro](https://www.yahoo.com/news/damage-reported-microburst-impacts-phoenix-221032635.html)
+- Aug 23 - [Mecum Auctions Closes Monterey With $54 Million in Sales](https://autos.yahoo.com/mecum-auctions-closes-monterey-54-213027827.html)
 - Aug 23 - [If Warren Buffett's Son Didn't Sell His 90K Berkshire Hathaway Inheritance 47 Years Ago To 'Buy Time,' He Would Have This Much Today](https://finance.yahoo.com/news/warren-buffetts-son-didnt-sell-213017552.html)
 - Aug 23 - [It looks like September 10 is going to be a big day for the iPhone](https://www.yahoo.com/tech/looks-september-10-going-big-200002631.html)
-- Aug 23 - [Brown County Sheriff’s Office releases names from fatal car crash that killed two, left one seriously injured](https://www.yahoo.com/news/brown-county-sheriff-office-releases-192814961.html)
-- Aug 23 - [Los Angeles man’s ‘terrorizing’ trek into Yosemite, Mariposa, and Madera counties ends in arrest, deputies say](https://www.yahoo.com/news/los-angeles-man-terrorizing-trek-190100329.html)
+- Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
 <!-- feed end -->
 
 ### Onstream
