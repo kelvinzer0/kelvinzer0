@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 23 - [If Warren Buffett's Son Didn't Sell His 90K Berkshire Hathaway Inheritance 47 Years Ago To 'Buy Time,' He Would Have This Much Today](https://finance.yahoo.com/news/warren-buffetts-son-didnt-sell-213017552.html)
-- Aug 23 - [Hopewell High School principal suspended days before CMS school year starts](https://www.yahoo.com/news/hopewell-high-school-principal-suspended-203550965.html)
-- Aug 23 - [U.S. Treasuries not the safe bet they once were, research says](https://finance.yahoo.com/news/u-treasuries-not-safe-bet-183713281.html)
-- Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
-- Aug 23 - [As Twitter's Revenue Collapses By 84%, Tesla Bulls Fear Elon Musk Will Liquidate More Tesla Stock, Bringing Its Value Down For Everyone](https://finance.yahoo.com/news/twitters-revenue-collapses-84-tesla-171535190.html)
+- Aug 23 - [Supermassive black holes have masses of more than a million suns – but their growth has slowed as the universe aged](https://www.yahoo.com/news/supermassive-black-holes-masses-more-211155176.html)
+- Aug 23 - [Webster police issue coyote warning after numerous sightings reported](https://www.yahoo.com/news/webster-police-issue-coyote-warning-204707427.html)
+- Aug 23 - [Elon Musk on Trump’s team isn’t good for Tesla: Investor](https://finance.yahoo.com/video/elon-musk-trump-team-isn-200000331.html)
+- Aug 23 - [US crackdown on advanced chips gives China an opening on old technology](https://finance.yahoo.com/news/us-crackdown-on-advanced-chips-gives-china-an-opening-on-old-technology-190009540.html)
 <!-- feed end -->
 
 ### Onstream
