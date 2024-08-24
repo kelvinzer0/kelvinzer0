@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Yemen's Houthis release video showing explosions on oil tanker they claim to have attacked](https://www.yahoo.com/news/yemens-houthis-release-video-showing-072959011.html)
-- Aug 23 - [Man slashed driver’s throat on I-5 after smoking meth, fentanyl in Tacoma, charges say](https://www.yahoo.com/news/man-slashed-driver-throat-5-201836528.html)
+- Aug 24 - [Ukrainians wait for buses and trains out of Pokrovsk as Russian forces advance towards city](https://www.yahoo.com/news/ukrainians-wait-buses-trains-pokrovsk-104646678.html)
+- Aug 24 - [Five bodies found in same cabin of Mike Lynch superyacht, investigators confirm](https://www.yahoo.com/news/five-bodies-found-same-cabin-095701198.html)
+- Aug 23 - [Dump truck leaves hole in covered bridge when it crashes into river in Maine](https://www.yahoo.com/news/dump-truck-leaves-hole-covered-222822367.html)
 - Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
-- Aug 23 - [These Photos Reveal Just How Donald Trump's Rally Crowds Compare To Kamala Harris's](https://www.yahoo.com/news/pictures-compare-crowds-donald-trumps-151749515.html)
-- Aug 23 - [US judge tosses machine gun possession case, calls ban unconstitutional](https://www.yahoo.com/news/us-judge-tosses-machine-gun-150600067.html)
+- Aug 23 - [As Twitter's Revenue Collapses By 84%, Tesla Bulls Fear Elon Musk Will Liquidate More Tesla Stock, Bringing Its Value Down For Everyone](https://finance.yahoo.com/news/twitters-revenue-collapses-84-tesla-171535190.html)
 <!-- feed end -->
 
 ### Onstream
