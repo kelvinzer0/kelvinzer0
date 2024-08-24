@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Farming program aims to help Guatemalans mitigate hunger](https://www.yahoo.com/news/farming-program-aims-help-guatemalans-222425693.html)
-- Aug 23 - [Pentagon sends more weapons to Ukraine ahead of its Independence Day](https://www.yahoo.com/news/pentagon-sends-more-weapons-ukraine-221705017.html)
+- Aug 23 - [Dump truck leaves hole in covered bridge when it crashes into river in Maine](https://www.yahoo.com/news/dump-truck-leaves-hole-covered-222822367.html)
 - Aug 23 - [If Warren Buffett's Son Didn't Sell His 90K Berkshire Hathaway Inheritance 47 Years Ago To 'Buy Time,' He Would Have This Much Today](https://finance.yahoo.com/news/warren-buffetts-son-didnt-sell-213017552.html)
-- Aug 23 - [Alina Habba hits Kinzinger for attacks on Trump in DNC speech: ‘Sit the hell down’](https://www.yahoo.com/news/alina-habba-hits-kinzinger-attacks-192930700.html)
-- Aug 23 - [This Epic Monument From 6,000 Years Ago Is a Feat of Stone Age Engineering](https://www.yahoo.com/news/epic-monument-6-000-years-180046283.html)
+- Aug 23 - [It looks like September 10 is going to be a big day for the iPhone](https://www.yahoo.com/tech/looks-september-10-going-big-200002631.html)
+- Aug 23 - [Brown County Sheriff’s Office releases names from fatal car crash that killed two, left one seriously injured](https://www.yahoo.com/news/brown-county-sheriff-office-releases-192814961.html)
+- Aug 23 - [Los Angeles man’s ‘terrorizing’ trek into Yosemite, Mariposa, and Madera counties ends in arrest, deputies say](https://www.yahoo.com/news/los-angeles-man-terrorizing-trek-190100329.html)
 <!-- feed end -->
 
 ### Onstream
