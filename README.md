@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [1 arrested, 3 dead after stabbing attack at German festival](https://www.yahoo.com/news/1-arrested-3-dead-stabbing-150554560.html)
+- Aug 24 - [A man was killed Friday night in an officer-involved shooting in Edmond.](https://www.yahoo.com/news/man-killed-friday-night-officer-160458907.html)
+- Aug 24 - [Watch: Black bear approaches girl, grabs her leg in ‘scary moment’](https://www.yahoo.com/news/watch-black-bear-approaches-girl-160155164.html)
 - Aug 24 - [A grizzly bear was standing on his back and went in for the ‘kill bite.’ He survived to tell the story](https://www.yahoo.com/news/most-violent-thing-ever-experienced-211123227.html)
 - Aug 24 - [How billionaire’s superyacht trip to celebrate end of 13 year legal battle ended in tragedy](https://www.yahoo.com/news/billionaire-superyacht-trip-celebrate-end-150649489.html)
 - Aug 24 - [Mechanic vs. Dealership vs. Auto Chain: Which Is Least and Most Likely To Scam You for Car Maintenance?](https://finance.yahoo.com/news/mechanic-vs-dealership-vs-auto-130021535.html)
-- Aug 24 - ['Like a bomb': Exploding tire that killed L.A. County firefighter was a little-known risk](https://www.yahoo.com/news/bomb-exploding-tire-killed-l-100024032.html)
 <!-- feed end -->
 
 ### Onstream
