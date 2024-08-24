@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Mecum Auctions Closes Monterey With $54 Million in Sales](https://autos.yahoo.com/mecum-auctions-closes-monterey-54-213027827.html)
 - Aug 23 - [If Warren Buffett's Son Didn't Sell His 90K Berkshire Hathaway Inheritance 47 Years Ago To 'Buy Time,' He Would Have This Much Today](https://finance.yahoo.com/news/warren-buffetts-son-didnt-sell-213017552.html)
-- Aug 23 - [Hopewell High School principal suspended days before CMS school year starts](https://www.yahoo.com/news/hopewell-high-school-principal-suspended-203550965.html)
+- Aug 23 - [Webster police issue coyote warning after numerous sightings reported](https://www.yahoo.com/news/webster-police-issue-coyote-warning-204707427.html)
+- Aug 23 - [Man slashed driver’s throat on I-5 after smoking meth, fentanyl in Tacoma, charges say](https://www.yahoo.com/news/man-slashed-driver-throat-5-201836528.html)
 - Aug 23 - [It looks like September 10 is going to be a big day for the iPhone](https://www.yahoo.com/tech/looks-september-10-going-big-200002631.html)
 - Aug 23 - [US crackdown on advanced chips gives China an opening on old technology](https://finance.yahoo.com/news/us-crackdown-on-advanced-chips-gives-china-an-opening-on-old-technology-190009540.html)
 <!-- feed end -->
