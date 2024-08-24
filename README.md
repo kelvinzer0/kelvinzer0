@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Five bodies found in same cabin of Mike Lynch superyacht, investigators confirm](https://www.yahoo.com/news/five-bodies-found-same-cabin-095701198.html)
-- Aug 24 - [Forget NextEra Energy Partners: Buy This Top-Notch Ultra-High-Yield Stock Instead](https://finance.yahoo.com/news/forget-nextera-energy-partners-buy-072600077.html)
-- Aug 24 - [US 'kinetic strike' takes out senior leader of terrorist group aligned with al Qaeda in Syria](https://www.yahoo.com/news/us-kinetic-strike-takes-senior-002512351.html)
-- Aug 23 - [Damage reported after microburst impacts Phoenix metro](https://www.yahoo.com/news/damage-reported-microburst-impacts-phoenix-221032635.html)
-- Aug 23 - [Low water temperatures in Grand Haven complicate plans, pose risk](https://www.yahoo.com/news/low-water-temperatures-grand-haven-213556869.html)
+- Aug 24 - [Five Mike Lynch superyacht victims found in same cabin ‘trying to escape’](https://www.yahoo.com/news/five-bodies-found-same-cabin-095701198.html)
+- Aug 24 - [Lake Norman waterfront community wants public banned from its shoreline, despite rules](https://www.yahoo.com/news/lake-norman-waterfront-community-wants-103000768.html)
+- Aug 24 - ['Like a bomb': Exploding tire that killed L.A. County firefighter was a little-known risk](https://www.yahoo.com/news/bomb-exploding-tire-killed-l-100024032.html)
+- Aug 24 - [Streets in downtown Myrtle Beach, SC to close for over a year. What roads will shut down](https://www.yahoo.com/news/streets-downtown-myrtle-beach-sc-100000018.html)
+- Aug 24 - [23 People Who Tried — Really Tried! — But Absolutely Should Not Have](https://www.yahoo.com/entertainment/23-people-tried-really-tried-091602170.html)
 <!-- feed end -->
 
 ### Onstream
