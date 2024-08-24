@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [Billionaire Bill Gates Has 83% of His $48 Billion Portfolio in Just 4 Stocks](https://finance.yahoo.com/news/billionaire-bill-gates-83-48-220100442.html)
 - Aug 24 - [Girlfriend defended online for wanting a lab-cut diamond ring after boyfriend refuses](https://www.yahoo.com/lifestyle/girlfriend-defended-online-wanting-lab-214557176.html)
 - Aug 24 - [Commanders take down Sean Taylor memorial after criticism, working on replacement statue](https://sports.yahoo.com/commanders-take-down-sean-taylor-memorial-after-criticism-working-on-replacement-statue-205254966.html)
-- Aug 24 - [3 inmates escape custody in Warren County; all 3 back in custody](https://www.yahoo.com/news/3-inmates-escape-custody-warren-093130256.html)
-- Aug 24 - [NASA says astronauts stuck in space will not return on Boeing capsule, will wait for SpaceX craft](https://www.yahoo.com/news/nasa-says-astronauts-stuck-space-171540497.html)
-- Aug 24 - [A woman got tired of her mail getting stolen. She sent herself an Apple AirTag to help catch the thieves](https://www.yahoo.com/news/woman-got-tired-her-mail-195318928.html)
+- Aug 24 - [Ship captain who saw Mike Lynch’s yacht sink blames ‘extreme mast’](https://finance.yahoo.com/news/ship-captain-saw-mike-lynch-163942794.html)
+- Aug 24 - [Watch: Black bear approaches girl, grabs her leg in ‘scary moment’](https://www.yahoo.com/news/watch-black-bear-approaches-girl-160155164.html)
 <!-- feed end -->
 
 ### Onstream
