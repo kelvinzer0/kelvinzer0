@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [NASA astronauts who will spend extra months at the space station are veteran Navy pilots](https://www.yahoo.com/news/nasa-astronauts-spend-extra-months-204055698.html)
+- Aug 24 - [Girlfriend defended online for wanting a lab-cut diamond ring after boyfriend refuses](https://www.yahoo.com/lifestyle/girlfriend-defended-online-wanting-lab-214557176.html)
+- Aug 24 - [Commanders take down Sean Taylor memorial after criticism, working on replacement statue](https://sports.yahoo.com/commanders-take-down-sean-taylor-memorial-after-criticism-working-on-replacement-statue-205254966.html)
+- Aug 24 - [3 inmates escape custody in Warren County; all 3 back in custody](https://www.yahoo.com/news/3-inmates-escape-custody-warren-093130256.html)
 - Aug 24 - [NASA says astronauts stuck in space will not return on Boeing capsule, will wait for SpaceX craft](https://www.yahoo.com/news/nasa-says-astronauts-stuck-space-171540497.html)
-- Aug 24 - [Woman shot after hitting officer with her car in Huntersville, police say](https://www.yahoo.com/news/large-police-presence-reported-huntersville-170147474.html)
-- Aug 24 - [Convicted Jacksonville felon pleads guilty to possessing a machinegun](https://www.yahoo.com/news/convicted-jacksonville-felon-pleads-guilty-194624170.html)
-- Aug 24 - [MSNBC Compares JD Vance’s ‘Awkward’ Donut Order With Tim Walz at a Sandwich Shop: ‘Suffering from Vicarious Embarrassment’ | Video](https://www.yahoo.com/news/msnbc-compares-jd-vance-awkward-193938582.html)
+- Aug 24 - [A woman got tired of her mail getting stolen. She sent herself an Apple AirTag to help catch the thieves](https://www.yahoo.com/news/woman-got-tired-her-mail-195318928.html)
 <!-- feed end -->
 
 ### Onstream
