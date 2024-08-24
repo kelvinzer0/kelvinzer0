@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Ukrainians wait for buses and trains out of Pokrovsk as Russian forces advance towards city](https://www.yahoo.com/news/ukrainians-wait-buses-trains-pokrovsk-104646678.html)
 - Aug 24 - [Five bodies found in same cabin of Mike Lynch superyacht, investigators confirm](https://www.yahoo.com/news/five-bodies-found-same-cabin-095701198.html)
-- Aug 23 - [Dump truck leaves hole in covered bridge when it crashes into river in Maine](https://www.yahoo.com/news/dump-truck-leaves-hole-covered-222822367.html)
-- Aug 23 - [Attorney general responds to former President Trump's vow to pardon Jan. 6 convictions](https://www.yahoo.com/news/attorney-general-responds-former-president-174245646.html)
-- Aug 23 - [As Twitter's Revenue Collapses By 84%, Tesla Bulls Fear Elon Musk Will Liquidate More Tesla Stock, Bringing Its Value Down For Everyone](https://finance.yahoo.com/news/twitters-revenue-collapses-84-tesla-171535190.html)
+- Aug 24 - [Forget NextEra Energy Partners: Buy This Top-Notch Ultra-High-Yield Stock Instead](https://finance.yahoo.com/news/forget-nextera-energy-partners-buy-072600077.html)
+- Aug 24 - [US 'kinetic strike' takes out senior leader of terrorist group aligned with al Qaeda in Syria](https://www.yahoo.com/news/us-kinetic-strike-takes-senior-002512351.html)
+- Aug 23 - [Damage reported after microburst impacts Phoenix metro](https://www.yahoo.com/news/damage-reported-microburst-impacts-phoenix-221032635.html)
+- Aug 23 - [Low water temperatures in Grand Haven complicate plans, pose risk](https://www.yahoo.com/news/low-water-temperatures-grand-haven-213556869.html)
 <!-- feed end -->
 
 ### Onstream
