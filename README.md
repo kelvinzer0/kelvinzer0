@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Peloton vs. Barry's: Which fitness brand holds more value?](https://finance.yahoo.com/video/peloton-vs-barrys-fitness-brand-143014080.html)
-- Aug 25 - [Sen. Warren says ‘women are not stupid’ as JD Vance says Trump won’t ban abortion: Full interview](https://www.yahoo.com/news/sen-warren-says-women-not-134648466.html)
-- Aug 25 - [JD Vance’s Neighbors Erupt After Secret Service Closes Park](https://www.yahoo.com/news/jd-vance-neighbors-erupt-secret-133257571.html)
+- Aug 25 - [Failed Syrian asylum seeker arrested after knife attack in Germany](https://www.yahoo.com/news/failed-syrian-asylum-seeker-arrested-153948555.html)
+- Aug 25 - [Gen. McMaster’s blistering account of the Trump White House](https://www.yahoo.com/news/gen-mcmaster-blistering-account-trump-150002475.html)
+- Aug 25 - [Republican group cites notorious Dred Scott ruling as reason Kamala Harris can’t be president](https://www.yahoo.com/news/republican-group-cites-notorious-dred-165051676.html)
 - Aug 25 - [The #1 Thing to Avoid If You Have High Blood Pressure, According to Dietitians](https://www.yahoo.com/lifestyle/1-thing-avoid-high-blood-130000126.html)
-- Aug 25 - [A New York man died while on a solo trip to Colombia. It took his grieving mother 5 months to learn what happened](https://www.yahoo.com/news/york-man-died-while-solo-120002510.html)
+- Aug 25 - [Harris leading Trump by 7 points: Poll](https://www.yahoo.com/news/harris-leading-trump-7-points-122716653.html)
 <!-- feed end -->
 
 ### Onstream
