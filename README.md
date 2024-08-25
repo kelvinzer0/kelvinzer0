@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 25 - [Rep. John Curtis leads Caroline Gleich by more than 30 percentage points in new Senate poll](https://www.yahoo.com/news/rep-john-curtis-leads-caroline-012921394.html)
 - Aug 24 - [Commanders take down Sean Taylor memorial after criticism, working on replacement statue](https://sports.yahoo.com/commanders-take-down-sean-taylor-memorial-after-criticism-working-on-replacement-statue-205254966.html)
-- Aug 24 - [NASA decision against using a Boeing capsule to bring astronauts back adds to company's problems](https://finance.yahoo.com/news/nasa-decision-against-using-boeing-185959095.html)
+- Aug 24 - [Vehicle strikes ‘half dozen’ other vehicles in overnight Buffalo crash](https://www.yahoo.com/news/vehicle-strikes-half-dozen-other-201400507.html)
 - Aug 24 - [Burning Man festivalgoers experience travel headaches again due to rain](https://www.yahoo.com/news/burning-man-festivalgoers-experience-travel-175752649.html)
-- Aug 24 - [Watch: Black bear approaches girl, grabs her leg in ‘scary moment’](https://www.yahoo.com/news/watch-black-bear-approaches-girl-160155164.html)
+- Aug 24 - [‘Invest, borrow against it, and die’: Scott Galloway explains how the rich avoid long-term capital gains taxes](https://finance.yahoo.com/news/invest-borrow-against-die-scott-114400643.html)
 <!-- feed end -->
 
 ### Onstream
