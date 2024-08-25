@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [One person dead after domestic disturbance in central Lubbock](https://www.yahoo.com/news/one-person-dead-domestic-disturbance-185037453.html)
 - Aug 25 - [‘I’m guilty of helping too much’: My married adult son constantly demands money. How do I put an end to his mooching?](https://finance.yahoo.com/news/m-guilty-helping-too-much-232400005.html)
-- Aug 25 - [Mark Cuban Responds To Kamala Harris' Economic Plan With Dozens of Tweets, Says She Didn't Mention Price Caps Or Price Controls](https://finance.yahoo.com/news/mark-cuban-responds-kamala-harris-180016877.html)
-- Aug 25 - [Hamas says it rejects new Israeli conditions in Gaza ceasefire talks](https://www.yahoo.com/news/hamas-says-rejects-israeli-conditions-173658405.html)
-- Aug 25 - [‘Extremely disappointing’: Last day of McConnell airshow canceled because of severe weather](https://www.yahoo.com/news/extremely-disappointing-last-day-mcconnell-170534749.html)
-- Aug 25 - [Hezbollah attack on Israel was delayed to give Gaza cease-fire talks a chance, Nasrallah says](https://www.yahoo.com/news/hezbollah-attack-israel-delayed-gaza-164941743.html)
+- Aug 25 - [Famed Coney Island Cyclone roller coaster is shut down after mid-ride malfunction](https://www.yahoo.com/news/famed-coney-island-cyclone-roller-180551574.html)
+- Aug 25 - [Stranded Brazilian Couple Have Emotional Reunion With Family After Rescue From Chilean Andes](https://www.yahoo.com/news/stranded-brazilian-couple-emotional-reunion-174128004.html)
+- Aug 25 - [American rapper Macklemore says he canceled Dubai show over UAE arming Sudan paramilitary forces](https://www.yahoo.com/news/american-rapper-macklemore-says-canceled-155822798.html)
 <!-- feed end -->
 
 ### Onstream
