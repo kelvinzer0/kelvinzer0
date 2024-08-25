@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Rep. John Curtis leads Caroline Gleich by more than 30 percentage points in new Senate poll](https://www.yahoo.com/news/rep-john-curtis-leads-caroline-012921394.html)
 - Aug 24 - [Commanders take down Sean Taylor memorial after criticism, working on replacement statue](https://sports.yahoo.com/commanders-take-down-sean-taylor-memorial-after-criticism-working-on-replacement-statue-205254966.html)
-- Aug 24 - [NASA says astronauts stuck in space will not return on Boeing capsule, will wait for SpaceX craft](https://www.yahoo.com/news/nasa-says-astronauts-stuck-space-171540497.html)
-- Aug 24 - [MSNBC Compares JD Vance’s ‘Awkward’ Donut Order With Tim Walz at a Sandwich Shop: ‘Suffering from Vicarious Embarrassment’ | Video](https://www.yahoo.com/news/msnbc-compares-jd-vance-awkward-193938582.html)
 - Aug 24 - [NASA decision against using a Boeing capsule to bring astronauts back adds to company's problems](https://finance.yahoo.com/news/nasa-decision-against-using-boeing-185959095.html)
-- Aug 24 - [Ship captain who saw Mike Lynch’s yacht sink blames ‘extreme mast’](https://finance.yahoo.com/news/ship-captain-saw-mike-lynch-163942794.html)
+- Aug 24 - [Burning Man festivalgoers experience travel headaches again due to rain](https://www.yahoo.com/news/burning-man-festivalgoers-experience-travel-175752649.html)
+- Aug 24 - [Watch: Black bear approaches girl, grabs her leg in ‘scary moment’](https://www.yahoo.com/news/watch-black-bear-approaches-girl-160155164.html)
 <!-- feed end -->
 
 ### Onstream
