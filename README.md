@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Ukraine's Zelenskiy says he would support India hosting second summit on peace](https://www.yahoo.com/news/ukraines-zelenskiy-says-support-india-115324994.html)
+- Aug 25 - [What the two Boeing Starliner astronauts will do in space until 2025](https://www.yahoo.com/news/boeing-starliner-astronauts-now-space-103217983.html)
 - Aug 25 - [New virus that causes ‘staggering disease’ discovered in US - and it can kill pet cats and those in the wild](https://www.yahoo.com/news/virus-causes-staggering-disease-discovered-205256547.html)
+- Aug 25 - [United executive said the new Airbus A321XLR will replace Boeing 757 routes and open new ones](https://www.yahoo.com/news/united-executive-said-airbus-a321xlr-111902628.html)
 - Aug 25 - [Tate brothers have luxury car collection confiscated by authorities](https://www.yahoo.com/news/tate-brothers-luxury-car-collection-104652896.html)
-- Aug 25 - [Boeing Starliner’s astronauts will now be in space until 2025. Here’s what they’ll do](https://www.yahoo.com/news/boeing-starliner-astronauts-now-space-103217983.html)
 - Aug 25 - [5 people die in shelling of a Russian border region while Russian fire hits a hotel with reporters](https://www.yahoo.com/news/5-people-die-shelling-russian-102152324.html)
 <!-- feed end -->
 
