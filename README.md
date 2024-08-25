@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
 - Aug 25 - [British safety adviser killed in missile strike on hotel in Ukraine](https://www.yahoo.com/news/reuters-journalist-missing-russian-strike-103311824.html)
-- Aug 25 - [I’m a Financial Expert: 6 Scam Red Flags — and How Much It Costs When We Fall for Them](https://finance.yahoo.com/news/m-financial-expert-6-scam-210415202.html)
-- Aug 25 - [Australian employees now have the right to ignore work emails, calls after hours](https://finance.yahoo.com/news/australian-employees-now-ignore-emails-210336852.html)
-- Aug 25 - [Nadhim Zahawi compares Tory infighting in government to Game of Thrones](https://www.yahoo.com/news/nadhim-zahawi-compares-tory-infighting-203347274.html)
-- Aug 25 - [Mark Cuban Responds To Kamala Harris' Economic Plan With Dozens of Tweets, Says She Didn't Mention Price Caps Or Price Controls](https://finance.yahoo.com/news/mark-cuban-responds-kamala-harris-180016877.html)
+- Aug 25 - [Kia Dealer Tricks Scammer Into Getting Arrested During Post-Purchase Congratulations Video](https://autos.yahoo.com/kia-dealer-tricks-scammer-getting-201325135.html)
+- Aug 25 - [Don't get tricked: How to check if your Social Security number was part of data breach](https://www.yahoo.com/news/dont-tricked-check-social-security-193623199.html)
+- Aug 25 - [‘I’m guilty of helping too much’: My married adult son constantly demands money. How do I put an end to his mooching?](https://finance.yahoo.com/news/m-guilty-helping-too-much-232400005.html)
 <!-- feed end -->
 
 ### Onstream
