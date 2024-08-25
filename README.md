@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Opinion | How I’ve been convincing Christians they don’t have to vote Republican](https://www.yahoo.com/news/opinion-ve-convincing-christians-don-105711521.html)
+- Aug 25 - [‘We took a loan to pay off credit cards — and we maxed them out again': Couple drowns in $100k credit card debt, hubby can't stop spending. Ramit Sethi responds](https://finance.yahoo.com/news/took-loan-pay-off-credit-101600410.html)
 - Aug 25 - [Russia's Medvedev says Durov miscalculated by fleeing Russia](https://www.yahoo.com/news/russias-medvedev-says-durov-miscalculated-082822047.html)
-- Aug 25 - [What to expect from the new Boeing 777-9 – the world’s longest and widest passenger plane](https://www.yahoo.com/news/expect-boeing-777-9-world-070000356.html)
-- Aug 25 - [China slams US for adding firms to export control list, vows action](https://www.yahoo.com/news/china-slams-us-adding-firms-044715890.html)
-- Aug 25 - [‘They told me to strip.’ Former Palestinian detainee says he was sexually abused in an Israeli prison](https://www.yahoo.com/news/told-strip-former-palestinian-detainee-040003390.html)
-- Aug 25 - [Ex-FBI agent killed in EPISD Police shooting](https://www.yahoo.com/news/ex-fbi-agent-killed-episd-035715362.html)
+- Aug 25 - [Israel stages heavy airstrikes on Lebanon as Hezbollah launches attack over slain top commander](https://www.yahoo.com/news/israel-stages-heavy-airstrikes-lebanon-080301898.html)
+- Aug 25 - [Déjà Vu: Is Ford Repeating One of Its Biggest Mistakes?](https://finance.yahoo.com/news/d-j-vu-ford-repeating-073100050.html)
 <!-- feed end -->
 
 ### Onstream
