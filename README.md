@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Telegram messaging app CEO Durov arrested in France, French media say](https://finance.yahoo.com/news/telegram-messaging-app-ceo-pavel-212228924.html)
 - Aug 24 - [Commanders take down Sean Taylor memorial after criticism, working on replacement statue](https://sports.yahoo.com/commanders-take-down-sean-taylor-memorial-after-criticism-working-on-replacement-statue-205254966.html)
-- Aug 24 - [NASA says astronauts stuck in space will not return on Boeing capsule, will wait for SpaceX craft](https://www.yahoo.com/news/nasa-says-astronauts-stuck-space-171540497.html)
-- Aug 24 - [A woman got tired of her mail getting stolen. She sent herself an Apple AirTag to help catch the thieves](https://www.yahoo.com/news/woman-got-tired-her-mail-195318928.html)
+- Aug 24 - [Biker survives in Idaho wilderness for five days by drinking creek water after crash](https://www.yahoo.com/news/biker-survives-idaho-wilderness-five-194310043.html)
 - Aug 24 - [MSNBC Compares JD Vance’s ‘Awkward’ Donut Order With Tim Walz at a Sandwich Shop: ‘Suffering from Vicarious Embarrassment’ | Video](https://www.yahoo.com/news/msnbc-compares-jd-vance-awkward-193938582.html)
+- Aug 24 - [Alabama high school football player dies after suffering head injury during game](https://www.yahoo.com/news/alabama-high-school-football-player-165949725.html)
+- Aug 24 - [Ship captain who saw Mike Lynch’s yacht sink blames ‘extreme mast’](https://finance.yahoo.com/news/ship-captain-saw-mike-lynch-163942794.html)
 <!-- feed end -->
 
 ### Onstream
