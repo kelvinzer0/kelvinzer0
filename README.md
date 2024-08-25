@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Hezbollah attack on Israel was delayed to give Gaza cease-fire talks a chance, Nasrallah says](https://www.yahoo.com/news/hezbollah-attack-israel-delayed-gaza-164941743.html)
+- Aug 25 - [Kari Lake urged to get off the stage at Arizona Trump rally: ‘Wrap asap’](https://www.yahoo.com/news/kari-lake-urged-off-stage-171719451.html)
+- Aug 25 - [Royal Mint abandons £4m worth of unwanted copper coins](https://www.yahoo.com/news/royal-mint-abandons-4m-worth-165338919.html)
+- Aug 25 - [American rapper Macklemore says he canceled Dubai show over UAE arming Sudan paramilitary forces](https://www.yahoo.com/news/american-rapper-macklemore-says-canceled-155822798.html)
 - Aug 25 - [Gen. McMaster’s blistering account of the Trump White House](https://www.yahoo.com/news/gen-mcmaster-blistering-account-trump-150002475.html)
-- Aug 25 - [Republican group cites notorious Dred Scott ruling as reason Kamala Harris can’t be president](https://www.yahoo.com/news/republican-group-cites-notorious-dred-165051676.html)
-- Aug 25 - [A New York man died while on a solo trip to Colombia. It took his grieving mother 5 months to learn what happened](https://www.yahoo.com/news/york-man-died-while-solo-120002510.html)
-- Aug 25 - [What the two Boeing Starliner astronauts will do in space until 2025](https://www.yahoo.com/news/boeing-starliner-astronauts-now-space-103217983.html)
+- Aug 25 - [JD Vance’s Neighbors Erupt After Secret Service Closes Park](https://www.yahoo.com/news/jd-vance-neighbors-erupt-secret-133257571.html)
 <!-- feed end -->
 
 ### Onstream
