@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Israel stages heavy airstrikes on Lebanon as Hezbollah launches attack over slain top commander](https://www.yahoo.com/news/israel-stages-heavy-airstrikes-lebanon-080301898.html)
 - Aug 25 - [What to expect from the new Boeing 777-9 – the world’s longest and widest passenger plane](https://www.yahoo.com/news/expect-boeing-777-9-world-070000356.html)
 - Aug 25 - [This bird species was extinct in Europe. Now it's back, and humans must help it migrate for winter](https://www.yahoo.com/news/bird-species-extinct-europe-now-062803807.html)
-- Aug 25 - [A Sacramento woman died at the hospital. Her family, unaware, ​searched for her for more than a year​​](https://www.yahoo.com/news/sacramento-woman-died-hospital-her-060007952.html)
+- Aug 25 - [Israel launches strikes against Hezbollah in Lebanon](https://www.yahoo.com/news/israel-launches-strikes-against-hezbollah-052157237.html)
 - Aug 25 - [China slams US for adding firms to export control list, vows action](https://www.yahoo.com/news/china-slams-us-adding-firms-044715890.html)
+- Aug 25 - [Rep. John Curtis leads Caroline Gleich by more than 30 percentage points in new Senate poll](https://www.yahoo.com/news/rep-john-curtis-leads-caroline-012921394.html)
 <!-- feed end -->
 
 ### Onstream
