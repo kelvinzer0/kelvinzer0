@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Peloton vs. Barry's: Which fitness brand holds more value?](https://finance.yahoo.com/video/peloton-vs-barrys-fitness-brand-143014080.html)
+- Aug 25 - [Sen. Warren says ‘women are not stupid’ as JD Vance says Trump won’t ban abortion: Full interview](https://www.yahoo.com/news/sen-warren-says-women-not-134648466.html)
+- Aug 25 - [JD Vance’s Neighbors Erupt After Secret Service Closes Park](https://www.yahoo.com/news/jd-vance-neighbors-erupt-secret-133257571.html)
 - Aug 25 - [The #1 Thing to Avoid If You Have High Blood Pressure, According to Dietitians](https://www.yahoo.com/lifestyle/1-thing-avoid-high-blood-130000126.html)
-- Aug 25 - [Valley commuters told ‘nothing’ of California dam project’s freeway impacts | Opinion](https://www.yahoo.com/news/valley-commuters-told-nothing-california-123000319.html)
-- Aug 25 - [What the two Boeing Starliner astronauts will do in space until 2025](https://www.yahoo.com/news/boeing-starliner-astronauts-now-space-103217983.html)
-- Aug 25 - [Walz’s exit from Minnesota National Guard left openings for critics to pounce on his military record](https://www.yahoo.com/news/walz-exit-minnesota-national-guard-114824579.html)
-- Aug 25 - [Tate brothers have luxury car collection confiscated by authorities](https://www.yahoo.com/news/tate-brothers-luxury-car-collection-104652896.html)
+- Aug 25 - [A New York man died while on a solo trip to Colombia. It took his grieving mother 5 months to learn what happened](https://www.yahoo.com/news/york-man-died-while-solo-120002510.html)
 <!-- feed end -->
 
 ### Onstream
