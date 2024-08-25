@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Opinion | How I’ve been convincing Christians they don’t have to vote Republican](https://www.yahoo.com/news/opinion-ve-convincing-christians-don-105711521.html)
-- Aug 25 - [‘We took a loan to pay off credit cards — and we maxed them out again': Couple drowns in $100k credit card debt, hubby can't stop spending. Ramit Sethi responds](https://finance.yahoo.com/news/took-loan-pay-off-credit-101600410.html)
-- Aug 25 - [Russia's Medvedev says Durov miscalculated by fleeing Russia](https://www.yahoo.com/news/russias-medvedev-says-durov-miscalculated-082822047.html)
-- Aug 25 - [Israel stages heavy airstrikes on Lebanon as Hezbollah launches attack over slain top commander](https://www.yahoo.com/news/israel-stages-heavy-airstrikes-lebanon-080301898.html)
-- Aug 25 - [Déjà Vu: Is Ford Repeating One of Its Biggest Mistakes?](https://finance.yahoo.com/news/d-j-vu-ford-repeating-073100050.html)
+- Aug 25 - [Ukraine's Zelenskiy says he would support India hosting second summit on peace](https://www.yahoo.com/news/ukraines-zelenskiy-says-support-india-115324994.html)
+- Aug 25 - [New virus that causes ‘staggering disease’ discovered in US - and it can kill pet cats and those in the wild](https://www.yahoo.com/news/virus-causes-staggering-disease-discovered-205256547.html)
+- Aug 25 - [Tate brothers have luxury car collection confiscated by authorities](https://www.yahoo.com/news/tate-brothers-luxury-car-collection-104652896.html)
+- Aug 25 - [Boeing Starliner’s astronauts will now be in space until 2025. Here’s what they’ll do](https://www.yahoo.com/news/boeing-starliner-astronauts-now-space-103217983.html)
+- Aug 25 - [5 people die in shelling of a Russian border region while Russian fire hits a hotel with reporters](https://www.yahoo.com/news/5-people-die-shelling-russian-102152324.html)
 <!-- feed end -->
 
 ### Onstream
