@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [The #1 Thing to Avoid If You Have High Blood Pressure, According to Dietitians](https://www.yahoo.com/lifestyle/1-thing-avoid-high-blood-130000126.html)
+- Aug 25 - [Valley commuters told ‘nothing’ of California dam project’s freeway impacts | Opinion](https://www.yahoo.com/news/valley-commuters-told-nothing-california-123000319.html)
 - Aug 25 - [What the two Boeing Starliner astronauts will do in space until 2025](https://www.yahoo.com/news/boeing-starliner-astronauts-now-space-103217983.html)
-- Aug 25 - [New virus that causes ‘staggering disease’ discovered in US - and it can kill pet cats and those in the wild](https://www.yahoo.com/news/virus-causes-staggering-disease-discovered-205256547.html)
-- Aug 25 - [United executive said the new Airbus A321XLR will replace Boeing 757 routes and open new ones](https://www.yahoo.com/news/united-executive-said-airbus-a321xlr-111902628.html)
+- Aug 25 - [Walz’s exit from Minnesota National Guard left openings for critics to pounce on his military record](https://www.yahoo.com/news/walz-exit-minnesota-national-guard-114824579.html)
 - Aug 25 - [Tate brothers have luxury car collection confiscated by authorities](https://www.yahoo.com/news/tate-brothers-luxury-car-collection-104652896.html)
-- Aug 25 - [5 people die in shelling of a Russian border region while Russian fire hits a hotel with reporters](https://www.yahoo.com/news/5-people-die-shelling-russian-102152324.html)
 <!-- feed end -->
 
 ### Onstream
