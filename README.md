@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Russia's Medvedev says Durov miscalculated by fleeing Russia](https://www.yahoo.com/news/russias-medvedev-says-durov-miscalculated-082822047.html)
 - Aug 25 - [What to expect from the new Boeing 777-9 – the world’s longest and widest passenger plane](https://www.yahoo.com/news/expect-boeing-777-9-world-070000356.html)
-- Aug 25 - [This bird species was extinct in Europe. Now it's back, and humans must help it migrate for winter](https://www.yahoo.com/news/bird-species-extinct-europe-now-062803807.html)
-- Aug 25 - [Israel launches strikes against Hezbollah in Lebanon](https://www.yahoo.com/news/israel-launches-strikes-against-hezbollah-052157237.html)
 - Aug 25 - [China slams US for adding firms to export control list, vows action](https://www.yahoo.com/news/china-slams-us-adding-firms-044715890.html)
-- Aug 25 - [Rep. John Curtis leads Caroline Gleich by more than 30 percentage points in new Senate poll](https://www.yahoo.com/news/rep-john-curtis-leads-caroline-012921394.html)
+- Aug 25 - [‘They told me to strip.’ Former Palestinian detainee says he was sexually abused in an Israeli prison](https://www.yahoo.com/news/told-strip-former-palestinian-detainee-040003390.html)
+- Aug 25 - [Ex-FBI agent killed in EPISD Police shooting](https://www.yahoo.com/news/ex-fbi-agent-killed-episd-035715362.html)
 <!-- feed end -->
 
 ### Onstream
