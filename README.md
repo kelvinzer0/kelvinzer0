@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Nvidia Rival, These AI Stocks Lead S&P 500 Losers Monday](https://www.investors.com/market-trend/stock-market-today/nvidia-rival-amd-ai-stocks-lead-sp-500-losers-monday/?src=A00220&yptr=yahoo)
+- Aug 26 - [Paralympic flame stops at Paris ceremony marking WWII liberation](https://www.yahoo.com/news/paralympic-flame-stops-paris-ceremony-212836575.html)
+- Aug 26 - [Apple taps insider Kevan Parekh as CFO, replacing Maestri](https://finance.yahoo.com/news/apple-finance-chief-luca-maestri-203812622.html)
 - Aug 26 - [Unusually cold storm that frosted West Coast peaks provided a hint of winter in August](https://www.yahoo.com/news/unusually-cold-storm-frosted-west-201524267.html)
-- Aug 26 - [Alabama teen dies after head injury during high school football game](https://www.yahoo.com/news/alabama-teen-dies-head-injury-022958509.html)
-- Aug 26 - [As He Realized His Mistake, Elon Musk Begged Twitter Staff to Turn Off the New Feature He'd Pushed For](https://finance.yahoo.com/news/realized-mistake-elon-musk-begged-193400034.html)
-- Aug 26 - [‘I’m starting to worry’: I’ve got $1.2 million in a 401(k). How do I save more for retirement without buying stocks or real estate?](https://finance.yahoo.com/news/m-starting-worry-ve-got-122400596.html)
+- Aug 26 - [Tulsi Gabbard, who ran for 2020 Democratic nomination, endorses Trump against former foe Harris](https://www.yahoo.com/news/tulsi-gabbard-ran-2020-democratic-191119149.html)
+- Aug 26 - [China fast-fashion retailer Temu soared like a rocket for two years—in just a few hours, its parent company lost more than $50 billion in market value](https://finance.yahoo.com/news/china-fast-fashion-retailer-temu-184915274.html)
 <!-- feed end -->
 
 ### Onstream
