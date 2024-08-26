@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Is Mastercard Incorporated (MA) A Good Dividend Stock According to Warren Buffett?](https://finance.yahoo.com/news/mastercard-incorporated-ma-good-dividend-105607456.html)
-- Aug 26 - [Nvidia Q2 sales likely to double, even a slight miss may hurt shares](https://finance.yahoo.com/news/nvidia-q2-sales-likely-double-100257216.html)
-- Aug 26 - [Flight Attendants Are Sharing The Food And Drinks You Should Avoid On A Plane, And You've Probably Had At Least One Of Them Before](https://www.yahoo.com/lifestyle/flight-attendants-sharing-food-drinks-091502175.html)
-- Aug 26 - [Your ZIP code may determine your dementia diagnosis, study finds](https://www.yahoo.com/news/zip-code-may-determine-dementia-080002564.html)
-- Aug 26 - [Millions in this country are stranded by flooding. Many blame their neighbor](https://www.yahoo.com/news/millions-country-stranded-flooding-many-055951247.html)
+- Aug 26 - [Videos of Russian soldiers appearing to surrender en masse suggest inexperience and desperation, experts say](https://www.yahoo.com/news/videos-russian-soldiers-appearing-surrender-121202985.html)
+- Aug 26 - [Gambling? Nudists? What was going on behind the 8-foot fence in Edmond?](https://www.yahoo.com/news/gambling-nudists-going-behind-8-110155105.html)
+- Aug 26 - [Retiring Early With $3 Million: What to Expect When You Stop Working](https://finance.yahoo.com/news/retire-45-3-million-140043549.html)
+- Aug 26 - [Scientists sound alarm over invasive species wreaking havoc in local forests: 'There's something geographic about that area that makes it more susceptible'](https://www.yahoo.com/news/scientists-sound-alarm-over-invasive-103054952.html)
+- Aug 26 - [Kremlin says there will be a response to Ukraine's Kursk attack](https://www.yahoo.com/news/kremlin-says-response-ukraines-kursk-100808381.html)
 <!-- feed end -->
 
 ### Onstream
