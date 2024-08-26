@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Old US Bradleys becoming 'legend' in Ukraine shows what the country can do when it gets enough of the weapons it needs](https://www.yahoo.com/news/old-us-bradleys-becoming-legend-091801778.html)
-- Aug 26 - [How North Palm Beach is growing: Twin City Mall plan calls for smaller buildings on U.S. 1](https://www.yahoo.com/news/north-palm-beach-growing-twin-091145581.html)
+- Aug 26 - [Here's Why Nvidia Surpasses AMD as the Optimal Choice for Artificial Intelligence (AI) Investors](https://finance.yahoo.com/news/heres-why-nvidia-surpasses-amd-103000742.html)
+- Aug 26 - [Editorial: Time to move past rueful chuckles about Chicago and Illinois’ corrupt and damaging ways](https://www.yahoo.com/news/editorial-time-move-past-rueful-100500295.html)
 - Aug 26 - ['Coward': Critics Mock Trump After Late-Night Freakout Over Kamala Harris Debate](https://www.yahoo.com/news/coward-critics-mock-trump-night-085319434.html)
 - Aug 26 - [Millions in this country are stranded by flooding. Many blame their neighbor](https://www.yahoo.com/news/millions-country-stranded-flooding-many-055951247.html)
-- Aug 26 - [Russia unleashes a massive drone and missile attack on Ukraine. At least 3 people are killed](https://www.yahoo.com/news/russia-unleashes-massive-drone-missile-065501799.html)
+- Aug 26 - [Ukraine's president says Russian overnight attack involved over 100 missiles and about 100 drones](https://www.yahoo.com/news/russia-unleashes-massive-drone-missile-065501799.html)
 <!-- feed end -->
 
 ### Onstream
