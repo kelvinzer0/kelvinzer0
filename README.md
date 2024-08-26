@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Home damaged in northern Israel town after rocket and drone fire from Hezbollah](https://www.yahoo.com/news/home-damaged-northern-israel-town-020504966.html)
-- Aug 26 - [Tanker Carrying Sanctioned Russian LNG Attempting Ship Transfer](https://finance.yahoo.com/news/tanker-carrying-sanctioned-russian-lng-020048983.html)
+- Aug 26 - [People Are Sharing The Moment They Realized They Were Absolutely Getting Fired, And It's Even Worse Than You Think](https://www.yahoo.com/entertainment/people-sharing-moment-realized-were-001602021.html)
 - Aug 25 - [Fire breaks out underneath restaurant on SLO County pier](https://www.yahoo.com/news/fire-breaks-underneath-restaurant-slo-223429945.html)
 - Aug 25 - [Fire at Rivian's Illinois plant damages multiple EVs, no injuries reported](https://finance.yahoo.com/news/fire-rivians-illinois-plant-damages-220223751.html)
+- Aug 25 - [Las Vegas garage fire kills 6 cats, causes $100K damage: officials](https://www.yahoo.com/news/las-vegas-garage-fire-kills-212247942.html)
 - Aug 25 - [5 dead in apparent murder-suicide on Long Island](https://www.yahoo.com/news/5-dead-apparent-murder-suicide-210230342.html)
 <!-- feed end -->
 
