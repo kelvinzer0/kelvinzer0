@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Will Kroger and Albertsons be allowed to merge? Here's what to know.](https://finance.yahoo.com/news/kroger-albertsons-allowed-merge-heres-164627305.html)
+- Aug 26 - [Trump appears to undercut his campaign’s efforts over microphone rules at debate](https://www.yahoo.com/news/trump-campaign-casts-fresh-doubt-120415633.html)
+- Aug 26 - [What does a Nashville Air Quality Alert mean? Nashville area under a code orange Monday](https://www.yahoo.com/news/does-nashville-air-quality-alert-162129081.html)
+- Aug 26 - [Man arrested on suspicion of murdering woman in Derry](https://www.yahoo.com/news/derry-murder-victim-montserrat-martorell-131408414.html)
 - Aug 26 - [Telegram Says It Is Compliant With EU Laws; India’s CBDC Pilot Attracts 5M Users](https://finance.yahoo.com/video/telegram-says-compliant-eu-laws-160503140.html)
-- Aug 26 - [German energy company tests underground hydrogen storage facility](https://www.yahoo.com/news/german-energy-company-tests-underground-151130712.html)
-- Aug 26 - [Ancient viral genomes preserved in glaciers reveal the history of Earth’s climate – and how viruses adapt to climate change](https://www.yahoo.com/news/ancient-viral-genomes-preserved-glaciers-150337104.html)
-- Aug 26 - ["Proving them wrong": After raising minimum wage, California has more fast-food jobs than ever](https://www.yahoo.com/news/proving-them-wrong-raising-minimum-145603710.html)
-- Aug 26 - [Seafood restaurant closing 23 stores across the country, including this one near Columbia](https://finance.yahoo.com/news/seafood-restaurant-closing-23-stores-144645145.html)
 <!-- feed end -->
 
 ### Onstream
