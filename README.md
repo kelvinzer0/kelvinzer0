@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Home damaged in northern Israel town after rocket and drone fire from Hezbollah](https://www.yahoo.com/news/home-damaged-northern-israel-town-020504966.html)
+- Aug 26 - [Tanker Carrying Sanctioned Russian LNG Attempting Ship Transfer](https://finance.yahoo.com/news/tanker-carrying-sanctioned-russian-lng-020048983.html)
+- Aug 25 - [Fire breaks out underneath restaurant on SLO County pier](https://www.yahoo.com/news/fire-breaks-underneath-restaurant-slo-223429945.html)
 - Aug 25 - [Fire at Rivian's Illinois plant damages multiple EVs, no injuries reported](https://finance.yahoo.com/news/fire-rivians-illinois-plant-damages-220223751.html)
-- Aug 25 - [Floss before brushing, eat prunes and  7 more tips to upgrade your health this week](https://www.yahoo.com/lifestyle/floss-before-brushing-eat-prunes-and-7-more-tips-to-upgrade-your-health-this-week-190054965.html)
-- Aug 25 - [‘I’m guilty of helping too much’: My married adult son constantly demands money. How do I put an end to his mooching?](https://finance.yahoo.com/news/m-guilty-helping-too-much-232400005.html)
-- Aug 25 - [Several people shot in fatal Sacramento shooting, police say](https://www.yahoo.com/news/several-people-shot-fatal-sacramento-182728545.html)
-- Aug 25 - [Kari Lake urged to get off the stage at Arizona Trump rally: ‘Wrap asap’](https://www.yahoo.com/news/kari-lake-urged-off-stage-171719451.html)
+- Aug 25 - [5 dead in apparent murder-suicide on Long Island](https://www.yahoo.com/news/5-dead-apparent-murder-suicide-210230342.html)
 <!-- feed end -->
 
 ### Onstream
