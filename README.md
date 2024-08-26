@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 26 - [People Are Sharing The Moment They Realized They Were Absolutely Getting Fired, And It's Even Worse Than You Think](https://www.yahoo.com/entertainment/people-sharing-moment-realized-were-001602021.html)
-- Aug 25 - [Fire breaks out underneath restaurant on SLO County pier](https://www.yahoo.com/news/fire-breaks-underneath-restaurant-slo-223429945.html)
 - Aug 25 - [Fire at Rivian's Illinois plant damages multiple EVs, no injuries reported](https://finance.yahoo.com/news/fire-rivians-illinois-plant-damages-220223751.html)
-- Aug 25 - [Las Vegas garage fire kills 6 cats, causes $100K damage: officials](https://www.yahoo.com/news/las-vegas-garage-fire-kills-212247942.html)
 - Aug 25 - [5 dead in apparent murder-suicide on Long Island](https://www.yahoo.com/news/5-dead-apparent-murder-suicide-210230342.html)
+- Aug 25 - [McDonald's Is Testing a New Burger That Could Be the Next Big Mac](https://www.yahoo.com/lifestyle/mcdonalds-testing-burger-could-next-204758670.html)
+- Aug 25 - [Don't get tricked: How to check if your Social Security number was part of data breach](https://www.yahoo.com/news/dont-tricked-check-social-security-193623199.html)
 <!-- feed end -->
 
 ### Onstream
