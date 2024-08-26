@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [North Korean missile launchers able to target deep into South, Yonhap reports](https://www.yahoo.com/news/north-korean-missile-launchers-able-055603691.html)
-- Aug 26 - [Utah judge to decide if author of children's book on grief will face trial in her husband's death](https://www.yahoo.com/news/utah-judge-decide-author-childrens-052101734.html)
-- Aug 26 - [Gunmen kill 23 passengers taken from vehicles in an attack in southwest Pakistan](https://www.yahoo.com/news/gunmen-kill-23-passengers-taken-050237781.html)
-- Aug 26 - [SEA Airport still reeling, a day after suspected cyberattack on Port of Seattle](https://www.yahoo.com/news/sea-airport-still-reeling-day-035516477.html)
-- Aug 26 - [Evacuees queue to receive aid in Kursk amid incursion by Ukraine](https://www.yahoo.com/news/evacuees-queue-receive-aid-kursk-031603164.html)
+- Aug 26 - [Trump Picked Worst Possible Spot For New Border Wall Stunt](https://www.yahoo.com/news/trump-picked-worst-possible-spot-061822289.html)
+- Aug 26 - [Russian forces close in on key Ukrainian city of Pokrovsk. But fleeing is hard – even for those who can afford it](https://www.yahoo.com/news/russian-forces-close-key-ukrainian-061403648.html)
+- Aug 26 - [Millions in this country are stranded by flooding. Many blame their neighbor](https://www.yahoo.com/news/millions-country-stranded-flooding-many-055951247.html)
+- Aug 26 - [US national parks are receiving record-high gift of $100M](https://www.yahoo.com/news/us-national-parks-receiving-record-040649685.html)
+- Aug 26 - [Israel-Hamas war latest: Iran's foreign minister vows 'definitive' retaliation against Israel](https://www.yahoo.com/news/israel-hamas-war-latest-irans-032123629.html)
 <!-- feed end -->
 
 ### Onstream
