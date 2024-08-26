@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Mothers of children killed in a school shooting brought their ashes to court — but justice was still denied](https://www.yahoo.com/news/kids-were-slaughtered-during-art-114801552.html)
-- Aug 26 - [Tulsi Gabbard, who ran for 2020 Democratic nomination, endorses Trump against former foe Harris](https://www.yahoo.com/news/tulsi-gabbard-ran-2020-democratic-191119149.html)
-- Aug 26 - [Released Hamas hostage says she wants to ‘dance again’ with kidnapped boyfriend](https://www.yahoo.com/news/released-hamas-hostage-says-she-182320323.html)
-- Aug 26 - [Former billionaire John Foley says he lost all his money and had to sell 'almost everything' after losing the Peloton CEO job](https://www.yahoo.com/tech/former-billionaire-john-foley-says-181933050.html)
-- Aug 26 - ['The tropics are broken:' So where are all the Atlantic hurricanes?](https://www.yahoo.com/news/tropics-broken-where-atlantic-hurricanes-181918693.html)
+- Aug 26 - [Nvidia Rival, These AI Stocks Lead S&P 500 Losers Monday](https://www.investors.com/market-trend/stock-market-today/nvidia-rival-amd-ai-stocks-lead-sp-500-losers-monday/?src=A00220&yptr=yahoo)
+- Aug 26 - [Unusually cold storm that frosted West Coast peaks provided a hint of winter in August](https://www.yahoo.com/news/unusually-cold-storm-frosted-west-201524267.html)
+- Aug 26 - [Alabama teen dies after head injury during high school football game](https://www.yahoo.com/news/alabama-teen-dies-head-injury-022958509.html)
+- Aug 26 - [As He Realized His Mistake, Elon Musk Begged Twitter Staff to Turn Off the New Feature He'd Pushed For](https://finance.yahoo.com/news/realized-mistake-elon-musk-begged-193400034.html)
+- Aug 26 - [‘I’m starting to worry’: I’ve got $1.2 million in a 401(k). How do I save more for retirement without buying stocks or real estate?](https://finance.yahoo.com/news/m-starting-worry-ve-got-122400596.html)
 <!-- feed end -->
 
 ### Onstream
