@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [7 Worst States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/7-worst-states-buy-property-140044720.html)
-- Aug 25 - [British safety adviser killed in missile strike on hotel in Ukraine](https://www.yahoo.com/news/reuters-journalist-missing-russian-strike-103311824.html)
-- Aug 25 - [Kia Dealer Tricks Scammer Into Getting Arrested During Post-Purchase Congratulations Video](https://autos.yahoo.com/kia-dealer-tricks-scammer-getting-201325135.html)
-- Aug 25 - [Don't get tricked: How to check if your Social Security number was part of data breach](https://www.yahoo.com/news/dont-tricked-check-social-security-193623199.html)
+- Aug 25 - [Fire at Rivian's Illinois plant damages multiple EVs, no injuries reported](https://finance.yahoo.com/news/fire-rivians-illinois-plant-damages-220223751.html)
+- Aug 25 - [Floss before brushing, eat prunes and  7 more tips to upgrade your health this week](https://www.yahoo.com/lifestyle/floss-before-brushing-eat-prunes-and-7-more-tips-to-upgrade-your-health-this-week-190054965.html)
 - Aug 25 - [‘I’m guilty of helping too much’: My married adult son constantly demands money. How do I put an end to his mooching?](https://finance.yahoo.com/news/m-guilty-helping-too-much-232400005.html)
+- Aug 25 - [Several people shot in fatal Sacramento shooting, police say](https://www.yahoo.com/news/several-people-shot-fatal-sacramento-182728545.html)
+- Aug 25 - [Kari Lake urged to get off the stage at Arizona Trump rally: ‘Wrap asap’](https://www.yahoo.com/news/kari-lake-urged-off-stage-171719451.html)
 <!-- feed end -->
 
 ### Onstream
