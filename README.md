@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Paralympic flame stops at Paris ceremony marking WWII liberation](https://www.yahoo.com/news/paralympic-flame-stops-paris-ceremony-212836575.html)
-- Aug 26 - [Apple taps insider Kevan Parekh as CFO, replacing Maestri](https://finance.yahoo.com/news/apple-finance-chief-luca-maestri-203812622.html)
-- Aug 26 - [Unusually cold storm that frosted West Coast peaks provided a hint of winter in August](https://www.yahoo.com/news/unusually-cold-storm-frosted-west-201524267.html)
-- Aug 26 - [Tulsi Gabbard, who ran for 2020 Democratic nomination, endorses Trump against former foe Harris](https://www.yahoo.com/news/tulsi-gabbard-ran-2020-democratic-191119149.html)
-- Aug 26 - [China fast-fashion retailer Temu soared like a rocket for two years—in just a few hours, its parent company lost more than $50 billion in market value](https://finance.yahoo.com/news/china-fast-fashion-retailer-temu-184915274.html)
+- Aug 26 - [Death of female participant at Burning Man 2024 under investigation](https://www.yahoo.com/news/death-female-participant-burning-man-143735280.html)
+- Aug 26 - [Nvidia Rival, These AI Stocks Lead S&P 500 Losers Monday](https://www.investors.com/market-trend/stock-market-today/nvidia-rival-amd-ai-stocks-lead-sp-500-losers-monday/?src=A00220&yptr=yahoo)
+- Aug 26 - [Illinois Supreme Court sides with GOP, upholds unconstitutionality of ban on slating candidates](https://www.yahoo.com/news/illinois-supreme-court-sides-gop-222100610.html)
+- Aug 26 - [SpaceX marks milestone with billionaire's space walk, first by private citizen. What to know](https://www.yahoo.com/news/spacex-marks-milestone-billionaires-space-221944254.html)
+- Aug 26 - [Body of man who went missing while on vacation believed to have been found](https://www.yahoo.com/news/body-man-went-missing-while-212911861.html)
 <!-- feed end -->
 
 ### Onstream
