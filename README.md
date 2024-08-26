@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Mississippi ex-deputy seeks shorter sentence in racist torture of 2 Black men](https://www.yahoo.com/news/mississippi-ex-deputy-seeks-shorter-174524997.html)
+- Aug 26 - [How Much Will Nvidia Pay Out in Dividends This Year](https://finance.yahoo.com/news/much-nvidia-pay-dividends-185652092.html)
+- Aug 26 - [Tennessee Republican leaders threaten to withhold funds as Memphis preps to put guns on the ballot](https://www.yahoo.com/news/tennessee-republican-leaders-threaten-withhold-182840490.html)
+- Aug 26 - [Released Hamas hostage says she wants to ‘dance again’ with kidnapped boyfriend](https://www.yahoo.com/news/released-hamas-hostage-says-she-182320323.html)
+- Aug 26 - ['The tropics are broken:' So where are all the Atlantic hurricanes?](https://www.yahoo.com/news/tropics-broken-where-atlantic-hurricanes-181918693.html)
 - Aug 26 - [Biden adviser speaks ahead of China trip to manage complex US-China relations in final months](https://www.yahoo.com/news/biden-adviser-speaks-ahead-china-173722242.html)
-- Aug 26 - [SpaceX Plans to Drain All Air From Spacecraft While Astronauts Are Inside](https://www.yahoo.com/news/spacex-plans-drain-air-spacecraft-170133745.html)
-- Aug 26 - [FBI offers $5K reward for information about death of woman on New Mexico highway](https://www.yahoo.com/news/fbi-offers-5k-reward-information-165824008.html)
-- Aug 26 - [I-26 sections will be closed Aug. 26-28: What to know about detours, timing](https://www.yahoo.com/news/26-sections-closed-aug-26-163657483.html)
 <!-- feed end -->
 
 ### Onstream
