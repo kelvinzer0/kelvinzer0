@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [People Are Sharing The Moment They Realized They Were Absolutely Getting Fired, And It's Even Worse Than You Think](https://www.yahoo.com/entertainment/people-sharing-moment-realized-were-001602021.html)
-- Aug 25 - [Fire at Rivian's Illinois plant damages multiple EVs, no injuries reported](https://finance.yahoo.com/news/fire-rivians-illinois-plant-damages-220223751.html)
-- Aug 25 - [5 dead in apparent murder-suicide on Long Island](https://www.yahoo.com/news/5-dead-apparent-murder-suicide-210230342.html)
-- Aug 25 - [McDonald's Is Testing a New Burger That Could Be the Next Big Mac](https://www.yahoo.com/lifestyle/mcdonalds-testing-burger-could-next-204758670.html)
-- Aug 25 - [Don't get tricked: How to check if your Social Security number was part of data breach](https://www.yahoo.com/news/dont-tricked-check-social-security-193623199.html)
+- Aug 26 - [Body of woman swept away in Grand Canyon flash flood is found](https://www.yahoo.com/news/body-woman-swept-away-grand-044346001.html)
+- Aug 26 - [US national parks are receiving record-high gift of $100M](https://www.yahoo.com/news/us-national-parks-receiving-record-040649685.html)
+- Aug 26 - [Israel-Hamas war latest: Iran's foreign minister vows 'definitive' retaliation against Israel](https://www.yahoo.com/news/israel-hamas-war-latest-irans-032123629.html)
+- Aug 26 - [Evacuees queue to receive aid in Kursk amid incursion by Ukraine](https://www.yahoo.com/news/evacuees-queue-receive-aid-kursk-031603164.html)
+- Aug 25 - [Oil climbs on Mideast escalation fears, US rate cut expectations](https://finance.yahoo.com/news/oil-climbs-mideast-escalation-fears-232921089.html)
 <!-- feed end -->
 
 ### Onstream
