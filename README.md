@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Here's Why Nvidia Surpasses AMD as the Optimal Choice for Artificial Intelligence (AI) Investors](https://finance.yahoo.com/news/heres-why-nvidia-surpasses-amd-103000742.html)
-- Aug 26 - [Editorial: Time to move past rueful chuckles about Chicago and Illinois’ corrupt and damaging ways](https://www.yahoo.com/news/editorial-time-move-past-rueful-100500295.html)
-- Aug 26 - ['Coward': Critics Mock Trump After Late-Night Freakout Over Kamala Harris Debate](https://www.yahoo.com/news/coward-critics-mock-trump-night-085319434.html)
+- Aug 26 - [Is Mastercard Incorporated (MA) A Good Dividend Stock According to Warren Buffett?](https://finance.yahoo.com/news/mastercard-incorporated-ma-good-dividend-105607456.html)
+- Aug 26 - [Nvidia Q2 sales likely to double, even a slight miss may hurt shares](https://finance.yahoo.com/news/nvidia-q2-sales-likely-double-100257216.html)
+- Aug 26 - [Flight Attendants Are Sharing The Food And Drinks You Should Avoid On A Plane, And You've Probably Had At Least One Of Them Before](https://www.yahoo.com/lifestyle/flight-attendants-sharing-food-drinks-091502175.html)
+- Aug 26 - [Your ZIP code may determine your dementia diagnosis, study finds](https://www.yahoo.com/news/zip-code-may-determine-dementia-080002564.html)
 - Aug 26 - [Millions in this country are stranded by flooding. Many blame their neighbor](https://www.yahoo.com/news/millions-country-stranded-flooding-many-055951247.html)
-- Aug 26 - [Ukraine's president says Russian overnight attack involved over 100 missiles and about 100 drones](https://www.yahoo.com/news/russia-unleashes-massive-drone-missile-065501799.html)
 <!-- feed end -->
 
 ### Onstream
