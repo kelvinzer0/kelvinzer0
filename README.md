@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [I can't bring myself to vote for Trump. But let me tell you why other conservatives can.](https://www.yahoo.com/news/cant-bring-myself-vote-trump-080759801.html)
+- Aug 26 - [Old US Bradleys becoming 'legend' in Ukraine shows what the country can do when it gets enough of the weapons it needs](https://www.yahoo.com/news/old-us-bradleys-becoming-legend-091801778.html)
+- Aug 26 - [How North Palm Beach is growing: Twin City Mall plan calls for smaller buildings on U.S. 1](https://www.yahoo.com/news/north-palm-beach-growing-twin-091145581.html)
+- Aug 26 - ['Coward': Critics Mock Trump After Late-Night Freakout Over Kamala Harris Debate](https://www.yahoo.com/news/coward-critics-mock-trump-night-085319434.html)
 - Aug 26 - [Millions in this country are stranded by flooding. Many blame their neighbor](https://www.yahoo.com/news/millions-country-stranded-flooding-many-055951247.html)
 - Aug 26 - [Russia unleashes a massive drone and missile attack on Ukraine. At least 3 people are killed](https://www.yahoo.com/news/russia-unleashes-massive-drone-missile-065501799.html)
-- Aug 26 - [Trump Picked Worst Possible Spot For New Border Wall Stunt](https://www.yahoo.com/news/trump-picked-worst-possible-spot-061822289.html)
-- Aug 26 - [Utah judge to decide if author of children's book on grief will face trial in her husband's death](https://www.yahoo.com/news/utah-judge-decide-author-childrens-052101734.html)
 <!-- feed end -->
 
 ### Onstream
