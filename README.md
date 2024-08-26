@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Will Kroger and Albertsons be allowed to merge? Here's what to know.](https://finance.yahoo.com/news/kroger-albertsons-allowed-merge-heres-164627305.html)
-- Aug 26 - [Trump appears to undercut his campaign’s efforts over microphone rules at debate](https://www.yahoo.com/news/trump-campaign-casts-fresh-doubt-120415633.html)
-- Aug 26 - [What does a Nashville Air Quality Alert mean? Nashville area under a code orange Monday](https://www.yahoo.com/news/does-nashville-air-quality-alert-162129081.html)
-- Aug 26 - [Man arrested on suspicion of murdering woman in Derry](https://www.yahoo.com/news/derry-murder-victim-montserrat-martorell-131408414.html)
-- Aug 26 - [Telegram Says It Is Compliant With EU Laws; India’s CBDC Pilot Attracts 5M Users](https://finance.yahoo.com/video/telegram-says-compliant-eu-laws-160503140.html)
+- Aug 26 - [Mississippi ex-deputy seeks shorter sentence in racist torture of 2 Black men](https://www.yahoo.com/news/mississippi-ex-deputy-seeks-shorter-174524997.html)
+- Aug 26 - [Biden adviser speaks ahead of China trip to manage complex US-China relations in final months](https://www.yahoo.com/news/biden-adviser-speaks-ahead-china-173722242.html)
+- Aug 26 - [SpaceX Plans to Drain All Air From Spacecraft While Astronauts Are Inside](https://www.yahoo.com/news/spacex-plans-drain-air-spacecraft-170133745.html)
+- Aug 26 - [FBI offers $5K reward for information about death of woman on New Mexico highway](https://www.yahoo.com/news/fbi-offers-5k-reward-information-165824008.html)
+- Aug 26 - [I-26 sections will be closed Aug. 26-28: What to know about detours, timing](https://www.yahoo.com/news/26-sections-closed-aug-26-163657483.html)
 <!-- feed end -->
 
 ### Onstream
