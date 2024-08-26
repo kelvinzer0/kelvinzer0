@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [What's driving the spike in oil prices](https://finance.yahoo.com/video/whats-driving-spike-oil-prices-144101846.html)
-- Aug 26 - [Alva man who shot father, put him in duct-taped freezer pleads no contest, gets 30 years](https://www.yahoo.com/news/alva-man-shot-father-put-141822848.html)
-- Aug 26 - [Man caught with £1.5m of cocaine jailed for three years](https://www.yahoo.com/news/man-caught-1-5m-cocaine-135603306.html)
-- Aug 26 - [Prediction: Nvidia Will Crush Wall Street Expectations on Aug. 28 -- but There's a Catch for the AI Stock](https://finance.yahoo.com/news/prediction-nvidia-crush-wall-street-135600501.html)
-- Aug 26 - [Russia says it disrupted Ukraine's power network and arms supplies with massive strike](https://www.yahoo.com/news/russia-says-disrupted-ukraines-power-122425719.html)
+- Aug 26 - [Telegram Says It Is Compliant With EU Laws; India’s CBDC Pilot Attracts 5M Users](https://finance.yahoo.com/video/telegram-says-compliant-eu-laws-160503140.html)
+- Aug 26 - [German energy company tests underground hydrogen storage facility](https://www.yahoo.com/news/german-energy-company-tests-underground-151130712.html)
+- Aug 26 - [Ancient viral genomes preserved in glaciers reveal the history of Earth’s climate – and how viruses adapt to climate change](https://www.yahoo.com/news/ancient-viral-genomes-preserved-glaciers-150337104.html)
+- Aug 26 - ["Proving them wrong": After raising minimum wage, California has more fast-food jobs than ever](https://www.yahoo.com/news/proving-them-wrong-raising-minimum-145603710.html)
+- Aug 26 - [Seafood restaurant closing 23 stores across the country, including this one near Columbia](https://finance.yahoo.com/news/seafood-restaurant-closing-23-stores-144645145.html)
 <!-- feed end -->
 
 ### Onstream
