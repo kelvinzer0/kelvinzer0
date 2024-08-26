@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Orange County sheriff reacts after driver accused of going 133 mph on SR-417](https://www.yahoo.com/news/orange-county-sheriff-reacts-driver-123034606.html)
+- Aug 26 - [What's driving the spike in oil prices](https://finance.yahoo.com/video/whats-driving-spike-oil-prices-144101846.html)
+- Aug 26 - [Alva man who shot father, put him in duct-taped freezer pleads no contest, gets 30 years](https://www.yahoo.com/news/alva-man-shot-father-put-141822848.html)
+- Aug 26 - [Man caught with £1.5m of cocaine jailed for three years](https://www.yahoo.com/news/man-caught-1-5m-cocaine-135603306.html)
+- Aug 26 - [Prediction: Nvidia Will Crush Wall Street Expectations on Aug. 28 -- but There's a Catch for the AI Stock](https://finance.yahoo.com/news/prediction-nvidia-crush-wall-street-135600501.html)
 - Aug 26 - [Russia says it disrupted Ukraine's power network and arms supplies with massive strike](https://www.yahoo.com/news/russia-says-disrupted-ukraines-power-122425719.html)
-- Aug 26 - [Trump campaign casts fresh doubt on September debate with Harris over microphone dispute](https://www.yahoo.com/news/trump-campaign-casts-fresh-doubt-120415633.html)
-- Aug 26 - [Gambling? Nudists? What was going on behind the 8-foot fence in Edmond?](https://www.yahoo.com/news/gambling-nudists-going-behind-8-110155105.html)
-- Aug 26 - [Scientists genetically engineer unusual new solution to humanity's pollution crisis: 'We are heading towards a climate disaster'](https://www.yahoo.com/tech/scientists-genetically-engineer-unusual-solution-110026642.html)
 <!-- feed end -->
 
 ### Onstream
