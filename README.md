@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Videos of Russian soldiers appearing to surrender en masse suggest inexperience and desperation, experts say](https://www.yahoo.com/news/videos-russian-soldiers-appearing-surrender-121202985.html)
+- Aug 26 - [Orange County sheriff reacts after driver accused of going 133 mph on SR-417](https://www.yahoo.com/news/orange-county-sheriff-reacts-driver-123034606.html)
+- Aug 26 - [Russia says it disrupted Ukraine's power network and arms supplies with massive strike](https://www.yahoo.com/news/russia-says-disrupted-ukraines-power-122425719.html)
+- Aug 26 - [Trump campaign casts fresh doubt on September debate with Harris over microphone dispute](https://www.yahoo.com/news/trump-campaign-casts-fresh-doubt-120415633.html)
 - Aug 26 - [Gambling? Nudists? What was going on behind the 8-foot fence in Edmond?](https://www.yahoo.com/news/gambling-nudists-going-behind-8-110155105.html)
-- Aug 26 - [Retiring Early With $3 Million: What to Expect When You Stop Working](https://finance.yahoo.com/news/retire-45-3-million-140043549.html)
-- Aug 26 - [Scientists sound alarm over invasive species wreaking havoc in local forests: 'There's something geographic about that area that makes it more susceptible'](https://www.yahoo.com/news/scientists-sound-alarm-over-invasive-103054952.html)
-- Aug 26 - [Kremlin says there will be a response to Ukraine's Kursk attack](https://www.yahoo.com/news/kremlin-says-response-ukraines-kursk-100808381.html)
+- Aug 26 - [Scientists genetically engineer unusual new solution to humanity's pollution crisis: 'We are heading towards a climate disaster'](https://www.yahoo.com/tech/scientists-genetically-engineer-unusual-solution-110026642.html)
 <!-- feed end -->
 
 ### Onstream
