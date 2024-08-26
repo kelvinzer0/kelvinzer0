@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [How Much Will Nvidia Pay Out in Dividends This Year](https://finance.yahoo.com/news/much-nvidia-pay-dividends-185652092.html)
-- Aug 26 - [Tennessee Republican leaders threaten to withhold funds as Memphis preps to put guns on the ballot](https://www.yahoo.com/news/tennessee-republican-leaders-threaten-withhold-182840490.html)
+- Aug 26 - [Mothers of children killed in a school shooting brought their ashes to court — but justice was still denied](https://www.yahoo.com/news/kids-were-slaughtered-during-art-114801552.html)
+- Aug 26 - [Tulsi Gabbard, who ran for 2020 Democratic nomination, endorses Trump against former foe Harris](https://www.yahoo.com/news/tulsi-gabbard-ran-2020-democratic-191119149.html)
 - Aug 26 - [Released Hamas hostage says she wants to ‘dance again’ with kidnapped boyfriend](https://www.yahoo.com/news/released-hamas-hostage-says-she-182320323.html)
+- Aug 26 - [Former billionaire John Foley says he lost all his money and had to sell 'almost everything' after losing the Peloton CEO job](https://www.yahoo.com/tech/former-billionaire-john-foley-says-181933050.html)
 - Aug 26 - ['The tropics are broken:' So where are all the Atlantic hurricanes?](https://www.yahoo.com/news/tropics-broken-where-atlantic-hurricanes-181918693.html)
-- Aug 26 - [Biden adviser speaks ahead of China trip to manage complex US-China relations in final months](https://www.yahoo.com/news/biden-adviser-speaks-ahead-china-173722242.html)
 <!-- feed end -->
 
 ### Onstream
