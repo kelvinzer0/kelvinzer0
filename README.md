@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Mark Zuckerberg: Covid censorship was wrong and I wish I’d fought it](https://finance.yahoo.com/news/mark-zuckerberg-covid-censorship-wrong-081232142.html)
+- Aug 27 - [French judge extends police custody for Telegram CEO Pavel Durov](https://www.yahoo.com/news/french-judge-extends-police-custody-095627160.html)
 - Aug 27 - [Zuckerberg says Biden administration pressured Meta to censor COVID-19 content](https://finance.yahoo.com/news/zuckerberg-says-biden-administration-pressured-074825474.html)
-- Aug 27 - [Australia to cap foreign student enrollments in migration crackdown](https://www.yahoo.com/news/australia-cap-foreign-student-enrollments-052820789.html)
+- Aug 27 - [‘The ocean is overflowing’: UN chief issues global SOS as new reports warn Pacific sea-level rise outstrips global average](https://www.yahoo.com/news/ocean-overflowing-un-chief-issues-054717264.html)
 - Aug 27 - [Navy commander who oversaw carrier strike group in Red Sea says US command rejected suggestions to hit the Houthis harder over concerns about Iran](https://www.yahoo.com/news/navy-commander-oversaw-carrier-strike-043302546.html)
-- Aug 27 - [China calls for more support for its Ukraine peace plan created with Brazil](https://www.yahoo.com/news/china-calls-more-support-ukraine-042643672.html)
+- Aug 27 - [U.S. could escort Philippine resupply missions in South China Sea, admiral says](https://www.yahoo.com/news/philippines-says-china-biggest-disruptor-014400735.html)
 <!-- feed end -->
 
 ### Onstream
