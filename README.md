@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [Killer with Nazi face tattoos sentenced to death for murder of two women after emotional plea from his parents](https://www.yahoo.com/news/killer-nazi-face-tattoos-sentenced-220553649.html)
+- Aug 27 - [Disbarred celebrity lawyer Tom Girardi found guilty of stealing millions from his clients](https://www.yahoo.com/news/disbarred-celebrity-lawyer-tom-girardi-214912731.html)
 - Aug 27 - [The Japanese device helping workers beat heatstroke](https://www.yahoo.com/news/japanese-device-helping-workers-beat-213802501.html)
-- Aug 27 - [Rockford company celebrates construction of largest telescope mount in the U.S.](https://www.yahoo.com/news/rockford-company-celebrates-construction-largest-210834549.html)
-- Aug 27 - [NASA's Moon Launcher Is in Big Trouble](https://www.yahoo.com/news/nasas-moon-launcher-big-trouble-202714749.html)
-- Aug 27 - [Donald Trump faces revised US indictment in election subversion case](https://www.yahoo.com/news/us-brings-indictment-against-trump-200758459.html)
-- Aug 27 - [Super Micro stock falls after short seller Hindenburg Research calls company 'serial recidivist' in new report](https://finance.yahoo.com/news/super-micro-stock-falls-after-short-seller-hindenburg-research-calls-company-serial-recidivist-in-new-report-145829899.html)
+- Aug 27 - [Prosecutors seek death penalty for 3 Americans implicated in alleged coup attempt in Congo](https://www.yahoo.com/news/prosecutors-seek-death-penalty-3-184111632.html)
+- Aug 27 - [Burglary suspect who cried in viral video after judge recognized him from school is back in jail](https://www.yahoo.com/news/burglary-suspect-cried-viral-video-182937504.html)
 <!-- feed end -->
 
 ### Onstream
