@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [French judge extends police custody for Telegram CEO Pavel Durov](https://www.yahoo.com/news/french-judge-extends-police-custody-095627160.html)
+- Aug 27 - [Disney's Iger wants to get this CEO succession right: Analyst](https://finance.yahoo.com/video/disneys-iger-wants-ceo-succession-110033939.html)
+- Aug 27 - [Keir Starmer warns autumn budget will be ‘painful’](https://uk.finance.yahoo.com/news/keir-starmer-autumn-budget-painful-104107886.html)
+- Aug 27 - [Futures inch up with eye on interest rates, Nvidia results](https://finance.yahoo.com/news/futures-inch-eye-interest-rates-101438781.html)
+- Aug 27 - [A plane is spraying for mosquitoes near the NC and SC state line this week. Here’s why](https://www.yahoo.com/news/plane-spraying-mosquitoes-near-nc-100000286.html)
 - Aug 27 - [Zuckerberg says Biden administration pressured Meta to censor COVID-19 content](https://finance.yahoo.com/news/zuckerberg-says-biden-administration-pressured-074825474.html)
-- Aug 27 - [‘The ocean is overflowing’: UN chief issues global SOS as new reports warn Pacific sea-level rise outstrips global average](https://www.yahoo.com/news/ocean-overflowing-un-chief-issues-054717264.html)
-- Aug 27 - [Navy commander who oversaw carrier strike group in Red Sea says US command rejected suggestions to hit the Houthis harder over concerns about Iran](https://www.yahoo.com/news/navy-commander-oversaw-carrier-strike-043302546.html)
-- Aug 27 - [U.S. could escort Philippine resupply missions in South China Sea, admiral says](https://www.yahoo.com/news/philippines-says-china-biggest-disruptor-014400735.html)
 <!-- feed end -->
 
 ### Onstream
