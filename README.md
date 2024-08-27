@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [New Boeing CEO's engineer background 'helpful' to turnaround](https://finance.yahoo.com/video/boeing-ceos-engineer-background-helpful-164616713.html)
-- Aug 27 - [Nvidia results could spur record $300 billion swing in shares, options show](https://finance.yahoo.com/news/nvidia-results-could-spur-record-162916666.html)
+- Aug 27 - [Ancient tombs with vibrant wall paintings open to public in southern Israel](https://www.yahoo.com/news/ancient-tombs-vibrant-wall-paintings-170240696.html)
+- Aug 27 - [SLO High teacher trainee was fired for ‘grooming’ student. His mentor was Jeffrey Brandow](https://www.yahoo.com/news/slo-high-teacher-trainee-fired-165804056.html)
+- Aug 27 - [Captain of sunken Lynch family yacht declines to answer investigators' questions](https://www.yahoo.com/news/captain-sunken-lynch-family-yacht-163553800.html)
+- Aug 27 - [Nvidia results could spur record $300 billion swing in shares, options show](https://finance.yahoo.com/news/nvidia-results-could-spur-record-162916505.html)
 - Aug 27 - [Warren Buffett's Quiet Power Move: Why He's Betting $35 Billion On A 'Yet To Be Proven' Renewable Energy Solution](https://finance.yahoo.com/news/warren-buffetts-quiet-power-move-154518849.html)
-- Aug 27 - [Mexico to 'pause' relationship with US embassy after judicial reform criticism, president says](https://www.yahoo.com/news/mexico-pause-relationship-us-embassy-152441571.html)
-- Aug 27 - [Newt Gingrich Offers Extreme Debate Idea That Kamala Harris Fans Actually Love](https://www.yahoo.com/news/newt-gingrich-offers-extreme-debate-152356146.html)
 <!-- feed end -->
 
 ### Onstream
