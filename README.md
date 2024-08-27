@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Fox Hosts Gang Up on Jesse Watters After Unsavory Harris Comment](https://www.yahoo.com/news/fox-hosts-gang-jesse-watters-005616906.html)
+- Aug 27 - [Bruins' Jeremy Swayman Has New Rumored Asking Price](https://sports.yahoo.com/bruins-jeremy-swayman-rumored-asking-003647304.html)
 - Aug 26 - [Illinois Supreme Court sides with GOP, upholds unconstitutionality of ban on slating candidates](https://www.yahoo.com/news/illinois-supreme-court-sides-gop-222100610.html)
 - Aug 26 - [Woman, 106, who still lives in her own apartment eats these healthy foods every day](https://www.yahoo.com/lifestyle/woman-106-still-lives-her-213617906.html)
 - Aug 26 - [Heavy hailstorm wallops upstate New York](https://www.yahoo.com/news/heavy-hailstorm-wallops-upstate-york-205742290.html)
