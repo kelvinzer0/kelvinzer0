@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [IAEA chief warns of risk of nuclear accident at Russian plant in Kursk region](https://www.yahoo.com/news/iaea-chief-grossi-says-risk-124804045.html)
-- Aug 27 - [Ukraine's top commander says Kursk advance continues, but Pokrovsk front difficult](https://www.yahoo.com/news/ukraines-top-commander-says-kursk-111557445.html)
-- Aug 27 - [‘America is long overdue for a problem’: Jim Rogers says next market crash will be ‘the worst' — names 2 safe assets](https://finance.yahoo.com/news/america-long-overdue-problem-jim-110500320.html)
-- Aug 27 - [Webb telescope discovers 6 rogue worlds. They didn't form the way you'd expect.](https://www.yahoo.com/lifestyle/webb-telescope-discovers-6-rogue-080000676.html)
-- Aug 27 - [Zuckerberg says Biden administration pressured Meta to censor COVID-19 content](https://finance.yahoo.com/news/zuckerberg-says-biden-administration-pressured-074825474.html)
+- Aug 27 - [Russia warns the United States of the risks of World War Three](https://www.yahoo.com/news/russia-warns-united-states-risks-135240871.html)
+- Aug 27 - [Ryanair says air fares will keep falling through winter](https://www.yahoo.com/news/ryanair-says-air-fares-keep-133813759.html)
+- Aug 27 - [Hindenburg Research discloses short position in server maker Super Micro](https://finance.yahoo.com/news/hindenburg-research-discloses-short-position-132835037.html)
+- Aug 27 - [Three charged in attempted motorcycle dealership burglary in Middletown](https://www.yahoo.com/news/three-charged-attempted-motorcycle-dealership-131422663.html)
+- Aug 27 - [‘I have been researching death for 30 years. I am now convinced it is reversible’](https://www.yahoo.com/news/heart-attack-tomorrow-why-stay-123000190.html)
 <!-- feed end -->
 
 ### Onstream
