@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Bruins' Jeremy Swayman Has New Rumored Asking Price](https://sports.yahoo.com/bruins-jeremy-swayman-rumored-asking-003647304.html)
 - Aug 26 - [Illinois Supreme Court sides with GOP, upholds unconstitutionality of ban on slating candidates](https://www.yahoo.com/news/illinois-supreme-court-sides-gop-222100610.html)
+- Aug 26 - [The Twist In Lucky’s Return On August 26 General Hospital](https://www.yahoo.com/entertainment/twist-lucky-return-august-26-214841175.html)
 - Aug 26 - [Woman, 106, who still lives in her own apartment eats these healthy foods every day](https://www.yahoo.com/lifestyle/woman-106-still-lives-her-213617906.html)
-- Aug 26 - [Heavy hailstorm wallops upstate New York](https://www.yahoo.com/news/heavy-hailstorm-wallops-upstate-york-205742290.html)
+- Aug 26 - [Local schools closed Tuesday for extreme heat](https://www.yahoo.com/news/local-schools-closed-tuesday-extreme-212154092.html)
 - Aug 26 - [Pennsylvania museum to sell painting in settlement with heirs of Jewish family that fled the Nazis](https://www.yahoo.com/news/pennsylvania-museum-sell-painting-settlement-204810925.html)
 <!-- feed end -->
 
