@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [Super Micro stock falls after short seller Hindenburg Research calls company 'serial recidivist' in new report](https://finance.yahoo.com/news/super-micro-stock-falls-after-short-seller-hindenburg-research-calls-company-serial-recidivist-in-new-report-145829899.html)
+- Aug 27 - [Two workers killed and a third injured in an explosion at a Delta Air Lines facility in Atlanta](https://www.yahoo.com/news/two-workers-killed-third-injured-185832263.html)
+- Aug 27 - [Prosecutors seek death penalty for 3 Americans implicated in alleged coup attempt in Congo](https://www.yahoo.com/news/prosecutors-seek-death-penalty-3-184111632.html)
 - Aug 27 - [Burglary suspect who cried in viral video after judge recognized him from school is back in jail](https://www.yahoo.com/news/burglary-suspect-cried-viral-video-182937504.html)
 - Aug 27 - [There's A New Tim Walz Meme, And This One Might Just Be The Best One Yet](https://www.yahoo.com/entertainment/theres-tim-walz-meme-one-171345907.html)
-- Aug 27 - [Ancient tombs with vibrant wall paintings open to public in southern Israel](https://www.yahoo.com/news/ancient-tombs-vibrant-wall-paintings-170240696.html)
-- Aug 27 - [Captain of sunken Lynch family yacht declines to answer investigators' questions](https://www.yahoo.com/news/captain-sunken-lynch-family-yacht-163553800.html)
-- Aug 27 - [Warren Buffett's Quiet Power Move: Why He's Betting $35 Billion On A 'Yet To Be Proven' Renewable Energy Solution](https://finance.yahoo.com/news/warren-buffetts-quiet-power-move-154518849.html)
 <!-- feed end -->
 
 ### Onstream
