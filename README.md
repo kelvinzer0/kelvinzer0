@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [New Boeing CEO's engineer background 'helpful' to turnaround](https://finance.yahoo.com/video/boeing-ceos-engineer-background-helpful-164616713.html)
+- Aug 27 - [Nvidia results could spur record $300 billion swing in shares, options show](https://finance.yahoo.com/news/nvidia-results-could-spur-record-162916666.html)
+- Aug 27 - [Warren Buffett's Quiet Power Move: Why He's Betting $35 Billion On A 'Yet To Be Proven' Renewable Energy Solution](https://finance.yahoo.com/news/warren-buffetts-quiet-power-move-154518849.html)
+- Aug 27 - [Mexico to 'pause' relationship with US embassy after judicial reform criticism, president says](https://www.yahoo.com/news/mexico-pause-relationship-us-embassy-152441571.html)
 - Aug 27 - [Newt Gingrich Offers Extreme Debate Idea That Kamala Harris Fans Actually Love](https://www.yahoo.com/news/newt-gingrich-offers-extreme-debate-152356146.html)
-- Aug 27 - [Why Apple's iPhone 16 might not be enough to drive sales](https://finance.yahoo.com/video/why-apples-iphone-16-might-150000531.html)
-- Aug 27 - ["Devastating": Legal experts say Jack Smith's appeal could lead to dismissal of Judge Aileen Cannon](https://www.yahoo.com/news/devastating-legal-experts-jack-smiths-144112231.html)
-- Aug 27 - [Exclusive-Intel board member quit after differences over chipmaker's revival plan](https://finance.yahoo.com/news/exclusive-intel-board-member-quit-143944344.html)
-- Aug 27 - [Intel board member quit after differences over chipmaker's revival plan](https://finance.yahoo.com/news/exclusive-intel-board-member-quit-143944877.html)
 <!-- feed end -->
 
 ### Onstream
