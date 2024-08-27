@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [IAEA chief warns of risk of nuclear accident at Russian plant in Kursk region](https://www.yahoo.com/news/iaea-chief-grossi-says-risk-124804045.html)
 - Aug 27 - [Ukraine's top commander says Kursk advance continues, but Pokrovsk front difficult](https://www.yahoo.com/news/ukraines-top-commander-says-kursk-111557445.html)
 - Aug 27 - [‘America is long overdue for a problem’: Jim Rogers says next market crash will be ‘the worst' — names 2 safe assets](https://finance.yahoo.com/news/america-long-overdue-problem-jim-110500320.html)
-- Aug 27 - [Iran's supreme leader opens door to negotiations with United States over Tehran's nuclear program](https://www.yahoo.com/news/irans-supreme-leader-opens-door-104422205.html)
-- Aug 27 - [Residents face $10K HOA fines for open windows in sinking San Francisco tower](https://finance.yahoo.com/news/residents-face-10k-hoa-fines-103900351.html)
-- Aug 27 - [Morning Bid: Pre-Nvidia hesitation obscures record high](https://finance.yahoo.com/news/morning-bid-pre-nvidia-hesitation-100914335.html)
+- Aug 27 - [Webb telescope discovers 6 rogue worlds. They didn't form the way you'd expect.](https://www.yahoo.com/lifestyle/webb-telescope-discovers-6-rogue-080000676.html)
+- Aug 27 - [Zuckerberg says Biden administration pressured Meta to censor COVID-19 content](https://finance.yahoo.com/news/zuckerberg-says-biden-administration-pressured-074825474.html)
 <!-- feed end -->
 
 ### Onstream
