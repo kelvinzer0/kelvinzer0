@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Death of female participant at Burning Man 2024 under investigation](https://www.yahoo.com/news/death-female-participant-burning-man-143735280.html)
-- Aug 26 - [Nvidia Rival, These AI Stocks Lead S&P 500 Losers Monday](https://www.investors.com/market-trend/stock-market-today/nvidia-rival-amd-ai-stocks-lead-sp-500-losers-monday/?src=A00220&yptr=yahoo)
+- Aug 27 - [Fox Hosts Gang Up on Jesse Watters After Unsavory Harris Comment](https://www.yahoo.com/news/fox-hosts-gang-jesse-watters-005616906.html)
 - Aug 26 - [Illinois Supreme Court sides with GOP, upholds unconstitutionality of ban on slating candidates](https://www.yahoo.com/news/illinois-supreme-court-sides-gop-222100610.html)
-- Aug 26 - [SpaceX marks milestone with billionaire's space walk, first by private citizen. What to know](https://www.yahoo.com/news/spacex-marks-milestone-billionaires-space-221944254.html)
-- Aug 26 - [Body of man who went missing while on vacation believed to have been found](https://www.yahoo.com/news/body-man-went-missing-while-212911861.html)
+- Aug 26 - [Woman, 106, who still lives in her own apartment eats these healthy foods every day](https://www.yahoo.com/lifestyle/woman-106-still-lives-her-213617906.html)
+- Aug 26 - [Heavy hailstorm wallops upstate New York](https://www.yahoo.com/news/heavy-hailstorm-wallops-upstate-york-205742290.html)
+- Aug 26 - [Pennsylvania museum to sell painting in settlement with heirs of Jewish family that fled the Nazis](https://www.yahoo.com/news/pennsylvania-museum-sell-painting-settlement-204810925.html)
 <!-- feed end -->
 
 ### Onstream
