@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [New virus that causes ‘staggering disease’ discovered in US – and it can kill pet cats and those in the wild](https://www.yahoo.com/news/virus-causes-staggering-disease-discovered-205256547.html)
 - Aug 27 - [Millions in this country are stranded by flooding. Many blame their neighbor](https://www.yahoo.com/news/millions-country-stranded-flooding-many-055951247.html)
-- Aug 27 - [Alaska Airlines flight forced to turn around after Boeing 737 engine fails midair](https://www.yahoo.com/news/alaska-airlines-flight-forced-turn-014151419.html)
+- Aug 27 - [Philippines urges 'broader interpretation' of defence pact with U.S.](https://www.yahoo.com/news/philippines-says-china-biggest-disruptor-014400735.html)
 - Aug 27 - [Zuckerberg says he regrets not being more outspoken about ‘government pressure’](https://www.yahoo.com/news/zuckerberg-says-regrets-not-being-013105966.html)
 - Aug 27 - [CCSD employee accused of attempting to contact minor for sex: police](https://www.yahoo.com/news/ccsd-employee-accused-attempting-contact-010306165.html)
+- Aug 26 - [West Virginia boy dies after getting hurt at football practice](https://www.yahoo.com/news/west-virginia-boy-dies-getting-233028516.html)
 <!-- feed end -->
 
 ### Onstream
