@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [Surging seas are coming for us all, warns UN chief](https://www.yahoo.com/news/surging-seas-coming-us-warns-021550290.html)
+- Aug 27 - [Downing Street draws up plans for announcing death of ‘chief mouser’ Larry the cat](https://www.yahoo.com/news/downing-street-officials-prepare-plan-155321015.html)
+- Aug 27 - [CCSD employee accused of attempting to contact minor for sex: police](https://www.yahoo.com/news/ccsd-employee-accused-attempting-contact-010306165.html)
+- Aug 27 - [Fox Hosts Gang Up on Jesse Watters After Unsavory Harris Comment](https://www.yahoo.com/news/fox-hosts-gang-jesse-watters-005616906.html)
 - Aug 26 - [Illinois Supreme Court sides with GOP, upholds unconstitutionality of ban on slating candidates](https://www.yahoo.com/news/illinois-supreme-court-sides-gop-222100610.html)
-- Aug 26 - [The Twist In Lucky’s Return On August 26 General Hospital](https://www.yahoo.com/entertainment/twist-lucky-return-august-26-214841175.html)
-- Aug 26 - [Woman, 106, who still lives in her own apartment eats these healthy foods every day](https://www.yahoo.com/lifestyle/woman-106-still-lives-her-213617906.html)
-- Aug 26 - [Local schools closed Tuesday for extreme heat](https://www.yahoo.com/news/local-schools-closed-tuesday-extreme-212154092.html)
-- Aug 26 - [Pennsylvania museum to sell painting in settlement with heirs of Jewish family that fled the Nazis](https://www.yahoo.com/news/pennsylvania-museum-sell-painting-settlement-204810925.html)
 <!-- feed end -->
 
 ### Onstream
