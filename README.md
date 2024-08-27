@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Disney's Iger wants to get this CEO succession right: Analyst](https://finance.yahoo.com/video/disneys-iger-wants-ceo-succession-110033939.html)
-- Aug 27 - [Keir Starmer warns autumn budget will be ‘painful’](https://uk.finance.yahoo.com/news/keir-starmer-autumn-budget-painful-104107886.html)
-- Aug 27 - [Futures inch up with eye on interest rates, Nvidia results](https://finance.yahoo.com/news/futures-inch-eye-interest-rates-101438781.html)
-- Aug 27 - [A plane is spraying for mosquitoes near the NC and SC state line this week. Here’s why](https://www.yahoo.com/news/plane-spraying-mosquitoes-near-nc-100000286.html)
-- Aug 27 - [Zuckerberg says Biden administration pressured Meta to censor COVID-19 content](https://finance.yahoo.com/news/zuckerberg-says-biden-administration-pressured-074825474.html)
+- Aug 27 - [Ukraine's top commander says Kursk advance continues, but Pokrovsk front difficult](https://www.yahoo.com/news/ukraines-top-commander-says-kursk-111557445.html)
+- Aug 27 - [‘America is long overdue for a problem’: Jim Rogers says next market crash will be ‘the worst' — names 2 safe assets](https://finance.yahoo.com/news/america-long-overdue-problem-jim-110500320.html)
+- Aug 27 - [Iran's supreme leader opens door to negotiations with United States over Tehran's nuclear program](https://www.yahoo.com/news/irans-supreme-leader-opens-door-104422205.html)
+- Aug 27 - [Residents face $10K HOA fines for open windows in sinking San Francisco tower](https://finance.yahoo.com/news/residents-face-10k-hoa-fines-103900351.html)
+- Aug 27 - [Morning Bid: Pre-Nvidia hesitation obscures record high](https://finance.yahoo.com/news/morning-bid-pre-nvidia-hesitation-100914335.html)
 <!-- feed end -->
 
 ### Onstream
