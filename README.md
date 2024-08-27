@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Sri Lanka's Dissanayake a strong contender for president with his alliance's focus on working class](https://www.yahoo.com/news/sri-lankas-dissanayake-strong-contender-065311152.html)
+- Aug 27 - [These images show what Brits think ‘healthy’ looks like](https://www.yahoo.com/lifestyle/images-show-brits-think-healthy-075256158.html)
 - Aug 27 - [China calls for more support for its Ukraine peace plan created with Brazil](https://www.yahoo.com/news/china-calls-more-support-ukraine-042643672.html)
-- Aug 27 - [Philippines urges 'broader interpretation' of defence pact with U.S.](https://www.yahoo.com/news/philippines-says-china-biggest-disruptor-014400735.html)
+- Aug 27 - [China's BYD to use Huawei's advanced autonomous driving system in off-road EVs](https://www.yahoo.com/tech/chinas-byd-huaweis-advanced-autonomous-034303960.html)
+- Aug 27 - [U.S. could escort Philippine resupply missions in South China Sea, admiral says](https://www.yahoo.com/news/philippines-says-china-biggest-disruptor-014400735.html)
 - Aug 27 - [CCSD employee accused of attempting to contact minor for sex: police](https://www.yahoo.com/news/ccsd-employee-accused-attempting-contact-010306165.html)
-- Aug 27 - [Fox Hosts Gang Up on Jesse Watters After Unsavory Harris Comment](https://www.yahoo.com/news/fox-hosts-gang-jesse-watters-005616906.html)
 <!-- feed end -->
 
 ### Onstream
