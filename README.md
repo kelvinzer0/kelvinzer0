@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Donald Trump likes to pretend he is still president — but his act caught up with him at Arlington](https://www.yahoo.com/news/donald-trump-likes-pretend-still-130005359.html)
 - Aug 28 - [Dow Jones Futures Await 'Most Important' Nvidia Earnings; Buffett's Berkshire Nears $1 Trillion](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-earnings-warren-buffett-berkshire-nears-1-trillion/?src=A00220&yptr=yahoo)
 - Aug 28 - [‘All our dreams are out of the window’: Florida couple paid $350K for an empty lot they can’t build on — here’s why](https://finance.yahoo.com/news/dreams-window-florida-couple-paid-110500686.html)
+- Aug 28 - [Houston homeowners left in shock after losing their property deeds to mystery woman named in surrogacy scandal](https://finance.yahoo.com/news/houston-homeowners-left-shock-losing-101100229.html)
 - Aug 28 - [This 1 Toilet Habit Makes You More Prone To Hemorrhoids — And You're Probably Doing It](https://www.yahoo.com/lifestyle/1-toilet-habit-makes-more-091602266.html)
-- Aug 28 - [Slow down! Michigan mom's texts to son may come back to haunt her](https://www.yahoo.com/news/slow-down-michigan-moms-texts-090835884.html)
-- Aug 28 - [Michael Cohen Reveals Classic Trump Hand Gesture That Shows When He’s Lying](https://www.yahoo.com/news/michael-cohen-reveals-classic-trump-081906949.html)
 <!-- feed end -->
 
 ### Onstream
