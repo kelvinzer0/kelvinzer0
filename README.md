@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [SpaceX booster on Starlink mission tips over on return to Earth](https://www.yahoo.com/news/spacex-booster-starlink-mission-tips-084533398.html)
+- Aug 28 - [Prediction: These Will Be the 3 Largest Artificial Intelligence (AI) Companies by 2035](https://finance.yahoo.com/news/prediction-3-largest-artificial-intelligence-105500858.html)
+- Aug 28 - [They mocked him as 'Chandler' and 'moron.' Matthew Perry was exploited before his death, feds say](https://www.yahoo.com/news/mocked-him-chandler-moron-matthew-100010676.html)
+- Aug 28 - [This 1 Toilet Habit Makes You More Prone To Hemorrhoids — And You're Probably Doing It](https://www.yahoo.com/lifestyle/1-toilet-habit-makes-more-091602266.html)
 - Aug 28 - [Slow down! Michigan mom's texts to son may come back to haunt her](https://www.yahoo.com/news/slow-down-michigan-moms-texts-090835884.html)
-- Aug 28 - [Apple Watch Ultra 3 rumors: Everything we know so far](https://www.yahoo.com/tech/apple-watch-ultra-3-rumors-090000498.html)
-- Aug 28 - [Michael Cohen Reveals Classic Trump Hand Gesture That Shows When He's Lying](https://www.yahoo.com/news/michael-cohen-reveals-classic-trump-081906949.html)
-- Aug 28 - [Kamala Harris steals another idea from Trump. Now she wants to build the wall – no joke.](https://www.yahoo.com/news/kamala-harris-steals-another-idea-080734670.html)
+- Aug 28 - [Couple in Lamborghini kidnapped and beaten while house hunting, police say](https://www.yahoo.com/news/couple-lamborghini-kidnapped-beaten-while-075019225.html)
 <!-- feed end -->
 
 ### Onstream
