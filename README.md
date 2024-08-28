@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Russia feels unfamiliar pain as Ukraine hobbles its air defenses, forcing tough choices](https://www.yahoo.com/news/russia-feels-unfamiliar-pain-ukraine-092105507.html)
+- Aug 28 - [SpaceX booster on Starlink mission tips over on return to Earth](https://www.yahoo.com/news/spacex-booster-starlink-mission-tips-084533398.html)
+- Aug 28 - [Slow down! Michigan mom's texts to son may come back to haunt her](https://www.yahoo.com/news/slow-down-michigan-moms-texts-090835884.html)
+- Aug 28 - [Apple Watch Ultra 3 rumors: Everything we know so far](https://www.yahoo.com/tech/apple-watch-ultra-3-rumors-090000498.html)
 - Aug 28 - [Michael Cohen Reveals Classic Trump Hand Gesture That Shows When He's Lying](https://www.yahoo.com/news/michael-cohen-reveals-classic-trump-081906949.html)
-- Aug 28 - [Couple in Lamborghini kidnapped and beaten while house hunting, police say](https://www.yahoo.com/news/couple-lamborghini-kidnapped-beaten-while-075019225.html)
-- Aug 28 - [Two more Chinese airlines to start flying China-made COMAC C919 jet](https://finance.yahoo.com/news/two-more-chinese-airlines-start-071132115.html)
-- Aug 28 - [Pennsylvania ammo plant boosts production of key artillery shell in Ukraine's fight against Russia](https://www.yahoo.com/news/pennsylvania-ammo-plant-boosts-production-040348897.html)
+- Aug 28 - [Kamala Harris steals another idea from Trump. Now she wants to build the wall – no joke.](https://www.yahoo.com/news/kamala-harris-steals-another-idea-080734670.html)
 <!-- feed end -->
 
 ### Onstream
