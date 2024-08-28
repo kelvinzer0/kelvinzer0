@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Russia feels unfamiliar pain as Ukraine hobbles its air defenses, forcing tough choices](https://www.yahoo.com/news/russia-feels-unfamiliar-pain-ukraine-092105507.html)
+- Aug 28 - [Michael Cohen Reveals Classic Trump Hand Gesture That Shows When He's Lying](https://www.yahoo.com/news/michael-cohen-reveals-classic-trump-081906949.html)
+- Aug 28 - [Couple in Lamborghini kidnapped and beaten while house hunting, police say](https://www.yahoo.com/news/couple-lamborghini-kidnapped-beaten-while-075019225.html)
 - Aug 28 - [Two more Chinese airlines to start flying China-made COMAC C919 jet](https://finance.yahoo.com/news/two-more-chinese-airlines-start-071132115.html)
-- Aug 28 - [‘It could have been us’: American father and daughter recall horror of Iceland cave collapse](https://www.yahoo.com/news/could-us-american-father-daughter-064357739.html)
 - Aug 28 - [Pennsylvania ammo plant boosts production of key artillery shell in Ukraine's fight against Russia](https://www.yahoo.com/news/pennsylvania-ammo-plant-boosts-production-040348897.html)
-- Aug 28 - [Trump staff had physical altercation with Arlington cemetery official, NPR reports](https://www.yahoo.com/news/trump-staff-had-physical-altercation-020154296.html)
-- Aug 28 - [Ukraine drones set oil depot ablaze in Russia's Rostov, governor says](https://www.yahoo.com/news/ukraines-drones-set-oil-depot-010330610.html)
 <!-- feed end -->
 
 ### Onstream
