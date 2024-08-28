@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Northern California deputies searching for at-risk 24-year-old woman from Sacramento](https://www.yahoo.com/news/northern-california-deputies-searching-risk-173527168.html)
+- Aug 28 - [Attorney for white homeowner who shot Ralph Yarl says his client needs a psychological evaluation](https://www.yahoo.com/news/attorney-white-homeowner-shot-ralph-184232032.html)
+- Aug 28 - [McDonald's Is Finally Bringing Back This Menu Item After Fans Begged For Its Return](https://www.yahoo.com/lifestyle/mcdonalds-finally-bringing-back-menu-182300389.html)
+- Aug 28 - [Just One Money Move Could Put You in the Top 10% of Americans Financially, According To Money Expert Scott Galloway](https://finance.yahoo.com/news/just-one-money-move-could-180020301.html)
+- Aug 28 - [SpaceX's Falcon 9 grounded after failing landing attempt](https://finance.yahoo.com/news/spacexs-falcon-9-grounded-failing-173404122.html)
 - Aug 28 - [Body of Delta Air Lines worker who died in tire explosion was unrecognizable, son says](https://www.yahoo.com/news/body-delta-air-lines-worker-171121291.html)
-- Aug 28 - [Medical examiner reveals cause of death for Oklahoma Co. inmate](https://www.yahoo.com/news/medical-examiner-reveals-cause-death-162139030.html)
-- Aug 28 - [Opinion - Russians are waking up to Putin’s Ukraine folly](https://www.yahoo.com/news/opinion-russians-waking-putin-ukraine-153000740.html)
-- Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
 <!-- feed end -->
 
 ### Onstream
