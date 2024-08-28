@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - ['A good, kind soul': Friends remember murdered Florida fraternity brother as execution nears](https://www.yahoo.com/news/good-kind-soul-friends-remember-210145598.html)
-- Aug 28 - [Penalty phase begins for Robert Telles, convicted of reporter’s stabbing death](https://www.yahoo.com/news/penalty-phase-begins-robert-telles-203340440.html)
-- Aug 28 - [Water buffalo corralled days after it escaped in Iowa suburb and was shot by police](https://www.yahoo.com/news/water-buffalo-corralled-days-escaped-195316150.html)
-- Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
-- Aug 28 - [6 Things You Should Do to Lose Visceral Fat, According to Dietitians](https://www.yahoo.com/lifestyle/6-things-lose-visceral-fat-185401456.html)
+- Aug 28 - [Nvidia's forecast dampens AI enthusiasm in other tech stocks](https://finance.yahoo.com/news/nvidias-forecast-dampens-ai-enthusiasm-222328734.html)
+- Aug 28 - [Former CSX chief, wife donate $1 million to Jacksonville-based literacy nonprofit](https://www.yahoo.com/news/former-csx-chief-wife-donate-220508982.html)
+- Aug 28 - [McDonald’s Serves Up the 14-Ounce ‘Big Arch,’ Its Biggest Hamburger Ever](https://finance.yahoo.com/news/mcdonald-serves-14-ounce-big-214320855.html)
+- Aug 28 - [Dogs Have an Absolute Blast at Idaho Pool's End-of-Season Party](https://www.yahoo.com/news/dogs-absolute-blast-idaho-pools-213803496.html)
+- Aug 28 - [Nvidia's outlook fails to impress growth-hungry investors, shares fall](https://finance.yahoo.com/news/nvidia-forecasts-third-quarter-revenue-202225297.html)
 <!-- feed end -->
 
 ### Onstream
