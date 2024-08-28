@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Trump staff had physical altercation with Arlington cemetery official, NPR reports](https://www.yahoo.com/news/trump-staff-had-physical-altercation-020154296.html)
+- Aug 28 - [Video shows Texas students pleading with bus driver to keep windows open on scorching day](https://www.yahoo.com/news/video-shows-texas-students-pleading-005858212.html)
 - Aug 27 - [Costco files to build new $24.6 million Tri-Cities store. But there’s a big catch](https://finance.yahoo.com/news/costco-files-build-24-6-223238697.html)
+- Aug 27 - [Police in a suburban New York county have made their first arrest under a new law banning face masks](https://www.yahoo.com/news/police-suburban-york-county-made-223042456.html)
 - Aug 27 - [Tesla investor Ross Gerber says he can't get rid of his used Tesla. Here's why Musk's cars aren't retaining value like they used to.](https://autos.yahoo.com/tesla-investor-ross-gerber-says-203616148.html)
-- Aug 27 - [Super Micro stock falls after short seller Hindenburg Research calls company 'serial recidivist' in new report](https://finance.yahoo.com/news/super-micro-stock-falls-after-short-seller-hindenburg-research-calls-company-serial-recidivist-in-new-report-145829899.html)
-- Aug 27 - [Ancient tombs with vibrant wall paintings open to public in southern Israel](https://www.yahoo.com/news/ancient-tombs-vibrant-wall-paintings-170240696.html)
-- Aug 27 - [‘That’s a lady you just hit, sir!’ Singer Scotty McCreery halts concert to call out fan.](https://www.yahoo.com/entertainment/lady-just-hit-sir-singer-164928556.html)
 <!-- feed end -->
 
 ### Onstream
