@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Navy recruiting rebounds, but it will miss its target to get sailors through boot camp](https://www.yahoo.com/news/navy-recruiting-rebounds-miss-target-142904987.html)
+- Aug 28 - [Prediction: Vanguard's 3 Best-Performing ETFs Over the Last 5 Years Will Also Beat the S&P 500 Over the Next 5 Years](https://finance.yahoo.com/news/prediction-vanguards-3-best-performing-140700362.html)
+- Aug 28 - [Russia faces "difficult fight" to retake Ukraine-held area, says top US spy](https://www.yahoo.com/news/ukraine-intent-keeping-russian-territory-135642835.html)
 - Aug 28 - [Donald Trump likes to pretend he is still president — but his act caught up with him at Arlington](https://www.yahoo.com/news/donald-trump-likes-pretend-still-130005359.html)
 - Aug 28 - [Dow Jones Futures Await 'Most Important' Nvidia Earnings; Buffett's Berkshire Nears $1 Trillion](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-earnings-warren-buffett-berkshire-nears-1-trillion/?src=A00220&yptr=yahoo)
-- Aug 28 - [‘All our dreams are out of the window’: Florida couple paid $350K for an empty lot they can’t build on — here’s why](https://finance.yahoo.com/news/dreams-window-florida-couple-paid-110500686.html)
-- Aug 28 - [Houston homeowners left in shock after losing their property deeds to mystery woman named in surrogacy scandal](https://finance.yahoo.com/news/houston-homeowners-left-shock-losing-101100229.html)
-- Aug 28 - [This 1 Toilet Habit Makes You More Prone To Hemorrhoids — And You're Probably Doing It](https://www.yahoo.com/lifestyle/1-toilet-habit-makes-more-091602266.html)
 <!-- feed end -->
 
 ### Onstream
