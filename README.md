@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 28 - [Trump staff had physical altercation with Arlington cemetery official, NPR reports](https://www.yahoo.com/news/trump-staff-had-physical-altercation-020154296.html)
 - Aug 28 - [San Diego police identify officer killed in crash](https://www.yahoo.com/news/san-diego-police-identify-officer-013934957.html)
-- Aug 28 - [Ukraine's drones set oil depot in Russia's Rostov ablaze, Russian Telegram channels say](https://www.yahoo.com/news/ukraines-drones-set-oil-depot-010330610.html)
-- Aug 28 - [Video shows Texas students pleading with bus driver to keep windows open on scorching day](https://www.yahoo.com/news/video-shows-texas-students-pleading-005858212.html)
-- Aug 27 - [Police in a suburban New York county have made their first arrest under a new law banning face masks](https://www.yahoo.com/news/police-suburban-york-county-made-223042456.html)
+- Aug 28 - [Children's book ignites car seat in North Carolina family's minivan minutes after parking](https://www.yahoo.com/news/childrens-book-ignites-car-seat-012457799.html)
+- Aug 28 - [Ukraine drones set oil depot ablaze in Russia's Rostov region, Telegram channels say](https://www.yahoo.com/news/ukraines-drones-set-oil-depot-010330610.html)
+- Aug 28 - [Union workers respond to the deaths of 2 workers in Delta Air Lines tire explosion in Atlanta](https://www.yahoo.com/news/union-workers-respond-deaths-2-005435289.html)
 <!-- feed end -->
 
 ### Onstream
