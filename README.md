@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Attorney for white homeowner who shot Ralph Yarl says his client needs a psychological evaluation](https://www.yahoo.com/news/attorney-white-homeowner-shot-ralph-184232032.html)
-- Aug 28 - [McDonald's Is Finally Bringing Back This Menu Item After Fans Begged For Its Return](https://www.yahoo.com/lifestyle/mcdonalds-finally-bringing-back-menu-182300389.html)
-- Aug 28 - [Just One Money Move Could Put You in the Top 10% of Americans Financially, According To Money Expert Scott Galloway](https://finance.yahoo.com/news/just-one-money-move-could-180020301.html)
-- Aug 28 - [SpaceX's Falcon 9 grounded after failing landing attempt](https://finance.yahoo.com/news/spacexs-falcon-9-grounded-failing-173404122.html)
-- Aug 28 - [Body of Delta Air Lines worker who died in tire explosion was unrecognizable, son says](https://www.yahoo.com/news/body-delta-air-lines-worker-171121291.html)
+- Aug 28 - [Super Micro stock plunges 19% after company delays annual report following short-seller report](https://finance.yahoo.com/news/super-micro-stock-plunges-19-after-company-delays-annual-report-following-short-seller-report-200333718.html)
+- Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
+- Aug 28 - [Workers are breaching Klamath dams, which will let salmon swim freely for first time in a century](https://www.yahoo.com/news/workers-breaching-klamath-dams-let-185449657.html)
+- Aug 28 - [Iran says Houthis agree to truce so tugboats can reach damaged oil tanker](https://www.yahoo.com/news/iran-says-houthis-agree-truce-185319016.html)
+- Aug 28 - ['Furious': Veterans slam Trump team's altercation at Arlington National Cemetery](https://www.yahoo.com/news/furious-veterans-slam-trump-teams-184910434.html)
 <!-- feed end -->
 
 ### Onstream
