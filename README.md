@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Navy recruiting rebounds, but it will miss its target to get sailors through boot camp](https://www.yahoo.com/news/navy-recruiting-rebounds-miss-target-142904987.html)
-- Aug 28 - [Prediction: Vanguard's 3 Best-Performing ETFs Over the Last 5 Years Will Also Beat the S&P 500 Over the Next 5 Years](https://finance.yahoo.com/news/prediction-vanguards-3-best-performing-140700362.html)
+- Aug 28 - [Lansing area residents left to clean up from widespread storm damage](https://www.yahoo.com/news/lansing-area-residents-left-clean-145817686.html)
 - Aug 28 - [Russia faces "difficult fight" to retake Ukraine-held area, says top US spy](https://www.yahoo.com/news/ukraine-intent-keeping-russian-territory-135642835.html)
-- Aug 28 - [Donald Trump likes to pretend he is still president — but his act caught up with him at Arlington](https://www.yahoo.com/news/donald-trump-likes-pretend-still-130005359.html)
+- Aug 28 - [Crash closes section of I-476 for 16 miles](https://www.yahoo.com/news/crash-closes-section-476-16-130953304.html)
 - Aug 28 - [Dow Jones Futures Await 'Most Important' Nvidia Earnings; Buffett's Berkshire Nears $1 Trillion](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-earnings-warren-buffett-berkshire-nears-1-trillion/?src=A00220&yptr=yahoo)
+- Aug 28 - [Chinese Tesla rival launches $22,000 EV with self-driving features. Here's why that's a big problem for Tesla.](https://autos.yahoo.com/chinese-tesla-rival-launches-22-113147593.html)
 <!-- feed end -->
 
 ### Onstream
