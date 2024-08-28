@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Pennsylvania ammo plant boosts production of key artillery shell in Ukraine's fight against Russia](https://www.yahoo.com/news/pennsylvania-ammo-plant-boosts-production-040348897.html)
 - Aug 28 - [Trump staff had physical altercation with Arlington cemetery official, NPR reports](https://www.yahoo.com/news/trump-staff-had-physical-altercation-020154296.html)
 - Aug 28 - [San Diego police identify officer killed in crash](https://www.yahoo.com/news/san-diego-police-identify-officer-013934957.html)
 - Aug 28 - [Ukraine drones set oil depot ablaze in Russia's Rostov, governor says](https://www.yahoo.com/news/ukraines-drones-set-oil-depot-010330610.html)
 - Aug 27 - [Costco files to build new $24.6 million Tri-Cities store. But there’s a big catch](https://finance.yahoo.com/news/costco-files-build-24-6-223238697.html)
+- Aug 27 - [Super Micro stock falls after short seller Hindenburg Research calls company 'serial recidivist' in new report](https://finance.yahoo.com/news/super-micro-stock-falls-after-short-seller-hindenburg-research-calls-company-serial-recidivist-in-new-report-145829899.html)
 <!-- feed end -->
 
 ### Onstream
