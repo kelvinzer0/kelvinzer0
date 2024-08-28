@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Super Micro stock plunges 19% after company delays annual report following short-seller report](https://finance.yahoo.com/news/super-micro-stock-plunges-19-after-company-delays-annual-report-following-short-seller-report-200333718.html)
+- Aug 28 - [Nvidia reports record quarterly revenue as AI chip demand continues](https://finance.yahoo.com/news/nvidia-reports-record-quarterly-revenue-204626662.html)
+- Aug 28 - [Sean Hannity Brutally Mocked After His Dig At Journalist From NABJ Panel Backfires](https://www.yahoo.com/news/sean-hannity-brutally-mocked-dig-203804568.html)
 - Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
-- Aug 28 - [Workers are breaching Klamath dams, which will let salmon swim freely for first time in a century](https://www.yahoo.com/news/workers-breaching-klamath-dams-let-185449657.html)
-- Aug 28 - [Iran says Houthis agree to truce so tugboats can reach damaged oil tanker](https://www.yahoo.com/news/iran-says-houthis-agree-truce-185319016.html)
 - Aug 28 - ['Furious': Veterans slam Trump team's altercation at Arlington National Cemetery](https://www.yahoo.com/news/furious-veterans-slam-trump-teams-184910434.html)
+- Aug 28 - [Captain Who Saw Sicily Yacht Sink Says Mike Lynch’s Wife Didn’t Want to Leave Scene Without Husband and Daughter](https://www.yahoo.com/news/captain-saw-sicily-yacht-sink-183012558.html)
 <!-- feed end -->
 
 ### Onstream
