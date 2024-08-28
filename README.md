@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Nvidia reports record quarterly revenue as AI chip demand continues](https://finance.yahoo.com/news/nvidia-reports-record-quarterly-revenue-204626662.html)
-- Aug 28 - [Sean Hannity Brutally Mocked After His Dig At Journalist From NABJ Panel Backfires](https://www.yahoo.com/news/sean-hannity-brutally-mocked-dig-203804568.html)
+- Aug 28 - ['A good, kind soul': Friends remember murdered Florida fraternity brother as execution nears](https://www.yahoo.com/news/good-kind-soul-friends-remember-210145598.html)
+- Aug 28 - [Penalty phase begins for Robert Telles, convicted of reporter’s stabbing death](https://www.yahoo.com/news/penalty-phase-begins-robert-telles-203340440.html)
+- Aug 28 - [Water buffalo corralled days after it escaped in Iowa suburb and was shot by police](https://www.yahoo.com/news/water-buffalo-corralled-days-escaped-195316150.html)
 - Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
-- Aug 28 - ['Furious': Veterans slam Trump team's altercation at Arlington National Cemetery](https://www.yahoo.com/news/furious-veterans-slam-trump-teams-184910434.html)
-- Aug 28 - [Captain Who Saw Sicily Yacht Sink Says Mike Lynch’s Wife Didn’t Want to Leave Scene Without Husband and Daughter](https://www.yahoo.com/news/captain-saw-sicily-yacht-sink-183012558.html)
+- Aug 28 - [6 Things You Should Do to Lose Visceral Fat, According to Dietitians](https://www.yahoo.com/lifestyle/6-things-lose-visceral-fat-185401456.html)
 <!-- feed end -->
 
 ### Onstream
