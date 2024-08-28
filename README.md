@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Savvy Sliders is opening two locations in Tippecanoe County](https://finance.yahoo.com/news/savvy-sliders-opening-two-locations-161221278.html)
-- Aug 28 - [Group seems to claim Dred Scott decision means Kamala Harris can’t be president? Really? | Opinion](https://www.yahoo.com/news/gop-group-claims-dred-scott-110800712.html)
-- Aug 28 - [Russia faces "difficult fight" to retake Ukraine-held area, says top US spy](https://www.yahoo.com/news/ukraine-intent-keeping-russian-territory-135642835.html)
-- Aug 28 - [Super Micro stock plunges after company delays annual report following short-seller report](https://finance.yahoo.com/news/super-micro-stock-plunges-after-company-delays-annual-report-following-short-seller-report-135230100.html)
-- Aug 28 - [NHC monitoring 2 areas in Atlantic for possible development](https://www.yahoo.com/news/nhc-monitoring-2-areas-atlantic-124533441.html)
+- Aug 28 - [Northern California deputies searching for at-risk 24-year-old woman from Sacramento](https://www.yahoo.com/news/northern-california-deputies-searching-risk-173527168.html)
+- Aug 28 - [Body of Delta Air Lines worker who died in tire explosion was unrecognizable, son says](https://www.yahoo.com/news/body-delta-air-lines-worker-171121291.html)
+- Aug 28 - [Medical examiner reveals cause of death for Oklahoma Co. inmate](https://www.yahoo.com/news/medical-examiner-reveals-cause-death-162139030.html)
+- Aug 28 - [Opinion - Russians are waking up to Putin’s Ukraine folly](https://www.yahoo.com/news/opinion-russians-waking-putin-ukraine-153000740.html)
+- Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
 <!-- feed end -->
 
 ### Onstream
