@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 28 - [Pennsylvania ammo plant boosts production of key artillery shell in Ukraine's fight against Russia](https://www.yahoo.com/news/pennsylvania-ammo-plant-boosts-production-040348897.html)
 - Aug 28 - [Trump staff had physical altercation with Arlington cemetery official, NPR reports](https://www.yahoo.com/news/trump-staff-had-physical-altercation-020154296.html)
 - Aug 28 - [San Diego police identify officer killed in crash](https://www.yahoo.com/news/san-diego-police-identify-officer-013934957.html)
-- Aug 28 - [Children's book ignites car seat in North Carolina family's minivan minutes after parking](https://www.yahoo.com/news/childrens-book-ignites-car-seat-012457799.html)
 - Aug 28 - [Ukraine drones set oil depot ablaze in Russia's Rostov, governor says](https://www.yahoo.com/news/ukraines-drones-set-oil-depot-010330610.html)
+- Aug 27 - [Costco files to build new $24.6 million Tri-Cities store. But there’s a big catch](https://finance.yahoo.com/news/costco-files-build-24-6-223238697.html)
 <!-- feed end -->
 
 ### Onstream
