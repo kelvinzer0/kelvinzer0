@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Killer with Nazi face tattoos sentenced to death for murder of two women after emotional plea from his parents](https://www.yahoo.com/news/killer-nazi-face-tattoos-sentenced-220553649.html)
-- Aug 27 - [Disbarred celebrity lawyer Tom Girardi found guilty of stealing millions from his clients](https://www.yahoo.com/news/disbarred-celebrity-lawyer-tom-girardi-214912731.html)
-- Aug 27 - [The Japanese device helping workers beat heatstroke](https://www.yahoo.com/news/japanese-device-helping-workers-beat-213802501.html)
-- Aug 27 - [Prosecutors seek death penalty for 3 Americans implicated in alleged coup attempt in Congo](https://www.yahoo.com/news/prosecutors-seek-death-penalty-3-184111632.html)
-- Aug 27 - [Burglary suspect who cried in viral video after judge recognized him from school is back in jail](https://www.yahoo.com/news/burglary-suspect-cried-viral-video-182937504.html)
+- Aug 27 - [Costco files to build new $24.6 million Tri-Cities store. But there’s a big catch](https://finance.yahoo.com/news/costco-files-build-24-6-223238697.html)
+- Aug 27 - [Tesla investor Ross Gerber says he can't get rid of his used Tesla. Here's why Musk's cars aren't retaining value like they used to.](https://autos.yahoo.com/tesla-investor-ross-gerber-says-203616148.html)
+- Aug 27 - [Super Micro stock falls after short seller Hindenburg Research calls company 'serial recidivist' in new report](https://finance.yahoo.com/news/super-micro-stock-falls-after-short-seller-hindenburg-research-calls-company-serial-recidivist-in-new-report-145829899.html)
+- Aug 27 - [Ancient tombs with vibrant wall paintings open to public in southern Israel](https://www.yahoo.com/news/ancient-tombs-vibrant-wall-paintings-170240696.html)
+- Aug 27 - [‘That’s a lady you just hit, sir!’ Singer Scotty McCreery halts concert to call out fan.](https://www.yahoo.com/entertainment/lady-just-hit-sir-singer-164928556.html)
 <!-- feed end -->
 
 ### Onstream
