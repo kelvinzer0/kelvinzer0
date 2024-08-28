@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 28 - [Trump staff had physical altercation with Arlington cemetery official, NPR reports](https://www.yahoo.com/news/trump-staff-had-physical-altercation-020154296.html)
-- Aug 27 - [Costco files to build new $24.6 million Tri-Cities store. But there’s a big catch](https://finance.yahoo.com/news/costco-files-build-24-6-223238697.html)
+- Aug 28 - [San Diego police identify officer killed in crash](https://www.yahoo.com/news/san-diego-police-identify-officer-013934957.html)
+- Aug 28 - [Ukraine's drones set oil depot in Russia's Rostov ablaze, Russian Telegram channels say](https://www.yahoo.com/news/ukraines-drones-set-oil-depot-010330610.html)
+- Aug 28 - [Video shows Texas students pleading with bus driver to keep windows open on scorching day](https://www.yahoo.com/news/video-shows-texas-students-pleading-005858212.html)
 - Aug 27 - [Police in a suburban New York county have made their first arrest under a new law banning face masks](https://www.yahoo.com/news/police-suburban-york-county-made-223042456.html)
-- Aug 27 - [Tesla investor Ross Gerber says he can't get rid of his used Tesla. Here's why Musk's cars aren't retaining value like they used to.](https://autos.yahoo.com/tesla-investor-ross-gerber-says-203616148.html)
-- Aug 27 - [Man, 27, Learns His Recurring Sinus Infection Was Actually a Sign of Rare Cancer: 'Really Scary'](https://www.yahoo.com/news/man-27-learns-recurring-sinus-194932962.html)
 <!-- feed end -->
 
 ### Onstream
