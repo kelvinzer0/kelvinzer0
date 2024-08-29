@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Mexico’s President Is Hell-Bent on Changing the Constitution Before Leaving Office. Why That’s Bad for the Market.](https://www.barrons.com/articles/mexicos-president-exiting-with-a-bang-whats-at-stake-a75bf873?siteid=yhoof2&yptr=yahoo)
+- Aug 29 - [GM must face big class action over faulty transmissions](https://finance.yahoo.com/news/gm-must-face-big-class-191425891.html)
+- Aug 29 - [J.D. Vance Booed by Entire Crowd During Dumpster Fire Speech](https://www.yahoo.com/news/j-d-vance-booed-entire-181225948.html)
 - Aug 29 - [Mars Helicopter Ingenuity Takes Off And Spins As Perseverance Watches](https://www.yahoo.com/news/mars-helicopter-ingenuity-takes-off-170000201.html)
-- Aug 29 - [Man whose escape from Kansas prison was featured in book, TV movie dies behind bars](https://www.yahoo.com/news/man-whose-escape-kansas-prison-164231694.html)
-- Aug 29 - [Lockheed-Raytheon JV secures $1.3 billion Javelin missile contract from U.S. Army](https://finance.yahoo.com/news/lockheed-raytheon-jv-secures-1-162539449.html)
 - Aug 29 - [Kinzinger rips Republicans after Pelosi’s Jan. 6 video surfaces: ‘Makes me furious’](https://www.yahoo.com/news/kinzinger-rips-republicans-pelosi-jan-161330699.html)
+- Aug 29 - [Maryland awards contract for Francis Scott Key Bridge rebuild after deadly collapse](https://www.yahoo.com/news/maryland-awards-contract-francis-scott-152004644.html)
 <!-- feed end -->
 
 ### Onstream
