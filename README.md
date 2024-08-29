@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Las Vegas contractor sentenced for crimes against homeowners](https://www.yahoo.com/news/las-vegas-contractor-sentenced-crimes-011543003.html)
 - Aug 29 - [Planned Terrorist Attack at Taylor Swift Concert Was Intended to Kill “Tens of Thousands of People,” CIA Official Says](https://www.yahoo.com/news/planned-terrorist-attack-taylor-swift-003909962.html)
-- Aug 28 - [FAA grounds SpaceX after rocket falls over in flames at landing](https://www.yahoo.com/news/faa-grounds-spacex-rocket-falls-203334182.html)
-- Aug 28 - [Nvidia fails to impress growth-hungry investors, shares fall](https://finance.yahoo.com/news/nvidia-forecasts-third-quarter-revenue-202225297.html)
-- Aug 28 - [University of San Diego named ‘Most Beautiful Campus’ by The Princeton Review](https://www.yahoo.com/news/university-san-diego-named-most-195204676.html)
-- Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
+- Aug 28 - [Students, parents rally in support of Oklahoma teen told by school not to fly American flag from truck](https://www.yahoo.com/news/students-parents-rally-support-oklahoma-220044603.html)
+- Aug 28 - [Parents of Teen Crash Victim Want Driver's Mom Charged](https://www.yahoo.com/news/parents-teen-crash-victim-want-215539895.html)
+- Aug 28 - [Breaks in only water pipeline for Grand Canyon prompt shutdown of overnight hotel stays](https://www.yahoo.com/news/breaks-main-water-pipeline-grand-215444452.html)
 <!-- feed end -->
 
 ### Onstream
