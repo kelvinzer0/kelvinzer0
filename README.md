@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [The Supreme Court Just Signaled What It Will Do If the Election Is Close](https://www.yahoo.com/news/supreme-court-just-signaled-election-191859936.html)
-- Aug 29 - [GM must face big class action over faulty transmissions](https://finance.yahoo.com/news/gm-must-face-big-class-191425891.html)
-- Aug 29 - [Jack White Gives Donald Trump a Heads Up: “Lawsuit Coming From My Lawyers”](https://www.yahoo.com/entertainment/jack-white-gives-donald-trump-190909322.html)
 - Aug 29 - [Officials probe death of Wells Fargo employee found dead in her cubicle 4 days after last scanning into work](https://www.yahoo.com/news/officials-probe-death-wells-fargo-185604649.html)
-- Aug 29 - [J.D. Vance Booed by Entire Crowd During Dumpster Fire Speech](https://www.yahoo.com/news/j-d-vance-booed-entire-181225948.html)
+- Aug 29 - [Teen girls plotted to slay Broward high schooler over love triangle. They’re off to prison](https://www.yahoo.com/news/teen-girls-plotted-slay-broward-213211652.html)
+- Aug 29 - [Smoke is choking Boise again. Here’s where it’s coming from, how long it will irk us](https://www.yahoo.com/news/smoke-choking-boise-again-where-205758871.html)
+- Aug 29 - [Miami influencer Alix Earle breaks her silence after ‘offensive’ posts were unearthed](https://www.yahoo.com/entertainment/miami-influencer-alix-earle-breaks-205302471.html)
+- Aug 29 - [Kamala Harris Challenged on Policy Flip-Flops in First TV Interview](https://www.yahoo.com/news/kamala-harris-challenged-policy-flip-203426610.html)
 <!-- feed end -->
 
 ### Onstream
