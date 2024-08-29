@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - ["We live in village with the most complaints about HS2 - our homes shake at night"](https://www.yahoo.com/news/live-village-most-complaints-hs2-081820405.html)
-- Aug 29 - [Dogs Have an Absolute Blast at End-of-Season Pool Party](https://www.yahoo.com/news/dogs-absolute-blast-idaho-pools-213803496.html)
+- Aug 29 - [Famine is looming in four Yemeni districts as malnutrition surges among children, a new report says](https://www.yahoo.com/news/famine-looming-four-yemeni-districts-074129388.html)
+- Aug 29 - [Why Russia has struggled to halt Ukraine's incursion in the Kursk region](https://www.yahoo.com/news/why-russia-struggled-halt-ukraines-043312829.html)
 - Aug 29 - [Newborn rattlesnakes at a Colorado 'mega den' are making their live debut](https://www.yahoo.com/news/newborn-rattlesnakes-colorado-mega-den-040237130.html)
 - Aug 29 - [Prehistoric sea cow was eaten by a croc and a shark, newly discovered fossil reveals](https://www.yahoo.com/news/prehistoric-sea-cow-eaten-croc-040119986.html)
 - Aug 29 - [MSNBC Host to Trump Campaign Adviser: I May Sue You for Defamation](https://www.yahoo.com/news/sparks-fly-heated-interview-between-032923132.html)
