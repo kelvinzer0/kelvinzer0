@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 29 - [Officials probe death of Wells Fargo employee found dead in her cubicle 4 days after last scanning into work](https://www.yahoo.com/news/officials-probe-death-wells-fargo-185604649.html)
-- Aug 29 - [Teen girls plotted to slay Broward high schooler over love triangle. They’re off to prison](https://www.yahoo.com/news/teen-girls-plotted-slay-broward-213211652.html)
-- Aug 29 - [Smoke is choking Boise again. Here’s where it’s coming from, how long it will irk us](https://www.yahoo.com/news/smoke-choking-boise-again-where-205758871.html)
 - Aug 29 - [Miami influencer Alix Earle breaks her silence after ‘offensive’ posts were unearthed](https://www.yahoo.com/entertainment/miami-influencer-alix-earle-breaks-205302471.html)
 - Aug 29 - [Kamala Harris Challenged on Policy Flip-Flops in First TV Interview](https://www.yahoo.com/news/kamala-harris-challenged-policy-flip-203426610.html)
+- Aug 29 - [Tallahassee Memorial HealthCare shuts several entrances over 'threatening messages'](https://www.yahoo.com/news/tallahassee-memorial-healthcare-shuts-several-195942940.html)
+- Aug 29 - [Team Trump Makes Arlington Cemetery Fight Way Worse With Army Insult](https://www.yahoo.com/news/team-trump-makes-arlington-cemetery-194619206.html)
 <!-- feed end -->
 
 ### Onstream
