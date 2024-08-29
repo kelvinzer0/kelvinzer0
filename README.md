@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Why Nvidia Stock Is Falling Today](https://finance.yahoo.com/news/why-nvidia-stock-falling-today-143335184.html)
-- Aug 29 - [Naples police say mayor arrested for drunken driving Wednesday night](https://www.yahoo.com/news/naples-police-mayor-arrested-drunken-133934555.html)
-- Aug 29 - [Archaeologists Figured Out How Early Humans Killed Ice Age Mammoths. It’s Not How You Think.](https://www.yahoo.com/news/archaeologists-figured-early-humans-killed-123000735.html)
-- Aug 29 - [Scientists make breakthrough discovery with potential to solve major problem in EV batteries: 'This approach is a game-changer'](https://www.yahoo.com/tech/scientists-breakthrough-discovery-potential-solve-104502044.html)
-- Aug 29 - [Scientists sound the alarm after making puzzling discovery about 'floating' continent: 'It's happening so rapidly that we can see these large effects even in a human lifetime'](https://www.yahoo.com/news/scientists-sound-alarm-making-puzzling-103032739.html)
+- Aug 29 - [Ukraine's top commander says fighting on Pokrovsk front 'exceptionally tough'](https://www.yahoo.com/news/ukraines-top-commander-says-fighting-151516190.html)
+- Aug 29 - [Insects in meats, rancid smell in cooler among findings of Boar's Head plant investigation](https://www.yahoo.com/news/insects-meats-rancid-smell-cooler-144049845.html)
+- Aug 29 - ["Crude, sexist and misogynistic": Trump shares "blowjobs" attack against Harris on Truth Social](https://www.yahoo.com/news/crude-sexist-misogynistic-trump-shares-143322052.html)
+- Aug 29 - [A Gen Xer got $110,000 in student loans forgiven after he'd paid off more than he borrowed. It's allowed him to scrap his plans to work part time in retirement.](https://www.yahoo.com/news/gen-xer-got-110-000-095901249.html)
+- Aug 29 - [Chinese buffet, Mexican restaurant in El Paso receive failing health inspections: See list](https://www.yahoo.com/news/chinese-buffet-mexican-restaurant-el-130320551.html)
 <!-- feed end -->
 
 ### Onstream
