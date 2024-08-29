@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [The Supreme Court Just Signaled What It Will Do If the Election Is Close](https://www.yahoo.com/news/supreme-court-just-signaled-election-191859936.html)
 - Aug 29 - [GM must face big class action over faulty transmissions](https://finance.yahoo.com/news/gm-must-face-big-class-191425891.html)
+- Aug 29 - [Jack White Gives Donald Trump a Heads Up: “Lawsuit Coming From My Lawyers”](https://www.yahoo.com/entertainment/jack-white-gives-donald-trump-190909322.html)
+- Aug 29 - [Officials probe death of Wells Fargo employee found dead in her cubicle 4 days after last scanning into work](https://www.yahoo.com/news/officials-probe-death-wells-fargo-185604649.html)
 - Aug 29 - [J.D. Vance Booed by Entire Crowd During Dumpster Fire Speech](https://www.yahoo.com/news/j-d-vance-booed-entire-181225948.html)
-- Aug 29 - [Mars Helicopter Ingenuity Takes Off And Spins As Perseverance Watches](https://www.yahoo.com/news/mars-helicopter-ingenuity-takes-off-170000201.html)
-- Aug 29 - [Kinzinger rips Republicans after Pelosi’s Jan. 6 video surfaces: ‘Makes me furious’](https://www.yahoo.com/news/kinzinger-rips-republicans-pelosi-jan-161330699.html)
-- Aug 29 - [Maryland awards contract for Francis Scott Key Bridge rebuild after deadly collapse](https://www.yahoo.com/news/maryland-awards-contract-francis-scott-152004644.html)
 <!-- feed end -->
 
 ### Onstream
