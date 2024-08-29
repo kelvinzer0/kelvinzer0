@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Caltrans, Valley agencies must prepare for a ‘carmageddon’ on road to coast | Opinion](https://www.yahoo.com/news/caltrans-valley-agencies-must-prepare-123000709.html)
+- Aug 29 - [27 Unforgivable Things Trader Joe's Employees Absolutely Hate That Customers Do And 4 Things They Absolutely Love](https://www.yahoo.com/lifestyle/27-unforgivable-things-trader-joes-115006697.html)
+- Aug 29 - [Peter Schiff warns of a ‘crashing’ economy, calls Fed’s pivot ‘a mistake’ — but says 1 asset will go ‘through the roof’](https://finance.yahoo.com/news/peter-schiff-warns-crashing-economy-110500929.html)
+- Aug 29 - [Scientists make breakthrough discovery with potential to solve major problem in EV batteries: 'This approach is a game-changer'](https://www.yahoo.com/tech/scientists-breakthrough-discovery-potential-solve-104502044.html)
 - Aug 29 - [Researchers make 'elegant' breakthrough that could change the future of solar power: 'Addressing the key challenges'](https://www.yahoo.com/tech/researchers-elegant-breakthrough-could-change-103044002.html)
-- Aug 29 - [Scientists sound the alarm after making puzzling discovery about 'floating' continent: 'It's happening so rapidly that we can see these large effects even in a human lifetime'](https://www.yahoo.com/news/scientists-sound-alarm-making-puzzling-103032739.html)
-- Aug 29 - [Ukraine's Kursk incursion tests young Russian conscripts' mettle](https://www.yahoo.com/news/ukraines-kursk-incursion-tests-young-101006175.html)
-- Aug 29 - [New Chick-Fil-A coming to Jackson area. See where it will go and when it might open](https://www.yahoo.com/news/chick-fil-coming-jackson-area-094550498.html)
-- Aug 29 - [Newborn rattlesnakes at a Colorado 'mega den' are making their live debut](https://www.yahoo.com/news/newborn-rattlesnakes-colorado-mega-den-040237130.html)
 <!-- feed end -->
 
 ### Onstream
