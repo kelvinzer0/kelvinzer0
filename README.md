@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Nvidia's forecast dampens AI enthusiasm in other tech stocks](https://finance.yahoo.com/news/nvidias-forecast-dampens-ai-enthusiasm-222328734.html)
-- Aug 28 - [Parents of Teen Crash Victim Want Driver's Mom Charged](https://www.yahoo.com/news/parents-teen-crash-victim-want-215539895.html)
-- Aug 28 - [Morning Bid: Nvidia waiting game over, caution descends](https://finance.yahoo.com/news/morning-bid-nvidia-waiting-game-214827289.html)
-- Aug 28 - [CIA Official Says Thwarted Terrorist Plot At Taylor Swift Concert Was Intended To Kill “Tens Of Thousands Of People” Including Americans – Reports](https://www.yahoo.com/news/cia-official-says-thwarted-terrorist-210914830.html)
-- Aug 28 - [With unusual new shields, Ukraine's US-made Abrams tanks and Bradleys are taking hits but surviving, armorer says](https://www.yahoo.com/news/unusual-shields-ukraines-us-made-200530180.html)
+- Aug 29 - [Planned Terrorist Attack at Taylor Swift Concert Was Intended to Kill “Tens of Thousands of People,” CIA Official Says](https://www.yahoo.com/news/planned-terrorist-attack-taylor-swift-003909962.html)
+- Aug 28 - [FAA grounds SpaceX after rocket falls over in flames at landing](https://www.yahoo.com/news/faa-grounds-spacex-rocket-falls-203334182.html)
+- Aug 28 - [Nvidia fails to impress growth-hungry investors, shares fall](https://finance.yahoo.com/news/nvidia-forecasts-third-quarter-revenue-202225297.html)
+- Aug 28 - [University of San Diego named ‘Most Beautiful Campus’ by The Princeton Review](https://www.yahoo.com/news/university-san-diego-named-most-195204676.html)
+- Aug 28 - [Namibia plans to kill more than 700 animals including elephants and hippos — and distribute the meat](https://www.yahoo.com/news/namibia-kill-elephants-zebras-hippos-141118341.html)
 <!-- feed end -->
 
 ### Onstream
