@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [United executive explains why the airline hasn't bought Boeing's newest widebody plane](https://www.yahoo.com/news/united-executive-explains-why-airline-090002427.html)
-- Aug 29 - [India's SpiceJet flies empty in Dubai in second disruption this mth over unpaid airport dues, The Hindu reports](https://finance.yahoo.com/news/dubai-airport-stops-indias-spicejet-064156569.html)
-- Aug 29 - [Why Russia has struggled to halt Ukraine's incursion in the Kursk region](https://www.yahoo.com/news/why-russia-struggled-halt-ukraines-043312829.html)
-- Aug 29 - [Newborn rattlesnakes at a Colorado 'mega den' are making their live debut](https://www.yahoo.com/news/newborn-rattlesnakes-colorado-mega-den-040237130.html)
-- Aug 29 - [Prehistoric sea cow was eaten by a croc and a shark, newly discovered fossil reveals](https://www.yahoo.com/news/prehistoric-sea-cow-eaten-croc-040119986.html)
+- Aug 29 - [How much snow will southcentral Pennsylvania receive? The Old Farmer's Almanac says ...](https://www.yahoo.com/news/much-snow-southcentral-pennsylvania-receive-115654476.html)
+- Aug 29 - [HPD investigate homicide at north Houston Mustang Inn | CW39 Houston](https://www.yahoo.com/news/hpd-investigate-homicide-north-houston-112750844.html)
+- Aug 29 - [Peter Schiff warns of a ‘crashing’ economy, calls Fed’s pivot ‘a mistake’ — but says 1 asset will go ‘through the roof’](https://finance.yahoo.com/news/peter-schiff-warns-crashing-economy-110500929.html)
+- Aug 29 - [Ukraine's Kursk incursion tests young Russian conscripts' mettle](https://www.yahoo.com/news/ukraines-kursk-incursion-tests-young-101006175.html)
+- Aug 29 - [Here Are My Top Artificial Intelligence (AI) Stocks to Buy Right Now](https://finance.yahoo.com/news/top-artificial-intelligence-ai-stocks-082000646.html)
 <!-- feed end -->
 
 ### Onstream
