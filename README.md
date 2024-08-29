@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 28 - [Nvidia's forecast dampens AI enthusiasm in other tech stocks](https://finance.yahoo.com/news/nvidias-forecast-dampens-ai-enthusiasm-222328734.html)
-- Aug 28 - [Former CSX chief, wife donate $1 million to Jacksonville-based literacy nonprofit](https://www.yahoo.com/news/former-csx-chief-wife-donate-220508982.html)
-- Aug 28 - [McDonald’s Serves Up the 14-Ounce ‘Big Arch,’ Its Biggest Hamburger Ever](https://finance.yahoo.com/news/mcdonald-serves-14-ounce-big-214320855.html)
-- Aug 28 - [Dogs Have an Absolute Blast at Idaho Pool's End-of-Season Party](https://www.yahoo.com/news/dogs-absolute-blast-idaho-pools-213803496.html)
-- Aug 28 - [Nvidia's outlook fails to impress growth-hungry investors, shares fall](https://finance.yahoo.com/news/nvidia-forecasts-third-quarter-revenue-202225297.html)
+- Aug 28 - [Parents of Teen Crash Victim Want Driver's Mom Charged](https://www.yahoo.com/news/parents-teen-crash-victim-want-215539895.html)
+- Aug 28 - [Morning Bid: Nvidia waiting game over, caution descends](https://finance.yahoo.com/news/morning-bid-nvidia-waiting-game-214827289.html)
+- Aug 28 - [CIA Official Says Thwarted Terrorist Plot At Taylor Swift Concert Was Intended To Kill “Tens Of Thousands Of People” Including Americans – Reports](https://www.yahoo.com/news/cia-official-says-thwarted-terrorist-210914830.html)
+- Aug 28 - [With unusual new shields, Ukraine's US-made Abrams tanks and Bradleys are taking hits but surviving, armorer says](https://www.yahoo.com/news/unusual-shields-ukraines-us-made-200530180.html)
 <!-- feed end -->
 
 ### Onstream
