@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [How much snow will southcentral Pennsylvania receive? The Old Farmer's Almanac says ...](https://www.yahoo.com/news/much-snow-southcentral-pennsylvania-receive-115654476.html)
-- Aug 29 - [HPD investigate homicide at north Houston Mustang Inn | CW39 Houston](https://www.yahoo.com/news/hpd-investigate-homicide-north-houston-112750844.html)
-- Aug 29 - [Peter Schiff warns of a ‘crashing’ economy, calls Fed’s pivot ‘a mistake’ — but says 1 asset will go ‘through the roof’](https://finance.yahoo.com/news/peter-schiff-warns-crashing-economy-110500929.html)
+- Aug 29 - [Researchers make 'elegant' breakthrough that could change the future of solar power: 'Addressing the key challenges'](https://www.yahoo.com/tech/researchers-elegant-breakthrough-could-change-103044002.html)
+- Aug 29 - [Scientists sound the alarm after making puzzling discovery about 'floating' continent: 'It's happening so rapidly that we can see these large effects even in a human lifetime'](https://www.yahoo.com/news/scientists-sound-alarm-making-puzzling-103032739.html)
 - Aug 29 - [Ukraine's Kursk incursion tests young Russian conscripts' mettle](https://www.yahoo.com/news/ukraines-kursk-incursion-tests-young-101006175.html)
-- Aug 29 - [Here Are My Top Artificial Intelligence (AI) Stocks to Buy Right Now](https://finance.yahoo.com/news/top-artificial-intelligence-ai-stocks-082000646.html)
+- Aug 29 - [New Chick-Fil-A coming to Jackson area. See where it will go and when it might open](https://www.yahoo.com/news/chick-fil-coming-jackson-area-094550498.html)
+- Aug 29 - [Newborn rattlesnakes at a Colorado 'mega den' are making their live debut](https://www.yahoo.com/news/newborn-rattlesnakes-colorado-mega-den-040237130.html)
 <!-- feed end -->
 
 ### Onstream
