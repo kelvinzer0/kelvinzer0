@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Sharks Chomp Through Massive School of Fish Near Long Island Shore](https://www.yahoo.com/news/sharks-chomp-massive-school-fish-172550570.html)
+- Aug 29 - [Mars Helicopter Ingenuity Takes Off And Spins As Perseverance Watches](https://www.yahoo.com/news/mars-helicopter-ingenuity-takes-off-170000201.html)
 - Aug 29 - [Lockheed-Raytheon JV secures $1.3 billion Javelin missile contract from U.S. Army](https://finance.yahoo.com/news/lockheed-raytheon-jv-secures-1-162539449.html)
-- Aug 29 - [Watch: Red pepper spill on California highway turns into 'bee-mergency'](https://www.yahoo.com/news/watch-red-pepper-spill-california-162125416.html)
 - Aug 29 - [Ukraine's top commander says fighting on Pokrovsk front 'exceptionally tough'](https://www.yahoo.com/news/ukraines-top-commander-says-fighting-151516190.html)
-- Aug 29 - [Ukrainian F-16 jet destroyed in crash, US source says](https://www.yahoo.com/news/ukrainian-f-16-jet-destroyed-144701141.html)
-- Aug 29 - [Insects in meats, rancid smell in cooler among findings of Boar's Head plant investigation](https://www.yahoo.com/news/insects-meats-rancid-smell-cooler-144049845.html)
+- Aug 29 - [2025 Ford F-150 Loses Standard SecuriCode Keypad, Now a $455 Dealer Option](https://autos.yahoo.com/2025-ford-f-150-loses-151155739.html)
 <!-- feed end -->
 
 ### Onstream
