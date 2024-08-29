@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [MSNBC Host to Trump Campaign Adviser: I May Sue You for Defamation](https://www.yahoo.com/news/sparks-fly-heated-interview-between-032923132.html)
 - Aug 29 - [Las Vegas contractor sentenced for crimes against homeowners](https://www.yahoo.com/news/las-vegas-contractor-sentenced-crimes-011543003.html)
 - Aug 29 - [Planned Terrorist Attack at Taylor Swift Concert Was Intended to Kill “Tens of Thousands of People,” CIA Official Says](https://www.yahoo.com/news/planned-terrorist-attack-taylor-swift-003909962.html)
-- Aug 28 - [Students, parents rally in support of Oklahoma teen told by school not to fly American flag from truck](https://www.yahoo.com/news/students-parents-rally-support-oklahoma-220044603.html)
+- Aug 28 - [Nvidia's forecast dampens AI enthusiasm in other tech stocks](https://finance.yahoo.com/news/nvidias-forecast-dampens-ai-enthusiasm-222328734.html)
 - Aug 28 - [Parents of Teen Crash Victim Want Driver's Mom Charged](https://www.yahoo.com/news/parents-teen-crash-victim-want-215539895.html)
-- Aug 28 - [Breaks in only water pipeline for Grand Canyon prompt shutdown of overnight hotel stays](https://www.yahoo.com/news/breaks-main-water-pipeline-grand-215444452.html)
 <!-- feed end -->
 
 ### Onstream
