@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Lawyers for man charged in deaths of 4 Idaho students say strong bias means his trial must be moved](https://www.yahoo.com/news/lawyers-man-charged-deaths-4-040458385.html)
+- Aug 29 - ["We live in village with the most complaints about HS2 - our homes shake at night"](https://www.yahoo.com/news/live-village-most-complaints-hs2-081820405.html)
+- Aug 29 - [Dogs Have an Absolute Blast at End-of-Season Pool Party](https://www.yahoo.com/news/dogs-absolute-blast-idaho-pools-213803496.html)
 - Aug 29 - [Newborn rattlesnakes at a Colorado 'mega den' are making their live debut](https://www.yahoo.com/news/newborn-rattlesnakes-colorado-mega-den-040237130.html)
 - Aug 29 - [Prehistoric sea cow was eaten by a croc and a shark, newly discovered fossil reveals](https://www.yahoo.com/news/prehistoric-sea-cow-eaten-croc-040119986.html)
 - Aug 29 - [MSNBC Host to Trump Campaign Adviser: I May Sue You for Defamation](https://www.yahoo.com/news/sparks-fly-heated-interview-between-032923132.html)
-- Aug 29 - [Planned Terrorist Attack at Taylor Swift Concert Was Intended to Kill “Tens of Thousands of People,” CIA Official Says](https://www.yahoo.com/news/planned-terrorist-attack-taylor-swift-003909962.html)
 <!-- feed end -->
 
 ### Onstream
