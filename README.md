@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Lockheed-Raytheon JV secures $1.3 billion Javelin missile contract from U.S. Army](https://finance.yahoo.com/news/lockheed-raytheon-jv-secures-1-162539449.html)
+- Aug 29 - [Watch: Red pepper spill on California highway turns into 'bee-mergency'](https://www.yahoo.com/news/watch-red-pepper-spill-california-162125416.html)
 - Aug 29 - [Ukraine's top commander says fighting on Pokrovsk front 'exceptionally tough'](https://www.yahoo.com/news/ukraines-top-commander-says-fighting-151516190.html)
+- Aug 29 - [Ukrainian F-16 jet destroyed in crash, US source says](https://www.yahoo.com/news/ukrainian-f-16-jet-destroyed-144701141.html)
 - Aug 29 - [Insects in meats, rancid smell in cooler among findings of Boar's Head plant investigation](https://www.yahoo.com/news/insects-meats-rancid-smell-cooler-144049845.html)
-- Aug 29 - ["Crude, sexist and misogynistic": Trump shares "blowjobs" attack against Harris on Truth Social](https://www.yahoo.com/news/crude-sexist-misogynistic-trump-shares-143322052.html)
-- Aug 29 - [A Gen Xer got $110,000 in student loans forgiven after he'd paid off more than he borrowed. It's allowed him to scrap his plans to work part time in retirement.](https://www.yahoo.com/news/gen-xer-got-110-000-095901249.html)
-- Aug 29 - [Chinese buffet, Mexican restaurant in El Paso receive failing health inspections: See list](https://www.yahoo.com/news/chinese-buffet-mexican-restaurant-el-130320551.html)
 <!-- feed end -->
 
 ### Onstream
