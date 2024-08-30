@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
-- Aug 30 - [Truck Driver Attacked In California Street Takeover](https://autos.yahoo.com/truck-driver-attacked-california-street-183000915.html)
+- Aug 30 - [Mexican drug lord who founded ultra-violent Zetas is released from US prison](https://www.yahoo.com/news/infamous-mexican-drug-lord-released-174432186.html)
 - Aug 30 - [Comedian Cracks Up Obama With Spot-On Obama Impression](https://www.yahoo.com/entertainment/comedian-cracks-obama-spot-obama-172038530.html)
-- Aug 30 - [Former Miss Teen USA Contestant Decries Resurfacing Of Embarrassing Clip While JD Vance Refuses To Apologize](https://www.yahoo.com/news/former-miss-teen-usa-contestant-170106113.html)
+- Aug 30 - [Former Miss Teen USA Contestant Decries Resurfacing Of Embarrassing Clip While JD Vance Refuses To Apologize](https://www.yahoo.com/entertainment/former-miss-teen-usa-contestant-170106113.html)
 - Aug 30 - [Passengers bought berths on a 3-year cruise. Months on, the ship is still stuck in Belfast](https://www.yahoo.com/lifestyle/passengers-bought-berths-3-cruise-165843993.html)
 <!-- feed end -->
 
