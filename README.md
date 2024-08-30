@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Shakedown or 'cheap spy novel': What did L.A. investigators do for a Chinese millionaire?](https://www.yahoo.com/news/shakedown-cheap-spy-novel-did-100013865.html)
+- Aug 30 - [‘Street Thug’ Putin and His Allies Considering Invasion of 3 More Countries](https://www.yahoo.com/news/street-thug-putin-allies-considering-115757925.html)
+- Aug 30 - [Trump Served With Brutal Receipts After Ranting About Public Sleeping](https://www.yahoo.com/news/trump-served-brutal-receipts-ranting-114440248.html)
 - Aug 30 - [She's a Norwegian princess. He's an American self-professed shaman. Their wedding is this weekend](https://www.yahoo.com/entertainment/shes-norwegian-princess-hes-american-093606812.html)
+- Aug 30 - [Eye Doctors Are Practically Begging You To Never, Ever Do These 9 Things](https://www.yahoo.com/lifestyle/eye-doctors-practically-begging-never-091602182.html)
 - Aug 30 - [Ancient humans built a bridge inside a cave on Mallorca nearly 6,000 years ago](https://www.yahoo.com/news/ancient-humans-built-bridge-inside-090021803.html)
-- Aug 30 - [A toddler cried non-stop during a flight. Two strangers locked her in the bathroom](https://www.yahoo.com/news/crying-toddler-locked-airplane-bathroom-074515208.html)
-- Aug 30 - [Exclusive-Russia payment hurdles with China partners intensified in August, sources say](https://finance.yahoo.com/news/exclusive-russia-payment-hurdles-china-050328777.html)
 <!-- feed end -->
 
 ### Onstream
