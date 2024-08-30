@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Average American starts caring about their skin at this age](https://www.yahoo.com/lifestyle/average-american-starts-caring-skin-082128802.html)
+- Aug 30 - [Thousands have requested mail-in, absentee ballots in Wayne County. How the process works](https://www.yahoo.com/news/thousands-requested-mail-absentee-ballots-090727170.html)
+- Aug 30 - [Is It Smart to Buy Stocks With the S&P 500 at an All-Time High? History Has a Clear Answer](https://finance.yahoo.com/news/smart-buy-stocks-p-500-085000316.html)
+- Aug 30 - [3 Magnificent Stocks That Created Many Millionaires and Will Continue to Make More](https://finance.yahoo.com/news/3-magnificent-stocks-created-many-083500777.html)
 - Aug 30 - [A toddler cried non-stop during a flight. Two strangers locked her in the bathroom](https://www.yahoo.com/news/crying-toddler-locked-airplane-bathroom-074515208.html)
-- Aug 30 - [Exclusive-Russia payment hurdles with China partners intensified in August, sources say](https://finance.yahoo.com/news/exclusive-russia-payment-hurdles-china-050328777.html)
-- Aug 30 - [Opinion: Kamala Harris Hits It Out of the Park, CNN Not So Much](https://www.yahoo.com/news/opinion-kamala-harris-hits-park-040922964.html)
-- Aug 30 - [NASA finally gives Boeing Starliner capsule a return date. But it will fly home without its crew](https://www.yahoo.com/news/nasa-finally-gives-boeing-starliner-231726196.html)
+- Aug 30 - [Hillsborough County deputy dies by suicide, sheriff’s office says](https://www.yahoo.com/news/hillsborough-county-deputy-dies-suicide-023900286.html)
 <!-- feed end -->
 
 ### Onstream
