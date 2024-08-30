@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [Average American starts caring about their skin at this age](https://www.yahoo.com/lifestyle/average-american-starts-caring-skin-082128802.html)
+- Aug 30 - [A toddler cried non-stop during a flight. Two strangers locked her in the bathroom](https://www.yahoo.com/news/crying-toddler-locked-airplane-bathroom-074515208.html)
 - Aug 30 - [Exclusive-Russia payment hurdles with China partners intensified in August, sources say](https://finance.yahoo.com/news/exclusive-russia-payment-hurdles-china-050328777.html)
+- Aug 30 - [Opinion: Kamala Harris Hits It Out of the Park, CNN Not So Much](https://www.yahoo.com/news/opinion-kamala-harris-hits-park-040922964.html)
 - Aug 30 - [NASA finally gives Boeing Starliner capsule a return date. But it will fly home without its crew](https://www.yahoo.com/news/nasa-finally-gives-boeing-starliner-231726196.html)
-- Aug 29 - [Moore says he made an 'honest mistake' failing to correct application claiming Bronze Star](https://www.yahoo.com/news/moore-says-made-honest-mistake-230755520.html)
-- Aug 29 - [The Supreme Court Just Signaled What It Will Do If the Election Is Close](https://www.yahoo.com/news/supreme-court-just-signaled-election-191859936.html)
-- Aug 29 - [GM must face big class action over faulty transmissions](https://finance.yahoo.com/news/gm-must-face-big-class-191425891.html)
 <!-- feed end -->
 
 ### Onstream
