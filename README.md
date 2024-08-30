@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Israel says it killed a top Hamas commander in West Bank](https://www.yahoo.com/news/israel-says-killed-top-hamas-194955719.html)
-- Aug 30 - [For the Price of a Tiny N.YC. Apartment, You Could Snag a Sprawling Villa in Calabria, Italy](https://www.yahoo.com/lifestyle/price-tiny-n-yc-apartment-193000281.html)
-- Aug 30 - [Walter Chrysler's great-grandson wants to buy Chrysler, Dodge; Stellantis says no thanks](https://finance.yahoo.com/news/walter-chryslers-great-grandson-wants-185716295.html)
 - Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
+- Aug 30 - [Truck Driver Attacked In California Street Takeover](https://autos.yahoo.com/truck-driver-attacked-california-street-183000915.html)
 - Aug 30 - [Comedian Cracks Up Obama With Spot-On Obama Impression](https://www.yahoo.com/entertainment/comedian-cracks-obama-spot-obama-172038530.html)
+- Aug 30 - [Former Miss Teen USA Contestant Decries Resurfacing Of Embarrassing Clip While JD Vance Refuses To Apologize](https://www.yahoo.com/news/former-miss-teen-usa-contestant-170106113.html)
+- Aug 30 - [Passengers bought berths on a 3-year cruise. Months on, the ship is still stuck in Belfast](https://www.yahoo.com/lifestyle/passengers-bought-berths-3-cruise-165843993.html)
 <!-- feed end -->
 
 ### Onstream
