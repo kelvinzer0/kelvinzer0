@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Chuco Tango takedown: FBI, DEA strike El Paso gang with over dozen arrests](https://www.yahoo.com/news/chuco-tango-takedown-fbi-dea-125327972.html)
-- Aug 30 - [‘Street Thug’ Putin and His Allies Considering Invasion of 3 More Countries](https://www.yahoo.com/news/street-thug-putin-allies-considering-115757925.html)
+- Aug 30 - [Boeing Execs Yelled in Rage as NASA Chose SpaceX to Rescue Stranded Starliner Astronauts](https://www.yahoo.com/news/boeing-execs-yelled-rage-nasa-141938892.html)
+- Aug 30 - [‘I’m not going to apologize for posting a joke’: Vance asked about post featuring Miss Teen USA contestant](https://www.yahoo.com/news/m-not-going-apologize-posting-133634404.html)
+- Aug 30 - [Police Bodycam Footage Shows Cop Shooting Family Dog](https://www.yahoo.com/news/police-bodycam-footage-shows-cop-123502303.html)
+- Aug 30 - [Trump Served With Brutal Receipts After Ranting About Public Sleeping](https://www.yahoo.com/news/trump-served-brutal-receipts-ranting-114440248.html)
 - Aug 30 - [Opinion - If Trump loses, expect a Republican civil war](https://www.yahoo.com/news/opinion-trump-loses-expect-republican-110000954.html)
-- Aug 30 - [She's a Norwegian princess. He's an American self-professed shaman. Their wedding is this weekend](https://www.yahoo.com/entertainment/shes-norwegian-princess-hes-american-093606812.html)
-- Aug 30 - [Eye Doctors Are Practically Begging You To Never, Ever Do These 9 Things](https://www.yahoo.com/lifestyle/eye-doctors-practically-begging-never-091602182.html)
 <!-- feed end -->
 
 ### Onstream
