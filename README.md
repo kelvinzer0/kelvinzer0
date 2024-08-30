@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Stock Market Holidays 2024: Does Wall Street Take Labor Day Off?](https://www.investors.com/research/stock-market-holidays-24-labor-day/?src=A00220&yptr=yahoo)
-- Aug 30 - [Giuliani is sued by Georgia election workers who won $148 million judgment](https://www.yahoo.com/news/giuliani-sued-georgia-election-workers-151558518.html)
-- Aug 30 - [Trump Team Desperately Tries to Rewind His Shocking Abortion Comment](https://www.yahoo.com/news/trump-team-desperately-tries-rewind-134606207.html)
-- Aug 30 - [‘I’m not going to apologize for posting a joke’: Vance asked about post featuring Miss Teen USA contestant](https://www.yahoo.com/news/m-not-going-apologize-posting-133634404.html)
-- Aug 30 - [‘Street Thug’ Putin and His Allies Considering Invasion of 3 More Countries](https://www.yahoo.com/news/street-thug-putin-allies-considering-115757925.html)
+- Aug 30 - [Your iPhone might not be compatible with iOS 18. Here are the eligible devices](https://www.yahoo.com/news/your-iphone-might-not-be-compatible-with-ios-18-here-are-the-eligible-devices-161649447.html)
+- Aug 30 - [Man facing ‘death by auto’ charges in drunken crash that killed Johnny Gaudreau, brother, police say](https://www.yahoo.com/news/man-facing-death-auto-charges-160915597.html)
+- Aug 30 - [450 housing units, 173 hotel rooms, 30 shops. Valley Children’s unveils development plans](https://www.yahoo.com/news/450-housing-units-173-hotel-154843851.html)
+- Aug 30 - [Donald Trump Shares Bizarre Photoshopped Image Showing Himself, JD Vance, Elon Musk and Others as DC Superheroes](https://www.yahoo.com/entertainment/donald-trump-shares-bizarre-photoshopped-153427217.html)
+- Aug 30 - [Watch: Trump Struggles to Keep Track of His Thoughts in Weirdest Rant](https://www.yahoo.com/news/watch-trump-struggles-keep-track-151906785.html)
 <!-- feed end -->
 
 ### Onstream
