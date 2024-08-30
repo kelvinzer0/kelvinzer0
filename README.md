@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [NASA finally gives Boeing Starliner capsule a return date. But it will fly home without its crew](https://www.yahoo.com/news/nasa-finally-gives-boeing-starliner-231726196.html)
-- Aug 29 - [Northwest Florida undercover operation leads to arrests of 8 men trying to meet 14-year-old girl](https://www.yahoo.com/news/northwest-florida-undercover-operation-leads-212411506.html)
+- Aug 30 - [NASA finally gives Boeing Starliner capsule a return date. But it will fly home without its crew](https://www.yahoo.com/news/nasa-finally-gives-boeing-starliner-231726196.html)
+- Aug 29 - [Moore says he made an 'honest mistake' failing to correct application claiming Bronze Star](https://www.yahoo.com/news/moore-says-made-honest-mistake-230755520.html)
+- Aug 29 - [A smashing good time: Hard Rock Casino Rockford opens with signature 'guitar smash'](https://www.yahoo.com/news/smashing-good-time-hard-rock-222622452.html)
 - Aug 29 - [The Supreme Court Just Signaled What It Will Do If the Election Is Close](https://www.yahoo.com/news/supreme-court-just-signaled-election-191859936.html)
-- Aug 29 - [J.D. Vance Booed by Entire Crowd During Dumpster Fire Speech](https://www.yahoo.com/news/j-d-vance-booed-entire-181225948.html)
-- Aug 29 - [Mars Helicopter Ingenuity Takes Off And Spins As Perseverance Watches](https://www.yahoo.com/news/mars-helicopter-ingenuity-takes-off-170000201.html)
+- Aug 29 - [Nvidia investors should've sold the stock a month ago, strategist says](https://finance.yahoo.com/news/nvidia-investors-shouldve-sold-the-stock-a-month-ago-strategist-says-191451119.html)
 <!-- feed end -->
 
 ### Onstream
