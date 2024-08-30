@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 30 - [Comedian Cracks Up Obama With Spot-On Obama Impression](https://www.yahoo.com/entertainment/comedian-cracks-obama-spot-obama-172038530.html)
-- Aug 30 - [Intel's Stock Is Rising After a Report Says It Might Sell Its Foundry Business](https://finance.yahoo.com/news/intels-stock-rising-report-says-163431400.html)
 - Aug 30 - [NASA cuts 2 from next SpaceX flight to make room for astronauts stuck at space station](https://www.yahoo.com/news/nasa-cuts-2-next-spacex-162857871.html)
 - Aug 30 - [Your iPhone might not be compatible with iOS 18. Here are the eligible devices](https://www.yahoo.com/news/your-iphone-might-not-be-compatible-with-ios-18-here-are-the-eligible-devices-161649447.html)
 - Aug 30 - [Man facing ‘death by auto’ charges in drunken crash that killed Johnny Gaudreau, brother, police say](https://www.yahoo.com/news/man-facing-death-auto-charges-160915597.html)
+- Aug 30 - [Man arrested for murder in case of couple missing from California nudist community](https://www.yahoo.com/news/arrest-made-amid-search-couple-125934928.html)
 <!-- feed end -->
 
 ### Onstream
