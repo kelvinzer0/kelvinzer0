@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [World’s largest film piracy network shut down by police and Hollywood studios](https://www.yahoo.com/news/world-largest-film-piracy-network-062953897.html)
 - Aug 30 - [NASA finally gives Boeing Starliner capsule a return date. But it will fly home without its crew](https://www.yahoo.com/news/nasa-finally-gives-boeing-starliner-231726196.html)
-- Aug 29 - [Moore says he made an 'honest mistake' failing to correct application claiming Bronze Star](https://www.yahoo.com/news/moore-says-made-honest-mistake-230755520.html)
 - Aug 29 - [The Supreme Court Just Signaled What It Will Do If the Election Is Close](https://www.yahoo.com/news/supreme-court-just-signaled-election-191859936.html)
 - Aug 29 - [GM must face big class action over faulty transmissions](https://finance.yahoo.com/news/gm-must-face-big-class-191425891.html)
-- Aug 29 - [Pentagon withholds $5 million per F-35 jet as deliveries resume](https://www.yahoo.com/news/pentagon-withholds-5-million-per-150641622.html)
+- Aug 29 - [Largest pharmacy burglary ring in DEA history ends with 42 indicted in Arkansas](https://www.yahoo.com/news/us-attorney-dea-us-marshals-185739455.html)
 <!-- feed end -->
 
 ### Onstream
