@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Officials probe death of Wells Fargo employee found dead in her cubicle 4 days after last scanning into work](https://www.yahoo.com/news/officials-probe-death-wells-fargo-185604649.html)
-- Aug 29 - [Miami influencer Alix Earle breaks her silence after ‘offensive’ posts were unearthed](https://www.yahoo.com/entertainment/miami-influencer-alix-earle-breaks-205302471.html)
-- Aug 29 - [Kamala Harris Challenged on Policy Flip-Flops in First TV Interview](https://www.yahoo.com/news/kamala-harris-challenged-policy-flip-203426610.html)
-- Aug 29 - [Tallahassee Memorial HealthCare shuts several entrances over 'threatening messages'](https://www.yahoo.com/news/tallahassee-memorial-healthcare-shuts-several-195942940.html)
-- Aug 29 - [Team Trump Makes Arlington Cemetery Fight Way Worse With Army Insult](https://www.yahoo.com/news/team-trump-makes-arlington-cemetery-194619206.html)
+- Aug 29 - [NASA finally gives Boeing Starliner capsule a return date. But it will fly home without its crew](https://www.yahoo.com/news/nasa-finally-gives-boeing-starliner-231726196.html)
+- Aug 29 - [Northwest Florida undercover operation leads to arrests of 8 men trying to meet 14-year-old girl](https://www.yahoo.com/news/northwest-florida-undercover-operation-leads-212411506.html)
+- Aug 29 - [The Supreme Court Just Signaled What It Will Do If the Election Is Close](https://www.yahoo.com/news/supreme-court-just-signaled-election-191859936.html)
+- Aug 29 - [J.D. Vance Booed by Entire Crowd During Dumpster Fire Speech](https://www.yahoo.com/news/j-d-vance-booed-entire-181225948.html)
+- Aug 29 - [Mars Helicopter Ingenuity Takes Off And Spins As Perseverance Watches](https://www.yahoo.com/news/mars-helicopter-ingenuity-takes-off-170000201.html)
 <!-- feed end -->
 
 ### Onstream
