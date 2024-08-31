@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [10 Best Florida Cities To Retire on $3,000 a Month](https://finance.yahoo.com/news/20-best-florida-cities-retire-110024749.html)
+- Aug 31 - [What the gap between retirement expectations and reality tells us](https://finance.yahoo.com/news/what-the-gap-between-retirement-expectations-and-reality-tells-us-123349640.html)
 - Aug 31 - [Poll-topping Austrian party vows to enshrine two genders in constitution](https://www.yahoo.com/news/poll-topping-austrian-party-vows-122522155.html)
+- Aug 31 - [Catholic diocese sues US government, worried some foreign-born priests might be forced to leave](https://www.yahoo.com/news/catholic-diocese-sues-us-government-122146135.html)
 - Aug 31 - [People Who Make Over $150k A Year Are Sharing What They Do...In Case You're Tired Of Everything Inflating Besides Your Salary](https://www.yahoo.com/lifestyle/people-over-150k-sharing-case-121603001.html)
-- Aug 31 - [This line from Kamala Harris in CNN interview shows why she shouldn’t be president | Opinion](https://www.yahoo.com/news/line-kamala-harris-cnn-interview-102500539.html)
-- Aug 31 - [Man killed in recent motorcycle crash was Penn State alumnus, former Blue Band member](https://www.yahoo.com/news/man-killed-recent-motorcycle-crash-090800580.html)
-- Aug 31 - [A rare look at the lousy life aboard China's 'Dragon Palace' submarines](https://www.yahoo.com/news/rare-look-lousy-life-aboard-090002977.html)
 <!-- feed end -->
 
 ### Onstream
