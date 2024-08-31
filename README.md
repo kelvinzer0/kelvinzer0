@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Mega Millions for Friday, Aug. 30, 2024, is a $627 million jackpot. Check your numbers!](https://www.yahoo.com/news/mega-millions-friday-aug-30-031054563.html)
-- Aug 31 - [Empty Boeing Starliner spacecraft could return next week](https://www.yahoo.com/news/empty-boeing-starliner-spacecraft-could-031029687.html)
-- Aug 30 - [Mexican drug lord Osiel Cárdenas Guillén has been released from a US prison and may be deported](https://www.yahoo.com/news/mexican-drug-lord-osiel-c-234755518.html)
+- Aug 30 - [Las Vegas police sergeant jailed as part of investigation into Strip arrests: sources](https://www.yahoo.com/news/las-vegas-police-sergeant-jailed-234946928.html)
 - Aug 30 - [Video shows teen driving nearly 140 mph days before fatal crash outside Detroit](https://www.yahoo.com/news/video-shows-teen-driving-nearly-233114254.html)
-- Aug 30 - [Lousiville City Schools drops ‘offensive’ gesture from band performance](https://www.yahoo.com/news/lousiville-city-schools-drops-offensive-222154481.html)
+- Aug 30 - [Women's college in Virginia bars transgender students based on founder's will from 1900](https://www.yahoo.com/news/womens-college-virginia-bars-transgender-224505570.html)
+- Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
+- Aug 30 - ['Paper or plastic?' will no longer be a choice at California grocery stores](https://www.yahoo.com/news/paper-plastic-no-longer-choice-184106505.html)
 <!-- feed end -->
 
 ### Onstream
