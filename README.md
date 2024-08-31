@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 30 - [Trump turns to Truth Social to share sexual jokes and calls for ‘military tribunals’](https://www.yahoo.com/news/trump-turns-truth-social-share-222158489.html)
-- Aug 30 - [Pitt running back Rodney Hammond Jr. declared ineligible for 2024 season](https://sports.yahoo.com/pitt-running-back-rodney-hammond-190825056.html)
+- Aug 30 - [What is the most dangerous intersection in St. Louis? Report reveals](https://www.yahoo.com/news/most-dangerous-intersection-st-louis-190802636.html)
 - Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
 - Aug 30 - [Mexican drug lord who founded ultra-violent Zetas is released from US prison](https://www.yahoo.com/news/infamous-mexican-drug-lord-released-174432186.html)
-- Aug 30 - [Comedian Cracks Up Obama With Spot-On Obama Impression](https://www.yahoo.com/entertainment/comedian-cracks-obama-spot-obama-172038530.html)
+- Aug 30 - [Where Middle Tennessee’s sobriety checkpoints will be — and a backup plan for those without a DD](https://www.yahoo.com/news/where-middle-tennessee-sobriety-checkpoints-170000101.html)
 <!-- feed end -->
 
 ### Onstream
