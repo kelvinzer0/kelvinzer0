@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Atwater special education teacher arrested, officials say](https://www.yahoo.com/news/atwater-special-education-teacher-arrested-060045994.html)
-- Aug 31 - [Suspects in Upper Darby armed carjacking identified as 23-year-old woman, 20-year-old male](https://www.yahoo.com/news/suspects-upper-darby-armed-carjacking-002512053.html)
-- Aug 30 - [Video shows teen driving nearly 140 mph days before fatal crash outside Detroit](https://www.yahoo.com/news/video-shows-teen-driving-nearly-233114254.html)
+- Aug 31 - [Authorities work to identify human remains found in concrete ‘bunker’ under missing California couple’s neighbor’s home](https://www.yahoo.com/news/authorities-identify-human-remains-found-064049850.html)
 - Aug 30 - [Women's college in Virginia bars transgender students based on founder's will from 1900](https://www.yahoo.com/news/womens-college-virginia-bars-transgender-224505570.html)
-- Aug 30 - [Lousiville City Schools drops ‘offensive’ gesture from band performance](https://www.yahoo.com/news/lousiville-city-schools-drops-offensive-222154481.html)
+- Aug 30 - [Hilton Head Island lifeguards clear water after shark sighting off beach Friday morning](https://www.yahoo.com/news/hilton-head-island-lifeguards-clear-211531351.html)
+- Aug 30 - [Pitt running back Rodney Hammond Jr. declared ineligible for 2024 season](https://sports.yahoo.com/pitt-running-back-rodney-hammond-190825056.html)
+- Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
 <!-- feed end -->
 
 ### Onstream
