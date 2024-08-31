@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Trump turns to Truth Social to share sexual jokes and calls for ‘military tribunals’](https://www.yahoo.com/news/trump-turns-truth-social-share-222158489.html)
-- Aug 30 - [What is the most dangerous intersection in St. Louis? Report reveals](https://www.yahoo.com/news/most-dangerous-intersection-st-louis-190802636.html)
+- Aug 31 - [Woman, child and pets rescued from sailboat after being stranded 925 miles off Honolulu during Hurricane Gilma](https://www.yahoo.com/news/woman-child-pets-rescued-sailboat-005906675.html)
+- Aug 30 - [Mexican drug lord Osiel Cárdenas Guillén has been released from a US prison and may be deported](https://www.yahoo.com/news/mexican-drug-lord-osiel-c-234755518.html)
+- Aug 30 - [Exclusive-China's Sinochem plans to exit US shale JV with Exxon, sources say](https://finance.yahoo.com/news/exclusive-chinas-sinochem-plans-exit-210103376.html)
 - Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
-- Aug 30 - [Mexican drug lord who founded ultra-violent Zetas is released from US prison](https://www.yahoo.com/news/infamous-mexican-drug-lord-released-174432186.html)
-- Aug 30 - [Where Middle Tennessee’s sobriety checkpoints will be — and a backup plan for those without a DD](https://www.yahoo.com/news/where-middle-tennessee-sobriety-checkpoints-170000101.html)
+- Aug 30 - ['Paper or plastic?' will no longer be a choice at California grocery stores](https://www.yahoo.com/news/paper-plastic-no-longer-choice-184106505.html)
 <!-- feed end -->
 
 ### Onstream
