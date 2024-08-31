@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Las Vegas police sergeant jailed as part of investigation into Strip arrests: sources](https://www.yahoo.com/news/las-vegas-police-sergeant-jailed-234946928.html)
 - Aug 30 - [Video shows teen driving nearly 140 mph days before fatal crash outside Detroit](https://www.yahoo.com/news/video-shows-teen-driving-nearly-233114254.html)
-- Aug 30 - [Women's college in Virginia bars transgender students based on founder's will from 1900](https://www.yahoo.com/news/womens-college-virginia-bars-transgender-224505570.html)
+- Aug 30 - [Man arrested, accused of trying to kidnap a child from a Ky. school playground](https://www.yahoo.com/news/man-arrested-accused-trying-kidnap-220616523.html)
+- Aug 30 - [Woman Disgusted When She Uses Tracker to See Where Her Plastic Recycling Really Ends Up](https://www.yahoo.com/news/woman-disgusted-she-uses-tracker-212048434.html)
 - Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
-- Aug 30 - ['Paper or plastic?' will no longer be a choice at California grocery stores](https://www.yahoo.com/news/paper-plastic-no-longer-choice-184106505.html)
+- Aug 30 - [Salt Lake Temple towers loaded on new seismic foundation as renovations continue](https://www.yahoo.com/news/salt-lake-temple-towers-loaded-182628401.html)
 <!-- feed end -->
 
 ### Onstream
