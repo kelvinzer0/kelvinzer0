@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Mega Millions winning numbers for August 30 drawing; Jackpot soars to $627 million](https://www.yahoo.com/news/mega-millions-winning-numbers-august-010017686.html)
 - Aug 30 - [Video shows teen driving nearly 140 mph days before fatal crash outside Detroit](https://www.yahoo.com/news/video-shows-teen-driving-nearly-233114254.html)
-- Aug 30 - [Man arrested, accused of trying to kidnap a child from a Ky. school playground](https://www.yahoo.com/news/man-arrested-accused-trying-kidnap-220616523.html)
-- Aug 30 - [Woman Disgusted When She Uses Tracker to See Where Her Plastic Recycling Really Ends Up](https://www.yahoo.com/news/woman-disgusted-she-uses-tracker-212048434.html)
+- Aug 30 - [What is the most dangerous intersection in St. Louis? Report reveals](https://www.yahoo.com/news/most-dangerous-intersection-st-louis-190802636.html)
 - Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
-- Aug 30 - [Salt Lake Temple towers loaded on new seismic foundation as renovations continue](https://www.yahoo.com/news/salt-lake-temple-towers-loaded-182628401.html)
+- Aug 30 - [Why a private school in Charlotte may be shuttering its state championship basketball team](https://www.yahoo.com/news/why-private-school-charlotte-may-174348790.html)
 <!-- feed end -->
 
 ### Onstream
