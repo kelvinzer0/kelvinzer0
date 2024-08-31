@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Crew member on Mike Lynch yacht tells of being thrown into water](https://www.yahoo.com/news/crew-member-mike-lynch-yacht-172125052.html)
+- Aug 31 - [2 men arrested in connection to shooting death of 12-year-old girl charged](https://www.yahoo.com/news/2-men-arrested-connection-shooting-165428589.html)
 - Aug 31 - [People Are Fuming After Reading These 12 Ignorant Things Medical Doctors Actually Said To Their Patients](https://www.yahoo.com/lifestyle/people-fuming-reading-12-ignorant-161303815.html)
+- Aug 31 - [Four Ways To Invest $10,000 For The Short Term](https://finance.yahoo.com/news/four-ways-invest-10-000-160818039.html)
 - Aug 31 - [Company to lay off 217 Charlotte-area workers, shutter its plant, state filing shows](https://finance.yahoo.com/news/company-lay-off-217-charlotte-143542578.html)
-- Aug 31 - [She attended Arlington National Cemetery event at center of Trump controversy. Here’s what she saw](https://www.yahoo.com/news/she-attended-arlington-national-cemetery-143403218.html)
-- Aug 31 - [Russia searches for missing helicopter with 22 on board](https://www.yahoo.com/news/russia-searches-missing-helicopter-22-132905618.html)
-- Aug 31 - [Des Moines airport to temporarily close entrance during peak travel hours. Here's when](https://www.yahoo.com/news/des-moines-airport-temporarily-close-130213908.html)
 <!-- feed end -->
 
 ### Onstream
