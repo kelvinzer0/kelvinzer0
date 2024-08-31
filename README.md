@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Authorities work to identify human remains found in concrete ‘bunker’ under missing California couple’s neighbor’s home](https://www.yahoo.com/news/authorities-identify-human-remains-found-064049850.html)
-- Aug 30 - [Women's college in Virginia bars transgender students based on founder's will from 1900](https://www.yahoo.com/news/womens-college-virginia-bars-transgender-224505570.html)
-- Aug 30 - [Hilton Head Island lifeguards clear water after shark sighting off beach Friday morning](https://www.yahoo.com/news/hilton-head-island-lifeguards-clear-211531351.html)
-- Aug 30 - [Pitt running back Rodney Hammond Jr. declared ineligible for 2024 season](https://sports.yahoo.com/pitt-running-back-rodney-hammond-190825056.html)
-- Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
+- Aug 31 - [NATO chief: Ukraine did not coordinate Kursk offensive in advance](https://www.yahoo.com/news/nato-chief-ukraine-did-not-094118530.html)
+- Aug 31 - [NASA's huge spacecraft will soon launch to alluring ocean world](https://www.yahoo.com/lifestyle/nasas-huge-spacecraft-soon-launch-090000438.html)
+- Aug 30 - [Pinellas family blames loophole in National Flood Insurance Policy for coverage denial](https://www.yahoo.com/news/pinellas-family-blames-loophole-national-224840759.html)
+- Aug 30 - [Trump turns to Truth Social to share sexual jokes and calls for ‘military tribunals’](https://www.yahoo.com/news/trump-turns-truth-social-share-222158489.html)
+- Aug 30 - [Las Vegas man faces charges including DUI after crash near Red Rock kills motorcyclist](https://www.yahoo.com/news/las-vegas-man-faces-charges-191410865.html)
 <!-- feed end -->
 
 ### Onstream
