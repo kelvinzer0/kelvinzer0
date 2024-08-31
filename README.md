@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Master stroke or folly? Ukraine could pay high price for its Kursk incursion](https://www.yahoo.com/news/master-stroke-folly-ukraine-could-114237062.html)
 - Aug 31 - [This line from Kamala Harris in CNN interview shows why she shouldn’t be president | Opinion](https://www.yahoo.com/news/line-kamala-harris-cnn-interview-102500539.html)
 - Aug 31 - [A rare look at the lousy life aboard China's 'Dragon Palace' submarines](https://www.yahoo.com/news/rare-look-lousy-life-aboard-090002977.html)
 - Aug 31 - [Nvidia's $50 Billion Share Buyback Is an Epically Bad Decision That Sends the Wrong Message to Wall Street and Investors](https://finance.yahoo.com/news/nvidias-50-billion-share-buyback-084100268.html)
-- Aug 30 - [What is the most dangerous intersection in St. Louis? Report reveals](https://www.yahoo.com/news/most-dangerous-intersection-st-louis-190802636.html)
-- Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
+- Aug 31 - [Man Storms Press Gallery After Trump Attacks Media During Pennsylvania Rally | Video](https://www.yahoo.com/news/man-storms-press-gallery-trump-032253765.html)
 <!-- feed end -->
 
 ### Onstream
