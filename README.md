@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Mega Millions for Friday, Aug. 30, 2024, is a $627 million jackpot. Check your numbers!](https://www.yahoo.com/news/mega-millions-friday-aug-30-031054563.html)
+- Aug 31 - [Empty Boeing Starliner spacecraft could return next week](https://www.yahoo.com/news/empty-boeing-starliner-spacecraft-could-031029687.html)
 - Aug 30 - [Mexican drug lord Osiel Cárdenas Guillén has been released from a US prison and may be deported](https://www.yahoo.com/news/mexican-drug-lord-osiel-c-234755518.html)
-- Aug 30 - [Woman Disgusted When She Uses Tracker to See Where Her Plastic Recycling Really Ends Up](https://www.yahoo.com/news/woman-disgusted-she-uses-tracker-212048434.html)
-- Aug 30 - [Exclusive-China's Sinochem plans to exit US shale JV with Exxon, sources say](https://finance.yahoo.com/news/exclusive-chinas-sinochem-plans-exit-210103376.html)
-- Aug 30 - [LIVE UPDATES: Thousands without power in metro Atlanta after storms move through](https://www.yahoo.com/news/live-updates-severe-thunderstorm-warnings-190943922.html)
-- Aug 30 - [Mexican drug lord who founded ultra-violent Zetas is released from US prison](https://www.yahoo.com/news/infamous-mexican-drug-lord-released-174432186.html)
+- Aug 30 - [Video shows teen driving nearly 140 mph days before fatal crash outside Detroit](https://www.yahoo.com/news/video-shows-teen-driving-nearly-233114254.html)
+- Aug 30 - [Lousiville City Schools drops ‘offensive’ gesture from band performance](https://www.yahoo.com/news/lousiville-city-schools-drops-offensive-222154481.html)
 <!-- feed end -->
 
 ### Onstream
