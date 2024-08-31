@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Mega Millions winning numbers for August 30 drawing; Jackpot soars to $627 million](https://www.yahoo.com/news/mega-millions-winning-numbers-august-010017686.html)
+- Aug 31 - [Atwater special education teacher arrested, officials say](https://www.yahoo.com/news/atwater-special-education-teacher-arrested-060045994.html)
+- Aug 31 - [Suspects in Upper Darby armed carjacking identified as 23-year-old woman, 20-year-old male](https://www.yahoo.com/news/suspects-upper-darby-armed-carjacking-002512053.html)
 - Aug 30 - [Video shows teen driving nearly 140 mph days before fatal crash outside Detroit](https://www.yahoo.com/news/video-shows-teen-driving-nearly-233114254.html)
-- Aug 30 - [What is the most dangerous intersection in St. Louis? Report reveals](https://www.yahoo.com/news/most-dangerous-intersection-st-louis-190802636.html)
-- Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
-- Aug 30 - [Why a private school in Charlotte may be shuttering its state championship basketball team](https://www.yahoo.com/news/why-private-school-charlotte-may-174348790.html)
+- Aug 30 - [Women's college in Virginia bars transgender students based on founder's will from 1900](https://www.yahoo.com/news/womens-college-virginia-bars-transgender-224505570.html)
+- Aug 30 - [Lousiville City Schools drops ‘offensive’ gesture from band performance](https://www.yahoo.com/news/lousiville-city-schools-drops-offensive-222154481.html)
 <!-- feed end -->
 
 ### Onstream
