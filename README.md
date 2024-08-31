@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 31 - [Melania’s plea for Trump to control his swearing flops as he tears into Harris at rally](https://www.yahoo.com/news/melania-plea-trump-control-swearing-202341688.html)
-- Aug 31 - [Tim Walz’s Brother Is ‘100% Opposed to All His Ideology’](https://www.yahoo.com/news/tim-walz-brother-100-opposed-201719086.html)
 - Aug 31 - ['The size and mass of his head is unreal.' MS alligator hunters bag 800-pound giant](https://sports.yahoo.com/size-mass-head-unreal-ms-195641749.html)
 - Aug 31 - [Mississippi bus crash kills 7 people and injures 37](https://www.yahoo.com/news/mississippi-bus-crash-kills-7-193417753.html)
 - Aug 31 - [19 Seemingly "Safe" Things People Do All The Time That Can Actually Be Verrryyy Risky](https://www.yahoo.com/lifestyle/19-seemingly-safe-things-people-191602340.html)
+- Aug 31 - [‘I don’t want anyone telling me what to do’: My second husband wants to put our $750,000 home in a trust for his children. Does he have the right?](https://finance.yahoo.com/news/don-t-want-anyone-telling-003300445.html)
 <!-- feed end -->
 
 ### Onstream
