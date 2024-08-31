@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [10 Best Florida Cities To Retire on $3,000 a Month](https://finance.yahoo.com/news/20-best-florida-cities-retire-110024749.html)
+- Aug 31 - [2 Monster Stocks to Hold for the Next 20 Years](https://finance.yahoo.com/news/2-monster-stocks-hold-next-144300321.html)
+- Aug 31 - [Fact Check: Yes, Photos Do Show Trump with Daughter Ivanka Sitting on His Lap](https://www.yahoo.com/news/fact-check-yes-photos-show-130000939.html)
 - Aug 31 - [What the gap between retirement expectations and reality tells us](https://finance.yahoo.com/news/what-the-gap-between-retirement-expectations-and-reality-tells-us-123349640.html)
 - Aug 31 - [Poll-topping Austrian party vows to enshrine two genders in constitution](https://www.yahoo.com/news/poll-topping-austrian-party-vows-122522155.html)
 - Aug 31 - [Catholic diocese sues US government, worried some foreign-born priests might be forced to leave](https://www.yahoo.com/news/catholic-diocese-sues-us-government-122146135.html)
-- Aug 31 - [People Who Make Over $150k A Year Are Sharing What They Do...In Case You're Tired Of Everything Inflating Besides Your Salary](https://www.yahoo.com/lifestyle/people-over-150k-sharing-case-121603001.html)
 <!-- feed end -->
 
 ### Onstream
