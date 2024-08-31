@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [NATO chief: Ukraine did not coordinate Kursk offensive in advance](https://www.yahoo.com/news/nato-chief-ukraine-did-not-094118530.html)
-- Aug 31 - [NASA's huge spacecraft will soon launch to alluring ocean world](https://www.yahoo.com/lifestyle/nasas-huge-spacecraft-soon-launch-090000438.html)
-- Aug 30 - [Pinellas family blames loophole in National Flood Insurance Policy for coverage denial](https://www.yahoo.com/news/pinellas-family-blames-loophole-national-224840759.html)
-- Aug 30 - [Trump turns to Truth Social to share sexual jokes and calls for ‘military tribunals’](https://www.yahoo.com/news/trump-turns-truth-social-share-222158489.html)
-- Aug 30 - [Las Vegas man faces charges including DUI after crash near Red Rock kills motorcyclist](https://www.yahoo.com/news/las-vegas-man-faces-charges-191410865.html)
+- Aug 31 - [This line from Kamala Harris in CNN interview shows why she shouldn’t be president | Opinion](https://www.yahoo.com/news/line-kamala-harris-cnn-interview-102500539.html)
+- Aug 31 - [A rare look at the lousy life aboard China's 'Dragon Palace' submarines](https://www.yahoo.com/news/rare-look-lousy-life-aboard-090002977.html)
+- Aug 31 - [Nvidia's $50 Billion Share Buyback Is an Epically Bad Decision That Sends the Wrong Message to Wall Street and Investors](https://finance.yahoo.com/news/nvidias-50-billion-share-buyback-084100268.html)
+- Aug 30 - [What is the most dangerous intersection in St. Louis? Report reveals](https://www.yahoo.com/news/most-dangerous-intersection-st-louis-190802636.html)
+- Aug 30 - [Florida state lawmaker indicted on felony charges related to private school](https://www.yahoo.com/news/florida-state-lawmaker-indicted-felony-184110268.html)
 <!-- feed end -->
 
 ### Onstream
