@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [SAS hero of Iran embassy siege and daring Falklands raids dies](https://www.yahoo.com/news/sas-hero-iran-embassy-siege-200155425.html)
-- Sep 01 - [It's a pork chop on a stick and a vanilla shake for Tim Walz at the Minnesota State Fair](https://www.yahoo.com/news/pork-chop-stick-vanilla-shake-183334711.html)
-- Sep 01 - [Ex-Trump aide claims he’s met only one person who hates former president more than Melania](https://www.yahoo.com/news/ex-trump-aide-claims-met-165938429.html)
+- Sep 01 - [White House says Biden and Harris weren’t invited to Arlington Cemetery by families of service members killed during Afghanistan withdrawal](https://www.yahoo.com/news/white-house-says-biden-harris-210322990.html)
+- Sep 01 - [Exclusive-Intel CEO to pitch board on plans to shed assets, cut costs, source says](https://finance.yahoo.com/news/exclusive-intel-ceo-pitch-board-194933608.html)
+- Sep 01 - [Conservative Columnist Tells Bemused CNN Host Vance ‘Has Not Had One Misstep’](https://www.yahoo.com/news/conservative-columnist-tells-bemused-cnn-175705673.html)
 - Sep 01 - [27 Doctors Who Ditched All Bedside Manner And Acted Wildly Out-Of-Pocket Instead](https://www.yahoo.com/entertainment/27-doctors-ditched-bedside-manner-171602572.html)
-- Sep 01 - [Can You Guess How Big Nancy Pelosi's Monthly Social Security Check Is?](https://finance.yahoo.com/news/guess-big-nancy-pelosis-monthly-170118983.html)
+- Sep 01 - [China to pitch green tech exports to African leaders as Western curbs loom](https://finance.yahoo.com/news/china-pitch-green-tech-exports-170749623.html)
 <!-- feed end -->
 
 ### Onstream
