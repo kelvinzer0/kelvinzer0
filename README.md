@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [My friend asked me to cosign a loan, but I'm $30,000 in debt and my credit's already shaky — what should I do?](https://finance.yahoo.com/news/friend-asked-cosign-loan-im-104000905.html)
-- Sep 01 - [Mixed feelings as some schools in Israel return, amid continued Hezbollah fighting and war in Gaza](https://www.yahoo.com/news/mixed-feelings-children-north-israel-094204470.html)
-- Sep 01 - [Ukraine's top general says situation 'difficult' around main Russian attack](https://www.yahoo.com/news/ukraines-top-general-says-situation-080934703.html)
-- Sep 01 - [Israel recovers the bodies of 6 hostages in Gaza, including Israeli-American Hersh Goldberg-Polin](https://www.yahoo.com/news/family-confirms-death-israeli-american-030825762.html)
-- Aug 31 - [Ricky Pearsall, 49ers' first-round pick, in stable condition after shooting in San Francisco robbery attempt](https://sports.yahoo.com/ricky-pearsall-49ers-first-round-pick-in-stable-condition-after-shooting-in-san-francisco-robbery-attempt-235941170.html)
+- Sep 01 - [Murder suspect flees country and ‘taunts victim’s family’ after police error](https://www.yahoo.com/news/family-horror-murder-suspect-free-092213709.html)
+- Sep 01 - [Traditional neon maker and restorer Julia Bickerstaff](https://www.yahoo.com/news/traditional-neon-maker-restorer-julia-121323687.html)
+- Sep 01 - [Russia will change nuclear doctrine due to West's actions in Ukraine, official says](https://www.yahoo.com/news/russia-change-nuclear-doctrine-due-120243535.html)
+- Sep 01 - [We can’t build our way out of the housing crisis. We must increase public investment | Opinion](https://www.yahoo.com/news/t-build-way-housing-crisis-120000980.html)
+- Sep 01 - [Residents push back on HOA demand they join the golf club - it's expensive, hinders sales](https://www.yahoo.com/lifestyle/residents-push-back-hoa-demand-100312676.html)
 <!-- feed end -->
 
 ### Onstream
