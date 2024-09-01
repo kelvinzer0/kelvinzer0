@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Murder suspect flees country and ‘taunts victim’s family’ after police error](https://www.yahoo.com/news/family-horror-murder-suspect-free-092213709.html)
-- Sep 01 - [Scientists create game-changing device that can turn air pollution into salt within minutes: 'A reaction that the planet has been running for billions of years'](https://www.yahoo.com/tech/scientists-create-game-changing-device-103003838.html)
-- Sep 01 - [Residents push back on HOA demand they join the golf club - it's expensive, hinders sales](https://www.yahoo.com/lifestyle/residents-push-back-hoa-demand-100312676.html)
-- Sep 01 - [5 supplements a doctor who says he's reversed his age by 20 years takes every day](https://www.yahoo.com/lifestyle/5-supplements-doctor-says-hes-090702361.html)
-- Sep 01 - [Ukraine's top general says situation 'difficult' around main Russian attack](https://www.yahoo.com/news/ukraines-top-general-says-situation-080934703.html)
+- Sep 01 - [Strikes start at top hotel chains as housekeepers seek higher wages and daily room cleaning work](https://www.yahoo.com/news/strikes-start-top-hotel-chains-131138219.html)
+- Sep 01 - [A celebrity 'Russian spy' whale spotted with harness found dead in Norwegian waters](https://www.yahoo.com/news/celebrity-russian-spy-whale-spotted-130840234.html)
+- Sep 01 - [Mystery of ‘Pinnacle Man’ found frozen in a cave solved after nearly five decades](https://www.yahoo.com/news/mystery-pinnacle-man-found-frozen-130746166.html)
+- Sep 01 - [Russia says it will change nuclear doctrine because of Western role in Ukraine](https://www.yahoo.com/news/russia-change-nuclear-doctrine-due-120243535.html)
+- Sep 01 - [San Francisco city officials give Pearsall attempted robbery shooting updates](https://sports.yahoo.com/san-francisco-city-officials-pearsall-101334654.html)
 <!-- feed end -->
 
 ### Onstream
