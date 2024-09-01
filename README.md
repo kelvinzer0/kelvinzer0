@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Speedboats ‘loaded with drugs’ in fatal crash during police chase](https://www.yahoo.com/news/speedboats-loaded-drugs-fatal-crash-163430896.html)
+- Sep 01 - [Crew member on watch duty on Mike Lynch's yacht says he was 'walking on the walls' of the boat as he tried to save passengers](https://www.yahoo.com/tech/crew-member-watch-duty-mike-161259780.html)
+- Sep 01 - [Bill Gates Is Bringing 'The Most Advanced Nuclear Facility In The World' To A Small City With Only 2,000 People](https://finance.yahoo.com/news/bill-gates-bringing-most-advanced-160018318.html)
 - Sep 01 - [My second husband’s $350,000 life insurance lists me as beneficiary. But his divorce decree says he’ll maintain the policy for his kids. Who wins?](https://finance.yahoo.com/news/second-husband-350-000-life-120600917.html)
 - Sep 01 - [Ford recalls 90,736 vehicles due to engine valve issue](https://www.yahoo.com/news/ford-recalls-90-736-vehicles-134600473.html)
-- Sep 01 - [Strikes start at top hotel chains as housekeepers seek higher wages and daily room cleaning work](https://www.yahoo.com/news/strikes-start-top-hotel-chains-131138219.html)
-- Sep 01 - [A celebrity 'Russian spy' whale spotted with harness found dead in Norwegian waters](https://www.yahoo.com/news/celebrity-russian-spy-whale-spotted-130840234.html)
-- Sep 01 - [Mystery of ‘Pinnacle Man’ found frozen in a cave solved after nearly five decades](https://www.yahoo.com/news/mystery-pinnacle-man-found-frozen-130746166.html)
 <!-- feed end -->
 
 ### Onstream
