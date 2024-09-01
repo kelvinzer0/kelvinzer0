@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [September Is an Important Month for Social Security. Here's Why.](https://finance.yahoo.com/news/september-important-month-social-security-084900287.html)
 - Sep 01 - [Ukraine's top general says situation 'difficult' around main Russian attack](https://www.yahoo.com/news/ukraines-top-general-says-situation-080934703.html)
 - Sep 01 - [Israel recovers the bodies of 6 hostages in Gaza, including Israeli-American Hersh Goldberg-Polin](https://www.yahoo.com/news/family-confirms-death-israeli-american-030825762.html)
 - Sep 01 - [Mexico offers escorted rides north from southern Mexico for migrants with US asylum appointments](https://www.yahoo.com/news/mexico-offers-escorted-rides-north-014026102.html)
 - Aug 31 - [Ricky Pearsall, 49ers' first-round pick, in stable condition after shooting in San Francisco robbery attempt](https://sports.yahoo.com/ricky-pearsall-49ers-first-round-pick-in-stable-condition-after-shooting-in-san-francisco-robbery-attempt-235941170.html)
+- Aug 31 - [Pilot declared emergency, loss of autopilot before crash that killed 3 members of famed gospel group](https://www.yahoo.com/news/pilot-declared-emergency-loss-autopilot-214716346.html)
 <!-- feed end -->
 
 ### Onstream
