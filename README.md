@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 01 - [Murder suspect flees country and ‘taunts victim’s family’ after police error](https://www.yahoo.com/news/family-horror-murder-suspect-free-092213709.html)
-- Sep 01 - [Traditional neon maker and restorer Julia Bickerstaff](https://www.yahoo.com/news/traditional-neon-maker-restorer-julia-121323687.html)
-- Sep 01 - [Russia will change nuclear doctrine due to West's actions in Ukraine, official says](https://www.yahoo.com/news/russia-change-nuclear-doctrine-due-120243535.html)
-- Sep 01 - [We can’t build our way out of the housing crisis. We must increase public investment | Opinion](https://www.yahoo.com/news/t-build-way-housing-crisis-120000980.html)
+- Sep 01 - [Scientists create game-changing device that can turn air pollution into salt within minutes: 'A reaction that the planet has been running for billions of years'](https://www.yahoo.com/tech/scientists-create-game-changing-device-103003838.html)
 - Sep 01 - [Residents push back on HOA demand they join the golf club - it's expensive, hinders sales](https://www.yahoo.com/lifestyle/residents-push-back-hoa-demand-100312676.html)
+- Sep 01 - [5 supplements a doctor who says he's reversed his age by 20 years takes every day](https://www.yahoo.com/lifestyle/5-supplements-doctor-says-hes-090702361.html)
+- Sep 01 - [Ukraine's top general says situation 'difficult' around main Russian attack](https://www.yahoo.com/news/ukraines-top-general-says-situation-080934703.html)
 <!-- feed end -->
 
 ### Onstream
