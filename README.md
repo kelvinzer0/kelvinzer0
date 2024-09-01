@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Exclusive-Intel CEO to pitch board on plans to shed assets, cut costs, source says](https://finance.yahoo.com/news/exclusive-intel-ceo-pitch-board-194933608.html)
+- Sep 01 - [Mother killed at Notting Hill ‘protected her child’, family say](https://www.yahoo.com/news/mother-killed-notting-hill-protected-190803313.html)
+- Sep 01 - [City of Savannah’s Labor Day sanitation schedule](https://www.yahoo.com/news/city-savannah-labor-day-sanitation-183636926.html)
+- Sep 01 - [It's a pork chop on a stick and a vanilla shake for Tim Walz at the Minnesota State Fair](https://www.yahoo.com/news/pork-chop-stick-vanilla-shake-183334711.html)
 - Sep 01 - [Ex-Trump aide claims he’s met only one person who hates former president more than Melania](https://www.yahoo.com/news/ex-trump-aide-claims-met-165938429.html)
-- Sep 01 - [Can You Guess How Big Nancy Pelosi's Monthly Social Security Check Is?](https://finance.yahoo.com/news/guess-big-nancy-pelosis-monthly-170118983.html)
-- Sep 01 - [Seventeen bodies found after tourist helicopter crashes near volcano](https://www.yahoo.com/news/seventeen-bodies-found-volcano-tourist-165139521.html)
-- Sep 01 - [Trump issues statement from Gold Star families defending Arlington Cemetery visit and ripping Harris](https://www.yahoo.com/news/trump-issues-statement-gold-star-163307984.html)
-- Sep 01 - [Crew member on watch duty on Mike Lynch's yacht says he was 'walking on the walls' of the boat as he tried to save passengers](https://www.yahoo.com/tech/crew-member-watch-duty-mike-161259780.html)
 <!-- feed end -->
 
 ### Onstream
