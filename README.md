@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Family confirms death of Israeli-American hostage Hersh Goldberg-Polin](https://www.yahoo.com/news/family-confirms-death-israeli-american-030825762.html)
 - Aug 31 - [Ricky Pearsall, 49ers' first-round pick, in stable condition after shooting in San Francisco robbery attempt](https://sports.yahoo.com/ricky-pearsall-49ers-first-round-pick-in-stable-condition-after-shooting-in-san-francisco-robbery-attempt-235941170.html)
-- Aug 31 - [I’m a Self-Made Millionaire: These Money Lessons From My Parents Were Key in Building My Wealth](https://finance.yahoo.com/news/m-self-made-millionaire-money-220008800.html)
-- Aug 31 - [Tim Walz’s Brother Is ‘100% Opposed to All His Ideology’](https://www.yahoo.com/news/tim-walz-brother-100-opposed-201719086.html)
-- Aug 31 - ['The size and mass of his head is unreal.' MS alligator hunters bag 800-pound giant](https://sports.yahoo.com/size-mass-head-unreal-ms-195641749.html)
-- Aug 31 - ['I Almost Died of a Severe Artery Blockage—This Is the Sign That Saved My Life'](https://www.yahoo.com/lifestyle/almost-died-severe-artery-blockage-182500927.html)
+- Aug 31 - [Pilot declared emergency, loss of autopilot before crash that killed 3 members of famed gospel group](https://www.yahoo.com/news/pilot-declared-emergency-loss-autopilot-214716346.html)
+- Aug 31 - [San Jose family home destroyed by fire, looted three times](https://www.yahoo.com/news/san-jose-family-home-destroyed-212035473.html)
+- Aug 31 - [Serious collision affects traffic on I-75 in Fayette County. Coroner has been called to scene.](https://www.yahoo.com/news/serious-collision-affects-traffic-75-211912886.html)
 <!-- feed end -->
 
 ### Onstream
