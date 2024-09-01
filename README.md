@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [How a serial killer (and a podcast) helped solve his own daughter’s murder](https://www.yahoo.com/news/serial-killer-podcast-helped-solve-112915317.html)
+- Sep 01 - [In South Africa's richest area, mother-to-baby HIV transmission is a concern despite free prevention](https://www.yahoo.com/news/south-africas-richest-area-mother-220522026.html)
+- Sep 01 - [The largest dam removal project in the US is completed – a major win for Indigenous tribes](https://www.yahoo.com/news/largest-dam-removal-project-us-100020434.html)
 - Sep 01 - [White House says Biden and Harris weren’t invited to Arlington Cemetery by families of service members killed during Afghanistan withdrawal](https://www.yahoo.com/news/white-house-says-biden-harris-210322990.html)
 - Sep 01 - [Exclusive-Intel CEO to pitch board on plans to shed assets, cut costs, source says](https://finance.yahoo.com/news/exclusive-intel-ceo-pitch-board-194933608.html)
-- Sep 01 - [Conservative Columnist Tells Bemused CNN Host Vance ‘Has Not Had One Misstep’](https://www.yahoo.com/news/conservative-columnist-tells-bemused-cnn-175705673.html)
-- Sep 01 - [27 Doctors Who Ditched All Bedside Manner And Acted Wildly Out-Of-Pocket Instead](https://www.yahoo.com/entertainment/27-doctors-ditched-bedside-manner-171602572.html)
-- Sep 01 - [China to pitch green tech exports to African leaders as Western curbs loom](https://finance.yahoo.com/news/china-pitch-green-tech-exports-170749623.html)
 <!-- feed end -->
 
 ### Onstream
