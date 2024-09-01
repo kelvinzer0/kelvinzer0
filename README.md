@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 01 - [Ex-Trump aide claims he’s met only one person who hates former president more than Melania](https://www.yahoo.com/news/ex-trump-aide-claims-met-165938429.html)
-- Sep 01 - [27 Doctors Who Ditched All Bedside Manner And Acted Wildly Out-Of-Pocket Instead](https://www.yahoo.com/entertainment/27-doctors-ditched-bedside-manner-171602572.html)
 - Sep 01 - [Can You Guess How Big Nancy Pelosi's Monthly Social Security Check Is?](https://finance.yahoo.com/news/guess-big-nancy-pelosis-monthly-170118983.html)
-- Sep 01 - [Seventeen bodies found after volcano tourist helicopter crashes](https://www.yahoo.com/news/seventeen-bodies-found-volcano-tourist-165139889.html)
-- Sep 01 - [Bill Gates Is Bringing 'The Most Advanced Nuclear Facility In The World' To A Small City With Only 2,000 People](https://finance.yahoo.com/news/bill-gates-bringing-most-advanced-160018318.html)
+- Sep 01 - [Seventeen bodies found after tourist helicopter crashes near volcano](https://www.yahoo.com/news/seventeen-bodies-found-volcano-tourist-165139521.html)
+- Sep 01 - [Trump issues statement from Gold Star families defending Arlington Cemetery visit and ripping Harris](https://www.yahoo.com/news/trump-issues-statement-gold-star-163307984.html)
+- Sep 01 - [Crew member on watch duty on Mike Lynch's yacht says he was 'walking on the walls' of the boat as he tried to save passengers](https://www.yahoo.com/tech/crew-member-watch-duty-mike-161259780.html)
 <!-- feed end -->
 
 ### Onstream
