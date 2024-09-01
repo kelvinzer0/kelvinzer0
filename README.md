@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 01 - [My second husband’s $350,000 life insurance lists me as beneficiary. But his divorce decree says he’ll maintain the policy for his kids. Who wins?](https://finance.yahoo.com/news/second-husband-350-000-life-120600917.html)
+- Sep 01 - [Ford recalls 90,736 vehicles due to engine valve issue](https://www.yahoo.com/news/ford-recalls-90-736-vehicles-134600473.html)
 - Sep 01 - [Strikes start at top hotel chains as housekeepers seek higher wages and daily room cleaning work](https://www.yahoo.com/news/strikes-start-top-hotel-chains-131138219.html)
 - Sep 01 - [A celebrity 'Russian spy' whale spotted with harness found dead in Norwegian waters](https://www.yahoo.com/news/celebrity-russian-spy-whale-spotted-130840234.html)
 - Sep 01 - [Mystery of ‘Pinnacle Man’ found frozen in a cave solved after nearly five decades](https://www.yahoo.com/news/mystery-pinnacle-man-found-frozen-130746166.html)
-- Sep 01 - [Russia says it will change nuclear doctrine because of Western role in Ukraine](https://www.yahoo.com/news/russia-change-nuclear-doctrine-due-120243535.html)
 <!-- feed end -->
 
 ### Onstream
