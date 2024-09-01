@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 01 - [Israel recovers the bodies of 6 hostages in Gaza, including Israeli-American Hersh Goldberg-Polin](https://www.yahoo.com/news/family-confirms-death-israeli-american-030825762.html)
-- Sep 01 - [Dell Technologies Inc. (DELL): An Undervalued Tech Stock To Buy Now](https://finance.yahoo.com/news/dell-technologies-inc-dell-undervalued-024952776.html)
 - Aug 31 - [Ricky Pearsall, 49ers' first-round pick, in stable condition after shooting in San Francisco robbery attempt](https://sports.yahoo.com/ricky-pearsall-49ers-first-round-pick-in-stable-condition-after-shooting-in-san-francisco-robbery-attempt-235941170.html)
+- Aug 31 - [The universe had a secret life before the Big Bang, new study hints](https://www.yahoo.com/news/universe-had-secret-life-big-220100347.html)
+- Aug 31 - [Pilot declared emergency, loss of autopilot before crash that killed 3 members of famed gospel group](https://www.yahoo.com/news/pilot-declared-emergency-loss-autopilot-214716346.html)
 - Aug 31 - [Melania’s plea for Trump to control his swearing flops as he tears into Harris at rally](https://www.yahoo.com/news/melania-plea-trump-control-swearing-202341688.html)
-- Aug 31 - ['The size and mass of his head is unreal.' MS alligator hunters bag 800-pound giant](https://sports.yahoo.com/size-mass-head-unreal-ms-195641749.html)
 <!-- feed end -->
 
 ### Onstream
