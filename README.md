@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Harris-Walz campaign stages Labor Day blitz, courting union votes alongside Biden](https://www.yahoo.com/news/harris-walz-campaign-readies-labor-090635570.html)
-- Sep 02 - [Fact Check: Video Doesn't Show a King's Guard in London Knocking Out a Man](https://www.yahoo.com/news/fact-check-video-doesnt-show-180000442.html)
-- Sep 02 - [‘Depraved’ electrician watched customers in their homes on secretly installed cameras](https://www.yahoo.com/news/depraved-electrician-watched-customers-homes-174541674.html)
-- Sep 02 - [Hot Air Balloons Glow in Colorado Springs for 'Labor Day Take Off'](https://www.yahoo.com/news/hot-air-balloons-glow-colorado-173855627.html)
-- Sep 02 - [San Francisco police officer recounts helping Ricky Pearsall after being shot until ambulances arrived](https://sports.yahoo.com/san-francisco-police-officer-recounts-helping-ricky-pearsall-after-being-shot-until-ambulances-arrived-173739416.html)
+- Sep 02 - [US seizes plane belonging to Venezuelan president Nicolas Maduro and flies it to Florida](https://www.yahoo.com/news/us-seizes-plane-belonging-venezuelan-195544820.html)
+- Sep 02 - [Hamas armed wing says new instructions were given to guards of Israeli hostages in Gaza](https://www.yahoo.com/news/hamas-armed-wing-says-instructions-191400896.html)
+- Sep 02 - [Walz unharmed after some of the vehicles near the back of his motorcade crash in Milwaukee](https://www.yahoo.com/news/walz-unharmed-vehicles-near-back-185214447.html)
+- Sep 02 - [‘A very serious situation’: Volkswagen could close plants in Germany for the first time in history](https://finance.yahoo.com/news/very-serious-situation-volkswagen-could-153227284.html)
+- Sep 02 - [‘You can almost see the ground move’: Outages expand in California community as land movement threatens power lines](https://www.yahoo.com/news/almost-see-ground-move-outages-171905407.html)
 <!-- feed end -->
 
 ### Onstream
