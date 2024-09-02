@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [How climate change is impacting home buying](https://finance.yahoo.com/video/climate-change-impacting-home-buying-181552262.html)
+- Sep 02 - [Railings on Titanic's iconic bow have broken off and fallen to sea floor](https://www.yahoo.com/news/railings-titanics-iconic-bow-broken-174117539.html)
+- Sep 02 - [Thousands of Trump followers tricked by scammers targeting his new crypto project](https://finance.yahoo.com/news/thousands-trump-followers-tricked-scammers-173500748.html)
 - Sep 02 - [Watch: Former prison officer who had sex with an inmate mocks ankle tag](https://www.yahoo.com/news/watch-former-prison-officer-had-165633030.html)
-- Sep 02 - [Thousands line streets for funeral of American-Israeli hostage killed in Gaza](https://www.yahoo.com/news/thousands-line-streets-funeral-american-165051205.html)
-- Sep 02 - [Italian teen confesses to stabbing younger brother, parents. Prosecutors say no apparent motive.](https://www.yahoo.com/news/italian-teen-confesses-stabbing-younger-153608385.html)
-- Sep 02 - [Hollie Strano fired from WKYC 9 months after her Thanksgiving OVI arrest](https://www.yahoo.com/news/hollie-strano-fired-wkyc-9-143212009.html)
-- Sep 02 - [Starlink tells Brazil regulator it will not comply with X suspension](https://finance.yahoo.com/news/starlink-tells-brazil-regulator-not-133059311.html)
+- Sep 02 - [Ukrainian children in Poland are now required by law to attend school after years of online learning](https://www.yahoo.com/news/ukrainian-children-poland-now-required-155208481.html)
 <!-- feed end -->
 
 ### Onstream
