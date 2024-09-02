@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Exclusive-U.S. researchers find probable launch site of Russia's new nuclear-powered missile](https://www.yahoo.com/news/exclusive-u-researchers-probable-launch-130014605.html)
-- Sep 02 - [The chances for a tropical depression (or depressions) from 3 Atlantic, Gulf systems](https://www.yahoo.com/news/chances-tropical-depression-depressions-3-130002033.html)
-- Sep 02 - [‘Selfish, immature baby’: 46-year-old Texas man borrows money from elderly parents — says he’s ‘too good’ for work, plays video games instead](https://finance.yahoo.com/news/selfish-immature-baby-46-old-112700173.html)
-- Sep 02 - [Frenchman accused of letting dozens of men rape his drugged wife](https://www.yahoo.com/news/frenchman-accused-letting-dozens-men-090314725.html)
-- Sep 02 - [Tropical mischief hangs around Texas coast](https://www.yahoo.com/news/tropical-mischief-hangs-around-texas-105023857.html)
+- Sep 02 - [Biden says Netanyahu not doing enough to seal hostage deal amid ‘take it or leave it’ Israel-Hamas ceasefire talks](https://www.yahoo.com/news/biden-says-netanyahu-not-doing-142109517.html)
+- Sep 02 - [Putin arrives in Mongolia, a member of the ICC that issued an arrest warrant for him](https://www.yahoo.com/news/putin-arrives-mongolia-member-icc-142712632.html)
+- Sep 02 - [Putin arrives in Mongolia for a state visit despite ICC warrant for his arrest](https://www.yahoo.com/news/putin-arrives-mongolia-state-visit-142500287.html)
+- Sep 02 - [Nasa unfurls giant solar sail – and you can see it from Earth](https://www.yahoo.com/news/nasa-unfurls-giant-solar-sail-134703060.html)
+- Sep 02 - [Starlink tells Brazil regulator it will not comply with X suspension](https://finance.yahoo.com/news/starlink-tells-brazil-regulator-not-133059311.html)
 <!-- feed end -->
 
 ### Onstream
