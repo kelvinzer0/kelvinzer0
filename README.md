@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Delawareans searching bipolar disorder on Google more than any other mental illness](https://www.yahoo.com/news/delawareans-searching-bipolar-disorder-google-091425780.html)
+- Sep 02 - [Germany's Scholz worried by far-right surge in regional elections](https://www.yahoo.com/news/germanys-scholz-worried-far-surge-091337899.html)
+- Sep 02 - [Trump 'has a lot on his plate', misunderstands Taiwan's chip role, minister says](https://www.yahoo.com/tech/trump-lot-plate-misunderstands-taiwans-083750756.html)
+- Sep 02 - [Ex-Prosecutor Spots 'Money Line’ In Filing That Could Unleash New Donald Trump Bombshells](https://www.yahoo.com/news/ex-prosecutor-spots-money-line-072237131.html)
 - Sep 02 - ['Are You Seriously This Stupid?': Legal Minds Nail Trump After Fox News 'Confession'](https://www.yahoo.com/news/seriously-stupid-legal-minds-nail-071912257.html)
-- Sep 02 - [Metro Atlanta dad died saving his son after car crash, GSP releases details on crash](https://www.yahoo.com/news/metro-atlanta-dad-died-saving-204340490.html)
-- Sep 02 - [Trump Roasted After His Most Head-Spinning Attack On Kamala Harris Yet](https://www.yahoo.com/news/trump-roasted-most-head-spinning-042908236.html)
-- Sep 02 - [How do you get a grumpy 4-ton elephant to a new home 120 miles away? Call the elephant movers](https://www.yahoo.com/news/grumpy-4-ton-elephant-home-040813837.html)
-- Sep 02 - [Mark Cuban says Elon Musk's 'biggest power play' on X is letting users think they have free speech](https://www.yahoo.com/tech/mark-cuban-says-elon-musks-033545809.html)
 <!-- feed end -->
 
 ### Onstream
