@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Giant python caught swallowing even bigger snake alive in world first](https://www.yahoo.com/news/giant-python-caught-swallowing-even-042909443.html)
+- Sep 02 - [Beluga whale suspected of spying for Russia found dead in Norway](https://www.yahoo.com/news/beluga-whale-suspected-spying-russia-060636591.html)
 - Sep 02 - [Trump Roasted After His Most Head-Spinning Attack On Kamala Harris Yet](https://www.yahoo.com/news/trump-roasted-most-head-spinning-042908236.html)
-- Sep 02 - [Christa McAuliffe, still pioneering, is first woman with a statue on New Hampshire capitol grounds](https://www.yahoo.com/news/christa-mcauliffe-still-pioneering-first-040243508.html)
-- Sep 02 - [Mark Cuban says Elon Musk's 'biggest power play' on X is letting users think they have free speech](https://www.yahoo.com/tech/mark-cuban-says-elon-musks-033545809.html)
 - Sep 02 - [If China wants Taiwan it should also take back land from Russia, president says](https://www.yahoo.com/news/china-wants-taiwan-back-land-022408398.html)
+- Sep 02 - [China urges EU to be 'objective and fair' on South China Sea issue](https://www.yahoo.com/news/china-urges-eu-objective-fair-011314980.html)
+- Sep 01 - [New unproductive forces: the Chinese youth owning their unemployment](https://finance.yahoo.com/news/unproductive-forces-chinese-youth-owning-230830675.html)
 <!-- feed end -->
 
 ### Onstream
