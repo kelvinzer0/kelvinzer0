@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Putin’s visit to Mongolia defies ICC warrant and tests neutral nation’s ‘third neighbor’ diplomacy](https://www.yahoo.com/news/putin-visit-mongolia-defies-icc-204057815.html)
-- Sep 02 - [Here’s Why Having 2 or 3 Bank Accounts Isn’t Enough, According to Money Expert Martin Lewis](https://finance.yahoo.com/news/why-having-2-3-bank-200019928.html)
 - Sep 02 - [54-Year-Old Woman With No 401(k) And Only $12,000 In Savings Seeks Suze Orman's Advice, Orman Says 'Put $8,000 Into A Roth IRA'](https://finance.yahoo.com/news/54-old-woman-no-401-193236803.html)
 - Sep 02 - [Hamas says hostage guards in Gaza have been operating under new instructions](https://www.yahoo.com/news/hamas-armed-wing-says-instructions-191400896.html)
-- Sep 02 - [Exclusive: US seizes Venezuela President Nicolas Maduro’s airplane in the Dominican Republic](https://www.yahoo.com/news/exclusive-us-seizes-venezuela-president-173345640.html)
+- Sep 02 - [Shaq Refused To Pay $80,000 For Security And Made A Surprising Choice. He Invested In A Company Bezos Later Bought For $1 Billion](https://finance.yahoo.com/news/shaq-refused-pay-80-000-184818858.html)
+- Sep 02 - [Garden State Parkway has 20-mile delay as holiday traffic picks up](https://www.yahoo.com/news/garden-state-parkway-20-mile-184036904.html)
+- Sep 02 - [‘Depraved’ electrician watched customers in their homes on secretly installed cameras](https://www.yahoo.com/news/depraved-electrician-watched-customers-homes-174541674.html)
 <!-- feed end -->
 
 ### Onstream
