@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Biden says Netanyahu not doing enough to seal hostage deal amid ‘take it or leave it’ Israel-Hamas ceasefire talks](https://www.yahoo.com/news/biden-says-netanyahu-not-doing-142109517.html)
+- Sep 02 - [UK suspends 30 of its 350 arms export licences to Israel](https://www.yahoo.com/news/uk-says-suspending-30-350-154042319.html)
+- Sep 02 - [Italian teen confesses to stabbing younger brother, parents. Prosecutors say no apparent motive.](https://www.yahoo.com/news/italian-teen-confesses-stabbing-younger-153608385.html)
+- Sep 02 - [Russia targets Ukraine with missiles and drones as schools reopen - Ukraine: The Latest podcast](https://www.yahoo.com/news/russia-targets-ukraine-missiles-drones-153319892.html)
+- Sep 02 - [Frenchman on trial for recruiting strangers to rape drugged wife](https://www.yahoo.com/news/frenchman-accused-letting-dozens-men-090314725.html)
 - Sep 02 - [Putin arrives in Mongolia, a member of the ICC that issued an arrest warrant for him](https://www.yahoo.com/news/putin-arrives-mongolia-member-icc-142712632.html)
-- Sep 02 - [Putin arrives in Mongolia for a state visit despite ICC warrant for his arrest](https://www.yahoo.com/news/putin-arrives-mongolia-state-visit-142500287.html)
-- Sep 02 - [Nasa unfurls giant solar sail – and you can see it from Earth](https://www.yahoo.com/news/nasa-unfurls-giant-solar-sail-134703060.html)
-- Sep 02 - [Starlink tells Brazil regulator it will not comply with X suspension](https://finance.yahoo.com/news/starlink-tells-brazil-regulator-not-133059311.html)
 <!-- feed end -->
 
 ### Onstream
