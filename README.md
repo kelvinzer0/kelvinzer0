@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [How a serial killer (and a podcast) helped solve his own daughter’s murder](https://www.yahoo.com/news/serial-killer-podcast-helped-solve-112915317.html)
-- Sep 01 - [In South Africa's richest area, mother-to-baby HIV transmission is a concern despite free prevention](https://www.yahoo.com/news/south-africas-richest-area-mother-220522026.html)
-- Sep 01 - [The largest dam removal project in the US is completed – a major win for Indigenous tribes](https://www.yahoo.com/news/largest-dam-removal-project-us-100020434.html)
-- Sep 01 - [White House says Biden and Harris weren’t invited to Arlington Cemetery by families of service members killed during Afghanistan withdrawal](https://www.yahoo.com/news/white-house-says-biden-harris-210322990.html)
-- Sep 01 - [Exclusive-Intel CEO to pitch board on plans to shed assets, cut costs, source says](https://finance.yahoo.com/news/exclusive-intel-ceo-pitch-board-194933608.html)
+- Sep 02 - [China urges EU to be 'objective and fair' on South China Sea issue](https://www.yahoo.com/news/china-urges-eu-objective-fair-011314980.html)
+- Sep 01 - [New unproductive forces: the Chinese youth owning their unemployment](https://finance.yahoo.com/news/unproductive-forces-chinese-youth-owning-230830675.html)
+- Sep 01 - [Tens of thousands in Mexico cheer on president's proposed judicial reforms as protesters reject them](https://www.yahoo.com/news/tens-thousands-mexico-cheer-presidents-215624598.html)
+- Sep 01 - [‘I don’t want anyone telling me what to do’: My second husband wants to put our $750,000 home in a trust for his children. Does he have the right?](https://finance.yahoo.com/news/don-t-want-anyone-telling-003300445.html)
+- Sep 01 - [NASA astronaut stuck in space reports ‘strange noises’ coming from troubled Starliner capsule](https://www.yahoo.com/news/nasa-astronaut-stuck-space-reports-212336697.html)
 <!-- feed end -->
 
 ### Onstream
