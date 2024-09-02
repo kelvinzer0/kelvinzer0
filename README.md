@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [UK suspends 30 of its 350 arms export licences to Israel](https://www.yahoo.com/news/uk-says-suspending-30-350-154042319.html)
+- Sep 02 - [Watch: Former prison officer who had sex with an inmate mocks ankle tag](https://www.yahoo.com/news/watch-former-prison-officer-had-165633030.html)
+- Sep 02 - [Thousands line streets for funeral of American-Israeli hostage killed in Gaza](https://www.yahoo.com/news/thousands-line-streets-funeral-american-165051205.html)
 - Sep 02 - [Italian teen confesses to stabbing younger brother, parents. Prosecutors say no apparent motive.](https://www.yahoo.com/news/italian-teen-confesses-stabbing-younger-153608385.html)
-- Sep 02 - [Russia targets Ukraine with missiles and drones as schools reopen - Ukraine: The Latest podcast](https://www.yahoo.com/news/russia-targets-ukraine-missiles-drones-153319892.html)
-- Sep 02 - [Frenchman on trial for recruiting strangers to rape drugged wife](https://www.yahoo.com/news/frenchman-accused-letting-dozens-men-090314725.html)
-- Sep 02 - [Putin arrives in Mongolia, a member of the ICC that issued an arrest warrant for him](https://www.yahoo.com/news/putin-arrives-mongolia-member-icc-142712632.html)
+- Sep 02 - [Hollie Strano fired from WKYC 9 months after her Thanksgiving OVI arrest](https://www.yahoo.com/news/hollie-strano-fired-wkyc-9-143212009.html)
+- Sep 02 - [Starlink tells Brazil regulator it will not comply with X suspension](https://finance.yahoo.com/news/starlink-tells-brazil-regulator-not-133059311.html)
 <!-- feed end -->
 
 ### Onstream
