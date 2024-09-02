@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Beluga whale suspected of spying for Russia found dead in Norway](https://www.yahoo.com/news/beluga-whale-suspected-spying-russia-060636591.html)
+- Sep 02 - ['Are You Seriously This Stupid?': Legal Minds Nail Trump After Fox News 'Confession'](https://www.yahoo.com/news/seriously-stupid-legal-minds-nail-071912257.html)
+- Sep 02 - [One killed and eight injured after drunk passenger grabs steering wheel of public bus](https://www.yahoo.com/news/one-killed-eight-injured-drunk-065345041.html)
+- Sep 02 - [Metro Atlanta dad died saving his son after car crash, GSP releases details on crash](https://www.yahoo.com/news/metro-atlanta-dad-died-saving-204340490.html)
 - Sep 02 - [Trump Roasted After His Most Head-Spinning Attack On Kamala Harris Yet](https://www.yahoo.com/news/trump-roasted-most-head-spinning-042908236.html)
-- Sep 02 - [If China wants Taiwan it should also take back land from Russia, president says](https://www.yahoo.com/news/china-wants-taiwan-back-land-022408398.html)
-- Sep 02 - [China urges EU to be 'objective and fair' on South China Sea issue](https://www.yahoo.com/news/china-urges-eu-objective-fair-011314980.html)
-- Sep 01 - [New unproductive forces: the Chinese youth owning their unemployment](https://finance.yahoo.com/news/unproductive-forces-chinese-youth-owning-230830675.html)
+- Sep 02 - [How do you get a grumpy 4-ton elephant to a new home 120 miles away? Call the elephant movers](https://www.yahoo.com/news/grumpy-4-ton-elephant-home-040813837.html)
 <!-- feed end -->
 
 ### Onstream
