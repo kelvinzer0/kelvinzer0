@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [54-Year-Old Woman With No 401(k) And Only $12,000 In Savings Seeks Suze Orman's Advice, Orman Says 'Put $8,000 Into A Roth IRA'](https://finance.yahoo.com/news/54-old-woman-no-401-193236803.html)
+- Sep 02 - [Mechanics Explain Why You Should Never Buy These 6 Popular Car Brands](https://finance.yahoo.com/news/mechanics-explain-why-never-buy-120009078.html)
+- Sep 02 - [Gymnast Kara Welsh dies at 21 after shooting](https://www.yahoo.com/news/gymnast-kara-welsh-dies-21-200747920.html)
 - Sep 02 - [Hamas says hostage guards in Gaza have been operating under new instructions](https://www.yahoo.com/news/hamas-armed-wing-says-instructions-191400896.html)
-- Sep 02 - [Shaq Refused To Pay $80,000 For Security And Made A Surprising Choice. He Invested In A Company Bezos Later Bought For $1 Billion](https://finance.yahoo.com/news/shaq-refused-pay-80-000-184818858.html)
+- Sep 02 - [Walz unharmed after some of the vehicles near the back of his motorcade crash in Milwaukee](https://www.yahoo.com/news/walz-unharmed-vehicles-near-back-185214447.html)
 - Sep 02 - [Garden State Parkway has 20-mile delay as holiday traffic picks up](https://www.yahoo.com/news/garden-state-parkway-20-mile-184036904.html)
-- Sep 02 - [‘Depraved’ electrician watched customers in their homes on secretly installed cameras](https://www.yahoo.com/news/depraved-electrician-watched-customers-homes-174541674.html)
 <!-- feed end -->
 
 ### Onstream
