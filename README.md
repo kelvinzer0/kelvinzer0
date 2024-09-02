@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [How climate change is impacting home buying](https://finance.yahoo.com/video/climate-change-impacting-home-buying-181552262.html)
-- Sep 02 - [Railings on Titanic's iconic bow have broken off and fallen to sea floor](https://www.yahoo.com/news/railings-titanics-iconic-bow-broken-174117539.html)
-- Sep 02 - [Thousands of Trump followers tricked by scammers targeting his new crypto project](https://finance.yahoo.com/news/thousands-trump-followers-tricked-scammers-173500748.html)
-- Sep 02 - [Watch: Former prison officer who had sex with an inmate mocks ankle tag](https://www.yahoo.com/news/watch-former-prison-officer-had-165633030.html)
-- Sep 02 - [Ukrainian children in Poland are now required by law to attend school after years of online learning](https://www.yahoo.com/news/ukrainian-children-poland-now-required-155208481.html)
+- Sep 02 - [Harris-Walz campaign stages Labor Day blitz, courting union votes alongside Biden](https://www.yahoo.com/news/harris-walz-campaign-readies-labor-090635570.html)
+- Sep 02 - [Fact Check: Video Doesn't Show a King's Guard in London Knocking Out a Man](https://www.yahoo.com/news/fact-check-video-doesnt-show-180000442.html)
+- Sep 02 - [‘Depraved’ electrician watched customers in their homes on secretly installed cameras](https://www.yahoo.com/news/depraved-electrician-watched-customers-homes-174541674.html)
+- Sep 02 - [Hot Air Balloons Glow in Colorado Springs for 'Labor Day Take Off'](https://www.yahoo.com/news/hot-air-balloons-glow-colorado-173855627.html)
+- Sep 02 - [San Francisco police officer recounts helping Ricky Pearsall after being shot until ambulances arrived](https://sports.yahoo.com/san-francisco-police-officer-recounts-helping-ricky-pearsall-after-being-shot-until-ambulances-arrived-173739416.html)
 <!-- feed end -->
 
 ### Onstream
