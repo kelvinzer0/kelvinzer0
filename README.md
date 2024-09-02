@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Tesla Rival Breaks Out, Sales Boom On This Big Shift; Li Auto, Nio, XPeng Report China EV Deliveries](https://www.investors.com/news/china-ev-sales-tesla-archrival-byd-nio-li-auto-xpeng/?src=A00220&yptr=yahoo)
-- Sep 02 - [Stock Market Holidays 2024: Does Wall Street Take Labor Day Off?](https://www.investors.com/research/stock-market-holidays-24-labor-day/?src=A00220&yptr=yahoo)
+- Sep 02 - [Exclusive-U.S. researchers find probable launch site of Russia's new nuclear-powered missile](https://www.yahoo.com/news/exclusive-u-researchers-probable-launch-130014605.html)
+- Sep 02 - [The chances for a tropical depression (or depressions) from 3 Atlantic, Gulf systems](https://www.yahoo.com/news/chances-tropical-depression-depressions-3-130002033.html)
 - Sep 02 - [‘Selfish, immature baby’: 46-year-old Texas man borrows money from elderly parents — says he’s ‘too good’ for work, plays video games instead](https://finance.yahoo.com/news/selfish-immature-baby-46-old-112700173.html)
 - Sep 02 - [Frenchman accused of letting dozens of men rape his drugged wife](https://www.yahoo.com/news/frenchman-accused-letting-dozens-men-090314725.html)
-- Sep 02 - [Critics Call Hilarious BS On Donald Trump's New Brag About His Speeches](https://www.yahoo.com/entertainment/critics-call-hilarious-bs-donald-094722633.html)
+- Sep 02 - [Tropical mischief hangs around Texas coast](https://www.yahoo.com/news/tropical-mischief-hangs-around-texas-105023857.html)
 <!-- feed end -->
 
 ### Onstream
