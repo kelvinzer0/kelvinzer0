@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Turkey Bids to Join BRICS in Push to Build Alliances Beyond West](https://finance.yahoo.com/news/turkey-bids-join-brics-push-101621425.html)
+- Sep 02 - [Critics Call Hilarious BS On Donald Trump's New Brag About His Speeches](https://www.yahoo.com/entertainment/critics-call-hilarious-bs-donald-094722633.html)
+- Sep 02 - [Cheerleader Olivia Flores was about to graduate. Instead, her family planned her funeral](https://www.yahoo.com/news/cheerleader-olivia-flores-graduate-instead-092034897.html)
 - Sep 02 - [Delawareans searching bipolar disorder on Google more than any other mental illness](https://www.yahoo.com/news/delawareans-searching-bipolar-disorder-google-091425780.html)
-- Sep 02 - [Germany's Scholz worried by far-right surge in regional elections](https://www.yahoo.com/news/germanys-scholz-worried-far-surge-091337899.html)
 - Sep 02 - [Trump 'has a lot on his plate', misunderstands Taiwan's chip role, minister says](https://www.yahoo.com/tech/trump-lot-plate-misunderstands-taiwans-083750756.html)
-- Sep 02 - [Ex-Prosecutor Spots 'Money Line’ In Filing That Could Unleash New Donald Trump Bombshells](https://www.yahoo.com/news/ex-prosecutor-spots-money-line-072237131.html)
-- Sep 02 - ['Are You Seriously This Stupid?': Legal Minds Nail Trump After Fox News 'Confession'](https://www.yahoo.com/news/seriously-stupid-legal-minds-nail-071912257.html)
 <!-- feed end -->
 
 ### Onstream
