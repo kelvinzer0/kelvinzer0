@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 02 - [If China wants Taiwan it should also take back land from Russia, president says](https://www.yahoo.com/news/china-wants-taiwan-back-land-022408398.html)
-- Sep 02 - [A US Army vet moved to Japan with his wife and bought an abandoned house for $35,000. They have no plans to leave.](https://www.yahoo.com/news/us-army-vet-moved-japan-001402727.html)
+- Sep 01 - [WME Agent Brandt Joel Texts Colleagues ‘Screw the Left Kill All’ Following Hamas Killing of Israeli Hostages | Exclusive](https://www.yahoo.com/news/wme-agent-brandt-joel-texts-231124827.html)
 - Sep 01 - [New unproductive forces: the Chinese youth owning their unemployment](https://finance.yahoo.com/news/unproductive-forces-chinese-youth-owning-230830675.html)
 - Sep 01 - [‘I don’t want anyone telling me what to do’: My second husband wants to put our $750,000 home in a trust for his children. Does he have the right?](https://finance.yahoo.com/news/don-t-want-anyone-telling-003300445.html)
 - Sep 01 - [NASA astronaut stuck in space reports ‘strange noises’ coming from troubled Starliner capsule](https://www.yahoo.com/news/nasa-astronaut-stuck-space-reports-212336697.html)
