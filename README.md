@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 02 - ['Are You Seriously This Stupid?': Legal Minds Nail Trump After Fox News 'Confession'](https://www.yahoo.com/news/seriously-stupid-legal-minds-nail-071912257.html)
-- Sep 02 - [One killed and eight injured after drunk passenger grabs steering wheel of public bus](https://www.yahoo.com/news/one-killed-eight-injured-drunk-065345041.html)
 - Sep 02 - [Metro Atlanta dad died saving his son after car crash, GSP releases details on crash](https://www.yahoo.com/news/metro-atlanta-dad-died-saving-204340490.html)
 - Sep 02 - [Trump Roasted After His Most Head-Spinning Attack On Kamala Harris Yet](https://www.yahoo.com/news/trump-roasted-most-head-spinning-042908236.html)
 - Sep 02 - [How do you get a grumpy 4-ton elephant to a new home 120 miles away? Call the elephant movers](https://www.yahoo.com/news/grumpy-4-ton-elephant-home-040813837.html)
+- Sep 02 - [Mark Cuban says Elon Musk's 'biggest power play' on X is letting users think they have free speech](https://www.yahoo.com/tech/mark-cuban-says-elon-musks-033545809.html)
 <!-- feed end -->
 
 ### Onstream
