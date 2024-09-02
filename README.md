@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Tesla Rival Breaks Out, Sales Boom On This Big Shift; Li Auto, Nio, XPeng Report China EV Deliveries](https://www.investors.com/news/china-ev-sales-tesla-archrival-byd-nio-li-auto-xpeng/?src=A00220&yptr=yahoo)
 - Sep 02 - [Stock Market Holidays 2024: Does Wall Street Take Labor Day Off?](https://www.investors.com/research/stock-market-holidays-24-labor-day/?src=A00220&yptr=yahoo)
+- Sep 02 - [‘Selfish, immature baby’: 46-year-old Texas man borrows money from elderly parents — says he’s ‘too good’ for work, plays video games instead](https://finance.yahoo.com/news/selfish-immature-baby-46-old-112700173.html)
 - Sep 02 - [Frenchman accused of letting dozens of men rape his drugged wife](https://www.yahoo.com/news/frenchman-accused-letting-dozens-men-090314725.html)
-- Sep 02 - [Warren Buffett cautioned that you should be ready for any stock you buy to plunge ‘50% or more’](https://finance.yahoo.com/news/warren-buffett-cautioned-ready-stock-104500651.html)
-- Sep 02 - [My 67-year-old dad just admitted to having $100K in credit card debt — and he’s retired with a mortgage, no savings](https://finance.yahoo.com/news/67-old-dad-just-admitted-100200627.html)
-- Sep 02 - [I launched a ketamine startup but now feel obligated to speak out against the industry. Matthew Perry's death should be a wake-up call.](https://www.yahoo.com/entertainment/launched-ketamine-startup-now-feel-095436410.html)
+- Sep 02 - [Critics Call Hilarious BS On Donald Trump's New Brag About His Speeches](https://www.yahoo.com/entertainment/critics-call-hilarious-bs-donald-094722633.html)
 <!-- feed end -->
 
 ### Onstream
