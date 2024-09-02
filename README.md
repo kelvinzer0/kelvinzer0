@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Turkey Bids to Join BRICS in Push to Build Alliances Beyond West](https://finance.yahoo.com/news/turkey-bids-join-brics-push-101621425.html)
-- Sep 02 - [Critics Call Hilarious BS On Donald Trump's New Brag About His Speeches](https://www.yahoo.com/entertainment/critics-call-hilarious-bs-donald-094722633.html)
-- Sep 02 - [Cheerleader Olivia Flores was about to graduate. Instead, her family planned her funeral](https://www.yahoo.com/news/cheerleader-olivia-flores-graduate-instead-092034897.html)
-- Sep 02 - [Delawareans searching bipolar disorder on Google more than any other mental illness](https://www.yahoo.com/news/delawareans-searching-bipolar-disorder-google-091425780.html)
-- Sep 02 - [Trump 'has a lot on his plate', misunderstands Taiwan's chip role, minister says](https://www.yahoo.com/tech/trump-lot-plate-misunderstands-taiwans-083750756.html)
+- Sep 02 - [Stock Market Holidays 2024: Does Wall Street Take Labor Day Off?](https://www.investors.com/research/stock-market-holidays-24-labor-day/?src=A00220&yptr=yahoo)
+- Sep 02 - [Frenchman accused of letting dozens of men rape his drugged wife](https://www.yahoo.com/news/frenchman-accused-letting-dozens-men-090314725.html)
+- Sep 02 - [Warren Buffett cautioned that you should be ready for any stock you buy to plunge ‘50% or more’](https://finance.yahoo.com/news/warren-buffett-cautioned-ready-stock-104500651.html)
+- Sep 02 - [My 67-year-old dad just admitted to having $100K in credit card debt — and he’s retired with a mortgage, no savings](https://finance.yahoo.com/news/67-old-dad-just-admitted-100200627.html)
+- Sep 02 - [I launched a ketamine startup but now feel obligated to speak out against the industry. Matthew Perry's death should be a wake-up call.](https://www.yahoo.com/entertainment/launched-ketamine-startup-now-feel-095436410.html)
 <!-- feed end -->
 
 ### Onstream
