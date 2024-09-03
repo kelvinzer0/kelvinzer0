@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [South Carolina man killed in early morning crash, coroner says. Here’s what happened](https://www.yahoo.com/news/south-carolina-man-killed-early-120900232.html)
-- Sep 03 - [‘Who dreams this crap up?’: Kevin O'Leary slams new rule that allows employees to ignore their bosses after hours](https://finance.yahoo.com/news/dreams-crap-kevin-oleary-slams-110400900.html)
-- Sep 03 - [Post-Labor Day poses new COVID risk for California. Will the wave get worse?](https://www.yahoo.com/news/post-labor-day-poses-covid-100056128.html)
-- Sep 03 - [Afghan women are singing in defiance of Taliban law silencing their voices: ‘I will fight through this night’](https://www.yahoo.com/news/afghan-women-singing-defiance-taliban-053033778.html)
-- Sep 03 - [A fighter jet pilot crashed a Utah Apache helicopter after spending only 35 minutes in a simulator: report](https://www.yahoo.com/news/fighter-jet-pilot-crashed-utah-093935321.html)
+- Sep 03 - [FDA Approves Novavax's Updated COVID Vaccine Targeting Currently Circulating Variants](https://finance.yahoo.com/news/fda-approves-novavaxs-updated-covid-133557745.html)
+- Sep 03 - [Large school of whales follows man rowing across the Atlantic for TWO HOURS](https://www.yahoo.com/news/large-school-whales-follows-man-132331588.html)
+- Sep 03 - [SpaceX Starship’s 2nd Flight Footage Released Under Freedom Of Information Act By NASA](https://www.yahoo.com/news/spacex-starship-2nd-flight-footage-190320555.html)
+- Sep 03 - [DirecTV is compensating customers affected by the Disney outage. But they have to take action to get it](https://finance.yahoo.com/news/directv-compensating-customers-affected-disney-112803761.html)
+- Sep 03 - [Biden may propose final 'take it or leave it' deal to Israel, Hamas](https://www.yahoo.com/news/biden-may-propose-final-leave-112057848.html)
 <!-- feed end -->
 
 ### Onstream
