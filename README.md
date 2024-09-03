@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Ex-GOP Strategist Predicts Exactly When Trump Crashes: 'The Bottom's Gonna Drop Out'](https://www.yahoo.com/news/ex-gop-strategist-predicts-exactly-053602640.html)
+- Sep 03 - [Korean staple kimchi under climate threat in its homeland](https://finance.yahoo.com/video/korean-staple-kimchi-under-climate-070255407.html)
 - Sep 03 - [Kamala Harris’ Blunt Reply to Rally Heckler Who Called Out Donald Trump](https://www.yahoo.com/news/kamala-harris-blunt-reply-rally-051157650.html)
-- Sep 03 - [Ukrainian emergency workers extinguish flames of burning electrical substation hit by Russian bombing](https://www.yahoo.com/news/ukrainian-emergency-workers-extinguish-flames-044700184.html)
 - Sep 03 - [VW considers historic German plant closures in cost drive](https://finance.yahoo.com/video/vw-considers-historic-german-plant-042642412.html)
+- Sep 03 - [Driver arrested after fatal hit and run in Minneapolis](https://www.yahoo.com/news/driver-arrested-fatal-hit-run-022956636.html)
 - Sep 03 - [New Zealand nearly triples levy on international tourists](https://www.yahoo.com/news/zealand-nearly-triples-levy-international-021903387.html)
 <!-- feed end -->
 
