@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Ex-wrestler named as suspect in murder of title-winning college gymnast](https://www.yahoo.com/news/ex-wrestler-named-suspect-murder-194835165.html)
+- Sep 03 - [Robert Fire: 75% contained, crews work overnight to extinguish hot spots](https://www.yahoo.com/news/robert-fire-75-contained-crews-201031161.html)
 - Sep 03 - [Trump Loses It After Top Volunteer Exposes Sorry State of Campaign](https://www.yahoo.com/news/trump-loses-top-volunteer-exposes-193813936.html)
-- Sep 03 - [Nvidia and chip index tumble as investors pause AI rally](https://finance.yahoo.com/news/nvidia-chip-index-tumble-investors-183604982.html)
 - Sep 03 - [2 US Soldiers Attacked by Nationalist Turkish Youth Group](https://www.yahoo.com/news/2-us-soldiers-attacked-nationalist-183502772.html)
-- Sep 03 - [Man on trial in France accused of repeatedly drugging and having his wife raped by at least 50 strangers for almost 10 years](https://www.yahoo.com/news/man-trial-france-accused-repeatedly-170950910.html)
+- Sep 03 - [JD Vance endorsed a report that criticizes people watching pornography — especially married women](https://www.yahoo.com/news/jd-vance-endorsed-report-criticizes-183413866.html)
+- Sep 03 - [Judge accepts plea deals for 4 Las Vegas teens accused of killing classmate](https://www.yahoo.com/news/judge-accepts-plea-deals-4-182230750.html)
 <!-- feed end -->
 
 ### Onstream
