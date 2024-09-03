@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Ex-GOP Strategist Predicts Exactly When Trump Crashes: 'The Bottom's Gonna Drop Out'](https://www.yahoo.com/news/ex-gop-strategist-predicts-exactly-053602640.html)
+- Sep 03 - [Kamala Harris’ Blunt Reply to Rally Heckler Who Called Out Donald Trump](https://www.yahoo.com/news/kamala-harris-blunt-reply-rally-051157650.html)
+- Sep 03 - [Ukrainian emergency workers extinguish flames of burning electrical substation hit by Russian bombing](https://www.yahoo.com/news/ukrainian-emergency-workers-extinguish-flames-044700184.html)
 - Sep 03 - [VW considers historic German plant closures in cost drive](https://finance.yahoo.com/video/vw-considers-historic-german-plant-042642412.html)
 - Sep 03 - [New Zealand nearly triples levy on international tourists](https://www.yahoo.com/news/zealand-nearly-triples-levy-international-021903387.html)
-- Sep 03 - ['Titanic will literally never look the same' after researchers discovered the site of James Cameron's famous 'I'm flying' scene is breaking apart](https://www.yahoo.com/news/titanic-literally-never-look-same-002608594.html)
-- Sep 02 - [Exclusive-Elliott now owns enough of Southwest Airlines to call special meeting](https://finance.yahoo.com/news/exclusive-elliott-now-owns-enough-230710463.html)
-- Sep 02 - [Hamas terrorists release footage of six slain hostages, promise to share 'last messages'](https://www.yahoo.com/news/hamas-terrorists-release-footage-six-221924531.html)
 <!-- feed end -->
 
 ### Onstream
