@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Charlotte airport construction shutting down 2 nearby roads. Airport overlook impacted too](https://www.yahoo.com/news/charlotte-airport-construction-shutting-down-173026853.html)
-- Sep 03 - [JD Vance's beard and what it means to be a man](https://www.yahoo.com/lifestyle/jd-vances-beard-means-man-173006823.html)
-- Sep 03 - [Commander of Navy warship relieved of duty months after backward rifle scope photo flap](https://www.yahoo.com/news/commander-navy-warship-relieved-duty-171445028.html)
-- Sep 03 - [Man on trial in France accused of repeatedly drugging and having his wife raped by at least 50 strangers for almost 10 years](https://www.yahoo.com/news/man-trial-france-accused-repeatedly-170950910.html)
-- Sep 03 - [Costco hikes membership fees for first time in seven years](https://finance.yahoo.com/video/costco-hikes-membership-fees-first-164447657.html)
+- Sep 03 - [Volkswagen electric car brand would be ‘wiped out’ by EU tariffs](https://finance.yahoo.com/news/volkswagen-electric-car-brand-wiped-184059085.html)
+- Sep 03 - [Man wounded in Cougar Park shooting in Socorro in unsolved Crime of the Week](https://www.yahoo.com/news/man-wounded-cougar-park-shooting-180823084.html)
+- Sep 03 - [Mountain lion attacks 5-year-old at Southern California park and is euthanized](https://www.yahoo.com/news/mountain-lion-attacks-5-old-175925736.html)
+- Sep 03 - [Kansas man dies, 2 others seriously injured in UTV rollover crash on Labor Day weekend](https://www.yahoo.com/news/kansas-man-dies-2-others-175024893.html)
+- Sep 03 - [Muni-Bond Market Faces September Slump as Supply Outpaces Demand](https://finance.yahoo.com/news/muni-bond-market-faces-september-174703535.html)
 <!-- feed end -->
 
 ### Onstream
