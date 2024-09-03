@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [FDA Approves Novavax's Updated COVID Vaccine Targeting Currently Circulating Variants](https://finance.yahoo.com/news/fda-approves-novavaxs-updated-covid-133557745.html)
-- Sep 03 - [Large school of whales follows man rowing across the Atlantic for TWO HOURS](https://www.yahoo.com/news/large-school-whales-follows-man-132331588.html)
+- Sep 03 - [Linda Sun, former Kathy Hochul aide, arrested months after FBI raid on home](https://www.yahoo.com/news/linda-sun-former-kathy-hochul-140848951.html)
 - Sep 03 - [SpaceX Starship’s 2nd Flight Footage Released Under Freedom Of Information Act By NASA](https://www.yahoo.com/news/spacex-starship-2nd-flight-footage-190320555.html)
-- Sep 03 - [DirecTV is compensating customers affected by the Disney outage. But they have to take action to get it](https://finance.yahoo.com/news/directv-compensating-customers-affected-disney-112803761.html)
 - Sep 03 - [Biden may propose final 'take it or leave it' deal to Israel, Hamas](https://www.yahoo.com/news/biden-may-propose-final-leave-112057848.html)
+- Sep 03 - [‘Who dreams this crap up?’: Kevin O'Leary slams new rule that allows employees to ignore their bosses after hours](https://finance.yahoo.com/news/dreams-crap-kevin-oleary-slams-110400900.html)
+- Sep 03 - [GOP Pollster Predicts Donald Trump Debate Win If He Asks 1 Question](https://www.yahoo.com/news/gop-pollster-predicts-donald-trump-104205162.html)
 <!-- feed end -->
 
 ### Onstream
