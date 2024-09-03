@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [South Carolina man killed in early morning crash, coroner says. Here’s what happened](https://www.yahoo.com/news/south-carolina-man-killed-early-120900232.html)
 - Sep 03 - [‘Who dreams this crap up?’: Kevin O'Leary slams new rule that allows employees to ignore their bosses after hours](https://finance.yahoo.com/news/dreams-crap-kevin-oleary-slams-110400900.html)
-- Sep 03 - [Shooting at KC gas station ‘all still a bad dream’ for family who lost dad, brother, son](https://www.yahoo.com/news/shooting-kc-gas-station-still-110000981.html)
-- Sep 03 - [Crash closes I-40/I-24 near downtown Nashville](https://www.yahoo.com/news/crash-closes-40-24-near-105327527.html)
-- Sep 03 - [An air traffic controller was found asleep under a blanket mid-shift at one of the world's top airports](https://www.yahoo.com/news/air-traffic-controller-found-asleep-102655193.html)
+- Sep 03 - [Post-Labor Day poses new COVID risk for California. Will the wave get worse?](https://www.yahoo.com/news/post-labor-day-poses-covid-100056128.html)
 - Sep 03 - [Afghan women are singing in defiance of Taliban law silencing their voices: ‘I will fight through this night’](https://www.yahoo.com/news/afghan-women-singing-defiance-taliban-053033778.html)
+- Sep 03 - [A fighter jet pilot crashed a Utah Apache helicopter after spending only 35 minutes in a simulator: report](https://www.yahoo.com/news/fighter-jet-pilot-crashed-utah-093935321.html)
 <!-- feed end -->
 
 ### Onstream
