@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [The presidential campaigns brace for an intense sprint to Election Day](https://www.yahoo.com/news/presidential-campaigns-brace-intense-sprint-040319930.html)
+- Sep 03 - [VW considers historic German plant closures in cost drive](https://finance.yahoo.com/video/vw-considers-historic-german-plant-042642412.html)
+- Sep 03 - [New Zealand nearly triples levy on international tourists](https://www.yahoo.com/news/zealand-nearly-triples-levy-international-021903387.html)
+- Sep 03 - ['Titanic will literally never look the same' after researchers discovered the site of James Cameron's famous 'I'm flying' scene is breaking apart](https://www.yahoo.com/news/titanic-literally-never-look-same-002608594.html)
 - Sep 02 - [Exclusive-Elliott now owns enough of Southwest Airlines to call special meeting](https://finance.yahoo.com/news/exclusive-elliott-now-owns-enough-230710463.html)
 - Sep 02 - [Hamas terrorists release footage of six slain hostages, promise to share 'last messages'](https://www.yahoo.com/news/hamas-terrorists-release-footage-six-221924531.html)
-- Sep 02 - [My Belly Button Saved My Life](https://www.yahoo.com/lifestyle/belly-button-saved-life-221602528.html)
-- Sep 02 - [Kamala Harris goes viral with 'cringe' new accent at Detroit rally, sparks 'Foghorn Leghorn' comparisons](https://www.yahoo.com/news/kamala-harris-goes-viral-cringe-220439668.html)
 <!-- feed end -->
 
 ### Onstream
