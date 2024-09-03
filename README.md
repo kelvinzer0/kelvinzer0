@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Namibia's drought cull of more than 700 wildlife under way](https://www.yahoo.com/news/namibias-drought-cull-more-700-165424631.html)
-- Sep 03 - [JD Vance takes 'Worst VP pick EVER!' crown from Sarah Palin, and gets less likable every day](https://www.yahoo.com/news/jd-vance-takes-worst-vp-151011873.html)
-- Sep 03 - [Ukraine appears to have developed a drone that spews fire from above, per dramatic video](https://www.yahoo.com/news/ukraine-appears-developed-drone-spews-133241608.html)
-- Sep 03 - [SpaceX Starship’s 2nd Flight Footage Released Under Freedom Of Information Act By NASA](https://www.yahoo.com/news/spacex-starship-2nd-flight-footage-190320555.html)
-- Sep 03 - [2 Ohio state parks named best to visit this fall](https://www.yahoo.com/lifestyle/2-ohio-state-parks-named-125206938.html)
+- Sep 03 - [Charlotte airport construction shutting down 2 nearby roads. Airport overlook impacted too](https://www.yahoo.com/news/charlotte-airport-construction-shutting-down-173026853.html)
+- Sep 03 - [JD Vance's beard and what it means to be a man](https://www.yahoo.com/lifestyle/jd-vances-beard-means-man-173006823.html)
+- Sep 03 - [Commander of Navy warship relieved of duty months after backward rifle scope photo flap](https://www.yahoo.com/news/commander-navy-warship-relieved-duty-171445028.html)
+- Sep 03 - [Man on trial in France accused of repeatedly drugging and having his wife raped by at least 50 strangers for almost 10 years](https://www.yahoo.com/news/man-trial-france-accused-repeatedly-170950910.html)
+- Sep 03 - [Costco hikes membership fees for first time in seven years](https://finance.yahoo.com/video/costco-hikes-membership-fees-first-164447657.html)
 <!-- feed end -->
 
 ### Onstream
