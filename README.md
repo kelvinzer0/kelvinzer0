@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Robert Fire: 75% contained, crews work overnight to extinguish hot spots](https://www.yahoo.com/news/robert-fire-75-contained-crews-201031161.html)
-- Sep 03 - [Trump Loses It After Top Volunteer Exposes Sorry State of Campaign](https://www.yahoo.com/news/trump-loses-top-volunteer-exposes-193813936.html)
-- Sep 03 - [2 US Soldiers Attacked by Nationalist Turkish Youth Group](https://www.yahoo.com/news/2-us-soldiers-attacked-nationalist-183502772.html)
-- Sep 03 - [JD Vance endorsed a report that criticizes people watching pornography — especially married women](https://www.yahoo.com/news/jd-vance-endorsed-report-criticizes-183413866.html)
-- Sep 03 - [Judge accepts plea deals for 4 Las Vegas teens accused of killing classmate](https://www.yahoo.com/news/judge-accepts-plea-deals-4-182230750.html)
+- Sep 03 - [Supreme Court won't allow Oklahoma to reclaim federal money in dispute over abortion referrals](https://www.yahoo.com/news/supreme-court-wont-allow-oklahoma-210337155.html)
+- Sep 03 - [Boy, 11, fatally shoots US former mayor and daughter](https://www.yahoo.com/news/boy-11-fatally-shoots-us-203216123.html)
+- Sep 03 - [Children held over fatal attack on dog walker, 80](https://www.yahoo.com/news/five-children-held-over-fatal-103048506.html)
+- Sep 03 - [Nvidia gets subpoena from US DoJ, Bloomberg News reports](https://finance.yahoo.com/news/nvidia-hit-subpoena-us-justice-203656104.html)
+- Sep 03 - [Three fans ejected, one arrested during FSU football's loss against Boston College](https://www.yahoo.com/news/three-fans-ejected-one-arrested-194130899.html)
 <!-- feed end -->
 
 ### Onstream
