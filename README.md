@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Elon Musk defies X ban in Brazil by beaming app from space](https://finance.yahoo.com/news/elon-musk-defies-x-ban-093005955.html)
+- Sep 03 - [Giant python caught swallowing even bigger python alive in world first](https://www.yahoo.com/news/giant-python-caught-swallowing-even-042909443.html)
+- Sep 03 - [Pensacola family evicted from home with 15 minutes notice. Was it legal? New law says so.](https://www.yahoo.com/news/pensacola-family-evicted-home-15-090550794.html)
 - Sep 03 - [Schoolboy chased for 30km and shot dead by ‘cow protection’ vigilantes in India](https://www.yahoo.com/news/schoolboy-chased-30km-shot-dead-084016172.html)
-- Sep 03 - [The alarming reason why an Australian state has introduced big littering fines](https://www.yahoo.com/news/australian-state-introduces-big-fines-075606446.html)
-- Sep 03 - [New Titanic expedition discovers treasure lost on ocean floor for over a century](https://www.yahoo.com/news/titanic-expedition-discovers-treasure-lost-080513544.html)
-- Sep 03 - [Ex-GOP Strategist Predicts Exactly When Trump Crashes: 'The Bottom's Gonna Drop Out'](https://www.yahoo.com/news/ex-gop-strategist-predicts-exactly-053602640.html)
-- Sep 03 - [In Catholic Paraguay's 1st sex ed program, condoms can't be trusted, love is forever, boys don't cry](https://www.yahoo.com/news/catholic-paraguays-1st-sex-ed-053302570.html)
+- Sep 03 - [Study finds what drives us to procrastinate](https://www.yahoo.com/lifestyle/study-finds-drives-us-procrastinate-081126861.html)
 <!-- feed end -->
 
 ### Onstream
