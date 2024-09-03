@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Geneva College chemistry professor burned while preparing solution for lab](https://www.yahoo.com/news/geneva-college-chemistry-professor-burned-004712239.html)
+- Sep 03 - [iPhone 16 rumors: Everything we know](https://www.yahoo.com/tech/iphone-16-rumors-every-single-185228412.html)
+- Sep 03 - [Jim Cramer Says Salesforce Inc. (CRM)’s New AI Initiative ‘Will Lead To A Massive Expansion Of Gross Margins’](https://finance.yahoo.com/news/jim-cramer-says-salesforce-inc-013606918.html)
+- Sep 02 - [Texas gang members drive to O’Fallon, steal $94K from ATM: Police](https://www.yahoo.com/news/texas-gang-members-drive-o-232948916.html)
 - Sep 02 - [Exclusive-Elliott now owns enough of Southwest Airlines to call special meeting](https://finance.yahoo.com/news/exclusive-elliott-now-owns-enough-230710463.html)
-- Sep 02 - [My Belly Button Saved My Life](https://www.yahoo.com/lifestyle/belly-button-saved-life-221602528.html)
-- Sep 02 - [54-Year-Old Woman With No 401(k) And Only $12,000 In Savings Seeks Suze Orman's Advice, Orman Says 'Put $8,000 Into A Roth IRA'](https://finance.yahoo.com/news/54-old-woman-no-401-193236803.html)
-- Sep 02 - [Hamas says hostage guards in Gaza have been operating under new instructions](https://www.yahoo.com/news/hamas-armed-wing-says-instructions-191400896.html)
+- Sep 02 - [NC charter school closes one week into school because it didn’t certificate of occupancy](https://www.yahoo.com/news/nc-charter-school-closes-one-224929426.html)
 <!-- feed end -->
 
 ### Onstream
