@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Volkswagen electric car brand would be ‘wiped out’ by EU tariffs](https://finance.yahoo.com/news/volkswagen-electric-car-brand-wiped-184059085.html)
-- Sep 03 - [Man wounded in Cougar Park shooting in Socorro in unsolved Crime of the Week](https://www.yahoo.com/news/man-wounded-cougar-park-shooting-180823084.html)
-- Sep 03 - [Mountain lion attacks 5-year-old at Southern California park and is euthanized](https://www.yahoo.com/news/mountain-lion-attacks-5-old-175925736.html)
-- Sep 03 - [Kansas man dies, 2 others seriously injured in UTV rollover crash on Labor Day weekend](https://www.yahoo.com/news/kansas-man-dies-2-others-175024893.html)
-- Sep 03 - [Muni-Bond Market Faces September Slump as Supply Outpaces Demand](https://finance.yahoo.com/news/muni-bond-market-faces-september-174703535.html)
+- Sep 03 - [Ex-wrestler named as suspect in murder of title-winning college gymnast](https://www.yahoo.com/news/ex-wrestler-named-suspect-murder-194835165.html)
+- Sep 03 - [Trump Loses It After Top Volunteer Exposes Sorry State of Campaign](https://www.yahoo.com/news/trump-loses-top-volunteer-exposes-193813936.html)
+- Sep 03 - [Nvidia and chip index tumble as investors pause AI rally](https://finance.yahoo.com/news/nvidia-chip-index-tumble-investors-183604982.html)
+- Sep 03 - [2 US Soldiers Attacked by Nationalist Turkish Youth Group](https://www.yahoo.com/news/2-us-soldiers-attacked-nationalist-183502772.html)
+- Sep 03 - [Man on trial in France accused of repeatedly drugging and having his wife raped by at least 50 strangers for almost 10 years](https://www.yahoo.com/news/man-trial-france-accused-repeatedly-170950910.html)
 <!-- feed end -->
 
 ### Onstream
