@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Linda Sun, former Kathy Hochul aide, arrested months after FBI raid on home](https://www.yahoo.com/news/linda-sun-former-kathy-hochul-140848951.html)
-- Sep 03 - [SpaceX Starship’s 2nd Flight Footage Released Under Freedom Of Information Act By NASA](https://www.yahoo.com/news/spacex-starship-2nd-flight-footage-190320555.html)
-- Sep 03 - [Biden may propose final 'take it or leave it' deal to Israel, Hamas](https://www.yahoo.com/news/biden-may-propose-final-leave-112057848.html)
-- Sep 03 - [‘Who dreams this crap up?’: Kevin O'Leary slams new rule that allows employees to ignore their bosses after hours](https://finance.yahoo.com/news/dreams-crap-kevin-oleary-slams-110400900.html)
-- Sep 03 - [GOP Pollster Predicts Donald Trump Debate Win If He Asks 1 Question](https://www.yahoo.com/news/gop-pollster-predicts-donald-trump-104205162.html)
+- Sep 03 - [Body Found in Search for Missing Runner Arielle Valdes 5 Days After She Disappeared in Florida](https://www.yahoo.com/news/body-found-search-missing-runner-154119430.html)
+- Sep 03 - [‘God’s punching bag’: The tragic life and death of a beloved American child actor](https://www.yahoo.com/news/gary-coleman-one-america-biggest-145355461.html)
+- Sep 03 - [Strategist warns of 'larger pullback' amid soft landing hopes](https://finance.yahoo.com/video/strategist-warns-larger-pullback-amid-153000529.html)
+- Sep 03 - [JD Vance takes 'Worst VP pick EVER!' crown from Sarah Palin, and gets less likable every day](https://www.yahoo.com/news/jd-vance-takes-worst-vp-151011873.html)
+- Sep 03 - [Ohio pushes for voter registration ID on heels of Arizona ruling](https://www.yahoo.com/news/ohio-pushes-voter-registration-id-142711393.html)
 <!-- feed end -->
 
 ### Onstream
