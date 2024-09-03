@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [National Hurricane Center tracking 2 tropical waves that could become tropical depressions](https://www.yahoo.com/news/national-hurricane-center-tracking-2-101715859.html)
+- Sep 03 - [Prediction: Amazon Stock Will Soar Over the Next 5 Years. Here's 1 Reason Why.](https://finance.yahoo.com/news/prediction-amazon-stock-soar-over-100900094.html)
+- Sep 03 - [Afghan women are singing in defiance of Taliban law silencing their voices: ‘I will fight through this night’](https://www.yahoo.com/news/afghan-women-singing-defiance-taliban-053033778.html)
 - Sep 03 - [Elon Musk defies X ban in Brazil by beaming app from space](https://finance.yahoo.com/news/elon-musk-defies-x-ban-093005955.html)
-- Sep 03 - [Giant python caught swallowing even bigger python alive in world first](https://www.yahoo.com/news/giant-python-caught-swallowing-even-042909443.html)
-- Sep 03 - [Pensacola family evicted from home with 15 minutes notice. Was it legal? New law says so.](https://www.yahoo.com/news/pensacola-family-evicted-home-15-090550794.html)
-- Sep 03 - [Schoolboy chased for 30km and shot dead by ‘cow protection’ vigilantes in India](https://www.yahoo.com/news/schoolboy-chased-30km-shot-dead-084016172.html)
-- Sep 03 - [Study finds what drives us to procrastinate](https://www.yahoo.com/lifestyle/study-finds-drives-us-procrastinate-081126861.html)
+- Sep 03 - [Korean staple kimchi under climate threat in its homeland](https://finance.yahoo.com/video/korean-staple-kimchi-under-climate-070255407.html)
 <!-- feed end -->
 
 ### Onstream
