@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Study finds what drives us to procrastinate](https://www.yahoo.com/lifestyle/study-finds-drives-us-procrastinate-081126861.html)
+- Sep 03 - [Schoolboy chased for 30km and shot dead by ‘cow protection’ vigilantes in India](https://www.yahoo.com/news/schoolboy-chased-30km-shot-dead-084016172.html)
 - Sep 03 - [The alarming reason why an Australian state has introduced big littering fines](https://www.yahoo.com/news/australian-state-introduces-big-fines-075606446.html)
-- Sep 03 - [Donald Trump's Nephew Drops S-Bomb On MSNBC During Searing Takedown Of Uncle](https://www.yahoo.com/news/donald-trumps-nephew-drops-bomb-072137458.html)
-- Sep 03 - [Top 3 UK Dividend Stocks To Watch](https://finance.yahoo.com/news/top-3-uk-dividend-stocks-070736250.html)
-- Sep 03 - [Chinese farmers across 14 towns are spraying industrial sulfur on wolfberries so they'd be 'red and beautiful:' state media](https://www.yahoo.com/news/chinese-farmers-across-14-towns-055524547.html)
+- Sep 03 - [New Titanic expedition discovers treasure lost on ocean floor for over a century](https://www.yahoo.com/news/titanic-expedition-discovers-treasure-lost-080513544.html)
+- Sep 03 - [Ex-GOP Strategist Predicts Exactly When Trump Crashes: 'The Bottom's Gonna Drop Out'](https://www.yahoo.com/news/ex-gop-strategist-predicts-exactly-053602640.html)
+- Sep 03 - [In Catholic Paraguay's 1st sex ed program, condoms can't be trusted, love is forever, boys don't cry](https://www.yahoo.com/news/catholic-paraguays-1st-sex-ed-053302570.html)
 <!-- feed end -->
 
 ### Onstream
