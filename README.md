@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Body Found in Search for Missing Runner Arielle Valdes 5 Days After She Disappeared in Florida](https://www.yahoo.com/news/body-found-search-missing-runner-154119430.html)
-- Sep 03 - [‘God’s punching bag’: The tragic life and death of a beloved American child actor](https://www.yahoo.com/news/gary-coleman-one-america-biggest-145355461.html)
-- Sep 03 - [Strategist warns of 'larger pullback' amid soft landing hopes](https://finance.yahoo.com/video/strategist-warns-larger-pullback-amid-153000529.html)
+- Sep 03 - [Namibia's drought cull of more than 700 wildlife under way](https://www.yahoo.com/news/namibias-drought-cull-more-700-165424631.html)
 - Sep 03 - [JD Vance takes 'Worst VP pick EVER!' crown from Sarah Palin, and gets less likable every day](https://www.yahoo.com/news/jd-vance-takes-worst-vp-151011873.html)
-- Sep 03 - [Ohio pushes for voter registration ID on heels of Arizona ruling](https://www.yahoo.com/news/ohio-pushes-voter-registration-id-142711393.html)
+- Sep 03 - [Ukraine appears to have developed a drone that spews fire from above, per dramatic video](https://www.yahoo.com/news/ukraine-appears-developed-drone-spews-133241608.html)
+- Sep 03 - [SpaceX Starship’s 2nd Flight Footage Released Under Freedom Of Information Act By NASA](https://www.yahoo.com/news/spacex-starship-2nd-flight-footage-190320555.html)
+- Sep 03 - [2 Ohio state parks named best to visit this fall](https://www.yahoo.com/lifestyle/2-ohio-state-parks-named-125206938.html)
 <!-- feed end -->
 
 ### Onstream
