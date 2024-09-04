@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Clashes erupt between Palestinian protesters and Israeli soldiers in the city centre of Jenin](https://www.yahoo.com/news/clashes-erupt-between-palestinian-protesters-021622083.html)
 - Sep 04 - [Oregon hospital hit with $303M lawsuit after a nurse is accused of replacing fentanyl with tap water](https://www.yahoo.com/news/oregon-hospital-hit-303m-lawsuit-013555577.html)
 - Sep 03 - [Mike Lynch Died in Sicily Yacht Sinking, Now His Widow Could Be Liable for $4B Because of Hewlett Packard Claim](https://finance.yahoo.com/news/mike-lynch-died-sicily-yacht-231015190.html)
+- Sep 03 - [Austin homeless man who terrorized neighborhood is back on the streets after escaping custody](https://www.yahoo.com/news/austin-homeless-man-terrorized-neighborhood-224900789.html)
 - Sep 03 - [Alabama man dies in Destin hospital after surgeon removes wrong organ. How it happened.](https://www.yahoo.com/news/alabama-man-dies-destin-hospital-223117087.html)
 - Sep 03 - [White House Press Secretary Shuts Down Fox News Reporter Over ‘Insane’ Question About Kamala Harris’ ‘Betta’ Accent](https://www.yahoo.com/news/white-house-press-secretary-shuts-221401337.html)
 <!-- feed end -->
