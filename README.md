@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Georgia high school shooting: What we know about the suspected teenage gunman](https://www.yahoo.com/news/georgia-high-school-shooting-know-163618574.html)
-- Sep 04 - [What we know about Apple's iPhone 16 launch event](https://www.yahoo.com/news/apple-iphone-16-launch-event-september-182423855.html)
+- Sep 04 - [Tim Walz Trolls J.D. Vance by Buying Donuts Like a Normal Human Person](https://www.yahoo.com/entertainment/tim-walz-trolls-j-d-190129026.html)
+- Sep 04 - [Sheriff says a suspect is in custody after deadly shooting at Georgia high school](https://www.yahoo.com/news/sheriff-says-suspect-custody-deadly-184832540.html)
+- Sep 04 - [Former Penn State students may receive slice of $17M settlement over COVID restrictions](https://www.yahoo.com/news/former-penn-state-students-may-184502840.html)
+- Sep 04 - [Nvidia is suddenly in trouble](https://finance.yahoo.com/news/nvidia-suddenly-trouble-133103407.html)
 - Sep 04 - [Half a house for half a million dollars: Home crushed by tree hits market near Los Angeles](https://www.yahoo.com/news/half-house-half-million-dollars-174808173.html)
-- Sep 04 - [Senior Cat Whose Family Refused Treatment After Being Hit By Car Is Searching for Loving Home](https://www.yahoo.com/lifestyle/senior-cat-whose-family-refused-173000970.html)
-- Sep 04 - [Minnesota man whose high-profile murder sentence was commuted is found guilty on gun, drug charges](https://www.yahoo.com/news/minnesota-man-whose-high-profile-170412796.html)
 <!-- feed end -->
 
 ### Onstream
