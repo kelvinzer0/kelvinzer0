@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Lightning damages Rome's ancient Constantine Arch during a violent thunderstorm](https://www.yahoo.com/news/lightning-damages-romes-ancient-constantine-072716145.html)
-- Sep 04 - [Linda Sun, former Kathy Hochul aide, accused of scheming to advance interests of China](https://www.yahoo.com/news/linda-sun-former-kathy-hochul-140848951.html)
+- Sep 04 - [Half of Americans think at least one room in their home is unsalvageable](https://www.yahoo.com/lifestyle/half-americans-think-least-one-082528288.html)
+- Sep 04 - [Why PennDOT says a new bridge will not be built to replace worsening Route 462 structure](https://www.yahoo.com/news/why-penndot-says-bridge-not-080649361.html)
+- Sep 04 - ["I bought abandoned £31k bank - turning it into home complete with original safe"](https://www.yahoo.com/news/bought-abandoned-31k-bank-turning-075332837.html)
+- Sep 04 - [A US Navy warship commander was relieved of duty over a 'loss of confidence' 4 months after he was photographed firing a rifle with a backward scope](https://www.yahoo.com/news/us-navy-warship-commander-relieved-071510955.html)
 - Sep 04 - [North Korea’s Kim Jong Un reportedly ordered dozens of officials executed after deadly floods](https://www.yahoo.com/news/north-korea-kim-jong-un-015918288.html)
-- Sep 04 - [Oregon hospital hit with $303M lawsuit after a nurse is accused of replacing fentanyl with tap water](https://www.yahoo.com/news/oregon-hospital-hit-303m-lawsuit-013555577.html)
-- Sep 04 - [Nevada grandmother faces fines for giving rides to Burning Man attendees](https://www.yahoo.com/news/nevada-grandmother-faces-fines-giving-011943745.html)
 <!-- feed end -->
 
 ### Onstream
