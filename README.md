@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Child 'fought for her life' for three days after being shot. Two men now face murder charges](https://www.yahoo.com/news/child-fought-her-life-three-223628714.html)
+- Sep 03 - [Trump promises to release Epstein ‘client list’ if he wins the election](https://www.yahoo.com/news/trump-promises-release-epstein-client-225808575.html)
 - Sep 03 - [Alabama man dies in Destin hospital after surgeon removes wrong organ. How it happened.](https://www.yahoo.com/news/alabama-man-dies-destin-hospital-223117087.html)
-- Sep 03 - [White House Press Secretary Shuts Down Fox News Reporter Over ‘Insane’ Question About Kamala Harris’ ‘Betta’ Accent](https://www.yahoo.com/news/white-house-press-secretary-shuts-221401337.html)
-- Sep 03 - [Scotland's struggle to tackle poverty while cutting services](https://www.yahoo.com/news/scotlands-struggle-tackle-poverty-while-221307531.html)
+- Sep 03 - [The ‘glory days’ for global automakers in China are over](https://finance.yahoo.com/news/glory-days-global-automakers-china-220020627.html)
 - Sep 03 - [Researchers shocked after 8-foot shark is eaten by a predator. But who's the culprit?](https://www.yahoo.com/news/researchers-shocked-8-foot-shark-214341229.html)
+- Sep 03 - [Musk's Starlink backtracks and says it will comply with judge's order to block X in Brazil](https://www.yahoo.com/news/musks-starlink-backtracks-comply-judges-211316197.html)
 <!-- feed end -->
 
 ### Onstream
