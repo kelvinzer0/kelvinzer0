@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Traffic in Colombia descended into chaos after negotiations over fuel price failed](https://www.yahoo.com/news/traffic-colombia-descended-chaos-negotiations-202022331.html)
+- Sep 04 - [Thomas, Alito and Gorsuch disagree with high court siding with Biden administration in abortion-related case](https://www.yahoo.com/news/thomas-alito-gorsuch-disagree-high-201746608.html)
 - Sep 04 - [Tim Walz Trolls J.D. Vance by Buying Donuts Like a Normal Human Person](https://www.yahoo.com/entertainment/tim-walz-trolls-j-d-190129026.html)
 - Sep 04 - [Sheriff says a suspect is in custody after deadly shooting at Georgia high school](https://www.yahoo.com/news/sheriff-says-suspect-custody-deadly-184832540.html)
-- Sep 04 - [Former Penn State students may receive slice of $17M settlement over COVID restrictions](https://www.yahoo.com/news/former-penn-state-students-may-184502840.html)
-- Sep 04 - [Nvidia is suddenly in trouble](https://finance.yahoo.com/news/nvidia-suddenly-trouble-133103407.html)
-- Sep 04 - [Half a house for half a million dollars: Home crushed by tree hits market near Los Angeles](https://www.yahoo.com/news/half-house-half-million-dollars-174808173.html)
+- Sep 04 - [Commanders suspend employee after undercover video showed him disparaging players and fans](https://sports.yahoo.com/commanders-suspend-employee-undercover-video-184258307.html)
 <!-- feed end -->
 
 ### Onstream
