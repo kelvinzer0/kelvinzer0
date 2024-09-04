@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Worst of dangerous SoCal heat wave hitting over next few days: What to know](https://www.yahoo.com/news/worst-dangerous-socal-heat-wave-155116728.html)
-- Sep 04 - [World pumps out 57 million tons of plastic pollution yearly and most comes in Global South](https://www.yahoo.com/news/world-pumps-57-million-tons-150753027.html)
-- Sep 04 - [3 Most Important Financial Decisions You’ll Make in Life — Are You Making the Right Ones?](https://finance.yahoo.com/news/3-most-important-financial-decisions-150030484.html)
-- Sep 04 - [I Asked Veterans To Anonymously Share If They're Voting For Kamala Harris Or Donald Trump — Here's What They Revealed](https://www.yahoo.com/news/asked-veterans-anonymously-share-theyre-140455505.html)
-- Sep 04 - [Here’s How Much You Need To Invest Before You Can Quit Your Job and Retire Early](https://finance.yahoo.com/news/much-invest-quit-job-retire-140020273.html)
+- Sep 04 - [Boeing will fly its empty capsule back to Earth soon. Two NASA astronauts will stay behind](https://www.yahoo.com/news/boeing-fly-empty-capsule-back-161327086.html)
+- Sep 04 - [Volkswagen warns time running out as clashes with workers over cuts](https://finance.yahoo.com/video/volkswagen-warns-time-running-clashes-153531752.html)
+- Sep 04 - [The world is pumping out 57 million tons of plastic pollution a year](https://www.yahoo.com/news/world-pumps-57-million-tons-150753027.html)
+- Sep 04 - [The ‘glory days’ for global automakers in China are over](https://finance.yahoo.com/news/glory-days-global-automakers-china-220020627.html)
+- Sep 04 - [Ginni Thomas’s Secret Work to Stop Supreme Court Reform Exposed](https://www.yahoo.com/news/ginni-thomas-secret-stop-supreme-142518409.html)
 <!-- feed end -->
 
 ### Onstream
