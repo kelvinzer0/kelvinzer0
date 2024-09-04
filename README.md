@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Half of Americans think at least one room in their home is unsalvageable](https://www.yahoo.com/lifestyle/half-americans-think-least-one-082528288.html)
-- Sep 04 - [Why PennDOT says a new bridge will not be built to replace worsening Route 462 structure](https://www.yahoo.com/news/why-penndot-says-bridge-not-080649361.html)
-- Sep 04 - ["I bought abandoned £31k bank - turning it into home complete with original safe"](https://www.yahoo.com/news/bought-abandoned-31k-bank-turning-075332837.html)
+- Sep 04 - [A US Navy chief who wanted WiFi on her warship secretly ran an illegal Starlink network that she named 'STINKY': report](https://www.yahoo.com/news/us-navy-chief-wanted-wifi-091733962.html)
+- Sep 04 - [Trump Gets Hit With Instant Fact-Check After Bragging Of 1 'Impossible' Skill](https://www.yahoo.com/news/trump-gets-hit-instant-fact-085801230.html)
 - Sep 04 - [A US Navy warship commander was relieved of duty over a 'loss of confidence' 4 months after he was photographed firing a rifle with a backward scope](https://www.yahoo.com/news/us-navy-warship-commander-relieved-071510955.html)
+- Sep 04 - [Nvidia just recorded the biggest single-day wipeout by a US company](https://www.yahoo.com/tech/nvidia-just-recorded-biggest-single-050029777.html)
 - Sep 04 - [North Korea’s Kim Jong Un reportedly ordered dozens of officials executed after deadly floods](https://www.yahoo.com/news/north-korea-kim-jong-un-015918288.html)
 <!-- feed end -->
 
