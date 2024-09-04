@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Real estate agent charged with allegedly messaging Tri-Cities 14-year-old about sex](https://www.yahoo.com/news/real-estate-agent-charged-allegedly-120000674.html)
+- Sep 04 - [Lavrov warns US not to mock Russia's 'red lines'](https://www.yahoo.com/news/lavrov-warns-us-not-mock-122320543.html)
+- Sep 04 - [Top US Dividend Stocks To Consider In September 2024](https://finance.yahoo.com/news/top-us-dividend-stocks-consider-110643363.html)
 - Sep 04 - [Coke and Pepsi boycott over Gaza lifts Muslim countries' local sodas](https://finance.yahoo.com/news/coke-pepsi-boycott-over-gaza-102324354.html)
 - Sep 04 - [Intel manufacturing business suffers setback as Broadcom tests disappoint, sources say](https://finance.yahoo.com/news/exclusive-intel-manufacturing-business-suffers-100607295.html)
-- Sep 04 - [He boasted on social media about paying strangers to take pictures of his children and ex-partner. Now he’s under arrest.](https://www.yahoo.com/news/boasted-social-media-paying-strangers-100000072.html)
-- Sep 04 - [Short seller Hindenburg takes aim at AI hype, sinks two companies’ stocks](https://finance.yahoo.com/news/short-seller-hindenburg-takes-aim-093000274.html)
+- Sep 04 - [Mortgage and refinance rates today, September 4, 2024: 30-year fixed still under 6%](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-wednesday-september-4-2024-100027959.html)
 <!-- feed end -->
 
 ### Onstream
