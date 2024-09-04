@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Boy, 11, fatally shoots US former mayor and daughter](https://www.yahoo.com/news/boy-11-fatally-shoots-us-203216123.html)
-- Sep 04 - [British hiker found dead after flood on Spanish island of Mallorca. Searchers look for missing woman](https://www.yahoo.com/news/british-hiker-found-dead-flood-095953001.html)
-- Sep 04 - [One Bay County restaurant temporarily closed, six get high-priority violations](https://www.yahoo.com/news/one-bay-county-restaurant-temporarily-091433860.html)
+- Sep 04 - [Angels are paying for Wake school meals for students who don’t have the money](https://www.yahoo.com/news/angels-paying-wake-school-meals-120000490.html)
+- Sep 04 - [Coke and Pepsi boycott over Gaza lifts Muslim countries' local sodas](https://finance.yahoo.com/news/coke-pepsi-boycott-over-gaza-102324354.html)
+- Sep 04 - [Intel manufacturing business suffers setback as Broadcom tests disappoint, sources say](https://finance.yahoo.com/news/exclusive-intel-manufacturing-business-suffers-100607295.html)
 - Sep 04 - [Trump Gets Hit With Instant Fact-Check After Bragging Of 1 'Impossible' Skill](https://www.yahoo.com/news/trump-gets-hit-instant-fact-085801230.html)
-- Sep 04 - [A US Navy warship commander was relieved of duty over a 'loss of confidence' 4 months after he was photographed firing a rifle with a backward scope](https://www.yahoo.com/news/us-navy-warship-commander-relieved-071510955.html)
+- Sep 04 - [Why PennDOT says a new bridge will not be built to replace worsening Route 462 structure](https://www.yahoo.com/news/why-penndot-says-bridge-not-080649361.html)
 <!-- feed end -->
 
 ### Onstream
