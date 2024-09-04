@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Ukrainian Foreign Minister Dmytro Kuleba has resigned, parliamentary official says](https://www.yahoo.com/news/ukrainian-foreign-minister-dmytro-kuleba-062919753.html)
-- Sep 04 - [The rise of the 'hushed hybrid' workplace](https://uk.finance.yahoo.com/news/hushed-hybrid-working-from-home-050026635.html)
+- Sep 04 - [Lightning damages Rome's ancient Constantine Arch during a violent thunderstorm](https://www.yahoo.com/news/lightning-damages-romes-ancient-constantine-072716145.html)
+- Sep 04 - [Linda Sun, former Kathy Hochul aide, accused of scheming to advance interests of China](https://www.yahoo.com/news/linda-sun-former-kathy-hochul-140848951.html)
 - Sep 04 - [North Korea’s Kim Jong Un reportedly ordered dozens of officials executed after deadly floods](https://www.yahoo.com/news/north-korea-kim-jong-un-015918288.html)
 - Sep 04 - [Oregon hospital hit with $303M lawsuit after a nurse is accused of replacing fentanyl with tap water](https://www.yahoo.com/news/oregon-hospital-hit-303m-lawsuit-013555577.html)
-- Sep 04 - [Feed that killed 70 rodeo horses in Oklahoma was contaminated with toxic additive](https://www.yahoo.com/news/feed-killed-70-rodeo-horses-000210485.html)
+- Sep 04 - [Nevada grandmother faces fines for giving rides to Burning Man attendees](https://www.yahoo.com/news/nevada-grandmother-faces-fines-giving-011943745.html)
 <!-- feed end -->
 
 ### Onstream
