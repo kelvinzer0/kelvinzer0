@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Angels are paying for Wake school meals for students who don’t have the money](https://www.yahoo.com/news/angels-paying-wake-school-meals-120000490.html)
+- Sep 04 - [Real estate agent charged with allegedly messaging Tri-Cities 14-year-old about sex](https://www.yahoo.com/news/real-estate-agent-charged-allegedly-120000674.html)
 - Sep 04 - [Coke and Pepsi boycott over Gaza lifts Muslim countries' local sodas](https://finance.yahoo.com/news/coke-pepsi-boycott-over-gaza-102324354.html)
 - Sep 04 - [Intel manufacturing business suffers setback as Broadcom tests disappoint, sources say](https://finance.yahoo.com/news/exclusive-intel-manufacturing-business-suffers-100607295.html)
-- Sep 04 - [Trump Gets Hit With Instant Fact-Check After Bragging Of 1 'Impossible' Skill](https://www.yahoo.com/news/trump-gets-hit-instant-fact-085801230.html)
-- Sep 04 - [Why PennDOT says a new bridge will not be built to replace worsening Route 462 structure](https://www.yahoo.com/news/why-penndot-says-bridge-not-080649361.html)
+- Sep 04 - [He boasted on social media about paying strangers to take pictures of his children and ex-partner. Now he’s under arrest.](https://www.yahoo.com/news/boasted-social-media-paying-strangers-100000072.html)
+- Sep 04 - [Short seller Hindenburg takes aim at AI hype, sinks two companies’ stocks](https://finance.yahoo.com/news/short-seller-hindenburg-takes-aim-093000274.html)
 <!-- feed end -->
 
 ### Onstream
