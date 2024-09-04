@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Drought forces Kenya's Maasai and other herders to look beyond cattle — even to fish](https://www.yahoo.com/news/drought-forces-kenyas-maasai-other-044335949.html)
-- Sep 04 - [Nurses to strike on Friday at Kapiʻolani Medical Center](https://www.yahoo.com/news/nurses-strike-friday-kapi-olani-032615009.html)
-- Sep 04 - [Clashes erupt between Palestinian protesters and Israeli soldiers in the city centre of Jenin](https://www.yahoo.com/news/clashes-erupt-between-palestinian-protesters-021622083.html)
 - Sep 04 - [North Korea’s Kim Jong Un reportedly ordered dozens of officials executed after deadly floods](https://www.yahoo.com/news/north-korea-kim-jong-un-015918288.html)
-- Sep 04 - [Feed that killed 70 rodeo horses in Oklahoma was contaminated with toxic additive](https://www.yahoo.com/news/feed-killed-70-rodeo-horses-000210485.html)
+- Sep 03 - [Mike Lynch Died in Sicily Yacht Sinking, Now His Widow Could Be Liable for $4B Because of Hewlett Packard Claim](https://people.com/mike-lynch-widow-could-be-liable-4b-hewlett-packard-claim-8705812)
+- Sep 03 - [Alabama man dies in Destin hospital after surgeon removes wrong organ. How it happened.](https://www.yahoo.com/news/alabama-man-dies-destin-hospital-223117087.html)
+- Sep 03 - [White House Press Secretary Shuts Down Fox News Reporter Over ‘Insane’ Question About Kamala Harris’ ‘Betta’ Accent](https://www.yahoo.com/news/white-house-press-secretary-shuts-221401337.html)
+- Sep 03 - [Researchers shocked after 8-foot shark is eaten by a predator. But who's the culprit?](https://www.yahoo.com/news/researchers-shocked-8-foot-shark-214341229.html)
 <!-- feed end -->
 
 ### Onstream
