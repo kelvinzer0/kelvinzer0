@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Lavrov warns US not to mock Russia's 'red lines'](https://www.yahoo.com/news/lavrov-warns-us-not-mock-122320543.html)
-- Sep 04 - [Top US Dividend Stocks To Consider In September 2024](https://finance.yahoo.com/news/top-us-dividend-stocks-consider-110643363.html)
-- Sep 04 - [Coke and Pepsi boycott over Gaza lifts Muslim countries' local sodas](https://finance.yahoo.com/news/coke-pepsi-boycott-over-gaza-102324354.html)
-- Sep 04 - [Intel manufacturing business suffers setback as Broadcom tests disappoint, sources say](https://finance.yahoo.com/news/exclusive-intel-manufacturing-business-suffers-100607295.html)
-- Sep 04 - [Mortgage and refinance rates today, September 4, 2024: 30-year fixed still under 6%](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-wednesday-september-4-2024-100027959.html)
+- Sep 04 - ['Russian spy' whale was shot dead: animal rights groups](https://www.yahoo.com/news/russian-spy-whale-shot-dead-143756778.html)
+- Sep 04 - [Tucker Carlson accused of airing ‘pro-Nazi propaganda’ on show – as Elon Musk promotes it as ‘worth watching’](https://www.yahoo.com/news/tucker-carlson-accused-airing-pro-140837489.html)
+- Sep 04 - [I Asked Veterans To Anonymously Share If They're Voting For Kamala Harris Or Donald Trump — Here's What They Revealed](https://www.yahoo.com/news/asked-veterans-anonymously-share-theyre-140455505.html)
+- Sep 04 - [Here’s How Much You Need To Invest Before You Can Quit Your Job and Retire Early](https://finance.yahoo.com/news/much-invest-quit-job-retire-140020273.html)
+- Sep 04 - [Nvidia is suddenly in trouble](https://finance.yahoo.com/news/nvidia-suddenly-trouble-133103407.html)
 <!-- feed end -->
 
 ### Onstream
