@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Georgia high school shooting: What we know about the suspected teenage gunman](https://www.yahoo.com/news/georgia-high-school-shooting-know-163618574.html)
+- Sep 04 - [What we know about Apple's iPhone 16 launch event](https://www.yahoo.com/news/apple-iphone-16-launch-event-september-182423855.html)
+- Sep 04 - [Half a house for half a million dollars: Home crushed by tree hits market near Los Angeles](https://www.yahoo.com/news/half-house-half-million-dollars-174808173.html)
+- Sep 04 - [Senior Cat Whose Family Refused Treatment After Being Hit By Car Is Searching for Loving Home](https://www.yahoo.com/lifestyle/senior-cat-whose-family-refused-173000970.html)
 - Sep 04 - [Minnesota man whose high-profile murder sentence was commuted is found guilty on gun, drug charges](https://www.yahoo.com/news/minnesota-man-whose-high-profile-170412796.html)
-- Sep 04 - [NASA Engineers Were Disturbed by What Happened When They Tested Starliner's Thrusters](https://www.yahoo.com/news/nasa-engineers-were-disturbed-happened-162437783.html)
-- Sep 04 - [Genetic genealogy leads to man's arrest in 1993 rape and murder of his 19-year-old neighbor](https://www.yahoo.com/news/genetic-genealogy-leads-mans-arrest-160828270.html)
-- Sep 04 - [Volkswagen warns time running out as clashes with workers over cuts](https://finance.yahoo.com/video/volkswagen-warns-time-running-clashes-153531752.html)
-- Sep 04 - [The world is pumping out 57 million tons of plastic pollution a year](https://www.yahoo.com/news/world-pumps-57-million-tons-150753027.html)
 <!-- feed end -->
 
 ### Onstream
