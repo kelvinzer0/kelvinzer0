@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Trump promises to release Epstein ‘client list’ if he wins the election](https://www.yahoo.com/news/trump-promises-release-epstein-client-225808575.html)
+- Sep 04 - [Clashes erupt between Palestinian protesters and Israeli soldiers in the city centre of Jenin](https://www.yahoo.com/news/clashes-erupt-between-palestinian-protesters-021622083.html)
+- Sep 04 - [Oregon hospital hit with $303M lawsuit after a nurse is accused of replacing fentanyl with tap water](https://www.yahoo.com/news/oregon-hospital-hit-303m-lawsuit-013555577.html)
+- Sep 03 - [Mike Lynch Died in Sicily Yacht Sinking, Now His Widow Could Be Liable for $4B Because of Hewlett Packard Claim](https://finance.yahoo.com/news/mike-lynch-died-sicily-yacht-231015190.html)
 - Sep 03 - [Alabama man dies in Destin hospital after surgeon removes wrong organ. How it happened.](https://www.yahoo.com/news/alabama-man-dies-destin-hospital-223117087.html)
-- Sep 03 - [The ‘glory days’ for global automakers in China are over](https://finance.yahoo.com/news/glory-days-global-automakers-china-220020627.html)
-- Sep 03 - [Researchers shocked after 8-foot shark is eaten by a predator. But who's the culprit?](https://www.yahoo.com/news/researchers-shocked-8-foot-shark-214341229.html)
-- Sep 03 - [Musk's Starlink backtracks and says it will comply with judge's order to block X in Brazil](https://www.yahoo.com/news/musks-starlink-backtracks-comply-judges-211316197.html)
+- Sep 03 - [White House Press Secretary Shuts Down Fox News Reporter Over ‘Insane’ Question About Kamala Harris’ ‘Betta’ Accent](https://www.yahoo.com/news/white-house-press-secretary-shuts-221401337.html)
 <!-- feed end -->
 
 ### Onstream
