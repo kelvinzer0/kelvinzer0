@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Thomas, Alito and Gorsuch disagree with high court siding with Biden administration in abortion-related case](https://www.yahoo.com/news/thomas-alito-gorsuch-disagree-high-201746608.html)
+- Sep 04 - [What to know about delta-8 and other common vape shop drugs](https://www.yahoo.com/news/know-delta-8-other-common-224220138.html)
 - Sep 04 - [Colt Gray: What we know about 14-year-old Apalachee High School shooting suspect](https://www.yahoo.com/news/colt-gray-know-14-old-211159622.html)
 - Sep 04 - [Nvidia is suddenly in trouble](https://finance.yahoo.com/news/nvidia-suddenly-trouble-133103407.html)
-- Sep 04 - [Meghan Markle's Struggle To Keep Staff Isn't the Only Reason Her New Brand Hasn't Launched Yet](https://finance.yahoo.com/news/meghan-markles-struggle-keep-staff-202756622.html)
-- Sep 04 - [Dog found alone in abandoned house; owner charged](https://www.yahoo.com/news/dog-found-alone-abandoned-house-192414576.html)
+- Sep 04 - [Intel manufacturing business will see 'meaningful' revenue in 2027, CFO says](https://finance.yahoo.com/news/intel-manufacturing-business-see-meaningful-193552732.html)
+- Sep 04 - [Tim Walz Trolls J.D. Vance by Buying Donuts Like a Normal Human Person](https://www.yahoo.com/entertainment/tim-walz-trolls-j-d-190129026.html)
 <!-- feed end -->
 
 ### Onstream
