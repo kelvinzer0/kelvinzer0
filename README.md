@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Boeing will fly its empty capsule back to Earth soon. Two NASA astronauts will stay behind](https://www.yahoo.com/news/boeing-fly-empty-capsule-back-161327086.html)
+- Sep 04 - [Minnesota man whose high-profile murder sentence was commuted is found guilty on gun, drug charges](https://www.yahoo.com/news/minnesota-man-whose-high-profile-170412796.html)
+- Sep 04 - [NASA Engineers Were Disturbed by What Happened When They Tested Starliner's Thrusters](https://www.yahoo.com/news/nasa-engineers-were-disturbed-happened-162437783.html)
+- Sep 04 - [Genetic genealogy leads to man's arrest in 1993 rape and murder of his 19-year-old neighbor](https://www.yahoo.com/news/genetic-genealogy-leads-mans-arrest-160828270.html)
 - Sep 04 - [Volkswagen warns time running out as clashes with workers over cuts](https://finance.yahoo.com/video/volkswagen-warns-time-running-clashes-153531752.html)
 - Sep 04 - [The world is pumping out 57 million tons of plastic pollution a year](https://www.yahoo.com/news/world-pumps-57-million-tons-150753027.html)
-- Sep 04 - [The ‘glory days’ for global automakers in China are over](https://finance.yahoo.com/news/glory-days-global-automakers-china-220020627.html)
-- Sep 04 - [Ginni Thomas’s Secret Work to Stop Supreme Court Reform Exposed](https://www.yahoo.com/news/ginni-thomas-secret-stop-supreme-142518409.html)
 <!-- feed end -->
 
 ### Onstream
