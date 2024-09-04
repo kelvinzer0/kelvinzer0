@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Traffic in Colombia descended into chaos after negotiations over fuel price failed](https://www.yahoo.com/news/traffic-colombia-descended-chaos-negotiations-202022331.html)
 - Sep 04 - [Thomas, Alito and Gorsuch disagree with high court siding with Biden administration in abortion-related case](https://www.yahoo.com/news/thomas-alito-gorsuch-disagree-high-201746608.html)
-- Sep 04 - [Tim Walz Trolls J.D. Vance by Buying Donuts Like a Normal Human Person](https://www.yahoo.com/entertainment/tim-walz-trolls-j-d-190129026.html)
-- Sep 04 - [Sheriff says a suspect is in custody after deadly shooting at Georgia high school](https://www.yahoo.com/news/sheriff-says-suspect-custody-deadly-184832540.html)
-- Sep 04 - [Commanders suspend employee after undercover video showed him disparaging players and fans](https://sports.yahoo.com/commanders-suspend-employee-undercover-video-184258307.html)
+- Sep 04 - [Colt Gray: What we know about 14-year-old Apalachee High School shooting suspect](https://www.yahoo.com/news/colt-gray-know-14-old-211159622.html)
+- Sep 04 - [Nvidia is suddenly in trouble](https://finance.yahoo.com/news/nvidia-suddenly-trouble-133103407.html)
+- Sep 04 - [Meghan Markle's Struggle To Keep Staff Isn't the Only Reason Her New Brand Hasn't Launched Yet](https://finance.yahoo.com/news/meghan-markles-struggle-keep-staff-202756622.html)
+- Sep 04 - [Dog found alone in abandoned house; owner charged](https://www.yahoo.com/news/dog-found-alone-abandoned-house-192414576.html)
 <!-- feed end -->
 
 ### Onstream
