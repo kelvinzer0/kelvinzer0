@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Ukrainian Foreign Minister Dmytro Kuleba has resigned, parliamentary official says](https://www.yahoo.com/news/ukrainian-foreign-minister-dmytro-kuleba-062919753.html)
+- Sep 04 - [The rise of the 'hushed hybrid' workplace](https://uk.finance.yahoo.com/news/hushed-hybrid-working-from-home-050026635.html)
 - Sep 04 - [North Korea’s Kim Jong Un reportedly ordered dozens of officials executed after deadly floods](https://www.yahoo.com/news/north-korea-kim-jong-un-015918288.html)
-- Sep 03 - [Mike Lynch Died in Sicily Yacht Sinking, Now His Widow Could Be Liable for $4B Because of Hewlett Packard Claim](https://people.com/mike-lynch-widow-could-be-liable-4b-hewlett-packard-claim-8705812)
-- Sep 03 - [Alabama man dies in Destin hospital after surgeon removes wrong organ. How it happened.](https://www.yahoo.com/news/alabama-man-dies-destin-hospital-223117087.html)
-- Sep 03 - [White House Press Secretary Shuts Down Fox News Reporter Over ‘Insane’ Question About Kamala Harris’ ‘Betta’ Accent](https://www.yahoo.com/news/white-house-press-secretary-shuts-221401337.html)
-- Sep 03 - [Researchers shocked after 8-foot shark is eaten by a predator. But who's the culprit?](https://www.yahoo.com/news/researchers-shocked-8-foot-shark-214341229.html)
+- Sep 04 - [Oregon hospital hit with $303M lawsuit after a nurse is accused of replacing fentanyl with tap water](https://www.yahoo.com/news/oregon-hospital-hit-303m-lawsuit-013555577.html)
+- Sep 04 - [Feed that killed 70 rodeo horses in Oklahoma was contaminated with toxic additive](https://www.yahoo.com/news/feed-killed-70-rodeo-horses-000210485.html)
 <!-- feed end -->
 
 ### Onstream
