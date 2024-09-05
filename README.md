@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Verizon to Buy Rival Frontier Communications in $20 Billion Deal](https://finance.yahoo.com/news/verizon-buy-rival-frontier-communications-100550995.html)
 - Sep 05 - [Russian firms bought spare parts for 25-year-old ASML machines, says newspaper Trouw](https://finance.yahoo.com/news/russian-firms-bought-spare-parts-090707901.html)
-- Sep 05 - [Late Maori King's daughter becomes new Queen at his funeral](https://www.yahoo.com/news/maori-kings-daughter-becomes-queen-064407120.html)
+- Sep 05 - [Ugandan Olympic athlete dies after being severely burned by her partner over a land dispute](https://www.yahoo.com/news/ugandan-olympic-athlete-dies-being-065213436.html)
 - Sep 05 - [Trump's Biden Rant Gets Totally Derailed By Surprise Guest On Fox News](https://www.yahoo.com/entertainment/trumps-biden-rant-gets-totally-054309732.html)
-- Sep 05 - [Malaysia will not stop South China Sea exploration despite China protests, PM says](https://www.yahoo.com/news/malaysia-not-stop-south-china-050418466.html)
 - Sep 05 - [Russia says it will take action against US media in response to Russian media charges](https://www.yahoo.com/news/russia-says-target-us-media-043327755.html)
 <!-- feed end -->
 
