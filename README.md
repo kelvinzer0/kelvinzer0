@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Verizon to Buy Rival Frontier Communications in $20 Billion Deal](https://finance.yahoo.com/news/verizon-buy-rival-frontier-communications-100550995.html)
-- Sep 05 - [Russian firms bought spare parts for 25-year-old ASML machines, says newspaper Trouw](https://finance.yahoo.com/news/russian-firms-bought-spare-parts-090707901.html)
-- Sep 05 - [Ugandan Olympic athlete dies after being severely burned by her partner over a land dispute](https://www.yahoo.com/news/ugandan-olympic-athlete-dies-being-065213436.html)
-- Sep 05 - [Trump's Biden Rant Gets Totally Derailed By Surprise Guest On Fox News](https://www.yahoo.com/entertainment/trumps-biden-rant-gets-totally-054309732.html)
-- Sep 05 - [Russia says it will take action against US media in response to Russian media charges](https://www.yahoo.com/news/russia-says-target-us-media-043327755.html)
+- Sep 05 - [Brexit negotiator Michel Barnier appointed next French PM](https://www.yahoo.com/news/macron-preparing-name-french-pm-185421199.html)
+- Sep 05 - [Nvidia is suddenly in trouble](https://finance.yahoo.com/news/nvidia-suddenly-trouble-133103407.html)
+- Sep 05 - [Putin has two secret sons with gymnast who live life of luxury isolated from world](https://www.yahoo.com/news/putin-two-secret-sons-gymnast-083421315.html)
+- Sep 05 - [Putin says 'main' goal is to capture Ukraine's Donbas](https://www.yahoo.com/news/putin-says-main-goal-capture-105747962.html)
+- Sep 05 - [Georgia school shooter suspected of killing two teachers was interviewed by FBI](https://www.yahoo.com/news/four-people-killed-georgia-high-212725372.html)
 <!-- feed end -->
 
 ### Onstream
