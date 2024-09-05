@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [SLO County couple ‘woke to a bloody scene’ after mountain lion carried prey through yard](https://www.yahoo.com/news/slo-county-couple-woke-bloody-005123975.html)
 - Sep 05 - [Chinese migrants flock to Mexico in search of jobs, a future and, for some, a taste of freedom](https://www.yahoo.com/news/chinese-migrants-flock-mexico-search-003042933.html)
 - Sep 05 - [I Spent Years On The Verge Of Death. I Couldn't Find A Doctor Who Would Listen To Me — Until I Said This.](https://www.yahoo.com/lifestyle/spent-years-verge-death-couldnt-001502418.html)
 - Sep 04 - [GEORGIA SCHOOL SHOOTING: What we know about the victims](https://www.yahoo.com/news/georgia-school-shooting-know-victims-225554876.html)
 - Sep 04 - [Mark Cuban Tells Elon Musk 'Delete Your Account' After Tech Billionaire Calls Tucker Carlson's Latest Episode On WW2 And Churchill 'Worth Watching'](https://finance.yahoo.com/news/mark-cuban-tells-elon-musk-224229598.html)
-- Sep 04 - [Thomas, Alito and Gorsuch disagree with high court siding with Biden administration in abortion-related case](https://www.yahoo.com/news/thomas-alito-gorsuch-disagree-high-201746608.html)
 <!-- feed end -->
 
 ### Onstream
