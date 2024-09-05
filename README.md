@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 05 - [Putin says 'main' goal is to capture Ukraine's Donbas](https://www.yahoo.com/news/putin-says-main-goal-capture-105747962.html)
-- Sep 05 - [A&E department ‘operating at over 250pc capacity’ raises patient safety fears](https://www.yahoo.com/news/e-department-operating-over-250pc-162636626.html)
+- Sep 05 - [Dish Network in Talks With Investors to Settle Lawsuit](https://finance.yahoo.com/news/dish-network-talks-investors-settle-173437941.html)
+- Sep 05 - [16 "I Choked On My Own Spit" Photos That Helped Laugh Me Out Of A Depression](https://www.yahoo.com/lifestyle/16-choked-own-spit-photos-171602935.html)
 - Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
 - Sep 05 - [ESPN’s Mike Greenberg 'Contemplated My Own Mortality' Due to Debilitating Heart Condition (Exclusive)](https://www.yahoo.com/lifestyle/espn-mike-greenberg-contemplated-own-145550292.html)
-- Sep 05 - [Ditching EVs For Hybrids Is Already Paying Off For Automakers](https://autos.yahoo.com/ditching-evs-hybrids-already-paying-141000173.html)
 <!-- feed end -->
 
 ### Onstream
