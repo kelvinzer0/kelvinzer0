@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Putin says 'main' goal is to capture Ukraine's Donbas](https://www.yahoo.com/news/putin-says-main-goal-capture-105747962.html)
-- Sep 05 - [Family evacuates Boise home with ‘no idea when we can go back’ as brush fire presses in](https://www.yahoo.com/news/family-evacuates-boise-home-no-180240424.html)
-- Sep 05 - [16 "I Choked On My Own Spit" Photos That Helped Laugh Me Out Of A Depression](https://www.yahoo.com/lifestyle/16-choked-own-spit-photos-171602935.html)
-- Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
-- Sep 05 - [China is not pushing Africa into debt trap, South African president says](https://www.yahoo.com/news/china-not-pushing-africa-debt-135957187.html)
+- Sep 05 - [Delta, Other Airline Loyalty Programs Are Being Probed by US](https://finance.yahoo.com/news/delta-other-airline-loyalty-programs-180009229.html)
+- Sep 05 - [If I Buy A $100,000 Annuity, How Much Cash Will It Pay Me Each Month?](https://finance.yahoo.com/news/buy-100-000-annuity-much-193617734.html)
+- Sep 05 - [Trump admits he lost in 2020, leading white nationalist Nick Fuentes to disavow him](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
+- Sep 05 - [Harris Reveals Truth About McDonald’s Job After Trump Accuses Her of McLies](https://www.yahoo.com/news/harris-reveals-truth-mcdonald-job-184212087.html)
+- Sep 05 - [Billionaire Larry Ellison to control Paramount after deal, Bloomberg News reports](https://finance.yahoo.com/news/billionaire-larry-ellison-control-paramount-172553611.html)
 <!-- feed end -->
 
 ### Onstream
