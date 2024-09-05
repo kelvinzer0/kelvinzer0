@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Ugandan Olympic athlete dies after being severely burned by her partner over a land dispute](https://www.yahoo.com/news/ugandan-olympic-athlete-dies-being-065213436.html)
+- Sep 05 - [Malaysia will not stop South China Sea exploration despite China protests, PM says](https://www.yahoo.com/news/malaysia-not-stop-south-china-050418466.html)
+- Sep 05 - [Adam Kinzinger's Way-Too-Specific Description Of Trump Body Odor Might Make You Gag](https://www.yahoo.com/entertainment/adam-kinzingers-way-too-specific-021418603.html)
 - Sep 05 - [Chinese migrants flock to Mexico in search of jobs, a future and, for some, a taste of freedom](https://www.yahoo.com/news/chinese-migrants-flock-mexico-search-003042933.html)
 - Sep 05 - [I Spent Years On The Verge Of Death. I Couldn't Find A Doctor Who Would Listen To Me — Until I Said This.](https://www.yahoo.com/lifestyle/spent-years-verge-death-couldnt-001502418.html)
-- Sep 04 - [Underwater tunnel to Manhattan leaks after contractor accidentally drills through it](https://www.yahoo.com/news/underwater-tunnel-manhattan-leaks-contractor-224259155.html)
-- Sep 04 - [Mark Cuban Tells Elon Musk 'Delete Your Account' After Tech Billionaire Calls Tucker Carlson's Latest Episode On WW2 And Churchill 'Worth Watching'](https://finance.yahoo.com/news/mark-cuban-tells-elon-musk-224229598.html)
-- Sep 04 - [Thomas, Alito and Gorsuch disagree with high court siding with Biden administration in abortion-related case](https://www.yahoo.com/news/thomas-alito-gorsuch-disagree-high-201746608.html)
 <!-- feed end -->
 
 ### Onstream
