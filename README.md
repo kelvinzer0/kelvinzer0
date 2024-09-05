@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [A Snorkeler Went on a Routine Excursion—and Stumbled Upon a Hidden Chunk of Rocket](https://www.yahoo.com/news/snorkeler-went-routine-excursion-stumbled-151500611.html)
-- Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
-- Sep 05 - [This U.S. Town Is Offering $20,000 To Relocate. Here's How To Secure $10,000 In Cash And $10,000 For Renovations](https://finance.yahoo.com/news/u-town-offering-20-000-131838921.html)
-- Sep 05 - [Historian who accurately predicted 9 of last 10 presidential elections makes his 2024 pick](https://www.yahoo.com/news/historian-accurately-predicted-9-last-115138503.html)
 - Sep 05 - [Putin says 'main' goal is to capture Ukraine's Donbas](https://www.yahoo.com/news/putin-says-main-goal-capture-105747962.html)
+- Sep 05 - [A&E department ‘operating at over 250pc capacity’ raises patient safety fears](https://www.yahoo.com/news/e-department-operating-over-250pc-162636626.html)
+- Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
+- Sep 05 - [ESPN’s Mike Greenberg 'Contemplated My Own Mortality' Due to Debilitating Heart Condition (Exclusive)](https://www.yahoo.com/lifestyle/espn-mike-greenberg-contemplated-own-145550292.html)
+- Sep 05 - [Ditching EVs For Hybrids Is Already Paying Off For Automakers](https://autos.yahoo.com/ditching-evs-hybrids-already-paying-141000173.html)
 <!-- feed end -->
 
 ### Onstream
