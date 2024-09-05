@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [South Carolina’s Ashlyn Watkins still suspended from team activities. Here’s what we know](https://www.yahoo.com/news/south-carolina-ashlyn-watkins-still-214304899.html)
 - Sep 05 - [Rift between Parkland massacre survivor and some families of the dead erupts in court](https://www.yahoo.com/news/rift-between-parkland-massacre-survivor-205303171.html)
 - Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
+- Sep 05 - [The Shelby GT500 Code Red Just Set a New Gas-Powered Car Speed Record](https://sports.yahoo.com/shelby-gt500-code-red-run-200000957.html)
 - Sep 05 - [If I Buy A $100,000 Annuity, How Much Cash Will It Pay Me Each Month?](https://finance.yahoo.com/news/buy-100-000-annuity-much-193617734.html)
-- Sep 05 - [Pre-Owned Rolex Prices Just Keep Falling—Here Are the Best Models To Buy Right Now](https://finance.yahoo.com/news/buy-rolex-officially-buyer-market-160000291.html)
+- Sep 05 - [Trump admits he lost in 2020, leading white nationalist Nick Fuentes to disavow him](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
 <!-- feed end -->
 
 ### Onstream
