@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Atlanta Street Takeover Guy Cries While Getting Arrested](https://autos.yahoo.com/atlanta-street-takeover-guy-cries-120000317.html)
 - Sep 05 - [Historian who accurately predicted 9 of last 10 presidential elections makes his 2024 pick](https://www.yahoo.com/news/historian-accurately-predicted-9-last-115138503.html)
+- Sep 05 - [Nvidia is suddenly in trouble](https://finance.yahoo.com/news/nvidia-suddenly-trouble-133103407.html)
+- Sep 05 - [Putin says 'main' goal is to capture Ukraine's Donbas](https://www.yahoo.com/news/putin-says-main-goal-capture-105747962.html)
 - Sep 05 - [Newly Spotted Asteroid Burns Up Over Philippines](https://www.yahoo.com/news/newly-spotted-asteroid-burns-over-104311303.html)
-- Sep 05 - [Georgia school shooter suspected of killing two teachers was interviewed by FBI](https://www.yahoo.com/news/four-people-killed-georgia-high-212725372.html)
-- Sep 05 - [Russian firms bought spare parts for 25-year-old ASML machines, says newspaper Trouw](https://finance.yahoo.com/news/russian-firms-bought-spare-parts-090707901.html)
-- Sep 05 - [The Smartest Dividend Stocks to Buy With $5,000 Right Now](https://finance.yahoo.com/news/smartest-dividend-stocks-buy-5-081500967.html)
 <!-- feed end -->
 
 ### Onstream
