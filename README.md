@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Sitting All Day Can Cause Dead Butt Syndrome](https://www.yahoo.com/news/sitting-day-cause-dead-butt-121812958.html)
-- Sep 06 - ['Multiple' deputies and one other hurt in stolen car chase that ended on Route 390](https://www.yahoo.com/news/multiple-deputies-one-other-hurt-103720319.html)
-- Sep 06 - [How to watch Boeing's Starliner try to land empty in the desert](https://www.yahoo.com/lifestyle/watch-boeings-starliner-try-land-093556554.html)
-- Sep 06 - [An ex-Mafia hitman is set for sentencing in the prison killing of gangster James 'Whitey' Bulger](https://www.yahoo.com/news/ex-mafia-hitman-set-sentencing-050037953.html)
-- Sep 06 - [Video footage appears to show Russians killing surrendering Ukrainian soldiers](https://www.yahoo.com/news/video-footage-appears-show-russians-040119994.html)
+- Sep 06 - [Boeing's beleaguered space capsule is heading back to Earth without two NASA astronauts](https://www.yahoo.com/news/boeings-beleaguered-space-capsule-heading-131709822.html)
+- Sep 06 - [German warships aim to secure sea lanes in Indo-Pacific, admiral says](https://www.yahoo.com/news/german-warships-aim-secure-sea-124336503.html)
+- Sep 06 - [Suspect identified in attack at Hersheypark parking lot](https://www.yahoo.com/news/suspect-identified-attack-hersheypark-parking-112332875.html)
+- Sep 06 - [16 Signs From The Past Week That Made Me Laugh So Hard, I Pulled A Muscle In My Back And Shed A Single Tear](https://www.yahoo.com/entertainment/16-signs-past-week-made-111602935.html)
+- Sep 06 - [Mortgage and refinance rates today, September 6, 2024: Rates drop 77 basis points in a year](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-friday-september-6-2024-100035352.html)
 <!-- feed end -->
 
 ### Onstream
