@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [Jail put ‘violent’ inmate in man’s cell and he was killed within 45 minutes, suit says](https://www.yahoo.com/news/jail-put-violent-inmate-man-205546407.html)
 - Sep 06 - [Well-timed GameStop options trade scores $550K profit after Roaring Kitty post](https://finance.yahoo.com/news/well-timed-gamestop-options-trade-195717503.html)
-- Sep 06 - [2 killed after T-bone motorcycle crash in El Paso’s Lower Valley](https://www.yahoo.com/news/2-killed-t-bone-motorcycle-184927284.html)
+- Sep 06 - [Judge considers bumping abortion-rights measure off Missouri ballot](https://www.yahoo.com/news/judge-considers-bumping-abortion-rights-195546911.html)
+- Sep 06 - [Bill Gates said if he were in charge of the US tax system he'd have paid 'tens of billions' more](https://finance.yahoo.com/news/bill-gates-said-were-charge-184419317.html)
 - Sep 06 - [How 'My Big Fat Fabulous Life' Star Whitney Way Thore Lost 100 Pounds 'Without Medical Intervention'](https://www.yahoo.com/entertainment/whitney-way-thore-shares-she-185100538.html)
-- Sep 06 - [Texas sues to stop a rule that shields the medical records of women who seek abortions elsewhere](https://www.yahoo.com/news/texas-sues-stop-rule-shields-175357753.html)
-- Sep 06 - [Pro-Trump Media Firm Abruptly Folds After Russia Scheme Exposed](https://www.yahoo.com/news/pro-trump-media-firm-abruptly-174924105.html)
 <!-- feed end -->
 
 ### Onstream
