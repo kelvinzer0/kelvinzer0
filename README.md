@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 05 - [JD Vance says he laments that school shootings are a 'fact of life' and calls for better security](https://www.yahoo.com/news/jd-vance-says-school-shootings-235441761.html)
-- Sep 05 - [Physician sentenced to 9 months in prison for punching police officer during Capitol riot](https://www.yahoo.com/news/physician-sentenced-9-months-prison-214655876.html)
-- Sep 05 - [Broadcom forecasts lukewarm quarterly revenue despite AI chip surge, shares fall](https://finance.yahoo.com/news/broadcom-beats-third-quarter-revenue-202014740.html)
-- Sep 05 - [Colt Gray: What we know about 14-year-old Apalachee High School shooting suspect](https://www.yahoo.com/news/colt-gray-know-14-old-211159622.html)
 - Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
+- Sep 05 - [Connecticut Has Some Controversial New Road Signs, And New Jersey Is Real Mad About It](https://www.yahoo.com/news/jersey-gone-war-connecticut-over-191708954.html)
+- Sep 05 - [2 Nigerian brothers sentenced for sextortion that led to teen's death](https://www.yahoo.com/news/2-nigerian-brothers-sentenced-sextortion-191618427.html)
+- Sep 05 - [Builder must pay back $300K for northern Michigan job](https://www.yahoo.com/news/builder-must-pay-back-300k-183221109.html)
 <!-- feed end -->
 
 ### Onstream
