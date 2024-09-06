@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Video footage appears to show Russians killing surrendering Ukrainian soldiers](https://www.yahoo.com/news/video-footage-appears-show-russians-040119994.html)
-- Sep 06 - [Your trip to Smokies trails might take longer with this Gatlinburg road closure next week](https://www.yahoo.com/news/trip-smokies-trails-might-longer-190957607.html)
+- Sep 06 - [Well-timed GameStop options trade scores $550K profit after Roaring Kitty post](https://finance.yahoo.com/news/well-timed-gamestop-options-trade-195717503.html)
+- Sep 06 - [2 killed after T-bone motorcycle crash in El Paso’s Lower Valley](https://www.yahoo.com/news/2-killed-t-bone-motorcycle-184927284.html)
 - Sep 06 - [How 'My Big Fat Fabulous Life' Star Whitney Way Thore Lost 100 Pounds 'Without Medical Intervention'](https://www.yahoo.com/entertainment/whitney-way-thore-shares-she-185100538.html)
 - Sep 06 - [Texas sues to stop a rule that shields the medical records of women who seek abortions elsewhere](https://www.yahoo.com/news/texas-sues-stop-rule-shields-175357753.html)
-- Sep 06 - [Feds investigate frequent flyer programs at four major airlines](https://www.yahoo.com/news/feds-investigate-frequent-flyer-programs-155253730.html)
+- Sep 06 - [Pro-Trump Media Firm Abruptly Folds After Russia Scheme Exposed](https://www.yahoo.com/news/pro-trump-media-firm-abruptly-174924105.html)
 <!-- feed end -->
 
 ### Onstream
