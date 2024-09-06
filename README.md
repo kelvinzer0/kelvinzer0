@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Fox News Host Hits Colleagues With A 'Dare' To Decode Trump's Rambling Answer](https://www.yahoo.com/news/fox-news-host-hits-colleagues-094546239.html)
-- Sep 06 - [New $27 million assisted-living facility set to open. See where and when](https://www.yahoo.com/news/27-million-assisted-living-facility-094522545.html)
-- Sep 06 - [2 Beaten-Down Stocks to Buy and Hold](https://finance.yahoo.com/news/2-beaten-down-stocks-buy-094500134.html)
+- Sep 06 - [More than 300 bodies including babies and children found in mass grave in Oldham](https://www.yahoo.com/news/more-300-bodies-including-babies-102027917.html)
+- Sep 06 - [How to watch Boeing's Starliner try to land empty in the desert](https://www.yahoo.com/lifestyle/watch-boeings-starliner-try-land-093556554.html)
+- Sep 06 - [An ex-Mafia hitman is set for sentencing in the prison killing of gangster James 'Whitey' Bulger](https://www.yahoo.com/news/ex-mafia-hitman-set-sentencing-050037953.html)
 - Sep 06 - [Video footage appears to show Russians killing surrendering Ukrainian soldiers](https://www.yahoo.com/news/video-footage-appears-show-russians-040119994.html)
-- Sep 06 - [Rivian CEO explains why he made 'a very intentional effort' not to copy Tesla's strategy](https://autos.yahoo.com/rivian-ceo-explains-why-made-012435055.html)
+- Sep 06 - [Houston attorney, his wife arrested, as HPD homicide detectives search for missing man](https://www.yahoo.com/news/houston-attorney-wife-arrested-hpd-021807083.html)
 <!-- feed end -->
 
 ### Onstream
