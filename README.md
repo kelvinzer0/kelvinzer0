@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Looks Like Bad News and Worse News for Retirees](https://finance.yahoo.com/news/social-securitys-2025-cost-living-064800573.html)
 - Sep 06 - [Video footage appears to show Russians killing surrendering Ukrainian soldiers](https://www.yahoo.com/news/video-footage-appears-show-russians-040119994.html)
 - Sep 05 - [JD Vance says he laments that school shootings are a 'fact of life' and calls for better security](https://www.yahoo.com/news/jd-vance-says-school-shootings-235441761.html)
-- Sep 05 - [‘We wake up and the world’s on fire:’ Photos show scale of Southeast Boise wildfire](https://www.yahoo.com/news/wake-world-fire-photos-show-222605299.html)
+- Sep 05 - [18 arrested in undercover North Las Vegas child sex predator operation](https://www.yahoo.com/news/18-arrested-undercover-north-las-223834700.html)
 - Sep 05 - [Physician sentenced to 9 months in prison for punching police officer during Capitol riot](https://www.yahoo.com/news/physician-sentenced-9-months-prison-214655876.html)
+- Sep 05 - [Rift between Parkland massacre survivor and some families of the dead erupts in court](https://www.yahoo.com/news/rift-between-parkland-massacre-survivor-205303171.html)
 <!-- feed end -->
 
 ### Onstream
