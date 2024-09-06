@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [JD Vance says he laments that school shootings are a 'fact of life' and calls for better security](https://www.yahoo.com/news/jd-vance-says-school-shootings-235441761.html)
+- Sep 05 - [22 Ohio counties declared primary natural disaster areas as drought persists](https://www.yahoo.com/news/22-ohio-counties-declared-primary-213000754.html)
+- Sep 05 - [Rift between Parkland massacre survivor and some families of the dead erupts in court](https://www.yahoo.com/news/rift-between-parkland-massacre-survivor-205303171.html)
+- Sep 05 - [Broadcom forecasts lukewarm quarterly revenue despite AI chip surge, shares fall](https://finance.yahoo.com/news/broadcom-beats-third-quarter-revenue-202014740.html)
 - Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
-- Sep 05 - [Connecticut Has Some Controversial New Road Signs, And New Jersey Is Real Mad About It](https://www.yahoo.com/news/jersey-gone-war-connecticut-over-191708954.html)
-- Sep 05 - [2 Nigerian brothers sentenced for sextortion that led to teen's death](https://www.yahoo.com/news/2-nigerian-brothers-sentenced-sextortion-191618427.html)
-- Sep 05 - [Builder must pay back $300K for northern Michigan job](https://www.yahoo.com/news/builder-must-pay-back-300k-183221109.html)
+- Sep 05 - [Pre-Owned Rolex Prices Just Keep Falling—Here Are the Best Models To Buy Right Now](https://finance.yahoo.com/news/buy-rolex-officially-buyer-market-160000291.html)
 <!-- feed end -->
 
 ### Onstream
