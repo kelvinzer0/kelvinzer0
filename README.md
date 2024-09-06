@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [Fox News Host Hits Colleagues With A 'Dare' To Decode Trump's Rambling Answer](https://www.yahoo.com/news/fox-news-host-hits-colleagues-094546239.html)
+- Sep 06 - [New $27 million assisted-living facility set to open. See where and when](https://www.yahoo.com/news/27-million-assisted-living-facility-094522545.html)
+- Sep 06 - [2 Beaten-Down Stocks to Buy and Hold](https://finance.yahoo.com/news/2-beaten-down-stocks-buy-094500134.html)
 - Sep 06 - [Video footage appears to show Russians killing surrendering Ukrainian soldiers](https://www.yahoo.com/news/video-footage-appears-show-russians-040119994.html)
-- Sep 06 - [Father of Georgia school shooting suspect arrested: ‘We had probable cause,’ GBI says](https://www.yahoo.com/news/father-georgia-school-shooting-suspect-235759015.html)
-- Sep 05 - [JD Vance says he laments that school shootings are a 'fact of life' and calls for better security](https://www.yahoo.com/news/jd-vance-says-school-shootings-235441761.html)
-- Sep 05 - [Portland mayor’s office reacts to U.S. Bank departing ‘Big Pink’](https://www.yahoo.com/news/portland-mayor-office-reacts-u-212611834.html)
-- Sep 05 - [Broadcom forecasts lukewarm quarterly revenue despite AI chip surge, shares fall](https://finance.yahoo.com/news/broadcom-beats-third-quarter-revenue-202014740.html)
+- Sep 06 - [Rivian CEO explains why he made 'a very intentional effort' not to copy Tesla's strategy](https://autos.yahoo.com/rivian-ceo-explains-why-made-012435055.html)
 <!-- feed end -->
 
 ### Onstream
