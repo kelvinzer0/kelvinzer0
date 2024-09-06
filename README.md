@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Rift between Parkland massacre survivor and some families of the dead erupts in court](https://www.yahoo.com/news/rift-between-parkland-massacre-survivor-205303171.html)
+- Sep 05 - [JD Vance says he laments that school shootings are a 'fact of life' and calls for better security](https://www.yahoo.com/news/jd-vance-says-school-shootings-235441761.html)
+- Sep 05 - [Physician sentenced to 9 months in prison for punching police officer during Capitol riot](https://www.yahoo.com/news/physician-sentenced-9-months-prison-214655876.html)
+- Sep 05 - [Broadcom forecasts lukewarm quarterly revenue despite AI chip surge, shares fall](https://finance.yahoo.com/news/broadcom-beats-third-quarter-revenue-202014740.html)
+- Sep 05 - [Colt Gray: What we know about 14-year-old Apalachee High School shooting suspect](https://www.yahoo.com/news/colt-gray-know-14-old-211159622.html)
 - Sep 05 - [Italy luxury yacht victims died of ‘dry drowning,’ first autopsies show](https://www.yahoo.com/news/italy-luxury-yacht-victims-died-130830563.html)
-- Sep 05 - [The Shelby GT500 Code Red Just Set a New Gas-Powered Car Speed Record](https://sports.yahoo.com/shelby-gt500-code-red-run-200000957.html)
-- Sep 05 - [If I Buy A $100,000 Annuity, How Much Cash Will It Pay Me Each Month?](https://finance.yahoo.com/news/buy-100-000-annuity-much-193617734.html)
-- Sep 05 - [Trump admits he lost in 2020, leading white nationalist Nick Fuentes to disavow him](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
 <!-- feed end -->
 
 ### Onstream
