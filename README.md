@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [Video footage appears to show Russians killing surrendering Ukrainian soldiers](https://www.yahoo.com/news/video-footage-appears-show-russians-040119994.html)
+- Sep 06 - [Massachusetts driver who rammed Asian man into ditch sentenced for hate crime](https://www.yahoo.com/news/massachusetts-driver-rammed-asian-man-165150541.html)
 - Sep 06 - [Feds investigate frequent flyer programs at four major airlines](https://www.yahoo.com/news/feds-investigate-frequent-flyer-programs-155253730.html)
 - Sep 06 - [Trump assails women who accused him of misconduct, days before his debate with Harris](https://www.yahoo.com/news/trump-plans-york-press-conference-150621393.html)
-- Sep 06 - [Prince Hisahito becomes the first royal male in Japan to reach adulthood in 4 decades.](https://www.yahoo.com/news/prince-hisahito-becomes-first-royal-124526544.html)
-- Sep 06 - [‘Peanut-shaped’ roundabout coming to NE Ohio](https://www.yahoo.com/news/peanut-shaped-roundabout-coming-ne-113818038.html)
-- Sep 06 - [Tesla launches world's first all-electric 'Giga Train' with mind-blowing passenger capacity — and it's free to ride](https://www.yahoo.com/tech/tesla-launches-worlds-first-electric-111535136.html)
+- Sep 06 - [Cybertrucks Are A Disaster Now, But Winter Will Be A Nightmare. Here's Why Cybertruck Owners Should Be Worried](https://finance.yahoo.com/news/cybertrucks-disaster-now-winter-nightmare-144129571.html)
 <!-- feed end -->
 
 ### Onstream
