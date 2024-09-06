@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Boeing's beleaguered space capsule is heading back to Earth without two NASA astronauts](https://www.yahoo.com/news/boeings-beleaguered-space-capsule-heading-131709822.html)
+- Sep 06 - [How Will Friday's Jobs Report Affect The Fed's Decision on Interest Rate Cuts?](https://finance.yahoo.com/news/fridays-jobs-report-affect-feds-142707384.html)
+- Sep 06 - [Final Hamas video of slain hostage Hersh Goldberg-Polin should be a 'wake-up call,' parents say](https://www.yahoo.com/news/final-hamas-video-slain-hostage-134411206.html)
+- Sep 06 - [Elon Musk in Deep Trouble as Even More Advertisers Are Planning to Leave Twitter's Toxic Cesspool](https://finance.yahoo.com/news/elon-musk-deep-trouble-even-131535689.html)
+- Sep 06 - [Prince Hisahito becomes the first royal male in Japan to reach adulthood in 4 decades.](https://www.yahoo.com/news/prince-hisahito-becomes-first-royal-124526544.html)
 - Sep 06 - [German warships aim to secure sea lanes in Indo-Pacific, admiral says](https://www.yahoo.com/news/german-warships-aim-secure-sea-124336503.html)
-- Sep 06 - [Suspect identified in attack at Hersheypark parking lot](https://www.yahoo.com/news/suspect-identified-attack-hersheypark-parking-112332875.html)
-- Sep 06 - [16 Signs From The Past Week That Made Me Laugh So Hard, I Pulled A Muscle In My Back And Shed A Single Tear](https://www.yahoo.com/entertainment/16-signs-past-week-made-111602935.html)
-- Sep 06 - [Mortgage and refinance rates today, September 6, 2024: Rates drop 77 basis points in a year](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-friday-september-6-2024-100035352.html)
 <!-- feed end -->
 
 ### Onstream
