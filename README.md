@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Bernie Sanders tells Theo Von half of cancer patients go bankrupt or broke, and he praises the Canadian system](https://finance.yahoo.com/news/bernie-sanders-tells-theo-von-104400813.html)
-- Sep 07 - [Boeing's uncrewed Starliner spacecraft touches down on Earth, capping months of drama in orbit](https://www.yahoo.com/news/boeings-beleaguered-starliner-spacecraft-begins-220748772.html)
-- Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
-- Sep 07 - [Mega Millions winning numbers for Friday, Sept. 6, 2024](https://www.yahoo.com/news/mega-millions-winning-numbers-friday-030910334.html)
-- Sep 07 - [Harris spokesperson jabs Fox News host for acting ‘like she’s in the witness protection program’](https://www.yahoo.com/news/harris-spokesperson-jabs-fox-news-010657870.html)
+- Sep 07 - [Boeing Starliner capsule returns home from space — without astronauts on board](https://www.yahoo.com/news/boeing-starliner-capsule-return-space-200905117.html)
+- Sep 07 - [These Miami brothers ruled ultra luxury real estate, then sex assault allegations came out](https://www.yahoo.com/news/miami-brothers-ruled-ultra-luxury-090000615.html)
+- Sep 07 - [Forget Nvidia: Meet the Supercharged Growth Stock Headed to $4 Trillion Over the Coming 12 to 18 Months, According to 1 Wall Street Analyst](https://finance.yahoo.com/news/forget-nvidia-meet-supercharged-growth-070500102.html)
+- Sep 07 - [Trump Fumes Over 'Irrelevant' Dick Cheney In Post-Harris Endorsement Meltdown](https://www.yahoo.com/news/trump-fumes-over-irrelevant-dick-052812767.html)
+- Sep 07 - [Mega Millions winning numbers for Friday, Sept. 6, 2024: No jackpot winner](https://www.yahoo.com/news/mega-millions-winning-numbers-friday-030910334.html)
 <!-- feed end -->
 
 ### Onstream
