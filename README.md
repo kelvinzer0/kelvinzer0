@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Wynn Resorts paying $130M for letting illegal money reach gamblers at its Las Vegas Strip casino](https://finance.yahoo.com/news/wynn-resorts-paying-130m-letting-213538453.html)
 - Sep 07 - [Trump calls for modifying 25th Amendment to make it possible to remove a vice president](https://www.yahoo.com/news/trump-calls-modifying-25th-amendment-203601702.html)
-- Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
-- Sep 07 - [TIMELINE: Melissa Jubane’s final days, disappearance, death investigation](https://www.yahoo.com/news/timeline-melissa-jubane-final-days-194134200.html)
-- Sep 07 - [Construction will close a Fresno intersection for 2-3 weeks starting Monday. Here’s why](https://www.yahoo.com/news/construction-close-fresno-intersection-2-183000023.html)
-- Sep 07 - [Venezuela revokes Brazil's authorization to represent Argentine interests in the country](https://www.yahoo.com/news/venezuela-revokes-authorization-brazil-represent-162022156.html)
+- Sep 07 - [Turkey's Erdogan calls for Islamic alliance against Israel](https://www.yahoo.com/news/turkeys-erdogan-calls-islamic-alliance-143408191.html)
+- Sep 07 - [Dementia risk factors identified in new global report are all preventable – addressing them could reduce dementia rates by 45%](https://www.yahoo.com/news/dementia-risk-factors-identified-global-140345425.html)
+- Sep 07 - [Scientist calls for Americans to cut off air conditioning in summer, claiming it causes global warming](https://www.yahoo.com/news/scientist-calls-americans-cut-off-090051733.html)
 <!-- feed end -->
 
 ### Onstream
