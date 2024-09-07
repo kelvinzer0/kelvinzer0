@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Trump calls for modifying 25th Amendment to make it possible to remove a vice president](https://www.yahoo.com/news/trump-calls-modifying-25th-amendment-203601702.html)
 - Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
-- Sep 07 - [The iPhone is getting a ‘glow’ up. What to expect from Apple’s Monday event](https://finance.yahoo.com/news/iphone-getting-glow-expect-apple-170019591.html)
+- Sep 07 - [TIMELINE: Melissa Jubane’s final days, disappearance, death investigation](https://www.yahoo.com/news/timeline-melissa-jubane-final-days-194134200.html)
+- Sep 07 - [Construction will close a Fresno intersection for 2-3 weeks starting Monday. Here’s why](https://www.yahoo.com/news/construction-close-fresno-intersection-2-183000023.html)
 - Sep 07 - [Venezuela revokes Brazil's authorization to represent Argentine interests in the country](https://www.yahoo.com/news/venezuela-revokes-authorization-brazil-represent-162022156.html)
-- Sep 07 - [I had a CD with a 5.5% interest rate and the bank wants it back early. Now what?](https://finance.yahoo.com/news/had-cd-5-5-interest-233100826.html)
-- Sep 07 - [Turkey's Erdogan calls for Islamic alliance against Israel](https://www.yahoo.com/news/turkeys-erdogan-calls-islamic-alliance-143408191.html)
 <!-- feed end -->
 
 ### Onstream
