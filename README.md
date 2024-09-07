@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Bernie Sanders tells Theo Von half of cancer patients go bankrupt or broke, and he praises the Canadian system](https://finance.yahoo.com/news/bernie-sanders-tells-theo-von-104400813.html)
 - Sep 07 - [Boeing's uncrewed Starliner spacecraft touches down on Earth, capping months of drama in orbit](https://www.yahoo.com/news/boeings-beleaguered-starliner-spacecraft-begins-220748772.html)
 - Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
-- Sep 06 - [The Complete List Of Past GOP Presidential Ticket Members Who Say They're Voting For Trump](https://www.yahoo.com/news/complete-list-past-gop-presidential-222116728.html)
-- Sep 06 - [Russian banks say they've run out of yuan as Chinese firms pull away from the nation](https://finance.yahoo.com/news/russian-banks-theyve-run-yuan-221813808.html)
-- Sep 06 - [The maiden voyage of Blue Origin's massive new rocket won't be for NASA](https://www.yahoo.com/news/maiden-voyage-blue-origins-massive-213441440.html)
+- Sep 07 - [Mega Millions winning numbers for Friday, Sept. 6, 2024](https://www.yahoo.com/news/mega-millions-winning-numbers-friday-030910334.html)
+- Sep 07 - [Harris spokesperson jabs Fox News host for acting ‘like she’s in the witness protection program’](https://www.yahoo.com/news/harris-spokesperson-jabs-fox-news-010657870.html)
 <!-- feed end -->
 
 ### Onstream
