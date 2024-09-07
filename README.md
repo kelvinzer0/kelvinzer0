@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [The Ferrari F430 Was Once a Middling Mid-Engine Exotic. Now Prices Are Rising Fast.](https://finance.yahoo.com/news/ferrari-f430-once-middling-mid-220000508.html)
+- Sep 07 - ['A banana is a banana': Key quotes from the Kroger Albertsons merger hearing](https://www.yahoo.com/news/banana-banana-key-quotes-kroger-030109806.html)
+- Sep 06 - [The Complete List Of Past GOP Presidential Ticket Members Who Say They're Voting For Trump](https://www.yahoo.com/news/complete-list-past-gop-presidential-222116728.html)
 - Sep 06 - [The maiden voyage of Blue Origin's massive new rocket won't be for NASA](https://www.yahoo.com/news/maiden-voyage-blue-origins-massive-213441440.html)
 - Sep 06 - [Watch live as Boeing and NASA attempt to bring empty Starliner back to Earth](https://www.yahoo.com/news/watch-live-boeing-nasa-attempt-212234476.html)
-- Sep 06 - [Jail put ‘violent’ inmate in man’s cell and he was killed within 45 minutes, suit says](https://www.yahoo.com/news/jail-put-violent-inmate-man-205546312.html)
-- Sep 06 - [Supreme Court Justice Alito reports German princess gave him $900 concert tickets](https://www.yahoo.com/news/supreme-court-justice-alito-reports-200351489.html)
+- Sep 06 - [US sees potential Iran transfer of missiles to Russia as alarming](https://www.yahoo.com/news/us-sees-potential-iran-transfer-210758029.html)
 <!-- feed end -->
 
 ### Onstream
