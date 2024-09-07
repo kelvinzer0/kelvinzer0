@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [2 No-Brainer ETFs to Buy Before the Fed Cuts Interest Rates](https://finance.yahoo.com/news/2-no-brainer-etfs-buy-080700891.html)
+- Sep 07 - [Boeing's uncrewed Starliner spacecraft touches down on Earth, capping months of drama in orbit](https://www.yahoo.com/news/boeings-beleaguered-starliner-spacecraft-begins-220748772.html)
 - Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
+- Sep 06 - [The Complete List Of Past GOP Presidential Ticket Members Who Say They're Voting For Trump](https://www.yahoo.com/news/complete-list-past-gop-presidential-222116728.html)
 - Sep 06 - [Russian banks say they've run out of yuan as Chinese firms pull away from the nation](https://finance.yahoo.com/news/russian-banks-theyve-run-yuan-221813808.html)
 - Sep 06 - [The maiden voyage of Blue Origin's massive new rocket won't be for NASA](https://www.yahoo.com/news/maiden-voyage-blue-origins-massive-213441440.html)
-- Sep 06 - [The US Navy sacked a destroyer captain after a persistent steering problem led to a Middle East near-miss](https://www.yahoo.com/news/us-navy-sacked-destroyer-captain-205450987.html)
 <!-- feed end -->
 
 ### Onstream
