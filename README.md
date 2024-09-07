@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Scott Hastings wife missing latest: Jenny disappeared after swim in Firth of Forth, say ‘heartbroken’ family](https://www.yahoo.com/news/scott-hastings-wife-missing-latest-075348609.html)
-- Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
 - Sep 06 - [The Complete List Of Past GOP Presidential Ticket Members Who Say They're Voting For Trump](https://www.yahoo.com/news/complete-list-past-gop-presidential-222116728.html)
-- Sep 06 - [Russian banks say they've run out of yuan as Chinese firms pull away from the nation](https://finance.yahoo.com/news/russian-banks-theyve-run-yuan-221813808.html)
 - Sep 06 - [The maiden voyage of Blue Origin's massive new rocket won't be for NASA](https://www.yahoo.com/news/maiden-voyage-blue-origins-massive-213441440.html)
+- Sep 06 - [Supreme Court Justice Alito reports German princess gave him $900 concert tickets](https://www.yahoo.com/news/supreme-court-justice-alito-reports-200351489.html)
+- Sep 06 - [Well-timed GameStop options trade scores $550K profit after Roaring Kitty post](https://finance.yahoo.com/news/well-timed-gamestop-options-trade-195717503.html)
+- Sep 06 - [Video footage appears to show Russians killing surrendering Ukrainian soldiers](https://www.yahoo.com/news/video-footage-appears-show-russians-040119994.html)
 <!-- feed end -->
 
 ### Onstream
