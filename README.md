@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Ukraine mourns dead from major Russian strike, vows response with underground weapons production](https://www.yahoo.com/news/ukraine-destroys-scores-russian-drones-090858879.html)
-- Sep 07 - [Boeing's uncrewed Starliner spacecraft touches down on Earth, capping months of drama in orbit](https://www.yahoo.com/news/boeings-beleaguered-starliner-spacecraft-begins-220748772.html)
-- Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
-- Sep 07 - [Harris spokesperson jabs Fox News host for acting ‘like she’s in the witness protection program’](https://www.yahoo.com/news/harris-spokesperson-jabs-fox-news-010657870.html)
-- Sep 07 - [Abandoned Shasta County mine releasing 'pure acid' water now an EPA Superfund cleanup site](https://www.yahoo.com/news/abandoned-shasta-county-mine-releasing-004352979.html)
+- Sep 07 - [Hurricane-damaged Louisiana skyscraper is imploded](https://www.yahoo.com/news/hurricane-damaged-louisiana-skyscraper-imploded-142850115.html)
+- Sep 07 - [How to Generate Over $50,000 in Annual Dividends by the Time You Retire](https://finance.yahoo.com/news/generate-over-50-000-annual-140000087.html)
+- Sep 07 - [Why 401 (k) investors ignore 'keep cool' advice when markets tank](https://finance.yahoo.com/news/why-401-k-investors-ignore-keep-cool-advice-when-markets-tank-120012846.html)
+- Sep 07 - [Chicken chain location demolished. What’s going onto busy Lexington corner?](https://www.yahoo.com/news/chicken-chain-location-demolished-going-100000434.html)
+- Sep 07 - [These Miami brothers ruled ultra luxury real estate, then sex assault allegations came out](https://www.yahoo.com/news/miami-brothers-ruled-ultra-luxury-090000615.html)
 <!-- feed end -->
 
 ### Onstream
