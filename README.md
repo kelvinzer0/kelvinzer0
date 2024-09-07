@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Boeing Starliner capsule returns home from space — without astronauts on board](https://www.yahoo.com/news/boeing-starliner-capsule-return-space-200905117.html)
+- Sep 07 - [Arizona home inspector survives spat with Taylor Morrison after exposing flaws in new-build homes on social media](https://finance.yahoo.com/news/arizona-home-inspector-survives-spat-104800633.html)
+- Sep 07 - [Chicken chain location demolished. What’s going onto busy Lexington corner?](https://www.yahoo.com/news/chicken-chain-location-demolished-going-100000434.html)
 - Sep 07 - [These Miami brothers ruled ultra luxury real estate, then sex assault allegations came out](https://www.yahoo.com/news/miami-brothers-ruled-ultra-luxury-090000615.html)
-- Sep 07 - [Forget Nvidia: Meet the Supercharged Growth Stock Headed to $4 Trillion Over the Coming 12 to 18 Months, According to 1 Wall Street Analyst](https://finance.yahoo.com/news/forget-nvidia-meet-supercharged-growth-070500102.html)
+- Sep 07 - [Boeing's uncrewed Starliner spacecraft touches down on Earth, capping months of drama in orbit](https://www.yahoo.com/news/boeings-beleaguered-starliner-spacecraft-begins-220748772.html)
 - Sep 07 - [Trump Fumes Over 'Irrelevant' Dick Cheney In Post-Harris Endorsement Meltdown](https://www.yahoo.com/news/trump-fumes-over-irrelevant-dick-052812767.html)
-- Sep 07 - [Mega Millions winning numbers for Friday, Sept. 6, 2024: No jackpot winner](https://www.yahoo.com/news/mega-millions-winning-numbers-friday-030910334.html)
 <!-- feed end -->
 
 ### Onstream
