@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [McDonald's Is Updating Its McFlurry Cups With Sustainability In Mind](https://www.yahoo.com/news/mcdonalds-updating-mcflurry-cups-sustainability-195416981.html)
 - Sep 07 - [Venezuela revokes Brazil's authorization to represent Argentine interests in the country](https://www.yahoo.com/news/venezuela-revokes-authorization-brazil-represent-162022156.html)
+- Sep 07 - [I had a CD with a 5.5% interest rate and the bank wants it back early. Now what?](https://finance.yahoo.com/news/had-cd-5-5-interest-233100826.html)
 - Sep 07 - [Dozens of people sick across several states in salmonella outbreak linked to recalled eggs](https://www.yahoo.com/news/dozens-people-sick-across-several-141037074.html)
 - Sep 07 - [Dementia risk factors identified in new global report are all preventable – addressing them could reduce dementia rates by 45%](https://www.yahoo.com/news/dementia-risk-factors-identified-global-140345425.html)
-- Sep 07 - [Hundreds line up early as Cherokee marijuana dispensary superstore opens to all adults](https://www.yahoo.com/news/crowds-line-early-cherokee-marijuana-135328800.html)
-- Sep 07 - [Why 401 (k) investors ignore 'keep cool' advice when markets tank](https://finance.yahoo.com/news/why-401-k-investors-ignore-keep-cool-advice-when-markets-tank-120012846.html)
 <!-- feed end -->
 
 ### Onstream
