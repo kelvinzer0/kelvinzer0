@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Scott Hastings wife missing latest: Jenny disappeared after swim in Firth of Forth, say ‘heartbroken’ family](https://www.yahoo.com/news/scott-hastings-wife-missing-latest-075348609.html)
 - Sep 07 - [Ukraine’s ‘dragon drones’ rain molten metal on Russian positions in latest terrifying battlefield innovation](https://www.yahoo.com/news/ukraine-dragon-drones-rain-molten-040119035.html)
-- Sep 06 - [Part of Interstate 99 in Centre County closed Friday evening after multiple crashes](https://www.yahoo.com/news/interstate-99-centre-county-reopens-231654245.html)
 - Sep 06 - [The Complete List Of Past GOP Presidential Ticket Members Who Say They're Voting For Trump](https://www.yahoo.com/news/complete-list-past-gop-presidential-222116728.html)
+- Sep 06 - [Russian banks say they've run out of yuan as Chinese firms pull away from the nation](https://finance.yahoo.com/news/russian-banks-theyve-run-yuan-221813808.html)
 - Sep 06 - [The maiden voyage of Blue Origin's massive new rocket won't be for NASA](https://www.yahoo.com/news/maiden-voyage-blue-origins-massive-213441440.html)
-- Sep 06 - [84-year-old woman bit by 7-foot alligator while walking dog, FWC says](https://www.yahoo.com/news/84-old-woman-bit-7-204608297.html)
 <!-- feed end -->
 
 ### Onstream
