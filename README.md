@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [I had a CD with a 5.5% interest rate and the bank wants it back early. Now what?](https://finance.yahoo.com/news/had-cd-5-5-interest-233100826.html)
 - Sep 07 - [Hurricane-damaged Louisiana skyscraper is imploded](https://www.yahoo.com/news/hurricane-damaged-louisiana-skyscraper-imploded-142850115.html)
-- Sep 07 - [How to Generate Over $50,000 in Annual Dividends by the Time You Retire](https://finance.yahoo.com/news/generate-over-50-000-annual-140000087.html)
-- Sep 07 - [Why 401 (k) investors ignore 'keep cool' advice when markets tank](https://finance.yahoo.com/news/why-401-k-investors-ignore-keep-cool-advice-when-markets-tank-120012846.html)
-- Sep 07 - [Chicken chain location demolished. What’s going onto busy Lexington corner?](https://www.yahoo.com/news/chicken-chain-location-demolished-going-100000434.html)
-- Sep 07 - [These Miami brothers ruled ultra luxury real estate, then sex assault allegations came out](https://www.yahoo.com/news/miami-brothers-ruled-ultra-luxury-090000615.html)
+- Sep 07 - [Dozens of people sick across several states in salmonella outbreak linked to recalled eggs](https://www.yahoo.com/news/dozens-people-sick-across-several-141037074.html)
+- Sep 07 - [Dementia risk factors identified in new global report are all preventable – addressing them could reduce dementia rates by 45%](https://www.yahoo.com/news/dementia-risk-factors-identified-global-140345425.html)
+- Sep 07 - [Planes Targeting Trump Fly Over College Football Stadiums, Telling Voters to Sack Project 2025 (Exclusive)](https://www.yahoo.com/news/planes-targeting-trump-fly-over-131247306.html)
 <!-- feed end -->
 
 ### Onstream
