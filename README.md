@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Russian banks say they've run out of yuan as Chinese firms pull away from the nation](https://finance.yahoo.com/news/russian-banks-theyve-run-yuan-221813808.html)
+- Sep 07 - [Caddo Parish superintendent finalist to be interviewed in executive session](https://www.yahoo.com/news/caddo-parish-superintendent-finalist-interviewed-024546903.html)
 - Sep 06 - [The maiden voyage of Blue Origin's massive new rocket won't be for NASA](https://www.yahoo.com/news/maiden-voyage-blue-origins-massive-213441440.html)
+- Sep 06 - [Watch live as Boeing and NASA attempt to bring empty Starliner back to Earth](https://www.yahoo.com/news/watch-live-boeing-nasa-attempt-212234476.html)
 - Sep 06 - [US sees potential Iran transfer of missiles to Russia as alarming](https://www.yahoo.com/news/us-sees-potential-iran-transfer-210758029.html)
 - Sep 06 - [Supreme Court Justice Alito reports German princess gave him $900 concert tickets](https://www.yahoo.com/news/supreme-court-justice-alito-reports-200351489.html)
-- Sep 06 - [Bill Gates said if he were in charge of the US tax system he'd have paid 'tens of billions' more](https://finance.yahoo.com/news/bill-gates-said-were-charge-184419317.html)
 <!-- feed end -->
 
 ### Onstream
