@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Moment 22-storey skyscraper imploded in seconds after hurricane damage](https://www.yahoo.com/news/moment-22-storey-skyscraper-imploded-085252483.html)
+- Sep 08 - [Tim Walz Stings GOP With Blunt 'Fact of Life' After JD Vance's School Shooting Remarks](https://www.yahoo.com/news/tim-walz-stings-gop-blunt-075820637.html)
+- Sep 08 - [Southern California wildfire burns so intensely that it creates its own weather as it spreads, forcing evacuations](https://www.yahoo.com/news/southern-california-wildfire-burns-intensely-012548686.html)
+- Sep 07 - [Kentucky shooter at large after wounding at least seven along highway](https://www.yahoo.com/news/active-shooter-near-kentucky-highway-232851953.html)
 - Sep 07 - [Former director of Los Alamos National Laboratory dead after car crash in New Mexico](https://www.yahoo.com/news/former-director-los-alamos-national-224804054.html)
-- Sep 07 - [Trump calls for modifying 25th Amendment to make it possible to remove a vice president](https://www.yahoo.com/news/trump-calls-modifying-25th-amendment-203601702.html)
-- Sep 07 - [Donald Trump Plans to Tower Over Harris in Last-Minute Debate Ask](https://www.yahoo.com/news/donald-trump-plans-tower-over-222952360.html)
-- Sep 07 - [Invest 91L high chance of becoming tropical storm in Gulf of Mexico](https://www.yahoo.com/news/invest-91l-high-chance-becoming-215505096.html)
-- Sep 07 - [Wynn Resorts paying $130M for letting illegal money reach gamblers at its Las Vegas Strip casino](https://finance.yahoo.com/news/wynn-resorts-paying-130m-letting-213538453.html)
 <!-- feed end -->
 
 ### Onstream
