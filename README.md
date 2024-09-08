@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Four Caddo students admitted to Louisiana School for Math, Science and Arts](https://www.yahoo.com/news/four-caddo-students-admitted-louisiana-140037512.html)
-- Sep 08 - [The controversial plan to turn a desert green](https://www.yahoo.com/news/controversial-plan-turn-desert-green-130021206.html)
+- Sep 08 - [Chick of 'world's most dangerous bird' hatches in Cotswolds](https://www.yahoo.com/news/chick-worlds-most-dangerous-bird-062045233.html)
 - Sep 08 - [California man loses life savings, owes more than $30K in taxes after falling prey to sophisticated scam](https://finance.yahoo.com/news/california-man-loses-life-savings-120300738.html)
+- Sep 08 - [King Charles attends church prayers on the anniversary of Queen Elizabeth's death](https://www.yahoo.com/news/king-charles-attends-church-prayers-120300039.html)
+- Sep 08 - [Colorado rattlesnake 'mega-den' webcam shows scores of baby snakes born in recent weeks](https://www.yahoo.com/news/colorado-rattlesnake-mega-den-webcam-120211445.html)
 - Sep 08 - [Consumer Reports readers say these brands build the best used cars](https://www.yahoo.com/news/consumer-reports-readers-brands-build-120000734.html)
-- Sep 08 - [Grand Canyon's main water line has broken dozens of times. Why is it getting a major fix only now?](https://www.yahoo.com/news/grand-canyons-main-water-line-113301506.html)
 <!-- feed end -->
 
 ### Onstream
