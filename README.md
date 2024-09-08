@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Iran wants Israelis to worry that Hezbollah has a rare and powerful EMP weapon](https://www.yahoo.com/news/iran-wants-israelis-worry-hezbollah-090002078.html)
-- Sep 08 - [SC city fastest growing for retirees in US. Here’s why it beat out Florida as best place](https://www.yahoo.com/lifestyle/sc-city-fastest-growing-retirees-090000018.html)
-- Sep 08 - [Ukraine's Zelenskiy appoints former arms production minister as adviser](https://www.yahoo.com/news/ukraines-zelenskiy-appoints-former-arms-084352401.html)
+- Sep 08 - [Post-Surfside condo inspection leads to condemnation, 30-day notice to eviction](https://www.yahoo.com/news/post-surfside-condo-inspection-leads-100335581.html)
+- Sep 08 - [See inside the Brazilian C-390 Millennium that Boeing once wanted to buy but now doesn't have an answer to](https://www.yahoo.com/news/see-inside-brazilian-c-390-095902799.html)
+- Sep 08 - [Tim Walz Stings GOP With Blunt 'Fact of Life' After JD Vance's School Shooting Remarks](https://www.yahoo.com/news/tim-walz-stings-gop-blunt-075820637.html)
+- Sep 08 - [As Volkswagen weighs its first closure of a German auto plant, workers aren't the only ones worried](https://finance.yahoo.com/news/volkswagen-weighs-first-closure-german-072359805.html)
 - Sep 08 - [Trump threatens lawyers, donors and election officials with prison for 'unscrupulous behavior'](https://www.yahoo.com/news/trump-threatens-lawyers-donors-election-032056229.html)
-- Sep 08 - [Georgia high school shooting: Suspect's former neighbors recount harrowing stories of alleged abuse, chaos](https://www.yahoo.com/news/georgia-high-school-shooting-suspects-001901137.html)
 <!-- feed end -->
 
 ### Onstream
