@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [iPhone 16 price report: How much will it cost?](https://www.yahoo.com/tech/iphone-16-price-report-much-080000568.html)
 - Sep 08 - [Kamala Harris suffers poll blow on eve of critical Trump debate](https://www.yahoo.com/news/kamala-harris-suffers-poll-blow-170950816.html)
 - Sep 08 - [German Chancellor Scholz calls for faster progress toward ending Russia's war on Ukraine](https://www.yahoo.com/news/german-chancellor-scholz-calls-faster-170039458.html)
 - Sep 08 - [George W Bush reveals his decision on 2024 endorsement after Cheney snubbed Trump](https://www.yahoo.com/news/george-w-bush-won-t-153313768.html)
-- Sep 08 - [‘Appalling’: Fetterman rips US Steel CEO warning as Biden set to block deal](https://www.yahoo.com/news/appalling-fetterman-rips-us-steel-155646862.html)
-- Sep 08 - [Tyreek Hill detained outside stadium prior to Dolphins game, plans to play vs. Jags](https://sports.yahoo.com/tyreek-hill-detained-outside-stadium-prior-to-dolphins-game-plans-to-play-vs-jags-150144278.html)
+- Sep 08 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
 <!-- feed end -->
 
 ### Onstream
