@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 08 - [Kimberly Guilfoyle forced to ask audience to clap as awkward speech falls flat](https://www.yahoo.com/news/kimberly-guilfoyle-forced-ask-audience-201903496.html)
-- Sep 08 - [Archeologist aims to bring back Nefertiti bust to Egypt](https://www.yahoo.com/news/archeologist-aims-bring-back-nefertiti-194412942.html)
-- Sep 08 - [Apple Intelligence delays could impede iPhone 16 ‘supercycle’](https://www.yahoo.com/news/apple-intelligence-delays-could-impede-192523465.html)
-- Sep 08 - [Kamala Harris suffers poll blow on eve of critical Trump debate](https://www.yahoo.com/news/kamala-harris-suffers-poll-blow-170950816.html)
+- Sep 08 - [Mother's warning to Georgia school about suspect raises questions about moments before shooting](https://www.yahoo.com/news/mothers-warning-georgia-school-suspect-211907556.html)
+- Sep 08 - [Waffle House CEO Walt Ehmer has died at age 58](https://www.yahoo.com/news/waffle-house-ceo-walt-ehmer-185853684.html)
 - Sep 08 - [German Chancellor Scholz calls for faster progress toward ending Russia's war on Ukraine](https://www.yahoo.com/news/german-chancellor-scholz-calls-faster-170039458.html)
+- Sep 08 - [‘World’s deadliest chick’ hatches in Cotswolds bird park](https://www.yahoo.com/news/one-world-deadliest-chicks-hatches-165017808.html)
 <!-- feed end -->
 
 ### Onstream
