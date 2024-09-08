@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [iPhone 16 price report: How much will it cost?](https://www.yahoo.com/tech/iphone-16-price-report-much-080000568.html)
+- Sep 08 - [Melania Trump Breaks Silence to Complain About 2020 Defeat](https://www.yahoo.com/entertainment/melania-condemns-efforts-silence-trump-171234474.html)
 - Sep 08 - [Kamala Harris suffers poll blow on eve of critical Trump debate](https://www.yahoo.com/news/kamala-harris-suffers-poll-blow-170950816.html)
 - Sep 08 - [German Chancellor Scholz calls for faster progress toward ending Russia's war on Ukraine](https://www.yahoo.com/news/german-chancellor-scholz-calls-faster-170039458.html)
 - Sep 08 - [George W Bush reveals his decision on 2024 endorsement after Cheney snubbed Trump](https://www.yahoo.com/news/george-w-bush-won-t-153313768.html)
