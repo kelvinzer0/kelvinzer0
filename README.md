@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Morning Bid: Bracing for heavy selloff](https://finance.yahoo.com/news/morning-bid-bracing-heavy-selloff-214759665.html)
+- Sep 08 - [Mother of shooting suspect called Apalachee High School and drove 200 miles after getting alarming text, grandfather says](https://www.yahoo.com/news/georgia-school-shooting-suspect-expected-053640857.html)
 - Sep 08 - [Kimberly Guilfoyle forced to ask audience to clap as awkward speech falls flat](https://www.yahoo.com/news/kimberly-guilfoyle-forced-ask-audience-201903496.html)
-- Sep 08 - [Mother's warning to Georgia school about suspect raises questions about moments before shooting](https://www.yahoo.com/news/mothers-warning-georgia-school-suspect-211907556.html)
+- Sep 08 - [Archeologist aims to bring back Nefertiti bust to Egypt](https://www.yahoo.com/news/archeologist-aims-bring-back-nefertiti-194412942.html)
 - Sep 08 - [Waffle House CEO Walt Ehmer has died at age 58](https://www.yahoo.com/news/waffle-house-ceo-walt-ehmer-185853684.html)
-- Sep 08 - [German Chancellor Scholz calls for faster progress toward ending Russia's war on Ukraine](https://www.yahoo.com/news/german-chancellor-scholz-calls-faster-170039458.html)
-- Sep 08 - [‘World’s deadliest chick’ hatches in Cotswolds bird park](https://www.yahoo.com/news/one-world-deadliest-chicks-hatches-165017808.html)
 <!-- feed end -->
 
 ### Onstream
