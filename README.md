@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Sep 07 - [Former director of Los Alamos National Laboratory dead after car crash in New Mexico](https://www.yahoo.com/news/former-director-los-alamos-national-224804054.html)
 - Sep 07 - [Trump calls for modifying 25th Amendment to make it possible to remove a vice president](https://www.yahoo.com/news/trump-calls-modifying-25th-amendment-203601702.html)
 - Sep 07 - [Donald Trump Plans to Tower Over Harris in Last-Minute Debate Ask](https://www.yahoo.com/news/donald-trump-plans-tower-over-222952360.html)
-- Sep 07 - [Wynn Resorts paying $130M for letting illegal money reach gamblers at its Las Vegas Strip casino](https://finance.yahoo.com/news/wynn-resorts-paying-130m-letting-213538453.html)
+- Sep 07 - [Invest 91L high chance of becoming tropical storm in Gulf of Mexico](https://www.yahoo.com/news/invest-91l-high-chance-becoming-215505096.html)
 <!-- feed end -->
 
 ### Onstream
