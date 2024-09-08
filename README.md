@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Dude, maybe you should have gotten a Dell](https://finance.yahoo.com/news/dude-maybe-you-should-have-gotten-a-dell-123043004.html)
 - Sep 08 - [California man loses life savings, owes more than $30K in taxes after falling prey to sophisticated scam](https://finance.yahoo.com/news/california-man-loses-life-savings-120300738.html)
 - Sep 08 - [King Charles attends church prayers on the anniversary of Queen Elizabeth's death](https://www.yahoo.com/news/king-charles-attends-church-prayers-120300039.html)
 - Sep 08 - [Okay, I'm Pretty Sure These Are The 40 Absolute Dumbest Things That Have Ever Been Posted On Twitter](https://www.yahoo.com/entertainment/okay-im-pretty-sure-40-111655084.html)
 - Sep 08 - [‘That’s weird!’: 58-year-old Baltimorean hasn’t saved any money but wants to retire soon. Owes nearly as much on motorcycle as his mortgage. Dave Ramsey responds.](https://finance.yahoo.com/news/weird-58-old-baltimorean-hasn-111200022.html)
-- Sep 08 - [This woman bought 8 properties — including 1 for $1,800 — in a once-bankrupt city turned investor's paradise](https://finance.yahoo.com/news/woman-bought-8-properties-including-105200950.html)
 <!-- feed end -->
 
 ### Onstream
