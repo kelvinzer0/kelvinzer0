@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Post-Surfside condo inspection leads to condemnation, 30-day notice to eviction](https://www.yahoo.com/news/post-surfside-condo-inspection-leads-100335581.html)
-- Sep 08 - [See inside the Brazilian C-390 Millennium that Boeing once wanted to buy but now doesn't have an answer to](https://www.yahoo.com/news/see-inside-brazilian-c-390-095902799.html)
+- Sep 08 - [Okay, I'm Pretty Sure These Are The 40 Absolute Dumbest Things That Have Ever Been Posted On Twitter](https://www.yahoo.com/entertainment/okay-im-pretty-sure-40-111655084.html)
+- Sep 08 - [‘That’s weird!’: 58-year-old Baltimorean hasn’t saved any money but wants to retire soon. Owes nearly as much on motorcycle as his mortgage. Dave Ramsey responds.](https://finance.yahoo.com/news/weird-58-old-baltimorean-hasn-111200022.html)
+- Sep 08 - [Russia takes Ukrainian town in advance on Pokrovsk](https://www.yahoo.com/news/russian-troops-novohrodivka-ukraines-donetsk-080124080.html)
 - Sep 08 - [Tim Walz Stings GOP With Blunt 'Fact of Life' After JD Vance's School Shooting Remarks](https://www.yahoo.com/news/tim-walz-stings-gop-blunt-075820637.html)
 - Sep 08 - [As Volkswagen weighs its first closure of a German auto plant, workers aren't the only ones worried](https://finance.yahoo.com/news/volkswagen-weighs-first-closure-german-072359805.html)
-- Sep 08 - [Trump threatens lawyers, donors and election officials with prison for 'unscrupulous behavior'](https://www.yahoo.com/news/trump-threatens-lawyers-donors-election-032056229.html)
 <!-- feed end -->
 
 ### Onstream
