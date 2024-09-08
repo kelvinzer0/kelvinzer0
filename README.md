@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Melania Trump Breaks Silence to Complain About 2020 Defeat](https://www.yahoo.com/entertainment/melania-condemns-efforts-silence-trump-171234474.html)
+- Sep 08 - [Kimberly Guilfoyle forced to ask audience to clap as awkward speech falls flat](https://www.yahoo.com/news/kimberly-guilfoyle-forced-ask-audience-201903496.html)
+- Sep 08 - [Archeologist aims to bring back Nefertiti bust to Egypt](https://www.yahoo.com/news/archeologist-aims-bring-back-nefertiti-194412942.html)
+- Sep 08 - [Apple Intelligence delays could impede iPhone 16 ‘supercycle’](https://www.yahoo.com/news/apple-intelligence-delays-could-impede-192523465.html)
 - Sep 08 - [Kamala Harris suffers poll blow on eve of critical Trump debate](https://www.yahoo.com/news/kamala-harris-suffers-poll-blow-170950816.html)
 - Sep 08 - [German Chancellor Scholz calls for faster progress toward ending Russia's war on Ukraine](https://www.yahoo.com/news/german-chancellor-scholz-calls-faster-170039458.html)
-- Sep 08 - [George W Bush reveals his decision on 2024 endorsement after Cheney snubbed Trump](https://www.yahoo.com/news/george-w-bush-won-t-153313768.html)
-- Sep 08 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
 <!-- feed end -->
 
 ### Onstream
