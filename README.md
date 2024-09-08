@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Moment 22-storey skyscraper imploded in seconds after hurricane damage](https://www.yahoo.com/news/moment-22-storey-skyscraper-imploded-085252483.html)
-- Sep 08 - [Tim Walz Stings GOP With Blunt 'Fact of Life' After JD Vance's School Shooting Remarks](https://www.yahoo.com/news/tim-walz-stings-gop-blunt-075820637.html)
-- Sep 08 - [Southern California wildfire burns so intensely that it creates its own weather as it spreads, forcing evacuations](https://www.yahoo.com/news/southern-california-wildfire-burns-intensely-012548686.html)
-- Sep 07 - [Kentucky shooter at large after wounding at least seven along highway](https://www.yahoo.com/news/active-shooter-near-kentucky-highway-232851953.html)
-- Sep 07 - [Former director of Los Alamos National Laboratory dead after car crash in New Mexico](https://www.yahoo.com/news/former-director-los-alamos-national-224804054.html)
+- Sep 08 - [Iran wants Israelis to worry that Hezbollah has a rare and powerful EMP weapon](https://www.yahoo.com/news/iran-wants-israelis-worry-hezbollah-090002078.html)
+- Sep 08 - [SC city fastest growing for retirees in US. Here’s why it beat out Florida as best place](https://www.yahoo.com/lifestyle/sc-city-fastest-growing-retirees-090000018.html)
+- Sep 08 - [Ukraine's Zelenskiy appoints former arms production minister as adviser](https://www.yahoo.com/news/ukraines-zelenskiy-appoints-former-arms-084352401.html)
+- Sep 08 - [Trump threatens lawyers, donors and election officials with prison for 'unscrupulous behavior'](https://www.yahoo.com/news/trump-threatens-lawyers-donors-election-032056229.html)
+- Sep 08 - [Georgia high school shooting: Suspect's former neighbors recount harrowing stories of alleged abuse, chaos](https://www.yahoo.com/news/georgia-high-school-shooting-suspects-001901137.html)
 <!-- feed end -->
 
 ### Onstream
