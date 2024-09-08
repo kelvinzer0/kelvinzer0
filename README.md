@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
+- Sep 08 - [Tyreek Hill detained outside stadium prior to Dolphins game, plans to play vs. Jags](https://sports.yahoo.com/tyreek-hill-detained-outside-stadium-prior-to-dolphins-game-plans-to-play-vs-jags-150144278.html)
+- Sep 08 - [President, CEO of Waffle House dies](https://www.yahoo.com/news/president-ceo-waffle-house-dies-130230116.html)
+- Sep 08 - [The controversial plan to turn a desert green](https://www.yahoo.com/news/controversial-plan-turn-desert-green-130021206.html)
 - Sep 08 - [Chick of 'world's most dangerous bird' hatches in Cotswolds](https://www.yahoo.com/news/chick-worlds-most-dangerous-bird-062045233.html)
-- Sep 08 - [California man loses life savings, owes more than $30K in taxes after falling prey to sophisticated scam](https://finance.yahoo.com/news/california-man-loses-life-savings-120300738.html)
-- Sep 08 - [King Charles attends church prayers on the anniversary of Queen Elizabeth's death](https://www.yahoo.com/news/king-charles-attends-church-prayers-120300039.html)
-- Sep 08 - [Colorado rattlesnake 'mega-den' webcam shows scores of baby snakes born in recent weeks](https://www.yahoo.com/news/colorado-rattlesnake-mega-den-webcam-120211445.html)
-- Sep 08 - [Consumer Reports readers say these brands build the best used cars](https://www.yahoo.com/news/consumer-reports-readers-brands-build-120000734.html)
 <!-- feed end -->
 
 ### Onstream
