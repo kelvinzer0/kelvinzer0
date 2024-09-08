@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Wynn Resorts paying $130M for letting illegal money reach gamblers at its Las Vegas Strip casino](https://finance.yahoo.com/news/wynn-resorts-paying-130m-letting-213538453.html)
+- Sep 08 - [Microsoft Corporation (MSFT): Do Short Sellers Recommend This Autonomous Driving Stock Now?](https://finance.yahoo.com/news/microsoft-corporation-msft-short-sellers-011916850.html)
+- Sep 07 - [Active shooter at Kentucky highway, 'numerous persons' shot in traffic](https://www.yahoo.com/news/active-shooter-near-kentucky-highway-232851953.html)
+- Sep 07 - [Former director of Los Alamos National Laboratory dead after car crash in New Mexico](https://www.yahoo.com/news/former-director-los-alamos-national-224804054.html)
 - Sep 07 - [Trump calls for modifying 25th Amendment to make it possible to remove a vice president](https://www.yahoo.com/news/trump-calls-modifying-25th-amendment-203601702.html)
-- Sep 07 - [Turkey's Erdogan calls for Islamic alliance against Israel](https://www.yahoo.com/news/turkeys-erdogan-calls-islamic-alliance-143408191.html)
-- Sep 07 - [Dementia risk factors identified in new global report are all preventable – addressing them could reduce dementia rates by 45%](https://www.yahoo.com/news/dementia-risk-factors-identified-global-140345425.html)
-- Sep 07 - [Scientist calls for Americans to cut off air conditioning in summer, claiming it causes global warming](https://www.yahoo.com/news/scientist-calls-americans-cut-off-090051733.html)
+- Sep 07 - [Donald Trump Plans to Tower Over Harris in Last-Minute Debate Ask](https://www.yahoo.com/news/donald-trump-plans-tower-over-222952360.html)
 <!-- feed end -->
 
 ### Onstream
