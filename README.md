@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Dude, maybe you should have gotten a Dell](https://finance.yahoo.com/news/dude-maybe-you-should-have-gotten-a-dell-123043004.html)
+- Sep 08 - [Four Caddo students admitted to Louisiana School for Math, Science and Arts](https://www.yahoo.com/news/four-caddo-students-admitted-louisiana-140037512.html)
+- Sep 08 - [The controversial plan to turn a desert green](https://www.yahoo.com/news/controversial-plan-turn-desert-green-130021206.html)
 - Sep 08 - [California man loses life savings, owes more than $30K in taxes after falling prey to sophisticated scam](https://finance.yahoo.com/news/california-man-loses-life-savings-120300738.html)
-- Sep 08 - [King Charles attends church prayers on the anniversary of Queen Elizabeth's death](https://www.yahoo.com/news/king-charles-attends-church-prayers-120300039.html)
-- Sep 08 - [Okay, I'm Pretty Sure These Are The 40 Absolute Dumbest Things That Have Ever Been Posted On Twitter](https://www.yahoo.com/entertainment/okay-im-pretty-sure-40-111655084.html)
-- Sep 08 - [‘That’s weird!’: 58-year-old Baltimorean hasn’t saved any money but wants to retire soon. Owes nearly as much on motorcycle as his mortgage. Dave Ramsey responds.](https://finance.yahoo.com/news/weird-58-old-baltimorean-hasn-111200022.html)
+- Sep 08 - [Consumer Reports readers say these brands build the best used cars](https://www.yahoo.com/news/consumer-reports-readers-brands-build-120000734.html)
+- Sep 08 - [Grand Canyon's main water line has broken dozens of times. Why is it getting a major fix only now?](https://www.yahoo.com/news/grand-canyons-main-water-line-113301506.html)
 <!-- feed end -->
 
 ### Onstream
