@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 09 - [Trump, 78, Accidentally Skewers Himself in Wild Rant on 80-Year-Olds](https://www.yahoo.com/news/trump-78-accidentally-skewers-himself-203530889.html)
-- Sep 09 - [Hopes for quick resolution endure as Tallahassee firefighter pay negotiations press on](https://www.yahoo.com/news/hopes-quick-resolution-endure-tallahassee-202223421.html)
-- Sep 09 - [Apple Stock Ekes Out Gain On iPhone 16 Rollout (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
+- Sep 09 - [His Vote to Impeach Trump Led to His Downfall, but His Keenest Rage Is Reserved for Someone Else](https://www.yahoo.com/entertainment/vote-impeach-trump-led-downfall-202834150.html)
+- Sep 09 - [I flew a little-known, all-business-class airline that flies long-haul to the Maldives. See inside its narrowbody Airbus jets.](https://www.yahoo.com/news/flew-little-known-business-class-202157414.html)
 - Sep 09 - [Ted Cruz Gets Brutal Reminder After Sharing Racist Migrants Conspiracy](https://www.yahoo.com/news/ted-cruz-gets-brutal-reminder-201030939.html)
-- Sep 09 - [Tesla China Sales Roar Back In August. Elon Musk Says This About The Shanghai Plant.](https://www.investors.com/news/tesla-stock-china-sales-elon-musk-shanghai-plant/?src=A00220&yptr=yahoo)
+- Sep 09 - [People Are Sharing Their "Most Radical Position" That Isn't Politically Left Or Right, And Some Of These Are Real, Real Interesting](https://www.yahoo.com/entertainment/people-sharing-most-radical-position-200212783.html)
 <!-- feed end -->
 
 ### Onstream
