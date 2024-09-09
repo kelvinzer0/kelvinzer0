@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Factbox-Apple iPhone 16 event: Key announcements so far](https://finance.yahoo.com/news/factbox-apple-iphone-16-event-185325821.html)
-- Sep 09 - [Apple Unveils iPhone 16. Stock Down. (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
-- Sep 09 - [Trump Ally’s Embarrassing Speech Is a Sign of Campaign’s Dismal State](https://www.yahoo.com/news/trump-ally-embarrassing-speech-sign-180815951.html)
-- Sep 09 - ['Russian spy' whale was not killed by humans, say Norway police](https://www.yahoo.com/news/russian-spy-whale-not-killed-174951814.html)
-- Sep 09 - [Apple's iPhone 16 gets a camera button, Action button and the A18 chip](https://www.yahoo.com/news/apples-iphone-16-gets-a-camera-button-action-button-and-the-a18-chip-174756253.html)
+- Sep 09 - [Man recounts being targeted by eagle that was killed after attacking toddler and others](https://www.yahoo.com/news/man-recounts-being-targeted-eagle-200904249.html)
+- Sep 09 - [Tesla China Sales Roar Back In August. Elon Musk Says This About The Shanghai Plant.](https://www.investors.com/news/tesla-stock-china-sales-elon-musk-shanghai-plant/?src=A00220&yptr=yahoo)
+- Sep 09 - [Apple iPhone 16 Pro vs. the competition: Bigger, with more buttons](https://www.yahoo.com/news/apple-iphone-16-pro-vs-the-competition-bigger-with-more-buttons-194622608.html)
+- Sep 09 - [Apple Stock Slips After iPhone 16 Product Rollout (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
+- Sep 09 - [The wait for Apple’s iOS 18 update is almost over](https://www.yahoo.com/tech/wait-apple-ios-18-almost-190120384.html)
 <!-- feed end -->
 
 ### Onstream
