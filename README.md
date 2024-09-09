@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [China's 'wolf warrior' foreign minister is now working a lowly publishing role after falling foul of Xi: report](https://www.yahoo.com/news/chinas-wolf-warrior-foreign-minister-121248876.html)
+- Sep 09 - [Tesla China Sales Roar Back In August. Elon Musk Says This About The Shanghai Plant.](https://www.investors.com/news/tesla-stock-china-sales-elon-musk-shanghai-plant/?src=A00220&yptr=yahoo)
+- Sep 09 - [4 bodies found in wreckage of New England plane crash, authorities say](https://www.yahoo.com/news/4-bodies-found-wreckage-england-132737113.html)
 - Sep 09 - [Mom of Georgia shooting suspect called to warn school, family says | Morning in America](https://www.yahoo.com/news/mom-georgia-shooting-suspect-called-121035298.html)
-- Sep 09 - [Huawei racks up 3 million pre-orders for tri-fold phone before Apple's iPhone 16 reveal](https://finance.yahoo.com/news/huawei-racks-3-million-pre-115151437.html)
-- Sep 09 - [‘It’s hard to look at it’: Pennsylvania family told to demo home after it collapsed during reno — now they’re battling with their insurer](https://finance.yahoo.com/news/hard-look-pennsylvania-family-told-113300200.html)
 - Sep 09 - [50 Extremely Rare Historical Pictures That Will Completely And Totally Change Your Perspective On The Universe](https://www.yahoo.com/lifestyle/50-extremely-rare-historical-pictures-111833773.html)
+- Sep 09 - ['Caught off guard': How Tulsi Gabbard's big moment with Harris is playing into Tuesday's debate](https://www.yahoo.com/news/caught-off-guard-tulsi-gabbards-110000129.html)
 <!-- feed end -->
 
 ### Onstream
