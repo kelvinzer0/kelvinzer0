@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [China’s Deflationary Spiral Is Now Entering Dangerous New Stage](https://finance.yahoo.com/news/china-deflationary-spiral-now-entering-103006274.html)
+- Sep 09 - [Ukraine started this year on the brink of disaster. A lot has changed since.](https://www.yahoo.com/news/ukraine-started-brink-disaster-lot-101008925.html)
 - Sep 09 - [EastEnders airs Chrissie and Sharon reunion twist in iPlayer release](https://www.yahoo.com/news/eastenders-airs-chrissie-sharon-reunion-093600992.html)
-- Sep 09 - [Construction at the new Burlington High School invites the community to leave their mark](https://www.yahoo.com/news/construction-burlington-high-school-invites-090802496.html)
-- Sep 09 - [Donald Trump Botches New BFF Elon Musk’s Name And You Know What Happened](https://www.yahoo.com/entertainment/donald-trump-botches-bff-elon-064413379.html)
-- Sep 09 - ['Very Troubled And Very Desperate': Trump Biographer Spots 1 Key Change](https://www.yahoo.com/news/very-troubled-very-desperate-trump-064027302.html)
-- Sep 09 - [SpaceX schedules early Tuesday for historic Polaris Dawn launch](https://www.yahoo.com/news/spacex-schedules-early-tuesday-historic-061444886.html)
+- Sep 09 - [A worker won $600,000 after Twitter said his goodbye messages showed he had resigned. The case holds valuable lessons for staff and employers.](https://www.yahoo.com/tech/worker-won-600-000-twitter-092533917.html)
+- Sep 09 - [Trains to transport 200,000 vehicles a year from Hyundai plant near Savannah, company says](https://www.yahoo.com/news/trains-transport-200-000-vehicles-090918444.html)
 <!-- feed end -->
 
 ### Onstream
