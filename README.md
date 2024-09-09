@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [King Charles ‘losing patience’ over Prince Andrew’s living arrangements at Royal Lodge](https://www.yahoo.com/news/king-charles-losing-patience-over-102349164.html)
-- Sep 09 - [9 Fascinating Facts About ‘Koru,’ Jeff Bezos’s Bonkers 410-Foot Sailing Superyacht](https://www.yahoo.com/entertainment/9-fascinating-facts-koru-jeff-140000818.html)
-- Sep 09 - [Pitt director of athletics Heather Lyke relieved of duties](https://www.yahoo.com/news/pitt-director-athletics-heather-lyke-135638887.html)
-- Sep 09 - [Apple Slips Ahead Of "Biggest Upgrade Cycle" (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
+- Sep 09 - [World’s Oldest Guerrilla Force Revives War on Oil Companies](https://finance.yahoo.com/news/world-oldest-guerrilla-force-revives-120000064.html)
+- Sep 09 - [Apple Down Before Event As Huawei Unveils Phone (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
 - Sep 09 - [Tesla China Sales Roar Back In August. Elon Musk Says This About The Shanghai Plant.](https://www.investors.com/news/tesla-stock-china-sales-elon-musk-shanghai-plant/?src=A00220&yptr=yahoo)
+- Sep 09 - [UN human rights chief accuses Israel of showing ‘blatant disregard’ for international law](https://www.yahoo.com/news/un-human-rights-chief-accuses-151542472.html)
+- Sep 09 - [Gordon Ramsay chef died ‘after being repeatedly punched’ at Notting Hill Carnival](https://www.yahoo.com/news/gordon-ramsay-chef-died-being-150000438.html)
 <!-- feed end -->
 
 ### Onstream
