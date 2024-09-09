@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Apple unveils new iPhone built for AI](https://www.yahoo.com/tech/apple-unveils-iphone-built-ai-175707261.html)
-- Sep 09 - [iPhone 16, Apple Intelligence and more: Everything revealed at Apple Event 2024](https://www.yahoo.com/news/iphone-16-apple-intelligence-more-174847674.html)
-- Sep 09 - [King Charles ‘losing patience’ over Prince Andrew’s living arrangements at Royal Lodge](https://www.yahoo.com/news/king-charles-losing-patience-over-102349164.html)
-- Sep 09 - [Ukraine is fielding machine-gun turrets remotely controlled by the Steam Deck video game system made for playing Halo](https://www.yahoo.com/news/ukraine-fielding-machine-gun-turrets-165710009.html)
-- Sep 09 - [Judge orders psychological evaluation for white homeowner who shot Ralph Yarl](https://www.yahoo.com/news/judge-orders-psychological-evaluation-white-161855116.html)
+- Sep 09 - [Factbox-Apple iPhone 16 event: Key announcements so far](https://finance.yahoo.com/news/factbox-apple-iphone-16-event-185325821.html)
+- Sep 09 - [Apple Unveils iPhone 16. Stock Down. (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
+- Sep 09 - [Trump Ally’s Embarrassing Speech Is a Sign of Campaign’s Dismal State](https://www.yahoo.com/news/trump-ally-embarrassing-speech-sign-180815951.html)
+- Sep 09 - ['Russian spy' whale was not killed by humans, say Norway police](https://www.yahoo.com/news/russian-spy-whale-not-killed-174951814.html)
+- Sep 09 - [Apple's iPhone 16 gets a camera button, Action button and the A18 chip](https://www.yahoo.com/news/apples-iphone-16-gets-a-camera-button-action-button-and-the-a18-chip-174756253.html)
 <!-- feed end -->
 
 ### Onstream
