@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Trump, 78, Accidentally Skewers Himself in Wild Rant on 80-Year-Olds](https://www.yahoo.com/news/trump-78-accidentally-skewers-himself-203530889.html)
+- Sep 09 - [National Park rangers call out ‘world changing’ impact of dropped Cheetos bag](https://www.yahoo.com/news/national-park-rangers-call-world-220634953.html)
 - Sep 09 - [His Vote to Impeach Trump Led to His Downfall, but His Keenest Rage Is Reserved for Someone Else](https://www.yahoo.com/entertainment/vote-impeach-trump-led-downfall-202834150.html)
 - Sep 09 - [I flew a little-known, all-business-class airline that flies long-haul to the Maldives. See inside its narrowbody Airbus jets.](https://www.yahoo.com/news/flew-little-known-business-class-202157414.html)
 - Sep 09 - [Ted Cruz Gets Brutal Reminder After Sharing Racist Migrants Conspiracy](https://www.yahoo.com/news/ted-cruz-gets-brutal-reminder-201030939.html)
