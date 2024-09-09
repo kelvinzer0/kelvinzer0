@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [A remote tribe is reeling from widespread illness and cancer. What role did the US government play?](https://www.yahoo.com/news/remote-tribe-reeling-widespread-illness-042759286.html)
 - Sep 09 - [Heat to blame as thousands are without power across San Diego County](https://www.yahoo.com/news/heat-blame-thousands-without-power-003946386.html)
-- Sep 08 - [Morning Bid: Bracing for heavy selloff](https://finance.yahoo.com/news/morning-bid-bracing-heavy-selloff-214759001.html)
-- Sep 08 - [Mother of shooting suspect called Apalachee High School and drove 200 miles after getting alarming text, grandfather says](https://www.yahoo.com/news/georgia-school-shooting-suspect-expected-053640857.html)
-- Sep 08 - [Hurricane Watch to be issued for Louisiana on Monday as Gulf system strengthens](https://www.yahoo.com/news/hurricane-watch-issued-louisiana-monday-200807645.html)
-- Sep 08 - [OTD In Space - September 8: Genesis Spacecraft Crash-Lands In Utah](https://www.yahoo.com/news/otd-space-september-8-genesis-180000984.html)
+- Sep 08 - [Landlord agrees to sell Colorado apartment complex at center of Venezuelan gang problem: report](https://www.yahoo.com/news/landlord-agrees-sell-colorado-apartment-233449011.html)
+- Sep 08 - [Morning Bid: Bracing for heavy selloff](https://finance.yahoo.com/news/morning-bid-bracing-heavy-selloff-214759665.html)
+- Sep 08 - [Hurricane Francine expected to form in the Gulf](https://www.yahoo.com/news/hurricane-francine-expected-form-gulf-213258778.html)
 <!-- feed end -->
 
 ### Onstream
