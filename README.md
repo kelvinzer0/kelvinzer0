@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Apple AI iPhone Event Starts. Stock Down. (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
-- Sep 09 - [Eggs Are Being Recalled In 9 States Over Salmonella Concerns](https://www.yahoo.com/news/eggs-being-recalled-9-states-162740628.html)
-- Sep 09 - [What supercar was Tyreek Hill driving when he was detained on the street? Take a look](https://www.yahoo.com/entertainment/supercar-tyreek-hill-driving-detained-161741959.html)
-- Sep 09 - [Trump is 78 and barely coherent. Where's everyone who questioned Biden's age and fitness?](https://www.yahoo.com/news/trump-78-barely-coherent-wheres-160537671.html)
-- Sep 09 - [Satellite images show damage at Russian base that stored glide bombs after Ukrainian long-range strike](https://www.yahoo.com/news/satellite-images-show-damage-russian-154212320.html)
+- Sep 09 - [Apple unveils new iPhone built for AI](https://www.yahoo.com/tech/apple-unveils-iphone-built-ai-175707261.html)
+- Sep 09 - [iPhone 16, Apple Intelligence and more: Everything revealed at Apple Event 2024](https://www.yahoo.com/news/iphone-16-apple-intelligence-more-174847674.html)
+- Sep 09 - [King Charles ‘losing patience’ over Prince Andrew’s living arrangements at Royal Lodge](https://www.yahoo.com/news/king-charles-losing-patience-over-102349164.html)
+- Sep 09 - [Ukraine is fielding machine-gun turrets remotely controlled by the Steam Deck video game system made for playing Halo](https://www.yahoo.com/news/ukraine-fielding-machine-gun-turrets-165710009.html)
+- Sep 09 - [Judge orders psychological evaluation for white homeowner who shot Ralph Yarl](https://www.yahoo.com/news/judge-orders-psychological-evaluation-white-161855116.html)
 <!-- feed end -->
 
 ### Onstream
