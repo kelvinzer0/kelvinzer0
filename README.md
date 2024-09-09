@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [King Charles ‘losing patience’ over Prince Andrew’s living arrangements at Royal Lodge](https://www.yahoo.com/news/king-charles-losing-patience-over-102349164.html)
+- Sep 09 - [9 Fascinating Facts About ‘Koru,’ Jeff Bezos’s Bonkers 410-Foot Sailing Superyacht](https://www.yahoo.com/entertainment/9-fascinating-facts-koru-jeff-140000818.html)
+- Sep 09 - [Pitt director of athletics Heather Lyke relieved of duties](https://www.yahoo.com/news/pitt-director-athletics-heather-lyke-135638887.html)
+- Sep 09 - [Apple Slips Ahead Of "Biggest Upgrade Cycle" (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
 - Sep 09 - [Tesla China Sales Roar Back In August. Elon Musk Says This About The Shanghai Plant.](https://www.investors.com/news/tesla-stock-china-sales-elon-musk-shanghai-plant/?src=A00220&yptr=yahoo)
-- Sep 09 - [4 bodies found in wreckage of New England plane crash, authorities say](https://www.yahoo.com/news/4-bodies-found-wreckage-england-132737113.html)
-- Sep 09 - [Mom of Georgia shooting suspect called to warn school, family says | Morning in America](https://www.yahoo.com/news/mom-georgia-shooting-suspect-called-121035298.html)
-- Sep 09 - [50 Extremely Rare Historical Pictures That Will Completely And Totally Change Your Perspective On The Universe](https://www.yahoo.com/lifestyle/50-extremely-rare-historical-pictures-111833773.html)
-- Sep 09 - ['Caught off guard': How Tulsi Gabbard's big moment with Harris is playing into Tuesday's debate](https://www.yahoo.com/news/caught-off-guard-tulsi-gabbards-110000129.html)
 <!-- feed end -->
 
 ### Onstream
