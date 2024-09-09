@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Typhoon Yagi triggers floods, landslide in northern Vietnam as death toll increases](https://www.yahoo.com/news/typhoon-yagi-triggers-floods-landslide-051841126.html)
-- Sep 09 - [A remote tribe is reeling from widespread illness and cancer. What role did the US government play?](https://www.yahoo.com/news/remote-tribe-reeling-widespread-illness-042759286.html)
 - Sep 09 - [Heat to blame as thousands are without power across San Diego County](https://www.yahoo.com/news/heat-blame-thousands-without-power-003946386.html)
 - Sep 08 - [Morning Bid: Bracing for heavy selloff](https://finance.yahoo.com/news/morning-bid-bracing-heavy-selloff-214759001.html)
 - Sep 08 - [Mother of shooting suspect called Apalachee High School and drove 200 miles after getting alarming text, grandfather says](https://www.yahoo.com/news/georgia-school-shooting-suspect-expected-053640857.html)
+- Sep 08 - [Hudson woman charged with DUI after deadly crash on US-19: FHP](https://www.yahoo.com/news/hudson-woman-charged-dui-deadly-173418539.html)
+- Sep 08 - [Melania Trump Breaks Silence to Complain About 2020 Defeat](https://www.yahoo.com/entertainment/melania-condemns-efforts-silence-trump-171234474.html)
 <!-- feed end -->
 
 ### Onstream
