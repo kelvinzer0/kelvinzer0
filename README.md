@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Soon-to-be Francine threatens the Gulf, sunshine for the Carolinas tomorrow](https://www.yahoo.com/news/soon-francine-threatens-gulf-sunshine-231454089.html)
+- Sep 09 - [Manitowoc County Sheriff’s Office confirms discovery of human remains, can’t confirm if they’re Elijah Vue’s](https://www.yahoo.com/news/manitowoc-county-sheriff-office-confirms-000433277.html)
 - Sep 08 - [Mother of shooting suspect called Apalachee High School and drove 200 miles after getting alarming text, grandfather says](https://www.yahoo.com/news/georgia-school-shooting-suspect-expected-053640857.html)
+- Sep 08 - [Suspect robs two Northern California postal workers, USPS offers $150,000 reward](https://www.yahoo.com/news/suspect-robs-two-northern-california-205216087.html)
 - Sep 08 - [Hurricane Watch to be issued for Louisiana on Monday as Gulf system strengthens](https://www.yahoo.com/news/hurricane-watch-issued-louisiana-monday-200807645.html)
-- Sep 08 - [Waffle House CEO Walt Ehmer has died at age 58](https://www.yahoo.com/news/waffle-house-ceo-walt-ehmer-185853684.html)
-- Sep 08 - [German Chancellor Scholz calls for faster progress toward ending Russia's war on Ukraine](https://www.yahoo.com/news/german-chancellor-scholz-calls-faster-170039458.html)
+- Sep 08 - [Apple Intelligence delays could impede iPhone 16 ‘supercycle’](https://www.yahoo.com/news/apple-intelligence-delays-could-impede-192523465.html)
 <!-- feed end -->
 
 ### Onstream
