@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Framingham man was found not guilty of murder. Now he faces several gun charges](https://www.yahoo.com/news/framingham-man-found-not-guilty-081528124.html)
+- Sep 09 - [EastEnders airs Chrissie and Sharon reunion twist in iPlayer release](https://www.yahoo.com/news/eastenders-airs-chrissie-sharon-reunion-093600992.html)
+- Sep 09 - [Construction at the new Burlington High School invites the community to leave their mark](https://www.yahoo.com/news/construction-burlington-high-school-invites-090802496.html)
 - Sep 09 - [Donald Trump Botches New BFF Elon Musk’s Name And You Know What Happened](https://www.yahoo.com/entertainment/donald-trump-botches-bff-elon-064413379.html)
 - Sep 09 - ['Very Troubled And Very Desperate': Trump Biographer Spots 1 Key Change](https://www.yahoo.com/news/very-troubled-very-desperate-trump-064027302.html)
-- Sep 09 - ['I'm living a lie': On the streets of a Colorado city, pregnant migrants struggle to survive](https://www.yahoo.com/news/im-living-lie-streets-colorado-054226890.html)
-- Sep 09 - [A remote tribe is reeling from widespread illness and cancer. What role did the US government play?](https://www.yahoo.com/news/remote-tribe-reeling-widespread-illness-042759286.html)
+- Sep 09 - [SpaceX schedules early Tuesday for historic Polaris Dawn launch](https://www.yahoo.com/news/spacex-schedules-early-tuesday-historic-061444886.html)
 <!-- feed end -->
 
 ### Onstream
