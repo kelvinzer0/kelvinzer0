@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [World’s Oldest Guerrilla Force Revives War on Oil Companies](https://finance.yahoo.com/news/world-oldest-guerrilla-force-revives-120000064.html)
-- Sep 09 - [Apple Down Before Event As Huawei Unveils Phone (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
-- Sep 09 - [Tesla China Sales Roar Back In August. Elon Musk Says This About The Shanghai Plant.](https://www.investors.com/news/tesla-stock-china-sales-elon-musk-shanghai-plant/?src=A00220&yptr=yahoo)
-- Sep 09 - [UN human rights chief accuses Israel of showing ‘blatant disregard’ for international law](https://www.yahoo.com/news/un-human-rights-chief-accuses-151542472.html)
-- Sep 09 - [Gordon Ramsay chef died ‘after being repeatedly punched’ at Notting Hill Carnival](https://www.yahoo.com/news/gordon-ramsay-chef-died-being-150000438.html)
+- Sep 09 - [Apple AI iPhone Event Starts. Stock Down. (Live Coverage)](https://www.investors.com/news/technology/iphone-16-introduction-apple-stock-live-coverage/?src=A00220&yptr=yahoo)
+- Sep 09 - [Eggs Are Being Recalled In 9 States Over Salmonella Concerns](https://www.yahoo.com/news/eggs-being-recalled-9-states-162740628.html)
+- Sep 09 - [What supercar was Tyreek Hill driving when he was detained on the street? Take a look](https://www.yahoo.com/entertainment/supercar-tyreek-hill-driving-detained-161741959.html)
+- Sep 09 - [Trump is 78 and barely coherent. Where's everyone who questioned Biden's age and fitness?](https://www.yahoo.com/news/trump-78-barely-coherent-wheres-160537671.html)
+- Sep 09 - [Satellite images show damage at Russian base that stored glide bombs after Ukrainian long-range strike](https://www.yahoo.com/news/satellite-images-show-damage-russian-154212320.html)
 <!-- feed end -->
 
 ### Onstream
