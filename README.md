@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Manitowoc County Sheriff’s Office confirms discovery of human remains, can’t confirm if they’re Elijah Vue’s](https://www.yahoo.com/news/manitowoc-county-sheriff-office-confirms-000433277.html)
+- Sep 09 - [Heat to blame as thousands are without power across San Diego County](https://www.yahoo.com/news/heat-blame-thousands-without-power-003946386.html)
+- Sep 08 - [Morning Bid: Bracing for heavy selloff](https://finance.yahoo.com/news/morning-bid-bracing-heavy-selloff-214759665.html)
+- Sep 08 - [Hurricane Francine expected to form in the Gulf](https://www.yahoo.com/news/hurricane-francine-expected-form-gulf-213258778.html)
 - Sep 08 - [Mother of shooting suspect called Apalachee High School and drove 200 miles after getting alarming text, grandfather says](https://www.yahoo.com/news/georgia-school-shooting-suspect-expected-053640857.html)
-- Sep 08 - [Suspect robs two Northern California postal workers, USPS offers $150,000 reward](https://www.yahoo.com/news/suspect-robs-two-northern-california-205216087.html)
-- Sep 08 - [Hurricane Watch to be issued for Louisiana on Monday as Gulf system strengthens](https://www.yahoo.com/news/hurricane-watch-issued-louisiana-monday-200807645.html)
-- Sep 08 - [Apple Intelligence delays could impede iPhone 16 ‘supercycle’](https://www.yahoo.com/news/apple-intelligence-delays-could-impede-192523465.html)
+- Sep 08 - [Gunfire erupts at Oakland sideshow, neighbors grow frustrated with leadership](https://www.yahoo.com/news/gunfire-erupts-oakland-sideshow-neighbors-212043412.html)
 <!-- feed end -->
 
 ### Onstream
