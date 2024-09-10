@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Zelenskyy stresses assistance from allies is urgently needed to combat Russian forces](https://www.yahoo.com/news/zelenskyy-stresses-assistance-allies-urgently-061802016.html)
+- Sep 10 - [Over 140 Ukrainian drones target multiple Russian regions, including Moscow, authorities say](https://www.yahoo.com/news/over-140-ukrainian-drones-target-065446588.html)
 - Sep 10 - [Apple's AI gap in new iPhones disappoints China users as Huawei threat looms](https://finance.yahoo.com/news/apples-ai-gap-iphones-disappoints-051214788.html)
-- Sep 10 - [Father of UW student flies to Seattle to confront suspected criminal threatening his daughter](https://www.yahoo.com/news/father-uw-student-flies-seattle-015304819.html)
+- Sep 10 - [Tiger escapes Mexico zoo near Texas border; animal considered dangerous and at large](https://www.yahoo.com/news/tiger-escapes-mexico-zoo-near-010720803.html)
 - Sep 10 - [Boeing labor deal angers many union workers ahead of vote, official says](https://finance.yahoo.com/news/boeing-labor-deal-angers-many-001604059.html)
 - Sep 10 - [Ukraine disappointed at Slovak PM's fascism comments](https://www.yahoo.com/news/ukraine-disappointed-slovak-pms-fascism-001258972.html)
 <!-- feed end -->
