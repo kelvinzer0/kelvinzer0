@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Over 140 Ukrainian drones target multiple Russian regions, including Moscow, authorities say](https://www.yahoo.com/news/over-140-ukrainian-drones-target-065446588.html)
+- Sep 10 - [iPhone 16 vs. iPhone 15: How are they different?](https://www.yahoo.com/tech/iphone-16-vs-iphone-15-195727570.html)
+- Sep 10 - [A woman is killed near Moscow as over 140 Ukrainian drones target Russia, officials say](https://www.yahoo.com/news/over-140-ukrainian-drones-target-065446588.html)
 - Sep 10 - [Apple's AI gap in new iPhones disappoints China users as Huawei threat looms](https://finance.yahoo.com/news/apples-ai-gap-iphones-disappoints-051214788.html)
-- Sep 10 - [Tiger escapes Mexico zoo near Texas border; animal considered dangerous and at large](https://www.yahoo.com/news/tiger-escapes-mexico-zoo-near-010720803.html)
+- Sep 10 - [Barron Faces NYU Professors Who Signed Trump ‘Threat’ Letter](https://www.yahoo.com/news/barron-faces-nyu-professors-signed-005116242.html)
 - Sep 10 - [Boeing labor deal angers many union workers ahead of vote, official says](https://finance.yahoo.com/news/boeing-labor-deal-angers-many-001604059.html)
-- Sep 10 - [Ukraine disappointed at Slovak PM's fascism comments](https://www.yahoo.com/news/ukraine-disappointed-slovak-pms-fascism-001258972.html)
 <!-- feed end -->
 
 ### Onstream
