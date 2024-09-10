@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [How Scratches Found on a Teenage Boy Led to a Sex Crime Conviction for His Teacher](https://www.yahoo.com/news/scratches-found-teenage-boy-led-210634345.html)
+- Sep 10 - [Don Jr confronted by restaurant owner who says he lost half his customers over Trump support](https://www.yahoo.com/news/don-jr-confronted-podcast-restaurant-222601407.html)
+- Sep 10 - [Lubbock confirms first human death from West Nile Virus this year, increase in cases](https://www.yahoo.com/news/lubbock-confirms-first-human-death-222712660.html)
 - Sep 10 - [GOP leadership candidate Thune transfers $4 million to NRSC](https://www.yahoo.com/news/gop-leadership-candidate-thune-transfers-191409982.html)
 - Sep 10 - [Mars Helicopter Ingenuity Spots Perseverance Rover During Flight 51](https://www.yahoo.com/news/mars-helicopter-ingenuity-spots-perseverance-210000401.html)
-- Sep 10 - [Dam collapse in Nigeria sweeps deadly reptiles into flooded communities](https://www.yahoo.com/news/dam-collapse-nigeria-sweeps-deadly-160148350.html)
-- Sep 10 - [Declassified memo from US codebreaker sheds light on Ethel Rosenberg's Cold War spy case](https://www.yahoo.com/news/declassified-memo-us-codebreaker-sheds-160101067.html)
+- Sep 10 - [Runner dies after collapsing at finish line of Disneyland’s Halloween Half Marathon](https://www.yahoo.com/news/runner-dies-collapsing-finish-line-175224655.html)
 <!-- feed end -->
 
 ### Onstream
