@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 10 - [How Scratches Found on a Teenage Boy Led to a Sex Crime Conviction for His Teacher](https://www.yahoo.com/news/scratches-found-teenage-boy-led-210634345.html)
+- Sep 10 - [GOP leadership candidate Thune transfers $4 million to NRSC](https://www.yahoo.com/news/gop-leadership-candidate-thune-transfers-191409982.html)
 - Sep 10 - [Mars Helicopter Ingenuity Spots Perseverance Rover During Flight 51](https://www.yahoo.com/news/mars-helicopter-ingenuity-spots-perseverance-210000401.html)
-- Sep 10 - [The best iPhone 16 Pro and Pro Max preorder deals and how to get them](https://www.yahoo.com/tech/best-iphone-16-pro-pro-163023648.html)
-- Sep 10 - [Elon Musk's Ex-Wife And Mom Of 5 Says He Was Willing To Give Up His Fortune For Space Goals, Even If It Meant Moving In With Her Parents](https://finance.yahoo.com/news/elon-musks-ex-wife-mom-163004674.html)
 - Sep 10 - [Dam collapse in Nigeria sweeps deadly reptiles into flooded communities](https://www.yahoo.com/news/dam-collapse-nigeria-sweeps-deadly-160148350.html)
-- Sep 10 - [‘They don’t know him like I do’: Trump’s disability advocate nephew details his  ‘cruel’ streak](https://www.yahoo.com/news/don-t-know-him-trump-130513963.html)
+- Sep 10 - [Declassified memo from US codebreaker sheds light on Ethel Rosenberg's Cold War spy case](https://www.yahoo.com/news/declassified-memo-us-codebreaker-sheds-160101067.html)
 <!-- feed end -->
 
 ### Onstream
