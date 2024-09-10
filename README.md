@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [iPhone 16 vs. iPhone 15: How are they different?](https://www.yahoo.com/tech/iphone-16-vs-iphone-15-195727570.html)
+- Sep 10 - [Tybee lighthouse lens shatters shortly after restoration; still safe to climb](https://www.yahoo.com/news/tybee-lighthouse-lens-shatters-shortly-091135449.html)
 - Sep 10 - [A woman is killed near Moscow as over 140 Ukrainian drones target Russia, officials say](https://www.yahoo.com/news/over-140-ukrainian-drones-target-065446588.html)
+- Sep 10 - [Alleged killer of Ugandan Olympian dies from burns, hospital says](https://www.yahoo.com/news/ex-partner-killed-ugandan-athlete-065054915.html)
 - Sep 10 - [Apple's AI gap in new iPhones disappoints China users as Huawei threat looms](https://finance.yahoo.com/news/apples-ai-gap-iphones-disappoints-051214788.html)
-- Sep 10 - [Barron Faces NYU Professors Who Signed Trump ‘Threat’ Letter](https://www.yahoo.com/news/barron-faces-nyu-professors-signed-005116242.html)
 - Sep 10 - [Boeing labor deal angers many union workers ahead of vote, official says](https://finance.yahoo.com/news/boeing-labor-deal-angers-many-001604059.html)
 <!-- feed end -->
 
