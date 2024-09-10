@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Europe Braces for Last of Ukraine’s Russian Gas Deliveries](https://www.yahoo.com/news/europe-braces-last-ukraine-russian-040000904.html)
+- Sep 10 - [Zelenskyy stresses assistance from allies is urgently needed to combat Russian forces](https://www.yahoo.com/news/zelenskyy-stresses-assistance-allies-urgently-061802016.html)
+- Sep 10 - [Apple's AI gap in new iPhones disappoints China users as Huawei threat looms](https://finance.yahoo.com/news/apples-ai-gap-iphones-disappoints-051214788.html)
 - Sep 10 - [Father of UW student flies to Seattle to confront suspected criminal threatening his daughter](https://www.yahoo.com/news/father-uw-student-flies-seattle-015304819.html)
-- Sep 10 - [After 9 rejections, she landed her dream job as a Singapore Airlines flight attendant. Six years later, she quit to open a hawker stall.](https://www.yahoo.com/news/9-rejections-she-landed-her-001402167.html)
+- Sep 10 - [Boeing labor deal angers many union workers ahead of vote, official says](https://finance.yahoo.com/news/boeing-labor-deal-angers-many-001604059.html)
 - Sep 10 - [Ukraine disappointed at Slovak PM's fascism comments](https://www.yahoo.com/news/ukraine-disappointed-slovak-pms-fascism-001258972.html)
-- Sep 09 - [Wolf pack blamed in Colorado livestock attacks is captured and will be relocated](https://www.yahoo.com/news/wolf-pack-blamed-colorado-livestock-235119085.html)
 <!-- feed end -->
 
 ### Onstream
