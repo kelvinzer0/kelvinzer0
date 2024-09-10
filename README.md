@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [He raped teen in Tacoma, assaulted 2nd girl while DNA test pended. Here’s his sentence](https://www.yahoo.com/news/raped-teen-tacoma-assaulted-2nd-120000707.html)
-- Sep 10 - [Tesla Stock Is Rising. A New Bull Says the EV Maker Is in ‘A League of Its Own.’](https://www.barrons.com/articles/tesla-stock-price-ev-buy-8d98a958?siteid=yhoof2&yptr=yahoo)
-- Sep 10 - [Should Nvidia Investors Be Worried About This Statement from Broadcom's CEO?](https://finance.yahoo.com/news/nvidia-investors-worried-statement-broadcoms-114100144.html)
-- Sep 10 - [Criminals released early amid overcrowding crisis in Britain's prison system](https://www.yahoo.com/news/criminals-released-early-amid-overcrowding-114024646.html)
-- Sep 10 - [The Morning After: Should you upgrade to an iPhone 16?](https://www.yahoo.com/news/the-morning-after-should-you-upgrade-to-an-iphone-16-111524098.html)
+- Sep 10 - [Tropical Storm Warning: Hurricane Francine Expected to Smash Into Louisiana](https://www.yahoo.com/news/tropical-storm-warning-hurricane-francine-130138115.html)
+- Sep 10 - [How to protect your phone from thieves](https://www.yahoo.com/lifestyle/phone-theft-mobile-security-how-to-protect-122541497.html)
+- Sep 10 - [Navy chef pushed colleague’s head into her chest during New Year’s party on warship, court hears](https://www.yahoo.com/news/navy-chef-pushed-colleague-head-121820854.html)
+- Sep 10 - [Red Lobster closed 23 more restaurants last week. How many are left in Florida?](https://finance.yahoo.com/news/red-lobster-closed-23-more-120604398.html)
+- Sep 10 - [Florida community outraged after golf course was quietly sold — and the new owners are facing a $70K tax penalty](https://finance.yahoo.com/news/florida-community-outraged-golf-course-111100922.html)
 <!-- feed end -->
 
 ### Onstream
