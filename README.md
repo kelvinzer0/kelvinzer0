@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Barron Faces NYU Professors Who Signed Trump ‘Threat’ Letter](https://www.yahoo.com/news/barron-faces-nyu-professors-signed-005116242.html)
-- Sep 10 - [The iPhone 16 is official. These are the biggest changes and new features](https://www.yahoo.com/tech/iphone-16-official-biggest-changes-174516834.html)
+- Sep 10 - [iPhone 16 and Pro: First look at new Apple phone reveals an exciting paradox](https://finance.yahoo.com/news/iphone-16-pro-first-look-020157423.html)
+- Sep 09 - [Wolf pack blamed in Colorado livestock attacks is captured and will be relocated](https://www.yahoo.com/news/wolf-pack-blamed-colorado-livestock-235119085.html)
 - Sep 09 - [Wife of California inmate wins $5.6 million in settlement for strip search](https://www.yahoo.com/news/wife-california-inmate-wins-5-233331156.html)
-- Sep 09 - [Justice Clarence Thomas faces new recusal demand after wife's alleged message to conservative group](https://www.yahoo.com/news/justice-clarence-thomas-faces-recusal-233124605.html)
-- Sep 09 - [Fewer than 400 households reject $600 million Ohio train derailment settlement](https://www.yahoo.com/news/fewer-400-households-reject-600-230027698.html)
+- Sep 09 - [Exclusive-Boeing delays suppliers' 737 MAX output goal by 6 months, sources say](https://finance.yahoo.com/news/exclusive-boeing-delays-suppliers-737-215132710.html)
+- Sep 09 - [Nvidia stock sell-off is overdone, Goldman Sachs analyst says](https://finance.yahoo.com/news/nvidia-stock-sell-off-is-overdone-goldman-sachs-analyst-says-214256968.html)
 <!-- feed end -->
 
 ### Onstream
