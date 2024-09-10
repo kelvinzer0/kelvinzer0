@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [National Park rangers call out ‘world changing’ impact of dropped Cheetos bag](https://www.yahoo.com/news/national-park-rangers-call-world-220634953.html)
-- Sep 09 - [His Vote to Impeach Trump Led to His Downfall, but His Keenest Rage Is Reserved for Someone Else](https://www.yahoo.com/entertainment/vote-impeach-trump-led-downfall-202834150.html)
-- Sep 09 - [I flew a little-known, all-business-class airline that flies long-haul to the Maldives. See inside its narrowbody Airbus jets.](https://www.yahoo.com/news/flew-little-known-business-class-202157414.html)
-- Sep 09 - [Ted Cruz Gets Brutal Reminder After Sharing Racist Migrants Conspiracy](https://www.yahoo.com/news/ted-cruz-gets-brutal-reminder-201030939.html)
-- Sep 09 - [People Are Sharing Their "Most Radical Position" That Isn't Politically Left Or Right, And Some Of These Are Real, Real Interesting](https://www.yahoo.com/entertainment/people-sharing-most-radical-position-200212783.html)
+- Sep 10 - [Barron Faces NYU Professors Who Signed Trump ‘Threat’ Letter](https://www.yahoo.com/news/barron-faces-nyu-professors-signed-005116242.html)
+- Sep 10 - [The iPhone 16 is official. These are the biggest changes and new features](https://www.yahoo.com/tech/iphone-16-official-biggest-changes-174516834.html)
+- Sep 09 - [Wife of California inmate wins $5.6 million in settlement for strip search](https://www.yahoo.com/news/wife-california-inmate-wins-5-233331156.html)
+- Sep 09 - [Justice Clarence Thomas faces new recusal demand after wife's alleged message to conservative group](https://www.yahoo.com/news/justice-clarence-thomas-faces-recusal-233124605.html)
+- Sep 09 - [Fewer than 400 households reject $600 million Ohio train derailment settlement](https://www.yahoo.com/news/fewer-400-households-reject-600-230027698.html)
 <!-- feed end -->
 
 ### Onstream
