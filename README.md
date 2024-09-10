@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Inflation: Consumer price increases expected to slow in August as investors eye September rate cut](https://finance.yahoo.com/news/inflation-consumer-price-increases-expected-to-slow-in-august-as-investors-eye-september-rate-cut-195452339.html)
-- Sep 10 - [DeSantis demands Republicans publicly oppose amendment to add abortion rights to Florida Constitution](https://www.yahoo.com/news/desantis-demands-republicans-publicly-oppose-193000375.html)
-- Sep 10 - [Semi reportedly hits overpass on I-75 in Montgomery County; Delays reported](https://www.yahoo.com/news/semi-reportedly-hits-overpass-75-190414788.html)
 - Sep 10 - [Mars Helicopter Ingenuity Spots Perseverance Rover During Flight 51](https://www.yahoo.com/news/mars-helicopter-ingenuity-spots-perseverance-210000401.html)
 - Sep 10 - [The best iPhone 16 Pro and Pro Max preorder deals and how to get them](https://www.yahoo.com/tech/best-iphone-16-pro-pro-163023648.html)
+- Sep 10 - [Elon Musk's Ex-Wife And Mom Of 5 Says He Was Willing To Give Up His Fortune For Space Goals, Even If It Meant Moving In With Her Parents](https://finance.yahoo.com/news/elon-musks-ex-wife-mom-163004674.html)
+- Sep 10 - [Dam collapse in Nigeria sweeps deadly reptiles into flooded communities](https://www.yahoo.com/news/dam-collapse-nigeria-sweeps-deadly-160148350.html)
+- Sep 10 - [‘They don’t know him like I do’: Trump’s disability advocate nephew details his  ‘cruel’ streak](https://www.yahoo.com/news/don-t-know-him-trump-130513963.html)
 <!-- feed end -->
 
 ### Onstream
