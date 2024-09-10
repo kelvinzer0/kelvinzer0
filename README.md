@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 10 - [‘The tiger had my husband by his throat – I fought to save him with a stick’](https://www.yahoo.com/news/tiger-had-husband-throat-fought-161135185.html)
 - Sep 10 - [‘They don’t know him like I do’: Trump’s disability advocate nephew details his  ‘cruel’ streak](https://www.yahoo.com/news/don-t-know-him-trump-130513963.html)
-- Sep 10 - [Johnson forges ahead on spending plan as GOP support crumbles](https://www.yahoo.com/news/johnson-forges-ahead-spending-plan-155122462.html)
-- Sep 10 - [Delta planes collide on tarmac at Atlanta airport, FAA says](https://www.yahoo.com/news/planes-collide-tarmac-atlanta-airport-154500909.html)
-- Sep 10 - [Why DirecTV’s ‘Existential’ Carriage Dispute With Disney Is a Fight for the Future of the Pay TV Bundle](https://finance.yahoo.com/news/why-directv-existential-carriage-dispute-131500048.html)
-- Sep 10 - [Cops are meant to de-escalate, not escalate: Ex-NYPD officer on Tyreek Hill arrest | Morning in America](https://www.yahoo.com/news/cops-meant-escalate-not-escalate-123757879.html)
+- Sep 10 - [Declassified memo from US codebreaker sheds light on Ethel Rosenberg's Cold War spy case](https://www.yahoo.com/news/declassified-memo-us-codebreaker-sheds-160101067.html)
+- Sep 10 - [Carville says Trump made ‘big mistake’ by accepting debate](https://www.yahoo.com/news/carville-says-trump-made-big-150521223.html)
+- Sep 10 - [Trump Makes Chilling Promise in Pre-Debate Phone Call](https://www.yahoo.com/news/trump-makes-chilling-promise-pre-142038073.html)
 <!-- feed end -->
 
 ### Onstream
