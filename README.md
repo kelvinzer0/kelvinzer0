@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Tropical Storm Warning: Hurricane Francine Expected to Smash Into Louisiana](https://www.yahoo.com/news/tropical-storm-warning-hurricane-francine-130138115.html)
-- Sep 10 - [How to protect your phone from thieves](https://www.yahoo.com/lifestyle/phone-theft-mobile-security-how-to-protect-122541497.html)
-- Sep 10 - [Navy chef pushed colleague’s head into her chest during New Year’s party on warship, court hears](https://www.yahoo.com/news/navy-chef-pushed-colleague-head-121820854.html)
-- Sep 10 - [Red Lobster closed 23 more restaurants last week. How many are left in Florida?](https://finance.yahoo.com/news/red-lobster-closed-23-more-120604398.html)
-- Sep 10 - [Florida community outraged after golf course was quietly sold — and the new owners are facing a $70K tax penalty](https://finance.yahoo.com/news/florida-community-outraged-golf-course-111100922.html)
+- Sep 10 - [Apple needs to remember what the iPhone 16 is for](https://www.yahoo.com/news/apple-needs-to-remember-what-the-iphone-16-is-for-134535338.html)
+- Sep 10 - [California gaming bill threatens thousands of cardroom jobs throughout the state | Opinion](https://www.yahoo.com/news/california-gaming-bill-threatens-thousands-133000344.html)
+- Sep 10 - [Cops are meant to de-escalate, not escalate: Ex-NYPD officer on Tyreek Hill arrest | Morning in America](https://www.yahoo.com/news/cops-meant-escalate-not-escalate-123757879.html)
+- Sep 10 - [Female Navy chef pulled colleague’s head into her chest during New Year’s party on warship](https://www.yahoo.com/news/navy-chef-pushed-colleague-head-121820854.html)
+- Sep 10 - [Forget the fancy AI stuff, you'll want the iPhone 16 Pro for these 2 key features](https://www.yahoo.com/tech/forget-fancy-ai-stuff-youll-111656796.html)
 <!-- feed end -->
 
 ### Onstream
