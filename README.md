@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Max Verstappen’s Former 2019 Porsche 911 GT3 Cup Car Up for Sale](https://autos.yahoo.com/max-verstappen-former-2019-porsche-143000180.html)
-- Sep 10 - [Julie A. Tibbits, 45, identified as woman who died in crash northeast of Topeka](https://www.yahoo.com/news/julie-tibbits-45-identified-woman-142834462.html)
+- Sep 10 - [‘They don’t know him like I do’: Trump’s disability advocate nephew details his  ‘cruel’ streak](https://www.yahoo.com/news/don-t-know-him-trump-130513963.html)
+- Sep 10 - [Johnson forges ahead on spending plan as GOP support crumbles](https://www.yahoo.com/news/johnson-forges-ahead-spending-plan-155122462.html)
+- Sep 10 - [Delta planes collide on tarmac at Atlanta airport, FAA says](https://www.yahoo.com/news/planes-collide-tarmac-atlanta-airport-154500909.html)
 - Sep 10 - [Why DirecTV’s ‘Existential’ Carriage Dispute With Disney Is a Fight for the Future of the Pay TV Bundle](https://finance.yahoo.com/news/why-directv-existential-carriage-dispute-131500048.html)
-- Sep 10 - [How much money OnlyFans creators make](https://www.yahoo.com/tech/much-money-onlyfans-creators-132403694.html)
-- Sep 10 - [The Morning After: Should you upgrade to an iPhone 16?](https://www.yahoo.com/news/the-morning-after-should-you-upgrade-to-an-iphone-16-111524098.html)
+- Sep 10 - [Cops are meant to de-escalate, not escalate: Ex-NYPD officer on Tyreek Hill arrest | Morning in America](https://www.yahoo.com/news/cops-meant-escalate-not-escalate-123757879.html)
 <!-- feed end -->
 
 ### Onstream
