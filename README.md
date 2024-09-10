@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [How To Earn $500 A Month From Apple Stock Following iPhone 16 Launch](https://finance.yahoo.com/news/earn-500-month-apple-stock-180050275.html)
-- Sep 10 - [Volkswagen clears the way for lay-offs from mid-2025](https://finance.yahoo.com/news/volkswagen-clears-way-lay-offs-174926325.html)
-- Sep 10 - [2 Delta planes collide on tarmac at Atlanta airport](https://www.yahoo.com/news/2-delta-planes-collide-tarmac-155624955.html)
-- Sep 10 - [Why the PlayStation 5 Pro Announcement Has Everyone Mad](https://www.yahoo.com/tech/why-playstation-5-pro-announcement-165432337.html)
-- Sep 10 - [Palantir Chairman Peter Thiel to Sell Up to $1 Billion of Stock](https://www.barrons.com/articles/palantir-stock-sell-peter-thiel-fb7bc3aa?siteid=yhoof2&yptr=yahoo)
+- Sep 10 - [Elon Musk's Ex-Wife And Mom Of 5 Says He Was Willing To Give Up His Fortune For Space Goals, Even If It Meant Moving In With Her Parents](https://finance.yahoo.com/news/elon-musks-ex-wife-mom-163004674.html)
+- Sep 10 - [A well-known chicken restaurant is coming to this Midlands shopping center in a busy area](https://www.yahoo.com/news/well-known-chicken-restaurant-coming-160752746.html)
+- Sep 10 - [Dam collapse in Nigeria sweeps deadly reptiles into flooded communities](https://www.yahoo.com/news/dam-collapse-nigeria-sweeps-deadly-160148350.html)
+- Sep 10 - [Declassified memo from US codebreaker sheds light on Ethel Rosenberg's Cold War spy case](https://www.yahoo.com/news/declassified-memo-us-codebreaker-sheds-160101067.html)
+- Sep 10 - [California state senator forced chief of staff to perform sex acts that left him injured: lawsuit](https://www.yahoo.com/news/california-state-senator-forced-chief-153357809.html)
 <!-- feed end -->
 
 ### Onstream
