@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Boeing labor deal angers many union workers ahead of vote, official says](https://finance.yahoo.com/news/boeing-labor-deal-angers-many-001604059.html)
-- Sep 09 - [Tyreek Hill: Police body cam footage released after detainment before Dolphins' season opener](https://sports.yahoo.com/tyreek-hill-police-body-cam-footage-released-after-detainment-before-dolphins-season-opener-230114291.html)
-- Sep 09 - [Green River Killer Gary Ridgway returned to Seattle's King County Jail](https://www.yahoo.com/news/green-river-killer-gary-ridgway-224519483.html)
-- Sep 09 - [National Park rangers call out ‘world changing’ impact of dropped Cheetos bag](https://www.yahoo.com/news/national-park-rangers-call-world-220634953.html)
-- Sep 09 - [Exclusive-Boeing delays suppliers' 737 MAX output goal by 6 months, sources say](https://finance.yahoo.com/news/exclusive-boeing-delays-suppliers-737-215132710.html)
+- Sep 10 - [Tiger escapes Mexico zoo near Texas border; animal considered dangerous and at large](https://www.yahoo.com/news/tiger-escapes-mexico-zoo-near-010720803.html)
+- Sep 10 - [Idaho authorities investigating fatal police shooting on I-84 near Mountain Home](https://www.yahoo.com/news/idaho-authorities-investigating-fatal-police-002826262.html)
+- Sep 10 - [After 9 rejections, she landed her dream job as a Singapore Airlines flight attendant. Six years later, she quit to open a hawker stall.](https://www.yahoo.com/news/9-rejections-she-landed-her-001402167.html)
+- Sep 10 - [Ukraine disappointed at Slovak PM's fascism comments](https://www.yahoo.com/news/ukraine-disappointed-slovak-pms-fascism-001258972.html)
+- Sep 09 - [Wolf pack blamed in Colorado livestock attacks is captured and will be relocated](https://www.yahoo.com/news/wolf-pack-blamed-colorado-livestock-235119085.html)
 <!-- feed end -->
 
 ### Onstream
