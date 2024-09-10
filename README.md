@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [The iPhone 16 is official. These are the biggest changes and new features](https://www.yahoo.com/tech/iphone-16-official-biggest-changes-174516834.html)
-- Sep 10 - [Idaho authorities investigating fatal police shooting on I-84 near Mountain Home](https://www.yahoo.com/news/idaho-authorities-investigating-fatal-police-002826262.html)
-- Sep 09 - [Tri-Cities real estate agent enters plea after allegedly messaging a teenager about sex](https://www.yahoo.com/news/tri-cities-real-estate-agent-234717112.html)
+- Sep 10 - [Boeing labor deal angers many union workers ahead of vote, official says](https://finance.yahoo.com/news/boeing-labor-deal-angers-many-001604059.html)
+- Sep 09 - [Tyreek Hill: Police body cam footage released after detainment before Dolphins' season opener](https://sports.yahoo.com/tyreek-hill-police-body-cam-footage-released-after-detainment-before-dolphins-season-opener-230114291.html)
+- Sep 09 - [Green River Killer Gary Ridgway returned to Seattle's King County Jail](https://www.yahoo.com/news/green-river-killer-gary-ridgway-224519483.html)
+- Sep 09 - [National Park rangers call out ‘world changing’ impact of dropped Cheetos bag](https://www.yahoo.com/news/national-park-rangers-call-world-220634953.html)
 - Sep 09 - [Exclusive-Boeing delays suppliers' 737 MAX output goal by 6 months, sources say](https://finance.yahoo.com/news/exclusive-boeing-delays-suppliers-737-215132710.html)
-- Sep 09 - [Nvidia stock sell-off is overdone, Goldman Sachs analyst says](https://finance.yahoo.com/news/nvidia-stock-sell-off-is-overdone-goldman-sachs-analyst-says-214256968.html)
 <!-- feed end -->
 
 ### Onstream
