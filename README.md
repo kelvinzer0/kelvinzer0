@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Apple needs to remember what the iPhone 16 is for](https://www.yahoo.com/news/apple-needs-to-remember-what-the-iphone-16-is-for-134535338.html)
-- Sep 10 - [California gaming bill threatens thousands of cardroom jobs throughout the state | Opinion](https://www.yahoo.com/news/california-gaming-bill-threatens-thousands-133000344.html)
-- Sep 10 - [Cops are meant to de-escalate, not escalate: Ex-NYPD officer on Tyreek Hill arrest | Morning in America](https://www.yahoo.com/news/cops-meant-escalate-not-escalate-123757879.html)
-- Sep 10 - [Female Navy chef pulled colleague’s head into her chest during New Year’s party on warship](https://www.yahoo.com/news/navy-chef-pushed-colleague-head-121820854.html)
-- Sep 10 - [Forget the fancy AI stuff, you'll want the iPhone 16 Pro for these 2 key features](https://www.yahoo.com/tech/forget-fancy-ai-stuff-youll-111656796.html)
+- Sep 10 - [Max Verstappen’s Former 2019 Porsche 911 GT3 Cup Car Up for Sale](https://autos.yahoo.com/max-verstappen-former-2019-porsche-143000180.html)
+- Sep 10 - [Julie A. Tibbits, 45, identified as woman who died in crash northeast of Topeka](https://www.yahoo.com/news/julie-tibbits-45-identified-woman-142834462.html)
+- Sep 10 - [Why DirecTV’s ‘Existential’ Carriage Dispute With Disney Is a Fight for the Future of the Pay TV Bundle](https://finance.yahoo.com/news/why-directv-existential-carriage-dispute-131500048.html)
+- Sep 10 - [How much money OnlyFans creators make](https://www.yahoo.com/tech/much-money-onlyfans-creators-132403694.html)
+- Sep 10 - [The Morning After: Should you upgrade to an iPhone 16?](https://www.yahoo.com/news/the-morning-after-should-you-upgrade-to-an-iphone-16-111524098.html)
 <!-- feed end -->
 
 ### Onstream
