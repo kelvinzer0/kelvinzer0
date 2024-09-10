@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [More than 80 dead in Vietnam super typhoon](https://www.yahoo.com/news/more-80-dead-vietnam-super-101459903.html)
-- Sep 10 - [Kamala Harris' Campaign Strikes Rawest Of Nerves For Donald Trump In Mocking New Ad](https://www.yahoo.com/news/kamala-harris-campaign-strikes-rawest-094026784.html)
-- Sep 10 - [Donald Trump's Attempt To Explain 'Kamabla' Insult For Kamala Harris Goes Awkwardly Awry](https://www.yahoo.com/news/donald-trumps-attempt-explain-kamabla-075440244.html)
-- Sep 10 - [A woman is killed near Moscow as over 140 Ukrainian drones target Russia, officials say](https://www.yahoo.com/news/over-140-ukrainian-drones-target-065446588.html)
-- Sep 10 - [Alleged killer of Ugandan Olympian dies from burns, hospital says](https://www.yahoo.com/news/ex-partner-killed-ugandan-athlete-065054915.html)
+- Sep 10 - [He raped teen in Tacoma, assaulted 2nd girl while DNA test pended. Here’s his sentence](https://www.yahoo.com/news/raped-teen-tacoma-assaulted-2nd-120000707.html)
+- Sep 10 - [Tesla Stock Is Rising. A New Bull Says the EV Maker Is in ‘A League of Its Own.’](https://www.barrons.com/articles/tesla-stock-price-ev-buy-8d98a958?siteid=yhoof2&yptr=yahoo)
+- Sep 10 - [Should Nvidia Investors Be Worried About This Statement from Broadcom's CEO?](https://finance.yahoo.com/news/nvidia-investors-worried-statement-broadcoms-114100144.html)
+- Sep 10 - [Criminals released early amid overcrowding crisis in Britain's prison system](https://www.yahoo.com/news/criminals-released-early-amid-overcrowding-114024646.html)
+- Sep 10 - [The Morning After: Should you upgrade to an iPhone 16?](https://www.yahoo.com/news/the-morning-after-should-you-upgrade-to-an-iphone-16-111524098.html)
 <!-- feed end -->
 
 ### Onstream
