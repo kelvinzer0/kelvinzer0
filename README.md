@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Tiger escapes Mexico zoo near Texas border; animal considered dangerous and at large](https://www.yahoo.com/news/tiger-escapes-mexico-zoo-near-010720803.html)
-- Sep 10 - [Idaho authorities investigating fatal police shooting on I-84 near Mountain Home](https://www.yahoo.com/news/idaho-authorities-investigating-fatal-police-002826262.html)
+- Sep 10 - [Europe Braces for Last of Ukraine’s Russian Gas Deliveries](https://www.yahoo.com/news/europe-braces-last-ukraine-russian-040000904.html)
+- Sep 10 - [Father of UW student flies to Seattle to confront suspected criminal threatening his daughter](https://www.yahoo.com/news/father-uw-student-flies-seattle-015304819.html)
 - Sep 10 - [After 9 rejections, she landed her dream job as a Singapore Airlines flight attendant. Six years later, she quit to open a hawker stall.](https://www.yahoo.com/news/9-rejections-she-landed-her-001402167.html)
 - Sep 10 - [Ukraine disappointed at Slovak PM's fascism comments](https://www.yahoo.com/news/ukraine-disappointed-slovak-pms-fascism-001258972.html)
 - Sep 09 - [Wolf pack blamed in Colorado livestock attacks is captured and will be relocated](https://www.yahoo.com/news/wolf-pack-blamed-colorado-livestock-235119085.html)
