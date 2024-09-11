@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Hurricane Francine winds begin making landfall on Louisiana coast](https://www.yahoo.com/news/hurricane-francine-winds-begin-making-145902098.html)
-- Sep 11 - [The Moment Trump Couldn’t Resist Bungling](https://www.yahoo.com/news/moment-trump-couldn-t-resist-112918371.html)
+- Sep 11 - [Lapsed insurance & a house fire: Lessons learned](https://finance.yahoo.com/video/lapsed-insurance-house-fire-lessons-160025269.html)
+- Sep 11 - [Russia says it could "combine" with China if they faced a threat](https://www.yahoo.com/news/russia-says-could-combine-china-142351507.html)
+- Sep 11 - [Mother Jailed After Refusing To Let Sons Attend Therapy With Father Who’s Accused Of Sexual Assault](https://www.yahoo.com/news/mother-jailed-refusing-let-sons-111338032.html)
 - Sep 11 - [Retirees who rely on fixed income streams are happier and likelier to spend in their golden years — here’s how to do it](https://finance.yahoo.com/news/retirees-rely-fixed-income-streams-105500810.html)
 - Sep 11 - [New all-electric SUV with game-changing price tag is about to enter the market — here's what sets it apart](https://autos.yahoo.com/electric-suv-game-changing-price-104527415.html)
-- Sep 11 - [Jewelry seized from Polish inmates of Nazi German concentration camp is returned to families](https://www.yahoo.com/news/jewelry-seized-nazis-polish-concentration-100224659.html)
 <!-- feed end -->
 
 ### Onstream
