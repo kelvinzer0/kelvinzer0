@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Why are prices still high if the inflation rate is dropping?](https://www.yahoo.com/news/why-prices-still-high-inflation-173154253.html)
+- Sep 11 - [Investigators determine cause of explosion at Kansas State Fair that injured 6 people](https://www.yahoo.com/news/investigators-determine-cause-explosion-kansas-183143330.html)
+- Sep 11 - [Woman being chased by deputies drives into an SC river, Richland County sheriff says](https://www.yahoo.com/news/woman-being-chased-deputies-drives-181438939.html)
+- Sep 11 - [Trump Issues Frightening Threat After Disastrous Debate Performance](https://www.yahoo.com/news/trump-issues-frightening-threat-disastrous-172452659.html)
+- Sep 11 - [Apple has officially discontinued these three iPhones](https://www.yahoo.com/tech/apple-officially-discontinued-three-iphones-150844446.html)
 - Sep 11 - [SpaceX Astronauts Now Farther From Earth Than Any Other Human Since Apollo Moon Missions](https://www.yahoo.com/news/spacex-astronauts-now-farther-earth-150748792.html)
-- Sep 11 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
-- Sep 11 - [Scientists Have Pinpointed Two New Dementia Risk Factors. Here's What They Are.](https://www.yahoo.com/news/researchers-discovered-two-dementia-risk-131602682.html)
-- Sep 11 - [Trump Gets 4 Words Trending For All The Wrong Reasons After Debate](https://www.yahoo.com/news/trump-gets-4-words-trending-122630811.html)
 <!-- feed end -->
 
 ### Onstream
