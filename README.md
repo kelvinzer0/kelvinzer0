@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Integrated Sierra Space Dream Chaser Space Plane Unveiled At NASA Facility](https://www.yahoo.com/news/integrated-sierra-space-dream-chaser-182117259.html)
+- Sep 11 - [IDENTIFIED: 16-year-old Clovis Unified student killed in motorcycle crash](https://www.yahoo.com/news/identified-16-old-clovis-unified-193243707.html)
+- Sep 11 - [Woman being chased by deputies drives into an SC river, Richland County sheriff says](https://www.yahoo.com/news/woman-being-chased-deputies-drives-181438939.html)
 - Sep 11 - [Trump Issues Frightening Threat After Disastrous Debate Performance](https://www.yahoo.com/news/trump-issues-frightening-threat-disastrous-172452659.html)
 - Sep 11 - [California wildfires burn dozens of homes, ski resort](https://www.yahoo.com/news/california-wildfires-torch-mountain-homes-170758251.html)
-- Sep 11 - [Apple has officially discontinued these three iPhones](https://www.yahoo.com/tech/apple-officially-discontinued-three-iphones-150844446.html)
-- Sep 11 - [SpaceX Astronauts Now Farther From Earth Than Any Other Human Since Apollo Moon Missions](https://www.yahoo.com/news/spacex-astronauts-now-farther-earth-150748792.html)
+- Sep 11 - [‘Her word against mine’: CIA veteran who assaulted dozens of women is too dangerous for society, feds say](https://www.yahoo.com/news/her-word-against-mine-cia-165214402.html)
 <!-- feed end -->
 
 ### Onstream
