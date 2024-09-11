@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Donald Trump vs. Kamala Harris: Who Won the Presidential Debate? And How Did the Moderators Do? Vote!](https://www.yahoo.com/news/donald-trump-vs-kamala-harris-000120144.html)
-- Sep 10 - [NYPD officer lands $175K settlement over 'courtesy cards' that help drivers get out of traffic stops](https://www.yahoo.com/news/nypd-officer-lands-175k-settlement-223537112.html)
-- Sep 10 - [Crane being hauled by semi hits overpass on I-75 in Dayton; Right lane remains closed](https://www.yahoo.com/news/semi-reportedly-hits-overpass-75-190414788.html)
+- Sep 11 - [Kamala Harris kept her poise in debate. Donald Trump didn’t. And neither did ABC | Opinion](https://www.yahoo.com/news/kamala-harris-kept-her-poise-025957064.html)
+- Sep 11 - [Personal assistant convicted of dismembering his boss is sentenced to 40 years to life](https://www.yahoo.com/news/personal-assistant-convicted-dismembering-boss-000944316.html)
 - Sep 10 - [Biden says ending ban on Ukraine's use of long-range weapons being worked out](https://www.yahoo.com/news/biden-says-administration-working-potentially-210947026.html)
-- Sep 10 - [SpaceX calls out 'superfluous' regulatory delays holding up Starship flights](https://www.yahoo.com/news/spacex-calls-superfluous-regulatory-delays-203434125.html)
+- Sep 10 - [A big weather change is coming to the Boise area — including rain and high winds (plus, smoke)](https://www.yahoo.com/news/big-weather-change-coming-boise-201000019.html)
+- Sep 10 - [Shots fired in H-E-B parking lot; police looking for 2 suspects](https://www.yahoo.com/news/shots-fired-h-e-b-192441471.html)
 <!-- feed end -->
 
 ### Onstream
