@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Democrats widen voter registration advantage in SLO County](https://www.yahoo.com/news/democrats-widen-voter-registration-advantage-120000988.html)
+- Sep 11 - [The Moment Trump Couldn’t Resist Bungling](https://www.yahoo.com/news/moment-trump-couldn-t-resist-112918371.html)
 - Sep 11 - [Retirees who rely on fixed income streams are happier and likelier to spend in their golden years — here’s how to do it](https://finance.yahoo.com/news/retirees-rely-fixed-income-streams-105500810.html)
 - Sep 11 - [Jewelry seized by the Nazis from Polish concentration camp prisoners is returned to families](https://www.yahoo.com/news/jewelry-seized-nazis-polish-concentration-100224659.html)
 - Sep 11 - [Sex tourism in Indonesia sells itself as Islamic temporary marriage](https://www.yahoo.com/news/sex-tourism-indonesia-sells-itself-090045409.html)
-- Sep 11 - [Drudge Report Sums Up Donald Trump's Debate Performance With 2 Final Words](https://www.yahoo.com/news/drudge-report-sums-donald-trumps-082244010.html)
-- Sep 11 - [Huawei's tri-foldable phone stirs Chinese pride but $2,800 price tag panned](https://finance.yahoo.com/news/huaweis-tri-foldable-phone-stirs-072905647.html)
 <!-- feed end -->
 
 ### Onstream
