@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Investigators determine cause of explosion at Kansas State Fair that injured 6 people](https://www.yahoo.com/news/investigators-determine-cause-explosion-kansas-183143330.html)
-- Sep 11 - [Woman being chased by deputies drives into an SC river, Richland County sheriff says](https://www.yahoo.com/news/woman-being-chased-deputies-drives-181438939.html)
+- Sep 11 - [Integrated Sierra Space Dream Chaser Space Plane Unveiled At NASA Facility](https://www.yahoo.com/news/integrated-sierra-space-dream-chaser-182117259.html)
 - Sep 11 - [Trump Issues Frightening Threat After Disastrous Debate Performance](https://www.yahoo.com/news/trump-issues-frightening-threat-disastrous-172452659.html)
+- Sep 11 - [California wildfires burn dozens of homes, ski resort](https://www.yahoo.com/news/california-wildfires-torch-mountain-homes-170758251.html)
 - Sep 11 - [Apple has officially discontinued these three iPhones](https://www.yahoo.com/tech/apple-officially-discontinued-three-iphones-150844446.html)
 - Sep 11 - [SpaceX Astronauts Now Farther From Earth Than Any Other Human Since Apollo Moon Missions](https://www.yahoo.com/news/spacex-astronauts-now-farther-earth-150748792.html)
 <!-- feed end -->
