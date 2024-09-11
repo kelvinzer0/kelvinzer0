@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Lapsed insurance & a house fire: Lessons learned](https://finance.yahoo.com/video/lapsed-insurance-house-fire-lessons-160025269.html)
+- Sep 11 - [Russia appears to have launched initial major counterattack against Ukraine in Kursk](https://www.yahoo.com/news/russia-appears-launched-initial-major-164715037.html)
+- Sep 11 - [Wrong-Way Driver Miraculously Avoids Collision While U-Turning on Grand Rapids Highway](https://www.yahoo.com/news/wrong-way-driver-miraculously-avoids-161512130.html)
+- Sep 11 - [Apple has officially discontinued these three iPhones](https://www.yahoo.com/tech/apple-officially-discontinued-three-iphones-150844446.html)
+- Sep 11 - [SpaceX Astronauts Now Farther From Earth Than Any Other Human Since Apollo Moon Missions](https://www.yahoo.com/news/spacex-astronauts-now-farther-earth-150748792.html)
 - Sep 11 - [Russia says it could "combine" with China if they faced a threat](https://www.yahoo.com/news/russia-says-could-combine-china-142351507.html)
-- Sep 11 - [Mother Jailed After Refusing To Let Sons Attend Therapy With Father Who’s Accused Of Sexual Assault](https://www.yahoo.com/news/mother-jailed-refusing-let-sons-111338032.html)
-- Sep 11 - [Retirees who rely on fixed income streams are happier and likelier to spend in their golden years — here’s how to do it](https://finance.yahoo.com/news/retirees-rely-fixed-income-streams-105500810.html)
-- Sep 11 - [New all-electric SUV with game-changing price tag is about to enter the market — here's what sets it apart](https://autos.yahoo.com/electric-suv-game-changing-price-104527415.html)
 <!-- feed end -->
 
 ### Onstream
