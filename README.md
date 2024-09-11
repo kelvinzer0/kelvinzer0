@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Texas lottery player wins $800 million Mega Millions jackpot](https://www.yahoo.com/news/texas-lottery-player-wins-800-050205310.html)
 - Sep 11 - [Donald Trump responds to Taylor Swift's 2024 endorsement of Kamala Harris](https://www.yahoo.com/news/donald-trump-responds-taylor-swifts-042226964.html)
 - Sep 11 - [Did Trump go to Wharton School of Economics? A look at his education](https://www.yahoo.com/news/did-trump-wharton-school-economics-032503072.html)
 - Sep 11 - [Trump’s Debate Answer on Jan. 6 Regrets Is Cause for Nationwide Alarm](https://www.yahoo.com/news/trump-debate-answer-jan-6-021913787.html)
-- Sep 11 - [Suspension for boy who told principal of student with bullet in VB private school](https://www.yahoo.com/news/suspension-boy-told-principal-student-001156376.html)
-- Sep 10 - [Biden says ending ban on Ukraine's use of long-range weapons being worked out](https://www.yahoo.com/news/biden-says-administration-working-potentially-210947026.html)
+- Sep 10 - [Ohio is sending troopers and $2.5 million to city inundated with Haitian migrants](https://www.yahoo.com/news/ohio-sending-troopers-2-5-225832541.html)
 <!-- feed end -->
 
 ### Onstream
