@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Texas lottery player wins $800 million Mega Millions jackpot](https://www.yahoo.com/news/texas-lottery-player-wins-800-050205310.html)
+- Sep 11 - [Drudge Report Sums Up Donald Trump's Debate Performance With 2 Final Words](https://www.yahoo.com/news/drudge-report-sums-donald-trumps-082244010.html)
+- Sep 11 - [Delta residents upset that toy display in Route 74 roundabout mocking PennDOT was removed](https://www.yahoo.com/news/delta-residents-upset-toy-display-080236637.html)
 - Sep 11 - [Donald Trump responds to Taylor Swift's 2024 endorsement of Kamala Harris](https://www.yahoo.com/news/donald-trump-responds-taylor-swifts-042226964.html)
 - Sep 11 - [Did Trump go to Wharton School of Economics? A look at his education](https://www.yahoo.com/news/did-trump-wharton-school-economics-032503072.html)
-- Sep 11 - [Trump’s Debate Answer on Jan. 6 Regrets Is Cause for Nationwide Alarm](https://www.yahoo.com/news/trump-debate-answer-jan-6-021913787.html)
-- Sep 10 - [Ohio is sending troopers and $2.5 million to city inundated with Haitian migrants](https://www.yahoo.com/news/ohio-sending-troopers-2-5-225832541.html)
+- Sep 11 - [Mega Millions winning numbers for Tuesday, Sept. 10, 2024](https://www.yahoo.com/news/mega-millions-winning-numbers-tuesday-030844103.html)
 <!-- feed end -->
 
 ### Onstream
