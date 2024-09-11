@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [3 Stocks That Haven't Been This Cheap in More Than 5 Years](https://finance.yahoo.com/news/3-stocks-havent-cheap-more-084700739.html)
+- Sep 11 - [Jewelry seized by the Nazis from Polish concentration camp prisoners is returned to families](https://www.yahoo.com/news/jewelry-seized-nazis-polish-concentration-100224659.html)
+- Sep 11 - [Column: Trump was Trump in his debate with Kamala Harris — which is why he came across so poorly](https://www.yahoo.com/news/column-trump-trump-debate-kamala-100002588.html)
+- Sep 11 - [Where Will Amazon Stock Be in 5 Years?](https://finance.yahoo.com/news/where-amazon-stock-5-years-093000171.html)
+- Sep 11 - [Sex tourism in Indonesia sells itself as Islamic temporary marriage](https://www.yahoo.com/news/sex-tourism-indonesia-sells-itself-090045409.html)
 - Sep 11 - [Drudge Report Sums Up Donald Trump's Debate Performance With 2 Final Words](https://www.yahoo.com/news/drudge-report-sums-donald-trumps-082244010.html)
-- Sep 11 - [The guy who sold his Miami mansion to Jeff Bezos for $79 million is really angry he didn't charge more for it](https://www.yahoo.com/news/guy-sold-miami-mansion-jeff-074322444.html)
-- Sep 11 - [Huawei's tri-foldable phone stirs Chinese pride but $2,800 price tag panned](https://finance.yahoo.com/news/huaweis-tri-foldable-phone-stirs-072905647.html)
-- Sep 11 - [Donald Trump responds to Taylor Swift's 2024 endorsement of Kamala Harris](https://www.yahoo.com/news/donald-trump-responds-taylor-swifts-042226964.html)
 <!-- feed end -->
 
 ### Onstream
