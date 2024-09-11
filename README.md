@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Retirees who rely on fixed income streams are happier and likelier to spend in their golden years — here’s how to do it](https://finance.yahoo.com/news/retirees-rely-fixed-income-streams-105500810.html)
 - Sep 11 - [Jewelry seized by the Nazis from Polish concentration camp prisoners is returned to families](https://www.yahoo.com/news/jewelry-seized-nazis-polish-concentration-100224659.html)
-- Sep 11 - [Column: Trump was Trump in his debate with Kamala Harris — which is why he came across so poorly](https://www.yahoo.com/news/column-trump-trump-debate-kamala-100002588.html)
-- Sep 11 - [Where Will Amazon Stock Be in 5 Years?](https://finance.yahoo.com/news/where-amazon-stock-5-years-093000171.html)
 - Sep 11 - [Sex tourism in Indonesia sells itself as Islamic temporary marriage](https://www.yahoo.com/news/sex-tourism-indonesia-sells-itself-090045409.html)
 - Sep 11 - [Drudge Report Sums Up Donald Trump's Debate Performance With 2 Final Words](https://www.yahoo.com/news/drudge-report-sums-donald-trumps-082244010.html)
+- Sep 11 - [Huawei's tri-foldable phone stirs Chinese pride but $2,800 price tag panned](https://finance.yahoo.com/news/huaweis-tri-foldable-phone-stirs-072905647.html)
 <!-- feed end -->
 
 ### Onstream
