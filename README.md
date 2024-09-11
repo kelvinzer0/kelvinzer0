@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [3 Stocks That Haven't Been This Cheap in More Than 5 Years](https://finance.yahoo.com/news/3-stocks-havent-cheap-more-084700739.html)
 - Sep 11 - [Drudge Report Sums Up Donald Trump's Debate Performance With 2 Final Words](https://www.yahoo.com/news/drudge-report-sums-donald-trumps-082244010.html)
-- Sep 11 - [Delta residents upset that toy display in Route 74 roundabout mocking PennDOT was removed](https://www.yahoo.com/news/delta-residents-upset-toy-display-080236637.html)
+- Sep 11 - [The guy who sold his Miami mansion to Jeff Bezos for $79 million is really angry he didn't charge more for it](https://www.yahoo.com/news/guy-sold-miami-mansion-jeff-074322444.html)
+- Sep 11 - [Huawei's tri-foldable phone stirs Chinese pride but $2,800 price tag panned](https://finance.yahoo.com/news/huaweis-tri-foldable-phone-stirs-072905647.html)
 - Sep 11 - [Donald Trump responds to Taylor Swift's 2024 endorsement of Kamala Harris](https://www.yahoo.com/news/donald-trump-responds-taylor-swifts-042226964.html)
-- Sep 11 - [Did Trump go to Wharton School of Economics? A look at his education](https://www.yahoo.com/news/did-trump-wharton-school-economics-032503072.html)
-- Sep 11 - [Mega Millions winning numbers for Tuesday, Sept. 10, 2024](https://www.yahoo.com/news/mega-millions-winning-numbers-tuesday-030844103.html)
 <!-- feed end -->
 
 ### Onstream
