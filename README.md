@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Russia appears to have launched initial major counterattack against Ukraine in Kursk](https://www.yahoo.com/news/russia-appears-launched-initial-major-164715037.html)
-- Sep 11 - [Wrong-Way Driver Miraculously Avoids Collision While U-Turning on Grand Rapids Highway](https://www.yahoo.com/news/wrong-way-driver-miraculously-avoids-161512130.html)
+- Sep 11 - [Ex-Google exec said goal was to 'crush' competition, trial evidence shows](https://finance.yahoo.com/news/ex-google-exec-said-goal-175601749.html)
+- Sep 11 - [Nurse whose baby died after she left him alone jailed](https://www.yahoo.com/news/nurse-whose-baby-died-she-172225170.html)
 - Sep 11 - [Apple has officially discontinued these three iPhones](https://www.yahoo.com/tech/apple-officially-discontinued-three-iphones-150844446.html)
 - Sep 11 - [SpaceX Astronauts Now Farther From Earth Than Any Other Human Since Apollo Moon Missions](https://www.yahoo.com/news/spacex-astronauts-now-farther-earth-150748792.html)
-- Sep 11 - [Russia says it could "combine" with China if they faced a threat](https://www.yahoo.com/news/russia-says-could-combine-china-142351507.html)
+- Sep 11 - [Dave Ramsey: 6 Biggest Retirement Myths You Shouldn’t Believe](https://finance.yahoo.com/news/dave-ramsey-6-biggest-retirement-210008087.html)
 <!-- feed end -->
 
 ### Onstream
