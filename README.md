@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 10 - [Don Jr confronted by restaurant owner who says he lost half his customers over Trump support](https://www.yahoo.com/news/don-jr-confronted-podcast-restaurant-222601407.html)
-- Sep 10 - [Lubbock confirms first human death from West Nile Virus this year, increase in cases](https://www.yahoo.com/news/lubbock-confirms-first-human-death-222712660.html)
-- Sep 10 - [GOP leadership candidate Thune transfers $4 million to NRSC](https://www.yahoo.com/news/gop-leadership-candidate-thune-transfers-191409982.html)
+- Sep 10 - [Biden says ending ban on Ukraine's use of long-range weapons being worked out](https://www.yahoo.com/news/biden-says-administration-working-potentially-210947026.html)
+- Sep 10 - [Nazi ships emerge from the Danube as water levels drop](https://www.yahoo.com/news/nazi-ships-emerge-danube-water-210515363.html)
+- Sep 10 - [Man convicted in brutal slaying of UCLA student in Hancock Park](https://www.yahoo.com/news/man-convicted-brutal-slaying-ucla-190403334.html)
 - Sep 10 - [Mars Helicopter Ingenuity Spots Perseverance Rover During Flight 51](https://www.yahoo.com/news/mars-helicopter-ingenuity-spots-perseverance-210000401.html)
-- Sep 10 - [Runner dies after collapsing at finish line of Disneyland’s Halloween Half Marathon](https://www.yahoo.com/news/runner-dies-collapsing-finish-line-175224655.html)
 <!-- feed end -->
 
 ### Onstream
