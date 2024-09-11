@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 11 - [Donald Trump responds to Taylor Swift's 2024 endorsement of Kamala Harris](https://www.yahoo.com/news/donald-trump-responds-taylor-swifts-042226964.html)
-- Sep 11 - [‘I never want this to happen to anyone else’: Buffalo business owner recalls nightmare applying to WEDI’s West Side Bazaar](https://www.yahoo.com/news/never-want-happen-anyone-else-015549192.html)
+- Sep 11 - [Did Trump go to Wharton School of Economics? A look at his education](https://www.yahoo.com/news/did-trump-wharton-school-economics-032503072.html)
+- Sep 10 - [NYPD officer lands $175K settlement over 'courtesy cards' that help drivers get out of traffic stops](https://www.yahoo.com/news/nypd-officer-lands-175k-settlement-223537112.html)
 - Sep 10 - [Biden says ending ban on Ukraine's use of long-range weapons being worked out](https://www.yahoo.com/news/biden-says-administration-working-potentially-210947026.html)
 - Sep 10 - [A big weather change is coming to the Boise area — including rain and high winds (plus, smoke)](https://www.yahoo.com/news/big-weather-change-coming-boise-201000019.html)
-- Sep 10 - [San Jose married couple accused of running crack house](https://www.yahoo.com/news/san-jose-married-couple-accused-190152191.html)
 <!-- feed end -->
 
 ### Onstream
