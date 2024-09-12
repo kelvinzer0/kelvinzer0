@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Francine hits the Mid-South: Keep track of power outages, weather in the Memphis area](https://www.yahoo.com/news/francine-hits-mid-south-keep-115142711.html)
-- Sep 12 - [Inflation continues to cool as Fed could cut interest rates next week](https://www.yahoo.com/news/inflation-continues-cool-fed-could-113950688.html)
+- Sep 12 - [Couple and pampered pooch enjoying England's longest dog walk](https://www.yahoo.com/news/couple-pampered-pooch-enjoying-englands-130341184.html)
+- Sep 12 - [WCPO meteorologist Steve Raleigh has been off the air for weeks. Here's what we know](https://www.yahoo.com/news/wcpo-meteorologist-steve-raleigh-off-122319371.html)
+- Sep 12 - [China warns carmakers of risks in building plants overseas, sources say](https://finance.yahoo.com/news/china-warns-carmakers-risks-building-111200803.html)
 - Sep 12 - [5 Oklahoma colleges ranked in Wall Street Journal's list of top universities. Who's on top?](https://www.yahoo.com/news/5-oklahoma-colleges-ranked-wall-110119854.html)
-- Sep 12 - [Middle-class Americans keep falling for 2 money traps laid out by big banks — here’s how to beat them at their own game](https://finance.yahoo.com/news/middle-class-americans-keep-falling-105500711.html)
-- Sep 12 - [USPS' long-awaited new mail truck makes its debut to rave reviews from carriers](https://www.yahoo.com/news/usps-long-awaited-mail-truck-040753754.html)
+- Sep 12 - [I Have $750K in My Roth and $1,800 Monthly Social Security - Is It Enough to Retire at 65?](https://finance.yahoo.com/news/750k-roth-ira-receive-1-110000666.html)
 <!-- feed end -->
 
 ### Onstream
