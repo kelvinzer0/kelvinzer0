@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Long missing, WWII POW buried 82 years after his death at Cape Canaveral National Cemetery](https://www.yahoo.com/news/long-missing-wwii-pow-buried-091010405.html)
+- Sep 12 - [Zimbabwe blueberry farmers chase booming demand, face funding woes](https://finance.yahoo.com/video/zimbabwe-blueberry-farmers-chase-booming-103611860.html)
 - Sep 12 - [Breaking: Watch Live as Polaris Dawn Civilians Step Into The Raw Vacuum of Space](https://www.yahoo.com/news/breaking-watch-live-polaris-dawn-040244239.html)
-- Sep 12 - [Oxford scientists make remarkable advancement with material that generates solar power without traditional panels: 'The future is brighter'](https://www.yahoo.com/tech/oxford-scientists-remarkable-advancement-material-040000616.html)
-- Sep 12 - [15 Best Places Where You Can Retire with $250,000 in Savings and Feel Rich](https://finance.yahoo.com/news/15-best-places-where-retire-035750592.html)
 - Sep 12 - [Stellantis defends itself after US dealers flag concerns](https://finance.yahoo.com/news/stellantis-defends-itself-us-dealers-012529141.html)
+- Sep 12 - [Northern lights may be visible in 17 states: Where to see forecasted auroras in the US](https://www.yahoo.com/news/northern-lights-may-visible-17-003106721.html)
+- Sep 11 - [The Real Way You Always Know Who Lost the Debate](https://www.yahoo.com/news/rise-most-insane-conspiracy-theory-213148158.html)
 <!-- feed end -->
 
 ### Onstream
