@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Pope Francis wraps up his Asia and Oceania visit: AP Explains](https://www.yahoo.com/news/pope-francis-wraps-asia-oceania-144530820.html)
-- Sep 12 - [The iPhone 16 has a big upgrade Apple didn’t talk about](https://www.yahoo.com/tech/iphone-16-big-upgrade-apple-140433669.html)
-- Sep 12 - [Norfolk Southern fires CEO Alan Shaw, legal officer after investigation into relationship](https://finance.yahoo.com/news/norfolk-southern-fires-ceo-alan-123808224.html)
+- Sep 12 - [Boise State accepts invite to join the Pac-12 alongside three rivals. Here are the details](https://sports.yahoo.com/boise-state-accepts-invite-join-145449915.html)
+- Sep 12 - [SpaceX Drains Air From Spacecraft While Astronauts Are Inside](https://www.yahoo.com/news/spacex-drains-air-spacecraft-while-141029961.html)
+- Sep 12 - ["They're admitting it": Experts say megamerger helps corporations that used pandemic to raise costs](https://finance.yahoo.com/news/theyre-admitting-experts-megamerger-helps-120006688.html)
 - Sep 12 - [China warns carmakers of risks in building plants overseas, sources say](https://finance.yahoo.com/news/china-warns-carmakers-risks-building-111200803.html)
-- Sep 12 - [Middle-class Americans keep falling for 2 money traps laid out by big banks — here’s how to beat them at their own game](https://finance.yahoo.com/news/middle-class-americans-keep-falling-105500711.html)
+- Sep 12 - [I Have $750K in My Roth and $1,800 Monthly Social Security - Is It Enough to Retire at 65?](https://finance.yahoo.com/news/750k-roth-ira-receive-1-110000666.html)
 <!-- feed end -->
 
 ### Onstream
