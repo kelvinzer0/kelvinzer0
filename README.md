@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [650-foot tsunami in Greenland fjord made waves that lasted 9 days, scientists find](https://www.yahoo.com/news/650-foot-tsunami-greenland-fjord-180212833.html)
+- Sep 12 - [They moved to Boise. Now they’ll open 3 chain restaurants with America’s ‘greatest’ sub](https://finance.yahoo.com/news/moved-boise-now-ll-open-195806319.html)
+- Sep 12 - [‘She’s on tusi’: Bodycam shows model minutes after deadly crash in downtown Miami](https://www.yahoo.com/news/she-tusi-bodycam-shows-model-190837907.html)
+- Sep 12 - [Mega El Niños helped kill 90 percent of life on Earth](https://www.yahoo.com/news/mega-el-ni-os-helped-180000161.html)
 - Sep 12 - [Buffett's insurance leader Ajit Jain sells large part of Berkshire stake](https://finance.yahoo.com/news/buffetts-insurance-leader-ajit-jain-175454628.html)
-- Sep 12 - [Putin says West will be fighting directly with Russia if it lets Kyiv use long-range missiles](https://www.yahoo.com/news/putin-says-west-fighting-directly-175257212.html)
-- Sep 12 - [McDonald's fall deals include extended $5 meal, 50 cent double cheeseburger and more](https://www.yahoo.com/news/mcdonalds-fall-deals-extended-5-172506833.html)
-- Sep 12 - ["I'm Going To Tell You A Story Of How I Killed A Patient..." — Doctors Are Confessing The Regrets That Still Haunt Them Today And They Are Crushing](https://www.yahoo.com/lifestyle/im-going-tell-story-killed-162643937.html)
-- Sep 12 - [Dave Ramsey Says You're Wasting $5,000 A Year If You 'Spend $13.70 A Day On Things You Don't Need'](https://finance.yahoo.com/news/dave-ramsey-says-youre-wasting-162058304.html)
 <!-- feed end -->
 
 ### Onstream
