@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Boise State accepts invite to join the Pac-12 alongside three rivals. Here are the details](https://sports.yahoo.com/boise-state-accepts-invite-join-145449915.html)
-- Sep 12 - [SpaceX Drains Air From Spacecraft While Astronauts Are Inside](https://www.yahoo.com/news/spacex-drains-air-spacecraft-while-141029961.html)
-- Sep 12 - ["They're admitting it": Experts say megamerger helps corporations that used pandemic to raise costs](https://finance.yahoo.com/news/theyre-admitting-experts-megamerger-helps-120006688.html)
-- Sep 12 - [China warns carmakers of risks in building plants overseas, sources say](https://finance.yahoo.com/news/china-warns-carmakers-risks-building-111200803.html)
-- Sep 12 - [I Have $750K in My Roth and $1,800 Monthly Social Security - Is It Enough to Retire at 65?](https://finance.yahoo.com/news/750k-roth-ira-receive-1-110000666.html)
+- Sep 12 - [Dave Ramsey Says You're Wasting $5,000 A Year If You 'Spend $13.70 A Day On Things You Don't Need'](https://finance.yahoo.com/news/dave-ramsey-says-youre-wasting-162058304.html)
+- Sep 12 - [New York City police commissioner resigns after his phone was seized in federal investigation](https://www.yahoo.com/news/york-city-police-commissioner-resign-160119553.html)
+- Sep 12 - [What a bigger-than-expected Fed rate cut would mean for the stock market](https://finance.yahoo.com/news/what-a-bigger-than-expected-fed-rate-cut-would-mean-for-the-stock-market-181143568.html)
+- Sep 12 - [Watch: Walmart mass shooter attends courthouse hearing in El Paso](https://www.yahoo.com/news/watch-live-walmart-mass-shooter-150107960.html)
+- Sep 12 - [Teen shot in the face while looking for location to take homecoming pictures: Sheriff's office](https://www.yahoo.com/news/teen-shot-face-while-looking-145827535.html)
 <!-- feed end -->
 
 ### Onstream
