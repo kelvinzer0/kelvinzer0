@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [Less than half the time on a business trip is spent doing work](https://www.yahoo.com/lifestyle/less-half-time-business-trip-070840232.html)
 - Sep 12 - [What is a 'personality hire'?](https://uk.finance.yahoo.com/news/personality-hire-work-050056593.html)
+- Sep 12 - [USPS' long-awaited new mail truck makes its debut to rave reviews from carriers](https://www.yahoo.com/news/usps-long-awaited-mail-truck-040753754.html)
 - Sep 12 - [Breaking: Watch Live as Polaris Dawn Civilians Step Into The Raw Vacuum of Space](https://www.yahoo.com/news/breaking-watch-live-polaris-dawn-040244239.html)
-- Sep 12 - [Oxford scientists make remarkable advancement with material that generates solar power without traditional panels: 'The future is brighter'](https://www.yahoo.com/tech/oxford-scientists-remarkable-advancement-material-040000616.html)
 - Sep 12 - [Stellantis defends itself after US dealers flag concerns](https://finance.yahoo.com/news/stellantis-defends-itself-us-dealers-012529141.html)
-- Sep 11 - [US forces are going to help Japan get its destroyer-turned-aircraft carrier ready to fly F-35 stealth fighters](https://www.yahoo.com/news/us-forces-going-help-japan-191433687.html)
 <!-- feed end -->
 
 ### Onstream
