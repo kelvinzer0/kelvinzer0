@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 12 - [Jury awards $6M to family members of Black Lives Matter protester killed by a car on Seattle freeway](https://www.yahoo.com/news/jury-awards-6m-family-members-205855420.html)
+- Sep 12 - [Murdoch succession battle to play out in Nevada courtroom](https://www.yahoo.com/news/murdoch-succession-battle-play-nevada-203026841.html)
 - Sep 12 - [650-foot tsunami in Greenland fjord made waves that lasted 9 days, scientists find](https://www.yahoo.com/news/650-foot-tsunami-greenland-fjord-180212833.html)
-- Sep 12 - [New York City police commissioner resigns, AP Explains](https://www.yahoo.com/news/york-city-police-commissioner-resigns-194440207.html)
-- Sep 12 - [‘She’s on tusi’: Bodycam shows model minutes after deadly crash in downtown Miami](https://www.yahoo.com/news/she-tusi-bodycam-shows-model-190837907.html)
+- Sep 12 - [Alaska Airlines plane aborts takeoff to avoid collision with Southwest jet](https://www.yahoo.com/news/alaska-airlines-plane-aborts-takeoff-185815081.html)
 - Sep 12 - [The Great Dying once wiped out 90% of life on Earth. A new theory may explain why](https://www.yahoo.com/news/great-dying-once-wiped-90-185343331.html)
 <!-- feed end -->
 
