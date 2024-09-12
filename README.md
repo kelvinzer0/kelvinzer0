@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [650-foot tsunami in Greenland fjord made waves that lasted 9 days, scientists find](https://www.yahoo.com/news/650-foot-tsunami-greenland-fjord-180212833.html)
-- Sep 12 - [They moved to Boise. Now they’ll open 3 chain restaurants with America’s ‘greatest’ sub](https://finance.yahoo.com/news/moved-boise-now-ll-open-195806319.html)
+- Sep 12 - [Will Arizona see the northern lights? 17 states where you can see the aurora borealis](https://www.yahoo.com/news/arizona-see-northern-lights-17-200834056.html)
 - Sep 12 - [‘She’s on tusi’: Bodycam shows model minutes after deadly crash in downtown Miami](https://www.yahoo.com/news/she-tusi-bodycam-shows-model-190837907.html)
-- Sep 12 - [Mega El Niños helped kill 90 percent of life on Earth](https://www.yahoo.com/news/mega-el-ni-os-helped-180000161.html)
+- Sep 12 - [The Great Dying once wiped out 90% of life on Earth. A new theory may explain why](https://www.yahoo.com/news/great-dying-once-wiped-90-185343331.html)
+- Sep 12 - [Robert F. Kennedy Jr. Has Sabotaged Early Voting in a Critical Swing State](https://www.yahoo.com/news/robert-f-kennedy-jr-sabotaged-182446550.html)
 - Sep 12 - [Buffett's insurance leader Ajit Jain sells large part of Berkshire stake](https://finance.yahoo.com/news/buffetts-insurance-leader-ajit-jain-175454628.html)
 <!-- feed end -->
 
