@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Couple and pampered pooch enjoying England's longest dog walk](https://www.yahoo.com/news/couple-pampered-pooch-enjoying-englands-130341184.html)
-- Sep 12 - [WCPO meteorologist Steve Raleigh has been off the air for weeks. Here's what we know](https://www.yahoo.com/news/wcpo-meteorologist-steve-raleigh-off-122319371.html)
-- Sep 12 - [China warns carmakers of risks in building plants overseas, sources say](https://finance.yahoo.com/news/china-warns-carmakers-risks-building-111200803.html)
-- Sep 12 - [5 Oklahoma colleges ranked in Wall Street Journal's list of top universities. Who's on top?](https://www.yahoo.com/news/5-oklahoma-colleges-ranked-wall-110119854.html)
+- Sep 12 - [Apple iPhone 16 vs. 16 Plus vs. 16 Pro vs. 16 Pro Max: What's the Difference?](https://www.yahoo.com/tech/apple-iphone-16-vs-16-135508976.html)
 - Sep 12 - [I Have $750K in My Roth and $1,800 Monthly Social Security - Is It Enough to Retire at 65?](https://finance.yahoo.com/news/750k-roth-ira-receive-1-110000666.html)
+- Sep 12 - [The CDC Declared This Vegetable to Be the Healthiest — and it Just May Surprise You](https://www.yahoo.com/lifestyle/cdc-declared-vegetable-healthiest-just-100100595.html)
+- Sep 12 - [Tech billionaire pulls off first private spacewalk high above Earth](https://www.yahoo.com/news/billionaires-spacewalk-spacex-delayed-several-060026742.html)
+- Sep 12 - [Details emerge about Southern California man, 34, accused of igniting Line Fire](https://www.yahoo.com/news/details-emerge-southern-california-man-031458308.html)
 <!-- feed end -->
 
 ### Onstream
