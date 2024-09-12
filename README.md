@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [SpaceX-Polaris crew poised to attempt first private spacewalk](https://www.yahoo.com/news/spacex-polaris-crew-poised-attempt-223946910.html)
-- Sep 11 - [Why you might be missing a 'world of opportunity' in private markets](https://finance.yahoo.com/video/why-might-missing-world-opportunity-221918877.html)
+- Sep 11 - [This Ukrainian Drone Hunting A Russian Inside A Building Has Big Horror Movie Vibes](https://www.yahoo.com/news/ukrainian-drone-hunting-russian-inside-221143197.html)
+- Sep 11 - [VIDEO: Jon Bon Jovi helps save woman trying to jump from bridge in downtown Nashville](https://www.yahoo.com/news/video-jon-bon-jovi-helps-212935308.html)
 - Sep 11 - [The Moment Trump Realized the Debate Wasn’t Going Well for Him](https://www.yahoo.com/news/moment-trump-realized-debate-wasn-210804204.html)
 - Sep 11 - [New Chinese Aircraft Carrier’s Catapult Control ‘Bubble’ Looks Very Familiar](https://www.yahoo.com/news/chinese-aircraft-carrier-catapult-control-201722853.html)
 - Sep 11 - [IDENTIFIED: 16-year-old Clovis Unified student killed in motorcycle crash](https://www.yahoo.com/news/identified-16-old-clovis-unified-193243707.html)
