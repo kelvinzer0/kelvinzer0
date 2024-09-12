@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Zimbabwe blueberry farmers chase booming demand, face funding woes](https://finance.yahoo.com/video/zimbabwe-blueberry-farmers-chase-booming-103611860.html)
-- Sep 12 - [Breaking: Watch Live as Polaris Dawn Civilians Step Into The Raw Vacuum of Space](https://www.yahoo.com/news/breaking-watch-live-polaris-dawn-040244239.html)
-- Sep 12 - [Stellantis defends itself after US dealers flag concerns](https://finance.yahoo.com/news/stellantis-defends-itself-us-dealers-012529141.html)
-- Sep 12 - [Northern lights may be visible in 17 states: Where to see forecasted auroras in the US](https://www.yahoo.com/news/northern-lights-may-visible-17-003106721.html)
-- Sep 11 - [The Real Way You Always Know Who Lost the Debate](https://www.yahoo.com/news/rise-most-insane-conspiracy-theory-213148158.html)
+- Sep 12 - [Francine hits the Mid-South: Keep track of power outages, weather in the Memphis area](https://www.yahoo.com/news/francine-hits-mid-south-keep-115142711.html)
+- Sep 12 - [Inflation continues to cool as Fed could cut interest rates next week](https://www.yahoo.com/news/inflation-continues-cool-fed-could-113950688.html)
+- Sep 12 - [5 Oklahoma colleges ranked in Wall Street Journal's list of top universities. Who's on top?](https://www.yahoo.com/news/5-oklahoma-colleges-ranked-wall-110119854.html)
+- Sep 12 - [Middle-class Americans keep falling for 2 money traps laid out by big banks — here’s how to beat them at their own game](https://finance.yahoo.com/news/middle-class-americans-keep-falling-105500711.html)
+- Sep 12 - [USPS' long-awaited new mail truck makes its debut to rave reviews from carriers](https://www.yahoo.com/news/usps-long-awaited-mail-truck-040753754.html)
 <!-- feed end -->
 
 ### Onstream
