@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Smoke fills the Wasatch Front – Here’s where it’s coming from](https://www.yahoo.com/news/smoke-fills-wasatch-front-where-221408908.html)
 - Sep 11 - [Billionaire Stanley Druckenmiller is Betting On Palantir Technologies Inc (NYSE:PLTR) And These AI Stocks](https://finance.yahoo.com/news/billionaire-stanley-druckenmiller-betting-palantir-211627656.html)
-- Sep 11 - [IDENTIFIED: 16-year-old Clovis Unified student killed in motorcycle crash](https://www.yahoo.com/news/identified-16-old-clovis-unified-193243707.html)
+- Sep 11 - [Florida man wins $50,000 A Year For Life scratch-off from Florida Lottery, takes lump sum](https://www.yahoo.com/news/florida-man-wins-50-000-195056588.html)
 - Sep 11 - [US forces are going to help Japan get its destroyer-turned-aircraft carrier ready to fly F-35 stealth fighters](https://www.yahoo.com/news/us-forces-going-help-japan-191433687.html)
 - Sep 11 - [F/A-18 Super Hornet Appears With Unprecedented Heavy Air-To-Air Missile Load](https://www.yahoo.com/news/f-18-super-hornet-appears-184332091.html)
-- Sep 11 - [California wildfires burn dozens of homes, ski resort](https://www.yahoo.com/news/california-wildfires-torch-mountain-homes-170758251.html)
 <!-- feed end -->
 
 ### Onstream
