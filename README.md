@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Will Arizona see the northern lights? 17 states where you can see the aurora borealis](https://www.yahoo.com/news/arizona-see-northern-lights-17-200834056.html)
+- Sep 12 - [Jury awards $6M to family members of Black Lives Matter protester killed by a car on Seattle freeway](https://www.yahoo.com/news/jury-awards-6m-family-members-205855420.html)
+- Sep 12 - [650-foot tsunami in Greenland fjord made waves that lasted 9 days, scientists find](https://www.yahoo.com/news/650-foot-tsunami-greenland-fjord-180212833.html)
+- Sep 12 - [New York City police commissioner resigns, AP Explains](https://www.yahoo.com/news/york-city-police-commissioner-resigns-194440207.html)
 - Sep 12 - [‘She’s on tusi’: Bodycam shows model minutes after deadly crash in downtown Miami](https://www.yahoo.com/news/she-tusi-bodycam-shows-model-190837907.html)
 - Sep 12 - [The Great Dying once wiped out 90% of life on Earth. A new theory may explain why](https://www.yahoo.com/news/great-dying-once-wiped-90-185343331.html)
-- Sep 12 - [Robert F. Kennedy Jr. Has Sabotaged Early Voting in a Critical Swing State](https://www.yahoo.com/news/robert-f-kennedy-jr-sabotaged-182446550.html)
-- Sep 12 - [Buffett's insurance leader Ajit Jain sells large part of Berkshire stake](https://finance.yahoo.com/news/buffetts-insurance-leader-ajit-jain-175454628.html)
 <!-- feed end -->
 
 ### Onstream
