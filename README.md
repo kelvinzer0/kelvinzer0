@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [What is a 'personality hire'?](https://uk.finance.yahoo.com/news/personality-hire-work-050056593.html)
+- Sep 12 - [Breaking: Watch Live as Polaris Dawn Civilians Step Into The Raw Vacuum of Space](https://www.yahoo.com/news/breaking-watch-live-polaris-dawn-040244239.html)
+- Sep 12 - [Oxford scientists make remarkable advancement with material that generates solar power without traditional panels: 'The future is brighter'](https://www.yahoo.com/tech/oxford-scientists-remarkable-advancement-material-040000616.html)
 - Sep 12 - [Stellantis defends itself after US dealers flag concerns](https://finance.yahoo.com/news/stellantis-defends-itself-us-dealers-012529141.html)
-- Sep 11 - [Smoke fills the Wasatch Front – Here’s where it’s coming from](https://www.yahoo.com/news/smoke-fills-wasatch-front-where-221408908.html)
-- Sep 11 - [Columbia pastor dies of apparent suicide a day after sexual battery charge](https://www.yahoo.com/news/columbia-pastor-dies-apparent-suicide-204017522.html)
-- Sep 11 - [‘Big Boy’ locomotive arrives to St. Louis in full force](https://www.yahoo.com/news/big-boy-locomotive-arrives-st-203834484.html)
-- Sep 11 - [New Chinese Aircraft Carrier’s Catapult Control ‘Bubble’ Looks Very Familiar](https://www.yahoo.com/news/chinese-aircraft-carrier-catapult-control-201722853.html)
+- Sep 11 - [US forces are going to help Japan get its destroyer-turned-aircraft carrier ready to fly F-35 stealth fighters](https://www.yahoo.com/news/us-forces-going-help-japan-191433687.html)
 <!-- feed end -->
 
 ### Onstream
