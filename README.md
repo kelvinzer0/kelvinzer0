@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [DNR seeks input on management plan for Petoskey State Park](https://www.yahoo.com/news/dnr-seeks-input-management-plan-080705238.html)
+- Sep 12 - [Here comes the money: Top 20 highest paid employees in Augusta's local government](https://www.yahoo.com/news/comes-money-top-20-highest-080219708.html)
+- Sep 12 - [USPS' long-awaited new mail truck makes its debut to rave reviews from carriers](https://www.yahoo.com/news/usps-long-awaited-mail-truck-040753754.html)
+- Sep 12 - [Breaking: Watch Live as Polaris Dawn Civilians Step Into The Raw Vacuum of Space](https://www.yahoo.com/news/breaking-watch-live-polaris-dawn-040244239.html)
 - Sep 12 - [Oxford scientists make remarkable advancement with material that generates solar power without traditional panels: 'The future is brighter'](https://www.yahoo.com/tech/oxford-scientists-remarkable-advancement-material-040000616.html)
-- Sep 12 - [Stellantis defends itself after US dealers flag concerns](https://finance.yahoo.com/news/stellantis-defends-itself-us-dealers-012529141.html)
-- Sep 11 - [China Wants to Replace Jeff Bezos as Musk’s Greatest Space Threat](https://finance.yahoo.com/news/china-wants-replace-jeff-bezos-224642812.html)
-- Sep 11 - [The Real Way You Always Know Who Lost the Debate](https://www.yahoo.com/news/rise-most-insane-conspiracy-theory-213148158.html)
-- Sep 11 - [Billionaire Stanley Druckenmiller is Betting On Palantir Technologies Inc (NYSE:PLTR) And These AI Stocks](https://finance.yahoo.com/news/billionaire-stanley-druckenmiller-betting-palantir-211627656.html)
 <!-- feed end -->
 
 ### Onstream
