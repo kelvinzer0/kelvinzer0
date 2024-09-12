@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [Putin says West will be fighting directly with Russia if it lets Kyiv use long-range missiles](https://www.yahoo.com/news/putin-says-west-fighting-directly-175257212.html)
 - Sep 12 - [Dave Ramsey Says You're Wasting $5,000 A Year If You 'Spend $13.70 A Day On Things You Don't Need'](https://finance.yahoo.com/news/dave-ramsey-says-youre-wasting-162058304.html)
-- Sep 12 - [New York City police commissioner resigns after his phone was seized in federal investigation](https://www.yahoo.com/news/york-city-police-commissioner-resign-160119553.html)
+- Sep 12 - [Judge voids controversial constitutional amendment on Utah’s Nov. 5 ballot](https://www.yahoo.com/news/judge-voids-controversial-constitutional-amendment-162000566.html)
 - Sep 12 - [What a bigger-than-expected Fed rate cut would mean for the stock market](https://finance.yahoo.com/news/what-a-bigger-than-expected-fed-rate-cut-would-mean-for-the-stock-market-181143568.html)
-- Sep 12 - [Watch: Walmart mass shooter attends courthouse hearing in El Paso](https://www.yahoo.com/news/watch-live-walmart-mass-shooter-150107960.html)
-- Sep 12 - [Teen shot in the face while looking for location to take homecoming pictures: Sheriff's office](https://www.yahoo.com/news/teen-shot-face-while-looking-145827535.html)
+- Sep 12 - [General Motors, Hyundai looking to team up on new vehicles](https://finance.yahoo.com/video/general-motors-hyundai-looking-team-145052696.html)
 <!-- feed end -->
 
 ### Onstream
