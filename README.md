@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [DNR seeks input on management plan for Petoskey State Park](https://www.yahoo.com/news/dnr-seeks-input-management-plan-080705238.html)
-- Sep 12 - [Here comes the money: Top 20 highest paid employees in Augusta's local government](https://www.yahoo.com/news/comes-money-top-20-highest-080219708.html)
-- Sep 12 - [USPS' long-awaited new mail truck makes its debut to rave reviews from carriers](https://www.yahoo.com/news/usps-long-awaited-mail-truck-040753754.html)
+- Sep 12 - [Long missing, WWII POW buried 82 years after his death at Cape Canaveral National Cemetery](https://www.yahoo.com/news/long-missing-wwii-pow-buried-091010405.html)
 - Sep 12 - [Breaking: Watch Live as Polaris Dawn Civilians Step Into The Raw Vacuum of Space](https://www.yahoo.com/news/breaking-watch-live-polaris-dawn-040244239.html)
 - Sep 12 - [Oxford scientists make remarkable advancement with material that generates solar power without traditional panels: 'The future is brighter'](https://www.yahoo.com/tech/oxford-scientists-remarkable-advancement-material-040000616.html)
+- Sep 12 - [15 Best Places Where You Can Retire with $250,000 in Savings and Feel Rich](https://finance.yahoo.com/news/15-best-places-where-retire-035750592.html)
+- Sep 12 - [Stellantis defends itself after US dealers flag concerns](https://finance.yahoo.com/news/stellantis-defends-itself-us-dealers-012529141.html)
 <!-- feed end -->
 
 ### Onstream
