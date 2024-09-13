@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Stuck-in-space astronauts make first public comments since Boeing capsule left without them](https://www.yahoo.com/news/stuck-space-astronauts-first-public-182626519.html)
-- Sep 13 - [‘Empty promises’: 33,000 Boeing workers strike](https://finance.yahoo.com/news/empty-promises-33-000-boeing-182105868.html)
-- Sep 13 - [Report says former University of Florida president Ben Sasse spent $1.3 million on social events](https://www.yahoo.com/news/report-says-former-university-florida-181924950.html)
-- Sep 13 - [Brazil top court lifts Starlink, X bank account freeze after $3 million transfer](https://www.yahoo.com/tech/brazil-top-court-lifts-starlink-172111209.html)
-- Sep 13 - [Phantom Galaxy Seen Through James Webb and Hubble Telescope](https://www.yahoo.com/news/phantom-galaxy-seen-james-webb-170000563.html)
+- Sep 13 - [JPMorgan CEO Jamie Dimon Said He'd 'Fire In A Second' Anyone Caught Trading Bitcoin When It Was At $4,000.](https://finance.yahoo.com/news/jpmorgan-ceo-jamie-dimon-said-193043218.html)
+- Sep 13 - [The search for the origin of Stonehenge’s mysterious Altar Stone intensifies](https://www.yahoo.com/news/key-piece-stonehenge-likely-came-182401500.html)
+- Sep 13 - [Health care clinics are helping to drive foot traffic and loyalty](https://finance.yahoo.com/news/health-care-clinics-helping-drive-184216449.html)
+- Sep 13 - [Driver accused of killing NHL's Johnny Gaudreau and brother denied bail, had .087 blood-alcohol level](https://sports.yahoo.com/driver-accused-of-killing-nhls-johnny-gaudreau-and-brother-denied-bail-had-087-blood-alcohol-level-180953929.html)
+- Sep 13 - [Analysis-Putin's options for Ukraine missiles response includes nuclear test, experts say](https://www.yahoo.com/news/analysis-putins-options-ukraine-missiles-180017015.html)
 <!-- feed end -->
 
 ### Onstream
