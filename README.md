@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [The ‘Magic Number’ You Need To Hit Before Retiring Is An Option](https://finance.yahoo.com/news/magic-number-hit-retiring-option-232417642.html)
 - Sep 12 - [Before she allegedly became a Russian asset, Lauren Chen was the darling of conservative YouTube](https://www.yahoo.com/news/she-allegedly-became-russian-asset-235019662.html)
+- Sep 12 - [Loose electrical cable found on ship that caused Baltimore bridge collapse](https://www.yahoo.com/news/loose-electrical-cable-found-ship-222535455.html)
 - Sep 12 - [Russia stands to lose $6.5 billion a year if Ukraine doesn't renew a gas pipeline deal at the end of the year, report says](https://finance.yahoo.com/news/russia-stands-lose-6-5-220643939.html)
 - Sep 12 - [Jury awards $6M to family members of Black Lives Matter protester killed by a car on Seattle freeway](https://www.yahoo.com/news/jury-awards-6m-family-members-205855420.html)
-- Sep 12 - [They moved to Boise. Now they’ll open 3 chain restaurants with America’s ‘greatest’ sub](https://finance.yahoo.com/news/moved-boise-now-ll-open-195806319.html)
-- Sep 12 - [3 Milwaukee teens face charges following violent attack on 3 adults outside McDonald's](https://www.yahoo.com/news/3-milwaukee-teens-arrested-following-195521421.html)
 <!-- feed end -->
 
 ### Onstream
