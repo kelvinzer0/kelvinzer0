@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [North Korea offers a rare glimpse into a secretive facility to produce nuclear materials](https://www.yahoo.com/news/north-korea-offers-rare-glimpse-053940147.html)
-- Sep 13 - [Worsening Sinaloa Cartel war paralyzes life in Mexican city](https://www.yahoo.com/news/worsening-sinaloa-cartel-war-paralyzes-003656548.html)
-- Sep 12 - [Warren Buffett's $13 billion bet on Occidental Petroleum turns sour as oil prices hit a 3-year low](https://finance.yahoo.com/news/warren-buffetts-13-billion-bet-235939676.html)
-- Sep 12 - [Montana miner to lay off hundreds due to declining palladium prices](https://finance.yahoo.com/news/montana-miner-lay-off-hundreds-225135256.html)
-- Sep 12 - [GOP State Senator's Former Chief Of Staff Said She Made Him Perform Sex Act](https://www.yahoo.com/news/gop-state-senators-former-chief-223947344.html)
+- Sep 13 - [12yo arrested for threating to shoot up Mililani Middle School](https://www.yahoo.com/news/12yo-arrested-threating-shoot-mililani-032607926.html)
+- Sep 12 - [Russia stands to lose $6.5 billion a year if Ukraine doesn't renew a gas pipeline deal at the end of the year, report says](https://finance.yahoo.com/news/russia-stands-lose-6-5-220643939.html)
+- Sep 12 - [Jury awards $6M to family members of Black Lives Matter protester killed by a car on Seattle freeway](https://www.yahoo.com/news/jury-awards-6m-family-members-205855420.html)
+- Sep 12 - [Putin says West will be fighting directly with Russia if it lets Kyiv use long-range missiles](https://www.yahoo.com/news/putin-says-west-fighting-directly-175257212.html)
+- Sep 12 - [Complete stranger obtains deed to $4M Raleigh home without homeowner’s knowledge](https://www.yahoo.com/news/complete-stranger-obtains-deed-4m-171545827.html)
 <!-- feed end -->
 
 ### Onstream
