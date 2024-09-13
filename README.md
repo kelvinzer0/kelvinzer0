@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [DeKalb County Schools employees face delayed paychecks, struggle to make ends meet](https://www.yahoo.com/news/dekalb-county-schools-employees-face-214722137.html)
+- Sep 13 - [Miami-Dade cop who cuffed Tyreek Hill had previous disciplinary issues, report says](https://www.yahoo.com/news/miami-dade-cop-cuffed-tyreek-214420068.html)
+- Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
 - Sep 13 - [Lynda Carter, Original Wonder Woman, Tells Arizonans Not To Vote For Her Sister](https://www.yahoo.com/news/lynda-carter-original-wonder-woman-210748600.html)
+- Sep 13 - [Do You Know If You're Wealthy Or Just 'Rich'? Here's The Difference And How Much You Need To Be Both](https://finance.yahoo.com/news/know-youre-wealthy-just-rich-193121445.html)
 - Sep 13 - [After just a few hours, U.S. election bets put on hold by appeals court ruling](https://www.yahoo.com/news/just-few-hours-u-election-192311367.html)
-- Sep 13 - [Boar's Head closing Virginia plant linked to deadly listeria outbreak](https://www.yahoo.com/news/boars-head-closing-virginia-plant-183058019.html)
-- Sep 13 - [Stuck-in-space astronauts reflect on being left behind and adjusting to life in orbit](https://www.yahoo.com/news/stuck-space-astronauts-first-public-182626519.html)
 <!-- feed end -->
 
 ### Onstream
