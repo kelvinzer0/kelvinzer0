@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Why economists sometimes are 'flying blind' with econ. data](https://finance.yahoo.com/video/why-economists-sometimes-flying-blind-110008078.html)
+- Sep 13 - [Britain's Red Arrows soar over Niagara Falls on Canadian tour](https://www.yahoo.com/news/britains-red-arrows-soar-over-114434580.html)
+- Sep 13 - [Stock market today: US futures rise with jumbo Fed cut back on the table](https://finance.yahoo.com/news/live/stock-market-today-us-futures-rise-with-jumbo-fed-cut-back-on-the-table-104715316.html)
 - Sep 13 - [Where to move your money when interest rates are poised to fall](https://finance.yahoo.com/news/where-to-move-your-money-when-interest-rates-are-poised-to-fall-090031091.html)
 - Sep 13 - [Scientists have solved the mystery of a 650-foot mega-tsunami that made the Earth vibrate for 9 days](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
 - Sep 13 - [China approves plan to raise retirement age from January 2025](https://www.yahoo.com/news/chinas-legislature-approves-draft-proposal-064721173.html)
-- Sep 13 - [‘Trying to incite somebody’: Large groups of bicyclists taking over Tampa roads](https://www.yahoo.com/news/trying-incite-somebody-large-groups-014219064.html)
 <!-- feed end -->
 
 ### Onstream
