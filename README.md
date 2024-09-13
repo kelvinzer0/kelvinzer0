@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Boeing workers to strike as 25% pay rise rejected](https://finance.yahoo.com/news/boeing-workers-strike-25-pay-043204427.html)
+- Sep 13 - [OpenAI launches 'Strawberry' bots with 'reasoning' abilities](https://finance.yahoo.com/video/openai-launches-strawberry-bots-reasoning-042355289.html)
+- Sep 13 - [3 people killed, 2 injured in crash on I-70 in West Virginia, roadway shut down ‘indefinitely’](https://www.yahoo.com/news/multiple-fatalities-reported-crash-70-025709318.html)
+- Sep 13 - [China's defence minister asks major countries to take lead in safeguarding global security](https://www.yahoo.com/news/chinas-defence-minister-asks-major-013642888.html)
 - Sep 13 - [Worsening Sinaloa Cartel war paralyzes life in Mexican city](https://www.yahoo.com/news/worsening-sinaloa-cartel-war-paralyzes-003656548.html)
-- Sep 12 - [Cleveland police: 2 dead, 2 injured in suspected murder-suicide](https://www.yahoo.com/news/cleveland-police-2-dead-2-234856475.html)
-- Sep 12 - [Montana miner to lay off hundreds due to declining palladium prices](https://finance.yahoo.com/news/montana-miner-lay-off-hundreds-225135256.html)
-- Sep 12 - [Jury awards $6M to family members of Black Lives Matter protester killed by a car on Seattle freeway](https://www.yahoo.com/news/jury-awards-6m-family-members-205855420.html)
-- Sep 12 - [Judge dismisses 2 counts against Trump in Georgia election case](https://www.yahoo.com/news/judge-dismisses-2-counts-against-204333520.html)
 <!-- feed end -->
 
 ### Onstream
