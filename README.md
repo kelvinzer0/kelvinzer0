@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [These sectors stand to benefit most from Fed's rate cut](https://finance.yahoo.com/video/sectors-stand-benefit-most-feds-164500116.html)
-- Sep 13 - [Russia's central bank warns Western banks not to discriminate against Russian clients](https://finance.yahoo.com/news/russias-central-bank-warns-western-131230693.html)
-- Sep 13 - [European, Muslim countries meet in Spain eyeing schedule for Palestinian statehood](https://www.yahoo.com/news/european-muslim-countries-meet-spain-123505940.html)
-- Sep 13 - [Scientists who discovered mammals can breathe through their anuses receive Ig Nobel prize](https://www.yahoo.com/news/scientists-discovered-mammals-breathe-anuses-121105434.html)
-- Sep 13 - [Sikh man was shaved without consent at Brampton hospital: complaint](https://www.yahoo.com/news/sikh-man-was-shaved-without-consent-at-brampton-hospital-complaint-115243551.html)
+- Sep 13 - [Stuck-in-space astronauts make first public comments since Boeing capsule left without them](https://www.yahoo.com/news/stuck-space-astronauts-first-public-182626519.html)
+- Sep 13 - [‘Empty promises’: 33,000 Boeing workers strike](https://finance.yahoo.com/news/empty-promises-33-000-boeing-182105868.html)
+- Sep 13 - [Report says former University of Florida president Ben Sasse spent $1.3 million on social events](https://www.yahoo.com/news/report-says-former-university-florida-181924950.html)
+- Sep 13 - [Brazil top court lifts Starlink, X bank account freeze after $3 million transfer](https://www.yahoo.com/tech/brazil-top-court-lifts-starlink-172111209.html)
+- Sep 13 - [Phantom Galaxy Seen Through James Webb and Hubble Telescope](https://www.yahoo.com/news/phantom-galaxy-seen-james-webb-170000563.html)
 <!-- feed end -->
 
 ### Onstream
