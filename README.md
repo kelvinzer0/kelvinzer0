@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [12yo arrested for threating to shoot up Mililani Middle School](https://www.yahoo.com/news/12yo-arrested-threating-shoot-mililani-032607926.html)
-- Sep 12 - [Russia stands to lose $6.5 billion a year if Ukraine doesn't renew a gas pipeline deal at the end of the year, report says](https://finance.yahoo.com/news/russia-stands-lose-6-5-220643939.html)
-- Sep 12 - [Jury awards $6M to family members of Black Lives Matter protester killed by a car on Seattle freeway](https://www.yahoo.com/news/jury-awards-6m-family-members-205855420.html)
-- Sep 12 - [Putin says West will be fighting directly with Russia if it lets Kyiv use long-range missiles](https://www.yahoo.com/news/putin-says-west-fighting-directly-175257212.html)
-- Sep 12 - [Complete stranger obtains deed to $4M Raleigh home without homeowner’s knowledge](https://www.yahoo.com/news/complete-stranger-obtains-deed-4m-171545827.html)
+- Sep 13 - [Teen spends seven years creating map of imaginary city](https://www.yahoo.com/lifestyle/teen-spends-seven-years-creating-080128798.html)
+- Sep 13 - [British Airways refuses compensation for ‘Stanley Johnson flight’ diverted from Gatwick to Heathrow](https://www.yahoo.com/news/british-airways-refuses-compensation-stanley-114244391.html)
+- Sep 13 - [3 people killed, 2 injured in crash on I-70 in West Virginia, roadway shut down ‘indefinitely’](https://www.yahoo.com/news/multiple-fatalities-reported-crash-70-025709318.html)
+- Sep 12 - [‘It’s like Russian Roulette’: Herpetologist gives warning for handling venomous snakes after Florence man bit](https://www.yahoo.com/news/russian-roulette-herpetologist-gives-warning-233542713.html)
+- Sep 12 - [Montana miner to lay off hundreds due to declining palladium prices](https://finance.yahoo.com/news/montana-miner-lay-off-hundreds-225135256.html)
 <!-- feed end -->
 
 ### Onstream
