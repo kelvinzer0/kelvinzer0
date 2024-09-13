@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Hundreds of thousands of Cubans grapple with water shortages](https://www.yahoo.com/news/hundreds-thousands-cubans-grapple-water-202958228.html)
+- Sep 13 - [DeKalb County Schools employees face delayed paychecks, struggle to make ends meet](https://www.yahoo.com/news/dekalb-county-schools-employees-face-214722137.html)
+- Sep 13 - [Lynda Carter, Original Wonder Woman, Tells Arizonans Not To Vote For Her Sister](https://www.yahoo.com/news/lynda-carter-original-wonder-woman-210748600.html)
 - Sep 13 - [After just a few hours, U.S. election bets put on hold by appeals court ruling](https://www.yahoo.com/news/just-few-hours-u-election-192311367.html)
-- Sep 13 - [UGA football player arrested for driving at speeds above 100 miles per hour](https://www.yahoo.com/news/uga-football-player-arrested-driving-183730924.html)
-- Sep 13 - [6 teenage baseball players who took plea deals in South Dakota rape case sentenced](https://www.yahoo.com/news/6-teenage-baseball-players-took-190224595.html)
 - Sep 13 - [Boar's Head closing Virginia plant linked to deadly listeria outbreak](https://www.yahoo.com/news/boars-head-closing-virginia-plant-183058019.html)
+- Sep 13 - [Stuck-in-space astronauts reflect on being left behind and adjusting to life in orbit](https://www.yahoo.com/news/stuck-space-astronauts-first-public-182626519.html)
 <!-- feed end -->
 
 ### Onstream
