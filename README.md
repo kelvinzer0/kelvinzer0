@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Teen spends seven years creating map of imaginary city](https://www.yahoo.com/lifestyle/teen-spends-seven-years-creating-080128798.html)
-- Sep 13 - [British Airways refuses compensation for ‘Stanley Johnson flight’ diverted from Gatwick to Heathrow](https://www.yahoo.com/news/british-airways-refuses-compensation-stanley-114244391.html)
-- Sep 13 - [3 people killed, 2 injured in crash on I-70 in West Virginia, roadway shut down ‘indefinitely’](https://www.yahoo.com/news/multiple-fatalities-reported-crash-70-025709318.html)
-- Sep 12 - [‘It’s like Russian Roulette’: Herpetologist gives warning for handling venomous snakes after Florence man bit](https://www.yahoo.com/news/russian-roulette-herpetologist-gives-warning-233542713.html)
+- Sep 13 - [China approves plan to raise retirement age from January 2025](https://www.yahoo.com/news/chinas-legislature-approves-draft-proposal-064721173.html)
+- Sep 13 - [Worsening Sinaloa Cartel war paralyzes life in Mexican city](https://www.yahoo.com/news/worsening-sinaloa-cartel-war-paralyzes-003656548.html)
 - Sep 12 - [Montana miner to lay off hundreds due to declining palladium prices](https://finance.yahoo.com/news/montana-miner-lay-off-hundreds-225135256.html)
+- Sep 12 - [Loose electrical cable found on ship that caused Baltimore bridge collapse](https://www.yahoo.com/news/loose-electrical-cable-found-ship-222535455.html)
+- Sep 12 - [Russia stands to lose $6.5 billion a year if Ukraine doesn't renew a gas pipeline deal at the end of the year, report says](https://finance.yahoo.com/news/russia-stands-lose-6-5-220643939.html)
 <!-- feed end -->
 
 ### Onstream
