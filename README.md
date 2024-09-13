@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [JPMorgan CEO Jamie Dimon Said He'd 'Fire In A Second' Anyone Caught Trading Bitcoin When It Was At $4,000.](https://finance.yahoo.com/news/jpmorgan-ceo-jamie-dimon-said-193043218.html)
-- Sep 13 - [The search for the origin of Stonehenge’s mysterious Altar Stone intensifies](https://www.yahoo.com/news/key-piece-stonehenge-likely-came-182401500.html)
-- Sep 13 - [Health care clinics are helping to drive foot traffic and loyalty](https://finance.yahoo.com/news/health-care-clinics-helping-drive-184216449.html)
-- Sep 13 - [Driver accused of killing NHL's Johnny Gaudreau and brother denied bail, had .087 blood-alcohol level](https://sports.yahoo.com/driver-accused-of-killing-nhls-johnny-gaudreau-and-brother-denied-bail-had-087-blood-alcohol-level-180953929.html)
-- Sep 13 - [Analysis-Putin's options for Ukraine missiles response includes nuclear test, experts say](https://www.yahoo.com/news/analysis-putins-options-ukraine-missiles-180017015.html)
+- Sep 13 - [Hundreds of thousands of Cubans grapple with water shortages](https://www.yahoo.com/news/hundreds-thousands-cubans-grapple-water-202958228.html)
+- Sep 13 - [After just a few hours, U.S. election bets put on hold by appeals court ruling](https://www.yahoo.com/news/just-few-hours-u-election-192311367.html)
+- Sep 13 - [UGA football player arrested for driving at speeds above 100 miles per hour](https://www.yahoo.com/news/uga-football-player-arrested-driving-183730924.html)
+- Sep 13 - [6 teenage baseball players who took plea deals in South Dakota rape case sentenced](https://www.yahoo.com/news/6-teenage-baseball-players-took-190224595.html)
+- Sep 13 - [Boar's Head closing Virginia plant linked to deadly listeria outbreak](https://www.yahoo.com/news/boars-head-closing-virginia-plant-183058019.html)
 <!-- feed end -->
 
 ### Onstream
