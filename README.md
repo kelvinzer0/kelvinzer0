@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Congo court sentences 3 Americans and 34 others to death on coup charges](https://www.yahoo.com/news/congo-court-sentences-3-americans-163449671.html)
+- Sep 13 - [Boeing's back 'against the wall' amid union strike: Expert](https://finance.yahoo.com/video/boeings-back-against-wall-amid-163050748.html)
+- Sep 13 - [Uber, Waymo to bring robotaxis to Austin and Atlanta in 2025](https://finance.yahoo.com/video/uber-waymo-bring-robotaxis-austin-153629246.html)
 - Sep 13 - [A serial killer is eligible for parole. He drank his victims blood, drew caricatures of them and confessed to multiple murders](https://www.yahoo.com/news/serial-killer-confessed-d-murdered-161908334.html)
-- Sep 13 - [Deputy opens fire and kills man near North Freeway](https://www.yahoo.com/news/deputy-opens-fire-kills-man-151947483.html)
-- Sep 13 - [Is a new tropical storm coming to the Myrtle Beach area? Here’s what we know](https://www.yahoo.com/news/tropical-storm-coming-myrtle-beach-142333749.html)
-- Sep 13 - [‘Disaster Has Arrived’ At Stellantis As Dealers Call Out Damage Done To Brands](https://autos.yahoo.com/disaster-arrived-stellantis-dealers-call-140000637.html)
-- Sep 13 - [Stock market today: Stocks rise with jumbo Fed cut back on the table](https://finance.yahoo.com/news/live/stock-market-today-stocks-rise-with-jumbo-fed-cut-back-on-the-table-133138258.html)
+- Sep 13 - [Martha Stewart Just Quietly Made a Rare Presidential Endorsement](https://www.yahoo.com/news/martha-stewart-just-quietly-made-145032580.html)
 <!-- feed end -->
 
 ### Onstream
