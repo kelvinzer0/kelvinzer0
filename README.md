@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Troubled Deutsche Bahn sells logistics unit to Danish group](https://finance.yahoo.com/news/troubled-deutsche-bahn-sells-logistics-090411991.html)
+- Sep 13 - [Where to move your money when interest rates are poised to fall](https://finance.yahoo.com/news/where-to-move-your-money-when-interest-rates-are-poised-to-fall-090031091.html)
+- Sep 13 - [Scientists have solved the mystery of a 650-foot mega-tsunami that made the Earth vibrate for 9 days](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
 - Sep 13 - [China approves plan to raise retirement age from January 2025](https://www.yahoo.com/news/chinas-legislature-approves-draft-proposal-064721173.html)
-- Sep 13 - [Worsening Sinaloa Cartel war paralyzes life in Mexican city](https://www.yahoo.com/news/worsening-sinaloa-cartel-war-paralyzes-003656548.html)
-- Sep 12 - [Montana miner to lay off hundreds due to declining palladium prices](https://finance.yahoo.com/news/montana-miner-lay-off-hundreds-225135256.html)
-- Sep 12 - [Loose electrical cable found on ship that caused Baltimore bridge collapse](https://www.yahoo.com/news/loose-electrical-cable-found-ship-222535455.html)
-- Sep 12 - [Russia stands to lose $6.5 billion a year if Ukraine doesn't renew a gas pipeline deal at the end of the year, report says](https://finance.yahoo.com/news/russia-stands-lose-6-5-220643939.html)
+- Sep 13 - [China's carrot-and-stick tactics on EU nations start to pay off](https://finance.yahoo.com/news/chinas-carrot-stick-tactics-eu-063237451.html)
 <!-- feed end -->
 
 ### Onstream
