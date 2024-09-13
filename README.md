@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Congo court sentences 3 Americans and 34 others to death on coup charges](https://www.yahoo.com/news/congo-court-sentences-3-americans-163449671.html)
-- Sep 13 - [Boeing's back 'against the wall' amid union strike: Expert](https://finance.yahoo.com/video/boeings-back-against-wall-amid-163050748.html)
-- Sep 13 - [Uber, Waymo to bring robotaxis to Austin and Atlanta in 2025](https://finance.yahoo.com/video/uber-waymo-bring-robotaxis-austin-153629246.html)
-- Sep 13 - [A serial killer is eligible for parole. He drank his victims blood, drew caricatures of them and confessed to multiple murders](https://www.yahoo.com/news/serial-killer-confessed-d-murdered-161908334.html)
-- Sep 13 - [Martha Stewart Just Quietly Made a Rare Presidential Endorsement](https://www.yahoo.com/news/martha-stewart-just-quietly-made-145032580.html)
+- Sep 13 - [These sectors stand to benefit most from Fed's rate cut](https://finance.yahoo.com/video/sectors-stand-benefit-most-feds-164500116.html)
+- Sep 13 - [Russia's central bank warns Western banks not to discriminate against Russian clients](https://finance.yahoo.com/news/russias-central-bank-warns-western-131230693.html)
+- Sep 13 - [European, Muslim countries meet in Spain eyeing schedule for Palestinian statehood](https://www.yahoo.com/news/european-muslim-countries-meet-spain-123505940.html)
+- Sep 13 - [Scientists who discovered mammals can breathe through their anuses receive Ig Nobel prize](https://www.yahoo.com/news/scientists-discovered-mammals-breathe-anuses-121105434.html)
+- Sep 13 - [Sikh man was shaved without consent at Brampton hospital: complaint](https://www.yahoo.com/news/sikh-man-was-shaved-without-consent-at-brampton-hospital-complaint-115243551.html)
 <!-- feed end -->
 
 ### Onstream
