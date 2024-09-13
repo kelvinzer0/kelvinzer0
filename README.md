@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Miami Dolphins QB Tua Tagovailoa suffers concussion. What are symptoms, recovery time?](https://www.yahoo.com/news/miami-dolphins-qb-tua-tagovailoa-123722715.html)
-- Sep 13 - [Central Europe braces for heavy rains and flooding forecast over the weekend](https://www.yahoo.com/news/central-europe-braces-heavy-rains-123619735.html)
-- Sep 13 - [Two charged with murder after assault victim dies](https://www.yahoo.com/news/two-charged-murder-assault-victim-121525406.html)
-- Sep 13 - [The Week in Numbers: walking out, cutting rates, folding phones](https://finance.yahoo.com/video/week-numbers-walking-cutting-rates-115716361.html)
-- Sep 13 - [Ex-NFL star Kellen Winslow II expresses remorse from prison, seeks reduced sentence](https://www.yahoo.com/news/ex-nfl-star-kellen-winslow-110404369.html)
+- Sep 13 - [Thousands in Louisiana without power following Hurricane Francine](https://www.yahoo.com/news/thousands-louisiana-without-power-following-133852359.html)
+- Sep 13 - [Stock market today: Stocks rise with jumbo Fed cut back on the table](https://finance.yahoo.com/news/live/stock-market-today-stocks-rise-with-jumbo-fed-cut-back-on-the-table-133138258.html)
+- Sep 13 - [Man, 74, viciously attacked during road rage incident in Brooklyn: NYPD](https://www.yahoo.com/news/man-74-viciously-attacked-during-105706996.html)
+- Sep 13 - [Former 'Top Gear' host drove the Cybertruck for the first time. He says it's 'ballsy,' but he wouldn't want to own one.](https://autos.yahoo.com/former-top-gear-host-drove-104731104.html)
+- Sep 13 - [Buffett Buys $345 Million More of His Favorite Stock and Dumps $7 Billion of This Key Holding](https://finance.yahoo.com/news/buffett-buys-345-million-more-095000081.html)
 <!-- feed end -->
 
 ### Onstream
