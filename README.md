@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Thousands in Louisiana without power following Hurricane Francine](https://www.yahoo.com/news/thousands-louisiana-without-power-following-133852359.html)
+- Sep 13 - [What happens to credit card debt when you die?](https://finance.yahoo.com/personal-finance/what-happens-to-credit-card-debt-when-you-die-195732443.html)
+- Sep 13 - [Man left in wheelchair by random stabbing now diagnosed with cancer](https://www.yahoo.com/news/man-left-wheelchair-random-stabbing-122532125.html)
+- Sep 13 - [Three people dead and 18-year-old arrested over ‘truly appalling’ incident in Luton](https://www.yahoo.com/news/three-people-dead-18-old-140614702.html)
 - Sep 13 - [Stock market today: Stocks rise with jumbo Fed cut back on the table](https://finance.yahoo.com/news/live/stock-market-today-stocks-rise-with-jumbo-fed-cut-back-on-the-table-133138258.html)
-- Sep 13 - [Man, 74, viciously attacked during road rage incident in Brooklyn: NYPD](https://www.yahoo.com/news/man-74-viciously-attacked-during-105706996.html)
-- Sep 13 - [Former 'Top Gear' host drove the Cybertruck for the first time. He says it's 'ballsy,' but he wouldn't want to own one.](https://autos.yahoo.com/former-top-gear-host-drove-104731104.html)
-- Sep 13 - [Buffett Buys $345 Million More of His Favorite Stock and Dumps $7 Billion of This Key Holding](https://finance.yahoo.com/news/buffett-buys-345-million-more-095000081.html)
+- Sep 13 - [Germany sails two warships through Taiwan Strait for the first time in two decades](https://www.yahoo.com/news/germany-sails-two-warships-taiwan-131941763.html)
 <!-- feed end -->
 
 ### Onstream
