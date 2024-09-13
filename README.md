@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Why is Friday the 13th unlucky? The cultural origins of an enduring superstition](https://www.yahoo.com/lifestyle/why-friday-13th-unlucky-cultural-022244684.html)
 - Sep 13 - [Worsening Sinaloa Cartel war paralyzes life in Mexican city](https://www.yahoo.com/news/worsening-sinaloa-cartel-war-paralyzes-003656548.html)
-- Sep 12 - [The ‘Magic Number’ You Need To Hit Before Retiring Is An Option](https://finance.yahoo.com/news/magic-number-hit-retiring-option-232417642.html)
-- Sep 12 - [Before she allegedly became a Russian asset, Lauren Chen was the darling of conservative YouTube](https://www.yahoo.com/news/she-allegedly-became-russian-asset-235019662.html)
-- Sep 12 - [Russia stands to lose $6.5 billion a year if Ukraine doesn't renew a gas pipeline deal at the end of the year, report says](https://finance.yahoo.com/news/russia-stands-lose-6-5-220643939.html)
+- Sep 12 - [Cleveland police: 2 dead, 2 injured in suspected murder-suicide](https://www.yahoo.com/news/cleveland-police-2-dead-2-234856475.html)
+- Sep 12 - [Montana miner to lay off hundreds due to declining palladium prices](https://finance.yahoo.com/news/montana-miner-lay-off-hundreds-225135256.html)
+- Sep 12 - [Jury awards $6M to family members of Black Lives Matter protester killed by a car on Seattle freeway](https://www.yahoo.com/news/jury-awards-6m-family-members-205855420.html)
+- Sep 12 - [Judge dismisses 2 counts against Trump in Georgia election case](https://www.yahoo.com/news/judge-dismisses-2-counts-against-204333520.html)
 <!-- feed end -->
 
 ### Onstream
