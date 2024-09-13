@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Britain's Red Arrows soar over Niagara Falls on Canadian tour](https://www.yahoo.com/news/britains-red-arrows-soar-over-114434580.html)
-- Sep 13 - [Stock market today: US futures rise with jumbo Fed cut back on the table](https://finance.yahoo.com/news/live/stock-market-today-us-futures-rise-with-jumbo-fed-cut-back-on-the-table-104715316.html)
-- Sep 13 - [Where to move your money when interest rates are poised to fall](https://finance.yahoo.com/news/where-to-move-your-money-when-interest-rates-are-poised-to-fall-090031091.html)
-- Sep 13 - [Scientists have solved the mystery of a 650-foot mega-tsunami that made the Earth vibrate for 9 days](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
-- Sep 13 - [China approves plan to raise retirement age from January 2025](https://www.yahoo.com/news/chinas-legislature-approves-draft-proposal-064721173.html)
+- Sep 13 - [Miami Dolphins QB Tua Tagovailoa suffers concussion. What are symptoms, recovery time?](https://www.yahoo.com/news/miami-dolphins-qb-tua-tagovailoa-123722715.html)
+- Sep 13 - [Central Europe braces for heavy rains and flooding forecast over the weekend](https://www.yahoo.com/news/central-europe-braces-heavy-rains-123619735.html)
+- Sep 13 - [Two charged with murder after assault victim dies](https://www.yahoo.com/news/two-charged-murder-assault-victim-121525406.html)
+- Sep 13 - [The Week in Numbers: walking out, cutting rates, folding phones](https://finance.yahoo.com/video/week-numbers-walking-cutting-rates-115716361.html)
+- Sep 13 - [Ex-NFL star Kellen Winslow II expresses remorse from prison, seeks reduced sentence](https://www.yahoo.com/news/ex-nfl-star-kellen-winslow-110404369.html)
 <!-- feed end -->
 
 ### Onstream
