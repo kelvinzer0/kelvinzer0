@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Economists talk about a 'soft landing' a lot. What is it?](https://finance.yahoo.com/video/economists-talk-soft-landing-lot-100007934.html)
 - Sep 14 - [Women in Iran are going without hijabs as the 2nd anniversary of Mahsa Amini's death approaches](https://www.yahoo.com/news/women-iran-going-without-hijabs-050956865.html)
 - Sep 14 - [In Belarus, the native language is vanishing as Russian takes prominence](https://www.yahoo.com/news/belarus-native-language-vanishing-russian-041839386.html)
-- Sep 13 - [UGA football player arrested for driving at speeds above 100 miles per hour](https://www.yahoo.com/news/uga-football-player-arrested-driving-183730924.html)
-- Sep 13 - [Victim in deadly Orinda road-rage incident identified](https://www.yahoo.com/news/victim-deadly-orinda-road-rage-221455012.html)
-- Sep 13 - [Lawyers file to dismiss lawsuit over tithing fraud against LDS church, investment arm](https://www.yahoo.com/news/lawyers-file-dismiss-lawsuit-over-221255870.html)
+- Sep 14 - [Remains of Elijah Vue, Wisconsin toddler missing since February, found in thick wooded area](https://www.yahoo.com/news/remains-elijah-vue-wisconsin-toddler-000011964.html)
+- Sep 13 - [Scorned Wife: MAGA Rep, 59, Had Affair With 32-Year-Old](https://www.yahoo.com/news/scorned-wife-maga-rep-59-230626264.html)
 <!-- feed end -->
 
 ### Onstream
