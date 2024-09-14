@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Freed offender accused of sexual assault ‘within hour of early release’](https://www.yahoo.com/news/freed-offender-accused-sexual-assault-180131643.html)
-- Sep 14 - [New evidence upends contentious Easter Island theory, scientists say](https://www.yahoo.com/news/ancient-dna-adds-evidence-debunking-110019524.html)
 - Sep 14 - [3 teens stabbed in Palm Desert on Friday night; 2 taken to hospital with critical injuries](https://www.yahoo.com/news/3-teens-stabbed-palm-desert-164031753.html)
-- Sep 14 - [Bill Maher Goes Big With Trump Prediction: 'I Have The Credibility For This'](https://www.yahoo.com/entertainment/bill-maher-goes-big-trump-162755736.html)
+- Sep 14 - [Slain Ugandan Olympian laid to rest with full military honors](https://www.yahoo.com/news/slain-ugandan-olympian-laid-rest-163147772.html)
 - Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
+- Sep 14 - [Former Charlotte radio personality found dead in car of ‘blunt trauma,’ sheriff says](https://www.yahoo.com/news/former-charlotte-radio-personality-found-125050468.html)
+- Sep 14 - [The US Army put on a sudden show of force out on the far edge of Alaska to send the message it can as Russia and China partner in the Pacific](https://www.yahoo.com/news/us-army-put-sudden-show-123646926.html)
 <!-- feed end -->
 
 ### Onstream
