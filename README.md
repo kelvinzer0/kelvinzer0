@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [TVA sues Cheatham County landowners as push to build new methane gas plant moves forward](https://www.yahoo.com/news/tva-sues-cheatham-county-landowners-232156975.html)
-- Sep 13 - [Watch this 7 year old ‘steal’ her neighbor’s husky and replace it with a stuffed dog](https://www.yahoo.com/lifestyle/watch-7-old-steal-her-224732583.html)
-- Sep 13 - [Lawyers file to dismiss lawsuit over tithing fraud against LDS church, investment arm](https://www.yahoo.com/news/lawyers-file-dismiss-lawsuit-over-221255870.html)
+- Sep 13 - [Boeing Starliner astronaut: ‘We found some things that we just could not get comfortable with’](https://www.yahoo.com/news/starliner-astronaut-ran-time-return-202725197.html)
 - Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
-- Sep 13 - [Lynda Carter, Original Wonder Woman, Tells Arizonans Not To Vote For Her Sister](https://www.yahoo.com/news/lynda-carter-original-wonder-woman-210748600.html)
+- Sep 13 - [Severely entangled whale freed from fishing ropes in Canada](https://www.yahoo.com/news/severely-entangled-whale-freed-fishing-205719969.html)
+- Sep 13 - [Report says former University of Florida president Ben Sasse spent $1.3 million on social events](https://www.yahoo.com/news/report-says-former-university-florida-181924950.html)
+- Sep 13 - [Brazil top court lifts Starlink, X bank account freeze after $3 million transfer](https://www.yahoo.com/tech/brazil-top-court-lifts-starlink-172111209.html)
 <!-- feed end -->
 
 ### Onstream
