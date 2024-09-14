@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [China new home prices fall at fastest pace in over 9 years in Aug](https://finance.yahoo.com/news/china-home-prices-fall-fastest-014555339.html)
-- Sep 13 - [UGA football player arrested for driving at speeds above 100 miles per hour](https://www.yahoo.com/news/uga-football-player-arrested-driving-183730924.html)
+- Sep 14 - [Ileana floods roads after making landfall in northern Mexico](https://www.yahoo.com/news/ileana-floods-roads-making-landfall-033626104.html)
+- Sep 13 - [‘Totally flabbergasted’: Lifelong venomous snake keeper reacts to how Florence man handled inland taipan before bite](https://www.yahoo.com/news/totally-flabbergasted-lifelong-venomous-snake-223401851.html)
+- Sep 13 - [Victim in deadly Orinda road-rage incident identified](https://www.yahoo.com/news/victim-deadly-orinda-road-rage-221455012.html)
+- Sep 13 - [3 Hays CISD students charged for spreading school shooting threat on social media](https://www.yahoo.com/news/3-hays-cisd-students-charged-215932153.html)
 - Sep 13 - [Boeing Starliner astronaut: ‘We found some things that we just could not get comfortable with’](https://www.yahoo.com/news/starliner-astronaut-ran-time-return-202725197.html)
-- Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
-- Sep 13 - [Severely entangled whale freed from fishing ropes in Canada](https://www.yahoo.com/news/severely-entangled-whale-freed-fishing-205719969.html)
 <!-- feed end -->
 
 ### Onstream
