@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Kingsley Plantation temporarily closed due to flooding after heavy rainfall](https://www.yahoo.com/news/kingsley-plantation-temporarily-closed-due-120419531.html)
-- Sep 14 - [Warren Buffett once said waiting for a market crash to buy stocks is like a mortician waiting for an epidemic — here’s why](https://finance.yahoo.com/news/warren-buffett-once-said-waiting-102200712.html)
-- Sep 14 - [Webb telescope peers into our galaxy's outskirts, sees stunning scene](https://www.yahoo.com/lifestyle/webb-telescope-peers-galaxys-outskirts-090000480.html)
-- Sep 14 - [In Belarus, the native language is vanishing as Russian takes prominence](https://www.yahoo.com/news/belarus-native-language-vanishing-russian-041839386.html)
-- Sep 14 - [Jury issues verdict in Big City Coffee lawsuit against Boise State administrators](https://www.yahoo.com/news/jury-issues-verdict-big-city-025942359.html)
+- Sep 14 - [Post-typhoon flash floods batter Myanmar, with at least 33 reported dead](https://www.yahoo.com/news/post-typhoon-flash-floods-batter-132024372.html)
+- Sep 14 - [Fishing outlaws flocked to SLO County reservoir intent on coveted prize: ‘A heck of a fish’](https://www.yahoo.com/news/fishing-outlaws-flocked-slo-county-120000802.html)
+- Sep 14 - [How woman with coconut placard was tracked down, taken to court - and acquitted](https://www.yahoo.com/news/woman-coconut-placard-tracked-down-112038293.html)
+- Sep 14 - [Ancient DNA adds to evidence debunking theory of Easter Island collapse](https://www.yahoo.com/news/ancient-dna-adds-evidence-debunking-110019524.html)
+- Sep 14 - [EXCLUSIVE: Prague family granted $11.6 million judgement in wrongful death lawsuit](https://www.yahoo.com/news/exclusive-prague-family-granted-11-110000206.html)
 <!-- feed end -->
 
 ### Onstream
