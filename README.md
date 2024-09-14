@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [1 Unstoppable Stock That Could Join Nvidia, Microsoft, Apple, Amazon, Alphabet, and Meta in the $1 Trillion Club](https://finance.yahoo.com/news/1-unstoppable-stock-could-join-155000982.html)
+- Sep 14 - [Former Russian president threatens to turn Kyiv into ‘melted spot’ if long-range missiles approved](https://www.yahoo.com/news/former-russian-president-threatens-turn-162604356.html)
+- Sep 14 - [Where Is Susan Smith Now? A Look At Her Life in Prison 30 Years After Drowning Her Sons](https://www.yahoo.com/news/where-susan-smith-now-look-150000100.html)
 - Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
-- Sep 14 - [Former Charlotte radio personality found dead in car of ‘blunt trauma,’ sheriff says](https://www.yahoo.com/news/former-charlotte-radio-personality-found-125050468.html)
-- Sep 14 - [Organisms Created in Laboratory Are "Third State" Beyond Life and Death, Scientists Say](https://www.yahoo.com/news/organisms-created-laboratory-third-state-121505952.html)
-- Sep 14 - [Being frugal in retirement is a good thing — but here are 5 things retirees should never, ever ‘cheap out’ on](https://finance.yahoo.com/news/being-frugal-retirement-good-thing-115800295.html)
+- Sep 14 - [Miami-Dade Police officer at the center of Tyreek Hill traffic stop has been suspended several times, police records show](https://www.yahoo.com/news/miami-dade-police-officer-center-142236260.html)
+- Sep 14 - [Home Depot to pay $2 million settlement for overcharging customers](https://finance.yahoo.com/news/home-depot-pay-2-million-133019838.html)
 <!-- feed end -->
 
 ### Onstream
