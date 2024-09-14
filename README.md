@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Post-typhoon flash floods batter Myanmar, with at least 33 reported dead](https://www.yahoo.com/news/post-typhoon-flash-floods-batter-132024372.html)
+- Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
+- Sep 14 - [Former Charlotte radio personality found dead in car of ‘blunt trauma,’ sheriff says](https://www.yahoo.com/news/former-charlotte-radio-personality-found-125050468.html)
+- Sep 14 - [Organisms Created in Laboratory Are "Third State" Beyond Life and Death, Scientists Say](https://www.yahoo.com/news/organisms-created-laboratory-third-state-121505952.html)
 - Sep 14 - [Fishing outlaws flocked to SLO County reservoir intent on coveted prize: ‘A heck of a fish’](https://www.yahoo.com/news/fishing-outlaws-flocked-slo-county-120000802.html)
-- Sep 14 - [How woman with coconut placard was tracked down, taken to court - and acquitted](https://www.yahoo.com/news/woman-coconut-placard-tracked-down-112038293.html)
-- Sep 14 - [Ancient DNA adds to evidence debunking theory of Easter Island collapse](https://www.yahoo.com/news/ancient-dna-adds-evidence-debunking-110019524.html)
-- Sep 14 - [EXCLUSIVE: Prague family granted $11.6 million judgement in wrongful death lawsuit](https://www.yahoo.com/news/exclusive-prague-family-granted-11-110000206.html)
+- Sep 14 - [Being frugal in retirement is a good thing — but here are 5 things retirees should never, ever ‘cheap out’ on](https://finance.yahoo.com/news/being-frugal-retirement-good-thing-115800295.html)
 <!-- feed end -->
 
 ### Onstream
