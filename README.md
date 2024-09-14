@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Occidental Petroleum Corporation (OXY): A Good Energy Stock to Add to Your Retirement Stock Portfolio](https://finance.yahoo.com/news/occidental-petroleum-corporation-oxy-good-195715658.html)
+- Sep 14 - [Occidental Petroleum Corporation (OXY): Analysts Recommend This Commodity Stock Right Now](https://finance.yahoo.com/news/occidental-petroleum-corporation-oxy-analysts-205405015.html)
 - Sep 14 - [Holocaust survivor reunited with cello of musician father murdered by Nazis](https://www.yahoo.com/news/holocaust-survivor-reunited-cello-musician-190017700.html)
+- Sep 14 - [Bill Maher Goes Big With Trump Prediction: 'I Have The Credibility For This'](https://www.yahoo.com/entertainment/bill-maher-goes-big-trump-162755736.html)
 - Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
-- Sep 14 - [Home Depot to pay $2 million settlement for overcharging customers](https://finance.yahoo.com/news/home-depot-pay-2-million-133019838.html)
-- Sep 14 - [Former Charlotte radio personality found dead in car of ‘blunt trauma,’ sheriff says](https://www.yahoo.com/news/former-charlotte-radio-personality-found-125050468.html)
+- Sep 14 - [Donald Trump calls Kamala Harris the ‘worst vice president’ ever. Where does she rank?](https://www.yahoo.com/news/donald-trump-calls-kamala-harris-140000940.html)
 <!-- feed end -->
 
 ### Onstream
