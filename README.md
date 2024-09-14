@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [3 teens stabbed in Palm Desert on Friday night; 2 taken to hospital with critical injuries](https://www.yahoo.com/news/3-teens-stabbed-palm-desert-164031753.html)
-- Sep 14 - [Slain Ugandan Olympian laid to rest with full military honors](https://www.yahoo.com/news/slain-ugandan-olympian-laid-rest-163147772.html)
+- Sep 14 - [Occidental Petroleum Corporation (OXY): A Good Energy Stock to Add to Your Retirement Stock Portfolio](https://finance.yahoo.com/news/occidental-petroleum-corporation-oxy-good-195715658.html)
+- Sep 14 - [Holocaust survivor reunited with cello of musician father murdered by Nazis](https://www.yahoo.com/news/holocaust-survivor-reunited-cello-musician-190017700.html)
 - Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
+- Sep 14 - [Home Depot to pay $2 million settlement for overcharging customers](https://finance.yahoo.com/news/home-depot-pay-2-million-133019838.html)
 - Sep 14 - [Former Charlotte radio personality found dead in car of ‘blunt trauma,’ sheriff says](https://www.yahoo.com/news/former-charlotte-radio-personality-found-125050468.html)
-- Sep 14 - [The US Army put on a sudden show of force out on the far edge of Alaska to send the message it can as Russia and China partner in the Pacific](https://www.yahoo.com/news/us-army-put-sudden-show-123646926.html)
 <!-- feed end -->
 
 ### Onstream
