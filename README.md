@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Ileana floods roads after making landfall in northern Mexico](https://www.yahoo.com/news/ileana-floods-roads-making-landfall-033626104.html)
-- Sep 14 - [Jury issues verdict in Big City Coffee lawsuit against Boise State administrators](https://www.yahoo.com/news/jury-issues-verdict-big-city-025942359.html)
-- Sep 14 - [Trunk taped shut with electrical tape: New details on man found in car in west Wichita](https://www.yahoo.com/news/trunk-taped-shut-electrical-tape-000352388.html)
-- Sep 14 - [Remains of Elijah Vue, Wisconsin toddler missing since February, found in thick wooded area](https://www.yahoo.com/news/remains-elijah-vue-wisconsin-toddler-000011964.html)
-- Sep 13 - [‘Totally flabbergasted’: Lifelong venomous snake keeper reacts to how Florence man handled inland taipan before bite](https://www.yahoo.com/news/totally-flabbergasted-lifelong-venomous-snake-223401851.html)
+- Sep 13 - [Scorned Wife: MAGA Rep, 59, Had Affair With 32-Year-Old](https://www.yahoo.com/news/scorned-wife-maga-rep-59-230626264.html)
+- Sep 13 - [Victim in deadly Orinda road-rage incident identified](https://www.yahoo.com/news/victim-deadly-orinda-road-rage-221455012.html)
+- Sep 13 - [Elon Musk now travels with up to 20 bodyguards who refer to him by the code name 'Voyager,' report says](https://autos.yahoo.com/elon-musk-now-travels-20-214750379.html)
+- Sep 13 - [Boeing Starliner astronaut: ‘We found some things that we just could not get comfortable with’](https://www.yahoo.com/news/starliner-astronaut-ran-time-return-202725197.html)
+- Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
 <!-- feed end -->
 
 ### Onstream
