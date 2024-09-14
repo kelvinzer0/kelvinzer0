@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 14 - [Women in Iran are going without hijabs as the 2nd anniversary of Mahsa Amini's death approaches](https://www.yahoo.com/news/women-iran-going-without-hijabs-050956865.html)
 - Sep 14 - [In Belarus, the native language is vanishing as Russian takes prominence](https://www.yahoo.com/news/belarus-native-language-vanishing-russian-041839386.html)
-- Sep 14 - [Trunk taped shut with electrical tape: New details on man found in car in west Wichita](https://www.yahoo.com/news/trunk-taped-shut-electrical-tape-000352388.html)
+- Sep 13 - [UGA football player arrested for driving at speeds above 100 miles per hour](https://www.yahoo.com/news/uga-football-player-arrested-driving-183730924.html)
 - Sep 13 - [Victim in deadly Orinda road-rage incident identified](https://www.yahoo.com/news/victim-deadly-orinda-road-rage-221455012.html)
-- Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
+- Sep 13 - [Lawyers file to dismiss lawsuit over tithing fraud against LDS church, investment arm](https://www.yahoo.com/news/lawyers-file-dismiss-lawsuit-over-221255870.html)
 <!-- feed end -->
 
 ### Onstream
