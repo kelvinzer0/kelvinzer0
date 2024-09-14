@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [China new home prices fall at fastest pace in over 9 years in Aug](https://finance.yahoo.com/news/china-home-prices-fall-fastest-014555339.html)
+- Sep 13 - [UGA football player arrested for driving at speeds above 100 miles per hour](https://www.yahoo.com/news/uga-football-player-arrested-driving-183730924.html)
 - Sep 13 - [Boeing Starliner astronaut: ‘We found some things that we just could not get comfortable with’](https://www.yahoo.com/news/starliner-astronaut-ran-time-return-202725197.html)
 - Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
 - Sep 13 - [Severely entangled whale freed from fishing ropes in Canada](https://www.yahoo.com/news/severely-entangled-whale-freed-fishing-205719969.html)
-- Sep 13 - [Report says former University of Florida president Ben Sasse spent $1.3 million on social events](https://www.yahoo.com/news/report-says-former-university-florida-181924950.html)
-- Sep 13 - [Brazil top court lifts Starlink, X bank account freeze after $3 million transfer](https://www.yahoo.com/tech/brazil-top-court-lifts-starlink-172111209.html)
 <!-- feed end -->
 
 ### Onstream
