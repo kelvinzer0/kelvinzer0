@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Miami-Dade cop who cuffed Tyreek Hill had previous disciplinary issues, report says](https://www.yahoo.com/news/miami-dade-cop-cuffed-tyreek-214420068.html)
+- Sep 13 - [TVA sues Cheatham County landowners as push to build new methane gas plant moves forward](https://www.yahoo.com/news/tva-sues-cheatham-county-landowners-232156975.html)
+- Sep 13 - [Watch this 7 year old ‘steal’ her neighbor’s husky and replace it with a stuffed dog](https://www.yahoo.com/lifestyle/watch-7-old-steal-her-224732583.html)
+- Sep 13 - [Lawyers file to dismiss lawsuit over tithing fraud against LDS church, investment arm](https://www.yahoo.com/news/lawyers-file-dismiss-lawsuit-over-221255870.html)
 - Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
 - Sep 13 - [Lynda Carter, Original Wonder Woman, Tells Arizonans Not To Vote For Her Sister](https://www.yahoo.com/news/lynda-carter-original-wonder-woman-210748600.html)
-- Sep 13 - [Do You Know If You're Wealthy Or Just 'Rich'? Here's The Difference And How Much You Need To Be Both](https://finance.yahoo.com/news/know-youre-wealthy-just-rich-193121445.html)
-- Sep 13 - [After just a few hours, U.S. election bets put on hold by appeals court ruling](https://www.yahoo.com/news/just-few-hours-u-election-192311367.html)
 <!-- feed end -->
 
 ### Onstream
