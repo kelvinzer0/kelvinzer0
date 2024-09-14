@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [How Should a Beginner Invest in Stocks? Start With This ETF.](https://finance.yahoo.com/news/beginner-invest-stocks-start-etf-101000512.html)
-- Sep 14 - [Women in Iran are going without hijabs as the 2nd anniversary of Mahsa Amini's death approaches](https://www.yahoo.com/news/women-iran-going-without-hijabs-050956865.html)
-- Sep 14 - [Man knocks out woman waiting at Downtown Dallas intersection, video shows](https://www.yahoo.com/news/man-knocks-woman-waiting-downtown-021440477.html)
-- Sep 14 - [Trunk taped shut with electrical tape: New details on man found in car in west Wichita](https://www.yahoo.com/news/trunk-taped-shut-electrical-tape-000352388.html)
-- Sep 13 - [US satellite-TV providers DirecTV and Dish are in talks to merge again, source says](https://finance.yahoo.com/news/directv-dish-talks-again-merge-231024577.html)
+- Sep 14 - [Kingsley Plantation temporarily closed due to flooding after heavy rainfall](https://www.yahoo.com/news/kingsley-plantation-temporarily-closed-due-120419531.html)
+- Sep 14 - [Warren Buffett once said waiting for a market crash to buy stocks is like a mortician waiting for an epidemic — here’s why](https://finance.yahoo.com/news/warren-buffett-once-said-waiting-102200712.html)
+- Sep 14 - [Webb telescope peers into our galaxy's outskirts, sees stunning scene](https://www.yahoo.com/lifestyle/webb-telescope-peers-galaxys-outskirts-090000480.html)
+- Sep 14 - [In Belarus, the native language is vanishing as Russian takes prominence](https://www.yahoo.com/news/belarus-native-language-vanishing-russian-041839386.html)
+- Sep 14 - [Jury issues verdict in Big City Coffee lawsuit against Boise State administrators](https://www.yahoo.com/news/jury-issues-verdict-big-city-025942359.html)
 <!-- feed end -->
 
 ### Onstream
