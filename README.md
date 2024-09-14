@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Former Russian president threatens to turn Kyiv into ‘melted spot’ if long-range missiles approved](https://www.yahoo.com/news/former-russian-president-threatens-turn-162604356.html)
-- Sep 14 - [Where Is Susan Smith Now? A Look At Her Life in Prison 30 Years After Drowning Her Sons](https://www.yahoo.com/news/where-susan-smith-now-look-150000100.html)
+- Sep 14 - [Freed offender accused of sexual assault ‘within hour of early release’](https://www.yahoo.com/news/freed-offender-accused-sexual-assault-180131643.html)
+- Sep 14 - [New evidence upends contentious Easter Island theory, scientists say](https://www.yahoo.com/news/ancient-dna-adds-evidence-debunking-110019524.html)
+- Sep 14 - [3 teens stabbed in Palm Desert on Friday night; 2 taken to hospital with critical injuries](https://www.yahoo.com/news/3-teens-stabbed-palm-desert-164031753.html)
+- Sep 14 - [Bill Maher Goes Big With Trump Prediction: 'I Have The Credibility For This'](https://www.yahoo.com/entertainment/bill-maher-goes-big-trump-162755736.html)
 - Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
-- Sep 14 - [Miami-Dade Police officer at the center of Tyreek Hill traffic stop has been suspended several times, police records show](https://www.yahoo.com/news/miami-dade-police-officer-center-142236260.html)
-- Sep 14 - [Home Depot to pay $2 million settlement for overcharging customers](https://finance.yahoo.com/news/home-depot-pay-2-million-133019838.html)
 <!-- feed end -->
 
 ### Onstream
