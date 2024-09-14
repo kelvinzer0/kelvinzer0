@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Scorned Wife: MAGA Rep, 59, Had Affair With 32-Year-Old](https://www.yahoo.com/news/scorned-wife-maga-rep-59-230626264.html)
+- Sep 14 - [In Belarus, the native language is vanishing as Russian takes prominence](https://www.yahoo.com/news/belarus-native-language-vanishing-russian-041839386.html)
 - Sep 13 - [Victim in deadly Orinda road-rage incident identified](https://www.yahoo.com/news/victim-deadly-orinda-road-rage-221455012.html)
+- Sep 13 - [Lawyers file to dismiss lawsuit over tithing fraud against LDS church, investment arm](https://www.yahoo.com/news/lawyers-file-dismiss-lawsuit-over-221255870.html)
 - Sep 13 - [Elon Musk now travels with up to 20 bodyguards who refer to him by the code name 'Voyager,' report says](https://autos.yahoo.com/elon-musk-now-travels-20-214750379.html)
 - Sep 13 - [Boeing Starliner astronaut: ‘We found some things that we just could not get comfortable with’](https://www.yahoo.com/news/starliner-astronaut-ran-time-return-202725197.html)
-- Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
 <!-- feed end -->
 
 ### Onstream
