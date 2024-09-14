@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [A Minnesota man gets 33 years for fatally stabbing his wife during Bible study](https://www.yahoo.com/news/minnesota-man-gets-33-years-214032595.html)
-- Sep 14 - [CDC: 'Close contact' of Mo. bird flu patient also fell ill, but human transmission unlikely](https://www.yahoo.com/news/cdc-close-contact-mo-bird-195824140.html)
+- Sep 14 - [Is Apple Inc. (AAPL) the Best Stock Pick You Need to Know in Jim Cramer’s Latest Watchlist?](https://finance.yahoo.com/news/apple-inc-aapl-best-stock-213557821.html)
 - Sep 14 - [Ukraine's spy chief says N. Korean military aid to Russia presents major battlefield problem](https://www.yahoo.com/news/ukraines-spy-chief-says-n-194400578.html)
-- Sep 14 - [Holocaust survivor reunited with cello of musician father murdered by Nazis](https://www.yahoo.com/news/holocaust-survivor-reunited-cello-musician-190017700.html)
 - Sep 14 - [New evidence upends contentious Easter Island theory, scientists say](https://www.yahoo.com/news/ancient-dna-adds-evidence-debunking-110019524.html)
+- Sep 14 - [Bill Maher Goes Big With Trump Prediction: 'I Have The Credibility For This'](https://www.yahoo.com/entertainment/bill-maher-goes-big-trump-162755736.html)
+- Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
 <!-- feed end -->
 
 ### Onstream
