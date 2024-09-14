@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Women in Iran are going without hijabs as the 2nd anniversary of Mahsa Amini's death approaches](https://www.yahoo.com/news/women-iran-going-without-hijabs-050956865.html)
 - Sep 14 - [In Belarus, the native language is vanishing as Russian takes prominence](https://www.yahoo.com/news/belarus-native-language-vanishing-russian-041839386.html)
+- Sep 14 - [Trunk taped shut with electrical tape: New details on man found in car in west Wichita](https://www.yahoo.com/news/trunk-taped-shut-electrical-tape-000352388.html)
 - Sep 13 - [Victim in deadly Orinda road-rage incident identified](https://www.yahoo.com/news/victim-deadly-orinda-road-rage-221455012.html)
-- Sep 13 - [Lawyers file to dismiss lawsuit over tithing fraud against LDS church, investment arm](https://www.yahoo.com/news/lawyers-file-dismiss-lawsuit-over-221255870.html)
-- Sep 13 - [Elon Musk now travels with up to 20 bodyguards who refer to him by the code name 'Voyager,' report says](https://autos.yahoo.com/elon-musk-now-travels-20-214750379.html)
-- Sep 13 - [Boeing Starliner astronaut: ‘We found some things that we just could not get comfortable with’](https://www.yahoo.com/news/starliner-astronaut-ran-time-return-202725197.html)
+- Sep 13 - [Judge frees Colorado paramedic convicted in death of Elijah McClain from prison](https://www.yahoo.com/news/judge-frees-colorado-paramedic-convicted-210916806.html)
 <!-- feed end -->
 
 ### Onstream
