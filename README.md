@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Two Russian soldiers predict their own deaths after arguing with commanding officer](https://www.yahoo.com/news/two-russian-soldiers-predict-own-174253066.html)
+- Sep 15 - [Neighbours of 'Britain's best beach' say it is being 'mined for profit' as tonnes of sand is removed and sold](https://www.yahoo.com/news/locals-britains-best-beach-mined-profit-sand-removed-173954675.html)
 - Sep 15 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
-- Sep 15 - [California’s earliest snow advisory in nearly 20 years could also bring month’s worth of rain](https://www.yahoo.com/news/california-earliest-snow-advisory-nearly-155402015.html)
-- Sep 15 - [Ukraine suffering high losses due to slow arms supplies, says Zelenskiy](https://www.yahoo.com/news/ukraine-suffering-high-losses-due-152854303.html)
-- Sep 15 - [JD Vance appears to admit tale about Haitian immigrants eating pets is made-up as he loses cool with CNN host](https://www.yahoo.com/news/jd-vance-appears-admit-tale-151656091.html)
-- Sep 15 - [Desert Hot Springs man who died in crash Saturday identified](https://www.yahoo.com/news/desert-hot-springs-man-died-150151498.html)
+- Sep 15 - [Donald Trump Unleashes All Caps Truth Social Tirade: ‘I HATE TAYLOR SWIFT’](https://www.yahoo.com/entertainment/donald-trump-unleashes-caps-truth-164758234.html)
+- Sep 15 - [Vance says ‘I’ve learned my lesson’ on speaking for Trump](https://www.yahoo.com/news/vance-says-ve-learned-lesson-154359989.html)
 <!-- feed end -->
 
 ### Onstream
