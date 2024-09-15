@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - ['Catastrophe' as Central Europe deals with deadly floods](https://www.yahoo.com/news/catastrophe-central-europe-deals-deadly-055144262.html)
+- Sep 15 - [Southern California man sentenced to 152 years in prison for raping children](https://www.yahoo.com/news/southern-california-man-sentenced-152-042931996.html)
 - Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
 - Sep 15 - [Man, 34, arrested for stealing campus keys from North Bay high school](https://www.yahoo.com/news/man-34-arrested-stealing-campus-005052803.html)
-- Sep 14 - [Rain likely — and thunderstorms possible — in Boise area. Here’s when and what to know](https://www.yahoo.com/news/rain-likely-thunderstorms-possible-boise-231320676.html)
-- Sep 14 - [Thousands gather in Tel Aviv demanding a deal to free hostages held in Gaza](https://www.yahoo.com/news/thousands-gather-tel-aviv-demanding-223518528.html)
+- Sep 14 - [Montgomery Public Schools superintendent announces resignation](https://www.yahoo.com/news/montgomery-public-schools-superintendent-announces-210826683.html)
+- Sep 14 - [Ukraine's spy chief says N. Korean military aid to Russia presents major battlefield problem](https://www.yahoo.com/news/ukraines-spy-chief-says-n-194400578.html)
 <!-- feed end -->
 
 ### Onstream
