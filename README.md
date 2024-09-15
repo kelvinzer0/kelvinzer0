@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Two Russian soldiers predict their own deaths after arguing with commanding officer](https://www.yahoo.com/news/two-russian-soldiers-predict-own-174253066.html)
+- Sep 15 - [Gunshots fired in Trump’s vicinity as he is scrambled to safety at golf course](https://www.yahoo.com/news/gunshots-fired-trump-vicinity-golf-183630522.html)
+- Sep 15 - [The Health of the Economy in Every State When Trump Was President](https://finance.yahoo.com/news/health-economy-every-state-trump-141038224.html)
 - Sep 15 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
 - Sep 15 - [Some baby boomers are burning through their retirement savings to pay for cancer treatments. Then they have to go back to work.](https://finance.yahoo.com/news/baby-boomers-burning-retirement-savings-165102809.html)
 - Sep 15 - [Donald Trump Unleashes All Caps Truth Social Tirade: ‘I HATE TAYLOR SWIFT’](https://www.yahoo.com/news/donald-trump-unleashes-caps-truth-164758234.html)
-- Sep 15 - [Notes placed in Western Wall removed ahead of Rosh Hashanah](https://www.yahoo.com/news/notes-placed-western-wall-removed-152230569.html)
 <!-- feed end -->
 
 ### Onstream
