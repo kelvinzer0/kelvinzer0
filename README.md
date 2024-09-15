@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Lammy: West will not be bullied by Putin as talks continue on long-range strikes](https://www.yahoo.com/news/lammy-west-not-bullied-putin-085011423.html)
+- Sep 15 - [Opinion | A resurfaced Vance interview reveals the truth about MAGA populism](https://www.yahoo.com/news/opinion-resurfaced-vance-interview-reveals-102651948.html)
+- Sep 15 - [The Smartest Dividend Stocks to Buy With $500 Right Now](https://finance.yahoo.com/news/smartest-dividend-stocks-buy-500-101500065.html)
 - Sep 15 - ['I tried to say no repeatedly': More men accuse ex-Abercrombie boss over sex events](https://www.yahoo.com/news/tried-no-repeatedly-more-men-233254168.html)
-- Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
 - Sep 14 - [Taylor Swift’s endorsement backfires on Kamala Harris](https://www.yahoo.com/news/taylor-swift-endorsement-backfires-kamala-235647265.html)
-- Sep 14 - [Federal judge temporarily blocks Biden administration rule to limit flaring of gas at oil wells](https://www.yahoo.com/news/federal-judge-temporarily-blocks-biden-222202569.html)
-- Sep 14 - [Ukraine's spy chief says N. Korean military aid to Russia presents major battlefield problem](https://www.yahoo.com/news/ukraines-spy-chief-says-n-194400578.html)
 <!-- feed end -->
 
 ### Onstream
