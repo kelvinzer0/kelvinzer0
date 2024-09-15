@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [UK to see warmer temperatures next week as London forecast to be hotter than Barcelona](https://www.yahoo.com/news/people-return-uk-beaches-cold-220928245.html)
+- Sep 15 - [Turkey's 'balancing act' with BRICS may stoke NATO fears, but the West needn't be too worried, analysts say](https://www.yahoo.com/news/turkeys-balancing-act-brics-may-122802257.html)
+- Sep 15 - [Shogun: How an Englishman from Kent made an extraordinary journey to become the first western samurai](https://www.yahoo.com/news/shogun-englishman-kent-made-extraordinary-060000929.html)
 - Sep 15 - [Opinion | A resurfaced Vance interview reveals the truth about MAGA populism](https://www.yahoo.com/news/opinion-resurfaced-vance-interview-reveals-102651948.html)
-- Sep 15 - [I was a remote worker at Google. I quit after the company refused to let me move to take care of my dad.](https://www.yahoo.com/tech/remote-worker-google-quit-company-101302901.html)
 - Sep 15 - ['I tried to say no repeatedly': More men accuse ex-Abercrombie boss over sex events](https://www.yahoo.com/news/tried-no-repeatedly-more-men-233254168.html)
 - Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
 <!-- feed end -->
