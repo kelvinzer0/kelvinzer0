@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Southern California man sentenced to 152 years in prison for raping children](https://www.yahoo.com/news/southern-california-man-sentenced-152-042931996.html)
 - Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
 - Sep 15 - [Man, 34, arrested for stealing campus keys from North Bay high school](https://www.yahoo.com/news/man-34-arrested-stealing-campus-005052803.html)
-- Sep 14 - [Montgomery Public Schools superintendent announces resignation](https://www.yahoo.com/news/montgomery-public-schools-superintendent-announces-210826683.html)
+- Sep 14 - [Fitness influencer Miguel Angel Aguilar shot in Bel Air attempted robbery, TMZ reports](https://www.yahoo.com/news/fitness-influencer-miguel-angel-aguilar-235641511.html)
 - Sep 14 - [Ukraine's spy chief says N. Korean military aid to Russia presents major battlefield problem](https://www.yahoo.com/news/ukraines-spy-chief-says-n-194400578.html)
+- Sep 14 - [Airline kicks 14-year-old off flight and leaves her alone in the airport over weight imbalance](https://www.yahoo.com/news/airline-kicks-14-old-off-215309001.html)
 <!-- feed end -->
 
 ### Onstream
