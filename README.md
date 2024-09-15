@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Gunshots fired in Trump’s vicinity as he is scrambled to safety at golf course](https://www.yahoo.com/news/gunshots-fired-trump-vicinity-golf-183630522.html)
-- Sep 15 - [The Health of the Economy in Every State When Trump Was President](https://finance.yahoo.com/news/health-economy-every-state-trump-141038224.html)
+- Sep 15 - [Looking for a job? One sector where they are 'booming'](https://finance.yahoo.com/video/looking-job-one-sector-where-210000071.html)
+- Sep 15 - [Can In-store Sex Therapists, Skate Ramps and Cinemas Save the Luxury Department Store?](https://finance.yahoo.com/news/store-sex-therapists-skate-ramps-203313576.html)
+- Sep 15 - [Harris campaign mocks Trump after his ‘I hate Taylor Swift’ post](https://www.yahoo.com/news/harris-campaign-mocks-trump-hate-180416507.html)
+- Sep 15 - [Your old iPhone could be worth big bucks. Here’s what to look for](https://www.yahoo.com/tech/old-iphone-could-worth-big-170000418.html)
 - Sep 15 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
-- Sep 15 - [Some baby boomers are burning through their retirement savings to pay for cancer treatments. Then they have to go back to work.](https://finance.yahoo.com/news/baby-boomers-burning-retirement-savings-165102809.html)
-- Sep 15 - [Donald Trump Unleashes All Caps Truth Social Tirade: ‘I HATE TAYLOR SWIFT’](https://www.yahoo.com/news/donald-trump-unleashes-caps-truth-164758234.html)
 <!-- feed end -->
 
 ### Onstream
