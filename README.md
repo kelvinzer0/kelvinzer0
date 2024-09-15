@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [John Roberts’ Secret Trump Memo Revealed in Huge SCOTUS Leak](https://www.yahoo.com/news/john-roberts-secret-trump-memo-143303014.html)
+- Sep 15 - [Jesenik in Czech Republic inundated and isolated by raging floodwaters turning roads into rivers](https://www.yahoo.com/news/jesenik-czech-republic-inundated-isolated-141751109.html)
 - Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
-- Sep 15 - [A Star Appears to Have Come Closer to Earth Than the Voyager Probes](https://www.yahoo.com/news/star-appears-come-closer-earth-103004016.html)
-- Sep 15 - [Woman arrested in deadly downtown Minneapolis hit-and-run, community reacts](https://www.yahoo.com/news/woman-arrested-deadly-downtown-minneapolis-002516027.html)
-- Sep 14 - [Taylor Swift’s endorsement backfires on Kamala Harris](https://www.yahoo.com/news/taylor-swift-endorsement-backfires-kamala-235647265.html)
-- Sep 14 - [Fitness influencer Miguel Angel Aguilar shot in Bel Air attempted robbery, TMZ reports](https://www.yahoo.com/news/fitness-influencer-miguel-angel-aguilar-235641511.html)
+- Sep 15 - [Opinion | A resurfaced Vance interview reveals the truth about MAGA populism](https://www.yahoo.com/news/opinion-resurfaced-vance-interview-reveals-102651948.html)
+- Sep 15 - [Why your resting heart rate is important and what it means for your health](https://www.yahoo.com/lifestyle/why-resting-heart-rate-important-070000802.html)
 <!-- feed end -->
 
 ### Onstream
