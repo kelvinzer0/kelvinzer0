@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Lammy: West will not be bullied by Putin as talks continue on long-range strikes](https://www.yahoo.com/news/lammy-west-not-bullied-putin-085011423.html)
+- Sep 15 - [UK to see warmer temperatures next week as London forecast to be hotter than Barcelona](https://www.yahoo.com/news/people-return-uk-beaches-cold-220928245.html)
 - Sep 15 - [Opinion | A resurfaced Vance interview reveals the truth about MAGA populism](https://www.yahoo.com/news/opinion-resurfaced-vance-interview-reveals-102651948.html)
-- Sep 15 - [The Smartest Dividend Stocks to Buy With $500 Right Now](https://finance.yahoo.com/news/smartest-dividend-stocks-buy-500-101500065.html)
+- Sep 15 - [I was a remote worker at Google. I quit after the company refused to let me move to take care of my dad.](https://www.yahoo.com/tech/remote-worker-google-quit-company-101302901.html)
 - Sep 15 - ['I tried to say no repeatedly': More men accuse ex-Abercrombie boss over sex events](https://www.yahoo.com/news/tried-no-repeatedly-more-men-233254168.html)
-- Sep 14 - [Taylor Swift’s endorsement backfires on Kamala Harris](https://www.yahoo.com/news/taylor-swift-endorsement-backfires-kamala-235647265.html)
+- Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
 <!-- feed end -->
 
 ### Onstream
