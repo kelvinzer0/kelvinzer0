@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 14 - [Federal judge temporarily blocks Biden administration rule to limit flaring of gas at oil wells](https://www.yahoo.com/news/federal-judge-temporarily-blocks-biden-222202569.html)
 - Sep 14 - [Ukraine's spy chief says N. Korean military aid to Russia presents major battlefield problem](https://www.yahoo.com/news/ukraines-spy-chief-says-n-194400578.html)
+- Sep 14 - [River otter drags child off dock and underwater in rare attack at Washington marina](https://www.yahoo.com/news/river-otter-drags-child-off-174237004.html)
+- Sep 14 - [New evidence upends contentious Easter Island theory, scientists say](https://www.yahoo.com/news/ancient-dna-adds-evidence-debunking-110019524.html)
 - Sep 14 - [Slain Ugandan Olympian laid to rest with full military honors](https://www.yahoo.com/news/slain-ugandan-olympian-laid-rest-163147772.html)
-- Sep 14 - [Bill Maher Goes Big With Trump Prediction: 'I Have The Credibility For This'](https://www.yahoo.com/entertainment/bill-maher-goes-big-trump-162755736.html)
-- Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
 <!-- feed end -->
 
 ### Onstream
