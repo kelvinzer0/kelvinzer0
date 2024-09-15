@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
 - Sep 15 - [Harris campaign mocks Trump after his ‘I hate Taylor Swift’ post](https://www.yahoo.com/news/harris-campaign-mocks-trump-hate-180416507.html)
-- Sep 15 - [Two Russian soldiers predict their own deaths after arguing with commanding officer](https://www.yahoo.com/news/two-russian-soldiers-predict-own-174253360.html)
 - Sep 15 - [Your old iPhone could be worth big bucks. Here’s what to look for](https://www.yahoo.com/tech/old-iphone-could-worth-big-170000418.html)
 - Sep 15 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
+- Sep 15 - [Some baby boomers are burning through their retirement savings to pay for cancer treatments. Then they have to go back to work.](https://finance.yahoo.com/news/baby-boomers-burning-retirement-savings-165102809.html)
+- Sep 15 - [Top legal adviser to New York City mayor quits as investigations swell](https://www.yahoo.com/news/top-legal-adviser-york-city-155224548.html)
 <!-- feed end -->
 
 ### Onstream
