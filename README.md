@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 15 - ['I tried to say no repeatedly': More men accuse ex-Abercrombie boss over sex events](https://www.yahoo.com/news/tried-no-repeatedly-more-men-233254168.html)
 - Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
-- Sep 15 - [Man, 34, arrested for stealing campus keys from North Bay high school](https://www.yahoo.com/news/man-34-arrested-stealing-campus-005052803.html)
 - Sep 14 - [Taylor Swift’s endorsement backfires on Kamala Harris](https://www.yahoo.com/news/taylor-swift-endorsement-backfires-kamala-235647265.html)
 - Sep 14 - [Federal judge temporarily blocks Biden administration rule to limit flaring of gas at oil wells](https://www.yahoo.com/news/federal-judge-temporarily-blocks-biden-222202569.html)
+- Sep 14 - [Ukraine's spy chief says N. Korean military aid to Russia presents major battlefield problem](https://www.yahoo.com/news/ukraines-spy-chief-says-n-194400578.html)
 <!-- feed end -->
 
 ### Onstream
