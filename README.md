@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Westmoreland County church reopens years after devastating fire](https://www.yahoo.com/news/westmoreland-county-church-reopens-years-154706388.html)
+- Sep 15 - [North Korea inadvertently gives away location of nuclear weapons facility with pictures of Kim Jong-un visit](https://www.yahoo.com/news/north-korea-inadvertently-gives-away-110345952.html)
+- Sep 15 - [Motorcyclist killed in crash with car](https://www.yahoo.com/news/motorcyclist-killed-crash-car-144736439.html)
+- Sep 15 - ["We're creating a story": Vance admits he's making up Haitian immigrant smears](https://www.yahoo.com/news/were-creating-story-vance-admits-143744386.html)
 - Sep 15 - [John Roberts’ Secret Trump Memo Revealed in Huge SCOTUS Leak](https://www.yahoo.com/news/john-roberts-secret-trump-memo-143303014.html)
-- Sep 15 - [Jesenik in Czech Republic inundated and isolated by raging floodwaters turning roads into rivers](https://www.yahoo.com/news/jesenik-czech-republic-inundated-isolated-141751109.html)
-- Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
-- Sep 15 - [Opinion | A resurfaced Vance interview reveals the truth about MAGA populism](https://www.yahoo.com/news/opinion-resurfaced-vance-interview-reveals-102651948.html)
-- Sep 15 - [Why your resting heart rate is important and what it means for your health](https://www.yahoo.com/lifestyle/why-resting-heart-rate-important-070000802.html)
 <!-- feed end -->
 
 ### Onstream
