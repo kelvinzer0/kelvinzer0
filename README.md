@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Westmoreland County church reopens years after devastating fire](https://www.yahoo.com/news/westmoreland-county-church-reopens-years-154706388.html)
-- Sep 15 - [North Korea inadvertently gives away location of nuclear weapons facility with pictures of Kim Jong-un visit](https://www.yahoo.com/news/north-korea-inadvertently-gives-away-110345952.html)
-- Sep 15 - [Motorcyclist killed in crash with car](https://www.yahoo.com/news/motorcyclist-killed-crash-car-144736439.html)
-- Sep 15 - ["We're creating a story": Vance admits he's making up Haitian immigrant smears](https://www.yahoo.com/news/were-creating-story-vance-admits-143744386.html)
-- Sep 15 - [John Roberts’ Secret Trump Memo Revealed in Huge SCOTUS Leak](https://www.yahoo.com/news/john-roberts-secret-trump-memo-143303014.html)
+- Sep 15 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
+- Sep 15 - [California’s earliest snow advisory in nearly 20 years could also bring month’s worth of rain](https://www.yahoo.com/news/california-earliest-snow-advisory-nearly-155402015.html)
+- Sep 15 - [Ukraine suffering high losses due to slow arms supplies, says Zelenskiy](https://www.yahoo.com/news/ukraine-suffering-high-losses-due-152854303.html)
+- Sep 15 - [JD Vance appears to admit tale about Haitian immigrants eating pets is made-up as he loses cool with CNN host](https://www.yahoo.com/news/jd-vance-appears-admit-tale-151656091.html)
+- Sep 15 - [Desert Hot Springs man who died in crash Saturday identified](https://www.yahoo.com/news/desert-hot-springs-man-died-150151498.html)
 <!-- feed end -->
 
 ### Onstream
