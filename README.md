@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Is Apple Inc. (AAPL) the Best Stock Pick You Need to Know in Jim Cramer’s Latest Watchlist?](https://finance.yahoo.com/news/apple-inc-aapl-best-stock-213557821.html)
+- Sep 14 - [If You Have $1 Million in Retirement Savings, Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/1-million-retirement-savings-much-130015039.html)
+- Sep 14 - [Thousands gather in Tel Aviv demanding a deal to free hostages held in Gaza](https://www.yahoo.com/news/thousands-gather-tel-aviv-demanding-223518528.html)
 - Sep 14 - [Ukraine's spy chief says N. Korean military aid to Russia presents major battlefield problem](https://www.yahoo.com/news/ukraines-spy-chief-says-n-194400578.html)
-- Sep 14 - [New evidence upends contentious Easter Island theory, scientists say](https://www.yahoo.com/news/ancient-dna-adds-evidence-debunking-110019524.html)
-- Sep 14 - [Bill Maher Goes Big With Trump Prediction: 'I Have The Credibility For This'](https://www.yahoo.com/entertainment/bill-maher-goes-big-trump-162755736.html)
-- Sep 14 - [A landslide triggered a 650-foot mega-tsunami in Greenland. Then came something inexplicable](https://www.yahoo.com/news/scientists-solved-mystery-650-foot-080020081.html)
+- Sep 14 - [Crash kills 2 on major Charlotte highway Saturday. Lanes closed. Expect delays.](https://www.yahoo.com/news/crash-kills-2-major-charlotte-172353286.html)
+- Sep 14 - [Woman robbed by armed men on Manchester Road](https://www.yahoo.com/news/woman-robbed-armed-men-manchester-162625435.html)
 <!-- feed end -->
 
 ### Onstream
