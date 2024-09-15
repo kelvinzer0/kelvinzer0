@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 15 - [Two Russian soldiers predict their own deaths after arguing with commanding officer](https://www.yahoo.com/news/two-russian-soldiers-predict-own-174253066.html)
-- Sep 15 - [Neighbours of 'Britain's best beach' say it is being 'mined for profit' as tonnes of sand is removed and sold](https://www.yahoo.com/news/locals-britains-best-beach-mined-profit-sand-removed-173954675.html)
 - Sep 15 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
-- Sep 15 - [Donald Trump Unleashes All Caps Truth Social Tirade: ‘I HATE TAYLOR SWIFT’](https://www.yahoo.com/entertainment/donald-trump-unleashes-caps-truth-164758234.html)
-- Sep 15 - [Vance says ‘I’ve learned my lesson’ on speaking for Trump](https://www.yahoo.com/news/vance-says-ve-learned-lesson-154359989.html)
+- Sep 15 - [Some baby boomers are burning through their retirement savings to pay for cancer treatments. Then they have to go back to work.](https://finance.yahoo.com/news/baby-boomers-burning-retirement-savings-165102809.html)
+- Sep 15 - [Donald Trump Unleashes All Caps Truth Social Tirade: ‘I HATE TAYLOR SWIFT’](https://www.yahoo.com/news/donald-trump-unleashes-caps-truth-164758234.html)
+- Sep 15 - [Notes placed in Western Wall removed ahead of Rosh Hashanah](https://www.yahoo.com/news/notes-placed-western-wall-removed-152230569.html)
 <!-- feed end -->
 
 ### Onstream
