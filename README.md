@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Millions failing to put enough in pension for comfortable retirement, says IFS](https://uk.finance.yahoo.com/news/pension-savings-comfortable-retirement-050053026.html)
-- Sep 16 - [Israel targets southern Lebanon with heavy airstrikes as tensions continue](https://www.yahoo.com/news/israel-targets-southern-lebanon-heavy-023758912.html)
-- Sep 16 - [The stone-eaters that threaten Iran's ancient Persepolis](https://www.yahoo.com/news/stone-eaters-threaten-irans-ancient-020956747.html)
+- Sep 16 - [Europe's EV troubles bubble up at Brussels Audi factory](https://www.yahoo.com/news/europes-ev-troubles-bubble-brussels-060430486.html)
 - Sep 16 - [A Distant Spacecraft Has Confirmed That Earth Is Habitable](https://www.yahoo.com/news/distant-spacecraft-confirmed-earth-habitable-004900764.html)
-- Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
+- Sep 15 - [Waffle House employee killed after customer becomes irate, police say](https://www.yahoo.com/news/waffle-house-employee-killed-customer-180702831.html)
+- Sep 15 - [Minnesota motorist kills 16-year-old by driving into a crowd](https://www.yahoo.com/news/minnesota-motorist-kills-16-old-193640914.html)
+- Sep 15 - [Atlanta man tosses large trash bag out car window. It was anything but garbage](https://www.yahoo.com/news/atlanta-man-tosses-large-trash-175346055.html)
 <!-- feed end -->
 
 ### Onstream
