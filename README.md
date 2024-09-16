@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Wichita-area restaurants ordered to pay nearly $1 million in back wages to employees](https://www.yahoo.com/news/wichita-area-restaurants-ordered-pay-192956427.html)
-- Sep 16 - [US Secret Service says it is aware of Musk post about Biden, Harris](https://www.yahoo.com/news/us-secret-says-aware-musk-192156536.html)
-- Sep 16 - [Some NC beach towns are flooding Monday as still-unnamed storm dumps rain across area](https://www.yahoo.com/news/nc-beach-towns-flooding-monday-184526576.html)
-- Sep 16 - [watchOS 11 is out now, with new Sleep Apnea feature](https://www.yahoo.com/news/watchos-11-is-out-now-with-new-sleep-apnea-feature-182103629.html)
-- Sep 16 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
+- Sep 16 - [46-year-old Lafayette woman receives 16-year sentence for fatal hit-and-run accident](https://www.yahoo.com/news/46-old-lafayette-woman-receives-210534397.html)
+- Sep 16 - [Scientists Confirm How Japanese Eels Escape a Predator Fish's Stomach After Being Eaten](https://www.yahoo.com/news/scientists-confirm-japanese-eels-escape-203515353.html)
+- Sep 16 - [Robert Kiyosaki, 'Rich Dad Poor Dad,' Says If You Want To Be Rich, Mind Your Business And Let Your Money Work 24 Hours A Day](https://finance.yahoo.com/news/robert-kiyosaki-rich-dad-poor-200607289.html)
+- Sep 16 - [Amazon is requiring workers to be in the office five days a week starting next year](https://www.yahoo.com/news/amazon-requiring-workers-office-five-195243156.html)
+- Sep 16 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
 <!-- feed end -->
 
 ### Onstream
