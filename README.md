@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Russia says it retakes two villages in its western Kursk region](https://www.yahoo.com/news/russia-says-retakes-two-villages-095235651.html)
-- Sep 16 - [What's that big development near the Farragut baseball field and Kroger?](https://www.yahoo.com/news/whats-big-development-near-farragut-091018189.html)
-- Sep 16 - [Ukraine asks UN, ICRC to join humanitarian effort in Russia's Kursk region](https://www.yahoo.com/news/ukraine-asks-un-icrc-join-090916270.html)
-- Sep 16 - [Florida looks to clamp down on noncitizen voters despite outcry that it's a non-issue](https://www.yahoo.com/news/florida-looks-clamp-down-noncitizen-090427635.html)
-- Sep 16 - [Copper fundamentals strong, iron ore weak: BofA](https://finance.yahoo.com/news/copper-fundamentals-strong-iron-ore-073141053.html)
+- Sep 16 - [Exclusive: How Intel lost the Sony PlayStation business](https://finance.yahoo.com/news/exclusive-intel-lost-sony-playstation-100730831.html)
+- Sep 16 - [Ex-VP Mike Pence to speak at Middle Tennessee State on Tuesday, stirring student pushback](https://www.yahoo.com/news/ex-vp-mike-pence-speak-100506261.html)
+- Sep 16 - [Warren Buffett Has Nearly 50% of Berkshire Hathaway's Investable Portfolio in 1 Incredibly Safe Bet](https://finance.yahoo.com/news/warren-buffett-nearly-50-berkshire-100000505.html)
+- Sep 16 - [Favre, current & former MS Coast officials owe millions, state says. Here’s who & how much](https://www.yahoo.com/news/favre-current-former-ms-coast-100000118.html)
+- Sep 16 - [Kremlin on alleged Trump shooter's Ukrainian links: playing with fire has consequences](https://www.yahoo.com/news/kremlin-alleged-trump-shooters-ukrainian-094610101.html)
 <!-- feed end -->
 
 ### Onstream
