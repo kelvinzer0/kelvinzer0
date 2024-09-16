@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Did the Pandemic Break Our Brains?](https://www.yahoo.com/news/did-pandemic-break-brains-175938065.html)
-- Sep 16 - [Elections 2024: Who is running for Desert Sands Unified school board?](https://www.yahoo.com/news/elections-2024-running-desert-sands-174354890.html)
-- Sep 16 - [Fed rate cuts will not be as deep as the market expects, says BlackRock](https://finance.yahoo.com/news/fed-rate-cuts-not-deep-174235060.html)
-- Sep 16 - [New York's latest crackdown on illegal marijuana shops is finally shutting them down](https://www.yahoo.com/news/yorks-latest-crackdown-illegal-marijuana-170615917.html)
-- Sep 16 - [Trump Reacts to Assassination Attempt by Making Things Far, Far Worse](https://www.yahoo.com/news/trump-reacts-assassination-attempt-making-170157760.html)
+- Sep 16 - [An industrial chemical is showing up in fentanyl in the U.S., troubling scientists](https://www.yahoo.com/news/industrial-chemical-showing-fentanyl-u-183217810.html)
+- Sep 16 - [Too many still won’t admit the truth about child grooming gangs](https://www.yahoo.com/news/too-many-still-won-t-182142198.html)
+- Sep 16 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
+- Sep 16 - [Apple’s big iOS 18 update is now available for your iPhone](https://www.yahoo.com/tech/apple-big-ios-18-now-172946749.html)
+- Sep 16 - [Disney trips meant for homeless students went to NYC school employees' kids, officials say](https://www.yahoo.com/news/disney-trips-meant-homeless-students-171831480.html)
 <!-- feed end -->
 
 ### Onstream
