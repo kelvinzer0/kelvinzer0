@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [Portsmouth prosecutor charged with federal drug crimes 4 days after resigning](https://www.yahoo.com/news/portsmouth-prosecutor-resigned-then-charged-144600770.html)
+- Sep 16 - [Alphabet Price Target Cut On 'Worst Case' Antitrust Scenario](https://www.investors.com/news/technology/google-stock-price-target-antitrust/?src=A00220&yptr=yahoo)
+- Sep 16 - [Man accused of trying to kill Trump wrote a book urging Iran to assassinate the ex-president](https://www.yahoo.com/news/man-accused-trying-kill-trump-134644431.html)
 - Sep 16 - [Carl Icahn welcomes dismissal of Icahn Enterprises lawsuit, not selling shares](https://finance.yahoo.com/news/carl-icahn-welcomes-dismissal-icahn-131709989.html)
-- Sep 16 - [281 inmates escape after floods brought down prison's walls in northeast Nigeria](https://www.yahoo.com/news/281-inmates-escape-floods-brought-124845286.html)
-- Sep 16 - [Putin orders military to boost troop numbers by 180,000 to 1.5 million as Ukraine fighting continues](https://www.yahoo.com/news/putin-orders-military-boost-troop-124748784.html)
-- Sep 16 - [‘Apprentice’ Producers Recall Particular Set ‘Stench’ They Just Couldn’t Shake Off](https://www.yahoo.com/entertainment/apprentice-producers-recall-particular-set-124248179.html)
-- Sep 16 - [This one thing is holding back the iPhone 16](https://www.yahoo.com/tech/one-thing-holding-back-iphone-124052285.html)
+- Sep 16 - [Archaeologists Explored the Site of Napoleon’s Final Battle—and Found a Shocking Pit of Bones](https://www.yahoo.com/news/archaeologists-explored-napoleon-final-battle-130000927.html)
 <!-- feed end -->
 
 ### Onstream
