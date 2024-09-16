@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Summer ends Sunday, but where are the cool fall temperatures for Greater Akron?](https://www.yahoo.com/news/summer-ends-sunday-where-cool-155833346.html)
-- Sep 16 - [Charter launches cheaper internet plans to boost broadband customer retention](https://finance.yahoo.com/news/charter-launches-cheaper-internet-plans-154348005.html)
-- Sep 16 - [Apple shares slip as shorter iPhone 16 shipping times signal soft demand](https://finance.yahoo.com/news/apple-shares-slip-shorter-iphone-153432774.html)
-- Sep 16 - [After mass shooting, bill would require Army to use state crisis laws to remove weapons](https://www.yahoo.com/news/mass-shooting-bill-require-army-151154248.html)
-- Sep 16 - [Mark Cuban Puts Stephen Miller On The Spot: 'Does Donald Trump Make Products Overseas? Yes Or No?' In Tariff Debate](https://finance.yahoo.com/news/mark-cuban-puts-stephen-miller-145629921.html)
+- Sep 16 - [Here’s How Fast Your Savings Account’s Interest Rate Could Drop After the Fed Cuts Rates](https://www.barrons.com/articles/high-yield-savings-account-rate-fed-cut-861d8839?siteid=yhoof2&yptr=yahoo)
+- Sep 16 - [Boeing warns of job losses and cuts spending after strike](https://finance.yahoo.com/news/boeing-warns-job-losses-cuts-163209374.html)
+- Sep 16 - [White House condemns 'irresponsible' Elon Musk post on assassination attempt](https://www.yahoo.com/news/white-house-condemns-irresponsible-elon-155300161.html)
+- Sep 16 - [Final Message from Doomed “Titan ”Sub Revealed, Sent Seconds Before Losing Contact with the Surface](https://www.yahoo.com/news/final-messages-doomed-titan-sub-153324549.html)
+- Sep 16 - [7 Must-Try Features Coming to Your iPhone With iOS 18](https://www.yahoo.com/tech/7-must-try-features-coming-125820249.html)
 <!-- feed end -->
 
 ### Onstream
