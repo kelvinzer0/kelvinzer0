@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Exclusive: How Intel lost the Sony PlayStation business](https://finance.yahoo.com/news/exclusive-intel-lost-sony-playstation-100730831.html)
-- Sep 16 - [Ex-VP Mike Pence to speak at Middle Tennessee State on Tuesday, stirring student pushback](https://www.yahoo.com/news/ex-vp-mike-pence-speak-100506261.html)
-- Sep 16 - [Warren Buffett Has Nearly 50% of Berkshire Hathaway's Investable Portfolio in 1 Incredibly Safe Bet](https://finance.yahoo.com/news/warren-buffett-nearly-50-berkshire-100000505.html)
-- Sep 16 - [Favre, current & former MS Coast officials owe millions, state says. Here’s who & how much](https://www.yahoo.com/news/favre-current-former-ms-coast-100000118.html)
-- Sep 16 - [Kremlin on alleged Trump shooter's Ukrainian links: playing with fire has consequences](https://www.yahoo.com/news/kremlin-alleged-trump-shooters-ukrainian-094610101.html)
+- Sep 16 - [Storm forecast to hit SC could be a cyclone that causes heavy rain & flooding in Midlands](https://www.yahoo.com/news/storm-forecast-hit-sc-could-121156545.html)
+- Sep 16 - [Chipotle adds automation, 'autocado' robot helps make guacamole](https://finance.yahoo.com/news/chipotle-adds-automation-autocado-robot-120743719.html)
+- Sep 16 - [Rich Americans like Mark Zuckerberg, Elon Musk, Jay-Z get mortgages for homes they can easily afford — here’s why](https://finance.yahoo.com/news/rich-americans-mark-zuckerberg-elon-110200744.html)
+- Sep 16 - [As families searched, a Texas medical school cut up their loved ones](https://www.yahoo.com/news/families-searched-texas-medical-school-110000301.html)
+- Sep 16 - [Hamas-run health authority in Gaza names almost 35,000 war victims](https://www.yahoo.com/news/hamas-run-health-authority-gaza-103150752.html)
 <!-- feed end -->
 
 ### Onstream
