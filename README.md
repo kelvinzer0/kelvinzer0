@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Trump’s Suspected Would-Be Assassin Ryan Wesley Routh Had GoPro, AK-47 as Details Emerge](https://www.yahoo.com/news/trump-suspected-assassin-ryan-wesley-224255584.html)
+- Sep 16 - [Man who allegedly tried to assassinate Donald Trump at Florida golf club named. Who is he?](https://www.yahoo.com/news/man-allegedly-tried-assassinate-donald-013442708.html)
 - Sep 15 - [Minnesota motorist kills 16-year-old by driving into a crowd](https://www.yahoo.com/news/minnesota-motorist-kills-16-old-193640914.html)
 - Sep 15 - [Atlanta man tosses large trash bag out car window. It was anything but garbage](https://www.yahoo.com/news/atlanta-man-tosses-large-trash-175346055.html)
 - Sep 15 - [Two Russian soldiers predict their own deaths after arguing with commanding officer](https://www.yahoo.com/news/two-russian-soldiers-predict-own-174253360.html)
-- Sep 15 - [Your old iPhone could be worth big bucks. Here’s what to look for](https://www.yahoo.com/tech/old-iphone-could-worth-big-170000418.html)
+- Sep 15 - [Person critically injured in southwest Las Vegas hit-and-run](https://www.yahoo.com/news/person-critically-injured-southwest-las-173842854.html)
 <!-- feed end -->
 
 ### Onstream
