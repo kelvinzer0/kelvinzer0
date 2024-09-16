@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Man who allegedly tried to assassinate Donald Trump at Florida golf club named. Who is he?](https://www.yahoo.com/news/man-allegedly-tried-assassinate-donald-013442708.html)
-- Sep 15 - [Minnesota motorist kills 16-year-old by driving into a crowd](https://www.yahoo.com/news/minnesota-motorist-kills-16-old-193640914.html)
-- Sep 15 - [Atlanta man tosses large trash bag out car window. It was anything but garbage](https://www.yahoo.com/news/atlanta-man-tosses-large-trash-175346055.html)
-- Sep 15 - [Your old iPhone could be worth big bucks. Here’s what to look for](https://www.yahoo.com/tech/old-iphone-could-worth-big-170000418.html)
-- Sep 15 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
+- Sep 16 - [Israel targets southern Lebanon with heavy airstrikes as tensions continue](https://www.yahoo.com/news/israel-targets-southern-lebanon-heavy-023758912.html)
+- Sep 16 - [A Distant Spacecraft Has Confirmed That Earth Is Habitable](https://www.yahoo.com/news/distant-spacecraft-confirmed-earth-habitable-004900764.html)
+- Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
+- Sep 15 - [Update: Myrtle Beach area under tropical storm warning. Schools impacted. What to expect](https://www.yahoo.com/news/myrtle-beach-sc-area-under-212701035.html)
+- Sep 15 - [Waffle House employee killed after customer becomes irate, police say](https://www.yahoo.com/news/waffle-house-employee-killed-customer-180702831.html)
 <!-- feed end -->
 
 ### Onstream
