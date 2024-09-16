@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Here’s How Fast Your Savings Account’s Interest Rate Could Drop After the Fed Cuts Rates](https://www.barrons.com/articles/high-yield-savings-account-rate-fed-cut-861d8839?siteid=yhoof2&yptr=yahoo)
-- Sep 16 - [Boeing warns of job losses and cuts spending after strike](https://finance.yahoo.com/news/boeing-warns-job-losses-cuts-163209374.html)
-- Sep 16 - [White House condemns 'irresponsible' Elon Musk post on assassination attempt](https://www.yahoo.com/news/white-house-condemns-irresponsible-elon-155300161.html)
-- Sep 16 - [Final Message from Doomed “Titan ”Sub Revealed, Sent Seconds Before Losing Contact with the Surface](https://www.yahoo.com/news/final-messages-doomed-titan-sub-153324549.html)
-- Sep 16 - [7 Must-Try Features Coming to Your iPhone With iOS 18](https://www.yahoo.com/tech/7-must-try-features-coming-125820249.html)
+- Sep 16 - [Did the Pandemic Break Our Brains?](https://www.yahoo.com/news/did-pandemic-break-brains-175938065.html)
+- Sep 16 - [Elections 2024: Who is running for Desert Sands Unified school board?](https://www.yahoo.com/news/elections-2024-running-desert-sands-174354890.html)
+- Sep 16 - [Fed rate cuts will not be as deep as the market expects, says BlackRock](https://finance.yahoo.com/news/fed-rate-cuts-not-deep-174235060.html)
+- Sep 16 - [New York's latest crackdown on illegal marijuana shops is finally shutting them down](https://www.yahoo.com/news/yorks-latest-crackdown-illegal-marijuana-170615917.html)
+- Sep 16 - [Trump Reacts to Assassination Attempt by Making Things Far, Far Worse](https://www.yahoo.com/news/trump-reacts-assassination-attempt-making-170157760.html)
 <!-- feed end -->
 
 ### Onstream
