@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Storm forecast to hit SC could be a cyclone that causes heavy rain & flooding in Midlands](https://www.yahoo.com/news/storm-forecast-hit-sc-could-121156545.html)
-- Sep 16 - [Chipotle adds automation, 'autocado' robot helps make guacamole](https://finance.yahoo.com/news/chipotle-adds-automation-autocado-robot-120743719.html)
-- Sep 16 - [Rich Americans like Mark Zuckerberg, Elon Musk, Jay-Z get mortgages for homes they can easily afford — here’s why](https://finance.yahoo.com/news/rich-americans-mark-zuckerberg-elon-110200744.html)
-- Sep 16 - [As families searched, a Texas medical school cut up their loved ones](https://www.yahoo.com/news/families-searched-texas-medical-school-110000301.html)
-- Sep 16 - [Hamas-run health authority in Gaza names almost 35,000 war victims](https://www.yahoo.com/news/hamas-run-health-authority-gaza-103150752.html)
+- Sep 16 - [‘Apprentice’ Producers Recall Particular Set ‘Stench’ They Just Couldn’t Shake Off](https://www.yahoo.com/entertainment/apprentice-producers-recall-particular-set-124248179.html)
+- Sep 16 - [Mother died from sepsis after delayed diagnosis, inquest hears](https://www.yahoo.com/news/mother-died-sepsis-delayed-diagnosis-124041948.html)
+- Sep 16 - [Storm forecast to hit SC could be a cyclone that causes heavy rain & flooding in Midlands](https://www.yahoo.com/news/storm-forecast-hit-sc-could-121156065.html)
+- Sep 16 - [Palantir co-founder talks Big Tech and backing Trump](https://finance.yahoo.com/video/palantir-co-founder-talks-big-120037919.html)
+- Sep 16 - [What's happening in Las Vegas shows Fed's 'soft landing' is a good bet](https://www.yahoo.com/news/whats-happening-las-vegas-shows-100842391.html)
 <!-- feed end -->
 
 ### Onstream
