@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [46-year-old Lafayette woman receives 16-year sentence for fatal hit-and-run accident](https://www.yahoo.com/news/46-old-lafayette-woman-receives-210534397.html)
-- Sep 16 - [Scientists Confirm How Japanese Eels Escape a Predator Fish's Stomach After Being Eaten](https://www.yahoo.com/news/scientists-confirm-japanese-eels-escape-203515353.html)
-- Sep 16 - [Robert Kiyosaki, 'Rich Dad Poor Dad,' Says If You Want To Be Rich, Mind Your Business And Let Your Money Work 24 Hours A Day](https://finance.yahoo.com/news/robert-kiyosaki-rich-dad-poor-200607289.html)
+- Sep 16 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
+- Sep 16 - [Husband dead, wife critically injured following domestic incident in Milford, DA says](https://www.yahoo.com/news/1-person-dead-another-critical-174347844.html)
+- Sep 16 - [NVIDIA Corporation (NVDA) a Good Big Tech Stock to Buy Now?](https://finance.yahoo.com/news/nvidia-corporation-nvda-good-big-211415800.html)
+- Sep 16 - [Intel foundry business to make custom chip for Amazon, chipmaker's shares jump](https://finance.yahoo.com/news/intel-aws-expand-strategic-collaboration-201944603.html)
 - Sep 16 - [Amazon is requiring workers to be in the office five days a week starting next year](https://www.yahoo.com/news/amazon-requiring-workers-office-five-195243156.html)
-- Sep 16 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
 <!-- feed end -->
 
 ### Onstream
