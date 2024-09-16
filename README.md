@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
-- Sep 16 - [Husband dead, wife critically injured following domestic incident in Milford, DA says](https://www.yahoo.com/news/1-person-dead-another-critical-174347844.html)
-- Sep 16 - [NVIDIA Corporation (NVDA) a Good Big Tech Stock to Buy Now?](https://finance.yahoo.com/news/nvidia-corporation-nvda-good-big-211415800.html)
-- Sep 16 - [Intel foundry business to make custom chip for Amazon, chipmaker's shares jump](https://finance.yahoo.com/news/intel-aws-expand-strategic-collaboration-201944603.html)
-- Sep 16 - [Amazon is requiring workers to be in the office five days a week starting next year](https://www.yahoo.com/news/amazon-requiring-workers-office-five-195243156.html)
+- Sep 16 - [Man dead, wife critically injured following domestic incident in Milford, DA says](https://www.yahoo.com/news/1-person-dead-another-critical-174347844.html)
+- Sep 16 - [Titan Submersible Riders Thought They Were ‘All Good Here’ Before Losing Contact](https://www.yahoo.com/news/titan-submersible-riders-thought-were-223417813.html)
+- Sep 16 - [Florida sheriff fed up with school shooting hoaxes posts boy's mugshot to social media](https://www.yahoo.com/news/florida-sheriff-fed-school-shooting-222117665.html)
+- Sep 16 - [8-year-old girl drove mom's SUV on Target run: 'We did let her finish her Frappuccino'](https://www.yahoo.com/news/8-old-girl-drove-moms-213350649.html)
+- Sep 16 - [Meta Is Leaving Its Austin Office, Guess What Big Tech Company Is Moving In](https://finance.yahoo.com/news/meta-leaving-austin-office-guess-211425144.html)
 <!-- feed end -->
 
 ### Onstream
