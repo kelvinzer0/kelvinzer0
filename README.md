@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Europe's EV troubles bubble up at Brussels Audi factory](https://www.yahoo.com/news/europes-ev-troubles-bubble-brussels-060430486.html)
-- Sep 16 - [A Distant Spacecraft Has Confirmed That Earth Is Habitable](https://www.yahoo.com/news/distant-spacecraft-confirmed-earth-habitable-004900764.html)
-- Sep 15 - [Waffle House employee killed after customer becomes irate, police say](https://www.yahoo.com/news/waffle-house-employee-killed-customer-180702831.html)
+- Sep 16 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
 - Sep 15 - [Minnesota motorist kills 16-year-old by driving into a crowd](https://www.yahoo.com/news/minnesota-motorist-kills-16-old-193640914.html)
+- Sep 15 - [UPDATE: Medical waste forces closures of beaches at Ocean City, Assateague, Chincoteague](https://www.yahoo.com/news/medical-waste-forces-closures-maryland-184350229.html)
 - Sep 15 - [Atlanta man tosses large trash bag out car window. It was anything but garbage](https://www.yahoo.com/news/atlanta-man-tosses-large-trash-175346055.html)
+- Sep 15 - [MSP officer dies days after crash on I-75 in Lincoln Park](https://www.yahoo.com/news/msp-officer-still-critical-crash-175143606.html)
 <!-- feed end -->
 
 ### Onstream
