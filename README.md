@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [AP Top Stories September 16 A](https://www.yahoo.com/news/ap-top-stories-september-16-082415053.html)
-- Sep 16 - [More than half of women fleeing domestic abuse turned away from safe refuge due to chronic shortages](https://www.yahoo.com/news/more-half-women-fleeing-domestic-040020998.html)
-- Sep 16 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
-- Sep 16 - [The stone-eaters that threaten Iran's ancient Persepolis](https://www.yahoo.com/news/stone-eaters-threaten-irans-ancient-020956747.html)
-- Sep 16 - [A Distant Spacecraft Has Confirmed That Earth Is Habitable](https://www.yahoo.com/news/distant-spacecraft-confirmed-earth-habitable-004900764.html)
+- Sep 16 - [Russia says it retakes two villages in its western Kursk region](https://www.yahoo.com/news/russia-says-retakes-two-villages-095235651.html)
+- Sep 16 - [What's that big development near the Farragut baseball field and Kroger?](https://www.yahoo.com/news/whats-big-development-near-farragut-091018189.html)
+- Sep 16 - [Ukraine asks UN, ICRC to join humanitarian effort in Russia's Kursk region](https://www.yahoo.com/news/ukraine-asks-un-icrc-join-090916270.html)
+- Sep 16 - [Florida looks to clamp down on noncitizen voters despite outcry that it's a non-issue](https://www.yahoo.com/news/florida-looks-clamp-down-noncitizen-090427635.html)
+- Sep 16 - [Copper fundamentals strong, iron ore weak: BofA](https://finance.yahoo.com/news/copper-fundamentals-strong-iron-ore-073141053.html)
 <!-- feed end -->
 
 ### Onstream
