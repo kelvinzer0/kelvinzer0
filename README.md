@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [An industrial chemical is showing up in fentanyl in the U.S., troubling scientists](https://www.yahoo.com/news/industrial-chemical-showing-fentanyl-u-183217810.html)
-- Sep 16 - [Too many still won’t admit the truth about child grooming gangs](https://www.yahoo.com/news/too-many-still-won-t-182142198.html)
+- Sep 16 - [Wichita-area restaurants ordered to pay nearly $1 million in back wages to employees](https://www.yahoo.com/news/wichita-area-restaurants-ordered-pay-192956427.html)
+- Sep 16 - [US Secret Service says it is aware of Musk post about Biden, Harris](https://www.yahoo.com/news/us-secret-says-aware-musk-192156536.html)
+- Sep 16 - [Some NC beach towns are flooding Monday as still-unnamed storm dumps rain across area](https://www.yahoo.com/news/nc-beach-towns-flooding-monday-184526576.html)
+- Sep 16 - [watchOS 11 is out now, with new Sleep Apnea feature](https://www.yahoo.com/news/watchos-11-is-out-now-with-new-sleep-apnea-feature-182103629.html)
 - Sep 16 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
-- Sep 16 - [Apple’s big iOS 18 update is now available for your iPhone](https://www.yahoo.com/tech/apple-big-ios-18-now-172946749.html)
-- Sep 16 - [Disney trips meant for homeless students went to NYC school employees' kids, officials say](https://www.yahoo.com/news/disney-trips-meant-homeless-students-171831480.html)
 <!-- feed end -->
 
 ### Onstream
