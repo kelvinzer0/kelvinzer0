@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [AP Top Stories September 16 A](https://www.yahoo.com/news/ap-top-stories-september-16-082415053.html)
+- Sep 16 - [More than half of women fleeing domestic abuse turned away from safe refuge due to chronic shortages](https://www.yahoo.com/news/more-half-women-fleeing-domestic-040020998.html)
 - Sep 16 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
-- Sep 15 - [Minnesota motorist kills 16-year-old by driving into a crowd](https://www.yahoo.com/news/minnesota-motorist-kills-16-old-193640914.html)
-- Sep 15 - [UPDATE: Medical waste forces closures of beaches at Ocean City, Assateague, Chincoteague](https://www.yahoo.com/news/medical-waste-forces-closures-maryland-184350229.html)
-- Sep 15 - [Atlanta man tosses large trash bag out car window. It was anything but garbage](https://www.yahoo.com/news/atlanta-man-tosses-large-trash-175346055.html)
-- Sep 15 - [MSP officer dies days after crash on I-75 in Lincoln Park](https://www.yahoo.com/news/msp-officer-still-critical-crash-175143606.html)
+- Sep 16 - [The stone-eaters that threaten Iran's ancient Persepolis](https://www.yahoo.com/news/stone-eaters-threaten-irans-ancient-020956747.html)
+- Sep 16 - [A Distant Spacecraft Has Confirmed That Earth Is Habitable](https://www.yahoo.com/news/distant-spacecraft-confirmed-earth-habitable-004900764.html)
 <!-- feed end -->
 
 ### Onstream
