@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 16 - [Millions failing to put enough in pension for comfortable retirement, says IFS](https://uk.finance.yahoo.com/news/pension-savings-comfortable-retirement-050053026.html)
-- Sep 16 - [More than half of women fleeing domestic abuse turned away from safe refuge due to chronic shortages](https://www.yahoo.com/news/more-half-women-fleeing-domestic-040020998.html)
+- Sep 16 - [Israel targets southern Lebanon with heavy airstrikes as tensions continue](https://www.yahoo.com/news/israel-targets-southern-lebanon-heavy-023758912.html)
 - Sep 16 - [The stone-eaters that threaten Iran's ancient Persepolis](https://www.yahoo.com/news/stone-eaters-threaten-irans-ancient-020956747.html)
 - Sep 16 - [A Distant Spacecraft Has Confirmed That Earth Is Habitable](https://www.yahoo.com/news/distant-spacecraft-confirmed-earth-habitable-004900764.html)
 - Sep 15 - [Astronauts reveal what life is like on ISS – and how they deal with 'space smell'](https://www.yahoo.com/news/astronauts-reveal-life-iss-deal-031307360.html)
