@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Portsmouth prosecutor charged with federal drug crimes 4 days after resigning](https://www.yahoo.com/news/portsmouth-prosecutor-resigned-then-charged-144600770.html)
-- Sep 16 - [Alphabet Price Target Cut On 'Worst Case' Antitrust Scenario](https://www.investors.com/news/technology/google-stock-price-target-antitrust/?src=A00220&yptr=yahoo)
-- Sep 16 - [Man accused of trying to kill Trump wrote a book urging Iran to assassinate the ex-president](https://www.yahoo.com/news/man-accused-trying-kill-trump-134644431.html)
-- Sep 16 - [Carl Icahn welcomes dismissal of Icahn Enterprises lawsuit, not selling shares](https://finance.yahoo.com/news/carl-icahn-welcomes-dismissal-icahn-131709989.html)
-- Sep 16 - [Archaeologists Explored the Site of Napoleon’s Final Battle—and Found a Shocking Pit of Bones](https://www.yahoo.com/news/archaeologists-explored-napoleon-final-battle-130000927.html)
+- Sep 16 - [Summer ends Sunday, but where are the cool fall temperatures for Greater Akron?](https://www.yahoo.com/news/summer-ends-sunday-where-cool-155833346.html)
+- Sep 16 - [Charter launches cheaper internet plans to boost broadband customer retention](https://finance.yahoo.com/news/charter-launches-cheaper-internet-plans-154348005.html)
+- Sep 16 - [Apple shares slip as shorter iPhone 16 shipping times signal soft demand](https://finance.yahoo.com/news/apple-shares-slip-shorter-iphone-153432774.html)
+- Sep 16 - [After mass shooting, bill would require Army to use state crisis laws to remove weapons](https://www.yahoo.com/news/mass-shooting-bill-require-army-151154248.html)
+- Sep 16 - [Mark Cuban Puts Stephen Miller On The Spot: 'Does Donald Trump Make Products Overseas? Yes Or No?' In Tariff Debate](https://finance.yahoo.com/news/mark-cuban-puts-stephen-miller-145629921.html)
 <!-- feed end -->
 
 ### Onstream
