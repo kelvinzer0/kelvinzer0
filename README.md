@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [Carl Icahn welcomes dismissal of Icahn Enterprises lawsuit, not selling shares](https://finance.yahoo.com/news/carl-icahn-welcomes-dismissal-icahn-131709989.html)
+- Sep 16 - [281 inmates escape after floods brought down prison's walls in northeast Nigeria](https://www.yahoo.com/news/281-inmates-escape-floods-brought-124845286.html)
+- Sep 16 - [Putin orders military to boost troop numbers by 180,000 to 1.5 million as Ukraine fighting continues](https://www.yahoo.com/news/putin-orders-military-boost-troop-124748784.html)
 - Sep 16 - [‘Apprentice’ Producers Recall Particular Set ‘Stench’ They Just Couldn’t Shake Off](https://www.yahoo.com/entertainment/apprentice-producers-recall-particular-set-124248179.html)
-- Sep 16 - [Mother died from sepsis after delayed diagnosis, inquest hears](https://www.yahoo.com/news/mother-died-sepsis-delayed-diagnosis-124041948.html)
-- Sep 16 - [Storm forecast to hit SC could be a cyclone that causes heavy rain & flooding in Midlands](https://www.yahoo.com/news/storm-forecast-hit-sc-could-121156065.html)
-- Sep 16 - [Palantir co-founder talks Big Tech and backing Trump](https://finance.yahoo.com/video/palantir-co-founder-talks-big-120037919.html)
-- Sep 16 - [What's happening in Las Vegas shows Fed's 'soft landing' is a good bet](https://www.yahoo.com/news/whats-happening-las-vegas-shows-100842391.html)
+- Sep 16 - [This one thing is holding back the iPhone 16](https://www.yahoo.com/tech/one-thing-holding-back-iphone-124052285.html)
 <!-- feed end -->
 
 ### Onstream
