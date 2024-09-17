@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Russia's Lavrov tells Red Cross of Ukrainian wartime rights violations](https://www.yahoo.com/news/russias-lavrov-tells-red-cross-194851389.html)
-- Sep 17 - [The Biden administration is letting Alaska Airlines buy Hawaiian Air but with conditions](https://finance.yahoo.com/news/biden-administration-let-alaska-airlines-184126945.html)
-- Sep 17 - [Popular North Shore beach closed after great white shark spotted near shore](https://www.yahoo.com/news/popular-north-shore-beach-closed-174346879.html)
+- Sep 17 - [Grand prize winner removed 20 Burmese pythons from the wild in Florida challenge](https://www.yahoo.com/news/grand-prize-winner-removed-20-205303290.html)
+- Sep 17 - [A man accused of stalking UConn star Paige Bueckers is found with an engagement ring near airport](https://www.yahoo.com/news/man-accused-stalking-uconn-star-185023177.html)
+- Sep 17 - [How Israel may have turned pagers into a weapon to attack Hezbollah](https://www.yahoo.com/news/israel-may-turned-pagers-weapon-175649011.html)
 - Sep 17 - [Tom Golisano donates $360M to upstate NY non-profits: See the amount each receives](https://www.yahoo.com/news/tom-golisano-donates-360m-upstate-173500578.html)
-- Sep 17 - [J.D. Vance Reveals Atrocious Little Detail of Trump’s Health Care Plan](https://www.yahoo.com/news/j-d-vance-reveals-atrocious-162754475.html)
+- Sep 17 - ['Heartbreaking': Mass. police recruit dies after getting knocked out in training exercise](https://www.yahoo.com/news/heartbreaking-mass-police-recruit-dies-172256427.html)
 <!-- feed end -->
 
 ### Onstream
