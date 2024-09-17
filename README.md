@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Fed to go big on first rate cut, traders bet](https://finance.yahoo.com/news/fed-big-first-rate-cut-135728070.html)
-- Sep 17 - [Hundreds of Hezbollah members wounded in Lebanon when pagers explode, security source says](https://www.yahoo.com/news/dozens-hezbollah-members-wounded-lebanon-130833720.html)
-- Sep 17 - [High temps, strong storms, hail and heavy winds expected in KC. What the forecast says](https://www.yahoo.com/news/strong-storms-possible-week-kansas-123627046.html)
-- Sep 17 - [Over-priced Fed rate cuts make T-bills unattractive, Federated Hermes says](https://finance.yahoo.com/news/over-priced-fed-rate-cuts-121816758.html)
-- Sep 17 - [Scientists Sequenced the ‘Last Neanderthal’s’ DNA—and It Alters Human History](https://www.yahoo.com/news/scientists-sequenced-last-neanderthal-dna-120000829.html)
+- Sep 17 - [The West is fast forgetting the laws of deterrence – to Putin’s delight](https://www.yahoo.com/news/west-fast-forgetting-laws-deterrence-145939512.html)
+- Sep 17 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
+- Sep 17 - [Archaeologists Thought They Found Wires Buried on a Farm. It Was Actually Viking Treasure.](https://www.yahoo.com/news/archaeologists-thought-found-wires-buried-142000912.html)
+- Sep 17 - [Ukrainian POW ‘executed with sword’ inscribed with Russian taunt](https://www.yahoo.com/news/ukrainian-pow-executed-sword-inscribed-140724982.html)
+- Sep 17 - [6 Reasons the Poor Stay Poor and Middle Class Doesn’t Become Wealthy](https://finance.yahoo.com/news/6-reasons-why-poor-stay-170030897.html)
 <!-- feed end -->
 
 ### Onstream
