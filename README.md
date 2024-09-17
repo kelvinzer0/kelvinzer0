@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 17 - [Chevron CEO hits Biden's natural gas policies, says fuel is crucial for AI](https://finance.yahoo.com/news/chevron-ceo-hits-bidens-natural-162714856.html)
+- Sep 17 - [JPMorgan in talks with Apple to take over its credit card program, WSJ reports](https://finance.yahoo.com/news/jpmorgan-talks-apple-over-credit-162348244.html)
 - Sep 17 - [My family was once the richest in Sicily – and now I know why](https://www.yahoo.com/lifestyle/family-once-richest-sicily-now-160000954.html)
-- Sep 17 - [Exploding Hezbollah pagers wound hundreds across Lebanon](https://www.yahoo.com/news/israel-widens-focus-war-lebanon-082505361.html)
-- Sep 17 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
-- Sep 17 - [Prediction: This Will Be the First Healthcare Stock to Join the Trillion-Dollar Club](https://finance.yahoo.com/news/prediction-first-healthcare-stock-join-141500270.html)
-- Sep 17 - [Scientific American makes presidential endorsement for only the second time in its 179-year history](https://www.yahoo.com/news/scientific-american-makes-presidential-endorsement-135754693.html)
+- Sep 17 - [Farmer’s wife named ‘most wanted’ woman for drug dealing caught after 16 months on the run](https://www.yahoo.com/news/farmer-wife-named-most-wanted-155305741.html)
+- Sep 17 - [A 30-year-old man built muscle and burned fat in 4 months with a time-saving workout technique](https://www.yahoo.com/lifestyle/30-old-man-built-muscle-153046204.html)
 <!-- feed end -->
 
 ### Onstream
