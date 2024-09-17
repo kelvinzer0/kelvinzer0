@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [UN says pager explosions in Lebanon 'extremely concerning'](https://www.yahoo.com/news/un-says-pager-explosions-lebanon-190249547.html)
+- Sep 17 - [Russia's Lavrov tells Red Cross of Ukrainian wartime rights violations](https://www.yahoo.com/news/russias-lavrov-tells-red-cross-194851389.html)
+- Sep 17 - [The Biden administration is letting Alaska Airlines buy Hawaiian Air but with conditions](https://finance.yahoo.com/news/biden-administration-let-alaska-airlines-184126945.html)
 - Sep 17 - [Popular North Shore beach closed after great white shark spotted near shore](https://www.yahoo.com/news/popular-north-shore-beach-closed-174346879.html)
 - Sep 17 - [Tom Golisano donates $360M to upstate NY non-profits: See the amount each receives](https://www.yahoo.com/news/tom-golisano-donates-360m-upstate-173500578.html)
 - Sep 17 - [J.D. Vance Reveals Atrocious Little Detail of Trump’s Health Care Plan](https://www.yahoo.com/news/j-d-vance-reveals-atrocious-162754475.html)
-- Sep 17 - [Divers remove 31,773 venomous fish from Florida's reefs in record-breaking challenge](https://www.yahoo.com/news/divers-remove-31-773-venomous-161620426.html)
 <!-- feed end -->
 
 ### Onstream
