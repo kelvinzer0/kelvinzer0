@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [A Brazilian mayoral candidate attacked his opponent with a chair mid-debate](https://www.yahoo.com/news/brazilian-mayoral-candidate-attacked-opponent-101407600.html)
-- Sep 17 - [This Florida woman’s nearly $100K flood insurance claim was denied after Tropical Storm Debby due to a major loophole](https://finance.yahoo.com/news/florida-woman-nearly-100k-flood-100200032.html)
-- Sep 17 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
-- Sep 17 - [This airport landing is so challenging only 50 pilots are qualified to do it](https://www.yahoo.com/lifestyle/airport-landing-challenging-only-50-012428919.html)
-- Sep 17 - [Trump assassination attempt suspect's former neighbor says family was 'weird,' kept a 'horse in the house'](https://www.yahoo.com/news/trump-assassination-attempt-suspects-former-080003414.html)
+- Sep 17 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
+- Sep 17 - [Scientists Sequenced the ‘Last Neanderthal’s’ DNA—and It Alters Human History](https://www.yahoo.com/news/scientists-sequenced-last-neanderthal-dna-120000829.html)
+- Sep 17 - [A Look At What The Future May Hold For Self-Storage Investors](https://finance.yahoo.com/news/look-future-may-hold-self-112053126.html)
+- Sep 17 - [I'm Netting $800k From My Home Sale. Can I Avoid Taxes While Downsizing for Retirement?](https://finance.yahoo.com/news/im-selling-house-netting-800k-120000953.html)
+- Sep 17 - [People Born Before The Year 2000 Are Sharing What "Trivial Skills" They Know That No One Uses Anymore](https://www.yahoo.com/lifestyle/people-born-2000-sharing-trivial-104839060.html)
 <!-- feed end -->
 
 ### Onstream
