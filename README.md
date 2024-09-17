@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Exploding pagers in Lebanon and Syria kill at least 8, including members of Hezbollah](https://www.yahoo.com/news/exploding-pagers-lebanon-syria-kill-175706548.html)
-- Sep 17 - [Tom Golisano donates $360M to upstate NY non-profits: See the amount each receives](https://www.yahoo.com/news/tom-golisano-donates-360m-upstate-173500578.html)
+- Sep 17 - [RIP Apple ID: How to Manage Your Apple Account From Anywhere](https://www.yahoo.com/tech/rip-apple-id-manage-apple-183814148.html)
+- Sep 17 - [Boeing ready to 'hammer out an agreement' as stock hovers near 52-week lows amid labor dispute](https://finance.yahoo.com/news/boeing-ready-to-hammer-out-an-agreement-as-stock-hovers-near-52-week-lows-amid-labor-dispute-180924213.html)
+- Sep 17 - [How Israel may have turned pagers into a weapon to attack Hezbollah](https://www.yahoo.com/news/israel-may-turned-pagers-weapon-175649011.html)
+- Sep 17 - [Factbox-What we know so far about the deadly pager blasts in Lebanon?](https://www.yahoo.com/news/factbox-know-far-deadly-pager-174837794.html)
 - Sep 17 - [J.D. Vance Reveals Atrocious Little Detail of Trump’s Health Care Plan](https://www.yahoo.com/news/j-d-vance-reveals-atrocious-162754475.html)
-- Sep 17 - [DOJ Details How Diddy Coerced Victims Into Dayslong Sex Parties Called ‘Freak Offs’](https://www.yahoo.com/news/doj-details-diddy-coerced-victims-160029906.html)
-- Sep 17 - [My family was once the richest in Sicily – and now I know why](https://www.yahoo.com/lifestyle/family-once-richest-sicily-now-160000954.html)
 <!-- feed end -->
 
 ### Onstream
