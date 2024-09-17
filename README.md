@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 17 - [CD rates today, September 17, 2024: Lock in up to 5.09% APY before the Fed cuts rates](https://finance.yahoo.com/personal-finance/cd-rates-today-tuesday-september-17-2024-100035876.html)
+- Sep 17 - [Austria flood waters ease but risk of dam failures, landslides remain](https://www.yahoo.com/news/austria-flood-waters-ease-risk-093156486.html)
+- Sep 17 - [This airport landing is so challenging only 50 pilots are qualified to do it](https://www.yahoo.com/lifestyle/airport-landing-challenging-only-50-012428919.html)
+- Sep 17 - [Absentee in-person voting starts in early October in Ottawa County](https://www.yahoo.com/news/absentee-person-voting-starts-early-090628211.html)
 - Sep 17 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
-- Sep 17 - [India condemns Iran supreme leader's comments on treatment of minorities](https://www.yahoo.com/news/india-condemns-iran-supreme-leaders-032346661.html)
-- Sep 17 - [Ohio Supreme Court clears ballot language saying anti-gerrymandering measure calls for the opposite](https://www.yahoo.com/news/ohio-supreme-court-clears-ballot-021829498.html)
-- Sep 17 - [Here’s Who Should Install iOS 17.7 or iOS 18 on Their iPhone](https://www.yahoo.com/tech/install-ios-17-7-ios-021431033.html)
-- Sep 17 - [Mother of Colorado supermarket guman says he is 'sick' and denies knowing about plan](https://www.yahoo.com/news/mother-colorado-supermarket-guman-says-020737031.html)
 <!-- feed end -->
 
 ### Onstream
