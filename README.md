@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [The West is fast forgetting the laws of deterrence – to Putin’s delight](https://www.yahoo.com/news/west-fast-forgetting-laws-deterrence-145939512.html)
+- Sep 17 - [My family was once the richest in Sicily – and now I know why](https://www.yahoo.com/lifestyle/family-once-richest-sicily-now-160000954.html)
+- Sep 17 - [Exploding Hezbollah pagers wound hundreds across Lebanon](https://www.yahoo.com/news/israel-widens-focus-war-lebanon-082505361.html)
 - Sep 17 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
-- Sep 17 - [Archaeologists Thought They Found Wires Buried on a Farm. It Was Actually Viking Treasure.](https://www.yahoo.com/news/archaeologists-thought-found-wires-buried-142000912.html)
-- Sep 17 - [Ukrainian POW ‘executed with sword’ inscribed with Russian taunt](https://www.yahoo.com/news/ukrainian-pow-executed-sword-inscribed-140724982.html)
-- Sep 17 - [6 Reasons the Poor Stay Poor and Middle Class Doesn’t Become Wealthy](https://finance.yahoo.com/news/6-reasons-why-poor-stay-170030897.html)
+- Sep 17 - [Prediction: This Will Be the First Healthcare Stock to Join the Trillion-Dollar Club](https://finance.yahoo.com/news/prediction-first-healthcare-stock-join-141500270.html)
+- Sep 17 - [Scientific American makes presidential endorsement for only the second time in its 179-year history](https://www.yahoo.com/news/scientific-american-makes-presidential-endorsement-135754693.html)
 <!-- feed end -->
 
 ### Onstream
