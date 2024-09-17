@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Chevron CEO hits Biden's natural gas policies, says fuel is crucial for AI](https://finance.yahoo.com/news/chevron-ceo-hits-bidens-natural-162714856.html)
-- Sep 17 - [JPMorgan in talks with Apple to take over its credit card program, WSJ reports](https://finance.yahoo.com/news/jpmorgan-talks-apple-over-credit-162348244.html)
+- Sep 17 - [Exploding pagers in Lebanon and Syria kill at least 8, including members of Hezbollah](https://www.yahoo.com/news/exploding-pagers-lebanon-syria-kill-175706548.html)
+- Sep 17 - [Tom Golisano donates $360M to upstate NY non-profits: See the amount each receives](https://www.yahoo.com/news/tom-golisano-donates-360m-upstate-173500578.html)
+- Sep 17 - [J.D. Vance Reveals Atrocious Little Detail of Trump’s Health Care Plan](https://www.yahoo.com/news/j-d-vance-reveals-atrocious-162754475.html)
+- Sep 17 - [DOJ Details How Diddy Coerced Victims Into Dayslong Sex Parties Called ‘Freak Offs’](https://www.yahoo.com/news/doj-details-diddy-coerced-victims-160029906.html)
 - Sep 17 - [My family was once the richest in Sicily – and now I know why](https://www.yahoo.com/lifestyle/family-once-richest-sicily-now-160000954.html)
-- Sep 17 - [Farmer’s wife named ‘most wanted’ woman for drug dealing caught after 16 months on the run](https://www.yahoo.com/news/farmer-wife-named-most-wanted-155305741.html)
-- Sep 17 - [A 30-year-old man built muscle and burned fat in 4 months with a time-saving workout technique](https://www.yahoo.com/lifestyle/30-old-man-built-muscle-153046204.html)
 <!-- feed end -->
 
 ### Onstream
