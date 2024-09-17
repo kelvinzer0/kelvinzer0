@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [CD rates today, September 17, 2024: Lock in up to 5.09% APY before the Fed cuts rates](https://finance.yahoo.com/personal-finance/cd-rates-today-tuesday-september-17-2024-100035876.html)
-- Sep 17 - [Austria flood waters ease but risk of dam failures, landslides remain](https://www.yahoo.com/news/austria-flood-waters-ease-risk-093156486.html)
+- Sep 17 - [A Brazilian mayoral candidate attacked his opponent with a chair mid-debate](https://www.yahoo.com/news/brazilian-mayoral-candidate-attacked-opponent-101407600.html)
+- Sep 17 - [This Florida woman’s nearly $100K flood insurance claim was denied after Tropical Storm Debby due to a major loophole](https://finance.yahoo.com/news/florida-woman-nearly-100k-flood-100200032.html)
+- Sep 17 - [‘He forced me to take Social Security at 62’: My husband inherited millions, but never gave me a penny. If I divorce him, would I get any of it?](https://finance.yahoo.com/news/forced-social-security-62-husband-090900075.html)
 - Sep 17 - [This airport landing is so challenging only 50 pilots are qualified to do it](https://www.yahoo.com/lifestyle/airport-landing-challenging-only-50-012428919.html)
-- Sep 17 - [Absentee in-person voting starts in early October in Ottawa County](https://www.yahoo.com/news/absentee-person-voting-starts-early-090628211.html)
-- Sep 17 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
+- Sep 17 - [Trump assassination attempt suspect's former neighbor says family was 'weird,' kept a 'horse in the house'](https://www.yahoo.com/news/trump-assassination-attempt-suspects-former-080003414.html)
 <!-- feed end -->
 
 ### Onstream
