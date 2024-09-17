@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Man dead, wife critically injured following domestic incident in Milford, DA says](https://www.yahoo.com/news/1-person-dead-another-critical-174347844.html)
-- Sep 16 - [Titan Submersible Riders Thought They Were ‘All Good Here’ Before Losing Contact](https://www.yahoo.com/news/titan-submersible-riders-thought-were-223417813.html)
-- Sep 16 - [Florida sheriff fed up with school shooting hoaxes posts boy's mugshot to social media](https://www.yahoo.com/news/florida-sheriff-fed-school-shooting-222117665.html)
-- Sep 16 - [8-year-old girl drove mom's SUV on Target run: 'We did let her finish her Frappuccino'](https://www.yahoo.com/news/8-old-girl-drove-moms-213350649.html)
-- Sep 16 - [Meta Is Leaving Its Austin Office, Guess What Big Tech Company Is Moving In](https://finance.yahoo.com/news/meta-leaving-austin-office-guess-211425144.html)
+- Sep 17 - [The Fed seems ready to cut interest rates. What does it mean for consumers and their debt?](https://finance.yahoo.com/news/fed-seems-ready-cut-interest-002859807.html)
+- Sep 16 - [Watch incredible moment humpback whale entangled in fishing gear is freed after 4 days](https://www.yahoo.com/news/watch-incredible-moment-humpback-whale-233804135.html)
+- Sep 16 - [Goldman Sachs reiterates bullish view on gold prices amid Fed rate-cut hopes](https://finance.yahoo.com/news/goldman-sachs-reiterates-bullish-view-233046571.html)
+- Sep 16 - [Emily Gold, Cheerleader Featured on ‘America’s Got Talent,’ Dies by Suicide at 17](https://www.yahoo.com/news/emily-gold-cheerleader-featured-america-225923396.html)
+- Sep 16 - [Antibiotic-resistance deaths to surge from 2025-2050, study says](https://www.yahoo.com/news/antibiotic-resistance-deaths-surge-2025-225047630.html)
 <!-- feed end -->
 
 ### Onstream
