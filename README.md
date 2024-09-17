@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 17 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
-- Sep 17 - [Hearings into Titan submersible tragedy reveal safety concerns](https://www.yahoo.com/news/hearings-titan-submersible-tragedy-reveal-043130889.html)
 - Sep 17 - [India condemns Iran supreme leader's comments on treatment of minorities](https://www.yahoo.com/news/india-condemns-iran-supreme-leaders-032346661.html)
 - Sep 17 - [Ohio Supreme Court clears ballot language saying anti-gerrymandering measure calls for the opposite](https://www.yahoo.com/news/ohio-supreme-court-clears-ballot-021829498.html)
-- Sep 17 - [These Zodiac Signs Will Be Most Affected by “Trifecta” Super Eclipse](https://www.yahoo.com/lifestyle/zodiac-signs-most-affected-trifecta-021817351.html)
+- Sep 17 - [Here’s Who Should Install iOS 17.7 or iOS 18 on Their iPhone](https://www.yahoo.com/tech/install-ios-17-7-ios-021431033.html)
+- Sep 17 - [Mother of Colorado supermarket guman says he is 'sick' and denies knowing about plan](https://www.yahoo.com/news/mother-colorado-supermarket-guman-says-020737031.html)
 <!-- feed end -->
 
 ### Onstream
