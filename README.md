@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Sean Combs Arrested After Grand Jury Indictment](https://www.yahoo.com/news/sean-combs-arrested-grand-jury-015530646.html)
-- Sep 17 - [The Fed seems ready to cut interest rates. What does it mean for consumers and their debt?](https://finance.yahoo.com/news/fed-seems-ready-cut-interest-002859807.html)
+- Sep 17 - [Mother of Colorado supermarket guman says he is 'sick' and denies knowing about plan](https://www.yahoo.com/news/mother-colorado-supermarket-guman-says-020737031.html)
+- Sep 17 - [This airport landing is so challenging only 50 pilots are qualified do it](https://www.yahoo.com/lifestyle/airport-landing-challenging-only-50-012428919.html)
+- Sep 17 - [The Fed seems ready to cut interest rates. What does it mean for consumers and their debt?](https://finance.yahoo.com/news/fed-seems-ready-cut-interest-002859003.html)
 - Sep 16 - [Watch incredible moment humpback whale entangled in fishing gear is freed after 4 days](https://www.yahoo.com/news/watch-incredible-moment-humpback-whale-233804135.html)
-- Sep 16 - [Everything We Just Learned About The Supersized AGM-158 XR Stealth Cruise Missile](https://www.yahoo.com/news/everything-just-learned-supersized-agm-232152558.html)
-- Sep 16 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
+- Sep 16 - [17-Year-Old Former AGT Contestant Found Dead](https://www.yahoo.com/entertainment/17-old-former-agt-contestant-231102591.html)
 <!-- feed end -->
 
 ### Onstream
