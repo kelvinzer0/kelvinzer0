@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
-- Sep 17 - [People Born Before The Year 2000 Are Sharing What "Trivial Skills" They Know That No One Uses Anymore](https://www.yahoo.com/lifestyle/people-born-2000-sharing-trivial-104839060.html)
-- Sep 17 - [China says it tailed a US spy plane through the sensitive Taiwan Strait](https://www.yahoo.com/news/china-says-tailed-us-spy-104401822.html)
-- Sep 17 - [This Florida woman’s nearly $100K flood insurance claim was denied after Tropical Storm Debby due to a major loophole](https://finance.yahoo.com/news/florida-woman-nearly-100k-flood-100200032.html)
-- Sep 17 - [This airport landing is so challenging only 50 pilots are qualified to do it](https://www.yahoo.com/lifestyle/airport-landing-challenging-only-50-012428919.html)
+- Sep 17 - [Fed to go big on first rate cut, traders bet](https://finance.yahoo.com/news/fed-big-first-rate-cut-135728070.html)
+- Sep 17 - [Hundreds of Hezbollah members wounded in Lebanon when pagers explode, security source says](https://www.yahoo.com/news/dozens-hezbollah-members-wounded-lebanon-130833720.html)
+- Sep 17 - [High temps, strong storms, hail and heavy winds expected in KC. What the forecast says](https://www.yahoo.com/news/strong-storms-possible-week-kansas-123627046.html)
+- Sep 17 - [Over-priced Fed rate cuts make T-bills unattractive, Federated Hermes says](https://finance.yahoo.com/news/over-priced-fed-rate-cuts-121816758.html)
+- Sep 17 - [Scientists Sequenced the ‘Last Neanderthal’s’ DNA—and It Alters Human History](https://www.yahoo.com/news/scientists-sequenced-last-neanderthal-dna-120000829.html)
 <!-- feed end -->
 
 ### Onstream
