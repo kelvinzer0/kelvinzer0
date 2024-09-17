@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Russian national arrested in US for illegal export of drone technology to Russia, DOJ says](https://www.yahoo.com/news/russian-national-arrested-us-illegal-033919968.html)
+- Sep 17 - [Final messages revealed from the Titan sub before tragic implosion](https://www.yahoo.com/news/final-messages-revealed-titan-sub-181637956.html)
 - Sep 17 - [India condemns Iran supreme leader's comments on treatment of minorities](https://www.yahoo.com/news/india-condemns-iran-supreme-leaders-032346661.html)
-- Sep 17 - [These Zodiac Signs Will Be Most Affected by “Trifecta” Super Eclipse](https://www.yahoo.com/lifestyle/zodiac-signs-most-affected-trifecta-021817351.html)
+- Sep 17 - [Ohio Supreme Court clears ballot language saying anti-gerrymandering measure calls for the opposite](https://www.yahoo.com/news/ohio-supreme-court-clears-ballot-021829498.html)
 - Sep 17 - [This airport landing is so challenging only 50 pilots are qualified do it](https://www.yahoo.com/lifestyle/airport-landing-challenging-only-50-012428919.html)
-- Sep 17 - [Driver in Queens fatally shot in head, crashes into woman on sidewalk](https://www.yahoo.com/news/driver-queens-shot-head-crashes-010100960.html)
+- Sep 17 - [Brittany Mahomes 'Deeply Bothered' By Donald Trump's Attack On Taylor Swift, Questions Her Support](https://www.yahoo.com/entertainment/brittany-mahomes-deeply-bothered-donald-011511180.html)
 <!-- feed end -->
 
 ### Onstream
