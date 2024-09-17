@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Grand prize winner removed 20 Burmese pythons from the wild in Florida challenge](https://www.yahoo.com/news/grand-prize-winner-removed-20-205303290.html)
+- Sep 17 - [‘This Is Sophisticated’: The Hezbollah Pager Explosions Explained](https://www.barrons.com/articles/this-is-sophisticated-the-hezbollah-pager-explosions-explained-476c64e3?siteid=yhoof2&yptr=yahoo)
 - Sep 17 - [A man accused of stalking UConn star Paige Bueckers is found with an engagement ring near airport](https://www.yahoo.com/news/man-accused-stalking-uconn-star-185023177.html)
-- Sep 17 - [How Israel may have turned pagers into a weapon to attack Hezbollah](https://www.yahoo.com/news/israel-may-turned-pagers-weapon-175649011.html)
+- Sep 17 - [The Biden administration is letting Alaska Airlines buy Hawaiian Air but with conditions](https://finance.yahoo.com/news/biden-administration-let-alaska-airlines-184126945.html)
+- Sep 17 - [Texas Border Patrol agent dead after head-on collision on FM 70 in Nueces County](https://www.yahoo.com/news/texas-border-patrol-agent-dead-181537328.html)
 - Sep 17 - [Tom Golisano donates $360M to upstate NY non-profits: See the amount each receives](https://www.yahoo.com/news/tom-golisano-donates-360m-upstate-173500578.html)
-- Sep 17 - ['Heartbreaking': Mass. police recruit dies after getting knocked out in training exercise](https://www.yahoo.com/news/heartbreaking-mass-police-recruit-dies-172256427.html)
 <!-- feed end -->
 
 ### Onstream
