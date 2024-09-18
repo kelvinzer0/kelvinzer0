@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [The Daily T: How and why did Israel blow up Hezbollah’s pagers?](https://www.yahoo.com/news/daily-t-why-did-israel-155410227.html)
-- Sep 18 - [The first iPhone 16 reviews are out. Here’s what people are saying](https://www.yahoo.com/tech/first-iphone-16-reviews-people-152306604.html)
-- Sep 18 - [Treasurer of Massachusetts town fired amid investigation into stolen money, officials say](https://www.yahoo.com/news/treasurer-central-mass-town-fired-140551861.html)
-- Sep 18 - [“He’s Cooked”: Republicans Say This Is Mike Johnson’s Last Rodeo](https://www.yahoo.com/news/cooked-republicans-mike-johnson-last-145629506.html)
-- Sep 18 - [An Incredible Organism Is Evolving at Lightning Speed—Faster Than We Ever Imagined Possible](https://www.yahoo.com/news/incredible-organism-evolving-lightning-speed-140000840.html)
+- Sep 18 - [Boeing Resuming Negotiations With 'Frustrated' Union Partner Amid Strike](https://finance.yahoo.com/news/boeing-resuming-negotiations-frustrated-union-162939534.html)
+- Sep 18 - [Boeing to temporarily furlough tens of thousands of employees](https://finance.yahoo.com/news/boeing-temporarily-furlough-large-number-160107614.html)
+- Sep 18 - [FBI disrupts Chinese cyber operation targeting critical infrastructure in the US](https://www.yahoo.com/news/fbi-disrupts-chinese-cyber-operation-155439721.html)
+- Sep 18 - [Atlantic City mayor, wife indicted for allegedly beating and abusing their teenage daughter](https://www.yahoo.com/news/atlantic-city-mayor-wife-indicted-154354775.html)
+- Sep 18 - [Saudi Arabia will not recognise Israel without Palestinian state, says Crown Prince](https://www.yahoo.com/news/saudi-arabia-not-recognise-israel-152438198.html)
 <!-- feed end -->
 
 ### Onstream
