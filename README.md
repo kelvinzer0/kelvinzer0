@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 18 - [Israel planted explosives in Hezbollah's Taiwan-made pagers, sources say](https://www.yahoo.com/news/israel-planted-explosives-hezbollahs-taiwan-000753845.html)
 - Sep 18 - [Many women are blindsided by perimenopause. 5 facts everyone should know about this time of life.](https://www.yahoo.com/lifestyle/many-women-are-blindsided-by-perimenopause-5-facts-everyone-should-know-about-this-time-of-life-000632324.html)
-- Sep 17 - [Wildfire grows to nearly 2K acres next to Utah-Colorado border](https://www.yahoo.com/news/wildfire-grows-nearly-2k-acres-222137524.html)
-- Sep 17 - [NASA Scientists "Howl in Terror" as They Discovered Disastrous Flaw in $5 Billion Spacecraft About to Launch](https://www.yahoo.com/news/nasa-scientists-howl-terror-discovered-210434344.html)
-- Sep 17 - [Grand prize winner removed 20 Burmese pythons from the wild in Florida challenge](https://www.yahoo.com/news/grand-prize-winner-removed-20-205303290.html)
+- Sep 18 - [Video shows stabbings, shooting inside Las Vegas casino: ‘He growled like an animal’](https://www.yahoo.com/news/video-shows-stabbings-shooting-inside-000257665.html)
+- Sep 17 - [Ukraine boxing champ Oleksandr Usyk released after Poland detention](https://www.yahoo.com/news/ukraine-boxing-champ-oleksandr-usyk-233945553.html)
+- Sep 17 - [These Zodiac Signs Will Be Most Affected by “Trifecta” Super Eclipse](https://www.yahoo.com/lifestyle/zodiac-signs-most-affected-trifecta-021817351.html)
 <!-- feed end -->
 
 ### Onstream
