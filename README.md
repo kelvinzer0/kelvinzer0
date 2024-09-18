@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Veteran CIA officer who drugged and sexually assaulted dozens of women gets 30 years in prison](https://www.yahoo.com/news/veteran-cia-officer-drugged-sexually-211437031.html)
+- Sep 18 - [No charges will be pursued in shooting that killed 2 after Detroit Lions game](https://www.yahoo.com/news/no-charges-pursued-shooting-killed-220347560.html)
+- Sep 18 - [‘With heavy hearts,’ Johnson County Mexican restaurant just closed after 15 years](https://www.yahoo.com/news/heavy-hearts-johnson-county-mexican-214703947.html)
+- Sep 18 - [Elon Musk Reacts After Mark Cuban Says He Would Buy X 'In A Heartbeat'](https://finance.yahoo.com/news/elon-musk-reacts-mark-cuban-210420462.html)
 - Sep 18 - [Gordon Ramsay's Secret Ingredient For Steak Is One We Wish We'd Known Before](https://www.yahoo.com/lifestyle/gordon-ramsays-secret-ingredient-steak-201541567.html)
-- Sep 18 - [Why 80% of CEOs aim to bring their workers back to the office](https://finance.yahoo.com/video/why-80-ceos-aim-bring-184500677.html)
-- Sep 18 - [Intel finally gives Wall Street good news](https://finance.yahoo.com/news/intel-finally-gives-wall-street-good-news-182512526.html)
-- Sep 18 - [This is Utah’s richest city, study says — and it’s not Park City](https://www.yahoo.com/news/utah-richest-city-study-says-180136558.html)
+- Sep 18 - [New Look At B-21 Raider Stealth Bomber Flight Testing Released](https://www.yahoo.com/news/look-b-21-raider-stealth-194643358.html)
 <!-- feed end -->
 
 ### Onstream
