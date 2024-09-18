@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Boeing Resuming Negotiations With 'Frustrated' Union Partner Amid Strike](https://finance.yahoo.com/news/boeing-resuming-negotiations-frustrated-union-162939534.html)
-- Sep 18 - [Boeing to temporarily furlough tens of thousands of employees](https://finance.yahoo.com/news/boeing-temporarily-furlough-large-number-160107614.html)
-- Sep 18 - [FBI disrupts Chinese cyber operation targeting critical infrastructure in the US](https://www.yahoo.com/news/fbi-disrupts-chinese-cyber-operation-155439721.html)
+- Sep 18 - [Amazon Quietly Launched Limited-Time Deals on Tons of DeWalt Tools (Up to 45% Off!)](https://www.yahoo.com/lifestyle/amazon-quietly-launched-limited-time-164900573.html)
+- Sep 18 - [British-educated businesswoman denies making Hezbollah explosive pagers which killed at least 12 people](https://www.yahoo.com/news/british-educated-businesswoman-denies-making-150714792.html)
+- Sep 18 - [Boeing furloughs thousands as it hunkers down for extended strike](https://finance.yahoo.com/news/boeing-temporarily-furlough-large-number-160107029.html)
+- Sep 18 - [Hawaii's Kilauea volcano erupts again](https://www.yahoo.com/news/hawaiis-kilauea-volcano-erupts-again-155346633.html)
 - Sep 18 - [Atlantic City mayor, wife indicted for allegedly beating and abusing their teenage daughter](https://www.yahoo.com/news/atlantic-city-mayor-wife-indicted-154354775.html)
-- Sep 18 - [Saudi Arabia will not recognise Israel without Palestinian state, says Crown Prince](https://www.yahoo.com/news/saudi-arabia-not-recognise-israel-152438198.html)
 <!-- feed end -->
 
 ### Onstream
