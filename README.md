@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 18 - [Scientific American makes presidential endorsement for only the second time in its 179-year history](https://www.yahoo.com/news/scientific-american-makes-presidential-endorsement-135754693.html)
 - Sep 18 - [George Clooney Makes Donald Trump An Offer In Taunting Clapback: ‘I Will If He Does’](https://www.yahoo.com/entertainment/george-clooney-makes-donald-trump-093407838.html)
-- Sep 18 - [Forget Nvidia: This Top Artificial Intelligence (AI) Stock Is Skyrocketing and Can Soar Higher](https://finance.yahoo.com/news/forget-nvidia-top-artificial-intelligence-091000303.html)
+- Sep 18 - [China hits 9 US firms with property freeze over weapons sales to Taiwan](https://www.yahoo.com/news/china-sets-countermeasures-against-9-071927008.html)
 - Sep 18 - [Southern California suspects burglarize Target, hide stolen goods in baby stroller](https://www.yahoo.com/news/southern-california-suspects-burglarize-target-031013083.html)
-- Sep 18 - [Starbucks North America CEO Michael Conway Quits After Just 6 Months In The Position](https://finance.yahoo.com/news/starbucks-north-america-ceo-michael-015117737.html)
+- Sep 18 - [Gold Apollo says Budapest-based BAC produces model of pagers used in Lebanon blasts](https://www.yahoo.com/news/gold-apollo-says-did-not-021007964.html)
 <!-- feed end -->
 
 ### Onstream
