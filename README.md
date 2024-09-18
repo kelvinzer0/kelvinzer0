@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Marines reopen second WWII-era airfield to prep for future combat](https://www.yahoo.com/news/marines-reopen-second-wwii-era-142524479.html)
+- Sep 18 - [The Daily T: How and why did Israel blow up Hezbollah’s pagers?](https://www.yahoo.com/news/daily-t-why-did-israel-155410227.html)
+- Sep 18 - [The first iPhone 16 reviews are out. Here’s what people are saying](https://www.yahoo.com/tech/first-iphone-16-reviews-people-152306604.html)
+- Sep 18 - [Treasurer of Massachusetts town fired amid investigation into stolen money, officials say](https://www.yahoo.com/news/treasurer-central-mass-town-fired-140551861.html)
+- Sep 18 - [“He’s Cooked”: Republicans Say This Is Mike Johnson’s Last Rodeo](https://www.yahoo.com/news/cooked-republicans-mike-johnson-last-145629506.html)
 - Sep 18 - [An Incredible Organism Is Evolving at Lightning Speed—Faster Than We Ever Imagined Possible](https://www.yahoo.com/news/incredible-organism-evolving-lightning-speed-140000840.html)
-- Sep 18 - [He bought a cruise ship on Craigslist and spent over $1 million restoring it. Then his dream sank](https://www.yahoo.com/lifestyle/bought-cruise-ship-craigslist-spent-125749905.html)
-- Sep 18 - [Deed to $4M North Carolina home transferred to total stranger without owner’s knowledge — here's what happened](https://finance.yahoo.com/news/deed-4m-north-carolina-home-120100675.html)
-- Sep 18 - [Scientists Found Hidden Physics Inside Van Gogh’s Starry Night](https://www.yahoo.com/news/scientists-found-hidden-physics-inside-120000947.html)
 <!-- feed end -->
 
 ### Onstream
