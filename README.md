@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Door falls off airplane, makes an emergency landing at Myrtle Beach airport. What happened](https://www.yahoo.com/news/door-falls-off-airplane-makes-163819238.html)
-- Sep 18 - [Tourist dies after losing her leg in shark attack off Canary Islands](https://www.yahoo.com/news/tourist-dies-losing-her-leg-162401756.html)
-- Sep 18 - [British-educated businesswoman denies making Hezbollah explosive pagers which killed at least 12 people](https://www.yahoo.com/news/british-educated-businesswoman-denies-making-150714792.html)
-- Sep 18 - [Musk threatens to sue FAA after SpaceX fined over launch](https://finance.yahoo.com/video/musk-threatens-sue-faa-spacex-161759201.html)
-- Sep 18 - [Did Taylor Swift buy a house in Bucks County? Here's what we know right now](https://www.yahoo.com/entertainment/did-taylor-swift-buy-house-161652002.html)
+- Sep 18 - [Sean 'Diddy' Combs back in court to request bail, complains of 'horrific' New York City jail conditions](https://www.yahoo.com/news/sean-diddy-combs-back-court-191241573.html)
+- Sep 18 - [Lansing boys shot Tuesday were Sexton High students on way home from school, officials say](https://www.yahoo.com/news/lansing-boys-shot-tuesday-were-181547025.html)
+- Sep 18 - [A Data Scientist Resigned From Twitter and Blasted Elon Musk Directly to His Face](https://www.yahoo.com/news/data-scientist-resigned-twitter-blasted-181505572.html)
+- Sep 18 - [This is Utah’s richest city, study says — and it’s not Park City](https://www.yahoo.com/news/utah-richest-city-study-says-180136558.html)
+- Sep 18 - [Cal Poly student who shot guns on campus sentenced to jail. ‘Let this serve as a lesson’](https://www.yahoo.com/news/cal-poly-student-shot-guns-174515087.html)
 <!-- feed end -->
 
 ### Onstream
