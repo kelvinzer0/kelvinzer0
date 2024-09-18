@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Southern California suspects burglarize Target, hide stolen goods in baby stroller](https://www.yahoo.com/news/southern-california-suspects-burglarize-target-031013083.html)
-- Sep 18 - [NYC woman, 81, walking dog feels 'lucky' to be alive after video shows man brutally punching her in the face](https://www.yahoo.com/news/nyc-woman-81-walking-dog-021521968.html)
+- Sep 18 - [For 75 years, Morris County eatery served meals and memories. Can fans save it?](https://www.yahoo.com/news/75-years-morris-county-eatery-083440239.html)
 - Sep 18 - [Starbucks North America CEO Michael Conway Quits After Just 6 Months In The Position](https://finance.yahoo.com/news/starbucks-north-america-ceo-michael-015117737.html)
-- Sep 18 - [11-year-old felt hip pain and was limping. It was the first sign of stage 4 cancer](https://www.yahoo.com/news/11-old-felt-hip-pain-012312445.html)
 - Sep 18 - [Trump quips he wishes Biden hadn’t called him: ‘He was so nice to me’](https://www.yahoo.com/news/trump-quips-wishes-biden-hadn-002424784.html)
+- Sep 18 - [Many women are blindsided by perimenopause. 5 facts everyone should know about this time of life.](https://www.yahoo.com/lifestyle/many-women-are-blindsided-by-perimenopause-5-facts-everyone-should-know-about-this-time-of-life-000632324.html)
+- Sep 18 - [Video shows stabbings, shooting inside Las Vegas casino: ‘He growled like an animal’](https://www.yahoo.com/news/video-shows-stabbings-shooting-inside-000257665.html)
 <!-- feed end -->
 
 ### Onstream
