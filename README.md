@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [‘This Is Sophisticated’: The Hezbollah Pager Explosions Explained](https://www.barrons.com/articles/this-is-sophisticated-the-hezbollah-pager-explosions-explained-476c64e3?siteid=yhoof2&yptr=yahoo)
-- Sep 17 - [A man accused of stalking UConn star Paige Bueckers is found with an engagement ring near airport](https://www.yahoo.com/news/man-accused-stalking-uconn-star-185023177.html)
-- Sep 17 - [The Biden administration is letting Alaska Airlines buy Hawaiian Air but with conditions](https://finance.yahoo.com/news/biden-administration-let-alaska-airlines-184126945.html)
-- Sep 17 - [Texas Border Patrol agent dead after head-on collision on FM 70 in Nueces County](https://www.yahoo.com/news/texas-border-patrol-agent-dead-181537328.html)
-- Sep 17 - [Tom Golisano donates $360M to upstate NY non-profits: See the amount each receives](https://www.yahoo.com/news/tom-golisano-donates-360m-upstate-173500578.html)
+- Sep 18 - [Israel planted explosives in Hezbollah's Taiwan-made pagers, sources say](https://www.yahoo.com/news/israel-planted-explosives-hezbollahs-taiwan-000753845.html)
+- Sep 18 - [Many women are blindsided by perimenopause. 5 facts everyone should know about this time of life.](https://www.yahoo.com/lifestyle/many-women-are-blindsided-by-perimenopause-5-facts-everyone-should-know-about-this-time-of-life-000632324.html)
+- Sep 17 - [Wildfire grows to nearly 2K acres next to Utah-Colorado border](https://www.yahoo.com/news/wildfire-grows-nearly-2k-acres-222137524.html)
+- Sep 17 - [NASA Scientists "Howl in Terror" as They Discovered Disastrous Flaw in $5 Billion Spacecraft About to Launch](https://www.yahoo.com/news/nasa-scientists-howl-terror-discovered-210434344.html)
+- Sep 17 - [Grand prize winner removed 20 Burmese pythons from the wild in Florida challenge](https://www.yahoo.com/news/grand-prize-winner-removed-20-205303290.html)
 <!-- feed end -->
 
 ### Onstream
