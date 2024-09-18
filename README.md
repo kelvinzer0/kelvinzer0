@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Sean 'Diddy' Combs back in court to request bail, complains of 'horrific' New York City jail conditions](https://www.yahoo.com/news/sean-diddy-combs-back-court-191241573.html)
-- Sep 18 - [Lansing boys shot Tuesday were Sexton High students on way home from school, officials say](https://www.yahoo.com/news/lansing-boys-shot-tuesday-were-181547025.html)
+- Sep 18 - [Powell says Fed not behind the curve after 50 bp rate cut](https://finance.yahoo.com/video/powell-says-fed-not-behind-195005596.html)
+- Sep 18 - [Intel finally gives Wall Street good news](https://finance.yahoo.com/news/intel-finally-gives-wall-street-good-news-182512526.html)
 - Sep 18 - [A Data Scientist Resigned From Twitter and Blasted Elon Musk Directly to His Face](https://www.yahoo.com/news/data-scientist-resigned-twitter-blasted-181505572.html)
 - Sep 18 - [This is Utah’s richest city, study says — and it’s not Park City](https://www.yahoo.com/news/utah-richest-city-study-says-180136558.html)
-- Sep 18 - [Cal Poly student who shot guns on campus sentenced to jail. ‘Let this serve as a lesson’](https://www.yahoo.com/news/cal-poly-student-shot-guns-174515087.html)
+- Sep 18 - [The strange reason why your body ages most rapidly between 44 and 60—and how to combat it](https://finance.yahoo.com/news/strange-reason-why-body-ages-170132264.html)
 <!-- feed end -->
 
 ### Onstream
