@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Powell says Fed not behind the curve after 50 bp rate cut](https://finance.yahoo.com/video/powell-says-fed-not-behind-195005596.html)
+- Sep 18 - [Veteran CIA officer who drugged and sexually assaulted dozens of women gets 30 years in prison](https://www.yahoo.com/news/veteran-cia-officer-drugged-sexually-211437031.html)
+- Sep 18 - [Gordon Ramsay's Secret Ingredient For Steak Is One We Wish We'd Known Before](https://www.yahoo.com/lifestyle/gordon-ramsays-secret-ingredient-steak-201541567.html)
+- Sep 18 - [Why 80% of CEOs aim to bring their workers back to the office](https://finance.yahoo.com/video/why-80-ceos-aim-bring-184500677.html)
 - Sep 18 - [Intel finally gives Wall Street good news](https://finance.yahoo.com/news/intel-finally-gives-wall-street-good-news-182512526.html)
-- Sep 18 - [A Data Scientist Resigned From Twitter and Blasted Elon Musk Directly to His Face](https://www.yahoo.com/news/data-scientist-resigned-twitter-blasted-181505572.html)
 - Sep 18 - [This is Utah’s richest city, study says — and it’s not Park City](https://www.yahoo.com/news/utah-richest-city-study-says-180136558.html)
-- Sep 18 - [The strange reason why your body ages most rapidly between 44 and 60—and how to combat it](https://finance.yahoo.com/news/strange-reason-why-body-ages-170132264.html)
 <!-- feed end -->
 
 ### Onstream
