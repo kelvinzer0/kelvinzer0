@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Starbucks North America CEO Michael Conway Quits After Just 6 Months In The Position](https://finance.yahoo.com/news/starbucks-north-america-ceo-michael-015117737.html)
+- Sep 18 - [11-year-old felt hip pain and was limping. It was the first sign of stage 4 cancer](https://www.yahoo.com/news/11-old-felt-hip-pain-012312445.html)
 - Sep 18 - [Israel planted explosives in Hezbollah's Taiwan-made pagers, sources say](https://www.yahoo.com/news/israel-planted-explosives-hezbollahs-taiwan-000753845.html)
+- Sep 18 - [SpaceX pushes booster recovery limits with satellite launch](https://www.yahoo.com/news/spacex-pushes-booster-recovery-limits-000700529.html)
 - Sep 18 - [Many women are blindsided by perimenopause. 5 facts everyone should know about this time of life.](https://www.yahoo.com/lifestyle/many-women-are-blindsided-by-perimenopause-5-facts-everyone-should-know-about-this-time-of-life-000632324.html)
-- Sep 18 - [Video shows stabbings, shooting inside Las Vegas casino: ‘He growled like an animal’](https://www.yahoo.com/news/video-shows-stabbings-shooting-inside-000257665.html)
-- Sep 17 - [Ukraine boxing champ Oleksandr Usyk released after Poland detention](https://www.yahoo.com/news/ukraine-boxing-champ-oleksandr-usyk-233945553.html)
-- Sep 17 - [These Zodiac Signs Will Be Most Affected by “Trifecta” Super Eclipse](https://www.yahoo.com/lifestyle/zodiac-signs-most-affected-trifecta-021817351.html)
 <!-- feed end -->
 
 ### Onstream
