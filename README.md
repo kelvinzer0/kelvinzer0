@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Amazon Quietly Launched Limited-Time Deals on Tons of DeWalt Tools (Up to 45% Off!)](https://www.yahoo.com/lifestyle/amazon-quietly-launched-limited-time-164900573.html)
+- Sep 18 - [Door falls off airplane, makes an emergency landing at Myrtle Beach airport. What happened](https://www.yahoo.com/news/door-falls-off-airplane-makes-163819238.html)
+- Sep 18 - [Tourist dies after losing her leg in shark attack off Canary Islands](https://www.yahoo.com/news/tourist-dies-losing-her-leg-162401756.html)
 - Sep 18 - [British-educated businesswoman denies making Hezbollah explosive pagers which killed at least 12 people](https://www.yahoo.com/news/british-educated-businesswoman-denies-making-150714792.html)
-- Sep 18 - [Boeing furloughs thousands as it hunkers down for extended strike](https://finance.yahoo.com/news/boeing-temporarily-furlough-large-number-160107029.html)
-- Sep 18 - [Hawaii's Kilauea volcano erupts again](https://www.yahoo.com/news/hawaiis-kilauea-volcano-erupts-again-155346633.html)
-- Sep 18 - [Atlantic City mayor, wife indicted for allegedly beating and abusing their teenage daughter](https://www.yahoo.com/news/atlantic-city-mayor-wife-indicted-154354775.html)
+- Sep 18 - [Musk threatens to sue FAA after SpaceX fined over launch](https://finance.yahoo.com/video/musk-threatens-sue-faa-spacex-161759201.html)
+- Sep 18 - [Did Taylor Swift buy a house in Bucks County? Here's what we know right now](https://www.yahoo.com/entertainment/did-taylor-swift-buy-house-161652002.html)
 <!-- feed end -->
 
 ### Onstream
