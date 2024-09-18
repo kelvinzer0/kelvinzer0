@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Malaysia's sultan to visit China, eyes infrastructure support](https://www.yahoo.com/news/malaysias-sultan-visit-china-eyes-040856855.html)
 - Sep 18 - [NYC woman, 81, walking dog feels 'lucky' to be alive after video shows man brutally punching her in the face](https://www.yahoo.com/news/nyc-woman-81-walking-dog-021521968.html)
+- Sep 18 - [Taiwan's Gold Apollo says it did not make pagers used in Lebanon blasts](https://www.yahoo.com/news/gold-apollo-says-did-not-021007964.html)
 - Sep 18 - [Starbucks North America CEO Michael Conway Quits After Just 6 Months In The Position](https://finance.yahoo.com/news/starbucks-north-america-ceo-michael-015117737.html)
 - Sep 18 - [11-year-old felt hip pain and was limping. It was the first sign of stage 4 cancer](https://www.yahoo.com/news/11-old-felt-hip-pain-012312445.html)
 - Sep 18 - [Trump quips he wishes Biden hadn’t called him: ‘He was so nice to me’](https://www.yahoo.com/news/trump-quips-wishes-biden-hadn-002424784.html)
