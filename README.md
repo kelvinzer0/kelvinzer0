@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Marines reopen second WWII-era airfield to prep for future combat](https://www.yahoo.com/news/marines-reopen-second-wwii-era-142524479.html)
+- Sep 18 - [An Incredible Organism Is Evolving at Lightning Speed—Faster Than We Ever Imagined Possible](https://www.yahoo.com/news/incredible-organism-evolving-lightning-speed-140000840.html)
+- Sep 18 - [He bought a cruise ship on Craigslist and spent over $1 million restoring it. Then his dream sank](https://www.yahoo.com/lifestyle/bought-cruise-ship-craigslist-spent-125749905.html)
 - Sep 18 - [Deed to $4M North Carolina home transferred to total stranger without owner’s knowledge — here's what happened](https://finance.yahoo.com/news/deed-4m-north-carolina-home-120100675.html)
-- Sep 18 - [Health officials sound the alarm after confirming deaths caused by dangerous disease spread by mosquitos: 'Poses a serious risk'](https://www.yahoo.com/news/health-officials-sound-alarm-confirming-103029582.html)
-- Sep 18 - [Scientific American makes presidential endorsement for only the second time in its 179-year history](https://www.yahoo.com/news/scientific-american-makes-presidential-endorsement-135754693.html)
-- Sep 18 - [Ukrainian drones strike a major military depot in a Russian town northwest of Moscow](https://www.yahoo.com/news/ukrainian-drones-strike-large-military-094948888.html)
-- Sep 18 - [I-Team: Another dirt bike takeover; why didn’t anyone call police?](https://www.yahoo.com/news/team-another-dirt-bike-takeover-214618891.html)
+- Sep 18 - [Scientists Found Hidden Physics Inside Van Gogh’s Starry Night](https://www.yahoo.com/news/scientists-found-hidden-physics-inside-120000947.html)
 <!-- feed end -->
 
 ### Onstream
