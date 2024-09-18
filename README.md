@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Apple reveals how it's made the iPhone 16 series (much) easier to repair](https://www.yahoo.com/news/apple-reveals-how-its-made-the-iphone-16-series-much-easier-to-repair-120055256.html)
+- Sep 18 - [Think A Quarter or Half-Point Fed Cut Will Make Homes More Affordable? Just The Opposite May Happen – Here's Why](https://finance.yahoo.com/news/think-quarter-half-point-fed-115520413.html)
+- Sep 18 - [Hezbollah vows revenge after exploding pagers injure thousands](https://www.yahoo.com/news/hezbollah-vows-revenge-exploding-pagers-112140095.html)
 - Sep 18 - [Scientific American makes presidential endorsement for only the second time in its 179-year history](https://www.yahoo.com/news/scientific-american-makes-presidential-endorsement-135754693.html)
-- Sep 18 - [George Clooney Makes Donald Trump An Offer In Taunting Clapback: ‘I Will If He Does’](https://www.yahoo.com/entertainment/george-clooney-makes-donald-trump-093407838.html)
-- Sep 18 - [China hits 9 US firms with property freeze over weapons sales to Taiwan](https://www.yahoo.com/news/china-sets-countermeasures-against-9-071927008.html)
-- Sep 18 - [Southern California suspects burglarize Target, hide stolen goods in baby stroller](https://www.yahoo.com/news/southern-california-suspects-burglarize-target-031013083.html)
-- Sep 18 - [Gold Apollo says Budapest-based BAC produces model of pagers used in Lebanon blasts](https://www.yahoo.com/news/gold-apollo-says-did-not-021007964.html)
+- Sep 18 - [Ukrainian drones strike a large military depot in a Russian town northwest of Moscow](https://www.yahoo.com/news/ukrainian-drones-strike-large-military-094948888.html)
 <!-- feed end -->
 
 ### Onstream
