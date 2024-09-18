@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [For 75 years, Morris County eatery served meals and memories. Can fans save it?](https://www.yahoo.com/news/75-years-morris-county-eatery-083440239.html)
+- Sep 18 - [Scientific American makes presidential endorsement for only the second time in its 179-year history](https://www.yahoo.com/news/scientific-american-makes-presidential-endorsement-135754693.html)
+- Sep 18 - [George Clooney Makes Donald Trump An Offer In Taunting Clapback: ‘I Will If He Does’](https://www.yahoo.com/entertainment/george-clooney-makes-donald-trump-093407838.html)
+- Sep 18 - [Forget Nvidia: This Top Artificial Intelligence (AI) Stock Is Skyrocketing and Can Soar Higher](https://finance.yahoo.com/news/forget-nvidia-top-artificial-intelligence-091000303.html)
+- Sep 18 - [Southern California suspects burglarize Target, hide stolen goods in baby stroller](https://www.yahoo.com/news/southern-california-suspects-burglarize-target-031013083.html)
 - Sep 18 - [Starbucks North America CEO Michael Conway Quits After Just 6 Months In The Position](https://finance.yahoo.com/news/starbucks-north-america-ceo-michael-015117737.html)
-- Sep 18 - [Trump quips he wishes Biden hadn’t called him: ‘He was so nice to me’](https://www.yahoo.com/news/trump-quips-wishes-biden-hadn-002424784.html)
-- Sep 18 - [Many women are blindsided by perimenopause. 5 facts everyone should know about this time of life.](https://www.yahoo.com/lifestyle/many-women-are-blindsided-by-perimenopause-5-facts-everyone-should-know-about-this-time-of-life-000632324.html)
-- Sep 18 - [Video shows stabbings, shooting inside Las Vegas casino: ‘He growled like an animal’](https://www.yahoo.com/news/video-shows-stabbings-shooting-inside-000257665.html)
 <!-- feed end -->
 
 ### Onstream
