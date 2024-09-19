@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Authorities were warned that gunman was planning to attack Yellowstone facility](https://www.yahoo.com/news/authorities-were-warned-gunman-planning-220043429.html)
 - Sep 19 - [23andMe directors resign as the CEO of the genetic-testing company seeks to take it private](https://finance.yahoo.com/news/23andme-directors-resign-ceo-genetic-205019604.html)
+- Sep 19 - [14 Darwin Award Winners Whose Days Are Numbered (If They’re Not Already Over)](https://www.yahoo.com/entertainment/14-darwin-award-winners-whose-201603305.html)
 - Sep 19 - [Road work inspector who leaped to safety during Baltimore bridge collapse to file claim](https://www.yahoo.com/news/road-inspector-leaped-safety-during-201527661.html)
-- Sep 19 - [North Carolina Republican governor candidate Mark Robinson vows to stay in race despite media report](https://www.yahoo.com/news/north-carolina-republican-governor-candidate-194505067.html)
-- Sep 19 - [A couple found the Kentucky highway shooter's remains by being bounty hunters for a week, they say](https://www.yahoo.com/news/couple-found-kentucky-highway-shooters-180856779.html)
-- Sep 19 - [Old Farmer's Almanac says to keep your flip-flops out for fall. Unless you live in Indiana](https://www.yahoo.com/news/old-farmers-almanac-says-keep-180034337.html)
+- Sep 19 - [Woman sues Florida sheriff after mistaken arrest lands her in jail on Christmas](https://www.yahoo.com/news/woman-sues-florida-sheriff-mistaken-200608924.html)
 <!-- feed end -->
 
 ### Onstream
