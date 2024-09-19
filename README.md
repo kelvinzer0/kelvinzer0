@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Plug Power Stock Is Jumping on an Idea to Boost Sales](https://www.barrons.com/articles/plug-power-stock-leasing-6e913c2e?siteid=yhoof2&yptr=yahoo)
-- Sep 19 - [Wealthy People Do This One Thing That Broke People Don’t, According to Jaspreet Singh](https://finance.yahoo.com/news/wealthy-people-one-thing-broke-130010780.html)
 - Sep 19 - [Husband of Russia's richest woman arrested on murder charge after office shootout](https://www.yahoo.com/news/husband-russias-richest-woman-arrested-121541726.html)
-- Sep 19 - [Federal Reserve cuts interest rate by 0.5%: What it means for you](https://www.yahoo.com/news/federal-cuts-interest-rate-0-113951162.html)
 - Sep 19 - [I'm Actually 100% Convinced That It's Actually Physically, Mentally, And Emotionally Impossible Not To Laugh At Any Of These Clever Test Answers](https://www.yahoo.com/entertainment/im-actually-100-convinced-actually-113139934.html)
+- Sep 19 - [‘Financial Freedom’ author Grant Sabatier says there are 7 levels of wealth — what stage are you at in 2024?](https://finance.yahoo.com/news/financial-freedom-author-grant-sabatier-111300131.html)
+- Sep 19 - [Trump claims audience ‘went crazy’ for him at his debate with Harris – but there was no audience](https://www.yahoo.com/news/trump-claims-audience-went-crazy-105012935.html)
+- Sep 19 - [Huge python grabs Thai woman in her kitchen, squeezes her two hours before she can be freed](https://www.yahoo.com/news/huge-python-grabs-thai-woman-101541473.html)
 <!-- feed end -->
 
 ### Onstream
