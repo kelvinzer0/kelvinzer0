@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 19 - [Exclusive-US keeps missile system in Philippines as China tensions rise, tests wartime deployment](https://www.yahoo.com/news/exclusive-us-keeps-missile-system-033649167.html)
 - Sep 19 - [Ancient sword from the era of Moses, Book of Exodus uncovered in Egypt](https://www.yahoo.com/lifestyle/ancient-sword-era-moses-book-011114970.html)
-- Sep 19 - [China aircraft lessor orders 50 737 MAX jets, in boost to Boeing](https://finance.yahoo.com/news/china-aircraft-lessor-orders-50-004636410.html)
 - Sep 18 - [Georgia Sen. Jon Ossoff seeks more control over postmaster general after mail meltdown](https://www.yahoo.com/news/georgia-sen-jon-ossoff-seeks-221043630.html)
 - Sep 18 - [No charges will be pursued in shooting that killed 2 after Detroit Lions game](https://www.yahoo.com/news/no-charges-pursued-shooting-killed-220347560.html)
+- Sep 18 - [Search for suspect in Kentucky highway shooting ends with discovery of body believed to be his](https://www.yahoo.com/news/body-found-near-deadly-interstate-213419257.html)
 <!-- feed end -->
 
 ### Onstream
