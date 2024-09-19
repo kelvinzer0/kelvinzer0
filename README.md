@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Zelenskiy says Ukrainian military has reduced Russian potential to attack on eastern front](https://www.yahoo.com/news/zelenskiy-says-ukrainian-military-reduced-184018915.html)
-- Sep 19 - [Lady Gaga's Dad Endorses Trump On Fox, And You Won't Believe How He Describes Him](https://www.yahoo.com/entertainment/lady-gagas-dad-endorses-trump-180437913.html)
-- Sep 19 - [Trump cancels appearance with Polish President Duda in Pennsylvania](https://www.yahoo.com/news/trump-cancels-appearance-polish-president-173024676.html)
-- Sep 19 - [Jurors watch video of EMTs failing to treat Tyre Nichols after he was beaten](https://www.yahoo.com/news/jurors-watch-video-emts-failing-172455799.html)
-- Sep 19 - [A new genetic analysis of animals in the Wuhan market in 2019 may help find COVID-19's origin](https://www.yahoo.com/news/genetic-analysis-animals-wuhan-market-164723160.html)
+- Sep 19 - [North Carolina Republican governor candidate Mark Robinson vows to stay in race despite media report](https://www.yahoo.com/news/north-carolina-republican-governor-candidate-194505067.html)
+- Sep 19 - [A couple found the Kentucky highway shooter's remains by being bounty hunters for a week, they say](https://www.yahoo.com/news/couple-found-kentucky-highway-shooters-180856779.html)
+- Sep 19 - [I Was 50 With No Retirement Savings: How I Turned It Around & Retired Comfortably](https://finance.yahoo.com/news/50-no-retirement-savings-turned-150038852.html)
+- Sep 19 - [Will Armed EPA Agents Come To Take Your Car Next?](https://autos.yahoo.com/armed-epa-agents-come-car-180000514.html)
+- Sep 19 - [Update: Suspect in custody after Meridian altercation involved gunshots outside gym](https://www.yahoo.com/news/altercation-outside-meridian-gym-ends-173358797.html)
 <!-- feed end -->
 
 ### Onstream
