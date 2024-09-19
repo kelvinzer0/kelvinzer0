@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 19 - [Diddy’s Frantic Text To Cassie After Hotel Assault Read Aloud During Bail Appeal](https://www.yahoo.com/entertainment/diddy-frantic-text-cassie-hotel-150018607.html)
-- Sep 19 - [Police Responded to Report of 'Suspicious' Person. They Found a Vt. Politician and Family Dead](https://www.yahoo.com/news/police-responded-report-suspicious-person-143944069.html)
-- Sep 19 - [Watch: Panicked Russian soldiers react to Ukrainian air strike](https://www.yahoo.com/news/watch-damn-damn-panicked-russian-134604595.html)
-- Sep 19 - [Lincoln High disrupted by brawl between student and staff member, sparking investigation](https://www.yahoo.com/news/lincoln-high-disrupted-brawl-between-130107504.html)
+- Sep 19 - [Michigan sheriff's deputy climbs into vehicle with dazed man who was driving erratically](https://www.yahoo.com/news/michigan-sheriffs-deputy-climbs-vehicle-145940899.html)
+- Sep 19 - [This Is How The Founder Of General Motors Died A Penniless Bowling Alley Operator](https://autos.yahoo.com/founder-general-motors-died-penniless-131000456.html)
+- Sep 19 - [3 Dividend Stocks To Consider With Up To 9.8% Yield](https://finance.yahoo.com/news/3-dividend-stocks-consider-9-130542530.html)
 - Sep 19 - [Wealthy People Do This One Thing That Broke People Don’t, According to Jaspreet Singh](https://finance.yahoo.com/news/wealthy-people-one-thing-broke-130010780.html)
 <!-- feed end -->
 
