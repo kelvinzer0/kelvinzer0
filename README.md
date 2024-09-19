@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [China aircraft lessor orders 50 737 MAX jets, in boost to Boeing](https://finance.yahoo.com/news/china-aircraft-lessor-orders-50-004636410.html)
+- Sep 18 - [Georgia Sen. Jon Ossoff seeks more control over postmaster general after mail meltdown](https://www.yahoo.com/news/georgia-sen-jon-ossoff-seeks-221043630.html)
 - Sep 18 - [No charges will be pursued in shooting that killed 2 after Detroit Lions game](https://www.yahoo.com/news/no-charges-pursued-shooting-killed-220347560.html)
 - Sep 18 - [Search for suspect in Kentucky highway shooting ends with discovery of body believed to be his](https://www.yahoo.com/news/body-found-near-deadly-interstate-213419257.html)
-- Sep 18 - [Veteran CIA officer who drugged and sexually assaulted dozens of women gets 30 years in prison](https://www.yahoo.com/news/veteran-cia-officer-drugged-sexually-211437031.html)
-- Sep 18 - [Elon Musk Reacts After Mark Cuban Says He Would Buy X 'In A Heartbeat'](https://finance.yahoo.com/news/elon-musk-reacts-mark-cuban-210420462.html)
-- Sep 18 - [Gordon Ramsay's Secret Ingredient For Steak Is One We Wish We'd Known Before](https://www.yahoo.com/lifestyle/gordon-ramsays-secret-ingredient-steak-201541567.html)
+- Sep 18 - [Family sues Metra and rail company over Marin Lacson's death in Barrington](https://www.yahoo.com/news/family-sues-metra-rail-company-212958376.html)
 <!-- feed end -->
 
 ### Onstream
