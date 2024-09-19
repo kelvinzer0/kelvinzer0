@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Zelenskiy says Ukrainian military has reduced Russian potential to attack on eastern front](https://www.yahoo.com/news/zelenskiy-says-ukrainian-military-reduced-184018915.html)
+- Sep 19 - [Lady Gaga's Dad Endorses Trump On Fox, And You Won't Believe How He Describes Him](https://www.yahoo.com/entertainment/lady-gagas-dad-endorses-trump-180437913.html)
 - Sep 19 - [Trump cancels appearance with Polish President Duda in Pennsylvania](https://www.yahoo.com/news/trump-cancels-appearance-polish-president-173024676.html)
+- Sep 19 - [Jurors watch video of EMTs failing to treat Tyre Nichols after he was beaten](https://www.yahoo.com/news/jurors-watch-video-emts-failing-172455799.html)
 - Sep 19 - [A new genetic analysis of animals in the Wuhan market in 2019 may help find COVID-19's origin](https://www.yahoo.com/news/genetic-analysis-animals-wuhan-market-164723160.html)
-- Sep 19 - [Mannequins flew around the moon on a path astronauts could soon take. Scientists just revealed how they fared](https://www.yahoo.com/news/mannequins-flew-around-moon-path-161120845.html)
-- Sep 19 - [Diddy’s Frantic Text To Cassie After Hotel Assault Read Aloud During Bail Appeal](https://www.yahoo.com/entertainment/diddy-frantic-text-cassie-hotel-150018607.html)
-- Sep 19 - [Florence Pugh on the October 2024 Cover of British Vogue Just Set a New Low…](https://www.yahoo.com/entertainment/florence-pugh-october-2024-cover-150000614.html)
 <!-- feed end -->
 
 ### Onstream
