@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Mortgage and refinance rates today, September 19, 2024: Rates actually increase after Fed meeting](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-thursday-september-19-2024-100045861.html)
+- Sep 19 - [This High-Yielding Dividend Stock Just Cut Its Payout for a 2nd Time in a Year](https://finance.yahoo.com/news/high-yielding-dividend-stock-just-102500601.html)
+- Sep 19 - [Huge python grabs Thai woman in her kitchen, squeezes her two hours before she can be freed](https://www.yahoo.com/news/huge-python-grabs-thai-woman-101541473.html)
+- Sep 19 - [MIND is a combination of the Mediterranean and DASH diets. A dietitian who wrote a book on it shares 3 mistakes people make when starting out.](https://www.yahoo.com/lifestyle/mind-combination-mediterranean-dash-diets-093640499.html)
 - Sep 19 - [Israel bombs Lebanon after radio blasts, says it thwarts assassination plot](https://www.yahoo.com/news/israeli-strikes-hit-multiple-targets-064936076.html)
 - Sep 19 - [Exclusive-US keeps missile system in Philippines as China tensions rise, tests wartime deployment](https://www.yahoo.com/news/exclusive-us-keeps-missile-system-033649167.html)
-- Sep 19 - [Ancient sword from the era of Moses, Book of Exodus uncovered in Egypt](https://www.yahoo.com/lifestyle/ancient-sword-era-moses-book-011114970.html)
-- Sep 18 - [Wichita man shot motorcyclist who tried to get his tag number. He’s going to prison](https://www.yahoo.com/news/wichita-man-shot-motorcyclist-tried-224235503.html)
 <!-- feed end -->
 
 ### Onstream
