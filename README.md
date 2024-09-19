@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [This High-Yielding Dividend Stock Just Cut Its Payout for a 2nd Time in a Year](https://finance.yahoo.com/news/high-yielding-dividend-stock-just-102500601.html)
+- Sep 19 - [Husband of Russia's richest woman arrested on murder charge after office shootout](https://www.yahoo.com/news/husband-russias-richest-woman-arrested-121541726.html)
 - Sep 19 - [Huge python grabs Thai woman in her kitchen, squeezes her two hours before she can be freed](https://www.yahoo.com/news/huge-python-grabs-thai-woman-101541473.html)
-- Sep 19 - [MIND is a combination of the Mediterranean and DASH diets. A dietitian who wrote a book on it shares 3 mistakes people make when starting out.](https://www.yahoo.com/lifestyle/mind-combination-mediterranean-dash-diets-093640499.html)
-- Sep 19 - [Israel bombs Lebanon after radio blasts, says it thwarts assassination plot](https://www.yahoo.com/news/israeli-strikes-hit-multiple-targets-064936076.html)
-- Sep 19 - [Exclusive-US keeps missile system in Philippines as China tensions rise, tests wartime deployment](https://www.yahoo.com/news/exclusive-us-keeps-missile-system-033649167.html)
+- Sep 19 - [Germany suffers ‘spectacular’ 70pc drop in electric car sales](https://www.yahoo.com/news/germany-suffers-spectacular-70pc-drop-094729805.html)
+- Sep 19 - [GOP Lawmaker Slammed For Demand To Take Down Dem's 'Certain White Folks' Dig](https://www.yahoo.com/news/gop-lawmaker-slammed-demand-down-054724979.html)
+- Sep 19 - [Sean 'Diddy' Combs won't be released from jail, judge in bail appeal rules](https://www.yahoo.com/news/sean-diddy-combs-back-court-191241573.html)
 <!-- feed end -->
 
 ### Onstream
