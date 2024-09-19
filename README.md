@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Husband of Russia's richest woman arrested on murder charge after office shootout](https://www.yahoo.com/news/husband-russias-richest-woman-arrested-121541726.html)
-- Sep 19 - [I'm Actually 100% Convinced That It's Actually Physically, Mentally, And Emotionally Impossible Not To Laugh At Any Of These Clever Test Answers](https://www.yahoo.com/entertainment/im-actually-100-convinced-actually-113139934.html)
-- Sep 19 - [‘Financial Freedom’ author Grant Sabatier says there are 7 levels of wealth — what stage are you at in 2024?](https://finance.yahoo.com/news/financial-freedom-author-grant-sabatier-111300131.html)
-- Sep 19 - [Trump claims audience ‘went crazy’ for him at his debate with Harris – but there was no audience](https://www.yahoo.com/news/trump-claims-audience-went-crazy-105012935.html)
-- Sep 19 - [Huge python grabs Thai woman in her kitchen, squeezes her two hours before she can be freed](https://www.yahoo.com/news/huge-python-grabs-thai-woman-101541473.html)
+- Sep 19 - [Diddy’s Frantic Text To Cassie After Hotel Assault Read Aloud During Bail Appeal](https://www.yahoo.com/entertainment/diddy-frantic-text-cassie-hotel-150018607.html)
+- Sep 19 - [Police Responded to Report of 'Suspicious' Person. They Found a Vt. Politician and Family Dead](https://www.yahoo.com/news/police-responded-report-suspicious-person-143944069.html)
+- Sep 19 - [Watch: Panicked Russian soldiers react to Ukrainian air strike](https://www.yahoo.com/news/watch-damn-damn-panicked-russian-134604595.html)
+- Sep 19 - [Lincoln High disrupted by brawl between student and staff member, sparking investigation](https://www.yahoo.com/news/lincoln-high-disrupted-brawl-between-130107504.html)
+- Sep 19 - [Wealthy People Do This One Thing That Broke People Don’t, According to Jaspreet Singh](https://finance.yahoo.com/news/wealthy-people-one-thing-broke-130010780.html)
 <!-- feed end -->
 
 ### Onstream
