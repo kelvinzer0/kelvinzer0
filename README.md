@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Road work inspector who leaped to safety during Baltimore bridge collapse to file claim](https://www.yahoo.com/news/road-inspector-leaped-safety-during-201527661.html)
 - Sep 19 - [North Carolina Republican governor candidate Mark Robinson vows to stay in race despite media report](https://www.yahoo.com/news/north-carolina-republican-governor-candidate-194505067.html)
-- Sep 19 - [A couple found the Kentucky highway shooter's remains by being bounty hunters for a week, they say](https://www.yahoo.com/news/couple-found-kentucky-highway-shooters-180856779.html)
+- Sep 19 - [Zelenskiy says Ukrainian military has reduced Russian potential to attack on eastern front](https://www.yahoo.com/news/zelenskiy-says-ukrainian-military-reduced-184018915.html)
 - Sep 19 - [I Was 50 With No Retirement Savings: How I Turned It Around & Retired Comfortably](https://finance.yahoo.com/news/50-no-retirement-savings-turned-150038852.html)
-- Sep 19 - [Will Armed EPA Agents Come To Take Your Car Next?](https://autos.yahoo.com/armed-epa-agents-come-car-180000514.html)
-- Sep 19 - [Update: Suspect in custody after Meridian altercation involved gunshots outside gym](https://www.yahoo.com/news/altercation-outside-meridian-gym-ends-173358797.html)
+- Sep 19 - [Trump cancels appearance with Polish President Duda in Pennsylvania](https://www.yahoo.com/news/trump-cancels-appearance-polish-president-173024676.html)
 <!-- feed end -->
 
 ### Onstream
