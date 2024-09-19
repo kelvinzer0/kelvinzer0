@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Plug Power Stock Is Jumping on an Idea to Boost Sales](https://www.barrons.com/articles/plug-power-stock-leasing-6e913c2e?siteid=yhoof2&yptr=yahoo)
+- Sep 19 - [Wealthy People Do This One Thing That Broke People Don’t, According to Jaspreet Singh](https://finance.yahoo.com/news/wealthy-people-one-thing-broke-130010780.html)
 - Sep 19 - [Husband of Russia's richest woman arrested on murder charge after office shootout](https://www.yahoo.com/news/husband-russias-richest-woman-arrested-121541726.html)
-- Sep 19 - [Huge python grabs Thai woman in her kitchen, squeezes her two hours before she can be freed](https://www.yahoo.com/news/huge-python-grabs-thai-woman-101541473.html)
-- Sep 19 - [Israeli planes bomb southern Lebanon after radio blasts](https://www.yahoo.com/news/israeli-strikes-hit-multiple-targets-064936076.html)
-- Sep 19 - [GOP Lawmaker Slammed For Demand To Take Down Dem's 'Certain White Folks' Dig](https://www.yahoo.com/news/gop-lawmaker-slammed-demand-down-054724979.html)
-- Sep 19 - [Exclusive-US keeps missile system in Philippines as China tensions rise, tests wartime deployment](https://www.yahoo.com/news/exclusive-us-keeps-missile-system-033649167.html)
+- Sep 19 - [Federal Reserve cuts interest rate by 0.5%: What it means for you](https://www.yahoo.com/news/federal-cuts-interest-rate-0-113951162.html)
+- Sep 19 - [I'm Actually 100% Convinced That It's Actually Physically, Mentally, And Emotionally Impossible Not To Laugh At Any Of These Clever Test Answers](https://www.yahoo.com/entertainment/im-actually-100-convinced-actually-113139934.html)
 <!-- feed end -->
 
 ### Onstream
