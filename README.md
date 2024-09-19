@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Trump cancels appearance with Polish President Duda in Pennsylvania](https://www.yahoo.com/news/trump-cancels-appearance-polish-president-173024676.html)
+- Sep 19 - [A new genetic analysis of animals in the Wuhan market in 2019 may help find COVID-19's origin](https://www.yahoo.com/news/genetic-analysis-animals-wuhan-market-164723160.html)
+- Sep 19 - [Mannequins flew around the moon on a path astronauts could soon take. Scientists just revealed how they fared](https://www.yahoo.com/news/mannequins-flew-around-moon-path-161120845.html)
 - Sep 19 - [Diddy’s Frantic Text To Cassie After Hotel Assault Read Aloud During Bail Appeal](https://www.yahoo.com/entertainment/diddy-frantic-text-cassie-hotel-150018607.html)
-- Sep 19 - [Michigan sheriff's deputy climbs into vehicle with dazed man who was driving erratically](https://www.yahoo.com/news/michigan-sheriffs-deputy-climbs-vehicle-145940899.html)
-- Sep 19 - [This Is How The Founder Of General Motors Died A Penniless Bowling Alley Operator](https://autos.yahoo.com/founder-general-motors-died-penniless-131000456.html)
-- Sep 19 - [3 Dividend Stocks To Consider With Up To 9.8% Yield](https://finance.yahoo.com/news/3-dividend-stocks-consider-9-130542530.html)
-- Sep 19 - [Wealthy People Do This One Thing That Broke People Don’t, According to Jaspreet Singh](https://finance.yahoo.com/news/wealthy-people-one-thing-broke-130010780.html)
+- Sep 19 - [Florence Pugh on the October 2024 Cover of British Vogue Just Set a New Low…](https://www.yahoo.com/entertainment/florence-pugh-october-2024-cover-150000614.html)
 <!-- feed end -->
 
 ### Onstream
