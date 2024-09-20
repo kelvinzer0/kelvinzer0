@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Taliban using Iranian jammers to stop people watching critical news channels, says TV boss](https://www.yahoo.com/news/taliban-using-iranian-jammers-stop-070307707.html)
+- Sep 20 - [Trending tickers: Nike, Mercedes-Benz, FedEx and Investec](https://uk.finance.yahoo.com/news/nike-mercedes-benz-fedex-investec-trending-tickers-084701286.html)
+- Sep 20 - [Berlin's beloved döner kebab is in jeopardy after Turkey's proposal to regulate the famous food](https://www.yahoo.com/news/berlins-beloved-d-ner-kebab-060113401.html)
+- Sep 20 - [Zoo admits that their pandas are ‘painted dogs’ after backlash from visitors](https://www.yahoo.com/news/chinese-zoo-admits-pandas-painted-014004512.html)
 - Sep 20 - [Huawei 'super fans' annoyed at lack of supply as $2,800 phone hits China stores](https://finance.yahoo.com/news/huaweis-2-800-tri-fold-003712034.html)
 - Sep 19 - [Republicans assess potential fallout for Trump from North Carolina bombshell](https://www.yahoo.com/news/republicans-assess-potential-fallout-trump-232529370.html)
-- Sep 19 - [Live updates: Highway 166 flooded as freak thunderstorms slam SLO County](https://www.yahoo.com/news/flash-flooding-hail-tornadoes-warnings-232255306.html)
-- Sep 19 - [23andMe directors resign as the CEO of the genetic-testing company seeks to take it private](https://finance.yahoo.com/news/23andme-directors-resign-ceo-genetic-205019604.html)
 <!-- feed end -->
 
 ### Onstream
