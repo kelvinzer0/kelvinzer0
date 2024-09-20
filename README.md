@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Huawei's $2,800 phone launch disappoints amid supply concerns](https://finance.yahoo.com/news/huaweis-2-800-tri-fold-003712034.html)
+- Sep 20 - [Huawei 'super fans' annoyed at lack of supply as $2,800 phone hits China stores](https://finance.yahoo.com/news/huaweis-2-800-tri-fold-003712034.html)
 - Sep 19 - [Republicans assess potential fallout for Trump from North Carolina bombshell](https://www.yahoo.com/news/republicans-assess-potential-fallout-trump-232529370.html)
-- Sep 19 - [23andMe directors resign as the CEO of the genetic-testing company seeks to take it private](https://finance.yahoo.com/news/23andme-directors-resign-ceo-genetic-205019604.html)
+- Sep 19 - [Eastbound I-8 lanes to temporarily close for fallen SDPD officer’s funeral](https://www.yahoo.com/news/eastbound-8-lanes-temporarily-close-223914038.html)
+- Sep 19 - [California man discovers he's paid his neighbor's electricity bill for up to 18 years](https://www.yahoo.com/news/california-man-discovers-hes-paid-211237929.html)
 - Sep 19 - [Road work inspector who leaped to safety during Baltimore bridge collapse to file claim](https://www.yahoo.com/news/road-inspector-leaped-safety-during-201527661.html)
-- Sep 19 - [‘Take your medication and leave’: Comer blasts Democratic lawmaker during hearing](https://www.yahoo.com/news/medication-leave-comer-blasts-democratic-194734081.html)
 <!-- feed end -->
 
 ### Onstream
