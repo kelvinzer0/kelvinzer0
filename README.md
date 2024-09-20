@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Trending tickers: Nike, Mercedes-Benz, FedEx and Investec](https://uk.finance.yahoo.com/news/nike-mercedes-benz-fedex-investec-trending-tickers-084701286.html)
-- Sep 20 - [Berlin's beloved döner kebab is in jeopardy after Turkey's proposal to regulate the famous food](https://www.yahoo.com/news/berlins-beloved-d-ner-kebab-060113401.html)
+- Sep 20 - [Venerable Raleigh Beltline bridge will disappear this weekend](https://www.yahoo.com/news/venerable-raleigh-beltline-bridge-disappear-093000971.html)
+- Sep 20 - [Scientists looked deep beneath the Doomsday Glacier. What they found spells potential disaster for the planet](https://www.yahoo.com/news/scientists-looked-deep-beneath-doomsday-090048739.html)
+- Sep 20 - [Highway crash injures 8 Southern California firefighters](https://www.yahoo.com/news/highway-crash-injures-8-southern-064644941.html)
+- Sep 20 - [Thousands of exploding devices in Lebanon trigger a nation that has been on edge for years](https://www.yahoo.com/news/thousands-exploding-devices-lebanon-trigger-044515119.html)
 - Sep 20 - [Zoo admits that their pandas are ‘painted dogs’ after backlash from visitors](https://www.yahoo.com/news/chinese-zoo-admits-pandas-painted-014004512.html)
-- Sep 20 - [Huawei 'super fans' annoyed at lack of supply as $2,800 phone hits China stores](https://finance.yahoo.com/news/huaweis-2-800-tri-fold-003712034.html)
-- Sep 19 - [Republicans assess potential fallout for Trump from North Carolina bombshell](https://www.yahoo.com/news/republicans-assess-potential-fallout-trump-232529370.html)
 <!-- feed end -->
 
 ### Onstream
