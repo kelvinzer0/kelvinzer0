@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Pencil skirts and a prowling Mohamed Fayed: How I knew there was something sinister about Harrods](https://www.yahoo.com/news/forced-us-wear-tight-skirts-161657347.html)
 - Sep 20 - [A 41-year-old transformed his body with 2 diet changes and 1 simple workout technique](https://www.yahoo.com/lifestyle/41-old-transformed-body-2-154747629.html)
 - Sep 20 - [Tiny Kentucky town is rocked as their sheriff is jailed in the killing of a prominent judge](https://www.yahoo.com/news/kentucky-sheriff-charged-judges-death-145341016.html)
-- Sep 20 - [Hiker lucky to be alive after camera captures terrifying moment of falling down a mountain](https://www.yahoo.com/news/hiker-lucky-alive-camera-captures-073358850.html)
 - Sep 20 - [Hurricane models “Meltdown”?](https://www.yahoo.com/news/models-having-absolute-melt-down-142825679.html)
+- Sep 20 - [Trump Media plummets to new low on the first trading day the former president can sell his shares](https://finance.yahoo.com/news/trump-media-plummets-lows-first-141034324.html)
+- Sep 20 - [Song Binbin, Red Guard whose beating to death of a teacher heralded Mao’s Cultural Revolution](https://www.yahoo.com/news/song-binbin-red-guard-whose-135636493.html)
 <!-- feed end -->
 
 ### Onstream
