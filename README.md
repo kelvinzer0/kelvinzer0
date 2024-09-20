@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Scientists in South Africa say they have identified the first known outbreak of rabies in seals](https://www.yahoo.com/news/scientists-south-africa-identified-first-093352222.html)
-- Sep 20 - [Scientists looked deep beneath the Doomsday Glacier. What they found spells potential disaster for the planet](https://www.yahoo.com/news/scientists-looked-deep-beneath-doomsday-090048739.html)
-- Sep 20 - [Thousands of exploding devices in Lebanon trigger a nation that has been on edge for years](https://www.yahoo.com/news/thousands-exploding-devices-lebanon-trigger-044515119.html)
-- Sep 20 - [Zoo admits that their pandas are ‘painted dogs’ after backlash from visitors](https://www.yahoo.com/news/chinese-zoo-admits-pandas-painted-014004512.html)
-- Sep 20 - [Fayette County robbery goes awry as victim overpowers suspect: ‘Not today’](https://www.yahoo.com/news/fayette-county-robbery-goes-awry-022110399.html)
+- Sep 20 - [Mohamed Al-Fayed, outsider shunned by British high society](https://www.yahoo.com/news/mohamed-al-fayed-outsider-shunned-121457788.html)
+- Sep 20 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
+- Sep 20 - [The Independent to start building refuge after anonymous £25,000 donation boosts Brick by Brick campaign](https://www.yahoo.com/news/much-money-does-brick-brick-040111577.html)
+- Sep 20 - [Help, I Can't Stop Laughing At These 22 Extremely Dumb Things People Actually Posted On The Internet Last Week](https://www.yahoo.com/entertainment/help-cant-stop-laughing-22-111915710.html)
+- Sep 20 - [Russia warns West and Ukraine of 'disastrous consequences' if Kyiv moves against Belarus](https://www.yahoo.com/news/russia-warns-west-ukraine-disastrous-110029530.html)
 <!-- feed end -->
 
 ### Onstream
