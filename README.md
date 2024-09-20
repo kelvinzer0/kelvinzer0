@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Authorities were warned that gunman was planning to attack Yellowstone facility](https://www.yahoo.com/news/authorities-were-warned-gunman-planning-220043429.html)
+- Sep 20 - [Huawei's $2,800 tri-fold phone hits stores amid supply concerns](https://finance.yahoo.com/news/huaweis-2-800-tri-fold-003712034.html)
+- Sep 19 - [Republicans assess potential fallout for Trump from North Carolina bombshell](https://www.yahoo.com/news/republicans-assess-potential-fallout-trump-232529370.html)
 - Sep 19 - [23andMe directors resign as the CEO of the genetic-testing company seeks to take it private](https://finance.yahoo.com/news/23andme-directors-resign-ceo-genetic-205019604.html)
 - Sep 19 - [14 Darwin Award Winners Whose Days Are Numbered (If They’re Not Already Over)](https://www.yahoo.com/entertainment/14-darwin-award-winners-whose-201603305.html)
 - Sep 19 - [Road work inspector who leaped to safety during Baltimore bridge collapse to file claim](https://www.yahoo.com/news/road-inspector-leaped-safety-during-201527661.html)
-- Sep 19 - [Woman sues Florida sheriff after mistaken arrest lands her in jail on Christmas](https://www.yahoo.com/news/woman-sues-florida-sheriff-mistaken-200608924.html)
 <!-- feed end -->
 
 ### Onstream
