@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Trump Makes Shocking Decision on Scandal-Ridden Mark Robinson](https://www.yahoo.com/news/trump-makes-shocking-decision-scandal-204400868.html)
+- Sep 20 - [Boeing’s space and defense chief exits in new CEO’s first executive move](https://finance.yahoo.com/news/boeing-defense-head-ted-colbert-205610696.html)
 - Sep 20 - [Woman Steals Porsche, Then Runs Over Car Owner: Cops](https://www.yahoo.com/news/woman-steals-porsche-then-runs-201950196.html)
-- Sep 20 - [Four Russian soldiers charged with killing US citizen](https://www.yahoo.com/news/four-russian-soldiers-charged-killing-193039365.html)
+- Sep 20 - [US SEC intends to seek sanctions against Elon Musk in Twitter probe](https://finance.yahoo.com/news/us-sec-intends-seek-sanctions-200024014.html)
 - Sep 20 - [Qualcomm approached Intel about a takeover in recent days, WSJ reports](https://finance.yahoo.com/news/qualcomm-approached-intel-takeover-recent-192945200.html)
-- Sep 20 - [Cards Against Humanity is suing SpaceX for trespassing and filling its property with ‘space garbage’](https://www.yahoo.com/news/cards-against-humanity-is-suing-spacex-for-trespassing-and-filling-its-property-with-space-garbage-181828453.html)
+- Sep 20 - [Opinion - Is China preparing to attack Japan?](https://www.yahoo.com/news/opinion-china-preparing-attack-japan-190000131.html)
 <!-- feed end -->
 
 ### Onstream
