@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Sep 20 - [Huawei's $2,800 phone launch disappoints amid supply concerns](https://finance.yahoo.com/news/huaweis-2-800-tri-fold-003712034.html)
 - Sep 19 - [Republicans assess potential fallout for Trump from North Carolina bombshell](https://www.yahoo.com/news/republicans-assess-potential-fallout-trump-232529370.html)
 - Sep 19 - [23andMe directors resign as the CEO of the genetic-testing company seeks to take it private](https://finance.yahoo.com/news/23andme-directors-resign-ceo-genetic-205019604.html)
-- Sep 19 - [Woman sues Florida sheriff after mistaken arrest lands her in jail on Christmas](https://www.yahoo.com/news/woman-sues-florida-sheriff-mistaken-200608924.html)
+- Sep 19 - [Road work inspector who leaped to safety during Baltimore bridge collapse to file claim](https://www.yahoo.com/news/road-inspector-leaped-safety-during-201527661.html)
 - Sep 19 - [‘Take your medication and leave’: Comer blasts Democratic lawmaker during hearing](https://www.yahoo.com/news/medication-leave-comer-blasts-democratic-194734081.html)
 <!-- feed end -->
 
