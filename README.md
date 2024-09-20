@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Late Harrods owner Mohamed Al-Fayed accused of sexual assault](https://www.yahoo.com/news/harrods-owner-mohamed-al-fayed-155539933.html)
-- Sep 20 - [Hiker lucky to be alive after camera captures terrifying moment of falling down a mountain](https://www.yahoo.com/news/hiker-lucky-alive-camera-captures-073358850.html)
+- Sep 20 - [AI investing explained: Key words to know](https://finance.yahoo.com/video/ai-investing-explained-key-works-170000380.html)
+- Sep 20 - [A 41-year-old transformed his body with 2 diet changes and 1 simple workout technique](https://www.yahoo.com/lifestyle/41-old-transformed-body-2-154747629.html)
 - Sep 20 - [Trump Media plummets to new low on the first trading day the former president can sell his shares](https://finance.yahoo.com/news/trump-media-plummets-lows-first-141034324.html)
+- Sep 20 - [Kentucky judge fatally shot inside his chambers by local sheriff, police say. Here's what we know so far.](https://www.yahoo.com/news/kentucky-judge-fatally-shot-inside-his-chambers-by-local-sheriff-police-say-heres-what-we-know-so-far-140315537.html)
 - Sep 20 - [Song Binbin, Red Guard whose beating to death of a teacher heralded Mao’s Cultural Revolution](https://www.yahoo.com/news/song-binbin-red-guard-whose-135636493.html)
-- Sep 20 - [Woman whose firm was linked to the exploding pagers is under Hungarian protection, her mother says](https://www.yahoo.com/news/woman-whose-firm-linked-exploding-131326726.html)
 <!-- feed end -->
 
 ### Onstream
