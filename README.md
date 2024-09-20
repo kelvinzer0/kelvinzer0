@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Jim Cramer Says Palantir Technologies Inc. (NYSE:PLTR) is a ‘Cold’ Stock](https://finance.yahoo.com/news/jim-cramer-says-palantir-technologies-133922534.html)
-- Sep 20 - [Running an electric car is twice as expensive as a petrol one](https://finance.yahoo.com/news/running-electric-car-twice-expensive-124654026.html)
+- Sep 20 - [Videos show Israeli soldiers pushing bodies off a rooftop in the West Bank](https://www.yahoo.com/news/videos-show-israeli-soldiers-pushing-145830147.html)
+- Sep 20 - [Hiker lucky to be alive after camera captures terrifying moment of falling down a mountain](https://www.yahoo.com/news/hiker-lucky-alive-camera-captures-073358850.html)
+- Sep 20 - [Trump Media plummets to new low on the first trading day the former president can sell his shares](https://finance.yahoo.com/news/trump-media-plummets-lows-first-141034324.html)
+- Sep 20 - [Jim Cramer on Advanced Micro Devices (AMD): The ‘Only Company on Earth’ That Can Catch Up to Nvidia (NVDA)](https://finance.yahoo.com/news/jim-cramer-advanced-micro-devices-135125264.html)
 - Sep 20 - [I Suffer From The Most Painful Condition Known To Medicine — And My Life Is A Nightmare](https://www.yahoo.com/lifestyle/suffer-most-painful-condition-known-123005437.html)
-- Sep 20 - [Help, I Can't Stop Laughing At These 22 Extremely Dumb Things People Actually Posted On The Internet Last Week](https://www.yahoo.com/entertainment/help-cant-stop-laughing-22-111915710.html)
-- Sep 20 - [Russia warns West and Ukraine of 'disastrous consequences' if Kyiv moves against Belarus](https://www.yahoo.com/news/russia-warns-west-ukraine-disastrous-110029530.html)
 <!-- feed end -->
 
 ### Onstream
