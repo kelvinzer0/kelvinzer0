@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Venerable Raleigh Beltline bridge will disappear this weekend](https://www.yahoo.com/news/venerable-raleigh-beltline-bridge-disappear-093000971.html)
+- Sep 20 - [Scientists in South Africa say they have identified the first known outbreak of rabies in seals](https://www.yahoo.com/news/scientists-south-africa-identified-first-093352222.html)
 - Sep 20 - [Scientists looked deep beneath the Doomsday Glacier. What they found spells potential disaster for the planet](https://www.yahoo.com/news/scientists-looked-deep-beneath-doomsday-090048739.html)
-- Sep 20 - [Highway crash injures 8 Southern California firefighters](https://www.yahoo.com/news/highway-crash-injures-8-southern-064644941.html)
 - Sep 20 - [Thousands of exploding devices in Lebanon trigger a nation that has been on edge for years](https://www.yahoo.com/news/thousands-exploding-devices-lebanon-trigger-044515119.html)
 - Sep 20 - [Zoo admits that their pandas are ‘painted dogs’ after backlash from visitors](https://www.yahoo.com/news/chinese-zoo-admits-pandas-painted-014004512.html)
+- Sep 20 - [Fayette County robbery goes awry as victim overpowers suspect: ‘Not today’](https://www.yahoo.com/news/fayette-county-robbery-goes-awry-022110399.html)
 <!-- feed end -->
 
 ### Onstream
