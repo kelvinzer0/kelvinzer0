@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [Videos show Israeli soldiers pushing bodies off a rooftop in the West Bank](https://www.yahoo.com/news/videos-show-israeli-soldiers-pushing-145830147.html)
+- Sep 20 - [Late Harrods owner Mohamed Al-Fayed accused of sexual assault](https://www.yahoo.com/news/harrods-owner-mohamed-al-fayed-155539933.html)
 - Sep 20 - [Hiker lucky to be alive after camera captures terrifying moment of falling down a mountain](https://www.yahoo.com/news/hiker-lucky-alive-camera-captures-073358850.html)
 - Sep 20 - [Trump Media plummets to new low on the first trading day the former president can sell his shares](https://finance.yahoo.com/news/trump-media-plummets-lows-first-141034324.html)
-- Sep 20 - [Jim Cramer on Advanced Micro Devices (AMD): The ‘Only Company on Earth’ That Can Catch Up to Nvidia (NVDA)](https://finance.yahoo.com/news/jim-cramer-advanced-micro-devices-135125264.html)
-- Sep 20 - [I Suffer From The Most Painful Condition Known To Medicine — And My Life Is A Nightmare](https://www.yahoo.com/lifestyle/suffer-most-painful-condition-known-123005437.html)
+- Sep 20 - [Song Binbin, Red Guard whose beating to death of a teacher heralded Mao’s Cultural Revolution](https://www.yahoo.com/news/song-binbin-red-guard-whose-135636493.html)
+- Sep 20 - [Woman whose firm was linked to the exploding pagers is under Hungarian protection, her mother says](https://www.yahoo.com/news/woman-whose-firm-linked-exploding-131326726.html)
 <!-- feed end -->
 
 ### Onstream
