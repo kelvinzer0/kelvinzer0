@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [A 41-year-old transformed his body with 2 diet changes and 1 simple workout technique](https://www.yahoo.com/lifestyle/41-old-transformed-body-2-154747629.html)
-- Sep 20 - [Tiny Kentucky town is rocked as their sheriff is jailed in the killing of a prominent judge](https://www.yahoo.com/news/kentucky-sheriff-charged-judges-death-145341016.html)
-- Sep 20 - [Hurricane models “Meltdown”?](https://www.yahoo.com/news/models-having-absolute-melt-down-142825679.html)
-- Sep 20 - [Trump Media plummets to new low on the first trading day the former president can sell his shares](https://finance.yahoo.com/news/trump-media-plummets-lows-first-141034324.html)
-- Sep 20 - [Song Binbin, Red Guard whose beating to death of a teacher heralded Mao’s Cultural Revolution](https://www.yahoo.com/news/song-binbin-red-guard-whose-135636493.html)
+- Sep 20 - [Qualcomm approached Intel about a takeover in recent days, WSJ reports](https://finance.yahoo.com/news/qualcomm-approached-intel-takeover-recent-192945200.html)
+- Sep 20 - [Black Bears Joyfully Playing in Bubble Bath Are Just Like Human Toddlers](https://www.yahoo.com/lifestyle/black-bears-joyfully-playing-bubble-185740745.html)
+- Sep 20 - [21 People Who Were Fired From Their Jobs For Being Absolute Wackadoodles While On The Clock](https://www.yahoo.com/entertainment/21-people-were-fired-jobs-181602159.html)
+- Sep 20 - [Human remains at Notre-Dame Cathedral may have been identified after more than 450 years](https://www.yahoo.com/news/human-remains-notre-dame-cathedral-174134489.html)
+- Sep 20 - [Carly Gregg sentenced to life after found guilty on all charges in murder case. What we know](https://www.yahoo.com/news/carly-greggs-fate-jurys-hands-164604653.html)
 <!-- feed end -->
 
 ### Onstream
