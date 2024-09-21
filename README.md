@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [This Is Exactly When the 2025 Social Security COLA Will Be Announced and What It Means for Retirees](https://finance.yahoo.com/news/exactly-2025-social-security-cola-084600387.html)
+- Sep 21 - [Mark Zuckerberg says leaders should have technical skills if they want to call themselves a tech company](https://www.yahoo.com/tech/mark-zuckerberg-says-leaders-technical-092702401.html)
+- Sep 21 - [A ‘heart the size of Texas’: Family grieves young woman who was fatally shot in Peoria](https://www.yahoo.com/news/heart-size-texas-family-grieves-090919969.html)
 - Sep 21 - [Slain Israeli hostage held by Hamas in ‘inhuman’ conditions underneath Gaza, sisters tell CNN](https://www.yahoo.com/news/slain-israeli-hostage-held-hamas-022821674.html)
 - Sep 21 - [Court rules nearly 98,000 Arizonans whose citizenship hadn't been confirmed can vote the full ballot](https://www.yahoo.com/news/court-rules-nearly-98-000-011820197.html)
 - Sep 21 - [Kim Jong Un on ‘rampage,’ punishing local officials over over floods](https://www.yahoo.com/news/kim-jong-un-rampage-punishing-003734698.html)
-- Sep 21 - [Fresno State president responds to resignation petition](https://www.yahoo.com/news/fresno-state-president-responds-resignation-002201598.html)
 <!-- feed end -->
 
 ### Onstream
