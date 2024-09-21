@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 21 - [Man stepping off subway train stabbed in back by stranger at Manhattan station](https://www.yahoo.com/news/man-stepping-off-subway-train-030100327.html)
-- Sep 21 - [Kim Jong Un on ‘rampage,’ punishing local officials over over floods](https://www.yahoo.com/news/kim-jong-un-rampage-punishing-003734698.html)
+- Sep 21 - [Court rules nearly 98,000 Arizonans whose citizenship hadn't been confirmed can vote the full ballot](https://www.yahoo.com/news/court-rules-nearly-98-000-011820197.html)
+- Sep 20 - [She claimed she aborted her baby at nine months. In this country, there’s no law against that](https://www.yahoo.com/news/she-claimed-she-aborted-her-234631377.html)
 - Sep 20 - [Boeing’s space and defense chief exits in new CEO’s first executive move](https://finance.yahoo.com/news/boeing-defense-head-ted-colbert-205610696.html)
 - Sep 20 - [Horry County Schools cancels football game over safety concerns. Here’s what we know](https://www.yahoo.com/news/horry-county-schools-cancels-football-195710377.html)
-- Sep 20 - [Elon Musk, Who Brutally Mocked Jeff Bezos' Space Company for Suing the Government, Is Now Suing the Government With His Own Space Company](https://www.yahoo.com/news/elon-musk-brutally-mocked-jeff-190751271.html)
 <!-- feed end -->
 
 ### Onstream
