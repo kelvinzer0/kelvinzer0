@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [My Pea-Sized Brain Can't Process These 15 Mind-Blowing Photos Of What Popular Products Used To Look Like](https://www.yahoo.com/entertainment/15-mind-blowing-photos-show-211602375.html)
 - Sep 20 - [Boeing’s space and defense chief exits in new CEO’s first executive move](https://finance.yahoo.com/news/boeing-defense-head-ted-colbert-205610696.html)
-- Sep 20 - [Horry County Schools cancels football game over safety concerns. Here’s what we know](https://www.yahoo.com/news/horry-county-schools-cancels-football-195710377.html)
-- Sep 20 - [Intel Stock Jumps on Report Qualcomm May Be Interested in a Takeover](https://www.barrons.com/articles/intel-takeover-qualcomm-stock-report-ae46ac3a?siteid=yhoof2&yptr=yahoo)
+- Sep 20 - [Why Apple's iPhone 16 just is 'not hitting home' with consumers](https://finance.yahoo.com/video/why-apples-iphone-16-just-201708442.html)
 - Sep 20 - [Four Russian soldiers charged with killing US citizen](https://www.yahoo.com/news/four-russian-soldiers-charged-killing-193039365.html)
-- Sep 20 - [Qualcomm approached Intel about a takeover in recent days, WSJ reports](https://finance.yahoo.com/news/qualcomm-approached-intel-takeover-recent-192945200.html)
+- Sep 20 - [Elon Musk, Who Brutally Mocked Jeff Bezos' Space Company for Suing the Government, Is Now Suing the Government With His Own Space Company](https://www.yahoo.com/news/elon-musk-brutally-mocked-jeff-190751271.html)
 <!-- feed end -->
 
 ### Onstream
