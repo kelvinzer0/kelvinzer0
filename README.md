@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Woman shot, killed inside Newnan gun shop, suspect arrested](https://www.yahoo.com/news/woman-shot-killed-inside-newnan-204012440.html)
+- Sep 21 - [Former Florida deputy who says he accidentally shot girlfriend while 'dry-firing' gun arrested for manslaughter](https://www.yahoo.com/news/former-florida-deputy-says-accidentally-213328734.html)
 - Sep 21 - [Mike Lindell's Latest Pillow Price Is Being Interpreted As A Nazi Dog Whistle](https://www.yahoo.com/news/mike-lindells-latest-pillow-price-190532118.html)
-- Sep 21 - [Sunken superyacht believed to contain watertight safes with sensitive intelligence data](https://www.yahoo.com/news/sunken-superyacht-believed-contain-watertight-101110716.html)
+- Sep 21 - [Here’s How Much Money You Missed Out on If You Didn’t Buy 100 Shares of Nvidia This Year](https://finance.yahoo.com/news/much-money-missed-didn-t-180109214.html)
 - Sep 21 - [GM to lay off about 1,700 workers at Kansas plant](https://finance.yahoo.com/news/gm-begin-laying-off-1-180044335.html)
 - Sep 21 - [Motel 6 sold to Indian hotel operator for $525 million](https://finance.yahoo.com/news/motel-6-sold-indian-hotel-153232141.html)
 <!-- feed end -->
