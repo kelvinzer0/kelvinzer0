@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [GM to begin laying off about 1,700 workers at Kansas plant, WARN notice shows](https://finance.yahoo.com/news/gm-begin-laying-off-1-180044335.html)
-- Sep 21 - [Escaped giant rodent caught after four days on the run](https://www.yahoo.com/news/escaped-giant-rodent-caught-four-155407688.html)
-- Sep 21 - [Mom of suspect in Georgia school shooting indicted and is accused of taping a parent to a chair](https://www.yahoo.com/news/mom-suspect-georgia-school-shooting-152012099.html)
+- Sep 21 - [Tens of thousands of bees found living in a Maine family’s farmhouse](https://www.yahoo.com/news/tens-thousands-bees-found-living-194416668.html)
 - Sep 21 - [Opinion - The supreme crisis of Chief Justice John Roberts](https://www.yahoo.com/news/opinion-supreme-crisis-chief-justice-143500199.html)
-- Sep 21 - [The iPhone 16 is on shelves, but what is consumer demand indicating?](https://finance.yahoo.com/video/iphone-16-shelves-consumer-demand-143010266.html)
+- Sep 21 - [Giant sinkholes in a South Dakota neighborhood make families fear for their safety](https://www.yahoo.com/news/giant-sinkholes-south-dakota-neighborhood-140053271.html)
+- Sep 21 - [I’m wife No. 4. My husband’s first wife is owed 50% of his federal pension when he dies. Where does that leave me?](https://finance.yahoo.com/news/m-wife-no-4-husband-173000792.html)
+- Sep 21 - [4 Car Models That Will Have Massive Price Drops in October 2024](https://finance.yahoo.com/news/4-car-models-massive-price-140024666.html)
 <!-- feed end -->
 
 ### Onstream
