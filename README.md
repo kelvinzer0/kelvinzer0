@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [How Much Should You Have in Your Retirement Account at Every Stage of Life?](https://finance.yahoo.com/news/much-retirement-fund-ages-30-230004037.html)
-- Sep 21 - [The British travel bloggers ‘sugarcoating’ China’s Uyghur problem to the delight of Beijing](https://www.yahoo.com/news/british-travel-bloggers-sugarcoating-china-132345811.html)
-- Sep 21 - [Experts Warn of Link Between Drinking Alcohol and Getting Cancer](https://www.yahoo.com/news/experts-warn-between-drinking-alcohol-130035530.html)
+- Sep 21 - [Dog attack leaves one sheep dead](https://www.yahoo.com/news/dog-attack-leaves-one-sheep-123420495.html)
 - Sep 21 - [Kim Jong Un on ‘rampage,’ punishing local officials over over floods](https://www.yahoo.com/news/kim-jong-un-rampage-punishing-003734698.html)
 - Sep 21 - [‘I’m an OB/GYN—This Is the One Menopause Symptom You Should Never, Ever Ignore'](https://www.yahoo.com/lifestyle/m-ob-gyn-one-menopause-102500883.html)
+- Sep 21 - [‘The 4-square method’: Here’s how American car dealers make big profits — and how not to get fooled](https://finance.yahoo.com/news/4-square-method-american-car-100200951.html)
+- Sep 21 - [Man stepping off subway train stabbed in back by stranger at Manhattan station](https://www.yahoo.com/news/man-stepping-off-subway-train-030100327.html)
 <!-- feed end -->
 
 ### Onstream
