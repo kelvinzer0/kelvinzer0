@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Dog attack leaves one sheep dead](https://www.yahoo.com/news/dog-attack-leaves-one-sheep-123420495.html)
-- Sep 21 - [Kim Jong Un on ‘rampage,’ punishing local officials over over floods](https://www.yahoo.com/news/kim-jong-un-rampage-punishing-003734698.html)
-- Sep 21 - [‘I’m an OB/GYN—This Is the One Menopause Symptom You Should Never, Ever Ignore'](https://www.yahoo.com/lifestyle/m-ob-gyn-one-menopause-102500883.html)
-- Sep 21 - [‘The 4-square method’: Here’s how American car dealers make big profits — and how not to get fooled](https://finance.yahoo.com/news/4-square-method-american-car-100200951.html)
-- Sep 21 - [Man stepping off subway train stabbed in back by stranger at Manhattan station](https://www.yahoo.com/news/man-stepping-off-subway-train-030100327.html)
+- Sep 21 - [Man hit by bricks during riots arrested when police recognised him in A&E](https://www.yahoo.com/news/man-hit-bricks-during-riots-153000915.html)
+- Sep 21 - [Mom of suspect in Georgia school shooting indicted and is accused of taping a parent to a chair](https://www.yahoo.com/news/mom-suspect-georgia-school-shooting-152012099.html)
+- Sep 21 - [Viking Therapeutics, Inc. (VKTX): Biotech Breakthrough or Short Sellers’ Target?](https://finance.yahoo.com/news/viking-therapeutics-inc-vktx-biotech-143947369.html)
+- Sep 21 - [Russia pushes sex-at-work scheme as population crisis escalates](https://www.yahoo.com/news/russia-pushes-sex-scheme-population-131921367.html)
+- Sep 21 - [I thought I’d love these two iOS 18 features, but I don’t](https://www.yahoo.com/tech/thought-d-love-two-ios-124540772.html)
 <!-- feed end -->
 
 ### Onstream
