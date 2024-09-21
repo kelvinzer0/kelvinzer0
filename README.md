@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Man hit by bricks during riots arrested when police recognised him in A&E](https://www.yahoo.com/news/man-hit-bricks-during-riots-153000915.html)
+- Sep 21 - [London rickshaws rip off customers by charging up to £1,300 for half a mile trips](https://www.yahoo.com/news/london-rickshaws-rip-off-customers-160547211.html)
+- Sep 21 - [Escaped giant rodent caught after four days on the run](https://www.yahoo.com/news/escaped-giant-rodent-caught-four-155407688.html)
+- Sep 21 - [Man charged with murder in stabbing of woman in New Bedford](https://www.yahoo.com/news/man-charged-murder-stabbing-woman-153052898.html)
 - Sep 21 - [Mom of suspect in Georgia school shooting indicted and is accused of taping a parent to a chair](https://www.yahoo.com/news/mom-suspect-georgia-school-shooting-152012099.html)
-- Sep 21 - [Viking Therapeutics, Inc. (VKTX): Biotech Breakthrough or Short Sellers’ Target?](https://finance.yahoo.com/news/viking-therapeutics-inc-vktx-biotech-143947369.html)
-- Sep 21 - [Russia pushes sex-at-work scheme as population crisis escalates](https://www.yahoo.com/news/russia-pushes-sex-scheme-population-131921367.html)
 - Sep 21 - [I thought I’d love these two iOS 18 features, but I don’t](https://www.yahoo.com/tech/thought-d-love-two-ios-124540772.html)
 <!-- feed end -->
 
