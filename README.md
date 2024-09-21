@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Mark Zuckerberg says leaders should have technical skills if they want to call themselves a tech company](https://www.yahoo.com/tech/mark-zuckerberg-says-leaders-technical-092702401.html)
-- Sep 21 - [A ‘heart the size of Texas’: Family grieves young woman who was fatally shot in Peoria](https://www.yahoo.com/news/heart-size-texas-family-grieves-090919969.html)
-- Sep 21 - [Slain Israeli hostage held by Hamas in ‘inhuman’ conditions underneath Gaza, sisters tell CNN](https://www.yahoo.com/news/slain-israeli-hostage-held-hamas-022821674.html)
-- Sep 21 - [Court rules nearly 98,000 Arizonans whose citizenship hadn't been confirmed can vote the full ballot](https://www.yahoo.com/news/court-rules-nearly-98-000-011820197.html)
-- Sep 21 - [Kim Jong Un on ‘rampage,’ punishing local officials over over floods](https://www.yahoo.com/news/kim-jong-un-rampage-punishing-003734698.html)
+- Sep 21 - [Another arms depot in northwestern Russia on fire after Ukrainian drone strike](https://www.yahoo.com/news/another-arms-depot-northwestern-russia-100322455.html)
+- Sep 21 - [‘The 4-square method’: Here’s how American car dealers make big profits — and how not to get fooled](https://finance.yahoo.com/news/4-square-method-american-car-100200951.html)
+- Sep 21 - [A 70-year-old lost 70 pounds and got into weight-lifting. She shares 4 tips for getting fit whatever your age.](https://www.yahoo.com/lifestyle/70-old-lost-70-pounds-094702726.html)
+- Sep 21 - [Billionaires Warren Buffett, David Tepper, and Terry Smith Are Sending a Very Clear Warning to Wall Street -- Are You Paying Attention?](https://finance.yahoo.com/news/billionaires-warren-buffett-david-tepper-090600540.html)
+- Sep 21 - [Bill Maher Urges All Americans to Be More Like ‘JD Vance’s C—Sucker-Loving Grandma’ | Video](https://www.yahoo.com/entertainment/bill-maher-urges-americans-more-033424132.html)
 <!-- feed end -->
 
 ### Onstream
