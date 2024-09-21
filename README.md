@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [My Pea-Sized Brain Can't Process These 15 Mind-Blowing Photos Of What Popular Products Used To Look Like](https://www.yahoo.com/entertainment/15-mind-blowing-photos-show-211602375.html)
+- Sep 20 - [Centuries-old serpent head — Buddha’s protector — found buried in Cambodia. See it](https://www.yahoo.com/news/centuries-old-serpent-head-buddha-215821648.html)
 - Sep 20 - [Boeing’s space and defense chief exits in new CEO’s first executive move](https://finance.yahoo.com/news/boeing-defense-head-ted-colbert-205610696.html)
+- Sep 20 - [Woman Steals Porsche, Then Runs Over Car Owner: Cops](https://www.yahoo.com/news/woman-steals-porsche-then-runs-201950196.html)
+- Sep 20 - [Ellsworth Air Force Base fires 2nd commander](https://www.yahoo.com/news/ellsworth-air-force-fires-2nd-201757726.html)
 - Sep 20 - [Why Apple's iPhone 16 just is 'not hitting home' with consumers](https://finance.yahoo.com/video/why-apples-iphone-16-just-201708442.html)
-- Sep 20 - [Four Russian soldiers charged with killing US citizen](https://www.yahoo.com/news/four-russian-soldiers-charged-killing-193039365.html)
-- Sep 20 - [Elon Musk, Who Brutally Mocked Jeff Bezos' Space Company for Suing the Government, Is Now Suing the Government With His Own Space Company](https://www.yahoo.com/news/elon-musk-brutally-mocked-jeff-190751271.html)
 <!-- feed end -->
 
 ### Onstream
