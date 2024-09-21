@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Teenager jailed for 18 months after McDonald’s fight still in prison 18 years later under indefinite jail term](https://www.yahoo.com/news/teenager-jailed-18-months-mcdonald-120145561.html)
+- Sep 21 - [How Much Should You Have in Your Retirement Account at Every Stage of Life?](https://finance.yahoo.com/news/much-retirement-fund-ages-30-230004037.html)
+- Sep 21 - [The British travel bloggers ‘sugarcoating’ China’s Uyghur problem to the delight of Beijing](https://www.yahoo.com/news/british-travel-bloggers-sugarcoating-china-132345811.html)
+- Sep 21 - [Experts Warn of Link Between Drinking Alcohol and Getting Cancer](https://www.yahoo.com/news/experts-warn-between-drinking-alcohol-130035530.html)
 - Sep 21 - [Kim Jong Un on ‘rampage,’ punishing local officials over over floods](https://www.yahoo.com/news/kim-jong-un-rampage-punishing-003734698.html)
-- Sep 21 - [Sunken superyacht believed to contain watertight safes with sensitive intelligence data](https://www.yahoo.com/news/sunken-superyacht-believed-contain-watertight-101110716.html)
-- Sep 21 - [‘The 4-square method’: Here’s how American car dealers make big profits — and how not to get fooled](https://finance.yahoo.com/news/4-square-method-american-car-100200951.html)
-- Sep 21 - [Billionaires Warren Buffett, David Tepper, and Terry Smith Are Sending a Very Clear Warning to Wall Street -- Are You Paying Attention?](https://finance.yahoo.com/news/billionaires-warren-buffett-david-tepper-090600540.html)
+- Sep 21 - [‘I’m an OB/GYN—This Is the One Menopause Symptom You Should Never, Ever Ignore'](https://www.yahoo.com/lifestyle/m-ob-gyn-one-menopause-102500883.html)
 <!-- feed end -->
 
 ### Onstream
