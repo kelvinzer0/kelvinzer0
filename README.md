@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Tens of thousands of bees found living in a Maine family’s farmhouse](https://www.yahoo.com/news/tens-thousands-bees-found-living-194416668.html)
-- Sep 21 - [Opinion - The supreme crisis of Chief Justice John Roberts](https://www.yahoo.com/news/opinion-supreme-crisis-chief-justice-143500199.html)
-- Sep 21 - [Giant sinkholes in a South Dakota neighborhood make families fear for their safety](https://www.yahoo.com/news/giant-sinkholes-south-dakota-neighborhood-140053271.html)
-- Sep 21 - [I’m wife No. 4. My husband’s first wife is owed 50% of his federal pension when he dies. Where does that leave me?](https://finance.yahoo.com/news/m-wife-no-4-husband-173000792.html)
-- Sep 21 - [4 Car Models That Will Have Massive Price Drops in October 2024](https://finance.yahoo.com/news/4-car-models-massive-price-140024666.html)
+- Sep 21 - [Woman shot, killed inside Newnan gun shop, suspect arrested](https://www.yahoo.com/news/woman-shot-killed-inside-newnan-204012440.html)
+- Sep 21 - [Mike Lindell's Latest Pillow Price Is Being Interpreted As A Nazi Dog Whistle](https://www.yahoo.com/news/mike-lindells-latest-pillow-price-190532118.html)
+- Sep 21 - [Sunken superyacht believed to contain watertight safes with sensitive intelligence data](https://www.yahoo.com/news/sunken-superyacht-believed-contain-watertight-101110716.html)
+- Sep 21 - [GM to lay off about 1,700 workers at Kansas plant](https://finance.yahoo.com/news/gm-begin-laying-off-1-180044335.html)
+- Sep 21 - [Motel 6 sold to Indian hotel operator for $525 million](https://finance.yahoo.com/news/motel-6-sold-indian-hotel-153232141.html)
 <!-- feed end -->
 
 ### Onstream
