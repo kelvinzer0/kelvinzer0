@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [London rickshaws rip off customers by charging up to £1,300 for half a mile trips](https://www.yahoo.com/news/london-rickshaws-rip-off-customers-160547211.html)
-- Sep 21 - [Escaped giant rodent caught after four days on the run](https://www.yahoo.com/news/escaped-giant-rodent-caught-four-155407688.html)
-- Sep 21 - [Man charged with murder in stabbing of woman in New Bedford](https://www.yahoo.com/news/man-charged-murder-stabbing-woman-153052898.html)
-- Sep 21 - [Mom of suspect in Georgia school shooting indicted and is accused of taping a parent to a chair](https://www.yahoo.com/news/mom-suspect-georgia-school-shooting-152012099.html)
+- Sep 21 - [Protest over 'disruptive' late-night fireworks](https://www.yahoo.com/news/protest-over-disruptive-night-fireworks-164440267.html)
+- Sep 21 - [Opinion - The supreme crisis of Chief Justice John Roberts](https://www.yahoo.com/news/opinion-supreme-crisis-chief-justice-143500199.html)
+- Sep 21 - [4 Car Models That Will Have Massive Price Drops in October 2024](https://finance.yahoo.com/news/4-car-models-massive-price-140024666.html)
 - Sep 21 - [I thought I’d love these two iOS 18 features, but I don’t](https://www.yahoo.com/tech/thought-d-love-two-ios-124540772.html)
+- Sep 21 - [Dog attack leaves one sheep dead](https://www.yahoo.com/news/dog-attack-leaves-one-sheep-123420495.html)
 <!-- feed end -->
 
 ### Onstream
