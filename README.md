@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [Man stepping off subway train stabbed in back by stranger at Manhattan station](https://www.yahoo.com/news/man-stepping-off-subway-train-030100327.html)
+- Sep 21 - [Texas couple sentenced to prison after pit bulls killed 81-year-old man](https://www.yahoo.com/news/texas-couple-sentenced-prison-pit-024236159.html)
+- Sep 21 - [Fresno State president responds to resignation petition](https://www.yahoo.com/news/fresno-state-president-responds-resignation-002201598.html)
 - Sep 20 - [Boeing’s space and defense chief exits in new CEO’s first executive move](https://finance.yahoo.com/news/boeing-defense-head-ted-colbert-205610696.html)
-- Sep 20 - [Woman Steals Porsche, Then Runs Over Car Owner: Cops](https://www.yahoo.com/news/woman-steals-porsche-then-runs-201950196.html)
-- Sep 20 - [Four Russian soldiers charged with killing US citizen](https://www.yahoo.com/news/four-russian-soldiers-charged-killing-193039365.html)
-- Sep 20 - [Qualcomm approached Intel about a takeover in recent days, source says](https://finance.yahoo.com/news/qualcomm-approached-intel-takeover-recent-192945200.html)
-- Sep 20 - [Human remains at Notre-Dame Cathedral may have been identified after more than 450 years](https://www.yahoo.com/news/human-remains-notre-dame-cathedral-174134489.html)
+- Sep 20 - [Ellsworth Air Force Base fires 2nd commander](https://www.yahoo.com/news/ellsworth-air-force-fires-2nd-201757726.html)
 <!-- feed end -->
 
 ### Onstream
