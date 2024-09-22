@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Hezbollah and IDF exchange heavy fire across Israel-Lebanon border](https://www.yahoo.com/news/hezbollah-idf-exchange-heavy-fire-114702949.html)
+- Sep 22 - [UK foreign minister says more sanctions possible over West Bank violence](https://www.yahoo.com/news/uk-foreign-minister-says-more-121001252.html)
+- Sep 22 - [Republicans in swing states say they see scant signs of groups door-knocking for Trump](https://www.yahoo.com/news/republicans-swing-states-see-scant-120433800.html)
+- Sep 22 - [Here's What Type Of Fish Is In Your McDonald's Filet-O-Fish Sandwich](https://www.yahoo.com/lifestyle/heres-type-fish-mcdonalds-filet-111552327.html)
 - Sep 22 - [Boeing union members are angry they lost their pension plan. They’re not likely to get it back](https://finance.yahoo.com/news/boeing-union-members-angry-lost-110019209.html)
-- Sep 22 - [When does daylight saving time start and end in 2024? What to know about the time change](https://www.yahoo.com/news/does-daylight-saving-time-start-100709070.html)
-- Sep 22 - [Historian who predicted 9 of the last 10 elections says 2024 pick set off 'avalanche'](https://www.yahoo.com/news/historian-predicted-9-last-10-090820442.html)
-- Sep 22 - [Trump Bashes Oprah Over Harris Event In Late Night Meltdown: 'This Isn't The Real' Her](https://www.yahoo.com/news/trump-bashes-oprah-over-harris-063541680.html)
+- Sep 22 - [Car camera shows Hezbollah rocket hit in northern Israel](https://www.yahoo.com/news/car-camera-shows-hezbollah-rocket-105805712.html)
 <!-- feed end -->
 
 ### Onstream
