@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Department won't provide election security after sheriff's posts about Harris yard signs](https://www.yahoo.com/news/department-wont-election-security-sheriffs-181915426.html)
 - Sep 22 - ['That will be it': Trump shares decision on a presidential run in 2028](https://www.yahoo.com/news/trump-shares-decision-presidential-run-180816845.html)
-- Sep 22 - [Palantir Technologies Inc. (PLTR): A $100 Million Opportunity or Overvalued Stock?](https://finance.yahoo.com/news/palantir-technologies-inc-pltr-100-172434554.html)
-- Sep 22 - [Netanyahu considering plan to force all Palestinian civilians out of northern Gaza to besiege Hamas](https://www.yahoo.com/news/netanyahu-considering-plan-force-palestinian-164804196.html)
-- Sep 22 - [South Carolina GOP Sen. Lindsey Graham on Sunday said North Carolina Lt. Gov. Mark Robinson “has an obligation to defend himself” after reports surfaced this week about lewd posts Robinson made on a pornographic website over a decade ago.](https://www.yahoo.com/news/south-carolina-gop-sen-lindsey-162941084.html)
+- Sep 22 - [5 Oregon towns among top 25 most expensive in U.S., according to new analysis](https://www.yahoo.com/news/5-oregon-towns-among-top-161632626.html)
+- Sep 22 - [One dead, lanes closed after fiery I-465 crash on Indy's east side Sunday](https://www.yahoo.com/news/one-dead-lanes-closed-fiery-150433758.html)
+- Sep 22 - [SpaceX launch to retrieve NASA astronauts highlights growing lead over Boeing in commercial space industry](https://finance.yahoo.com/news/spacex-launch-to-retrieve-nasa-astronauts-highlights-growing-lead-over-boeing-in-commercial-space-industry-140042470.html)
+- Sep 22 - [Billionaire Ken Griffin Just Sold 9.3 Million Shares of Nvidia and Bought This Other Artificial Intelligence (AI) Stock That's Headed to the S&P 500 Instead](https://finance.yahoo.com/news/billionaire-ken-griffin-just-sold-134200437.html)
 <!-- feed end -->
 
 ### Onstream
