@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [4 dead and 17 injured after gunfire erupts at popular nightlife area in Birmingham, Alabama, police say](https://www.yahoo.com/news/least-4-killed-multiple-injured-075900383.html)
-- Sep 22 - [Billionaire Ken Griffin Just Sold 9.3 Million Shares of Nvidia and Bought This Other Artificial Intelligence (AI) Stock That's Headed to the S&P 500 Instead](https://finance.yahoo.com/news/billionaire-ken-griffin-just-sold-134200437.html)
+- Sep 22 - [Jony Ive confirms he’s working with Sam Altman on a secret project](https://www.yahoo.com/news/jony-ive-confirms-hes-working-with-sam-altman-on-a-secret-project-163201291.html)
+- Sep 22 - [South Carolina GOP Sen. Lindsey Graham on Sunday said North Carolina Lt. Gov. Mark Robinson “has an obligation to defend himself” after reports surfaced this week about lewd posts Robinson made on a pornographic website over a decade ago.](https://www.yahoo.com/news/south-carolina-gop-sen-lindsey-162941084.html)
 - Sep 22 - [5 Worst Cars To Buy That Will Kill Your Wealth, According to Humphrey Yang](https://finance.yahoo.com/news/5-worst-cars-buy-kill-130020756.html)
+- Sep 22 - [Oktoberfest returns to Peoria Riverfront](https://www.yahoo.com/news/oktoberfest-returns-peoria-riverfront-124220379.html)
 - Sep 22 - [Republicans in swing states say they see scant signs of groups door-knocking for Trump](https://www.yahoo.com/news/republicans-swing-states-see-scant-120433800.html)
-- Sep 22 - [Ohio counties under quarantine for spotted lanternfly](https://www.yahoo.com/news/ohio-counties-under-quarantine-spotted-154919028.html)
 <!-- feed end -->
 
 ### Onstream
