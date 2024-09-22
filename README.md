@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Mexico's ruling party elects new leader to shape post-Lopez Obrador era](https://www.yahoo.com/news/mexicos-ruling-party-elects-leader-215052351.html)
-- Sep 22 - [Massive great white shark bumps whale-watching boat in Pismo Beach. See the video](https://www.yahoo.com/news/massive-great-white-shark-bumps-213102921.html)
-- Sep 22 - [Spending deal averts a possible federal shutdown and funds the government into December](https://www.yahoo.com/news/spending-deal-averts-possible-federal-211220390.html)
-- Sep 22 - [Five Key Charts to Watch in Global Commodity Markets This Week](https://finance.yahoo.com/news/five-key-charts-watch-global-210000978.html)
-- Sep 22 - [4 dead and 17 injured after gunfire erupts at popular nightlife area in Birmingham, Alabama, police say](https://www.yahoo.com/news/least-4-killed-multiple-injured-075900383.html)
+- Sep 22 - [We Asked Doctors To Reveal The One Thing They Wish Their Older Patients Would Do](https://www.yahoo.com/lifestyle/asked-doctors-reveal-one-thing-211602709.html)
+- Sep 22 - [Dave Ramsey Tells 29-Year-Old $1M In Debt And Spending Like She's In Congress: 'I'm Getting Ready To Destroy Your Life As You Know It'](https://finance.yahoo.com/news/dave-ramsey-tells-29-old-210037132.html)
+- Sep 22 - [California governor signs law banning all plastic shopping bags at grocery stores](https://www.yahoo.com/news/california-governor-signs-law-banning-201248206.html)
+- Sep 22 - [Fact check: Trump tells two false stories about Oprah Winfrey, including one he’s been repeating for 11 years](https://www.yahoo.com/news/fact-check-trump-tells-two-193150170.html)
+- Sep 22 - [Data scientist nails the Trump gaffe that started what looks today like a building Harris landslide](https://finance.yahoo.com/news/data-scientist-nails-trump-gaffe-184136943.html)
 <!-- feed end -->
 
 ### Onstream
