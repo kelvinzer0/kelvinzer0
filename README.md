@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [When does daylight saving time start and end in 2024? What to know about the time change](https://www.yahoo.com/news/does-daylight-saving-time-start-100709070.html)
 - Sep 22 - [Historian who predicted 9 of the last 10 elections says 2024 pick set off 'avalanche'](https://www.yahoo.com/news/historian-predicted-9-last-10-090820442.html)
-- Sep 22 - [Woman killed inside gun shop as families left fall festival in Newnan](https://www.yahoo.com/news/woman-killed-inside-gun-shop-082912770.html)
+- Sep 22 - [Hezbollah hits back with more than 100 rockets across a wider and deeper area of Israel](https://www.yahoo.com/news/over-100-rockets-fired-lebanon-045217313.html)
 - Sep 22 - [Why an Alaska island is using peanut butter and black lights to find a rat that might not exist](https://www.yahoo.com/news/why-alaska-island-using-peanut-040149168.html)
 - Sep 22 - [‘High chance’ of tropical development, Gulf storm likely next week](https://www.yahoo.com/news/high-chance-tropical-development-gulf-001805017.html)
-- Sep 21 - [Southwest Airlines warns staff of 'tough decisions' ahead, Bloomberg reports](https://finance.yahoo.com/news/southwest-airlines-warns-staff-tough-235147077.html)
 <!-- feed end -->
 
 ### Onstream
