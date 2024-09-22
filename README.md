@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Egypt fears 'all out' regional war: foreign minister to AFP](https://www.yahoo.com/news/egypt-fears-regional-war-foreign-175609524.html)
-- Sep 22 - [Synex founder, once detained at the border with a 80-pound magnet, is building portable MRIs to test glucose](https://www.yahoo.com/news/synex-founder-once-detained-border-170000385.html)
-- Sep 22 - [New Footage Shows Imploded Crew Compartment of Doomed Titanic Sub](https://www.yahoo.com/news/footage-shows-imploded-crew-compartment-153059656.html)
-- Sep 22 - [Experts Finally Identify Mysterious Remains Found Buried Beneath Notre Dame Cathedral](https://www.yahoo.com/news/experts-finally-identify-mysterious-remains-140000037.html)
-- Sep 22 - [Billionaire Ken Griffin Just Sold 9.3 Million Shares of Nvidia and Bought This Other Artificial Intelligence (AI) Stock That's Headed to the S&P 500 Instead](https://finance.yahoo.com/news/billionaire-ken-griffin-just-sold-134200437.html)
+- Sep 22 - [Department won't provide election security after sheriff's posts about Harris yard signs](https://www.yahoo.com/news/department-wont-election-security-sheriffs-181915426.html)
+- Sep 22 - ['That will be it': Trump shares decision on a presidential run in 2028](https://www.yahoo.com/news/trump-shares-decision-presidential-run-180816845.html)
+- Sep 22 - [Palantir Technologies Inc. (PLTR): A $100 Million Opportunity or Overvalued Stock?](https://finance.yahoo.com/news/palantir-technologies-inc-pltr-100-172434554.html)
+- Sep 22 - [Netanyahu considering plan to force all Palestinian civilians out of northern Gaza to besiege Hamas](https://www.yahoo.com/news/netanyahu-considering-plan-force-palestinian-164804196.html)
+- Sep 22 - [South Carolina GOP Sen. Lindsey Graham on Sunday said North Carolina Lt. Gov. Mark Robinson “has an obligation to defend himself” after reports surfaced this week about lewd posts Robinson made on a pornographic website over a decade ago.](https://www.yahoo.com/news/south-carolina-gop-sen-lindsey-162941084.html)
 <!-- feed end -->
 
 ### Onstream
