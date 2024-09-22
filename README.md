@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [I Did Everything 'Right' And I Still Got Herpes. Years Later, I'm Finally Making My Peace With That.](https://www.yahoo.com/lifestyle/did-everything-still-got-herpes-163102741.html)
+- Sep 21 - [Southwest Airlines warns staff of 'tough decisions' ahead, Bloomberg reports](https://finance.yahoo.com/news/southwest-airlines-warns-staff-tough-235147077.html)
 - Sep 21 - [Motel 6 sold to Indian hotel operator for $525 million](https://finance.yahoo.com/news/motel-6-sold-indian-hotel-153232141.html)
 - Sep 21 - [Opinion - The supreme crisis of Chief Justice John Roberts](https://www.yahoo.com/news/opinion-supreme-crisis-chief-justice-143500199.html)
 - Sep 21 - [Giant sinkholes in a South Dakota neighborhood make families fear for their safety](https://www.yahoo.com/news/giant-sinkholes-south-dakota-neighborhood-140053271.html)
