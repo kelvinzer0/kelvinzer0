@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Video shows enormous explosion at Russian ammunition depot that Ukraine says housed munitions from North Korea](https://www.yahoo.com/news/video-shows-enormous-explosion-russian-131058394.html)
-- Sep 22 - [Former Sheriff Jamey Noel Admits Stealing $5 Million From Taxpayers](https://www.yahoo.com/news/former-sheriff-jamey-noel-admits-130102541.html)
+- Sep 22 - [4 dead and 17 injured after gunfire erupts at popular nightlife area in Birmingham, Alabama, police say](https://www.yahoo.com/news/least-4-killed-multiple-injured-075900383.html)
+- Sep 22 - [Billionaire Ken Griffin Just Sold 9.3 Million Shares of Nvidia and Bought This Other Artificial Intelligence (AI) Stock That's Headed to the S&P 500 Instead](https://finance.yahoo.com/news/billionaire-ken-griffin-just-sold-134200437.html)
+- Sep 22 - [5 Worst Cars To Buy That Will Kill Your Wealth, According to Humphrey Yang](https://finance.yahoo.com/news/5-worst-cars-buy-kill-130020756.html)
 - Sep 22 - [Republicans in swing states say they see scant signs of groups door-knocking for Trump](https://www.yahoo.com/news/republicans-swing-states-see-scant-120433800.html)
-- Sep 22 - [Here's What Type Of Fish Is In Your McDonald's Filet-O-Fish Sandwich](https://www.yahoo.com/lifestyle/heres-type-fish-mcdonalds-filet-111552327.html)
-- Sep 22 - [Boeing union members are angry they lost their pension plan. They’re not likely to get it back](https://finance.yahoo.com/news/boeing-union-members-angry-lost-110019209.html)
+- Sep 22 - [Ohio counties under quarantine for spotted lanternfly](https://www.yahoo.com/news/ohio-counties-under-quarantine-spotted-154919028.html)
 <!-- feed end -->
 
 ### Onstream
