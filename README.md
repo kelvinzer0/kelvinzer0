@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [Over 20 people wounded after Russia strikes apartment blocks in Ukraine’s Kharkiv](https://www.yahoo.com/news/over-20-people-wounded-russia-084101920.html)
 - Sep 22 - [Why an Alaska island is using peanut butter and black lights to find a rat that might not exist](https://www.yahoo.com/news/why-alaska-island-using-peanut-040149168.html)
-- Sep 21 - [Fourth tropical disturbance pops up in Atlantic; any impacts to Florida?](https://www.yahoo.com/news/fourth-tropical-disturbance-pops-atlantic-152121165.html)
-- Sep 21 - [Opinion - The supreme crisis of Chief Justice John Roberts](https://www.yahoo.com/news/opinion-supreme-crisis-chief-justice-143500199.html)
-- Sep 21 - [Giant sinkholes in a South Dakota neighborhood make families fear for their safety](https://www.yahoo.com/news/giant-sinkholes-south-dakota-neighborhood-140053271.html)
-- Sep 21 - [Russia pushes sex-at-work scheme as population crisis escalates](https://www.yahoo.com/news/russia-pushes-sex-scheme-population-131921367.html)
+- Sep 21 - [GM to lay off about 1,700 workers at Kansas plant](https://finance.yahoo.com/news/gm-begin-laying-off-1-180044335.html)
+- Sep 21 - [Motel 6 sold to Indian hotel operator for $525 million](https://finance.yahoo.com/news/motel-6-sold-indian-hotel-153232141.html)
+- Sep 21 - [Mom of suspect in Georgia school shooting indicted and is accused of taping a parent to a chair](https://www.yahoo.com/news/mom-suspect-georgia-school-shooting-152012099.html)
 <!-- feed end -->
 
 ### Onstream
