@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Premier says Albania will grant sovereignty to Bektashi Muslims in Tirana, similar to the Vatican](https://www.yahoo.com/news/premier-says-albania-grant-sovereignty-204847454.html)
-- Sep 22 - [California governor signs law banning all plastic shopping bags at grocery stores](https://www.yahoo.com/news/california-governor-signs-law-banning-201248206.html)
-- Sep 22 - [Multi-vehicle crash on I-70 in Washington County causing major delays; at least 5 people injured](https://www.yahoo.com/news/least-5-people-hurt-multi-185853289.html)
-- Sep 22 - [Department won't provide election security after sheriff's posts about Harris yard signs](https://www.yahoo.com/news/department-wont-election-security-sheriffs-181915426.html)
-- Sep 22 - ['That will be it': Trump shares decision on a presidential run in 2028](https://www.yahoo.com/news/trump-shares-decision-presidential-run-180816845.html)
+- Sep 22 - [Mexico's ruling party elects new leader to shape post-Lopez Obrador era](https://www.yahoo.com/news/mexicos-ruling-party-elects-leader-215052351.html)
+- Sep 22 - [Massive great white shark bumps whale-watching boat in Pismo Beach. See the video](https://www.yahoo.com/news/massive-great-white-shark-bumps-213102921.html)
+- Sep 22 - [Spending deal averts a possible federal shutdown and funds the government into December](https://www.yahoo.com/news/spending-deal-averts-possible-federal-211220390.html)
+- Sep 22 - [Five Key Charts to Watch in Global Commodity Markets This Week](https://finance.yahoo.com/news/five-key-charts-watch-global-210000978.html)
+- Sep 22 - [4 dead and 17 injured after gunfire erupts at popular nightlife area in Birmingham, Alabama, police say](https://www.yahoo.com/news/least-4-killed-multiple-injured-075900383.html)
 <!-- feed end -->
 
 ### Onstream
