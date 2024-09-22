@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Over 20 people wounded after Russia strikes apartment blocks in Ukraine’s Kharkiv](https://www.yahoo.com/news/over-20-people-wounded-russia-084101920.html)
+- Sep 22 - [Historian who predicted 9 of the last 10 elections says 2024 pick set off 'avalanche'](https://www.yahoo.com/news/historian-predicted-9-last-10-090820442.html)
+- Sep 22 - [Woman killed inside gun shop as families left fall festival in Newnan](https://www.yahoo.com/news/woman-killed-inside-gun-shop-082912770.html)
 - Sep 22 - [Why an Alaska island is using peanut butter and black lights to find a rat that might not exist](https://www.yahoo.com/news/why-alaska-island-using-peanut-040149168.html)
-- Sep 21 - [GM to lay off about 1,700 workers at Kansas plant](https://finance.yahoo.com/news/gm-begin-laying-off-1-180044335.html)
-- Sep 21 - [Motel 6 sold to Indian hotel operator for $525 million](https://finance.yahoo.com/news/motel-6-sold-indian-hotel-153232141.html)
-- Sep 21 - [Mom of suspect in Georgia school shooting indicted and is accused of taping a parent to a chair](https://www.yahoo.com/news/mom-suspect-georgia-school-shooting-152012099.html)
+- Sep 22 - [‘High chance’ of tropical development, Gulf storm likely next week](https://www.yahoo.com/news/high-chance-tropical-development-gulf-001805017.html)
+- Sep 21 - [Southwest Airlines warns staff of 'tough decisions' ahead, Bloomberg reports](https://finance.yahoo.com/news/southwest-airlines-warns-staff-tough-235147077.html)
 <!-- feed end -->
 
 ### Onstream
