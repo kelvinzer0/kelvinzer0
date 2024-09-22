@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [UK foreign minister says more sanctions possible over West Bank violence](https://www.yahoo.com/news/uk-foreign-minister-says-more-121001252.html)
+- Sep 22 - [Video shows enormous explosion at Russian ammunition depot that Ukraine says housed munitions from North Korea](https://www.yahoo.com/news/video-shows-enormous-explosion-russian-131058394.html)
+- Sep 22 - [Former Sheriff Jamey Noel Admits Stealing $5 Million From Taxpayers](https://www.yahoo.com/news/former-sheriff-jamey-noel-admits-130102541.html)
 - Sep 22 - [Republicans in swing states say they see scant signs of groups door-knocking for Trump](https://www.yahoo.com/news/republicans-swing-states-see-scant-120433800.html)
 - Sep 22 - [Here's What Type Of Fish Is In Your McDonald's Filet-O-Fish Sandwich](https://www.yahoo.com/lifestyle/heres-type-fish-mcdonalds-filet-111552327.html)
 - Sep 22 - [Boeing union members are angry they lost their pension plan. They’re not likely to get it back](https://finance.yahoo.com/news/boeing-union-members-angry-lost-110019209.html)
-- Sep 22 - [Car camera shows Hezbollah rocket hit in northern Israel](https://www.yahoo.com/news/car-camera-shows-hezbollah-rocket-105805712.html)
 <!-- feed end -->
 
 ### Onstream
