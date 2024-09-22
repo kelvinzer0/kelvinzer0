@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Why an Alaska island is using peanut butter and black lights to find a rat that might not exist](https://www.yahoo.com/news/why-alaska-island-using-peanut-040149168.html)
 - Sep 21 - [Southwest Airlines warns staff of 'tough decisions' ahead, Bloomberg reports](https://finance.yahoo.com/news/southwest-airlines-warns-staff-tough-235147077.html)
-- Sep 21 - [Ohio counties under quarantine for spotted lanternfly](https://www.yahoo.com/news/ohio-counties-under-quarantine-spotted-154919028.html)
+- Sep 21 - [JPMorgan CEO Jamie Dimon Calls For Federal Employees To Return To Office, Says Empty Buildings 'Bother' Him: 'I Can't Believe...'](https://finance.yahoo.com/news/jpmorgan-ceo-jamie-dimon-calls-191542349.html)
 - Sep 21 - [I Did Everything 'Right' And I Still Got Herpes. Years Later, I'm Finally Making My Peace With That.](https://www.yahoo.com/lifestyle/did-everything-still-got-herpes-163102741.html)
-- Sep 21 - [Opinion - The supreme crisis of Chief Justice John Roberts](https://www.yahoo.com/news/opinion-supreme-crisis-chief-justice-143500199.html)
+- Sep 21 - [Motel 6 sold to Indian hotel operator for $525 million](https://finance.yahoo.com/news/motel-6-sold-indian-hotel-153232141.html)
+- Sep 21 - [Mom of suspect in Georgia school shooting indicted and is accused of taping a parent to a chair](https://www.yahoo.com/news/mom-suspect-georgia-school-shooting-152012099.html)
 <!-- feed end -->
 
 ### Onstream
