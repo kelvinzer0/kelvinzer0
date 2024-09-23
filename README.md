@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Starmer accused of ‘silencing pensioners’ after blocking winter fuel payments conference vote](https://www.yahoo.com/news/starmer-accused-silencing-pensioners-blocking-112530214.html)
-- Sep 23 - [Republicans Have Anti-Worker Policies — They Are Not the Party of Labor](https://www.yahoo.com/news/republicans-anti-worker-policies-not-110000394.html)
-- Sep 23 - [China auto association flags concern over dealership losses to government](https://finance.yahoo.com/news/china-auto-association-flags-concern-104443007.html)
-- Sep 23 - [Ukraine accuses Russia of seeking to illegally control strategic sea as arbitration hearings open](https://www.yahoo.com/news/ukraine-accuses-russia-seeking-illegally-095112652.html)
-- Sep 23 - [Authoritarianism Expert Spots New Donald Trump Boast That ‘Sends A Chill Down My Spine’](https://www.yahoo.com/news/authoritarianism-expert-spots-donald-trump-092225489.html)
+- Sep 23 - [Israel appears to have pushed Hezbollah into a corner — setting the stage for an all-out war](https://www.yahoo.com/news/israel-appears-pushed-hezbollah-corner-123611541.html)
+- Sep 23 - [A Soyuz capsule with 2 Russians and 1 American from the International Space Station returns to Earth](https://www.yahoo.com/news/soyuz-capsule-2-russians-1-123610164.html)
+- Sep 23 - [‘I take complete responsibility’: Sheriff apologizes after being arrested at Mass. casino](https://www.yahoo.com/news/complete-responsibility-sheriff-apologizes-being-122520118.html)
+- Sep 23 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. OpenAI Unveils 'Strawberry' Model.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Sep 23 - [Ahead of resentencing, Julie Chrisley no longer in Federal Bureau of Prisons custody, site states](https://www.yahoo.com/news/ahead-resentencing-julie-chrisley-no-120634903.html)
 <!-- feed end -->
 
 ### Onstream
