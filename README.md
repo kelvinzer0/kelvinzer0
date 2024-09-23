@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [2nd person dies, charges upgraded in Cape Cod crash involving boat trailer and SUV, police say](https://www.yahoo.com/news/2nd-person-dies-charges-upgraded-145357197.html)
-- Sep 23 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
-- Sep 23 - [‘Short corn’ could replace the towering cornfields steamrolled by a changing climate](https://www.yahoo.com/news/short-corn-could-replace-towering-140139032.html)
-- Sep 23 - [I’ve used iOS 18 for months. Here are 10 reasons you should update right now](https://www.yahoo.com/tech/ve-used-ios-18-months-140017095.html)
-- Sep 23 - [Japanese warplanes use flares to warn a Russian spy plane to leave airspace](https://www.yahoo.com/news/japanese-warplanes-flares-warn-russian-132259984.html)
+- Sep 23 - [Having your 'financial ducks in a row' is key as a business owner](https://finance.yahoo.com/video/why-having-financial-ducks-row-160000021.html)
+- Sep 23 - [Mark Cuban's Black Amex Card Was Declined Trying To Buy A $140,000 Bottle Of Champagne After His NBA Team Won Championship](https://finance.yahoo.com/news/mark-cubans-black-amex-card-154544808.html)
+- Sep 23 - [Octopuses seen hunting together with fish in rare video — and punching fish that don't cooperate](https://www.yahoo.com/news/octopuses-seen-hunting-together-fish-150820122.html)
+- Sep 23 - [Pleasure boat didn’t cause Bournemouth beach deaths, coroner rules](https://www.yahoo.com/news/pleasure-boat-didn-t-cause-145929343.html)
+- Sep 23 - [Before you sign up for a store credit card, know what you're getting into](https://finance.yahoo.com/news/sign-store-credit-card-know-141209101.html)
 <!-- feed end -->
 
 ### Onstream
