@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [‘I’m an Endocrinologist and This Is the #1 Thing That Makes a Difference for Osteoporosis Prevention'](https://www.yahoo.com/lifestyle/m-endocrinologist-1-thing-makes-212500146.html)
 - Sep 22 - [We Asked Doctors To Reveal The One Thing They Wish Their Older Patients Would Do](https://www.yahoo.com/lifestyle/asked-doctors-reveal-one-thing-211602709.html)
-- Sep 22 - [Dave Ramsey Tells 29-Year-Old $1M In Debt And Spending Like She's In Congress: 'I'm Getting Ready To Destroy Your Life As You Know It'](https://finance.yahoo.com/news/dave-ramsey-tells-29-old-210037132.html)
 - Sep 22 - [California governor signs law banning all plastic shopping bags at grocery stores](https://www.yahoo.com/news/california-governor-signs-law-banning-201248206.html)
-- Sep 22 - [Fact check: Trump tells two false stories about Oprah Winfrey, including one he’s been repeating for 11 years](https://www.yahoo.com/news/fact-check-trump-tells-two-193150170.html)
 - Sep 22 - [Data scientist nails the Trump gaffe that started what looks today like a building Harris landslide](https://finance.yahoo.com/news/data-scientist-nails-trump-gaffe-184136943.html)
+- Sep 22 - [Beach stairs broke apart, fell against dune at popular Cape Cod beach](https://www.yahoo.com/news/beach-stairs-broke-apart-fell-183621574.html)
 <!-- feed end -->
 
 ### Onstream
