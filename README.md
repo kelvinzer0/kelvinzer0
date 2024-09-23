@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [What is Hezbollah? War with Israel in Lebanon and differences with Hamas](https://www.yahoo.com/news/hezbollah-war-israel-lebanon-differences-175952326.html)
-- Sep 23 - [British Airways passport refusal after ignoring UK government advice costs Florida holidaymakers thousands](https://www.yahoo.com/news/british-airways-passport-refusal-costs-154740692.html)
-- Sep 23 - [Sam Elliott's Cussing In Folksy Campaign Ad May Make You Giddyup To Vote For Harris](https://www.yahoo.com/news/sam-elliotts-cussing-folksy-campaign-173710888.html)
-- Sep 23 - [This Electronics Giant Wants to Enter the Electric Vehicle Game](https://autos.yahoo.com/electronics-giant-wants-enter-electric-173100122.html)
+- Sep 23 - [Why pay parity needs to be a core value: Salesforce CEO](https://finance.yahoo.com/video/why-pay-parity-needs-core-191000893.html)
+- Sep 23 - [This weird postpartum symptom is going viral online. What is 'postpartum stink'? We asked an expert](https://www.yahoo.com/lifestyle/this-weird-postpartum-symptom-is-going-viral-online-what-is-postpartum-stink-we-asked-an-expert-181504615.html)
+- Sep 23 - [Boeing proposes 30% wage hike to striking workers, calls it its 'final' offer](https://finance.yahoo.com/news/boeing-increases-wage-offer-30-180825776.html)
+- Sep 23 - [Iran president warns of 'irreversible' consequences of wider regional war](https://www.yahoo.com/news/iran-president-warns-irreversible-consequences-173224589.html)
 - Sep 23 - [2 men plead guilty to providing fentanyl-laced heroin that killed prominent NYC transgender activist](https://www.yahoo.com/news/2-men-plead-guilty-providing-172357099.html)
 <!-- feed end -->
 
