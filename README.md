@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Asian markets extend gains as focus turns to US inflation](https://finance.yahoo.com/news/asian-markets-extend-gains-focus-024340332.html)
+- Sep 23 - [A teenage girl killed her mom and invited friend to see the corpse. She will spend rest of her life behind bars](https://www.yahoo.com/news/teenage-girl-wrote-okay-evil-152433350.html)
+- Sep 23 - [Sirens Blare as Tornado Touches Down in Indiana](https://www.yahoo.com/news/sirens-blare-tornado-touches-down-021602876.html)
+- Sep 23 - [Fact Check: No, Pics Showing Young Kamala Harris 'Working as Escort' Aren't Real](https://www.yahoo.com/news/fact-check-no-pics-showing-020000212.html)
 - Sep 23 - [This Immortal Creature Can Create a Form of Cancer That's Contagious](https://www.yahoo.com/news/immortal-creature-create-form-cancer-011321516.html)
 - Sep 22 - [See the iPhone 16’s game-changing battery removal process in new iFixit teardown](https://www.yahoo.com/news/see-the-iphone-16s-game-changing-battery-removal-process-in-new-ifixit-teardown-213911136.html)
-- Sep 22 - [‘I’m an Endocrinologist and This Is the #1 Thing That Makes a Difference for Osteoporosis Prevention'](https://www.yahoo.com/lifestyle/m-endocrinologist-1-thing-makes-212500146.html)
-- Sep 22 - [1 dead after planes collide mid-air in Los Angeles County](https://www.yahoo.com/news/2-planes-collide-mid-air-205558549.html)
 <!-- feed end -->
 
 ### Onstream
