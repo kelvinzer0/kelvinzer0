@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 23 - [3 US Growth Stocks With High Insider Ownership And Up To 78% Earnings Growth](https://finance.yahoo.com/news/3-us-growth-stocks-high-193135392.html)
+- Sep 23 - [Boeing offers machinists a 30% raise to end their strike](https://www.yahoo.com/tech/boeing-offers-machinists-30-raise-192300432.html)
 - Sep 23 - [Why pay parity needs to be a core value: Salesforce CEO](https://finance.yahoo.com/video/why-pay-parity-needs-core-191000893.html)
-- Sep 23 - [This weird postpartum symptom is going viral online. What is 'postpartum stink'? We asked an expert](https://www.yahoo.com/lifestyle/this-weird-postpartum-symptom-is-going-viral-online-what-is-postpartum-stink-we-asked-an-expert-181504615.html)
-- Sep 23 - [Boeing proposes 30% wage hike to striking workers, calls it its 'final' offer](https://finance.yahoo.com/news/boeing-increases-wage-offer-30-180825776.html)
-- Sep 23 - [Iran president warns of 'irreversible' consequences of wider regional war](https://www.yahoo.com/news/iran-president-warns-irreversible-consequences-173224589.html)
-- Sep 23 - [2 men plead guilty to providing fentanyl-laced heroin that killed prominent NYC transgender activist](https://www.yahoo.com/news/2-men-plead-guilty-providing-172357099.html)
+- Sep 23 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
+- Sep 23 - [This Is The Reason Drinking Alcohol Makes You Feel Worse As You Get Older](https://www.yahoo.com/lifestyle/reason-drinking-alcohol-makes-feel-181602960.html)
 <!-- feed end -->
 
 ### Onstream
