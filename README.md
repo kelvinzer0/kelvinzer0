@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [3 US Growth Stocks With High Insider Ownership And Up To 78% Earnings Growth](https://finance.yahoo.com/news/3-us-growth-stocks-high-193135392.html)
-- Sep 23 - [Boeing offers machinists a 30% raise to end their strike](https://www.yahoo.com/tech/boeing-offers-machinists-30-raise-192300432.html)
-- Sep 23 - [Why pay parity needs to be a core value: Salesforce CEO](https://finance.yahoo.com/video/why-pay-parity-needs-core-191000893.html)
+- Sep 23 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
+- Sep 23 - [Market is 'stretched': Strategist](https://finance.yahoo.com/video/market-stretched-strategist-201619720.html)
+- Sep 23 - [Gunman who killed 10 at a Colorado supermarket found guilty of murder](https://www.yahoo.com/news/gunman-killed-10-colorado-supermarket-193949571.html)
 - Sep 23 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
 - Sep 23 - [This Is The Reason Drinking Alcohol Makes You Feel Worse As You Get Older](https://www.yahoo.com/lifestyle/reason-drinking-alcohol-makes-feel-181602960.html)
 <!-- feed end -->
