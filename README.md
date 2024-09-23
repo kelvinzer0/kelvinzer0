@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Fact Check: No, Pics Showing Young Kamala Harris 'Working as Escort' Aren't Real](https://www.yahoo.com/news/fact-check-no-pics-showing-020000212.html)
+- Sep 23 - [Everett shooting suspect dead following police pursuit and crash on I-5](https://www.yahoo.com/news/southbound-lanes-5-closed-everett-212005360.html)
+- Sep 23 - [Israel calls on Lebanese to leave homes where Hezbollah stores arms as warplanes launch new strikes](https://www.yahoo.com/news/israel-calls-lebanese-evacuate-homes-061815433.html)
+- Sep 23 - [Israel-Hamas war latest: Israel's air force launches dozens of airstrikes on southern Lebanon](https://www.yahoo.com/news/israel-hamas-war-latest-israels-045655304.html)
+- Sep 23 - [Microplastics Seem to Be in Every Kind of Animal… Except One](https://www.yahoo.com/news/microplastics-seem-every-kind-animal-012436862.html)
 - Sep 23 - [This Immortal Creature Can Create a Form of Cancer That's Contagious](https://www.yahoo.com/news/immortal-creature-create-form-cancer-011321516.html)
-- Sep 23 - [Police make 23 arrests as over 1,000 members of Mongols Motorcycle Club visit Palm Springs](https://www.yahoo.com/news/police-23-arrests-over-1-001859657.html)
-- Sep 22 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
-- Sep 22 - [See the iPhone 16’s game-changing battery removal process in new iFixit teardown](https://www.yahoo.com/news/see-the-iphone-16s-game-changing-battery-removal-process-in-new-ifixit-teardown-213911136.html)
 <!-- feed end -->
 
 ### Onstream
