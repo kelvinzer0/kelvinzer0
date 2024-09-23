@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 23 - [Why China's economic slowdown is unlikely to affect US inflation](https://finance.yahoo.com/video/why-chinas-economic-slowdown-unlikely-230000152.html)
+- Sep 23 - [Side-by-side images from the James Webb and Hubble space telescopes show why NASA spent 25 years and $10 billion on the Webb](https://www.yahoo.com/news/side-side-images-james-webb-220642605.html)
 - Sep 23 - [Trump says John Deere will be hit with 200% tariffs if production moves to Mexico](https://www.yahoo.com/news/trump-says-john-deere-hit-204807386.html)
-- Sep 23 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
-- Sep 23 - [This weird postpartum symptom is going viral online. What is 'postpartum stink'? We asked an expert](https://www.yahoo.com/lifestyle/this-weird-postpartum-symptom-is-going-viral-online-what-is-postpartum-stink-we-asked-an-expert-181504615.html)
-- Sep 23 - [Missing North Carolina student Brook Cheuvront, 20, found dead in South Africa](https://www.yahoo.com/news/missing-north-carolina-student-brook-175428686.html)
-- Sep 23 - [Iran president warns of 'irreversible' consequences of wider regional war](https://www.yahoo.com/news/iran-president-warns-irreversible-consequences-173224589.html)
+- Sep 23 - [Man said he was ‘devastated’ after hitting cement prongs along I-285 causing $2,000 in damage](https://www.yahoo.com/news/man-said-devastated-hitting-cement-204047582.html)
+- Sep 23 - [Lifetime ban for flyers who harassed jet passenger reclining her seat in front of them](https://www.yahoo.com/news/lifetime-ban-pair-harassed-jet-193850935.html)
 <!-- feed end -->
 
 ### Onstream
