@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [MPD: Men steal name-brand purses, credit cards from business](https://www.yahoo.com/news/mpd-men-steal-name-brand-004636389.html)
+- Sep 23 - [Asian markets extend gains as focus turns to US inflation](https://finance.yahoo.com/news/asian-markets-extend-gains-focus-024340332.html)
+- Sep 23 - [This Immortal Creature Can Create a Form of Cancer That's Contagious](https://www.yahoo.com/news/immortal-creature-create-form-cancer-011321516.html)
 - Sep 22 - [See the iPhone 16’s game-changing battery removal process in new iFixit teardown](https://www.yahoo.com/news/see-the-iphone-16s-game-changing-battery-removal-process-in-new-ifixit-teardown-213911136.html)
 - Sep 22 - [‘I’m an Endocrinologist and This Is the #1 Thing That Makes a Difference for Osteoporosis Prevention'](https://www.yahoo.com/lifestyle/m-endocrinologist-1-thing-makes-212500146.html)
-- Sep 22 - [This Is The Number One Thing Doctors Urge Their Aging Patients To Start Doing Immediately](https://www.yahoo.com/lifestyle/asked-doctors-reveal-one-thing-211602709.html)
-- Sep 22 - [California governor signs law banning all plastic shopping bags at grocery stores](https://www.yahoo.com/news/california-governor-signs-law-banning-201248206.html)
+- Sep 22 - [1 dead after planes collide mid-air in Los Angeles County](https://www.yahoo.com/news/2-planes-collide-mid-air-205558549.html)
 <!-- feed end -->
 
 ### Onstream
