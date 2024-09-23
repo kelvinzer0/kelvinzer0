@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Tugboat powered by ammonia sails for the first time, showing how to cut emissions from shipping](https://finance.yahoo.com/news/tugboat-powered-ammonia-sails-first-133421278.html)
-- Sep 23 - [Ukraine's strike on a missile storage facility destroyed enough ammo to impact Russian attacks for months, experts say](https://www.yahoo.com/news/ukraines-strike-missile-storage-facility-130543292.html)
-- Sep 23 - [Feds: Man accused in apparent assassination left wrote note indicating he intended to kill Trump](https://www.yahoo.com/news/feds-man-accused-apparent-assassination-123755626.html)
-- Sep 23 - [A Soyuz capsule with 2 Russians and 1 American from the International Space Station returns to Earth](https://www.yahoo.com/news/soyuz-capsule-2-russians-1-123610164.html)
-- Sep 23 - [‘I take complete responsibility’: Sheriff apologizes after being arrested at Mass. casino](https://www.yahoo.com/news/complete-responsibility-sheriff-apologizes-being-122520118.html)
+- Sep 23 - [2nd person dies, charges upgraded in Cape Cod crash involving boat trailer and SUV, police say](https://www.yahoo.com/news/2nd-person-dies-charges-upgraded-145357197.html)
+- Sep 23 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
+- Sep 23 - [‘Short corn’ could replace the towering cornfields steamrolled by a changing climate](https://www.yahoo.com/news/short-corn-could-replace-towering-140139032.html)
+- Sep 23 - [I’ve used iOS 18 for months. Here are 10 reasons you should update right now](https://www.yahoo.com/tech/ve-used-ios-18-months-140017095.html)
+- Sep 23 - [Japanese warplanes use flares to warn a Russian spy plane to leave airspace](https://www.yahoo.com/news/japanese-warplanes-flares-warn-russian-132259984.html)
 <!-- feed end -->
 
 ### Onstream
