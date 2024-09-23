@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [The iPhone domino effect that risks leaving Taiwan at Beijing’s mercy](https://www.yahoo.com/news/iphone-domino-effect-risks-leaving-090000516.html)
-- Sep 23 - [Murder charge after man killed in stabbing](https://www.yahoo.com/news/murder-charge-man-killed-stabbing-081123386.html)
-- Sep 23 - [Israel warns civilians to evacuate as it strikes wide swathes of southern Lebanon](https://www.yahoo.com/news/israel-calls-lebanese-evacuate-homes-061815433.html)
-- Sep 23 - [Israel-Hamas war latest: Israel's air force launches dozens of airstrikes on southern Lebanon](https://www.yahoo.com/news/israel-hamas-war-latest-israels-045655304.html)
+- Sep 23 - [Trump attempted assassination suspect Ryan Routh to appear in court](https://www.yahoo.com/news/trump-attempted-assassination-suspect-ryan-100209075.html)
+- Sep 23 - [Chinese EV maker Xpeng adds Qatar to export list amid price war at home](https://finance.yahoo.com/news/chinese-ev-maker-xpeng-adds-093000054.html)
+- Sep 23 - [Authoritarianism Expert Spots New Donald Trump Boast That ‘Sends A Chill Down My Spine’](https://www.yahoo.com/news/authoritarianism-expert-spots-donald-trump-092225489.html)
+- Sep 23 - [Wall Street's Most Anticipated Stock Split of the 4th Quarter May Be Announced This Week](https://finance.yahoo.com/news/wall-streets-most-anticipated-stock-085100508.html)
 - Sep 23 - [Dow Jones Futures: Stock Market Bulls Take Control; Meta, Apple, Tesla In Buy Areas](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bulls-meta-apple-tesla-in-buy-areas/?src=A00220&yptr=yahoo)
 <!-- feed end -->
 
