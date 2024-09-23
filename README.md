@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 23 - [MPD: Men steal name-brand purses, credit cards from business](https://www.yahoo.com/news/mpd-men-steal-name-brand-004636389.html)
+- Sep 22 - [See the iPhone 16’s game-changing battery removal process in new iFixit teardown](https://www.yahoo.com/news/see-the-iphone-16s-game-changing-battery-removal-process-in-new-ifixit-teardown-213911136.html)
 - Sep 22 - [‘I’m an Endocrinologist and This Is the #1 Thing That Makes a Difference for Osteoporosis Prevention'](https://www.yahoo.com/lifestyle/m-endocrinologist-1-thing-makes-212500146.html)
-- Sep 22 - [We Asked Doctors To Reveal The One Thing They Wish Their Older Patients Would Do](https://www.yahoo.com/lifestyle/asked-doctors-reveal-one-thing-211602709.html)
+- Sep 22 - [This Is The Number One Thing Doctors Urge Their Aging Patients To Start Doing Immediately](https://www.yahoo.com/lifestyle/asked-doctors-reveal-one-thing-211602709.html)
 - Sep 22 - [California governor signs law banning all plastic shopping bags at grocery stores](https://www.yahoo.com/news/california-governor-signs-law-banning-201248206.html)
-- Sep 22 - [Data scientist nails the Trump gaffe that started what looks today like a building Harris landslide](https://finance.yahoo.com/news/data-scientist-nails-trump-gaffe-184136943.html)
-- Sep 22 - [Beach stairs broke apart, fell against dune at popular Cape Cod beach](https://www.yahoo.com/news/beach-stairs-broke-apart-fell-183621574.html)
 <!-- feed end -->
 
 ### Onstream
