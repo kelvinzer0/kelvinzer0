@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Having your 'financial ducks in a row' is key as a business owner](https://finance.yahoo.com/video/why-having-financial-ducks-row-160000021.html)
-- Sep 23 - [Mark Cuban's Black Amex Card Was Declined Trying To Buy A $140,000 Bottle Of Champagne After His NBA Team Won Championship](https://finance.yahoo.com/news/mark-cubans-black-amex-card-154544808.html)
 - Sep 23 - [Octopuses seen hunting together with fish in rare video — and punching fish that don't cooperate](https://www.yahoo.com/news/octopuses-seen-hunting-together-fish-150820122.html)
-- Sep 23 - [Pleasure boat didn’t cause Bournemouth beach deaths, coroner rules](https://www.yahoo.com/news/pleasure-boat-didn-t-cause-145929343.html)
-- Sep 23 - [Before you sign up for a store credit card, know what you're getting into](https://finance.yahoo.com/news/sign-store-credit-card-know-141209101.html)
+- Sep 23 - [Israel's Iron Dome Knocks Down Rockets From Lebanon](https://finance.yahoo.com/video/israels-iron-dome-knocks-down-163005380.html)
+- Sep 23 - [‘I take complete responsibility’: Sheriff apologizes after being arrested at Mass. casino](https://www.yahoo.com/news/complete-responsibility-sheriff-apologizes-being-122520118.html)
+- Sep 23 - [Mark Cuban's Black Amex Card Was Declined Trying To Buy A $140,000 Bottle Of Champagne After His NBA Team Won Championship](https://finance.yahoo.com/news/mark-cubans-black-amex-card-154544808.html)
+- Sep 23 - [I’m truly sorry – Heather Knight apologises for historical ‘blackface’ photo](https://sports.yahoo.com/m-truly-sorry-heather-knight-150617310.html)
 <!-- feed end -->
 
 ### Onstream
