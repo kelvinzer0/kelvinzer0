@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 23 - [Starmer accused of ‘silencing pensioners’ after blocking winter fuel payments conference vote](https://www.yahoo.com/news/starmer-accused-silencing-pensioners-blocking-112530214.html)
+- Sep 23 - [Republicans Have Anti-Worker Policies — They Are Not the Party of Labor](https://www.yahoo.com/news/republicans-anti-worker-policies-not-110000394.html)
+- Sep 23 - [China auto association flags concern over dealership losses to government](https://finance.yahoo.com/news/china-auto-association-flags-concern-104443007.html)
 - Sep 23 - [Ukraine accuses Russia of seeking to illegally control strategic sea as arbitration hearings open](https://www.yahoo.com/news/ukraine-accuses-russia-seeking-illegally-095112652.html)
-- Sep 23 - [Campus gun arrests, school shooting threats spark new push for metal detectors](https://www.yahoo.com/news/campus-gun-arrests-school-shooting-093000150.html)
 - Sep 23 - [Authoritarianism Expert Spots New Donald Trump Boast That ‘Sends A Chill Down My Spine’](https://www.yahoo.com/news/authoritarianism-expert-spots-donald-trump-092225489.html)
-- Sep 23 - [Israel strikes Gaza as heavy rain worsens misery of displaced Palestinians](https://www.yahoo.com/news/israel-strikes-gaza-heavy-rain-091351050.html)
-- Sep 23 - [Video shows enormous explosion at Russian ammunition depot that Ukraine says housed munitions from North Korea](https://www.yahoo.com/news/video-shows-enormous-explosion-russian-131058394.html)
 <!-- feed end -->
 
 ### Onstream
