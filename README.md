@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [A teenage girl killed her mom and invited friend to see the corpse. She will spend rest of her life behind bars](https://www.yahoo.com/news/teenage-girl-wrote-okay-evil-152433350.html)
+- Sep 23 - [Israel-Hamas war latest: Israel's air force launches dozens of airstrikes on southern Lebanon](https://www.yahoo.com/news/israel-hamas-war-latest-israels-045655304.html)
 - Sep 23 - [Sirens Blare as Tornado Touches Down in Indiana](https://www.yahoo.com/news/sirens-blare-tornado-touches-down-021602876.html)
 - Sep 23 - [Fact Check: No, Pics Showing Young Kamala Harris 'Working as Escort' Aren't Real](https://www.yahoo.com/news/fact-check-no-pics-showing-020000212.html)
 - Sep 23 - [This Immortal Creature Can Create a Form of Cancer That's Contagious](https://www.yahoo.com/news/immortal-creature-create-form-cancer-011321516.html)
