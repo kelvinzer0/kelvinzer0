@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
-- Sep 23 - [Market is 'stretched': Strategist](https://finance.yahoo.com/video/market-stretched-strategist-201619720.html)
-- Sep 23 - [Gunman who killed 10 at a Colorado supermarket found guilty of murder](https://www.yahoo.com/news/gunman-killed-10-colorado-supermarket-193949571.html)
+- Sep 23 - [Trump says John Deere will be hit with 200% tariffs if production moves to Mexico](https://www.yahoo.com/news/trump-says-john-deere-hit-204807386.html)
 - Sep 23 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
-- Sep 23 - [This Is The Reason Drinking Alcohol Makes You Feel Worse As You Get Older](https://www.yahoo.com/lifestyle/reason-drinking-alcohol-makes-feel-181602960.html)
+- Sep 23 - [This weird postpartum symptom is going viral online. What is 'postpartum stink'? We asked an expert](https://www.yahoo.com/lifestyle/this-weird-postpartum-symptom-is-going-viral-online-what-is-postpartum-stink-we-asked-an-expert-181504615.html)
+- Sep 23 - [Missing North Carolina student Brook Cheuvront, 20, found dead in South Africa](https://www.yahoo.com/news/missing-north-carolina-student-brook-175428686.html)
+- Sep 23 - [Iran president warns of 'irreversible' consequences of wider regional war](https://www.yahoo.com/news/iran-president-warns-irreversible-consequences-173224589.html)
 <!-- feed end -->
 
 ### Onstream
