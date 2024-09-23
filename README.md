@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Everett shooting suspect dead following police pursuit and crash on I-5](https://www.yahoo.com/news/southbound-lanes-5-closed-everett-212005360.html)
-- Sep 23 - [Israel calls on Lebanese to leave homes where Hezbollah stores arms as warplanes launch new strikes](https://www.yahoo.com/news/israel-calls-lebanese-evacuate-homes-061815433.html)
+- Sep 23 - [The iPhone domino effect that risks leaving Taiwan at Beijing’s mercy](https://www.yahoo.com/news/iphone-domino-effect-risks-leaving-090000516.html)
+- Sep 23 - [Murder charge after man killed in stabbing](https://www.yahoo.com/news/murder-charge-man-killed-stabbing-081123386.html)
+- Sep 23 - [Israel warns civilians to evacuate as it strikes wide swathes of southern Lebanon](https://www.yahoo.com/news/israel-calls-lebanese-evacuate-homes-061815433.html)
 - Sep 23 - [Israel-Hamas war latest: Israel's air force launches dozens of airstrikes on southern Lebanon](https://www.yahoo.com/news/israel-hamas-war-latest-israels-045655304.html)
-- Sep 23 - [Microplastics Seem to Be in Every Kind of Animal… Except One](https://www.yahoo.com/news/microplastics-seem-every-kind-animal-012436862.html)
-- Sep 23 - [This Immortal Creature Can Create a Form of Cancer That's Contagious](https://www.yahoo.com/news/immortal-creature-create-form-cancer-011321516.html)
+- Sep 23 - [Dow Jones Futures: Stock Market Bulls Take Control; Meta, Apple, Tesla In Buy Areas](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bulls-meta-apple-tesla-in-buy-areas/?src=A00220&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
