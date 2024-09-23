@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Israel appears to have pushed Hezbollah into a corner — setting the stage for an all-out war](https://www.yahoo.com/news/israel-appears-pushed-hezbollah-corner-123611541.html)
+- Sep 23 - [Tugboat powered by ammonia sails for the first time, showing how to cut emissions from shipping](https://finance.yahoo.com/news/tugboat-powered-ammonia-sails-first-133421278.html)
+- Sep 23 - [Ukraine's strike on a missile storage facility destroyed enough ammo to impact Russian attacks for months, experts say](https://www.yahoo.com/news/ukraines-strike-missile-storage-facility-130543292.html)
+- Sep 23 - [Feds: Man accused in apparent assassination left wrote note indicating he intended to kill Trump](https://www.yahoo.com/news/feds-man-accused-apparent-assassination-123755626.html)
 - Sep 23 - [A Soyuz capsule with 2 Russians and 1 American from the International Space Station returns to Earth](https://www.yahoo.com/news/soyuz-capsule-2-russians-1-123610164.html)
 - Sep 23 - [‘I take complete responsibility’: Sheriff apologizes after being arrested at Mass. casino](https://www.yahoo.com/news/complete-responsibility-sheriff-apologizes-being-122520118.html)
-- Sep 23 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. OpenAI Unveils 'Strawberry' Model.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Sep 23 - [Ahead of resentencing, Julie Chrisley no longer in Federal Bureau of Prisons custody, site states](https://www.yahoo.com/news/ahead-resentencing-julie-chrisley-no-120634903.html)
 <!-- feed end -->
 
 ### Onstream
