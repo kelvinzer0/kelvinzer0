@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Octopuses seen hunting together with fish in rare video — and punching fish that don't cooperate](https://www.yahoo.com/news/octopuses-seen-hunting-together-fish-150820122.html)
-- Sep 23 - [Israel's Iron Dome Knocks Down Rockets From Lebanon](https://finance.yahoo.com/video/israels-iron-dome-knocks-down-163005380.html)
-- Sep 23 - [‘I take complete responsibility’: Sheriff apologizes after being arrested at Mass. casino](https://www.yahoo.com/news/complete-responsibility-sheriff-apologizes-being-122520118.html)
-- Sep 23 - [Mark Cuban's Black Amex Card Was Declined Trying To Buy A $140,000 Bottle Of Champagne After His NBA Team Won Championship](https://finance.yahoo.com/news/mark-cubans-black-amex-card-154544808.html)
-- Sep 23 - [I’m truly sorry – Heather Knight apologises for historical ‘blackface’ photo](https://sports.yahoo.com/m-truly-sorry-heather-knight-150617310.html)
+- Sep 23 - [What is Hezbollah? War with Israel in Lebanon and differences with Hamas](https://www.yahoo.com/news/hezbollah-war-israel-lebanon-differences-175952326.html)
+- Sep 23 - [British Airways passport refusal after ignoring UK government advice costs Florida holidaymakers thousands](https://www.yahoo.com/news/british-airways-passport-refusal-costs-154740692.html)
+- Sep 23 - [Sam Elliott's Cussing In Folksy Campaign Ad May Make You Giddyup To Vote For Harris](https://www.yahoo.com/news/sam-elliotts-cussing-folksy-campaign-173710888.html)
+- Sep 23 - [This Electronics Giant Wants to Enter the Electric Vehicle Game](https://autos.yahoo.com/electronics-giant-wants-enter-electric-173100122.html)
+- Sep 23 - [2 men plead guilty to providing fentanyl-laced heroin that killed prominent NYC transgender activist](https://www.yahoo.com/news/2-men-plead-guilty-providing-172357099.html)
 <!-- feed end -->
 
 ### Onstream
