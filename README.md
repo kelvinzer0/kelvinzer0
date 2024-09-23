@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Trump attempted assassination suspect Ryan Routh to appear in court](https://www.yahoo.com/news/trump-attempted-assassination-suspect-ryan-100209075.html)
-- Sep 23 - [Chinese EV maker Xpeng adds Qatar to export list amid price war at home](https://finance.yahoo.com/news/chinese-ev-maker-xpeng-adds-093000054.html)
+- Sep 23 - [Ukraine accuses Russia of seeking to illegally control strategic sea as arbitration hearings open](https://www.yahoo.com/news/ukraine-accuses-russia-seeking-illegally-095112652.html)
+- Sep 23 - [Campus gun arrests, school shooting threats spark new push for metal detectors](https://www.yahoo.com/news/campus-gun-arrests-school-shooting-093000150.html)
 - Sep 23 - [Authoritarianism Expert Spots New Donald Trump Boast That ‘Sends A Chill Down My Spine’](https://www.yahoo.com/news/authoritarianism-expert-spots-donald-trump-092225489.html)
-- Sep 23 - [Wall Street's Most Anticipated Stock Split of the 4th Quarter May Be Announced This Week](https://finance.yahoo.com/news/wall-streets-most-anticipated-stock-085100508.html)
-- Sep 23 - [Dow Jones Futures: Stock Market Bulls Take Control; Meta, Apple, Tesla In Buy Areas](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bulls-meta-apple-tesla-in-buy-areas/?src=A00220&yptr=yahoo)
+- Sep 23 - [Israel strikes Gaza as heavy rain worsens misery of displaced Palestinians](https://www.yahoo.com/news/israel-strikes-gaza-heavy-rain-091351050.html)
+- Sep 23 - [Video shows enormous explosion at Russian ammunition depot that Ukraine says housed munitions from North Korea](https://www.yahoo.com/news/video-shows-enormous-explosion-russian-131058394.html)
 <!-- feed end -->
 
 ### Onstream
