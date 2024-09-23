@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Israel-Hamas war latest: Israel's air force launches dozens of airstrikes on southern Lebanon](https://www.yahoo.com/news/israel-hamas-war-latest-israels-045655304.html)
-- Sep 23 - [Sirens Blare as Tornado Touches Down in Indiana](https://www.yahoo.com/news/sirens-blare-tornado-touches-down-021602876.html)
 - Sep 23 - [Fact Check: No, Pics Showing Young Kamala Harris 'Working as Escort' Aren't Real](https://www.yahoo.com/news/fact-check-no-pics-showing-020000212.html)
 - Sep 23 - [This Immortal Creature Can Create a Form of Cancer That's Contagious](https://www.yahoo.com/news/immortal-creature-create-form-cancer-011321516.html)
+- Sep 23 - [Police make 23 arrests as over 1,000 members of Mongols Motorcycle Club visit Palm Springs](https://www.yahoo.com/news/police-23-arrests-over-1-001859657.html)
 - Sep 22 - [See the iPhone 16’s game-changing battery removal process in new iFixit teardown](https://www.yahoo.com/news/see-the-iphone-16s-game-changing-battery-removal-process-in-new-ifixit-teardown-213911136.html)
+- Sep 22 - [Apollo eyes $5 billion investment in Intel, Bloomberg News reports](https://finance.yahoo.com/news/apollo-offer-multibillion-dollar-investment-211329615.html)
 <!-- feed end -->
 
 ### Onstream
