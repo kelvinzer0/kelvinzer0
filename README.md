@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 24 - ['Stop ripping us off': Ozempic producer CEO in hot seat in congressional hearing](https://www.yahoo.com/news/ozempic-producer-ceo-hot-seat-153414580.html)
+- Sep 24 - [Ukraine refuses to accept loss of territory as part of peace deal](https://www.yahoo.com/news/ukraine-refuses-accept-loss-territory-171816372.html)
 - Sep 24 - [US woman dies in controversial suicide capsule in Switzerland](https://www.yahoo.com/news/multiple-arrests-us-woman-uses-142334242.html)
-- Sep 24 - [Stephen Colbert Spotted Donald Trump's "Weird" Response To A Very Basic Health Question](https://www.yahoo.com/entertainment/stephen-colbert-spotted-donald-trumps-161653023.html)
-- Sep 24 - [Another Country Threatens to Join War as Middle East Crisis Explodes](https://www.yahoo.com/news/another-country-threatens-join-war-154500747.html)
-- Sep 24 - [War comes home to Russia in tranquil lakeside town](https://www.yahoo.com/news/war-comes-home-russia-tranquil-141956419.html)
-- Sep 24 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
+- Sep 24 - [Sun Unleashed Powerful X1.11 Class Solar Flare Seen From Space](https://www.yahoo.com/news/sun-unleashed-powerful-x1-11-170000528.html)
+- Sep 24 - [Where Akron, Kent, other Ohio colleges rank on U.S. News & World's 2025 best colleges list](https://www.yahoo.com/news/where-akron-kent-other-ohio-160952562.html)
 <!-- feed end -->
 
 ### Onstream
