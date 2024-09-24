@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Tropical Storm Helene Swirls Over Caribbean Sea](https://www.yahoo.com/news/tropical-storm-helene-swirls-over-204932358.html)
+- Sep 24 - [Trump praises Russia's military record in argument to stop funding Ukraine's fight](https://www.yahoo.com/news/trump-praises-russias-military-record-221358207.html)
 - Sep 24 - [Woman alleges Sean 'Diddy' Combs raped her on video in latest lawsuit](https://www.yahoo.com/news/woman-alleges-sean-diddy-combs-195622808.html)
 - Sep 24 - [Watch: Trump Struggles to Stay Focused in Odd, Rambling Speech](https://www.yahoo.com/news/watch-trump-struggles-stay-focused-193544931.html)
 - Sep 24 - [Boeing offers striking union added time to hold vote on new offer](https://finance.yahoo.com/news/boeing-offers-additional-time-striking-193155319.html)
-- Sep 24 - [Meteorologist shows latest potential path for Hurricane Helene](https://www.yahoo.com/news/meteorologist-shows-latest-potential-path-070821151.html)
+- Sep 24 - [5 Slowest Selling New Cars in 2024 That Could Be The Biggest Bargains in 2025](https://finance.yahoo.com/news/5-slowest-selling-cars-2024-191915708.html)
 <!-- feed end -->
 
 ### Onstream
