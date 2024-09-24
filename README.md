@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Elon Musk removes X block button as users fear return of ‘creeps’](https://finance.yahoo.com/news/elon-musk-removes-x-block-095618535.html)
-- Sep 24 - [3 Ultra-Cheap Stocks That Could Get a Boost From Fed Rate Cuts](https://finance.yahoo.com/news/3-ultra-cheap-stocks-could-094100751.html)
-- Sep 24 - [Sweden says Iran was behind thousands of text messages calling for revenge over Quran burnings](https://www.yahoo.com/news/iran-sent-thousands-sms-swedes-074204792.html)
-- Sep 24 - [Turkey's Erdogan calls for US to lift sanctions hindering defence purchases](https://www.yahoo.com/news/turkeys-erdogan-calls-us-lift-065331911.html)
-- Sep 24 - [Mount Clemens woman brutally beaten randomly in Detroit](https://www.yahoo.com/news/mount-clemens-woman-brutally-beaten-043057884.html)
+- Sep 24 - [Teenager lay dead in Norwich flat for eight days before police discovered body](https://www.yahoo.com/news/teenager-lay-dead-norwich-flat-103458962.html)
+- Sep 24 - [Home Secretary outlines plans for 'safer streets'](https://www.yahoo.com/news/home-secretary-outlines-plans-safer-102126398.html)
+- Sep 24 - [Singapore commissions two new submarines as Asia's undersea rivalry grows](https://www.yahoo.com/news/singapore-commissions-two-submarines-asias-101954802.html)
+- Sep 24 - [Asked if Russia could change nuclear testing stance Kremlin says: Listen to Putin on Ukraine](https://www.yahoo.com/news/asked-russia-could-change-nuclear-101639718.html)
+- Sep 24 - [Zelensky pleads for West unity against Russia as Trump claims Ukraine's leader wants Kamala Harris to be US president](https://www.yahoo.com/news/zelensky-pleads-west-unity-against-093406884.html)
 <!-- feed end -->
 
 ### Onstream
