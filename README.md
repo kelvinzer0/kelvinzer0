@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Woman rescued after crash leaves Porsche dangling from Florida car park](https://www.yahoo.com/news/woman-rescued-crash-leaves-porsche-085911829.html)
-- Sep 24 - [In Russia, some crypto miners go underground - literally](https://www.yahoo.com/news/russia-crypto-miners-underground-literally-082744650.html)
-- Sep 24 - [Former FTX executive Caroline Ellison faces sentencing](https://www.yahoo.com/news/former-ftx-executive-caroline-ellison-041134330.html)
-- Sep 24 - [Texas man set to be executed for killing his infant son](https://www.yahoo.com/news/texas-man-set-executed-killing-040123397.html)
-- Sep 24 - [Charlotte automotive company CEO selling one of his Quail Hollow homes for $7.9 million](https://www.yahoo.com/news/charlotte-automotive-company-ceo-selling-030442890.html)
+- Sep 24 - [Elon Musk removes X block button as users fear return of ‘creeps’](https://finance.yahoo.com/news/elon-musk-removes-x-block-095618535.html)
+- Sep 24 - [3 Ultra-Cheap Stocks That Could Get a Boost From Fed Rate Cuts](https://finance.yahoo.com/news/3-ultra-cheap-stocks-could-094100751.html)
+- Sep 24 - [Sweden says Iran was behind thousands of text messages calling for revenge over Quran burnings](https://www.yahoo.com/news/iran-sent-thousands-sms-swedes-074204792.html)
+- Sep 24 - [Turkey's Erdogan calls for US to lift sanctions hindering defence purchases](https://www.yahoo.com/news/turkeys-erdogan-calls-us-lift-065331911.html)
+- Sep 24 - [Mount Clemens woman brutally beaten randomly in Detroit](https://www.yahoo.com/news/mount-clemens-woman-brutally-beaten-043057884.html)
 <!-- feed end -->
 
 ### Onstream
