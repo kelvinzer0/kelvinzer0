@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Teenager lay dead in Norwich flat for eight days before police discovered body](https://www.yahoo.com/news/teenager-lay-dead-norwich-flat-103458962.html)
-- Sep 24 - [Home Secretary outlines plans for 'safer streets'](https://www.yahoo.com/news/home-secretary-outlines-plans-safer-102126398.html)
-- Sep 24 - [Singapore commissions two new submarines as Asia's undersea rivalry grows](https://www.yahoo.com/news/singapore-commissions-two-submarines-asias-101954802.html)
-- Sep 24 - [Asked if Russia could change nuclear testing stance Kremlin says: Listen to Putin on Ukraine](https://www.yahoo.com/news/asked-russia-could-change-nuclear-101639718.html)
-- Sep 24 - [Zelensky pleads for West unity against Russia as Trump claims Ukraine's leader wants Kamala Harris to be US president](https://www.yahoo.com/news/zelensky-pleads-west-unity-against-093406884.html)
+- Sep 24 - [Scientists May Have Found A Whole New Region of Our Solar System](https://www.yahoo.com/news/scientists-may-found-whole-region-120000336.html)
+- Sep 24 - [Union rejects Boeing's 'best and final' offer to striking workers](https://www.yahoo.com/news/union-rejects-boeings-best-final-114205947.html)
+- Sep 24 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
+- Sep 24 - [Rich older Americans use 5 retirement saving strategies to supercharge their nest eggs — how many can help you?](https://finance.yahoo.com/news/rich-older-americans-5-retirement-110500296.html)
+- Sep 24 - [Sweden says Iran was behind thousands of text messages calling for revenge over Quran burnings](https://www.yahoo.com/news/iran-sent-thousands-sms-swedes-074204792.html)
 <!-- feed end -->
 
 ### Onstream
