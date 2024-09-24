@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Popular pizza chain closing Miami Valley location; Italian restaurant moving into space](https://www.yahoo.com/news/popular-pizza-chain-closing-miami-010345976.html)
-- Sep 24 - [Southern California man with concealed carry permit opens fire, kills 1, wounds another](https://www.yahoo.com/news/southern-california-man-concealed-carry-001925595.html)
 - Sep 23 - [10 Red Flags in Men You Should Never Ignore, According to Psychologists](https://www.yahoo.com/lifestyle/10-red-flags-men-never-231000721.html)
-- Sep 23 - [10 Georgia schools named National Blue Ribbon Schools by Dept. of Education](https://www.yahoo.com/news/10-georgia-schools-named-national-215108134.html)
 - Sep 23 - [How to eat carbs without spiking your blood sugar, according to a nutrition researcher](https://www.yahoo.com/lifestyle/eat-carbs-without-spiking-blood-211549344.html)
+- Sep 23 - [Judge denies request to release 11-year-old charged in Port Orange school threats](https://www.yahoo.com/news/judge-denies-request-release-11-204734726.html)
+- Sep 23 - [Man said he was ‘devastated’ after hitting cement prongs along I-285 causing $2,000 in damage](https://www.yahoo.com/news/man-said-devastated-hitting-cement-204047582.html)
+- Sep 23 - [These Bay Area cities ranked among the rudest in America](https://www.yahoo.com/news/bay-area-cities-ranked-among-202441811.html)
 <!-- feed end -->
 
 ### Onstream
