@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 24 - [US woman dies in controversial suicide capsule in Switzerland](https://www.yahoo.com/news/multiple-arrests-us-woman-uses-142334242.html)
+- Sep 24 - [Stephen Colbert Spotted Donald Trump's "Weird" Response To A Very Basic Health Question](https://www.yahoo.com/entertainment/stephen-colbert-spotted-donald-trumps-161653023.html)
 - Sep 24 - [Another Country Threatens to Join War as Middle East Crisis Explodes](https://www.yahoo.com/news/another-country-threatens-join-war-154500747.html)
-- Sep 24 - [A snowmobiler who crashed into a parked Black Hawk helicopter is awarded $3 million](https://www.yahoo.com/news/snowmobiler-crashed-parked-black-hawk-152136624.html)
-- Sep 24 - [US home prices notch another record high in July](https://finance.yahoo.com/news/us-home-prices-notch-another-record-high-in-july-151810960.html)
-- Sep 24 - [Ukraine says its soldiers recaptured a Russian stronghold after hand-to-hand fighting](https://www.yahoo.com/news/ukraine-says-soldiers-recaptured-russian-145230153.html)
-- Sep 24 - [Multiple arrests after US woman uses machine-assisted suicide in Switzerland](https://www.yahoo.com/news/multiple-arrests-us-woman-uses-142334242.html)
+- Sep 24 - [War comes home to Russia in tranquil lakeside town](https://www.yahoo.com/news/war-comes-home-russia-tranquil-141956419.html)
+- Sep 24 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
 <!-- feed end -->
 
 ### Onstream
