@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Tyreek Hill's traffic stop can be a reminder of drivers' constitutional rights](https://www.yahoo.com/news/tyreek-hills-traffic-stop-reminder-130120333.html)
-- Sep 24 - [US Navy replenishment ship operating in Mideast was damaged in an incident, officials say](https://www.yahoo.com/news/us-navy-replenishment-ship-operating-125921888.html)
-- Sep 24 - [Nighttime footage shows a fire-breathing Ukrainian drone setting Russian positions ablaze](https://www.yahoo.com/news/nighttime-footage-shows-fire-breathing-122449562.html)
-- Sep 24 - [‘Yikes’: Trump Campaign Runs Ad In Georgia With Embarrassingly Silly Mix-Up](https://www.yahoo.com/news/yikes-trump-campaign-runs-ad-120154614.html)
-- Sep 24 - [Man smashes Ai Weiwei sculpture at exhibition opening in Italy](https://www.yahoo.com/news/man-smashes-ai-weiwei-sculpture-115853044.html)
+- Sep 24 - [Brett Favre reveals Parkinson's diagnosis during congressional hearing](https://sports.yahoo.com/brett-favre-reveals-parkinsons-diagnosis-during-congressional-hearing-145731885.html)
+- Sep 24 - [US consumer confidence ebbs in September on labor market fears](https://finance.yahoo.com/news/us-consumer-confidence-ebbs-september-143351216.html)
+- Sep 24 - ['I know there is a way forward': Biden issues call for global unity](https://www.yahoo.com/news/know-way-forward-biden-issues-143225380.html)
+- Sep 24 - [War comes home to Russia in tranquil lakeside town](https://www.yahoo.com/news/war-comes-home-russia-tranquil-141956419.html)
+- Sep 24 - [Latest spaghetti models, radar images of Tropical Storm Helene. See Sarasota impacts](https://www.yahoo.com/news/latest-spaghetti-models-radar-images-140013531.html)
 <!-- feed end -->
 
 ### Onstream
