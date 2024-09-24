@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 24 - [Why Whole Foods' CEO is focusing on Gen Z food habits](https://finance.yahoo.com/video/why-whole-foods-ceo-focusing-190000333.html)
+- Sep 24 - [Pac-12 files federal lawsuit against Mountain West over $43 million in 'poaching' penalties](https://sports.yahoo.com/pac-12-files-federal-lawsuit-182810913.html)
 - Sep 24 - ['Stop ripping us off': Ozempic producer CEO in hot seat in congressional hearing](https://www.yahoo.com/news/ozempic-producer-ceo-hot-seat-153414580.html)
-- Sep 24 - [Ukraine refuses to accept loss of territory as part of peace deal](https://www.yahoo.com/news/ukraine-refuses-accept-loss-territory-171816372.html)
+- Sep 24 - [US Supreme Court justices, other judges can stay at corporate-owned homes without disclosure](https://www.yahoo.com/news/us-supreme-court-justices-other-171820429.html)
 - Sep 24 - [US woman dies in controversial suicide capsule in Switzerland](https://www.yahoo.com/news/multiple-arrests-us-woman-uses-142334242.html)
-- Sep 24 - [Sun Unleashed Powerful X1.11 Class Solar Flare Seen From Space](https://www.yahoo.com/news/sun-unleashed-powerful-x1-11-170000528.html)
-- Sep 24 - [Where Akron, Kent, other Ohio colleges rank on U.S. News & World's 2025 best colleges list](https://www.yahoo.com/news/where-akron-kent-other-ohio-160952562.html)
 <!-- feed end -->
 
 ### Onstream
