@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Scientists May Have Found A Whole New Region of Our Solar System](https://www.yahoo.com/news/scientists-may-found-whole-region-120000336.html)
+- Sep 24 - [More women are charged with pregnancy-related crimes since Roe's end, study finds](https://www.yahoo.com/news/more-women-charged-pregnancy-related-130106485.html)
+- Sep 24 - [Nighttime footage shows a fire-breathing Ukrainian drone setting Russian positions ablaze](https://www.yahoo.com/news/nighttime-footage-shows-fire-breathing-122449562.html)
+- Sep 24 - [NC Lottery Powerball, Lucky For Life results for September 23, 2024](https://www.yahoo.com/news/nc-lottery-powerball-lucky-life-120931964.html)
+- Sep 24 - [‘Yikes’: Trump Campaign Runs Ad In Georgia With Embarrassingly Silly Mix-Up](https://www.yahoo.com/news/yikes-trump-campaign-runs-ad-120154614.html)
 - Sep 24 - [Union rejects Boeing's 'best and final' offer to striking workers](https://www.yahoo.com/news/union-rejects-boeings-best-final-114205947.html)
-- Sep 24 - [What Investors Need To Know Ahead Of The Tesla Robotaxi Event](https://www.investors.com/news/tesla-stock-elon-musk-robotaxi-event-investors-need-to-know/?src=A00220&yptr=yahoo)
-- Sep 24 - [Rich older Americans use 5 retirement saving strategies to supercharge their nest eggs — how many can help you?](https://finance.yahoo.com/news/rich-older-americans-5-retirement-110500296.html)
-- Sep 24 - [Sweden says Iran was behind thousands of text messages calling for revenge over Quran burnings](https://www.yahoo.com/news/iran-sent-thousands-sms-swedes-074204792.html)
 <!-- feed end -->
 
 ### Onstream
