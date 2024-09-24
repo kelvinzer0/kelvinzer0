@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Zelenskiy says Ukraine closer to end of war with Russia](https://www.yahoo.com/news/zelenskiy-says-ukraine-closer-end-230938318.html)
-- Sep 23 - [Trump says John Deere will be hit with 200% tariffs if production moves to Mexico](https://www.yahoo.com/news/trump-says-john-deere-hit-204807386.html)
-- Sep 23 - [These Bay Area cities ranked among the rudest in America](https://www.yahoo.com/news/bay-area-cities-ranked-among-202441811.html)
+- Sep 23 - [Is peanut butter or almond butter healthier? There's 1 major nutrition difference, dietitians say](https://www.yahoo.com/lifestyle/peanut-butter-almond-butter-healthier-231059542.html)
+- Sep 23 - [How to eat carbs without spiking your blood sugar, according to a nutrition researcher](https://www.yahoo.com/lifestyle/eat-carbs-without-spiking-blood-211549344.html)
+- Sep 23 - [Trump threatens John Deere with 200% tariffs if production moves to Mexico](https://www.yahoo.com/news/trump-says-john-deere-hit-204807386.html)
+- Sep 23 - [Man said he was ‘devastated’ after hitting cement prongs along I-285 causing $2,000 in damage](https://www.yahoo.com/news/man-said-devastated-hitting-cement-204047582.html)
 - Sep 23 - [Kmart to close its last remaining store in the U.S. Here's where it is.](https://finance.yahoo.com/news/kmart-close-last-remaining-store-191600808.html)
-- Sep 23 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
 <!-- feed end -->
 
 ### Onstream
