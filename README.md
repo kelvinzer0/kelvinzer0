@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 24 - [Boise Bench neighborhood thrown into chaos over possible housing complex. What happened?](https://www.yahoo.com/news/boise-bench-neighborhood-thrown-chaos-201311604.html)
 - Sep 24 - [Woman alleges Sean 'Diddy' Combs raped her on video in latest lawsuit](https://www.yahoo.com/news/woman-alleges-sean-diddy-combs-195622808.html)
 - Sep 24 - [Meteorologist shows latest potential path for Hurricane Helene](https://www.yahoo.com/news/meteorologist-shows-latest-potential-path-070821151.html)
-- Sep 24 - ['Stop ripping us off': Ozempic producer CEO in hot seat in congressional hearing](https://www.yahoo.com/news/ozempic-producer-ceo-hot-seat-153414580.html)
-- Sep 24 - [Journalist's apology not enough to satisfy Ghanaian king](https://www.yahoo.com/news/journalists-apology-not-enough-satisfy-165932251.html)
+- Sep 24 - [US Supreme Court justices, other judges can stay at corporate-owned homes without disclosure](https://www.yahoo.com/news/us-supreme-court-justices-other-171820429.html)
 - Sep 24 - [US woman dies in controversial suicide capsule in Switzerland](https://www.yahoo.com/news/multiple-arrests-us-woman-uses-142334242.html)
 <!-- feed end -->
 
