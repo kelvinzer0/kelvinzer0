@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Julie Chrisley resentencing: This what the Chrisleys went to prison for](https://www.yahoo.com/news/julie-chrisley-resentencing-chrisleys-went-064113293.html)
-- Sep 24 - [Japan asks China to ensure the safety of Japanese citizens after a schoolboy was fatally stabbed](https://www.yahoo.com/news/japan-asks-china-ensure-safety-051012817.html)
+- Sep 24 - [Banned Russian priest stands by condemnation of 'brother killing brother' in Ukraine](https://www.yahoo.com/news/banned-russian-priest-stands-condemnation-080500934.html)
+- Sep 24 - [Turkey's Erdogan calls for US to lift sanctions hindering defence purchases](https://www.yahoo.com/news/turkeys-erdogan-calls-us-lift-065331911.html)
+- Sep 24 - [Del Mar’s short-term rental ordinance approved, awaits coastal input](https://www.yahoo.com/news/del-mar-short-term-rental-055355278.html)
 - Sep 24 - [Former FTX executive Caroline Ellison faces sentencing](https://www.yahoo.com/news/former-ftx-executive-caroline-ellison-041134330.html)
 - Sep 24 - [Texas man set to be executed for killing his infant son](https://www.yahoo.com/news/texas-man-set-executed-killing-040123397.html)
-- Sep 24 - [Chemicals linked to breast cancer leach into our foods, study finds](https://www.yahoo.com/news/chemicals-linked-breast-cancer-leach-040119453.html)
 <!-- feed end -->
 
 ### Onstream
