@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [10 Red Flags in Men You Should Never Ignore, According to Psychologists](https://www.yahoo.com/lifestyle/10-red-flags-men-never-231000721.html)
-- Sep 23 - [How to eat carbs without spiking your blood sugar, according to a nutrition researcher](https://www.yahoo.com/lifestyle/eat-carbs-without-spiking-blood-211549344.html)
-- Sep 23 - [Judge denies request to release 11-year-old charged in Port Orange school threats](https://www.yahoo.com/news/judge-denies-request-release-11-204734726.html)
-- Sep 23 - [Man said he was ‘devastated’ after hitting cement prongs along I-285 causing $2,000 in damage](https://www.yahoo.com/news/man-said-devastated-hitting-cement-204047582.html)
-- Sep 23 - [These Bay Area cities ranked among the rudest in America](https://www.yahoo.com/news/bay-area-cities-ranked-among-202441811.html)
+- Sep 24 - [Former FTX executive Caroline Ellison faces sentencing](https://www.yahoo.com/news/former-ftx-executive-caroline-ellison-041134330.html)
+- Sep 24 - [Texas man set to be executed for killing his infant son](https://www.yahoo.com/news/texas-man-set-executed-killing-040123397.html)
+- Sep 24 - [A court in Argentina orders the arrest of Venezuela's president and his right-hand man](https://www.yahoo.com/news/court-argentina-orders-arrest-venezuelas-022834076.html)
+- Sep 24 - [JPMorgan, BOfA And Other US Banks Reportedly Reap $1 Trillion Windfall From Fed's High Interest Rates](https://finance.yahoo.com/news/jpmorgan-bofa-other-us-banks-020458573.html)
+- Sep 23 - [Man goes on racist tirade during road rage incident on 405 Freeway in Los Angeles](https://www.yahoo.com/news/man-goes-racist-tirade-during-234826412.html)
 <!-- feed end -->
 
 ### Onstream
