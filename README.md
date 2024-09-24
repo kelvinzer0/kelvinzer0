@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Why China's economic slowdown is unlikely to affect US inflation](https://finance.yahoo.com/video/why-chinas-economic-slowdown-unlikely-230000152.html)
-- Sep 23 - [Side-by-side images from the James Webb and Hubble space telescopes show why NASA spent 25 years and $10 billion on the Webb](https://www.yahoo.com/news/side-side-images-james-webb-220642605.html)
+- Sep 23 - [Zelenskiy says Ukraine closer to end of war with Russia](https://www.yahoo.com/news/zelenskiy-says-ukraine-closer-end-230938318.html)
 - Sep 23 - [Trump says John Deere will be hit with 200% tariffs if production moves to Mexico](https://www.yahoo.com/news/trump-says-john-deere-hit-204807386.html)
-- Sep 23 - [Man said he was ‘devastated’ after hitting cement prongs along I-285 causing $2,000 in damage](https://www.yahoo.com/news/man-said-devastated-hitting-cement-204047582.html)
-- Sep 23 - [Lifetime ban for flyers who harassed jet passenger reclining her seat in front of them](https://www.yahoo.com/news/lifetime-ban-pair-harassed-jet-193850935.html)
+- Sep 23 - [These Bay Area cities ranked among the rudest in America](https://www.yahoo.com/news/bay-area-cities-ranked-among-202441811.html)
+- Sep 23 - [Kmart to close its last remaining store in the U.S. Here's where it is.](https://finance.yahoo.com/news/kmart-close-last-remaining-store-191600808.html)
+- Sep 23 - [Thousands of bones and hundreds of weapons reveal grisly insights into a 3,250-year-old battle](https://www.yahoo.com/news/arrowheads-reveal-insights-armies-fought-164151531.html)
 <!-- feed end -->
 
 ### Onstream
