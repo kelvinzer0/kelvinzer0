@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Banned Russian priest stands by condemnation of 'brother killing brother' in Ukraine](https://www.yahoo.com/news/banned-russian-priest-stands-condemnation-080500934.html)
-- Sep 24 - [Turkey's Erdogan calls for US to lift sanctions hindering defence purchases](https://www.yahoo.com/news/turkeys-erdogan-calls-us-lift-065331911.html)
-- Sep 24 - [Del Mar’s short-term rental ordinance approved, awaits coastal input](https://www.yahoo.com/news/del-mar-short-term-rental-055355278.html)
+- Sep 24 - [Woman rescued after crash leaves Porsche dangling from Florida car park](https://www.yahoo.com/news/woman-rescued-crash-leaves-porsche-085911829.html)
+- Sep 24 - [In Russia, some crypto miners go underground - literally](https://www.yahoo.com/news/russia-crypto-miners-underground-literally-082744650.html)
 - Sep 24 - [Former FTX executive Caroline Ellison faces sentencing](https://www.yahoo.com/news/former-ftx-executive-caroline-ellison-041134330.html)
 - Sep 24 - [Texas man set to be executed for killing his infant son](https://www.yahoo.com/news/texas-man-set-executed-killing-040123397.html)
+- Sep 24 - [Charlotte automotive company CEO selling one of his Quail Hollow homes for $7.9 million](https://www.yahoo.com/news/charlotte-automotive-company-ceo-selling-030442890.html)
 <!-- feed end -->
 
 ### Onstream
