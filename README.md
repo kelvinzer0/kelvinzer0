@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [More women are charged with pregnancy-related crimes since Roe's end, study finds](https://www.yahoo.com/news/more-women-charged-pregnancy-related-130106485.html)
+- Sep 24 - [Tyreek Hill's traffic stop can be a reminder of drivers' constitutional rights](https://www.yahoo.com/news/tyreek-hills-traffic-stop-reminder-130120333.html)
+- Sep 24 - [US Navy replenishment ship operating in Mideast was damaged in an incident, officials say](https://www.yahoo.com/news/us-navy-replenishment-ship-operating-125921888.html)
 - Sep 24 - [Nighttime footage shows a fire-breathing Ukrainian drone setting Russian positions ablaze](https://www.yahoo.com/news/nighttime-footage-shows-fire-breathing-122449562.html)
-- Sep 24 - [NC Lottery Powerball, Lucky For Life results for September 23, 2024](https://www.yahoo.com/news/nc-lottery-powerball-lucky-life-120931964.html)
 - Sep 24 - [‘Yikes’: Trump Campaign Runs Ad In Georgia With Embarrassingly Silly Mix-Up](https://www.yahoo.com/news/yikes-trump-campaign-runs-ad-120154614.html)
-- Sep 24 - [Union rejects Boeing's 'best and final' offer to striking workers](https://www.yahoo.com/news/union-rejects-boeings-best-final-114205947.html)
+- Sep 24 - [Man smashes Ai Weiwei sculpture at exhibition opening in Italy](https://www.yahoo.com/news/man-smashes-ai-weiwei-sculpture-115853044.html)
 <!-- feed end -->
 
 ### Onstream
