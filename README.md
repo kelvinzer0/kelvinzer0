@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 25 - [Tesla Owner Mystified as Car Is Keyed By Man He's 'Never Met'](https://www.yahoo.com/news/never-met-bloke-life-tesla-081512084.html)
 - Sep 25 - [A man who killed 2 Dartmouth professors as a teen is challenging his sentence](https://www.yahoo.com/news/man-killed-2-dartmouth-professors-040407591.html)
-- Sep 25 - [Israel has landed heavy blows on Hezbollah. The victory it seeks could prove elusive](https://www.yahoo.com/news/israel-landed-heavy-blows-hezbollah-040304255.html)
-- Sep 24 - [Woman alleges Sean 'Diddy' Combs raped her on video in latest lawsuit](https://www.yahoo.com/news/woman-alleges-sean-diddy-combs-195622808.html)
-- Sep 24 - [Watch: Trump Struggles to Stay Focused in Odd, Rambling Speech](https://www.yahoo.com/news/watch-trump-struggles-stay-focused-193544931.html)
+- Sep 25 - [Mom Says Daughter, an Ernst & Young Employee, Died as a Result of 'Overwhelming Workload'](https://www.yahoo.com/news/mom-says-daughter-ernst-young-030957960.html)
+- Sep 24 - [Judge to approve auctions liquidating Alex Jones' Infowars to help pay Sandy Hook families](https://www.yahoo.com/news/judge-approve-auctions-liquidating-alex-225833701.html)
+- Sep 24 - [West L.A. school counselor slept with student, 16, police say](https://www.yahoo.com/news/west-l-school-counselor-slept-202820950.html)
 <!-- feed end -->
 
 ### Onstream
