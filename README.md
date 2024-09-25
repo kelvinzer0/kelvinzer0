@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [If You Invested $1,000 In Bitcoin When Jamie Dimon Said He Would Fire Employees 'In A Second' For Holding BTC, Here's How Much You'd Have Today](https://finance.yahoo.com/news/invested-1-000-bitcoin-jamie-183024098.html)
 - Sep 25 - [Shippers scramble for workarounds as US port strike looms](https://finance.yahoo.com/video/shippers-scramble-workarounds-us-port-174229989.html)
-- Sep 25 - [In swing states that once went for Trump, unions organize to prevent a repeat](https://www.yahoo.com/news/swing-states-once-went-trump-171831999.html)
-- Sep 25 - [Putin says a nuclear power supporting an attack on Russia can be considered an aggressor](https://www.yahoo.com/news/putin-says-nuclear-nation-supporting-171549650.html)
-- Sep 25 - [This Boss Says Their Employee Has "Good Work Ethic" But Is Mad Because They "Always Clock Out 5 Minutes Early" — Here's Why People Say It's Problematic](https://www.yahoo.com/lifestyle/boss-says-employee-good-ethic-165837656.html)
+- Sep 25 - [Putin lowers threshold of nuclear response as he issues new warnings to the West over Ukraine](https://www.yahoo.com/news/putin-says-nuclear-nation-supporting-171549650.html)
+- Sep 25 - [Southwest plans to cut flights in Atlanta while adding them elsewhere. Its unions are unhappy](https://finance.yahoo.com/news/southwest-plans-cut-flights-atlanta-164613081.html)
 - Sep 25 - [Woolly rhino found preserved in Russian permafrost after 32,000 years](https://www.yahoo.com/news/woolly-rhino-found-preserved-russian-163734923.html)
 <!-- feed end -->
 
