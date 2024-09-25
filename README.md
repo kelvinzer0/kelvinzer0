@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Watch live: Graham holds press conference on ending birthright citizenship](https://www.yahoo.com/news/watch-live-graham-holds-press-171500621.html)
-- Sep 25 - [Southwest plans to cut flights in Atlanta while adding them elsewhere. Its unions are unhappy](https://finance.yahoo.com/news/southwest-plans-cut-flights-atlanta-164613081.html)
-- Sep 25 - [Woolly rhino found preserved in Russian permafrost after 32,000 years](https://www.yahoo.com/news/woolly-rhino-found-preserved-russian-163734923.html)
-- Sep 25 - [See what schools are closed, delayed as Middle Georgia braces for Hurricane Helene](https://www.yahoo.com/news/see-schools-closed-delayed-middle-162600971.html)
-- Sep 25 - [Prominent physician dead following crash in Wyoming County](https://www.yahoo.com/news/prominent-physician-dead-following-crash-151256491.html)
+- Sep 25 - [Route 20 bridge in North East comes down in sudden rush on Wednesday](https://www.yahoo.com/news/route-20-bridge-north-east-194238523.html)
+- Sep 25 - [Resentencing for Lee Malvo postponed in Maryland after Virginia says he can't attend in person](https://www.yahoo.com/news/resentencing-lee-malvo-postponed-maryland-191650640.html)
+- Sep 25 - [4-Year-Old Girl Reunites with Dad After Getting Lost While Trying to Walk to Grandma’s House](https://www.yahoo.com/entertainment/4-old-girl-reunites-dad-184401473.html)
+- Sep 25 - [Forecasters Departs From La Niña Pattern; Calls for “Huge Snowstorms” Out East This Winter](https://www.yahoo.com/news/forecasters-departs-la-ni-pattern-174256237.html)
+- Sep 25 - [Putin lowers threshold of nuclear response as he issues new warnings to the West over Ukraine](https://www.yahoo.com/news/putin-says-nuclear-nation-supporting-171549650.html)
 <!-- feed end -->
 
 ### Onstream
