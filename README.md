@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Belgian climate scientists grow the pears of the future](https://www.yahoo.com/news/belgian-climate-scientists-grow-pears-095044724.html)
+- Sep 25 - [Kremlin says Zelenskiy is making "fatal mistake" by trying to force it to make peace](https://www.yahoo.com/news/kremlin-says-zelenskiy-making-fatal-094732133.html)
+- Sep 25 - [Scurvy, hypothermia and cannibalism: DNA sheds light on victim of Northwest Passage expedition](https://www.yahoo.com/news/scurvy-hypothermia-cannibalism-dna-sheds-090024012.html)
 - Sep 25 - [A man who killed 2 Dartmouth professors as a teen is challenging his sentence](https://www.yahoo.com/news/man-killed-2-dartmouth-professors-040407591.html)
-- Sep 25 - [Israel has landed heavy blows on Hezbollah. The victory it seeks could prove elusive](https://www.yahoo.com/news/israel-landed-heavy-blows-hezbollah-040304255.html)
-- Sep 25 - [Mom Says Daughter, an Ernst & Young Employee, Died as a Result of 'Overwhelming Workload'](https://www.yahoo.com/news/mom-says-daughter-ernst-young-030957960.html)
-- Sep 24 - [Watch: Another home in Rodanthe collapses Tuesday](https://www.yahoo.com/news/watch-another-home-rodanthe-collapses-204106342.html)
+- Sep 25 - [‘KC Superman’ says banned for life from Westport, faces two new charges](https://www.yahoo.com/news/kc-superman-says-banned-life-031600528.html)
+- Sep 25 - [First Look At Mystery Object Shot Down Over Canada By F-22 Raptor Last Year](https://www.yahoo.com/news/first-look-mystery-object-shot-011300594.html)
 <!-- feed end -->
 
 ### Onstream
