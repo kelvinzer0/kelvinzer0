@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [First Look At Mystery Object Shot Down Over Canada By F-22 Raptor Last Year](https://www.yahoo.com/news/first-look-mystery-object-shot-011300594.html)
-- Sep 24 - [Judge to approve auctions liquidating Alex Jones' Infowars to help pay Sandy Hook families](https://www.yahoo.com/news/judge-approve-auctions-liquidating-alex-225833701.html)
-- Sep 24 - [Columbus police respond to threat at Muscogee County school. Suspect identified](https://www.yahoo.com/news/columbus-police-respond-threat-muscogee-204626829.html)
-- Sep 24 - [Boise Bench neighborhood thrown into chaos over possible housing complex. What happened?](https://www.yahoo.com/news/boise-bench-neighborhood-thrown-chaos-201311604.html)
-- Sep 24 - [Woman alleges Sean 'Diddy' Combs raped her on video in latest lawsuit](https://www.yahoo.com/news/woman-alleges-sean-diddy-combs-195622808.html)
+- Sep 25 - [A man who killed 2 Dartmouth professors as a teen is challenging his sentence](https://www.yahoo.com/news/man-killed-2-dartmouth-professors-040407591.html)
+- Sep 25 - [What polls show about Tim Walz and JD Vance before Tuesday's VP debate](https://www.yahoo.com/news/polls-show-tim-walz-jd-040133993.html)
+- Sep 25 - [Mom Says Daughter, an Ernst & Young Employee, Died as a Result of 'Overwhelming Workload'](https://www.yahoo.com/news/mom-says-daughter-ernst-young-030957960.html)
+- Sep 25 - [Gov. Stitt undergoes surgery for “significant blockage” in main artery](https://www.yahoo.com/news/gov-stitt-undergoes-surgery-significant-010327152.html)
+- Sep 25 - [Bottled water contains harmful contaminants, experts warn. Here are safer ways to hydrate.](https://www.yahoo.com/lifestyle/bottled-water-contains-harmful-contaminants-experts-warn-here-are-safer-ways-to-hydrate-001323961.html)
 <!-- feed end -->
 
 ### Onstream
