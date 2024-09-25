@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [If You Invested $1,000 In Bitcoin When Jamie Dimon Said He Would Fire Employees 'In A Second' For Holding BTC, Here's How Much You'd Have Today](https://finance.yahoo.com/news/invested-1-000-bitcoin-jamie-183024098.html)
-- Sep 25 - [Shippers scramble for workarounds as US port strike looms](https://finance.yahoo.com/video/shippers-scramble-workarounds-us-port-174229989.html)
-- Sep 25 - [Putin lowers threshold of nuclear response as he issues new warnings to the West over Ukraine](https://www.yahoo.com/news/putin-says-nuclear-nation-supporting-171549650.html)
+- Sep 25 - [Watch live: Graham holds press conference on ending birthright citizenship](https://www.yahoo.com/news/watch-live-graham-holds-press-171500621.html)
 - Sep 25 - [Southwest plans to cut flights in Atlanta while adding them elsewhere. Its unions are unhappy](https://finance.yahoo.com/news/southwest-plans-cut-flights-atlanta-164613081.html)
 - Sep 25 - [Woolly rhino found preserved in Russian permafrost after 32,000 years](https://www.yahoo.com/news/woolly-rhino-found-preserved-russian-163734923.html)
+- Sep 25 - [See what schools are closed, delayed as Middle Georgia braces for Hurricane Helene](https://www.yahoo.com/news/see-schools-closed-delayed-middle-162600971.html)
+- Sep 25 - [Prominent physician dead following crash in Wyoming County](https://www.yahoo.com/news/prominent-physician-dead-following-crash-151256491.html)
 <!-- feed end -->
 
 ### Onstream
