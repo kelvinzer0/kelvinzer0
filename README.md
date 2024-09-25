@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 25 - [First Look At Mystery Object Shot Down Over Canada By F-22 Raptor Last Year](https://www.yahoo.com/news/first-look-mystery-object-shot-011300594.html)
 - Sep 24 - [Judge to approve auctions liquidating Alex Jones' Infowars to help pay Sandy Hook families](https://www.yahoo.com/news/judge-approve-auctions-liquidating-alex-225833701.html)
-- Sep 24 - [Submersible expert who went on early Titan dive: 'OceanGate came very, very close to killing me'](https://www.yahoo.com/news/former-oceangate-employee-gets-emotional-174100653.html)
+- Sep 24 - [Columbus police respond to threat at Muscogee County school. Suspect identified](https://www.yahoo.com/news/columbus-police-respond-threat-muscogee-204626829.html)
+- Sep 24 - [Boise Bench neighborhood thrown into chaos over possible housing complex. What happened?](https://www.yahoo.com/news/boise-bench-neighborhood-thrown-chaos-201311604.html)
 - Sep 24 - [Woman alleges Sean 'Diddy' Combs raped her on video in latest lawsuit](https://www.yahoo.com/news/woman-alleges-sean-diddy-combs-195622808.html)
-- Sep 24 - [Utah police warn of ‘personalized and threatening’ email scam targeting victims](https://www.yahoo.com/news/utah-police-warn-personalized-threatening-185056434.html)
 <!-- feed end -->
 
 ### Onstream
