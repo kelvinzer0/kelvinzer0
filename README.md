@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Watch: Rescued mountain lion cub snuggles with 'perfect plushy'](https://www.yahoo.com/lifestyle/watch-rescued-mountain-lion-cub-162803141.html)
-- Sep 25 - [People living at Owego encampment are being relocated for an 'imminent health threat'](https://www.yahoo.com/news/people-living-owego-encampment-being-160710346.html)
-- Sep 25 - [Lauren Boebert attacks Democrats on House floor claiming they ‘hate Christmas’](https://www.yahoo.com/news/lauren-boebert-attacks-democrats-house-152345361.html)
-- Sep 25 - [Police Descend on Jennifer Aniston's House in Overnight Swatting Incident](https://www.yahoo.com/entertainment/police-descend-jennifer-anistons-house-135919794.html)
-- Sep 25 - [Georgia universities appear on U.S. News list of best universities. Where UGA, GT rank](https://www.yahoo.com/news/georgia-universities-appear-u-news-131032086.html)
+- Sep 25 - [Shippers scramble for workarounds as US port strike looms](https://finance.yahoo.com/video/shippers-scramble-workarounds-us-port-174229989.html)
+- Sep 25 - [In swing states that once went for Trump, unions organize to prevent a repeat](https://www.yahoo.com/news/swing-states-once-went-trump-171831999.html)
+- Sep 25 - [Putin says a nuclear power supporting an attack on Russia can be considered an aggressor](https://www.yahoo.com/news/putin-says-nuclear-nation-supporting-171549650.html)
+- Sep 25 - [This Boss Says Their Employee Has "Good Work Ethic" But Is Mad Because They "Always Clock Out 5 Minutes Early" — Here's Why People Say It's Problematic](https://www.yahoo.com/lifestyle/boss-says-employee-good-ethic-165837656.html)
+- Sep 25 - [Woolly rhino found preserved in Russian permafrost after 32,000 years](https://www.yahoo.com/news/woolly-rhino-found-preserved-russian-163734923.html)
 <!-- feed end -->
 
 ### Onstream
