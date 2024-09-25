@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Trump praises Russia's military record in argument to stop funding Ukraine's fight](https://www.yahoo.com/news/trump-praises-russias-military-record-221358207.html)
-- Sep 24 - [Woman alleges Sean 'Diddy' Combs raped her on video in latest lawsuit](https://www.yahoo.com/news/woman-alleges-sean-diddy-combs-195622808.html)
+- Sep 25 - [92-year-old woman loses life savings in online scam](https://www.yahoo.com/news/92-old-woman-loses-life-002343267.html)
+- Sep 25 - [Bottled water contains harmful contaminants, experts warn. Here are safer ways to hydrate.](https://www.yahoo.com/lifestyle/bottled-water-contains-harmful-contaminants-experts-warn-here-are-safer-ways-to-hydrate-001323961.html)
+- Sep 24 - [Motorcyclist dies in hospital after hitting concrete wall. Boise police investigate](https://www.yahoo.com/news/motorcyclist-dies-hospital-hitting-concrete-214040192.html)
+- Sep 24 - [What Would A Far Cheaper Next Generation Air Dominance Fighter Actually Look Like?](https://www.yahoo.com/news/far-cheaper-next-generation-air-211312398.html)
 - Sep 24 - [Watch: Trump Struggles to Stay Focused in Odd, Rambling Speech](https://www.yahoo.com/news/watch-trump-struggles-stay-focused-193544931.html)
-- Sep 24 - [Boeing offers striking union added time to hold vote on new offer](https://finance.yahoo.com/news/boeing-offers-additional-time-striking-193155319.html)
-- Sep 24 - [5 Slowest Selling New Cars in 2024 That Could Be The Biggest Bargains in 2025](https://finance.yahoo.com/news/5-slowest-selling-cars-2024-191915708.html)
 <!-- feed end -->
 
 ### Onstream
