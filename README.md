@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Santa Rosa joins Escambia County in closing school Thursday for Hurricane Helene](https://www.yahoo.com/news/santa-rosa-joins-escambia-county-212859587.html)
+- Sep 25 - [Hundreds of Lebanese are left scarred by Israeli bombardment](https://www.yahoo.com/news/hundreds-lebanese-left-scarred-israeli-222829956.html)
 - Sep 25 - [Speaker Johnson demands Zelenskyy remove Ukraine's ambassador to US after Pennsylvania visit](https://www.yahoo.com/news/speaker-johnson-demands-zelenskyy-remove-205227555.html)
 - Sep 25 - [The Curiosity Mars Rover's Wheel Looks Absolutely Wrecked](https://www.yahoo.com/news/curiosity-mars-rovers-wheel-looks-200732098.html)
-- Sep 25 - [Woman arrested while visiting Disneyland Resort](https://www.yahoo.com/news/woman-arrested-while-visiting-disneyland-185425794.html)
-- Sep 25 - [Forecasters Departs From La Niña Pattern; Calls for “Huge Snowstorms” Out East This Winter](https://www.yahoo.com/news/forecasters-departs-la-ni-pattern-174256237.html)
+- Sep 25 - [Route 20 bridge in North East comes down in sudden rush on Wednesday](https://www.yahoo.com/news/route-20-bridge-north-east-194238523.html)
+- Sep 25 - [This Z06 Was Stuck At The Dealer For Months](https://autos.yahoo.com/z06-stuck-dealer-months-213010510.html)
 <!-- feed end -->
 
 ### Onstream
