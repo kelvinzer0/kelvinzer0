@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [Tesla Owner Mystified as Car Is Keyed By Man He's 'Never Met'](https://www.yahoo.com/news/never-met-bloke-life-tesla-081512084.html)
 - Sep 25 - [A man who killed 2 Dartmouth professors as a teen is challenging his sentence](https://www.yahoo.com/news/man-killed-2-dartmouth-professors-040407591.html)
 - Sep 25 - [What polls show about Tim Walz and JD Vance before Tuesday's VP debate](https://www.yahoo.com/news/polls-show-tim-walz-jd-040133993.html)
 - Sep 25 - [Mom Says Daughter, an Ernst & Young Employee, Died as a Result of 'Overwhelming Workload'](https://www.yahoo.com/news/mom-says-daughter-ernst-young-030957960.html)
-- Sep 25 - [Gov. Stitt undergoes surgery for “significant blockage” in main artery](https://www.yahoo.com/news/gov-stitt-undergoes-surgery-significant-010327152.html)
-- Sep 25 - [Bottled water contains harmful contaminants, experts warn. Here are safer ways to hydrate.](https://www.yahoo.com/lifestyle/bottled-water-contains-harmful-contaminants-experts-warn-here-are-safer-ways-to-hydrate-001323961.html)
+- Sep 25 - [First Look At Mystery Object Shot Down Over Canada By F-22 Raptor Last Year](https://www.yahoo.com/news/first-look-mystery-object-shot-011300594.html)
 <!-- feed end -->
 
 ### Onstream
