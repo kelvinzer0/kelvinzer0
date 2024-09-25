@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [Reaction from Tel Aviv after Hezbollah launches missile at city in deepest strike yet into Israel](https://www.yahoo.com/news/reaction-tel-aviv-hezbollah-launches-122904759.html)
 - Sep 25 - [Kremlin says Zelenskiy is making "fatal mistake" by trying to force it to make peace](https://www.yahoo.com/news/kremlin-says-zelenskiy-making-fatal-094732133.html)
-- Sep 25 - [Scurvy, hypothermia and cannibalism: DNA sheds light on victim of Northwest Passage expedition](https://www.yahoo.com/news/scurvy-hypothermia-cannibalism-dna-sheds-090024012.html)
-- Sep 25 - [A man who killed 2 Dartmouth professors as a teen is challenging his sentence](https://www.yahoo.com/news/man-killed-2-dartmouth-professors-040407591.html)
-- Sep 25 - [‘KC Superman’ says banned for life from Westport, faces two new charges](https://www.yahoo.com/news/kc-superman-says-banned-life-031600528.html)
-- Sep 25 - [First Look At Mystery Object Shot Down Over Canada By F-22 Raptor Last Year](https://www.yahoo.com/news/first-look-mystery-object-shot-011300594.html)
+- Sep 25 - [Fox News Analyst Calls Out Kellyanne Conway’s New Donald Trump Spin To Her Face](https://www.yahoo.com/news/fox-news-analyst-calls-kellyanne-081933282.html)
+- Sep 25 - [Springfield motorcycle driver dies after hitting curb in parking lot](https://www.yahoo.com/news/springfield-motorcycle-driver-dies-hitting-011152957.html)
+- Sep 25 - [Sick And Twisted Stories Some People Believe Actually Happened, And Dear God, We'd Better Hope They're Wrong](https://www.yahoo.com/entertainment/just-bunch-sick-twisted-urban-001602665.html)
 <!-- feed end -->
 
 ### Onstream
