@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 25 - [Kharkiv residential block heavily damaged in deadly Russian glide bomb attack](https://www.yahoo.com/news/kharkiv-residential-block-heavily-damaged-023636677.html)
+- Sep 25 - [First Look At Mystery Object Shot Down Over Canada By F-22 Raptor Last Year](https://www.yahoo.com/news/first-look-mystery-object-shot-011300594.html)
+- Sep 25 - [Gov. Stitt undergoes surgery for “significant blockage” in main artery](https://www.yahoo.com/news/gov-stitt-undergoes-surgery-significant-010327152.html)
 - Sep 25 - [Bottled water contains harmful contaminants, experts warn. Here are safer ways to hydrate.](https://www.yahoo.com/lifestyle/bottled-water-contains-harmful-contaminants-experts-warn-here-are-safer-ways-to-hydrate-001323961.html)
 - Sep 24 - [Two passengers taken to the hospital with injuries on United flight after pilots respond to collision warning](https://www.yahoo.com/news/two-passengers-taken-hospital-injuries-230121739.html)
-- Sep 24 - [Judge to approve auctions liquidating Alex Jones' Infowars to help pay Sandy Hook families](https://www.yahoo.com/news/judge-approve-auctions-liquidating-alex-225833701.html)
-- Sep 24 - [Submersible expert who went on early Titan dive: 'OceanGate came very, very close to killing me'](https://www.yahoo.com/news/former-oceangate-employee-gets-emotional-174100653.html)
 <!-- feed end -->
 
 ### Onstream
