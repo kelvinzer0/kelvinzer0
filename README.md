@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 25 - [Tesla Owner Mystified as Car Is Keyed By Man He's 'Never Met'](https://www.yahoo.com/news/never-met-bloke-life-tesla-081512084.html)
 - Sep 25 - [A man who killed 2 Dartmouth professors as a teen is challenging his sentence](https://www.yahoo.com/news/man-killed-2-dartmouth-professors-040407591.html)
-- Sep 25 - [What polls show about Tim Walz and JD Vance before Tuesday's VP debate](https://www.yahoo.com/news/polls-show-tim-walz-jd-040133993.html)
-- Sep 25 - [Mom Says Daughter, an Ernst & Young Employee, Died as a Result of 'Overwhelming Workload'](https://www.yahoo.com/news/mom-says-daughter-ernst-young-030957960.html)
-- Sep 25 - [First Look At Mystery Object Shot Down Over Canada By F-22 Raptor Last Year](https://www.yahoo.com/news/first-look-mystery-object-shot-011300594.html)
+- Sep 25 - [Israel has landed heavy blows on Hezbollah. The victory it seeks could prove elusive](https://www.yahoo.com/news/israel-landed-heavy-blows-hezbollah-040304255.html)
+- Sep 24 - [Woman alleges Sean 'Diddy' Combs raped her on video in latest lawsuit](https://www.yahoo.com/news/woman-alleges-sean-diddy-combs-195622808.html)
+- Sep 24 - [Watch: Trump Struggles to Stay Focused in Odd, Rambling Speech](https://www.yahoo.com/news/watch-trump-struggles-stay-focused-193544931.html)
 <!-- feed end -->
 
 ### Onstream
