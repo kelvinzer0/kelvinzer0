@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [92-year-old woman loses life savings in online scam](https://www.yahoo.com/news/92-old-woman-loses-life-002343267.html)
+- Sep 25 - [Kharkiv residential block heavily damaged in deadly Russian glide bomb attack](https://www.yahoo.com/news/kharkiv-residential-block-heavily-damaged-023636677.html)
 - Sep 25 - [Bottled water contains harmful contaminants, experts warn. Here are safer ways to hydrate.](https://www.yahoo.com/lifestyle/bottled-water-contains-harmful-contaminants-experts-warn-here-are-safer-ways-to-hydrate-001323961.html)
-- Sep 24 - [Motorcyclist dies in hospital after hitting concrete wall. Boise police investigate](https://www.yahoo.com/news/motorcyclist-dies-hospital-hitting-concrete-214040192.html)
-- Sep 24 - [What Would A Far Cheaper Next Generation Air Dominance Fighter Actually Look Like?](https://www.yahoo.com/news/far-cheaper-next-generation-air-211312398.html)
-- Sep 24 - [Watch: Trump Struggles to Stay Focused in Odd, Rambling Speech](https://www.yahoo.com/news/watch-trump-struggles-stay-focused-193544931.html)
+- Sep 24 - [Two passengers taken to the hospital with injuries on United flight after pilots respond to collision warning](https://www.yahoo.com/news/two-passengers-taken-hospital-injuries-230121739.html)
+- Sep 24 - [Judge to approve auctions liquidating Alex Jones' Infowars to help pay Sandy Hook families](https://www.yahoo.com/news/judge-approve-auctions-liquidating-alex-225833701.html)
+- Sep 24 - [Submersible expert who went on early Titan dive: 'OceanGate came very, very close to killing me'](https://www.yahoo.com/news/former-oceangate-employee-gets-emotional-174100653.html)
 <!-- feed end -->
 
 ### Onstream
