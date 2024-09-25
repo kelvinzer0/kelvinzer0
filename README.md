@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [Why I’m ditching my Apple Watch Ultra 2](https://www.yahoo.com/tech/why-m-ditching-apple-watch-141524842.html)
+- Sep 25 - [Ford and GM tumble on reported China import crackdown](https://finance.yahoo.com/video/ford-gm-tumble-reported-china-140331613.html)
 - Sep 25 - [Reality TV star Julie Chrisley to be re-sentenced in bank fraud and tax evasion case](https://www.yahoo.com/news/reality-tv-star-julie-chrisley-123853221.html)
-- Sep 25 - [Reaction from Tel Aviv after Hezbollah launches missile at city in deepest strike yet into Israel](https://www.yahoo.com/news/reaction-tel-aviv-hezbollah-launches-122904759.html)
-- Sep 25 - [Government wages hundred-million-dollar war on species capable of destroying ecosystems: 'We will not pass a devastated ecosystem to the next generation'](https://www.yahoo.com/news/government-wages-hundred-million-dollar-111549974.html)
+- Sep 25 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-122909403.html)
 - Sep 25 - [Kremlin says Zelenskiy is making "fatal mistake" by trying to force it to make peace](https://www.yahoo.com/news/kremlin-says-zelenskiy-making-fatal-094732133.html)
-- Sep 25 - [Jamie Dimon says business school grads taking a private equity job while already working at JPMorgan is ‘unethical’](https://finance.yahoo.com/news/jamie-dimon-says-business-school-093000096.html)
 <!-- feed end -->
 
 ### Onstream
