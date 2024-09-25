@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Why I’m ditching my Apple Watch Ultra 2](https://www.yahoo.com/tech/why-m-ditching-apple-watch-141524842.html)
 - Sep 25 - [Ford and GM tumble on reported China import crackdown](https://finance.yahoo.com/video/ford-gm-tumble-reported-china-140331613.html)
-- Sep 25 - [Reality TV star Julie Chrisley to be re-sentenced in bank fraud and tax evasion case](https://www.yahoo.com/news/reality-tv-star-julie-chrisley-123853221.html)
+- Sep 25 - [Police Descend on Jennifer Aniston's House in Overnight Swatting Incident](https://www.yahoo.com/entertainment/police-descend-jennifer-anistons-house-135919794.html)
+- Sep 25 - [10 Unreliable SUVs To Stay Away From Buying](https://finance.yahoo.com/news/10-unreliable-suvs-stay-away-190119144.html)
+- Sep 25 - [Unknown smell in Southwest Washington sparks concern amongst residents](https://www.yahoo.com/news/unknown-smell-southwest-washington-sparks-125401523.html)
 - Sep 25 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-122909403.html)
-- Sep 25 - [Kremlin says Zelenskiy is making "fatal mistake" by trying to force it to make peace](https://www.yahoo.com/news/kremlin-says-zelenskiy-making-fatal-094732133.html)
 <!-- feed end -->
 
 ### Onstream
