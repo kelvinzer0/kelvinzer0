@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Ford and GM tumble on reported China import crackdown](https://finance.yahoo.com/video/ford-gm-tumble-reported-china-140331613.html)
+- Sep 25 - [Watch: Rescued mountain lion cub snuggles with 'perfect plushy'](https://www.yahoo.com/lifestyle/watch-rescued-mountain-lion-cub-162803141.html)
+- Sep 25 - [People living at Owego encampment are being relocated for an 'imminent health threat'](https://www.yahoo.com/news/people-living-owego-encampment-being-160710346.html)
+- Sep 25 - [Lauren Boebert attacks Democrats on House floor claiming they ‘hate Christmas’](https://www.yahoo.com/news/lauren-boebert-attacks-democrats-house-152345361.html)
 - Sep 25 - [Police Descend on Jennifer Aniston's House in Overnight Swatting Incident](https://www.yahoo.com/entertainment/police-descend-jennifer-anistons-house-135919794.html)
-- Sep 25 - [10 Unreliable SUVs To Stay Away From Buying](https://finance.yahoo.com/news/10-unreliable-suvs-stay-away-190119144.html)
-- Sep 25 - [Unknown smell in Southwest Washington sparks concern amongst residents](https://www.yahoo.com/news/unknown-smell-southwest-washington-sparks-125401523.html)
-- Sep 25 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-122909403.html)
+- Sep 25 - [Georgia universities appear on U.S. News list of best universities. Where UGA, GT rank](https://www.yahoo.com/news/georgia-universities-appear-u-news-131032086.html)
 <!-- feed end -->
 
 ### Onstream
