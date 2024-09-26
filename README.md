@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Is ‘botanical sexism’ the reason why your allergies are worse this year?](https://www.yahoo.com/news/botanical-sexism-reason-why-allergies-183733097.html)
+- Sep 26 - [Watch Hurricane Helene’s effects across Hilton Head Island with these live webcams](https://www.yahoo.com/news/watch-hurricane-helene-effects-across-180110223.html)
 - Sep 26 - [Blow to China’s military plans after new nuclear submarine ‘sinks’](https://www.yahoo.com/news/china-nuclear-submarine-sinks-blow-174815168.html)
 - Sep 26 - [Norway issues wanted notice for man connected to exploding pagers in Lebanon](https://www.yahoo.com/news/norway-issues-wanted-notice-man-171716174.html)
-- Sep 26 - [UFC reaches $375 million settlement on one class-action lawsuit, another one remains pending](https://finance.yahoo.com/news/ufc-reaches-375-million-settlement-155746439.html)
 - Sep 26 - [US Justice Department probes Super Micro Computer, WSJ reports](https://www.yahoo.com/tech/us-justice-department-probes-super-150035011.html)
-- Sep 26 - [Beaver Moves Into Family's Creek and Brings Entire Ecosystem to Canadian Backyard](https://www.yahoo.com/lifestyle/beaver-moves-familys-creek-brings-144814611.html)
 <!-- feed end -->
 
 ### Onstream
