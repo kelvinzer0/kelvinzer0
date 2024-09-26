@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [A new mystery firm enters Trump's orbit, rekindling criticism of his presidential campaign spending](https://www.yahoo.com/news/mystery-firm-enters-trumps-orbit-040600767.html)
-- Sep 26 - [Cruz gets heated after Booker blocks deepfake revenge porn bill](https://www.yahoo.com/news/cruz-gets-heated-booker-blocks-020910517.html)
-- Sep 26 - [Utah Supreme Court crushes constitutional amendment deemed 'counterfactual' by lower court](https://www.yahoo.com/news/utah-supreme-court-decide-viability-000238197.html)
-- Sep 25 - [Scientists discovered a unique line of Neanderthals and it's helping solve the mystery of humanity's last great extinction](https://www.yahoo.com/news/scientists-discovered-unique-line-neanderthals-224124729.html)
-- Sep 25 - [A boomer says he's struggling to survive on Social Security after retiring early to care full time for his wife](https://finance.yahoo.com/news/boomer-said-hes-struggling-survive-215706200.html)
+- Sep 26 - [Britain targets Russian LNG sector with fresh shipping sanctions](https://www.yahoo.com/news/britain-announces-fresh-russia-sanctions-101927308.html)
+- Sep 26 - [Here are the 4 levels of wealth for American retirees — how do you compare?](https://finance.yahoo.com/news/4-levels-wealth-american-retirees-101700679.html)
+- Sep 26 - [Nvidia Is Back in the $3 Trillion Club. What Comes Next for the Stock.](https://www.barrons.com/articles/nvidia-stock-chips-ai-demand-24d3564f?siteid=yhoof2&yptr=yahoo)
+- Sep 26 - [I was in a Hezbollah tunnel – this is what awaits Israel](https://www.yahoo.com/news/hezbollah-tunnel-awaits-israel-091859012.html)
+- Sep 26 - [Israel rejects U.S.-backed Lebanon ceasefire proposal](https://www.yahoo.com/news/lebanese-prime-minister-believes-ceasefire-063437452.html)
 <!-- feed end -->
 
 ### Onstream
