@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Britain targets Russian LNG sector with fresh shipping sanctions](https://www.yahoo.com/news/britain-announces-fresh-russia-sanctions-101927308.html)
+- Sep 26 - [What is a ‘liquid BBL’ and why is the procedure dangerous?](https://www.yahoo.com/lifestyle/liquid-bbl-brazilian-butt-lift-dangerous-112918705.html)
 - Sep 26 - [Here are the 4 levels of wealth for American retirees — how do you compare?](https://finance.yahoo.com/news/4-levels-wealth-american-retirees-101700679.html)
-- Sep 26 - [Nvidia Is Back in the $3 Trillion Club. What Comes Next for the Stock.](https://www.barrons.com/articles/nvidia-stock-chips-ai-demand-24d3564f?siteid=yhoof2&yptr=yahoo)
+- Sep 26 - [2 Super Cybersecurity Stocks to Buy Hand Over Fist as 2025 Approaches](https://finance.yahoo.com/news/2-super-cybersecurity-stocks-buy-093100656.html)
+- Sep 26 - [Russian missiles and drones target Kyiv for 5 hours and hit Ukraine's power grid](https://www.yahoo.com/news/russian-missiles-drones-target-kyiv-092135904.html)
 - Sep 26 - [I was in a Hezbollah tunnel – this is what awaits Israel](https://www.yahoo.com/news/hezbollah-tunnel-awaits-israel-091859012.html)
-- Sep 26 - [Israel rejects U.S.-backed Lebanon ceasefire proposal](https://www.yahoo.com/news/lebanese-prime-minister-believes-ceasefire-063437452.html)
 <!-- feed end -->
 
 ### Onstream
