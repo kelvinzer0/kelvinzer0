@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Vulnerable nations vow to not 'go silently to our watery graves' at United Nations General Assembly](https://www.yahoo.com/news/vulnerable-nations-vow-not-silently-193608883.html)
 - Sep 26 - [Mom ejected from Disneyland in viral video is a habitual gate crasher, Anaheim police say](https://www.yahoo.com/news/mom-ejected-disneyland-viral-video-183305699.html)
+- Sep 26 - [Detroit judge who put teen in handcuffs during field trip is demoted to speeding tickets](https://www.yahoo.com/news/detroit-judge-put-teen-handcuffs-181420017.html)
+- Sep 26 - [Southern California school mourns 2nd student death in two weeks](https://www.yahoo.com/news/southern-california-school-mourns-2nd-180951595.html)
 - Sep 26 - [Blow to China’s military plans after new nuclear submarine ‘sinks’](https://www.yahoo.com/news/china-nuclear-submarine-sinks-blow-174815168.html)
-- Sep 26 - [Norway issues wanted notice for man connected to exploding pagers in Lebanon](https://www.yahoo.com/news/norway-issues-wanted-notice-man-171716174.html)
-- Sep 26 - [7 Levels Of Wealth: What Stage Are You At In 2024 According To Grant Sabatier?](https://finance.yahoo.com/news/7-levels-wealth-stage-2024-171546067.html)
-- Sep 26 - [Mars' Surface Appears to Be Covered in Potential Rocket Fuel, MIT Finds](https://www.yahoo.com/news/mars-surface-appears-covered-potential-163700448.html)
 <!-- feed end -->
 
 ### Onstream
