@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Cruz gets heated after Booker blocks deepfake revenge porn bill](https://www.yahoo.com/news/cruz-gets-heated-booker-blocks-020910517.html)
 - Sep 26 - [Driver crashes into famous artwork at Boise’s Grove Hotel. Here’s what happened, damage](https://www.yahoo.com/news/driver-crashes-famous-artwork-boise-003429974.html)
+- Sep 26 - [Nvidia supplier SK Hynix's shares rally as mass production of latest HBM chips begins](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-001817249.html)
 - Sep 25 - [Scientists discovered a unique line of Neanderthals and it's helping solve the mystery of humanity's last great extinction](https://www.yahoo.com/news/scientists-discovered-unique-line-neanderthals-224124729.html)
-- Sep 25 - [Sheriff's Deputy Spots Missing 4-Year-Old on Side of Road](https://www.yahoo.com/news/sheriffs-deputy-spots-missing-4-215703408.html)
-- Sep 25 - [Hurricane Helene projections lead to school closings in Savannah and Chatham County](https://www.yahoo.com/news/hurricane-helene-projections-lead-school-210701100.html)
-- Sep 25 - [Sean "Diddy" Combs' Lawyer Explains Rapper's 1,000 Bottles of Baby Oil](https://www.yahoo.com/news/sean-diddy-combs-lawyer-explains-210057664.html)
+- Sep 25 - [Speaker Johnson demands Zelenskyy remove Ukraine's ambassador to US after Pennsylvania visit](https://www.yahoo.com/news/speaker-johnson-demands-zelenskyy-remove-205227555.html)
 <!-- feed end -->
 
 ### Onstream
