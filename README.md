@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Displaced families from southern Lebanon seek refuge in Beirut](https://www.yahoo.com/news/displaced-families-southern-lebanon-seek-164747995.html)
+- Sep 26 - [Norway issues international search request for person linked to exploding pagers](https://www.yahoo.com/news/norway-issues-international-search-request-150119963.html)
+- Sep 26 - [Beaver Moves Into Family's Creek and Brings Entire Ecosystem to Canadian Backyard](https://www.yahoo.com/lifestyle/beaver-moves-familys-creek-brings-144814611.html)
 - Sep 26 - [A Man Found a Skeleton While Renovating His Basement. It Wasn’t Alone.](https://www.yahoo.com/news/man-found-skeleton-while-renovating-140000235.html)
-- Sep 26 - [Something Wild Just Happened at the CERN Particle Accelerator](https://www.yahoo.com/news/something-wild-just-happened-cern-130555884.html)
-- Sep 26 - [Archaeologists Dug Up The Ruins Of A Castle—and Found Bronze Shields from 2,700 Years Ago](https://www.yahoo.com/news/archaeologists-dug-ruins-castle-found-120000665.html)
-- Sep 26 - [Are you making the best use of tax-sheltered savings accounts? Here are 5 accounts that could bolster your investment returns](https://finance.yahoo.com/news/making-best-tax-sheltered-savings-111700993.html)
-- Sep 26 - [What Is the Social Security ‘Break-Even’ Point? How Long You Need To Live To Make Waiting Worth It](https://finance.yahoo.com/news/social-security-break-even-point-110356430.html)
+- Sep 26 - [Climate change destroyed an Alaska village. Its residents are starting over in a new town](https://www.yahoo.com/news/climate-change-destroyed-alaska-village-133728537.html)
 <!-- feed end -->
 
 ### Onstream
