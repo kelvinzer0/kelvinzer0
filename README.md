@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Ukrainian soldiers recount delicate 'coexistence' in Russia's Kursk](https://www.yahoo.com/news/ukrainian-soldiers-recount-delicate-coexistence-055310435.html)
 - Sep 26 - [Cruz gets heated after Booker blocks deepfake revenge porn bill](https://www.yahoo.com/news/cruz-gets-heated-booker-blocks-020910517.html)
 - Sep 26 - [Driver crashes into famous artwork at Boise’s Grove Hotel. Here’s what happened, damage](https://www.yahoo.com/news/driver-crashes-famous-artwork-boise-003429974.html)
 - Sep 26 - [Nvidia supplier SK Hynix's shares rally as mass production of latest HBM chips begins](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-001817249.html)
 - Sep 25 - [Scientists discovered a unique line of Neanderthals and it's helping solve the mystery of humanity's last great extinction](https://www.yahoo.com/news/scientists-discovered-unique-line-neanderthals-224124729.html)
+- Sep 25 - [A boomer said he's struggling to survive on Social Security after retiring early to care full-time for his wife](https://finance.yahoo.com/news/boomer-said-hes-struggling-survive-215706200.html)
 <!-- feed end -->
 
 ### Onstream
