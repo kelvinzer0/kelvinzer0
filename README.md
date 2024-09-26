@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 26 - [Driver crashes into famous artwork at Boise’s Grove Hotel. Here’s what happened, damage](https://www.yahoo.com/news/driver-crashes-famous-artwork-boise-003429974.html)
-- Sep 26 - [Nvidia supplier SK Hynix's shares rally as mass production of latest HBM chips begins](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-001817249.html)
 - Sep 25 - [Scientists discovered a unique line of Neanderthals and it's helping solve the mystery of humanity's last great extinction](https://www.yahoo.com/news/scientists-discovered-unique-line-neanderthals-224124729.html)
+- Sep 25 - [Hurricane Helene projections lead to school closings in Savannah and Chatham County](https://www.yahoo.com/news/hurricane-helene-projections-lead-school-210701100.html)
 - Sep 25 - [Speaker Johnson demands Zelenskyy remove Ukraine's ambassador to US after Pennsylvania visit](https://www.yahoo.com/news/speaker-johnson-demands-zelenskyy-remove-205227555.html)
-- Sep 25 - [Trump says Ukraine is 'dead' and dismisses its defense against Russia's invasion](https://www.yahoo.com/news/trump-says-ukraine-dead-dismisses-202120804.html)
+- Sep 25 - [Macklemore addresses derogatory remark about America made at benefit concert](https://www.yahoo.com/news/macklemore-addresses-derogatory-remark-america-204208531.html)
 <!-- feed end -->
 
 ### Onstream
