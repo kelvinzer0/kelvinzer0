@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Three-truck crash closes eastbound lanes of NY Thruway in upstate NY](https://www.yahoo.com/news/three-truck-crash-closes-eastbound-112009297.html)
+- Sep 26 - [This Telecom Stock Just Declared a Massive Dividend Raise. Should You Buy?](https://finance.yahoo.com/news/telecom-stock-just-declared-massive-134500674.html)
+- Sep 26 - [Smoke seen rising in southern Lebanon near border with Israel](https://www.yahoo.com/news/smoke-seen-rising-southern-lebanon-134047539.html)
+- Sep 26 - [Archaeologists Dug Up The Ruins Of A Castle—and Found Bronze Shields from 2,700 Years Ago](https://www.yahoo.com/news/archaeologists-dug-ruins-castle-found-120000665.html)
+- Sep 26 - [Are you making the best use of tax-sheltered savings accounts? Here are 5 accounts that could bolster your investment returns](https://finance.yahoo.com/news/making-best-tax-sheltered-savings-111700993.html)
 - Sep 26 - [Here are the 4 levels of wealth for American retirees — how do you compare?](https://finance.yahoo.com/news/4-levels-wealth-american-retirees-101700679.html)
-- Sep 26 - [Effort to force vote on Social Security bill stirs unrest in House GOP](https://www.yahoo.com/news/effort-force-vote-social-security-100000788.html)
-- Sep 26 - [I was in a Hezbollah tunnel – this is what awaits Israel](https://www.yahoo.com/news/hezbollah-tunnel-awaits-israel-091859012.html)
-- Sep 26 - [Israel rejects US-backed Lebanon ceasefire proposal](https://www.yahoo.com/news/lebanese-prime-minister-believes-ceasefire-063437452.html)
 <!-- feed end -->
 
 ### Onstream
