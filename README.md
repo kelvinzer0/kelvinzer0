@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Hundreds of Lebanese are left scarred by Israeli bombardment](https://www.yahoo.com/news/hundreds-lebanese-left-scarred-israeli-222829956.html)
+- Sep 26 - [Sombre ceremony as remains of South African freedom fighters return home](https://www.yahoo.com/news/sombre-ceremony-remains-south-african-010855408.html)
+- Sep 25 - [Scientists discovered a unique line of Neanderthals and it's helping solve the mystery of humanity's last great extinction](https://www.yahoo.com/news/scientists-discovered-unique-line-neanderthals-224124729.html)
+- Sep 25 - [A boomer said he's struggling to survive on Social Security after retiring early to care full-time for his wife](https://finance.yahoo.com/news/boomer-said-hes-struggling-survive-215706200.html)
 - Sep 25 - [Speaker Johnson demands Zelenskyy remove Ukraine's ambassador to US after Pennsylvania visit](https://www.yahoo.com/news/speaker-johnson-demands-zelenskyy-remove-205227555.html)
-- Sep 25 - [The Curiosity Mars Rover's Wheel Looks Absolutely Wrecked](https://www.yahoo.com/news/curiosity-mars-rovers-wheel-looks-200732098.html)
-- Sep 25 - [Route 20 bridge in North East comes down in sudden rush on Wednesday](https://www.yahoo.com/news/route-20-bridge-north-east-194238523.html)
-- Sep 25 - [This Z06 Was Stuck At The Dealer For Months](https://autos.yahoo.com/z06-stuck-dealer-months-213010510.html)
+- Sep 25 - [Intel Strikes Back. It Has a Great Chip for the First Time In Years.](https://www.barrons.com/articles/intel-stock-price-lunar-lake-chip-a7846aa4?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
