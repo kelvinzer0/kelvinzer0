@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Pope Francis begins visits to Luxembourg and Belgium on a trip to a dwindling flock](https://www.yahoo.com/news/pope-francis-begins-visits-luxembourg-084439843.html)
+- Sep 26 - [A new mystery firm enters Trump's orbit, rekindling criticism of his presidential campaign spending](https://www.yahoo.com/news/mystery-firm-enters-trumps-orbit-040600767.html)
 - Sep 26 - [Cruz gets heated after Booker blocks deepfake revenge porn bill](https://www.yahoo.com/news/cruz-gets-heated-booker-blocks-020910517.html)
 - Sep 26 - [Driver crashes into famous artwork at Boise’s Grove Hotel. Here’s what happened, damage](https://www.yahoo.com/news/driver-crashes-famous-artwork-boise-003429974.html)
 - Sep 26 - [Nvidia supplier SK Hynix's shares rally as mass production of advanced HBM chips begins](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-001817249.html)
-- Sep 25 - [Scientists discovered a unique line of Neanderthals and it's helping solve the mystery of humanity's last great extinction](https://www.yahoo.com/news/scientists-discovered-unique-line-neanderthals-224124729.html)
-- Sep 25 - [Hurricane Helene projections lead to school closings in Savannah and Chatham County](https://www.yahoo.com/news/hurricane-helene-projections-lead-school-210701100.html)
 <!-- feed end -->
 
 ### Onstream
