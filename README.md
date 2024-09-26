@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Displaced families from southern Lebanon seek refuge in Beirut](https://www.yahoo.com/news/displaced-families-southern-lebanon-seek-164747995.html)
-- Sep 26 - [Norway issues international search request for person linked to exploding pagers](https://www.yahoo.com/news/norway-issues-international-search-request-150119963.html)
+- Sep 26 - [Blow to China’s military plans after new nuclear submarine ‘sinks’](https://www.yahoo.com/news/china-nuclear-submarine-sinks-blow-174815168.html)
+- Sep 26 - [Norway issues wanted notice for man connected to exploding pagers in Lebanon](https://www.yahoo.com/news/norway-issues-wanted-notice-man-171716174.html)
+- Sep 26 - [UFC reaches $375 million settlement on one class-action lawsuit, another one remains pending](https://finance.yahoo.com/news/ufc-reaches-375-million-settlement-155746439.html)
+- Sep 26 - [US Justice Department probes Super Micro Computer, WSJ reports](https://www.yahoo.com/tech/us-justice-department-probes-super-150035011.html)
 - Sep 26 - [Beaver Moves Into Family's Creek and Brings Entire Ecosystem to Canadian Backyard](https://www.yahoo.com/lifestyle/beaver-moves-familys-creek-brings-144814611.html)
-- Sep 26 - [A Man Found a Skeleton While Renovating His Basement. It Wasn’t Alone.](https://www.yahoo.com/news/man-found-skeleton-while-renovating-140000235.html)
-- Sep 26 - [Climate change destroyed an Alaska village. Its residents are starting over in a new town](https://www.yahoo.com/news/climate-change-destroyed-alaska-village-133728537.html)
 <!-- feed end -->
 
 ### Onstream
