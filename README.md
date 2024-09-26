@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Sombre ceremony as remains of South African freedom fighters return home](https://www.yahoo.com/news/sombre-ceremony-remains-south-african-010855408.html)
+- Sep 26 - [Driver crashes into famous artwork at Boise’s Grove Hotel. Here’s what happened, damage](https://www.yahoo.com/news/driver-crashes-famous-artwork-boise-003429974.html)
+- Sep 26 - [Nvidia supplier SK Hynix's shares rally as mass production of latest HBM chips begins](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-001817249.html)
 - Sep 25 - [Scientists discovered a unique line of Neanderthals and it's helping solve the mystery of humanity's last great extinction](https://www.yahoo.com/news/scientists-discovered-unique-line-neanderthals-224124729.html)
-- Sep 25 - [A boomer said he's struggling to survive on Social Security after retiring early to care full-time for his wife](https://finance.yahoo.com/news/boomer-said-hes-struggling-survive-215706200.html)
 - Sep 25 - [Speaker Johnson demands Zelenskyy remove Ukraine's ambassador to US after Pennsylvania visit](https://www.yahoo.com/news/speaker-johnson-demands-zelenskyy-remove-205227555.html)
-- Sep 25 - [Intel Strikes Back. It Has a Great Chip for the First Time In Years.](https://www.barrons.com/articles/intel-stock-price-lunar-lake-chip-a7846aa4?siteid=yhoof2&yptr=yahoo)
+- Sep 25 - [Trump says Ukraine is 'dead' and dismisses its defense against Russia's invasion](https://www.yahoo.com/news/trump-says-ukraine-dead-dismisses-202120804.html)
 <!-- feed end -->
 
 ### Onstream
