@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [What is a ‘liquid BBL’ and why is the procedure dangerous?](https://www.yahoo.com/lifestyle/liquid-bbl-brazilian-butt-lift-dangerous-112918705.html)
+- Sep 26 - [Three-truck crash closes eastbound lanes of NY Thruway in upstate NY](https://www.yahoo.com/news/three-truck-crash-closes-eastbound-112009297.html)
 - Sep 26 - [Here are the 4 levels of wealth for American retirees — how do you compare?](https://finance.yahoo.com/news/4-levels-wealth-american-retirees-101700679.html)
-- Sep 26 - [2 Super Cybersecurity Stocks to Buy Hand Over Fist as 2025 Approaches](https://finance.yahoo.com/news/2-super-cybersecurity-stocks-buy-093100656.html)
-- Sep 26 - [Russian missiles and drones target Kyiv for 5 hours and hit Ukraine's power grid](https://www.yahoo.com/news/russian-missiles-drones-target-kyiv-092135904.html)
+- Sep 26 - [Effort to force vote on Social Security bill stirs unrest in House GOP](https://www.yahoo.com/news/effort-force-vote-social-security-100000788.html)
 - Sep 26 - [I was in a Hezbollah tunnel – this is what awaits Israel](https://www.yahoo.com/news/hezbollah-tunnel-awaits-israel-091859012.html)
+- Sep 26 - [Israel rejects US-backed Lebanon ceasefire proposal](https://www.yahoo.com/news/lebanese-prime-minister-believes-ceasefire-063437452.html)
 <!-- feed end -->
 
 ### Onstream
