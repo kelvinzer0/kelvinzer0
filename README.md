@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Prediction: This Unstoppable Stock Could Join the Trillion-Dollar Club in the Next 5 Years](https://finance.yahoo.com/news/prediction-unstoppable-stock-could-join-110000295.html)
 - Sep 27 - [Hungarian PM Orban's aide sparks outrage with Soviet invasion comment](https://www.yahoo.com/news/hungarian-pm-orbans-aide-sparks-083729012.html)
-- Sep 27 - [China's coast guard says Philippine vessel took supplies to Second Thomas Shoal](https://www.yahoo.com/news/chinas-coast-guard-says-philippine-081045072.html)
+- Sep 27 - [As the Ukraine war enters a critical period, the EU moves ahead without the US](https://www.yahoo.com/news/ukraine-war-enters-critical-period-061732652.html)
+- Sep 27 - [Neighbors share concern after police say homeowner shoots intruder in southwest Las Vegas](https://www.yahoo.com/news/neighbors-share-concern-police-homeowner-053748319.html)
 - Sep 27 - [Woman accused of running a high-end brothel network to plead guilty](https://www.yahoo.com/news/woman-accused-running-high-end-041234440.html)
-- Sep 27 - [Outdated fleet and seats, supply woes hobble Air India's turnaround](https://finance.yahoo.com/news/outdated-fleet-seats-supply-woes-013318168.html)
-- Sep 26 - [Massive civil fraud verdict against Trump gets frosty reception at New York appeals court](https://www.yahoo.com/news/massive-civil-fraud-verdict-against-224222626.html)
 <!-- feed end -->
 
 ### Onstream
