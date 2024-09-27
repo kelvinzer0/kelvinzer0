@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Helene leaves behind 'overwhelming' destruction in one small Florida town](https://www.yahoo.com/news/helene-leaves-behind-overwhelming-destruction-191732057.html)
-- Sep 27 - [Climate activists throw soup at Van Gogh’s Sunflowers again at London gallery](https://www.yahoo.com/news/climate-activists-throw-soup-van-183957556.html)
-- Sep 27 - [Cocke County, Newport evacuations ordered after 'catastrophic' Tennessee dam failure](https://www.yahoo.com/news/cocke-county-newport-evacuations-ordered-183700789.html)
+- Sep 27 - ['Gold should have a place in people's portfolio,' advisor says](https://finance.yahoo.com/video/gold-place-peoples-portfolio-advisor-201622422.html)
 - Sep 27 - [Trump says he will seek Google's prosecution if he wins election](https://finance.yahoo.com/news/trump-says-seek-googles-prosecution-180313675.html)
 - Sep 27 - [Why JPMorgan Chase is prepared to sue the U.S. government over Zelle scams](https://finance.yahoo.com/news/why-jpmorgan-chase-prepared-sue-175249932.html)
+- Sep 27 - [JCPS Superintendent Marty Pollio announces retirement](https://www.yahoo.com/news/jcps-superintendent-marty-pollio-announces-174440473.html)
+- Sep 27 - [Irish farmer finds near 60-pound slab of ancient bog butter on his land by ‘pure luck’](https://www.yahoo.com/lifestyle/irish-farmer-finds-near-60-170903407.html)
 <!-- feed end -->
 
 ### Onstream
