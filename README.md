@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Locals in Greater Manchester town horrified when river starts foaming](https://www.yahoo.com/news/locals-greater-manchester-town-horrified-062406992.html)
-- Sep 27 - [Meet mini ponies touring hospitals and schools to give therapeutic cuddles](https://www.yahoo.com/news/meet-mini-ponies-touring-hospitals-061836218.html)
+- Sep 27 - [Locals in Greater Manchester town horrified when river starts foaming](https://www.yahoo.com/news/locals-greater-manchester-town-horrified-072712567.html)
 - Sep 26 - [Massive civil fraud verdict against Trump gets frosty reception at New York appeals court](https://www.yahoo.com/news/massive-civil-fraud-verdict-against-224222626.html)
 - Sep 26 - [Former 'Apprentice' contestant sells 7.5M shares of Trump Media](https://finance.yahoo.com/video/former-apprentice-contestant-sells-7-221321510.html)
+- Sep 26 - [Trump launches a new business venture during his campaign: $100,000 watches](https://finance.yahoo.com/news/trump-launches-business-venture-during-204533414.html)
 - Sep 26 - [2 San Jose women suspected of running brothel](https://www.yahoo.com/news/2-san-jose-women-suspected-203710370.html)
 <!-- feed end -->
 
