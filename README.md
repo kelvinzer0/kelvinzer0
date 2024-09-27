@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - ['Gold should have a place in people's portfolio,' advisor says](https://finance.yahoo.com/video/gold-place-peoples-portfolio-advisor-201622422.html)
+- Sep 27 - [North Carolina dam suffers ‘catastrophic failure’ while second dam ‘compromised’ by Storm Helene deluges](https://www.yahoo.com/news/north-carolina-residents-told-evacuate-170532736.html)
+- Sep 27 - [Thousands brave the rain to see Pope Francis in Belgium's Leuven](https://www.yahoo.com/news/thousands-brave-rain-see-pope-213418279.html)
+- Sep 27 - [Boeing’s Union Rejects ‘Best and Final’ Offer. The Stock Rises Anyway.](https://www.barrons.com/articles/boeings-stock-price-strike-union-fb22c4fb?siteid=yhoof2&yptr=yahoo)
+- Sep 27 - [Climate activists throw soup at Van Gogh’s Sunflowers again at London gallery](https://www.yahoo.com/news/climate-activists-throw-soup-van-183957556.html)
 - Sep 27 - [Trump says he will seek Google's prosecution if he wins election](https://finance.yahoo.com/news/trump-says-seek-googles-prosecution-180313675.html)
-- Sep 27 - [Why JPMorgan Chase is prepared to sue the U.S. government over Zelle scams](https://finance.yahoo.com/news/why-jpmorgan-chase-prepared-sue-175249932.html)
-- Sep 27 - [JCPS Superintendent Marty Pollio announces retirement](https://www.yahoo.com/news/jcps-superintendent-marty-pollio-announces-174440473.html)
-- Sep 27 - [Irish farmer finds near 60-pound slab of ancient bog butter on his land by ‘pure luck’](https://www.yahoo.com/lifestyle/irish-farmer-finds-near-60-170903407.html)
 <!-- feed end -->
 
 ### Onstream
