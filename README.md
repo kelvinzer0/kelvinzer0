@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Indicted New York City mayor could appear before a judge Friday](https://www.yahoo.com/news/indicted-york-city-mayor-could-040335688.html)
-- Sep 27 - [Locals in Greater Manchester town horrified when river starts foaming](https://www.yahoo.com/news/locals-greater-manchester-town-horrified-040158996.html)
-- Sep 27 - [Intel rejects Arm's approach for product division, Bloomberg News reports](https://finance.yahoo.com/news/intel-rejects-arms-approach-product-032442278.html)
+- Sep 27 - [Meet mini ponies touring hospitals and schools to give therapeutic cuddles](https://www.yahoo.com/news/meet-mini-ponies-touring-hospitals-044125567.html)
+- Sep 27 - [Locals in Greater Manchester town horrified when river starts foaming](https://www.yahoo.com/news/locals-greater-manchester-town-horrified-042458075.html)
+- Sep 27 - [Alabama has executed Alan Eugene Miller, the second inmate known to die by nitrogen gas](https://www.yahoo.com/news/alabama-set-execute-second-inmate-094441069.html)
 - Sep 27 - [Outdated fleet and seats, supply woes hobble Air India's turnaround](https://finance.yahoo.com/news/outdated-fleet-seats-supply-woes-013318168.html)
 - Sep 26 - [Massive civil fraud verdict against Trump gets frosty reception at New York appeals court](https://www.yahoo.com/news/massive-civil-fraud-verdict-against-224222626.html)
 <!-- feed end -->
