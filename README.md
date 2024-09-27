@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [North Carolina dam suffers ‘catastrophic failure’ while second dam ‘compromised’ by Storm Helene deluges](https://www.yahoo.com/news/north-carolina-residents-told-evacuate-170532736.html)
-- Sep 27 - [Thousands brave the rain to see Pope Francis in Belgium's Leuven](https://www.yahoo.com/news/thousands-brave-rain-see-pope-213418279.html)
-- Sep 27 - [Boeing’s Union Rejects ‘Best and Final’ Offer. The Stock Rises Anyway.](https://www.barrons.com/articles/boeings-stock-price-strike-union-fb22c4fb?siteid=yhoof2&yptr=yahoo)
+- Sep 27 - [Van Goghs attacked again, hours after activists sentenced](https://www.yahoo.com/news/van-goghs-attacked-again-hours-221829899.html)
+- Sep 27 - [Former BYU track and field sprinter dies in mountain biking crash](https://www.yahoo.com/news/former-byu-track-field-sprinter-202923860.html)
 - Sep 27 - [Climate activists throw soup at Van Gogh’s Sunflowers again at London gallery](https://www.yahoo.com/news/climate-activists-throw-soup-van-183957556.html)
 - Sep 27 - [Trump says he will seek Google's prosecution if he wins election](https://finance.yahoo.com/news/trump-says-seek-googles-prosecution-180313675.html)
+- Sep 27 - [‘It’s gone’: In tiny Gulf Coast community, Helene wiped out homes and businesses](https://www.yahoo.com/news/gone-tiny-gulf-coast-community-175200599.html)
 <!-- feed end -->
 
 ### Onstream
