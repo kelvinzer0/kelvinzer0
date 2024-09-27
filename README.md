@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Boats Left 'Smashed Into Homes' on Florida Island in Wake of Hurricane Surge](https://www.yahoo.com/news/boats-left-smashed-homes-florida-123630482.html)
-- Sep 27 - [The products most Brits are too embarrassed to buy](https://www.yahoo.com/lifestyle/embarrassing-products-healthcare-sti-122650505.html)
-- Sep 27 - [Hurricane Helene did that to Florida? Look at what happened in these photos and videos](https://www.yahoo.com/news/hurricane-helene-did-florida-look-121112565.html)
-- Sep 27 - [SLO County supervisors deny neighbors’ appeal of planned Pismo Beach home. ‘It’s not over’](https://www.yahoo.com/news/slo-county-supervisors-deny-neighbors-120000164.html)
-- Sep 27 - [Hungarian PM Orban's aide sparks outrage with Soviet invasion comment](https://www.yahoo.com/news/hungarian-pm-orbans-aide-sparks-083729012.html)
+- Sep 27 - [Siemens sales growth likely to be below guidance, CFO tells paper](https://finance.yahoo.com/news/siemens-sales-growth-likely-below-135119507.html)
+- Sep 27 - [Flight disruption warning for British Airways passengers over air-traffic delays and engine issues](https://www.yahoo.com/news/flight-disruption-warning-british-airways-135111466.html)
+- Sep 27 - [Archaeologists Stumbled Upon a Message in a Bottle—from 200 Years Ago](https://www.yahoo.com/news/archaeologists-stumbled-upon-message-bottle-123000002.html)
+- Sep 27 - [2 Vanguard ETFs That Dividend Investors Can Buy and Hold Forever](https://finance.yahoo.com/news/2-vanguard-etfs-dividend-investors-092600314.html)
+- Sep 27 - [China's coast guard says Philippine vessel took supplies to Second Thomas Shoal](https://www.yahoo.com/news/chinas-coast-guard-says-philippine-081045072.html)
 <!-- feed end -->
 
 ### Onstream
