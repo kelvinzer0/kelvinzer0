@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Netanyahu, at UN, vows that Israel will keep 'degrading Hezbollah' until its objectives are met](https://www.yahoo.com/news/israels-netanyahu-un-says-came-135757156.html)
-- Sep 27 - [Couple caught performing sex act under coats on easyJet flight](https://www.yahoo.com/news/couple-caught-performing-sex-act-131421132.html)
-- Sep 27 - [Bosses at Tesla's German Gigafactory are reportedly knocking on some workers' doors when they're at home sick](https://autos.yahoo.com/bosses-teslas-german-gigafactory-reportedly-130825052.html)
+- Sep 27 - [Israel says it struck Hezbollah's headquarters as huge explosions rocked Beirut](https://www.yahoo.com/news/huge-explosion-rocks-southern-suburb-153421109.html)
+- Sep 27 - [Weather Reporter Saves Screaming Woman From Submerged Car After Cutting Away From Live ‘Fox & Friends’ Shot | Video](https://www.yahoo.com/news/weather-reporter-saves-screaming-woman-145040242.html)
+- Sep 27 - [History Says the S&P 500 Could Soar: 2 Monster Stocks to Buy, According to These Wall Street Analysts](https://finance.yahoo.com/news/history-says-p-500-could-121500179.html)
 - Sep 27 - [See homes float away in storm surge](https://www.yahoo.com/news/see-homes-float-away-storm-104818751.html)
 - Sep 27 - [Holocaust scholar to discuss his conclusion that Gaza campaign constitutes genocide](https://www.yahoo.com/news/holocaust-scholar-discuss-conclusion-gaza-091554811.html)
 <!-- feed end -->
