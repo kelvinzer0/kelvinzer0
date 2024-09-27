@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Black market sale of fake cigarettes is booming, study finds](https://www.yahoo.com/news/black-market-sale-fake-cigarettes-083051517.html)
-- Sep 27 - [Meet mini ponies touring hospitals and schools to give therapeutic cuddles](https://www.yahoo.com/news/meet-mini-ponies-touring-hospitals-082437008.html)
+- Sep 27 - [Hungarian PM Orban's aide sparks outrage with Soviet invasion comment](https://www.yahoo.com/news/hungarian-pm-orbans-aide-sparks-083729012.html)
+- Sep 27 - [China's coast guard says Philippine vessel took supplies to Second Thomas Shoal](https://www.yahoo.com/news/chinas-coast-guard-says-philippine-081045072.html)
 - Sep 27 - [Woman accused of running a high-end brothel network to plead guilty](https://www.yahoo.com/news/woman-accused-running-high-end-041234440.html)
 - Sep 27 - [Outdated fleet and seats, supply woes hobble Air India's turnaround](https://finance.yahoo.com/news/outdated-fleet-seats-supply-woes-013318168.html)
 - Sep 26 - [Massive civil fraud verdict against Trump gets frosty reception at New York appeals court](https://www.yahoo.com/news/massive-civil-fraud-verdict-against-224222626.html)
