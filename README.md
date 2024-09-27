@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 26 - [Former 'Apprentice' contestant sells 7.5M shares of Trump Media](https://finance.yahoo.com/video/former-apprentice-contestant-sells-7-221321510.html)
-- Sep 26 - [Trump launches a new business venture during his campaign: $100,000 watches](https://finance.yahoo.com/news/trump-launches-business-venture-during-204533414.html)
-- Sep 26 - [Police say woman with 2 children arrested at Disneyland after not paying for tickets is a repeat offender](https://www.yahoo.com/news/police-woman-2-children-arrested-193930224.html)
+- Sep 26 - [2 San Jose women suspected of running brothel](https://www.yahoo.com/news/2-san-jose-women-suspected-203710370.html)
 - Sep 26 - [$300M super yacht spotted in San Diego Bay: Who does it belong to?](https://www.yahoo.com/entertainment/300m-super-yacht-spotted-san-192235233.html)
+- Sep 26 - [Dollar Tree Is Dropping a Major Change That Will Impact the Way You Shop](https://finance.yahoo.com/news/dollar-tree-dropping-major-change-184500615.html)
 - Sep 26 - [Detroit judge who put teen in handcuffs during field trip is demoted to speeding tickets](https://www.yahoo.com/news/detroit-judge-put-teen-handcuffs-181420017.html)
 <!-- feed end -->
 
