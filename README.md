@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Beirut soup kitchen packs meals for those displaced by war](https://www.yahoo.com/news/beirut-soup-kitchen-packs-meals-123401902.html)
-- Sep 27 - [Georgian ruling party's Ukraine war election ad enrages opposition](https://www.yahoo.com/news/georgian-ruling-partys-ukraine-war-121757030.html)
+- Sep 27 - [Boats Left 'Smashed Into Homes' on Florida Island in Wake of Hurricane Surge](https://www.yahoo.com/news/boats-left-smashed-homes-florida-123630482.html)
+- Sep 27 - [The products most Brits are too embarrassed to buy](https://www.yahoo.com/lifestyle/embarrassing-products-healthcare-sti-122650505.html)
 - Sep 27 - [Hurricane Helene did that to Florida? Look at what happened in these photos and videos](https://www.yahoo.com/news/hurricane-helene-did-florida-look-121112565.html)
+- Sep 27 - [SLO County supervisors deny neighbors’ appeal of planned Pismo Beach home. ‘It’s not over’](https://www.yahoo.com/news/slo-county-supervisors-deny-neighbors-120000164.html)
 - Sep 27 - [Hungarian PM Orban's aide sparks outrage with Soviet invasion comment](https://www.yahoo.com/news/hungarian-pm-orbans-aide-sparks-083729012.html)
-- Sep 27 - [As the Ukraine war enters a critical period, the EU moves ahead without the US](https://www.yahoo.com/news/ukraine-war-enters-critical-period-061732652.html)
 <!-- feed end -->
 
 ### Onstream
