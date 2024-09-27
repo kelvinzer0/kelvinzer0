@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Israel says it struck Hezbollah's headquarters as huge explosions rocked Beirut](https://www.yahoo.com/news/huge-explosion-rocks-southern-suburb-153421109.html)
+- Sep 27 - [Doctors must stop believing ME is a mental illness, bereaved father says](https://www.yahoo.com/news/doctors-must-stop-believing-mental-153928458.html)
+- Sep 27 - [Israel says it struck Hezbollah's headquarters in huge explosion that shakes Lebanese capital](https://www.yahoo.com/news/huge-explosion-rocks-southern-suburb-153421109.html)
+- Sep 27 - ['Jailbreak: Love on the Run' looks at Casey White, a man who escaped prison with a corrections officer. Here's where he is now.](https://www.yahoo.com/entertainment/jailbreak-love-run-looks-casey-152726895.html)
 - Sep 27 - [Weather Reporter Saves Screaming Woman From Submerged Car After Cutting Away From Live ‘Fox & Friends’ Shot | Video](https://www.yahoo.com/news/weather-reporter-saves-screaming-woman-145040242.html)
-- Sep 27 - [History Says the S&P 500 Could Soar: 2 Monster Stocks to Buy, According to These Wall Street Analysts](https://finance.yahoo.com/news/history-says-p-500-could-121500179.html)
-- Sep 27 - [See homes float away in storm surge](https://www.yahoo.com/news/see-homes-float-away-storm-104818751.html)
-- Sep 27 - [Holocaust scholar to discuss his conclusion that Gaza campaign constitutes genocide](https://www.yahoo.com/news/holocaust-scholar-discuss-conclusion-gaza-091554811.html)
+- Sep 27 - [A billionaire's son and his graffiti-scarred mansions roiling Hollywood Hills](https://www.yahoo.com/news/billionaires-son-graffiti-scarred-mansions-135632953.html)
 <!-- feed end -->
 
 ### Onstream
