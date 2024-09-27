@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Map shows 19 states affected by listeria outbreak tied to Boar's Head deli meat](https://www.yahoo.com/news/map-shows-19-states-affected-164040793.html)
+- Sep 27 - [Two more systems named in the Atlantic](https://www.yahoo.com/news/two-more-systems-named-atlantic-154214115.html)
 - Sep 27 - [Doctors must stop believing ME is a mental illness, bereaved father says](https://www.yahoo.com/news/doctors-must-stop-believing-mental-153928458.html)
-- Sep 27 - [Israel says it struck Hezbollah's headquarters in huge explosion that shakes Lebanese capital](https://www.yahoo.com/news/huge-explosion-rocks-southern-suburb-153421109.html)
-- Sep 27 - ['Jailbreak: Love on the Run' looks at Casey White, a man who escaped prison with a corrections officer. Here's where he is now.](https://www.yahoo.com/entertainment/jailbreak-love-run-looks-casey-152726895.html)
-- Sep 27 - [Weather Reporter Saves Screaming Woman From Submerged Car After Cutting Away From Live ‘Fox & Friends’ Shot | Video](https://www.yahoo.com/news/weather-reporter-saves-screaming-woman-145040242.html)
-- Sep 27 - [A billionaire's son and his graffiti-scarred mansions roiling Hollywood Hills](https://www.yahoo.com/news/billionaires-son-graffiti-scarred-mansions-135632953.html)
+- Sep 27 - [Israel says it struck Hezbollah's headquarters in huge explosion that killed at least 2 people](https://www.yahoo.com/news/huge-explosion-rocks-southern-suburb-153421109.html)
+- Sep 27 - [Clock is ticking for US recession, return of Fed's QE, says black swan fund](https://finance.yahoo.com/news/clock-ticking-us-recession-return-152927787.html)
 <!-- feed end -->
 
 ### Onstream
