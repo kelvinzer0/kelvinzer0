@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Prediction: This Unstoppable Stock Could Join the Trillion-Dollar Club in the Next 5 Years](https://finance.yahoo.com/news/prediction-unstoppable-stock-could-join-110000295.html)
+- Sep 27 - [Beirut soup kitchen packs meals for those displaced by war](https://www.yahoo.com/news/beirut-soup-kitchen-packs-meals-123401902.html)
+- Sep 27 - [Georgian ruling party's Ukraine war election ad enrages opposition](https://www.yahoo.com/news/georgian-ruling-partys-ukraine-war-121757030.html)
+- Sep 27 - [Hurricane Helene did that to Florida? Look at what happened in these photos and videos](https://www.yahoo.com/news/hurricane-helene-did-florida-look-121112565.html)
 - Sep 27 - [Hungarian PM Orban's aide sparks outrage with Soviet invasion comment](https://www.yahoo.com/news/hungarian-pm-orbans-aide-sparks-083729012.html)
 - Sep 27 - [As the Ukraine war enters a critical period, the EU moves ahead without the US](https://www.yahoo.com/news/ukraine-war-enters-critical-period-061732652.html)
-- Sep 27 - [Neighbors share concern after police say homeowner shoots intruder in southwest Las Vegas](https://www.yahoo.com/news/neighbors-share-concern-police-homeowner-053748319.html)
-- Sep 27 - [Woman accused of running a high-end brothel network to plead guilty](https://www.yahoo.com/news/woman-accused-running-high-end-041234440.html)
 <!-- feed end -->
 
 ### Onstream
