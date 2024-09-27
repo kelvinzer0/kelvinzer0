@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Helene leaves behind 'overwhelming' destruction in one small Florida town](https://www.yahoo.com/news/helene-leaves-behind-overwhelming-destruction-191732057.html)
+- Sep 27 - [Climate activists throw soup at Van Gogh’s Sunflowers again at London gallery](https://www.yahoo.com/news/climate-activists-throw-soup-van-183957556.html)
+- Sep 27 - [Cocke County, Newport evacuations ordered after 'catastrophic' Tennessee dam failure](https://www.yahoo.com/news/cocke-county-newport-evacuations-ordered-183700789.html)
+- Sep 27 - [Trump says he will seek Google's prosecution if he wins election](https://finance.yahoo.com/news/trump-says-seek-googles-prosecution-180313675.html)
 - Sep 27 - [Why JPMorgan Chase is prepared to sue the U.S. government over Zelle scams](https://finance.yahoo.com/news/why-jpmorgan-chase-prepared-sue-175249932.html)
-- Sep 27 - [Consumer sentiment, Meta's AI growth, bitcoin surge: Catalysts](https://finance.yahoo.com/video/consumer-sentiment-metas-ai-growth-175205365.html)
-- Sep 27 - [Two more systems named in the Atlantic](https://www.yahoo.com/news/two-more-systems-named-atlantic-154214115.html)
-- Sep 27 - [Doctors must stop believing ME is a mental illness, bereaved father says](https://www.yahoo.com/news/doctors-must-stop-believing-mental-153928458.html)
-- Sep 27 - [Clock is ticking for US recession, return of Fed's QE, says black swan fund](https://finance.yahoo.com/news/clock-ticking-us-recession-return-152927787.html)
 <!-- feed end -->
 
 ### Onstream
