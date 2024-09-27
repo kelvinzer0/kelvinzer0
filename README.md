@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Alabama has executed Alan Eugene Miller, the second inmate known to die by nitrogen gas](https://www.yahoo.com/news/alabama-set-execute-second-inmate-094441069.html)
+- Sep 26 - [Israel says it intercepted Yemeni missile](https://www.yahoo.com/news/israel-says-intercepted-yemeni-missile-231136417.html)
+- Sep 26 - [Massive civil fraud verdict against Trump gets frosty reception at New York appeals court](https://www.yahoo.com/news/massive-civil-fraud-verdict-against-224222626.html)
 - Sep 26 - [Former 'Apprentice' contestant sells 7.5M shares of Trump Media](https://finance.yahoo.com/video/former-apprentice-contestant-sells-7-221321510.html)
 - Sep 26 - [2 San Jose women suspected of running brothel](https://www.yahoo.com/news/2-san-jose-women-suspected-203710370.html)
-- Sep 26 - [$300M super yacht spotted in San Diego Bay: Who does it belong to?](https://www.yahoo.com/entertainment/300m-super-yacht-spotted-san-192235233.html)
-- Sep 26 - [Dollar Tree Is Dropping a Major Change That Will Impact the Way You Shop](https://finance.yahoo.com/news/dollar-tree-dropping-major-change-184500615.html)
-- Sep 26 - [Detroit judge who put teen in handcuffs during field trip is demoted to speeding tickets](https://www.yahoo.com/news/detroit-judge-put-teen-handcuffs-181420017.html)
 <!-- feed end -->
 
 ### Onstream
