@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Brazil judge says will lift Musk's X ban if $1.8 mn fine paid](https://www.yahoo.com/news/brazil-judge-says-lift-musks-021037618.html)
+- Sep 28 - [Netanyahu left Israel to ‘trick’ Hezbollah leader](https://www.yahoo.com/news/netanyahu-left-israel-trick-hezbollah-014901896.html)
 - Sep 28 - [Mexican authorities uncover 24 drug cartel surveillance cameras in city on the border with Arizona](https://www.yahoo.com/news/mexican-authorities-uncover-24-drug-010513896.html)
-- Sep 27 - [More than 600 violent fugitives arrested in East St. Louis during U.S. Marshals sweep](https://www.yahoo.com/news/more-600-violent-fugitives-arrested-224232958.html)
-- Sep 27 - [Former BYU track and field sprinter dies in mountain biking crash](https://www.yahoo.com/news/former-byu-track-field-sprinter-202923860.html)
-- Sep 27 - [Court revives lawsuit of Black pastor who was arrested while watering his neighbor's flowers](https://www.yahoo.com/news/court-revives-lawsuit-black-pastor-201336849.html)
+- Sep 27 - [Van Goghs attacked again, hours after activists sentenced](https://www.yahoo.com/news/van-goghs-attacked-again-hours-221829899.html)
+- Sep 27 - [Southern California neighborhood considered one of the ‘coolest’ in the world](https://www.yahoo.com/lifestyle/southern-california-neighborhood-considered-one-200528746.html)
+- Sep 27 - [Trump says he will seek Google's prosecution if he wins election](https://finance.yahoo.com/news/trump-says-seek-googles-prosecution-180313675.html)
 <!-- feed end -->
 
 ### Onstream
