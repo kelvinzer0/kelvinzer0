@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Pelican's Perch Marina plans to kick off its 75th anniversary with major renovation](https://www.yahoo.com/news/pelicans-perch-marina-plans-kick-090304514.html)
+- Sep 28 - [Father trapped in jail 18 years after being given 8-month sentence - for waving a starting pistol](https://www.yahoo.com/news/father-trapped-jail-18-years-103032232.html)
+- Sep 28 - [Warren Buffett's $9 Billion Warning to Wall Street Has Become Deafening](https://finance.yahoo.com/news/warren-buffetts-9-billion-warning-090600106.html)
 - Sep 28 - [Hezbollah leader Hassan Nasrallah was killed in Beirut strike, Israel's military says](https://www.yahoo.com/news/israels-military-mobilizes-additional-soldiers-071708590.html)
 - Sep 28 - [NC Lt. Gov. Mark Robinson hospitalized with second-degree burns following incident at campaign event](https://www.yahoo.com/news/nc-lt-gov-mark-robinson-032916267.html)
 - Sep 28 - [Boeing wage talks break off without progress to end strike, union says](https://finance.yahoo.com/news/boeing-wage-talks-break-off-042418456.html)
-- Sep 28 - [Mexican authorities uncover 24 drug cartel surveillance cameras in city on the border with Arizona](https://www.yahoo.com/news/mexican-authorities-uncover-24-drug-010513896.html)
 <!-- feed end -->
 
 ### Onstream
