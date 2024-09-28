@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Netanyahu left Israel to ‘trick’ Hezbollah leader](https://www.yahoo.com/news/netanyahu-left-israel-trick-hezbollah-014901896.html)
 - Sep 28 - [Mexican authorities uncover 24 drug cartel surveillance cameras in city on the border with Arizona](https://www.yahoo.com/news/mexican-authorities-uncover-24-drug-010513896.html)
-- Sep 27 - [Van Goghs attacked again, hours after activists sentenced](https://www.yahoo.com/news/van-goghs-attacked-again-hours-221829899.html)
+- Sep 27 - [Caught on Camera: Pet Goats Stolen From California Home](https://www.yahoo.com/news/caught-camera-pet-goats-stolen-215400818.html)
+- Sep 27 - [Former BYU track and field sprinter dies in mountain biking crash](https://www.yahoo.com/news/former-byu-track-field-sprinter-202923860.html)
 - Sep 27 - [Southern California neighborhood considered one of the ‘coolest’ in the world](https://www.yahoo.com/lifestyle/southern-california-neighborhood-considered-one-200528746.html)
-- Sep 27 - [Trump says he will seek Google's prosecution if he wins election](https://finance.yahoo.com/news/trump-says-seek-googles-prosecution-180313675.html)
+- Sep 27 - [Missing Vietnam War Veteran's Remains Found After More Than 50 Years](https://www.yahoo.com/news/missing-vietnam-war-veterans-remains-181617627.html)
 <!-- feed end -->
 
 ### Onstream
