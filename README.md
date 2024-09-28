@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Primanti Brothers says Vice President Nominee JD Vance was not turned away for visit](https://www.yahoo.com/news/primanti-brothers-says-vice-president-215547118.html)
-- Sep 28 - [Hurricanes Isaac, Joyce move in Atlantic with no threats to land](https://www.yahoo.com/news/tropical-storm-isaac-forms-central-041005227.html)
+- Sep 28 - [JD Vance suffers latest campaign fail after being denied entry into restaurant](https://www.yahoo.com/news/jd-vance-suffers-latest-campaign-214825199.html)
 - Sep 28 - [Doctors And Nurses Are Revealing The "Emergency" Safety Tips That Could Save Your Life](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-emergency-safety-211602527.html)
 - Sep 28 - [Tropical storm could form in Gulf of Mexico next week, development odds increasing](https://www.yahoo.com/news/tropical-storm-could-form-gulf-183734536.html)
+- Sep 28 - [Asheville has been isolated after Helene wrecked roads and knocked out power and cell service](https://www.yahoo.com/news/asheville-largely-cut-off-helene-183300112.html)
 - Sep 28 - [Brian Williams Set to Make Shock Return to Anchor Chair](https://www.yahoo.com/news/brian-williams-set-host-amazon-171012686.html)
 <!-- feed end -->
 
