@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Amid expanding war, Israeli Prime Minister Netanyahu concerned about threats from Iran and proxies](https://www.yahoo.com/news/amid-expanding-war-israeli-prime-005402695.html)
+- Sep 28 - [Brazil judge says will lift Musk's X ban if $1.8 mn fine paid](https://www.yahoo.com/news/brazil-judge-says-lift-musks-021037618.html)
+- Sep 28 - [Mexican authorities uncover 24 drug cartel surveillance cameras in city on the border with Arizona](https://www.yahoo.com/news/mexican-authorities-uncover-24-drug-010513896.html)
+- Sep 27 - [More than 600 violent fugitives arrested in East St. Louis during U.S. Marshals sweep](https://www.yahoo.com/news/more-600-violent-fugitives-arrested-224232958.html)
 - Sep 27 - [Former BYU track and field sprinter dies in mountain biking crash](https://www.yahoo.com/news/former-byu-track-field-sprinter-202923860.html)
-- Sep 27 - [Southern California neighborhood considered one of the ‘coolest’ in the world](https://www.yahoo.com/lifestyle/southern-california-neighborhood-considered-one-200528746.html)
-- Sep 27 - [Climate activists throw soup at Van Gogh’s Sunflowers again at London gallery](https://www.yahoo.com/news/climate-activists-throw-soup-van-183957556.html)
-- Sep 27 - [Missing Vietnam War Veteran's Remains Found After More Than 50 Years](https://www.yahoo.com/news/missing-vietnam-war-veterans-remains-181617627.html)
+- Sep 27 - [Court revives lawsuit of Black pastor who was arrested while watering his neighbor's flowers](https://www.yahoo.com/news/court-revives-lawsuit-black-pastor-201336849.html)
 <!-- feed end -->
 
 ### Onstream
