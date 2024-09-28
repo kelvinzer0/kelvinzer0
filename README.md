@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [If You Invested $1000 In Bitcoin, Dogecoin, And Shiba Inu Exactly A Year Ago, This Crypto Would Give You The Best Returns Today](https://finance.yahoo.com/news/invested-1000-bitcoin-dogecoin-shiba-163345933.html)
+- Sep 28 - [Regional politicians, others react to killing of Hezbollah's Nasrallah](https://www.yahoo.com/news/regional-politicians-others-react-killing-143705582.html)
 - Sep 28 - [5 SUVs Retirees Should Avoid Buying in October 2024](https://finance.yahoo.com/news/5-suvs-retirees-avoid-buying-140107415.html)
+- Sep 28 - [Iran Revolutionary Guard general died in Israeli strike that killed Hezbollah leader, reports say](https://www.yahoo.com/news/iran-revolutionary-guard-general-died-133336686.html)
 - Sep 28 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
-- Sep 28 - [I lost faith in banks in 2009 — now I have $650K in cash sitting in a safe. Can I deposit this money legally?](https://finance.yahoo.com/news/lost-faith-banks-2009-now-115000682.html)
-- Sep 28 - [Hezbollah leader Nasrallah dies in Israeli strike, upending region](https://www.yahoo.com/news/hezbollah-leader-nasrallah-dies-israeli-110549204.html)
-- Sep 28 - [Five things to know about Social Security reforms being considered in Congress](https://www.yahoo.com/news/five-things-know-social-security-100000442.html)
 <!-- feed end -->
 
 ### Onstream
