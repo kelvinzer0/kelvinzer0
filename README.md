@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Mexican authorities uncover 24 drug cartel surveillance cameras in city on the border with Arizona](https://www.yahoo.com/news/mexican-authorities-uncover-24-drug-010513896.html)
-- Sep 27 - [Van Goghs attacked again, hours after activists sentenced](https://www.yahoo.com/news/van-goghs-attacked-again-hours-221829899.html)
-- Sep 27 - [Hezbollah reckons with future amid Beirut strikes](https://www.yahoo.com/news/hezbollah-reckons-future-amid-beirut-213102199.html)
-- Sep 27 - [Former BYU track and field sprinter dies in mountain biking crash](https://www.yahoo.com/news/former-byu-track-field-sprinter-202923860.html)
+- Sep 28 - [NC Lt. Gov. Mark Robinson hospitalized with second-degree burns following incident at campaign event](https://www.yahoo.com/news/nc-lt-gov-mark-robinson-032916267.html)
+- Sep 28 - [Boeing wage talks break off without progress to end strike, union says](https://finance.yahoo.com/news/boeing-wage-talks-break-off-042418456.html)
+- Sep 27 - [North Carolina dam releases floodwater after Hurricane Helene](https://www.yahoo.com/news/north-carolina-dam-releases-floodwater-235146498.html)
+- Sep 27 - [Black hole 'blowtorch' is causing nearby stars to explode, Hubble telescope reveals](https://www.yahoo.com/news/black-hole-blowtorch-causing-nearby-203732060.html)
 - Sep 27 - [Southern California neighborhood considered one of the ‘coolest’ in the world](https://www.yahoo.com/lifestyle/southern-california-neighborhood-considered-one-200528746.html)
 <!-- feed end -->
 
