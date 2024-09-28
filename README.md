@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [If You Invested $1000 In Bitcoin, Dogecoin, And Shiba Inu Exactly A Year Ago, This Crypto Would Give You The Best Returns Today](https://finance.yahoo.com/news/invested-1000-bitcoin-dogecoin-shiba-163345933.html)
-- Sep 28 - [Regional politicians, others react to killing of Hezbollah's Nasrallah](https://www.yahoo.com/news/regional-politicians-others-react-killing-143705582.html)
+- Sep 28 - [Russia invokes its nuclear capacity in a UN speech that's full of bile toward the West](https://www.yahoo.com/news/russia-invokes-nuclear-capacity-un-170736394.html)
+- Sep 28 - [Arrowheads reveal the presence of a mysterious army in Europe’s oldest battle](https://www.yahoo.com/news/arrowheads-reveal-presence-mysterious-army-151038508.html)
+- Sep 28 - [Carville suggests Democrats should embrace ‘autocracy’ ahead of November](https://www.yahoo.com/news/carville-suggests-democrats-embrace-autocracy-144431781.html)
+- Sep 28 - [Columbia Co. EMA asking for volunteers to help clear storm debris](https://www.yahoo.com/news/columbia-co-ema-asking-volunteers-142848633.html)
 - Sep 28 - [5 SUVs Retirees Should Avoid Buying in October 2024](https://finance.yahoo.com/news/5-suvs-retirees-avoid-buying-140107415.html)
-- Sep 28 - [Iran Revolutionary Guard general died in Israeli strike that killed Hezbollah leader, reports say](https://www.yahoo.com/news/iran-revolutionary-guard-general-died-133336686.html)
-- Sep 28 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
 <!-- feed end -->
 
 ### Onstream
