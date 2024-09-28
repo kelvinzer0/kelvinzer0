@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Pelican's Perch Marina plans to kick off its 75th anniversary with major renovation](https://www.yahoo.com/news/pelicans-perch-marina-plans-kick-090304514.html)
+- Sep 28 - [Hezbollah leader Hassan Nasrallah was killed in Beirut strike, Israel's military says](https://www.yahoo.com/news/israels-military-mobilizes-additional-soldiers-071708590.html)
 - Sep 28 - [NC Lt. Gov. Mark Robinson hospitalized with second-degree burns following incident at campaign event](https://www.yahoo.com/news/nc-lt-gov-mark-robinson-032916267.html)
 - Sep 28 - [Boeing wage talks break off without progress to end strike, union says](https://finance.yahoo.com/news/boeing-wage-talks-break-off-042418456.html)
-- Sep 28 - [Thai farmer forced to kill more than 100 endangered crocodiles after a typhoon damaged their enclosure](https://www.yahoo.com/news/thai-farmer-forced-kill-more-031304612.html)
 - Sep 28 - [Mexican authorities uncover 24 drug cartel surveillance cameras in city on the border with Arizona](https://www.yahoo.com/news/mexican-authorities-uncover-24-drug-010513896.html)
-- Sep 27 - [Van Goghs attacked again, hours after activists sentenced](https://www.yahoo.com/news/van-goghs-attacked-again-hours-221829899.html)
 <!-- feed end -->
 
 ### Onstream
