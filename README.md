@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Historic North Carolina village under water after devastating damage from Helene](https://www.yahoo.com/news/historic-north-carolina-village-under-203041957.html)
-- Sep 28 - [Brian Williams Set to Make Shock Return to Anchor’s Chair](https://www.yahoo.com/news/brian-williams-set-host-amazon-171012686.html)
-- Sep 28 - [Russia invokes its nuclear capacity in a UN speech that's full of bile toward the West](https://www.yahoo.com/news/russia-invokes-nuclear-capacity-un-170736394.html)
-- Sep 28 - [Carville suggests Democrats should embrace ‘autocracy’ ahead of November](https://www.yahoo.com/news/carville-suggests-democrats-embrace-autocracy-144431781.html)
-- Sep 28 - [Regional politicians, others react to killing of Hezbollah's Nasrallah](https://www.yahoo.com/news/regional-politicians-others-react-killing-143705582.html)
+- Sep 28 - [Primanti Brothers says Vice President Nominee JD Vance was not turned away for visit](https://www.yahoo.com/news/primanti-brothers-says-vice-president-215547118.html)
+- Sep 28 - [Hurricanes Isaac, Joyce move in Atlantic with no threats to land](https://www.yahoo.com/news/tropical-storm-isaac-forms-central-041005227.html)
+- Sep 28 - [Doctors And Nurses Are Revealing The "Emergency" Safety Tips That Could Save Your Life](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-emergency-safety-211602527.html)
+- Sep 28 - [Tropical storm could form in Gulf of Mexico next week, development odds increasing](https://www.yahoo.com/news/tropical-storm-could-form-gulf-183734536.html)
+- Sep 28 - [Brian Williams Set to Make Shock Return to Anchor Chair](https://www.yahoo.com/news/brian-williams-set-host-amazon-171012686.html)
 <!-- feed end -->
 
 ### Onstream
