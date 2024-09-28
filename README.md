@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Asheville has been largely cut off after Helene wrecked roads and knocked out power and cell service](https://www.yahoo.com/news/asheville-largely-cut-off-helene-183300112.html)
+- Sep 28 - [Historic North Carolina village under water after devastating damage from Helene](https://www.yahoo.com/news/historic-north-carolina-village-under-203041957.html)
 - Sep 28 - [Brian Williams Set to Make Shock Return to Anchor’s Chair](https://www.yahoo.com/news/brian-williams-set-host-amazon-171012686.html)
 - Sep 28 - [Russia invokes its nuclear capacity in a UN speech that's full of bile toward the West](https://www.yahoo.com/news/russia-invokes-nuclear-capacity-un-170736394.html)
 - Sep 28 - [Carville suggests Democrats should embrace ‘autocracy’ ahead of November](https://www.yahoo.com/news/carville-suggests-democrats-embrace-autocracy-144431781.html)
