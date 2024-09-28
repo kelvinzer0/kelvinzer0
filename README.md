@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 28 - [NC Lt. Gov. Mark Robinson hospitalized with second-degree burns following incident at campaign event](https://www.yahoo.com/news/nc-lt-gov-mark-robinson-032916267.html)
 - Sep 28 - [Boeing wage talks break off without progress to end strike, union says](https://finance.yahoo.com/news/boeing-wage-talks-break-off-042418456.html)
-- Sep 27 - [North Carolina dam releases floodwater after Hurricane Helene](https://www.yahoo.com/news/north-carolina-dam-releases-floodwater-235146498.html)
-- Sep 27 - [Black hole 'blowtorch' is causing nearby stars to explode, Hubble telescope reveals](https://www.yahoo.com/news/black-hole-blowtorch-causing-nearby-203732060.html)
-- Sep 27 - [Southern California neighborhood considered one of the ‘coolest’ in the world](https://www.yahoo.com/lifestyle/southern-california-neighborhood-considered-one-200528746.html)
+- Sep 28 - [Thai farmer forced to kill more than 100 endangered crocodiles after a typhoon damaged their enclosure](https://www.yahoo.com/news/thai-farmer-forced-kill-more-031304612.html)
+- Sep 27 - [Who is longtime Hezbollah leader Hassan Nasrallah?](https://www.yahoo.com/news/charismatic-shrewd-look-longtime-hezbollah-221029693.html)
+- Sep 27 - [Flipped car blocks Highway 101, brings traffic to a halt outside of SLO](https://www.yahoo.com/news/flipped-car-blocks-highway-101-220152109.html)
 <!-- feed end -->
 
 ### Onstream
