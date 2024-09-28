@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Closures at Lakhapani Preserve in Milton rescheduled after impacts of Tropical Storm Helene](https://www.yahoo.com/news/closures-lakhapani-preserve-milton-rescheduled-112537529.html)
 - Sep 28 - [Five things to know about Social Security reforms being considered in Congress](https://www.yahoo.com/news/five-things-know-social-security-100000442.html)
-- Sep 28 - [A Stock Market Rally Could Start in October: 2 Brilliant Growth Stocks to Buy Now and Hold Long-Term](https://finance.yahoo.com/news/stock-market-rally-could-start-081200502.html)
-- Sep 28 - [Hezbollah confirms its leader Hassan Nasrallah was killed in an Israeli airstrike](https://www.yahoo.com/news/israels-military-mobilizes-additional-soldiers-071708590.html)
-- Sep 28 - [NC Lt. Gov. Mark Robinson hospitalized with second-degree burns following incident at campaign event](https://www.yahoo.com/news/nc-lt-gov-mark-robinson-032916267.html)
+- Sep 28 - [Iran says a senior commander was killed in an Israeli strike together with Nasrallah](https://www.yahoo.com/news/israels-military-mobilizes-additional-soldiers-071708590.html)
+- Sep 28 - [Boeing wage talks break off without progress to end strike, union says](https://finance.yahoo.com/news/boeing-wage-talks-break-off-042418456.html)
+- Sep 28 - [King County warns public of stomach illness linked to sushi restaurant in Seattle](https://www.yahoo.com/news/king-county-warns-public-stomach-042131406.html)
+- Sep 28 - [Netanyahu’s ‘trick’ left Hezbollah leader thinking he was safe](https://www.yahoo.com/news/netanyahu-left-israel-trick-hezbollah-014901354.html)
 <!-- feed end -->
 
 ### Onstream
