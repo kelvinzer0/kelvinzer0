@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Delta to launch new route at Memphis airport. Here's where it will go](https://www.yahoo.com/news/delta-launch-route-memphis-airport-133259750.html)
+- Sep 28 - [I lost faith in banks in 2009 — now I have $650K in cash sitting in a safe. Can I deposit this money legally?](https://finance.yahoo.com/news/lost-faith-banks-2009-now-115000682.html)
 - Sep 28 - [Five things to know about Social Security reforms being considered in Congress](https://www.yahoo.com/news/five-things-know-social-security-100000442.html)
-- Sep 28 - [Iran says a senior commander was killed in an Israeli strike together with Nasrallah](https://www.yahoo.com/news/israels-military-mobilizes-additional-soldiers-071708590.html)
-- Sep 28 - [Boeing wage talks break off without progress to end strike, union says](https://finance.yahoo.com/news/boeing-wage-talks-break-off-042418456.html)
-- Sep 28 - [King County warns public of stomach illness linked to sushi restaurant in Seattle](https://www.yahoo.com/news/king-county-warns-public-stomach-042131406.html)
-- Sep 28 - [Netanyahu’s ‘trick’ left Hezbollah leader thinking he was safe](https://www.yahoo.com/news/netanyahu-left-israel-trick-hezbollah-014901354.html)
+- Sep 28 - [NC Lt. Gov. Mark Robinson hospitalized with second-degree burns following incident at campaign event](https://www.yahoo.com/news/nc-lt-gov-mark-robinson-032916267.html)
+- Sep 28 - [UAW urges Stellantis workers to authorize strike, accuses car maker of breaching contract](https://finance.yahoo.com/news/uaw-urges-stellantis-workers-authorize-004043555.html)
 <!-- feed end -->
 
 ### Onstream
