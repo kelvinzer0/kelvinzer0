@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Van Goghs attacked again, hours after activists sentenced](https://www.yahoo.com/news/van-goghs-attacked-again-hours-221829899.html)
+- Sep 28 - [Amid expanding war, Israeli Prime Minister Netanyahu concerned about threats from Iran and proxies](https://www.yahoo.com/news/amid-expanding-war-israeli-prime-005402695.html)
 - Sep 27 - [Former BYU track and field sprinter dies in mountain biking crash](https://www.yahoo.com/news/former-byu-track-field-sprinter-202923860.html)
+- Sep 27 - [Southern California neighborhood considered one of the ‘coolest’ in the world](https://www.yahoo.com/lifestyle/southern-california-neighborhood-considered-one-200528746.html)
 - Sep 27 - [Climate activists throw soup at Van Gogh’s Sunflowers again at London gallery](https://www.yahoo.com/news/climate-activists-throw-soup-van-183957556.html)
-- Sep 27 - [Trump says he will seek Google's prosecution if he wins election](https://finance.yahoo.com/news/trump-says-seek-googles-prosecution-180313675.html)
-- Sep 27 - [‘It’s gone’: In tiny Gulf Coast community, Helene wiped out homes and businesses](https://www.yahoo.com/news/gone-tiny-gulf-coast-community-175200599.html)
+- Sep 27 - [Missing Vietnam War Veteran's Remains Found After More Than 50 Years](https://www.yahoo.com/news/missing-vietnam-war-veterans-remains-181617627.html)
 <!-- feed end -->
 
 ### Onstream
