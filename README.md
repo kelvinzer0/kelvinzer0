@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [How budget-savvy consumers are approaching holiday shopping](https://finance.yahoo.com/video/budget-savvy-consumers-approaching-holiday-190023400.html)
+- Sep 28 - [Brian Williams Set to Make Shock Return to Anchor’s Chair](https://www.yahoo.com/news/brian-williams-set-host-amazon-171012686.html)
 - Sep 28 - [Russia invokes its nuclear capacity in a UN speech that's full of bile toward the West](https://www.yahoo.com/news/russia-invokes-nuclear-capacity-un-170736394.html)
-- Sep 28 - [Arrowheads reveal the presence of a mysterious army in Europe’s oldest battle](https://www.yahoo.com/news/arrowheads-reveal-presence-mysterious-army-151038508.html)
 - Sep 28 - [Carville suggests Democrats should embrace ‘autocracy’ ahead of November](https://www.yahoo.com/news/carville-suggests-democrats-embrace-autocracy-144431781.html)
-- Sep 28 - [Columbia Co. EMA asking for volunteers to help clear storm debris](https://www.yahoo.com/news/columbia-co-ema-asking-volunteers-142848633.html)
 - Sep 28 - [5 SUVs Retirees Should Avoid Buying in October 2024](https://finance.yahoo.com/news/5-suvs-retirees-avoid-buying-140107415.html)
 <!-- feed end -->
 
