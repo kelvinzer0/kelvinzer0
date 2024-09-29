@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [One portfolio manager's ways to play the 'impending power shortage'](https://finance.yahoo.com/video/one-portfolio-managers-ways-play-140028520.html)
 - Sep 29 - [Russia downs over 100 Ukrainian drones in one of the largest barrages of the war](https://www.yahoo.com/news/125-ukrainian-drones-reported-attack-094719046.html)
-- Sep 29 - [Opinion: Why do Ohio Republicans keep making insulting comments?](https://www.yahoo.com/news/opinion-why-ohio-republicans-keep-091621308.html)
-- Sep 29 - [Hezbollah confirms that an Israeli strike killed a top official, the 7th such death in recent days](https://www.yahoo.com/news/israel-says-killed-another-high-090921215.html)
+- Sep 29 - [Hezbollah confirms a 7th top commander was killed in Israeli strikes in recent days](https://www.yahoo.com/news/israel-says-killed-another-high-090921215.html)
 - Sep 29 - [Opinion: Harris is wrong about Project 2025. Our plan is good for America.](https://www.yahoo.com/news/opinion-harris-wrong-project-2025-090519235.html)
-- Sep 29 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Forecasts Are in Agreement -- Here's How Much the Average Check Is Expected to Rise Next Year](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400311.html)
+- Sep 29 - [Will Kamala Harris's Plan to Raise the Corporate Tax Rate by 33% Cause Stocks to Plunge? History Couldn't Be Clearer.](https://finance.yahoo.com/news/kamala-harriss-plan-raise-corporate-084100371.html)
 <!-- feed end -->
 
 ### Onstream
