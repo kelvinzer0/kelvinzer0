@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Sen. Mark Kelly says he's not ready to condition aid to Israel](https://www.yahoo.com/news/sen-mark-kelly-says-hes-142602928.html)
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
-- Sep 29 - [I'm 65 and set to retire with $500,000 in the bank. How long will that last?](https://finance.yahoo.com/news/im-65-set-retire-500-102200256.html)
-- Sep 29 - [When the dollar store closes, US families on food benefits lose a lifeline](https://finance.yahoo.com/news/dollar-store-closes-us-families-100900849.html)
+- Sep 29 - [Russian-held Zaporizhzhia nuclear plant says Ukraine again attacks substation](https://www.yahoo.com/news/russian-held-zaporizhzhia-nuclear-plant-165916303.html)
+- Sep 29 - [Jim Grant says Warren Buffett is warning us about US stocks by pivoting to this 1 asset class. Should you?](https://finance.yahoo.com/news/jim-grant-says-warren-buffett-110100083.html)
 - Sep 29 - [Russia downs over 100 Ukrainian drones in one of the largest barrages of the war](https://www.yahoo.com/news/125-ukrainian-drones-reported-attack-094719046.html)
+- Sep 29 - [Israeli airstrikes kill dozens across Lebanon as Hezbollah confirms a 7th top commander was killed](https://www.yahoo.com/news/israel-says-killed-another-high-090921215.html)
 <!-- feed end -->
 
 ### Onstream
