@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [A tiny tribe is getting pushback for betting big on a $600M casino in California's wine country](https://www.yahoo.com/news/tiny-tribe-getting-pushback-betting-040604600.html)
-- Sep 29 - [In Alabama, Trump goes from the dark rhetoric of his campaign to adulation of college football fans](https://www.yahoo.com/news/alabama-trump-goes-dark-rhetoric-030150572.html)
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
+- Sep 29 - [In Alabama, Trump goes from the dark rhetoric of his campaign to adulation of college football fans](https://www.yahoo.com/news/alabama-trump-goes-dark-rhetoric-030150572.html)
 - Sep 28 - [Doctors And Nurses Are Revealing The "Emergency" Safety Tips That Could Save Your Life](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-emergency-safety-211602527.html)
-- Sep 28 - [Asheville has been isolated after Helene wrecked roads and knocked out power and cell service](https://www.yahoo.com/news/asheville-largely-cut-off-helene-183300112.html)
+- Sep 28 - [Hoda Kotb Decided to Exit ‘Today’ After NBC Proposed Cut to Her $20 Million Salary | Report](https://www.yahoo.com/entertainment/hoda-kotb-decided-exit-today-201759550.html)
+- Sep 28 - [Syrians take to the streets to celebrate Hassan Nasrallah’s death](https://www.yahoo.com/news/syrians-streets-celebrate-hassan-nasrallah-184802580.html)
 <!-- feed end -->
 
 ### Onstream
