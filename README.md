@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Death of Hezbollah leader triggers tears and shock in Lebanon and Middle East](https://www.yahoo.com/news/death-hezbollah-leader-triggers-tears-105846601.html)
-- Sep 29 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Forecasts Are in Agreement -- Here's How Much the Average Check Is Expected to Rise Next Year](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400311.html)
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
-- Sep 29 - [China says US missile deployment in Philippines undermines peace](https://www.yahoo.com/news/china-says-us-missile-deployment-043812714.html)
-- Sep 29 - [In Alabama, Trump goes from the dark rhetoric of his campaign to adulation of college football fans](https://www.yahoo.com/news/alabama-trump-goes-dark-rhetoric-030150572.html)
+- Sep 29 - [Death of Hezbollah leader triggers tears and shock in Lebanon and Middle East](https://www.yahoo.com/news/death-hezbollah-leader-triggers-tears-105846601.html)
+- Sep 29 - [Opinion: Harris is wrong about Project 2025. Our plan is good for America.](https://www.yahoo.com/news/opinion-harris-wrong-project-2025-090519235.html)
+- Sep 29 - [Social Security's 2025 Cost-of-Living Adjustment (COLA) Forecasts Are in Agreement -- Here's How Much the Average Check Is Expected to Rise Next Year](https://finance.yahoo.com/news/social-securitys-2025-cost-living-074400311.html)
+- Sep 29 - [A tiny tribe is getting pushback for betting big on a $600M casino in California's wine country](https://www.yahoo.com/news/tiny-tribe-getting-pushback-betting-040604600.html)
 <!-- feed end -->
 
 ### Onstream
