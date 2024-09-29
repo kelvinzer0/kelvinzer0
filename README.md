@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Jim Grant says Warren Buffett is warning us about US stocks by pivoting to this 1 asset class. Should you?](https://finance.yahoo.com/news/jim-grant-says-warren-buffett-110100083.html)
+- Sep 29 - [Sen. Mark Kelly says he's not ready to condition aid to Israel](https://www.yahoo.com/news/sen-mark-kelly-says-hes-142602928.html)
+- Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
+- Sep 29 - [I'm 65 and set to retire with $500,000 in the bank. How long will that last?](https://finance.yahoo.com/news/im-65-set-retire-500-102200256.html)
 - Sep 29 - [When the dollar store closes, US families on food benefits lose a lifeline](https://finance.yahoo.com/news/dollar-store-closes-us-families-100900849.html)
 - Sep 29 - [Russia downs over 100 Ukrainian drones in one of the largest barrages of the war](https://www.yahoo.com/news/125-ukrainian-drones-reported-attack-094719046.html)
-- Sep 29 - [Opinion: Harris is wrong about Project 2025. Our plan is good for America.](https://www.yahoo.com/news/opinion-harris-wrong-project-2025-090519235.html)
-- Sep 29 - [Will Kamala Harris's Plan to Raise the Corporate Tax Rate by 33% Cause Stocks to Plunge? History Couldn't Be Clearer.](https://finance.yahoo.com/news/kamala-harriss-plan-raise-corporate-084100371.html)
 <!-- feed end -->
 
 ### Onstream
