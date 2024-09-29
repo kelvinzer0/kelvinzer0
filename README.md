@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [JD Vance suffers latest campaign fail after being denied entry into restaurant](https://www.yahoo.com/news/jd-vance-suffers-latest-campaign-214825199.html)
+- Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
+- Sep 29 - [SpaceX launches rescue mission to bring stranded astronauts back from ISS](https://www.yahoo.com/news/spacex-launches-rescue-mission-bring-004906738.html)
+- Sep 28 - [Primanti Brothers says VP Nominee JD Vance was not turned away for visit after viral video](https://www.yahoo.com/news/primanti-brothers-says-vice-president-215547118.html)
 - Sep 28 - [Doctors And Nurses Are Revealing The "Emergency" Safety Tips That Could Save Your Life](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-emergency-safety-211602527.html)
 - Sep 28 - [Tropical storm could form in Gulf of Mexico next week, development odds increasing](https://www.yahoo.com/news/tropical-storm-could-form-gulf-183734536.html)
-- Sep 28 - [Asheville has been isolated after Helene wrecked roads and knocked out power and cell service](https://www.yahoo.com/news/asheville-largely-cut-off-helene-183300112.html)
-- Sep 28 - [Brian Williams Set to Make Shock Return to Anchor Chair](https://www.yahoo.com/news/brian-williams-set-host-amazon-171012686.html)
 <!-- feed end -->
 
 ### Onstream
