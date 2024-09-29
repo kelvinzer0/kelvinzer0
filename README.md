@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Israel strikes power plant in Yemen in revenge for Houthi missile attacks](https://www.yahoo.com/news/israel-strikes-power-plant-yemen-160854821.html)
+- Sep 29 - [Boy, 8, dies after being shot in the head at farm](https://www.yahoo.com/news/boy-8-dies-shot-head-090358096.html)
 - Sep 29 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
-- Sep 29 - [44-Year-Old Earning $60,000 Annually In Dividends Says He's 'Still Grinding And Not Spending Much' As He Relies On These 8 Investment Picks](https://finance.yahoo.com/news/44-old-earning-60-000-170021170.html)
+- Sep 29 - [North Carolina Interstate Remains Partially Closed Due to Helene Storm Damage](https://www.yahoo.com/news/north-carolina-interstate-remains-partially-163440604.html)
+- Sep 29 - [US changes tack on Haiti peacekeeping push amid China, Russia opposition](https://www.yahoo.com/news/us-drops-push-haiti-peacekeeping-162032755.html)
 - Sep 29 - [Watch: Hamas tunnel in Gaza blown up by Israeli troops](https://www.yahoo.com/news/watch-hamas-tunnel-gaza-blown-160900786.html)
-- Sep 29 - [Trump escalates attacks on Harris' mental fitness and suggests she should be prosecuted](https://www.yahoo.com/news/republicans-distance-themselves-trumps-attack-155925937.html)
 <!-- feed end -->
 
 ### Onstream
