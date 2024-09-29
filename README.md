@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Taxpayers should fund trans surgery for inmate who murdered baby, judge rules](https://www.yahoo.com/news/taxpayers-fund-trans-surgery-inmate-172952731.html)
-- Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
-- Sep 29 - [North Carolina Interstate Remains Partially Closed Due to Helene Storm Damage](https://www.yahoo.com/news/north-carolina-interstate-remains-partially-163440604.html)
+- Sep 29 - [Israel strikes power plant in Yemen in revenge for Houthi missile attacks](https://www.yahoo.com/news/israel-strikes-power-plant-yemen-160854821.html)
+- Sep 29 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
+- Sep 29 - [44-Year-Old Earning $60,000 Annually In Dividends Says He's 'Still Grinding And Not Spending Much' As He Relies On These 8 Investment Picks](https://finance.yahoo.com/news/44-old-earning-60-000-170021170.html)
 - Sep 29 - [Watch: Hamas tunnel in Gaza blown up by Israeli troops](https://www.yahoo.com/news/watch-hamas-tunnel-gaza-blown-160900786.html)
-- Sep 29 - [Some Republicans distance themselves from Trump's attack on Harris' mental fitness](https://www.yahoo.com/news/republicans-distance-themselves-trumps-attack-155925937.html)
+- Sep 29 - [Trump escalates attacks on Harris' mental fitness and suggests she should be prosecuted](https://www.yahoo.com/news/republicans-distance-themselves-trumps-attack-155925937.html)
 <!-- feed end -->
 
 ### Onstream
