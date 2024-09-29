@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
-- Sep 29 - [SpaceX launches rescue mission to bring stranded astronauts back from ISS](https://www.yahoo.com/news/spacex-launches-rescue-mission-bring-004906738.html)
+- Sep 28 - [Nolichucky River sees record flow after Helene moves through East TN](https://www.yahoo.com/news/nolichucky-river-sees-record-flow-221805905.html)
 - Sep 28 - [Primanti Brothers says VP Nominee JD Vance was not turned away for visit after viral video](https://www.yahoo.com/news/primanti-brothers-says-vice-president-215547118.html)
 - Sep 28 - [Doctors And Nurses Are Revealing The "Emergency" Safety Tips That Could Save Your Life](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-emergency-safety-211602527.html)
-- Sep 28 - [Tropical storm could form in Gulf of Mexico next week, development odds increasing](https://www.yahoo.com/news/tropical-storm-could-form-gulf-183734536.html)
+- Sep 28 - [NC Lt. Gov. Mark Robinson was treated for second-degree burns after touching exhaust pipe at campaign event](https://www.yahoo.com/news/nc-lt-gov-mark-robinson-032916267.html)
 <!-- feed end -->
 
 ### Onstream
