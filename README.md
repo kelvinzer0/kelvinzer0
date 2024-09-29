@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [One portfolio manager's ways to play the 'impending power shortage'](https://finance.yahoo.com/video/one-portfolio-managers-ways-play-140028520.html)
+- Sep 29 - [Jim Grant says Warren Buffett is warning us about US stocks by pivoting to this 1 asset class. Should you?](https://finance.yahoo.com/news/jim-grant-says-warren-buffett-110100083.html)
+- Sep 29 - [When the dollar store closes, US families on food benefits lose a lifeline](https://finance.yahoo.com/news/dollar-store-closes-us-families-100900849.html)
 - Sep 29 - [Russia downs over 100 Ukrainian drones in one of the largest barrages of the war](https://www.yahoo.com/news/125-ukrainian-drones-reported-attack-094719046.html)
-- Sep 29 - [Hezbollah confirms a 7th top commander was killed in Israeli strikes in recent days](https://www.yahoo.com/news/israel-says-killed-another-high-090921215.html)
 - Sep 29 - [Opinion: Harris is wrong about Project 2025. Our plan is good for America.](https://www.yahoo.com/news/opinion-harris-wrong-project-2025-090519235.html)
 - Sep 29 - [Will Kamala Harris's Plan to Raise the Corporate Tax Rate by 33% Cause Stocks to Plunge? History Couldn't Be Clearer.](https://finance.yahoo.com/news/kamala-harriss-plan-raise-corporate-084100371.html)
 <!-- feed end -->
