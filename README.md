@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
+- Sep 29 - [Florida congressional candidate charged with threatening to kill primary opponent](https://www.yahoo.com/news/florida-congressional-candidate-charged-threatening-012256898.html)
 - Sep 29 - [In Alabama, Trump goes from the dark rhetoric of his campaign to adulation of college football fans](https://www.yahoo.com/news/alabama-trump-goes-dark-rhetoric-030150572.html)
 - Sep 28 - [Doctors And Nurses Are Revealing The "Emergency" Safety Tips That Could Save Your Life](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-emergency-safety-211602527.html)
 - Sep 28 - [Hoda Kotb Decided to Exit ‘Today’ After NBC Proposed Cut to Her $20 Million Salary | Report](https://www.yahoo.com/entertainment/hoda-kotb-decided-exit-today-201759550.html)
-- Sep 28 - [Syrians take to the streets to celebrate Hassan Nasrallah’s death](https://www.yahoo.com/news/syrians-streets-celebrate-hassan-nasrallah-184802580.html)
 <!-- feed end -->
 
 ### Onstream
