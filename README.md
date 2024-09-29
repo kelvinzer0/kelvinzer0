@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [In Alabama, Trump goes from the dark rhetoric of his campaign to adulation of college football fans](https://www.yahoo.com/news/alabama-trump-goes-dark-rhetoric-030150572.html)
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
-- Sep 29 - [Pregnant mom of two is ‘completely trapped’ in her North Carolina home](https://www.yahoo.com/news/north-carolina-residents-trapped-homes-180919217.html)
-- Sep 28 - [Primanti Brothers says VP Nominee JD Vance was not turned away for visit after viral video](https://www.yahoo.com/news/primanti-brothers-says-vice-president-215547118.html)
+- Sep 28 - [Scientists Detected Signs of a Hidden Structure Inside Earth's Core](https://www.yahoo.com/news/scientists-detected-signs-hidden-structure-232801719.html)
+- Sep 28 - [Primanti Bros. customers left disappointed after JD Vance seemingly was initially denied entry](https://www.yahoo.com/news/primanti-brothers-says-vice-president-215547118.html)
 - Sep 28 - [Doctors And Nurses Are Revealing The "Emergency" Safety Tips That Could Save Your Life](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-emergency-safety-211602527.html)
-- Sep 28 - [Tropical storm could form in Gulf of Mexico next week, development odds increasing](https://www.yahoo.com/news/tropical-storm-could-form-gulf-183734536.html)
 <!-- feed end -->
 
 ### Onstream
