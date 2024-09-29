@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [University imposes a one-year suspension on law professor over comments on race](https://www.yahoo.com/news/university-imposes-one-suspension-law-171834507.html)
-- Sep 29 - [5 died, including child, in plane crash at Wright Brothers National Memorial](https://www.yahoo.com/news/5-died-including-child-plane-171100407.html)
+- Sep 29 - [Taxpayers should fund trans surgery for inmate who murdered baby, judge rules](https://www.yahoo.com/news/taxpayers-fund-trans-surgery-inmate-172952731.html)
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
 - Sep 29 - [North Carolina Interstate Remains Partially Closed Due to Helene Storm Damage](https://www.yahoo.com/news/north-carolina-interstate-remains-partially-163440604.html)
+- Sep 29 - [Watch: Hamas tunnel in Gaza blown up by Israeli troops](https://www.yahoo.com/news/watch-hamas-tunnel-gaza-blown-160900786.html)
 - Sep 29 - [Some Republicans distance themselves from Trump's attack on Harris' mental fitness](https://www.yahoo.com/news/republicans-distance-themselves-trumps-attack-155925937.html)
 <!-- feed end -->
 
