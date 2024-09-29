@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [University imposes a one-year suspension on law professor over comments on race](https://www.yahoo.com/news/university-imposes-one-suspension-law-171834507.html)
+- Sep 29 - [5 died, including child, in plane crash at Wright Brothers National Memorial](https://www.yahoo.com/news/5-died-including-child-plane-171100407.html)
 - Sep 29 - [‘Not normal’: Social media reacts after Trump makes bizarre comments about a fly he’s bothered by on stage](https://www.yahoo.com/news/not-normal-social-media-reacts-232957705.html)
-- Sep 29 - [Russian-held Zaporizhzhia nuclear plant says Ukraine again attacks substation](https://www.yahoo.com/news/russian-held-zaporizhzhia-nuclear-plant-165916303.html)
-- Sep 29 - [Jim Grant says Warren Buffett is warning us about US stocks by pivoting to this 1 asset class. Should you?](https://finance.yahoo.com/news/jim-grant-says-warren-buffett-110100083.html)
-- Sep 29 - [Russia downs over 100 Ukrainian drones in one of the largest barrages of the war](https://www.yahoo.com/news/125-ukrainian-drones-reported-attack-094719046.html)
-- Sep 29 - [Israeli airstrikes kill dozens across Lebanon as Hezbollah confirms a 7th top commander was killed](https://www.yahoo.com/news/israel-says-killed-another-high-090921215.html)
+- Sep 29 - [North Carolina Interstate Remains Partially Closed Due to Helene Storm Damage](https://www.yahoo.com/news/north-carolina-interstate-remains-partially-163440604.html)
+- Sep 29 - [Some Republicans distance themselves from Trump's attack on Harris' mental fitness](https://www.yahoo.com/news/republicans-distance-themselves-trumps-attack-155925937.html)
 <!-- feed end -->
 
 ### Onstream
