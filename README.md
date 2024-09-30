@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Sep 30 - [Diddy Accuser’s Attorney Says “High-Profile” Person Seen With Mogul in Pornographic Video](https://www.yahoo.com/news/diddy-accuser-attorney-says-high-014137148.html)
 - Sep 30 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
 - Sep 30 - [Crew-9 astronauts arrive at space station after SpaceX reports rocket anomaly](https://www.yahoo.com/news/spacex-capsule-set-bring-home-140831960.html)
+- Sep 29 - [Man seriously hurt in fall at Minnesota Renaissance Festival](https://www.yahoo.com/news/man-seriously-hurt-fall-minnesota-234408328.html)
 - Sep 29 - [Apple’s rumored smart display may arrive in 2025 running new homeOS](https://www.yahoo.com/tech/apples-rumored-smart-display-may-arrive-in-2025-running-new-homeos-212401853.html)
-- Sep 29 - [Utah mom with terminal cancer plans her own funeral after three month diagnosis](https://www.yahoo.com/lifestyle/utah-mom-terminal-cancer-plans-205430120.html)
 <!-- feed end -->
 
 ### Onstream
