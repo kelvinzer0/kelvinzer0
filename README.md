@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Tesla's quarterly deliveries set to rise as China incentives lure wary EV buyers](https://finance.yahoo.com/news/teslas-quarterly-deliveries-set-rise-172959394.html)
-- Sep 30 - [Bitcoin’s Bearish September Wasn't Too Bad After All](https://finance.yahoo.com/video/bitcoin-bearish-september-wasnt-too-172726515.html)
-- Sep 30 - [New appeal over boy killed in 1997 house fire](https://www.yahoo.com/news/appeal-over-boy-killed-1997-172324984.html)
+- Sep 30 - [Mom and son used their real estate business as a front for their ‘pretty woman’ prostitution empire, cops say](https://www.yahoo.com/news/mom-son-used-real-estate-181048494.html)
+- Sep 30 - [China’s Stock-Market Revival Fails to Register With Fed-Obsessed US Traders](https://finance.yahoo.com/news/erupting-china-stocks-barely-audible-180504967.html)
+- Sep 30 - [Video captures a Russian fighter jet dangerously ripping past a US F-16 during an intercept](https://www.yahoo.com/news/video-captures-russian-fighter-jet-174221931.html)
+- Sep 30 - ['Investing back': Major Peoria manufacturer plans new $30 million building](https://finance.yahoo.com/news/investing-back-major-peoria-manufacturer-173017093.html)
 - Sep 30 - [Scientists explain Mount Everest's anomalous growth](https://www.yahoo.com/news/scientists-explain-mount-everests-anomalous-170504863.html)
-- Sep 30 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
 <!-- feed end -->
 
 ### Onstream
