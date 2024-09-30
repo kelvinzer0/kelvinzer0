@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [SpaceX rescue mission for stranded astronauts suffers setback](https://www.yahoo.com/news/spacex-rescue-mission-stranded-astronauts-104825477.html)
 - Sep 30 - [Typhoon Krathon – live: Taiwan braces for powerful storm after ‘very destructive’ rainfall in Philippines](https://www.yahoo.com/news/typhoon-krathon-live-taiwan-braces-065232582.html)
+- Sep 30 - [Mortgage and refinance rates today, September 30, 2024: Rates fell 79 points this quarter](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-monday-september-30-2024-100051388.html)
 - Sep 30 - [DEI is a business imperative: Wells Fargo Exec. VP](https://finance.yahoo.com/video/dei-business-imperative-wells-fargo-232024843.html)
-- Sep 30 - [Two dead as wildfire rages at Greek holiday resort](https://www.yahoo.com/news/two-dead-wildfire-rages-greek-094942023.html)
-- Sep 30 - [RI landlords need to register apartments by Tuesday. Here's what happens if they don't.](https://www.yahoo.com/news/ri-landlords-register-apartments-tuesday-091516365.html)
-- Sep 30 - [Lindsey Graham’s Body Language Over Offensive Donald Trump Remark Says It All](https://www.yahoo.com/news/lindsey-graham-body-language-over-074400056.html)
+- Sep 30 - [Crew of Vietnamese fishing boat injured in an attack in the South China Sea, state media say](https://www.yahoo.com/news/crew-vietnamese-fishing-boat-injured-095842148.html)
 <!-- feed end -->
 
 ### Onstream
