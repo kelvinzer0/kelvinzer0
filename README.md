@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Typhoon Krathon – live: Taiwan braces for powerful storm after ‘very destructive’ rainfall in Philippines](https://www.yahoo.com/news/typhoon-krathon-live-taiwan-braces-065232582.html)
-- Sep 30 - [BioLab chemical plant fire in Georgia prompts evacuation orders](https://www.yahoo.com/news/biolab-chemical-plant-fire-georgia-121111451.html)
+- Sep 30 - [Ukraine's recent strikes on arms depots caused the largest loss of Russian and North Korean ammo in the war: UK intel](https://www.yahoo.com/news/ukraines-recent-strikes-arms-depots-122146633.html)
+- Sep 30 - [Man spends £10k transforming a static caravan into a log cabin in just a few months](https://www.yahoo.com/news/man-spends-10k-transforming-static-121952602.html)
 - Sep 30 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. OpenAI Turns For-Profit](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Sep 30 - [Israel strikes central Beirut as displaced families sleep on streets](https://www.yahoo.com/news/israel-strikes-central-beirut-displaced-115840457.html)
-- Sep 30 - [Ukraine knocks Putin drones out of Kyiv night sky with electronic warfare weapons in five-hour battle](https://www.yahoo.com/news/ukraine-uses-electronic-warfare-neutralise-102750140.html)
+- Sep 30 - [I Combed Through Hundreds Of Pre-Prime Day Deals And Found 24 Winners](https://www.yahoo.com/lifestyle/combed-hundreds-pre-prime-day-120000628.html)
+- Sep 30 - [Big US oil companies reveal massive payments to foreign governments](https://finance.yahoo.com/news/big-us-oil-companies-reveal-110402090.html)
 <!-- feed end -->
 
 ### Onstream
