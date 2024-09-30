@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Mom and son used their real estate business as a front for their ‘pretty woman’ prostitution empire, cops say](https://www.yahoo.com/news/mom-son-used-real-estate-181048494.html)
-- Sep 30 - [China’s Stock-Market Revival Fails to Register With Fed-Obsessed US Traders](https://finance.yahoo.com/news/erupting-china-stocks-barely-audible-180504967.html)
+- Sep 30 - [Many Verizon customers across the US hit by service outage](https://www.yahoo.com/news/many-verizon-customers-across-us-200455428.html)
+- Sep 30 - [Hurricane center says Gulf Coast should keep track of brewing system](https://www.yahoo.com/news/hurricane-center-says-gulf-coast-194900310.html)
+- Sep 30 - [Man hits wolf with snowmobile, tapes its mouth shut and takes it to bar – and none of it is illegal](https://www.yahoo.com/news/man-hits-wolf-snowmobile-tapes-181354829.html)
+- Sep 30 - [Inside Putin’s Secret Personal Life and the Wild Lengths He Goes to Keep It Hidden](https://www.yahoo.com/news/inside-putin-secret-personal-life-180944715.html)
 - Sep 30 - [Video captures a Russian fighter jet dangerously ripping past a US F-16 during an intercept](https://www.yahoo.com/news/video-captures-russian-fighter-jet-174221931.html)
-- Sep 30 - ['Investing back': Major Peoria manufacturer plans new $30 million building](https://finance.yahoo.com/news/investing-back-major-peoria-manufacturer-173017093.html)
-- Sep 30 - [Scientists explain Mount Everest's anomalous growth](https://www.yahoo.com/news/scientists-explain-mount-everests-anomalous-170504863.html)
 <!-- feed end -->
 
 ### Onstream
