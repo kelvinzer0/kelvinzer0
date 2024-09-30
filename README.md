@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Stunning Video Shows North Carolina Lake Packed With Ruins Of Nearby Village After Storm](https://www.yahoo.com/news/stunning-video-shows-north-carolina-204712071.html)
-- Sep 30 - [Netanyahu warns Iran: There is nowhere we cannot strike](https://www.yahoo.com/news/netanyahu-warns-iran-nowhere-t-202509960.html)
-- Sep 30 - [The Dow drops 350 points after Fed chair Jerome Powell signals a slow approach to interest rate cuts](https://www.yahoo.com/tech/dow-drops-350-points-fed-191500029.html)
-- Sep 30 - [‘Absolute total loss’: Evacuees return to homes along Catawba River](https://www.yahoo.com/news/ain-t-dry-house-down-222836308.html)
-- Sep 30 - [Police seek help identifying 4 people in Boston assault that caused serious injuries](https://www.yahoo.com/news/police-seek-help-identifying-4-175722794.html)
+- Sep 30 - [Get Ready For More Car And Parts Shortages](https://autos.yahoo.com/ready-more-car-parts-shortages-213000149.html)
+- Sep 30 - [‘Catastrophically unsafe’: Neighbors find heartbreaking loss in Chimney Rock, vow to rebuild](https://www.yahoo.com/news/catastrophically-unsafe-neighbors-heartbreaking-loss-211624541.html)
+- Sep 30 - [Helene devastated this small Ashe County town. Now its residents are feeding one another](https://www.yahoo.com/news/helene-devastated-small-ashe-county-210144020.html)
+- Sep 30 - [Why investors may want to own Ford stock now: Analyst](https://finance.yahoo.com/video/why-ford-benefit-investors-analyst-201852074.html)
+- Sep 30 - [Tesla investor Ross Gerber says he's been dumping the stock because no one wants the company's cars or robots](https://autos.yahoo.com/tesla-investor-ross-gerber-says-234413902.html)
 <!-- feed end -->
 
 ### Onstream
