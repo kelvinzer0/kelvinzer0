@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Dodge-parent Stellantis tumbles on warning, dragging auto stocks lower](https://finance.yahoo.com/news/dodge-parent-stellantis-tumbles-on-warning-dragging-auto-stocks-lower-165130726.html)
-- Sep 30 - [Chinese President says nation will move forward despite 'difficulties and obstacles'](https://www.yahoo.com/news/chinese-president-says-nation-move-163556647.html)
-- Sep 30 - [US port strike by 45,000 dockworkers is all but certain to begin at midnight](https://www.yahoo.com/news/us-port-strike-45-000-161949063.html)
-- Sep 30 - [After Hurricane Helene, water-damaged vehicles may flood used-car market. How to tell before you buy](https://www.yahoo.com/news/hurricane-helene-water-damaged-vehicles-160949689.html)
-- Sep 30 - [State receives 6 bids to remove Falls of Clyde](https://www.yahoo.com/news/state-receives-6-bids-remove-160300307.html)
+- Sep 30 - [Tesla's quarterly deliveries set to rise as China incentives lure wary EV buyers](https://finance.yahoo.com/news/teslas-quarterly-deliveries-set-rise-172959394.html)
+- Sep 30 - [Bitcoin’s Bearish September Wasn't Too Bad After All](https://finance.yahoo.com/video/bitcoin-bearish-september-wasnt-too-172726515.html)
+- Sep 30 - [New appeal over boy killed in 1997 house fire](https://www.yahoo.com/news/appeal-over-boy-killed-1997-172324984.html)
+- Sep 30 - [Scientists explain Mount Everest's anomalous growth](https://www.yahoo.com/news/scientists-explain-mount-everests-anomalous-170504863.html)
+- Sep 30 - [James Webb Space Telescope's Stunning First Deep Field Image](https://www.yahoo.com/news/james-webb-space-telescopes-stunning-160000555.html)
 <!-- feed end -->
 
 ### Onstream
