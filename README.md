@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [SpaceX rescue mission for stranded astronauts suffers setback](https://www.yahoo.com/news/spacex-rescue-mission-stranded-astronauts-104825477.html)
 - Sep 30 - [Typhoon Krathon – live: Taiwan braces for powerful storm after ‘very destructive’ rainfall in Philippines](https://www.yahoo.com/news/typhoon-krathon-live-taiwan-braces-065232582.html)
-- Sep 30 - [Mortgage and refinance rates today, September 30, 2024: Rates fell 79 points this quarter](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-monday-september-30-2024-100051388.html)
-- Sep 30 - [DEI is a business imperative: Wells Fargo Exec. VP](https://finance.yahoo.com/video/dei-business-imperative-wells-fargo-232024843.html)
-- Sep 30 - [Crew of Vietnamese fishing boat injured in an attack in the South China Sea, state media say](https://www.yahoo.com/news/crew-vietnamese-fishing-boat-injured-095842148.html)
+- Sep 30 - [BioLab chemical plant fire in Georgia prompts evacuation orders](https://www.yahoo.com/news/biolab-chemical-plant-fire-georgia-121111451.html)
+- Sep 30 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. OpenAI Turns For-Profit](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Sep 30 - [Israel strikes central Beirut as displaced families sleep on streets](https://www.yahoo.com/news/israel-strikes-central-beirut-displaced-115840457.html)
+- Sep 30 - [Ukraine knocks Putin drones out of Kyiv night sky with electronic warfare weapons in five-hour battle](https://www.yahoo.com/news/ukraine-uses-electronic-warfare-neutralise-102750140.html)
 <!-- feed end -->
 
 ### Onstream
