@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Apparent Israeli airstrike hits central Beirut for first time in year of conflict](https://www.yahoo.com/news/apparent-israeli-airstrike-hits-central-225215148.html)
-- Sep 29 - [Crew-9 astronauts arrive at space station after SpaceX reports rocket anomaly](https://www.yahoo.com/news/spacex-capsule-set-bring-home-140831960.html)
-- Sep 29 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
+- Sep 30 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
+- Sep 30 - [Crew-9 astronauts arrive at space station after SpaceX reports rocket anomaly](https://www.yahoo.com/news/spacex-capsule-set-bring-home-140831960.html)
+- Sep 29 - [Apple’s rumored smart display may arrive in 2025 running new homeOS](https://www.yahoo.com/tech/apples-rumored-smart-display-may-arrive-in-2025-running-new-homeos-212401853.html)
 - Sep 29 - [Utah mom with terminal cancer plans her own funeral after three month diagnosis](https://www.yahoo.com/lifestyle/utah-mom-terminal-cancer-plans-205430120.html)
-- Sep 29 - [Zachary Levi Endorses Donald Trump After Robert F. Kennedy Jr. Suspends Campaign: ‘We Are Going to Take Back This Country’ and ‘Make It Great Again’](https://www.yahoo.com/news/zachary-levi-endorses-donald-trump-192504468.html)
+- Sep 29 - [Chicago police warn residents of citywide armed robbery spree](https://www.yahoo.com/news/chicago-police-warn-residents-citywide-192811072.html)
 <!-- feed end -->
 
 ### Onstream
