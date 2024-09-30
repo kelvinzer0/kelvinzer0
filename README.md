@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Indian Oil Corp withdraws $2.6 billion rights issue](https://finance.yahoo.com/news/indian-oil-corp-withdraws-2-155656669.html)
-- Sep 30 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
-- Sep 30 - [Best Apple Watch 8 deals: Save on last year’s model](https://www.yahoo.com/tech/best-apple-watch-8-deals-165621774.html)
-- Sep 30 - [In address to Iran, Netanyahu says nowhere in Middle East out of Israel's reach](https://www.yahoo.com/news/address-iran-netanyahu-says-nowhere-144110312.html)
-- Sep 30 - [Trump Has a Wild New Theory for His Flagging Crowd Sizes](https://www.yahoo.com/news/trump-wild-theory-flagging-crowd-142533477.html)
+- Sep 30 - [Dodge-parent Stellantis tumbles on warning, dragging auto stocks lower](https://finance.yahoo.com/news/dodge-parent-stellantis-tumbles-on-warning-dragging-auto-stocks-lower-165130726.html)
+- Sep 30 - [Chinese President says nation will move forward despite 'difficulties and obstacles'](https://www.yahoo.com/news/chinese-president-says-nation-move-163556647.html)
+- Sep 30 - [US port strike by 45,000 dockworkers is all but certain to begin at midnight](https://www.yahoo.com/news/us-port-strike-45-000-161949063.html)
+- Sep 30 - [After Hurricane Helene, water-damaged vehicles may flood used-car market. How to tell before you buy](https://www.yahoo.com/news/hurricane-helene-water-damaged-vehicles-160949689.html)
+- Sep 30 - [State receives 6 bids to remove Falls of Clyde](https://www.yahoo.com/news/state-receives-6-bids-remove-160300307.html)
 <!-- feed end -->
 
 ### Onstream
