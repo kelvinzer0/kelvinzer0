@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [US East Coast port strike looms Tuesday with no talks scheduled](https://www.yahoo.com/news/us-east-coast-port-strike-080611488.html)
-- Sep 30 - [China’s astronauts are aiming to land on the moon by 2030. They now have a new spacesuit to do it](https://www.yahoo.com/news/china-astronauts-aiming-land-moon-053715466.html)
+- Sep 30 - [3 High-Yield Dividend Stocks to Buy and Hold Forever](https://finance.yahoo.com/news/3-high-yield-dividend-stocks-082200029.html)
+- Sep 30 - [Utah mom with terminal cancer plans her own funeral after three month diagnosis](https://www.yahoo.com/news/utah-mom-terminal-cancer-plans-205430684.html)
 - Sep 30 - [As big supermarkets pursue profits, new research shows growing exploitation of shrimp farmers](https://www.yahoo.com/news/big-supermarkets-pursue-profits-research-040945186.html)
 - Sep 30 - [Cost-conscious Chinese tourists look to affordable options for Golden Week holiday](https://www.yahoo.com/news/cost-conscious-chinese-tourists-look-030353967.html)
 - Sep 30 - [Diddy Accuser’s Attorney Says “High-Profile” Person Seen With Mogul in Pornographic Video](https://www.yahoo.com/news/diddy-accuser-attorney-says-high-014137148.html)
