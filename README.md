@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [What about crowd size? 43ft nude Trump statue erected along Las Vegas highway](https://www.yahoo.com/entertainment/crowd-size-43ft-nude-trump-134208092.html)
-- Sep 30 - [Is Dell Technologies Inc (NYSE:DELL) the Best Buy-The-Dip AI Stock for Long Term?](https://finance.yahoo.com/news/dell-technologies-inc-nyse-dell-133037892.html)
-- Sep 30 - [Why the world’s ultrawealthy are investing in Mauritius](https://finance.yahoo.com/news/why-world-ultrawealthy-investing-mauritius-131525238.html)
-- Sep 30 - [I moved from Texas to Massachusetts and took a 20% pay cut to live near my parents. They get to help with our kids.](https://www.yahoo.com/news/moved-1-800-miles-took-121145367.html)
-- Sep 30 - [How many times a year do Americans experience the Sunday scaries?](https://www.yahoo.com/news/many-times-americans-experience-sunday-131357944.html)
+- Sep 30 - [Trump Has a Wild New Theory for His Flagging Crowd Sizes](https://www.yahoo.com/news/trump-wild-theory-flagging-crowd-142533477.html)
+- Sep 30 - [Grave robbers steal priceless Mesa statue](https://www.yahoo.com/news/grave-robbers-steal-priceless-mesa-141600665.html)
+- Sep 30 - [Prince Harry to appear without Duchess for seventh time in seven days](https://www.yahoo.com/lifestyle/prince-harry-appear-without-meghan-141321383.html)
+- Sep 30 - [Video: Amazing Time-Lapse Of Artemis 1 Spacecraft Re-Entering Earth Atmosphere](https://www.yahoo.com/news/time-lapse-artemis-1-spacecraft-150000227.html)
+- Sep 30 - [Netanyahu rides wave of euphoria over assassinations as his political fortunes turn around](https://www.yahoo.com/news/netanyahu-rides-wave-euphoria-over-115142586.html)
 <!-- feed end -->
 
 ### Onstream
