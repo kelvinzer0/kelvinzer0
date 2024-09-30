@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [As big supermarkets pursue profits, new research shows growing exploitation of shrimp farmers](https://www.yahoo.com/news/big-supermarkets-pursue-profits-research-040945186.html)
+- Sep 30 - [Wyoming considers slight change to law allowing wolves to be killed with vehicles](https://www.yahoo.com/news/wyoming-considers-slight-change-law-040812816.html)
+- Sep 30 - [Cost-conscious Chinese tourists look to affordable options for Golden Week holiday](https://www.yahoo.com/news/cost-conscious-chinese-tourists-look-030353967.html)
+- Sep 30 - [China property shares jump as major cities ease buying curbs](https://finance.yahoo.com/news/china-property-shares-jump-easier-015327771.html)
 - Sep 30 - [Diddy Accuser’s Attorney Says “High-Profile” Person Seen With Mogul in Pornographic Video](https://www.yahoo.com/news/diddy-accuser-attorney-says-high-014137148.html)
-- Sep 30 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
-- Sep 30 - [Crew-9 astronauts arrive at space station after SpaceX reports rocket anomaly](https://www.yahoo.com/news/spacex-capsule-set-bring-home-140831960.html)
-- Sep 29 - [Man seriously hurt in fall at Minnesota Renaissance Festival](https://www.yahoo.com/news/man-seriously-hurt-fall-minnesota-234408328.html)
-- Sep 29 - [Apple’s rumored smart display may arrive in 2025 running new homeOS](https://www.yahoo.com/tech/apples-rumored-smart-display-may-arrive-in-2025-running-new-homeos-212401853.html)
 <!-- feed end -->
 
 ### Onstream
