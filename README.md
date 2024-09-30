@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [3 High-Yield Dividend Stocks to Buy and Hold Forever](https://finance.yahoo.com/news/3-high-yield-dividend-stocks-082200029.html)
-- Sep 30 - [Utah mom with terminal cancer plans her own funeral after three month diagnosis](https://www.yahoo.com/news/utah-mom-terminal-cancer-plans-205430684.html)
-- Sep 30 - [As big supermarkets pursue profits, new research shows growing exploitation of shrimp farmers](https://www.yahoo.com/news/big-supermarkets-pursue-profits-research-040945186.html)
-- Sep 30 - [Cost-conscious Chinese tourists look to affordable options for Golden Week holiday](https://www.yahoo.com/news/cost-conscious-chinese-tourists-look-030353967.html)
-- Sep 30 - [Diddy Accuser’s Attorney Says “High-Profile” Person Seen With Mogul in Pornographic Video](https://www.yahoo.com/news/diddy-accuser-attorney-says-high-014137148.html)
+- Sep 30 - [Typhoon Krathon – live: Taiwan braces for powerful storm after ‘very destructive’ rainfall in Philippines](https://www.yahoo.com/news/typhoon-krathon-live-taiwan-braces-065232582.html)
+- Sep 30 - [DEI is a business imperative: Wells Fargo Exec. VP](https://finance.yahoo.com/video/dei-business-imperative-wells-fargo-232024843.html)
+- Sep 30 - [Two dead as wildfire rages at Greek holiday resort](https://www.yahoo.com/news/two-dead-wildfire-rages-greek-094942023.html)
+- Sep 30 - [RI landlords need to register apartments by Tuesday. Here's what happens if they don't.](https://www.yahoo.com/news/ri-landlords-register-apartments-tuesday-091516365.html)
+- Sep 30 - [Lindsey Graham’s Body Language Over Offensive Donald Trump Remark Says It All](https://www.yahoo.com/news/lindsey-graham-body-language-over-074400056.html)
 <!-- feed end -->
 
 ### Onstream
