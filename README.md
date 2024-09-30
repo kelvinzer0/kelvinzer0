@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 30 - [As big supermarkets pursue profits, new research shows growing exploitation of shrimp farmers](https://www.yahoo.com/news/big-supermarkets-pursue-profits-research-040945186.html)
-- Sep 30 - [Wyoming considers slight change to law allowing wolves to be killed with vehicles](https://www.yahoo.com/news/wyoming-considers-slight-change-law-040812816.html)
 - Sep 30 - [Cost-conscious Chinese tourists look to affordable options for Golden Week holiday](https://www.yahoo.com/news/cost-conscious-chinese-tourists-look-030353967.html)
-- Sep 30 - [China property shares jump as major cities ease buying curbs](https://finance.yahoo.com/news/china-property-shares-jump-easier-015327771.html)
 - Sep 30 - [Diddy Accuser’s Attorney Says “High-Profile” Person Seen With Mogul in Pornographic Video](https://www.yahoo.com/news/diddy-accuser-attorney-says-high-014137148.html)
+- Sep 30 - [ROCKDALE COUNTY CHEMICAL FIRE: I-20 closed, 17,000 in evacuation zone, residents to shelter in place](https://www.yahoo.com/news/fire-conyers-chemical-plant-prompts-121059710.html)
+- Sep 30 - [A Spider Was Filmed Eating a Shrew, And You Can't Unsee This](https://www.yahoo.com/news/spider-filmed-eating-shrew-cant-003054813.html)
 <!-- feed end -->
 
 ### Onstream
