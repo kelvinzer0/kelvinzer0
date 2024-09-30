@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Ukraine's recent strikes on arms depots caused the largest loss of Russian and North Korean ammo in the war: UK intel](https://www.yahoo.com/news/ukraines-recent-strikes-arms-depots-122146633.html)
-- Sep 30 - [Man spends £10k transforming a static caravan into a log cabin in just a few months](https://www.yahoo.com/news/man-spends-10k-transforming-static-121952602.html)
-- Sep 30 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. OpenAI Turns For-Profit](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Sep 30 - [I Combed Through Hundreds Of Pre-Prime Day Deals And Found 24 Winners](https://www.yahoo.com/lifestyle/combed-hundreds-pre-prime-day-120000628.html)
-- Sep 30 - [Big US oil companies reveal massive payments to foreign governments](https://finance.yahoo.com/news/big-us-oil-companies-reveal-110402090.html)
+- Sep 30 - [What about crowd size? 43ft nude Trump statue erected along Las Vegas highway](https://www.yahoo.com/entertainment/crowd-size-43ft-nude-trump-134208092.html)
+- Sep 30 - [Is Dell Technologies Inc (NYSE:DELL) the Best Buy-The-Dip AI Stock for Long Term?](https://finance.yahoo.com/news/dell-technologies-inc-nyse-dell-133037892.html)
+- Sep 30 - [Why the world’s ultrawealthy are investing in Mauritius](https://finance.yahoo.com/news/why-world-ultrawealthy-investing-mauritius-131525238.html)
+- Sep 30 - [I moved from Texas to Massachusetts and took a 20% pay cut to live near my parents. They get to help with our kids.](https://www.yahoo.com/news/moved-1-800-miles-took-121145367.html)
+- Sep 30 - [How many times a year do Americans experience the Sunday scaries?](https://www.yahoo.com/news/many-times-americans-experience-sunday-131357944.html)
 <!-- feed end -->
 
 ### Onstream
