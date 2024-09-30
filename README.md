@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Get Ready For More Car And Parts Shortages](https://autos.yahoo.com/ready-more-car-parts-shortages-213000149.html)
-- Sep 30 - [‘Catastrophically unsafe’: Neighbors find heartbreaking loss in Chimney Rock, vow to rebuild](https://www.yahoo.com/news/catastrophically-unsafe-neighbors-heartbreaking-loss-211624541.html)
-- Sep 30 - [Helene devastated this small Ashe County town. Now its residents are feeding one another](https://www.yahoo.com/news/helene-devastated-small-ashe-county-210144020.html)
-- Sep 30 - [Why investors may want to own Ford stock now: Analyst](https://finance.yahoo.com/video/why-ford-benefit-investors-analyst-201852074.html)
-- Sep 30 - [Tesla investor Ross Gerber says he's been dumping the stock because no one wants the company's cars or robots](https://autos.yahoo.com/tesla-investor-ross-gerber-says-234413902.html)
+- Sep 30 - [A Gen Xer with a master's degree hasn't found work in 9 years. He says he's only landed four interviews.](https://finance.yahoo.com/news/gen-xer-masters-degree-looking-180302777.html)
+- Sep 30 - [Putin orders conscription of 133,000 servicemen in Russia's autumn draft](https://www.yahoo.com/news/putin-orders-conscription-133-000-222425452.html)
+- Sep 30 - [‘Absolute total loss’: Evacuees return to homes along Catawba River](https://www.yahoo.com/news/ain-t-dry-house-down-222836308.html)
+- Sep 30 - [Convicted murderer released in the '90s agrees to life sentence on 2 new murder charges](https://www.yahoo.com/news/convicted-murderer-released-90s-agrees-214432487.html)
+- Sep 30 - [US says 40 foreign operators may be using Boeing 737s with suspect rudder control parts](https://finance.yahoo.com/news/us-says-40-foreign-operators-200301573.html)
 <!-- feed end -->
 
 ### Onstream
