@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [Indian Oil Corp withdraws $2.6 billion rights issue](https://finance.yahoo.com/news/indian-oil-corp-withdraws-2-155656669.html)
+- Sep 30 - [The Internet Can't Get Over This Moment From Trump's Speech](https://www.yahoo.com/news/internet-cant-over-moment-trumps-153843728.html)
+- Sep 30 - [Best Apple Watch 8 deals: Save on last year’s model](https://www.yahoo.com/tech/best-apple-watch-8-deals-165621774.html)
+- Sep 30 - [In address to Iran, Netanyahu says nowhere in Middle East out of Israel's reach](https://www.yahoo.com/news/address-iran-netanyahu-says-nowhere-144110312.html)
 - Sep 30 - [Trump Has a Wild New Theory for His Flagging Crowd Sizes](https://www.yahoo.com/news/trump-wild-theory-flagging-crowd-142533477.html)
-- Sep 30 - [Grave robbers steal priceless Mesa statue](https://www.yahoo.com/news/grave-robbers-steal-priceless-mesa-141600665.html)
-- Sep 30 - [Prince Harry to appear without Duchess for seventh time in seven days](https://www.yahoo.com/lifestyle/prince-harry-appear-without-meghan-141321383.html)
-- Sep 30 - [Video: Amazing Time-Lapse Of Artemis 1 Spacecraft Re-Entering Earth Atmosphere](https://www.yahoo.com/news/time-lapse-artemis-1-spacecraft-150000227.html)
-- Sep 30 - [Netanyahu rides wave of euphoria over assassinations as his political fortunes turn around](https://www.yahoo.com/news/netanyahu-rides-wave-euphoria-over-115142586.html)
 <!-- feed end -->
 
 ### Onstream
