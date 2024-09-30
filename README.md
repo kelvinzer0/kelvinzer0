@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [Georgia chemical plant fire reignited after being contained: official](https://www.yahoo.com/news/georgia-chemical-plant-fire-reignited-061237969.html)
+- Sep 30 - [US East Coast port strike looms Tuesday with no talks scheduled](https://www.yahoo.com/news/us-east-coast-port-strike-080611488.html)
+- Sep 30 - [China’s astronauts are aiming to land on the moon by 2030. They now have a new spacesuit to do it](https://www.yahoo.com/news/china-astronauts-aiming-land-moon-053715466.html)
 - Sep 30 - [As big supermarkets pursue profits, new research shows growing exploitation of shrimp farmers](https://www.yahoo.com/news/big-supermarkets-pursue-profits-research-040945186.html)
 - Sep 30 - [Cost-conscious Chinese tourists look to affordable options for Golden Week holiday](https://www.yahoo.com/news/cost-conscious-chinese-tourists-look-030353967.html)
 - Sep 30 - [Diddy Accuser’s Attorney Says “High-Profile” Person Seen With Mogul in Pornographic Video](https://www.yahoo.com/news/diddy-accuser-attorney-says-high-014137148.html)
-- Sep 30 - [ROCKDALE COUNTY CHEMICAL FIRE: I-20 closed, 17,000 in evacuation zone, residents to shelter in place](https://www.yahoo.com/news/fire-conyers-chemical-plant-prompts-121059710.html)
 <!-- feed end -->
 
 ### Onstream
