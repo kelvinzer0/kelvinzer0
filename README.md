@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Your Monthly Work Horoscope for October 2024](https://www.yahoo.com/lifestyle/monthly-horoscope-october-2024-070000652.html)
+- Oct 01 - [Germany arrests woman who allegedly passed airport details to suspected spy for China](https://www.yahoo.com/news/germany-arrests-woman-allegedly-passed-095637497.html)
+- Oct 01 - [Foxconn says execs from Nvidia, Google, BMW will speak at its annual forum](https://finance.yahoo.com/news/foxconn-says-execs-nvidia-google-091202017.html)
+- Oct 01 - [Many Dockworkers Make $150,000 or More. Why They’re Going on Strike.](https://www.barrons.com/articles/port-pay-dock-workers-pay-demands-7e5b52dd?siteid=yhoof2&yptr=yahoo)
 - Oct 01 - [South Korea unveils its most powerful missile, which could reach North Korea's underground bunkers](https://www.yahoo.com/news/south-korea-unveils-most-powerful-035827823.html)
 - Oct 01 - [Israel begins ground offensive against Hezbollah in southern Lebanon](https://www.yahoo.com/news/israel-begins-ground-offensive-against-024134956.html)
-- Oct 01 - [Asheville tragedy shows there are no climate change safe havens: experts](https://www.yahoo.com/news/asheville-tragedy-shows-no-climate-003500794.html)
-- Oct 01 - [Billionaire Warren Buffett Still Lives In An Old Corner House He Purchased For $32K: 'I Couldn't Imagine Having A Better House'](https://finance.yahoo.com/news/billionaire-warren-buffett-still-lives-001947793.html)
 <!-- feed end -->
 
 ### Onstream
