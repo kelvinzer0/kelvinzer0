@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [US Navy warships shot down Iranian missiles fired at Israel in massive barrage](https://www.yahoo.com/news/us-navy-warships-shot-down-190552862.html)
-- Oct 01 - [Ex-Jags employee who stole $22M from team sues FanDuel for $250M, claims it 'exploited' his gambling addiction](https://sports.yahoo.com/ex-jags-employee-who-stole-22m-from-team-sues-fanduel-for-250m-claims-it-exploited-his-gambling-addiction-163846390.html)
-- Oct 01 - [Women Are Sharing Times When Their Husbands Were Offered Pain Medication, But They Were Not, Despite Having The Same Procedures](https://www.yahoo.com/news/women-sharing-times-husbands-were-162934936.html)
-- Oct 01 - [What caused the Verizon outage yesterday? What we know.](https://www.yahoo.com/tech/caused-verizon-outage-yesterday-know-160549411.html)
-- Oct 01 - [Haunting Final Photo Shows Grandparents’ Desperate Attempt to Escape Helene Flooding](https://www.yahoo.com/news/haunting-final-pic-shows-grandparents-155933135.html)
+- Oct 01 - [Video captures Tesla vehicle bursting into flames as Hurricane Helene floods Florida garage](https://www.yahoo.com/news/video-captures-tesla-vehicle-bursting-194846875.html)
+- Oct 01 - [Are You A 'Rich' Retiree? Here's The Net Worth And Income You Need To Be In The Top 10%](https://finance.yahoo.com/news/rich-retiree-heres-net-worth-193214164.html)
+- Oct 01 - [What is the mask ordinance to be enforced in Louisville? What we know](https://www.yahoo.com/news/mask-ordinance-enforced-louisville-know-181837542.html)
+- Oct 01 - [CNN reporter Jim Sciutto seeks cover as missile makes impact nearby while reporting in Israel: 'Oh God'](https://www.yahoo.com/news/cnn-reporter-jim-sciutto-seeks-181418781.html)
+- Oct 01 - [Toyota Motor's US September Sales Drop; Electrified Vehicles Account For Nearly 50% Of Sales](https://finance.yahoo.com/news/toyota-motors-us-september-sales-174243568.html)
 <!-- feed end -->
 
 ### Onstream
