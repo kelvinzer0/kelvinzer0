@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Video captures Tesla vehicle bursting into flames as Hurricane Helene floods Florida garage](https://www.yahoo.com/news/video-captures-tesla-vehicle-bursting-194846875.html)
-- Oct 01 - [Are You A 'Rich' Retiree? Here's The Net Worth And Income You Need To Be In The Top 10%](https://finance.yahoo.com/news/rich-retiree-heres-net-worth-193214164.html)
-- Oct 01 - [What is the mask ordinance to be enforced in Louisville? What we know](https://www.yahoo.com/news/mask-ordinance-enforced-louisville-know-181837542.html)
+- Oct 01 - [Iran calls on UN to prevent further escalation in Middle East tensions](https://www.yahoo.com/news/iran-calls-un-prevent-further-205340121.html)
+- Oct 01 - [Trump Just Responded to Middle East Conflict. You’ll Wish He Hadn’t.](https://www.yahoo.com/news/trump-just-responded-middle-east-191224167.html)
+- Oct 01 - [Investigators show video of fatal shooting of Kentucky judge by accused county sheriff](https://www.yahoo.com/news/amid-questions-motive-court-sees-183030459.html)
 - Oct 01 - [CNN reporter Jim Sciutto seeks cover as missile makes impact nearby while reporting in Israel: 'Oh God'](https://www.yahoo.com/news/cnn-reporter-jim-sciutto-seeks-181418781.html)
 - Oct 01 - [Toyota Motor's US September Sales Drop; Electrified Vehicles Account For Nearly 50% Of Sales](https://finance.yahoo.com/news/toyota-motors-us-september-sales-174243568.html)
 <!-- feed end -->
