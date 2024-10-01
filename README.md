@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Yes, calling someone ‘mentally disabled’ causes real harm](https://www.yahoo.com/news/yes-calling-someone-mentally-disabled-122748962.html)
-- Oct 01 - [3 Top Dividend Stocks Yielding 5.6%](https://finance.yahoo.com/news/3-top-dividend-stocks-yielding-130917740.html)
-- Oct 01 - [Fired GMA Weatherman Rob Marciano Set to Make a Comeback](https://www.yahoo.com/entertainment/fired-gma-weatherman-rob-marciano-114326687.html)
-- Oct 01 - [Apple may need to turn to China after Indian Tata plant fire, sources say](https://finance.yahoo.com/news/apple-may-turn-china-indian-113547412.html)
-- Oct 01 - [CNN Panelist Completely Loses It With GOP Rep: ‘That’s a Lie! You’re Lying!’](https://www.yahoo.com/news/cnn-panelist-completely-loses-gop-104530580.html)
+- Oct 01 - [Israeli airstrike hits residential building near Iranian embassy in Beirut](https://www.yahoo.com/news/israeli-airstrike-hits-residential-building-151251771.html)
+- Oct 01 - [Many Dockworkers Make $150,000 or More. Why They’re Going on Strike.](https://www.barrons.com/articles/port-pay-dock-workers-pay-demands-7e5b52dd?siteid=yhoof2&yptr=yahoo)
+- Oct 01 - [Mystery after 6,000-pound nude Trump statue vanishes from Vegas road days after being erected](https://www.yahoo.com/entertainment/mystery-6-000-pound-nude-143434354.html)
+- Oct 01 - [Montana rancher gets 6 months in prison for creating hybrid sheep for captive hunting](https://www.yahoo.com/news/montana-rancher-gets-6-months-135659621.html)
+- Oct 01 - [PS5 Pro Preorders Haven’t Sold Out, Prompting Bizarre Reactions](https://www.yahoo.com/tech/ps5-pro-preorders-haven-t-131709828.html)
 <!-- feed end -->
 
 ### Onstream
