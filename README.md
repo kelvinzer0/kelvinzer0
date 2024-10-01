@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Couple steals £200k from slaves they put to work at McDonald’s restaurant](https://www.yahoo.com/news/couple-steals-200k-slaves-put-222757391.html)
-- Oct 01 - [Japan's new PM Ishiba set to be formally anointed, unveil cabinet](https://www.yahoo.com/news/japans-pm-ishiba-set-formally-011341508.html)
+- Oct 01 - [Israel begins ground offensive against Hezbollah in southern Lebanon](https://www.yahoo.com/news/israel-begins-ground-offensive-against-024134956.html)
+- Oct 01 - [Man Buys Taylor Swift-Signed Guitar in Auction for $4000, Promptly Destroys It](https://www.yahoo.com/entertainment/man-buys-taylor-swift-signed-011834765.html)
 - Oct 01 - [Asheville tragedy shows there are no climate change safe havens: experts](https://www.yahoo.com/news/asheville-tragedy-shows-no-climate-003500794.html)
-- Sep 30 - ['Don't let me die' — California sues Eureka hospital for denying a woman an emergency abortion](https://www.yahoo.com/news/dont-let-die-california-sues-234125247.html)
+- Sep 30 - [Suspect in Eugene Fern Ridge Trail rape case arraigned in Lane County court](https://www.yahoo.com/news/suspect-eugene-fern-ridge-trail-235527505.html)
 - Sep 30 - [Police in a cartel-dominated Mexican city are pulled off the streets after army takes their guns](https://www.yahoo.com/news/police-cartel-dominated-mexican-city-225129489.html)
 <!-- feed end -->
 
