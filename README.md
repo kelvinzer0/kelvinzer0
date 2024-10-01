@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Israeli airstrike hits residential building near Iranian embassy in Beirut](https://www.yahoo.com/news/israeli-airstrike-hits-residential-building-151251771.html)
-- Oct 01 - [Many Dockworkers Make $150,000 or More. Why They’re Going on Strike.](https://www.barrons.com/articles/port-pay-dock-workers-pay-demands-7e5b52dd?siteid=yhoof2&yptr=yahoo)
-- Oct 01 - [Mystery after 6,000-pound nude Trump statue vanishes from Vegas road days after being erected](https://www.yahoo.com/entertainment/mystery-6-000-pound-nude-143434354.html)
-- Oct 01 - [Montana rancher gets 6 months in prison for creating hybrid sheep for captive hunting](https://www.yahoo.com/news/montana-rancher-gets-6-months-135659621.html)
-- Oct 01 - [PS5 Pro Preorders Haven’t Sold Out, Prompting Bizarre Reactions](https://www.yahoo.com/tech/ps5-pro-preorders-haven-t-131709828.html)
+- Oct 01 - [Julian Assange makes first public statement since being freed: ‘I pled guilty to journalism’](https://www.yahoo.com/news/julian-assange-makes-first-public-103940057.html)
+- Oct 01 - [200+ women faced criminal charges over pregnancy in year after Dobbs, report finds](https://www.yahoo.com/news/200-women-faced-criminal-charges-154233992.html)
+- Oct 01 - [US watchdog issues warning to medical debt collectors](https://finance.yahoo.com/news/us-watchdog-issues-warning-medical-154058145.html)
+- Oct 01 - [Texas’ Abbott Touts Dallas Finance Hub as New Bourse Makes Hires](https://finance.yahoo.com/news/texas-abbott-touts-dallas-finance-153524732.html)
+- Oct 01 - [Murder in Brittany Estates: Sixth person now charged in 2019 mobile home park killing](https://www.yahoo.com/news/murder-brittany-estates-sixth-person-151925655.html)
 <!-- feed end -->
 
 ### Onstream
