@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Six killed as gunmen open fire in Tel Aviv](https://www.yahoo.com/news/four-killed-gunmen-open-fire-171726841.html)
+- Oct 01 - [The two things markets need to watch for amid port strike](https://finance.yahoo.com/video/two-things-markets-watch-amid-172020492.html)
+- Oct 01 - [Iran has launched a massive missile attack on Israel after Hamas and Hezbollah assassinations](https://www.yahoo.com/news/iran-launched-massive-missile-attack-164527935.html)
 - Oct 01 - [Women Are Sharing Times When Their Husbands Were Offered Pain Medication, But They Were Not, Despite Having The Same Procedures](https://www.yahoo.com/news/women-sharing-times-husbands-were-162934936.html)
-- Oct 01 - [Officials identify driver who crashed into a Texas pipeline and sparked a 4-day fire](https://www.yahoo.com/news/officials-identify-driver-crashed-texas-162032970.html)
 - Oct 01 - [Haunting Final Photo Shows Grandparents’ Desperate Attempt to Escape Helene Flooding](https://www.yahoo.com/news/haunting-final-pic-shows-grandparents-155933135.html)
-- Oct 01 - [Many Dockworkers Make $150,000 or More. Why They’re Going on Strike.](https://www.barrons.com/articles/port-pay-dock-workers-pay-demands-7e5b52dd?siteid=yhoof2&yptr=yahoo)
-- Oct 01 - [Montana rancher gets 6 months in prison for creating hybrid sheep for captive hunting](https://www.yahoo.com/news/montana-rancher-gets-6-months-135659621.html)
 <!-- feed end -->
 
 ### Onstream
