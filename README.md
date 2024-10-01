@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Nike's Q1 results, gold prices: Asking for a Trend](https://finance.yahoo.com/video/nikes-q1-results-gold-prices-225159422.html)
+- Oct 01 - [Ex-leaders of a Penn State frat will spend time in jail for their roles in a hazing death](https://www.yahoo.com/news/ex-leaders-penn-state-frat-212609556.html)
 - Oct 01 - [Iran calls on UN to prevent further escalation in Middle East tensions](https://www.yahoo.com/news/iran-calls-un-prevent-further-205340121.html)
-- Oct 01 - [Trump Just Responded to Middle East Conflict. You’ll Wish He Hadn’t.](https://www.yahoo.com/news/trump-just-responded-middle-east-191224167.html)
-- Oct 01 - [Investigators show video of fatal shooting of Kentucky judge by accused county sheriff](https://www.yahoo.com/news/amid-questions-motive-court-sees-183030459.html)
-- Oct 01 - [CNN reporter Jim Sciutto seeks cover as missile makes impact nearby while reporting in Israel: 'Oh God'](https://www.yahoo.com/news/cnn-reporter-jim-sciutto-seeks-181418781.html)
-- Oct 01 - [Toyota Motor's US September Sales Drop; Electrified Vehicles Account For Nearly 50% Of Sales](https://finance.yahoo.com/news/toyota-motors-us-september-sales-174243568.html)
+- Oct 01 - [Striking Boeing union presses CEO to 'truly engage' after workers' health coverage cut](https://finance.yahoo.com/news/striking-boeing-union-appeals-ceo-201856250.html)
+- Oct 01 - [Are You A 'Rich' Retiree? Here's The Net Worth And Income You Need To Be In The Top 10%](https://finance.yahoo.com/news/rich-retiree-heres-net-worth-193214164.html)
 <!-- feed end -->
 
 ### Onstream
