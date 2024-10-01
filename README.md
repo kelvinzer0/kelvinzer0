@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [DMV won’t require California drivers over 70 to take written tests for license renewals](https://www.yahoo.com/news/dmv-won-t-require-california-120224545.html)
-- Oct 01 - [Russia calls on Israel to withdraw troops from Lebanon](https://www.yahoo.com/news/russia-calls-israel-withdraw-troops-115433416.html)
-- Oct 01 - [Area of Beirut suburb in ruins after series of Israeli airstrikes](https://www.yahoo.com/news/area-beirut-suburb-ruins-series-111926851.html)
-- Oct 01 - [Tropical Storm Kirk expected to become a Hurricane Tuesday night](https://www.yahoo.com/news/tropical-storm-kirk-expected-become-092431313.html)
-- Oct 01 - [Will South Florida’s sleepy ‘City of Pleasant Living’ become our latest boomtown?](https://www.yahoo.com/news/south-florida-sleepy-city-pleasant-092000616.html)
+- Oct 01 - [Car theft gang used keyless device disguised as Gameboy to steal £2m worth of vehicles](https://www.yahoo.com/news/car-theft-gang-used-keyless-124224639.html)
+- Oct 01 - [Hurricane Helene's Devastation Of A Small Town In North Carolina Could Spell Disaster For Global Automotive Industry [Update]](https://autos.yahoo.com/hurricane-helenes-devastation-small-town-181500935.html)
+- Oct 01 - [Apple may need to turn to China after Indian Tata plant fire, sources say](https://finance.yahoo.com/news/apple-may-turn-china-indian-113547412.html)
+- Oct 01 - [Atlanta man was left with 2 auto loans after Geico canceled his $35K total loss settlement — here’s why](https://finance.yahoo.com/news/atlanta-man-left-2-auto-105100826.html)
+- Oct 01 - [Boeing weighs raising at least $10 billion selling stock, Bloomberg News reports](https://finance.yahoo.com/news/boeing-weighs-raising-least-10-102812371.html)
 <!-- feed end -->
 
 ### Onstream
