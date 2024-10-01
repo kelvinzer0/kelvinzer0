@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Six killed as gunmen open fire in Tel Aviv](https://www.yahoo.com/news/four-killed-gunmen-open-fire-171726841.html)
-- Oct 01 - [Iran launches salvo of missiles at Israel](https://www.yahoo.com/news/iran-launches-salvo-missiles-israel-180330946.html)
+- Oct 01 - [US Navy warships shot down Iranian missiles fired at Israel in massive barrage](https://www.yahoo.com/news/us-navy-warships-shot-down-190552862.html)
 - Oct 01 - [Ex-Jags employee who stole $22M from team sues FanDuel for $250M, claims it 'exploited' his gambling addiction](https://sports.yahoo.com/ex-jags-employee-who-stole-22m-from-team-sues-fanduel-for-250m-claims-it-exploited-his-gambling-addiction-163846390.html)
 - Oct 01 - [Women Are Sharing Times When Their Husbands Were Offered Pain Medication, But They Were Not, Despite Having The Same Procedures](https://www.yahoo.com/news/women-sharing-times-husbands-were-162934936.html)
+- Oct 01 - [What caused the Verizon outage yesterday? What we know.](https://www.yahoo.com/tech/caused-verizon-outage-yesterday-know-160549411.html)
 - Oct 01 - [Haunting Final Photo Shows Grandparents’ Desperate Attempt to Escape Helene Flooding](https://www.yahoo.com/news/haunting-final-pic-shows-grandparents-155933135.html)
 <!-- feed end -->
 
