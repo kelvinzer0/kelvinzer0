@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [After being bullied for my weight my entire life I lost 12 stone in 20 months](https://www.yahoo.com/lifestyle/woman-weight-loss-calorie-counting-bullied-103915977.html)
-- Oct 01 - [Satellite Footage Shows Typhoon Intensifying as It Nears Taiwan](https://www.yahoo.com/news/satellite-footage-shows-typhoon-intensifying-091802674.html)
-- Oct 01 - [One location of this well-known Peoria-area bar is currently closed](https://www.yahoo.com/news/one-location-well-known-peoria-091147964.html)
-- Oct 01 - [Many Dockworkers Make $150,000 or More. Why They’re Going on Strike.](https://www.barrons.com/articles/port-pay-dock-workers-pay-demands-7e5b52dd?siteid=yhoof2&yptr=yahoo)
-- Oct 01 - [Jon Stewart Calls Out Trump Supporters’ ‘Bizarro’ Portrayal of Former President: ‘It’s as Though They’ve Created a Fictional Character’](https://www.yahoo.com/entertainment/jon-stewart-calls-trump-supporters-061658013.html)
+- Oct 01 - [DMV won’t require California drivers over 70 to take written tests for license renewals](https://www.yahoo.com/news/dmv-won-t-require-california-120224545.html)
+- Oct 01 - [Russia calls on Israel to withdraw troops from Lebanon](https://www.yahoo.com/news/russia-calls-israel-withdraw-troops-115433416.html)
+- Oct 01 - [Area of Beirut suburb in ruins after series of Israeli airstrikes](https://www.yahoo.com/news/area-beirut-suburb-ruins-series-111926851.html)
+- Oct 01 - [Tropical Storm Kirk expected to become a Hurricane Tuesday night](https://www.yahoo.com/news/tropical-storm-kirk-expected-become-092431313.html)
+- Oct 01 - [Will South Florida’s sleepy ‘City of Pleasant Living’ become our latest boomtown?](https://www.yahoo.com/news/south-florida-sleepy-city-pleasant-092000616.html)
 <!-- feed end -->
 
 ### Onstream
