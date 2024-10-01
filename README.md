@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [South Korea unveils its most powerful missile, which could reach North Korea's underground bunkers](https://www.yahoo.com/news/south-korea-unveils-most-powerful-035827823.html)
 - Oct 01 - [Israel begins ground offensive against Hezbollah in southern Lebanon](https://www.yahoo.com/news/israel-begins-ground-offensive-against-024134956.html)
+- Oct 01 - [Costco prepares for possible looming port strike](https://www.yahoo.com/news/costco-prepares-possible-looming-port-023841439.html)
 - Oct 01 - [Asheville tragedy shows there are no climate change safe havens: experts](https://www.yahoo.com/news/asheville-tragedy-shows-no-climate-003500794.html)
-- Sep 30 - [A Gen Xer with a master's degree hasn't found work in 9 years. He says he's only landed four interviews.](https://finance.yahoo.com/news/gen-xer-masters-degree-looking-180302777.html)
-- Sep 30 - [Police in a cartel-dominated Mexican city are pulled off the streets after army takes their guns](https://www.yahoo.com/news/police-cartel-dominated-mexican-city-225129489.html)
-- Sep 30 - [Woman took off with cart full of goods from SLO hardware store, police say. Do you know her?](https://www.yahoo.com/news/woman-took-off-cart-full-223129343.html)
+- Sep 30 - [Snake captured in Tulare County: What to do if you find one](https://www.yahoo.com/news/snake-captured-tulare-county-one-232357413.html)
 <!-- feed end -->
 
 ### Onstream
