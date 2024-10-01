@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 01 - [Six killed as gunmen open fire in Tel Aviv](https://www.yahoo.com/news/four-killed-gunmen-open-fire-171726841.html)
-- Oct 01 - [The two things markets need to watch for amid port strike](https://finance.yahoo.com/video/two-things-markets-watch-amid-172020492.html)
-- Oct 01 - [Iran has launched a massive missile attack on Israel after Hamas and Hezbollah assassinations](https://www.yahoo.com/news/iran-launched-massive-missile-attack-164527935.html)
+- Oct 01 - [Iran launches salvo of missiles at Israel](https://www.yahoo.com/news/iran-launches-salvo-missiles-israel-180330946.html)
+- Oct 01 - [Ex-Jags employee who stole $22M from team sues FanDuel for $250M, claims it 'exploited' his gambling addiction](https://sports.yahoo.com/ex-jags-employee-who-stole-22m-from-team-sues-fanduel-for-250m-claims-it-exploited-his-gambling-addiction-163846390.html)
 - Oct 01 - [Women Are Sharing Times When Their Husbands Were Offered Pain Medication, But They Were Not, Despite Having The Same Procedures](https://www.yahoo.com/news/women-sharing-times-husbands-were-162934936.html)
 - Oct 01 - [Haunting Final Photo Shows Grandparents’ Desperate Attempt to Escape Helene Flooding](https://www.yahoo.com/news/haunting-final-pic-shows-grandparents-155933135.html)
 <!-- feed end -->
