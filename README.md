@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - ["We live next to a newbuild estate - 'dust storms and earthquakes' make life hell"](https://www.yahoo.com/news/live-next-newbuild-estate-dust-074746312.html)
+- Oct 01 - [Your Monthly Work Horoscope for October 2024](https://www.yahoo.com/lifestyle/monthly-horoscope-october-2024-070000652.html)
 - Oct 01 - [South Korea unveils its most powerful missile, which could reach North Korea's underground bunkers](https://www.yahoo.com/news/south-korea-unveils-most-powerful-035827823.html)
+- Oct 01 - [Israel begins ground offensive against Hezbollah in southern Lebanon](https://www.yahoo.com/news/israel-begins-ground-offensive-against-024134956.html)
 - Oct 01 - [Asheville tragedy shows there are no climate change safe havens: experts](https://www.yahoo.com/news/asheville-tragedy-shows-no-climate-003500794.html)
-- Sep 30 - [Video shows Russian jet zooming by within feet of US plane](https://www.yahoo.com/news/video-shows-russian-jet-zooming-225935295.html)
-- Sep 30 - [Police in a cartel-dominated Mexican city are pulled off the streets after army takes their guns](https://www.yahoo.com/news/police-cartel-dominated-mexican-city-225129489.html)
+- Oct 01 - [Billionaire Warren Buffett Still Lives In An Old Corner House He Purchased For $32K: 'I Couldn't Imagine Having A Better House'](https://finance.yahoo.com/news/billionaire-warren-buffett-still-lives-001947793.html)
 <!-- feed end -->
 
 ### Onstream
