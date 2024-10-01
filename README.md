@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Japan Gas Lobby Urges Government to Help With Open Contracts](https://finance.yahoo.com/news/japan-gas-lobby-urges-government-045150262.html)
 - Oct 01 - [South Korea unveils its most powerful missile, which could reach North Korea's underground bunkers](https://www.yahoo.com/news/south-korea-unveils-most-powerful-035827823.html)
-- Oct 01 - [Israel begins ground offensive against Hezbollah in southern Lebanon](https://www.yahoo.com/news/israel-begins-ground-offensive-against-024134956.html)
-- Oct 01 - [Costco prepares for possible looming port strike](https://www.yahoo.com/news/costco-prepares-possible-looming-port-023841439.html)
 - Oct 01 - [Asheville tragedy shows there are no climate change safe havens: experts](https://www.yahoo.com/news/asheville-tragedy-shows-no-climate-003500794.html)
-- Sep 30 - [Snake captured in Tulare County: What to do if you find one](https://www.yahoo.com/news/snake-captured-tulare-county-one-232357413.html)
+- Sep 30 - ['Don't let me die' — California sues Eureka hospital for denying a woman an emergency abortion](https://www.yahoo.com/news/dont-let-die-california-sues-234125247.html)
+- Sep 30 - [Video shows Russian jet zooming by within feet of US plane](https://www.yahoo.com/news/video-shows-russian-jet-zooming-225935295.html)
 <!-- feed end -->
 
 ### Onstream
