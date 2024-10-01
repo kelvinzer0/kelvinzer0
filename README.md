@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Germany arrests woman who allegedly passed airport details to suspected spy for China](https://www.yahoo.com/news/germany-arrests-woman-allegedly-passed-095637497.html)
-- Oct 01 - [Foxconn says execs from Nvidia, Google, BMW will speak at its annual forum](https://finance.yahoo.com/news/foxconn-says-execs-nvidia-google-091202017.html)
+- Oct 01 - [After being bullied for my weight my entire life I lost 12 stone in 20 months](https://www.yahoo.com/lifestyle/woman-weight-loss-calorie-counting-bullied-103915977.html)
+- Oct 01 - [Satellite Footage Shows Typhoon Intensifying as It Nears Taiwan](https://www.yahoo.com/news/satellite-footage-shows-typhoon-intensifying-091802674.html)
+- Oct 01 - [One location of this well-known Peoria-area bar is currently closed](https://www.yahoo.com/news/one-location-well-known-peoria-091147964.html)
 - Oct 01 - [Many Dockworkers Make $150,000 or More. Why They’re Going on Strike.](https://www.barrons.com/articles/port-pay-dock-workers-pay-demands-7e5b52dd?siteid=yhoof2&yptr=yahoo)
-- Oct 01 - [South Korea unveils its most powerful missile, which could reach North Korea's underground bunkers](https://www.yahoo.com/news/south-korea-unveils-most-powerful-035827823.html)
-- Oct 01 - [Israel begins ground offensive against Hezbollah in southern Lebanon](https://www.yahoo.com/news/israel-begins-ground-offensive-against-024134956.html)
+- Oct 01 - [Jon Stewart Calls Out Trump Supporters’ ‘Bizarro’ Portrayal of Former President: ‘It’s as Though They’ve Created a Fictional Character’](https://www.yahoo.com/entertainment/jon-stewart-calls-trump-supporters-061658013.html)
 <!-- feed end -->
 
 ### Onstream
