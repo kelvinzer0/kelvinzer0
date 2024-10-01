@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 30 - [A Gen Xer with a master's degree hasn't found work in 9 years. He says he's only landed four interviews.](https://finance.yahoo.com/news/gen-xer-masters-degree-looking-180302777.html)
-- Sep 30 - [Putin orders conscription of 133,000 servicemen in Russia's autumn draft](https://www.yahoo.com/news/putin-orders-conscription-133-000-222425452.html)
-- Sep 30 - [‘Absolute total loss’: Evacuees return to homes along Catawba River](https://www.yahoo.com/news/ain-t-dry-house-down-222836308.html)
-- Sep 30 - [Convicted murderer released in the '90s agrees to life sentence on 2 new murder charges](https://www.yahoo.com/news/convicted-murderer-released-90s-agrees-214432487.html)
-- Sep 30 - [US says 40 foreign operators may be using Boeing 737s with suspect rudder control parts](https://finance.yahoo.com/news/us-says-40-foreign-operators-200301573.html)
+- Oct 01 - [Couple steals £200k from slaves they put to work at McDonald’s restaurant](https://www.yahoo.com/news/couple-steals-200k-slaves-put-222757391.html)
+- Oct 01 - [Japan's new PM Ishiba set to be formally anointed, unveil cabinet](https://www.yahoo.com/news/japans-pm-ishiba-set-formally-011341508.html)
+- Oct 01 - [Asheville tragedy shows there are no climate change safe havens: experts](https://www.yahoo.com/news/asheville-tragedy-shows-no-climate-003500794.html)
+- Sep 30 - ['Don't let me die' — California sues Eureka hospital for denying a woman an emergency abortion](https://www.yahoo.com/news/dont-let-die-california-sues-234125247.html)
+- Sep 30 - [Police in a cartel-dominated Mexican city are pulled off the streets after army takes their guns](https://www.yahoo.com/news/police-cartel-dominated-mexican-city-225129489.html)
 <!-- feed end -->
 
 ### Onstream
