@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 01 - [Israel begins ground offensive against Hezbollah in southern Lebanon](https://www.yahoo.com/news/israel-begins-ground-offensive-against-024134956.html)
-- Oct 01 - [Man Buys Taylor Swift-Signed Guitar in Auction for $4000, Promptly Destroys It](https://www.yahoo.com/entertainment/man-buys-taylor-swift-signed-011834765.html)
 - Oct 01 - [Asheville tragedy shows there are no climate change safe havens: experts](https://www.yahoo.com/news/asheville-tragedy-shows-no-climate-003500794.html)
-- Sep 30 - [Suspect in Eugene Fern Ridge Trail rape case arraigned in Lane County court](https://www.yahoo.com/news/suspect-eugene-fern-ridge-trail-235527505.html)
+- Sep 30 - [A Gen Xer with a master's degree hasn't found work in 9 years. He says he's only landed four interviews.](https://finance.yahoo.com/news/gen-xer-masters-degree-looking-180302777.html)
 - Sep 30 - [Police in a cartel-dominated Mexican city are pulled off the streets after army takes their guns](https://www.yahoo.com/news/police-cartel-dominated-mexican-city-225129489.html)
+- Sep 30 - [Woman took off with cart full of goods from SLO hardware store, police say. Do you know her?](https://www.yahoo.com/news/woman-took-off-cart-full-223129343.html)
 <!-- feed end -->
 
 ### Onstream
