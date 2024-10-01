@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Car theft gang used keyless device disguised as Gameboy to steal £2m worth of vehicles](https://www.yahoo.com/news/car-theft-gang-used-keyless-124224639.html)
-- Oct 01 - [Hurricane Helene's Devastation Of A Small Town In North Carolina Could Spell Disaster For Global Automotive Industry [Update]](https://autos.yahoo.com/hurricane-helenes-devastation-small-town-181500935.html)
+- Oct 01 - [Yes, calling someone ‘mentally disabled’ causes real harm](https://www.yahoo.com/news/yes-calling-someone-mentally-disabled-122748962.html)
+- Oct 01 - [3 Top Dividend Stocks Yielding 5.6%](https://finance.yahoo.com/news/3-top-dividend-stocks-yielding-130917740.html)
+- Oct 01 - [Fired GMA Weatherman Rob Marciano Set to Make a Comeback](https://www.yahoo.com/entertainment/fired-gma-weatherman-rob-marciano-114326687.html)
 - Oct 01 - [Apple may need to turn to China after Indian Tata plant fire, sources say](https://finance.yahoo.com/news/apple-may-turn-china-indian-113547412.html)
-- Oct 01 - [Atlanta man was left with 2 auto loans after Geico canceled his $35K total loss settlement — here’s why](https://finance.yahoo.com/news/atlanta-man-left-2-auto-105100826.html)
-- Oct 01 - [Boeing weighs raising at least $10 billion selling stock, Bloomberg News reports](https://finance.yahoo.com/news/boeing-weighs-raising-least-10-102812371.html)
+- Oct 01 - [CNN Panelist Completely Loses It With GOP Rep: ‘That’s a Lie! You’re Lying!’](https://www.yahoo.com/news/cnn-panelist-completely-loses-gop-104530580.html)
 <!-- feed end -->
 
 ### Onstream
