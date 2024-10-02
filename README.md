@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [‘Bimbos’ and ‘Broads’: MAGA World Goes Into a Tailspin After CBS Cuts JD’s Mic](https://www.yahoo.com/news/bimbos-broads-maga-world-goes-020548286.html)
+- Oct 02 - [Donald Trump Takes Aim at Jimmy Carter on His Milestone 100th Birthday](https://www.yahoo.com/news/donald-trump-takes-aim-jimmy-014213487.html)
+- Oct 02 - [Video shows missile fragments on ground in occupied West Bank, after Iran launches barrage at Israel](https://www.yahoo.com/news/video-shows-missile-fragments-ground-013052630.html)
+- Oct 02 - [A deadly attack shakes up the bracket reveal for 2024’s Fat Bear Week contest](https://www.yahoo.com/news/deadly-attack-shakes-bracket-reveal-004222149.html)
 - Oct 02 - [Bankruptcy judge issues new ruling in case of Colorado football player Shilo Sanders](https://www.yahoo.com/news/bankruptcy-judge-issues-ruling-case-002244755.html)
-- Oct 01 - [US promises ‘severe consequences’ after Iran attacks Israel](https://www.yahoo.com/news/us-promises-severe-consequences-iran-210149691.html)
-- Oct 01 - [Ex-leaders of a Penn State frat will spend time in jail for their roles in a hazing death](https://www.yahoo.com/news/ex-leaders-penn-state-frat-212609556.html)
-- Oct 01 - [Co-owner of popular Gettysburg restaurant charged with selling drugs behind the eatery](https://www.yahoo.com/news/co-owner-popular-gettysburg-restaurant-212245189.html)
-- Oct 01 - [Iran calls on UN to prevent further escalation in Middle East tensions](https://www.yahoo.com/news/iran-calls-un-prevent-further-205340121.html)
 <!-- feed end -->
 
 ### Onstream
