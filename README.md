@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 02 - [Russia plans emergency public warning tests on Wednesday](https://www.yahoo.com/news/russia-plans-emergency-public-warning-042740999.html)
 - Oct 02 - [Who won the Vance v Walz debate? Our experts are unanimous](https://www.yahoo.com/news/won-vance-v-walz-debate-030331156.html)
+- Oct 02 - [How Iran may have breached the world’s best air defences](https://www.yahoo.com/news/four-reasons-why-iran-could-020635437.html)
 - Oct 02 - [‘Bimbos’ and ‘Broads’: MAGA World Goes Into a Tailspin After CBS Cuts JD’s Mic](https://www.yahoo.com/news/bimbos-broads-maga-world-goes-020548286.html)
 - Oct 02 - [Donald Trump Takes Aim at Jimmy Carter on His Milestone 100th Birthday](https://www.yahoo.com/news/donald-trump-takes-aim-jimmy-014213487.html)
-- Oct 02 - [Bankruptcy judge issues new ruling in case of Colorado football player Shilo Sanders](https://www.yahoo.com/news/bankruptcy-judge-issues-ruling-case-002244755.html)
 <!-- feed end -->
 
 ### Onstream
