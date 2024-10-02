@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Passengers line up at Beirut's airport after Israeli airstrikes](https://www.yahoo.com/news/passengers-line-beiruts-airport-israeli-181426740.html)
-- Oct 02 - [War analysts say the massive Iranian missile attack the US called 'ineffective' likely wasn't just for show](https://www.yahoo.com/news/war-analysts-massive-iranian-missile-171755160.html)
-- Oct 02 - [Trump Made a Menacing Election Threat Just Before the V.P. Debate](https://www.yahoo.com/news/trump-made-menacing-election-threat-153208306.html)
+- Oct 02 - [Easter Island prepares for solar eclipse](https://www.yahoo.com/news/easter-island-prepares-solar-eclipse-182906832.html)
+- Oct 02 - [500-pound bomb dropped during World War II explodes at Japanese airport: Watch video](https://www.yahoo.com/news/500-pound-bomb-dropped-during-174521411.html)
+- Oct 02 - [Donald Trump Went The Heck Off About The VP Debate, And Here's What Really Riled Him Up](https://www.yahoo.com/entertainment/donald-trump-went-heck-off-173057739.html)
+- Oct 02 - [Stellantis sales plunge in the U.S. as the CEO tries to fix his 'arrogant' mistakes](https://www.yahoo.com/tech/stellantis-u-sales-plunge-ceo-155500061.html)
 - Oct 02 - [NASA switches off instrument on Voyager 2 spacecraft to save power](https://www.yahoo.com/news/nasa-switches-off-instrument-voyager-151856210.html)
-- Oct 02 - [TikTok star 'Mr. Prada' arrested after Baton Rouge therapist found dead in tarp along road](https://www.yahoo.com/news/tiktok-star-mr-prada-arrested-144710654.html)
 <!-- feed end -->
 
 ### Onstream
