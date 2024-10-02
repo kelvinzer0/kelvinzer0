@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Bombshell special counsel filing includes new allegations of Trump's 'increasingly desperate' efforts to overturn election](https://www.yahoo.com/news/bombshell-special-counsel-filing-includes-193959558.html)
+- Oct 02 - [Bombshell immunity filing details Trump's alleged 'increasingly desperate' bid to overturn 2020 election](https://www.yahoo.com/news/bombshell-special-counsel-filing-includes-193959558.html)
+- Oct 02 - [Five Chinese nationals charged with covering up midnight visit to Michigan military site](https://www.yahoo.com/news/five-chinese-nationals-charged-covering-195446124.html)
+- Oct 02 - [Roman Catholic Diocese of Burlington files for bankruptcy protection](https://www.yahoo.com/news/roman-catholic-diocese-burlington-files-193503964.html)
 - Oct 02 - [Grandparents found hugging one another after fallen tree killed them in their South Carolina home](https://www.yahoo.com/news/grandparents-found-hugging-one-another-192228150.html)
-- Oct 02 - [GM's EV Sales Growth Soars, While Ford's Show Only Modest Gains](https://finance.yahoo.com/news/gms-ev-sales-growth-soars-185345266.html)
-- Oct 02 - [Why MercadoLibre (MELI) Shares Are Plunging Today](https://finance.yahoo.com/news/why-mercadolibre-meli-shares-plunging-174710075.html)
 - Oct 02 - [500-pound bomb dropped during World War II explodes at Japanese airport: Watch video](https://www.yahoo.com/news/500-pound-bomb-dropped-during-174521411.html)
 <!-- feed end -->
 
