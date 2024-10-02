@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [Russia plans emergency public warning tests on Wednesday](https://www.yahoo.com/news/russia-plans-emergency-public-warning-042740999.html)
 - Oct 02 - [Who won the Vance v Walz debate? Our experts are unanimous](https://www.yahoo.com/news/won-vance-v-walz-debate-030331156.html)
 - Oct 02 - [How Iran may have breached the world’s best air defences](https://www.yahoo.com/news/four-reasons-why-iran-could-020635437.html)
 - Oct 02 - [‘Bimbos’ and ‘Broads’: MAGA World Goes Into a Tailspin After CBS Cuts JD’s Mic](https://www.yahoo.com/news/bimbos-broads-maga-world-goes-020548286.html)
 - Oct 02 - [Donald Trump Takes Aim at Jimmy Carter on His Milestone 100th Birthday](https://www.yahoo.com/news/donald-trump-takes-aim-jimmy-014213487.html)
-- Oct 02 - [Iran says attack on Israel is over as fears grow of wider conflict](https://www.yahoo.com/news/iran-says-finished-attack-israel-000112148.html)
 <!-- feed end -->
 
 ### Onstream
