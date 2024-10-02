@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Dockworkers are waging a battle against automation. The rest of us may want to take notes](https://finance.yahoo.com/news/dockworkers-waging-battle-against-automation-093038292.html)
-- Oct 02 - [Outrage over farmer accused of feeding women to pigs](https://www.yahoo.com/news/outrage-over-farmer-accused-feeding-085826638.html)
-- Oct 02 - [Manchester City star arrested in Madrid for robbing mobile phone in nightclub](https://sports.yahoo.com/manchester-city-star-arrested-madrid-064600163.html)
+- Oct 02 - [A night out with the edgelords: Watching the Walz-Vance debate with DC’s young MAGA mob](https://www.yahoo.com/news/night-edgelords-watching-walz-vance-072316072.html)
+- Oct 02 - [Mexico’s first female president promises ‘no return to drug war’](https://www.yahoo.com/news/mexico-first-female-president-promises-112452444.html)
+- Oct 02 - [Retiring With $1.4M in Our Early 60s: Can We Safely Withdraw $90k per Year?](https://finance.yahoo.com/news/were-early-60s-1-4-120500190.html)
+- Oct 02 - [A US bomb from World War II explodes at a Japanese airport, causing a large crater in a taxiway](https://www.yahoo.com/news/us-bomb-world-war-ii-103352124.html)
 - Oct 02 - [Russia plans emergency public warning tests on Wednesday](https://www.yahoo.com/news/russia-plans-emergency-public-warning-042740999.html)
-- Oct 02 - [After pressing an Israel-Hezbollah cease-fire, the Biden administration shifts its message](https://www.yahoo.com/news/pressing-israel-hezbollah-cease-fire-041040465.html)
 <!-- feed end -->
 
 ### Onstream
