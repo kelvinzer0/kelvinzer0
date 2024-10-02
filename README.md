@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [Dockworkers are waging a battle against automation. The rest of us may want to take notes](https://finance.yahoo.com/news/dockworkers-waging-battle-against-automation-093038292.html)
+- Oct 02 - [Outrage over farmer accused of feeding women to pigs](https://www.yahoo.com/news/outrage-over-farmer-accused-feeding-085826638.html)
+- Oct 02 - [Manchester City star arrested in Madrid for robbing mobile phone in nightclub](https://sports.yahoo.com/manchester-city-star-arrested-madrid-064600163.html)
 - Oct 02 - [Russia plans emergency public warning tests on Wednesday](https://www.yahoo.com/news/russia-plans-emergency-public-warning-042740999.html)
 - Oct 02 - [After pressing an Israel-Hezbollah cease-fire, the Biden administration shifts its message](https://www.yahoo.com/news/pressing-israel-hezbollah-cease-fire-041040465.html)
-- Oct 02 - [Who won the Vance v Walz debate? Our experts are unanimous](https://www.yahoo.com/news/won-vance-v-walz-debate-030331156.html)
-- Oct 02 - [How Iran may have breached the world’s best air defences](https://www.yahoo.com/news/four-reasons-why-iran-could-020635437.html)
-- Oct 02 - [‘Bimbos’ and ‘Broads’: MAGA World Goes Into a Tailspin After CBS Cuts JD’s Mic](https://www.yahoo.com/news/bimbos-broads-maga-world-goes-020548286.html)
 <!-- feed end -->
 
 ### Onstream
