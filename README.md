@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - ['I hope this is the last time': Reaction in Jerusalem after Iran fires barrage of missiles at Israel](https://www.yahoo.com/news/hope-last-time-reaction-jerusalem-145422384.html)
+- Oct 02 - [Exclusive-Iran's Khamenei warned Nasrallah of Israeli plot to kill him, sources say](https://www.yahoo.com/news/exclusive-irans-khamenei-warned-nasrallah-144012476.html)
+- Oct 02 - [These 3 Bargain-Bin Dividend Value Stocks Have Become Too Cheap to Ignore](https://finance.yahoo.com/news/3-bargain-bin-dividend-value-134500979.html)
+- Oct 02 - [Destruction in southern Lebanese city of Nabatieh after intensive Israeli airstrikes](https://www.yahoo.com/news/destruction-southern-lebanese-city-nabatieh-133810247.html)
 - Oct 02 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
-- Oct 02 - [Mexico’s first female president promises ‘no return to drug war’](https://www.yahoo.com/news/mexico-first-female-president-promises-112452444.html)
-- Oct 02 - [A US bomb from World War II explodes at a Japanese airport, causing a large crater in a taxiway](https://www.yahoo.com/news/us-bomb-world-war-ii-103352124.html)
-- Oct 02 - [A simple, forehead-slapping mistake on your IRA could be costing you thousands](https://finance.yahoo.com/news/simple-forehead-slapping-mistake-ira-091052060.html)
-- Oct 02 - [University of New Mexico dealt legal blow after charging 'hefty' fee against conservative speaker: 'Major win'](https://www.yahoo.com/news/university-mexico-dealt-legal-blow-090051980.html)
 <!-- feed end -->
 
 ### Onstream
