@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 02 - ['I hope this is the last time': Reaction in Jerusalem after Iran fires barrage of missiles at Israel](https://www.yahoo.com/news/hope-last-time-reaction-jerusalem-145422384.html)
+- Oct 02 - [TikTok star 'Mr. Prada' arrested after Baton Rouge therapist found dead in tarp along road](https://www.yahoo.com/news/tiktok-star-mr-prada-arrested-144710654.html)
 - Oct 02 - [Exclusive-Iran's Khamenei warned Nasrallah of Israeli plot to kill him, sources say](https://www.yahoo.com/news/exclusive-irans-khamenei-warned-nasrallah-144012476.html)
-- Oct 02 - [These 3 Bargain-Bin Dividend Value Stocks Have Become Too Cheap to Ignore](https://finance.yahoo.com/news/3-bargain-bin-dividend-value-134500979.html)
-- Oct 02 - [Destruction in southern Lebanese city of Nabatieh after intensive Israeli airstrikes](https://www.yahoo.com/news/destruction-southern-lebanese-city-nabatieh-133810247.html)
-- Oct 02 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Oct 02 - [Trump backs out of "60 Minutes" interview after appearing confused at Wisconsin rally](https://www.yahoo.com/news/trump-backs-60-minutes-interview-143403858.html)
+- Oct 02 - [Ford reports weak US sales for third quarter](https://finance.yahoo.com/news/ford-reports-weak-us-sales-131827571.html)
 <!-- feed end -->
 
 ### Onstream
