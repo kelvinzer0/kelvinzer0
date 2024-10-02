@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Nike's Q1 results, gold prices: Asking for a Trend](https://finance.yahoo.com/video/nikes-q1-results-gold-prices-225159422.html)
+- Oct 02 - [Bankruptcy judge issues new ruling in case of Colorado football player Shilo Sanders](https://www.yahoo.com/news/bankruptcy-judge-issues-ruling-case-002244755.html)
+- Oct 01 - [US promises ‘severe consequences’ after Iran attacks Israel](https://www.yahoo.com/news/us-promises-severe-consequences-iran-210149691.html)
 - Oct 01 - [Ex-leaders of a Penn State frat will spend time in jail for their roles in a hazing death](https://www.yahoo.com/news/ex-leaders-penn-state-frat-212609556.html)
+- Oct 01 - [Co-owner of popular Gettysburg restaurant charged with selling drugs behind the eatery](https://www.yahoo.com/news/co-owner-popular-gettysburg-restaurant-212245189.html)
 - Oct 01 - [Iran calls on UN to prevent further escalation in Middle East tensions](https://www.yahoo.com/news/iran-calls-un-prevent-further-205340121.html)
-- Oct 01 - [Striking Boeing union presses CEO to 'truly engage' after workers' health coverage cut](https://finance.yahoo.com/news/striking-boeing-union-appeals-ceo-201856250.html)
-- Oct 01 - [Are You A 'Rich' Retiree? Here's The Net Worth And Income You Need To Be In The Top 10%](https://finance.yahoo.com/news/rich-retiree-heres-net-worth-193214164.html)
 <!-- feed end -->
 
 ### Onstream
