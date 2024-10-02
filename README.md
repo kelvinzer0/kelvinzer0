@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [Iran-Israel conflict, Nike update: Market Domination](https://finance.yahoo.com/video/iran-israel-conflict-nike-market-213352866.html)
+- Oct 02 - [How much do dockworkers make? What to know about wages amid ILA port strike](https://www.yahoo.com/news/much-dockworkers-know-wages-amid-210555077.html)
 - Oct 02 - [Bombshell immunity filing details Trump's alleged 'increasingly desperate' bid to overturn 2020 election](https://www.yahoo.com/news/bombshell-special-counsel-filing-includes-193959558.html)
+- Oct 02 - [Outbreak of gastrointestinal illnesses tied to Fairview Heights restaurant](https://www.yahoo.com/news/outbreak-gastrointestinal-illnesses-tied-fairview-202605538.html)
 - Oct 02 - [Five Chinese nationals charged with covering up midnight visit to Michigan military site](https://www.yahoo.com/news/five-chinese-nationals-charged-covering-195446124.html)
-- Oct 02 - [Roman Catholic Diocese of Burlington files for bankruptcy protection](https://www.yahoo.com/news/roman-catholic-diocese-burlington-files-193503964.html)
-- Oct 02 - [Grandparents found hugging one another after fallen tree killed them in their South Carolina home](https://www.yahoo.com/news/grandparents-found-hugging-one-another-192228150.html)
-- Oct 02 - [500-pound bomb dropped during World War II explodes at Japanese airport: Watch video](https://www.yahoo.com/news/500-pound-bomb-dropped-during-174521411.html)
 <!-- feed end -->
 
 ### Onstream
