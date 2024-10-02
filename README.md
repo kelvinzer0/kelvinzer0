@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Retiring With $1.4M in Our Early 60s: Can We Safely Withdraw $90k per Year?](https://finance.yahoo.com/news/were-early-60s-1-4-120500190.html)
+- Oct 02 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Oct 02 - [Mexico’s first female president promises ‘no return to drug war’](https://www.yahoo.com/news/mexico-first-female-president-promises-112452444.html)
 - Oct 02 - [A US bomb from World War II explodes at a Japanese airport, causing a large crater in a taxiway](https://www.yahoo.com/news/us-bomb-world-war-ii-103352124.html)
-- Oct 02 - [Jerome Powell says the 'real issue' behind the US housing crisis is 'not something the Fed can really fix'](https://finance.yahoo.com/news/jerome-powell-says-real-issue-102700513.html)
-- Oct 02 - [Q2 Data Analytics Earnings: Palantir (NYSE:PLTR) Impresses](https://finance.yahoo.com/news/q2-data-analytics-earnings-palantir-093648779.html)
 - Oct 02 - [A simple, forehead-slapping mistake on your IRA could be costing you thousands](https://finance.yahoo.com/news/simple-forehead-slapping-mistake-ira-091052060.html)
+- Oct 02 - [University of New Mexico dealt legal blow after charging 'hefty' fee against conservative speaker: 'Major win'](https://www.yahoo.com/news/university-mexico-dealt-legal-blow-090051980.html)
 <!-- feed end -->
 
 ### Onstream
