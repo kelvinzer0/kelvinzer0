@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [Passengers line up at Beirut's airport after Israeli airstrikes](https://www.yahoo.com/news/passengers-line-beiruts-airport-israeli-181426740.html)
+- Oct 02 - [War analysts say the massive Iranian missile attack the US called 'ineffective' likely wasn't just for show](https://www.yahoo.com/news/war-analysts-massive-iranian-missile-171755160.html)
+- Oct 02 - [Trump Made a Menacing Election Threat Just Before the V.P. Debate](https://www.yahoo.com/news/trump-made-menacing-election-threat-153208306.html)
 - Oct 02 - [NASA switches off instrument on Voyager 2 spacecraft to save power](https://www.yahoo.com/news/nasa-switches-off-instrument-voyager-151856210.html)
-- Oct 02 - [Exclusive-Iran's Khamenei warned Nasrallah of Israeli plot to kill him, sources say](https://www.yahoo.com/news/exclusive-irans-khamenei-warned-nasrallah-144012476.html)
-- Oct 02 - [Trump backs out of "60 Minutes" interview after appearing confused at Wisconsin rally](https://www.yahoo.com/news/trump-backs-60-minutes-interview-143403858.html)
-- Oct 02 - [Ford reports weak US sales for third quarter](https://finance.yahoo.com/news/ford-reports-weak-us-sales-131827571.html)
-- Oct 02 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Oct 02 - [TikTok star 'Mr. Prada' arrested after Baton Rouge therapist found dead in tarp along road](https://www.yahoo.com/news/tiktok-star-mr-prada-arrested-144710654.html)
 <!-- feed end -->
 
 ### Onstream
