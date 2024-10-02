@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Oct 02 - [After pressing an Israel-Hezbollah cease-fire, the Biden administration shifts its message](https://www.yahoo.com/news/pressing-israel-hezbollah-cease-fire-041040465.html)
 - Oct 02 - [Who won the Vance v Walz debate? Our experts are unanimous](https://www.yahoo.com/news/won-vance-v-walz-debate-030331156.html)
 - Oct 02 - [How Iran may have breached the world’s best air defences](https://www.yahoo.com/news/four-reasons-why-iran-could-020635437.html)
-- Oct 02 - [Seattle judge releases accused killer day after 65-year-old veteran’s murder](https://www.yahoo.com/news/seattle-judge-releases-accused-killer-014405511.html)
+- Oct 02 - [‘Bimbos’ and ‘Broads’: MAGA World Goes Into a Tailspin After CBS Cuts JD’s Mic](https://www.yahoo.com/news/bimbos-broads-maga-world-goes-020548286.html)
 <!-- feed end -->
 
 ### Onstream
