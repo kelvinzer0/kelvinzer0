@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [A night out with the edgelords: Watching the Walz-Vance debate with DC’s young MAGA mob](https://www.yahoo.com/news/night-edgelords-watching-walz-vance-072316072.html)
-- Oct 02 - [Mexico’s first female president promises ‘no return to drug war’](https://www.yahoo.com/news/mexico-first-female-president-promises-112452444.html)
 - Oct 02 - [Retiring With $1.4M in Our Early 60s: Can We Safely Withdraw $90k per Year?](https://finance.yahoo.com/news/were-early-60s-1-4-120500190.html)
 - Oct 02 - [A US bomb from World War II explodes at a Japanese airport, causing a large crater in a taxiway](https://www.yahoo.com/news/us-bomb-world-war-ii-103352124.html)
-- Oct 02 - [Russia plans emergency public warning tests on Wednesday](https://www.yahoo.com/news/russia-plans-emergency-public-warning-042740999.html)
+- Oct 02 - [Jerome Powell says the 'real issue' behind the US housing crisis is 'not something the Fed can really fix'](https://finance.yahoo.com/news/jerome-powell-says-real-issue-102700513.html)
+- Oct 02 - [Q2 Data Analytics Earnings: Palantir (NYSE:PLTR) Impresses](https://finance.yahoo.com/news/q2-data-analytics-earnings-palantir-093648779.html)
+- Oct 02 - [A simple, forehead-slapping mistake on your IRA could be costing you thousands](https://finance.yahoo.com/news/simple-forehead-slapping-mistake-ira-091052060.html)
 <!-- feed end -->
 
 ### Onstream
