@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Mass evacuations from Lebanon continue, as conflict in Middle East deepens](https://www.yahoo.com/news/mass-evacuations-lebanon-continue-conflict-161944938.html)
+- Oct 03 - [Ray-Ban Meta Glasses can be used to dox strangers via facial recognition, according to Harvard students. Here's how to protect yourself.](https://www.yahoo.com/tech/ray-ban-meta-glasses-used-190146191.html)
+- Oct 03 - [Ex-Houston officer rushed away in an ambulance during sentencing at double-murder trial](https://www.yahoo.com/news/ex-houston-officer-rushed-away-180909526.html)
+- Oct 03 - [Biden's student loan forgiveness plans can advance, judge rules](https://finance.yahoo.com/video/bidens-student-loan-forgiveness-plans-173718458.html)
 - Oct 03 - ["The Brand Told Me To Unalive Myself Because I Was Late Posting A TikTok" — This Mom's Viral Story Exposes The Reality Of How Cruel And Manipulative The Influencer Industry Can Be](https://www.yahoo.com/lifestyle/brand-told-unalive-myself-because-161626290.html)
 - Oct 03 - [Costco is now selling platinum bars. Here's the price of a bar.](https://finance.yahoo.com/news/costco-now-selling-platinum-bars-160214521.html)
-- Oct 03 - [Fat Bear Week Delayed After Deadly Fight Between 2 Bears](https://www.yahoo.com/news/fat-bear-week-delayed-deadly-160102748.html)
-- Oct 03 - [Lost biblical plant with medicinal properties resurrected from 1,000-year-old seed](https://www.yahoo.com/news/lost-biblical-tree-resurrected-1-134721648.html)
 <!-- feed end -->
 
 ### Onstream
