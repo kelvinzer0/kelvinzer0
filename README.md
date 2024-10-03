@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [American WWII bomb buried at Japanese airport explodes](https://www.yahoo.com/news/american-wwii-bomb-buried-japanese-005925680.html)
+- Oct 03 - [British woman forced to leave Lebanon with children but not husband](https://www.yahoo.com/news/british-woman-forced-leave-lebanon-022915060.html)
 - Oct 03 - [8th-grader arrested after an alleged shooting threat at a Kennewick middle school](https://www.yahoo.com/news/8th-grader-arrested-alleged-shooting-002142253.html)
-- Oct 02 - [Denzel Washington ‘screamed’ at Diddy during an all-night party in 2003 before ‘storming out’: report](https://www.yahoo.com/entertainment/denzel-washington-screamed-diddy-during-235646540.html)
+- Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
 - Oct 02 - [Tokyo expands underground 'cathedral' complex to counter climate change rains](https://www.yahoo.com/news/tokyo-expands-underground-cathedral-complex-232252467.html)
 - Oct 02 - [Parole rescinded for former LA police detective convicted of killing her ex-boyfriend’s wife in 1986](https://www.yahoo.com/news/parole-rescinded-former-la-police-221524646.html)
 <!-- feed end -->
