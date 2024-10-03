@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Ray-Ban Meta Glasses can be used to dox strangers via facial recognition, according to Harvard students. Here's how to protect yourself.](https://www.yahoo.com/tech/ray-ban-meta-glasses-used-190146191.html)
+- Oct 03 - [Tesla stock slips on debt sale, Cybertruck recall reports](https://finance.yahoo.com/video/tesla-stock-slips-debt-sale-202628218.html)
 - Oct 03 - [Ex-Houston officer rushed away in an ambulance during sentencing at double-murder trial](https://www.yahoo.com/news/ex-houston-officer-rushed-away-180909526.html)
 - Oct 03 - [Biden's student loan forgiveness plans can advance, judge rules](https://finance.yahoo.com/video/bidens-student-loan-forgiveness-plans-173718458.html)
-- Oct 03 - ["The Brand Told Me To Unalive Myself Because I Was Late Posting A TikTok" — This Mom's Viral Story Exposes The Reality Of How Cruel And Manipulative The Influencer Industry Can Be](https://www.yahoo.com/lifestyle/brand-told-unalive-myself-because-161626290.html)
-- Oct 03 - [Costco is now selling platinum bars. Here's the price of a bar.](https://finance.yahoo.com/news/costco-now-selling-platinum-bars-160214521.html)
+- Oct 03 - [Indiana man sentenced for neglect after rat attack on his infant son](https://www.yahoo.com/news/indiana-man-sentenced-neglect-rat-164019991.html)
+- Oct 03 - [Lost biblical plant with medicinal properties resurrected from 1,000-year-old seed](https://www.yahoo.com/news/lost-biblical-tree-resurrected-1-134721648.html)
 <!-- feed end -->
 
 ### Onstream
