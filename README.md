@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Thousands of shipping containers have been lost at sea. What happens when they burst open?](https://www.yahoo.com/news/thousands-shipping-containers-lost-sea-040303344.html)
+- Oct 03 - [Israeli military says it killed a senior Hamas leader in a Gaza strike earlier this year](https://www.yahoo.com/news/israeli-military-says-killed-senior-085657834.html)
+- Oct 03 - [Woman raped and killed on bench in Southall - court](https://www.yahoo.com/news/woman-raped-killed-bench-southall-080632567.html)
 - Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
+- Oct 02 - [Debris of Iranian missiles are seen in the West Bank](https://www.yahoo.com/news/debris-iranian-missiles-seen-west-232612766.html)
 - Oct 02 - [Tokyo expands underground 'cathedral' complex to counter climate change rains](https://www.yahoo.com/news/tokyo-expands-underground-cathedral-complex-232252467.html)
-- Oct 02 - [VIDEO: Hurricane Helene storm surge crashes into St. Pete home](https://www.yahoo.com/news/video-hurricane-helene-storm-surge-231945865.html)
-- Oct 02 - [Parole rescinded for former LA police detective convicted of killing her ex-boyfriend’s wife in 1986](https://www.yahoo.com/news/parole-rescinded-former-la-police-221524646.html)
 <!-- feed end -->
 
 ### Onstream
