@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Meta's ad strength more than supports reality losses: Analyst](https://finance.yahoo.com/video/metas-ad-strength-more-supports-151705342.html)
-- Oct 03 - [Horrified tourists flee as man shot dead at luxury Cancun resort](https://www.yahoo.com/news/horrified-tourists-flee-man-shot-142206479.html)
+- Oct 03 - [Factory orders unexpectedly dipped in August](https://finance.yahoo.com/video/factory-orders-unexpectedly-dipped-august-155244128.html)
+- Oct 03 - [Women Are Revealing The Struggles Of Standing Up For Yourself At The Doctor, And It's Frustrating But So Important](https://www.yahoo.com/lifestyle/women-revealing-struggles-standing-yourself-153102433.html)
+- Oct 03 - [Southwest makes key booking change travelers will like](https://www.yahoo.com/lifestyle/southwest-makes-key-booking-change-135134448.html)
 - Oct 03 - [Lost biblical tree resurrected from 1,000 year-old seed](https://www.yahoo.com/news/lost-biblical-tree-resurrected-1-134721648.html)
 - Oct 03 - [Yazidi woman freed from Gaza in US-led operation after decade in captivity](https://www.yahoo.com/news/yazidi-woman-freed-gaza-u-124022878.html)
-- Oct 03 - [Here are 4 common pitfalls American retirees are getting hurt by — how many are you falling for?](https://finance.yahoo.com/news/4-common-pitfalls-american-retirees-113300011.html)
 <!-- feed end -->
 
 ### Onstream
