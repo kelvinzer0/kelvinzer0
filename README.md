@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [‘In one day, it’s wiped out.’ Helene brought misery to businesses near the Catawba too](https://www.yahoo.com/news/one-day-wiped-helene-brought-095000002.html)
-- Oct 03 - [Bananas, beer and coffee could be supply chain casualties from Helene and a port strike](https://www.yahoo.com/news/bananas-beer-coffee-could-supply-094800215.html)
-- Oct 03 - [These trends reflect the 2024 homicide victims in Jackson. See data here](https://www.yahoo.com/news/trends-reflect-2024-homicide-victims-093158373.html)
+- Oct 03 - [Vietnam condemns China for assault on its fishermen in the disputed South China Sea](https://www.yahoo.com/news/vietnam-condemns-china-assault-fishermen-104515325.html)
+- Oct 03 - [Harvard Law Professor Spots 2 'Jaw-Dropping' Details In New Trump Filing](https://www.yahoo.com/news/harvard-law-professor-spots-2-072411111.html)
 - Oct 03 - [Thousands of shipping containers have been lost at sea. What happens when they burst open?](https://www.yahoo.com/news/thousands-shipping-containers-lost-sea-040303344.html)
 - Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
+- Oct 02 - [Denzel Washington ‘screamed’ at Diddy during an all-night party in 2003 before ‘storming out’: report](https://www.yahoo.com/entertainment/denzel-washington-screamed-diddy-during-235646540.html)
 <!-- feed end -->
 
 ### Onstream
