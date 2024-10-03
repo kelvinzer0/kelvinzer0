@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Fat Bear Week Delayed After Deadly Fight Between 2 Bears](https://www.yahoo.com/news/fat-bear-week-delayed-deadly-160102748.html)
+- Oct 03 - [Biden's student loan forgiveness plans can advance, judge rules](https://finance.yahoo.com/video/bidens-student-loan-forgiveness-plans-173718458.html)
+- Oct 03 - [Cal Poly student who allegedly shot guns on campus can stand trial, judge rules](https://www.yahoo.com/news/cal-poly-student-allegedly-shot-172222458.html)
+- Oct 03 - [Rare whale died of chronic entanglement in Maine fishing gear](https://www.yahoo.com/news/rare-whale-died-chronic-entanglement-165335728.html)
+- Oct 03 - [Mass evacuations from Lebanon continue, as conflict in Middle East deepens](https://www.yahoo.com/news/mass-evacuations-lebanon-continue-conflict-161944938.html)
 - Oct 03 - [Lost biblical plant with medicinal properties resurrected from 1,000-year-old seed](https://www.yahoo.com/news/lost-biblical-tree-resurrected-1-134721648.html)
-- Oct 03 - [Women Are Revealing The Struggles Of Standing Up For Yourself At The Doctor, And It's Frustrating But So Important](https://www.yahoo.com/lifestyle/women-revealing-struggles-standing-yourself-153102433.html)
-- Oct 03 - [McDonald’s Has a New Sandwich Hitting Menus Nationwide Next Week](https://www.yahoo.com/lifestyle/mcdonald-sandwich-hitting-menus-nationwide-130000313.html)
-- Oct 03 - [Here are 4 common pitfalls American retirees are getting hurt by — how many are you falling for?](https://finance.yahoo.com/news/4-common-pitfalls-american-retirees-113300011.html)
 <!-- feed end -->
 
 ### Onstream
