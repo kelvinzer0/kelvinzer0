@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Parole rescinded for former LA police detective convicted of killing her ex-boyfriend’s wife in 1986](https://www.yahoo.com/news/parole-rescinded-former-la-police-221524646.html)
-- Oct 02 - [How much do dockworkers make? What to know about wages amid ILA port strike](https://www.yahoo.com/news/much-dockworkers-know-wages-amid-210555077.html)
-- Oct 02 - [Bombshell immunity filing details Trump's alleged 'increasingly desperate' bid to overturn 2020 election](https://www.yahoo.com/news/bombshell-special-counsel-filing-includes-193959558.html)
-- Oct 02 - [Outbreak of gastrointestinal illnesses tied to Fairview Heights restaurant](https://www.yahoo.com/news/outbreak-gastrointestinal-illnesses-tied-fairview-202605538.html)
-- Oct 02 - [5 Chinese nationals charged with covering up midnight visit to Michigan military site](https://www.yahoo.com/news/five-chinese-nationals-charged-covering-195446124.html)
+- Oct 03 - [American WWII bomb buried at Japanese airport explodes](https://www.yahoo.com/news/american-wwii-bomb-buried-japanese-005925680.html)
+- Oct 02 - [Israel strikes heart of Beirut, killing six](https://www.yahoo.com/news/israel-strikes-heart-beirut-killing-233344724.html)
+- Oct 02 - [Tokyo expands underground 'cathedral' complex to counter climate change rains](https://www.yahoo.com/news/tokyo-expands-underground-cathedral-complex-232252467.html)
+- Oct 02 - [VIDEO: Hurricane Helene storm surge crashes into St. Pete home](https://www.yahoo.com/news/video-hurricane-helene-storm-surge-231945865.html)
+- Oct 02 - [Owners of certain Chevrolet, GMC trucks can claim money in $35 million settlement](https://finance.yahoo.com/news/owners-certain-chevrolet-gmc-trucks-210751350.html)
 <!-- feed end -->
 
 ### Onstream
