@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Tesla Preps Robotaxi Event.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Oct 03 - [Watch: U.S. Bomb From World War II Explodes at Japanese Airport](https://finance.yahoo.com/video/watch-u-bomb-world-war-112200403.html)
 - Oct 03 - [Peoria restaurant won't open in downtown after owners face 'too much conflict'](https://www.yahoo.com/news/peoria-restaurant-wont-open-downtown-111646816.html)
-- Oct 03 - [Israel says damage from Iranian missile attack minimal thanks to 'high-quality defence'](https://www.yahoo.com/news/israel-says-damage-iranian-missile-110156013.html)
 - Oct 03 - [‘New type of scam’: Lowell police warn residents ‘not to scan the QR code’](https://www.yahoo.com/news/type-scam-lowell-pd-warns-225138702.html)
+- Oct 03 - [Horry County voters have to answer one local question on November’s ballot. What is it?](https://www.yahoo.com/news/horry-county-voters-answer-one-100000225.html)
+- Oct 03 - [NASA spacecraft has roamed billions of miles — but hasn't reached the 'edge'](https://www.yahoo.com/lifestyle/nasa-spacecraft-roamed-billions-miles-093000520.html)
+- Oct 03 - [Prepare for attack, with best regards: Houthis issue email alert to shipping fleets](https://www.yahoo.com/news/houthis-warn-shipowners-phase-red-074145560.html)
 <!-- feed end -->
 
 ### Onstream
