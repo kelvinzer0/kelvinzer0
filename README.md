@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Black bear found dead on Tennessee highway next to pancakes](https://www.yahoo.com/news/black-bear-found-dead-tennessee-130721522.html)
-- Oct 03 - [If you bought this Breyers ice cream flavor in the past 8 years, you may be eligible for compensation](https://finance.yahoo.com/news/bought-breyers-ice-cream-flavor-042836206.html)
-- Oct 03 - [Southwest director buys 3.6 million shares, opposes more leadership changes](https://finance.yahoo.com/news/southwest-director-buys-3-6-002725201.html)
-- Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
-- Oct 02 - [Israel calls for evacuations from south Lebanon as explosions heard in Beirut](https://www.yahoo.com/news/israel-strikes-heart-beirut-killing-233344724.html)
+- Oct 03 - [Meta's ad strength more than supports reality losses: Analyst](https://finance.yahoo.com/video/metas-ad-strength-more-supports-151705342.html)
+- Oct 03 - [Horrified tourists flee as man shot dead at luxury Cancun resort](https://www.yahoo.com/news/horrified-tourists-flee-man-shot-142206479.html)
+- Oct 03 - [Lost biblical tree resurrected from 1,000 year-old seed](https://www.yahoo.com/news/lost-biblical-tree-resurrected-1-134721648.html)
+- Oct 03 - [Yazidi woman freed from Gaza in US-led operation after decade in captivity](https://www.yahoo.com/news/yazidi-woman-freed-gaza-u-124022878.html)
+- Oct 03 - [Here are 4 common pitfalls American retirees are getting hurt by — how many are you falling for?](https://finance.yahoo.com/news/4-common-pitfalls-american-retirees-113300011.html)
 <!-- feed end -->
 
 ### Onstream
