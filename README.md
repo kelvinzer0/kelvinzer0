@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 03 - [American WWII bomb buried at Japanese airport explodes](https://www.yahoo.com/news/american-wwii-bomb-buried-japanese-005925680.html)
-- Oct 02 - [Israel strikes heart of Beirut, killing six](https://www.yahoo.com/news/israel-strikes-heart-beirut-killing-233344724.html)
+- Oct 03 - [8th-grader arrested after an alleged shooting threat at a Kennewick middle school](https://www.yahoo.com/news/8th-grader-arrested-alleged-shooting-002142253.html)
+- Oct 02 - [Denzel Washington ‘screamed’ at Diddy during an all-night party in 2003 before ‘storming out’: report](https://www.yahoo.com/entertainment/denzel-washington-screamed-diddy-during-235646540.html)
 - Oct 02 - [Tokyo expands underground 'cathedral' complex to counter climate change rains](https://www.yahoo.com/news/tokyo-expands-underground-cathedral-complex-232252467.html)
-- Oct 02 - [VIDEO: Hurricane Helene storm surge crashes into St. Pete home](https://www.yahoo.com/news/video-hurricane-helene-storm-surge-231945865.html)
-- Oct 02 - [Owners of certain Chevrolet, GMC trucks can claim money in $35 million settlement](https://finance.yahoo.com/news/owners-certain-chevrolet-gmc-trucks-210751350.html)
+- Oct 02 - [Parole rescinded for former LA police detective convicted of killing her ex-boyfriend’s wife in 1986](https://www.yahoo.com/news/parole-rescinded-former-la-police-221524646.html)
 <!-- feed end -->
 
 ### Onstream
