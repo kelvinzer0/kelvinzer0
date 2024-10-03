@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Former officers found guilty of civil rights violations in Tyre Nichols beating death case](https://www.yahoo.com/news/verdict-reached-tyre-nichols-beating-213830238.html)
-- Oct 03 - [Tesla stock slips on debt sale, Cybertruck recall reports](https://finance.yahoo.com/video/tesla-stock-slips-debt-sale-202628218.html)
-- Oct 03 - [Watch: Yemen’s Houthi rebels strike British oil ship in Red Sea](https://www.yahoo.com/news/watch-yemen-houthi-rebels-strike-202425714.html)
+- Oct 03 - [Dockworkers' union suspend strike until Jan. 15 to allow time to negotiate new contract](https://finance.yahoo.com/news/source-dockworkers-union-suspend-strike-224037158.html)
+- Oct 03 - [Trump’s True Crowd Size Exposed in Embarrassing Video](https://www.yahoo.com/news/trump-true-crowd-size-exposed-201323784.html)
+- Oct 03 - [Texas teen abducted from Dallas Mavericks NBA game shares what lured her from dad](https://www.yahoo.com/news/texas-teen-abducted-dallas-mavericks-191620466.html)
 - Oct 03 - [Ex-Houston officer rushed away in an ambulance during sentencing at double-murder trial](https://www.yahoo.com/news/ex-houston-officer-rushed-away-180909526.html)
 - Oct 03 - [Biden's student loan forgiveness plans can advance, judge rules](https://finance.yahoo.com/video/bidens-student-loan-forgiveness-plans-173718458.html)
 <!-- feed end -->
