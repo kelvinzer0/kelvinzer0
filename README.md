@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [Former officers found guilty of civil rights violations in Tyre Nichols beating death case](https://www.yahoo.com/news/verdict-reached-tyre-nichols-beating-213830238.html)
 - Oct 03 - [Tesla stock slips on debt sale, Cybertruck recall reports](https://finance.yahoo.com/video/tesla-stock-slips-debt-sale-202628218.html)
+- Oct 03 - [Watch: Yemen’s Houthi rebels strike British oil ship in Red Sea](https://www.yahoo.com/news/watch-yemen-houthi-rebels-strike-202425714.html)
 - Oct 03 - [Ex-Houston officer rushed away in an ambulance during sentencing at double-murder trial](https://www.yahoo.com/news/ex-houston-officer-rushed-away-180909526.html)
 - Oct 03 - [Biden's student loan forgiveness plans can advance, judge rules](https://finance.yahoo.com/video/bidens-student-loan-forgiveness-plans-173718458.html)
-- Oct 03 - [Indiana man sentenced for neglect after rat attack on his infant son](https://www.yahoo.com/news/indiana-man-sentenced-neglect-rat-164019991.html)
-- Oct 03 - [Lost biblical plant with medicinal properties resurrected from 1,000-year-old seed](https://www.yahoo.com/news/lost-biblical-tree-resurrected-1-134721648.html)
 <!-- feed end -->
 
 ### Onstream
