@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Peoria restaurant won't open in downtown after owners face 'too much conflict'](https://www.yahoo.com/news/peoria-restaurant-wont-open-downtown-111646816.html)
-- Oct 03 - [‘New type of scam’: Lowell police warn residents ‘not to scan the QR code’](https://www.yahoo.com/news/type-scam-lowell-pd-warns-225138702.html)
-- Oct 03 - [Horry County voters have to answer one local question on November’s ballot. What is it?](https://www.yahoo.com/news/horry-county-voters-answer-one-100000225.html)
-- Oct 03 - [NASA spacecraft has roamed billions of miles — but hasn't reached the 'edge'](https://www.yahoo.com/lifestyle/nasa-spacecraft-roamed-billions-miles-093000520.html)
-- Oct 03 - [Prepare for attack, with best regards: Houthis issue email alert to shipping fleets](https://www.yahoo.com/news/houthis-warn-shipowners-phase-red-074145560.html)
+- Oct 03 - [Black bear found dead on Tennessee highway next to pancakes](https://www.yahoo.com/news/black-bear-found-dead-tennessee-130721522.html)
+- Oct 03 - [If you bought this Breyers ice cream flavor in the past 8 years, you may be eligible for compensation](https://finance.yahoo.com/news/bought-breyers-ice-cream-flavor-042836206.html)
+- Oct 03 - [Southwest director buys 3.6 million shares, opposes more leadership changes](https://finance.yahoo.com/news/southwest-director-buys-3-6-002725201.html)
+- Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
+- Oct 02 - [Israel calls for evacuations from south Lebanon as explosions heard in Beirut](https://www.yahoo.com/news/israel-strikes-heart-beirut-killing-233344724.html)
 <!-- feed end -->
 
 ### Onstream
