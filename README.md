@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Vietnam condemns China for assault on its fishermen in the disputed South China Sea](https://www.yahoo.com/news/vietnam-condemns-china-assault-fishermen-104515325.html)
-- Oct 03 - [Harvard Law Professor Spots 2 'Jaw-Dropping' Details In New Trump Filing](https://www.yahoo.com/news/harvard-law-professor-spots-2-072411111.html)
-- Oct 03 - [Thousands of shipping containers have been lost at sea. What happens when they burst open?](https://www.yahoo.com/news/thousands-shipping-containers-lost-sea-040303344.html)
-- Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
-- Oct 02 - [Denzel Washington ‘screamed’ at Diddy during an all-night party in 2003 before ‘storming out’: report](https://www.yahoo.com/entertainment/denzel-washington-screamed-diddy-during-235646540.html)
+- Oct 03 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Tesla Preps Robotaxi Event.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Oct 03 - [Watch: U.S. Bomb From World War II Explodes at Japanese Airport](https://finance.yahoo.com/video/watch-u-bomb-world-war-112200403.html)
+- Oct 03 - [Peoria restaurant won't open in downtown after owners face 'too much conflict'](https://www.yahoo.com/news/peoria-restaurant-wont-open-downtown-111646816.html)
+- Oct 03 - [Israel says damage from Iranian missile attack minimal thanks to 'high-quality defence'](https://www.yahoo.com/news/israel-says-damage-iranian-missile-110156013.html)
+- Oct 03 - [‘New type of scam’: Lowell police warn residents ‘not to scan the QR code’](https://www.yahoo.com/news/type-scam-lowell-pd-warns-225138702.html)
 <!-- feed end -->
 
 ### Onstream
