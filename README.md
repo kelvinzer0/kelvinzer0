@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Biden's student loan forgiveness plans can advance, judge rules](https://finance.yahoo.com/video/bidens-student-loan-forgiveness-plans-173718458.html)
-- Oct 03 - [Cal Poly student who allegedly shot guns on campus can stand trial, judge rules](https://www.yahoo.com/news/cal-poly-student-allegedly-shot-172222458.html)
-- Oct 03 - [Rare whale died of chronic entanglement in Maine fishing gear](https://www.yahoo.com/news/rare-whale-died-chronic-entanglement-165335728.html)
 - Oct 03 - [Mass evacuations from Lebanon continue, as conflict in Middle East deepens](https://www.yahoo.com/news/mass-evacuations-lebanon-continue-conflict-161944938.html)
+- Oct 03 - ["The Brand Told Me To Unalive Myself Because I Was Late Posting A TikTok" — This Mom's Viral Story Exposes The Reality Of How Cruel And Manipulative The Influencer Industry Can Be](https://www.yahoo.com/lifestyle/brand-told-unalive-myself-because-161626290.html)
+- Oct 03 - [Costco is now selling platinum bars. Here's the price of a bar.](https://finance.yahoo.com/news/costco-now-selling-platinum-bars-160214521.html)
+- Oct 03 - [Fat Bear Week Delayed After Deadly Fight Between 2 Bears](https://www.yahoo.com/news/fat-bear-week-delayed-deadly-160102748.html)
 - Oct 03 - [Lost biblical plant with medicinal properties resurrected from 1,000-year-old seed](https://www.yahoo.com/news/lost-biblical-tree-resurrected-1-134721648.html)
 <!-- feed end -->
 
