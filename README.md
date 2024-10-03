@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Israeli military says it killed a senior Hamas leader in a Gaza strike earlier this year](https://www.yahoo.com/news/israeli-military-says-killed-senior-085657834.html)
-- Oct 03 - [Woman raped and killed on bench in Southall - court](https://www.yahoo.com/news/woman-raped-killed-bench-southall-080632567.html)
+- Oct 03 - [‘In one day, it’s wiped out.’ Helene brought misery to businesses near the Catawba too](https://www.yahoo.com/news/one-day-wiped-helene-brought-095000002.html)
+- Oct 03 - [Bananas, beer and coffee could be supply chain casualties from Helene and a port strike](https://www.yahoo.com/news/bananas-beer-coffee-could-supply-094800215.html)
+- Oct 03 - [These trends reflect the 2024 homicide victims in Jackson. See data here](https://www.yahoo.com/news/trends-reflect-2024-homicide-victims-093158373.html)
+- Oct 03 - [Thousands of shipping containers have been lost at sea. What happens when they burst open?](https://www.yahoo.com/news/thousands-shipping-containers-lost-sea-040303344.html)
 - Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
-- Oct 02 - [Debris of Iranian missiles are seen in the West Bank](https://www.yahoo.com/news/debris-iranian-missiles-seen-west-232612766.html)
-- Oct 02 - [Tokyo expands underground 'cathedral' complex to counter climate change rains](https://www.yahoo.com/news/tokyo-expands-underground-cathedral-complex-232252467.html)
 <!-- feed end -->
 
 ### Onstream
