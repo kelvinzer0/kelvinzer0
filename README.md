@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Typhoon Krathon – live: Millions told to seek shelter as storm nears landfall in Taiwan](https://www.yahoo.com/news/typhoon-krathon-live-taiwan-braces-065232582.html)
-- Oct 03 - [I asked a pro photographer for the best iPhone camera settings — my pics are now better than yours](https://www.yahoo.com/tech/asked-pro-photographer-best-iphone-120000357.html)
+- Oct 03 - [OpenAI raises $6.6 bln, with Microsoft, Nvidia among investors](https://finance.yahoo.com/video/openai-raises-6-6-bln-043906741.html)
 - Oct 03 - [Trump Erupts in Incoherent Rants After New Court Brief Details How He ‘Resorted to Crimes’ to Defy 2020 Election](https://www.yahoo.com/news/trump-erupts-incoherent-rants-court-024653615.html)
 - Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
-- Oct 02 - [Debris of Iranian missiles are seen in the West Bank](https://www.yahoo.com/news/debris-iranian-missiles-seen-west-232612766.html)
+- Oct 02 - [Denzel Washington ‘screamed’ at Diddy during an all-night party in 2003 before ‘storming out’: report](https://www.yahoo.com/entertainment/denzel-washington-screamed-diddy-during-235646540.html)
+- Oct 02 - [Tokyo expands underground 'cathedral' complex to counter climate change rains](https://www.yahoo.com/news/tokyo-expands-underground-cathedral-complex-232252467.html)
 <!-- feed end -->
 
 ### Onstream
