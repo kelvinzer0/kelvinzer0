@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Thousands of shipping containers have been lost at sea. What happens when they burst open?](https://www.yahoo.com/news/thousands-shipping-containers-lost-sea-040303344.html)
 - Oct 03 - [Trump Erupts in Incoherent Rants After New Court Brief Details How He ‘Resorted to Crimes’ to Defy 2020 Election](https://www.yahoo.com/news/trump-erupts-incoherent-rants-court-024653615.html)
-- Oct 03 - [American WWII bomb buried at Japanese airport explodes](https://www.yahoo.com/news/american-wwii-bomb-buried-japanese-005925680.html)
 - Oct 03 - [Billionaire Investor Who Predicted 2000, 2008 Crashes Says Market Euphoria Will Top Soon, Warns Of 'Black Swan Event'](https://finance.yahoo.com/news/billionaire-investor-predicted-2000-2008-000019851.html)
-- Oct 02 - [Former Wichita chiropractors plead guilty in $3.7 million healthcare fraud scheme](https://www.yahoo.com/news/former-wichita-chiropractors-plead-guilty-232300607.html)
+- Oct 02 - [Israel strikes heart of Beirut, killing at least six](https://www.yahoo.com/news/israel-strikes-heart-beirut-killing-233344724.html)
+- Oct 02 - [Debris of Iranian missiles are seen in the West Bank](https://www.yahoo.com/news/debris-iranian-missiles-seen-west-232612766.html)
+- Oct 02 - [Tokyo expands underground 'cathedral' complex to counter climate change rains](https://www.yahoo.com/news/tokyo-expands-underground-cathedral-complex-232252467.html)
 <!-- feed end -->
 
 ### Onstream
