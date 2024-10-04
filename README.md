@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [This is the top concern in the airline industry: Buttigieg](https://finance.yahoo.com/video/top-concern-airline-industry-buttigieg-150457868.html)
+- Oct 04 - [Man accused in South Shore stabbing spree arranged on assault to murder charges](https://www.yahoo.com/news/man-accused-south-shore-stabbing-112951423.html)
+- Oct 04 - [4 voters charged with intentionally voting twice in Michigan primary election](https://www.yahoo.com/news/4-voters-charged-intentionally-voting-171708707.html)
+- Oct 04 - [OTD In Space - October. 4: Sputnik 1 Becomes 1st Human-Made Satellite to Orbit The Earth](https://www.yahoo.com/news/otd-space-october-4-sputnik-170000912.html)
 - Oct 04 - [Russia retrains ex-soldiers heading back to the battlefield](https://www.yahoo.com/news/russia-retrains-ex-soldiers-heading-165418306.html)
-- Oct 04 - [UAW workers at Stellantis vote in favor of strike authorization at LA parts center](https://finance.yahoo.com/news/uaw-workers-stellantis-vote-favor-163951253.html)
-- Oct 04 - [AP Top Stories October 4 A](https://www.yahoo.com/news/ap-top-stories-october-4-153807320.html)
-- Oct 04 - [Northern lights could be visible tonight in Cincinnati. How to watch, what to look for](https://www.yahoo.com/news/northern-lights-could-visible-tonight-151925563.html)
+- Oct 04 - [Trump Made Crass Jokes About Death of Rally Attendee in Leaked Recording](https://www.yahoo.com/news/trump-made-crass-jokes-death-161131641.html)
 <!-- feed end -->
 
 ### Onstream
