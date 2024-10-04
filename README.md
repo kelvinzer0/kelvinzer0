@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [How I Went From Middle Class to Upper Middle Class](https://finance.yahoo.com/news/went-middle-class-upper-middle-170013860.html)
-- Oct 04 - [Watch Turkey’s ‘Solo Turk’ F-16 Demo Jet’s Close Call During A Recent Airshow](https://www.yahoo.com/news/watch-turkey-solo-turk-f-182506948.html)
-- Oct 04 - [4 voters charged with intentionally voting twice in Michigan primary election](https://www.yahoo.com/news/4-voters-charged-intentionally-voting-171708707.html)
-- Oct 04 - [Russia retrains ex-soldiers heading back to the battlefield](https://www.yahoo.com/news/russia-retrains-ex-soldiers-heading-165418306.html)
+- Oct 04 - [Entire Chicago Board of Education to resign as Mayor Brandon Johnson continues push to oust school CEO](https://www.yahoo.com/news/entire-chicago-board-education-resign-192000303.html)
+- Oct 04 - [Pennsylvania school boards up window openings that allowed views into its gender-neutral bathrooms](https://www.yahoo.com/news/pennsylvania-school-boards-window-openings-175220137.html)
+- Oct 04 - [US Supreme Court to decide if white, straight workers face higher bar in bias lawsuits](https://finance.yahoo.com/news/us-supreme-court-decide-white-174132354.html)
 - Oct 04 - [Trump Made Crass Jokes About Death of Rally Attendee in Leaked Recording](https://www.yahoo.com/news/trump-made-crass-jokes-death-161131641.html)
+- Oct 04 - [Baldwin County High School teacher, coach arrested and placed on administrative leave](https://www.yahoo.com/news/baldwin-county-high-school-teacher-155338601.html)
 <!-- feed end -->
 
 ### Onstream
