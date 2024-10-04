@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Here's 1 Incredibly Cheap Semiconductor Stock to Buy Following Micron Technology's Latest Results](https://finance.yahoo.com/news/heres-1-incredibly-cheap-semiconductor-092700218.html)
+- Oct 04 - [Chinese courier firm BingEx valued at nearly $1.2 billion in US IPO](https://finance.yahoo.com/news/chinese-courier-firm-bingex-valued-104552944.html)
 - Oct 04 - [Massacre in Burkina Faso left 600 dead, double previous estimates, according to French security assessment](https://www.yahoo.com/news/massacre-burkina-faso-left-600-040138443.html)
+- Oct 04 - [‘Fighting criticism with curiosity’: Evangelical pastor seeks understanding of Latter-day Saints through conversation](https://www.yahoo.com/lifestyle/fighting-criticism-curiosity-evangelical-pastor-020000425.html)
+- Oct 04 - [This Bay Area hotel was named best in the world](https://www.yahoo.com/lifestyle/bay-area-hotel-named-best-003136443.html)
 - Oct 04 - [Nevada politician guilty of using $70,000 meant for statue of slain officer for personal costs](https://www.yahoo.com/news/nevada-politician-guilty-using-70-001850788.html)
-- Oct 03 - [North Korea's Kim threatens to destroy South Korea with nuclear strikes if provoked](https://www.yahoo.com/news/north-koreas-kim-threatens-destroy-235411559.html)
-- Oct 03 - [Explosions seen near Beirut's airport minutes after plane lands](https://www.yahoo.com/news/explosions-seen-near-beiruts-airport-224406278.html)
 <!-- feed end -->
 
 ### Onstream
