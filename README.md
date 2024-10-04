@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [This Telecom Giant Just Increased Its Dividend 35%, and It's Promising Many More Double-Digit Raises to Come](https://finance.yahoo.com/news/telecom-giant-just-increased-dividend-210000851.html)
-- Oct 04 - [Jeremiah's Tavern not coming to Irondequoit corner: What the building will house](https://www.yahoo.com/news/jeremiahs-tavern-not-coming-irondequoit-203408140.html)
 - Oct 04 - [Are Folks In America That Stupid?' Dave Ramsey Says Americans Should Be More Suspicious Of The Fed Rate Cuts Timing](https://finance.yahoo.com/news/folks-america-stupid-dave-ramsey-203020214.html)
 - Oct 04 - [No, Donald Trump Isn’t Wading Through Hurricane Floodwaters, You Absolute Morons](https://www.yahoo.com/news/no-donald-trump-isn-t-195944759.html)
+- Oct 04 - [Watch Turkey’s ‘Solo Turk’ F-16 Demo Jet’s Close Call During A Recent Airshow](https://www.yahoo.com/news/watch-turkey-solo-turk-f-182506948.html)
 - Oct 04 - [Pennsylvania school boards up window openings that allowed views into its gender-neutral bathrooms](https://www.yahoo.com/news/pennsylvania-school-boards-window-openings-175220137.html)
+- Oct 04 - [Photos show Valley Fire in Boise Foothills burning dangerously close to some homes](https://www.yahoo.com/news/photos-show-valley-fire-boise-174434776.html)
 <!-- feed end -->
 
 ### Onstream
