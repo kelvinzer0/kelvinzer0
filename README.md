@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Man accused in South Shore stabbing spree arranged on assault to murder charges](https://www.yahoo.com/news/man-accused-south-shore-stabbing-112951423.html)
+- Oct 04 - [Israeli attack helicopter seen firing missiles over border area with Lebanon](https://www.yahoo.com/news/israeli-attack-helicopter-seen-firing-173023117.html)
 - Oct 04 - [4 voters charged with intentionally voting twice in Michigan primary election](https://www.yahoo.com/news/4-voters-charged-intentionally-voting-171708707.html)
-- Oct 04 - [OTD In Space - October. 4: Sputnik 1 Becomes 1st Human-Made Satellite to Orbit The Earth](https://www.yahoo.com/news/otd-space-october-4-sputnik-170000912.html)
 - Oct 04 - [Russia retrains ex-soldiers heading back to the battlefield](https://www.yahoo.com/news/russia-retrains-ex-soldiers-heading-165418306.html)
 - Oct 04 - [Trump Made Crass Jokes About Death of Rally Attendee in Leaked Recording](https://www.yahoo.com/news/trump-made-crass-jokes-death-161131641.html)
+- Oct 04 - [US launches airstrikes by fighter jets and ships on Yemen's Iran-backed Houthi rebels](https://www.yahoo.com/news/us-launches-air-attacks-yemens-155212646.html)
 <!-- feed end -->
 
 ### Onstream
