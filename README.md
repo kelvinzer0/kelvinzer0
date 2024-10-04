@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [Transgender candidates are making history under fire in Brazil](https://www.yahoo.com/news/transgender-candidates-making-history-under-030109458.html)
+- Oct 04 - [The C919 is China’s answer to the A320. But what is it like onboard?](https://www.yahoo.com/tech/c919-china-answer-a320-onboard-012456330.html)
 - Oct 04 - [Nevada politician guilty of using $70,000 meant for statue of slain officer for personal costs](https://www.yahoo.com/news/nevada-politician-guilty-using-70-001850788.html)
 - Oct 03 - [San Diego International Airport experiencing major delays](https://www.yahoo.com/news/san-diego-international-airport-experiencing-225726500.html)
 - Oct 03 - [Soul-searching and regret over unheeded warnings follow Helene's destruction](https://www.yahoo.com/news/soul-searching-regret-over-unheeded-221719639.html)
-- Oct 03 - [Chimney Rock updates: Tourist village washed away. Here's what we know and what's next](https://www.yahoo.com/news/chimney-rock-updates-tourist-village-214541655.html)
-- Oct 03 - [Spirit Airlines shares slide after report of possible bankruptcy filing](https://finance.yahoo.com/news/spirit-airlines-talks-bondholders-over-213110228.html)
 <!-- feed end -->
 
 ### Onstream
