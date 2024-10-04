@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [Massacre in Burkina Faso left 600 dead, double previous estimates, according to French security assessment](https://www.yahoo.com/news/massacre-burkina-faso-left-600-040138443.html)
+- Oct 04 - [The C919 is China’s answer to the A320. But what is it like onboard?](https://www.yahoo.com/tech/c919-china-answer-a320-onboard-012456330.html)
+- Oct 04 - [‘It’s so horrible and heartbreaking’: Parents outraged after teacher misconduct arrest in Lake Mary](https://www.yahoo.com/news/horrible-heartbreaking-parents-outraged-teacher-022706901.html)
 - Oct 04 - [Nevada politician guilty of using $70,000 meant for statue of slain officer for personal costs](https://www.yahoo.com/news/nevada-politician-guilty-using-70-001850788.html)
-- Oct 03 - [If You Invested $1,000 In Facebook Stock When Mark Zuckerberg Changed Name To Meta, Here's How Much You'd Have Today](https://finance.yahoo.com/news/invested-1-000-facebook-stock-230017047.html)
 - Oct 03 - [San Diego International Airport experiencing major delays](https://www.yahoo.com/news/san-diego-international-airport-experiencing-225726500.html)
-- Oct 03 - [Soul-searching and regret over unheeded warnings follow Helene's destruction](https://www.yahoo.com/news/soul-searching-regret-over-unheeded-221719639.html)
-- Oct 03 - [Fed's paper losses top the $200 billion mark](https://finance.yahoo.com/news/feds-paper-losses-top-200-203626613.html)
 <!-- feed end -->
 
 ### Onstream
