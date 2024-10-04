@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 04 - [Nevada politician guilty of using $70,000 meant for statue of slain officer for personal costs](https://www.yahoo.com/news/nevada-politician-guilty-using-70-001850788.html)
+- Oct 03 - [San Diego International Airport experiencing major delays](https://www.yahoo.com/news/san-diego-international-airport-experiencing-225726500.html)
 - Oct 03 - [Soul-searching and regret over unheeded warnings follow Helene's destruction](https://www.yahoo.com/news/soul-searching-regret-over-unheeded-221719639.html)
+- Oct 03 - [Chimney Rock updates: Tourist village washed away. Here's what we know and what's next](https://www.yahoo.com/news/chimney-rock-updates-tourist-village-214541655.html)
 - Oct 03 - [Spirit Airlines shares slide after report of possible bankruptcy filing](https://finance.yahoo.com/news/spirit-airlines-talks-bondholders-over-213110228.html)
-- Oct 03 - [Why Are Some Postal Workers Being Targeted in Robberies?](https://www.yahoo.com/news/why-postal-workers-being-targeted-205053557.html)
-- Oct 03 - [Trump’s True Crowd Size Exposed in Embarrassing Video](https://www.yahoo.com/news/trump-true-crowd-size-exposed-201323784.html)
 <!-- feed end -->
 
 ### Onstream
