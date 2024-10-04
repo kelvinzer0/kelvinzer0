@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [OpenAI leadership exodus: Why this management expert is concerned](https://finance.yahoo.com/video/openai-leadership-exodus-why-management-120019058.html)
-- Oct 04 - [Russia has lost access to CERN in a sign that its war in Ukraine is causing a major scientific brain drain](https://www.yahoo.com/news/russia-lost-access-cern-sign-105803555.html)
-- Oct 04 - [Cyclist demands change after he was struck by wire strung across Milwaukee road by Orthodox Jewish group](https://www.yahoo.com/news/cyclist-demands-change-struck-wire-100642076.html)
+- Oct 04 - [US added 254,000 jobs in September](https://finance.yahoo.com/video/us-adds-254-000-jobs-123936015.html)
+- Oct 04 - [Chief operating officer of Truth Social's parent company resigns](https://finance.yahoo.com/news/chief-operating-officer-truth-socials-122425134.html)
+- Oct 04 - [Ukrainian F-16 fighter pilots have had to dramatically change the way they fly after long flying Soviet jets, and it's a lot to overcome](https://www.yahoo.com/news/ukrainian-f-16-fighter-pilots-111701844.html)
 - Oct 04 - [Mortgage and refinance rates today, October 4, 2024: Rates fall 1.37% in a year](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-friday-october-4-2024-100045373.html)
-- Oct 04 - [Kremlin accuses Ukraine of 'playing with fire' after reported attack near Kursk nuclear plant](https://www.yahoo.com/news/kremlin-accuses-ukraine-playing-fire-093821308.html)
+- Oct 04 - [Iran leader Khamenei, rifle at his side, vows resistance against Israel](https://www.yahoo.com/news/iran-leader-khamenei-says-iran-095903373.html)
 <!-- feed end -->
 
 ### Onstream
