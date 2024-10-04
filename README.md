@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [US launches air attacks on Yemen's Iran-backed Houthi rebels](https://www.yahoo.com/news/us-launches-air-attacks-yemens-155212646.html)
+- Oct 04 - [This is the top concern in the airline industry: Buttigieg](https://finance.yahoo.com/video/top-concern-airline-industry-buttigieg-150457868.html)
+- Oct 04 - [Russia retrains ex-soldiers heading back to the battlefield](https://www.yahoo.com/news/russia-retrains-ex-soldiers-heading-165418306.html)
+- Oct 04 - [UAW workers at Stellantis vote in favor of strike authorization at LA parts center](https://finance.yahoo.com/news/uaw-workers-stellantis-vote-favor-163951253.html)
 - Oct 04 - [AP Top Stories October 4 A](https://www.yahoo.com/news/ap-top-stories-october-4-153807320.html)
-- Oct 04 - [I'm a personal finance writer, and these are my 11 best money-saving tips](https://finance.yahoo.com/personal-finance/personal-finance-writer-best-money-saving-tips-140013935.html)
-- Oct 04 - [Trump’s Response to Melania’s Abortion Claim Sparks Outrage](https://www.yahoo.com/news/trump-response-melania-abortion-claim-135942716.html)
-- Oct 04 - [Gullible Trump Cronies Losing Their Minds Over Fake AI Slop on Twitter](https://www.yahoo.com/news/gullible-trump-cronies-losing-minds-131558726.html)
+- Oct 04 - [Northern lights could be visible tonight in Cincinnati. How to watch, what to look for](https://www.yahoo.com/news/northern-lights-could-visible-tonight-151925563.html)
 <!-- feed end -->
 
 ### Onstream
