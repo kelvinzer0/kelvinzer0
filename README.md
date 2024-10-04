@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Israeli attack helicopter seen firing missiles over border area with Lebanon](https://www.yahoo.com/news/israeli-attack-helicopter-seen-firing-173023117.html)
+- Oct 04 - [How I Went From Middle Class to Upper Middle Class](https://finance.yahoo.com/news/went-middle-class-upper-middle-170013860.html)
+- Oct 04 - [Watch Turkey’s ‘Solo Turk’ F-16 Demo Jet’s Close Call During A Recent Airshow](https://www.yahoo.com/news/watch-turkey-solo-turk-f-182506948.html)
 - Oct 04 - [4 voters charged with intentionally voting twice in Michigan primary election](https://www.yahoo.com/news/4-voters-charged-intentionally-voting-171708707.html)
 - Oct 04 - [Russia retrains ex-soldiers heading back to the battlefield](https://www.yahoo.com/news/russia-retrains-ex-soldiers-heading-165418306.html)
 - Oct 04 - [Trump Made Crass Jokes About Death of Rally Attendee in Leaked Recording](https://www.yahoo.com/news/trump-made-crass-jokes-death-161131641.html)
-- Oct 04 - [US launches airstrikes by fighter jets and ships on Yemen's Iran-backed Houthi rebels](https://www.yahoo.com/news/us-launches-air-attacks-yemens-155212646.html)
 <!-- feed end -->
 
 ### Onstream
