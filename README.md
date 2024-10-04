@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Entire Chicago Board of Education to resign as Mayor Brandon Johnson continues push to oust school CEO](https://www.yahoo.com/news/entire-chicago-board-education-resign-192000303.html)
+- Oct 04 - [This Telecom Giant Just Increased Its Dividend 35%, and It's Promising Many More Double-Digit Raises to Come](https://finance.yahoo.com/news/telecom-giant-just-increased-dividend-210000851.html)
+- Oct 04 - [Jeremiah's Tavern not coming to Irondequoit corner: What the building will house](https://www.yahoo.com/news/jeremiahs-tavern-not-coming-irondequoit-203408140.html)
+- Oct 04 - [Are Folks In America That Stupid?' Dave Ramsey Says Americans Should Be More Suspicious Of The Fed Rate Cuts Timing](https://finance.yahoo.com/news/folks-america-stupid-dave-ramsey-203020214.html)
+- Oct 04 - [No, Donald Trump Isn’t Wading Through Hurricane Floodwaters, You Absolute Morons](https://www.yahoo.com/news/no-donald-trump-isn-t-195944759.html)
 - Oct 04 - [Pennsylvania school boards up window openings that allowed views into its gender-neutral bathrooms](https://www.yahoo.com/news/pennsylvania-school-boards-window-openings-175220137.html)
-- Oct 04 - [US Supreme Court to decide if white, straight workers face higher bar in bias lawsuits](https://finance.yahoo.com/news/us-supreme-court-decide-white-174132354.html)
-- Oct 04 - [Trump Made Crass Jokes About Death of Rally Attendee in Leaked Recording](https://www.yahoo.com/news/trump-made-crass-jokes-death-161131641.html)
-- Oct 04 - [Baldwin County High School teacher, coach arrested and placed on administrative leave](https://www.yahoo.com/news/baldwin-county-high-school-teacher-155338601.html)
 <!-- feed end -->
 
 ### Onstream
