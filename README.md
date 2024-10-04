@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [Here's 1 Incredibly Cheap Semiconductor Stock to Buy Following Micron Technology's Latest Results](https://finance.yahoo.com/news/heres-1-incredibly-cheap-semiconductor-092700218.html)
 - Oct 04 - [Massacre in Burkina Faso left 600 dead, double previous estimates, according to French security assessment](https://www.yahoo.com/news/massacre-burkina-faso-left-600-040138443.html)
-- Oct 04 - [The C919 is China’s answer to the A320. But what is it like onboard?](https://www.yahoo.com/tech/c919-china-answer-a320-onboard-012456330.html)
 - Oct 04 - [Nevada politician guilty of using $70,000 meant for statue of slain officer for personal costs](https://www.yahoo.com/news/nevada-politician-guilty-using-70-001850788.html)
-- Oct 03 - [Giant nude statue of Donald Trump arrives in Phoenix. Its origins are murky](https://www.yahoo.com/news/giant-nude-statue-donald-trump-234736595.html)
-- Oct 03 - [Spirit Airlines shares slide after report of possible bankruptcy filing](https://finance.yahoo.com/news/spirit-airlines-talks-bondholders-over-213110228.html)
+- Oct 03 - [North Korea's Kim threatens to destroy South Korea with nuclear strikes if provoked](https://www.yahoo.com/news/north-koreas-kim-threatens-destroy-235411559.html)
+- Oct 03 - [Explosions seen near Beirut's airport minutes after plane lands](https://www.yahoo.com/news/explosions-seen-near-beiruts-airport-224406278.html)
 <!-- feed end -->
 
 ### Onstream
