@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Dockworkers' union suspend strike until Jan. 15 to allow time to negotiate new contract](https://finance.yahoo.com/news/source-dockworkers-union-suspend-strike-224037158.html)
+- Oct 04 - [Nevada politician guilty of using $70,000 meant for statue of slain officer for personal costs](https://www.yahoo.com/news/nevada-politician-guilty-using-70-001850788.html)
+- Oct 03 - [Soul-searching and regret over unheeded warnings follow Helene's destruction](https://www.yahoo.com/news/soul-searching-regret-over-unheeded-221719639.html)
+- Oct 03 - [Spirit Airlines shares slide after report of possible bankruptcy filing](https://finance.yahoo.com/news/spirit-airlines-talks-bondholders-over-213110228.html)
+- Oct 03 - [Why Are Some Postal Workers Being Targeted in Robberies?](https://www.yahoo.com/news/why-postal-workers-being-targeted-205053557.html)
 - Oct 03 - [Trump’s True Crowd Size Exposed in Embarrassing Video](https://www.yahoo.com/news/trump-true-crowd-size-exposed-201323784.html)
-- Oct 03 - [Texas teen abducted from Dallas Mavericks NBA game shares what lured her from dad](https://www.yahoo.com/news/texas-teen-abducted-dallas-mavericks-191620466.html)
-- Oct 03 - [Ex-Houston officer rushed away in an ambulance during sentencing at double-murder trial](https://www.yahoo.com/news/ex-houston-officer-rushed-away-180909526.html)
-- Oct 03 - [Biden's student loan forgiveness plans can advance, judge rules](https://finance.yahoo.com/video/bidens-student-loan-forgiveness-plans-173718458.html)
 <!-- feed end -->
 
 ### Onstream
