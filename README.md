@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Self-Made Millionaire Lucy Guo: 5 Ways I Live Frugally](https://finance.yahoo.com/news/self-made-millionaire-lucy-guo-160103315.html)
+- Oct 04 - [US launches air attacks on Yemen's Iran-backed Houthi rebels](https://www.yahoo.com/news/us-launches-air-attacks-yemens-155212646.html)
+- Oct 04 - [AP Top Stories October 4 A](https://www.yahoo.com/news/ap-top-stories-october-4-153807320.html)
 - Oct 04 - [I'm a personal finance writer, and these are my 11 best money-saving tips](https://finance.yahoo.com/personal-finance/personal-finance-writer-best-money-saving-tips-140013935.html)
+- Oct 04 - [Trump’s Response to Melania’s Abortion Claim Sparks Outrage](https://www.yahoo.com/news/trump-response-melania-abortion-claim-135942716.html)
 - Oct 04 - [Gullible Trump Cronies Losing Their Minds Over Fake AI Slop on Twitter](https://www.yahoo.com/news/gullible-trump-cronies-losing-minds-131558726.html)
-- Oct 04 - [WATCH: ULA launches Vulcan rocket on 2nd test flight from Space Coast](https://www.yahoo.com/news/no-issues-ula-ready-launch-082540007.html)
-- Oct 04 - [Chief operating officer of Truth Social's parent company resigns](https://finance.yahoo.com/news/chief-operating-officer-truth-socials-122425639.html)
 <!-- feed end -->
 
 ### Onstream
