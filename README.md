@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Chinese courier firm BingEx valued at nearly $1.2 billion in US IPO](https://finance.yahoo.com/news/chinese-courier-firm-bingex-valued-104552944.html)
-- Oct 04 - [Massacre in Burkina Faso left 600 dead, double previous estimates, according to French security assessment](https://www.yahoo.com/news/massacre-burkina-faso-left-600-040138443.html)
-- Oct 04 - [‘Fighting criticism with curiosity’: Evangelical pastor seeks understanding of Latter-day Saints through conversation](https://www.yahoo.com/lifestyle/fighting-criticism-curiosity-evangelical-pastor-020000425.html)
-- Oct 04 - [This Bay Area hotel was named best in the world](https://www.yahoo.com/lifestyle/bay-area-hotel-named-best-003136443.html)
-- Oct 04 - [Nevada politician guilty of using $70,000 meant for statue of slain officer for personal costs](https://www.yahoo.com/news/nevada-politician-guilty-using-70-001850788.html)
+- Oct 04 - [OpenAI leadership exodus: Why this management expert is concerned](https://finance.yahoo.com/video/openai-leadership-exodus-why-management-120019058.html)
+- Oct 04 - [Russia has lost access to CERN in a sign that its war in Ukraine is causing a major scientific brain drain](https://www.yahoo.com/news/russia-lost-access-cern-sign-105803555.html)
+- Oct 04 - [Cyclist demands change after he was struck by wire strung across Milwaukee road by Orthodox Jewish group](https://www.yahoo.com/news/cyclist-demands-change-struck-wire-100642076.html)
+- Oct 04 - [Mortgage and refinance rates today, October 4, 2024: Rates fall 1.37% in a year](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-friday-october-4-2024-100045373.html)
+- Oct 04 - [Kremlin accuses Ukraine of 'playing with fire' after reported attack near Kursk nuclear plant](https://www.yahoo.com/news/kremlin-accuses-ukraine-playing-fire-093821308.html)
 <!-- feed end -->
 
 ### Onstream
