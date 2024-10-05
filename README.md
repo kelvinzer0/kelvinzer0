@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 05 - [Retirement in America is a disaster for many. Is there hope?](https://finance.yahoo.com/news/retirement-in-america-is-a-disaster-for-many-is-there-hope-130053770.html)
-- Oct 05 - [Vietnam factory fire destroys thousands of electric vehicles](https://www.yahoo.com/news/vietnam-factory-fire-destroys-thousands-125502219.html)
 - Oct 05 - [Ukraine downs a Russian warplane and Russia claims gains in the east](https://www.yahoo.com/news/ukraine-downs-russian-warplane-russia-125154255.html)
-- Oct 05 - [EEOC files two sexual harassment lawsuits against Oklahoma employers](https://www.yahoo.com/news/eeoc-files-two-sexual-harassment-105536827.html)
+- Oct 05 - [‘I don’t care how in love you are’: Kevin O’Leary cautions couples they should ‘never’ marry their finances](https://finance.yahoo.com/news/don-t-care-love-kevin-121000771.html)
+- Oct 05 - [Tampa prepares for more severe weather this weekend](https://www.yahoo.com/news/tampa-prepares-more-severe-weather-103105298.html)
 - Oct 05 - [My wife and I lost our multimillion-dollar home in a landslide — but the bank still chases us for our mortgage](https://finance.yahoo.com/news/wife-lost-multimillion-dollar-home-102200779.html)
 <!-- feed end -->
 
