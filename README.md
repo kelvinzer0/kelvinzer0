@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 05 - [Where to find sandbags around Tampa Bay ahead of next expected storm](https://www.yahoo.com/news/where-sandbags-around-tampa-bay-161100141.html)
+- Oct 05 - ['Impossible' for People's Republic of China to be our motherland, Taiwan president says](https://www.yahoo.com/news/impossible-peoples-republic-china-motherland-134135516.html)
+- Oct 05 - [Grammy-Nominated Rapper Logic Invested $6M In Bitcoin Nearly 4 Years Ago: This Is How Much His Stash Would Be Worth Today](https://finance.yahoo.com/news/grammy-nominated-rapper-logic-invested-133044514.html)
 - Oct 05 - [Retirement in America is a disaster for many. Is there hope?](https://finance.yahoo.com/news/retirement-in-america-is-a-disaster-for-many-is-there-hope-130053770.html)
-- Oct 05 - [Ukraine downs a Russian warplane and Russia claims gains in the east](https://www.yahoo.com/news/ukraine-downs-russian-warplane-russia-125154255.html)
-- Oct 05 - [‘I don’t care how in love you are’: Kevin O’Leary cautions couples they should ‘never’ marry their finances](https://finance.yahoo.com/news/don-t-care-love-kevin-121000771.html)
-- Oct 05 - [Tampa prepares for more severe weather this weekend](https://www.yahoo.com/news/tampa-prepares-more-severe-weather-103105298.html)
-- Oct 05 - [My wife and I lost our multimillion-dollar home in a landslide — but the bank still chases us for our mortgage](https://finance.yahoo.com/news/wife-lost-multimillion-dollar-home-102200779.html)
+- Oct 05 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
 <!-- feed end -->
 
 ### Onstream
