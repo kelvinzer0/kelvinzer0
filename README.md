@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 05 - [Wordle hints today for #1,204: Clues and answer for Saturday, October 5](https://www.yahoo.com/tech/wordle-hints-today-for-1204-clues-and-answer-for-saturday-october-5-040141066.html)
+- Oct 05 - [Idaho state senator tells Native American candidate 'go back where you came from' in forum](https://www.yahoo.com/news/idaho-state-senator-tells-native-022856523.html)
+- Oct 04 - [New York woman arrested and extradited to Massachusetts following Cape Cod scam](https://www.yahoo.com/news/york-woman-arrested-extradited-massachusetts-235405495.html)
 - Oct 04 - [Judge denies an order sought by a Black student who was punished over his hair](https://www.yahoo.com/news/judge-denies-order-black-student-230350471.html)
-- Oct 04 - [Here's what St. Johns County can expect from a bigtime, rain-making storm in the Gulf](https://www.yahoo.com/news/heres-st-johns-county-expect-214612074.html)
-- Oct 04 - [Highly contagious, deadly rabbit disease confirmed in San Juan County](https://www.yahoo.com/news/highly-contagious-deadly-rabbit-disease-205505436.html)
-- Oct 04 - [These are the St. Louis region’s 37 best restaurants, according to Eater.com](https://www.yahoo.com/lifestyle/st-louis-region-37-best-202140853.html)
-- Oct 04 - [No, Donald Trump Isn’t Wading Through Hurricane Floodwaters, You Absolute Morons](https://www.yahoo.com/news/no-donald-trump-isn-t-195944759.html)
+- Oct 04 - [Tarantulas wander around Utah this time of year — here’s what you should know](https://www.yahoo.com/lifestyle/tarantulas-wander-around-utah-time-223651426.html)
 <!-- feed end -->
 
 ### Onstream
