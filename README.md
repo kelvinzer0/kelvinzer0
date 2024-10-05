@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Billionaire Elon Musk Takes on "the Entire Space Industry"](https://finance.yahoo.com/news/billionaire-elon-musk-takes-entire-115000463.html)
-- Oct 05 - [Mob torches police outpost after 9-year-old girl ‘raped and murdered’ in India](https://www.yahoo.com/news/mob-torches-police-outpost-9-111732449.html)
+- Oct 05 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Oct 05 - [Italian prosecutors accuse 7 people, 2 firms over flawed Boeing plane parts](https://finance.yahoo.com/news/italian-prosecutors-accuse-7-people-125641446.html)
+- Oct 05 - [Ukraine downs a Russian warplane and Russia claims gains in the east](https://www.yahoo.com/news/ukraine-downs-russian-warplane-russia-125154255.html)
+- Oct 05 - [Maine woman, 65, loses $23K to scammer posing as Bank of America employee — and she’s furious at their response](https://finance.yahoo.com/news/maine-woman-65-loses-23k-110200406.html)
 - Oct 05 - [My wife and I lost our multimillion-dollar home in a landslide — but the bank still chases us for our mortgage](https://finance.yahoo.com/news/wife-lost-multimillion-dollar-home-102200779.html)
-- Oct 05 - [NASA releases photo of ocean world. It shows why NASA's going there.](https://www.yahoo.com/lifestyle/nasa-releases-photo-ocean-world-093000349.html)
-- Oct 04 - [Tarantulas wander around Utah this time of year — here’s what you should know](https://www.yahoo.com/lifestyle/tarantulas-wander-around-utah-time-223651426.html)
 <!-- feed end -->
 
 ### Onstream
