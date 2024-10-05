@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Hamas leader Yahya Sinwar has been silent for months - now some Israelis believe he has been killed](https://www.yahoo.com/news/hamas-leader-yahya-sinwar-silent-080000195.html)
+- Oct 05 - [My wife and I lost our multimillion-dollar home in a landslide — but the bank still chases us for our mortgage](https://finance.yahoo.com/news/wife-lost-multimillion-dollar-home-102200779.html)
+- Oct 05 - [Middle East latest: A Hamas official is killed in an Israeli strike on a refugee camp](https://www.yahoo.com/news/middle-east-latest-hamas-official-063117162.html)
 - Oct 05 - [Idaho state senator tells Native American candidate 'go back where you came from' in forum](https://www.yahoo.com/news/idaho-state-senator-tells-native-022856523.html)
 - Oct 04 - [New York woman arrested and extradited to Massachusetts following Cape Cod scam](https://www.yahoo.com/news/york-woman-arrested-extradited-massachusetts-235405495.html)
 - Oct 04 - [Judge denies an order sought by a Black student who was punished over his hair](https://www.yahoo.com/news/judge-denies-order-black-student-230350471.html)
-- Oct 04 - [Michael Moore Warns This Move Could Cost Kamala Harris The Election](https://www.yahoo.com/news/michael-moore-warns-move-could-210641942.html)
 <!-- feed end -->
 
 ### Onstream
