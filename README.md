@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Wordle hints today for #1,204: Clues and answer for Saturday, October 5](https://www.yahoo.com/tech/wordle-hints-today-for-1204-clues-and-answer-for-saturday-october-5-040141066.html)
 - Oct 05 - [Idaho state senator tells Native American candidate 'go back where you came from' in forum](https://www.yahoo.com/news/idaho-state-senator-tells-native-022856523.html)
 - Oct 04 - [New York woman arrested and extradited to Massachusetts following Cape Cod scam](https://www.yahoo.com/news/york-woman-arrested-extradited-massachusetts-235405495.html)
 - Oct 04 - [Judge denies an order sought by a Black student who was punished over his hair](https://www.yahoo.com/news/judge-denies-order-black-student-230350471.html)
-- Oct 04 - [Tarantulas wander around Utah this time of year — here’s what you should know](https://www.yahoo.com/lifestyle/tarantulas-wander-around-utah-time-223651426.html)
+- Oct 04 - [Family plans to honor hurricane victim using logs from fallen tree that killed him](https://www.yahoo.com/news/family-plans-honor-hurricane-victim-222329053.html)
+- Oct 04 - ['This is the worst year.' ACL Fest 2024 wristbands being resold for $800 for a 3-day pass](https://www.yahoo.com/entertainment/worst-acl-fest-2024-wristbands-215353027.html)
 <!-- feed end -->
 
 ### Onstream
