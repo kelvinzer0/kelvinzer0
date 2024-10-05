@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Are Folks In America That Stupid?' Dave Ramsey Says Americans Should Be More Suspicious Of The Fed Rate Cuts Timing](https://finance.yahoo.com/news/folks-america-stupid-dave-ramsey-203020214.html)
-- Oct 04 - [No, Donald Trump Isn’t Wading Through Hurricane Floodwaters, You Absolute Morons](https://www.yahoo.com/news/no-donald-trump-isn-t-195944759.html)
-- Oct 04 - [Watch Turkey’s ‘Solo Turk’ F-16 Demo Jet’s Close Call During A Recent Airshow](https://www.yahoo.com/news/watch-turkey-solo-turk-f-182506948.html)
-- Oct 04 - [Pennsylvania school boards up window openings that allowed views into its gender-neutral bathrooms](https://www.yahoo.com/news/pennsylvania-school-boards-window-openings-175220137.html)
-- Oct 04 - [Photos show Valley Fire in Boise Foothills burning dangerously close to some homes](https://www.yahoo.com/news/photos-show-valley-fire-boise-174434776.html)
+- Oct 04 - [Judge denies an order sought by a Black student who was punished over his hair](https://www.yahoo.com/news/judge-denies-order-black-student-230350471.html)
+- Oct 04 - [Here's what St. Johns County can expect from a bigtime, rain-making storm in the Gulf](https://www.yahoo.com/news/heres-st-johns-county-expect-214612074.html)
+- Oct 04 - [Rivian applies for federal loan to restart Georgia EV factory construction](https://finance.yahoo.com/news/rivian-applies-federal-loan-restart-210609062.html)
+- Oct 04 - [Highly contagious, deadly rabbit disease confirmed in San Juan County](https://www.yahoo.com/news/highly-contagious-deadly-rabbit-disease-205505436.html)
+- Oct 04 - [These are the St. Louis region’s 37 best restaurants, according to Eater.com](https://www.yahoo.com/lifestyle/st-louis-region-37-best-202140853.html)
 <!-- feed end -->
 
 ### Onstream
