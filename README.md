@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 05 - [Mecklenburg not among NC counties gaining wealth](https://finance.yahoo.com/news/mecklenburg-not-among-nc-counties-135518527.html)
+- Oct 05 - [Grammy-Nominated Rapper Logic Invested $6M In Bitcoin Nearly 4 Years Ago: This Is How Much His Stash Would Be Worth Today](https://finance.yahoo.com/news/grammy-nominated-rapper-logic-invested-133044514.html)
+- Oct 05 - [Retirement in America is a disaster for many. Is there hope?](https://finance.yahoo.com/news/retirement-in-america-is-a-disaster-for-many-is-there-hope-130053770.html)
 - Oct 05 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
-- Oct 05 - [Italian prosecutors accuse 7 people, 2 firms over flawed Boeing plane parts](https://finance.yahoo.com/news/italian-prosecutors-accuse-7-people-125641446.html)
 - Oct 05 - [Ukraine downs a Russian warplane and Russia claims gains in the east](https://www.yahoo.com/news/ukraine-downs-russian-warplane-russia-125154255.html)
-- Oct 05 - [Maine woman, 65, loses $23K to scammer posing as Bank of America employee — and she’s furious at their response](https://finance.yahoo.com/news/maine-woman-65-loses-23k-110200406.html)
-- Oct 05 - [My wife and I lost our multimillion-dollar home in a landslide — but the bank still chases us for our mortgage](https://finance.yahoo.com/news/wife-lost-multimillion-dollar-home-102200779.html)
 <!-- feed end -->
 
 ### Onstream
