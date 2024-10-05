@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Historic Biltmore Estate shutters after floods from Hurricane Helene ravage Asheville](https://www.yahoo.com/news/historic-biltmore-estate-shutters-floods-184011844.html)
+- Oct 05 - [Car flips over fence at Ky. racetrack, sending several spectators to hospital](https://sports.yahoo.com/car-flips-over-fence-ky-174712195.html)
+- Oct 05 - [Video shows Ukrainian 'dragon' drone appearing to destroy a Russian tank with 'molten thermite'](https://www.yahoo.com/news/video-shows-ukrainian-dragon-drone-163659644.html)
 - Oct 05 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://www.yahoo.com/news/james-webb-space-telescopes-first-120500384.html)
 - Oct 05 - [Doctors And Nurses Are Revealing The Medical "Lies" People Should Stop Believing](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-medical-lies-153102518.html)
 - Oct 05 - [The Only McDonald's Burger That's Cooked Fresh, Not Frozen](https://www.yahoo.com/lifestyle/only-mcdonalds-burger-thats-cooked-151532028.html)
-- Oct 05 - ['Impossible' for People's Republic of China to be our motherland, Taiwan president says](https://www.yahoo.com/news/impossible-peoples-republic-china-motherland-134135516.html)
 <!-- feed end -->
 
 ### Onstream
