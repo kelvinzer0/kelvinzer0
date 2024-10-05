@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 05 - [Mural complete in Petoskey's downtown pedestrian tunnel](https://www.yahoo.com/lifestyle/mural-complete-petoskeys-downtown-pedestrian-080207398.html)
+- Oct 05 - [Hamas leader Yahya Sinwar has been silent for months - now some Israelis believe he has been killed](https://www.yahoo.com/news/hamas-leader-yahya-sinwar-silent-080000195.html)
 - Oct 05 - [Idaho state senator tells Native American candidate 'go back where you came from' in forum](https://www.yahoo.com/news/idaho-state-senator-tells-native-022856523.html)
 - Oct 04 - [Judge denies an order sought by a Black student who was punished over his hair](https://www.yahoo.com/news/judge-denies-order-black-student-230350471.html)
-- Oct 04 - [Michael Moore Warns This Move Could Cost Kamala Harris The Election](https://www.yahoo.com/news/michael-moore-warns-move-could-210641942.html)
-- Oct 04 - [Highly contagious, deadly rabbit disease confirmed in San Juan County](https://www.yahoo.com/news/highly-contagious-deadly-rabbit-disease-205505436.html)
-- Oct 04 - [Are Folks In America That Stupid?' Dave Ramsey Says Americans Should Be More Suspicious Of The Fed Rate Cuts Timing](https://finance.yahoo.com/news/folks-america-stupid-dave-ramsey-203020214.html)
+- Oct 04 - [Revealed: The real reason why people are leaving Donald Trump’s rallies as he is still on stage](https://www.yahoo.com/news/revealed-real-reason-why-people-224255571.html)
 <!-- feed end -->
 
 ### Onstream
