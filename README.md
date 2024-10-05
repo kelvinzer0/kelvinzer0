@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Where to find sandbags around Tampa Bay ahead of next expected storm](https://www.yahoo.com/news/where-sandbags-around-tampa-bay-161100141.html)
+- Oct 05 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://www.yahoo.com/news/james-webb-space-telescopes-first-120500384.html)
+- Oct 05 - [Doctors And Nurses Are Revealing The Medical "Lies" People Should Stop Believing](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-medical-lies-153102518.html)
+- Oct 05 - [The Only McDonald's Burger That's Cooked Fresh, Not Frozen](https://www.yahoo.com/lifestyle/only-mcdonalds-burger-thats-cooked-151532028.html)
 - Oct 05 - ['Impossible' for People's Republic of China to be our motherland, Taiwan president says](https://www.yahoo.com/news/impossible-peoples-republic-china-motherland-134135516.html)
-- Oct 05 - [Grammy-Nominated Rapper Logic Invested $6M In Bitcoin Nearly 4 Years Ago: This Is How Much His Stash Would Be Worth Today](https://finance.yahoo.com/news/grammy-nominated-rapper-logic-invested-133044514.html)
-- Oct 05 - [Retirement in America is a disaster for many. Is there hope?](https://finance.yahoo.com/news/retirement-in-america-is-a-disaster-for-many-is-there-hope-130053770.html)
-- Oct 05 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Oct 05 - [Inside the North Carolina mountain town that Hurricane Helene nearly wiped off the map](https://www.yahoo.com/news/inside-north-carolina-mountain-town-130334970.html)
 <!-- feed end -->
 
 ### Onstream
