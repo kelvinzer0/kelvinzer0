@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [New owners rescue prominent SLO County winery from bankruptcy — and they’ve got local ties](https://finance.yahoo.com/news/owners-rescue-prominent-slo-county-195533196.html)
-- Oct 05 - [Car flips over fence at Ky. racetrack, sending several spectators to hospital](https://sports.yahoo.com/car-flips-over-fence-ky-174712195.html)
 - Oct 05 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://www.yahoo.com/news/james-webb-space-telescopes-first-120500384.html)
-- Oct 05 - [Why Florida’s Retirees Are Fleeing — And Where They’re Going Instead](https://finance.yahoo.com/news/florida-retirees-fleeing-where-going-113047260.html)
-- Oct 05 - [Doctors And Nurses Are Revealing The Medical "Lies" People Should Stop Believing](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-medical-lies-153102518.html)
+- Oct 05 - [Tropical Storm Milton forms in the Gulf, headed for Florida as it rapidly intensifies](https://www.yahoo.com/news/tropical-storm-milton-forms-gulf-152529144.html)
+- Oct 05 - [The Only McDonald's Burger That's Cooked Fresh, Not Frozen](https://www.yahoo.com/lifestyle/only-mcdonalds-burger-thats-cooked-151532028.html)
+- Oct 05 - [Illegal street takeover ends in fiery mess in San Fernando Valley](https://www.yahoo.com/news/illegal-street-takeover-ends-fiery-134421660.html)
+- Oct 05 - ['Impossible' for People's Republic of China to be our motherland, Taiwan president says](https://www.yahoo.com/news/impossible-peoples-republic-china-motherland-134135516.html)
 <!-- feed end -->
 
 ### Onstream
