@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Exiled from Russia centuries ago, religious group is on edge of vanishing in Georgia](https://www.yahoo.com/news/exiled-russia-centuries-ago-religious-030111866.html)
-- Oct 06 - [Duchess of Edinburgh contacts ‘inspiring’ astronaut in space during museum visit](https://www.yahoo.com/news/duchess-edinburgh-contacts-inspiring-astronaut-134124166.html)
-- Oct 06 - [Frontier Airlines jet appears to catch fire while landing at Las Vegas airport, FAA investigating](https://www.yahoo.com/news/frontier-airlines-jet-catches-fire-012800850.html)
-- Oct 05 - [Tennessee is investigating a plastics factory after Helene swept away its workers. Here’s what we know](https://www.yahoo.com/news/tennessee-investigating-plastics-factory-helene-235538474.html)
-- Oct 05 - [Former New York governor and stepson assaulted during evening walk](https://www.yahoo.com/news/police-former-york-governor-stepson-210936153.html)
+- Oct 06 - [Flight catches fire while making hard landing at Harry Reid International Airport in Las Vegas](https://www.yahoo.com/news/flight-catches-fire-while-making-005538697.html)
+- Oct 05 - [Heavy strikes shake Beirut as Israel expands Lebanon campaign](https://www.yahoo.com/news/heavy-strikes-shake-beirut-israel-233731471.html)
+- Oct 05 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://www.yahoo.com/news/james-webb-space-telescopes-first-120500384.html)
+- Oct 05 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
+- Oct 05 - [Doctors And Nurses Are Revealing The Medical "Lies" People Should Stop Believing](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-medical-lies-153102518.html)
 <!-- feed end -->
 
 ### Onstream
