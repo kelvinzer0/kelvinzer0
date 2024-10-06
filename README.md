@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Two boys, ages 12 and 13, charged in assault on ex-NY Gov. David Paterson and his stepson](https://www.yahoo.com/news/two-boys-ages-12-13-175226810.html)
+- Oct 06 - [Hezbollah members were likely holding pagers with both hands when they exploded due to a dark feature: report](https://www.yahoo.com/news/hezbollah-members-were-likely-holding-172207591.html)
 - Oct 06 - [Tim Walz Outmaneuvers Fox News Host as He’s Grilled on Abortion](https://www.yahoo.com/news/tim-walz-outmaneuvers-fox-news-160525228.html)
-- Oct 06 - [Do anti-aging products really work? 8 best products to reduce wrinkles and fine lines, according to a dermatologist](https://www.yahoo.com/lifestyle/do-anti-aging-products-really-work-8-best-products-to-reduce-wrinkles-and-fine-lines-according-to-a-dermatologist-160043347.html)
-- Oct 06 - [Why Big Tech is racing to be first to get artificial general intelligence](https://finance.yahoo.com/video/why-big-tech-racing-first-153009690.html)
-- Oct 06 - [Republican House Speaker Mike Johnson refuses to say Trump lost 2020 election](https://www.yahoo.com/news/republican-house-speaker-mike-johnson-144919690.html)
-- Oct 06 - [A GE spinoff's stock is surging as it positions itself as the 'supermarket' for AI energy demand](https://finance.yahoo.com/news/a-ge-spinoffs-stock-is-surging-as-it-positions-itself-as-the-supermarket-for-ai-energy-demand-140019819.html)
+- Oct 06 - [Ignore social media. Here’s what Harris’ unrealized capital gains tax proposal means for you](https://finance.yahoo.com/news/ignore-social-media-harris-unrealized-160037184.html)
+- Oct 06 - [Best Early Discounts From Walmart's October 2024 Deals Event](https://www.yahoo.com/tech/best-early-discounts-walmarts-october-154335102.html)
 <!-- feed end -->
 
 ### Onstream
