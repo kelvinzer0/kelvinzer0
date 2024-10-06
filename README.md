@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Israeli military launches new operation in northern Gaza after seeing signs of Hamas regrouping](https://www.yahoo.com/news/israeli-military-launches-operation-northern-104832896.html)
+- Oct 06 - [Adults could be blocked from adding children as friends in online harms bill](https://www.yahoo.com/news/adults-could-blocked-adding-children-125035927.html)
+- Oct 06 - [Traffic Alert: Fatal crash shuts down all northbound lanes of I-95 at Pecan Park Rd., JSO reports](https://www.yahoo.com/news/traffic-alert-fatal-crash-shuts-120211088.html)
+- Oct 06 - [I bought my siblings out of our mom's home — the house later tripled in value and they want a share of the profit](https://finance.yahoo.com/news/bought-siblings-moms-home-house-095700376.html)
+- Oct 06 - [LIVE: Tropical Storm Milton expected to become hurricane today](https://www.yahoo.com/news/live-tropical-storm-milton-expected-094504391.html)
 - Oct 06 - [Chip war: China claims breakthrough in silicon photonics that could clear technical hurdle](https://finance.yahoo.com/news/chip-war-china-claims-breakthrough-093000307.html)
-- Oct 06 - [Harris weighs more breaks with Biden as he keeps injecting himself into the campaign](https://www.yahoo.com/news/harris-weighs-more-breaks-biden-070038459.html)
-- Oct 06 - [A Tennessee nurse and his dog died trying to save a man from floods driven by Hurricane Helene](https://www.yahoo.com/news/tennessee-nurse-dog-died-trying-041456526.html)
-- Oct 06 - [Officer who killed Daunte Wright is taking her story on the road with help from a former prosecutor](https://www.yahoo.com/news/officer-killed-daunte-wright-taking-040504981.html)
 <!-- feed end -->
 
 ### Onstream
