@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Adults could be blocked from adding children as friends in online harms bill](https://www.yahoo.com/news/adults-could-blocked-adding-children-125035927.html)
-- Oct 06 - [Traffic Alert: Fatal crash shuts down all northbound lanes of I-95 at Pecan Park Rd., JSO reports](https://www.yahoo.com/news/traffic-alert-fatal-crash-shuts-120211088.html)
+- Oct 06 - [A GE spinoff's stock is surging as it positions itself as the 'supermarket' for AI energy demand](https://finance.yahoo.com/news/a-ge-spinoffs-stock-is-surging-as-it-positions-itself-as-the-supermarket-for-ai-energy-demand-140019819.html)
+- Oct 06 - [Will Broadcom Be a Trillion-Dollar Stock by 2025?](https://finance.yahoo.com/news/broadcom-trillion-dollar-stock-2025-133000550.html)
+- Oct 06 - [Last member of child-eating wolf pack beaten to death in India](https://www.yahoo.com/news/last-member-child-eating-wolf-125600128.html)
 - Oct 06 - [I bought my siblings out of our mom's home — the house later tripled in value and they want a share of the profit](https://finance.yahoo.com/news/bought-siblings-moms-home-house-095700376.html)
-- Oct 06 - [LIVE: Tropical Storm Milton expected to become hurricane today](https://www.yahoo.com/news/live-tropical-storm-milton-expected-094504391.html)
-- Oct 06 - [Chip war: China claims breakthrough in silicon photonics that could clear technical hurdle](https://finance.yahoo.com/news/chip-war-china-claims-breakthrough-093000307.html)
+- Oct 06 - [Exiled from Russia centuries ago, religious group is on edge of vanishing in Georgia](https://www.yahoo.com/news/exiled-russia-centuries-ago-religious-030111866.html)
 <!-- feed end -->
 
 ### Onstream
