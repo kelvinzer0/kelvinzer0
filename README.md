@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [North Korean leader watches artillery firing exercise](https://www.yahoo.com/news/north-korean-leader-watches-artillery-042629555.html)
+- Oct 06 - [Russia launches air attack on Kyiv, Odesa, Ukraine says](https://www.yahoo.com/news/russia-launches-air-attack-kyiv-060805033.html)
+- Oct 06 - [Officer who killed Daunte Wright is taking her story on the road with help from a former prosecutor](https://www.yahoo.com/news/officer-killed-daunte-wright-taking-040504981.html)
+- Oct 06 - [Exiled from Russia centuries ago, religious group is on edge of vanishing in Georgia](https://www.yahoo.com/news/exiled-russia-centuries-ago-religious-030111866.html)
 - Oct 06 - [Flight catches fire while making hard landing at Harry Reid International Airport in Las Vegas](https://www.yahoo.com/news/flight-catches-fire-while-making-005538697.html)
-- Oct 05 - [Decorated off-duty Atlanta officer allegedly breaks into neighbor's house, is killed when homeowner opens fire](https://www.yahoo.com/news/decorated-off-duty-atlanta-officer-222110459.html)
 - Oct 05 - [Former New York governor and stepson assaulted during evening walk](https://www.yahoo.com/news/police-former-york-governor-stepson-210936153.html)
-- Oct 05 - [New owners rescue prominent SLO County winery from bankruptcy — and they’ve got local ties](https://finance.yahoo.com/news/owners-rescue-prominent-slo-county-195533196.html)
 <!-- feed end -->
 
 ### Onstream
