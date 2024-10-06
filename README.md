@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Cava CEO on how the Chipotle competitor grew to $33 million per restaurant](https://finance.yahoo.com/video/cava-ceo-chipotle-competitor-grew-090013154.html)
+- Oct 06 - [Harris weighs more breaks with Biden as he keeps injecting himself into the campaign](https://www.yahoo.com/news/harris-weighs-more-breaks-biden-070038459.html)
+- Oct 06 - [Israeli strike on mosque kills 19 as it bombards northern Gaza and southern Beirut](https://www.yahoo.com/news/apparent-israeli-airstrike-mosque-central-043845208.html)
 - Oct 06 - [A Tennessee nurse and his dog died trying to save a man from floods driven by Hurricane Helene](https://www.yahoo.com/news/tennessee-nurse-dog-died-trying-041456526.html)
-- Oct 06 - [Exiled from Russia centuries ago, religious group is on edge of vanishing in Georgia](https://www.yahoo.com/news/exiled-russia-centuries-ago-religious-030111866.html)
 - Oct 06 - [Flight catches fire while making hard landing at Harry Reid International Airport in Las Vegas](https://www.yahoo.com/news/flight-catches-fire-while-making-005538697.html)
-- Oct 06 - [Elon Musk Joins Trump Rally, Claims Harris Winning Would Make This ‘the Last Election’: ‘I’m Dark MAGA’ | Video](https://www.yahoo.com/news/elon-musk-joins-trump-rally-001759874.html)
-- Oct 05 - [AP Top Stories October 5 P](https://www.yahoo.com/news/ap-top-stories-october-5-221720170.html)
 <!-- feed end -->
 
 ### Onstream
