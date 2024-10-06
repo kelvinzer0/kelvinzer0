@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Big bears scored on Canada hunt, and more in the latest Manitowoc outdoors report](https://sports.yahoo.com/big-bears-scored-canada-hunt-095928241.html)
+- Oct 06 - [Boris Johnson's memoir: Everything critics have said about 'twisted' book Unleashed](https://www.yahoo.com/news/boris-johnson-memoir-critics-say-094030103.html)
+- Oct 06 - [Chip war: China claims breakthrough in silicon photonics that could clear technical hurdle](https://finance.yahoo.com/news/chip-war-china-claims-breakthrough-093000307.html)
 - Oct 06 - [Cava CEO on how the Chipotle competitor grew to $33 million per restaurant](https://finance.yahoo.com/video/cava-ceo-chipotle-competitor-grew-090013154.html)
 - Oct 06 - [Harris weighs more breaks with Biden as he keeps injecting himself into the campaign](https://www.yahoo.com/news/harris-weighs-more-breaks-biden-070038459.html)
-- Oct 06 - [Israeli strike on mosque kills 19 as it bombards northern Gaza and southern Beirut](https://www.yahoo.com/news/apparent-israeli-airstrike-mosque-central-043845208.html)
-- Oct 06 - [A Tennessee nurse and his dog died trying to save a man from floods driven by Hurricane Helene](https://www.yahoo.com/news/tennessee-nurse-dog-died-trying-041456526.html)
-- Oct 06 - [Flight catches fire while making hard landing at Harry Reid International Airport in Las Vegas](https://www.yahoo.com/news/flight-catches-fire-while-making-005538697.html)
 <!-- feed end -->
 
 ### Onstream
