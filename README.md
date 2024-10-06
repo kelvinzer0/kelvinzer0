@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [A Possible Reason McDonald's Keeps Raising Its Prices, According To A Former Chef](https://finance.yahoo.com/news/possible-reason-mcdonalds-keeps-raising-214554997.html)
+- Oct 06 - [Hezbollah rockets hit Israel's Haifa, 10 injured](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
+- Oct 06 - [US lets Starlink provide direct-to-cell coverage for hurricane-hit areas](https://finance.yahoo.com/news/us-lets-starlink-direct-cell-223038527.html)
+- Oct 06 - [Forgive Me, I'm Still Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/forgive-im-still-laughing-17-221602758.html)
+- Oct 06 - [Watch: Man filmed destroying Jewish memorial on eve of October 7 anniversary](https://www.yahoo.com/news/watch-man-filmed-destroying-jewish-215819942.html)
 - Oct 06 - [Harris’ border visit and economy speech capture attention as warning signs emerge for campaign](https://www.yahoo.com/news/harris-border-visit-economy-speech-190038239.html)
-- Oct 06 - [I'm Sorry, But I Died Laughing At These 22 Job Tweets From Last Week](https://www.yahoo.com/entertainment/im-sorry-died-laughing-22-204616872.html)
-- Oct 06 - [1 killed, 1 seriously injured in fiery New Hampshire crash, state police say](https://www.yahoo.com/news/1-killed-1-seriously-injured-201109333.html)
-- Oct 06 - [Iran is increasingly desperate, retired US general says](https://www.yahoo.com/news/iran-increasingly-desperate-retired-us-193714814.html)
 <!-- feed end -->
 
 ### Onstream
