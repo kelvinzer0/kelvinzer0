@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Big bears scored on Canada hunt, and more in the latest Manitowoc outdoors report](https://sports.yahoo.com/big-bears-scored-canada-hunt-095928241.html)
-- Oct 06 - [Boris Johnson's memoir: Everything critics have said about 'twisted' book Unleashed](https://www.yahoo.com/news/boris-johnson-memoir-critics-say-094030103.html)
+- Oct 06 - [Israeli military launches new operation in northern Gaza after seeing signs of Hamas regrouping](https://www.yahoo.com/news/israeli-military-launches-operation-northern-104832896.html)
 - Oct 06 - [Chip war: China claims breakthrough in silicon photonics that could clear technical hurdle](https://finance.yahoo.com/news/chip-war-china-claims-breakthrough-093000307.html)
-- Oct 06 - [Cava CEO on how the Chipotle competitor grew to $33 million per restaurant](https://finance.yahoo.com/video/cava-ceo-chipotle-competitor-grew-090013154.html)
 - Oct 06 - [Harris weighs more breaks with Biden as he keeps injecting himself into the campaign](https://www.yahoo.com/news/harris-weighs-more-breaks-biden-070038459.html)
+- Oct 06 - [A Tennessee nurse and his dog died trying to save a man from floods driven by Hurricane Helene](https://www.yahoo.com/news/tennessee-nurse-dog-died-trying-041456526.html)
+- Oct 06 - [Officer who killed Daunte Wright is taking her story on the road with help from a former prosecutor](https://www.yahoo.com/news/officer-killed-daunte-wright-taking-040504981.html)
 <!-- feed end -->
 
 ### Onstream
