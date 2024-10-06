@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Israel bans large gatherings in bitter split over Oct 7 anniversary](https://www.yahoo.com/news/israel-bans-large-gatherings-bitter-150032084.html)
-- Oct 06 - [Europe's far-right rallies round Salvini ahead of boat verdict](https://www.yahoo.com/news/europes-far-rallies-round-salvini-134842625.html)
-- Oct 06 - [Rep. Adam Schiff says there 'sadly' may not be peaceful transfer of power: Full interview](https://www.yahoo.com/news/rep-adam-schiff-says-sadly-133949586.html)
+- Oct 06 - [Warren Buffett's Son Who Famously Cashed In His $90,000 Inheritance at 19 Spends Millions in 'Buffett Bucks' Transforming A Small New York Town](https://finance.yahoo.com/news/warren-buffetts-son-famously-cashed-153019216.html)
+- Oct 06 - [A GE spinoff's stock is surging as it positions itself as the 'supermarket' for AI energy demand](https://finance.yahoo.com/news/a-ge-spinoffs-stock-is-surging-as-it-positions-itself-as-the-supermarket-for-ai-energy-demand-140019819.html)
 - Oct 06 - [Q&A: Vanguard strategist on saving for retirement and spending when you get there](https://finance.yahoo.com/news/qa-vanguard-strategist-on-saving-for-retirement-and-spending-when-you-get-there-133032184.html)
-- Oct 06 - [FHP: Fatal wrong-way crash on I-95 kills driver and child, 3 other children severely injured](https://www.yahoo.com/news/traffic-alert-fatal-crash-shuts-120211088.html)
+- Oct 06 - [Scientists make breakthrough in battery technology with revolutionary energy capabilities: 'Expected to open a new field'](https://www.yahoo.com/tech/scientists-breakthrough-battery-technology-revolutionary-111512345.html)
+- Oct 06 - [Magnitude 4 earthquake rocks Southern California’s Inland Empire](https://www.yahoo.com/news/magnitude-4-earthquake-rocks-southern-110117031.html)
 <!-- feed end -->
 
 ### Onstream
