@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [AP Top Stories October 5 P](https://www.yahoo.com/news/ap-top-stories-october-5-221720170.html)
+- Oct 06 - [Elon Musk Joins Trump Rally, Claims Harris Winning Would Make This ‘the Last Election’: ‘I’m Dark MAGA’ | Video](https://www.yahoo.com/news/elon-musk-joins-trump-rally-001759874.html)
 - Oct 05 - [Former New York governor and stepson assaulted during evening walk](https://www.yahoo.com/news/police-former-york-governor-stepson-210936153.html)
-- Oct 05 - [Valley Fire update: Potential evacuations and road closures, size and smoke forecast](https://www.yahoo.com/news/valley-fire-potential-evacuations-road-175735085.html)
 - Oct 05 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://www.yahoo.com/news/james-webb-space-telescopes-first-120500384.html)
+- Oct 05 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
 - Oct 05 - [Why Florida’s Retirees Are Fleeing — And Where They’re Going Instead](https://finance.yahoo.com/news/florida-retirees-fleeing-where-going-113047260.html)
 <!-- feed end -->
 
