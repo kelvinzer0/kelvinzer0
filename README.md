@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [A GE spinoff's stock is surging as it positions itself as the 'supermarket' for AI energy demand](https://finance.yahoo.com/news/a-ge-spinoffs-stock-is-surging-as-it-positions-itself-as-the-supermarket-for-ai-energy-demand-140019819.html)
-- Oct 06 - [Will Broadcom Be a Trillion-Dollar Stock by 2025?](https://finance.yahoo.com/news/broadcom-trillion-dollar-stock-2025-133000550.html)
-- Oct 06 - [Last member of child-eating wolf pack beaten to death in India](https://www.yahoo.com/news/last-member-child-eating-wolf-125600128.html)
-- Oct 06 - [I bought my siblings out of our mom's home — the house later tripled in value and they want a share of the profit](https://finance.yahoo.com/news/bought-siblings-moms-home-house-095700376.html)
-- Oct 06 - [Exiled from Russia centuries ago, religious group is on edge of vanishing in Georgia](https://www.yahoo.com/news/exiled-russia-centuries-ago-religious-030111866.html)
+- Oct 06 - [Israel bans large gatherings in bitter split over Oct 7 anniversary](https://www.yahoo.com/news/israel-bans-large-gatherings-bitter-150032084.html)
+- Oct 06 - [Europe's far-right rallies round Salvini ahead of boat verdict](https://www.yahoo.com/news/europes-far-rallies-round-salvini-134842625.html)
+- Oct 06 - [Rep. Adam Schiff says there 'sadly' may not be peaceful transfer of power: Full interview](https://www.yahoo.com/news/rep-adam-schiff-says-sadly-133949586.html)
+- Oct 06 - [Q&A: Vanguard strategist on saving for retirement and spending when you get there](https://finance.yahoo.com/news/qa-vanguard-strategist-on-saving-for-retirement-and-spending-when-you-get-there-133032184.html)
+- Oct 06 - [FHP: Fatal wrong-way crash on I-95 kills driver and child, 3 other children severely injured](https://www.yahoo.com/news/traffic-alert-fatal-crash-shuts-120211088.html)
 <!-- feed end -->
 
 ### Onstream
