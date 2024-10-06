@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Elon Musk's Unhinged Appearance At Trump Rally Gets Mocked In Memes](https://www.yahoo.com/entertainment/elon-musks-unhinged-appearance-trump-181325390.html)
+- Oct 06 - [Factbox-Who is Esmail Qaani, Iran's Quds Force commander ?](https://www.yahoo.com/news/factbox-esmail-qaani-irans-quds-194844867.html)
+- Oct 06 - [A massive blast outside Karachi Airport in Pakistan injures at least 8](https://www.yahoo.com/news/massive-blast-outside-karachi-airport-193041716.html)
 - Oct 06 - [Two boys, ages 12 and 13, charged in assault on ex-NY Gov. David Paterson and his stepson](https://www.yahoo.com/news/two-boys-ages-12-13-175226810.html)
+- Oct 06 - [Hezbollah members were likely holding pagers with both hands when they exploded due to a dark feature: report](https://www.yahoo.com/news/hezbollah-members-were-likely-holding-172207019.html)
 - Oct 06 - [Tim Walz Outmaneuvers Fox News Host as He’s Grilled on Abortion](https://www.yahoo.com/news/tim-walz-outmaneuvers-fox-news-160525228.html)
-- Oct 06 - [Ignore social media. Here’s what Harris’ unrealized capital gains tax proposal means for you](https://finance.yahoo.com/news/ignore-social-media-harris-unrealized-160037184.html)
-- Oct 06 - [Why Big Tech is racing to be first to get artificial general intelligence](https://finance.yahoo.com/video/why-big-tech-racing-first-153009690.html)
 <!-- feed end -->
 
 ### Onstream
