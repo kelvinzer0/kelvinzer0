@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Warren Buffett's Son Who Famously Cashed In His $90,000 Inheritance at 19 Spends Millions in 'Buffett Bucks' Transforming A Small New York Town](https://finance.yahoo.com/news/warren-buffetts-son-famously-cashed-153019216.html)
+- Oct 06 - [Tim Walz Outmaneuvers Fox News Host as He’s Grilled on Abortion](https://www.yahoo.com/news/tim-walz-outmaneuvers-fox-news-160525228.html)
+- Oct 06 - [Do anti-aging products really work? 8 best products to reduce wrinkles and fine lines, according to a dermatologist](https://www.yahoo.com/lifestyle/do-anti-aging-products-really-work-8-best-products-to-reduce-wrinkles-and-fine-lines-according-to-a-dermatologist-160043347.html)
+- Oct 06 - [Why Big Tech is racing to be first to get artificial general intelligence](https://finance.yahoo.com/video/why-big-tech-racing-first-153009690.html)
+- Oct 06 - [Republican House Speaker Mike Johnson refuses to say Trump lost 2020 election](https://www.yahoo.com/news/republican-house-speaker-mike-johnson-144919690.html)
 - Oct 06 - [A GE spinoff's stock is surging as it positions itself as the 'supermarket' for AI energy demand](https://finance.yahoo.com/news/a-ge-spinoffs-stock-is-surging-as-it-positions-itself-as-the-supermarket-for-ai-energy-demand-140019819.html)
-- Oct 06 - [Q&A: Vanguard strategist on saving for retirement and spending when you get there](https://finance.yahoo.com/news/qa-vanguard-strategist-on-saving-for-retirement-and-spending-when-you-get-there-133032184.html)
-- Oct 06 - [Scientists make breakthrough in battery technology with revolutionary energy capabilities: 'Expected to open a new field'](https://www.yahoo.com/tech/scientists-breakthrough-battery-technology-revolutionary-111512345.html)
-- Oct 06 - [Magnitude 4 earthquake rocks Southern California’s Inland Empire](https://www.yahoo.com/news/magnitude-4-earthquake-rocks-southern-110117031.html)
 <!-- feed end -->
 
 ### Onstream
