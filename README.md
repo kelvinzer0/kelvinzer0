@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Russia launches air attack on Kyiv, Odesa, Ukraine says](https://www.yahoo.com/news/russia-launches-air-attack-kyiv-060805033.html)
 - Oct 06 - [Officer who killed Daunte Wright is taking her story on the road with help from a former prosecutor](https://www.yahoo.com/news/officer-killed-daunte-wright-taking-040504981.html)
 - Oct 06 - [Exiled from Russia centuries ago, religious group is on edge of vanishing in Georgia](https://www.yahoo.com/news/exiled-russia-centuries-ago-religious-030111866.html)
 - Oct 06 - [Flight catches fire while making hard landing at Harry Reid International Airport in Las Vegas](https://www.yahoo.com/news/flight-catches-fire-while-making-005538697.html)
 - Oct 05 - [Former New York governor and stepson assaulted during evening walk](https://www.yahoo.com/news/police-former-york-governor-stepson-210936153.html)
+- Oct 05 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://www.yahoo.com/news/james-webb-space-telescopes-first-120500384.html)
 <!-- feed end -->
 
 ### Onstream
