@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [North Korean leader watches artillery firing exercise](https://www.yahoo.com/news/north-korean-leader-watches-artillery-042629555.html)
 - Oct 06 - [Flight catches fire while making hard landing at Harry Reid International Airport in Las Vegas](https://www.yahoo.com/news/flight-catches-fire-while-making-005538697.html)
-- Oct 05 - [Heavy strikes shake Beirut as Israel expands Lebanon campaign](https://www.yahoo.com/news/heavy-strikes-shake-beirut-israel-233731471.html)
-- Oct 05 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://www.yahoo.com/news/james-webb-space-telescopes-first-120500384.html)
-- Oct 05 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
-- Oct 05 - [Doctors And Nurses Are Revealing The Medical "Lies" People Should Stop Believing](https://www.yahoo.com/lifestyle/doctors-nurses-revealing-medical-lies-153102518.html)
+- Oct 05 - [Decorated off-duty Atlanta officer allegedly breaks into neighbor's house, is killed when homeowner opens fire](https://www.yahoo.com/news/decorated-off-duty-atlanta-officer-222110459.html)
+- Oct 05 - [Former New York governor and stepson assaulted during evening walk](https://www.yahoo.com/news/police-former-york-governor-stepson-210936153.html)
+- Oct 05 - [New owners rescue prominent SLO County winery from bankruptcy — and they’ve got local ties](https://finance.yahoo.com/news/owners-rescue-prominent-slo-county-195533196.html)
 <!-- feed end -->
 
 ### Onstream
