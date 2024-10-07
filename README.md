@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [“I’m sick and tired of this crap": Officials debunk Trump's "truly dangerous" Hurricane Helene lies](https://www.yahoo.com/news/m-sick-tired-crap-officials-152153166.html)
-- Oct 07 - [Trump allies threaten Deloitte contracts after employee leaks Vance comments](https://www.yahoo.com/news/trump-allies-threaten-deloitte-contracts-150749393.html)
-- Oct 07 - [Satellite Imagery Captures 'Extraordinary' Lightning as Milton Strengthens to Category 4 Hurricane](https://www.yahoo.com/news/satellite-imagery-captures-extraordinary-lightning-145309056.html)
-- Oct 07 - [Mexican mayor ‘decapitated’ by drug gangs six days into job](https://www.yahoo.com/news/mexican-mayor-decapitated-drug-gangs-144315752.html)
-- Oct 07 - [Oklahoma death row inmate had three 'last meals.' He's back at Supreme Court in new bid for freedom](https://www.yahoo.com/news/oklahoma-death-row-inmate-had-141337689.html)
+- Oct 07 - [The Best October Prime Day Deals That Are Actually Worth Your Money](https://www.yahoo.com/lifestyle/best-prime-big-deal-days-130000596.html)
+- Oct 07 - [Super Micro shares surge as AI boom drives 100,000 quarterly GPU shipments](https://finance.yahoo.com/news/super-micro-shares-surge-ai-164038782.html)
+- Oct 07 - [Ghana's wildcat gold mining booms, poisoning people and nature](https://www.yahoo.com/news/ghanas-wildcat-gold-mining-booms-163927240.html)
+- Oct 07 - [Man, 40, dies from 150-foot fall at Zion National Park](https://www.yahoo.com/news/man-40-dies-150-foot-163554359.html)
+- Oct 07 - [Judge Chuckles at Defendant Tina Peters Before Sentencing Her to 9 Years in Prison](https://www.yahoo.com/news/judge-chuckles-defendant-tina-peters-162957695.html)
 <!-- feed end -->
 
 ### Onstream
