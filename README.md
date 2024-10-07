@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - ["We didn’t answer": DeSantis refuses to take calls from Kamala Harris as another hurricane looms](https://www.yahoo.com/news/didn-t-answer-desantis-refuses-200909444.html)
 - Oct 07 - [Dow Drops 400 Points, But Super Micro Soars As Nvidia Clears Entry; Cathie Wood Sells AI Chipmaker After 74% Gain (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-tesla-tsla-nvidia-nvda-stock/?src=A00220&yptr=yahoo)
-- Oct 07 - [Photos of Life and Death in Gaza Since October 7th](https://www.yahoo.com/news/photos-life-death-gaza-since-194535241.html)
-- Oct 07 - [Mega Millions tickets will climb to $5, but officials promise bigger prizes and better odds](https://www.yahoo.com/news/mega-millions-tickets-climb-5-185046085.html)
-- Oct 07 - [Patriots captain Jabrill Peppers charged with assault, strangulation after altercation, police say](https://www.yahoo.com/news/patriots-safety-charged-assault-strangulation-125809926.html)
-- Oct 07 - [Nintendo’s discounted Switch bundles are now available](https://www.yahoo.com/tech/nintendos-discounted-switch-bundles-are-now-available-174016292.html)
+- Oct 07 - [Palm Beach County high school sports games postponed, canceled ahead of Hurricane Milton](https://sports.yahoo.com/hurricane-milton-forces-palm-beach-195011931.html)
+- Oct 07 - [Ex-Kansas police chief who raided newspaper makes first, brief appearance in court](https://www.yahoo.com/news/ex-kansas-police-chief-raided-194739637.html)
+- Oct 07 - [Western NC road closures: Progress made in clearing I-40 and I-26 alternate routes to TN](https://www.yahoo.com/news/western-nc-road-closures-progress-191324535.html)
 <!-- feed end -->
 
 ### Onstream
