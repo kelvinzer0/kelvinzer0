@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Freed Russian arms dealer Bout back in weapons business, WSJ reports](https://www.yahoo.com/news/freed-russian-arms-dealer-bout-034101128.html)
-- Oct 07 - [Survivor of Capsized Boat in Alaska Describes  Moment Texas Family of 4 Disappeared: 'They Were Just Gone'](https://www.yahoo.com/news/survivor-capsized-boat-alaska-describes-022224274.html)
-- Oct 06 - [Search underway for couple who set Northern California Winco on fire](https://www.yahoo.com/news/search-underway-couple-set-northern-225539116.html)
-- Oct 06 - [Hezbollah rockets hit Israel's Haifa in first direct hit to city](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
-- Oct 06 - [Runner hit by vehicle during Milwaukee Lakefront Marathon in Cudahy after driver experiences medical emergency](https://www.yahoo.com/news/runner-hit-vehicle-during-milwaukee-210832131.html)
+- Oct 07 - [Sardinia's sheep farmers battle bluetongue as climate warms](https://www.yahoo.com/news/sardinias-sheep-farmers-battle-bluetongue-052104118.html)
+- Oct 07 - [South Korean woman sues government and adoption agency after her kidnapped daughter was sent abroad](https://www.yahoo.com/news/south-korean-woman-sues-government-053850687.html)
+- Oct 07 - [Trump wants ‘apology’ from 60 Minutes after dropping out of interview as Harris prepares for media blitz: Live](https://www.yahoo.com/news/trump-vs-harris-debate-live-190426328.html)
+- Oct 07 - [Mexican mayor assassinated days after taking office](https://www.yahoo.com/news/mexican-mayor-assassinated-days-taking-040533725.html)
+- Oct 07 - ['God save the Tsar!': Putin receives first wishes for 72nd birthday](https://www.yahoo.com/news/god-save-tsar-putin-receives-013212221.html)
 <!-- feed end -->
 
 ### Onstream
