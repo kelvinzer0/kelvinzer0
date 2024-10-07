@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [The Best October Prime Day Deals That Are Actually Worth Your Money](https://www.yahoo.com/lifestyle/best-prime-big-deal-days-130000596.html)
-- Oct 07 - [Super Micro shares surge as AI boom drives 100,000 quarterly GPU shipments](https://finance.yahoo.com/news/super-micro-shares-surge-ai-164038782.html)
-- Oct 07 - [Ghana's wildcat gold mining booms, poisoning people and nature](https://www.yahoo.com/news/ghanas-wildcat-gold-mining-booms-163927240.html)
-- Oct 07 - [Man, 40, dies from 150-foot fall at Zion National Park](https://www.yahoo.com/news/man-40-dies-150-foot-163554359.html)
-- Oct 07 - [Judge Chuckles at Defendant Tina Peters Before Sentencing Her to 9 Years in Prison](https://www.yahoo.com/news/judge-chuckles-defendant-tina-peters-162957695.html)
+- Oct 07 - [Not Every Prime Day Deal Is Worth Your Attention, But These 36 Certainly Are](https://www.yahoo.com/lifestyle/not-every-early-prime-day-120000722.html)
+- Oct 07 - [Red and green swirls of northern lights captured dancing in Minnesota sky: Video](https://www.yahoo.com/news/red-green-swirls-northern-lights-174348732.html)
+- Oct 07 - [More Black, Hispanic, Latina women are investing to build wealth](https://finance.yahoo.com/video/more-black-hispanic-latina-women-171500840.html)
+- Oct 07 - [Electric car insurance premiums set to soar](https://www.yahoo.com/news/electric-car-insurance-premiums-set-170905483.html)
+- Oct 07 - [Listen Up: These Are the Best Early Prime Day Deals on Headphones & Earbuds](https://www.yahoo.com/tech/listen-best-early-prime-day-162423445.html)
 <!-- feed end -->
 
 ### Onstream
