@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Security personnel clear rubble after sirens and blasts heard in Haifa, northern Israel](https://www.yahoo.com/news/rocket-sirens-blasts-were-heard-000217641.html)
+- Oct 06 - [Search underway for couple who set Northern California Winco on fire](https://www.yahoo.com/news/search-underway-couple-set-northern-225539116.html)
 - Oct 06 - [Hezbollah rockets hit Israel's Haifa and Tiberias, 10 injured](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
 - Oct 06 - [US lets Starlink provide direct-to-cell coverage for hurricane-hit areas](https://finance.yahoo.com/news/us-lets-starlink-direct-cell-223038527.html)
-- Oct 06 - [Forgive Me, I'm Still Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/forgive-im-still-laughing-17-221602758.html)
-- Oct 06 - [Scientists deploy monitors at WA volcano amid unusual earthquake activity](https://www.yahoo.com/news/scientists-deploy-monitors-wa-volcano-203257409.html)
+- Oct 06 - [US on Israeli bombing in Lebanon: Military pressure can enable diplomacy but has risk](https://www.yahoo.com/news/us-israeli-bombing-lebanon-military-195304368.html)
+- Oct 06 - [‘I'm 67 and In the Best Shape of My Life—This Is the Exact Workout Routine I Swear By’](https://www.yahoo.com/lifestyle/im-67-best-shape-life-182500546.html)
 <!-- feed end -->
 
 ### Onstream
