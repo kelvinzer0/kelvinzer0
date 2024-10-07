@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Not Every Prime Day Deal Is Worth Your Attention, But These 36 Certainly Are](https://www.yahoo.com/lifestyle/not-every-early-prime-day-120000722.html)
-- Oct 07 - [Red and green swirls of northern lights captured dancing in Minnesota sky: Video](https://www.yahoo.com/news/red-green-swirls-northern-lights-174348732.html)
-- Oct 07 - [More Black, Hispanic, Latina women are investing to build wealth](https://finance.yahoo.com/video/more-black-hispanic-latina-women-171500840.html)
-- Oct 07 - [Electric car insurance premiums set to soar](https://www.yahoo.com/news/electric-car-insurance-premiums-set-170905483.html)
-- Oct 07 - [Listen Up: These Are the Best Early Prime Day Deals on Headphones & Earbuds](https://www.yahoo.com/tech/listen-best-early-prime-day-162423445.html)
+- Oct 07 - [Dow Drops 500 Points But Supermicro Soars As Nvidia Clears Entry; Cathie Wood Sells AI Chipmaker After 74% Gain(Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-tesla-tsla-nvidia-nvda-stock/?src=A00220&yptr=yahoo)
+- Oct 07 - [Patriots captain Jabrill Peppers charged with assault, strangulation after altercation, police say](https://www.yahoo.com/news/patriots-safety-charged-assault-strangulation-125809926.html)
+- Oct 07 - [Nintendo’s discounted Switch bundles are now available](https://www.yahoo.com/tech/nintendos-discounted-switch-bundles-are-now-available-174016292.html)
+- Oct 07 - [‘I believe she made a big mistake’: My wife put her paycheck into a bank account with her inheritance. Do I now own 50% of those funds?](https://finance.yahoo.com/news/believe-she-made-big-mistake-081800597.html)
+- Oct 07 - [Best Early Electronics Deals From Best Buy's Upcoming 48-Hour Flash Sale](https://www.yahoo.com/tech/best-early-electronics-deals-best-183140717.html)
 <!-- feed end -->
 
 ### Onstream
