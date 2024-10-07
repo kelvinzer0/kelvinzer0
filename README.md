@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Apple AirPods Max Are at Their Lowest Price Ever Thanks to Prime Day](https://www.yahoo.com/tech/apple-airpods-max-lowest-price-121500622.html)
-- Oct 07 - [McDonald's Corporation (NYSE:MCD) is largely controlled by institutional shareholders who own 72% of the company](https://finance.yahoo.com/news/mcdonalds-corporation-nyse-mcd-largely-110109192.html)
-- Oct 07 - ['You Just Saw It': ABC Host Calls Out Mike Johnson For Playing Dumb About Video He Just Saw](https://www.yahoo.com/news/just-saw-abc-host-calls-101112353.html)
-- Oct 07 - [The Media Is Finally Waking Up to the Story of Trump’s Mental Fitness](https://www.yahoo.com/news/media-finally-waking-story-trump-100000589.html)
-- Oct 07 - [Ukraine strikes a Russian oil hub as Zelenskyy says the war is in 'a very important phase'](https://www.yahoo.com/news/ukraine-strikes-russian-oil-hub-094958813.html)
+- Oct 07 - ['Dangerously Stupid' Marjorie Taylor Greene's Milk Boast Gets Udderly Slammed Online](https://www.yahoo.com/news/dangerously-stupid-marjorie-taylor-greenes-130228665.html)
+- Oct 07 - [Patriots safety charged with assault, strangulation after altercation, police say](https://www.yahoo.com/news/patriots-safety-charged-assault-strangulation-125809926.html)
+- Oct 07 - [Trump slams staff for ‘stupid’ fail over photo of rally size as Harris hits back at ‘childless’ attacks: Live](https://www.yahoo.com/news/trump-vs-harris-debate-live-190426328.html)
+- Oct 07 - [With $1 Million in My 401(k), Should I Start Converting $100k a Year to a Roth at 62?](https://finance.yahoo.com/news/im-62-1-million-401-120000516.html)
+- Oct 07 - [King Charles Makes Surprising Decision to ‘Pause’ Cancer Treatment](https://www.yahoo.com/news/king-charles-makes-surprising-decision-102912502.html)
 <!-- feed end -->
 
 ### Onstream
