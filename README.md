@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Oct 06 - [Search underway for couple who set Northern California Winco on fire](https://www.yahoo.com/news/search-underway-couple-set-northern-225539116.html)
 - Oct 06 - [Hezbollah rockets hit Israel's Haifa and Tiberias, 10 injured](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
 - Oct 06 - [US lets Starlink provide direct-to-cell coverage for hurricane-hit areas](https://finance.yahoo.com/news/us-lets-starlink-direct-cell-223038527.html)
+- Oct 06 - [Tracking Milton: These schools have announced closures](https://www.yahoo.com/news/tracking-milton-schools-announced-closures-203450106.html)
 - Oct 06 - [US on Israeli bombing in Lebanon: Military pressure can enable diplomacy but has risk](https://www.yahoo.com/news/us-israeli-bombing-lebanon-military-195304368.html)
-- Oct 06 - [‘I'm 67 and In the Best Shape of My Life—This Is the Exact Workout Routine I Swear By’](https://www.yahoo.com/lifestyle/im-67-best-shape-life-182500546.html)
 <!-- feed end -->
 
 ### Onstream
