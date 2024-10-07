@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - [Patriots' Jabrill Peppers arrested, charged with assault and battery, strangulation, drug possession](https://sports.yahoo.com/patriots-jabrill-peppers-arrested-charged-with-assault-and-battery-strangulation-drug-possession-134638555.html)
+- Oct 07 - [Putin tears down favourite holiday villa over threat of Ukrainian drones](https://www.yahoo.com/news/putin-tears-down-favourite-holiday-134625954.html)
+- Oct 07 - [Israel’s Self-Defense Requires a Regional War. We’ll All Be Safer If It Wins.](https://www.barrons.com/articles/israel-war-gaza-iran-370ede4a?siteid=yhoof2&yptr=yahoo)
 - Oct 07 - ['Dangerously Stupid' Marjorie Taylor Greene's Milk Boast Gets Udderly Slammed Online](https://www.yahoo.com/news/dangerously-stupid-marjorie-taylor-greenes-130228665.html)
-- Oct 07 - [Patriots safety charged with assault, strangulation after altercation, police say](https://www.yahoo.com/news/patriots-safety-charged-assault-strangulation-125809926.html)
-- Oct 07 - [Trump slams staff for ‘stupid’ fail over photo of rally size as Harris hits back at ‘childless’ attacks: Live](https://www.yahoo.com/news/trump-vs-harris-debate-live-190426328.html)
-- Oct 07 - [With $1 Million in My 401(k), Should I Start Converting $100k a Year to a Roth at 62?](https://finance.yahoo.com/news/im-62-1-million-401-120000516.html)
-- Oct 07 - [King Charles Makes Surprising Decision to ‘Pause’ Cancer Treatment](https://www.yahoo.com/news/king-charles-makes-surprising-decision-102912502.html)
+- Oct 07 - [The Russian arms dealer who was exchanged for Brittney Griner is trying to sell weapons to the Houthis: report](https://www.yahoo.com/news/russian-arms-dealer-exchanged-brittney-121145113.html)
 <!-- feed end -->
 
 ### Onstream
