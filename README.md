@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Hezbollah rockets hit Israel's Haifa, 10 injured](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
+- Oct 07 - [Security personnel clear rubble after sirens and blasts heard in Haifa, northern Israel](https://www.yahoo.com/news/rocket-sirens-blasts-were-heard-000217641.html)
+- Oct 06 - [Hezbollah rockets hit Israel's Haifa and Tiberias, 10 injured](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
 - Oct 06 - [US lets Starlink provide direct-to-cell coverage for hurricane-hit areas](https://finance.yahoo.com/news/us-lets-starlink-direct-cell-223038527.html)
 - Oct 06 - [Forgive Me, I'm Still Laughing At The 17 Funniest Signs Of The Week](https://www.yahoo.com/entertainment/forgive-im-still-laughing-17-221602758.html)
-- Oct 06 - [Watch: Man filmed destroying Jewish memorial on eve of October 7 anniversary](https://www.yahoo.com/news/watch-man-filmed-destroying-jewish-215819942.html)
-- Oct 06 - [Harris’ border visit and economy speech capture attention as warning signs emerge for campaign](https://www.yahoo.com/news/harris-border-visit-economy-speech-190038239.html)
+- Oct 06 - [Scientists deploy monitors at WA volcano amid unusual earthquake activity](https://www.yahoo.com/news/scientists-deploy-monitors-wa-volcano-203257409.html)
 <!-- feed end -->
 
 ### Onstream
