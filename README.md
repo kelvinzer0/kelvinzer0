@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Mexican mayor assassinated days after taking office](https://www.yahoo.com/news/mexican-mayor-assassinated-days-taking-040533725.html)
+- Oct 07 - [Freed Russian arms dealer Bout back in weapons business, WSJ reports](https://www.yahoo.com/news/freed-russian-arms-dealer-bout-034101128.html)
 - Oct 07 - [Survivor of Capsized Boat in Alaska Describes  Moment Texas Family of 4 Disappeared: 'They Were Just Gone'](https://www.yahoo.com/news/survivor-capsized-boat-alaska-describes-022224274.html)
 - Oct 06 - [Search underway for couple who set Northern California Winco on fire](https://www.yahoo.com/news/search-underway-couple-set-northern-225539116.html)
-- Oct 06 - [Hezbollah rockets hit Israel's Haifa and Tiberias, 10 injured](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
-- Oct 06 - [Hurricane Milton: Local closings, cancellations, resources](https://www.yahoo.com/news/hurricane-milton-local-closings-cancellations-203517644.html)
+- Oct 06 - [Hezbollah rockets hit Israel's Haifa in first direct hit to city](https://www.yahoo.com/news/hezbollah-rockets-hit-israels-haifa-223308879.html)
+- Oct 06 - [Runner hit by vehicle during Milwaukee Lakefront Marathon in Cudahy after driver experiences medical emergency](https://www.yahoo.com/news/runner-hit-vehicle-during-milwaukee-210832131.html)
 <!-- feed end -->
 
 ### Onstream
