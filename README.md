@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Patriots' Jabrill Peppers arrested, charged with assault and battery, strangulation, drug possession](https://sports.yahoo.com/patriots-jabrill-peppers-arrested-charged-with-assault-and-battery-strangulation-drug-possession-134638555.html)
-- Oct 07 - [Putin tears down favourite holiday villa over threat of Ukrainian drones](https://www.yahoo.com/news/putin-tears-down-favourite-holiday-134625954.html)
-- Oct 07 - [Israel’s Self-Defense Requires a Regional War. We’ll All Be Safer If It Wins.](https://www.barrons.com/articles/israel-war-gaza-iran-370ede4a?siteid=yhoof2&yptr=yahoo)
-- Oct 07 - ['Dangerously Stupid' Marjorie Taylor Greene's Milk Boast Gets Udderly Slammed Online](https://www.yahoo.com/news/dangerously-stupid-marjorie-taylor-greenes-130228665.html)
-- Oct 07 - [The Russian arms dealer who was exchanged for Brittney Griner is trying to sell weapons to the Houthis: report](https://www.yahoo.com/news/russian-arms-dealer-exchanged-brittney-121145113.html)
+- Oct 07 - [TGI Fridays axes 1,000 jobs and closes 35 restaurants despite rescue deal](https://uk.finance.yahoo.com/news/tgi-fridays-closures-jobs-redundancies-144544680.html)
+- Oct 07 - [Oklahoma death row inmate had three 'last meals.' He's back at Supreme Court in new bid for freedom](https://www.yahoo.com/news/oklahoma-death-row-inmate-had-141337689.html)
+- Oct 07 - [Supreme Court rejects Republican-led challenge to ease voter registration](https://www.yahoo.com/news/supreme-court-rejects-republican-led-135600659.html)
+- Oct 07 - [John Oliver Shreds Evangelical Preacher’s Claim God Flooded North Carolina so JD Vance Could Come to Pittsburgh](https://www.yahoo.com/entertainment/john-oliver-shreds-evangelical-preacher-134932777.html)
+- Oct 07 - [Supreme Court declines Biden administration appeal in Texas emergency abortion case](https://www.yahoo.com/news/supreme-court-lets-stand-decision-134142024.html)
 <!-- feed end -->
 
 ### Onstream
