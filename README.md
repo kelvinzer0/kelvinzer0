@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Nvidia Overtakes Microsoft as World's Second-Largest Company by Market Cap](https://finance.yahoo.com/news/nvidia-overtakes-microsoft-worlds-second-212158781.html)
-- Oct 07 - [Best Early Electronics Deals From Best Buy's Upcoming 48-Hour Flash Sale](https://www.yahoo.com/tech/best-early-electronics-deals-best-183140717.html)
-- Oct 07 - [White House pushes back after DeSantis declines to return calls from Biden and Harris on storm recovery](https://www.yahoo.com/news/white-house-pushes-back-desantis-200152742.html)
 - Oct 07 - [Hurricane Milton: County-by-county list of school closures in Northeast Florida, Southeast Georgia](https://www.yahoo.com/news/county-county-list-school-closures-144717981.html)
-- Oct 07 - [Salmon swim freely in the Klamath River for 1st time in a century after dams removed](https://www.yahoo.com/news/salmon-swimming-freely-klamath-river-190323428.html)
+- Oct 07 - [Dodge Ram Gets Jacked By Arkansas State Police](https://autos.yahoo.com/dodge-ram-gets-jacked-arkansas-213000179.html)
+- Oct 07 - [North Korea's Kim Jong Un says he will speed up steps to become a nuclear weapons superpower](https://www.yahoo.com/news/north-koreas-kim-jong-un-212039621.html)
+- Oct 07 - [‘Wish we could’ve made it work.’ After 7 years, KC burgers and brews restaurant closes](https://finance.yahoo.com/news/wish-could-ve-made-7-203340782.html)
+- Oct 07 - [As Milton takes aim at Florida, why is Tampa Bay so vulnerable to hurricanes?](https://www.yahoo.com/news/milton-takes-aim-florida-why-195352893.html)
 <!-- feed end -->
 
 ### Onstream
