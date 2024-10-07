@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [VIDEO: Help identify suspect in shooting of Kenia Guardado Molina](https://www.yahoo.com/news/video-help-identify-suspect-shooting-105944827.html)
-- Oct 07 - [Trump slams staff for ‘stupid’ fail over photo of rally size as Harris hits back at ‘childless’ attacks: Live](https://www.yahoo.com/news/trump-vs-harris-debate-live-190426328.html)
-- Oct 07 - [King Charles Makes Surprising Decision to ‘Pause’ Cancer Treatment](https://www.yahoo.com/news/king-charles-makes-surprising-decision-102912502.html)
-- Oct 07 - [I'm 60 and have hit my $1.5M retirement savings target — but am suffering from 'just one more year' syndrome](https://finance.yahoo.com/news/im-60-hit-1-5m-102500073.html)
-- Oct 07 - [The Middle East is on high alert for October 7 anniversary attacks as Israel intensifies strikes on Gaza and Lebanon](https://www.yahoo.com/news/middle-east-high-alert-october-102156110.html)
+- Oct 07 - [Apple AirPods Max Are at Their Lowest Price Ever Thanks to Prime Day](https://www.yahoo.com/tech/apple-airpods-max-lowest-price-121500622.html)
+- Oct 07 - [McDonald's Corporation (NYSE:MCD) is largely controlled by institutional shareholders who own 72% of the company](https://finance.yahoo.com/news/mcdonalds-corporation-nyse-mcd-largely-110109192.html)
+- Oct 07 - ['You Just Saw It': ABC Host Calls Out Mike Johnson For Playing Dumb About Video He Just Saw](https://www.yahoo.com/news/just-saw-abc-host-calls-101112353.html)
+- Oct 07 - [The Media Is Finally Waking Up to the Story of Trump’s Mental Fitness](https://www.yahoo.com/news/media-finally-waking-story-trump-100000589.html)
+- Oct 07 - [Ukraine strikes a Russian oil hub as Zelenskyy says the war is in 'a very important phase'](https://www.yahoo.com/news/ukraine-strikes-russian-oil-hub-094958813.html)
 <!-- feed end -->
 
 ### Onstream
