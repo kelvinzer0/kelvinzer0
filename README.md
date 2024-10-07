@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Dow Drops 500 Points But Supermicro Soars As Nvidia Clears Entry; Cathie Wood Sells AI Chipmaker After 74% Gain(Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-tesla-tsla-nvidia-nvda-stock/?src=A00220&yptr=yahoo)
+- Oct 07 - [Dow Drops 400 Points, But Super Micro Soars As Nvidia Clears Entry; Cathie Wood Sells AI Chipmaker After 74% Gain (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-tesla-tsla-nvidia-nvda-stock/?src=A00220&yptr=yahoo)
+- Oct 07 - [Photos of Life and Death in Gaza Since October 7th](https://www.yahoo.com/news/photos-life-death-gaza-since-194535241.html)
+- Oct 07 - [Mega Millions tickets will climb to $5, but officials promise bigger prizes and better odds](https://www.yahoo.com/news/mega-millions-tickets-climb-5-185046085.html)
 - Oct 07 - [Patriots captain Jabrill Peppers charged with assault, strangulation after altercation, police say](https://www.yahoo.com/news/patriots-safety-charged-assault-strangulation-125809926.html)
 - Oct 07 - [Nintendo’s discounted Switch bundles are now available](https://www.yahoo.com/tech/nintendos-discounted-switch-bundles-are-now-available-174016292.html)
-- Oct 07 - [‘I believe she made a big mistake’: My wife put her paycheck into a bank account with her inheritance. Do I now own 50% of those funds?](https://finance.yahoo.com/news/believe-she-made-big-mistake-081800597.html)
-- Oct 07 - [Best Early Electronics Deals From Best Buy's Upcoming 48-Hour Flash Sale](https://www.yahoo.com/tech/best-early-electronics-deals-best-183140717.html)
 <!-- feed end -->
 
 ### Onstream
