@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - [VIDEO: Help identify suspect in shooting of Kenia Guardado Molina](https://www.yahoo.com/news/video-help-identify-suspect-shooting-105944827.html)
 - Oct 07 - [Trump slams staff for ‘stupid’ fail over photo of rally size as Harris hits back at ‘childless’ attacks: Live](https://www.yahoo.com/news/trump-vs-harris-debate-live-190426328.html)
-- Oct 07 - [Ukraine strikes a Russian oil hub as Zelenskyy says the war is in 'a very important phase'](https://www.yahoo.com/news/ukraine-strikes-russian-oil-hub-094958813.html)
-- Oct 07 - [Nobel prize for medicine goes to U.S. scientists Ambros and Ruvkun](https://www.yahoo.com/news/nobel-prize-medicine-goes-u-094121064.html)
-- Oct 07 - [Pete Buttigieg says he had a call with Elon Musk to talk about Hurricane Helene because 'the best thing to do is just to pick up the phone'](https://www.yahoo.com/news/pete-buttigieg-says-had-call-081754462.html)
-- Oct 07 - [South Korean woman sues government and adoption agency after her kidnapped daughter was sent abroad](https://www.yahoo.com/news/south-korean-woman-sues-government-053850687.html)
+- Oct 07 - [King Charles Makes Surprising Decision to ‘Pause’ Cancer Treatment](https://www.yahoo.com/news/king-charles-makes-surprising-decision-102912502.html)
+- Oct 07 - [I'm 60 and have hit my $1.5M retirement savings target — but am suffering from 'just one more year' syndrome](https://finance.yahoo.com/news/im-60-hit-1-5m-102500073.html)
+- Oct 07 - [The Middle East is on high alert for October 7 anniversary attacks as Israel intensifies strikes on Gaza and Lebanon](https://www.yahoo.com/news/middle-east-high-alert-october-102156110.html)
 <!-- feed end -->
 
 ### Onstream
