@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Trump wants ‘apology’ from 60 Minutes after dropping out of interview as Harris prepares for media blitz: Live](https://www.yahoo.com/news/trump-vs-harris-debate-live-190426328.html)
-- Oct 07 - [Hezbollah strikes Israel on Gaza war anniversary; fears grow over Middle East instability](https://www.yahoo.com/news/hezbollah-strikes-israel-gaza-war-053926829.html)
+- Oct 07 - [Hamas hostage Idan Shtivi confirmed killed in Oct. 7 attack on Israel music festival](https://www.yahoo.com/news/hamas-hostage-idan-shtivi-confirmed-082423558.html)
 - Oct 07 - [South Korean woman sues government and adoption agency after her kidnapped daughter was sent abroad](https://www.yahoo.com/news/south-korean-woman-sues-government-053850687.html)
 - Oct 07 - [Gaza is in ruins after Israel's yearlong offensive. Rebuilding may take decades](https://www.yahoo.com/news/gaza-ruins-israels-yearlong-offensive-042441471.html)
-- Oct 06 - [Search underway for couple who set Northern California Winco on fire](https://www.yahoo.com/news/search-underway-couple-set-northern-225539116.html)
+- Oct 07 - [Mexican mayor assassinated days after taking office](https://www.yahoo.com/news/mexican-mayor-assassinated-days-taking-040533725.html)
+- Oct 07 - [Freed Russian arms dealer Bout back in weapons business, WSJ reports](https://www.yahoo.com/news/freed-russian-arms-dealer-bout-034101128.html)
 <!-- feed end -->
 
 ### Onstream
