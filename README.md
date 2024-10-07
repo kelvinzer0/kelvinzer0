@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - ["We didn’t answer": DeSantis refuses to take calls from Kamala Harris as another hurricane looms](https://www.yahoo.com/news/didn-t-answer-desantis-refuses-200909444.html)
-- Oct 07 - [Dow Drops 400 Points, But Super Micro Soars As Nvidia Clears Entry; Cathie Wood Sells AI Chipmaker After 74% Gain (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-tesla-tsla-nvidia-nvda-stock/?src=A00220&yptr=yahoo)
-- Oct 07 - [Palm Beach County high school sports games postponed, canceled ahead of Hurricane Milton](https://sports.yahoo.com/hurricane-milton-forces-palm-beach-195011931.html)
-- Oct 07 - [Ex-Kansas police chief who raided newspaper makes first, brief appearance in court](https://www.yahoo.com/news/ex-kansas-police-chief-raided-194739637.html)
-- Oct 07 - [Western NC road closures: Progress made in clearing I-40 and I-26 alternate routes to TN](https://www.yahoo.com/news/western-nc-road-closures-progress-191324535.html)
+- Oct 07 - [Nvidia Overtakes Microsoft as World's Second-Largest Company by Market Cap](https://finance.yahoo.com/news/nvidia-overtakes-microsoft-worlds-second-212158781.html)
+- Oct 07 - [Best Early Electronics Deals From Best Buy's Upcoming 48-Hour Flash Sale](https://www.yahoo.com/tech/best-early-electronics-deals-best-183140717.html)
+- Oct 07 - [White House pushes back after DeSantis declines to return calls from Biden and Harris on storm recovery](https://www.yahoo.com/news/white-house-pushes-back-desantis-200152742.html)
+- Oct 07 - [Hurricane Milton: County-by-county list of school closures in Northeast Florida, Southeast Georgia](https://www.yahoo.com/news/county-county-list-school-closures-144717981.html)
+- Oct 07 - [Salmon swim freely in the Klamath River for 1st time in a century after dams removed](https://www.yahoo.com/news/salmon-swimming-freely-klamath-river-190323428.html)
 <!-- feed end -->
 
 ### Onstream
