@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [TGI Fridays axes 1,000 jobs and closes 35 restaurants despite rescue deal](https://uk.finance.yahoo.com/news/tgi-fridays-closures-jobs-redundancies-144544680.html)
+- Oct 07 - [“I’m sick and tired of this crap": Officials debunk Trump's "truly dangerous" Hurricane Helene lies](https://www.yahoo.com/news/m-sick-tired-crap-officials-152153166.html)
+- Oct 07 - [Trump allies threaten Deloitte contracts after employee leaks Vance comments](https://www.yahoo.com/news/trump-allies-threaten-deloitte-contracts-150749393.html)
+- Oct 07 - [Satellite Imagery Captures 'Extraordinary' Lightning as Milton Strengthens to Category 4 Hurricane](https://www.yahoo.com/news/satellite-imagery-captures-extraordinary-lightning-145309056.html)
+- Oct 07 - [Mexican mayor ‘decapitated’ by drug gangs six days into job](https://www.yahoo.com/news/mexican-mayor-decapitated-drug-gangs-144315752.html)
 - Oct 07 - [Oklahoma death row inmate had three 'last meals.' He's back at Supreme Court in new bid for freedom](https://www.yahoo.com/news/oklahoma-death-row-inmate-had-141337689.html)
-- Oct 07 - [Supreme Court rejects Republican-led challenge to ease voter registration](https://www.yahoo.com/news/supreme-court-rejects-republican-led-135600659.html)
-- Oct 07 - [John Oliver Shreds Evangelical Preacher’s Claim God Flooded North Carolina so JD Vance Could Come to Pittsburgh](https://www.yahoo.com/entertainment/john-oliver-shreds-evangelical-preacher-134932777.html)
-- Oct 07 - [Supreme Court declines Biden administration appeal in Texas emergency abortion case](https://www.yahoo.com/news/supreme-court-lets-stand-decision-134142024.html)
 <!-- feed end -->
 
 ### Onstream
