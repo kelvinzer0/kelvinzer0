@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 08 - [Israel's strikes are shifting the power balance in the Middle East, with US support](https://www.yahoo.com/news/israels-strikes-shifting-power-balance-040539174.html)
 - Oct 08 - [5 takeaways from Kamala Harris’ one-on-one interview with ‘60 Minutes’](https://www.yahoo.com/news/5-takeaways-kamala-harris-one-012707074.html)
-- Oct 08 - [Foxconn building world's largest Nvidia superchip factory](https://finance.yahoo.com/news/foxconn-says-building-worlds-largest-024924787.html)
-- Oct 08 - [Mama Bear and Her 3 Cubs Euthanized After Breaking Into Colorado Home](https://www.yahoo.com/news/mama-bear-her-3-cubs-020602548.html)
-- Oct 08 - [Self-described Nazi becomes first in Australian state of Victoria to be convicted over Nazi salute](https://www.yahoo.com/news/self-described-nazi-becomes-first-020055854.html)
+- Oct 08 - [Which Central Florida counties have issued mandatory evacuations?](https://www.yahoo.com/news/central-florida-counties-issued-mandatory-033245530.html)
+- Oct 08 - [Foxconn building Nvidia superchip facility in Mexico, execs say](https://finance.yahoo.com/news/foxconn-says-building-worlds-largest-024924787.html)
+- Oct 08 - [Boeing, striking union to continue negotiations on Tuesday](https://finance.yahoo.com/news/iam-union-says-negotiations-boeing-024155078.html)
 <!-- feed end -->
 
 ### Onstream
