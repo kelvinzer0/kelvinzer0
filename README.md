@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [Aerospace firm cutting staff amid Boeing strikes](https://finance.yahoo.com/news/aerospace-firm-cutting-staff-amid-171357866.html)
 - Oct 08 - [Deadspin loses bid to toss defamation suit over article accusing young Chiefs fan of racism](https://www.yahoo.com/news/deadspin-loses-bid-toss-defamation-164109484.html)
-- Oct 08 - [Trump stuns social media as he dances along to YMCA at the end of speech about October 7 attacks](https://www.yahoo.com/news/trump-stuns-social-media-dances-151028312.html)
-- Oct 08 - [See which communities in the Pittsburgh region are youngest and oldest](https://www.yahoo.com/news/see-communities-pittsburgh-region-youngest-150410500.html)
-- Oct 08 - [Osama bin Laden’s son banned from France after years spent painting in Normandy](https://www.yahoo.com/news/osama-bin-laden-son-banned-150356790.html)
-- Oct 08 - [Kansas couple's Pensacola Beach vacation ends with wife allegedly shooting husband](https://www.yahoo.com/news/kansas-couples-pensacola-beach-vacation-143821742.html)
+- Oct 08 - [This Tweet From A Meteorologist About Hurricane Milton Is Scaring The Crap Out Of Everyone](https://www.yahoo.com/news/tweet-meteorologist-hurricane-milton-scaring-161431796.html)
+- Oct 08 - [Las Vegas will blow a kiss goodbye — literally — to the Tropicana with a flashy casino implosion](https://www.yahoo.com/news/las-vegas-blow-kiss-goodbye-161103904.html)
+- Oct 08 - [Chris Wallace on Fox News departure: ‘The truth is non-negotiable’](https://www.yahoo.com/news/chris-wallace-fox-news-departure-160306247.html)
 <!-- feed end -->
 
 ### Onstream
