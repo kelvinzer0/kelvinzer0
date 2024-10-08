@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Protester tackled as Hungarian PM Viktor Orban speaks at conference](https://www.yahoo.com/news/protester-tackled-hungarian-pm-viktor-151751037.html)
+- Oct 08 - [Deadspin loses bid to toss defamation suit over article accusing young Chiefs fan of racism](https://www.yahoo.com/news/deadspin-loses-bid-toss-defamation-164109484.html)
+- Oct 08 - [Trump stuns social media as he dances along to YMCA at the end of speech about October 7 attacks](https://www.yahoo.com/news/trump-stuns-social-media-dances-151028312.html)
+- Oct 08 - [See which communities in the Pittsburgh region are youngest and oldest](https://www.yahoo.com/news/see-communities-pittsburgh-region-youngest-150410500.html)
 - Oct 08 - [Osama bin Laden’s son banned from France after years spent painting in Normandy](https://www.yahoo.com/news/osama-bin-laden-son-banned-150356790.html)
-- Oct 08 - [Have $500,000 in Retirement Savings? Here’s How Much You Could Spend per Year](https://finance.yahoo.com/news/500-000-retirement-savings-much-120122167.html)
-- Oct 08 - [Turkish lawmakers discuss Mideast in closed session after Erdogan's Israel claim](https://www.yahoo.com/news/turkish-lawmakers-discuss-mideast-closed-134256239.html)
-- Oct 08 - [Trump Gets Unhinged, Even for Him, Over Kamala Harris ‘60 Minutes’ Interview](https://www.yahoo.com/news/trump-gets-unhinged-even-him-130913896.html)
+- Oct 08 - [Kansas couple's Pensacola Beach vacation ends with wife allegedly shooting husband](https://www.yahoo.com/news/kansas-couples-pensacola-beach-vacation-143821742.html)
 <!-- feed end -->
 
 ### Onstream
