@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Heart-racing video shows hurricane plane experiencing massive turbulence going through Hurricane Milton](https://www.yahoo.com/news/heart-racing-video-shows-hurricane-194132195.html)
 - Oct 08 - [This 28-Year-Old's Dividend Income Jumped from '$15 to $1,000' in Just Two Years – Top 11 Dividend Stocks In His Portfolio](https://finance.yahoo.com/news/28-olds-dividend-income-jumped-190029962.html)
-- Oct 08 - [Harris Sparks Outrage After Admitting Biggest Difference With Biden](https://www.yahoo.com/news/harris-sparks-outrage-admitting-biggest-185725601.html)
-- Oct 08 - [People Are Roasting A Republican Senator For Apparently Not Knowing How Periods Work](https://www.yahoo.com/news/people-roasting-republican-senator-apparently-182148938.html)
-- Oct 08 - [Is This The Slowest Police Chase Ever?](https://autos.yahoo.com/slowest-police-chase-ever-180000957.html)
+- Oct 08 - [Harris Gives Worst Possible Answer for Her Big Difference With Biden](https://www.yahoo.com/news/harris-sparks-outrage-admitting-biggest-185725601.html)
+- Oct 08 - [US says ceasefire call shows Hezbollah 'getting battered'](https://www.yahoo.com/news/us-says-ceasefire-call-shows-185641392.html)
+- Oct 08 - [Boise parodied ‘fatbergs’ in the sewers. But for neighboring Garden City, it’s no joke](https://www.yahoo.com/news/boise-parodied-fatbergs-sewers-neighboring-185215572.html)
+- Oct 08 - [Deadspin loses bid to toss defamation suit over article accusing young Chiefs fan of racism](https://www.yahoo.com/news/deadspin-loses-bid-toss-defamation-164109484.html)
 <!-- feed end -->
 
 ### Onstream
