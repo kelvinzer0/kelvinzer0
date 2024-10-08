@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Boeing Strike Drags On. What it Means for the Troubled Stock.](https://www.barrons.com/articles/boeing-stock-strike-cash-5e507a23?siteid=yhoof2&yptr=yahoo)
-- Oct 08 - [N. Korean soldiers 'highly likely' killed in Ukraine: Seoul](https://www.yahoo.com/news/n-korean-soldiers-highly-likely-065912286.html)
 - Oct 08 - [Israel's strikes are shifting the power balance in the Middle East, with US support](https://www.yahoo.com/news/israels-strikes-shifting-power-balance-040539174.html)
-- Oct 08 - [Foxconn building Nvidia superchip facility in Mexico, execs say](https://finance.yahoo.com/news/foxconn-says-building-worlds-largest-024924787.html)
-- Oct 08 - [Boeing, striking union to continue negotiations on Tuesday](https://finance.yahoo.com/news/iam-union-says-negotiations-boeing-024155078.html)
+- Oct 08 - [5 takeaways from Kamala Harris’ one-on-one interview with ‘60 Minutes’](https://www.yahoo.com/news/5-takeaways-kamala-harris-one-012707074.html)
+- Oct 08 - [Self-described Nazi becomes first in Australian state of Victoria to be convicted over Nazi salute](https://www.yahoo.com/news/self-described-nazi-becomes-first-020055854.html)
+- Oct 08 - [I'm a heart surgeon. These are 6 things I avoid for my own heart health](https://www.yahoo.com/lifestyle/im-heart-surgeon-6-things-003637737.html)
+- Oct 07 - [China’s Monster Amphibious Assault Ship Has Twin Island Superstructures Optimized For Aviation Ops](https://www.yahoo.com/news/china-monster-amphibious-assault-ship-234948771.html)
 <!-- feed end -->
 
 ### Onstream
