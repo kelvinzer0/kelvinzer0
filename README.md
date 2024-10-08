@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Heads up: Portions of I-64/I-75 in Fayette County will be closed starting Wednesday](https://www.yahoo.com/news/heads-portions-64-75-fayette-134303756.html)
+- Oct 08 - [Protester tackled as Hungarian PM Viktor Orban speaks at conference](https://www.yahoo.com/news/protester-tackled-hungarian-pm-viktor-151751037.html)
+- Oct 08 - [Osama bin Laden’s son banned from France after years spent painting in Normandy](https://www.yahoo.com/news/osama-bin-laden-son-banned-150356790.html)
+- Oct 08 - [Have $500,000 in Retirement Savings? Here’s How Much You Could Spend per Year](https://finance.yahoo.com/news/500-000-retirement-savings-much-120122167.html)
 - Oct 08 - [Turkish lawmakers discuss Mideast in closed session after Erdogan's Israel claim](https://www.yahoo.com/news/turkish-lawmakers-discuss-mideast-closed-134256239.html)
 - Oct 08 - [Trump Gets Unhinged, Even for Him, Over Kamala Harris ‘60 Minutes’ Interview](https://www.yahoo.com/news/trump-gets-unhinged-even-him-130913896.html)
-- Oct 08 - [Meta Platforms Just Hinted That Nvidia Is Going to Have a Monster 2025](https://finance.yahoo.com/news/meta-platforms-just-hinted-nvidia-113000749.html)
-- Oct 08 - [Drone video shows destruction in southern Lebanon after Israeli airstrikes](https://www.yahoo.com/news/drone-video-shows-destruction-southern-112250581.html)
 <!-- feed end -->
 
 ### Onstream
