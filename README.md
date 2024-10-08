@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Hurricane Milton: County-by-county list of school closures in Northeast Florida, Southeast Georgia](https://www.yahoo.com/news/county-county-list-school-closures-144717981.html)
-- Oct 07 - [Dodge Ram Gets Jacked By Arkansas State Police](https://autos.yahoo.com/dodge-ram-gets-jacked-arkansas-213000179.html)
-- Oct 07 - [North Korea's Kim Jong Un says he will speed up steps to become a nuclear weapons superpower](https://www.yahoo.com/news/north-koreas-kim-jong-un-212039621.html)
-- Oct 07 - [‘Wish we could’ve made it work.’ After 7 years, KC burgers and brews restaurant closes](https://finance.yahoo.com/news/wish-could-ve-made-7-203340782.html)
-- Oct 07 - [As Milton takes aim at Florida, why is Tampa Bay so vulnerable to hurricanes?](https://www.yahoo.com/news/milton-takes-aim-florida-why-195352893.html)
+- Oct 08 - [Middle East conflict keeps markets nervous ahead of China's reopening](https://finance.yahoo.com/news/middle-east-conflict-keeps-markets-004300395.html)
+- Oct 07 - [China’s Monster Amphibious Assault Ship Has Twin Island Superstructures Optimized For Aviation Ops](https://www.yahoo.com/news/china-monster-amphibious-assault-ship-234948771.html)
+- Oct 07 - [WATCH: Over 100 raccoons swarm Poulsbo woman’s home demanding food](https://www.yahoo.com/news/watch-over-100-raccoons-swarm-230952244.html)
+- Oct 07 - [Europe Deploys Spacecraft to Investigate Extraterrestrial “Crash Scene”](https://www.yahoo.com/news/europe-deploys-spacecraft-investigate-extraterrestrial-222013103.html)
+- Oct 07 - [White House pushes back after DeSantis declines to return calls from Biden and Harris on storm recovery](https://www.yahoo.com/news/white-house-pushes-back-desantis-200152742.html)
 <!-- feed end -->
 
 ### Onstream
