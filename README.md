@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Dow Jones Futures Rise; Nvidia Climbs In Buy Area As China Stocks Sell Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-nvidia-nvda-stock-china-stocks-tesla/?src=A00220&yptr=yahoo)
-- Oct 08 - [TensorWave thinks it can break Nvidia's grip on AI compute with an AMD-powered cloud](https://finance.yahoo.com/news/tensorwave-thinks-break-nvidias-grip-120000417.html)
-- Oct 08 - [Meta Platforms Just Hinted That Nvidia Is Going to Have a Monster 2025](https://finance.yahoo.com/news/meta-platforms-just-hinted-nvidia-113000749.html)
+- Oct 08 - [Trump Gets Unhinged, Even for Him, Over Kamala Harris ‘60 Minutes’ Interview](https://www.yahoo.com/news/trump-gets-unhinged-even-him-130913896.html)
+- Oct 08 - [While SEC and Big Ten leaders mull major changes, a new Super League concept looms that could radically alter college sports](https://sports.yahoo.com/while-sec-and-big-ten-leaders-mull-major-changes-a-new-super-league-concept-looms-that-could-radically-alter-college-sports-130031534.html)
+- Oct 08 - [Israel's Gallant says it appears Nasrallah's replacement has been eliminated](https://www.yahoo.com/news/israels-gallant-says-appears-nasrallahs-125240684.html)
+- Oct 08 - [‘I believe she made a big mistake’: My wife put her paycheck into a bank account with her inheritance. Do I now own 50% of those funds?](https://finance.yahoo.com/news/believe-she-made-big-mistake-081800597.html)
 - Oct 08 - [Water gushes through palm trees and sand dunes after rare rain in the Sahara Desert](https://www.yahoo.com/news/water-gushes-palm-trees-sand-102510470.html)
-- Oct 08 - [Hezbollah deputy chief backs Lebanon ceasefire efforts, omits mention of Gaza deal](https://www.yahoo.com/news/hezbollah-deputy-chief-backs-lebanon-101121239.html)
 <!-- feed end -->
 
 ### Onstream
