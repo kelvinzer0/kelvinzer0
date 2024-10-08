@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [This 28-Year-Old's Dividend Income Jumped from '$15 to $1,000' in Just Two Years – Top 11 Dividend Stocks In His Portfolio](https://finance.yahoo.com/news/28-olds-dividend-income-jumped-190029962.html)
-- Oct 08 - [Harris Gives Worst Possible Answer for Her Big Difference With Biden](https://www.yahoo.com/news/harris-sparks-outrage-admitting-biggest-185725601.html)
-- Oct 08 - [US says ceasefire call shows Hezbollah 'getting battered'](https://www.yahoo.com/news/us-says-ceasefire-call-shows-185641392.html)
-- Oct 08 - [Boise parodied ‘fatbergs’ in the sewers. But for neighboring Garden City, it’s no joke](https://www.yahoo.com/news/boise-parodied-fatbergs-sewers-neighboring-185215572.html)
-- Oct 08 - [Deadspin loses bid to toss defamation suit over article accusing young Chiefs fan of racism](https://www.yahoo.com/news/deadspin-loses-bid-toss-defamation-164109484.html)
+- Oct 08 - [Hoosiers locking down, evacuating, and helping out in Florida ahead of Hurricane Milton](https://www.yahoo.com/news/hoosiers-locking-down-evacuating-helping-213800339.html)
+- Oct 08 - [Video shows nearly 100 raccoons swarm woman's yard, prompting 911 call in Washington](https://www.yahoo.com/news/video-shows-nearly-100-raccoons-204532016.html)
+- Oct 08 - [Nvidia, Foxconn partner for new AI supercomputer, chip plant](https://finance.yahoo.com/video/nvidia-foxconn-partner-ai-supercomputer-203929063.html)
+- Oct 08 - [US scrambled to urge Putin not to use nuclear weapons in Ukraine, Woodward book says](https://www.yahoo.com/news/us-scrambled-urge-putin-not-202957804.html)
+- Oct 08 - [Beloved father fighting for life in ICU after house explosion in Long Beach](https://www.yahoo.com/news/beloved-father-fighting-life-icu-193648595.html)
 <!-- feed end -->
 
 ### Onstream
