@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Aerospace firm cutting staff amid Boeing strikes](https://finance.yahoo.com/news/aerospace-firm-cutting-staff-amid-171357866.html)
+- Oct 08 - [Muggers ripped watch off Dodgers pitcher Walker Buehler's arm, police say](https://www.yahoo.com/news/muggers-ripped-watch-off-dodgers-175328607.html)
+- Oct 08 - [Retired Houston officer gets 60 years in couple's drug raid deaths that revealed corruption](https://www.yahoo.com/news/retired-houston-officer-gets-60-173844808.html)
+- Oct 08 - [Mom Faces Backlash for Posting Packing Video for Family Trip to Disney World as Hurricane Milton Nears](https://www.yahoo.com/news/mom-faces-backlash-posting-packing-164308598.html)
 - Oct 08 - [Deadspin loses bid to toss defamation suit over article accusing young Chiefs fan of racism](https://www.yahoo.com/news/deadspin-loses-bid-toss-defamation-164109484.html)
 - Oct 08 - [This Tweet From A Meteorologist About Hurricane Milton Is Scaring The Crap Out Of Everyone](https://www.yahoo.com/news/tweet-meteorologist-hurricane-milton-scaring-161431796.html)
-- Oct 08 - [Las Vegas will blow a kiss goodbye — literally — to the Tropicana with a flashy casino implosion](https://www.yahoo.com/news/las-vegas-blow-kiss-goodbye-161103904.html)
-- Oct 08 - [Chris Wallace on Fox News departure: ‘The truth is non-negotiable’](https://www.yahoo.com/news/chris-wallace-fox-news-departure-160306247.html)
 <!-- feed end -->
 
 ### Onstream
