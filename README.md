@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Hoosiers locking down, evacuating, and helping out in Florida ahead of Hurricane Milton](https://www.yahoo.com/news/hoosiers-locking-down-evacuating-helping-213800339.html)
+- Oct 08 - [Klamath River dam removal: before and after images show dramatic change](https://www.yahoo.com/news/klamath-river-dam-removal-images-224553826.html)
+- Oct 08 - [TikTok accused of harming younger users in new US lawsuits](https://www.yahoo.com/news/tiktok-accused-harming-younger-users-223055545.html)
+- Oct 08 - [Philadelphia judge receives unpaid suspension for his political posts on Facebook](https://www.yahoo.com/news/philadelphia-judge-receives-unpaid-suspension-211148479.html)
 - Oct 08 - [Video shows nearly 100 raccoons swarm woman's yard, prompting 911 call in Washington](https://www.yahoo.com/news/video-shows-nearly-100-raccoons-204532016.html)
-- Oct 08 - [Nvidia, Foxconn partner for new AI supercomputer, chip plant](https://finance.yahoo.com/video/nvidia-foxconn-partner-ai-supercomputer-203929063.html)
-- Oct 08 - [US scrambled to urge Putin not to use nuclear weapons in Ukraine, Woodward book says](https://www.yahoo.com/news/us-scrambled-urge-putin-not-202957804.html)
-- Oct 08 - [Beloved father fighting for life in ICU after house explosion in Long Beach](https://www.yahoo.com/news/beloved-father-fighting-life-icu-193648595.html)
+- Oct 08 - [Heart-racing video shows hurricane plane experiencing massive turbulence going through Hurricane Milton](https://www.yahoo.com/news/heart-racing-video-shows-hurricane-194132195.html)
 <!-- feed end -->
 
 ### Onstream
