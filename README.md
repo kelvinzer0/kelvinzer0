@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [Water gushes through palm trees and sand dunes after rare rain in the Sahara Desert](https://www.yahoo.com/news/water-gushes-palm-trees-sand-102510470.html)
+- Oct 08 - [Russ Fulcher’s campaign strategy is pretty simple: Just ignore all of his opponents | Opinion](https://www.yahoo.com/news/russ-fulcher-campaign-strategy-pretty-100000280.html)
+- Oct 08 - [Iran warns Israel against any attack, threatens stronger retaliation](https://www.yahoo.com/news/iran-warns-israel-against-attack-063329504.html)
 - Oct 08 - [Israel's strikes are shifting the power balance in the Middle East, with US support](https://www.yahoo.com/news/israels-strikes-shifting-power-balance-040539174.html)
 - Oct 08 - [5 takeaways from Kamala Harris’ one-on-one interview with ‘60 Minutes’](https://www.yahoo.com/news/5-takeaways-kamala-harris-one-012707074.html)
-- Oct 08 - [Self-described Nazi becomes first in Australian state of Victoria to be convicted over Nazi salute](https://www.yahoo.com/news/self-described-nazi-becomes-first-020055854.html)
-- Oct 08 - [I'm a heart surgeon. These are 6 things I avoid for my own heart health](https://www.yahoo.com/lifestyle/im-heart-surgeon-6-things-003637737.html)
-- Oct 07 - [China’s Monster Amphibious Assault Ship Has Twin Island Superstructures Optimized For Aviation Ops](https://www.yahoo.com/news/china-monster-amphibious-assault-ship-234948771.html)
 <!-- feed end -->
 
 ### Onstream
