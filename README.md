@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [‘I believe she made a big mistake’: My wife put her paycheck into a bank account with her inheritance. Do I now own 50% of those funds?](https://finance.yahoo.com/news/believe-she-made-big-mistake-081800597.html)
 - Oct 08 - [Water gushes through palm trees and sand dunes after rare rain in the Sahara Desert](https://www.yahoo.com/news/water-gushes-palm-trees-sand-102510470.html)
-- Oct 08 - [Russ Fulcher’s campaign strategy is pretty simple: Just ignore all of his opponents | Opinion](https://www.yahoo.com/news/russ-fulcher-campaign-strategy-pretty-100000280.html)
-- Oct 08 - [Iran warns Israel against any attack, threatens stronger retaliation](https://www.yahoo.com/news/iran-warns-israel-against-attack-063329504.html)
-- Oct 08 - [Israel's strikes are shifting the power balance in the Middle East, with US support](https://www.yahoo.com/news/israels-strikes-shifting-power-balance-040539174.html)
-- Oct 08 - [5 takeaways from Kamala Harris’ one-on-one interview with ‘60 Minutes’](https://www.yahoo.com/news/5-takeaways-kamala-harris-one-012707074.html)
+- Oct 08 - [Hezbollah deputy chief backs Lebanon ceasefire efforts, omits mention of Gaza deal](https://www.yahoo.com/news/hezbollah-deputy-chief-backs-lebanon-101121239.html)
+- Oct 08 - [Why is this Idaho high-mountain lake drying up? Sadly, it’s likely a familiar culprit | Opinion](https://www.yahoo.com/news/why-idaho-high-mountain-lake-100000269.html)
+- Oct 08 - [N. Korean soldiers 'highly likely' killed in Ukraine: Seoul](https://www.yahoo.com/news/n-korean-soldiers-highly-likely-065912286.html)
 <!-- feed end -->
 
 ### Onstream
