@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Kremlin Exposes Team Trump Lie Over Secret Gift to Putin](https://www.yahoo.com/news/trump-really-did-send-putin-101814821.html)
+- Oct 09 - [Jensen Huang on the Future of AI and Nvidia’s Biggest Advantage](https://www.barrons.com/articles/ai-chatbots-nvidia-stock-3c787f1f?siteid=yhoof2&yptr=yahoo)
+- Oct 09 - [NVIDIA Corporation (NVDA): Stock That Will Make You Rich in 5-10 Years](https://finance.yahoo.com/news/nvidia-corporation-nvda-stock-rich-062315417.html)
+- Oct 09 - [Live updates: Hurricane Milton remains cat 5, local impacts begin Wednesday, linger into Thursday](https://www.yahoo.com/news/live-updates-hurricane-milton-forecast-123303091.html)
 - Oct 09 - [Boeing halts talks, withdraws pay offer to striking union](https://finance.yahoo.com/news/boeing-withdraws-pay-offer-negotiations-023407446.html)
-- Oct 09 - [Grazer beats the behemoth that killed her cub to win Alaska's Fat Bear Contest](https://www.yahoo.com/entertainment/grazer-beats-behemoth-killed-her-011404224.html)
-- Oct 08 - [Scientists Studying Earth's Trees Issue a Bleak Warning to Humanity](https://www.yahoo.com/news/scientists-studying-earths-trees-issue-224256995.html)
-- Oct 08 - [Record-breaking ancient spinning galaxy challenges cosmic evolution theories](https://www.yahoo.com/news/record-breaking-ancient-spinning-galaxy-220005543.html)
-- Oct 08 - [Philadelphia judge receives unpaid suspension for his political posts on Facebook](https://www.yahoo.com/news/philadelphia-judge-receives-unpaid-suspension-211148479.html)
 <!-- feed end -->
 
 ### Onstream
