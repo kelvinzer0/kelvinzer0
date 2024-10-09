@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Grazer beats the behemoth that killed her cub to win Alaska's Fat Bear Contest](https://www.yahoo.com/entertainment/grazer-beats-behemoth-killed-her-011404224.html)
+- Oct 09 - [Boeing withdraws pay offer after failed negotiations with striking union](https://finance.yahoo.com/news/boeing-withdraws-pay-offer-negotiations-023407446.html)
+- Oct 08 - [South Carolina death row inmate told to choose between execution methods](https://www.yahoo.com/news/south-carolina-death-row-inmate-230052881.html)
 - Oct 08 - [FDA Says Over 5.4 Million Eggs May "Cause Serious Adverse Health Consequences or Death”](https://www.yahoo.com/news/fda-says-over-5-4-224633737.html)
 - Oct 08 - [In the past week, 4 of Elon's direct reports have announced they are leaving Tesla](https://autos.yahoo.com/past-week-4-elons-direct-205944657.html)
-- Oct 08 - [US scrambled to urge Putin not to use nuclear weapons in Ukraine, Woodward book says](https://www.yahoo.com/news/us-scrambled-urge-putin-not-202957804.html)
-- Oct 08 - [Beloved father fighting for life in ICU after house explosion in Long Beach](https://www.yahoo.com/news/beloved-father-fighting-life-icu-193648595.html)
+- Oct 08 - [‘If you stay here, you will die:’ Florida fire chief sounds alarm as Milton approaches](https://www.yahoo.com/news/stay-die-florida-fire-chief-205237071.html)
 <!-- feed end -->
 
 ### Onstream
