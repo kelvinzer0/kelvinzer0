@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Ask an Advisor: With $1.1M Cash at 60, $880K in My 401(k), and Social Security, Is It Time to Retire?](https://finance.yahoo.com/news/ask-advisor-am-60-years-154214529.html)
 - Oct 09 - [The Kremlin Throws Trump Under the Bus on Secret Putin Gift](https://www.yahoo.com/news/kremlin-throws-trump-under-bus-131025348.html)
-- Oct 09 - [Prediction: This Artificial Intelligence (AI) Software Company Could Be the Next Palantir](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-software-124500986.html)
 - Oct 09 - [Melania Trump claims Barron was refused a bank account because of ‘cancel culture’](https://www.yahoo.com/news/melania-trump-claims-barron-refused-122617149.html)
-- Oct 09 - [City officials wage hundred-thousand-dollar war on species capable of suffocating ecosystems: 'If we do nothing, we will lose'](https://www.yahoo.com/news/city-officials-wage-hundred-thousand-110016783.html)
-- Oct 09 - [Jamie Dimon backs Jerome Powell’s rate cut strategy](https://finance.yahoo.com/news/jamie-dimon-backs-jerome-powell-105857750.html)
+- Oct 09 - [This Harvard prof reveals the 2 big money errors that get you in ‘big trouble’ when combined. Are you making them?](https://finance.yahoo.com/news/harvard-prof-reveals-2-big-104600514.html)
+- Oct 09 - [Scientists raise concerns after surprising behavior shift in isolated monkey species: 'It's completely the opposite of what we thought'](https://www.yahoo.com/news/scientists-raise-concerns-surprising-behavior-104508397.html)
 <!-- feed end -->
 
 ### Onstream
