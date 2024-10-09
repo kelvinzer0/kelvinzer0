@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Kremlin Exposes Team Trump Lie Over Secret Gift to Putin](https://www.yahoo.com/news/trump-really-did-send-putin-101814821.html)
-- Oct 09 - [Jensen Huang on the Future of AI and Nvidia’s Biggest Advantage](https://www.barrons.com/articles/ai-chatbots-nvidia-stock-3c787f1f?siteid=yhoof2&yptr=yahoo)
-- Oct 09 - [NVIDIA Corporation (NVDA): Stock That Will Make You Rich in 5-10 Years](https://finance.yahoo.com/news/nvidia-corporation-nvda-stock-rich-062315417.html)
-- Oct 09 - [Live updates: Hurricane Milton remains cat 5, local impacts begin Wednesday, linger into Thursday](https://www.yahoo.com/news/live-updates-hurricane-milton-forecast-123303091.html)
-- Oct 09 - [Boeing halts talks, withdraws pay offer to striking union](https://finance.yahoo.com/news/boeing-withdraws-pay-offer-negotiations-023407446.html)
+- Oct 09 - [Is Palantir Technologies Inc. (PLTR) the Next AI Leader? Hedge Fund Investment Surges](https://finance.yahoo.com/news/palantir-technologies-inc-pltr-next-115649598.html)
+- Oct 09 - [Is Rivian Stock A Buy With The CEO Selling And The EV Startup Cutting 2024 Guidance?](https://www.investors.com/news/rivian-stock-a-buy-in-2024/?src=A00220&yptr=yahoo)
+- Oct 09 - [Putin's weak response to Ukraine's advance on Russian soil appears to be rooted in a persistent fatal flaw](https://www.yahoo.com/news/putins-weak-response-ukraines-advance-111702263.html)
+- Oct 09 - ["What On Earth?": People Are Sharing The Surprising Things That Happened To Their Bodies As They Aged](https://www.yahoo.com/lifestyle/earth-people-sharing-surprising-things-111602719.html)
+- Oct 09 - [This Harvard prof reveals the 2 big money errors that get you in ‘big trouble’ when combined. Are you making them?](https://finance.yahoo.com/news/harvard-prof-reveals-2-big-104600514.html)
 <!-- feed end -->
 
 ### Onstream
