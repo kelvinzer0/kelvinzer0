@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [1 Vanguard ETF That Could Soar 37.3% Before the End of 2024, According to a Select Wall Street Analyst](https://finance.yahoo.com/news/1-vanguard-etf-could-soar-083400863.html)
-- Oct 09 - [Boeing halts talks, withdraws pay offer to striking union](https://finance.yahoo.com/news/boeing-withdraws-pay-offer-negotiations-023407240.html)
-- Oct 09 - [Abandoned Fisker headquarters in Southern California remains in disarray, magnet for squatters](https://finance.yahoo.com/news/abandoned-fisker-headquarters-southern-california-022814611.html)
+- Oct 09 - [Boeing halts talks, withdraws pay offer to striking union](https://finance.yahoo.com/news/boeing-withdraws-pay-offer-negotiations-023407446.html)
 - Oct 09 - [Grazer beats the behemoth that killed her cub to win Alaska's Fat Bear Contest](https://www.yahoo.com/entertainment/grazer-beats-behemoth-killed-her-011404224.html)
-- Oct 08 - [Kansas City man charged with child abuse on 3-month-old infant girl](https://www.yahoo.com/news/kansas-city-man-charged-child-231209080.html)
+- Oct 08 - [Scientists Studying Earth's Trees Issue a Bleak Warning to Humanity](https://www.yahoo.com/news/scientists-studying-earths-trees-issue-224256995.html)
+- Oct 08 - [Record-breaking ancient spinning galaxy challenges cosmic evolution theories](https://www.yahoo.com/news/record-breaking-ancient-spinning-galaxy-220005543.html)
+- Oct 08 - [Philadelphia judge receives unpaid suspension for his political posts on Facebook](https://www.yahoo.com/news/philadelphia-judge-receives-unpaid-suspension-211148479.html)
 <!-- feed end -->
 
 ### Onstream
