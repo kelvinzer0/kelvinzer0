@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Spain's Sanchez touts benefits of migration as European neighbours tighten borders](https://www.yahoo.com/news/spains-sanchez-touts-benefits-migration-123828555.html)
 - Oct 09 - [Melania Trump claims Barron was refused a bank account because of ‘cancel culture’](https://www.yahoo.com/news/melania-trump-claims-barron-refused-122617149.html)
-- Oct 09 - ["What On Earth?": People Are Sharing The Surprising Things That Happened To Their Bodies As They Aged](https://www.yahoo.com/lifestyle/earth-people-sharing-surprising-things-111602719.html)
-- Oct 09 - [Ukrainian drone strikes another arms depot inside Russia, officials say](https://www.yahoo.com/news/ukrainian-drone-strikes-another-arms-102834857.html)
+- Oct 09 - [This Harvard prof reveals the 2 big money errors that get you in ‘big trouble’ when combined. Are you making them?](https://finance.yahoo.com/news/harvard-prof-reveals-2-big-104600514.html)
 - Oct 09 - [Kremlin Exposes Team Trump Lie Over Secret Gift to Putin](https://www.yahoo.com/news/trump-really-did-send-putin-101814821.html)
 - Oct 09 - [Democrats start to hit the panic button](https://www.yahoo.com/news/democrats-start-hit-panic-button-100000065.html)
 <!-- feed end -->
