@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Spain's Sanchez touts benefits of migration as European neighbours tighten borders](https://www.yahoo.com/news/spains-sanchez-touts-benefits-migration-123828555.html)
+- Oct 09 - [The Kremlin Throws Trump Under the Bus on Secret Putin Gift](https://www.yahoo.com/news/kremlin-throws-trump-under-bus-131025348.html)
+- Oct 09 - [Prediction: This Artificial Intelligence (AI) Software Company Could Be the Next Palantir](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-software-124500986.html)
 - Oct 09 - [Melania Trump claims Barron was refused a bank account because of ‘cancel culture’](https://www.yahoo.com/news/melania-trump-claims-barron-refused-122617149.html)
-- Oct 09 - [This Harvard prof reveals the 2 big money errors that get you in ‘big trouble’ when combined. Are you making them?](https://finance.yahoo.com/news/harvard-prof-reveals-2-big-104600514.html)
-- Oct 09 - [Kremlin Exposes Team Trump Lie Over Secret Gift to Putin](https://www.yahoo.com/news/trump-really-did-send-putin-101814821.html)
-- Oct 09 - [Democrats start to hit the panic button](https://www.yahoo.com/news/democrats-start-hit-panic-button-100000065.html)
+- Oct 09 - [City officials wage hundred-thousand-dollar war on species capable of suffocating ecosystems: 'If we do nothing, we will lose'](https://www.yahoo.com/news/city-officials-wage-hundred-thousand-110016783.html)
+- Oct 09 - [Jamie Dimon backs Jerome Powell’s rate cut strategy](https://finance.yahoo.com/news/jamie-dimon-backs-jerome-powell-105857750.html)
 <!-- feed end -->
 
 ### Onstream
