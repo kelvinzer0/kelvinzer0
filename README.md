@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [The Entire Internet Is Wondering If This Strapped Down House In Florida Will Survive Hurricane Milton](https://www.yahoo.com/news/entire-internet-wondering-strapped-down-161940015.html)
+- Oct 09 - [Scientists now know what the head of the biggest bug to ever crawl the Earth looked like](https://www.yahoo.com/news/scientists-now-know-head-biggest-180201959.html)
+- Oct 09 - [German Textile Firm Soex Files for Administration](https://finance.yahoo.com/news/german-textile-firm-soex-files-173000817.html)
+- Oct 09 - [Pilot of larger plane was looking away from smaller plane in Atlanta airport mishap, report says](https://www.yahoo.com/news/pilot-larger-plane-looking-away-160644995.html)
 - Oct 09 - [Iran has proved it can breach the world’s greatest air defence system. What comes next could be devastating](https://www.yahoo.com/news/iran-proved-breach-world-greatest-160524768.html)
 - Oct 09 - [‘I’m going to die’: Florida influencer explains why she won’t evacuate ahead of Milton](https://www.yahoo.com/entertainment/m-going-die-florida-influencer-155243386.html)
-- Oct 09 - [Check Your Fridge: 10 Million Pounds Of Meat And Poultry Recalled For Listeria Risk](https://www.yahoo.com/news/check-fridge-10-million-pounds-153354706.html)
-- Oct 09 - [Utah CEO dies in 200 foot fall at Zion National Park](https://www.yahoo.com/news/utah-ceo-dies-200-foot-145637817.html)
 <!-- feed end -->
 
 ### Onstream
