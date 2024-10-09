@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Ask an Advisor: With $1.1M Cash at 60, $880K in My 401(k), and Social Security, Is It Time to Retire?](https://finance.yahoo.com/news/ask-advisor-am-60-years-154214529.html)
-- Oct 09 - [The Kremlin Throws Trump Under the Bus on Secret Putin Gift](https://www.yahoo.com/news/kremlin-throws-trump-under-bus-131025348.html)
-- Oct 09 - [Melania Trump claims Barron was refused a bank account because of ‘cancel culture’](https://www.yahoo.com/news/melania-trump-claims-barron-refused-122617149.html)
-- Oct 09 - [This Harvard prof reveals the 2 big money errors that get you in ‘big trouble’ when combined. Are you making them?](https://finance.yahoo.com/news/harvard-prof-reveals-2-big-104600514.html)
-- Oct 09 - [Scientists raise concerns after surprising behavior shift in isolated monkey species: 'It's completely the opposite of what we thought'](https://www.yahoo.com/news/scientists-raise-concerns-surprising-behavior-104508397.html)
+- Oct 09 - [The Entire Internet Is Wondering If This Strapped Down House In Florida Will Survive Hurricane Milton](https://www.yahoo.com/news/entire-internet-wondering-strapped-down-161940015.html)
+- Oct 09 - [Iran has proved it can breach the world’s greatest air defence system. What comes next could be devastating](https://www.yahoo.com/news/iran-proved-breach-world-greatest-160524768.html)
+- Oct 09 - [‘I’m going to die’: Florida influencer explains why she won’t evacuate ahead of Milton](https://www.yahoo.com/entertainment/m-going-die-florida-influencer-155243386.html)
+- Oct 09 - [Check Your Fridge: 10 Million Pounds Of Meat And Poultry Recalled For Listeria Risk](https://www.yahoo.com/news/check-fridge-10-million-pounds-153354706.html)
+- Oct 09 - [Utah CEO dies in 200 foot fall at Zion National Park](https://www.yahoo.com/news/utah-ceo-dies-200-foot-145637817.html)
 <!-- feed end -->
 
 ### Onstream
