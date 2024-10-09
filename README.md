@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Speedy solar storm could spark bright Northern Lights Thursday night](https://www.yahoo.com/news/speedy-solar-storm-could-spark-204820787.html)
+- Oct 09 - [Podcaster Cracks Up After Donald Trump Calls Himself A 'Truthful Person'](https://www.yahoo.com/entertainment/podcaster-cracks-donald-trump-calls-201435241.html)
+- Oct 09 - [Jim Cantore tried talking this man out of riding out Milton on a sailboat. An update](https://www.yahoo.com/news/jim-cantore-tried-talking-man-193932525.html)
+- Oct 09 - [Dave Ramsey Tells Mark Cuban: 75% of the World's Richest Say Do This to Build Wealth – Listen to Them, 'Not Your Broke Brother-in-Law'](https://finance.yahoo.com/news/dave-ramsey-tells-mark-cuban-193045117.html)
 - Oct 09 - [Ratan Tata, the former chairman of Indian conglomerate Tata Sons, dies at age 86](https://www.yahoo.com/news/ratan-tata-former-chairman-india-190553876.html)
-- Oct 09 - [Video shows tornado rip through neighborhood in Florida](https://www.yahoo.com/news/video-shows-tornado-rip-neighborhood-180903697.html)
-- Oct 09 - [Boise settles lawsuit with officer alleging chief misconduct. Here’s what the city’s paying](https://www.yahoo.com/news/boise-settles-lawsuit-officer-alleging-170626428.html)
-- Oct 09 - [Pilot of larger plane was looking away from smaller plane in Atlanta airport mishap, report says](https://www.yahoo.com/news/pilot-larger-plane-looking-away-160644995.html)
-- Oct 09 - [Honda recalls nearly 1.7 million vehicles for steering problem that could lead to crashes](https://www.yahoo.com/news/honda-recalls-nearly-1-7-160056580.html)
 <!-- feed end -->
 
 ### Onstream
