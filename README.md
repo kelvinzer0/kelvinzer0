@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 09 - [Scientists now know what the head of the biggest bug to ever crawl the Earth looked like](https://www.yahoo.com/news/scientists-now-know-head-biggest-180201959.html)
-- Oct 09 - [German Textile Firm Soex Files for Administration](https://finance.yahoo.com/news/german-textile-firm-soex-files-173000817.html)
-- Oct 09 - [Pilot of larger plane was looking away from smaller plane in Atlanta airport mishap, report says](https://www.yahoo.com/news/pilot-larger-plane-looking-away-160644995.html)
-- Oct 09 - [Iran has proved it can breach the world’s greatest air defence system. What comes next could be devastating](https://www.yahoo.com/news/iran-proved-breach-world-greatest-160524768.html)
+- Oct 09 - [NOAA's 2024-25 winter forecast is here. Maps show what to expect in Ohio](https://www.yahoo.com/news/noaas-2024-25-winter-forecast-172941339.html)
+- Oct 09 - [Susan Rice: Trump’s reported calls with Putin appear illegal](https://www.yahoo.com/news/susan-rice-trump-reported-calls-163342449.html)
+- Oct 09 - [The Entire Internet Is Wondering If This Strapped Down House In Florida Will Survive Hurricane Milton](https://www.yahoo.com/news/entire-internet-wondering-strapped-down-161940015.html)
 - Oct 09 - [‘I’m going to die’: Florida influencer explains why she won’t evacuate ahead of Milton](https://www.yahoo.com/entertainment/m-going-die-florida-influencer-155243386.html)
 <!-- feed end -->
 
