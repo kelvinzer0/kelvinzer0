@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Speedy solar storm could spark bright Northern Lights Thursday night](https://www.yahoo.com/news/speedy-solar-storm-could-spark-204820787.html)
+- Oct 09 - [South Carolina death row inmate told to choose between execution methods](https://www.yahoo.com/news/south-carolina-death-row-inmate-201827479.html)
 - Oct 09 - [Podcaster Cracks Up After Donald Trump Calls Himself A 'Truthful Person'](https://www.yahoo.com/entertainment/podcaster-cracks-donald-trump-calls-201435241.html)
-- Oct 09 - [Jim Cantore tried talking this man out of riding out Milton on a sailboat. An update](https://www.yahoo.com/news/jim-cantore-tried-talking-man-193932525.html)
-- Oct 09 - [Dave Ramsey Tells Mark Cuban: 75% of the World's Richest Say Do This to Build Wealth – Listen to Them, 'Not Your Broke Brother-in-Law'](https://finance.yahoo.com/news/dave-ramsey-tells-mark-cuban-193045117.html)
 - Oct 09 - [Ratan Tata, the former chairman of Indian conglomerate Tata Sons, dies at age 86](https://www.yahoo.com/news/ratan-tata-former-chairman-india-190553876.html)
+- Oct 09 - [This Couple's Hurricane Resistant House Survived Helene–Here Is How They Built It](https://finance.yahoo.com/news/couples-hurricane-resistant-house-survived-180033044.html)
+- Oct 09 - [“Severe” northern lights display possible Thursday night](https://www.yahoo.com/news/severe-northern-lights-display-possible-174227152.html)
 <!-- feed end -->
 
 ### Onstream
