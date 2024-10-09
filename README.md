@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [TIMELINE: Florida prepares for Hurricane Milton as it restrengthens to a Cat. 5 storm](https://www.yahoo.com/news/live-updates-hurricane-milton-maintains-041515576.html)
+- Oct 09 - [US may seek Google breakup over search monopoly](https://finance.yahoo.com/video/us-may-seek-google-breakup-060949432.html)
 - Oct 09 - [Boeing halts talks, withdraws pay offer to striking union](https://finance.yahoo.com/news/boeing-withdraws-pay-offer-negotiations-023407240.html)
-- Oct 08 - [A Florida mobile home park is told to evacuate but some residents have nowhere to go](https://www.yahoo.com/news/florida-mobile-home-park-told-230511851.html)
-- Oct 08 - [South Carolina death row inmate told to choose between execution methods](https://www.yahoo.com/news/south-carolina-death-row-inmate-230052881.html)
+- Oct 08 - [Kansas City man charged with child abuse on 3-month-old infant girl](https://www.yahoo.com/news/kansas-city-man-charged-child-231209080.html)
 - Oct 08 - [FDA Says Over 5.4 Million Eggs May "Cause Serious Adverse Health Consequences or Death”](https://www.yahoo.com/news/fda-says-over-5-4-224633737.html)
+- Oct 08 - [Scientists Studying Earth's Trees Issue a Bleak Warning to Humanity](https://www.yahoo.com/news/scientists-studying-earths-trees-issue-224256995.html)
 <!-- feed end -->
 
 ### Onstream
