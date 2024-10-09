@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [Kansas City man charged with child abuse on 3-month-old infant girl](https://www.yahoo.com/news/kansas-city-man-charged-child-231209080.html)
+- Oct 08 - [A Florida mobile home park is told to evacuate but some residents have nowhere to go](https://www.yahoo.com/news/florida-mobile-home-park-told-230511851.html)
+- Oct 08 - [South Carolina death row inmate told to choose between execution methods](https://www.yahoo.com/news/south-carolina-death-row-inmate-230052881.html)
+- Oct 08 - [FDA Says Over 5.4 Million Eggs May "Cause Serious Adverse Health Consequences or Death”](https://www.yahoo.com/news/fda-says-over-5-4-224633737.html)
 - Oct 08 - [Klamath River dam removal: before and after images show dramatic change](https://www.yahoo.com/news/klamath-river-dam-removal-images-224553826.html)
-- Oct 08 - [TikTok accused of harming younger users in new US lawsuits](https://www.yahoo.com/news/tiktok-accused-harming-younger-users-223055545.html)
-- Oct 08 - [Philadelphia judge receives unpaid suspension for his political posts on Facebook](https://www.yahoo.com/news/philadelphia-judge-receives-unpaid-suspension-211148479.html)
-- Oct 08 - [Video shows nearly 100 raccoons swarm woman's yard, prompting 911 call in Washington](https://www.yahoo.com/news/video-shows-nearly-100-raccoons-204532016.html)
-- Oct 08 - [Heart-racing video shows hurricane plane experiencing massive turbulence going through Hurricane Milton](https://www.yahoo.com/news/heart-racing-video-shows-hurricane-194132195.html)
 <!-- feed end -->
 
 ### Onstream
