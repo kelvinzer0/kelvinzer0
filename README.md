@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Man charged over city crossbow incident](https://www.yahoo.com/news/man-charged-over-city-crossbow-073540972.html)
+- Oct 09 - [1 Vanguard ETF That Could Soar 37.3% Before the End of 2024, According to a Select Wall Street Analyst](https://finance.yahoo.com/news/1-vanguard-etf-could-soar-083400863.html)
 - Oct 09 - [Boeing halts talks, withdraws pay offer to striking union](https://finance.yahoo.com/news/boeing-withdraws-pay-offer-negotiations-023407240.html)
 - Oct 09 - [Abandoned Fisker headquarters in Southern California remains in disarray, magnet for squatters](https://finance.yahoo.com/news/abandoned-fisker-headquarters-southern-california-022814611.html)
-- Oct 08 - [South Carolina death row inmate told to choose between execution methods](https://www.yahoo.com/news/south-carolina-death-row-inmate-230052881.html)
-- Oct 08 - [FDA Says Over 5.4 Million Eggs May "Cause Serious Adverse Health Consequences or Death”](https://www.yahoo.com/news/fda-says-over-5-4-224633737.html)
+- Oct 09 - [Grazer beats the behemoth that killed her cub to win Alaska's Fat Bear Contest](https://www.yahoo.com/entertainment/grazer-beats-behemoth-killed-her-011404224.html)
+- Oct 08 - [Kansas City man charged with child abuse on 3-month-old infant girl](https://www.yahoo.com/news/kansas-city-man-charged-child-231209080.html)
 <!-- feed end -->
 
 ### Onstream
