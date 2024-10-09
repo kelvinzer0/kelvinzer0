@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Scientists now know what the head of the biggest bug to ever crawl the Earth looked like](https://www.yahoo.com/news/scientists-now-know-head-biggest-180201959.html)
-- Oct 09 - [NOAA's 2024-25 winter forecast is here. Maps show what to expect in Ohio](https://www.yahoo.com/news/noaas-2024-25-winter-forecast-172941339.html)
-- Oct 09 - [Susan Rice: Trump’s reported calls with Putin appear illegal](https://www.yahoo.com/news/susan-rice-trump-reported-calls-163342449.html)
-- Oct 09 - [The Entire Internet Is Wondering If This Strapped Down House In Florida Will Survive Hurricane Milton](https://www.yahoo.com/news/entire-internet-wondering-strapped-down-161940015.html)
-- Oct 09 - [‘I’m going to die’: Florida influencer explains why she won’t evacuate ahead of Milton](https://www.yahoo.com/entertainment/m-going-die-florida-influencer-155243386.html)
+- Oct 09 - [Ratan Tata, the former chairman of Indian conglomerate Tata Sons, dies at age 86](https://www.yahoo.com/news/ratan-tata-former-chairman-india-190553876.html)
+- Oct 09 - [Video shows tornado rip through neighborhood in Florida](https://www.yahoo.com/news/video-shows-tornado-rip-neighborhood-180903697.html)
+- Oct 09 - [Boise settles lawsuit with officer alleging chief misconduct. Here’s what the city’s paying](https://www.yahoo.com/news/boise-settles-lawsuit-officer-alleging-170626428.html)
+- Oct 09 - [Pilot of larger plane was looking away from smaller plane in Atlanta airport mishap, report says](https://www.yahoo.com/news/pilot-larger-plane-looking-away-160644995.html)
+- Oct 09 - [Honda recalls nearly 1.7 million vehicles for steering problem that could lead to crashes](https://www.yahoo.com/news/honda-recalls-nearly-1-7-160056580.html)
 <!-- feed end -->
 
 ### Onstream
