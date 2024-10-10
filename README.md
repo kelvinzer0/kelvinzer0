@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [Recently Listed Cancer Firm OnKure's Innovative Approach to Breast Cancer Treatment Sparks Analyst Enthusiasm](https://finance.yahoo.com/news/recently-listed-cancer-firm-onkures-184320920.html)
-- Oct 10 - [Watch: Ron DeSantis Blows a Fuse Upon Hearing Hurricane Damage Costs](https://www.yahoo.com/news/watch-ron-desantis-blows-fuse-172405103.html)
+- Oct 10 - [Opinion | Why disinformation about Hurricanes Milton and Helene seemed to spread like wildfire](https://www.yahoo.com/news/opinion-why-disinformation-hurricanes-milton-200202404.html)
+- Oct 10 - [Jupiter's Great Red Spot Is Acting Very Strangely, Puzzling Scientists](https://www.yahoo.com/news/jupiters-great-red-spot-acting-180400581.html)
+- Oct 10 - [Company recalls nearly 10 million pounds of meat and poultry dishes for listeria contamination](https://www.yahoo.com/news/company-recalls-nearly-10-million-172702742.html)
 - Oct 10 - [Spanish scientists to shed light on mystery of Columbus origins, burial](https://www.yahoo.com/news/spanish-scientists-shed-light-mystery-171348214.html)
-- Oct 10 - [50 Viking Corpses Could Crack the History Books Wide Open.](https://www.yahoo.com/news/archaeologists-found-remarkably-preserved-skeletons-120000800.html)
-- Oct 10 - [US requests information from Saab North America on Brazil fighter jet purchase](https://finance.yahoo.com/news/us-requests-information-saab-north-144758406.html)
+- Oct 10 - [Disney Resort Under Fire for Hefty Price of PB&J Sandwich Kits Amid Hurricane Milton](https://www.yahoo.com/news/disney-resort-under-fire-hefty-171330456.html)
 <!-- feed end -->
 
 ### Onstream
