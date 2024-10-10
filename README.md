@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [YouTube mom’s child abuse scandal reaches $1.85 million settlement](https://www.yahoo.com/news/youtube-mom-child-abuse-scandal-222258746.html)
-- Oct 09 - ['I had to give up my dog to find somewhere to rent'](https://www.yahoo.com/lifestyle/had-dog-somewhere-rent-220021379.html)
 - Oct 09 - [Idiot Trump Accidentally Debunks Himself at Pennsylvania Rally](https://www.yahoo.com/news/idiot-trump-accidentally-debunks-himself-211344146.html)
 - Oct 09 - [Podcaster Cracks Up After Donald Trump Calls Himself A 'Truthful Person'](https://www.yahoo.com/entertainment/podcaster-cracks-donald-trump-calls-201435241.html)
 - Oct 09 - [Ratan Tata, the former chairman of Indian conglomerate Tata Sons, dies at 86](https://www.yahoo.com/news/ratan-tata-former-chairman-india-190553876.html)
+- Oct 09 - [Rudy Giuliani's son says dad gifted him 4 World Series rings sought by Georgia election workers](https://www.yahoo.com/news/rudy-giulianis-son-says-dad-180946205.html)
+- Oct 09 - [This Couple's Hurricane Resistant House Survived Helene–Here Is How They Built It](https://finance.yahoo.com/news/couples-hurricane-resistant-house-survived-180033044.html)
 <!-- feed end -->
 
 ### Onstream
