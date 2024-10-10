@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Mexico sends 660 soldiers, National Guard to protect lime growers suffering extortion by cartels](https://www.yahoo.com/news/mexico-sends-660-soldiers-national-213310902.html)
+- Oct 10 - [US health agency releases 2025 quality ratings for Medicare plans](https://finance.yahoo.com/news/us-health-agency-releases-2025-210339980.html)
 - Oct 10 - [10 Million Pounds of Chicken and Beef Products Recalled Due To Potential Listeria Contamination](https://www.yahoo.com/news/10-million-pounds-chicken-beef-202316416.html)
+- Oct 10 - [Colorado man loses both legs in wood chipper accident 15 minutes into his first day at his new job](https://www.yahoo.com/news/colorado-man-loses-both-legs-202251481.html)
 - Oct 10 - [Donald Trump Goes to Detroit and Insults the Entire City](https://www.yahoo.com/news/donald-trump-goes-detroit-insults-202014953.html)
-- Oct 10 - [Lithuania installs ‘dragon’s teeth’ to fend off potential Russian attack](https://www.yahoo.com/news/lithuania-installs-dragon-teeth-fend-191224881.html)
-- Oct 10 - [Company recalls nearly 10 million pounds of meat and poultry dishes for listeria contamination](https://www.yahoo.com/news/company-recalls-nearly-10-million-172702742.html)
-- Oct 10 - [Watch: Ron DeSantis Blows a Fuse Upon Hearing Hurricane Damage Costs](https://www.yahoo.com/news/watch-ron-desantis-blows-fuse-172405103.html)
 <!-- feed end -->
 
 ### Onstream
