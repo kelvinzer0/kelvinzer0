@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Critics Decry Trump's 'Demented Lie' About What Happens To Kids At School](https://www.yahoo.com/news/critics-decry-trumps-demented-lie-125723854.html)
 - Oct 10 - [It's Official: Here's Your Social Security Raise for 2025](https://finance.yahoo.com/news/official-heres-social-security-raise-124933643.html)
-- Oct 10 - [Video shows mammoth 28-foot wave crash inside Milton before slamming Florida](https://www.yahoo.com/news/video-shows-mammoth-28-foot-124102668.html)
-- Oct 10 - [Chris Wallace Responds To Tucker Carlson’s Criticism Of Him With Epic Zinger](https://www.yahoo.com/entertainment/chris-wallace-responds-tucker-carlson-084041274.html)
-- Oct 10 - [Shift to EV-only future would spell job losses, Toyota chairman warns](https://finance.yahoo.com/news/shift-ev-only-future-spell-075048452.html)
-- Oct 10 - [Ratan Tata gets state funeral as India bids farewell to business tycoon](https://finance.yahoo.com/news/hundreds-gather-pay-last-respects-073016137.html)
+- Oct 10 - [Fleeing Impala Gets A Big PIT Maneuver](https://autos.yahoo.com/fleeing-impala-gets-big-pit-120000642.html)
+- Oct 10 - [Longevity Experts Say This Seemingly "Healthy" Habit Can Actually Take Years Off Your Life](https://www.yahoo.com/lifestyle/longevity-experts-seemingly-healthy-habit-111602528.html)
+- Oct 10 - [Mortgage and refinance rates today, October 10, 2024: Rates finally drop](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-thursday-october-10-2024-100027053.html)
 <!-- feed end -->
 
 ### Onstream
