@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Ethel Kennedy, social activist and wife of Robert F. Kennedy, has died](https://www.yahoo.com/news/ethel-kennedy-social-activist-widow-152950360.html)
+- Oct 10 - [PHOTOS: Fearsome Hurricane Milton leaves trail of damage after Florida landfall](https://www.yahoo.com/news/photos-fearsome-hurricane-milton-leaves-110354721.html)
+- Oct 10 - [I’m a Self-Made Millionaire: Here’s How I Use ChatGPT To Make a Lot of Money](https://finance.yahoo.com/news/m-self-made-millionaire-chatgpt-170027804.html)
+- Oct 10 - [Man says father-in-law refusing 'all FEMA help' because of Trump](https://www.yahoo.com/news/man-says-father-law-refusing-115232623.html)
 - Oct 10 - [Longevity Experts Say This Seemingly "Healthy" Habit Can Actually Take Years Off Your Life](https://www.yahoo.com/lifestyle/longevity-experts-seemingly-healthy-habit-111602528.html)
-- Oct 10 - [Stellantis has ‘misplaced belief in its own pricing power’ as U.S. struggles continue, Bernstein says](https://finance.yahoo.com/news/stellantis-misplaced-belief-own-pricing-104914352.html)
-- Oct 10 - [Air India buys 85 Airbus jets, eyes more Boeings, sources say](https://finance.yahoo.com/news/air-india-buys-85-airbus-103157046.html)
-- Oct 10 - [Mortgage and refinance rates today, October 10, 2024: Rates finally drop](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-thursday-october-10-2024-100027053.html)
-- Oct 10 - [Former China deputy central bank head gets suspended death sentence for taking bribes](https://www.yahoo.com/news/former-china-deputy-central-bank-095333807.html)
 <!-- feed end -->
 
 ### Onstream
