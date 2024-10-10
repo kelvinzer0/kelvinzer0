@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [South Korea's Han Kang wins Nobel Literature Prize](https://www.yahoo.com/news/south-koreas-han-kang-wins-111944961.html)
-- Oct 10 - [How To Drive Down Rising Costs Of Auto Insurance](https://www.investors.com/etfs-and-funds/personal-finance/auto-insurance-how-to-drive-down-rising-costs/?src=A00220&yptr=yahoo)
+- Oct 10 - [It's Official: Here's Your Social Security Raise for 2025](https://finance.yahoo.com/news/official-heres-social-security-raise-124933643.html)
+- Oct 10 - [Video shows mammoth 28-foot wave crash inside Milton before slamming Florida](https://www.yahoo.com/news/video-shows-mammoth-28-foot-124102668.html)
 - Oct 10 - [Chris Wallace Responds To Tucker Carlson’s Criticism Of Him With Epic Zinger](https://www.yahoo.com/entertainment/chris-wallace-responds-tucker-carlson-084041274.html)
-- Oct 10 - [Live updates: Hurricane Milton moving off East Coast of Florida as Cat. 1 storm](https://www.yahoo.com/news/live-updates-hurricane-milton-bringing-044317283.html)
-- Oct 10 - [Legendary Indian tycoon Ratan Tata dies at 86](https://finance.yahoo.com/video/legendary-indian-tycoon-ratan-tata-074115259.html)
+- Oct 10 - [Shift to EV-only future would spell job losses, Toyota chairman warns](https://finance.yahoo.com/news/shift-ev-only-future-spell-075048452.html)
+- Oct 10 - [Ratan Tata gets state funeral as India bids farewell to business tycoon](https://finance.yahoo.com/news/hundreds-gather-pay-last-respects-073016137.html)
 <!-- feed end -->
 
 ### Onstream
