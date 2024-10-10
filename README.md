@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 10 - [Russia has lost another banking partner as more lenders turn their back on Moscow over fear of sanctions](https://finance.yahoo.com/news/russia-lost-another-banking-partner-023219437.html)
-- Oct 10 - [Live Updates: Hurricane Milton downgraded to Category 2; Nassau issues evacuation order](https://www.yahoo.com/news/live-updates-hurricane-milton-forecast-123303091.html)
 - Oct 10 - [Kamala Harris Campaign Distances Itself From ‘60 Minutes’ Edit Controversy: ‘We Do Not Control CBS’ Production Decisions’](https://www.yahoo.com/news/kamala-harris-campaign-distances-itself-012836927.html)
 - Oct 10 - [Dr. Dre Sued for $10 Million by Divorce Psychotherapist Alleging ‘Unbearable Harassment’](https://www.yahoo.com/entertainment/dr-dre-sued-10-million-005400297.html)
 - Oct 09 - [Idiot Trump Accidentally Debunks Himself at Pennsylvania Rally](https://www.yahoo.com/news/idiot-trump-accidentally-debunks-himself-211344146.html)
+- Oct 09 - [Podcaster Cracks Up After Donald Trump Calls Himself A 'Truthful Person'](https://www.yahoo.com/entertainment/podcaster-cracks-donald-trump-calls-201435241.html)
 <!-- feed end -->
 
 ### Onstream
