@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [Shift to EV-only future would spell job losses, Toyota chairman warns](https://finance.yahoo.com/news/shift-ev-only-future-spell-075048517.html)
+- Oct 10 - [Shift to EV-only future would spell job losses, Toyota chairman warns](https://finance.yahoo.com/news/shift-ev-only-future-spell-075048452.html)
 - Oct 10 - [Exclusive-China's Chery assembles cars in Russian plants vacated by Western rivals](https://finance.yahoo.com/news/exclusive-chinas-chery-assembles-cars-060303653.html)
 - Oct 10 - ['So Humiliating': Trump's Big Rally Boast Painfully Falls Apart In Real Time](https://www.yahoo.com/news/humiliating-trumps-big-rally-boast-030813317.html)
 - Oct 10 - [Russia has lost another banking partner as more lenders turn their back on Moscow over fear of sanctions](https://finance.yahoo.com/news/russia-lost-another-banking-partner-023219437.html)
