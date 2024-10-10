@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [Jensen Huang Just Delivered Incredible News for Nvidia Stock Investors](https://finance.yahoo.com/news/jensen-huang-just-delivered-incredible-093300749.html)
+- Oct 10 - [Chris Wallace Responds To Tucker Carlson’s Criticism Of Him With Epic Zinger](https://www.yahoo.com/entertainment/chris-wallace-responds-tucker-carlson-084041274.html)
 - Oct 10 - [Exclusive-China's Chery assembles cars in Russian plants vacated by Western rivals](https://finance.yahoo.com/news/exclusive-chinas-chery-assembles-cars-060303653.html)
+- Oct 10 - [WATCH: Customer knocks out man harassing diners at Beverly Hills restaurant](https://www.yahoo.com/news/watch-customer-knocks-man-harassing-053006885.html)
 - Oct 10 - ['So Humiliating': Trump's Big Rally Boast Painfully Falls Apart In Real Time](https://www.yahoo.com/news/humiliating-trumps-big-rally-boast-030813317.html)
-- Oct 10 - [Russia has lost another banking partner as more lenders turn their back on Moscow over fear of sanctions](https://finance.yahoo.com/news/russia-lost-another-banking-partner-023219437.html)
-- Oct 10 - [Satellite Imagery Shows Hurricane Milton Making Landfall](https://www.yahoo.com/news/satellite-imagery-shows-hurricane-milton-014922697.html)
+- Oct 10 - [Russia is said to be losing another banking partner as more lenders turn their back on Moscow over fear of sanctions](https://finance.yahoo.com/news/russia-lost-another-banking-partner-023219437.html)
 <!-- feed end -->
 
 ### Onstream
