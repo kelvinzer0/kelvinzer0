@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [South Korea's Han Kang wins Nobel Literature Prize](https://www.yahoo.com/news/south-koreas-han-kang-wins-111944961.html)
+- Oct 10 - [How To Drive Down Rising Costs Of Auto Insurance](https://www.investors.com/etfs-and-funds/personal-finance/auto-insurance-how-to-drive-down-rising-costs/?src=A00220&yptr=yahoo)
 - Oct 10 - [Chris Wallace Responds To Tucker Carlson’s Criticism Of Him With Epic Zinger](https://www.yahoo.com/entertainment/chris-wallace-responds-tucker-carlson-084041274.html)
-- Oct 10 - [Exclusive-China's Chery assembles cars in Russian plants vacated by Western rivals](https://finance.yahoo.com/news/exclusive-chinas-chery-assembles-cars-060303653.html)
-- Oct 10 - [WATCH: Customer knocks out man harassing diners at Beverly Hills restaurant](https://www.yahoo.com/news/watch-customer-knocks-man-harassing-053006885.html)
-- Oct 10 - ['So Humiliating': Trump's Big Rally Boast Painfully Falls Apart In Real Time](https://www.yahoo.com/news/humiliating-trumps-big-rally-boast-030813317.html)
-- Oct 10 - [Russia is said to be losing another banking partner as more lenders turn their back on Moscow over fear of sanctions](https://finance.yahoo.com/news/russia-lost-another-banking-partner-023219437.html)
+- Oct 10 - [Live updates: Hurricane Milton moving off East Coast of Florida as Cat. 1 storm](https://www.yahoo.com/news/live-updates-hurricane-milton-bringing-044317283.html)
+- Oct 10 - [Legendary Indian tycoon Ratan Tata dies at 86](https://finance.yahoo.com/video/legendary-indian-tycoon-ratan-tata-074115259.html)
 <!-- feed end -->
 
 ### Onstream
