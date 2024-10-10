@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Hezbollah faces backlash in Lebanon as Israel's invasion widens](https://www.yahoo.com/news/hezbollah-faces-backlash-lebanon-israels-162205140.html)
+- Oct 10 - [Female British captain’s gender ‘played no part’ in sinking of navy ship](https://www.yahoo.com/news/female-british-captain-gender-played-160758371.html)
+- Oct 10 - [Hurricane Milton creates washout on major Central Florida highways](https://www.yahoo.com/news/hurricane-milton-creates-washout-major-153544487.html)
 - Oct 10 - [Ethel Kennedy, social activist and wife of Robert F. Kennedy, has died](https://www.yahoo.com/news/ethel-kennedy-social-activist-widow-152950360.html)
-- Oct 10 - [PHOTOS: Fearsome Hurricane Milton leaves trail of damage after Florida landfall](https://www.yahoo.com/news/photos-fearsome-hurricane-milton-leaves-110354721.html)
-- Oct 10 - [I’m a Self-Made Millionaire: Here’s How I Use ChatGPT To Make a Lot of Money](https://finance.yahoo.com/news/m-self-made-millionaire-chatgpt-170027804.html)
-- Oct 10 - [Man says father-in-law refusing 'all FEMA help' because of Trump](https://www.yahoo.com/news/man-says-father-law-refusing-115232623.html)
-- Oct 10 - [Longevity Experts Say This Seemingly "Healthy" Habit Can Actually Take Years Off Your Life](https://www.yahoo.com/lifestyle/longevity-experts-seemingly-healthy-habit-111602528.html)
+- Oct 10 - [Mysterious "Fifth Force" of Physics Could Be Influencing Asteroids Near Earth](https://www.yahoo.com/news/mysterious-fifth-force-physics-could-140350710.html)
 <!-- feed end -->
 
 ### Onstream
