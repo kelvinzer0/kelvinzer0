@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [Opinion | Why disinformation about Hurricanes Milton and Helene seemed to spread like wildfire](https://www.yahoo.com/news/opinion-why-disinformation-hurricanes-milton-200202404.html)
-- Oct 10 - [Jupiter's Great Red Spot Is Acting Very Strangely, Puzzling Scientists](https://www.yahoo.com/news/jupiters-great-red-spot-acting-180400581.html)
+- Oct 10 - [10 Million Pounds of Chicken and Beef Products Recalled Due To Potential Listeria Contamination](https://www.yahoo.com/news/10-million-pounds-chicken-beef-202316416.html)
+- Oct 10 - [Donald Trump Goes to Detroit and Insults the Entire City](https://www.yahoo.com/news/donald-trump-goes-detroit-insults-202014953.html)
+- Oct 10 - [Lithuania installs ‘dragon’s teeth’ to fend off potential Russian attack](https://www.yahoo.com/news/lithuania-installs-dragon-teeth-fend-191224881.html)
 - Oct 10 - [Company recalls nearly 10 million pounds of meat and poultry dishes for listeria contamination](https://www.yahoo.com/news/company-recalls-nearly-10-million-172702742.html)
-- Oct 10 - [Spanish scientists to shed light on mystery of Columbus origins, burial](https://www.yahoo.com/news/spanish-scientists-shed-light-mystery-171348214.html)
-- Oct 10 - [Disney Resort Under Fire for Hefty Price of PB&J Sandwich Kits Amid Hurricane Milton](https://www.yahoo.com/news/disney-resort-under-fire-hefty-171330456.html)
+- Oct 10 - [Watch: Ron DeSantis Blows a Fuse Upon Hearing Hurricane Damage Costs](https://www.yahoo.com/news/watch-ron-desantis-blows-fuse-172405103.html)
 <!-- feed end -->
 
 ### Onstream
