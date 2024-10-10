@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Recently Listed Cancer Firm OnKure's Innovative Approach to Breast Cancer Treatment Sparks Analyst Enthusiasm](https://finance.yahoo.com/news/recently-listed-cancer-firm-onkures-184320920.html)
+- Oct 10 - [Watch: Ron DeSantis Blows a Fuse Upon Hearing Hurricane Damage Costs](https://www.yahoo.com/news/watch-ron-desantis-blows-fuse-172405103.html)
 - Oct 10 - [Spanish scientists to shed light on mystery of Columbus origins, burial](https://www.yahoo.com/news/spanish-scientists-shed-light-mystery-171348214.html)
 - Oct 10 - [50 Viking Corpses Could Crack the History Books Wide Open.](https://www.yahoo.com/news/archaeologists-found-remarkably-preserved-skeletons-120000800.html)
-- Oct 10 - [A Restaurant That Only Sells Chicken Fingers? This 'Stupid' Idea Made Him One Of The Richest People In The U.S. With $9.5 Billion](https://finance.yahoo.com/news/restaurant-only-sells-chicken-fingers-164548776.html)
-- Oct 10 - [‘Groundbreaking’ flights six-times faster than speed of sound one step closer as new engine unveiled](https://www.yahoo.com/tech/groundbreaking-flights-six-times-faster-104834242.html)
-- Oct 10 - [Soldier accused of spying for Iran won best squadron member trophy](https://www.yahoo.com/news/soldier-accused-spying-iran-won-151702086.html)
+- Oct 10 - [US requests information from Saab North America on Brazil fighter jet purchase](https://finance.yahoo.com/news/us-requests-information-saab-north-144758406.html)
 <!-- feed end -->
 
 ### Onstream
