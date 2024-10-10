@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Exclusive-China's Chery assembles cars in Russian plants vacated by Western rivals](https://finance.yahoo.com/news/exclusive-chinas-chery-assembles-cars-060303653.html)
 - Oct 10 - ['So Humiliating': Trump's Big Rally Boast Painfully Falls Apart In Real Time](https://www.yahoo.com/news/humiliating-trumps-big-rally-boast-030813317.html)
 - Oct 10 - [Kamala Harris Campaign Distances Itself From ‘60 Minutes’ Edit Controversy: ‘We Do Not Control CBS’ Production Decisions’](https://www.yahoo.com/news/kamala-harris-campaign-distances-itself-012836927.html)
+- Oct 09 - [Meteorologists Get Death Threats as Hurricane Milton Conspiracy Theories Thrive](https://www.yahoo.com/news/meteorologists-death-threats-hurricane-milton-214003547.html)
 - Oct 09 - [Idiot Trump Accidentally Debunks Himself at Pennsylvania Rally](https://www.yahoo.com/news/idiot-trump-accidentally-debunks-himself-211344146.html)
-- Oct 09 - [Podcaster Cracks Up After Donald Trump Calls Himself A 'Truthful Person'](https://www.yahoo.com/entertainment/podcaster-cracks-donald-trump-calls-201435241.html)
-- Oct 09 - [Bob Woodward Tell-all: Trump & Putin still in contact, Dems Panic as Harris Media Blitz FLOPS](https://www.yahoo.com/news/bob-woodward-tell-trump-putin-191100441.html)
 <!-- feed end -->
 
 ### Onstream
