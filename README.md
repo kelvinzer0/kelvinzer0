@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Hundreds bid farewell to India's Ratan Tata in Mumbai](https://www.yahoo.com/news/hundreds-bid-farewell-indias-ratan-224553609.html)
+- Oct 10 - [In Florida's St Petersburg, holdouts awaken to find Milton took mercy on their city](https://www.yahoo.com/news/floridas-st-petersburg-holdouts-awaken-215056589.html)
 - Oct 10 - [Mexico sends 660 soldiers, National Guard to protect lime growers suffering extortion by cartels](https://www.yahoo.com/news/mexico-sends-660-soldiers-national-213310902.html)
-- Oct 10 - [US health agency releases 2025 quality ratings for Medicare plans](https://finance.yahoo.com/news/us-health-agency-releases-2025-210339980.html)
-- Oct 10 - [10 Million Pounds of Chicken and Beef Products Recalled Due To Potential Listeria Contamination](https://www.yahoo.com/news/10-million-pounds-chicken-beef-202316416.html)
 - Oct 10 - [Colorado man loses both legs in wood chipper accident 15 minutes into his first day at his new job](https://www.yahoo.com/news/colorado-man-loses-both-legs-202251481.html)
 - Oct 10 - [Donald Trump Goes to Detroit and Insults the Entire City](https://www.yahoo.com/news/donald-trump-goes-detroit-insults-202014953.html)
 <!-- feed end -->
