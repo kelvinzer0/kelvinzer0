@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [Critics Decry Trump's 'Demented Lie' About What Happens To Kids At School](https://www.yahoo.com/news/critics-decry-trumps-demented-lie-125723854.html)
-- Oct 10 - [It's Official: Here's Your Social Security Raise for 2025](https://finance.yahoo.com/news/official-heres-social-security-raise-124933643.html)
-- Oct 10 - [Fleeing Impala Gets A Big PIT Maneuver](https://autos.yahoo.com/fleeing-impala-gets-big-pit-120000642.html)
 - Oct 10 - [Longevity Experts Say This Seemingly "Healthy" Habit Can Actually Take Years Off Your Life](https://www.yahoo.com/lifestyle/longevity-experts-seemingly-healthy-habit-111602528.html)
+- Oct 10 - [Stellantis has ‘misplaced belief in its own pricing power’ as U.S. struggles continue, Bernstein says](https://finance.yahoo.com/news/stellantis-misplaced-belief-own-pricing-104914352.html)
+- Oct 10 - [Air India buys 85 Airbus jets, eyes more Boeings, sources say](https://finance.yahoo.com/news/air-india-buys-85-airbus-103157046.html)
 - Oct 10 - [Mortgage and refinance rates today, October 10, 2024: Rates finally drop](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-thursday-october-10-2024-100027053.html)
+- Oct 10 - [Former China deputy central bank head gets suspended death sentence for taking bribes](https://www.yahoo.com/news/former-china-deputy-central-bank-095333807.html)
 <!-- feed end -->
 
 ### Onstream
