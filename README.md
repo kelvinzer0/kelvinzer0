@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [Hezbollah faces backlash in Lebanon as Israel's invasion widens](https://www.yahoo.com/news/hezbollah-faces-backlash-lebanon-israels-162205140.html)
-- Oct 10 - [Female British captain’s gender ‘played no part’ in sinking of navy ship](https://www.yahoo.com/news/female-british-captain-gender-played-160758371.html)
-- Oct 10 - [Hurricane Milton creates washout on major Central Florida highways](https://www.yahoo.com/news/hurricane-milton-creates-washout-major-153544487.html)
-- Oct 10 - [Ethel Kennedy, social activist and wife of Robert F. Kennedy, has died](https://www.yahoo.com/news/ethel-kennedy-social-activist-widow-152950360.html)
-- Oct 10 - [Mysterious "Fifth Force" of Physics Could Be Influencing Asteroids Near Earth](https://www.yahoo.com/news/mysterious-fifth-force-physics-could-140350710.html)
+- Oct 10 - [Spanish scientists to shed light on mystery of Columbus origins, burial](https://www.yahoo.com/news/spanish-scientists-shed-light-mystery-171348214.html)
+- Oct 10 - [50 Viking Corpses Could Crack the History Books Wide Open.](https://www.yahoo.com/news/archaeologists-found-remarkably-preserved-skeletons-120000800.html)
+- Oct 10 - [A Restaurant That Only Sells Chicken Fingers? This 'Stupid' Idea Made Him One Of The Richest People In The U.S. With $9.5 Billion](https://finance.yahoo.com/news/restaurant-only-sells-chicken-fingers-164548776.html)
+- Oct 10 - [‘Groundbreaking’ flights six-times faster than speed of sound one step closer as new engine unveiled](https://www.yahoo.com/tech/groundbreaking-flights-six-times-faster-104834242.html)
+- Oct 10 - [Soldier accused of spying for Iran won best squadron member trophy](https://www.yahoo.com/news/soldier-accused-spying-iran-won-151702086.html)
 <!-- feed end -->
 
 ### Onstream
