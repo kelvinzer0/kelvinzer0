@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [AI 'Godfather' Yoshua Bengio: We're 'creating monsters more powerful than us'](https://finance.yahoo.com/news/ai-godfather-yoshua-bengio-were-creating-monsters-more-powerful-than-us-120042014.html)
+- Oct 11 - [Fears girls as young as nine could become brides under Iraqi bill](https://www.yahoo.com/news/fears-girls-young-nine-could-115950476.html)
+- Oct 11 - [Drone video: See what Fort Myers Beach looks like after Hurricane Milton](https://www.yahoo.com/news/drone-video-see-fort-myers-112211657.html)
 - Oct 11 - [Israel's deadliest strike in central Beirut leaves Lebanese stunned as they dig through the rubble](https://www.yahoo.com/news/israels-deadliest-strike-central-beirut-103928428.html)
-- Oct 11 - [3rd teen arrested for murder, gang violence in fatal Athens shooting](https://www.yahoo.com/news/3rd-teen-arrested-murder-gang-101051458.html)
 - Oct 11 - [After heavy Israeli blows, Hezbollah forges new command for crucial ground war](https://www.yahoo.com/news/heavy-israeli-blows-hezbollah-forges-100500594.html)
-- Oct 11 - [Elon Musk unveils the Robovan: the biggest surprise from Tesla's We, Robot event](https://finance.yahoo.com/news/elon-musk-unveils-robovan-biggest-042703768.html)
-- Oct 11 - [Obama Roasts Trump for Everything From Selling Bibles to Needing a Diaper at Pittsburgh Rally | Video](https://www.yahoo.com/news/obama-roasts-trump-everything-selling-012413426.html)
 <!-- feed end -->
 
 ### Onstream
