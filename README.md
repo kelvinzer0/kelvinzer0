@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [‘Headspin hole’: Man develops scalp tumor after decades of breakdancing](https://sports.yahoo.com/headspin-hole-man-develops-foot-223132301.html)
 - Oct 11 - [Elon Musk unveils the Robovan: the biggest surprise from Tesla's We, Robot event](https://finance.yahoo.com/news/elon-musk-unveils-robovan-biggest-042703768.html)
 - Oct 11 - [Tesla reveals 20 Cybercabs at We, Robot event, says you'll be able to buy one for less than $30,000](https://finance.yahoo.com/news/tesla-reveals-20-cybercabs-robot-030900926.html)
-- Oct 11 - ['Russians invaded my house and held a soldier captive there'](https://www.yahoo.com/news/russians-invaded-house-held-soldier-032433640.html)
-- Oct 11 - [Tesla Robotaxi event: How to watch the reveal live](https://finance.yahoo.com/news/tesla-robotaxi-event-watch-reveal-193710401.html)
+- Oct 11 - [From Laughing At A Donkey To Drowning In A Toilet — 11 Extremely Bizarre Ways Historical Figures Died](https://www.yahoo.com/entertainment/laughing-donkey-drowning-toilet-11-013102564.html)
 - Oct 11 - [Obama Roasts Trump for Everything From Selling Bibles to Needing a Diaper at Pittsburgh Rally | Video](https://www.yahoo.com/news/obama-roasts-trump-everything-selling-012413426.html)
 <!-- feed end -->
 
