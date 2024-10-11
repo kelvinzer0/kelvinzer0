@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Iowa teen who killed teacher must serve 35 years before being up for parole](https://www.yahoo.com/news/iowa-teen-killed-teacher-must-192717537.html)
+- Oct 11 - [Boeing to cut 17,000 jobs and delay first 777X delivery as strike hits finances](https://finance.yahoo.com/news/boeing-cut-17-000-jobs-203225559.html)
+- Oct 11 - [Will the Southern Tier have another chance to see the northern lights? Here's the outlook](https://www.yahoo.com/news/southern-tier-another-chance-see-192648284.html)
 - Oct 11 - [My daughter died due to belief in NHS that parents are wrong, says mother of sepsis victim](https://www.yahoo.com/news/daughter-died-due-belief-nhs-185935145.html)
-- Oct 11 - [US believes Iran is extremely nervous as it awaits Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
 - Oct 11 - [Tesla's Beer-Serving Optimus Robot Was Controlled By A Human The Whole Time](https://autos.yahoo.com/teslas-beer-serving-optimus-robot-174500148.html)
 - Oct 11 - [Trump’s New Post on Obama Proves He’s Losing It](https://www.yahoo.com/news/trump-post-obama-proves-losing-170136218.html)
 <!-- feed end -->
