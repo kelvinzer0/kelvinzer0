@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [AI 'Godfather' Yoshua Bengio: We're 'creating monsters more powerful than us'](https://finance.yahoo.com/news/ai-godfather-yoshua-bengio-were-creating-monsters-more-powerful-than-us-120042014.html)
-- Oct 11 - [Fears girls as young as nine could become brides under Iraqi bill](https://www.yahoo.com/news/fears-girls-young-nine-could-115950476.html)
-- Oct 11 - [Drone video: See what Fort Myers Beach looks like after Hurricane Milton](https://www.yahoo.com/news/drone-video-see-fort-myers-112211657.html)
-- Oct 11 - [Israel's deadliest strike in central Beirut leaves Lebanese stunned as they dig through the rubble](https://www.yahoo.com/news/israels-deadliest-strike-central-beirut-103928428.html)
-- Oct 11 - [After heavy Israeli blows, Hezbollah forges new command for crucial ground war](https://www.yahoo.com/news/heavy-israeli-blows-hezbollah-forges-100500594.html)
+- Oct 11 - ['Former vegan' Lizzo has been losing weight without Ozempic. Her personal trainer shared her workout routine.](https://www.yahoo.com/lifestyle/former-vegan-lizzo-losing-weight-095735953.html)
+- Oct 11 - [Putin arrives for surprise Iran summit in illegal black limo](https://www.yahoo.com/news/putin-arrives-surprise-iran-summit-115534289.html)
+- Oct 11 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
+- Oct 11 - [UN mission in Lebanon says 2 peacekeepers injured after its base was hit by new explosions](https://www.yahoo.com/news/israels-deadliest-strike-central-beirut-103928428.html)
+- Oct 11 - [Officials wage war on elusive animal capable of wiping out fragile 'Galápagos of the north' ecosystem — here's the catch](https://www.yahoo.com/news/officials-wage-war-elusive-animal-103010576.html)
 <!-- feed end -->
 
 ### Onstream
