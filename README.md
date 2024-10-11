@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Tesla stock sinks as 'toothless' robotaxi disappoints](https://finance.yahoo.com/news/tesla-stock-sinks-as-toothless-robotaxi-disappoints-161323105.html)
-- Oct 11 - [Navy report says drowning of two SEALS in January off Somalia were preventable](https://www.yahoo.com/news/navy-report-says-drowning-two-160619374.html)
-- Oct 11 - [I’m a Retired Boomer: Here Are 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
-- Oct 11 - [Human foot found on Everest may hold key to one of mountaineering’s greatest mysteries](https://www.yahoo.com/news/human-foot-found-everest-may-151208049.html)
-- Oct 11 - [Health department shuts down one of Lexington’s oldest restaurants](https://www.yahoo.com/news/health-department-shuts-down-one-144115910.html)
+- Oct 11 - [Iowa teen who killed teacher must serve 35 years before being up for parole](https://www.yahoo.com/news/iowa-teen-killed-teacher-must-192717537.html)
+- Oct 11 - [My daughter died due to belief in NHS that parents are wrong, says mother of sepsis victim](https://www.yahoo.com/news/daughter-died-due-belief-nhs-185935145.html)
+- Oct 11 - [US believes Iran is extremely nervous as it awaits Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
+- Oct 11 - [Tesla's Beer-Serving Optimus Robot Was Controlled By A Human The Whole Time](https://autos.yahoo.com/teslas-beer-serving-optimus-robot-174500148.html)
+- Oct 11 - [Trump’s New Post on Obama Proves He’s Losing It](https://www.yahoo.com/news/trump-post-obama-proves-losing-170136218.html)
 <!-- feed end -->
 
 ### Onstream
