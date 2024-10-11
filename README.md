@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 11 - [Tesla unveils its 'Cybercab' robotaxi](https://www.yahoo.com/tech/tesla-unveils-its-cybercab-robotaxi-032132013.html)
-- Oct 11 - [Tesla Robotaxi event: How to watch the reveal live](https://finance.yahoo.com/news/tesla-robotaxi-event-watch-reveal-193710401.html)
+- Oct 11 - [Tesla Cybercab Self-Driving Coupe Revealed with Butterfly Doors, No Steering Wheel or Pedals](https://autos.yahoo.com/tesla-cybercab-revealed-butterfly-doors-031400390.html)
+- Oct 11 - [Obama Roasts Trump for Everything From Selling Bibles to Needing a Diaper at Pittsburgh Rally | Video](https://www.yahoo.com/news/obama-roasts-trump-everything-selling-012413426.html)
 - Oct 10 - [Condemned inmate Richard Moore wants someone other than South Carolina's governor to decide clemency](https://www.yahoo.com/news/condemned-inmate-richard-moore-wants-230322892.html)
-- Oct 10 - [Tesla CEO Musk unveils 'Cybercab' robotaxi as focus shifts to automation](https://finance.yahoo.com/news/teslas-musk-unveil-robotaxis-amid-230307324.html)
 - Oct 10 - [Mexico sends 660 soldiers, National Guard to protect lime growers suffering extortion by cartels](https://www.yahoo.com/news/mexico-sends-660-soldiers-national-213310902.html)
 <!-- feed end -->
 
