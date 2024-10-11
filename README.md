@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [What to know after Israeli strikes kill at least 22 in Beirut](https://www.yahoo.com/news/know-israeli-strikes-kill-least-152628216.html)
-- Oct 11 - [Maps show best areas in U.S. to see northern lights Friday night](https://www.yahoo.com/news/maps-show-best-areas-u-150200486.html)
-- Oct 11 - [Tesla unveils Cybercab, humanoid robots at robotaxi event](https://finance.yahoo.com/video/tesla-unveils-cybercab-humanoid-robots-145927565.html)
-- Oct 11 - [Tropical Storm Leslie: See latest updates, spaghetti models, possible impacts in Jacksonville](https://www.yahoo.com/news/tropical-storm-leslie-see-latest-141348916.html)
-- Oct 11 - [You really think Donald Trump was a good president? Look at his record | Opinion](https://www.yahoo.com/news/really-think-donald-trump-good-141226513.html)
+- Oct 11 - [Hurricane Milton to make labor data murky through October](https://finance.yahoo.com/video/hurricane-milton-labor-market-data-162908665.html)
+- Oct 11 - [Navy report says drowning of two SEALS in January off Somalia were preventable](https://www.yahoo.com/news/navy-report-says-drowning-two-160619374.html)
+- Oct 11 - [St. Xavier High School fires teacher over 'possible boundary violation' with a student](https://www.yahoo.com/news/st-xavier-high-school-fires-154958170.html)
+- Oct 11 - [Opera featuring nuns, sex and a lot of blood leaves 18 needing medical treatment](https://www.yahoo.com/entertainment/opera-featuring-nuns-sex-lot-153555131.html)
+- Oct 11 - [Human foot found on Everest may hold key to one of mountaineering’s greatest mysteries](https://www.yahoo.com/news/human-foot-found-everest-may-151208049.html)
 <!-- feed end -->
 
 ### Onstream
