@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 11 - [Boeing to cut 17,000 jobs and delay first 777X delivery as strike hits finances](https://finance.yahoo.com/news/boeing-cut-17-000-jobs-203225559.html)
-- Oct 11 - [Will the Southern Tier have another chance to see the northern lights? Here's the outlook](https://www.yahoo.com/news/southern-tier-another-chance-see-192648284.html)
+- Oct 11 - [Apple Launches Largest Overseas R&D Lab in Shenzhen Amid Growing Competition from Huawei](https://finance.yahoo.com/news/apple-launches-largest-overseas-r-191217336.html)
 - Oct 11 - [My daughter died due to belief in NHS that parents are wrong, says mother of sepsis victim](https://www.yahoo.com/news/daughter-died-due-belief-nhs-185935145.html)
-- Oct 11 - [Tesla's Beer-Serving Optimus Robot Was Controlled By A Human The Whole Time](https://autos.yahoo.com/teslas-beer-serving-optimus-robot-174500148.html)
 - Oct 11 - [Trump’s New Post on Obama Proves He’s Losing It](https://www.yahoo.com/news/trump-post-obama-proves-losing-170136218.html)
+- Oct 11 - [Incident involving Arkansas State Police blocks traffic on Highway 67 in Jackson County](https://www.yahoo.com/news/incident-involving-arkansas-state-police-162414443.html)
 <!-- feed end -->
 
 ### Onstream
