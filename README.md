@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [3 High Growth Companies Insiders Favor On The Indian Exchange](https://finance.yahoo.com/news/3-high-growth-companies-insiders-093338939.html)
+- Oct 11 - [Is the Vanguard S&P 500 ETF a Millionaire Maker?](https://finance.yahoo.com/news/vanguard-p-500-etf-millionaire-093000793.html)
+- Oct 11 - [‘Groundbreaking’ flights six-times faster than speed of sound one step closer as new engine unveiled](https://www.yahoo.com/tech/groundbreaking-flights-six-times-faster-104834242.html)
 - Oct 11 - [Elon Musk unveils the Robovan: the biggest surprise from Tesla's We, Robot event](https://finance.yahoo.com/news/elon-musk-unveils-robovan-biggest-042703768.html)
 - Oct 11 - [Tesla Robotaxi event: How to watch the reveal live](https://finance.yahoo.com/news/tesla-robotaxi-event-watch-reveal-193710401.html)
-- Oct 11 - [From Laughing At A Donkey To Drowning In A Toilet — 11 Extremely Bizarre Ways Historical Figures Died](https://www.yahoo.com/entertainment/laughing-donkey-drowning-toilet-11-013102564.html)
-- Oct 11 - [Obama Roasts Trump for Everything From Selling Bibles to Needing a Diaper at Pittsburgh Rally | Video](https://www.yahoo.com/news/obama-roasts-trump-everything-selling-012413426.html)
-- Oct 10 - [Tesla CEO Musk unveils 'Cybercab' robotaxi as focus shifts to automation](https://finance.yahoo.com/news/teslas-musk-unveil-robotaxis-amid-230307591.html)
 <!-- feed end -->
 
 ### Onstream
