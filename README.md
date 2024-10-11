@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Tesla's Cybercab robotaxi is finally here, with a $30K price tag — plus a surprise Robovan](https://finance.yahoo.com/news/teslas-cybercab-robotaxi-is-finally-here-with-a-30k-price-tag--plus-a-surprise-robovan-071844079.html)
-- Oct 11 - [Traveler claims United flight attendant refused to serve him because he’s gay](https://www.yahoo.com/news/traveler-claims-united-flight-attendant-133051775.html)
-- Oct 11 - ['Former vegan' Lizzo has been losing weight without Ozempic. Her personal trainer shared her workout routine.](https://www.yahoo.com/lifestyle/former-vegan-lizzo-losing-weight-095735953.html)
-- Oct 11 - [Putin arrives for surprise Iran summit in illegal black limo](https://www.yahoo.com/news/putin-arrives-surprise-iran-summit-115534289.html)
-- Oct 11 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
+- Oct 11 - [Volkswagen's deliveries drop, highlighting car industry challenges](https://finance.yahoo.com/video/volkswagens-deliveries-drop-highlighting-car-145914848.html)
+- Oct 11 - [Americans Beware: Suze Orman Explains The Little-Known Trick To Dodge The Social Security 'Tax Torpedo' And Retire With More Money](https://finance.yahoo.com/news/americans-beware-suze-orman-explains-141550291.html)
+- Oct 11 - [You really think Donald Trump was a good president? Look at his record | Opinion](https://www.yahoo.com/news/really-think-donald-trump-good-141226513.html)
+- Oct 11 - [Melania Trump Faces Uproar After Being Caught in Fake Charity Scandal](https://www.yahoo.com/news/melania-trump-faces-uproar-being-133913101.html)
+- Oct 11 - [2 simple diet tips helped a 41-year-old office worker transform his body in the gym](https://www.yahoo.com/lifestyle/2-simple-diet-tips-helped-133239427.html)
 <!-- feed end -->
 
 ### Onstream
