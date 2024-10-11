@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Volkswagen's deliveries drop, highlighting car industry challenges](https://finance.yahoo.com/video/volkswagens-deliveries-drop-highlighting-car-145914848.html)
-- Oct 11 - [Americans Beware: Suze Orman Explains The Little-Known Trick To Dodge The Social Security 'Tax Torpedo' And Retire With More Money](https://finance.yahoo.com/news/americans-beware-suze-orman-explains-141550291.html)
+- Oct 11 - [What to know after Israeli strikes kill at least 22 in Beirut](https://www.yahoo.com/news/know-israeli-strikes-kill-least-152628216.html)
+- Oct 11 - [Maps show best areas in U.S. to see northern lights Friday night](https://www.yahoo.com/news/maps-show-best-areas-u-150200486.html)
+- Oct 11 - [Tesla unveils Cybercab, humanoid robots at robotaxi event](https://finance.yahoo.com/video/tesla-unveils-cybercab-humanoid-robots-145927565.html)
+- Oct 11 - [Tropical Storm Leslie: See latest updates, spaghetti models, possible impacts in Jacksonville](https://www.yahoo.com/news/tropical-storm-leslie-see-latest-141348916.html)
 - Oct 11 - [You really think Donald Trump was a good president? Look at his record | Opinion](https://www.yahoo.com/news/really-think-donald-trump-good-141226513.html)
-- Oct 11 - [Melania Trump Faces Uproar After Being Caught in Fake Charity Scandal](https://www.yahoo.com/news/melania-trump-faces-uproar-being-133913101.html)
-- Oct 11 - [2 simple diet tips helped a 41-year-old office worker transform his body in the gym](https://www.yahoo.com/lifestyle/2-simple-diet-tips-helped-133239427.html)
 <!-- feed end -->
 
 ### Onstream
