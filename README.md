@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [Tesla's Cybercab robotaxi is finally here, with a $30K price tag — plus a surprise Robovan](https://finance.yahoo.com/news/teslas-cybercab-robotaxi-is-finally-here-with-a-30k-price-tag--plus-a-surprise-robovan-071844079.html)
+- Oct 11 - [Traveler claims United flight attendant refused to serve him because he’s gay](https://www.yahoo.com/news/traveler-claims-united-flight-attendant-133051775.html)
 - Oct 11 - ['Former vegan' Lizzo has been losing weight without Ozempic. Her personal trainer shared her workout routine.](https://www.yahoo.com/lifestyle/former-vegan-lizzo-losing-weight-095735953.html)
 - Oct 11 - [Putin arrives for surprise Iran summit in illegal black limo](https://www.yahoo.com/news/putin-arrives-surprise-iran-summit-115534289.html)
 - Oct 11 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
-- Oct 11 - [UN mission in Lebanon says 2 peacekeepers injured after its base was hit by new explosions](https://www.yahoo.com/news/israels-deadliest-strike-central-beirut-103928428.html)
-- Oct 11 - [Officials wage war on elusive animal capable of wiping out fragile 'Galápagos of the north' ecosystem — here's the catch](https://www.yahoo.com/news/officials-wage-war-elusive-animal-103010576.html)
 <!-- feed end -->
 
 ### Onstream
