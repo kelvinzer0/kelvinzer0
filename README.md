@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Hurricane Milton to make labor data murky through October](https://finance.yahoo.com/video/hurricane-milton-labor-market-data-162908665.html)
+- Oct 11 - [Apple accused of restricting workers' Slack, social media use by US labor board](https://finance.yahoo.com/news/apple-accused-restricting-workers-slack-174844308.html)
+- Oct 11 - [Tesla stock sinks as 'toothless' robotaxi disappoints](https://finance.yahoo.com/news/tesla-stock-sinks-as-toothless-robotaxi-disappoints-161323105.html)
 - Oct 11 - [Navy report says drowning of two SEALS in January off Somalia were preventable](https://www.yahoo.com/news/navy-report-says-drowning-two-160619374.html)
+- Oct 11 - [I’m a Retired Boomer: Here Are 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
 - Oct 11 - [St. Xavier High School fires teacher over 'possible boundary violation' with a student](https://www.yahoo.com/news/st-xavier-high-school-fires-154958170.html)
-- Oct 11 - [Opera featuring nuns, sex and a lot of blood leaves 18 needing medical treatment](https://www.yahoo.com/entertainment/opera-featuring-nuns-sex-lot-153555131.html)
-- Oct 11 - [Human foot found on Everest may hold key to one of mountaineering’s greatest mysteries](https://www.yahoo.com/news/human-foot-found-everest-may-151208049.html)
 <!-- feed end -->
 
 ### Onstream
