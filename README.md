@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 11 - [Tesla Robotaxi event: How to watch the reveal live](https://finance.yahoo.com/news/tesla-robotaxi-event-watch-reveal-193710401.html)
 - Oct 11 - [Obama Roasts Trump for Everything From Selling Bibles to Needing a Diaper at Pittsburgh Rally | Video](https://www.yahoo.com/news/obama-roasts-trump-everything-selling-012413426.html)
-- Oct 10 - [Tesla to kick off robotaxi unveiling amid fanfare and skepticism](https://finance.yahoo.com/news/teslas-musk-unveil-robotaxis-amid-230307591.html)
-- Oct 10 - [Mexico sends 660 soldiers, National Guard to protect lime growers suffering extortion by cartels](https://www.yahoo.com/news/mexico-sends-660-soldiers-national-213310902.html)
-- Oct 10 - [10 Million Pounds of Chicken and Beef Products Recalled Due To Potential Listeria Contamination](https://www.yahoo.com/news/10-million-pounds-chicken-beef-202316416.html)
+- Oct 10 - [Condemned inmate Richard Moore wants someone other than South Carolina's governor to decide clemency](https://www.yahoo.com/news/condemned-inmate-richard-moore-wants-230322892.html)
+- Oct 10 - [Tesla CEO Musk unveils two-door robotaxi, seen as key to long-term growth](https://finance.yahoo.com/news/teslas-musk-unveil-robotaxis-amid-230307591.html)
+- Oct 10 - [DirecTV Prepares to Expand Into Free Online Streaming](https://www.yahoo.com/tech/directv-prepares-expand-free-online-220532902.html)
 <!-- feed end -->
 
 ### Onstream
