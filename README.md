@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [Trump campaign swipes at Harris following medical report release](https://www.yahoo.com/news/trump-campaign-swipes-harris-following-181316996.html)
+- Oct 12 - [FAA approves SpaceX Starship 5 flight set for Sunday](https://finance.yahoo.com/news/federal-aviation-administration-approves-spacex-171426065.html)
+- Oct 12 - [The disturbing video of Sean 'Diddy' Combs attacking Cassie is now at center of his sex abuse case](https://www.yahoo.com/news/disturbing-video-sean-diddy-combs-165559940.html)
 - Oct 12 - [Opinion - The 4 reasons Harris is losing](https://www.yahoo.com/news/opinion-4-reasons-harris-losing-160000283.html)
-- Oct 12 - [The One Common Public Bathroom Habit to Consider Breaking ASAP](https://www.yahoo.com/lifestyle/one-common-public-bathroom-habit-142500225.html)
 - Oct 12 - [Carnegie restaurant issued consumer alert after 15 violations were found during inspection](https://www.yahoo.com/news/carnegie-restaurant-issued-consumer-alert-140452267.html)
-- Oct 12 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
-- Oct 12 - [Taiwan's China Airlines says no political pressure on new aircraft order](https://finance.yahoo.com/news/taiwans-china-airlines-says-no-111515013.html)
 <!-- feed end -->
 
 ### Onstream
