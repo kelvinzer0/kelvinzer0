@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Iran's attacks on Israel suggest ballistic missiles are an overhyped threat](https://www.yahoo.com/news/irans-attacks-israel-suggest-ballistic-090701924.html)
+- Oct 12 - [1 Growth Stock Down 95% to Buy Right Now](https://finance.yahoo.com/news/1-growth-stock-down-95-100500742.html)
+- Oct 12 - [The bull market is 2 years old. Here's where Wall Street thinks stocks go next.](https://finance.yahoo.com/news/the-bull-market-is-2-years-old-heres-where-wall-street-thinks-stocks-go-next-100050648.html)
+- Oct 12 - [A Few Years From Now, You'll Wish You'd Bought This Undervalued Stock](https://finance.yahoo.com/news/few-years-now-youll-wish-074200133.html)
 - Oct 12 - [Trump, after mocking Harris over teleprompter use, stops rally to remove sign that fell on his](https://www.yahoo.com/news/trump-mocking-harris-over-teleprompter-035501424.html)
-- Oct 11 - [Boeing will lay off 10% of its employees as a strike by factory workers cripples airplane production](https://finance.yahoo.com/news/boeing-lay-off-10-employees-211414841.html)
-- Oct 11 - [Boeing to cut 17,000 jobs as labor strike enters fourth week](https://finance.yahoo.com/video/boeing-cut-17-000-jobs-211255132.html)
-- Oct 11 - [U.S. Coast Guard investigating after barge crashes into a bridge near downtown Knoxville](https://www.yahoo.com/news/u-coast-guard-investigating-barge-204342811.html)
+- Oct 11 - [Mystery of Russia's secret weapon downed in Ukraine](https://www.yahoo.com/news/mystery-russias-secret-weapon-downed-230014283.html)
 <!-- feed end -->
 
 ### Onstream
