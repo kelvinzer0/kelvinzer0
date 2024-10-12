@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 11 - [Texas man held in Las Vegas in deadly 2020 Nevada-Arizona shooting rampage pleads guilty](https://www.yahoo.com/news/texas-man-held-las-vegas-232935382.html)
+- Oct 11 - [Israel conducts its deadliest attack on Beirut since start of bombardment](https://www.yahoo.com/news/israel-conducts-deadliest-attack-beirut-231627221.html)
+- Oct 11 - [Woman Caught Husband Cheating With Roommates Before Disappearing, Family Says](https://www.yahoo.com/news/woman-caught-husband-cheating-roommates-225717971.html)
+- Oct 11 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
 - Oct 11 - [Boeing to cut 17,000 jobs as labor strike enters fourth week](https://finance.yahoo.com/video/boeing-cut-17-000-jobs-211255132.html)
-- Oct 11 - [U.S. Coast Guard investigating after barge crashes into a bridge near downtown Knoxville](https://www.yahoo.com/news/u-coast-guard-investigating-barge-204342811.html)
-- Oct 11 - [NOAA releases latest prediction for La Niña winter, outlook for the Pacific Northwest](https://www.yahoo.com/news/noaa-releases-latest-prediction-la-203902543.html)
-- Oct 11 - [Boeing to cut 17,000 jobs and delay first 777X delivery as strike hits finances](https://finance.yahoo.com/news/boeing-cut-17-000-jobs-203225559.html)
 <!-- feed end -->
 
 ### Onstream
