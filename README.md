@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [Florida's barrier islands sustain damage from Hurricane Milton](https://www.yahoo.com/news/floridas-barrier-islands-sustain-damage-145216297.html)
+- Oct 12 - [Doctors Say This Common Injury Could Be a Dementia Warning Sign](https://www.yahoo.com/news/doctors-common-injury-could-dementia-140000395.html)
 - Oct 12 - [Boeing to lay off 10% of workforce](https://www.yahoo.com/news/boeing-lay-off-10-workforce-133905992.html)
 - Oct 12 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
-- Oct 12 - [Taiwan's China Airlines says no political pressure on new aircraft order](https://finance.yahoo.com/news/taiwans-china-airlines-says-no-111515013.html)
 - Oct 12 - [‘They stole our dream’: Couple’s retirement plans scuttled after thieves stole their vacant Massachusetts property and sold it for half its worth](https://finance.yahoo.com/news/stole-dream-couple-retirement-plans-111300471.html)
-- Oct 12 - [Electric cars now outnumber their gas-powered counterparts in key region: 'This is historic'](https://autos.yahoo.com/electric-cars-now-outnumber-gas-104455720.html)
 <!-- feed end -->
 
 ### Onstream
