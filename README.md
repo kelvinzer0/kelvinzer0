@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [Harris is releasing a report on her health and poking Trump for failing to do likewise](https://www.yahoo.com/news/harris-releasing-report-her-health-090127730.html)
+- Oct 12 - [Ukrainian emergency workers search rubble after Russian airstrike on Zaporizhzhia](https://www.yahoo.com/news/ukrainian-emergency-workers-search-rubble-082222216.html)
 - Oct 12 - [Body parts found in Colorado freezer are those of 16-year-old girl last seen in 2005](https://www.yahoo.com/news/body-parts-found-colorado-freezer-042644955.html)
 - Oct 12 - [Trump, after mocking Harris over teleprompter use, stops rally to remove sign that fell on his](https://www.yahoo.com/news/trump-mocking-harris-over-teleprompter-035501424.html)
 - Oct 11 - [Texas man held in Las Vegas in deadly 2020 Nevada-Arizona shooting rampage pleads guilty](https://www.yahoo.com/news/texas-man-held-las-vegas-232935382.html)
-- Oct 11 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
-- Oct 11 - [Boeing will lay off 10% of its employees as a strike by factory workers cripples airplane production](https://finance.yahoo.com/news/boeing-lay-off-10-employees-211414841.html)
 <!-- feed end -->
 
 ### Onstream
