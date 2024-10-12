@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [1 Growth Stock Down 95% to Buy Right Now](https://finance.yahoo.com/news/1-growth-stock-down-95-100500742.html)
+- Oct 12 - [4 Ways Retirees Can Access Their Home’s Equity Without a Reverse Mortgage](https://finance.yahoo.com/news/4-ways-retirees-access-home-120029685.html)
+- Oct 12 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
+- Oct 12 - [Taiwan's China Airlines says no political pressure on new aircraft order](https://finance.yahoo.com/news/taiwans-china-airlines-says-no-111515013.html)
+- Oct 12 - [Warren Buffett and Cathie Wood Agree: This Growth Stock Is a Buy](https://finance.yahoo.com/news/warren-buffett-cathie-wood-agree-104500354.html)
 - Oct 12 - [The bull market is 2 years old. Here's where Wall Street thinks stocks go next.](https://finance.yahoo.com/news/the-bull-market-is-2-years-old-heres-where-wall-street-thinks-stocks-go-next-100050648.html)
-- Oct 12 - [A Few Years From Now, You'll Wish You'd Bought This Undervalued Stock](https://finance.yahoo.com/news/few-years-now-youll-wish-074200133.html)
-- Oct 12 - [Trump, after mocking Harris over teleprompter use, stops rally to remove sign that fell on his](https://www.yahoo.com/news/trump-mocking-harris-over-teleprompter-035501424.html)
-- Oct 11 - [Mystery of Russia's secret weapon downed in Ukraine](https://www.yahoo.com/news/mystery-russias-secret-weapon-downed-230014283.html)
 <!-- feed end -->
 
 ### Onstream
