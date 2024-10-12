@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Boeing will lay off 10% of its employees as a strike by factory workers cripples airplane production](https://finance.yahoo.com/news/boeing-lay-off-10-employees-211414841.html)
+- Oct 11 - [Texas man held in Las Vegas in deadly 2020 Nevada-Arizona shooting rampage pleads guilty](https://www.yahoo.com/news/texas-man-held-las-vegas-232935382.html)
 - Oct 11 - [Boeing to cut 17,000 jobs as labor strike enters fourth week](https://finance.yahoo.com/video/boeing-cut-17-000-jobs-211255132.html)
-- Oct 11 - [Bridge malfunction + Friday traffic + Cruisin’ The Coast = a big mess in South Mississippi](https://www.yahoo.com/news/bridge-malfunction-friday-traffic-cruisin-204124716.html)
-- Oct 11 - [NATO fighter pilots break down their Eurofighter vs F-35 dogfight with cockpit video and paper airplanes](https://www.yahoo.com/news/nato-fighter-pilots-break-down-195415539.html)
-- Oct 11 - [My daughter died due to belief in NHS that parents are wrong, says mother of sepsis victim](https://www.yahoo.com/news/daughter-died-due-belief-nhs-185935145.html)
+- Oct 11 - [U.S. Coast Guard investigating after barge crashes into a bridge near downtown Knoxville](https://www.yahoo.com/news/u-coast-guard-investigating-barge-204342811.html)
+- Oct 11 - [NOAA releases latest prediction for La Niña winter, outlook for the Pacific Northwest](https://www.yahoo.com/news/noaa-releases-latest-prediction-la-203902543.html)
+- Oct 11 - [Boeing to cut 17,000 jobs and delay first 777X delivery as strike hits finances](https://finance.yahoo.com/news/boeing-cut-17-000-jobs-203225559.html)
 <!-- feed end -->
 
 ### Onstream
