@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Improvised explosive device thrown onto Burien street, explodes in traffic](https://www.yahoo.com/news/improvised-explosive-device-thrown-onto-034912709.html)
-- Oct 12 - [Student hospitalized after being stabbed at Southern California middle school](https://www.yahoo.com/news/student-hospitalized-being-stabbed-southern-013011350.html)
-- Oct 12 - [Florida family: Insurers hope we'll walk away | Cuomo](https://www.yahoo.com/news/florida-family-insurers-hope-well-005134060.html)
 - Oct 11 - [Texas man held in Las Vegas in deadly 2020 Nevada-Arizona shooting rampage pleads guilty](https://www.yahoo.com/news/texas-man-held-las-vegas-232935382.html)
 - Oct 11 - [Israel conducts its deadliest attack on Beirut since start of bombardment](https://www.yahoo.com/news/israel-conducts-deadliest-attack-beirut-231627221.html)
+- Oct 11 - [Boeing will lay off 10% of its employees as a strike by factory workers cripples airplane production](https://finance.yahoo.com/news/boeing-lay-off-10-employees-211414841.html)
+- Oct 11 - [NOAA releases latest prediction for La Niña winter, outlook for the Pacific Northwest](https://www.yahoo.com/news/noaa-releases-latest-prediction-la-203902543.html)
+- Oct 11 - [Hot Air Balloon Knocks Over Radio Tower in Albuquerque](https://www.yahoo.com/news/hot-air-balloon-knocks-over-203110977.html)
 <!-- feed end -->
 
 ### Onstream
