@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
-- Oct 12 - [The bull market is 2 years old. Here's where Wall Street thinks stocks go next.](https://finance.yahoo.com/news/the-bull-market-is-2-years-old-heres-where-wall-street-thinks-stocks-go-next-100050648.html)
-- Oct 12 - [A billionaire heir built one of America's largest homes. His bitter divorce means his $195 million mansion is for sale.](https://www.yahoo.com/news/billionaire-heir-built-one-americas-095201350.html)
-- Oct 12 - [2 Artificial Intelligence (AI) Stocks to Buy With $1,000 and Hold for Decades](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-083100998.html)
-- Oct 12 - [Trump, after mocking Harris over teleprompter use, stops rally to remove sign that fell on his](https://www.yahoo.com/news/trump-mocking-harris-over-teleprompter-035501424.html)
+- Oct 12 - [Tesla, Inc. (TSLA): Among the Most Promising Growth Stocks To Buy Now](https://finance.yahoo.com/news/tesla-inc-tsla-among-most-135155901.html)
+- Oct 12 - [Taiwan's China Airlines says no political pressure on new aircraft order](https://finance.yahoo.com/news/taiwans-china-airlines-says-no-111515013.html)
+- Oct 12 - [‘They stole our dream’: Couple’s retirement plans scuttled after thieves stole their vacant Massachusetts property and sold it for half its worth](https://finance.yahoo.com/news/stole-dream-couple-retirement-plans-111300471.html)
+- Oct 12 - [Startling before-and-after images show devastating loss along coast over decades: 'It's so sad to see'](https://www.yahoo.com/news/startling-images-show-devastating-loss-101520814.html)
+- Oct 12 - [China warns EU against separate EV price negotiations](https://finance.yahoo.com/news/china-urges-eu-not-affect-100153696.html)
 <!-- feed end -->
 
 ### Onstream
