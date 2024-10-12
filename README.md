@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [4 Ways Retirees Can Access Their Home’s Equity Without a Reverse Mortgage](https://finance.yahoo.com/news/4-ways-retirees-access-home-120029685.html)
 - Oct 12 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
-- Oct 12 - [Taiwan's China Airlines says no political pressure on new aircraft order](https://finance.yahoo.com/news/taiwans-china-airlines-says-no-111515013.html)
-- Oct 12 - [Warren Buffett and Cathie Wood Agree: This Growth Stock Is a Buy](https://finance.yahoo.com/news/warren-buffett-cathie-wood-agree-104500354.html)
 - Oct 12 - [The bull market is 2 years old. Here's where Wall Street thinks stocks go next.](https://finance.yahoo.com/news/the-bull-market-is-2-years-old-heres-where-wall-street-thinks-stocks-go-next-100050648.html)
+- Oct 12 - [A billionaire heir built one of America's largest homes. His bitter divorce means his $195 million mansion is for sale.](https://www.yahoo.com/news/billionaire-heir-built-one-americas-095201350.html)
+- Oct 12 - [2 Artificial Intelligence (AI) Stocks to Buy With $1,000 and Hold for Decades](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-083100998.html)
+- Oct 12 - [Trump, after mocking Harris over teleprompter use, stops rally to remove sign that fell on his](https://www.yahoo.com/news/trump-mocking-harris-over-teleprompter-035501424.html)
 <!-- feed end -->
 
 ### Onstream
