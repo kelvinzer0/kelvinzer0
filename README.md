@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 12 - [Michael Moore Dares Joe Biden to Use ‘Full Immunity’ in Last Days as Prez](https://www.yahoo.com/news/michael-moore-dares-joe-biden-204429765.html)
+- Oct 12 - [Navy Just Reloaded A Vertical Launch System For The First Time While Underway At Sea](https://www.yahoo.com/news/navy-just-reloaded-vertical-launch-195005651.html)
 - Oct 12 - [FAA approves SpaceX Starship 5 flight set for Sunday](https://finance.yahoo.com/news/federal-aviation-administration-approves-spacex-171426065.html)
 - Oct 12 - [Opinion - The 4 reasons Harris is losing](https://www.yahoo.com/news/opinion-4-reasons-harris-losing-160000283.html)
-- Oct 12 - [Florida's barrier islands sustain damage from Hurricane Milton](https://www.yahoo.com/news/floridas-barrier-islands-sustain-damage-145216297.html)
-- Oct 12 - [The One Common Public Bathroom Habit to Consider Breaking ASAP](https://www.yahoo.com/lifestyle/one-common-public-bathroom-habit-142500225.html)
+- Oct 12 - [Florida offering residents 10 free gallons of gas, Governor DeSantis announces state-run fuel sites](https://www.yahoo.com/news/florida-offering-residents-10-free-143758761.html)
 <!-- feed end -->
 
 ### Onstream
