@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [As Hezbollah and Israel battle on the border, Lebanon's army watches from the sidelines](https://www.yahoo.com/news/hezbollah-israel-battle-border-lebanons-044734803.html)
 - Oct 12 - [Body parts found in Colorado freezer are those of 16-year-old girl last seen in 2005](https://www.yahoo.com/news/body-parts-found-colorado-freezer-042644955.html)
-- Oct 12 - [Florida family: Insurers hope we'll walk away | Cuomo](https://www.yahoo.com/news/florida-family-insurers-hope-well-005134060.html)
-- Oct 11 - [St. Matthews plane crash: 3 hospitalized following small plane crash](https://www.yahoo.com/news/st-matthews-plane-crash-3-233956024.html)
+- Oct 12 - [Trump, after mocking Harris over teleprompter use, stops rally to remove sign that fell on his](https://www.yahoo.com/news/trump-mocking-harris-over-teleprompter-035501424.html)
 - Oct 11 - [Texas man held in Las Vegas in deadly 2020 Nevada-Arizona shooting rampage pleads guilty](https://www.yahoo.com/news/texas-man-held-las-vegas-232935382.html)
+- Oct 11 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
+- Oct 11 - [Boeing will lay off 10% of its employees as a strike by factory workers cripples airplane production](https://finance.yahoo.com/news/boeing-lay-off-10-employees-211414841.html)
 <!-- feed end -->
 
 ### Onstream
