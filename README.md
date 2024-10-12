@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Tesla, Inc. (TSLA): Among the Most Promising Growth Stocks To Buy Now](https://finance.yahoo.com/news/tesla-inc-tsla-among-most-135155901.html)
+- Oct 12 - [Met Police distances itself from festival accused of platforming Hamas defenders](https://www.yahoo.com/news/met-police-distances-itself-muslim-141750104.html)
+- Oct 12 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
 - Oct 12 - [Taiwan's China Airlines says no political pressure on new aircraft order](https://finance.yahoo.com/news/taiwans-china-airlines-says-no-111515013.html)
 - Oct 12 - [‘They stole our dream’: Couple’s retirement plans scuttled after thieves stole their vacant Massachusetts property and sold it for half its worth](https://finance.yahoo.com/news/stole-dream-couple-retirement-plans-111300471.html)
-- Oct 12 - [Startling before-and-after images show devastating loss along coast over decades: 'It's so sad to see'](https://www.yahoo.com/news/startling-images-show-devastating-loss-101520814.html)
-- Oct 12 - [China warns EU against separate EV price negotiations](https://finance.yahoo.com/news/china-urges-eu-not-affect-100153696.html)
+- Oct 12 - [Electric cars now outnumber their gas-powered counterparts in key region: 'This is historic'](https://autos.yahoo.com/electric-cars-now-outnumber-gas-104455720.html)
 <!-- feed end -->
 
 ### Onstream
