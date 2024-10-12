@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Met Police distances itself from festival accused of platforming Hamas defenders](https://www.yahoo.com/news/met-police-distances-itself-muslim-141750104.html)
+- Oct 12 - [Boeing to lay off 10% of workforce](https://www.yahoo.com/news/boeing-lay-off-10-workforce-133905992.html)
 - Oct 12 - [Iran engages in urgent diplomacy as it braces for Israel’s response to missile attacks](https://www.yahoo.com/news/us-believes-iran-extremely-nervous-184704669.html)
 - Oct 12 - [Taiwan's China Airlines says no political pressure on new aircraft order](https://finance.yahoo.com/news/taiwans-china-airlines-says-no-111515013.html)
 - Oct 12 - [‘They stole our dream’: Couple’s retirement plans scuttled after thieves stole their vacant Massachusetts property and sold it for half its worth](https://finance.yahoo.com/news/stole-dream-couple-retirement-plans-111300471.html)
