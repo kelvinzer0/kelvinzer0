@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [SpaceX pulls off unprecedented feat, grabs descending rocket with mechanical arms](https://www.yahoo.com/news/spacex-pulls-off-unprecedented-feat-124959958.html)
+- Oct 13 - [Dramatic Footage Shows SpaceX Starship Exploding After Crashing Into the Ocean](https://www.yahoo.com/tech/dramatic-footage-shows-spacex-starship-134719378.html)
+- Oct 13 - [He was sentenced to death after his toddler died. Now, shaken baby syndrome is at the heart of Robert Roberson’s 11th-hour appeals](https://www.yahoo.com/news/sentenced-death-toddler-died-now-130039871.html)
 - Oct 13 - [SpaceX catches giant Starship booster in fifth flight test](https://finance.yahoo.com/news/spacex-launches-fifth-starship-test-123812348.html)
-- Oct 13 - [Moreno's abortion comment rattles debate in expensive Senate race in Republican-leaning Ohio](https://www.yahoo.com/news/morenos-abortion-rattles-debate-expensive-113001761.html)
-- Oct 13 - [Coca-Cola Recalls Its Popular Zero Sugar Drink Because It Contains Full Sugar](https://www.yahoo.com/news/coca-cola-recalls-popular-zero-112900254.html)
-- Oct 13 - [2 out 3 millionaires in the US don’t consider themselves rich — here are the 3 things the wealthy worry about most](https://finance.yahoo.com/news/2-3-millionaires-us-don-105500922.html)
+- Oct 13 - [Is ‘Clovis way of life’ under threat by district elections? Council members think so](https://www.yahoo.com/news/clovis-way-life-under-threat-123000620.html)
+- Oct 13 - [Does Warren Buffett Know Something Wall Street Doesn't? The Billionaire Legend Dumps $9.6 Billion of Key Holding While Buying $345 Million of His Favorite Stock.](https://finance.yahoo.com/news/does-warren-buffett-know-something-121500342.html)
 <!-- feed end -->
 
 ### Onstream
