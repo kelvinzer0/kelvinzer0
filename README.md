@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 13 - [Hezbollah fighting Israeli troops near Lebanon's Ramya village; third UN peacekeeper wounded](https://www.yahoo.com/news/hezbollah-fighting-israeli-troops-near-030842581.html)
-- Oct 13 - [As parts of Florida went dark from Helene and Milton, the lights stayed on in this net-zero, storm-proof community](https://www.yahoo.com/news/parts-florida-went-dark-helene-180037774.html)
 - Oct 13 - [Trump hears at a Latino campaign event from someone who lived in the US illegally](https://www.yahoo.com/news/trump-hears-latino-campaign-event-001907237.html)
 - Oct 12 - [Historic ocean liner could soon become the world's largest artificial reef](https://www.yahoo.com/news/historic-ocean-liner-could-soon-211126455.html)
-- Oct 12 - [Man abused by girlfriend banned from using toilet](https://www.yahoo.com/news/man-abused-girlfriend-banned-using-205216469.html)
+- Oct 12 - [Michael Moore Dares Joe Biden to Use ‘Full Immunity’ in Last Days as Prez](https://www.yahoo.com/news/michael-moore-dares-joe-biden-204429765.html)
+- Oct 12 - [San Diego physician, medical practice ordered to pay $3.8M for alleged false claims](https://www.yahoo.com/news/san-diego-physician-medical-practice-185843342.html)
 <!-- feed end -->
 
 ### Onstream
