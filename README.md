@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 13 - [Trump hears at a Latino campaign event from someone who lived in the US illegally](https://www.yahoo.com/news/trump-hears-latino-campaign-event-001907237.html)
+- Oct 12 - [Historic ocean liner could soon become the world's largest artificial reef](https://www.yahoo.com/news/historic-ocean-liner-could-soon-211126455.html)
 - Oct 12 - [Man abused by girlfriend banned from using toilet](https://www.yahoo.com/news/man-abused-girlfriend-banned-using-205216469.html)
 - Oct 12 - [Michael Moore Dares Joe Biden to Use ‘Full Immunity’ in Last Days as Prez](https://www.yahoo.com/news/michael-moore-dares-joe-biden-204429765.html)
-- Oct 12 - [San Diego physician, medical practice ordered to pay $3.8M for alleged false claims](https://www.yahoo.com/news/san-diego-physician-medical-practice-185843342.html)
-- Oct 12 - [Trump campaign swipes at Harris following medical report release](https://www.yahoo.com/news/trump-campaign-swipes-harris-following-181316996.html)
+- Oct 12 - [Navy Just Reloaded A Vertical Launch System For The First Time While Underway At Sea](https://www.yahoo.com/news/navy-just-reloaded-vertical-launch-195005651.html)
 <!-- feed end -->
 
 ### Onstream
