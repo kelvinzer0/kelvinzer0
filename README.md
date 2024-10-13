@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Tennessee State University homecoming: What we know about the shooting, Nissan Stadium incident](https://www.yahoo.com/news/tennessee-state-university-homecoming-know-173236974.html)
-- Oct 13 - [Watch: Ukrainian men dragged out of nightclubs by army recruiters](https://www.yahoo.com/news/watch-ukrainian-men-dragged-nightclubs-170000227.html)
-- Oct 13 - [North Korea says front-line units ready to strike South Korea if more drones appear](https://www.yahoo.com/news/north-korea-says-front-line-160047034.html)
+- Oct 13 - [Donald Trump Calls Kamala Harris the R-Word at Dinner with Billionaire Donors: Report](https://www.yahoo.com/news/donald-trump-calls-kamala-harris-175257802.html)
 - Oct 13 - [Trump suggests a protester may get 'the hell knocked out of her' by her parents](https://www.yahoo.com/news/trump-suggests-protester-may-hell-155706110.html)
 - Oct 13 - [12 Shady Things About Walmart's Grocery Department](https://www.yahoo.com/news/12-shady-things-walmarts-grocery-144024738.html)
+- Oct 13 - ['Totally illegal': Trump escalates rhetoric on outlawing political dissent and criticism](https://www.yahoo.com/news/totally-illegal-trump-escalates-rhetoric-140000265.html)
+- Oct 13 - [Dramatic Footage Shows SpaceX Starship Exploding After Crashing Into the Ocean](https://www.yahoo.com/tech/dramatic-footage-shows-spacex-starship-134719378.html)
 <!-- feed end -->
 
 ### Onstream
