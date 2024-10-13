@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Is CRISPR Therapeutics Stock a Buy?](https://finance.yahoo.com/news/crispr-therapeutics-stock-buy-103000973.html)
+- Oct 13 - [Zelensky appeals for Western aid after 900 bombs dropped in a week](https://www.yahoo.com/news/zelensky-appeals-western-aid-900-113320380.html)
+- Oct 13 - [Moreno's abortion comment rattles debate in expensive Senate race in Republican-leaning Ohio](https://www.yahoo.com/news/morenos-abortion-rattles-debate-expensive-113001761.html)
+- Oct 13 - [Taiwan Semiconductor Manufacturing Company Limited (TSM) Expands in Kaohsiung with Two New Fabs, Increasing Facilities to Five Amid Ongoing 2nm Production Plans](https://finance.yahoo.com/news/taiwan-semiconductor-manufacturing-company-limited-111452552.html)
+- Oct 13 - [2 out 3 millionaires in the US don’t consider themselves rich — here are the 3 things the wealthy worry about most](https://finance.yahoo.com/news/2-3-millionaires-us-don-105500922.html)
 - Oct 13 - [Columbus was a Sephardic Jew from Western Europe, study finds](https://www.yahoo.com/news/columbus-sephardic-jew-western-europe-064944066.html)
-- Oct 13 - [Trump hears at a Latino campaign event from someone who lived in the US illegally](https://www.yahoo.com/news/trump-hears-latino-campaign-event-001907237.html)
-- Oct 12 - [Man abused by girlfriend banned from using toilet](https://www.yahoo.com/news/man-abused-girlfriend-banned-using-205216469.html)
-- Oct 12 - [Michael Moore Dares Joe Biden to Use ‘Full Immunity’ in Last Days as Prez](https://www.yahoo.com/news/michael-moore-dares-joe-biden-204429765.html)
 <!-- feed end -->
 
 ### Onstream
