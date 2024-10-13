@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 13 - [Suspect captured in killing of off-duty Florida sheriff's deputy who attempted to intervene in a domestic violence incident](https://www.yahoo.com/news/suspect-captured-killing-off-duty-193640614.html)
 - Oct 13 - [Donald Trump Calls Kamala Harris the R-Word at Dinner with Billionaire Donors: Report](https://www.yahoo.com/news/donald-trump-calls-kamala-harris-175257802.html)
-- Oct 13 - [Trump suggests a protester may get 'the hell knocked out of her' by her parents](https://www.yahoo.com/news/trump-suggests-protester-may-hell-155706110.html)
-- Oct 13 - [12 Shady Things About Walmart's Grocery Department](https://www.yahoo.com/news/12-shady-things-walmarts-grocery-144024738.html)
-- Oct 13 - ['Totally illegal': Trump escalates rhetoric on outlawing political dissent and criticism](https://www.yahoo.com/news/totally-illegal-trump-escalates-rhetoric-140000265.html)
-- Oct 13 - [Dramatic Footage Shows SpaceX Starship Exploding After Crashing Into the Ocean](https://www.yahoo.com/tech/dramatic-footage-shows-spacex-starship-134719378.html)
+- Oct 13 - [The Average American’s Monthly Expenses, According to Dave Ramsey — How Do Yours Compare?](https://finance.yahoo.com/news/average-american-monthly-expenses-according-170029278.html)
+- Oct 13 - [Watch: Ukrainian men dragged out of nightclubs by army recruiters](https://www.yahoo.com/news/watch-ukrainian-men-dragged-nightclubs-170000496.html)
+- Oct 13 - [KY man arrested for murder after fatal crash. Alcohol a contributing factor, police say.](https://www.yahoo.com/news/ky-man-arrested-murder-fatal-162913770.html)
 <!-- feed end -->
 
 ### Onstream
