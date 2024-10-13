@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Iran reduces sentence of jailed journalists after clearing them of collaborating with US](https://www.yahoo.com/news/iran-reduces-sentence-jailed-journalists-094206689.html)
-- Oct 13 - [Robinson’s scandal remains unresolved, as NC Republicans dodge the issue | Opinion](https://www.yahoo.com/news/robinson-scandal-remains-unresolved-nc-090000013.html)
+- Oct 13 - [Is CRISPR Therapeutics Stock a Buy?](https://finance.yahoo.com/news/crispr-therapeutics-stock-buy-103000973.html)
+- Oct 13 - [Columbus was a Sephardic Jew from Western Europe, study finds](https://www.yahoo.com/news/columbus-sephardic-jew-western-europe-064944066.html)
 - Oct 13 - [Trump hears at a Latino campaign event from someone who lived in the US illegally](https://www.yahoo.com/news/trump-hears-latino-campaign-event-001907237.html)
-- Oct 12 - [Historic ocean liner could soon become the world's largest artificial reef](https://www.yahoo.com/news/historic-ocean-liner-could-soon-211126455.html)
 - Oct 12 - [Man abused by girlfriend banned from using toilet](https://www.yahoo.com/news/man-abused-girlfriend-banned-using-205216469.html)
+- Oct 12 - [Michael Moore Dares Joe Biden to Use ‘Full Immunity’ in Last Days as Prez](https://www.yahoo.com/news/michael-moore-dares-joe-biden-204429765.html)
 <!-- feed end -->
 
 ### Onstream
