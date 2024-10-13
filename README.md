@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Trump hears at a Latino campaign event from someone who lived in the US illegally](https://www.yahoo.com/news/trump-hears-latino-campaign-event-001907237.html)
-- Oct 12 - [Explosive devices shut down I-90 for hours on Mercer Island, WA](https://www.yahoo.com/news/explosive-devices-shut-down-90-212224513.html)
-- Oct 12 - [Historic ocean liner could soon become the world's largest artificial reef](https://www.yahoo.com/news/historic-ocean-liner-could-soon-211126455.html)
-- Oct 12 - [Michael Moore Dares Joe Biden to Use ‘Full Immunity’ in Last Days as Prez](https://www.yahoo.com/news/michael-moore-dares-joe-biden-204429765.html)
-- Oct 12 - [Trump campaign swipes at Harris following medical report release](https://www.yahoo.com/news/trump-campaign-swipes-harris-following-181316996.html)
+- Oct 13 - [Interest Rates Just Did Something They Haven't Done Since March 2020, and It Could Foreshadow a Big Move in the Stock Market](https://finance.yahoo.com/news/interest-rates-just-did-something-085200121.html)
+- Oct 13 - [Israeli tanks deepen their push into the northern Gaza Strip](https://www.yahoo.com/news/israeli-tanks-deepen-push-northern-081457882.html)
+- Oct 13 - [Columbus was a Sephardic Jew from Western Europe, study finds](https://www.yahoo.com/news/columbus-sephardic-jew-western-europe-064944066.html)
+- Oct 13 - [U.S. officials believe Israel will target military and energy sites in Iran, NBC reports](https://www.yahoo.com/news/hezbollah-fighting-israeli-troops-near-030842581.html)
+- Oct 13 - [As parts of Florida went dark from Helene and Milton, the lights stayed on in this net-zero, storm-proof community](https://www.yahoo.com/news/parts-florida-went-dark-helene-180037774.html)
 <!-- feed end -->
 
 ### Onstream
