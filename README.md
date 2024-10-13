@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Suspect captured in killing of off-duty Florida sheriff's deputy who attempted to intervene in a domestic violence incident](https://www.yahoo.com/news/suspect-captured-killing-off-duty-193640614.html)
+- Oct 13 - [Juvenile charged in Forest Hills bomb threat](https://www.yahoo.com/news/juvenile-charged-forest-hills-bomb-223200664.html)
+- Oct 13 - [Father sentenced to 55 years in prison for killing daughter over prom dispute](https://www.yahoo.com/news/father-sentenced-55-years-prison-214538721.html)
+- Oct 13 - [Historic Jersey Shore amusement park closes after generations of family thrills](https://www.yahoo.com/news/historic-jersey-shore-amusement-park-203724381.html)
 - Oct 13 - [Zelenskiy says North Koreans fighting with Russians in Ukraine](https://www.yahoo.com/news/zelenskiy-says-north-koreans-fighting-185600622.html)
 - Oct 13 - [Donald Trump Calls Kamala Harris the R-Word at Dinner with Billionaire Donors: Report](https://www.yahoo.com/news/donald-trump-calls-kamala-harris-175257802.html)
-- Oct 13 - [Watch: Ukrainian men dragged out of nightclubs by army recruiters](https://www.yahoo.com/news/watch-ukrainian-men-dragged-nightclubs-170000496.html)
-- Oct 13 - [Trump suggests a protester may get 'the hell knocked out of her' by her parents](https://www.yahoo.com/news/trump-suggests-protester-may-hell-155706110.html)
 <!-- feed end -->
 
 ### Onstream
