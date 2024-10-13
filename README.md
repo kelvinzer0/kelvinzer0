@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Zelensky appeals for Western aid after 900 bombs dropped in a week](https://www.yahoo.com/news/zelensky-appeals-western-aid-900-113320380.html)
+- Oct 13 - [SpaceX pulls off unprecedented feat, grabs descending rocket with mechanical arms](https://www.yahoo.com/news/spacex-pulls-off-unprecedented-feat-124959958.html)
+- Oct 13 - [Biden to visit Germany on Oct 18, German government sources say](https://www.yahoo.com/news/biden-visit-germany-oct-18-114638809.html)
+- Oct 13 - [Here is the average 401(k) balance of Americans by age — are you ahead of the game or falling behind?](https://finance.yahoo.com/news/average-401-k-balance-americans-114200344.html)
 - Oct 13 - [Moreno's abortion comment rattles debate in expensive Senate race in Republican-leaning Ohio](https://www.yahoo.com/news/morenos-abortion-rattles-debate-expensive-113001761.html)
-- Oct 13 - [Taiwan Semiconductor Manufacturing Company Limited (TSM) Expands in Kaohsiung with Two New Fabs, Increasing Facilities to Five Amid Ongoing 2nm Production Plans](https://finance.yahoo.com/news/taiwan-semiconductor-manufacturing-company-limited-111452552.html)
-- Oct 13 - [2 out 3 millionaires in the US don’t consider themselves rich — here are the 3 things the wealthy worry about most](https://finance.yahoo.com/news/2-3-millionaires-us-don-105500922.html)
-- Oct 13 - [Columbus was a Sephardic Jew from Western Europe, study finds](https://www.yahoo.com/news/columbus-sephardic-jew-western-europe-064944066.html)
+- Oct 13 - [This Week in Pennsylvania: Presidents campaigning across Pennsylvania](https://www.yahoo.com/news/week-pennsylvania-presidents-campaigning-across-110700053.html)
 <!-- feed end -->
 
 ### Onstream
