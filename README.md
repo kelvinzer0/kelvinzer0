@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Where Will Nvidia Stock Be in 2025?](https://finance.yahoo.com/news/where-nvidia-stock-2025-163000705.html)
+- Oct 13 - [Tennessee State University homecoming: What we know about the shooting, Nissan Stadium incident](https://www.yahoo.com/news/tennessee-state-university-homecoming-know-173236974.html)
+- Oct 13 - [Watch: Ukrainian men dragged out of nightclubs by army recruiters](https://www.yahoo.com/news/watch-ukrainian-men-dragged-nightclubs-170000227.html)
+- Oct 13 - [North Korea says front-line units ready to strike South Korea if more drones appear](https://www.yahoo.com/news/north-korea-says-front-line-160047034.html)
 - Oct 13 - [Trump suggests a protester may get 'the hell knocked out of her' by her parents](https://www.yahoo.com/news/trump-suggests-protester-may-hell-155706110.html)
-- Oct 13 - ['Totally illegal': Trump escalates rhetoric on outlawing political dissent and criticism](https://www.yahoo.com/news/totally-illegal-trump-escalates-rhetoric-140000265.html)
-- Oct 13 - [New tropical disturbance pops up in the Atlantic: National Hurricane Center](https://www.yahoo.com/news/tropical-disturbance-pops-atlantic-national-132858854.html)
-- Oct 13 - [He was sentenced to death after his toddler died. Now, shaken baby syndrome is at the heart of Robert Roberson’s 11th-hour appeals](https://www.yahoo.com/news/sentenced-death-toddler-died-now-130039871.html)
+- Oct 13 - [12 Shady Things About Walmart's Grocery Department](https://www.yahoo.com/news/12-shady-things-walmarts-grocery-144024738.html)
 <!-- feed end -->
 
 ### Onstream
