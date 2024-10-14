@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 14 - [Yellowstone worker mysteriously vanished on hike. Now his father has released haunting note found on mountain](https://www.yahoo.com/news/yellowstone-worker-mysteriously-vanished-hike-135100588.html)
-- Oct 14 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
-- Oct 14 - ['I Tried Metabolic Conditioning For 3 Months and Now I Have Chiseled Abs'](https://www.yahoo.com/lifestyle/tried-metabolic-conditioning-3-months-171400415.html)
-- Oct 14 - [NASA Simulation Of What It Would Look Like Flying Through A 'Black Hole' -  Visualization Video](https://www.yahoo.com/news/visualization-look-fly-black-hole-150000897.html)
-- Oct 14 - [Gallery: Japanese Classic Car Show 2024 Photos](https://autos.yahoo.com/gallery-japanese-classic-car-show-165400405.html)
+- Oct 14 - [A Picture Of Donald Trump's Face Being Two Completely Different Colors Is Going Viral For Obvious Reasons](https://www.yahoo.com/entertainment/picture-donald-trumps-face-being-181137468.html)
+- Oct 14 - [Shares of Trump Media extend huge comeback](https://finance.yahoo.com/news/shares-trump-media-extend-huge-181040473.html)
+- Oct 14 - [True Value declares bankruptcy and sells itself to a hardware rival](https://finance.yahoo.com/news/true-value-declares-bankruptcy-sells-174128698.html)
+- Oct 14 - [I'm on track to retire at 45. I started my career earning only $26,000 and followed this 4-phase plan.](https://finance.yahoo.com/news/im-track-retire-45-started-170501439.html)
 <!-- feed end -->
 
 ### Onstream
