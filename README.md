@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Juvenile charged in Forest Hills bomb threat](https://www.yahoo.com/news/juvenile-charged-forest-hills-bomb-223200664.html)
-- Oct 13 - [Father sentenced to 55 years in prison for killing daughter over prom dispute](https://www.yahoo.com/news/father-sentenced-55-years-prison-214538721.html)
+- Oct 14 - [TSMC third-quarter profit seen jumping 40% on strong AI chip demand](https://www.yahoo.com/tech/tsmc-third-quarter-profit-seen-000227266.html)
+- Oct 13 - [New Orleans Mayor LaToya Cantrell travels to Mexico to participate in ‘premier summit’](https://www.yahoo.com/news/orleans-mayor-latoya-cantrell-travels-213137119.html)
+- Oct 13 - [Clinton man gets 23 life sentences in sexual assault of children, sex trafficking](https://www.yahoo.com/news/clinton-man-gets-23-life-210120544.html)
 - Oct 13 - [Historic Jersey Shore amusement park closes after generations of family thrills](https://www.yahoo.com/news/historic-jersey-shore-amusement-park-203724381.html)
-- Oct 13 - [Zelenskiy says North Koreans fighting with Russians in Ukraine](https://www.yahoo.com/news/zelenskiy-says-north-koreans-fighting-185600622.html)
-- Oct 13 - [Donald Trump Calls Kamala Harris the R-Word at Dinner with Billionaire Donors: Report](https://www.yahoo.com/news/donald-trump-calls-kamala-harris-175257802.html)
+- Oct 13 - ['I'm a radiologist — to reduce breast cancer risk, eat these 5 foods and follow these healthy habits'](https://www.yahoo.com/news/im-radiologist-reduce-breast-cancer-190544384.html)
 <!-- feed end -->
 
 ### Onstream
