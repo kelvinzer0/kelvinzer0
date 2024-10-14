@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Editorial: Resist the Chicago Teachers Union’s latest money grab — draining Chicago’s TIFs to preserve a bloated school system](https://www.yahoo.com/news/editorial-resist-chicago-teachers-union-100500564.html)
-- Oct 14 - [More Kentucky Republicans ‘decline’ to answer Right to Life’s endorsement survey](https://www.yahoo.com/news/more-kentucky-republicans-decline-answer-095058313.html)
-- Oct 14 - [The 3 Best-Performing Stock-Split Stocks of 2024 So Far -- and Nvidia Doesn't Top the List](https://finance.yahoo.com/news/3-best-performing-stock-split-094200477.html)
-- Oct 14 - [Here's what voters need to know about Corpus Christi's 2024 bond program](https://www.yahoo.com/news/heres-voters-know-corpus-christis-083119823.html)
-- Oct 14 - [China's COMAC ARJ21 regional jet painted with C909 branding, images show](https://finance.yahoo.com/news/chinas-comac-arj21-regional-jet-072345127.html)
+- Oct 14 - [How to watch green 'comet A3' whizzing through our skies](https://www.yahoo.com/news/green-comet-a3-how-to-watch-120049774.html)
+- Oct 14 - [Suntory CEO talks Gen Z's impact on spirits industry: Opening Bid](https://finance.yahoo.com/video/suntory-ceo-talks-gen-zs-120000293.html)
+- Oct 14 - [Polish democracy leader Lech Walesa says a Trump victory would be a 'misfortune' for the world](https://www.yahoo.com/news/polish-democracy-leader-lech-walesa-103309680.html)
+- Oct 14 - [How cold will it get? NOAA's 2024-25 winter forecast maps show what to expect in Oklahoma](https://www.yahoo.com/news/cold-noaas-2024-25-winter-103022031.html)
+- Oct 14 - [Hurricane Relief Workers Forced to Evacuate Due to Threat of ‘Armed Militia’](https://www.yahoo.com/news/hurricane-relief-workers-forced-evacuate-102606823.html)
 <!-- feed end -->
 
 ### Onstream
