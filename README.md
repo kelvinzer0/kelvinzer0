@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Russian Missile Hits Fourth Cargo Ship in Ukraine This Month](https://finance.yahoo.com/news/russian-missile-hits-fourth-cargo-135124428.html)
-- Oct 14 - [Severe turbulence on Air Canada flight sends passengers and food flying across cabin](https://www.yahoo.com/news/severe-turbulence-air-canada-flight-134743459.html)
-- Oct 14 - [Why the CEO of this alcohol giant isn’t down with shrinkflation](https://finance.yahoo.com/video/suntory-ceo-talks-gen-zs-134015096.html)
-- Oct 14 - [Mom killed by nerve agent was caught in global murder plot, court told](https://www.yahoo.com/news/mom-killed-nerve-agent-caught-133900104.html)
-- Oct 14 - [China risks its own lost decade like Japan, warns CEO of alcohol giant](https://finance.yahoo.com/news/china-risks-its-own-lost-decade-like-japan-warns-ceo-of-alcohol-giant-132842379.html)
+- Oct 14 - [Rent boys, crystal meth and fraud: How a Methodist bank chief fell from grace](https://www.yahoo.com/news/rent-boys-crystal-meth-fraud-152639788.html)
+- Oct 14 - [Archaeologists Uncovered the Tomb of a Roman Gladiator—but the Gladiator Was Nowhere to Be Found](https://www.yahoo.com/news/archaeologists-uncovered-tomb-roman-gladiator-151500603.html)
+- Oct 14 - [MAGA Has a New Tim Walz Conspiracy. There’s Just One Big Problem.](https://www.yahoo.com/news/maga-tim-walz-conspiracy-just-145707823.html)
+- Oct 14 - [Woman killed by malfunctioning ottoman bed](https://www.yahoo.com/news/woman-killed-malfunctioning-ottoman-bed-104924852.html)
+- Oct 14 - [Trump Insists He’s Not Cognitively Impaired in Incomprehensible Rant](https://www.yahoo.com/news/watch-trump-insists-mentally-fine-142104181.html)
 <!-- feed end -->
 
 ### Onstream
