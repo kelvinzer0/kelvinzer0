@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 14 - [North Korea is preparing to destroy northern parts of inter-Korean roads, Seoul says](https://www.yahoo.com/news/seoul-says-north-korea-prepares-021547874.html)
-- Oct 14 - [Trump Coachella Rally Attendees Were Left Stranded After Campaign Buses Left Without Them | Video](https://www.yahoo.com/news/trump-coachella-rally-attendees-were-010925587.html)
 - Oct 14 - [Analysis-Lessons from Iran missile attacks for defending against China's advanced arsenal](https://www.yahoo.com/news/analysis-lessons-iran-missile-attacks-000338553.html)
-- Oct 14 - [TSMC third-quarter profit seen jumping 40% on strong AI chip demand](https://www.yahoo.com/tech/tsmc-third-quarter-profit-seen-000227266.html)
 - Oct 13 - [Trump calls for adding 10,000 Border Patrol agents after derailing a bipartisan border bill](https://www.yahoo.com/news/trump-calls-adding-10-000-234224931.html)
+- Oct 13 - [They said they were utility workers. But when they left the house, the wife was tied up and the husband was dead](https://www.yahoo.com/news/said-were-utility-workers-left-101723035.html)
+- Oct 13 - [Donald Trump Calls Kamala Harris the R-Word at Dinner with Billionaire Donors: Report](https://www.yahoo.com/news/donald-trump-calls-kamala-harris-175257802.html)
 <!-- feed end -->
 
 ### Onstream
