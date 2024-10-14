@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Israeli military says it discovered underground Hezbollah compound](https://www.yahoo.com/news/israeli-military-says-discovered-underground-194841249.html)
-- Oct 14 - [Guess What Percent Of Households Have Over $1 Million? You Might Be Shocked By The Number Of Millionaires](https://finance.yahoo.com/news/guess-percent-households-over-1-193023481.html)
-- Oct 14 - [Freetown police arrest man for alleged rape charge](https://www.yahoo.com/news/freetown-police-arrest-man-alleged-184328503.html)
+- Oct 14 - [MORNING Bid: Tokyo reopens to S&P 500 record, yuan down](https://finance.yahoo.com/news/morning-bid-tokyo-reopens-p-214847053.html)
+- Oct 14 - [10-million-pound meat recall affects hundreds of products at Walmart, Target, Publix and more](https://www.yahoo.com/news/10-million-pound-meat-recall-193624678.html)
 - Oct 14 - ['You tarnished the badge': Former IN sheriff Jamey Noel sentenced to 15 years in prison](https://www.yahoo.com/news/jamey-noel-sentenced-15-years-182705196.html)
 - Oct 14 - [A Picture Of Donald Trump's Face Being Two Completely Different Colors Is Going Viral For Obvious Reasons](https://www.yahoo.com/entertainment/picture-donald-trumps-face-being-181137468.html)
+- Oct 14 - [Shares of Trump Media extend huge comeback](https://finance.yahoo.com/news/shares-trump-media-extend-huge-181040473.html)
 <!-- feed end -->
 
 ### Onstream
