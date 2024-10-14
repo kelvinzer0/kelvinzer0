@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Portage man among 132 arrested in Ohio human trafficking operation](https://www.yahoo.com/news/portage-man-among-132-arrested-192640993.html)
-- Oct 14 - [Jamey Noel sentenced to 15 years in prison Monday](https://www.yahoo.com/news/jamey-noel-sentenced-15-years-182705196.html)
-- Oct 14 - [Shares of Trump Media extend huge comeback](https://finance.yahoo.com/news/shares-trump-media-extend-huge-181040473.html)
-- Oct 14 - [True Value declares bankruptcy and sells itself to a hardware rival](https://finance.yahoo.com/news/true-value-declares-bankruptcy-sells-174128698.html)
-- Oct 14 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
+- Oct 14 - [Israeli military says it discovered underground Hezbollah compound](https://www.yahoo.com/news/israeli-military-says-discovered-underground-194841249.html)
+- Oct 14 - [Guess What Percent Of Households Have Over $1 Million? You Might Be Shocked By The Number Of Millionaires](https://finance.yahoo.com/news/guess-percent-households-over-1-193023481.html)
+- Oct 14 - [Freetown police arrest man for alleged rape charge](https://www.yahoo.com/news/freetown-police-arrest-man-alleged-184328503.html)
+- Oct 14 - ['You tarnished the badge': Former IN sheriff Jamey Noel sentenced to 15 years in prison](https://www.yahoo.com/news/jamey-noel-sentenced-15-years-182705196.html)
+- Oct 14 - [A Picture Of Donald Trump's Face Being Two Completely Different Colors Is Going Viral For Obvious Reasons](https://www.yahoo.com/entertainment/picture-donald-trumps-face-being-181137468.html)
 <!-- feed end -->
 
 ### Onstream
