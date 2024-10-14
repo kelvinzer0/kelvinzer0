@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 14 - [U.S. lifts import ban on Malaysian glove maker Brightway](https://finance.yahoo.com/news/u-lifts-import-ban-malaysian-025951303.html)
 - Oct 14 - [Seoul says North Korea prepares to destroy the northern sides of inter-Korean roads no longer in use](https://www.yahoo.com/news/seoul-says-north-korea-prepares-021547874.html)
-- Oct 13 - [New Orleans Mayor LaToya Cantrell travels to Mexico to participate in ‘premier summit’](https://www.yahoo.com/news/orleans-mayor-latoya-cantrell-travels-213137119.html)
-- Oct 13 - [Video: Navy parachutist crash-lands on mom, teen in Fleet Week airshow](https://www.yahoo.com/news/video-navy-parachutist-crash-lands-210054885.html)
-- Oct 13 - [Historic Jersey Shore amusement park closes after generations of family thrills](https://www.yahoo.com/news/historic-jersey-shore-amusement-park-203724381.html)
-- Oct 13 - [Zelenskiy says North Koreans fighting with Russians in Ukraine](https://www.yahoo.com/news/zelenskiy-says-north-koreans-fighting-185600622.html)
+- Oct 14 - [Elon Musk says he will take legal action after California officials cited his politics when rejecting SpaceX launches](https://www.yahoo.com/news/elon-musk-says-legal-action-004714661.html)
+- Oct 14 - [Analysis-Lessons from Iran missile attacks for defending against China's advanced arsenal](https://www.yahoo.com/news/analysis-lessons-iran-missile-attacks-000338553.html)
+- Oct 14 - [TSMC third-quarter profit seen jumping 40% on strong AI chip demand](https://www.yahoo.com/tech/tsmc-third-quarter-profit-seen-000227266.html)
 <!-- feed end -->
 
 ### Onstream
