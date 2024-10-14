@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [How to watch green 'comet A3' whizzing through our skies](https://www.yahoo.com/news/green-comet-a3-how-to-watch-120049774.html)
+- Oct 14 - [EasyJet apologises to man who missed group holiday after getting passport rules wrong again](https://www.yahoo.com/news/easyjet-apologises-man-missed-group-114801998.html)
+- Oct 14 - [Capital gains tax calculator: how much will you pay on second homes?](https://finance.yahoo.com/news/budget-2024-tax-calculator-much-172532072.html)
+- Oct 14 - [Sara Sharif’s father called police from Pakistan to say he ‘legally punished her and she died’](https://www.yahoo.com/news/sara-sharif-father-told-police-123726466.html)
+- Oct 14 - [British daredevil falls to his death from 620ft-high bridge in Spain in tragic social media stunt](https://www.yahoo.com/news/british-daredevil-falls-death-620ft-120530355.html)
 - Oct 14 - [Suntory CEO talks Gen Z's impact on spirits industry: Opening Bid](https://finance.yahoo.com/video/suntory-ceo-talks-gen-zs-120000293.html)
-- Oct 14 - [Polish democracy leader Lech Walesa says a Trump victory would be a 'misfortune' for the world](https://www.yahoo.com/news/polish-democracy-leader-lech-walesa-103309680.html)
-- Oct 14 - [How cold will it get? NOAA's 2024-25 winter forecast maps show what to expect in Oklahoma](https://www.yahoo.com/news/cold-noaas-2024-25-winter-103022031.html)
-- Oct 14 - [Hurricane Relief Workers Forced to Evacuate Due to Threat of ‘Armed Militia’](https://www.yahoo.com/news/hurricane-relief-workers-forced-evacuate-102606823.html)
 <!-- feed end -->
 
 ### Onstream
