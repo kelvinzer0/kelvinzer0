@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Two more informational meetings planned this week on Green Bay schools referendum](https://www.yahoo.com/news/two-more-informational-meetings-planned-100014187.html)
-- Oct 14 - [Who's been nominated as the Mohawk Valley Student of the Week: Cast your vote](https://www.yahoo.com/lifestyle/whos-nominated-mohawk-valley-student-090335275.html)
+- Oct 14 - [Editorial: Resist the Chicago Teachers Union’s latest money grab — draining Chicago’s TIFs to preserve a bloated school system](https://www.yahoo.com/news/editorial-resist-chicago-teachers-union-100500564.html)
+- Oct 14 - [More Kentucky Republicans ‘decline’ to answer Right to Life’s endorsement survey](https://www.yahoo.com/news/more-kentucky-republicans-decline-answer-095058313.html)
+- Oct 14 - [The 3 Best-Performing Stock-Split Stocks of 2024 So Far -- and Nvidia Doesn't Top the List](https://finance.yahoo.com/news/3-best-performing-stock-split-094200477.html)
+- Oct 14 - [Here's what voters need to know about Corpus Christi's 2024 bond program](https://www.yahoo.com/news/heres-voters-know-corpus-christis-083119823.html)
 - Oct 14 - [China's COMAC ARJ21 regional jet painted with C909 branding, images show](https://finance.yahoo.com/news/chinas-comac-arj21-regional-jet-072345127.html)
-- Oct 14 - [North Korea is preparing to destroy northern parts of inter-Korean roads, Seoul says](https://www.yahoo.com/news/seoul-says-north-korea-prepares-021547874.html)
-- Oct 14 - [Trump Coachella Rally Attendees Were Left Stranded After Campaign Buses Left Without Them | Video](https://www.yahoo.com/news/trump-coachella-rally-attendees-were-010925587.html)
 <!-- feed end -->
 
 ### Onstream
