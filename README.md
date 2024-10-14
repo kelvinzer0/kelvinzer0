@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 14 - [Two more informational meetings planned this week on Green Bay schools referendum](https://www.yahoo.com/news/two-more-informational-meetings-planned-100014187.html)
+- Oct 14 - [Who's been nominated as the Mohawk Valley Student of the Week: Cast your vote](https://www.yahoo.com/lifestyle/whos-nominated-mohawk-valley-student-090335275.html)
 - Oct 14 - [China's COMAC ARJ21 regional jet painted with C909 branding, images show](https://finance.yahoo.com/news/chinas-comac-arj21-regional-jet-072345127.html)
 - Oct 14 - [North Korea is preparing to destroy northern parts of inter-Korean roads, Seoul says](https://www.yahoo.com/news/seoul-says-north-korea-prepares-021547874.html)
 - Oct 14 - [Trump Coachella Rally Attendees Were Left Stranded After Campaign Buses Left Without Them | Video](https://www.yahoo.com/news/trump-coachella-rally-attendees-were-010925587.html)
-- Oct 14 - [Elon Musk says he will take legal action after California officials cited his politics when rejecting SpaceX launches](https://www.yahoo.com/news/elon-musk-says-legal-action-004714661.html)
-- Oct 14 - [Lessons from Iran missile attacks for defending against China's advanced arsenal](https://www.yahoo.com/news/analysis-lessons-iran-missile-attacks-000338553.html)
 <!-- feed end -->
 
 ### Onstream
