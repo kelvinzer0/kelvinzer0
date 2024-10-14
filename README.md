@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [EasyJet apologises to man who missed group holiday after getting passport rules wrong again](https://www.yahoo.com/news/easyjet-apologises-man-missed-group-114801998.html)
-- Oct 14 - [Capital gains tax calculator: how much will you pay on second homes?](https://finance.yahoo.com/news/budget-2024-tax-calculator-much-172532072.html)
+- Oct 14 - [China stimulus, Boeing layoffs, new Nike CEO: 3 Things](https://finance.yahoo.com/video/china-stimulus-boeing-layoffs-nike-131151696.html)
 - Oct 14 - [Sara Sharif’s father called police from Pakistan to say he ‘legally punished her and she died’](https://www.yahoo.com/news/sara-sharif-father-told-police-123726466.html)
-- Oct 14 - [British daredevil falls to his death from 620ft-high bridge in Spain in tragic social media stunt](https://www.yahoo.com/news/british-daredevil-falls-death-620ft-120530355.html)
-- Oct 14 - [Suntory CEO talks Gen Z's impact on spirits industry: Opening Bid](https://finance.yahoo.com/video/suntory-ceo-talks-gen-zs-120000293.html)
+- Oct 14 - [Boeing fine-tunes job cuts as major buyer slams 777X jet delay](https://finance.yahoo.com/news/boeing-fine-tunes-job-cuts-123024058.html)
+- Oct 14 - [Keurig blasted with $1.5 million fine after false claims about products — here's why this matters](https://www.yahoo.com/news/keurig-blasted-1-5-million-110019159.html)
+- Oct 14 - [State governor signs new law effectively banning all plastic bags at grocery stores: 'It's in our food, air, water, and even our bodies'](https://www.yahoo.com/news/state-governor-signs-law-effectively-104538549.html)
 <!-- feed end -->
 
 ### Onstream
