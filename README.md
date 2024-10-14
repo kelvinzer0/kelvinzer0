@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [MORNING Bid: Tokyo reopens to S&P 500 record, yuan down](https://finance.yahoo.com/news/morning-bid-tokyo-reopens-p-214847053.html)
+- Oct 14 - [Marilyn Mosby asks judge to turn home detention into nightly curfew, to allow for new job’s travel](https://www.yahoo.com/news/marilyn-mosby-asks-judge-turn-223600126.html)
+- Oct 14 - [What SpaceX's Starship landing means: SpaceFund founder](https://finance.yahoo.com/video/spacexs-starship-landing-means-spacefund-215839289.html)
+- Oct 14 - [Heartbreaking: Hurricane Milton damage photos on Anna Maria Island in Manatee County, Florida](https://www.yahoo.com/news/heartbreaking-hurricane-milton-damage-photos-205557158.html)
+- Oct 14 - [Lucy Letby told colleague she couldn’t wait to get first death out of the way, inquiry hears](https://www.yahoo.com/news/lucy-letby-told-colleague-she-200101362.html)
 - Oct 14 - [10-million-pound meat recall affects hundreds of products at Walmart, Target, Publix and more](https://www.yahoo.com/news/10-million-pound-meat-recall-193624678.html)
-- Oct 14 - ['You tarnished the badge': Former IN sheriff Jamey Noel sentenced to 15 years in prison](https://www.yahoo.com/news/jamey-noel-sentenced-15-years-182705196.html)
-- Oct 14 - [A Picture Of Donald Trump's Face Being Two Completely Different Colors Is Going Viral For Obvious Reasons](https://www.yahoo.com/entertainment/picture-donald-trumps-face-being-181137468.html)
-- Oct 14 - [Shares of Trump Media extend huge comeback](https://finance.yahoo.com/news/shares-trump-media-extend-huge-181040473.html)
 <!-- feed end -->
 
 ### Onstream
