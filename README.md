@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Rent boys, crystal meth and fraud: How a Methodist bank chief fell from grace](https://www.yahoo.com/news/rent-boys-crystal-meth-fraud-152639788.html)
+- Oct 14 - [Members of the Kennedy family gather for funeral of Ethel Kennedy](https://www.yahoo.com/news/members-kennedy-family-gather-funeral-163315237.html)
+- Oct 14 - [Officials urge tourists to pack essentials on fall leaf-peeping hikes as rescues spike in Northeast](https://www.yahoo.com/news/officials-urge-tourists-pack-essentials-154500561.html)
+- Oct 14 - [Election 2024: What to know about voter registration deadlines, when ballots should arrive](https://www.yahoo.com/news/election-2024-know-voter-registration-153621601.html)
+- Oct 14 - [China-Europe rivalry heats up at Paris car show as tariffs loom](https://finance.yahoo.com/video/china-europe-rivalry-heats-paris-153017615.html)
 - Oct 14 - [Archaeologists Uncovered the Tomb of a Roman Gladiator—but the Gladiator Was Nowhere to Be Found](https://www.yahoo.com/news/archaeologists-uncovered-tomb-roman-gladiator-151500603.html)
-- Oct 14 - [MAGA Has a New Tim Walz Conspiracy. There’s Just One Big Problem.](https://www.yahoo.com/news/maga-tim-walz-conspiracy-just-145707823.html)
-- Oct 14 - [Woman killed by malfunctioning ottoman bed](https://www.yahoo.com/news/woman-killed-malfunctioning-ottoman-bed-104924852.html)
-- Oct 14 - [Trump Insists He’s Not Cognitively Impaired in Incomprehensible Rant](https://www.yahoo.com/news/watch-trump-insists-mentally-fine-142104181.html)
 <!-- feed end -->
 
 ### Onstream
