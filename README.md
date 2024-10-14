@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [China stimulus, Boeing layoffs, new Nike CEO: 3 Things](https://finance.yahoo.com/video/china-stimulus-boeing-layoffs-nike-131151696.html)
-- Oct 14 - [Sara Sharif’s father called police from Pakistan to say he ‘legally punished her and she died’](https://www.yahoo.com/news/sara-sharif-father-told-police-123726466.html)
-- Oct 14 - [Boeing fine-tunes job cuts as major buyer slams 777X jet delay](https://finance.yahoo.com/news/boeing-fine-tunes-job-cuts-123024058.html)
-- Oct 14 - [Keurig blasted with $1.5 million fine after false claims about products — here's why this matters](https://www.yahoo.com/news/keurig-blasted-1-5-million-110019159.html)
-- Oct 14 - [State governor signs new law effectively banning all plastic bags at grocery stores: 'It's in our food, air, water, and even our bodies'](https://www.yahoo.com/news/state-governor-signs-law-effectively-104538549.html)
+- Oct 14 - [Russian Missile Hits Fourth Cargo Ship in Ukraine This Month](https://finance.yahoo.com/news/russian-missile-hits-fourth-cargo-135124428.html)
+- Oct 14 - [Severe turbulence on Air Canada flight sends passengers and food flying across cabin](https://www.yahoo.com/news/severe-turbulence-air-canada-flight-134743459.html)
+- Oct 14 - [Why the CEO of this alcohol giant isn’t down with shrinkflation](https://finance.yahoo.com/video/suntory-ceo-talks-gen-zs-134015096.html)
+- Oct 14 - [Mom killed by nerve agent was caught in global murder plot, court told](https://www.yahoo.com/news/mom-killed-nerve-agent-caught-133900104.html)
+- Oct 14 - [China risks its own lost decade like Japan, warns CEO of alcohol giant](https://finance.yahoo.com/news/china-risks-its-own-lost-decade-like-japan-warns-ceo-of-alcohol-giant-132842379.html)
 <!-- feed end -->
 
 ### Onstream
