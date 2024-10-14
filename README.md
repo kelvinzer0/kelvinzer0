@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Members of the Kennedy family gather for funeral of Ethel Kennedy](https://www.yahoo.com/news/members-kennedy-family-gather-funeral-163315237.html)
-- Oct 14 - [Officials urge tourists to pack essentials on fall leaf-peeping hikes as rescues spike in Northeast](https://www.yahoo.com/news/officials-urge-tourists-pack-essentials-154500561.html)
-- Oct 14 - [Election 2024: What to know about voter registration deadlines, when ballots should arrive](https://www.yahoo.com/news/election-2024-know-voter-registration-153621601.html)
-- Oct 14 - [China-Europe rivalry heats up at Paris car show as tariffs loom](https://finance.yahoo.com/video/china-europe-rivalry-heats-paris-153017615.html)
-- Oct 14 - [Archaeologists Uncovered the Tomb of a Roman Gladiator—but the Gladiator Was Nowhere to Be Found](https://www.yahoo.com/news/archaeologists-uncovered-tomb-roman-gladiator-151500603.html)
+- Oct 14 - [Yellowstone worker mysteriously vanished on hike. Now his father has released haunting note found on mountain](https://www.yahoo.com/news/yellowstone-worker-mysteriously-vanished-hike-135100588.html)
+- Oct 14 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
+- Oct 14 - ['I Tried Metabolic Conditioning For 3 Months and Now I Have Chiseled Abs'](https://www.yahoo.com/lifestyle/tried-metabolic-conditioning-3-months-171400415.html)
+- Oct 14 - [NASA Simulation Of What It Would Look Like Flying Through A 'Black Hole' -  Visualization Video](https://www.yahoo.com/news/visualization-look-fly-black-hole-150000897.html)
+- Oct 14 - [Gallery: Japanese Classic Car Show 2024 Photos](https://autos.yahoo.com/gallery-japanese-classic-car-show-165400405.html)
 <!-- feed end -->
 
 ### Onstream
