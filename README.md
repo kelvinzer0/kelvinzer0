@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Irish peacekeepers have been in Lebanon so long that locals speak English with a Cork accent](https://www.yahoo.com/news/irish-peacekeepers-stood-ground-face-113709598.html)
-- Oct 15 - [Cars, truck hauling camper crash through median strip at I-279/I-79 split; 1 person hurt](https://www.yahoo.com/news/cars-truck-hauling-camper-crash-140644908.html)
-- Oct 15 - [Is Buc-ee’s eyeing a Georgia city for its next location?](https://www.yahoo.com/news/buc-ee-eyeing-georgia-city-135653279.html)
-- Oct 15 - [Hezbollah deputy chief says group aims to inflict pain on Israel](https://www.yahoo.com/news/hezbollah-deputy-chief-says-group-133926332.html)
-- Oct 15 - [Exclusive-Israel's demining near Golan signals wider front against Hezbollah, sources say](https://www.yahoo.com/news/exclusive-israels-demining-near-golan-132853867.html)
+- Oct 15 - [Menendez Brothers' Aunt Says Erik and Lyle Tried to Get Mom to Leave Dad: 'They Would Take Care of Her'](https://www.yahoo.com/news/menendez-brothers-aunt-says-erik-164745573.html)
+- Oct 15 - [Grant Cardone Calculates Nancy Pelosi Would Have To Be '1500 Years Old' To Earn Her $120 Million Net Worth On Current Salary](https://finance.yahoo.com/news/grant-cardone-calculates-nancy-pelosi-164516877.html)
+- Oct 15 - [92 unaccounted for in North Carolina after Hurricane Helene, 'dangerous flow of misinformation' ongoing: Governor](https://www.yahoo.com/news/92-unaccounted-north-carolina-hurricane-162600640.html)
+- Oct 15 - [Egypt's long-delayed mega-museum will open some of its main galleries, a trial run for full opening](https://www.yahoo.com/news/egypts-long-delayed-mega-museum-162356541.html)
+- Oct 15 - [Surfside Beach, SC store damaged in an overnight hit and run. What we know about it](https://www.yahoo.com/news/surfside-beach-sc-store-damaged-155229656.html)
 <!-- feed end -->
 
 ### Onstream
