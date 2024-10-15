@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [Marilyn Mosby asks judge to turn home detention into nightly curfew, to allow for new job’s travel](https://www.yahoo.com/news/marilyn-mosby-asks-judge-turn-223600126.html)
-- Oct 14 - [What SpaceX's Starship landing means: SpaceFund founder](https://finance.yahoo.com/video/spacexs-starship-landing-means-spacefund-215839289.html)
+- Oct 15 - [China’s Large Tiltrotor Drone Breaks Cover](https://www.yahoo.com/news/china-large-tiltrotor-drone-breaks-002643682.html)
+- Oct 14 - [Stellantis laying off 1,100 workers at Michigan plant](https://www.yahoo.com/news/stellantis-laying-off-1-100-220155745.html)
+- Oct 14 - [Hyperscalers in 'existential arms race' over chip spending: Analyst](https://finance.yahoo.com/video/hyperscalers-existential-arms-race-over-211422327.html)
 - Oct 14 - [Heartbreaking: Hurricane Milton damage photos on Anna Maria Island in Manatee County, Florida](https://www.yahoo.com/news/heartbreaking-hurricane-milton-damage-photos-205557158.html)
-- Oct 14 - [Lucy Letby told colleague she couldn’t wait to get first death out of the way, inquiry hears](https://www.yahoo.com/news/lucy-letby-told-colleague-she-200101362.html)
-- Oct 14 - [10-million-pound meat recall affects hundreds of products at Walmart, Target, Publix and more](https://www.yahoo.com/news/10-million-pound-meat-recall-193624678.html)
+- Oct 14 - [JD Vance Awfully Quiet After Report on How His Mom Got Health Care](https://www.yahoo.com/news/jd-vance-awfully-quiet-report-203729070.html)
 <!-- feed end -->
 
 ### Onstream
