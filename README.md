@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Menendez Brothers' Aunt Says Erik and Lyle Tried to Get Mom to Leave Dad: 'They Would Take Care of Her'](https://www.yahoo.com/news/menendez-brothers-aunt-says-erik-164745573.html)
-- Oct 15 - [Grant Cardone Calculates Nancy Pelosi Would Have To Be '1500 Years Old' To Earn Her $120 Million Net Worth On Current Salary](https://finance.yahoo.com/news/grant-cardone-calculates-nancy-pelosi-164516877.html)
-- Oct 15 - [92 unaccounted for in North Carolina after Hurricane Helene, 'dangerous flow of misinformation' ongoing: Governor](https://www.yahoo.com/news/92-unaccounted-north-carolina-hurricane-162600640.html)
-- Oct 15 - [Egypt's long-delayed mega-museum will open some of its main galleries, a trial run for full opening](https://www.yahoo.com/news/egypts-long-delayed-mega-museum-162356541.html)
-- Oct 15 - [Surfside Beach, SC store damaged in an overnight hit and run. What we know about it](https://www.yahoo.com/news/surfside-beach-sc-store-damaged-155229656.html)
+- Oct 15 - [More than 400 7-Eleven US stores to close by end of the year. What about Central Jersey?](https://finance.yahoo.com/news/more-400-7-eleven-us-173238032.html)
+- Oct 15 - [The Cost To Fill Up Your Tank in the 1980s, ’90s, ’00s and Today](https://finance.yahoo.com/news/cost-fill-tank-1980s-90s-190021049.html)
+- Oct 15 - [Teenagers dressed as furry animals attack people in new craze](https://www.yahoo.com/news/watch-teenagers-dressed-furry-animals-105653645.html)
+- Oct 15 - [South MS restaurant temporarily closing after fire. ‘We’re going to come back stronger’](https://www.yahoo.com/news/south-ms-restaurant-temporarily-closing-160933455.html)
+- Oct 15 - [Cars, truck hauling camper crash through median strip at I-279/I-79 split; 1 person hurt](https://www.yahoo.com/news/cars-truck-hauling-camper-crash-140644908.html)
 <!-- feed end -->
 
 ### Onstream
