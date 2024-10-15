@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Will Invest 94L become Tropical Storm or Hurricane Nadine? What Florida residents should know](https://www.yahoo.com/news/invest-94l-become-tropical-storm-141930678.html)
-- Oct 15 - [Oil Prices Plunge After Israel Says It Won’t Strike Iran’s Nuclear, Energy Sites](https://www.barrons.com/articles/oil-price-crude-today-israel-iran-china-076fc77b?siteid=yhoof2&yptr=yahoo)
-- Oct 15 - [In hard-hit parts of Manasota Key and Englewood: tears, grit and dark humor after Milton](https://www.yahoo.com/news/hard-hit-parts-manasota-key-133934124.html)
-- Oct 15 - ['Life moves pretty fast': WCVB anchor Doug Meehan hospitalized. What he said about it](https://www.yahoo.com/news/life-moves-pretty-fast-wcvb-131015928.html)
-- Oct 15 - [Kremlin says its mutual defence agreement with North Korea is 'unambiguous'](https://www.yahoo.com/news/kremlin-says-mutual-defence-agreement-123118304.html)
+- Oct 15 - [Irish peacekeepers have been in Lebanon so long that locals speak English with a Cork accent](https://www.yahoo.com/news/irish-peacekeepers-stood-ground-face-113709598.html)
+- Oct 15 - [Cars, truck hauling camper crash through median strip at I-279/I-79 split; 1 person hurt](https://www.yahoo.com/news/cars-truck-hauling-camper-crash-140644908.html)
+- Oct 15 - [Is Buc-ee’s eyeing a Georgia city for its next location?](https://www.yahoo.com/news/buc-ee-eyeing-georgia-city-135653279.html)
+- Oct 15 - [Hezbollah deputy chief says group aims to inflict pain on Israel](https://www.yahoo.com/news/hezbollah-deputy-chief-says-group-133926332.html)
+- Oct 15 - [Exclusive-Israel's demining near Golan signals wider front against Hezbollah, sources say](https://www.yahoo.com/news/exclusive-israels-demining-near-golan-132853867.html)
 <!-- feed end -->
 
 ### Onstream
