@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [After bar at center of Jackson Mahomes criminal case shut down, this will replace it](https://www.yahoo.com/news/bar-center-jackson-mahomes-criminal-185253624.html)
+- Oct 15 - [I toured the Concorde, a discontinued supersonic commercial jet flown by celebrities and royals. Take a look inside.](https://www.yahoo.com/news/toured-concorde-discontinued-supersonic-commercial-182652209.html)
+- Oct 15 - [Trump Makes Startling Putin Confession in Trainwreck Interview](https://www.yahoo.com/news/trump-confesses-startling-putin-ties-175828127.html)
 - Oct 15 - [Nvidia stock tumbles from record high on news of possible US chip export cap, ASML's dismal earnings](https://finance.yahoo.com/news/nvidia-stock-tumbles-from-record-high-on-news-of-possible-us-chip-export-cap-asmls-dismal-earnings-163259227.html)
 - Oct 15 - [Teenagers dressed as furry animals attack people in new craze](https://www.yahoo.com/news/watch-teenagers-dressed-furry-animals-105653645.html)
 - Oct 15 - [New Patrick Clancy interview. What he said about his wife, charged with murdering 3 kids](https://www.yahoo.com/news/patrick-clancy-interview-said-wife-151655366.html)
-- Oct 15 - [Police seek theft suspect at Pocono Premium Outlets](https://www.yahoo.com/news/police-seek-theft-suspect-pocono-140152702.html)
 <!-- feed end -->
 
 ### Onstream
