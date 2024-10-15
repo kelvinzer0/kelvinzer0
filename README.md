@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Down 57% in 2024, Is Recursion Pharmaceuticals a Buy on the Dip?](https://finance.yahoo.com/news/down-57-2024-recursion-pharmaceuticals-095100893.html)
-- Oct 15 - ['I'm oblivious to being shot at by Russians'](https://www.yahoo.com/news/im-oblivious-being-shot-russians-092333530.html)
+- Oct 15 - [Better AI Stock: Super Micro Computer vs. Dell Technologies](https://finance.yahoo.com/news/better-ai-stock-super-micro-100500041.html)
+- Oct 15 - [Indiana University football, traffic and $1,000 per night. What to know about IU homecoming](https://www.yahoo.com/news/indiana-university-football-traffic-1-090522259.html)
 - Oct 15 - [A La Niña winter is coming. Here’s what that could mean for the US](https://www.yahoo.com/news/la-ni-winter-coming-could-082238997.html)
 - Oct 15 - [Victims of Maine's deadliest shooting start process of suing the Army](https://www.yahoo.com/news/victims-maines-deadliest-shooting-start-080841010.html)
-- Oct 15 - [Kamala Harris Surprises Rallygoers With Damning Video Of Donald Trump](https://www.yahoo.com/news/kamala-harris-surprises-rallygoers-damning-062656931.html)
+- Oct 15 - [Musk reacts to Ambani lobbying, calls any India move to auction satellite spectrum 'unprecedented'](https://finance.yahoo.com/news/musk-reacts-ambani-lobbying-calls-074744240.html)
 <!-- feed end -->
 
 ### Onstream
