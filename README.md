@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [This Is the Best Type of Exercise if You Have a Heart Condition, According to Cardiologists](https://www.yahoo.com/lifestyle/best-type-exercise-heart-condition-212500232.html)
 - Oct 15 - [Ex-husband of 'Real Housewives' star gets seven years for hiring mobster to assault her boyfriend](https://www.yahoo.com/news/ex-husband-real-housewives-star-205853280.html)
-- Oct 15 - [Can You Guess What Percent Of People Have $4 Million? Here's A Look At How Many Reach This Major Wealth Milestone](https://finance.yahoo.com/news/guess-percent-people-4-million-193048041.html)
+- Oct 15 - [Orange County high school requiring students to scan QR codes to leave class](https://www.yahoo.com/news/orange-county-high-school-requiring-195054808.html)
 - Oct 15 - [I Was So Excited To Visit A Cranberry Bog Until I Learned This Scary Fact](https://www.yahoo.com/lifestyle/excited-visit-cranberry-bog-until-190200481.html)
-- Oct 15 - [Trump Makes Startling Putin Confession in Train-Wreck Interview](https://www.yahoo.com/news/trump-confesses-startling-putin-ties-175828127.html)
-- Oct 15 - [Nvidia stock tumbles from record high on news of possible US chip export cap, ASML's dismal earnings](https://finance.yahoo.com/news/nvidia-stock-tumbles-from-record-high-on-news-of-possible-us-chip-export-cap-asmls-dismal-earnings-163259227.html)
+- Oct 15 - [Netanyahu opposes ceasefire deal that would not halt Hezbollah from rearming](https://www.yahoo.com/news/netanyahu-opposes-ceasefire-deal-not-185032579.html)
 <!-- feed end -->
 
 ### Onstream
