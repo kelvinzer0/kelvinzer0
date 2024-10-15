@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Who am I? A South Korean adoptee finds answers about the past — just not the ones she wants](https://www.yahoo.com/news/am-south-korean-adoptee-finds-014733163.html)
 - Oct 15 - [Hurricane Milton's storm surge reshapes Florida coastline](https://www.yahoo.com/news/hurricane-miltons-storm-surge-reshapes-004638084.html)
-- Oct 14 - [Penn State condemns hateful posts, doxxing of students who commented on Israel-Hamas war posts](https://www.yahoo.com/news/penn-state-condemns-hateful-posts-212926338.html)
+- Oct 14 - [Man leaves country hours after Las Vegas jury convicts him for deadly hit-and-run](https://www.yahoo.com/news/man-leaves-country-hours-las-233539139.html)
+- Oct 14 - [Strike-hit Boeing leaves experts puzzled by strategy](https://finance.yahoo.com/news/strike-hit-boeing-leaves-experts-210532878.html)
 - Oct 14 - [Heartbreaking: Hurricane Milton damage photos on Anna Maria Island in Manatee County, Florida](https://www.yahoo.com/news/heartbreaking-hurricane-milton-damage-photos-205557158.html)
 - Oct 14 - [JD Vance Awfully Quiet After Report on How His Mom Got Health Care](https://www.yahoo.com/news/jd-vance-awfully-quiet-report-203729070.html)
 <!-- feed end -->
