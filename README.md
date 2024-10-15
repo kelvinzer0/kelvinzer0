@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [More than 400 7-Eleven US stores to close by end of the year. What about Central Jersey?](https://finance.yahoo.com/news/more-400-7-eleven-us-173238032.html)
-- Oct 15 - [The Cost To Fill Up Your Tank in the 1980s, ’90s, ’00s and Today](https://finance.yahoo.com/news/cost-fill-tank-1980s-90s-190021049.html)
+- Oct 15 - [After bar at center of Jackson Mahomes criminal case shut down, this will replace it](https://www.yahoo.com/news/bar-center-jackson-mahomes-criminal-185253624.html)
+- Oct 15 - [Nvidia stock tumbles from record high on news of possible US chip export cap, ASML's dismal earnings](https://finance.yahoo.com/news/nvidia-stock-tumbles-from-record-high-on-news-of-possible-us-chip-export-cap-asmls-dismal-earnings-163259227.html)
 - Oct 15 - [Teenagers dressed as furry animals attack people in new craze](https://www.yahoo.com/news/watch-teenagers-dressed-furry-animals-105653645.html)
-- Oct 15 - [South MS restaurant temporarily closing after fire. ‘We’re going to come back stronger’](https://www.yahoo.com/news/south-ms-restaurant-temporarily-closing-160933455.html)
-- Oct 15 - [Cars, truck hauling camper crash through median strip at I-279/I-79 split; 1 person hurt](https://www.yahoo.com/news/cars-truck-hauling-camper-crash-140644908.html)
+- Oct 15 - [New Patrick Clancy interview. What he said about his wife, charged with murdering 3 kids](https://www.yahoo.com/news/patrick-clancy-interview-said-wife-151655366.html)
+- Oct 15 - [Police seek theft suspect at Pocono Premium Outlets](https://www.yahoo.com/news/police-seek-theft-suspect-pocono-140152702.html)
 <!-- feed end -->
 
 ### Onstream
