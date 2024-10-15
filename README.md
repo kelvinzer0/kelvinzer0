@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [Fat Joe’s weight is all the way ... down: Miami rapper just admitted to using Ozempic](https://www.yahoo.com/entertainment/fat-joe-weight-way-down-192334987.html)
+- Oct 15 - [I Was So Excited To Visit A Cranberry Bog Until I Learned This Scary Fact](https://www.yahoo.com/lifestyle/excited-visit-cranberry-bog-until-190200481.html)
+- Oct 15 - [Netanyahu opposes ceasefire deal that would not halt Hezbollah from rearming](https://www.yahoo.com/news/netanyahu-opposes-ceasefire-deal-not-185032579.html)
 - Oct 15 - [I toured the Concorde, a discontinued supersonic commercial jet flown by celebrities and royals. Take a look inside.](https://www.yahoo.com/news/toured-concorde-discontinued-supersonic-commercial-182652209.html)
-- Oct 15 - [Trump Makes Startling Putin Confession in Trainwreck Interview](https://www.yahoo.com/news/trump-confesses-startling-putin-ties-175828127.html)
-- Oct 15 - [Nvidia stock tumbles from record high on news of possible US chip export cap, ASML's dismal earnings](https://finance.yahoo.com/news/nvidia-stock-tumbles-from-record-high-on-news-of-possible-us-chip-export-cap-asmls-dismal-earnings-163259227.html)
-- Oct 15 - [Teenagers dressed as furry animals attack people in new craze](https://www.yahoo.com/news/watch-teenagers-dressed-furry-animals-105653645.html)
-- Oct 15 - [New Patrick Clancy interview. What he said about his wife, charged with murdering 3 kids](https://www.yahoo.com/news/patrick-clancy-interview-said-wife-151655366.html)
+- Oct 15 - [Trump Makes Startling Putin Confession in Train-Wreck Interview](https://www.yahoo.com/news/trump-confesses-startling-putin-ties-175828127.html)
 <!-- feed end -->
 
 ### Onstream
