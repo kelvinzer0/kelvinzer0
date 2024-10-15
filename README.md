@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 15 - [North Korea blows up parts of inter-Korean roads](https://www.yahoo.com/news/north-korea-blows-parts-inter-055858089.html)
-- Oct 15 - [7-Eleven to close nearly 450 stores in the US and Canada](https://finance.yahoo.com/news/7-eleven-close-nearly-450-054040086.html)
 - Oct 15 - [Severe turbulence on flight sends passengers and food flying across cabin: ‘Coffee dripping on me from ceiling’](https://www.yahoo.com/news/severe-turbulence-air-canada-flight-134743459.html)
 - Oct 15 - ['It's scary - but so's giving birth': The female unit gunning down Russian drones](https://www.yahoo.com/news/scary-sos-giving-birth-female-043134614.html)
 - Oct 15 - [Back from the brink: Woodward reveals how Biden team pulled Putin back from nuking Ukraine](https://www.yahoo.com/news/back-brink-woodward-reveals-biden-035117125.html)
+- Oct 15 - [Georgia sheriff calls for backup over wrong Burger King order](https://www.yahoo.com/news/georgia-sheriff-calls-backup-over-021155537.html)
 <!-- feed end -->
 
 ### Onstream
