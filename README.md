@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [China’s Large Tiltrotor Drone Breaks Cover](https://www.yahoo.com/news/china-large-tiltrotor-drone-breaks-002643682.html)
-- Oct 14 - [Stellantis laying off 1,100 workers at Michigan plant](https://www.yahoo.com/news/stellantis-laying-off-1-100-220155745.html)
-- Oct 14 - [Hyperscalers in 'existential arms race' over chip spending: Analyst](https://finance.yahoo.com/video/hyperscalers-existential-arms-race-over-211422327.html)
+- Oct 15 - [Who am I? A South Korean adoptee finds answers about the past — just not the ones she wants](https://www.yahoo.com/news/am-south-korean-adoptee-finds-014733163.html)
+- Oct 15 - [Hurricane Milton's storm surge reshapes Florida coastline](https://www.yahoo.com/news/hurricane-miltons-storm-surge-reshapes-004638084.html)
+- Oct 14 - [Penn State condemns hateful posts, doxxing of students who commented on Israel-Hamas war posts](https://www.yahoo.com/news/penn-state-condemns-hateful-posts-212926338.html)
 - Oct 14 - [Heartbreaking: Hurricane Milton damage photos on Anna Maria Island in Manatee County, Florida](https://www.yahoo.com/news/heartbreaking-hurricane-milton-damage-photos-205557158.html)
 - Oct 14 - [JD Vance Awfully Quiet After Report on How His Mom Got Health Care](https://www.yahoo.com/news/jd-vance-awfully-quiet-report-203729070.html)
 <!-- feed end -->
