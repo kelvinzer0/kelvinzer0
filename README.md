@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Hezbollah deputy chief says group aims to inflict pain on Israel](https://www.yahoo.com/news/hezbollah-deputy-chief-says-group-133926332.html)
-- Oct 15 - [Win a 2025 Corvette ZR1 Coupe with ZTK Performance Package and $25,000 Cash](https://autos.yahoo.com/win-2025-corvette-zr1-coupe-133038419.html)
-- Oct 15 - [Oil Plunges After Israel Says It Won’t Strike Iran’s Nuclear, Energy Sites. Why China Might Be the Bigger Problem.](https://www.barrons.com/articles/oil-price-crude-today-israel-iran-china-076fc77b?siteid=yhoof2&yptr=yahoo)
-- Oct 15 - [After 20 years, Fresno shopping center is finally under construction. What took so long?](https://www.yahoo.com/news/20-years-fresno-shopping-center-120000476.html)
-- Oct 15 - [Walgreens to close 1,200 US stores as chain attempts to steady operations at home](https://finance.yahoo.com/news/walgreens-lays-plan-shutter-1-112239897.html)
+- Oct 15 - [Will Invest 94L become Tropical Storm or Hurricane Nadine? What Florida residents should know](https://www.yahoo.com/news/invest-94l-become-tropical-storm-141930678.html)
+- Oct 15 - [Oil Prices Plunge After Israel Says It Won’t Strike Iran’s Nuclear, Energy Sites](https://www.barrons.com/articles/oil-price-crude-today-israel-iran-china-076fc77b?siteid=yhoof2&yptr=yahoo)
+- Oct 15 - [In hard-hit parts of Manasota Key and Englewood: tears, grit and dark humor after Milton](https://www.yahoo.com/news/hard-hit-parts-manasota-key-133934124.html)
+- Oct 15 - ['Life moves pretty fast': WCVB anchor Doug Meehan hospitalized. What he said about it](https://www.yahoo.com/news/life-moves-pretty-fast-wcvb-131015928.html)
+- Oct 15 - [Kremlin says its mutual defence agreement with North Korea is 'unambiguous'](https://www.yahoo.com/news/kremlin-says-mutual-defence-agreement-123118304.html)
 <!-- feed end -->
 
 ### Onstream
