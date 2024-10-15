@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Google Shopping is getting an AI upgrade as Alphabet looks to monetize investments](https://finance.yahoo.com/news/google-shopping-is-getting-an-ai-upgrade-as-alphabet-looks-to-monetize-investments-130047201.html)
-- Oct 15 - [Dow Jones Futures Fall As Goldman Earnings Beat; UnitedHealth Dives On Earnings](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-goldman-earnings-unitedhealth-stock-unh/?src=A00220&yptr=yahoo)
+- Oct 15 - [Hezbollah deputy chief says group aims to inflict pain on Israel](https://www.yahoo.com/news/hezbollah-deputy-chief-says-group-133926332.html)
+- Oct 15 - [Win a 2025 Corvette ZR1 Coupe with ZTK Performance Package and $25,000 Cash](https://autos.yahoo.com/win-2025-corvette-zr1-coupe-133038419.html)
+- Oct 15 - [Oil Plunges After Israel Says It Won’t Strike Iran’s Nuclear, Energy Sites. Why China Might Be the Bigger Problem.](https://www.barrons.com/articles/oil-price-crude-today-israel-iran-china-076fc77b?siteid=yhoof2&yptr=yahoo)
+- Oct 15 - [After 20 years, Fresno shopping center is finally under construction. What took so long?](https://www.yahoo.com/news/20-years-fresno-shopping-center-120000476.html)
 - Oct 15 - [Walgreens to close 1,200 US stores as chain attempts to steady operations at home](https://finance.yahoo.com/news/walgreens-lays-plan-shutter-1-112239897.html)
-- Oct 15 - [Ted Cruz May Have Just Set Some Kind Of Record Begging For Donations On Fox News](https://www.yahoo.com/news/ted-cruz-may-just-set-105512577.html)
-- Oct 15 - [After 67 days adrift, a Russian man was rescued but his brother and nephew are dead](https://www.yahoo.com/news/67-days-adrift-russian-man-103000103.html)
 <!-- feed end -->
 
 ### Onstream
