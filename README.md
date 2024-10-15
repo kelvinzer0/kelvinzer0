@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Musk reacts to Ambani lobbying, calls any India move to auction satellite spectrum 'unprecedented'](https://finance.yahoo.com/news/musk-reacts-ambani-lobbying-calls-074744240.html)
-- Oct 15 - [China has built a giant Osprey-like drone that engineers say can carry 10 passengers and fly at 340 mph](https://www.yahoo.com/news/china-built-giant-osprey-drone-064529840.html)
+- Oct 15 - [Down 57% in 2024, Is Recursion Pharmaceuticals a Buy on the Dip?](https://finance.yahoo.com/news/down-57-2024-recursion-pharmaceuticals-095100893.html)
+- Oct 15 - ['I'm oblivious to being shot at by Russians'](https://www.yahoo.com/news/im-oblivious-being-shot-russians-092333530.html)
+- Oct 15 - [A La Niña winter is coming. Here’s what that could mean for the US](https://www.yahoo.com/news/la-ni-winter-coming-could-082238997.html)
+- Oct 15 - [Victims of Maine's deadliest shooting start process of suing the Army](https://www.yahoo.com/news/victims-maines-deadliest-shooting-start-080841010.html)
 - Oct 15 - [Kamala Harris Surprises Rallygoers With Damning Video Of Donald Trump](https://www.yahoo.com/news/kamala-harris-surprises-rallygoers-damning-062656931.html)
-- Oct 15 - [Back from the brink: Woodward reveals how Biden team pulled Putin back from nuking Ukraine](https://www.yahoo.com/news/back-brink-woodward-reveals-biden-035117125.html)
-- Oct 15 - [North Korea blows up parts of inter-Korean roads in a symbolic display of anger](https://www.yahoo.com/news/north-korea-blows-parts-inter-032509170.html)
 <!-- feed end -->
 
 ### Onstream
