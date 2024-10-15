@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [North Korea blows up parts of inter-Korean roads](https://www.yahoo.com/news/north-korea-blows-parts-inter-055858089.html)
+- Oct 15 - [7-Eleven to close nearly 450 stores in the US and Canada](https://finance.yahoo.com/news/7-eleven-close-nearly-450-054040086.html)
+- Oct 15 - [Severe turbulence on flight sends passengers and food flying across cabin: ‘Coffee dripping on me from ceiling’](https://www.yahoo.com/news/severe-turbulence-air-canada-flight-134743459.html)
 - Oct 15 - ['It's scary - but so's giving birth': The female unit gunning down Russian drones](https://www.yahoo.com/news/scary-sos-giving-birth-female-043134614.html)
 - Oct 15 - [Back from the brink: Woodward reveals how Biden team pulled Putin back from nuking Ukraine](https://www.yahoo.com/news/back-brink-woodward-reveals-biden-035117125.html)
-- Oct 15 - [Who am I? A South Korean adoptee finds answers about the past — just not the ones she wants](https://www.yahoo.com/news/am-south-korean-adoptee-finds-014733163.html)
-- Oct 15 - [Hurricane Milton's storm surge reshapes Florida coastline](https://www.yahoo.com/news/hurricane-miltons-storm-surge-reshapes-004638084.html)
-- Oct 14 - [Man leaves country hours after Las Vegas jury convicts him for deadly hit-and-run](https://www.yahoo.com/news/man-leaves-country-hours-las-233539139.html)
 <!-- feed end -->
 
 ### Onstream
