@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [The Perils Of Trolling Trump On His Weird Dance Party](https://www.yahoo.com/news/perils-trolling-trump-weird-dance-193408942.html)
+- Oct 16 - [True Value declares bankruptcy and sells itself to a hardware rival](https://finance.yahoo.com/news/true-value-declares-bankruptcy-sells-174128698.html)
+- Oct 16 - [Nvidia is set to dominate another Big Tech earnings season](https://finance.yahoo.com/news/nvidia-is-set-to-dominate-another-big-tech-earnings-season-194525244.html)
+- Oct 16 - [Trump was asked to name three nice things about Harris. His response sounded like hers](https://www.yahoo.com/news/trump-asked-name-three-nice-194204709.html)
 - Oct 16 - [Judge in Trump election case directs prosecutors to turn over info related to Pence documents probe](https://www.yahoo.com/news/judge-trump-election-case-directs-192525761.html)
 - Oct 16 - [Killer's escape from Pennsylvania jail costs him his right to appeal life sentence](https://www.yahoo.com/news/killers-escape-pennsylvania-jail-costs-185148528.html)
-- Oct 16 - [Debt paid on historic hotel owned by family of West Virginia governor, a US Senate candidate](https://finance.yahoo.com/news/debt-paid-historic-hotel-owned-185102286.html)
-- Oct 16 - [A look at the oldest stone tools ever discovered, dating back 3.3M years](https://www.yahoo.com/news/look-oldest-stone-tools-ever-164302160.html)
 <!-- feed end -->
 
 ### Onstream
