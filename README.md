@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Oct 16 - [Key points from Zelenskiy's Ukraine victory plan](https://www.yahoo.com/news/factbox-key-points-zelenskiys-ukraine-104419112.html)
 - Oct 16 - [Exclusive-How Israel’s bulky pager fooled Hezbollah](https://www.yahoo.com/news/exclusive-israel-bulky-pager-fooled-103915563.html)
 - Oct 16 - [Scientists discover concerning behavioral changes in chimps: 'Could something so small have prevented the pandemic?'](https://www.yahoo.com/news/scientists-discover-concerning-behavioral-changes-103051365.html)
+- Oct 16 - [Half a billion dollars awarded to revolutionary new plant coming to one US state — and it's bringing thousands of new jobs](https://www.yahoo.com/news/half-billion-dollars-awarded-revolutionary-101528384.html)
 - Oct 16 - [Kremlin, commenting on Zelenskiy's 'victory plan,' says Ukraine needs to 'sober up'](https://www.yahoo.com/news/kremlin-commenting-zelenskiys-victory-plan-094816156.html)
-- Oct 16 - [They Say There’s Never Been a Man Like Donald Trump in American Politics. But There Was—and We Should Learn From Him.](https://www.yahoo.com/news/never-man-donald-trump-american-094500310.html)
 <!-- feed end -->
 
 ### Onstream
