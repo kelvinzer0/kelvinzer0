@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Israeli strike rocks Beirut after US says it opposes scope of air assault](https://www.yahoo.com/news/israeli-strike-rocks-beirut-suburbs-044418689.html)
 - Oct 16 - [In the heartland of Mexico's Sinaloa cartel, the old ways have changed and violence rages](https://www.yahoo.com/news/heartland-mexicos-sinaloa-cartel-old-040037500.html)
-- Oct 16 - [‘I loved him so much’: OKC podcaster reacts to shooting death of employee](https://www.yahoo.com/news/loved-him-much-okc-podcaster-030000673.html)
 - Oct 16 - [Xi says China willing to be a partner, friend with the US](https://www.yahoo.com/news/xi-says-china-willing-partner-021748714.html)
 - Oct 16 - ['I'm an OB/GYN, and This Is the One Habit I Want Everyone Woman Over 60 to Stop Doing ASAP'](https://www.yahoo.com/lifestyle/im-ob-gyn-one-habit-002500951.html)
+- Oct 15 - [Army Looking To Shrink Typhon Missile System After Lessons Learned From First Deployment](https://www.yahoo.com/news/army-looking-shrink-typhon-missile-230812458.html)
+- Oct 15 - [An inmate convicted of the 1994 killing of a Japanese psychic was found dead in a Hawaii prison cell](https://www.yahoo.com/news/inmate-convicted-1994-killing-japanese-230414777.html)
 <!-- feed end -->
 
 ### Onstream
