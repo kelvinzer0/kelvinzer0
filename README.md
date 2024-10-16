@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Robert Telles sentenced additional years for murder of Las Vegas journalist Jeff German](https://www.yahoo.com/news/robert-telles-sentenced-additional-years-164104907.html)
-- Oct 16 - [Coca-Cola Has Recalled More Than 13,000 Cases of Product—Here's What You Need to Know](https://www.yahoo.com/news/coca-cola-recalled-more-13-163000952.html)
-- Oct 16 - [US Navy fighter jet with two on board crashes during training in Washington state](https://www.yahoo.com/news/us-navy-says-fighter-jet-151732537.html)
-- Oct 16 - [Solar max has arrived! Here’s how and where to see the Northern Lights](https://www.yahoo.com/news/solar-max-nearly-where-see-100003654.html)
-- Oct 16 - [Macron riles Netanyahu with jab on Israel's creation](https://www.yahoo.com/news/macron-riles-netanyahu-jab-israels-145434363.html)
+- Oct 16 - [The Perils Of Trolling Trump On His Weird Dance Party](https://www.yahoo.com/news/perils-trolling-trump-weird-dance-193408942.html)
+- Oct 16 - [Judge in Trump election case directs prosecutors to turn over info related to Pence documents probe](https://www.yahoo.com/news/judge-trump-election-case-directs-192525761.html)
+- Oct 16 - [Killer's escape from Pennsylvania jail costs him his right to appeal life sentence](https://www.yahoo.com/news/killers-escape-pennsylvania-jail-costs-185148528.html)
+- Oct 16 - [Debt paid on historic hotel owned by family of West Virginia governor, a US Senate candidate](https://finance.yahoo.com/news/debt-paid-historic-hotel-owned-185102286.html)
+- Oct 16 - [A look at the oldest stone tools ever discovered, dating back 3.3M years](https://www.yahoo.com/news/look-oldest-stone-tools-ever-164302160.html)
 <!-- feed end -->
 
 ### Onstream
