@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Lethbridge man accused of holding women hostage and sexual assault gets released](https://www.yahoo.com/news/lethbridge-man-accused-holding-women-204241548.html)
+- Oct 16 - [Harris’s Fox interview starts off with fireworks as she gets into heated exchange over border security](https://www.yahoo.com/news/harris-fox-interview-starts-off-221826940.html)
+- Oct 16 - [Former One Direction singer Liam Payne dies at 31 in Argentina hotel fall](https://www.yahoo.com/news/former-one-direction-singer-liam-225205500.html)
+- Oct 16 - [Victims of double fatal Schuyler County crash IDed as husband and wife, son driving](https://www.yahoo.com/news/victims-double-fatal-schuyler-county-202026951.html)
 - Oct 16 - [True Value declares bankruptcy and sells itself to a hardware rival](https://finance.yahoo.com/news/true-value-declares-bankruptcy-sells-174128698.html)
 - Oct 16 - [Nvidia is set to dominate another Big Tech earnings season](https://finance.yahoo.com/news/nvidia-is-set-to-dominate-another-big-tech-earnings-season-194525244.html)
-- Oct 16 - [Judge in Trump election case directs prosecutors to turn over info related to Pence documents probe](https://www.yahoo.com/news/judge-trump-election-case-directs-192525761.html)
-- Oct 16 - [Killer's escape from Pennsylvania jail costs him his right to appeal life sentence](https://www.yahoo.com/news/killers-escape-pennsylvania-jail-costs-185148528.html)
 <!-- feed end -->
 
 ### Onstream
