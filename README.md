@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [I’m 72 and my kids will inherit my Malibu beach house and cabin in Aspen. Should I use a will or a trust?](https://finance.yahoo.com/news/m-72-kids-inherit-malibu-114200144.html)
+- Oct 16 - [Why I Keep Buying These 14 Incredible Growth Stocks](https://finance.yahoo.com/news/why-keep-buying-14-incredible-134500692.html)
+- Oct 16 - [Colin Allred Cuts Laughing Ted Cruz Down To Size In Jan. 6 Jab: 'It's Not Funny'](https://www.yahoo.com/news/colin-allred-cuts-laughing-ted-131354108.html)
+- Oct 16 - [From a 1957 Jaguar to a 1994 Acura NSX: The 8 Most Exciting Cars Heading to Auction at RM Sotheby’s London](https://finance.yahoo.com/news/8-best-cars-heading-rm-120000446.html)
 - Oct 16 - [Key points from Zelenskiy's Ukraine victory plan](https://www.yahoo.com/news/factbox-key-points-zelenskiys-ukraine-104419112.html)
 - Oct 16 - [Exclusive-How Israel’s bulky pager fooled Hezbollah](https://www.yahoo.com/news/exclusive-israel-bulky-pager-fooled-103915563.html)
-- Oct 16 - [Scientists discover concerning behavioral changes in chimps: 'Could something so small have prevented the pandemic?'](https://www.yahoo.com/news/scientists-discover-concerning-behavioral-changes-103051365.html)
-- Oct 16 - [Kremlin, commenting on Zelenskiy's 'victory plan,' says Ukraine needs to 'sober up'](https://www.yahoo.com/news/kremlin-commenting-zelenskiys-victory-plan-094816156.html)
 <!-- feed end -->
 
 ### Onstream
