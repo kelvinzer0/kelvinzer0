@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Why I Keep Buying These 14 Incredible Growth Stocks](https://finance.yahoo.com/news/why-keep-buying-14-incredible-134500692.html)
-- Oct 16 - [Colin Allred Cuts Laughing Ted Cruz Down To Size In Jan. 6 Jab: 'It's Not Funny'](https://www.yahoo.com/news/colin-allred-cuts-laughing-ted-131354108.html)
-- Oct 16 - [From a 1957 Jaguar to a 1994 Acura NSX: The 8 Most Exciting Cars Heading to Auction at RM Sotheby’s London](https://finance.yahoo.com/news/8-best-cars-heading-rm-120000446.html)
-- Oct 16 - [Key points from Zelenskiy's Ukraine victory plan](https://www.yahoo.com/news/factbox-key-points-zelenskiys-ukraine-104419112.html)
+- Oct 16 - [Here's What 16 Living Descendants Of US Presidents Look Like Compared To Their POTUS Relative](https://www.buzzfeed.com/daves4/presidents-and-their-modern-day-relatives)
+- Oct 16 - [Fact check: John Deere says Trump’s story about how he saved US jobs with a tariff threat is fictional](https://www.yahoo.com/news/fact-check-john-deere-says-143943822.html)
+- Oct 16 - [I’m 72 and my kids will inherit my Malibu beach house and cabin in Aspen. Should I use a will or a trust?](https://finance.yahoo.com/news/m-72-kids-inherit-malibu-114200144.html)
+- Oct 16 - [UNRWA 'very near' possible breaking point in Gaza operation, head says](https://www.yahoo.com/news/unrwa-very-near-possible-breaking-112453293.html)
 - Oct 16 - [Exclusive-How Israel’s bulky pager fooled Hezbollah](https://www.yahoo.com/news/exclusive-israel-bulky-pager-fooled-103915563.html)
 <!-- feed end -->
 
