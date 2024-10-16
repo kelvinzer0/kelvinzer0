@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [Kremlin, commenting on Zelenskiy's 'victory plan,' says Ukraine needs to 'sober up'](https://www.yahoo.com/news/kremlin-commenting-zelenskiys-victory-plan-094816156.html)
 - Oct 16 - [In the heartland of Mexico's Sinaloa cartel, the old ways have changed and violence rages](https://www.yahoo.com/news/heartland-mexicos-sinaloa-cartel-old-040037500.html)
+- Oct 16 - [Should Arkansas dad go to prison for killing man found with his missing child? | Cuomo](https://www.yahoo.com/news/arkansas-dad-prison-killing-man-022255810.html)
 - Oct 16 - [Xi says China willing to be a partner, friend with the US](https://www.yahoo.com/news/xi-says-china-willing-partner-021748714.html)
-- Oct 16 - ['I'm an OB/GYN, and This Is the One Habit I Want Everyone Woman Over 60 to Stop Doing ASAP'](https://www.yahoo.com/lifestyle/im-ob-gyn-one-habit-002500951.html)
-- Oct 15 - [Army Looking To Shrink Typhon Missile System After Lessons Learned From First Deployment](https://www.yahoo.com/news/army-looking-shrink-typhon-missile-230812458.html)
-- Oct 15 - [An inmate convicted of the 1994 killing of a Japanese psychic was found dead in a Hawaii prison cell](https://www.yahoo.com/news/inmate-convicted-1994-killing-japanese-230414777.html)
+- Oct 16 - [Gun-wielding suspect gets beaten up by employees at pizzeria he tried to rob: police](https://www.yahoo.com/news/gun-wielding-suspect-gets-beaten-015918805.html)
 <!-- feed end -->
 
 ### Onstream
