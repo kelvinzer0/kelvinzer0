@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Ex-husband of 'Real Housewives' star gets seven years for hiring mobster to assault her boyfriend](https://www.yahoo.com/news/ex-husband-real-housewives-star-205853280.html)
-- Oct 15 - [Family Claims Classic Car Dealer Owes Them Big Money](https://autos.yahoo.com/family-claims-classic-car-dealer-193000122.html)
-- Oct 15 - [Former Ozzy Osbourne Guitarist Jake E. Lee Shot Multiple Times in Las Vegas](https://www.yahoo.com/news/former-ozzy-osbourne-guitarist-jake-192246428.html)
+- Oct 16 - ['I'm an OB/GYN, and This Is the One Habit I Want Everyone Woman Over 60 to Stop Doing ASAP'](https://www.yahoo.com/lifestyle/im-ob-gyn-one-habit-002500951.html)
+- Oct 15 - [North Korea claims 1.4 million young people apply to join the army](https://www.yahoo.com/news/north-korea-claims-1-4-222527255.html)
+- Oct 15 - [Austin pizza restaurant employees beat up man who tried to rob them](https://www.yahoo.com/news/austin-pizza-restaurant-employees-beat-213811423.html)
 - Oct 15 - [I Was So Excited To Visit A Cranberry Bog Until I Learned This Scary Fact](https://www.yahoo.com/lifestyle/excited-visit-cranberry-bog-until-190200481.html)
 - Oct 15 - [Netanyahu opposes ceasefire deal that would not halt Hezbollah from rearming](https://www.yahoo.com/news/netanyahu-opposes-ceasefire-deal-not-185032579.html)
 <!-- feed end -->
