@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 16 - ['I'm an OB/GYN, and This Is the One Habit I Want Everyone Woman Over 60 to Stop Doing ASAP'](https://www.yahoo.com/lifestyle/im-ob-gyn-one-habit-002500951.html)
+- Oct 15 - [Army Looking To Shrink Typhon Missile System After Lessons Learned From First Deployment](https://www.yahoo.com/news/army-looking-shrink-typhon-missile-230812458.html)
+- Oct 15 - [Massive great white shark found washed ashore on Massachusetts beach](https://www.yahoo.com/news/massive-great-white-shark-found-223020905.html)
 - Oct 15 - [North Korea claims 1.4 million young people apply to join the army](https://www.yahoo.com/news/north-korea-claims-1-4-222527255.html)
 - Oct 15 - [Austin pizza restaurant employees beat up man who tried to rob them](https://www.yahoo.com/news/austin-pizza-restaurant-employees-beat-213811423.html)
-- Oct 15 - [I Was So Excited To Visit A Cranberry Bog Until I Learned This Scary Fact](https://www.yahoo.com/lifestyle/excited-visit-cranberry-bog-until-190200481.html)
-- Oct 15 - [Netanyahu opposes ceasefire deal that would not halt Hezbollah from rearming](https://www.yahoo.com/news/netanyahu-opposes-ceasefire-deal-not-185032579.html)
 <!-- feed end -->
 
 ### Onstream
