@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Live K-10 traffic updates: Delays, accidents in KC, Johnson County, Lawrence](https://www.yahoo.com/news/live-k-10-traffic-updates-060501245.html)
+- Oct 16 - [Israeli strike rocks Beirut after US says it opposes scope of air assault](https://www.yahoo.com/news/israeli-strike-rocks-beirut-suburbs-044418689.html)
 - Oct 16 - [In the heartland of Mexico's Sinaloa cartel, the old ways have changed and violence rages](https://www.yahoo.com/news/heartland-mexicos-sinaloa-cartel-old-040037500.html)
+- Oct 16 - [‘I loved him so much’: OKC podcaster reacts to shooting death of employee](https://www.yahoo.com/news/loved-him-much-okc-podcaster-030000673.html)
 - Oct 16 - [Xi says China willing to be a partner, friend with the US](https://www.yahoo.com/news/xi-says-china-willing-partner-021748714.html)
 - Oct 16 - ['I'm an OB/GYN, and This Is the One Habit I Want Everyone Woman Over 60 to Stop Doing ASAP'](https://www.yahoo.com/lifestyle/im-ob-gyn-one-habit-002500951.html)
-- Oct 15 - [Owner of 'Trooper,' dog abandoned amid Hurricane Milton, now faces felony animal cruelty](https://www.yahoo.com/news/owner-trooper-dog-abandoned-amid-211600139.html)
 <!-- feed end -->
 
 ### Onstream
