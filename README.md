@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [An iconic chicken chain slashed prices. Here's why competitors could follow its lead](https://finance.yahoo.com/news/an-iconic-chicken-chain-slashed-prices-heres-why-competitors-could-follow-its-lead-121251393.html)
-- Oct 16 - [I’m 72 and my kids will inherit my Malibu beach house and cabin in Aspen. Should I use a will or a trust?](https://finance.yahoo.com/news/m-72-kids-inherit-malibu-114200144.html)
+- Oct 16 - [Key points from Zelenskiy's Ukraine victory plan](https://www.yahoo.com/news/factbox-key-points-zelenskiys-ukraine-104419112.html)
 - Oct 16 - [Exclusive-How Israel’s bulky pager fooled Hezbollah](https://www.yahoo.com/news/exclusive-israel-bulky-pager-fooled-103915563.html)
 - Oct 16 - [Scientists discover concerning behavioral changes in chimps: 'Could something so small have prevented the pandemic?'](https://www.yahoo.com/news/scientists-discover-concerning-behavioral-changes-103051365.html)
 - Oct 16 - [Kremlin, commenting on Zelenskiy's 'victory plan,' says Ukraine needs to 'sober up'](https://www.yahoo.com/news/kremlin-commenting-zelenskiys-victory-plan-094816156.html)
+- Oct 16 - [They Say There’s Never Been a Man Like Donald Trump in American Politics. But There Was—and We Should Learn From Him.](https://www.yahoo.com/news/never-man-donald-trump-american-094500310.html)
 <!-- feed end -->
 
 ### Onstream
