@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [I’m 72 and my kids will inherit my Malibu beach house and cabin in Aspen. Should I use a will or a trust?](https://finance.yahoo.com/news/m-72-kids-inherit-malibu-114200144.html)
 - Oct 16 - [Key points from Zelenskiy's Ukraine victory plan](https://www.yahoo.com/news/factbox-key-points-zelenskiys-ukraine-104419112.html)
 - Oct 16 - [Exclusive-How Israel’s bulky pager fooled Hezbollah](https://www.yahoo.com/news/exclusive-israel-bulky-pager-fooled-103915563.html)
 - Oct 16 - [Scientists discover concerning behavioral changes in chimps: 'Could something so small have prevented the pandemic?'](https://www.yahoo.com/news/scientists-discover-concerning-behavioral-changes-103051365.html)
-- Oct 16 - [Half a billion dollars awarded to revolutionary new plant coming to one US state — and it's bringing thousands of new jobs](https://www.yahoo.com/news/half-billion-dollars-awarded-revolutionary-101528384.html)
 - Oct 16 - [Kremlin, commenting on Zelenskiy's 'victory plan,' says Ukraine needs to 'sober up'](https://www.yahoo.com/news/kremlin-commenting-zelenskiys-victory-plan-094816156.html)
 <!-- feed end -->
 
