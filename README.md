@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [In the heartland of Mexico's Sinaloa cartel, the old ways have changed and violence rages](https://www.yahoo.com/news/heartland-mexicos-sinaloa-cartel-old-040037500.html)
 - Oct 16 - [Xi says China willing to be a partner, friend with the US](https://www.yahoo.com/news/xi-says-china-willing-partner-021748714.html)
 - Oct 16 - ['I'm an OB/GYN, and This Is the One Habit I Want Everyone Woman Over 60 to Stop Doing ASAP'](https://www.yahoo.com/lifestyle/im-ob-gyn-one-habit-002500951.html)
-- Oct 15 - [Strong weather system heading for Utah — wind, rain, snow expected in some areas](https://www.yahoo.com/news/strong-weather-system-heading-utah-234120985.html)
 - Oct 15 - [Army Looking To Shrink Typhon Missile System After Lessons Learned From First Deployment](https://www.yahoo.com/news/army-looking-shrink-typhon-missile-230812458.html)
-- Oct 15 - [North Korea says 1.4 million young people apply to join army](https://www.yahoo.com/news/north-korea-claims-1-4-222527255.html)
+- Oct 15 - [Elon Musk Says SpaceX's Next-Generation Starlink Satellites Will Be 'So Big That Only Starship Can Launch Them:' Will Offer 10X Increase In Bandwidth And Reduced Latency](https://finance.yahoo.com/news/elon-musk-says-spacexs-next-223034078.html)
 <!-- feed end -->
 
 ### Onstream
