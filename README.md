@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [This Is the Best Type of Exercise if You Have a Heart Condition, According to Cardiologists](https://www.yahoo.com/lifestyle/best-type-exercise-heart-condition-212500232.html)
 - Oct 15 - [Ex-husband of 'Real Housewives' star gets seven years for hiring mobster to assault her boyfriend](https://www.yahoo.com/news/ex-husband-real-housewives-star-205853280.html)
-- Oct 15 - [Orange County high school requiring students to scan QR codes to leave class](https://www.yahoo.com/news/orange-county-high-school-requiring-195054808.html)
+- Oct 15 - [Family Claims Classic Car Dealer Owes Them Big Money](https://autos.yahoo.com/family-claims-classic-car-dealer-193000122.html)
+- Oct 15 - [Former Ozzy Osbourne Guitarist Jake E. Lee Shot Multiple Times in Las Vegas](https://www.yahoo.com/news/former-ozzy-osbourne-guitarist-jake-192246428.html)
 - Oct 15 - [I Was So Excited To Visit A Cranberry Bog Until I Learned This Scary Fact](https://www.yahoo.com/lifestyle/excited-visit-cranberry-bog-until-190200481.html)
 - Oct 15 - [Netanyahu opposes ceasefire deal that would not halt Hezbollah from rearming](https://www.yahoo.com/news/netanyahu-opposes-ceasefire-deal-not-185032579.html)
 <!-- feed end -->
