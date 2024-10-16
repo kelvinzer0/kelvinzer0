@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [An iconic chicken chain slashed prices. Here's why competitors could follow its lead](https://finance.yahoo.com/news/an-iconic-chicken-chain-slashed-prices-heres-why-competitors-could-follow-its-lead-121251393.html)
+- Oct 16 - [I’m 72 and my kids will inherit my Malibu beach house and cabin in Aspen. Should I use a will or a trust?](https://finance.yahoo.com/news/m-72-kids-inherit-malibu-114200144.html)
+- Oct 16 - [Exclusive-How Israel’s bulky pager fooled Hezbollah](https://www.yahoo.com/news/exclusive-israel-bulky-pager-fooled-103915563.html)
+- Oct 16 - [Scientists discover concerning behavioral changes in chimps: 'Could something so small have prevented the pandemic?'](https://www.yahoo.com/news/scientists-discover-concerning-behavioral-changes-103051365.html)
 - Oct 16 - [Kremlin, commenting on Zelenskiy's 'victory plan,' says Ukraine needs to 'sober up'](https://www.yahoo.com/news/kremlin-commenting-zelenskiys-victory-plan-094816156.html)
-- Oct 16 - [In the heartland of Mexico's Sinaloa cartel, the old ways have changed and violence rages](https://www.yahoo.com/news/heartland-mexicos-sinaloa-cartel-old-040037500.html)
-- Oct 16 - [Should Arkansas dad go to prison for killing man found with his missing child? | Cuomo](https://www.yahoo.com/news/arkansas-dad-prison-killing-man-022255810.html)
-- Oct 16 - [Xi says China willing to be a partner, friend with the US](https://www.yahoo.com/news/xi-says-china-willing-partner-021748714.html)
-- Oct 16 - [Gun-wielding suspect gets beaten up by employees at pizzeria he tried to rob: police](https://www.yahoo.com/news/gun-wielding-suspect-gets-beaten-015918805.html)
 <!-- feed end -->
 
 ### Onstream
