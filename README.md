@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [NASA Will Send Its First Woman to the Moon In a High-Fashion Spacesuit](https://www.yahoo.com/tech/nasa-send-first-woman-moon-173901822.html)
+- Oct 16 - [Don’t Do This If A Cop Pulls You Over](https://autos.yahoo.com/don-t-cop-pulls-over-202116649.html)
+- Oct 16 - [Solar max has arrived! Here’s how and where to see the Northern Lights](https://www.yahoo.com/news/solar-max-nearly-where-see-100003654.html)
+- Oct 16 - [Macron riles Netanyahu with jab on Israel's creation](https://www.yahoo.com/news/macron-riles-netanyahu-jab-israels-145434363.html)
 - Oct 16 - [Here's What 16 Living Descendants Of US Presidents Look Like Compared To Their POTUS Relative](https://www.buzzfeed.com/daves4/presidents-and-their-modern-day-relatives)
-- Oct 16 - [Fact check: John Deere says Trump’s story about how he saved US jobs with a tariff threat is fictional](https://www.yahoo.com/news/fact-check-john-deere-says-143943822.html)
-- Oct 16 - [I’m 72 and my kids will inherit my Malibu beach house and cabin in Aspen. Should I use a will or a trust?](https://finance.yahoo.com/news/m-72-kids-inherit-malibu-114200144.html)
-- Oct 16 - [UNRWA 'very near' possible breaking point in Gaza operation, head says](https://www.yahoo.com/news/unrwa-very-near-possible-breaking-112453293.html)
-- Oct 16 - [Exclusive-How Israel’s bulky pager fooled Hezbollah](https://www.yahoo.com/news/exclusive-israel-bulky-pager-fooled-103915563.html)
 <!-- feed end -->
 
 ### Onstream
