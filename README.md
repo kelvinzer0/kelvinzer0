@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [NASA Will Send Its First Woman to the Moon In a High-Fashion Spacesuit](https://www.yahoo.com/tech/nasa-send-first-woman-moon-173901822.html)
-- Oct 16 - [Don’t Do This If A Cop Pulls You Over](https://autos.yahoo.com/don-t-cop-pulls-over-202116649.html)
+- Oct 16 - [Robert Telles sentenced additional years for murder of Las Vegas journalist Jeff German](https://www.yahoo.com/news/robert-telles-sentenced-additional-years-164104907.html)
+- Oct 16 - [Coca-Cola Has Recalled More Than 13,000 Cases of Product—Here's What You Need to Know](https://www.yahoo.com/news/coca-cola-recalled-more-13-163000952.html)
+- Oct 16 - [US Navy fighter jet with two on board crashes during training in Washington state](https://www.yahoo.com/news/us-navy-says-fighter-jet-151732537.html)
 - Oct 16 - [Solar max has arrived! Here’s how and where to see the Northern Lights](https://www.yahoo.com/news/solar-max-nearly-where-see-100003654.html)
 - Oct 16 - [Macron riles Netanyahu with jab on Israel's creation](https://www.yahoo.com/news/macron-riles-netanyahu-jab-israels-145434363.html)
-- Oct 16 - [Here's What 16 Living Descendants Of US Presidents Look Like Compared To Their POTUS Relative](https://www.buzzfeed.com/daves4/presidents-and-their-modern-day-relatives)
 <!-- feed end -->
 
 ### Onstream
