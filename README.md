@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Competitive teen surfer shares shark bite encounter in Brevard County](https://sports.yahoo.com/competitive-teen-surfer-shares-shark-200406951.html)
+- Oct 17 - [Plug-in hybrids aren't quite working as a transition to electric cars](https://www.yahoo.com/tech/plug-hybrids-arent-quite-working-195054148.html)
+- Oct 17 - [Browns announce plans to move from their lakefront stadium since 1999 to dome in the suburbs](https://sports.yahoo.com/cleveland-mayor-says-browns-owners-194509830.html)
+- Oct 17 - ["Not able to run for two weeks": Trump cancels NRA rally appearance amid decline concerns](https://www.yahoo.com/news/not-able-run-two-weeks-192930945.html)
 - Oct 17 - [Kentucky man’s organs were nearly harvested. Then doctors realized he was still alive](https://www.yahoo.com/news/kentucky-man-organs-were-nearly-192547031.html)
-- Oct 17 - [Unable to ‘survive’ downtown, this huge Boise restaurant and bar destination will close](https://www.yahoo.com/news/miss-boise-massive-downtown-restaurant-190723292.html)
-- Oct 17 - [For a year the IDF hunted Sinwar in tunnels – then troops ran into him by chance](https://www.yahoo.com/news/idf-hunted-sinwar-tunnels-then-182906114.html)
-- Oct 17 - [Opinion: He's the 'Nostradamus' of elections. Is he wrong about Harris and Trump?](https://www.yahoo.com/news/opinion-hes-nostradamus-elections-wrong-182507059.html)
-- Oct 17 - [Former San Angelo business owner accused of violating probation](https://www.yahoo.com/news/former-san-angelo-business-owner-170642712.html)
 <!-- feed end -->
 
 ### Onstream
