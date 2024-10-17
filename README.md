@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Meta staff sacked for using $25 meal vouchers to buy wine glasses](https://finance.yahoo.com/news/meta-staff-sacked-using-25-085044957.html)
+- Oct 17 - [His country trained him to fight. Then he turned against it. More like him are doing the same](https://www.yahoo.com/news/country-trained-him-fight-then-091122029.html)
+- Oct 17 - [B-2 Spirits Just Sent A Very Ominous Message To Iran](https://www.yahoo.com/news/b-2-spirits-just-sent-070208866.html)
 - Oct 17 - [Meta lays off employees across multiple teams](https://finance.yahoo.com/news/meta-lays-off-employees-across-013036067.html)
 - Oct 17 - [A Latino Republican Asked Trump To Win Back His Vote At A Town Hall. It Did Not Go Well.](https://www.yahoo.com/news/latino-republican-asked-trump-win-034959883.html)
 - Oct 17 - [Bret Baier Shares His Impressions of Kamala Harris After Contentious Sit-Down](https://www.yahoo.com/news/bret-baier-shares-impressions-kamala-010905373.html)
-- Oct 16 - [Couple Scrambles for Safety as Pit Bulls Swarm Around Them](https://www.yahoo.com/news/couple-scrambles-safety-pit-bulls-220302517.html)
 <!-- feed end -->
 
 ### Onstream
