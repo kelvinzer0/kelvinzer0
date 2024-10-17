@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [A Latino Republican Asked Trump To Win Back His Vote At A Town Hall. It Did Not Go Well.](https://www.yahoo.com/news/latino-republican-asked-trump-win-034959883.html)
+- Oct 17 - [Meta lays off employees across multiple teams](https://finance.yahoo.com/news/meta-lays-off-employees-across-013036067.html)
 - Oct 17 - [Bret Baier Shares His Impressions of Kamala Harris After Contentious Sit-Down](https://www.yahoo.com/news/bret-baier-shares-impressions-kamala-010905373.html)
 - Oct 16 - [Oil company Phillips 66 says it will shut down Los Angeles-area refinery](https://finance.yahoo.com/news/oil-company-phillips-66-says-235117942.html)
-- Oct 16 - [Billionaire investor David Einhorn says Warren Buffett's recent stock sales show just how overvalued the market is](https://finance.yahoo.com/news/billionaire-investor-david-einhorn-says-232814929.html)
 - Oct 16 - [Couple Scrambles for Safety as Pit Bulls Swarm Around Them](https://www.yahoo.com/news/couple-scrambles-safety-pit-bulls-220302517.html)
-- Oct 16 - [TSMC set to report strong profit driven by AI boom](https://finance.yahoo.com/news/tsmc-set-report-strong-profit-220227281.html)
 <!-- feed end -->
 
 ### Onstream
