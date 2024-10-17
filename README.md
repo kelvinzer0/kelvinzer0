@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 17 - [Bret Baier Shares His Impressions of Kamala Harris After Contentious Sit-Down](https://www.yahoo.com/news/bret-baier-shares-impressions-kamala-010905373.html)
 - Oct 16 - [Oil company Phillips 66 says it will shut down Los Angeles-area refinery](https://finance.yahoo.com/news/oil-company-phillips-66-says-235117942.html)
-- Oct 16 - [Man shot in head during robbery attempt in upscale Los Angeles neighborhood](https://www.yahoo.com/news/man-shot-head-during-robbery-233134438.html)
+- Oct 16 - [Billionaire investor David Einhorn says Warren Buffett's recent stock sales show just how overvalued the market is](https://finance.yahoo.com/news/billionaire-investor-david-einhorn-says-232814929.html)
 - Oct 16 - [Couple Scrambles for Safety as Pit Bulls Swarm Around Them](https://www.yahoo.com/news/couple-scrambles-safety-pit-bulls-220302517.html)
 - Oct 16 - [TSMC set to report strong profit driven by AI boom](https://finance.yahoo.com/news/tsmc-set-report-strong-profit-220227281.html)
 <!-- feed end -->
