@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Musk's win on India satellite spectrum raises prospect of price war with Ambani](https://finance.yahoo.com/news/musks-win-india-satellite-spectrum-124344294.html)
-- Oct 17 - [Liam Payne 911 Caller Said One Direction Star’s Life Could Be in Danger Minutes Before Death](https://www.yahoo.com/news/liam-payne-911-caller-said-105958646.html)
+- Oct 17 - [Victims of Vietnam tycoon's record scam count losses after sentence](https://www.yahoo.com/news/victims-vietnam-tycoons-record-scam-134515985.html)
+- Oct 17 - [IDF 'checking the possibility' Hamas leader Yahya Sinwar killed in Gaza](https://www.yahoo.com/news/idf-checking-possibility-hamas-leader-130100287.html)
 - Oct 17 - [Florida homeowners fear soaring insurance cost after hurricanes](https://finance.yahoo.com/news/florida-homeowners-fear-soaring-insurance-100508455.html)
-- Oct 17 - [An ‘extraordinarily dishonest’ homebuilder and ex-high school coach is sentenced in Boise](https://www.yahoo.com/news/extraordinarily-dishonest-homebuilder-ex-high-100000611.html)
 - Oct 17 - [His country trained him to fight. Then he turned against it. More like him are doing the same](https://www.yahoo.com/news/country-trained-him-fight-then-091122029.html)
+- Oct 17 - [Zuckerberg sacks staff on six-figure salaries for abusing office’s food delivery scheme](https://finance.yahoo.com/news/meta-staff-sacked-using-25-085044957.html)
 <!-- feed end -->
 
 ### Onstream
