@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Florida digs out of mountains of sand swept in by back-to-back hurricanes](https://www.yahoo.com/news/florida-digs-mountains-sand-swept-145527811.html)
-- Oct 17 - [North Korea says its revised constitution defines South Korea as 'hostile state' for first time, AP explains](https://www.yahoo.com/news/north-korea-says-revised-constitution-143543434.html)
-- Oct 17 - [Angel Reese says she can't afford rent. Her WNBA pay is barely middle class income in NJ](https://finance.yahoo.com/news/angel-reese-says-she-cant-135748976.html)
-- Oct 17 - [IDF 'checking the possibility' Hamas leader Yahya Sinwar killed in Gaza](https://www.yahoo.com/news/idf-checking-possibility-hamas-leader-130100287.html)
-- Oct 17 - [Victims of deadly crash on Eugene's Northwest Expressway identified](https://www.yahoo.com/news/victims-deadly-crash-eugenes-northwest-125703742.html)
+- Oct 17 - [Florida digs out of mountains of sand swept in by back-to-back hurricanes](https://www.yahoo.com/news/florida-digs-mountains-sand-swept-160110858.html)
+- Oct 17 - [Hamas Leader Yahya Sinwar Killed in IDF Raid, According to  Israeli Media Reports](https://www.yahoo.com/news/hamas-leader-yahya-sinwar-killed-150243045.html)
+- Oct 17 - [United Airlines had a great quarter by outsmarting the industry's 'capacity' crisis](https://www.yahoo.com/tech/united-airlines-had-great-quarter-144231909.html)
+- Oct 17 - [Musk's win on India satellite spectrum raises prospect of price war with Ambani](https://finance.yahoo.com/news/musks-win-india-satellite-spectrum-124344060.html)
+- Oct 17 - [Israel is DNA-testing a body from Gaza to see if it's Hamas' top leader Sinwar, an official says](https://www.yahoo.com/news/palestinian-officials-israeli-strike-school-114152726.html)
 <!-- feed end -->
 
 ### Onstream
