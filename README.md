@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Voices: Has Elon Musk just started a new war on women by binning the block button?](https://www.yahoo.com/news/voices-elon-musk-just-started-153645385.html)
 - Oct 17 - [Florida homeowners fear soaring insurance cost after hurricanes](https://finance.yahoo.com/news/florida-homeowners-fear-soaring-insurance-100508455.html)
 - Oct 17 - [His country trained him to fight. Then he turned against it. More like him are doing the same](https://www.yahoo.com/news/country-trained-him-fight-then-091122029.html)
-- Oct 17 - [Mountain town confronts an unexpected public health catastrophe](https://www.yahoo.com/news/mountain-town-confronts-unexpected-public-090050340.html)
 - Oct 17 - [B-2 Spirits Just Sent A Very Ominous Message To Iran](https://www.yahoo.com/news/b-2-spirits-just-sent-070208866.html)
+- Oct 17 - [Meta lays off employees across multiple teams](https://finance.yahoo.com/news/meta-lays-off-employees-across-013036067.html)
+- Oct 17 - [A Latino Republican Asked Trump To Win Back His Vote At A Town Hall. It Did Not Go Well.](https://www.yahoo.com/news/latino-republican-asked-trump-win-034959883.html)
 <!-- feed end -->
 
 ### Onstream
