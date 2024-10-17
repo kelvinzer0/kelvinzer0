@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Victims of Vietnam tycoon's record scam count losses after sentence](https://www.yahoo.com/news/victims-vietnam-tycoons-record-scam-134515985.html)
+- Oct 17 - [Florida digs out of mountains of sand swept in by back-to-back hurricanes](https://www.yahoo.com/news/florida-digs-mountains-sand-swept-145527811.html)
+- Oct 17 - [North Korea says its revised constitution defines South Korea as 'hostile state' for first time, AP explains](https://www.yahoo.com/news/north-korea-says-revised-constitution-143543434.html)
+- Oct 17 - [Angel Reese says she can't afford rent. Her WNBA pay is barely middle class income in NJ](https://finance.yahoo.com/news/angel-reese-says-she-cant-135748976.html)
 - Oct 17 - [IDF 'checking the possibility' Hamas leader Yahya Sinwar killed in Gaza](https://www.yahoo.com/news/idf-checking-possibility-hamas-leader-130100287.html)
-- Oct 17 - [Florida homeowners fear soaring insurance cost after hurricanes](https://finance.yahoo.com/news/florida-homeowners-fear-soaring-insurance-100508455.html)
-- Oct 17 - [His country trained him to fight. Then he turned against it. More like him are doing the same](https://www.yahoo.com/news/country-trained-him-fight-then-091122029.html)
-- Oct 17 - [Zuckerberg sacks staff on six-figure salaries for abusing office’s food delivery scheme](https://finance.yahoo.com/news/meta-staff-sacked-using-25-085044957.html)
+- Oct 17 - [Victims of deadly crash on Eugene's Northwest Expressway identified](https://www.yahoo.com/news/victims-deadly-crash-eugenes-northwest-125703742.html)
 <!-- feed end -->
 
 ### Onstream
