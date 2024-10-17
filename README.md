@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Hamas Leader Yahya Sinwar Killed in IDF Raid, Israeli Media Reports](https://www.yahoo.com/news/hamas-leader-yahya-sinwar-killed-150243045.html)
-- Oct 17 - [Angel Reese says she can't afford rent. Her WNBA pay is barely middle class income in NJ](https://finance.yahoo.com/news/angel-reese-says-she-cant-135748976.html)
+- Oct 17 - [Drug kingpin Demetrius 'Big Meech' Flenory leaves federal prison for a residential program in Miami](https://www.yahoo.com/news/drug-kingpin-demetrius-big-meech-160111853.html)
+- Oct 17 - [Florida digs out of mountains of sand swept in by back-to-back hurricanes](https://www.yahoo.com/news/florida-digs-mountains-sand-swept-160110858.html)
+- Oct 17 - [GM Just Tested the Fastest Car Ever Built by a U.S. Automaker](https://finance.yahoo.com/news/gm-just-tested-fastest-car-155800019.html)
+- Oct 17 - [Opinion - Kamala Harris’s Fox News interview disaster shows how the media set her up to fail](https://www.yahoo.com/news/opinion-kamala-harris-fox-news-152228490.html)
 - Oct 17 - [2 German pilots killed when WWII-era airplane crashes after takeoff in southern Finland](https://www.yahoo.com/news/2-german-pilots-killed-wwii-132820538.html)
-- Oct 17 - [Israeli military confirms Hamas leader Yahya Sinwar is dead](https://www.yahoo.com/news/israeli-military-says-checking-possibility-125401204.html)
-- Oct 17 - [Musk's win on India satellite spectrum raises prospect of price war with Ambani](https://finance.yahoo.com/news/musks-win-india-satellite-spectrum-124344060.html)
 <!-- feed end -->
 
 ### Onstream
