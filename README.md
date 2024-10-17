@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 17 - [Bret Baier Shares His Impressions of Kamala Harris After Contentious Sit-Down](https://www.yahoo.com/news/bret-baier-shares-impressions-kamala-010905373.html)
-- Oct 16 - [Oil company Phillips 66 says it will shut down Los Angeles-area refinery](https://finance.yahoo.com/news/oil-company-phillips-66-says-235117942.html)
 - Oct 16 - [Couple Scrambles for Safety as Pit Bulls Swarm Around Them](https://www.yahoo.com/news/couple-scrambles-safety-pit-bulls-220302517.html)
-- Oct 16 - [Paramedic, 27, Didn’t Respond to 911 Call. He Died After Partner Found Him Unresponsive in Station Bedroom](https://www.yahoo.com/news/paramedic-27-didn-t-respond-212800904.html)
 - Oct 16 - [True Value declares bankruptcy and sells itself to a hardware rival](https://finance.yahoo.com/news/true-value-declares-bankruptcy-sells-174128698.html)
+- Oct 16 - [Nvidia is set to dominate another Big Tech earnings season](https://finance.yahoo.com/news/nvidia-is-set-to-dominate-another-big-tech-earnings-season-194525244.html)
+- Oct 16 - [Trump was asked to name three nice things about Harris. His response sounded like hers](https://www.yahoo.com/news/trump-asked-name-three-nice-194204709.html)
 <!-- feed end -->
 
 ### Onstream
