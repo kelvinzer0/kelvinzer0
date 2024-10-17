@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Is Algonquin Power & Utilities (AQN) the Best High Growth Utility Stock To Invest In?](https://finance.yahoo.com/news/algonquin-power-utilities-aqn-best-183517544.html)
+- Oct 17 - [Delta traveler claims he was beaten senseless by fellow passengers after onboard lavatory dispute](https://www.yahoo.com/news/delta-traveler-claims-beaten-senseless-175519442.html)
+- Oct 17 - [International reaction to death of Hamas leader Sinwar](https://www.yahoo.com/news/international-reaction-reported-death-hamas-175910911.html)
+- Oct 17 - [South MS restaurant known for wings, burgers & happy hour among dozens closing nationwide](https://www.yahoo.com/news/south-ms-restaurant-known-wings-160910100.html)
 - Oct 17 - [Drug kingpin Demetrius 'Big Meech' Flenory leaves federal prison for a residential program in Miami](https://www.yahoo.com/news/drug-kingpin-demetrius-big-meech-160111853.html)
-- Oct 17 - [Florida digs out of mountains of sand swept in by back-to-back hurricanes](https://www.yahoo.com/news/florida-digs-mountains-sand-swept-160110858.html)
-- Oct 17 - [GM Just Tested the Fastest Car Ever Built by a U.S. Automaker](https://finance.yahoo.com/news/gm-just-tested-fastest-car-155800019.html)
-- Oct 17 - [Opinion - Kamala Harris’s Fox News interview disaster shows how the media set her up to fail](https://www.yahoo.com/news/opinion-kamala-harris-fox-news-152228490.html)
-- Oct 17 - [2 German pilots killed when WWII-era airplane crashes after takeoff in southern Finland](https://www.yahoo.com/news/2-german-pilots-killed-wwii-132820538.html)
 <!-- feed end -->
 
 ### Onstream
