@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Is Algonquin Power & Utilities (AQN) the Best High Growth Utility Stock To Invest In?](https://finance.yahoo.com/news/algonquin-power-utilities-aqn-best-183517544.html)
-- Oct 17 - [Delta traveler claims he was beaten senseless by fellow passengers after onboard lavatory dispute](https://www.yahoo.com/news/delta-traveler-claims-beaten-senseless-175519442.html)
-- Oct 17 - [International reaction to death of Hamas leader Sinwar](https://www.yahoo.com/news/international-reaction-reported-death-hamas-175910911.html)
-- Oct 17 - [South MS restaurant known for wings, burgers & happy hour among dozens closing nationwide](https://www.yahoo.com/news/south-ms-restaurant-known-wings-160910100.html)
-- Oct 17 - [Drug kingpin Demetrius 'Big Meech' Flenory leaves federal prison for a residential program in Miami](https://www.yahoo.com/news/drug-kingpin-demetrius-big-meech-160111853.html)
+- Oct 17 - [Kentucky man’s organs were nearly harvested. Then doctors realized he was still alive](https://www.yahoo.com/news/kentucky-man-organs-were-nearly-192547031.html)
+- Oct 17 - [Unable to ‘survive’ downtown, this huge Boise restaurant and bar destination will close](https://www.yahoo.com/news/miss-boise-massive-downtown-restaurant-190723292.html)
+- Oct 17 - [For a year the IDF hunted Sinwar in tunnels – then troops ran into him by chance](https://www.yahoo.com/news/idf-hunted-sinwar-tunnels-then-182906114.html)
+- Oct 17 - [Opinion: He's the 'Nostradamus' of elections. Is he wrong about Harris and Trump?](https://www.yahoo.com/news/opinion-hes-nostradamus-elections-wrong-182507059.html)
+- Oct 17 - [Former San Angelo business owner accused of violating probation](https://www.yahoo.com/news/former-san-angelo-business-owner-170642712.html)
 <!-- feed end -->
 
 ### Onstream
