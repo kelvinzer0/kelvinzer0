@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Oklahoma parents and teachers sue to stop top education official's classroom Bible mandate](https://www.yahoo.com/news/oklahoma-parents-teachers-sue-stop-204401870.html)
+- Oct 17 - [Israel Releases Video Said to Show Sinwar's 'Last Moments'](https://www.yahoo.com/news/israel-releases-video-said-show-220831308.html)
+- Oct 17 - [Amazon AWS CEO: Quit if you don't want to return to office](https://finance.yahoo.com/news/amazon-aws-ceo-quit-dont-212105334.html)
+- Oct 17 - [Plug-in hybrids aren't quite working as a transition to electric cars](https://www.yahoo.com/tech/plug-hybrids-arent-quite-working-195054148.html)
+- Oct 17 - [Browns announce plans to move from their lakefront stadium since 1999 to dome in the suburbs](https://sports.yahoo.com/cleveland-mayor-says-browns-owners-194509830.html)
 - Oct 17 - [Unable to ‘survive’ downtown, this huge Boise restaurant and bar destination will close](https://www.yahoo.com/news/miss-boise-massive-downtown-restaurant-190723292.html)
-- Oct 17 - [For a year the IDF hunted Sinwar in tunnels – then troops ran into him by chance](https://www.yahoo.com/news/idf-hunted-sinwar-tunnels-then-182906114.html)
-- Oct 17 - [Marc Benioff warns that AI, while useful, is overhyped and partly blames Microsoft](https://finance.yahoo.com/news/marc-benioff-warns-ai-while-182333155.html)
-- Oct 17 - [Former San Angelo business owner accused of violating probation](https://www.yahoo.com/news/former-san-angelo-business-owner-170642712.html)
 <!-- feed end -->
 
 ### Onstream
