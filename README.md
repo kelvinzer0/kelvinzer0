@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 18 - [Trump Spews Profanity and Bizarre Insults at Catholic Charity Dinner](https://www.yahoo.com/news/trump-spews-profanity-bizarre-insults-035559819.html)
 - Oct 18 - [Hezbollah says it will escalate war with Israel after Hamas leader killed](https://www.yahoo.com/news/hezbollah-says-escalate-war-israel-011412022.html)
-- Oct 17 - [BREAKING: Georgia 2024 'early vote' smashes records, as Harris hits Trump with GOP teammates](https://www.yahoo.com/news/breaking-georgia-2024-early-vote-233959480.html)
-- Oct 17 - [Watch: Yahya Sinwar throws stick at drone in desperate final moments](https://www.yahoo.com/news/watch-yahya-sinwar-throws-stick-231404066.html)
-- Oct 17 - [Jacksonville Sheriff calls banner flown about him ‘hateful;’ councilman says it was ‘racist attack’](https://www.yahoo.com/news/coward-plane-flying-banner-critical-181203177.html)
+- Oct 18 - [Southern California driver who outran CHP at ‘extreme speeds’ busted days later](https://www.yahoo.com/news/southern-california-driver-outran-chp-000537908.html)
+- Oct 17 - [Watch Hamas Leader Yahya Sinwar’s Final Moments Captured by IDF Drone | Video](https://www.yahoo.com/news/watch-hamas-leader-yahya-sinwar-231225310.html)
+- Oct 17 - [Trump’s “Swiss” Watches Traced to Derelict Wyoming Strip Mall](https://www.yahoo.com/news/trump-swiss-watches-traced-derelict-204526177.html)
 <!-- feed end -->
 
 ### Onstream
