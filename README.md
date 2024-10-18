@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Liam Payne's cause of death confirmed in autopsy report: What is polytrauma?](https://www.yahoo.com/news/liam-paynes-cause-death-confirmed-011625840.html)
-- Oct 17 - [Developers designing Florida homes to withstand hurricanes](https://www.yahoo.com/news/developers-designing-florida-homes-withstand-235650054.html)
+- Oct 18 - [Rupee pegged back by higher US yields; hopes of RBI intervention counters](https://finance.yahoo.com/news/rupee-pegged-back-higher-us-030211152.html)
+- Oct 18 - [Hezbollah says it will escalate war with Israel after Hamas leader killed](https://www.yahoo.com/news/hezbollah-says-escalate-war-israel-011412022.html)
+- Oct 18 - [The first female commander of the Air Force's A-10 demo team reflects on flying the Warthog on the eve of its retirement](https://www.yahoo.com/news/first-female-commander-air-forces-000101659.html)
 - Oct 17 - [Watch: Yahya Sinwar throws stick at drone in desperate final moments](https://www.yahoo.com/news/watch-yahya-sinwar-throws-stick-231404066.html)
-- Oct 17 - [Opinion: Ruben Gallego's divorce file blows up in Kari Lake's face](https://www.yahoo.com/news/opinion-ruben-gallegos-divorce-file-210849407.html)
-- Oct 17 - [Trump’s “Swiss” Watches Traced to Derelict Wyoming Strip Mall](https://www.yahoo.com/news/trump-swiss-watches-traced-derelict-204526177.html)
+- Oct 17 - [Browns owners Jimmy and Dee Haslam issue statement about Brook Park stadium move](https://sports.yahoo.com/browns-owners-jimmy-dee-haslam-215326812.html)
 <!-- feed end -->
 
 ### Onstream
