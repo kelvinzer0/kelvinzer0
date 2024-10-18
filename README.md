@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Everything we know about North Korean troops joining Russia’s invasion of Ukraine](https://www.yahoo.com/news/everything-know-north-korean-troops-072759953.html)
+- Oct 18 - [Lebanese PM says he rejects Iranian interference in Lebanese matter](https://www.yahoo.com/news/lebanese-pm-says-rejects-iranian-082555629.html)
+- Oct 18 - [Cornish man sues pharmacies, hospital after his wife died because she couldn't get life-saving medication](https://www.yahoo.com/news/cornish-man-sues-pharmacies-hospital-080500923.html)
 - Oct 18 - [Trump Spews Profanity and Bizarre Insults at Catholic Charity Dinner](https://www.yahoo.com/news/trump-spews-profanity-bizarre-insults-035559819.html)
 - Oct 18 - [Surviving Hamas leaders ‘dead men walking’: Son of Hamas founder](https://www.yahoo.com/news/surviving-hamas-leaders-dead-men-032626149.html)
-- Oct 18 - [Southern California driver who outran CHP at ‘extreme speeds’ busted days later](https://www.yahoo.com/news/southern-california-driver-outran-chp-000537908.html)
-- Oct 17 - [BREAKING: Georgia 2024 'early vote' smashes records, as Harris hits Trump with GOP teammates](https://www.yahoo.com/news/breaking-georgia-2024-early-vote-233959480.html)
+- Oct 17 - [Maxim makes an endorsement for the 2024 presidential election: 'You just lost zero fans'](https://www.yahoo.com/news/maxim-makes-endorsement-2024-presidential-235349783.html)
 <!-- feed end -->
 
 ### Onstream
