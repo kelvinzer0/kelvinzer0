@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [‘I Started Semaglutide At 52 After Struggling With My Weight During Perimenopause - Now I'm Down Over 30 Pounds'](https://www.yahoo.com/lifestyle/started-semaglutide-52-struggling-weight-190300510.html)
-- Oct 18 - [I’m lucky to be alive, says man attacked by ‘sexually frustrated’ dolphin](https://www.yahoo.com/news/m-lucky-alive-says-man-185133890.html)
+- Oct 18 - [Why Apple will be first to $4T market cap](https://finance.yahoo.com/video/why-apple-first-4t-market-220000677.html)
+- Oct 18 - [Orange County lieutenant killed by estranged husband, a former deputy, Sheriff’s Office says](https://www.yahoo.com/news/orange-county-lieutenant-killed-estranged-210745260.html)
+- Oct 18 - [Striking union holds indirect discussions with Boeing about deal, helped by US government](https://finance.yahoo.com/news/striking-union-active-indirect-discussions-204048079.html)
+- Oct 18 - [Stop & Shop announces closing date for 7 Mass. locations, storewide discounts for customers](https://finance.yahoo.com/news/stop-shop-announces-closing-date-195626202.html)
 - Oct 18 - [San Diego dentist, five employees face criminal charges for alleged Medi-Cal fraud](https://www.yahoo.com/news/san-diego-dentist-five-employees-184639760.html)
-- Oct 18 - [New evidence unsealed of how Trump's Jan. 6, 2021 rally was funded](https://www.yahoo.com/news/evidence-unsealed-trumps-jan-6-184557339.html)
-- Oct 18 - [El Paso contractor fails to pay workers, sentenced for wage theft](https://www.yahoo.com/news/el-paso-contractor-fails-pay-181938974.html)
 <!-- feed end -->
 
 ### Onstream
