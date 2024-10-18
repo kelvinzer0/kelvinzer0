@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Watch: Yahya Sinwar throws stick at drone in desperate final moments](https://www.yahoo.com/news/watch-yahya-sinwar-throws-stick-231404066.html)
 - Oct 17 - [Israel Releases Video Said to Show Sinwar's 'Last Moments'](https://www.yahoo.com/news/israel-releases-video-said-show-220831308.html)
-- Oct 17 - [Amazon AWS CEO: Quit if you don't want to return to office](https://finance.yahoo.com/news/amazon-aws-ceo-quit-dont-212105334.html)
-- Oct 17 - [Plug-in hybrids aren't quite working as a transition to electric cars](https://www.yahoo.com/tech/plug-hybrids-arent-quite-working-195054148.html)
+- Oct 17 - [Oklahoma parents and teachers sue to stop top education official's classroom Bible mandate](https://www.yahoo.com/news/oklahoma-parents-teachers-sue-stop-204401870.html)
 - Oct 17 - [Browns announce plans to move from their lakefront stadium since 1999 to dome in the suburbs](https://sports.yahoo.com/cleveland-mayor-says-browns-owners-194509830.html)
-- Oct 17 - [Unable to ‘survive’ downtown, this huge Boise restaurant and bar destination will close](https://www.yahoo.com/news/miss-boise-massive-downtown-restaurant-190723292.html)
+- Oct 17 - [Ferrari's $3.9M F80 is destined to become the 'ultimate collector's piece'](https://finance.yahoo.com/news/ferraris-39m-f80-is-destined-to-become-the-ultimate-collectors-piece-193629961.html)
 <!-- feed end -->
 
 ### Onstream
