@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [Russia flaunts its many doomsday weapons to keep the West from ramping up support for Ukraine](https://www.yahoo.com/news/russia-flaunts-many-doomsday-weapons-040251016.html)
+- Oct 18 - [An American was reportedly kidnapped from a southern Philippine town and a search is underway](https://www.yahoo.com/news/american-reportedly-kidnapped-southern-philippine-040204933.html)
 - Oct 18 - [Trump Spews Profanity and Bizarre Insults at Catholic Charity Dinner](https://www.yahoo.com/news/trump-spews-profanity-bizarre-insults-035559819.html)
+- Oct 18 - [Surviving Hamas leaders ‘dead men walking’: Son of Hamas founder](https://www.yahoo.com/news/surviving-hamas-leaders-dead-men-032626149.html)
 - Oct 18 - [Hezbollah says it will escalate war with Israel after Hamas leader killed](https://www.yahoo.com/news/hezbollah-says-escalate-war-israel-011412022.html)
-- Oct 18 - [Southern California driver who outran CHP at ‘extreme speeds’ busted days later](https://www.yahoo.com/news/southern-california-driver-outran-chp-000537908.html)
-- Oct 17 - [Watch Hamas Leader Yahya Sinwar’s Final Moments Captured by IDF Drone | Video](https://www.yahoo.com/news/watch-hamas-leader-yahya-sinwar-231225310.html)
-- Oct 17 - [Trump’s “Swiss” Watches Traced to Derelict Wyoming Strip Mall](https://www.yahoo.com/news/trump-swiss-watches-traced-derelict-204526177.html)
 <!-- feed end -->
 
 ### Onstream
