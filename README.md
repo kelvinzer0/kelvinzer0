@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Cuba’s electrical grid goes offline after one of the island's major power plant fails](https://www.yahoo.com/news/cuba-electrical-grid-goes-offline-200729685.html)
 - Oct 18 - [‘I Started Semaglutide At 52 After Struggling With My Weight During Perimenopause - Now I'm Down Over 30 Pounds'](https://www.yahoo.com/lifestyle/started-semaglutide-52-struggling-weight-190300510.html)
 - Oct 18 - [I’m lucky to be alive, says man attacked by ‘sexually frustrated’ dolphin](https://www.yahoo.com/news/m-lucky-alive-says-man-185133890.html)
+- Oct 18 - [San Diego dentist, five employees face criminal charges for alleged Medi-Cal fraud](https://www.yahoo.com/news/san-diego-dentist-five-employees-184639760.html)
 - Oct 18 - [New evidence unsealed of how Trump's Jan. 6, 2021 rally was funded](https://www.yahoo.com/news/evidence-unsealed-trumps-jan-6-184557339.html)
-- Oct 18 - [Dividend Investor Making $1,000 Per Month With Just $40,000 Invested Shares His 'Hyper Dividend' Portfolio: Top 9 Stocks and ETFs](https://finance.yahoo.com/news/dividend-investor-making-1-000-180015814.html)
+- Oct 18 - [El Paso contractor fails to pay workers, sentenced for wage theft](https://www.yahoo.com/news/el-paso-contractor-fails-pay-181938974.html)
 <!-- feed end -->
 
 ### Onstream
