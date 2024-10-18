@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Man claimed eight-stone dog was a poodle after it killed his brother in ‘frenzied’ attack](https://www.yahoo.com/news/man-claimed-eight-stone-dog-142300709.html)
-- Oct 18 - [Watch A Shelby GT500 Absolutely Roast Police](https://autos.yahoo.com/watch-shelby-gt500-absolutely-roast-170000900.html)
-- Oct 18 - [Former NFL QB Jay Cutler reportedly arrested for DUI, gun possession](https://sports.yahoo.com/former-nfl-qb-jay-cutler-reportedly-arrested-for-dui-gun-possession-135812918.html)
+- Oct 18 - [Mexican newspaper offices hit by gunfire in Sinaloa state's capital](https://finance.yahoo.com/news/mexican-newspaper-offices-hit-gunfire-160414625.html)
+- Oct 18 - [Man apparently shoots himself as Flagler Sheriff's Office attempts to arrest him](https://www.yahoo.com/news/man-apparently-shoots-himself-flagler-145240174.html)
+- Oct 18 - ["Horrible mess": Trump called out for "ungodly" profanity-laced tirade at Catholic event](https://www.yahoo.com/news/horrible-mess-trump-called-ungodly-135443587.html)
 - Oct 18 - [Striking photographs document environmental decay on world’s largest lake](https://www.yahoo.com/news/striking-photographs-document-environmental-decay-131547135.html)
-- Oct 18 - [Spirit Aero to furlough 700 workers for 21 days due to Boeing strike](https://finance.yahoo.com/news/exclusive-spirit-aero-furlough-700-123145191.html)
+- Oct 18 - [Stellantis Could Sell Off Struggling Brands As Soon As 2026](https://autos.yahoo.com/stellantis-could-sell-off-struggling-130500674.html)
 <!-- feed end -->
 
 ### Onstream
