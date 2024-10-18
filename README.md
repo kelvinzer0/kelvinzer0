@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Netflix Soars Over 10% on Strong Q3 Earnings With Big Hits and Bold Growth Plans](https://finance.yahoo.com/news/netflix-soars-over-10-strong-164841680.html)
-- Oct 18 - [‘Exhausted’ Trump Can’t Make It Through Interview in His Home](https://www.yahoo.com/entertainment/exhausted-trump-t-interview-home-163150412.html)
-- Oct 18 - [View Photos of the 2025 Porsche 911 GT3](https://autos.yahoo.com/view-photos-2025-porsche-911-163000179.html)
-- Oct 18 - [A drone found Hamas leader Yahya Sinwar. His DNA showed he hid with hostages](https://www.yahoo.com/news/drone-found-hamas-leader-yahya-161050623.html)
+- Oct 18 - [I Tried Walking With a Weighted Vest For a Week and Discovered a Transformative Low-Impact Workout](https://www.yahoo.com/lifestyle/tried-walking-weighted-vest-week-171800660.html)
+- Oct 18 - [UAW president Shawn Fain calls on members to authorize Stellantis strike](https://www.yahoo.com/news/uaw-president-shawn-fain-calls-145719814.html)
+- Oct 18 - [Russia returns 500 dead soldiers to Ukraine as world leaders mull next steps](https://www.yahoo.com/news/russia-returns-500-dead-soldiers-145658059.html)
 - Oct 18 - ["Horrible mess": Trump called out for "ungodly" profanity-laced tirade at Catholic event](https://www.yahoo.com/news/horrible-mess-trump-called-ungodly-135443587.html)
+- Oct 18 - [Striking photographs document environmental decay on world’s largest lake](https://www.yahoo.com/news/striking-photographs-document-environmental-decay-131547135.html)
 <!-- feed end -->
 
 ### Onstream
