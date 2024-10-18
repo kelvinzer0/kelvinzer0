@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [I Tried Walking With a Weighted Vest For a Week and Discovered a Transformative Low-Impact Workout](https://www.yahoo.com/lifestyle/tried-walking-weighted-vest-week-171800660.html)
-- Oct 18 - [UAW president Shawn Fain calls on members to authorize Stellantis strike](https://www.yahoo.com/news/uaw-president-shawn-fain-calls-145719814.html)
-- Oct 18 - [Russia returns 500 dead soldiers to Ukraine as world leaders mull next steps](https://www.yahoo.com/news/russia-returns-500-dead-soldiers-145658059.html)
-- Oct 18 - ["Horrible mess": Trump called out for "ungodly" profanity-laced tirade at Catholic event](https://www.yahoo.com/news/horrible-mess-trump-called-ungodly-135443587.html)
-- Oct 18 - [Striking photographs document environmental decay on world’s largest lake](https://www.yahoo.com/news/striking-photographs-document-environmental-decay-131547135.html)
+- Oct 18 - [Liam Payne's Cause Of Death Has Been Revealed In A Preliminary Autopsy](https://www.yahoo.com/entertainment/liam-paynes-cause-death-revealed-175227284.html)
+- Oct 18 - [Nvidia to be the first company to hit $4T market cap: Lumida CEO](https://finance.yahoo.com/video/nvidia-first-company-hit-4t-173033070.html)
+- Oct 18 - [I Tried Walking With A Weighted Vest For A Week And Discovered A Transformative Low-Impact Workout](https://www.yahoo.com/lifestyle/tried-walking-weighted-vest-week-171800660.html)
+- Oct 18 - [World’s largest arthropod lived 300 million years ago. Now, fossils show what it really looked like](https://www.yahoo.com/news/300-million-old-fossils-finally-155046154.html)
+- Oct 18 - [American Airlines is trying to make sure everyone boards when they're supposed to](https://www.yahoo.com/news/american-airlines-trying-sure-everyone-162728011.html)
 <!-- feed end -->
 
 ### Onstream
