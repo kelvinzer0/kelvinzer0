@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Mexican newspaper offices hit by gunfire in Sinaloa state's capital](https://finance.yahoo.com/news/mexican-newspaper-offices-hit-gunfire-160414625.html)
-- Oct 18 - [Man apparently shoots himself as Flagler Sheriff's Office attempts to arrest him](https://www.yahoo.com/news/man-apparently-shoots-himself-flagler-145240174.html)
+- Oct 18 - [Netflix Soars Over 10% on Strong Q3 Earnings With Big Hits and Bold Growth Plans](https://finance.yahoo.com/news/netflix-soars-over-10-strong-164841680.html)
+- Oct 18 - [‘Exhausted’ Trump Can’t Make It Through Interview in His Home](https://www.yahoo.com/entertainment/exhausted-trump-t-interview-home-163150412.html)
+- Oct 18 - [View Photos of the 2025 Porsche 911 GT3](https://autos.yahoo.com/view-photos-2025-porsche-911-163000179.html)
+- Oct 18 - [A drone found Hamas leader Yahya Sinwar. His DNA showed he hid with hostages](https://www.yahoo.com/news/drone-found-hamas-leader-yahya-161050623.html)
 - Oct 18 - ["Horrible mess": Trump called out for "ungodly" profanity-laced tirade at Catholic event](https://www.yahoo.com/news/horrible-mess-trump-called-ungodly-135443587.html)
-- Oct 18 - [Striking photographs document environmental decay on world’s largest lake](https://www.yahoo.com/news/striking-photographs-document-environmental-decay-131547135.html)
-- Oct 18 - [Stellantis Could Sell Off Struggling Brands As Soon As 2026](https://autos.yahoo.com/stellantis-could-sell-off-struggling-130500674.html)
 <!-- feed end -->
 
 ### Onstream
