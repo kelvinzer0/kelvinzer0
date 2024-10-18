@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [Bob Woodward Nails Alarming Donald Trump Trait That Cost Him 2020 Election ‘Landslide’](https://www.yahoo.com/news/bob-woodward-nails-alarming-donald-120121607.html)
+- Oct 18 - [9 monkeys who died in Hong Kong's zoo in 2 days had been infected with melioidosis, officials say](https://www.yahoo.com/news/9-monkeys-died-hong-kongs-112535025.html)
 - Oct 18 - [Hamas leader Sinwar made ‘critical mistake’ moments before he was killed](https://www.yahoo.com/news/hamas-leader-sinwar-made-critical-100313977.html)
-- Oct 18 - [David Lammy must not surrender to China](https://www.yahoo.com/news/david-lammy-must-not-surrender-095839300.html)
 - Oct 18 - [Lebanon issues rare rebuke to Iran over 'interference'](https://www.yahoo.com/news/lebanese-pm-says-rejects-iranian-082555629.html)
-- Oct 18 - [An American was reportedly kidnapped from a southern Philippine town and a search is underway](https://www.yahoo.com/news/american-reportedly-kidnapped-southern-philippine-040204933.html)
 - Oct 18 - [Trump Spews Profanity and Bizarre Insults at Catholic Charity Dinner](https://www.yahoo.com/news/trump-spews-profanity-bizarre-insults-035559819.html)
 <!-- feed end -->
 
