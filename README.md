@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [What is Odinism? The Delphi murders suspect claims a pagan cult is behind the killings](https://www.yahoo.com/news/odinism-delphi-murders-suspect-claims-115120360.html)
-- Oct 18 - [‘What the cluck!’: Doughnut shop abruptly closes two Charlotte-area stores](https://www.yahoo.com/news/cluck-doughnut-shop-abruptly-closes-122528585.html)
-- Oct 18 - [South Africa asks Taiwan to move its de facto embassy from Pretoria](https://www.yahoo.com/news/south-africa-asks-taiwan-move-114617225.html)
-- Oct 18 - [9 monkeys who died in Hong Kong's zoo in 2 days had been infected with melioidosis, officials say](https://www.yahoo.com/news/9-monkeys-died-hong-kongs-112535025.html)
-- Oct 18 - [Texas natural-gas pipeline eases bottlenecks, paves way for higher shale output](https://finance.yahoo.com/news/texas-natural-gas-pipeline-eases-101109164.html)
+- Oct 18 - [Man claimed eight-stone dog was a poodle after it killed his brother in ‘frenzied’ attack](https://www.yahoo.com/news/man-claimed-eight-stone-dog-142300709.html)
+- Oct 18 - [Watch A Shelby GT500 Absolutely Roast Police](https://autos.yahoo.com/watch-shelby-gt500-absolutely-roast-170000900.html)
+- Oct 18 - [Former NFL QB Jay Cutler reportedly arrested for DUI, gun possession](https://sports.yahoo.com/former-nfl-qb-jay-cutler-reportedly-arrested-for-dui-gun-possession-135812918.html)
+- Oct 18 - [Striking photographs document environmental decay on world’s largest lake](https://www.yahoo.com/news/striking-photographs-document-environmental-decay-131547135.html)
+- Oct 18 - [Spirit Aero to furlough 700 workers for 21 days due to Boeing strike](https://finance.yahoo.com/news/exclusive-spirit-aero-furlough-700-123145191.html)
 <!-- feed end -->
 
 ### Onstream
