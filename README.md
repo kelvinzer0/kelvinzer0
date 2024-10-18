@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [Liam Payne's cause of death confirmed in autopsy report: What is polytrauma?](https://www.yahoo.com/news/liam-paynes-cause-death-confirmed-011625840.html)
+- Oct 17 - [Developers designing Florida homes to withstand hurricanes](https://www.yahoo.com/news/developers-designing-florida-homes-withstand-235650054.html)
 - Oct 17 - [Watch: Yahya Sinwar throws stick at drone in desperate final moments](https://www.yahoo.com/news/watch-yahya-sinwar-throws-stick-231404066.html)
-- Oct 17 - [Israel Releases Video Said to Show Sinwar's 'Last Moments'](https://www.yahoo.com/news/israel-releases-video-said-show-220831308.html)
-- Oct 17 - [Oklahoma parents and teachers sue to stop top education official's classroom Bible mandate](https://www.yahoo.com/news/oklahoma-parents-teachers-sue-stop-204401870.html)
-- Oct 17 - [Browns announce plans to move from their lakefront stadium since 1999 to dome in the suburbs](https://sports.yahoo.com/cleveland-mayor-says-browns-owners-194509830.html)
-- Oct 17 - [Ferrari's $3.9M F80 is destined to become the 'ultimate collector's piece'](https://finance.yahoo.com/news/ferraris-39m-f80-is-destined-to-become-the-ultimate-collectors-piece-193629961.html)
+- Oct 17 - [Opinion: Ruben Gallego's divorce file blows up in Kari Lake's face](https://www.yahoo.com/news/opinion-ruben-gallegos-divorce-file-210849407.html)
+- Oct 17 - [Trump’s “Swiss” Watches Traced to Derelict Wyoming Strip Mall](https://www.yahoo.com/news/trump-swiss-watches-traced-derelict-204526177.html)
 <!-- feed end -->
 
 ### Onstream
