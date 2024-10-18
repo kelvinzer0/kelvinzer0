@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Bob Woodward Nails Alarming Donald Trump Trait That Cost Him 2020 Election ‘Landslide’](https://www.yahoo.com/news/bob-woodward-nails-alarming-donald-120121607.html)
+- Oct 18 - [The US Treasury is using AI (a vehicle for fraud) to detect fraud](https://www.yahoo.com/tech/the-us-treasury-is-using-ai-a-vehicle-for-fraud-to-detect-fraud-123845481.html)
+- Oct 18 - [Exclusive: Spirit Aero to furlough 700 workers for 21 days due to Boeing strike](https://finance.yahoo.com/news/exclusive-spirit-aero-furlough-700-123145191.html)
 - Oct 18 - [9 monkeys who died in Hong Kong's zoo in 2 days had been infected with melioidosis, officials say](https://www.yahoo.com/news/9-monkeys-died-hong-kongs-112535025.html)
 - Oct 18 - [Hamas leader Sinwar made ‘critical mistake’ moments before he was killed](https://www.yahoo.com/news/hamas-leader-sinwar-made-critical-100313977.html)
 - Oct 18 - [Lebanon issues rare rebuke to Iran over 'interference'](https://www.yahoo.com/news/lebanese-pm-says-rejects-iranian-082555629.html)
-- Oct 18 - [Trump Spews Profanity and Bizarre Insults at Catholic Charity Dinner](https://www.yahoo.com/news/trump-spews-profanity-bizarre-insults-035559819.html)
 <!-- feed end -->
 
 ### Onstream
