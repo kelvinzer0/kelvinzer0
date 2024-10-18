@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Ukraine's army brigades battle to make enlisting 'sexy'](https://www.yahoo.com/news/ukraines-army-brigades-battle-enlisting-092029746.html)
+- Oct 18 - [Hamas leader Sinwar made ‘critical mistake’ moments before he was killed](https://www.yahoo.com/news/hamas-leader-sinwar-made-critical-100313977.html)
+- Oct 18 - [David Lammy must not surrender to China](https://www.yahoo.com/news/david-lammy-must-not-surrender-095839300.html)
 - Oct 18 - [Lebanon issues rare rebuke to Iran over 'interference'](https://www.yahoo.com/news/lebanese-pm-says-rejects-iranian-082555629.html)
 - Oct 18 - [An American was reportedly kidnapped from a southern Philippine town and a search is underway](https://www.yahoo.com/news/american-reportedly-kidnapped-southern-philippine-040204933.html)
 - Oct 18 - [Trump Spews Profanity and Bizarre Insults at Catholic Charity Dinner](https://www.yahoo.com/news/trump-spews-profanity-bizarre-insults-035559819.html)
-- Oct 18 - [Surviving Hamas leaders ‘dead men walking’: Son of Hamas founder](https://www.yahoo.com/news/surviving-hamas-leaders-dead-men-032626149.html)
 <!-- feed end -->
 
 ### Onstream
