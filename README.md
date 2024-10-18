@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Liam Payne's Cause Of Death Has Been Revealed In A Preliminary Autopsy](https://www.yahoo.com/entertainment/liam-paynes-cause-death-revealed-175227284.html)
-- Oct 18 - [Nvidia to be the first company to hit $4T market cap: Lumida CEO](https://finance.yahoo.com/video/nvidia-first-company-hit-4t-173033070.html)
-- Oct 18 - [I Tried Walking With A Weighted Vest For A Week And Discovered A Transformative Low-Impact Workout](https://www.yahoo.com/lifestyle/tried-walking-weighted-vest-week-171800660.html)
-- Oct 18 - [World’s largest arthropod lived 300 million years ago. Now, fossils show what it really looked like](https://www.yahoo.com/news/300-million-old-fossils-finally-155046154.html)
-- Oct 18 - [American Airlines is trying to make sure everyone boards when they're supposed to](https://www.yahoo.com/news/american-airlines-trying-sure-everyone-162728011.html)
+- Oct 18 - [Cuba’s electrical grid goes offline after one of the island's major power plant fails](https://www.yahoo.com/news/cuba-electrical-grid-goes-offline-200729685.html)
+- Oct 18 - [‘I Started Semaglutide At 52 After Struggling With My Weight During Perimenopause - Now I'm Down Over 30 Pounds'](https://www.yahoo.com/lifestyle/started-semaglutide-52-struggling-weight-190300510.html)
+- Oct 18 - [I’m lucky to be alive, says man attacked by ‘sexually frustrated’ dolphin](https://www.yahoo.com/news/m-lucky-alive-says-man-185133890.html)
+- Oct 18 - [New evidence unsealed of how Trump's Jan. 6, 2021 rally was funded](https://www.yahoo.com/news/evidence-unsealed-trumps-jan-6-184557339.html)
+- Oct 18 - [Dividend Investor Making $1,000 Per Month With Just $40,000 Invested Shares His 'Hyper Dividend' Portfolio: Top 9 Stocks and ETFs](https://finance.yahoo.com/news/dividend-investor-making-1-000-180015814.html)
 <!-- feed end -->
 
 ### Onstream
