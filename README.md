@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [The WordPress vs. WP Engine drama, explained](https://finance.yahoo.com/news/wordpress-vs-wp-engine-drama-164553560.html)
+- Oct 19 - [School district employee accused of killing her sister, 62, and dumping remains in river](https://www.yahoo.com/news/school-district-employee-accused-killing-190431632.html)
 - Oct 19 - [What Ukraine should expect from North Korean special forces on the battlefield](https://www.yahoo.com/news/ukraine-expect-north-korean-special-162046335.html)
-- Oct 19 - [Voter finds out why he was turned away at Charlotte polling site](https://www.yahoo.com/news/voter-finds-why-turned-away-011648947.html)
 - Oct 19 - [Mail carriers reach tentative contract with USPS that includes pay raises and air-conditioned trucks](https://www.yahoo.com/news/mail-carriers-reach-tentative-contract-153250056.html)
 - Oct 19 - ['I'm a Urogynecologist—If Your Pee Is This Color, You Need to See a Doctor ASAP'](https://www.yahoo.com/lifestyle/im-urogynecologist-pee-color-see-142500492.html)
+- Oct 19 - [Israel drops leaflets over Gaza showing Sinwar's body and message to Hamas](https://www.yahoo.com/news/israeli-strikes-kill-32-gaza-115148446.html)
 <!-- feed end -->
 
 ### Onstream
