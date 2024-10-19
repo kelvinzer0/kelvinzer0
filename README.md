@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Rattlesnake discovered in Arizona backyard – can you see it?](https://www.yahoo.com/lifestyle/rattlesnake-discovered-arizona-backyard-see-160258535.html)
-- Oct 19 - [Teenager charged with murder of Kieran Shepherd](https://www.yahoo.com/news/teenager-charged-murder-kieran-shepherd-153555926.html)
+- Oct 19 - [I’m a Real Estate Agent: 5 Reasons You Should or Shouldn’t Make Major Upgrades Before You Sell Your House](https://finance.yahoo.com/news/m-real-estate-agent-5-170110323.html)
+- Oct 19 - [Mail carriers reach tentative contract with USPS that includes pay raises and airconditioned trucks](https://www.yahoo.com/news/mail-carriers-reach-tentative-contract-153250056.html)
 - Oct 19 - [Boeing offers 35% pay hike over four years to end machinists' strike](https://finance.yahoo.com/news/boeing-workers-vote-proposal-could-143553842.html)
-- Oct 19 - [‘I retired earlier than planned’: I’m 69 and will have $6,000 a month in retirement income. The bulk of my $3.6 million is equities. Is that OK?](https://finance.yahoo.com/news/retired-earlier-planned-m-69-231600935.html)
-- Oct 19 - [Israel drops leaflets over Gaza showing Sinwar's body and message to Hamas](https://www.yahoo.com/news/israeli-strikes-kill-32-gaza-115148446.html)
+- Oct 19 - ['I'm a Urogynecologist—If Your Pee Is This Color, You Need to See a Doctor ASAP'](https://www.yahoo.com/lifestyle/im-urogynecologist-pee-color-see-142500492.html)
+- Oct 19 - [3 dead 8 more injured in Mississippi trail ride shooting after homecoming game](https://www.yahoo.com/news/3-dead-8-more-injured-142349292.html)
 <!-- feed end -->
 
 ### Onstream
