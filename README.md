@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [How one warship thwarting a Houthi attack a year ago changed the Navy](https://www.yahoo.com/news/one-warship-thwarting-houthi-attack-120100532.html)
+- Oct 19 - [Arm Holdings plc (ARM) Teams Up with Industry Leaders to Launch Advanced AI CPU Chiplet Platform for Cloud and HPC Applications](https://finance.yahoo.com/news/arm-holdings-plc-arm-teams-153946418.html)
+- Oct 19 - [Mail carriers reach tentative contract with USPS that includes pay raises and airconditioned trucks](https://www.yahoo.com/news/mail-carriers-reach-tentative-contract-153250056.html)
+- Oct 19 - [3 dead, 8 injured in Mississippi trail ride shooting; suspects being sought](https://www.yahoo.com/news/3-dead-8-injured-mississippi-152246452.html)
+- Oct 19 - [Boeing offers 35% pay hike over four years to end machinists' strike](https://finance.yahoo.com/news/boeing-workers-vote-proposal-could-143553900.html)
 - Oct 19 - [Israel drops leaflets over Gaza showing Sinwar's body and message to Hamas](https://www.yahoo.com/news/israeli-strikes-kill-32-gaza-115148446.html)
-- Oct 19 - [SEAL Team 6 is said to be training for a fight with China over Taiwan. Here's what it could do if Beijing invades.](https://www.yahoo.com/news/seal-team-6-said-training-114701185.html)
-- Oct 19 - [‘At 60 I’m working as a postman because my buy-to-lets are making a loss’](https://finance.yahoo.com/news/60-m-working-postman-because-060000259.html)
-- Oct 19 - [Israel unearths Hezbollah's web of tunnels in southern Lebanon](https://www.yahoo.com/news/israel-unearths-hezbollahs-tunnels-southern-040140897.html)
 <!-- feed end -->
 
 ### Onstream
