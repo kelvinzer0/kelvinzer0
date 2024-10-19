@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Mega Millions winning numbers for October 18 drawing: Jackpot rises to $185 million](https://www.yahoo.com/news/mega-millions-winning-numbers-october-010050684.html)
+- Oct 19 - [A failed mic leaves Donald Trump pacing the stage in silence for nearly 20 minutes](https://www.yahoo.com/news/failed-mic-leaves-donald-trump-003623940.html)
 - Oct 18 - ['Lieutenant Dan,' who gained fame riding out hurricanes on boat, is arrested in Florida](https://www.yahoo.com/news/lieutenant-dan-gained-fame-riding-234213597.html)
-- Oct 18 - [Spending caps lifted in all but two Chicago school board races](https://www.yahoo.com/news/spending-caps-lifted-two-chicago-224700558.html)
-- Oct 18 - [Charlotte Catholic High School confirms expulsions, suspensions after locker room bullying](https://www.yahoo.com/news/charlotte-catholic-high-school-confirms-213040287.html)
+- Oct 18 - [Super Micro Computer (SMCI) Stock Declines While Market Improves: Some Information for Investors](https://finance.yahoo.com/news/super-micro-computer-smci-stock-214521092.html)
 - Oct 18 - [Striking Boeing machinists' union in indirect talks with company, helped by US government](https://finance.yahoo.com/news/striking-union-active-indirect-discussions-204048079.html)
+- Oct 18 - [Stop & Shop announces closing date for 7 Mass. locations, storewide discounts for customers](https://finance.yahoo.com/news/stop-shop-announces-closing-date-195626202.html)
 <!-- feed end -->
 
 ### Onstream
