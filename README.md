@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [Up 35% in 3 Months, This Tech Stock Could Become the Next Big Artificial Intelligence (AI) Play](https://finance.yahoo.com/news/35-3-months-tech-stock-210000872.html)
 - Oct 19 - [Widow of NASCAR legend Dale Earnhardt reveals plans for her vast landholdings](https://finance.yahoo.com/news/widow-nascar-legend-dale-earnhardt-185856720.html)
+- Oct 19 - [Murder suspect ‘deliberately cruel’ in Melissa Jubane’s final moments, prosecutors say](https://www.yahoo.com/news/murder-suspect-deliberately-cruel-melissa-181417116.html)
+- Oct 19 - [What Ukraine should expect from North Korean special forces on the battlefield](https://www.yahoo.com/news/ukraine-expect-north-korean-special-162046335.html)
 - Oct 19 - [Voter finds out why he was turned away at Charlotte polling site](https://www.yahoo.com/news/voter-finds-why-turned-away-011648947.html)
-- Oct 19 - [Boeing workers to vote on new wage deal that could end strike](https://finance.yahoo.com/news/boeing-workers-vote-proposal-could-143553842.html)
-- Oct 19 - ['I'm a Urogynecologist—If Your Pee Is This Color, You Need to See a Doctor ASAP'](https://www.yahoo.com/lifestyle/im-urogynecologist-pee-color-see-142500492.html)
-- Oct 19 - [These Pets Were Abandoned by Their Owners](https://www.yahoo.com/news/pets-were-abandoned-owners-140053714.html)
 <!-- feed end -->
 
 ### Onstream
