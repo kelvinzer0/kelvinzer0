@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [Orange County lieutenant killed by estranged husband, a former deputy, Sheriff’s Office says](https://www.yahoo.com/news/orange-county-lieutenant-killed-estranged-210745260.html)
 - Oct 19 - [A failed mic leaves Donald Trump pacing the stage in silence for nearly 20 minutes](https://www.yahoo.com/news/failed-mic-leaves-donald-trump-003623940.html)
 - Oct 18 - ['Lieutenant Dan,' who gained fame riding out hurricanes on boat, is arrested in Florida](https://www.yahoo.com/news/lieutenant-dan-gained-fame-riding-234213597.html)
-- Oct 18 - [Super Micro Computer (SMCI) Stock Declines While Market Improves: Some Information for Investors](https://finance.yahoo.com/news/super-micro-computer-smci-stock-214521092.html)
+- Oct 18 - [Montana GOP candidate who could flip control of Senate nagged by claims he lied about bullet wound](https://www.yahoo.com/news/montana-gop-candidate-could-flip-230041710.html)
 - Oct 18 - [Striking Boeing machinists' union in indirect talks with company, helped by US government](https://finance.yahoo.com/news/striking-union-active-indirect-discussions-204048079.html)
-- Oct 18 - [Stop & Shop announces closing date for 7 Mass. locations, storewide discounts for customers](https://finance.yahoo.com/news/stop-shop-announces-closing-date-195626202.html)
 <!-- feed end -->
 
 ### Onstream
