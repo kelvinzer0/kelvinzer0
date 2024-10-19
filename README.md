@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Marjorie Taylor Greene says Covid vaccines may be responsible for ‘all time high’ cancer rates](https://www.yahoo.com/news/marjorie-taylor-greene-says-covid-034433987.html)
+- Oct 19 - [Israel unearths Hezbollah's web of tunnels in southern Lebanon](https://www.yahoo.com/news/israel-unearths-hezbollahs-tunnels-southern-040140897.html)
 - Oct 19 - [A failed mic leaves Donald Trump pacing the stage in silence for nearly 20 minutes](https://www.yahoo.com/news/failed-mic-leaves-donald-trump-003623940.html)
 - Oct 18 - ['Lieutenant Dan,' who gained fame riding out hurricanes on boat, is arrested in Florida](https://www.yahoo.com/news/lieutenant-dan-gained-fame-riding-234213597.html)
 - Oct 18 - [Montana GOP candidate who could flip control of Senate nagged by claims he lied about bullet wound](https://www.yahoo.com/news/montana-gop-candidate-could-flip-230041710.html)
-- Oct 18 - [Charlotte Catholic High School confirms expulsions, suspensions after locker room bullying](https://www.yahoo.com/news/charlotte-catholic-high-school-confirms-213040287.html)
+- Oct 18 - [Striking Boeing machinists' union in indirect talks with company, helped by US government](https://finance.yahoo.com/news/striking-union-active-indirect-discussions-204048079.html)
 <!-- feed end -->
 
 ### Onstream
