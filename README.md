@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Britain's King Charles gets Australia honorary rank before naval review](https://www.yahoo.com/news/britains-king-charles-gets-australia-064555133.html)
 - Oct 19 - [Israel unearths Hezbollah's web of tunnels in southern Lebanon](https://www.yahoo.com/news/israel-unearths-hezbollahs-tunnels-southern-040140897.html)
 - Oct 19 - [Marjorie Taylor Greene says Covid vaccines may be responsible for ‘all time high’ cancer rates](https://www.yahoo.com/news/marjorie-taylor-greene-says-covid-034433341.html)
+- Oct 19 - [Union City family loses life savings in home burglary](https://www.yahoo.com/news/union-city-family-loses-life-020235041.html)
 - Oct 19 - [A failed mic leaves Donald Trump pacing the stage in silence for nearly 20 minutes](https://www.yahoo.com/news/failed-mic-leaves-donald-trump-003623940.html)
 - Oct 18 - ['Lieutenant Dan,' who gained fame riding out hurricanes on boat, is arrested in Florida](https://www.yahoo.com/news/lieutenant-dan-gained-fame-riding-234213597.html)
 <!-- feed end -->
