@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Why city of Topeka is seeking a new trial in gender discrimination suit it lost](https://www.yahoo.com/news/why-city-topeka-seeking-trial-090948186.html)
-- Oct 19 - [Results from every San Angelo, Concho Valley and West Texas high school football game in Week 8](https://sports.yahoo.com/results-every-san-angelo-concho-090403145.html)
+- Oct 19 - [How to watch the 2024 United States Grand Prix online for free](https://www.yahoo.com/entertainment/watch-2024-united-states-grand-043000374.html)
+- Oct 19 - [Colorado man’s property tax doubled, despite home having burned to the ground — why taxes are suddenly soaring](https://finance.yahoo.com/news/colorado-man-property-tax-doubled-100300293.html)
 - Oct 19 - [Billionaires Are Buying a BlackRock Index Fund That Could Soar Up to 73,000%, According to Wall Street Experts](https://finance.yahoo.com/news/billionaires-buying-blackrock-index-fund-074500903.html)
-- Oct 19 - [Drone strike launched toward Israeli prime minister's house. At least 50 killed in strikes on Gaza](https://www.yahoo.com/news/strike-launched-toward-israeli-prime-073725466.html)
 - Oct 19 - [Israel unearths Hezbollah's web of tunnels in southern Lebanon](https://www.yahoo.com/news/israel-unearths-hezbollahs-tunnels-southern-040140897.html)
+- Oct 19 - [A failed mic leaves Donald Trump pacing the stage in silence for nearly 20 minutes](https://www.yahoo.com/news/failed-mic-leaves-donald-trump-003623940.html)
 <!-- feed end -->
 
 ### Onstream
