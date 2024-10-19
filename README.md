@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Arm Holdings plc (ARM) Teams Up with Industry Leaders to Launch Advanced AI CPU Chiplet Platform for Cloud and HPC Applications](https://finance.yahoo.com/news/arm-holdings-plc-arm-teams-153946418.html)
-- Oct 19 - [Mail carriers reach tentative contract with USPS that includes pay raises and airconditioned trucks](https://www.yahoo.com/news/mail-carriers-reach-tentative-contract-153250056.html)
-- Oct 19 - [3 dead, 8 injured in Mississippi trail ride shooting; suspects being sought](https://www.yahoo.com/news/3-dead-8-injured-mississippi-152246452.html)
-- Oct 19 - [Boeing offers 35% pay hike over four years to end machinists' strike](https://finance.yahoo.com/news/boeing-workers-vote-proposal-could-143553900.html)
+- Oct 19 - [Rattlesnake discovered in Arizona backyard – can you see it?](https://www.yahoo.com/lifestyle/rattlesnake-discovered-arizona-backyard-see-160258535.html)
+- Oct 19 - [Teenager charged with murder of Kieran Shepherd](https://www.yahoo.com/news/teenager-charged-murder-kieran-shepherd-153555926.html)
+- Oct 19 - [Boeing offers 35% pay hike over four years to end machinists' strike](https://finance.yahoo.com/news/boeing-workers-vote-proposal-could-143553842.html)
+- Oct 19 - [‘I retired earlier than planned’: I’m 69 and will have $6,000 a month in retirement income. The bulk of my $3.6 million is equities. Is that OK?](https://finance.yahoo.com/news/retired-earlier-planned-m-69-231600935.html)
 - Oct 19 - [Israel drops leaflets over Gaza showing Sinwar's body and message to Hamas](https://www.yahoo.com/news/israeli-strikes-kill-32-gaza-115148446.html)
 <!-- feed end -->
 
