@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [How to watch the 2024 United States Grand Prix online for free](https://www.yahoo.com/entertainment/watch-2024-united-states-grand-043000374.html)
-- Oct 19 - [Colorado man’s property tax doubled, despite home having burned to the ground — why taxes are suddenly soaring](https://finance.yahoo.com/news/colorado-man-property-tax-doubled-100300293.html)
-- Oct 19 - [Billionaires Are Buying a BlackRock Index Fund That Could Soar Up to 73,000%, According to Wall Street Experts](https://finance.yahoo.com/news/billionaires-buying-blackrock-index-fund-074500903.html)
+- Oct 19 - [The Smartest Crypto ETF to Buy With $50 Right Now](https://finance.yahoo.com/news/smartest-crypto-etf-buy-50-114700412.html)
+- Oct 19 - [Homeowners are stuck in this Florida city damaged by violent weather — many want to sell, but buyers are scarce](https://finance.yahoo.com/news/homeowners-stuck-florida-city-damaged-105500281.html)
 - Oct 19 - [Israel unearths Hezbollah's web of tunnels in southern Lebanon](https://www.yahoo.com/news/israel-unearths-hezbollahs-tunnels-southern-040140897.html)
+- Oct 19 - [Marjorie Taylor Greene says Covid vaccines may be responsible for ‘all time high’ cancer rates](https://www.yahoo.com/news/marjorie-taylor-greene-says-covid-034433341.html)
 - Oct 19 - [A failed mic leaves Donald Trump pacing the stage in silence for nearly 20 minutes](https://www.yahoo.com/news/failed-mic-leaves-donald-trump-003623940.html)
 <!-- feed end -->
 
