@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [How one warship thwarting a Houthi attack a year ago changed the Navy](https://www.yahoo.com/news/one-warship-thwarting-houthi-attack-120100532.html)
 - Oct 19 - [Israel drops leaflets over Gaza showing Sinwar's body and message to Hamas](https://www.yahoo.com/news/israeli-strikes-kill-32-gaza-115148446.html)
-- Oct 19 - [California foster dad of several Turpin children is sentenced to 7 years for child abuse](https://www.yahoo.com/news/california-foster-dad-several-turpin-093534982.html)
-- Oct 19 - [Billionaires Are Buying a BlackRock Index Fund That Could Soar Up to 73,000%, According to Wall Street Experts](https://finance.yahoo.com/news/billionaires-buying-blackrock-index-fund-074500903.html)
+- Oct 19 - [SEAL Team 6 is said to be training for a fight with China over Taiwan. Here's what it could do if Beijing invades.](https://www.yahoo.com/news/seal-team-6-said-training-114701185.html)
+- Oct 19 - [‘At 60 I’m working as a postman because my buy-to-lets are making a loss’](https://finance.yahoo.com/news/60-m-working-postman-because-060000259.html)
 - Oct 19 - [Israel unearths Hezbollah's web of tunnels in southern Lebanon](https://www.yahoo.com/news/israel-unearths-hezbollahs-tunnels-southern-040140897.html)
-- Oct 19 - [North Korean troops fighting in Ukraine is ‘scary’: Military expert | Cuomo](https://www.yahoo.com/news/north-korean-troops-fighting-ukraine-012448970.html)
 <!-- feed end -->
 
 ### Onstream
