@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [I’m a Real Estate Agent: 5 Reasons You Should or Shouldn’t Make Major Upgrades Before You Sell Your House](https://finance.yahoo.com/news/m-real-estate-agent-5-170110323.html)
-- Oct 19 - [Mail carriers reach tentative contract with USPS that includes pay raises and airconditioned trucks](https://www.yahoo.com/news/mail-carriers-reach-tentative-contract-153250056.html)
-- Oct 19 - [Boeing offers 35% pay hike over four years to end machinists' strike](https://finance.yahoo.com/news/boeing-workers-vote-proposal-could-143553842.html)
+- Oct 19 - [The WordPress vs. WP Engine drama, explained](https://finance.yahoo.com/news/wordpress-vs-wp-engine-drama-164553560.html)
+- Oct 19 - [What Ukraine should expect from North Korean special forces on the battlefield](https://www.yahoo.com/news/ukraine-expect-north-korean-special-162046335.html)
+- Oct 19 - [Voter finds out why he was turned away at Charlotte polling site](https://www.yahoo.com/news/voter-finds-why-turned-away-011648947.html)
+- Oct 19 - [Mail carriers reach tentative contract with USPS that includes pay raises and air-conditioned trucks](https://www.yahoo.com/news/mail-carriers-reach-tentative-contract-153250056.html)
 - Oct 19 - ['I'm a Urogynecologist—If Your Pee Is This Color, You Need to See a Doctor ASAP'](https://www.yahoo.com/lifestyle/im-urogynecologist-pee-color-see-142500492.html)
-- Oct 19 - [3 dead 8 more injured in Mississippi trail ride shooting after homecoming game](https://www.yahoo.com/news/3-dead-8-more-injured-142349292.html)
 <!-- feed end -->
 
 ### Onstream
