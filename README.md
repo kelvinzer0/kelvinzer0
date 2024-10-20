@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [I Just Snort-Laughed At These 23 Hilarious Job Tweets From Last Week](https://www.yahoo.com/entertainment/just-snort-laughed-23-hilarious-201711645.html)
+- Oct 20 - [A baby’s body was found inside a shopping bag 30 years ago. A 60-year-old mom has been arrested on suspicion of murder](https://www.yahoo.com/news/baby-body-found-inside-shopping-200927173.html)
 - Oct 20 - [Democrat Julie von Haefen, candidate for NC House District 36, answers our questions](https://www.yahoo.com/news/democrat-julie-von-haefen-candidate-195615606.html)
-- Oct 20 - [One dead as flooding hits Italy's northeast flatlands](https://www.yahoo.com/news/one-dead-flooding-hits-italys-193320186.html)
 - Oct 20 - [2 Navy aviators are declared dead after a fighter jet crashed in Washington state](https://www.yahoo.com/news/2-navy-aviators-found-dead-191554176.html)
 - Oct 20 - [Al Pacino Went Broke After Blowing $50 Million on 16 Cars, 23 Cellphones And $400K For Landscaping: 'I Didn't Understand How Money Worked'](https://finance.yahoo.com/news/al-pacino-went-broke-blowing-183019126.html)
-- Oct 20 - [Trump cooks fries at McDonald's as he attempts to cast doubt on Harris' earlier employment at the chain](https://www.yahoo.com/news/trump-cooks-fries-mcdonalds-attempts-182819944.html)
 <!-- feed end -->
 
 ### Onstream
