@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Texas man pulled over while test driving a truck — got a ticket because dealership didn’t attach a license plate](https://finance.yahoo.com/news/texas-man-pulled-over-while-111700693.html)
-- Oct 20 - [5 Luxury Cars Retirees Should Consider Buying Before Christmas](https://finance.yahoo.com/news/5-luxury-cars-retirees-consider-110101880.html)
+- Oct 20 - [I’m 61 and Hurricane Helene flooded my North Carolina home. My wife and I are safe, but what’s next?](https://finance.yahoo.com/news/m-61-hurricane-helene-flooded-103300480.html)
+- Oct 20 - [Cuba suffers third major setback in restoring power to island, millions still in dark](https://www.yahoo.com/news/cuba-suffers-third-major-setback-074214386.html)
 - Oct 20 - [Trump’s ‘Schlonged’ Comment Nearly Broke ‘SNL’s’ Colin Jost](https://www.yahoo.com/entertainment/trump-schlonged-nearly-broke-snl-051629950.html)
+- Oct 20 - [Unconventional relationship holds answers to violent Florida murder](https://www.yahoo.com/news/unconventional-relationship-holds-answers-violent-030500540.html)
 - Oct 20 - [Elon Musk promises to award $1 million each day to a signer of his petition](https://www.yahoo.com/news/elon-musk-promises-award-1-025703357.html)
-- Oct 20 - [Trump kicks off a Pennsylvania rally by talking about Arnold Palmer's genitalia](https://www.yahoo.com/news/trump-kicks-off-pennsylvania-rally-002407246.html)
 <!-- feed end -->
 
 ### Onstream
