@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [A Telegram group posted what it calls 'highly classified' US documents about Israel's attack plans](https://www.yahoo.com/news/telegram-group-posted-calls-highly-210630839.html)
-- Oct 19 - [Perseverance Rover Spotted During Flight 51 Due to Helicopter's Ingenuity](https://www.yahoo.com/news/mars-helicopter-ingenuity-spots-perseverance-210000401.html)
-- Oct 19 - [Widow of NASCAR legend Dale Earnhardt reveals plans for her vast landholdings](https://finance.yahoo.com/news/widow-nascar-legend-dale-earnhardt-185856720.html)
-- Oct 19 - [What Ukraine should expect from North Korean special forces on the battlefield](https://www.yahoo.com/news/ukraine-expect-north-korean-special-162046335.html)
-- Oct 19 - [Boeing workers to vote on new wage deal that could end strike](https://finance.yahoo.com/news/boeing-workers-vote-proposal-could-143553842.html)
+- Oct 20 - [Georgia residents reminded to use FEMA grant money wisely after weather emergencies](https://www.yahoo.com/news/georgia-residents-reminded-fema-grant-003658281.html)
+- Oct 20 - [Trump kicks off a Pennsylvania rally by talking about Arnold Palmer's genitalia](https://www.yahoo.com/news/trump-kicks-off-pennsylvania-rally-002407246.html)
+- Oct 20 - [3 killed and 8 injured in a mass shooting after a homecoming game in Mississippi](https://www.yahoo.com/news/3-killed-8-injured-mass-232714212.html)
+- Oct 20 - [Rain chances rise as we finish out the weekend](https://www.yahoo.com/news/rain-chances-rise-finish-weekend-000421503.html)
+- Oct 19 - [Justin Trudeau Testifies That Russia Funded Tucker Carlson and Jordan Peterson in Support of Their Anti-Vax Covid Claims | Video](https://www.yahoo.com/news/justin-trudeau-testifies-russia-funded-222627036.html)
 <!-- feed end -->
 
 ### Onstream
