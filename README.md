@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Japan's beloved former Empress Michiko marks her 90th birthday as she recovers from a broken leg](https://www.yahoo.com/news/japans-beloved-former-empress-michiko-053900976.html)
+- Oct 20 - [Indian ex-official indicted by US dismisses allegations, family says](https://finance.yahoo.com/news/indian-ex-official-indicted-us-064855674.html)
 - Oct 20 - [Elon Musk promises to award $1 million each day to a signer of his petition](https://www.yahoo.com/news/elon-musk-promises-award-1-025703357.html)
 - Oct 20 - [Trump kicks off a Pennsylvania rally by talking about Arnold Palmer's genitalia](https://www.yahoo.com/news/trump-kicks-off-pennsylvania-rally-002407246.html)
+- Oct 20 - [Saint Louis University lays off 23 staff members](https://www.yahoo.com/news/saint-louis-university-lays-off-001127702.html)
 - Oct 19 - [Elliott, Southwest Airlines to begin settlement discussions, Bloomberg News reports](https://finance.yahoo.com/news/activist-elliott-southwest-begin-settlement-231345824.html)
-- Oct 19 - [NYC-bound Boeing 767 makes emergency stop during take-off in Senegal](https://finance.yahoo.com/news/nyc-bound-boeing-767-makes-224137827.html)
 <!-- feed end -->
 
 ### Onstream
