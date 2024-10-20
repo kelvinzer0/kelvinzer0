@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [I’m 61 and Hurricane Helene flooded my North Carolina home. My wife and I are safe, but what’s next?](https://finance.yahoo.com/news/m-61-hurricane-helene-flooded-103300480.html)
-- Oct 20 - [Cuba suffers third major setback in restoring power to island, millions still in dark](https://www.yahoo.com/news/cuba-suffers-third-major-setback-074214386.html)
-- Oct 20 - [Trump’s ‘Schlonged’ Comment Nearly Broke ‘SNL’s’ Colin Jost](https://www.yahoo.com/entertainment/trump-schlonged-nearly-broke-snl-051629950.html)
-- Oct 20 - [Unconventional relationship holds answers to violent Florida murder](https://www.yahoo.com/news/unconventional-relationship-holds-answers-violent-030500540.html)
-- Oct 20 - [Elon Musk promises to award $1 million each day to a signer of his petition](https://www.yahoo.com/news/elon-musk-promises-award-1-025703357.html)
+- Oct 20 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
+- Oct 20 - [Fact Check: Pics Claiming To Show Apartment Building in China With 30K Residents Are Real, But Occupancy Is Unclear](https://www.yahoo.com/news/fact-check-pics-claiming-show-130000318.html)
+- Oct 20 - [Early morning fire shuts down Highway 101 lanes through Pismo Beach](https://www.yahoo.com/news/early-morning-fire-shuts-down-102428211.html)
+- Oct 20 - [How an F-22 fighter pilot transforms the stealth jet's combat capabilities into a soaring spectacle](https://www.yahoo.com/news/f-22-fighter-pilot-transforms-102301742.html)
+- Oct 20 - [Boeing’s CEO Is Shrinking the Jet Maker to Stop Its Crisis From Spiraling](https://finance.yahoo.com/news/boeing-ceo-shrinking-jet-maker-093000195.html)
 <!-- feed end -->
 
 ### Onstream
