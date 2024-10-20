@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Indian retail group seeks antitrust probe of quick commerce companies Swiggy, Blinkit, Zepto](https://finance.yahoo.com/news/indian-retail-group-seeks-antitrust-152927954.html)
+- Oct 20 - [Hurricane tracker on Oscar path: Spaghetti models, possible impacts to Cuba, Florida](https://www.yahoo.com/news/hurricane-tracker-oscar-path-spaghetti-164209189.html)
+- Oct 20 - [Fatal explosion: Roof 'came off' after 'mighty bang'](https://www.yahoo.com/news/fatal-explosion-roof-came-off-125929201.html)
+- Oct 20 - [Sen. Lindsey Graham to Republicans supporting Harris: ‘What the hell are you doing?’](https://www.yahoo.com/news/sen-lindsey-graham-republicans-supporting-155006261.html)
 - Oct 20 - [Arnold Palmer Was ‘Appalled’ by ‘Crude’ Trump, Who Praised the Late Golfer’s Genitals](https://www.yahoo.com/entertainment/arnold-palmer-appalled-crude-trump-135547487.html)
 - Oct 20 - [Israel to take legal action against Macron over naval trade show ban](https://www.yahoo.com/news/israel-legal-action-against-macron-135340283.html)
-- Oct 20 - [North Korea threatens four EU states over sanctions monitoring group](https://www.yahoo.com/news/north-korea-threatens-four-eu-132458917.html)
-- Oct 20 - [Fact Check: Pics Claiming To Show Apartment Building in China With 30K Residents Are Real, But Occupancy Is Unclear](https://www.yahoo.com/news/fact-check-pics-claiming-show-130000318.html)
 <!-- feed end -->
 
 ### Onstream
