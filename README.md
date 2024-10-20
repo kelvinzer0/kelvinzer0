@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Mesilla marshals arrest woman, allege she is ‘serial fraudster’](https://www.yahoo.com/news/mesilla-marshals-arrest-woman-allege-165414381.html)
-- Oct 20 - [Storm tracker: Why Hurricane Oscar could lead to 'humanitarian crisis'](https://www.yahoo.com/news/storm-tracker-why-hurricane-oscar-160610156.html)
-- Oct 20 - [Boeing sells small defense surveillance unit to Thales](https://finance.yahoo.com/news/boeing-sells-small-defense-surveillance-155236116.html)
-- Oct 20 - [Sen. Lindsey Graham to Republicans supporting Harris: ‘What the hell are you doing?’](https://www.yahoo.com/news/sen-lindsey-graham-republicans-supporting-155006261.html)
-- Oct 20 - [Details of how Israel's purported preparations for Iran attack leaked, explained](https://www.yahoo.com/news/details-israels-purported-preparations-iran-152931675.html)
+- Oct 20 - [Democrat Julie von Haefen, candidate for NC House District 36, answers our questions](https://www.yahoo.com/news/democrat-julie-von-haefen-candidate-195615606.html)
+- Oct 20 - [One dead as flooding hits Italy's northeast flatlands](https://www.yahoo.com/news/one-dead-flooding-hits-italys-193320186.html)
+- Oct 20 - [2 Navy aviators are declared dead after a fighter jet crashed in Washington state](https://www.yahoo.com/news/2-navy-aviators-found-dead-191554176.html)
+- Oct 20 - [Al Pacino Went Broke After Blowing $50 Million on 16 Cars, 23 Cellphones And $400K For Landscaping: 'I Didn't Understand How Money Worked'](https://finance.yahoo.com/news/al-pacino-went-broke-blowing-183019126.html)
+- Oct 20 - [Trump cooks fries at McDonald's as he attempts to cast doubt on Harris' earlier employment at the chain](https://www.yahoo.com/news/trump-cooks-fries-mcdonalds-attempts-182819944.html)
 <!-- feed end -->
 
 ### Onstream
