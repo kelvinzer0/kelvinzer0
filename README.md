@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
+- Oct 20 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
+- Oct 20 - [Arnold Palmer Was ‘Appalled’ by ‘Crude’ Trump, Who Praised the Late Golfer’s Genitals](https://www.yahoo.com/entertainment/arnold-palmer-appalled-crude-trump-135547487.html)
+- Oct 20 - [North Korea threatens four EU states over sanctions monitoring group](https://www.yahoo.com/news/north-korea-threatens-four-eu-132458917.html)
 - Oct 20 - [Fact Check: Pics Claiming To Show Apartment Building in China With 30K Residents Are Real, But Occupancy Is Unclear](https://www.yahoo.com/news/fact-check-pics-claiming-show-130000318.html)
-- Oct 20 - [Early morning fire shuts down Highway 101 lanes through Pismo Beach](https://www.yahoo.com/news/early-morning-fire-shuts-down-102428211.html)
-- Oct 20 - [How an F-22 fighter pilot transforms the stealth jet's combat capabilities into a soaring spectacle](https://www.yahoo.com/news/f-22-fighter-pilot-transforms-102301742.html)
-- Oct 20 - [Boeing’s CEO Is Shrinking the Jet Maker to Stop Its Crisis From Spiraling](https://finance.yahoo.com/news/boeing-ceo-shrinking-jet-maker-093000195.html)
+- Oct 20 - [FTC Chair warns airlines could one day ‘charge you more’ if they know you’re attending a funeral — here’s how](https://finance.yahoo.com/news/ftc-chair-warns-airlines-could-120200763.html)
 <!-- feed end -->
 
 ### Onstream
