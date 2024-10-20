@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Hurricane tracker on Oscar path: Spaghetti models, possible impacts to Cuba, Florida](https://www.yahoo.com/news/hurricane-tracker-oscar-path-spaghetti-164209189.html)
-- Oct 20 - [Fatal explosion: Roof 'came off' after 'mighty bang'](https://www.yahoo.com/news/fatal-explosion-roof-came-off-125929201.html)
+- Oct 20 - [Storm tracker: Why Hurricane Oscar could lead to 'humanitarian crisis'](https://www.yahoo.com/news/storm-tracker-why-hurricane-oscar-160610156.html)
 - Oct 20 - [Sen. Lindsey Graham to Republicans supporting Harris: ‘What the hell are you doing?’](https://www.yahoo.com/news/sen-lindsey-graham-republicans-supporting-155006261.html)
+- Oct 20 - [10 States the Middle Class Should Be Fleeing](https://finance.yahoo.com/news/10-states-middle-class-fleeing-130126398.html)
+- Oct 20 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
 - Oct 20 - [Arnold Palmer Was ‘Appalled’ by ‘Crude’ Trump, Who Praised the Late Golfer’s Genitals](https://www.yahoo.com/entertainment/arnold-palmer-appalled-crude-trump-135547487.html)
-- Oct 20 - [Israel to take legal action against Macron over naval trade show ban](https://www.yahoo.com/news/israel-legal-action-against-macron-135340283.html)
 <!-- feed end -->
 
 ### Onstream
