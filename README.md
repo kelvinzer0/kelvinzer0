@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Georgia residents reminded to use FEMA grant money wisely after weather emergencies](https://www.yahoo.com/news/georgia-residents-reminded-fema-grant-003658281.html)
+- Oct 20 - [I Knew Something Was Terribly Wrong Each Time I Fed My Baby. I Was Stunned When I Discovered What It Was.](https://www.yahoo.com/lifestyle/knew-something-terribly-wrong-time-013102121.html)
+- Oct 20 - [Man who fired gun at Kentucky hospital is shot by police officer](https://www.yahoo.com/news/man-fired-gun-kentucky-hospital-011558707.html)
 - Oct 20 - [Trump kicks off a Pennsylvania rally by talking about Arnold Palmer's genitalia](https://www.yahoo.com/news/trump-kicks-off-pennsylvania-rally-002407246.html)
-- Oct 20 - [3 killed and 8 injured in a mass shooting after a homecoming game in Mississippi](https://www.yahoo.com/news/3-killed-8-injured-mass-232714212.html)
-- Oct 20 - [Rain chances rise as we finish out the weekend](https://www.yahoo.com/news/rain-chances-rise-finish-weekend-000421503.html)
+- Oct 19 - [Activist Elliott, Southwest Airlines to begin settlement discussions, Bloomberg News reports](https://finance.yahoo.com/news/activist-elliott-southwest-begin-settlement-231345824.html)
 - Oct 19 - [Justin Trudeau Testifies That Russia Funded Tucker Carlson and Jordan Peterson in Support of Their Anti-Vax Covid Claims | Video](https://www.yahoo.com/news/justin-trudeau-testifies-russia-funded-222627036.html)
 <!-- feed end -->
 
