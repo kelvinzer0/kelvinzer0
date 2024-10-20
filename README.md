@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Remains of crew in crashed U.S. Navy jet found, Navy says](https://www.yahoo.com/news/remains-crew-crashed-u-navy-193840881.html)
+- Oct 20 - [Former Russian oil executive found dead after ‘fall’](https://www.yahoo.com/news/former-russian-oil-executive-found-223912633.html)
 - Oct 20 - [Arnold Palmer's daughter reacts to Donald Trump's references to her father](https://www.yahoo.com/news/arnold-palmers-daughter-reacts-donald-193720625.html)
 - Oct 20 - [‘What is the Logic Behind This?’: Watch Surreal Footage of Trump Working at McDonald’s](https://www.yahoo.com/entertainment/logic-behind-watch-surreal-footage-192841759.html)
+- Oct 20 - [What happens when a country goes too long without electricity? Death and devastation follow](https://www.yahoo.com/news/happens-country-goes-too-long-191856350.html)
 - Oct 20 - [2 Navy aviators are declared dead after a fighter jet crashed in Washington state](https://www.yahoo.com/news/2-navy-aviators-found-dead-191554176.html)
-- Oct 20 - [Brazil's Lula cancels trip to Russia for BRICS summit after an accident](https://www.yahoo.com/news/brazils-lula-cancels-trip-russia-170120419.html)
 <!-- feed end -->
 
 ### Onstream
