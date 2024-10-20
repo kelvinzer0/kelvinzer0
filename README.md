@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
+- Oct 20 - [Indian retail group seeks antitrust probe of quick commerce companies Swiggy, Blinkit, Zepto](https://finance.yahoo.com/news/indian-retail-group-seeks-antitrust-152927954.html)
 - Oct 20 - [Arnold Palmer Was ‘Appalled’ by ‘Crude’ Trump, Who Praised the Late Golfer’s Genitals](https://www.yahoo.com/entertainment/arnold-palmer-appalled-crude-trump-135547487.html)
+- Oct 20 - [Israel to take legal action against Macron over naval trade show ban](https://www.yahoo.com/news/israel-legal-action-against-macron-135340283.html)
 - Oct 20 - [North Korea threatens four EU states over sanctions monitoring group](https://www.yahoo.com/news/north-korea-threatens-four-eu-132458917.html)
 - Oct 20 - [Fact Check: Pics Claiming To Show Apartment Building in China With 30K Residents Are Real, But Occupancy Is Unclear](https://www.yahoo.com/news/fact-check-pics-claiming-show-130000318.html)
-- Oct 20 - [FTC Chair warns airlines could one day ‘charge you more’ if they know you’re attending a funeral — here’s how](https://finance.yahoo.com/news/ftc-chair-warns-airlines-could-120200763.html)
 <!-- feed end -->
 
 ### Onstream
