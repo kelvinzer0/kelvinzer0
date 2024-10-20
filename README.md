@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [Caprock Chronicles: 'A new glamour look': The Great Plains Life Building and the 1970 Lubbock tornado](https://www.yahoo.com/news/caprock-chronicles-glamour-look-great-095727405.html)
+- Oct 20 - [Americans Are Sharing The "Culture Shock" Moments They Had While Traveling To Another State, And As A Californian, Some Of These Are Wild](https://www.yahoo.com/lifestyle/americans-sharing-culture-shock-moments-093104916.html)
 - Oct 20 - [Elon Musk promises to award $1 million each day to a signer of his petition](https://www.yahoo.com/news/elon-musk-promises-award-1-025703357.html)
 - Oct 20 - [Trump kicks off a Pennsylvania rally by talking about Arnold Palmer's genitalia](https://www.yahoo.com/news/trump-kicks-off-pennsylvania-rally-002407246.html)
 - Oct 20 - [Saint Louis University lays off 23 staff members](https://www.yahoo.com/news/saint-louis-university-lays-off-001127702.html)
-- Oct 19 - [Elliott, Southwest Airlines to begin settlement discussions, Bloomberg News reports](https://finance.yahoo.com/news/activist-elliott-southwest-begin-settlement-231345824.html)
-- Oct 19 - [Justin Trudeau Testifies That Russia Funded Tucker Carlson and Jordan Peterson in Support of Their Anti-Vax Covid Claims | Video](https://www.yahoo.com/news/justin-trudeau-testifies-russia-funded-222627036.html)
 <!-- feed end -->
 
 ### Onstream
