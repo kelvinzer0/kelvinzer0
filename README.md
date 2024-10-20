@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Caprock Chronicles: 'A new glamour look': The Great Plains Life Building and the 1970 Lubbock tornado](https://www.yahoo.com/news/caprock-chronicles-glamour-look-great-095727405.html)
-- Oct 20 - [Americans Are Sharing The "Culture Shock" Moments They Had While Traveling To Another State, And As A Californian, Some Of These Are Wild](https://www.yahoo.com/lifestyle/americans-sharing-culture-shock-moments-093104916.html)
+- Oct 20 - [Texas man pulled over while test driving a truck — got a ticket because dealership didn’t attach a license plate](https://finance.yahoo.com/news/texas-man-pulled-over-while-111700693.html)
+- Oct 20 - [5 Luxury Cars Retirees Should Consider Buying Before Christmas](https://finance.yahoo.com/news/5-luxury-cars-retirees-consider-110101880.html)
+- Oct 20 - [Trump’s ‘Schlonged’ Comment Nearly Broke ‘SNL’s’ Colin Jost](https://www.yahoo.com/entertainment/trump-schlonged-nearly-broke-snl-051629950.html)
 - Oct 20 - [Elon Musk promises to award $1 million each day to a signer of his petition](https://www.yahoo.com/news/elon-musk-promises-award-1-025703357.html)
 - Oct 20 - [Trump kicks off a Pennsylvania rally by talking about Arnold Palmer's genitalia](https://www.yahoo.com/news/trump-kicks-off-pennsylvania-rally-002407246.html)
-- Oct 20 - [Saint Louis University lays off 23 staff members](https://www.yahoo.com/news/saint-louis-university-lays-off-001127702.html)
 <!-- feed end -->
 
 ### Onstream
