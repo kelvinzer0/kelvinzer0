@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [I Just Snort-Laughed At These 23 Hilarious Job Tweets From Last Week](https://www.yahoo.com/entertainment/just-snort-laughed-23-hilarious-201711645.html)
-- Oct 20 - [A baby’s body was found inside a shopping bag 30 years ago. A 60-year-old mom has been arrested on suspicion of murder](https://www.yahoo.com/news/baby-body-found-inside-shopping-200927173.html)
-- Oct 20 - [Democrat Julie von Haefen, candidate for NC House District 36, answers our questions](https://www.yahoo.com/news/democrat-julie-von-haefen-candidate-195615606.html)
+- Oct 20 - [Remains of crew in crashed U.S. Navy jet found, Navy says](https://www.yahoo.com/news/remains-crew-crashed-u-navy-193840881.html)
+- Oct 20 - [Arnold Palmer's daughter reacts to Donald Trump's references to her father](https://www.yahoo.com/news/arnold-palmers-daughter-reacts-donald-193720625.html)
+- Oct 20 - [‘What is the Logic Behind This?’: Watch Surreal Footage of Trump Working at McDonald’s](https://www.yahoo.com/entertainment/logic-behind-watch-surreal-footage-192841759.html)
 - Oct 20 - [2 Navy aviators are declared dead after a fighter jet crashed in Washington state](https://www.yahoo.com/news/2-navy-aviators-found-dead-191554176.html)
-- Oct 20 - [Al Pacino Went Broke After Blowing $50 Million on 16 Cars, 23 Cellphones And $400K For Landscaping: 'I Didn't Understand How Money Worked'](https://finance.yahoo.com/news/al-pacino-went-broke-blowing-183019126.html)
+- Oct 20 - [Brazil's Lula cancels trip to Russia for BRICS summit after an accident](https://www.yahoo.com/news/brazils-lula-cancels-trip-russia-170120419.html)
 <!-- feed end -->
 
 ### Onstream
