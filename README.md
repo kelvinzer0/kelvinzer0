@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 20 - [I Knew Something Was Terribly Wrong Each Time I Fed My Baby. I Was Stunned When I Discovered What It Was.](https://www.yahoo.com/lifestyle/knew-something-terribly-wrong-time-013102121.html)
-- Oct 20 - [Man who fired gun at Kentucky hospital is shot by police officer](https://www.yahoo.com/news/man-fired-gun-kentucky-hospital-011558707.html)
 - Oct 20 - [Trump kicks off a Pennsylvania rally by talking about Arnold Palmer's genitalia](https://www.yahoo.com/news/trump-kicks-off-pennsylvania-rally-002407246.html)
+- Oct 20 - [Saint Louis University lays off 23 staff members](https://www.yahoo.com/news/saint-louis-university-lays-off-001127702.html)
 - Oct 19 - [Activist Elliott, Southwest Airlines to begin settlement discussions, Bloomberg News reports](https://finance.yahoo.com/news/activist-elliott-southwest-begin-settlement-231345824.html)
-- Oct 19 - [Justin Trudeau Testifies That Russia Funded Tucker Carlson and Jordan Peterson in Support of Their Anti-Vax Covid Claims | Video](https://www.yahoo.com/news/justin-trudeau-testifies-russia-funded-222627036.html)
+- Oct 19 - [NYC-bound Boeing 767 makes emergency stop during take-off in Senegal](https://finance.yahoo.com/news/nyc-bound-boeing-767-makes-224137827.html)
 <!-- feed end -->
 
 ### Onstream
