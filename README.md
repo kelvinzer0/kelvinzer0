@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Easton lands several new tenants, including some new to Ohio](https://www.yahoo.com/lifestyle/easton-lands-several-tenants-including-172516196.html)
-- Oct 21 - [What's the status of work on Interstate 41? Here are the closures, as well as ramp reopening's](https://www.yahoo.com/news/whats-status-interstate-41-closures-170316234.html)
-- Oct 21 - [A teenage girl rebuffed a boy’s advances. So he allegedly killed her stepdad in front of her pregnant mom](https://www.yahoo.com/news/teenage-girl-rebuffed-boy-advances-164508268.html)
-- Oct 21 - [Police PIT On Fleeing Mustang Turns Fatal](https://autos.yahoo.com/police-pit-fleeing-mustang-turns-190000631.html)
+- Oct 21 - [Southwest Airlines and its activist hedge fund foe might become friends](https://www.yahoo.com/tech/southwest-airlines-activist-hedge-fund-182446253.html)
+- Oct 21 - [Money market account rates today, October 21, 2024 (earn up to 5.05% APY)](https://finance.yahoo.com/personal-finance/money-market-account-rates-today-monday-october-21-2024-181026705.html)
+- Oct 21 - [Cameroon's president finally seen in public](https://www.yahoo.com/news/cameroons-president-finally-seen-public-173321247.html)
 - Oct 21 - [A US F-35 stealth fighter just landed on a destroyer Japan turned into an aircraft carrier for the first time off the California coast](https://www.yahoo.com/news/us-f-35-stealth-fighter-161846340.html)
+- Oct 21 - [Trump Has a ‘More Extreme’ Path to Take Power Even if He Loses Election, MSNBC Analyst Says: ‘Very Different This Time’](https://www.yahoo.com/news/trump-more-extreme-path-power-161846919.html)
 <!-- feed end -->
 
 ### Onstream
