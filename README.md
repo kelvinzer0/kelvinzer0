@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [This is what changing the clocks can do to your health](https://www.yahoo.com/lifestyle/changing-clocks-health-103252963.html)
-- Oct 21 - [Israeli strikes destroy branches of Hezbollah finance arm](https://www.yahoo.com/news/israeli-strikes-destroy-branches-hezbollah-095356671.html)
-- Oct 21 - [Amid Warren Buffett's $132 Billion Warning to Wall Street, He Can't Stop Buying Shares of These 4 Unstoppable Stocks](https://finance.yahoo.com/news/amid-warren-buffetts-132-billion-085100602.html)
-- Oct 21 - [South Korea calls for immediate withdrawal of North Korean troops allegedly in Russia](https://www.yahoo.com/news/south-korea-calls-immediate-withdrawal-083235574.html)
-- Oct 21 - [Middle East latest: Israel apologizes for strike that killed 3 Lebanese soldiers](https://www.yahoo.com/news/middle-east-latest-israel-apologizes-081851389.html)
+- Oct 21 - [Why X users leaving the social media platform as new 'block' rules come into force](https://www.yahoo.com/news/why-x-users-leaving-social-121015486.html)
+- Oct 21 - [Boy, 10, who crossed Channel by himself denied phone call to mother by officials](https://www.yahoo.com/news/boy-10-denied-call-mother-105146119.html)
+- Oct 21 - [Primary schools close as strikes target Swinney's constituency](https://www.yahoo.com/news/primary-schools-close-strikes-target-070508079.html)
+- Oct 21 - [Boeing's new proposal may lead to $1 billion in wage-related costs over four years](https://finance.yahoo.com/news/boeings-proposal-may-lead-1-111111345.html)
+- Oct 21 - [A woman lost 40 pounds by quitting strict diets that made her miserable. She started by visualizing 3 healthy habits her ideal self would keep.](https://www.yahoo.com/lifestyle/woman-lost-40-pounds-quitting-110359173.html)
 <!-- feed end -->
 
 ### Onstream
