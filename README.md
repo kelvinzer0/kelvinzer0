@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Israel's war against militants is expensive. Paying the bill could force tough choices](https://finance.yahoo.com/news/israels-war-against-militants-expensive-044125328.html)
 - Oct 21 - [Some Jewish voters in presidential swing states reconsider their longtime devotion to Democrats](https://www.yahoo.com/news/jewish-voters-presidential-swing-states-044050790.html)
+- Oct 21 - [Israel gives the US its demands for ending war in Lebanon, Axios reports](https://www.yahoo.com/news/israel-gives-us-demands-ending-035047692.html)
 - Oct 21 - [‘60 Minutes’ Issues Searing Statement Refuting ‘False’ Trump](https://www.yahoo.com/news/60-minutes-issues-searing-statement-023615371.html)
-- Oct 20 - [People Who Were Rarely Complimented as Children Often Develop These 10 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-rarely-complimented-children-201700639.html)
-- Oct 20 - [Ukraine's Zelenskiy seeks strong reaction to North Korean involvement in war](https://www.yahoo.com/news/ukraines-zelenskiy-seeks-strong-reaction-200854099.html)
-- Oct 20 - [Seattle broadcasting sports icon Tony Ventrella dead at 80](https://www.yahoo.com/news/seattle-broadcasting-sports-icon-tony-192847451.html)
+- Oct 21 - [Woman goes missing in Maine forest for days, is rescued hundreds of feet from dead husband](https://www.yahoo.com/news/woman-goes-missing-maine-forest-022421483.html)
 <!-- feed end -->
 
 ### Onstream
