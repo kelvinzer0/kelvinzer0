@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Woman arrested 30 years after a baby’s body was found discarded in a shopping bag](https://www.yahoo.com/news/baby-body-found-inside-shopping-200927173.html)
+- Oct 21 - [Easton lands several new tenants, including some new to Ohio](https://www.yahoo.com/lifestyle/easton-lands-several-tenants-including-172516196.html)
+- Oct 21 - [What's the status of work on Interstate 41? Here are the closures, as well as ramp reopening's](https://www.yahoo.com/news/whats-status-interstate-41-closures-170316234.html)
 - Oct 21 - [A teenage girl rebuffed a boy’s advances. So he allegedly killed her stepdad in front of her pregnant mom](https://www.yahoo.com/news/teenage-girl-rebuffed-boy-advances-164508268.html)
-- Oct 21 - [‘The Grand Tour’ Host Jeremy Clarkson Reveals He Was ‘Days Away’ From Death: ‘The Vultures Stopped Circling and Swooped Down for a Closer Look’](https://www.yahoo.com/entertainment/grand-tour-host-jeremy-clarkson-162439219.html)
-- Oct 21 - [What to know about Biltmore Estate reopening after Hurricane Helene](https://www.yahoo.com/news/know-biltmore-estate-reopening-hurricane-154117581.html)
-- Oct 21 - [Newsom on new Trump nickname: ‘What an embarrassment’](https://www.yahoo.com/news/newsom-trump-nickname-embarrassment-140334949.html)
+- Oct 21 - [Police PIT On Fleeing Mustang Turns Fatal](https://autos.yahoo.com/police-pit-fleeing-mustang-turns-190000631.html)
+- Oct 21 - [A US F-35 stealth fighter just landed on a destroyer Japan turned into an aircraft carrier for the first time off the California coast](https://www.yahoo.com/news/us-f-35-stealth-fighter-161846340.html)
 <!-- feed end -->
 
 ### Onstream
