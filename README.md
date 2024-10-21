@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Shadow of Ukraine war hangs over Putin's BRICS summit in Russia](https://www.yahoo.com/news/shadow-ukraine-war-hangs-over-210403794.html)
-- Oct 21 - [Ex-Univ. Kentucky Student Is Sentenced to Prison for Racist Attack on Black Student](https://www.yahoo.com/news/ex-univ-kentucky-student-sentenced-203755851.html)
-- Oct 21 - [Palantir Peer Adds New Buy Point — With This Twist And Some 'Magic'](https://www.investors.com/research/how-to-find-the-best-stocks-to-buy/shopify-stock-joins-nvidia-meta-as-palantir-peer-eyes-breakout/?src=A00220&yptr=yahoo)
+- Oct 21 - [Striking Boeing employees sound off ahead of contract vote](https://finance.yahoo.com/video/striking-boeing-employees-sound-off-223406725.html)
+- Oct 21 - [Shocking Video Shows Driver Reversing Into Car on Parkway](https://www.yahoo.com/news/shocking-video-shows-driver-reversing-214902214.html)
+- Oct 21 - [Zelensky urges soldiers to hold out in Russia's Kursk region](https://www.yahoo.com/news/zelensky-urges-soldiers-hold-russias-203415034.html)
+- Oct 21 - [These 3 struggles sent this retired couple back to the U.S. after a move overseas](https://finance.yahoo.com/news/3-struggles-sent-retired-couple-095300047.html)
 - Oct 21 - [Two Navy pilots killed in jet crash had recently returned from Middle East deployment](https://www.yahoo.com/news/two-navy-pilots-killed-jet-200615560.html)
-- Oct 21 - [Hezbollah hides millions in cash, gold under Beirut hospital, says Israel](https://www.yahoo.com/news/hezbollah-hides-millions-cash-gold-200246305.html)
 <!-- feed end -->
 
 ### Onstream
