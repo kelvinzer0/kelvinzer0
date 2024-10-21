@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Gulen, the powerful cleric accused of orchestrating a Turkish coup, dies](https://www.yahoo.com/news/turkish-u-based-cleric-gulen-055104400.html)
 - Oct 21 - [Israel's war against militants is expensive. Paying the bill could force tough choices](https://finance.yahoo.com/news/israels-war-against-militants-expensive-044125328.html)
-- Oct 21 - [Some Jewish voters in presidential swing states reconsider their longtime devotion to Democrats](https://www.yahoo.com/news/jewish-voters-presidential-swing-states-044050790.html)
 - Oct 21 - [Israel gives the US its demands for ending war in Lebanon, Axios reports](https://www.yahoo.com/news/israel-gives-us-demands-ending-035047692.html)
 - Oct 21 - [‘60 Minutes’ Issues Searing Statement Refuting ‘False’ Trump](https://www.yahoo.com/news/60-minutes-issues-searing-statement-023615371.html)
 - Oct 21 - [Woman goes missing in Maine forest for days, is rescued hundreds of feet from dead husband](https://www.yahoo.com/news/woman-goes-missing-maine-forest-022421483.html)
