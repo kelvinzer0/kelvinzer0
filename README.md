@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Former Russian oil executive found dead after ‘fall’](https://www.yahoo.com/news/former-russian-oil-executive-found-223912633.html)
-- Oct 20 - [Should you buy Nvidia stock now? It may be a once-in-a-generation opportunity](https://finance.yahoo.com/news/buy-nvidia-stock-now-may-204646268.html)
+- Oct 20 - [Here's what closed Peddler's Village restaurants on a busy Sunday](https://www.yahoo.com/news/heres-closed-peddlers-village-restaurants-230258859.html)
 - Oct 20 - [People Who Were Rarely Complimented as Children Often Develop These 10 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-rarely-complimented-children-201700639.html)
 - Oct 20 - [Ukraine's Zelenskiy seeks strong reaction to North Korean involvement in war](https://www.yahoo.com/news/ukraines-zelenskiy-seeks-strong-reaction-200854099.html)
-- Oct 20 - [Arnold Palmer's daughter reacts to Donald Trump's references to her father](https://www.yahoo.com/news/arnold-palmers-daughter-reacts-donald-193720625.html)
+- Oct 20 - [Seattle broadcasting sports icon Tony Ventrella dead at 80](https://www.yahoo.com/news/seattle-broadcasting-sports-icon-tony-192847451.html)
+- Oct 20 - [What happens when a country goes too long without electricity? Death and devastation follow](https://www.yahoo.com/news/happens-country-goes-too-long-191856350.html)
 <!-- feed end -->
 
 ### Onstream
