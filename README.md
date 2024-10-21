@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Cigna, Humana Merger Discussions Reportedly Revived](https://finance.yahoo.com/news/cigna-humana-merger-discussions-reportedly-141400216.html)
-- Oct 21 - [34-Year-Old Saying 'Bye Bye Work' After Reaching $2,400 Per Month in Dividend Income: Top 8 Stocks in His Portfolio](https://finance.yahoo.com/news/34-old-saying-bye-bye-140034595.html)
-- Oct 21 - [Indian policy body calls for power plants to pause installing sulphur reducing gear](https://finance.yahoo.com/news/indian-policy-body-calls-power-135131699.html)
-- Oct 21 - [Ferry dock collapse on Sapelo Island: What is the Gullah Geechee history?](https://www.yahoo.com/news/ferry-dock-collapse-sapelo-island-135020551.html)
-- Oct 21 - [Trump Dodges Major Question During Pathetic Staged McDonald’s Stunt](https://www.yahoo.com/news/trump-dodges-major-during-pathetic-131831993.html)
+- Oct 21 - [Slack researcher discusses the fear, loathing and excitement surrounding AI in the workplace](https://finance.yahoo.com/news/slack-researcher-discusses-fear-loathing-155514813.html)
+- Oct 21 - [Russian commander blamed for Ukraine shopping centre attack killed with hammer](https://www.yahoo.com/news/russian-commander-blamed-ukraine-shopping-154603017.html)
+- Oct 21 - [Girl, 9, drugged and sexually assaulted after being kidnapped outside Harrods, court hears](https://www.yahoo.com/news/girl-9-drugged-sexually-assaulted-153837853.html)
+- Oct 21 - [Ford tells EV owners to stop using its free Tesla Supercharger adapters](https://www.yahoo.com/tech/ford-tells-ev-owners-to-stop-using-its-free-tesla-supercharger-adapters-120023623.html)
+- Oct 21 - [UAE president tells Putin: we are ready to help resolve Ukraine crisis](https://www.yahoo.com/news/uae-president-tells-putin-ready-111340996.html)
 <!-- feed end -->
 
 ### Onstream
