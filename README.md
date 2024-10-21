@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [This is what changing the clocks can do to your health](https://www.yahoo.com/lifestyle/changing-clocks-health-103252963.html)
 - Oct 21 - [Israeli strikes destroy branches of Hezbollah finance arm](https://www.yahoo.com/news/israeli-strikes-destroy-branches-hezbollah-095356671.html)
-- Oct 21 - [Boeing Lands Big Win: Emirates Orders 5 More 777 Freighters](https://finance.yahoo.com/news/boeing-lands-big-win-emirates-095128935.html)
-- Oct 21 - [Trump's Big New 'Cognitive' Boast Falls Apart In Front Of His Own Audience](https://www.yahoo.com/news/trumps-big-cognitive-boast-falls-085939938.html)
+- Oct 21 - [Amid Warren Buffett's $132 Billion Warning to Wall Street, He Can't Stop Buying Shares of These 4 Unstoppable Stocks](https://finance.yahoo.com/news/amid-warren-buffetts-132-billion-085100602.html)
 - Oct 21 - [South Korea calls for immediate withdrawal of North Korean troops allegedly in Russia](https://www.yahoo.com/news/south-korea-calls-immediate-withdrawal-083235574.html)
-- Oct 21 - [Gulen, the powerful cleric accused of orchestrating a Turkish coup, dies](https://www.yahoo.com/news/turkish-u-based-cleric-gulen-055104400.html)
+- Oct 21 - [Middle East latest: Israel apologizes for strike that killed 3 Lebanese soldiers](https://www.yahoo.com/news/middle-east-latest-israel-apologizes-081851389.html)
 <!-- feed end -->
 
 ### Onstream
