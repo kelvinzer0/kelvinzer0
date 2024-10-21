@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Capital Spending Eyed.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Oct 21 - [Murder suspects appear in court after man dies](https://www.yahoo.com/news/murder-suspects-appear-court-man-121749299.html)
 - Oct 21 - [Why X users leaving the social media platform as new 'block' rules come into force](https://www.yahoo.com/news/why-x-users-leaving-social-121015486.html)
-- Oct 21 - [Boy, 10, who crossed Channel by himself denied phone call to mother by officials](https://www.yahoo.com/news/boy-10-denied-call-mother-105146119.html)
-- Oct 21 - [Primary schools close as strikes target Swinney's constituency](https://www.yahoo.com/news/primary-schools-close-strikes-target-070508079.html)
-- Oct 21 - [Boeing's new proposal may lead to $1 billion in wage-related costs over four years](https://finance.yahoo.com/news/boeings-proposal-may-lead-1-111111345.html)
-- Oct 21 - [A woman lost 40 pounds by quitting strict diets that made her miserable. She started by visualizing 3 healthy habits her ideal self would keep.](https://www.yahoo.com/lifestyle/woman-lost-40-pounds-quitting-110359173.html)
+- Oct 21 - [UAE president tells Putin: we are ready to help resolve Ukraine crisis](https://www.yahoo.com/news/uae-president-tells-putin-ready-111340996.html)
+- Oct 21 - [California couple dropped by insurer over mossy roof photos from space, claim it’s just solar panels](https://finance.yahoo.com/news/california-couple-dropped-insurer-over-110900501.html)
 <!-- feed end -->
 
 ### Onstream
