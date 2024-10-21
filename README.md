@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Dr Phil warns Texas hearing that executing ‘shaken baby’ death row inmate would ‘100%’ be miscarriage of justice](https://www.yahoo.com/news/texas-death-row-inmate-blocked-175615365.html)
+- Oct 21 - [Shadow of Ukraine war hangs over Putin's BRICS summit in Russia](https://www.yahoo.com/news/shadow-ukraine-war-hangs-over-210403794.html)
 - Oct 21 - [Ex-Univ. Kentucky Student Is Sentenced to Prison for Racist Attack on Black Student](https://www.yahoo.com/news/ex-univ-kentucky-student-sentenced-203755851.html)
-- Oct 21 - [Best iPhone deals: Save on iPhone 15, iPhone 15 Pro Max and more](https://www.yahoo.com/tech/best-iphone-deals-save-iphone-160045733.html)
 - Oct 21 - [Palantir Peer Adds New Buy Point — With This Twist And Some 'Magic'](https://www.investors.com/research/how-to-find-the-best-stocks-to-buy/shopify-stock-joins-nvidia-meta-as-palantir-peer-eyes-breakout/?src=A00220&yptr=yahoo)
+- Oct 21 - [Two Navy pilots killed in jet crash had recently returned from Middle East deployment](https://www.yahoo.com/news/two-navy-pilots-killed-jet-200615560.html)
 - Oct 21 - [Hezbollah hides millions in cash, gold under Beirut hospital, says Israel](https://www.yahoo.com/news/hezbollah-hides-millions-cash-gold-200246305.html)
 <!-- feed end -->
 
