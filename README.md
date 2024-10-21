@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Does Social Security's 2025 Cost-of-Living Adjustment (COLA) Spell Trouble for Your Retirement Income?](https://finance.yahoo.com/news/does-social-securitys-2025-cost-140000264.html)
+- Oct 21 - [One man killed, another hurt after interaction led to shooting outside vehicle in KC](https://www.yahoo.com/news/two-shot-one-killed-interaction-130617885.html)
 - Oct 21 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Capital Spending Eyed.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Oct 21 - [Murder suspects appear in court after man dies](https://www.yahoo.com/news/murder-suspects-appear-court-man-121749299.html)
-- Oct 21 - [Why X users leaving the social media platform as new 'block' rules come into force](https://www.yahoo.com/news/why-x-users-leaving-social-121015486.html)
+- Oct 21 - [Boeing’s Striking Machinists Make $115,000 a Year. Here’s How Much They Could End Up Earning in New Deal.](https://www.barrons.com/articles/boeing-strike-stock-price-vote-58f1ee75?siteid=yhoof2&yptr=yahoo)
 - Oct 21 - [UAE president tells Putin: we are ready to help resolve Ukraine crisis](https://www.yahoo.com/news/uae-president-tells-putin-ready-111340996.html)
-- Oct 21 - [California couple dropped by insurer over mossy roof photos from space, claim it’s just solar panels](https://finance.yahoo.com/news/california-couple-dropped-insurer-over-110900501.html)
 <!-- feed end -->
 
 ### Onstream
