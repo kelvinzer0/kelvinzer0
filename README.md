@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Southwest Airlines and its activist hedge fund foe might become friends](https://www.yahoo.com/tech/southwest-airlines-activist-hedge-fund-182446253.html)
-- Oct 21 - [Money market account rates today, October 21, 2024 (earn up to 5.05% APY)](https://finance.yahoo.com/personal-finance/money-market-account-rates-today-monday-october-21-2024-181026705.html)
-- Oct 21 - [Cameroon's president finally seen in public](https://www.yahoo.com/news/cameroons-president-finally-seen-public-173321247.html)
-- Oct 21 - [A US F-35 stealth fighter just landed on a destroyer Japan turned into an aircraft carrier for the first time off the California coast](https://www.yahoo.com/news/us-f-35-stealth-fighter-161846340.html)
-- Oct 21 - [Trump Has a ‘More Extreme’ Path to Take Power Even if He Loses Election, MSNBC Analyst Says: ‘Very Different This Time’](https://www.yahoo.com/news/trump-more-extreme-path-power-161846919.html)
+- Oct 21 - [Dr Phil warns Texas hearing that executing ‘shaken baby’ death row inmate would ‘100%’ be miscarriage of justice](https://www.yahoo.com/news/texas-death-row-inmate-blocked-175615365.html)
+- Oct 21 - [Qualcomm counters Intel about its performance claims](https://www.yahoo.com/tech/qualcomm-counters-intel-performance-claims-190000352.html)
+- Oct 21 - [Navy identifies 2 killed in fighter jet crash as aviators from California](https://www.yahoo.com/news/navy-identifies-2-killed-fighter-184037953.html)
+- Oct 21 - [Susan Smith is up for parole 30 years after drowning her kids in a South Carolina lake](https://www.yahoo.com/news/susan-smith-parole-30-years-181054155.html)
+- Oct 21 - [Florida voters to decide whether to retain Renatha Francis. What to know about the justice](https://www.yahoo.com/news/florida-voters-decide-whether-retain-175446647.html)
 <!-- feed end -->
 
 ### Onstream
