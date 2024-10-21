@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Some Jewish voters in presidential swing states reconsider their longtime devotion to Democrats](https://www.yahoo.com/news/jewish-voters-presidential-swing-states-044050790.html)
 - Oct 21 - [‘60 Minutes’ Issues Searing Statement Refuting ‘False’ Trump](https://www.yahoo.com/news/60-minutes-issues-searing-statement-023615371.html)
-- Oct 20 - [Here's what closed Peddler's Village restaurants on a busy Sunday](https://www.yahoo.com/news/heres-closed-peddlers-village-restaurants-230258859.html)
-- Oct 20 - [The Most Livable City in Every State and What It Will Cost You](https://finance.yahoo.com/news/most-livable-city-every-state-110105712.html)
-- Oct 20 - [Former Russian oil executive found dead after ‘fall’](https://www.yahoo.com/news/former-russian-oil-executive-found-223912633.html)
 - Oct 20 - [People Who Were Rarely Complimented as Children Often Develop These 10 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-rarely-complimented-children-201700639.html)
+- Oct 20 - [Ukraine's Zelenskiy seeks strong reaction to North Korean involvement in war](https://www.yahoo.com/news/ukraines-zelenskiy-seeks-strong-reaction-200854099.html)
+- Oct 20 - [Seattle broadcasting sports icon Tony Ventrella dead at 80](https://www.yahoo.com/news/seattle-broadcasting-sports-icon-tony-192847451.html)
 <!-- feed end -->
 
 ### Onstream
