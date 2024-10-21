@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Does Social Security's 2025 Cost-of-Living Adjustment (COLA) Spell Trouble for Your Retirement Income?](https://finance.yahoo.com/news/does-social-securitys-2025-cost-140000264.html)
-- Oct 21 - [One man killed, another hurt after interaction led to shooting outside vehicle in KC](https://www.yahoo.com/news/two-shot-one-killed-interaction-130617885.html)
-- Oct 21 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Capital Spending Eyed.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Oct 21 - [Boeing’s Striking Machinists Make $115,000 a Year. Here’s How Much They Could End Up Earning in New Deal.](https://www.barrons.com/articles/boeing-strike-stock-price-vote-58f1ee75?siteid=yhoof2&yptr=yahoo)
-- Oct 21 - [UAE president tells Putin: we are ready to help resolve Ukraine crisis](https://www.yahoo.com/news/uae-president-tells-putin-ready-111340996.html)
+- Oct 21 - [Cigna, Humana Merger Discussions Reportedly Revived](https://finance.yahoo.com/news/cigna-humana-merger-discussions-reportedly-141400216.html)
+- Oct 21 - [34-Year-Old Saying 'Bye Bye Work' After Reaching $2,400 Per Month in Dividend Income: Top 8 Stocks in His Portfolio](https://finance.yahoo.com/news/34-old-saying-bye-bye-140034595.html)
+- Oct 21 - [Indian policy body calls for power plants to pause installing sulphur reducing gear](https://finance.yahoo.com/news/indian-policy-body-calls-power-135131699.html)
+- Oct 21 - [Ferry dock collapse on Sapelo Island: What is the Gullah Geechee history?](https://www.yahoo.com/news/ferry-dock-collapse-sapelo-island-135020551.html)
+- Oct 21 - [Trump Dodges Major Question During Pathetic Staged McDonald’s Stunt](https://www.yahoo.com/news/trump-dodges-major-during-pathetic-131831993.html)
 <!-- feed end -->
 
 ### Onstream
