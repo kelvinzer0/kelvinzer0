@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 21 - [Slack researcher discusses the fear, loathing and excitement surrounding AI in the workplace](https://finance.yahoo.com/news/slack-researcher-discusses-fear-loathing-155514813.html)
-- Oct 21 - [Russian commander blamed for Ukraine shopping centre attack killed with hammer](https://www.yahoo.com/news/russian-commander-blamed-ukraine-shopping-154603017.html)
-- Oct 21 - [Girl, 9, drugged and sexually assaulted after being kidnapped outside Harrods, court hears](https://www.yahoo.com/news/girl-9-drugged-sexually-assaulted-153837853.html)
-- Oct 21 - [Ford tells EV owners to stop using its free Tesla Supercharger adapters](https://www.yahoo.com/tech/ford-tells-ev-owners-to-stop-using-its-free-tesla-supercharger-adapters-120023623.html)
-- Oct 21 - [UAE president tells Putin: we are ready to help resolve Ukraine crisis](https://www.yahoo.com/news/uae-president-tells-putin-ready-111340996.html)
+- Oct 21 - [Woman arrested 30 years after a baby’s body was found discarded in a shopping bag](https://www.yahoo.com/news/baby-body-found-inside-shopping-200927173.html)
+- Oct 21 - [A teenage girl rebuffed a boy’s advances. So he allegedly killed her stepdad in front of her pregnant mom](https://www.yahoo.com/news/teenage-girl-rebuffed-boy-advances-164508268.html)
+- Oct 21 - [‘The Grand Tour’ Host Jeremy Clarkson Reveals He Was ‘Days Away’ From Death: ‘The Vultures Stopped Circling and Swooped Down for a Closer Look’](https://www.yahoo.com/entertainment/grand-tour-host-jeremy-clarkson-162439219.html)
+- Oct 21 - [What to know about Biltmore Estate reopening after Hurricane Helene](https://www.yahoo.com/news/know-biltmore-estate-reopening-hurricane-154117581.html)
+- Oct 21 - [Newsom on new Trump nickname: ‘What an embarrassment’](https://www.yahoo.com/news/newsom-trump-nickname-embarrassment-140334949.html)
 <!-- feed end -->
 
 ### Onstream
