@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 21 - [Dr Phil warns Texas hearing that executing ‘shaken baby’ death row inmate would ‘100%’ be miscarriage of justice](https://www.yahoo.com/news/texas-death-row-inmate-blocked-175615365.html)
-- Oct 21 - [Qualcomm counters Intel about its performance claims](https://www.yahoo.com/tech/qualcomm-counters-intel-performance-claims-190000352.html)
-- Oct 21 - [Navy identifies 2 killed in fighter jet crash as aviators from California](https://www.yahoo.com/news/navy-identifies-2-killed-fighter-184037953.html)
-- Oct 21 - [Susan Smith is up for parole 30 years after drowning her kids in a South Carolina lake](https://www.yahoo.com/news/susan-smith-parole-30-years-181054155.html)
-- Oct 21 - [Florida voters to decide whether to retain Renatha Francis. What to know about the justice](https://www.yahoo.com/news/florida-voters-decide-whether-retain-175446647.html)
+- Oct 21 - [Ex-Univ. Kentucky Student Is Sentenced to Prison for Racist Attack on Black Student](https://www.yahoo.com/news/ex-univ-kentucky-student-sentenced-203755851.html)
+- Oct 21 - [Best iPhone deals: Save on iPhone 15, iPhone 15 Pro Max and more](https://www.yahoo.com/tech/best-iphone-deals-save-iphone-160045733.html)
+- Oct 21 - [Palantir Peer Adds New Buy Point — With This Twist And Some 'Magic'](https://www.investors.com/research/how-to-find-the-best-stocks-to-buy/shopify-stock-joins-nvidia-meta-as-palantir-peer-eyes-breakout/?src=A00220&yptr=yahoo)
+- Oct 21 - [Hezbollah hides millions in cash, gold under Beirut hospital, says Israel](https://www.yahoo.com/news/hezbollah-hides-millions-cash-gold-200246305.html)
 <!-- feed end -->
 
 ### Onstream
