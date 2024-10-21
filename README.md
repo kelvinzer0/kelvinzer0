@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Israeli strikes destroy branches of Hezbollah finance arm](https://www.yahoo.com/news/israeli-strikes-destroy-branches-hezbollah-095356671.html)
+- Oct 21 - [Boeing Lands Big Win: Emirates Orders 5 More 777 Freighters](https://finance.yahoo.com/news/boeing-lands-big-win-emirates-095128935.html)
+- Oct 21 - [Trump's Big New 'Cognitive' Boast Falls Apart In Front Of His Own Audience](https://www.yahoo.com/news/trumps-big-cognitive-boast-falls-085939938.html)
+- Oct 21 - [South Korea calls for immediate withdrawal of North Korean troops allegedly in Russia](https://www.yahoo.com/news/south-korea-calls-immediate-withdrawal-083235574.html)
 - Oct 21 - [Gulen, the powerful cleric accused of orchestrating a Turkish coup, dies](https://www.yahoo.com/news/turkish-u-based-cleric-gulen-055104400.html)
-- Oct 21 - [Israel gives the US its demands for ending war in Lebanon, Axios reports](https://www.yahoo.com/news/israel-gives-us-demands-ending-035047692.html)
-- Oct 21 - [‘60 Minutes’ Issues Searing Statement Refuting ‘False’ Trump](https://www.yahoo.com/news/60-minutes-issues-searing-statement-023615371.html)
-- Oct 21 - [Woman goes missing in Maine forest for days, is rescued hundreds of feet from dead husband](https://www.yahoo.com/news/woman-goes-missing-maine-forest-022421483.html)
-- Oct 21 - [Woodinville, WA man claims Value Village kicked him out over service dogs](https://www.yahoo.com/news/woodinville-wa-man-claims-value-004031080.html)
 <!-- feed end -->
 
 ### Onstream
