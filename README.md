@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Russians feared dead after plane shot down in Sudan](https://www.yahoo.com/news/russians-feared-dead-plane-shot-111930966.html)
 - Oct 22 - [Florida woman accused of using Roblox to instruct child, 10, to kill 2-month-old by dropping baby on tile floor](https://www.yahoo.com/news/florida-woman-accused-using-roblox-131639719.html)
-- Oct 22 - [She survived the October 7 terror attack. A year later, she took her life. Her family blames the state for not helping.](https://www.yahoo.com/news/she-survived-october-7-terror-111823390.html)
-- Oct 22 - [GM’s profit nears a record a year after saying it couldn’t afford its workers’ pay demands](https://finance.yahoo.com/news/gm-profit-nears-record-saying-110953320.html)
-- Oct 22 - [Target to lower prices on 2,000 items ahead of holiday season](https://finance.yahoo.com/news/target-lower-prices-2-000-110906612.html)
+- Oct 22 - [Port Royal police arrest 2 suspects after shots fired at vehicle on Ribaut Road](https://www.yahoo.com/news/port-royal-police-arrest-2-141607197.html)
+- Oct 22 - [Peloton to sell discounted Bike+ at Costco for a limited time](https://finance.yahoo.com/video/peloton-sell-discounted-bike-costco-140244607.html)
+- Oct 22 - [TSMC says it has alerted US of potential China AI chip curbs violation](https://www.yahoo.com/news/tsmc-says-alerted-us-potential-131939748.html)
+- Oct 22 - [Really putting Ukraine's Abrams and F-16s to work fighting Russia means most probably won't survive, but that's the kind of war this is](https://www.yahoo.com/news/really-putting-ukraines-abrams-f-115702366.html)
 <!-- feed end -->
 
 ### Onstream
