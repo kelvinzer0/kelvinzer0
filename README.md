@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [South Korea team showcases drone that serves as 'flying shopping cart'](https://finance.yahoo.com/news/south-korea-team-showcases-drone-012123453.html)
-- Oct 22 - [Violent image of King deleted as heckling row grows](https://www.yahoo.com/news/violent-image-king-deleted-heckling-010906949.html)
-- Oct 21 - [What you didn’t know you could do with a Salt Lake library card](https://www.yahoo.com/lifestyle/didn-t-know-could-salt-231557893.html)
-- Oct 21 - [Ex-Univ. Kentucky Student Is Sentenced to Prison for Racist Attack on Black Student](https://www.yahoo.com/news/ex-univ-kentucky-student-sentenced-203755851.html)
+- Oct 22 - [If A Restaurant Server Does This One Thing, They Are More Likely To Get A Bigger Tip](https://www.yahoo.com/lifestyle/restaurant-server-does-one-thing-021602884.html)
+- Oct 21 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
+- Oct 21 - [Shocking Video Shows Driver Reversing Into Car on Parkway](https://www.yahoo.com/news/shocking-video-shows-driver-reversing-214902214.html)
+- Oct 21 - [Boeing’s Striking Machinists Make $115,000 a Year. Here’s How Much They Could End Up Earning in New Deal.](https://www.barrons.com/articles/boeing-strike-stock-price-vote-58f1ee75?siteid=yhoof2&yptr=yahoo)
 - Oct 21 - [These 3 struggles sent this retired couple back to the U.S. after a move overseas](https://finance.yahoo.com/news/3-struggles-sent-retired-couple-095300047.html)
 <!-- feed end -->
 
