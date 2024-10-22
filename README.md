@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Water companies push for higher bills again as customers face up to 84% hike](https://finance.yahoo.com/news/water-companies-push-higher-bills-085828186.html)
-- Oct 22 - [GlobalData visits Paris Motor Show 2024](https://finance.yahoo.com/news/globaldata-visits-paris-motor-show-151350059.html)
-- Oct 22 - [Erdogan says the cleric accused of orchestrating a 2016 coup attempt had a 'dishonorable death'](https://www.yahoo.com/news/erdogan-says-cleric-accused-orchestrating-144826050.html)
-- Oct 22 - [Taxpayers will get higher standard deductions in 2025, IRS announces](https://finance.yahoo.com/news/taxpayers-higher-standard-deductions-2025-144424104.html)
-- Oct 22 - [Russians feared dead after plane shot down in Sudan](https://www.yahoo.com/news/russians-feared-dead-plane-shot-111930966.html)
+- Oct 22 - [India, China and S.Africa leaders bolster Putin at key summit](https://www.yahoo.com/news/putin-seeks-rival-west-high-021945285.html)
+- Oct 22 - [USC board’s longest-serving member retired. Gov. McMaster picks his daughter to fill seat](https://www.yahoo.com/news/usc-board-longest-serving-member-163849502.html)
+- Oct 22 - [What time do polls open? See hours for Travis, Williamson, Bastrop and Hays counties](https://www.yahoo.com/news/time-polls-open-see-hours-162010619.html)
+- Oct 22 - [Russia's friendship with North Korea may have backfired](https://www.yahoo.com/news/russias-friendship-north-korea-may-155815653.html)
+- Oct 22 - [Exclusive-TSMC told US of chip in Huawei product after TechInsights finding, source says](https://finance.yahoo.com/news/exclusive-tsmc-told-us-chip-152440258.html)
 <!-- feed end -->
 
 ### Onstream
