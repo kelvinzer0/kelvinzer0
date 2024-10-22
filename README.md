@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [India, China and S.Africa leaders bolster Putin at key summit](https://www.yahoo.com/news/putin-seeks-rival-west-high-021945285.html)
-- Oct 22 - [USC board’s longest-serving member retired. Gov. McMaster picks his daughter to fill seat](https://www.yahoo.com/news/usc-board-longest-serving-member-163849502.html)
-- Oct 22 - [What time do polls open? See hours for Travis, Williamson, Bastrop and Hays counties](https://www.yahoo.com/news/time-polls-open-see-hours-162010619.html)
+- Oct 22 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
+- Oct 22 - [SC governor can decide whether to grant death row inmate clemency, judge decides](https://www.yahoo.com/news/sc-governor-decide-whether-grant-171608258.html)
 - Oct 22 - [Russia's friendship with North Korea may have backfired](https://www.yahoo.com/news/russias-friendship-north-korea-may-155815653.html)
-- Oct 22 - [Exclusive-TSMC told US of chip in Huawei product after TechInsights finding, source says](https://finance.yahoo.com/news/exclusive-tsmc-told-us-chip-152440258.html)
+- Oct 22 - [Suspect turns himself in for fatal Avon crash](https://www.yahoo.com/news/suspect-turns-himself-fatal-avon-153138833.html)
+- Oct 22 - [Details released on Beach Boulevard shootout, several cars, home hit in crossfire](https://www.yahoo.com/news/details-released-beach-boulevard-shootout-152536222.html)
 <!-- feed end -->
 
 ### Onstream
