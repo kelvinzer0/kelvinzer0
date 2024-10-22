@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [What to know about voter registration, polling locations and deadlines in all 50 states](https://www.yahoo.com/news/know-voter-registration-polling-locations-183158597.html)
 - Oct 22 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
-- Oct 22 - [SC governor can decide whether to grant death row inmate clemency, judge decides](https://www.yahoo.com/news/sc-governor-decide-whether-grant-171608258.html)
-- Oct 22 - [Russia's friendship with North Korea may have backfired](https://www.yahoo.com/news/russias-friendship-north-korea-may-155815653.html)
-- Oct 22 - [Suspect turns himself in for fatal Avon crash](https://www.yahoo.com/news/suspect-turns-himself-fatal-avon-153138833.html)
-- Oct 22 - [Details released on Beach Boulevard shootout, several cars, home hit in crossfire](https://www.yahoo.com/news/details-released-beach-boulevard-shootout-152536222.html)
+- Oct 22 - [Diddy accuser claims pro-athlete intervened during sexual assault at star-studded party: lawsuit](https://www.yahoo.com/news/diddy-accuser-claims-pro-athlete-162653771.html)
+- Oct 22 - [Vanderbilt announces $500 million hospital tower, thousands of job openings](https://www.yahoo.com/news/vanderbilt-announces-500-million-hospital-161554309.html)
+- Oct 22 - [Tim Walz Was Asked To Say Something Nice About Donald Trump, And The Internet Is Loving His Answer](https://www.yahoo.com/entertainment/tim-walz-asked-something-nice-155920050.html)
 <!-- feed end -->
 
 ### Onstream
