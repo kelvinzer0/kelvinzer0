@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Florida woman accused of using Roblox to instruct child, 10, to kill 2-month-old by dropping baby on tile floor](https://www.yahoo.com/news/florida-woman-accused-using-roblox-131639719.html)
-- Oct 22 - [Port Royal police arrest 2 suspects after shots fired at vehicle on Ribaut Road](https://www.yahoo.com/news/port-royal-police-arrest-2-141607197.html)
-- Oct 22 - [Peloton to sell discounted Bike+ at Costco for a limited time](https://finance.yahoo.com/video/peloton-sell-discounted-bike-costco-140244607.html)
-- Oct 22 - [TSMC says it has alerted US of potential China AI chip curbs violation](https://www.yahoo.com/news/tsmc-says-alerted-us-potential-131939748.html)
-- Oct 22 - [Really putting Ukraine's Abrams and F-16s to work fighting Russia means most probably won't survive, but that's the kind of war this is](https://www.yahoo.com/news/really-putting-ukraines-abrams-f-115702366.html)
+- Oct 22 - [Water companies push for higher bills again as customers face up to 84% hike](https://finance.yahoo.com/news/water-companies-push-higher-bills-085828186.html)
+- Oct 22 - [GlobalData visits Paris Motor Show 2024](https://finance.yahoo.com/news/globaldata-visits-paris-motor-show-151350059.html)
+- Oct 22 - [Erdogan says the cleric accused of orchestrating a 2016 coup attempt had a 'dishonorable death'](https://www.yahoo.com/news/erdogan-says-cleric-accused-orchestrating-144826050.html)
+- Oct 22 - [Taxpayers will get higher standard deductions in 2025, IRS announces](https://finance.yahoo.com/news/taxpayers-higher-standard-deductions-2025-144424104.html)
+- Oct 22 - [Russians feared dead after plane shot down in Sudan](https://www.yahoo.com/news/russians-feared-dead-plane-shot-111930966.html)
 <!-- feed end -->
 
 ### Onstream
