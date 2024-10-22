@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - ['Actually busier now': Business picking up for downtown Augusta eateries, but problems linger](https://finance.yahoo.com/news/actually-busier-now-business-picking-100028570.html)
+- Oct 22 - [Popular sub chain one of 2 South MS restaurants in same shopping center to fail inspection](https://www.yahoo.com/news/popular-sub-chain-one-2-100000889.html)
+- Oct 22 - [Ask an Advisor: I Withdrew $60k from My Retirement Plan This Year Which Increased My Medicare Premiums. Is It Permanent?](https://finance.yahoo.com/news/ask-advisor-withdrew-60k-retirement-100000102.html)
+- Oct 22 - [James Carville Makes Bold Election Prediction: ‘I’m Doubling Down On That'](https://www.yahoo.com/news/james-carville-makes-bold-election-093016917.html)
 - Oct 22 - [Woman wedged upside down between rocks for 7 hours after trying to retrieve her phone](https://www.yahoo.com/news/woman-wedged-upside-down-between-073625455.html)
-- Oct 22 - [This Big Social Security Change Was Just Announced, and It Will Affect Your 2025 Benefits](https://finance.yahoo.com/news/big-social-security-change-just-074400410.html)
-- Oct 22 - [She survived the October 7 terror attack. A year later, she took her life. Her family blames the state for not helping.](https://www.yahoo.com/news/she-survived-october-7-terror-063737592.html)
-- Oct 22 - [Middle East latest: Hezbollah fires rockets into central Israel](https://www.yahoo.com/news/middle-east-latest-hezbollah-fires-055909142.html)
-- Oct 22 - [Man wanted on child porn charges in 2 Mass. towns found hiding at secluded campsite, feds say](https://www.yahoo.com/news/man-wanted-child-porn-charges-193119746.html)
 <!-- feed end -->
 
 ### Onstream
