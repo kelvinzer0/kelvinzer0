@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Tri-City Herald death notices Oct. 22, 2024](https://www.yahoo.com/news/tri-city-herald-death-notices-120000085.html)
-- Oct 22 - [Ukraine's population has fallen by 10 million since Russia's invasion, UN says](https://www.yahoo.com/news/ukraines-population-fallen-10-million-104343521.html)
-- Oct 22 - [South Korea warns it can send arms to Ukraine after reports of North's troops in Russia](https://www.yahoo.com/news/south-korea-warns-send-arms-101855609.html)
-- Oct 22 - [Michigan mom speaks out after Grand Valley State University sends son $84K bill for FOIA files he requested](https://finance.yahoo.com/news/michigan-mom-speaks-grand-valley-100700036.html)
-- Oct 22 - [Republican Donors’ Quiet, Dangerous Plans for the Next Presidency](https://www.yahoo.com/news/republican-donors-quiet-dangerous-plans-100000660.html)
+- Oct 22 - [Lebanon's Hezbollah rules out negotiations during fighting with Israel](https://www.yahoo.com/news/lebanons-hezbollah-rules-negotiations-during-124406614.html)
+- Oct 22 - [Moody's raises full-year profit forecast above estimates on strong product demand](https://finance.yahoo.com/news/moodys-raises-full-profit-forecast-120802000.html)
+- Oct 22 - [Really putting Ukraine's Abrams and F-16s to work fighting Russia means most probably won't survive, but that's the kind of war this is](https://www.yahoo.com/news/really-putting-ukraines-abrams-f-115702366.html)
+- Oct 22 - [She survived the October 7 terror attack. A year later, she took her life. Her family blames the state for not helping.](https://www.yahoo.com/news/she-survived-october-7-terror-111823390.html)
+- Oct 22 - [Verizon misses quarterly revenue estimates on fewer device upgrades](https://finance.yahoo.com/news/verizons-flexible-5g-plans-lift-110124862.html)
 <!-- feed end -->
 
 ### Onstream
