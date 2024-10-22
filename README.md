@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [If A Restaurant Server Does This One Thing, They Are More Likely To Get A Bigger Tip](https://www.yahoo.com/lifestyle/restaurant-server-does-one-thing-021602884.html)
-- Oct 21 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
-- Oct 21 - [Shocking Video Shows Driver Reversing Into Car on Parkway](https://www.yahoo.com/news/shocking-video-shows-driver-reversing-214902214.html)
-- Oct 21 - [Boeing’s Striking Machinists Make $115,000 a Year. Here’s How Much They Could End Up Earning in New Deal.](https://www.barrons.com/articles/boeing-strike-stock-price-vote-58f1ee75?siteid=yhoof2&yptr=yahoo)
+- Oct 21 - [Las Vegas-area prison employee suspected of impairment sent home, crashes and dies](https://www.yahoo.com/news/las-vegas-area-prison-employee-235219219.html)
+- Oct 21 - [American YouTuber kidnapped in the Philippines after marrying local woman](https://www.yahoo.com/news/american-youtuber-kidnapped-philippines-marrying-203638470.html)
 - Oct 21 - [These 3 struggles sent this retired couple back to the U.S. after a move overseas](https://finance.yahoo.com/news/3-struggles-sent-retired-couple-095300047.html)
+- Oct 21 - [Palantir Peer Adds New Buy Point — With This Twist And Some 'Magic'](https://www.investors.com/research/how-to-find-the-best-stocks-to-buy/shopify-stock-joins-nvidia-meta-as-palantir-peer-eyes-breakout/?src=A00220&yptr=yahoo)
+- Oct 21 - [Watch: Blue Ridge Parkway devastation in North Carolina captured by drone footage](https://www.yahoo.com/news/watch-blue-ridge-parkway-devastation-200323623.html)
 <!-- feed end -->
 
 ### Onstream
