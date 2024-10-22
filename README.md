@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Missing Pensacola man Vernon Flowers Jr.'s body discovered by Escambia County deputies](https://www.yahoo.com/news/missing-pensacola-man-vernon-flowers-212718590.html)
+- Oct 22 - [Venezuela's Nicolas Maduro arrives in Russia for BRICS summit](https://www.yahoo.com/news/venezuelas-nicolas-maduro-arrives-russia-223023154.html)
+- Oct 22 - [Trump Was Enraged by Funeral Cost for ‘F–king Mexican’ U.S. Soldier: Report](https://www.yahoo.com/news/trump-enraged-funeral-cost-f-211006973.html)
 - Oct 22 - [Deadly E. coli outbreak linked to McDonald's Quarter Pounders sickens 49 people in 10 states](https://www.yahoo.com/news/deadly-e-coli-outbreak-linked-210803628.html)
-- Oct 22 - [Mexico announces food and agriculture plan that could take the country back to the 1980s](https://www.yahoo.com/news/mexico-announces-food-agriculture-plan-190008509.html)
-- Oct 22 - [AP PHOTOS: Images capture exact moments an Israeli missile strikes building in Beirut](https://www.yahoo.com/news/ap-photos-images-capture-exact-180752993.html)
-- Oct 22 - [A UN report says it could take 350 years for Gaza to rebuild if it remains under a blockade](https://www.yahoo.com/news/un-report-says-could-350-180622827.html)
+- Oct 22 - [Kristy strengthens into a hurricane in the eastern Pacific Ocean](https://www.yahoo.com/news/kristy-strengthens-hurricane-eastern-pacific-205716037.html)
+- Oct 22 - [Vance’s wife carries this 800-page book around with her on the campaign trail](https://www.yahoo.com/news/vance-wife-carries-800-page-191550838.html)
 <!-- feed end -->
 
 ### Onstream
