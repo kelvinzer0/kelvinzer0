@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [Georgia's shark-owning billionaire tells voters: Don't risk war with Russia](https://www.yahoo.com/news/georgias-shark-owning-billionaire-tells-050448582.html)
 - Oct 22 - [Man wanted on child porn charges in 2 Mass. towns found hiding at secluded campsite, feds say](https://www.yahoo.com/news/man-wanted-child-porn-charges-193119746.html)
-- Oct 22 - [If A Restaurant Server Does This One Thing, They Are More Likely To Get A Bigger Tip](https://www.yahoo.com/lifestyle/restaurant-server-does-one-thing-021602884.html)
 - Oct 21 - [Las Vegas-area prison employee suspected of impairment sent home, crashes and dies](https://www.yahoo.com/news/las-vegas-area-prison-employee-235219219.html)
 - Oct 21 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
-- Oct 21 - [American YouTuber kidnapped in the Philippines after marrying local woman](https://www.yahoo.com/news/american-youtuber-kidnapped-philippines-marrying-203638470.html)
+- Oct 21 - [Shocking Video Shows Driver Reversing Into Car on Parkway](https://www.yahoo.com/news/shocking-video-shows-driver-reversing-214902214.html)
 <!-- feed end -->
 
 ### Onstream
