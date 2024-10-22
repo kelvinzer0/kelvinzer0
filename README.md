@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [What to know about voter registration, polling locations and deadlines in all 50 states](https://www.yahoo.com/news/know-voter-registration-polling-locations-183158597.html)
-- Oct 22 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
-- Oct 22 - [Diddy accuser claims pro-athlete intervened during sexual assault at star-studded party: lawsuit](https://www.yahoo.com/news/diddy-accuser-claims-pro-athlete-162653771.html)
-- Oct 22 - [Vanderbilt announces $500 million hospital tower, thousands of job openings](https://www.yahoo.com/news/vanderbilt-announces-500-million-hospital-161554309.html)
-- Oct 22 - [Tim Walz Was Asked To Say Something Nice About Donald Trump, And The Internet Is Loving His Answer](https://www.yahoo.com/entertainment/tim-walz-asked-something-nice-155920050.html)
+- Oct 22 - [Jim Cramer Thinks Palantir Technologies (PLTR) ‘Won’t Stop’ Because of CEO ‘That We Dream Of’](https://finance.yahoo.com/news/jim-cramer-thinks-palantir-technologies-194946995.html)
+- Oct 22 - [Water companies push for higher bills again as customers face up to 84% hike](https://finance.yahoo.com/news/water-companies-push-higher-bills-085828186.html)
+- Oct 22 - [Vance’s wife carries this 800-page book around with her on the campaign trail](https://www.yahoo.com/news/vance-wife-carries-800-page-191550838.html)
+- Oct 22 - [Mexico announces food and agriculture plan that could take the country back to the 1980s](https://www.yahoo.com/news/mexico-announces-food-agriculture-plan-190008509.html)
+- Oct 22 - [AP PHOTOS: Images capture exact moments an Israeli missile strikes building in Beirut](https://www.yahoo.com/news/ap-photos-images-capture-exact-180752993.html)
 <!-- feed end -->
 
 ### Onstream
