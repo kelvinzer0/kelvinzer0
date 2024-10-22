@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [Jamestown woman sentenced for allegedly threatening to shoot boss](https://www.yahoo.com/news/jamestown-woman-sentenced-allegedly-threatening-034900725.html)
+- Oct 22 - [Man wanted on child porn charges in 2 Mass. towns found hiding at secluded campsite, feds say](https://www.yahoo.com/news/man-wanted-child-porn-charges-193119746.html)
 - Oct 21 - [Las Vegas-area prison employee suspected of impairment sent home, crashes and dies](https://www.yahoo.com/news/las-vegas-area-prison-employee-235219219.html)
-- Oct 21 - [American YouTuber kidnapped in the Philippines after marrying local woman](https://www.yahoo.com/news/american-youtuber-kidnapped-philippines-marrying-203638470.html)
+- Oct 21 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
 - Oct 21 - [These 3 struggles sent this retired couple back to the U.S. after a move overseas](https://finance.yahoo.com/news/3-struggles-sent-retired-couple-095300047.html)
-- Oct 21 - [Palantir Peer Adds New Buy Point — With This Twist And Some 'Magic'](https://www.investors.com/research/how-to-find-the-best-stocks-to-buy/shopify-stock-joins-nvidia-meta-as-palantir-peer-eyes-breakout/?src=A00220&yptr=yahoo)
-- Oct 21 - [Watch: Blue Ridge Parkway devastation in North Carolina captured by drone footage](https://www.yahoo.com/news/watch-blue-ridge-parkway-devastation-200323623.html)
 <!-- feed end -->
 
 ### Onstream
