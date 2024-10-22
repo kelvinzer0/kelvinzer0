@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - ['Actually busier now': Business picking up for downtown Augusta eateries, but problems linger](https://finance.yahoo.com/news/actually-busier-now-business-picking-100028570.html)
-- Oct 22 - [Popular sub chain one of 2 South MS restaurants in same shopping center to fail inspection](https://www.yahoo.com/news/popular-sub-chain-one-2-100000889.html)
-- Oct 22 - [Ask an Advisor: I Withdrew $60k from My Retirement Plan This Year Which Increased My Medicare Premiums. Is It Permanent?](https://finance.yahoo.com/news/ask-advisor-withdrew-60k-retirement-100000102.html)
-- Oct 22 - [James Carville Makes Bold Election Prediction: ‘I’m Doubling Down On That'](https://www.yahoo.com/news/james-carville-makes-bold-election-093016917.html)
-- Oct 22 - [Woman wedged upside down between rocks for 7 hours after trying to retrieve her phone](https://www.yahoo.com/news/woman-wedged-upside-down-between-073625455.html)
+- Oct 22 - [Tri-City Herald death notices Oct. 22, 2024](https://www.yahoo.com/news/tri-city-herald-death-notices-120000085.html)
+- Oct 22 - [Ukraine's population has fallen by 10 million since Russia's invasion, UN says](https://www.yahoo.com/news/ukraines-population-fallen-10-million-104343521.html)
+- Oct 22 - [South Korea warns it can send arms to Ukraine after reports of North's troops in Russia](https://www.yahoo.com/news/south-korea-warns-send-arms-101855609.html)
+- Oct 22 - [Michigan mom speaks out after Grand Valley State University sends son $84K bill for FOIA files he requested](https://finance.yahoo.com/news/michigan-mom-speaks-grand-valley-100700036.html)
+- Oct 22 - [Republican Donors’ Quiet, Dangerous Plans for the Next Presidency](https://www.yahoo.com/news/republican-donors-quiet-dangerous-plans-100000660.html)
 <!-- feed end -->
 
 ### Onstream
