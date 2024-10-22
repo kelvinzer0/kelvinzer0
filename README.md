@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Hezbollah says launches volley of rockets into Israel, Blinken returns seeking ceasefire](https://www.yahoo.com/news/hezbollah-says-launches-volley-rockets-062835418.html)
-- Oct 22 - [Spanish Public Broadcaster’s RTVE’s VOD Platform RTVE Play+ Launches in Asia and Oceania](https://www.yahoo.com/tech/spanish-public-broadcaster-rtve-vod-061312701.html)
-- Oct 22 - [Georgia's shark-owning billionaire tells voters: Don't risk war with Russia](https://www.yahoo.com/news/georgias-shark-owning-billionaire-tells-050448582.html)
+- Oct 22 - [Woman wedged upside down between rocks for 7 hours after trying to retrieve her phone](https://www.yahoo.com/news/woman-wedged-upside-down-between-073625455.html)
 - Oct 22 - [Man wanted on child porn charges in 2 Mass. towns found hiding at secluded campsite, feds say](https://www.yahoo.com/news/man-wanted-child-porn-charges-193119746.html)
 - Oct 21 - [Las Vegas-area prison employee suspected of impairment sent home, crashes and dies](https://www.yahoo.com/news/las-vegas-area-prison-employee-235219219.html)
+- Oct 21 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
+- Oct 21 - [Shocking Video Shows Driver Reversing Into Car on Parkway](https://www.yahoo.com/news/shocking-video-shows-driver-reversing-214902214.html)
 <!-- feed end -->
 
 ### Onstream
