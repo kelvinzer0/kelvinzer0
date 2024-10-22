@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Lebanon's Hezbollah rules out negotiations during fighting with Israel](https://www.yahoo.com/news/lebanons-hezbollah-rules-negotiations-during-124406614.html)
-- Oct 22 - [Moody's raises full-year profit forecast above estimates on strong product demand](https://finance.yahoo.com/news/moodys-raises-full-profit-forecast-120802000.html)
-- Oct 22 - [Really putting Ukraine's Abrams and F-16s to work fighting Russia means most probably won't survive, but that's the kind of war this is](https://www.yahoo.com/news/really-putting-ukraines-abrams-f-115702366.html)
+- Oct 22 - [Russians feared dead after plane shot down in Sudan](https://www.yahoo.com/news/russians-feared-dead-plane-shot-111930966.html)
+- Oct 22 - [Florida woman accused of using Roblox to instruct child, 10, to kill 2-month-old by dropping baby on tile floor](https://www.yahoo.com/news/florida-woman-accused-using-roblox-131639719.html)
 - Oct 22 - [She survived the October 7 terror attack. A year later, she took her life. Her family blames the state for not helping.](https://www.yahoo.com/news/she-survived-october-7-terror-111823390.html)
-- Oct 22 - [Verizon misses quarterly revenue estimates on fewer device upgrades](https://finance.yahoo.com/news/verizons-flexible-5g-plans-lift-110124862.html)
+- Oct 22 - [GM’s profit nears a record a year after saying it couldn’t afford its workers’ pay demands](https://finance.yahoo.com/news/gm-profit-nears-record-saying-110953320.html)
+- Oct 22 - [Target to lower prices on 2,000 items ahead of holiday season](https://finance.yahoo.com/news/target-lower-prices-2-000-110906612.html)
 <!-- feed end -->
 
 ### Onstream
