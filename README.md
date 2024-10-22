@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [China says it has extended agreement with Vatican on bishops](https://www.yahoo.com/news/china-says-extended-agreement-vatican-082128806.html)
-- Oct 22 - [Bonds Are Selling Off Everywhere as Traders Rethink Fed Pathway](https://www.yahoo.com/news/bonds-selling-off-everywhere-traders-022248323.html)
+- Oct 22 - [Woman wedged upside down between rocks for 7 hours after trying to retrieve her phone](https://www.yahoo.com/news/woman-wedged-upside-down-between-073625455.html)
+- Oct 22 - [This Big Social Security Change Was Just Announced, and It Will Affect Your 2025 Benefits](https://finance.yahoo.com/news/big-social-security-change-just-074400410.html)
 - Oct 22 - [She survived the October 7 terror attack. A year later, she took her life. Her family blames the state for not helping.](https://www.yahoo.com/news/she-survived-october-7-terror-063737592.html)
-- Oct 22 - [Taiwan rejects South African demand to move its representative office from capital](https://www.yahoo.com/news/taiwan-again-rejects-south-african-053825703.html)
+- Oct 22 - [Middle East latest: Hezbollah fires rockets into central Israel](https://www.yahoo.com/news/middle-east-latest-hezbollah-fires-055909142.html)
 - Oct 22 - [Man wanted on child porn charges in 2 Mass. towns found hiding at secluded campsite, feds say](https://www.yahoo.com/news/man-wanted-child-porn-charges-193119746.html)
 <!-- feed end -->
 
