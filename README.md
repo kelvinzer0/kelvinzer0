@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Woman wedged upside down between rocks for 7 hours after trying to retrieve her phone](https://www.yahoo.com/news/woman-wedged-upside-down-between-073625455.html)
+- Oct 22 - [China says it has extended agreement with Vatican on bishops](https://www.yahoo.com/news/china-says-extended-agreement-vatican-082128806.html)
+- Oct 22 - [Bonds Are Selling Off Everywhere as Traders Rethink Fed Pathway](https://www.yahoo.com/news/bonds-selling-off-everywhere-traders-022248323.html)
+- Oct 22 - [She survived the October 7 terror attack. A year later, she took her life. Her family blames the state for not helping.](https://www.yahoo.com/news/she-survived-october-7-terror-063737592.html)
+- Oct 22 - [Taiwan rejects South African demand to move its representative office from capital](https://www.yahoo.com/news/taiwan-again-rejects-south-african-053825703.html)
 - Oct 22 - [Man wanted on child porn charges in 2 Mass. towns found hiding at secluded campsite, feds say](https://www.yahoo.com/news/man-wanted-child-porn-charges-193119746.html)
-- Oct 21 - [Las Vegas-area prison employee suspected of impairment sent home, crashes and dies](https://www.yahoo.com/news/las-vegas-area-prison-employee-235219219.html)
-- Oct 21 - [Mega meteorite tore up seabed and boiled Earth's oceans](https://www.yahoo.com/news/mega-meteorite-tore-seabed-boiled-230235470.html)
-- Oct 21 - [Shocking Video Shows Driver Reversing Into Car on Parkway](https://www.yahoo.com/news/shocking-video-shows-driver-reversing-214902214.html)
 <!-- feed end -->
 
 ### Onstream
