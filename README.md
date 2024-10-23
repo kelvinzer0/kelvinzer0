@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Existing home sales plunge to 14-year-low amid stubbornly high prices](https://finance.yahoo.com/news/existing-home-sales-plunge-14-185939173.html)
-- Oct 23 - [San Antonio mom of 4 Suzanne Simpson still missing after husband, his business partner arrested](https://www.yahoo.com/news/san-antonio-mom-4-suzanne-181655183.html)
-- Oct 23 - [Historic Biltmore Estate suffers ‘extensive’ damage in some places after Helene thrashes North Carolina](https://www.yahoo.com/news/historic-biltmore-estate-extensive-damage-235017609.html)
+- Oct 23 - [Do You Know What You Need To Be "Rich?" Here's What People Think You Need VS. What Data Says Actually Makes You Wealthy](https://finance.yahoo.com/news/know-rich-heres-people-think-193017585.html)
 - Oct 23 - [AP photographer describes how he captured dramatic Israeli bomb strike on Beirut building](https://www.yahoo.com/news/ap-photographer-describes-captured-dramatic-180355346.html)
 - Oct 23 - [Israeli weapon seen in rare AP photos of Beirut airstrike appears to be a powerful smart bomb](https://www.yahoo.com/news/israeli-weapon-seen-rare-ap-175827552.html)
+- Oct 23 - ['I Splatted. It Hurt,' Says Dave Ramsey, Referring To The Sudden Call On His $1.2 Million Loans That Turned His World Upside Down](https://finance.yahoo.com/news/splatted-hurt-says-dave-ramsey-171521265.html)
+- Oct 23 - [Facilities not clean in San Angelo weekly restaurant inspections](https://www.yahoo.com/news/facilities-not-clean-san-angelo-171023570.html)
 <!-- feed end -->
 
 ### Onstream
