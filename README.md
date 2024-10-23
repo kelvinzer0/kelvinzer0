@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [The CEO of Ford says he's been driving a Xiaomi EV for the past 6 months and doesn't want to give it up](https://www.yahoo.com/news/ceo-ford-says-hes-driving-115916540.html)
-- Oct 23 - [Adoptee deported from US criticizes Korean government and adoption agency over lack of citizenship](https://www.yahoo.com/news/adoptee-deported-us-criticizes-korean-115106604.html)
-- Oct 23 - [Chinese EV travels over 550 miles on single charge thanks to revolutionary battery — here's how it could influence the American auto industry](https://www.yahoo.com/tech/chinese-ev-travels-over-550-103033592.html)
-- Oct 23 - [Nvidia's design flaw with Blackwell AI chips now fixed, CEO says](https://finance.yahoo.com/news/nvidias-design-flaw-blackwell-ai-102416114.html)
-- Oct 23 - [McDonald's Quarter Pounders linked to E. Coli outbreak leaves 1 dead: See case map](https://www.yahoo.com/news/mcdonalds-quarter-pounders-linked-e-093131919.html)
+- Oct 23 - [Frozen waffle recall expands to pancakes for possible listeria risk](https://www.yahoo.com/news/frozen-waffle-recall-expands-pancakes-155520726.html)
+- Oct 23 - [Top Hezbollah official Hashem Safieddine is dead](https://www.yahoo.com/news/top-hezbollah-official-hashem-safieddine-151216091.html)
+- Oct 23 - [Iran strike will show your force, Israel's defence chief tells pilots](https://www.yahoo.com/news/iran-strike-show-force-israels-135025858.html)
+- Oct 23 - [I-15 lanes reopen after morning closure due to Las Vegas freeway shooting](https://www.yahoo.com/news/15-lanes-reopen-morning-closure-132023502.html)
+- Oct 23 - [Dividend Investor Earns $300K Per Year On $4.4M Investment: Their Top 10 Picks](https://finance.yahoo.com/news/dividend-investor-earns-300k-per-130033583.html)
 <!-- feed end -->
 
 ### Onstream
