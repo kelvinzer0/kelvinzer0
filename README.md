@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Boeing-made satellite breaks up in space](https://www.yahoo.com/news/boeing-made-satellite-breaks-space-035041819.html)
 - Oct 23 - [People Who Went To See A Doctor "Just To Be Sure" And Ended Up Surviving Because Of It Are Sharing Their Stories](https://www.yahoo.com/lifestyle/people-went-see-doctor-just-023502325.html)
-- Oct 22 - [Minneapolis standoff leads to 2 shot, 'tragic' situation in western MN](https://www.yahoo.com/news/minneapolis-standoff-leads-2-shot-221028908.html)
+- Oct 23 - [Boeing is expected to report a big Q3 loss, then wait for results of vote by striking workers](https://finance.yahoo.com/news/boeing-expected-report-big-q3-000704278.html)
+- Oct 22 - [“16 and Pregnant” star Autumn Crittendon's cause of death revealed](https://www.yahoo.com/entertainment/16-pregnant-star-autumn-crittendons-231350973.html)
 - Oct 22 - [The Abrams tank built to fight the Soviets appears to be at war on Russian soil](https://www.yahoo.com/news/abrams-tank-built-fight-soviets-212341967.html)
-- Oct 22 - [Nvidia Stock Hits All-Time Highs: Here's How Much Nancy Pelosi's 500 Call Options Are Worth Today](https://finance.yahoo.com/news/nvidia-stock-hits-time-highs-210034741.html)
+- Oct 22 - [Deadly E. coli outbreak linked to McDonald's Quarter Pounders sickens 49 people in 10 states](https://www.yahoo.com/news/deadly-e-coli-outbreak-linked-210803628.html)
 <!-- feed end -->
 
 ### Onstream
