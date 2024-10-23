@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [5 Monster Stocks to Hold for the Next 5 to 25 Years](https://finance.yahoo.com/news/5-monster-stocks-hold-next-111500018.html)
-- Oct 23 - [Nvidia's design flaw with Blackwell AI chips now fixed, CEO says](https://finance.yahoo.com/news/nvidias-design-flaw-blackwell-ai-102416232.html)
+- Oct 23 - [The CEO of Ford says he's been driving a Xiaomi EV for the past 6 months and doesn't want to give it up](https://www.yahoo.com/news/ceo-ford-says-hes-driving-115916540.html)
+- Oct 23 - [Chinese EV travels over 550 miles on single charge thanks to revolutionary battery — here's how it could influence the American auto industry](https://www.yahoo.com/tech/chinese-ev-travels-over-550-103033592.html)
+- Oct 23 - [The obscure earthquake flaw in California homes, and how to know if you have it](https://www.yahoo.com/news/obscure-earthquake-flaw-california-homes-100027806.html)
 - Oct 23 - [Hurricane Kristy strengthens into a Category 2 storm in the Pacific Ocean](https://www.yahoo.com/news/hurricane-kristy-strengthens-category-2-095750785.html)
-- Oct 23 - [Billionaire Warren Buffett Sold 56% of Berkshire's Stake in Apple and Is Piling Into Wall Street's Most Prominent Reverse Stock Split of 2024](https://finance.yahoo.com/news/billionaire-warren-buffett-sold-56-090600109.html)
-- Oct 23 - [Florida's condo crisis: In Brevard County, a community faces $50,000 repair bill per unit](https://www.yahoo.com/news/floridas-condo-crisis-brevard-county-090215152.html)
+- Oct 23 - [Hurricane Milton ravaged one of the most popular areas for 'snowbirds' on Florida's Gulf Coast](https://www.yahoo.com/news/hurricane-milton-ravaged-one-most-040610742.html)
 <!-- feed end -->
 
 ### Onstream
