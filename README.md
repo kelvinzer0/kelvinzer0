@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [17-year-old crashes into home after being shot in Anderson](https://www.yahoo.com/news/17-old-crashes-home-being-214507736.html)
+- Oct 23 - [Boise Airport sets a record it would rather not have, TSA says — and it’s only October](https://www.yahoo.com/news/boise-airport-sets-record-rather-222927241.html)
+- Oct 23 - [Europe's data centre power demand expected to triple by 2030, McKinsey report says](https://finance.yahoo.com/news/europes-data-centre-power-demand-220302929.html)
+- Oct 23 - [DNA links a suspected Chicago-area serial killer who died in 1981 to a woman's 1979 death](https://www.yahoo.com/news/dna-links-suspected-chicago-area-211737943.html)
+- Oct 23 - [A 19-year-old disappeared from her Illinois village in 1979. Almost half a century later, the cold case has been solved](https://www.yahoo.com/news/19-old-disappeared-her-illinois-210926505.html)
 - Oct 23 - [A grizzly bear that delighted Grand Teton visitors for decades has been killed by a vehicle in Wyoming](https://www.yahoo.com/news/grizzly-bear-delighted-grand-teton-202156186.html)
-- Oct 23 - [US lawmaker demands answers on TSMC chip in Huawei device](https://finance.yahoo.com/news/us-lawmaker-demands-answers-tsmc-190844348.html)
-- Oct 23 - [Israeli weapon seen in rare AP photos of Beirut airstrike appears to be a powerful smart bomb](https://www.yahoo.com/news/israeli-weapon-seen-rare-ap-175827552.html)
-- Oct 23 - ['I Splatted. It Hurt,' Says Dave Ramsey, Referring To The Sudden Call On His $1.2 Million Loans That Turned His World Upside Down](https://finance.yahoo.com/news/splatted-hurt-says-dave-ramsey-171521265.html)
 <!-- feed end -->
 
 ### Onstream
