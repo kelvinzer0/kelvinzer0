@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Boeing braces for union vote on wage deal that could end costly strike](https://finance.yahoo.com/news/boeing-braces-union-vote-wage-100311507.html)
+- Oct 23 - [5 Monster Stocks to Hold for the Next 5 to 25 Years](https://finance.yahoo.com/news/5-monster-stocks-hold-next-111500018.html)
+- Oct 23 - [Nvidia's design flaw with Blackwell AI chips now fixed, CEO says](https://finance.yahoo.com/news/nvidias-design-flaw-blackwell-ai-102416232.html)
 - Oct 23 - [Hurricane Kristy strengthens into a Category 2 storm in the Pacific Ocean](https://www.yahoo.com/news/hurricane-kristy-strengthens-category-2-095750785.html)
-- Oct 23 - [Putin's dollar problem is on clear display at the BRICS summit, starting with the moment guests land at the airport](https://www.yahoo.com/news/putins-dollar-problem-clear-display-090809178.html)
-- Oct 23 - [Hurricane Milton ravaged one of the most popular areas for 'snowbirds' on Florida's Gulf Coast](https://www.yahoo.com/news/hurricane-milton-ravaged-one-most-040610742.html)
-- Oct 23 - [People Who Went To See A Doctor "Just To Be Sure" And Ended Up Surviving Because Of It Are Sharing Their Stories](https://www.yahoo.com/lifestyle/people-went-see-doctor-just-023502325.html)
+- Oct 23 - [Billionaire Warren Buffett Sold 56% of Berkshire's Stake in Apple and Is Piling Into Wall Street's Most Prominent Reverse Stock Split of 2024](https://finance.yahoo.com/news/billionaire-warren-buffett-sold-56-090600109.html)
+- Oct 23 - [Florida's condo crisis: In Brevard County, a community faces $50,000 repair bill per unit](https://www.yahoo.com/news/floridas-condo-crisis-brevard-county-090215152.html)
 <!-- feed end -->
 
 ### Onstream
