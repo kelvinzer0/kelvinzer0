@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [“16 and Pregnant” star Autumn Crittendon's cause of death revealed](https://www.yahoo.com/entertainment/16-pregnant-star-autumn-crittendons-231350973.html)
-- Oct 22 - [Missing Pensacola man Vernon Flowers Jr.'s body discovered by Escambia County deputies](https://www.yahoo.com/news/missing-pensacola-man-vernon-flowers-212718590.html)
+- Oct 22 - [Harris deploys Obama, Eminem as Trump shows fear amid record-breaking early voting](https://www.yahoo.com/news/harris-deploys-obama-eminem-trump-234304425.html)
+- Oct 22 - [Man arrested after confrontation, shooting along Border Highway](https://www.yahoo.com/news/man-arrested-confrontation-shooting-along-234139883.html)
+- Oct 22 - [Deadly E. coli outbreak linked to McDonald's Quarter Pounders sickens 49 people in 10 states](https://www.yahoo.com/news/deadly-e-coli-outbreak-linked-210803628.html)
 - Oct 22 - [Kristy strengthens into a hurricane in the eastern Pacific Ocean](https://www.yahoo.com/news/kristy-strengthens-hurricane-eastern-pacific-205716037.html)
-- Oct 22 - [Vance’s wife carries this 800-page book around with her on the campaign trail](https://www.yahoo.com/news/vance-wife-carries-800-page-191550838.html)
-- Oct 22 - [Mexico announces food and agriculture plan that could take the country back to the 1980s](https://www.yahoo.com/news/mexico-announces-food-agriculture-plan-190008509.html)
+- Oct 22 - [Albuquerque woman sentenced to a decade in prison for death of daughter](https://www.yahoo.com/news/albuquerque-woman-sentenced-decade-prison-202451087.html)
 <!-- feed end -->
 
 ### Onstream
