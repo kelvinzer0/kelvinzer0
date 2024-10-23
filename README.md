@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Florida residents planning to sell homes, leave the state after hurricane season: 'We're done'](https://www.yahoo.com/news/florida-residents-planning-sell-homes-023807573.html)
+- Oct 23 - [Pastor accused of putting recording device in ex-wife's Summit home sentenced to probation](https://www.yahoo.com/news/pastor-accused-putting-recording-device-092034773.html)
+- Oct 23 - [Billionaire Warren Buffett Sold 56% of Berkshire's Stake in Apple and Is Piling Into Wall Street's Most Prominent Reverse Stock Split of 2024](https://finance.yahoo.com/news/billionaire-warren-buffett-sold-56-090600109.html)
+- Oct 23 - [Baptist Hospital: The rise and fall of a Knoxville health care empire](https://www.yahoo.com/news/baptist-hospital-rise-fall-knoxville-090321731.html)
 - Oct 23 - [People Who Went To See A Doctor "Just To Be Sure" And Ended Up Surviving Because Of It Are Sharing Their Stories](https://www.yahoo.com/lifestyle/people-went-see-doctor-just-023502325.html)
-- Oct 22 - [The Abrams tank built to fight the Soviets appears to be at war on Russian soil](https://www.yahoo.com/news/abrams-tank-built-fight-soviets-212341967.html)
-- Oct 22 - [Kristy strengthens into a hurricane in the eastern Pacific Ocean](https://www.yahoo.com/news/kristy-strengthens-hurricane-eastern-pacific-205716037.html)
-- Oct 22 - [Mexico announces food and agriculture plan that could take the country back to the 1980s](https://www.yahoo.com/news/mexico-announces-food-agriculture-plan-190008509.html)
+- Oct 22 - [Harris deploys Obama, Eminem as Trump shows fear amid record-breaking early voting](https://www.yahoo.com/news/harris-deploys-obama-eminem-trump-234304425.html)
 <!-- feed end -->
 
 ### Onstream
