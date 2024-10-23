@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - ['I Splatted. It Hurt,' Says Dave Ramsey, Referring To The Sudden Call On His $1.2 Million Loans That Turned His World Upside Down](https://finance.yahoo.com/news/splatted-hurt-says-dave-ramsey-171521265.html)
-- Oct 23 - [Texas Cop Fired After Road Rage Shooting](https://autos.yahoo.com/texas-cop-fired-road-rage-170000021.html)
+- Oct 23 - [San Antonio mom of 4 Suzanne Simpson still missing after husband, his business partner arrested](https://www.yahoo.com/news/san-antonio-mom-4-suzanne-181655183.html)
+- Oct 23 - [World’s most expensive dog coming to exclusive event in Beverly Hills](https://www.yahoo.com/lifestyle/world-most-expensive-dog-coming-153017341.html)
 - Oct 23 - [Top Hezbollah official Hashem Safieddine is dead](https://www.yahoo.com/news/top-hezbollah-official-hashem-safieddine-151216091.html)
 - Oct 23 - [Iran strike will show your force, Israel's defence chief tells pilots](https://www.yahoo.com/news/iran-strike-show-force-israels-135025858.html)
-- Oct 23 - [I-15 lanes reopen after morning closure due to Las Vegas freeway shooting](https://www.yahoo.com/news/15-lanes-reopen-morning-closure-132023502.html)
+- Oct 23 - [Angry Cyclist Confronts Driver Before Calling Cops](https://www.yahoo.com/news/angry-cyclist-confronts-driver-calling-133302504.html)
 <!-- feed end -->
 
 ### Onstream
