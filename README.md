@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Existing home sales plunge to 14-year-low amid stubbornly high prices](https://finance.yahoo.com/news/existing-home-sales-plunge-14-185939173.html)
 - Oct 23 - [San Antonio mom of 4 Suzanne Simpson still missing after husband, his business partner arrested](https://www.yahoo.com/news/san-antonio-mom-4-suzanne-181655183.html)
-- Oct 23 - [World’s most expensive dog coming to exclusive event in Beverly Hills](https://www.yahoo.com/lifestyle/world-most-expensive-dog-coming-153017341.html)
-- Oct 23 - [Top Hezbollah official Hashem Safieddine is dead](https://www.yahoo.com/news/top-hezbollah-official-hashem-safieddine-151216091.html)
-- Oct 23 - [Iran strike will show your force, Israel's defence chief tells pilots](https://www.yahoo.com/news/iran-strike-show-force-israels-135025858.html)
-- Oct 23 - [Angry Cyclist Confronts Driver Before Calling Cops](https://www.yahoo.com/news/angry-cyclist-confronts-driver-calling-133302504.html)
+- Oct 23 - [Historic Biltmore Estate suffers ‘extensive’ damage in some places after Helene thrashes North Carolina](https://www.yahoo.com/news/historic-biltmore-estate-extensive-damage-235017609.html)
+- Oct 23 - [AP photographer describes how he captured dramatic Israeli bomb strike on Beirut building](https://www.yahoo.com/news/ap-photographer-describes-captured-dramatic-180355346.html)
+- Oct 23 - [Israeli weapon seen in rare AP photos of Beirut airstrike appears to be a powerful smart bomb](https://www.yahoo.com/news/israeli-weapon-seen-rare-ap-175827552.html)
 <!-- feed end -->
 
 ### Onstream
