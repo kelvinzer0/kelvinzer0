@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Iran strike will show your force, Israel's defence chief tells pilots](https://www.yahoo.com/news/iran-strike-show-force-israels-135025858.html)
-- Oct 23 - [Qualcomm, Google team up on AI for cars — here's what it could mean](https://finance.yahoo.com/news/qualcomm-google-team-up-on-ai-for-cars--heres-what-it-could-mean-132351523.html)
 - Oct 23 - [The CEO of Ford says he's been driving a Xiaomi EV for the past 6 months and doesn't want to give it up](https://www.yahoo.com/news/ceo-ford-says-hes-driving-115916540.html)
-- Oct 23 - [What’s that dirt piling up along I-41 south of Scheuring Road near De Pere? We found out](https://www.yahoo.com/news/dirt-piling-along-41-south-100417816.html)
-- Oct 23 - [Putin's dollar problem is on clear display at the BRICS summit, starting with the moment guests land at the airport](https://www.yahoo.com/news/putins-dollar-problem-clear-display-090809178.html)
+- Oct 23 - [Adoptee deported from US criticizes Korean government and adoption agency over lack of citizenship](https://www.yahoo.com/news/adoptee-deported-us-criticizes-korean-115106604.html)
+- Oct 23 - [Chinese EV travels over 550 miles on single charge thanks to revolutionary battery — here's how it could influence the American auto industry](https://www.yahoo.com/tech/chinese-ev-travels-over-550-103033592.html)
+- Oct 23 - [Nvidia's design flaw with Blackwell AI chips now fixed, CEO says](https://finance.yahoo.com/news/nvidias-design-flaw-blackwell-ai-102416114.html)
+- Oct 23 - [McDonald's Quarter Pounders linked to E. Coli outbreak leaves 1 dead: See case map](https://www.yahoo.com/news/mcdonalds-quarter-pounders-linked-e-093131919.html)
 <!-- feed end -->
 
 ### Onstream
