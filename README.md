@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Do You Know What You Need To Be "Rich?" Here's What People Think You Need VS. What Data Says Actually Makes You Wealthy](https://finance.yahoo.com/news/know-rich-heres-people-think-193017585.html)
-- Oct 23 - [AP photographer describes how he captured dramatic Israeli bomb strike on Beirut building](https://www.yahoo.com/news/ap-photographer-describes-captured-dramatic-180355346.html)
+- Oct 23 - [17-year-old crashes into home after being shot in Anderson](https://www.yahoo.com/news/17-old-crashes-home-being-214507736.html)
+- Oct 23 - [A grizzly bear that delighted Grand Teton visitors for decades has been killed by a vehicle in Wyoming](https://www.yahoo.com/news/grizzly-bear-delighted-grand-teton-202156186.html)
+- Oct 23 - [US lawmaker demands answers on TSMC chip in Huawei device](https://finance.yahoo.com/news/us-lawmaker-demands-answers-tsmc-190844348.html)
 - Oct 23 - [Israeli weapon seen in rare AP photos of Beirut airstrike appears to be a powerful smart bomb](https://www.yahoo.com/news/israeli-weapon-seen-rare-ap-175827552.html)
 - Oct 23 - ['I Splatted. It Hurt,' Says Dave Ramsey, Referring To The Sudden Call On His $1.2 Million Loans That Turned His World Upside Down](https://finance.yahoo.com/news/splatted-hurt-says-dave-ramsey-171521265.html)
-- Oct 23 - [Facilities not clean in San Angelo weekly restaurant inspections](https://www.yahoo.com/news/facilities-not-clean-san-angelo-171023570.html)
 <!-- feed end -->
 
 ### Onstream
