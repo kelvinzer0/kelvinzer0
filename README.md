@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Hurricane Milton ravaged one of the most popular areas for 'snowbirds' on Florida's Gulf Coast](https://www.yahoo.com/news/hurricane-milton-ravaged-one-most-040610742.html)
 - Oct 23 - [People Who Went To See A Doctor "Just To Be Sure" And Ended Up Surviving Because Of It Are Sharing Their Stories](https://www.yahoo.com/lifestyle/people-went-see-doctor-just-023502325.html)
 - Oct 23 - [Arm Holdings to cancel Qualcomm chip design license, Bloomberg News reports](https://finance.yahoo.com/news/arm-holdings-cancel-qualcomm-chip-012828540.html)
 - Oct 22 - [Harris deploys Obama, Eminem as Trump shows fear amid record-breaking early voting](https://www.yahoo.com/news/harris-deploys-obama-eminem-trump-234304425.html)
 - Oct 22 - [UFC antitrust lawsuit: Judge approves $375 million settlement for former fighters](https://sports.yahoo.com/judge-approves-ufcs-375-million-antitrust-settlement-for-former-fighters-225212291.html)
-- Oct 22 - [The Abrams tank built to fight the Soviets appears to be at war on Russian soil](https://www.yahoo.com/news/abrams-tank-built-fight-soviets-212341967.html)
 <!-- feed end -->
 
 ### Onstream
