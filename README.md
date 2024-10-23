@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Boeing-made satellite breaks up in space](https://www.yahoo.com/news/boeing-made-satellite-breaks-space-035041819.html)
+- Oct 23 - [People Who Went To See A Doctor "Just To Be Sure" And Ended Up Surviving Because Of It Are Sharing Their Stories](https://www.yahoo.com/lifestyle/people-went-see-doctor-just-023502325.html)
+- Oct 22 - [Minneapolis standoff leads to 2 shot, 'tragic' situation in western MN](https://www.yahoo.com/news/minneapolis-standoff-leads-2-shot-221028908.html)
 - Oct 22 - [The Abrams tank built to fight the Soviets appears to be at war on Russian soil](https://www.yahoo.com/news/abrams-tank-built-fight-soviets-212341967.html)
-- Oct 22 - [Kristy strengthens into a hurricane in the eastern Pacific Ocean](https://www.yahoo.com/news/kristy-strengthens-hurricane-eastern-pacific-205716037.html)
-- Oct 22 - [Albuquerque woman sentenced to a decade in prison for death of daughter](https://www.yahoo.com/news/albuquerque-woman-sentenced-decade-prison-202451087.html)
-- Oct 22 - [Report: Microsoft buys second property in West Michigan](https://finance.yahoo.com/news/report-microsoft-buys-second-property-193510229.html)
-- Oct 22 - [Vance’s wife carries this 800-page book around with her on the campaign trail](https://www.yahoo.com/news/vance-wife-carries-800-page-191550838.html)
+- Oct 22 - [Nvidia Stock Hits All-Time Highs: Here's How Much Nancy Pelosi's 500 Call Options Are Worth Today](https://finance.yahoo.com/news/nvidia-stock-hits-time-highs-210034741.html)
 <!-- feed end -->
 
 ### Onstream
