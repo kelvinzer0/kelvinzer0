@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Vote to continue strike exposes Boeing workers' anger over lost pensions](https://finance.yahoo.com/news/vote-continue-strike-exposes-boeing-194953608.html)
+- Oct 24 - [These 3 struggles sent this retired couple back to the U.S. after a move overseas](https://finance.yahoo.com/news/3-struggles-sent-retired-couple-095300047.html)
+- Oct 24 - [Costco Has Issued a Recall On a Fan-Favorite Item—Here's What to Know](https://www.yahoo.com/news/costco-issued-recall-fan-favorite-183000021.html)
 - Oct 24 - [AI-powered weapons scanners used in NYC subway found zero guns in one month test](https://www.yahoo.com/news/ai-powered-weapons-scanners-used-180423393.html)
-- Oct 24 - [Apple teases new Macs in a 'week of announcements' that starts Monday](https://www.yahoo.com/tech/apple-teases-new-macs-in-a-week-of-announcements-that-starts-monday-165121897.html)
-- Oct 24 - [USC Gamecocks’ Ashlyn Watkins won’t be in court this week. Here’s what we know](https://www.yahoo.com/news/usc-gamecocks-ashlyn-watkins-won-162127180.html)
 - Oct 24 - [CNN polling guru says battleground state sweep ‘more likely than not’](https://www.yahoo.com/news/cnn-polling-guru-says-battleground-161239743.html)
+- Oct 24 - [American Airlines is testing a new system to humiliate ‘gate lice,’ the people who try to board planes before their seating group is called](https://finance.yahoo.com/news/american-airlines-testing-system-humiliate-161006801.html)
 <!-- feed end -->
 
 ### Onstream
