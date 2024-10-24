@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Apple CEO Cook says company will increase investment in China, reports Xinhua](https://www.yahoo.com/tech/apple-ceo-says-company-increase-000229398.html)
+- Oct 24 - [Boeing machinists reject new contract, continuing costly walkout](https://finance.yahoo.com/news/boeing-machinists-reject-contract-continuing-022136379.html)
+- Oct 24 - [Baerbock warns of Lebanon destabilization as Germany pledges €60m aid](https://www.yahoo.com/news/baerbock-warns-lebanon-destabilization-germany-020817579.html)
+- Oct 24 - [Nurses Are Confessing Their Most Closely Guarded Secrets That Patients Don't Know](https://www.yahoo.com/lifestyle/nurses-confessing-most-closely-guarded-003102454.html)
 - Oct 23 - [See Pentagon chief’s chilling warning to potential Trump voters](https://www.yahoo.com/news/see-pentagon-chief-chilling-warning-233203127.html)
-- Oct 23 - [New San Jose Costco location coming despite pushback](https://www.yahoo.com/news/san-jose-costco-location-coming-194632719.html)
-- Oct 23 - [US lawmaker demands answers on TSMC chip in Huawei device](https://finance.yahoo.com/news/us-lawmaker-demands-answers-tsmc-190844348.html)
-- Oct 23 - [Scientists Say They Know How the Universe Will End](https://www.yahoo.com/news/scientists-know-universe-end-183000229.html)
+- Oct 23 - [In-N-Out Burger to open long-awaited Boise restaurant this week. Here are the details](https://finance.yahoo.com/news/official-n-burger-open-boise-232457652.html)
 <!-- feed end -->
 
 ### Onstream
