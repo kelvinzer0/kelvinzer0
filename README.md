@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Afghan journalists fear country going dark as Taliban bans images of ‘living things’](https://www.yahoo.com/news/afghan-journalists-fear-country-going-114423973.html)
-- Oct 24 - [1 Incredibly Cheap Semiconductor Stock That Could Start Soaring After Nov. 4 (Hint: It's Not Nvidia)](https://finance.yahoo.com/news/1-incredibly-cheap-semiconductor-stock-110000054.html)
 - Oct 24 - [Elon Musk says making a regular $25,000 Tesla would be 'pointless' as he goes all-in on robotaxis](https://autos.yahoo.com/elon-musk-says-making-regular-103216789.html)
 - Oct 24 - [Lodi Outlets acquired by Cleveland real estate company to be developed into business park](https://finance.yahoo.com/news/lodi-outlets-acquired-cleveland-real-100647405.html)
-- Oct 24 - [Georgia men who killed Ahmaud Arbery want a new trial](https://www.yahoo.com/news/georgia-men-killed-ahmaud-arbery-095133742.html)
+- Oct 24 - [How Helene and a locked gate escalated Rep. Virginia Foxx’s feud with her NC neighbors](https://www.yahoo.com/news/helene-locked-gate-escalated-rep-090000607.html)
+- Oct 24 - [A 19-year-old disappeared from her Illinois village in 1979. Almost half a century later, the cold case has been solved](https://www.yahoo.com/news/19-old-disappeared-her-illinois-210926505.html)
+- Oct 24 - [Most Powerful Gamma Rays Ever Seen in Galaxy's Center Detected by Scientists](https://www.yahoo.com/news/most-powerful-gamma-rays-ever-031156779.html)
 <!-- feed end -->
 
 ### Onstream
