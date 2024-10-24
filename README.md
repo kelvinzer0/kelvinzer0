@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Zelenskyy's new T-shirt riffs on Trump — and annoyed the Kremlin](https://www.yahoo.com/entertainment/zelenskyys-t-shirt-riffs-trump-141012495.html)
-- Oct 24 - [As 23andMe Slides Into Bankruptcy, Your DNA Hangs in the Balance](https://finance.yahoo.com/news/23andme-slides-bankruptcy-dna-hangs-140655926.html)
-- Oct 24 - [North Korean troops fighting Ukraine will be 'fair game,' U.S. warns Putin](https://www.yahoo.com/news/north-korean-troops-fighting-ukraine-132519214.html)
-- Oct 24 - [Ask an Advisor: We're 65, Have $1 Million, and Want to Live on $90K a Year. Is That Feasible?](https://finance.yahoo.com/news/ask-advisor-were-65-1-141758582.html)
-- Oct 24 - [Sneak peek: The Strange Shooting of Alex Pennig](https://www.yahoo.com/news/sneak-peek-strange-shooting-alex-120017252.html)
+- Oct 24 - [Georgia Lottery: Powerball winning ticket for $478.2 million jackpot sold in metro Atlanta](https://www.yahoo.com/news/powerball-jackpot-ticket-worth-478-075633064.html)
+- Oct 24 - [Archaeologists Are Uncovering The History of One of the World’s Oldest Civilizations](https://www.yahoo.com/news/archaeologists-uncovering-history-one-world-170000035.html)
+- Oct 24 - [Apple teases new Macs in a 'week of announcements' that starts Monday](https://www.yahoo.com/tech/apple-teases-new-macs-in-a-week-of-announcements-that-starts-monday-165121897.html)
+- Oct 24 - [Menendez Brothers Resentencing Supported By L.A. DA; George Gascón Sets Press Conference For This Afternoon On Ryan Murphy Spotlighted Case](https://www.yahoo.com/news/menendez-brothers-resentencing-supported-l-160240958.html)
+- Oct 24 - [French bulldog dies on Alaska Airlines flight after being moved from first class to coach, lawsuit claims](https://www.yahoo.com/news/french-bulldog-dies-alaska-airlines-152112786.html)
 <!-- feed end -->
 
 ### Onstream
