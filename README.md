@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [BRICS' new declaration shows Russia's war still can't get the international backing that Moscow wants](https://www.yahoo.com/news/brics-declaration-shows-russias-war-073646624.html)
+- Oct 24 - [This group sends Canadians to help the Israeli army. Some say that's illegal](https://www.yahoo.com/news/group-sends-canadians-help-israeli-080021334.html)
 - Oct 24 - [A loneliness epidemic is spreading worldwide. Seoul is spending $327 million to stop it](https://www.yahoo.com/news/loneliness-epidemic-spreading-worldwide-seoul-040503173.html)
 - Oct 24 - [Four memorable moments from Kamala Harris' CNN town hall](https://www.yahoo.com/news/four-memorable-moments-kamala-harris-030816297.html)
 - Oct 24 - [Nurses Are Confessing Their Most Closely Guarded Secrets That Patients Don't Know](https://www.yahoo.com/lifestyle/nurses-confessing-most-closely-guarded-003102454.html)
-- Oct 24 - [Her billionaire marriage broke up. Her VP campaign fizzled. Now she’s a Trump-world star.](https://www.yahoo.com/news/her-billionaire-marriage-broke-her-162803403.html)
+- Oct 23 - [Almost All Meteorites That Hit Earth Are Coming From the Same Three Places, Scientists Discover](https://www.yahoo.com/news/almost-meteorites-hit-earth-coming-230530631.html)
 <!-- feed end -->
 
 ### Onstream
