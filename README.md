@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [North Korean troops fighting Ukraine will be 'fair game,' U.S. warns Putin](https://www.yahoo.com/news/north-korean-troops-fighting-ukraine-132519214.html)
+- Oct 24 - [Are Our $350,000 IRA Savings at Risk of Being Taken by a Nursing Home?](https://finance.yahoo.com/news/nursing-home-savings-350-000-145528883.html)
+- Oct 24 - [American Airlines flight makes emergency landing at LAX](https://www.yahoo.com/news/american-airlines-flight-makes-emergency-115923742.html)
 - Oct 24 - [Elon Musk says making a regular $25,000 Tesla would be 'pointless' as he goes all-in on robotaxis](https://autos.yahoo.com/elon-musk-says-making-regular-103216789.html)
 - Oct 24 - [Lodi Outlets acquired by Cleveland real estate company to be developed into business park](https://finance.yahoo.com/news/lodi-outlets-acquired-cleveland-real-100647405.html)
-- Oct 24 - [How Helene and a locked gate escalated Rep. Virginia Foxx’s feud with her NC neighbors](https://www.yahoo.com/news/helene-locked-gate-escalated-rep-090000607.html)
-- Oct 24 - [A 19-year-old disappeared from her Illinois village in 1979. Almost half a century later, the cold case has been solved](https://www.yahoo.com/news/19-old-disappeared-her-illinois-210926505.html)
-- Oct 24 - [Most Powerful Gamma Rays Ever Seen in Galaxy's Center Detected by Scientists](https://www.yahoo.com/news/most-powerful-gamma-rays-ever-031156779.html)
 <!-- feed end -->
 
 ### Onstream
