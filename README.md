@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [A 19-year-old disappeared from her Illinois village in 1979. Almost half a century later, the cold case has been solved](https://www.yahoo.com/news/19-old-disappeared-her-illinois-210926505.html)
 - Oct 24 - [North Korean troops fighting Ukraine will be 'fair game,' U.S. warns Putin](https://www.yahoo.com/news/north-korean-troops-fighting-ukraine-132519214.html)
-- Oct 24 - [Are Our $350,000 IRA Savings at Risk of Being Taken by a Nursing Home?](https://finance.yahoo.com/news/nursing-home-savings-350-000-145528883.html)
-- Oct 24 - [American Airlines flight makes emergency landing at LAX](https://www.yahoo.com/news/american-airlines-flight-makes-emergency-115923742.html)
+- Oct 24 - [My 65-year-old husband is going into a $13K/month nursing home — will the state take my house to pay for it?](https://finance.yahoo.com/news/65-old-husband-going-13k-110100827.html)
 - Oct 24 - [Elon Musk says making a regular $25,000 Tesla would be 'pointless' as he goes all-in on robotaxis](https://autos.yahoo.com/elon-musk-says-making-regular-103216789.html)
-- Oct 24 - [Lodi Outlets acquired by Cleveland real estate company to be developed into business park](https://finance.yahoo.com/news/lodi-outlets-acquired-cleveland-real-100647405.html)
+- Oct 24 - [Homeowners left in the lurch after major insurance companies deem state 'essentially uninsurable': 'Too many landscapes are ready to explode'](https://www.yahoo.com/news/homeowners-left-lurch-major-insurance-103027897.html)
 <!-- feed end -->
 
 ### Onstream
