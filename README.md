@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [What we know about Labour's plans for a four-day working week](https://www.yahoo.com/news/four-day-working-week-labour-what-we-know-134255740.html)
-- Oct 24 - [3 Outstanding Dividend Stocks That Are Too Cheap to Ignore](https://finance.yahoo.com/news/3-outstanding-dividend-stocks-too-103000830.html)
-- Oct 24 - [India evacuates hundreds of thousands of people and shuts schools as a tropical storm nears](https://www.yahoo.com/news/india-evacuates-hundreds-thousands-people-052830281.html)
-- Oct 24 - [Nurses Are Confessing Their Most Closely Guarded Secrets That Patients Don't Know](https://www.yahoo.com/lifestyle/nurses-confessing-most-closely-guarded-003102454.html)
-- Oct 23 - [See Pentagon chief’s chilling warning to potential Trump voters](https://www.yahoo.com/news/see-pentagon-chief-chilling-warning-233203127.html)
+- Oct 24 - [Afghan journalists fear country going dark as Taliban bans images of ‘living things’](https://www.yahoo.com/news/afghan-journalists-fear-country-going-114423973.html)
+- Oct 24 - [1 Incredibly Cheap Semiconductor Stock That Could Start Soaring After Nov. 4 (Hint: It's Not Nvidia)](https://finance.yahoo.com/news/1-incredibly-cheap-semiconductor-stock-110000054.html)
+- Oct 24 - [Elon Musk says making a regular $25,000 Tesla would be 'pointless' as he goes all-in on robotaxis](https://autos.yahoo.com/elon-musk-says-making-regular-103216789.html)
+- Oct 24 - [Lodi Outlets acquired by Cleveland real estate company to be developed into business park](https://finance.yahoo.com/news/lodi-outlets-acquired-cleveland-real-100647405.html)
+- Oct 24 - [Georgia men who killed Ahmaud Arbery want a new trial](https://www.yahoo.com/news/georgia-men-killed-ahmaud-arbery-095133742.html)
 <!-- feed end -->
 
 ### Onstream
