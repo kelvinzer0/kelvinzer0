@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [This group sends Canadians to help the Israeli army. Some say that's illegal](https://www.yahoo.com/news/group-sends-canadians-help-israeli-080021334.html)
-- Oct 24 - [A loneliness epidemic is spreading worldwide. Seoul is spending $327 million to stop it](https://www.yahoo.com/news/loneliness-epidemic-spreading-worldwide-seoul-040503173.html)
-- Oct 24 - [Four memorable moments from Kamala Harris' CNN town hall](https://www.yahoo.com/news/four-memorable-moments-kamala-harris-030816297.html)
+- Oct 24 - [Distressed residents watch a landslide in central Philippines](https://www.yahoo.com/news/distressed-residents-watch-landslide-central-093756838.html)
+- Oct 24 - [India evacuates hundreds of thousands of people and shuts schools as a tropical storm nears](https://www.yahoo.com/news/india-evacuates-hundreds-thousands-people-052830281.html)
 - Oct 24 - [Nurses Are Confessing Their Most Closely Guarded Secrets That Patients Don't Know](https://www.yahoo.com/lifestyle/nurses-confessing-most-closely-guarded-003102454.html)
-- Oct 23 - [Almost All Meteorites That Hit Earth Are Coming From the Same Three Places, Scientists Discover](https://www.yahoo.com/news/almost-meteorites-hit-earth-coming-230530631.html)
+- Oct 23 - [See Pentagon chief’s chilling warning to potential Trump voters](https://www.yahoo.com/news/see-pentagon-chief-chilling-warning-233203127.html)
+- Oct 23 - [Nvidia supplier SK Hynix sees no AI chip oversupply as profit soars to record](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-posts-230718286.html)
 <!-- feed end -->
 
 ### Onstream
