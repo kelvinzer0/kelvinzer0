@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [These 3 struggles sent this retired couple back to the U.S. after a move overseas](https://finance.yahoo.com/news/3-struggles-sent-retired-couple-095300047.html)
+- Oct 24 - [46 people hospitalized with food poisoning in Maryland after sharing meal prepared by co-worker](https://www.yahoo.com/news/46-people-hospitalized-food-poisoning-210414530.html)
 - Oct 24 - [Costco Has Issued a Recall On a Fan-Favorite Item—Here's What to Know](https://www.yahoo.com/news/costco-issued-recall-fan-favorite-183000021.html)
 - Oct 24 - [AI-powered weapons scanners used in NYC subway found zero guns in one month test](https://www.yahoo.com/news/ai-powered-weapons-scanners-used-180423393.html)
-- Oct 24 - [CNN polling guru says battleground state sweep ‘more likely than not’](https://www.yahoo.com/news/cnn-polling-guru-says-battleground-161239743.html)
-- Oct 24 - [American Airlines is testing a new system to humiliate ‘gate lice,’ the people who try to board planes before their seating group is called](https://finance.yahoo.com/news/american-airlines-testing-system-humiliate-161006801.html)
+- Oct 24 - [One person killed in fiery crash near Lake Hefner](https://www.yahoo.com/news/one-person-killed-fiery-crash-172453139.html)
+- Oct 24 - [Kwik Trip bed bugs, Waukesha location dealing with pest problem](https://www.yahoo.com/news/kwik-trip-bed-bugs-waukesha-171726264.html)
 <!-- feed end -->
 
 ### Onstream
