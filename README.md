@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Georgia Lottery: Powerball winning ticket for $478.2 million jackpot sold in metro Atlanta](https://www.yahoo.com/news/powerball-jackpot-ticket-worth-478-075633064.html)
 - Oct 24 - [Archaeologists Are Uncovering The History of One of the World’s Oldest Civilizations](https://www.yahoo.com/news/archaeologists-uncovering-history-one-world-170000035.html)
 - Oct 24 - [Apple teases new Macs in a 'week of announcements' that starts Monday](https://www.yahoo.com/tech/apple-teases-new-macs-in-a-week-of-announcements-that-starts-monday-165121897.html)
-- Oct 24 - [Menendez Brothers Resentencing Supported By L.A. DA; George Gascón Sets Press Conference For This Afternoon On Ryan Murphy Spotlighted Case](https://www.yahoo.com/news/menendez-brothers-resentencing-supported-l-160240958.html)
-- Oct 24 - [French bulldog dies on Alaska Airlines flight after being moved from first class to coach, lawsuit claims](https://www.yahoo.com/news/french-bulldog-dies-alaska-airlines-152112786.html)
+- Oct 24 - [CNN polling guru says battleground state sweep ‘more likely than not’](https://www.yahoo.com/news/cnn-polling-guru-says-battleground-161239743.html)
+- Oct 24 - [Scientists Photograph Giant Python Swallowing a Full-Sized Whitetail Whole in First-of-Its-Kind Discovery](https://www.yahoo.com/news/scientists-photograph-giant-python-swallowing-160558640.html)
+- Oct 24 - [New Permian oil pipelines unlikely to be built, say top operators](https://finance.yahoo.com/news/enterprise-products-not-considering-permian-145755569.html)
 <!-- feed end -->
 
 ### Onstream
