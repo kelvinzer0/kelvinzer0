@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Boise Airport sets a record it would rather not have, TSA says — and it’s only October](https://www.yahoo.com/news/boise-airport-sets-record-rather-222927241.html)
-- Oct 23 - [Europe's data centre power demand expected to triple by 2030, McKinsey report says](https://finance.yahoo.com/news/europes-data-centre-power-demand-220302929.html)
-- Oct 23 - [DNA links a suspected Chicago-area serial killer who died in 1981 to a woman's 1979 death](https://www.yahoo.com/news/dna-links-suspected-chicago-area-211737943.html)
-- Oct 23 - [A 19-year-old disappeared from her Illinois village in 1979. Almost half a century later, the cold case has been solved](https://www.yahoo.com/news/19-old-disappeared-her-illinois-210926505.html)
-- Oct 23 - [A grizzly bear that delighted Grand Teton visitors for decades has been killed by a vehicle in Wyoming](https://www.yahoo.com/news/grizzly-bear-delighted-grand-teton-202156186.html)
+- Oct 24 - [Apple CEO Cook says company will increase investment in China, reports Xinhua](https://www.yahoo.com/tech/apple-ceo-says-company-increase-000229398.html)
+- Oct 23 - [See Pentagon chief’s chilling warning to potential Trump voters](https://www.yahoo.com/news/see-pentagon-chief-chilling-warning-233203127.html)
+- Oct 23 - [New San Jose Costco location coming despite pushback](https://www.yahoo.com/news/san-jose-costco-location-coming-194632719.html)
+- Oct 23 - [US lawmaker demands answers on TSMC chip in Huawei device](https://finance.yahoo.com/news/us-lawmaker-demands-answers-tsmc-190844348.html)
+- Oct 23 - [Scientists Say They Know How the Universe Will End](https://www.yahoo.com/news/scientists-know-universe-end-183000229.html)
 <!-- feed end -->
 
 ### Onstream
