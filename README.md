@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [A 19-year-old disappeared from her Illinois village in 1979. Almost half a century later, the cold case has been solved](https://www.yahoo.com/news/19-old-disappeared-her-illinois-210926505.html)
+- Oct 24 - [King Charles sips narcotic kava drink, becomes Samoan 'high chief'](https://www.yahoo.com/news/king-charles-sips-narcotic-kava-033235421.html)
 - Oct 24 - [Four memorable moments from Kamala Harris' CNN town hall](https://www.yahoo.com/news/four-memorable-moments-kamala-harris-030816297.html)
 - Oct 24 - [Nurses Are Confessing Their Most Closely Guarded Secrets That Patients Don't Know](https://www.yahoo.com/lifestyle/nurses-confessing-most-closely-guarded-003102454.html)
 - Oct 23 - [Texas real estate tycoon sent chilling texts to business partner days after wife's disappearance: docs](https://www.yahoo.com/news/texas-real-estate-tycoon-sent-234852575.html)
-- Oct 23 - [See Pentagon chief’s chilling warning to potential Trump voters](https://www.yahoo.com/news/see-pentagon-chief-chilling-warning-233203127.html)
-- Oct 23 - [What stinks? NWS says this is behind the St. Louis area’s foul fall odors](https://www.yahoo.com/news/stinks-nws-says-behind-st-215840688.html)
 <!-- feed end -->
 
 ### Onstream
