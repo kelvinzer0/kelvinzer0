@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [3 Reasons to Buy Tesla Stock Like There's No Tomorrow](https://finance.yahoo.com/news/3-reasons-buy-tesla-stock-155500905.html)
-- Oct 24 - [Ramen inflation concerns Japanese as election nears](https://www.yahoo.com/news/ramen-inflation-concerns-japanese-election-155029157.html)
 - Oct 24 - [Zelenskyy's new T-shirt riffs on Trump — and annoyed the Kremlin](https://www.yahoo.com/entertainment/zelenskyys-t-shirt-riffs-trump-141012495.html)
-- Oct 24 - [7 Things the Middle Class Won’t Be Able To Afford in the Next 5 Years](https://finance.yahoo.com/news/7-things-middle-class-won-150007805.html)
+- Oct 24 - [As 23andMe Slides Into Bankruptcy, Your DNA Hangs in the Balance](https://finance.yahoo.com/news/23andme-slides-bankruptcy-dna-hangs-140655926.html)
 - Oct 24 - [North Korean troops fighting Ukraine will be 'fair game,' U.S. warns Putin](https://www.yahoo.com/news/north-korean-troops-fighting-ukraine-132519214.html)
+- Oct 24 - [Ask an Advisor: We're 65, Have $1 Million, and Want to Live on $90K a Year. Is That Feasible?](https://finance.yahoo.com/news/ask-advisor-were-65-1-141758582.html)
+- Oct 24 - [Sneak peek: The Strange Shooting of Alex Pennig](https://www.yahoo.com/news/sneak-peek-strange-shooting-alex-120017252.html)
 <!-- feed end -->
 
 ### Onstream
