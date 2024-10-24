@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [A 19-year-old disappeared from her Illinois village in 1979. Almost half a century later, the cold case has been solved](https://www.yahoo.com/news/19-old-disappeared-her-illinois-210926505.html)
+- Oct 24 - [3 Reasons to Buy Tesla Stock Like There's No Tomorrow](https://finance.yahoo.com/news/3-reasons-buy-tesla-stock-155500905.html)
+- Oct 24 - [Ramen inflation concerns Japanese as election nears](https://www.yahoo.com/news/ramen-inflation-concerns-japanese-election-155029157.html)
+- Oct 24 - [Zelenskyy's new T-shirt riffs on Trump — and annoyed the Kremlin](https://www.yahoo.com/entertainment/zelenskyys-t-shirt-riffs-trump-141012495.html)
+- Oct 24 - [7 Things the Middle Class Won’t Be Able To Afford in the Next 5 Years](https://finance.yahoo.com/news/7-things-middle-class-won-150007805.html)
 - Oct 24 - [North Korean troops fighting Ukraine will be 'fair game,' U.S. warns Putin](https://www.yahoo.com/news/north-korean-troops-fighting-ukraine-132519214.html)
-- Oct 24 - [My 65-year-old husband is going into a $13K/month nursing home — will the state take my house to pay for it?](https://finance.yahoo.com/news/65-old-husband-going-13k-110100827.html)
-- Oct 24 - [Elon Musk says making a regular $25,000 Tesla would be 'pointless' as he goes all-in on robotaxis](https://autos.yahoo.com/elon-musk-says-making-regular-103216789.html)
-- Oct 24 - [Homeowners left in the lurch after major insurance companies deem state 'essentially uninsurable': 'Too many landscapes are ready to explode'](https://www.yahoo.com/news/homeowners-left-lurch-major-insurance-103027897.html)
 <!-- feed end -->
 
 ### Onstream
