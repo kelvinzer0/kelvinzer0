@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [Four memorable moments from Kamala Harris' CNN town hall](https://www.yahoo.com/news/four-memorable-moments-kamala-harris-030816297.html)
 - Oct 24 - [Nurses Are Confessing Their Most Closely Guarded Secrets That Patients Don't Know](https://www.yahoo.com/lifestyle/nurses-confessing-most-closely-guarded-003102454.html)
 - Oct 23 - [See Pentagon chief’s chilling warning to potential Trump voters](https://www.yahoo.com/news/see-pentagon-chief-chilling-warning-233203127.html)
-- Oct 23 - [Alleged ‘Chuco Tango’ gang member arrested on drug-related charges in East El Paso](https://www.yahoo.com/news/alleged-chuco-tango-gang-member-223232436.html)
+- Oct 23 - [Nvidia supplier SK Hynix sees no AI chip oversupply as profit soars to record](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-posts-230718286.html)
 - Oct 23 - [Boise Airport sets a record it would rather not have, TSA says — and it’s only October](https://www.yahoo.com/news/boise-airport-sets-record-rather-222927241.html)
-- Oct 23 - [Striking employees vote on Boeing's latest contract offer](https://finance.yahoo.com/video/striking-employees-vote-boeings-latest-221615693.html)
 <!-- feed end -->
 
 ### Onstream
