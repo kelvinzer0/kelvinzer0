@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Boeing machinists reject new contract, continuing costly walkout](https://finance.yahoo.com/news/boeing-machinists-reject-contract-continuing-022136379.html)
-- Oct 24 - [Baerbock warns of Lebanon destabilization as Germany pledges €60m aid](https://www.yahoo.com/news/baerbock-warns-lebanon-destabilization-germany-020817579.html)
+- Oct 24 - [Boeing workers reject contract, extend strike: union](https://finance.yahoo.com/news/boeing-workers-reject-contract-extend-025653655.html)
+- Oct 24 - [Packers agree to major city demand on Lambeau Field lease; council unanimously in support of mayor](https://www.yahoo.com/news/packers-agree-major-city-demand-021041861.html)
 - Oct 24 - [Nurses Are Confessing Their Most Closely Guarded Secrets That Patients Don't Know](https://www.yahoo.com/lifestyle/nurses-confessing-most-closely-guarded-003102454.html)
+- Oct 24 - [Apple CEO Cook says company will increase investment in China, reports Xinhua](https://finance.yahoo.com/news/apple-ceo-says-company-increase-000229705.html)
 - Oct 23 - [See Pentagon chief’s chilling warning to potential Trump voters](https://www.yahoo.com/news/see-pentagon-chief-chilling-warning-233203127.html)
-- Oct 23 - [In-N-Out Burger to open long-awaited Boise restaurant this week. Here are the details](https://finance.yahoo.com/news/official-n-burger-open-boise-232457652.html)
 <!-- feed end -->
 
 ### Onstream
