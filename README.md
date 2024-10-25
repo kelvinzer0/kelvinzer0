@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [The Smartest Growth Stock to Buy With $500 Right Now](https://finance.yahoo.com/news/smartest-growth-stock-buy-500-094500131.html)
+- Oct 25 - [Putin says it is our affair if Russia uses North Korean troops](https://www.yahoo.com/news/putin-says-affair-russia-uses-101603532.html)
+- Oct 25 - [Messmer High School senior Dajea Williams named Wisconsin Student of the Week](https://www.yahoo.com/lifestyle/messmer-high-school-senior-dajea-100534029.html)
+- Oct 25 - [McDonald's E. coli crisis reveals why vegetable contamination is 'harder problem' than beef](https://finance.yahoo.com/news/mcdonalds-e-coli-crisis-reveals-100420761.html)
+- Oct 25 - [India makes it clear it's not interested in a western alliance](https://www.yahoo.com/news/india-makes-clear-not-interested-080000500.html)
 - Oct 25 - [China to offer Taliban tariff-free trade as it inches closer to isolated resource-rich regime](https://www.yahoo.com/news/china-offer-taliban-tariff-free-054824603.html)
-- Oct 24 - [NASA Satellite Inspects Strange-Looking Cloud That Always Forms in Same Spot](https://www.yahoo.com/news/nasa-satellite-inspects-strange-looking-223040119.html)
-- Oct 24 - ['Reprehensible': FSU student's hate speech leads to NAACP call for investigation](https://www.yahoo.com/news/reprehensible-fsu-students-hate-speech-222102471.html)
-- Oct 24 - [Turd-shaped monument ‘honoring’ Jan. 6 mob installed on National Mall](https://www.yahoo.com/news/turd-shaped-monument-honoring-jan-214035504.html)
 <!-- feed end -->
 
 ### Onstream
