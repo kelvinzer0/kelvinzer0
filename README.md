@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Battle Lines: Putin’s new world order](https://www.yahoo.com/news/battle-lines-putin-world-order-224526375.html)
-- Oct 24 - [Owner, operator of ship that caused Baltimore bridge collapse to pay $100M in settlement with US](https://www.yahoo.com/news/owner-operator-ship-caused-baltimore-212239848.html)
+- Oct 24 - ['I will never separate from him': Foster mom, adopted son named victims in deadly stabbing](https://www.yahoo.com/news/never-separate-him-foster-mom-230410687.html)
 - Oct 24 - [46 people hospitalized with food poisoning in Maryland after sharing meal prepared by co-worker](https://www.yahoo.com/news/46-people-hospitalized-food-poisoning-210414530.html)
 - Oct 24 - [Hurricane Kristy strengthens into a Category 5 storm in the Pacific Ocean](https://www.yahoo.com/news/hurricane-kristy-strengthens-category-5-204121195.html)
-- Oct 24 - [McDonald's says onions from California-based produce company linked to deadly E. coli outbreak](https://www.yahoo.com/news/mcdonalds-says-onions-california-grower-203951973.html)
+- Oct 24 - [Boeing Workers Reject a $23,000 Raise. What Comes Next.](https://www.barrons.com/articles/boeing-strike-contract-vote-updates-news-dde2734d?siteid=yhoof2&yptr=yahoo)
+- Oct 24 - [Vote to continue strike exposes Boeing workers' anger over lost pensions](https://finance.yahoo.com/news/vote-continue-strike-exposes-boeing-194953583.html)
 <!-- feed end -->
 
 ### Onstream
