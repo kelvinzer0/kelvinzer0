@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [Walmart vs. Target, McDonald's outbreak: Asking for a Trend](https://finance.yahoo.com/video/walmart-vs-target-mcdonalds-outbreak-224034445.html)
+- Oct 25 - [Scientists say skeletal remains found in castle well belong to figure from 800-year-old saga](https://www.yahoo.com/news/well-man-remains-found-castle-150048405.html)
 - Oct 25 - [The vehicle collision death of a famous Wyoming grizzly bear was an accident, authorities say](https://www.yahoo.com/news/vehicle-collision-death-famous-wyoming-214202868.html)
-- Oct 25 - [Army releases report on Trump camp’s Arlington cemetery altercation](https://www.yahoo.com/news/army-releases-report-trump-camp-203723894.html)
-- Oct 25 - [Harvard temporarily suspends library privileges for faculty involved in 'study-in' protests](https://www.yahoo.com/news/harvard-temporarily-suspends-library-privileges-202111378.html)
-- Oct 25 - [Carlsbad Village Plaza to be demolished, turning into apartment buildings](https://www.yahoo.com/news/carlsbad-village-plaza-demolished-turning-200523896.html)
-- Oct 25 - [Mom Sentenced to House Arrest After Leaving 3 Kids at Home For Days](https://www.yahoo.com/news/mom-sentenced-house-arrest-leaving-190302021.html)
+- Oct 25 - [Mustang Splits In Half In Horror Crash](https://autos.yahoo.com/mustang-splits-half-horror-crash-213000325.html)
+- Oct 25 - [Is Broadcom Inc. (AVGO) the Best FAANG Stock To Buy According to Analysts?](https://finance.yahoo.com/news/broadcom-inc-avgo-best-faang-211442115.html)
 <!-- feed end -->
 
 ### Onstream
