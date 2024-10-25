@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Boeing union to striking workers: 'Bullying' each other over strike votes is 'vile'](https://www.yahoo.com/tech/boeing-union-tells-striking-machinists-124500491.html)
-- Oct 25 - [Fearing China's hypersonic weapons, US Navy seeks to arm ships with Patriot missiles](https://www.yahoo.com/news/fearing-chinas-hypersonic-weapons-us-110523883.html)
-- Oct 25 - [Factbox-North Korea's military is one of world's largest: how powerful is it?](https://www.yahoo.com/news/factbox-north-koreas-military-one-081221402.html)
-- Oct 25 - [Nuclear submarine crew ‘ran low on supplies’ during six-month patrol](https://www.yahoo.com/news/nuclear-submarine-crew-ran-low-071138741.html)
-- Oct 25 - [China to offer Taliban tariff-free trade as it inches closer to isolated resource-rich regime](https://www.yahoo.com/news/china-offer-taliban-tariff-free-054824603.html)
+- Oct 25 - [How "Pair Eyewear" brings affordable customization to prescription glasses](https://www.yahoo.com/news/pair-eyewear-brings-affordable-customization-142857559.html)
+- Oct 25 - [Pennsylvania county says election workers flagged 2,500 possibly fraudulent voter registrations](https://www.yahoo.com/news/pennsylvania-county-says-election-workers-142748278.html)
+- Oct 25 - [Fire temporarily closes popular Shelby restaurant; plans to reopen soon](https://www.yahoo.com/news/fire-temporarily-closes-popular-shelby-142230416.html)
+- Oct 25 - [‘The right course for all of us’: Pittsburgh Police Chief Larry Scirotto to retire](https://www.yahoo.com/news/course-us-pittsburgh-police-chief-141723218.html)
+- Oct 25 - [Warren Buffett Finally Chooses Whom To Endorse In The 2024 Election And It Might Be A Surprise For Many](https://finance.yahoo.com/news/warren-buffett-finally-chooses-whom-141605032.html)
 <!-- feed end -->
 
 ### Onstream
