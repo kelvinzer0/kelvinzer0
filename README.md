@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [NASA spent October hoisting a 103-ton simulator section onto a test stand to prep for the next Moon mission](https://www.yahoo.com/tech/nasa-spent-october-hoisting-a-103-ton-simulator-section-onto-a-test-stand-to-prep-for-the-next-moon-mission-173008826.html)
-- Oct 25 - [In complaint, Ted Cruz says Democrats broke campaign finance laws to help Colin Allred](https://www.yahoo.com/news/complaint-ted-cruz-says-democrats-172556349.html)
-- Oct 25 - [USC plans to build $350M hospital for patients with brain and nervous system diseases](https://www.yahoo.com/news/usc-plans-build-350m-hospital-171042650.html)
+- Oct 25 - [Most Americans Have Garages And Attics Filled With Garbage 'Floor To Ceiling' They Don't Need, Says Dave Ramsey. That's Why 'They're Broke'](https://finance.yahoo.com/news/most-americans-garages-attics-filled-171518903.html)
+- Oct 25 - [Alex Jones fighting attempt to sell his social media account rights in Infowars auction](https://www.yahoo.com/news/alex-jones-fighting-attempt-sell-164427406.html)
+- Oct 25 - [Russian soldiers heard complaining about North Korean soldiers in intercepted audio](https://www.yahoo.com/news/russian-soldiers-heard-complaining-north-164016745.html)
 - Oct 25 - [Boeing exploring sale of its space business, WSJ reports](https://finance.yahoo.com/news/boeing-explores-sale-space-business-162604851.html)
 - Oct 25 - [Secret Hamas documents reveal Sinwar’s ‘last orders’](https://www.yahoo.com/news/secret-hamas-documents-reveal-sinwar-160118394.html)
 <!-- feed end -->
