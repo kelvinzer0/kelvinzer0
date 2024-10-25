@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [How "Pair Eyewear" brings affordable customization to prescription glasses](https://www.yahoo.com/news/pair-eyewear-brings-affordable-customization-142857559.html)
-- Oct 25 - [Pennsylvania county says election workers flagged 2,500 possibly fraudulent voter registrations](https://www.yahoo.com/news/pennsylvania-county-says-election-workers-142748278.html)
-- Oct 25 - [Fire temporarily closes popular Shelby restaurant; plans to reopen soon](https://www.yahoo.com/news/fire-temporarily-closes-popular-shelby-142230416.html)
-- Oct 25 - [‘The right course for all of us’: Pittsburgh Police Chief Larry Scirotto to retire](https://www.yahoo.com/news/course-us-pittsburgh-police-chief-141723218.html)
-- Oct 25 - [Warren Buffett Finally Chooses Whom To Endorse In The 2024 Election And It Might Be A Surprise For Many](https://finance.yahoo.com/news/warren-buffett-finally-chooses-whom-141605032.html)
+- Oct 25 - [DNA tests identify 19th-century teenager's skull found in Illinois home's wall](https://www.yahoo.com/news/dna-tests-identify-19th-century-161125655.html)
+- Oct 25 - [Warren Buffett Sells Over Half of Berkshire's Apple Stake](https://finance.yahoo.com/news/warren-buffett-sells-over-half-153456314.html)
+- Oct 25 - [SpaceX Crew-8 astronauts taken to medical facility ‘out of an abundance of caution,’ NASA says](https://www.yahoo.com/news/spacex-crew-8-astronauts-taken-142152088.html)
+- Oct 25 - [Sacha Baron Cohen Revives Borat to Mock Trump and Tell Kamala Harris: ‘You’re a Woman, a Person of Color and Married to a Jew. I Advise You Not to Come to Kazakhstan’](https://www.yahoo.com/entertainment/sacha-baron-cohen-revives-borat-140309598.html)
+- Oct 25 - [Elon Musk Appears to Have Realized How Badly He Screwed Up With the "Paying Voters" Thing](https://www.yahoo.com/news/elon-musk-appears-realized-badly-140011095.html)
 <!-- feed end -->
 
 ### Onstream
