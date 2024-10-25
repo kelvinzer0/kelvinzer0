@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Mom Sentenced to House Arrest After Leaving 3 Kids at Home For Days](https://www.yahoo.com/news/mom-sentenced-house-arrest-leaving-190302021.html)
-- Oct 25 - [Thurston High put on lockdown, other nearby schools placed under lockout due to threat](https://www.yahoo.com/news/thurston-high-lockdown-other-nearby-184405168.html)
+- Oct 25 - [Army releases report on Trump camp’s Arlington cemetery altercation](https://www.yahoo.com/news/army-releases-report-trump-camp-203723894.html)
+- Oct 25 - [Our First Look At The Ghost Shark Uncrewed Submarine Underwater](https://www.yahoo.com/news/first-look-ghost-shark-uncrewed-194118586.html)
+- Oct 25 - [Large amount of drug activity at Tampa home leads to 8 arrests: deputies](https://www.yahoo.com/news/large-amount-drug-activity-tampa-180128203.html)
 - Oct 25 - [Most Americans Have Garages And Attics Filled With Garbage 'Floor To Ceiling' They Don't Need, Says Dave Ramsey. That's Why 'They're Broke'](https://finance.yahoo.com/news/most-americans-garages-attics-filled-171518903.html)
 - Oct 25 - [Head of NASA Not Happy That Elon Musk Has Been Secretly Taking Orders From Putin](https://www.yahoo.com/news/head-nasa-not-happy-elon-170746002.html)
-- Oct 25 - [Secret Hamas documents reveal Sinwar’s ‘last orders’](https://www.yahoo.com/news/secret-hamas-documents-reveal-sinwar-160118394.html)
 <!-- feed end -->
 
 ### Onstream
