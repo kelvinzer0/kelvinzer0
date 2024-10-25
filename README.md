@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Peter Schiff Warns Investors Against Keeping $20K In Cash: 'One Of The Riskiest Bets You Can Make'](https://finance.yahoo.com/news/peter-schiff-warns-investors-against-231717390.html)
+- Oct 25 - [Prediction: This Will Be Apple's Next Big Move](https://finance.yahoo.com/news/prediction-apples-next-big-move-085000273.html)
 - Oct 24 - [NASA Satellite Inspects Strange-Looking Cloud That Always Forms in Same Spot](https://www.yahoo.com/news/nasa-satellite-inspects-strange-looking-223040119.html)
-- Oct 24 - [After Indian immigrant employee found dead in Walmart oven, Sikh community supports family](https://www.yahoo.com/news/indian-immigrant-employee-found-dead-222610107.html)
-- Oct 24 - [Montana Senate candidate says he was 'medically discharged' from the Navy. Records say otherwise.](https://www.yahoo.com/news/montana-senate-candidate-says-medically-213824062.html)
+- Oct 24 - [Breached water line repaired at Las Vegas Strip hotel](https://www.yahoo.com/news/las-vegas-strip-hotel-no-214347596.html)
+- Oct 24 - [46 people hospitalized with food poisoning in Maryland after sharing meal prepared by co-worker](https://www.yahoo.com/news/46-people-hospitalized-food-poisoning-210414530.html)
 - Oct 24 - [Hurricane Kristy strengthens into a Category 5 storm in the Pacific Ocean](https://www.yahoo.com/news/hurricane-kristy-strengthens-category-5-204121195.html)
 <!-- feed end -->
 
