@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Prediction: This Will Be Apple's Next Big Move](https://finance.yahoo.com/news/prediction-apples-next-big-move-085000273.html)
+- Oct 25 - [The Smartest Growth Stock to Buy With $500 Right Now](https://finance.yahoo.com/news/smartest-growth-stock-buy-500-094500131.html)
+- Oct 25 - [China to offer Taliban tariff-free trade as it inches closer to isolated resource-rich regime](https://www.yahoo.com/news/china-offer-taliban-tariff-free-054824603.html)
 - Oct 24 - [NASA Satellite Inspects Strange-Looking Cloud That Always Forms in Same Spot](https://www.yahoo.com/news/nasa-satellite-inspects-strange-looking-223040119.html)
-- Oct 24 - [Breached water line repaired at Las Vegas Strip hotel](https://www.yahoo.com/news/las-vegas-strip-hotel-no-214347596.html)
-- Oct 24 - [46 people hospitalized with food poisoning in Maryland after sharing meal prepared by co-worker](https://www.yahoo.com/news/46-people-hospitalized-food-poisoning-210414530.html)
-- Oct 24 - [Hurricane Kristy strengthens into a Category 5 storm in the Pacific Ocean](https://www.yahoo.com/news/hurricane-kristy-strengthens-category-5-204121195.html)
+- Oct 24 - ['Reprehensible': FSU student's hate speech leads to NAACP call for investigation](https://www.yahoo.com/news/reprehensible-fsu-students-hate-speech-222102471.html)
+- Oct 24 - [Turd-shaped monument ‘honoring’ Jan. 6 mob installed on National Mall](https://www.yahoo.com/news/turd-shaped-monument-honoring-jan-214035504.html)
 <!-- feed end -->
 
 ### Onstream
