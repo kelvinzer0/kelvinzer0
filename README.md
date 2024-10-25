@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [This Quantum Paradox Shows We’re Not Real.](https://www.yahoo.com/news/quantum-paradox-shows-not-real-123000079.html)
-- Oct 25 - [Ford Expedition Proves Difficult For Arkansas Trooper To PIT](https://autos.yahoo.com/ford-expedition-proves-difficult-arkansas-120000713.html)
+- Oct 25 - [Boeing union to striking workers: 'Bullying' each other over strike votes is 'vile'](https://www.yahoo.com/tech/boeing-union-tells-striking-machinists-124500491.html)
 - Oct 25 - [Fearing China's hypersonic weapons, US Navy seeks to arm ships with Patriot missiles](https://www.yahoo.com/news/fearing-chinas-hypersonic-weapons-us-110523883.html)
-- Oct 25 - [People Can’t Believe Trump Phoned Into JD Vance’s Town Hall And Asked This Question](https://www.yahoo.com/news/people-t-believe-trump-phoned-085728368.html)
 - Oct 25 - [Factbox-North Korea's military is one of world's largest: how powerful is it?](https://www.yahoo.com/news/factbox-north-koreas-military-one-081221402.html)
+- Oct 25 - [Nuclear submarine crew ‘ran low on supplies’ during six-month patrol](https://www.yahoo.com/news/nuclear-submarine-crew-ran-low-071138741.html)
+- Oct 25 - [China to offer Taliban tariff-free trade as it inches closer to isolated resource-rich regime](https://www.yahoo.com/news/china-offer-taliban-tariff-free-054824603.html)
 <!-- feed end -->
 
 ### Onstream
