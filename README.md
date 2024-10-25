@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [O’Niell’s owners speak out on what caused Nob Hill location closure](https://www.yahoo.com/news/o-niell-owners-speak-caused-015021006.html)
 - Oct 24 - [Elon Musk adds $30 billion to his net worth in a single day: ‘Tesla will become the most powerful company in the world’](https://finance.yahoo.com/news/elon-musk-adds-30-billion-234019938.html)
+- Oct 24 - [Peter Schiff Warns Investors Against Keeping $20K In Cash: 'One Of The Riskiest Bets You Can Make'](https://finance.yahoo.com/news/peter-schiff-warns-investors-against-231717390.html)
 - Oct 24 - [NASA Satellite Inspects Strange-Looking Cloud That Always Forms in Same Spot](https://www.yahoo.com/news/nasa-satellite-inspects-strange-looking-223040119.html)
+- Oct 24 - [Montana Senate candidate says he was 'medically discharged' from the Navy. Records say otherwise.](https://www.yahoo.com/news/montana-senate-candidate-says-medically-213824062.html)
 - Oct 24 - [Hurricane Kristy strengthens into a Category 5 storm in the Pacific Ocean](https://www.yahoo.com/news/hurricane-kristy-strengthens-category-5-204121195.html)
-- Oct 24 - [AI-powered weapons scanners used in NYC subway found zero guns in one month test](https://www.yahoo.com/news/ai-powered-weapons-scanners-used-180423393.html)
 <!-- feed end -->
 
 ### Onstream
