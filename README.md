@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [This Quantum Paradox Shows We’re Not Real.](https://www.yahoo.com/news/quantum-paradox-shows-not-real-123000079.html)
+- Oct 25 - [Ford Expedition Proves Difficult For Arkansas Trooper To PIT](https://autos.yahoo.com/ford-expedition-proves-difficult-arkansas-120000713.html)
+- Oct 25 - [Fearing China's hypersonic weapons, US Navy seeks to arm ships with Patriot missiles](https://www.yahoo.com/news/fearing-chinas-hypersonic-weapons-us-110523883.html)
 - Oct 25 - [People Can’t Believe Trump Phoned Into JD Vance’s Town Hall And Asked This Question](https://www.yahoo.com/news/people-t-believe-trump-phoned-085728368.html)
-- Oct 25 - [Semiconductor Sales Could Keep Soaring in 2025: 1 Top Stock to Buy Hand Over Fist Before That Happens](https://finance.yahoo.com/news/semiconductor-sales-could-keep-soaring-081500740.html)
 - Oct 25 - [Factbox-North Korea's military is one of world's largest: how powerful is it?](https://www.yahoo.com/news/factbox-north-koreas-military-one-081221402.html)
-- Oct 24 - [12 Colorado mail ballots were stolen and filled out. 3 of them were counted](https://www.yahoo.com/news/12-colorado-mail-ballots-were-230013667.html)
-- Oct 24 - [NASA Satellite Inspects Strange-Looking Cloud That Always Forms in Same Spot](https://www.yahoo.com/news/nasa-satellite-inspects-strange-looking-223040119.html)
 <!-- feed end -->
 
 ### Onstream
