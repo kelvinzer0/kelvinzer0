@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - ['I will never separate from him': Foster mom, adopted son named victims in deadly stabbing](https://www.yahoo.com/news/never-separate-him-foster-mom-230410687.html)
+- Oct 24 - [Peter Schiff Warns Investors Against Keeping $20K In Cash: 'One Of The Riskiest Bets You Can Make'](https://finance.yahoo.com/news/peter-schiff-warns-investors-against-231717390.html)
 - Oct 24 - [NASA Satellite Inspects Strange-Looking Cloud That Always Forms in Same Spot](https://www.yahoo.com/news/nasa-satellite-inspects-strange-looking-223040119.html)
-- Oct 24 - [A California school was placed in top 10 US colleges. No, it wasn't Stanford or Cal](https://www.yahoo.com/news/california-school-placed-top-10-205847659.html)
-- Oct 24 - [Hurricane Kristy strengthens into a Category 5 storm in the Pacific Ocean](https://www.yahoo.com/news/hurricane-kristy-strengthens-category-5-204121195.html)
+- Oct 24 - [Boeing Workers Reject a $23,000 Raise. What Comes Next.](https://www.barrons.com/articles/boeing-strike-contract-vote-updates-news-dde2734d?siteid=yhoof2&yptr=yahoo)
+- Oct 24 - [Vote to continue strike exposes Boeing workers' anger over lost pensions](https://finance.yahoo.com/news/vote-continue-strike-exposes-boeing-194953583.html)
 - Oct 24 - [Costco Has Issued a Recall On a Fan-Favorite Item—Here's What to Know](https://www.yahoo.com/news/costco-issued-recall-fan-favorite-183000021.html)
 <!-- feed end -->
 
