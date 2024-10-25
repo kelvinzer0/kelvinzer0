@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [DNA tests identify 19th-century teenager's skull found in Illinois home's wall](https://www.yahoo.com/news/dna-tests-identify-19th-century-161125655.html)
-- Oct 25 - [Warren Buffett Sells Over Half of Berkshire's Apple Stake](https://finance.yahoo.com/news/warren-buffett-sells-over-half-153456314.html)
-- Oct 25 - [SpaceX Crew-8 astronauts taken to medical facility ‘out of an abundance of caution,’ NASA says](https://www.yahoo.com/news/spacex-crew-8-astronauts-taken-142152088.html)
-- Oct 25 - [Sacha Baron Cohen Revives Borat to Mock Trump and Tell Kamala Harris: ‘You’re a Woman, a Person of Color and Married to a Jew. I Advise You Not to Come to Kazakhstan’](https://www.yahoo.com/entertainment/sacha-baron-cohen-revives-borat-140309598.html)
-- Oct 25 - [Elon Musk Appears to Have Realized How Badly He Screwed Up With the "Paying Voters" Thing](https://www.yahoo.com/news/elon-musk-appears-realized-badly-140011095.html)
+- Oct 25 - [Burmese python in Florida tries to swallow 77-pound deer; video](https://www.yahoo.com/news/burmese-python-florida-tries-swallow-163336916.html)
+- Oct 25 - [Mercedes-Benz to cut costs due to waning China demand](https://finance.yahoo.com/video/mercedes-benz-cut-costs-due-163328808.html)
+- Oct 25 - [China, Russia, Brazil Want to Demote the Dollar. Gold Is the Answer.](https://www.barrons.com/articles/dollar-gold-china-russia-brazil-brics-3b0ce1a4?siteid=yhoof2&yptr=yahoo)
+- Oct 25 - [Secret Hamas documents reveal Sinwar’s ‘last orders’](https://www.yahoo.com/news/secret-hamas-documents-reveal-sinwar-160118394.html)
+- Oct 25 - [Pennsylvania county says election workers flagged 2,500 possibly fraudulent voter registrations](https://www.yahoo.com/news/pennsylvania-county-says-election-workers-142748278.html)
 <!-- feed end -->
 
 ### Onstream
