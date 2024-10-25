@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Putin says it is our affair if Russia uses North Korean troops](https://www.yahoo.com/news/putin-says-affair-russia-uses-101603532.html)
-- Oct 25 - [Messmer High School senior Dajea Williams named Wisconsin Student of the Week](https://www.yahoo.com/lifestyle/messmer-high-school-senior-dajea-100534029.html)
-- Oct 25 - [McDonald's E. coli crisis reveals why vegetable contamination is 'harder problem' than beef](https://finance.yahoo.com/news/mcdonalds-e-coli-crisis-reveals-100420761.html)
-- Oct 25 - [India makes it clear it's not interested in a western alliance](https://www.yahoo.com/news/india-makes-clear-not-interested-080000500.html)
-- Oct 25 - [China to offer Taliban tariff-free trade as it inches closer to isolated resource-rich regime](https://www.yahoo.com/news/china-offer-taliban-tariff-free-054824603.html)
+- Oct 25 - [People Can’t Believe Trump Phoned Into JD Vance’s Town Hall And Asked This Question](https://www.yahoo.com/news/people-t-believe-trump-phoned-085728368.html)
+- Oct 25 - [Semiconductor Sales Could Keep Soaring in 2025: 1 Top Stock to Buy Hand Over Fist Before That Happens](https://finance.yahoo.com/news/semiconductor-sales-could-keep-soaring-081500740.html)
+- Oct 25 - [Factbox-North Korea's military is one of world's largest: how powerful is it?](https://www.yahoo.com/news/factbox-north-koreas-military-one-081221402.html)
+- Oct 24 - [12 Colorado mail ballots were stolen and filled out. 3 of them were counted](https://www.yahoo.com/news/12-colorado-mail-ballots-were-230013667.html)
+- Oct 24 - [NASA Satellite Inspects Strange-Looking Cloud That Always Forms in Same Spot](https://www.yahoo.com/news/nasa-satellite-inspects-strange-looking-223040119.html)
 <!-- feed end -->
 
 ### Onstream
