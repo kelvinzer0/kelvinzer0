@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [A Wife's Skydiving Fall Looked Like a Tragic Accident. Then Police Discovered Something More Sinister](https://www.yahoo.com/news/wifes-skydiving-fall-looked-tragic-190000731.html)
 - Oct 26 - [Kamala Harris has admitted her biggest weakness — and it sums up why voters are turning away](https://www.yahoo.com/news/kamala-harris-admitted-her-biggest-152332659.html)
 - Oct 26 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
 - Oct 26 - [‘I don’t trust my financial guy.’ I’m 67 and trying to live on $2.2K-a-month Social Security. I have $500K with an adviser, who charges 2%, but last year the return was 26%. What’s my move?](https://finance.yahoo.com/news/don-t-trust-financial-guy-151200468.html)
 - Oct 26 - [TSMC suspended shipments to China firm after chip found on Huawei processor, sources say](https://www.yahoo.com/tech/tsmc-suspended-shipments-china-firm-150219938.html)
-- Oct 26 - [Are You Richer Than You Realize? A Shocking Number Of People Consider Themselves 'Poor' But They're Really Among The Top 10% Of Earners](https://finance.yahoo.com/news/richer-realize-shocking-number-people-133035014.html)
 <!-- feed end -->
 
 ### Onstream
