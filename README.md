@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 26 - [Donald Trump Tells Joe Rogan the ‘Biggest Mistake’ of His Presidency Was Picking ‘Bad,’ ‘Disloyal People’](https://www.yahoo.com/news/donald-trump-tells-joe-rogan-054226329.html)
-- Oct 26 - [Several explosions heard in Tehran, say Iranian state media](https://www.yahoo.com/news/several-explosions-heard-tehran-iranian-233354609.html)
+- Oct 26 - [US approves $2 billion arms sale to Taiwan including Ukraine tested missile system](https://www.yahoo.com/news/us-approves-potential-2-billion-021932459.html)
 - Oct 26 - [Microsoft fires employees who organized vigil for Palestinians killed in Gaza](https://www.yahoo.com/news/microsoft-fires-employees-organized-vigil-004106630.html)
-- Oct 26 - [Kerry Kennedy details 'terrifying and violent' attack that killed her dog hours after mom Ethel died](https://www.yahoo.com/lifestyle/kerry-kennedy-details-terrifying-violent-001911679.html)
 - Oct 25 - [Israel completes retaliatory military strikes in Iran; US says it wasn't involved](https://www.yahoo.com/news/israel-launches-retaliatory-military-targets-235458938.html)
+- Oct 25 - [Texas man punched an election worker who told him to remove Trump hat at voting site, police say](https://www.yahoo.com/news/texas-man-punched-election-worker-224605320.html)
 <!-- feed end -->
 
 ### Onstream
