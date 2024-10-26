@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Huddled with his generals deep in the night, Benjamin Netanyahu finally hit the button](https://www.yahoo.com/news/huddled-generals-deep-night-benjamin-093100868.html)
-- Oct 26 - [Seeing more acorns this fall? Here's why, and what it means for RI's forests.](https://www.yahoo.com/lifestyle/seeing-more-acorns-fall-heres-090536466.html)
-- Oct 26 - [Opinion: Trump's plans are for America even if he doesn't express them as well as we would like](https://www.yahoo.com/news/opinion-trumps-plans-america-even-090432878.html)
-- Oct 26 - [Donald Trump Tells Joe Rogan the ‘Biggest Mistake’ of His Presidency Was Picking ‘Bad,’ ‘Disloyal People’](https://www.yahoo.com/news/donald-trump-tells-joe-rogan-054226329.html)
-- Oct 25 - [Explosions heard in Iran's Tehran and nearby Karaj, state media say](https://www.yahoo.com/news/explosions-heard-irans-capital-tehran-231004726.html)
+- Oct 26 - [Could Iceland’s melting glaciers intensify volcanic eruptions?](https://www.yahoo.com/news/could-iceland-melting-glaciers-intensify-101505481.html)
+- Oct 26 - [Column: Surrounded by violence, drug dealing and overdoses, workers at this L.A. restaurant struggle to hang on](https://www.yahoo.com/news/column-surrounded-violence-drug-dealing-100016750.html)
+- Oct 26 - [2 High-Yield Dividend Stocks (and 1 ETF) You Can Buy and Hold for a Decade](https://finance.yahoo.com/news/2-high-yield-dividend-stocks-094500956.html)
+- Oct 26 - [17 Signs From The Past Week That Made Me Laugh So Hard, I Blacked Out For A Second And Saw The Other Side](https://www.yahoo.com/entertainment/17-signs-past-week-made-093103677.html)
+- Oct 26 - [China slams US trade official for warning Brazil about joining belt and road plan](https://finance.yahoo.com/news/china-slams-us-trade-official-093000623.html)
 <!-- feed end -->
 
 ### Onstream
