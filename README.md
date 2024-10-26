@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [A Wife's Skydiving Fall Looked Like a Tragic Accident. Then Police Discovered Something More Sinister](https://www.yahoo.com/news/wifes-skydiving-fall-looked-tragic-190000731.html)
-- Oct 26 - [Texas man is arrested for ‘punching poll worker who told him to remove his MAGA hat’](https://www.yahoo.com/news/texas-man-arrested-punching-poll-174913182.html)
-- Oct 26 - [Kamala Harris has admitted her biggest weakness — and it sums up why voters are turning away](https://www.yahoo.com/news/kamala-harris-admitted-her-biggest-152332659.html)
-- Oct 26 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
-- Oct 26 - [‘I don’t trust my financial guy.’ I’m 67 and trying to live on $2.2K-a-month Social Security. I have $500K with an adviser, who charges 2%, but last year the return was 26%. What’s my move?](https://finance.yahoo.com/news/don-t-trust-financial-guy-151200468.html)
+- Oct 26 - [Gang coalition in Haiti spreads violence to Port-au-Prince neighborhood](https://www.yahoo.com/news/gang-coalition-haiti-spreads-violence-215028160.html)
+- Oct 26 - [Google to develop AI that takes over computers, The Information reports](https://finance.yahoo.com/news/google-develop-ai-takes-over-210155870.html)
+- Oct 26 - [King Charles returning to 'normal' schedule next year](https://www.yahoo.com/news/king-charles-returning-normal-schedule-210017492.html)
+- Oct 26 - [Hazmat teams called as truck fire spills diesel fuel, closes I-5 southbound in Eugene](https://www.yahoo.com/news/hazmat-teams-called-truck-fire-203810795.html)
+- Oct 26 - [Crime Stoppers of Oregon offering reward for identifying person of interest in June shooting](https://www.yahoo.com/news/crime-stoppers-oregon-offering-reward-192221538.html)
 <!-- feed end -->
 
 ### Onstream
