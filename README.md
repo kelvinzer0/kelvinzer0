@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Texas turnout rate slightly down after first three days of early voting](https://www.yahoo.com/news/texas-turnout-rate-slightly-down-014700460.html)
+- Oct 26 - [Researchers say an AI-powered transcription tool used in hospitals invents things no one ever said](https://www.yahoo.com/news/researchers-ai-powered-transcription-tool-041540260.html)
+- Oct 26 - [University of Alabama names Hannah Adams 2024 homecoming queen](https://www.yahoo.com/lifestyle/university-alabama-names-hannah-adams-024027541.html)
+- Oct 26 - [15 Scams New Homeowners Actually Fell For, And I Feel So, So, So, So, So Sorry For Them](https://www.yahoo.com/lifestyle/15-scams-homeowners-actually-fell-023002330.html)
 - Oct 26 - [Microsoft fires employees who organized vigil for Palestinians killed in Gaza](https://www.yahoo.com/news/microsoft-fires-employees-organized-vigil-004106630.html)
-- Oct 25 - [Israel launches retaliatory military strikes in Iran; U.S. says it wasn't involved in attack](https://www.yahoo.com/news/israel-launches-retaliatory-military-targets-235458938.html)
-- Oct 25 - [Nuclear power stocks are soaring amid an AI energy push. Here are 7 names to watch.](https://finance.yahoo.com/news/nuclear-power-stocks-soaring-amid-231848159.html)
-- Oct 25 - [The vehicle collision death of a famous Wyoming grizzly bear was an accident, authorities say](https://www.yahoo.com/news/vehicle-collision-death-famous-wyoming-214202868.html)
+- Oct 25 - [Man found guilty of murdering a teen in a botched robbery over Yeezy sneakers. Chaos erupted](https://www.yahoo.com/news/chaos-erupts-court-during-sentencing-232440512.html)
 <!-- feed end -->
 
 ### Onstream
