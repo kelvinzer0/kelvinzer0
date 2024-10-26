@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Gang coalition in Haiti spreads violence to Port-au-Prince neighborhood](https://www.yahoo.com/news/gang-coalition-haiti-spreads-violence-215028160.html)
+- Oct 26 - [3 Magnificent S&P 500 Dividend Stocks Down 43%, 20%, and 53% to Buy and Hold Forever](https://finance.yahoo.com/news/3-magnificent-p-500-dividend-224800227.html)
+- Oct 26 - [Buy These 3 High-Yield Dividend Stocks Today and Sleep Soundly for a Decade](https://finance.yahoo.com/news/buy-3-high-yield-dividend-221800240.html)
+- Oct 26 - [A Florida woman who zipped her boyfriend in a suitcase for hours until he died found guilty of second-degree murder](https://www.yahoo.com/news/florida-woman-zipped-her-boyfriend-213411521.html)
 - Oct 26 - [Google to develop AI that takes over computers, The Information reports](https://finance.yahoo.com/news/google-develop-ai-takes-over-210155870.html)
-- Oct 26 - [King Charles returning to 'normal' schedule next year](https://www.yahoo.com/news/king-charles-returning-normal-schedule-210017492.html)
-- Oct 26 - [Hazmat teams called as truck fire spills diesel fuel, closes I-5 southbound in Eugene](https://www.yahoo.com/news/hazmat-teams-called-truck-fire-203810795.html)
-- Oct 26 - [Crime Stoppers of Oregon offering reward for identifying person of interest in June shooting](https://www.yahoo.com/news/crime-stoppers-oregon-offering-reward-192221538.html)
+- Oct 26 - [A Wife's Skydiving Fall Looked Like a Tragic Accident. Then Police Discovered Something More Sinister](https://www.yahoo.com/news/wifes-skydiving-fall-looked-tragic-190000731.html)
 <!-- feed end -->
 
 ### Onstream
