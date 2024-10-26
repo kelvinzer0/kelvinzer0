@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Want to Grow a Passive Income Snowball? Buy These 7 Elite Dividend Growth Stocks.](https://finance.yahoo.com/news/want-grow-passive-income-snowball-101500763.html)
+- Oct 26 - [At least 115 dead and missing in massive flooding and landslides in Philippines](https://www.yahoo.com/news/least-115-dead-missing-massive-124653190.html)
+- Oct 26 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
+- Oct 26 - [King speaks of his devotion to the region as he leaves Samoa](https://www.yahoo.com/news/king-speaks-devotion-region-leaves-113554013.html)
+- Oct 26 - [17 Signs From The Past Week That Made Me Laugh So Hard, I Blacked Out For A Second And Saw The Other Side](https://www.yahoo.com/entertainment/17-signs-past-week-made-093103677.html)
 - Oct 26 - [The rapid descent of Southwest Airlines: How the company plunged from customer cult-favorite to activist investor target](https://finance.yahoo.com/news/rapid-descent-southwest-airlines-company-090000112.html)
-- Oct 26 - [The Best High-Yield Oil Stock to Invest $1,000 in Right Now](https://finance.yahoo.com/news/best-high-yield-oil-stock-071200004.html)
-- Oct 26 - [Stampede in SoHo leaves grandmother hospitalized for her birthday](https://www.yahoo.com/news/stampede-soho-leaves-grandmother-hospitalized-024701341.html)
-- Oct 26 - [US approves $2 billion arms sale to Taiwan including Ukraine tested missile system](https://www.yahoo.com/news/us-approves-potential-2-billion-021932459.html)
 <!-- feed end -->
 
 ### Onstream
