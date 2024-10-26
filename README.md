@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Researchers say an AI-powered transcription tool used in hospitals invents things no one ever said](https://www.yahoo.com/news/researchers-ai-powered-transcription-tool-041540260.html)
-- Oct 26 - [University of Alabama names Hannah Adams 2024 homecoming queen](https://www.yahoo.com/lifestyle/university-alabama-names-hannah-adams-024027541.html)
-- Oct 26 - [15 Scams New Homeowners Actually Fell For, And I Feel So, So, So, So, So Sorry For Them](https://www.yahoo.com/lifestyle/15-scams-homeowners-actually-fell-023002330.html)
+- Oct 26 - [Several explosions heard in Tehran, say Iranian state media](https://www.yahoo.com/news/several-explosions-heard-tehran-iranian-233354609.html)
 - Oct 26 - [Microsoft fires employees who organized vigil for Palestinians killed in Gaza](https://www.yahoo.com/news/microsoft-fires-employees-organized-vigil-004106630.html)
-- Oct 25 - [Man found guilty of murdering a teen in a botched robbery over Yeezy sneakers. Chaos erupted](https://www.yahoo.com/news/chaos-erupts-court-during-sentencing-232440512.html)
+- Oct 25 - [Israel completes retaliatory military strikes in Iran; US says it wasn't involved](https://www.yahoo.com/news/israel-launches-retaliatory-military-targets-235458938.html)
+- Oct 25 - [Texas man punched an election worker who told him to remove Trump hat at voting site, police say](https://www.yahoo.com/news/texas-man-punched-election-worker-224605320.html)
+- Oct 25 - [Scientists say skeletal remains found in castle well belong to figure from 800-year-old saga](https://www.yahoo.com/news/well-man-remains-found-castle-150048405.html)
 <!-- feed end -->
 
 ### Onstream
