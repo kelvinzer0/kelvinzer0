@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 26 - [Donald Trump Tells Joe Rogan the ‘Biggest Mistake’ of His Presidency Was Picking ‘Bad,’ ‘Disloyal People’](https://www.yahoo.com/news/donald-trump-tells-joe-rogan-054226329.html)
 - Oct 26 - [US approves $2 billion arms sale to Taiwan including Ukraine tested missile system](https://www.yahoo.com/news/us-approves-potential-2-billion-021932459.html)
-- Oct 26 - [Microsoft fires employees who organized vigil for Palestinians killed in Gaza](https://www.yahoo.com/news/microsoft-fires-employees-organized-vigil-004106630.html)
 - Oct 25 - [Israel completes retaliatory military strikes in Iran; US says it wasn't involved](https://www.yahoo.com/news/israel-launches-retaliatory-military-targets-235458938.html)
-- Oct 25 - [Texas man punched an election worker who told him to remove Trump hat at voting site, police say](https://www.yahoo.com/news/texas-man-punched-election-worker-224605320.html)
+- Oct 25 - [The vehicle collision death of a famous Wyoming grizzly bear was an accident, authorities say](https://www.yahoo.com/news/vehicle-collision-death-famous-wyoming-214202868.html)
+- Oct 25 - [NASA Astronaut Hospitalized Immediately After Returning to Earth](https://www.yahoo.com/news/nasa-astronaut-hospitalized-immediately-returning-211423982.html)
 <!-- feed end -->
 
 ### Onstream
