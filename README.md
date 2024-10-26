@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Microsoft fires employees who organized vigil for Palestinians killed in Gaza](https://www.yahoo.com/news/microsoft-fires-employees-organized-vigil-004106630.html)
+- Oct 26 - [Texas turnout rate slightly down after first three days of early voting](https://www.yahoo.com/news/texas-turnout-rate-slightly-down-014700460.html)
 - Oct 25 - [Israel launches retaliatory military strikes in Iran; U.S. says it wasn't involved in attack](https://www.yahoo.com/news/israel-launches-retaliatory-military-targets-235458938.html)
 - Oct 25 - [Explosions heard in Iran's Tehran and nearby Karaj, state media say](https://www.yahoo.com/news/explosions-heard-irans-capital-tehran-231004726.html)
 - Oct 25 - [Texas man punched an election worker who told him to remove Trump hat at voting site, police say](https://www.yahoo.com/news/texas-man-punched-election-worker-224605320.html)
-- Oct 25 - ['Yikes': While gaming, Musk inadvertently broadcasts 'scary' near-abort of Starship booster landing](https://finance.yahoo.com/news/yikes-while-gaming-musk-inadvertently-222437768.html)
+- Oct 25 - [Kansas City man allegedly fired at least 10 shots from 19th floor balcony: Court documents](https://www.yahoo.com/news/kansas-city-man-allegedly-fired-222945491.html)
 <!-- feed end -->
 
 ### Onstream
