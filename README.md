@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [Huddled with his generals deep in the night, Benjamin Netanyahu finally hit the button](https://www.yahoo.com/news/huddled-generals-deep-night-benjamin-093100868.html)
+- Oct 26 - [Seeing more acorns this fall? Here's why, and what it means for RI's forests.](https://www.yahoo.com/lifestyle/seeing-more-acorns-fall-heres-090536466.html)
+- Oct 26 - [Opinion: Trump's plans are for America even if he doesn't express them as well as we would like](https://www.yahoo.com/news/opinion-trumps-plans-america-even-090432878.html)
 - Oct 26 - [Donald Trump Tells Joe Rogan the ‘Biggest Mistake’ of His Presidency Was Picking ‘Bad,’ ‘Disloyal People’](https://www.yahoo.com/news/donald-trump-tells-joe-rogan-054226329.html)
-- Oct 26 - [US approves $2 billion arms sale to Taiwan including Ukraine tested missile system](https://www.yahoo.com/news/us-approves-potential-2-billion-021932459.html)
-- Oct 25 - [Israel completes retaliatory military strikes in Iran; US says it wasn't involved](https://www.yahoo.com/news/israel-launches-retaliatory-military-targets-235458938.html)
-- Oct 25 - [The vehicle collision death of a famous Wyoming grizzly bear was an accident, authorities say](https://www.yahoo.com/news/vehicle-collision-death-famous-wyoming-214202868.html)
-- Oct 25 - [NASA Astronaut Hospitalized Immediately After Returning to Earth](https://www.yahoo.com/news/nasa-astronaut-hospitalized-immediately-returning-211423982.html)
+- Oct 25 - [Explosions heard in Iran's Tehran and nearby Karaj, state media say](https://www.yahoo.com/news/explosions-heard-irans-capital-tehran-231004726.html)
 <!-- feed end -->
 
 ### Onstream
