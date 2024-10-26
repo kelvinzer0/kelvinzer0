@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Walmart vs. Target, McDonald's outbreak: Asking for a Trend](https://finance.yahoo.com/video/walmart-vs-target-mcdonalds-outbreak-224034445.html)
-- Oct 25 - [Scientists say skeletal remains found in castle well belong to figure from 800-year-old saga](https://www.yahoo.com/news/well-man-remains-found-castle-150048405.html)
-- Oct 25 - [The vehicle collision death of a famous Wyoming grizzly bear was an accident, authorities say](https://www.yahoo.com/news/vehicle-collision-death-famous-wyoming-214202868.html)
-- Oct 25 - [Mustang Splits In Half In Horror Crash](https://autos.yahoo.com/mustang-splits-half-horror-crash-213000325.html)
-- Oct 25 - [Is Broadcom Inc. (AVGO) the Best FAANG Stock To Buy According to Analysts?](https://finance.yahoo.com/news/broadcom-inc-avgo-best-faang-211442115.html)
+- Oct 26 - [What food safety experts steer clear of to avoid E. coli](https://www.yahoo.com/news/food-safety-experts-steer-clear-010003190.html)
+- Oct 25 - [Israel launches retaliatory military strikes in Iran; U.S. says it wasn't involved in attack](https://www.yahoo.com/news/israel-launches-retaliatory-military-targets-235458938.html)
+- Oct 25 - [Israel strikes Iran military targets, blasts reported around Tehran](https://www.yahoo.com/news/explosions-heard-iran-syria-middle-233758316.html)
+- Oct 25 - [Texas man punched an election worker who told him to remove Trump hat at voting site, police say](https://www.yahoo.com/news/texas-man-punched-election-worker-224605320.html)
+- Oct 25 - [Cause of death released for Tempe Wells Fargo employee found dead in her office](https://www.yahoo.com/news/tempe-wells-fargo-employee-found-222037264.html)
 <!-- feed end -->
 
 ### Onstream
