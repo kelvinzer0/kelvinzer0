@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [Kamala Harris has admitted her biggest weakness — and it sums up why voters are turning away](https://www.yahoo.com/news/kamala-harris-admitted-her-biggest-152332659.html)
 - Oct 26 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
-- Oct 26 - [Home Improvement star Zachery Ty Bryan arrested on suspicion of DUI](https://www.yahoo.com/news/home-improvement-star-zachery-ty-144127742.html)
-- Oct 26 - [5 Rare Coins Worth Thousands That Retirees Should Consider Selling Before the End of 2024](https://finance.yahoo.com/news/5-rare-coins-worth-thousands-110251900.html)
-- Oct 26 - [The Menendez brothers built a green space in prison. It’s modeled on this Norwegian idea](https://www.yahoo.com/news/menendez-brothers-built-green-space-111628919.html)
+- Oct 26 - [Experts uncover stunning side effects of solar farms: 'Introducing structural complexity into the environment'](https://www.yahoo.com/news/experts-uncover-stunning-side-effects-101534494.html)
+- Oct 26 - [17 Signs From The Past Week That Made Me Laugh So Hard, I Blacked Out For A Second And Saw The Other Side](https://www.yahoo.com/entertainment/17-signs-past-week-made-093103677.html)
 - Oct 26 - [The rapid descent of Southwest Airlines: How the company plunged from customer cult-favorite to activist investor target](https://finance.yahoo.com/news/rapid-descent-southwest-airlines-company-090000112.html)
 <!-- feed end -->
 
