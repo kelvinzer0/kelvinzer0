@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [At least 115 dead and missing in massive flooding and landslides in Philippines](https://www.yahoo.com/news/least-115-dead-missing-massive-124653190.html)
+- Oct 26 - [I’m a Mechanic: 9 Cars I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-9-cars-never-120045756.html)
 - Oct 26 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
-- Oct 26 - [King speaks of his devotion to the region as he leaves Samoa](https://www.yahoo.com/news/king-speaks-devotion-region-leaves-113554013.html)
-- Oct 26 - [17 Signs From The Past Week That Made Me Laugh So Hard, I Blacked Out For A Second And Saw The Other Side](https://www.yahoo.com/entertainment/17-signs-past-week-made-093103677.html)
+- Oct 26 - [Lyle Menendez paints mural for California prison beautification program he launched with his brother](https://www.yahoo.com/news/lyle-menendez-paints-mural-california-123322372.html)
+- Oct 26 - [The Menendez brothers built a green space in prison. It’s modeled on this Norwegian idea](https://www.yahoo.com/news/menendez-brothers-built-green-space-111628919.html)
 - Oct 26 - [The rapid descent of Southwest Airlines: How the company plunged from customer cult-favorite to activist investor target](https://finance.yahoo.com/news/rapid-descent-southwest-airlines-company-090000112.html)
 <!-- feed end -->
 
