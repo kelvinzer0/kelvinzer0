@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 27 - [China vows 'countermeasures' after $2 billion US arms sale to Taiwan](https://www.yahoo.com/news/china-vows-countermeasures-2-billion-004157483.html)
-- Oct 26 - [Widely shared video shows political Halloween display destroyed by passerby in Denver neighborhood](https://www.yahoo.com/news/widely-shared-video-shows-political-232717054.html)
 - Oct 26 - [Satellite photos show Israel hit Iran former nuclear weapons test building, missile facilities, researchers say](https://www.yahoo.com/news/exclusive-satellite-photos-show-israel-211628862.html)
 - Oct 26 - [‘A large Pacific storm system’ to bring rain, gusty winds and maybe thunder to PNW](https://www.yahoo.com/news/large-pacific-storm-system-bring-211606626.html)
 - Oct 26 - [Update: I-5 southbound lane reopens after truck fire, hazmat response in Eugene](https://www.yahoo.com/news/hazmat-teams-called-truck-fire-203810795.html)
+- Oct 26 - [Trump refers to CNN's Anderson Cooper by a woman's first name](https://www.yahoo.com/news/trump-refers-cnns-anderson-cooper-203011584.html)
 <!-- feed end -->
 
 ### Onstream
