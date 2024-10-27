@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [What happens if someone sells your property in America without your knowledge? It’s a lot more complicated than you might think](https://finance.yahoo.com/news/happens-someone-sells-property-america-103100144.html)
+- Oct 27 - [Fire ravages historic Maurice’s Piggie Park BBQ building in Midlands, SC officials say](https://www.yahoo.com/news/fire-ravages-historic-maurice-piggie-114534979.html)
 - Oct 27 - [Satellite images show damage from Israeli attack at 2 secretive Iranian military bases](https://www.yahoo.com/news/satellite-images-show-damage-israeli-101418160.html)
-- Oct 27 - [More than half of UConn academic programs at risk of being slashed](https://www.yahoo.com/news/more-half-uconn-academic-programs-100000907.html)
-- Oct 27 - [Putin says Moscow will respond if West helps Ukraine to strike deep into Russia](https://www.yahoo.com/news/putin-russia-respond-ukraine-permitted-065132206.html)
-- Oct 27 - [Elon Musk says the real threat to democracy is the people who accuse Trump of endangering it](https://www.yahoo.com/news/elon-musk-says-real-threat-043522086.html)
+- Oct 27 - [Want $1 Million in Retirement? 2 Simple Index Funds to Buy and Hold for Decades.](https://finance.yahoo.com/news/want-1-million-retirement-2-100900051.html)
+- Oct 27 - [I’m 70, have $1.5 million in a 401(k), and just started Social Security. Is it too late for a Roth conversion?](https://finance.yahoo.com/news/m-70-1-5-million-100300647.html)
+- Oct 27 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
 <!-- feed end -->
 
 ### Onstream
