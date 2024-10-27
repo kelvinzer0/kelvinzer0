@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [Russian forces thwart attempted cross-border assault from Ukraine, official says](https://www.yahoo.com/news/russian-forces-thwart-attempted-cross-174134285.html)
+- Oct 27 - [Boeing Strike Is a Hot Mess. The Union Has Risk, Too.](https://www.barrons.com/articles/boeing-strike-union-risk-workers-dcf0d823?siteid=yhoof2&yptr=yahoo)
 - Oct 27 - [Biden calls out Musk over a published report that the Tesla CEO once worked in the US illegally](https://www.yahoo.com/news/biden-calls-musk-over-published-164255456.html)
-- Oct 27 - [Shaquille O'Neal Says He's Got 40 Cars, 5 Houses But Doesn't 'Know Why.' His Advice Is To 'Just Save. Don't Even Touch It'](https://finance.yahoo.com/news/shaquille-oneal-says-hes-got-163016930.html)
 - Oct 27 - [JD Vance’s Latest Trump Line Left Jake Tapper Laughing During Brutal CNN Interview](https://www.yahoo.com/news/jd-vance-latest-trump-line-161722772.html)
-- Oct 27 - [Landslide blocks Interstate 5 in Bellingham amid deluge of water. More heavy rain possible](https://www.yahoo.com/news/landslide-blocks-interstate-5-bellingham-153549811.html)
-- Oct 27 - [California Driver Crashes $1.2 Million McLaren Senna](https://autos.yahoo.com/california-driver-crashes-1-2-183000696.html)
+- Oct 27 - [Maine Coon Cats' Savvy Hide-and-Seek Skills Showcase a True Master of Disguise](https://www.yahoo.com/lifestyle/maine-coon-cats-savvy-hide-160500948.html)
 <!-- feed end -->
 
 ### Onstream
