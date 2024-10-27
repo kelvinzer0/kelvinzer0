@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [Central Mass. by the Numbers](https://www.yahoo.com/news/central-mass-numbers-090248843.html)
+- Oct 27 - [Satellite images show damage from Israeli attack at 2 secretive Iranian military bases](https://www.yahoo.com/news/satellite-images-show-damage-israeli-101418160.html)
+- Oct 27 - [More than half of UConn academic programs at risk of being slashed](https://www.yahoo.com/news/more-half-uconn-academic-programs-100000907.html)
+- Oct 27 - [Opinion: A band of Republicans are lying about Issue 1. They won't give up on stopping it.](https://www.yahoo.com/news/opinion-band-republicans-lying-issue-095522505.html)
 - Oct 27 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
-- Oct 27 - [Prediction: Social Security's 2026 Cost-of-Living Adjustment (COLA) Will Make Dubious History](https://finance.yahoo.com/news/prediction-social-securitys-2026-cost-074400696.html)
-- Oct 27 - [Elon Musk says the real threat to democracy is the people who accuse Trump of endangering it](https://www.yahoo.com/news/elon-musk-says-real-threat-043522086.html)
-- Oct 27 - [Trump floats ending the federal income tax. Here’s what that would mean](https://www.yahoo.com/news/trump-floats-ending-federal-income-234139944.html)
+- Oct 27 - [Putin says Moscow will respond if West helps Ukraine to strike deep into Russia](https://www.yahoo.com/news/putin-russia-respond-ukraine-permitted-065132206.html)
 <!-- feed end -->
 
 ### Onstream
