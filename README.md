@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [Central Mass. by the Numbers](https://www.yahoo.com/news/central-mass-numbers-090248843.html)
 - Oct 27 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
-- Oct 27 - [James May says Jeremy Clarkson's pub is 'losing quite a bit of money'](https://www.yahoo.com/news/james-may-jeremy-clarkson-pub-080058526.html)
+- Oct 27 - [Prediction: Social Security's 2026 Cost-of-Living Adjustment (COLA) Will Make Dubious History](https://finance.yahoo.com/news/prediction-social-securitys-2026-cost-074400696.html)
+- Oct 27 - [Elon Musk says the real threat to democracy is the people who accuse Trump of endangering it](https://www.yahoo.com/news/elon-musk-says-real-threat-043522086.html)
 - Oct 27 - [Trump floats ending the federal income tax. Here’s what that would mean](https://www.yahoo.com/news/trump-floats-ending-federal-income-234139944.html)
-- Oct 27 - [Donald Trump Uses One Word To Appeal To Female Voters. Here's Why It Should Scare You.](https://www.yahoo.com/news/donald-trump-uses-one-word-003102279.html)
-- Oct 26 - [A Florida woman who zipped her boyfriend in a suitcase for hours until he died found guilty of second-degree murder](https://www.yahoo.com/news/florida-woman-zipped-her-boyfriend-213411521.html)
 <!-- feed end -->
 
 ### Onstream
