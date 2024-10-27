@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [Small German-registered plane crashes in Moldova, killing lone pilot on board](https://www.yahoo.com/news/small-german-registered-plane-crashes-161033146.html)
+- Oct 27 - [2 New Jersey restaurateurs turned a Cybertruck into a mobile pizza oven — and they want to cook for Elon Musk](https://autos.yahoo.com/2-jersey-restaurateurs-turned-cybertruck-150901553.html)
 - Oct 27 - [Georgia prosecutor who brought election case against Trump faces rare Republican challenger](https://www.yahoo.com/news/georgia-prosecutor-brought-election-case-143609197.html)
-- Oct 27 - [Analysis: Iran faces tough choices in deciding how to respond to Israeli strikes](https://www.yahoo.com/news/analysis-iran-faces-tough-choices-130412072.html)
-- Oct 27 - [Snack on pistachios, eat strawberries, reconsider your sleep position and 10 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/snack-on-pistachios-eat-strawberries-reconsider-your-sleep-position-and-10-more-health-tips-to-help-you-have-a-great-week-110035900.html)
-- Oct 27 - [Selling My House with $800k in Profits - Is There a Tax-Free Way to Downsize?](https://finance.yahoo.com/news/im-selling-house-netting-800k-120000953.html)
-- Oct 27 - [National Hurricane Center highlights Caribbean Sea for tropical development into early November](https://www.yahoo.com/news/national-hurricane-center-highlights-caribbean-103533586.html)
+- Oct 27 - [One chart shows how AI will drive another decade of US stock market dominance](https://finance.yahoo.com/news/one-chart-shows-how-ai-will-drive-another-decade-of-us-stock-market-dominance-143042242.html)
+- Oct 27 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-140356285.html)
 <!-- feed end -->
 
 ### Onstream
