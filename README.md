@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [Small German-registered plane crashes in Moldova, killing lone pilot on board](https://www.yahoo.com/news/small-german-registered-plane-crashes-161033146.html)
-- Oct 27 - [2 New Jersey restaurateurs turned a Cybertruck into a mobile pizza oven — and they want to cook for Elon Musk](https://autos.yahoo.com/2-jersey-restaurateurs-turned-cybertruck-150901553.html)
-- Oct 27 - [Georgia prosecutor who brought election case against Trump faces rare Republican challenger](https://www.yahoo.com/news/georgia-prosecutor-brought-election-case-143609197.html)
-- Oct 27 - [One chart shows how AI will drive another decade of US stock market dominance](https://finance.yahoo.com/news/one-chart-shows-how-ai-will-drive-another-decade-of-us-stock-market-dominance-143042242.html)
-- Oct 27 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-140356285.html)
+- Oct 27 - [Biden calls out Musk over a published report that the Tesla CEO once worked in the US illegally](https://www.yahoo.com/news/biden-calls-musk-over-published-164255456.html)
+- Oct 27 - [Shaquille O'Neal Says He's Got 40 Cars, 5 Houses But Doesn't 'Know Why.' His Advice Is To 'Just Save. Don't Even Touch It'](https://finance.yahoo.com/news/shaquille-oneal-says-hes-got-163016930.html)
+- Oct 27 - [JD Vance’s Latest Trump Line Left Jake Tapper Laughing During Brutal CNN Interview](https://www.yahoo.com/news/jd-vance-latest-trump-line-161722772.html)
+- Oct 27 - [Landslide blocks Interstate 5 in Bellingham amid deluge of water. More heavy rain possible](https://www.yahoo.com/news/landslide-blocks-interstate-5-bellingham-153549811.html)
+- Oct 27 - [California Driver Crashes $1.2 Million McLaren Senna](https://autos.yahoo.com/california-driver-crashes-1-2-183000696.html)
 <!-- feed end -->
 
 ### Onstream
