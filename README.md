@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [South Carolina man killed in collision between two classic vehicles, officials say](https://www.yahoo.com/news/south-carolina-man-killed-collision-134204002.html)
-- Oct 27 - [Body found confirmed as missing woman Joanne Jones](https://www.yahoo.com/news/body-found-search-missing-woman-074044883.html)
-- Oct 27 - ["Third Man Syndrome" Has Fascinated Me For Months, So Here Are 24 First-Hand Accounts Of People Who Experienced It And Lived To Tell The Tale](https://www.yahoo.com/lifestyle/third-man-syndrome-fascinated-months-132102915.html)
-- Oct 27 - [Fire ravages historic Maurice’s Piggie Park BBQ building in Midlands, SC officials say](https://www.yahoo.com/news/fire-ravages-historic-maurice-piggie-114534979.html)
+- Oct 27 - [Georgia prosecutor who brought election case against Trump faces rare Republican challenger](https://www.yahoo.com/news/georgia-prosecutor-brought-election-case-143609197.html)
+- Oct 27 - [Analysis: Iran faces tough choices in deciding how to respond to Israeli strikes](https://www.yahoo.com/news/analysis-iran-faces-tough-choices-130412072.html)
+- Oct 27 - [Snack on pistachios, eat strawberries, reconsider your sleep position and 10 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/snack-on-pistachios-eat-strawberries-reconsider-your-sleep-position-and-10-more-health-tips-to-help-you-have-a-great-week-110035900.html)
 - Oct 27 - [Selling My House with $800k in Profits - Is There a Tax-Free Way to Downsize?](https://finance.yahoo.com/news/im-selling-house-netting-800k-120000953.html)
+- Oct 27 - [National Hurricane Center highlights Caribbean Sea for tropical development into early November](https://www.yahoo.com/news/national-hurricane-center-highlights-caribbean-103533586.html)
 <!-- feed end -->
 
 ### Onstream
