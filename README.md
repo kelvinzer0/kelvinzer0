@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [3 Magnificent S&P 500 Dividend Stocks Down 43%, 20%, and 53% to Buy and Hold Forever](https://finance.yahoo.com/news/3-magnificent-p-500-dividend-224800227.html)
-- Oct 26 - [Buy These 3 High-Yield Dividend Stocks Today and Sleep Soundly for a Decade](https://finance.yahoo.com/news/buy-3-high-yield-dividend-221800240.html)
-- Oct 26 - [A Florida woman who zipped her boyfriend in a suitcase for hours until he died found guilty of second-degree murder](https://www.yahoo.com/news/florida-woman-zipped-her-boyfriend-213411521.html)
-- Oct 26 - [Google to develop AI that takes over computers, The Information reports](https://finance.yahoo.com/news/google-develop-ai-takes-over-210155870.html)
+- Oct 26 - [‘A large Pacific storm system’ to bring rain, gusty winds and maybe thunder to PNW](https://www.yahoo.com/news/large-pacific-storm-system-bring-211606626.html)
+- Oct 26 - [Trump refers to CNN's Anderson Cooper by a woman's first name](https://www.yahoo.com/news/trump-refers-cnns-anderson-cooper-203011584.html)
 - Oct 26 - [A Wife's Skydiving Fall Looked Like a Tragic Accident. Then Police Discovered Something More Sinister](https://www.yahoo.com/news/wifes-skydiving-fall-looked-tragic-190000731.html)
+- Oct 26 - [Iran left reeling from Netanyahu’s calculated revenge mission](https://www.yahoo.com/news/huddled-generals-deep-night-benjamin-093100363.html)
+- Oct 26 - [Joe Rogan asked Donald Trump for specifics on how 2020 was stolen. Then could only laugh at the answer](https://www.yahoo.com/news/joe-rogan-asked-donald-trump-123459519.html)
 <!-- feed end -->
 
 ### Onstream
