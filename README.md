@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [Man charged over triple stabbing of boy, 2, girl, 8, and woman](https://www.yahoo.com/news/man-charged-over-triple-stabbing-130659221.html)
+- Oct 27 - [South Carolina man killed in collision between two classic vehicles, officials say](https://www.yahoo.com/news/south-carolina-man-killed-collision-134204002.html)
+- Oct 27 - [Body found confirmed as missing woman Joanne Jones](https://www.yahoo.com/news/body-found-search-missing-woman-074044883.html)
+- Oct 27 - ["Third Man Syndrome" Has Fascinated Me For Months, So Here Are 24 First-Hand Accounts Of People Who Experienced It And Lived To Tell The Tale](https://www.yahoo.com/lifestyle/third-man-syndrome-fascinated-months-132102915.html)
+- Oct 27 - [Fire ravages historic Maurice’s Piggie Park BBQ building in Midlands, SC officials say](https://www.yahoo.com/news/fire-ravages-historic-maurice-piggie-114534979.html)
 - Oct 27 - [Selling My House with $800k in Profits - Is There a Tax-Free Way to Downsize?](https://finance.yahoo.com/news/im-selling-house-netting-800k-120000953.html)
-- Oct 27 - [What happens if someone sells your property in America without your knowledge? It’s a lot more complicated than you might think](https://finance.yahoo.com/news/happens-someone-sells-property-america-103100144.html)
-- Oct 27 - [Satellite images show damage from Israeli attack at 2 secretive Iranian military bases](https://www.yahoo.com/news/satellite-images-show-damage-israeli-101418160.html)
-- Oct 27 - [I’m 70, have $1.5 million in a 401(k), and just started Social Security. Is it too late for a Roth conversion?](https://finance.yahoo.com/news/m-70-1-5-million-100300647.html)
 <!-- feed end -->
 
 ### Onstream
