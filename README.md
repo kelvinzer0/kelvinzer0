@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [The rules for trick-or-treating in Hampton Roads](https://www.yahoo.com/lifestyle/rules-trick-treating-hampton-roads-200000263.html)
+- Oct 27 - [How Much Cash Will A $1 Million Annuity Bring In Each Month?](https://finance.yahoo.com/news/much-cash-1-million-annuity-190033918.html)
+- Oct 27 - [Hochul says Trump’s Madison Square Garden rally is a ‘white flag of surrender’](https://www.yahoo.com/news/hochul-says-trump-madison-square-184905671.html)
 - Oct 27 - [People Are Sharing Their Small Contributions To Society, And I'm Really Hoping You Do All Of These](https://www.yahoo.com/lifestyle/people-sharing-small-contributions-society-180805444.html)
-- Oct 27 - [Tropical disturbance ‘likely to develop’ this week, NHC says](https://www.yahoo.com/news/tropical-disturbance-likely-develop-week-164511293.html)
-- Oct 27 - [A teenager was bludgeoned to death the night before Halloween in 1975. A Kennedy cousin was arrested - and then exonerated](https://www.yahoo.com/news/teenager-bludgeoned-death-night-halloween-164350961.html)
-- Oct 27 - [Biden calls out Musk over a published report that the Tesla CEO once worked in the US illegally](https://www.yahoo.com/news/biden-calls-musk-over-published-164255456.html)
-- Oct 27 - [Shaquille O'Neal Says He's Got 40 Cars, 5 Houses But Doesn't 'Know Why.' His Advice Is To 'Just Save. Don't Even Touch It'](https://finance.yahoo.com/news/shaquille-oneal-says-hes-got-163016930.html)
+- Oct 27 - [CLOSURE: Semi-truck overturns in Parley’s Canyon, road closed](https://www.yahoo.com/news/closure-semi-truck-overturns-parley-165601936.html)
 <!-- feed end -->
 
 ### Onstream
