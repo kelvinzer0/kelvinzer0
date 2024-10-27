@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [Oil slips nearly $4 a barrel after Israel shows restraint in strikes on Iran](https://finance.yahoo.com/news/oil-slips-nearly-4-barrel-222313117.html)
+- Oct 27 - [Zelenskyy says Ukraine will be forced to fight against North Korea as he calls on allies to increase pressure on Russia](https://www.yahoo.com/news/zelenskyy-says-ukraine-forced-fight-125917447.html)
 - Oct 27 - [Hochul says Trump’s Madison Square Garden rally is a ‘white flag of surrender’](https://www.yahoo.com/news/hochul-says-trump-madison-square-184905671.html)
-- Oct 27 - [All of the Maurice’s BBQ restaurants will be affected by Saturday night’s fire. Here’s why](https://www.yahoo.com/news/maurice-bbq-restaurants-affected-saturday-181958500.html)
 - Oct 27 - [People Are Sharing Their Small Contributions To Society, And I'm Really Hoping You Do All Of These](https://www.yahoo.com/lifestyle/people-sharing-small-contributions-society-180805444.html)
-- Oct 27 - [Sam Altman-backed energy stock surges amid AI-driven 'nuclear power renaissance'](https://finance.yahoo.com/news/sam-altman-backed-energy-stock-surges-amid-ai-driven-nuclear-power-renaissance-172512779.html)
-- Oct 27 - [Tropical disturbance ‘likely to develop’ this week, NHC says](https://www.yahoo.com/news/tropical-disturbance-likely-develop-week-164511293.html)
+- Oct 27 - [The California exodus has continued. Here's where most people leaving the Golden State moved to — and why.](https://www.yahoo.com/news/california-exodus-continued-heres-where-180401204.html)
 <!-- feed end -->
 
 ### Onstream
