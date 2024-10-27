@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [The rules for trick-or-treating in Hampton Roads](https://www.yahoo.com/lifestyle/rules-trick-treating-hampton-roads-200000263.html)
-- Oct 27 - [How Much Cash Will A $1 Million Annuity Bring In Each Month?](https://finance.yahoo.com/news/much-cash-1-million-annuity-190033918.html)
 - Oct 27 - [Hochul says Trump’s Madison Square Garden rally is a ‘white flag of surrender’](https://www.yahoo.com/news/hochul-says-trump-madison-square-184905671.html)
+- Oct 27 - [All of the Maurice’s BBQ restaurants will be affected by Saturday night’s fire. Here’s why](https://www.yahoo.com/news/maurice-bbq-restaurants-affected-saturday-181958500.html)
 - Oct 27 - [People Are Sharing Their Small Contributions To Society, And I'm Really Hoping You Do All Of These](https://www.yahoo.com/lifestyle/people-sharing-small-contributions-society-180805444.html)
-- Oct 27 - [CLOSURE: Semi-truck overturns in Parley’s Canyon, road closed](https://www.yahoo.com/news/closure-semi-truck-overturns-parley-165601936.html)
+- Oct 27 - [Sam Altman-backed energy stock surges amid AI-driven 'nuclear power renaissance'](https://finance.yahoo.com/news/sam-altman-backed-energy-stock-surges-amid-ai-driven-nuclear-power-renaissance-172512779.html)
+- Oct 27 - [Tropical disturbance ‘likely to develop’ this week, NHC says](https://www.yahoo.com/news/tropical-disturbance-likely-develop-week-164511293.html)
 <!-- feed end -->
 
 ### Onstream
