@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [Satellite photos show Israel hit Iran former nuclear weapons test building, missile facilities, researchers say](https://www.yahoo.com/news/exclusive-satellite-photos-show-israel-211628862.html)
 - Oct 26 - [‘A large Pacific storm system’ to bring rain, gusty winds and maybe thunder to PNW](https://www.yahoo.com/news/large-pacific-storm-system-bring-211606626.html)
-- Oct 26 - [Update: I-5 southbound lane reopens after truck fire, hazmat response in Eugene](https://www.yahoo.com/news/hazmat-teams-called-truck-fire-203810795.html)
+- Oct 26 - [Google to develop AI that takes over computers, The Information reports](https://finance.yahoo.com/news/google-develop-ai-takes-over-210155870.html)
 - Oct 26 - [Trump refers to CNN's Anderson Cooper by a woman's first name](https://www.yahoo.com/news/trump-refers-cnns-anderson-cooper-203011584.html)
 - Oct 26 - [A Wife's Skydiving Fall Looked Like a Tragic Accident. Then Police Discovered Something More Sinister](https://www.yahoo.com/news/wifes-skydiving-fall-looked-tragic-190000731.html)
-- Oct 26 - [Iran left reeling from Netanyahu’s calculated revenge mission](https://www.yahoo.com/news/huddled-generals-deep-night-benjamin-093100363.html)
 <!-- feed end -->
 
 ### Onstream
