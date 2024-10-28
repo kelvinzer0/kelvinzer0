@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 28 - [Analysis-Some companies change tack in China with no recovery in sight](https://finance.yahoo.com/news/analysis-companies-change-tack-china-050546117.html)
+- Oct 28 - [European airlines' Q3 struggle with plane delays, high costs](https://finance.yahoo.com/news/european-airlines-q3-struggle-plane-050240061.html)
 - Oct 28 - [Missing woman found with snake bite after six days in mountains](https://www.yahoo.com/news/missing-woman-found-snake-bite-124416461.html)
 - Oct 28 - [Middle East latest: Social platform X suspends new account on behalf of Iran's supreme leader](https://www.yahoo.com/news/middle-east-latest-social-platform-025149295.html)
 - Oct 28 - [Opinion: Donald Trump’s Racist NYC Rally Was Vile. It Was Also Political Suicide](https://www.yahoo.com/news/opinion-donald-trump-racist-nyc-024926623.html)
-- Oct 28 - [China's private tutoring firms emerge from the shadows after crackdown](https://www.yahoo.com/news/chinas-private-tutoring-firms-emerge-020344631.html)
-- Oct 27 - [Zelenskiy says 'Ukraine plus Northern Europe' co-operation format gaining speed](https://www.yahoo.com/news/zelenskiy-says-ukraine-plus-northern-233240765.html)
 <!-- feed end -->
 
 ### Onstream
