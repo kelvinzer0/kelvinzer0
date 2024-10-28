@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Apple to unveil AI features, overhaul Macs amid earnings week](https://finance.yahoo.com/video/apple-unveil-ai-features-overhaul-140417705.html)
-- Oct 28 - [South Korea's Yoon says North Korean troops' Ukraine war deployment may come sooner than expected](https://www.yahoo.com/news/south-koreas-yoon-says-north-133229146.html)
-- Oct 28 - [Burger King India operator's quarterly loss widens on sluggish fast-food demand](https://finance.yahoo.com/news/burger-king-india-operators-quarterly-132525324.html)
+- Oct 28 - [Search underway for missing Lexington teenager who hasn’t been seen for days](https://www.yahoo.com/news/search-underway-missing-lexington-teenager-143940019.html)
+- Oct 28 - [Man charged in hit-and-run that killed New Hampshire Air National Guard commander](https://www.yahoo.com/news/man-charged-hit-run-killed-143526091.html)
+- Oct 28 - [Rare dime bought by Ohio farm family and hidden for decades fetches $500,000 at auction](https://finance.yahoo.com/news/rare-dime-bought-ohio-farm-142306011.html)
+- Oct 28 - [Far-Right Extremist Candace Owens Refused Entry To Australia](https://www.yahoo.com/news/far-extremist-candace-owens-refused-134204661.html)
 - Oct 28 - [AT&T announces $1 billion fiber deal with Corning](https://finance.yahoo.com/news/t-announces-1-billion-fiber-132430597.html)
-- Oct 28 - [Council admits medical case to remove baby from parents was ‘not very firm’](https://www.yahoo.com/news/council-admits-medical-case-remove-132317065.html)
 <!-- feed end -->
 
 ### Onstream
