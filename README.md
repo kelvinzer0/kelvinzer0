@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Norway agrees €340-million air defence deal with US](https://www.yahoo.com/news/norway-agrees-340-million-air-172634503.html)
-- Oct 28 - [Putin just won another victory – yet the West still has its head in the sand](https://www.yahoo.com/news/putin-just-won-another-victory-171356015.html)
+- Oct 28 - [Cash App Data Breach Settlement: How to Claim Up to $2,500](https://www.yahoo.com/tech/cash-app-data-breach-settlement-182418880.html)
 - Oct 28 - [Hundreds of ballots are destroyed after fires are set in ballot drop boxes in Oregon and Washington](https://www.yahoo.com/news/hundreds-ballots-destroyed-fires-set-171253337.html)
+- Oct 28 - [IRS announces new 2025 tax brackets: What you need to know](https://finance.yahoo.com/video/irs-announces-2025-tax-brackets-171002864.html)
+- Oct 28 - [Americans in Puerto Rico can't vote for US president. Their anger at Trump is shaping the race](https://www.yahoo.com/news/puerto-rico-bristles-us-comedian-164356390.html)
 - Oct 28 - [Memphis man pleads guilty to kidnapping, killing school teacher](https://www.yahoo.com/news/memphis-man-pleads-guilty-kidnapping-162637396.html)
-- Oct 28 - [Ship loses power, bumps into St. Augustine’s Bridge of Lions](https://www.yahoo.com/news/ship-loses-power-bumps-st-152933912.html)
 <!-- feed end -->
 
 ### Onstream
