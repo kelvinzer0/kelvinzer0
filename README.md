@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Search underway for missing Lexington teenager who hasn’t been seen for days](https://www.yahoo.com/news/search-underway-missing-lexington-teenager-143940019.html)
-- Oct 28 - [Man charged in hit-and-run that killed New Hampshire Air National Guard commander](https://www.yahoo.com/news/man-charged-hit-run-killed-143526091.html)
-- Oct 28 - [Rare dime bought by Ohio farm family and hidden for decades fetches $500,000 at auction](https://finance.yahoo.com/news/rare-dime-bought-ohio-farm-142306011.html)
-- Oct 28 - [Far-Right Extremist Candace Owens Refused Entry To Australia](https://www.yahoo.com/news/far-extremist-candace-owens-refused-134204661.html)
-- Oct 28 - [AT&T announces $1 billion fiber deal with Corning](https://finance.yahoo.com/news/t-announces-1-billion-fiber-132430597.html)
+- Oct 28 - [How grit and determination built a $750 million business](https://finance.yahoo.com/video/grit-determination-built-750-million-160045154.html)
+- Oct 28 - [Where do you find suspects in a $1.7 million jewelry heist? A Miami Beach hotel, cops say](https://www.yahoo.com/news/where-suspects-1-7-million-154916277.html)
+- Oct 28 - [75th Annual H-E-B Thanksgiving Day Parade](https://www.yahoo.com/news/75th-annual-h-e-b-154000601.html)
+- Oct 28 - [Ethanol production to prevent Indian sugar exports, says trader Wilmar](https://finance.yahoo.com/news/ethanol-production-prevent-indian-sugar-153404574.html)
+- Oct 28 - [Meta Developing Its Own AI Search Engine, The Information Says](https://finance.yahoo.com/news/meta-developing-own-ai-search-151503025.html)
 <!-- feed end -->
 
 ### Onstream
