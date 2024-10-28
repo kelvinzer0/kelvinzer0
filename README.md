@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [How grit and determination built a $750 million business](https://finance.yahoo.com/video/grit-determination-built-750-million-160045154.html)
-- Oct 28 - [Where do you find suspects in a $1.7 million jewelry heist? A Miami Beach hotel, cops say](https://www.yahoo.com/news/where-suspects-1-7-million-154916277.html)
-- Oct 28 - [75th Annual H-E-B Thanksgiving Day Parade](https://www.yahoo.com/news/75th-annual-h-e-b-154000601.html)
-- Oct 28 - [Ethanol production to prevent Indian sugar exports, says trader Wilmar](https://finance.yahoo.com/news/ethanol-production-prevent-indian-sugar-153404574.html)
-- Oct 28 - [Meta Developing Its Own AI Search Engine, The Information Says](https://finance.yahoo.com/news/meta-developing-own-ai-search-151503025.html)
+- Oct 28 - [Iranian-German prisoner Jamshid Sharmahd, who lived in US, executed in Iran over terror conviction](https://www.yahoo.com/news/iranian-german-prisoner-jamshid-sharmahd-164423761.html)
+- Oct 28 - [Police Seize Servers for Two Notorious Malware Strains: Redline and Meta](https://www.yahoo.com/tech/police-seize-servers-two-notorious-162323356.html)
+- Oct 28 - [MAGA Governor Begs Supreme Court to Let Him Destroy Voting Rights](https://www.yahoo.com/news/maga-governor-begs-supreme-court-161833364.html)
+- Oct 28 - [Massive gator easily tears through metal fence; 'This can't be real'](https://www.yahoo.com/lifestyle/massive-gator-easily-tears-metal-161500603.html)
+- Oct 28 - [Case introduces measure to combat invasive species](https://www.yahoo.com/news/case-introduces-measure-combat-invasive-160300242.html)
 <!-- feed end -->
 
 ### Onstream
