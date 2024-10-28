@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Netanyahu: Attack on Iran was 'precise and powerful'](https://www.yahoo.com/news/netanyahu-attack-iran-precise-powerful-005729092.html)
+- Oct 28 - [China's private tutoring firms emerge from the shadows after crackdown](https://www.yahoo.com/news/chinas-private-tutoring-firms-emerge-020344631.html)
 - Oct 27 - [Missing woman found with snake bite after six days in mountains](https://www.yahoo.com/news/missing-woman-found-snake-bite-124416461.html)
+- Oct 27 - [A man told police he had fallen off a cliff after being chased by a bear. Now he’s suspected of  murder](https://www.yahoo.com/news/man-told-police-had-fallen-224129477.html)
 - Oct 27 - [Crash of as many as 45 vehicles blocks southbound I-5 between Kent and Federal Way](https://www.yahoo.com/news/crash-many-45-vehicles-blocks-222042530.html)
-- Oct 27 - [WINTER STORM: Snow coming to ‘all mountains of Utah,’ NWS reports](https://www.yahoo.com/news/winter-storm-snow-coming-mountains-220600845.html)
-- Oct 27 - [All of the Maurice’s BBQ restaurants will be affected by Saturday night’s fire. Here’s why](https://www.yahoo.com/news/maurice-bbq-restaurants-affected-saturday-181958500.html)
+- Oct 27 - [Here are the Indiana marching bands that advanced to ISSMA state finals](https://www.yahoo.com/lifestyle/indiana-marching-bands-advanced-issma-185428795.html)
 <!-- feed end -->
 
 ### Onstream
