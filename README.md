@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Ukraine drone strikes target Vladimir Putin's explosives factories as Russia hits Kharkiv](https://www.yahoo.com/news/ukraine-drone-strikes-target-vladimir-083043314.html)
+- Oct 28 - [Apple iPhone 16 sales blocked in Indonesia due to local parts rule](https://finance.yahoo.com/news/apple-iphone-16-sales-blocked-094559342.html)
+- Oct 28 - [Singapore's Synagistics: Hong Kong's first de-SPAC listing a milestone for stock exchange](https://finance.yahoo.com/news/singapores-synagistics-hong-kongs-first-093000214.html)
 - Oct 28 - [China again warns EU against separate talks with EV makers](https://finance.yahoo.com/news/china-again-warns-eu-against-060108773.html)
+- Oct 28 - [Discover the Enormous Shark Feeding Ground in the Pacific](https://www.yahoo.com/lifestyle/discover-enormous-shark-feeding-ground-060000404.html)
 - Oct 28 - [Analysis-Some companies change tack in China with no recovery in sight](https://finance.yahoo.com/news/analysis-companies-change-tack-china-050546117.html)
-- Oct 28 - [Missing woman found with snake bite after six days in mountains](https://www.yahoo.com/news/missing-woman-found-snake-bite-124416461.html)
-- Oct 28 - [Middle East latest: Social platform X suspends new account on behalf of Iran's supreme leader](https://www.yahoo.com/news/middle-east-latest-social-platform-025149295.html)
 <!-- feed end -->
 
 ### Onstream
