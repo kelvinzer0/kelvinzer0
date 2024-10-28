@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 28 - [Opinion: Donald Trump’s Racist NYC Rally Was Vile. It Was Also Political Suicide](https://www.yahoo.com/news/opinion-donald-trump-racist-nyc-024926623.html)
 - Oct 28 - [China's private tutoring firms emerge from the shadows after crackdown](https://www.yahoo.com/news/chinas-private-tutoring-firms-emerge-020344631.html)
+- Oct 28 - [Red, white and arrested too: Patriotic looking man accused of threatening to blow up a makeup store](https://www.yahoo.com/news/red-white-arrested-too-patriotic-181600314.html)
+- Oct 28 - [Elon Musk says at a New York Trump rally that he could save the country $2 trillion through a department of efficiency](https://www.yahoo.com/news/elon-musk-says-york-trump-005704245.html)
 - Oct 27 - [Missing woman found with snake bite after six days in mountains](https://www.yahoo.com/news/missing-woman-found-snake-bite-124416461.html)
-- Oct 27 - [A man told police he had fallen off a cliff after being chased by a bear. Now he’s suspected of  murder](https://www.yahoo.com/news/man-told-police-had-fallen-224129477.html)
-- Oct 27 - [Crash of as many as 45 vehicles blocks southbound I-5 between Kent and Federal Way](https://www.yahoo.com/news/crash-many-45-vehicles-blocks-222042530.html)
-- Oct 27 - [Here are the Indiana marching bands that advanced to ISSMA state finals](https://www.yahoo.com/lifestyle/indiana-marching-bands-advanced-issma-185428795.html)
 <!-- feed end -->
 
 ### Onstream
