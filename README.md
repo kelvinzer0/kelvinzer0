@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [‘I’m not afraid. Let’s do it’: the Arizona abortion clinic taking a stand for patients](https://www.yahoo.com/news/m-not-afraid-let-arizona-120002021.html)
+- Oct 28 - [The Amazon Swallowed A Colony Centuries Ago. Archaeologists Just Found It.](https://www.yahoo.com/news/amazon-swallowed-colony-centuries-ago-123000566.html)
 - Oct 28 - [Condo crisis: Florida condominiums sales slow as sellers flood market following new law](https://www.yahoo.com/news/condo-crisis-florida-condominiums-sales-115225627.html)
-- Oct 28 - [Police seeking witnesses in serious crash near Route 30 in West Manchester Township](https://www.yahoo.com/news/police-seeking-witnesses-serious-crash-114019610.html)
+- Oct 28 - [McDonald’s confirms Quarter Pounder beef is not source of E. coli](https://www.yahoo.com/news/mcdonald-confirms-quarter-pounder-beef-113416715.html)
+- Oct 28 - [I was wrong about the iPhone 16](https://www.yahoo.com/tech/wrong-iphone-16-113043571.html)
 - Oct 28 - [A Giant Structure in Space Challenges Our Understanding of The Universe](https://www.yahoo.com/news/giant-structure-space-challenges-understanding-110038374.html)
-- Oct 28 - [Ukraine's surrender hotline is tempting North Koreans to desert, promising they'll be well fed](https://www.yahoo.com/news/ukraines-surrender-hotline-tempting-north-101157376.html)
 <!-- feed end -->
 
 ### Onstream
