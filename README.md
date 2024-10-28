@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Apple iPhone 16 sales blocked in Indonesia due to local parts rule](https://finance.yahoo.com/news/apple-iphone-16-sales-blocked-094559342.html)
-- Oct 28 - [Singapore's Synagistics: Hong Kong's first de-SPAC listing a milestone for stock exchange](https://finance.yahoo.com/news/singapores-synagistics-hong-kongs-first-093000214.html)
-- Oct 28 - [China again warns EU against separate talks with EV makers](https://finance.yahoo.com/news/china-again-warns-eu-against-060108773.html)
-- Oct 28 - [Discover the Enormous Shark Feeding Ground in the Pacific](https://www.yahoo.com/lifestyle/discover-enormous-shark-feeding-ground-060000404.html)
-- Oct 28 - [Analysis-Some companies change tack in China with no recovery in sight](https://finance.yahoo.com/news/analysis-companies-change-tack-china-050546117.html)
+- Oct 28 - [‘I’m not afraid. Let’s do it’: the Arizona abortion clinic taking a stand for patients](https://www.yahoo.com/news/m-not-afraid-let-arizona-120002021.html)
+- Oct 28 - [Condo crisis: Florida condominiums sales slow as sellers flood market following new law](https://www.yahoo.com/news/condo-crisis-florida-condominiums-sales-115225627.html)
+- Oct 28 - [Police seeking witnesses in serious crash near Route 30 in West Manchester Township](https://www.yahoo.com/news/police-seeking-witnesses-serious-crash-114019610.html)
+- Oct 28 - [A Giant Structure in Space Challenges Our Understanding of The Universe](https://www.yahoo.com/news/giant-structure-space-challenges-understanding-110038374.html)
+- Oct 28 - [Ukraine's surrender hotline is tempting North Koreans to desert, promising they'll be well fed](https://www.yahoo.com/news/ukraines-surrender-hotline-tempting-north-101157376.html)
 <!-- feed end -->
 
 ### Onstream
