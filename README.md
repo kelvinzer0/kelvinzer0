@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [The Amazon Swallowed A Colony Centuries Ago. Archaeologists Just Found It.](https://www.yahoo.com/news/amazon-swallowed-colony-centuries-ago-123000566.html)
-- Oct 28 - [Condo crisis: Florida condominiums sales slow as sellers flood market following new law](https://www.yahoo.com/news/condo-crisis-florida-condominiums-sales-115225627.html)
-- Oct 28 - [McDonald’s confirms Quarter Pounder beef is not source of E. coli](https://www.yahoo.com/news/mcdonald-confirms-quarter-pounder-beef-113416715.html)
-- Oct 28 - [I was wrong about the iPhone 16](https://www.yahoo.com/tech/wrong-iphone-16-113043571.html)
-- Oct 28 - [A Giant Structure in Space Challenges Our Understanding of The Universe](https://www.yahoo.com/news/giant-structure-space-challenges-understanding-110038374.html)
+- Oct 28 - [Apple to unveil AI features, overhaul Macs amid earnings week](https://finance.yahoo.com/video/apple-unveil-ai-features-overhaul-140417705.html)
+- Oct 28 - [South Korea's Yoon says North Korean troops' Ukraine war deployment may come sooner than expected](https://www.yahoo.com/news/south-koreas-yoon-says-north-133229146.html)
+- Oct 28 - [Burger King India operator's quarterly loss widens on sluggish fast-food demand](https://finance.yahoo.com/news/burger-king-india-operators-quarterly-132525324.html)
+- Oct 28 - [AT&T announces $1 billion fiber deal with Corning](https://finance.yahoo.com/news/t-announces-1-billion-fiber-132430597.html)
+- Oct 28 - [Council admits medical case to remove baby from parents was ‘not very firm’](https://www.yahoo.com/news/council-admits-medical-case-remove-132317065.html)
 <!-- feed end -->
 
 ### Onstream
