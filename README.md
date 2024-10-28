@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Cash App Data Breach Settlement: How to Claim Up to $2,500](https://www.yahoo.com/tech/cash-app-data-breach-settlement-182418880.html)
-- Oct 28 - [Hundreds of ballots are destroyed after fires are set in ballot drop boxes in Oregon and Washington](https://www.yahoo.com/news/hundreds-ballots-destroyed-fires-set-171253337.html)
-- Oct 28 - [IRS announces new 2025 tax brackets: What you need to know](https://finance.yahoo.com/video/irs-announces-2025-tax-brackets-171002864.html)
-- Oct 28 - [Americans in Puerto Rico can't vote for US president. Their anger at Trump is shaping the race](https://www.yahoo.com/news/puerto-rico-bristles-us-comedian-164356390.html)
-- Oct 28 - [Memphis man pleads guilty to kidnapping, killing school teacher](https://www.yahoo.com/news/memphis-man-pleads-guilty-kidnapping-162637396.html)
+- Oct 28 - [If The Average American Household Is A Millionaire With A Net Worth Of $1.06 Million, Why Do People Feel So Broke?](https://finance.yahoo.com/news/average-american-household-millionaire-net-193035068.html)
+- Oct 28 - [Will Take-Two Interactive (TTWO) Lead Growth with GTA VI and Other Releases?](https://finance.yahoo.com/news/two-interactive-ttwo-lead-growth-192315225.html)
+- Oct 28 - [PepsiCo to close Chicago bottling plant, impacting 150 workers](https://finance.yahoo.com/news/pepsico-close-chicago-bottling-plant-192145060.html)
+- Oct 28 - [Israeli Strikes Knocked Out All Of Iran’s S-300 Air Defense Systems: Officials](https://www.yahoo.com/news/israeli-strikes-knocked-iran-300-190220146.html)
+- Oct 28 - [Iran ‘facing a bunch of really, really bad options,’ says expert](https://www.yahoo.com/entertainment/iran-facing-bunch-really-really-174034876.html)
 <!-- feed end -->
 
 ### Onstream
