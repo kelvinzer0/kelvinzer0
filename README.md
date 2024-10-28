@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [Oil slips nearly $4 a barrel after Israel shows restraint in strikes on Iran](https://finance.yahoo.com/news/oil-slips-nearly-4-barrel-222313117.html)
-- Oct 27 - [Zelenskyy says Ukraine will be forced to fight against North Korea as he calls on allies to increase pressure on Russia](https://www.yahoo.com/news/zelenskyy-says-ukraine-forced-fight-125917447.html)
-- Oct 27 - [Hochul says Trump’s Madison Square Garden rally is a ‘white flag of surrender’](https://www.yahoo.com/news/hochul-says-trump-madison-square-184905671.html)
-- Oct 27 - [People Are Sharing Their Small Contributions To Society, And I'm Really Hoping You Do All Of These](https://www.yahoo.com/lifestyle/people-sharing-small-contributions-society-180805444.html)
-- Oct 27 - [The California exodus has continued. Here's where most people leaving the Golden State moved to — and why.](https://www.yahoo.com/news/california-exodus-continued-heres-where-180401204.html)
+- Oct 28 - [Netanyahu: Attack on Iran was 'precise and powerful'](https://www.yahoo.com/news/netanyahu-attack-iran-precise-powerful-005729092.html)
+- Oct 27 - [Missing woman found with snake bite after six days in mountains](https://www.yahoo.com/news/missing-woman-found-snake-bite-124416461.html)
+- Oct 27 - [Crash of as many as 45 vehicles blocks southbound I-5 between Kent and Federal Way](https://www.yahoo.com/news/crash-many-45-vehicles-blocks-222042530.html)
+- Oct 27 - [WINTER STORM: Snow coming to ‘all mountains of Utah,’ NWS reports](https://www.yahoo.com/news/winter-storm-snow-coming-mountains-220600845.html)
+- Oct 27 - [All of the Maurice’s BBQ restaurants will be affected by Saturday night’s fire. Here’s why](https://www.yahoo.com/news/maurice-bbq-restaurants-affected-saturday-181958500.html)
 <!-- feed end -->
 
 ### Onstream
