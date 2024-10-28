@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Iranian-German prisoner Jamshid Sharmahd, who lived in US, executed in Iran over terror conviction](https://www.yahoo.com/news/iranian-german-prisoner-jamshid-sharmahd-164423761.html)
-- Oct 28 - [Police Seize Servers for Two Notorious Malware Strains: Redline and Meta](https://www.yahoo.com/tech/police-seize-servers-two-notorious-162323356.html)
-- Oct 28 - [MAGA Governor Begs Supreme Court to Let Him Destroy Voting Rights](https://www.yahoo.com/news/maga-governor-begs-supreme-court-161833364.html)
-- Oct 28 - [Massive gator easily tears through metal fence; 'This can't be real'](https://www.yahoo.com/lifestyle/massive-gator-easily-tears-metal-161500603.html)
-- Oct 28 - [Case introduces measure to combat invasive species](https://www.yahoo.com/news/case-introduces-measure-combat-invasive-160300242.html)
+- Oct 28 - [Norway agrees €340-million air defence deal with US](https://www.yahoo.com/news/norway-agrees-340-million-air-172634503.html)
+- Oct 28 - [Putin just won another victory – yet the West still has its head in the sand](https://www.yahoo.com/news/putin-just-won-another-victory-171356015.html)
+- Oct 28 - [Hundreds of ballots are destroyed after fires are set in ballot drop boxes in Oregon and Washington](https://www.yahoo.com/news/hundreds-ballots-destroyed-fires-set-171253337.html)
+- Oct 28 - [Memphis man pleads guilty to kidnapping, killing school teacher](https://www.yahoo.com/news/memphis-man-pleads-guilty-kidnapping-162637396.html)
+- Oct 28 - [Ship loses power, bumps into St. Augustine’s Bridge of Lions](https://www.yahoo.com/news/ship-loses-power-bumps-st-152933912.html)
 <!-- feed end -->
 
 ### Onstream
