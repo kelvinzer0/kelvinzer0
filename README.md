@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [E-bike rider crashes into child crossing London cycle lane](https://www.yahoo.com/news/e-bike-rider-crashes-child-124833336.html)
+- Nov 01 - [US added 12,000 jobs in October as hurricanes, strikes take toll](https://finance.yahoo.com/video/us-added-12-000-jobs-124131025.html)
 - Nov 01 - [A giant rodent threatens the Sacramento-San Joaquin Delta. It’s time for Whac-A-Mole | Opinion](https://www.yahoo.com/news/giant-rodent-threatens-sacramento-san-120000672.html)
-- Nov 01 - [Stock market today: Nasdaq, S&P 500 poised for rebound amid Amazon cheer, but jobs report looms](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-sp-500-poised-for-rebound-amid-amazon-cheer-but-jobs-report-looms-115059861.html)
-- Nov 01 - [China's Xi underscores benefits of cooperation with Slovakia during Fico's visit](https://www.yahoo.com/news/chinas-xi-underscores-benefits-cooperation-114806527.html)
-- Nov 01 - [Taiwanese rescuers airlift Czech couple feared missing in typhoon](https://www.yahoo.com/news/taiwanese-rescuers-airlift-czech-couple-111946113.html)
-- Nov 01 - [Prison work assignments used to lure and rape female inmates. Guards sometimes walk free](https://www.yahoo.com/news/prison-assignments-used-lure-rape-030443578.html)
+- Nov 01 - [Luxury European automakers are getting crushed in China](https://www.yahoo.com/news/luxury-european-automakers-getting-crushed-114915735.html)
+- Nov 01 - [Taiwan races to remove oil from grounded Chinese ship](https://www.yahoo.com/news/taiwan-races-remove-oil-grounded-085556188.html)
 <!-- feed end -->
 
 ### Onstream
