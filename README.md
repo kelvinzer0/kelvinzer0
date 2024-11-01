@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Nate Silver: ‘Cheating’ Pollsters Are Putting ‘Finger on the Scale’](https://www.yahoo.com/news/nate-silver-cheating-pollsters-putting-163354984.html)
+- Nov 01 - [German airport tests out cashew-based asphalt in green push](https://www.yahoo.com/news/german-airport-tests-cashew-based-162107313.html)
+- Nov 01 - [IRS announces pension and retirement plan contribution adjustments for 2025](https://finance.yahoo.com/news/irs-announces-pension-retirement-plan-160012046.html)
+- Nov 01 - [Lee County sheriff's civilian warrants clerk arrested, accused of obstructing justice](https://www.yahoo.com/news/lee-county-sheriffs-civilian-warrants-154940223.html)
 - Nov 01 - [A Pregnant Teenager Died After Trying to Get Care in Three Visits to Texas Emergency Rooms](https://www.yahoo.com/news/pregnant-teenager-died-trying-care-153955021.html)
-- Nov 01 - [The Best Cola Brand We've Tasted Isn't Coke Or Pepsi](https://www.yahoo.com/lifestyle/best-cola-brand-weve-tasted-151550932.html)
-- Nov 01 - [Exxon's profit beats forecasts as volume offsets price weakness](https://finance.yahoo.com/video/exxons-profit-beats-forecasts-volume-150300007.html)
-- Nov 01 - ['We Did Not Enhance That': Jimmy Fallon Taken Aback By New Pic Of Trump](https://www.yahoo.com/entertainment/did-not-enhance-jimmy-fallon-140704339.html)
-- Nov 01 - [Not believed: Charged with filing false report, Polk teen captured own evidence during rape](https://www.yahoo.com/news/not-believed-charged-filing-false-133105204.html)
 <!-- feed end -->
 
 ### Onstream
