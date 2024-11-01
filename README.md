@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [A Pregnant Teenager Died After Trying to Get Care in Three Visits to Texas Emergency Rooms](https://www.yahoo.com/news/pregnant-teenager-died-trying-care-153955021.html)
+- Nov 01 - [The Best Cola Brand We've Tasted Isn't Coke Or Pepsi](https://www.yahoo.com/lifestyle/best-cola-brand-weve-tasted-151550932.html)
 - Nov 01 - [Exxon's profit beats forecasts as volume offsets price weakness](https://finance.yahoo.com/video/exxons-profit-beats-forecasts-volume-150300007.html)
-- Nov 01 - [Massive shoot-out involving ‘400 gang members’ roils France](https://www.yahoo.com/news/massive-shoot-involving-400-gang-142018523.html)
+- Nov 01 - ['We Did Not Enhance That': Jimmy Fallon Taken Aback By New Pic Of Trump](https://www.yahoo.com/entertainment/did-not-enhance-jimmy-fallon-140704339.html)
 - Nov 01 - [Not believed: Charged with filing false report, Polk teen captured own evidence during rape](https://www.yahoo.com/news/not-believed-charged-filing-false-133105204.html)
-- Nov 01 - [Hurricane center tracking 3 disturbances in Atlantic: Is US at risk?](https://www.yahoo.com/news/hurricane-center-tracking-3-disturbances-124616379.html)
-- Nov 01 - [Opinion - Mexico shamefully joins Russia, Venezuela in backing Cuba’s dictatorship](https://www.yahoo.com/news/opinion-mexico-shamefully-joins-russia-110000372.html)
 <!-- feed end -->
 
 ### Onstream
