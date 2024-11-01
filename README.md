@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Why the stock market is unfazed by October's jobs data miss](https://finance.yahoo.com/video/why-stock-market-unfazed-jobs-205149700.html)
+- Nov 01 - [Nvidia to replace Intel in Dow Jones Industrial Average](https://finance.yahoo.com/news/nvidia-replace-intel-dow-jones-212628000.html)
 - Nov 01 - [What states are getting rid of daylight saving time? These states already don't have it](https://www.yahoo.com/news/states-getting-rid-daylight-saving-203615669.html)
-- Nov 01 - [Arizona attorney general investigating Trump comments about Liz Cheney as death threat](https://www.yahoo.com/news/arizona-attorney-general-investigating-trump-194222495.html)
-- Nov 01 - [Concerns grow in Washington over Intel](https://finance.yahoo.com/news/concerns-grow-washington-over-intel-183122863.html)
-- Nov 01 - [Social media star Peanut the Squirrel has been euthanized after being seized from NY home](https://www.yahoo.com/news/social-media-star-peanut-squirrel-182927676.html)
+- Nov 01 - [Nicolle Wallace calls on her former boss, George W. Bush to break silence on 2024 Election](https://www.yahoo.com/news/nicolle-wallace-calls-her-former-202428654.html)
+- Nov 01 - [Clear-up in Ukraine's Kharkiv after latest Russian airstrike](https://www.yahoo.com/news/clear-ukraines-kharkiv-latest-russian-194613126.html)
+- Nov 01 - [Video shows moment dog recognizes owner after being lost for five months in the wilderness](https://www.yahoo.com/lifestyle/video-shows-moment-dog-recognizes-194555178.html)
 <!-- feed end -->
 
 ### Onstream
