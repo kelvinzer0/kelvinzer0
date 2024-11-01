@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Iran warns it could seek nuclear weapons in face of ‘existential threat’](https://www.yahoo.com/news/iran-warns-could-seek-nuclear-194655181.html)
-- Nov 01 - [Small cap banks, life sciences stocks look attractive, says CIO](https://finance.yahoo.com/video/small-cap-banks-life-sciences-193047658.html)
-- Nov 01 - [Free doughnuts at Krispy Kreme and more Election Day freebies](https://www.yahoo.com/lifestyle/free-doughnuts-krispy-kreme-more-192150791.html)
-- Nov 01 - [Sun Blasts Strong M9.8-Class Flare CME Earth-Directed](https://www.yahoo.com/news/sun-blasts-strong-m9-8-180000575.html)
-- Nov 01 - [These seven Jackson area restaurants failed October health inspections. See which here](https://www.yahoo.com/news/seven-jackson-area-restaurants-failed-183324067.html)
+- Nov 01 - [Why the stock market is unfazed by October's jobs data miss](https://finance.yahoo.com/video/why-stock-market-unfazed-jobs-205149700.html)
+- Nov 01 - [What states are getting rid of daylight saving time? These states already don't have it](https://www.yahoo.com/news/states-getting-rid-daylight-saving-203615669.html)
+- Nov 01 - [Arizona attorney general investigating Trump comments about Liz Cheney as death threat](https://www.yahoo.com/news/arizona-attorney-general-investigating-trump-194222495.html)
+- Nov 01 - [Concerns grow in Washington over Intel](https://finance.yahoo.com/news/concerns-grow-washington-over-intel-183122863.html)
+- Nov 01 - [Social media star Peanut the Squirrel has been euthanized after being seized from NY home](https://www.yahoo.com/news/social-media-star-peanut-squirrel-182927676.html)
 <!-- feed end -->
 
 ### Onstream
