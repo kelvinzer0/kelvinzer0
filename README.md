@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [NOAA 'threat' has offshore anglers circling wagons. Red snapper called a 'stalking horse'](https://www.yahoo.com/news/noaa-threat-offshore-anglers-circling-090811716.html)
-- Nov 01 - [Texas hospitals must now ask patients whether they're in the US legally. Here's how it works](https://www.yahoo.com/news/texas-hospitals-must-now-ask-051044850.html)
-- Nov 01 - [Prison work assignments used to lure and rape female inmates. Guards sometimes walk free](https://www.yahoo.com/news/prison-assignments-used-lure-rape-030443578.html)
-- Nov 01 - [North Korea boasts of 'the world's strongest' missile, but experts say it's too big to use in war](https://www.yahoo.com/news/north-korea-boasts-long-range-002624332.html)
-- Nov 01 - [Intel CEO calls TSMC an 'awesome' company, says the company is still waiting for CHIPS Act money](https://finance.yahoo.com/news/intel-ceo-calls-tsmc-an-awesome-company-says-the-company-is-still-waiting-for-chips-act-money-001504215.html)
+- Nov 01 - [Residents assess damage after flooding devastates Valencian town of Chiva](https://www.yahoo.com/news/residents-assess-damage-flooding-devastates-102511443.html)
+- Nov 01 - [Finding the young girl captured in a photograph of Gaza detainees](https://www.yahoo.com/news/finding-young-girl-captured-photograph-092503263.html)
+- Nov 01 - [‘I became very frugal’: My husband and I are 40. I have $200,000 in student debt, while he has $600,000 in retirement savings. Are we in trouble?](https://finance.yahoo.com/news/became-very-frugal-husband-40-231700524.html)
+- Nov 01 - [Your Monthly Work Horoscope for November 2024](https://www.yahoo.com/lifestyle/monthly-horoscope-november-2024-070000327.html)
+- Nov 01 - [Trump's Madison Square Garden rally had around 20,000 attendees | Fact check](https://www.yahoo.com/news/trumps-madison-square-garden-rally-033229706.html)
 <!-- feed end -->
 
 ### Onstream
