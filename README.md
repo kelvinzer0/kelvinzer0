@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Commentary: Is there really an ‘axis of evil’ set on destroying the US?](https://www.yahoo.com/news/commentary-really-axis-evil-set-080000097.html)
-- Nov 01 - [UK house price growth slows in October](https://uk.finance.yahoo.com/news/house-price-growth-slows-october-nationwide-073859971.html)
-- Nov 01 - [Your Monthly Work Horoscope for November 2024](https://www.yahoo.com/lifestyle/monthly-horoscope-november-2024-070000327.html)
-- Nov 01 - [Soldier charged with murder after Fort Leonard Wood sergeant found dead in dumpster](https://www.yahoo.com/news/soldier-charged-murder-fort-leonard-042652682.html)
 - Nov 01 - [Prison work assignments used to lure and rape female inmates. Guards sometimes walk free](https://www.yahoo.com/news/prison-assignments-used-lure-rape-030443578.html)
+- Nov 01 - [North Korea boasts of 'the world's strongest' missile, but experts say it's too big to use in war](https://www.yahoo.com/news/north-korea-boasts-long-range-002624332.html)
+- Nov 01 - [Intel CEO calls TSMC an 'awesome' company, says the company is still waiting for CHIPS Act money](https://finance.yahoo.com/news/intel-ceo-calls-tsmc-an-awesome-company-says-the-company-is-still-waiting-for-chips-act-money-001504215.html)
+- Oct 31 - [Elon Musk skips Philadelphia court hearing over $1 million voter giveaway](https://www.yahoo.com/news/elon-musk-skips-philadelphia-court-234128680.html)
+- Oct 31 - [Boeing Makes New Offer to Pay $119,000 a Year. Union Vote Set for Next Week.](https://www.barrons.com/articles/boeing-strike-vote-stock-pay-e043d283?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
