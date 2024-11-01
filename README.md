@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Commentary: Is there really an ‘axis of evil’ set on destroying the US?](https://www.yahoo.com/news/commentary-really-axis-evil-set-080000097.html)
+- Nov 01 - [UK house price growth slows in October](https://uk.finance.yahoo.com/news/house-price-growth-slows-october-nationwide-073859971.html)
+- Nov 01 - [Your Monthly Work Horoscope for November 2024](https://www.yahoo.com/lifestyle/monthly-horoscope-november-2024-070000327.html)
+- Nov 01 - [Soldier charged with murder after Fort Leonard Wood sergeant found dead in dumpster](https://www.yahoo.com/news/soldier-charged-murder-fort-leonard-042652682.html)
 - Nov 01 - [Prison work assignments used to lure and rape female inmates. Guards sometimes walk free](https://www.yahoo.com/news/prison-assignments-used-lure-rape-030443578.html)
-- Oct 31 - [Steven Seagal, 72, Is Unrecognizable in New Photos After Leaving Hollywood](https://www.yahoo.com/entertainment/steven-seagal-72-unrecognizable-photos-225611525.html)
-- Oct 31 - [Listen to Jeffrey Epstein Spill Intel on Donald Trump’s White House](https://www.yahoo.com/news/listen-jeffrey-epstein-spill-intel-220009449.html)
-- Oct 31 - [Evacuation orders lifted for fire near SDSU campus](https://www.yahoo.com/news/watch-live-fire-reported-near-212130373.html)
-- Oct 31 - [JD Vance Gets Truly Embarrassing Fact-Check From Joe Rogan on Abortion](https://www.yahoo.com/news/jd-vance-gets-truly-embarrassing-210019407.html)
 <!-- feed end -->
 
 ### Onstream
