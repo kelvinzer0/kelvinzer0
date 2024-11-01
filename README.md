@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Asia's factory activity stagnates, taking shine off rebound in China](https://finance.yahoo.com/news/asias-factory-activity-stagnates-taking-034329467.html)
+- Nov 01 - [Saying farewell to Natasha Stenbock](https://www.yahoo.com/news/saying-farewell-natasha-stenbock-004617055.html)
+- Nov 01 - [Intel CEO calls TSMC an 'awesome' company, says the company is still waiting for CHIPS Act money](https://finance.yahoo.com/news/intel-ceo-calls-tsmc-an-awesome-company-says-the-company-is-still-waiting-for-chips-act-money-001504215.html)
 - Oct 31 - [Boeing Makes New Offer to Pay $119,000 a Year. Union Vote Set for Next Week.](https://www.barrons.com/articles/boeing-strike-vote-stock-pay-e043d283?siteid=yhoof2&yptr=yahoo)
+- Oct 31 - [The Fed is 'locked' in on 25 bps cut next week: Strategist](https://finance.yahoo.com/video/fed-locked-25-bps-cut-231552830.html)
 - Oct 31 - [Steven Seagal, 72, Is Unrecognizable in New Photos After Leaving Hollywood](https://www.yahoo.com/entertainment/steven-seagal-72-unrecognizable-photos-225611525.html)
-- Oct 31 - [Boeing dismantles diversity department, Bloomberg news reports](https://finance.yahoo.com/news/boeing-dismantles-diversity-department-bloomberg-214006053.html)
-- Oct 31 - [JD Vance Gets Truly Embarrassing Fact-Check From Joe Rogan on Abortion](https://www.yahoo.com/news/jd-vance-gets-truly-embarrassing-210019407.html)
 <!-- feed end -->
 
 ### Onstream
