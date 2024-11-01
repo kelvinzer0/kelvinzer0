@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Russia criticises Turkey for supplying weapons to Ukraine while offering to broker peace](https://www.yahoo.com/news/russia-criticises-turkey-supplying-weapons-174524844.html)
-- Nov 01 - [Iran adviser hints at expansion of missile range, nuclear doctrine review after Israel strikes](https://www.yahoo.com/news/iran-adviser-hints-expansion-missile-162046655.html)
-- Nov 01 - [IRS announces pension and retirement plan contribution adjustments for 2025](https://finance.yahoo.com/news/irs-announces-pension-retirement-plan-160012046.html)
-- Nov 01 - [Animation Of NASA's ESCAPADE Launched To Mars Atop Blue Origin's New Glenn Rocket](https://www.yahoo.com/news/animation-nasas-escapade-launched-mars-150000275.html)
-- Nov 01 - [Florida House GOP member becomes 100th sponsor of Puerto Rico Status Act](https://www.yahoo.com/news/florida-house-gop-member-becomes-155059716.html)
+- Nov 01 - [Iran warns it could seek nuclear weapons in face of ‘existential threat’](https://www.yahoo.com/news/iran-warns-could-seek-nuclear-194655181.html)
+- Nov 01 - [Small cap banks, life sciences stocks look attractive, says CIO](https://finance.yahoo.com/video/small-cap-banks-life-sciences-193047658.html)
+- Nov 01 - [Free doughnuts at Krispy Kreme and more Election Day freebies](https://www.yahoo.com/lifestyle/free-doughnuts-krispy-kreme-more-192150791.html)
+- Nov 01 - [Sun Blasts Strong M9.8-Class Flare CME Earth-Directed](https://www.yahoo.com/news/sun-blasts-strong-m9-8-180000575.html)
+- Nov 01 - [These seven Jackson area restaurants failed October health inspections. See which here](https://www.yahoo.com/news/seven-jackson-area-restaurants-failed-183324067.html)
 <!-- feed end -->
 
 ### Onstream
