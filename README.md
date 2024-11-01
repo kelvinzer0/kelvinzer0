@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [No, WHO did not 'admit' COVID-19 vaccines cause mpox | Fact check](https://www.yahoo.com/news/no-did-not-admit-covid-022214687.html)
-- Nov 01 - [Intel, Samsung Results Rallies Seen Short-Lived on AI Challenges](https://finance.yahoo.com/news/intel-samsung-results-rallies-seen-020014051.html)
-- Oct 31 - [Elon Musk skips Philadelphia court hearing over $1 million voter giveaway](https://www.yahoo.com/news/elon-musk-skips-philadelphia-court-234128680.html)
+- Nov 01 - [Asia's factory activity stagnates, taking shine off rebound in China](https://finance.yahoo.com/news/asias-factory-activity-stagnates-taking-034329467.html)
 - Oct 31 - [Boeing Makes New Offer to Pay $119,000 a Year. Union Vote Set for Next Week.](https://www.barrons.com/articles/boeing-strike-vote-stock-pay-e043d283?siteid=yhoof2&yptr=yahoo)
 - Oct 31 - [Steven Seagal, 72, Is Unrecognizable in New Photos After Leaving Hollywood](https://www.yahoo.com/entertainment/steven-seagal-72-unrecognizable-photos-225611525.html)
+- Oct 31 - [Boeing dismantles diversity department, Bloomberg news reports](https://finance.yahoo.com/news/boeing-dismantles-diversity-department-bloomberg-214006053.html)
+- Oct 31 - [JD Vance Gets Truly Embarrassing Fact-Check From Joe Rogan on Abortion](https://www.yahoo.com/news/jd-vance-gets-truly-embarrassing-210019407.html)
 <!-- feed end -->
 
 ### Onstream
