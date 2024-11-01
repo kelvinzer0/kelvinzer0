@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Why this economist says the Fed should hold rates steady](https://finance.yahoo.com/video/why-economist-says-fed-hold-134539290.html)
 - Nov 01 - [E-bike rider crashes into child crossing London cycle lane](https://www.yahoo.com/news/e-bike-rider-crashes-child-124833336.html)
-- Nov 01 - [US added 12,000 jobs in October as hurricanes, strikes take toll](https://finance.yahoo.com/video/us-added-12-000-jobs-124131025.html)
-- Nov 01 - [A giant rodent threatens the Sacramento-San Joaquin Delta. It’s time for Whac-A-Mole | Opinion](https://www.yahoo.com/news/giant-rodent-threatens-sacramento-san-120000672.html)
-- Nov 01 - [Luxury European automakers are getting crushed in China](https://www.yahoo.com/news/luxury-european-automakers-getting-crushed-114915735.html)
-- Nov 01 - [Taiwan races to remove oil from grounded Chinese ship](https://www.yahoo.com/news/taiwan-races-remove-oil-grounded-085556188.html)
+- Nov 01 - [SC restaurant said HOA forced it to shut down. The neighbors have a different story](https://www.yahoo.com/news/sc-restaurant-said-hoa-forced-100000485.html)
+- Nov 01 - [Finding the young girl captured in a photograph of Gaza detainees](https://www.yahoo.com/news/finding-young-girl-captured-photograph-092503263.html)
+- Nov 01 - [2 Growth Stocks Down 36% and 97% to Buy Right Now](https://finance.yahoo.com/news/2-growth-stocks-down-36-085000172.html)
 <!-- feed end -->
 
 ### Onstream
