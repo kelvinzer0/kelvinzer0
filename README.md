@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [If The Average American Household Is A Millionaire With A Net Worth Of $1.06 Million, Why Do People Feel So Broke?](https://finance.yahoo.com/news/average-american-household-millionaire-net-193035068.html)
-- Oct 28 - [Will Take-Two Interactive (TTWO) Lead Growth with GTA VI and Other Releases?](https://finance.yahoo.com/news/two-interactive-ttwo-lead-growth-192315225.html)
-- Oct 28 - [PepsiCo to close Chicago bottling plant, impacting 150 workers](https://finance.yahoo.com/news/pepsico-close-chicago-bottling-plant-192145060.html)
-- Oct 28 - [Israeli Strikes Knocked Out All Of Iran’s S-300 Air Defense Systems: Officials](https://www.yahoo.com/news/israeli-strikes-knocked-iran-300-190220146.html)
-- Oct 28 - [Iran ‘facing a bunch of really, really bad options,’ says expert](https://www.yahoo.com/entertainment/iran-facing-bunch-really-really-174034876.html)
+- Nov 01 - [IMF warns of risks to Asia's economy as trade tensions, soft China growth bite](https://finance.yahoo.com/news/imf-warns-risks-asias-economy-013350123.html)
+- Nov 01 - [Amazon's plan to tackle Temu, Shein? Sell more toothpaste](https://finance.yahoo.com/news/amazons-plan-tackle-temu-shein-011716098.html)
+- Oct 31 - [Suspect identified in brutal Montana wilderness killing](https://www.yahoo.com/news/suspect-identified-brutal-montana-wilderness-232148519.html)
+- Oct 31 - [Steven Seagal, 72, Is Unrecognizable in New Photos After Leaving Hollywood](https://www.yahoo.com/entertainment/steven-seagal-72-unrecognizable-photos-225611525.html)
+- Oct 31 - [Boeing dismantles diversity department, Bloomberg news reports](https://finance.yahoo.com/news/boeing-dismantles-diversity-department-bloomberg-214006053.html)
 <!-- feed end -->
 
 ### Onstream
