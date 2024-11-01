@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Why this economist says the Fed should hold rates steady](https://finance.yahoo.com/video/why-economist-says-fed-hold-134539290.html)
-- Nov 01 - [E-bike rider crashes into child crossing London cycle lane](https://www.yahoo.com/news/e-bike-rider-crashes-child-124833336.html)
-- Nov 01 - [SC restaurant said HOA forced it to shut down. The neighbors have a different story](https://www.yahoo.com/news/sc-restaurant-said-hoa-forced-100000485.html)
-- Nov 01 - [Finding the young girl captured in a photograph of Gaza detainees](https://www.yahoo.com/news/finding-young-girl-captured-photograph-092503263.html)
-- Nov 01 - [2 Growth Stocks Down 36% and 97% to Buy Right Now](https://finance.yahoo.com/news/2-growth-stocks-down-36-085000172.html)
+- Nov 01 - [Exxon's profit beats forecasts as volume offsets price weakness](https://finance.yahoo.com/video/exxons-profit-beats-forecasts-volume-150300007.html)
+- Nov 01 - [Massive shoot-out involving ‘400 gang members’ roils France](https://www.yahoo.com/news/massive-shoot-involving-400-gang-142018523.html)
+- Nov 01 - [Not believed: Charged with filing false report, Polk teen captured own evidence during rape](https://www.yahoo.com/news/not-believed-charged-filing-false-133105204.html)
+- Nov 01 - [Hurricane center tracking 3 disturbances in Atlantic: Is US at risk?](https://www.yahoo.com/news/hurricane-center-tracking-3-disturbances-124616379.html)
+- Nov 01 - [Opinion - Mexico shamefully joins Russia, Venezuela in backing Cuba’s dictatorship](https://www.yahoo.com/news/opinion-mexico-shamefully-joins-russia-110000372.html)
 <!-- feed end -->
 
 ### Onstream
