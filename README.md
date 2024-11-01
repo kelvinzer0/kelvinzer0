@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [US is sending $425 million in military assistance to Ukraine](https://www.yahoo.com/news/us-sending-425-million-military-180647079.html)
-- Nov 01 - [GM sees EV and autonomous future on horizon: CEO Mary Barra](https://finance.yahoo.com/video/gm-sees-ev-autonomous-future-180000095.html)
-- Nov 01 - [Diddy grand jury witness details footage of celebrities being victimized by rapper, says report](https://www.yahoo.com/news/diddy-grand-jury-witness-details-173941482.html)
-- Nov 01 - [FBI at home of former Myrtle Beach pastor John Paul Miller. Officers searching property](https://www.yahoo.com/news/fbi-home-former-myrtle-beach-172347762.html)
-- Nov 01 - [Army specialist accused of murdering female soldier found dead on Army base](https://www.yahoo.com/news/arrest-made-alleged-murder-female-213404963.html)
+- Nov 01 - [Russia criticises Turkey for supplying weapons to Ukraine while offering to broker peace](https://www.yahoo.com/news/russia-criticises-turkey-supplying-weapons-174524844.html)
+- Nov 01 - [Iran adviser hints at expansion of missile range, nuclear doctrine review after Israel strikes](https://www.yahoo.com/news/iran-adviser-hints-expansion-missile-162046655.html)
+- Nov 01 - [IRS announces pension and retirement plan contribution adjustments for 2025](https://finance.yahoo.com/news/irs-announces-pension-retirement-plan-160012046.html)
+- Nov 01 - [Animation Of NASA's ESCAPADE Launched To Mars Atop Blue Origin's New Glenn Rocket](https://www.yahoo.com/news/animation-nasas-escapade-launched-mars-150000275.html)
+- Nov 01 - [Florida House GOP member becomes 100th sponsor of Puerto Rico Status Act](https://www.yahoo.com/news/florida-house-gop-member-becomes-155059716.html)
 <!-- feed end -->
 
 ### Onstream
