@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [NOAA 'threat' has offshore anglers circling wagons. Red snapper called a 'stalking horse'](https://www.yahoo.com/news/noaa-threat-offshore-anglers-circling-090811716.html)
+- Nov 01 - [Texas hospitals must now ask patients whether they're in the US legally. Here's how it works](https://www.yahoo.com/news/texas-hospitals-must-now-ask-051044850.html)
 - Nov 01 - [Prison work assignments used to lure and rape female inmates. Guards sometimes walk free](https://www.yahoo.com/news/prison-assignments-used-lure-rape-030443578.html)
 - Nov 01 - [North Korea boasts of 'the world's strongest' missile, but experts say it's too big to use in war](https://www.yahoo.com/news/north-korea-boasts-long-range-002624332.html)
 - Nov 01 - [Intel CEO calls TSMC an 'awesome' company, says the company is still waiting for CHIPS Act money](https://finance.yahoo.com/news/intel-ceo-calls-tsmc-an-awesome-company-says-the-company-is-still-waiting-for-chips-act-money-001504215.html)
-- Oct 31 - [Elon Musk skips Philadelphia court hearing over $1 million voter giveaway](https://www.yahoo.com/news/elon-musk-skips-philadelphia-court-234128680.html)
-- Oct 31 - [Boeing Makes New Offer to Pay $119,000 a Year. Union Vote Set for Next Week.](https://www.barrons.com/articles/boeing-strike-vote-stock-pay-e043d283?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
