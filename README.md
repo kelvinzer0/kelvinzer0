@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Saying farewell to Natasha Stenbock](https://www.yahoo.com/news/saying-farewell-natasha-stenbock-004617055.html)
+- Nov 01 - [Drone footage shows huge fire engulf factory in Indonesia](https://www.yahoo.com/news/drone-footage-shows-huge-fire-053819290.html)
+- Nov 01 - [Prison work assignments used to lure and rape female inmates. Guards sometimes walk free](https://www.yahoo.com/news/prison-assignments-used-lure-rape-030443578.html)
 - Nov 01 - [Intel CEO calls TSMC an 'awesome' company, says the company is still waiting for CHIPS Act money](https://finance.yahoo.com/news/intel-ceo-calls-tsmc-an-awesome-company-says-the-company-is-still-waiting-for-chips-act-money-001504215.html)
 - Oct 31 - [Boeing Makes New Offer to Pay $119,000 a Year. Union Vote Set for Next Week.](https://www.barrons.com/articles/boeing-strike-vote-stock-pay-e043d283?siteid=yhoof2&yptr=yahoo)
-- Oct 31 - [The Fed is 'locked' in on 25 bps cut next week: Strategist](https://finance.yahoo.com/video/fed-locked-25-bps-cut-231552830.html)
 - Oct 31 - [Steven Seagal, 72, Is Unrecognizable in New Photos After Leaving Hollywood](https://www.yahoo.com/entertainment/steven-seagal-72-unrecognizable-photos-225611525.html)
 <!-- feed end -->
 
