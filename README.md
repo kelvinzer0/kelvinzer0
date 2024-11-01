@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Nvidia to replace Intel in Dow Jones Industrial Average](https://finance.yahoo.com/news/nvidia-replace-intel-dow-jones-212628000.html)
+- Nov 01 - [YouTuber Dingo Dinkelman Dies of Snake Bite](https://www.yahoo.com/news/youtuber-dingo-dinkelman-dies-snake-214002681.html)
+- Nov 01 - [Lauren Boebert May Suddenly Be in Trouble This Election](https://www.yahoo.com/news/lauren-boebert-may-suddenly-trouble-205239799.html)
+- Nov 01 - [The Next Hurricane Might Appear in These Three Places, National Hurricane Center Says](https://www.yahoo.com/news/next-hurricane-might-appear-three-204149445.html)
 - Nov 01 - [What states are getting rid of daylight saving time? These states already don't have it](https://www.yahoo.com/news/states-getting-rid-daylight-saving-203615669.html)
 - Nov 01 - [Nicolle Wallace calls on her former boss, George W. Bush to break silence on 2024 Election](https://www.yahoo.com/news/nicolle-wallace-calls-her-former-202428654.html)
-- Nov 01 - [Clear-up in Ukraine's Kharkiv after latest Russian airstrike](https://www.yahoo.com/news/clear-ukraines-kharkiv-latest-russian-194613126.html)
-- Nov 01 - [Video shows moment dog recognizes owner after being lost for five months in the wilderness](https://www.yahoo.com/lifestyle/video-shows-moment-dog-recognizes-194555178.html)
 <!-- feed end -->
 
 ### Onstream
