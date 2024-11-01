@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Residents assess damage after flooding devastates Valencian town of Chiva](https://www.yahoo.com/news/residents-assess-damage-flooding-devastates-102511443.html)
-- Nov 01 - [Finding the young girl captured in a photograph of Gaza detainees](https://www.yahoo.com/news/finding-young-girl-captured-photograph-092503263.html)
-- Nov 01 - [‘I became very frugal’: My husband and I are 40. I have $200,000 in student debt, while he has $600,000 in retirement savings. Are we in trouble?](https://finance.yahoo.com/news/became-very-frugal-husband-40-231700524.html)
-- Nov 01 - [Your Monthly Work Horoscope for November 2024](https://www.yahoo.com/lifestyle/monthly-horoscope-november-2024-070000327.html)
-- Nov 01 - [Trump's Madison Square Garden rally had around 20,000 attendees | Fact check](https://www.yahoo.com/news/trumps-madison-square-garden-rally-033229706.html)
+- Nov 01 - [A giant rodent threatens the Sacramento-San Joaquin Delta. It’s time for Whac-A-Mole | Opinion](https://www.yahoo.com/news/giant-rodent-threatens-sacramento-san-120000672.html)
+- Nov 01 - [Stock market today: Nasdaq, S&P 500 poised for rebound amid Amazon cheer, but jobs report looms](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-sp-500-poised-for-rebound-amid-amazon-cheer-but-jobs-report-looms-115059861.html)
+- Nov 01 - [China's Xi underscores benefits of cooperation with Slovakia during Fico's visit](https://www.yahoo.com/news/chinas-xi-underscores-benefits-cooperation-114806527.html)
+- Nov 01 - [Taiwanese rescuers airlift Czech couple feared missing in typhoon](https://www.yahoo.com/news/taiwanese-rescuers-airlift-czech-couple-111946113.html)
+- Nov 01 - [Prison work assignments used to lure and rape female inmates. Guards sometimes walk free](https://www.yahoo.com/news/prison-assignments-used-lure-rape-030443578.html)
 <!-- feed end -->
 
 ### Onstream
