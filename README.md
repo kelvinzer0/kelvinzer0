@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Nate Silver: ‘Cheating’ Pollsters Are Putting ‘Finger on the Scale’](https://www.yahoo.com/news/nate-silver-cheating-pollsters-putting-163354984.html)
-- Nov 01 - [German airport tests out cashew-based asphalt in green push](https://www.yahoo.com/news/german-airport-tests-cashew-based-162107313.html)
-- Nov 01 - [IRS announces pension and retirement plan contribution adjustments for 2025](https://finance.yahoo.com/news/irs-announces-pension-retirement-plan-160012046.html)
-- Nov 01 - [Lee County sheriff's civilian warrants clerk arrested, accused of obstructing justice](https://www.yahoo.com/news/lee-county-sheriffs-civilian-warrants-154940223.html)
-- Nov 01 - [A Pregnant Teenager Died After Trying to Get Care in Three Visits to Texas Emergency Rooms](https://www.yahoo.com/news/pregnant-teenager-died-trying-care-153955021.html)
+- Nov 01 - [US is sending $425 million in military assistance to Ukraine](https://www.yahoo.com/news/us-sending-425-million-military-180647079.html)
+- Nov 01 - [GM sees EV and autonomous future on horizon: CEO Mary Barra](https://finance.yahoo.com/video/gm-sees-ev-autonomous-future-180000095.html)
+- Nov 01 - [Diddy grand jury witness details footage of celebrities being victimized by rapper, says report](https://www.yahoo.com/news/diddy-grand-jury-witness-details-173941482.html)
+- Nov 01 - [FBI at home of former Myrtle Beach pastor John Paul Miller. Officers searching property](https://www.yahoo.com/news/fbi-home-former-myrtle-beach-172347762.html)
+- Nov 01 - [Army specialist accused of murdering female soldier found dead on Army base](https://www.yahoo.com/news/arrest-made-alleged-murder-female-213404963.html)
 <!-- feed end -->
 
 ### Onstream
