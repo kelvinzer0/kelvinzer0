@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Israeli forces capture senior Hezbollah operative in north Lebanon, Israeli military official says](https://www.yahoo.com/news/lebanese-ship-captain-snatched-armed-135051231.html)
-- Nov 02 - [6 Foods You Should Be Eating For Bone Health, According to Dietitians](https://www.yahoo.com/lifestyle/6-foods-eating-bone-health-131800813.html)
-- Nov 02 - [One Super Predator in Africa Instills Even More Fear Than Lions](https://www.yahoo.com/news/one-super-predator-africa-instills-113041225.html)
-- Nov 02 - [6 popular cars you actually shouldn't buy, according to Consumer Reports — and the 6 to buy instead](https://www.yahoo.com/tech/6-popular-cars-actually-shouldnt-110000675.html)
-- Nov 02 - [Mercedes-Benz to revolutionize its vehicles with new feature: 'This could be a very big deal'](https://autos.yahoo.com/mercedes-benz-revolutionize-vehicles-feature-104544272.html)
+- Nov 02 - [Harrison Ford Endorses Harris: ‘We Need a President Who Works for Us All’](https://www.yahoo.com/news/harrison-ford-endorses-harris-president-194716877.html)
+- Nov 02 - [Florida's convicted killer clown released from prison for the murder of her husband's then-wife](https://www.yahoo.com/news/floridas-convicted-killer-clown-released-190829110.html)
+- Nov 02 - [Quantum Machines and Nvidia use machine learning to get closer to an error-corrected quantum computer](https://finance.yahoo.com/news/quantum-machines-nvidia-machine-learning-170000847.html)
+- Nov 02 - [5 Celebrities Who Endorsed Trump This Week, And 1 Celeb Who Renounced Their Trump Endorsement](https://www.yahoo.com/entertainment/5-celebrities-endorsed-trump-week-162841899.html)
+- Nov 02 - [58-Year-Old Retiree Living Off Dividends Shares His Portfolio: Top 12 Stocks, ETFs](https://finance.yahoo.com/news/58-old-retiree-living-off-150021304.html)
 <!-- feed end -->
 
 ### Onstream
