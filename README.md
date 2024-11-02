@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Should You Buy Palantir Stock Before Monday's News? 2 Critical Things Investors Need to Know.](https://finance.yahoo.com/news/buy-palantir-stock-mondays-news-095500150.html)
+- Nov 02 - [Iran's supreme leader threatens Israel and US with 'a crushing response' over Israeli attack](https://www.yahoo.com/news/irans-supreme-leader-threatens-israel-084818858.html)
 - Nov 02 - [Israel's path of destruction in southern Lebanon raises fears of an attempt to create a buffer zone](https://www.yahoo.com/news/israels-path-destruction-southern-lebanon-062637971.html)
-- Nov 02 - [16 Things Europeans Say Americans "Aren't Ready To Hear" (But They're Going To Tell You Anyway)](https://www.yahoo.com/lifestyle/europeans-sharing-hard-truths-americans-033104119.html)
-- Nov 01 - [Dodgers fan falls from building during World Series victory celebration](https://www.yahoo.com/news/dodgers-fan-seriously-hurt-fall-223459996.html)
-- Nov 01 - [Sea-Tac Airport announces checkpoint shakeup for renovations](https://www.yahoo.com/news/sea-tac-airport-announces-checkpoint-220436916.html)
+- Nov 01 - [Another US oil refinery to vanish with Lyondell Houston plant closing](https://finance.yahoo.com/news/another-us-oil-refinery-vanish-215314161.html)
 - Nov 01 - [YouTuber Dingo Dinkelman Dies of Snake Bite](https://www.yahoo.com/news/youtuber-dingo-dinkelman-dies-snake-214002681.html)
 <!-- feed end -->
 
