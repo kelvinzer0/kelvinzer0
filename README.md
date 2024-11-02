@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Harrison Ford Endorses Harris: ‘We Need a President Who Works for Us All’](https://www.yahoo.com/news/harrison-ford-endorses-harris-president-194716877.html)
+- Nov 02 - [An Unexpected Object Is Blasting Powerful Radiation in Deep Space](https://www.yahoo.com/news/unexpected-object-blasting-powerful-radiation-200145146.html)
+- Nov 02 - [Trump appears to emulate ‘sex act’ on microphone after he melts down over technical difficulties](https://www.yahoo.com/entertainment/trump-appears-emulate-sex-act-195316379.html)
+- Nov 02 - [Remains of naval aviators killed in Washington state training flight to return home](https://www.yahoo.com/news/remains-naval-aviators-killed-washington-191937010.html)
 - Nov 02 - [Florida's convicted killer clown released from prison for the murder of her husband's then-wife](https://www.yahoo.com/news/floridas-convicted-killer-clown-released-190829110.html)
-- Nov 02 - [Quantum Machines and Nvidia use machine learning to get closer to an error-corrected quantum computer](https://finance.yahoo.com/news/quantum-machines-nvidia-machine-learning-170000847.html)
-- Nov 02 - [5 Celebrities Who Endorsed Trump This Week, And 1 Celeb Who Renounced Their Trump Endorsement](https://www.yahoo.com/entertainment/5-celebrities-endorsed-trump-week-162841899.html)
-- Nov 02 - [58-Year-Old Retiree Living Off Dividends Shares His Portfolio: Top 12 Stocks, ETFs](https://finance.yahoo.com/news/58-old-retiree-living-off-150021304.html)
+- Nov 02 - [29 children may be sentenced to death for protesting against cost-of-living crisis in Nigeria](https://www.yahoo.com/news/29-children-may-sentenced-death-181156553.html)
 <!-- feed end -->
 
 ### Onstream
