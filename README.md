@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Nvidia to take Intel's spot on Dow Jones Industrial Average](https://finance.yahoo.com/news/nvidia-replace-intel-dow-jones-212628611.html)
+- Nov 02 - [Northern pike kept in check in northeast Washington](https://www.yahoo.com/news/northern-pike-kept-check-northeast-020300088.html)
+- Nov 01 - [YouTuber Dingo Dinkelman Dies of Snake Bite](https://www.yahoo.com/news/youtuber-dingo-dinkelman-dies-snake-214002681.html)
 - Nov 01 - [Lauren Boebert May Suddenly Be in Trouble This Election](https://www.yahoo.com/news/lauren-boebert-may-suddenly-trouble-205239799.html)
 - Nov 01 - [What states are getting rid of daylight saving time? These states already don't have it](https://www.yahoo.com/news/states-getting-rid-daylight-saving-203615669.html)
 - Nov 01 - [Nicolle Wallace calls on her former boss, George W. Bush to break silence on 2024 Election](https://www.yahoo.com/news/nicolle-wallace-calls-her-former-202428654.html)
-- Nov 01 - [CNN contributor takes back Cheney ‘firing squad’ quip: ‘I was wrong’](https://www.yahoo.com/news/cnn-contributor-takes-back-cheney-191309492.html)
 <!-- feed end -->
 
 ### Onstream
