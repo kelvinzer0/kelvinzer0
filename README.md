@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [She killed her ‘best friend’ after being offered $9m by a man she met online in a bizarre catfishing scheme](https://www.yahoo.com/news/she-killed-her-best-friend-143443017.html)
+- Nov 02 - [58-Year-Old Retiree Living Off Dividends Shares His Portfolio: Top 12 Stocks, ETFs](https://finance.yahoo.com/news/58-old-retiree-living-off-150021304.html)
 - Nov 02 - [Americans aged 30-40 are the ‘biggest losers’ in US society — here’s why](https://finance.yahoo.com/news/americans-aged-30-40-biggest-124100536.html)
 - Nov 02 - [6 popular cars you actually shouldn't buy, according to Consumer Reports — and the 6 to buy instead](https://www.yahoo.com/tech/6-popular-cars-actually-shouldnt-110000675.html)
 - Nov 02 - [Attack on central Israel injures 11 as Iran's leader promises a punishing response](https://www.yahoo.com/news/attack-central-israel-injures-11-105528102.html)
-- Nov 02 - [Ukraine fooled Russia with the same deceptions Germany used at WWII's Battle of the Bulge](https://www.yahoo.com/news/ukraine-fooled-russia-same-deceptions-092202921.html)
+- Nov 02 - [Tesla rolls out customizations for its much-anticipated Cybertruck: 'Expect these decisions to affect demand'](https://autos.yahoo.com/tesla-rolls-customizations-much-anticipated-104545509.html)
 <!-- feed end -->
 
 ### Onstream
