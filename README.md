@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [58-Year-Old Retiree Living Off Dividends Shares His Portfolio: Top 12 Stocks, ETFs](https://finance.yahoo.com/news/58-old-retiree-living-off-150021304.html)
-- Nov 02 - [Americans aged 30-40 are the ‘biggest losers’ in US society — here’s why](https://finance.yahoo.com/news/americans-aged-30-40-biggest-124100536.html)
+- Nov 02 - [Watch: Royal Navy shoots down drone flying at hundreds of miles an hour](https://www.yahoo.com/news/watch-royal-navy-shoots-down-155110095.html)
+- Nov 02 - [A robot retrieves the first melted fuel from Fukushima nuclear reactor](https://www.yahoo.com/news/robot-retrieves-first-melted-fuel-131409777.html)
+- Nov 02 - [One Super Predator in Africa Instills Even More Fear Than Lions](https://www.yahoo.com/news/one-super-predator-africa-instills-113041225.html)
 - Nov 02 - [6 popular cars you actually shouldn't buy, according to Consumer Reports — and the 6 to buy instead](https://www.yahoo.com/tech/6-popular-cars-actually-shouldnt-110000675.html)
 - Nov 02 - [Attack on central Israel injures 11 as Iran's leader promises a punishing response](https://www.yahoo.com/news/attack-central-israel-injures-11-105528102.html)
-- Nov 02 - [Tesla rolls out customizations for its much-anticipated Cybertruck: 'Expect these decisions to affect demand'](https://autos.yahoo.com/tesla-rolls-customizations-much-anticipated-104545509.html)
 <!-- feed end -->
 
 ### Onstream
