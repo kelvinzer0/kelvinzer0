@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Israel's path of destruction in southern Lebanon raises fears of an attempt to create a buffer zone](https://www.yahoo.com/news/israels-path-destruction-southern-lebanon-062637971.html)
 - Nov 02 - [Shark bites 61-year-old Maui surfer, completely severing his leg below the knee](https://www.yahoo.com/news/shark-bites-61-old-maui-013343244.html)
+- Nov 01 - [Dodgers fan falls from building during World Series victory celebration](https://www.yahoo.com/news/dodgers-fan-seriously-hurt-fall-223459996.html)
+- Nov 01 - [Sea-Tac Airport announces checkpoint shakeup for renovations](https://www.yahoo.com/news/sea-tac-airport-announces-checkpoint-220436916.html)
 - Nov 01 - [Another US oil refinery to vanish with Lyondell Houston plant closing](https://finance.yahoo.com/news/another-us-oil-refinery-vanish-215314161.html)
-- Nov 01 - [YouTuber Dingo Dinkelman Dies of Snake Bite](https://www.yahoo.com/news/youtuber-dingo-dinkelman-dies-snake-214002681.html)
-- Nov 01 - [What states are getting rid of daylight saving time? These states already don't have it](https://www.yahoo.com/news/states-getting-rid-daylight-saving-203615669.html)
-- Nov 01 - [Nicolle Wallace calls on her former boss, George W. Bush to break silence on 2024 Election](https://www.yahoo.com/news/nicolle-wallace-calls-her-former-202428654.html)
 <!-- feed end -->
 
 ### Onstream
