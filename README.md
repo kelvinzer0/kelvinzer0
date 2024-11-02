@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Northern pike kept in check in northeast Washington](https://www.yahoo.com/news/northern-pike-kept-check-northeast-020300088.html)
+- Nov 01 - [Dodgers fan seriously hurt in fall from building during victory celebration](https://www.yahoo.com/news/dodgers-fan-seriously-hurt-fall-223459996.html)
+- Nov 01 - [Another US oil refinery to vanish with Lyondell Houston plant closing](https://finance.yahoo.com/news/another-us-oil-refinery-vanish-215314161.html)
 - Nov 01 - [YouTuber Dingo Dinkelman Dies of Snake Bite](https://www.yahoo.com/news/youtuber-dingo-dinkelman-dies-snake-214002681.html)
+- Nov 01 - [Wailuku surfer’s leg ‘completely severed’ in shark attack](https://www.yahoo.com/news/61-old-wailuku-surfer-injured-205736019.html)
 - Nov 01 - [Lauren Boebert May Suddenly Be in Trouble This Election](https://www.yahoo.com/news/lauren-boebert-may-suddenly-trouble-205239799.html)
-- Nov 01 - [What states are getting rid of daylight saving time? These states already don't have it](https://www.yahoo.com/news/states-getting-rid-daylight-saving-203615669.html)
-- Nov 01 - [Nicolle Wallace calls on her former boss, George W. Bush to break silence on 2024 Election](https://www.yahoo.com/news/nicolle-wallace-calls-her-former-202428654.html)
 <!-- feed end -->
 
 ### Onstream
