@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Watch: Royal Navy shoots down drone flying at hundreds of miles an hour](https://www.yahoo.com/news/watch-royal-navy-shoots-down-155110095.html)
-- Nov 02 - [A robot retrieves the first melted fuel from Fukushima nuclear reactor](https://www.yahoo.com/news/robot-retrieves-first-melted-fuel-131409777.html)
-- Nov 02 - [One Super Predator in Africa Instills Even More Fear Than Lions](https://www.yahoo.com/news/one-super-predator-africa-instills-113041225.html)
-- Nov 02 - [6 popular cars you actually shouldn't buy, according to Consumer Reports — and the 6 to buy instead](https://www.yahoo.com/tech/6-popular-cars-actually-shouldnt-110000675.html)
-- Nov 02 - [Attack on central Israel injures 11 as Iran's leader promises a punishing response](https://www.yahoo.com/news/attack-central-israel-injures-11-105528102.html)
+- Nov 02 - [5 Celebrities Who Endorsed Trump This Week, And 1 Celeb Who Renounced Their Trump Endorsement](https://www.yahoo.com/entertainment/5-celebrities-endorsed-trump-week-162841899.html)
+- Nov 02 - [Israeli forces capture senior Hezbollah operative in north Lebanon, Israeli military official says](https://www.yahoo.com/news/lebanese-ship-captain-snatched-armed-135051231.html)
+- Nov 02 - [6 Foods You Should Be Eating For Bone Health, According to Dietitians](https://www.yahoo.com/lifestyle/6-foods-eating-bone-health-131800813.html)
+- Nov 02 - [Americans aged 30-40 are the ‘biggest losers’ in US society — here’s why](https://finance.yahoo.com/news/americans-aged-30-40-biggest-124100536.html)
+- Nov 02 - [Does anyone like driving over the Cuesta Grade? At least it’s no longer ‘too steep’ for cars](https://www.yahoo.com/lifestyle/does-anyone-driving-over-cuesta-120000553.html)
 <!-- feed end -->
 
 ### Onstream
