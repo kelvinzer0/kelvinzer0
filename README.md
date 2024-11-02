@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [An Unexpected Object Is Blasting Powerful Radiation in Deep Space](https://www.yahoo.com/news/unexpected-object-blasting-powerful-radiation-200145146.html)
+- Nov 02 - [Boy charged after girl found with stab injuries](https://www.yahoo.com/news/boy-charged-girl-found-stab-214557624.html)
+- Nov 02 - [The US is pumping more oil than ever, and it's complicating things for other crude-exporting countries](https://finance.yahoo.com/news/us-pumping-more-oil-ever-203001030.html)
 - Nov 02 - [Trump appears to emulate ‘sex act’ on microphone after he melts down over technical difficulties](https://www.yahoo.com/entertainment/trump-appears-emulate-sex-act-195316379.html)
 - Nov 02 - [Remains of naval aviators killed in Washington state training flight to return home](https://www.yahoo.com/news/remains-naval-aviators-killed-washington-191937010.html)
 - Nov 02 - [Florida's convicted killer clown released from prison for the murder of her husband's then-wife](https://www.yahoo.com/news/floridas-convicted-killer-clown-released-190829110.html)
-- Nov 02 - [29 children may be sentenced to death for protesting against cost-of-living crisis in Nigeria](https://www.yahoo.com/news/29-children-may-sentenced-death-181156553.html)
 <!-- feed end -->
 
 ### Onstream
