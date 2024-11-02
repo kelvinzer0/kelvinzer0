@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Man expecting to be tied up and have sex with young woman attacked with hatchet instead](https://www.yahoo.com/news/man-expecting-tied-sex-young-100421980.html)
+- Nov 02 - [This SC city among best, most affordable places in South to retire, Southern Livings says](https://www.yahoo.com/lifestyle/sc-city-among-best-most-100000283.html)
+- Nov 02 - [Ukraine fooled Russia with the same deceptions Germany used at WWII's Battle of the Bulge](https://www.yahoo.com/news/ukraine-fooled-russia-same-deceptions-092202921.html)
 - Nov 02 - [Iran's supreme leader threatens Israel and US with 'a crushing response' over Israeli attack](https://www.yahoo.com/news/irans-supreme-leader-threatens-israel-084818858.html)
 - Nov 02 - [Israel's path of destruction in southern Lebanon raises fears of an attempt to create a buffer zone](https://www.yahoo.com/news/israels-path-destruction-southern-lebanon-062637971.html)
-- Nov 02 - [Trump Fumes Over Mic Issues At Wisconsin Rally: Want Me To 'Knock The Hell Out' Of Someone?](https://www.yahoo.com/news/trump-seethes-over-mic-issues-042805721.html)
-- Nov 02 - [Police assisting US Marshals for a scene at Round Rock McDonald’s](https://www.yahoo.com/news/police-assisting-us-marshals-scene-023809040.html)
-- Nov 01 - [YouTuber Dingo Dinkelman Dies of Snake Bite](https://www.yahoo.com/news/youtuber-dingo-dinkelman-dies-snake-214002681.html)
 <!-- feed end -->
 
 ### Onstream
