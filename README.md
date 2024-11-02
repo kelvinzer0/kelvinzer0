@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Man expecting to be tied up and have sex with young woman attacked with hatchet instead](https://www.yahoo.com/news/man-expecting-tied-sex-young-100421980.html)
+- Nov 02 - [Suze Orman: The Biggest Mistake I Have Made With My Money](https://finance.yahoo.com/news/suze-orman-biggest-mistake-made-120020069.html)
+- Nov 02 - [Opinion: Reality check: Struggling Americans are not thinking about Ukraine and China](https://www.yahoo.com/news/opinion-reality-check-struggling-americans-110310074.html)
+- Nov 02 - [‘The price is hard to swallow’: Robert Kiyosaki cringes as he pays $14 for an egg salad sandwich, warns of ‘everything bubble’ and ‘major stock market crash.’ What he likes for protection](https://finance.yahoo.com/news/price-hard-swallow-robert-kiyosaki-101100878.html)
 - Nov 02 - [This SC city among best, most affordable places in South to retire, Southern Livings says](https://www.yahoo.com/lifestyle/sc-city-among-best-most-100000283.html)
 - Nov 02 - [Ukraine fooled Russia with the same deceptions Germany used at WWII's Battle of the Bulge](https://www.yahoo.com/news/ukraine-fooled-russia-same-deceptions-092202921.html)
-- Nov 02 - [Iran's supreme leader threatens Israel and US with 'a crushing response' over Israeli attack](https://www.yahoo.com/news/irans-supreme-leader-threatens-israel-084818858.html)
-- Nov 02 - [Israel's path of destruction in southern Lebanon raises fears of an attempt to create a buffer zone](https://www.yahoo.com/news/israels-path-destruction-southern-lebanon-062637971.html)
 <!-- feed end -->
 
 ### Onstream
