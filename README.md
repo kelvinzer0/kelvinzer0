@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Shark bites 61-year-old Maui surfer, completely severing his leg below the knee](https://www.yahoo.com/news/shark-bites-61-old-maui-013343244.html)
 - Nov 01 - [Another US oil refinery to vanish with Lyondell Houston plant closing](https://finance.yahoo.com/news/another-us-oil-refinery-vanish-215314161.html)
-- Nov 01 - [Lauren Boebert May Suddenly Be in Trouble This Election](https://www.yahoo.com/news/lauren-boebert-may-suddenly-trouble-205239799.html)
+- Nov 01 - [YouTuber Dingo Dinkelman Dies of Snake Bite](https://www.yahoo.com/news/youtuber-dingo-dinkelman-dies-snake-214002681.html)
+- Nov 01 - [Maui surfer’s leg ‘completely severed’ in shark attack](https://www.yahoo.com/news/61-old-wailuku-surfer-injured-205736019.html)
 - Nov 01 - [What states are getting rid of daylight saving time? These states already don't have it](https://www.yahoo.com/news/states-getting-rid-daylight-saving-203615669.html)
-- Nov 01 - [Nicolle Wallace calls on her former boss, George W. Bush to break silence on 2024 Election](https://www.yahoo.com/news/nicolle-wallace-calls-her-former-202428654.html)
-- Nov 01 - [Video shows moment dog recognizes owner after being lost for five months in the wilderness](https://www.yahoo.com/lifestyle/video-shows-moment-dog-recognizes-194555178.html)
 <!-- feed end -->
 
 ### Onstream
