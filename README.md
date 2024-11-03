@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [The Middle Class Says These Are Their Greatest Retirement Fears](https://finance.yahoo.com/news/middle-class-says-greatest-retirement-120031463.html)
+- Nov 03 - [National Hurricane Center forecasts possible tropical storm development from Invest 97L](https://www.yahoo.com/news/national-hurricane-center-forecasts-possible-122738083.html)
+- Nov 03 - [People Are Sharing Signs That Show Someone Has "Very Low Intelligence"](https://www.yahoo.com/entertainment/people-sharing-signs-show-someone-115403020.html)
 - Nov 03 - [Iran student strips in protest over strict hijab dress code](https://www.yahoo.com/news/iran-student-strips-protest-over-110747939.html)
 - Nov 03 - [American retirees are sabotaging their golden years with 7 disastrous money moves — how many have you fallen for?](https://finance.yahoo.com/news/american-retirees-sabotaging-golden-years-110200266.html)
 - Nov 03 - [After their son came out, this conservative Christian couple went into a closet of their own](https://www.yahoo.com/lifestyle/son-came-conservative-christian-couple-110049694.html)
-- Nov 03 - [US flies long-range bomber in drill with South Korea, Japan in reaction to the North's missile test](https://www.yahoo.com/news/us-flies-long-range-bomber-043816011.html)
 <!-- feed end -->
 
 ### Onstream
