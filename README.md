@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Off-duty police officer arrested after man hit by car while crossing road](https://www.yahoo.com/news/off-duty-police-officer-arrested-212227144.html)
-- Nov 03 - [‘I know it’s awkward to give advice to wealthy people’: My wife, 50, has terminal cancer. Our estate is worth $18 million. How do we prepare?](https://finance.yahoo.com/news/know-awkward-advice-wealthy-people-225100557.html)
 - Nov 03 - [Trump talks about reporters being shot and says he shouldn't have left White House after 2020 loss](https://www.yahoo.com/news/harris-goes-church-while-trump-184546303.html)
-- Nov 03 - [Israeli authorities probe suspected Gaza intelligence leak by Netanyahu aide](https://www.yahoo.com/news/israeli-authorities-probe-suspected-gaza-173300179.html)
-- Nov 03 - [Overnight fire in Buffalo causes estimated $1.5M in damage](https://www.yahoo.com/news/overnight-fire-buffalo-causes-estimated-165124099.html)
+- Nov 03 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Nov 03 - [After their son came out, this conservative Christian couple went into a closet of their own](https://www.yahoo.com/lifestyle/son-came-conservative-christian-couple-110049694.html)
+- Nov 03 - [Tense scenes as locals throw mud towards Spain's King Felipe as he visits flood-ravaged Paiporta](https://www.yahoo.com/news/tense-scenes-locals-throw-mud-165947513.html)
+- Nov 03 - [NBA reopens investigation into Jaxson Hayes after video surfaces of him and ex-girlfriend in 2021](https://sports.yahoo.com/nba-reopens-investigation-into-jaxson-hayes-after-video-surfaces-of-him-and-ex-girlfriend-in-2021-162455664.html)
 <!-- feed end -->
 
 ### Onstream
