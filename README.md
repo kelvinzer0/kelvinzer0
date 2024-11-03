@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Shein touted as model unicorn in China's 'new quality productive force' push, IPO unclear](https://finance.yahoo.com/news/shein-touted-model-unicorn-chinas-093000329.html)
-- Nov 03 - [Recap: Tornado outbreak strikes Oklahoma after midnight](https://www.yahoo.com/news/live-tornado-outbreak-strikes-oklahoma-083137177.html)
-- Nov 02 - [Feral Ginger Cat Guides Rescuers to Hidden Kitty Colony in Urgent Need of Help](https://www.yahoo.com/lifestyle/feral-ginger-cat-guides-rescuers-230500409.html)
+- Nov 03 - [3 Ultra-High-Yield Dividend Stocks to Buy in November and Hold Forever](https://finance.yahoo.com/news/3-ultra-high-yield-dividend-101100435.html)
+- Nov 03 - [US flies long-range bomber in drill with South Korea, Japan in reaction to the North's missile test](https://www.yahoo.com/news/us-flies-long-range-bomber-043816011.html)
+- Nov 03 - [Ukraine 'holding back' powerful Russian offensive, Kyiv top commander says](https://www.yahoo.com/news/ukraine-holding-back-powerful-russian-020429520.html)
+- Nov 02 - [Speaker Mike Johnson walks back comments that GOP would ‘probably’ try to repeal CHIPS Act](https://www.yahoo.com/news/speaker-mike-johnson-walks-back-031230933.html)
 - Nov 02 - [The US is pumping more oil than ever, and it's complicating things for other crude-exporting countries](https://finance.yahoo.com/news/us-pumping-more-oil-ever-203001030.html)
-- Nov 02 - [IDF discovers Hamas underground weapons manufacturing facility in central Gaza](https://www.yahoo.com/news/idf-discovers-hamas-underground-weapons-195313920.html)
 <!-- feed end -->
 
 ### Onstream
