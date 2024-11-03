@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 03 - [Off-duty police officer arrested after man hit by car while crossing road](https://www.yahoo.com/news/off-duty-police-officer-arrested-212227144.html)
+- Nov 03 - [‘I know it’s awkward to give advice to wealthy people’: My wife, 50, has terminal cancer. Our estate is worth $18 million. How do we prepare?](https://finance.yahoo.com/news/know-awkward-advice-wealthy-people-225100557.html)
 - Nov 03 - [Trump talks about reporters being shot and says he shouldn't have left White House after 2020 loss](https://www.yahoo.com/news/harris-goes-church-while-trump-184546303.html)
-- Nov 03 - [Pope Francis calls for a stop to wars, prays for Spain flood victims](https://www.yahoo.com/news/pope-francis-calls-stop-wars-182430805.html)
-- Nov 03 - [Rattled Trump Rages After Shock Iowa Poll Favors Harris: ‘Trump Hater’](https://www.yahoo.com/news/rattled-trump-rages-shock-iowa-180921405.html)
-- Nov 03 - [Bill Clinton Defends George W. Bush’s 2024 Silence](https://www.yahoo.com/news/bill-clinton-defends-george-w-160926675.html)
-- Nov 03 - [Iran’s help has transformed Yemen's Houthi rebels into a potent military force, UN experts say](https://www.yahoo.com/news/iran-help-transformed-yemens-houthi-153629191.html)
+- Nov 03 - [Israeli authorities probe suspected Gaza intelligence leak by Netanyahu aide](https://www.yahoo.com/news/israeli-authorities-probe-suspected-gaza-173300179.html)
+- Nov 03 - [Overnight fire in Buffalo causes estimated $1.5M in damage](https://www.yahoo.com/news/overnight-fire-buffalo-causes-estimated-165124099.html)
 <!-- feed end -->
 
 ### Onstream
