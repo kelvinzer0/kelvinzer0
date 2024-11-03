@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 03 - [A truck crashes in Ecuador's Amazon killing 10 people](https://www.yahoo.com/news/truck-crashes-ecuadors-amazon-killing-163936714.html)
+- Nov 03 - [NBA reopens investigation into Jaxson Hayes after video surfaces of him and ex-girlfriend in 2021](https://sports.yahoo.com/nba-reopens-investigation-into-jaxson-hayes-after-video-surfaces-of-him-and-ex-girlfriend-in-2021-162455664.html)
 - Nov 03 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-150653675.html)
-- Nov 03 - [The Classic Cola Brand That Just Tastes Like Sugar Water](https://www.yahoo.com/lifestyle/classic-cola-brand-just-tastes-144551550.html)
 - Nov 03 - [Mexico City’s floating gardens have fed people for hundreds of years. Now they’re threatened](https://www.yahoo.com/news/mexico-city-floating-gardens-fed-143609635.html)
-- Nov 03 - [Ukrainian intelligence details the equipment it says Moscow is arming North Korean troops with, from 'Dragunov' sniper rifles to thermal imagers](https://www.yahoo.com/news/ukrainian-intelligence-details-equipment-says-134705093.html)
-- Nov 03 - [‘I just want to leave’: Floridians selling flood-damaged homes ‘as is’ to investors after 2 major hurricanes](https://finance.yahoo.com/news/just-want-leave-floridians-selling-125800150.html)
+- Nov 03 - [FCC commissioner claims Harris on ‘SNL’ violates ‘equal time’ rule](https://www.yahoo.com/news/fcc-commissioner-claims-harris-snl-135117262.html)
 <!-- feed end -->
 
 ### Onstream
