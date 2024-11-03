@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Where Will Coinbase Be in a Year?](https://finance.yahoo.com/news/where-coinbase-191300680.html)
 - Nov 03 - [Trump talks about reporters being shot and says he shouldn't have left White House after 2020 loss](https://www.yahoo.com/news/harris-goes-church-while-trump-184546303.html)
+- Nov 03 - [Pope Francis calls for a stop to wars, prays for Spain flood victims](https://www.yahoo.com/news/pope-francis-calls-stop-wars-182430805.html)
 - Nov 03 - [Rattled Trump Rages After Shock Iowa Poll Favors Harris: ‘Trump Hater’](https://www.yahoo.com/news/rattled-trump-rages-shock-iowa-180921405.html)
-- Nov 03 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
-- Nov 03 - [Tense scenes as locals throw mud towards Spain's King Felipe as he visits flood-ravaged Paiporta](https://www.yahoo.com/news/tense-scenes-locals-throw-mud-165947513.html)
+- Nov 03 - [Bill Clinton Defends George W. Bush’s 2024 Silence](https://www.yahoo.com/news/bill-clinton-defends-george-w-160926675.html)
+- Nov 03 - [Iran’s help has transformed Yemen's Houthi rebels into a potent military force, UN experts say](https://www.yahoo.com/news/iran-help-transformed-yemens-houthi-153629191.html)
 <!-- feed end -->
 
 ### Onstream
