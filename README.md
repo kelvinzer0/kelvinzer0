@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [3 Ultra-High-Yield Dividend Stocks to Buy in November and Hold Forever](https://finance.yahoo.com/news/3-ultra-high-yield-dividend-101100435.html)
+- Nov 03 - [The Middle Class Says These Are Their Greatest Retirement Fears](https://finance.yahoo.com/news/middle-class-says-greatest-retirement-120031463.html)
+- Nov 03 - [Iran student strips in protest over strict hijab dress code](https://www.yahoo.com/news/iran-student-strips-protest-over-110747939.html)
+- Nov 03 - [American retirees are sabotaging their golden years with 7 disastrous money moves — how many have you fallen for?](https://finance.yahoo.com/news/american-retirees-sabotaging-golden-years-110200266.html)
+- Nov 03 - [After their son came out, this conservative Christian couple went into a closet of their own](https://www.yahoo.com/lifestyle/son-came-conservative-christian-couple-110049694.html)
 - Nov 03 - [US flies long-range bomber in drill with South Korea, Japan in reaction to the North's missile test](https://www.yahoo.com/news/us-flies-long-range-bomber-043816011.html)
-- Nov 03 - [Ukraine 'holding back' powerful Russian offensive, Kyiv top commander says](https://www.yahoo.com/news/ukraine-holding-back-powerful-russian-020429520.html)
-- Nov 02 - [Speaker Mike Johnson walks back comments that GOP would ‘probably’ try to repeal CHIPS Act](https://www.yahoo.com/news/speaker-mike-johnson-walks-back-031230933.html)
-- Nov 02 - [The US is pumping more oil than ever, and it's complicating things for other crude-exporting countries](https://finance.yahoo.com/news/us-pumping-more-oil-ever-203001030.html)
 <!-- feed end -->
 
 ### Onstream
