@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 03 - [Family pleaded to have assault rifle seized before deadly school shooting. Officers had few options](https://www.yahoo.com/news/family-pleaded-assault-rifle-seized-041823840.html)
 - Nov 03 - [New York Times Editorial Board Rips Apart Donald Trump in Single Paragraph](https://www.yahoo.com/news/york-times-editorial-board-rips-001047866.html)
-- Nov 02 - [Feral Ginger Cat Guides Rescuers to Hidden Kitty Colony in Urgent Need of Help](https://www.yahoo.com/lifestyle/feral-ginger-cat-guides-rescuers-230500409.html)
 - Nov 02 - [The US is pumping more oil than ever, and it's complicating things for other crude-exporting countries](https://finance.yahoo.com/news/us-pumping-more-oil-ever-203001030.html)
 - Nov 02 - [IDF discovers Hamas underground weapons manufacturing facility in central Gaza](https://www.yahoo.com/news/idf-discovers-hamas-underground-weapons-195313920.html)
+- Nov 02 - [Remains of naval aviators killed in Washington state training flight to return home](https://www.yahoo.com/news/remains-naval-aviators-killed-washington-191937010.html)
 <!-- feed end -->
 
 ### Onstream
