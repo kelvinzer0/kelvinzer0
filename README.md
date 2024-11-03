@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [A truck crashes in Ecuador's Amazon killing 10 people](https://www.yahoo.com/news/truck-crashes-ecuadors-amazon-killing-163936714.html)
 - Nov 03 - [NBA reopens investigation into Jaxson Hayes after video surfaces of him and ex-girlfriend in 2021](https://sports.yahoo.com/nba-reopens-investigation-into-jaxson-hayes-after-video-surfaces-of-him-and-ex-girlfriend-in-2021-162455664.html)
+- Nov 03 - [Iran’s help has transformed Yemen's Houthi rebels into a potent military force, UN experts say](https://www.yahoo.com/news/iran-help-transformed-yemens-houthi-153629191.html)
 - Nov 03 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-150653675.html)
 - Nov 03 - [Mexico City’s floating gardens have fed people for hundreds of years. Now they’re threatened](https://www.yahoo.com/news/mexico-city-floating-gardens-fed-143609635.html)
 - Nov 03 - [FCC commissioner claims Harris on ‘SNL’ violates ‘equal time’ rule](https://www.yahoo.com/news/fcc-commissioner-claims-harris-snl-135117262.html)
