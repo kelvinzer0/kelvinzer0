@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Kamala Harris Mocks Donald Trump on ‘SNL’ Appearance, Urges Americans to ‘Keep Kamala and Carry On-A-La’](https://www.yahoo.com/entertainment/kamala-harris-mocks-donald-trump-034528530.html)
-- Nov 03 - [BREAKING NEWS: Altercations at the Florida-Georgia game](https://www.yahoo.com/news/breaking-news-altercations-florida-georgia-012754209.html)
+- Nov 03 - [Family pleaded to have assault rifle seized before deadly school shooting. Officers had few options](https://www.yahoo.com/news/family-pleaded-assault-rifle-seized-041823840.html)
+- Nov 03 - [New York Times Editorial Board Rips Apart Donald Trump in Single Paragraph](https://www.yahoo.com/news/york-times-editorial-board-rips-001047866.html)
 - Nov 02 - [The US is pumping more oil than ever, and it's complicating things for other crude-exporting countries](https://finance.yahoo.com/news/us-pumping-more-oil-ever-203001030.html)
 - Nov 02 - [IDF discovers Hamas underground weapons manufacturing facility in central Gaza](https://www.yahoo.com/news/idf-discovers-hamas-underground-weapons-195313920.html)
-- Nov 02 - [Florida's convicted killer clown released from prison for the murder of her husband's then-wife](https://www.yahoo.com/news/floridas-convicted-killer-clown-released-190829110.html)
+- Nov 02 - [Missing fire police captain found dead in Susquehanna River; Lancaster Co. Coroner](https://www.yahoo.com/news/missing-fire-police-captain-found-180338850.html)
 <!-- feed end -->
 
 ### Onstream
