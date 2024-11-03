@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 03 - [Why do people still back Trump, after everything? 5 things to understand about MAGA supporters’ thinking](https://www.yahoo.com/news/why-people-still-back-trump-150653675.html)
+- Nov 03 - [The Classic Cola Brand That Just Tastes Like Sugar Water](https://www.yahoo.com/lifestyle/classic-cola-brand-just-tastes-144551550.html)
 - Nov 03 - [Mexico City’s floating gardens have fed people for hundreds of years. Now they’re threatened](https://www.yahoo.com/news/mexico-city-floating-gardens-fed-143609635.html)
+- Nov 03 - [Ukrainian intelligence details the equipment it says Moscow is arming North Korean troops with, from 'Dragunov' sniper rifles to thermal imagers](https://www.yahoo.com/news/ukrainian-intelligence-details-equipment-says-134705093.html)
 - Nov 03 - [‘I just want to leave’: Floridians selling flood-damaged homes ‘as is’ to investors after 2 major hurricanes](https://finance.yahoo.com/news/just-want-leave-floridians-selling-125800150.html)
-- Nov 03 - [Iran student strips in protest over strict hijab dress code](https://www.yahoo.com/news/iran-student-strips-protest-over-110747939.html)
-- Nov 03 - [American retirees are sabotaging their golden years with 7 disastrous money moves — how many have you fallen for?](https://finance.yahoo.com/news/american-retirees-sabotaging-golden-years-110200266.html)
-- Nov 03 - [Scientists uncover 'saltshaker' breakthrough in quest for limitless energy — here's how it could transform the future](https://www.yahoo.com/tech/scientists-uncover-saltshaker-breakthrough-quest-101506097.html)
 <!-- feed end -->
 
 ### Onstream
