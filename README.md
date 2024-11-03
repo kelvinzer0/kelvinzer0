@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [The US is pumping more oil than ever, and it's complicating things for other crude-exporting countries](https://finance.yahoo.com/news/us-pumping-more-oil-ever-203001030.html)
 - Nov 02 - [Trump appears to emulate ‘sex act’ on microphone after he melts down over technical difficulties](https://www.yahoo.com/entertainment/trump-appears-emulate-sex-act-195316379.html)
 - Nov 02 - [IDF discovers Hamas underground weapons manufacturing facility in central Gaza](https://www.yahoo.com/news/idf-discovers-hamas-underground-weapons-195313920.html)
 - Nov 02 - [Remains of naval aviators killed in Washington state training flight to return home](https://www.yahoo.com/news/remains-naval-aviators-killed-washington-191937010.html)
-- Nov 02 - [Bison fight showcases 'strength and resilience’ of iconic critters](https://www.yahoo.com/lifestyle/bison-fight-showcases-strength-resilience-190923434.html)
 - Nov 02 - [Florida's convicted killer clown released from prison for the murder of her husband's then-wife](https://www.yahoo.com/news/floridas-convicted-killer-clown-released-190829110.html)
 <!-- feed end -->
 
