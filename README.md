@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Harris goes to church while Trump muses about reporters being shot](https://www.yahoo.com/news/harris-goes-church-while-trump-184546303.html)
-- Nov 03 - [Trump Boasts ‘Every Rally Is Full’ as Camera Immediately Pans to Empty Seats, People Leaving](https://www.yahoo.com/news/trump-boasts-every-rally-full-164805029.html)
-- Nov 03 - [NBA reopens investigation into Jaxson Hayes after video surfaces of him and ex-girlfriend in 2021](https://sports.yahoo.com/nba-reopens-investigation-into-jaxson-hayes-after-video-surfaces-of-him-and-ex-girlfriend-in-2021-162455664.html)
-- Nov 03 - [Iran’s help has transformed Yemen's Houthi rebels into a potent military force, UN experts say](https://www.yahoo.com/news/iran-help-transformed-yemens-houthi-153629191.html)
-- Nov 03 - [Mexico City’s floating gardens have fed people for hundreds of years. Now they’re threatened](https://www.yahoo.com/news/mexico-city-floating-gardens-fed-143609635.html)
+- Nov 03 - [Where Will Coinbase Be in a Year?](https://finance.yahoo.com/news/where-coinbase-191300680.html)
+- Nov 03 - [Trump talks about reporters being shot and says he shouldn't have left White House after 2020 loss](https://www.yahoo.com/news/harris-goes-church-while-trump-184546303.html)
+- Nov 03 - [Rattled Trump Rages After Shock Iowa Poll Favors Harris: ‘Trump Hater’](https://www.yahoo.com/news/rattled-trump-rages-shock-iowa-180921405.html)
+- Nov 03 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Nov 03 - [Tense scenes as locals throw mud towards Spain's King Felipe as he visits flood-ravaged Paiporta](https://www.yahoo.com/news/tense-scenes-locals-throw-mud-165947513.html)
 <!-- feed end -->
 
 ### Onstream
