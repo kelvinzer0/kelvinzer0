@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Trump appears to emulate ‘sex act’ on microphone after he melts down over technical difficulties](https://www.yahoo.com/entertainment/trump-appears-emulate-sex-act-195316379.html)
-- Nov 03 - [Ukraine 'holding back' powerful Russian offensive, Kyiv top commander says](https://www.yahoo.com/news/ukraine-holding-back-powerful-russian-020429520.html)
-- Nov 03 - [New York Times Editorial Board Rips Apart Donald Trump in Single Paragraph](https://www.yahoo.com/news/york-times-editorial-board-rips-001047866.html)
-- Nov 02 - [Feral Ginger Cat Guides Rescuers to Hidden Kitty Colony in Urgent Need of Help](https://www.yahoo.com/lifestyle/feral-ginger-cat-guides-rescuers-230500409.html)
+- Nov 03 - [Kamala Harris Mocks Donald Trump on ‘SNL’ Appearance, Urges Americans to ‘Keep Kamala and Carry On-A-La’](https://www.yahoo.com/entertainment/kamala-harris-mocks-donald-trump-034528530.html)
+- Nov 03 - [BREAKING NEWS: Altercations at the Florida-Georgia game](https://www.yahoo.com/news/breaking-news-altercations-florida-georgia-012754209.html)
 - Nov 02 - [The US is pumping more oil than ever, and it's complicating things for other crude-exporting countries](https://finance.yahoo.com/news/us-pumping-more-oil-ever-203001030.html)
+- Nov 02 - [IDF discovers Hamas underground weapons manufacturing facility in central Gaza](https://www.yahoo.com/news/idf-discovers-hamas-underground-weapons-195313920.html)
+- Nov 02 - [Florida's convicted killer clown released from prison for the murder of her husband's then-wife](https://www.yahoo.com/news/floridas-convicted-killer-clown-released-190829110.html)
 <!-- feed end -->
 
 ### Onstream
