@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [These Are The Five Best Stocks To Buy And Watch Now](https://www.investors.com/research/best-stocks-to-buy-now/?src=A00220&yptr=yahoo)
+- Nov 04 - [‘Cold drop’ and flood defences: What caused the devastating flash flooding in Spain?](https://www.yahoo.com/news/cold-drop-flood-defences-caused-131320296.html)
+- Nov 04 - [Exclusive-Ambani's Reliance Jio IPO set for 2025, retail debut much later, sources say](https://finance.yahoo.com/news/exclusive-ambanis-reliance-jio-ipo-092118502.html)
 - Nov 04 - [Putin said Russia wouldn't have to choose between guns or butter. The price of butter is soaring.](https://www.yahoo.com/news/putin-said-russia-wouldnt-choose-073656801.html)
+- Nov 04 - [Pete Buttigieg Hits Fox News Host's 'Fascist' Trump Question With Blistering Fact Check](https://www.yahoo.com/news/pete-buttigieg-hits-fox-news-064641172.html)
 - Nov 04 - [France is holding a trial over the beheading of a teacher who showed prophet cartoons to his class](https://www.yahoo.com/news/france-holding-trial-over-beheading-050731381.html)
-- Nov 04 - [Japanese nuclear reactor that restarted 13 years after Fukushima disaster is shut down again](https://www.yahoo.com/news/japanese-nuclear-reactor-restarted-13-043305265.html)
-- Nov 04 - [Nvidia's Huang asked SK Hynix to bring forward supply of HBM4 chips by 6 months, SK's chairman says](https://www.yahoo.com/tech/nvidias-huang-asked-sk-hynix-020622729.html)
 <!-- feed end -->
 
 ### Onstream
