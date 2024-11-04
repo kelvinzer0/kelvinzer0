@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Meta details 'adult classifier' tool for catching teens who lie about their age on Instagram](https://www.yahoo.com/tech/meta-details-adult-classifier-tool-for-catching-teens-who-lie-about-their-age-on-instagram-164439051.html)
-- Nov 04 - [A Cameraman's Extremely Shady Video Showing Donald Trump's Actual Crowd Size Is Going Viral](https://www.yahoo.com/entertainment/cameramans-extremely-shady-video-showing-163427803.html)
-- Nov 04 - [Peloton Gains as Bank of America Turns Bullish on Profit Outlook, New CEO](https://finance.yahoo.com/news/peloton-gains-bank-america-turns-161450284.html)
+- Nov 04 - [Mountain lion seems to be ‘seeing stars’ after dog owner kicks it](https://www.yahoo.com/news/mountain-lion-seems-seeing-stars-170115619.html)
+- Nov 04 - [‘It’s just like the wolf leading the lamb to the slaughter’: The chilling murder of an Alaskan teenager by her so-called ‘best friend’](https://www.yahoo.com/news/she-killed-her-best-friend-143443017.html)
+- Nov 04 - [A Cameraman's Sneaky Footage Showing Donald Trump's Actual Crowd Size Is Going Viral](https://www.yahoo.com/entertainment/cameramans-extremely-shady-video-showing-163427803.html)
+- Nov 04 - [School bus with students onboard hit by gunfire in Irondequoit. What we know now](https://www.yahoo.com/news/school-bus-students-onboard-hit-162537819.html)
 - Nov 04 - [Kidnapped, trafficked and incarcerated: The unsettling death of a Rohingya child in India](https://www.yahoo.com/news/kidnapped-trafficked-incarcerated-unsettling-death-161344049.html)
-- Nov 04 - [Europe Is Levying Against Chinese EVs—See How Hight](https://autos.yahoo.com/europe-levying-against-chinese-evs-155500205.html)
 <!-- feed end -->
 
 ### Onstream
