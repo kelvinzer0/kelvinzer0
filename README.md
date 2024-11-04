@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [China's Nio plans to sell its first hybrid car overseas only, sources say](https://finance.yahoo.com/news/chinas-nio-plans-sell-first-042351580.html)
-- Nov 04 - [Fans at Florida Georgia game say they are disgusted by JSO officers' behavior](https://www.yahoo.com/news/fans-florida-georgia-game-disgusted-034844190.html)
+- Nov 04 - [France is holding a trial over the beheading of a teacher who showed prophet cartoons to his class](https://www.yahoo.com/news/france-holding-trial-over-beheading-050731381.html)
+- Nov 04 - [Japanese nuclear reactor that restarted 13 years after Fukushima disaster is shut down again](https://www.yahoo.com/news/japanese-nuclear-reactor-restarted-13-043305265.html)
+- Nov 04 - [Spain's king vows to give 'hope' after hostile reception on visit to flood-ravaged Valencia town](https://www.yahoo.com/news/spains-king-vows-hope-hostile-024126768.html)
 - Nov 04 - [Nvidia's Huang asked SK Hynix to bring forward supply of HBM4 chips by 6 months, SK's chairman says](https://www.yahoo.com/tech/nvidias-huang-asked-sk-hynix-020622729.html)
-- Nov 04 - [CNN reporter details conversations she’s had with exasperated Trump officials](https://www.yahoo.com/news/cnn-reporter-details-conversations-she-015515225.html)
-- Nov 04 - [Multi-day severe weather threat continues into the workweek for Central US](https://www.yahoo.com/news/multi-day-severe-weather-threat-013006777.html)
+- Nov 04 - [Early voting numbers are 'scary' for Harris, Democrats are 'panicking,' former Obama campaign manager warns](https://www.yahoo.com/news/early-voting-numbers-scary-harris-020042595.html)
 <!-- feed end -->
 
 ### Onstream
