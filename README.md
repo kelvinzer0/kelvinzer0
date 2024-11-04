@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 04 - [France is holding a trial over the beheading of a teacher who showed prophet cartoons to his class](https://www.yahoo.com/news/france-holding-trial-over-beheading-050731381.html)
+- Nov 04 - [Monica Lewinsky reveals who she is voting for in the presidential election](https://www.yahoo.com/news/monica-lewinsky-reveals-she-voting-194823887.html)
 - Nov 04 - [Japanese nuclear reactor that restarted 13 years after Fukushima disaster is shut down again](https://www.yahoo.com/news/japanese-nuclear-reactor-restarted-13-043305265.html)
-- Nov 04 - [Lyft driver left with injuries, no car after hit-and-run in Scottsdale](https://www.yahoo.com/news/lyft-driver-left-injuries-no-023847032.html)
-- Nov 04 - [Nvidia's Huang asked SK Hynix to bring forward supply of HBM4 chips by 6 months, SK's chairman says](https://www.yahoo.com/tech/nvidias-huang-asked-sk-hynix-020622729.html)
-- Nov 04 - [Early voting numbers are 'scary' for Harris, Democrats are 'panicking,' former Obama campaign manager warns](https://www.yahoo.com/news/early-voting-numbers-scary-harris-020042595.html)
+- Nov 04 - [CNN reporter details conversations she’s had with exasperated Trump officials](https://www.yahoo.com/news/cnn-reporter-details-conversations-she-015515225.html)
+- Nov 03 - [Chinese solar firms, ever-nimble, go further afield where US tariffs don't reach](https://finance.yahoo.com/news/chinese-solar-firms-ever-nimble-230207406.html)
 <!-- feed end -->
 
 ### Onstream
