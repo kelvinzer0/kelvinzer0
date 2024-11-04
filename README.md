@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [‘Cold drop’ and flood defences: What caused the devastating flash flooding in Spain?](https://www.yahoo.com/news/cold-drop-flood-defences-caused-131320296.html)
-- Nov 04 - [Exclusive-Ambani's Reliance Jio IPO set for 2025, retail debut much later, sources say](https://finance.yahoo.com/news/exclusive-ambanis-reliance-jio-ipo-092118502.html)
-- Nov 04 - [Putin said Russia wouldn't have to choose between guns or butter. The price of butter is soaring.](https://www.yahoo.com/news/putin-said-russia-wouldnt-choose-073656801.html)
-- Nov 04 - [Pete Buttigieg Hits Fox News Host's 'Fascist' Trump Question With Blistering Fact Check](https://www.yahoo.com/news/pete-buttigieg-hits-fox-news-064641172.html)
-- Nov 04 - [France is holding a trial over the beheading of a teacher who showed prophet cartoons to his class](https://www.yahoo.com/news/france-holding-trial-over-beheading-050731381.html)
+- Nov 04 - [John Hidahl, longtime public servant and El Dorado County supervisor, dies unexpectedly](https://www.yahoo.com/news/john-hidahl-longtime-public-servant-110000352.html)
+- Nov 04 - [This 31-Year-Old Woman Shared The Subtle Signs That She Had Colon Cancer, And It's So Important](https://www.yahoo.com/news/31-old-woman-shared-subtle-101602478.html)
+- Nov 04 - [Boeing Delivery Delays are ‘Pain in the Backside’ Says Ryanair CEO](https://finance.yahoo.com/news/boeing-delivery-delays-pain-backside-100500648.html)
+- Nov 04 - [Americans are probably getting another interest rate cut this week — just days after the election](https://www.yahoo.com/news/americans-probably-getting-another-interest-100001135.html)
+- Nov 04 - [Victims are ‘losing patience over three-year trial delays’](https://www.yahoo.com/news/victims-losing-patience-over-three-095654407.html)
 <!-- feed end -->
 
 ### Onstream
