@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 04 - [France is holding a trial over the beheading of a teacher who showed prophet cartoons to his class](https://www.yahoo.com/news/france-holding-trial-over-beheading-050731381.html)
 - Nov 04 - [Japanese nuclear reactor that restarted 13 years after Fukushima disaster is shut down again](https://www.yahoo.com/news/japanese-nuclear-reactor-restarted-13-043305265.html)
-- Nov 04 - [Spain's king vows to give 'hope' after hostile reception on visit to flood-ravaged Valencia town](https://www.yahoo.com/news/spains-king-vows-hope-hostile-024126768.html)
+- Nov 04 - [Lyft driver left with injuries, no car after hit-and-run in Scottsdale](https://www.yahoo.com/news/lyft-driver-left-injuries-no-023847032.html)
 - Nov 04 - [Nvidia's Huang asked SK Hynix to bring forward supply of HBM4 chips by 6 months, SK's chairman says](https://www.yahoo.com/tech/nvidias-huang-asked-sk-hynix-020622729.html)
 - Nov 04 - [Early voting numbers are 'scary' for Harris, Democrats are 'panicking,' former Obama campaign manager warns](https://www.yahoo.com/news/early-voting-numbers-scary-harris-020042595.html)
 <!-- feed end -->
