@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [These Are The Five Best Stocks To Buy And Watch Now](https://www.investors.com/research/best-stocks-to-buy-now/?src=A00220&yptr=yahoo)
+- Nov 04 - [Putin said Russia wouldn't have to choose between guns or butter. The price of butter is soaring.](https://www.yahoo.com/news/putin-said-russia-wouldnt-choose-073656801.html)
 - Nov 04 - [France is holding a trial over the beheading of a teacher who showed prophet cartoons to his class](https://www.yahoo.com/news/france-holding-trial-over-beheading-050731381.html)
-- Nov 04 - [Monica Lewinsky reveals who she is voting for in the presidential election](https://www.yahoo.com/news/monica-lewinsky-reveals-she-voting-194823887.html)
 - Nov 04 - [Japanese nuclear reactor that restarted 13 years after Fukushima disaster is shut down again](https://www.yahoo.com/news/japanese-nuclear-reactor-restarted-13-043305265.html)
-- Nov 04 - [CNN reporter details conversations she’s had with exasperated Trump officials](https://www.yahoo.com/news/cnn-reporter-details-conversations-she-015515225.html)
-- Nov 03 - [Chinese solar firms, ever-nimble, go further afield where US tariffs don't reach](https://finance.yahoo.com/news/chinese-solar-firms-ever-nimble-230207406.html)
+- Nov 04 - [Nvidia's Huang asked SK Hynix to bring forward supply of HBM4 chips by 6 months, SK's chairman says](https://www.yahoo.com/tech/nvidias-huang-asked-sk-hynix-020622729.html)
 <!-- feed end -->
 
 ### Onstream
