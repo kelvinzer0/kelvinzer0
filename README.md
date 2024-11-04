@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [CNN 10: The big stories of the day, explained in 10 minutes](https://www.yahoo.com/news/cnn-10-big-stories-day-173649621.html)
+- Nov 04 - [Officials hope to continue northern New Mexico balloon event annually](https://www.yahoo.com/lifestyle/officials-hope-continue-northern-mexico-014719322.html)
 - Nov 03 - [Chinese solar firms, ever-nimble, go further afield where US tariffs don't reach](https://finance.yahoo.com/news/chinese-solar-firms-ever-nimble-230207406.html)
 - Nov 03 - [Ivanka Trump shares the fitness routine that has ‘transformed’ her body: ‘Safe and steady’](https://www.yahoo.com/news/ivanka-trump-shares-fitness-routine-220308165.html)
 - Nov 03 - [The FCC Responded To A Commissioner Claiming That Kamala Harris's "SNL" Appearance Broke The "Equal Time" Rule](https://www.yahoo.com/news/fcc-responded-commissioner-claiming-kamala-212513612.html)
