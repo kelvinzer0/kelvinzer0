@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Ominous Cloud Looms in Tornado-Warned Oklahoma County](https://www.yahoo.com/news/ominous-cloud-looms-tornado-warned-214922348.html)
+- Nov 04 - [Amazon's a company investors can 'put money to work in': Analyst](https://finance.yahoo.com/video/amazons-company-investors-put-money-225700217.html)
+- Nov 04 - [Man freed on $250 bond after allegedly threatening a woman is now accused of murder](https://www.yahoo.com/news/man-freed-250-bond-allegedly-221832196.html)
 - Nov 04 - [I followed Harris and Trump round North Carolina. It’s clear who’s going to win](https://www.yahoo.com/news/followed-harris-trump-round-north-202016277.html)
-- Nov 04 - [‘My uncle deserves a better ending:’ Family identifies pedestrian run over on Boise Bench](https://www.yahoo.com/news/uncle-deserves-better-ending-family-214544328.html)
-- Nov 04 - [Trump Closes Out Election Campaign By Threatening Michelle Obama](https://www.yahoo.com/news/trump-closes-election-campaign-threatening-213611282.html)
-- Nov 04 - [Teen in Halloween mass shooting in Orlando faces adult murder charges](https://www.yahoo.com/news/teen-halloween-mass-shooting-orlando-212600933.html)
+- Nov 04 - [Palantir Stock Pops as Earnings Blow Past Expectations](https://finance.yahoo.com/news/palantir-stock-pops-earnings-blow-213748810.html)
+- Nov 04 - [Woman Rushed to Hospital After Grave Mistake While Attempting to Use Eye Drops: 'I Started Screaming' (Exclusive)](https://www.yahoo.com/lifestyle/woman-rushed-hospital-grave-mistake-212543073.html)
 <!-- feed end -->
 
 ### Onstream
