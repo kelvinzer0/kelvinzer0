@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Officials hope to continue northern New Mexico balloon event annually](https://www.yahoo.com/lifestyle/officials-hope-continue-northern-mexico-014719322.html)
+- Nov 04 - [Does Lauren Lapkus See Alexis Bellino and John Janssen Staying Together?](https://www.yahoo.com/news/does-lauren-lapkus-see-alexis-023600777.html)
+- Nov 04 - [CNN reporter details conversations she’s had with exasperated Trump officials](https://www.yahoo.com/news/cnn-reporter-details-conversations-she-015515225.html)
+- Nov 04 - [Multi-day severe weather threat continues into the workweek for Central US](https://www.yahoo.com/news/multi-day-severe-weather-threat-013006777.html)
+- Nov 04 - [Why it costs India so little to reach the Moon and Mars](https://www.yahoo.com/news/why-costs-india-little-reach-004711023.html)
 - Nov 03 - [Chinese solar firms, ever-nimble, go further afield where US tariffs don't reach](https://finance.yahoo.com/news/chinese-solar-firms-ever-nimble-230207406.html)
-- Nov 03 - [Ivanka Trump shares the fitness routine that has ‘transformed’ her body: ‘Safe and steady’](https://www.yahoo.com/news/ivanka-trump-shares-fitness-routine-220308165.html)
-- Nov 03 - [The FCC Responded To A Commissioner Claiming That Kamala Harris's "SNL" Appearance Broke The "Equal Time" Rule](https://www.yahoo.com/news/fcc-responded-commissioner-claiming-kamala-212513612.html)
-- Nov 03 - [Tropics Update: Potential Tropical Cyclone Eighteen has been declared](https://www.yahoo.com/news/tropics-potential-tropical-cyclone-eighteen-211101426.html)
 <!-- feed end -->
 
 ### Onstream
