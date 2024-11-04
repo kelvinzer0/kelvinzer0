@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [Mexico's National Guard kills 2 Colombians and wounds 4 on a migrant smuggling route near the US](https://www.yahoo.com/news/mexicos-national-guard-kills-2-180432437.html)
 - Nov 04 - [Mountain lion seems to be ‘seeing stars’ after dog owner kicks it](https://www.yahoo.com/news/mountain-lion-seems-seeing-stars-170115619.html)
-- Nov 04 - [‘It’s just like the wolf leading the lamb to the slaughter’: The chilling murder of an Alaskan teenager by her so-called ‘best friend’](https://www.yahoo.com/news/she-killed-her-best-friend-143443017.html)
+- Nov 04 - [Buffalo Police: Avoid vicinity of 700 Delaware Ave.](https://www.yahoo.com/news/buffalo-police-avoid-vicinity-700-164054219.html)
 - Nov 04 - [A Cameraman's Sneaky Footage Showing Donald Trump's Actual Crowd Size Is Going Viral](https://www.yahoo.com/entertainment/cameramans-extremely-shady-video-showing-163427803.html)
 - Nov 04 - [School bus with students onboard hit by gunfire in Irondequoit. What we know now](https://www.yahoo.com/news/school-bus-students-onboard-hit-162537819.html)
-- Nov 04 - [Kidnapped, trafficked and incarcerated: The unsettling death of a Rohingya child in India](https://www.yahoo.com/news/kidnapped-trafficked-incarcerated-unsettling-death-161344049.html)
 <!-- feed end -->
 
 ### Onstream
