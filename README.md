@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Skeleton found in attic 15 years after former owner vanished](https://www.yahoo.com/news/skeleton-found-attic-15-years-130700918.html)
-- Nov 04 - [Volvo, Ram, Ford among 252,000 vehicles recalled: Check recent car recalls here](https://www.yahoo.com/news/volvo-ram-ford-among-252-130137896.html)
-- Nov 04 - [Unique SLO County tree house has airplane guesthouse, saxophone stove — and it’s for sale](https://www.yahoo.com/lifestyle/unique-slo-county-tree-house-130000580.html)
-- Nov 04 - [Why stocks may get hammered if Trump wins](https://finance.yahoo.com/video/why-stocks-may-hammered-trump-124700953.html)
-- Nov 04 - [Can We Live on $100k Per Year? We Have $2.5 Million Saved and $40k in Social Security Benefits at 67](https://finance.yahoo.com/news/were-67-2-5-million-125002002.html)
+- Nov 04 - [Scientologist farmer ‘cut’ from family’s £80m potato and onion dynasty](https://www.yahoo.com/news/scientologist-farmer-sues-family-over-141704934.html)
+- Nov 04 - [Bomb that exploded prematurely in Athens would have caused extensive damage, Greek minister says](https://www.yahoo.com/news/bomb-exploded-prematurely-athens-caused-141449727.html)
+- Nov 04 - [Where to watch the election results on TV and online](https://www.yahoo.com/news/where-watch-election-results-tv-140021660.html)
+- Nov 04 - [Typical US Homebuyer More Likely to Be Older, Single and a Woman](https://finance.yahoo.com/news/typical-us-homebuyer-more-likely-140000268.html)
+- Nov 04 - [Air Transport Services Group to be taken private by Stonepeak in $3.1 billion deal](https://finance.yahoo.com/news/investment-firm-stonepeak-buy-air-133936391.html)
 <!-- feed end -->
 
 ### Onstream
