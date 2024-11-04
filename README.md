@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [Search for 4 missing boaters in California suspended after crews find 1 child dead and 1 alive](https://www.yahoo.com/news/search-4-missing-boaters-california-192918814.html)
+- Nov 04 - [Loop Capital Adjusts Apple Price Target as iOS 18.1 Sees Rapid Adoption](https://finance.yahoo.com/news/loop-capital-adjusts-apple-price-190600556.html)
+- Nov 04 - [Half of Florida’s registered voters have already voted. See which party has the lead](https://www.yahoo.com/news/half-florida-registered-voters-already-185936046.html)
+- Nov 04 - [American chip equipment makers are cutting off China](https://www.yahoo.com/tech/american-chip-equipment-makers-cutting-182049841.html)
 - Nov 04 - [Mexico's National Guard kills 2 Colombians and wounds 4 on a migrant smuggling route near the US](https://www.yahoo.com/news/mexicos-national-guard-kills-2-180432437.html)
-- Nov 04 - [Mountain lion seems to be ‘seeing stars’ after dog owner kicks it](https://www.yahoo.com/news/mountain-lion-seems-seeing-stars-170115619.html)
-- Nov 04 - [Buffalo Police: Avoid vicinity of 700 Delaware Ave.](https://www.yahoo.com/news/buffalo-police-avoid-vicinity-700-164054219.html)
-- Nov 04 - [A Cameraman's Sneaky Footage Showing Donald Trump's Actual Crowd Size Is Going Viral](https://www.yahoo.com/entertainment/cameramans-extremely-shady-video-showing-163427803.html)
-- Nov 04 - [School bus with students onboard hit by gunfire in Irondequoit. What we know now](https://www.yahoo.com/news/school-bus-students-onboard-hit-162537819.html)
 <!-- feed end -->
 
 ### Onstream
