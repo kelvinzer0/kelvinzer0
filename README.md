@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Severe weather rips through Oklahoma](https://www.yahoo.com/news/severe-weather-rips-oklahoma-001012961.html)
-- Nov 04 - [Prince William evolving into global statesman, says palace ahead of South Africa trip](https://www.yahoo.com/lifestyle/prince-william-evolving-global-statesman-000100947.html)
-- Nov 03 - [Exclusive-Blackstone in advanced talks to acquire shopping center owner Retail Opportunity, sources say](https://finance.yahoo.com/news/exclusive-blackstone-advanced-talks-acquire-232722081.html)
-- Nov 03 - [Severe storms in Oklahoma leave extended damage, injuries and power outages](https://www.yahoo.com/news/severe-storms-oklahoma-leave-extended-223106036.html)
-- Nov 03 - [Montez Ford On Bobby Lashley’s WWE Exit: Anybody Can Leave, You Have To Pick Up Whatever Is Left](https://www.yahoo.com/entertainment/montez-ford-bobby-lashley-wwe-220000953.html)
+- Nov 04 - [CNN 10: The big stories of the day, explained in 10 minutes](https://www.yahoo.com/news/cnn-10-big-stories-day-173649621.html)
+- Nov 03 - [Chinese solar firms, ever-nimble, go further afield where US tariffs don't reach](https://finance.yahoo.com/news/chinese-solar-firms-ever-nimble-230207406.html)
+- Nov 03 - [Ivanka Trump shares the fitness routine that has ‘transformed’ her body: ‘Safe and steady’](https://www.yahoo.com/news/ivanka-trump-shares-fitness-routine-220308165.html)
+- Nov 03 - [The FCC Responded To A Commissioner Claiming That Kamala Harris's "SNL" Appearance Broke The "Equal Time" Rule](https://www.yahoo.com/news/fcc-responded-commissioner-claiming-kamala-212513612.html)
+- Nov 03 - [Tropics Update: Potential Tropical Cyclone Eighteen has been declared](https://www.yahoo.com/news/tropics-potential-tropical-cyclone-eighteen-211101426.html)
 <!-- feed end -->
 
 ### Onstream
