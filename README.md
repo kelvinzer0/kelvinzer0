@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [The IRS just announced big tax changes for 2025 — here’s what they are and how they could impact you](https://finance.yahoo.com/news/irs-just-announced-big-tax-152000279.html)
-- Nov 04 - [Charles and William face calls to dissolve private estates and back out of lucrative NHS deal](https://www.yahoo.com/news/charles-william-face-calls-dissolve-124011523.html)
-- Nov 04 - [Bomb that exploded prematurely in Athens would have caused extensive damage, Greek minister says](https://www.yahoo.com/news/bomb-exploded-prematurely-athens-caused-141449727.html)
-- Nov 04 - [28-Year-Old Software Developer Who Retired After Working Just 7 Years Shares His Stock Portfolio and Story–'I Do Not Regret It One Bit'](https://finance.yahoo.com/news/28-old-software-developer-retired-140016497.html)
-- Nov 04 - [Who will win the US election?  Our experts’ final predictions](https://www.yahoo.com/news/win-us-election-experts-final-133826529.html)
+- Nov 04 - [Meta details 'adult classifier' tool for catching teens who lie about their age on Instagram](https://www.yahoo.com/tech/meta-details-adult-classifier-tool-for-catching-teens-who-lie-about-their-age-on-instagram-164439051.html)
+- Nov 04 - [A Cameraman's Extremely Shady Video Showing Donald Trump's Actual Crowd Size Is Going Viral](https://www.yahoo.com/entertainment/cameramans-extremely-shady-video-showing-163427803.html)
+- Nov 04 - [Peloton Gains as Bank of America Turns Bullish on Profit Outlook, New CEO](https://finance.yahoo.com/news/peloton-gains-bank-america-turns-161450284.html)
+- Nov 04 - [Kidnapped, trafficked and incarcerated: The unsettling death of a Rohingya child in India](https://www.yahoo.com/news/kidnapped-trafficked-incarcerated-unsettling-death-161344049.html)
+- Nov 04 - [Europe Is Levying Against Chinese EVs—See How Hight](https://autos.yahoo.com/europe-levying-against-chinese-evs-155500205.html)
 <!-- feed end -->
 
 ### Onstream
