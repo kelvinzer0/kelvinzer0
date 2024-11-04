@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Boeing Had a Big Week. This One Is Even Bigger.](https://www.barrons.com/articles/boeing-strike-contract-vote-workers-cd298ea1?siteid=yhoof2&yptr=yahoo)
-- Nov 04 - [With smoking rates declining, so too are lung cancer deaths. For nonsmokers, the numbers tell a different story.](https://www.yahoo.com/lifestyle/with-smoking-rates-declining-so-too-are-lung-cancer-deaths-for-nonsmokers-the-numbers-tell-a-different-story-120036321.html)
+- Nov 04 - [AI Stocks: Tech Giants, Cloud Titans Build 2025 Momentum](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
 - Nov 04 - [British woman faces death by stoning after ‘being forced to marry uncle’](https://www.yahoo.com/news/british-woman-faces-death-stoning-114605646.html)
+- Nov 04 - [NHTSA closes probe into more than 411,000 Ford vehicles due to loss of power](https://finance.yahoo.com/news/nhtsa-closes-probe-more-411-111508038.html)
 - Nov 04 - [Scientists Found a 'Yellow Brick Road' at The Bottom of The Pacific Ocean](https://www.yahoo.com/news/scientists-found-yellow-brick-road-110055438.html)
-- Nov 04 - [Large portion of I-79 southbound shut down due to crash](https://www.yahoo.com/news/large-portion-79-southbound-shut-101637370.html)
+- Nov 04 - [This 31-Year-Old Woman Shared The Subtle Signs That She Had Colon Cancer, And It's So Important](https://www.yahoo.com/news/31-old-woman-shared-subtle-101602478.html)
 <!-- feed end -->
 
 ### Onstream
