@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Scientologist farmer ‘cut’ from family’s £80m potato and onion dynasty](https://www.yahoo.com/news/scientologist-farmer-sues-family-over-141704934.html)
+- Nov 04 - [The IRS just announced big tax changes for 2025 — here’s what they are and how they could impact you](https://finance.yahoo.com/news/irs-just-announced-big-tax-152000279.html)
+- Nov 04 - [Charles and William face calls to dissolve private estates and back out of lucrative NHS deal](https://www.yahoo.com/news/charles-william-face-calls-dissolve-124011523.html)
 - Nov 04 - [Bomb that exploded prematurely in Athens would have caused extensive damage, Greek minister says](https://www.yahoo.com/news/bomb-exploded-prematurely-athens-caused-141449727.html)
-- Nov 04 - [Where to watch the election results on TV and online](https://www.yahoo.com/news/where-watch-election-results-tv-140021660.html)
-- Nov 04 - [Typical US Homebuyer More Likely to Be Older, Single and a Woman](https://finance.yahoo.com/news/typical-us-homebuyer-more-likely-140000268.html)
-- Nov 04 - [Air Transport Services Group to be taken private by Stonepeak in $3.1 billion deal](https://finance.yahoo.com/news/investment-firm-stonepeak-buy-air-133936391.html)
+- Nov 04 - [28-Year-Old Software Developer Who Retired After Working Just 7 Years Shares His Stock Portfolio and Story–'I Do Not Regret It One Bit'](https://finance.yahoo.com/news/28-old-software-developer-retired-140016497.html)
+- Nov 04 - [Who will win the US election?  Our experts’ final predictions](https://www.yahoo.com/news/win-us-election-experts-final-133826529.html)
 <!-- feed end -->
 
 ### Onstream
