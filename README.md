@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Does Lauren Lapkus See Alexis Bellino and John Janssen Staying Together?](https://www.yahoo.com/news/does-lauren-lapkus-see-alexis-023600777.html)
+- Nov 04 - [China's Nio plans to sell its first hybrid car overseas only, sources say](https://finance.yahoo.com/news/chinas-nio-plans-sell-first-042351580.html)
+- Nov 04 - [Fans at Florida Georgia game say they are disgusted by JSO officers' behavior](https://www.yahoo.com/news/fans-florida-georgia-game-disgusted-034844190.html)
+- Nov 04 - [Nvidia's Huang asked SK Hynix to bring forward supply of HBM4 chips by 6 months, SK's chairman says](https://www.yahoo.com/tech/nvidias-huang-asked-sk-hynix-020622729.html)
 - Nov 04 - [CNN reporter details conversations she’s had with exasperated Trump officials](https://www.yahoo.com/news/cnn-reporter-details-conversations-she-015515225.html)
 - Nov 04 - [Multi-day severe weather threat continues into the workweek for Central US](https://www.yahoo.com/news/multi-day-severe-weather-threat-013006777.html)
-- Nov 04 - [Why it costs India so little to reach the Moon and Mars](https://www.yahoo.com/news/why-costs-india-little-reach-004711023.html)
-- Nov 03 - [Chinese solar firms, ever-nimble, go further afield where US tariffs don't reach](https://finance.yahoo.com/news/chinese-solar-firms-ever-nimble-230207406.html)
 <!-- feed end -->
 
 ### Onstream
