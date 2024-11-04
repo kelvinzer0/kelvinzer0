@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [AI Stocks: Tech Giants, Cloud Titans Build 2025 Momentum](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Nov 04 - [British woman faces death by stoning after ‘being forced to marry uncle’](https://www.yahoo.com/news/british-woman-faces-death-stoning-114605646.html)
-- Nov 04 - [NHTSA closes probe into more than 411,000 Ford vehicles due to loss of power](https://finance.yahoo.com/news/nhtsa-closes-probe-more-411-111508038.html)
-- Nov 04 - [Scientists Found a 'Yellow Brick Road' at The Bottom of The Pacific Ocean](https://www.yahoo.com/news/scientists-found-yellow-brick-road-110055438.html)
-- Nov 04 - [This 31-Year-Old Woman Shared The Subtle Signs That She Had Colon Cancer, And It's So Important](https://www.yahoo.com/news/31-old-woman-shared-subtle-101602478.html)
+- Nov 04 - [Skeleton found in attic 15 years after former owner vanished](https://www.yahoo.com/news/skeleton-found-attic-15-years-130700918.html)
+- Nov 04 - [Volvo, Ram, Ford among 252,000 vehicles recalled: Check recent car recalls here](https://www.yahoo.com/news/volvo-ram-ford-among-252-130137896.html)
+- Nov 04 - [Unique SLO County tree house has airplane guesthouse, saxophone stove — and it’s for sale](https://www.yahoo.com/lifestyle/unique-slo-county-tree-house-130000580.html)
+- Nov 04 - [Why stocks may get hammered if Trump wins](https://finance.yahoo.com/video/why-stocks-may-hammered-trump-124700953.html)
+- Nov 04 - [Can We Live on $100k Per Year? We Have $2.5 Million Saved and $40k in Social Security Benefits at 67](https://finance.yahoo.com/news/were-67-2-5-million-125002002.html)
 <!-- feed end -->
 
 ### Onstream
