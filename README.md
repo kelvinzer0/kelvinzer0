@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Trump talks about reporters being shot and says he shouldn't have left White House after 2020 loss](https://www.yahoo.com/news/harris-goes-church-while-trump-184546303.html)
-- Nov 03 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
-- Nov 03 - [After their son came out, this conservative Christian couple went into a closet of their own](https://www.yahoo.com/lifestyle/son-came-conservative-christian-couple-110049694.html)
-- Nov 03 - [Tense scenes as locals throw mud towards Spain's King Felipe as he visits flood-ravaged Paiporta](https://www.yahoo.com/news/tense-scenes-locals-throw-mud-165947513.html)
-- Nov 03 - [NBA reopens investigation into Jaxson Hayes after video surfaces of him and ex-girlfriend in 2021](https://sports.yahoo.com/nba-reopens-investigation-into-jaxson-hayes-after-video-surfaces-of-him-and-ex-girlfriend-in-2021-162455664.html)
+- Nov 04 - [Severe weather rips through Oklahoma](https://www.yahoo.com/news/severe-weather-rips-oklahoma-001012961.html)
+- Nov 04 - [Prince William evolving into global statesman, says palace ahead of South Africa trip](https://www.yahoo.com/lifestyle/prince-william-evolving-global-statesman-000100947.html)
+- Nov 03 - [Exclusive-Blackstone in advanced talks to acquire shopping center owner Retail Opportunity, sources say](https://finance.yahoo.com/news/exclusive-blackstone-advanced-talks-acquire-232722081.html)
+- Nov 03 - [Severe storms in Oklahoma leave extended damage, injuries and power outages](https://www.yahoo.com/news/severe-storms-oklahoma-leave-extended-223106036.html)
+- Nov 03 - [Montez Ford On Bobby Lashley’s WWE Exit: Anybody Can Leave, You Have To Pick Up Whatever Is Left](https://www.yahoo.com/entertainment/montez-ford-bobby-lashley-wwe-220000953.html)
 <!-- feed end -->
 
 ### Onstream
