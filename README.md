@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Search for 4 missing boaters in California suspended after crews find 1 child dead and 1 alive](https://www.yahoo.com/news/search-4-missing-boaters-california-192918814.html)
-- Nov 04 - [Loop Capital Adjusts Apple Price Target as iOS 18.1 Sees Rapid Adoption](https://finance.yahoo.com/news/loop-capital-adjusts-apple-price-190600556.html)
+- Nov 04 - [US housing affordability, November's market seasonality: Wealth](https://finance.yahoo.com/video/us-housing-affordability-novembers-market-204022164.html)
+- Nov 04 - [I followed Harris and Trump round North Carolina. It’s clear who’s going to win](https://www.yahoo.com/news/followed-harris-trump-round-north-202016277.html)
+- Nov 04 - [One of the world's best airlines is adding a flyer-favorite feature to its business class as premium competition heats up](https://www.yahoo.com/news/one-worlds-best-airlines-adding-202112528.html)
 - Nov 04 - [Half of Florida’s registered voters have already voted. See which party has the lead](https://www.yahoo.com/news/half-florida-registered-voters-already-185936046.html)
-- Nov 04 - [American chip equipment makers are cutting off China](https://www.yahoo.com/tech/american-chip-equipment-makers-cutting-182049841.html)
-- Nov 04 - [Mexico's National Guard kills 2 Colombians and wounds 4 on a migrant smuggling route near the US](https://www.yahoo.com/news/mexicos-national-guard-kills-2-180432437.html)
+- Nov 04 - [German Navy Confirms Its Supersized Frigate Will Avoid The Red Sea](https://www.yahoo.com/news/german-navy-confirms-supersized-frigate-185752792.html)
 <!-- feed end -->
 
 ### Onstream
