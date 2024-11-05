@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Wicked Weed Brewing indefinitely closes Funkatorium, Cultura, staff terminated](https://www.yahoo.com/news/wicked-weed-brewing-indefinitely-closes-100813879.html)
-- Nov 05 - [Azerbaijan: a country steeped in hydrocarbons](https://finance.yahoo.com/news/azerbaijan-country-steeped-hydrocarbons-032124866.html)
-- Nov 05 - [Russia launches Soyuz rocket with dozens of satellites, including two from Iran](https://www.yahoo.com/news/russia-launches-soyuz-rocket-dozens-010819962.html)
-- Nov 05 - [I followed Harris and Trump round North Carolina. It’s clear to me who’s going to win](https://www.yahoo.com/news/followed-harris-trump-round-north-202016277.html)
-- Nov 05 - [A courtroom of relief: FBI recovers funds for victims of scammed banker](https://www.yahoo.com/news/courtroom-relief-feds-recover-funds-002605686.html)
+- Nov 05 - [North Korean troops in Russia are shelled by Ukrainian forces, an official says](https://www.yahoo.com/news/north-korean-troops-russia-shelled-112941005.html)
+- Nov 05 - [Your guide to NC Election Night 2024: How to see results, when to expect a winner and more](https://www.yahoo.com/news/guide-nc-election-night-2024-110000275.html)
+- Nov 05 - [26 roaches: State temporarily shut down Panama City Beach restaurant](https://www.yahoo.com/news/26-roaches-state-temporarily-shut-101153438.html)
+- Nov 05 - [Ukraine says it attacked North Korean troops for the first time](https://www.yahoo.com/news/ukraine-says-attacked-north-korean-095349623.html)
+- Nov 05 - [Opinion: Sounds like he's losing ‒ Trump ends 2024 campaign with more lies and resentment](https://www.yahoo.com/news/opinion-sounds-hes-losing-trump-090617815.html)
 <!-- feed end -->
 
 ### Onstream
