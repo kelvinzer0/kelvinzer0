@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [North Korean troops in Russia are shelled by Ukrainian forces, an official says](https://www.yahoo.com/news/north-korean-troops-russia-shelled-112941005.html)
-- Nov 05 - [Your guide to NC Election Night 2024: How to see results, when to expect a winner and more](https://www.yahoo.com/news/guide-nc-election-night-2024-110000275.html)
+- Nov 05 - [State will pause aid for hundreds of Eastern NC hurricane survivors without new funding](https://www.yahoo.com/news/state-pause-aid-hundreds-eastern-130000143.html)
+- Nov 05 - [Why Tesla, Musk are winners if Trump wins: Strategist](https://finance.yahoo.com/video/why-tesla-musk-winners-trump-130000055.html)
+- Nov 05 - [Lord Renwick of Clifton, Thatcher-era ambassador whose deft diplomacy speeded apartheid’s end](https://www.yahoo.com/news/lord-renwick-clifton-thatcher-era-124105412.html)
+- Nov 05 - [Young tech professionals in San Francisco turn to $700 sleeping pods to beat sky-high rent](https://finance.yahoo.com/news/young-tech-professionals-san-francisco-113700047.html)
 - Nov 05 - [26 roaches: State temporarily shut down Panama City Beach restaurant](https://www.yahoo.com/news/26-roaches-state-temporarily-shut-101153438.html)
-- Nov 05 - [Ukraine says it attacked North Korean troops for the first time](https://www.yahoo.com/news/ukraine-says-attacked-north-korean-095349623.html)
-- Nov 05 - [Opinion: Sounds like he's losing ‒ Trump ends 2024 campaign with more lies and resentment](https://www.yahoo.com/news/opinion-sounds-hes-losing-trump-090617815.html)
 <!-- feed end -->
 
 ### Onstream
