@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Russia behind plot to plant bombs on cargo planes, Western official says](https://www.yahoo.com/news/russia-behind-plot-plant-bombs-024120758.html)
-- Nov 05 - [5 arrested after detectives find young boy locked in cage inside house](https://www.yahoo.com/news/5-arrested-detectives-young-boy-022338258.html)
+- Nov 05 - [Toyota to post first profit drop in 2 years as demand cools after big run](https://finance.yahoo.com/news/toyota-post-first-profit-drop-032322951.html)
+- Nov 05 - [China must open up further to combat rising unilateralism, premier says](https://www.yahoo.com/news/china-must-open-further-combat-031418485.html)
 - Nov 05 - [Russia launches Soyuz rocket with dozens of satellites, including two from Iran](https://www.yahoo.com/news/russia-launches-soyuz-rocket-dozens-010819962.html)
+- Nov 05 - [Protestors Throw Mud At Spain’s King Felipe & Queen Letizia Amid Anger Over Deadly Floods](https://www.yahoo.com/entertainment/protestors-throw-mud-spain-king-010000834.html)
 - Nov 05 - [Man arrested after federal officials say he sought to destroy Nashville power site](https://www.yahoo.com/news/man-arrested-federal-officials-sought-004723571.html)
-- Nov 04 - [Toyota’s first air taxi soars in Japan, all-electric 5-seater with 200 mph speed](https://www.yahoo.com/news/toyota-first-air-taxi-soars-234548918.html)
 <!-- feed end -->
 
 ### Onstream
