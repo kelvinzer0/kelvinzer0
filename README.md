@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Amazon's a company investors can 'put money to work in': Analyst](https://finance.yahoo.com/video/amazons-company-investors-put-money-225700217.html)
-- Nov 04 - [Man freed on $250 bond after allegedly threatening a woman is now accused of murder](https://www.yahoo.com/news/man-freed-250-bond-allegedly-221832196.html)
-- Nov 04 - [I followed Harris and Trump round North Carolina. It’s clear who’s going to win](https://www.yahoo.com/news/followed-harris-trump-round-north-202016277.html)
-- Nov 04 - [Palantir Stock Pops as Earnings Blow Past Expectations](https://finance.yahoo.com/news/palantir-stock-pops-earnings-blow-213748810.html)
-- Nov 04 - [Woman Rushed to Hospital After Grave Mistake While Attempting to Use Eye Drops: 'I Started Screaming' (Exclusive)](https://www.yahoo.com/lifestyle/woman-rushed-hospital-grave-mistake-212543073.html)
+- Nov 05 - [I followed Harris and Trump round North Carolina. It’s clear who’s going to win](https://www.yahoo.com/news/followed-harris-trump-round-north-202016277.html)
+- Nov 04 - [‘My uncle deserves a better ending:’ Family identifies pedestrian run over on Boise Bench](https://www.yahoo.com/news/uncle-deserves-better-ending-family-214544328.html)
+- Nov 04 - [Palantir stock booming on Q3 earnings, guidance beat](https://finance.yahoo.com/video/palantir-stock-booming-q3-earnings-214049253.html)
+- Nov 04 - [Palantir raises 2024 revenue forecast again on robust AI adoption; shares surge](https://finance.yahoo.com/news/palantir-raises-2024-revenue-forecast-210812121.html)
+- Nov 04 - [Exclusive-Silver Lake, Bain prepare to bid for multi-billion stake in Intel's Altera unit, sources say](https://finance.yahoo.com/news/exclusive-silver-lake-bain-prepare-203717834.html)
 <!-- feed end -->
 
 ### Onstream
