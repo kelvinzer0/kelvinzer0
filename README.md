@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Money Undercover: NEPC Partner Sarah Samuels](https://finance.yahoo.com/video/money-undercover-nepc-partner-sarah-184944373.html)
-- Nov 05 - [Israel's Netanyahu dismisses defense minister, triggering in surprise announcement](https://www.yahoo.com/news/israels-netanyahu-dismisses-defense-minister-180842155.html)
-- Nov 05 - [Popular sandwich chain suddenly closes downtown SLO shop](https://www.yahoo.com/news/popular-sandwich-chain-suddenly-closes-180000661.html)
-- Nov 05 - [These Pictures Show The Huge Difference Between Kamala Harris's Last Rally Crowd Vs. Donald Trump's Last Rally Crowd](https://www.yahoo.com/news/pictures-show-huge-difference-between-172225067.html)
-- Nov 05 - [Boeing CEO in battle to mend rifts after bitter strike ends](https://finance.yahoo.com/news/boeing-ceo-battle-mend-rifts-161203213.html)
+- Nov 05 - [DJT stock trading halts on Election Day volatility](https://finance.yahoo.com/video/djt-stock-trading-halts-election-204039210.html)
+- Nov 05 - [Tom Ford Snaps Up a Posh London Mansion for $104 Million](https://robbreport.com/shelter/celebrity-homes/tom-ford-buys-london-mansion-104-million-1235980589/)
+- Nov 05 - [Someone Finally Made an Electric Motorcycle That Looks Like a Retro Bike](https://www.gearpatrol.com/motorcycles/royal-enfield-flying-flea-electric-motorcycles/)
+- Nov 05 - [Trump snaps at reporter when asked about abortion: 'Stop talking about that'](https://www.yahoo.com/news/trump-snaps-reporter-asked-abortion-183712606.html)
+- Nov 05 - [Israel's Netanyahu dismisses his defense minister as wars rage. Protests erupt across country](https://www.yahoo.com/news/israels-netanyahu-dismisses-defense-minister-180842155.html)
 <!-- feed end -->
 
 ### Onstream
