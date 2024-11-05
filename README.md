@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 05 - [Toyota to post first profit drop in 2 years as demand cools after big run](https://finance.yahoo.com/news/toyota-post-first-profit-drop-032322951.html)
 - Nov 05 - [China must open up further to combat rising unilateralism, premier says](https://www.yahoo.com/news/china-must-open-further-combat-031418485.html)
-- Nov 05 - [New Tardigrade Discovery Reveals Secrets of Radiation Resistance](https://www.yahoo.com/news/tardigrade-discovery-reveals-secrets-radiation-020044979.html)
 - Nov 05 - [Russia launches Soyuz rocket with dozens of satellites, including two from Iran](https://www.yahoo.com/news/russia-launches-soyuz-rocket-dozens-010819962.html)
 - Nov 05 - [I followed Harris and Trump round North Carolina. It’s clear who’s going to win](https://www.yahoo.com/news/followed-harris-trump-round-north-202016277.html)
+- Nov 05 - [A courtroom of relief: FBI recovers funds for victims of scammed banker](https://www.yahoo.com/news/courtroom-relief-feds-recover-funds-002605686.html)
 <!-- feed end -->
 
 ### Onstream
