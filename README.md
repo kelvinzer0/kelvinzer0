@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [GOP operative arrested on cyberstalking charges over covert pics of supermarket employee wearing keffiyeh](https://www.yahoo.com/news/gop-operative-arrested-cyberstalking-charges-221752888.html)
-- Nov 05 - [2024 Election: U.S. Senate Race in Washington State (Live updates)](https://www.yahoo.com/news/2024-election-u-senate-race-074531069.html)
+- Nov 05 - [Boeing strike ends as machinists approve new contract](https://www.yahoo.com/news/boeing-strike-ends-machinists-approve-092559542.html)
+- Nov 05 - [After their son came out, this conservative Christian couple went into a closet of their own](https://www.yahoo.com/lifestyle/son-came-conservative-christian-couple-110049694.html)
 - Nov 05 - [After SpaceX's requests, Taiwanese suppliers move manufacturing abroad, sources say](https://finance.yahoo.com/news/spacexs-requests-taiwanese-suppliers-move-060201496.html)
 - Nov 05 - [China must open up further to combat rising unilateralism, premier says](https://www.yahoo.com/news/china-must-open-further-combat-031418485.html)
 - Nov 05 - [Russia launches Soyuz rocket with dozens of satellites, including two from Iran](https://www.yahoo.com/news/russia-launches-soyuz-rocket-dozens-010819962.html)
