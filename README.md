@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [UN warns Iran the world is watching its response to woman who stripped to protest](https://www.yahoo.com/news/un-warns-iran-world-watching-035743353.html)
+- Nov 05 - [Matt Choi Apologizes for Running with E-Bikes on New York City Marathon Course](https://www.yahoo.com/entertainment/matt-choi-apologizes-running-e-175600488.html)
 - Nov 05 - [Aging in America: The most common misconceptions about aging](https://finance.yahoo.com/video/aging-america-most-common-misconceptions-170028393.html)
-- Nov 05 - [Manvel PD officers rescue 3 dogs found stuck in pond](https://www.yahoo.com/news/manvel-pd-officers-rescue-3-152000423.html)
-- Nov 05 - [79 Trivia Questions That Are So Hard, They Made My Brain Swell To Twice The Size](https://www.yahoo.com/lifestyle/79-trivia-questions-hard-made-143102527.html)
-- Nov 05 - [Ukraine says it attacked North Korean troops for the first time](https://www.yahoo.com/news/ukraine-says-attacked-north-korean-095349623.html)
-- Nov 05 - [Nintendo expects to sell fewer Switches than planned as new model looms](https://www.yahoo.com/tech/nintendo-expects-to-sell-fewer-switches-than-planned-as-new-model-looms-140031461.html)
+- Nov 05 - [Sports bar chain shutters final location in the Myrtle Beach area. Why did it close?](https://www.yahoo.com/news/sports-bar-chain-shutters-final-163819976.html)
+- Nov 05 - [Joe Rogan, Harrison Ford, Megyn Kelly among late celebrity endorsements before Election Day 2024](https://www.yahoo.com/entertainment/joe-rogan-harrison-ford-megyn-155219083.html)
 <!-- feed end -->
 
 ### Onstream
