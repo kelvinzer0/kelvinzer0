@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Nov 05 - [Toyota to post first profit drop in 2 years as demand cools after big run](https://finance.yahoo.com/news/toyota-post-first-profit-drop-032322951.html)
 - Nov 05 - [China must open up further to combat rising unilateralism, premier says](https://www.yahoo.com/news/china-must-open-further-combat-031418485.html)
 - Nov 05 - [Russia launches Soyuz rocket with dozens of satellites, including two from Iran](https://www.yahoo.com/news/russia-launches-soyuz-rocket-dozens-010819962.html)
-- Nov 05 - [Protestors Throw Mud At Spain’s King Felipe & Queen Letizia Amid Anger Over Deadly Floods](https://www.yahoo.com/entertainment/protestors-throw-mud-spain-king-010000834.html)
-- Nov 05 - [Man arrested after federal officials say he sought to destroy Nashville power site](https://www.yahoo.com/news/man-arrested-federal-officials-sought-004723571.html)
+- Nov 04 - [Toyota’s first air taxi soars in Japan, all-electric 5-seater with 200 mph speed](https://www.yahoo.com/news/toyota-first-air-taxi-soars-234548918.html)
+- Nov 04 - [Alleged street racer in hit-and-run crash that injured 2 spectators in Anaheim arrested](https://www.yahoo.com/news/alleged-street-racer-hit-run-233225379.html)
 <!-- feed end -->
 
 ### Onstream
