@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Super Micro Computer reports earnings: What you need to know](https://finance.yahoo.com/video/super-micro-computer-reports-earnings-161843775.html)
-- Nov 05 - [Sara Sharif father claims he ‘never beat daughter, only slapped her’](https://www.yahoo.com/news/sara-sharif-father-wrongly-cast-135905012.html)
-- Nov 05 - [Nvidia Supplier Astera Labs Surges on Strong Q3 Results](https://finance.yahoo.com/news/nvidia-supplier-astera-labs-surges-151012146.html)
+- Nov 05 - [Aging in America: The most common misconceptions about aging](https://finance.yahoo.com/video/aging-america-most-common-misconceptions-170028393.html)
+- Nov 05 - [Manvel PD officers rescue 3 dogs found stuck in pond](https://www.yahoo.com/news/manvel-pd-officers-rescue-3-152000423.html)
+- Nov 05 - [79 Trivia Questions That Are So Hard, They Made My Brain Swell To Twice The Size](https://www.yahoo.com/lifestyle/79-trivia-questions-hard-made-143102527.html)
 - Nov 05 - [Ukraine says it attacked North Korean troops for the first time](https://www.yahoo.com/news/ukraine-says-attacked-north-korean-095349623.html)
-- Nov 05 - [Archaeologists Found a Completely Untouched Egyptian Tomb With 11 Bone-Filled Graves](https://www.yahoo.com/news/archaeologists-found-completely-untouched-egyptian-140000067.html)
+- Nov 05 - [Nintendo expects to sell fewer Switches than planned as new model looms](https://www.yahoo.com/tech/nintendo-expects-to-sell-fewer-switches-than-planned-as-new-model-looms-140031461.html)
 <!-- feed end -->
 
 ### Onstream
