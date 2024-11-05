@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [China’s J-35A Stealth Fighter Officially Breaks Cover](https://www.yahoo.com/news/china-j-35a-stealth-fighter-222432991.html)
+- Nov 05 - [Attorney says Giuliani 'secreted away' his property from poll workers who won $148M judgment](https://www.yahoo.com/news/attorney-says-giuliani-secreted-away-213253531.html)
+- Nov 05 - [Lumen raises annual cash flow forecast on AI deals, legacy business weighs on results](https://www.yahoo.com/tech/lumen-raises-annual-cash-flow-212207953.html)
 - Nov 05 - [A young man died mid-flight from an asthma attack. His family claims the airline ‘failed’ him](https://www.independent.co.uk/news/world/americas/british-airways-american-airlines-died-asthma-attack-b2641985.html)
-- Nov 05 - [DJT stock trading halts on Election Day volatility](https://finance.yahoo.com/video/djt-stock-trading-halts-election-204039210.html)
-- Nov 05 - [Elon Musk Engaged in Secretive "Emergency" Project to Alter Pennsylvania Ballots After They’re Cast](https://www.yahoo.com/news/elon-musk-engaged-secretive-emergency-200624046.html)
-- Nov 05 - [Section of Columbia blocked off because of mental-health emergency, SC police say](https://www.yahoo.com/news/section-columbia-blocked-off-because-183852537.html)
-- Nov 05 - [Trump snaps at reporter when asked about abortion: 'Stop talking about that'](https://www.yahoo.com/news/trump-snaps-reporter-asked-abortion-183712606.html)
+- Nov 05 - [Christie says he would bet ‘about five bucks’ on Harris](https://www.yahoo.com/news/christie-says-bet-five-bucks-205359105.html)
 <!-- feed end -->
 
 ### Onstream
