@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [Man faces felony charges after punching Illinois poll worker in face, police say](https://www.yahoo.com/news/man-faces-felony-charges-punching-135043133.html)
+- Nov 05 - [Germany's coalition partners meet again in attempt to avert crisis](https://www.yahoo.com/news/germanys-coalition-partners-meet-again-132722515.html)
+- Nov 05 - [Goldman Sachs Group Insiders Sold US$42m Of Shares Suggesting Hesitancy](https://finance.yahoo.com/news/goldman-sachs-group-insiders-sold-130016101.html)
+- Nov 05 - [Street Takeover Dodge Charger Mows Down Pedestrians](https://autos.yahoo.com/street-takeover-dodge-charger-mows-130000537.html)
 - Nov 05 - [State will pause aid for hundreds of Eastern NC hurricane survivors without new funding](https://www.yahoo.com/news/state-pause-aid-hundreds-eastern-130000143.html)
-- Nov 05 - [Why Tesla, Musk are winners if Trump wins: Strategist](https://finance.yahoo.com/video/why-tesla-musk-winners-trump-130000055.html)
-- Nov 05 - [Lord Renwick of Clifton, Thatcher-era ambassador whose deft diplomacy speeded apartheid’s end](https://www.yahoo.com/news/lord-renwick-clifton-thatcher-era-124105412.html)
-- Nov 05 - [Young tech professionals in San Francisco turn to $700 sleeping pods to beat sky-high rent](https://finance.yahoo.com/news/young-tech-professionals-san-francisco-113700047.html)
-- Nov 05 - [26 roaches: State temporarily shut down Panama City Beach restaurant](https://www.yahoo.com/news/26-roaches-state-temporarily-shut-101153438.html)
 <!-- feed end -->
 
 ### Onstream
