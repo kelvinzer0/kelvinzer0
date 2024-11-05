@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [I followed Harris and Trump round North Carolina. It’s clear who’s going to win](https://www.yahoo.com/news/followed-harris-trump-round-north-202016277.html)
-- Nov 04 - [‘My uncle deserves a better ending:’ Family identifies pedestrian run over on Boise Bench](https://www.yahoo.com/news/uncle-deserves-better-ending-family-214544328.html)
-- Nov 04 - [Palantir stock booming on Q3 earnings, guidance beat](https://finance.yahoo.com/video/palantir-stock-booming-q3-earnings-214049253.html)
+- Nov 05 - [Russia launches Soyuz rocket with dozens of satellites, including two from Iran](https://www.yahoo.com/news/russia-launches-soyuz-rocket-dozens-010819962.html)
+- Nov 05 - [Protestors Throw Mud At Spain’s King Felipe & Queen Letizia Amid Anger Over Deadly Floods](https://www.yahoo.com/entertainment/protestors-throw-mud-spain-king-010000834.html)
+- Nov 04 - [West Lafayette police ask for public's help in identifying man they say attacked a couple](https://www.yahoo.com/news/west-lafayette-police-ask-publics-214509617.html)
+- Nov 04 - [Remains of nearly 30 Civil War veterans found in a funeral home's storage are laid to rest](https://www.yahoo.com/news/remains-nearly-30-civil-war-211832979.html)
 - Nov 04 - [Palantir raises 2024 revenue forecast again on robust AI adoption; shares surge](https://finance.yahoo.com/news/palantir-raises-2024-revenue-forecast-210812121.html)
-- Nov 04 - [Exclusive-Silver Lake, Bain prepare to bid for multi-billion stake in Intel's Altera unit, sources say](https://finance.yahoo.com/news/exclusive-silver-lake-bain-prepare-203717834.html)
 <!-- feed end -->
 
 ### Onstream
