@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [Ferrari stock tumbles on weak China sales in Q3](https://finance.yahoo.com/video/ferrari-stock-tumbles-weak-china-184144250.html)
 - Nov 05 - [UN warns Iran the world is watching its response to woman who stripped to protest](https://www.yahoo.com/news/un-warns-iran-world-watching-035743353.html)
-- Nov 05 - [Matt Choi Apologizes for Running with E-Bikes on New York City Marathon Course](https://www.yahoo.com/entertainment/matt-choi-apologizes-running-e-175600488.html)
-- Nov 05 - [Aging in America: The most common misconceptions about aging](https://finance.yahoo.com/video/aging-america-most-common-misconceptions-170028393.html)
-- Nov 05 - [Sports bar chain shutters final location in the Myrtle Beach area. Why did it close?](https://www.yahoo.com/news/sports-bar-chain-shutters-final-163819976.html)
-- Nov 05 - [Joe Rogan, Harrison Ford, Megyn Kelly among late celebrity endorsements before Election Day 2024](https://www.yahoo.com/entertainment/joe-rogan-harrison-ford-megyn-155219083.html)
+- Nov 05 - [These Pictures Show The Huge Difference Between Kamala Harris's Last Rally Crowd Vs. Donald Trump's Last Rally Crowd](https://www.yahoo.com/news/pictures-show-huge-difference-between-172225067.html)
+- Nov 05 - [See Spacecraft Views: Sun Blasts Massive X4.5-Class Solar Flare](https://www.yahoo.com/news/see-spacecraft-views-sun-blasts-170000099.html)
+- Nov 05 - [China's New Spaceship Is a Blatant Ripoff of SpaceX's Starship](https://www.yahoo.com/tech/chinas-spaceship-blatant-ripoff-spacexs-163856658.html)
 <!-- feed end -->
 
 ### Onstream
