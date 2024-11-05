@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [A young man died mid-flight from an asthma attack. His family claims the airline ‘failed’ him](https://www.independent.co.uk/news/world/americas/british-airways-american-airlines-died-asthma-attack-b2641985.html)
 - Nov 05 - [DJT stock trading halts on Election Day volatility](https://finance.yahoo.com/video/djt-stock-trading-halts-election-204039210.html)
-- Nov 05 - [Tom Ford Snaps Up a Posh London Mansion for $104 Million](https://robbreport.com/shelter/celebrity-homes/tom-ford-buys-london-mansion-104-million-1235980589/)
-- Nov 05 - [Someone Finally Made an Electric Motorcycle That Looks Like a Retro Bike](https://www.gearpatrol.com/motorcycles/royal-enfield-flying-flea-electric-motorcycles/)
+- Nov 05 - [Elon Musk Engaged in Secretive "Emergency" Project to Alter Pennsylvania Ballots After They’re Cast](https://www.yahoo.com/news/elon-musk-engaged-secretive-emergency-200624046.html)
+- Nov 05 - [Section of Columbia blocked off because of mental-health emergency, SC police say](https://www.yahoo.com/news/section-columbia-blocked-off-because-183852537.html)
 - Nov 05 - [Trump snaps at reporter when asked about abortion: 'Stop talking about that'](https://www.yahoo.com/news/trump-snaps-reporter-asked-abortion-183712606.html)
-- Nov 05 - [Israel's Netanyahu dismisses his defense minister as wars rage. Protests erupt across country](https://www.yahoo.com/news/israels-netanyahu-dismisses-defense-minister-180842155.html)
 <!-- feed end -->
 
 ### Onstream
