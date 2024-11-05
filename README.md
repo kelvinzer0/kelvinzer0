@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [Russia behind plot to plant bombs on cargo planes, Western official says](https://www.yahoo.com/news/russia-behind-plot-plant-bombs-024120758.html)
+- Nov 05 - [5 arrested after detectives find young boy locked in cage inside house](https://www.yahoo.com/news/5-arrested-detectives-young-boy-022338258.html)
 - Nov 05 - [Russia launches Soyuz rocket with dozens of satellites, including two from Iran](https://www.yahoo.com/news/russia-launches-soyuz-rocket-dozens-010819962.html)
-- Nov 05 - [Protestors Throw Mud At Spain’s King Felipe & Queen Letizia Amid Anger Over Deadly Floods](https://www.yahoo.com/entertainment/protestors-throw-mud-spain-king-010000834.html)
-- Nov 04 - [West Lafayette police ask for public's help in identifying man they say attacked a couple](https://www.yahoo.com/news/west-lafayette-police-ask-publics-214509617.html)
-- Nov 04 - [Remains of nearly 30 Civil War veterans found in a funeral home's storage are laid to rest](https://www.yahoo.com/news/remains-nearly-30-civil-war-211832979.html)
-- Nov 04 - [Palantir raises 2024 revenue forecast again on robust AI adoption; shares surge](https://finance.yahoo.com/news/palantir-raises-2024-revenue-forecast-210812121.html)
+- Nov 05 - [Man arrested after federal officials say he sought to destroy Nashville power site](https://www.yahoo.com/news/man-arrested-federal-officials-sought-004723571.html)
+- Nov 04 - [Toyota’s first air taxi soars in Japan, all-electric 5-seater with 200 mph speed](https://www.yahoo.com/news/toyota-first-air-taxi-soars-234548918.html)
 <!-- feed end -->
 
 ### Onstream
