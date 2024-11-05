@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Technical issues, new ownership at St. Joseph cause multiple employees to miss out on pay | CW39 Houston](https://www.yahoo.com/news/technical-issues-ownership-st-joseph-143258058.html)
+- Nov 05 - [Super Micro Computer reports earnings: What you need to know](https://finance.yahoo.com/video/super-micro-computer-reports-earnings-161843775.html)
+- Nov 05 - [Sara Sharif father claims he ‘never beat daughter, only slapped her’](https://www.yahoo.com/news/sara-sharif-father-wrongly-cast-135905012.html)
+- Nov 05 - [Nvidia Supplier Astera Labs Surges on Strong Q3 Results](https://finance.yahoo.com/news/nvidia-supplier-astera-labs-surges-151012146.html)
 - Nov 05 - [Ukraine says it attacked North Korean troops for the first time](https://www.yahoo.com/news/ukraine-says-attacked-north-korean-095349623.html)
 - Nov 05 - [Archaeologists Found a Completely Untouched Egyptian Tomb With 11 Bone-Filled Graves](https://www.yahoo.com/news/archaeologists-found-completely-untouched-egyptian-140000067.html)
-- Nov 05 - [Street Takeover Dodge Charger Mows Down Pedestrians](https://autos.yahoo.com/street-takeover-dodge-charger-mows-130000537.html)
-- Nov 05 - [Lord Renwick of Clifton, Thatcher-era ambassador whose deft diplomacy speeded apartheid’s end](https://www.yahoo.com/news/lord-renwick-clifton-thatcher-era-124105412.html)
 <!-- feed end -->
 
 ### Onstream
