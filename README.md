@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Ferrari stock tumbles on weak China sales in Q3](https://finance.yahoo.com/video/ferrari-stock-tumbles-weak-china-184144250.html)
-- Nov 05 - [UN warns Iran the world is watching its response to woman who stripped to protest](https://www.yahoo.com/news/un-warns-iran-world-watching-035743353.html)
+- Nov 05 - [Money Undercover: NEPC Partner Sarah Samuels](https://finance.yahoo.com/video/money-undercover-nepc-partner-sarah-184944373.html)
+- Nov 05 - [Israel's Netanyahu dismisses defense minister, triggering in surprise announcement](https://www.yahoo.com/news/israels-netanyahu-dismisses-defense-minister-180842155.html)
+- Nov 05 - [Popular sandwich chain suddenly closes downtown SLO shop](https://www.yahoo.com/news/popular-sandwich-chain-suddenly-closes-180000661.html)
 - Nov 05 - [These Pictures Show The Huge Difference Between Kamala Harris's Last Rally Crowd Vs. Donald Trump's Last Rally Crowd](https://www.yahoo.com/news/pictures-show-huge-difference-between-172225067.html)
-- Nov 05 - [See Spacecraft Views: Sun Blasts Massive X4.5-Class Solar Flare](https://www.yahoo.com/news/see-spacecraft-views-sun-blasts-170000099.html)
-- Nov 05 - [China's New Spaceship Is a Blatant Ripoff of SpaceX's Starship](https://www.yahoo.com/tech/chinas-spaceship-blatant-ripoff-spacexs-163856658.html)
+- Nov 05 - [Boeing CEO in battle to mend rifts after bitter strike ends](https://finance.yahoo.com/news/boeing-ceo-battle-mend-rifts-161203213.html)
 <!-- feed end -->
 
 ### Onstream
