@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [The 'rainy day fund' is dying out as Brits save for treats instead - poll](https://www.yahoo.com/news/rainy-day-fund-dying-brits-083200343.html)
 - Nov 06 - [Taiwan's military holds first live-fire drills with anti-tank rockets developed on the island](https://www.yahoo.com/news/taiwans-military-holds-first-live-075827088.html)
-- Nov 06 - [Californians reportedly preparing to flee country pending election results: 'I'm very scared'](https://www.yahoo.com/news/californians-reportedly-preparing-flee-country-022206706.html)
-- Nov 06 - [Brett Favre Mocked After Sharing God's Supposed Electoral Map](https://www.yahoo.com/entertainment/brett-favre-mocked-sharing-gods-005310334.html)
-- Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
-- Nov 05 - [Greenfield fatal crash involving school bus, woman identified](https://www.yahoo.com/news/greenfield-fatal-crash-involving-school-222453914.html)
+- Nov 06 - [Donald Trump Wins Presidency In Remarkable White House Comeback](https://www.yahoo.com/news/donald-trump-wins-presidency-remarkable-072700546.html)
+- Nov 06 - [Harris doesn't speak as tearful supporters leave watch party](https://www.yahoo.com/news/harris-not-speak-tearful-supporters-055610442.html)
+- Nov 06 - [Reporters share details of the memo sent to Harris campaign staffers](https://www.yahoo.com/news/reporters-share-details-memo-sent-043224302.html)
 <!-- feed end -->
 
 ### Onstream
