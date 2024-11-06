@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Trump declares ‘unprecedented mandate’ after winning presidency for second time](https://www.yahoo.com/news/trump-declares-unprecedented-mandate-winning-074715114.html)
 - Nov 06 - [World reacts to 2024 presidential election results](https://www.yahoo.com/news/world-reacts-2024-presidential-election-073133465.html)
-- Nov 06 - [Opinion: No Election Day result, but heavy Trump vote shows America has already lost](https://www.yahoo.com/news/opinion-no-election-day-result-064519185.html)
+- Nov 06 - [7 Salisbury University students face assault, hate crime charges in off-campus incident](https://www.yahoo.com/news/7-salisbury-university-students-face-020925003.html)
+- Nov 05 - [Why Super Micro Computer's Stock Is Plunging After Its Business Update Tuesday](https://finance.yahoo.com/news/why-super-micro-computers-stock-223702573.html)
 - Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
-- Nov 05 - [Tampa man charged after smuggling 2 100-gallon tanks of fuel in van: deputies](https://www.yahoo.com/news/tampa-man-charged-smuggling-2-215201092.html)
-- Nov 05 - [Amazon CEO denies full in-office mandate is 'backdoor layoff'](https://finance.yahoo.com/news/amazon-ceo-denies-full-office-202200567.html)
 <!-- feed end -->
 
 ### Onstream
