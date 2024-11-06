@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Why Super Micro Computer's Stock Is Plunging After Its Business Update Tuesday](https://finance.yahoo.com/news/why-super-micro-computers-stock-223702573.html)
-- Nov 05 - ['Fat Leonard,' Navy contractor behind one of the military's biggest scandals, sentenced to 15 years](https://www.yahoo.com/news/fat-leonard-navy-contractor-behind-214810658.html)
-- Nov 05 - [Attorney says Giuliani 'secreted away' his property from poll workers who won $148M judgment](https://www.yahoo.com/news/attorney-says-giuliani-secreted-away-213253531.html)
-- Nov 05 - [Super Micro shares fall as server maker misses sales targets, annual filing uncertain](https://finance.yahoo.com/news/super-micro-says-cannot-predict-212522589.html)
-- Nov 05 - [Amazon CEO denies full in-office mandate is 'backdoor layoff'](https://finance.yahoo.com/news/amazon-ceo-denies-full-office-202200567.html)
+- Nov 06 - [Republicans take Senate majority for first time in 4 years](https://www.yahoo.com/news/republicans-win-back-u-senate-051216079.html)
+- Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
+- Nov 05 - [Tampa man charged after smuggling 2 100-gallon tanks of fuel in van: deputies](https://www.yahoo.com/news/tampa-man-charged-smuggling-2-215201092.html)
+- Nov 05 - [One of America's richest self-made women is a Chinese immigrant who once worked as a flea market seller](https://finance.yahoo.com/news/one-americas-richest-self-made-213323412.html)
+- Nov 05 - [Couple poisoned air for profit by illegally modifying trucks in Washington, feds say](https://www.yahoo.com/news/couple-poisoned-air-profit-illegally-211419134.html)
 <!-- feed end -->
 
 ### Onstream
