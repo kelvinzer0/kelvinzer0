@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Harris will not speak as tearful supporters leave watch party](https://www.yahoo.com/news/harris-not-speak-tearful-supporters-055610442.html)
 - Nov 06 - [Republicans take Senate majority for first time in 4 years](https://www.yahoo.com/news/republicans-win-back-u-senate-051216079.html)
+- Nov 06 - [Californians reportedly preparing to flee country pending election results: 'I'm very scared'](https://www.yahoo.com/news/californians-reportedly-preparing-flee-country-022206706.html)
+- Nov 06 - [7 Salisbury University students face assault, hate crime charges in off-campus incident](https://www.yahoo.com/news/7-salisbury-university-students-face-020925003.html)
 - Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
-- Nov 05 - [Tampa man charged after smuggling 2 100-gallon tanks of fuel in van: deputies](https://www.yahoo.com/news/tampa-man-charged-smuggling-2-215201092.html)
-- Nov 05 - [One of America's richest self-made women is a Chinese immigrant who once worked as a flea market seller](https://finance.yahoo.com/news/one-americas-richest-self-made-213323412.html)
-- Nov 05 - [Couple poisoned air for profit by illegally modifying trucks in Washington, feds say](https://www.yahoo.com/news/couple-poisoned-air-profit-illegally-211419134.html)
 <!-- feed end -->
 
 ### Onstream
