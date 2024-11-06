@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Trump declares ‘unprecedented mandate’ after winning presidency for second time](https://www.yahoo.com/news/trump-declares-unprecedented-mandate-winning-074715114.html)
-- Nov 06 - [World reacts to 2024 presidential election results](https://www.yahoo.com/news/world-reacts-2024-presidential-election-073133465.html)
-- Nov 06 - [7 Salisbury University students face assault, hate crime charges in off-campus incident](https://www.yahoo.com/news/7-salisbury-university-students-face-020925003.html)
-- Nov 05 - [Why Super Micro Computer's Stock Is Plunging After Its Business Update Tuesday](https://finance.yahoo.com/news/why-super-micro-computers-stock-223702573.html)
-- Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
+- Nov 06 - [Donald Trump Is the President-Elect -- but There's an Even Bigger Winner Today](https://finance.yahoo.com/news/donald-trump-president-elect-theres-111100460.html)
+- Nov 06 - [Kremlin aide says Germany car industry plight shows green transition risks](https://finance.yahoo.com/news/kremlin-aide-says-germany-car-110137899.html)
+- Nov 06 - [How Kamala Harris lost the election: The fatal flaws in a doomed election bid](https://www.yahoo.com/news/kamala-harris-lost-election-fatal-105809720.html)
+- Nov 06 - [Opinion: Here’s What I Learned From Trump’s Victory: I’m the Problem. It’s Me](https://www.yahoo.com/news/opinion-learned-trump-victory-m-104012929.html)
+- Nov 06 - [Republicans take Senate majority for first time in 4 years](https://www.yahoo.com/news/republicans-win-back-u-senate-051216079.html)
 <!-- feed end -->
 
 ### Onstream
