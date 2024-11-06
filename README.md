@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
-- Nov 05 - [Attorney says Giuliani 'secreted away' his property from poll workers who won $148M judgment](https://www.yahoo.com/news/attorney-says-giuliani-secreted-away-213253531.html)
+- Nov 06 - [Will Republicans or Democrats control US Congress in January? Here’s the latest](https://www.yahoo.com/news/republicans-democrats-control-u-congress-021232470.html)
+- Nov 06 - [Many Gen Z voters struggle to sign their names. That's becoming a problem as they cast their ballots.](https://www.yahoo.com/news/many-gen-z-voters-struggle-014359433.html)
+- Nov 05 - ['Fat Leonard,' Navy contractor behind one of the military's biggest scandals, sentenced to 15 years](https://www.yahoo.com/news/fat-leonard-navy-contractor-behind-214810658.html)
 - Nov 05 - [DJT stock trading halts on Election Day volatility](https://finance.yahoo.com/video/djt-stock-trading-halts-election-204039210.html)
 - Nov 05 - [Amazon CEO denies full in-office mandate is 'backdoor layoff'](https://finance.yahoo.com/news/amazon-ceo-denies-full-office-202200567.html)
-- Nov 05 - [Orcas Seen Entering Cove in Puget Sound for First Time Since Infamous Capturing Incident in the 1970s](https://pethelpful.com/pet-news/orcas-enter-cove-puget-sound-first-time-infamous-capturing-incident-1970s)
 <!-- feed end -->
 
 ### Onstream
