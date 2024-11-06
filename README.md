@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Eliminating This One Food From Your Diet Can Lower Your Cholesterol and Blood Pressure, According to Cardiologists](https://www.yahoo.com/lifestyle/eliminating-one-food-diet-lower-112500568.html)
-- Nov 06 - [Donald Trump Is the President-Elect -- but There's an Even Bigger Winner Today](https://finance.yahoo.com/news/donald-trump-president-elect-theres-111100460.html)
-- Nov 06 - [Kremlin aide says Germany car industry plight shows green transition risks](https://finance.yahoo.com/news/kremlin-aide-says-germany-car-110137899.html)
-- Nov 06 - [2-Year-Old Boy Found ‘Unclothed’ in 'Caged Area' Littered with Feces, 5 People Arrested: Police](https://www.yahoo.com/news/2-old-boy-found-unclothed-101220535.html)
-- Nov 06 - [‘Fish swimming in our backyards:’ Flooding causes extensive damage to Ewa Beach homes](https://www.yahoo.com/news/fish-swimming-backyards-flooding-causes-044758317.html)
+- Nov 06 - [Rare November hurricane set to hit the US – here’s the projected path](https://www.yahoo.com/news/rare-november-hurricane-set-hit-222424494.html)
+- Nov 06 - [Former Sen. Claire McCaskill Says Americans Must Now Acknowledge 1 Heartbreaking Thing](https://www.yahoo.com/news/former-sen-claire-mccaskill-says-140755123.html)
+- Nov 06 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
+- Nov 06 - [1 Word In French President’s Congratulatory Message To Trump Has People Howling](https://www.yahoo.com/news/1-word-french-president-congratulatory-125951834.html)
+- Nov 06 - [“Holy Smokes”: CNN’s Jake Tapper Goes Viral With Reaction To Kamala Harris’ Election Slump](https://www.yahoo.com/news/holy-smokes-cnn-jake-tapper-125503086.html)
 <!-- feed end -->
 
 ### Onstream
