@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Will Republicans or Democrats control US Congress in January? Here’s the latest](https://www.yahoo.com/news/republicans-democrats-control-u-congress-021232671.html)
+- Nov 06 - [Loser Mark Robinson Ends His Race With His Wildest Claim Yet](https://www.yahoo.com/news/loser-mark-robinson-ends-race-022902311.html)
+- Nov 06 - [Brett Favre Mocked After Sharing God's Supposed Electoral Map](https://www.yahoo.com/entertainment/brett-favre-mocked-sharing-gods-005310334.html)
 - Nov 05 - [Why Super Micro Computer's Stock Is Plunging After Its Business Update Tuesday](https://finance.yahoo.com/news/why-super-micro-computers-stock-223702573.html)
-- Nov 05 - ['Fat Leonard,' Navy contractor behind one of the military's biggest scandals, sentenced to 15 years](https://www.yahoo.com/news/fat-leonard-navy-contractor-behind-214810658.html)
-- Nov 05 - [One of America's richest self-made women is a Chinese immigrant who once worked as a flea market seller](https://finance.yahoo.com/news/one-americas-richest-self-made-213323412.html)
-- Nov 05 - [Super Micro shares fall as server maker misses sales targets, annual filing uncertain](https://finance.yahoo.com/news/super-micro-says-cannot-predict-212522589.html)
+- Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
+- Nov 05 - [Greenfield fatal crash involving school bus, woman identified](https://www.yahoo.com/news/greenfield-fatal-crash-involving-school-222453914.html)
 <!-- feed end -->
 
 ### Onstream
