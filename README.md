@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Harris will not speak as tearful supporters leave watch party](https://www.yahoo.com/news/harris-not-speak-tearful-supporters-055610442.html)
-- Nov 06 - [Republicans take Senate majority for first time in 4 years](https://www.yahoo.com/news/republicans-win-back-u-senate-051216079.html)
+- Nov 06 - [Taiwan's military holds first live-fire drills with anti-tank rockets developed on the island](https://www.yahoo.com/news/taiwans-military-holds-first-live-075827088.html)
 - Nov 06 - [Californians reportedly preparing to flee country pending election results: 'I'm very scared'](https://www.yahoo.com/news/californians-reportedly-preparing-flee-country-022206706.html)
-- Nov 06 - [7 Salisbury University students face assault, hate crime charges in off-campus incident](https://www.yahoo.com/news/7-salisbury-university-students-face-020925003.html)
+- Nov 06 - [Brett Favre Mocked After Sharing God's Supposed Electoral Map](https://www.yahoo.com/entertainment/brett-favre-mocked-sharing-gods-005310334.html)
 - Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
+- Nov 05 - [Greenfield fatal crash involving school bus, woman identified](https://www.yahoo.com/news/greenfield-fatal-crash-involving-school-222453914.html)
 <!-- feed end -->
 
 ### Onstream
