@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Child, 12, among the five killed in a plane crash shortly after takeoff](https://www.yahoo.com/news/five-killed-small-jet-crashes-163226516.html)
 - Nov 06 - [Gov. Tim Walz will face new era of divided government in Minnesota](https://www.yahoo.com/news/gov-tim-walz-face-era-212639801.html)
 - Nov 06 - [Ventura County fire fueled by powerful winds prompts evacuations](https://www.yahoo.com/news/ventura-county-fire-fueled-powerful-212357918.html)
-- Nov 06 - [Albemarle loses more than $1 billion on falling lithium prices](https://finance.yahoo.com/news/albemarle-loses-more-1-billion-212326317.html)
-- Nov 06 - [5 Santa Rosa residents dead following two murder-suicides in 24 hours](https://www.yahoo.com/news/5-santa-rosa-residents-dead-204158512.html)
 - Nov 06 - [New Heavyweight Chinese Jet Drone Looks To Be A Swarm Mothership](https://www.yahoo.com/news/heavyweight-chinese-jet-drone-looks-194334604.html)
+- Nov 06 - [Tourists Hit With Federal Charges After National Park Theft](https://www.yahoo.com/news/tourists-hit-federal-charges-national-182750096.html)
 <!-- feed end -->
 
 ### Onstream
