@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [McDonald’s Has a New $1 Deal You Can’t Pass Up—but Only for a Limited Time](https://www.yahoo.com/lifestyle/mcdonald-1-deal-t-pass-190000298.html)
+- Nov 06 - [RFK Jr. says ‘entire departments’ at FDA ‘have to go’](https://www.yahoo.com/news/rfk-jr-says-entire-departments-180927024.html)
+- Nov 06 - [Iranian student in underwear protest moved to 'specialised care centre': Iran Embassy in Paris](https://www.yahoo.com/news/iranian-student-underwear-protest-moved-174811011.html)
+- Nov 06 - [Boeing's Military Space Plane Just Slammed on the Brakes in Orbit](https://www.yahoo.com/news/boeings-military-space-plane-just-171740795.html)
 - Nov 06 - [Who won Arizona's Senate seat? What to know about the close race between Lake and Gallego](https://www.yahoo.com/news/won-arizonas-senate-seat-know-163635492.html)
-- Nov 06 - [Mark Cuban's Million-Dollar Advice To Teens: 'If I Were 16 Again, I'd Start This Lucrative Side Hustle'](https://finance.yahoo.com/news/mark-cubans-million-dollar-advice-155630384.html)
-- Nov 06 - [The first car made during Soviet-era in Poland goes on display 73 years later](https://www.yahoo.com/lifestyle/first-car-made-during-soviet-154200287.html)
-- Nov 06 - [Saturn's Moon Titan Captured By The James Webb Space Telescope](https://www.yahoo.com/news/saturns-moon-titan-captured-james-143000487.html)
-- Nov 06 - [Excavators Surprised by Ancient Viking Burial Ground’s Mysterious Carved Rocks](https://www.yahoo.com/news/excavators-surprised-ancient-viking-burial-140000127.html)
 <!-- feed end -->
 
 ### Onstream
