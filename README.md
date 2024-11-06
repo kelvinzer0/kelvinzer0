@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Iranian student in underwear protest moved to 'specialised care centre': Iran Embassy in Paris](https://www.yahoo.com/news/iranian-student-underwear-protest-moved-174811011.html)
+- Nov 06 - [UPDATE: Firefighters making good progress on stopping Valley Fire west of Anderson](https://www.yahoo.com/news/sheriffs-office-issues-evacuation-orders-171521992.html)
 - Nov 06 - [Who won Arizona's Senate seat? What to know about the close race between Lake and Gallego](https://www.yahoo.com/news/won-arizonas-senate-seat-know-163635492.html)
 - Nov 06 - [Mark Cuban's Million-Dollar Advice To Teens: 'If I Were 16 Again, I'd Start This Lucrative Side Hustle'](https://finance.yahoo.com/news/mark-cubans-million-dollar-advice-155630384.html)
 - Nov 06 - [The first car made during Soviet-era in Poland goes on display 73 years later](https://www.yahoo.com/lifestyle/first-car-made-during-soviet-154200287.html)
-- Nov 06 - [China’s ‘artificial sun’ gets a ‘super eye’ to boost fusion reactor monitoring](https://www.yahoo.com/news/china-artificial-sun-gets-super-154143705.html)
+- Nov 06 - [NHS nurse wrongly suspended for two years after patient claimed she was pregnant with his child](https://www.yahoo.com/news/nhs-nurse-wrongly-suspended-two-152454775.html)
 <!-- feed end -->
 
 ### Onstream
