@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Older Adults Are Revealing The "Crucial" Health Advice You Should Start Following ASAP, And I'm Taking Notes](https://www.yahoo.com/lifestyle/older-adults-revealing-crucial-health-121602178.html)
+- Nov 06 - [Eliminating This One Food From Your Diet Can Lower Your Cholesterol and Blood Pressure, According to Cardiologists](https://www.yahoo.com/lifestyle/eliminating-one-food-diet-lower-112500568.html)
 - Nov 06 - [Donald Trump Is the President-Elect -- but There's an Even Bigger Winner Today](https://finance.yahoo.com/news/donald-trump-president-elect-theres-111100460.html)
-- Nov 06 - [How Kamala Harris lost the election: The fatal flaws in a doomed election bid](https://www.yahoo.com/news/kamala-harris-lost-election-fatal-105809720.html)
-- Nov 06 - [Republicans take Senate majority for first time in 4 years](https://www.yahoo.com/news/republicans-win-back-u-senate-051216079.html)
-- Nov 06 - [Reporters share details of the memo sent to Harris campaign staffers](https://www.yahoo.com/news/reporters-share-details-memo-sent-043224302.html)
+- Nov 06 - [Kremlin aide says Germany car industry plight shows green transition risks](https://finance.yahoo.com/news/kremlin-aide-says-germany-car-110137899.html)
+- Nov 06 - [2-Year-Old Boy Found ‘Unclothed’ in 'Caged Area' Littered with Feces, 5 People Arrested: Police](https://www.yahoo.com/news/2-old-boy-found-unclothed-101220535.html)
+- Nov 06 - [‘Fish swimming in our backyards:’ Flooding causes extensive damage to Ewa Beach homes](https://www.yahoo.com/news/fish-swimming-backyards-flooding-causes-044758317.html)
 <!-- feed end -->
 
 ### Onstream
