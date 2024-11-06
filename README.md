@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 06 - [Rare November hurricane set to hit the US – here’s the projected path](https://www.yahoo.com/news/rare-november-hurricane-set-hit-222424494.html)
 - Nov 06 - [Former Sen. Claire McCaskill Says Americans Must Now Acknowledge 1 Heartbreaking Thing](https://www.yahoo.com/news/former-sen-claire-mccaskill-says-140755123.html)
-- Nov 06 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
+- Nov 06 - [Excavators Surprised by Ancient Viking Burial Ground’s Mysterious Carved Rocks](https://www.yahoo.com/news/excavators-surprised-ancient-viking-burial-140000127.html)
+- Nov 06 - [SC woman woke to find large snake behind toilet in apartment, sheriff’s department says](https://www.yahoo.com/news/sc-woman-woke-large-snake-130606439.html)
 - Nov 06 - [1 Word In French President’s Congratulatory Message To Trump Has People Howling](https://www.yahoo.com/news/1-word-french-president-congratulatory-125951834.html)
-- Nov 06 - [“Holy Smokes”: CNN’s Jake Tapper Goes Viral With Reaction To Kamala Harris’ Election Slump](https://www.yahoo.com/news/holy-smokes-cnn-jake-tapper-125503086.html)
 <!-- feed end -->
 
 ### Onstream
