@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Will Republicans or Democrats control US Congress in January? Here’s the latest](https://www.yahoo.com/news/republicans-democrats-control-u-congress-021232470.html)
-- Nov 06 - [Many Gen Z voters struggle to sign their names. That's becoming a problem as they cast their ballots.](https://www.yahoo.com/news/many-gen-z-voters-struggle-014359433.html)
+- Nov 06 - [Will Republicans or Democrats control US Congress in January? Here’s the latest](https://www.yahoo.com/news/republicans-democrats-control-u-congress-021232671.html)
+- Nov 05 - [Why Super Micro Computer's Stock Is Plunging After Its Business Update Tuesday](https://finance.yahoo.com/news/why-super-micro-computers-stock-223702573.html)
 - Nov 05 - ['Fat Leonard,' Navy contractor behind one of the military's biggest scandals, sentenced to 15 years](https://www.yahoo.com/news/fat-leonard-navy-contractor-behind-214810658.html)
-- Nov 05 - [DJT stock trading halts on Election Day volatility](https://finance.yahoo.com/video/djt-stock-trading-halts-election-204039210.html)
-- Nov 05 - [Amazon CEO denies full in-office mandate is 'backdoor layoff'](https://finance.yahoo.com/news/amazon-ceo-denies-full-office-202200567.html)
+- Nov 05 - [One of America's richest self-made women is a Chinese immigrant who once worked as a flea market seller](https://finance.yahoo.com/news/one-americas-richest-self-made-213323412.html)
+- Nov 05 - [Super Micro shares fall as server maker misses sales targets, annual filing uncertain](https://finance.yahoo.com/news/super-micro-says-cannot-predict-212522589.html)
 <!-- feed end -->
 
 ### Onstream
