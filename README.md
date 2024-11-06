@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [The 'rainy day fund' is dying out as Brits save for treats instead - poll](https://www.yahoo.com/news/rainy-day-fund-dying-brits-083200343.html)
-- Nov 06 - [Taiwan's military holds first live-fire drills with anti-tank rockets developed on the island](https://www.yahoo.com/news/taiwans-military-holds-first-live-075827088.html)
-- Nov 06 - [Donald Trump Wins Presidency In Remarkable White House Comeback](https://www.yahoo.com/news/donald-trump-wins-presidency-remarkable-072700546.html)
-- Nov 06 - [Harris doesn't speak as tearful supporters leave watch party](https://www.yahoo.com/news/harris-not-speak-tearful-supporters-055610442.html)
-- Nov 06 - [Reporters share details of the memo sent to Harris campaign staffers](https://www.yahoo.com/news/reporters-share-details-memo-sent-043224302.html)
+- Nov 06 - [World reacts to 2024 presidential election results](https://www.yahoo.com/news/world-reacts-2024-presidential-election-073133465.html)
+- Nov 06 - [Opinion: No Election Day result, but heavy Trump vote shows America has already lost](https://www.yahoo.com/news/opinion-no-election-day-result-064519185.html)
+- Nov 05 - [Spirit Aero raises doubts over ability to continue as going concern](https://finance.yahoo.com/news/spirit-aero-raises-doubts-over-222526828.html)
+- Nov 05 - [Tampa man charged after smuggling 2 100-gallon tanks of fuel in van: deputies](https://www.yahoo.com/news/tampa-man-charged-smuggling-2-215201092.html)
+- Nov 05 - [Amazon CEO denies full in-office mandate is 'backdoor layoff'](https://finance.yahoo.com/news/amazon-ceo-denies-full-office-202200567.html)
 <!-- feed end -->
 
 ### Onstream
