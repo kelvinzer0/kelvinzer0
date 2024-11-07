@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [Customers flock to 'Britain's cheapest chippy' selling meals for a PENNY](https://www.yahoo.com/news/customers-flock-britains-cheapest-chippy-080423068.html)
 - Nov 07 - [A tiny grain of nuclear fuel is pulled from ruined Japanese nuclear plant, in a step toward cleanup](https://www.yahoo.com/news/tiny-grain-nuclear-fuel-pulled-074955268.html)
-- Nov 07 - [UK house prices hit record high in October](https://uk.finance.yahoo.com/news/uk-house-prices-record-high-october-halifax-073125933.html)
-- Nov 07 - [Cuba's energy grid collapses as Hurricane Rafael hits](https://www.yahoo.com/news/cubas-energy-grid-collapses-hurricane-053248725.html)
+- Nov 07 - [Court drops all charges against a Thai woman in a 2015 bombing at a Bangkok shrine that killed 20](https://www.yahoo.com/news/court-drops-charges-against-thai-071342313.html)
 - Nov 07 - [Man who used legal loophole to live rent-free for years in NYC hotel found unfit to stand trial](https://www.yahoo.com/news/man-used-legal-loophole-live-024221267.html)
+- Nov 07 - [I Spent Weeks Near Death In The ICU. Asking My Doctors To Do This One Thing May Have Saved My Life.](https://www.yahoo.com/lifestyle/spent-weeks-near-death-icu-023103167.html)
+- Nov 07 - [Desperate search underway for 18-year-old missing in San Francisco since Halloween](https://www.yahoo.com/news/desperate-search-underway-18-old-020435676.html)
 <!-- feed end -->
 
 ### Onstream
