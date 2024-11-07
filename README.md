@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 07 - ['It was surreal.' Dozens injured in tour bus crash on I-490 in Rochester. What we know now](https://www.yahoo.com/news/surreal-dozens-injured-tour-bus-171018088.html)
+- Nov 07 - [Tourists stole historic artifacts after jumping fence at national park: authorities](https://www.yahoo.com/news/tourists-stole-historic-artifacts-jumping-161721473.html)
 - Nov 07 - [Simone Biles Issues Bold Message To Joe Biden After Donald Trump's Election Win](https://www.yahoo.com/news/simone-biles-issues-bold-message-161514621.html)
 - Nov 07 - [Pompeii DNA Overturns Long-Held Assumptions About Its Victims](https://www.yahoo.com/news/pompeii-dna-overturns-long-held-160027994.html)
-- Nov 07 - [6 Cars You Should Buy Now Before Prices Skyrocket in 2025](https://finance.yahoo.com/news/6-cars-buy-now-prices-170053809.html)
-- Nov 07 - [What a potential Fed rate cut could mean for the economy](https://www.yahoo.com/news/potential-fed-rate-cut-could-151502791.html)
+- Nov 07 - [Mexico appears to abandon its ‘hugs, not bullets’ strategy as bloodshed plagues the country](https://www.yahoo.com/news/mexico-appears-abandon-hugs-not-151531920.html)
 <!-- feed end -->
 
 ### Onstream
