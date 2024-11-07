@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [South Africa closes its border again with Mozambique, where post-election violence worsens](https://www.yahoo.com/news/south-africa-closes-border-again-130755982.html)
+- Nov 07 - [Mexico authorities find 11 bodies in violent Guerrero state, investigating as homicides](https://www.yahoo.com/news/mexico-authorities-11-bodies-violent-142524188.html)
+- Nov 07 - [Audi unveils new EV brand in China without four ring logo](https://finance.yahoo.com/news/audi-unveils-ev-brand-china-133247514.html)
+- Nov 07 - [Popular Cheeses Recalled Over Listeria Concerns—See a Full List Here](https://www.yahoo.com/news/popular-cheeses-recalled-over-listeria-133000354.html)
+- Nov 07 - [Florida now has 4 of the top 10 American cities where home prices are plummeting the most](https://finance.yahoo.com/news/florida-now-4-top-10-113200199.html)
 - Nov 07 - [Former Myrtle Beach pastor John-Paul Miller arrested. Here’s what we know](https://www.yahoo.com/news/former-myrtle-beach-pastor-john-112737065.html)
-- Nov 07 - [Generation X is gloomy, but their retirement reality may not bite](https://finance.yahoo.com/news/generation-x-is-gloomy-but-their-retirement-reality-may-not-bite-110007354.html)
-- Nov 07 - [Eight-hour Russian drone barrage puts Kyiv on edge](https://www.yahoo.com/news/eight-hour-russian-drone-barrage-105210246.html)
-- Nov 07 - [Wildfire tears through Southern California community after burning dozens of homes](https://www.yahoo.com/news/wild-winds-fuel-southern-california-080951026.html)
 <!-- feed end -->
 
 ### Onstream
