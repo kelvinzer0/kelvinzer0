@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [She helped thousands get COVID-19 shots. Now she's on the hook for $600K](https://www.yahoo.com/news/she-helped-thousands-covid-19-154617430.html)
-- Nov 07 - [Truist Financial Corporation (TFC) Makes It On UBS’ List Of Stocks For The AI, Growth & Low Rates Era](https://finance.yahoo.com/news/truist-financial-corporation-tfc-makes-151725011.html)
+- Nov 07 - [Young Thug Praises His Attorney While Encouraging Law Students Following Jail Release](https://www.yahoo.com/entertainment/young-thug-praises-attorney-while-160449836.html)
+- Nov 07 - [Pompeii DNA Overturns Long-Held Assumptions About Its Victims](https://www.yahoo.com/news/pompeii-dna-overturns-long-held-160027994.html)
 - Nov 07 - [Mexico appears to abandon its ‘hugs, not bullets’ strategy as bloodshed plagues the country](https://www.yahoo.com/news/mexico-appears-abandon-hugs-not-151531920.html)
-- Nov 07 - [What a potential Fed rate cut could mean for the economy](https://www.yahoo.com/news/potential-fed-rate-cut-could-151502791.html)
 - Nov 07 - [Lucid Motors starts taking orders for its existential Gravity SUV](https://finance.yahoo.com/news/lucid-motors-starts-taking-orders-150541017.html)
+- Nov 07 - [Israeli strike destroys Ottoman-era building near Baalbek ruins](https://www.yahoo.com/news/israeli-strike-destroys-ottoman-era-143344997.html)
 <!-- feed end -->
 
 ### Onstream
