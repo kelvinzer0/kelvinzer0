@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [Migrating supply chains out of China about national security, not just economics](https://finance.yahoo.com/news/migrating-supply-chains-china-national-183227741.html)
-- Nov 07 - [Ocasio-Cortez not going to ‘sugarcoat what we are all about to collectively experience’](https://www.yahoo.com/news/ocasio-cortez-not-going-sugarcoat-162158628.html)
+- Nov 07 - [Massive Chinese Anti-Drone High-Power Microwave Weapon Emerges](https://www.yahoo.com/news/massive-chinese-anti-drone-high-184746856.html)
+- Nov 07 - [Spain's catastrophic floods by the numbers: At least 219 dead, 93 missing and billions in damage](https://www.yahoo.com/news/spains-catastrophic-floods-numbers-least-180408399.html)
 - Nov 07 - [Tourists stole historic artifacts after jumping fence at national park: authorities](https://www.yahoo.com/news/tourists-stole-historic-artifacts-jumping-161721473.html)
-- Nov 07 - [Simone Biles Issues Bold Message To Joe Biden After Donald Trump's Election Win](https://www.yahoo.com/news/simone-biles-issues-bold-message-161514621.html)
-- Nov 07 - [Mountain Fire in Southern California 0% contained after growing incredibly fast](https://www.yahoo.com/news/mountain-fire-southern-california-0-160208341.html)
+- Nov 07 - [Pompeii DNA Overturns Long-Held Assumptions About Its Victims](https://www.yahoo.com/news/pompeii-dna-overturns-long-held-160027994.html)
+- Nov 07 - [Naples attorney in deadly hit/run appeals; wants daughter to testify](https://www.yahoo.com/news/naples-attorney-deadly-hit-run-154629727.html)
 <!-- feed end -->
 
 ### Onstream
