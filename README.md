@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [National Hurricane Center tracking Hurricane Rafael, disturbance in Caribbean](https://www.yahoo.com/news/national-hurricane-center-tracking-hurricane-120626088.html)
+- Nov 07 - [Thousands under evacuation orders in California as wildfires destroy homes](https://www.yahoo.com/news/thousands-under-evacuation-orders-california-130304424.html)
+- Nov 07 - [Editorial: California doesn't have to choose between public safety and criminal justice reform](https://www.yahoo.com/news/editorial-california-doesnt-choose-between-130003206.html)
+- Nov 07 - [Ask an Advisor: I Have $800k in a 401(k) and $5,270 Monthly From Social Security and a Pension. How Much Will I Pay in Taxes in Retirement?](https://finance.yahoo.com/news/ask-advisor-800k-401-k-123000445.html)
 - Nov 07 - [Former Myrtle Beach pastor John-Paul Miller arrested. Here’s what we know](https://www.yahoo.com/news/former-myrtle-beach-pastor-john-112737065.html)
-- Nov 07 - [Generation X is gloomy, but their retirement reality may not bite](https://finance.yahoo.com/news/generation-x-is-gloomy-but-their-retirement-reality-may-not-bite-110007354.html)
 - Nov 07 - [Eight-hour Russian drone barrage puts Kyiv on edge](https://www.yahoo.com/news/eight-hour-russian-drone-barrage-105210246.html)
-- Nov 07 - [A tiny grain of nuclear fuel is pulled from ruined Japanese nuclear plant, in a step toward cleanup](https://www.yahoo.com/news/tiny-grain-nuclear-fuel-pulled-074955268.html)
 <!-- feed end -->
 
 ### Onstream
