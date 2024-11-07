@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [A tiny grain of nuclear fuel is pulled from ruined Japanese nuclear plant, in a step toward cleanup](https://www.yahoo.com/news/tiny-grain-nuclear-fuel-pulled-074955268.html)
-- Nov 07 - [Court drops all charges against a Thai woman in a 2015 bombing at a Bangkok shrine that killed 20](https://www.yahoo.com/news/court-drops-charges-against-thai-071342313.html)
+- Nov 07 - [EU tariffs will not stop Chinese EVs from entering bloc, industry officials say at CIIE](https://finance.yahoo.com/news/eu-tariffs-not-stop-chinese-093000335.html)
+- Nov 07 - ['Different World' as Fire Creates Hazy Conditions in Ventura County](https://www.yahoo.com/news/different-world-fire-creates-hazy-092006929.html)
+- Nov 07 - [Mysterious black balls that washed up on Sydney beach were foul-smelling mini ‘fatbergs’](https://www.yahoo.com/news/mysterious-black-balls-washed-sydney-074909892.html)
+- Nov 07 - [A new law allows Israel to deport the relatives of attackers. Experts expect it to be struck down](https://www.yahoo.com/news/israel-passes-law-allow-deport-064847492.html)
 - Nov 07 - [Man who used legal loophole to live rent-free for years in NYC hotel found unfit to stand trial](https://www.yahoo.com/news/man-used-legal-loophole-live-024221267.html)
-- Nov 07 - [I Spent Weeks Near Death In The ICU. Asking My Doctors To Do This One Thing May Have Saved My Life.](https://www.yahoo.com/lifestyle/spent-weeks-near-death-icu-023103167.html)
-- Nov 07 - [Desperate search underway for 18-year-old missing in San Francisco since Halloween](https://www.yahoo.com/news/desperate-search-underway-18-old-020435676.html)
 <!-- feed end -->
 
 ### Onstream
