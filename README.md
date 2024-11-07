@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [Snow back on Mount Fuji after longest absence](https://www.yahoo.com/news/snow-back-mount-fuji-longest-060138167.html)
+- Nov 07 - [2024 will be world's hottest on record - EU scientists](https://www.yahoo.com/news/2024-worlds-hottest-record-eu-055612259.html)
+- Nov 07 - [Cuba left reeling after Category 3 hurricane ravages island and knocks out power grid](https://www.yahoo.com/news/cuba-left-reeling-category-3-041523364.html)
 - Nov 07 - [Man who used legal loophole to live rent-free for years in NYC hotel found unfit to stand trial](https://www.yahoo.com/news/man-used-legal-loophole-live-024221267.html)
-- Nov 07 - [Memphis musician Blake Rhea killed in shooting](https://www.yahoo.com/news/memphis-musician-blake-rhea-killed-023456943.html)
 - Nov 07 - [I Spent Weeks Near Death In The ICU. Asking My Doctors To Do This One Thing May Have Saved My Life.](https://www.yahoo.com/lifestyle/spent-weeks-near-death-icu-023103167.html)
-- Nov 06 - [Woman Says Partner Didn’t Ask Before Letting Son Invite Friends Over While She Recovered from Major Surgery](https://www.yahoo.com/lifestyle/woman-says-partner-didn-t-232200626.html)
-- Nov 06 - [Desperate Microsoft Will Pay $1,000,000 to Someone Who Actually Uses Bing](https://www.yahoo.com/tech/desperate-microsoft-pay-1-000-213804400.html)
 <!-- feed end -->
 
 ### Onstream
