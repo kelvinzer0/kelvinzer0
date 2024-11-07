@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Child, 12, among the five killed in a plane crash shortly after takeoff](https://www.yahoo.com/news/five-killed-small-jet-crashes-163226516.html)
+- Nov 07 - [Canada orders TikTok's Canadian business to be dissolved but won't block app](https://www.yahoo.com/news/canada-orders-tiktoks-canadian-business-003647937.html)
+- Nov 06 - [SpaceX to launch Starship for the sixth time this month](https://finance.yahoo.com/news/spacex-launch-starship-sixth-time-223753807.html)
 - Nov 06 - [Gov. Tim Walz will face new era of divided government in Minnesota](https://www.yahoo.com/news/gov-tim-walz-face-era-212639801.html)
-- Nov 06 - [Ventura County fire fueled by powerful winds prompts evacuations](https://www.yahoo.com/news/ventura-county-fire-fueled-powerful-212357918.html)
 - Nov 06 - [New Heavyweight Chinese Jet Drone Looks To Be A Swarm Mothership](https://www.yahoo.com/news/heavyweight-chinese-jet-drone-looks-194334604.html)
-- Nov 06 - [Tourists Hit With Federal Charges After National Park Theft](https://www.yahoo.com/news/tourists-hit-federal-charges-national-182750096.html)
+- Nov 06 - [Major Hurricane: Rafael upgraded to Category 3 with large shift in projected path](https://www.yahoo.com/news/major-hurricane-rafael-upgraded-category-185302988.html)
 <!-- feed end -->
 
 ### Onstream
