@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [Massive Chinese Anti-Drone High-Power Microwave Weapon Emerges](https://www.yahoo.com/news/massive-chinese-anti-drone-high-184746856.html)
-- Nov 07 - [Spain's catastrophic floods by the numbers: At least 219 dead, 93 missing and billions in damage](https://www.yahoo.com/news/spains-catastrophic-floods-numbers-least-180408399.html)
-- Nov 07 - [Tourists stole historic artifacts after jumping fence at national park: authorities](https://www.yahoo.com/news/tourists-stole-historic-artifacts-jumping-161721473.html)
-- Nov 07 - [Pompeii DNA Overturns Long-Held Assumptions About Its Victims](https://www.yahoo.com/news/pompeii-dna-overturns-long-held-160027994.html)
-- Nov 07 - [Naples attorney in deadly hit/run appeals; wants daughter to testify](https://www.yahoo.com/news/naples-attorney-deadly-hit-run-154629727.html)
+- Nov 07 - [Lucid beats revenue estimates, reaffirms annual production](https://finance.yahoo.com/news/lucid-beats-revenue-estimates-sticks-211009814.html)
+- Nov 07 - [Was the Zodiac killer a teacher in SLO County? A new Netflix documentary thinks so](https://www.yahoo.com/news/zodiac-killer-teacher-slo-county-210831605.html)
+- Nov 07 - [Putin says Ukraine must remain neutral for there to be peace](https://www.yahoo.com/news/putin-says-ukraine-must-remain-205809553.html)
+- Nov 07 - [Jay Powell says Donald Trump couldn't fire him even if he tried](https://finance.yahoo.com/news/jay-powell-says-donald-trump-couldnt-fire-him-even-if-he-tried-203952244.html)
+- Nov 07 - [Whoopi Goldberg calls out Sunny Hostin's interview question to “The View ”guest: 'Can you rephrase that?'](https://www.yahoo.com/entertainment/whoopi-goldberg-calls-sunny-hostins-201500509.html)
 <!-- feed end -->
 
 ### Onstream
