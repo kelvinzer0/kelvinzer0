@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [EU tariffs will not stop Chinese EVs from entering bloc, industry officials say at CIIE](https://finance.yahoo.com/news/eu-tariffs-not-stop-chinese-093000335.html)
-- Nov 07 - ['Different World' as Fire Creates Hazy Conditions in Ventura County](https://www.yahoo.com/news/different-world-fire-creates-hazy-092006929.html)
+- Nov 07 - [Billionaire Jeff Yass Sold 61% of Susquehanna's Stake in Palantir and Is Piling Into Another Headline-Grabbing Artificial Intelligence (AI) Stock](https://finance.yahoo.com/news/billionaire-jeff-yass-sold-61-102100714.html)
+- Nov 07 - [A tiny grain of nuclear fuel is pulled from ruined Japanese nuclear plant, in a step toward cleanup](https://www.yahoo.com/news/tiny-grain-nuclear-fuel-pulled-074955268.html)
 - Nov 07 - [Mysterious black balls that washed up on Sydney beach were foul-smelling mini ‘fatbergs’](https://www.yahoo.com/news/mysterious-black-balls-washed-sydney-074909892.html)
+- Nov 07 - [Israel signs $5.2 billion deal to acquire 25 F-15 fighter jets from Boeing](https://www.yahoo.com/news/israel-signs-deal-acquire-25-073036482.html)
 - Nov 07 - [A new law allows Israel to deport the relatives of attackers. Experts expect it to be struck down](https://www.yahoo.com/news/israel-passes-law-allow-deport-064847492.html)
-- Nov 07 - [Man who used legal loophole to live rent-free for years in NYC hotel found unfit to stand trial](https://www.yahoo.com/news/man-used-legal-loophole-live-024221267.html)
 <!-- feed end -->
 
 ### Onstream
