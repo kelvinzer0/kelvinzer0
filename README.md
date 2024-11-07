@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [Billionaire Jeff Yass Sold 61% of Susquehanna's Stake in Palantir and Is Piling Into Another Headline-Grabbing Artificial Intelligence (AI) Stock](https://finance.yahoo.com/news/billionaire-jeff-yass-sold-61-102100714.html)
+- Nov 07 - [National Hurricane Center tracking Hurricane Rafael, disturbance in Caribbean](https://www.yahoo.com/news/national-hurricane-center-tracking-hurricane-120626088.html)
+- Nov 07 - [Former Myrtle Beach pastor John-Paul Miller arrested. Here’s what we know](https://www.yahoo.com/news/former-myrtle-beach-pastor-john-112737065.html)
+- Nov 07 - [Generation X is gloomy, but their retirement reality may not bite](https://finance.yahoo.com/news/generation-x-is-gloomy-but-their-retirement-reality-may-not-bite-110007354.html)
+- Nov 07 - [Eight-hour Russian drone barrage puts Kyiv on edge](https://www.yahoo.com/news/eight-hour-russian-drone-barrage-105210246.html)
 - Nov 07 - [A tiny grain of nuclear fuel is pulled from ruined Japanese nuclear plant, in a step toward cleanup](https://www.yahoo.com/news/tiny-grain-nuclear-fuel-pulled-074955268.html)
-- Nov 07 - [Mysterious black balls that washed up on Sydney beach were foul-smelling mini ‘fatbergs’](https://www.yahoo.com/news/mysterious-black-balls-washed-sydney-074909892.html)
-- Nov 07 - [Israel signs $5.2 billion deal to acquire 25 F-15 fighter jets from Boeing](https://www.yahoo.com/news/israel-signs-deal-acquire-25-073036482.html)
-- Nov 07 - [A new law allows Israel to deport the relatives of attackers. Experts expect it to be struck down](https://www.yahoo.com/news/israel-passes-law-allow-deport-064847492.html)
 <!-- feed end -->
 
 ### Onstream
