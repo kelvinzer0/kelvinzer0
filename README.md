@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [Lucid beats revenue estimates, reaffirms annual production](https://finance.yahoo.com/news/lucid-beats-revenue-estimates-sticks-211009814.html)
-- Nov 07 - [Was the Zodiac killer a teacher in SLO County? A new Netflix documentary thinks so](https://www.yahoo.com/news/zodiac-killer-teacher-slo-county-210831605.html)
+- Nov 07 - [Navy fires CO of Naval Information Warfare Training Group San Diego](https://www.yahoo.com/news/navy-fires-co-naval-information-214108282.html)
+- Nov 07 - [Aldi to open five new stores, remodels two others](https://finance.yahoo.com/news/aldi-open-five-stores-remodels-212724854.html)
+- Nov 07 - [New details emerge in deadly Catalina Island plane crash off the Southern California coast](https://www.yahoo.com/news/details-emerge-deadly-catalina-island-211418833.html)
+- Nov 07 - [People react to Vanity Fair cover of Donald Trump after presidential election win](https://www.yahoo.com/entertainment/people-react-vanity-fair-cover-210107517.html)
 - Nov 07 - [Putin says Ukraine must remain neutral for there to be peace](https://www.yahoo.com/news/putin-says-ukraine-must-remain-205809553.html)
-- Nov 07 - [Jay Powell says Donald Trump couldn't fire him even if he tried](https://finance.yahoo.com/news/jay-powell-says-donald-trump-couldnt-fire-him-even-if-he-tried-203952244.html)
-- Nov 07 - [Whoopi Goldberg calls out Sunny Hostin's interview question to “The View ”guest: 'Can you rephrase that?'](https://www.yahoo.com/entertainment/whoopi-goldberg-calls-sunny-hostins-201500509.html)
 <!-- feed end -->
 
 ### Onstream
