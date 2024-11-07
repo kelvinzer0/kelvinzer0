@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 07 - [Man who used legal loophole to live rent-free for years in NYC hotel found unfit to stand trial](https://www.yahoo.com/news/man-used-legal-loophole-live-024221267.html)
-- Nov 06 - [Woman Says Partner Didn’t Ask Before Letting Son Invite Friends Over While She Recovered from Major Surgery](https://www.yahoo.com/lifestyle/woman-says-partner-didn-t-232200626.html)
 - Nov 06 - [SpaceX to launch Starship for the sixth time this month](https://finance.yahoo.com/news/spacex-launch-starship-sixth-time-223753807.html)
 - Nov 06 - [Mississippi man dies after being 'buried under hot asphalt' while repairing dump truck](https://www.yahoo.com/news/mississippi-man-dies-being-buried-213224256.html)
 - Nov 06 - [Gov. Tim Walz will face new era of divided government in Minnesota](https://www.yahoo.com/news/gov-tim-walz-face-era-212639801.html)
+- Nov 06 - [Docs: Fort Bliss soldier charged in fatal crash says he drank ‘a lot’ before passing out](https://www.yahoo.com/news/docs-fort-bliss-solider-charged-203600175.html)
 <!-- feed end -->
 
 ### Onstream
