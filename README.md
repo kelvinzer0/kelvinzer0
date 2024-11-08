@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Exclusive-Boeing close to funding agreement to help supplier Spirit Aero, source says](https://finance.yahoo.com/news/exclusive-boeing-close-funding-agreement-204817290.html)
-- Nov 08 - [The Best Early Black Friday Deals Available Now on Top-Rated Tech](https://www.yahoo.com/tech/best-early-black-friday-deals-180921312.html)
-- Nov 08 - [People Are Sharing Stories Of Trump Supporters Who Voted Waaaay Against Their Own Interests, And It's Wild](https://www.yahoo.com/news/people-sharing-stories-trump-supporters-180902431.html)
-- Nov 08 - [Helicopter, dive team searching Cape Cod Canal near Sagamore Bridge. What we know.](https://www.yahoo.com/news/helicopter-dive-team-searching-cape-175816564.html)
-- Nov 08 - [Wisconsin cold case solved 65 years later, revealing tragic death of adopted child](https://www.yahoo.com/news/wisconsin-cold-case-solved-65-171359107.html)
+- Nov 08 - [What Musk's ties to Trump could mean for Nvidia](https://finance.yahoo.com/video/musks-ties-trump-could-mean-213000479.html)
+- Nov 08 - [Brampton temple reinstates priest suspended after violent clash](https://www.yahoo.com/news/brampton-temple-reinstates-priest-suspended-204059375.html)
+- Nov 08 - [Oregon allegedly threatened to cancel season if beach volleyball players complained](https://www.yahoo.com/news/oregon-allegedly-threatened-cancel-season-191538102.html)
+- Nov 08 - [Meghan Markle Made a Surprise Appearance with Prince Harry—& I Noticed Something Interesting About Her Outfit](https://www.yahoo.com/entertainment/meghan-markle-made-surprise-appearance-190811103.html)
+- Nov 08 - [Father and daughter win $58,000 in lawsuit against man who claimed Manchester Arena bombing was hoax](https://www.yahoo.com/news/father-daughter-win-58-000-182440554.html)
 <!-- feed end -->
 
 ### Onstream
