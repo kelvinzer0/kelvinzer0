@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Savings interest rates today, November 8, 2024 (up to 5.05% APY return)](https://finance.yahoo.com/personal-finance/savings-interest-rates-today-friday-november-8-2024-110032456.html)
-- Nov 08 - [Japan vehicle market edges up in October](https://finance.yahoo.com/news/japan-vehicle-market-edges-october-103011584.html)
+- Nov 08 - [Russia's Yandex plans to invest in Indonesia's AI, minister says](https://finance.yahoo.com/news/russias-yandex-plans-invest-indonesias-114348665.html)
+- Nov 08 - [NC awards $249 million contract to widen one of Charlotte area’s worst congested roads](https://www.yahoo.com/news/nc-awards-249-million-contract-100000925.html)
 - Nov 08 - [Trump makes first cabinet pick, eyes Putin talks](https://www.yahoo.com/news/biden-address-americans-trump-storms-064711502.html)
-- Nov 08 - [Fisherman wrangles massive catfish in Downtown Wichita](https://sports.yahoo.com/fisherman-wrangles-massive-catfish-downtown-042802071.html)
-- Nov 08 - [Schoolteacher in Southern California charged with molesting student, 13, in car](https://www.yahoo.com/news/schoolteacher-southern-california-charged-molesting-031925596.html)
+- Nov 08 - [Video shows fatal altercation between neighbors in Volusia County](https://www.yahoo.com/news/video-shows-fatal-altercation-between-023351706.html)
+- Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822801.html)
 <!-- feed end -->
 
 ### Onstream
