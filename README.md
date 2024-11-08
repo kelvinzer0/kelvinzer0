@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Jews kicked, beaten and humiliated: How a night of ‘pogrom’ in Amsterdam unfolded](https://www.yahoo.com/news/jews-kicked-beaten-humiliated-night-174535021.html)
-- Nov 08 - [Black Friday deals include the 9th-gen iPad for a record low of $200](https://www.yahoo.com/tech/black-friday-deals-include-the-9th-gen-ipad-for-a-record-low-of-200-161404147.html)
-- Nov 08 - [It's becoming clearer how Ukraine's first attack on North Korean troops went down](https://www.yahoo.com/news/becoming-clearer-ukraines-first-attack-153229270.html)
-- Nov 08 - [A new warning from the FDA for GLP1 drugs including Ozempic and Wegovy](https://www.yahoo.com/news/warning-fda-glp1-drugs-including-151341880.html)
-- Nov 08 - [Russia launches world’s most powerful nuclear icebreaker with 350 MW thermal capacity](https://www.yahoo.com/news/russia-launches-world-most-powerful-133708171.html)
+- Nov 08 - [Meghan Markle Made a Surprise Appearance with Prince Harry—& I Noticed Something Interesting About Her Outfit](https://www.yahoo.com/entertainment/meghan-markle-made-surprise-appearance-190811103.html)
+- Nov 08 - [Officers find ‘no real firearms’ in home of Wisconsin teen arrested on suspicions of planning a school shooting](https://www.yahoo.com/news/wisconsin-school-staff-hailed-heroes-025537786.html)
+- Nov 08 - [Italian restaurant that arrived in Wichita five years ago is about to pack up, leave town](https://www.yahoo.com/news/italian-restaurant-arrived-wichita-five-185719511.html)
+- Nov 08 - [Revealed: How Pro-Palestinian mob organised via WhatsApp to ‘Hunt Jews’ across Amsterdam](https://www.yahoo.com/news/jews-kicked-beaten-humiliated-night-174535021.html)
+- Nov 08 - [Northerners living in Myrtle Beach may benefit financially from new spot in Grande Dunes](https://finance.yahoo.com/news/northerners-living-myrtle-beach-may-153818051.html)
 <!-- feed end -->
 
 ### Onstream
