@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [It's becoming clearer how Ukraine's first attack on North Korean troops went down](https://www.yahoo.com/news/becoming-clearer-ukraines-first-attack-153229270.html)
-- Nov 08 - [Philadelphia Motorcycle Cop Hit By Dirt Bike](https://autos.yahoo.com/philadelphia-motorcycle-cop-hit-dirt-153000128.html)
-- Nov 08 - [Russia launches world’s most powerful nuclear icebreaker with 350 MW thermal capacity](https://www.yahoo.com/news/russia-launches-world-most-powerful-133708171.html)
-- Nov 08 - [4 Sneaky Car Dealership Scams That Might Be Illegal in 2025](https://finance.yahoo.com/news/4-sneaky-car-dealership-scams-140036803.html)
+- Nov 08 - [Nvidia is part of the Dow: A look back on Big Tech in the index](https://finance.yahoo.com/video/nvidia-part-dow-look-back-162000408.html)
 - Nov 08 - [DNA analysis upends long-held assumptions about Pompeii victims’ final moments](https://www.yahoo.com/news/ancient-dna-rewrites-stories-people-113730479.html)
+- Nov 08 - [TKO’s Mark Shapiro: Vince McMahon ‘Couldn’t Have Been More Positive’ About WWE During Recent Meeting](https://www.yahoo.com/entertainment/tko-mark-shapiro-vince-mcmahon-160226966.html)
+- Nov 08 - [It's becoming clearer how Ukraine's first attack on North Korean troops went down](https://www.yahoo.com/news/becoming-clearer-ukraines-first-attack-153229270.html)
+- Nov 08 - [Russia launches world’s most powerful nuclear icebreaker with 350 MW thermal capacity](https://www.yahoo.com/news/russia-launches-world-most-powerful-133708171.html)
 <!-- feed end -->
 
 ### Onstream
