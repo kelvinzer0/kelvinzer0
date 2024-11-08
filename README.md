@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Trump makes first cabinet pick, eyes Putin talks](https://www.yahoo.com/news/biden-address-americans-trump-storms-064711502.html)
+- Nov 08 - [Israel to send planes to Amsterdam after violence against Israeli soccer fans](https://www.yahoo.com/news/israels-pm-aware-very-violent-043746547.html)
+- Nov 08 - [Colorado National Guard activated, disaster emergency declared for severe winter storm](https://www.yahoo.com/news/colorado-national-guard-activated-disaster-034956661.html)
 - Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822801.html)
-- Nov 08 - [Texas A&M regents overrule faculty, cut 52 “low-producing” programs including LGBTQ+ studies minor](https://www.yahoo.com/news/texas-m-regents-overrule-faculty-003239606.html)
 - Nov 07 - [We Finally Know What Switched on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-switched-lights-dawn-235950560.html)
-- Nov 07 - [Photo Raises Concern for Health of Stranded NASA Astronaut](https://www.yahoo.com/news/photo-raises-concern-health-stranded-224102031.html)
-- Nov 07 - [NYC ending controversial migrant debit card program](https://www.yahoo.com/news/nyc-ending-migrant-debit-card-213211205.html)
 <!-- feed end -->
 
 ### Onstream
