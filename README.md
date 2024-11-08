@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [Navy fires CO of Naval Information Warfare Training Group San Diego](https://www.yahoo.com/news/navy-fires-co-naval-information-214108282.html)
-- Nov 07 - [Aldi to open five new stores, remodels two others](https://finance.yahoo.com/news/aldi-open-five-stores-remodels-212724854.html)
-- Nov 07 - [New details emerge in deadly Catalina Island plane crash off the Southern California coast](https://www.yahoo.com/news/details-emerge-deadly-catalina-island-211418833.html)
-- Nov 07 - [People react to Vanity Fair cover of Donald Trump after presidential election win](https://www.yahoo.com/entertainment/people-react-vanity-fair-cover-210107517.html)
-- Nov 07 - [Putin says Ukraine must remain neutral for there to be peace](https://www.yahoo.com/news/putin-says-ukraine-must-remain-205809553.html)
+- Nov 08 - [Why Is Vistra Corp (VST) Among the Best Electricity Utility Stocks to Invest In Now?](https://finance.yahoo.com/news/why-vistra-corp-vst-among-005846149.html)
+- Nov 07 - [We Finally Know What Switched on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-switched-lights-dawn-235950560.html)
+- Nov 07 - [Mark Wahlberg’s new restaurant goes up in flames right before ribbon-cutting ceremony](https://www.yahoo.com/entertainment/mark-wahlberg-restaurant-goes-flames-232104503.html)
+- Nov 07 - [Photo Raises Concern for Health of Stranded NASA Astronaut](https://www.yahoo.com/news/photo-raises-concern-health-stranded-224102031.html)
+- Nov 07 - [What’s in store for Buffalo’s winter? The 4Warn Weather team offers predictions in our Winter Weather Special](https://www.yahoo.com/news/store-buffalo-winter-4warn-weather-215134144.html)
 <!-- feed end -->
 
 ### Onstream
