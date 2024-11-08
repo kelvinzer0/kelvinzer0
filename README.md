@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822801.html)
-- Nov 08 - [YouTube Star Andre Beadle Dead At 25 After Fatal Car Crash](https://www.yahoo.com/entertainment/youtube-star-andre-beadle-dead-001504712.html)
+- Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822996.html)
 - Nov 07 - [We Finally Know What Switched on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-switched-lights-dawn-235950560.html)
-- Nov 07 - [Fetterman criticizes AP for calling Pennsylvania Senate race](https://www.yahoo.com/news/fetterman-criticizes-ap-calling-pennsylvania-231945955.html)
+- Nov 07 - [Mark Wahlberg’s new restaurant goes up in flames right before ribbon-cutting ceremony](https://www.yahoo.com/entertainment/mark-wahlberg-restaurant-goes-flames-232104503.html)
 - Nov 07 - [Photo Raises Concern for Health of Stranded NASA Astronaut](https://www.yahoo.com/news/photo-raises-concern-health-stranded-224102031.html)
+- Nov 07 - [Rivian takes major revenue hit as supplier problem persists](https://finance.yahoo.com/news/rivian-takes-revenue-hit-supplier-211602924.html)
 <!-- feed end -->
 
 ### Onstream
