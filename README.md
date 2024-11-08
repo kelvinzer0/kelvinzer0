@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822801.html)
+- Nov 08 - [Defense asks judge to ban the death penalty for man charged in stabbing deaths of 4 Idaho students](https://www.yahoo.com/news/defense-asks-judge-ban-death-003231394.html)
 - Nov 08 - [MQ-20 Avenger First Drone Flown Using Navy’s Carrier-Based Control System](https://www.yahoo.com/news/mq-20-avenger-first-drone-002800353.html)
 - Nov 07 - [We Finally Know What Switched on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-switched-lights-dawn-235950560.html)
 - Nov 07 - [Photo Raises Concern for Health of Stranded NASA Astronaut](https://www.yahoo.com/news/photo-raises-concern-health-stranded-224102031.html)
-- Nov 07 - [Navy fires CO of Naval Information Warfare Training Group San Diego](https://www.yahoo.com/news/navy-fires-co-naval-information-214108282.html)
 <!-- feed end -->
 
 ### Onstream
