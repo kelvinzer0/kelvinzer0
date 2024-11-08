@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Jews kicked, beaten and humiliated: How a night of ‘pogrom’ in Amsterdam unfolded](https://www.yahoo.com/news/jews-kicked-beaten-humiliated-night-174535580.html)
-- Nov 08 - [SpaceX Tells Taiwanese Suppliers to Shift Production Off the Island](https://finance.yahoo.com/news/spacex-tells-taiwanese-suppliers-shift-153920949.html)
+- Nov 08 - [Jews kicked, beaten and humiliated: How a night of ‘pogrom’ in Amsterdam unfolded](https://www.yahoo.com/news/jews-kicked-beaten-humiliated-night-174535021.html)
+- Nov 08 - [Black Friday deals include the 9th-gen iPad for a record low of $200](https://www.yahoo.com/tech/black-friday-deals-include-the-9th-gen-ipad-for-a-record-low-of-200-161404147.html)
 - Nov 08 - [It's becoming clearer how Ukraine's first attack on North Korean troops went down](https://www.yahoo.com/news/becoming-clearer-ukraines-first-attack-153229270.html)
 - Nov 08 - [A new warning from the FDA for GLP1 drugs including Ozempic and Wegovy](https://www.yahoo.com/news/warning-fda-glp1-drugs-including-151341880.html)
 - Nov 08 - [Russia launches world’s most powerful nuclear icebreaker with 350 MW thermal capacity](https://www.yahoo.com/news/russia-launches-world-most-powerful-133708171.html)
