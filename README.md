@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [John Malkovich premiere sparks protests in Bulgaria](https://www.yahoo.com/news/john-malkovich-premiere-sparks-protests-140634165.html)
+- Nov 08 - [Russia launches world’s most powerful nuclear icebreaker with 350 MW thermal capacity](https://www.yahoo.com/news/russia-launches-world-most-powerful-133708171.html)
+- Nov 08 - [Massachusetts releases new high school graduation guidance after passage of ballot Question 2](https://www.yahoo.com/news/ma-releases-graduation-guidance-details-031917851.html)
+- Nov 08 - [DNA analysis upends long-held assumptions about Pompeii victims’ final moments](https://www.yahoo.com/news/ancient-dna-rewrites-stories-people-113730479.html)
 - Nov 08 - [‘Treated me like an insignificant cockroach’: JPMorgan Chase denies NY widow her husband’s $53K pension pot](https://finance.yahoo.com/news/treated-insignificant-cockroach-jpmorgan-chase-124600593.html)
-- Nov 08 - [TSMC to suspend production of advanced AI chips for China from Monday, FT reports](https://finance.yahoo.com/news/tsmc-suspend-production-advanced-ai-110135233.html)
-- Nov 08 - [NC awards $249 million contract to widen one of Charlotte area’s worst congested roads](https://www.yahoo.com/news/nc-awards-249-million-contract-100000925.html)
-- Nov 08 - [China’s rover uncovers compelling evidence of 3.5 billion-year-old Mars ocean](https://www.yahoo.com/news/china-rover-uncovers-compelling-evidence-090902000.html)
-- Nov 08 - [Man arrested after fleeing deputy at nearly 100 mph in Palm Desert](https://www.yahoo.com/news/man-arrested-fleeing-deputy-nearly-053454784.html)
 <!-- feed end -->
 
 ### Onstream
