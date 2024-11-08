@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Luxury shoemaker Manolo Blahnik enters China market after 22-year legal tussle](https://finance.yahoo.com/news/luxury-shoemaker-manolo-blahnik-enters-032615787.html)
-- Nov 08 - [Wisconsin school staff hailed as heroes for stopping ‘suspicious’ teen with bags from entering elementary campus](https://www.yahoo.com/news/wisconsin-school-staff-hailed-heroes-025537786.html)
-- Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822996.html)
-- Nov 08 - [Texas A&M regents overrule faculty, cut 52 “low-producing” programs including LGBTQ+ studies minor](https://www.yahoo.com/news/texas-m-regents-overrule-faculty-003239606.html)
+- Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822801.html)
+- Nov 08 - [MQ-20 Avenger First Drone Flown Using Navy’s Carrier-Based Control System](https://www.yahoo.com/news/mq-20-avenger-first-drone-002800353.html)
 - Nov 07 - [We Finally Know What Switched on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-switched-lights-dawn-235950560.html)
+- Nov 07 - [Photo Raises Concern for Health of Stranded NASA Astronaut](https://www.yahoo.com/news/photo-raises-concern-health-stranded-224102031.html)
+- Nov 07 - [Navy fires CO of Naval Information Warfare Training Group San Diego](https://www.yahoo.com/news/navy-fires-co-naval-information-214108282.html)
 <!-- feed end -->
 
 ### Onstream
