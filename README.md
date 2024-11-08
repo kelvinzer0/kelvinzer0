@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [What to know about the House push to expand some Social Security benefits](https://www.yahoo.com/news/know-house-push-expand-social-221527223.html)
 - Nov 08 - [What Musk's ties to Trump could mean for Nvidia](https://finance.yahoo.com/video/musks-ties-trump-could-mean-213000479.html)
-- Nov 08 - [Brampton temple reinstates priest suspended after violent clash](https://www.yahoo.com/news/brampton-temple-reinstates-priest-suspended-204059375.html)
-- Nov 08 - [Oregon allegedly threatened to cancel season if beach volleyball players complained](https://www.yahoo.com/news/oregon-allegedly-threatened-cancel-season-191538102.html)
-- Nov 08 - [Meghan Markle Made a Surprise Appearance with Prince Harry—& I Noticed Something Interesting About Her Outfit](https://www.yahoo.com/entertainment/meghan-markle-made-surprise-appearance-190811103.html)
-- Nov 08 - [Father and daughter win $58,000 in lawsuit against man who claimed Manchester Arena bombing was hoax](https://www.yahoo.com/news/father-daughter-win-58-000-182440554.html)
+- Nov 08 - [Penn State moves forward with public-private partnership for student housing development](https://www.yahoo.com/news/penn-state-moves-forward-public-205906145.html)
+- Nov 08 - [Man charged in York County standoff threatened to ‘kill anyone that’s not related,’ court docs say](https://www.yahoo.com/news/man-charged-york-county-standoff-205308586.html)
+- Nov 08 - [Man accused of raping student on Mary Baldwin University campus found not guilty](https://www.yahoo.com/news/man-accused-raping-student-mary-191412727.html)
 <!-- feed end -->
 
 ### Onstream
