@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Exclusive-India finds Zomato, Swiggy food delivery businesses breached antitrust laws, documents show](https://finance.yahoo.com/news/exclusive-indias-probe-finds-zomato-092717006.html)
 - Nov 08 - [Trump makes first cabinet pick, eyes Putin talks](https://www.yahoo.com/news/biden-address-americans-trump-storms-064711502.html)
-- Nov 08 - [Wisconsin school staff hailed as heroes for stopping ‘suspicious’ teen with bags from entering elementary campus](https://www.yahoo.com/news/wisconsin-school-staff-hailed-heroes-025537786.html)
-- Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822996.html)
-- Nov 07 - [We Finally Know What Switched on The Lights at The Dawn of Time](https://www.yahoo.com/news/finally-know-switched-lights-dawn-235950560.html)
-- Nov 07 - [Photo Raises Concern for Health of Stranded NASA Astronaut](https://www.yahoo.com/news/photo-raises-concern-health-stranded-224102031.html)
+- Nov 08 - [Diddy’s team ‘pissed’ about flash drive video claims: Lawyer](https://www.yahoo.com/news/diddy-team-pissed-flash-drive-052652955.html)
+- Nov 08 - [Boeing to repay furloughed staff, proceed with job cuts](https://finance.yahoo.com/news/boeing-repay-furloughed-workers-lost-013822801.html)
+- Nov 08 - [Highway 67 now designated as Interstate 57, will soon connect North Little Rock to Chicago](https://www.yahoo.com/news/highway-67-now-designated-interstate-005934941.html)
 <!-- feed end -->
 
 ### Onstream
