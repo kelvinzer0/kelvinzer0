@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Meghan Markle Made a Surprise Appearance with Prince Harry—& I Noticed Something Interesting About Her Outfit](https://www.yahoo.com/entertainment/meghan-markle-made-surprise-appearance-190811103.html)
-- Nov 08 - [Officers find ‘no real firearms’ in home of Wisconsin teen arrested on suspicions of planning a school shooting](https://www.yahoo.com/news/wisconsin-school-staff-hailed-heroes-025537786.html)
-- Nov 08 - [Italian restaurant that arrived in Wichita five years ago is about to pack up, leave town](https://www.yahoo.com/news/italian-restaurant-arrived-wichita-five-185719511.html)
-- Nov 08 - [Revealed: How Pro-Palestinian mob organised via WhatsApp to ‘Hunt Jews’ across Amsterdam](https://www.yahoo.com/news/jews-kicked-beaten-humiliated-night-174535021.html)
-- Nov 08 - [Northerners living in Myrtle Beach may benefit financially from new spot in Grande Dunes](https://finance.yahoo.com/news/northerners-living-myrtle-beach-may-153818051.html)
+- Nov 08 - [Exclusive-Boeing close to funding agreement to help supplier Spirit Aero, source says](https://finance.yahoo.com/news/exclusive-boeing-close-funding-agreement-204817290.html)
+- Nov 08 - [The Best Early Black Friday Deals Available Now on Top-Rated Tech](https://www.yahoo.com/tech/best-early-black-friday-deals-180921312.html)
+- Nov 08 - [People Are Sharing Stories Of Trump Supporters Who Voted Waaaay Against Their Own Interests, And It's Wild](https://www.yahoo.com/news/people-sharing-stories-trump-supporters-180902431.html)
+- Nov 08 - [Helicopter, dive team searching Cape Cod Canal near Sagamore Bridge. What we know.](https://www.yahoo.com/news/helicopter-dive-team-searching-cape-175816564.html)
+- Nov 08 - [Wisconsin cold case solved 65 years later, revealing tragic death of adopted child](https://www.yahoo.com/news/wisconsin-cold-case-solved-65-171359107.html)
 <!-- feed end -->
 
 ### Onstream
