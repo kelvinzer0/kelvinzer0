@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Aftermath of more Israeli airstrikes on Beirut's southern suburbs](https://www.yahoo.com/news/aftermath-more-israeli-airstrikes-beiruts-085502834.html)
 - Nov 08 - [Trump's shunning of transition planning may have severe consequences, governance group says](https://www.yahoo.com/news/trumps-shunning-transition-planning-may-221904264.html)
 - Nov 08 - [What to know about the House push to expand some Social Security benefits](https://www.yahoo.com/news/know-house-push-expand-social-221527223.html)
 - Nov 08 - [Bicyclist collapses, dies on southern Utah trail](https://www.yahoo.com/news/bicyclist-collapses-dies-southern-utah-215418670.html)
-- Nov 08 - [Amber Alert for abducted 13-year-old Columbus girl canceled after found safe in Springfield](https://www.yahoo.com/news/amber-alert-issued-abducted-13-212007656.html)
 - Nov 08 - [Sean 'Diddy' Combs seeks bail, citing changed circumstances and new evidence](https://www.yahoo.com/news/sean-diddy-combs-seeks-bail-210442076.html)
 <!-- feed end -->
 
