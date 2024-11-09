@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Florida Woman Steals C7 Corvette With $60,000 Cash Inside](https://autos.yahoo.com/florida-woman-steals-c7-corvette-213000055.html)
 - Nov 09 - [Republicans on brink of clinching US House control](https://www.yahoo.com/news/republicans-brink-clinching-us-house-161410769.html)
-- Nov 09 - [Warren Buffett Recommends Most Investors Buy This 1 Index Fund -- and It Could Turn $200 per Month Into $227,000 or More](https://finance.yahoo.com/news/warren-buffett-recommends-most-investors-160000958.html)
 - Nov 09 - [Saturday, Nov 9 update: Latest on Tropical Storm Rafael from the National Hurricane Center](https://www.yahoo.com/news/saturday-nov-9-latest-tropical-145503027.html)
-- Nov 09 - [Scientists Consider Drastic Action as Doomsday Glacier Threatens to Flood Entire Islands and Coasts](https://www.yahoo.com/news/scientists-consider-drastic-action-doomsday-143048063.html)
+- Nov 09 - [Astronomers Discover "Interstellar Tunnel" In Our Solar Neighborhood](https://www.yahoo.com/news/astronomers-discover-interstellar-tunnel-solar-130046276.html)
 - Nov 09 - [Woman Smoking Blows Up Her Dodge Charger](https://autos.yahoo.com/woman-smoking-blows-her-dodge-170000507.html)
 <!-- feed end -->
 
