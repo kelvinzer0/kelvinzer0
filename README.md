@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [Spaniards protest over handling of flood disaster](https://www.yahoo.com/news/thousands-protest-over-handling-spanish-190842197.html)
-- Nov 09 - [Is Tesla, Inc. (TSLA) the Best Stock to Buy and Hold for 5 Years?](https://finance.yahoo.com/news/tesla-inc-tsla-best-stock-190803129.html)
 - Nov 09 - [His wife was swept away by Hurricane Helene’s floodwaters. Now he’s been scammed out of nearly $40,000](https://www.yahoo.com/news/wife-swept-away-hurricane-helene-180048540.html)
-- Nov 09 - [A man who paid $200.57 for a night at a famous NYC hotel and then lived there rent-free for years is unfit to stand trial, court says](https://www.yahoo.com/news/man-paid-200-57-night-172048525.html)
-- Nov 09 - [CNN Panelists Engage in Screaming Match Over Trump’s Anti-Trans Ads](https://www.yahoo.com/news/cnn-panelists-engage-screaming-match-171116830.html)
+- Nov 09 - [Trump transition distances itself from Ukraine peace plan outlined by Republican strategist](https://www.yahoo.com/news/trump-adviser-says-priority-ukraine-173019059.html)
+- Nov 09 - [Family of 31-year-old American tourist killed in Hungary's capital mourns loss, suspect in custody](https://www.yahoo.com/news/suspect-arrested-over-killing-31-170611165.html)
+- Nov 09 - [Republicans on brink of clinching US House control](https://www.yahoo.com/news/republicans-brink-clinching-us-house-161410769.html)
+- Nov 09 - [What’s next for nuclear stocks after regulatory pushback?](https://finance.yahoo.com/news/whats-next-for-nuclear-stocks-after-regulatory-pushback-160027265.html)
 <!-- feed end -->
 
 ### Onstream
