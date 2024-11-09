@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [Russell Brand “Charged By UK Police In Matter Separate From Sexual Abuse Allegations” – report](https://www.yahoo.com/news/russell-brand-charged-uk-police-091414954.html)
+- Nov 08 - [Army says the US will restart domestic TNT production at plant to be built in Kentucky](https://www.yahoo.com/news/army-says-us-restart-domestic-235412669.html)
 - Nov 08 - [Trump's shunning of transition planning may have severe consequences, governance group says](https://www.yahoo.com/news/trumps-shunning-transition-planning-may-221904264.html)
 - Nov 08 - [What to know about the House push to expand some Social Security benefits](https://www.yahoo.com/news/know-house-push-expand-social-221527223.html)
-- Nov 08 - [Sean 'Diddy' Combs seeks bail, citing changed circumstances and new evidence](https://www.yahoo.com/news/sean-diddy-combs-seeks-bail-210442076.html)
-- Nov 08 - [Penn State moves forward with public-private partnership for student housing development](https://finance.yahoo.com/news/penn-state-moves-forward-public-205906145.html)
+- Nov 08 - [What to know about Seed to Table, a MAGA Trump-supporting gourmet produce store in Florida](https://www.yahoo.com/news/know-seed-table-maga-trump-221415258.html)
+- Nov 08 - [What Musk's ties to Trump could mean for Nvidia](https://finance.yahoo.com/video/musks-ties-trump-could-mean-213000479.html)
 <!-- feed end -->
 
 ### Onstream
