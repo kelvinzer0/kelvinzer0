@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [Florida Woman Steals C7 Corvette With $60,000 Cash Inside](https://autos.yahoo.com/florida-woman-steals-c7-corvette-213000055.html)
-- Nov 09 - [Republicans on brink of clinching US House control](https://www.yahoo.com/news/republicans-brink-clinching-us-house-161410769.html)
-- Nov 09 - [Saturday, Nov 9 update: Latest on Tropical Storm Rafael from the National Hurricane Center](https://www.yahoo.com/news/saturday-nov-9-latest-tropical-145503027.html)
-- Nov 09 - [Astronomers Discover "Interstellar Tunnel" In Our Solar Neighborhood](https://www.yahoo.com/news/astronomers-discover-interstellar-tunnel-solar-130046276.html)
-- Nov 09 - [Woman Smoking Blows Up Her Dodge Charger](https://autos.yahoo.com/woman-smoking-blows-her-dodge-170000507.html)
+- Nov 09 - [Spaniards protest over handling of flood disaster](https://www.yahoo.com/news/thousands-protest-over-handling-spanish-190842197.html)
+- Nov 09 - [Is Tesla, Inc. (TSLA) the Best Stock to Buy and Hold for 5 Years?](https://finance.yahoo.com/news/tesla-inc-tsla-best-stock-190803129.html)
+- Nov 09 - [His wife was swept away by Hurricane Helene’s floodwaters. Now he’s been scammed out of nearly $40,000](https://www.yahoo.com/news/wife-swept-away-hurricane-helene-180048540.html)
+- Nov 09 - [A man who paid $200.57 for a night at a famous NYC hotel and then lived there rent-free for years is unfit to stand trial, court says](https://www.yahoo.com/news/man-paid-200-57-night-172048525.html)
+- Nov 09 - [CNN Panelists Engage in Screaming Match Over Trump’s Anti-Trans Ads](https://www.yahoo.com/news/cnn-panelists-engage-screaming-match-171116830.html)
 <!-- feed end -->
 
 ### Onstream
