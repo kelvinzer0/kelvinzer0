@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [JPMorgan Nasdaq Equity Premium Income ETF: Good for Income, but It Comes With Risks](https://finance.yahoo.com/news/jpmorgan-nasdaq-equity-premium-income-210500614.html)
-- Nov 09 - [10 Dangerous Cities Where You Shouldn’t Buy a Home No Matter the Price](https://finance.yahoo.com/news/10-dangerous-cities-shouldn-t-180050061.html)
+- Nov 09 - [Tens of thousands protest in Valencia over floods](https://www.yahoo.com/news/tens-thousands-protest-valencia-over-214049033.html)
+- Nov 09 - [Harris Surrogate Says Joe Biden Gave a ‘Big F You’ to Fellow Democrats With Kamala Endorsement | Video](https://www.yahoo.com/news/harris-surrogate-says-joe-biden-194742912.html)
 - Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
 - Nov 09 - [Trump transition distances itself from Ukraine peace plan outlined by Republican strategist](https://www.yahoo.com/news/trump-adviser-says-priority-ukraine-173019059.html)
-- Nov 09 - [CNN Panelists Engage in Screaming Match Over Trump’s Anti-Trans Ads](https://www.yahoo.com/news/cnn-panelists-engage-screaming-match-171116830.html)
+- Nov 09 - [Family of 31-year-old American tourist killed in Hungary's capital mourns loss, suspect in custody](https://www.yahoo.com/news/suspect-arrested-over-killing-31-170611165.html)
 <!-- feed end -->
 
 ### Onstream
