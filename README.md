@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Looking for Passive Income? These 3 High-Yield Dividend Stocks Cut You a Check Monthly.](https://finance.yahoo.com/news/looking-passive-income-3-high-113000619.html)
 - Nov 08 - [Army says the US will restart domestic TNT production at plant to be built in Kentucky](https://www.yahoo.com/news/army-says-us-restart-domestic-235412669.html)
+- Nov 08 - [Mason Greenwood encouraged to sue Manchester United after Benjamin Mendy case](https://sports.yahoo.com/mason-greenwood-encouraged-sue-manchester-234500354.html)
 - Nov 08 - [Trump's shunning of transition planning may have severe consequences, governance group says](https://www.yahoo.com/news/trumps-shunning-transition-planning-may-221904264.html)
 - Nov 08 - [What to know about the House push to expand some Social Security benefits](https://www.yahoo.com/news/know-house-push-expand-social-221527223.html)
-- Nov 08 - [What to know about Seed to Table, a MAGA Trump-supporting gourmet produce store in Florida](https://www.yahoo.com/news/know-seed-table-maga-trump-221415258.html)
-- Nov 08 - [What Musk's ties to Trump could mean for Nvidia](https://finance.yahoo.com/video/musks-ties-trump-could-mean-213000479.html)
 <!-- feed end -->
 
 ### Onstream
