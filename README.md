@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Parked vehicle with gas cylinders explodes on NYC street, damaging homes and cars, officials say](https://www.yahoo.com/news/parked-vehicle-gas-cylinders-explodes-002711381.html)
 - Nov 08 - [What to know about the House push to expand some Social Security benefits](https://www.yahoo.com/news/know-house-push-expand-social-221527223.html)
 - Nov 08 - [What Musk's ties to Trump could mean for Nvidia](https://finance.yahoo.com/video/musks-ties-trump-could-mean-213000479.html)
-- Nov 08 - [Penn State moves forward with public-private partnership for student housing development](https://www.yahoo.com/news/penn-state-moves-forward-public-205906145.html)
-- Nov 08 - [Man charged in York County standoff threatened to ‘kill anyone that’s not related,’ court docs say](https://www.yahoo.com/news/man-charged-york-county-standoff-205308586.html)
-- Nov 08 - [Man accused of raping student on Mary Baldwin University campus found not guilty](https://www.yahoo.com/news/man-accused-raping-student-mary-191412727.html)
+- Nov 08 - [Sean 'Diddy' Combs seeks bail, citing changed circumstances and new evidence](https://www.yahoo.com/news/sean-diddy-combs-seeks-bail-210442076.html)
+- Nov 08 - [Obama relatives settle racial bias dispute with private school in Milwaukee](https://www.yahoo.com/news/obama-relatives-settle-racial-bias-210333331.html)
 <!-- feed end -->
 
 ### Onstream
