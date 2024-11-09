@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Nov 09 - [Helene killed more than 600,000 trout at an NC fish farm. How long will recovery take?](https://www.yahoo.com/news/helene-killed-more-600-000-153223487.html)
 - Nov 09 - [Woman Smoking Blows Up Her Dodge Charger](https://autos.yahoo.com/woman-smoking-blows-her-dodge-170000507.html)
 - Nov 09 - [Toyota aims to ramp up China production in a strategy pivot](https://finance.yahoo.com/news/exclusive-toyota-aims-ramp-china-094440400.html)
-- Nov 09 - [India says oil prices would have rocketed without its Russian imports](https://finance.yahoo.com/news/india-says-oil-prices-rocketed-050024096.html)
-- Nov 09 - [Guys Are Sharing Little Things Women Do That Give Them The Ick](https://www.yahoo.com/lifestyle/guys-sharing-little-things-women-031602495.html)
+- Nov 08 - [Army says the US will restart domestic TNT production at plant to be built in Kentucky](https://www.yahoo.com/news/army-says-us-restart-domestic-235412669.html)
+- Nov 08 - [Brawl at Pistons-Lakers game in Detroit leads to one arrest](https://sports.yahoo.com/brawl-pistons-lakers-game-detroit-235217302.html)
 <!-- feed end -->
 
 ### Onstream
