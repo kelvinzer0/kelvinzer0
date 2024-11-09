@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [A woman was murdered in 1974 while hitchhiking to a Chicago art show. 50 years later, investigators found her killer](https://www.yahoo.com/news/woman-murdered-1974-while-hitchhiking-022746305.html)
+- Nov 09 - [Guys Are Sharing Little Things Women Do That Give Them The Ick](https://www.yahoo.com/lifestyle/guys-sharing-little-things-women-031602495.html)
 - Nov 08 - [Trump's shunning of transition planning may have severe consequences, governance group says](https://www.yahoo.com/news/trumps-shunning-transition-planning-may-221904264.html)
 - Nov 08 - [What to know about the House push to expand some Social Security benefits](https://www.yahoo.com/news/know-house-push-expand-social-221527223.html)
-- Nov 08 - [What Musk's ties to Trump could mean for Nvidia](https://finance.yahoo.com/video/musks-ties-trump-could-mean-213000479.html)
-- Nov 08 - [Obama relatives settle racial bias dispute with private school in Milwaukee](https://www.yahoo.com/news/obama-relatives-settle-racial-bias-210333331.html)
+- Nov 08 - [What to know about Seed to Table, a MAGA Trump-supporting gourmet produce store in Florida](https://www.yahoo.com/news/know-seed-table-maga-trump-221415258.html)
+- Nov 08 - [Sheriff: Missing Green Lake kayaker planned his disappearance, likely in Eastern Europe](https://www.yahoo.com/news/sheriff-missing-green-lake-kayaker-221411336.html)
 <!-- feed end -->
 
 ### Onstream
