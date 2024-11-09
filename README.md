@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [A woman was murdered in 1974 while hitchhiking to a Chicago art show. 50 years later, investigators found her killer](https://www.yahoo.com/news/woman-murdered-1974-while-hitchhiking-022746305.html)
 - Nov 08 - [What to know about the House push to expand some Social Security benefits](https://www.yahoo.com/news/know-house-push-expand-social-221527223.html)
-- Nov 08 - [What to know about Seed to Table, a MAGA Trump-supporting gourmet produce store in Florida](https://www.yahoo.com/news/know-seed-table-maga-trump-221415258.html)
-- Nov 08 - [Sheriff: Missing Green Lake kayaker planned his disappearance, likely in Eastern Europe](https://www.yahoo.com/news/sheriff-missing-green-lake-kayaker-221411336.html)
+- Nov 08 - [What Musk's ties to Trump could mean for Nvidia](https://finance.yahoo.com/video/musks-ties-trump-could-mean-213000479.html)
 - Nov 08 - [Sean 'Diddy' Combs seeks bail, citing changed circumstances and new evidence](https://www.yahoo.com/news/sean-diddy-combs-seeks-bail-210442076.html)
-- Nov 08 - [Obama relatives settle racial bias dispute with private school in Milwaukee](https://www.yahoo.com/news/obama-relatives-settle-racial-bias-210333331.html)
+- Nov 08 - [Penn State moves forward with public-private partnership for student housing development](https://finance.yahoo.com/news/penn-state-moves-forward-public-205906145.html)
 <!-- feed end -->
 
 ### Onstream
