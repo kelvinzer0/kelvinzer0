@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [Helene killed more than 600,000 trout at an NC fish farm. How long will recovery take?](https://www.yahoo.com/news/helene-killed-more-600-000-153223487.html)
+- Nov 09 - [Republicans on brink of clinching US House control](https://www.yahoo.com/news/republicans-brink-clinching-us-house-161410769.html)
+- Nov 09 - [Warren Buffett Recommends Most Investors Buy This 1 Index Fund -- and It Could Turn $200 per Month Into $227,000 or More](https://finance.yahoo.com/news/warren-buffett-recommends-most-investors-160000958.html)
+- Nov 09 - [Saturday, Nov 9 update: Latest on Tropical Storm Rafael from the National Hurricane Center](https://www.yahoo.com/news/saturday-nov-9-latest-tropical-145503027.html)
+- Nov 09 - [Scientists Consider Drastic Action as Doomsday Glacier Threatens to Flood Entire Islands and Coasts](https://www.yahoo.com/news/scientists-consider-drastic-action-doomsday-143048063.html)
 - Nov 09 - [Woman Smoking Blows Up Her Dodge Charger](https://autos.yahoo.com/woman-smoking-blows-her-dodge-170000507.html)
-- Nov 09 - [Toyota aims to ramp up China production in a strategy pivot](https://finance.yahoo.com/news/exclusive-toyota-aims-ramp-china-094440400.html)
-- Nov 08 - [Army says the US will restart domestic TNT production at plant to be built in Kentucky](https://www.yahoo.com/news/army-says-us-restart-domestic-235412669.html)
-- Nov 08 - [Brawl at Pistons-Lakers game in Detroit leads to one arrest](https://sports.yahoo.com/brawl-pistons-lakers-game-detroit-235217302.html)
 <!-- feed end -->
 
 ### Onstream
