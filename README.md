@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [UK's Queen Camilla to miss Remembrance Day events due to chest infection](https://www.yahoo.com/news/uks-queen-camilla-miss-remembrance-135217386.html)
-- Nov 09 - [A Myrtle Beach hotel near the oceanfront is for sale. Here’s how much they’re asking](https://finance.yahoo.com/news/myrtle-beach-hotel-near-oceanfront-110000774.html)
-- Nov 09 - [Major Chinese manufacturer known for its budget TVs is entering the EV space — and its first car boasts some incredible specs](https://autos.yahoo.com/major-chinese-manufacturer-known-budget-103005448.html)
+- Nov 09 - [Rising smog levels shut down parks and public spaces in Lahore](https://www.yahoo.com/news/rising-smog-levels-shut-down-144904466.html)
+- Nov 09 - [Toyota aims to ramp up China production in a strategy pivot](https://finance.yahoo.com/news/exclusive-toyota-aims-ramp-china-094440400.html)
+- Nov 09 - [India says oil prices would have rocketed without its Russian imports](https://finance.yahoo.com/news/india-says-oil-prices-rocketed-050024096.html)
+- Nov 09 - [Guys Are Sharing Little Things Women Do That Give Them The Ick](https://www.yahoo.com/lifestyle/guys-sharing-little-things-women-031602495.html)
 - Nov 08 - [Army says the US will restart domestic TNT production at plant to be built in Kentucky](https://www.yahoo.com/news/army-says-us-restart-domestic-235412669.html)
-- Nov 08 - [Brawl at Pistons-Lakers game in Detroit leads to one arrest](https://sports.yahoo.com/brawl-pistons-lakers-game-detroit-235217302.html)
 <!-- feed end -->
 
 ### Onstream
