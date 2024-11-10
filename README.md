@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [Wordle hints today for #1,240: Clues and answer for Sunday, November 10](https://www.yahoo.com/tech/wordle-hints-today-for-1240-clues-and-answer-for-sunday-november-10-050200477.html)
 - Nov 10 - [Gallego defeats Lake in Arizona Senate race](https://www.yahoo.com/news/gallego-defeats-lake-arizona-senate-020050997.html)
-- Nov 09 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
+- Nov 09 - [Car rolls over inside Lancaster County covered bridge](https://www.yahoo.com/news/car-rolls-over-inside-lancaster-224601824.html)
+- Nov 09 - [Seattle getting new Trader Joe's location](https://www.yahoo.com/news/seattle-getting-trader-joes-location-224041629.html)
 - Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
-- Nov 09 - [His wife was swept away by Hurricane Helene’s floodwaters. Now he’s been scammed out of nearly $40,000](https://www.yahoo.com/news/wife-swept-away-hurricane-helene-180048540.html)
-- Nov 09 - [Trump transition distances itself from Ukraine peace plan outlined by Republican strategist](https://www.yahoo.com/news/trump-adviser-says-priority-ukraine-173019059.html)
 <!-- feed end -->
 
 ### Onstream
