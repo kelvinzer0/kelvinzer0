@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 10 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Nov 10 - [The Army's answer to a lack of recruits is a prep course to boost low scores. It's working](https://www.yahoo.com/news/armys-answer-lack-recruits-prep-124815618.html)
 - Nov 10 - [Aftermath of continued intensive Israeli airstrikes in Bekaa, Lebanon](https://www.yahoo.com/news/aftermath-continued-intensive-israeli-airstrikes-113757033.html)
 - Nov 10 - [Kevin O’Leary reveals the fastest way to make $1 million — and it's something every American can do](https://finance.yahoo.com/news/kevin-o-leary-reveals-fastest-105900960.html)
 - Nov 10 - [China delimits a contested South China Sea shoal in a dispute with Philippines](https://www.yahoo.com/news/china-delimits-contested-south-china-105051495.html)
-- Nov 10 - [Community scrambles after top insurance company refuses to pay out homeowners following destructive hurricane: 'Denied or closed with no payment'](https://www.yahoo.com/news/community-scrambles-top-insurance-company-104502294.html)
 <!-- feed end -->
 
 ### Onstream
