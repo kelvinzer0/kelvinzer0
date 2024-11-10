@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [6.8 magnitude earthquake shakes Cuba after hurricanes and blackouts](https://www.yahoo.com/news/6-8-magnitude-earthquake-shakes-180246898.html)
+- Nov 10 - [Trump Tells GOP to Bypass Senate Confirmation Process, Block Biden Judicial Appointments](https://www.yahoo.com/news/trump-tells-gop-bypass-senate-203827077.html)
+- Nov 10 - [Former Harris Director Says Biden Should Resign and Make VP the President | Video](https://www.yahoo.com/news/former-harris-director-says-biden-192755993.html)
+- Nov 10 - [Beach store in Cherry Grove, SC severely damaged after an overnight hit and run](https://www.yahoo.com/news/beach-store-cherry-grove-sc-180335397.html)
+- Nov 10 - [Invest 98L falls apart in the Atlantic](https://www.yahoo.com/news/invest-98l-falls-apart-atlantic-175446864.html)
 - Nov 10 - [Mark Cuban Reveals Regrettable Shark Tank Deal That 'Drives Him Crazy' Was A Chocolate Covered Pretzel Company Who Offered Free Shipping](https://finance.yahoo.com/news/mark-cuban-reveals-regrettable-shark-170319380.html)
-- Nov 10 - [Trump's plan for Social Security will help baby boomers in the short term and cut benefits for anyone younger](https://finance.yahoo.com/news/trumps-plan-social-security-help-170001080.html)
-- Nov 10 - [Supreme Court Justice Sonia Sotomayor to remain at post as some call for her to step down](https://www.yahoo.com/news/supreme-court-justice-sonia-sotomayor-165747262.html)
-- Nov 10 - [Starting a business? Don't be afraid to speak up](https://finance.yahoo.com/video/starting-business-dont-afraid-speak-190639871.html)
 <!-- feed end -->
 
 ### Onstream
