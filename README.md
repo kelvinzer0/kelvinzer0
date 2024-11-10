@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [Elizabeth II joked ‘at least my funeral won’t be organised by that idiot’ after Boris resigned](https://www.yahoo.com/lifestyle/queen-joked-least-funeral-won-190038171.html)
-- Nov 10 - [2 Numbers I'll Be Looking for on Nov. 20 When Nvidia Reports Earnings](https://finance.yahoo.com/news/2-numbers-ill-looking-nov-190000330.html)
+- Nov 10 - [Chrysler PT Cruiser Tries Running From Police](https://autos.yahoo.com/chrysler-pt-cruiser-tries-running-200000245.html)
+- Nov 10 - [Former Harris Director Says Biden Should Resign and Make VP the President | Video](https://www.yahoo.com/news/former-harris-director-says-biden-192755993.html)
 - Nov 10 - [6.8 magnitude earthquake shakes Cuba after hurricanes and blackouts](https://www.yahoo.com/news/6-8-magnitude-earthquake-shakes-180246898.html)
-- Nov 10 - [Trump's plan for Social Security will help baby boomers in the short term and cut benefits for anyone younger](https://finance.yahoo.com/news/trumps-plan-social-security-help-170001080.html)
-- Nov 10 - [Supreme Court Justice Sonia Sotomayor to remain at post as some call for her to step down](https://www.yahoo.com/news/supreme-court-justice-sonia-sotomayor-165747262.html)
+- Nov 10 - [Invest 98L falls apart in the Atlantic](https://www.yahoo.com/news/invest-98l-falls-apart-atlantic-175446864.html)
+- Nov 10 - [Mark Cuban Reveals Regrettable Shark Tank Deal That 'Drives Him Crazy' Was A Chocolate Covered Pretzel Company Who Offered Free Shipping](https://finance.yahoo.com/news/mark-cuban-reveals-regrettable-shark-170319380.html)
 <!-- feed end -->
 
 ### Onstream
