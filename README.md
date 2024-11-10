@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [Fresno Unified fired him. Now, he’s chairman of Valley Children’s and under scrutiny again](https://www.yahoo.com/news/fresno-unified-fired-him-now-152745312.html)
+- Nov 10 - [Days are numbered for an abandoned Eastern WA ‘blast from the wild wild West’](https://www.yahoo.com/news/days-numbered-abandoned-eastern-wa-150000155.html)
+- Nov 10 - [Young Black and Latino men say they chose Trump because of the economy and jobs. Here's how and why](https://www.yahoo.com/news/young-black-latino-men-chose-131554059.html)
 - Nov 10 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
-- Nov 10 - [The Army's answer to a lack of recruits is a prep course to boost low scores. It's working](https://www.yahoo.com/news/armys-answer-lack-recruits-prep-124815618.html)
-- Nov 10 - [I drove a $43,000 Toyota Camry and saw how the best-selling car in America is now even better](https://www.yahoo.com/news/drove-43-000-toyota-camry-115701357.html)
 - Nov 10 - [Former NBA star Kenny Smith says he learned this 1 crucial lesson from his billionaire college roommate](https://finance.yahoo.com/news/former-nba-star-kenny-smith-114700138.html)
-- Nov 10 - [China delimits a contested South China Sea shoal in a dispute with Philippines](https://www.yahoo.com/news/china-delimits-contested-south-china-105051495.html)
 <!-- feed end -->
 
 ### Onstream
