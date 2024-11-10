@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 10 - [Gallego defeats Lake in Arizona Senate race](https://www.yahoo.com/news/gallego-defeats-lake-arizona-senate-020050997.html)
 - Nov 10 - [Exclusive-US ordered TSMC to halt shipments to China of chips used in AI applications, source says](https://finance.yahoo.com/news/exclusive-us-ordered-tsmc-halt-003224141.html)
-- Nov 09 - [Harris Surrogate Says Joe Biden Gave a ‘Big F You’ to Fellow Democrats With Kamala Endorsement | Video](https://www.yahoo.com/news/harris-surrogate-says-joe-biden-194742912.html)
-- Nov 09 - [U.S. government issues travel warning for 3 more cruise ports](https://www.yahoo.com/lifestyle/u-government-issues-travel-warning-193040027.html)
-- Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
+- Nov 09 - [US firm sets record with plasma fusion temperature of 392 million degrees F for 24 hrs](https://www.yahoo.com/news/us-firm-sets-record-plasma-213547664.html)
+- Nov 09 - [Man dies after being approached by private security in Sacramento County](https://www.yahoo.com/news/man-dies-being-approached-private-212049193.html)
+- Nov 09 - [A Girl, 6, Was Brazenly Abducted from a Little League Game. Her Family Waited 30 Years for Suspect's Arrest](https://www.yahoo.com/news/girl-6-brazenly-abducted-little-200000886.html)
 <!-- feed end -->
 
 ### Onstream
