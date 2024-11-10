@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [Fresno Unified fired him. Now, he’s chairman of Valley Children’s and under scrutiny again](https://www.yahoo.com/news/fresno-unified-fired-him-now-152745312.html)
+- Nov 10 - [Mark Cuban Reveals Regrettable Shark Tank Deal That 'Drives Him Crazy' Was A Chocolate Covered Pretzel Company Who Offered Free Shipping](https://finance.yahoo.com/news/mark-cuban-reveals-regrettable-shark-170319380.html)
+- Nov 10 - [Supreme Court Justice Sonia Sotomayor to remain at post as some call for her to step down](https://www.yahoo.com/news/supreme-court-justice-sonia-sotomayor-165747262.html)
+- Nov 10 - [Scholz facing mounting pressure to bring forward German election](https://www.yahoo.com/news/scholz-facing-mounting-pressure-bring-164219241.html)
+- Nov 10 - [James Carville says Kamala Harris' failed campaign could be reduced to Sunny Hostin's question on 'The View'](https://www.yahoo.com/news/james-carville-says-kamala-harris-151647901.html)
 - Nov 10 - [Days are numbered for an abandoned Eastern WA ‘blast from the wild wild West’](https://www.yahoo.com/news/days-numbered-abandoned-eastern-wa-150000155.html)
-- Nov 10 - [Young Black and Latino men say they chose Trump because of the economy and jobs. Here's how and why](https://www.yahoo.com/news/young-black-latino-men-chose-131554059.html)
-- Nov 10 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
-- Nov 10 - [Former NBA star Kenny Smith says he learned this 1 crucial lesson from his billionaire college roommate](https://finance.yahoo.com/news/former-nba-star-kenny-smith-114700138.html)
 <!-- feed end -->
 
 ### Onstream
