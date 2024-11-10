@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Nov 10 - [Exclusive-US ordered TSMC to halt shipments to China of chips used in AI applications, source says](https://finance.yahoo.com/news/exclusive-us-ordered-tsmc-halt-003224141.html)
 - Nov 09 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
 - Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
-- Nov 09 - [His wife was swept away by Hurricane Helene’s floodwaters. Now he’s been scammed out of nearly $40,000](https://www.yahoo.com/news/wife-swept-away-hurricane-helene-180048540.html)
 - Nov 09 - [Trump transition distances itself from Ukraine peace plan outlined by Republican strategist](https://www.yahoo.com/news/trump-adviser-says-priority-ukraine-173019059.html)
+- Nov 09 - [Family of 31-year-old American tourist killed in Hungary's capital mourns loss, suspect in custody](https://www.yahoo.com/news/suspect-arrested-over-killing-31-170611165.html)
 <!-- feed end -->
 
 ### Onstream
