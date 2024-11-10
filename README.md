@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 10 - [Aftermath of Russian drone attack on Odesa, Ukraine](https://www.yahoo.com/news/aftermath-russian-drone-attack-odesa-105522928.html)
-- Nov 10 - [China delimits a contested South China Sea shoal in a dispute with Philippines](https://www.yahoo.com/news/china-delimits-contested-south-china-105051495.html)
-- Nov 10 - [Drones strike Moscow as top UK official highlights Russian casualties in Ukraine](https://www.yahoo.com/news/drones-strike-moscow-top-uk-094715583.html)
+- Nov 10 - [I moved my family to Puerto Rico for a job. They were miserable — and we returned to Pennsylvania after just a year.](https://www.yahoo.com/news/moved-family-puerto-rico-job-094101657.html)
+- Nov 10 - [California farmers enjoy pistachio boom, with much of it headed to China](https://finance.yahoo.com/news/california-farmers-enjoy-pistachio-boom-080012917.html)
 - Nov 10 - [Ukraine attacks Moscow with 34 drones, biggest strike on the Russian capital](https://www.yahoo.com/news/ukraines-drone-attack-forces-closure-062124487.html)
-- Nov 10 - [Gallego defeats Lake in Arizona Senate race](https://www.yahoo.com/news/gallego-defeats-lake-arizona-senate-020050997.html)
+- Nov 10 - [City of Las Vegas recovering after unexpected, record-breaking snow](https://www.yahoo.com/news/city-las-vegas-recovering-unexpected-050042378.html)
 <!-- feed end -->
 
 ### Onstream
