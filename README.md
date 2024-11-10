@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [Wordle hints today for #1,240: Clues and answer for Sunday, November 10](https://www.yahoo.com/tech/wordle-hints-today-for-1240-clues-and-answer-for-sunday-november-10-050200477.html)
+- Nov 10 - [Ukraine launches major drone attack on Moscow](https://www.yahoo.com/news/ukraines-drone-attack-forces-closure-062124487.html)
 - Nov 10 - [Gallego defeats Lake in Arizona Senate race](https://www.yahoo.com/news/gallego-defeats-lake-arizona-senate-020050997.html)
-- Nov 09 - [Car rolls over inside Lancaster County covered bridge](https://www.yahoo.com/news/car-rolls-over-inside-lancaster-224601824.html)
-- Nov 09 - [Seattle getting new Trader Joe's location](https://www.yahoo.com/news/seattle-getting-trader-joes-location-224041629.html)
-- Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
+- Nov 10 - ['The Worst Idea I've Ever Heard In My Life,' Suze Orman Responds To Listener About Selling Everything Within IRA And Reinvesting](https://finance.yahoo.com/news/worst-idea-ive-ever-heard-020026727.html)
+- Nov 10 - [Exclusive-US ordered TSMC to halt shipments to China of chips used in AI applications, source says](https://finance.yahoo.com/news/exclusive-us-ordered-tsmc-halt-003224141.html)
+- Nov 09 - [10 arrested in Tampa after investigators bust large ‘street takeover’](https://www.yahoo.com/news/10-arrested-tampa-investigators-bust-222424407.html)
 <!-- feed end -->
 
 ### Onstream
