@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [Ukraine launches major drone attack on Moscow](https://www.yahoo.com/news/ukraines-drone-attack-forces-closure-062124487.html)
 - Nov 10 - [Gallego defeats Lake in Arizona Senate race](https://www.yahoo.com/news/gallego-defeats-lake-arizona-senate-020050997.html)
-- Nov 09 - [10 arrested in Tampa after investigators bust large ‘street takeover’](https://www.yahoo.com/news/10-arrested-tampa-investigators-bust-222424407.html)
+- Nov 10 - [Exclusive-US ordered TSMC to halt shipments to China of chips used in AI applications, source says](https://finance.yahoo.com/news/exclusive-us-ordered-tsmc-halt-003224141.html)
+- Nov 09 - [Harris Surrogate Says Joe Biden Gave a ‘Big F You’ to Fellow Democrats With Kamala Endorsement | Video](https://www.yahoo.com/news/harris-surrogate-says-joe-biden-194742912.html)
 - Nov 09 - [U.S. government issues travel warning for 3 more cruise ports](https://www.yahoo.com/lifestyle/u-government-issues-travel-warning-193040027.html)
 - Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
 <!-- feed end -->
