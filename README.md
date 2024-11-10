@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [7 Reasons Millionaires Are Renting Their Dream Homes Even When They Can Afford To Buy](https://finance.yahoo.com/news/7-reasons-millionaires-renting-dream-130039191.html)
-- Nov 10 - [Dynatrace, Inc. Just Recorded A 8.8% EPS Beat: Here's What Analysts Are Forecasting Next](https://finance.yahoo.com/news/dynatrace-inc-just-recorded-8-122042526.html)
-- Nov 10 - [Former NBA star Kenny Smith says he learned this 1 crucial lesson from his billionaire college roommate](https://finance.yahoo.com/news/former-nba-star-kenny-smith-114700138.html)
-- Nov 10 - [There’s a Lot of Fighting Over Why Harris Lost. But Everyone Seems to Want to Avoid This Explanation.](https://www.yahoo.com/news/lot-fighting-over-why-harris-104500606.html)
-- Nov 10 - [Social Security Benefit Cuts May Be Coming Soon. Here's How to Plan for Them.](https://finance.yahoo.com/news/social-security-benefit-cuts-may-095400209.html)
+- Nov 10 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Nov 10 - [Aftermath of continued intensive Israeli airstrikes in Bekaa, Lebanon](https://www.yahoo.com/news/aftermath-continued-intensive-israeli-airstrikes-113757033.html)
+- Nov 10 - [Kevin O’Leary reveals the fastest way to make $1 million — and it's something every American can do](https://finance.yahoo.com/news/kevin-o-leary-reveals-fastest-105900960.html)
+- Nov 10 - [China delimits a contested South China Sea shoal in a dispute with Philippines](https://www.yahoo.com/news/china-delimits-contested-south-china-105051495.html)
+- Nov 10 - [Community scrambles after top insurance company refuses to pay out homeowners following destructive hurricane: 'Denied or closed with no payment'](https://www.yahoo.com/news/community-scrambles-top-insurance-company-104502294.html)
 <!-- feed end -->
 
 ### Onstream
