@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [Tens of thousands protest in Valencia over floods](https://www.yahoo.com/news/tens-thousands-protest-valencia-over-214049033.html)
-- Nov 09 - [Harris Surrogate Says Joe Biden Gave a ‘Big F You’ to Fellow Democrats With Kamala Endorsement | Video](https://www.yahoo.com/news/harris-surrogate-says-joe-biden-194742912.html)
+- Nov 09 - [Car rolls over inside Lancaster County covered bridge](https://www.yahoo.com/news/car-rolls-over-inside-lancaster-224601824.html)
+- Nov 09 - [10 arrested in Tampa after investigators bust large ‘street takeover’](https://www.yahoo.com/news/10-arrested-tampa-investigators-bust-222424407.html)
+- Nov 09 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
 - Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
 - Nov 09 - [Trump transition distances itself from Ukraine peace plan outlined by Republican strategist](https://www.yahoo.com/news/trump-adviser-says-priority-ukraine-173019059.html)
-- Nov 09 - [Family of 31-year-old American tourist killed in Hungary's capital mourns loss, suspect in custody](https://www.yahoo.com/news/suspect-arrested-over-killing-31-170611165.html)
 <!-- feed end -->
 
 ### Onstream
