@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 10 - [Gallego defeats Lake in Arizona Senate race](https://www.yahoo.com/news/gallego-defeats-lake-arizona-senate-020050997.html)
-- Nov 10 - [Exclusive-US ordered TSMC to halt shipments to China of chips used in AI applications, source says](https://finance.yahoo.com/news/exclusive-us-ordered-tsmc-halt-003224141.html)
-- Nov 09 - [Car rolls over inside Lancaster County covered bridge](https://www.yahoo.com/news/car-rolls-over-inside-lancaster-224601824.html)
-- Nov 09 - [10 arrested in Tampa after investigators bust large ‘street takeover’](https://www.yahoo.com/news/10-arrested-tampa-investigators-bust-222424407.html)
 - Nov 09 - [I’m a Money Expert: 4 Reasons You Should Stock Up on $100 Bills Before the Winter](https://finance.yahoo.com/news/m-money-expert-4-reasons-140116476.html)
+- Nov 09 - [Deadly crash in Las Vegas leaves 2 young people dead](https://www.yahoo.com/news/deadly-crash-las-vegas-leaves-181000844.html)
+- Nov 09 - [His wife was swept away by Hurricane Helene’s floodwaters. Now he’s been scammed out of nearly $40,000](https://www.yahoo.com/news/wife-swept-away-hurricane-helene-180048540.html)
+- Nov 09 - [Trump transition distances itself from Ukraine peace plan outlined by Republican strategist](https://www.yahoo.com/news/trump-adviser-says-priority-ukraine-173019059.html)
 <!-- feed end -->
 
 ### Onstream
