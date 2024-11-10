@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [Aftermath of Russian drone attack on Odesa, Ukraine](https://www.yahoo.com/news/aftermath-russian-drone-attack-odesa-105522928.html)
+- Nov 10 - [China delimits a contested South China Sea shoal in a dispute with Philippines](https://www.yahoo.com/news/china-delimits-contested-south-china-105051495.html)
+- Nov 10 - [Drones strike Moscow as top UK official highlights Russian casualties in Ukraine](https://www.yahoo.com/news/drones-strike-moscow-top-uk-094715583.html)
+- Nov 10 - [Ukraine attacks Moscow with 34 drones, biggest strike on the Russian capital](https://www.yahoo.com/news/ukraines-drone-attack-forces-closure-062124487.html)
 - Nov 10 - [Gallego defeats Lake in Arizona Senate race](https://www.yahoo.com/news/gallego-defeats-lake-arizona-senate-020050997.html)
-- Nov 10 - [Exclusive-US ordered TSMC to halt shipments to China of chips used in AI applications, source says](https://finance.yahoo.com/news/exclusive-us-ordered-tsmc-halt-003224141.html)
-- Nov 09 - [US firm sets record with plasma fusion temperature of 392 million degrees F for 24 hrs](https://www.yahoo.com/news/us-firm-sets-record-plasma-213547664.html)
-- Nov 09 - [Man dies after being approached by private security in Sacramento County](https://www.yahoo.com/news/man-dies-being-approached-private-212049193.html)
-- Nov 09 - [A Girl, 6, Was Brazenly Abducted from a Little League Game. Her Family Waited 30 Years for Suspect's Arrest](https://www.yahoo.com/news/girl-6-brazenly-abducted-little-200000886.html)
 <!-- feed end -->
 
 ### Onstream
