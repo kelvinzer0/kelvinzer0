@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Houthis claim ‘Palestine 2’ missile hit Israeli military base](https://www.yahoo.com/news/houthis-claim-palestine-2-missile-125144861.html)
+- Nov 11 - [Suspect in Liam Payne Death Says He Didn’t Supply Singer With Drugs](https://www.yahoo.com/news/suspect-liam-payne-death-says-134732092.html)
+- Nov 11 - [How Much Money Do McDonald's Franchise Owners Make?](https://finance.yahoo.com/news/much-money-mcdonalds-franchise-owners-125536796.html)
 - Nov 11 - [Trump is already wielding power and causing massive disruption](https://www.yahoo.com/news/trump-already-wielding-power-causing-050048064.html)
-- Nov 11 - [Gaza mother struggling to feed children says only death can end their suffering](https://www.yahoo.com/news/gaza-mother-struggling-feed-children-120806272.html)
-- Nov 11 - [At least three killed in Israeli strike on Gaza's Nuseirat refugee camp](https://www.yahoo.com/news/least-three-killed-israeli-strike-115534637.html)
-- Nov 11 - [Missing Father of 3 Faked His Disappearance in Kayak Accident and Fled to Europe: Police](https://www.yahoo.com/news/missing-father-3-faked-disappearance-113123244.html)
+- Nov 11 - [Bleeding and in pain, a woman endured a harrowing wait for miscarriage care due to Georgia’s restrictive abortion law](https://www.yahoo.com/news/bleeding-pain-woman-endured-harrowing-113048010.html)
+- Nov 11 - [China unveils long-range drone with 22,000-pound payload power, 575 mph speed](https://www.yahoo.com/news/china-unveils-long-range-drone-110433351.html)
 <!-- feed end -->
 
 ### Onstream
