@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Rays SS Wander Franco arrested in Dominican Republic after altercation with police](https://sports.yahoo.com/rays-ss-wander-franco-arrested-in-dominican-republic-after-altercation-with-police-165238508.html)
-- Nov 11 - [Scientists uncover a magnetic misunderstanding about Uranus](https://www.yahoo.com/news/scientists-uncover-magnetic-misunderstanding-uranus-160533296.html)
-- Nov 11 - [A Cary doctor, haunted by the carnage he saw in Gaza, hopes spreading the word may end it | Opinion](https://www.yahoo.com/news/cary-doctor-haunted-carnage-saw-153148758.html)
-- Nov 11 - [The 10 best hospitals in Massachusetts, according to new national ranking](https://www.yahoo.com/news/10-best-hospitals-massachusetts-according-152934812.html)
-- Nov 11 - [Man killed in Tuskegee University shooting in Alabama is identified. 16 others were hurt](https://www.yahoo.com/news/man-killed-tuskegee-university-shooting-151858659.html)
+- Nov 11 - [Gunfire hits Spirit Airlines flight arriving in Port-au-Prince; plane lands in Dominican Republic](https://www.yahoo.com/news/gunfire-hits-spirit-airlines-flight-174034040.html)
+- Nov 11 - [New Hartford hopes to open humane society by mid-January. What you need to know](https://www.yahoo.com/news/hartford-hopes-open-humane-society-172040846.html)
+- Nov 11 - [Watch This Amazing James Webb 4K Space Telescope View Of The Cosmic Cliffs](https://www.yahoo.com/news/watch-amazing-james-webb-4k-170000654.html)
+- Nov 11 - [Ukraine says it cracked open a Russian decoy drone used to fool air defenses and found Western parts inside](https://www.yahoo.com/news/ukraine-says-cracked-open-russian-164327759.html)
+- Nov 11 - [Philly bridges to close as historic SS United States moves Friday from South Philly](https://www.yahoo.com/news/philly-bridges-close-historic-ss-163637751.html)
 <!-- feed end -->
 
 ### Onstream
