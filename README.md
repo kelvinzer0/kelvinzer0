@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [How ‘slow shopping’ will affect holiday spending](https://www.yahoo.com/lifestyle/slow-shopping-affect-holiday-spending-091102433.html)
 - Nov 11 - [China chip index nears 3-year high as TSMC order fuels self-reliance bets](https://finance.yahoo.com/news/china-chip-index-nears-3-074327739.html)
-- Nov 11 - [No Russian missile attack on Ukraine after country put on high alert](https://www.yahoo.com/news/blasts-heard-kyiv-power-cut-052959995.html)
+- Nov 11 - [Traumatized by war, invisible wounds linger longer than physical for hundreds of Lebanon's children](https://www.yahoo.com/news/traumatized-war-invisible-wounds-linger-053555907.html)
 - Nov 11 - [Trump is already wielding power and causing massive disruption](https://www.yahoo.com/news/trump-already-wielding-power-causing-050048064.html)
 - Nov 11 - [Mattel Pulls ‘Wicked’ Dolls After Mistakenly Listing Adult Porn Site on Packaging](https://www.yahoo.com/entertainment/mattel-pulls-wicked-dolls-mistakenly-024051291.html)
-- Nov 11 - [China's J-35A stealth fighter is 'black box' despite splashy debut](https://www.yahoo.com/news/chinas-j-35a-stealth-fighter-000710334.html)
 <!-- feed end -->
 
 ### Onstream
