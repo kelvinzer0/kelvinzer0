@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Microsoft's OpenAI Adopts New Methods as AI Model Performance Slows](https://finance.yahoo.com/news/microsofts-openai-adopts-methods-ai-191810647.html)
-- Nov 11 - [‘They were trying to drag me like I was their dinner’: Woman recounts how her brother was mauled to death by dogs for 23-minutes](https://www.yahoo.com/news/were-trying-drag-dinner-woman-190532833.html)
-- Nov 11 - [October CPI: What is it and what does it mean for inflation?](https://finance.yahoo.com/video/october-cpi-does-mean-inflation-183000953.html)
-- Nov 11 - [Boeing commercial airplanes quality chief to retire in December](https://finance.yahoo.com/news/boeing-commercial-airplanes-quality-chief-181309227.html)
-- Nov 11 - [2025 Medicare Part B premium increase outpaces both Social Security COLA and inflation](https://finance.yahoo.com/news/2025-medicare-part-b-premium-181112073.html)
+- Nov 11 - [Sara Sharif's dad 'threatened to kill ex-partners'](https://www.yahoo.com/news/sara-sharifs-dad-threatened-kill-201903129.html)
+- Nov 11 - [Tuskegee student reflects on deadly weekend violence on campus](https://www.yahoo.com/news/tuskegee-student-reflects-deadly-weekend-201607077.html)
+- Nov 11 - [Miss Universe Contestant Booted From Competition Over ‘Personal’ Scandal](https://www.yahoo.com/entertainment/miss-universe-contestant-booted-competition-200251597.html)
+- Nov 11 - [Thousands rally in Georgia to question the vote and demand a new election](https://www.yahoo.com/news/thousands-rally-georgia-vote-demand-195131592.html)
+- Nov 11 - [Gusting winds cause power outages in Northern Michigan](https://www.yahoo.com/news/gusting-winds-cause-power-outages-190957010.html)
 <!-- feed end -->
 
 ### Onstream
