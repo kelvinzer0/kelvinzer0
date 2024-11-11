@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Greta Thunberg protests against Azerbaijan hosting global climate summit](https://www.yahoo.com/news/greta-thunberg-protests-against-azerbaijan-183529981.html)
+- Nov 11 - [Microsoft's OpenAI Adopts New Methods as AI Model Performance Slows](https://finance.yahoo.com/news/microsofts-openai-adopts-methods-ai-191810647.html)
+- Nov 11 - [‘They were trying to drag me like I was their dinner’: Woman recounts how her brother was mauled to death by dogs for 23-minutes](https://www.yahoo.com/news/were-trying-drag-dinner-woman-190532833.html)
 - Nov 11 - [October CPI: What is it and what does it mean for inflation?](https://finance.yahoo.com/video/october-cpi-does-mean-inflation-183000953.html)
-- Nov 11 - [Former Jaguars head coach Jack Del Rio arrested for operating while impaired in Wisconsin](https://www.yahoo.com/news/former-jaguars-head-coach-jack-182335923.html)
-- Nov 11 - [Gunfire hits Spirit Airlines flight arriving in Port-au-Prince; plane lands in Dominican Republic](https://www.yahoo.com/news/gunfire-hits-spirit-airlines-flight-174034040.html)
-- Nov 11 - [Philly bridges to close as historic SS United States moves Friday from South Philly](https://www.yahoo.com/news/philly-bridges-close-historic-ss-163637751.html)
+- Nov 11 - [Boeing commercial airplanes quality chief to retire in December](https://finance.yahoo.com/news/boeing-commercial-airplanes-quality-chief-181309227.html)
+- Nov 11 - [2025 Medicare Part B premium increase outpaces both Social Security COLA and inflation](https://finance.yahoo.com/news/2025-medicare-part-b-premium-181112073.html)
 <!-- feed end -->
 
 ### Onstream
