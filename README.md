@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Tuskegee University president says campus is no longer open, a day after fatal shooting](https://www.yahoo.com/news/tuskegee-university-president-says-campus-214234851.html)
+- Nov 11 - [Fort Lauderdale woman receives racist text ordering her to go to ‘the nearest plantation’](https://www.yahoo.com/news/fort-lauderdale-woman-received-racist-222445040.html)
+- Nov 11 - [One Injured After Russia Strikes Residential Region of Kramatorsk](https://www.yahoo.com/news/one-injured-russia-strikes-residential-222231843.html)
+- Nov 11 - [Why severe weather events are a 'tailwind' for infrastructure](https://finance.yahoo.com/video/why-severe-weather-events-tailwind-221342271.html)
 - Nov 11 - [Trump transition official warns Justice Dept staff against 'resistance'](https://www.yahoo.com/news/trump-transition-official-warns-justice-202238104.html)
-- Nov 11 - [For the First Time Ever, Scientists Have Witnessed the Birth of a Heavy Atom](https://www.yahoo.com/news/first-time-ever-scientists-witnessed-201300311.html)
-- Nov 11 - [Thousands rally in Georgia to question the vote and demand a new election](https://www.yahoo.com/news/thousands-rally-georgia-vote-demand-195131592.html)
-- Nov 11 - [These Jokes About The Escaped Monkeys In South Carolina Are, Unfortunately, Very Funny](https://www.yahoo.com/entertainment/im-sorry-jokes-escaped-monkeys-182802770.html)
+- Nov 11 - [Names of lynching victims painted on sign of new Publix under construction in Newberry](https://www.yahoo.com/news/names-lynching-victims-painted-sign-195819578.html)
 <!-- feed end -->
 
 ### Onstream
