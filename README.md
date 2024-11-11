@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [A Cary doctor, haunted by the carnage he saw in Gaza, hopes spreading the word may end it | Opinion](https://www.yahoo.com/news/cary-doctor-haunted-carnage-saw-153148721.html)
+- Nov 11 - [Rays SS Wander Franco arrested in Dominican Republic after altercation with police](https://sports.yahoo.com/rays-ss-wander-franco-arrested-in-dominican-republic-after-altercation-with-police-165238508.html)
+- Nov 11 - [Scientists uncover a magnetic misunderstanding about Uranus](https://www.yahoo.com/news/scientists-uncover-magnetic-misunderstanding-uranus-160533296.html)
+- Nov 11 - [A Cary doctor, haunted by the carnage he saw in Gaza, hopes spreading the word may end it | Opinion](https://www.yahoo.com/news/cary-doctor-haunted-carnage-saw-153148758.html)
+- Nov 11 - [The 10 best hospitals in Massachusetts, according to new national ranking](https://www.yahoo.com/news/10-best-hospitals-massachusetts-according-152934812.html)
 - Nov 11 - [Man killed in Tuskegee University shooting in Alabama is identified. 16 others were hurt](https://www.yahoo.com/news/man-killed-tuskegee-university-shooting-151858659.html)
-- Nov 11 - [It’s Veterans Day. Here is what to say to a veteran](https://www.yahoo.com/news/veterans-day-veteran-151243516.html)
-- Nov 11 - [NASA Still Trying to Figure Out Why Astronaut Was Hospitalized After Return to Earth](https://www.yahoo.com/news/nasa-still-trying-figure-why-142316594.html)
-- Nov 11 - [Tropical system could form in Caribbean this week](https://www.yahoo.com/news/tropical-system-could-form-caribbean-132346280.html)
 <!-- feed end -->
 
 ### Onstream
