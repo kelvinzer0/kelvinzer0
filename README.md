@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [Houthis claim ‘Palestine 2’ missile hit Israeli military base](https://www.yahoo.com/news/houthis-claim-palestine-2-missile-125144861.html)
+- Nov 11 - [Trump is already wielding power and causing massive disruption](https://www.yahoo.com/news/trump-already-wielding-power-causing-050048064.html)
+- Nov 11 - [Gaza mother struggling to feed children says only death can end their suffering](https://www.yahoo.com/news/gaza-mother-struggling-feed-children-120806272.html)
+- Nov 11 - [At least three killed in Israeli strike on Gaza's Nuseirat refugee camp](https://www.yahoo.com/news/least-three-killed-israeli-strike-115534637.html)
 - Nov 11 - [Missing Father of 3 Faked His Disappearance in Kayak Accident and Fled to Europe: Police](https://www.yahoo.com/news/missing-father-3-faked-disappearance-113123244.html)
-- Nov 11 - [Bleeding and in pain, a woman endured a harrowing wait for miscarriage care due to Georgia’s restrictive abortion law](https://www.yahoo.com/news/bleeding-pain-woman-endured-harrowing-113048010.html)
-- Nov 11 - [What is ‘Kawasaki’ norovirus and how can you avoid it?](https://www.yahoo.com/lifestyle/kawasaki-norovirus-new-strain-111458490.html)
-- Nov 11 - [Volusia County Proud Boys leader Joe Biggs, sentenced to prison, to seek pardon from Trump](https://www.yahoo.com/news/volusia-county-proud-boys-leader-100536709.html)
-- Nov 11 - [Internal Tesla salary database shows Elon Musk's strategy: Lower salaries, bigger stock grants](https://autos.yahoo.com/internal-tesla-salary-database-shows-100002870.html)
 <!-- feed end -->
 
 ### Onstream
