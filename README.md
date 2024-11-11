@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Goldman Sachs Raises Palantir Technologies Inc. (PLTR) Price Target to $41, Cites 2024 Momentum in AI Solutions but Maintains Neutral Rating](https://finance.yahoo.com/news/goldman-sachs-raises-palantir-technologies-004903363.html)
+- Nov 11 - [Oil slips as US storm threat eases, China stimulus disappoints](https://finance.yahoo.com/news/oil-slips-us-storm-threat-010951753.html)
+- Nov 11 - [South Carolina police capture murder suspect wanted in bizarre bear 911 call](https://www.yahoo.com/news/south-carolina-police-capture-murder-004611925.html)
 - Nov 11 - [China's J-35A stealth fighter is 'black box' despite splashy debut](https://www.yahoo.com/news/chinas-j-35a-stealth-fighter-000710334.html)
-- Nov 10 - [25 monkeys recaptured, 18 still on the loose after escaping research lab in SC](https://www.yahoo.com/news/25-monkeys-recaptured-18-still-194044326.html)
 - Nov 10 - [Former Harris Director Says Biden Should Resign and Make VP the President | Video](https://www.yahoo.com/news/former-harris-director-says-biden-192755993.html)
-- Nov 10 - [Strong earthquakes off Cuba's coast prompts small tsunami threat](https://www.yahoo.com/news/strong-earthquakes-off-cubas-coast-181057459.html)
+- Nov 10 - [Mark Cuban Reveals Regrettable Shark Tank Deal That 'Drives Him Crazy' Was A Chocolate Covered Pretzel Company Who Offered Free Shipping](https://finance.yahoo.com/news/mark-cuban-reveals-regrettable-shark-170319380.html)
 <!-- feed end -->
 
 ### Onstream
