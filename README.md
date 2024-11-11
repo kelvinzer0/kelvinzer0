@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Oil slips as US storm threat eases, China stimulus disappoints](https://finance.yahoo.com/news/oil-slips-us-storm-threat-010951753.html)
+- Nov 11 - [Four people dead after shooting in south Wichita, officials say](https://www.yahoo.com/news/four-people-dead-shooting-south-025356847.html)
+- Nov 11 - [1 killed in shooting at Tuskegee University in Alabama](https://www.yahoo.com/news/1-killed-shooting-tuskegee-university-013609911.html)
+- Nov 11 - [Oil falls as US storm threat abates, China stimulus disappoints](https://finance.yahoo.com/news/oil-slips-us-storm-threat-010951753.html)
 - Nov 11 - [24 more monkeys that escaped from a South Carolina lab are recovered unharmed](https://www.yahoo.com/news/24-more-monkeys-escaped-south-005908622.html)
-- Nov 11 - [South Carolina police capture murder suspect wanted in bizarre bear 911 call](https://www.yahoo.com/news/south-carolina-police-capture-murder-004611925.html)
 - Nov 11 - [China's J-35A stealth fighter is 'black box' despite splashy debut](https://www.yahoo.com/news/chinas-j-35a-stealth-fighter-000710334.html)
-- Nov 10 - [CCTV shows gunmen storming bar in Mexico killing 10](https://www.yahoo.com/news/cctv-shows-gunmen-storming-bar-205834933.html)
 <!-- feed end -->
 
 ### Onstream
