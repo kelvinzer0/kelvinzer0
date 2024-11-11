@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Four people dead after shooting in south Wichita, officials say](https://www.yahoo.com/news/four-people-dead-shooting-south-025356847.html)
-- Nov 11 - [1 killed in shooting at Tuskegee University in Alabama](https://www.yahoo.com/news/1-killed-shooting-tuskegee-university-013609911.html)
+- Nov 11 - [Mattel Pulls ‘Wicked’ Dolls After Mistakenly Listing Adult Porn Site on Packaging](https://www.yahoo.com/entertainment/mattel-pulls-wicked-dolls-mistakenly-024051291.html)
 - Nov 11 - [Oil falls as US storm threat abates, China stimulus disappoints](https://finance.yahoo.com/news/oil-slips-us-storm-threat-010951753.html)
-- Nov 11 - [24 more monkeys that escaped from a South Carolina lab are recovered unharmed](https://www.yahoo.com/news/24-more-monkeys-escaped-south-005908622.html)
 - Nov 11 - [China's J-35A stealth fighter is 'black box' despite splashy debut](https://www.yahoo.com/news/chinas-j-35a-stealth-fighter-000710334.html)
+- Nov 10 - [Psychologists Are Begging People To Pay Attention to These 11 Early Signs of Loneliness](https://www.yahoo.com/lifestyle/psychologists-begging-people-pay-attention-210800503.html)
+- Nov 10 - [Former Harris Director Says Biden Should Resign and Make VP the President | Video](https://www.yahoo.com/news/former-harris-director-says-biden-192755993.html)
 <!-- feed end -->
 
 ### Onstream
