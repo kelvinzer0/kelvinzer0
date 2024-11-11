@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [Greta Thunberg protests against Azerbaijan hosting global climate summit](https://www.yahoo.com/news/greta-thunberg-protests-against-azerbaijan-183529981.html)
+- Nov 11 - [October CPI: What is it and what does it mean for inflation?](https://finance.yahoo.com/video/october-cpi-does-mean-inflation-183000953.html)
+- Nov 11 - [Former Jaguars head coach Jack Del Rio arrested for operating while impaired in Wisconsin](https://www.yahoo.com/news/former-jaguars-head-coach-jack-182335923.html)
 - Nov 11 - [Gunfire hits Spirit Airlines flight arriving in Port-au-Prince; plane lands in Dominican Republic](https://www.yahoo.com/news/gunfire-hits-spirit-airlines-flight-174034040.html)
-- Nov 11 - [New Hartford hopes to open humane society by mid-January. What you need to know](https://www.yahoo.com/news/hartford-hopes-open-humane-society-172040846.html)
-- Nov 11 - [Watch This Amazing James Webb 4K Space Telescope View Of The Cosmic Cliffs](https://www.yahoo.com/news/watch-amazing-james-webb-4k-170000654.html)
-- Nov 11 - [Ukraine says it cracked open a Russian decoy drone used to fool air defenses and found Western parts inside](https://www.yahoo.com/news/ukraine-says-cracked-open-russian-164327759.html)
 - Nov 11 - [Philly bridges to close as historic SS United States moves Friday from South Philly](https://www.yahoo.com/news/philly-bridges-close-historic-ss-163637751.html)
 <!-- feed end -->
 
