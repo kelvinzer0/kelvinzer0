@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [The Google Pixel 9 is at its lowest-ever price at Amazon](https://www.yahoo.com/tech/google-pixel-9-lowest-ever-094642879.html)
-- Nov 11 - [Fire damages community staple, drug store in Forsyth County](https://www.yahoo.com/news/community-staple-drug-store-fire-013221658.html)
-- Nov 11 - [How ‘slow shopping’ will affect holiday spending](https://www.yahoo.com/lifestyle/slow-shopping-affect-holiday-spending-091102433.html)
-- Nov 11 - [China chip index nears 3-year high as TSMC order fuels self-reliance bets](https://finance.yahoo.com/news/china-chip-index-nears-3-074327739.html)
-- Nov 11 - [Honolulu EMS respond to multiple Central Oahu incidents](https://www.yahoo.com/news/honolulu-ems-respond-multiple-central-072940439.html)
+- Nov 11 - [Missing Father of 3 Faked His Disappearance in Kayak Accident and Fled to Europe: Police](https://www.yahoo.com/news/missing-father-3-faked-disappearance-113123244.html)
+- Nov 11 - [Bleeding and in pain, a woman endured a harrowing wait for miscarriage care due to Georgia’s restrictive abortion law](https://www.yahoo.com/news/bleeding-pain-woman-endured-harrowing-113048010.html)
+- Nov 11 - [What is ‘Kawasaki’ norovirus and how can you avoid it?](https://www.yahoo.com/lifestyle/kawasaki-norovirus-new-strain-111458490.html)
+- Nov 11 - [Volusia County Proud Boys leader Joe Biggs, sentenced to prison, to seek pardon from Trump](https://www.yahoo.com/news/volusia-county-proud-boys-leader-100536709.html)
+- Nov 11 - [Internal Tesla salary database shows Elon Musk's strategy: Lower salaries, bigger stock grants](https://autos.yahoo.com/internal-tesla-salary-database-shows-100002870.html)
 <!-- feed end -->
 
 ### Onstream
