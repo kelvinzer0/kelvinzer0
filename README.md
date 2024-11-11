@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Sara Sharif's dad 'threatened to kill ex-partners'](https://www.yahoo.com/news/sara-sharifs-dad-threatened-kill-201903129.html)
-- Nov 11 - [Tuskegee student reflects on deadly weekend violence on campus](https://www.yahoo.com/news/tuskegee-student-reflects-deadly-weekend-201607077.html)
-- Nov 11 - [Miss Universe Contestant Booted From Competition Over ‘Personal’ Scandal](https://www.yahoo.com/entertainment/miss-universe-contestant-booted-competition-200251597.html)
+- Nov 11 - [Tuskegee University president says campus is no longer open, a day after fatal shooting](https://www.yahoo.com/news/tuskegee-university-president-says-campus-214234851.html)
+- Nov 11 - [Trump transition official warns Justice Dept staff against 'resistance'](https://www.yahoo.com/news/trump-transition-official-warns-justice-202238104.html)
+- Nov 11 - [For the First Time Ever, Scientists Have Witnessed the Birth of a Heavy Atom](https://www.yahoo.com/news/first-time-ever-scientists-witnessed-201300311.html)
 - Nov 11 - [Thousands rally in Georgia to question the vote and demand a new election](https://www.yahoo.com/news/thousands-rally-georgia-vote-demand-195131592.html)
-- Nov 11 - [Gusting winds cause power outages in Northern Michigan](https://www.yahoo.com/news/gusting-winds-cause-power-outages-190957010.html)
+- Nov 11 - [These Jokes About The Escaped Monkeys In South Carolina Are, Unfortunately, Very Funny](https://www.yahoo.com/entertainment/im-sorry-jokes-escaped-monkeys-182802770.html)
 <!-- feed end -->
 
 ### Onstream
