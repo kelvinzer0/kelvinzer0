@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Mexico to renew food price control measures](https://www.yahoo.com/news/mexico-renew-food-price-control-144145620.html)
-- Nov 11 - [Bird flu infections more widespread among US dairy workers than thought – study](https://www.yahoo.com/news/bird-flu-infections-more-widespread-143342213.html)
-- Nov 11 - [Man and woman seriously hurt after their tent was ‘intentionally set on fire,’ deputies say](https://www.yahoo.com/news/man-woman-seriously-hurt-tent-111707988.html)
-- Nov 11 - [EHang, Enpower Team Up On Next-Gen eVTOL Tech: Details](https://finance.yahoo.com/news/ehang-enpower-team-next-gen-133447062.html)
-- Nov 11 - [Shots Fired: Killing in self-defense can still mean jail time, years of trauma](https://www.yahoo.com/news/shots-fired-killing-self-defense-132900766.html)
+- Nov 11 - [A Cary doctor, haunted by the carnage he saw in Gaza, hopes spreading the word may end it | Opinion](https://www.yahoo.com/news/cary-doctor-haunted-carnage-saw-153148721.html)
+- Nov 11 - [Man killed in Tuskegee University shooting in Alabama is identified. 16 others were hurt](https://www.yahoo.com/news/man-killed-tuskegee-university-shooting-151858659.html)
+- Nov 11 - [It’s Veterans Day. Here is what to say to a veteran](https://www.yahoo.com/news/veterans-day-veteran-151243516.html)
+- Nov 11 - [NASA Still Trying to Figure Out Why Astronaut Was Hospitalized After Return to Earth](https://www.yahoo.com/news/nasa-still-trying-figure-why-142316594.html)
+- Nov 11 - [Tropical system could form in Caribbean this week](https://www.yahoo.com/news/tropical-system-could-form-caribbean-132346280.html)
 <!-- feed end -->
 
 ### Onstream
