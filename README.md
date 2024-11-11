@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 11 - [Veterans with PTSD making progress thanks to service dog program](https://www.yahoo.com/news/veterans-ptsd-making-progress-thanks-060210263.html)
+- Nov 11 - [No Russian missile attack on Ukraine after country put on high alert](https://www.yahoo.com/news/blasts-heard-kyiv-power-cut-052959995.html)
 - Nov 11 - [Mattel Pulls ‘Wicked’ Dolls After Mistakenly Listing Adult Porn Site on Packaging](https://www.yahoo.com/entertainment/mattel-pulls-wicked-dolls-mistakenly-024051291.html)
 - Nov 11 - [Oil falls as US storm threat abates, China stimulus disappoints](https://finance.yahoo.com/news/oil-slips-us-storm-threat-010951753.html)
-- Nov 11 - [China's J-35A stealth fighter is 'black box' despite splashy debut](https://www.yahoo.com/news/chinas-j-35a-stealth-fighter-000710334.html)
-- Nov 10 - [Psychologists Are Begging People To Pay Attention to These 11 Early Signs of Loneliness](https://www.yahoo.com/lifestyle/psychologists-begging-people-pay-attention-210800503.html)
+- Nov 11 - [North Little Rock police investigating fatal vehicle crash on Broadway Bridge](https://www.yahoo.com/news/traffic-alert-north-little-rock-005553403.html)
 <!-- feed end -->
 
 ### Onstream
