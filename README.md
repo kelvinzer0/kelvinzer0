@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [The Google Pixel 9 is at its lowest-ever price at Amazon](https://www.yahoo.com/tech/google-pixel-9-lowest-ever-094642879.html)
+- Nov 11 - [Fire damages community staple, drug store in Forsyth County](https://www.yahoo.com/news/community-staple-drug-store-fire-013221658.html)
+- Nov 11 - [How ‘slow shopping’ will affect holiday spending](https://www.yahoo.com/lifestyle/slow-shopping-affect-holiday-spending-091102433.html)
 - Nov 11 - [China chip index nears 3-year high as TSMC order fuels self-reliance bets](https://finance.yahoo.com/news/china-chip-index-nears-3-074327739.html)
-- Nov 11 - [No Russian missile attack on Ukraine after country put on high alert](https://www.yahoo.com/news/blasts-heard-kyiv-power-cut-052959995.html)
-- Nov 11 - [Trump is already wielding power and causing massive disruption](https://www.yahoo.com/news/trump-already-wielding-power-causing-050048064.html)
-- Nov 11 - [China's J-35A stealth fighter is 'black box' despite splashy debut](https://www.yahoo.com/news/chinas-j-35a-stealth-fighter-000710334.html)
-- Nov 10 - [Enten: GOP ‘on the doorstep’ of maintaining control of House](https://www.yahoo.com/news/enten-gop-doorstep-maintaining-control-234426342.html)
+- Nov 11 - [Honolulu EMS respond to multiple Central Oahu incidents](https://www.yahoo.com/news/honolulu-ems-respond-multiple-central-072940439.html)
 <!-- feed end -->
 
 ### Onstream
