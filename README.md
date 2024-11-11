@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Suspect in Liam Payne Death Says He Didn’t Supply Singer With Drugs](https://www.yahoo.com/news/suspect-liam-payne-death-says-134732092.html)
-- Nov 11 - [How Much Money Do McDonald's Franchise Owners Make?](https://finance.yahoo.com/news/much-money-mcdonalds-franchise-owners-125536796.html)
-- Nov 11 - [Trump is already wielding power and causing massive disruption](https://www.yahoo.com/news/trump-already-wielding-power-causing-050048064.html)
-- Nov 11 - [Bleeding and in pain, a woman endured a harrowing wait for miscarriage care due to Georgia’s restrictive abortion law](https://www.yahoo.com/news/bleeding-pain-woman-endured-harrowing-113048010.html)
-- Nov 11 - [China unveils long-range drone with 22,000-pound payload power, 575 mph speed](https://www.yahoo.com/news/china-unveils-long-range-drone-110433351.html)
+- Nov 11 - [Mexico to renew food price control measures](https://www.yahoo.com/news/mexico-renew-food-price-control-144145620.html)
+- Nov 11 - [Bird flu infections more widespread among US dairy workers than thought – study](https://www.yahoo.com/news/bird-flu-infections-more-widespread-143342213.html)
+- Nov 11 - [Man and woman seriously hurt after their tent was ‘intentionally set on fire,’ deputies say](https://www.yahoo.com/news/man-woman-seriously-hurt-tent-111707988.html)
+- Nov 11 - [EHang, Enpower Team Up On Next-Gen eVTOL Tech: Details](https://finance.yahoo.com/news/ehang-enpower-team-next-gen-133447062.html)
+- Nov 11 - [Shots Fired: Killing in self-defense can still mean jail time, years of trauma](https://www.yahoo.com/news/shots-fired-killing-self-defense-132900766.html)
 <!-- feed end -->
 
 ### Onstream
