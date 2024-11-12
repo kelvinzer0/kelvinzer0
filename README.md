@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [Assisted dying bill: What it means for patients - as terminally ill to be able to take own life in 21 days](https://www.yahoo.com/news/bill-legalise-assisted-dying-terminally-230000869.html)
 - Nov 12 - [Philippines says China is pushing it to cede claims in South China Sea](https://www.yahoo.com/news/philippines-says-under-pressure-china-065550835.html)
+- Nov 12 - [Too many wild deer are roaming England's forests. Can promoting venison to consumers help?](https://www.yahoo.com/news/too-many-wild-deer-roaming-050722725.html)
 - Nov 12 - [Jon Stewart Blows Up Key Theory on Why Dems Got ‘Shellacked’](https://www.yahoo.com/news/jon-stewart-blows-key-theory-050530124.html)
 - Nov 12 - [Spy satellite images lead archeologists to the site of a historic battle in Iraq](https://www.yahoo.com/news/spy-satellite-images-lead-archeologists-050514677.html)
-- Nov 12 - [Giant 'God of Darkness' Asteroid May Not Escape Earth Unscathed](https://www.yahoo.com/news/giant-god-darkness-asteroid-may-044023929.html)
-- Nov 12 - [Jesse Watters’ Mother Disinvites Him From Thanksgiving Dinner After Trump Win: ‘Apparently There Wasn’t Enough Room’ | Video](https://www.yahoo.com/entertainment/jesse-watters-mother-disinvites-him-042347425.html)
 <!-- feed end -->
 
 ### Onstream
