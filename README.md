@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Bluesky is seeing an exodus of unhappy X users following the election](https://finance.yahoo.com/news/bluesky-seeing-exodus-unhappy-x-192615853.html)
-- Nov 12 - [Ruben Gallego defeats Kari Lake in Senate race](https://www.yahoo.com/news/ruben-gallego-defeats-kari-lake-192402773.html)
+- Nov 12 - [Watch as Central California dust storm that caused 20-car pileup whips through Visalia](https://www.yahoo.com/news/watch-central-california-dust-storm-192129514.html)
+- Nov 12 - [White Emperor: China reveals mysterious jet that could be its first 6th-gen fighter](https://www.yahoo.com/news/white-emperor-china-reveals-mysterious-191537419.html)
+- Nov 12 - [6 Things You Should Never Put in a Living Trust](https://finance.yahoo.com/news/6-things-never-put-living-190103941.html)
 - Nov 12 - [Netanyahu says Iran's government fears its people more than Israel](https://www.yahoo.com/news/netanyahu-says-irans-government-fears-182931151.html)
-- Nov 12 - [70-Year-Old Man Thrown Ground During Traffic Stop: Cops](https://www.yahoo.com/news/70-old-man-thrown-ground-172602865.html)
-- Nov 12 - [Inside Ivanka's $24 Million 'Billionaire Bunker' Mansion With A $15 Million Mortgage](https://finance.yahoo.com/news/inside-ivankas-24-million-billionaire-172551417.html)
+- Nov 12 - [Police: Driver who killed dozens in China was angry over financial terms of divorce](https://www.yahoo.com/news/police-driver-killed-dozens-china-180904543.html)
 <!-- feed end -->
 
 ### Onstream
