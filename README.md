@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [Billionaire Michael Saylor of MicroStrategy Just Delivered Incredible News for Bitcoin](https://finance.yahoo.com/news/billionaire-michael-saylor-microstrategy-just-100000891.html)
 - Nov 12 - [Assisted dying bill: What it means for patients - as terminally ill to be able to take own life in 21 days](https://www.yahoo.com/news/bill-legalise-assisted-dying-terminally-230000869.html)
 - Nov 12 - [Philippines says China is pushing it to cede claims in South China Sea](https://www.yahoo.com/news/philippines-says-under-pressure-china-065550835.html)
 - Nov 12 - [Too many wild deer are roaming England's forests. Can promoting venison to consumers help?](https://www.yahoo.com/news/too-many-wild-deer-roaming-050722725.html)
 - Nov 12 - [Jon Stewart Blows Up Key Theory on Why Dems Got ‘Shellacked’](https://www.yahoo.com/news/jon-stewart-blows-key-theory-050530124.html)
-- Nov 12 - [Spy satellite images lead archeologists to the site of a historic battle in Iraq](https://www.yahoo.com/news/spy-satellite-images-lead-archeologists-050514677.html)
 <!-- feed end -->
 
 ### Onstream
