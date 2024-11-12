@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Here are 5 signs you’re financially healthy in America even if you don't feel like it — how many do you show?](https://finance.yahoo.com/news/5-signs-financially-healthy-america-124200590.html)
-- Nov 12 - [Russian doctor jailed for 5-1/2 years after being public denounced](https://www.yahoo.com/news/russian-doctor-denounced-online-jailed-121950453.html)
-- Nov 12 - [Melania Trump To Reject Jill Biden White House Invite For Eyebrow-Raising Reason: Report](https://www.yahoo.com/news/melania-trump-reject-jill-biden-113119259.html)
-- Nov 12 - [A 'Useless' Organ That Doctors Often Remove Could Actually Fight Cancer](https://www.yahoo.com/news/useless-organ-doctors-often-remove-110022508.html)
-- Nov 12 - [Trump to Hand Kristi Noem One of America’s Most Powerful Jobs](https://www.yahoo.com/news/trump-hand-kristi-noem-one-105050520.html)
+- Nov 12 - [Baidu announces its own pair of AI smart glasses](https://www.yahoo.com/tech/baidu-announces-its-own-pair-of-ai-smart-glasses-143044805.html)
+- Nov 12 - [Elliott takes more than $5B stake in Honeywell, advises separating automation, aerospace units](https://finance.yahoo.com/news/elliott-takes-more-5b-stake-142448701.html)
+- Nov 12 - [Justin Welby quits as Archbishop of Canterbury over Church abuse scandal](https://www.yahoo.com/news/justin-welby-resigns-statement-archbishop-canterbury-141151957.html)
+- Nov 12 - [Russian doctor jailed for 5-1/2 years after being publicly denounced](https://www.yahoo.com/news/russian-doctor-denounced-online-jailed-121950453.html)
+- Nov 12 - [The Morning After: Apple makes its iOS Find My features much more useful](https://www.yahoo.com/tech/the-morning-after-engadget-newsletter-121525242.html)
 <!-- feed end -->
 
 ### Onstream
