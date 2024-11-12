@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [LAUSD abruptly ends new admissions rules for gifted students amid parent fury over standards](https://www.yahoo.com/news/lausd-abruptly-ends-admissions-rules-020542522.html)
-- Nov 12 - [Trump's plan for Social Security would help baby boomers in the short term and cut benefits for anyone younger](https://finance.yahoo.com/news/trumps-plan-social-security-help-170001080.html)
-- Nov 12 - [Trump expected to tap US Senator Marco Rubio for secretary of state, sources say](https://www.yahoo.com/news/trump-taps-us-senator-marco-013002128.html)
-- Nov 12 - [New Orleans Archbishop Gregory Aymond to submit resignation letter on birthday](https://www.yahoo.com/news/orleans-archbishop-gregory-aymond-submit-011843678.html)
-- Nov 12 - [New Uranus research suggests what’s known about the planet could be wrong](https://www.yahoo.com/news/rare-event-during-1986-uranus-232911062.html)
+- Nov 12 - [China's big air show opened with a glitzy aerial display of its fighters, but crowds couldn't see much in the smog](https://www.yahoo.com/news/chinas-big-air-show-opened-053731661.html)
+- Nov 12 - [Carlyle, Warburg among investment firms hunting talent in Japan as deals boom](https://finance.yahoo.com/news/carlyle-warburg-among-investment-firms-053553103.html)
+- Nov 12 - [Wisconsin man accused of hurling baby against wall because he was losing in NBA2K video game](https://www.yahoo.com/news/wisconsin-man-accused-hurling-baby-050547444.html)
+- Nov 12 - [Jon Stewart Blows Up Key Theory on Why Dems Got ‘Shellacked’](https://www.yahoo.com/news/jon-stewart-blows-key-theory-050530124.html)
+- Nov 12 - [Jesse Watters’ Mother Disinvites Him From Thanksgiving Dinner After Trump Win: ‘Apparently There Wasn’t Enough Room’ | Video](https://www.yahoo.com/entertainment/jesse-watters-mother-disinvites-him-042347425.html)
 <!-- feed end -->
 
 ### Onstream
