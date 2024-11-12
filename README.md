@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [SC highway exit to permanently close in effort to improve traffic at Malfunction Junction](https://www.yahoo.com/news/sc-highway-exit-permanently-close-155413452.html)
-- Nov 12 - [Tropical system brewing in the Caribbean now is forecast to hit the US. Here is its new projected path](https://www.yahoo.com/news/tropical-system-brewing-caribbean-now-151329524.html)
-- Nov 12 - [Driver dies, northbound I-95 shut down Tuesday after fiery crash in Harford County](https://www.yahoo.com/news/truck-driver-dies-northbound-95-142100049.html)
-- Nov 12 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
-- Nov 12 - [Officials identify item that fell from sky, nearly struck commuters outside Boston’s South Station](https://www.yahoo.com/news/officials-identify-item-fell-sky-133218965.html)
+- Nov 12 - [Cathie Wood Goes Bargain Hunting: 3 Stocks She Just Bought](https://finance.yahoo.com/news/cathie-wood-goes-bargain-hunting-165500010.html)
+- Nov 12 - [Amazon deal of the day: Get four Apple AirTags for under $70, their lowest price ever](https://www.yahoo.com/tech/amazon-deal-day-four-apple-164502017.html)
+- Nov 12 - [When do Black Friday sales start? Early holiday deals are already here.](https://www.yahoo.com/tech/black-friday-sales-start-lookout-090000884.html)
+- Nov 12 - [Netflix’s ad tier has attracted more than 70 million subscribers](https://www.yahoo.com/tech/netflixs-ad-tier-has-attracted-more-than-70-million-subscribers-162011582.html)
+- Nov 12 - [Judge extends the time to indict the driver accused of killing Johnny Gaudreau and his brother](https://www.yahoo.com/news/judge-extends-time-indict-driver-161753334.html)
 <!-- feed end -->
 
 ### Onstream
