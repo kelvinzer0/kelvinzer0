@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [Fort Lauderdale woman receives racist text ordering her to go to ‘the nearest plantation’](https://www.yahoo.com/news/fort-lauderdale-woman-received-racist-222445040.html)
-- Nov 11 - [One Injured After Russia Strikes Residential Region of Kramatorsk](https://www.yahoo.com/news/one-injured-russia-strikes-residential-222231843.html)
-- Nov 11 - [Why severe weather events are a 'tailwind' for infrastructure](https://finance.yahoo.com/video/why-severe-weather-events-tailwind-221342271.html)
-- Nov 11 - [Trump transition official warns Justice Dept staff against 'resistance'](https://www.yahoo.com/news/trump-transition-official-warns-justice-202238104.html)
-- Nov 11 - [Names of lynching victims painted on sign of new Publix under construction in Newberry](https://www.yahoo.com/news/names-lynching-victims-painted-sign-195819578.html)
+- Nov 12 - [Disney cruise ship comes to rescue of sinking catamaran, saves 4 people in North Atlantic](https://www.yahoo.com/news/disney-cruise-ship-comes-rescue-010909349.html)
+- Nov 12 - [‘We are going to be living a nightmare’: Trump win puts raids, camps & deportations on the agenda](https://www.yahoo.com/news/going-living-nightmare-trump-win-000155561.html)
+- Nov 11 - [Woman, 23, had a 'burning sensation' in her stomach. It was the first sign of a rare cancer](https://www.yahoo.com/news/woman-23-had-burning-sensation-225421776.html)
+- Nov 11 - [Johnson County pharmacy closed after 20+ years. Now a popular business wants to move in](https://finance.yahoo.com/news/johnson-county-pharmacy-closed-20-225153372.html)
+- Nov 11 - [When will we see below-freezing temperatures in Milwaukee? First frost, snow forecasts](https://www.yahoo.com/news/see-below-freezing-temperatures-milwaukee-214513778.html)
 <!-- feed end -->
 
 ### Onstream
