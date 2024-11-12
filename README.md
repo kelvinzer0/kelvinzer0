@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [Archbishop of Canterbury resigns after release of damning report into child abuse](https://www.yahoo.com/news/archbishop-canterbury-resigns-release-damning-203536319.html)
+- Nov 12 - [2 Tri-Cities men ID’d as victims of fatal ATV collision near Kennewick](https://www.yahoo.com/news/2-tri-cities-men-id-200124041.html)
+- Nov 12 - [Justice Department sues to block UnitedHealth Group's $3.3 billion purchase of Amedisys](https://finance.yahoo.com/news/justice-department-sues-block-unitedhealth-194209723.html)
 - Nov 12 - [Watch as Central California dust storm that caused 20-car pileup whips through Visalia](https://www.yahoo.com/news/watch-central-california-dust-storm-192129514.html)
 - Nov 12 - [White Emperor: China reveals mysterious jet that could be its first 6th-gen fighter](https://www.yahoo.com/news/white-emperor-china-reveals-mysterious-191537419.html)
-- Nov 12 - [6 Things You Should Never Put in a Living Trust](https://finance.yahoo.com/news/6-things-never-put-living-190103941.html)
-- Nov 12 - [Netanyahu says Iran's government fears its people more than Israel](https://www.yahoo.com/news/netanyahu-says-irans-government-fears-182931151.html)
-- Nov 12 - [Police: Driver who killed dozens in China was angry over financial terms of divorce](https://www.yahoo.com/news/police-driver-killed-dozens-china-180904543.html)
 <!-- feed end -->
 
 ### Onstream
