@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Disney cruise ship comes to rescue of sinking catamaran, saves 4 people in North Atlantic](https://www.yahoo.com/news/disney-cruise-ship-comes-rescue-010909349.html)
+- Nov 12 - [Man dead, 2 women injured in crash in Markham](https://www.yahoo.com/news/man-dead-2-women-injured-022318233.html)
+- Nov 12 - [She heard knocking beneath the floor of her home for weeks. Police make a disturbing discovery](https://www.yahoo.com/news/she-heard-knocking-beneath-floor-014809959.html)
+- Nov 12 - [Trump expected to tap US Senator Marco Rubio for secretary of state, sources say](https://www.yahoo.com/news/trump-taps-us-senator-marco-013002128.html)
 - Nov 12 - [‘We are going to be living a nightmare’: Trump win puts raids, camps & deportations on the agenda](https://www.yahoo.com/news/going-living-nightmare-trump-win-000155561.html)
-- Nov 11 - [Woman, 23, had a 'burning sensation' in her stomach. It was the first sign of a rare cancer](https://www.yahoo.com/news/woman-23-had-burning-sensation-225421776.html)
-- Nov 11 - [Johnson County pharmacy closed after 20+ years. Now a popular business wants to move in](https://finance.yahoo.com/news/johnson-county-pharmacy-closed-20-225153372.html)
-- Nov 11 - [When will we see below-freezing temperatures in Milwaukee? First frost, snow forecasts](https://www.yahoo.com/news/see-below-freezing-temperatures-milwaukee-214513778.html)
+- Nov 11 - [Tuskegee University president says campus is no longer open, a day after fatal shooting](https://www.yahoo.com/news/tuskegee-university-president-says-campus-214234851.html)
 <!-- feed end -->
 
 ### Onstream
