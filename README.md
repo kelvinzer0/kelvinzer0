@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Cathie Wood Goes Bargain Hunting: 3 Stocks She Just Bought](https://finance.yahoo.com/news/cathie-wood-goes-bargain-hunting-165500010.html)
-- Nov 12 - [Amazon deal of the day: Get four Apple AirTags for under $70, their lowest price ever](https://www.yahoo.com/tech/amazon-deal-day-four-apple-164502017.html)
-- Nov 12 - [When do Black Friday sales start? Early holiday deals are already here.](https://www.yahoo.com/tech/black-friday-sales-start-lookout-090000884.html)
-- Nov 12 - [Netflix’s ad tier has attracted more than 70 million subscribers](https://www.yahoo.com/tech/netflixs-ad-tier-has-attracted-more-than-70-million-subscribers-162011582.html)
+- Nov 12 - [Here’s how to create a custom emoji with the Apple Intelligence feature ‘Genmoji’](https://finance.yahoo.com/news/create-custom-emoji-apple-intelligence-174142839.html)
+- Nov 12 - [Sarah Palin, NY Times have explored settlement, as judge sets defamation retrial](https://www.yahoo.com/news/sarah-palin-ny-times-explored-170741069.html)
+- Nov 12 - ['I'm shaking with rage': Firehouse Subs in Pooler faces social media backlash over Veterans Day](https://www.yahoo.com/news/im-shaking-rage-firehouse-subs-170534834.html)
 - Nov 12 - [Judge extends the time to indict the driver accused of killing Johnny Gaudreau and his brother](https://www.yahoo.com/news/judge-extends-time-indict-driver-161753334.html)
+- Nov 12 - [World Court rules Armenia, Azerbaijan mutual discrimination cases can move forward](https://www.yahoo.com/news/world-court-rules-armenias-discrimination-151548429.html)
 <!-- feed end -->
 
 ### Onstream
