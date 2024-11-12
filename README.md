@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [South Korea's Yoon to visit Peru, Brazil on Nov 14-21 for APEC, G20 summits](https://www.yahoo.com/news/south-koreas-yoon-visit-peru-061856642.html)
-- Nov 12 - [World leaders descend on Azerbaijan's capital Baku for United Nations climate talks](https://www.yahoo.com/news/world-leaders-descend-azerbaijans-capital-060127710.html)
+- Nov 12 - [Philippines says China is pushing it to cede claims in South China Sea](https://www.yahoo.com/news/philippines-says-under-pressure-china-065550835.html)
 - Nov 12 - [Jon Stewart Blows Up Key Theory on Why Dems Got ‘Shellacked’](https://www.yahoo.com/news/jon-stewart-blows-key-theory-050530124.html)
 - Nov 12 - [Spy satellite images lead archeologists to the site of a historic battle in Iraq](https://www.yahoo.com/news/spy-satellite-images-lead-archeologists-050514677.html)
-- Nov 12 - [Coinbase Price Levels to Watch as Stock Surges to 3-Year High](https://finance.yahoo.com/news/coinbase-price-levels-watch-stock-042421206.html)
+- Nov 12 - [Giant 'God of Darkness' Asteroid May Not Escape Earth Unscathed](https://www.yahoo.com/news/giant-god-darkness-asteroid-may-044023929.html)
+- Nov 12 - [Jesse Watters’ Mother Disinvites Him From Thanksgiving Dinner After Trump Win: ‘Apparently There Wasn’t Enough Room’ | Video](https://www.yahoo.com/entertainment/jesse-watters-mother-disinvites-him-042347425.html)
 <!-- feed end -->
 
 ### Onstream
