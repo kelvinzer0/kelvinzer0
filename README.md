@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Three workers injured, one critically, in partial Western Mass. mill collapse](https://www.yahoo.com/news/three-workers-injured-one-critically-023446050.html)
+- Nov 12 - [LAUSD abruptly ends new admissions rules for gifted students amid parent fury over standards](https://www.yahoo.com/news/lausd-abruptly-ends-admissions-rules-020542522.html)
 - Nov 12 - [Trump's plan for Social Security would help baby boomers in the short term and cut benefits for anyone younger](https://finance.yahoo.com/news/trumps-plan-social-security-help-170001080.html)
-- Nov 12 - [She heard knocking beneath the floor of her home for weeks. Police make a disturbing discovery](https://www.yahoo.com/news/she-heard-knocking-beneath-floor-014809959.html)
 - Nov 12 - [Trump expected to tap US Senator Marco Rubio for secretary of state, sources say](https://www.yahoo.com/news/trump-taps-us-senator-marco-013002128.html)
-- Nov 12 - [Northern California man goes missing after Uber ride from Bay Area to Placer County](https://www.yahoo.com/news/northern-california-man-goes-missing-003402756.html)
+- Nov 12 - [New Orleans Archbishop Gregory Aymond to submit resignation letter on birthday](https://www.yahoo.com/news/orleans-archbishop-gregory-aymond-submit-011843678.html)
+- Nov 12 - [New Uranus research suggests what’s known about the planet could be wrong](https://www.yahoo.com/news/rare-event-during-1986-uranus-232911062.html)
 <!-- feed end -->
 
 ### Onstream
