@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 12 - [Man dead, 2 women injured in crash in Markham](https://www.yahoo.com/news/man-dead-2-women-injured-022318233.html)
 - Nov 12 - [She heard knocking beneath the floor of her home for weeks. Police make a disturbing discovery](https://www.yahoo.com/news/she-heard-knocking-beneath-floor-014809959.html)
+- Nov 12 - [China cracks down on bike riders after viral trend to get soup dumplings](https://www.yahoo.com/news/china-cracks-down-bike-riders-013730152.html)
 - Nov 12 - [Trump expected to tap US Senator Marco Rubio for secretary of state, sources say](https://www.yahoo.com/news/trump-taps-us-senator-marco-013002128.html)
-- Nov 12 - [‘We are going to be living a nightmare’: Trump win puts raids, camps & deportations on the agenda](https://www.yahoo.com/news/going-living-nightmare-trump-win-000155561.html)
-- Nov 11 - [Tuskegee University president says campus is no longer open, a day after fatal shooting](https://www.yahoo.com/news/tuskegee-university-president-says-campus-214234851.html)
+- Nov 12 - [U.S. serviceman finally laid to rest, more than 50 years after being killed in Vietnam](https://www.yahoo.com/news/u-serviceman-finally-laid-rest-003558284.html)
 <!-- feed end -->
 
 ### Onstream
