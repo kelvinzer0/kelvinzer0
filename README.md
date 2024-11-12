@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Here’s how to create a custom emoji with the Apple Intelligence feature ‘Genmoji’](https://finance.yahoo.com/news/create-custom-emoji-apple-intelligence-174142839.html)
+- Nov 12 - [70-Year-Old Man Thrown Ground During Traffic Stop: Cops](https://www.yahoo.com/news/70-old-man-thrown-ground-172602865.html)
+- Nov 12 - [Inside Ivanka's $24 Million 'Billionaire Bunker' Mansion With A $15 Million Mortgage](https://finance.yahoo.com/news/inside-ivankas-24-million-billionaire-172551417.html)
 - Nov 12 - [Sarah Palin, NY Times have explored settlement, as judge sets defamation retrial](https://www.yahoo.com/news/sarah-palin-ny-times-explored-170741069.html)
 - Nov 12 - ['I'm shaking with rage': Firehouse Subs in Pooler faces social media backlash over Veterans Day](https://www.yahoo.com/news/im-shaking-rage-firehouse-subs-170534834.html)
-- Nov 12 - [Judge extends the time to indict the driver accused of killing Johnny Gaudreau and his brother](https://www.yahoo.com/news/judge-extends-time-indict-driver-161753334.html)
-- Nov 12 - [World Court rules Armenia, Azerbaijan mutual discrimination cases can move forward](https://www.yahoo.com/news/world-court-rules-armenias-discrimination-151548429.html)
+- Nov 12 - [Conor McGregor accuser found "very bruised" after alleged rape, medic says](https://www.yahoo.com/news/conor-mcgregor-accuser-found-very-165449274.html)
 <!-- feed end -->
 
 ### Onstream
