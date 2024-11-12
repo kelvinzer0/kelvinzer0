@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Man dead, 2 women injured in crash in Markham](https://www.yahoo.com/news/man-dead-2-women-injured-022318233.html)
+- Nov 12 - [Three workers injured, one critically, in partial Western Mass. mill collapse](https://www.yahoo.com/news/three-workers-injured-one-critically-023446050.html)
+- Nov 12 - [Trump's plan for Social Security would help baby boomers in the short term and cut benefits for anyone younger](https://finance.yahoo.com/news/trumps-plan-social-security-help-170001080.html)
 - Nov 12 - [She heard knocking beneath the floor of her home for weeks. Police make a disturbing discovery](https://www.yahoo.com/news/she-heard-knocking-beneath-floor-014809959.html)
-- Nov 12 - [China cracks down on bike riders after viral trend to get soup dumplings](https://www.yahoo.com/news/china-cracks-down-bike-riders-013730152.html)
 - Nov 12 - [Trump expected to tap US Senator Marco Rubio for secretary of state, sources say](https://www.yahoo.com/news/trump-taps-us-senator-marco-013002128.html)
-- Nov 12 - [U.S. serviceman finally laid to rest, more than 50 years after being killed in Vietnam](https://www.yahoo.com/news/u-serviceman-finally-laid-rest-003558284.html)
+- Nov 12 - [Northern California man goes missing after Uber ride from Bay Area to Placer County](https://www.yahoo.com/news/northern-california-man-goes-missing-003402756.html)
 <!-- feed end -->
 
 ### Onstream
