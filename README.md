@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Melania Trump To Reject Jill Biden WH Invite For Eyebrow-Raising Reason: Report](https://www.yahoo.com/news/melania-trump-reject-jill-biden-113119259.html)
+- Nov 12 - [Here are 5 signs you’re financially healthy in America even if you don't feel like it — how many do you show?](https://finance.yahoo.com/news/5-signs-financially-healthy-america-124200590.html)
+- Nov 12 - [Russian doctor jailed for 5-1/2 years after being public denounced](https://www.yahoo.com/news/russian-doctor-denounced-online-jailed-121950453.html)
+- Nov 12 - [Melania Trump To Reject Jill Biden White House Invite For Eyebrow-Raising Reason: Report](https://www.yahoo.com/news/melania-trump-reject-jill-biden-113119259.html)
 - Nov 12 - [A 'Useless' Organ That Doctors Often Remove Could Actually Fight Cancer](https://www.yahoo.com/news/useless-organ-doctors-often-remove-110022508.html)
-- Nov 12 - [Editorial: Walgreens’ woes are about more than an iconic Chicago company’s future. Our health is at stake, too.](https://www.yahoo.com/news/editorial-walgreens-woes-more-iconic-110000863.html)
 - Nov 12 - [Trump to Hand Kristi Noem One of America’s Most Powerful Jobs](https://www.yahoo.com/news/trump-hand-kristi-noem-one-105050520.html)
-- Nov 12 - [Scientists make stunning discovery with plants that could future-proof our global food supply: 'Could be part of the answer'](https://www.yahoo.com/tech/scientists-stunning-discovery-plants-could-104555462.html)
 <!-- feed end -->
 
 ### Onstream
