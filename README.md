@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Shell wins appeal against landmark Dutch climate ruling](https://www.yahoo.com/news/shell-wins-appeal-against-landmark-104401058.html)
-- Nov 12 - [Asheville's North Fork Water Treatment Plant; What happened to the 'pristine' reservoir?](https://www.yahoo.com/news/ashevilles-north-fork-water-treatment-101154107.html)
+- Nov 12 - [Hundreds of twitchers flock to cul-de-sac after rare bird spotted from America](https://www.yahoo.com/news/hundreds-twitchers-flock-cul-sac-115019613.html)
+- Nov 12 - [Melania Trump To Reject Jill Biden WH Invite For Eyebrow-Raising Reason: Report](https://www.yahoo.com/news/melania-trump-reject-jill-biden-113119259.html)
+- Nov 12 - [A 'Useless' Organ That Doctors Often Remove Could Actually Fight Cancer](https://www.yahoo.com/news/useless-organ-doctors-often-remove-110022508.html)
+- Nov 12 - [Philippines says China is pushing it to cede claims in South China Sea](https://www.yahoo.com/news/philippines-says-under-pressure-china-065550835.html)
 - Nov 12 - [Vietnam expands chip packaging footprint as investors reduce China links](https://finance.yahoo.com/news/vietnam-expands-chip-packaging-footprint-060747693.html)
-- Nov 12 - [Jon Stewart Blows Up Key Theory on Why Dems Got ‘Shellacked’](https://www.yahoo.com/news/jon-stewart-blows-key-theory-050530124.html)
-- Nov 12 - [Spy satellite images lead archeologists to the site of a historic battle in Iraq](https://www.yahoo.com/news/spy-satellite-images-lead-archeologists-050514677.html)
 <!-- feed end -->
 
 ### Onstream
