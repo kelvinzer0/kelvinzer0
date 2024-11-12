@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Archbishop of Canterbury resigns after release of damning report into child abuse](https://www.yahoo.com/news/archbishop-canterbury-resigns-release-damning-203536319.html)
-- Nov 12 - [2 Tri-Cities men ID’d as victims of fatal ATV collision near Kennewick](https://www.yahoo.com/news/2-tri-cities-men-id-200124041.html)
+- Nov 12 - [El Paso police arrest intruder suspected of entering houses in East Side neighborhood](https://www.yahoo.com/news/el-paso-police-arrest-intruder-215131365.html)
+- Nov 12 - [This powerful, quiet, exhaust-free generator is almost 55% off ahead of Black Friday](https://www.yahoo.com/tech/this-powerful-quiet-exhaust-free-generator-is-almost-55-off-ahead-of-black-friday-213138327.html)
+- Nov 12 - [US Navy destroyers unscathed after fighting off a complex attack of cruise and ballistic missiles and exploding drones](https://www.yahoo.com/news/us-navy-destroyers-unscathed-fighting-210214273.html)
+- Nov 12 - [The Election Proved Something Painful About Gen Z. It’s Worse Than We Thought.](https://www.yahoo.com/news/election-proved-something-painful-gen-200000843.html)
 - Nov 12 - [Justice Department sues to block UnitedHealth Group's $3.3 billion purchase of Amedisys](https://finance.yahoo.com/news/justice-department-sues-block-unitedhealth-194209723.html)
-- Nov 12 - [Watch as Central California dust storm that caused 20-car pileup whips through Visalia](https://www.yahoo.com/news/watch-central-california-dust-storm-192129514.html)
-- Nov 12 - [White Emperor: China reveals mysterious jet that could be its first 6th-gen fighter](https://www.yahoo.com/news/white-emperor-china-reveals-mysterious-191537419.html)
 <!-- feed end -->
 
 ### Onstream
