@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Baidu announces its own pair of AI smart glasses](https://www.yahoo.com/tech/baidu-announces-its-own-pair-of-ai-smart-glasses-143044805.html)
-- Nov 12 - [Elliott takes more than $5B stake in Honeywell, advises separating automation, aerospace units](https://finance.yahoo.com/news/elliott-takes-more-5b-stake-142448701.html)
-- Nov 12 - [Justin Welby quits as Archbishop of Canterbury over Church abuse scandal](https://www.yahoo.com/news/justin-welby-resigns-statement-archbishop-canterbury-141151957.html)
-- Nov 12 - [Russian doctor jailed for 5-1/2 years after being publicly denounced](https://www.yahoo.com/news/russian-doctor-denounced-online-jailed-121950453.html)
-- Nov 12 - [The Morning After: Apple makes its iOS Find My features much more useful](https://www.yahoo.com/tech/the-morning-after-engadget-newsletter-121525242.html)
+- Nov 12 - [SC highway exit to permanently close in effort to improve traffic at Malfunction Junction](https://www.yahoo.com/news/sc-highway-exit-permanently-close-155413452.html)
+- Nov 12 - [Tropical system brewing in the Caribbean now is forecast to hit the US. Here is its new projected path](https://www.yahoo.com/news/tropical-system-brewing-caribbean-now-151329524.html)
+- Nov 12 - [Driver dies, northbound I-95 shut down Tuesday after fiery crash in Harford County](https://www.yahoo.com/news/truck-driver-dies-northbound-95-142100049.html)
+- Nov 12 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Nov 12 - [Officials identify item that fell from sky, nearly struck commuters outside Boston’s South Station](https://www.yahoo.com/news/officials-identify-item-fell-sky-133218965.html)
 <!-- feed end -->
 
 ### Onstream
