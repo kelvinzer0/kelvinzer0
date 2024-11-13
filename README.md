@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Vietnam Airlines to request bids for 50 narrowbody jets next year](https://finance.yahoo.com/news/vietnam-airlines-request-bids-50-055437487.html)
+- Nov 13 - [John Bolton Sums Up What Trump Really Wants In 1 Damning Word](https://www.yahoo.com/news/john-bolton-sums-trump-really-043144031.html)
 - Nov 13 - [Guns smuggled from the US are blamed for a surge in killings on more Caribbean islands](https://www.yahoo.com/news/guns-smuggled-us-blamed-surge-042610526.html)
-- Nov 13 - [Nvidia and SoftBank pilot world's first AI and 5G telecom network](https://finance.yahoo.com/news/nvidia-softbank-pilot-worlds-first-031751375.html)
+- Nov 13 - [SoftBank first to receive new Nvidia chips for supercomputer](https://finance.yahoo.com/news/nvidia-softbank-pilot-worlds-first-031751375.html)
 - Nov 13 - [Up to US to decide what to do with decommissioned HAWK missiles, Taiwan says](https://www.yahoo.com/news/us-decide-decommissioned-hawk-missiles-022308916.html)
-- Nov 13 - [Trump says he will nominate anti-'woke' Fox News host Pete Hegseth for defense secretary](https://www.yahoo.com/news/trump-says-nominate-fox-news-001411740.html)
-- Nov 13 - [3 Reliable Dividend Stocks Offering Up To 7.1% Yield](https://finance.yahoo.com/news/3-reliable-dividend-stocks-offering-000625934.html)
 <!-- feed end -->
 
 ### Onstream
