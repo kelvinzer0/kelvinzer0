@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Job search tips to make you the best candidate for any role](https://www.yahoo.com/news/job-search-tips-best-candidate-143740722.html)
 - Nov 13 - [Warren Buffett Reveals How To Invest $10,000 If You Want To Get Rich](https://finance.yahoo.com/news/warren-buffett-reveals-invest-10-110045016.html)
 - Nov 13 - [Deadly Crash Involving Bulldozer Becomes More Sinister](https://autos.yahoo.com/deadly-crash-involving-bulldozer-becomes-130000249.html)
 - Nov 13 - [Florida couple’s flood claim denied over 3.5-inch step, despite 12 years of insurance payments. Here’s why](https://finance.yahoo.com/news/florida-couple-flood-claim-denied-123700643.html)
-- Nov 13 - [Elon Musk was shocked to see Warren Buffett’s Coca-Cola dividends in 2023 — and they've since grown even larger to $776M](https://finance.yahoo.com/news/elon-musk-shocked-see-warren-115500449.html)
+- Nov 13 - [Super Micro delays filing September-quarter report as delisting looms](https://finance.yahoo.com/news/super-micro-delays-filing-september-112648377.html)
+- Nov 13 - [Invest 99L expected to become Sara, could potentially impact Florida](https://www.yahoo.com/news/invest-99l-expected-become-sara-103033743.html)
 <!-- feed end -->
 
 ### Onstream
