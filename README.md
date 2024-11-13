@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [‘Terrifying’: Oregon family of 6 is $90K in debt with $25 in the bank. Dave Ramsey says there’s only 1 way out](https://finance.yahoo.com/news/terrifying-oregon-family-6-90k-114200774.html)
-- Nov 13 - [1 AI Stock May Be Worth More Than Apple, Microsoft, Amazon, and Tesla Combined by 2030, According to a Wall Street Analyst](https://finance.yahoo.com/news/1-ai-stock-may-worth-094500637.html)
-- Nov 13 - [Plane Passenger Confronts Seatmate Watching Show at 'Full Volume' — and Their Response Left Them Baffled](https://www.yahoo.com/lifestyle/plane-passenger-confronts-seatmate-watching-090500098.html)
+- Nov 13 - [Deadly Crash Involving Bulldozer Becomes More Sinister](https://autos.yahoo.com/deadly-crash-involving-bulldozer-becomes-130000249.html)
+- Nov 13 - [Florida couple’s flood claim denied over 3.5-inch step, despite 12 years of insurance payments. Here’s why](https://finance.yahoo.com/news/florida-couple-flood-claim-denied-123700643.html)
+- Nov 13 - [Elon Musk was shocked to see Warren Buffett’s Coca-Cola dividends in 2023 — and they've since grown even larger to $776M](https://finance.yahoo.com/news/elon-musk-shocked-see-warren-115500449.html)
 - Nov 13 - [Iran executes in public a serial rapist convicted in dozens of cases](https://www.yahoo.com/news/iran-executes-public-serial-rapist-073047180.html)
 - Nov 13 - [Vietnam Airlines to request bids for 50 narrowbody jets next year](https://finance.yahoo.com/news/vietnam-airlines-request-bids-50-055437487.html)
 <!-- feed end -->
