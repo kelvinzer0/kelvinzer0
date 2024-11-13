@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [El Paso police arrest intruder suspected of entering houses in East Side neighborhood](https://www.yahoo.com/news/el-paso-police-arrest-intruder-215131365.html)
+- Nov 13 - [Trump says he will nominate Fox News host Pete Hegseth for defense secretary](https://www.yahoo.com/news/trump-says-nominate-fox-news-001411740.html)
+- Nov 12 - [Comedian who slammed Peoria won't make any Illinois stops on upcoming tour](https://www.yahoo.com/entertainment/comedian-slammed-peoria-wont-illinois-221044569.html)
 - Nov 12 - [This powerful, quiet, exhaust-free generator is almost 55% off ahead of Black Friday](https://www.yahoo.com/tech/this-powerful-quiet-exhaust-free-generator-is-almost-55-off-ahead-of-black-friday-213138327.html)
+- Nov 12 - [Apple to announce AI wall tablet as soon as March, Bloomberg News reports](https://finance.yahoo.com/news/apple-announce-ai-wall-tablet-212949077.html)
 - Nov 12 - [US Navy destroyers unscathed after fighting off a complex attack of cruise and ballistic missiles and exploding drones](https://www.yahoo.com/news/us-navy-destroyers-unscathed-fighting-210214273.html)
-- Nov 12 - [The Election Proved Something Painful About Gen Z. It’s Worse Than We Thought.](https://www.yahoo.com/news/election-proved-something-painful-gen-200000843.html)
-- Nov 12 - [Justice Department sues to block UnitedHealth Group's $3.3 billion purchase of Amedisys](https://finance.yahoo.com/news/justice-department-sues-block-unitedhealth-194209723.html)
 <!-- feed end -->
 
 ### Onstream
