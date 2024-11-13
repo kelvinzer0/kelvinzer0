@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [How AI can play a role in meme coins](https://finance.yahoo.com/video/ai-play-role-meme-coins-163035834.html)
+- Nov 13 - [Iran sets up mental health clinic to ‘treat’ women who refuse to wear hijab](https://www.yahoo.com/news/iran-sets-mental-health-clinic-155111392.html)
+- Nov 13 - [Super Micro Stock Could Get Delisted. What to Consider If You Own the Shares.](https://www.barrons.com/articles/smci-stock-delisted-super-micro-stock-what-now-1e319988?siteid=yhoof2&yptr=yahoo)
 - Nov 13 - [Warren Buffett Reveals How To Invest $10,000 If You Want To Get Rich](https://finance.yahoo.com/news/warren-buffett-reveals-invest-10-110045016.html)
 - Nov 13 - [Deadly Crash Involving Bulldozer Becomes More Sinister](https://autos.yahoo.com/deadly-crash-involving-bulldozer-becomes-130000249.html)
-- Nov 13 - [Florida couple’s flood claim denied over 3.5-inch step, despite 12 years of insurance payments. Here’s why](https://finance.yahoo.com/news/florida-couple-flood-claim-denied-123700643.html)
-- Nov 13 - [Super Micro delays filing September-quarter report as delisting looms](https://finance.yahoo.com/news/super-micro-delays-filing-september-112648377.html)
-- Nov 13 - [Invest 99L expected to become Sara, could potentially impact Florida](https://www.yahoo.com/news/invest-99l-expected-become-sara-103033743.html)
 <!-- feed end -->
 
 ### Onstream
