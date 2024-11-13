@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 13 - [Up to US to decide what to do with decommissioned HAWK missiles, Taiwan says](https://www.yahoo.com/news/us-decide-decommissioned-hawk-missiles-022308916.html)
 - Nov 13 - [Trump says he will nominate anti-'woke' Fox News host Pete Hegseth for defense secretary](https://www.yahoo.com/news/trump-says-nominate-fox-news-001411740.html)
-- Nov 12 - [Jill Biden's apparent cold shoulder for Kamala Harris ignites social media](https://www.yahoo.com/news/jill-bidens-apparent-cold-shoulder-234943349.html)
+- Nov 12 - [Passenger Sees Worker Unscrewing Plane Part Before Takeoff](https://www.yahoo.com/news/passenger-sees-worker-unscrewing-plane-234402875.html)
 - Nov 12 - [Man escapes from SUV after driving into Canandaigua Lake from City Pier](https://www.yahoo.com/news/man-escapes-suv-driving-canandaigua-225927077.html)
 - Nov 12 - [L.A. teacher obsessed over and abused teen student, authorities say: 'Her crystal meth'](https://www.yahoo.com/news/l-teacher-obsessed-over-abused-221506579.html)
 <!-- feed end -->
