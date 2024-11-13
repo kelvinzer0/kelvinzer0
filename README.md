@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Iran executes in public a serial rapist convicted in dozens of cases](https://www.yahoo.com/news/iran-executes-public-serial-rapist-073047180.html)
+- Nov 13 - [Plane Passenger Confronts Seatmate Watching Show at 'Full Volume' — and Their Response Left Them Baffled](https://www.yahoo.com/lifestyle/plane-passenger-confronts-seatmate-watching-090500098.html)
 - Nov 13 - [Vietnam Airlines to request bids for 50 narrowbody jets next year](https://finance.yahoo.com/news/vietnam-airlines-request-bids-50-055437487.html)
+- Nov 13 - [Exclusive-Chinese giant CATL pushes beyond batteries into power grids, EV platforms](https://finance.yahoo.com/news/exclusive-chinese-giant-catl-pushes-051237183.html)
 - Nov 13 - [John Bolton Sums Up What Trump Really Wants In 1 Damning Word](https://www.yahoo.com/news/john-bolton-sums-trump-really-043144031.html)
-- Nov 13 - [Guns smuggled from the US are blamed for a surge in killings on more Caribbean islands](https://www.yahoo.com/news/guns-smuggled-us-blamed-surge-042610526.html)
 - Nov 13 - [Up to US to decide what to do with decommissioned HAWK missiles, Taiwan says](https://www.yahoo.com/news/us-decide-decommissioned-hawk-missiles-022308916.html)
 <!-- feed end -->
 
