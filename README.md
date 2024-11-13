@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Supreme Court seems likely to allow class action to proceed against tech company Nvidia](https://finance.yahoo.com/news/supreme-court-seems-likely-allow-175233721.html)
+- Nov 13 - [E. coli cases climb to 104 in McDonald's outbreak tied to slivered onions](https://www.yahoo.com/news/e-coli-cases-climb-104-212226467.html)
+- Nov 13 - [Odell Beckham Jr. dunks on everyone who laughed at him for taking Rams salary in Bitcoin](https://finance.yahoo.com/news/odell-beckham-jr-dunks-everyone-210301676.html)
+- Nov 13 - [Trump taps firebrand congressman Matt Gaetz for attorney general](https://www.yahoo.com/news/trump-nominates-republican-rep-gaetz-203106087.html)
+- Nov 13 - [Unexpected Frisch’s closure forces workers to transfer or be fired, ex-employee says](https://www.yahoo.com/news/unexpected-frisch-closure-forces-workers-172437008.html)
 - Nov 13 - [AMD to cut 4% of global workforce as it focuses on AI chip development](https://finance.yahoo.com/news/amd-cut-4-global-workforce-171829397.html)
-- Nov 13 - [AMD lays off 4% of its workforce](https://finance.yahoo.com/news/amd-lays-off-4-workforce-170326792.html)
-- Nov 13 - [Beirut bombing victims' $1.68 billion Iran judgment overturned by US appeals court](https://www.yahoo.com/news/beirut-bombing-victims-1-68-165235485.html)
-- Nov 13 - [Iran sets up mental health clinic to ‘treat’ women who refuse to wear hijab](https://www.yahoo.com/news/iran-sets-mental-health-clinic-155111392.html)
 <!-- feed end -->
 
 ### Onstream
