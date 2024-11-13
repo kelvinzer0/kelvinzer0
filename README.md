@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Trump's Pick For Defense Secretary Once Had An Absolutely Horrific Moment On Live TV](https://www.yahoo.com/news/trumps-pick-defense-secretary-once-094945190.html)
+- Nov 13 - [‘Terrifying’: Oregon family of 6 is $90K in debt with $25 in the bank. Dave Ramsey says there’s only 1 way out](https://finance.yahoo.com/news/terrifying-oregon-family-6-90k-114200774.html)
+- Nov 13 - [1 AI Stock May Be Worth More Than Apple, Microsoft, Amazon, and Tesla Combined by 2030, According to a Wall Street Analyst](https://finance.yahoo.com/news/1-ai-stock-may-worth-094500637.html)
 - Nov 13 - [Plane Passenger Confronts Seatmate Watching Show at 'Full Volume' — and Their Response Left Them Baffled](https://www.yahoo.com/lifestyle/plane-passenger-confronts-seatmate-watching-090500098.html)
 - Nov 13 - [Iran executes in public a serial rapist convicted in dozens of cases](https://www.yahoo.com/news/iran-executes-public-serial-rapist-073047180.html)
 - Nov 13 - [Vietnam Airlines to request bids for 50 narrowbody jets next year](https://finance.yahoo.com/news/vietnam-airlines-request-bids-50-055437487.html)
-- Nov 13 - [Analysis-India's middle class tightens its belt, squeezed by food inflation](https://finance.yahoo.com/news/analysis-indias-middle-class-tightens-053558292.html)
 <!-- feed end -->
 
 ### Onstream
