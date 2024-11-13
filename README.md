@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Vietnam Airlines to request bids for 50 narrowbody jets next year](https://finance.yahoo.com/news/vietnam-airlines-request-bids-50-055437487.html)
+- Nov 13 - [Analysis-India's middle class tightens its belt, squeezed by food inflation](https://finance.yahoo.com/news/analysis-indias-middle-class-tightens-053558292.html)
 - Nov 13 - [John Bolton Sums Up What Trump Really Wants In 1 Damning Word](https://www.yahoo.com/news/john-bolton-sums-trump-really-043144031.html)
-- Nov 13 - [Guns smuggled from the US are blamed for a surge in killings on more Caribbean islands](https://www.yahoo.com/news/guns-smuggled-us-blamed-surge-042610526.html)
-- Nov 13 - [SoftBank first to receive new Nvidia chips for supercomputer](https://finance.yahoo.com/news/nvidia-softbank-pilot-worlds-first-031751375.html)
-- Nov 13 - [Up to US to decide what to do with decommissioned HAWK missiles, Taiwan says](https://www.yahoo.com/news/us-decide-decommissioned-hawk-missiles-022308916.html)
+- Nov 13 - [Trump says he will nominate anti-'woke' Fox News host Pete Hegseth for defense secretary](https://www.yahoo.com/news/trump-says-nominate-fox-news-001411740.html)
+- Nov 12 - [Passenger Sees Worker Unscrewing Plane Part Before Takeoff](https://www.yahoo.com/news/passenger-sees-worker-unscrewing-plane-234402875.html)
+- Nov 12 - [Subway rider who helped restrain man in NYC chokehold death says he wanted ex-Marine to 'let go'](https://www.yahoo.com/news/subway-rider-helped-restrain-man-225005289.html)
 <!-- feed end -->
 
 ### Onstream
