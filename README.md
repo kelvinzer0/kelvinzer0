@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [How AI can play a role in meme coins](https://finance.yahoo.com/video/ai-play-role-meme-coins-163035834.html)
+- Nov 13 - [AMD lays off 4% of its workforce](https://finance.yahoo.com/news/amd-lays-off-4-workforce-170326792.html)
+- Nov 13 - [Beirut bombing victims' $1.68 billion Iran judgment overturned by US appeals court](https://www.yahoo.com/news/beirut-bombing-victims-1-68-165235485.html)
 - Nov 13 - [Iran sets up mental health clinic to ‘treat’ women who refuse to wear hijab](https://www.yahoo.com/news/iran-sets-mental-health-clinic-155111392.html)
-- Nov 13 - [Super Micro Stock Could Get Delisted. What to Consider If You Own the Shares.](https://www.barrons.com/articles/smci-stock-delisted-super-micro-stock-what-now-1e319988?siteid=yhoof2&yptr=yahoo)
-- Nov 13 - [Warren Buffett Reveals How To Invest $10,000 If You Want To Get Rich](https://finance.yahoo.com/news/warren-buffett-reveals-invest-10-110045016.html)
 - Nov 13 - [Deadly Crash Involving Bulldozer Becomes More Sinister](https://autos.yahoo.com/deadly-crash-involving-bulldozer-becomes-130000249.html)
+- Nov 13 - [GM recalling big pickups and SUVs because the rear wheels can lock up, increasing risk of a crash](https://www.yahoo.com/news/gm-recalling-big-pickups-suvs-124244672.html)
 <!-- feed end -->
 
 ### Onstream
