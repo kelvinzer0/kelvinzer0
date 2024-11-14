@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Alex Jones Is Having a Total Meltdown Over The Onion Buying Infowars](https://www.yahoo.com/entertainment/alex-jones-having-total-meltdown-173312282.html)
-- Nov 14 - [New Apple security feature reboots iPhones after 3 days, researchers confirm](https://finance.yahoo.com/news/apple-security-feature-reboots-iphones-171331711.html)
-- Nov 14 - [Hezbollah should abandon arms to end Israel war, Lebanese Christian party head says](https://www.yahoo.com/news/hezbollah-abandon-arms-end-israel-171103245.html)
-- Nov 14 - [“She Was a High School Student and There Were Witnesses.”](https://www.yahoo.com/news/she-high-school-student-were-170906859.html)
-- Nov 14 - [Elon Musk’s AI turns on him, labels him ‘one of the most significant spreaders of misinformation on X’](https://finance.yahoo.com/news/elon-musk-ai-turns-him-163201403.html)
+- Nov 14 - [Tropical Storm Sara forms in Caribbean, could threaten Florida next week](https://www.yahoo.com/news/tropical-storm-sara-forms-caribbean-205300498.html)
+- Nov 14 - [Germany’s Evotec Gets Takeover Interest From Halozyme](https://finance.yahoo.com/news/germany-evotec-gets-takeover-interest-200055051.html)
+- Nov 14 - [Judge, Colleagues, Residents Vilify Jamey Noel in Court](https://www.yahoo.com/news/judge-colleagues-residents-vilify-jamey-191154842.html)
+- Nov 14 - [GA mother arrested after child walks less than a mile from their home](https://www.yahoo.com/news/ga-mother-arrested-child-walks-185437186.html)
+- Nov 14 - [Donald Trump Supporters Are Already Finding Out What Their Vote Actually Meant, And The Stories Are Going Viral](https://www.yahoo.com/news/donald-trump-supporters-already-finding-184406723.html)
 <!-- feed end -->
 
 ### Onstream
