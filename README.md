@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Tropical Storm Sara forms in Caribbean, could threaten Florida next week](https://www.yahoo.com/news/tropical-storm-sara-forms-caribbean-205300498.html)
-- Nov 14 - [Germany’s Evotec Gets Takeover Interest From Halozyme](https://finance.yahoo.com/news/germany-evotec-gets-takeover-interest-200055051.html)
+- Nov 14 - [Former Marine misused a combat technique in fatal chokehold of NYC subway rider, trainer testifies](https://www.yahoo.com/news/ex-marine-misused-combat-technique-193706930.html)
 - Nov 14 - [Judge, Colleagues, Residents Vilify Jamey Noel in Court](https://www.yahoo.com/news/judge-colleagues-residents-vilify-jamey-191154842.html)
+- Nov 14 - [El Paso woman dies after lying on freeway entrance ramp, struck by 3 vehicles](https://www.yahoo.com/news/el-paso-woman-dies-lying-190434921.html)
 - Nov 14 - [GA mother arrested after child walks less than a mile from their home](https://www.yahoo.com/news/ga-mother-arrested-child-walks-185437186.html)
 - Nov 14 - [Donald Trump Supporters Are Already Finding Out What Their Vote Actually Meant, And The Stories Are Going Viral](https://www.yahoo.com/news/donald-trump-supporters-already-finding-184406723.html)
 <!-- feed end -->
