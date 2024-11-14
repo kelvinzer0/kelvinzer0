@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [At 7:53: SpaceX set for Falcon 9 rocket launch from Florida’s Space Coast](https://www.yahoo.com/news/7-53-spacex-set-falcon-104120734.html)
+- Nov 14 - [When will it snow? How many days ahead the Met Office can give accurate forecast](https://www.yahoo.com/news/when-will-it-snow-met-office-forecast-113424520.html)
+- Nov 14 - [A TikToker got charged $10K for driving 25K miles in an ‘unlimited mileage’ rental — how to avoid the same mishap](https://finance.yahoo.com/news/tiktoker-got-charged-10k-driving-110500551.html)
+- Nov 14 - [Google Parent Alphabet Sold 79% of Its Stake in Snowflake and Is Piling Into This Supercharged Artificial Intelligence (AI) Stock Instead](https://finance.yahoo.com/news/google-parent-alphabet-sold-79-093600106.html)
 - Nov 14 - [First-Ever Amber Discovered in Antarctica Shows Rainforest Existed Near South Pole](https://www.yahoo.com/news/first-ever-amber-discovered-antarctica-053528067.html)
 - Nov 14 - [China's president will unveil a megaport in Peru, but locals say they're being left out](https://www.yahoo.com/news/chinas-president-unveil-megaport-peru-050228511.html)
-- Nov 14 - [Russia's economy is heading toward a fate worse than recession, pro-Kremlin economists say](https://finance.yahoo.com/news/russias-economy-heading-toward-fate-045829084.html)
-- Nov 14 - [Boeing delivers layoff notices to 17,000 workers amid financial struggles](https://finance.yahoo.com/news/boeing-delivers-layoff-notices-17-044751725.html)
 <!-- feed end -->
 
 ### Onstream
