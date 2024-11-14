@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Two firm inflation prints just made the Fed's 2025 rate cut path a lot 'murkier'](https://finance.yahoo.com/news/two-firm-inflation-prints-just-made-the-feds-2025-rate-cut-path-a-lot-murkier-160013403.html)
+- Nov 14 - [RHOC’s Katie Ginella Named ‘Aggressor’ in Historic Police Report Referenced at Season 18 Reunion](https://www.yahoo.com/entertainment/rhoc-katie-ginella-named-aggressor-162524815.html)
+- Nov 14 - [Scientists Discovered the Secret to Perfect Cell Division](https://www.yahoo.com/news/scientists-discovered-secret-perfect-cell-160500747.html)
 - Nov 14 - [Fishermen catch US nuclear-powered submarine](https://www.yahoo.com/news/fishermen-catch-us-nuclear-powered-153817571.html)
 - Nov 14 - [This is the key puzzle piece to advancing women's health breakthroughs](https://finance.yahoo.com/video/key-puzzle-piece-advancing-womens-153054216.html)
 - Nov 14 - [Ford agrees to pay up to $165 million penalty to US government for moving too slowly on recall](https://www.yahoo.com/news/ford-agrees-pay-165-million-152858717.html)
-- Nov 14 - [Secret Service agent fired for taking lover to Obamas’ Hawaii home and suggesting tryst in Michelle’s bathroom](https://www.yahoo.com/news/secret-agent-fired-taking-lover-151354627.html)
 <!-- feed end -->
 
 ### Onstream
