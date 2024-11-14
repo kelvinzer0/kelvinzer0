@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [RHOC’s Katie Ginella Named ‘Aggressor’ in Historic Police Report Referenced at Season 18 Reunion](https://www.yahoo.com/entertainment/rhoc-katie-ginella-named-aggressor-162524815.html)
-- Nov 14 - [Scientists Discovered the Secret to Perfect Cell Division](https://www.yahoo.com/news/scientists-discovered-secret-perfect-cell-160500747.html)
-- Nov 14 - [Fishermen catch US nuclear-powered submarine](https://www.yahoo.com/news/fishermen-catch-us-nuclear-powered-153817571.html)
-- Nov 14 - [This is the key puzzle piece to advancing women's health breakthroughs](https://finance.yahoo.com/video/key-puzzle-piece-advancing-womens-153054216.html)
-- Nov 14 - [Ford agrees to pay up to $165 million penalty to US government for moving too slowly on recall](https://www.yahoo.com/news/ford-agrees-pay-165-million-152858717.html)
+- Nov 14 - [Emergency services at scene after 2 Israeli airstrikes hit Syria's capital and a suburb](https://www.yahoo.com/news/emergency-services-scene-2-israeli-180411650.html)
+- Nov 14 - [Alex Jones Is Having a Total Meltdown Over The Onion Buying Infowars](https://www.yahoo.com/entertainment/alex-jones-having-total-meltdown-173312282.html)
+- Nov 14 - [New Apple security feature reboots iPhones after 3 days, researchers confirm](https://finance.yahoo.com/news/apple-security-feature-reboots-iphones-171331711.html)
+- Nov 14 - [Hezbollah should abandon arms to end Israel war, Lebanese Christian party head says](https://www.yahoo.com/news/hezbollah-abandon-arms-end-israel-171103245.html)
+- Nov 14 - [“She Was a High School Student and There Were Witnesses.”](https://www.yahoo.com/news/she-high-school-student-were-170906859.html)
 <!-- feed end -->
 
 ### Onstream
