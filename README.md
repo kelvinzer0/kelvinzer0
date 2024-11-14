@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Women adopt behaviours to avoid leaks and discomfort during their period](https://www.yahoo.com/lifestyle/women-adopt-behaviours-avoid-leaks-085140314.html)
-- Nov 14 - [Man dead after suspected failed attack on Brazil Supreme Court ahead of G20](https://www.yahoo.com/news/man-dead-suspected-failed-attack-084344694.html)
+- Nov 14 - [Sonos (SONO) Q4 2024 Earnings Call Transcript](https://finance.yahoo.com/news/sonos-sono-q4-2024-earnings-094517070.html)
 - Nov 14 - [First-Ever Amber Discovered in Antarctica Shows Rainforest Existed Near South Pole](https://www.yahoo.com/news/first-ever-amber-discovered-antarctica-053528067.html)
 - Nov 14 - [China's president will unveil a megaport in Peru, but locals say they're being left out](https://www.yahoo.com/news/chinas-president-unveil-megaport-peru-050228511.html)
-- Nov 13 - [US envoy says Mexico not safe, blames ex-president for failed security](https://www.yahoo.com/news/us-envoy-says-mexico-not-230735197.html)
+- Nov 14 - [Russia's economy is heading toward a fate worse than recession, pro-Kremlin economists say](https://finance.yahoo.com/news/russias-economy-heading-toward-fate-045829084.html)
+- Nov 14 - [Arkansas Game and Fish Commission using helicopter to drop thousands of pounds of gravel into Lake Conway](https://www.yahoo.com/news/arkansas-game-fish-commission-using-003822153.html)
 <!-- feed end -->
 
 ### Onstream
