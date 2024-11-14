@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [At the housing experiment, tension grows between formerly homeless and “regulars”](https://www.yahoo.com/news/housing-experiment-tension-grows-between-181300526.html)
-- Nov 14 - [Emergency services at scene after 2 Israeli airstrikes hit Syria's capital and a suburb](https://www.yahoo.com/news/emergency-services-scene-2-israeli-180411650.html)
-- Nov 14 - [The best Apple iPhone 16 Pro cases for 2024](https://www.yahoo.com/tech/best-apple-iphone-16-pro-141252198.html)
+- Nov 14 - [Alex Jones Is Having a Total Meltdown Over The Onion Buying Infowars](https://www.yahoo.com/entertainment/alex-jones-having-total-meltdown-173312282.html)
 - Nov 14 - [New Apple security feature reboots iPhones after 3 days, researchers confirm](https://finance.yahoo.com/news/apple-security-feature-reboots-iphones-171331711.html)
+- Nov 14 - [Hezbollah should abandon arms to end Israel war, Lebanese Christian party head says](https://www.yahoo.com/news/hezbollah-abandon-arms-end-israel-171103245.html)
 - Nov 14 - [“She Was a High School Student and There Were Witnesses.”](https://www.yahoo.com/news/she-high-school-student-were-170906859.html)
+- Nov 14 - [Elon Musk’s AI turns on him, labels him ‘one of the most significant spreaders of misinformation on X’](https://finance.yahoo.com/news/elon-musk-ai-turns-him-163201403.html)
 <!-- feed end -->
 
 ### Onstream
