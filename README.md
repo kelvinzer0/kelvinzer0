@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Live updates as the Jennings Creek Wildfire continues to burn in New Jersey and New York](https://www.yahoo.com/news/live-updates-jennings-creek-wildfire-143147011.html)
-- Nov 14 - [I’m a Multimillionaire — 3 Ways I Maintain a Frugal Lifestyle To Stay That Way](https://finance.yahoo.com/news/m-multimillionaire-3-ways-maintain-181651866.html)
-- Nov 14 - [Iowa's list of the 35 lowest-performing schools now includes 12 from Des Moines](https://www.yahoo.com/news/iowas-list-35-lowest-performing-120354794.html)
-- Nov 14 - [A TikToker got charged $10K for driving 25K miles in an ‘unlimited mileage’ rental — how to avoid the same mishap](https://finance.yahoo.com/news/tiktoker-got-charged-10k-driving-110500551.html)
-- Nov 14 - [First-Ever Amber Discovered in Antarctica Shows Rainforest Existed Near South Pole](https://www.yahoo.com/news/first-ever-amber-discovered-antarctica-053528067.html)
+- Nov 14 - [Two firm inflation prints just made the Fed's 2025 rate cut path a lot 'murkier'](https://finance.yahoo.com/news/two-firm-inflation-prints-just-made-the-feds-2025-rate-cut-path-a-lot-murkier-160013403.html)
+- Nov 14 - [Fishermen catch US nuclear-powered submarine](https://www.yahoo.com/news/fishermen-catch-us-nuclear-powered-153817571.html)
+- Nov 14 - [This is the key puzzle piece to advancing women's health breakthroughs](https://finance.yahoo.com/video/key-puzzle-piece-advancing-womens-153054216.html)
+- Nov 14 - [Ford agrees to pay up to $165 million penalty to US government for moving too slowly on recall](https://www.yahoo.com/news/ford-agrees-pay-165-million-152858717.html)
+- Nov 14 - [Secret Service agent fired for taking lover to Obamas’ Hawaii home and suggesting tryst in Michelle’s bathroom](https://www.yahoo.com/news/secret-agent-fired-taking-lover-151354627.html)
 <!-- feed end -->
 
 ### Onstream
