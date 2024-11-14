@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [China's president will unveil a megaport in Peru, but locals say they're being left out](https://www.yahoo.com/news/chinas-president-unveil-megaport-peru-050228511.html)
 - Nov 14 - [Tech consultant testifies that 'bad joke' led to deadly clash with Cash App founder Bob Lee](https://www.yahoo.com/news/tech-consultant-testifies-bad-joke-011903745.html)
 - Nov 13 - [US envoy says Mexico not safe, blames ex-president for failed security](https://www.yahoo.com/news/us-envoy-says-mexico-not-230735197.html)
 - Nov 13 - [A $1 billion proposal is the latest plan to refurbish and save the iconic Houston Astrodome](https://www.yahoo.com/news/1-billion-proposal-latest-plan-225553391.html)
 - Nov 13 - [‘He will turn DOJ into a petting zoo for Trump’: Fmr. DOJ official sounds off on Gaetz nomination](https://www.yahoo.com/news/turn-doj-petting-zoo-trump-223517088.html)
-- Nov 13 - [‘Extreme risk’: Owner of Boise rock and gem shop charged with rape, attempted strangulation](https://www.yahoo.com/news/extreme-risk-owner-boise-rock-214221339.html)
 <!-- feed end -->
 
 ### Onstream
