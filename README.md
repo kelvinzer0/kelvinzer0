@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [As President Xi inaugurates a huge Chinese port in Peru, locals say they're left out](https://www.yahoo.com/news/president-xi-inaugurates-huge-chinese-030100001.html)
+- Nov 14 - [Former Dixon school teacher arrested for allegedly paying students to have sex with her](https://www.yahoo.com/news/former-dixon-school-teacher-arrested-010652085.html)
 - Nov 13 - [US envoy says Mexico not safe, blames ex-president for failed security](https://www.yahoo.com/news/us-envoy-says-mexico-not-230735197.html)
 - Nov 13 - [A $1 billion proposal is the latest plan to refurbish and save the iconic Houston Astrodome](https://www.yahoo.com/news/1-billion-proposal-latest-plan-225553391.html)
 - Nov 13 - [‘He will turn DOJ into a petting zoo for Trump’: Fmr. DOJ official sounds off on Gaetz nomination](https://www.yahoo.com/news/turn-doj-petting-zoo-trump-223517088.html)
-- Nov 13 - [Best Samsung Galaxy S24 Ultra deals: Get Samsung’s flagship for $200](https://www.yahoo.com/tech/best-samsung-galaxy-s24-ultra-164423413.html)
+- Nov 13 - [Nvidia Stock Slips. Why Missing Earnings Expectations Wouldn’t Be a Disaster.](https://www.barrons.com/articles/nvidia-stock-price-ai-chips-softbank-e6211bab?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
