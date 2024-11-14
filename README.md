@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Nov 14 - [First-Ever Amber Discovered in Antarctica Shows Rainforest Existed Near South Pole](https://www.yahoo.com/news/first-ever-amber-discovered-antarctica-053528067.html)
 - Nov 14 - [China's president will unveil a megaport in Peru, but locals say they're being left out](https://www.yahoo.com/news/chinas-president-unveil-megaport-peru-050228511.html)
 - Nov 14 - [Tech consultant testifies that 'bad joke' led to deadly clash with Cash App founder Bob Lee](https://www.yahoo.com/news/tech-consultant-testifies-bad-joke-011903745.html)
-- Nov 14 - [Arkansas Game and Fish Commission using helicopter to drop thousands of pounds of gravel into Lake Conway](https://www.yahoo.com/news/arkansas-game-fish-commission-using-003822153.html)
+- Nov 14 - [‘You don’t have rights, you’re Mexican’: Southern California man arrested for alleged hate crime, sexual battery](https://www.yahoo.com/news/don-t-rights-mexican-southern-003056649.html)
 - Nov 13 - [US envoy says Mexico not safe, blames ex-president for failed security](https://www.yahoo.com/news/us-envoy-says-mexico-not-230735197.html)
 <!-- feed end -->
 
