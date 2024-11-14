@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [My 62-year-old husband died after a short illness, and now our joint bank account is frozen](https://finance.yahoo.com/news/62-old-husband-died-short-112300027.html)
-- Nov 14 - [Karine Jean-Pierre Hits Fox Reporter With Brutally 'Honest' Reality Check On Trump](https://www.yahoo.com/news/karine-jean-pierre-hits-fox-111118774.html)
+- Nov 14 - [I'm 63, Have $1.6 Million, and Spend $4,500 Monthly. Is It Time to Retire?](https://finance.yahoo.com/news/im-63-1-6-million-120000826.html)
+- Nov 14 - [Video appears to show a Ukrainian Leopard tank taking out a column of Russian armored vehicles](https://www.yahoo.com/news/video-appears-show-ukrainian-leopard-125041178.html)
+- Nov 14 - [Iowa's list of the 35 lowest-performing schools now includes 12 from Des Moines](https://www.yahoo.com/news/iowas-list-35-lowest-performing-120354794.html)
+- Nov 14 - [The New-Look Medical Properties Trust Is Starting to Come Into Focus. Is It Time to Buy for Dividend Income?](https://finance.yahoo.com/news/look-medical-properties-trust-starting-113000913.html)
 - Nov 14 - [A TikToker got charged $10K for driving 25K miles in an ‘unlimited mileage’ rental — how to avoid the same mishap](https://finance.yahoo.com/news/tiktoker-got-charged-10k-driving-110500551.html)
-- Nov 14 - [First-Ever Amber Discovered in Antarctica Shows Rainforest Existed Near South Pole](https://www.yahoo.com/news/first-ever-amber-discovered-antarctica-053528067.html)
-- Nov 14 - [China's president will unveil a megaport in Peru, but locals say they're being left out](https://www.yahoo.com/news/chinas-president-unveil-megaport-peru-050228511.html)
 <!-- feed end -->
 
 ### Onstream
