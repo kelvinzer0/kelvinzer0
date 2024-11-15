@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [The daughters of Malcolm X sue the CIA, FBI and NYPD over the civil rights leader's assassination](https://www.yahoo.com/news/daughters-malcolm-x-sue-cia-175626318.html)
-- Nov 15 - [37-Year-Old Who 'Grew Up Poor' Hits $1 Million Net Worth in 10 Years, Shares Stock Portfolio and Career Tips: Top 7 Stocks, ETFs](https://finance.yahoo.com/news/37-old-grew-poor-hits-170038267.html)
-- Nov 15 - [Leader of Spain flood region admits 'mistakes'](https://www.yahoo.com/news/leader-spain-flood-region-admits-165205137.html)
-- Nov 15 - [Tropical Storm Sara timeline: Hurricane Sara unlikely to form but Florida could see impact](https://www.yahoo.com/news/tropical-storm-sara-timeline-hurricane-163638048.html)
-- Nov 15 - [Joe Manchin May Be About to Save Democrats Before Trump Takes Office](https://www.yahoo.com/news/joe-manchin-may-save-democrats-152647243.html)
+- Nov 15 - [Sayre man sentenced up to 28 years in prison for felony sexual acts with a minor](https://www.yahoo.com/news/sayre-man-sentenced-28-years-170019660.html)
+- Nov 15 - [This Small City Was Named One of the Best Places to Live in the U.S. for Its Affordability, Mild Climate, and Low Unemployment Rates](https://www.yahoo.com/lifestyle/small-city-named-one-best-154059665.html)
+- Nov 15 - [Manchin Finally Willing to Work With Democrats Before Trump Returns](https://www.yahoo.com/news/joe-manchin-may-save-democrats-152647243.html)
+- Nov 15 - [Austria says Russia to cut off gas from Saturday](https://finance.yahoo.com/news/austrias-omv-informed-gazprom-deliveries-150454103.html)
+- Nov 15 - [20 Cars That Will Last You Twice as Long as Any Regular Vehicle](https://finance.yahoo.com/news/more-bang-buck-20-cars-110026804.html)
 <!-- feed end -->
 
 ### Onstream
