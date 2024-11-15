@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Meghan Markle Wows in Strapless All-Black Outfit (But I Noticed Something Interesting About Her Look)](https://www.purewow.com/news/meghan-markle-black-bustier-pants?utm_source=yahoo&utm_medium=referral)
-- Nov 15 - [The daughters of Malcolm X sue the CIA, FBI and NYPD over the civil rights leader's assassination](https://www.yahoo.com/news/daughters-malcolm-x-sue-cia-175626318.html)
+- Nov 15 - [Erie Humane Society cuts ties with executive director, will begin search for new leader](https://www.yahoo.com/news/erie-humane-society-cuts-ties-194721344.html)
+- Nov 15 - [Rudy Giuliani has turned over his luxury watches in defamation case, rep says](https://www.yahoo.com/news/rudy-giuliani-turned-over-luxury-185717573.html)
+- Nov 15 - [37-Year-Old Who 'Grew Up Poor' Hits $1 Million Net Worth in 10 Years, Shares Stock Portfolio and Career Tips: Top 7 Stocks, ETFs](https://finance.yahoo.com/news/37-old-grew-poor-hits-170038267.html)
 - Nov 15 - [This Small City Was Named One of the Best Places to Live in the U.S. for Its Affordability, Mild Climate, and Low Unemployment Rates](https://www.yahoo.com/lifestyle/small-city-named-one-best-154059665.html)
-- Nov 15 - [Austria says Russia to cut off gas from Saturday](https://finance.yahoo.com/news/austrias-omv-informed-gazprom-deliveries-150454103.html)
-- Nov 15 - [Space Perspective's 'Spaceship Neptune' Balloon Lifts Off - Unmanned Test Flight](https://www.yahoo.com/news/space-perspectives-spaceship-neptune-balloon-150000680.html)
+- Nov 15 - [Lawsuit claiming Elon Musk rigged dogecoin ends](https://finance.yahoo.com/news/lawsuit-claiming-elon-musk-rigged-151503019.html)
 <!-- feed end -->
 
 ### Onstream
