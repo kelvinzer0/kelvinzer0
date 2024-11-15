@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Maryland school to share safe firearm storage information after two student shootings](https://www.yahoo.com/news/maryland-school-share-safe-firearm-164800486.html)
+- Nov 15 - [A lion cub evacuated from Lebanon to a South African sanctuary escapes airstrikes and abuse](https://www.yahoo.com/news/lion-cub-evacuated-lebanon-south-161832393.html)
 - Nov 15 - [$99 Billion Bet: Warren Buffett Invests Heavily In 2 Stocks Expected To Jump 19% And 20%, Wall Street Analysts Predict](https://finance.yahoo.com/news/99-billion-bet-warren-buffett-154533725.html)
-- Nov 15 - [Palantir Is Leaving the NYSE for the Nasdaq. Why That’s a Big Deal for the Stock.](https://www.barrons.com/articles/palantir-stock-price-nasdaq-nyse-52732751?siteid=yhoof2&yptr=yahoo)
-- Nov 15 - [8 Hybrid Vehicles That Last Longer Than You Think and Are Worth the Money](https://finance.yahoo.com/news/8-hybrid-vehicles-last-longer-140058234.html)
-- Nov 15 - [GM laying off nearly 1,000 workers, most in US, source says](https://finance.yahoo.com/news/gm-laying-off-nearly-1-133730999.html)
-- Nov 15 - [‘People have no clue’: Mass. residents erasing homes from radar of would-be thieves with simple step](https://www.yahoo.com/lifestyle/people-no-clue-mass-residents-123140382.html)
+- Nov 15 - [This Small City Was Named One of the Best Places to Live in the U.S. for Its Affordability, Mild Climate, and Low Unemployment Rates](https://www.yahoo.com/lifestyle/small-city-named-one-best-154059665.html)
+- Nov 15 - [Austria to be cut off from Russian gas from Saturday](https://finance.yahoo.com/news/austrias-omv-informed-gazprom-deliveries-150454416.html)
 <!-- feed end -->
 
 ### Onstream
