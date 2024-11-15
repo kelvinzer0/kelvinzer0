@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Perfect Corp. (PERF): Among the Best AI Penny Stocks to Buy According to Analysts](https://finance.yahoo.com/news/perfect-corp-perf-among-best-012051189.html)
+- Nov 14 - [People Are Sharing The Wildest Medical Self-Diagnoses That Actually Turned Out To Be Correct](https://www.yahoo.com/lifestyle/people-sharing-wildest-medical-self-234603259.html)
+- Nov 14 - [Vivek Ramaswamy wants to start DOGE cuts by eliminating funding for unauthorized programs - including veteran healthcare](https://www.yahoo.com/news/vivek-ramaswamy-wants-start-doge-223626905.html)
 - Nov 14 - [North Korea leader Kim orders mass production of suicide drones, KCNA says](https://www.yahoo.com/news/north-korea-leader-kim-orders-211424009.html)
-- Nov 14 - [Former Marine misused a combat technique in fatal chokehold of NYC subway rider, trainer testifies](https://www.yahoo.com/news/ex-marine-misused-combat-technique-193706930.html)
-- Nov 14 - [El Paso woman dies after lying on freeway entrance ramp, struck by 3 vehicles](https://www.yahoo.com/news/el-paso-woman-dies-lying-190434921.html)
-- Nov 14 - [Donald Trump Supporters Are Already Finding Out What Their Vote Actually Meant, And The Stories Are Going Viral](https://www.yahoo.com/news/donald-trump-supporters-already-finding-184406723.html)
-- Nov 14 - [Olentangy Orange principal placed on leave after controversial election message to staff](https://www.yahoo.com/news/olentangy-orange-principal-placed-leave-173000446.html)
+- Nov 14 - [When can St. Louis expect to see the first snow this year?](https://www.yahoo.com/news/st-louis-expect-see-first-204447670.html)
 <!-- feed end -->
 
 ### Onstream
