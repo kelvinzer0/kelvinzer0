@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Erie Humane Society cuts ties with executive director, will begin search for new leader](https://www.yahoo.com/news/erie-humane-society-cuts-ties-194721344.html)
+- Nov 15 - [7 Best First Jobs for Gen Zers Who Want To Make a Lot of Money](https://finance.yahoo.com/news/7-best-first-jobs-gen-170028748.html)
+- Nov 15 - [Trump Pentagon pick had been flagged by fellow service member as possible 'Insider Threat'](https://www.yahoo.com/news/trump-defense-pick-had-flagged-205034367.html)
+- Nov 15 - [Civil rights attorney announces $100 million lawsuit against FBI, CIA and the NYPD over assassination of Malcolm X](https://www.yahoo.com/news/civil-rights-attorney-announces-100-193948319.html)
 - Nov 15 - [Rudy Giuliani has turned over his luxury watches in defamation case, rep says](https://www.yahoo.com/news/rudy-giuliani-turned-over-luxury-185717573.html)
-- Nov 15 - [37-Year-Old Who 'Grew Up Poor' Hits $1 Million Net Worth in 10 Years, Shares Stock Portfolio and Career Tips: Top 7 Stocks, ETFs](https://finance.yahoo.com/news/37-old-grew-poor-hits-170038267.html)
-- Nov 15 - [This Small City Was Named One of the Best Places to Live in the U.S. for Its Affordability, Mild Climate, and Low Unemployment Rates](https://www.yahoo.com/lifestyle/small-city-named-one-best-154059665.html)
-- Nov 15 - [Lawsuit claiming Elon Musk rigged dogecoin ends](https://finance.yahoo.com/news/lawsuit-claiming-elon-musk-rigged-151503019.html)
+- Nov 15 - [Company announces nearly $712 million project in Kentucky to make batteries used to store energy](https://finance.yahoo.com/news/company-announces-nearly-712-million-185515877.html)
 <!-- feed end -->
 
 ### Onstream
