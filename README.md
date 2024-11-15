@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Mazda BT-50 gets updated for 2025 but Americans won’t see it](https://autos.yahoo.com/mazda-bt-50-gets-updated-123300747.html)
+- Nov 15 - [‘People have no clue’: Mass. residents erasing homes from radar of would-be thieves with simple step](https://www.yahoo.com/lifestyle/people-no-clue-mass-residents-123140382.html)
+- Nov 15 - [Jimmy Kimmel on Trump Tapping RFK Jr. as Health Secretary: ‘Who Better to Be in Charge Than a Guy Whose Brain Was Partially Devoured by a Worm?’](https://www.yahoo.com/entertainment/jimmy-kimmel-trump-tapping-rfk-110106308.html)
+- Nov 15 - [Mortgage and refinance rates today, November 15, 2024: It could be a good time to buy](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-friday-november-15-2024-110023780.html)
 - Nov 15 - [More Russians denounce each other over Ukraine, in echo of Soviet era](https://www.yahoo.com/news/more-russians-denounce-other-over-050728785.html)
-- Nov 15 - [American Airlines passenger shares photos of man ‘in my lap’ in reclining seat complaint](https://www.yahoo.com/lifestyle/american-airlines-passenger-shares-photos-202710888.html)
-- Nov 15 - [Police spokesperson calls rescue attempt of trapped miners ‘unsafe’](https://www.yahoo.com/news/police-spokesperson-calls-rescue-attempt-034006424.html)
-- Nov 15 - [Death penalty sought for an Idaho gang member accused of killing a man while on the run](https://www.yahoo.com/news/death-penalty-sought-idaho-gang-025216554.html)
+- Nov 15 - [I-35 expansion project: Austin officials show off new renderings](https://www.yahoo.com/news/35-expansion-project-austin-officials-042012413.html)
 <!-- feed end -->
 
 ### Onstream
