@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Shanghai, Tokyo, New York, Houston spew most greenhouse gas of world cities](https://www.yahoo.com/news/shanghai-tokyo-york-houston-spew-064631344.html)
 - Nov 15 - [More Russians denounce each other over Ukraine, in echo of Soviet era](https://www.yahoo.com/news/more-russians-denounce-other-over-050728785.html)
+- Nov 15 - [American Airlines passenger shares photos of man ‘in my lap’ in reclining seat complaint](https://www.yahoo.com/lifestyle/american-airlines-passenger-shares-photos-202710888.html)
+- Nov 15 - [Police spokesperson calls rescue attempt of trapped miners ‘unsafe’](https://www.yahoo.com/news/police-spokesperson-calls-rescue-attempt-034006424.html)
 - Nov 14 - [People Are Sharing The Wildest Medical Self-Diagnoses That Actually Turned Out To Be Correct](https://www.yahoo.com/lifestyle/people-sharing-wildest-medical-self-234603259.html)
-- Nov 14 - [System from Alaska to bring San Diego County scattered rain, potential for snow](https://www.yahoo.com/news/system-alaska-bring-san-diego-224841392.html)
-- Nov 14 - [Vivek Ramaswamy wants to start DOGE cuts by eliminating funding for unauthorized programs - including veteran healthcare](https://www.yahoo.com/news/vivek-ramaswamy-wants-start-doge-223626905.html)
-- Nov 14 - [Greene: ‘Pretty sure’ Trump’s AG will prosecute COVID ‘crimes’](https://www.yahoo.com/news/greene-pretty-sure-trump-ag-212445982.html)
 <!-- feed end -->
 
 ### Onstream
