@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [6 Money Mistakes Retirees Make That Force Them To Change Their Lifestyles](https://finance.yahoo.com/news/6-money-mistakes-retirees-force-110105447.html)
+- Nov 15 - [Cathie Wood Says Software Is the Next Big AI Opportunity -- 1 Unstoppable $2 Trillion Stock You'll Wish You'd Bought if She's Right](https://finance.yahoo.com/news/cathie-wood-says-software-next-080100084.html)
 - Nov 15 - [More Russians denounce each other over Ukraine, in echo of Soviet era](https://www.yahoo.com/news/more-russians-denounce-other-over-050728785.html)
-- Nov 15 - [American Airlines passenger shares photos of man ‘in my lap’ in reclining seat complaint](https://www.yahoo.com/lifestyle/american-airlines-passenger-shares-photos-202710888.html)
 - Nov 15 - [Police spokesperson calls rescue attempt of trapped miners ‘unsafe’](https://www.yahoo.com/news/police-spokesperson-calls-rescue-attempt-034006424.html)
-- Nov 14 - [People Are Sharing The Wildest Medical Self-Diagnoses That Actually Turned Out To Be Correct](https://www.yahoo.com/lifestyle/people-sharing-wildest-medical-self-234603259.html)
-- Nov 14 - [System from Alaska to bring San Diego County scattered rain, potential for snow](https://www.yahoo.com/news/system-alaska-bring-san-diego-224841392.html)
+- Nov 15 - [North Korean leader watches test of lethal attack drones](https://www.yahoo.com/news/north-korean-leader-watches-test-013530228.html)
 <!-- feed end -->
 
 ### Onstream
