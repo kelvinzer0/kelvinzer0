@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [6 Money Mistakes Retirees Make That Force Them To Change Their Lifestyles](https://finance.yahoo.com/news/6-money-mistakes-retirees-force-110105447.html)
-- Nov 15 - [Cathie Wood Says Software Is the Next Big AI Opportunity -- 1 Unstoppable $2 Trillion Stock You'll Wish You'd Bought if She's Right](https://finance.yahoo.com/news/cathie-wood-says-software-next-080100084.html)
+- Nov 15 - [Mazda BT-50 gets updated for 2025 but Americans won’t see it](https://autos.yahoo.com/mazda-bt-50-gets-updated-123300747.html)
 - Nov 15 - [More Russians denounce each other over Ukraine, in echo of Soviet era](https://www.yahoo.com/news/more-russians-denounce-other-over-050728785.html)
+- Nov 15 - [American Airlines passenger shares photos of man ‘in my lap’ in reclining seat complaint](https://www.yahoo.com/lifestyle/american-airlines-passenger-shares-photos-202710888.html)
 - Nov 15 - [Police spokesperson calls rescue attempt of trapped miners ‘unsafe’](https://www.yahoo.com/news/police-spokesperson-calls-rescue-attempt-034006424.html)
-- Nov 15 - [North Korean leader watches test of lethal attack drones](https://www.yahoo.com/news/north-korean-leader-watches-test-013530228.html)
+- Nov 15 - [Death penalty sought for an Idaho gang member accused of killing a man while on the run](https://www.yahoo.com/news/death-penalty-sought-idaho-gang-025216554.html)
 <!-- feed end -->
 
 ### Onstream
