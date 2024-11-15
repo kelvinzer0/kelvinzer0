@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Participant in University of Florida-China smuggling plot sentenced; more likely to be charged](https://www.yahoo.com/news/participant-university-florida-china-smuggling-140908795.html)
+- Nov 15 - [8 Hybrid Vehicles That Last Longer Than You Think and Are Worth the Money](https://finance.yahoo.com/news/8-hybrid-vehicles-last-longer-140058234.html)
 - Nov 15 - [‘People have no clue’: Mass. residents erasing homes from radar of would-be thieves with simple step](https://www.yahoo.com/lifestyle/people-no-clue-mass-residents-123140382.html)
 - Nov 15 - [Jimmy Kimmel on Trump Tapping RFK Jr. as Health Secretary: ‘Who Better to Be in Charge Than a Guy Whose Brain Was Partially Devoured by a Worm?’](https://www.yahoo.com/entertainment/jimmy-kimmel-trump-tapping-rfk-110106308.html)
 - Nov 15 - [Mortgage and refinance rates today, November 15, 2024: It could be a good time to buy](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-friday-november-15-2024-110023780.html)
-- Nov 15 - [More Russians denounce each other over Ukraine, in echo of Soviet era](https://www.yahoo.com/news/more-russians-denounce-other-over-050728785.html)
-- Nov 15 - [I-35 expansion project: Austin officials show off new renderings](https://www.yahoo.com/news/35-expansion-project-austin-officials-042012413.html)
 <!-- feed end -->
 
 ### Onstream
