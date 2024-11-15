@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Sweeping tax overhaul in Louisiana hits snag on sales tax expansion](https://finance.yahoo.com/news/sweeping-tax-overhaul-louisiana-hits-023428191.html)
-- Nov 15 - [China says Philippines sent supplies to disputed shoal](https://www.yahoo.com/news/china-lets-philippines-send-supplies-014631819.html)
+- Nov 15 - [Philippines braces for typhoon Man-yi as Usagi weakens](https://www.yahoo.com/news/philippines-braces-typhoon-man-yi-030738946.html)
+- Nov 15 - [North Korean leader watches test of lethal attack drones](https://www.yahoo.com/news/north-korean-leader-watches-test-013530228.html)
 - Nov 14 - [People Are Sharing The Wildest Medical Self-Diagnoses That Actually Turned Out To Be Correct](https://www.yahoo.com/lifestyle/people-sharing-wildest-medical-self-234603259.html)
 - Nov 14 - [System from Alaska to bring San Diego County scattered rain, potential for snow](https://www.yahoo.com/news/system-alaska-bring-san-diego-224841392.html)
 - Nov 14 - [Vivek Ramaswamy wants to start DOGE cuts by eliminating funding for unauthorized programs - including veteran healthcare](https://www.yahoo.com/news/vivek-ramaswamy-wants-start-doge-223626905.html)
