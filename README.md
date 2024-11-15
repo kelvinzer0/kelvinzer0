@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [7 Best First Jobs for Gen Zers Who Want To Make a Lot of Money](https://finance.yahoo.com/news/7-best-first-jobs-gen-170028748.html)
-- Nov 15 - [Trump Pentagon pick had been flagged by fellow service member as possible 'Insider Threat'](https://www.yahoo.com/news/trump-defense-pick-had-flagged-205034367.html)
-- Nov 15 - [Civil rights attorney announces $100 million lawsuit against FBI, CIA and the NYPD over assassination of Malcolm X](https://www.yahoo.com/news/civil-rights-attorney-announces-100-193948319.html)
+- Nov 15 - [President of Kentucky plant that exploded says it is 'accountable' for neighborhood damages](https://www.yahoo.com/news/president-kentucky-plant-exploded-says-214024278.html)
+- Nov 15 - [John Fetterman says Democrats need to stop 'freaking out' over everything Trump does](https://www.yahoo.com/news/john-fetterman-says-democrats-stop-214003770.html)
 - Nov 15 - [Rudy Giuliani has turned over his luxury watches in defamation case, rep says](https://www.yahoo.com/news/rudy-giuliani-turned-over-luxury-185717573.html)
 - Nov 15 - [Company announces nearly $712 million project in Kentucky to make batteries used to store energy](https://finance.yahoo.com/news/company-announces-nearly-712-million-185515877.html)
+- Nov 15 - [Meghan Markle Wows in Strapless All-Black Outfit (But I Noticed Something Interesting About Her Look)](https://www.purewow.com/news/meghan-markle-black-bustier-pants?utm_source=yahoo&utm_medium=referral)
 <!-- feed end -->
 
 ### Onstream
