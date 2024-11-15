@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Maryland school to share safe firearm storage information after two student shootings](https://www.yahoo.com/news/maryland-school-share-safe-firearm-164800486.html)
-- Nov 15 - [A lion cub evacuated from Lebanon to a South African sanctuary escapes airstrikes and abuse](https://www.yahoo.com/news/lion-cub-evacuated-lebanon-south-161832393.html)
-- Nov 15 - [$99 Billion Bet: Warren Buffett Invests Heavily In 2 Stocks Expected To Jump 19% And 20%, Wall Street Analysts Predict](https://finance.yahoo.com/news/99-billion-bet-warren-buffett-154533725.html)
-- Nov 15 - [This Small City Was Named One of the Best Places to Live in the U.S. for Its Affordability, Mild Climate, and Low Unemployment Rates](https://www.yahoo.com/lifestyle/small-city-named-one-best-154059665.html)
-- Nov 15 - [Austria to be cut off from Russian gas from Saturday](https://finance.yahoo.com/news/austrias-omv-informed-gazprom-deliveries-150454416.html)
+- Nov 15 - [The daughters of Malcolm X sue the CIA, FBI and NYPD over the civil rights leader's assassination](https://www.yahoo.com/news/daughters-malcolm-x-sue-cia-175626318.html)
+- Nov 15 - [37-Year-Old Who 'Grew Up Poor' Hits $1 Million Net Worth in 10 Years, Shares Stock Portfolio and Career Tips: Top 7 Stocks, ETFs](https://finance.yahoo.com/news/37-old-grew-poor-hits-170038267.html)
+- Nov 15 - [Leader of Spain flood region admits 'mistakes'](https://www.yahoo.com/news/leader-spain-flood-region-admits-165205137.html)
+- Nov 15 - [Tropical Storm Sara timeline: Hurricane Sara unlikely to form but Florida could see impact](https://www.yahoo.com/news/tropical-storm-sara-timeline-hurricane-163638048.html)
+- Nov 15 - [Joe Manchin May Be About to Save Democrats Before Trump Takes Office](https://www.yahoo.com/news/joe-manchin-may-save-democrats-152647243.html)
 <!-- feed end -->
 
 ### Onstream
