@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Perfect Corp. (PERF): Among the Best AI Penny Stocks to Buy According to Analysts](https://finance.yahoo.com/news/perfect-corp-perf-among-best-012051189.html)
+- Nov 15 - [Sweeping tax overhaul in Louisiana hits snag on sales tax expansion](https://finance.yahoo.com/news/sweeping-tax-overhaul-louisiana-hits-023428191.html)
+- Nov 15 - [China says Philippines sent supplies to disputed shoal](https://www.yahoo.com/news/china-lets-philippines-send-supplies-014631819.html)
 - Nov 14 - [People Are Sharing The Wildest Medical Self-Diagnoses That Actually Turned Out To Be Correct](https://www.yahoo.com/lifestyle/people-sharing-wildest-medical-self-234603259.html)
+- Nov 14 - [System from Alaska to bring San Diego County scattered rain, potential for snow](https://www.yahoo.com/news/system-alaska-bring-san-diego-224841392.html)
 - Nov 14 - [Vivek Ramaswamy wants to start DOGE cuts by eliminating funding for unauthorized programs - including veteran healthcare](https://www.yahoo.com/news/vivek-ramaswamy-wants-start-doge-223626905.html)
-- Nov 14 - [North Korea leader Kim orders mass production of suicide drones, KCNA says](https://www.yahoo.com/news/north-korea-leader-kim-orders-211424009.html)
-- Nov 14 - [When can St. Louis expect to see the first snow this year?](https://www.yahoo.com/news/st-louis-expect-see-first-204447670.html)
 <!-- feed end -->
 
 ### Onstream
