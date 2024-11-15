@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Should You Forget Eli Lilly and Buy This Magnificent Biotech Stock Instead?](https://finance.yahoo.com/news/forget-eli-lilly-buy-magnificent-090500775.html)
 - Nov 15 - [More Russians denounce each other over Ukraine, in echo of Soviet era](https://www.yahoo.com/news/more-russians-denounce-other-over-050728785.html)
-- Nov 15 - [China's weak economy and record US production will lead to a surplus of one million barrels of oil a day next year, IEA says](https://finance.yahoo.com/news/chinas-weak-economy-record-us-042533492.html)
+- Nov 15 - [American Airlines passenger shares photos of man ‘in my lap’ in reclining seat complaint](https://www.yahoo.com/lifestyle/american-airlines-passenger-shares-photos-202710888.html)
 - Nov 15 - [Police spokesperson calls rescue attempt of trapped miners ‘unsafe’](https://www.yahoo.com/news/police-spokesperson-calls-rescue-attempt-034006424.html)
 - Nov 14 - [People Are Sharing The Wildest Medical Self-Diagnoses That Actually Turned Out To Be Correct](https://www.yahoo.com/lifestyle/people-sharing-wildest-medical-self-234603259.html)
+- Nov 14 - [System from Alaska to bring San Diego County scattered rain, potential for snow](https://www.yahoo.com/news/system-alaska-bring-san-diego-224841392.html)
 <!-- feed end -->
 
 ### Onstream
