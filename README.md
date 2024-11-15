@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [A clearer picture is slowly emerging of the violence involving soccer fans in Amsterdam](https://www.yahoo.com/news/clearer-picture-slowly-emerging-violence-090000598.html)
 - Nov 15 - [Moment Falling Plank Almost Hits Commuters at Station](https://www.yahoo.com/news/moment-falling-plank-almost-hits-135615230.html)
-- Nov 15 - [UK growth slows between July and September as services sector falters](https://uk.finance.yahoo.com/news/uk-economy-gdp-growth-services-sector-073006356.html)
 - Nov 15 - [More Russians denounce each other over Ukraine, in echo of Soviet era](https://www.yahoo.com/news/more-russians-denounce-other-over-050728785.html)
 - Nov 15 - [China's weak economy and record US production will lead to a surplus of one million barrels of oil a day next year, IEA says](https://finance.yahoo.com/news/chinas-weak-economy-record-us-042533492.html)
 - Nov 15 - [Police spokesperson calls rescue attempt of trapped miners ‘unsafe’](https://www.yahoo.com/news/police-spokesperson-calls-rescue-attempt-034006424.html)
