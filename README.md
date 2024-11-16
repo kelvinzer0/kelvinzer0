@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [As a young man he went on a deadly crime spree with his domineering mother. Now he’s speaking out](https://www.yahoo.com/news/young-man-went-deadly-crime-112201660.html)
+- Nov 16 - [Israeli troops reach deepest point in Lebanon since Oct. 1 invasion, Lebanese media say](https://www.yahoo.com/news/israeli-troops-reach-deepest-point-120620985.html)
 - Nov 16 - [Mortgage and refinance rates today, November 16, 2024: Rates skyrocket](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-saturday-november-16-2024-110027904.html)
 - Nov 16 - [Prosecutors Claim “Liam Payne’s Friendship With Argentinian Waiter May Have Led To Death” – report](https://www.yahoo.com/news/prosecutors-claim-liam-payne-friendship-102059599.html)
-- Nov 16 - [In the polar bear capital of the world, a community lives with the predator next door and loves it](https://www.yahoo.com/news/polar-bear-capital-world-community-051305023.html)
-- Nov 16 - [Operation False Target: How Russia plotted to mix a deadly new weapon among decoy drones in Ukraine](https://www.yahoo.com/news/operation-false-target-russia-plotted-050449532.html)
+- Nov 16 - [The Grim Reality of President-Elect Donald Trump's Social Security Plan](https://finance.yahoo.com/news/grim-reality-president-elect-donald-084400468.html)
+- Nov 16 - [Bullet strikes Southwest Airlines plane as it prepares to depart from Dallas airport](https://www.yahoo.com/news/bullet-strikes-southwest-airlines-plane-064949040.html)
 <!-- feed end -->
 
 ### Onstream
