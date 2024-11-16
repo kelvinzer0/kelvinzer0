@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 16 - [In the polar bear capital of the world, a community lives with the predator next door and loves it](https://www.yahoo.com/news/polar-bear-capital-world-community-051305023.html)
 - Nov 16 - [An Indian family froze to death crossing the Canada-US border, a perilous trip becoming more common](https://www.yahoo.com/news/indian-family-froze-death-crossing-050438619.html)
+- Nov 16 - [St. Louis County Police issue Endangered Person Advisory](https://www.yahoo.com/news/st-louis-county-police-issue-042944103.html)
 - Nov 16 - [Iranian woman arrested after posting harassment video](https://www.yahoo.com/news/iranian-woman-arrested-posting-harassment-015111065.html)
 - Nov 16 - [T-Mobile hacked in massive Chinese breach of telecom networks, WSJ reports](https://finance.yahoo.com/news/t-mobile-hacked-massive-chinese-002126952.html)
-- Nov 16 - [Giuliani turns over Mercedes, watches to Georgia poll workers he defamed](https://www.yahoo.com/news/giuliani-turns-over-mercedes-watches-000722560.html)
 <!-- feed end -->
 
 ### Onstream
