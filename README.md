@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [President of Kentucky plant that exploded says it is 'accountable' for neighborhood damages](https://www.yahoo.com/news/president-kentucky-plant-exploded-says-214024278.html)
-- Nov 15 - [John Fetterman says Democrats need to stop 'freaking out' over everything Trump does](https://www.yahoo.com/news/john-fetterman-says-democrats-stop-214003770.html)
-- Nov 15 - [Rudy Giuliani has turned over his luxury watches in defamation case, rep says](https://www.yahoo.com/news/rudy-giuliani-turned-over-luxury-185717573.html)
-- Nov 15 - [Company announces nearly $712 million project in Kentucky to make batteries used to store energy](https://finance.yahoo.com/news/company-announces-nearly-712-million-185515877.html)
-- Nov 15 - [Meghan Markle Wows in Strapless All-Black Outfit (But I Noticed Something Interesting About Her Look)](https://www.purewow.com/news/meghan-markle-black-bustier-pants?utm_source=yahoo&utm_medium=referral)
+- Nov 16 - [T-Mobile hacked in massive Chinese breach of telecom networks, WSJ reports](https://finance.yahoo.com/news/t-mobile-hacked-massive-chinese-002126952.html)
+- Nov 16 - [Giuliani turns over Mercedes, watches to Georgia poll workers he defamed](https://www.yahoo.com/news/giuliani-turns-over-mercedes-watches-000722560.html)
+- Nov 15 - [Trump picks campaign aide Karoline Leavitt for White House press secretary](https://www.yahoo.com/news/trump-picks-campaign-aide-karoline-234417729.html)
+- Nov 15 - [Super Micro Stock Sees a Group Take a Large Stake Ahead of Potential Delisting](https://www.barrons.com/articles/super-micro-stock-delisting-susquehanna-buy-200850ae?siteid=yhoof2&yptr=yahoo)
+- Nov 15 - [Trump Pentagon pick had been flagged by fellow service member as possible 'Insider Threat'](https://www.yahoo.com/news/trump-defense-pick-had-flagged-205034367.html)
 <!-- feed end -->
 
 ### Onstream
