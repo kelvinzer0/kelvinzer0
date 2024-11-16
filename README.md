@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Diddy accused of ‘relentless efforts to contact potential witnesses’ from behind bars](https://www.yahoo.com/news/diddy-accused-relentless-efforts-contact-201700233.html)
-- Nov 16 - [How AI-powered brain chips could become a $400B industry](https://finance.yahoo.com/video/ai-powered-brain-chips-could-180050347.html)
+- Nov 16 - [Harris campaign spent $24,000 on Uber Eats and ice cream](https://www.yahoo.com/news/harris-campaign-spent-24-000-220134988.html)
 - Nov 16 - [Matt Gaetz ‘Pull Out’ Remark Derails MSNBC: ‘I Just Threw Up’](https://www.yahoo.com/news/mat-gaetz-pull-remark-derails-164736680.html)
+- Nov 16 - [Non-Americans Are Absolutely Certain Americans Have NO IDEA What Is Happening In These Pictures](https://www.yahoo.com/entertainment/non-americans-absolutely-certain-americans-164240318.html)
 - Nov 16 - [McDonald's is investing $100 million to bring customers back after E. coli outbreak](https://www.yahoo.com/news/mcdonalds-investing-100-million-bring-162701106.html)
 - Nov 16 - [Kamala Harris raised $1 billion-plus in defeat. She's still sending persistent appeals to donors](https://www.yahoo.com/news/kamala-harris-raised-1-billion-160956903.html)
 <!-- feed end -->
