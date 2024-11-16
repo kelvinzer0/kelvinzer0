@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 16 - [Scientists discover world's largest coral in Solomon Islands](https://www.yahoo.com/news/scientists-discover-worlds-largest-coral-130841236.html)
-- Nov 16 - [Mortgage and refinance rates today, November 16, 2024: Rates skyrocket](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-saturday-november-16-2024-110027904.html)
+- Nov 16 - [Bullet strikes Southwest Airlines plane as it prepares to depart from Dallas airport](https://www.yahoo.com/news/bullet-strikes-southwest-airlines-plane-064949040.html)
 - Nov 16 - [In the polar bear capital of the world, a community lives with the predator next door and loves it](https://www.yahoo.com/news/polar-bear-capital-world-community-051305023.html)
 - Nov 16 - [Operation False Target: How Russia plotted to mix a deadly new weapon among decoy drones in Ukraine](https://www.yahoo.com/news/operation-false-target-russia-plotted-050449532.html)
 - Nov 16 - [An Indian family froze to death crossing the Canada-US border, a perilous trip becoming more common](https://www.yahoo.com/news/indian-family-froze-death-crossing-050438619.html)
