@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 16 - [Iranian woman arrested after posting harassment video](https://www.yahoo.com/news/iranian-woman-arrested-posting-harassment-015111065.html)
-- Nov 16 - [T-Mobile hacked in massive Chinese breach of telecom networks, WSJ reports](https://finance.yahoo.com/news/t-mobile-hacked-massive-chinese-002126952.html)
 - Nov 16 - [Bills' new stadium costs balloon to $2.1 billion, $560 million over initial estimate, team tells AP](https://finance.yahoo.com/news/bills-stadium-costs-balloon-2-000057348.html)
 - Nov 15 - [Friends’ wrestling match ends with man’s head crushed by box truck in Brooklyn](https://www.yahoo.com/news/friends-wrestling-match-ends-man-234300119.html)
-- Nov 15 - [California will rename places to remove racist term for a Native American woman](https://www.yahoo.com/news/california-rename-places-remove-racist-232211642.html)
+- Nov 15 - [‘Pretty intense;’ Video shows fire engulf truck at Kroger gas station](https://www.yahoo.com/news/fire-engulfs-truck-kroger-gas-145010460.html)
+- Nov 15 - [Trump Judge Blocks Overtime Pay For 4 Million Workers](https://www.yahoo.com/news/trump-judge-blocks-overtime-pay-212709546.html)
 <!-- feed end -->
 
 ### Onstream
