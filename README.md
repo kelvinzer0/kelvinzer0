@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 16 - [Iranian woman arrested after posting harassment video](https://www.yahoo.com/news/iranian-woman-arrested-posting-harassment-015111065.html)
 - Nov 16 - [T-Mobile hacked in massive Chinese breach of telecom networks, WSJ reports](https://finance.yahoo.com/news/t-mobile-hacked-massive-chinese-002126952.html)
-- Nov 16 - [Giuliani turns over Mercedes, watches to Georgia poll workers he defamed](https://www.yahoo.com/news/giuliani-turns-over-mercedes-watches-000722560.html)
-- Nov 15 - [Trump picks campaign aide Karoline Leavitt for White House press secretary](https://www.yahoo.com/news/trump-picks-campaign-aide-karoline-234417729.html)
-- Nov 15 - [Super Micro Stock Sees a Group Take a Large Stake Ahead of Potential Delisting](https://www.barrons.com/articles/super-micro-stock-delisting-susquehanna-buy-200850ae?siteid=yhoof2&yptr=yahoo)
-- Nov 15 - [Trump Pentagon pick had been flagged by fellow service member as possible 'Insider Threat'](https://www.yahoo.com/news/trump-defense-pick-had-flagged-205034367.html)
+- Nov 16 - [Bills' new stadium costs balloon to $2.1 billion, $560 million over initial estimate, team tells AP](https://finance.yahoo.com/news/bills-stadium-costs-balloon-2-000057348.html)
+- Nov 15 - [Friends’ wrestling match ends with man’s head crushed by box truck in Brooklyn](https://www.yahoo.com/news/friends-wrestling-match-ends-man-234300119.html)
+- Nov 15 - [California will rename places to remove racist term for a Native American woman](https://www.yahoo.com/news/california-rename-places-remove-racist-232211642.html)
 <!-- feed end -->
 
 ### Onstream
