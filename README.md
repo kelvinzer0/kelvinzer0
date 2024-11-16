@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Israeli troops reach deepest point in Lebanon since Oct. 1 invasion, Lebanese media say](https://www.yahoo.com/news/israeli-troops-reach-deepest-point-120620985.html)
-- Nov 16 - [Mortgage and refinance rates today, November 16, 2024: Rates skyrocket](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-saturday-november-16-2024-110027904.html)
-- Nov 16 - [Prosecutors Claim “Liam Payne’s Friendship With Argentinian Waiter May Have Led To Death” – report](https://www.yahoo.com/news/prosecutors-claim-liam-payne-friendship-102059599.html)
-- Nov 16 - [The Grim Reality of President-Elect Donald Trump's Social Security Plan](https://finance.yahoo.com/news/grim-reality-president-elect-donald-084400468.html)
-- Nov 16 - [Bullet strikes Southwest Airlines plane as it prepares to depart from Dallas airport](https://www.yahoo.com/news/bullet-strikes-southwest-airlines-plane-064949040.html)
+- Nov 16 - [McDonald's is investing $100 million to bring customers back after E. coli outbreak](https://www.yahoo.com/news/mcdonalds-investing-100-million-bring-162701106.html)
+- Nov 16 - [Kamala Harris raised $1 billion-plus in defeat. She's still sending persistent appeals to donors](https://www.yahoo.com/news/kamala-harris-raised-1-billion-160956903.html)
+- Nov 16 - [I’m a Financial Advisor: This Is the Advice I Give My Wealthiest Clients](https://finance.yahoo.com/news/m-financial-advisor-advice-wealthiest-160035733.html)
+- Nov 16 - [Hostage-taking under way near Paris, French media report](https://www.yahoo.com/news/hostage-taking-under-way-near-153836793.html)
+- Nov 16 - [Scientist Says NASA Lander May Have Accidentally Killed Life on Mars](https://www.yahoo.com/news/scientist-says-nasa-lander-may-150033381.html)
 <!-- feed end -->
 
 ### Onstream
