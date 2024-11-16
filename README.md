@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [In the polar bear capital of the world, a community lives with the predator next door and loves it](https://www.yahoo.com/news/polar-bear-capital-world-community-051305023.html)
+- Nov 16 - [These 3 Passive-Income ETFs Are a Retiree's Best Friend](https://finance.yahoo.com/news/3-passive-income-etfs-retirees-113500338.html)
+- Nov 16 - [Biden praises cooperation at meeting with South Korean, Japanese leaders amid North Korea worries](https://www.yahoo.com/news/biden-praises-cooperation-meeting-south-113111020.html)
 - Nov 16 - [Operation False Target: How Russia plotted to mix a deadly new weapon among decoy drones in Ukraine](https://www.yahoo.com/news/operation-false-target-russia-plotted-050449532.html)
 - Nov 16 - [An Indian family froze to death crossing the Canada-US border, a perilous trip becoming more common](https://www.yahoo.com/news/indian-family-froze-death-crossing-050438619.html)
 - Nov 16 - [Iranian woman arrested after posting harassment video](https://www.yahoo.com/news/iranian-woman-arrested-posting-harassment-015111065.html)
-- Nov 16 - [Bills' new stadium costs balloon to $2.1 billion, $560 million over initial estimate, team tells AP](https://finance.yahoo.com/news/bills-stadium-costs-balloon-2-000057348.html)
 <!-- feed end -->
 
 ### Onstream
