@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 17 - [Taiwan, democracy, development are China's 'red lines', Xi tells Biden](https://www.yahoo.com/news/taiwan-democracy-development-chinas-red-013628625.html)
-- Nov 17 - [Elon Musk's X Corp. files notice in Alex Jones' Infowars bankruptcy case](https://www.yahoo.com/news/elon-musks-x-corp-files-000123126.html)
-- Nov 16 - [Meet the Newest Addition to the S&P 500. The Stock Has Soared 845% Since Early Last Year, and It's Still a Buy Right Now, According to 1 Wall Street Analyst.](https://finance.yahoo.com/news/meet-newest-addition-p-500-230200354.html)
+- Nov 17 - [Japan's Mount Fuji eyes China-made tram to transport hikers, source says](https://www.yahoo.com/news/japans-mount-fuji-eyes-china-001027457.html)
+- Nov 16 - [Biden awkwardly stands in back of APEC photo with China's Xi Jinping front and center](https://www.yahoo.com/news/biden-awkwardly-stands-back-apec-231346199.html)
+- Nov 16 - [1 taken to hospital, I-25 southbound closed near Lone Tree after multiple motorcycles crash](https://www.yahoo.com/news/1-taken-hospital-25-southbound-223806775.html)
 - Nov 16 - [Boeing issues layoff notices to 400-plus workers as it begins drastic cuts](https://finance.yahoo.com/news/boeing-issues-layoff-notices-400-222131015.html)
-- Nov 16 - [Michael Van De Poppe Says Bitcoin, Ethereum And Altcoins Close To The Point Where Investors Can 'Buy The Dip'](https://finance.yahoo.com/news/michael-van-poppe-says-bitcoin-203017129.html)
 <!-- feed end -->
 
 ### Onstream
