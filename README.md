@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Russia launches one of the fiercest missile and drone attacks at Ukraine's infrastructure](https://www.yahoo.com/news/zelenskyy-says-russia-launched-120-083102962.html)
-- Nov 17 - [Guy Fieri, Sammy Hagar's trucks carrying $1 million of tequila hijacked in double heist after crossing border](https://finance.yahoo.com/news/guy-fieri-sammy-hagars-trucks-063655615.html)
-- Nov 17 - [‘SNL’ Roasts Elon Musk for Saying Trump Task Force Workers Will Get No Pay: ‘You Can’t Be Surprised the White African Guy’s First Idea Is Slavery’](https://www.yahoo.com/entertainment/snl-roasts-elon-musk-saying-061213303.html)
-- Nov 17 - [Salmon return to lay eggs in historic habitat after largest dam removal project in US history](https://www.yahoo.com/news/salmon-return-lay-eggs-historic-052226565.html)
-- Nov 17 - [Masked group marches through Ohio neighborhood with swastika flags](https://www.yahoo.com/news/masked-group-marches-ohio-neighborhood-004600236.html)
+- Nov 17 - [New Nvidia AI chips face issue with overheating servers, The Information reports](https://finance.yahoo.com/news/nvidia-ai-chips-face-issue-141200900.html)
+- Nov 17 - [Doctors Say Ozempic Alters Your Brain Chemistry In This Surprising Way](https://www.yahoo.com/lifestyle/doctors-ozempic-alters-brain-chemistry-140000671.html)
+- Nov 17 - [Ben Shapiro says more Americans are ‘aching for retirement’ due to ‘unfulfilling’ work — 3 tips to turn it around](https://finance.yahoo.com/news/ben-shapiro-says-more-americans-120500221.html)
+- Nov 17 - [Augusta National Golf Club: secret membership process explained](https://finance.yahoo.com/video/augusta-national-golf-club-secret-110003785.html)
+- Nov 17 - [Woman faces charges after allegedly aiding in illegal killing of 100 deer in 'large-scale' poaching scheme — here's what happened](https://www.yahoo.com/lifestyle/woman-faces-charges-allegedly-aiding-103059268.html)
 <!-- feed end -->
 
 ### Onstream
