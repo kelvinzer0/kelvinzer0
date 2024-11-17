@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 17 - [Augusta National Golf Club: secret membership process explained](https://finance.yahoo.com/video/augusta-national-golf-club-secret-110003785.html)
+- Nov 17 - [What we know about the death of Harshita Brella, whose body was found in a car boot in London](https://www.yahoo.com/news/woman-body-found-car-boot-london-harshita-brella-095739979.html)
+- Nov 17 - [Russia launches one of the fiercest missile and drone attacks at Ukraine's infrastructure](https://www.yahoo.com/news/zelenskyy-says-russia-launched-120-083102962.html)
 - Nov 17 - [‘SNL’ Roasts Elon Musk for Saying Trump Task Force Workers Will Get No Pay: ‘You Can’t Be Surprised the White African Guy’s First Idea Is Slavery’](https://www.yahoo.com/entertainment/snl-roasts-elon-musk-saying-061213303.html)
 - Nov 17 - [Salmon return to lay eggs in historic habitat after largest dam removal project in US history](https://www.yahoo.com/news/salmon-return-lay-eggs-historic-052226565.html)
-- Nov 17 - [Scientific American Editor Resigns After Saying Trump Supporters are the ‘Meanest, Dumbest, Most Bigoted’ Voters](https://www.yahoo.com/news/scientific-american-editor-resigns-saying-012735684.html)
-- Nov 16 - [Meet the Newest Addition to the S&P 500. The Stock Has Soared 845% Since Early Last Year, and It's Still a Buy Right Now, According to 1 Wall Street Analyst.](https://finance.yahoo.com/news/meet-newest-addition-p-500-230200354.html)
-- Nov 16 - [Boeing issues layoff notices to 400-plus workers as it begins drastic cuts](https://finance.yahoo.com/news/boeing-issues-layoff-notices-400-222131015.html)
 <!-- feed end -->
 
 ### Onstream
