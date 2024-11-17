@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Anduril, defense sector will 'do well' in new Trump admin.: CEO](https://finance.yahoo.com/video/anduril-defense-sector-well-trump-120013775.html)
-- Nov 17 - [The Stock Market Is Doing Something Witnessed Only 3 Times in 153 Years -- and History Is Very Clear What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-witnessed-100600029.html)
+- Nov 17 - [Here's the Maximum Possible 2025 Social Security Benefit at 62, 67, and 70](https://finance.yahoo.com/news/heres-maximum-possible-2025-social-104200543.html)
 - Nov 17 - [Opinion: How Western North Carolina can turn Helene disaster into opportunity](https://www.yahoo.com/lifestyle/opinion-western-north-carolina-turn-100344160.html)
-- Nov 17 - [Hello, Your Weekly Horoscope Is Here](https://www.yahoo.com/lifestyle/hello-weekly-horoscope-100000891.html)
-- Nov 17 - [Russia launches one of the fiercest missile and drone attacks at Ukraine's infrastructure](https://www.yahoo.com/news/zelenskyy-says-russia-launched-120-083102962.html)
+- Nov 17 - [‘SNL’ Roasts Elon Musk for Saying Trump Task Force Workers Will Get No Pay: ‘You Can’t Be Surprised the White African Guy’s First Idea Is Slavery’](https://www.yahoo.com/entertainment/snl-roasts-elon-musk-saying-061213303.html)
+- Nov 17 - [Texas A&M to mark 25th anniversary of campus bonfire collapse that killed 12](https://www.yahoo.com/news/texas-m-mark-25th-anniversary-053450744.html)
+- Nov 17 - [Salmon return to lay eggs in historic habitat after largest dam removal project in US history](https://www.yahoo.com/news/salmon-return-lay-eggs-historic-052226565.html)
 <!-- feed end -->
 
 ### Onstream
