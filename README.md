@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 17 - [Pregnant Indiana Woman, 25, Has Been Missing for More Than a Month, Family Says 'We're Always Going to Look for Her'](https://www.yahoo.com/news/pregnant-indiana-woman-25-missing-201606440.html)
 - Nov 17 - [Biden administration will allow Ukraine to strike Russia with long-range U.S. missiles](https://www.yahoo.com/news/biden-administration-allow-ukraine-strike-193325949.html)
 - Nov 17 - [Biden allows Ukraine to use US arms to strike inside Russia](https://www.yahoo.com/news/biden-lifts-ban-ukraine-using-181003167.html)
 - Nov 17 - [Brazil's first lady Janja Lula da Silva insults Elon Musk at international summit](https://www.yahoo.com/news/brazils-first-lady-janja-lula-174317771.html)
 - Nov 17 - [GOP Senator Shut Down on ‘Meet the Press’ Over Bonkers Vaccine Conspiracy](https://www.yahoo.com/news/gop-senator-shut-down-meet-173242887.html)
-- Nov 17 - [NYT's fact-check of RFK Jr.'s claims about popular breakfast cereal stuns social media](https://www.yahoo.com/news/nyts-fact-check-rfk-jr-170854242.html)
 <!-- feed end -->
 
 ### Onstream
