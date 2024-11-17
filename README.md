@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Israel strikes central Beirut killing one and injuring 3 others](https://www.yahoo.com/news/israel-strikes-central-beirut-killing-164105038.html)
-- Nov 17 - [Sorry, But I'm Dying At These Funny Job Tweets From Last Week](https://www.yahoo.com/entertainment/sorry-im-dying-funny-job-155518948.html)
-- Nov 17 - [Republicans aim to expand slim House majority as final races near finish line](https://www.yahoo.com/news/republicans-aim-expand-slim-house-145603385.html)
-- Nov 17 - [Doctors Say Ozempic Alters Your Brain Chemistry In This Surprising Way](https://www.yahoo.com/lifestyle/doctors-ozempic-alters-brain-chemistry-140000671.html)
-- Nov 17 - [Arizona girl, 10, sells prize chicks for $2,100 — but then Chase froze her check, closed the account. Here’s why](https://finance.yahoo.com/news/arizona-girl-10-sells-prize-124000731.html)
+- Nov 17 - [GOP Senator Shut Down on ‘Meet the Press’ Over Bonkers Vaccine Conspiracy](https://www.yahoo.com/news/gop-senator-shut-down-meet-173242887.html)
+- Nov 17 - [Apple’s next AirTag is coming in 2025 with privacy improvements](https://www.yahoo.com/tech/apples-next-airtag-is-coming-in-2025-with-privacy-improvements-173028439.html)
+- Nov 17 - [New Hampshire shelter faces ‘enormous’ breeding problem after man surrenders nearly 1,000 mice](https://www.yahoo.com/news/hampshire-shelter-faces-enormous-breeding-154354357.html)
+- Nov 17 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://finance.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Nov 17 - [Snow to slam US as winter storms to wreak havoc ahead of Thanksgiving travel](https://www.yahoo.com/news/snow-slam-us-winter-storms-144314770.html)
 <!-- feed end -->
 
 ### Onstream
