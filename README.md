@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 17 - [Elon Musk's X Corp. files notice in Alex Jones' Infowars bankruptcy case](https://www.yahoo.com/news/elon-musks-x-corp-files-000123126.html)
+- Nov 16 - [Meet the Newest Addition to the S&P 500. The Stock Has Soared 845% Since Early Last Year, and It's Still a Buy Right Now, According to 1 Wall Street Analyst.](https://finance.yahoo.com/news/meet-newest-addition-p-500-230200354.html)
 - Nov 16 - [Boeing issues layoff notices to 400-plus workers as it begins drastic cuts](https://finance.yahoo.com/news/boeing-issues-layoff-notices-400-222131015.html)
-- Nov 16 - [Michael Van De Poppe Says Bitcoin, Ethereum And Altcoins Close To The Point Where Investors Can 'Buy The Dip'](https://finance.yahoo.com/news/michael-van-poppe-says-bitcoin-203017129.html)
-- Nov 16 - [Matt Gaetz ‘Pull Out’ Remark Derails MSNBC: ‘I Just Threw Up’](https://www.yahoo.com/news/mat-gaetz-pull-remark-derails-164736680.html)
-- Nov 16 - [Kamala Harris raised $1 billion-plus in defeat. She's still sending persistent appeals to donors](https://www.yahoo.com/news/kamala-harris-raised-1-billion-160956903.html)
-- Nov 16 - [The Surprising Dementia Symptom You May Be Able to Notice in the Shower](https://www.yahoo.com/lifestyle/surprising-dementia-symptom-may-able-152500072.html)
+- Nov 16 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
+- Nov 16 - [Orange County restaurant employee dies after falling off ladder](https://www.yahoo.com/news/orange-county-restaurant-employee-dies-215750910.html)
 <!-- feed end -->
 
 ### Onstream
