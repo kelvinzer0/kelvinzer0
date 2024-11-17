@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Taiwan, democracy, development are China's 'red lines', Xi tells Biden](https://www.yahoo.com/news/taiwan-democracy-development-chinas-red-013628625.html)
+- Nov 17 - [Salmon return to lay eggs in historic habitat after largest dam removal project in US history](https://www.yahoo.com/news/salmon-return-lay-eggs-historic-052226565.html)
+- Nov 17 - [While Jeff Bezos Rides The Stock Market Boom, MacKenzie Scott Has Just Sold $8 Billion In Amazon Shares To Fund Charities Nationwide](https://finance.yahoo.com/news/while-jeff-bezos-rides-stock-013037894.html)
+- Nov 17 - [Scientific American Editor Resigns After Saying Trump Supporters are the ‘Meanest, Dumbest, Most Bigoted’ Voters](https://www.yahoo.com/news/scientific-american-editor-resigns-saying-012735684.html)
 - Nov 16 - [Biden awkwardly stands in back of APEC photo with China's Xi Jinping front and center](https://www.yahoo.com/news/biden-awkwardly-stands-back-apec-231346199.html)
 - Nov 16 - [Meet the Newest Addition to the S&P 500. The Stock Has Soared 845% Since Early Last Year, and It's Still a Buy Right Now, According to 1 Wall Street Analyst.](https://finance.yahoo.com/news/meet-newest-addition-p-500-230200354.html)
-- Nov 16 - [Orange County restaurant employee dies after falling off ladder](https://www.yahoo.com/news/orange-county-restaurant-employee-dies-215750910.html)
-- Nov 16 - [Two flash bombs fired into garden of Netanyahu's home in north Israel](https://www.yahoo.com/news/two-flash-bombs-fired-garden-213058086.html)
 <!-- feed end -->
 
 ### Onstream
