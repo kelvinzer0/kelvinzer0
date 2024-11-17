@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
-- Nov 17 - [Biden’s green light for Ukraine to use ATACMS in Russia just raised the stakes in a war Trump will inherit](https://www.yahoo.com/news/biden-green-light-ukraine-atacms-203209688.html)
-- Nov 17 - [Veteran news executive Reg Murphy, who survived abduction decades ago, has died at 90](https://www.yahoo.com/news/veteran-news-executive-reg-murphy-194621683.html)
-- Nov 17 - [Biden administration will allow Ukraine to strike Russia with long-range U.S. missiles](https://www.yahoo.com/news/biden-administration-allow-ukraine-strike-193325949.html)
-- Nov 17 - [Brazil's first lady Janja Lula da Silva insults Elon Musk at international summit](https://www.yahoo.com/news/brazils-first-lady-janja-lula-174317771.html)
+- Nov 17 - [Watch: Joe Biden wanders into Amazon rainforest after speech](https://www.yahoo.com/news/watch-joe-biden-wanders-amazon-225313520.html)
+- Nov 17 - [Parents arrested for trying to kill their daughter, 17, for refusing arranged marriage, court records say](https://www.yahoo.com/news/parents-arrested-trying-kill-daughter-222638002.html)
+- Nov 17 - [N.J. residents evacuate after fire jumps containmet line](https://www.yahoo.com/news/n-j-residents-evacuate-fire-222358295.html)
+- Nov 17 - [Pregnant Indiana Woman, 25, Has Been Missing for More Than a Month, Family Says 'We're Always Going to Look for Her'](https://www.yahoo.com/news/pregnant-indiana-woman-25-missing-201606440.html)
+- Nov 17 - [Plane crashes into parking lot near track during NHRA season finale at Pomona Dragstrip](https://sports.yahoo.com/plane-crashes-into-parking-lot-near-track-during-nhra-season-finale-at-pomona-dragstrip-200842145.html)
 <!-- feed end -->
 
 ### Onstream
