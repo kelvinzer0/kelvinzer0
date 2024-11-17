@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Leonardo DiCaprio Just Turned 50, So Here's What 50 Years Old Looks Like On 50 Different Celebrities](https://www.yahoo.com/entertainment/leonardo-dicaprio-just-turned-50-154112112.html)
-- Nov 17 - [New Nvidia AI chips overheating in servers, the Information reports](https://finance.yahoo.com/news/nvidia-ai-chips-face-issue-141200824.html)
+- Nov 17 - [Israel strikes central Beirut killing one and injuring 3 others](https://www.yahoo.com/news/israel-strikes-central-beirut-killing-164105038.html)
+- Nov 17 - [Sorry, But I'm Dying At These Funny Job Tweets From Last Week](https://www.yahoo.com/entertainment/sorry-im-dying-funny-job-155518948.html)
+- Nov 17 - [Republicans aim to expand slim House majority as final races near finish line](https://www.yahoo.com/news/republicans-aim-expand-slim-house-145603385.html)
 - Nov 17 - [Doctors Say Ozempic Alters Your Brain Chemistry In This Surprising Way](https://www.yahoo.com/lifestyle/doctors-ozempic-alters-brain-chemistry-140000671.html)
-- Nov 17 - [McLaren 720S Flees Georgia Police](https://autos.yahoo.com/mclaren-720s-flees-georgia-police-130700493.html)
 - Nov 17 - [Arizona girl, 10, sells prize chicks for $2,100 — but then Chase froze her check, closed the account. Here’s why](https://finance.yahoo.com/news/arizona-girl-10-sells-prize-124000731.html)
 <!-- feed end -->
 
