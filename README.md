@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [New Nvidia AI chips face issue with overheating servers, The Information reports](https://finance.yahoo.com/news/nvidia-ai-chips-face-issue-141200900.html)
+- Nov 17 - [Leonardo DiCaprio Just Turned 50, So Here's What 50 Years Old Looks Like On 50 Different Celebrities](https://www.yahoo.com/entertainment/leonardo-dicaprio-just-turned-50-154112112.html)
+- Nov 17 - [New Nvidia AI chips overheating in servers, the Information reports](https://finance.yahoo.com/news/nvidia-ai-chips-face-issue-141200824.html)
 - Nov 17 - [Doctors Say Ozempic Alters Your Brain Chemistry In This Surprising Way](https://www.yahoo.com/lifestyle/doctors-ozempic-alters-brain-chemistry-140000671.html)
-- Nov 17 - [Ben Shapiro says more Americans are ‘aching for retirement’ due to ‘unfulfilling’ work — 3 tips to turn it around](https://finance.yahoo.com/news/ben-shapiro-says-more-americans-120500221.html)
-- Nov 17 - [Augusta National Golf Club: secret membership process explained](https://finance.yahoo.com/video/augusta-national-golf-club-secret-110003785.html)
-- Nov 17 - [Woman faces charges after allegedly aiding in illegal killing of 100 deer in 'large-scale' poaching scheme — here's what happened](https://www.yahoo.com/lifestyle/woman-faces-charges-allegedly-aiding-103059268.html)
+- Nov 17 - [McLaren 720S Flees Georgia Police](https://autos.yahoo.com/mclaren-720s-flees-georgia-police-130700493.html)
+- Nov 17 - [Arizona girl, 10, sells prize chicks for $2,100 — but then Chase froze her check, closed the account. Here’s why](https://finance.yahoo.com/news/arizona-girl-10-sells-prize-124000731.html)
 <!-- feed end -->
 
 ### Onstream
