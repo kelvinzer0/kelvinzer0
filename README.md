@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 17 - [‘SNL’ Roasts Elon Musk for Saying Trump Task Force Workers Will Get No Pay: ‘You Can’t Be Surprised the White African Guy’s First Idea Is Slavery’](https://www.yahoo.com/entertainment/snl-roasts-elon-musk-saying-061213303.html)
-- Nov 17 - [Salmon return to lay eggs in historic habitat after largest dam removal project in US history](https://www.yahoo.com/news/salmon-return-lay-eggs-historic-052226565.html)
-- Nov 17 - [Hawaii woman spotted twice on camera before disappearing in L.A.](https://www.yahoo.com/news/hawaii-woman-spotted-twice-camera-034002764.html)
 - Nov 17 - [Taiwan, democracy, development are China's 'red lines', Xi tells Biden](https://www.yahoo.com/news/taiwan-democracy-development-chinas-red-013628625.html)
-- Nov 17 - [While Jeff Bezos Rides The Stock Market Boom, MacKenzie Scott Has Just Sold $8 Billion In Amazon Shares To Fund Charities Nationwide](https://finance.yahoo.com/news/while-jeff-bezos-rides-stock-013037894.html)
+- Nov 16 - [Biden awkwardly stands in back of APEC photo with China's Xi Jinping front and center](https://www.yahoo.com/news/biden-awkwardly-stands-back-apec-231346199.html)
+- Nov 16 - [Boeing issues layoff notices to 400-plus workers as it begins drastic cuts](https://finance.yahoo.com/news/boeing-issues-layoff-notices-400-222131015.html)
+- Nov 16 - [Orange County restaurant employee dies after falling off ladder](https://www.yahoo.com/news/orange-county-restaurant-employee-dies-215750910.html)
 <!-- feed end -->
 
 ### Onstream
