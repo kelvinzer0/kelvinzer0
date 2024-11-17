@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [India hails 'historic' hypersonic missile test flight](https://www.yahoo.com/news/india-hails-historic-hypersonic-missile-060444499.html)
+- Nov 17 - [‘SNL’ Roasts Elon Musk for Saying Trump Task Force Workers Will Get No Pay: ‘You Can’t Be Surprised the White African Guy’s First Idea Is Slavery’](https://www.yahoo.com/entertainment/snl-roasts-elon-musk-saying-061213303.html)
 - Nov 17 - [Salmon return to lay eggs in historic habitat after largest dam removal project in US history](https://www.yahoo.com/news/salmon-return-lay-eggs-historic-052226565.html)
-- Nov 17 - [Scientific American Editor Resigns After Saying Trump Supporters are the ‘Meanest, Dumbest, Most Bigoted’ Voters](https://www.yahoo.com/news/scientific-american-editor-resigns-saying-012735684.html)
-- Nov 16 - [Boeing issues layoff notices to 400-plus workers as it begins drastic cuts](https://finance.yahoo.com/news/boeing-issues-layoff-notices-400-222131015.html)
-- Nov 16 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
+- Nov 17 - [Hawaii woman spotted twice on camera before disappearing in L.A.](https://www.yahoo.com/news/hawaii-woman-spotted-twice-camera-034002764.html)
+- Nov 17 - [Taiwan, democracy, development are China's 'red lines', Xi tells Biden](https://www.yahoo.com/news/taiwan-democracy-development-chinas-red-013628625.html)
+- Nov 17 - [While Jeff Bezos Rides The Stock Market Boom, MacKenzie Scott Has Just Sold $8 Billion In Amazon Shares To Fund Charities Nationwide](https://finance.yahoo.com/news/while-jeff-bezos-rides-stock-013037894.html)
 <!-- feed end -->
 
 ### Onstream
