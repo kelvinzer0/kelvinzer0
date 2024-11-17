@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 17 - [Biden administration will allow Ukraine to strike Russia with long-range U.S. missiles](https://www.yahoo.com/news/biden-administration-allow-ukraine-strike-193325949.html)
 - Nov 17 - [Biden allows Ukraine to use US arms to strike inside Russia](https://www.yahoo.com/news/biden-lifts-ban-ukraine-using-181003167.html)
+- Nov 17 - [Brazil's first lady Janja Lula da Silva insults Elon Musk at international summit](https://www.yahoo.com/news/brazils-first-lady-janja-lula-174317771.html)
 - Nov 17 - [GOP Senator Shut Down on ‘Meet the Press’ Over Bonkers Vaccine Conspiracy](https://www.yahoo.com/news/gop-senator-shut-down-meet-173242887.html)
-- Nov 17 - [Paedophile who sexually assaulted stepdaughter allowed to stay in UK under ECHR rules](https://www.yahoo.com/news/paedophile-sexually-assaulted-stepdaughter-allowed-160707886.html)
-- Nov 17 - [Leonardo DiCaprio Just Turned 50, So Here's What 50 Years Old Looks Like On 50 Different Celebrities](https://www.yahoo.com/entertainment/leonardo-dicaprio-just-turned-50-154112112.html)
-- Nov 17 - [Doctors Say Ozempic Alters Your Brain Chemistry In This Surprising Way](https://www.yahoo.com/lifestyle/doctors-ozempic-alters-brain-chemistry-140000671.html)
+- Nov 17 - [NYT's fact-check of RFK Jr.'s claims about popular breakfast cereal stuns social media](https://www.yahoo.com/news/nyts-fact-check-rfk-jr-170854242.html)
 <!-- feed end -->
 
 ### Onstream
