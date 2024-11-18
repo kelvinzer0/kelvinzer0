@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Airline passenger shares photos of man ‘in my lap’ in reclining seat complaint](https://www.yahoo.com/lifestyle/american-airlines-passenger-shares-photos-202710888.html)
+- Nov 18 - [How much snow will upstate NY get this week? Winter weather on the way](https://www.yahoo.com/news/much-snow-upstate-ny-week-104948451.html)
+- Nov 18 - [French farmers protest as Mercosur talks fuel discontent](https://www.yahoo.com/news/french-farmers-protest-mercosur-talks-101346138.html)
+- Nov 18 - [Live updates: Severe weather across Oklahoma Monday, including high winds, tornado risk](https://www.yahoo.com/news/live-updates-severe-weather-across-100839825.html)
+- Nov 18 - [Billionaires Are Selling Palantir Stock and Buying an Index Fund That May Soar Up to 54,300%, According to Certain Wall Street Experts](https://finance.yahoo.com/news/billionaires-selling-palantir-stock-buying-093000102.html)
 - Nov 18 - ['Unhinged': Trump's Brazen New 'Investigation' Demand Has Critics Sounding The Alarm](https://www.yahoo.com/news/unhinged-trumps-brazen-investigation-demand-075007441.html)
-- Nov 18 - [Fury in Russia at missile move but Putin so far silent](https://www.yahoo.com/news/fury-russia-missile-move-putin-074336048.html)
-- Nov 18 - [Dad dies days after getting delayed scan results](https://www.yahoo.com/news/dad-dies-days-getting-delayed-064334782.html)
-- Nov 18 - [Australian woman accused of drug smuggling in Japan says she is innocent as trial begins](https://www.yahoo.com/news/australian-woman-accused-drug-smuggling-061011210.html)
 <!-- feed end -->
 
 ### Onstream
