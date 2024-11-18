@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 18 - [Chile's 'seed guardians' preserve forgotten plant varieties](https://www.yahoo.com/news/chiles-seed-guardians-preserve-forgotten-222903437.html)
+- Nov 18 - [Super Micro Computer names BDO as auditor, files Nasdaq compliance plan](https://www.yahoo.com/tech/super-micro-computer-names-bdo-222051291.html)
+- Nov 18 - [Fla. Mom Appeared on “The People's Court”, Then Vanished: Inside the Case of Michelle Parker, Missing for 13 Years](https://www.yahoo.com/news/fla-mom-appeared-peoples-court-215938457.html)
+- Nov 18 - [Critical undersea internet cables severed amid fears of Russian sabotage](https://www.yahoo.com/news/critical-undersea-internet-cable-severed-170421273.html)
 - Nov 18 - [Pennsylvania's high court orders counties not to count disputed ballots in US Senate race](https://www.yahoo.com/news/pennsylvanias-high-court-orders-counties-211510185.html)
-- Nov 18 - [China Unveils New Space Shuttle That Totally Doesn't Look Familiar At All](https://autos.yahoo.com/china-unveils-space-shuttle-totally-200330103.html)
-- Nov 18 - [Boeing layoffs so far total nearly 2,200 workers in Washington state](https://finance.yahoo.com/news/boeing-layoffs-far-total-nearly-193546031.html)
-- Nov 18 - [Elon Musk Reportedly Gets in Blowout Fight With Trump Adviser at Mar-a-Lago Dinner](https://www.yahoo.com/news/elon-musk-reportedly-gets-blowout-191937150.html)
-- Nov 18 - [Judge tosses Huckabee lawsuit against Meta over ads suggesting he endorsed marijuana gummies](https://www.yahoo.com/news/judge-tosses-huckabee-lawsuit-against-190621879.html)
 <!-- feed end -->
 
 ### Onstream
