@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [How much snow will upstate NY get this week? Winter weather on the way](https://www.yahoo.com/news/much-snow-upstate-ny-week-104948451.html)
-- Nov 18 - [French farmers protest as Mercosur talks fuel discontent](https://www.yahoo.com/news/french-farmers-protest-mercosur-talks-101346138.html)
-- Nov 18 - [Live updates: Severe weather across Oklahoma Monday, including high winds, tornado risk](https://www.yahoo.com/news/live-updates-severe-weather-across-100839825.html)
-- Nov 18 - [Billionaires Are Selling Palantir Stock and Buying an Index Fund That May Soar Up to 54,300%, According to Certain Wall Street Experts](https://finance.yahoo.com/news/billionaires-selling-palantir-stock-buying-093000102.html)
-- Nov 18 - ['Unhinged': Trump's Brazen New 'Investigation' Demand Has Critics Sounding The Alarm](https://www.yahoo.com/news/unhinged-trumps-brazen-investigation-demand-075007441.html)
+- Nov 18 - [AP Top Stories November 18 A](https://www.yahoo.com/news/ap-top-stories-november-18-113805146.html)
+- Nov 18 - [Poland's Duda says U.S decision on arms may be decisive for Ukraine](https://www.yahoo.com/news/polands-duda-says-u-decision-113740707.html)
+- Nov 18 - [After losing 33% in the past year, Cracker Barrel Old Country Store, Inc. (NASDAQ:CBRL) institutional owners must be relieved by the recent gain](https://finance.yahoo.com/news/losing-33-past-cracker-barrel-113615439.html)
+- Nov 18 - [Russian ballet star Vladimir Shklyarov dies after falling from building](https://www.yahoo.com/news/russian-ballet-star-vladimir-shklyarov-104333106.html)
+- Nov 18 - [CBS’s 60 Minutes sparks right-wing backlash over brutal takedown of Trump’s cabinet picks](https://www.yahoo.com/news/cbs-60-minutes-sparks-wing-101156835.html)
 <!-- feed end -->
 
 ### Onstream
