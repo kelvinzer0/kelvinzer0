@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Russian-installed governor vows revenge for naval captain killed in Ukrainian hit](https://www.yahoo.com/news/russian-installed-governor-vows-revenge-144519517.html)
-- Nov 18 - [Factbox-Why EU farmers are upset about Mercosur deal](https://www.yahoo.com/news/factbox-why-eu-farmers-upset-141152234.html)
-- Nov 18 - [Exploring 3 High Growth Tech Stocks in the United States](https://finance.yahoo.com/news/exploring-3-high-growth-tech-140743260.html)
-- Nov 18 - [Indigenous senator who heckled King Charles during Australia visit censured](https://www.yahoo.com/news/indigenous-mp-heckled-king-charles-115231738.html)
-- Nov 18 - [The Reason Starbucks' Logo Is A Siren](https://www.yahoo.com/lifestyle/reason-starbucks-logo-siren-140510331.html)
+- Nov 18 - [Russian ballet star Vladimir Shklyarov dies after falling from building](https://www.yahoo.com/news/russian-ballet-star-vladimir-shklyarov-104333106.html)
+- Nov 18 - [Trump Says It’s ‘TRUE’ He Will Declare National Emergency and Use Military to Mass Deport Millions](https://www.yahoo.com/news/trump-says-true-declare-national-145404049.html)
+- Nov 18 - [US regulators open 2 investigations into Ford recalls just days after penalizing the company](https://www.yahoo.com/news/us-regulators-open-2-investigations-144156868.html)
+- Nov 18 - [Two killed in wrong-way crash on I-271](https://www.yahoo.com/news/head-wrong-way-crash-271-115736101.html)
+- Nov 18 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
 <!-- feed end -->
 
 ### Onstream
