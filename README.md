@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 17 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
-- Nov 17 - [3 hurt when small plane crashes near Southern California dragstrip hosting racing event](https://www.yahoo.com/news/3-hurt-small-plane-crashes-224755405.html)
-- Nov 17 - [URI staff member hit by car on campus dies](https://www.yahoo.com/news/uri-staff-member-hit-car-213916990.html)
+- Nov 17 - [Watch: Joe Biden wanders through Amazon rainforest after climate change speech](https://www.yahoo.com/news/watch-joe-biden-wanders-amazon-225313520.html)
+- Nov 17 - [Russian air strikes shake fragile G20 consensus ahead of summit](https://www.yahoo.com/news/russian-air-strikes-shake-fragile-210533051.html)
 - Nov 17 - [Biden’s green light for Ukraine to use ATACMS in Russia just raised the stakes in a war Trump will inherit](https://www.yahoo.com/news/biden-green-light-ukraine-atacms-203209688.html)
-- Nov 17 - [One Of These Futuristic Grenade Launchers Could Succeed Where The Army’s ‘Punisher’ Failed](https://www.yahoo.com/news/one-futuristic-grenade-launchers-could-202552115.html)
+- Nov 17 - [Plane crashes into parking lot near track during NHRA season finale at Pomona Dragstrip](https://sports.yahoo.com/plane-crashes-into-parking-lot-near-track-during-nhra-season-finale-at-pomona-dragstrip-200842145.html)
 <!-- feed end -->
 
 ### Onstream
