@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Parents arrested for trying to kill their daughter, 17, for refusing arranged marriage, court records say](https://www.yahoo.com/news/parents-arrested-trying-kill-daughter-222638002.html)
+- Nov 18 - [People Are Obsessed With This Video Of Joe Biden Wandering Into The Amazon Rainforest, And It's The Meme We All Needed Right Now](https://www.yahoo.com/entertainment/people-obsessed-video-joe-biden-180826104.html)
+- Nov 18 - [Dave Ramsey Recalls The Day American Express Called His Wife, Asking Why Stay 'With A Man That Won't Pay His Bills.' Here's What He Did Next](https://finance.yahoo.com/news/dave-ramsey-recalls-day-american-174516332.html)
 - Nov 18 - [Boeing to lay off over 2,200 workers in US states of Washington and Oregon](https://finance.yahoo.com/news/boeing-lay-off-nearly-2-172635382.html)
-- Nov 18 - [A Carrot Recall Has Been Linked to a Deadly E. Coli Outbreak Across Multiple States](https://www.yahoo.com/news/carrot-recall-linked-deadly-e-171527364.html)
 - Nov 18 - [Critical undersea internet cable severed amid fears of Russian sabotage](https://www.yahoo.com/news/critical-undersea-internet-cable-severed-170421273.html)
-- Nov 18 - [Why Rocket Lab Stock Popped, Then Dropped Today](https://finance.yahoo.com/news/why-rocket-lab-stock-popped-164306861.html)
+- Nov 18 - [Nvidia stock sinks on reports of Blackwell AI server issues ahead of earnings](https://finance.yahoo.com/news/nvidia-stock-sinks-on-reports-of-blackwell-ai-server-issues-ahead-of-earnings-150924657.html)
 <!-- feed end -->
 
 ### Onstream
