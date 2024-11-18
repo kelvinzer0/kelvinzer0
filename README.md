@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Australian woman accused of drug smuggling in Japan says she is innocent as trial begins](https://www.yahoo.com/news/australian-woman-accused-drug-smuggling-061011210.html)
 - Nov 18 - [European oil giants step back from renewables path](https://finance.yahoo.com/news/european-oil-giants-step-back-060345696.html)
 - Nov 18 - [Average UK house prices drop by £5,366 as post-budget jitters set in](https://uk.finance.yahoo.com/news/uk-house-prices-budget-interest-rates-060050580.html)
 - Nov 18 - [Some Arab Americans who voted for Trump are concerned about his picks for key positions](https://www.yahoo.com/news/arab-americans-voted-trump-concerned-051356187.html)
-- Nov 17 - [People Who Were 'Constantly Excluded' in Childhood Often Develop These 11 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-constantly-excluded-childhood-221000922.html)
+- Nov 18 - [Russian lawmaker says Biden is risking WW3 with missile decision](https://www.yahoo.com/news/russian-lawmaker-says-biden-risking-050435428.html)
+- Nov 17 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
 <!-- feed end -->
 
 ### Onstream
