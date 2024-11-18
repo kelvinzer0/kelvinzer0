@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 18 - [Australian woman accused of drug smuggling in Japan says she is innocent as trial begins](https://www.yahoo.com/news/australian-woman-accused-drug-smuggling-061011210.html)
+- Nov 18 - [European oil giants step back from renewables path](https://finance.yahoo.com/news/european-oil-giants-step-back-060345696.html)
+- Nov 18 - [Average UK house prices drop by £5,366 as post-budget jitters set in](https://uk.finance.yahoo.com/news/uk-house-prices-budget-interest-rates-060050580.html)
 - Nov 18 - [Some Arab Americans who voted for Trump are concerned about his picks for key positions](https://www.yahoo.com/news/arab-americans-voted-trump-concerned-051356187.html)
-- Nov 18 - [China's Huawei starts taking pre-orders for Mate 70 smartphone](https://finance.yahoo.com/news/chinas-huawei-starts-taking-pre-051132012.html)
-- Nov 17 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
-- Nov 17 - [Texas man, 66, shot to death while selling cellphone on Facebook Marketplace: police](https://www.yahoo.com/news/texas-man-66-shot-death-225507662.html)
-- Nov 17 - [3 hurt when small plane crashes near Southern California dragstrip hosting racing event](https://www.yahoo.com/news/3-hurt-small-plane-crashes-224755405.html)
+- Nov 17 - [People Who Were 'Constantly Excluded' in Childhood Often Develop These 11 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-constantly-excluded-childhood-221000922.html)
 <!-- feed end -->
 
 ### Onstream
