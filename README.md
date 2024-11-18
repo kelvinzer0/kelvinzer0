@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
-- Nov 17 - [Texas man, 66, shot to death while selling cellphone on Facebook Marketplace: police](https://www.yahoo.com/news/texas-man-66-shot-death-225507662.html)
 - Nov 17 - [3 hurt when small plane crashes near Southern California dragstrip hosting racing event](https://www.yahoo.com/news/3-hurt-small-plane-crashes-224755405.html)
+- Nov 17 - [Employee at Dunedin restaurant arrested for stealing $57k since 2021, PCSO says](https://www.yahoo.com/news/employee-dunedin-restaurant-arrested-stealing-222809136.html)
 - Nov 17 - [People Who Were 'Constantly Excluded' in Childhood Often Develop These 11 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-constantly-excluded-childhood-221000922.html)
 - Nov 17 - [Smaller runway closed for hours at Palm Springs airport; no injuries](https://www.yahoo.com/news/incident-closes-one-runway-palm-215815776.html)
+- Nov 17 - [Russian air strikes shake fragile G20 consensus ahead of summit](https://www.yahoo.com/news/russian-air-strikes-shake-fragile-210533051.html)
 <!-- feed end -->
 
 ### Onstream
