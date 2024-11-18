@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [European oil giants step back from renewables path](https://finance.yahoo.com/news/european-oil-giants-step-back-060345696.html)
+- Nov 18 - [New Delhi closes schools, bans construction as air pollution shoots up](https://www.yahoo.com/news/delhi-closes-schools-bans-construction-081724575.html)
+- Nov 18 - [Fury in Russia at missile move but Putin so far silent](https://www.yahoo.com/news/fury-russia-missile-move-putin-074336048.html)
+- Nov 18 - [Dad dies days after getting delayed scan results](https://www.yahoo.com/news/dad-dies-days-getting-delayed-064334782.html)
 - Nov 18 - [Average UK house prices drop by £5,366 as post-budget jitters set in](https://uk.finance.yahoo.com/news/uk-house-prices-budget-interest-rates-060050580.html)
 - Nov 18 - [Some Arab Americans who voted for Trump are concerned about his picks for key positions](https://www.yahoo.com/news/arab-americans-voted-trump-concerned-051356187.html)
-- Nov 18 - [Russian lawmaker says Biden is risking WW3 with missile decision](https://www.yahoo.com/news/russian-lawmaker-says-biden-risking-050435428.html)
-- Nov 17 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
 <!-- feed end -->
 
 ### Onstream
