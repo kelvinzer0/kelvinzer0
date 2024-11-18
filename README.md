@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [People Are Obsessed With This Video Of Joe Biden Wandering Into The Amazon Rainforest, And It's The Meme We All Needed Right Now](https://www.yahoo.com/entertainment/people-obsessed-video-joe-biden-180826104.html)
-- Nov 18 - [Dave Ramsey Recalls The Day American Express Called His Wife, Asking Why Stay 'With A Man That Won't Pay His Bills.' Here's What He Did Next](https://finance.yahoo.com/news/dave-ramsey-recalls-day-american-174516332.html)
-- Nov 18 - [Boeing to lay off over 2,200 workers in US states of Washington and Oregon](https://finance.yahoo.com/news/boeing-lay-off-nearly-2-172635382.html)
-- Nov 18 - [Critical undersea internet cable severed amid fears of Russian sabotage](https://www.yahoo.com/news/critical-undersea-internet-cable-severed-170421273.html)
-- Nov 18 - [Nvidia stock sinks on reports of Blackwell AI server issues ahead of earnings](https://finance.yahoo.com/news/nvidia-stock-sinks-on-reports-of-blackwell-ai-server-issues-ahead-of-earnings-150924657.html)
+- Nov 18 - [US to add features such as blind spot warnings and pedestrian detection to vehicle crash ratings](https://www.yahoo.com/news/us-add-features-blind-spot-193012750.html)
+- Nov 18 - [Germany will not alter decision on providing Taurus missiles to Ukraine despite Biden's announcement](https://www.yahoo.com/news/germany-not-alter-decision-providing-191802089.html)
+- Nov 18 - [Judge tosses Huckabee lawsuit against Meta over ads suggesting he endorsed marijuana gummies](https://www.yahoo.com/news/judge-tosses-huckabee-lawsuit-against-190621879.html)
+- Nov 18 - [This Dad Is Refusing To Pay His Trump-Supporting Sons' College Tuition After The Election, And People Are Debating If He's Gone Too Far](https://www.yahoo.com/lifestyle/dad-refusing-pay-trump-supporting-184358890.html)
+- Nov 18 - [Washington state and the west coast brace for severe weather, possible ‘bomb cyclone’](https://www.yahoo.com/news/washington-state-west-coast-brace-180828233.html)
 <!-- feed end -->
 
 ### Onstream
