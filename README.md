@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [New Delhi closes schools, bans construction as air pollution shoots up](https://www.yahoo.com/news/delhi-closes-schools-bans-construction-081724575.html)
+- Nov 18 - [Airline passenger shares photos of man ‘in my lap’ in reclining seat complaint](https://www.yahoo.com/lifestyle/american-airlines-passenger-shares-photos-202710888.html)
+- Nov 18 - ['Unhinged': Trump's Brazen New 'Investigation' Demand Has Critics Sounding The Alarm](https://www.yahoo.com/news/unhinged-trumps-brazen-investigation-demand-075007441.html)
 - Nov 18 - [Fury in Russia at missile move but Putin so far silent](https://www.yahoo.com/news/fury-russia-missile-move-putin-074336048.html)
 - Nov 18 - [Dad dies days after getting delayed scan results](https://www.yahoo.com/news/dad-dies-days-getting-delayed-064334782.html)
-- Nov 18 - [Average UK house prices drop by £5,366 as post-budget jitters set in](https://uk.finance.yahoo.com/news/uk-house-prices-budget-interest-rates-060050580.html)
-- Nov 18 - [Some Arab Americans who voted for Trump are concerned about his picks for key positions](https://www.yahoo.com/news/arab-americans-voted-trump-concerned-051356187.html)
+- Nov 18 - [Australian woman accused of drug smuggling in Japan says she is innocent as trial begins](https://www.yahoo.com/news/australian-woman-accused-drug-smuggling-061011210.html)
 <!-- feed end -->
 
 ### Onstream
