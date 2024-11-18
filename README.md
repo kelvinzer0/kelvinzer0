@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 18 - [Trump picks Project 2025 co-author to lead FCC as treasury secretary candidates to visit Mar-a-Lago: Live](https://www.yahoo.com/news/trump-picks-project-2025-co-131441909.html)
+- Nov 18 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
 - Nov 18 - [Coca-Cola's AI-generated TV holiday ad falls flat with consumers](https://www.yahoo.com/news/coca-colas-ai-generated-tv-125405171.html)
-- Nov 18 - [Savers warned over ‘risky’ pension strategy as retirement pots plummet](https://finance.yahoo.com/news/savers-warned-over-risky-pension-124504379.html)
-- Nov 18 - [I Have $1.6 Million. Does It Make Sense to Convert $160k Per Year to a Roth IRA at Age 62 to Avoid RMDs in Retirement?](https://finance.yahoo.com/news/im-62-1-6-million-132842901.html)
-- Nov 18 - ['60 Minutes' Opening Prompts MAGA Meltdown](https://www.yahoo.com/news/60-minutes-opening-prompts-maga-115818782.html)
+- Nov 18 - [Americans ages 44 to 59 are speeding towards retirement and in big financial trouble. Here’s why](https://finance.yahoo.com/news/americans-ages-44-59-speeding-123200505.html)
 - Nov 18 - [Poland's Duda says U.S decision on arms may be decisive for Ukraine](https://www.yahoo.com/news/polands-duda-says-u-decision-113740707.html)
 <!-- feed end -->
 
