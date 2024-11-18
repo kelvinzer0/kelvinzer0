@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Tropical Storm Sara’s remnants to bring heavy rain, strong gusts to Florida Panhandle](https://www.yahoo.com/news/tropical-storm-sara-remnants-bring-161150625.html)
-- Nov 18 - [Nvidia stock sinks on reports of Blackwell AI server issues ahead of earnings](https://finance.yahoo.com/news/nvidia-stock-sinks-on-reports-of-blackwell-ai-server-issues-ahead-of-earnings-150924657.html)
-- Nov 18 - [Russia is dropping millions on pay for up to 100,000 North Korean soldiers. They're unlikely to see much of it.](https://www.yahoo.com/news/russia-dropping-millions-pay-100-150037233.html)
-- Nov 18 - [Trump Says It’s ‘TRUE’ He Will Declare National Emergency and Use Military to Mass Deport Millions](https://www.yahoo.com/news/trump-says-true-declare-national-145404049.html)
-- Nov 18 - [Why Waste Management (WM) is a Top Growth Stock for the Long-Term](https://finance.yahoo.com/news/why-waste-management-wm-top-144513180.html)
+- Nov 18 - [Parents arrested for trying to kill their daughter, 17, for refusing arranged marriage, court records say](https://www.yahoo.com/news/parents-arrested-trying-kill-daughter-222638002.html)
+- Nov 18 - [Boeing to lay off over 2,200 workers in US states of Washington and Oregon](https://finance.yahoo.com/news/boeing-lay-off-nearly-2-172635382.html)
+- Nov 18 - [A Carrot Recall Has Been Linked to a Deadly E. Coli Outbreak Across Multiple States](https://www.yahoo.com/news/carrot-recall-linked-deadly-e-171527364.html)
+- Nov 18 - [Critical undersea internet cable severed amid fears of Russian sabotage](https://www.yahoo.com/news/critical-undersea-internet-cable-severed-170421273.html)
+- Nov 18 - [Why Rocket Lab Stock Popped, Then Dropped Today](https://finance.yahoo.com/news/why-rocket-lab-stock-popped-164306861.html)
 <!-- feed end -->
 
 ### Onstream
