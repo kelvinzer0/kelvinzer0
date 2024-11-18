@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Russian ballet star Vladimir Shklyarov dies after falling from building](https://www.yahoo.com/news/russian-ballet-star-vladimir-shklyarov-104333106.html)
+- Nov 18 - [Tropical Storm Sara’s remnants to bring heavy rain, strong gusts to Florida Panhandle](https://www.yahoo.com/news/tropical-storm-sara-remnants-bring-161150625.html)
+- Nov 18 - [Nvidia stock sinks on reports of Blackwell AI server issues ahead of earnings](https://finance.yahoo.com/news/nvidia-stock-sinks-on-reports-of-blackwell-ai-server-issues-ahead-of-earnings-150924657.html)
+- Nov 18 - [Russia is dropping millions on pay for up to 100,000 North Korean soldiers. They're unlikely to see much of it.](https://www.yahoo.com/news/russia-dropping-millions-pay-100-150037233.html)
 - Nov 18 - [Trump Says It’s ‘TRUE’ He Will Declare National Emergency and Use Military to Mass Deport Millions](https://www.yahoo.com/news/trump-says-true-declare-national-145404049.html)
-- Nov 18 - [US regulators open 2 investigations into Ford recalls just days after penalizing the company](https://www.yahoo.com/news/us-regulators-open-2-investigations-144156868.html)
-- Nov 18 - [Two killed in wrong-way crash on I-271](https://www.yahoo.com/news/head-wrong-way-crash-271-115736101.html)
-- Nov 18 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
+- Nov 18 - [Why Waste Management (WM) is a Top Growth Stock for the Long-Term](https://finance.yahoo.com/news/why-waste-management-wm-top-144513180.html)
 <!-- feed end -->
 
 ### Onstream
