@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Watch: Joe Biden wanders into Amazon rainforest after speech](https://www.yahoo.com/news/watch-joe-biden-wanders-amazon-225313520.html)
-- Nov 17 - [Parents arrested for trying to kill their daughter, 17, for refusing arranged marriage, court records say](https://www.yahoo.com/news/parents-arrested-trying-kill-daughter-222638002.html)
-- Nov 17 - [N.J. residents evacuate after fire jumps containmet line](https://www.yahoo.com/news/n-j-residents-evacuate-fire-222358295.html)
-- Nov 17 - [Pregnant Indiana Woman, 25, Has Been Missing for More Than a Month, Family Says 'We're Always Going to Look for Her'](https://www.yahoo.com/news/pregnant-indiana-woman-25-missing-201606440.html)
-- Nov 17 - [Plane crashes into parking lot near track during NHRA season finale at Pomona Dragstrip](https://sports.yahoo.com/plane-crashes-into-parking-lot-near-track-during-nhra-season-finale-at-pomona-dragstrip-200842145.html)
+- Nov 17 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
+- Nov 17 - [3 hurt when small plane crashes near Southern California dragstrip hosting racing event](https://www.yahoo.com/news/3-hurt-small-plane-crashes-224755405.html)
+- Nov 17 - [URI staff member hit by car on campus dies](https://www.yahoo.com/news/uri-staff-member-hit-car-213916990.html)
+- Nov 17 - [Biden’s green light for Ukraine to use ATACMS in Russia just raised the stakes in a war Trump will inherit](https://www.yahoo.com/news/biden-green-light-ukraine-atacms-203209688.html)
+- Nov 17 - [One Of These Futuristic Grenade Launchers Could Succeed Where The Army’s ‘Punisher’ Failed](https://www.yahoo.com/news/one-futuristic-grenade-launchers-could-202552115.html)
 <!-- feed end -->
 
 ### Onstream
