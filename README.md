@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [US to add features such as blind spot warnings and pedestrian detection to vehicle crash ratings](https://www.yahoo.com/news/us-add-features-blind-spot-193012750.html)
-- Nov 18 - [Germany will not alter decision on providing Taurus missiles to Ukraine despite Biden's announcement](https://www.yahoo.com/news/germany-not-alter-decision-providing-191802089.html)
+- Nov 18 - [What is Grimmway Farms? What to know about the carrot producer tied to E. coli outbreak](https://www.yahoo.com/news/grimmway-farms-know-carrot-producer-204345528.html)
+- Nov 18 - [Boeing layoffs so far total nearly 2,200 workers in Washington state](https://finance.yahoo.com/news/boeing-layoffs-far-total-nearly-193546031.html)
+- Nov 18 - [Elon Musk Reportedly Gets in Blowout Fight With Trump Adviser at Mar-a-Lago Dinner](https://www.yahoo.com/news/elon-musk-reportedly-gets-blowout-191937150.html)
 - Nov 18 - [Judge tosses Huckabee lawsuit against Meta over ads suggesting he endorsed marijuana gummies](https://www.yahoo.com/news/judge-tosses-huckabee-lawsuit-against-190621879.html)
-- Nov 18 - [This Dad Is Refusing To Pay His Trump-Supporting Sons' College Tuition After The Election, And People Are Debating If He's Gone Too Far](https://www.yahoo.com/lifestyle/dad-refusing-pay-trump-supporting-184358890.html)
-- Nov 18 - [Washington state and the west coast brace for severe weather, possible ‘bomb cyclone’](https://www.yahoo.com/news/washington-state-west-coast-brace-180828233.html)
+- Nov 18 - [Maher, Shatner tangle over whether Harris was ‘great’ candidate](https://www.yahoo.com/news/maher-shatner-tangle-over-whether-182931962.html)
 <!-- feed end -->
 
 ### Onstream
