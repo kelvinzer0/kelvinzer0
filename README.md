@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [AP Top Stories November 18 A](https://www.yahoo.com/news/ap-top-stories-november-18-113805146.html)
+- Nov 18 - [Coca-Cola's AI-generated TV holiday ad falls flat with consumers](https://www.yahoo.com/news/coca-colas-ai-generated-tv-125405171.html)
+- Nov 18 - [Savers warned over ‘risky’ pension strategy as retirement pots plummet](https://finance.yahoo.com/news/savers-warned-over-risky-pension-124504379.html)
+- Nov 18 - [I Have $1.6 Million. Does It Make Sense to Convert $160k Per Year to a Roth IRA at Age 62 to Avoid RMDs in Retirement?](https://finance.yahoo.com/news/im-62-1-6-million-132842901.html)
+- Nov 18 - ['60 Minutes' Opening Prompts MAGA Meltdown](https://www.yahoo.com/news/60-minutes-opening-prompts-maga-115818782.html)
 - Nov 18 - [Poland's Duda says U.S decision on arms may be decisive for Ukraine](https://www.yahoo.com/news/polands-duda-says-u-decision-113740707.html)
-- Nov 18 - [After losing 33% in the past year, Cracker Barrel Old Country Store, Inc. (NASDAQ:CBRL) institutional owners must be relieved by the recent gain](https://finance.yahoo.com/news/losing-33-past-cracker-barrel-113615439.html)
-- Nov 18 - [Russian ballet star Vladimir Shklyarov dies after falling from building](https://www.yahoo.com/news/russian-ballet-star-vladimir-shklyarov-104333106.html)
-- Nov 18 - [CBS’s 60 Minutes sparks right-wing backlash over brutal takedown of Trump’s cabinet picks](https://www.yahoo.com/news/cbs-60-minutes-sparks-wing-101156835.html)
 <!-- feed end -->
 
 ### Onstream
