@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Trump picks Project 2025 co-author to lead FCC as treasury secretary candidates to visit Mar-a-Lago: Live](https://www.yahoo.com/news/trump-picks-project-2025-co-131441909.html)
-- Nov 18 - [E. coli outbreak linked to organic carrots leaves 1 dead and dozens sickened across the US](https://www.yahoo.com/news/e-coli-outbreak-linked-organic-212234843.html)
-- Nov 18 - [Coca-Cola's AI-generated TV holiday ad falls flat with consumers](https://www.yahoo.com/news/coca-colas-ai-generated-tv-125405171.html)
-- Nov 18 - [Americans ages 44 to 59 are speeding towards retirement and in big financial trouble. Here’s why](https://finance.yahoo.com/news/americans-ages-44-59-speeding-123200505.html)
-- Nov 18 - [Poland's Duda says U.S decision on arms may be decisive for Ukraine](https://www.yahoo.com/news/polands-duda-says-u-decision-113740707.html)
+- Nov 18 - [Russian-installed governor vows revenge for naval captain killed in Ukrainian hit](https://www.yahoo.com/news/russian-installed-governor-vows-revenge-144519517.html)
+- Nov 18 - [Factbox-Why EU farmers are upset about Mercosur deal](https://www.yahoo.com/news/factbox-why-eu-farmers-upset-141152234.html)
+- Nov 18 - [Exploring 3 High Growth Tech Stocks in the United States](https://finance.yahoo.com/news/exploring-3-high-growth-tech-140743260.html)
+- Nov 18 - [Indigenous senator who heckled King Charles during Australia visit censured](https://www.yahoo.com/news/indigenous-mp-heckled-king-charles-115231738.html)
+- Nov 18 - [The Reason Starbucks' Logo Is A Siren](https://www.yahoo.com/lifestyle/reason-starbucks-logo-siren-140510331.html)
 <!-- feed end -->
 
 ### Onstream
