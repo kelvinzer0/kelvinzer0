@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [US-Israel panel to look into civilian harm in Gaza is set for first meeting next month](https://www.yahoo.com/news/us-israel-panel-look-civilian-215403051.html)
+- Nov 19 - [Prosecutors Reveal Laken Riley's Last Text Message to Her Mom Before She Went Out for Jog](https://www.yahoo.com/news/prosecutors-reveal-laken-rileys-last-225200447.html)
+- Nov 19 - [Elon Musk calls Southern Poverty Law Center a 'criminal organization' after doxing claim](https://www.yahoo.com/news/elon-musk-calls-southern-poverty-214844841.html)
+- Nov 19 - [Russian oil-refining businesses are at risk of plant closures amid heavy losses, lower production, report says](https://finance.yahoo.com/news/russian-oil-refining-businesses-risk-213836313.html)
 - Nov 19 - [New eagle camera is going live in Minnesota to the delight of global viewers](https://www.yahoo.com/lifestyle/eagle-camera-going-live-minnesota-204828839.html)
 - Nov 19 - [Tampa Bay Rays say new St. Pete stadium is unlikely to be ready for 2028 season, if at all](https://sports.yahoo.com/tampa-bay-rays-st-pete-203258111.html)
-- Nov 19 - [Judge 'troubled' by Danny Masterson's attorneys tracking down jurors after rape trial](https://www.yahoo.com/news/judge-troubled-danny-mastersons-attorneys-195012391.html)
-- Nov 19 - [People Are Genuinely Concerned With The Way Elon Musk Eats His Fries](https://www.yahoo.com/entertainment/people-genuinely-concerned-way-elon-192700271.html)
 <!-- feed end -->
 
 ### Onstream
