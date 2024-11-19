@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Valuing Cava Stock](https://finance.yahoo.com/news/valuing-cava-stock-163300370.html)
 - Nov 19 - [Nancy Mace pushes for Capitol bathroom ban as first transgender member is set to join Congress](https://www.yahoo.com/news/nancy-mace-pushes-capitol-bathroom-155419475.html)
-- Nov 19 - [Putin formally lowers threshold for Russia's use of nuclear weapons](https://www.yahoo.com/news/putin-formally-lowers-threshold-russias-131339402.html)
-- Nov 19 - [Moscow says Ukraine fired 6 US-made longer-range missiles into Russia](https://www.yahoo.com/news/3rd-russian-strike-3-days-114231924.html)
-- Nov 19 - [This Woman Spent A Year Trying To Figure Out The Cause Of Her Chronic Yeast Infections, And It Turns Out The Culprit Was Something We All Use Everyday](https://www.yahoo.com/lifestyle/woman-spent-trying-figure-cause-113103135.html)
-- Nov 19 - [Hamas attack on Israel stirs controversy among Gaza clerics](https://www.yahoo.com/news/hamas-attack-israel-stirs-controversy-112723594.html)
+- Nov 19 - [Home Secretary announces major policing overhaul](https://www.yahoo.com/news/home-secretary-announces-major-policing-152940288.html)
+- Nov 19 - [Hamas-led force targets gangs looting Gaza aid convoys](https://www.yahoo.com/news/hamas-led-force-targets-gangs-145521781.html)
+- Nov 19 - [What's a Realistic Retirement Budget? I'm 55 With $490k Saved, Making $80,000 Annually.](https://finance.yahoo.com/news/whats-realistic-retirement-budget-im-140141407.html)
 <!-- feed end -->
 
 ### Onstream
