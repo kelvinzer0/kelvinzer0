@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [China, Russia ministers discuss Korea tensions at G20: state media](https://www.yahoo.com/news/china-russia-ministers-discuss-korea-021609862.html)
+- Nov 19 - [Stockpile diapers, medication, baby food: NATO members Sweden and Finland advise citizens on how to survive war](https://www.yahoo.com/news/stockpile-nappies-medication-baby-food-160052679.html)
+- Nov 19 - [A 43-year-old dad called 911 about shots fired at his home. Then a Las Vegas police officer shot and killed him](https://www.yahoo.com/news/43-old-dad-called-911-223144388.html)
+- Nov 19 - [A First-of-Its-Kind Signal Has Been Detected in Human Brains](https://www.yahoo.com/news/first-kind-signal-detected-human-002839313.html)
 - Nov 18 - ['Shock and awe': What Trump 'border czar' Tom Homan has said he plans to do starting on Day 1](https://www.yahoo.com/news/shock-awe-trump-border-czar-233639109.html)
-- Nov 18 - [NYC priest who allowed Sabrina Carpenter to shoot a music video in church further stripped of duties](https://www.yahoo.com/news/ny-priest-allowed-sabrina-carpenter-232346537.html)
-- Nov 18 - [Georgia appeals court cancels hearing in election interference case against Trump](https://www.yahoo.com/news/georgia-appeals-court-cancels-hearing-231747412.html)
-- Nov 18 - [What Biden’s decision to allow Ukraine to use long-range US weapons means, AP Explains](https://www.yahoo.com/news/biden-decision-allow-ukraine-long-223007995.html)
+- Nov 18 - [Semi hauling windmill tower loses load on K-156 highway](https://www.yahoo.com/news/semi-hauling-windmill-tower-loses-231918142.html)
 <!-- feed end -->
 
 ### Onstream
