@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Meta hires Salesforce's CEO of AI, Clara Shih, to lead new business AI group](https://finance.yahoo.com/news/meta-hires-salesforces-ceo-ai-203307569.html)
+- Nov 19 - [Wisconsin schools got their report cards Tuesday. See how your school fared.](https://www.yahoo.com/news/wisconsin-schools-got-report-cards-195521083.html)
+- Nov 19 - [CT mom facing charges for allegedly leaving 4 kids home alone while she traveled to NY](https://www.yahoo.com/news/ct-mom-facing-charges-allegedly-193400468.html)
 - Nov 19 - [People Are Genuinely Concerned With The Way Elon Musk Eats His Fries](https://www.yahoo.com/entertainment/people-genuinely-concerned-way-elon-192700271.html)
-- Nov 19 - [Rescue crew pulls woman from Los Angeles tunnel](https://www.yahoo.com/news/rescue-crew-pulls-woman-los-191923612.html)
-- Nov 19 - [Donald Trump's Apparent Baldness Is Going Viral In A New Photo](https://www.yahoo.com/entertainment/donald-trumps-apparent-baldness-going-174850048.html)
-- Nov 19 - [Black Friday Apple deals 2024: The best Apple sales on iPads, AirPods, Apple Watches and MacBooks](https://www.yahoo.com/tech/black-friday-apple-deals-2024-the-best-apple-sales-on-ipads-airpods-apple-watches-and-macbooks-165143887.html)
-- Nov 19 - [Woman Finds Bone of Missing Man She Knew as a Child: 'He Still Had His Whole Life Ahead of Him'](https://www.yahoo.com/news/woman-finds-bone-missing-man-164356160.html)
+- Nov 19 - [Netanyahu, in Gaza, says Hamas will no longer rule enclave](https://www.yahoo.com/news/netanyahu-gaza-says-hamas-no-182210910.html)
 <!-- feed end -->
 
 ### Onstream
