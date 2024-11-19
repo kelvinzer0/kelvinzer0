@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [How Web3 is shaping the next evolution of the internet](https://finance.yahoo.com/video/web3-shaping-next-evolution-internet-130017607.html)
-- Nov 19 - ['Work From Home Is Dying' – NYC Offices Nearly Full As Workers Return In Droves](https://finance.yahoo.com/news/home-dying-nyc-offices-nearly-120015393.html)
-- Nov 19 - [Russia says Ukraine fired 6 US-made ATACMS at the Bryansk region, days after Biden policy shift](https://www.yahoo.com/news/3rd-russian-strike-3-days-114231924.html)
+- Nov 19 - [As truce talks progress, Lebanon's army cornered by politics, funding](https://www.yahoo.com/news/truce-talks-progress-lebanons-army-133838889.html)
+- Nov 19 - [Putin formally lowers threshold for Russia's use of nuclear weapons](https://www.yahoo.com/news/putin-formally-lowers-threshold-russias-131339402.html)
+- Nov 19 - [Moscow says Ukraine fired 6 US-made longer-range missiles into Russia](https://www.yahoo.com/news/3rd-russian-strike-3-days-114231924.html)
 - Nov 19 - [This Woman Spent A Year Trying To Figure Out The Cause Of Her Chronic Yeast Infections, And It Turns Out The Culprit Was Something We All Use Everyday](https://www.yahoo.com/lifestyle/woman-spent-trying-figure-cause-113103135.html)
 - Nov 19 - [Hamas attack on Israel stirs controversy among Gaza clerics](https://www.yahoo.com/news/hamas-attack-israel-stirs-controversy-112723594.html)
 <!-- feed end -->
