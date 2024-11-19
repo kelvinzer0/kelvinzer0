@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Police disperse and arrest protesters in Tbilisi as calls for new elections intensify](https://www.yahoo.com/news/police-disperse-arrest-protesters-tbilisi-082114388.html)
-- Nov 19 - [Trial begins of youth center worker accused of holding down boy while he was raped](https://www.yahoo.com/news/trial-begins-youth-center-worker-051549634.html)
+- Nov 19 - [Russian President Putin signs a new doctrine that lowers the threshold for using nuclear weapons](https://www.yahoo.com/news/russian-president-putin-signs-doctrine-091026470.html)
+- Nov 19 - [Maggie Haberman Reveals What Donald Trump Admitted In Private About Matt Gaetz](https://www.yahoo.com/news/maggie-haberman-reveals-donald-trump-085635582.html)
+- Nov 19 - [Putin issues warning to US with new nuclear doctrine](https://www.yahoo.com/news/putin-issues-warning-us-nuclear-084615804.html)
+- Nov 19 - [1,000 days of war in Ukraine, distilled in a single 24-hour span of violence and resilience](https://www.yahoo.com/news/24-hours-ukraine-single-day-050643646.html)
 - Nov 19 - [Arrest made in murder of exotic dancer whose body was found in burning car in Arizona](https://www.yahoo.com/news/arrest-made-murder-exotic-dancer-031945900.html)
-- Nov 19 - [Nancy Mace Immediately Picks a Fight With New Transgender Colleague](https://www.yahoo.com/news/nancy-mace-immediately-picks-fight-024318054.html)
-- Nov 19 - [Stockpile diapers, medication, baby food: NATO members Sweden and Finland advise citizens on how to survive war](https://www.yahoo.com/news/stockpile-nappies-medication-baby-food-160052679.html)
 <!-- feed end -->
 
 ### Onstream
