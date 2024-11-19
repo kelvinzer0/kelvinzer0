@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [E. coli outbreak linked to carrots reaches North Carolina: See which brands are recalled](https://www.yahoo.com/news/e-coli-outbreak-linked-carrots-173432547.html)
-- Nov 19 - [Video shows confrontation at Panera Bread that led to hate crime charges](https://www.yahoo.com/news/video-shows-confrontation-panera-bread-155906509.html)
+- Nov 19 - [Donald Trump's Apparent Baldness Is Going Viral In A New Photo](https://www.yahoo.com/entertainment/donald-trumps-apparent-baldness-going-174850048.html)
+- Nov 19 - [Video Shows Two Speeding BMWs Collide on Interstate, Ignites Debate on Driver Reputation](https://autos.yahoo.com/video-shows-two-speeding-bmws-173000123.html)
+- Nov 19 - [Nvidia rivals focus on building a different kind of chip to power AI products](https://www.yahoo.com/tech/nvidia-rivals-focus-building-different-160628483.html)
 - Nov 19 - [Nancy Mace pushes for Capitol bathroom ban as first transgender member is set to join Congress](https://www.yahoo.com/news/nancy-mace-pushes-capitol-bathroom-155419475.html)
-- Nov 19 - [Gov Newsom announces decision in Menendez brothers case](https://www.yahoo.com/news/gov-newsom-announces-decision-menendez-141933117.html)
-- Nov 19 - [Moscow says Ukraine fired 6 US-made longer-range missiles into Russia](https://www.yahoo.com/news/3rd-russian-strike-3-days-114231924.html)
+- Nov 19 - [Hamas-led force targets gangs looting Gaza aid convoys](https://www.yahoo.com/news/hamas-led-force-targets-gangs-145521781.html)
 <!-- feed end -->
 
 ### Onstream
