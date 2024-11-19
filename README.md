@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Australian tourists hospitalized after apparent severe alcohol poisoning in Laos party town](https://www.yahoo.com/news/australian-tourists-hospitalized-apparent-severe-063619004.html)
+- Nov 19 - [Russia begins mass production of radiation-resistant mobile bomb shelters](https://www.yahoo.com/news/russia-begins-mass-production-radiation-075611844.html)
+- Nov 19 - [Trial begins of youth center worker accused of holding down boy while he was raped](https://www.yahoo.com/news/trial-begins-youth-center-worker-051549634.html)
+- Nov 19 - [24 hours in Ukraine: A single day shows the reality of life as war hits 1,000 days](https://www.yahoo.com/news/24-hours-ukraine-single-day-050643646.html)
 - Nov 19 - [Kremlin brings up nuclear doctrine day after Biden's arms decision on Ukraine](https://www.yahoo.com/news/kremlin-brings-nuclear-doctrine-day-041043833.html)
-- Nov 19 - [Family learns new info about Maui woman who vanished in Los Angeles](https://www.yahoo.com/news/family-learns-maui-woman-vanished-033412726.html)
 - Nov 19 - [Arrest made in murder of exotic dancer whose body was found in burning car in Arizona](https://www.yahoo.com/news/arrest-made-murder-exotic-dancer-031945900.html)
-- Nov 19 - [Pursuit ends in eight-vehicle crash, one seriously injured in Fishersville](https://www.yahoo.com/news/pursuit-ends-eight-vehicle-crash-031241498.html)
 <!-- feed end -->
 
 ### Onstream
