@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [This Woman Spent A Year Trying To Figure Out The Cause Of Her Chronic Yeast Infections, And It Turns Out The Culprit Was Something We All Use Everyday](https://www.yahoo.com/lifestyle/woman-spent-trying-figure-cause-113103135.html)
+- Nov 19 - [Italian village offers $1 homes to Americans upset by the US election result](https://www.yahoo.com/lifestyle/italian-village-offers-1-homes-104905303.html)
+- Nov 19 - [This Long Island man lost his life savings after suspected debit card scam — and got no reimbursement. Here’s why](https://finance.yahoo.com/news/long-island-man-lost-life-110300580.html)
 - Nov 19 - [The son of Norway’s crown princess is arrested on suspicion of rape, police say](https://www.yahoo.com/news/son-norway-crown-princess-arrested-101946039.html)
 - Nov 19 - [Putin signs new Russian nuclear doctrine after Biden's arms decision for Ukraine](https://www.yahoo.com/news/russian-president-putin-signs-doctrine-091026470.html)
-- Nov 19 - [Maggie Haberman Reveals What Donald Trump Admitted In Private About Matt Gaetz](https://www.yahoo.com/news/maggie-haberman-reveals-donald-trump-085635582.html)
-- Nov 19 - [Putin issues warning to United States with new nuclear doctrine](https://www.yahoo.com/news/putin-issues-warning-us-nuclear-084615804.html)
-- Nov 19 - [Pursuit ends in eight-vehicle crash, one seriously injured in Fishersville](https://www.yahoo.com/news/pursuit-ends-eight-vehicle-crash-031241498.html)
 <!-- feed end -->
 
 ### Onstream
