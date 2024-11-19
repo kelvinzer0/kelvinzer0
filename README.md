@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Russian President Putin signs a new doctrine that lowers the threshold for using nuclear weapons](https://www.yahoo.com/news/russian-president-putin-signs-doctrine-091026470.html)
+- Nov 19 - [The son of Norway’s crown princess is arrested on suspicion of rape, police say](https://www.yahoo.com/news/son-norway-crown-princess-arrested-101946039.html)
+- Nov 19 - [Putin signs new Russian nuclear doctrine after Biden's arms decision for Ukraine](https://www.yahoo.com/news/russian-president-putin-signs-doctrine-091026470.html)
 - Nov 19 - [Maggie Haberman Reveals What Donald Trump Admitted In Private About Matt Gaetz](https://www.yahoo.com/news/maggie-haberman-reveals-donald-trump-085635582.html)
-- Nov 19 - [Putin issues warning to US with new nuclear doctrine](https://www.yahoo.com/news/putin-issues-warning-us-nuclear-084615804.html)
-- Nov 19 - [1,000 days of war in Ukraine, distilled in a single 24-hour span of violence and resilience](https://www.yahoo.com/news/24-hours-ukraine-single-day-050643646.html)
-- Nov 19 - [Arrest made in murder of exotic dancer whose body was found in burning car in Arizona](https://www.yahoo.com/news/arrest-made-murder-exotic-dancer-031945900.html)
+- Nov 19 - [Putin issues warning to United States with new nuclear doctrine](https://www.yahoo.com/news/putin-issues-warning-us-nuclear-084615804.html)
+- Nov 19 - [Pursuit ends in eight-vehicle crash, one seriously injured in Fishersville](https://www.yahoo.com/news/pursuit-ends-eight-vehicle-crash-031241498.html)
 <!-- feed end -->
 
 ### Onstream
