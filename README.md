@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Biote Corp (BTMD) Q3 2024 Earnings Call Highlights: Strong Revenue Growth and Strategic Enhancements](https://finance.yahoo.com/news/biote-corp-btmd-q3-2024-010024939.html)
+- Nov 19 - [China, Russia ministers discuss Korea tensions at G20: state media](https://www.yahoo.com/news/china-russia-ministers-discuss-korea-021609862.html)
 - Nov 18 - ['Shock and awe': What Trump 'border czar' Tom Homan has said he plans to do starting on Day 1](https://www.yahoo.com/news/shock-awe-trump-border-czar-233639109.html)
 - Nov 18 - [NYC priest who allowed Sabrina Carpenter to shoot a music video in church further stripped of duties](https://www.yahoo.com/news/ny-priest-allowed-sabrina-carpenter-232346537.html)
-- Nov 18 - [Massachusetts woman accused of driving wrong way while intoxicated on I-93 in New Hampshire](https://www.yahoo.com/news/massachusetts-woman-accused-driving-wrong-215302811.html)
-- Nov 18 - [American Tourist Arrested for Defacing Shrine in Japan](https://www.yahoo.com/news/american-tourist-arrested-defacing-shrine-213702467.html)
+- Nov 18 - [Georgia appeals court cancels hearing in election interference case against Trump](https://www.yahoo.com/news/georgia-appeals-court-cancels-hearing-231747412.html)
+- Nov 18 - [What Biden’s decision to allow Ukraine to use long-range US weapons means, AP Explains](https://www.yahoo.com/news/biden-decision-allow-ukraine-long-223007995.html)
 <!-- feed end -->
 
 ### Onstream
