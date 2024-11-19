@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Boeing to cut 2,500 jobs as part of sweeping layoffs](https://finance.yahoo.com/video/boeing-cut-2-500-jobs-053235160.html)
 - Nov 19 - [Arrest made in murder of exotic dancer whose body was found in burning car in Arizona](https://www.yahoo.com/news/arrest-made-murder-exotic-dancer-031945900.html)
 - Nov 19 - [Pursuit ends in eight-vehicle crash, one seriously injured in Fishersville](https://www.yahoo.com/news/pursuit-ends-eight-vehicle-crash-031241498.html)
-- Nov 19 - [High school principal under investigation after helping former homeless student](https://www.yahoo.com/news/high-school-principal-under-investigation-030043030.html)
 - Nov 19 - [Nancy Mace Immediately Picks a Fight With New Transgender Colleague](https://www.yahoo.com/news/nancy-mace-immediately-picks-fight-024318054.html)
-- Nov 18 - [Georgia appeals court cancels hearing in election interference case against Trump](https://www.yahoo.com/news/georgia-appeals-court-cancels-hearing-231747412.html)
+- Nov 19 - [Stockpile diapers, medication, baby food: NATO members Sweden and Finland advise citizens on how to survive war](https://www.yahoo.com/news/stockpile-nappies-medication-baby-food-160052679.html)
 <!-- feed end -->
 
 ### Onstream
