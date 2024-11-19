@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Russia begins mass production of radiation-resistant mobile bomb shelters](https://www.yahoo.com/news/russia-begins-mass-production-radiation-075611844.html)
+- Nov 19 - [Police disperse and arrest protesters in Tbilisi as calls for new elections intensify](https://www.yahoo.com/news/police-disperse-arrest-protesters-tbilisi-082114388.html)
 - Nov 19 - [Trial begins of youth center worker accused of holding down boy while he was raped](https://www.yahoo.com/news/trial-begins-youth-center-worker-051549634.html)
-- Nov 19 - [24 hours in Ukraine: A single day shows the reality of life as war hits 1,000 days](https://www.yahoo.com/news/24-hours-ukraine-single-day-050643646.html)
-- Nov 19 - [Kremlin brings up nuclear doctrine day after Biden's arms decision on Ukraine](https://www.yahoo.com/news/kremlin-brings-nuclear-doctrine-day-041043833.html)
 - Nov 19 - [Arrest made in murder of exotic dancer whose body was found in burning car in Arizona](https://www.yahoo.com/news/arrest-made-murder-exotic-dancer-031945900.html)
+- Nov 19 - [Nancy Mace Immediately Picks a Fight With New Transgender Colleague](https://www.yahoo.com/news/nancy-mace-immediately-picks-fight-024318054.html)
+- Nov 19 - [Stockpile diapers, medication, baby food: NATO members Sweden and Finland advise citizens on how to survive war](https://www.yahoo.com/news/stockpile-nappies-medication-baby-food-160052679.html)
 <!-- feed end -->
 
 ### Onstream
