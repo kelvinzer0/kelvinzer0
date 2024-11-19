@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Nancy Mace Immediately Picks a Fight With New Transgender Colleague](https://www.yahoo.com/news/nancy-mace-immediately-picks-fight-024318054.html)
 - Nov 19 - [Stockpile diapers, medication, baby food: NATO members Sweden and Finland advise citizens on how to survive war](https://www.yahoo.com/news/stockpile-nappies-medication-baby-food-160052679.html)
-- Nov 19 - [A 43-year-old dad called 911 about shots fired at his home. Then a Las Vegas police officer shot and killed him](https://www.yahoo.com/news/43-old-dad-called-911-223144388.html)
-- Nov 19 - [A First-of-Its-Kind Signal Has Been Detected in Human Brains](https://www.yahoo.com/news/first-kind-signal-detected-human-002839313.html)
-- Nov 18 - ['Shock and awe': What Trump 'border czar' Tom Homan has said he plans to do starting on Day 1](https://www.yahoo.com/news/shock-awe-trump-border-czar-233639109.html)
-- Nov 18 - [Semi hauling windmill tower loses load on K-156 highway](https://www.yahoo.com/news/semi-hauling-windmill-tower-loses-231918142.html)
+- Nov 18 - [US Air Force plans new unmanned aircraft capable of carrying 500 lbs over 230 miles](https://www.yahoo.com/news/us-air-force-plans-unmanned-235333806.html)
+- Nov 18 - [NYC priest who allowed Sabrina Carpenter to shoot a music video in church further stripped of duties](https://www.yahoo.com/news/ny-priest-allowed-sabrina-carpenter-232346537.html)
+- Nov 18 - [Georgia appeals court cancels hearing in election interference case against Trump](https://www.yahoo.com/news/georgia-appeals-court-cancels-hearing-231747412.html)
 <!-- feed end -->
 
 ### Onstream
