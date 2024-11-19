@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Meta hires Salesforce's CEO of AI, Clara Shih, to lead new business AI group](https://finance.yahoo.com/news/meta-hires-salesforces-ceo-ai-203307569.html)
-- Nov 19 - [Wisconsin schools got their report cards Tuesday. See how your school fared.](https://www.yahoo.com/news/wisconsin-schools-got-report-cards-195521083.html)
-- Nov 19 - [CT mom facing charges for allegedly leaving 4 kids home alone while she traveled to NY](https://www.yahoo.com/news/ct-mom-facing-charges-allegedly-193400468.html)
+- Nov 19 - [US-Israel panel to look into civilian harm in Gaza is set for first meeting next month](https://www.yahoo.com/news/us-israel-panel-look-civilian-215403051.html)
+- Nov 19 - [New eagle camera is going live in Minnesota to the delight of global viewers](https://www.yahoo.com/lifestyle/eagle-camera-going-live-minnesota-204828839.html)
+- Nov 19 - [Tampa Bay Rays say new St. Pete stadium is unlikely to be ready for 2028 season, if at all](https://sports.yahoo.com/tampa-bay-rays-st-pete-203258111.html)
+- Nov 19 - [Judge 'troubled' by Danny Masterson's attorneys tracking down jurors after rape trial](https://www.yahoo.com/news/judge-troubled-danny-mastersons-attorneys-195012391.html)
 - Nov 19 - [People Are Genuinely Concerned With The Way Elon Musk Eats His Fries](https://www.yahoo.com/entertainment/people-genuinely-concerned-way-elon-192700271.html)
-- Nov 19 - [Netanyahu, in Gaza, says Hamas will no longer rule enclave](https://www.yahoo.com/news/netanyahu-gaza-says-hamas-no-182210910.html)
 <!-- feed end -->
 
 ### Onstream
