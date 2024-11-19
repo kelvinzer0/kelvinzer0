@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [How Web3 is shaping the next evolution of the internet](https://finance.yahoo.com/video/web3-shaping-next-evolution-internet-130017607.html)
+- Nov 19 - ['Work From Home Is Dying' – NYC Offices Nearly Full As Workers Return In Droves](https://finance.yahoo.com/news/home-dying-nyc-offices-nearly-120015393.html)
+- Nov 19 - [Russia says Ukraine fired 6 US-made ATACMS at the Bryansk region, days after Biden policy shift](https://www.yahoo.com/news/3rd-russian-strike-3-days-114231924.html)
 - Nov 19 - [This Woman Spent A Year Trying To Figure Out The Cause Of Her Chronic Yeast Infections, And It Turns Out The Culprit Was Something We All Use Everyday](https://www.yahoo.com/lifestyle/woman-spent-trying-figure-cause-113103135.html)
-- Nov 19 - [Italian village offers $1 homes to Americans upset by the US election result](https://www.yahoo.com/lifestyle/italian-village-offers-1-homes-104905303.html)
-- Nov 19 - [This Long Island man lost his life savings after suspected debit card scam — and got no reimbursement. Here’s why](https://finance.yahoo.com/news/long-island-man-lost-life-110300580.html)
-- Nov 19 - [The son of Norway’s crown princess is arrested on suspicion of rape, police say](https://www.yahoo.com/news/son-norway-crown-princess-arrested-101946039.html)
-- Nov 19 - [Putin signs new Russian nuclear doctrine after Biden's arms decision for Ukraine](https://www.yahoo.com/news/russian-president-putin-signs-doctrine-091026470.html)
+- Nov 19 - [Hamas attack on Israel stirs controversy among Gaza clerics](https://www.yahoo.com/news/hamas-attack-israel-stirs-controversy-112723594.html)
 <!-- feed end -->
 
 ### Onstream
