@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Valuing Cava Stock](https://finance.yahoo.com/news/valuing-cava-stock-163300370.html)
+- Nov 19 - [E. coli outbreak linked to carrots reaches North Carolina: See which brands are recalled](https://www.yahoo.com/news/e-coli-outbreak-linked-carrots-173432547.html)
+- Nov 19 - [Video shows confrontation at Panera Bread that led to hate crime charges](https://www.yahoo.com/news/video-shows-confrontation-panera-bread-155906509.html)
 - Nov 19 - [Nancy Mace pushes for Capitol bathroom ban as first transgender member is set to join Congress](https://www.yahoo.com/news/nancy-mace-pushes-capitol-bathroom-155419475.html)
-- Nov 19 - [Home Secretary announces major policing overhaul](https://www.yahoo.com/news/home-secretary-announces-major-policing-152940288.html)
-- Nov 19 - [Hamas-led force targets gangs looting Gaza aid convoys](https://www.yahoo.com/news/hamas-led-force-targets-gangs-145521781.html)
-- Nov 19 - [What's a Realistic Retirement Budget? I'm 55 With $490k Saved, Making $80,000 Annually.](https://finance.yahoo.com/news/whats-realistic-retirement-budget-im-140141407.html)
+- Nov 19 - [Gov Newsom announces decision in Menendez brothers case](https://www.yahoo.com/news/gov-newsom-announces-decision-menendez-141933117.html)
+- Nov 19 - [Moscow says Ukraine fired 6 US-made longer-range missiles into Russia](https://www.yahoo.com/news/3rd-russian-strike-3-days-114231924.html)
 <!-- feed end -->
 
 ### Onstream
