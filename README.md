@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [What are the symptoms of foodborne illnesses like E. coli? What to know amid a new carrot recall.](https://www.yahoo.com/lifestyle/what-are-the-symptoms-of-foodborne-illnesses-like-e-coli-what-to-know-amid-a-new-carrot-recall-150109859.html)
-- Nov 19 - [Walmart will work to keep prices low amid looming tariffs: CFO](https://finance.yahoo.com/video/walmart-keep-prices-low-amid-145834076.html)
-- Nov 19 - [Every Nvidia Investor Should Keep an Eye on This Number](https://finance.yahoo.com/news/every-nvidia-investor-keep-eye-144100595.html)
-- Nov 19 - [The Only 2 US States Without A Single Chick-Fil-A Location](https://www.yahoo.com/lifestyle/only-2-us-states-without-143019626.html)
-- Nov 19 - [Iraq to hold first nationwide census since 1987](https://www.yahoo.com/news/iraq-hold-first-nationwide-census-142947881.html)
+- Nov 19 - [Nancy Mace pushes for Capitol bathroom ban as first transgender member is set to join Congress](https://www.yahoo.com/news/nancy-mace-pushes-capitol-bathroom-155419475.html)
+- Nov 19 - [Putin formally lowers threshold for Russia's use of nuclear weapons](https://www.yahoo.com/news/putin-formally-lowers-threshold-russias-131339402.html)
+- Nov 19 - [Moscow says Ukraine fired 6 US-made longer-range missiles into Russia](https://www.yahoo.com/news/3rd-russian-strike-3-days-114231924.html)
+- Nov 19 - [This Woman Spent A Year Trying To Figure Out The Cause Of Her Chronic Yeast Infections, And It Turns Out The Culprit Was Something We All Use Everyday](https://www.yahoo.com/lifestyle/woman-spent-trying-figure-cause-113103135.html)
+- Nov 19 - [Hamas attack on Israel stirs controversy among Gaza clerics](https://www.yahoo.com/news/hamas-attack-israel-stirs-controversy-112723594.html)
 <!-- feed end -->
 
 ### Onstream
