@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [People Are Genuinely Concerned With The Way Elon Musk Eats His Fries](https://www.yahoo.com/entertainment/people-genuinely-concerned-way-elon-192700271.html)
+- Nov 19 - [Rescue crew pulls woman from Los Angeles tunnel](https://www.yahoo.com/news/rescue-crew-pulls-woman-los-191923612.html)
 - Nov 19 - [Donald Trump's Apparent Baldness Is Going Viral In A New Photo](https://www.yahoo.com/entertainment/donald-trumps-apparent-baldness-going-174850048.html)
-- Nov 19 - [Video Shows Two Speeding BMWs Collide on Interstate, Ignites Debate on Driver Reputation](https://autos.yahoo.com/video-shows-two-speeding-bmws-173000123.html)
-- Nov 19 - [Nvidia rivals focus on building a different kind of chip to power AI products](https://www.yahoo.com/tech/nvidia-rivals-focus-building-different-160628483.html)
-- Nov 19 - [Nancy Mace pushes for Capitol bathroom ban as first transgender member is set to join Congress](https://www.yahoo.com/news/nancy-mace-pushes-capitol-bathroom-155419475.html)
-- Nov 19 - [Hamas-led force targets gangs looting Gaza aid convoys](https://www.yahoo.com/news/hamas-led-force-targets-gangs-145521781.html)
+- Nov 19 - [Black Friday Apple deals 2024: The best Apple sales on iPads, AirPods, Apple Watches and MacBooks](https://www.yahoo.com/tech/black-friday-apple-deals-2024-the-best-apple-sales-on-ipads-airpods-apple-watches-and-macbooks-165143887.html)
+- Nov 19 - [Woman Finds Bone of Missing Man She Knew as a Child: 'He Still Had His Whole Life Ahead of Him'](https://www.yahoo.com/news/woman-finds-bone-missing-man-164356160.html)
 <!-- feed end -->
 
 ### Onstream
