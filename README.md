@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Prosecutors Reveal Laken Riley's Last Text Message to Her Mom Before She Went Out for Jog](https://www.yahoo.com/news/prosecutors-reveal-laken-rileys-last-225200447.html)
-- Nov 19 - [Elon Musk calls Southern Poverty Law Center a 'criminal organization' after doxing claim](https://www.yahoo.com/news/elon-musk-calls-southern-poverty-214844841.html)
-- Nov 19 - [Russian oil-refining businesses are at risk of plant closures amid heavy losses, lower production, report says](https://finance.yahoo.com/news/russian-oil-refining-businesses-risk-213836313.html)
-- Nov 19 - [New eagle camera is going live in Minnesota to the delight of global viewers](https://www.yahoo.com/lifestyle/eagle-camera-going-live-minnesota-204828839.html)
-- Nov 19 - [Tampa Bay Rays say new St. Pete stadium is unlikely to be ready for 2028 season, if at all](https://sports.yahoo.com/tampa-bay-rays-st-pete-203258111.html)
+- Nov 20 - [The dark energy pushing our universe apart may not be what it seems, scientists say](https://www.yahoo.com/news/dark-energy-pushing-universe-apart-010100403.html)
+- Nov 19 - [Harris lost to Trump. She may have one last chance to defy him.](https://www.yahoo.com/news/harris-lost-trump-she-may-230741055.html)
+- Nov 19 - [Satellite Shows Powerful Storm System Angling for Northwestern US](https://www.yahoo.com/news/satellite-shows-powerful-storm-system-225857236.html)
+- Nov 19 - [DOJ's reported push for Google to sell Chrome is 'political move'](https://finance.yahoo.com/video/dojs-reported-push-google-sell-223500261.html)
+- Nov 19 - [Man pleads guilty to killing a Georgia couple lured by a false offer to sell a classic car](https://www.yahoo.com/news/man-pleads-guilty-killing-georgia-220400123.html)
 <!-- feed end -->
 
 ### Onstream
