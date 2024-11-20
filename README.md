@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Alphabet Inc’s (GOOG) Quantum Leap: NVIDIA Partnership to Revolutionize Quantum Computing](https://finance.yahoo.com/news/alphabet-inc-goog-quantum-leap-193428061.html)
-- Nov 20 - [A mother’s agony: What Allyson Phillips has endured during the trial of the man accused of killing her daughter, Laken Riley](https://www.yahoo.com/news/mother-agony-allyson-phillips-endured-030411526.html)
-- Nov 20 - [Susan Smith denied parole 30 years after killing her 2 sons](https://www.yahoo.com/news/susan-smith-appear-front-parole-155336074.html)
-- Nov 20 - [Hezbollah chief says it reviewed truce proposal, ceasefire in Israel's hands](https://www.yahoo.com/news/hezbollah-chief-says-reviewed-truce-153855144.html)
-- Nov 20 - [‘You’ll be done!’: GOP strategist says Gaetz pitch for Senators' backing brings a veiled ‘threat’](https://www.yahoo.com/news/ll-done-gop-strategist-says-153506082.html)
+- Nov 20 - [What's The Average 'Upper Class' Retirement Nest Egg? Here's A Look At What The Wealthiest 20% Have Stashed Away](https://finance.yahoo.com/news/whats-average-upper-class-retirement-203035570.html)
+- Nov 20 - [Hezbollah’s new leader says Israel cannot impose truce conditions in defiant speech](https://www.yahoo.com/news/hezbollah-leader-says-israel-cannot-200712854.html)
+- Nov 20 - [Warren Buffett: 3 Debt Rules You Should Follow if You’re Looking To Grow Wealth](https://finance.yahoo.com/news/warren-buffett-3-debt-rules-200541887.html)
+- Nov 20 - [Two people dead, near half a million remain without power following ‘bomb cyclone’](https://www.yahoo.com/news/least-one-person-died-over-125637366.html)
+- Nov 20 - [Speaker Johnson says transgender women won't be allowed to use women’s restrooms in Capitol](https://www.yahoo.com/news/speaker-johnson-says-transgender-women-173600012.html)
 <!-- feed end -->
 
 ### Onstream
