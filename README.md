@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 20 - [Susan Smith denied parole 30 years after killing her 2 sons](https://www.yahoo.com/news/susan-smith-appear-front-parole-155336074.html)
-- Nov 20 - [Trump Pick Linda McMahon Is Facing Her Own Sex Scandal](https://www.yahoo.com/news/trump-pick-linda-mcmahon-facing-171810881.html)
+- Nov 20 - [How an early morning selfie put Laken Riley’s illegal immigrant killer behind bars](https://www.yahoo.com/news/early-morning-selfie-put-laken-172532609.html)
+- Nov 20 - [Hezbollah chief says it reviewed truce proposal, ceasefire in Israel's hands](https://www.yahoo.com/news/hezbollah-chief-says-reviewed-truce-153855144.html)
 - Nov 20 - [‘You’ll be done!’: GOP strategist says Gaetz pitch for Senators' backing brings a veiled ‘threat’](https://www.yahoo.com/news/ll-done-gop-strategist-says-153506082.html)
-- Nov 20 - [UN nuclear watchdog chief says Iran has accepted request to stop increasing near weapons grade uranium stock](https://www.yahoo.com/news/un-nuclear-watchdog-chief-says-152832651.html)
 - Nov 20 - [Creator of 'suicide capsule' rejects Swiss allegation that its first user may have been strangled](https://www.yahoo.com/news/creator-suicide-capsule-rejects-swiss-143345561.html)
 <!-- feed end -->
 
