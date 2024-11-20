@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Putin gifts zoo animals, including lion and bears, to North Korean zoo](https://www.yahoo.com/news/putin-gifts-zoo-animals-including-094407931.html)
-- Nov 20 - [Irish pre-election spending promises abound despite Trump tax threat](https://www.yahoo.com/news/irish-pre-election-spending-promises-092349313.html)
-- Nov 20 - [Einstein's Most Famous Theory Just Passed Its Biggest Challenge Ever](https://www.yahoo.com/news/einsteins-most-famous-theory-just-061848577.html)
-- Nov 20 - [Susan Smith to ask parole board for her freedom after serving 30 years for drowning her children](https://www.yahoo.com/news/susan-smith-ask-parole-board-050242757.html)
-- Nov 20 - [People Are Sharing Jobs That Make A Good Living And Don't Require A Lot Of Work — Which Truly Sounds Like Everyone's Dream](https://www.yahoo.com/lifestyle/people-sharing-jobs-good-living-033104715.html)
+- Nov 20 - ['He represents the Hong Kong spirit' - Jimmy Lai trial resumes](https://www.yahoo.com/news/represents-hong-kong-spirit-jimmy-105248111.html)
+- Nov 20 - [Susan Smith killed her 2 young children by pushing her car into a lake. 30 years later, she’s up for parole](https://www.yahoo.com/news/susan-smith-killed-her-2-102946892.html)
+- Nov 20 - [Billionaire Ray Dalio Sold 27% of Bridgewater's Stake in Nvidia and Is Piling Into 2 Artificial Intelligence (AI) Stock-Split Stocks](https://finance.yahoo.com/news/billionaire-ray-dalio-sold-27-100600530.html)
+- Nov 20 - [Best Growth Stocks to Buy for November 20th](https://finance.yahoo.com/news/best-growth-stocks-buy-november-084500978.html)
+- Nov 20 - [Western embassies in Kyiv shut due to Russian air attack threat after Biden policy shift](https://www.yahoo.com/news/us-embassy-kyiv-shuts-down-082723035.html)
 <!-- feed end -->
 
 ### Onstream
