@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [People Are Sharing Jobs That Make A Good Living And Don't Require A Lot Of Work — Which Truly Sounds Like Everyone's Dream](https://www.yahoo.com/lifestyle/people-sharing-jobs-good-living-033104715.html)
 - Nov 20 - [Italian village offers $1 homes to Americans upset by the US election result](https://www.yahoo.com/lifestyle/italian-village-offers-1-homes-104905303.html)
+- Nov 20 - [Philippines to repatriate Filipina drug convict from Indonesia](https://www.yahoo.com/news/philippines-repatriate-filipina-drug-convict-012351505.html)
 - Nov 20 - [The dark energy pushing our universe apart may not be what it seems, scientists say](https://www.yahoo.com/news/dark-energy-pushing-universe-apart-010100403.html)
 - Nov 19 - [Earth's magnetic North Pole is shifting toward Russia. What does that mean?](https://www.yahoo.com/news/earths-magnetic-north-pole-shifting-234637155.html)
-- Nov 19 - [Former Madisonville parents club president indicted on charge of embezzlement](https://www.yahoo.com/news/former-madisonville-parents-club-president-233242563.html)
-- Nov 19 - [Harris lost to Trump. She may have one last chance to defy him.](https://www.yahoo.com/news/harris-lost-trump-she-may-230741055.html)
 <!-- feed end -->
 
 ### Onstream
