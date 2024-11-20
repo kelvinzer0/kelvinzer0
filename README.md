@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Comcast to spinoff MSNBC, more cable brands into new company](https://www.yahoo.com/news/comcast-spinoff-msnbc-more-cable-143601203.html)
-- Nov 20 - [Pope approves new papal funeral rites to simplify ritual, allow for burial outside the Vatican](https://www.yahoo.com/news/pope-approves-papal-funeral-rites-133543803.html)
-- Nov 20 - [Don't Miss the Walmart Black Friday Ad Scan Packed With Deals on Top Tech](https://www.yahoo.com/tech/dont-miss-walmart-black-friday-191752961.html)
-- Nov 20 - [Mortgage and refinance rates today, November 20, 2024: 30-year fixed rate falls](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-wednesday-november-20-2024-110032436.html)
-- Nov 20 - [National sandwich shop chain opens latest Jacksonville restaurant on Northside](https://www.yahoo.com/news/national-sandwich-shop-chain-opens-101856239.html)
+- Nov 20 - [Delta leans into premium travel to attract millennials](https://finance.yahoo.com/video/delta-leans-premium-travel-attract-155020786.html)
+- Nov 20 - [UN nuclear watchdog chief says Iran has accepted request to stop increasing near weapons grade uranium stock](https://www.yahoo.com/news/un-nuclear-watchdog-chief-says-152832651.html)
+- Nov 20 - [Middle East latest: Israel insists on right to act against Hezbollah in any deal to end fighting](https://www.yahoo.com/news/middle-east-latest-israel-insists-130554667.html)
+- Nov 20 - [How much is it going to snow in Knoxville and East Tennessee this week?](https://www.yahoo.com/news/much-going-snow-knoxville-east-125336814.html)
+- Nov 20 - [Officials successfully remove 17 acres of destructive plant wreaking havoc on iconic US lake: 'This marks an exciting step'](https://www.yahoo.com/news/officials-successfully-remove-17-acres-113012399.html)
 <!-- feed end -->
 
 ### Onstream
