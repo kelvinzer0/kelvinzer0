@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [Italian village offers $1 homes to Americans upset by the US election result](https://www.yahoo.com/lifestyle/italian-village-offers-1-homes-104905303.html)
 - Nov 20 - [The dark energy pushing our universe apart may not be what it seems, scientists say](https://www.yahoo.com/news/dark-energy-pushing-universe-apart-010100403.html)
+- Nov 19 - [Earth's magnetic North Pole is shifting toward Russia. What does that mean?](https://www.yahoo.com/news/earths-magnetic-north-pole-shifting-234637155.html)
+- Nov 19 - [Former Madisonville parents club president indicted on charge of embezzlement](https://www.yahoo.com/news/former-madisonville-parents-club-president-233242563.html)
 - Nov 19 - [Harris lost to Trump. She may have one last chance to defy him.](https://www.yahoo.com/news/harris-lost-trump-she-may-230741055.html)
-- Nov 19 - [Satellite Shows Powerful Storm System Angling for Northwestern US](https://www.yahoo.com/news/satellite-shows-powerful-storm-system-225857236.html)
-- Nov 19 - [DOJ's reported push for Google to sell Chrome is 'political move'](https://finance.yahoo.com/video/dojs-reported-push-google-sell-223500261.html)
-- Nov 19 - [Man pleads guilty to killing a Georgia couple lured by a false offer to sell a classic car](https://www.yahoo.com/news/man-pleads-guilty-killing-georgia-220400123.html)
 <!-- feed end -->
 
 ### Onstream
