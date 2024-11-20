@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [Netherlands delivers final two promised F-16's for training Ukrainian pilots](https://www.yahoo.com/news/netherlands-delivers-final-two-promised-165400753.html)
 - Nov 20 - [Delta leans into premium travel to attract millennials](https://finance.yahoo.com/video/delta-leans-premium-travel-attract-155020786.html)
+- Nov 20 - [Hezbollah chief says it reviewed truce proposal, ceasefire in Israel's hands](https://www.yahoo.com/news/hezbollah-chief-says-reviewed-truce-153855144.html)
 - Nov 20 - [UN nuclear watchdog chief says Iran has accepted request to stop increasing near weapons grade uranium stock](https://www.yahoo.com/news/un-nuclear-watchdog-chief-says-152832651.html)
-- Nov 20 - [Middle East latest: Israel insists on right to act against Hezbollah in any deal to end fighting](https://www.yahoo.com/news/middle-east-latest-israel-insists-130554667.html)
-- Nov 20 - [How much is it going to snow in Knoxville and East Tennessee this week?](https://www.yahoo.com/news/much-going-snow-knoxville-east-125336814.html)
-- Nov 20 - [Officials successfully remove 17 acres of destructive plant wreaking havoc on iconic US lake: 'This marks an exciting step'](https://www.yahoo.com/news/officials-successfully-remove-17-acres-113012399.html)
+- Nov 20 - [We Found the Best Deals From the Best Buy Early Black Friday Ad](https://www.yahoo.com/tech/found-best-deals-best-buys-181700974.html)
 <!-- feed end -->
 
 ### Onstream
