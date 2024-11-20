@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - ['He represents the Hong Kong spirit' - Jimmy Lai trial resumes](https://www.yahoo.com/news/represents-hong-kong-spirit-jimmy-105248111.html)
-- Nov 20 - [Susan Smith killed her 2 young children by pushing her car into a lake. 30 years later, she’s up for parole](https://www.yahoo.com/news/susan-smith-killed-her-2-102946892.html)
-- Nov 20 - [Billionaire Ray Dalio Sold 27% of Bridgewater's Stake in Nvidia and Is Piling Into 2 Artificial Intelligence (AI) Stock-Split Stocks](https://finance.yahoo.com/news/billionaire-ray-dalio-sold-27-100600530.html)
-- Nov 20 - [Best Growth Stocks to Buy for November 20th](https://finance.yahoo.com/news/best-growth-stocks-buy-november-084500978.html)
-- Nov 20 - [Western embassies in Kyiv shut due to Russian air attack threat after Biden policy shift](https://www.yahoo.com/news/us-embassy-kyiv-shuts-down-082723035.html)
+- Nov 20 - [Apple AirPods, AirTags, and iPads Are Already Secretly on Sale at Amazon Before Black Friday — Up to $299 Off](https://www.yahoo.com/lifestyle/apple-airpods-airtags-ipads-already-110000313.html)
+- Nov 20 - [National sandwich shop chain opens latest Jacksonville restaurant on Northside](https://www.yahoo.com/news/national-sandwich-shop-chain-opens-101856239.html)
+- Nov 20 - [Japan says it will watch China's military activity after Beijing admits violating Japanese airspace](https://www.yahoo.com/news/japan-says-watch-chinas-military-100033569.html)
+- Nov 20 - [Susan Smith to ask parole board for her freedom after serving 30 years for drowning her children](https://www.yahoo.com/news/susan-smith-ask-parole-board-050242757.html)
+- Nov 20 - [Fetterman reacts to Oz being nominated for Centers for Medicare and Medicaid Services](https://www.yahoo.com/news/fetterman-reacts-oz-being-nominated-032645710.html)
 <!-- feed end -->
 
 ### Onstream
