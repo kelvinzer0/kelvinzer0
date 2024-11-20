@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Comcast to spinoff MSNBC, more cable brands into new company](https://www.yahoo.com/news/comcast-spinoff-msnbc-more-cable-132812794.html)
-- Nov 20 - [Middle East latest: Israel insists on right to act against Hezbollah in any deal to end fighting](https://www.yahoo.com/news/middle-east-latest-israel-insists-130554667.html)
-- Nov 20 - [At least 1 dead and hundreds of thousands without power as bomb cyclone slams Washington state, British Columbia](https://www.yahoo.com/news/bomb-cyclone-atmospheric-river-combine-154819751.html)
-- Nov 20 - [Jim Cramer on NVIDIA Corporation (NVDA): ‘If You Don’t Own It, Just Wait’](https://finance.yahoo.com/news/jim-cramer-nvidia-corporation-nvda-115657571.html)
-- Nov 20 - [This woman bought cheap land from the state for $15K — but the old owner reportedly sold it due to a landslide](https://finance.yahoo.com/news/woman-bought-cheap-land-state-115000658.html)
+- Nov 20 - [Comcast to spinoff MSNBC, more cable brands into new company](https://www.yahoo.com/news/comcast-spinoff-msnbc-more-cable-143601203.html)
+- Nov 20 - [Pope approves new papal funeral rites to simplify ritual, allow for burial outside the Vatican](https://www.yahoo.com/news/pope-approves-papal-funeral-rites-133543803.html)
+- Nov 20 - [Don't Miss the Walmart Black Friday Ad Scan Packed With Deals on Top Tech](https://www.yahoo.com/tech/dont-miss-walmart-black-friday-191752961.html)
+- Nov 20 - [Mortgage and refinance rates today, November 20, 2024: 30-year fixed rate falls](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-wednesday-november-20-2024-110032436.html)
+- Nov 20 - [National sandwich shop chain opens latest Jacksonville restaurant on Northside](https://www.yahoo.com/news/national-sandwich-shop-chain-opens-101856239.html)
 <!-- feed end -->
 
 ### Onstream
