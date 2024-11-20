@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Einstein's Most Famous Theory Just Passed Its Biggest Challenge Ever](https://www.yahoo.com/news/einsteins-most-famous-theory-just-061848577.html)
-- Nov 20 - [Susan Smith to ask parole board for her freedom after serving 30 years for drowning her children](https://www.yahoo.com/news/susan-smith-ask-parole-board-050242757.html)
+- Nov 20 - [Berlin presents edgy Christmas lights exhibition inspired by the city's club scene](https://www.yahoo.com/news/berlin-presents-edgy-christmas-lights-083936910.html)
 - Nov 20 - [Fetterman reacts to Oz being nominated for Centers for Medicare and Medicaid Services](https://www.yahoo.com/news/fetterman-reacts-oz-being-nominated-032645710.html)
-- Nov 20 - [California voters reject measure that would have raised minimum wage to nation-high $18 per hour](https://www.yahoo.com/news/california-voters-reject-measure-raised-010847958.html)
+- Nov 20 - [Italian village offers $1 homes to Americans upset by the US election result](https://www.yahoo.com/lifestyle/italian-village-offers-1-homes-104905303.html)
 - Nov 20 - [The dark energy pushing our universe apart may not be what it seems, scientists say](https://www.yahoo.com/news/dark-energy-pushing-universe-apart-010100403.html)
+- Nov 19 - [Earth's magnetic North Pole is shifting toward Russia. What does that mean?](https://www.yahoo.com/news/earths-magnetic-north-pole-shifting-234637155.html)
 <!-- feed end -->
 
 ### Onstream
