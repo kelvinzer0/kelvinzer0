@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Matt Gaetz withdraws from consideration as Donald Trump's attorney general](https://www.yahoo.com/news/matt-gaetz-withdraws-name-donald-173900972.html)
-- Nov 21 - [Gaetz withdraws as Trump's pick for attorney general, averting confirmation battle in the Senate](https://www.yahoo.com/news/gaetz-withdraws-trumps-pick-attorney-173241420.html)
-- Nov 21 - [Don't miss grabbing an Apple Magic Mouse for its lowest price ever](https://www.yahoo.com/tech/dont-miss-grabbing-apple-magic-172401687.html)
-- Nov 21 - [UK sanctions Angola's Isabel dos Santos in graft crackdown](https://www.yahoo.com/news/uk-sanctions-angolas-isabel-dos-171356469.html)
+- Nov 21 - [Pathologist disputes finding that Marine veteran's chokehold caused subway rider's death](https://www.yahoo.com/news/pathologist-disputes-finding-marine-veterans-182850631.html)
+- Nov 21 - [The CEO of Spirit Airlines got a $3.8 million bonus not to bail](https://www.yahoo.com/tech/ceo-spirit-airlines-got-3-175000444.html)
+- Nov 21 - [Wisconsin kayaker who faked his own death has told investigators how he did it, sheriff says](https://www.yahoo.com/news/wisconsin-kayaker-faked-own-death-172640403.html)
+- Nov 21 - [Mexico acknowledges Canada's concerns about a Chinese auto plant, but says none exists](https://www.yahoo.com/news/mexico-acknowledges-canadas-concerns-chinese-172314765.html)
 - Nov 21 - [McDonald's to serve up a McValue offering in 2025. Here's what it includes.](https://finance.yahoo.com/news/mcdonalds-serve-mcvalue-offering-2025-163058144.html)
 <!-- feed end -->
 
