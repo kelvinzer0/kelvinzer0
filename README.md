@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 21 - [The FBI arrested a man who's been charged with planning an attack on the New York Stock Exchange](https://www.yahoo.com/news/florida-man-charged-planning-attack-010958643.html)
+- Nov 21 - [Texas anesthesiologist sentenced to 190 years in federal prison for tampering with IV bags](https://www.yahoo.com/news/texas-anesthesiologist-sentenced-190-years-010702540.html)
 - Nov 20 - [North Carolina GOP lawmakers vote to strip incoming Democratic leaders' powers](https://www.yahoo.com/news/north-carolina-gop-lawmakers-vote-235707574.html)
 - Nov 20 - [Speaker Johnson says transgender women won't be allowed to use women’s restrooms in Capitol](https://www.yahoo.com/news/speaker-johnson-says-transgender-women-173600012.html)
 - Nov 20 - [Trial of youth center worker accused of holding down boy while he was raped turns acrimonious](https://www.yahoo.com/news/trial-youth-center-worker-accused-225049627.html)
-- Nov 20 - [Rep. Wild discusses outcome of ethics meeting over Gaetz report](https://www.yahoo.com/news/rep-wild-discusses-outcome-ethics-220002360.html)
 <!-- feed end -->
 
 ### Onstream
