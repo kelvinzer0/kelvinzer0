@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Safeway heater starts sprinklers Tuesday](https://www.yahoo.com/news/safeway-heater-starts-sprinklers-tuesday-205300831.html)
+- Nov 21 - [Putin touts Russia's new missile and delivers a menacing warning to NATO](https://www.yahoo.com/news/putin-touts-russias-missile-delivers-203211505.html)
 - Nov 21 - [Rachel Maddow Takes Pay Cut With MSNBC’s Future in Jeopardy](https://www.yahoo.com/news/rachel-maddow-takes-pay-cut-203103909.html)
+- Nov 21 - [Here’s how much rain Southern California could see this weekend](https://www.yahoo.com/news/much-rain-southern-california-could-193204817.html)
+- Nov 21 - [Brothels in Thousand Oaks allegedly cloaked as skin care spas](https://www.yahoo.com/news/brothels-thousand-oaks-allegedly-cloaked-192842975.html)
 - Nov 21 - [Can Matt Gaetz return to Congress after failed attorney general bid?](https://www.yahoo.com/news/matt-gaetz-return-congress-failed-192508412.html)
-- Nov 21 - [Real Dogs' Reaction to Robodogs is Terrifying](https://www.yahoo.com/tech/real-dogs-reaction-robodogs-terrifying-191300874.html)
-- Nov 21 - [‘Intensive manhunt’: Mass. State Police capture fugitive wanted in deaths of 3 people](https://www.yahoo.com/news/intensive-manhunt-mass-state-police-144703469.html)
 <!-- feed end -->
 
 ### Onstream
