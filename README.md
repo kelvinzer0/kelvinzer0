@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Moscow fires ballistic missiles into Ukraine after Kyiv strikes in Russia with U.S. missiles](https://www.yahoo.com/news/moscow-fires-ballistic-missiles-ukraine-153701023.html)
-- Nov 21 - [China’s Air Cargo Exodus Floods the US Ahead of Holiday Uncertainty](https://www.yahoo.com/news/china-air-cargo-exodus-floods-150506803.html)
+- Nov 21 - [Teach mode, Rabbit's tool for automating R1 tasks, is now available to all users](https://www.yahoo.com/tech/teach-mode-rabbits-tool-for-automating-r1-tasks-is-now-available-to-all-users-170036677.html)
+- Nov 21 - [McDonald's to serve up a McValue offering in 2025. Here's what it includes.](https://finance.yahoo.com/news/mcdonalds-serve-mcvalue-offering-2025-163058144.html)
+- Nov 21 - [Moscow makes first retaliation attack after Ukraine's strikes in Russia with U.S. missiles](https://www.yahoo.com/news/moscow-fires-ballistic-missiles-ukraine-153701023.html)
+- Nov 21 - [Winter storm warning in Binghamton: What to expect tonight, Friday](https://www.yahoo.com/news/winter-storm-warning-binghamton-expect-150134372.html)
 - Nov 21 - [Hiker Steps into 280-Million-Year-Old Fossilized World in Italian Alps](https://www.yahoo.com/news/hiker-steps-280-million-old-140000343.html)
-- Nov 21 - [US airline flight crews confident and angry as unions seek richer contracts](https://finance.yahoo.com/news/us-airline-flight-crews-confident-111256431.html)
-- Nov 21 - [Editorial: Meet the new ‘head tax’: Brandon Johnson’s business levy could cause companies to flee for the suburbs](https://finance.yahoo.com/news/editorial-meet-head-tax-brandon-110000216.html)
 <!-- feed end -->
 
 ### Onstream
