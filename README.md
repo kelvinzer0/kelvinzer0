@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Russia fires first ICBM of Ukraine war, Kyiv's air force says](https://www.yahoo.com/news/russia-fires-first-icbm-ukraine-091740893.html)
-- Nov 21 - [Want Decades of Passive Income? 3 Stocks to Buy Right Now.](https://finance.yahoo.com/news/want-decades-passive-income-3-091500582.html)
-- Nov 21 - [India's Adani says US charges 'baseless', opposition demand arrest](https://www.yahoo.com/news/indias-adani-enterprises-tanks-founders-054007667.html)
-- Nov 21 - [Apartment Building Fire Injures 3 and Displaces Dozens](https://www.yahoo.com/news/apartment-building-fire-injures-3-085416102.html)
+- Nov 21 - [2 Dividend Stocks That Pay More Than 6% That Retirees Can Safely Buy and Hold for Years](https://finance.yahoo.com/news/2-dividend-stocks-pay-more-092500289.html)
 - Nov 21 - [Russia says new US base in Poland raises overall nuclear danger](https://www.yahoo.com/news/russia-says-us-poland-raises-081452479.html)
+- Nov 21 - [North Carolina GOP lawmakers vote to strip incoming Democratic leaders' powers](https://www.yahoo.com/news/north-carolina-gop-lawmakers-vote-235707574.html)
+- Nov 21 - [Australian tourist dies after drinking tainted alcohol in Laos, raising toll to 4 including American](https://www.yahoo.com/news/american-australian-tourists-die-raising-043734963.html)
+- Nov 21 - [Zelenskiy says Crimea can only be restored to Ukraine through diplomacy](https://www.yahoo.com/news/zelenskiy-says-crimea-only-restored-022804990.html)
 <!-- feed end -->
 
 ### Onstream
