@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [Zelenskiy says Crimea can only be restored to Ukraine through diplomacy](https://www.yahoo.com/news/zelenskiy-says-crimea-only-restored-022804990.html)
 - Nov 21 - [The FBI arrested a man who's been charged with planning an attack on the New York Stock Exchange](https://www.yahoo.com/news/florida-man-charged-planning-attack-010958643.html)
-- Nov 21 - [Texas anesthesiologist sentenced to 190 years in federal prison for tampering with IV bags](https://www.yahoo.com/news/texas-anesthesiologist-sentenced-190-years-010702540.html)
+- Nov 21 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
 - Nov 20 - [North Carolina GOP lawmakers vote to strip incoming Democratic leaders' powers](https://www.yahoo.com/news/north-carolina-gop-lawmakers-vote-235707574.html)
-- Nov 20 - [Speaker Johnson says transgender women won't be allowed to use women’s restrooms in Capitol](https://www.yahoo.com/news/speaker-johnson-says-transgender-women-173600012.html)
-- Nov 20 - [Trial of youth center worker accused of holding down boy while he was raped turns acrimonious](https://www.yahoo.com/news/trial-youth-center-worker-accused-225049627.html)
+- Nov 20 - [Man Sets House on Fire as Revenge for Traffic Tickets](https://www.yahoo.com/news/man-sets-house-fire-revenge-225302000.html)
 <!-- feed end -->
 
 ### Onstream
