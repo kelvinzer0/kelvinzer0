@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [This retiree accepted an investment broker’s invite for dinner at Ruth’s Chris — the decision cost him $158K](https://finance.yahoo.com/news/retiree-accepted-investment-broker-invite-122100664.html)
 - Nov 21 - [US airline flight crews confident and angry as unions seek richer contracts](https://finance.yahoo.com/news/us-airline-flight-crews-confident-111256431.html)
-- Nov 21 - [Ukraine says Russia launched an intercontinental missile in an attack for the first time in the war](https://www.yahoo.com/news/ukraine-says-russia-launched-icbm-091128628.html)
+- Nov 21 - [Feds charge former Eagles running back, Delaware native with COVID, tax fraud](https://www.yahoo.com/news/feds-charge-former-eagles-running-095704637.html)
 - Nov 21 - [Russia says new US base in Poland raises overall nuclear danger](https://www.yahoo.com/news/russia-says-us-poland-raises-081452479.html)
-- Nov 21 - [Zelenskiy says Crimea can only be restored to Ukraine through diplomacy](https://www.yahoo.com/news/zelenskiy-says-crimea-only-restored-022804990.html)
-- Nov 21 - [How Saudi Arabia could create a crisis for Russia's economy](https://finance.yahoo.com/news/saudi-arabia-could-create-crisis-150002454.html)
+- Nov 21 - [Russia fires intercontinental ballistic missile in attack on Ukraine, Kyiv says](https://www.yahoo.com/news/russia-launches-long-range-missile-075922559.html)
 <!-- feed end -->
 
 ### Onstream
