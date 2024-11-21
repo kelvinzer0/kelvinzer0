@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Pathologist disputes finding that Marine veteran's chokehold caused subway rider's death](https://www.yahoo.com/news/pathologist-disputes-finding-marine-veterans-182850631.html)
-- Nov 21 - [The CEO of Spirit Airlines got a $3.8 million bonus not to bail](https://www.yahoo.com/tech/ceo-spirit-airlines-got-3-175000444.html)
-- Nov 21 - [Wisconsin kayaker who faked his own death has told investigators how he did it, sheriff says](https://www.yahoo.com/news/wisconsin-kayaker-faked-own-death-172640403.html)
+- Nov 21 - [Can Matt Gaetz return to Congress after failed attorney general bid?](https://www.yahoo.com/news/matt-gaetz-return-congress-failed-192508412.html)
+- Nov 21 - [Putin says Ukraine war is going global](https://www.yahoo.com/news/putin-says-russia-fired-hypersonic-174448527.html)
+- Nov 21 - [A kayaker faked his own death and fled overseas. Now he's telling how he did it](https://www.yahoo.com/news/wisconsin-kayaker-faked-own-death-172640403.html)
 - Nov 21 - [Mexico acknowledges Canada's concerns about a Chinese auto plant, but says none exists](https://www.yahoo.com/news/mexico-acknowledges-canadas-concerns-chinese-172314765.html)
 - Nov 21 - [McDonald's to serve up a McValue offering in 2025. Here's what it includes.](https://finance.yahoo.com/news/mcdonalds-serve-mcvalue-offering-2025-163058144.html)
 <!-- feed end -->
