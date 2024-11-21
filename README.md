@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Nvidia beats earnings expectations as investors eye demand for Blackwell AI chips](https://finance.yahoo.com/news/nvidia-beats-earnings-expectations-investors-221120948.html)
-- Nov 20 - [Rep. Wild discusses outcome of ethics meeting over Gaetz report](https://www.yahoo.com/news/rep-wild-discusses-outcome-ethics-220002360.html)
-- Nov 20 - [What's The Average 'Upper Class' Retirement Nest Egg? Here's A Look At What The Wealthiest 20% Have Stashed Away](https://finance.yahoo.com/news/whats-average-upper-class-retirement-203035570.html)
-- Nov 20 - [Idiot Trump Accidentally Gives Democrats a Massive Boost](https://www.yahoo.com/news/idiot-trump-accidentally-gives-democrats-202602499.html)
-- Nov 20 - [Man who drugged wife in French mass rape case told: You'll die alone](https://www.yahoo.com/news/man-drugged-wife-french-mass-195613008.html)
+- Nov 21 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
+- Nov 20 - [North Carolina GOP lawmakers vote to strip incoming Democratic leaders' powers](https://www.yahoo.com/news/north-carolina-gop-lawmakers-vote-235707574.html)
+- Nov 20 - [Speaker Johnson says transgender women won't be allowed to use women’s restrooms in Capitol](https://www.yahoo.com/news/speaker-johnson-says-transgender-women-173600012.html)
+- Nov 20 - [Trial of youth center worker accused of holding down boy while he was raped turns acrimonious](https://www.yahoo.com/news/trial-youth-center-worker-accused-225049627.html)
+- Nov 20 - [Nvidia releases earnings: Takeaways from Mag 7 Q3 results](https://finance.yahoo.com/video/nvidia-releases-earnings-takeaways-mag-220716796.html)
 <!-- feed end -->
 
 ### Onstream
