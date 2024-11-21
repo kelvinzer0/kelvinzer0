@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Deadly bomb cyclone hits Pacific Northwest, bringing high winds and devastating damage](https://www.yahoo.com/news/deadly-bomb-cyclone-hits-pacific-135046408.html)
+- Nov 21 - [Moscow fires ballistic missiles into Ukraine after Kyiv strikes in Russia with U.S. missiles](https://www.yahoo.com/news/moscow-fires-ballistic-missiles-ukraine-153701023.html)
+- Nov 21 - [China’s Air Cargo Exodus Floods the US Ahead of Holiday Uncertainty](https://www.yahoo.com/news/china-air-cargo-exodus-floods-150506803.html)
+- Nov 21 - [Hiker Steps into 280-Million-Year-Old Fossilized World in Italian Alps](https://www.yahoo.com/news/hiker-steps-280-million-old-140000343.html)
 - Nov 21 - [US airline flight crews confident and angry as unions seek richer contracts](https://finance.yahoo.com/news/us-airline-flight-crews-confident-111256431.html)
-- Nov 21 - [Woman who escaped years of captivity says APL raided her animal rescue](https://www.yahoo.com/news/woman-escaped-years-captivity-says-020701726.html)
-- Nov 21 - [There Are Three Main Reasons You Are Alive Right Now. RFK Jr. Is Fighting Tooth and Nail Against One of Them.](https://www.yahoo.com/news/three-main-reasons-alive-now-104000116.html)
-- Nov 21 - [Feds charge former Eagles running back, Delaware native with COVID, tax fraud](https://www.yahoo.com/news/feds-charge-former-eagles-running-095704637.html)
+- Nov 21 - [Editorial: Meet the new ‘head tax’: Brandon Johnson’s business levy could cause companies to flee for the suburbs](https://finance.yahoo.com/news/editorial-meet-head-tax-brandon-110000216.html)
 <!-- feed end -->
 
 ### Onstream
