@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 21 - [North Carolina GOP lawmakers vote to strip incoming Democratic leaders' powers](https://www.yahoo.com/news/north-carolina-gop-lawmakers-vote-235707574.html)
-- Nov 21 - [Bees help tackle elephant-human conflict in Kenya](https://www.yahoo.com/news/bees-help-tackle-elephant-human-024246769.html)
 - Nov 21 - [Zelenskiy says Crimea can only be restored to Ukraine through diplomacy](https://www.yahoo.com/news/zelenskiy-says-crimea-only-restored-022804990.html)
 - Nov 21 - [The FBI arrested a man who's been charged with planning an attack on the New York Stock Exchange](https://www.yahoo.com/news/florida-man-charged-planning-attack-010958643.html)
-- Nov 21 - [The 6 best OLED TVs for 2024](https://www.yahoo.com/tech/8-best-oled-tvs-2024-230043232.html)
+- Nov 21 - [Texas anesthesiologist sentenced to 190 years in federal prison for tampering with IV bags](https://www.yahoo.com/news/texas-anesthesiologist-sentenced-190-years-010702540.html)
+- Nov 21 - [The 'greatest bubble in human history' is close to bursting, black-swan investor Mark Spitznagel says](https://finance.yahoo.com/news/greatest-bubble-human-history-close-230726276.html)
 <!-- feed end -->
 
 ### Onstream
