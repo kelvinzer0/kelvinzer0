@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [Can Matt Gaetz return to Congress after failed attorney general bid?](https://www.yahoo.com/news/matt-gaetz-return-congress-failed-192508412.html)
+- Nov 21 - [Ex-sheriff indicted on murder charge in the slaying of a judge in Kentucky](https://www.yahoo.com/news/ex-sheriff-indicted-murder-charge-215942378.html)
+- Nov 21 - [Gun Ownership Is Rising Among A New Group, Poll Shows](https://www.yahoo.com/news/gun-ownership-rising-among-group-213056723.html)
 - Nov 21 - [Putin touts Russia's new missile and delivers a menacing warning to NATO](https://www.yahoo.com/news/putin-touts-russias-missile-delivers-203211505.html)
 - Nov 21 - [Rachel Maddow Takes Pay Cut With MSNBC’s Future in Jeopardy](https://www.yahoo.com/news/rachel-maddow-takes-pay-cut-203103909.html)
-- Nov 21 - [Here’s how much rain Southern California could see this weekend](https://www.yahoo.com/news/much-rain-southern-california-could-193204817.html)
-- Nov 21 - [Brothels in Thousand Oaks allegedly cloaked as skin care spas](https://www.yahoo.com/news/brothels-thousand-oaks-allegedly-cloaked-192842975.html)
-- Nov 21 - [Can Matt Gaetz return to Congress after failed attorney general bid?](https://www.yahoo.com/news/matt-gaetz-return-congress-failed-192508412.html)
 <!-- feed end -->
 
 ### Onstream
