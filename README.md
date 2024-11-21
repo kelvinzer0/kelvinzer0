@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Teach mode, Rabbit's tool for automating R1 tasks, is now available to all users](https://www.yahoo.com/tech/teach-mode-rabbits-tool-for-automating-r1-tasks-is-now-available-to-all-users-170036677.html)
+- Nov 21 - [Matt Gaetz withdraws from consideration as Donald Trump's attorney general](https://www.yahoo.com/news/matt-gaetz-withdraws-name-donald-173900972.html)
+- Nov 21 - [Gaetz withdraws as Trump's pick for attorney general, averting confirmation battle in the Senate](https://www.yahoo.com/news/gaetz-withdraws-trumps-pick-attorney-173241420.html)
+- Nov 21 - [Don't miss grabbing an Apple Magic Mouse for its lowest price ever](https://www.yahoo.com/tech/dont-miss-grabbing-apple-magic-172401687.html)
+- Nov 21 - [UK sanctions Angola's Isabel dos Santos in graft crackdown](https://www.yahoo.com/news/uk-sanctions-angolas-isabel-dos-171356469.html)
 - Nov 21 - [McDonald's to serve up a McValue offering in 2025. Here's what it includes.](https://finance.yahoo.com/news/mcdonalds-serve-mcvalue-offering-2025-163058144.html)
-- Nov 21 - [Moscow makes first retaliation attack after Ukraine's strikes in Russia with U.S. missiles](https://www.yahoo.com/news/moscow-fires-ballistic-missiles-ukraine-153701023.html)
-- Nov 21 - [Winter storm warning in Binghamton: What to expect tonight, Friday](https://www.yahoo.com/news/winter-storm-warning-binghamton-expect-150134372.html)
-- Nov 21 - [Hiker Steps into 280-Million-Year-Old Fossilized World in Italian Alps](https://www.yahoo.com/news/hiker-steps-280-million-old-140000343.html)
 <!-- feed end -->
 
 ### Onstream
