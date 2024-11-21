@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Is nuclear power gaining new energy?](https://www.yahoo.com/news/nuclear-power-gaining-energy-000317628.html)
+- Nov 21 - [Russia says new US base in Poland raises overall nuclear danger](https://www.yahoo.com/news/russia-says-us-poland-raises-081452479.html)
+- Nov 21 - [Russia launches intercontinental ballistic missile in attack on Ukraine, Kyiv says](https://www.yahoo.com/news/russia-launches-long-range-missile-075922559.html)
+- Nov 21 - [North Carolina GOP lawmakers vote to strip incoming Democratic leaders' powers](https://www.yahoo.com/news/north-carolina-gop-lawmakers-vote-235707574.html)
+- Nov 21 - [Bees help tackle elephant-human conflict in Kenya](https://www.yahoo.com/news/bees-help-tackle-elephant-human-024246769.html)
 - Nov 21 - [Zelenskiy says Crimea can only be restored to Ukraine through diplomacy](https://www.yahoo.com/news/zelenskiy-says-crimea-only-restored-022804990.html)
-- Nov 21 - [EPPD identifies man dead after East EP shooting](https://www.yahoo.com/news/eppd-identify-man-dead-east-021854045.html)
-- Nov 21 - [Former Dallas police officer Amber Guyger ordered to pay nearly $100 million in civil trial](https://www.yahoo.com/news/former-dallas-police-officer-amber-233907099.html)
-- Nov 21 - [How Saudi Arabia could create a crisis for Russia's economy](https://finance.yahoo.com/news/saudi-arabia-could-create-crisis-150002454.html)
 <!-- feed end -->
 
 ### Onstream
