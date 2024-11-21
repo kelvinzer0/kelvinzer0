@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [Safeway heater starts sprinklers Tuesday](https://www.yahoo.com/news/safeway-heater-starts-sprinklers-tuesday-205300831.html)
+- Nov 21 - [Rachel Maddow Takes Pay Cut With MSNBC’s Future in Jeopardy](https://www.yahoo.com/news/rachel-maddow-takes-pay-cut-203103909.html)
 - Nov 21 - [Can Matt Gaetz return to Congress after failed attorney general bid?](https://www.yahoo.com/news/matt-gaetz-return-congress-failed-192508412.html)
-- Nov 21 - [Putin says Ukraine war is going global](https://www.yahoo.com/news/putin-says-russia-fired-hypersonic-174448527.html)
-- Nov 21 - [A kayaker faked his own death and fled overseas. Now he's telling how he did it](https://www.yahoo.com/news/wisconsin-kayaker-faked-own-death-172640403.html)
-- Nov 21 - [Mexico acknowledges Canada's concerns about a Chinese auto plant, but says none exists](https://www.yahoo.com/news/mexico-acknowledges-canadas-concerns-chinese-172314765.html)
-- Nov 21 - [McDonald's to serve up a McValue offering in 2025. Here's what it includes.](https://finance.yahoo.com/news/mcdonalds-serve-mcvalue-offering-2025-163058144.html)
+- Nov 21 - [Real Dogs' Reaction to Robodogs is Terrifying](https://www.yahoo.com/tech/real-dogs-reaction-robodogs-terrifying-191300874.html)
+- Nov 21 - [‘Intensive manhunt’: Mass. State Police capture fugitive wanted in deaths of 3 people](https://www.yahoo.com/news/intensive-manhunt-mass-state-police-144703469.html)
 <!-- feed end -->
 
 ### Onstream
