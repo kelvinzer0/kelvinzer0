@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Sixth person dies after suspected mass drink-spiking in Laos](https://www.yahoo.com/news/sixth-person-dies-suspected-mass-091308055.html)
 - Nov 22 - [Texas Supreme Court overturns ruling that state Attorney General Ken Paxton testify in lawsuit](https://www.yahoo.com/news/texas-supreme-court-overturns-ruling-204025170.html)
-- Nov 22 - ["Someone's About To Get Seriously Ill": Millions Have Seen This Video Of An NYC Barista's Claim About This Viral Cafe's "Sickening" Food Handling Practices](https://www.yahoo.com/news/someones-seriously-ill-millions-seen-200500026.html)
+- Nov 22 - [LIVE: Sentencing hearing underway for drunken driver who killed 4 Waupaca County siblings](https://www.yahoo.com/news/live-sentencing-hearing-underway-drunken-202707386.html)
+- Nov 22 - [EU, China close to agreement over EV import tariffs, leading MEP says](https://finance.yahoo.com/news/eu-china-close-agreement-over-193648064.html)
 - Nov 22 - [Plastic surgeon turned patients’ noses into ‘potatoes’](https://www.yahoo.com/news/plastic-surgeon-turned-patients-noses-173235482.html)
-- Nov 22 - [BREAKING: Judge cancels sentencing in Trump hush money case](https://www.yahoo.com/news/breaking-judge-cancels-sentencing-trump-172218273.html)
+- Nov 22 - [Target apologizes after firing employee for handwriting ‘trust in Jesus’ on nametag](https://www.yahoo.com/news/target-apologizes-firing-employee-handwriting-173149861.html)
 <!-- feed end -->
 
 ### Onstream
