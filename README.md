@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Gatwick Airport latest: Police call in bomb squad after terminal evacuated as passengers face huge delays](https://www.yahoo.com/lifestyle/gatwick-airport-latest-terminal-evacuated-112048977.html)
-- Nov 22 - [Record Early Season Snow Seen in Switzerland](https://www.yahoo.com/news/record-early-season-snow-seen-120917892.html)
+- Nov 22 - [McDonald's will serve up a McValue offering in 2025. Here's what's in it.](https://finance.yahoo.com/news/mcdonalds-serve-mcvalue-offering-2025-163058144.html)
+- Nov 22 - ['This is terrible': Video of McDonald's employee in West Peoria sparks controversy](https://www.yahoo.com/news/terrible-video-mcdonalds-employee-west-121348384.html)
+- Nov 22 - [Ukraine says new missile fired by Russia flew for 15 minutes, faster than Mach 11](https://www.yahoo.com/news/ukraine-says-missile-fired-russia-110232868.html)
 - Nov 22 - [Medicare premiums rise for 2025, nicking retirees' Social Security checks](https://finance.yahoo.com/news/medicare-premiums-rise-for-2025-nicking-retirees-social-security-checks-110009345.html)
 - Nov 22 - [Sixth person dies after suspected mass drink-spiking in Laos](https://www.yahoo.com/news/sixth-person-dies-suspected-mass-091308055.html)
-- Nov 22 - [China is expanding visa-free entry to more countries in bid to boost economy](https://www.yahoo.com/news/china-expanding-visa-free-entry-101214668.html)
 <!-- feed end -->
 
 ### Onstream
