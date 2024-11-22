@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 21 - [St. Petersburg council rejects immediate repair to Rays' ballpark roof after first giving approval](https://www.yahoo.com/news/st-petersburg-council-approves-23m-221831092.html)
-- Nov 21 - [Report: Jax Taylor and Brittany Cartwright Took Out $2.2 Million Mortgage After His $1 Million Tax Lien](https://www.yahoo.com/entertainment/report-jax-taylor-brittany-cartwright-215957566.html)
 - Nov 21 - [Ex-sheriff indicted on murder charge in the slaying of a judge in Kentucky](https://www.yahoo.com/news/ex-sheriff-indicted-murder-charge-215942378.html)
-- Nov 21 - ['Perfect to take anywhere': Snag this Apple Black Friday deal on the new iPad mini](https://www.yahoo.com/tech/perfect-to-take-anywhere-snag-this-apple-black-friday-deal-on-the-new-ipad-mini-201348365.html)
 - Nov 21 - [Everything we know about the crash that killed 2 PBSO deputies, critically wounded a third](https://www.yahoo.com/news/everything-know-crash-killed-2-200603829.html)
+- Nov 21 - [Here’s how much rain Southern California could see this weekend](https://www.yahoo.com/news/much-rain-southern-california-could-193204817.html)
+- Nov 21 - [Pathologist disputes finding that Marine veteran's chokehold caused subway rider's death](https://www.yahoo.com/news/pathologist-disputes-finding-marine-veterans-182850631.html)
 <!-- feed end -->
 
 ### Onstream
