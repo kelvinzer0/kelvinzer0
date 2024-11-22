@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Justin Welby has highlighted the case to divorce church from state](https://www.yahoo.com/news/justin-welby-highlighted-case-divorce-192108292.html)
+- Nov 22 - [Sixth person dies after suspected mass drink-spiking in Laos](https://www.yahoo.com/news/sixth-person-dies-suspected-mass-091308055.html)
+- Nov 22 - [Texas Supreme Court overturns ruling that state Attorney General Ken Paxton testify in lawsuit](https://www.yahoo.com/news/texas-supreme-court-overturns-ruling-204025170.html)
+- Nov 22 - ["Someone's About To Get Seriously Ill": Millions Have Seen This Video Of An NYC Barista's Claim About This Viral Cafe's "Sickening" Food Handling Practices](https://www.yahoo.com/news/someones-seriously-ill-millions-seen-200500026.html)
 - Nov 22 - [Plastic surgeon turned patients’ noses into ‘potatoes’](https://www.yahoo.com/news/plastic-surgeon-turned-patients-noses-173235482.html)
 - Nov 22 - [BREAKING: Judge cancels sentencing in Trump hush money case](https://www.yahoo.com/news/breaking-judge-cancels-sentencing-trump-172218273.html)
-- Nov 22 - [House Passes $196 Billion Social Security Bill: Will Repealing Pension Reductions Shorten The Program's Lifespan?](https://finance.yahoo.com/news/house-passes-196-billion-social-161533489.html)
-- Nov 22 - [Bodycam footage shows middle school meeting that ended up with parents arrested](https://www.yahoo.com/news/bodycam-footage-shows-middle-school-153737166.html)
 <!-- feed end -->
 
 ### Onstream
