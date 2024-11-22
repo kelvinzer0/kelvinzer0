@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Can Matt Gaetz return to Congress after failed attorney general bid?](https://www.yahoo.com/news/matt-gaetz-return-congress-failed-192508412.html)
+- Nov 21 - [St. Petersburg council rejects immediate repair to Rays' ballpark roof after first giving approval](https://www.yahoo.com/news/st-petersburg-council-approves-23m-221831092.html)
+- Nov 21 - [He Wasn’t Qualified to Be Attorney General. He’s Even Less Qualified for the Next Job Trump Wants Him In. He Does Have a History of Scams.](https://www.yahoo.com/news/wasn-t-qualified-attorney-general-221427919.html)
 - Nov 21 - [Ex-sheriff indicted on murder charge in the slaying of a judge in Kentucky](https://www.yahoo.com/news/ex-sheriff-indicted-murder-charge-215942378.html)
-- Nov 21 - [Gun Ownership Is Rising Among A New Group, Poll Shows](https://www.yahoo.com/news/gun-ownership-rising-among-group-213056723.html)
-- Nov 21 - [Putin touts Russia's new missile and delivers a menacing warning to NATO](https://www.yahoo.com/news/putin-touts-russias-missile-delivers-203211505.html)
-- Nov 21 - [Rachel Maddow Takes Pay Cut With MSNBC’s Future in Jeopardy](https://www.yahoo.com/news/rachel-maddow-takes-pay-cut-203103909.html)
+- Nov 21 - [Director of Arkansas Game and Fish Commission tenders resignation to devote more time to family](https://www.yahoo.com/news/director-arkansas-game-fish-commission-201935158.html)
+- Nov 21 - [Everything we know about the crash that killed 2 PBSO deputies, critically wounded a third](https://www.yahoo.com/news/everything-know-crash-killed-2-200603829.html)
 <!-- feed end -->
 
 ### Onstream
