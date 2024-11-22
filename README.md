@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 22 - [Texas Supreme Court overturns ruling that state Attorney General Ken Paxton testify in lawsuit](https://www.yahoo.com/news/texas-supreme-court-overturns-ruling-204025170.html)
-- Nov 22 - [LIVE: Sentencing hearing underway for drunken driver who killed 4 Waupaca County siblings](https://www.yahoo.com/news/live-sentencing-hearing-underway-drunken-202707386.html)
+- Nov 22 - [School district defends decision to punish parents for wearing pink 'XX' wristbands](https://www.yahoo.com/news/school-district-defends-decision-punish-194801996.html)
+- Nov 22 - [Apple Is Rolling Out a Feature that Could Change the Way You Use Your iPhone Forever](https://www.yahoo.com/tech/apple-rolling-feature-could-change-193749458.html)
 - Nov 22 - [EU, China close to agreement over EV import tariffs, leading MEP says](https://finance.yahoo.com/news/eu-china-close-agreement-over-193648064.html)
 - Nov 22 - [Plastic surgeon turned patients’ noses into ‘potatoes’](https://www.yahoo.com/news/plastic-surgeon-turned-patients-noses-173235482.html)
-- Nov 22 - [Target apologizes after firing employee for handwriting ‘trust in Jesus’ on nametag](https://www.yahoo.com/news/target-apologizes-firing-employee-handwriting-173149861.html)
 <!-- feed end -->
 
 ### Onstream
