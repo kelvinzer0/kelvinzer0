@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 22 - [Iconic Boise restaurant could be torn down on State Street, rebuilt, in name of progress](https://www.yahoo.com/news/iconic-boise-restaurant-could-torn-000520394.html)
 - Nov 21 - [St. Petersburg council rejects immediate repair to Rays' ballpark roof after first giving approval](https://www.yahoo.com/news/st-petersburg-council-approves-23m-221831092.html)
 - Nov 21 - [Ex-sheriff indicted on murder charge in the slaying of a judge in Kentucky](https://www.yahoo.com/news/ex-sheriff-indicted-murder-charge-215942378.html)
+- Nov 21 - [What’s next for Matt Gaetz: 5 possibilities](https://www.yahoo.com/news/next-matt-gaetz-5-possibilities-213213001.html)
 - Nov 21 - [Everything we know about the crash that killed 2 PBSO deputies, critically wounded a third](https://www.yahoo.com/news/everything-know-crash-killed-2-200603829.html)
-- Nov 21 - [Here’s how much rain Southern California could see this weekend](https://www.yahoo.com/news/much-rain-southern-california-could-193204817.html)
-- Nov 21 - [Pathologist disputes finding that Marine veteran's chokehold caused subway rider's death](https://www.yahoo.com/news/pathologist-disputes-finding-marine-veterans-182850631.html)
 <!-- feed end -->
 
 ### Onstream
