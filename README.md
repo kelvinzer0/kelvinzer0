@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Black Friday steal alert: This 'feather-light' MacBook Air just dropped to $749](https://www.yahoo.com/tech/black-friday-steal-alert-this-feather-light-macbook-air-just-dropped-to-749-190959175.html)
+- Nov 22 - [Justin Welby has highlighted the case to divorce church from state](https://www.yahoo.com/news/justin-welby-highlighted-case-divorce-192108292.html)
+- Nov 22 - [Plastic surgeon turned patients’ noses into ‘potatoes’](https://www.yahoo.com/news/plastic-surgeon-turned-patients-noses-173235482.html)
+- Nov 22 - [BREAKING: Judge cancels sentencing in Trump hush money case](https://www.yahoo.com/news/breaking-judge-cancels-sentencing-trump-172218273.html)
 - Nov 22 - [House Passes $196 Billion Social Security Bill: Will Repealing Pension Reductions Shorten The Program's Lifespan?](https://finance.yahoo.com/news/house-passes-196-billion-social-161533489.html)
 - Nov 22 - [Bodycam footage shows middle school meeting that ended up with parents arrested](https://www.yahoo.com/news/bodycam-footage-shows-middle-school-153737166.html)
-- Nov 22 - [Apple iPhone 16 vs. 16 Plus vs. 16 Pro vs. 16 Pro Max: Here's How to Choose](https://www.yahoo.com/tech/apple-iphone-16-vs-16-135508976.html)
-- Nov 22 - [German auto supplier Bosch to cut 5,500 jobs in further sign of auto industry woes](https://finance.yahoo.com/news/german-auto-supplier-bosch-cut-152504404.html)
 <!-- feed end -->
 
 ### Onstream
