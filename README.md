@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 22 - [Xi was unusually frank in spelling out China's 4 'red lines' for the US, a clear warning for Trump's China hawks](https://www.yahoo.com/news/xi-unusually-frank-spelling-chinas-021806640.html)
+- Nov 22 - [Iconic Boise restaurant could be torn down on State Street, rebuilt, in name of progress](https://www.yahoo.com/news/iconic-boise-restaurant-could-torn-000520394.html)
 - Nov 21 - [St. Petersburg council rejects immediate repair to Rays' ballpark roof after first giving approval](https://www.yahoo.com/news/st-petersburg-council-approves-23m-221831092.html)
-- Nov 21 - [He Wasn’t Qualified to Be Attorney General. He’s Even Less Qualified for the Next Job Trump Wants Him In. He Does Have a History of Scams.](https://www.yahoo.com/news/wasn-t-qualified-attorney-general-221427919.html)
-- Nov 21 - [Hy-Vee security officers 'wearing a different look'](https://www.yahoo.com/news/hy-vee-security-officers-wearing-221135230.html)
+- Nov 21 - [Report: Jax Taylor and Brittany Cartwright Took Out $2.2 Million Mortgage After His $1 Million Tax Lien](https://www.yahoo.com/entertainment/report-jax-taylor-brittany-cartwright-215957566.html)
 - Nov 21 - [Ex-sheriff indicted on murder charge in the slaying of a judge in Kentucky](https://www.yahoo.com/news/ex-sheriff-indicted-murder-charge-215942378.html)
-- Nov 21 - [Putin touts Russia's new missile and delivers a menacing warning to NATO](https://www.yahoo.com/news/putin-touts-russias-missile-delivers-203211505.html)
 <!-- feed end -->
 
 ### Onstream
