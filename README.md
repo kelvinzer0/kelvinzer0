@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 22 - [Over 900 mobile home owners in Sweetwater, Florida handed move-out notices amid plans to transform park](https://finance.yahoo.com/news/over-900-mobile-home-owners-114200967.html)
+- Nov 22 - [Medicare premiums rise for 2025, nicking retirees' Social Security checks](https://finance.yahoo.com/news/medicare-premiums-rise-for-2025-nicking-retirees-social-security-checks-110009345.html)
 - Nov 22 - [Sixth person dies after suspected mass drink-spiking in Laos](https://www.yahoo.com/news/sixth-person-dies-suspected-mass-091308055.html)
-- Nov 22 - [6 drug traffickers sentenced to federal prison for Rome narcotics conspiracy, one still on the run](https://www.yahoo.com/news/6-drug-traffickers-sentenced-federal-101258866.html)
-- Nov 22 - [University of the Pacific to open small business center with $1M boost from San Joaquin County](https://finance.yahoo.com/news/university-pacific-open-small-business-101223649.html)
-- Nov 22 - [Alexandria Ocasio-Cortez Has Laugh-Out-Loud Response To Marjorie Taylor Greene’s New Gig](https://www.yahoo.com/news/alexandria-ocasio-cortez-laugh-loud-075952547.html)
-- Nov 22 - [Texas governor orders state agencies to sell China assets](https://finance.yahoo.com/news/texas-governor-orders-state-agencies-073554012.html)
+- Nov 22 - [China is expanding visa-free entry to more countries in bid to boost economy](https://www.yahoo.com/news/china-expanding-visa-free-entry-101214668.html)
+- Nov 22 - [Bob Woodward’s Laugh At CNN Question About Donald Trump Says It All](https://www.yahoo.com/news/bob-woodward-laugh-cnn-donald-084913495.html)
 <!-- feed end -->
 
 ### Onstream
