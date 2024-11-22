@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 22 - [House Passes $196 Billion Social Security Bill: Will Repealing Pension Reductions Shorten The Program's Lifespan?](https://finance.yahoo.com/news/house-passes-196-billion-social-161533489.html)
+- Nov 22 - [Russian forces test flying flamethrower to target Ukrainian firedrones](https://www.yahoo.com/news/russian-forces-test-flying-flamethrower-152825148.html)
 - Nov 22 - [How much is Shad Khan paying for docking his Kismet yacht in downtown Jacksonville](https://www.yahoo.com/news/much-shad-khan-paying-docking-151022491.html)
-- Nov 22 - [PlayStation Early Black Friday Sale Brings Huge Deals On Games And Gear](https://www.yahoo.com/tech/playstation-early-black-friday-sale-112953019.html)
-- Nov 22 - [Ukraine says new Russian missile reached speed of over 13,000 kph](https://www.yahoo.com/news/ukraine-says-missile-fired-russia-110232868.html)
-- Nov 22 - [Medicare premiums rise for 2025, nicking retirees' Social Security checks](https://finance.yahoo.com/news/medicare-premiums-rise-for-2025-nicking-retirees-social-security-checks-110009345.html)
+- Nov 22 - [A Norwegian student has been arrested on charges of spying on the US for Russia](https://www.yahoo.com/news/norwegian-student-arrested-charges-spying-150356890.html)
+- Nov 22 - [Road Rager Who Killed Porsche Club Members Pleads Guilty](https://autos.yahoo.com/road-rager-killed-porsche-club-130000002.html)
 <!-- feed end -->
 
 ### Onstream
