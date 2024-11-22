@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 22 - [Alexandria Ocasio-Cortez Has Laugh-Out-Loud Response To Marjorie Taylor Greene’s New Gig](https://www.yahoo.com/news/alexandria-ocasio-cortez-laugh-loud-075952547.html)
+- Nov 22 - [Texas governor orders state agencies to sell China assets](https://finance.yahoo.com/news/texas-governor-orders-state-agencies-073554012.html)
 - Nov 21 - [St. Petersburg council rejects immediate repair to Rays' ballpark roof after first giving approval](https://www.yahoo.com/news/st-petersburg-council-approves-23m-221831092.html)
-- Nov 21 - [He Wasn’t Qualified to Be Attorney General. He’s Even Less Qualified for the Next Job Trump Wants Him In. He Does Have a History of Scams.](https://www.yahoo.com/news/wasn-t-qualified-attorney-general-221427919.html)
 - Nov 21 - [Hy-Vee security officers 'wearing a different look'](https://www.yahoo.com/news/hy-vee-security-officers-wearing-221135230.html)
-- Nov 21 - [Timeline: Here's when round 2 of atmospheric river will hit Bay Area](https://www.yahoo.com/news/timeline-heres-round-2-atmospheric-200219516.html)
-- Nov 21 - [Here’s how much rain Southern California could see this weekend](https://www.yahoo.com/news/much-rain-southern-california-could-193204817.html)
+- Nov 21 - [Report: Jax Taylor and Brittany Cartwright Took Out $2.2 Million Mortgage After His $1 Million Tax Lien](https://www.yahoo.com/entertainment/report-jax-taylor-brittany-cartwright-215957566.html)
 <!-- feed end -->
 
 ### Onstream
