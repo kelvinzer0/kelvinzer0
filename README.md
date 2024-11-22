@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Over 900 mobile home owners in Sweetwater, Florida handed move-out notices amid plans to transform park](https://finance.yahoo.com/news/over-900-mobile-home-owners-114200967.html)
+- Nov 22 - [Gatwick Airport latest: Police call in bomb squad after terminal evacuated as passengers face huge delays](https://www.yahoo.com/lifestyle/gatwick-airport-latest-terminal-evacuated-112048977.html)
+- Nov 22 - [Record Early Season Snow Seen in Switzerland](https://www.yahoo.com/news/record-early-season-snow-seen-120917892.html)
 - Nov 22 - [Medicare premiums rise for 2025, nicking retirees' Social Security checks](https://finance.yahoo.com/news/medicare-premiums-rise-for-2025-nicking-retirees-social-security-checks-110009345.html)
 - Nov 22 - [Sixth person dies after suspected mass drink-spiking in Laos](https://www.yahoo.com/news/sixth-person-dies-suspected-mass-091308055.html)
 - Nov 22 - [China is expanding visa-free entry to more countries in bid to boost economy](https://www.yahoo.com/news/china-expanding-visa-free-entry-101214668.html)
-- Nov 22 - [Bob Woodward’s Laugh At CNN Question About Donald Trump Says It All](https://www.yahoo.com/news/bob-woodward-laugh-cnn-donald-084913495.html)
 <!-- feed end -->
 
 ### Onstream
