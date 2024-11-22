@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Italy's same-sex civil unions rise to six-year high](https://www.yahoo.com/news/italys-same-sex-civil-unions-145139087.html)
-- Nov 22 - [Madison's one-of-a-kind Whataburger is delayed again. When will the Mississippi spot open?](https://www.yahoo.com/news/madisons-one-kind-whataburger-delayed-134613302.html)
-- Nov 22 - [Road Rager Who Killed Porsche Club Members Pleads Guilty](https://autos.yahoo.com/road-rager-killed-porsche-club-130000002.html)
+- Nov 22 - [A Norwegian student has been arrested on charges of spying on the US for Russia](https://www.yahoo.com/news/norwegian-student-arrested-charges-spying-150356890.html)
+- Nov 22 - [Homeless encampments being moved ahead of multipurpose stadium construction](https://www.yahoo.com/news/homeless-encampments-being-moved-ahead-122000892.html)
+- Nov 22 - ['This is terrible': Video of McDonald's employee in Peoria sparks controversy](https://www.yahoo.com/news/terrible-video-mcdonalds-employee-west-121348384.html)
+- Nov 22 - [What You Should Stop Doing By Age 65 to Prevent Alzheimer's, According to Neurologists](https://www.yahoo.com/lifestyle/stop-doing-age-65-prevent-112500948.html)
 - Nov 22 - [Ukraine says new Russian missile reached speed of over 13,000 kph](https://www.yahoo.com/news/ukraine-says-missile-fired-russia-110232868.html)
-- Nov 22 - [Medicare premiums rise for 2025, nicking retirees' Social Security checks](https://finance.yahoo.com/news/medicare-premiums-rise-for-2025-nicking-retirees-social-security-checks-110009345.html)
 <!-- feed end -->
 
 ### Onstream
