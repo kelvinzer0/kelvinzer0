@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [Mystery drones seen over three US air bases in UK](https://www.yahoo.com/news/mystery-drones-seen-over-three-213639735.html)
+- Nov 23 - [California vineyard is flooded after major storm sweeps across Pacific Northwest](https://www.yahoo.com/news/california-vineyard-flooded-major-storm-205949477.html)
+- Nov 23 - [Officials warn public against visiting Tryon Creek after sewage overflow in Southwest Portland](https://www.yahoo.com/news/officials-warn-public-against-visiting-204224275.html)
 - Nov 23 - [Earth Has Tilted 31.5 Inches. That Shouldn't Happen.](https://www.yahoo.com/news/earth-tilted-31-5-inches-164500379.html)
 - Nov 23 - [Pickup truck smashes into Tesla Cybertruck on Orange County freeway off-ramp](https://www.yahoo.com/news/pickup-truck-smashes-tesla-cybertruck-161451790.html)
-- Nov 23 - [Afraid of losing the US-Canada trade pact, Mexico alters its laws and removes Chinese parts](https://www.yahoo.com/news/afraid-losing-us-canada-trade-140147926.html)
-- Nov 23 - [Amber alert has been cancelled, children have been safely found](https://www.yahoo.com/news/amber-alert-activated-parental-kidnapping-024637456.html)
-- Nov 23 - [I just got a six-figure check that is too large for mobile deposit and my bank is online-only — what can I do?](https://finance.yahoo.com/news/just-got-six-figure-check-131100216.html)
 <!-- feed end -->
 
 ### Onstream
