@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 23 - [N.H. man critically burned at work remains in ICU as community lends support](https://www.yahoo.com/news/n-h-man-critically-burned-012206410.html)
-- Nov 23 - [1 arrested after Lubbock hit-and-run crash that killed Randall High basketball standout](https://www.yahoo.com/news/1-arrested-lubbock-hit-run-000424405.html)
+- Nov 23 - [Russia's economy is so driven by the war in Ukraine that it cannot afford to either win or lose, economist says](https://finance.yahoo.com/news/russias-economy-driven-war-ukraine-012303820.html)
 - Nov 22 - [US judge rejects SEC bid to sanction Elon Musk](https://www.yahoo.com/tech/us-judge-rejects-sec-request-235253575.html)
+- Nov 22 - [Man loses 300 lbs by walking and cutting this 1 food from his diet](https://www.yahoo.com/lifestyle/man-loses-300-lbs-walking-234433302.html)
 - Nov 22 - ['I have no money': Thousands of Americans see their savings vanish in Synapse fintech crisis](https://finance.yahoo.com/news/no-money-thousands-americans-see-223556135.html)
-- Nov 22 - [Sixth person dies after suspected mass drink-spiking in Laos](https://www.yahoo.com/news/sixth-person-dies-suspected-mass-091308055.html)
+- Nov 22 - [Texas Supreme Court overturns ruling that state Attorney General Ken Paxton testify in lawsuit](https://www.yahoo.com/news/texas-supreme-court-overturns-ruling-204025170.html)
 <!-- feed end -->
 
 ### Onstream
