@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [What are the healthiest nuts for weight loss? The No. 1 pick, according to a dietitian](https://www.yahoo.com/lifestyle/healthiest-nuts-weight-loss-no-190000500.html)
 - Nov 23 - [1,200 baby boomers told us what they regret about investing for retirement](https://finance.yahoo.com/news/1-200-baby-boomers-told-171001657.html)
-- Nov 23 - [After backlash, MSNBC changes headline for online piece claiming, ‘Laken Riley's killer never stood a chance’](https://www.yahoo.com/news/backlash-msnbc-changes-headline-online-165003508.html)
-- Nov 23 - [Amber alert has been cancelled, children have been safely found](https://www.yahoo.com/news/amber-alert-activated-parental-kidnapping-024637456.html)
-- Nov 23 - [I just got a six-figure check that is too large for mobile deposit and my bank is online-only — what can I do?](https://finance.yahoo.com/news/just-got-six-figure-check-131100216.html)
-- Nov 23 - [It's Official: Scientists Have Confirmed What's Inside The Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-113044834.html)
+- Nov 23 - [Earth Has Tilted 31.5 Inches. That Shouldn't Happen.](https://www.yahoo.com/news/earth-tilted-31-5-inches-164500379.html)
+- Nov 23 - [Pickup truck smashes into Tesla Cybertruck on Orange County freeway off-ramp](https://www.yahoo.com/news/pickup-truck-smashes-tesla-cybertruck-161451790.html)
+- Nov 23 - [Afraid of losing the US-Canada trade pact, Mexico alters its laws and removes Chinese parts](https://www.yahoo.com/news/afraid-losing-us-canada-trade-140147926.html)
 <!-- feed end -->
 
 ### Onstream
