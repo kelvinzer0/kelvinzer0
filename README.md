@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 23 - [Trump trade war would be catastrophic for EU, officials warn](https://finance.yahoo.com/news/trump-trade-war-catastrophic-eu-093000479.html)
-- Nov 23 - [Philippine VP says she would have Marcos assassinated if she is killed](https://www.yahoo.com/news/philippine-vp-says-she-marcos-053956225.html)
-- Nov 23 - [Prince George’s County Police Department officer fired after viral video shows him kissing woman in uniform, according to Washington Post](https://www.yahoo.com/news/prince-george-county-police-department-035441406.html)
+- Nov 23 - [Philippine VP says she would have Marcos assassinated if she were killed](https://www.yahoo.com/news/philippine-vp-says-she-marcos-053956225.html)
 - Nov 23 - [Russia's economy is so driven by the war in Ukraine that it cannot afford to either win or lose, economist says](https://finance.yahoo.com/news/russias-economy-driven-war-ukraine-012303820.html)
 - Nov 22 - [US judge rejects SEC bid to sanction Elon Musk](https://www.yahoo.com/tech/us-judge-rejects-sec-request-235253575.html)
+- Nov 22 - [Pregnant student allegedly told by Georgetown Law she must take exam days after giving birth](https://www.yahoo.com/news/pregnant-student-allegedly-told-georgetown-234523313.html)
 <!-- feed end -->
 
 ### Onstream
