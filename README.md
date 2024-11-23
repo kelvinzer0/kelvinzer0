@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [Police carry out controlled explosion after suspect package probed at Euston Station](https://www.yahoo.com/news/police-probe-suspect-package-euston-124753838.html)
 - Nov 23 - [I just got a six-figure check that is too large for mobile deposit and my bank is online-only — what can I do?](https://finance.yahoo.com/news/just-got-six-figure-check-131100216.html)
-- Nov 23 - [A Few Years From Now, You'll Wish You'd Bought This Undervalued Stock](https://finance.yahoo.com/news/few-years-now-youll-wish-114800002.html)
 - Nov 23 - [My divorce took a turn when my spouse demanded half the value of our apartment — the problem was we didn’t own it](https://finance.yahoo.com/news/divorce-took-turn-spouse-demanded-114400870.html)
-- Nov 23 - [Scientists achieve major milestone with levitating, virtually limitless energy device: 'A feat in and of itself'](https://www.yahoo.com/tech/scientists-achieve-major-milestone-levitating-101539040.html)
+- Nov 23 - [Honda's first electric SUV is already a top-selling EV in the US — here's what's driving interest](https://autos.yahoo.com/hondas-first-electric-suv-already-103040702.html)
 - Nov 23 - [Philippine VP says she would have Marcos assassinated if she were killed](https://www.yahoo.com/news/philippine-vp-says-she-marcos-053956225.html)
 <!-- feed end -->
 
