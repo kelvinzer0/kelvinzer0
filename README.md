@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 23 - [Vertiv Holdings Co. (VRT) Leverages AI for Future Growth: Key Investor Insights](https://finance.yahoo.com/news/vertiv-holdings-co-vrt-leverages-141553511.html)
-- Nov 23 - [Afraid of losing the US-Canada trade pact, Mexico alters its laws and removes Chinese parts](https://www.yahoo.com/news/afraid-losing-us-canada-trade-140147926.html)
-- Nov 23 - [I just got a six-figure check that is too large for mobile deposit and my bank is online-only — what can I do?](https://finance.yahoo.com/news/just-got-six-figure-check-131100216.html)
+- Nov 23 - [Why Wall Street Is Hiking CrowdStrike Price Targets Ahead Of Earnings Report](https://www.investors.com/news/technology/crowdstrike-stock-crwd-price-target-hikes-earnings/?src=A00220&yptr=yahoo)
+- Nov 23 - [Amber alert has been cancelled, children have been safely found](https://www.yahoo.com/news/amber-alert-activated-parental-kidnapping-024637456.html)
 - Nov 23 - [It's Official: Scientists Have Confirmed What's Inside The Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-113044834.html)
 - Nov 23 - [Philippines boosts security after VP's assassination threat against president](https://www.yahoo.com/news/philippine-vp-says-she-marcos-053956225.html)
+- Nov 23 - [Susan Smith furious at parole denial, 30 years after killing kids: Insider | Banfield](https://www.yahoo.com/news/susan-smith-furious-parole-denial-042950908.html)
 <!-- feed end -->
 
 ### Onstream
