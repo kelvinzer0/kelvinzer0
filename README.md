@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Nov 23 - [Philippine VP says she would have Marcos assassinated if she were killed](https://www.yahoo.com/news/philippine-vp-says-she-marcos-053956225.html)
 - Nov 23 - [Susan Smith furious at parole denial, 30 years after killing kids: Insider | Banfield](https://www.yahoo.com/news/susan-smith-furious-parole-denial-042950908.html)
 - Nov 23 - [Prince George’s County Police Department officer fired after viral video shows him kissing woman in uniform, according to Washington Post](https://www.yahoo.com/news/prince-george-county-police-department-035441406.html)
-- Nov 23 - [Russia's economy is so driven by the war in Ukraine that it cannot afford to either win or lose, economist says](https://finance.yahoo.com/news/russias-economy-driven-war-ukraine-012303820.html)
 - Nov 22 - [US judge rejects SEC bid to sanction Elon Musk](https://www.yahoo.com/tech/us-judge-rejects-sec-request-235253575.html)
+- Nov 22 - [Man loses 300 lbs by walking and cutting this 1 food from his diet](https://www.yahoo.com/lifestyle/man-loses-300-lbs-walking-234433302.html)
 <!-- feed end -->
 
 ### Onstream
