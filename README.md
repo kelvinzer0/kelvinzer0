@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 23 - [Three kids vanished in Utah. Two years later they were found in a desert town and two relatives were arrested](https://www.yahoo.com/news/three-kids-vanished-utah-two-180601480.html)
-- Nov 23 - [Dell Tech Inc (DELL) Positioned for Earnings Upside: Evercore ISI Highlights AI and ISG Strength](https://finance.yahoo.com/news/dell-tech-inc-dell-positioned-144615052.html)
-- Nov 23 - [Afraid of losing the US-Canada trade pact, Mexico alters its laws and removes Chinese parts](https://www.yahoo.com/news/afraid-losing-us-canada-trade-140147926.html)
+- Nov 23 - [1,200 baby boomers told us what they regret about investing for retirement](https://finance.yahoo.com/news/1-200-baby-boomers-told-171001657.html)
+- Nov 23 - [After backlash, MSNBC changes headline for online piece claiming, ‘Laken Riley's killer never stood a chance’](https://www.yahoo.com/news/backlash-msnbc-changes-headline-online-165003508.html)
 - Nov 23 - [Amber alert has been cancelled, children have been safely found](https://www.yahoo.com/news/amber-alert-activated-parental-kidnapping-024637456.html)
-- Nov 23 - [My divorce took a turn when my spouse demanded half the value of our apartment — the problem was we didn’t own it](https://finance.yahoo.com/news/divorce-took-turn-spouse-demanded-114400870.html)
+- Nov 23 - [I just got a six-figure check that is too large for mobile deposit and my bank is online-only — what can I do?](https://finance.yahoo.com/news/just-got-six-figure-check-131100216.html)
+- Nov 23 - [It's Official: Scientists Have Confirmed What's Inside The Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-113044834.html)
 <!-- feed end -->
 
 ### Onstream
