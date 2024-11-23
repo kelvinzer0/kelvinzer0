@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 22 - ['I have no money': Thousands of Americans see their savings vanish in Synapse fintech crisis](https://finance.yahoo.com/news/no-money-thousands-americans-see-223556135.html)
+- Nov 22 - [Sixth person dies after suspected mass drink-spiking in Laos](https://www.yahoo.com/news/sixth-person-dies-suspected-mass-091308055.html)
 - Nov 22 - [Texas Supreme Court overturns ruling that state Attorney General Ken Paxton testify in lawsuit](https://www.yahoo.com/news/texas-supreme-court-overturns-ruling-204025170.html)
 - Nov 22 - [School district defends decision to punish parents for wearing pink 'XX' wristbands](https://www.yahoo.com/news/school-district-defends-decision-punish-194801996.html)
 - Nov 22 - [Apple Is Rolling Out a Feature that Could Change the Way You Use Your iPhone Forever](https://www.yahoo.com/tech/apple-rolling-feature-could-change-193749458.html)
-- Nov 22 - [EU, China close to agreement over EV import tariffs, leading MEP says](https://finance.yahoo.com/news/eu-china-close-agreement-over-193648064.html)
-- Nov 22 - [Plastic surgeon turned patients’ noses into ‘potatoes’](https://www.yahoo.com/news/plastic-surgeon-turned-patients-noses-173235482.html)
 <!-- feed end -->
 
 ### Onstream
