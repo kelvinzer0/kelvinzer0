@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [Susan Smith furious at parole denial, 30 years after killing kids: Insider | Banfield](https://www.yahoo.com/news/susan-smith-furious-parole-denial-042950908.html)
 - Nov 22 - [US judge rejects SEC bid to sanction Elon Musk](https://www.yahoo.com/tech/us-judge-rejects-sec-request-235253575.html)
+- Nov 22 - [Man loses 300 lbs by walking and cutting this 1 food from his diet](https://www.yahoo.com/lifestyle/man-loses-300-lbs-walking-234433302.html)
+- Nov 22 - [Multiple crashes on Interstate 430 bridge bringing traffic to a crawl](https://www.yahoo.com/news/multiple-crashes-interstate-430-bridge-225214590.html)
 - Nov 22 - ['I have no money': Thousands of Americans see their savings vanish in Synapse fintech crisis](https://finance.yahoo.com/news/no-money-thousands-americans-see-223556135.html)
-- Nov 22 - [Conor McGregor civil case: Masked men invaded victim's home, stabbed partner before trial, says legal team](https://sports.yahoo.com/conor-mcgregor-civil-case-masked-men-invaded-victims-home-stabbed-partner-before-trial-says-legal-team-213851350.html)
-- Nov 22 - [Texas Supreme Court overturns ruling that state Attorney General Ken Paxton testify in lawsuit](https://www.yahoo.com/news/texas-supreme-court-overturns-ruling-204025170.html)
-- Nov 22 - [School district defends decision to punish parents for wearing pink 'XX' wristbands](https://www.yahoo.com/news/school-district-defends-decision-punish-194801996.html)
 <!-- feed end -->
 
 ### Onstream
