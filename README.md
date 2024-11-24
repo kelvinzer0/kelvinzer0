@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [DNA confirms man who had passed polygraph test as suspected killer in 1979 cold case](https://www.yahoo.com/news/dna-confirms-man-had-passed-150047835.html)
+- Nov 24 - [Japan holds Sado mines memorial despite South Korean boycott](https://www.yahoo.com/news/japan-holds-sado-mines-memorial-172040936.html)
+- Nov 24 - [I was diagnosed with inoperable colon cancer, but eight years on I’m cancer free](https://www.yahoo.com/lifestyle/diagnosed-inoperable-colon-cancer-eight-160000350.html)
+- Nov 24 - [New Study Shows This Nightly Habit May Be the Key to Dementia Prevention](https://www.yahoo.com/lifestyle/study-shows-nightly-habit-may-152500972.html)
+- Nov 24 - [‘Entire Democratic Party bears responsibility’ for Kamala Harris’ loss, says Adam Schiff](https://www.yahoo.com/news/entire-democratic-party-bears-responsibility-150038015.html)
 - Nov 24 - [Opinion | There's a reason so many Americans trust RFK Jr. and Dr. Oz](https://www.yahoo.com/news/opinion-rfk-jr-dr-oz-115959705.html)
-- Nov 24 - [Hezbollah fires about 250 rockets and other projectiles into Israel, wounding at least 7](https://www.yahoo.com/news/israeli-strike-lebanese-army-center-113230312.html)
-- Nov 24 - [Eat avocado to lower cholesterol, put on antiperspirant before bed and 11 more tips to have a great week](https://www.yahoo.com/lifestyle/eat-avocado-to-lower-cholesterol-put-on-antiperspirant-before-bed-and-11-more-tips-to-have-a-great-week-110011657.html)
-- Nov 24 - [Israel says rabbi who went missing in the UAE was killed](https://www.yahoo.com/news/israel-says-body-rabbi-went-071706714.html)
 <!-- feed end -->
 
 ### Onstream
