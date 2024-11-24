@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [16-year-old Ohio homicide suspect hospitalized after being shot by police](https://www.yahoo.com/news/16-old-ohio-homicide-suspect-125514009.html)
+- Nov 24 - [Hezbollah launches 150 rockets at Israel, leaving several injured](https://www.yahoo.com/news/hezbollah-launches-150-rockets-israel-132719870.html)
+- Nov 24 - [Jamie Dimon says the next generation of employees will work 3.5 days a week and live to 100 years old](https://finance.yahoo.com/news/jamie-dimon-says-next-generation-120500753.html)
+- Nov 24 - [China EV industry hits new peak in Google Trends, surpasses 10 million units](https://www.yahoo.com/news/china-ev-industry-hits-peak-112940580.html)
 - Nov 24 - [Moscow offers debt forgiveness to new recruits and AP sees wreckage of a new Russian missile](https://www.yahoo.com/news/moscow-offers-debt-forgiveness-recruits-112748757.html)
-- Nov 24 - [Elon Musk and Neil deGrasse Tyson Exchange Barbs on Mars Colonization](https://www.yahoo.com/entertainment/elon-musk-neil-degrasse-tyson-004505121.html)
-- Nov 24 - [Dartmouth sorority, 2 fraternity members charged in death of student found in river](https://www.yahoo.com/news/dartmouth-sorority-2-fraternity-members-003055111.html)
-- Nov 23 - [One Of The Unhealthiest Beef Stock Brands Is Already In Your Pantry](https://www.yahoo.com/lifestyle/one-unhealthiest-beef-stock-brands-211520386.html)
+- Nov 24 - [Israel says rabbi who went missing in the UAE was killed](https://www.yahoo.com/news/israel-says-body-rabbi-went-071706714.html)
 <!-- feed end -->
 
 ### Onstream
