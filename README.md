@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [AP Top Stories for November 24 P](https://www.yahoo.com/news/ap-top-stories-november-24-210226781.html)
-- Nov 24 - [‘It’s Illegal’: Rand Paul Breaks With Trump on Two Key Campaign Promises](https://www.yahoo.com/news/illegal-rand-paul-breaks-trump-203704061.html)
+- Nov 24 - [Buried: Why the Great Lakes produce some of the world’s heaviest snow](https://www.yahoo.com/news/buried-why-great-lakes-produce-014312587.html)
+- Nov 24 - [Israel investigating after Hamas releases photos purportedly showing body of female hostage](https://www.yahoo.com/news/israel-investigating-hamas-releases-photos-210931336.html)
+- Nov 24 - [‘It’s Illegal’: Rand Paul Breaks With Trump on Two Key Administration Promises](https://www.yahoo.com/news/illegal-rand-paul-breaks-trump-203704061.html)
 - Nov 24 - [A pregnant law school student asked to move her exams away from near her due date and was denied until her friends stepped in](https://www.yahoo.com/news/pregnant-law-school-student-asked-194837309.html)
-- Nov 24 - [New details emerge on BioLab fire that forced thousands to shelter outside Atlanta](https://www.yahoo.com/news/details-emerge-biolab-fire-forced-185857409.html)
 - Nov 24 - [Republicans lash out at Democrats' claims that Trump intelligence pick Gabbard is 'compromised'](https://www.yahoo.com/news/republicans-lash-democrats-claims-trump-183905041.html)
 <!-- feed end -->
 
