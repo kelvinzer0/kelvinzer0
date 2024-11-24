@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 23 - [One Of The Unhealthiest Beef Stock Brands Is Already In Your Pantry](https://www.yahoo.com/lifestyle/one-unhealthiest-beef-stock-brands-211520386.html)
+- Nov 23 - [Man Hospitalized For Weeks After Girlfriend Allegedly Lured Him To Romantic Spot And Shot Him](https://www.yahoo.com/news/man-hospitalized-weeks-girlfriend-allegedly-234118140.html)
 - Nov 23 - [California vineyard is flooded after major storm sweeps across Pacific Northwest](https://www.yahoo.com/news/california-vineyard-flooded-major-storm-205949477.html)
-- Nov 23 - [836lb ‘cursed’ emerald worth $1bn must return to Brazil, US judge rules](https://www.yahoo.com/news/836-pound-cursed-emerald-worth-023128337.html)
 - Nov 23 - [Earth Has Tilted 31.5 Inches. That Shouldn't Happen.](https://www.yahoo.com/news/earth-tilted-31-5-inches-164500379.html)
 - Nov 23 - [Pickup truck smashes into Tesla Cybertruck on Orange County freeway off-ramp](https://www.yahoo.com/news/pickup-truck-smashes-tesla-cybertruck-161451790.html)
+- Nov 23 - [Canada's top military commander calls out US senator for questioning a woman's role in combat](https://www.yahoo.com/news/canadas-top-military-commander-calls-154450530.html)
 <!-- feed end -->
 
 ### Onstream
