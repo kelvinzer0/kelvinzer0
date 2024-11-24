@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Hezbollah launches 150 rockets at Israel, leaving several injured](https://www.yahoo.com/news/hezbollah-launches-150-rockets-israel-132719870.html)
-- Nov 24 - [Jamie Dimon says the next generation of employees will work 3.5 days a week and live to 100 years old](https://finance.yahoo.com/news/jamie-dimon-says-next-generation-120500753.html)
-- Nov 24 - [China EV industry hits new peak in Google Trends, surpasses 10 million units](https://www.yahoo.com/news/china-ev-industry-hits-peak-112940580.html)
+- Nov 24 - [Several people injured as Hezbollah launches 165 rockets at Israel](https://www.yahoo.com/news/several-people-injured-hezbollah-launches-151224783.html)
+- Nov 24 - [Hezbollah fires more than 180 rockets and other projectiles into Israel, wounding at least 7](https://www.yahoo.com/news/israeli-strike-lebanese-army-center-113230312.html)
 - Nov 24 - [Moscow offers debt forgiveness to new recruits and AP sees wreckage of a new Russian missile](https://www.yahoo.com/news/moscow-offers-debt-forgiveness-recruits-112748757.html)
-- Nov 24 - [Israel says rabbi who went missing in the UAE was killed](https://www.yahoo.com/news/israel-says-body-rabbi-went-071706714.html)
+- Nov 24 - [Altria Group (NYSE:MO) Could Become A Multi-Bagger](https://finance.yahoo.com/news/altria-group-nyse-mo-could-110011440.html)
+- Nov 24 - [1,200 readers told us what they regret about investing for retirement](https://finance.yahoo.com/news/1-200-baby-boomers-told-171001657.html)
 <!-- feed end -->
 
 ### Onstream
