@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 24 - [Elon Musk and Neil deGrasse Tyson Exchange Barbs on Mars Colonization](https://www.yahoo.com/entertainment/elon-musk-neil-degrasse-tyson-004505121.html)
-- Nov 24 - [Dartmouth sorority, 2 fraternity members charged in death of student found in river](https://www.yahoo.com/news/dartmouth-sorority-2-fraternity-members-003055111.html)
+- Nov 23 - [California vineyard is flooded after major storm sweeps across Pacific Northwest](https://www.yahoo.com/news/california-vineyard-flooded-major-storm-205949477.html)
 - Nov 23 - ['Canada is lost': Trudeau dances night away at Taylor Swift's Eras Tour in Toronto while violent riots rock Montreal](https://www.yahoo.com/news/canada-is-lost-trudeau-dances-night-away-at-taylor-swifts-eras-tour-in-toronto-while-violent-riots-rock-montreal-202341637.html)
 - Nov 23 - [Earth Has Tilted 31.5 Inches. That Shouldn't Happen.](https://www.yahoo.com/news/earth-tilted-31-5-inches-164500379.html)
 - Nov 23 - [Pickup truck smashes into Tesla Cybertruck on Orange County freeway off-ramp](https://www.yahoo.com/news/pickup-truck-smashes-tesla-cybertruck-161451790.html)
