@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Activists form giant sign to 'end plastic' ahead of UN talks](https://www.yahoo.com/news/activists-form-giant-sign-end-125149848.html)
-- Nov 24 - [Two missiles, 27 drones downed over Russia's Kursk, regional governor says](https://www.yahoo.com/news/two-missiles-27-drones-downed-122916657.html)
+- Nov 24 - [16-year-old Ohio homicide suspect hospitalized after being shot by police](https://www.yahoo.com/news/16-old-ohio-homicide-suspect-125514009.html)
 - Nov 24 - [Moscow offers debt forgiveness to new recruits and AP sees wreckage of a new Russian missile](https://www.yahoo.com/news/moscow-offers-debt-forgiveness-recruits-112748757.html)
-- Nov 24 - [Southern California woman arrested, accused of operating brothels disguised as skin care spas](https://www.yahoo.com/news/southern-california-woman-arrested-accused-053509832.html)
 - Nov 24 - [Elon Musk and Neil deGrasse Tyson Exchange Barbs on Mars Colonization](https://www.yahoo.com/entertainment/elon-musk-neil-degrasse-tyson-004505121.html)
+- Nov 24 - [Dartmouth sorority, 2 fraternity members charged in death of student found in river](https://www.yahoo.com/news/dartmouth-sorority-2-fraternity-members-003055111.html)
+- Nov 23 - [One Of The Unhealthiest Beef Stock Brands Is Already In Your Pantry](https://www.yahoo.com/lifestyle/one-unhealthiest-beef-stock-brands-211520386.html)
 <!-- feed end -->
 
 ### Onstream
