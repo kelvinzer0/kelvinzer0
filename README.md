@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 24 - [Elon Musk and Neil deGrasse Tyson Exchange Barbs on Mars Colonization](https://www.yahoo.com/entertainment/elon-musk-neil-degrasse-tyson-004505121.html)
 - Nov 24 - [Dartmouth sorority, 2 fraternity members charged in death of student found in river](https://www.yahoo.com/news/dartmouth-sorority-2-fraternity-members-003055111.html)
-- Nov 23 - [One Of The Unhealthiest Beef Stock Brands Is Already In Your Pantry](https://www.yahoo.com/lifestyle/one-unhealthiest-beef-stock-brands-211520386.html)
-- Nov 23 - [California vineyard is flooded after major storm sweeps across Pacific Northwest](https://www.yahoo.com/news/california-vineyard-flooded-major-storm-205949477.html)
+- Nov 23 - [Body of missing Manitowoc veteran Jason R. Neumann recovered in Lake Michigan](https://www.yahoo.com/news/body-missing-manitowoc-veteran-jason-213250206.html)
 - Nov 23 - [Earth Has Tilted 31.5 Inches. That Shouldn't Happen.](https://www.yahoo.com/news/earth-tilted-31-5-inches-164500379.html)
+- Nov 23 - [Pickup truck smashes into Tesla Cybertruck on Orange County freeway off-ramp](https://www.yahoo.com/news/pickup-truck-smashes-tesla-cybertruck-161451790.html)
 <!-- feed end -->
 
 ### Onstream
