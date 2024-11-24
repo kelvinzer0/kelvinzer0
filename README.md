@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Japan holds Sado mines memorial despite South Korean boycott](https://www.yahoo.com/news/japan-holds-sado-mines-memorial-172040936.html)
-- Nov 24 - [Larry Page, Google Co-Founder, Said He'd Leave His Fortune To Elon Musk Over Charity Because Of His Plans 'To Go To Mars To Back Up Humanity'](https://finance.yahoo.com/news/larry-page-google-co-founder-170017313.html)
-- Nov 24 - [Haitian vigilantes deal major blow to gang leader ‘Barbecue’ in furious battle](https://www.yahoo.com/news/haitian-vigilantes-deal-major-blow-160555012.html)
-- Nov 24 - [New Study Shows This Nightly Habit May Be the Key to Dementia Prevention](https://www.yahoo.com/lifestyle/study-shows-nightly-habit-may-152500972.html)
-- Nov 24 - [‘Entire Democratic Party bears responsibility’ for Kamala Harris’ loss, says Adam Schiff](https://www.yahoo.com/news/entire-democratic-party-bears-responsibility-150038015.html)
+- Nov 24 - [AP Top Stories for November 24 P](https://www.yahoo.com/news/ap-top-stories-november-24-210226781.html)
+- Nov 24 - [‘It’s Illegal’: Rand Paul Breaks With Trump on Two Key Campaign Promises](https://www.yahoo.com/news/illegal-rand-paul-breaks-trump-203704061.html)
+- Nov 24 - [A pregnant law school student asked to move her exams away from near her due date and was denied until her friends stepped in](https://www.yahoo.com/news/pregnant-law-school-student-asked-194837309.html)
+- Nov 24 - [New details emerge on BioLab fire that forced thousands to shelter outside Atlanta](https://www.yahoo.com/news/details-emerge-biolab-fire-forced-185857409.html)
+- Nov 24 - [Republicans lash out at Democrats' claims that Trump intelligence pick Gabbard is 'compromised'](https://www.yahoo.com/news/republicans-lash-democrats-claims-trump-183905041.html)
 <!-- feed end -->
 
 ### Onstream
