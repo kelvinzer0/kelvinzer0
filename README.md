@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 24 - [Japan holds Sado mines memorial despite South Korean boycott](https://www.yahoo.com/news/japan-holds-sado-mines-memorial-172040936.html)
-- Nov 24 - [I was diagnosed with inoperable colon cancer, but eight years on I’m cancer free](https://www.yahoo.com/lifestyle/diagnosed-inoperable-colon-cancer-eight-160000350.html)
+- Nov 24 - [Larry Page, Google Co-Founder, Said He'd Leave His Fortune To Elon Musk Over Charity Because Of His Plans 'To Go To Mars To Back Up Humanity'](https://finance.yahoo.com/news/larry-page-google-co-founder-170017313.html)
+- Nov 24 - [Haitian vigilantes deal major blow to gang leader ‘Barbecue’ in furious battle](https://www.yahoo.com/news/haitian-vigilantes-deal-major-blow-160555012.html)
 - Nov 24 - [New Study Shows This Nightly Habit May Be the Key to Dementia Prevention](https://www.yahoo.com/lifestyle/study-shows-nightly-habit-may-152500972.html)
 - Nov 24 - [‘Entire Democratic Party bears responsibility’ for Kamala Harris’ loss, says Adam Schiff](https://www.yahoo.com/news/entire-democratic-party-bears-responsibility-150038015.html)
-- Nov 24 - [Opinion | There's a reason so many Americans trust RFK Jr. and Dr. Oz](https://www.yahoo.com/news/opinion-rfk-jr-dr-oz-115959705.html)
 <!-- feed end -->
 
 ### Onstream
