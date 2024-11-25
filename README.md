@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Klitschko accuses Joe Rogan of ‘spewing Russian propaganda’ over Third World War claims](https://www.yahoo.com/news/klitschko-accuses-joe-rogan-spewing-143153489.html)
-- Nov 25 - [3 Growth Companies With High Insider Ownership And Up To 88% Earnings Growth](https://finance.yahoo.com/news/3-growth-companies-high-insider-140128112.html)
-- Nov 25 - [Man shares weight loss tricks that saw him drop 6st](https://www.yahoo.com/lifestyle/weight-loss-tricks-diabetes-remission-134555284.html)
+- Nov 25 - [Biden to pardon turkeys in annual Thanksgiving tradition](https://www.yahoo.com/news/biden-pardon-turkeys-annual-thanksgiving-155605024.html)
+- Nov 25 - [Buffett refines plans for his fortune, donates more Berkshire shares](https://finance.yahoo.com/news/buffett-refines-plans-fortune-donates-134346267.html)
 - Nov 25 - [Macy's says employee hid up to $154 million in expenses, delays Q3 earnings](https://finance.yahoo.com/news/macys-says-employee-hid-154-130405920.html)
-- Nov 25 - ['Trump 1.0' Staffer Spells Out What Awaits Second Term Team: 'Not Going To Lie To You'](https://www.yahoo.com/news/trump-1-0-staffer-spells-114046126.html)
+- Nov 25 - [Florida HOA Hires Tow Truck To Take Cars From Driveways](https://autos.yahoo.com/florida-hoa-hires-tow-truck-130000209.html)
+- Nov 25 - [Egyptian officials say 17 people are missing after a tourist yacht sank in high waves on Red Sea](https://www.yahoo.com/news/officials-egypt-over-dozen-people-121214668.html)
 <!-- feed end -->
 
 ### Onstream
