@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Massachusetts man pleads guilty to threatening to bomb synagogue](https://www.yahoo.com/news/massachusetts-man-pleads-guilty-threatening-204747227.html)
+- Nov 25 - [Wall Street issues its most bullish S&P outlook yet for 2025](https://finance.yahoo.com/news/wall-street-issues-its-most-bullish-sp-outlook-yet-for-2025-214715852.html)
+- Nov 25 - [How Rich Are You? Find Out Whether You Rank As Upper, Middle Or Lower Class Based On Income And Other Factors](https://finance.yahoo.com/news/rich-whether-rank-upper-middle-203038505.html)
+- Nov 25 - [Donald Trump’s Granddaughter Kai Trump Recreates His Viral ‘YMCA’ Dance Moves On TikTok](https://www.yahoo.com/entertainment/donald-trump-granddaughter-kai-trump-202954401.html)
 - Nov 25 - [A Secret Parachute in the FBI’s Possession May Have Finally Solved D.B. Cooper’s Identity](https://www.yahoo.com/news/secret-parachute-fbi-possession-may-201700706.html)
-- Nov 25 - [Macy’s forced to delay quarterly earnings due to employee hiding up to $154 million in expenses](https://finance.yahoo.com/video/macy-forced-delay-quarterly-earnings-195456173.html)
-- Nov 25 - [TikTok influencer posted herself going shopping at Target. Police say she was actually shoplifting](https://www.yahoo.com/news/tiktok-influencer-posted-herself-going-192310933.html)
-- Nov 25 - [Opinion - Voters say no more marijuana — Congress should take note](https://www.yahoo.com/news/opinion-voters-no-more-marijuana-190000374.html)
+- Nov 25 - [F1 says 306K attended Las Vegas race, police report lower number](https://sports.yahoo.com/f1-says-306k-attended-las-201608986.html)
 <!-- feed end -->
 
 ### Onstream
