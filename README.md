@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Have My Jaw On The Floor](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-162017123.html)
-- Nov 25 - [Deadliest Israeli strike yet on central Beirut leaves gruesome scenes](https://www.yahoo.com/news/deadliest-israeli-strike-yet-central-142230608.html)
-- Nov 25 - [Buffett refines plans for his fortune, donates more Berkshire shares](https://finance.yahoo.com/news/buffett-refines-plans-fortune-donates-134346267.html)
-- Nov 25 - [Macy's says employee hid up to $154 million in expenses, delays Q3 earnings](https://finance.yahoo.com/news/macys-says-employee-hid-154-130405920.html)
-- Nov 25 - [Florida HOA Hires Tow Truck To Take Cars From Driveways](https://autos.yahoo.com/florida-hoa-hires-tow-truck-130000209.html)
+- Nov 25 - [Warren Buffett's 4 tips for transferring generational wealth](https://finance.yahoo.com/video/warren-buffetts-4-tips-transferring-174500207.html)
+- Nov 25 - [Warren Buffett gives away another $1.1B and plans for distributing his $147B fortune after his death](https://finance.yahoo.com/news/warren-buffett-gives-away-another-171353213.html)
+- Nov 25 - [Plane Operated by Putin-Targeted DHL Downed in Mystery Crash That Killed One Person](https://www.yahoo.com/news/plane-operated-putin-targeted-dhl-171340484.html)
+- Nov 25 - [Mom drowns daughter after argument over insulin, deputies say](https://www.yahoo.com/news/mom-drowns-daughter-argument-over-160544417.html)
+- Nov 25 - [Macron wraps up South America trip with French submarines in mind](https://www.yahoo.com/news/macron-wraps-south-america-trip-164556464.html)
 <!-- feed end -->
 
 ### Onstream
