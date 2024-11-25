@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [DNA confirms man who had passed polygraph test as suspected killer in 1979 cold case](https://www.yahoo.com/news/dna-confirms-man-had-passed-150047835.html)
-- Nov 25 - [US plans to reduce Intel's $8.5 billion federal chips grant below $8 billion - New York Times](https://finance.yahoo.com/news/us-plans-reduce-intels-8-013012831.html)
-- Nov 24 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
-- Nov 24 - [Entire police department resigns leaving South Carolina community without law enforcement presence](https://www.yahoo.com/news/entire-police-department-resigns-leaving-223519892.html)
-- Nov 24 - [Israel investigating after Hamas releases photos purportedly showing body of female hostage](https://www.yahoo.com/news/israel-investigating-hamas-releases-photos-210931336.html)
+- Nov 25 - [Italian Palazzo Lit in Orange to Highlight Campaign to End Violence Against Women](https://www.yahoo.com/news/italian-palazzo-lit-orange-highlight-081204637.html)
+- Nov 25 - [Charlotte airport workers plan to strike during busy Thanksgiving travel week](https://www.yahoo.com/news/charlotte-airport-workers-plan-strike-080100311.html)
+- Nov 25 - [‘Please come home’: Family seeks help in search for missing Utah man](https://www.yahoo.com/news/please-come-home-family-seeks-053020007.html)
+- Nov 25 - [Stolen shoe mystery solved at Japanese kindergarten when security camera catches weasel in the act](https://www.yahoo.com/news/stolen-shoe-mystery-solved-japanese-051349161.html)
+- Nov 25 - [Thailand, the ‘Detroit of Southeast Asia’, is at the forefront of China’s battle for the global auto market](https://finance.yahoo.com/news/thailand-detroit-southeast-asia-forefront-030000813.html)
 <!-- feed end -->
 
 ### Onstream
