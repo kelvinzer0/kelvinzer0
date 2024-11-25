@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Wall Street issues its most bullish S&P outlook yet for 2025](https://finance.yahoo.com/news/wall-street-issues-its-most-bullish-sp-outlook-yet-for-2025-214715852.html)
-- Nov 25 - [How Rich Are You? Find Out Whether You Rank As Upper, Middle Or Lower Class Based On Income And Other Factors](https://finance.yahoo.com/news/rich-whether-rank-upper-middle-203038505.html)
-- Nov 25 - [Donald Trump’s Granddaughter Kai Trump Recreates His Viral ‘YMCA’ Dance Moves On TikTok](https://www.yahoo.com/entertainment/donald-trump-granddaughter-kai-trump-202954401.html)
+- Nov 25 - [Fringe group, not Christians, classified as extremist on ADL website | Fact check](https://www.yahoo.com/news/fringe-group-not-christians-classified-223628346.html)
+- Nov 25 - [Detroit's iconic Renaissance Center could see 2 towers razed in $1.6B redevelopment plan](https://finance.yahoo.com/news/detroits-iconic-renaissance-center-could-222054557.html)
+- Nov 25 - [Donald Trump responds to Jack Smith's move to dismiss felony cases](https://www.yahoo.com/news/donald-trump-responds-jack-smiths-210100801.html)
 - Nov 25 - [A Secret Parachute in the FBI’s Possession May Have Finally Solved D.B. Cooper’s Identity](https://www.yahoo.com/news/secret-parachute-fbi-possession-may-201700706.html)
-- Nov 25 - [F1 says 306K attended Las Vegas race, police report lower number](https://sports.yahoo.com/f1-says-306k-attended-las-201608986.html)
+- Nov 25 - [Vandals caught on camera defacing ancient Utah petroglyphs, investigation underway](https://www.yahoo.com/news/vandals-caught-camera-defacing-ancient-200745123.html)
 <!-- feed end -->
 
 ### Onstream
