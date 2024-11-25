@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Arizona county treasurer pleads guilty to embezzling more than $38 million for personal expenses](https://www.yahoo.com/news/arizona-county-treasurer-pleads-guilty-213845800.html)
+- Nov 25 - [Oil holds at 2-week high as Russia, Iran tensions support prices](https://finance.yahoo.com/news/oil-holds-2-week-high-012413873.html)
+- Nov 25 - [In South Korea, nations meet in final round to address global plastic crisis](https://www.yahoo.com/news/south-korea-nations-meet-final-011939668.html)
+- Nov 24 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Nov 24 - [Israel investigating after Hamas releases photos purportedly showing body of female hostage](https://www.yahoo.com/news/israel-investigating-hamas-releases-photos-210931336.html)
 - Nov 24 - [‘It’s Illegal’: Rand Paul Breaks With Trump on Two Key Administration Promises](https://www.yahoo.com/news/illegal-rand-paul-breaks-trump-203704061.html)
-- Nov 24 - [A pregnant law school student asked to move her exams away from near her due date and was denied until her friends stepped in](https://www.yahoo.com/news/pregnant-law-school-student-asked-194837309.html)
-- Nov 24 - [Plastic Surgery Trend: Will “Mar-a-Lago Face” Take Over D.C.?](https://www.yahoo.com/entertainment/plastic-surgery-trend-mar-lago-190000472.html)
-- Nov 24 - [New details emerge on BioLab fire that forced thousands to shelter outside Atlanta](https://www.yahoo.com/news/details-emerge-biolab-fire-forced-185857409.html)
 <!-- feed end -->
 
 ### Onstream
