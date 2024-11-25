@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Oil holds at 2-week high as Russia, Iran tensions support prices](https://finance.yahoo.com/news/oil-holds-2-week-high-012413873.html)
-- Nov 25 - [In South Korea, nations meet in final round to address global plastic crisis](https://www.yahoo.com/news/south-korea-nations-meet-final-011939668.html)
-- Nov 24 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Nov 25 - [Dubai rabbi Zvi Kogan killed in ‘heinous terror incident’ says Israel](https://www.yahoo.com/news/rabbi-missing-uae-murdered-heinous-102002528.html)
+- Nov 24 - [Entire police department resigns leaving South Carolina community without law enforcement presence](https://www.yahoo.com/news/entire-police-department-resigns-leaving-223519892.html)
 - Nov 24 - [Israel investigating after Hamas releases photos purportedly showing body of female hostage](https://www.yahoo.com/news/israel-investigating-hamas-releases-photos-210931336.html)
 - Nov 24 - [‘It’s Illegal’: Rand Paul Breaks With Trump on Two Key Administration Promises](https://www.yahoo.com/news/illegal-rand-paul-breaks-trump-203704061.html)
+- Nov 24 - [Aurora PD to start automatically impounding these vehicles soon](https://www.yahoo.com/news/aurora-pd-start-automatically-impounding-202737098.html)
 <!-- feed end -->
 
 ### Onstream
