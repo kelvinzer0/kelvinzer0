@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Special counsel moves to dismiss election interference case against President-elect Donald Trump](https://www.yahoo.com/news/special-counsel-moves-dismiss-election-182809472.html)
+- Nov 25 - [Premiers call for urgent meeting with Trudeau to discuss Canada-U.S. relations](https://www.yahoo.com/news/premiers-call-meeting-trudeau-discuss-195428066.html)
+- Nov 25 - [Former Kentucky sheriff pleads not guilty in the fatal courthouse shooting of a judge](https://www.yahoo.com/news/former-kentucky-sheriff-pleads-not-183554586.html)
 - Nov 25 - [Baby gorilla killed by zookeeper’s error: ‘Terrible tragedy’](https://www.yahoo.com/news/baby-gorilla-killed-zookeeper-error-180023747.html)
+- Nov 25 - [Lauren Boebert Is Now on Cameo—and About to Get in Legal Trouble](https://www.yahoo.com/news/lauren-boebert-wants-advice-pay-173457389.html)
 - Nov 25 - [NASA just released a stunning new image of the Sombrero galaxy captured by the JWST](https://www.yahoo.com/tech/nasa-just-released-a-stunning-new-image-of-the-sombrero-galaxy-captured-by-the-jwst-171642105.html)
-- Nov 25 - [Warren Buffett gives away another $1.1B and plans for distributing his $147B fortune after his death](https://finance.yahoo.com/news/warren-buffett-gives-away-another-171353213.html)
-- Nov 25 - [Plane Operated by Putin-Targeted DHL Downed in Mystery Crash That Killed One Person](https://www.yahoo.com/news/plane-operated-putin-targeted-dhl-171340484.html)
 <!-- feed end -->
 
 ### Onstream
