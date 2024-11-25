@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Buffett refines plans for his fortune, donates more Berkshire shares](https://finance.yahoo.com/news/buffett-refines-plans-fortune-donates-134346267.html)
+- Nov 25 - [Klitschko accuses Joe Rogan of ‘spewing Russian propaganda’ over Third World War claims](https://www.yahoo.com/news/klitschko-accuses-joe-rogan-spewing-143153489.html)
+- Nov 25 - [3 Growth Companies With High Insider Ownership And Up To 88% Earnings Growth](https://finance.yahoo.com/news/3-growth-companies-high-insider-140128112.html)
+- Nov 25 - [Man shares weight loss tricks that saw him drop 6st](https://www.yahoo.com/lifestyle/weight-loss-tricks-diabetes-remission-134555284.html)
 - Nov 25 - [Macy's says employee hid up to $154 million in expenses, delays Q3 earnings](https://finance.yahoo.com/news/macys-says-employee-hid-154-130405920.html)
-- Nov 25 - [Storm Bert: Two dead as flood alerts remain in place](https://www.yahoo.com/news/storm-bert-two-dead-flood-123023166.html)
-- Nov 25 - [Father of missing Maui woman Hannah Kobayashi found dead in LA as search continues](https://www.yahoo.com/news/father-missing-maui-woman-hannah-103153680.html)
-- Nov 25 - [These Tennessee cities have been named the best in the country to live in by U.S. News and World Report](https://www.yahoo.com/news/tennessee-cities-named-best-country-110426259.html)
+- Nov 25 - ['Trump 1.0' Staffer Spells Out What Awaits Second Term Team: 'Not Going To Lie To You'](https://www.yahoo.com/news/trump-1-0-staffer-spells-114046126.html)
 <!-- feed end -->
 
 ### Onstream
