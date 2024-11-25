@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [10 children killed by security forces in Mozambique's election protests, Human Rights Watch says](https://www.yahoo.com/news/10-children-killed-security-forces-130904947.html)
-- Nov 25 - [U.S. lawmakers say Hong Kong is becoming hub for financial crime, WSJ reports](https://www.yahoo.com/news/u-lawmakers-hong-kong-becoming-125550898.html)
-- Nov 25 - [Trump's trade plan could mean higher prices, and avoiding the impact won't be simple](https://www.yahoo.com/news/trumps-trade-plan-could-mean-123824303.html)
-- Nov 25 - [What's My Retirement Budget at 64 With $1.2M in My 401(k) and $2,800 From Social Security?](https://finance.yahoo.com/news/im-64-1-2-million-134301202.html)
-- Nov 25 - [Ask an Advisor: What Can I Do With RMDs I Don't Plan to Spend? I Don't Want to Just Dump Them Into My Checking Account](https://finance.yahoo.com/news/ask-advisor-dont-them-dumped-154734843.html)
+- Nov 25 - [Buffett refines plans for his fortune, donates more Berkshire shares](https://finance.yahoo.com/news/buffett-refines-plans-fortune-donates-134346267.html)
+- Nov 25 - [Macy's says employee hid up to $154 million in expenses, delays Q3 earnings](https://finance.yahoo.com/news/macys-says-employee-hid-154-130405920.html)
+- Nov 25 - [Storm Bert: Two dead as flood alerts remain in place](https://www.yahoo.com/news/storm-bert-two-dead-flood-123023166.html)
+- Nov 25 - [Father of missing Maui woman Hannah Kobayashi found dead in LA as search continues](https://www.yahoo.com/news/father-missing-maui-woman-hannah-103153680.html)
+- Nov 25 - [These Tennessee cities have been named the best in the country to live in by U.S. News and World Report](https://www.yahoo.com/news/tennessee-cities-named-best-country-110426259.html)
 <!-- feed end -->
 
 ### Onstream
