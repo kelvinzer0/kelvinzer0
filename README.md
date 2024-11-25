@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Premiers call for urgent meeting with Trudeau to discuss Canada-U.S. relations](https://www.yahoo.com/news/premiers-call-meeting-trudeau-discuss-195428066.html)
-- Nov 25 - [Former Kentucky sheriff pleads not guilty in the fatal courthouse shooting of a judge](https://www.yahoo.com/news/former-kentucky-sheriff-pleads-not-183554586.html)
-- Nov 25 - [Baby gorilla killed by zookeeper’s error: ‘Terrible tragedy’](https://www.yahoo.com/news/baby-gorilla-killed-zookeeper-error-180023747.html)
-- Nov 25 - [Lauren Boebert Is Now on Cameo—and About to Get in Legal Trouble](https://www.yahoo.com/news/lauren-boebert-wants-advice-pay-173457389.html)
-- Nov 25 - [NASA just released a stunning new image of the Sombrero galaxy captured by the JWST](https://www.yahoo.com/tech/nasa-just-released-a-stunning-new-image-of-the-sombrero-galaxy-captured-by-the-jwst-171642105.html)
+- Nov 25 - [Massachusetts man pleads guilty to threatening to bomb synagogue](https://www.yahoo.com/news/massachusetts-man-pleads-guilty-threatening-204747227.html)
+- Nov 25 - [A Secret Parachute in the FBI’s Possession May Have Finally Solved D.B. Cooper’s Identity](https://www.yahoo.com/news/secret-parachute-fbi-possession-may-201700706.html)
+- Nov 25 - [Macy’s forced to delay quarterly earnings due to employee hiding up to $154 million in expenses](https://finance.yahoo.com/video/macy-forced-delay-quarterly-earnings-195456173.html)
+- Nov 25 - [TikTok influencer posted herself going shopping at Target. Police say she was actually shoplifting](https://www.yahoo.com/news/tiktok-influencer-posted-herself-going-192310933.html)
+- Nov 25 - [Opinion - Voters say no more marijuana — Congress should take note](https://www.yahoo.com/news/opinion-voters-no-more-marijuana-190000374.html)
 <!-- feed end -->
 
 ### Onstream
