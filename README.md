@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [‘My daughter was due for heart surgery in Kyiv – then Russian troops invaded’](https://www.yahoo.com/news/daughter-due-heart-surgery-kyiv-060000612.html)
-- Nov 25 - [Devastated Southern California family of man, 21, killed in mass shooting, arson speaks out](https://www.yahoo.com/news/devastated-southern-california-family-man-014356575.html)
+- Nov 25 - [DNA confirms man who had passed polygraph test as suspected killer in 1979 cold case](https://www.yahoo.com/news/dna-confirms-man-had-passed-150047835.html)
 - Nov 25 - [US plans to reduce Intel's $8.5 billion federal chips grant below $8 billion - New York Times](https://finance.yahoo.com/news/us-plans-reduce-intels-8-013012831.html)
-- Nov 24 - [New Hampshire State Troopers investigating fatal crash on the Interstate 93 ramp](https://www.yahoo.com/news/hampshire-state-troopers-investigating-fatal-233230670.html)
-- Nov 24 - [Outgoing Orange Cat Discovers Swans Are Not Exactly Purr-Fect Companions](https://www.yahoo.com/lifestyle/outgoing-orange-cat-discovers-swans-230500498.html)
+- Nov 24 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Nov 24 - [Entire police department resigns leaving South Carolina community without law enforcement presence](https://www.yahoo.com/news/entire-police-department-resigns-leaving-223519892.html)
+- Nov 24 - [Israel investigating after Hamas releases photos purportedly showing body of female hostage](https://www.yahoo.com/news/israel-investigating-hamas-releases-photos-210931336.html)
 <!-- feed end -->
 
 ### Onstream
