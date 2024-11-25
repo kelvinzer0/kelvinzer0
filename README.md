@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 25 - [Should sex abuse evidence set the Menendez brothers free? A judge will decide.](https://www.yahoo.com/news/sex-abuse-evidence-set-menendez-050308693.html)
 - Nov 25 - [US plans to reduce Intel's $8.5 billion federal chips grant below $8 billion - New York Times](https://finance.yahoo.com/news/us-plans-reduce-intels-8-013012831.html)
-- Nov 24 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
-- Nov 24 - [Arizona county treasurer pleads guilty to embezzling more than $38 million for personal expenses](https://www.yahoo.com/news/arizona-county-treasurer-pleads-guilty-213845800.html)
+- Nov 25 - [Winnipeg police shoot, kill man in Unicity parking lot after they say he stabbed officer in throat](https://www.yahoo.com/news/man-dead-being-shot-winnipeg-004151696.html)
+- Nov 24 - [New Hampshire State Troopers investigating fatal crash on the Interstate 93 ramp](https://www.yahoo.com/news/hampshire-state-troopers-investigating-fatal-233230670.html)
 - Nov 24 - [Israel investigating after Hamas releases photos purportedly showing body of female hostage](https://www.yahoo.com/news/israel-investigating-hamas-releases-photos-210931336.html)
-- Nov 24 - ['It's so rigged': Mom convicted in deadly Girl Scouts crash lashes out at troopers, jurors](https://www.yahoo.com/news/rigged-mom-convicted-deadly-girl-210824796.html)
 <!-- feed end -->
 
 ### Onstream
