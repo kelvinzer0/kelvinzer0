@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [South Korea convicts man who avoided military service by binge eating](https://www.yahoo.com/news/south-korea-convicts-man-avoided-120040514.html)
+- Nov 25 - [10 children killed by security forces in Mozambique's election protests, Human Rights Watch says](https://www.yahoo.com/news/10-children-killed-security-forces-130904947.html)
+- Nov 25 - [U.S. lawmakers say Hong Kong is becoming hub for financial crime, WSJ reports](https://www.yahoo.com/news/u-lawmakers-hong-kong-becoming-125550898.html)
+- Nov 25 - [Trump's trade plan could mean higher prices, and avoiding the impact won't be simple](https://www.yahoo.com/news/trumps-trade-plan-could-mean-123824303.html)
+- Nov 25 - [What's My Retirement Budget at 64 With $1.2M in My 401(k) and $2,800 From Social Security?](https://finance.yahoo.com/news/im-64-1-2-million-134301202.html)
 - Nov 25 - [Ask an Advisor: What Can I Do With RMDs I Don't Plan to Spend? I Don't Want to Just Dump Them Into My Checking Account](https://finance.yahoo.com/news/ask-advisor-dont-them-dumped-154734843.html)
-- Nov 25 - ['Trump 1.0' Staffer Spells Out What Awaits Second Term Team: 'Not Going To Lie To You'](https://www.yahoo.com/news/trump-1-0-staffer-spells-114046126.html)
-- Nov 25 - [India's opposition protests against billionaire facing US bribery and fraud charges](https://www.yahoo.com/news/indias-opposition-protests-against-billionaire-113253348.html)
-- Nov 25 - [GOP lawmakers passed a 131-page bill packed with changes to NC law. Here’s what to know.](https://www.yahoo.com/news/gop-lawmakers-passed-131-page-103045665.html)
 <!-- feed end -->
 
 ### Onstream
