@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Father of missing Maui woman Hannah Kobayashi found dead in LA as search continues](https://www.yahoo.com/news/father-missing-maui-woman-hannah-103153199.html)
-- Nov 25 - [Video of China 'bending bridge' falsely shared as new tourist attraction in Indonesia](https://www.yahoo.com/news/video-china-bending-bridge-falsely-083715953.html)
-- Nov 25 - [Lebanon's Shiite Muslims pay high price in war between Israel and Hezbollah](https://www.yahoo.com/news/lebanons-shiite-muslims-pay-high-052651675.html)
-- Nov 25 - [Stolen shoe mystery solved at Japanese kindergarten when security camera catches weasel in the act](https://www.yahoo.com/news/stolen-shoe-mystery-solved-japanese-051349161.html)
-- Nov 25 - [Armed robbers hit couple in broad daylight on high-end Beverly Hills street](https://www.yahoo.com/news/armed-robbers-hit-couple-broad-031159480.html)
+- Nov 25 - [South Korea convicts man who avoided military service by binge eating](https://www.yahoo.com/news/south-korea-convicts-man-avoided-120040514.html)
+- Nov 25 - [Ask an Advisor: What Can I Do With RMDs I Don't Plan to Spend? I Don't Want to Just Dump Them Into My Checking Account](https://finance.yahoo.com/news/ask-advisor-dont-them-dumped-154734843.html)
+- Nov 25 - ['Trump 1.0' Staffer Spells Out What Awaits Second Term Team: 'Not Going To Lie To You'](https://www.yahoo.com/news/trump-1-0-staffer-spells-114046126.html)
+- Nov 25 - [India's opposition protests against billionaire facing US bribery and fraud charges](https://www.yahoo.com/news/indias-opposition-protests-against-billionaire-113253348.html)
+- Nov 25 - [GOP lawmakers passed a 131-page bill packed with changes to NC law. Here’s what to know.](https://www.yahoo.com/news/gop-lawmakers-passed-131-page-103045665.html)
 <!-- feed end -->
 
 ### Onstream
