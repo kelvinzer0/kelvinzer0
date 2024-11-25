@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Biden to pardon turkeys in annual Thanksgiving tradition](https://www.yahoo.com/news/biden-pardon-turkeys-annual-thanksgiving-155605024.html)
+- Nov 25 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Have My Jaw On The Floor](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-162017123.html)
+- Nov 25 - [Deadliest Israeli strike yet on central Beirut leaves gruesome scenes](https://www.yahoo.com/news/deadliest-israeli-strike-yet-central-142230608.html)
 - Nov 25 - [Buffett refines plans for his fortune, donates more Berkshire shares](https://finance.yahoo.com/news/buffett-refines-plans-fortune-donates-134346267.html)
 - Nov 25 - [Macy's says employee hid up to $154 million in expenses, delays Q3 earnings](https://finance.yahoo.com/news/macys-says-employee-hid-154-130405920.html)
 - Nov 25 - [Florida HOA Hires Tow Truck To Take Cars From Driveways](https://autos.yahoo.com/florida-hoa-hires-tow-truck-130000209.html)
-- Nov 25 - [Egyptian officials say 17 people are missing after a tourist yacht sank in high waves on Red Sea](https://www.yahoo.com/news/officials-egypt-over-dozen-people-121214668.html)
 <!-- feed end -->
 
 ### Onstream
