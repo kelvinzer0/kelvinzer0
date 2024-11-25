@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Harris is telling her advisers and allies to keep her political options open](https://www.yahoo.com/news/harris-telling-her-advisers-allies-100000073.html)
-- Nov 25 - [Canandaigua shipwreck nominated for State and National Registers of Historic Places](https://www.yahoo.com/news/canandaigua-shipwreck-nominated-state-national-090935708.html)
-- Nov 25 - [Middle East latest: Israeli ambassador to US says Hezbollah cease-fire deal could come 'within days'](https://www.yahoo.com/news/middle-east-latest-israeli-ambassador-083852171.html)
-- Nov 25 - [Thailand, the ‘Detroit of Southeast Asia’, is at the forefront of China’s battle for the global auto market](https://finance.yahoo.com/news/thailand-detroit-southeast-asia-forefront-030000813.html)
-- Nov 25 - [US plans to reduce Intel's $8.5 billion federal chips grant below $8 billion - New York Times](https://finance.yahoo.com/news/us-plans-reduce-intels-8-013012831.html)
+- Nov 25 - [Father of missing Maui woman Hannah Kobayashi found dead in LA as search continues](https://www.yahoo.com/news/father-missing-maui-woman-hannah-103153199.html)
+- Nov 25 - [Video of China 'bending bridge' falsely shared as new tourist attraction in Indonesia](https://www.yahoo.com/news/video-china-bending-bridge-falsely-083715953.html)
+- Nov 25 - [Lebanon's Shiite Muslims pay high price in war between Israel and Hezbollah](https://www.yahoo.com/news/lebanons-shiite-muslims-pay-high-052651675.html)
+- Nov 25 - [Stolen shoe mystery solved at Japanese kindergarten when security camera catches weasel in the act](https://www.yahoo.com/news/stolen-shoe-mystery-solved-japanese-051349161.html)
+- Nov 25 - [Armed robbers hit couple in broad daylight on high-end Beverly Hills street](https://www.yahoo.com/news/armed-robbers-hit-couple-broad-031159480.html)
 <!-- feed end -->
 
 ### Onstream
