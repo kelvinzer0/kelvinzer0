@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [How a breakup could upend Google (and the tech world)](https://finance.yahoo.com/news/how-a-breakup-could-upend-google-and-the-tech-world-090006524.html)
+- Nov 26 - [Lauren Boebert follows Matt Gaetz on to Cameo – then apparently realizes why she shouldn’t have](https://www.yahoo.com/news/lauren-boebert-follows-matt-gaetz-053709955.html)
 - Nov 26 - [Russia advances in Ukraine at fastest monthly pace since start of war, analysts say](https://www.yahoo.com/news/russia-advances-ukraine-fast-pace-040548569.html)
-- Nov 26 - [Pilot known for animal rescue flights dies, along with one dog, in Catskills plane crash](https://www.yahoo.com/news/pilot-known-animal-rescue-flights-035907268.html)
 - Nov 26 - [18-year-old Santa Clara University student killed near campus identified](https://www.yahoo.com/news/18-old-santa-clara-university-024507663.html)
-- Nov 26 - [Russian deserter reveals war secrets of guarding nuclear base](https://www.yahoo.com/news/russian-deserter-reveals-war-secrets-001315106.html)
+- Nov 26 - [Markets react to Trump's tariff promise](https://finance.yahoo.com/news/markets-react-trumps-tariff-vow-003844285.html)
+- Nov 26 - [Bremerton man dies after stepping off bridge following crash](https://www.yahoo.com/news/bremerton-man-dies-stepping-off-003614280.html)
 <!-- feed end -->
 
 ### Onstream
