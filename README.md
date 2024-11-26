@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Library worker who is 6ft2 and 360 pounds sues for $4.6m over ‘trauma’ of having a small desk](https://www.yahoo.com/news/library-worker-6ft2-360-pounds-165255082.html)
-- Nov 26 - [Medicare expert explains costly enrollment mistakes to avoid](https://finance.yahoo.com/news/medicare-expert-explains-costly-enrollment-mistakes-to-avoid-182102701.html)
+- Nov 26 - [Police identify suspect, recover merchandise in Super Hideaway Gaming robbery](https://www.yahoo.com/news/police-identify-suspect-recover-merchandise-201346015.html)
+- Nov 26 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
+- Nov 26 - [Man who went missing in 1999 found after sister sees his picture in news article: Sheriff](https://www.yahoo.com/news/man-went-missing-1999-found-192000332.html)
 - Nov 26 - ['I can't pay my bills,' Rudy Giuliani says in courtroom outburst](https://www.yahoo.com/news/cant-pay-bills-rudy-giuliani-181127643.html)
 - Nov 26 - [New Russian missile fired at Ukraine carried warheads without explosives, sources say](https://www.yahoo.com/news/russian-missile-fired-ukraine-carried-173413427.html)
-- Nov 26 - [North Carolina's governor has vetoed a GOP bill that would weaken his successor and other Democrats](https://www.yahoo.com/news/north-carolinas-governor-vetoed-gop-164406250.html)
 <!-- feed end -->
 
 ### Onstream
