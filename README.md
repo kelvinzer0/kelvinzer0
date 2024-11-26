@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [1 Social Security Change in 2025 That Could Hurt Your Finances -- and 3 That Might Increase Your Benefit Amount](https://finance.yahoo.com/news/1-social-security-change-2025-120000215.html)
+- Nov 26 - [Huawei launches Mate 70 smartphone as new US chip curbs loom](https://finance.yahoo.com/video/huawei-launches-mate-70-smartphone-130045319.html)
+- Nov 26 - [6 Things Gen Xers Should Purchase Before Retiring](https://finance.yahoo.com/news/6-things-gen-xers-purchase-130009071.html)
+- Nov 26 - [After a Couple of Deep Cuts in Recent Years, This 7%-Yielding Dividend Is Getting Healthier and Could Start Heading Higher in 2025 and Beyond](https://finance.yahoo.com/news/couple-deep-cuts-recent-years-124300860.html)
 - Nov 26 - [Social media influencer arrested after filming herself getting ready to steal from store using fake barcodes: Police](https://www.yahoo.com/news/social-media-influencer-arrested-filming-093601227.html)
-- Nov 26 - [Sweden urges Chinese ship to return for undersea cable investigation](https://www.yahoo.com/news/sweden-asks-chinese-ship-yi-072459060.html)
-- Nov 26 - [18-year-old Santa Clara University student killed near campus identified](https://www.yahoo.com/news/18-old-santa-clara-university-024507663.html)
-- Nov 26 - [Russian deserter reveals war secrets of guarding nuclear base](https://www.yahoo.com/news/russian-deserter-reveals-war-secrets-001315106.html)
+- Nov 26 - [‘People Are Sorely Mistaken’: Maggie Haberman Debunks Key Donald Trump Assumption](https://www.yahoo.com/news/people-sorely-mistaken-maggie-haberman-082201033.html)
 <!-- feed end -->
 
 ### Onstream
