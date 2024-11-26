@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Russia advances in Ukraine at fast pace, moving into Kurakhove, analysts say](https://www.yahoo.com/news/russia-advances-ukraine-fast-pace-040548569.html)
-- Nov 26 - [Dow Jones Futures Fall: Nvidia Stock Tumbles To Key Level; Fed Inflation Data Looms](https://www.investors.com/market-trend/stock-market-today/dow-jones-nvidia-stock-nvda-fed-inflation-data/?src=A00220&yptr=yahoo)
-- Nov 26 - [Elon Musk confirms that he’s limiting people’s ability to share outside news on X](https://www.yahoo.com/tech/elon-musk-confirms-limiting-people-022159503.html)
+- Nov 26 - [Russia advances in Ukraine at fastest monthly pace since start of war, analysts say](https://www.yahoo.com/news/russia-advances-ukraine-fast-pace-040548569.html)
 - Nov 26 - [WSDOT: Massive project will disrupt traffic for 3 years as crews work to repair I-5](https://www.yahoo.com/news/wsdot-massive-project-disrupt-traffic-064928528.html)
 - Nov 26 - [Russian deserter reveals war secrets of guarding nuclear base](https://www.yahoo.com/news/russian-deserter-reveals-war-secrets-001315106.html)
+- Nov 25 - [New Congresswoman May Not Be Allowed to Use Women's Bathroom](https://www.yahoo.com/news/congresswoman-not-allowed-womens-bathroom-234052010.html)
+- Nov 25 - [A Missouri judge says a law banning surgery, medications for transgender minors is constitutional](https://www.yahoo.com/news/missouri-judge-says-law-banning-233333818.html)
 <!-- feed end -->
 
 ### Onstream
