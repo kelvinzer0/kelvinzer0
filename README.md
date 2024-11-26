@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Walmart becomes latest - and biggest - company to roll back its DEI policies](https://www.yahoo.com/news/walmart-becomes-latest-biggest-company-020202594.html)
+- Nov 26 - [Dow Jones Futures Fall: Nvidia Stock Tumbles To Key Level; Fed Inflation Data Looms](https://www.investors.com/market-trend/stock-market-today/dow-jones-nvidia-stock-nvda-fed-inflation-data/?src=A00220&yptr=yahoo)
+- Nov 26 - [The stock market's back-to-back gain of more than 20% may be setting the stage for another rally in 2025](https://finance.yahoo.com/news/stock-markets-back-back-gain-022911316.html)
 - Nov 26 - [Markets react to Trump's tariff promise](https://finance.yahoo.com/news/markets-react-trumps-tariff-vow-003844285.html)
 - Nov 26 - [Russian deserter reveals war secrets of guarding nuclear base](https://www.yahoo.com/news/russian-deserter-reveals-war-secrets-001315106.html)
-- Nov 25 - [New Congresswoman Not Allowed to Use Women's Bathroom](https://www.yahoo.com/news/congresswoman-not-allowed-womens-bathroom-234052010.html)
 - Nov 25 - [A Missouri judge says a law banning surgery, medications for transgender minors is constitutional](https://www.yahoo.com/news/missouri-judge-says-law-banning-233333818.html)
 <!-- feed end -->
 
