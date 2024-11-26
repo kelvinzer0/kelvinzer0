@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Fringe group, not Christians, classified as extremist on ADL website | Fact check](https://www.yahoo.com/news/fringe-group-not-christians-classified-223628346.html)
-- Nov 25 - [Detroit's iconic Renaissance Center could see 2 towers razed in $1.6B redevelopment plan](https://finance.yahoo.com/news/detroits-iconic-renaissance-center-could-222054557.html)
-- Nov 25 - [Donald Trump responds to Jack Smith's move to dismiss felony cases](https://www.yahoo.com/news/donald-trump-responds-jack-smiths-210100801.html)
-- Nov 25 - [A Secret Parachute in the FBI’s Possession May Have Finally Solved D.B. Cooper’s Identity](https://www.yahoo.com/news/secret-parachute-fbi-possession-may-201700706.html)
-- Nov 25 - [Vandals caught on camera defacing ancient Utah petroglyphs, investigation underway](https://www.yahoo.com/news/vandals-caught-camera-defacing-ancient-200745123.html)
+- Nov 26 - [Should You Forget Nvidia and Buy These 2 Millionaire-Maker Stocks Instead?](https://finance.yahoo.com/news/forget-nvidia-buy-2-millionaire-011500848.html)
+- Nov 26 - [Mike Silverglade, third generation owner of famous Findlay Market deli, has died](https://www.yahoo.com/news/mike-silverglade-third-generation-owner-011148060.html)
+- Nov 26 - [WSDOT: Massive project will disrupt traffic for 3 years as crews work to repair I-5](https://www.yahoo.com/news/wsdot-massive-project-disrupt-traffic-064928528.html)
+- Nov 26 - [Russian deserter reveals war secrets of guarding nuclear base](https://www.yahoo.com/news/russian-deserter-reveals-war-secrets-001315106.html)
+- Nov 26 - [Donald Trump vows to impose 25% tariff on all products from Canada and Mexico](https://www.yahoo.com/news/donald-trump-vows-impose-25-001125824.html)
 <!-- feed end -->
 
 ### Onstream
