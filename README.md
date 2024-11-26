@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 26 - [Labour has just let the slip the true cost of net zero](https://www.yahoo.com/news/ed-miliband-hammering-final-nail-182143113.html)
+- Nov 26 - ['I can't pay my bills,' Rudy Giuliani says in courtroom outburst](https://www.yahoo.com/news/cant-pay-bills-rudy-giuliani-181127643.html)
 - Nov 26 - [28 Questions Non-Americans Have For Americans About Thanksgiving](https://www.yahoo.com/lifestyle/28-questions-non-americans-americans-174329644.html)
 - Nov 26 - [New Russian missile fired at Ukraine carried warheads without explosives, sources say](https://www.yahoo.com/news/russian-missile-fired-ukraine-carried-173413427.html)
-- Nov 26 - [Library worker who is 6ft2 and 360 pounds sues for $4.6m over ‘trauma’ of having a small desk](https://www.yahoo.com/news/library-worker-6ft2-360-pounds-165442584.html)
 - Nov 26 - [North Carolina's governor has vetoed a GOP bill that would weaken his successor and other Democrats](https://www.yahoo.com/news/north-carolinas-governor-vetoed-gop-164406250.html)
-- Nov 26 - [Biden's Harris endorsement an 'F you' to Obama, Pelosi: John Morgan full interview | CUOMO](https://www.yahoo.com/news/bidens-harris-endorsement-f-obama-154810095.html)
 <!-- feed end -->
 
 ### Onstream
