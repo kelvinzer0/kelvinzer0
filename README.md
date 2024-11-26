@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Lebanese minister says ceasefire deal ready for Israeli green light](https://www.yahoo.com/news/lebanese-minister-says-ceasefire-deal-151310634.html)
-- Nov 26 - [Zuckerberg Seems Genuinely Alarmed by the Explosive Growth of Bluesky](https://www.yahoo.com/tech/zuckerberg-seems-genuinely-alarmed-explosive-141156312.html)
-- Nov 26 - [Highway Disaster Strikes Instantly](https://autos.yahoo.com/highway-disaster-strikes-instantly-130000711.html)
-- Nov 26 - [Ask an Advisor: I'm 60 With $2.4 Million in Retirement Savings. How Do I Manage Withdrawals to Keep Healthcare Subsidies?](https://finance.yahoo.com/news/ask-advisor-structure-withdrawals-keep-120000626.html)
-- Nov 26 - [The One Thing Pulmonologists Are Begging You to Never, Ever Do](https://www.yahoo.com/lifestyle/one-thing-pulmonologists-begging-never-112500960.html)
+- Nov 26 - [Library worker who is 6ft2 and 360 pounds sues for $4.6m over ‘trauma’ of having a small desk](https://www.yahoo.com/news/library-worker-6ft2-360-pounds-165255082.html)
+- Nov 26 - [US bombers intercepted by Russian jets near Kaliningrad on Monday](https://www.yahoo.com/news/us-bombers-intercepted-russian-jets-164913180.html)
+- Nov 26 - [North Carolina's governor has vetoed a GOP bill that would weaken his successor and other Democrats](https://www.yahoo.com/news/north-carolinas-governor-vetoed-gop-164406250.html)
+- Nov 26 - [Mother, boyfriend charged with abusing 2 toddlers, selling cocaine, police say](https://www.yahoo.com/news/mother-boyfriend-charged-abusing-2-153341840.html)
+- Nov 26 - [Eric Trump demonstrates in 30 seconds he doesn’t have a clue how tariffs work](https://www.yahoo.com/news/eric-trump-demonstrates-30-seconds-150041253.html)
 <!-- feed end -->
 
 ### Onstream
