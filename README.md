@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 26 - [Donald Trump Jr. gets a fact check dressing down from Pete Buttigieg – and Musk appears to approve](https://www.yahoo.com/news/donald-trump-jr-gets-fact-220422323.html)
 - Nov 26 - [After delay, Trump signs agreement with Biden White House to begin formal transition handoff](https://www.yahoo.com/news/delay-trump-signs-agreement-biden-204319679.html)
-- Nov 26 - [The Average Net Worth for 50-Somethings Is Over $1 Million – But That's Not the Whole Story. Here's What Most Really Have](https://finance.yahoo.com/news/average-net-worth-50-somethings-203016740.html)
 - Nov 26 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
-- Nov 26 - [Man who went missing in 1999 found after sister sees his picture in news article: Sheriff](https://www.yahoo.com/news/man-went-missing-1999-found-192000332.html)
-- Nov 26 - ['I can't pay my bills,' Rudy Giuliani says in courtroom outburst](https://www.yahoo.com/news/cant-pay-bills-rudy-giuliani-181127643.html)
+- Nov 26 - [Most dangerous Ohio roads to drive over Thanksgiving? 2 are in Cincinnati](https://www.yahoo.com/news/most-dangerous-ohio-roads-drive-194757478.html)
+- Nov 26 - [Library worker who is 6ft2 and 360 pounds sues for $4.6m over ‘trauma’ of having a small desk](https://www.yahoo.com/news/library-worker-6ft2-360-pounds-165442584.html)
 <!-- feed end -->
 
 ### Onstream
