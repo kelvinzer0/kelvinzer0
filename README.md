@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Return of the 'Tariff Man' (opinion)](https://www.yahoo.com/news/return-tariff-man-opinion-143003426.html)
-- Nov 26 - [The West is struggling to give Ukraine the weapons it needs — but there may be a solution](https://www.yahoo.com/news/west-struggling-ukraine-weapons-needs-130935689.html)
-- Nov 26 - [Huawei launches Mate 70 smartphone as new US chip curbs loom](https://finance.yahoo.com/video/huawei-launches-mate-70-smartphone-130045319.html)
-- Nov 26 - [Miami condo owners slapped with $21 million special assessment fee for repairs to 16-year-old buildings](https://finance.yahoo.com/news/miami-condo-owners-slapped-21-114400570.html)
-- Nov 26 - [Farmers sound the alarm as pantry staple crop becomes increasingly difficult to grow: 'Production is at serious risk'](https://www.yahoo.com/news/farmers-sound-alarm-pantry-staple-111516552.html)
+- Nov 26 - [Lebanese minister says ceasefire deal ready for Israeli green light](https://www.yahoo.com/news/lebanese-minister-says-ceasefire-deal-151310634.html)
+- Nov 26 - [Zuckerberg Seems Genuinely Alarmed by the Explosive Growth of Bluesky](https://www.yahoo.com/tech/zuckerberg-seems-genuinely-alarmed-explosive-141156312.html)
+- Nov 26 - [Highway Disaster Strikes Instantly](https://autos.yahoo.com/highway-disaster-strikes-instantly-130000711.html)
+- Nov 26 - [Ask an Advisor: I'm 60 With $2.4 Million in Retirement Savings. How Do I Manage Withdrawals to Keep Healthcare Subsidies?](https://finance.yahoo.com/news/ask-advisor-structure-withdrawals-keep-120000626.html)
+- Nov 26 - [The One Thing Pulmonologists Are Begging You to Never, Ever Do](https://www.yahoo.com/lifestyle/one-thing-pulmonologists-begging-never-112500960.html)
 <!-- feed end -->
 
 ### Onstream
