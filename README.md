@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Huawei launches Mate 70 smartphone as new US chip curbs loom](https://finance.yahoo.com/video/huawei-launches-mate-70-smartphone-130045319.html)
-- Nov 26 - [6 Things Gen Xers Should Purchase Before Retiring](https://finance.yahoo.com/news/6-things-gen-xers-purchase-130009071.html)
-- Nov 26 - [After a Couple of Deep Cuts in Recent Years, This 7%-Yielding Dividend Is Getting Healthier and Could Start Heading Higher in 2025 and Beyond](https://finance.yahoo.com/news/couple-deep-cuts-recent-years-124300860.html)
-- Nov 26 - [Social media influencer arrested after filming herself getting ready to steal from store using fake barcodes: Police](https://www.yahoo.com/news/social-media-influencer-arrested-filming-093601227.html)
+- Nov 26 - [Biden administration will loan $6.6 billion to Rivian to build Georgia factory that automaker paused](https://finance.yahoo.com/news/biden-administration-loan-6-6-123345297.html)
+- Nov 26 - [Farmers sound the alarm as pantry staple crop becomes increasingly difficult to grow: 'Production is at serious risk'](https://www.yahoo.com/news/farmers-sound-alarm-pantry-staple-111516552.html)
+- Nov 26 - [Video of a robot leading a mass escape stokes laughs and fears over AI in China](https://finance.yahoo.com/news/video-robot-leading-mass-escape-093000836.html)
 - Nov 26 - [‘People Are Sorely Mistaken’: Maggie Haberman Debunks Key Donald Trump Assumption](https://www.yahoo.com/news/people-sorely-mistaken-maggie-haberman-082201033.html)
+- Nov 26 - [Sweden urges Chinese ship to return for undersea cable investigation](https://www.yahoo.com/news/sweden-asks-chinese-ship-yi-072459060.html)
 <!-- feed end -->
 
 ### Onstream
