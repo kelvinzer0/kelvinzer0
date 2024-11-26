@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Should You Forget Nvidia and Buy These 2 Millionaire-Maker Stocks Instead?](https://finance.yahoo.com/news/forget-nvidia-buy-2-millionaire-011500848.html)
-- Nov 26 - [Mike Silverglade, third generation owner of famous Findlay Market deli, has died](https://www.yahoo.com/news/mike-silverglade-third-generation-owner-011148060.html)
-- Nov 26 - [WSDOT: Massive project will disrupt traffic for 3 years as crews work to repair I-5](https://www.yahoo.com/news/wsdot-massive-project-disrupt-traffic-064928528.html)
+- Nov 26 - [Walmart becomes latest - and biggest - company to roll back its DEI policies](https://www.yahoo.com/news/walmart-becomes-latest-biggest-company-020202594.html)
+- Nov 26 - [Markets react to Trump's tariff promise](https://finance.yahoo.com/news/markets-react-trumps-tariff-vow-003844285.html)
 - Nov 26 - [Russian deserter reveals war secrets of guarding nuclear base](https://www.yahoo.com/news/russian-deserter-reveals-war-secrets-001315106.html)
-- Nov 26 - [Donald Trump vows to impose 25% tariff on all products from Canada and Mexico](https://www.yahoo.com/news/donald-trump-vows-impose-25-001125824.html)
+- Nov 25 - [New Congresswoman Not Allowed to Use Women's Bathroom](https://www.yahoo.com/news/congresswoman-not-allowed-womens-bathroom-234052010.html)
+- Nov 25 - [A Missouri judge says a law banning surgery, medications for transgender minors is constitutional](https://www.yahoo.com/news/missouri-judge-says-law-banning-233333818.html)
 <!-- feed end -->
 
 ### Onstream
