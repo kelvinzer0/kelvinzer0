@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Library worker who is 6ft2 and 360 pounds sues for $4.6m over ‘trauma’ of having a small desk](https://www.yahoo.com/news/library-worker-6ft2-360-pounds-165255082.html)
-- Nov 26 - [US bombers intercepted by Russian jets near Kaliningrad on Monday](https://www.yahoo.com/news/us-bombers-intercepted-russian-jets-164913180.html)
+- Nov 26 - [28 Questions Non-Americans Have For Americans About Thanksgiving](https://www.yahoo.com/lifestyle/28-questions-non-americans-americans-174329644.html)
+- Nov 26 - [New Russian missile fired at Ukraine carried warheads without explosives, sources say](https://www.yahoo.com/news/russian-missile-fired-ukraine-carried-173413427.html)
+- Nov 26 - [Library worker who is 6ft2 and 360 pounds sues for $4.6m over ‘trauma’ of having a small desk](https://www.yahoo.com/news/library-worker-6ft2-360-pounds-165442584.html)
 - Nov 26 - [North Carolina's governor has vetoed a GOP bill that would weaken his successor and other Democrats](https://www.yahoo.com/news/north-carolinas-governor-vetoed-gop-164406250.html)
-- Nov 26 - [Mother, boyfriend charged with abusing 2 toddlers, selling cocaine, police say](https://www.yahoo.com/news/mother-boyfriend-charged-abusing-2-153341840.html)
-- Nov 26 - [Eric Trump demonstrates in 30 seconds he doesn’t have a clue how tariffs work](https://www.yahoo.com/news/eric-trump-demonstrates-30-seconds-150041253.html)
+- Nov 26 - [Biden's Harris endorsement an 'F you' to Obama, Pelosi: John Morgan full interview | CUOMO](https://www.yahoo.com/news/bidens-harris-endorsement-f-obama-154810095.html)
 <!-- feed end -->
 
 ### Onstream
