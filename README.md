@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [QUALCOMM (QCOM) Faces New Competition as Xiaomi Enters AI Chip Market](https://finance.yahoo.com/news/qualcomm-qcom-faces-competition-xiaomi-010512372.html)
+- Nov 27 - [X users left stunned by 'terrible' video of Harris speaking to supporters: 'Who thought this was a good idea?'](https://www.yahoo.com/news/x-users-left-stunned-terrible-022236579.html)
+- Nov 27 - [US says a drug cartel is behind the longstanding problem of illegal fishing in the Gulf of Mexico](https://www.yahoo.com/news/us-says-drug-cartel-behind-021704693.html)
 - Nov 27 - [Trump team says Israel-Hezbollah ceasefire deal brokered by Biden is actually Trump's win](https://www.yahoo.com/news/trump-team-says-israel-hezbollah-003507578.html)
 - Nov 27 - [Some businesses struggle to pay back pandemic-era loans](https://www.yahoo.com/news/businesses-struggle-pay-back-pandemic-003446676.html)
-- Nov 26 - [Elon Musk Claims ‘Superior Ownership’ Over Alex Jones, Infowars X Accounts as The Onion Pursues Acquisition](https://www.yahoo.com/news/elon-musk-claims-superior-ownership-234626112.html)
-- Nov 26 - [Sharpton's 'pay to play' scandal 'ricocheting around the halls' of MSNBC, insider says: 'Can't be acceptable'](https://www.yahoo.com/news/sharptons-pay-play-scandal-ricocheting-231426973.html)
+- Nov 27 - [An animal-rescue pilot died in a crash. 2 dogs aboard are recovering](https://www.yahoo.com/news/pilot-rescued-animals-over-country-001756726.html)
 <!-- feed end -->
 
 ### Onstream
