@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Atlantic Hurricane Season 2024: Florida Walloped, North Carolina Sees Catastrophe](https://www.yahoo.com/news/atlantic-hurricane-season-2024-florida-192049885.html)
+- Nov 27 - [Russia says Trump Ukraine aid cut would be 'death sentence' for Kyiv's military](https://www.yahoo.com/news/russia-says-trump-ukraine-aid-191036365.html)
 - Nov 27 - [Chinese vessel ‘sabotaged’ Baltic deep sea cables and may have been under orders from Russia](https://www.yahoo.com/news/chinese-vessel-sabotaged-baltic-deep-185239283.html)
-- Nov 27 - [Hezbollah faces long recovery, officials believe thousands of fighters killed](https://www.yahoo.com/news/hezbollah-faces-long-recovery-officials-172931403.html)
-- Nov 27 - [White House pressing Ukraine to draft 18-year-olds so they have enough troops to battle Russia](https://www.yahoo.com/news/white-house-pressing-ukraine-draft-164345020.html)
-- Nov 27 - [Watertown has a new interim city manager – effective immediately after departure expedited](https://www.yahoo.com/news/watertown-interim-city-manager-effective-154518600.html)
+- Nov 27 - [Forecast: Snow likely this weekend in the St. Louis area](https://www.yahoo.com/news/forecast-snow-likely-weekend-st-181233223.html)
+- Nov 27 - [Warheads In Phoenix Ghost Kamikaze Drones Blast Straight Down Like Air Burst Artillery Rounds](https://www.yahoo.com/news/warheads-phoenix-ghost-kamikaze-drones-180532376.html)
+- Nov 27 - [Eerie Twist Emerges in Search for Missing Hawaii Woman Hannah Kobayashi](https://www.yahoo.com/news/eerie-twist-emerges-search-missing-175125157.html)
 <!-- feed end -->
 
 ### Onstream
