@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Voices: Not even JK Rowling can take glory away from Barbra Banda](https://www.yahoo.com/news/voices-not-even-jk-rowling-155754845.html)
+- Nov 27 - [White House pressing Ukraine to draft 18-year-olds so they have enough troops to battle Russia](https://www.yahoo.com/news/white-house-pressing-ukraine-draft-164345020.html)
+- Nov 27 - [Three Dead After Cybertruck Crashes, Bursts Into Flames](https://autos.yahoo.com/three-dead-cybertruck-crashes-bursts-161000756.html)
+- Nov 27 - [Life is better without Boeing, airline executive says](https://www.yahoo.com/tech/life-better-without-boeing-airline-153100320.html)
 - Nov 27 - [49-Year-Old Makes $5,180 a Month in Dividends With 'Helps Me Sleep at Night' Portfolio – Top 10 Stocks You Can't Miss](https://finance.yahoo.com/news/49-old-makes-5-180-150357116.html)
 - Nov 27 - [Trump Finally Signs Transition Documents—With One Giant Catch](https://www.yahoo.com/news/trump-finally-signs-transition-documents-141314517.html)
-- Nov 27 - [Lebanese army convoys seen heading towards Israeli-Lebanese border as part of ceasefire deal](https://www.yahoo.com/news/lebanese-army-convoys-seen-heading-134412828.html)
-- Nov 27 - [Archaeologists Found 123 Ancient Bodies in a Garden. Now, They Must Solve the Dark Mystery.](https://www.yahoo.com/news/archaeologists-found-123-ancient-bodies-133000837.html)
 <!-- feed end -->
 
 ### Onstream
