@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 27 - [Massachusetts man who spent decades in prison for a murder he didn't commit is awarded $13 million](https://www.yahoo.com/news/massachusetts-man-spent-decades-prison-050831095.html)
 - Nov 27 - [Turkey scales down $23 billion F-16 jet deal with US, minister says](https://www.yahoo.com/news/turkey-scales-down-23-billion-043217063.html)
-- Nov 27 - [Bird flu spreading in Hawaii for the first time](https://www.yahoo.com/news/bird-flu-spreading-hawaii-first-024144407.html)
+- Nov 27 - [Police officer who shocked woman, 95, with a Taser found guilty of manslaughter](https://www.yahoo.com/news/police-officer-shocked-woman-95-020636904.html)
 - Nov 27 - [X users left stunned by 'terrible' video of Harris speaking to supporters: 'Who thought this was a good idea?'](https://www.yahoo.com/news/x-users-left-stunned-terrible-022236579.html)
-- Nov 27 - [Turkey reportedly arrested suspects in Israeli-Moldovan rabbi in UAE as they left Istanbul airport](https://www.yahoo.com/news/turkey-reportedly-arrested-suspects-israeli-015708879.html)
+- Nov 27 - [US says a drug cartel is behind the longstanding problem of illegal fishing in the Gulf of Mexico](https://www.yahoo.com/news/us-says-drug-cartel-behind-021704693.html)
 <!-- feed end -->
 
 ### Onstream
