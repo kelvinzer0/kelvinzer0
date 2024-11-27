@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 27 - [QUALCOMM (QCOM) Faces New Competition as Xiaomi Enters AI Chip Market](https://finance.yahoo.com/news/qualcomm-qcom-faces-competition-xiaomi-010512372.html)
 - Nov 27 - [Trump team says Israel-Hezbollah ceasefire deal brokered by Biden is actually Trump's win](https://www.yahoo.com/news/trump-team-says-israel-hezbollah-003507578.html)
 - Nov 27 - [Some businesses struggle to pay back pandemic-era loans](https://www.yahoo.com/news/businesses-struggle-pay-back-pandemic-003446676.html)
-- Nov 27 - [Pilot who rescued animals all over the country dies in crash. 2 of his canine passengers survived](https://www.yahoo.com/news/pilot-rescued-animals-over-country-001756726.html)
-- Nov 27 - [2025 Rivian R1S debuts tri-motor variant with blistering speed](https://autos.yahoo.com/2025-rivian-r1s-debuts-tri-000000643.html)
 - Nov 26 - [Elon Musk Claims ‘Superior Ownership’ Over Alex Jones, Infowars X Accounts as The Onion Pursues Acquisition](https://www.yahoo.com/news/elon-musk-claims-superior-ownership-234626112.html)
+- Nov 26 - [Sharpton's 'pay to play' scandal 'ricocheting around the halls' of MSNBC, insider says: 'Can't be acceptable'](https://www.yahoo.com/news/sharptons-pay-play-scandal-ricocheting-231426973.html)
 <!-- feed end -->
 
 ### Onstream
