@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [I just turned 73 so I need to start taking distributions from my IRA — but I don’t even need the cash](https://finance.yahoo.com/news/just-turned-73-start-taking-135100224.html)
-- Nov 27 - [Arizona man arrested by Feds on charge of threatening President-elect Trump](https://www.yahoo.com/news/arizona-man-arrested-feds-charge-133025121.html)
-- Nov 27 - [Mexican President’s Harsh Takedown of Trump Exposes an Ugly MAGA Scam](https://www.yahoo.com/news/mexican-president-harsh-takedown-trump-110000526.html)
-- Nov 27 - [After fast start, electric cars need a recharge as range limits, cost leave some drivers skeptical](https://www.yahoo.com/news/fast-start-electric-cars-recharge-065307630.html)
-- Nov 27 - [Massachusetts man who spent decades in prison for a murder he didn't commit is awarded $13 million](https://www.yahoo.com/news/massachusetts-man-spent-decades-prison-050831095.html)
+- Nov 27 - [Key Fed gauge shows inflation is 'going sideways'](https://finance.yahoo.com/news/key-fed-gauge-shows-inflation-is-going-sideways-150210415.html)
+- Nov 27 - [Prediction: 2 Stocks That Will Be Worth More Than Apple 10 Years From Now](https://finance.yahoo.com/news/prediction-2-stocks-worth-more-144100348.html)
+- Nov 27 - [Lebanese army convoys seen heading towards Israeli-Lebanese border as part of ceasefire deal](https://www.yahoo.com/news/lebanese-army-convoys-seen-heading-134412828.html)
+- Nov 27 - [Archaeologists Found 123 Ancient Bodies in a Garden. Now, They Must Solve the Dark Mystery.](https://www.yahoo.com/news/archaeologists-found-123-ancient-bodies-133000837.html)
+- Nov 27 - [Man held after secret filming shared on Tik Tok](https://www.yahoo.com/news/man-held-secret-filming-shared-124155451.html)
 <!-- feed end -->
 
 ### Onstream
