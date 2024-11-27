@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 27 - [Imran Khan supporters call off protest after crackdown](https://www.yahoo.com/news/imran-khan-supporters-call-off-101900752.html)
+- Nov 27 - [Joe Biden must cancel Thanksgiving. MAGA and non-MAGA cannot break bread. | Opinion](https://www.yahoo.com/news/joe-biden-must-cancel-thanksgiving-101107573.html)
+- Nov 27 - [Massachusetts man who spent decades in prison for a murder he didn't commit is awarded $13 million](https://www.yahoo.com/news/massachusetts-man-spent-decades-prison-050831095.html)
 - Nov 27 - [Turkey scales down $23 billion F-16 jet deal with US, minister says](https://www.yahoo.com/news/turkey-scales-down-23-billion-043217063.html)
 - Nov 27 - [X users left stunned by 'terrible' video of Harris speaking to supporters: 'Who thought this was a good idea?'](https://www.yahoo.com/news/x-users-left-stunned-terrible-022236579.html)
-- Nov 27 - [Trump team says Israel-Hezbollah ceasefire deal brokered by Biden is actually Trump's win](https://www.yahoo.com/news/trump-team-says-israel-hezbollah-003507578.html)
-- Nov 27 - [An animal-rescue pilot died in a crash. 2 dogs aboard are recovering](https://www.yahoo.com/news/pilot-rescued-animals-over-country-001756726.html)
-- Nov 27 - [Hunter Biden Whistleblower’s $30 Million Defamation Lawsuit Against Fox News, Jessica Tarlov Dismissed by Judge](https://www.yahoo.com/news/hunter-biden-whistleblower-30-million-000945568.html)
 <!-- feed end -->
 
 ### Onstream
