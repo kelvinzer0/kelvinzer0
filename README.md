@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 27 - [Turkey scales down $23 billion F-16 jet deal with US, minister says](https://www.yahoo.com/news/turkey-scales-down-23-billion-043217063.html)
 - Nov 27 - [X users left stunned by 'terrible' video of Harris speaking to supporters: 'Who thought this was a good idea?'](https://www.yahoo.com/news/x-users-left-stunned-terrible-022236579.html)
-- Nov 27 - [US says a drug cartel is behind the longstanding problem of illegal fishing in the Gulf of Mexico](https://www.yahoo.com/news/us-says-drug-cartel-behind-021704693.html)
 - Nov 27 - [Trump team says Israel-Hezbollah ceasefire deal brokered by Biden is actually Trump's win](https://www.yahoo.com/news/trump-team-says-israel-hezbollah-003507578.html)
-- Nov 27 - [Some businesses struggle to pay back pandemic-era loans](https://www.yahoo.com/news/businesses-struggle-pay-back-pandemic-003446676.html)
 - Nov 27 - [An animal-rescue pilot died in a crash. 2 dogs aboard are recovering](https://www.yahoo.com/news/pilot-rescued-animals-over-country-001756726.html)
+- Nov 26 - [Corewell Health worker accused of stealing nearly $700,000 in bone grafts](https://www.yahoo.com/news/corewell-health-worker-accused-stealing-224933987.html)
 <!-- feed end -->
 
 ### Onstream
