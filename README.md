@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Non-verbal man vanished without a trace in 1999. 25 years on, his sister spotted his picture in a news article](https://www.yahoo.com/news/non-verbal-man-vanished-without-112444567.html)
-- Nov 27 - [His wives kept dying mysteriously. His secret poison: Insulin](https://www.yahoo.com/news/wives-kept-dying-mysteriously-secret-110013321.html)
-- Nov 27 - [This island once belonged to Roger Williams. Now an East Greenwich couple owns it.](https://www.yahoo.com/news/island-once-belonged-roger-williams-100325528.html)
-- Nov 27 - [VW confirms plans to exit Xinjiang operations after years of pressure](https://finance.yahoo.com/news/exclusive-vw-exit-xinjiang-operation-071528789.html)
+- Nov 27 - [Man held after secret filming shared on Tik Tok](https://www.yahoo.com/news/man-held-secret-filming-shared-124155451.html)
+- Nov 27 - [Financial experts say aging US seniors should consider this 1 move with their 401(k)](https://finance.yahoo.com/news/financial-experts-aging-us-seniors-113200822.html)
+- Nov 27 - [Joe Biden must cancel Thanksgiving. MAGA and non-MAGA cannot break bread. | Opinion](https://www.yahoo.com/news/joe-biden-must-cancel-thanksgiving-101107573.html)
 - Nov 27 - [After fast start, electric cars need a recharge as range limits, cost leave some drivers skeptical](https://www.yahoo.com/news/fast-start-electric-cars-recharge-065307630.html)
+- Nov 27 - [Speeding 18-year-old driver crashes into historic fountain in Orange County](https://www.yahoo.com/news/speeding-18-old-driver-crashes-060129253.html)
 <!-- feed end -->
 
 ### Onstream
