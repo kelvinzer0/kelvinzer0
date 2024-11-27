@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 27 - [Trump team says Israel-Hezbollah ceasefire deal brokered by Biden is actually Trump's win](https://www.yahoo.com/news/trump-team-says-israel-hezbollah-003507578.html)
-- Nov 26 - [Albuquerque man sentenced for killing home intruder](https://www.yahoo.com/news/albuquerque-man-sentenced-killing-home-221046572.html)
-- Nov 26 - [Neil Orne leaving WKRN after nearly 30 years. How to watch his last broadcast](https://www.yahoo.com/news/neil-orne-leaving-wkrn-nearly-210230433.html)
-- Nov 26 - [After delay, Trump signs agreement with Biden White House to begin formal transition handoff](https://www.yahoo.com/news/delay-trump-signs-agreement-biden-204319679.html)
-- Nov 26 - [Huawei's New Mate 70 Smartphones Move Beyond Android](https://www.yahoo.com/tech/huaweis-mate-70-smartphones-move-204317880.html)
+- Nov 27 - [Some businesses struggle to pay back pandemic-era loans](https://www.yahoo.com/news/businesses-struggle-pay-back-pandemic-003446676.html)
+- Nov 27 - [Pilot who rescued animals all over the country dies in crash. 2 of his canine passengers survived](https://www.yahoo.com/news/pilot-rescued-animals-over-country-001756726.html)
+- Nov 27 - [2025 Rivian R1S debuts tri-motor variant with blistering speed](https://autos.yahoo.com/2025-rivian-r1s-debuts-tri-000000643.html)
+- Nov 26 - [Elon Musk Claims ‘Superior Ownership’ Over Alex Jones, Infowars X Accounts as The Onion Pursues Acquisition](https://www.yahoo.com/news/elon-musk-claims-superior-ownership-234626112.html)
 <!-- feed end -->
 
 ### Onstream
