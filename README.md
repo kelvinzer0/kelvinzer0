@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [5 foods cardiologists avoid on Thanksgiving and what they eat instead](https://www.yahoo.com/lifestyle/5-foods-cardiologists-avoid-thanksgiving-212613804.html)
-- Nov 27 - [Woman who nearly hit child will driving past Plymouth school bus to face charges](https://www.yahoo.com/news/woman-nearly-hit-child-driving-192444729.html)
-- Nov 27 - [Russia says Trump Ukraine aid cut would be 'death sentence' for Kyiv's military](https://www.yahoo.com/news/russia-says-trump-ukraine-aid-191036365.html)
+- Nov 27 - [Teenage photographer Liz Hatton who inspired Princess Kate dies aged 17](https://www.yahoo.com/news/teenage-photographer-liz-hatton-inspired-222530826.html)
+- Nov 27 - [Mother seeks justice for son attacked in Canton South restroom after viral video](https://www.yahoo.com/news/mother-seeks-justice-son-attacked-213611093.html)
+- Nov 27 - [Florida golfer, 65, beaten to death with own clubs in 'random act of violence,' authorities say](https://www.yahoo.com/news/florida-golfer-65-beaten-death-192033201.html)
 - Nov 27 - [Chinese vessel ‘sabotaged’ Baltic deep sea cables and may have been under orders from Russia](https://www.yahoo.com/news/chinese-vessel-sabotaged-baltic-deep-185239283.html)
-- Nov 27 - [Forecast: Snow likely this weekend in the St. Louis area](https://www.yahoo.com/news/forecast-snow-likely-weekend-st-181233223.html)
+- Nov 27 - [Warheads In Phoenix Ghost Kamikaze Drones Blast Straight Down Like Air Burst Artillery Rounds](https://www.yahoo.com/news/warheads-phoenix-ghost-kamikaze-drones-180532376.html)
 <!-- feed end -->
 
 ### Onstream
