@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Donald Trump Jr. gets a fact check dressing down from Pete Buttigieg – and Musk appears to approve](https://www.yahoo.com/news/donald-trump-jr-gets-fact-220422323.html)
+- Nov 27 - [Trump team says Israel-Hezbollah ceasefire deal brokered by Biden is actually Trump's win](https://www.yahoo.com/news/trump-team-says-israel-hezbollah-003507578.html)
+- Nov 26 - [Albuquerque man sentenced for killing home intruder](https://www.yahoo.com/news/albuquerque-man-sentenced-killing-home-221046572.html)
+- Nov 26 - [Neil Orne leaving WKRN after nearly 30 years. How to watch his last broadcast](https://www.yahoo.com/news/neil-orne-leaving-wkrn-nearly-210230433.html)
 - Nov 26 - [After delay, Trump signs agreement with Biden White House to begin formal transition handoff](https://www.yahoo.com/news/delay-trump-signs-agreement-biden-204319679.html)
-- Nov 26 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
-- Nov 26 - [Most dangerous Ohio roads to drive over Thanksgiving? 2 are in Cincinnati](https://www.yahoo.com/news/most-dangerous-ohio-roads-drive-194757478.html)
-- Nov 26 - [Library worker who is 6ft2 and 360 pounds sues for $4.6m over ‘trauma’ of having a small desk](https://www.yahoo.com/news/library-worker-6ft2-360-pounds-165442584.html)
+- Nov 26 - [Huawei's New Mate 70 Smartphones Move Beyond Android](https://www.yahoo.com/tech/huaweis-mate-70-smartphones-move-204317880.html)
 <!-- feed end -->
 
 ### Onstream
