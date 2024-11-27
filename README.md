@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Man held after secret filming shared on Tik Tok](https://www.yahoo.com/news/man-held-secret-filming-shared-124155451.html)
-- Nov 27 - [Financial experts say aging US seniors should consider this 1 move with their 401(k)](https://finance.yahoo.com/news/financial-experts-aging-us-seniors-113200822.html)
-- Nov 27 - [Joe Biden must cancel Thanksgiving. MAGA and non-MAGA cannot break bread. | Opinion](https://www.yahoo.com/news/joe-biden-must-cancel-thanksgiving-101107573.html)
+- Nov 27 - [I just turned 73 so I need to start taking distributions from my IRA — but I don’t even need the cash](https://finance.yahoo.com/news/just-turned-73-start-taking-135100224.html)
+- Nov 27 - [Arizona man arrested by Feds on charge of threatening President-elect Trump](https://www.yahoo.com/news/arizona-man-arrested-feds-charge-133025121.html)
+- Nov 27 - [Mexican President’s Harsh Takedown of Trump Exposes an Ugly MAGA Scam](https://www.yahoo.com/news/mexican-president-harsh-takedown-trump-110000526.html)
 - Nov 27 - [After fast start, electric cars need a recharge as range limits, cost leave some drivers skeptical](https://www.yahoo.com/news/fast-start-electric-cars-recharge-065307630.html)
-- Nov 27 - [Speeding 18-year-old driver crashes into historic fountain in Orange County](https://www.yahoo.com/news/speeding-18-old-driver-crashes-060129253.html)
+- Nov 27 - [Massachusetts man who spent decades in prison for a murder he didn't commit is awarded $13 million](https://www.yahoo.com/news/massachusetts-man-spent-decades-prison-050831095.html)
 <!-- feed end -->
 
 ### Onstream
