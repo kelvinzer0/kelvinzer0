@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 27 - [Atlantic Hurricane Season 2024: Florida Walloped, North Carolina Sees Catastrophe](https://www.yahoo.com/news/atlantic-hurricane-season-2024-florida-192049885.html)
+- Nov 27 - [Chinese vessel ‘sabotaged’ Baltic deep sea cables and may have been under orders from Russia](https://www.yahoo.com/news/chinese-vessel-sabotaged-baltic-deep-185239283.html)
 - Nov 27 - [Hezbollah faces long recovery, officials believe thousands of fighters killed](https://www.yahoo.com/news/hezbollah-faces-long-recovery-officials-172931403.html)
-- Nov 27 - [Elon Musk publicized the names of government employees he wants to cut. It’s terrifying federal workers](https://finance.yahoo.com/news/elon-musk-publicized-names-government-125836798.html)
-- Nov 27 - [Life is better without Boeing, airline executive says](https://www.yahoo.com/tech/life-better-without-boeing-airline-153100320.html)
-- Nov 27 - [‘Immense loss’: Community, workers, diners mourning sudden death of Mass. restaurant owner](https://www.yahoo.com/news/immense-loss-community-workers-diners-150205393.html)
-- Nov 27 - [Russia says it will respond if US places missiles in Japan](https://www.yahoo.com/news/russia-says-respond-us-places-143501101.html)
+- Nov 27 - [White House pressing Ukraine to draft 18-year-olds so they have enough troops to battle Russia](https://www.yahoo.com/news/white-house-pressing-ukraine-draft-164345020.html)
+- Nov 27 - [Watertown has a new interim city manager – effective immediately after departure expedited](https://www.yahoo.com/news/watertown-interim-city-manager-effective-154518600.html)
 <!-- feed end -->
 
 ### Onstream
