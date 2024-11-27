@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Imran Khan supporters call off protest after crackdown](https://www.yahoo.com/news/imran-khan-supporters-call-off-101900752.html)
-- Nov 27 - [Joe Biden must cancel Thanksgiving. MAGA and non-MAGA cannot break bread. | Opinion](https://www.yahoo.com/news/joe-biden-must-cancel-thanksgiving-101107573.html)
-- Nov 27 - [Massachusetts man who spent decades in prison for a murder he didn't commit is awarded $13 million](https://www.yahoo.com/news/massachusetts-man-spent-decades-prison-050831095.html)
-- Nov 27 - [Turkey scales down $23 billion F-16 jet deal with US, minister says](https://www.yahoo.com/news/turkey-scales-down-23-billion-043217063.html)
-- Nov 27 - [X users left stunned by 'terrible' video of Harris speaking to supporters: 'Who thought this was a good idea?'](https://www.yahoo.com/news/x-users-left-stunned-terrible-022236579.html)
+- Nov 27 - [Non-verbal man vanished without a trace in 1999. 25 years on, his sister spotted his picture in a news article](https://www.yahoo.com/news/non-verbal-man-vanished-without-112444567.html)
+- Nov 27 - [His wives kept dying mysteriously. His secret poison: Insulin](https://www.yahoo.com/news/wives-kept-dying-mysteriously-secret-110013321.html)
+- Nov 27 - [This island once belonged to Roger Williams. Now an East Greenwich couple owns it.](https://www.yahoo.com/news/island-once-belonged-roger-williams-100325528.html)
+- Nov 27 - [VW confirms plans to exit Xinjiang operations after years of pressure](https://finance.yahoo.com/news/exclusive-vw-exit-xinjiang-operation-071528789.html)
+- Nov 27 - [After fast start, electric cars need a recharge as range limits, cost leave some drivers skeptical](https://www.yahoo.com/news/fast-start-electric-cars-recharge-065307630.html)
 <!-- feed end -->
 
 ### Onstream
