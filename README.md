@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 27 - [Turkey scales down $23 billion F-16 jet deal with US, minister says](https://www.yahoo.com/news/turkey-scales-down-23-billion-043217063.html)
+- Nov 27 - [Police officer who shocked woman, 95, with a Taser found guilty of manslaughter](https://www.yahoo.com/news/police-officer-shocked-woman-95-020636904.html)
 - Nov 27 - [X users left stunned by 'terrible' video of Harris speaking to supporters: 'Who thought this was a good idea?'](https://www.yahoo.com/news/x-users-left-stunned-terrible-022236579.html)
 - Nov 27 - [Trump team says Israel-Hezbollah ceasefire deal brokered by Biden is actually Trump's win](https://www.yahoo.com/news/trump-team-says-israel-hezbollah-003507578.html)
 - Nov 27 - [An animal-rescue pilot died in a crash. 2 dogs aboard are recovering](https://www.yahoo.com/news/pilot-rescued-animals-over-country-001756726.html)
-- Nov 26 - [Corewell Health worker accused of stealing nearly $700,000 in bone grafts](https://www.yahoo.com/news/corewell-health-worker-accused-stealing-224933987.html)
 <!-- feed end -->
 
 ### Onstream
