@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [On its first day, Israel-Hezbollah ceasefire holds](https://www.yahoo.com/news/first-day-israel-hezbollah-ceasefire-004012128.html)
+- Nov 28 - [111 women accuse Mohamed Al Fayed of abuse as Met launches investigation into his ‘enablers’](https://www.yahoo.com/news/111-women-accuse-mohamed-al-223215623.html)
+- Nov 28 - [Rohingya refugees react after ICC prosecutor requests arrest warrant for head of Myanmar regime](https://www.yahoo.com/news/rohingya-refugees-react-icc-prosecutor-022120301.html)
+- Nov 28 - [Fox Wins Another Defamation Suit Over Tucker Carlson’s Jan. 6 Coverage](https://www.yahoo.com/news/fox-wins-another-defamation-suit-020758948.html)
+- Nov 28 - [Man arrested after double shooting in Stockton leaves 30-year-old dead, 18-year-old injured](https://www.yahoo.com/news/man-arrested-double-shooting-stockton-011753425.html)
 - Nov 27 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
-- Nov 27 - [Pete Hegseth Published Column Saying Sex with Unconscious Woman Isn't Rape](https://www.yahoo.com/news/pete-hegseth-published-column-saying-225600849.html)
-- Nov 27 - [Musk accuses Trump whistleblower Vindman of ‘treason,’ says ‘he will pay’](https://www.yahoo.com/news/musk-accuses-trump-whistleblower-vindman-213058666.html)
-- Nov 27 - [New Mexico man awarded $412 million medical malpractice payout for botched injections](https://www.yahoo.com/news/mexico-man-awarded-412-million-212856304.html)
 <!-- feed end -->
 
 ### Onstream
