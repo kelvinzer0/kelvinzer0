@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Rohingya refugees react after ICC prosecutor requests arrest warrant for head of Myanmar regime](https://www.yahoo.com/news/rohingya-refugees-react-icc-prosecutor-022120301.html)
-- Nov 28 - [Intel's $7.86 billion subsidy deal restricts sale of its manufacturing unit](https://finance.yahoo.com/news/intels-7-86-billion-subsidy-010229971.html)
-- Nov 28 - [‘Time to get out’: Pierce County HOA proposing more than $8K fee for residents, forcing some to move](https://www.yahoo.com/news/time-pierce-county-hoa-proposing-003457349.html)
+- Nov 28 - [How will Trump's tariffs impact UK and EU trade?](https://uk.finance.yahoo.com/news/trump-trade-tariffs-uk-eu-us-060000155.html)
+- Nov 28 - [Conservative US influencer Candace Owens is barred from New Zealand weeks after a ban from Australia](https://www.yahoo.com/news/conservative-us-influencer-candace-owens-050945512.html)
+- Nov 28 - [21 Unfortunate Employees Who Messed Up So Badly At Work, I Can't Believe They Got Away With It](https://www.yahoo.com/entertainment/21-unfortunate-employees-messed-badly-041602726.html)
 - Nov 27 - [‘WTF’: Retired USAF captain recalls UFO encounter, says aliens turned off 10 nukes](https://www.yahoo.com/news/wtf-retired-usaf-captain-recalls-234440482.html)
-- Nov 27 - [House cat, bobcat have standoff in Cowley County](https://www.yahoo.com/news/house-cat-bobcat-standoff-cowley-221322338.html)
+- Nov 27 - [Montgomery County police warn residents after uptick in burglaries; what you need to know](https://www.yahoo.com/news/montgomery-county-police-warn-residents-231422622.html)
 <!-- feed end -->
 
 ### Onstream
