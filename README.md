@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Israel, Hezbollah accuse each other of violating ceasefire terms](https://www.yahoo.com/news/israel-hezbollah-accuse-other-violating-160340046.html)
-- Nov 28 - [Stowaway caught on Delta flight from New York to Paris](https://www.yahoo.com/news/stowaway-caught-delta-flight-york-153824334.html)
-- Nov 28 - [People Who Got Pelted With Food](https://www.yahoo.com/news/people-got-pelted-food-150052403.html)
-- Nov 28 - [Israeli airstrikes leave massive trail of destruction across Lebanon](https://www.yahoo.com/news/israeli-airstrikes-leave-massive-trail-143751519.html)
-- Nov 28 - [3 Americans imprisoned in China for years released](https://www.yahoo.com/news/3-americans-imprisoned-china-years-135209030.html)
+- Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
+- Nov 28 - [Three big snow events close out November across Canada](https://www.yahoo.com/news/three-big-snow-events-close-155738144.html)
+- Nov 28 - [Sen. John Fetterman Describes The Moment That Paved The Way For Trump's Victory](https://www.yahoo.com/news/sen-john-fetterman-describes-moment-153741991.html)
+- Nov 28 - [Photos that offer a glimpse of what life is like for workers in notoriously isolated North Korea](https://www.yahoo.com/news/photos-offer-glimpse-life-workers-150353336.html)
+- Nov 28 - [Officers investigated over teenage girl who died on motorway after escaping police car](https://www.yahoo.com/news/officers-investigated-over-teenage-girl-142930030.html)
 <!-- feed end -->
 
 ### Onstream
