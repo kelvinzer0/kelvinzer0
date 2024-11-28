@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Discovery of fossilized footprints reveals the moment two ancient human species crossed paths](https://www.yahoo.com/news/discovery-fossilized-footprints-reveals-moment-190108944.html)
-- Nov 28 - [Matt Gaetz raises eyebrows with bizarre response to Trump’s Thanksgiving Day rant](https://www.yahoo.com/news/matt-gaetz-raises-eyebrows-bizarre-184254774.html)
 - Nov 28 - [Grandad killed in beer garden had 'heart of gold'](https://www.yahoo.com/news/grandad-killed-beer-garden-had-165437018.html)
-- Nov 28 - [Shelby GT500 Takes on the 2023 Dodge Challenger Black Ghost in a Thrilling Drag Race Showdown](https://autos.yahoo.com/shelby-gt500-takes-2023-dodge-201558736.html)
 - Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
+- Nov 28 - [Sen. John Fetterman Describes The Moment That Paved The Way For Trump's Victory](https://www.yahoo.com/news/sen-john-fetterman-describes-moment-153741991.html)
+- Nov 28 - [Putin says he does not believe Trump is safe after assassination attempts](https://www.yahoo.com/news/putin-says-does-not-believe-152800058.html)
+- Nov 28 - [Israeli airstrikes leave massive trail of destruction across Lebanon](https://www.yahoo.com/news/israeli-airstrikes-leave-massive-trail-143751519.html)
 <!-- feed end -->
 
 ### Onstream
