@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Biden speaks to reporters on Trump's tariff threats and returned American citizens from China](https://www.yahoo.com/news/biden-speaks-reporters-trumps-tariff-202309365.html)
-- Nov 28 - [Dedicated human-trafficking unit needed in New Brunswick, say survivors, advocates](https://www.yahoo.com/news/dedicated-human-trafficking-unit-needed-194231952.html)
 - Nov 28 - [Discovery of fossilized footprints reveals the moment two ancient human species crossed paths](https://www.yahoo.com/news/discovery-fossilized-footprints-reveals-moment-190108944.html)
-- Nov 28 - [Stowaway caught after getting aboard Delta flight from New York City to Paris](https://www.yahoo.com/news/stowaway-caught-getting-aboard-delta-025756387.html)
-- Nov 28 - [Drone aerials show scale of destruction of Israeli bombardment in Qana, southern Lebanon](https://www.yahoo.com/news/drone-aerials-show-scale-destruction-163053912.html)
+- Nov 28 - [Matt Gaetz raises eyebrows with bizarre response to Trump’s Thanksgiving Day rant](https://www.yahoo.com/news/matt-gaetz-raises-eyebrows-bizarre-184254774.html)
+- Nov 28 - [Grandad killed in beer garden had 'heart of gold'](https://www.yahoo.com/news/grandad-killed-beer-garden-had-165437018.html)
+- Nov 28 - [Shelby GT500 Takes on the 2023 Dodge Challenger Black Ghost in a Thrilling Drag Race Showdown](https://autos.yahoo.com/shelby-gt500-takes-2023-dodge-201558736.html)
+- Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
 <!-- feed end -->
 
 ### Onstream
