@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Officers investigated over teenage girl who died on motorway after escaping police car](https://www.yahoo.com/news/officers-investigated-over-teenage-girl-142930030.html)
-- Nov 28 - [This southern Indiana town is the No. 2 trending Thanksgiving destination in the U.S.](https://www.yahoo.com/lifestyle/southern-indiana-town-no-2-084523095.html)
-- Nov 28 - [Ukraine flag appears on big screen during Putin visit to Kazakhstan](https://www.yahoo.com/news/ukraine-flag-appears-big-screen-084521526.html)
-- Nov 28 - [Prediction: This Hypergrowth Stock Will Be the First $10 Trillion Stock (Hint: It's Not Nvidia)](https://www.fool.com/investing/2024/11/28/prediction-this-hypergrowth-stock-will-be-the-firs/?source=eptyholnk0000202&utm_source=yahoo-host-full&utm_medium=feed&utm_campaign=article&referring_guid=3f0d7c2a-5a35-4ee1-b9d3-4d2f8bb3b2cc)
-- Nov 28 - [Chinese acrobat who lost his wife in terrifying on-stage fall seriously injured in second performance incident](https://www.yahoo.com/news/chinese-acrobat-lost-wife-terrifying-062056270.html)
+- Nov 28 - [Israel, Hezbollah accuse each other of violating ceasefire terms](https://www.yahoo.com/news/israel-hezbollah-accuse-other-violating-160340046.html)
+- Nov 28 - [Stowaway caught on Delta flight from New York to Paris](https://www.yahoo.com/news/stowaway-caught-delta-flight-york-153824334.html)
+- Nov 28 - [People Who Got Pelted With Food](https://www.yahoo.com/news/people-got-pelted-food-150052403.html)
+- Nov 28 - [Israeli airstrikes leave massive trail of destruction across Lebanon](https://www.yahoo.com/news/israeli-airstrikes-leave-massive-trail-143751519.html)
+- Nov 28 - [3 Americans imprisoned in China for years released](https://www.yahoo.com/news/3-americans-imprisoned-china-years-135209030.html)
 <!-- feed end -->
 
 ### Onstream
