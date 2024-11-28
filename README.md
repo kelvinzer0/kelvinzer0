@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [NVIDIA Corporation (NVDA) Supply Chain Boosted by Vishay’s Strong Orders for AI Servers and RTX 50 Series](https://finance.yahoo.com/news/nvidia-corporation-nvda-supply-chain-195023718.html)
-- Nov 28 - [Shop a bunch of stunning tablet deals the day before Black Friday](https://www.yahoo.com/tech/shop-bunch-stunning-tablet-deals-092341320.html)
-- Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
-- Nov 28 - [Sen. John Fetterman Describes The Moment That Paved The Way For Trump's Victory](https://www.yahoo.com/news/sen-john-fetterman-describes-moment-153741991.html)
-- Nov 28 - [Putin says Russia would use all weapons at its disposal if Ukraine got nuclear weapons](https://www.yahoo.com/news/putin-says-russia-weapons-disposal-141339784.html)
+- Nov 28 - [Biden speaks to reporters on Trump's tariff threats and returned American citizens from China](https://www.yahoo.com/news/biden-speaks-reporters-trumps-tariff-202309365.html)
+- Nov 28 - [Dedicated human-trafficking unit needed in New Brunswick, say survivors, advocates](https://www.yahoo.com/news/dedicated-human-trafficking-unit-needed-194231952.html)
+- Nov 28 - [Discovery of fossilized footprints reveals the moment two ancient human species crossed paths](https://www.yahoo.com/news/discovery-fossilized-footprints-reveals-moment-190108944.html)
+- Nov 28 - [Stowaway caught after getting aboard Delta flight from New York City to Paris](https://www.yahoo.com/news/stowaway-caught-getting-aboard-delta-025756387.html)
+- Nov 28 - [Drone aerials show scale of destruction of Israeli bombardment in Qana, southern Lebanon](https://www.yahoo.com/news/drone-aerials-show-scale-destruction-163053912.html)
 <!-- feed end -->
 
 ### Onstream
