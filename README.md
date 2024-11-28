@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [It Turns Out That Most People Wipe Their Butts Completely Wrong, But This Doctor Is Here To Teach Us The Right Way](https://www.yahoo.com/lifestyle/turns-most-people-wipe-butts-181602701.html)
+- Nov 28 - [NVIDIA Corporation (NVDA) Supply Chain Boosted by Vishay’s Strong Orders for AI Servers and RTX 50 Series](https://finance.yahoo.com/news/nvidia-corporation-nvda-supply-chain-195023718.html)
+- Nov 28 - [Shop a bunch of stunning tablet deals the day before Black Friday](https://www.yahoo.com/tech/shop-bunch-stunning-tablet-deals-092341320.html)
 - Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
 - Nov 28 - [Sen. John Fetterman Describes The Moment That Paved The Way For Trump's Victory](https://www.yahoo.com/news/sen-john-fetterman-describes-moment-153741991.html)
-- Nov 28 - [Putin says he does not believe Trump is safe after assassination attempts](https://www.yahoo.com/news/putin-says-does-not-believe-152800058.html)
 - Nov 28 - [Putin says Russia would use all weapons at its disposal if Ukraine got nuclear weapons](https://www.yahoo.com/news/putin-says-russia-weapons-disposal-141339784.html)
 <!-- feed end -->
 
