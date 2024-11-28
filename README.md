@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Subway ends its last value meal after sandwich chain’s poor performance](https://www.yahoo.com/news/subway-pulls-last-value-meal-203024570.html)
 - Nov 28 - [Donald Trump's 'Happy Thanksgiving' Message Takes A Very Divisive Turn](https://www.yahoo.com/news/donald-trumps-happy-thanksgiving-message-061353878.html)
-- Nov 28 - [Woman who nearly hit child while driving past Plymouth school bus to face charges](https://www.yahoo.com/news/woman-nearly-hit-child-driving-192444729.html)
 - Nov 28 - [Conservative US influencer Candace Owens is barred from New Zealand weeks after a ban from Australia](https://www.yahoo.com/news/conservative-us-influencer-candace-owens-050945512.html)
-- Nov 28 - [The World’s Biggest Buyers of Gold Are Now Among East European Central Banks](https://finance.yahoo.com/news/world-biggest-buyers-gold-now-050000600.html)
+- Nov 28 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
+- Nov 28 - [Trump claims a win on immigration after a call with Mexico's president. But she suggests no change](https://www.yahoo.com/news/trump-speaks-mexicos-president-claims-015911830.html)
+- Nov 28 - [China’s EV Boom Threatens to Push Gasoline Demand Off a Cliff](https://finance.yahoo.com/news/china-ev-boom-threatens-push-010516103.html)
 <!-- feed end -->
 
 ### Onstream
