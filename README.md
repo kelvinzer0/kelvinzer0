@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [How will Trump's tariffs impact UK and EU trade?](https://uk.finance.yahoo.com/news/trump-trade-tariffs-uk-eu-us-060000155.html)
+- Nov 28 - [Subway ends its last value meal after sandwich chain’s poor performance](https://www.yahoo.com/news/subway-pulls-last-value-meal-203024570.html)
+- Nov 28 - [Donald Trump's 'Happy Thanksgiving' Message Takes A Very Divisive Turn](https://www.yahoo.com/news/donald-trumps-happy-thanksgiving-message-061353878.html)
+- Nov 28 - [Woman who nearly hit child while driving past Plymouth school bus to face charges](https://www.yahoo.com/news/woman-nearly-hit-child-driving-192444729.html)
 - Nov 28 - [Conservative US influencer Candace Owens is barred from New Zealand weeks after a ban from Australia](https://www.yahoo.com/news/conservative-us-influencer-candace-owens-050945512.html)
-- Nov 28 - [21 Unfortunate Employees Who Messed Up So Badly At Work, I Can't Believe They Got Away With It](https://www.yahoo.com/entertainment/21-unfortunate-employees-messed-badly-041602726.html)
-- Nov 27 - [‘WTF’: Retired USAF captain recalls UFO encounter, says aliens turned off 10 nukes](https://www.yahoo.com/news/wtf-retired-usaf-captain-recalls-234440482.html)
-- Nov 27 - [Montgomery County police warn residents after uptick in burglaries; what you need to know](https://www.yahoo.com/news/montgomery-county-police-warn-residents-231422622.html)
+- Nov 28 - [The World’s Biggest Buyers of Gold Are Now Among East European Central Banks](https://finance.yahoo.com/news/world-biggest-buyers-gold-now-050000600.html)
 <!-- feed end -->
 
 ### Onstream
