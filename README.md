@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [Prediction: This Hypergrowth Stock Will Be the First $10 Trillion Stock (Hint: It's Not Nvidia)](https://www.fool.com/investing/2024/11/28/prediction-this-hypergrowth-stock-will-be-the-firs/?source=eptyholnk0000202&utm_source=yahoo-host-full&utm_medium=feed&utm_campaign=article&referring_guid=3f0d7c2a-5a35-4ee1-b9d3-4d2f8bb3b2cc)
+- Nov 28 - [Thousands Return to Southern Lebanon Hours After Cease-Fire](https://finance.yahoo.com/video/thousands-return-southern-lebanon-hours-082200213.html)
 - Nov 28 - [Donald Trump's 'Happy Thanksgiving' Message Takes A Very Divisive Turn](https://www.yahoo.com/news/donald-trumps-happy-thanksgiving-message-061353878.html)
 - Nov 28 - [Conservative US influencer Candace Owens is barred from New Zealand weeks after a ban from Australia](https://www.yahoo.com/news/conservative-us-influencer-candace-owens-050945512.html)
 - Nov 28 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
-- Nov 28 - [Trump claims a win on immigration after a call with Mexico's president. But she suggests no change](https://www.yahoo.com/news/trump-speaks-mexicos-president-claims-015911830.html)
-- Nov 28 - [China’s EV Boom Threatens to Push Gasoline Demand Off a Cliff](https://finance.yahoo.com/news/china-ev-boom-threatens-push-010516103.html)
 <!-- feed end -->
 
 ### Onstream
