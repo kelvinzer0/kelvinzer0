@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [Sixteen caught crossing illegally into U.S. from Quebec in days before Trump tariff threat](https://ca.news.yahoo.com/sixteen-caught-crossing-illegally-u-090000078.html)
+- Nov 28 - [Ukraine flag appears on big screen during Putin visit to Kazakhstan](https://www.yahoo.com/news/ukraine-flag-appears-big-screen-084521526.html)
 - Nov 28 - [Prediction: This Hypergrowth Stock Will Be the First $10 Trillion Stock (Hint: It's Not Nvidia)](https://www.fool.com/investing/2024/11/28/prediction-this-hypergrowth-stock-will-be-the-firs/?source=eptyholnk0000202&utm_source=yahoo-host-full&utm_medium=feed&utm_campaign=article&referring_guid=3f0d7c2a-5a35-4ee1-b9d3-4d2f8bb3b2cc)
-- Nov 28 - [Thousands Return to Southern Lebanon Hours After Cease-Fire](https://finance.yahoo.com/video/thousands-return-southern-lebanon-hours-082200213.html)
+- Nov 28 - [Bitter harvest: Cuba's sugar industry declines amid farm crisis](https://finance.yahoo.com/video/bitter-harvest-cubas-sugar-industry-082750934.html)
 - Nov 28 - [Donald Trump's 'Happy Thanksgiving' Message Takes A Very Divisive Turn](https://www.yahoo.com/news/donald-trumps-happy-thanksgiving-message-061353878.html)
-- Nov 28 - [Conservative US influencer Candace Owens is barred from New Zealand weeks after a ban from Australia](https://www.yahoo.com/news/conservative-us-influencer-candace-owens-050945512.html)
-- Nov 28 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
 <!-- feed end -->
 
 ### Onstream
