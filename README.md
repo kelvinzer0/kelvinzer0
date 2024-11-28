@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [111 women accuse Mohamed Al Fayed of abuse as Met launches investigation into his ‘enablers’](https://www.yahoo.com/news/111-women-accuse-mohamed-al-223215623.html)
-- Nov 28 - [Rohingya refugees react after ICC prosecutor requests arrest warrant for head of Myanmar regime](https://www.yahoo.com/news/rohingya-refugees-react-icc-prosecutor-022120301.html)
-- Nov 28 - [Fox Wins Another Defamation Suit Over Tucker Carlson’s Jan. 6 Coverage](https://www.yahoo.com/news/fox-wins-another-defamation-suit-020758948.html)
-- Nov 28 - [Man arrested after double shooting in Stockton leaves 30-year-old dead, 18-year-old injured](https://www.yahoo.com/news/man-arrested-double-shooting-stockton-011753425.html)
-- Nov 27 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
+- Nov 28 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
+- Nov 28 - [Intel's $7.86 billion subsidy deal restricts sale of its manufacturing unit](https://finance.yahoo.com/news/intels-7-86-billion-subsidy-010229971.html)
+- Nov 27 - [‘WTF’: Retired USAF captain recalls UFO encounter, says aliens turned off 10 nukes](https://www.yahoo.com/news/wtf-retired-usaf-captain-recalls-234440482.html)
+- Nov 27 - [House cat, bobcat have standoff in Cowley County](https://www.yahoo.com/news/house-cat-bobcat-standoff-cowley-221322338.html)
+- Nov 27 - [Ex-St. Louis Rams linebacker facing federal charges for $1.3M wire fraud: DOJ](https://www.yahoo.com/news/ex-st-louis-rams-linebacker-221143570.html)
 <!-- feed end -->
 
 ### Onstream
