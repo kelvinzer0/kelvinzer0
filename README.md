@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Teenage photographer Liz Hatton who inspired Princess Kate dies aged 17](https://www.yahoo.com/news/teenage-photographer-liz-hatton-inspired-222530826.html)
-- Nov 27 - [Mother seeks justice for son attacked in Canton South restroom after viral video](https://www.yahoo.com/news/mother-seeks-justice-son-attacked-213611093.html)
-- Nov 27 - [Florida golfer, 65, beaten to death with own clubs in 'random act of violence,' authorities say](https://www.yahoo.com/news/florida-golfer-65-beaten-death-192033201.html)
-- Nov 27 - [Chinese vessel ‘sabotaged’ Baltic deep sea cables and may have been under orders from Russia](https://www.yahoo.com/news/chinese-vessel-sabotaged-baltic-deep-185239283.html)
-- Nov 27 - [Warheads In Phoenix Ghost Kamikaze Drones Blast Straight Down Like Air Burst Artillery Rounds](https://www.yahoo.com/news/warheads-phoenix-ghost-kamikaze-drones-180532376.html)
+- Nov 28 - [On its first day, Israel-Hezbollah ceasefire holds](https://www.yahoo.com/news/first-day-israel-hezbollah-ceasefire-004012128.html)
+- Nov 27 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
+- Nov 27 - [Pete Hegseth Published Column Saying Sex with Unconscious Woman Isn't Rape](https://www.yahoo.com/news/pete-hegseth-published-column-saying-225600849.html)
+- Nov 27 - [Musk accuses Trump whistleblower Vindman of ‘treason,’ says ‘he will pay’](https://www.yahoo.com/news/musk-accuses-trump-whistleblower-vindman-213058666.html)
+- Nov 27 - [New Mexico man awarded $412 million medical malpractice payout for botched injections](https://www.yahoo.com/news/mexico-man-awarded-412-million-212856304.html)
 <!-- feed end -->
 
 ### Onstream
