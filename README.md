@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Displaced return to Nabatieh in southern Lebanon that was severely damaged by Israeli strikes](https://www.yahoo.com/news/displaced-return-nabatieh-southern-lebanon-104924930.html)
-- Nov 28 - [When is the Scottish Budget and what will be in it?](https://finance.yahoo.com/news/scottish-budget-225741157.html)
+- Nov 28 - [Jim Cramer: Linde Is A 'Terrific' Company, Sees Another Stock Up 75% As 'Not Done'](https://finance.yahoo.com/news/jim-cramer-linde-terrific-company-120034013.html)
+- Nov 28 - [Holiday shopping season clouded by economic uncertainty](https://finance.yahoo.com/video/holiday-shopping-season-clouded-economic-110039659.html)
+- Nov 28 - [Israel says ceasefire with Hezbollah violated, fires on south Lebanon](https://www.yahoo.com/news/israeli-tank-fires-3-south-093354557.html)
 - Nov 28 - [Ukraine flag appears on big screen during Putin visit to Kazakhstan](https://www.yahoo.com/news/ukraine-flag-appears-big-screen-084521526.html)
-- Nov 28 - [Donald Trump's 'Happy Thanksgiving' Message Takes A Very Divisive Turn](https://www.yahoo.com/news/donald-trumps-happy-thanksgiving-message-061353878.html)
-- Nov 28 - [CNN Data Reporter Has ‘Goodness Gracious’ Moment Over GOP's House Majority](https://www.yahoo.com/news/cnn-data-reporter-goodness-gracious-054907598.html)
+- Nov 28 - [Prediction: This Hypergrowth Stock Will Be the First $10 Trillion Stock (Hint: It's Not Nvidia)](https://www.fool.com/investing/2024/11/28/prediction-this-hypergrowth-stock-will-be-the-firs/?source=eptyholnk0000202&utm_source=yahoo-host-full&utm_medium=feed&utm_campaign=article&referring_guid=3f0d7c2a-5a35-4ee1-b9d3-4d2f8bb3b2cc)
 <!-- feed end -->
 
 ### Onstream
