@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Trump's tariffs could cost carmakers up to 17% of combined core profits, S&P says](https://finance.yahoo.com/news/trumps-tariffs-could-cost-carmakers-121301346.html)
-- Nov 29 - [China completes 3,000-km green belt around its biggest desert, state media says](https://www.yahoo.com/news/china-completes-3-000-km-112549261.html)
+- Nov 29 - [Officer who rammed escaped cow with police car returns to frontline duties despite thousands of complaints](https://www.yahoo.com/news/police-driver-rammed-cow-return-124118936.html)
+- Nov 29 - [Ranking the Democrats: Here’s who the party could nominate next as president](https://www.yahoo.com/news/ranking-democrats-party-could-nominate-110000839.html)
+- Nov 29 - [7 Things ER Doctors Say You Should Always Do After A Fall](https://www.yahoo.com/lifestyle/7-things-er-doctors-always-104519843.html)
 - Nov 29 - [These Are The Funniest Signs In November (So Far), And I'm Sorry But I Can't Stop Laughing](https://www.yahoo.com/entertainment/funniest-signs-november-far-im-103102187.html)
-- Nov 29 - [Notre Dame Cathedral unveils its new interior 5 years after devastating fire](https://www.yahoo.com/news/notre-dame-cathedral-going-unveil-084145996.html)
 - Nov 29 - [India to expand EV manufacturing incentives after Tesla disappointment, source says](https://finance.yahoo.com/news/india-expand-ev-manufacturing-incentives-075747059.html)
 <!-- feed end -->
 
