@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [In Less Than a Decade, You Won’t Be Able To Afford Homes in These ZIP Codes](https://finance.yahoo.com/news/less-decade-won-t-able-120016777.html)
-- Nov 29 - [A $63M Royal New Zealand Navy ship that capsized off Samoa was left on autopilot, investigation finds](https://www.yahoo.com/news/63m-royal-zealand-navy-ship-124229301.html)
-- Nov 29 - [Family returns to Lebanon to find a crater where their 50-year-old home once stood](https://www.yahoo.com/news/family-returns-lebanon-crater-where-122344914.html)
-- Nov 29 - [When They Took Fluoride Out of the Water Like RFK Jr. Wants to Do Everywhere, People's Teeth Started Rotting Out of Their Heads](https://www.yahoo.com/news/took-fluoride-water-rfk-jr-120017664.html)
-- Nov 29 - [Texas woman, 85, says she faces homelessness after her bank disputed an 'oral agreement' to modify her mortgage](https://finance.yahoo.com/news/texas-woman-85-says-she-113400977.html)
+- Nov 29 - [Armed men in speedboats make off with women and children when a migrants' dinghy deflates off Libya](https://www.yahoo.com/news/armed-men-speedboats-off-women-154239324.html)
+- Nov 29 - [Anti-Israel protesters don’t want to save ‘Palestine’. They want to destroy Western civilisation](https://www.yahoo.com/news/anti-israel-protestors-don-t-151751124.html)
+- Nov 29 - [1 dead after driver crashes head on into SUV, alcohol was ‘a contributing factor’](https://www.yahoo.com/news/lawrenceville-police-investigating-multi-vehicle-023556074.html)
+- Nov 29 - [Israel destroys Hezbollah's 'largest precision-guided missiles manufacturing site' as group vows to 'fight'](https://www.yahoo.com/news/israel-destroys-hezbollahs-largest-precision-125639854.html)
+- Nov 29 - [International Space Station Crew Finds A Long-Lost Tomato](https://www.yahoo.com/news/international-space-station-crew-finds-120000731.html)
 <!-- feed end -->
 
 ### Onstream
