@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [US landmine offer to Ukraine throws global treaty into 'crisis': campaign group](https://www.yahoo.com/news/us-landmine-offer-ukraine-throws-060047591.html)
 - Nov 29 - [Oil field owner sues California over law that would end its Los Angeles-area operations](https://www.yahoo.com/news/oil-field-owner-sues-california-000538499.html)
-- Nov 28 - [A fatal car crash in India sparks concerns over Google Maps](https://www.yahoo.com/news/fatal-car-crash-india-sparks-225415804.html)
 - Nov 28 - [For the first time, France's Macron calls 1944 killings of West African troops by French a massacre](https://www.yahoo.com/news/first-time-frances-macron-calls-223429394.html)
 - Nov 28 - [Grandad killed in beer garden had 'heart of gold'](https://www.yahoo.com/news/grandad-killed-beer-garden-had-165437018.html)
+- Nov 28 - [Musk's Starlink ordered to cease operations in Namibia](https://www.yahoo.com/tech/musks-starlink-ordered-cease-operations-161255534.html)
+- Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
 <!-- feed end -->
 
 ### Onstream
