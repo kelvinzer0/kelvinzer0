@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Families evacuated, condos riddled with bullets where sniper killed Joseph DiFusco](https://www.yahoo.com/news/families-evacuated-condos-riddled-bullets-210618560.html)
-- Nov 29 - [Missing woman Hannah Kobayashi intentionally skipped flight, LAPD chief says](https://www.yahoo.com/news/missing-woman-hannah-kobayashi-intentionally-193246447.html)
-- Nov 29 - [Eaten any cucumbers slices lately? There's a recall in 26 states, including Mass.](https://www.yahoo.com/news/eaten-cucumbers-slices-lately-theres-192519549.html)
-- Nov 29 - [Hezbollah chief pledges to coordinate with army to implement truce](https://www.yahoo.com/news/hezbollah-chief-pledges-coordinate-army-174058667.html)
-- Nov 29 - [Trader Turns $160 Into $6M In Just 12 Days With 'Chill Guy' Meme Coin But Insider Trader Concerns Arise](https://finance.yahoo.com/news/trader-turns-160-6m-just-160016389.html)
+- Nov 29 - [Bill Clinton Casts Blame on Hillary’s Presidential Defeat, Explains His Jeffrey Epstein Ties](https://www.yahoo.com/news/bill-clinton-casts-blame-hillary-222200359.html)
+- Nov 29 - [S&P 500, Dow close at record highs on tech gains](https://finance.yahoo.com/video/p-500-dow-close-record-221205379.html)
+- Nov 29 - [Rachel Maddow’s former mentor says she ‘lost her principles’ for $25m salary](https://www.yahoo.com/entertainment/rachel-maddow-former-mentor-says-220823446.html)
+- Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
+- Nov 29 - [Oak Park police officer fatally wounded in Friday shooting](https://www.yahoo.com/news/oak-park-officer-fatally-wounded-204300235.html)
 <!-- feed end -->
 
 ### Onstream
