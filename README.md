@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [Crew mistakes caused the sinking of a New Zealand navy ship off Samoan coast, inquiry finds](https://www.yahoo.com/news/human-error-caused-sinking-zealand-020501419.html)
 - Nov 29 - [World's Largest Gold Deposit Found, Worth Over US$80 Billion](https://www.yahoo.com/news/worlds-largest-gold-deposit-found-012530485.html)
+- Nov 29 - [Investigation underway after fatal shooting near I-37, Corpus Christi police say](https://www.yahoo.com/news/investigation-underway-fatal-shooting-near-012450727.html)
 - Nov 29 - [Biden reiterates US support for Ukraine after ‘horrific’ Russian attack](https://www.yahoo.com/news/biden-reiterates-us-support-ukraine-003521631.html)
-- Nov 29 - [Oil field owner sues California over law that would end its Los Angeles-area operations](https://www.yahoo.com/news/oil-field-owner-sues-california-000538499.html)
-- Nov 28 - [A fatal car crash in India sparks concerns over Google Maps](https://www.yahoo.com/news/fatal-car-crash-india-sparks-225415804.html)
-- Nov 28 - [How Rachel Maddow is dragging MSNBC down](https://www.yahoo.com/news/rachel-maddow-dragging-msnbc-down-212438821.html)
+- Nov 28 - [For the first time, France's Macron calls 1944 killings of West African troops by French a massacre](https://www.yahoo.com/news/first-time-frances-macron-calls-223429394.html)
 <!-- feed end -->
 
 ### Onstream
