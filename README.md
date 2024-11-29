@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Lula Names Three Central Bank Directors as Key Rate Rises](https://finance.yahoo.com/news/lula-names-three-brazil-central-200155530.html)
+- Nov 29 - [Families evacuated, condos riddled with bullets where sniper killed Joseph DiFusco](https://www.yahoo.com/news/families-evacuated-condos-riddled-bullets-210618560.html)
 - Nov 29 - [Missing woman Hannah Kobayashi intentionally skipped flight, LAPD chief says](https://www.yahoo.com/news/missing-woman-hannah-kobayashi-intentionally-193246447.html)
-- Nov 29 - [ISM manufacturing, Salesforce earnings, JOLTS: What to Watch](https://finance.yahoo.com/video/ism-manufacturing-salesforce-earnings-jolts-193000153.html)
 - Nov 29 - [Eaten any cucumbers slices lately? There's a recall in 26 states, including Mass.](https://www.yahoo.com/news/eaten-cucumbers-slices-lately-theres-192519549.html)
-- Nov 29 - [Mayor Dies in Police Chase Days After Entire Force Resigns](https://www.yahoo.com/news/mayor-dies-police-chase-days-184154570.html)
+- Nov 29 - [Hezbollah chief pledges to coordinate with army to implement truce](https://www.yahoo.com/news/hezbollah-chief-pledges-coordinate-army-174058667.html)
+- Nov 29 - [Trader Turns $160 Into $6M In Just 12 Days With 'Chill Guy' Meme Coin But Insider Trader Concerns Arise](https://finance.yahoo.com/news/trader-turns-160-6m-just-160016389.html)
 <!-- feed end -->
 
 ### Onstream
