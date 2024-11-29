@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Colombian forces spearhead massive international drugs bust](https://www.yahoo.com/news/colombian-forces-spearhead-massive-international-040352538.html)
-- Nov 29 - [Remember James Howells Who Lost His Hard Drive With 8,000 Bitcoins Now Worth $760M? His Ex-Girlfriend Reveals It Was She Who Threw It Away](https://finance.yahoo.com/news/remember-james-howells-lost-hard-003221136.html)
+- Nov 29 - [US landmine offer to Ukraine throws global treaty into 'crisis': campaign group](https://www.yahoo.com/news/us-landmine-offer-ukraine-throws-060047591.html)
 - Nov 29 - [Oil field owner sues California over law that would end its Los Angeles-area operations](https://www.yahoo.com/news/oil-field-owner-sues-california-000538499.html)
-- Nov 28 - [How Rachel Maddow is dragging MSNBC down](https://www.yahoo.com/news/rachel-maddow-dragging-msnbc-down-212438821.html)
-- Nov 28 - [Two Ohio airports ranked in nation’s top 10 most on-time flights](https://www.yahoo.com/news/two-ohio-airports-ranked-nation-183911613.html)
+- Nov 28 - [A fatal car crash in India sparks concerns over Google Maps](https://www.yahoo.com/news/fatal-car-crash-india-sparks-225415804.html)
+- Nov 28 - [For the first time, France's Macron calls 1944 killings of West African troops by French a massacre](https://www.yahoo.com/news/first-time-frances-macron-calls-223429394.html)
+- Nov 28 - [Grandad killed in beer garden had 'heart of gold'](https://www.yahoo.com/news/grandad-killed-beer-garden-had-165437018.html)
 <!-- feed end -->
 
 ### Onstream
