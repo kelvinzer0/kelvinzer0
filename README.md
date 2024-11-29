@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [Crew mistakes caused the sinking of a New Zealand navy ship off Samoan coast, inquiry finds](https://www.yahoo.com/news/human-error-caused-sinking-zealand-020501419.html)
 - Nov 28 - [For the first time, France's Macron calls 1944 killings of West African troops by French a massacre](https://www.yahoo.com/news/first-time-frances-macron-calls-223429394.html)
-- Nov 28 - [Musk's Starlink ordered to cease operations in Namibia](https://www.yahoo.com/tech/musks-starlink-ordered-cease-operations-161255534.html)
-- Nov 28 - [Shelby GT500 Takes on the 2023 Dodge Challenger Black Ghost in a Thrilling Drag Race Showdown](https://autos.yahoo.com/shelby-gt500-takes-2023-dodge-201558736.html)
-- Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
-- Nov 28 - [Traditional vs. Roth IRAs: Which Pays Off More? A Side-by-Side Comparison in Charts.](https://finance.yahoo.com/news/charts-show-traditional-iras-roth-170000115.html)
+- Nov 28 - [Matt Gaetz raises eyebrows with bizarre response to Trump’s Thanksgiving Day rant](https://www.yahoo.com/news/matt-gaetz-raises-eyebrows-bizarre-184254774.html)
+- Nov 28 - [A Canadian man drives a stranded American family 1,000 miles to Alaska](https://www.yahoo.com/news/canadian-man-drives-stranded-american-182017678.html)
+- Nov 28 - [Grandad killed in beer garden had 'heart of gold'](https://www.yahoo.com/news/grandad-killed-beer-garden-had-165437018.html)
 <!-- feed end -->
 
 ### Onstream
