@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Palantir: The Next Oracle? Expert Predicts A Monster Run To $100](https://finance.yahoo.com/news/palantir-next-oracle-expert-predicts-180033086.html)
+- Nov 29 - [Zelensky: I’ll give up Ukrainian territory to Russia to achieve peace](https://www.yahoo.com/news/zelensky-says-willing-cede-ukrainian-193636628.html)
+- Nov 29 - [Eaten any cucumbers slices lately? There's a recall in 26 states, including Mass.](https://www.yahoo.com/news/eaten-cucumbers-slices-lately-theres-192519549.html)
+- Nov 29 - [My 85-Year-Old Mother Has Dementia And Loves Going To The Casino – Suze Orman Advises On How To Handle The Situation](https://finance.yahoo.com/news/85-old-mother-dementia-loves-181517772.html)
+- Nov 29 - [Hezbollah chief pledges to coordinate with army to implement truce](https://www.yahoo.com/news/hezbollah-chief-pledges-coordinate-army-174058667.html)
 - Nov 29 - [More details emerge in court in death of 80-year-old on the South Shore](https://www.yahoo.com/news/arrest-made-connection-death-80-160519859.html)
-- Nov 29 - [Armed men in speedboats make off with women and children when a migrants' dinghy deflates off Libya](https://www.yahoo.com/news/armed-men-speedboats-off-women-154239324.html)
-- Nov 29 - [Corvette Flips Trying To Do Burnout While Exiting Car Show](https://autos.yahoo.com/corvette-flips-trying-burnout-while-180000346.html)
-- Nov 29 - [Head of Ohio's teacher pension fund retires Sunday, saying fund is strong despite staff vacancies](https://finance.yahoo.com/news/head-ohios-teacher-pension-fund-152315811.html)
 <!-- feed end -->
 
 ### Onstream
