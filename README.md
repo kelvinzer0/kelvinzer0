@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [Black Friday shoppers are seeking in-person experiences this season](https://finance.yahoo.com/video/black-friday-shoppers-seeking-person-165500173.html)
+- Nov 29 - [Arrest made in connection with death of 80-year-old on the South Shore](https://www.yahoo.com/news/arrest-made-connection-death-80-160519859.html)
+- Nov 29 - [Trader Turns $160 Into $6M In Just 12 Days With 'Chill Guy' Meme Coin But Insider Trader Concerns Arise](https://finance.yahoo.com/news/trader-turns-160-6m-just-160016389.html)
+- Nov 29 - [Passengers stage hunger strike on luxury Antarctica cruise after missing out on dream holiday](https://www.yahoo.com/news/passengers-stage-hunger-strike-luxury-154502759.html)
 - Nov 29 - [Armed men in speedboats make off with women and children when a migrants' dinghy deflates off Libya](https://www.yahoo.com/news/armed-men-speedboats-off-women-154239324.html)
-- Nov 29 - [Anti-Israel protesters don’t want to save ‘Palestine’. They want to destroy Western civilisation](https://www.yahoo.com/news/anti-israel-protestors-don-t-151751124.html)
-- Nov 29 - [1 dead after driver crashes head on into SUV, alcohol was ‘a contributing factor’](https://www.yahoo.com/news/lawrenceville-police-investigating-multi-vehicle-023556074.html)
-- Nov 29 - [Israel destroys Hezbollah's 'largest precision-guided missiles manufacturing site' as group vows to 'fight'](https://www.yahoo.com/news/israel-destroys-hezbollahs-largest-precision-125639854.html)
-- Nov 29 - [International Space Station Crew Finds A Long-Lost Tomato](https://www.yahoo.com/news/international-space-station-crew-finds-120000731.html)
 <!-- feed end -->
 
 ### Onstream
