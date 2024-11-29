@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Starbucks opens branch at South Korean observatory near border with North Korea](https://www.yahoo.com/news/starbucks-opens-branch-south-korean-053913983.html)
+- Nov 29 - [World's Largest Gold Deposit Found, Worth Over US$80 Billion](https://www.yahoo.com/news/worlds-largest-gold-deposit-found-012530485.html)
+- Nov 29 - [Biden reiterates US support for Ukraine after ‘horrific’ Russian attack](https://www.yahoo.com/news/biden-reiterates-us-support-ukraine-003521631.html)
 - Nov 29 - [Oil field owner sues California over law that would end its Los Angeles-area operations](https://www.yahoo.com/news/oil-field-owner-sues-california-000538499.html)
-- Nov 28 - [For the first time, France's Macron calls 1944 killings of West African troops by French a massacre](https://www.yahoo.com/news/first-time-frances-macron-calls-223429394.html)
-- Nov 28 - [Grandad killed in beer garden had 'heart of gold'](https://www.yahoo.com/news/grandad-killed-beer-garden-had-165437018.html)
-- Nov 28 - [Musk's Starlink ordered to cease operations in Namibia](https://www.yahoo.com/tech/musks-starlink-ordered-cease-operations-161255534.html)
+- Nov 28 - [A fatal car crash in India sparks concerns over Google Maps](https://www.yahoo.com/news/fatal-car-crash-india-sparks-225415804.html)
+- Nov 28 - [How Rachel Maddow is dragging MSNBC down](https://www.yahoo.com/news/rachel-maddow-dragging-msnbc-down-212438821.html)
 <!-- feed end -->
 
 ### Onstream
