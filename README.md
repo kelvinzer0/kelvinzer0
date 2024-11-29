@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Officer who rammed escaped cow with police car returns to frontline duties despite thousands of complaints](https://www.yahoo.com/news/police-driver-rammed-cow-return-124118936.html)
-- Nov 29 - [Ranking the Democrats: Here’s who the party could nominate next as president](https://www.yahoo.com/news/ranking-democrats-party-could-nominate-110000839.html)
-- Nov 29 - [7 Things ER Doctors Say You Should Always Do After A Fall](https://www.yahoo.com/lifestyle/7-things-er-doctors-always-104519843.html)
-- Nov 29 - [These Are The Funniest Signs In November (So Far), And I'm Sorry But I Can't Stop Laughing](https://www.yahoo.com/entertainment/funniest-signs-november-far-im-103102187.html)
-- Nov 29 - [India to expand EV manufacturing incentives after Tesla disappointment, source says](https://finance.yahoo.com/news/india-expand-ev-manufacturing-incentives-075747059.html)
+- Nov 29 - [In Less Than a Decade, You Won’t Be Able To Afford Homes in These ZIP Codes](https://finance.yahoo.com/news/less-decade-won-t-able-120016777.html)
+- Nov 29 - [A $63M Royal New Zealand Navy ship that capsized off Samoa was left on autopilot, investigation finds](https://www.yahoo.com/news/63m-royal-zealand-navy-ship-124229301.html)
+- Nov 29 - [Family returns to Lebanon to find a crater where their 50-year-old home once stood](https://www.yahoo.com/news/family-returns-lebanon-crater-where-122344914.html)
+- Nov 29 - [When They Took Fluoride Out of the Water Like RFK Jr. Wants to Do Everywhere, People's Teeth Started Rotting Out of Their Heads](https://www.yahoo.com/news/took-fluoride-water-rfk-jr-120017664.html)
+- Nov 29 - [Texas woman, 85, says she faces homelessness after her bank disputed an 'oral agreement' to modify her mortgage](https://finance.yahoo.com/news/texas-woman-85-says-she-113400977.html)
 <!-- feed end -->
 
 ### Onstream
