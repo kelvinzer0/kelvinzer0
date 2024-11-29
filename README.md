@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Grandad killed in beer garden had 'heart of gold'](https://www.yahoo.com/news/grandad-killed-beer-garden-had-165437018.html)
+- Nov 28 - [For the first time, France's Macron calls 1944 killings of West African troops by French a massacre](https://www.yahoo.com/news/first-time-frances-macron-calls-223429394.html)
+- Nov 28 - [Musk's Starlink ordered to cease operations in Namibia](https://www.yahoo.com/tech/musks-starlink-ordered-cease-operations-161255534.html)
+- Nov 28 - [Shelby GT500 Takes on the 2023 Dodge Challenger Black Ghost in a Thrilling Drag Race Showdown](https://autos.yahoo.com/shelby-gt500-takes-2023-dodge-201558736.html)
 - Nov 28 - [How Much Money You Should Have in Your 401(k), According to Expert Humphrey Yang](https://finance.yahoo.com/news/much-money-401-k-according-140018897.html)
-- Nov 28 - [Sen. John Fetterman Describes The Moment That Paved The Way For Trump's Victory](https://www.yahoo.com/news/sen-john-fetterman-describes-moment-153741991.html)
-- Nov 28 - [Putin says he does not believe Trump is safe after assassination attempts](https://www.yahoo.com/news/putin-says-does-not-believe-152800058.html)
-- Nov 28 - [Israeli airstrikes leave massive trail of destruction across Lebanon](https://www.yahoo.com/news/israeli-airstrikes-leave-massive-trail-143751519.html)
+- Nov 28 - [Traditional vs. Roth IRAs: Which Pays Off More? A Side-by-Side Comparison in Charts.](https://finance.yahoo.com/news/charts-show-traditional-iras-roth-170000115.html)
 <!-- feed end -->
 
 ### Onstream
