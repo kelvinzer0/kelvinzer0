@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Black Friday shoppers are seeking in-person experiences this season](https://finance.yahoo.com/video/black-friday-shoppers-seeking-person-165500173.html)
-- Nov 29 - [Arrest made in connection with death of 80-year-old on the South Shore](https://www.yahoo.com/news/arrest-made-connection-death-80-160519859.html)
-- Nov 29 - [Trader Turns $160 Into $6M In Just 12 Days With 'Chill Guy' Meme Coin But Insider Trader Concerns Arise](https://finance.yahoo.com/news/trader-turns-160-6m-just-160016389.html)
-- Nov 29 - [Passengers stage hunger strike on luxury Antarctica cruise after missing out on dream holiday](https://www.yahoo.com/news/passengers-stage-hunger-strike-luxury-154502759.html)
+- Nov 29 - [Young mother killed after being knocked off e-bike in hit-and-run is named](https://www.yahoo.com/news/young-mother-killed-being-knocked-145719323.html)
+- Nov 29 - [Assisted dying bill supporters celebrate in London](https://www.yahoo.com/news/assisted-dying-bill-supporters-celebrate-175536843.html)
 - Nov 29 - [Armed men in speedboats make off with women and children when a migrants' dinghy deflates off Libya](https://www.yahoo.com/news/armed-men-speedboats-off-women-154239324.html)
+- Nov 29 - [Head of Ohio's teacher pension fund retires Sunday, saying fund is strong despite staff vacancies](https://finance.yahoo.com/news/head-ohios-teacher-pension-fund-152315811.html)
+- Nov 29 - [Trump Wants To Eliminate Social Security Taxes: 10 States Where Retirees Would Save the Least](https://finance.yahoo.com/news/trump-wants-eliminate-social-security-110157905.html)
 <!-- feed end -->
 
 ### Onstream
