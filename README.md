@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Young mother killed after being knocked off e-bike in hit-and-run is named](https://www.yahoo.com/news/young-mother-killed-being-knocked-145719323.html)
-- Nov 29 - [Assisted dying bill supporters celebrate in London](https://www.yahoo.com/news/assisted-dying-bill-supporters-celebrate-175536843.html)
+- Nov 29 - [Palantir: The Next Oracle? Expert Predicts A Monster Run To $100](https://finance.yahoo.com/news/palantir-next-oracle-expert-predicts-180033086.html)
+- Nov 29 - [More details emerge in court in death of 80-year-old on the South Shore](https://www.yahoo.com/news/arrest-made-connection-death-80-160519859.html)
 - Nov 29 - [Armed men in speedboats make off with women and children when a migrants' dinghy deflates off Libya](https://www.yahoo.com/news/armed-men-speedboats-off-women-154239324.html)
+- Nov 29 - [Corvette Flips Trying To Do Burnout While Exiting Car Show](https://autos.yahoo.com/corvette-flips-trying-burnout-while-180000346.html)
 - Nov 29 - [Head of Ohio's teacher pension fund retires Sunday, saying fund is strong despite staff vacancies](https://finance.yahoo.com/news/head-ohios-teacher-pension-fund-152315811.html)
-- Nov 29 - [Trump Wants To Eliminate Social Security Taxes: 10 States Where Retirees Would Save the Least](https://finance.yahoo.com/news/trump-wants-eliminate-social-security-110157905.html)
 <!-- feed end -->
 
 ### Onstream
