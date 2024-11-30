@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [Dentists Are Begging People To Stop Eating These 6 Foods And Drinks, Because Not Even Flossing Can Save You From The Damage](https://www.yahoo.com/lifestyle/dentists-begging-people-stop-eating-221502541.html)
 - Nov 30 - [Doctors And Nurses Are Calling Out The Health "Lies" You Should STOP Believing, And It's Shocking](https://www.yahoo.com/lifestyle/doctors-nurses-calling-health-lies-212102455.html)
-- Nov 30 - [The illusion of Assad’s grip on Syria shatters, as Russia, Iran and Hezbollah let their guard down](https://www.yahoo.com/news/illusion-assad-grip-syria-shatters-201733195.html)
-- Nov 30 - [4 Sneaky Car Dealership Scams That Might Be Illegal in 2025](https://finance.yahoo.com/news/4-sneaky-car-dealership-scams-140036803.html)
 - Nov 30 - [Boeing's CEO is forcing executives to give up private jets and fly commercial to save money](https://www.yahoo.com/news/boeings-ceo-forcing-executives-private-195122681.html)
-- Nov 30 - [Trump wants pardoned real estate developer Charles Kushner to be ambassador to France](https://www.yahoo.com/news/trump-wants-pardoned-real-estate-194239766.html)
+- Nov 30 - [Trump wants pardoned real estate developer Charles Kushner to become US ambassador to France](https://www.yahoo.com/news/trump-wants-pardoned-real-estate-194239766.html)
+- Nov 30 - [Trump’s second alleged would-be assassin wrote to this POLITICO writer. Here’s what he learned.](https://www.yahoo.com/news/trump-second-alleged-assassin-wrote-192543406.html)
 <!-- feed end -->
 
 ### Onstream
