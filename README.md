@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Stealth destroyer to be home for 1st hypersonic weapon on a US warship](https://www.yahoo.com/news/stealth-destroyer-home-1st-hypersonic-050549819.html)
-- Nov 30 - [Palestinians struggle to survive amid food shortage in Gaza](https://www.yahoo.com/news/palestinians-struggle-survive-amid-food-012437351.html)
-- Nov 30 - [VIDEO: New Mexico State Police arrest woman accused of driving drunk and hitting firefighter](https://www.yahoo.com/news/video-mexico-state-police-arrest-001500088.html)
-- Nov 29 - [More than 3,000 fake Gibson guitars seized at Los Angeles port](https://www.yahoo.com/news/more-3-000-fake-gibson-225041733.html)
+- Nov 30 - [Older Adults Are Sharing The Wild But Common School Experiences From The Past That Wouldn't Fly Today](https://www.yahoo.com/lifestyle/older-adults-sharing-wild-common-024802528.html)
 - Nov 29 - [Mysterious Network of Canals From 4,000 Years Ago Predates The Maya](https://www.yahoo.com/news/mysterious-network-canals-4-000-223026655.html)
+- Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
+- Nov 29 - [People Who Were Raised by ‘Older’ Parents Often Develop These 7 Traits as Adults](https://www.yahoo.com/lifestyle/people-were-raised-older-parents-212500522.html)
+- Nov 29 - [State of Emergency declared for much of WNY amid storm](https://www.yahoo.com/news/state-emergency-declared-much-wny-195919487.html)
 <!-- feed end -->
 
 ### Onstream
