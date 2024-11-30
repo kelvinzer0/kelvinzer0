@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [This Florida couple bought a home from foreign nationals — months later, they received a $30K fine from the IRS](https://finance.yahoo.com/news/florida-couple-bought-home-foreign-122100971.html)
+- Nov 30 - [One person killed, five others injured in Friday crash on I-75 in Marion County](https://www.yahoo.com/news/one-person-killed-five-others-120720095.html)
+- Nov 30 - [Zelenskyy says NATO offer for Ukraine-controlled territory could end 'hot stage' of war](https://www.yahoo.com/news/zelenskyy-says-nato-offer-ukraine-115004346.html)
 - Nov 30 - [South Korean Navy Seal Knocks Out Controversial American Streamer Johnny Somali](https://www.yahoo.com/entertainment/south-korean-navy-seal-knocks-053543922.html)
 - Nov 30 - [Stealth destroyer to be home for 1st hypersonic weapon on a US warship](https://www.yahoo.com/news/stealth-destroyer-home-1st-hypersonic-050549819.html)
-- Nov 30 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
-- Nov 29 - [More than 3,000 fake Gibson guitars seized at Los Angeles port](https://www.yahoo.com/news/more-3-000-fake-gibson-225041733.html)
-- Nov 29 - [Mysterious Network of Canals From 4,000 Years Ago Predates The Maya](https://www.yahoo.com/news/mysterious-network-canals-4-000-223026655.html)
 <!-- feed end -->
 
 ### Onstream
