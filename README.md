@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
+- Nov 30 - [Why there was a 7-mile backup Friday on southbound I-5 in Marion County](https://www.yahoo.com/news/why-7-mile-backup-friday-011738589.html)
+- Nov 29 - [Mysterious Network of Canals From 4,000 Years Ago Predates The Maya](https://www.yahoo.com/news/mysterious-network-canals-4-000-223026655.html)
+- Nov 29 - [Bill Clinton Casts Blame on Hillary’s Presidential Defeat, Explains His Jeffrey Epstein Ties](https://www.yahoo.com/news/bill-clinton-casts-blame-hillary-222200359.html)
+- Nov 29 - [S&P 500, Dow close at record highs on tech gains](https://finance.yahoo.com/video/p-500-dow-close-record-221205379.html)
 - Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
-- Nov 29 - [State of Emergency declared for much of WNY amid storm](https://www.yahoo.com/news/state-emergency-declared-much-wny-195919487.html)
-- Nov 29 - [Dead stars within supernova explosions could solve the dark matter mystery in 10 seconds](https://www.yahoo.com/news/dead-stars-within-supernova-explosions-190001884.html)
-- Nov 29 - [Hezbollah chief pledges to coordinate with army to implement truce](https://www.yahoo.com/news/hezbollah-chief-pledges-coordinate-army-174058667.html)
 <!-- feed end -->
 
 ### Onstream
