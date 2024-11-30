@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Massillon to close downtown streets for about 30 days for demolition of buildings](https://www.yahoo.com/news/massillon-close-downtown-streets-30-101150417.html)
 - Nov 30 - [South Korean Navy Seal Knocks Out Controversial American Streamer Johnny Somali](https://www.yahoo.com/entertainment/south-korean-navy-seal-knocks-053543922.html)
 - Nov 30 - [Stealth destroyer to be home for 1st hypersonic weapon on a US warship](https://www.yahoo.com/news/stealth-destroyer-home-1st-hypersonic-050549819.html)
+- Nov 30 - [Missing hiker found after surviving more than a month in Canada’s snowy wilderness](https://www.yahoo.com/news/missing-hiker-found-surviving-more-235321315.html)
+- Nov 29 - [More than 3,000 fake Gibson guitars seized at Los Angeles port](https://www.yahoo.com/news/more-3-000-fake-gibson-225041733.html)
 - Nov 29 - [Mysterious Network of Canals From 4,000 Years Ago Predates The Maya](https://www.yahoo.com/news/mysterious-network-canals-4-000-223026655.html)
-- Nov 29 - [Bill Clinton Casts Blame on Hillary’s Presidential Defeat, Explains His Jeffrey Epstein Ties](https://www.yahoo.com/news/bill-clinton-casts-blame-hillary-222200359.html)
 <!-- feed end -->
 
 ### Onstream
