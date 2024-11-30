@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [Gautam Adani breaks silence on US allegations to say his group is committed to compliance](https://finance.yahoo.com/news/gautam-adani-breaks-silence-us-160834895.html)
 - Nov 30 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary insists this simple money move is key for retirement](https://finance.yahoo.com/news/ll-end-1-5-million-152000787.html)
-- Nov 30 - [U-2 Spy Plane Captured Stunning Image Of Chinese Surveillance Balloon](https://www.yahoo.com/news/u-2-spy-plane-captured-150000718.html)
 - Nov 30 - [Children carry out surge of contract killings as Swedish gangs exploit loophole in the law](https://www.yahoo.com/news/children-carry-surge-contract-killings-150000981.html)
-- Nov 30 - [Why Is Chevron Corporation (CVX) Among the Best American Energy Stocks to Buy According to Hedge Funds?](https://finance.yahoo.com/news/why-chevron-corporation-cvx-among-145032683.html)
-- Nov 30 - ['Harry Potter' star Rupert Grint hit with $2.3 million tax bill after losing legal battle](https://www.yahoo.com/entertainment/harry-potter-star-rupert-grint-142641036.html)
+- Nov 30 - [U-2 Spy Plane Captured Stunning Image Of Chinese Surveillance Balloon](https://www.yahoo.com/news/u-2-spy-plane-captured-150000718.html)
+- Nov 30 - [She moved into a neighborhood of 3D printed homes in Texas — see what it's like inside](https://www.yahoo.com/news/she-just-moved-neighborhood-3d-080102143.html)
 <!-- feed end -->
 
 ### Onstream
