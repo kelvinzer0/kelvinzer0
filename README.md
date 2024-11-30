@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [South Korean Navy Seal Knocks Out Controversial American Streamer Johnny Somali](https://www.yahoo.com/entertainment/south-korean-navy-seal-knocks-053543922.html)
+- Nov 30 - [Stealth destroyer to be home for 1st hypersonic weapon on a US warship](https://www.yahoo.com/news/stealth-destroyer-home-1st-hypersonic-050549819.html)
 - Nov 30 - [Older Adults Are Sharing The Wild But Common School Experiences From The Past That Wouldn't Fly Today](https://www.yahoo.com/lifestyle/older-adults-sharing-wild-common-024802528.html)
+- Nov 29 - [CNN commentator Scott Jennings joins Los Angeles Times editorial board after owner calls for more conservative voices](https://www.yahoo.com/news/cnn-commentator-scott-jennings-joins-230435915.html)
 - Nov 29 - [Mysterious Network of Canals From 4,000 Years Ago Predates The Maya](https://www.yahoo.com/news/mysterious-network-canals-4-000-223026655.html)
-- Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
-- Nov 29 - [People Who Were Raised by ‘Older’ Parents Often Develop These 7 Traits as Adults](https://www.yahoo.com/lifestyle/people-were-raised-older-parents-212500522.html)
-- Nov 29 - [State of Emergency declared for much of WNY amid storm](https://www.yahoo.com/news/state-emergency-declared-much-wny-195919487.html)
 <!-- feed end -->
 
 ### Onstream
