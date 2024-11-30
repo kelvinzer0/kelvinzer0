@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Jim Cramer Says Nvidia (NVDA) Stock Price Not Capturing ‘Seismic Shift’ Happening in Market](https://finance.yahoo.com/news/jim-cramer-says-nvidia-nvda-023339891.html)
-- Nov 30 - ['RHOP' Karen Huger Loses Plea To Exclude DUI Footage From Evidence](https://www.yahoo.com/entertainment/rhop-karen-huger-loses-plea-001544920.html)
+- Nov 30 - [Palestinians struggle to survive amid food shortage in Gaza](https://www.yahoo.com/news/palestinians-struggle-survive-amid-food-012437351.html)
+- Nov 30 - [Why there was a 7-mile backup Friday on southbound I-5 in Marion County](https://www.yahoo.com/news/why-7-mile-backup-friday-011738589.html)
+- Nov 29 - [Mysterious Network of Canals From 4,000 Years Ago Predates The Maya](https://www.yahoo.com/news/mysterious-network-canals-4-000-223026655.html)
 - Nov 29 - [Bill Clinton Casts Blame on Hillary’s Presidential Defeat, Explains His Jeffrey Epstein Ties](https://www.yahoo.com/news/bill-clinton-casts-blame-hillary-222200359.html)
 - Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
-- Nov 29 - [State of Emergency declared for much of WNY amid storm](https://www.yahoo.com/news/state-emergency-declared-much-wny-195919487.html)
 <!-- feed end -->
 
 ### Onstream
