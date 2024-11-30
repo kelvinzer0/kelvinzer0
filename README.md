@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Apple's 'beautiful, lightweight' iPad Air is a record $100 off for Black Friday](https://www.yahoo.com/tech/apples-beautiful-lightweight-ipad-air-is-a-record-100-off-for-black-friday-171759263.html)
-- Nov 30 - [Everything you need to know about Arizona's harsh DUI laws](https://www.yahoo.com/news/everything-know-arizonas-harsh-dui-130143634.html)
-- Nov 30 - [Magic can't save 'Harry Potter' star Rupert Grint from a $2.3 million tax bill](https://finance.yahoo.com/news/magic-cant-save-harry-potter-115930199.html)
-- Nov 30 - [Ukraine's tiny navy is using a WWI-era tactic to confuse its enemy](https://www.yahoo.com/news/ukraines-tiny-navy-using-wwi-112301744.html)
-- Nov 30 - [South Korean Navy Seal Knocks Out Controversial American Streamer Johnny Somali](https://www.yahoo.com/entertainment/south-korean-navy-seal-knocks-053543922.html)
+- Nov 30 - [U-2 Spy Plane Captured Stunning Image Of Chinese Surveillance Balloon](https://www.yahoo.com/news/u-2-spy-plane-captured-150000718.html)
+- Nov 30 - [Can I Retire at 66 on $900k in a Roth IRA and $2,200 a Month From Social Security?](https://finance.yahoo.com/news/900k-roth-ira-receive-2-140416449.html)
+- Nov 30 - [A woman bypassed multiple security checkpoints to get on a Delta flight to Paris. Here’s what we know](https://www.yahoo.com/news/woman-bypassed-multiple-security-checkpoints-140134620.html)
+- Nov 30 - [She moved into a neighborhood of 3D printed homes in Texas — see what it's like inside](https://www.yahoo.com/news/she-just-moved-neighborhood-3d-080102143.html)
+- Nov 30 - [Elon Musk's Plans for a City on Mars Will Likely End in Horrifying Mass Death](https://www.yahoo.com/news/elon-musks-plans-city-mars-120032022.html)
 <!-- feed end -->
 
 ### Onstream
