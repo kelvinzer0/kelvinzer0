@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [I Thought I Knew What Shock Felt Like — Then I Saw These 18 Photos](https://www.yahoo.com/entertainment/thought-knew-shock-felt-then-003103099.html)
+- Nov 30 - [Millions of Americans head home from Thanksgiving as U.S. braces for snow](https://www.yahoo.com/news/millions-americans-head-home-thanksgiving-001248292.html)
+- Nov 29 - [Recalled cucumbers linked to multistate salmonella outbreak, health agencies warn](https://www.yahoo.com/news/cucumbers-recalled-illnesses-salmonella-contamination-190721314.html)
+- Nov 29 - [A woman bypassed multiple security checkpoints to get on a Delta flight to Paris. Here’s what we know](https://www.yahoo.com/news/woman-bypassed-multiple-security-checkpoints-140134620.html)
 - Nov 29 - [Bill Clinton Casts Blame on Hillary’s Presidential Defeat, Explains His Jeffrey Epstein Ties](https://www.yahoo.com/news/bill-clinton-casts-blame-hillary-222200359.html)
-- Nov 29 - [S&P 500, Dow close at record highs on tech gains](https://finance.yahoo.com/video/p-500-dow-close-record-221205379.html)
-- Nov 29 - [Rachel Maddow’s former mentor says she ‘lost her principles’ for $25m salary](https://www.yahoo.com/entertainment/rachel-maddow-former-mentor-says-220823446.html)
-- Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
-- Nov 29 - [Oak Park police officer fatally wounded in Friday shooting](https://www.yahoo.com/news/oak-park-officer-fatally-wounded-204300235.html)
 <!-- feed end -->
 
 ### Onstream
