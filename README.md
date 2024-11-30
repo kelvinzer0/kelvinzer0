@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Why there was a 7-mile backup Friday on southbound I-5 in Marion County](https://www.yahoo.com/news/why-7-mile-backup-friday-011738589.html)
+- Nov 30 - [Stealth destroyer to be home for 1st hypersonic weapon on a US warship](https://www.yahoo.com/news/stealth-destroyer-home-1st-hypersonic-050549819.html)
+- Nov 30 - [Palestinians struggle to survive amid food shortage in Gaza](https://www.yahoo.com/news/palestinians-struggle-survive-amid-food-012437351.html)
+- Nov 30 - [VIDEO: New Mexico State Police arrest woman accused of driving drunk and hitting firefighter](https://www.yahoo.com/news/video-mexico-state-police-arrest-001500088.html)
+- Nov 29 - [More than 3,000 fake Gibson guitars seized at Los Angeles port](https://www.yahoo.com/news/more-3-000-fake-gibson-225041733.html)
 - Nov 29 - [Mysterious Network of Canals From 4,000 Years Ago Predates The Maya](https://www.yahoo.com/news/mysterious-network-canals-4-000-223026655.html)
-- Nov 29 - [Bill Clinton Casts Blame on Hillary’s Presidential Defeat, Explains His Jeffrey Epstein Ties](https://www.yahoo.com/news/bill-clinton-casts-blame-hillary-222200359.html)
-- Nov 29 - [S&P 500, Dow close at record highs on tech gains](https://finance.yahoo.com/video/p-500-dow-close-record-221205379.html)
-- Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
 <!-- feed end -->
 
 ### Onstream
