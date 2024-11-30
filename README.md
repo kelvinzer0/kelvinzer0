@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [This Florida couple bought a home from foreign nationals — months later, they received a $30K fine from the IRS](https://finance.yahoo.com/news/florida-couple-bought-home-foreign-122100971.html)
-- Nov 30 - [One person killed, five others injured in Friday crash on I-75 in Marion County](https://www.yahoo.com/news/one-person-killed-five-others-120720095.html)
-- Nov 30 - [Zelenskyy says NATO offer for Ukraine-controlled territory could end 'hot stage' of war](https://www.yahoo.com/news/zelenskyy-says-nato-offer-ukraine-115004346.html)
+- Nov 30 - [Apple's 'beautiful, lightweight' iPad Air is a record $100 off for Black Friday](https://www.yahoo.com/tech/apples-beautiful-lightweight-ipad-air-is-a-record-100-off-for-black-friday-171759263.html)
+- Nov 30 - [Everything you need to know about Arizona's harsh DUI laws](https://www.yahoo.com/news/everything-know-arizonas-harsh-dui-130143634.html)
+- Nov 30 - [Magic can't save 'Harry Potter' star Rupert Grint from a $2.3 million tax bill](https://finance.yahoo.com/news/magic-cant-save-harry-potter-115930199.html)
+- Nov 30 - [Ukraine's tiny navy is using a WWI-era tactic to confuse its enemy](https://www.yahoo.com/news/ukraines-tiny-navy-using-wwi-112301744.html)
 - Nov 30 - [South Korean Navy Seal Knocks Out Controversial American Streamer Johnny Somali](https://www.yahoo.com/entertainment/south-korean-navy-seal-knocks-053543922.html)
-- Nov 30 - [Stealth destroyer to be home for 1st hypersonic weapon on a US warship](https://www.yahoo.com/news/stealth-destroyer-home-1st-hypersonic-050549819.html)
 <!-- feed end -->
 
 ### Onstream
