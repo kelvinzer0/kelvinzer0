@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [I Thought I Knew What Shock Felt Like — Then I Saw These 18 Photos](https://www.yahoo.com/entertainment/thought-knew-shock-felt-then-003103099.html)
-- Nov 30 - [Millions of Americans head home from Thanksgiving as U.S. braces for snow](https://www.yahoo.com/news/millions-americans-head-home-thanksgiving-001248292.html)
-- Nov 29 - [Recalled cucumbers linked to multistate salmonella outbreak, health agencies warn](https://www.yahoo.com/news/cucumbers-recalled-illnesses-salmonella-contamination-190721314.html)
-- Nov 29 - [A woman bypassed multiple security checkpoints to get on a Delta flight to Paris. Here’s what we know](https://www.yahoo.com/news/woman-bypassed-multiple-security-checkpoints-140134620.html)
+- Nov 30 - [Jim Cramer Says Nvidia (NVDA) Stock Price Not Capturing ‘Seismic Shift’ Happening in Market](https://finance.yahoo.com/news/jim-cramer-says-nvidia-nvda-023339891.html)
+- Nov 30 - ['RHOP' Karen Huger Loses Plea To Exclude DUI Footage From Evidence](https://www.yahoo.com/entertainment/rhop-karen-huger-loses-plea-001544920.html)
 - Nov 29 - [Bill Clinton Casts Blame on Hillary’s Presidential Defeat, Explains His Jeffrey Epstein Ties](https://www.yahoo.com/news/bill-clinton-casts-blame-hillary-222200359.html)
+- Nov 29 - [Mexico's congress votes to charge cruise ship passengers $42 per head for port calls](https://www.yahoo.com/news/mexicos-congress-votes-charge-cruise-215025731.html)
+- Nov 29 - [State of Emergency declared for much of WNY amid storm](https://www.yahoo.com/news/state-emergency-declared-much-wny-195919487.html)
 <!-- feed end -->
 
 ### Onstream
