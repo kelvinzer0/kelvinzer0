@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Black Friday spending soars near $11 billion online, shattering a record](https://www.yahoo.com/news/black-friday-spending-soars-near-001420619.html)
+- Dec 01 - [Left behind in Kenya, children of British soldiers struggle to find their identity](https://www.yahoo.com/news/left-behind-kenya-children-british-024633500.html)
+- Dec 01 - [Dole Fruit Founder Sells The Last Of His Lanai Property To Oracle's Larry Ellison](https://finance.yahoo.com/news/dole-fruit-founder-sells-last-013040439.html)
 - Dec 01 - [Pete Hegseth’s mother speaks out after accusing him of mistreating women](https://www.yahoo.com/news/pete-hegseth-mother-speaks-accusing-001213965.html)
 - Dec 01 - [Trump taps Kash Patel for FBI director, an ally who would aid in his effort to upend law enforcement](https://www.yahoo.com/news/trump-names-loyalist-kash-patel-000445057.html)
 - Nov 30 - [Warren Buffett Reveals How To Invest $10,000 If You Want To Get Rich](https://finance.yahoo.com/news/warren-buffett-reveals-invest-10-110045016.html)
-- Nov 30 - [Dentists Are Begging People To Stop Eating These 6 Foods And Drinks, Because Not Even Flossing Can Save You From The Damage](https://www.yahoo.com/lifestyle/dentists-begging-people-stop-eating-221502541.html)
 <!-- feed end -->
 
 ### Onstream
