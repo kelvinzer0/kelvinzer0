@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Exclusive-Bangladesh wants to renegotiate Adani power deal unless court cancels](https://finance.yahoo.com/news/exclusive-bangladesh-wants-renegotiate-adani-162148786.html)
-- Dec 01 - [Girl, 4, is rescued from freezing car parked at truck stop while her guardian played ‘skill games’ inside](https://www.yahoo.com/news/girl-4-rescued-freezing-car-155722727.html)
+- Dec 01 - [‘Stop talking and get a lawyer’: Inside the descent of a Colorado dentist accused of fatally poisoning his wife](https://www.yahoo.com/news/stop-talking-lawyer-inside-descent-170048907.html)
+- Dec 01 - [Reputed head of crime family narrowly misses out on Dublin parliament seat](https://www.yahoo.com/news/reputed-head-crime-family-narrowly-164050438.html)
+- Dec 01 - [Trump picks Massad Boulos to serve as adviser on Arab, Middle Eastern affairs](https://www.yahoo.com/news/trump-says-massad-boulos-serve-160240036.html)
+- Dec 01 - [2 die in crash on Interstate 43 in Manitowoc County Sunday morning](https://www.yahoo.com/news/2-die-crash-interstate-43-155235171.html)
 - Dec 01 - [Pelosi Secretly Orchestrating Another Attempted Shake-Up of Dem Leadership](https://www.yahoo.com/news/pelosi-secretly-orchestrating-another-attempted-154728668.html)
-- Dec 01 - [People Are Sharing The Things That Ended Up Permanently Affecting Their Bodies Years Later Without Even Realizing It](https://www.yahoo.com/lifestyle/people-sharing-things-ended-permanently-141602234.html)
-- Dec 01 - [‘I knew my daughter was going to die’, says mother of lawyer killed by methanol poisoning in Laos](https://www.yahoo.com/news/knew-daughter-going-die-says-133120068.html)
 <!-- feed end -->
 
 ### Onstream
