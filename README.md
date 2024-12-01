@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 01 - [Recess appointments could put Trump at odds with conservatives on the Supreme Court](https://www.yahoo.com/news/recess-appointments-could-put-trump-124153629.html)
+- Dec 01 - [See how different Elon Musk, Jeff Bezos, and other tech CEOs looked when they first started their companies](https://www.yahoo.com/tech/then-now-tech-ceos-founders-123759629.html)
+- Dec 01 - [Leading battery company unveils 'world's first' technology with 10-minute-charging capability: 'Heralding a new era'](https://www.yahoo.com/tech/leading-battery-company-unveils-worlds-104501560.html)
 - Dec 01 - [UN halts aid shipments through Gaza's main crossing after looting. It blames the crisis on Israel](https://www.yahoo.com/news/israeli-strikes-gaza-kill-6-074113084.html)
 - Dec 01 - [Left behind in Kenya, children of British soldiers struggle to find their identity](https://www.yahoo.com/news/left-behind-kenya-children-british-050012710.html)
-- Dec 01 - [Japan's popular Princess Aiko turns 23 with her future as a royal in doubt](https://www.yahoo.com/news/japans-popular-princess-aiko-turns-043303632.html)
-- Dec 01 - [Trump taps Kash Patel for FBI director, an ally who would aid in his effort to upend law enforcement](https://www.yahoo.com/news/trump-names-loyalist-kash-patel-000445057.html)
-- Nov 30 - [Critically endangered leopard, 21, dies at the Living Desert Zoo in Palm Desert](https://www.yahoo.com/news/critically-endangered-leopard-21-dies-225200417.html)
 <!-- feed end -->
 
 ### Onstream
