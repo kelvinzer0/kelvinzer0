@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Recess appointments could put Trump at odds with conservatives on the Supreme Court](https://www.yahoo.com/news/recess-appointments-could-put-trump-124153629.html)
-- Dec 01 - [See how different Elon Musk, Jeff Bezos, and other tech CEOs looked when they first started their companies](https://www.yahoo.com/tech/then-now-tech-ceos-founders-123759629.html)
-- Dec 01 - [Leading battery company unveils 'world's first' technology with 10-minute-charging capability: 'Heralding a new era'](https://www.yahoo.com/tech/leading-battery-company-unveils-worlds-104501560.html)
+- Dec 01 - [Mark Cuban admits he’s down on Shark Tank deals after investing $20M into 85 startups — 3 simple lessons for 2025](https://finance.yahoo.com/news/mark-cuban-admits-down-shark-131100851.html)
+- Dec 01 - [Two brothers created the Yeti cooler. Then their partner was murdered.](https://www.yahoo.com/news/yeti-set-conquer-cooler-market-090701023.html)
 - Dec 01 - [UN halts aid shipments through Gaza's main crossing after looting. It blames the crisis on Israel](https://www.yahoo.com/news/israeli-strikes-gaza-kill-6-074113084.html)
 - Dec 01 - [Left behind in Kenya, children of British soldiers struggle to find their identity](https://www.yahoo.com/news/left-behind-kenya-children-british-050012710.html)
+- Dec 01 - [Japan's popular Princess Aiko turns 23 with her future as a royal in doubt](https://www.yahoo.com/news/japans-popular-princess-aiko-turns-043303632.html)
 <!-- feed end -->
 
 ### Onstream
