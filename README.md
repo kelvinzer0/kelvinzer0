@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 01 - [Left behind in Kenya, children of British soldiers struggle to find their identity](https://www.yahoo.com/news/left-behind-kenya-children-british-050012710.html)
 - Dec 01 - [Japan's popular Princess Aiko turns 23 with her future as a royal in doubt](https://www.yahoo.com/news/japans-popular-princess-aiko-turns-043303632.html)
-- Dec 01 - [Dole Fruit Founder Sells The Last Of His Lanai Property To Oracle's Larry Ellison](https://finance.yahoo.com/news/dole-fruit-founder-sells-last-013040439.html)
 - Dec 01 - [Traffic comes to a standstill on Capital City Freeway Sacramento as police investigate](https://www.yahoo.com/news/traffic-comes-standstill-capital-city-004538195.html)
 - Dec 01 - [Pete Hegseth’s mother speaks out after accusing him of mistreating women](https://www.yahoo.com/news/pete-hegseth-mother-speaks-accusing-001213965.html)
+- Dec 01 - [Trump taps Kash Patel for FBI director, an ally who would aid in his effort to upend law enforcement](https://www.yahoo.com/news/trump-names-loyalist-kash-patel-000445057.html)
 <!-- feed end -->
 
 ### Onstream
