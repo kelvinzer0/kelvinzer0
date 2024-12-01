@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Deputy and officer seriously injured in crash during traffic stop in Fort Pierce](https://www.yahoo.com/news/deputy-officer-seriously-injured-crash-171211264.html)
-- Dec 01 - [Reputed head of crime family narrowly misses out on Dublin parliament seat](https://www.yahoo.com/news/reputed-head-crime-family-narrowly-164050438.html)
-- Dec 01 - [Trump picks Massad Boulos to serve as adviser on Arab, Middle Eastern affairs](https://www.yahoo.com/news/trump-says-massad-boulos-serve-160240036.html)
+- Dec 01 - [1 person dead, 2 police officers injured after shooting in Peoria](https://www.yahoo.com/news/1-person-dead-2-police-182913546.html)
+- Dec 01 - [Sorry, But I'm Dying At These Funny Job Tweets From Last Week](https://www.yahoo.com/entertainment/sorry-im-dying-funny-job-181123005.html)
+- Dec 01 - [A Tesla founder started an EV battery recycling company that's on pace to make $200 million a year](https://www.yahoo.com/tech/tesla-founder-started-ev-battery-172606906.html)
+- Dec 01 - [‘Stop talking and get a lawyer’: Inside the descent of a Colorado dentist accused of fatally poisoning his wife](https://www.yahoo.com/news/stop-talking-lawyer-inside-descent-170048907.html)
 - Dec 01 - [Pelosi Secretly Orchestrating Another Attempted Shake-Up of Dem Leadership](https://www.yahoo.com/news/pelosi-secretly-orchestrating-another-attempted-154728668.html)
-- Dec 01 - [19 Everyday Habits People Didn't Realize Could Permanently Change Their Bodies](https://www.yahoo.com/lifestyle/people-sharing-things-ended-permanently-141602234.html)
 <!-- feed end -->
 
 ### Onstream
