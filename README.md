@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Palestinian chef behind Gaza Soup Kitchen slain in Israeli strike](https://www.yahoo.com/news/palestinian-chef-behind-gaza-soup-155404095.html)
-- Dec 01 - [Extended interview: Angela Merkel](https://www.yahoo.com/news/extended-interview-angela-merkel-151720630.html)
+- Dec 01 - [Exclusive-Bangladesh wants to renegotiate Adani power deal unless court cancels](https://finance.yahoo.com/news/exclusive-bangladesh-wants-renegotiate-adani-162148786.html)
+- Dec 01 - [Girl, 4, is rescued from freezing car parked at truck stop while her guardian played ‘skill games’ inside](https://www.yahoo.com/news/girl-4-rescued-freezing-car-155722727.html)
+- Dec 01 - [Pelosi Secretly Orchestrating Another Attempted Shake-Up of Dem Leadership](https://www.yahoo.com/news/pelosi-secretly-orchestrating-another-attempted-154728668.html)
 - Dec 01 - [People Are Sharing The Things That Ended Up Permanently Affecting Their Bodies Years Later Without Even Realizing It](https://www.yahoo.com/lifestyle/people-sharing-things-ended-permanently-141602234.html)
-- Dec 01 - [Mark Cuban admits he’s down on Shark Tank deals after investing $20M into 85 startups — 3 simple lessons for 2025](https://finance.yahoo.com/news/mark-cuban-admits-down-shark-131100851.html)
-- Dec 01 - [Tampa Bay Rays respond to Pinellas commissioner’s letter on stadium deal](https://www.yahoo.com/news/tampa-bay-rays-respond-pinellas-123109457.html)
+- Dec 01 - [‘I knew my daughter was going to die’, says mother of lawyer killed by methanol poisoning in Laos](https://www.yahoo.com/news/knew-daughter-going-die-says-133120068.html)
 <!-- feed end -->
 
 ### Onstream
