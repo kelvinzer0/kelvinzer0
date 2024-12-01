@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [1 person dead, 2 police officers injured after shooting in Peoria](https://www.yahoo.com/news/1-person-dead-2-police-182913546.html)
+- Dec 01 - [8 dead in a mass shooting in a cartel-plagued town in central Mexico](https://www.yahoo.com/news/8-dead-mass-shooting-cartel-202848166.html)
+- Dec 01 - [11-year-old girl escapes kidnapper in Oregon](https://www.yahoo.com/news/11-old-girl-escapes-kidnapper-200416399.html)
 - Dec 01 - [Sorry, But I'm Dying At These Funny Job Tweets From Last Week](https://www.yahoo.com/entertainment/sorry-im-dying-funny-job-181123005.html)
-- Dec 01 - [A Tesla founder started an EV battery recycling company that's on pace to make $200 million a year](https://www.yahoo.com/tech/tesla-founder-started-ev-battery-172606906.html)
+- Dec 01 - [Former Israeli defense minister Yaalon warns of ethnic cleansing in Gaza](https://www.yahoo.com/news/former-israeli-defense-minister-yaalon-171618483.html)
 - Dec 01 - [‘Stop talking and get a lawyer’: Inside the descent of a Colorado dentist accused of fatally poisoning his wife](https://www.yahoo.com/news/stop-talking-lawyer-inside-descent-170048907.html)
-- Dec 01 - [Pelosi Secretly Orchestrating Another Attempted Shake-Up of Dem Leadership](https://www.yahoo.com/news/pelosi-secretly-orchestrating-another-attempted-154728668.html)
 <!-- feed end -->
 
 ### Onstream
