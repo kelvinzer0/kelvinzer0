@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 01 - [Black Friday spending soars near $11 billion online, shattering a record](https://www.yahoo.com/news/black-friday-spending-soars-near-001420619.html)
+- Dec 01 - [Pete Hegseth’s mother speaks out after accusing him of mistreating women](https://www.yahoo.com/news/pete-hegseth-mother-speaks-accusing-001213965.html)
+- Dec 01 - [Trump taps Kash Patel for FBI director, an ally who would aid in his effort to upend law enforcement](https://www.yahoo.com/news/trump-names-loyalist-kash-patel-000445057.html)
+- Nov 30 - [Warren Buffett Reveals How To Invest $10,000 If You Want To Get Rich](https://finance.yahoo.com/news/warren-buffett-reveals-invest-10-110045016.html)
 - Nov 30 - [Dentists Are Begging People To Stop Eating These 6 Foods And Drinks, Because Not Even Flossing Can Save You From The Damage](https://www.yahoo.com/lifestyle/dentists-begging-people-stop-eating-221502541.html)
-- Nov 30 - [Doctors And Nurses Are Calling Out The Health "Lies" You Should STOP Believing, And It's Shocking](https://www.yahoo.com/lifestyle/doctors-nurses-calling-health-lies-212102455.html)
-- Nov 30 - [Boeing's CEO is forcing executives to give up private jets and fly commercial to save money](https://www.yahoo.com/news/boeings-ceo-forcing-executives-private-195122681.html)
-- Nov 30 - [Trump wants pardoned real estate developer Charles Kushner to become US ambassador to France](https://www.yahoo.com/news/trump-wants-pardoned-real-estate-194239766.html)
-- Nov 30 - [Trump’s second alleged would-be assassin wrote to this POLITICO writer. Here’s what he learned.](https://www.yahoo.com/news/trump-second-alleged-assassin-wrote-192543406.html)
 <!-- feed end -->
 
 ### Onstream
