@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Stellantis CEO Carlos Tavares resigns as carmaker continues to struggle with slumping sales](https://finance.yahoo.com/news/stellantis-ceo-carlos-tavares-resigns-201416290.html)
+- Dec 01 - [Home explosion victim passes away from injuries](https://www.yahoo.com/news/home-explosion-victim-passes-away-220256803.html)
+- Dec 01 - [Stellantis CEO Carlos Tavares steps down as carmaker continues struggle with slumping sales](https://finance.yahoo.com/news/stellantis-ceo-carlos-tavares-resigns-201416290.html)
 - Dec 01 - [Family of pilot who died on an animal rescue flight to receive remains of dog killed in crash](https://www.yahoo.com/news/family-pilot-died-animal-rescue-200820747.html)
-- Dec 01 - [11-year-old girl escapes kidnapper in Oregon](https://www.yahoo.com/news/11-old-girl-escapes-kidnapper-200416399.html)
-- Dec 01 - [Former Israeli defense minister Yaalon warns of ethnic cleansing in Gaza](https://www.yahoo.com/news/former-israeli-defense-minister-yaalon-171618483.html)
-- Dec 01 - [Trump picks Massad Boulos to serve as adviser on Arab, Middle Eastern affairs](https://www.yahoo.com/news/trump-says-massad-boulos-serve-160240036.html)
+- Dec 01 - [Three college students killed in Tesla Cybertruck crash in California](https://www.yahoo.com/news/three-college-students-killed-tesla-182455425.html)
+- Dec 01 - [Sorry, But I'm Dying At These Funny Job Tweets From Last Week](https://www.yahoo.com/entertainment/sorry-im-dying-funny-job-181123005.html)
 <!-- feed end -->
 
 ### Onstream
