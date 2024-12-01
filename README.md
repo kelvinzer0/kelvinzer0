@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Mark Cuban admits he’s down on Shark Tank deals after investing $20M into 85 startups — 3 simple lessons for 2025](https://finance.yahoo.com/news/mark-cuban-admits-down-shark-131100851.html)
-- Dec 01 - [Two brothers created the Yeti cooler. Then their partner was murdered.](https://www.yahoo.com/news/yeti-set-conquer-cooler-market-090701023.html)
-- Dec 01 - [UN halts aid shipments through Gaza's main crossing after looting. It blames the crisis on Israel](https://www.yahoo.com/news/israeli-strikes-gaza-kill-6-074113084.html)
-- Dec 01 - [Left behind in Kenya, children of British soldiers struggle to find their identity](https://www.yahoo.com/news/left-behind-kenya-children-british-050012710.html)
-- Dec 01 - [Japan's popular Princess Aiko turns 23 with her future as a royal in doubt](https://www.yahoo.com/news/japans-popular-princess-aiko-turns-043303632.html)
+- Dec 01 - [People Are Sharing The Things That Ended Up Permanently Affecting Their Bodies Years Later Without Even Realizing It](https://www.yahoo.com/lifestyle/people-sharing-things-ended-permanently-141602234.html)
+- Dec 01 - [See how different Elon Musk, Jeff Bezos, and other tech CEOs looked when they first started their companies](https://www.yahoo.com/tech/then-now-tech-ceos-founders-123759629.html)
+- Dec 01 - [Social Security reforms face uncertain future in Senate](https://www.yahoo.com/news/social-security-reforms-face-uncertain-110000158.html)
+- Dec 01 - [Submarine detection at near-light-speed possible with China’s sci-fi-like radar](https://www.yahoo.com/news/submarine-detection-near-light-speed-105017797.html)
+- Dec 01 - [A Chinese invasion of Taiwan would depend on seizing its ports. That won't be easy.](https://www.yahoo.com/news/chinese-invasion-taiwan-depend-seizing-100101798.html)
 <!-- feed end -->
 
 ### Onstream
