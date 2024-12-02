@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Royal Caribbean And Peers' Targets Hiked On 'Highly Encouraging' Outlook](https://www.investors.com/news/royal-caribbean-carnival-cruise-stock-nclh-target-hikes-cruise-stocks/?src=A00220&yptr=yahoo)
-- Dec 02 - [Florida woman sentenced to life for zipping boyfriend into suitcase, suffocating him](https://www.yahoo.com/news/florida-woman-sentenced-life-zipping-211118017.html)
+- Dec 02 - [Delaware judge reaffirms ruling that invalidated massive Tesla pay package for Elon Musk](https://finance.yahoo.com/news/delaware-judge-reaffirms-ruling-invalidated-223948644.html)
+- Dec 02 - [California suspends company’s sale of raw milk after new outbreak of bird flu](https://www.yahoo.com/news/california-suspends-company-sale-raw-000442687.html)
+- Dec 02 - [Delaware judge rejects request to restore Musk's $56 billion Tesla pay](https://finance.yahoo.com/news/delaware-judge-rejects-request-restore-215608568.html)
 - Dec 02 - [Democrat Jamie Raskin is running for top Judiciary post in bid to counter Trump](https://www.yahoo.com/news/democrat-jamie-raskin-running-top-205844422.html)
-- Dec 02 - [Scientists Say Walking This Much Could Add 11 Years to Your Life](https://www.yahoo.com/lifestyle/scientists-walking-much-could-add-193600536.html)
-- Dec 02 - [Jill Biden Has Blunt Comment About Her Husband’s Decision To Pardon Hunter](https://www.yahoo.com/news/jill-biden-blunt-her-husband-191738368.html)
+- Dec 02 - [Florida Woman Gets Life in Prison After Zipping Boyfriend in Suitcase Overnight in Drunken Hide-and-Seek Game](https://www.yahoo.com/news/sarah-boone-sentenced-life-prison-205403533.html)
 <!-- feed end -->
 
 ### Onstream
