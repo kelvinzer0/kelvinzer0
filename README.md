@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - ['I thought kidney failure meant I'd never be a mum'](https://www.yahoo.com/lifestyle/thought-kidney-failure-meant-id-055204555.html)
+- Dec 02 - [Photo shows Israeli helicopter firing flares over Gaza, not 'shot down in Lebanon'](https://www.yahoo.com/news/photo-shows-israeli-helicopter-firing-053320474.html)
 - Dec 02 - [A white Kansas detective accused of preying on Black women for decades faces trial](https://www.yahoo.com/news/white-kansas-detective-accused-preying-050918588.html)
-- Dec 02 - [Olive Garden eater finds serial number on her breadsticks - and gets paid for the snafu](https://www.yahoo.com/entertainment/olive-garden-eater-finds-serial-214620077.html)
+- Dec 02 - [Philippines' Marcos says presence of Russian submarine 'very worrisome'](https://www.yahoo.com/news/philippines-marcos-says-reported-presence-034123603.html)
+- Dec 02 - [Texas troopers catch smuggler who allegedly carried 5-year-old girl across border](https://www.yahoo.com/news/texas-troopers-catch-smuggler-allegedly-021059619.html)
 - Dec 02 - [Washington DC reacts to President Biden pardoning son Hunter in shock decision](https://www.yahoo.com/news/president-biden-pardons-son-hunter-021000547.html)
-- Dec 02 - [Tragic discovery in Oregon: Missing hiker’s body found, husband arrested on murder charge](https://www.yahoo.com/news/tragic-discovery-oregon-missing-hiker-015000747.html)
 <!-- feed end -->
 
 ### Onstream
