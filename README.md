@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - [$4M Connecticut mansion burns down after residents fry turkey in garage on Thanksgiving](https://www.yahoo.com/news/4m-connecticut-mansion-burns-down-181726190.html)
+- Dec 02 - [Landmark climate change case opens at the top UN court as island nations fear rising seas](https://www.yahoo.com/news/landmark-climate-change-case-opens-175905071.html)
+- Dec 02 - [“The View” cohosts react to Joe Biden pardoning Hunter Biden: 'This is why people don't trust Washington'](https://www.yahoo.com/entertainment/view-cohosts-react-joe-biden-173020903.html)
+- Dec 02 - [Officials identify 3 college students killed in fiery Cybertruck crash: 'Unimaginable loss'](https://www.yahoo.com/news/officials-identify-3-college-students-172355924.html)
 - Dec 02 - [Pictured: Drunken tourists put in cart and wheeled back to their hostel by Thai policeman](https://www.yahoo.com/news/pictured-drunken-tourists-put-cart-170000079.html)
-- Dec 02 - [Snow is expected in Massachusetts this week. Here’s a timeline and projected totals](https://www.yahoo.com/news/snow-expected-massachusetts-week-timeline-135727417.html)
-- Dec 02 - [I Was Living In Dubai When My Boyfriend Unexpectedly Died. I Never Expected What Happened Next.](https://www.yahoo.com/lifestyle/living-dubai-boyfriend-unexpectedly-died-154723767.html)
-- Dec 02 - [Putin put a hit on a double agent because he knew the source of the Russian leader's riches: UK intel](https://www.yahoo.com/news/putin-put-hit-double-agent-154704415.html)
-- Dec 02 - [Opinion - Lame-duck pardon, broken promise: Biden leaves a legacy of corruption](https://www.yahoo.com/news/opinion-lame-duck-pardon-broken-152301548.html)
 <!-- feed end -->
 
 ### Onstream
