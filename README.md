@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Biden pardons his son Hunter despite previous pledges not to](https://www.yahoo.com/news/biden-pardons-son-hunter-despite-003718639.html)
-- Dec 01 - [National security advisor Jake Sullivan says Biden told him to oversee a 'massive surge' of weapons deliveries to Ukraine before his term ends](https://www.yahoo.com/news/national-security-advisor-jake-sullivan-222659264.html)
+- Dec 02 - [Exclusive-UN calls for $2.6 trillion investment to reverse land degradation](https://finance.yahoo.com/news/exclusive-un-calls-2-6-040349984.html)
+- Dec 02 - [Negotiators fail to reach an agreement on a plastic pollution treaty. Talks to resume next year](https://www.yahoo.com/news/negotiators-fail-reach-agreement-plastic-024757487.html)
+- Dec 02 - [Washington DC reacts to President Biden pardoning son Hunter in shock decision](https://www.yahoo.com/news/president-biden-pardons-son-hunter-021000547.html)
+- Dec 02 - [Tragic discovery in Oregon: Missing hiker’s body found, husband arrested on murder charge](https://www.yahoo.com/news/tragic-discovery-oregon-missing-hiker-015000747.html)
 - Dec 01 - [45-year-old driver dies following ‘confrontation’ with other driver](https://www.yahoo.com/news/45-old-driver-dies-following-213400732.html)
-- Dec 01 - [Stellantis CEO Carlos Tavares steps down as carmaker continues struggle with slumping sales](https://finance.yahoo.com/news/stellantis-ceo-carlos-tavares-resigns-201416290.html)
-- Dec 01 - [NC traffic crashes on I-95 as 2 million in state return from Thanksgiving road trips](https://www.yahoo.com/news/nc-traffic-crashes-95-2-201212755.html)
 <!-- feed end -->
 
 ### Onstream
