@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [JPMorgan's investment banking chair departs, memo says](https://finance.yahoo.com/news/jpmorgans-investment-banking-chair-departs-192016027.html)
+- Dec 02 - [Jeff Bezos backs AI chipmaker Tenstorrent](https://finance.yahoo.com/news/jeff-bezos-backs-ai-chipmaker-202216695.html)
+- Dec 02 - [Adams County Winery voted Pennsylvania Winery of the Year: 2024 Pa. Wine Invitational](https://www.yahoo.com/lifestyle/adams-county-winery-voted-pennsylvania-193529488.html)
 - Dec 02 - [Jill Biden Has Blunt Comment About Her Husband’s Decision To Pardon Hunter](https://www.yahoo.com/news/jill-biden-blunt-her-husband-191738368.html)
-- Dec 02 - [Biden's White House said "No" to pardoning his son Hunter for more than a year](https://www.yahoo.com/news/bidens-white-house-said-no-191434828.html)
-- Dec 02 - [Trump Promises ‘All Hell to Pay in the Middle East’ if Hamas Does Not Release Hostages by Inauguration Day](https://www.yahoo.com/news/trump-promises-hell-pay-middle-190148996.html)
-- Dec 02 - [$4M Connecticut mansion burns down after residents fry turkey in garage on Thanksgiving](https://www.yahoo.com/news/4m-connecticut-mansion-burns-down-181726190.html)
+- Dec 02 - [Donald Trump & Elon Musk Dance Alongside Barron Trump & Melania Trump At Mar-A-Lago Thanksgiving](https://www.yahoo.com/entertainment/donald-trump-elon-musk-dance-190000191.html)
+- Dec 02 - [Tesla finally made an app that turns your Apple Watch into a car key](https://www.yahoo.com/tech/tesla-finally-made-app-turns-185807479.html)
 <!-- feed end -->
 
 ### Onstream
