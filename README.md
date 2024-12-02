@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Three dead and dozens sick after eating sea turtle stew](https://www.yahoo.com/news/three-dead-dozens-sick-eating-083226629.html)
-- Dec 02 - [Seeking higher margins, Stellantis CEO Tavares lost some core customers](https://finance.yahoo.com/news/seeking-higher-margins-stellantis-ceo-085213854.html)
-- Dec 02 - [Japan brewers hope UNESCO listing will make sake as popular as sushi](https://www.yahoo.com/news/japan-brewers-hope-unesco-listing-082835923.html)
-- Dec 02 - ['Large Head People': Mysterious New Form of Ancient Human Emerges](https://www.yahoo.com/news/large-head-people-mysterious-form-063259322.html)
-- Dec 02 - [A white Kansas detective accused of preying on Black women for decades faces trial](https://www.yahoo.com/news/white-kansas-detective-accused-preying-050918588.html)
+- Dec 02 - [Time is short for Congress to lower prescription drug costs | Opinion](https://www.yahoo.com/news/time-short-congress-lower-prescription-120255526.html)
+- Dec 02 - [Iraqi militias enter Syria to reinforce government forces, military sources say](https://www.yahoo.com/news/iraqi-militias-enter-syria-reinforce-115404803.html)
+- Dec 02 - [Stellantis CEO Departs Amid Slumping Sales and Board Disagreements](https://finance.yahoo.com/news/stellantis-ceo-departs-amid-slumping-111213077.html)
+- Dec 02 - [Bezos backs AI chipmaker vying with Nvidia at $2.6 billion value](https://finance.yahoo.com/news/bezos-backs-ai-chipmaker-vying-110000578.html)
+- Dec 02 - [Video shows scores climbing Guinea stadium walls to escape crush](https://www.yahoo.com/news/video-shows-scores-climbing-guinea-102845910.html)
 <!-- feed end -->
 
 ### Onstream
