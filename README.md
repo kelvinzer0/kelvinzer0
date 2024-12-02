@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [With high flour prices, displaced Palestinians in Gaza buy fewer loaves to feed their families](https://www.yahoo.com/news/high-flour-prices-displaced-palestinians-162233896.html)
-- Dec 02 - [BlackRock is on the verge of making a bigger bet on Wall Street's hottest trade](https://finance.yahoo.com/news/blackrock-is-on-the-verge-of-making-a-bigger-bet-on-wall-streets-hottest-trade-154634563.html)
-- Dec 02 - [Wilmington Mayor-elect John Carney reappoints police, fire chiefs to leadership roles](https://www.yahoo.com/news/wilmington-mayor-elect-john-carney-153359419.html)
-- Dec 02 - [Walt Disney World Guest Lands In ICU After Alleged Hit-And-Run Incident](https://www.yahoo.com/news/walt-disney-world-guest-lands-143054878.html)
+- Dec 02 - [Pictured: Drunken tourists put in cart and wheeled back to their hostel by Thai policeman](https://www.yahoo.com/news/pictured-drunken-tourists-put-cart-170000079.html)
 - Dec 02 - [Snow is expected in Massachusetts this week. Here’s a timeline and projected totals](https://www.yahoo.com/news/snow-expected-massachusetts-week-timeline-135727417.html)
+- Dec 02 - [I Was Living In Dubai When My Boyfriend Unexpectedly Died. I Never Expected What Happened Next.](https://www.yahoo.com/lifestyle/living-dubai-boyfriend-unexpectedly-died-154723767.html)
+- Dec 02 - [Putin put a hit on a double agent because he knew the source of the Russian leader's riches: UK intel](https://www.yahoo.com/news/putin-put-hit-double-agent-154704415.html)
+- Dec 02 - [Opinion - Lame-duck pardon, broken promise: Biden leaves a legacy of corruption](https://www.yahoo.com/news/opinion-lame-duck-pardon-broken-152301548.html)
 <!-- feed end -->
 
 ### Onstream
