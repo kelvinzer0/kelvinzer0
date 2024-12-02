@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [US Navy destroys Houthi missiles and drones targeting American ships in Gulf of Aden](https://www.yahoo.com/news/us-navy-destroys-houthi-missiles-041914302.html)
+- Dec 02 - ['I thought kidney failure meant I'd never be a mum'](https://www.yahoo.com/lifestyle/thought-kidney-failure-meant-id-055204555.html)
+- Dec 02 - [A white Kansas detective accused of preying on Black women for decades faces trial](https://www.yahoo.com/news/white-kansas-detective-accused-preying-050918588.html)
+- Dec 02 - [Olive Garden eater finds serial number on her breadsticks - and gets paid for the snafu](https://www.yahoo.com/entertainment/olive-garden-eater-finds-serial-214620077.html)
 - Dec 02 - [Washington DC reacts to President Biden pardoning son Hunter in shock decision](https://www.yahoo.com/news/president-biden-pardons-son-hunter-021000547.html)
 - Dec 02 - [Tragic discovery in Oregon: Missing hiker’s body found, husband arrested on murder charge](https://www.yahoo.com/news/tragic-discovery-oregon-missing-hiker-015000747.html)
-- Dec 01 - [Water main break causes damage to multiple homes in Bethel Park](https://www.yahoo.com/news/crews-working-repair-water-main-225142823.html)
-- Dec 01 - [Stellantis CEO Carlos Tavares steps down as carmaker continues struggle with slumping sales](https://finance.yahoo.com/news/stellantis-ceo-carlos-tavares-resigns-201416290.html)
 <!-- feed end -->
 
 ### Onstream
