@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Top Dividend Stocks To Watch In December 2024](https://finance.yahoo.com/news/top-dividend-stocks-watch-december-090359993.html)
+- Dec 02 - [Three dead and dozens sick after eating sea turtle stew](https://www.yahoo.com/news/three-dead-dozens-sick-eating-083226629.html)
+- Dec 02 - [Seeking higher margins, Stellantis CEO Tavares lost some core customers](https://finance.yahoo.com/news/seeking-higher-margins-stellantis-ceo-085213854.html)
 - Dec 02 - [Japan brewers hope UNESCO listing will make sake as popular as sushi](https://www.yahoo.com/news/japan-brewers-hope-unesco-listing-082835923.html)
 - Dec 02 - ['Large Head People': Mysterious New Form of Ancient Human Emerges](https://www.yahoo.com/news/large-head-people-mysterious-form-063259322.html)
 - Dec 02 - [A white Kansas detective accused of preying on Black women for decades faces trial](https://www.yahoo.com/news/white-kansas-detective-accused-preying-050918588.html)
-- Dec 02 - [Nine Volkswagen plants on strike as labour battle escalates](https://finance.yahoo.com/news/nine-volkswagen-plants-strike-labour-050438217.html)
 <!-- feed end -->
 
 ### Onstream
