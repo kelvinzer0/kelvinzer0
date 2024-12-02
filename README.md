@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Photo shows Israeli helicopter firing flares over Gaza, not 'shot down in Lebanon'](https://www.yahoo.com/news/photo-shows-israeli-helicopter-firing-053320474.html)
-- Dec 02 - [A white Kansas detective accused of preying on Black women for decades faces trial](https://www.yahoo.com/news/white-kansas-detective-accused-preying-050918588.html)
-- Dec 02 - [Philippines' Marcos says presence of Russian submarine 'very worrisome'](https://www.yahoo.com/news/philippines-marcos-says-reported-presence-034123603.html)
-- Dec 02 - [Texas troopers catch smuggler who allegedly carried 5-year-old girl across border](https://www.yahoo.com/news/texas-troopers-catch-smuggler-allegedly-021059619.html)
-- Dec 02 - [Washington DC reacts to President Biden pardoning son Hunter in shock decision](https://www.yahoo.com/news/president-biden-pardons-son-hunter-021000547.html)
+- Dec 02 - [Exclusive-Latest US strike on China's chips hits semiconductor toolmakers](https://finance.yahoo.com/news/exclusive-latest-us-strike-chinas-050200027.html)
+- Dec 02 - [John Dean Reveals 1 Biden Move That Could Doom Trump's 'Revenge' Plot](https://www.yahoo.com/news/john-dean-reveals-1-biden-050121466.html)
+- Dec 02 - [US Navy destroys Houthi missiles and drones targeting American ships in Gulf of Aden](https://www.yahoo.com/news/us-navy-destroys-houthi-missiles-041914302.html)
+- Dec 02 - [Olive Garden eater finds serial number on her breadsticks - and gets paid for the snafu](https://www.yahoo.com/entertainment/olive-garden-eater-finds-serial-214620077.html)
+- Dec 02 - [Tragic discovery in Oregon: Missing hiker’s body found, husband arrested on murder charge](https://www.yahoo.com/news/tragic-discovery-oregon-missing-hiker-015000747.html)
 <!-- feed end -->
 
 ### Onstream
