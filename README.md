@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - [With high flour prices, displaced Palestinians in Gaza buy fewer loaves to feed their families](https://www.yahoo.com/news/high-flour-prices-displaced-palestinians-162233896.html)
 - Dec 02 - [BlackRock is on the verge of making a bigger bet on Wall Street's hottest trade](https://finance.yahoo.com/news/blackrock-is-on-the-verge-of-making-a-bigger-bet-on-wall-streets-hottest-trade-154634563.html)
-- Dec 02 - [A Tesla rival now builds stuff for Apple](https://www.yahoo.com/tech/tesla-rival-now-builds-stuff-153100021.html)
-- Dec 02 - [Putin drops plan for 'Friendship Games' to rival Olympics](https://www.yahoo.com/news/putin-drops-plan-friendship-games-143932614.html)
-- Dec 02 - [Super Micro to hire new CFO, says independent review finds no evidence of fraud](https://finance.yahoo.com/news/super-micro-hire-cfo-says-143815868.html)
+- Dec 02 - [Wilmington Mayor-elect John Carney reappoints police, fire chiefs to leadership roles](https://www.yahoo.com/news/wilmington-mayor-elect-john-carney-153359419.html)
+- Dec 02 - [Walt Disney World Guest Lands In ICU After Alleged Hit-And-Run Incident](https://www.yahoo.com/news/walt-disney-world-guest-lands-143054878.html)
 - Dec 02 - [Snow is expected in Massachusetts this week. Here’s a timeline and projected totals](https://www.yahoo.com/news/snow-expected-massachusetts-week-timeline-135727417.html)
 <!-- feed end -->
 
