@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [A man and his dog find stash of rare books on the sidewalk; 8 months later, library solves the mystery](https://www.yahoo.com/news/man-dog-stash-rare-books-090000362.html)
+- Dec 02 - [Top Dividend Stocks To Watch In December 2024](https://finance.yahoo.com/news/top-dividend-stocks-watch-december-090359993.html)
+- Dec 02 - [Japan brewers hope UNESCO listing will make sake as popular as sushi](https://www.yahoo.com/news/japan-brewers-hope-unesco-listing-082835923.html)
 - Dec 02 - ['Large Head People': Mysterious New Form of Ancient Human Emerges](https://www.yahoo.com/news/large-head-people-mysterious-form-063259322.html)
-- Dec 02 - [John Dean Reveals 1 Biden Move That Could Doom Trump's 'Revenge' Plot](https://www.yahoo.com/news/john-dean-reveals-1-biden-050121466.html)
-- Dec 02 - [US Navy destroys Houthi missiles and drones targeting American ships in Gulf of Aden](https://www.yahoo.com/news/us-navy-destroys-houthi-missiles-041914302.html)
-- Dec 02 - [Philippines' Marcos says presence of Russian submarine 'very worrisome'](https://www.yahoo.com/news/philippines-marcos-says-reported-presence-034123603.html)
+- Dec 02 - [A white Kansas detective accused of preying on Black women for decades faces trial](https://www.yahoo.com/news/white-kansas-detective-accused-preying-050918588.html)
+- Dec 02 - [Nine Volkswagen plants on strike as labour battle escalates](https://finance.yahoo.com/news/nine-volkswagen-plants-strike-labour-050438217.html)
 <!-- feed end -->
 
 ### Onstream
