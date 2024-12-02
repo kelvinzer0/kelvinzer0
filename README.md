@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - [JPMorgan's investment banking chair departs, memo says](https://finance.yahoo.com/news/jpmorgans-investment-banking-chair-departs-192016027.html)
+- Dec 02 - [Jill Biden Has Blunt Comment About Her Husband’s Decision To Pardon Hunter](https://www.yahoo.com/news/jill-biden-blunt-her-husband-191738368.html)
+- Dec 02 - [Biden's White House said "No" to pardoning his son Hunter for more than a year](https://www.yahoo.com/news/bidens-white-house-said-no-191434828.html)
+- Dec 02 - [Trump Promises ‘All Hell to Pay in the Middle East’ if Hamas Does Not Release Hostages by Inauguration Day](https://www.yahoo.com/news/trump-promises-hell-pay-middle-190148996.html)
 - Dec 02 - [$4M Connecticut mansion burns down after residents fry turkey in garage on Thanksgiving](https://www.yahoo.com/news/4m-connecticut-mansion-burns-down-181726190.html)
-- Dec 02 - [Landmark climate change case opens at the top UN court as island nations fear rising seas](https://www.yahoo.com/news/landmark-climate-change-case-opens-175905071.html)
-- Dec 02 - [“The View” cohosts react to Joe Biden pardoning Hunter Biden: 'This is why people don't trust Washington'](https://www.yahoo.com/entertainment/view-cohosts-react-joe-biden-173020903.html)
-- Dec 02 - [Officials identify 3 college students killed in fiery Cybertruck crash: 'Unimaginable loss'](https://www.yahoo.com/news/officials-identify-3-college-students-172355924.html)
-- Dec 02 - [Pictured: Drunken tourists put in cart and wheeled back to their hostel by Thai policeman](https://www.yahoo.com/news/pictured-drunken-tourists-put-cart-170000079.html)
 <!-- feed end -->
 
 ### Onstream
