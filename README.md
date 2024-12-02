@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [A quadriplegic woman was raped during a home invasion in 2000. 24 years on, DNA leads cops to a suspect](https://www.yahoo.com/news/quadriplegic-woman-raped-during-home-121302858.html)
-- Dec 02 - ['We're worried': Eugene family's break-in highlights rising crimes against Asians](https://www.yahoo.com/news/were-worried-eugene-familys-break-120214669.html)
-- Dec 02 - [Cyber Monday Generator Deals 2024: Save 60% on Emergency Backup Power](https://www.yahoo.com/tech/cyber-monday-generator-deals-2024-110600072.html)
-- Dec 02 - [Kiyosaki on Bitcoin $100,000: 'Almost Impossible for the Poor and Middle Class to Catch Up'](https://finance.yahoo.com/news/kiyosaki-bitcoin-100-000-almost-110030388.html)
-- Dec 02 - [The ‘smoking gun’ evidence that could finally prove Princes in the Tower were murdered](https://www.yahoo.com/news/smoking-gun-evidence-could-finally-095938071.html)
+- Dec 02 - [Intel CEO Pat Gelsinger retires from struggling chipmaker](https://finance.yahoo.com/news/intel-ceo-pat-gelsinger-retire-133507068.html)
+- Dec 02 - [The generation of homeowners facing a retirement crisis](https://finance.yahoo.com/news/generation-homeowners-facing-retirement-crisis-131513241.html)
+- Dec 02 - [Syria's White Helmets release video it says shows aftermath of airstrikes on Idlib neighbourhood](https://www.yahoo.com/news/syrias-white-helmets-release-video-130408722.html)
+- Dec 02 - [Police officers exchanged vile messages - report](https://www.yahoo.com/news/police-officers-exchanged-vile-messages-130251949.html)
+- Dec 02 - [Geraldo Rivera Slaps Trump Supporters With A Reality Check After Biden’s Pardon](https://www.yahoo.com/news/geraldo-rivera-slaps-trump-supporters-124457774.html)
 <!-- feed end -->
 
 ### Onstream
