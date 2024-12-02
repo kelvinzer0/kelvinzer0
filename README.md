@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Intel CEO Pat Gelsinger retires from struggling chipmaker](https://finance.yahoo.com/news/intel-ceo-pat-gelsinger-retire-133507068.html)
-- Dec 02 - [The generation of homeowners facing a retirement crisis](https://finance.yahoo.com/news/generation-homeowners-facing-retirement-crisis-131513241.html)
-- Dec 02 - [Syria's White Helmets release video it says shows aftermath of airstrikes on Idlib neighbourhood](https://www.yahoo.com/news/syrias-white-helmets-release-video-130408722.html)
-- Dec 02 - [Police officers exchanged vile messages - report](https://www.yahoo.com/news/police-officers-exchanged-vile-messages-130251949.html)
-- Dec 02 - [Geraldo Rivera Slaps Trump Supporters With A Reality Check After Biden’s Pardon](https://www.yahoo.com/news/geraldo-rivera-slaps-trump-supporters-124457774.html)
+- Dec 02 - [Royal Caribbean And Peers' Targets Hiked On 'Highly Encouraging' Outlook](https://www.investors.com/news/royal-caribbean-carnival-cruise-stock-nclh-target-hikes-cruise-stocks/?src=A00220&yptr=yahoo)
+- Dec 02 - [JonBenet Ramsey case: Progress being made, sources say](https://www.yahoo.com/news/jonben-t-ramsey-case-progress-143800289.html)
+- Dec 02 - [US proposes $7.54 billion loan to Stellantis, Samsung SDI battery joint venture](https://finance.yahoo.com/news/us-proposes-7-54-billion-141346134.html)
+- Dec 02 - [Is the IPO Market About to Thaw? Several Artificial Intelligence Companies Are Gearing Up to Go Public at Massive Valuations in 2025](https://finance.yahoo.com/news/ipo-market-thaw-several-artificial-140500363.html)
+- Dec 02 - [Snow is expected in Massachusetts this week. Here’s a timeline and projected totals](https://www.yahoo.com/news/snow-expected-massachusetts-week-timeline-135727417.html)
 <!-- feed end -->
 
 ### Onstream
