@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Time is short for Congress to lower prescription drug costs | Opinion](https://www.yahoo.com/news/time-short-congress-lower-prescription-120255526.html)
-- Dec 02 - [Iraqi militias enter Syria to reinforce government forces, military sources say](https://www.yahoo.com/news/iraqi-militias-enter-syria-reinforce-115404803.html)
-- Dec 02 - [Stellantis CEO Departs Amid Slumping Sales and Board Disagreements](https://finance.yahoo.com/news/stellantis-ceo-departs-amid-slumping-111213077.html)
-- Dec 02 - [Bezos backs AI chipmaker vying with Nvidia at $2.6 billion value](https://finance.yahoo.com/news/bezos-backs-ai-chipmaker-vying-110000578.html)
-- Dec 02 - [Video shows scores climbing Guinea stadium walls to escape crush](https://www.yahoo.com/news/video-shows-scores-climbing-guinea-102845910.html)
+- Dec 02 - [A quadriplegic woman was raped during a home invasion in 2000. 24 years on, DNA leads cops to a suspect](https://www.yahoo.com/news/quadriplegic-woman-raped-during-home-121302858.html)
+- Dec 02 - ['We're worried': Eugene family's break-in highlights rising crimes against Asians](https://www.yahoo.com/news/were-worried-eugene-familys-break-120214669.html)
+- Dec 02 - [Cyber Monday Generator Deals 2024: Save 60% on Emergency Backup Power](https://www.yahoo.com/tech/cyber-monday-generator-deals-2024-110600072.html)
+- Dec 02 - [Kiyosaki on Bitcoin $100,000: 'Almost Impossible for the Poor and Middle Class to Catch Up'](https://finance.yahoo.com/news/kiyosaki-bitcoin-100-000-almost-110030388.html)
+- Dec 02 - [The ‘smoking gun’ evidence that could finally prove Princes in the Tower were murdered](https://www.yahoo.com/news/smoking-gun-evidence-could-finally-095938071.html)
 <!-- feed end -->
 
 ### Onstream
