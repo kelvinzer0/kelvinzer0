@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Exclusive-Latest US strike on China's chips hits semiconductor toolmakers](https://finance.yahoo.com/news/exclusive-latest-us-strike-chinas-050200027.html)
+- Dec 02 - [A man and his dog find stash of rare books on the sidewalk; 8 months later, library solves the mystery](https://www.yahoo.com/news/man-dog-stash-rare-books-090000362.html)
+- Dec 02 - ['Large Head People': Mysterious New Form of Ancient Human Emerges](https://www.yahoo.com/news/large-head-people-mysterious-form-063259322.html)
 - Dec 02 - [John Dean Reveals 1 Biden Move That Could Doom Trump's 'Revenge' Plot](https://www.yahoo.com/news/john-dean-reveals-1-biden-050121466.html)
 - Dec 02 - [US Navy destroys Houthi missiles and drones targeting American ships in Gulf of Aden](https://www.yahoo.com/news/us-navy-destroys-houthi-missiles-041914302.html)
-- Dec 02 - [Olive Garden eater finds serial number on her breadsticks - and gets paid for the snafu](https://www.yahoo.com/entertainment/olive-garden-eater-finds-serial-214620077.html)
-- Dec 02 - [Tragic discovery in Oregon: Missing hiker’s body found, husband arrested on murder charge](https://www.yahoo.com/news/tragic-discovery-oregon-missing-hiker-015000747.html)
+- Dec 02 - [Philippines' Marcos says presence of Russian submarine 'very worrisome'](https://www.yahoo.com/news/philippines-marcos-says-reported-presence-034123603.html)
 <!-- feed end -->
 
 ### Onstream
