@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Home explosion victim passes away from injuries](https://www.yahoo.com/news/home-explosion-victim-passes-away-220256803.html)
+- Dec 02 - [Biden pardons his son Hunter despite previous pledges not to](https://www.yahoo.com/news/biden-pardons-son-hunter-despite-003718639.html)
+- Dec 02 - [Catholic church calls on president of El Salvador not to lift ban on gold mining](https://www.yahoo.com/news/catholic-church-calls-president-el-000649851.html)
+- Dec 01 - [National security advisor Jake Sullivan says Biden told him to oversee a 'massive surge' of weapons deliveries to Ukraine before his term ends](https://www.yahoo.com/news/national-security-advisor-jake-sullivan-222659264.html)
 - Dec 01 - [Stellantis CEO Carlos Tavares steps down as carmaker continues struggle with slumping sales](https://finance.yahoo.com/news/stellantis-ceo-carlos-tavares-resigns-201416290.html)
 - Dec 01 - [Family of pilot who died on an animal rescue flight to receive remains of dog killed in crash](https://www.yahoo.com/news/family-pilot-died-animal-rescue-200820747.html)
-- Dec 01 - [Three college students killed in Tesla Cybertruck crash in California](https://www.yahoo.com/news/three-college-students-killed-tesla-182455425.html)
-- Dec 01 - [Sorry, But I'm Dying At These Funny Job Tweets From Last Week](https://www.yahoo.com/entertainment/sorry-im-dying-funny-job-181123005.html)
 <!-- feed end -->
 
 ### Onstream
