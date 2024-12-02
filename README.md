@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Royal Caribbean And Peers' Targets Hiked On 'Highly Encouraging' Outlook](https://www.investors.com/news/royal-caribbean-carnival-cruise-stock-nclh-target-hikes-cruise-stocks/?src=A00220&yptr=yahoo)
-- Dec 02 - [JonBenet Ramsey case: Progress being made, sources say](https://www.yahoo.com/news/jonben-t-ramsey-case-progress-143800289.html)
-- Dec 02 - [US proposes $7.54 billion loan to Stellantis, Samsung SDI battery joint venture](https://finance.yahoo.com/news/us-proposes-7-54-billion-141346134.html)
-- Dec 02 - [Is the IPO Market About to Thaw? Several Artificial Intelligence Companies Are Gearing Up to Go Public at Massive Valuations in 2025](https://finance.yahoo.com/news/ipo-market-thaw-several-artificial-140500363.html)
+- Dec 02 - [BlackRock is on the verge of making a bigger bet on Wall Street's hottest trade](https://finance.yahoo.com/news/blackrock-is-on-the-verge-of-making-a-bigger-bet-on-wall-streets-hottest-trade-154634563.html)
+- Dec 02 - [A Tesla rival now builds stuff for Apple](https://www.yahoo.com/tech/tesla-rival-now-builds-stuff-153100021.html)
+- Dec 02 - [Putin drops plan for 'Friendship Games' to rival Olympics](https://www.yahoo.com/news/putin-drops-plan-friendship-games-143932614.html)
+- Dec 02 - [Super Micro to hire new CFO, says independent review finds no evidence of fraud](https://finance.yahoo.com/news/super-micro-hire-cfo-says-143815868.html)
 - Dec 02 - [Snow is expected in Massachusetts this week. Here’s a timeline and projected totals](https://www.yahoo.com/news/snow-expected-massachusetts-week-timeline-135727417.html)
 <!-- feed end -->
 
