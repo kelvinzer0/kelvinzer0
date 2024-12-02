@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Jeff Bezos backs AI chipmaker Tenstorrent](https://finance.yahoo.com/news/jeff-bezos-backs-ai-chipmaker-202216695.html)
-- Dec 02 - [Adams County Winery voted Pennsylvania Winery of the Year: 2024 Pa. Wine Invitational](https://www.yahoo.com/lifestyle/adams-county-winery-voted-pennsylvania-193529488.html)
+- Dec 02 - [Royal Caribbean And Peers' Targets Hiked On 'Highly Encouraging' Outlook](https://www.investors.com/news/royal-caribbean-carnival-cruise-stock-nclh-target-hikes-cruise-stocks/?src=A00220&yptr=yahoo)
+- Dec 02 - [Florida woman sentenced to life for zipping boyfriend into suitcase, suffocating him](https://www.yahoo.com/news/florida-woman-sentenced-life-zipping-211118017.html)
+- Dec 02 - [Democrat Jamie Raskin is running for top Judiciary post in bid to counter Trump](https://www.yahoo.com/news/democrat-jamie-raskin-running-top-205844422.html)
+- Dec 02 - [Scientists Say Walking This Much Could Add 11 Years to Your Life](https://www.yahoo.com/lifestyle/scientists-walking-much-could-add-193600536.html)
 - Dec 02 - [Jill Biden Has Blunt Comment About Her Husband’s Decision To Pardon Hunter](https://www.yahoo.com/news/jill-biden-blunt-her-husband-191738368.html)
-- Dec 02 - [Donald Trump & Elon Musk Dance Alongside Barron Trump & Melania Trump At Mar-A-Lago Thanksgiving](https://www.yahoo.com/entertainment/donald-trump-elon-musk-dance-190000191.html)
-- Dec 02 - [Tesla finally made an app that turns your Apple Watch into a car key](https://www.yahoo.com/tech/tesla-finally-made-app-turns-185807479.html)
 <!-- feed end -->
 
 ### Onstream
