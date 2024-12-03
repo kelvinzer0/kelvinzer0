@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [3 Okaloosa County restaurants get perfect scores in state inspections](https://www.yahoo.com/news/3-okaloosa-county-restaurants-perfect-103030882.html)
-- Dec 03 - [2 Dividend Stocks to Double Up on Right Now](https://finance.yahoo.com/news/2-dividend-stocks-double-now-101700494.html)
-- Dec 03 - [Exclusive-Russia approves $320 million sale of Carlsberg assets to local businessmen, document shows](https://finance.yahoo.com/news/exclusive-russia-approves-320-million-095106795.html)
-- Dec 03 - [Driver sentenced to 25 years in prison after pleading guilty to DUI in crash that killed a bride on her wedding night](https://www.yahoo.com/news/driver-pleads-guilty-dui-killing-202910522.html)
-- Dec 03 - [China bans export of key minerals to U.S. as trade frictions escalate](https://finance.yahoo.com/news/china-bans-exports-gallium-germanium-082140753.html)
+- Dec 03 - [Oil Tanker and Container Ship Collide in Strait of Gibraltar](https://www.yahoo.com/news/oil-tanker-container-ship-collide-121957592.html)
+- Dec 03 - ["I Did 4 Years In Women's Prison": 24 Very Honest Confessions From A Former Inmate](https://www.yahoo.com/lifestyle/did-4-years-womens-prison-113102586.html)
+- Dec 03 - [ServiceTitan seeks up to $5.16 billion valuation in US IPO](https://www.yahoo.com/tech/servicetitan-seeks-5-16-billion-112538262.html)
+- Dec 03 - [Billionaires Are Piling Into This Nasdaq Stock-Split Company Down 52% and Yielding a Healthy 4% Dividend](https://finance.yahoo.com/news/billionaires-piling-nasdaq-stock-split-111500833.html)
+- Dec 03 - [Mortgage and refinance rates today, December 3, 2024: Lowest rate in 6 weeks](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-tuesday-december-3-2024-110054558.html)
 <!-- feed end -->
 
 ### Onstream
