@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Delaware judge reaffirms ruling that invalidated massive Tesla pay package for Elon Musk](https://finance.yahoo.com/news/delaware-judge-reaffirms-ruling-invalidated-223948644.html)
-- Dec 02 - [California suspends company’s sale of raw milk after new outbreak of bird flu](https://www.yahoo.com/news/california-suspends-company-sale-raw-000442687.html)
-- Dec 02 - [Delaware judge rejects request to restore Musk's $56 billion Tesla pay](https://finance.yahoo.com/news/delaware-judge-rejects-request-restore-215608568.html)
-- Dec 02 - [Democrat Jamie Raskin is running for top Judiciary post in bid to counter Trump](https://www.yahoo.com/news/democrat-jamie-raskin-running-top-205844422.html)
-- Dec 02 - [Florida Woman Gets Life in Prison After Zipping Boyfriend in Suitcase Overnight in Drunken Hide-and-Seek Game](https://www.yahoo.com/news/sarah-boone-sentenced-life-prison-205403533.html)
+- Dec 02 - [Alberta RCMP officer charged with sexually assaulting 2 males in hotel room](https://www.yahoo.com/news/alberta-rcmp-officer-charged-sexually-232423640.html)
+- Dec 02 - [Man getting packages finds missing babies in a ditch](https://www.yahoo.com/news/man-getting-packages-finds-missing-230937118.html)
+- Dec 02 - [2 Delta attendants fail breathalyzer test before international flight](https://www.yahoo.com/news/two-delta-attendants-fail-breathalyzer-221006640.html)
+- Dec 02 - [North Carolina Republicans close in on enacting bill that weakens incoming Democratic governor](https://www.yahoo.com/news/north-carolina-republicans-close-enacting-222441346.html)
+- Dec 02 - [Russian tourist dies after being swept away by massive wave while doing yoga in Thailand](https://www.yahoo.com/news/russian-tourist-dies-being-swept-222434115.html)
 <!-- feed end -->
 
 ### Onstream
