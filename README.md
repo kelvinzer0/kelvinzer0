@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [I-95 reopens New Hampshire-Maine border after ‘active police situation’](https://www.yahoo.com/news/95-closed-both-directions-near-195509565.html)
 - Dec 03 - [Wells Fargo issues Wall Street's most bullish forecast yet for the stock market in 2025](https://finance.yahoo.com/news/wells-fargo-issues-wall-streets-most-bullish-forecast-yet-for-the-stock-market-in-2025-203847212.html)
-- Dec 03 - [I-95 closed in both directions near New Hampshire-Maine border amid ‘active police situation’](https://www.yahoo.com/news/95-closed-both-directions-near-195509565.html)
-- Dec 03 - [Volkswagen Taps Rivian to Help Develop Electric Next-Gen Golf](https://autos.yahoo.com/volkswagen-taps-rivian-help-develop-195400023.html)
-- Dec 03 - [Crane Middle School 6th grade teacher arrested after students see nude photos on laptop](https://www.yahoo.com/news/crane-middle-school-6th-grade-174345520.html)
+- Dec 03 - [Snow, bitter cold temperatures expected in Connecticut weather this week. See maps](https://www.yahoo.com/news/snow-bitter-cold-temperatures-expected-192908138.html)
 - Dec 03 - [Iowa sues Biden administration for citizenship status of over 2,000 registered voters](https://www.yahoo.com/news/iowa-sues-biden-administration-citizenship-174116590.html)
+- Dec 03 - [Jill Biden’s White House decorations ripped by Republicans on social media](https://www.yahoo.com/entertainment/jill-biden-white-house-decorations-172722318.html)
 <!-- feed end -->
 
 ### Onstream
