@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Oil Tanker and Container Ship Collide in Strait of Gibraltar](https://www.yahoo.com/news/oil-tanker-container-ship-collide-121957592.html)
-- Dec 03 - ["I Did 4 Years In Women's Prison": 24 Very Honest Confessions From A Former Inmate](https://www.yahoo.com/lifestyle/did-4-years-womens-prison-113102586.html)
-- Dec 03 - [ServiceTitan seeks up to $5.16 billion valuation in US IPO](https://www.yahoo.com/tech/servicetitan-seeks-5-16-billion-112538262.html)
+- Dec 03 - [AMD history: Beyond the Ticker](https://finance.yahoo.com/video/amd-history-beyond-ticker-130039459.html)
+- Dec 03 - [Why Shopify Could Be the Best Stock to Buy in December](https://finance.yahoo.com/news/why-shopify-could-best-stock-123100727.html)
+- Dec 03 - [Adjusted map: Storm could bring up to 6 inches of snow to parts of Massachusetts](https://www.yahoo.com/news/adjusted-map-storm-could-bring-121708779.html)
 - Dec 03 - [Billionaires Are Piling Into This Nasdaq Stock-Split Company Down 52% and Yielding a Healthy 4% Dividend](https://finance.yahoo.com/news/billionaires-piling-nasdaq-stock-split-111500833.html)
-- Dec 03 - [Mortgage and refinance rates today, December 3, 2024: Lowest rate in 6 weeks](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-tuesday-december-3-2024-110054558.html)
+- Dec 03 - [US chips are 'no longer safe' to buy, Chinese industry bodies say](https://finance.yahoo.com/news/chinese-firms-diversify-chip-sources-101223975.html)
 <!-- feed end -->
 
 ### Onstream
