@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [3 Okaloosa County restaurants get perfect scores in state inspections](https://www.yahoo.com/news/3-okaloosa-county-restaurants-perfect-103030882.html)
+- Dec 03 - [2 Dividend Stocks to Double Up on Right Now](https://finance.yahoo.com/news/2-dividend-stocks-double-now-101700494.html)
 - Dec 03 - [Exclusive-Russia approves $320 million sale of Carlsberg assets to local businessmen, document shows](https://finance.yahoo.com/news/exclusive-russia-approves-320-million-095106795.html)
-- Dec 03 - [Reporter Tours Empty Aleppo Airport Following Rebel Capture](https://www.yahoo.com/news/reporter-tours-empty-aleppo-airport-085700779.html)
-- Dec 03 - [Thanks to peace, two unexpected words are echoing across Afghanistan's capital: Luxury housing](https://finance.yahoo.com/news/thanks-peace-two-unexpected-words-051254656.html)
-- Dec 03 - [Army general who oversaw Afghanistan withdrawal promoted to four-star officer after GOP senator drops hold](https://www.yahoo.com/news/army-general-oversaw-afghanistan-withdrawal-034431608.html)
-- Dec 03 - [COVID-19 came from lab leak, report finds | Cuomo](https://www.yahoo.com/news/covid-19-came-lab-leak-021508486.html)
+- Dec 03 - [Driver sentenced to 25 years in prison after pleading guilty to DUI in crash that killed a bride on her wedding night](https://www.yahoo.com/news/driver-pleads-guilty-dui-killing-202910522.html)
+- Dec 03 - [China bans export of key minerals to U.S. as trade frictions escalate](https://finance.yahoo.com/news/china-bans-exports-gallium-germanium-082140753.html)
 <!-- feed end -->
 
 ### Onstream
