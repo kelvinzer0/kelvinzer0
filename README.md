@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [Intel should leave the foundry business: Analyst on CEO departure](https://finance.yahoo.com/video/intel-leave-foundry-business-analyst-181821918.html)
 - Dec 03 - [Jill Biden’s White House decorations ripped by Republicans on social media](https://www.yahoo.com/entertainment/jill-biden-white-house-decorations-172722318.html)
-- Dec 03 - [Campbell says US watching events in South Korea with 'grave concern'](https://www.yahoo.com/news/campbell-says-us-watching-events-170356754.html)
-- Dec 03 - [E. coli outbreak tied to McDonald's Quarter Pounders has ended, CDC says](https://finance.yahoo.com/news/e-coli-outbreak-tied-mcdonalds-165233067.html)
-- Dec 03 - [25 Investigates: Boston City Councilor Tania Fernandes Anderson under federal investigation](https://www.yahoo.com/news/25-investigates-boston-city-councilor-164444691.html)
-- Dec 03 - [Investigators find 11 children working 'dangerous' overnight cleaning shift in meat processing plant](https://www.yahoo.com/news/investigators-11-children-working-dangerous-162615552.html)
+- Dec 03 - [US says it is watching events in South Korea with grave concern](https://www.yahoo.com/news/campbell-says-us-watching-events-170356754.html)
+- Dec 03 - [Tommy Pappas, founder and owner of Columbus' legendary Tommy's Diner, dies](https://www.yahoo.com/news/tommy-pappas-founder-owner-columbus-162220303.html)
+- Dec 03 - [10 years and $42 million later, Jersey Shore town ends battle over its eroding beaches](https://www.yahoo.com/news/10-years-42-million-later-162218687.html)
 <!-- feed end -->
 
 ### Onstream
