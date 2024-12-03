@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Gaffe-prone Welsh Conservative leader resigns following no confidence vote](https://www.yahoo.com/news/gaffe-prone-welsh-conservative-leader-121850769.html)
-- Dec 03 - [10 years and $42 million later, Jersey Shore town ends battle over its eroding beaches](https://www.yahoo.com/news/10-years-42-million-later-162218687.html)
-- Dec 03 - [Exclusive-Intel's CEO-shortlist candidates include former board member Lip-Bu Tan, sources say](https://finance.yahoo.com/news/exclusive-intels-ceo-shortlist-candidates-142016335.html)
-- Dec 03 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://finance.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
-- Dec 03 - [South Korean parliament votes to defy president by lifting his declaration of martial law](https://www.yahoo.com/news/south-korean-president-declares-emergency-133956171.html)
+- Dec 03 - [Jill Biden’s White House decorations ripped by Republicans on social media](https://www.yahoo.com/entertainment/jill-biden-white-house-decorations-172722318.html)
+- Dec 03 - [Campbell says US watching events in South Korea with 'grave concern'](https://www.yahoo.com/news/campbell-says-us-watching-events-170356754.html)
+- Dec 03 - [E. coli outbreak tied to McDonald's Quarter Pounders has ended, CDC says](https://finance.yahoo.com/news/e-coli-outbreak-tied-mcdonalds-165233067.html)
+- Dec 03 - [25 Investigates: Boston City Councilor Tania Fernandes Anderson under federal investigation](https://www.yahoo.com/news/25-investigates-boston-city-councilor-164444691.html)
+- Dec 03 - [Investigators find 11 children working 'dangerous' overnight cleaning shift in meat processing plant](https://www.yahoo.com/news/investigators-11-children-working-dangerous-162615552.html)
 <!-- feed end -->
 
 ### Onstream
