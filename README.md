@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 03 - [Impeachment complaint filed against Philippine VP Duterte after she threatened president](https://www.yahoo.com/news/impeachment-complaint-filed-against-philippine-035435087.html)
-- Dec 03 - [COVID-19 came from lab leak, report finds | Cuomo](https://www.yahoo.com/news/covid-19-came-lab-leak-021508486.html)
-- Dec 03 - [Police say a Hawaii woman who disappeared went to Mexico and is not considered missing](https://www.yahoo.com/news/police-hawaii-woman-disappeared-went-020341551.html)
-- Dec 03 - [Qatar’s Strange New Warship Combines Air Defense Frigate And Amphibious Assault Ship Roles](https://www.yahoo.com/news/qatar-strange-warship-combines-air-012538782.html)
+- Dec 03 - [Maui woman who vanished in Los Angeles seen voluntarily crossing into Mexico](https://www.yahoo.com/news/lapd-public-maui-woman-vanished-010204278.html)
 - Dec 02 - [Alberta RCMP officer charged with sexually assaulting 2 males in hotel room](https://www.yahoo.com/news/alberta-rcmp-officer-charged-sexually-232423640.html)
+- Dec 02 - [Columbus police say male electrocuted on power line may have been trying to steal copper](https://www.yahoo.com/news/columbus-police-male-electrocuted-power-224222812.html)
+- Dec 02 - [Delaware judge reaffirms ruling that invalidated massive Tesla pay package for Elon Musk](https://finance.yahoo.com/news/delaware-judge-reaffirms-ruling-invalidated-223948644.html)
 <!-- feed end -->
 
 ### Onstream
