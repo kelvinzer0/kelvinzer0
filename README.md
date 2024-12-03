@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [Thanks to peace, two unexpected words are echoing across Afghanistan's capital: Luxury housing](https://finance.yahoo.com/news/thanks-peace-two-unexpected-words-051254656.html)
+- Dec 03 - [Army general who oversaw Afghanistan withdrawal promoted to four-star officer after GOP senator drops hold](https://www.yahoo.com/news/army-general-oversaw-afghanistan-withdrawal-034431608.html)
 - Dec 03 - [COVID-19 came from lab leak, report finds | Cuomo](https://www.yahoo.com/news/covid-19-came-lab-leak-021508486.html)
 - Dec 03 - [Maui woman who vanished in Los Angeles seen voluntarily crossing into Mexico](https://www.yahoo.com/news/lapd-public-maui-woman-vanished-010204278.html)
-- Dec 02 - [Alberta RCMP officer charged with sexually assaulting 2 males in hotel room](https://www.yahoo.com/news/alberta-rcmp-officer-charged-sexually-232423640.html)
-- Dec 02 - [Carjacking ends in gunfire along Brookfield, Wauwatosa border](https://www.yahoo.com/news/carjacking-ends-gunfire-along-brookfield-232410805.html)
-- Dec 02 - [Delaware judge reaffirms ruling that invalidated massive Tesla pay package for Elon Musk](https://finance.yahoo.com/news/delaware-judge-reaffirms-ruling-invalidated-223948644.html)
+- Dec 02 - [Russian tourist dies after being swept away by massive wave while doing yoga in Thailand](https://www.yahoo.com/news/russian-tourist-dies-being-swept-222434115.html)
 <!-- feed end -->
 
 ### Onstream
