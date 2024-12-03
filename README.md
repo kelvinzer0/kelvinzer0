@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [I-95 reopens New Hampshire-Maine border after ‘active police situation’](https://www.yahoo.com/news/95-closed-both-directions-near-195509565.html)
+- Dec 03 - [Netflix Japan subscribers top 10 million with shows garnering attention](https://finance.yahoo.com/news/netflix-japan-subscribers-top-10-223218501.html)
+- Dec 03 - [Trump team agrees with Justice Dept to begin background checks](https://www.yahoo.com/news/trump-team-reaches-agreement-doj-211812024.html)
+- Dec 03 - [Bald 'Bare Bear' Makes Stunning, Furry Transformation After Her Move to a Texas Sanctuary](https://www.yahoo.com/lifestyle/bald-bare-bear-makes-stunning-211500490.html)
+- Dec 03 - [Social Security announces major change for three groups. See if you’re on the list](https://www.yahoo.com/news/social-security-announces-major-change-204524753.html)
 - Dec 03 - [Wells Fargo issues Wall Street's most bullish forecast yet for the stock market in 2025](https://finance.yahoo.com/news/wells-fargo-issues-wall-streets-most-bullish-forecast-yet-for-the-stock-market-in-2025-203847212.html)
-- Dec 03 - [Snow, bitter cold temperatures expected in Connecticut weather this week. See maps](https://www.yahoo.com/news/snow-bitter-cold-temperatures-expected-192908138.html)
-- Dec 03 - [Iowa sues Biden administration for citizenship status of over 2,000 registered voters](https://www.yahoo.com/news/iowa-sues-biden-administration-citizenship-174116590.html)
-- Dec 03 - [Jill Biden’s White House decorations ripped by Republicans on social media](https://www.yahoo.com/entertainment/jill-biden-white-house-decorations-172722318.html)
 <!-- feed end -->
 
 ### Onstream
