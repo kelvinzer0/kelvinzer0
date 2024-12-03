@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [COVID-19 came from lab leak, report finds | Cuomo](https://www.yahoo.com/news/covid-19-came-lab-leak-021508486.html)
 - Dec 03 - [Maui woman who vanished in Los Angeles seen voluntarily crossing into Mexico](https://www.yahoo.com/news/lapd-public-maui-woman-vanished-010204278.html)
-- Dec 02 - [Alberta RCMP officer charged with sexually assaulting 2 males in hotel room](https://www.yahoo.com/news/alberta-rcmp-officer-charged-sexually-232423640.html)
-- Dec 02 - [Springfield Public Schools changes Wilson's Creek principal after less than 4 months](https://www.yahoo.com/news/springfield-public-schools-changes-wilsons-230031463.html)
-- Dec 02 - [Delaware judge reaffirms ruling that invalidated massive Tesla pay package for Elon Musk](https://finance.yahoo.com/news/delaware-judge-reaffirms-ruling-invalidated-223948644.html)
-- Dec 02 - [North Carolina Republicans close in on enacting bill that weakens incoming Democratic governor](https://www.yahoo.com/news/north-carolina-republicans-close-enacting-222441346.html)
+- Dec 02 - [Russian tourist dies after being swept away by massive wave while doing yoga in Thailand](https://www.yahoo.com/news/russian-tourist-dies-being-swept-222434115.html)
+- Dec 02 - [Winning $35K SuperLotto Plus ticket sold at San Diego liquor store](https://www.yahoo.com/news/winning-35k-superlotto-plus-ticket-220023142.html)
+- Dec 02 - [Delaware judge rejects Musk's $56 billion Tesla pay - again](https://finance.yahoo.com/news/delaware-judge-rejects-request-restore-215608568.html)
 <!-- feed end -->
 
 ### Onstream
