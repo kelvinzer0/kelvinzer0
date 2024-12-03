@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Intel should leave the foundry business: Analyst on CEO departure](https://finance.yahoo.com/video/intel-leave-foundry-business-analyst-181821918.html)
+- Dec 03 - [Iowa sues Biden administration for citizenship status of over 2,000 registered voters](https://www.yahoo.com/news/iowa-sues-biden-administration-citizenship-174116590.html)
 - Dec 03 - [Jill Biden’s White House decorations ripped by Republicans on social media](https://www.yahoo.com/entertainment/jill-biden-white-house-decorations-172722318.html)
-- Dec 03 - [US says it is watching events in South Korea with grave concern](https://www.yahoo.com/news/campbell-says-us-watching-events-170356754.html)
-- Dec 03 - [Tommy Pappas, founder and owner of Columbus' legendary Tommy's Diner, dies](https://www.yahoo.com/news/tommy-pappas-founder-owner-columbus-162220303.html)
+- Dec 03 - [US wants South Korea crisis resolved in accordance with law](https://www.yahoo.com/news/campbell-says-us-watching-events-170356754.html)
 - Dec 03 - [10 years and $42 million later, Jersey Shore town ends battle over its eroding beaches](https://www.yahoo.com/news/10-years-42-million-later-162218687.html)
+- Dec 03 - [US jets attack Iranian militias in Syria](https://www.yahoo.com/news/russia-withdraws-ships-syrian-naval-143200269.html)
 <!-- feed end -->
 
 ### Onstream
