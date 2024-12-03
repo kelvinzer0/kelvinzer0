@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Impeachment complaint filed against Philippine VP Duterte after she threatened president](https://www.yahoo.com/news/impeachment-complaint-filed-against-philippine-035435087.html)
 - Dec 03 - [Maui woman who vanished in Los Angeles seen voluntarily crossing into Mexico](https://www.yahoo.com/news/lapd-public-maui-woman-vanished-010204278.html)
 - Dec 02 - [Alberta RCMP officer charged with sexually assaulting 2 males in hotel room](https://www.yahoo.com/news/alberta-rcmp-officer-charged-sexually-232423640.html)
-- Dec 02 - [Columbus police say male electrocuted on power line may have been trying to steal copper](https://www.yahoo.com/news/columbus-police-male-electrocuted-power-224222812.html)
+- Dec 02 - [Springfield Public Schools changes Wilson's Creek principal after less than 4 months](https://www.yahoo.com/news/springfield-public-schools-changes-wilsons-230031463.html)
 - Dec 02 - [Delaware judge reaffirms ruling that invalidated massive Tesla pay package for Elon Musk](https://finance.yahoo.com/news/delaware-judge-reaffirms-ruling-invalidated-223948644.html)
+- Dec 02 - [North Carolina Republicans close in on enacting bill that weakens incoming Democratic governor](https://www.yahoo.com/news/north-carolina-republicans-close-enacting-222441346.html)
 <!-- feed end -->
 
 ### Onstream
