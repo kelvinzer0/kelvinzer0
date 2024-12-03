@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 03 - [COVID-19 came from lab leak, report finds | Cuomo](https://www.yahoo.com/news/covid-19-came-lab-leak-021508486.html)
 - Dec 03 - [Maui woman who vanished in Los Angeles seen voluntarily crossing into Mexico](https://www.yahoo.com/news/lapd-public-maui-woman-vanished-010204278.html)
-- Dec 02 - [Russian tourist dies after being swept away by massive wave while doing yoga in Thailand](https://www.yahoo.com/news/russian-tourist-dies-being-swept-222434115.html)
-- Dec 02 - [Winning $35K SuperLotto Plus ticket sold at San Diego liquor store](https://www.yahoo.com/news/winning-35k-superlotto-plus-ticket-220023142.html)
-- Dec 02 - [Delaware judge rejects Musk's $56 billion Tesla pay - again](https://finance.yahoo.com/news/delaware-judge-rejects-request-restore-215608568.html)
+- Dec 02 - [Alberta RCMP officer charged with sexually assaulting 2 males in hotel room](https://www.yahoo.com/news/alberta-rcmp-officer-charged-sexually-232423640.html)
+- Dec 02 - [Carjacking ends in gunfire along Brookfield, Wauwatosa border](https://www.yahoo.com/news/carjacking-ends-gunfire-along-brookfield-232410805.html)
+- Dec 02 - [Delaware judge reaffirms ruling that invalidated massive Tesla pay package for Elon Musk](https://finance.yahoo.com/news/delaware-judge-reaffirms-ruling-invalidated-223948644.html)
 <!-- feed end -->
 
 ### Onstream
