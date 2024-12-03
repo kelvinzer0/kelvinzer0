@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [South Korean president declares emergency martial law, accusing opposition of anti-state activities](https://www.yahoo.com/news/south-korean-president-declares-emergency-133956171.html)
 - Dec 03 - [AMD history: Beyond the Ticker](https://finance.yahoo.com/video/amd-history-beyond-ticker-130039459.html)
-- Dec 03 - [Why Shopify Could Be the Best Stock to Buy in December](https://finance.yahoo.com/news/why-shopify-could-best-stock-123100727.html)
-- Dec 03 - [Adjusted map: Storm could bring up to 6 inches of snow to parts of Massachusetts](https://www.yahoo.com/news/adjusted-map-storm-could-bring-121708779.html)
 - Dec 03 - [Billionaires Are Piling Into This Nasdaq Stock-Split Company Down 52% and Yielding a Healthy 4% Dividend](https://finance.yahoo.com/news/billionaires-piling-nasdaq-stock-split-111500833.html)
-- Dec 03 - [US chips are 'no longer safe' to buy, Chinese industry bodies say](https://finance.yahoo.com/news/chinese-firms-diversify-chip-sources-101223975.html)
+- Dec 03 - [3 Top US Dividend Stocks To Enhance Your Portfolio](https://finance.yahoo.com/news/3-top-us-dividend-stocks-110930367.html)
+- Dec 03 - [Scientists develop game-changing technology that turns Styrofoam into electricity — here's how it could energize future appliances](https://www.yahoo.com/tech/scientists-develop-game-changing-technology-103051405.html)
 <!-- feed end -->
 
 ### Onstream
