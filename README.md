@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [South Korean president declares emergency martial law, accusing opposition of anti-state activities](https://www.yahoo.com/news/south-korean-president-declares-emergency-133956171.html)
-- Dec 03 - [AMD history: Beyond the Ticker](https://finance.yahoo.com/video/amd-history-beyond-ticker-130039459.html)
-- Dec 03 - [Billionaires Are Piling Into This Nasdaq Stock-Split Company Down 52% and Yielding a Healthy 4% Dividend](https://finance.yahoo.com/news/billionaires-piling-nasdaq-stock-split-111500833.html)
-- Dec 03 - [3 Top US Dividend Stocks To Enhance Your Portfolio](https://finance.yahoo.com/news/3-top-us-dividend-stocks-110930367.html)
-- Dec 03 - [Scientists develop game-changing technology that turns Styrofoam into electricity — here's how it could energize future appliances](https://www.yahoo.com/tech/scientists-develop-game-changing-technology-103051405.html)
+- Dec 03 - [Exclusive-Intel's CEO-shortlist candidates include former board member Lip-Bu Tan, sources say](https://finance.yahoo.com/news/exclusive-intels-ceo-shortlist-candidates-142016349.html)
+- Dec 03 - [Gaffe-prone Welsh Conservative leader resigns following no confidence vote](https://www.yahoo.com/news/gaffe-prone-welsh-conservative-leader-121850769.html)
+- Dec 03 - [South Korean president declares martial law, accusing opposition of anti-state activity](https://www.yahoo.com/news/south-korean-president-declares-emergency-133956171.html)
+- Dec 03 - [Venezuelan migrants keep arriving in Colombia. These faith leaders offer them a home away from home](https://www.yahoo.com/news/venezuelan-migrants-keep-arriving-colombia-130150544.html)
+- Dec 03 - [Former Edmond restaurant employee accused of threatening to blow it up](https://www.yahoo.com/news/former-edmond-restaurant-employee-accused-121500439.html)
 <!-- feed end -->
 
 ### Onstream
