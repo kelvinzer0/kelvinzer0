@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [Police say a Hawaii woman who disappeared went to Mexico and is not considered missing](https://www.yahoo.com/news/police-hawaii-woman-disappeared-went-020341551.html)
+- Dec 03 - [South Carolina driver gets 25 years for DUI crash that killed bride, injured groom on wedding day](https://www.yahoo.com/news/south-carolina-driver-gets-25-002158350.html)
 - Dec 02 - [Alberta RCMP officer charged with sexually assaulting 2 males in hotel room](https://www.yahoo.com/news/alberta-rcmp-officer-charged-sexually-232423640.html)
-- Dec 02 - [Man getting packages finds missing babies in a ditch](https://www.yahoo.com/news/man-getting-packages-finds-missing-230937118.html)
-- Dec 02 - [2 Delta attendants fail breathalyzer test before international flight](https://www.yahoo.com/news/two-delta-attendants-fail-breathalyzer-221006640.html)
 - Dec 02 - [North Carolina Republicans close in on enacting bill that weakens incoming Democratic governor](https://www.yahoo.com/news/north-carolina-republicans-close-enacting-222441346.html)
 - Dec 02 - [Russian tourist dies after being swept away by massive wave while doing yoga in Thailand](https://www.yahoo.com/news/russian-tourist-dies-being-swept-222434115.html)
 <!-- feed end -->
