@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 04 - [Trump's plan for Ukraine comes into focus: Territorial concessions but NATO off the table](https://www.yahoo.com/news/trumps-plan-ukraine-comes-focus-060420062.html)
-- Dec 04 - [Analysis-Indian steel mills feel crunch from cheap Chinese imports](https://finance.yahoo.com/news/analysis-indian-steel-mills-feel-034207441.html)
+- Dec 04 - [Thousands of Kurds displaced from Aleppo arrive in Kurdish-controlled areas near Raqqa](https://www.yahoo.com/news/thousands-kurds-displaced-aleppo-arrive-051756604.html)
+- Dec 04 - [An ex-officer who died in an apparent suicide before his abuse trial was not supposed to have a gun](https://www.yahoo.com/news/ex-officer-died-apparent-suicide-051155079.html)
 - Dec 04 - [Democrats flip seat in California's Central Valley in nation's final outstanding House race](https://www.yahoo.com/news/democrats-flip-seat-californias-central-031946930.html)
 - Dec 04 - [Trump considers replacing Hegseth with DeSantis to run Pentagon, WSJ reports](https://www.yahoo.com/news/trump-considers-replacing-hegseth-desantis-030614907.html)
-- Dec 04 - [Why the stock market's record-breaking run could spell bad news for investors in 2025](https://finance.yahoo.com/news/why-stock-markets-record-breaking-024142368.html)
 <!-- feed end -->
 
 ### Onstream
