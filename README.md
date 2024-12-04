@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Full rollout of eVisas set to be postponed after foreign worker warning](https://www.yahoo.com/news/full-rollout-evisas-set-postponed-082906748.html)
-- Dec 04 - [Turley: The Bidens are the 'GOATs of influence peddling' and in an ethical 'freefall'](https://www.yahoo.com/news/turley-bidens-goats-influence-peddling-090053120.html)
+- Dec 04 - [FBI investigates mysterious large drones circling over New Jersey](https://www.yahoo.com/news/fbi-investigates-mysterious-large-drones-124651003.html)
+- Dec 04 - [Mortgage and refinance rates today, December 4, 2024: Rates keep ticking down](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-wednesday-december-4-2024-110027053.html)
+- Dec 04 - [Marjorie Taylor Greene Wants A ‘Blanket Pardon’ And Everyone Has The Same Question](https://www.yahoo.com/news/marjorie-taylor-greene-wants-blanket-100218933.html)
+- Dec 04 - [Crypto Liquidations Hit $588 Million as XRP, Bitcoin, Ethereum and Dogecoin Experience Major Price Swings](https://finance.yahoo.com/news/crypto-liquidations-hit-588-million-081044365.html)
 - Dec 04 - [Trump's plan for Ukraine comes into focus: Territorial concessions but NATO off the table](https://www.yahoo.com/news/trumps-plan-ukraine-comes-focus-060420062.html)
-- Dec 04 - [Thousands of Kurds displaced from Aleppo arrive in Kurdish-controlled areas near Raqqa](https://www.yahoo.com/news/thousands-kurds-displaced-aleppo-arrive-051756604.html)
-- Dec 04 - [An ex-officer who died in an apparent suicide before his abuse trial was not supposed to have a gun](https://www.yahoo.com/news/ex-officer-died-apparent-suicide-051155079.html)
 <!-- feed end -->
 
 ### Onstream
