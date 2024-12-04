@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Lake Effect Snow Warning issued for Greater Akron Wednesday: What to know 🌨️](https://www.yahoo.com/news/lake-effect-snow-warning-issued-134651350.html)
-- Dec 04 - [Opinion - Putin’s overseas empire is collapsing all at once — don’t let up on him now](https://www.yahoo.com/news/opinion-putin-overseas-empire-collapsing-120000344.html)
-- Dec 04 - [GM to take more than $5 billion in charges on China operations](https://finance.yahoo.com/news/gm-more-5-billion-charges-113518512.html)
-- Dec 04 - [Mortgage and refinance rates today, December 4, 2024: Rates keep ticking down](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-wednesday-december-4-2024-110027053.html)
-- Dec 04 - [Trump's plan for Ukraine comes into focus: Territorial concessions but NATO off the table](https://www.yahoo.com/news/trumps-plan-ukraine-comes-focus-060420062.html)
+- Dec 04 - [From decree to defeat: Inside South Korea's failed martial law attempt](https://www.yahoo.com/news/decree-defeat-inside-south-koreas-145604911.html)
+- Dec 04 - [James Carville Claims 1 Person Is Secretly 'Driving' Trump's Sketchy Nominations](https://www.yahoo.com/news/james-carville-claims-1-person-140856655.html)
+- Dec 04 - [Billionaire Philippe Laffont Just Bought 2.8 Million Shares of This Unstoppable Nuclear Power Stock](https://finance.yahoo.com/news/billionaire-philippe-laffont-just-bought-135300620.html)
+- Dec 04 - [Trump Fires Off 'Spectacularly Dumb' 2-Word Post About Canada After Trudeau Jab](https://www.yahoo.com/news/trump-fires-off-spectacularly-dumb-132238714.html)
+- Dec 04 - [Putin urges government and central bank to coordinate action to curb high inflation](https://finance.yahoo.com/news/putin-urges-government-central-bank-131927873.html)
 <!-- feed end -->
 
 ### Onstream
