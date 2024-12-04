@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Who killed UnitedHealthcare CEO Brian Thompson? What we know about the suspect on the run](https://www.yahoo.com/news/killed-unitedhealthcare-ceo-brian-thompson-205400008.html)
-- Dec 04 - [Trump Melts Down as Another Nomination Blows Up in His Face](https://www.yahoo.com/news/trump-melts-down-another-nomination-201900216.html)
+- Dec 04 - [Cuba calls Trump proposal for mass deportation of immigrants unrealistic](https://www.yahoo.com/news/cuba-calls-trump-proposal-mass-230330631.html)
+- Dec 04 - [Lamborghini debuts new luxury plug-in hybrid SUV: CEO](https://finance.yahoo.com/video/lamborghini-debuts-luxury-plug-hybrid-224656346.html)
+- Dec 04 - [City of Pittsburgh Public Works closing several roadways ahead of Wednesday’s predicted snowfall](https://www.yahoo.com/news/city-pittsburgh-public-works-closing-210947642.html)
 - Dec 04 - [Amy Coney Barrett’s Mind-Boggling Question in Supreme Court Trans Case](https://www.yahoo.com/news/amy-coney-barrett-mind-boggling-194718116.html)
 - Dec 04 - [Trump reverses course, names new White House lawyer](https://www.yahoo.com/news/trump-picks-david-warrington-white-180758318.html)
-- Dec 04 - [Bitcoin pulls back after South Korea martial law lift](https://finance.yahoo.com/video/bitcoin-pulls-back-south-korea-180216529.html)
 <!-- feed end -->
 
 ### Onstream
