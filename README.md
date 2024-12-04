@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [FBI investigates mysterious large drones circling over New Jersey](https://www.yahoo.com/news/fbi-investigates-mysterious-large-drones-124651003.html)
+- Dec 04 - [Lake Effect Snow Warning issued for Greater Akron Wednesday: What to know 🌨️](https://www.yahoo.com/news/lake-effect-snow-warning-issued-134651350.html)
+- Dec 04 - [Opinion - Putin’s overseas empire is collapsing all at once — don’t let up on him now](https://www.yahoo.com/news/opinion-putin-overseas-empire-collapsing-120000344.html)
+- Dec 04 - [GM to take more than $5 billion in charges on China operations](https://finance.yahoo.com/news/gm-more-5-billion-charges-113518512.html)
 - Dec 04 - [Mortgage and refinance rates today, December 4, 2024: Rates keep ticking down](https://finance.yahoo.com/personal-finance/mortgage-refinance-rates-today-wednesday-december-4-2024-110027053.html)
-- Dec 04 - [Marjorie Taylor Greene Wants A ‘Blanket Pardon’ And Everyone Has The Same Question](https://www.yahoo.com/news/marjorie-taylor-greene-wants-blanket-100218933.html)
-- Dec 04 - [Crypto Liquidations Hit $588 Million as XRP, Bitcoin, Ethereum and Dogecoin Experience Major Price Swings](https://finance.yahoo.com/news/crypto-liquidations-hit-588-million-081044365.html)
 - Dec 04 - [Trump's plan for Ukraine comes into focus: Territorial concessions but NATO off the table](https://www.yahoo.com/news/trumps-plan-ukraine-comes-focus-060420062.html)
 <!-- feed end -->
 
