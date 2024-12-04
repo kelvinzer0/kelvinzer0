@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [Full rollout of eVisas set to be postponed after foreign worker warning](https://www.yahoo.com/news/full-rollout-evisas-set-postponed-082906748.html)
+- Dec 04 - [Turley: The Bidens are the 'GOATs of influence peddling' and in an ethical 'freefall'](https://www.yahoo.com/news/turley-bidens-goats-influence-peddling-090053120.html)
 - Dec 04 - [Trump's plan for Ukraine comes into focus: Territorial concessions but NATO off the table](https://www.yahoo.com/news/trumps-plan-ukraine-comes-focus-060420062.html)
 - Dec 04 - [Thousands of Kurds displaced from Aleppo arrive in Kurdish-controlled areas near Raqqa](https://www.yahoo.com/news/thousands-kurds-displaced-aleppo-arrive-051756604.html)
 - Dec 04 - [An ex-officer who died in an apparent suicide before his abuse trial was not supposed to have a gun](https://www.yahoo.com/news/ex-officer-died-apparent-suicide-051155079.html)
-- Dec 04 - [Democrats flip seat in California's Central Valley in nation's final outstanding House race](https://www.yahoo.com/news/democrats-flip-seat-californias-central-031946930.html)
-- Dec 04 - [Trump considers replacing Hegseth with DeSantis to run Pentagon, WSJ reports](https://www.yahoo.com/news/trump-considers-replacing-hegseth-desantis-030614907.html)
 <!-- feed end -->
 
 ### Onstream
