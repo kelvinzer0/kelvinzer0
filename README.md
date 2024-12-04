@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [UnitedHealthcare CEO fatally shot in NYC](https://finance.yahoo.com/video/unitedhealthcare-ceo-fatally-shot-nyc-160200786.html)
-- Dec 04 - [UnitedHealthcare CEO Brian Thompson killed outside investor conference in New York City](https://www.yahoo.com/news/unitedhealthcare-ceo-brian-thompson-killed-155924548.html)
-- Dec 04 - [The iPhone SE 4 is going to be a bigger deal than you think](https://www.yahoo.com/tech/iphone-se-4-going-bigger-153006300.html)
+- Dec 04 - [Tim Cook Discusses The Past, Present, and Future of Apple](https://www.yahoo.com/entertainment/tim-cook-discusses-past-present-170000903.html)
+- Dec 04 - [Chechen leader Kadyrov says Ukrainian drone causes civilian casualties](https://www.yahoo.com/news/chechen-leader-kadyrov-says-ukrainian-164619742.html)
+- Dec 04 - [Israel says deaths of six hostages in Gaza probably linked to Israeli strike](https://www.yahoo.com/news/israel-says-deaths-six-hostages-162858138.html)
+- Dec 04 - [Social media post leads to recovery of massive wheel loader stolen in upstate NY](https://www.yahoo.com/news/social-media-post-leads-recovery-155731365.html)
 - Dec 04 - [James Carville Claims 1 Person Is Secretly 'Driving' Trump's Sketchy Nominations](https://www.yahoo.com/news/james-carville-claims-1-person-140856655.html)
-- Dec 04 - [H-E-B on South Congress officially reopens Wednesday. Here's a look inside the new store](https://www.yahoo.com/news/h-e-b-south-congress-132818379.html)
 <!-- feed end -->
 
 ### Onstream
