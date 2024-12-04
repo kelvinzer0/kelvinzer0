@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [From decree to defeat: Inside South Korea's failed martial law attempt](https://www.yahoo.com/news/decree-defeat-inside-south-koreas-145604911.html)
+- Dec 04 - [UnitedHealthcare CEO fatally shot in NYC](https://finance.yahoo.com/video/unitedhealthcare-ceo-fatally-shot-nyc-160200786.html)
+- Dec 04 - [UnitedHealthcare CEO Brian Thompson killed outside investor conference in New York City](https://www.yahoo.com/news/unitedhealthcare-ceo-brian-thompson-killed-155924548.html)
+- Dec 04 - [The iPhone SE 4 is going to be a bigger deal than you think](https://www.yahoo.com/tech/iphone-se-4-going-bigger-153006300.html)
 - Dec 04 - [James Carville Claims 1 Person Is Secretly 'Driving' Trump's Sketchy Nominations](https://www.yahoo.com/news/james-carville-claims-1-person-140856655.html)
-- Dec 04 - [Billionaire Philippe Laffont Just Bought 2.8 Million Shares of This Unstoppable Nuclear Power Stock](https://finance.yahoo.com/news/billionaire-philippe-laffont-just-bought-135300620.html)
-- Dec 04 - [Trump Fires Off 'Spectacularly Dumb' 2-Word Post About Canada After Trudeau Jab](https://www.yahoo.com/news/trump-fires-off-spectacularly-dumb-132238714.html)
-- Dec 04 - [Putin urges government and central bank to coordinate action to curb high inflation](https://finance.yahoo.com/news/putin-urges-government-central-bank-131927873.html)
+- Dec 04 - [H-E-B on South Congress officially reopens Wednesday. Here's a look inside the new store](https://www.yahoo.com/news/h-e-b-south-congress-132818379.html)
 <!-- feed end -->
 
 ### Onstream
