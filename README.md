@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [Trump's plan for Ukraine comes into focus: Territorial concessions but NATO off the table](https://www.yahoo.com/news/trumps-plan-ukraine-comes-focus-060420062.html)
 - Dec 04 - [Analysis-Indian steel mills feel crunch from cheap Chinese imports](https://finance.yahoo.com/news/analysis-indian-steel-mills-feel-034207441.html)
 - Dec 04 - [Democrats flip seat in California's Central Valley in nation's final outstanding House race](https://www.yahoo.com/news/democrats-flip-seat-californias-central-031946930.html)
 - Dec 04 - [Trump considers replacing Hegseth with DeSantis to run Pentagon, WSJ reports](https://www.yahoo.com/news/trump-considers-replacing-hegseth-desantis-030614907.html)
-- Dec 04 - [Mom diagnosed with Stage 4 colon cancer at 38 recalls her 1st symptom: ‘I ignored it’](https://www.yahoo.com/lifestyle/mom-diagnosed-stage-4-colon-023841984.html)
-- Dec 04 - [College Football Shocker Outs Billionaire’s 47 Years-Younger Wife](https://www.yahoo.com/entertainment/college-football-shocker-outs-billionaire-003453448.html)
+- Dec 04 - [Why the stock market's record-breaking run could spell bad news for investors in 2025](https://finance.yahoo.com/news/why-stock-markets-record-breaking-024142368.html)
 <!-- feed end -->
 
 ### Onstream
