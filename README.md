@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Netflix Japan subscribers top 10 million with shows garnering attention](https://finance.yahoo.com/news/netflix-japan-subscribers-top-10-223218501.html)
-- Dec 03 - [Trump team agrees with Justice Dept to begin background checks](https://www.yahoo.com/news/trump-team-reaches-agreement-doj-211812024.html)
-- Dec 03 - [Bald 'Bare Bear' Makes Stunning, Furry Transformation After Her Move to a Texas Sanctuary](https://www.yahoo.com/lifestyle/bald-bare-bear-makes-stunning-211500490.html)
+- Dec 03 - [Chad Chronister, Donald Trump’s pick to run the DEA, withdraws name from consideration](https://www.yahoo.com/news/chad-chronister-donald-trump-pick-225607780.html)
+- Dec 03 - [Women who killed man inside Las Vegas Strip hotel room could spend 10 years in prison](https://www.yahoo.com/news/women-killed-man-inside-las-212842630.html)
+- Dec 03 - [I-95 reopens New Hampshire-Maine border after ‘active police situation’](https://www.yahoo.com/news/95-closed-both-directions-near-195509565.html)
 - Dec 03 - [Social Security announces major change for three groups. See if you’re on the list](https://www.yahoo.com/news/social-security-announces-major-change-204524753.html)
 - Dec 03 - [Wells Fargo issues Wall Street's most bullish forecast yet for the stock market in 2025](https://finance.yahoo.com/news/wells-fargo-issues-wall-streets-most-bullish-forecast-yet-for-the-stock-market-in-2025-203847212.html)
 <!-- feed end -->
