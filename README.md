@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Just three minutes of brisk walking a day could halve chance of heart attack](https://www.yahoo.com/news/just-three-minutes-brisk-walking-062800309.html)
 - Dec 04 - [Democrats flip seat in California's Central Valley in nation's final outstanding House race](https://www.yahoo.com/news/democrats-flip-seat-californias-central-031946930.html)
 - Dec 04 - [Trump considers replacing Hegseth with DeSantis to run Pentagon, WSJ reports](https://www.yahoo.com/news/trump-considers-replacing-hegseth-desantis-030614907.html)
 - Dec 04 - [Mom diagnosed with Stage 4 colon cancer at 38 recalls her 1st symptom: ‘I ignored it’](https://www.yahoo.com/lifestyle/mom-diagnosed-stage-4-colon-023841984.html)
-- Dec 04 - [College Football Shocker Outs Billionaire’s 47 Years-Younger Wife](https://www.yahoo.com/entertainment/college-football-shocker-outs-billionaire-003453448.html)
+- Dec 03 - [If You're Seeing A Ton Of Headlines About South Korea But Don't Know What's Happening, Here's What We Know](https://www.yahoo.com/news/heres-whats-going-south-korea-213322966.html)
+- Dec 03 - [Women who killed man inside Las Vegas Strip hotel room could spend 10 years in prison](https://www.yahoo.com/news/women-killed-man-inside-las-212842630.html)
 <!-- feed end -->
 
 ### Onstream
