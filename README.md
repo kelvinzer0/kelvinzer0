@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [Amazon reveals slate of new AI models in bid to catch rivals](https://finance.yahoo.com/video/amazon-reveals-slate-ai-models-050901026.html)
+- Dec 04 - [Trump weighs replacing Hegseth with DeSantis to run Pentagon, Wall Street Journal reports](https://www.yahoo.com/news/trump-weighs-replacing-hegseth-desantis-035608975.html)
 - Dec 04 - [Democrats flip seat in California's Central Valley in nation's final outstanding House race](https://www.yahoo.com/news/democrats-flip-seat-californias-central-031946930.html)
-- Dec 04 - [College Football Shocker Outs Billionaire’s 47 Years-Younger Wife](https://www.yahoo.com/entertainment/college-football-shocker-outs-billionaire-003453448.html)
-- Dec 03 - [Former OJ Simpson bodyguard claims to have recording of murder confession](https://www.yahoo.com/news/former-oj-simpson-bodyguard-claims-235100684.html)
-- Dec 03 - [Chad Chronister, Donald Trump’s pick to run the DEA, withdraws name from consideration](https://www.yahoo.com/news/chad-chronister-donald-trump-pick-225607780.html)
-- Dec 03 - [If You're Seeing A Ton Of Headlines About South Korea But Don't Know What's Happening, Here's What We Know](https://www.yahoo.com/news/heres-whats-going-south-korea-213322966.html)
+- Dec 04 - [Mom diagnosed with Stage 4 colon cancer at 38 recalls her 1st symptom: ‘I ignored it’](https://www.yahoo.com/lifestyle/mom-diagnosed-stage-4-colon-023841984.html)
+- Dec 03 - [Josh Duggar Looks Unrecognizable in New Photos From Prison 2 Years After His Sentencing](https://www.yahoo.com/entertainment/josh-duggar-looks-unrecognizable-photos-224039993.html)
 <!-- feed end -->
 
 ### Onstream
