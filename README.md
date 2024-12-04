@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Amarillo ISD faces tough decisions on schools' futures amid declining enrollment](https://www.yahoo.com/news/amarillo-isd-faces-tough-decisions-202308270.html)
-- Dec 04 - [UnitedHealth exec killing 'will reverberate' across firms, advisor says](https://finance.yahoo.com/video/unitedhealth-exec-killing-reverberate-across-201910191.html)
+- Dec 04 - [Who killed UnitedHealthcare CEO Brian Thompson? What we know about the suspect on the run](https://www.yahoo.com/news/killed-unitedhealthcare-ceo-brian-thompson-205400008.html)
+- Dec 04 - [Trump Melts Down as Another Nomination Blows Up in His Face](https://www.yahoo.com/news/trump-melts-down-another-nomination-201900216.html)
 - Dec 04 - [Amy Coney Barrett’s Mind-Boggling Question in Supreme Court Trans Case](https://www.yahoo.com/news/amy-coney-barrett-mind-boggling-194718116.html)
-- Dec 04 - [People's Reactions to a Health Insurance CEO Getting Assassinated Are Incredibly Dark](https://www.yahoo.com/news/peoples-reactions-health-insurance-ceo-194356152.html)
 - Dec 04 - [Trump reverses course, names new White House lawyer](https://www.yahoo.com/news/trump-picks-david-warrington-white-180758318.html)
+- Dec 04 - [Bitcoin pulls back after South Korea martial law lift](https://finance.yahoo.com/video/bitcoin-pulls-back-south-korea-180216529.html)
 <!-- feed end -->
 
 ### Onstream
