@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Tim Cook Discusses The Past, Present, and Future of Apple](https://www.yahoo.com/entertainment/tim-cook-discusses-past-present-170000903.html)
-- Dec 04 - [Chechen leader Kadyrov says Ukrainian drone causes civilian casualties](https://www.yahoo.com/news/chechen-leader-kadyrov-says-ukrainian-164619742.html)
-- Dec 04 - [Israel says deaths of six hostages in Gaza probably linked to Israeli strike](https://www.yahoo.com/news/israel-says-deaths-six-hostages-162858138.html)
-- Dec 04 - [Social media post leads to recovery of massive wheel loader stolen in upstate NY](https://www.yahoo.com/news/social-media-post-leads-recovery-155731365.html)
-- Dec 04 - [James Carville Claims 1 Person Is Secretly 'Driving' Trump's Sketchy Nominations](https://www.yahoo.com/news/james-carville-claims-1-person-140856655.html)
+- Dec 04 - [Bitcoin pulls back after South Korea martial law lift](https://finance.yahoo.com/video/bitcoin-pulls-back-south-korea-180216529.html)
+- Dec 04 - [Putin’s relative accidentally reveals secret Russian death toll in Ukraine](https://www.yahoo.com/news/putin-relative-accidentally-reveals-secret-174214768.html)
+- Dec 04 - [Billionaire who performed the first private spacewalk is Trump's pick to lead NASA](https://www.yahoo.com/news/billionaire-performed-first-private-spacewalk-172309501.html)
+- Dec 04 - [Michigan court upholds light sentence for woman who killed dad in dispute over ride](https://www.yahoo.com/news/michigan-court-upholds-light-sentence-165534931.html)
+- Dec 04 - [Erie gym closes over fear of the roof collapsing. How to tell if yours might](https://www.yahoo.com/news/erie-gym-closes-over-fear-161733753.html)
 <!-- feed end -->
 
 ### Onstream
