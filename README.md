@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Amazon reveals slate of new AI models in bid to catch rivals](https://finance.yahoo.com/video/amazon-reveals-slate-ai-models-050901026.html)
-- Dec 04 - [Trump weighs replacing Hegseth with DeSantis to run Pentagon, Wall Street Journal reports](https://www.yahoo.com/news/trump-weighs-replacing-hegseth-desantis-035608975.html)
+- Dec 04 - [South Korea's Opposition Party Seeks to Impeach President Yoon](https://finance.yahoo.com/video/south-koreas-opposition-party-seeks-051853812.html)
 - Dec 04 - [Democrats flip seat in California's Central Valley in nation's final outstanding House race](https://www.yahoo.com/news/democrats-flip-seat-californias-central-031946930.html)
+- Dec 04 - [Trump considers replacing Hegseth with DeSantis to run Pentagon, WSJ reports](https://www.yahoo.com/news/trump-considers-replacing-hegseth-desantis-030614907.html)
 - Dec 04 - [Mom diagnosed with Stage 4 colon cancer at 38 recalls her 1st symptom: ‘I ignored it’](https://www.yahoo.com/lifestyle/mom-diagnosed-stage-4-colon-023841984.html)
-- Dec 03 - [Josh Duggar Looks Unrecognizable in New Photos From Prison 2 Years After His Sentencing](https://www.yahoo.com/entertainment/josh-duggar-looks-unrecognizable-photos-224039993.html)
+- Dec 04 - [College Football Shocker Outs Billionaire’s 47 Years-Younger Wife](https://www.yahoo.com/entertainment/college-football-shocker-outs-billionaire-003453448.html)
 <!-- feed end -->
 
 ### Onstream
