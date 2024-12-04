@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [Democrats flip seat in California's Central Valley in nation's final outstanding House race](https://www.yahoo.com/news/democrats-flip-seat-californias-central-031946930.html)
 - Dec 04 - [College Football Shocker Outs Billionaire’s 47 Years-Younger Wife](https://www.yahoo.com/entertainment/college-football-shocker-outs-billionaire-003453448.html)
-- Dec 04 - [25 Investigates: Boston City Councilor Tania Fernandes Anderson under federal investigation](https://www.yahoo.com/news/25-investigates-boston-city-councilor-164444691.html)
-- Dec 03 - [Woman Airlifted Off Cruise Ship](https://www.yahoo.com/news/woman-airlifted-off-cruise-ship-230103666.html)
+- Dec 03 - [Former OJ Simpson bodyguard claims to have recording of murder confession](https://www.yahoo.com/news/former-oj-simpson-bodyguard-claims-235100684.html)
 - Dec 03 - [Chad Chronister, Donald Trump’s pick to run the DEA, withdraws name from consideration](https://www.yahoo.com/news/chad-chronister-donald-trump-pick-225607780.html)
-- Dec 03 - [Women who killed man inside Las Vegas Strip hotel room could spend 10 years in prison](https://www.yahoo.com/news/women-killed-man-inside-las-212842630.html)
+- Dec 03 - [If You're Seeing A Ton Of Headlines About South Korea But Don't Know What's Happening, Here's What We Know](https://www.yahoo.com/news/heres-whats-going-south-korea-213322966.html)
 <!-- feed end -->
 
 ### Onstream
