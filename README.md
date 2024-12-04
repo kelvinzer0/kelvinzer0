@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [AI Weekly: bots go shopping, robots grab the chores](https://finance.yahoo.com/video/ai-weekly-bots-shopping-robots-184754280.html)
-- Dec 04 - [Syrian rebels capture Russian radar that detects Storm Shadow missiles](https://www.yahoo.com/news/syrian-rebels-capture-russian-radar-181658921.html)
-- Dec 04 - [Bitcoin pulls back after South Korea martial law lift](https://finance.yahoo.com/video/bitcoin-pulls-back-south-korea-180216529.html)
+- Dec 04 - [Colleagues mourn Syrian photographer killed in 'targeted' airstrike near Hama](https://www.yahoo.com/news/colleagues-mourn-syrian-photographer-killed-194017287.html)
+- Dec 04 - [Woman who stowed away on plane to Paris placed on flight back to US](https://www.yahoo.com/news/woman-stowed-away-plane-paris-140312451.html)
+- Dec 04 - [Winter weather advisory issued for Binghamton. How much snow is expected](https://www.yahoo.com/news/winter-weather-advisory-issued-binghamton-185458173.html)
+- Dec 04 - [Trump reverses course, names new White House lawyer](https://www.yahoo.com/news/trump-picks-david-warrington-white-180758318.html)
 - Dec 04 - [Putin’s relative accidentally reveals secret Russian death toll in Ukraine](https://www.yahoo.com/news/putin-relative-accidentally-reveals-secret-174214768.html)
-- Dec 04 - [What we know about the suspect in UnitedHealthcare CEO's shooting death](https://www.yahoo.com/news/know-suspect-unitedhealthcare-ceos-shooting-164011736.html)
 <!-- feed end -->
 
 ### Onstream
