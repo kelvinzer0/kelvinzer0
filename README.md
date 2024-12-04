@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [AI Weekly: bots go shopping, robots grab the chores](https://finance.yahoo.com/video/ai-weekly-bots-shopping-robots-184754280.html)
+- Dec 04 - [Syrian rebels capture Russian radar that detects Storm Shadow missiles](https://www.yahoo.com/news/syrian-rebels-capture-russian-radar-181658921.html)
 - Dec 04 - [Bitcoin pulls back after South Korea martial law lift](https://finance.yahoo.com/video/bitcoin-pulls-back-south-korea-180216529.html)
 - Dec 04 - [Putin’s relative accidentally reveals secret Russian death toll in Ukraine](https://www.yahoo.com/news/putin-relative-accidentally-reveals-secret-174214768.html)
-- Dec 04 - [Billionaire who performed the first private spacewalk is Trump's pick to lead NASA](https://www.yahoo.com/news/billionaire-performed-first-private-spacewalk-172309501.html)
-- Dec 04 - [Michigan court upholds light sentence for woman who killed dad in dispute over ride](https://www.yahoo.com/news/michigan-court-upholds-light-sentence-165534931.html)
-- Dec 04 - [Erie gym closes over fear of the roof collapsing. How to tell if yours might](https://www.yahoo.com/news/erie-gym-closes-over-fear-161733753.html)
+- Dec 04 - [What we know about the suspect in UnitedHealthcare CEO's shooting death](https://www.yahoo.com/news/know-suspect-unitedhealthcare-ceos-shooting-164011736.html)
 <!-- feed end -->
 
 ### Onstream
