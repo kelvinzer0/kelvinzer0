@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 05 - [Israel showed the 'power' of F-35s in destroying nearly all of Iran's air defenses without a loss, UK admiral says](https://www.yahoo.com/news/israel-showed-power-f-35s-002951811.html)
+- Dec 05 - [Legendary Medellin cartel drug lord released from US prison after serving 25 years](https://www.yahoo.com/news/legendary-medellin-cartel-drug-lord-001338930.html)
 - Dec 05 - [Oklahoma A&M Board of Regents to evaluate 'employment' of Oklahoma State football staff](https://sports.yahoo.com/oklahoma-m-board-regents-evaluate-001216836.html)
-- Dec 04 - [Model Shot Husband on Balcony in Murder-Suicide: Cops](https://www.yahoo.com/news/model-shot-husband-balcony-murder-222503349.html)
-- Dec 04 - [City of Pittsburgh Public Works closing several roadways ahead of Wednesday’s predicted snowfall](https://www.yahoo.com/news/city-pittsburgh-public-works-closing-210947642.html)
-- Dec 04 - [Charlamagne tha God and Whoopi Goldberg Clash on ‘The View’ Over Hunter Biden Pardon; Goldberg Says ‘You’re Ridiculous’ and ‘You Don’t Know That’ Joe Biden Lied](https://www.yahoo.com/entertainment/charlamagne-tha-god-whoopi-goldberg-204303909.html)
+- Dec 04 - [Humanoid robots could create a $7 trillion market in the next 25 years: Citi analysts](https://finance.yahoo.com/news/humanoid-robots-could-create-a-7-trillion-market-in-the-next-25-years-citi-analysts-233324909.html)
+- Dec 04 - [US Supreme Court's Gorsuch steps away from case after recusal request](https://www.yahoo.com/news/us-supreme-courts-gorsuch-steps-230246171.html)
 <!-- feed end -->
 
 ### Onstream
