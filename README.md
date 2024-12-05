@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [2 Stocks That Cut You a Check Each Month](https://finance.yahoo.com/news/2-stocks-cut-check-month-102300704.html)
+- Dec 05 - [Putin's Ukraine drone barrages are increasingly backfiring on his closest ally](https://www.yahoo.com/news/putins-ukraine-drone-barrages-increasingly-101941588.html)
 - Dec 05 - [AP Top Stories December 5 A](https://www.yahoo.com/news/ap-top-stories-december-5-092958130.html)
 - Dec 05 - [Petrol cars on UK roads peaked this year in ‘genuine landmark’, report finds](https://finance.yahoo.com/news/petrol-cars-uk-roads-peaked-120000225.html)
-- Dec 05 - [UnitedHealth CEO’s Assassin Left Message at Scene of Grisly Slaying](https://www.yahoo.com/news/cops-stash-clues-chase-unitedhealth-034933932.html)
-- Dec 05 - [Massive lottery jackpot is set to expire. Mystery player was part of an incredibly rare draw](https://www.yahoo.com/news/massive-lottery-jackpot-set-expire-020427491.html)
-- Dec 05 - [Supreme Court justice sparks social media fire storm for her comments on gender transitions for minors](https://www.yahoo.com/news/supreme-court-justice-sparks-social-020003580.html)
+- Dec 05 - [In first call, Russian defense chief cautioned top US general about large-scale military exercise in Mediterranean Sea](https://www.yahoo.com/news/first-call-russian-defense-chief-043845438.html)
 <!-- feed end -->
 
 ### Onstream
