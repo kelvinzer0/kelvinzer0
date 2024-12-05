@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [NASA's first astronaut flight around the moon in decades faces more delays](https://www.yahoo.com/news/nasas-first-astronaut-flight-around-182155074.html)
-- Dec 05 - [Bitcoin's biggest events that led to its $100K milestone](https://finance.yahoo.com/video/bitcoins-biggest-events-led-100k-181500990.html)
-- Dec 05 - [Murdered Insurance CEO Had Deployed an AI to Automatically Deny Benefits for Sick People](https://www.yahoo.com/news/murdered-insurance-ceo-had-deployed-175638581.html)
-- Dec 05 - [Words on ammo in CEO shooting echo common phrase on insurer tactics: Delay, deny, defend](https://www.yahoo.com/news/words-ammo-ceo-shooting-echo-172107024.html)
-- Dec 05 - [Three children reportedly kidnapped in Fishersville Thursday morning](https://www.yahoo.com/news/three-children-reportedly-kidnapped-fishersville-161808694.html)
+- Dec 05 - [How much does an hour of anesthesia cost? Blue Cross Blue Shield says they will cap coverage in some states - whether your surgery is done or not](https://www.yahoo.com/news/much-does-hour-anesthesia-cost-191147293.html)
+- Dec 05 - [Parts of Northern California under tsunami warning after 7.3 magnitude earthquake](https://www.yahoo.com/news/parts-northern-california-under-tsunami-192529949.html)
+- Dec 05 - [After 'economy election,' some in GOP turn on working class voters](https://www.yahoo.com/news/economy-election-gop-turn-working-190952970.html)
+- Dec 05 - [The National Weather Service cancels tsunami warning for the U.S. West Coast after 7.0 earthquake](https://www.yahoo.com/news/earthquake-strikes-off-california-tsunami-190807035.html)
+- Dec 05 - [Magnitude 7 earthquake rocks California. Has tsunami threat passed?](https://www.yahoo.com/news/earthquake-near-scotia-california-registers-185818124.html)
 <!-- feed end -->
 
 ### Onstream
