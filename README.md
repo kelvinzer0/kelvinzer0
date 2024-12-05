@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Google says AI weather model masters 15-day forecast](https://www.yahoo.com/news/google-says-ai-weather-model-125119023.html)
+- Dec 05 - [Police Find 3 Chilling Words on Bullet Casings Used by Killer of CEO Brian Thompson: Report](https://www.yahoo.com/news/police-3-chilling-words-bullet-131524778.html)
+- Dec 05 - [ChargePoint Stock Jumps. Why Its Earnings Report Was a Relief.](https://www.barrons.com/articles/chargepoint-earnings-stock-price-9439db98?siteid=yhoof2&yptr=yahoo)
+- Dec 05 - [Scientists develop record-breaking technology that could change the way we use solar panels: 'Overcoming one of the key technical barriers'](https://www.yahoo.com/tech/scientists-develop-record-breaking-technology-104551741.html)
 - Dec 05 - [Putin's Ukraine drone barrages are increasingly backfiring on his closest ally](https://www.yahoo.com/news/putins-ukraine-drone-barrages-increasingly-101941588.html)
-- Dec 05 - [Petrol cars on UK roads peaked this year in ‘genuine landmark’, report finds](https://finance.yahoo.com/news/petrol-cars-uk-roads-peaked-120000225.html)
 - Dec 05 - [Russia's Rosneft invested $20 billion in India, Indian government quotes Putin as saying](https://finance.yahoo.com/news/russias-rosneft-invested-20-billion-074643235.html)
-- Dec 05 - [Heartwarming story of man missing 25 years is darker. He's a registered sex offender.](https://www.yahoo.com/news/heartwarming-story-man-missing-25-021000554.html)
 <!-- feed end -->
 
 ### Onstream
