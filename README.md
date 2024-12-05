@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://www.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
-- Dec 05 - [Investor Earning $2,490 Per Month in Dividends With Just $152K Investment Shares His Top 3 ETFs – Says 'Dividends Paying Bills is Nirvana'](https://finance.yahoo.com/news/investor-earning-2-490-per-160021257.html)
-- Dec 05 - [Cops Close in on Grinning Suspect in UnitedHealthcare CEO’s Murder as They Search Hostel](https://www.yahoo.com/news/cops-close-unitedhealthcare-ceo-killer-155640965.html)
-- Dec 05 - [Tim Hortons launch in Tennessee scores new locations. Where are they, when could they open](https://www.yahoo.com/news/tim-hortons-launch-tennessee-scores-132357878.html)
-- Dec 05 - [Police Find 3 Chilling Words on Bullet Casings Used by Killer of CEO Brian Thompson: Report](https://www.yahoo.com/news/police-3-chilling-words-bullet-131524778.html)
+- Dec 05 - [Bitcoin's biggest events that led to its $100K milestone](https://finance.yahoo.com/video/bitcoins-biggest-events-led-100k-181500990.html)
+- Dec 05 - [‘DOGE day at the Capitol!’: Marjorie Taylor Greene is excited about Elon Musk’s meeting today. Other Republicans are not](https://www.yahoo.com/news/doge-day-capitol-marjorie-taylor-180716188.html)
+- Dec 05 - [Cuba restores power grid and resumes planned blackouts of 5 hours a day](https://www.yahoo.com/news/cuba-restores-power-grid-resumes-180031319.html)
+- Dec 05 - [Fire rips through house on North Main Extension in Hornellsville, deemed a total loss](https://www.yahoo.com/news/fire-rips-house-north-main-170932167.html)
+- Dec 05 - [Father of victim in NYC subway chokehold case sues defendant Daniel Penny](https://www.yahoo.com/news/father-victim-nyc-subway-chokehold-170139083.html)
 <!-- feed end -->
 
 ### Onstream
