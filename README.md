@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [Syrian rebels say they have begun to enter crucial city of Hama](https://www.yahoo.com/news/syrian-rebels-begun-enter-crucial-085620144.html)
+- Dec 05 - [DOJ launched probe into UnitedHealthcare before CEO shooting | Banfield](https://www.yahoo.com/news/doj-launched-probe-unitedhealthcare-ceo-045002458.html)
 - Dec 05 - [In first call, Russian defense chief cautioned top US general about large-scale military exercise in Mediterranean Sea](https://www.yahoo.com/news/first-call-russian-defense-chief-043845438.html)
 - Dec 05 - [UnitedHealth CEO’s Assassin Left Message at Scene of Grisly Slaying](https://www.yahoo.com/news/cops-stash-clues-chase-unitedhealth-034933932.html)
-- Dec 05 - [Massive lottery jackpot is set to expire. Mystery player was part of an incredibly rare draw](https://www.yahoo.com/news/massive-lottery-jackpot-set-expire-020427491.html)
-- Dec 05 - [How to make sure texts and calls are encrypted after the FBI's warning about Chinese hackers](https://www.yahoo.com/news/sure-texts-calls-encrypted-fbis-012249241.html)
-- Dec 05 - [Israel showed the 'power' of F-35s in destroying nearly all of Iran's air defenses without a loss, UK admiral says](https://www.yahoo.com/news/israel-showed-power-f-35s-002951811.html)
+- Dec 05 - [Heartwarming story of man missing 25 years is darker. He's a registered sex offender.](https://www.yahoo.com/news/heartwarming-story-man-missing-25-021000554.html)
 <!-- feed end -->
 
 ### Onstream
