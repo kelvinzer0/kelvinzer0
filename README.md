@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [How to make sure texts and calls are encrypted after the FBI's warning about Chinese hackers](https://www.yahoo.com/news/sure-texts-calls-encrypted-fbis-012249241.html)
-- Dec 05 - [Israel showed the 'power' of F-35s in destroying nearly all of Iran's air defenses without a loss, UK admiral says](https://www.yahoo.com/news/israel-showed-power-f-35s-002951811.html)
-- Dec 05 - [Legendary Medellin cartel drug lord released from US prison after serving 25 years](https://www.yahoo.com/news/legendary-medellin-cartel-drug-lord-001338930.html)
-- Dec 05 - [Oklahoma A&M Board of Regents to evaluate 'employment' of Oklahoma State football staff](https://sports.yahoo.com/oklahoma-m-board-regents-evaluate-001216836.html)
-- Dec 04 - [Former commander of Wright-Patterson AFB facing court-martial charges](https://www.yahoo.com/news/former-commander-wright-patterson-afb-234335938.html)
+- Dec 05 - [Japan brewers hope UNESCO listing will make sake as popular as sushi](https://finance.yahoo.com/video/japan-brewers-hope-unesco-listing-054724943.html)
+- Dec 05 - [DOJ launched probe into UnitedHealthcare before CEO shooting | Banfield](https://www.yahoo.com/news/doj-launched-probe-unitedhealthcare-ceo-045002458.html)
+- Dec 05 - [In first call, Russian defense chief cautioned top US general about large-scale military exercise in Mediterranean Sea](https://www.yahoo.com/news/first-call-russian-defense-chief-043845438.html)
+- Dec 05 - [UnitedHealth CEO’s Assassin Left Message at Scene of Grisly Slaying](https://www.yahoo.com/news/cops-stash-clues-chase-unitedhealth-034933932.html)
+- Dec 05 - [Massive lottery jackpot is set to expire. Mystery player was part of an incredibly rare draw](https://www.yahoo.com/news/massive-lottery-jackpot-set-expire-020427491.html)
 <!-- feed end -->
 
 ### Onstream
