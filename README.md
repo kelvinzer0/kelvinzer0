@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Italian startup iGenius and Nvidia to build major AI system](https://finance.yahoo.com/news/italian-startup-igenius-nvidia-build-140718448.html)
+- Dec 05 - [SoundHound AI Rockets 485% YTD -- The AI Revolution Investors Can't Afford to Miss](https://finance.yahoo.com/news/soundhound-ai-rockets-485-ytd-155012833.html)
+- Dec 05 - [How to Maximize Your Retirement Portfolio with These Top-Ranked Dividend Stocks](https://finance.yahoo.com/news/maximize-retirement-portfolio-top-ranked-141002364.html)
 - Dec 05 - [Police Find 3 Chilling Words on Bullet Casings Used by Killer of CEO Brian Thompson: Report](https://www.yahoo.com/news/police-3-chilling-words-bullet-131524778.html)
+- Dec 05 - [In numbers: Notre Dame to reopen after five-year reconstruction](https://www.yahoo.com/news/numbers-notre-dame-reopen-five-130848542.html)
 - Dec 05 - [Syrian rebel leader urges Iraq to keep Hashd al-Shaabi factions out of Syria](https://www.yahoo.com/news/syrian-rebel-leader-urges-iraq-124458601.html)
-- Dec 05 - [Shooting at California school leaves 2 kindergarteners injured](https://www.yahoo.com/news/shooting-california-school-leaves-2-122939881.html)
-- Dec 05 - [Putin's Ukraine drone barrages are increasingly backfiring on his closest ally](https://www.yahoo.com/news/putins-ukraine-drone-barrages-increasingly-101941588.html)
 <!-- feed end -->
 
 ### Onstream
