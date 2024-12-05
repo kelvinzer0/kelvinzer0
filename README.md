@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [How much does an hour of anesthesia cost? Blue Cross Blue Shield says they will cap coverage in some states - whether your surgery is done or not](https://www.yahoo.com/news/much-does-hour-anesthesia-cost-191147293.html)
+- Dec 05 - [Ulta (NASDAQ:ULTA) Beats Q3 Sales Targets, Stock Soars](https://finance.yahoo.com/news/ulta-nasdaq-ulta-beats-q3-211246128.html)
+- Dec 05 - [FAA administrator says Boeing still not producing MAX planes after strike](https://finance.yahoo.com/news/faa-administrator-says-boeing-still-210204258.html)
+- Dec 05 - [East Memphis restaurant Houston's permanently closes after 40+ years in business](https://www.yahoo.com/news/east-memphis-restaurant-houstons-permanently-205504915.html)
 - Dec 05 - [Road Rage Suspect Fights Police With His Truck](https://autos.yahoo.com/road-rage-suspect-fights-police-193000635.html)
 - Dec 05 - [After 'economy election,' some in GOP turn on working class voters](https://www.yahoo.com/news/economy-election-gop-turn-working-190952970.html)
-- Dec 05 - [NASA pushes back astronaut flights to the moon again](https://www.yahoo.com/news/nasas-first-astronaut-flight-around-182155074.html)
-- Dec 05 - [Hezbollah to pay total of $77 million and rent to families affected by war](https://www.yahoo.com/news/hezbollah-pay-total-77-million-181543471.html)
 <!-- feed end -->
 
 ### Onstream
