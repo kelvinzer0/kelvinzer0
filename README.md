@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [NASA's first astronaut flight around the moon in decades faces more delays](https://www.yahoo.com/news/nasas-first-astronaut-flight-around-182155074.html)
 - Dec 05 - [Bitcoin's biggest events that led to its $100K milestone](https://finance.yahoo.com/video/bitcoins-biggest-events-led-100k-181500990.html)
-- Dec 05 - [‘DOGE day at the Capitol!’: Marjorie Taylor Greene is excited about Elon Musk’s meeting today. Other Republicans are not](https://www.yahoo.com/news/doge-day-capitol-marjorie-taylor-180716188.html)
-- Dec 05 - [Cuba restores power grid and resumes planned blackouts of 5 hours a day](https://www.yahoo.com/news/cuba-restores-power-grid-resumes-180031319.html)
-- Dec 05 - [Fire rips through house on North Main Extension in Hornellsville, deemed a total loss](https://www.yahoo.com/news/fire-rips-house-north-main-170932167.html)
-- Dec 05 - [Father of victim in NYC subway chokehold case sues defendant Daniel Penny](https://www.yahoo.com/news/father-victim-nyc-subway-chokehold-170139083.html)
+- Dec 05 - [Murdered Insurance CEO Had Deployed an AI to Automatically Deny Benefits for Sick People](https://www.yahoo.com/news/murdered-insurance-ceo-had-deployed-175638581.html)
+- Dec 05 - [Words on ammo in CEO shooting echo common phrase on insurer tactics: Delay, deny, defend](https://www.yahoo.com/news/words-ammo-ceo-shooting-echo-172107024.html)
+- Dec 05 - [Three children reportedly kidnapped in Fishersville Thursday morning](https://www.yahoo.com/news/three-children-reportedly-kidnapped-fishersville-161808694.html)
 <!-- feed end -->
 
 ### Onstream
