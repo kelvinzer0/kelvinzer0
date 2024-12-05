@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [Italian startup iGenius and Nvidia to build major AI system](https://finance.yahoo.com/news/italian-startup-igenius-nvidia-build-140718448.html)
 - Dec 05 - [Police Find 3 Chilling Words on Bullet Casings Used by Killer of CEO Brian Thompson: Report](https://www.yahoo.com/news/police-3-chilling-words-bullet-131524778.html)
-- Dec 05 - [ChargePoint Stock Jumps. Why Its Earnings Report Was a Relief.](https://www.barrons.com/articles/chargepoint-earnings-stock-price-9439db98?siteid=yhoof2&yptr=yahoo)
-- Dec 05 - [Scientists develop record-breaking technology that could change the way we use solar panels: 'Overcoming one of the key technical barriers'](https://www.yahoo.com/tech/scientists-develop-record-breaking-technology-104551741.html)
+- Dec 05 - [Syrian rebel leader urges Iraq to keep Hashd al-Shaabi factions out of Syria](https://www.yahoo.com/news/syrian-rebel-leader-urges-iraq-124458601.html)
+- Dec 05 - [Shooting at California school leaves 2 kindergarteners injured](https://www.yahoo.com/news/shooting-california-school-leaves-2-122939881.html)
 - Dec 05 - [Putin's Ukraine drone barrages are increasingly backfiring on his closest ally](https://www.yahoo.com/news/putins-ukraine-drone-barrages-increasingly-101941588.html)
-- Dec 05 - [Russia's Rosneft invested $20 billion in India, Indian government quotes Putin as saying](https://finance.yahoo.com/news/russias-rosneft-invested-20-billion-074643235.html)
 <!-- feed end -->
 
 ### Onstream
