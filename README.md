@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Cuba calls Trump proposal for mass deportation of immigrants unrealistic](https://www.yahoo.com/news/cuba-calls-trump-proposal-mass-230330631.html)
-- Dec 04 - [Lamborghini debuts new luxury plug-in hybrid SUV: CEO](https://finance.yahoo.com/video/lamborghini-debuts-luxury-plug-hybrid-224656346.html)
+- Dec 05 - [Israel showed the 'power' of F-35s in destroying nearly all of Iran's air defenses without a loss, UK admiral says](https://www.yahoo.com/news/israel-showed-power-f-35s-002951811.html)
+- Dec 05 - [Oklahoma A&M Board of Regents to evaluate 'employment' of Oklahoma State football staff](https://sports.yahoo.com/oklahoma-m-board-regents-evaluate-001216836.html)
+- Dec 04 - [Model Shot Husband on Balcony in Murder-Suicide: Cops](https://www.yahoo.com/news/model-shot-husband-balcony-murder-222503349.html)
 - Dec 04 - [City of Pittsburgh Public Works closing several roadways ahead of Wednesday’s predicted snowfall](https://www.yahoo.com/news/city-pittsburgh-public-works-closing-210947642.html)
-- Dec 04 - [Amy Coney Barrett’s Mind-Boggling Question in Supreme Court Trans Case](https://www.yahoo.com/news/amy-coney-barrett-mind-boggling-194718116.html)
-- Dec 04 - [Trump reverses course, names new White House lawyer](https://www.yahoo.com/news/trump-picks-david-warrington-white-180758318.html)
+- Dec 04 - [Charlamagne tha God and Whoopi Goldberg Clash on ‘The View’ Over Hunter Biden Pardon; Goldberg Says ‘You’re Ridiculous’ and ‘You Don’t Know That’ Joe Biden Lied](https://www.yahoo.com/entertainment/charlamagne-tha-god-whoopi-goldberg-204303909.html)
 <!-- feed end -->
 
 ### Onstream
