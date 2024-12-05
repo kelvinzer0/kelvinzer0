@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [2 Stocks That Cut You a Check Each Month](https://finance.yahoo.com/news/2-stocks-cut-check-month-102300704.html)
-- Dec 05 - [Putin's Ukraine drone barrages are increasingly backfiring on his closest ally](https://www.yahoo.com/news/putins-ukraine-drone-barrages-increasingly-101941588.html)
-- Dec 05 - [AP Top Stories December 5 A](https://www.yahoo.com/news/ap-top-stories-december-5-092958130.html)
 - Dec 05 - [Petrol cars on UK roads peaked this year in ‘genuine landmark’, report finds](https://finance.yahoo.com/news/petrol-cars-uk-roads-peaked-120000225.html)
-- Dec 05 - [In first call, Russian defense chief cautioned top US general about large-scale military exercise in Mediterranean Sea](https://www.yahoo.com/news/first-call-russian-defense-chief-043845438.html)
+- Dec 05 - [Russia's Rosneft invested $20 billion in India, Indian government quotes Putin as saying](https://finance.yahoo.com/news/russias-rosneft-invested-20-billion-074643235.html)
+- Dec 05 - [Massive lottery jackpot is set to expire. Mystery player was part of an incredibly rare draw](https://www.yahoo.com/news/massive-lottery-jackpot-set-expire-020427491.html)
+- Dec 05 - [It Might Seem Obvious What Happened to the United Healthcare CEO. Don’t Be So Sure.](https://www.yahoo.com/news/might-seem-obvious-happened-united-015904620.html)
+- Dec 05 - [How to make sure texts and calls are encrypted after the FBI's warning about Chinese hackers](https://www.yahoo.com/news/sure-texts-calls-encrypted-fbis-012249241.html)
 <!-- feed end -->
 
 ### Onstream
