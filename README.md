@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 05 - [In first call, Russian defense chief cautioned top US general about large-scale military exercise in Mediterranean Sea](https://www.yahoo.com/news/first-call-russian-defense-chief-043845438.html)
 - Dec 05 - [UnitedHealth CEO’s Assassin Left Message at Scene of Grisly Slaying](https://www.yahoo.com/news/cops-stash-clues-chase-unitedhealth-034933932.html)
-- Dec 05 - [Investigators Want to Know if Hannah Kobayashi is Involved in Green Card Marriage Scam](https://www.yahoo.com/news/investigators-want-know-hannah-kobayashi-025628675.html)
 - Dec 05 - [Massive lottery jackpot is set to expire. Mystery player was part of an incredibly rare draw](https://www.yahoo.com/news/massive-lottery-jackpot-set-expire-020427491.html)
 - Dec 05 - [How to make sure texts and calls are encrypted after the FBI's warning about Chinese hackers](https://www.yahoo.com/news/sure-texts-calls-encrypted-fbis-012249241.html)
+- Dec 05 - [Israel showed the 'power' of F-35s in destroying nearly all of Iran's air defenses without a loss, UK admiral says](https://www.yahoo.com/news/israel-showed-power-f-35s-002951811.html)
 <!-- feed end -->
 
 ### Onstream
