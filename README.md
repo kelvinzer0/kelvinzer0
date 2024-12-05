@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Heartwarming story of man missing 25 years is darker. He's a registered sex offender.](https://www.yahoo.com/news/heartwarming-story-man-missing-25-021000554.html)
 - Dec 05 - [How to make sure texts and calls are encrypted after the FBI's warning about Chinese hackers](https://www.yahoo.com/news/sure-texts-calls-encrypted-fbis-012249241.html)
-- Dec 05 - [Preschooler brings gun to Petersburg school. Police have arrested the child's mother](https://www.yahoo.com/news/preschooler-brings-gun-petersburg-school-011221214.html)
 - Dec 05 - [Israel showed the 'power' of F-35s in destroying nearly all of Iran's air defenses without a loss, UK admiral says](https://www.yahoo.com/news/israel-showed-power-f-35s-002951811.html)
 - Dec 05 - [Legendary Medellin cartel drug lord released from US prison after serving 25 years](https://www.yahoo.com/news/legendary-medellin-cartel-drug-lord-001338930.html)
+- Dec 05 - [Oklahoma A&M Board of Regents to evaluate 'employment' of Oklahoma State football staff](https://sports.yahoo.com/oklahoma-m-board-regents-evaluate-001216836.html)
+- Dec 04 - [Former commander of Wright-Patterson AFB facing court-martial charges](https://www.yahoo.com/news/former-commander-wright-patterson-afb-234335938.html)
 <!-- feed end -->
 
 ### Onstream
