@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [SoundHound AI Rockets 485% YTD -- The AI Revolution Investors Can't Afford to Miss](https://finance.yahoo.com/news/soundhound-ai-rockets-485-ytd-155012833.html)
-- Dec 05 - [How to Maximize Your Retirement Portfolio with These Top-Ranked Dividend Stocks](https://finance.yahoo.com/news/maximize-retirement-portfolio-top-ranked-141002364.html)
+- Dec 05 - [I’m a Mechanic: 11 SUVs I Would Never Buy and Why They Aren’t Worth It](https://www.yahoo.com/news/m-mechanic-11-suvs-never-130034769.html)
+- Dec 05 - [Investor Earning $2,490 Per Month in Dividends With Just $152K Investment Shares His Top 3 ETFs – Says 'Dividends Paying Bills is Nirvana'](https://finance.yahoo.com/news/investor-earning-2-490-per-160021257.html)
+- Dec 05 - [Cops Close in on Grinning Suspect in UnitedHealthcare CEO’s Murder as They Search Hostel](https://www.yahoo.com/news/cops-close-unitedhealthcare-ceo-killer-155640965.html)
+- Dec 05 - [Tim Hortons launch in Tennessee scores new locations. Where are they, when could they open](https://www.yahoo.com/news/tim-hortons-launch-tennessee-scores-132357878.html)
 - Dec 05 - [Police Find 3 Chilling Words on Bullet Casings Used by Killer of CEO Brian Thompson: Report](https://www.yahoo.com/news/police-3-chilling-words-bullet-131524778.html)
-- Dec 05 - [In numbers: Notre Dame to reopen after five-year reconstruction](https://www.yahoo.com/news/numbers-notre-dame-reopen-five-130848542.html)
-- Dec 05 - [Syrian rebel leader urges Iraq to keep Hashd al-Shaabi factions out of Syria](https://www.yahoo.com/news/syrian-rebel-leader-urges-iraq-124458601.html)
 <!-- feed end -->
 
 ### Onstream
