@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [Google says AI weather model masters 15-day forecast](https://www.yahoo.com/news/google-says-ai-weather-model-125119023.html)
+- Dec 05 - [Putin's Ukraine drone barrages are increasingly backfiring on his closest ally](https://www.yahoo.com/news/putins-ukraine-drone-barrages-increasingly-101941588.html)
 - Dec 05 - [Petrol cars on UK roads peaked this year in ‘genuine landmark’, report finds](https://finance.yahoo.com/news/petrol-cars-uk-roads-peaked-120000225.html)
 - Dec 05 - [Russia's Rosneft invested $20 billion in India, Indian government quotes Putin as saying](https://finance.yahoo.com/news/russias-rosneft-invested-20-billion-074643235.html)
-- Dec 05 - [Massive lottery jackpot is set to expire. Mystery player was part of an incredibly rare draw](https://www.yahoo.com/news/massive-lottery-jackpot-set-expire-020427491.html)
-- Dec 05 - [It Might Seem Obvious What Happened to the United Healthcare CEO. Don’t Be So Sure.](https://www.yahoo.com/news/might-seem-obvious-happened-united-015904620.html)
-- Dec 05 - [How to make sure texts and calls are encrypted after the FBI's warning about Chinese hackers](https://www.yahoo.com/news/sure-texts-calls-encrypted-fbis-012249241.html)
+- Dec 05 - [Heartwarming story of man missing 25 years is darker. He's a registered sex offender.](https://www.yahoo.com/news/heartwarming-story-man-missing-25-021000554.html)
 <!-- feed end -->
 
 ### Onstream
