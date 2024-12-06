@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [Emergency government alert sent to millions with Storm Darragh set to endanger life](https://www.yahoo.com/news/emergency-government-alert-sent-millions-201832964.html)
-- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
-- Dec 06 - [Boomers Carry More Cash Than Younger Generations — and Their Reasoning Is Spot-on](https://finance.yahoo.com/news/boomers-carry-more-cash-younger-191507442.html)
-- Dec 06 - [Hezbollah sent 'supervising' forces to Syria's Homs, sources say](https://www.yahoo.com/news/hezbollah-sent-supervising-forces-syrias-173218923.html)
-- Dec 06 - [Earth’s Hidden Eighth Continent Is No Longer Lost](https://www.yahoo.com/news/earth-hidden-eighth-continent-no-171700078.html)
+- Dec 06 - [Syrians Pose Next to Head of Toppled Statue of Hafez al-Assad in Hama](https://www.yahoo.com/news/syrians-pose-next-head-toppled-212747101.html)
+- Dec 06 - [Vance tells residents in hurricane-stricken North Carolina that they haven't been forgotten](https://www.yahoo.com/news/jd-vance-wife-tour-western-185536128.html)
+- Dec 06 - [‘Dancing doctor’ who had license suspended is found working at medical facility in another state](https://www.yahoo.com/news/dancing-doctor-had-license-suspended-175701217.html)
+- Dec 06 - [The first rioter tried on Jan. 6 charges gets reduced prison sentence after Supreme Court decision](https://www.yahoo.com/news/first-rioter-tried-jan-6-175312297.html)
+- Dec 06 - [US is closer to banning TikTok and these companies could benefit](https://finance.yahoo.com/video/us-closer-banning-tiktok-companies-173238971.html)
 <!-- feed end -->
 
 ### Onstream
