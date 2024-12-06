@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [Target, Amazon and Walmart introduce AI shopping assistants](https://www.yahoo.com/news/target-amazon-walmart-introduce-ai-133452832.html)
-- Dec 06 - ['Your time has come': Syrian rebels take 2nd major city of Hama as thousands flee](https://www.yahoo.com/news/time-come-syrian-rebels-2nd-133144841.html)
+- Dec 06 - [I'm 66, Have $745k Saved, and Collect Social Security. Should I Still Consider a Roth Conversion?](https://finance.yahoo.com/news/im-66-taking-social-security-110000060.html)
+- Dec 06 - [Surgeons Are Sharing Their Wildest "Oh, Crap!" Moments From The Job, And I'm Too Stunned To Speak](https://www.yahoo.com/lifestyle/surgeons-sharing-wildest-oh-crap-143103055.html)
+- Dec 06 - [An airline is investigating after a crew member recorded video of 2 passengers engaged in 'intimate acts'](https://www.yahoo.com/news/airline-investigating-crew-member-recorded-132422746.html)
 - Dec 06 - [Rouble rebounds past 100 vs US dollar after Putin's gas payments decree](https://finance.yahoo.com/news/rouble-rebounds-past-100-vs-123931137.html)
-- Dec 06 - [When a medical insurance CEO was gunned down in the street, some people celebrated his death. What does this tell us about American healthcare?](https://www.yahoo.com/news/medical-insurance-ceo-gunned-down-121545786.html)
-- Dec 06 - [Rattled by China, West scrambles to rejig critical minerals supply chains](https://finance.yahoo.com/news/rattled-china-west-scrambles-rejig-103753748.html)
+- Dec 06 - [Mortgage and refinance rates today, December 6, 2024: Rates decrease again](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-december-6-2024-110012984.html)
 <!-- feed end -->
 
 ### Onstream
