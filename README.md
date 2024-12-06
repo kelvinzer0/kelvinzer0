@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [US is closer to banning TikTok and these companies could benefit](https://finance.yahoo.com/video/us-closer-banning-tiktok-companies-173238971.html)
 - Dec 06 - [Stock Market Today: Nasdaq Outperforms After Jobs Data; Coinbase Snaps Back (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/nasdaq-sp500-dow-jones-lululemon-stock-tesla-stock/?src=A00220&yptr=yahoo)
-- Dec 06 - [Ukraine just gave a first look at its new homemade Hell 'drone-missile' with more than twice the ATACMS range](https://www.yahoo.com/news/ukraine-just-gave-first-look-163024687.html)
-- Dec 06 - [Tory peer stripped of CBE after derogatory social media comments about Sikhs and Pakistanis](https://www.yahoo.com/news/tory-peer-stripped-cbe-derogatory-155228393.html)
 - Dec 06 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://www.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Dec 06 - [Colombian police arrest reported hitwoman known as "The Doll"](https://www.yahoo.com/news/colombian-police-arrest-reported-hitwoman-153127778.html)
 - Dec 06 - [Surgeons Are Sharing Their Wildest "Oh, Crap!" Moments From The Job, And I'm Too Stunned To Speak](https://www.yahoo.com/lifestyle/surgeons-sharing-wildest-oh-crap-143103055.html)
 <!-- feed end -->
 
