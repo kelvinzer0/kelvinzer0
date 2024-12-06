@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [US is closer to banning TikTok and these companies could benefit](https://finance.yahoo.com/video/us-closer-banning-tiktok-companies-173238971.html)
-- Dec 06 - [Stock Market Today: Nasdaq Outperforms After Jobs Data; Coinbase Snaps Back (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/nasdaq-sp500-dow-jones-lululemon-stock-tesla-stock/?src=A00220&yptr=yahoo)
+- Dec 06 - [Crews recover the body of a woman from a Pennsylvania sinkhole](https://www.yahoo.com/news/coroner-says-searchers-think-found-173853662.html)
+- Dec 06 - [El Paso contractor accused of defrauding 36 people expected to plead guilty](https://www.yahoo.com/news/el-paso-contractor-accused-defrauding-163307251.html)
+- Dec 06 - [Judge urges NYC subway chokehold jury to keep deliberating after it struggles to reach verdict](https://www.yahoo.com/news/jurors-nyc-subway-chokehold-case-163059635.html)
 - Dec 06 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://www.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
-- Dec 06 - [Colombian police arrest reported hitwoman known as "The Doll"](https://www.yahoo.com/news/colombian-police-arrest-reported-hitwoman-153127778.html)
 - Dec 06 - [Surgeons Are Sharing Their Wildest "Oh, Crap!" Moments From The Job, And I'm Too Stunned To Speak](https://www.yahoo.com/lifestyle/surgeons-sharing-wildest-oh-crap-143103055.html)
 <!-- feed end -->
 
