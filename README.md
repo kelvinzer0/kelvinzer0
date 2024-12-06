@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [When a medical insurance CEO was gunned down in the street, some people celebrated his death. What does this tell us about American healthcare?](https://www.yahoo.com/news/medical-insurance-ceo-gunned-down-121545864.html)
+- Dec 06 - [Rare red wind warning issued as Storm Darragh approaches](https://www.yahoo.com/news/rare-red-wind-warning-issued-101238973.html)
+- Dec 06 - [Gas price shock set to add to Europe's industrial pain](https://finance.yahoo.com/video/gas-price-shock-set-add-111903279.html)
+- Dec 06 - [How this Louisville high school with a bad reputation hopes to become a source of pride](https://www.yahoo.com/news/louisville-high-school-bad-reputation-100851677.html)
 - Dec 06 - [Scientists find huge trove of rare metals needed for clean energy hidden inside toxic coal waste](https://www.yahoo.com/news/scientists-huge-trove-rare-metals-090043823.html)
-- Dec 06 - [Iran launches advanced module to deploy satellites to higher altitudes, media say](https://www.yahoo.com/news/iran-launches-advanced-module-deploy-075723604.html)
-- Dec 06 - [Healthcare CEO Brian Thompson Was Living Apart From Wife Before Death](https://www.yahoo.com/news/healthcare-ceo-brian-thompson-living-021252475.html)
-- Dec 06 - [Suspected gunman in California school shooting which wounded 2 kindergarteners identified](https://www.yahoo.com/news/suspected-gunman-california-school-shooting-020539448.html)
-- Dec 06 - [Ben Oberto: Cause of death revealed for missing Wisconsin father found dead in Chicago area](https://www.yahoo.com/news/ben-oberto-cause-death-revealed-000728908.html)
 <!-- feed end -->
 
 ### Onstream
