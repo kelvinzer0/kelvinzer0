@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [CEO Killer Spent 10 Days in NYC After Grueling Bus Trip](https://www.yahoo.com/news/ceo-killer-spent-10-days-020637790.html)
+- Dec 06 - [Oklahoma officer charged for slamming 71-year-old man to pavement](https://www.yahoo.com/news/oklahoma-officer-charged-slamming-71-001749926.html)
 - Dec 05 - [Dwarfed by China in shipbuilding, US looks to build its defense base to fend off war](https://www.yahoo.com/news/dwarfed-china-shipbuilding-us-looks-225722619.html)
-- Dec 05 - [Escaped convicted murderer puts California town on edge](https://www.yahoo.com/news/escaped-convicted-murderer-puts-california-221813942.html)
-- Dec 05 - [After 'economy election,' some in GOP turn on working class voters](https://www.yahoo.com/news/economy-election-gop-turn-working-190952970.html)
-- Dec 05 - [NASA pushes back astronaut flights to the moon again](https://www.yahoo.com/news/nasas-first-astronaut-flight-around-182155074.html)
-- Dec 05 - [Hezbollah to pay total of $77 million and rent to families affected by war](https://www.yahoo.com/news/hezbollah-pay-total-77-million-181543471.html)
+- Dec 05 - [Why has it been even hotter than expected recently? Research points to diminishing cloud cover](https://www.yahoo.com/news/why-even-hotter-expected-recently-190253100.html)
+- Dec 05 - [Popular East Memphis restaurant Houston's permanently closes after 40+ years in business](https://www.yahoo.com/news/east-memphis-restaurant-houstons-permanently-205504915.html)
 <!-- feed end -->
 
 ### Onstream
