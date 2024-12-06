@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [When a medical insurance CEO was gunned down in the street, some people celebrated his death. What does this tell us about American healthcare?](https://www.yahoo.com/news/medical-insurance-ceo-gunned-down-121545864.html)
-- Dec 06 - [Rare red wind warning issued as Storm Darragh approaches](https://www.yahoo.com/news/rare-red-wind-warning-issued-101238973.html)
-- Dec 06 - [Gas price shock set to add to Europe's industrial pain](https://finance.yahoo.com/video/gas-price-shock-set-add-111903279.html)
-- Dec 06 - [How this Louisville high school with a bad reputation hopes to become a source of pride](https://www.yahoo.com/news/louisville-high-school-bad-reputation-100851677.html)
-- Dec 06 - [Scientists find huge trove of rare metals needed for clean energy hidden inside toxic coal waste](https://www.yahoo.com/news/scientists-huge-trove-rare-metals-090043823.html)
+- Dec 06 - [Rouble rebounds past 100 vs US dollar after Putin's gas payments decree](https://finance.yahoo.com/news/rouble-rebounds-past-100-vs-123931137.html)
+- Dec 06 - [What is slapping therapy? Self-healing philosophy critics say has no scientific basis](https://www.yahoo.com/news/slapping-therapy-180124814.html)
+- Dec 06 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
+- Dec 06 - [Should You Buy Palantir Technology Stock Before Dec. 13? Wall Street Has a Compelling Answer That Might Surprise You.](https://finance.yahoo.com/news/buy-palantir-technology-stock-dec-090500973.html)
+- Dec 06 - [Iran launches advanced module to deploy satellites to higher altitudes, media say](https://www.yahoo.com/news/iran-launches-advanced-module-deploy-075723604.html)
 <!-- feed end -->
 
 ### Onstream
