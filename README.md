@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
+- Dec 06 - [Stock Market Today: Nasdaq Outperforms After Jobs Data; Coinbase Snaps Back (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/nasdaq-sp500-dow-jones-lululemon-stock-tesla-stock/?src=A00220&yptr=yahoo)
+- Dec 06 - [Ukraine just gave a first look at its new homemade Hell 'drone-missile' with more than twice the ATACMS range](https://www.yahoo.com/news/ukraine-just-gave-first-look-163024687.html)
+- Dec 06 - [Tory peer stripped of CBE after derogatory social media comments about Sikhs and Pakistanis](https://www.yahoo.com/news/tory-peer-stripped-cbe-derogatory-155228393.html)
+- Dec 06 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://www.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
 - Dec 06 - [Surgeons Are Sharing Their Wildest "Oh, Crap!" Moments From The Job, And I'm Too Stunned To Speak](https://www.yahoo.com/lifestyle/surgeons-sharing-wildest-oh-crap-143103055.html)
-- Dec 06 - [An airline is investigating after a crew member recorded video of 2 passengers engaged in 'intimate acts'](https://www.yahoo.com/news/airline-investigating-crew-member-recorded-132422746.html)
-- Dec 06 - [Turkey's Erdogan hopes Syrian rebels will advance, but raises alarm about some fighters](https://www.yahoo.com/news/turkeys-erdogan-hopes-syrian-rebels-125629018.html)
-- Dec 06 - [Rouble rebounds past 100 vs US dollar after Putin's gas payments decree](https://finance.yahoo.com/news/rouble-rebounds-past-100-vs-123931137.html)
 <!-- feed end -->
 
 ### Onstream
