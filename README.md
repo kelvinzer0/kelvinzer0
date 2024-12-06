@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [3 climbers from the US and Canada are believed to have died in a fall on New Zealand's highest peak](https://www.yahoo.com/news/3-climbers-us-canada-believed-041331600.html)
-- Dec 06 - [Judge throws out Boeing plea deal over fatal 737 MAX crashes](https://finance.yahoo.com/video/judge-throws-boeing-plea-deal-023636027.html)
 - Dec 06 - [Healthcare CEO Brian Thompson Was Living Apart From Wife Before Death](https://www.yahoo.com/news/healthcare-ceo-brian-thompson-living-021252475.html)
-- Dec 06 - [CEO Killer Spent 10 Days in NYC After Grueling Bus Trip](https://www.yahoo.com/news/ceo-killer-spent-10-days-020637790.html)
-- Dec 05 - [Hawk Tuah Girl’s Crypto Team Short on Answers After Disastrous Meme Coin Bust](https://finance.yahoo.com/news/hawk-tuah-girl-crypto-team-234357456.html)
+- Dec 06 - [Oklahoma officer charged for slamming 71-year-old man to pavement](https://www.yahoo.com/news/oklahoma-officer-charged-slamming-71-001749926.html)
+- Dec 06 - [Ben Oberto: Cause of death revealed for missing Wisconsin father found dead in Chicago area](https://www.yahoo.com/news/ben-oberto-cause-death-revealed-000728908.html)
+- Dec 05 - [Dwarfed by China in shipbuilding, US looks to build its defense base to fend off war](https://www.yahoo.com/news/dwarfed-china-shipbuilding-us-looks-225722619.html)
+- Dec 05 - [FAA administrator says Boeing still not producing MAX planes after strike](https://finance.yahoo.com/news/faa-administrator-says-boeing-still-210204258.html)
 <!-- feed end -->
 
 ### Onstream
