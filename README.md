@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Scientists find huge trove of rare metals needed for clean energy hidden inside toxic coal waste](https://www.yahoo.com/news/scientists-huge-trove-rare-metals-090043823.html)
+- Dec 06 - [Iran launches advanced module to deploy satellites to higher altitudes, media say](https://www.yahoo.com/news/iran-launches-advanced-module-deploy-075723604.html)
 - Dec 06 - [Healthcare CEO Brian Thompson Was Living Apart From Wife Before Death](https://www.yahoo.com/news/healthcare-ceo-brian-thompson-living-021252475.html)
-- Dec 06 - [Suspected gunman in California school shooting which wounded 2 kindergarteners identified](https://www.yahoo.com/news/suspected-gunman-california-school-shooting-020539448.html)
-- Dec 06 - [White supremacist gang member charged with murder in Southern California](https://www.yahoo.com/news/white-supremacist-gang-member-charged-015434473.html)
+- Dec 06 - [Oklahoma officer charged for slamming 71-year-old man to pavement](https://www.yahoo.com/news/oklahoma-officer-charged-slamming-71-001749926.html)
 - Dec 06 - [Ben Oberto: Cause of death revealed for missing Wisconsin father found dead in Chicago area](https://www.yahoo.com/news/ben-oberto-cause-death-revealed-000728908.html)
-- Dec 05 - [Dwarfed by China in shipbuilding, US looks to build its defense base to fend off war](https://www.yahoo.com/news/dwarfed-china-shipbuilding-us-looks-225722619.html)
 <!-- feed end -->
 
 ### Onstream
