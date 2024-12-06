@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Valley's largest drone show at SPI on tap for Saturday](https://www.yahoo.com/entertainment/valleys-largest-drone-show-spi-044800717.html)
 - Dec 06 - [Healthcare CEO Brian Thompson Was Living Apart From Wife Before Death](https://www.yahoo.com/news/healthcare-ceo-brian-thompson-living-021252475.html)
-- Dec 06 - [CEO Killer Spent 10 Days in NYC After Grueling Bus Trip](https://www.yahoo.com/news/ceo-killer-spent-10-days-020637790.html)
 - Dec 06 - [Suspected gunman in California school shooting which wounded 2 kindergarteners identified](https://www.yahoo.com/news/suspected-gunman-california-school-shooting-020539448.html)
-- Dec 05 - [Hawk Tuah Girl’s Crypto Team Short on Answers After Disastrous Meme Coin Bust](https://finance.yahoo.com/news/hawk-tuah-girl-crypto-team-234357456.html)
 - Dec 05 - [Dwarfed by China in shipbuilding, US looks to build its defense base to fend off war](https://www.yahoo.com/news/dwarfed-china-shipbuilding-us-looks-225722619.html)
+- Dec 05 - [Popular East Memphis restaurant Houston's permanently closes after 40+ years in business](https://www.yahoo.com/news/east-memphis-restaurant-houstons-permanently-205504915.html)
 <!-- feed end -->
 
 ### Onstream
