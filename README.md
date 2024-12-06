@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Woman charged as 42-year-old man dies after being seriously injured by dog](https://www.yahoo.com/news/woman-charged-42-old-man-223710156.html)
+- Dec 05 - [Dwarfed by China in shipbuilding, US looks to build its defense base to fend off war](https://www.yahoo.com/news/dwarfed-china-shipbuilding-us-looks-225722619.html)
+- Dec 05 - [Escaped convicted murderer puts California town on edge](https://www.yahoo.com/news/escaped-convicted-murderer-puts-california-221813942.html)
 - Dec 05 - [After 'economy election,' some in GOP turn on working class voters](https://www.yahoo.com/news/economy-election-gop-turn-working-190952970.html)
 - Dec 05 - [NASA pushes back astronaut flights to the moon again](https://www.yahoo.com/news/nasas-first-astronaut-flight-around-182155074.html)
 - Dec 05 - [Hezbollah to pay total of $77 million and rent to families affected by war](https://www.yahoo.com/news/hezbollah-pay-total-77-million-181543471.html)
-- Dec 05 - [Opinion - Republicans just won a permanent Senate majority](https://www.yahoo.com/news/opinion-republicans-just-won-permanent-180000893.html)
 <!-- feed end -->
 
 ### Onstream
