@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Target, Amazon and Walmart introduce AI shopping assistants](https://www.yahoo.com/news/target-amazon-walmart-introduce-ai-133452832.html)
+- Dec 06 - ['Your time has come': Syrian rebels take 2nd major city of Hama as thousands flee](https://www.yahoo.com/news/time-come-syrian-rebels-2nd-133144841.html)
 - Dec 06 - [Rouble rebounds past 100 vs US dollar after Putin's gas payments decree](https://finance.yahoo.com/news/rouble-rebounds-past-100-vs-123931137.html)
-- Dec 06 - [What is slapping therapy? Self-healing philosophy critics say has no scientific basis](https://www.yahoo.com/news/slapping-therapy-180124814.html)
-- Dec 06 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
-- Dec 06 - [Should You Buy Palantir Technology Stock Before Dec. 13? Wall Street Has a Compelling Answer That Might Surprise You.](https://finance.yahoo.com/news/buy-palantir-technology-stock-dec-090500973.html)
-- Dec 06 - [Iran launches advanced module to deploy satellites to higher altitudes, media say](https://www.yahoo.com/news/iran-launches-advanced-module-deploy-075723604.html)
+- Dec 06 - [When a medical insurance CEO was gunned down in the street, some people celebrated his death. What does this tell us about American healthcare?](https://www.yahoo.com/news/medical-insurance-ceo-gunned-down-121545786.html)
+- Dec 06 - [Rattled by China, West scrambles to rejig critical minerals supply chains](https://finance.yahoo.com/news/rattled-china-west-scrambles-rejig-103753748.html)
 <!-- feed end -->
 
 ### Onstream
