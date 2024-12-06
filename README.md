@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [US is closer to banning TikTok and these companies could benefit](https://finance.yahoo.com/video/us-closer-banning-tiktok-companies-173238971.html)
-- Dec 06 - [Dave Ramsey: 401(k)s Have a Big Tax Downside — Pick This Retirement Plan Instead](https://finance.yahoo.com/news/dave-ramsey-says-401-k-165915295.html)
-- Dec 06 - [Judge urges NYC subway chokehold jury to keep deliberating after it struggles to reach verdict](https://www.yahoo.com/news/jurors-nyc-subway-chokehold-case-163059635.html)
-- Dec 06 - [Obama, in 1st remarks since election, says 'a line has been crossed' if 'one side' makes certain moves](https://www.yahoo.com/news/obama-1st-remarks-since-election-161311084.html)
-- Dec 06 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://www.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Dec 06 - [Emergency government alert sent to millions with Storm Darragh set to endanger life](https://www.yahoo.com/news/emergency-government-alert-sent-millions-201832964.html)
+- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
+- Dec 06 - [Boomers Carry More Cash Than Younger Generations — and Their Reasoning Is Spot-on](https://finance.yahoo.com/news/boomers-carry-more-cash-younger-191507442.html)
+- Dec 06 - [Hezbollah sent 'supervising' forces to Syria's Homs, sources say](https://www.yahoo.com/news/hezbollah-sent-supervising-forces-syrias-173218923.html)
+- Dec 06 - [Earth’s Hidden Eighth Continent Is No Longer Lost](https://www.yahoo.com/news/earth-hidden-eighth-continent-no-171700078.html)
 <!-- feed end -->
 
 ### Onstream
