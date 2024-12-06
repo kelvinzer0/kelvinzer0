@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 06 - [Healthcare CEO Brian Thompson Was Living Apart From Wife Before Death](https://www.yahoo.com/news/healthcare-ceo-brian-thompson-living-021252475.html)
-- Dec 06 - [Oklahoma officer charged for slamming 71-year-old man to pavement](https://www.yahoo.com/news/oklahoma-officer-charged-slamming-71-001749926.html)
+- Dec 06 - [Suspected gunman in California school shooting which wounded 2 kindergarteners identified](https://www.yahoo.com/news/suspected-gunman-california-school-shooting-020539448.html)
 - Dec 06 - [Ben Oberto: Cause of death revealed for missing Wisconsin father found dead in Chicago area](https://www.yahoo.com/news/ben-oberto-cause-death-revealed-000728908.html)
 - Dec 05 - [Dwarfed by China in shipbuilding, US looks to build its defense base to fend off war](https://www.yahoo.com/news/dwarfed-china-shipbuilding-us-looks-225722619.html)
-- Dec 05 - [FAA administrator says Boeing still not producing MAX planes after strike](https://finance.yahoo.com/news/faa-administrator-says-boeing-still-210204258.html)
+- Dec 05 - [El Salvador's president is triumphant after his bet on bitcoin comes true](https://finance.yahoo.com/news/el-salvadors-president-triumphant-bet-221740101.html)
 <!-- feed end -->
 
 ### Onstream
