@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Dec 06 - [Scientists find huge trove of rare metals needed for clean energy hidden inside toxic coal waste](https://www.yahoo.com/news/scientists-huge-trove-rare-metals-090043823.html)
 - Dec 06 - [Iran launches advanced module to deploy satellites to higher altitudes, media say](https://www.yahoo.com/news/iran-launches-advanced-module-deploy-075723604.html)
 - Dec 06 - [Healthcare CEO Brian Thompson Was Living Apart From Wife Before Death](https://www.yahoo.com/news/healthcare-ceo-brian-thompson-living-021252475.html)
-- Dec 06 - [Oklahoma officer charged for slamming 71-year-old man to pavement](https://www.yahoo.com/news/oklahoma-officer-charged-slamming-71-001749926.html)
+- Dec 06 - [Suspected gunman in California school shooting which wounded 2 kindergarteners identified](https://www.yahoo.com/news/suspected-gunman-california-school-shooting-020539448.html)
 - Dec 06 - [Ben Oberto: Cause of death revealed for missing Wisconsin father found dead in Chicago area](https://www.yahoo.com/news/ben-oberto-cause-death-revealed-000728908.html)
 <!-- feed end -->
 
