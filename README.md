@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [I'm 66, Have $745k Saved, and Collect Social Security. Should I Still Consider a Roth Conversion?](https://finance.yahoo.com/news/im-66-taking-social-security-110000060.html)
+- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
 - Dec 06 - [Surgeons Are Sharing Their Wildest "Oh, Crap!" Moments From The Job, And I'm Too Stunned To Speak](https://www.yahoo.com/lifestyle/surgeons-sharing-wildest-oh-crap-143103055.html)
 - Dec 06 - [An airline is investigating after a crew member recorded video of 2 passengers engaged in 'intimate acts'](https://www.yahoo.com/news/airline-investigating-crew-member-recorded-132422746.html)
+- Dec 06 - [Turkey's Erdogan hopes Syrian rebels will advance, but raises alarm about some fighters](https://www.yahoo.com/news/turkeys-erdogan-hopes-syrian-rebels-125629018.html)
 - Dec 06 - [Rouble rebounds past 100 vs US dollar after Putin's gas payments decree](https://finance.yahoo.com/news/rouble-rebounds-past-100-vs-123931137.html)
-- Dec 06 - [Mortgage and refinance rates today, December 6, 2024: Rates decrease again](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-december-6-2024-110012984.html)
 <!-- feed end -->
 
 ### Onstream
