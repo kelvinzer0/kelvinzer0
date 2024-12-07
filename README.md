@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [How blockchain technology sets crypto apart](https://finance.yahoo.com/video/blockchain-technology-sets-crypto-apart-150025032.html)
-- Dec 07 - [Billionaires have been beating the stock market — where they are putting their money now, according to UBS](https://finance.yahoo.com/news/billionaires-beating-stock-market-where-124100044.html)
+- Dec 07 - [100-year-old Pearl Harbor survivor recalls confusion and chaos during Japanese bombing 83 years ago](https://www.yahoo.com/news/100-old-pearl-harbor-survivor-160757897.html)
 - Dec 07 - [40 Extremely Rare "Before And After" Pictures That Will Completely And Totally Change Your Perspective On The Titanic](https://www.yahoo.com/entertainment/40-extremely-rare-pictures-completely-143626305.html)
 - Dec 07 - [Hegseth and Collins’ push for cutting veterans health benefits alarms servicemembers and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
 - Dec 07 - [$3 Million in Retirement Savings: Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/3-million-retirement-savings-much-120020362.html)
+- Dec 07 - [Syrian opposition activists say insurgents have reached the suburbs of Damascus](https://www.yahoo.com/news/syrian-troops-withdraw-south-country-110805857.html)
 <!-- feed end -->
 
 ### Onstream
