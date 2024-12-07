@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 07 - [NYC mayor says suspect identified in UnitedHealth executive's murder, NY Post reports](https://www.yahoo.com/news/nyc-mayor-says-suspect-identified-184219978.html)
-- Dec 07 - [Syria’s Besieged Assad Makes Overtures to US in Bid to Survive](https://www.yahoo.com/news/syria-besieged-assad-makes-overtures-183029883.html)
 - Dec 07 - [I Took the Test RFK Jr. Is Using to Determine Who Should Work at His Health Department. We Are Extremely Doomed.](https://www.yahoo.com/news/took-test-rfk-jr-using-173047045.html)
 - Dec 07 - [US Military Alarmed by Russian Nuclear Weapon Platform in Orbit](https://www.yahoo.com/news/us-military-alarmed-russian-nuclear-173013828.html)
+- Dec 07 - [How blockchain technology sets crypto apart](https://finance.yahoo.com/video/blockchain-technology-sets-crypto-apart-150025032.html)
 - Dec 07 - [Discovery of Bizarre Stone Age Skulls Baffles Archaeologists](https://www.yahoo.com/news/discovery-bizarre-stone-age-skulls-150000885.html)
 <!-- feed end -->
 
