@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Why top internet sleuths say they won't help find the UnitedHealthcare CEO killer](https://www.yahoo.com/news/why-top-internet-sleuths-wont-021107977.html)
 - Dec 07 - [Vance, GOP committees ask Supreme Court to strike down coordination limits](https://www.yahoo.com/news/vance-gop-committees-ask-supreme-000227736.html)
 - Dec 06 - [Appeals court upholds nearly $1.3 billion Sandy Hook verdict against Alex Jones](https://www.yahoo.com/news/appeals-court-upholds-nearly-1-234853147.html)
-- Dec 06 - [Research Shows People Experiencing These Telltale Signs At 60 May Develop Dementia Within 20 Years](https://www.yahoo.com/lifestyle/research-shows-people-experiencing-telltale-185900902.html)
-- Dec 06 - [The first rioter tried on Jan. 6 charges gets reduced prison sentence after Supreme Court decision](https://www.yahoo.com/news/first-rioter-tried-jan-6-175312297.html)
-- Dec 06 - [US is closer to banning TikTok and these companies could benefit](https://finance.yahoo.com/video/us-closer-banning-tiktok-companies-173238971.html)
+- Dec 06 - [Boeing's top lobbyist departing planemaker, CEO says](https://finance.yahoo.com/news/boeings-top-lobbyist-departing-planemaker-231426110.html)
+- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
 <!-- feed end -->
 
 ### Onstream
