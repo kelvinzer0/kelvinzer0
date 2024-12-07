@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [100-year-old Pearl Harbor survivor recalls confusion and chaos during Japanese bombing 83 years ago](https://www.yahoo.com/news/100-old-pearl-harbor-survivor-160757897.html)
-- Dec 07 - [40 Extremely Rare "Before And After" Pictures That Will Completely And Totally Change Your Perspective On The Titanic](https://www.yahoo.com/entertainment/40-extremely-rare-pictures-completely-143626305.html)
-- Dec 07 - [Hegseth and Collins’ push for cutting veterans health benefits alarms servicemembers and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
-- Dec 07 - [$3 Million in Retirement Savings: Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/3-million-retirement-savings-much-120020362.html)
-- Dec 07 - [Syrian opposition activists say insurgents have reached the suburbs of Damascus](https://www.yahoo.com/news/syrian-troops-withdraw-south-country-110805857.html)
+- Dec 07 - [Trump’s ‘migrant crime’ idea is vicious and legal immigrants could suffer](https://www.yahoo.com/news/trump-migrant-crime-idea-vicious-170030357.html)
+- Dec 07 - [V6 Dodge Challenger Runs From Arkansas Cops](https://autos.yahoo.com/v6-dodge-challenger-runs-arkansas-170000927.html)
+- Dec 07 - [Perseverance Rover Captures Martian Dust Devil](https://www.yahoo.com/news/perseverance-rover-captures-martian-dust-150000994.html)
+- Dec 07 - [Syrian insurgents reach the capital's suburbs. Worried residents flee and stock up on supplies](https://www.yahoo.com/news/syrian-troops-withdraw-south-country-110805857.html)
+- Dec 07 - [Mortgage and refinance rates today, December 7, 2024: Rates drop after jobs report](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-december-7-2024-110042172.html)
 <!-- feed end -->
 
 ### Onstream
