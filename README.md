@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Are we looking at another mild winter? Here's the weather predictions for the SouthCoast.](https://www.yahoo.com/news/looking-another-mild-winter-heres-090121455.html)
+- Dec 07 - [Meet the Newest Stock-Split Stock in the S&P 500. It's Soared 3,823% Since Its IPO, and It's Still a Buy Heading Into 2025 According to Wall Street.](https://finance.yahoo.com/news/meet-newest-stock-split-stock-080200313.html)
 - Dec 07 - [Alone and broke against a renewed insurgency, is Assad's rule at risk of collapse?](https://www.yahoo.com/news/alone-broke-against-renewed-insurgency-050046205.html)
-- Dec 07 - [Indian American family attacked on bus says they'll move forward with pressing charges](https://www.yahoo.com/news/indian-american-family-attacked-bus-001533554.html)
 - Dec 06 - [Appeals court upholds nearly $1.3 billion Sandy Hook verdict against Alex Jones](https://www.yahoo.com/news/appeals-court-upholds-nearly-1-234853147.html)
-- Dec 06 - [Earthquakes under a volcano near Alaska's largest city raise concerns](https://www.yahoo.com/news/earthquakes-under-volcano-near-alaskas-231636523.html)
-- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
+- Dec 06 - [Boeing's top lobbyist departing planemaker, CEO says](https://finance.yahoo.com/news/boeings-top-lobbyist-departing-planemaker-231426110.html)
 <!-- feed end -->
 
 ### Onstream
