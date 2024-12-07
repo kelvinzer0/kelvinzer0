@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 07 - [How blockchain technology sets crypto apart](https://finance.yahoo.com/video/blockchain-technology-sets-crypto-apart-150025032.html)
 - Dec 07 - [Billionaires have been beating the stock market — where they are putting their money now, according to UBS](https://finance.yahoo.com/news/billionaires-beating-stock-market-where-124100044.html)
 - Dec 07 - [40 Extremely Rare "Before And After" Pictures That Will Completely And Totally Change Your Perspective On The Titanic](https://www.yahoo.com/entertainment/40-extremely-rare-pictures-completely-143626305.html)
-- Dec 07 - [South Korea martial law: Why it happened and what comes next](https://www.yahoo.com/news/south-korea-martial-law-why-123703307.html)
 - Dec 07 - [Hegseth and Collins’ push for cutting veterans health benefits alarms servicemembers and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
+- Dec 07 - [$3 Million in Retirement Savings: Here’s How Much You Could Withdraw Per Year](https://finance.yahoo.com/news/3-million-retirement-savings-much-120020362.html)
 <!-- feed end -->
 
 ### Onstream
