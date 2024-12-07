@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Why top internet sleuths say they won't help find the UnitedHealthcare CEO killer](https://www.yahoo.com/news/why-top-internet-sleuths-wont-021107977.html)
+- Dec 07 - [Honda's first electric SUV is already a top-selling EV in the US — here's what's driving interest](https://autos.yahoo.com/hondas-first-electric-suv-already-103040702.html)
+- Dec 07 - [Escaped animal prompts Jacksonville Zoo and Gardens to cancel event](https://www.yahoo.com/news/escaped-animal-prompts-jacksonville-zoo-004335698.html)
 - Dec 07 - [Vance, GOP committees ask Supreme Court to strike down coordination limits](https://www.yahoo.com/news/vance-gop-committees-ask-supreme-000227736.html)
 - Dec 06 - [Appeals court upholds nearly $1.3 billion Sandy Hook verdict against Alex Jones](https://www.yahoo.com/news/appeals-court-upholds-nearly-1-234853147.html)
-- Dec 06 - [Boeing's top lobbyist departing planemaker, CEO says](https://finance.yahoo.com/news/boeings-top-lobbyist-departing-planemaker-231426110.html)
-- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
+- Dec 06 - [Earthquakes under a volcano near Alaska's largest city raise concerns](https://www.yahoo.com/news/earthquakes-under-volcano-near-alaskas-231636523.html)
 <!-- feed end -->
 
 ### Onstream
