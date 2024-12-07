@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 07 - [Alone and broke against a renewed insurgency, is Assad's rule at risk of collapse?](https://www.yahoo.com/news/alone-broke-against-renewed-insurgency-050046205.html)
+- Dec 07 - [Why top internet sleuths say they won't help find the UnitedHealthcare CEO killer](https://www.yahoo.com/news/why-top-internet-sleuths-wont-021107977.html)
+- Dec 07 - [Vance, GOP committees ask Supreme Court to strike down coordination limits](https://www.yahoo.com/news/vance-gop-committees-ask-supreme-000227736.html)
 - Dec 06 - [Appeals court upholds nearly $1.3 billion Sandy Hook verdict against Alex Jones](https://www.yahoo.com/news/appeals-court-upholds-nearly-1-234853147.html)
 - Dec 06 - [Earthquakes under a volcano near Alaska's largest city raise concerns](https://www.yahoo.com/news/earthquakes-under-volcano-near-alaskas-231636523.html)
-- Dec 06 - [Boeing's top lobbyist departing planemaker, CEO says](https://finance.yahoo.com/news/boeings-top-lobbyist-departing-planemaker-231426110.html)
-- Dec 06 - [Syrians Pose Next to Head of Toppled Statue of Hafez al-Assad in Hama](https://www.yahoo.com/news/syrians-pose-next-head-toppled-212747101.html)
 <!-- feed end -->
 
 ### Onstream
