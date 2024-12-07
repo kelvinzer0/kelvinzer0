@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 07 - [NYC mayor says suspect identified in UnitedHealth executive's murder, NY Post reports](https://www.yahoo.com/news/nyc-mayor-says-suspect-identified-184219978.html)
+- Dec 07 - [Syria’s Besieged Assad Makes Overtures to US in Bid to Survive](https://www.yahoo.com/news/syria-besieged-assad-makes-overtures-183029883.html)
+- Dec 07 - [I Took the Test RFK Jr. Is Using to Determine Who Should Work at His Health Department. We Are Extremely Doomed.](https://www.yahoo.com/news/took-test-rfk-jr-using-173047045.html)
 - Dec 07 - [US Military Alarmed by Russian Nuclear Weapon Platform in Orbit](https://www.yahoo.com/news/us-military-alarmed-russian-nuclear-173013828.html)
-- Dec 07 - [Haley on Biden’s pardon reversal: ‘He thought he was going to be president again](https://www.yahoo.com/news/haley-biden-pardon-reversal-thought-151749152.html)
-- Dec 07 - [Syrian insurgents reach the capital's suburbs. Worried residents flee and stock up on supplies](https://www.yahoo.com/news/syrian-troops-withdraw-south-country-110805857.html)
-- Dec 07 - [Myrtle Beach area resort infested with bed bugs, new SC lawsuit alleges. Here are the details](https://www.yahoo.com/news/myrtle-beach-area-resort-infested-110000653.html)
+- Dec 07 - [Discovery of Bizarre Stone Age Skulls Baffles Archaeologists](https://www.yahoo.com/news/discovery-bizarre-stone-age-skulls-150000885.html)
 <!-- feed end -->
 
 ### Onstream
