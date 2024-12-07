@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Storm Darragh batters UK and Ireland, leaving 1 dead and hundreds of thousands without power](https://www.yahoo.com/news/hundreds-thousands-ireland-uk-left-134306073.html)
+- Dec 07 - [Starbucks CEO has 'tall order' ahead: Shake Shack founder](https://finance.yahoo.com/video/starbucks-ceo-tall-order-ahead-133045098.html)
 - Dec 07 - [Hegseth and Collins’ push for cutting veterans health benefits alarms servicemembers and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
-- Dec 07 - [Alone and broke against a renewed insurgency, is Assad's rule at risk of collapse?](https://www.yahoo.com/news/alone-broke-against-renewed-insurgency-050046205.html)
-- Dec 07 - [Indian American family attacked on bus says they'll move forward with pressing charges](https://www.yahoo.com/news/indian-american-family-attacked-bus-001533554.html)
-- Dec 06 - [Appeals court upholds nearly $1.3 billion Sandy Hook verdict against Alex Jones](https://www.yahoo.com/news/appeals-court-upholds-nearly-1-234853147.html)
-- Dec 06 - [Earthquakes under a volcano near Alaska's largest city raise concerns](https://www.yahoo.com/news/earthquakes-under-volcano-near-alaskas-231636523.html)
+- Dec 07 - [Mortgage and refinance rates today, December 7, 2024: Rates drop after jobs report](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-december-7-2024-110042172.html)
+- Dec 07 - [Beach-side restaurant announces indefinite closure after growing threat causes permanent damage: 'It's a kick in the gut'](https://www.yahoo.com/news/beach-side-restaurant-announces-indefinite-104541062.html)
 <!-- feed end -->
 
 ### Onstream
