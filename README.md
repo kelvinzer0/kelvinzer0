@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Campaign finance records show Harris' $1 million payment to Oprah's production company](https://finance.yahoo.com/news/campaign-finance-records-show-harris-220217879.html)
-- Dec 07 - [Zelensky endorses Trump call to end war in Ukraine](https://www.yahoo.com/news/zelensky-endorses-trump-call-end-202439244.html)
+- Dec 07 - [French first lady helps keep Trump, Bidens apart at Notre Dame](https://www.yahoo.com/news/french-first-lady-helps-keep-200606938.html)
+- Dec 07 - [A Boy, 4, Vanished on Way to Summer Camp. Then a Family Friend's Teenage Son Started Asking Alarming Questions](https://www.yahoo.com/news/boy-4-vanished-way-summer-200000583.html)
 - Dec 07 - [Prince William Attended the Reopening of Notre-Dame in Paris—& Used His Signature Body Language Move](https://www.yahoo.com/news/prince-william-attended-reopening-notre-194123761.html)
 - Dec 07 - [NYC mayor says suspect identified in UnitedHealth executive's murder, NY Post reports](https://www.yahoo.com/news/nyc-mayor-says-suspect-identified-184219978.html)
 - Dec 07 - [I Took the Test RFK Jr. Is Using to Determine Who Should Work at His Health Department. We Are Extremely Doomed.](https://www.yahoo.com/news/took-test-rfk-jr-using-173047045.html)
