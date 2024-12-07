@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Trump’s ‘migrant crime’ idea is vicious and legal immigrants could suffer](https://www.yahoo.com/news/trump-migrant-crime-idea-vicious-170030357.html)
-- Dec 07 - [V6 Dodge Challenger Runs From Arkansas Cops](https://autos.yahoo.com/v6-dodge-challenger-runs-arkansas-170000927.html)
-- Dec 07 - [Perseverance Rover Captures Martian Dust Devil](https://www.yahoo.com/news/perseverance-rover-captures-martian-dust-150000994.html)
+- Dec 07 - [NYC mayor says suspect identified in UnitedHealth executive's murder, NY Post reports](https://www.yahoo.com/news/nyc-mayor-says-suspect-identified-184219978.html)
+- Dec 07 - [US Military Alarmed by Russian Nuclear Weapon Platform in Orbit](https://www.yahoo.com/news/us-military-alarmed-russian-nuclear-173013828.html)
+- Dec 07 - [Haley on Biden’s pardon reversal: ‘He thought he was going to be president again](https://www.yahoo.com/news/haley-biden-pardon-reversal-thought-151749152.html)
 - Dec 07 - [Syrian insurgents reach the capital's suburbs. Worried residents flee and stock up on supplies](https://www.yahoo.com/news/syrian-troops-withdraw-south-country-110805857.html)
-- Dec 07 - [Mortgage and refinance rates today, December 7, 2024: Rates drop after jobs report](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-december-7-2024-110042172.html)
+- Dec 07 - [Myrtle Beach area resort infested with bed bugs, new SC lawsuit alleges. Here are the details](https://www.yahoo.com/news/myrtle-beach-area-resort-infested-110000653.html)
 <!-- feed end -->
 
 ### Onstream
