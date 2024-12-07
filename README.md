@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Hegseth and Collins’ push for cutting veterans health benefits alarms servicemembers and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
 - Dec 07 - [Alone and broke against a renewed insurgency, is Assad's rule at risk of collapse?](https://www.yahoo.com/news/alone-broke-against-renewed-insurgency-050046205.html)
-- Dec 07 - [Why top internet sleuths say they won't help find the UnitedHealthcare CEO killer](https://www.yahoo.com/news/why-top-internet-sleuths-wont-021107977.html)
-- Dec 07 - [Vance, GOP committees ask Supreme Court to strike down coordination limits](https://www.yahoo.com/news/vance-gop-committees-ask-supreme-000227736.html)
+- Dec 07 - [Indian American family attacked on bus says they'll move forward with pressing charges](https://www.yahoo.com/news/indian-american-family-attacked-bus-001533554.html)
 - Dec 06 - [Appeals court upholds nearly $1.3 billion Sandy Hook verdict against Alex Jones](https://www.yahoo.com/news/appeals-court-upholds-nearly-1-234853147.html)
 - Dec 06 - [Earthquakes under a volcano near Alaska's largest city raise concerns](https://www.yahoo.com/news/earthquakes-under-volcano-near-alaskas-231636523.html)
 <!-- feed end -->
