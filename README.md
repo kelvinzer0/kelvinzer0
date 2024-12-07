@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Storm Darragh batters UK and Ireland, leaving 1 dead and hundreds of thousands without power](https://www.yahoo.com/news/hundreds-thousands-ireland-uk-left-134306073.html)
-- Dec 07 - [Starbucks CEO has 'tall order' ahead: Shake Shack founder](https://finance.yahoo.com/video/starbucks-ceo-tall-order-ahead-133045098.html)
+- Dec 07 - [How blockchain technology sets crypto apart](https://finance.yahoo.com/video/blockchain-technology-sets-crypto-apart-150025032.html)
+- Dec 07 - [Billionaires have been beating the stock market — where they are putting their money now, according to UBS](https://finance.yahoo.com/news/billionaires-beating-stock-market-where-124100044.html)
+- Dec 07 - [40 Extremely Rare "Before And After" Pictures That Will Completely And Totally Change Your Perspective On The Titanic](https://www.yahoo.com/entertainment/40-extremely-rare-pictures-completely-143626305.html)
+- Dec 07 - [South Korea martial law: Why it happened and what comes next](https://www.yahoo.com/news/south-korea-martial-law-why-123703307.html)
 - Dec 07 - [Hegseth and Collins’ push for cutting veterans health benefits alarms servicemembers and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
-- Dec 07 - [Mortgage and refinance rates today, December 7, 2024: Rates drop after jobs report](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-december-7-2024-110042172.html)
-- Dec 07 - [Beach-side restaurant announces indefinite closure after growing threat causes permanent damage: 'It's a kick in the gut'](https://www.yahoo.com/news/beach-side-restaurant-announces-indefinite-104541062.html)
 <!-- feed end -->
 
 ### Onstream
