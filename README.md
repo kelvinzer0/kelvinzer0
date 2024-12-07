@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
+- Dec 07 - [3 men accused of 2022 sexual assault in Hay River, N.W.T., found not guilty](https://www.yahoo.com/news/3-men-accused-2022-sexual-011741729.html)
+- Dec 06 - [Earthquakes under a volcano near Alaska's largest city raise concerns](https://www.yahoo.com/news/earthquakes-under-volcano-near-alaskas-231636523.html)
+- Dec 06 - [Syrians Pose Next to Head of Toppled Statue of Hafez al-Assad in Hama](https://www.yahoo.com/news/syrians-pose-next-head-toppled-212747101.html)
 - Dec 06 - [Chipotle Customers Riot Over 'Bad News' for the Restaurant: 'Never Going Again'](https://www.yahoo.com/lifestyle/chipotle-customers-riot-over-bad-192742565.html)
-- Dec 06 - [Vance tells residents in hurricane-stricken North Carolina that they haven't been forgotten](https://www.yahoo.com/news/jd-vance-wife-tour-western-185536128.html)
-- Dec 06 - [Rand Paul talks about government spending and ending Selective Service in interview](https://www.yahoo.com/news/rand-paul-talks-government-spending-184058676.html)
-- Dec 06 - [‘Dancing doctor’ who had license suspended is found working at medical facility in another state](https://www.yahoo.com/news/dancing-doctor-had-license-suspended-175701217.html)
+- Dec 06 - [Research Shows People Experiencing These Telltale Signs At 60 May Develop Dementia Within 20 Years](https://www.yahoo.com/lifestyle/research-shows-people-experiencing-telltale-185900902.html)
 <!-- feed end -->
 
 ### Onstream
