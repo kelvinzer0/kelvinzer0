@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Campaign finance records show Harris' $1 million payment to Oprah's production company](https://finance.yahoo.com/news/campaign-finance-records-show-harris-220217879.html)
+- Dec 07 - [Zelensky endorses Trump call to end war in Ukraine](https://www.yahoo.com/news/zelensky-endorses-trump-call-end-202439244.html)
+- Dec 07 - [Prince William Attended the Reopening of Notre-Dame in Paris—& Used His Signature Body Language Move](https://www.yahoo.com/news/prince-william-attended-reopening-notre-194123761.html)
 - Dec 07 - [NYC mayor says suspect identified in UnitedHealth executive's murder, NY Post reports](https://www.yahoo.com/news/nyc-mayor-says-suspect-identified-184219978.html)
 - Dec 07 - [I Took the Test RFK Jr. Is Using to Determine Who Should Work at His Health Department. We Are Extremely Doomed.](https://www.yahoo.com/news/took-test-rfk-jr-using-173047045.html)
-- Dec 07 - [US Military Alarmed by Russian Nuclear Weapon Platform in Orbit](https://www.yahoo.com/news/us-military-alarmed-russian-nuclear-173013828.html)
-- Dec 07 - [How blockchain technology sets crypto apart](https://finance.yahoo.com/video/blockchain-technology-sets-crypto-apart-150025032.html)
-- Dec 07 - [Discovery of Bizarre Stone Age Skulls Baffles Archaeologists](https://www.yahoo.com/news/discovery-bizarre-stone-age-skulls-150000885.html)
 <!-- feed end -->
 
 ### Onstream
