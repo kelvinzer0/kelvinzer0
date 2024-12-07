@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [3 men accused of 2022 sexual assault in Hay River, N.W.T., found not guilty](https://www.yahoo.com/news/3-men-accused-2022-sexual-011741729.html)
+- Dec 07 - [Vance, GOP committees ask Supreme Court to strike down coordination limits](https://www.yahoo.com/news/vance-gop-committees-ask-supreme-000227736.html)
 - Dec 06 - [Earthquakes under a volcano near Alaska's largest city raise concerns](https://www.yahoo.com/news/earthquakes-under-volcano-near-alaskas-231636523.html)
-- Dec 06 - [Syrians Pose Next to Head of Toppled Statue of Hafez al-Assad in Hama](https://www.yahoo.com/news/syrians-pose-next-head-toppled-212747101.html)
-- Dec 06 - [Chipotle Customers Riot Over 'Bad News' for the Restaurant: 'Never Going Again'](https://www.yahoo.com/lifestyle/chipotle-customers-riot-over-bad-192742565.html)
-- Dec 06 - [Research Shows People Experiencing These Telltale Signs At 60 May Develop Dementia Within 20 Years](https://www.yahoo.com/lifestyle/research-shows-people-experiencing-telltale-185900902.html)
+- Dec 06 - [Inside the shady world of health insurers — and the 1.2 seconds it takes them to deny claims](https://www.yahoo.com/news/inside-shady-world-health-insurers-231118443.html)
+- Dec 06 - [Boston City Councilor Tania Fernandes Anderson arrested on federal public corruption charges](https://www.yahoo.com/news/boston-city-councilor-tania-fernandes-123913199.html)
+- Dec 06 - [It’s Official—McDonald’s Is Bringing Back This Cult-Favorite Menu Item for the First Time in 8 Years](https://www.yahoo.com/lifestyle/official-mcdonald-bringing-back-cult-210000032.html)
 <!-- feed end -->
 
 ### Onstream
