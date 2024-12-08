@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [11 Reasons Papa Johns Might Not Be Around Much Longer](https://finance.yahoo.com/news/11-reasons-papa-johns-might-184045350.html)
-- Dec 08 - [Trump’s Surgeon General Pick Accidentally Set Off Gun That Killed Her Father](https://www.yahoo.com/news/trump-surgeon-general-pick-accidentally-180112211.html)
-- Dec 08 - [Ron Paul Wants Elon Musk, Vivek Ramaswamy-Led DOGE To Eliminate This Program Of 'Immoral Transfer Of Wealth'](https://finance.yahoo.com/news/ron-paul-wants-elon-musk-180039974.html)
+- Dec 08 - [Watching with trepidation and glee, Netanyahu orders military to seize Syria buffer zone](https://www.yahoo.com/news/israel-watches-syria-trepidation-50-125141646.html)
+- Dec 08 - [Woodbridge man charged with attempted murder in hammer attack on stepfather](https://www.yahoo.com/news/woodbridge-man-charged-attempted-murder-183404239.html)
+- Dec 08 - [Fact check: Trump, repeating old lies on ‘Meet the Press,’ falsely claims US is the only country with birthright citizenship](https://www.yahoo.com/news/fact-check-trump-repeating-old-175648028.html)
 - Dec 08 - [Opinion | Trump is already backing off his most important campaign promise](https://www.yahoo.com/news/opinion-unexpected-revealing-admission-trump-161010462.html)
-- Dec 08 - [Trump says he can't guarantee tariffs won't raise US prices and won't rule out revenge prosecutions](https://www.yahoo.com/news/trump-says-cant-guarantee-tariffs-170317240.html)
+- Dec 08 - [The Largest Grocery Store Chain In The US Leads By A Long Shot](https://www.yahoo.com/lifestyle/largest-grocery-store-chain-us-172554267.html)
 <!-- feed end -->
 
 ### Onstream
