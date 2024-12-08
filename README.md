@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 08 - [The fall of Bashar Assad after 14 years of war in Syria brings to an end a decades-long dynasty](https://www.yahoo.com/news/fall-bashar-assad-14-years-051031773.html)
 - Dec 08 - [Why Syria’s army collapsed so suddenly](https://www.yahoo.com/news/why-syria-army-collapsed-suddenly-201808438.html)
-- Dec 08 - [Police officer crashes into crowd during Festival of Lights parade; 10 injured](https://www.yahoo.com/news/police-officer-crashes-crowd-during-031022122.html)
+- Dec 08 - [US House to vote to provide $3 billion to remove Chinese telecoms equipment](https://www.yahoo.com/news/us-house-vote-3-billion-000748392.html)
+- Dec 07 - [US announces nearly $1 billion more in longer-term weapons support for Ukraine](https://www.yahoo.com/news/us-announces-nearly-1-billion-231145586.html)
 - Dec 07 - [Campaign finance records show Harris' $1 million payment to Oprah's production company](https://www.yahoo.com/news/campaign-finance-records-show-harris-220217879.html)
-- Dec 07 - [8 Affordable Tire Brands That Could Last the Lifetime of Your Car](https://www.yahoo.com/news/8-affordable-tire-brands-could-121354054.html)
 <!-- feed end -->
 
 ### Onstream
