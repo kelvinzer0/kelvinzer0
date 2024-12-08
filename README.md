@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 08 - [Mortgage and refinance rates today, December 8, 2024: Weekly rate falls by 21 basis points](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-sunday-december-8-2024-110048360.html)
 - Dec 08 - [NYPD releases 2 new photos of man sought in killing of UnitedHealthcare CEO](https://www.yahoo.com/news/nypd-releases-2-photos-man-074329142.html)
+- Dec 08 - [Fatal pedestrian accident shuts down I-5 lanes in downtown San Diego](https://www.yahoo.com/news/fatal-pedestrian-accident-shuts-down-061006190.html)
 - Dec 08 - [The fall of Bashar Assad after 14 years of war in Syria brings to an end a decades-long dynasty](https://www.yahoo.com/news/fall-bashar-assad-14-years-051031773.html)
 - Dec 08 - [US House to vote to provide $3 billion to remove Chinese telecoms equipment](https://www.yahoo.com/news/us-house-vote-3-billion-000748392.html)
-- Dec 07 - [US announces nearly $1 billion more in longer-term weapons support for Ukraine](https://www.yahoo.com/news/us-announces-nearly-1-billion-231145586.html)
-- Dec 07 - [Campaign finance records show Harris' $1 million payment to Oprah's production company](https://www.yahoo.com/news/campaign-finance-records-show-harris-220217879.html)
 <!-- feed end -->
 
 ### Onstream
