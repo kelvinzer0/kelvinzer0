@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [Mortgage and refinance rates today, December 8, 2024: Weekly rate falls by 21 basis points](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-sunday-december-8-2024-110048360.html)
+- Dec 08 - [Citizens need to stay engaged to preserve American democracy in days ahead | Letters](https://www.yahoo.com/news/citizens-stay-engaged-preserve-american-110206821.html)
+- Dec 08 - [People Are Sharing The Single Most Important Lesson From Therapy That Made All The Difference](https://www.yahoo.com/lifestyle/people-sharing-single-most-important-103105770.html)
+- Dec 08 - ['Waiting a long time for this': Damascus wakes up in rebel hands](https://www.yahoo.com/news/waiting-long-time-damascus-wakes-075742609.html)
 - Dec 08 - [NYPD releases 2 new photos of man sought in killing of UnitedHealthcare CEO](https://www.yahoo.com/news/nypd-releases-2-photos-man-074329142.html)
 - Dec 08 - [Fatal pedestrian accident shuts down I-5 lanes in downtown San Diego](https://www.yahoo.com/news/fatal-pedestrian-accident-shuts-down-061006190.html)
-- Dec 08 - [The fall of Bashar Assad after 14 years of war in Syria brings to an end a decades-long dynasty](https://www.yahoo.com/news/fall-bashar-assad-14-years-051031773.html)
-- Dec 08 - [US House to vote to provide $3 billion to remove Chinese telecoms equipment](https://www.yahoo.com/news/us-house-vote-3-billion-000748392.html)
 <!-- feed end -->
 
 ### Onstream
