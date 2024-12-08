@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [US announces nearly $1 billion more in longer-term weapons support for Ukraine](https://www.yahoo.com/news/us-announces-nearly-1-billion-231145586.html)
+- Dec 08 - [The fall of Bashar Assad after 14 years of war in Syria brings to an end a decades-long dynasty](https://www.yahoo.com/news/fall-bashar-assad-14-years-051031773.html)
+- Dec 08 - [Why Syria’s army collapsed so suddenly](https://www.yahoo.com/news/why-syria-army-collapsed-suddenly-201808438.html)
+- Dec 08 - [Police officer crashes into crowd during Festival of Lights parade; 10 injured](https://www.yahoo.com/news/police-officer-crashes-crowd-during-031022122.html)
 - Dec 07 - [Campaign finance records show Harris' $1 million payment to Oprah's production company](https://www.yahoo.com/news/campaign-finance-records-show-harris-220217879.html)
 - Dec 07 - [8 Affordable Tire Brands That Could Last the Lifetime of Your Car](https://www.yahoo.com/news/8-affordable-tire-brands-could-121354054.html)
-- Dec 07 - [French first lady helps keep Trump, Bidens apart at Notre Dame](https://www.yahoo.com/news/french-first-lady-helps-keep-200606938.html)
-- Dec 07 - [Hegseth and Collins’ push for cutting veterans’ health benefits alarms service members and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
 <!-- feed end -->
 
 ### Onstream
