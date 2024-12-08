@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [French first lady helps keep Trump, Bidens apart at Notre Dame](https://www.yahoo.com/news/french-first-lady-helps-keep-200606938.html)
-- Dec 07 - [A Boy, 4, Vanished on Way to Summer Camp. Then a Family Friend's Teenage Son Started Asking Alarming Questions](https://www.yahoo.com/news/boy-4-vanished-way-summer-200000583.html)
-- Dec 07 - [Prince William Attended the Reopening of Notre-Dame in Paris—& Used His Signature Body Language Move](https://www.yahoo.com/news/prince-william-attended-reopening-notre-194123761.html)
+- Dec 08 - [Thousands of Israelis protest in Tel Aviv before police bring out water cannon](https://www.yahoo.com/news/thousands-israelis-protest-tel-aviv-012923075.html)
+- Dec 08 - [UnitedHealthcare CEO shooting latest: Suspect's backpack had Monopoly money: Sources](https://www.yahoo.com/news/unitedhealthcare-ceo-shooting-latest-manhunt-084434047.html)
+- Dec 07 - [Campaign finance records show Harris' $1 million payment to Oprah's production company](https://www.yahoo.com/news/campaign-finance-records-show-harris-220217879.html)
+- Dec 07 - [Hegseth and Collins’ push for cutting veterans’ health benefits alarms service members and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
 - Dec 07 - [NYC mayor says suspect identified in UnitedHealth executive's murder, NY Post reports](https://www.yahoo.com/news/nyc-mayor-says-suspect-identified-184219978.html)
-- Dec 07 - [I Took the Test RFK Jr. Is Using to Determine Who Should Work at His Health Department. We Are Extremely Doomed.](https://www.yahoo.com/news/took-test-rfk-jr-using-173047045.html)
 <!-- feed end -->
 
 ### Onstream
