@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 08 - [Israel terminates 1974 agreement with Syria on separation of forces](https://www.yahoo.com/news/israel-terminates-1974-agreement-syria-162721453.html)
+- Dec 08 - [Two shot in downtown Eugene bar; police investigating](https://www.yahoo.com/news/two-shot-downtown-eugene-bar-160756476.html)
+- Dec 08 - [Trump details sweeping changes he’ll carry out on day one and beyond in an exclusive interview](https://www.yahoo.com/news/trump-details-sweeping-changes-ll-160041420.html)
 - Dec 08 - [Watching with trepidation and glee, Netanyahu orders military to seize Syria buffer zone](https://www.yahoo.com/news/israel-watches-syria-trepidation-50-125141646.html)
-- Dec 08 - [How a Navy sailor fell off his ship, played dumb — and became a Vietnam POW hero](https://www.yahoo.com/news/navy-sailor-fell-off-ship-125345621.html)
-- Dec 08 - [Scientists search breakthrough on how dogs of Chernobyl survived the world’s worst nuclear disaster](https://www.yahoo.com/news/scientists-search-breakthrough-dogs-chernobyl-124325362.html)
-- Dec 08 - [16 People Who Voted For Donald Trump Are Sharing Exactly Why They're Already Questioning Their Decision](https://www.yahoo.com/news/16-people-voted-donald-trump-121602084.html)
-- Dec 08 - [Kremlin, on Trump call for Ukraine peace talks, says Moscow is open to negotiations on certain terms](https://www.yahoo.com/news/kremlin-trump-call-ukraine-peace-120527821.html)
+- Dec 08 - [NYPD releases new images of suspect in UnitedHealthcare CEO killing](https://www.yahoo.com/news/nypd-releases-images-suspect-unitedhealthcare-131757283.html)
 <!-- feed end -->
 
 ### Onstream
