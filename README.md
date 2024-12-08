@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 08 - [The fall of Bashar Assad after 14 years of war in Syria brings to an end a decades-long dynasty](https://www.yahoo.com/news/fall-bashar-assad-14-years-051031773.html)
-- Dec 08 - [2 suspects arrested in Orange County fraud scheme investigation](https://www.yahoo.com/news/2-suspects-arrested-orange-county-042721941.html)
 - Dec 08 - [Why Syria’s army collapsed so suddenly](https://www.yahoo.com/news/why-syria-army-collapsed-suddenly-201808438.html)
-- Dec 08 - [UnitedHealthcare CEO shooting latest: Suspect's backpack had Monopoly money: Sources](https://www.yahoo.com/news/unitedhealthcare-ceo-shooting-latest-manhunt-084434047.html)
+- Dec 08 - [Police officer crashes into crowd during Festival of Lights parade; 10 injured](https://www.yahoo.com/news/police-officer-crashes-crowd-during-031022122.html)
+- Dec 08 - [Taiwan reports near doubling of Chinese warships nearby](https://www.yahoo.com/news/taiwan-reports-near-doubling-chinese-015457820.html)
 - Dec 08 - [US House to vote to provide $3 billion to remove Chinese telecoms equipment](https://www.yahoo.com/news/us-house-vote-3-billion-000748392.html)
 <!-- feed end -->
 
