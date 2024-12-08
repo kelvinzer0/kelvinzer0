@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 08 - [Russian state media confirms ex-Syrian president fled to Moscow](https://www.yahoo.com/news/russian-state-media-confirms-ex-194905001.html)
 - Dec 08 - [Watching with trepidation and glee, Netanyahu orders military to seize Syria buffer zone](https://www.yahoo.com/news/israel-watches-syria-trepidation-50-125141646.html)
-- Dec 08 - [Woodbridge man charged with attempted murder in hammer attack on stepfather](https://www.yahoo.com/news/woodbridge-man-charged-attempted-murder-183404239.html)
-- Dec 08 - [Fact check: Trump, repeating old lies on ‘Meet the Press,’ falsely claims US is the only country with birthright citizenship](https://www.yahoo.com/news/fact-check-trump-repeating-old-175648028.html)
+- Dec 08 - [‘Are you worried Donald Trump will try to put you in jail?’: See Adam Kinzinger’s reaction](https://www.yahoo.com/news/worried-donald-trump-try-put-182008621.html)
+- Dec 08 - [Ron Paul Wants Elon Musk, Vivek Ramaswamy-Led DOGE To Eliminate This Program Of 'Immoral Transfer Of Wealth'](https://finance.yahoo.com/news/ron-paul-wants-elon-musk-180039974.html)
 - Dec 08 - [Opinion | Trump is already backing off his most important campaign promise](https://www.yahoo.com/news/opinion-unexpected-revealing-admission-trump-161010462.html)
-- Dec 08 - [The Largest Grocery Store Chain In The US Leads By A Long Shot](https://www.yahoo.com/lifestyle/largest-grocery-store-chain-us-172554267.html)
 <!-- feed end -->
 
 ### Onstream
