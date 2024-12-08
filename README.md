@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [Israel terminates 1974 agreement with Syria on separation of forces](https://www.yahoo.com/news/israel-terminates-1974-agreement-syria-162721453.html)
-- Dec 08 - [Two shot in downtown Eugene bar; police investigating](https://www.yahoo.com/news/two-shot-downtown-eugene-bar-160756476.html)
-- Dec 08 - [Trump details sweeping changes he’ll carry out on day one and beyond in an exclusive interview](https://www.yahoo.com/news/trump-details-sweeping-changes-ll-160041420.html)
+- Dec 08 - [Opinion | Trump is already backing off his most important campaign promise](https://www.yahoo.com/news/opinion-unexpected-revealing-admission-trump-161010462.html)
+- Dec 08 - [Assad loyalists shaken by his fall, some relieved by lack of violence](https://www.yahoo.com/news/assad-loyalists-shaken-fall-relieved-171211340.html)
+- Dec 08 - [Trump says he can't guarantee tariffs won't raise US prices and won't rule out revenge prosecutions](https://www.yahoo.com/news/trump-says-cant-guarantee-tariffs-170317240.html)
+- Dec 08 - [Assad leaves behind a fragmented nation – stabilizing it will be a major challenge for fractured opposition and external backers](https://www.yahoo.com/news/assad-leaves-behind-fragmented-nation-165615068.html)
 - Dec 08 - [Watching with trepidation and glee, Netanyahu orders military to seize Syria buffer zone](https://www.yahoo.com/news/israel-watches-syria-trepidation-50-125141646.html)
-- Dec 08 - [NYPD releases new images of suspect in UnitedHealthcare CEO killing](https://www.yahoo.com/news/nypd-releases-images-suspect-unitedhealthcare-131757283.html)
 <!-- feed end -->
 
 ### Onstream
