@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [Ramit Sethi Says Doing This Every December Could Be Worth Hundreds of Thousands of Dollars](https://finance.yahoo.com/news/ramit-sethi-says-doing-every-130050715.html)
+- Dec 08 - [Watching with trepidation and glee, Netanyahu orders military to seize Syria buffer zone](https://www.yahoo.com/news/israel-watches-syria-trepidation-50-125141646.html)
 - Dec 08 - [How a Navy sailor fell off his ship, played dumb — and became a Vietnam POW hero](https://www.yahoo.com/news/navy-sailor-fell-off-ship-125345621.html)
+- Dec 08 - [Scientists search breakthrough on how dogs of Chernobyl survived the world’s worst nuclear disaster](https://www.yahoo.com/news/scientists-search-breakthrough-dogs-chernobyl-124325362.html)
+- Dec 08 - [16 People Who Voted For Donald Trump Are Sharing Exactly Why They're Already Questioning Their Decision](https://www.yahoo.com/news/16-people-voted-donald-trump-121602084.html)
 - Dec 08 - [Kremlin, on Trump call for Ukraine peace talks, says Moscow is open to negotiations on certain terms](https://www.yahoo.com/news/kremlin-trump-call-ukraine-peace-120527821.html)
-- Dec 08 - ['Waiting a long time for this': Damascus wakes up in rebel hands](https://www.yahoo.com/news/waiting-long-time-damascus-wakes-075742609.html)
-- Dec 08 - [The fall of Bashar Assad after 14 years of war in Syria brings to an end a decades-long dynasty](https://www.yahoo.com/news/fall-bashar-assad-14-years-051031773.html)
 <!-- feed end -->
 
 ### Onstream
