@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [US announces nearly $1 billion more in longer-term weapons support for Ukraine](https://www.yahoo.com/news/us-announces-nearly-1-billion-231145586.html)
 - Dec 07 - [Campaign finance records show Harris' $1 million payment to Oprah's production company](https://www.yahoo.com/news/campaign-finance-records-show-harris-220217879.html)
-- Dec 07 - [8 Affordable Tire Brands That Could Last the Lifetime of Your Car](https://www.yahoo.com/news/8-affordable-tire-brands-could-121354054.html)
-- Dec 07 - [Hegseth and Collins’ push for cutting veterans’ health benefits alarms service members and veterans groups](https://www.yahoo.com/news/hegseth-collins-push-cutting-veterans-120043901.html)
-- Dec 07 - [Prince William Attended the Reopening of Notre-Dame in Paris—& Used His Signature Body Language Move](https://www.yahoo.com/news/prince-william-attended-reopening-notre-194123761.html)
+- Dec 07 - [10 Fish You Could Get In Trouble For Eating](https://www.yahoo.com/lifestyle/10-fish-could-trouble-eating-201521817.html)
+- Dec 07 - [French first lady helps keep Trump, Bidens apart at Notre Dame](https://www.yahoo.com/news/french-first-lady-helps-keep-200606938.html)
 - Dec 07 - [NYC mayor says suspect identified in UnitedHealth executive's murder, NY Post reports](https://www.yahoo.com/news/nyc-mayor-says-suspect-identified-184219978.html)
 <!-- feed end -->
 
