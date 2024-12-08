@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [Scientists search breakthrough on how dogs of Chernobyl survived the world’s worst nuclear disaster](https://www.yahoo.com/news/scientists-search-breakthrough-dogs-chernobyl-124325362.html)
+- Dec 08 - [Bluesky promises to shake up social media. It might finally succeed.](https://finance.yahoo.com/news/bluesky-promises-to-shake-up-social-media-it-might-finally-succeed-140059137.html)
+- Dec 08 - [16 People Who Voted For Donald Trump Are Sharing Exactly Why They're Already Questioning Their Decision](https://www.yahoo.com/news/16-people-voted-donald-trump-121602084.html)
 - Dec 08 - [Kremlin, on Trump call for Ukraine peace talks, says Moscow is open to negotiations on certain terms](https://www.yahoo.com/news/kremlin-trump-call-ukraine-peace-120527821.html)
-- Dec 08 - [People Are Sharing The Single Most Important Lesson From Therapy That Made All The Difference](https://www.yahoo.com/lifestyle/people-sharing-single-most-important-103105770.html)
-- Dec 08 - [Fatal pedestrian accident shuts down I-5 lanes in downtown San Diego](https://www.yahoo.com/news/fatal-pedestrian-accident-shuts-down-061006190.html)
-- Dec 08 - [The fall of Bashar Assad after 14 years of war in Syria brings to an end a decades-long dynasty](https://www.yahoo.com/news/fall-bashar-assad-14-years-051031773.html)
+- Dec 08 - [10 Unreliable SUVs To Stay Away From Buying](https://www.yahoo.com/news/10-unreliable-suvs-stay-away-190119144.html)
+- Dec 08 - ['Waiting a long time for this': Damascus wakes up in rebel hands](https://www.yahoo.com/news/waiting-long-time-damascus-wakes-075742609.html)
 <!-- feed end -->
 
 ### Onstream
