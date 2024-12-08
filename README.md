@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 08 - [Protest set at MD Cracker Barrel after school says special ed. students 'refused service'](https://www.yahoo.com/news/protest-set-md-cracker-barrel-211146101.html)
+- Dec 08 - [11 Times Fast Food Restaurants Thought They Could Trick Their Customers](https://www.yahoo.com/lifestyle/11-times-fast-food-restaurants-204052149.html)
 - Dec 08 - [Heartbroken family pay tribute to ‘well loved’ football coach killed in Storm Darragh](https://www.yahoo.com/news/heartbroken-family-pay-tribute-well-203732067.html)
+- Dec 08 - [Watching with trepidation and glee, Netanyahu orders military to seize Syria buffer zone](https://www.yahoo.com/news/israel-watches-syria-trepidation-50-125141646.html)
 - Dec 08 - [‘Are you worried Donald Trump will try to put you in jail?’: See Adam Kinzinger’s reaction](https://www.yahoo.com/news/worried-donald-trump-try-put-182008621.html)
-- Dec 08 - [Ron Paul Wants Elon Musk, Vivek Ramaswamy-Led DOGE To Eliminate This Program Of 'Immoral Transfer Of Wealth'](https://finance.yahoo.com/news/ron-paul-wants-elon-musk-180039974.html)
-- Dec 08 - [Opinion | Trump is already backing off his most important campaign promise](https://www.yahoo.com/news/opinion-unexpected-revealing-admission-trump-161010462.html)
-- Dec 08 - [The Largest Grocery Store Chain In The US Leads By A Long Shot](https://www.yahoo.com/lifestyle/largest-grocery-store-chain-us-172554267.html)
 <!-- feed end -->
 
 ### Onstream
