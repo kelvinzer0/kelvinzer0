@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Nvidia And Bitcoin Leader Steer 5 Stocks Near Buy Points](https://www.investors.com/news/nvidia-ai-stock-blackrock-emcor-trip-com-travelers-stocks-near-buy-points/?src=A00220&yptr=yahoo)
-- Dec 09 - [Google says it has cracked a quantum computing challenge with new chip](https://finance.yahoo.com/news/google-says-cracked-quantum-computing-160249338.html)
-- Dec 09 - [Find The Next Palantir Or Under-The-Radar IPO With This Tool](https://www.investors.com/how-to-invest/stock-screener/?src=A00220&yptr=yahoo)
-- Dec 09 - [Following 'Law And Order's' Career-Ending Fall Finale Twist, I'm More Attached Than I Realized To Maura Tierney's Jessica Brady](https://www.yahoo.com/entertainment/following-law-orders-career-ending-160000185.html)
-- Dec 09 - [Deadly Torture Device Discovered at Syria’s ‘Human Slaughterhouse’](https://www.yahoo.com/news/deadly-torture-device-discovered-syria-155317617.html)
+- Dec 09 - [Criminology Student Asked Professor How to Get Away With Murder Before Attack](https://www.yahoo.com/news/criminology-student-asked-professor-away-180230147.html)
+- Dec 09 - [Ukrainian man fleeing war rescued with his kitten on a perilous journey through Romanian mountains](https://www.yahoo.com/news/ukrainian-man-fleeing-war-rescued-175256336.html)
+- Dec 09 - [Nvidia Leads 5 Stocks To Watch Near Buy Points; One Breaks Out](https://www.investors.com/news/nvidia-ai-stock-blackrock-emcor-trip-com-travelers-stocks-near-buy-points/?src=A00220&yptr=yahoo)
+- Dec 09 - [Oldest known stone tablet inscribed with Ten Commandments to be auctioned](https://www.yahoo.com/news/oldest-known-stone-tablet-inscribed-170518015.html)
+- Dec 09 - [Boeing to lay off 396 employees in Washington](https://finance.yahoo.com/news/boeing-lay-off-nearly-400-161435633.html)
 <!-- feed end -->
 
 ### Onstream
