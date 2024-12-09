@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Lara Trump steps down as RNC co-chair and addresses speculation about Florida Senate seat](https://www.yahoo.com/news/lara-trump-steps-down-rnc-031852756.html)
+- Dec 09 - [Jay-Z denies allegations he sexually assaulted a 13-year-old in 2000 along with Sean ‘Diddy’ Combs](https://www.yahoo.com/news/jay-z-accused-sexually-assaulting-005231770.html)
 - Dec 09 - [Syrian rebel leader’s victory speech holds a message for Iran – and for Trump and Israel too](https://www.yahoo.com/news/syrian-rebel-leader-victory-speech-000816905.html)
+- Dec 09 - [Mitch McConnell Gets Standing Ovation After Taking a Subtle Swipe at Trump](https://www.yahoo.com/news/mitch-mcconnell-gets-standing-ovation-034530482.html)
+- Dec 09 - [BYD on track to top 2024 sales goal and outsell Ford, Honda](https://finance.yahoo.com/news/byd-track-top-2024-sales-013717759.html)
 - Dec 09 - [Trump taps his attorney Alina Habba to serve as counselor to the president](https://www.yahoo.com/news/trump-taps-attorney-alina-habba-012129451.html)
-- Dec 09 - [You Might Be Missing These 5 Major Warning Signs Of Sleep Apnea Without Noticing](https://www.yahoo.com/lifestyle/might-missing-5-major-warning-011602413.html)
-- Dec 09 - ['Wizard of Oz’ Ruby Slippers Sell for Record $32.5 Million at Auction in Dallas](https://www.yahoo.com/news/wizard-oz-ruby-slippers-sell-003517810.html)
 <!-- feed end -->
 
 ### Onstream
