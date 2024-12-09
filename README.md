@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [DeSantis appointee says he won't help his elected replacement take office](https://www.yahoo.com/news/desantis-appointee-says-wont-help-215217325.html)
 - Dec 09 - [Nvidia Leads 5 Stocks To Watch Near Buy Points; One Breaks Out](https://www.investors.com/news/nvidia-ai-stock-blackrock-emcor-trip-com-travelers-stocks-near-buy-points/?src=A00220&yptr=yahoo)
-- Dec 09 - [Farage makes sixth US trip as MP to be headliner at MAGA gala which has snubbed ‘loser’ Tories](https://www.yahoo.com/news/farage-makes-sixth-trip-us-193032253.html)
-- Dec 09 - [Cobb PD releases body camera video, 911 calls from night officer shot, killed family’s dog](https://www.yahoo.com/news/cobb-pd-releases-body-camera-201920696.html)
+- Dec 09 - [Estimated 60,000 gallons of wastewater released in Bluffton: BJWSA says](https://www.yahoo.com/news/estimated-60-000-gallons-wastewater-201850795.html)
 - Dec 09 - [Doorbell camera captures moment garbage truck explodes in Chicago suburb](https://www.yahoo.com/news/doorbell-camera-captures-moment-garbage-201138663.html)
-- Dec 09 - [Catastrophe Bonds See Investor Influx After ‘Fantastic’ Run](https://finance.yahoo.com/news/catastrophe-bonds-see-investor-influx-200000978.html)
+- Dec 09 - [A leaked video of UnitedHealth CEO defending denial practices sparks more online backlash](https://www.yahoo.com/news/leaked-video-unitedhealth-ceo-defending-183000779.html)
 <!-- feed end -->
 
 ### Onstream
