@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [Hey, MAGA voters: You've been had. Trump's plans for the economy may ruin you. | Opinion](https://www.yahoo.com/news/hey-maga-voters-youve-had-220513815.html)
 - Dec 09 - [DeSantis appointee says he won't help his elected replacement take office](https://www.yahoo.com/news/desantis-appointee-says-wont-help-215217325.html)
-- Dec 09 - [Nvidia Leads 5 Stocks To Watch Near Buy Points; One Breaks Out](https://www.investors.com/news/nvidia-ai-stock-blackrock-emcor-trip-com-travelers-stocks-near-buy-points/?src=A00220&yptr=yahoo)
-- Dec 09 - [Estimated 60,000 gallons of wastewater released in Bluffton: BJWSA says](https://www.yahoo.com/news/estimated-60-000-gallons-wastewater-201850795.html)
-- Dec 09 - [Doorbell camera captures moment garbage truck explodes in Chicago suburb](https://www.yahoo.com/news/doorbell-camera-captures-moment-garbage-201138663.html)
-- Dec 09 - [A leaked video of UnitedHealth CEO defending denial practices sparks more online backlash](https://www.yahoo.com/news/leaked-video-unitedhealth-ceo-defending-183000779.html)
+- Dec 09 - [Nicolle Wallace: ‘Why'd the employee at McDonalds see him before any of his family or friends did?’](https://www.yahoo.com/news/nicolle-wallace-whyd-employee-mcdonalds-213738297.html)
+- Dec 09 - [Ukraine's changing up its Black Sea attacks on Russia with drone boats armed with machine guns and flying exploding drones](https://www.yahoo.com/news/ukraines-changing-black-sea-attacks-212143365.html)
+- Dec 09 - [Rupert Murdoch fails in bid to change family trust, New York Times reports](https://finance.yahoo.com/news/rupert-murdoch-fails-bid-change-203435269.html)
 <!-- feed end -->
 
 ### Onstream
