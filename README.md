@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Jay-Z denies allegations he sexually assaulted a 13-year-old in 2000 along with Sean ‘Diddy’ Combs](https://www.yahoo.com/news/jay-z-accused-sexually-assaulting-005231770.html)
+- Dec 09 - [Fears loom over India's 'Hong Kong' project on a remote island](https://www.yahoo.com/news/fears-loom-over-indias-hong-004825400.html)
+- Dec 09 - [Fall of the House of Assad, with a billion-pound fortune and blood on their hands](https://www.yahoo.com/news/fall-house-assad-billion-pound-060000355.html)
+- Dec 09 - [Adam Schiff to be sworn into the Senate, where he wants to be more than a Trump antagonist](https://www.yahoo.com/news/adam-schiff-sworn-senate-where-051307076.html)
+- Dec 09 - [VW, workers clash in latest round of talks over factory shutdowns](https://finance.yahoo.com/news/vw-workers-clash-latest-round-050231435.html)
 - Dec 09 - [Syrian rebel leader’s victory speech holds a message for Iran – and for Trump and Israel too](https://www.yahoo.com/news/syrian-rebel-leader-victory-speech-000816905.html)
-- Dec 09 - [Mitch McConnell Gets Standing Ovation After Taking a Subtle Swipe at Trump](https://www.yahoo.com/news/mitch-mcconnell-gets-standing-ovation-034530482.html)
-- Dec 09 - [BYD on track to top 2024 sales goal and outsell Ford, Honda](https://finance.yahoo.com/news/byd-track-top-2024-sales-013717759.html)
-- Dec 09 - [Trump taps his attorney Alina Habba to serve as counselor to the president](https://www.yahoo.com/news/trump-taps-attorney-alina-habba-012129451.html)
 <!-- feed end -->
 
 ### Onstream
