@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Criminology Student Asked Professor How to Get Away With Murder Before Attack](https://www.yahoo.com/news/criminology-student-asked-professor-away-180230147.html)
+- Dec 09 - [Person of Interest in UnitedHealthcare CEO’s Killing Identified as Prep School Valedictorian](https://www.yahoo.com/news/person-interest-unitedhealthcare-ceo-killing-181942543.html)
 - Dec 09 - [Ukrainian man fleeing war rescued with his kitten on a perilous journey through Romanian mountains](https://www.yahoo.com/news/ukrainian-man-fleeing-war-rescued-175256336.html)
-- Dec 09 - [Nvidia Leads 5 Stocks To Watch Near Buy Points; One Breaks Out](https://www.investors.com/news/nvidia-ai-stock-blackrock-emcor-trip-com-travelers-stocks-near-buy-points/?src=A00220&yptr=yahoo)
+- Dec 09 - [Country music star Luke Bryan spotted shopping, snapping selfies at this Florida Publix](https://www.yahoo.com/entertainment/country-music-star-luke-bryan-172059309.html)
 - Dec 09 - [Oldest known stone tablet inscribed with Ten Commandments to be auctioned](https://www.yahoo.com/news/oldest-known-stone-tablet-inscribed-170518015.html)
-- Dec 09 - [Boeing to lay off 396 employees in Washington](https://finance.yahoo.com/news/boeing-lay-off-nearly-400-161435633.html)
+- Dec 09 - [Security breach at Mass. hospital may have exposed data of hundreds of thousands of patients](https://www.yahoo.com/news/security-breach-mass-hospital-may-163354556.html)
 <!-- feed end -->
 
 ### Onstream
