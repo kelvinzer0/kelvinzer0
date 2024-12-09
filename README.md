@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [French film director accused of abusing actress Adèle Haenel goes on trial](https://www.yahoo.com/news/french-film-director-accused-abusing-075207470.html)
 - Dec 09 - [Fall of the House of Assad, with a billion-pound fortune and blood on their hands](https://www.yahoo.com/news/fall-house-assad-billion-pound-060000309.html)
-- Dec 09 - [Adam Schiff to be sworn into the Senate, where he wants to be more than a Trump antagonist](https://www.yahoo.com/news/adam-schiff-sworn-senate-where-051307076.html)
-- Dec 09 - [Jay-Z denies allegations he sexually assaulted a 13-year-old in 2000 along with Sean ‘Diddy’ Combs](https://www.yahoo.com/news/jay-z-accused-sexually-assaulting-005231770.html)
+- Dec 09 - [Russia has used its hypersonic Oreshnik missile for the first time. What are its capabilities?](https://www.yahoo.com/news/russias-used-hypersonic-oreshnik-missile-052341382.html)
 - Dec 09 - [Syrian rebel leader’s victory speech holds a message for Iran – and for Trump and Israel too](https://www.yahoo.com/news/syrian-rebel-leader-victory-speech-000816905.html)
+- Dec 09 - [Mitch McConnell Gets Standing Ovation After Taking a Subtle Swipe at Trump](https://www.yahoo.com/news/mitch-mcconnell-gets-standing-ovation-034530482.html)
+- Dec 09 - [Lara Trump steps down as RNC co-chair and addresses speculation about Florida Senate seat](https://www.yahoo.com/news/lara-trump-steps-down-rnc-031852756.html)
 <!-- feed end -->
 
 ### Onstream
