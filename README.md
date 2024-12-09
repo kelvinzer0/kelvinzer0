@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [Protest set at MD Cracker Barrel after school says special ed. students 'refused service'](https://www.yahoo.com/news/protest-set-md-cracker-barrel-211146101.html)
-- Dec 08 - [11 Times Fast Food Restaurants Thought They Could Trick Their Customers](https://www.yahoo.com/lifestyle/11-times-fast-food-restaurants-204052149.html)
-- Dec 08 - [Heartbroken family pay tribute to ‘well loved’ football coach killed in Storm Darragh](https://www.yahoo.com/news/heartbroken-family-pay-tribute-well-203732067.html)
-- Dec 08 - [Watching with trepidation and glee, Netanyahu orders military to seize Syria buffer zone](https://www.yahoo.com/news/israel-watches-syria-trepidation-50-125141646.html)
+- Dec 09 - [Syrian rebel leader’s victory speech holds a message for Iran – and for Trump and Israel too](https://www.yahoo.com/news/syrian-rebel-leader-victory-speech-000816905.html)
+- Dec 08 - [Footage shows people emerging from Assad's notorious prisons](https://www.yahoo.com/news/footage-shows-people-emerging-assads-224229799.html)
+- Dec 08 - [Fact check: Trump, repeating old lies on ‘Meet the Press,’ falsely claims US is the only country with birthright citizenship](https://www.yahoo.com/news/fact-check-trump-repeating-old-175648028.html)
+- Dec 08 - [Syrian President Bashar al-Assad and his family are in Moscow under asylum, Russian news agencies say](https://www.yahoo.com/news/syrian-president-bashar-al-assad-182309233.html)
 - Dec 08 - [‘Are you worried Donald Trump will try to put you in jail?’: See Adam Kinzinger’s reaction](https://www.yahoo.com/news/worried-donald-trump-try-put-182008621.html)
 <!-- feed end -->
 
