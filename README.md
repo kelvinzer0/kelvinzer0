@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Fighting seasonal depression in OKC? Try these tips, activities around town](https://www.yahoo.com/lifestyle/fighting-seasonal-depression-okc-try-140014229.html)
-- Dec 09 - [Rats, pigeons and water buffaloes massacred in world’s largest animal sacrifice](https://www.yahoo.com/news/rats-pigeons-water-buffaloes-massacred-134323949.html)
-- Dec 09 - [China targets Nvidia with antitrust probe, escalating US chip tensions](https://finance.yahoo.com/news/china-investigates-nvidia-over-suspected-114158495.html)
-- Dec 09 - [CNN Anchor Announces Shock Exit On The Air That's Effective Immediately](https://www.yahoo.com/entertainment/cnn-anchor-announces-shock-exit-114022277.html)
-- Dec 09 - [Mob hangs and kills 3 men accused of kidnapping girl in Mexico](https://www.yahoo.com/news/mob-hangs-kills-3-men-111814042.html)
+- Dec 09 - [Boy murdered Elianne Andam in ‘white hot anger’ after teddy bear row, court told](https://www.yahoo.com/news/boy-murdered-elianne-andam-white-141121566.html)
+- Dec 09 - [Find The Next Palantir Or Under-The-Radar IPO With This Tool](https://www.investors.com/how-to-invest/stock-screener/?src=A00220&yptr=yahoo)
+- Dec 09 - [Reeves pushes for closer trade ties with EU in Brussels talks](https://finance.yahoo.com/news/reeves-pushes-closer-trade-ties-142042562.html)
+- Dec 09 - [Deadly Torture Device Discovered at Syria’s ‘Human Slaughterhouse’](https://www.yahoo.com/news/deadly-torture-device-discovered-syria-155317617.html)
+- Dec 09 - [Kamala Harris Shines in Metallic Bodice Dress at 2024 Kennedy Center Honors With Doug Emhoff](https://www.yahoo.com/entertainment/kamala-harris-shines-metallic-bodice-152533127.html)
 <!-- feed end -->
 
 ### Onstream
