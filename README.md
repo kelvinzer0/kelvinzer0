@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Farage makes sixth trip to US since becoming an MP to Republican fundraiser which snubbed Tories](https://www.yahoo.com/news/farage-makes-sixth-trip-us-193032253.html)
-- Dec 09 - [Florida woman who flew to Australia for clown school jailed over 24ct gold pistol](https://www.yahoo.com/news/florida-woman-flies-australia-clown-190949780.html)
-- Dec 09 - [Person of Interest in UnitedHealthcare CEO’s Killing Identified as Prep School Valedictorian](https://www.yahoo.com/news/person-interest-unitedhealthcare-ceo-killing-181942543.html)
-- Dec 09 - [State Attorney Bain says he is holding off on assisting with Worrell’s transition into office](https://www.yahoo.com/news/state-attorney-bain-says-holding-180244822.html)
-- Dec 09 - [Ukrainian man fleeing war rescued with his kitten on a perilous journey through Romanian mountains](https://www.yahoo.com/news/ukrainian-man-fleeing-war-rescued-175256336.html)
+- Dec 09 - [Nvidia Leads 5 Stocks To Watch Near Buy Points; One Breaks Out](https://www.investors.com/news/nvidia-ai-stock-blackrock-emcor-trip-com-travelers-stocks-near-buy-points/?src=A00220&yptr=yahoo)
+- Dec 09 - [Farage makes sixth US trip as MP to be headliner at MAGA gala which has snubbed ‘loser’ Tories](https://www.yahoo.com/news/farage-makes-sixth-trip-us-193032253.html)
+- Dec 09 - [Cobb PD releases body camera video, 911 calls from night officer shot, killed family’s dog](https://www.yahoo.com/news/cobb-pd-releases-body-camera-201920696.html)
+- Dec 09 - [Doorbell camera captures moment garbage truck explodes in Chicago suburb](https://www.yahoo.com/news/doorbell-camera-captures-moment-garbage-201138663.html)
+- Dec 09 - [Catastrophe Bonds See Investor Influx After ‘Fantastic’ Run](https://finance.yahoo.com/news/catastrophe-bonds-see-investor-influx-200000978.html)
 <!-- feed end -->
 
 ### Onstream
