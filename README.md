@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 09 - [Indiana AG 'fine' with throwing TikTok away | Morning in America](https://www.yahoo.com/news/indiana-ag-fine-throwing-tiktok-131605140.html)
-- Dec 09 - [Syria – latest: Russia scrabbles to secure bases after Assad overthrow as Damascus prison tunnels searched](https://www.yahoo.com/news/syria-war-latest-race-free-082401031.html)
+- Dec 09 - [Zelenskiy makes case for diplomatic end to Ukraine war](https://www.yahoo.com/news/zelenskiy-floats-idea-deploying-foreign-123425307.html)
 - Dec 09 - [Pilot pulls off extraordinary ‘crabbing’ plane landing at Heathrow during Storm Darragh](https://www.yahoo.com/news/pilot-pulls-off-extraordinary-crabbing-114946998.html)
-- Dec 09 - [After toppling French government, far-right National Rally loses by-election seat](https://www.yahoo.com/news/toppling-french-government-far-national-113535547.html)
+- Dec 09 - [CNN Anchor Announces Shock Exit On The Air That's Effective Immediately](https://www.yahoo.com/entertainment/cnn-anchor-announces-shock-exit-114022277.html)
 - Dec 09 - [‘This is all pink and attractive, but we are going to die’: Anastasia Samoylova on photographing Florida’s climate anxiety](https://www.yahoo.com/news/pink-attractive-going-die-anastasia-110106552.html)
 <!-- feed end -->
 
