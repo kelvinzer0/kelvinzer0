@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [High school students from Notre Dame Academy and Messmer High School compete in this week's poll](https://www.yahoo.com/news/high-school-students-notre-dame-105018518.html)
-- Dec 09 - [Adam Kinzinger Has Defiant 3-Word Response To Donald Trump's Jail Threat](https://www.yahoo.com/news/adam-kinzinger-defiant-3-word-104044076.html)
-- Dec 09 - [Police captain sues Brockton for ignoring alleged cocaine use at headquarters](https://www.yahoo.com/news/police-captain-sues-brockton-ignoring-101627569.html)
-- Dec 09 - [Thousands of police officers face losing their job, Yvette Cooper warned](https://www.yahoo.com/news/thousands-police-officers-face-losing-100457774.html)
-- Dec 09 - [Sarcasm Levels Skyrocket Over Alina Habba’s New Trump White House Gig](https://www.yahoo.com/news/sarcasm-levels-skyrocket-over-alina-083643674.html)
+- Dec 09 - [Dow to sell 40% stake in some US Gulf Coast infrastructure assets for $2.4 billion](https://finance.yahoo.com/news/dow-sell-40-stake-us-120858080.html)
+- Dec 09 - [Syria – latest: Russia scrabbles to secure bases after Assad overthrow as Damascus prison tunnels searched](https://www.yahoo.com/news/syria-war-latest-race-free-082401031.html)
+- Dec 09 - [After toppling French government, far-right National Rally loses by-election seat](https://www.yahoo.com/news/toppling-french-government-far-national-113535547.html)
+- Dec 09 - [‘This is all pink and attractive, but we are going to die’: Anastasia Samoylova on photographing Florida’s climate anxiety](https://www.yahoo.com/news/pink-attractive-going-die-anastasia-110106552.html)
+- Dec 09 - [India questions Musk's Starlink for more clues in $4.2 billion drug smuggling case](https://www.yahoo.com/news/india-questions-musks-starlink-more-105101297.html)
 <!-- feed end -->
 
 ### Onstream
