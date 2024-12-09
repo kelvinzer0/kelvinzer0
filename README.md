@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [High school students from Notre Dame Academy and Messmer High School compete in this week's poll](https://www.yahoo.com/news/high-school-students-notre-dame-105018518.html)
+- Dec 09 - [Adam Kinzinger Has Defiant 3-Word Response To Donald Trump's Jail Threat](https://www.yahoo.com/news/adam-kinzinger-defiant-3-word-104044076.html)
+- Dec 09 - [Police captain sues Brockton for ignoring alleged cocaine use at headquarters](https://www.yahoo.com/news/police-captain-sues-brockton-ignoring-101627569.html)
+- Dec 09 - [Thousands of police officers face losing their job, Yvette Cooper warned](https://www.yahoo.com/news/thousands-police-officers-face-losing-100457774.html)
 - Dec 09 - [Sarcasm Levels Skyrocket Over Alina Habba’s New Trump White House Gig](https://www.yahoo.com/news/sarcasm-levels-skyrocket-over-alina-083643674.html)
-- Dec 09 - [Syrian premier says government still functioning but foreign and domestic challenges loom](https://www.yahoo.com/news/israel-says-struck-suspected-chemical-080545994.html)
-- Dec 09 - [Fall of the House of Assad, with a billion-pound fortune and blood on their hands](https://www.yahoo.com/news/fall-house-assad-billion-pound-060000309.html)
-- Dec 09 - [Russia has used its hypersonic Oreshnik missile for the first time. What are its capabilities?](https://www.yahoo.com/news/russias-used-hypersonic-oreshnik-missile-052341382.html)
-- Dec 09 - [Family blames Elon Musk for son’s death while driving Tesla in ‘autopilot’ mode](https://www.yahoo.com/news/family-blames-elon-musk-son-001216996.html)
 <!-- feed end -->
 
 ### Onstream
