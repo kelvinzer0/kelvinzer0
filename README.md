@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Indiana AG 'fine' with throwing TikTok away | Morning in America](https://www.yahoo.com/news/indiana-ag-fine-throwing-tiktok-131605140.html)
-- Dec 09 - [Zelenskiy makes case for diplomatic end to Ukraine war](https://www.yahoo.com/news/zelenskiy-floats-idea-deploying-foreign-123425307.html)
-- Dec 09 - [Pilot pulls off extraordinary ‘crabbing’ plane landing at Heathrow during Storm Darragh](https://www.yahoo.com/news/pilot-pulls-off-extraordinary-crabbing-114946998.html)
+- Dec 09 - [Fighting seasonal depression in OKC? Try these tips, activities around town](https://www.yahoo.com/lifestyle/fighting-seasonal-depression-okc-try-140014229.html)
+- Dec 09 - [Rats, pigeons and water buffaloes massacred in world’s largest animal sacrifice](https://www.yahoo.com/news/rats-pigeons-water-buffaloes-massacred-134323949.html)
+- Dec 09 - [China targets Nvidia with antitrust probe, escalating US chip tensions](https://finance.yahoo.com/news/china-investigates-nvidia-over-suspected-114158495.html)
 - Dec 09 - [CNN Anchor Announces Shock Exit On The Air That's Effective Immediately](https://www.yahoo.com/entertainment/cnn-anchor-announces-shock-exit-114022277.html)
-- Dec 09 - [‘This is all pink and attractive, but we are going to die’: Anastasia Samoylova on photographing Florida’s climate anxiety](https://www.yahoo.com/news/pink-attractive-going-die-anastasia-110106552.html)
+- Dec 09 - [Mob hangs and kills 3 men accused of kidnapping girl in Mexico](https://www.yahoo.com/news/mob-hangs-kills-3-men-111814042.html)
 <!-- feed end -->
 
 ### Onstream
