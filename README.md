@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [Farage makes sixth trip to US since becoming an MP to Republican fundraiser which snubbed Tories](https://www.yahoo.com/news/farage-makes-sixth-trip-us-193032253.html)
+- Dec 09 - [Florida woman who flew to Australia for clown school jailed over 24ct gold pistol](https://www.yahoo.com/news/florida-woman-flies-australia-clown-190949780.html)
 - Dec 09 - [Person of Interest in UnitedHealthcare CEO’s Killing Identified as Prep School Valedictorian](https://www.yahoo.com/news/person-interest-unitedhealthcare-ceo-killing-181942543.html)
+- Dec 09 - [State Attorney Bain says he is holding off on assisting with Worrell’s transition into office](https://www.yahoo.com/news/state-attorney-bain-says-holding-180244822.html)
 - Dec 09 - [Ukrainian man fleeing war rescued with his kitten on a perilous journey through Romanian mountains](https://www.yahoo.com/news/ukrainian-man-fleeing-war-rescued-175256336.html)
-- Dec 09 - [Country music star Luke Bryan spotted shopping, snapping selfies at this Florida Publix](https://www.yahoo.com/entertainment/country-music-star-luke-bryan-172059309.html)
-- Dec 09 - [Oldest known stone tablet inscribed with Ten Commandments to be auctioned](https://www.yahoo.com/news/oldest-known-stone-tablet-inscribed-170518015.html)
-- Dec 09 - [Security breach at Mass. hospital may have exposed data of hundreds of thousands of patients](https://www.yahoo.com/news/security-breach-mass-hospital-may-163354556.html)
 <!-- feed end -->
 
 ### Onstream
