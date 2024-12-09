@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Boy murdered Elianne Andam in ‘white hot anger’ after teddy bear row, court told](https://www.yahoo.com/news/boy-murdered-elianne-andam-white-141121566.html)
+- Dec 09 - [Nvidia And Bitcoin Leader Steer 5 Stocks Near Buy Points](https://www.investors.com/news/nvidia-ai-stock-blackrock-emcor-trip-com-travelers-stocks-near-buy-points/?src=A00220&yptr=yahoo)
+- Dec 09 - [Google says it has cracked a quantum computing challenge with new chip](https://finance.yahoo.com/news/google-says-cracked-quantum-computing-160249338.html)
 - Dec 09 - [Find The Next Palantir Or Under-The-Radar IPO With This Tool](https://www.investors.com/how-to-invest/stock-screener/?src=A00220&yptr=yahoo)
-- Dec 09 - [Reeves pushes for closer trade ties with EU in Brussels talks](https://finance.yahoo.com/news/reeves-pushes-closer-trade-ties-142042562.html)
+- Dec 09 - [Following 'Law And Order's' Career-Ending Fall Finale Twist, I'm More Attached Than I Realized To Maura Tierney's Jessica Brady](https://www.yahoo.com/entertainment/following-law-orders-career-ending-160000185.html)
 - Dec 09 - [Deadly Torture Device Discovered at Syria’s ‘Human Slaughterhouse’](https://www.yahoo.com/news/deadly-torture-device-discovered-syria-155317617.html)
-- Dec 09 - [Kamala Harris Shines in Metallic Bodice Dress at 2024 Kennedy Center Honors With Doug Emhoff](https://www.yahoo.com/entertainment/kamala-harris-shines-metallic-bodice-152533127.html)
 <!-- feed end -->
 
 ### Onstream
