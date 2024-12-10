@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [NEW REPORT: Staffers “were terrified” of leaks by Gabbard when investigating war crimes in Syria](https://www.yahoo.com/news/report-staffers-were-terrified-leaks-031936944.html)
+- Dec 10 - [In China, people are hiring ‘climbing buddies’ for big money. The more attractive they are, the higher the price](https://www.yahoo.com/lifestyle/china-people-hiring-climbing-buddies-014123403.html)
 - Dec 10 - [Boeing lays off hundreds in Washington and California as part of cuts announced previously](https://finance.yahoo.com/news/boeing-lays-off-hundreds-washington-012740324.html)
 - Dec 10 - [Trudeau says Americans are realizing that Trump's tariffs on Canada make life a lot more expensive](https://www.yahoo.com/news/trudeau-says-americans-realizing-trumps-004845120.html)
-- Dec 09 - [Trump Leveled This Condescending Remark At A Female Journalist — And Experts Have Thoughts](https://www.yahoo.com/news/trump-leveled-condescending-remark-female-233459975.html)
-- Dec 09 - [Report finds police in Massachusetts city let officers engage in sex with suspected prostitutes](https://www.yahoo.com/news/report-finds-police-massachusetts-city-223334913.html)
-- Dec 09 - [Classmate of Suspect Held in Healthcare CEO’s Killing Reveals What He Was Like at School](https://www.yahoo.com/news/classmate-suspect-held-healthcare-ceo-222512970.html)
+- Dec 10 - [Closing date set for another local Frisch’s location](https://www.yahoo.com/news/closing-date-set-another-local-001236691.html)
 <!-- feed end -->
 
 ### Onstream
