@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 10 - [Marjorie Taylor Greene Russian Pipe Bomb Hoax Kills Innocent Woman](https://www.yahoo.com/news/mtg-heartsick-woman-killed-bomb-120521934.html)
 - Dec 10 - [How to play the Mag 7 stocks in 2025: Portfolio manager](https://finance.yahoo.com/video/play-mag-7-stocks-2025-120003567.html)
-- Dec 10 - [Kremlin says Ukraine war will go on until Putin's goals are met on battlefield or by negotiation](https://www.yahoo.com/news/kremlin-says-ukraine-war-until-093146493.html)
-- Dec 10 - [Israeli warplanes pound Syria as troops reportedly advance deeper into the country](https://www.yahoo.com/news/israeli-warplanes-pound-syria-troops-083757249.html)
-- Dec 10 - [Descendant of last native leader of Alaska island demands Japanese reparations for 1942 invasion](https://www.yahoo.com/news/descendant-last-native-leader-alaska-051248966.html)
+- Dec 10 - [Mortgage and refinance rates today, December 10, 2024: Fixed rates drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-december-10-2024-110011560.html)
+- Dec 10 - [The Wall Street Analyst Who Suggested Bitcoin Could Reach $100,000 a Decade Ago Now Says There Is a Small Chance It Replaces the U.S. Dollar Entirely and Reaches $5 Million](https://finance.yahoo.com/news/wall-street-analyst-suggested-bitcoin-100000027.html)
+- Dec 10 - [Is It Smart to Buy Stocks With the S&P 500 at an All-Time High? History Has a Clear Answer.](https://finance.yahoo.com/news/smart-buy-stocks-p-500-093000272.html)
 <!-- feed end -->
 
 ### Onstream
