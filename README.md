@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Malibu fire live updates: Franklin fire nearly triples in size with mass evacuations ordered](https://www.yahoo.com/news/malibu-fire-live-updates-franklin-164111844.html)
 - Dec 10 - [Demographics Expert Answers Population Questions](https://www.yahoo.com/entertainment/demographics-expert-answers-population-questions-170000083.html)
-- Dec 10 - [This Change in Speech May Predict Mild Cognitive Impairment Is Progressing to Alzheimer's, New Study Finds](https://www.yahoo.com/news/change-speech-may-predict-mild-152500416.html)
+- Dec 10 - [Ask an Advisor: How Should We Invest $1.25M in Retirement Savings if We Make $50K Withdrawals Annually?](https://finance.yahoo.com/news/ask-advisor-1-25m-retirement-140000652.html)
 - Dec 10 - [Venezuela's Gonzalez plans to return to take over as president](https://www.yahoo.com/news/venezuelas-gonzalez-plans-return-over-140015467.html)
 - Dec 10 - [El Paso business catches fire, significantly damaged](https://www.yahoo.com/news/el-paso-business-catches-fire-135612717.html)
-- Dec 10 - [France flies out 2 Mirage fighter jets from Chad to signal beginning of military withdrawal](https://www.yahoo.com/news/france-flies-2-mirage-fighter-130731473.html)
 <!-- feed end -->
 
 ### Onstream
