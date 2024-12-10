@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Demographics Expert Answers Population Questions](https://www.yahoo.com/entertainment/demographics-expert-answers-population-questions-170000083.html)
+- Dec 10 - [This Change in Speech May Predict Mild Cognitive Impairment Is Progressing to Alzheimer's, New Study Finds](https://www.yahoo.com/news/change-speech-may-predict-mild-152500416.html)
 - Dec 10 - [Venezuela's Gonzalez plans to return to take over as president](https://www.yahoo.com/news/venezuelas-gonzalez-plans-return-over-140015467.html)
+- Dec 10 - [El Paso business catches fire, significantly damaged](https://www.yahoo.com/news/el-paso-business-catches-fire-135612717.html)
 - Dec 10 - [France flies out 2 Mirage fighter jets from Chad to signal beginning of military withdrawal](https://www.yahoo.com/news/france-flies-2-mirage-fighter-130731473.html)
-- Dec 10 - [Marjorie Taylor Greene Russian Pipe Bomb Hoax Kills Innocent Woman](https://www.yahoo.com/news/mtg-heartsick-woman-killed-bomb-120521934.html)
-- Dec 10 - [How to play the Mag 7 stocks in 2025: Portfolio manager](https://finance.yahoo.com/video/play-mag-7-stocks-2025-120003567.html)
-- Dec 10 - [Mortgage and refinance rates today, December 10, 2024: Fixed rates drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-december-10-2024-110011560.html)
 <!-- feed end -->
 
 ### Onstream
