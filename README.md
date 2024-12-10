@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [Palm Springs police halt use of motorcycles for now following parade crash](https://www.yahoo.com/news/palm-springs-police-halt-motorcycles-004814987.html)
+- Dec 10 - [Boeing lays off hundreds in Washington and California as part of cuts announced previously](https://finance.yahoo.com/news/boeing-lays-off-hundreds-washington-012740324.html)
+- Dec 10 - [Trudeau says Americans are realizing that Trump's tariffs on Canada make life a lot more expensive](https://www.yahoo.com/news/trudeau-says-americans-realizing-trumps-004845120.html)
+- Dec 09 - [Trump Leveled This Condescending Remark At A Female Journalist — And Experts Have Thoughts](https://www.yahoo.com/news/trump-leveled-condescending-remark-female-233459975.html)
 - Dec 09 - [Report finds police in Massachusetts city let officers engage in sex with suspected prostitutes](https://www.yahoo.com/news/report-finds-police-massachusetts-city-223334913.html)
-- Dec 09 - [Elon Musk is wowed by Google’s new quantum chip, which it claims ‘cracks a key challenge’ that’s existed for almost 3 decades](https://www.yahoo.com/tech/elon-musk-wowed-google-quantum-221836303.html)
-- Dec 09 - [Hey, MAGA voters: You've been had. Trump's plans for the economy may ruin you. | Opinion](https://www.yahoo.com/news/hey-maga-voters-youve-had-220513815.html)
-- Dec 09 - [DeSantis appointee says he won't help his elected replacement take office](https://www.yahoo.com/news/desantis-appointee-says-wont-help-215217325.html)
+- Dec 09 - [Classmate of Suspect Held in Healthcare CEO’s Killing Reveals What He Was Like at School](https://www.yahoo.com/news/classmate-suspect-held-healthcare-ceo-222512970.html)
 <!-- feed end -->
 
 ### Onstream
