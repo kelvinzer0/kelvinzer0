@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Republican Senator Glitches After Hearing Answer to His Own Question](https://www.yahoo.com/news/republican-senator-glitches-hearing-answer-202324524.html)
 - Dec 10 - [Trump says anyone investing $1 billion in US will receive expedited permits](https://finance.yahoo.com/news/trump-says-anyone-investing-1-193946411.html)
 - Dec 10 - [Luigi Mangione Melts Down Outside Court, Shouts at Guards and Onlookers: 'Insult to the Intelligence of the American People!'](https://www.yahoo.com/news/luigi-mangione-melts-down-outside-193436400.html)
 - Dec 10 - [Google says its new quantum chip indicates that multiple universes exist](https://finance.yahoo.com/news/google-says-quantum-chip-indicates-192059739.html)
 - Dec 10 - [Model called 911 about Joe Burrow home break-in during Monday Night Football. What we know](https://www.yahoo.com/news/joe-burrows-anderson-township-home-185006870.html)
-- Dec 10 - [Scientists identify ultra-processed foods that fuel colon cancer and healthy alternatives that may offset the damage](https://www.yahoo.com/lifestyle/scientists-identify-ultra-processed-foods-181514631.html)
 <!-- feed end -->
 
 ### Onstream
