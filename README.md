@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 10 - [Malibu fire live updates: Franklin fire nearly triples in size with mass evacuations ordered](https://www.yahoo.com/news/malibu-fire-live-updates-franklin-164111844.html)
-- Dec 10 - [Demographics Expert Answers Population Questions](https://www.yahoo.com/entertainment/demographics-expert-answers-population-questions-170000083.html)
+- Dec 10 - [Charred remains of Syrian ships after Israeli strikes](https://www.yahoo.com/news/charred-remains-syrian-ships-israeli-182135830.html)
+- Dec 10 - [Intense Malibu Fire Appears in Satellite Footage](https://www.yahoo.com/news/intense-malibu-fire-appears-satellite-180853507.html)
+- Dec 10 - [McLaren Ripped In Two In Horrific Crash](https://autos.yahoo.com/mclaren-ripped-two-horrific-crash-170000584.html)
 - Dec 10 - [Ask an Advisor: How Should We Invest $1.25M in Retirement Savings if We Make $50K Withdrawals Annually?](https://finance.yahoo.com/news/ask-advisor-1-25m-retirement-140000652.html)
-- Dec 10 - [Venezuela's Gonzalez plans to return to take over as president](https://www.yahoo.com/news/venezuelas-gonzalez-plans-return-over-140015467.html)
-- Dec 10 - [El Paso business catches fire, significantly damaged](https://www.yahoo.com/news/el-paso-business-catches-fire-135612717.html)
 <!-- feed end -->
 
 ### Onstream
