@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [‘They tortured me when I asked to see him’: Horrors of Assad’s ‘slaughterhouse’ jail revealed](https://www.yahoo.com/news/hunt-them-down-grief-turns-135841242.html)
+- Dec 10 - [Venezuela's Gonzalez plans to return to take over as president](https://www.yahoo.com/news/venezuelas-gonzalez-plans-return-over-140015467.html)
+- Dec 10 - [France flies out 2 Mirage fighter jets from Chad to signal beginning of military withdrawal](https://www.yahoo.com/news/france-flies-2-mirage-fighter-130731473.html)
 - Dec 10 - [Marjorie Taylor Greene Russian Pipe Bomb Hoax Kills Innocent Woman](https://www.yahoo.com/news/mtg-heartsick-woman-killed-bomb-120521934.html)
 - Dec 10 - [How to play the Mag 7 stocks in 2025: Portfolio manager](https://finance.yahoo.com/video/play-mag-7-stocks-2025-120003567.html)
 - Dec 10 - [Mortgage and refinance rates today, December 10, 2024: Fixed rates drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-december-10-2024-110011560.html)
-- Dec 10 - [Government investigation uncovers disturbing truth about almost 50 different car models: 'We should be putting public health first'](https://www.yahoo.com/news/government-investigation-uncovers-disturbing-truth-103053358.html)
 <!-- feed end -->
 
 ### Onstream
