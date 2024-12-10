@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [NEW REPORT: Staffers “were terrified” of leaks by Gabbard when investigating war crimes in Syria](https://www.yahoo.com/news/report-staffers-were-terrified-leaks-031936944.html)
-- Dec 10 - [Former Las Vegas firefighter spends five days in jail for near-fatal DUI](https://www.yahoo.com/news/former-las-vegas-firefighter-spends-025159505.html)
+- Dec 10 - [Elon Musk warns Republicans against standing in Trump's way — or his](https://www.yahoo.com/news/elon-musk-warns-republicans-against-050158961.html)
+- Dec 10 - [Israel launches strikes, ground incursion into Syria](https://www.yahoo.com/news/israel-launches-strikes-ground-incursion-035421234.html)
 - Dec 10 - [Susan Wild absent from Ethics Committee meeting after Gaetz leaks to press](https://www.yahoo.com/news/susan-wild-absent-ethics-committee-015252207.html)
 - Dec 10 - [Boeing lays off hundreds in Washington and California as part of cuts announced previously](https://finance.yahoo.com/news/boeing-lays-off-hundreds-washington-012740324.html)
-- Dec 10 - [Trudeau says Americans are realizing that Trump's tariffs on Canada make life a lot more expensive](https://www.yahoo.com/news/trudeau-says-americans-realizing-trumps-004845120.html)
+- Dec 10 - [There are 3 reasons stocks are headed for a bear market in the first half of 2025, research firm says](https://finance.yahoo.com/news/3-reasons-stocks-headed-bear-011745781.html)
 <!-- feed end -->
 
 ### Onstream
