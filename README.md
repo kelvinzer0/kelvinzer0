@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [Malibu fire live updates: Franklin fire nearly triples in size with mass evacuations ordered](https://www.yahoo.com/news/malibu-fire-live-updates-franklin-164111844.html)
-- Dec 10 - [Charred remains of Syrian ships after Israeli strikes](https://www.yahoo.com/news/charred-remains-syrian-ships-israeli-182135830.html)
+- Dec 10 - [Newly named Syria PM calls for 'stability and calm'](https://www.yahoo.com/news/syria-rebels-name-head-transitional-143628620.html)
+- Dec 10 - [Biden says Trump dismantling ‘strongest economy in modern history’ would be a ‘major mistake’](https://www.yahoo.com/news/biden-says-trump-dismantling-strongest-190046114.html)
+- Dec 10 - [Scientists identify ultra-processed foods that fuel colon cancer and healthy alternatives that may offset the damage](https://www.yahoo.com/lifestyle/scientists-identify-ultra-processed-foods-181514631.html)
 - Dec 10 - [Intense Malibu Fire Appears in Satellite Footage](https://www.yahoo.com/news/intense-malibu-fire-appears-satellite-180853507.html)
-- Dec 10 - [McLaren Ripped In Two In Horrific Crash](https://autos.yahoo.com/mclaren-ripped-two-horrific-crash-170000584.html)
-- Dec 10 - [Ask an Advisor: How Should We Invest $1.25M in Retirement Savings if We Make $50K Withdrawals Annually?](https://finance.yahoo.com/news/ask-advisor-1-25m-retirement-140000652.html)
+- Dec 10 - [People jumping in front of cars to get injury payouts sparks a grim holiday warning in South Africa](https://www.yahoo.com/news/people-jumping-front-cars-injury-174854166.html)
 <!-- feed end -->
 
 ### Onstream
