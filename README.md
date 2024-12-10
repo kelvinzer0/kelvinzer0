@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 10 - [NEW REPORT: Staffers “were terrified” of leaks by Gabbard when investigating war crimes in Syria](https://www.yahoo.com/news/report-staffers-were-terrified-leaks-031936944.html)
-- Dec 10 - [In China, people are hiring ‘climbing buddies’ for big money. The more attractive they are, the higher the price](https://www.yahoo.com/lifestyle/china-people-hiring-climbing-buddies-014123403.html)
+- Dec 10 - [Former Las Vegas firefighter spends five days in jail for near-fatal DUI](https://www.yahoo.com/news/former-las-vegas-firefighter-spends-025159505.html)
+- Dec 10 - [Susan Wild absent from Ethics Committee meeting after Gaetz leaks to press](https://www.yahoo.com/news/susan-wild-absent-ethics-committee-015252207.html)
 - Dec 10 - [Boeing lays off hundreds in Washington and California as part of cuts announced previously](https://finance.yahoo.com/news/boeing-lays-off-hundreds-washington-012740324.html)
 - Dec 10 - [Trudeau says Americans are realizing that Trump's tariffs on Canada make life a lot more expensive](https://www.yahoo.com/news/trudeau-says-americans-realizing-trumps-004845120.html)
-- Dec 10 - [Closing date set for another local Frisch’s location](https://www.yahoo.com/news/closing-date-set-another-local-001236691.html)
 <!-- feed end -->
 
 ### Onstream
