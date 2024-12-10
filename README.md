@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 10 - [Descendant of last native leader of Alaska island demands Japanese reparations for 1942 invasion](https://www.yahoo.com/news/descendant-last-native-leader-alaska-051248966.html)
 - Dec 10 - [Elon Musk warns Republicans against standing in Trump's way — or his](https://www.yahoo.com/news/elon-musk-warns-republicans-against-050158961.html)
 - Dec 10 - [Luigi Mangione Suffered Chronic Back Pain, Friends Say He Fell Out Of Touch Earlier This Year](https://www.yahoo.com/news/luigi-mangione-suffered-chronic-back-042630687.html)
-- Dec 10 - [Susan Wild absent from Ethics Committee meeting after Gaetz leaks to press](https://www.yahoo.com/news/susan-wild-absent-ethics-committee-015252207.html)
-- Dec 10 - [Boeing lays off hundreds in Washington and California as part of cuts announced previously](https://finance.yahoo.com/news/boeing-lays-off-hundreds-washington-012740324.html)
+- Dec 10 - [NEW REPORT: Staffers “were terrified” of leaks by Gabbard when investigating war crimes in Syria](https://www.yahoo.com/news/report-staffers-were-terrified-leaks-031936944.html)
+- Dec 10 - [Athlete dies during Sunday's Ironman 70.3 Indian Wells-La Quinta triathlon](https://sports.yahoo.com/athlete-dies-during-sundays-ironman-023216684.html)
 <!-- feed end -->
 
 ### Onstream
