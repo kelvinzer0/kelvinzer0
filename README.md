@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Palm Springs police halt use of motorcycles for now following parade crash](https://www.yahoo.com/news/palm-springs-police-halt-motorcycles-004814987.html)
+- Dec 09 - [Report finds police in Massachusetts city let officers engage in sex with suspected prostitutes](https://www.yahoo.com/news/report-finds-police-massachusetts-city-223334913.html)
+- Dec 09 - [Elon Musk is wowed by Google’s new quantum chip, which it claims ‘cracks a key challenge’ that’s existed for almost 3 decades](https://www.yahoo.com/tech/elon-musk-wowed-google-quantum-221836303.html)
 - Dec 09 - [Hey, MAGA voters: You've been had. Trump's plans for the economy may ruin you. | Opinion](https://www.yahoo.com/news/hey-maga-voters-youve-had-220513815.html)
 - Dec 09 - [DeSantis appointee says he won't help his elected replacement take office](https://www.yahoo.com/news/desantis-appointee-says-wont-help-215217325.html)
-- Dec 09 - [Nicolle Wallace: ‘Why'd the employee at McDonalds see him before any of his family or friends did?’](https://www.yahoo.com/news/nicolle-wallace-whyd-employee-mcdonalds-213738297.html)
-- Dec 09 - [Ukraine's changing up its Black Sea attacks on Russia with drone boats armed with machine guns and flying exploding drones](https://www.yahoo.com/news/ukraines-changing-black-sea-attacks-212143365.html)
-- Dec 09 - [Rupert Murdoch fails in bid to change family trust, New York Times reports](https://finance.yahoo.com/news/rupert-murdoch-fails-bid-change-203435269.html)
 <!-- feed end -->
 
 ### Onstream
