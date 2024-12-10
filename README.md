@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Descendant of last native leader of Alaska island demands Japanese reparations for 1942 invasion](https://www.yahoo.com/news/descendant-last-native-leader-alaska-051248966.html)
 - Dec 10 - [Elon Musk warns Republicans against standing in Trump's way — or his](https://www.yahoo.com/news/elon-musk-warns-republicans-against-050158961.html)
+- Dec 10 - [Luigi Mangione Suffered Chronic Back Pain, Friends Say He Fell Out Of Touch Earlier This Year](https://www.yahoo.com/news/luigi-mangione-suffered-chronic-back-042630687.html)
 - Dec 10 - [Israel launches strikes, ground incursion into Syria](https://www.yahoo.com/news/israel-launches-strikes-ground-incursion-035421234.html)
 - Dec 10 - [Susan Wild absent from Ethics Committee meeting after Gaetz leaks to press](https://www.yahoo.com/news/susan-wild-absent-ethics-committee-015252207.html)
-- Dec 10 - [Boeing lays off hundreds in Washington and California as part of cuts announced previously](https://finance.yahoo.com/news/boeing-lays-off-hundreds-washington-012740324.html)
-- Dec 10 - [There are 3 reasons stocks are headed for a bear market in the first half of 2025, research firm says](https://finance.yahoo.com/news/3-reasons-stocks-headed-bear-011745781.html)
 <!-- feed end -->
 
 ### Onstream
