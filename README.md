@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [How to play the Mag 7 stocks in 2025: Portfolio manager](https://finance.yahoo.com/video/play-mag-7-stocks-2025-120003567.html)
+- Dec 10 - [Warm and sunny Tuesday before next cold front arrives in Central Florida](https://www.yahoo.com/news/warm-sunny-tuesday-next-cold-112731557.html)
 - Dec 10 - [Israeli warplanes pound Syria as troops reportedly advance deeper into the country](https://www.yahoo.com/news/israeli-warplanes-pound-syria-troops-083757249.html)
 - Dec 10 - [Descendant of last native leader of Alaska island demands Japanese reparations for 1942 invasion](https://www.yahoo.com/news/descendant-last-native-leader-alaska-051248966.html)
 - Dec 10 - [Elon Musk warns Republicans against standing in Trump's way — or his](https://www.yahoo.com/news/elon-musk-warns-republicans-against-050158961.html)
-- Dec 10 - [WATCH: Video shows woman pulling out gun in King Soopers parking lot](https://www.yahoo.com/news/watch-video-shows-woman-pulling-045749539.html)
-- Dec 10 - [NEW REPORT: Staffers “were terrified” of leaks by Gabbard when investigating war crimes in Syria](https://www.yahoo.com/news/report-staffers-were-terrified-leaks-031936944.html)
 <!-- feed end -->
 
 ### Onstream
