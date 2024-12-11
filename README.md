@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [The search continues for thousands of Palestinians who have gone missing in Gaza](https://www.yahoo.com/news/search-continues-thousands-palestinians-gone-053738226.html)
+- Dec 11 - [Criminology student accused of killing stranger ‘asked how to get away with murder in class’](https://www.yahoo.com/news/criminology-student-accused-killing-stranger-152409953.html)
 - Dec 11 - [The US is striking targets across Syria, and it isn't the only one dropping bombs in this uncertain moment](https://www.yahoo.com/news/us-bombing-targets-across-syria-224825529.html)
+- Dec 11 - [Man who jumped a desk to attack a Nevada judge in the courtroom is sentenced](https://www.yahoo.com/news/man-jumped-desk-attack-nevada-015632623.html)
 - Dec 11 - [Russia transported Assad in 'most secured way,' Russian Deputy FM tells NBC News](https://www.yahoo.com/news/russia-transported-assad-most-secured-003613699.html)
 - Dec 11 - [After acquittal in subway chokehold trial, Daniel Penny says he was vulnerable in the encounter](https://www.yahoo.com/news/acquittal-subway-chokehold-trial-daniel-001625568.html)
-- Dec 11 - [The 2026 Aston Martin Valhalla Takes Aim at Ferrari With 1063 HP](https://autos.yahoo.com/2026-aston-martin-valhalla-takes-000100349.html)
 <!-- feed end -->
 
 ### Onstream
