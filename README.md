@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Russia transported Assad in 'most secured way,' Russian Deputy FM tells NBC News](https://www.yahoo.com/news/russia-transported-assad-most-secured-003613699.html)
-- Dec 11 - [20 Poor, Unfortunate Souls Who Placed An Online Order And Regretted It Immediately](https://www.yahoo.com/lifestyle/20-poor-unfortunate-souls-placed-003102605.html)
+- Dec 11 - [Car set on fire and anti-semitic graffiti on homes in Sydney](https://www.yahoo.com/news/car-set-fire-anti-semitic-020859551.html)
+- Dec 11 - [Man who jumped a desk to attack a Nevada judge in the courtroom is sentenced](https://www.yahoo.com/news/man-jumped-desk-attack-nevada-015632623.html)
 - Dec 11 - [After acquittal in subway chokehold trial, Daniel Penny says he was vulnerable in the encounter](https://www.yahoo.com/news/acquittal-subway-chokehold-trial-daniel-001625568.html)
 - Dec 10 - [When fire threatened a California university, the school says it knew what to do](https://www.yahoo.com/news/fire-threatened-california-university-school-224925666.html)
-- Dec 10 - [Republican Senator Glitches After Hearing Answer to His Own Question](https://www.yahoo.com/news/republican-senator-glitches-hearing-answer-202324524.html)
+- Dec 10 - [The US is striking targets across Syria, and it isn't the only one dropping bombs in this uncertain moment](https://www.yahoo.com/news/us-bombing-targets-across-syria-224825529.html)
 <!-- feed end -->
 
 ### Onstream
