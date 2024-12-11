@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Russia transported Assad in 'most secured way,' Russian Deputy FM tells NBC News](https://www.yahoo.com/news/russia-transported-assad-most-secured-003613699.html)
+- Dec 11 - [20 Poor, Unfortunate Souls Who Placed An Online Order And Regretted It Immediately](https://www.yahoo.com/lifestyle/20-poor-unfortunate-souls-placed-003102605.html)
+- Dec 11 - [After acquittal in subway chokehold trial, Daniel Penny says he was vulnerable in the encounter](https://www.yahoo.com/news/acquittal-subway-chokehold-trial-daniel-001625568.html)
+- Dec 10 - [When fire threatened a California university, the school says it knew what to do](https://www.yahoo.com/news/fire-threatened-california-university-school-224925666.html)
 - Dec 10 - [Republican Senator Glitches After Hearing Answer to His Own Question](https://www.yahoo.com/news/republican-senator-glitches-hearing-answer-202324524.html)
-- Dec 10 - [Trump says anyone investing $1 billion in US will receive expedited permits](https://finance.yahoo.com/news/trump-says-anyone-investing-1-193946411.html)
-- Dec 10 - [Luigi Mangione Melts Down Outside Court, Shouts at Guards and Onlookers: 'Insult to the Intelligence of the American People!'](https://www.yahoo.com/news/luigi-mangione-melts-down-outside-193436400.html)
-- Dec 10 - [Google says its new quantum chip indicates that multiple universes exist](https://finance.yahoo.com/news/google-says-quantum-chip-indicates-192059739.html)
-- Dec 10 - [Model called 911 about Joe Burrow home break-in during Monday Night Football. What we know](https://www.yahoo.com/news/joe-burrows-anderson-township-home-185006870.html)
 <!-- feed end -->
 
 ### Onstream
