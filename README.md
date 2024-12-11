@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Hannah Kobayashi Has Been Found a Month After Voluntarily Vanishing into Mexico, Family Says: 'Relieved and Grateful'](https://www.yahoo.com/news/hannah-kobayashi-found-month-voluntarily-201906532.html)
-- Dec 11 - [Greta Thunberg’s descent from climate darling to militant pro-Palestine mouthpiece](https://www.yahoo.com/news/greta-thunberg-descent-climate-darling-194546366.html)
+- Dec 11 - [Allegheny County DA files lawsuit over ‘looming crisis:’ the county’s unfunded pension](https://www.yahoo.com/news/allegheny-county-da-files-lawsuit-222021909.html)
+- Dec 11 - [License plate cameras help ID driver in Lubbock crash that killed Randall High standout](https://www.yahoo.com/news/license-plate-cameras-help-id-221613546.html)
+- Dec 11 - [Power outages piling up around RI. See where on our map.](https://www.yahoo.com/news/power-outages-piling-around-ri-215009375.html)
+- Dec 11 - [Mike Lindell says 'cash-strapped' MyPillow took $1.6 million loan from payday lender at 409% interest](https://finance.yahoo.com/news/mike-lindell-says-cash-strapped-200203638.html)
 - Dec 11 - [Homeland Security shares new details of mysterious drone flights over New Jersey, lawmaker says](https://www.yahoo.com/news/homeland-security-officials-meet-lawmakers-184730979.html)
-- Dec 11 - [Watch: Video captures ceiling collapsing above outdoor patio at UT Austin building](https://www.yahoo.com/news/watch-video-captures-ceiling-collapsing-173315279.html)
-- Dec 11 - [Medical Professionals Are Sharing Infuriating Stories Of Insurance Companies Failing Their Patients, And It's Pretty Dystopian](https://www.yahoo.com/news/medical-professionals-sharing-infuriating-stories-173217042.html)
 <!-- feed end -->
 
 ### Onstream
