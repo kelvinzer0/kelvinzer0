@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [I’m 67 and took $85K from my 401(k) for my son’s down payment — then my Medicare premium went up. Is this permanent?](https://finance.yahoo.com/news/m-67-took-85k-401-130700805.html)
+- Dec 11 - [Texas woman is 'freaking out' after husband lied about having a $1 million net worth — he's actually $150,000 in debt](https://finance.yahoo.com/news/texas-woman-freaking-husband-lied-112000972.html)
 - Dec 11 - [Hospitals gave patients meds during childbirth, then reported them for illicit drug use](https://www.yahoo.com/news/hospitals-gave-patients-meds-during-110434896.html)
 - Dec 11 - [Trump, GOP expected to undo Biden’s divisive nursing home rule](https://www.yahoo.com/news/trump-gop-expected-undo-biden-110000447.html)
-- Dec 11 - [The Stock Market Is Doing Something It Has Done Only 2 Times Since 1985, and History Is Clear About What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-done-103500626.html)
-- Dec 11 - [Court ruling sends jolt through the core of U.S. conservatives, Fox News 'Trump staffing agency'](https://www.yahoo.com/news/court-ruling-sends-jolt-core-055838784.html)
-- Dec 11 - [The US is striking targets across Syria, and it isn't the only one dropping bombs in this uncertain moment](https://www.yahoo.com/news/us-bombing-targets-across-syria-224825529.html)
+- Dec 11 - [Millions Of People Take Biotin For Hair Growth, And Many Are Unaware Of This Dangerous Side Effect](https://www.yahoo.com/lifestyle/millions-people-biotin-hair-growth-110000234.html)
 <!-- feed end -->
 
 ### Onstream
