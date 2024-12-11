@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Hospital: More than 20 killed in Israeli attack in northern Gaza](https://www.yahoo.com/news/hospital-more-20-killed-israeli-085810840.html)
+- Dec 11 - [Dramatic Moment Truck Explodes Injuring First Responders With Flying Debris](https://www.yahoo.com/news/truck-explosion-injures-first-responders-183838653.html)
 - Dec 11 - [Court ruling sends jolt through the core of U.S. conservatives, Fox News 'Trump staffing agency'](https://www.yahoo.com/news/court-ruling-sends-jolt-core-055838784.html)
 - Dec 11 - [The US is striking targets across Syria, and it isn't the only one dropping bombs in this uncertain moment](https://www.yahoo.com/news/us-bombing-targets-across-syria-224825529.html)
 - Dec 11 - [Man who jumped a desk to attack a Nevada judge in the courtroom is sentenced](https://www.yahoo.com/news/man-jumped-desk-attack-nevada-015632623.html)
-- Dec 11 - [Russia transported Assad in 'most secured way,' Russian Deputy FM tells NBC News](https://www.yahoo.com/news/russia-transported-assad-most-secured-003613699.html)
-- Dec 11 - [See the de Havilland Sea Vampire, the experimental fighter that ushered aircraft carriers into the jet age](https://www.yahoo.com/news/see-havilland-sea-vampire-experimental-000001156.html)
 <!-- feed end -->
 
 ### Onstream
