@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Mayor Brandon Johnson releases 2023 tax returns. Here’s what they say.](https://www.yahoo.com/news/mayor-brandon-johnson-releases-2023-164600624.html)
-- Dec 11 - [Elon Musk Gloats as Trump Announces Billionaires Will Be Exempt From Normal Environmental Rules](https://www.yahoo.com/news/elon-musk-gloats-trump-announces-153323030.html)
-- Dec 11 - [Supreme Court allows investors' class action to proceed against microchip company Nvidia](https://finance.yahoo.com/news/supreme-court-allows-investors-class-152330643.html)
-- Dec 11 - [I Was Told I Can't Put RMDs in a Roth IRA - Is That True?](https://finance.yahoo.com/news/planning-taking-rmds-converting-them-123000986.html)
-- Dec 11 - [‘You’ll lose’, Russian agents told Assad as they organised his escape](https://www.yahoo.com/news/ll-lose-russian-agents-told-145024528.html)
+- Dec 11 - [4 Retail Technology Trends Set to Transform Customer Experience in 2025](https://finance.yahoo.com/news/4-retail-technology-trends-set-185212563.html)
+- Dec 11 - [Chevron working on supply of power to data centers, executive says](https://finance.yahoo.com/news/chevron-working-supply-power-data-184740906.html)
+- Dec 11 - [Character.AI hit with another lawsuit over allegations its chatbot suggested a teen kill his parents](https://www.yahoo.com/news/character-ai-hit-another-lawsuit-181432043.html)
+- Dec 11 - [Medical Professionals Are Sharing Infuriating Stories Of Insurance Companies Failing Their Patients, And It's Pretty Dystopian](https://www.yahoo.com/news/medical-professionals-sharing-infuriating-stories-173217042.html)
+- Dec 11 - [29 House Republicans want Trump to scrap the IRS's free direct tax filing tool on day one of his presidency](https://www.yahoo.com/news/29-house-republicans-want-trump-171540888.html)
 <!-- feed end -->
 
 ### Onstream
