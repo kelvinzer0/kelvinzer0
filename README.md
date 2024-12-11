@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [I’m 67 and took $85K from my 401(k) for my son’s down payment — then my Medicare premium went up. Is this permanent?](https://finance.yahoo.com/news/m-67-took-85k-401-130700805.html)
-- Dec 11 - [Texas woman is 'freaking out' after husband lied about having a $1 million net worth — he's actually $150,000 in debt](https://finance.yahoo.com/news/texas-woman-freaking-husband-lied-112000972.html)
 - Dec 11 - [Hospitals gave patients meds during childbirth, then reported them for illicit drug use](https://www.yahoo.com/news/hospitals-gave-patients-meds-during-110434896.html)
+- Dec 11 - [Mortgage and refinance rates today, December 11, 2024: Rates increase in anticipation of CPI](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-december-11-2024-110044198.html)
 - Dec 11 - [Trump, GOP expected to undo Biden’s divisive nursing home rule](https://www.yahoo.com/news/trump-gop-expected-undo-biden-110000447.html)
-- Dec 11 - [Millions Of People Take Biotin For Hair Growth, And Many Are Unaware Of This Dangerous Side Effect](https://www.yahoo.com/lifestyle/millions-people-biotin-hair-growth-110000234.html)
+- Dec 11 - [The Stock Market Is Doing Something It Has Done Only 2 Times Since 1985, and History Is Clear About What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-done-103500626.html)
+- Dec 11 - [Ripple Secures NYDFS Approval for RLUSD Stablecoin, Aiming for $2 Trillion Market Cap by 2028](https://finance.yahoo.com/news/ripple-secures-nydfs-approval-rlusd-065226515.html)
 <!-- feed end -->
 
 ### Onstream
