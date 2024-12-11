@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Officials calling for more action, information on mysterious drones over New Jersey](https://www.yahoo.com/news/officials-calling-more-action-information-173329060.html)
+- Dec 11 - [Hannah Kobayashi Has Been Found a Month After Voluntarily Vanishing into Mexico, Family Says: 'Relieved and Grateful'](https://www.yahoo.com/news/hannah-kobayashi-found-month-voluntarily-201906532.html)
+- Dec 11 - [Smoker told to pay £800 for dropping cigarette butt – and it’s ‘a warning to others’, says council](https://www.yahoo.com/news/smoker-told-pay-800-dropping-194329152.html)
 - Dec 11 - [Medical Professionals Are Sharing Infuriating Stories Of Insurance Companies Failing Their Patients, And It's Pretty Dystopian](https://www.yahoo.com/news/medical-professionals-sharing-infuriating-stories-173217042.html)
 - Dec 11 - [29 House Republicans want Trump to scrap the IRS's free direct tax filing tool on day one of his presidency](https://www.yahoo.com/news/29-house-republicans-want-trump-171540888.html)
-- Dec 11 - [An Archaeologist Claims She’s Found a Stunning Statue of Cleopatra at Her Alleged Tomb](https://www.yahoo.com/news/archaeologist-claims-she-found-stunning-160000461.html)
-- Dec 11 - [US Supreme Court dismisses Nvidia's bid to avoid securities fraud suit](https://finance.yahoo.com/news/us-supreme-court-tosses-case-150813423.html)
+- Dec 11 - [America's closest ally in Syria is losing ground as a new order takes shape](https://www.yahoo.com/news/americas-closet-ally-syria-losing-164946791.html)
 <!-- feed end -->
 
 ### Onstream
