@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [OPEC slashes oil demand forecasts again for 2024](https://finance.yahoo.com/news/opec-slashes-oil-demand-forecasts-154743760.html)
+- Dec 11 - [Mayor Brandon Johnson releases 2023 tax returns. Here’s what they say.](https://www.yahoo.com/news/mayor-brandon-johnson-releases-2023-164600624.html)
 - Dec 11 - [Elon Musk Gloats as Trump Announces Billionaires Will Be Exempt From Normal Environmental Rules](https://www.yahoo.com/news/elon-musk-gloats-trump-announces-153323030.html)
-- Dec 11 - [US Supreme Court tosses case involving securities fraud suit against Nvidia](https://finance.yahoo.com/news/us-supreme-court-tosses-case-150813423.html)
-- Dec 11 - ['This cold is not to be overlooked.' Indianapolis NWS cautions drivers ahead of snowstorm](https://www.yahoo.com/news/cold-not-overlooked-indianapolis-nws-144658078.html)
-- Dec 11 - [Why Devon Energy (DVN) Is the Most Undervalued Natural Gas Stock to Buy According to Analysts?](https://finance.yahoo.com/news/why-devon-energy-dvn-most-133706875.html)
+- Dec 11 - [Supreme Court allows investors' class action to proceed against microchip company Nvidia](https://finance.yahoo.com/news/supreme-court-allows-investors-class-152330643.html)
+- Dec 11 - [I Was Told I Can't Put RMDs in a Roth IRA - Is That True?](https://finance.yahoo.com/news/planning-taking-rmds-converting-them-123000986.html)
+- Dec 11 - [‘You’ll lose’, Russian agents told Assad as they organised his escape](https://www.yahoo.com/news/ll-lose-russian-agents-told-145024528.html)
 <!-- feed end -->
 
 ### Onstream
