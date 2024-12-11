@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [The Stock Market Is Doing Something It Has Done Only 2 Times Since 1985, and History Is Clear About What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-done-103500626.html)
+- Dec 11 - [1 Top Cryptocurrency to Buy Before It Soars 3,890%, According to Cathie Wood of Ark Invest](https://finance.yahoo.com/news/1-top-cryptocurrency-buy-soars-100000380.html)
 - Dec 11 - [Dramatic Moment Truck Explodes Injuring First Responders With Flying Debris](https://www.yahoo.com/news/truck-explosion-injures-first-responders-183838653.html)
 - Dec 11 - [Russian troops are likely still at their key bases in Syria, and it will be 'obvious' if they try to leave: senior analyst](https://www.yahoo.com/news/russian-troops-likely-still-key-075214691.html)
-- Dec 11 - [Court ruling sends jolt through the core of U.S. conservatives, Fox News 'Trump staffing agency'](https://www.yahoo.com/news/court-ruling-sends-jolt-core-055838784.html)
-- Dec 11 - [The US is striking targets across Syria, and it isn't the only one dropping bombs in this uncertain moment](https://www.yahoo.com/news/us-bombing-targets-across-syria-224825529.html)
-- Dec 11 - [Man who jumped a desk to attack a Nevada judge in the courtroom is sentenced](https://www.yahoo.com/news/man-jumped-desk-attack-nevada-015632623.html)
+- Dec 11 - [The search continues for thousands of Palestinians who have gone missing in Gaza](https://www.yahoo.com/news/search-continues-thousands-palestinians-gone-053738226.html)
 <!-- feed end -->
 
 ### Onstream
