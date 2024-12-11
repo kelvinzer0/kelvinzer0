@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 11 - [Hannah Kobayashi Has Been Found a Month After Voluntarily Vanishing into Mexico, Family Says: 'Relieved and Grateful'](https://www.yahoo.com/news/hannah-kobayashi-found-month-voluntarily-201906532.html)
-- Dec 11 - [Smoker told to pay £800 for dropping cigarette butt – and it’s ‘a warning to others’, says council](https://www.yahoo.com/news/smoker-told-pay-800-dropping-194329152.html)
+- Dec 11 - [Greta Thunberg’s descent from climate darling to militant pro-Palestine mouthpiece](https://www.yahoo.com/news/greta-thunberg-descent-climate-darling-194546366.html)
+- Dec 11 - [Homeland Security shares new details of mysterious drone flights over New Jersey, lawmaker says](https://www.yahoo.com/news/homeland-security-officials-meet-lawmakers-184730979.html)
+- Dec 11 - [Watch: Video captures ceiling collapsing above outdoor patio at UT Austin building](https://www.yahoo.com/news/watch-video-captures-ceiling-collapsing-173315279.html)
 - Dec 11 - [Medical Professionals Are Sharing Infuriating Stories Of Insurance Companies Failing Their Patients, And It's Pretty Dystopian](https://www.yahoo.com/news/medical-professionals-sharing-infuriating-stories-173217042.html)
-- Dec 11 - [29 House Republicans want Trump to scrap the IRS's free direct tax filing tool on day one of his presidency](https://www.yahoo.com/news/29-house-republicans-want-trump-171540888.html)
-- Dec 11 - [America's closest ally in Syria is losing ground as a new order takes shape](https://www.yahoo.com/news/americas-closet-ally-syria-losing-164946791.html)
 <!-- feed end -->
 
 ### Onstream
