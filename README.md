@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Is Exxon Mobil Corporation (XOM) The Best Plastics Stock To Invest In Now?](https://finance.yahoo.com/news/exxon-mobil-corporation-xom-best-154602812.html)
+- Dec 11 - [Elon Musk Gloats as Trump Announces Billionaires Will Be Exempt From Normal Environmental Rules](https://www.yahoo.com/news/elon-musk-gloats-trump-announces-153323030.html)
+- Dec 11 - [Google puts AI agents at the center of Gemini update](https://www.yahoo.com/tech/google-puts-ai-agents-center-153242195.html)
 - Dec 11 - [Hospitals gave patients meds during childbirth, then reported them for illicit drug use](https://www.yahoo.com/news/hospitals-gave-patients-meds-during-110434896.html)
-- Dec 11 - [Mortgage and refinance rates today, December 11, 2024: Rates increase in anticipation of CPI](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-december-11-2024-110044198.html)
-- Dec 11 - [Trump, GOP expected to undo Biden’s divisive nursing home rule](https://www.yahoo.com/news/trump-gop-expected-undo-biden-110000447.html)
-- Dec 11 - [The Stock Market Is Doing Something It Has Done Only 2 Times Since 1985, and History Is Clear About What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-done-103500626.html)
-- Dec 11 - [Ripple Secures NYDFS Approval for RLUSD Stablecoin, Aiming for $2 Trillion Market Cap by 2028](https://finance.yahoo.com/news/ripple-secures-nydfs-approval-rlusd-065226515.html)
+- Dec 11 - [Mortgage and refinance rates today, December 11, 2024: Rates up in anticipation of CPI](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-december-11-2024-110044198.html)
 <!-- feed end -->
 
 ### Onstream
