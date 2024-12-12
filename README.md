@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Nvidia steps up hiring in China to focus on AI-driven cars, Bloomberg News reports](https://finance.yahoo.com/news/nvidia-steps-hiring-china-focus-042614212.html)
 - Dec 12 - [Trump picks hardline Republican Kari Lake to lead Voice of America](https://www.yahoo.com/news/trump-picks-hardline-republican-kari-022840254.html)
-- Dec 12 - [Trump invites China's Xi Jinping to attend inauguration, CBS News reports](https://www.yahoo.com/news/trump-invites-chinas-xi-jinping-001457564.html)
+- Dec 12 - [Hannah Kobayashi Case: Why Police May Never Learn What Happened to Her](https://www.yahoo.com/news/hannah-kobayashi-case-why-police-021433355.html)
 - Dec 11 - [State of emergency declared for WNY counties ahead of snowfall](https://www.yahoo.com/news/state-emergency-declared-wny-counties-232439136.html)
-- Dec 11 - [Fast-growing burger chain will open its first Kansas City area restaurant next year](https://www.yahoo.com/news/fast-growing-burger-chain-open-222535194.html)
-- Dec 11 - [Schumer says Senate will vote on Social Security changes](https://www.yahoo.com/news/schumer-says-senate-vote-social-212931952.html)
+- Dec 11 - [Arkansas Attorney General agents arrest Little Rock woman during organized retail crime investigation](https://www.yahoo.com/news/arkansas-attorney-general-agents-arrest-220207999.html)
 <!-- feed end -->
 
 ### Onstream
