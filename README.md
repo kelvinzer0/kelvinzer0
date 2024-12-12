@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 12 - [Trump picks hardline Republican Kari Lake to lead Voice of America](https://www.yahoo.com/news/trump-picks-hardline-republican-kari-022840254.html)
 - Dec 12 - [Trump invites China's Xi Jinping to attend inauguration, CBS News reports](https://www.yahoo.com/news/trump-invites-chinas-xi-jinping-001457564.html)
-- Dec 11 - [Insurance company denies covering cost of life-saving medicine for metro woman](https://www.yahoo.com/news/insurance-company-denies-covering-cost-233802075.html)
 - Dec 11 - [State of emergency declared for WNY counties ahead of snowfall](https://www.yahoo.com/news/state-emergency-declared-wny-counties-232439136.html)
-- Dec 11 - [Homeland Security operation leads to pursuit, crash and arrests in St. Louis County](https://www.yahoo.com/news/homeland-security-operation-leads-pursuit-220951548.html)
+- Dec 11 - [Fast-growing burger chain will open its first Kansas City area restaurant next year](https://www.yahoo.com/news/fast-growing-burger-chain-open-222535194.html)
+- Dec 11 - [Schumer says Senate will vote on Social Security changes](https://www.yahoo.com/news/schumer-says-senate-vote-social-212931952.html)
 <!-- feed end -->
 
 ### Onstream
