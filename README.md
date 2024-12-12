@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Allegheny County DA files lawsuit over ‘looming crisis:’ the county’s unfunded pension](https://www.yahoo.com/news/allegheny-county-da-files-lawsuit-222021909.html)
-- Dec 11 - [License plate cameras help ID driver in Lubbock crash that killed Randall High standout](https://www.yahoo.com/news/license-plate-cameras-help-id-221613546.html)
-- Dec 11 - [Power outages piling up around RI. See where on our map.](https://www.yahoo.com/news/power-outages-piling-around-ri-215009375.html)
+- Dec 11 - [Schumer says Senate will vote on Social Security changes](https://www.yahoo.com/news/schumer-says-senate-vote-social-212931952.html)
+- Dec 11 - [Trump’s Inauguration Will Feature an Unbelievable Guest](https://www.yahoo.com/news/trump-inauguration-feature-unbelievable-guest-211527202.html)
 - Dec 11 - [Mike Lindell says 'cash-strapped' MyPillow took $1.6 million loan from payday lender at 409% interest](https://finance.yahoo.com/news/mike-lindell-says-cash-strapped-200203638.html)
-- Dec 11 - [Homeland Security shares new details of mysterious drone flights over New Jersey, lawmaker says](https://www.yahoo.com/news/homeland-security-officials-meet-lawmakers-184730979.html)
+- Dec 11 - [Dementia report reveals 'shocking' signs at age 60 that you'll develop the disease by age 80](https://www.yahoo.com/news/dementia-report-reveals-shocking-signs-192118326.html)
+- Dec 11 - [Montcalm County deputies: 2 hospitalized after pickup truck crashes into semi](https://www.yahoo.com/news/montcalm-county-deputies-2-hospitalized-190551982.html)
 <!-- feed end -->
 
 ### Onstream
