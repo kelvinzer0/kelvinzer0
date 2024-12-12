@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Flames and Smoke in Malibu as Fire Rages](https://www.yahoo.com/news/flames-smoke-malibu-fire-rages-190307794.html)
+- Dec 12 - [Blinken warns against ‘additional conflicts’ in Syria as he travels to the Middle East](https://www.yahoo.com/news/blinken-warns-against-additional-conflicts-180454737.html)
+- Dec 12 - [Intel executives say a manufacturing spinoff is possible](https://finance.yahoo.com/news/intel-executives-manufacturing-spinoff-possible-172803531.html)
+- Dec 12 - [Trump to discuss ending childhood vaccination programs with RFK Jr](https://www.yahoo.com/news/trump-discuss-ending-childhood-vaccination-172213299.html)
 - Dec 12 - [Senate begins final push to expand Social Security benefits for millions of people](https://www.yahoo.com/news/senate-begins-final-push-expand-170724503.html)
-- Dec 12 - [Cathie Wood's ARK Sells $21.8M Tesla Shares, Buys $18.3M Tempus AI Stock](https://finance.yahoo.com/news/cathie-woods-ark-sells-21-170223007.html)
-- Dec 12 - [Some Republicans fear a DOGE dilemma is setting in](https://www.yahoo.com/news/republicans-fear-doge-dilemma-setting-160436029.html)
-- Dec 12 - [She took a DNA test for fun. Police used it to charge her grandmother with murder in a cold case](https://www.yahoo.com/news/she-took-dna-test-fun-150044224.html)
-- Dec 12 - [Trump criticizes Ukraine's use of US missiles for attacks deep into Russia](https://www.yahoo.com/news/trump-criticizes-ukraines-us-missiles-143038058.html)
 <!-- feed end -->
 
 ### Onstream
