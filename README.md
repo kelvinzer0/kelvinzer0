@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Pete Hegseth, Trump’s Defense pick, says allowing gay troops to serve openly reflects a Marxist agenda](https://www.yahoo.com/news/pete-hegseth-trump-defense-pick-110043976.html)
+- Dec 12 - [2 Vietnamese police officials sexually attacked young women on visit to New Zealand, authorities say](https://www.yahoo.com/news/2-vietnamese-police-officials-sexually-100627239.html)
 - Dec 12 - [Biden commutes roughly 1,500 sentences and pardons 39 people in biggest single-day act of clemency](https://www.yahoo.com/news/biden-commutes-roughly-1-500-100028647.html)
 - Dec 12 - [Secretly recorded videos are backbone of corruption trial for longest-serving legislative leader](https://www.yahoo.com/news/secretly-recorded-videos-backbone-corruption-060724919.html)
 - Dec 12 - [Trump picks hardline Republican Kari Lake to lead Voice of America](https://www.yahoo.com/news/trump-picks-hardline-republican-kari-022840254.html)
-- Dec 12 - [Air Canada ordered to pay $10K after couple endures 'horrendous experience'](https://finance.yahoo.com/news/air-canada-ordered-pay-10k-022211898.html)
-- Dec 12 - [Trump invites China's Xi Jinping to attend inauguration, CBS News reports](https://www.yahoo.com/news/trump-invites-chinas-xi-jinping-001457564.html)
 <!-- feed end -->
 
 ### Onstream
