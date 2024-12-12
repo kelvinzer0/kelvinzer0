@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Oracle’s (ORCL) Strategic AI Move: Is the Stock Poised for Major Growth?](https://finance.yahoo.com/news/oracle-orcl-strategic-ai-move-202527045.html)
-- Dec 12 - [Israeli troops can remain in Gaza after war, Hamas concedes in major U-turn](https://www.yahoo.com/news/israeli-troops-remain-gaza-war-202037446.html)
-- Dec 12 - [President Joe Biden commutes sentences for two of Chicago area’s most notorious fraudsters](https://www.yahoo.com/news/president-joe-biden-commutes-sentences-192600042.html)
-- Dec 12 - [The wife of a Wisconsin kayaker who faked his own death moves to end their marriage](https://www.yahoo.com/news/wife-wisconsin-kayaker-faked-own-185207573.html)
-- Dec 12 - [Jimmy Dimora sentence commuted by President Biden](https://www.yahoo.com/news/jimmy-dimora-sentence-commuted-president-173946270.html)
+- Dec 12 - [Broadcom forecasts first-quarter revenue above estimates on strong AI chip demand](https://finance.yahoo.com/news/broadcom-forecasts-first-quarter-revenue-212324226.html)
+- Dec 12 - [Intel Could Be Split Up By Next CEO](https://www.yahoo.com/tech/intel-could-split-next-ceo-204141790.html)
+- Dec 12 - [Country star Morgan Wallen sentenced in chair-throwing case](https://www.yahoo.com/entertainment/country-star-morgan-wallen-sentenced-202800777.html)
+- Dec 12 - [Maintenance workers find boy, 4, alone in apartment with grandmother who died two days ago](https://www.yahoo.com/news/maintenance-workers-boy-4-alone-195215992.html)
+- Dec 12 - [Archaeologists Found the Tomb of an Actual Roman Soldier From Year Zero](https://www.yahoo.com/news/archaeologists-found-tomb-actual-roman-193000049.html)
 <!-- feed end -->
 
 ### Onstream
