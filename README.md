@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Labour pledges 370,00 new homes per year as housing target increases by over 20%](https://www.yahoo.com/news/labour-pledges-370-00-homes-152235900.html)
+- Dec 12 - [Trump criticizes Ukraine's use of US missiles for attacks deep into Russia](https://www.yahoo.com/news/trump-criticizes-ukraines-us-missiles-143038058.html)
+- Dec 12 - [Joe Burrow Has Spoken Out After Model Olivia Ponton Was Named As The 22-Year-Old Employee Who Reported The Robbery At His Home, So Here’s An Explainer Of What’s Going On](https://www.yahoo.com/news/joe-burrow-spoken-model-olivia-140544794.html)
 - Dec 12 - [Rescue group saves 11-year-old girl floating alone in the Mediterranean for days after shipwreck](https://www.yahoo.com/news/rescue-group-saves-11-old-134918199.html)
-- Dec 12 - [Scientists Just Confirmed the Presence of Unknown Physics in Our Universe](https://www.yahoo.com/news/scientists-just-confirmed-presence-unknown-130000610.html)
-- Dec 12 - [Demoralised and abandoned by allies: why Assad’s army failed to fight in Syria](https://www.yahoo.com/news/demoralised-abandoned-allies-why-assad-123131532.html)
-- Dec 12 - [Erie County plow overturns at Lakeview Road, Route 20](https://www.yahoo.com/news/erie-county-plow-overturns-lakeview-120309650.html)
-- Dec 12 - [Inside Boeing’s struggle to make its best-selling plane again](https://finance.yahoo.com/news/inside-boeing-struggle-best-selling-110358069.html)
+- Dec 12 - [Black denomination upholds stance against same-sex marriage. A gay pastor in its ranks seeks change](https://www.yahoo.com/news/black-denomination-upholds-stance-against-134458109.html)
 <!-- feed end -->
 
 ### Onstream
