@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Brazil’s Hawkish Rate Hike Fails to Stem Market Selloff](https://finance.yahoo.com/news/brazil-hawkish-rate-hike-fails-163250750.html)
-- Dec 12 - [Why did China hack the world’s phone networks?](https://www.yahoo.com/news/why-did-china-hack-world-162425433.html)
+- Dec 12 - [Senate begins final push to expand Social Security benefits for millions of people](https://www.yahoo.com/news/senate-begins-final-push-expand-170724503.html)
+- Dec 12 - [Cathie Wood's ARK Sells $21.8M Tesla Shares, Buys $18.3M Tempus AI Stock](https://finance.yahoo.com/news/cathie-woods-ark-sells-21-170223007.html)
+- Dec 12 - [Some Republicans fear a DOGE dilemma is setting in](https://www.yahoo.com/news/republicans-fear-doge-dilemma-setting-160436029.html)
 - Dec 12 - [She took a DNA test for fun. Police used it to charge her grandmother with murder in a cold case](https://www.yahoo.com/news/she-took-dna-test-fun-150044224.html)
-- Dec 12 - [Rescue group saves 11-year-old girl floating alone in the Mediterranean for days after shipwreck](https://www.yahoo.com/news/rescue-group-saves-11-old-134918199.html)
-- Dec 12 - [Here’s when Thursday’s storm reaches Southern California](https://www.yahoo.com/news/thursday-storm-reaches-southern-california-133428017.html)
+- Dec 12 - [Trump criticizes Ukraine's use of US missiles for attacks deep into Russia](https://www.yahoo.com/news/trump-criticizes-ukraines-us-missiles-143038058.html)
 <!-- feed end -->
 
 ### Onstream
