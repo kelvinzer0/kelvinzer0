@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Oracle’s (ORCL) Strategic AI Move: Is the Stock Poised for Major Growth?](https://finance.yahoo.com/news/oracle-orcl-strategic-ai-move-202527045.html)
+- Dec 12 - [Israeli troops can remain in Gaza after war, Hamas concedes in major U-turn](https://www.yahoo.com/news/israeli-troops-remain-gaza-war-202037446.html)
 - Dec 12 - [President Joe Biden commutes sentences for two of Chicago area’s most notorious fraudsters](https://www.yahoo.com/news/president-joe-biden-commutes-sentences-192600042.html)
-- Dec 12 - [Israel says eight Hamas members killed in strike on Gaza City](https://www.yahoo.com/news/israel-says-eight-hamas-members-191221820.html)
-- Dec 12 - [Insurer refuses to pay for damaged chimney because Storm Darragh wasn't a proper storm](https://www.yahoo.com/news/insurer-refuses-to-pay-for-damaged-chimney-because-storm-darragh-not-a-proper-storm-184923858.html)
-- Dec 12 - [Intel executives say a manufacturing spinoff is possible](https://finance.yahoo.com/news/intel-executives-manufacturing-spinoff-possible-172803531.html)
-- Dec 12 - [Trump to discuss ending childhood vaccination programs with RFK Jr](https://www.yahoo.com/news/trump-discuss-ending-childhood-vaccination-172213299.html)
+- Dec 12 - [The wife of a Wisconsin kayaker who faked his own death moves to end their marriage](https://www.yahoo.com/news/wife-wisconsin-kayaker-faked-own-185207573.html)
+- Dec 12 - [Jimmy Dimora sentence commuted by President Biden](https://www.yahoo.com/news/jimmy-dimora-sentence-commuted-president-173946270.html)
 <!-- feed end -->
 
 ### Onstream
