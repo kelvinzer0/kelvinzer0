@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Flames and Smoke in Malibu as Fire Rages](https://www.yahoo.com/news/flames-smoke-malibu-fire-rages-190307794.html)
-- Dec 12 - [Blinken warns against ‘additional conflicts’ in Syria as he travels to the Middle East](https://www.yahoo.com/news/blinken-warns-against-additional-conflicts-180454737.html)
+- Dec 12 - [President Joe Biden commutes sentences for two of Chicago area’s most notorious fraudsters](https://www.yahoo.com/news/president-joe-biden-commutes-sentences-192600042.html)
+- Dec 12 - [Israel says eight Hamas members killed in strike on Gaza City](https://www.yahoo.com/news/israel-says-eight-hamas-members-191221820.html)
+- Dec 12 - [Insurer refuses to pay for damaged chimney because Storm Darragh wasn't a proper storm](https://www.yahoo.com/news/insurer-refuses-to-pay-for-damaged-chimney-because-storm-darragh-not-a-proper-storm-184923858.html)
 - Dec 12 - [Intel executives say a manufacturing spinoff is possible](https://finance.yahoo.com/news/intel-executives-manufacturing-spinoff-possible-172803531.html)
 - Dec 12 - [Trump to discuss ending childhood vaccination programs with RFK Jr](https://www.yahoo.com/news/trump-discuss-ending-childhood-vaccination-172213299.html)
-- Dec 12 - [Senate begins final push to expand Social Security benefits for millions of people](https://www.yahoo.com/news/senate-begins-final-push-expand-170724503.html)
 <!-- feed end -->
 
 ### Onstream
