@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [3 EV Stocks That Could Soar in 2025](https://finance.yahoo.com/news/3-ev-stocks-could-soar-133000146.html)
-- Dec 12 - [Kimberly Guilfoyle Is Trump’s Latest Nominee Who Was Accused of Sexual Misconduct](https://www.yahoo.com/news/kimberly-guilfoyle-trump-latest-nominee-124606533.html)
+- Dec 12 - [Rescue group saves 11-year-old girl floating alone in the Mediterranean for days after shipwreck](https://www.yahoo.com/news/rescue-group-saves-11-old-134918199.html)
+- Dec 12 - [Scientists Just Confirmed the Presence of Unknown Physics in Our Universe](https://www.yahoo.com/news/scientists-just-confirmed-presence-unknown-130000610.html)
 - Dec 12 - [Demoralised and abandoned by allies: why Assad’s army failed to fight in Syria](https://www.yahoo.com/news/demoralised-abandoned-allies-why-assad-123131532.html)
+- Dec 12 - [Erie County plow overturns at Lakeview Road, Route 20](https://www.yahoo.com/news/erie-county-plow-overturns-lakeview-120309650.html)
 - Dec 12 - [Inside Boeing’s struggle to make its best-selling plane again](https://finance.yahoo.com/news/inside-boeing-struggle-best-selling-110358069.html)
-- Dec 12 - [2 Vietnamese police officials sexually attacked young women on visit to New Zealand, authorities say](https://www.yahoo.com/news/2-vietnamese-police-officials-sexually-100627239.html)
 <!-- feed end -->
 
 ### Onstream
