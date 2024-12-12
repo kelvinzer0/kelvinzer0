@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [3 EV Stocks That Could Soar in 2025](https://finance.yahoo.com/news/3-ev-stocks-could-soar-133000146.html)
+- Dec 12 - [Kimberly Guilfoyle Is Trump’s Latest Nominee Who Was Accused of Sexual Misconduct](https://www.yahoo.com/news/kimberly-guilfoyle-trump-latest-nominee-124606533.html)
 - Dec 12 - [Demoralised and abandoned by allies: why Assad’s army failed to fight in Syria](https://www.yahoo.com/news/demoralised-abandoned-allies-why-assad-123131532.html)
-- Dec 12 - [Biden commutes roughly 1,500 sentences and pardons 39 people in biggest single-day act of clemency](https://www.yahoo.com/news/biden-commutes-roughly-1-500-100028647.html)
-- Dec 12 - [Secretly recorded videos are backbone of corruption trial for longest-serving legislative leader](https://www.yahoo.com/news/secretly-recorded-videos-backbone-corruption-060724919.html)
-- Dec 12 - [Trump picks hardline Republican Kari Lake to lead Voice of America](https://www.yahoo.com/news/trump-picks-hardline-republican-kari-022840254.html)
-- Dec 12 - [Air Canada ordered to pay $10K after couple endures 'horrendous experience'](https://finance.yahoo.com/news/air-canada-ordered-pay-10k-022211898.html)
+- Dec 12 - [Inside Boeing’s struggle to make its best-selling plane again](https://finance.yahoo.com/news/inside-boeing-struggle-best-selling-110358069.html)
+- Dec 12 - [2 Vietnamese police officials sexually attacked young women on visit to New Zealand, authorities say](https://www.yahoo.com/news/2-vietnamese-police-officials-sexually-100627239.html)
 <!-- feed end -->
 
 ### Onstream
