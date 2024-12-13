@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Musk says US is demanding he pay penalty over disclosures of his Twitter stock purchases](https://finance.yahoo.com/news/musk-says-us-demanding-pay-170227604.html)
-- Dec 13 - [What really happens at 32 Portland Place’s sex parties](https://www.yahoo.com/entertainment/really-happens-32-portland-place-170000365.html)
-- Dec 13 - [Former US House Speaker Nancy Pelosi hospitalized after injury in Luxembourg](https://www.yahoo.com/news/former-us-house-speaker-nancy-162402046.html)
-- Dec 13 - [Crystal Mangum, who accused three Duke lacrosse players of rape, now says she lied](https://www.yahoo.com/news/crystal-mangum-accused-three-duke-130832824.html)
-- Dec 13 - [Dr. Terry Dubrow Shoots Down Brandi Glanville’s Claims Her Face Is Caused by Parasites](https://www.yahoo.com/entertainment/dr-terry-dubrow-shoots-down-153602687.html)
+- Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
+- Dec 13 - [Kimberly Guilfoyle Grovels to Greek Billionaire After ‘Freeloaders’ Insult](https://www.yahoo.com/news/kimberly-guilfoyle-grovels-greek-billionaire-205248182.html)
+- Dec 13 - [Truck Slams Into Fire Engine](https://www.yahoo.com/news/truck-slams-fire-engine-192748353.html)
+- Dec 13 - [These Are The Most Reliable Cars And SUVs You Can Buy In 2025, According To Consumer Reports](https://autos.yahoo.com/most-reliable-cars-suvs-buy-183000162.html)
+- Dec 13 - [Jill Biden tells military children at Marine Corps Reserve toy drive to remember that they are loved](https://www.yahoo.com/news/jill-biden-tells-military-children-181852794.html)
 <!-- feed end -->
 
 ### Onstream
