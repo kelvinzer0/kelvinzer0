@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Dec 13 - [Kimberly Guilfoyle Grovels to Greek Billionaire After ‘Freeloaders’ Insult](https://www.yahoo.com/news/kimberly-guilfoyle-grovels-greek-billionaire-205248182.html)
 - Dec 13 - [Truck Slams Into Fire Engine](https://www.yahoo.com/news/truck-slams-fire-engine-192748353.html)
 - Dec 13 - [These Are The Most Reliable Cars And SUVs You Can Buy In 2025, According To Consumer Reports](https://autos.yahoo.com/most-reliable-cars-suvs-buy-183000162.html)
-- Dec 13 - [Jill Biden tells military children at Marine Corps Reserve toy drive to remember that they are loved](https://www.yahoo.com/news/jill-biden-tells-military-children-181852794.html)
+- Dec 13 - [Oklahoma panel rejects man's plea for mercy, paves the way for final US execution of 2024](https://www.yahoo.com/news/oklahoma-panel-rejects-mans-plea-181242479.html)
 <!-- feed end -->
 
 ### Onstream
