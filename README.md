@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Trump Admits He Lied About Grocery Prices, Celebrates TIME Cover on Wall Street: A Closer Look](https://www.yahoo.com/entertainment/trump-admits-lied-grocery-prices-020000678.html)
+- Dec 13 - [Xi’s RSVP is a snub to Trump, but the inauguration invite is still a big deal](https://www.yahoo.com/news/xi-rsvp-snub-trump-inauguration-023715077.html)
+- Dec 13 - [Maitland restaurant shuts down without warning weeks after employees told jobs were secure](https://www.yahoo.com/news/maitland-restaurant-shuts-down-without-031629635.html)
+- Dec 13 - [Japanese researchers test pioneering drug to regrow teeth](https://www.yahoo.com/news/japanese-researchers-test-pioneering-drug-021135375.html)
 - Dec 13 - [China says Philippines has 'provoked trouble' in South China Sea with US backing](https://www.yahoo.com/news/china-says-philippines-provoked-trouble-010845734.html)
-- Dec 13 - [She took a DNA test for fun. Police used it to charge her grandmother with murder in a cold case](https://www.yahoo.com/news/she-took-dna-test-fun-150044224.html)
 - Dec 13 - [FDA recalls more than 233,000 bottles of antidepressant over possible cancerous chemical](https://www.yahoo.com/news/fda-recalls-more-233-000-005535664.html)
-- Dec 12 - [Coca-Cola Is Rolling Out a Major Change, and Shoppers Are Not Happy](https://www.yahoo.com/news/coca-cola-rolling-major-change-224500143.html)
 <!-- feed end -->
 
 ### Onstream
