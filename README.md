@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 13 - [Trump Admits He Lied About Grocery Prices, Celebrates TIME Cover on Wall Street: A Closer Look](https://www.yahoo.com/entertainment/trump-admits-lied-grocery-prices-020000678.html)
-- Dec 13 - [Teens aren't that into X — but another social media platform is increasingly getting their attention](https://www.yahoo.com/news/teens-arent-x-mdash-another-013734484.html)
+- Dec 13 - [China says Philippines has 'provoked trouble' in South China Sea with US backing](https://www.yahoo.com/news/china-says-philippines-provoked-trouble-010845734.html)
+- Dec 13 - [She took a DNA test for fun. Police used it to charge her grandmother with murder in a cold case](https://www.yahoo.com/news/she-took-dna-test-fun-150044224.html)
 - Dec 13 - [FDA recalls more than 233,000 bottles of antidepressant over possible cancerous chemical](https://www.yahoo.com/news/fda-recalls-more-233-000-005535664.html)
-- Dec 12 - [A Syrian soldier's story: Why Assad's army didn't fight for him](https://www.yahoo.com/news/syrian-soldiers-story-why-assads-233449525.html)
-- Dec 12 - [UCLA student sues California doctors, says she was 'fast-tracked' into transgender surgery](https://www.yahoo.com/news/ucla-student-sues-california-doctors-222039795.html)
+- Dec 12 - [Coca-Cola Is Rolling Out a Major Change, and Shoppers Are Not Happy](https://www.yahoo.com/news/coca-cola-rolling-major-change-224500143.html)
 <!-- feed end -->
 
 ### Onstream
