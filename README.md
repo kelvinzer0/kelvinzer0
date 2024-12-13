@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Palantir Technologies (PLTR) Launches Warp Speed Cohort to Reindustrialize American Manufacturing with AI](https://finance.yahoo.com/news/palantir-technologies-pltr-launches-warp-165401609.html)
-- Dec 13 - [Drone expert on mysterious sightings as officials call for answers](https://www.yahoo.com/news/drone-expert-mysterious-sightings-officials-165233634.html)
-- Dec 13 - [Oil Prices Set for New Boom After 2035 on Demand, Rapidan Says](https://finance.yahoo.com/news/oil-prices-set-boom-2035-162731156.html)
-- Dec 13 - [Former US House Speaker Nancy Pelosi injured in Europe, admitted to hospital](https://www.yahoo.com/news/former-us-house-speaker-nancy-162402046.html)
+- Dec 13 - [3 reasons quantum computing could be a 'game-changer' for AI](https://finance.yahoo.com/video/3-reasons-quantum-computing-could-181006561.html)
+- Dec 13 - [Discovery of vast Syrian drug lab reveals secrets of illicit captagon trade](https://www.yahoo.com/news/discovery-vast-syrian-drug-lab-173921699.html)
+- Dec 13 - [What really happens at 32 Portland Place’s sex parties](https://www.yahoo.com/lifestyle/really-happens-32-portland-place-170000365.html)
+- Dec 13 - [Former US House Speaker Nancy Pelosi hospitalized after injury in Luxembourg](https://www.yahoo.com/news/former-us-house-speaker-nancy-162402046.html)
 - Dec 13 - [Crystal Mangum, who accused three Duke lacrosse players of rape, now says she lied](https://www.yahoo.com/news/crystal-mangum-accused-three-duke-130832824.html)
 <!-- feed end -->
 
