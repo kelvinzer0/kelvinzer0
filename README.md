@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Nvidia Poised to Hit $250 Share Price by 2025, Analyst Predict](https://finance.yahoo.com/news/nvidia-poised-hit-250-share-174536783.html)
+- Dec 13 - [Musk says US is demanding he pay penalty over disclosures of his Twitter stock purchases](https://finance.yahoo.com/news/musk-says-us-demanding-pay-170227604.html)
 - Dec 13 - [What really happens at 32 Portland Place’s sex parties](https://www.yahoo.com/entertainment/really-happens-32-portland-place-170000365.html)
 - Dec 13 - [Former US House Speaker Nancy Pelosi hospitalized after injury in Luxembourg](https://www.yahoo.com/news/former-us-house-speaker-nancy-162402046.html)
 - Dec 13 - [Crystal Mangum, who accused three Duke lacrosse players of rape, now says she lied](https://www.yahoo.com/news/crystal-mangum-accused-three-duke-130832824.html)
-- Dec 13 - [Born in Worcester, Thomas and Ruth O'Brien, parents of comedian Conan O'Brien, die days apart](https://www.yahoo.com/news/born-worcester-thomas-ruth-obrien-154503112.html)
+- Dec 13 - [Dr. Terry Dubrow Shoots Down Brandi Glanville’s Claims Her Face Is Caused by Parasites](https://www.yahoo.com/entertainment/dr-terry-dubrow-shoots-down-153602687.html)
 <!-- feed end -->
 
 ### Onstream
