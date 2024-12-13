@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Is Freeport-McMoRan Inc. (FCX) the Best Copper Stock to Buy According to Hedge Funds?](https://finance.yahoo.com/news/freeport-mcmoran-inc-fcx-best-024109307.html)
-- Dec 12 - [Manchin: Biden ‘went completely insane on me’ over American Rescue Plan opposition](https://www.yahoo.com/news/manchin-biden-went-completely-insane-214542221.html)
-- Dec 12 - [Luigi Mangione’s Prison Inmates Yell For UnitedHealthcare CEO Murder Suspect To Be Freed On Live TV](https://www.yahoo.com/entertainment/luigi-mangione-prison-inmates-yell-213435131.html)
-- Dec 12 - [Archaeologists Found the Tomb of an Actual Roman Soldier From Year Zero](https://www.yahoo.com/news/archaeologists-found-tomb-actual-roman-193000049.html)
-- Dec 12 - [Northrop Grumman’s Mission Solutions Aim To Keep Fourth-Generation Aircraft Lethal And Survivable](https://www.yahoo.com/news/northrop-grumman-mission-solutions-aim-191332622.html)
+- Dec 13 - [Costco beats forecasts as Americans hunt for discounts](https://finance.yahoo.com/video/costco-beats-forecasts-americans-hunt-041717300.html)
+- Dec 13 - [Albuquerque man sentenced to 270 years in several cold case rapes](https://www.yahoo.com/news/albuquerque-man-sentenced-270-years-040200633.html)
+- Dec 13 - [Boy killed in Monroe shooting was innocent bystander, mother says](https://www.yahoo.com/news/boy-killed-monroe-shooting-innocent-032228802.html)
+- Dec 13 - [Xi’s RSVP is a snub to Trump, but the inauguration invite is still a big deal](https://www.yahoo.com/news/xi-rsvp-snub-trump-inauguration-023715077.html)
+- Dec 13 - [Teens aren't that into X — but another social media platform is increasingly getting their attention](https://www.yahoo.com/news/teens-arent-x-mdash-another-013734484.html)
 <!-- feed end -->
 
 ### Onstream
