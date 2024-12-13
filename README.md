@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [For the sake of British values, Shamima Begum must never be allowed back](https://www.yahoo.com/news/sake-british-values-shamima-begum-143650152.html)
+- Dec 13 - [A European nation cut ties with Gazprom, saying it won't be 'blackmailed' by Russia](https://www.yahoo.com/news/european-nation-cut-ties-gazprom-142800743.html)
+- Dec 13 - [Tavares says 'amicable' Stellantis exit was due to strategy disputes](https://finance.yahoo.com/video/tavares-says-amicable-stellantis-exit-141527326.html)
 - Dec 13 - [Crystal Mangum, who accused three Duke lacrosse players of rape, now says she lied](https://www.yahoo.com/news/crystal-mangum-accused-three-duke-130832824.html)
-- Dec 13 - [‘Don’t Touch Me!’: CNN Analyst Awkwardly Tells Guest to Back Off on Air](https://www.yahoo.com/news/don-t-touch-cnn-analyst-114156144.html)
-- Dec 13 - [Defence minister orders Israeli troops to prepare to spend winter on Mount Hermon](https://www.yahoo.com/news/defence-minister-orders-israeli-troops-111656931.html)
-- Dec 13 - [Assad's final hours in Syria: Deception, despair and flight](https://www.yahoo.com/news/assads-final-hours-syria-deception-110418220.html)
-- Dec 13 - [Senate Democrats livid with exiting Sinema, Manchin: ‘Pathetic’](https://www.yahoo.com/news/senate-democrats-livid-exiting-sinema-110000922.html)
+- Dec 13 - [4 Signs You Are Not Building Lasting Wealth as Smartly as Other Americans](https://finance.yahoo.com/news/4-signs-not-building-lasting-120041220.html)
 <!-- feed end -->
 
 ### Onstream
