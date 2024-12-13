@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Luigi Mangione’s Prison Inmates Yell For UnitedHealthcare CEO Murder Suspect To Be Freed On Live TV](https://www.yahoo.com/entertainment/luigi-mangione-prison-inmates-yell-213435131.html)
+- Dec 12 - ['I am going to kill you': City Rep's husband arrested for allegedly assaulting city worker](https://www.yahoo.com/news/am-going-kill-city-reps-232838154.html)
+- Dec 12 - [UCLA student sues California doctors, says she was 'fast-tracked' into transgender surgery](https://www.yahoo.com/news/ucla-student-sues-california-doctors-222039795.html)
+- Dec 12 - [Manchin: Biden ‘went completely insane on me’ over American Rescue Plan opposition](https://www.yahoo.com/news/manchin-biden-went-completely-insane-214542221.html)
 - Dec 12 - [Country star Morgan Wallen sentenced in chair-throwing case](https://www.yahoo.com/entertainment/country-star-morgan-wallen-sentenced-202800777.html)
 - Dec 12 - [Archaeologists Found the Tomb of an Actual Roman Soldier From Year Zero](https://www.yahoo.com/news/archaeologists-found-tomb-actual-roman-193000049.html)
-- Dec 12 - [President Joe Biden commutes sentences for two of Chicago area’s most notorious fraudsters](https://www.yahoo.com/news/president-joe-biden-commutes-sentences-192600042.html)
-- Dec 12 - [The wife of a Wisconsin kayaker who faked his own death moves to end their marriage](https://www.yahoo.com/news/wife-wisconsin-kayaker-faked-own-185207573.html)
 <!-- feed end -->
 
 ### Onstream
