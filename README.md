@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Costco beats forecasts as Americans hunt for discounts](https://finance.yahoo.com/video/costco-beats-forecasts-americans-hunt-041717300.html)
-- Dec 13 - [Albuquerque man sentenced to 270 years in several cold case rapes](https://www.yahoo.com/news/albuquerque-man-sentenced-270-years-040200633.html)
-- Dec 13 - [Boy killed in Monroe shooting was innocent bystander, mother says](https://www.yahoo.com/news/boy-killed-monroe-shooting-innocent-032228802.html)
 - Dec 13 - [Xi’s RSVP is a snub to Trump, but the inauguration invite is still a big deal](https://www.yahoo.com/news/xi-rsvp-snub-trump-inauguration-023715077.html)
-- Dec 13 - [Teens aren't that into X — but another social media platform is increasingly getting their attention](https://www.yahoo.com/news/teens-arent-x-mdash-another-013734484.html)
+- Dec 13 - [Trump Admits He Lied About Grocery Prices, Celebrates TIME Cover on Wall Street: A Closer Look](https://www.yahoo.com/entertainment/trump-admits-lied-grocery-prices-020000678.html)
+- Dec 13 - [She took a DNA test for fun. Police used it to charge her grandmother with murder in a cold case](https://www.yahoo.com/news/she-took-dna-test-fun-150044224.html)
+- Dec 13 - [FDA recalls more than 233,000 bottles of antidepressant over possible cancerous chemical](https://www.yahoo.com/news/fda-recalls-more-233-000-005535664.html)
+- Dec 12 - [UCLA student sues California doctors, says she was 'fast-tracked' into transgender surgery](https://www.yahoo.com/news/ucla-student-sues-california-doctors-222039795.html)
 <!-- feed end -->
 
 ### Onstream
