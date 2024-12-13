@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [I’m a Retired Boomer: 3 Debts You Should Definitely Pay Off Before Retirement](https://finance.yahoo.com/news/m-retired-boomer-3-debts-110439397.html)
+- Dec 13 - [Crystal Mangum, who accused three Duke lacrosse players of rape, now says she lied](https://www.yahoo.com/news/crystal-mangum-accused-three-duke-130832824.html)
 - Dec 13 - [‘Don’t Touch Me!’: CNN Analyst Awkwardly Tells Guest to Back Off on Air](https://www.yahoo.com/news/don-t-touch-cnn-analyst-114156144.html)
+- Dec 13 - [Defence minister orders Israeli troops to prepare to spend winter on Mount Hermon](https://www.yahoo.com/news/defence-minister-orders-israeli-troops-111656931.html)
+- Dec 13 - [Assad's final hours in Syria: Deception, despair and flight](https://www.yahoo.com/news/assads-final-hours-syria-deception-110418220.html)
 - Dec 13 - [Senate Democrats livid with exiting Sinema, Manchin: ‘Pathetic’](https://www.yahoo.com/news/senate-democrats-livid-exiting-sinema-110000922.html)
-- Dec 13 - [Former Aetna CEO says he’d eliminate employer-sponsored insurance to fix the U.S. healthcare industry in wake of UnitedHealthcare shooting](https://finance.yahoo.com/news/former-aetna-ceo-says-d-094300416.html)
-- Dec 13 - [A top Chinese economist just said what many people suspected: China's official GDP numbers may not be accurate](https://finance.yahoo.com/news/top-chinese-economist-just-said-071605436.html)
 <!-- feed end -->
 
 ### Onstream
