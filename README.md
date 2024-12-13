@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [California couple shot and killed on vacation in Mexico](https://www.yahoo.com/news/california-couple-shot-killed-vacation-103616689.html)
 - Dec 13 - [Commercial real estate is more than empty office buildings](https://finance.yahoo.com/video/commercial-real-estate-more-empty-101557939.html)
 - Dec 13 - [Chinese EV maker Nio takes aim at foreign luxury marques BMW, Audi with new sedan](https://www.yahoo.com/news/chinese-ev-maker-nio-takes-093000872.html)
-- Dec 13 - [1 Spectacular Artificial Intelligence (AI) ETF to Buy With $40 During the S&P 500 Bull Market](https://finance.yahoo.com/news/1-spectacular-artificial-intelligence-ai-092500009.html)
 - Dec 13 - [Xi’s RSVP is a snub to Trump, but the inauguration invite is still a big deal](https://www.yahoo.com/news/xi-rsvp-snub-trump-inauguration-023715077.html)
-- Dec 13 - [Teens aren't that into X — but another social media platform is increasingly getting their attention](https://www.yahoo.com/news/teens-arent-x-mdash-another-013734484.html)
+- Dec 13 - [Russia targets Ukrainian infrastructure with a massive attack of cruise missiles and drones](https://www.yahoo.com/news/russia-launches-massive-aerial-attack-071647631.html)
 <!-- feed end -->
 
 ### Onstream
