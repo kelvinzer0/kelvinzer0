@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [Commercial real estate is more than empty office buildings](https://finance.yahoo.com/video/commercial-real-estate-more-empty-101557939.html)
+- Dec 13 - [Chinese EV maker Nio takes aim at foreign luxury marques BMW, Audi with new sedan](https://www.yahoo.com/news/chinese-ev-maker-nio-takes-093000872.html)
+- Dec 13 - [1 Spectacular Artificial Intelligence (AI) ETF to Buy With $40 During the S&P 500 Bull Market](https://finance.yahoo.com/news/1-spectacular-artificial-intelligence-ai-092500009.html)
 - Dec 13 - [Xi’s RSVP is a snub to Trump, but the inauguration invite is still a big deal](https://www.yahoo.com/news/xi-rsvp-snub-trump-inauguration-023715077.html)
-- Dec 13 - [Maitland restaurant shuts down without warning weeks after employees told jobs were secure](https://www.yahoo.com/news/maitland-restaurant-shuts-down-without-031629635.html)
-- Dec 13 - [Japanese researchers test pioneering drug to regrow teeth](https://www.yahoo.com/news/japanese-researchers-test-pioneering-drug-021135375.html)
-- Dec 13 - [China says Philippines has 'provoked trouble' in South China Sea with US backing](https://www.yahoo.com/news/china-says-philippines-provoked-trouble-010845734.html)
-- Dec 13 - [FDA recalls more than 233,000 bottles of antidepressant over possible cancerous chemical](https://www.yahoo.com/news/fda-recalls-more-233-000-005535664.html)
+- Dec 13 - [Teens aren't that into X — but another social media platform is increasingly getting their attention](https://www.yahoo.com/news/teens-arent-x-mdash-another-013734484.html)
 <!-- feed end -->
 
 ### Onstream
