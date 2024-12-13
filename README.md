@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [3 reasons quantum computing could be a 'game-changer' for AI](https://finance.yahoo.com/video/3-reasons-quantum-computing-could-181006561.html)
-- Dec 13 - [Discovery of vast Syrian drug lab reveals secrets of illicit captagon trade](https://www.yahoo.com/news/discovery-vast-syrian-drug-lab-173921699.html)
-- Dec 13 - [What really happens at 32 Portland Place’s sex parties](https://www.yahoo.com/lifestyle/really-happens-32-portland-place-170000365.html)
+- Dec 13 - [Nvidia Poised to Hit $250 Share Price by 2025, Analyst Predict](https://finance.yahoo.com/news/nvidia-poised-hit-250-share-174536783.html)
+- Dec 13 - [What really happens at 32 Portland Place’s sex parties](https://www.yahoo.com/entertainment/really-happens-32-portland-place-170000365.html)
 - Dec 13 - [Former US House Speaker Nancy Pelosi hospitalized after injury in Luxembourg](https://www.yahoo.com/news/former-us-house-speaker-nancy-162402046.html)
 - Dec 13 - [Crystal Mangum, who accused three Duke lacrosse players of rape, now says she lied](https://www.yahoo.com/news/crystal-mangum-accused-three-duke-130832824.html)
+- Dec 13 - [Born in Worcester, Thomas and Ruth O'Brien, parents of comedian Conan O'Brien, die days apart](https://www.yahoo.com/news/born-worcester-thomas-ruth-obrien-154503112.html)
 <!-- feed end -->
 
 ### Onstream
