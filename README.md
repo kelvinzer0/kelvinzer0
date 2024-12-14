@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Inside Syria's notorious Palestine detention centre in Damascus](https://www.yahoo.com/news/inside-syrias-notorious-palestine-detention-161433184.html)
+- Dec 14 - [The Best Crystals to Charge for December's Full Moon in Gemini to Help You Manifest Clarity and Confidence](https://www.yahoo.com/lifestyle/best-crystals-charge-decembers-full-160000291.html)
 - Dec 14 - [Trump says he will seek to eliminate daylight saving time](https://www.yahoo.com/news/trump-says-seek-eliminate-daylight-133302074.html)
+- Dec 14 - [Trump considers privatizing U.S. Postal Service, Washington Post reports](https://finance.yahoo.com/news/trump-considers-privatizing-u-postal-131313688.html)
 - Dec 14 - [US Marines start partial transfer from Okinawa in Japan to Guam under plan agreed 12 years ago](https://www.yahoo.com/news/us-marines-start-partial-transfer-115146672.html)
 - Dec 14 - [Momentum builds around Social Security reforms ahead of Senate vote](https://www.yahoo.com/news/momentum-builds-around-social-security-110000517.html)
-- Dec 14 - [A fitness influencer who looked healthy but didn't eat enough quit to become a nutritionist. She learned to make nourishing versions of her favorite foods.](https://www.yahoo.com/lifestyle/fitness-influencer-looked-healthy-didnt-103702008.html)
 <!-- feed end -->
 
 ### Onstream
