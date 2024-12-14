@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [This Utah woman was pardoned by President Biden — Here’s why](https://www.yahoo.com/news/utah-woman-pardoned-president-biden-000223748.html)
+- Dec 14 - [Why Israel captured Syria’s tallest mountain just hours after Assad fell](https://www.yahoo.com/news/why-israel-captured-syria-tallest-050042455.html)
+- Dec 14 - [Meta urges California attorney general to stop OpenAI from becoming for-profit, WSJ reports](https://finance.yahoo.com/news/meta-urges-california-attorney-general-010428038.html)
 - Dec 13 - [Scientists Urge Ban on 'Mirror Life' Before It Endangers Global Health](https://www.yahoo.com/news/scientists-urge-ban-mirror-life-232709183.html)
-- Dec 13 - [People Can't Believe Donald Trump's Response To Being Asked About His Plans To Lower Grocery Prices](https://www.yahoo.com/news/donald-trump-already-walked-back-221600205.html)
 - Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
-- Dec 13 - [The airline industry's 'Big 3' will get even bigger next year](https://finance.yahoo.com/news/airline-industrys-big-3-even-204300156.html)
+- Dec 13 - [Musk says US is demanding he pay penalty over disclosures of his Twitter stock purchases](https://finance.yahoo.com/news/musk-says-us-demanding-pay-170227604.html)
 <!-- feed end -->
 
 ### Onstream
