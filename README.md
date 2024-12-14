@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Philadelphia woman uses Siri to call police on men who broke into her home](https://www.yahoo.com/news/philadelphia-woman-uses-siri-call-033533933.html)
-- Dec 14 - [Bob Fernandez, 100-year-old Pearl Harbor survivor, dies peacefully at home 83 years after bombing](https://www.yahoo.com/news/bob-fernandez-100-old-pearl-002526807.html)
-- Dec 14 - [Father of crash victims blames Jefferson Parish Sheriff’s Office for pursuing suspected shoplifter](https://www.yahoo.com/news/father-crash-victims-blames-jefferson-002247340.html)
-- Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
-- Dec 13 - [Incurable, 'highly contagious' STD affects nearly 900 million people under age 50](https://www.yahoo.com/news/incurable-highly-contagious-std-affects-205102550.html)
+- Dec 14 - [These 10 Used Cars Will Last Longer Than an Average New Vehicle](https://www.yahoo.com/news/10-used-cars-last-longer-185141023.html)
+- Dec 14 - [US Marines start partial transfer from Okinawa in Japan to Guam under plan agreed 12 years ago](https://www.yahoo.com/news/us-marines-start-partial-transfer-115146672.html)
+- Dec 14 - [Prince Andrew “Ceased Contact With Alleged Chinese Spy”; Faces Questions Over Chinese Business Links](https://www.yahoo.com/news/prince-andrew-ceased-contact-alleged-114911099.html)
+- Dec 14 - [NFL star Odell Beckham Jr., who took his $750,000 salary in bitcoin back in 2021, pokes fun at naysayers](https://finance.yahoo.com/news/nfl-star-odell-beckham-jr-113200164.html)
+- Dec 14 - [Ukrainian drones hit oil facility in Russia's Oryol region](https://www.yahoo.com/news/ukrainian-drones-hit-oil-facility-111034492.html)
 <!-- feed end -->
 
 ### Onstream
