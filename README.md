@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
+- Dec 14 - [Jamie Foxx recovering after physical altercation at Beverly Hills restaurant](https://www.yahoo.com/entertainment/jamie-foxx-recovering-physical-altercation-214222199.html)
+- Dec 14 - [1 person dead after ‘active shooter’ leads to U.S. Army installation lockdown in east Georgia](https://www.yahoo.com/news/georgia-u-army-installation-goes-140331558.html)
 - Dec 14 - [Trump taps Truth Social CEO Nunes to lead intelligence board](https://www.yahoo.com/news/trump-names-truth-social-ceo-192734205.html)
 - Dec 14 - [Enbridge pipeline spills 70,000 gallons of oil in Wisconsin](https://www.yahoo.com/news/enbridge-pipeline-spills-70-000-172521966.html)
-- Dec 14 - [An Illinois man couldn’t access the $25K he saved for his son in college because of a Wells Fargo check error](https://finance.yahoo.com/news/illinois-man-couldn-t-access-135700596.html)
-- Dec 14 - [Trump says he will seek to eliminate daylight saving time](https://www.yahoo.com/news/trump-says-seek-eliminate-daylight-133302074.html)
 <!-- feed end -->
 
 ### Onstream
