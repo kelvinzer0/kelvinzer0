@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Thousands of Santas and a few Grinches hit the streets for annual SantaCon bar crawls](https://www.yahoo.com/lifestyle/thousands-santas-few-grinches-hit-185401112.html)
-- Dec 14 - [1 person dead after ‘active shooter’ leads to U.S. Army installation lockdown in east Georgia](https://www.yahoo.com/news/georgia-u-army-installation-goes-140331558.html)
 - Dec 14 - [An elusive creature of the deep can live for centuries. Scientists think they know why](https://www.yahoo.com/news/elusive-creature-deep-live-centuries-160042374.html)
 - Dec 14 - [An Illinois man couldn’t access the $25K he saved for his son in college because of a Wells Fargo check error](https://finance.yahoo.com/news/illinois-man-couldn-t-access-135700596.html)
 - Dec 14 - [Trump says he will seek to eliminate daylight saving time](https://www.yahoo.com/news/trump-says-seek-eliminate-daylight-133302074.html)
+- Dec 14 - [Trump considers privatizing U.S. Postal Service, Washington Post reports](https://finance.yahoo.com/news/trump-considers-privatizing-u-postal-131313688.html)
+- Dec 14 - [US Marines start partial transfer from Okinawa in Japan to Guam under plan agreed 12 years ago](https://www.yahoo.com/news/us-marines-start-partial-transfer-115146672.html)
 <!-- feed end -->
 
 ### Onstream
