@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Nashville comes together, honors victims of violence in 30th Season to Remember ceremony](https://www.yahoo.com/news/nashville-comes-together-honors-victims-202228700.html)
-- Dec 14 - [Former Lubbock County deputy arrested, charged with distribution of confidential information](https://www.yahoo.com/news/former-lubbock-county-deputy-arrested-201823595.html)
+- Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
 - Dec 14 - [Trump taps Truth Social CEO Nunes to lead intelligence board](https://www.yahoo.com/news/trump-names-truth-social-ceo-192734205.html)
-- Dec 14 - [Social Security retirement age set to change in 2025](https://www.yahoo.com/news/social-security-retirement-age-set-161412553.html)
-- Dec 14 - [An elusive creature of the deep can live for centuries. Scientists think they know why](https://www.yahoo.com/news/elusive-creature-deep-live-centuries-160042374.html)
+- Dec 14 - [Enbridge pipeline spills 70,000 gallons of oil in Wisconsin](https://www.yahoo.com/news/enbridge-pipeline-spills-70-000-172521966.html)
+- Dec 14 - [An Illinois man couldn’t access the $25K he saved for his son in college because of a Wells Fargo check error](https://finance.yahoo.com/news/illinois-man-couldn-t-access-135700596.html)
+- Dec 14 - [Trump says he will seek to eliminate daylight saving time](https://www.yahoo.com/news/trump-says-seek-eliminate-daylight-133302074.html)
 <!-- feed end -->
 
 ### Onstream
