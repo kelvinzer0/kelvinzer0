@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Steinmeier ends Africa trip as first German president in Lesotho](https://www.yahoo.com/news/steinmeier-ends-africa-trip-first-165716152.html)
+- Dec 14 - [Thousands of Santas and a few Grinches hit the streets for annual SantaCon bar crawls](https://www.yahoo.com/lifestyle/thousands-santas-few-grinches-hit-185401112.html)
+- Dec 14 - [1 person dead after ‘active shooter’ leads to U.S. Army installation lockdown in east Georgia](https://www.yahoo.com/news/georgia-u-army-installation-goes-140331558.html)
 - Dec 14 - [An elusive creature of the deep can live for centuries. Scientists think they know why](https://www.yahoo.com/news/elusive-creature-deep-live-centuries-160042374.html)
-- Dec 14 - [Western New York woman pardoned in largest single-day act of clemency](https://www.yahoo.com/news/western-york-woman-pardoned-largest-141806308.html)
 - Dec 14 - [An Illinois man couldn’t access the $25K he saved for his son in college because of a Wells Fargo check error](https://finance.yahoo.com/news/illinois-man-couldn-t-access-135700596.html)
 - Dec 14 - [Trump says he will seek to eliminate daylight saving time](https://www.yahoo.com/news/trump-says-seek-eliminate-daylight-133302074.html)
 <!-- feed end -->
