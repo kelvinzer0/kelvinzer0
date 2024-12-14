@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [The Best Crystals to Charge for December's Full Moon in Gemini to Help You Manifest Clarity and Confidence](https://www.yahoo.com/lifestyle/best-crystals-charge-decembers-full-160000291.html)
+- Dec 14 - [Steinmeier ends Africa trip as first German president in Lesotho](https://www.yahoo.com/news/steinmeier-ends-africa-trip-first-165716152.html)
+- Dec 14 - [An elusive creature of the deep can live for centuries. Scientists think they know why](https://www.yahoo.com/news/elusive-creature-deep-live-centuries-160042374.html)
+- Dec 14 - [Western New York woman pardoned in largest single-day act of clemency](https://www.yahoo.com/news/western-york-woman-pardoned-largest-141806308.html)
+- Dec 14 - [An Illinois man couldn’t access the $25K he saved for his son in college because of a Wells Fargo check error](https://finance.yahoo.com/news/illinois-man-couldn-t-access-135700596.html)
 - Dec 14 - [Trump says he will seek to eliminate daylight saving time](https://www.yahoo.com/news/trump-says-seek-eliminate-daylight-133302074.html)
-- Dec 14 - [Trump considers privatizing U.S. Postal Service, Washington Post reports](https://finance.yahoo.com/news/trump-considers-privatizing-u-postal-131313688.html)
-- Dec 14 - [US Marines start partial transfer from Okinawa in Japan to Guam under plan agreed 12 years ago](https://www.yahoo.com/news/us-marines-start-partial-transfer-115146672.html)
-- Dec 14 - [Momentum builds around Social Security reforms ahead of Senate vote](https://www.yahoo.com/news/momentum-builds-around-social-security-110000517.html)
 <!-- feed end -->
 
 ### Onstream
