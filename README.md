@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Here's How People Are Reacting To Donald Trump Saying Lowering Grocery Prices Will Be "Very Hard"](https://www.yahoo.com/news/donald-trump-already-walked-back-221600205.html)
+- Dec 14 - [Bob Fernandez, 100-year-old Pearl Harbor survivor, dies peacefully at home 83 years after bombing](https://www.yahoo.com/news/bob-fernandez-100-old-pearl-002526807.html)
 - Dec 13 - [We've Probably Been Wrong About T. Rex Again, Study Says](https://www.yahoo.com/news/weve-probably-wrong-t-rex-215550705.html)
 - Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
-- Dec 13 - [Kimberly Guilfoyle Grovels to Greek Billionaire After ‘Freeloaders’ Insult](https://www.yahoo.com/news/kimberly-guilfoyle-grovels-greek-billionaire-205248182.html)
-- Dec 13 - [The airline industry's 'Big 3' will get even bigger next year](https://finance.yahoo.com/news/airline-industrys-big-3-even-204300156.html)
+- Dec 13 - [Incurable, 'highly contagious' STD affects nearly 900 million people under age 50](https://www.yahoo.com/news/incurable-highly-contagious-std-affects-205102550.html)
+- Dec 13 - [These Are The Most Reliable Cars And SUVs You Can Buy In 2025, According To Consumer Reports](https://autos.yahoo.com/most-reliable-cars-suvs-buy-183000162.html)
 <!-- feed end -->
 
 ### Onstream
