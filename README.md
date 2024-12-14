@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [Here's How People Are Reacting To Donald Trump Saying Lowering Grocery Prices Will Be "Very Hard"](https://www.yahoo.com/news/donald-trump-already-walked-back-221600205.html)
+- Dec 13 - [We've Probably Been Wrong About T. Rex Again, Study Says](https://www.yahoo.com/news/weve-probably-wrong-t-rex-215550705.html)
 - Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
 - Dec 13 - [Kimberly Guilfoyle Grovels to Greek Billionaire After ‘Freeloaders’ Insult](https://www.yahoo.com/news/kimberly-guilfoyle-grovels-greek-billionaire-205248182.html)
-- Dec 13 - [Truck Slams Into Fire Engine](https://www.yahoo.com/news/truck-slams-fire-engine-192748353.html)
-- Dec 13 - [These Are The Most Reliable Cars And SUVs You Can Buy In 2025, According To Consumer Reports](https://autos.yahoo.com/most-reliable-cars-suvs-buy-183000162.html)
-- Dec 13 - [Oklahoma panel rejects man's plea for mercy, paves the way for final US execution of 2024](https://www.yahoo.com/news/oklahoma-panel-rejects-mans-plea-181242479.html)
+- Dec 13 - [The airline industry's 'Big 3' will get even bigger next year](https://finance.yahoo.com/news/airline-industrys-big-3-even-204300156.html)
 <!-- feed end -->
 
 ### Onstream
