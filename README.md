@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Bob Fernandez, 100-year-old Pearl Harbor survivor, dies peacefully at home 83 years after bombing](https://www.yahoo.com/news/bob-fernandez-100-old-pearl-002526807.html)
-- Dec 13 - [We've Probably Been Wrong About T. Rex Again, Study Says](https://www.yahoo.com/news/weve-probably-wrong-t-rex-215550705.html)
+- Dec 14 - [Crash at Highway 22 and Highway 51 interchange near Salem causes delays](https://www.yahoo.com/news/crash-highway-22-highway-51-025811908.html)
+- Dec 13 - [Bernie Sanders Proposes Taxing Income Over $1 Billion At 100% And Urges It's Time To Make 'Greedy Billionaires' Pay Their Fair Share](https://finance.yahoo.com/news/bernie-sanders-proposes-taxing-income-233949530.html)
+- Dec 13 - [People Can't Believe Donald Trump's Response To Being Asked About His Plans To Lower Grocery Prices](https://www.yahoo.com/news/donald-trump-already-walked-back-221600205.html)
 - Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
-- Dec 13 - [Incurable, 'highly contagious' STD affects nearly 900 million people under age 50](https://www.yahoo.com/news/incurable-highly-contagious-std-affects-205102550.html)
-- Dec 13 - [These Are The Most Reliable Cars And SUVs You Can Buy In 2025, According To Consumer Reports](https://autos.yahoo.com/most-reliable-cars-suvs-buy-183000162.html)
+- Dec 13 - [Indiana man secures record $37M settlement in construction zone crash](https://www.yahoo.com/news/indiana-man-secures-record-37m-204944362.html)
 <!-- feed end -->
 
 ### Onstream
