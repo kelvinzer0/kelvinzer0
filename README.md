@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Dec 14 - [A diminished Hezbollah is made even weaker by the toppling of Assad in Syria](https://www.yahoo.com/news/diminished-hezbollah-made-even-weaker-050235087.html)
 - Dec 14 - [Why Israel captured Syria’s tallest mountain just hours after Assad fell](https://www.yahoo.com/news/why-israel-captured-syria-tallest-050042455.html)
 - Dec 14 - [Mother of suspect in CEO's killing told police person of interest could be her son, sources say](https://www.yahoo.com/news/mother-suspect-ceos-killing-told-042206947.html)
-- Dec 14 - [Mysterious Secret Santa gives thousands of dollars to North Carolina victims of Helene](https://www.yahoo.com/news/mysterious-secret-santa-gives-thousands-005259646.html)
+- Dec 14 - [Mega Millions winning numbers for Dec. 13, 2024 lottery drawing jackpot. Winner last night?](https://www.yahoo.com/news/mega-millions-winning-numbers-dec-014505230.html)
 - Dec 14 - [Bob Fernandez, 100-year-old Pearl Harbor survivor, dies peacefully at home 83 years after bombing](https://www.yahoo.com/news/bob-fernandez-100-old-pearl-002526807.html)
 <!-- feed end -->
 
