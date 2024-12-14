@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Why Israel captured Syria’s tallest mountain just hours after Assad fell](https://www.yahoo.com/news/why-israel-captured-syria-tallest-050042455.html)
+- Dec 14 - [Philadelphia woman uses Siri to call police on men who broke into her home](https://www.yahoo.com/news/philadelphia-woman-uses-siri-call-033533933.html)
 - Dec 14 - [Bob Fernandez, 100-year-old Pearl Harbor survivor, dies peacefully at home 83 years after bombing](https://www.yahoo.com/news/bob-fernandez-100-old-pearl-002526807.html)
 - Dec 14 - [Father of crash victims blames Jefferson Parish Sheriff’s Office for pursuing suspected shoplifter](https://www.yahoo.com/news/father-crash-victims-blames-jefferson-002247340.html)
-- Dec 14 - [This Utah woman was pardoned by President Biden — Here’s why](https://www.yahoo.com/news/utah-woman-pardoned-president-biden-000223748.html)
-- Dec 13 - [People Can't Believe Donald Trump's Response To Being Asked About His Plans To Lower Grocery Prices](https://www.yahoo.com/news/donald-trump-already-walked-back-221600205.html)
+- Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
+- Dec 13 - [Incurable, 'highly contagious' STD affects nearly 900 million people under age 50](https://www.yahoo.com/news/incurable-highly-contagious-std-affects-205102550.html)
 <!-- feed end -->
 
 ### Onstream
