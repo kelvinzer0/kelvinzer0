@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 14 - [US Marines start partial transfer from Okinawa in Japan to Guam under plan agreed 12 years ago](https://www.yahoo.com/news/us-marines-start-partial-transfer-115146672.html)
 - Dec 14 - [NFL star Odell Beckham Jr., who took his $750,000 salary in bitcoin back in 2021, pokes fun at naysayers](https://finance.yahoo.com/news/nfl-star-odell-beckham-jr-113200164.html)
 - Dec 14 - [Ukrainian drones hit oil facility in Russia's Oryol region](https://www.yahoo.com/news/ukrainian-drones-hit-oil-facility-111034492.html)
-- Dec 14 - [Why Israel captured Syria’s tallest mountain just hours after Assad fell](https://www.yahoo.com/news/why-israel-captured-syria-tallest-050042455.html)
-- Dec 14 - [Bob Fernandez, 100-year-old Pearl Harbor survivor, dies peacefully at home 83 years after bombing](https://www.yahoo.com/news/bob-fernandez-100-old-pearl-002526807.html)
+- Dec 14 - [Momentum builds around Social Security reforms ahead of Senate vote](https://www.yahoo.com/news/momentum-builds-around-social-security-110000517.html)
+- Dec 14 - [Scientists warn of 'urgent need for action' against bitcoin surge — here's what's happening](https://www.yahoo.com/news/scientists-warn-urgent-action-against-104546967.html)
 <!-- feed end -->
 
 ### Onstream
