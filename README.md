@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [A diminished Hezbollah is made even weaker by the toppling of Assad in Syria](https://www.yahoo.com/news/diminished-hezbollah-made-even-weaker-050235087.html)
 - Dec 14 - [Why Israel captured Syria’s tallest mountain just hours after Assad fell](https://www.yahoo.com/news/why-israel-captured-syria-tallest-050042455.html)
-- Dec 14 - [Meta urges California attorney general to stop OpenAI from becoming for-profit, WSJ reports](https://finance.yahoo.com/news/meta-urges-california-attorney-general-010428038.html)
-- Dec 13 - [Scientists Urge Ban on 'Mirror Life' Before It Endangers Global Health](https://www.yahoo.com/news/scientists-urge-ban-mirror-life-232709183.html)
-- Dec 13 - [Trump wants to turn the clock on daylight saving time](https://www.yahoo.com/news/trump-wants-turn-clock-daylight-205440341.html)
-- Dec 13 - [Musk says US is demanding he pay penalty over disclosures of his Twitter stock purchases](https://finance.yahoo.com/news/musk-says-us-demanding-pay-170227604.html)
+- Dec 14 - [Mother of suspect in CEO's killing told police person of interest could be her son, sources say](https://www.yahoo.com/news/mother-suspect-ceos-killing-told-042206947.html)
+- Dec 14 - [Mysterious Secret Santa gives thousands of dollars to North Carolina victims of Helene](https://www.yahoo.com/news/mysterious-secret-santa-gives-thousands-005259646.html)
+- Dec 14 - [Bob Fernandez, 100-year-old Pearl Harbor survivor, dies peacefully at home 83 years after bombing](https://www.yahoo.com/news/bob-fernandez-100-old-pearl-002526807.html)
 <!-- feed end -->
 
 ### Onstream
