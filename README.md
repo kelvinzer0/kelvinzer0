@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - [Law roundup: Man props himself up as star of the show](https://www.yahoo.com/news/law-roundup-man-props-himself-140300079.html)
+- Dec 15 - [Social worker who assessed Sara Sharif’s parents didn’t identify father as a risk](https://www.yahoo.com/news/social-worker-assessed-sara-sharif-134912275.html)
+- Dec 15 - [Candid photos of Syria's Assad expose a world beyond the carefully crafted and repressive rule](https://www.yahoo.com/news/racy-photos-bashar-assad-discovered-132523648.html)
 - Dec 15 - [This Florida couple bought a vacant lot for $17,500 — then discovered they’re barred by law from building on it](https://finance.yahoo.com/news/florida-couple-bought-vacant-lot-131500587.html)
 - Dec 15 - [Kiyosaki warns that Boomers will be the losers once the ‘biggest crash in history’ comes](https://finance.yahoo.com/news/kiyosaki-warns-boomers-losers-once-113300030.html)
-- Dec 15 - [World's largest cruise line under fire after report uncovers alarming statistic: 'Bigger isn't better'](https://www.yahoo.com/news/worlds-largest-cruise-line-under-103210334.html)
-- Dec 15 - [The door is open for Musk's DOGE to achieve a quick win: slashing billions of dollars in fraud in federal programs like Medicare](https://www.yahoo.com/news/door-open-musks-doge-achieve-101702429.html)
-- Dec 15 - [One week into a new Syria, rebels aim for normalcy and Syrians vow not to be silent again](https://www.yahoo.com/news/one-week-syria-rebels-aim-050356108.html)
 <!-- feed end -->
 
 ### Onstream
