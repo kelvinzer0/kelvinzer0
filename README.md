@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 15 - [A New Study Has Found That 'Eldest Daughter Syndrome' Is A Real Thing, So Call Your Sister And Let Her Know](https://www.yahoo.com/lifestyle/study-found-eldest-daughter-syndrome-003102782.html)
-- Dec 14 - [Jamie Foxx recovering after physical altercation at Beverly Hills restaurant](https://www.yahoo.com/entertainment/jamie-foxx-recovering-physical-altercation-214222199.html)
 - Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
-- Dec 14 - [Texas man gets 100 years in prison for shootings that killed 1, wounded others in Nevada, Arizona](https://www.yahoo.com/news/texas-man-gets-100-years-210805081.html)
-- Dec 14 - [Trump gives allies Devin Nunes, Richard Grenell key roles](https://www.yahoo.com/news/trump-names-truth-social-ceo-192734205.html)
+- Dec 14 - [Filipino woman on Indonesia death row recalls a stunning last minute reprieve and 'miracle' transfer](https://www.yahoo.com/news/filipino-woman-indonesia-death-row-173637240.html)
+- Dec 14 - [Enbridge pipeline spills 70,000 gallons of oil in Wisconsin](https://www.yahoo.com/news/enbridge-pipeline-spills-70-000-172521966.html)
+- Dec 14 - [Social Security retirement age set to change in 2025](https://www.yahoo.com/news/social-security-retirement-age-set-161412553.html)
 <!-- feed end -->
 
 ### Onstream
