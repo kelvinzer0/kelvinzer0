@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [Law roundup: Man props himself up as star of the show](https://www.yahoo.com/news/law-roundup-man-props-himself-140300079.html)
-- Dec 15 - [Social worker who assessed Sara Sharif’s parents didn’t identify father as a risk](https://www.yahoo.com/news/social-worker-assessed-sara-sharif-134912275.html)
-- Dec 15 - [Candid photos of Syria's Assad expose a world beyond the carefully crafted and repressive rule](https://www.yahoo.com/news/racy-photos-bashar-assad-discovered-132523648.html)
-- Dec 15 - [This Florida couple bought a vacant lot for $17,500 — then discovered they’re barred by law from building on it](https://finance.yahoo.com/news/florida-couple-bought-vacant-lot-131500587.html)
-- Dec 15 - [Kiyosaki warns that Boomers will be the losers once the ‘biggest crash in history’ comes](https://finance.yahoo.com/news/kiyosaki-warns-boomers-losers-once-113300030.html)
+- Dec 15 - [Furious King Charles May Ban Prince Andrew This Christmas After Spy Allegations](https://www.yahoo.com/news/furious-king-charles-may-ban-152407366.html)
+- Dec 15 - [Romney stands by Trump criticism but says MAGA is now the Republican Party](https://www.yahoo.com/news/romney-stands-trump-criticism-says-141027638.html)
+- Dec 15 - [The woman behind Capitol bathroom protest says trans people can’t trust Democrats to protect them](https://www.yahoo.com/news/woman-behind-capitol-bathroom-protest-145340658.html)
+- Dec 15 - [Biden’s pardon of son Hunter sets ‘dangerous’ precedent, Sen. Bernie Sanders says](https://www.yahoo.com/news/biden-pardon-son-hunter-sets-144425801.html)
+- Dec 15 - [Dave Ramsey: 7 Steps for Withdrawing Money From Your Retirement Account Once You’ve Retired](https://finance.yahoo.com/news/dave-ramsey-7-steps-withdrawing-110036941.html)
 <!-- feed end -->
 
 ### Onstream
