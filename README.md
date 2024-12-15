@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - [STMicroelectronics (STM) and Qualcomm Unveil AI-Powered IoT Module: A Leap in Wireless Innovation](https://finance.yahoo.com/news/stmicroelectronics-stm-qualcomm-unveil-ai-195101139.html)
+- Dec 15 - [Syrian Prisoner Freed by CNN’s Clarissa Ward May Have Been Intelligence Officer in Hiding](https://www.yahoo.com/news/syrian-prisoner-freed-cnn-clarissa-174319777.html)
 - Dec 15 - [Mark Cuban Says, 'I Don't Know Cars Or Rockets,' But Schools Elon Musk On How American Health Insurance Works](https://finance.yahoo.com/news/mark-cuban-says-dont-know-173037242.html)
-- Dec 15 - [Missing Hawaii Woman Hannah Kobayashi Shares Heartbreaking Message With Family](https://www.yahoo.com/news/missing-hawaii-woman-hannah-kobayashi-162612924.html)
 - Dec 15 - [Mitt Romney Makes Bold Prediction for 2028 GOP Presidential Nominee](https://www.yahoo.com/news/mitt-romney-makes-bold-prediction-154807486.html)
 - Dec 15 - [Furious King Charles May Ban Prince Andrew This Christmas After Spy Allegations](https://www.yahoo.com/news/furious-king-charles-may-ban-152407366.html)
-- Dec 15 - [Biden’s pardon of son Hunter sets ‘dangerous’ precedent, Sen. Bernie Sanders says](https://www.yahoo.com/news/biden-pardon-son-hunter-sets-144425801.html)
 <!-- feed end -->
 
 ### Onstream
