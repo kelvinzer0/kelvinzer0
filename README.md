@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [Apparent tornado in California flips cars, sends several to hospital](https://www.yahoo.com/news/apparent-tornado-california-flips-cars-042800837.html)
-- Dec 15 - [Southern California taco truck vendor forced out after grocery store threatens legal action](https://www.yahoo.com/news/southern-california-taco-truck-vendor-034857614.html)
+- Dec 15 - [A Shocking Bitcoin Forecast for 2025 From the Wall Street Analyst Who Predicted Its Rise to $100,000 in 2024](https://finance.yahoo.com/news/shocking-bitcoin-forecast-2025-wall-084000127.html)
+- Dec 15 - [One week into a new Syria, rebels aim for normalcy and Syrians vow not to be silent again](https://www.yahoo.com/news/one-week-syria-rebels-aim-050356108.html)
 - Dec 14 - [Jamie Foxx recovering after physical altercation at Beverly Hills restaurant](https://www.yahoo.com/entertainment/jamie-foxx-recovering-physical-altercation-214222199.html)
 - Dec 14 - [Ukraine to set up mechanism to supply food to Syria, Zelenskiy says](https://www.yahoo.com/news/ukraine-set-mechanism-supply-food-224135053.html)
-- Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
+- Dec 14 - [Texas man gets 100 years in prison for shootings that killed 1, wounded others in Nevada, Arizona](https://www.yahoo.com/news/texas-man-gets-100-years-210805081.html)
 <!-- feed end -->
 
 ### Onstream
