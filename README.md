@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [Activists release images of foxes at Finnish fur farms to push EU to ban the trade](https://www.yahoo.com/news/activists-release-images-foxes-finnish-040101347.html)
-- Dec 15 - [Trump taps Richard Grenell as presidential envoy for special missions, Edward S. Walsh as Ireland ambassador](https://www.yahoo.com/news/trump-taps-richard-grenell-presidential-014649023.html)
+- Dec 14 - [Ukraine to set up mechanism to supply food to Syria, Zelenskiy says](https://www.yahoo.com/news/ukraine-set-mechanism-supply-food-224135053.html)
 - Dec 14 - [Texas man gets 100 years in prison for shootings that killed 1, wounded others in Nevada, Arizona](https://www.yahoo.com/news/texas-man-gets-100-years-210805081.html)
 - Dec 14 - [Police search for whoever discarded an emaciated bulldog inside a trash bag in Iowa](https://www.yahoo.com/news/police-search-whoever-discarded-emaciated-201423683.html)
 - Dec 14 - [Filipino woman on Indonesia death row recalls a stunning last minute reprieve and 'miracle' transfer](https://www.yahoo.com/news/filipino-woman-indonesia-death-row-173637240.html)
+- Dec 14 - [Enbridge pipeline spills 70,000 gallons of oil in Wisconsin](https://www.yahoo.com/news/enbridge-pipeline-spills-70-000-172521966.html)
 <!-- feed end -->
 
 ### Onstream
