@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [One week into a new Syria, rebels aim for normalcy and Syrians vow not to be silent again](https://www.yahoo.com/news/one-week-syria-rebels-aim-050356108.html)
+- Dec 15 - [Plans to build Britain's biggest Muslim cemetery for 12k people slammed by locals](https://www.yahoo.com/news/plans-build-britains-biggest-muslim-090538131.html)
+- Dec 15 - [Barista takes down attempted robber, holds him down until San Francisco police arrive](https://www.yahoo.com/news/barista-takes-down-attempted-robber-014915412.html)
+- Dec 14 - [Ukraine to set up mechanism to supply food to Syria, Zelenskiy says](https://www.yahoo.com/news/ukraine-set-mechanism-supply-food-224135053.html)
+- Dec 14 - [‘We’re monitoring the situation’: Gov. Healey provides statement regarding recent drone sightings](https://www.yahoo.com/news/monitoring-situation-gov-healey-provides-213429540.html)
 - Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
-- Dec 14 - [Texas man gets 100 years in prison for shootings that killed 1, wounded others in Nevada, Arizona](https://www.yahoo.com/news/texas-man-gets-100-years-210805081.html)
-- Dec 14 - [Filipino woman on Indonesia death row recalls a stunning last minute reprieve and 'miracle' transfer](https://www.yahoo.com/news/filipino-woman-indonesia-death-row-173637240.html)
-- Dec 14 - [Social Security retirement age set to change in 2025](https://www.yahoo.com/news/social-security-retirement-age-set-161412553.html)
 <!-- feed end -->
 
 ### Onstream
