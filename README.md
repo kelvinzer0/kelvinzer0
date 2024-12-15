@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [Plans to build Britain's biggest Muslim cemetery for 12k people slammed by locals](https://www.yahoo.com/news/plans-build-britains-biggest-muslim-090538131.html)
-- Dec 15 - [Barista takes down attempted robber, holds him down until San Francisco police arrive](https://www.yahoo.com/news/barista-takes-down-attempted-robber-014915412.html)
+- Dec 15 - [Apparent tornado in California flips cars, sends several to hospital](https://www.yahoo.com/news/apparent-tornado-california-flips-cars-042800837.html)
+- Dec 15 - [Southern California taco truck vendor forced out after grocery store threatens legal action](https://www.yahoo.com/news/southern-california-taco-truck-vendor-034857614.html)
+- Dec 14 - [Jamie Foxx recovering after physical altercation at Beverly Hills restaurant](https://www.yahoo.com/entertainment/jamie-foxx-recovering-physical-altercation-214222199.html)
 - Dec 14 - [Ukraine to set up mechanism to supply food to Syria, Zelenskiy says](https://www.yahoo.com/news/ukraine-set-mechanism-supply-food-224135053.html)
-- Dec 14 - [‘We’re monitoring the situation’: Gov. Healey provides statement regarding recent drone sightings](https://www.yahoo.com/news/monitoring-situation-gov-healey-provides-213429540.html)
 - Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
 <!-- feed end -->
 
