@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [A New Study Has Found That 'Eldest Daughter Syndrome' Is A Real Thing, So Call Your Sister And Let Her Know](https://www.yahoo.com/lifestyle/study-found-eldest-daughter-syndrome-003102782.html)
+- Dec 15 - [Russia has begun using North Korean troops in significant numbers in Ukraine, Zelensky says](https://www.yahoo.com/news/russia-begun-using-north-korean-063843463.html)
 - Dec 14 - [Ukraine to set up mechanism to supply food to Syria, Zelenskiy says](https://www.yahoo.com/news/ukraine-set-mechanism-supply-food-224135053.html)
-- Dec 14 - [Dozens of luxury condos, hotels in Miami sinking at ‘unexpected’ rates, new study reveals](https://www.yahoo.com/news/dozens-luxury-condos-hotels-miami-220459731.html)
-- Dec 14 - [Police search for whoever discarded an emaciated bulldog inside a trash bag in Iowa](https://www.yahoo.com/news/police-search-whoever-discarded-emaciated-201423683.html)
+- Dec 14 - [‘We’re monitoring the situation’: Gov. Healey provides statement regarding recent drone sightings](https://www.yahoo.com/news/monitoring-situation-gov-healey-provides-213429540.html)
+- Dec 14 - [Airboat company says it regrets Everglades crash, wishes passengers 'a speedy recovery'](https://www.yahoo.com/news/airboat-company-says-regrets-everglades-181337582.html)
 - Dec 14 - [Filipino woman on Indonesia death row recalls a stunning last minute reprieve and 'miracle' transfer](https://www.yahoo.com/news/filipino-woman-indonesia-death-row-173637240.html)
 <!-- feed end -->
 
