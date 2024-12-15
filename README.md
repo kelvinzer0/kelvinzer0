@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - [4 Trucks Retirees Should Consider Buying Before Christmas](https://www.yahoo.com/news/4-trucks-retirees-consider-buying-120229679.html)
+- Dec 15 - [Kiyosaki warns that Boomers will be the losers once the ‘biggest crash in history’ comes](https://finance.yahoo.com/news/kiyosaki-warns-boomers-losers-once-113300030.html)
+- Dec 15 - [The door is open for Musk's DOGE to achieve a quick win: slashing billions of dollars in fraud in federal programs like Medicare](https://www.yahoo.com/news/door-open-musks-doge-achieve-101702429.html)
 - Dec 15 - [Oil spills into Kerch Strait after Russian tanker breaks apart in storm](https://www.yahoo.com/news/russian-cargo-ship-carrying-oil-101537695.html)
-- Dec 15 - [A Shocking Bitcoin Forecast for 2025 From the Wall Street Analyst Who Predicted Its Rise to $100,000 in 2024](https://finance.yahoo.com/news/shocking-bitcoin-forecast-2025-wall-084000127.html)
-- Dec 15 - [One week into a new Syria, rebels aim for normalcy and Syrians vow not to be silent again](https://www.yahoo.com/news/one-week-syria-rebels-aim-050356108.html)
-- Dec 14 - [Jamie Foxx recovering after physical altercation at Beverly Hills restaurant](https://www.yahoo.com/entertainment/jamie-foxx-recovering-physical-altercation-214222199.html)
-- Dec 14 - [Ukraine to set up mechanism to supply food to Syria, Zelenskiy says](https://www.yahoo.com/news/ukraine-set-mechanism-supply-food-224135053.html)
+- Dec 15 - [Germany warns Assad supporters involved in atrocities in Syria against trying to flee there](https://www.yahoo.com/news/germany-warns-assad-supporters-involved-091120044.html)
 <!-- feed end -->
 
 ### Onstream
