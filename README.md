@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 15 - [California DMV apologizes for license plate, car owner's son says it's 'misunderstanding'](https://www.yahoo.com/news/california-dmv-apologizes-license-plate-195818079.html)
-- Dec 15 - [Pizza Chains That Might Not Be Around Much Longer](https://finance.yahoo.com/news/pizza-chains-might-not-around-184013680.html)
-- Dec 15 - [Syrian Prisoner Freed by CNN’s Clarissa Ward May Have Been Intelligence Officer in Hiding](https://www.yahoo.com/news/syrian-prisoner-freed-cnn-clarissa-174319777.html)
-- Dec 15 - [Mark Cuban Says, 'I Don't Know Cars Or Rockets,' But Schools Elon Musk On How American Health Insurance Works](https://finance.yahoo.com/news/mark-cuban-says-dont-know-173037242.html)
+- Dec 15 - [Elon Musk 'Jokingly' Refers To Apple As The 'Tesla Graveyard' And Says Steve Jobs Was 'Kind Of A Jerk' To Him When They Met At A Party](https://finance.yahoo.com/news/elon-musk-jokingly-refers-apple-190015107.html)
+- Dec 15 - [Israel will close its Ireland embassy over Gaza tensions as Palestinian death toll nears 45,000](https://www.yahoo.com/news/israel-close-ireland-embassy-over-155741507.html)
 - Dec 15 - [Watch: Ukrainian ‘drone plane’ strikes base in Chechnya](https://www.yahoo.com/news/watch-ukrainian-drone-plane-strikes-155546250.html)
+- Dec 15 - [Mitt Romney Makes Bold Prediction for 2028 GOP Presidential Nominee](https://www.yahoo.com/news/mitt-romney-makes-bold-prediction-154807486.html)
 <!-- feed end -->
 
 ### Onstream
