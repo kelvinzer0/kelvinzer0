@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
+- Dec 15 - [A New Study Has Found That 'Eldest Daughter Syndrome' Is A Real Thing, So Call Your Sister And Let Her Know](https://www.yahoo.com/lifestyle/study-found-eldest-daughter-syndrome-003102782.html)
 - Dec 14 - [Jamie Foxx recovering after physical altercation at Beverly Hills restaurant](https://www.yahoo.com/entertainment/jamie-foxx-recovering-physical-altercation-214222199.html)
-- Dec 14 - [1 person dead after ‘active shooter’ leads to U.S. Army installation lockdown in east Georgia](https://www.yahoo.com/news/georgia-u-army-installation-goes-140331558.html)
-- Dec 14 - [Trump taps Truth Social CEO Nunes to lead intelligence board](https://www.yahoo.com/news/trump-names-truth-social-ceo-192734205.html)
-- Dec 14 - [Enbridge pipeline spills 70,000 gallons of oil in Wisconsin](https://www.yahoo.com/news/enbridge-pipeline-spills-70-000-172521966.html)
+- Dec 14 - [ABC News settles defamation suit with Trump for $15 million](https://www.yahoo.com/news/abc-news-settles-defamation-suit-211159841.html)
+- Dec 14 - [Texas man gets 100 years in prison for shootings that killed 1, wounded others in Nevada, Arizona](https://www.yahoo.com/news/texas-man-gets-100-years-210805081.html)
+- Dec 14 - [Trump gives allies Devin Nunes, Richard Grenell key roles](https://www.yahoo.com/news/trump-names-truth-social-ceo-192734205.html)
 <!-- feed end -->
 
 ### Onstream
