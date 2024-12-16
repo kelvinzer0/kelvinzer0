@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Dua Lipa’s Big Year In 2024: ‘Radical Optimism’ Is No. 1, Headlining Glastonbury & More | Global No. 1s](https://www.yahoo.com/entertainment/dua-lipa-big-2024-radical-150000794.html)
-- Dec 16 - [Nvidia Falls As Rivals Circle Amid Huge Bet, Analyst Says; Is Nvidia A Buy Or Sell Now?](https://www.investors.com/research/nvidia-nvda-stock-december-2024/?src=A00220&yptr=yahoo)
-- Dec 16 - [Twelve die from carbon monoxide poisoning at Georgian ski resort](https://www.yahoo.com/news/twelve-die-carbon-monoxide-poisoning-142428910.html)
-- Dec 16 - [Here's Why North Sea Should Be on Every Investor's Radar in 2025](https://finance.yahoo.com/news/heres-why-north-sea-every-122400994.html)
-- Dec 16 - [Syrian rebel force deploys to a village near Damascus to stop looters](https://www.yahoo.com/news/syrian-rebel-force-deploys-village-121701508.html)
+- Dec 16 - [Market just 'catching its breath' for Santa Claus Rally: Strategist](https://finance.yahoo.com/video/market-just-catching-breath-santa-161500276.html)
+- Dec 16 - [Lawyer for convicted British killer nurse Lucy Letby says new evidence is grounds for appeal](https://www.yahoo.com/news/lawyer-convicted-british-killer-nurse-161121978.html)
+- Dec 16 - [Democrats eye Harris 2028 presidential run as they devise political comeback](https://www.yahoo.com/news/democrats-eye-harris-2028-presidential-160359218.html)
+- Dec 16 - [This Baltimore parking lot attendant built a $500K stock portfolio — even though he never made more than $12/hour](https://finance.yahoo.com/news/baltimore-parking-lot-attendant-built-160000602.html)
+- Dec 16 - [Moment German Highway Bridge Blown Up in Controlled Explosion](https://www.yahoo.com/news/moment-german-highway-bridge-blown-153116490.html)
 <!-- feed end -->
 
 ### Onstream
