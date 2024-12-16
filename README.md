@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Ruling party chief resigns as South Korean president refuses to appear at hearing](https://www.yahoo.com/news/ruling-party-chief-resigns-south-100308234.html)
+- Dec 16 - [Biden to sign proclamation establishing national monument honoring first US female Cabinet secretary](https://www.yahoo.com/news/biden-sign-proclamation-establishing-national-100156958.html)
+- Dec 16 - [Social Security Changes Proposed by President-Elect Donald Trump Could Be Bad News for Retirees, According to a Recent Report](https://www.yahoo.com/news/social-security-changes-proposed-president-094400634.html)
+- Dec 16 - [Oneida County restaurant inspections: How safe is your favorite place to eat?](https://www.yahoo.com/lifestyle/oneida-county-restaurant-inspections-safe-093143468.html)
 - Dec 16 - [Leader of Russia's Chechnya says he is ready to ensure wheat supplies to Syria if necessary](https://www.yahoo.com/news/leader-russias-chechnya-says-ready-083734196.html)
-- Dec 16 - [For the first time in 8 years, a US Navy ship makes a port call in Cambodia, a top Chinese ally](https://www.yahoo.com/news/first-time-8-years-us-074249979.html)
-- Dec 16 - [Survivors seek a reckoning as FBI investigates child sex abuse in little-known Christian sect](https://www.yahoo.com/news/survivors-seek-reckoning-fbi-investigates-050800620.html)
-- Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
-- Dec 16 - [As Trump threatens mass deportations, Central America braces for an influx of vulnerable migrants](https://www.yahoo.com/news/trump-threatens-mass-deportations-central-041709665.html)
 <!-- feed end -->
 
 ### Onstream
