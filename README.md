@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Oil eases from highest in weeks, investors eye Fed rate cuts](https://finance.yahoo.com/news/oil-eases-highest-weeks-investors-011707614.html)
+- Dec 16 - [Filipino woman who was on death row in Indonesia will return home after almost 15 years in prison](https://www.yahoo.com/news/filipino-woman-death-row-indonesia-005445203.html)
 - Dec 16 - [This Is One Unexpected Sign Of Colon Cancer That Doctors Urge People Not To Ignore](https://www.yahoo.com/lifestyle/one-unexpected-sign-colon-cancer-003102152.html)
-- Dec 16 - [Growing calls for action as drone sightings increase](https://www.yahoo.com/news/growing-calls-action-drone-sightings-000728265.html)
-- Dec 15 - [Consumer backlash erupts after backpack in video from UnitedHealthcare CEO shooting is identified by its manufacturer](https://www.yahoo.com/news/consumer-backlash-erupts-backpack-video-225614959.html)
-- Dec 15 - [Oregon winter storm warning: Up to 20 inches of snow forecast for Cascade passes](https://www.yahoo.com/news/winter-storm-warning-issued-oregon-223646610.html)
+- Dec 16 - [4 Things That Could Get More Expensive for Retirees in 2025 Under Trump](https://finance.yahoo.com/news/4-things-could-more-expensive-160139863.html)
+- Dec 15 - [More than 120 House Democrats send letter to Biden urging him to ratify Equal Rights Amendment](https://www.yahoo.com/news/more-120-house-democrats-send-222246746.html)
+- Dec 15 - [Thousands feared dead after cyclone hits French island of Mayotte](https://www.yahoo.com/news/thousands-feared-dead-cyclone-hits-220204803.html)
 <!-- feed end -->
 
 ### Onstream
