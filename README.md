@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Filipino woman who was on death row in Indonesia will return home after almost 15 years in prison](https://www.yahoo.com/news/filipino-woman-death-row-indonesia-005445203.html)
+- Dec 16 - [As Trump promises mass deportations, Central America braces for an influx of vulnerable migrants](https://www.yahoo.com/news/trump-promises-mass-deportations-central-030105412.html)
+- Dec 16 - [No one in custody days after body found in luxury South End apartment building](https://www.yahoo.com/news/no-one-custody-days-body-022006390.html)
 - Dec 16 - [This Is One Unexpected Sign Of Colon Cancer That Doctors Urge People Not To Ignore](https://www.yahoo.com/lifestyle/one-unexpected-sign-colon-cancer-003102152.html)
-- Dec 16 - [4 Things That Could Get More Expensive for Retirees in 2025 Under Trump](https://finance.yahoo.com/news/4-things-could-more-expensive-160139863.html)
-- Dec 15 - [More than 120 House Democrats send letter to Biden urging him to ratify Equal Rights Amendment](https://www.yahoo.com/news/more-120-house-democrats-send-222246746.html)
-- Dec 15 - [Thousands feared dead after cyclone hits French island of Mayotte](https://www.yahoo.com/news/thousands-feared-dead-cyclone-hits-220204803.html)
+- Dec 15 - [Sylvester Stallone angers Palm Beach neighbors with unique request to protect $35 million mansion](https://www.yahoo.com/entertainment/sylvester-stallone-angers-palm-beach-225616392.html)
+- Dec 15 - [Decades-Submerged Corvette Rescued from Oregon River](https://autos.yahoo.com/decades-submerged-corvette-rescued-oregon-183000619.html)
 <!-- feed end -->
 
 ### Onstream
