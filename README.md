@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [What is the Golan Heights and why is the territory so important to Israel and Syria?](https://www.yahoo.com/news/golan-heights-why-territory-important-124038437.html)
+- Dec 16 - [Ukraine reports North Korean losses on Russia's Kursk front](https://www.yahoo.com/news/ukraine-reports-north-korean-losses-090414078.html)
+- Dec 16 - [The Fed could be on the verge of ripping up its rate script for 2025](https://finance.yahoo.com/news/the-fed-could-be-on-the-verge-of-ripping-up-its-rate-script-for-2025-090053343.html)
+- Dec 16 - [Leader of Russia's Chechnya says he is ready to ensure wheat supplies to Syria if necessary](https://www.yahoo.com/news/leader-russias-chechnya-says-ready-083734196.html)
+- Dec 16 - [For the first time in 8 years, a US Navy ship makes a port call in Cambodia, a top Chinese ally](https://www.yahoo.com/news/first-time-8-years-us-074249979.html)
 - Dec 16 - [Shock as Trump Adviser Collapses on Stage at New York Young Republican Gala](https://www.yahoo.com/news/shock-trump-adviser-collapses-stage-053308177.html)
-- Dec 16 - [As Trump threatens mass deportations, Central America braces for an influx of vulnerable migrants](https://www.yahoo.com/news/trump-threatens-mass-deportations-central-041709665.html)
-- Dec 16 - [Filipino woman who was on death row in Indonesia will return home after almost 15 years in prison](https://www.yahoo.com/news/filipino-woman-death-row-indonesia-005445203.html)
-- Dec 16 - [This Is One Unexpected Sign Of Colon Cancer That Doctors Urge People Not To Ignore](https://www.yahoo.com/lifestyle/one-unexpected-sign-colon-cancer-003102152.html)
 <!-- feed end -->
 
 ### Onstream
