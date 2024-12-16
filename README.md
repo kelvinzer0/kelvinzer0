@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [California DMV apologizes for license plate, car owner's son says it's 'misunderstanding'](https://www.yahoo.com/news/california-dmv-apologizes-license-plate-195818079.html)
-- Dec 15 - [Elon Musk 'Jokingly' Refers To Apple As The 'Tesla Graveyard' And Says Steve Jobs Was 'Kind Of A Jerk' To Him When They Met At A Party](https://finance.yahoo.com/news/elon-musk-jokingly-refers-apple-190015107.html)
-- Dec 15 - [Israel will close its Ireland embassy over Gaza tensions as Palestinian death toll nears 45,000](https://www.yahoo.com/news/israel-close-ireland-embassy-over-155741507.html)
-- Dec 15 - [Watch: Ukrainian ‘drone plane’ strikes base in Chechnya](https://www.yahoo.com/news/watch-ukrainian-drone-plane-strikes-155546250.html)
-- Dec 15 - [Mitt Romney Makes Bold Prediction for 2028 GOP Presidential Nominee](https://www.yahoo.com/news/mitt-romney-makes-bold-prediction-154807486.html)
+- Dec 16 - [Oil eases from highest in weeks, investors eye Fed rate cuts](https://finance.yahoo.com/news/oil-eases-highest-weeks-investors-011707614.html)
+- Dec 16 - [This Is One Unexpected Sign Of Colon Cancer That Doctors Urge People Not To Ignore](https://www.yahoo.com/lifestyle/one-unexpected-sign-colon-cancer-003102152.html)
+- Dec 16 - [Growing calls for action as drone sightings increase](https://www.yahoo.com/news/growing-calls-action-drone-sightings-000728265.html)
+- Dec 15 - [Consumer backlash erupts after backpack in video from UnitedHealthcare CEO shooting is identified by its manufacturer](https://www.yahoo.com/news/consumer-backlash-erupts-backpack-video-225614959.html)
+- Dec 15 - [Oregon winter storm warning: Up to 20 inches of snow forecast for Cascade passes](https://www.yahoo.com/news/winter-storm-warning-issued-oregon-223646610.html)
 <!-- feed end -->
 
 ### Onstream
