@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Public warned of heavy police presence in Natick amid ongoing FBI investigation](https://www.yahoo.com/news/public-warned-heavy-police-presence-201332998.html)
-- Dec 16 - [Stock Market Today: Dow Jones Dips As Warren Buffett Play Eyes Entry; Cathie Wood Loads Up On This AI Stock Amid 48% Plunge](https://www.investors.com/market-trend/stock-market-today/dow-jones-nasdaq-sp500-bitcoin-cathie-wood-palantir-nvidia-super-micro/?src=A00220&yptr=yahoo)
+- Dec 16 - [Inheritance & savings: Planning challenges for LGBTQ+ individuals](https://finance.yahoo.com/video/inheritance-savings-planning-challenges-lgbtq-230042512.html)
+- Dec 16 - [Marjorie Taylor Greene roasted online for unequivocally saying ‘vaccines cause autism’](https://www.yahoo.com/news/marjorie-taylor-greene-roasted-online-225844491.html)
+- Dec 16 - [Wisconsin School Shooter Identified as 17-Year-Old Female Student: Reports](https://www.yahoo.com/news/wisconsin-school-shooter-identified-17-222009828.html)
 - Dec 16 - [New England ski area offering free lift tickets all season thanks to ‘generous’ gift](https://sports.yahoo.com/england-ski-area-offering-free-204801110.html)
-- Dec 16 - [Former prison guard trainee is sentenced to death for killing 5 women at a Florida bank](https://www.yahoo.com/news/former-prison-guard-trainee-sentenced-202628221.html)
-- Dec 16 - [‘The plan is to lie…and get the man confirmed’: Steele slams Trump tapping RFK Jr.](https://www.yahoo.com/news/plan-lie-man-confirmed-steele-202620935.html)
+- Dec 16 - [Insurer stocks fall after Trump says 'we're going to knock out the middleman'](https://finance.yahoo.com/news/insurer-stocks-fall-trump-says-204428728.html)
 <!-- feed end -->
 
 ### Onstream
