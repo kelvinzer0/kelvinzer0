@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Senate report alleges Amazon rejected warehouse safety recommendations due to productivity concerns](https://www.yahoo.com/news/senate-report-alleges-amazon-rejected-165416064.html)
-- Dec 16 - [Market just 'catching its breath' for Santa Claus Rally: Strategist](https://finance.yahoo.com/video/market-just-catching-breath-santa-161500276.html)
-- Dec 16 - [Grandma turns self in after AMBER alert was issued when she allegedly took 5-year-old boy](https://www.yahoo.com/news/florida-grandma-run-kidnapping-5-124555172.html)
-- Dec 16 - [The One McDonald's Burger That's Never Frozen](https://www.yahoo.com/lifestyle/one-mcdonalds-burger-thats-never-160049447.html)
-- Dec 16 - [Those who put trust in the Hamas casualty figures should hang their heads in shame](https://www.yahoo.com/news/those-put-trust-hamas-casualty-154500041.html)
+- Dec 16 - [Trump suggests reversing permission for Ukraine to use US missiles in Russia](https://www.yahoo.com/news/trump-suggests-reversing-permission-ukraine-180026167.html)
+- Dec 16 - [Stock Market Today: Dow Jones Slips As Nvidia Skids; Cathie Wood Loads Up On This AI Stock Amid 48% Plunge](https://www.investors.com/market-trend/stock-market-today/dow-jones-nasdaq-sp500-bitcoin-cathie-wood-palantir-nvidia-super-micro/?src=A00220&yptr=yahoo)
+- Dec 16 - [Small Asteroid Impacted Earth Recently - See An Orbit Animation](https://www.yahoo.com/news/small-asteroid-impacted-earth-recently-150000221.html)
+- Dec 16 - [Supreme Court declines appeal from Peter Navarro; Trump White House aide to return after prison term](https://www.yahoo.com/news/supreme-court-declines-appeal-peter-145227305.html)
+- Dec 16 - [Jeff Bezos, With A Fleet Of Four Private Jets, Including The Fastest Gulfstream, Is Offloading One For A Whopping $39 Million](https://finance.yahoo.com/news/jeff-bezos-fleet-four-private-144520339.html)
 <!-- feed end -->
 
 ### Onstream
