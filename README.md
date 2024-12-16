@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Ukraine reports North Korean losses on Russia's Kursk front](https://www.yahoo.com/news/ukraine-reports-north-korean-losses-090414078.html)
-- Dec 16 - [The Fed could be on the verge of ripping up its rate script for 2025](https://finance.yahoo.com/news/the-fed-could-be-on-the-verge-of-ripping-up-its-rate-script-for-2025-090053343.html)
 - Dec 16 - [Leader of Russia's Chechnya says he is ready to ensure wheat supplies to Syria if necessary](https://www.yahoo.com/news/leader-russias-chechnya-says-ready-083734196.html)
 - Dec 16 - [For the first time in 8 years, a US Navy ship makes a port call in Cambodia, a top Chinese ally](https://www.yahoo.com/news/first-time-8-years-us-074249979.html)
-- Dec 16 - [Shock as Trump Adviser Collapses on Stage at New York Young Republican Gala](https://www.yahoo.com/news/shock-trump-adviser-collapses-stage-053308177.html)
+- Dec 16 - [Survivors seek a reckoning as FBI investigates child sex abuse in little-known Christian sect](https://www.yahoo.com/news/survivors-seek-reckoning-fbi-investigates-050800620.html)
+- Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
+- Dec 16 - [As Trump threatens mass deportations, Central America braces for an influx of vulnerable migrants](https://www.yahoo.com/news/trump-threatens-mass-deportations-central-041709665.html)
 <!-- feed end -->
 
 ### Onstream
