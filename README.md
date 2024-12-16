@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [What is the Golan Heights and why is the territory so important to Israel and Syria?](https://www.yahoo.com/news/golan-heights-why-territory-important-124038437.html)
+- Dec 16 - [Stock market today: Asian shares fall as China reports lackluster data, while bitcoin hits new highs](https://finance.yahoo.com/news/stock-market-today-asian-shares-061543338.html)
+- Dec 16 - [Australia warns of alcohol poisoning in Fiji after tourists fall ill](https://www.yahoo.com/news/australia-warns-alcohol-poisoning-fiji-053801077.html)
+- Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
 - Dec 16 - [As Trump threatens mass deportations, Central America braces for an influx of vulnerable migrants](https://www.yahoo.com/news/trump-threatens-mass-deportations-central-041709665.html)
-- Dec 16 - [As Trump promises mass deportations, Central America braces for an influx of vulnerable migrants](https://www.yahoo.com/news/trump-promises-mass-deportations-central-030105412.html)
-- Dec 16 - [This Is One Unexpected Sign Of Colon Cancer That Doctors Urge People Not To Ignore](https://www.yahoo.com/lifestyle/one-unexpected-sign-colon-cancer-003102152.html)
-- Dec 16 - [4 Things That Could Get More Expensive for Retirees in 2025 Under Trump](https://finance.yahoo.com/news/4-things-could-more-expensive-160139863.html)
-- Dec 15 - [PHOTOS/VIDEO: King tide flooding from around the Pacific Northwest](https://www.yahoo.com/news/photos-video-king-tide-flooding-232008947.html)
 <!-- feed end -->
 
 ### Onstream
