@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Russia’s mysterious blimps sow fear and confusion on Nato border](https://www.yahoo.com/news/russia-mysterious-blimps-sow-fear-135225339.html)
+- Dec 16 - [Rare tornado rips through Scotts Valley, California](https://www.yahoo.com/news/rare-tornado-rips-scotts-valley-125504571.html)
 - Dec 16 - [Ukrainian forces claim 'significant' casualties among North Koreans in Kursk](https://www.yahoo.com/news/ukrainian-forces-claim-significant-casualties-102333740.html)
+- Dec 16 - [Syrian rebel force deploys to a village near Damascus to stop looters](https://www.yahoo.com/news/syrian-rebel-force-deploys-village-121701508.html)
 - Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
-- Dec 16 - [Japan's largest bank apologizes over theft of millions of dollars from safe deposit boxes](https://www.yahoo.com/news/japans-largest-bank-apologizes-over-112149984.html)
-- Dec 16 - [Putin accuses West of pushing Russia to its "red lines" forcing it to respond](https://www.yahoo.com/news/putin-accuses-west-pushing-russia-105539257.html)
-- Dec 16 - [New study debunks common misconception about economic growth in coming decades: 'This is a significant breakthrough'](https://www.yahoo.com/news/study-debunks-common-misconception-economic-104504225.html)
 <!-- feed end -->
 
 ### Onstream
