@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Senate report alleges Amazon rejected warehouse safety recommendations due to productivity concerns](https://www.yahoo.com/news/senate-report-alleges-amazon-rejected-165416064.html)
 - Dec 16 - [Market just 'catching its breath' for Santa Claus Rally: Strategist](https://finance.yahoo.com/video/market-just-catching-breath-santa-161500276.html)
-- Dec 16 - [Lawyer for convicted British killer nurse Lucy Letby says new evidence is grounds for appeal](https://www.yahoo.com/news/lawyer-convicted-british-killer-nurse-161121978.html)
-- Dec 16 - [Democrats eye Harris 2028 presidential run as they devise political comeback](https://www.yahoo.com/news/democrats-eye-harris-2028-presidential-160359218.html)
-- Dec 16 - [This Baltimore parking lot attendant built a $500K stock portfolio — even though he never made more than $12/hour](https://finance.yahoo.com/news/baltimore-parking-lot-attendant-built-160000602.html)
-- Dec 16 - [Moment German Highway Bridge Blown Up in Controlled Explosion](https://www.yahoo.com/news/moment-german-highway-bridge-blown-153116490.html)
+- Dec 16 - [Grandma turns self in after AMBER alert was issued when she allegedly took 5-year-old boy](https://www.yahoo.com/news/florida-grandma-run-kidnapping-5-124555172.html)
+- Dec 16 - [The One McDonald's Burger That's Never Frozen](https://www.yahoo.com/lifestyle/one-mcdonalds-burger-thats-never-160049447.html)
+- Dec 16 - [Those who put trust in the Hamas casualty figures should hang their heads in shame](https://www.yahoo.com/news/those-put-trust-hamas-casualty-154500041.html)
 <!-- feed end -->
 
 ### Onstream
