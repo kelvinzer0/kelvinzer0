@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Dow Jones Stocks: Amazon, Apple Hit New Highs; Nvidia Stock Slides](https://www.investors.com/research/dow-jones-stocks-december-2024/?src=A00220&yptr=yahoo)
-- Dec 16 - [I'm Summoning Santa's Elves After Snickering At These 29 Funny Tweets From The Week](https://www.yahoo.com/lifestyle/im-summoning-santas-elves-snickering-194229871.html)
-- Dec 16 - [Three dead including suspect after shooting at Christian school in Wisconsin](https://www.yahoo.com/news/multiple-injuries-shooting-christian-school-181839524.html)
-- Dec 16 - [Does the 'Magnificent Seven' have more room to run in 2025?](https://finance.yahoo.com/video/does-magnificent-seven-more-room-190006570.html)
+- Dec 16 - [Jim Cramer Says ‘If You Trade NVIDIA Corporation (NVDA), You Probably Won’t Be Able To Sell It High And Then Get Back In Low’](https://finance.yahoo.com/news/jim-cramer-says-trade-nvidia-203425404.html)
+- Dec 16 - [Man sentenced for helping pregnant Chinese women travel to give birth in the US](https://www.yahoo.com/news/man-sentenced-helping-pregnant-chinese-192854044.html)
+- Dec 16 - [At Least Two Killed, Several Injured in Wisconsin School Shooting](https://finance.yahoo.com/video/least-four-people-killed-several-184900211.html)
+- Dec 16 - [Student ‘shoots dead teacher and teenager’ at Christian school in Wisconsin](https://www.yahoo.com/news/multiple-injuries-shooting-christian-school-181839524.html)
 - Dec 16 - [Western nations agree to 'disrupt and deter' Russia shadow fleet, Estonia says](https://www.yahoo.com/news/western-nations-agree-disrupt-deter-184950741.html)
 <!-- feed end -->
 
