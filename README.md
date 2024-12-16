@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Trump suggests reversing permission for Ukraine to use US missiles in Russia](https://www.yahoo.com/news/trump-suggests-reversing-permission-ukraine-180026167.html)
-- Dec 16 - [Stock Market Today: Dow Jones Slips As Nvidia Skids; Cathie Wood Loads Up On This AI Stock Amid 48% Plunge](https://www.investors.com/market-trend/stock-market-today/dow-jones-nasdaq-sp500-bitcoin-cathie-wood-palantir-nvidia-super-micro/?src=A00220&yptr=yahoo)
-- Dec 16 - [Small Asteroid Impacted Earth Recently - See An Orbit Animation](https://www.yahoo.com/news/small-asteroid-impacted-earth-recently-150000221.html)
-- Dec 16 - [Supreme Court declines appeal from Peter Navarro; Trump White House aide to return after prison term](https://www.yahoo.com/news/supreme-court-declines-appeal-peter-145227305.html)
-- Dec 16 - [Jeff Bezos, With A Fleet Of Four Private Jets, Including The Fastest Gulfstream, Is Offloading One For A Whopping $39 Million](https://finance.yahoo.com/news/jeff-bezos-fleet-four-private-144520339.html)
+- Dec 16 - [Does the 'Magnificent Seven' have more room to run in 2025?](https://finance.yahoo.com/video/does-magnificent-seven-more-room-190006570.html)
+- Dec 16 - [Prince Andrew Could ‘Do a Harry’ and Flee the U.K.](https://www.yahoo.com/news/prince-andrew-could-harry-flee-184414334.html)
+- Dec 16 - [Ukraine says North Koreans took heavy casualties during weekend attack in Kursk region](https://www.yahoo.com/news/ukraine-says-north-koreans-took-143646525.html)
+- Dec 16 - [Dow Jones Stocks: Amazon, Apple Hit New Highs; Nvidia Stock Slides](https://www.investors.com/research/dow-jones-stocks-december-2024/?src=A00220&yptr=yahoo)
+- Dec 16 - [This Map Of Sunrise And Sunset Times Under Permanent Standard Time Is Going Viral](https://www.yahoo.com/news/map-sunrise-sunset-times-under-180800010.html)
 <!-- feed end -->
 
 ### Onstream
