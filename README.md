@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Ruling party chief resigns as South Korean president refuses to appear at hearing](https://www.yahoo.com/news/ruling-party-chief-resigns-south-100308234.html)
-- Dec 16 - [Biden to sign proclamation establishing national monument honoring first US female Cabinet secretary](https://www.yahoo.com/news/biden-sign-proclamation-establishing-national-100156958.html)
-- Dec 16 - [Social Security Changes Proposed by President-Elect Donald Trump Could Be Bad News for Retirees, According to a Recent Report](https://www.yahoo.com/news/social-security-changes-proposed-president-094400634.html)
-- Dec 16 - [Oneida County restaurant inspections: How safe is your favorite place to eat?](https://www.yahoo.com/lifestyle/oneida-county-restaurant-inspections-safe-093143468.html)
-- Dec 16 - [Leader of Russia's Chechnya says he is ready to ensure wheat supplies to Syria if necessary](https://www.yahoo.com/news/leader-russias-chechnya-says-ready-083734196.html)
+- Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
+- Dec 16 - [Japan's largest bank apologizes over theft of millions of dollars from safe deposit boxes](https://www.yahoo.com/news/japans-largest-bank-apologizes-over-112149984.html)
+- Dec 16 - [43 Horrible Bosses Who Absolutely Should Not Be Getting A Bonus This Year](https://www.yahoo.com/lifestyle/43-horrible-bosses-absolutely-not-103105491.html)
+- Dec 16 - [A Biden proclamation will establish a national monument for the 1st US female Cabinet secretary](https://www.yahoo.com/news/biden-sign-proclamation-establishing-national-100156958.html)
+- Dec 16 - [BlackRock Bitcoin ETF Put Options at $30, $35 Price Levels See Volume Spike](https://finance.yahoo.com/news/blackrock-bitcoin-etf-put-options-093112274.html)
 <!-- feed end -->
 
 ### Onstream
