@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Jim Cramer Says ‘If You Trade NVIDIA Corporation (NVDA), You Probably Won’t Be Able To Sell It High And Then Get Back In Low’](https://finance.yahoo.com/news/jim-cramer-says-trade-nvidia-203425404.html)
-- Dec 16 - [Man sentenced for helping pregnant Chinese women travel to give birth in the US](https://www.yahoo.com/news/man-sentenced-helping-pregnant-chinese-192854044.html)
-- Dec 16 - [At Least Two Killed, Several Injured in Wisconsin School Shooting](https://finance.yahoo.com/video/least-four-people-killed-several-184900211.html)
-- Dec 16 - [Student ‘shoots dead teacher and teenager’ at Christian school in Wisconsin](https://www.yahoo.com/news/multiple-injuries-shooting-christian-school-181839524.html)
-- Dec 16 - [Western nations agree to 'disrupt and deter' Russia shadow fleet, Estonia says](https://www.yahoo.com/news/western-nations-agree-disrupt-deter-184950741.html)
+- Dec 16 - [Public warned of heavy police presence in Natick amid ongoing FBI investigation](https://www.yahoo.com/news/public-warned-heavy-police-presence-201332998.html)
+- Dec 16 - [Stock Market Today: Dow Jones Dips As Warren Buffett Play Eyes Entry; Cathie Wood Loads Up On This AI Stock Amid 48% Plunge](https://www.investors.com/market-trend/stock-market-today/dow-jones-nasdaq-sp500-bitcoin-cathie-wood-palantir-nvidia-super-micro/?src=A00220&yptr=yahoo)
+- Dec 16 - [New England ski area offering free lift tickets all season thanks to ‘generous’ gift](https://sports.yahoo.com/england-ski-area-offering-free-204801110.html)
+- Dec 16 - [Former prison guard trainee is sentenced to death for killing 5 women at a Florida bank](https://www.yahoo.com/news/former-prison-guard-trainee-sentenced-202628221.html)
+- Dec 16 - [‘The plan is to lie…and get the man confirmed’: Steele slams Trump tapping RFK Jr.](https://www.yahoo.com/news/plan-lie-man-confirmed-steele-202620935.html)
 <!-- feed end -->
 
 ### Onstream
