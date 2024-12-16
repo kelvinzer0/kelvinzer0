@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Russia’s mysterious blimps sow fear and confusion on Nato border](https://www.yahoo.com/news/russia-mysterious-blimps-sow-fear-135225339.html)
-- Dec 16 - [Rare tornado rips through Scotts Valley, California](https://www.yahoo.com/news/rare-tornado-rips-scotts-valley-125504571.html)
-- Dec 16 - [Ukrainian forces claim 'significant' casualties among North Koreans in Kursk](https://www.yahoo.com/news/ukrainian-forces-claim-significant-casualties-102333740.html)
+- Dec 16 - [Dua Lipa’s Big Year In 2024: ‘Radical Optimism’ Is No. 1, Headlining Glastonbury & More | Global No. 1s](https://www.yahoo.com/entertainment/dua-lipa-big-2024-radical-150000794.html)
+- Dec 16 - [Nvidia Falls As Rivals Circle Amid Huge Bet, Analyst Says; Is Nvidia A Buy Or Sell Now?](https://www.investors.com/research/nvidia-nvda-stock-december-2024/?src=A00220&yptr=yahoo)
+- Dec 16 - [Twelve die from carbon monoxide poisoning at Georgian ski resort](https://www.yahoo.com/news/twelve-die-carbon-monoxide-poisoning-142428910.html)
+- Dec 16 - [Here's Why North Sea Should Be on Every Investor's Radar in 2025](https://finance.yahoo.com/news/heres-why-north-sea-every-122400994.html)
 - Dec 16 - [Syrian rebel force deploys to a village near Damascus to stop looters](https://www.yahoo.com/news/syrian-rebel-force-deploys-village-121701508.html)
-- Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
 <!-- feed end -->
 
 ### Onstream
