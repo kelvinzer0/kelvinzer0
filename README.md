@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 16 - [What is the Golan Heights and why is the territory so important to Israel and Syria?](https://www.yahoo.com/news/golan-heights-why-territory-important-124038437.html)
-- Dec 16 - [Stock market today: Asian shares fall as China reports lackluster data, while bitcoin hits new highs](https://finance.yahoo.com/news/stock-market-today-asian-shares-061543338.html)
 - Dec 16 - [Australia warns of alcohol poisoning in Fiji after tourists fall ill](https://www.yahoo.com/news/australia-warns-alcohol-poisoning-fiji-053801077.html)
+- Dec 16 - [Shock as Trump Adviser Collapses on Stage at New York Young Republican Gala](https://www.yahoo.com/news/shock-trump-adviser-collapses-stage-053308177.html)
+- Dec 16 - [Survivors seek a reckoning as FBI investigates child sex abuse in little-known Christian sect](https://www.yahoo.com/news/survivors-seek-reckoning-fbi-investigates-050800620.html)
 - Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
-- Dec 16 - [As Trump threatens mass deportations, Central America braces for an influx of vulnerable migrants](https://www.yahoo.com/news/trump-threatens-mass-deportations-central-041709665.html)
 <!-- feed end -->
 
 ### Onstream
