@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Ukrainian forces claim 'significant' casualties among North Koreans in Kursk](https://www.yahoo.com/news/ukrainian-forces-claim-significant-casualties-102333740.html)
 - Dec 16 - [End of the Dubai dream for Europe's drug lords?](https://www.yahoo.com/news/end-dubai-dream-europes-drug-035035068.html)
 - Dec 16 - [Japan's largest bank apologizes over theft of millions of dollars from safe deposit boxes](https://www.yahoo.com/news/japans-largest-bank-apologizes-over-112149984.html)
-- Dec 16 - [43 Horrible Bosses Who Absolutely Should Not Be Getting A Bonus This Year](https://www.yahoo.com/lifestyle/43-horrible-bosses-absolutely-not-103105491.html)
-- Dec 16 - [A Biden proclamation will establish a national monument for the 1st US female Cabinet secretary](https://www.yahoo.com/news/biden-sign-proclamation-establishing-national-100156958.html)
-- Dec 16 - [BlackRock Bitcoin ETF Put Options at $30, $35 Price Levels See Volume Spike](https://finance.yahoo.com/news/blackrock-bitcoin-etf-put-options-093112274.html)
+- Dec 16 - [Putin accuses West of pushing Russia to its "red lines" forcing it to respond](https://www.yahoo.com/news/putin-accuses-west-pushing-russia-105539257.html)
+- Dec 16 - [New study debunks common misconception about economic growth in coming decades: 'This is a significant breakthrough'](https://www.yahoo.com/news/study-debunks-common-misconception-economic-104504225.html)
 <!-- feed end -->
 
 ### Onstream
