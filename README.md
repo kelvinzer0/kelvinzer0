@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 17 - [There could be planets around the supermassive black hole at the heart of our galaxy, scientists say](https://www.yahoo.com/news/could-planets-around-supermassive-black-160533801.html)
 - Dec 17 - [Europe's carmakers discount EVs as new emissions rules loom](https://finance.yahoo.com/video/europes-carmakers-discount-evs-emissions-154008620.html)
 - Dec 17 - [Beth Behrs, 38, says male doctors said she was 'too young' to be in perimenopause. Symptoms, signs, age and everything you need to know](https://www.yahoo.com/lifestyle/beth-behrs-38-says-male-doctors-said-she-was-too-young-to-be-in-perimenopause-symptoms-signs-age-and-everything-you-need-to-know-153708154.html)
-- Dec 17 - [Putin has been conspicuously silent about Syria since the collapse of Assad's rule](https://www.yahoo.com/news/putin-conspicuously-silent-syria-since-151101435.html)
 - Dec 17 - [Potential changes in Social Security benefits could impact millions of Americans](https://www.yahoo.com/news/potential-changes-social-security-benefits-141338268.html)
-- Dec 17 - [Nuclear bunker sales increase, despite expert warnings they aren’t going to provide protection](https://www.yahoo.com/news/nuclear-bunker-sales-increase-despite-121801612.html)
+- Dec 17 - [Jen Psaki Lays Out Alarming Lesson She Says Trump Is Learning Before Taking Office](https://www.yahoo.com/news/jen-psaki-lays-alarming-lesson-123923708.html)
 <!-- feed end -->
 
 ### Onstream
