@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 17 - [White House Adviser Says Government Has Solved Drone Mystery](https://www.yahoo.com/news/white-house-adviser-says-government-033724708.html)
+- Dec 17 - [Woman who stowed away on Delta flight to Paris apprehended again, this time trying to get into Canada](https://www.yahoo.com/news/woman-stowed-away-delta-flight-220748573.html)
 - Dec 17 - [Jill Biden says she has closed the book on teaching at Northern Virginia Community College](https://www.yahoo.com/news/jill-biden-says-she-closing-003827744.html)
 - Dec 17 - [Notorious drug lord Osiel Cárdenas returned to Mexico after US sentence, is quickly re-arrested](https://www.yahoo.com/news/notorious-drug-lord-osiel-c-002226304.html)
 - Dec 16 - [Trump says it was 'stupid' for Biden to let Ukraine use US weapons to strike deeper into Russia](https://www.yahoo.com/news/trump-says-stupid-biden-let-235803687.html)
-- Dec 16 - [Alleged CEO killer Luigi Mangione’s privileged life may explain why he tried to get away with murder](https://www.yahoo.com/news/alleged-ceo-killer-luigi-mangione-235800815.html)
 <!-- feed end -->
 
 ### Onstream
