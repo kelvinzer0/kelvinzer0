@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 17 - [White House Adviser Says Government Has Solved Drone Mystery](https://www.yahoo.com/news/white-house-adviser-says-government-033724708.html)
 - Dec 17 - [Jill Biden says she has closed the book on teaching at Northern Virginia Community College](https://www.yahoo.com/news/jill-biden-says-she-closing-003827744.html)
+- Dec 17 - [Notorious drug lord Osiel Cárdenas returned to Mexico after US sentence, is quickly re-arrested](https://www.yahoo.com/news/notorious-drug-lord-osiel-c-002226304.html)
 - Dec 16 - [Trump says it was 'stupid' for Biden to let Ukraine use US weapons to strike deeper into Russia](https://www.yahoo.com/news/trump-says-stupid-biden-let-235803687.html)
-- Dec 16 - [NASA’s new Webb telescope images support previously controversial findings about how planets form](https://www.yahoo.com/tech/nasas-new-webb-telescope-images-support-previously-controversial-findings-about-how-planets-form-213312055.html)
-- Dec 16 - [Trump Confirms Extreme Plan to Demolish Postal Service](https://www.yahoo.com/news/trump-confirms-extreme-plan-demolish-210319294.html)
-- Dec 16 - [Police respond to Sacramento elementary school stabbing](https://www.yahoo.com/news/police-respond-sacramento-elementary-school-205530422.html)
+- Dec 16 - [Alleged CEO killer Luigi Mangione’s privileged life may explain why he tried to get away with murder](https://www.yahoo.com/news/alleged-ceo-killer-luigi-mangione-235800815.html)
 <!-- feed end -->
 
 ### Onstream
