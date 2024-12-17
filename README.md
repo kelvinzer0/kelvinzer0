@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Sara Sharif latest: Father and stepmother jailed for life for ‘gruesome’ murder and torture of schoolgirl](https://www.yahoo.com/news/sara-sharif-latest-father-stepmother-075122356.html)
+- Dec 17 - [DR Congo accuses Apple of using conflict minerals](https://www.yahoo.com/news/dr-congo-accuses-apple-using-133740233.html)
 - Dec 17 - [Jen Psaki Lays Out Alarming Lesson She Says Trump Is Learning Before Taking Office](https://www.yahoo.com/news/jen-psaki-lays-alarming-lesson-123923708.html)
 - Dec 17 - [Nuclear bunker sales increase, despite expert warnings they aren’t going to provide protection](https://www.yahoo.com/news/nuclear-bunker-sales-increase-despite-121801612.html)
-- Dec 17 - [Who Killed [Spoiler] on General Hospital? Sonny or Cyrus?](https://www.yahoo.com/entertainment/killed-spoiler-general-hospital-sonny-113518020.html)
-- Dec 17 - [Prediction: 2 Stocks That'll Be Worth More Than Palantir 5 Years From Now](https://finance.yahoo.com/news/prediction-2-stocks-thatll-worth-110700015.html)
+- Dec 17 - [Scientists raise alarm over iconic species' disappearance following tourism boom: 'It's heartbreaking'](https://www.yahoo.com/news/scientists-raise-alarm-over-iconic-104540662.html)
+- Dec 17 - [The retreat from the world’s largest auto market has begun](https://finance.yahoo.com/news/retreat-world-largest-auto-market-103042877.html)
 <!-- feed end -->
 
 ### Onstream
