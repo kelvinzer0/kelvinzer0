@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [A bomb kills the head of Russia’s nuclear defense forces and his assistant in Moscow](https://www.yahoo.com/news/head-russia-nuclear-defense-forces-063539418.html)
-- Dec 17 - [White House Adviser Says Government Has Solved Drone Mystery](https://www.yahoo.com/news/white-house-adviser-says-government-033724708.html)
-- Dec 17 - [Ripple’s RLUSD Stablecoin Attracts Frenzy Bids for 800 XRP Ahead of Release](https://finance.yahoo.com/news/ripple-rlusd-stablecoin-attracts-frenzy-021000286.html)
-- Dec 17 - [Jill Biden says she has closed the book on teaching at Northern Virginia Community College](https://www.yahoo.com/news/jill-biden-says-she-closing-003827744.html)
-- Dec 17 - [Notorious drug lord Osiel Cárdenas returned to Mexico after US sentence, is quickly re-arrested](https://www.yahoo.com/news/notorious-drug-lord-osiel-c-002226304.html)
+- Dec 17 - [Andrew and Fergie skip Christmas at Sandringham as Duke faces backlash over alleged Chinese spy links](https://www.yahoo.com/news/prince-andrew-pulls-royal-christmas-170912487.html)
+- Dec 17 - [Sara Sharif latest: Father and stepmother of murdered schoolgirl face sentencing at Old Bailey](https://www.yahoo.com/news/sara-sharif-latest-father-stepmother-075122356.html)
+- Dec 17 - [Want Decades of Passive Income? 3 High Yield Energy Stocks to Buy Right Now](https://finance.yahoo.com/news/want-decades-passive-income-3-094000807.html)
+- Dec 17 - [Aftermath as Russian general Igor Kirillov killed in Moscow explosion](https://www.yahoo.com/news/aftermath-russian-general-killed-moscow-090915495.html)
+- Dec 17 - [A Russian general was killed by a bomb in Moscow. Ukraine official says secret service was behind it](https://www.yahoo.com/news/head-russia-nuclear-defense-forces-063539418.html)
 <!-- feed end -->
 
 ### Onstream
