@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Satellite images show excavation at suspected Syria mass grave site](https://www.yahoo.com/news/satellite-images-show-excavation-suspected-162258950.html)
-- Dec 17 - [Partially-clothed woman caught after entering Orange County home: Video](https://www.yahoo.com/news/partially-clothed-woman-caught-entering-160121313.html)
-- Dec 17 - [Europe's carmakers discount EVs as new emissions rules loom](https://finance.yahoo.com/video/europes-carmakers-discount-evs-emissions-154008620.html)
+- Dec 17 - [Bridging the gap between your reality and your financial goals](https://finance.yahoo.com/video/bridging-gap-between-reality-financial-191500645.html)
+- Dec 17 - [Archivist says Equal Rights Amendment can't be certified as Democrats push Biden to recognize it](https://www.yahoo.com/news/archivist-says-equal-rights-amendment-181107032.html)
+- Dec 17 - [MAGA Rep. Baffles Everyone by Dropping All Responsibilities But One](https://www.yahoo.com/news/maga-rep-baffles-everyone-dropping-174847837.html)
 - Dec 17 - [Beth Behrs, 38, says male doctors said she was 'too young' to be in perimenopause. Symptoms, signs, age and everything you need to know](https://www.yahoo.com/lifestyle/beth-behrs-38-says-male-doctors-said-she-was-too-young-to-be-in-perimenopause-symptoms-signs-age-and-everything-you-need-to-know-153708154.html)
-- Dec 17 - [San Diego police warning of new parking ticket scam: Here’s what to look for](https://www.yahoo.com/news/san-diego-police-warning-parking-145610383.html)
+- Dec 17 - [Keith Olbermann: How Can MSNBC Save Itself After Trump’s Win? First Step: Fire Mika and Joe](https://www.yahoo.com/news/keith-olbermann-msnbc-save-itself-150000195.html)
 <!-- feed end -->
 
 ### Onstream
