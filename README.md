@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Denmark frees anti-whaling activist Watson, rejects extradition](https://www.yahoo.com/news/denmark-frees-anti-whaling-activist-215027074.html)
-- Dec 17 - [Sean ‘Diddy’ Combs’ Alleged Drug Mule Sees Charges in Airport Bust Dropped](https://www.yahoo.com/entertainment/sean-diddy-combs-alleged-drug-214055826.html)
 - Dec 17 - [‘Monster’ passengers accused of bullying woman who wouldn’t trade her comfort seat for coach](https://www.yahoo.com/lifestyle/monster-passengers-accused-bullying-woman-203322406.html)
 - Dec 17 - [Abundant Life Christian School shooting latest: Motive appears to be combination of factors, police say](https://www.yahoo.com/news/wisconsin-school-shooting-latest-attack-090009206.html)
-- Dec 17 - [Dave Ramsey: This Is the Most You Should Borrow When Buying a House](https://finance.yahoo.com/news/dave-ramsey-most-borrow-buying-200010407.html)
+- Dec 17 - [Trump asks judge to advance suit against Bob Woodward](https://www.yahoo.com/news/trump-asks-judge-advance-suit-181704778.html)
+- Dec 17 - [Judge allows testing of tissue samples from George Floyd as officer who killed him seeks new trial](https://www.yahoo.com/news/judge-allows-testing-tissue-samples-171412354.html)
+- Dec 17 - [Passenger blasted for bringing ‘emotional support’ Great Dane on airplane: ‘This s—t is getting out of hand’](https://www.yahoo.com/lifestyle/passenger-blasted-bringing-emotional-support-162105556.html)
 <!-- feed end -->
 
 ### Onstream
