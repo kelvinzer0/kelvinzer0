@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Public right to know](https://www.yahoo.com/news/public-know-060000501.html)
-- Dec 17 - [Bomb kills chief of Russian nuclear protection forces in Moscow](https://www.yahoo.com/news/two-people-killed-explosion-moscow-050749337.html)
+- Dec 17 - [Top Russian general accused by Kyiv of chemical weapons crimes is killed by bomb in Moscow](https://www.yahoo.com/news/two-people-killed-explosion-moscow-050749337.html)
+- Dec 17 - ["Honestly, I Think Some Things Need To Change": Teachers Are Revealing Their Brutally Honest Thoughts About The Future Of Teaching In America Now That Trump Has Won](https://www.yahoo.com/news/honestly-think-things-change-teachers-044602371.html)
 - Dec 17 - [White House Adviser Says Government Has Solved Drone Mystery](https://www.yahoo.com/news/white-house-adviser-says-government-033724708.html)
-- Dec 17 - [Jill Biden says she has closed the book on teaching at Northern Virginia Community College](https://www.yahoo.com/news/jill-biden-says-she-closing-003827744.html)
-- Dec 17 - [Notorious drug lord Osiel Cárdenas returned to Mexico after US sentence, is quickly re-arrested](https://www.yahoo.com/news/notorious-drug-lord-osiel-c-002226304.html)
+- Dec 17 - [Woman who stowed away on Delta flight to Paris apprehended again, this time trying to get into Canada](https://www.yahoo.com/news/woman-stowed-away-delta-flight-220748573.html)
+- Dec 17 - [Ripple’s RLUSD Stablecoin Attracts Frenzy Bids for 800 XRP Ahead of Release](https://finance.yahoo.com/news/ripple-rlusd-stablecoin-attracts-frenzy-021000286.html)
 <!-- feed end -->
 
 ### Onstream
