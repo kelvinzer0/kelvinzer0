@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Inheritance & savings: Planning challenges for LGBTQ+ individuals](https://finance.yahoo.com/video/inheritance-savings-planning-challenges-lgbtq-230042512.html)
-- Dec 16 - [Marjorie Taylor Greene roasted online for unequivocally saying ‘vaccines cause autism’](https://www.yahoo.com/news/marjorie-taylor-greene-roasted-online-225844491.html)
+- Dec 17 - [Natural gas stocks are this expert's top pick, not 'overvalued' tech stocks](https://finance.yahoo.com/video/natural-gas-stocks-experts-top-010000708.html)
+- Dec 17 - [Jill Biden says she is closing the book on teaching at Northern Virginia Community College](https://www.yahoo.com/news/jill-biden-says-she-closing-003827744.html)
+- Dec 16 - [Trump says it was 'stupid' for Biden to let Ukraine use US weapons to strike deeper into Russia](https://www.yahoo.com/news/trump-says-stupid-biden-let-235803687.html)
+- Dec 16 - [Woman who stowed away on Delta flight to Paris apprehended again, this time trying to get into Canada](https://www.yahoo.com/news/woman-stowed-away-delta-flight-220748573.html)
 - Dec 16 - [Wisconsin School Shooter Identified as 17-Year-Old Female Student: Reports](https://www.yahoo.com/news/wisconsin-school-shooter-identified-17-222009828.html)
-- Dec 16 - [New England ski area offering free lift tickets all season thanks to ‘generous’ gift](https://sports.yahoo.com/england-ski-area-offering-free-204801110.html)
-- Dec 16 - [Insurer stocks fall after Trump says 'we're going to knock out the middleman'](https://finance.yahoo.com/news/insurer-stocks-fall-trump-says-204428728.html)
 <!-- feed end -->
 
 ### Onstream
