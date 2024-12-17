@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [New software will be key theme for small businesses in 2025](https://finance.yahoo.com/video/software-key-theme-small-businesses-201514044.html)
+- Dec 17 - [Denmark frees anti-whaling activist Watson, rejects extradition](https://www.yahoo.com/news/denmark-frees-anti-whaling-activist-215027074.html)
+- Dec 17 - [Sean ‘Diddy’ Combs’ Alleged Drug Mule Sees Charges in Airport Bust Dropped](https://www.yahoo.com/entertainment/sean-diddy-combs-alleged-drug-214055826.html)
+- Dec 17 - [‘Monster’ passengers accused of bullying woman who wouldn’t trade her comfort seat for coach](https://www.yahoo.com/lifestyle/monster-passengers-accused-bullying-woman-203322406.html)
 - Dec 17 - [Abundant Life Christian School shooting latest: Motive appears to be combination of factors, police say](https://www.yahoo.com/news/wisconsin-school-shooting-latest-attack-090009206.html)
-- Dec 17 - [Jim Cramer Warns Nvidia's 'Vicious' And 'Fast' Reversal Is Coming Amid 174% Surge This Year And China Antitrust Probe](https://finance.yahoo.com/news/jim-cramer-warns-nvidias-vicious-190012684.html)
-- Dec 17 - [Archivist says Equal Rights Amendment can't be certified as Democrats push Biden to recognize it](https://www.yahoo.com/news/archivist-says-equal-rights-amendment-181107032.html)
-- Dec 17 - [MAGA Rep. Baffles Everyone by Dropping All Responsibilities But One](https://www.yahoo.com/news/maga-rep-baffles-everyone-dropping-174847837.html)
+- Dec 17 - [Dave Ramsey: This Is the Most You Should Borrow When Buying a House](https://finance.yahoo.com/news/dave-ramsey-most-borrow-buying-200010407.html)
 <!-- feed end -->
 
 ### Onstream
