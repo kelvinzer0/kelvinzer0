@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Natural gas stocks are this expert's top pick, not 'overvalued' tech stocks](https://finance.yahoo.com/video/natural-gas-stocks-experts-top-010000708.html)
-- Dec 17 - [Jill Biden says she is closing the book on teaching at Northern Virginia Community College](https://www.yahoo.com/news/jill-biden-says-she-closing-003827744.html)
+- Dec 17 - [Woman who stowed away on Delta flight to Paris apprehended again, this time trying to get into Canada](https://www.yahoo.com/news/woman-stowed-away-delta-flight-220748573.html)
+- Dec 17 - [Jill Biden says she has closed the book on teaching at Northern Virginia Community College](https://www.yahoo.com/news/jill-biden-says-she-closing-003827744.html)
 - Dec 16 - [Trump says it was 'stupid' for Biden to let Ukraine use US weapons to strike deeper into Russia](https://www.yahoo.com/news/trump-says-stupid-biden-let-235803687.html)
-- Dec 16 - [Woman who stowed away on Delta flight to Paris apprehended again, this time trying to get into Canada](https://www.yahoo.com/news/woman-stowed-away-delta-flight-220748573.html)
+- Dec 16 - [The Memo: Trump walks tightrope at Mar-a-Lago press conference](https://www.yahoo.com/news/memo-trump-walks-tightrope-mar-230304544.html)
 - Dec 16 - [Wisconsin School Shooter Identified as 17-Year-Old Female Student: Reports](https://www.yahoo.com/news/wisconsin-school-shooter-identified-17-222009828.html)
 <!-- feed end -->
 
