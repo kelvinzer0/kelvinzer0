@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Andrew and Fergie skip Christmas at Sandringham as Duke faces backlash over alleged Chinese spy links](https://www.yahoo.com/news/prince-andrew-pulls-royal-christmas-170912487.html)
-- Dec 17 - [Sara Sharif latest: Father and stepmother of murdered schoolgirl face sentencing at Old Bailey](https://www.yahoo.com/news/sara-sharif-latest-father-stepmother-075122356.html)
-- Dec 17 - [Want Decades of Passive Income? 3 High Yield Energy Stocks to Buy Right Now](https://finance.yahoo.com/news/want-decades-passive-income-3-094000807.html)
-- Dec 17 - [Aftermath as Russian general Igor Kirillov killed in Moscow explosion](https://www.yahoo.com/news/aftermath-russian-general-killed-moscow-090915495.html)
-- Dec 17 - [A Russian general was killed by a bomb in Moscow. Ukraine official says secret service was behind it](https://www.yahoo.com/news/head-russia-nuclear-defense-forces-063539418.html)
+- Dec 17 - [How Sarah Ferguson urged Prince Andrew to skip Christmas at Sandringham amid Chinese ‘spy’ links](https://www.yahoo.com/news/prince-andrew-pulls-royal-christmas-170912487.html)
+- Dec 17 - [GM stock surged in 2024. CEO Mary Barra says this is why.](https://finance.yahoo.com/video/gm-stock-surged-2024-ceo-105533708.html)
+- Dec 17 - [Sara Sharif murder sentencing latest: Mother calls father and stepmother ‘executioners’ over schoolgirl’s death](https://www.yahoo.com/news/sara-sharif-latest-father-stepmother-075122356.html)
+- Dec 17 - [26,000 feet undersea, scientists find a ghostly predator](https://www.yahoo.com/lifestyle/26-000-feet-undersea-scientists-100000734.html)
+- Dec 17 - [CNN Fact-Checker Flags 'Most Dangerous Part' Of Donald Trump's News Conference](https://www.yahoo.com/news/cnn-fact-checker-flags-most-092303902.html)
 <!-- feed end -->
 
 ### Onstream
