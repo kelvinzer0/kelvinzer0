@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Toyota Tacoma Carjacked At US Border Triggers Huge Response](https://autos.yahoo.com/toyota-tacoma-carjacked-us-border-193819208.html)
+- Dec 17 - [New software will be key theme for small businesses in 2025](https://finance.yahoo.com/video/software-key-theme-small-businesses-201514044.html)
+- Dec 17 - [Abundant Life Christian School shooting latest: Motive appears to be combination of factors, police say](https://www.yahoo.com/news/wisconsin-school-shooting-latest-attack-090009206.html)
+- Dec 17 - [Jim Cramer Warns Nvidia's 'Vicious' And 'Fast' Reversal Is Coming Amid 174% Surge This Year And China Antitrust Probe](https://finance.yahoo.com/news/jim-cramer-warns-nvidias-vicious-190012684.html)
 - Dec 17 - [Archivist says Equal Rights Amendment can't be certified as Democrats push Biden to recognize it](https://www.yahoo.com/news/archivist-says-equal-rights-amendment-181107032.html)
-- Dec 17 - [Judge allows testing of tissue samples from George Floyd as officer who killed him seeks new trial](https://www.yahoo.com/news/judge-allows-testing-tissue-samples-171412354.html)
-- Dec 17 - [Beth Behrs, 38, says male doctors said she was 'too young' to be in perimenopause. Symptoms, signs, age and everything you need to know](https://www.yahoo.com/lifestyle/beth-behrs-38-says-male-doctors-said-she-was-too-young-to-be-in-perimenopause-symptoms-signs-age-and-everything-you-need-to-know-153708154.html)
-- Dec 17 - [Potential changes in Social Security benefits could impact millions of Americans](https://www.yahoo.com/news/potential-changes-social-security-benefits-141338268.html)
+- Dec 17 - [MAGA Rep. Baffles Everyone by Dropping All Responsibilities But One](https://www.yahoo.com/news/maga-rep-baffles-everyone-dropping-174847837.html)
 <!-- feed end -->
 
 ### Onstream
