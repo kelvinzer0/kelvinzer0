@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [In reversal, key House panel votes to release Matt Gaetz ethics report](https://www.yahoo.com/news/reversal-key-house-panel-votes-143010736.html)
-- Dec 18 - [4 Russian warplanes spotted flying near Alaska, NORAD says](https://www.yahoo.com/news/4-russian-warplanes-spotted-flying-160810933.html)
+- Dec 18 - [Trump Tries Out a New Hairstyle—and Gets Mixed Reviews](https://www.yahoo.com/entertainment/trump-tries-hairstyle-gets-mixed-171814533.html)
+- Dec 18 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
+- Dec 18 - [Columbus did not take syphilis to the Americas – he brought it back to Europe](https://www.yahoo.com/news/columbus-did-not-syphilis-americas-165344216.html)
+- Dec 18 - [‘Very disturbing detail’: Ex-FBI official analyzes photo posted by shooter’s father](https://www.yahoo.com/news/very-disturbing-detail-ex-fbi-154051839.html)
 - Dec 18 - [Videos show North Koreans in Ukrainian trenches as Russia ‘hides casualties’](https://www.yahoo.com/news/videos-show-north-koreans-ukrainian-151719376.html)
-- Dec 18 - [Ship dubbed ‘floating megabomb’ dumps toxic fertiliser in North Sea](https://www.yahoo.com/news/ship-dubbed-floating-megabomb-dumps-145618995.html)
-- Dec 18 - [Biden honors the memory of his late first wife and baby daughter who died in a 1972 car crash](https://www.yahoo.com/news/biden-honors-memory-first-wife-145304981.html)
 <!-- feed end -->
 
 ### Onstream
