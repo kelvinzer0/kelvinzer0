@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Details emerge about Madison school shooting suspect's family life](https://www.yahoo.com/news/details-emerge-madison-school-shooting-184502083.html)
 - Dec 18 - [Oldest known stone tablet inscribed with the Ten Commandments sells for over $5M](https://www.yahoo.com/news/oldest-known-stone-tablet-inscribed-183455214.html)
+- Dec 18 - [Royal Caribbean passenger dies soon after being detained for chaotic incident caught on video](https://www.yahoo.com/news/royal-caribbean-passenger-dies-soon-180139857.html)
 - Dec 18 - [Trump Tries Out a New Hairstyle—and Gets Mixed Reviews](https://www.yahoo.com/entertainment/trump-tries-hairstyle-gets-mixed-171814533.html)
-- Dec 18 - [Green Bay-area snowfall chances increase: More than 6 inches expected, starting Thursday](https://www.yahoo.com/news/green-bay-area-snowfall-chances-165404519.html)
 - Dec 18 - [Columbus did not take syphilis to the Americas – he brought it back to Europe](https://www.yahoo.com/news/columbus-did-not-syphilis-americas-165344216.html)
-- Dec 18 - [Matt Gaetz Loses It After House Ethics Quietly Votes to Release Report](https://www.yahoo.com/news/matt-gaetz-melts-down-house-164545210.html)
 <!-- feed end -->
 
 ### Onstream
