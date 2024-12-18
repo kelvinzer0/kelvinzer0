@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Trump has tapped an unprecedented 13 billionaires for top administration roles. Here's who they are](https://www.yahoo.com/news/trump-tapped-unprecedented-13-billionaires-021222664.html)
+- Dec 18 - [Mega Millions winning numbers for Tuesday, Dec. 17 drawing: $760 million lottery jackpot](https://www.yahoo.com/news/mega-millions-winning-numbers-tuesday-020031021.html)
 - Dec 17 - [After investigating Jan. 6, House GOP sides with Trump and goes after Liz Cheney](https://www.yahoo.com/news/investigating-jan-6-house-gop-225434491.html)
-- Dec 17 - [Photo Reveals Christian School Shooter Natalie Rupnow’s Chilling Connection to Columbine Killer](https://www.yahoo.com/news/photo-reveals-christian-school-shooter-225134437.html)
-- Dec 17 - [Ukraine’s assassination of a Russian general should be a ‘signal’ to elites: Fmr. Amb. to Russia](https://www.yahoo.com/news/ukraine-assassination-russian-general-signal-215209594.html)
 - Dec 17 - [A US strategic reserve could push bitcoin to $500K: Bitwise CIO](https://finance.yahoo.com/video/us-strategic-could-push-bitcoin-213000587.html)
-- Dec 17 - [Elon Musk's Drug Use Becoming a Problem for Government Security Clearance](https://www.yahoo.com/news/elon-musks-drug-becoming-problem-200613900.html)
+- Dec 17 - [Muscle Loss In This Area Could Be A Key Indicator Of Dementia. An Expert Explains The Warning Signs.](https://www.yahoo.com/lifestyle/muscle-loss-area-could-key-211700898.html)
 <!-- feed end -->
 
 ### Onstream
