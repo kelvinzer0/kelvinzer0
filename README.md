@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [How the S&P 500 usually performs following extended rallies](https://finance.yahoo.com/video/p-500-usually-performs-following-124534976.html)
-- Dec 18 - [Complete mastodon jaw fossil found in New York backyard](https://www.yahoo.com/news/complete-mastodon-jaw-fossil-found-115729767.html)
+- Dec 18 - [Thousands without power along the Oregon Coast Wednesday morning](https://www.yahoo.com/news/thousands-without-power-along-oregon-132847644.html)
+- Dec 18 - [Inmate who killed Oklahoma girl says if execution could 'change what I did, I would gladly die'](https://www.yahoo.com/news/inmate-killed-oklahoma-girl-says-121351783.html)
 - Dec 18 - [North Korean troops don't realize drones are deadly and it's getting them killed, Ukrainian soldiers say](https://www.yahoo.com/news/north-korean-troops-dont-realize-115540967.html)
 - Dec 18 - [Mortgage and refinance rates today, December 18, 2024: Rates decrease again before Fed announcement](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-december-18-2024-110035497.html)
 - Dec 18 - [Nvidia's Blackwell chip could push the company into a new stratosphere as the AI revolution continues](https://finance.yahoo.com/news/nvidias-blackwell-chip-could-push-the-company-into-a-new-stratosphere-as-the-ai-revolution-continues-110015637.html)
