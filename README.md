@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Thousands without power along the Oregon Coast Wednesday morning](https://www.yahoo.com/news/thousands-without-power-along-oregon-132847644.html)
-- Dec 18 - [Inmate who killed Oklahoma girl says if execution could 'change what I did, I would gladly die'](https://www.yahoo.com/news/inmate-killed-oklahoma-girl-says-121351783.html)
-- Dec 18 - [North Korean troops don't realize drones are deadly and it's getting them killed, Ukrainian soldiers say](https://www.yahoo.com/news/north-korean-troops-dont-realize-115540967.html)
-- Dec 18 - [Mortgage and refinance rates today, December 18, 2024: Rates decrease again before Fed announcement](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-december-18-2024-110035497.html)
-- Dec 18 - [Nvidia's Blackwell chip could push the company into a new stratosphere as the AI revolution continues](https://finance.yahoo.com/news/nvidias-blackwell-chip-could-push-the-company-into-a-new-stratosphere-as-the-ai-revolution-continues-110015637.html)
+- Dec 18 - [Videos show North Koreans in Ukrainian trenches as Russia ‘hides casualties’](https://www.yahoo.com/news/videos-show-north-koreans-ukrainian-151719376.html)
+- Dec 18 - [In reversal, key House panel votes to release Matt Gaetz ethics report](https://www.yahoo.com/news/reversal-key-house-panel-votes-143010736.html)
+- Dec 18 - ['It's Gotten Dramatically Harder' – Peter Thiel Explains Why It's So Hard To Move An Office Or Headquarters From L.A. To Places Like Florida](https://finance.yahoo.com/news/gotten-dramatically-harder-peter-thiel-150021129.html)
+- Dec 18 - [Biden honors memory of his late first wife and baby daughter who died in a 1972 Delaware car crash](https://www.yahoo.com/news/biden-honors-memory-first-wife-145304981.html)
+- Dec 18 - [Nvidia is on a collision course with a $5 trillion valuation: Analyst](https://finance.yahoo.com/news/nvidia-is-on-a-collision-course-with-a-5-trillion-valuation-analyst-133039179.html)
 <!-- feed end -->
 
 ### Onstream
