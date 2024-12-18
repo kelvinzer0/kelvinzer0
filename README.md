@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Filipina who won a last-minute reprieve from an Indonesian firing squad returns home](https://www.yahoo.com/news/filipina-won-last-minute-reprieve-065925202.html)
+- Dec 18 - [Boeing says it has resumed 767, 777 wide-body production](https://finance.yahoo.com/news/boeing-says-resumed-767-777-035115970.html)
 - Dec 18 - [Trump nominates ex-US Senate candidate Herschel Walker as ambassador to Bahamas](https://www.yahoo.com/news/trump-nominates-ex-us-senate-023121698.html)
 - Dec 18 - [Nvidia stock's correction has accelerated since Microsoft's CEO hinted the frenzied demand for AI chips may be waning](https://finance.yahoo.com/news/nvidia-stocks-correction-accelerated-since-020804144.html)
 - Dec 18 - [An underground detector in China will sniff out mysterious ghost particles called neutrinos](https://www.yahoo.com/news/underground-detector-china-sniff-mysterious-010312546.html)
-- Dec 17 - [After investigating Jan. 6, House GOP sides with Trump and goes after Liz Cheney](https://www.yahoo.com/news/investigating-jan-6-house-gop-225434491.html)
-- Dec 17 - [Southwest Shares More Details on Assigned Seating and Extra Legroom — Including Who Will Get The Perks for Free](https://www.yahoo.com/lifestyle/southwest-shares-more-details-assigned-222759617.html)
 <!-- feed end -->
 
 ### Onstream
