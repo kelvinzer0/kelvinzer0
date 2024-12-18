@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Dow falls 1,100 points on disappointing Fed interest rate news](https://finance.yahoo.com/news/dow-falls-1-100-points-213638860.html)
+- Dec 18 - [Quantum Computing Stocks Are Flying. Investors Should Brace for a Long Haul.](https://www.barrons.com/articles/quantum-stocks-willow-google-bc0665af?siteid=yhoof2&yptr=yahoo)
 - Dec 18 - [Sex for sale on school’s out of control ski trip](https://www.yahoo.com/news/head-teacher-struck-off-over-204601459.html)
-- Dec 18 - [Invasive 'murder hornets' are wiped out in the US, officials say](https://www.yahoo.com/news/invasive-murder-hornets-wiped-us-210543816.html)
+- Dec 18 - [Highest-earning NYPD cop with OT-fueled $400,000 salary retires following Daily News exposé](https://www.yahoo.com/news/highest-earning-nypd-cop-ot-212600825.html)
+- Dec 18 - [Baby was 'unaccounted for' after deadly car crash. Police now say he was missing for months.](https://www.yahoo.com/news/baby-unaccounted-deadly-car-crash-212458853.html)
 - Dec 18 - [Details emerge about Madison school shooting suspect's family life](https://www.yahoo.com/news/details-emerge-madison-school-shooting-184502083.html)
-- Dec 18 - [Oldest known stone tablet inscribed with the Ten Commandments sells for over $5M](https://www.yahoo.com/news/oldest-known-stone-tablet-inscribed-183455214.html)
 <!-- feed end -->
 
 ### Onstream
