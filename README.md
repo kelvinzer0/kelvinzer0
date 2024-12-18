@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [New York homeowner’s yardwork reveals mastodon jaw](https://www.yahoo.com/news/york-homeowner-yardwork-reveals-mastodon-093834806.html)
-- Dec 18 - [AP PHOTOS: Majdal Shams, Israeli-controlled home to the Druze, perches uneasily at the edge of war](https://www.yahoo.com/news/ap-photos-majdal-shams-israeli-070443841.html)
+- Dec 18 - [Filipina who won a last-minute reprieve from an Indonesian firing squad returns home](https://www.yahoo.com/news/filipina-won-last-minute-reprieve-065925202.html)
 - Dec 18 - [Elon Musk says Starlink inactive in India after second device seized](https://finance.yahoo.com/news/elon-musk-says-starlink-inactive-062821621.html)
 - Dec 18 - [Boeing says it has resumed 767, 777 wide-body production](https://finance.yahoo.com/news/boeing-says-resumed-767-777-035115970.html)
-- Dec 18 - [An underground detector in China will sniff out mysterious ghost particles called neutrinos](https://www.yahoo.com/news/underground-detector-china-sniff-mysterious-010312546.html)
+- Dec 18 - [Southern California man violently beaten by road rage driver](https://www.yahoo.com/news/southern-california-man-violently-beaten-015737763.html)
+- Dec 18 - [Abundant Life Christian School shooting latest: Motive appears to be combination of factors, police say](https://www.yahoo.com/news/wisconsin-school-shooting-latest-attack-090009206.html)
 <!-- feed end -->
 
 ### Onstream
