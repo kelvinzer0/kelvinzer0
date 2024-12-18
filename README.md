@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Vietnam seeks to boost domestic defence industry as it hosts arms fair](https://finance.yahoo.com/news/vietnam-seeks-boost-domestic-defence-025815864.html)
+- Dec 18 - [Trump nominates ex-US Senate candidate Herschel Walker as ambassador to Bahamas](https://www.yahoo.com/news/trump-nominates-ex-us-senate-023121698.html)
+- Dec 18 - [Nvidia stock's correction has accelerated since Microsoft's CEO hinted the frenzied demand for AI chips may be waning](https://finance.yahoo.com/news/nvidia-stocks-correction-accelerated-since-020804144.html)
+- Dec 18 - [An underground detector in China will sniff out mysterious ghost particles called neutrinos](https://www.yahoo.com/news/underground-detector-china-sniff-mysterious-010312546.html)
+- Dec 18 - [Madison school shooter pictured with shotgun at firing range just months before her deadly rampage](https://www.yahoo.com/news/madison-school-shooter-pictured-shotgun-005218328.html)
 - Dec 17 - [After investigating Jan. 6, House GOP sides with Trump and goes after Liz Cheney](https://www.yahoo.com/news/investigating-jan-6-house-gop-225434491.html)
-- Dec 17 - [El Paso motorcyclist dies after fall off Spaghetti Bowl into reservoir](https://www.yahoo.com/news/el-paso-motorcyclist-dies-fall-224715015.html)
-- Dec 17 - [Texas jailer dies after being assaulted by incarcerated man, sheriff says](https://www.yahoo.com/news/texas-jailer-dies-being-physically-215823524.html)
-- Dec 17 - [A US strategic reserve could push bitcoin to $500K: Bitwise CIO](https://finance.yahoo.com/video/us-strategic-could-push-bitcoin-213000587.html)
 <!-- feed end -->
 
 ### Onstream
