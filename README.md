@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Ban on military insurance funding transgender care for kids set to become law after Senate passage](https://www.yahoo.com/news/ban-military-insurance-funding-transgender-185139652.html)
-- Dec 18 - [Twin sisters from Gaza killed after being accepted into University of Waterloo PhD program in Ontario](https://www.yahoo.com/news/twin-sisters-gaza-killed-being-183311144.html)
-- Dec 18 - [Former New Orleans priest, 93, is sentenced to life in prison for raping boy decades ago](https://www.yahoo.com/news/former-orleans-priest-93-sentenced-183152449.html)
+- Dec 18 - [Oldest known stone tablet inscribed with the Ten Commandments sells for over $5M](https://www.yahoo.com/news/oldest-known-stone-tablet-inscribed-183455214.html)
 - Dec 18 - [Trump Tries Out a New Hairstyle—and Gets Mixed Reviews](https://www.yahoo.com/entertainment/trump-tries-hairstyle-gets-mixed-171814533.html)
-- Dec 18 - [California squirrels are eating another rodent for the first time, new study finds](https://www.yahoo.com/news/california-squirrels-showing-carnivorous-behavior-162646157.html)
+- Dec 18 - [Green Bay-area snowfall chances increase: More than 6 inches expected, starting Thursday](https://www.yahoo.com/news/green-bay-area-snowfall-chances-165404519.html)
+- Dec 18 - [Columbus did not take syphilis to the Americas – he brought it back to Europe](https://www.yahoo.com/news/columbus-did-not-syphilis-americas-165344216.html)
+- Dec 18 - [Matt Gaetz Loses It After House Ethics Quietly Votes to Release Report](https://www.yahoo.com/news/matt-gaetz-melts-down-house-164545210.html)
 <!-- feed end -->
 
 ### Onstream
