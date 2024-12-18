@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [‘Monster’ passengers accused of bullying woman who wouldn’t trade her comfort seat for coach](https://www.yahoo.com/lifestyle/monster-passengers-accused-bullying-woman-203322406.html)
-- Dec 17 - [Abundant Life Christian School shooting latest: Motive appears to be combination of factors, police say](https://www.yahoo.com/news/wisconsin-school-shooting-latest-attack-090009206.html)
-- Dec 17 - [Trump asks judge to advance suit against Bob Woodward](https://www.yahoo.com/news/trump-asks-judge-advance-suit-181704778.html)
-- Dec 17 - [Judge allows testing of tissue samples from George Floyd as officer who killed him seeks new trial](https://www.yahoo.com/news/judge-allows-testing-tissue-samples-171412354.html)
-- Dec 17 - [Passenger blasted for bringing ‘emotional support’ Great Dane on airplane: ‘This s—t is getting out of hand’](https://www.yahoo.com/lifestyle/passenger-blasted-bringing-emotional-support-162105556.html)
+- Dec 17 - [After investigating Jan. 6, House GOP sides with Trump and goes after Liz Cheney](https://www.yahoo.com/news/investigating-jan-6-house-gop-225434491.html)
+- Dec 17 - [Photo Reveals Christian School Shooter Natalie Rupnow’s Chilling Connection to Columbine Killer](https://www.yahoo.com/news/photo-reveals-christian-school-shooter-225134437.html)
+- Dec 17 - [Ukraine’s assassination of a Russian general should be a ‘signal’ to elites: Fmr. Amb. to Russia](https://www.yahoo.com/news/ukraine-assassination-russian-general-signal-215209594.html)
+- Dec 17 - [A US strategic reserve could push bitcoin to $500K: Bitwise CIO](https://finance.yahoo.com/video/us-strategic-could-push-bitcoin-213000587.html)
+- Dec 17 - [Elon Musk's Drug Use Becoming a Problem for Government Security Clearance](https://www.yahoo.com/news/elon-musks-drug-becoming-problem-200613900.html)
 <!-- feed end -->
 
 ### Onstream
