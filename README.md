@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Videos show North Koreans in Ukrainian trenches as Russia ‘hides casualties’](https://www.yahoo.com/news/videos-show-north-koreans-ukrainian-151719376.html)
 - Dec 18 - [In reversal, key House panel votes to release Matt Gaetz ethics report](https://www.yahoo.com/news/reversal-key-house-panel-votes-143010736.html)
-- Dec 18 - ['It's Gotten Dramatically Harder' – Peter Thiel Explains Why It's So Hard To Move An Office Or Headquarters From L.A. To Places Like Florida](https://finance.yahoo.com/news/gotten-dramatically-harder-peter-thiel-150021129.html)
-- Dec 18 - [Biden honors memory of his late first wife and baby daughter who died in a 1972 Delaware car crash](https://www.yahoo.com/news/biden-honors-memory-first-wife-145304981.html)
-- Dec 18 - [Nvidia is on a collision course with a $5 trillion valuation: Analyst](https://finance.yahoo.com/news/nvidia-is-on-a-collision-course-with-a-5-trillion-valuation-analyst-133039179.html)
+- Dec 18 - [4 Russian warplanes spotted flying near Alaska, NORAD says](https://www.yahoo.com/news/4-russian-warplanes-spotted-flying-160810933.html)
+- Dec 18 - [Videos show North Koreans in Ukrainian trenches as Russia ‘hides casualties’](https://www.yahoo.com/news/videos-show-north-koreans-ukrainian-151719376.html)
+- Dec 18 - [Ship dubbed ‘floating megabomb’ dumps toxic fertiliser in North Sea](https://www.yahoo.com/news/ship-dubbed-floating-megabomb-dumps-145618995.html)
+- Dec 18 - [Biden honors the memory of his late first wife and baby daughter who died in a 1972 car crash](https://www.yahoo.com/news/biden-honors-memory-first-wife-145304981.html)
 <!-- feed end -->
 
 ### Onstream
