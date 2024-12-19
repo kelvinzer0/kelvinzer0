@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Why investors shouldn't ignore  'brown' energy companies](https://finance.yahoo.com/video/why-investors-shouldnt-ignore-brown-110044136.html)
-- Dec 19 - [Putin says Russia is ready for a missile duel with the U.S](https://www.yahoo.com/news/putin-says-russia-ready-missile-101220440.html)
 - Dec 19 - [Wisconsin school shooter was in contact with a California man accused of planning separate attack, report says](https://www.yahoo.com/news/small-tight-knit-community-madison-081132790.html)
 - Dec 19 - [Taiwan's China Airlines splits $11.9 billion aircraft deal between Boeing and Airbus](https://finance.yahoo.com/news/taiwans-china-airlines-orders-11-090703696.html)
 - Dec 19 - [After a decade in Turkey, a Syrian refugee rushes to return home, but reality hits](https://www.yahoo.com/news/decade-turkey-syrian-refugee-rushes-050600893.html)
+- Dec 19 - [Israeli airstrikes hit Yemen's rebel-held capital and port city after Houthi attack targets Israel](https://www.yahoo.com/news/airstrikes-target-yemens-rebel-held-015058275.html)
+- Dec 19 - [McConnell on funding turmoil: ‘Oh, this is the way it’s going to be next year’](https://www.yahoo.com/news/mcconnell-funding-turmoil-oh-way-010848301.html)
 <!-- feed end -->
 
 ### Onstream
