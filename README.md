@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [Appeals court removes prosecutor Fani Willis from Georgia election case against Trump and others](https://www.yahoo.com/news/appeals-court-removes-prosecutor-fani-145932175.html)
 - Dec 19 - [Putin says he pulled Russia back from the edge of the abyss](https://www.yahoo.com/news/putin-says-pulled-russia-back-140511756.html)
 - Dec 19 - [Archaeologists Found a 5,000-Year-Old Tomb That May Be a Gateway to a Prehistoric Kingdom](https://www.yahoo.com/news/archaeologists-found-5-000-old-130100420.html)
-- Dec 19 - [Putin proposes missile duel with U.S. to test Russia's Oreshnik](https://www.yahoo.com/news/putin-proposes-missile-duel-u-115938737.html)
 - Dec 19 - [Scientists share concerns over phenomenon observed in Antarctica: 'It's bonkers'](https://www.yahoo.com/news/scientists-share-concerns-over-phenomenon-104555935.html)
-- Dec 19 - [Wisconsin school shooter was in contact with a California man accused of planning separate attack, report says](https://www.yahoo.com/news/small-tight-knit-community-madison-081132790.html)
+- Dec 19 - [FDA issues recall on popular dog treat that can kill pets](https://www.yahoo.com/news/fda-issues-recall-popular-dog-102255354.html)
 <!-- feed end -->
 
 ### Onstream
