@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Victims of Wisconsin school shooting identified as details emerge about the home life of teen who opened fire](https://www.yahoo.com/news/small-tight-knit-community-madison-081132790.html)
+- Dec 19 - [Wisconsin school shooter was in contact with a California man accused of planning separate attack, report says](https://www.yahoo.com/news/small-tight-knit-community-madison-081132790.html)
+- Dec 19 - [I'll 'Sip My Tea': Jasmine Crockett Lights Up 'Unproductive' GOP Amid Spending Bill Chaos](https://www.yahoo.com/news/ill-sip-tea-jasmine-crockett-092807857.html)
+- Dec 19 - [After a decade in Turkey, a Syrian refugee rushes to return home, but reality hits](https://www.yahoo.com/news/decade-turkey-syrian-refugee-rushes-050600893.html)
+- Dec 19 - [EU leaders to send 'clear message' to Trump on Ukraine, to debate U.S. ties](https://www.yahoo.com/news/eu-leaders-send-clear-message-040515856.html)
 - Dec 19 - [Israeli airstrikes hit Yemen's rebel-held capital and port city after Houthi attack targets Israel](https://www.yahoo.com/news/airstrikes-target-yemens-rebel-held-015058275.html)
-- Dec 18 - [Boise sees record-high temperature in a century. Another record could be coming](https://www.yahoo.com/news/boise-sees-record-high-temperature-233743838.html)
-- Dec 18 - [Elon Musk Posts Racist Images In Response To Elizabeth Warren's Call For Ethics Standards](https://www.yahoo.com/news/elon-musk-posts-racist-images-233201899.html)
-- Dec 18 - [Rockford Boylan president resigns: 'I leave with immense pride'](https://www.yahoo.com/news/rockford-boylan-president-resigns-leave-225925783.html)
 <!-- feed end -->
 
 ### Onstream
