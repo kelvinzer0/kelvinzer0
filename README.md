@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Thursday Israeli airstrike hits house in central Gaza Strip killing five people, injuring seven more](https://www.yahoo.com/news/thursday-israeli-airstrike-hits-house-162840502.html)
-- Dec 19 - [Marietta Police Department names new deputy chief](https://www.yahoo.com/news/marietta-police-department-names-deputy-160509065.html)
+- Dec 19 - [Syrian villagers near the Golan Heights say Israeli forces are banning them from their fields](https://www.yahoo.com/news/syrian-villagers-near-golan-heights-175730830.html)
+- Dec 19 - [Appleton area expecting heavier snow in the afternoon during Thursday's winter storm](https://www.yahoo.com/news/appleton-area-expecting-heavier-snow-174425563.html)
+- Dec 19 - [Everyone Is Acting Like An A-Hole Lately, So Here Are 50 Photos Of Absolutely Infuriating People](https://www.yahoo.com/entertainment/everyone-acting-hole-lately-50-170102992.html)
+- Dec 19 - [Fatal crash on I-65 leads to 5-mile backup as semi engulfed in flames](https://www.yahoo.com/news/fatal-crash-65-leads-5-165017716.html)
 - Dec 19 - [Neil Cavuto Is Leaving Fox News After Nearly 30 Years](https://www.yahoo.com/news/neil-cavuto-leaving-fox-news-155350982.html)
-- Dec 19 - [Shutdown Looms After Trump ‘Blindsided’ by ‘President Elon Musk'](https://www.yahoo.com/news/shutdown-looms-trump-blindsided-president-153033490.html)
-- Dec 19 - [Putin says he pulled Russia back from the edge of the abyss](https://www.yahoo.com/news/putin-says-pulled-russia-back-140511756.html)
 <!-- feed end -->
 
 ### Onstream
