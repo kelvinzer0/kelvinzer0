@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [UCLA student sues California doctors, says she was 'fast-tracked' into transgender surgery](https://www.yahoo.com/news/ucla-student-sues-california-doctors-222039795.html)
+- Dec 19 - [Intel Shortlists Suitors for Programmable Chip Arm Altera](https://finance.yahoo.com/news/intel-shortlists-suitors-programmable-chip-185845486.html)
 - Dec 19 - [Luigi Mangione’s Prison Transformation Draws Stares at Court](https://www.yahoo.com/news/luigi-mangione-prison-transformation-draws-173600289.html)
 - Dec 19 - [Snowfall forecast: Latest timeline, expected totals map for snow coming to Boston area](https://www.yahoo.com/news/snowfall-forecast-latest-timeline-expected-170812227.html)
-- Dec 19 - [Everyone Is Acting Like An A-Hole Lately, So Here Are 50 Photos Of Absolutely Infuriating People](https://www.yahoo.com/entertainment/everyone-acting-hole-lately-50-170102992.html)
-- Dec 19 - [Neil Cavuto Is Leaving Fox News After Nearly 30 Years](https://www.yahoo.com/news/neil-cavuto-leaving-fox-news-155350982.html)
+- Dec 19 - [Small plane crashes in Town of Aurora 1 on board](https://www.yahoo.com/news/small-plane-crashes-town-aurora-170306118.html)
+- Dec 19 - [Thursday Israeli airstrike hits house in central Gaza Strip killing five people, injuring seven more](https://www.yahoo.com/news/thursday-israeli-airstrike-hits-house-162840502.html)
 <!-- feed end -->
 
 ### Onstream
