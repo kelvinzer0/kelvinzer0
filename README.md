@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [Victims of Wisconsin school shooting identified as details emerge about the home life of teen who opened fire](https://www.yahoo.com/news/small-tight-knit-community-madison-081132790.html)
+- Dec 19 - [Putin holds annual press conference and televised call-in show](https://www.yahoo.com/news/putin-holds-annual-press-conference-062719093.html)
+- Dec 19 - [This 2-hour window is the best time of day to work out for weight loss, study finds](https://www.yahoo.com/lifestyle/best-time-day-200734088.html)
+- Dec 19 - [After a decade in Turkey, a Syrian refugee rushes to return home, but reality hits](https://www.yahoo.com/news/decade-turkey-syrian-refugee-rushes-050600893.html)
 - Dec 19 - [Israeli airstrikes hit Yemen's rebel-held capital and port city after Houthi attack targets Israel](https://www.yahoo.com/news/airstrikes-target-yemens-rebel-held-015058275.html)
-- Dec 18 - [Elon Musk Posts Racist Images In Response To Elizabeth Warren's Call For Ethics Standards](https://www.yahoo.com/news/elon-musk-posts-racist-images-233201899.html)
-- Dec 18 - [Rockford Boylan president resigns: 'I leave with immense pride'](https://www.yahoo.com/news/rockford-boylan-president-resigns-leave-225925783.html)
-- Dec 18 - [US alarmed Russia close to accepting nuclear-armed North Korea](https://www.yahoo.com/news/us-alarmed-russia-close-accepting-225133154.html)
-- Dec 18 - [Sex for sale on school’s out of control ski trip](https://www.yahoo.com/news/head-teacher-struck-off-over-204601459.html)
 <!-- feed end -->
 
 ### Onstream
