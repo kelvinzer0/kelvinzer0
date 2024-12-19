@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [Syrian family faces challenges after returning home from Turkey](https://www.yahoo.com/news/syrian-family-faces-challenges-returning-034022211.html)
 - Dec 19 - [Israeli airstrikes hit Yemen's rebel-held capital and port city after Houthi attack targets Israel](https://www.yahoo.com/news/airstrikes-target-yemens-rebel-held-015058275.html)
 - Dec 18 - [Elon Musk Posts Racist Images In Response To Elizabeth Warren's Call For Ethics Standards](https://www.yahoo.com/news/elon-musk-posts-racist-images-233201899.html)
+- Dec 18 - [Rockford Boylan president resigns: 'I leave with immense pride'](https://www.yahoo.com/news/rockford-boylan-president-resigns-leave-225925783.html)
 - Dec 18 - [US alarmed Russia close to accepting nuclear-armed North Korea](https://www.yahoo.com/news/us-alarmed-russia-close-accepting-225133154.html)
-- Dec 18 - [Sex for sale on school’s out of control ski trip](https://www.yahoo.com/news/head-teacher-struck-off-over-204601459.html)
-- Dec 18 - [Stockpiles of Illicit Captagon Drug Discovered Near Damascus in Wake of Assad's Ousting](https://www.yahoo.com/news/stockpiles-illicit-captagon-drug-discovered-212817451.html)
 <!-- feed end -->
 
 ### Onstream
