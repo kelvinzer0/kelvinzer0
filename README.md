@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Appeals court removes prosecutor Fani Willis from Georgia election case against Trump and others](https://www.yahoo.com/news/appeals-court-removes-prosecutor-fani-145932175.html)
+- Dec 19 - [Thursday Israeli airstrike hits house in central Gaza Strip killing five people, injuring seven more](https://www.yahoo.com/news/thursday-israeli-airstrike-hits-house-162840502.html)
+- Dec 19 - [Marietta Police Department names new deputy chief](https://www.yahoo.com/news/marietta-police-department-names-deputy-160509065.html)
+- Dec 19 - [Neil Cavuto Is Leaving Fox News After Nearly 30 Years](https://www.yahoo.com/news/neil-cavuto-leaving-fox-news-155350982.html)
+- Dec 19 - [Shutdown Looms After Trump ‘Blindsided’ by ‘President Elon Musk'](https://www.yahoo.com/news/shutdown-looms-trump-blindsided-president-153033490.html)
 - Dec 19 - [Putin says he pulled Russia back from the edge of the abyss](https://www.yahoo.com/news/putin-says-pulled-russia-back-140511756.html)
-- Dec 19 - [Archaeologists Found a 5,000-Year-Old Tomb That May Be a Gateway to a Prehistoric Kingdom](https://www.yahoo.com/news/archaeologists-found-5-000-old-130100420.html)
-- Dec 19 - [Scientists share concerns over phenomenon observed in Antarctica: 'It's bonkers'](https://www.yahoo.com/news/scientists-share-concerns-over-phenomenon-104555935.html)
-- Dec 19 - [FDA issues recall on popular dog treat that can kill pets](https://www.yahoo.com/news/fda-issues-recall-popular-dog-102255354.html)
 <!-- feed end -->
 
 ### Onstream
