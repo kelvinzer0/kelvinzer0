@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Ex-husband of ‘Real Housewives’ star sentenced to more than a year in prison, owes $2.5 million](https://www.yahoo.com/news/ex-husband-real-housewives-star-210933292.html)
+- Dec 19 - [A Quantum Computer Could Crack Bitcoin in Half, Research Finds](https://www.yahoo.com/tech/quantum-computer-could-crack-bitcoin-203405031.html)
+- Dec 19 - [Trump threatens primary against Texas conservative Chip Roy](https://www.yahoo.com/news/trump-threatens-primary-against-texas-201603396.html)
+- Dec 19 - [Damning Report on Biden Reveals How He Was Struggling From Beginning](https://www.yahoo.com/news/damning-report-reveals-biden-aides-200226068.html)
+- Dec 19 - [Watch the littlest baby bear make a giant leap to cross Gatlinburg creek](https://www.yahoo.com/news/watch-littlest-baby-bear-giant-194351612.html)
 - Dec 19 - [UCLA student sues California doctors, says she was 'fast-tracked' into transgender surgery](https://www.yahoo.com/news/ucla-student-sues-california-doctors-222039795.html)
-- Dec 19 - [Syrian villagers near the Golan Heights say Israeli forces are banning them from their fields](https://www.yahoo.com/news/syrian-villagers-near-golan-heights-175730830.html)
-- Dec 19 - [Luigi Mangione’s Prison Transformation Draws Stares at Court](https://www.yahoo.com/news/luigi-mangione-prison-transformation-draws-173600289.html)
-- Dec 19 - [Snowfall forecast: Latest timeline, expected totals map for snow coming to Boston area](https://www.yahoo.com/news/snowfall-forecast-latest-timeline-expected-170812227.html)
 <!-- feed end -->
 
 ### Onstream
