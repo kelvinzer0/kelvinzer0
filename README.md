@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Gisele Pelicot ‘respects’ court amid backlash over low sentences](https://www.yahoo.com/news/gisele-pelicot-respects-court-amid-133833622.html)
-- Dec 19 - [Suze Orman: This Is the Biggest Risk If You Rent in Retirement](https://finance.yahoo.com/news/suze-orman-biggest-risk-rent-120115519.html)
-- Dec 19 - [Putin denies Russian defeat in Syria, says Israel is the main winner](https://www.yahoo.com/news/putin-says-russia-not-defeated-104607040.html)
+- Dec 19 - [Putin says he pulled Russia back from the edge of the abyss](https://www.yahoo.com/news/putin-says-pulled-russia-back-140511756.html)
+- Dec 19 - [Archaeologists Found a 5,000-Year-Old Tomb That May Be a Gateway to a Prehistoric Kingdom](https://www.yahoo.com/news/archaeologists-found-5-000-old-130100420.html)
+- Dec 19 - [Putin proposes missile duel with U.S. to test Russia's Oreshnik](https://www.yahoo.com/news/putin-proposes-missile-duel-u-115938737.html)
 - Dec 19 - [Scientists share concerns over phenomenon observed in Antarctica: 'It's bonkers'](https://www.yahoo.com/news/scientists-share-concerns-over-phenomenon-104555935.html)
-- Dec 19 - [Warren Buffett Owns 1 Vanguard Index Fund That Could Soar 147%, According to a Top Wall Street Analyst](https://finance.yahoo.com/news/warren-buffett-owns-1-vanguard-094700983.html)
+- Dec 19 - [Wisconsin school shooter was in contact with a California man accused of planning separate attack, report says](https://www.yahoo.com/news/small-tight-knit-community-madison-081132790.html)
 <!-- feed end -->
 
 ### Onstream
