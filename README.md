@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Quantum Computing Stocks Are Flying. Investors Should Brace for a Long Haul.](https://www.barrons.com/articles/quantum-stocks-willow-google-bc0665af?siteid=yhoof2&yptr=yahoo)
+- Dec 18 - [Elon Musk Posts Racist Images In Response To Elizabeth Warren's Call For Ethics Standards](https://www.yahoo.com/news/elon-musk-posts-racist-images-233201899.html)
+- Dec 18 - [Top GOP appropriator ‘surprised’ by Trump debt ceiling demand: ‘Don’t know his rationale’](https://www.yahoo.com/news/top-gop-appropriator-surprised-trump-225737483.html)
+- Dec 18 - [US alarmed Russia close to accepting nuclear-armed North Korea](https://www.yahoo.com/news/us-alarmed-russia-close-accepting-225133154.html)
 - Dec 18 - [Sex for sale on school’s out of control ski trip](https://www.yahoo.com/news/head-teacher-struck-off-over-204601459.html)
-- Dec 18 - [Highest-earning NYPD cop with OT-fueled $400,000 salary retires following Daily News exposé](https://www.yahoo.com/news/highest-earning-nypd-cop-ot-212600825.html)
-- Dec 18 - [Baby was 'unaccounted for' after deadly car crash. Police now say he was missing for months.](https://www.yahoo.com/news/baby-unaccounted-deadly-car-crash-212458853.html)
-- Dec 18 - [Details emerge about Madison school shooting suspect's family life](https://www.yahoo.com/news/details-emerge-madison-school-shooting-184502083.html)
+- Dec 18 - [I almost died after giving birth. Nineteen years later, my son and the son of the doctor who saved my life are dorm mates in college.](https://www.yahoo.com/lifestyle/almost-died-giving-birth-nineteen-205301980.html)
 <!-- feed end -->
 
 ### Onstream
