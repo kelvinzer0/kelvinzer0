@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Suze Orman: This Uncommon Approach To Building Wealth Could Change Everything If You’re Sick of Low Returns](https://finance.yahoo.com/news/suze-orman-uncommon-approach-building-120032277.html)
+- Dec 19 - [Ex-husband of ‘Real Housewives’ star sentenced to more than a year in prison, owes $2.5 million](https://www.yahoo.com/news/ex-husband-real-housewives-star-210933292.html)
+- Dec 19 - [UCLA student sues California doctors, says she was 'fast-tracked' into transgender surgery](https://www.yahoo.com/news/ucla-student-sues-california-doctors-222039795.html)
 - Dec 19 - [Syrian villagers near the Golan Heights say Israeli forces are banning them from their fields](https://www.yahoo.com/news/syrian-villagers-near-golan-heights-175730830.html)
+- Dec 19 - [Luigi Mangione’s Prison Transformation Draws Stares at Court](https://www.yahoo.com/news/luigi-mangione-prison-transformation-draws-173600289.html)
 - Dec 19 - [Snowfall forecast: Latest timeline, expected totals map for snow coming to Boston area](https://www.yahoo.com/news/snowfall-forecast-latest-timeline-expected-170812227.html)
-- Dec 19 - [Neil Cavuto Is Leaving Fox News After Nearly 30 Years](https://www.yahoo.com/news/neil-cavuto-leaving-fox-news-155350982.html)
-- Dec 19 - [America weighs in on the most expensive fast food chain](https://www.yahoo.com/news/america-weighs-most-expensive-fast-153604846.html)
 <!-- feed end -->
 
 ### Onstream
