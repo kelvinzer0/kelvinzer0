@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Carnival Corp Stock Surges Following Strong Earnings Report](https://finance.yahoo.com/news/carnival-corp-stock-surges-following-203746269.html)
 - Dec 20 - [Costco opening new store locations in early 2025: See the list of warehouses](https://finance.yahoo.com/news/costco-opening-store-locations-early-180208053.html)
 - Dec 20 - [Why North Korean troops are proving a nightmare for Russia](https://www.yahoo.com/news/why-north-korean-troops-proving-180000712.html)
-- Dec 20 - [Large police presence in tense situation in Masury](https://www.yahoo.com/news/large-police-presence-tense-situation-171213165.html)
-- Dec 20 - [President-elect Trump transfers close to $4 billion worth of his Trump Media shares to a trust](https://finance.yahoo.com/news/president-elect-trump-transfers-close-164734203.html)
-- Dec 20 - [Man abandons haircut to help officer under attack](https://www.yahoo.com/news/man-abandons-haircut-help-officer-162909352.html)
+- Dec 20 - [Texas new mom deported for missed immigration hearing after C-section, family says](https://www.yahoo.com/news/texas-mom-deported-missed-hearing-230430992.html)
+- Dec 20 - [Archer (ACHR), Joby (JOBY) Advance After Announcing Milestones](https://finance.yahoo.com/news/archer-achr-joby-joby-advance-172338236.html)
 <!-- feed end -->
 
 ### Onstream
