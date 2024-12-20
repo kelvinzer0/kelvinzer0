@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [King’s cancer treatment to continue into new year](https://www.yahoo.com/lifestyle/king-cancer-treatment-continue-124228784.html)
-- Dec 20 - [US economy in very 'rare,' historical moment: Deutsche Bank's Chadha](https://finance.yahoo.com/video/us-economy-very-rare-historical-121500075.html)
-- Dec 19 - [21 Clueless Bosses Who Should Be Fired From Their Jobs, Like, Immediately](https://www.yahoo.com/lifestyle/21-selfish-bosses-making-employees-233102833.html)
-- Dec 19 - [Canada's retaliation for Trump tariffs is biggest concern, says Japan's Komatsu](https://finance.yahoo.com/news/canadas-retaliation-trump-tariffs-biggest-230508775.html)
-- Dec 19 - [Jimmy Fallon Gives Trump And Musk A Couple Name, And It’s Flawless](https://www.yahoo.com/entertainment/jimmy-fallon-gives-trump-musk-203822144.html)
+- Dec 20 - [Christmas Travel Weather Live Updates: Midwest Snow Spreads East](https://www.yahoo.com/news/christmas-travel-weather-live-updates-142000444.html)
+- Dec 20 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
+- Dec 20 - [Israel seeks suspected arsonists in mosque fire](https://www.yahoo.com/news/israel-seeks-suspected-arsonists-mosque-123125726.html)
+- Dec 20 - [At least one killed and several embassies damaged in ‘barbaric’ Russian missile barrage on Kyiv, Ukraine says](https://www.yahoo.com/news/least-one-killed-fresh-russian-111422921.html)
+- Dec 20 - [US scientists probe potentially massive energy source buried deep underground — and it has potential to power the globe for thousands of years](https://www.yahoo.com/tech/us-scientists-probe-potentially-massive-111506628.html)
 <!-- feed end -->
 
 ### Onstream
