@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Ukraine collects vast war data trove to train AI models](https://www.yahoo.com/news/ukraine-collects-vast-war-data-060344503.html)
+- Dec 20 - [For thousands of Jews, Israel still doesn't feel safe after the Oct. 7 attacks. So they're leaving](https://www.yahoo.com/news/thousands-jews-israel-still-doesnt-064932955.html)
+- Dec 20 - [Crypto Market Sees $1.2 Billion in Liquidations as Bitcoin, Dogecoin, XRP and Solana Face Double-Digit Losses](https://finance.yahoo.com/news/crypto-market-sees-1-2-042428581.html)
+- Dec 20 - [The Air Force Secretary said Elon Musk 'needs to learn a little bit more about the business' before deriding crewed fighter jets](https://www.yahoo.com/news/air-force-secretary-said-elon-035917684.html)
 - Dec 19 - [Canada's retaliation for Trump tariffs is biggest concern, says Japan's Komatsu](https://finance.yahoo.com/news/canadas-retaliation-trump-tariffs-biggest-230508775.html)
 - Dec 19 - [These 10 Foods Have the Most Microplastics](https://www.yahoo.com/entertainment/10-foods-most-microplastics-230046257.html)
-- Dec 19 - [Trump threatens primary against Texas conservative Chip Roy](https://www.yahoo.com/news/trump-threatens-primary-against-texas-201603396.html)
-- Dec 19 - [Damning Report on Biden Reveals How He Was Struggling From Beginning](https://www.yahoo.com/news/damning-report-biden-reveals-struggling-200226302.html)
 <!-- feed end -->
 
 ### Onstream
