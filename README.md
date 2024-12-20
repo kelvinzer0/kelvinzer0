@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Dozens of men found guilty in Gisèle Pelicot mass rape trial that shocked France](https://www.yahoo.com/news/dozens-men-found-guilty-gis-005448707.html)
-- Dec 19 - [A Quantum Computer Could Crack Bitcoin in Half, Research Finds](https://www.yahoo.com/tech/quantum-computer-could-crack-bitcoin-203405031.html)
+- Dec 20 - [Man responsible for two CDOT workers’ deaths now arrested](https://www.yahoo.com/news/man-responsible-two-cdot-workers-001341302.html)
 - Dec 19 - [Trump threatens primary against Texas conservative Chip Roy](https://www.yahoo.com/news/trump-threatens-primary-against-texas-201603396.html)
 - Dec 19 - [Israel and Hamas appear close to a ceasefire deal. These are the sticking points](https://www.yahoo.com/news/israel-hamas-appear-close-ceasefire-201527412.html)
 - Dec 19 - [Damning Report on Biden Reveals How He Was Struggling From Beginning](https://www.yahoo.com/news/damning-report-biden-reveals-struggling-200226302.html)
+- Dec 19 - [Trump Sure Seems Pissed at Elon Musk Over the Spending Bill](https://www.yahoo.com/news/trump-sure-seems-pissed-elon-194403488.html)
 <!-- feed end -->
 
 ### Onstream
