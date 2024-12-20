@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Haliey Welch releases first statement after going MIA following 'Hawk Tuah' crypto crash](https://www.yahoo.com/tech/haliey-welch-releases-first-statement-160808862.html)
+- Dec 20 - [35-Year-Old Dividend Investor Retired in 'Paradise Beach' in Southeast Asia Shares His Top 5 ETF Picks – 'The Best Life, Feels Like a Dream'](https://finance.yahoo.com/news/35-old-dividend-investor-retired-160015260.html)
+- Dec 20 - [Trump: ‘If there is going to be a shutdown of government, let it begin now’](https://www.yahoo.com/news/trump-going-shutdown-government-let-140900132.html)
 - Dec 20 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
-- Dec 20 - [Trump was poised to inherit a strong economy. Then things got rocky and he added to the uncertainty](https://www.yahoo.com/news/trump-poised-inherit-strong-economy-120023870.html)
-- Dec 20 - [US scientists probe potentially massive energy source buried deep underground — and it has potential to power the globe for thousands of years](https://www.yahoo.com/tech/us-scientists-probe-potentially-massive-111506628.html)
-- Dec 20 - [Britain’s Got Talent tributes pour in for ‘lovely’ contestant after body is found](https://www.yahoo.com/news/britain-got-talent-tributes-pour-101857941.html)
-- Dec 20 - [Prince Andrew Set to Flee England for Controversial Secret Palace Overseas](https://www.yahoo.com/news/prince-andrew-set-flee-england-101445688.html)
+- Dec 20 - [How innovation died at Intel: America's only leading-edge chip manufacturer faces an uncertain future and lawsuits](https://finance.yahoo.com/news/how-innovation-died-at-intel-americas-only-leading-edge-chip-manufacturer-faces-an-uncertain-future-and-lawsuits-130018997.html)
 <!-- feed end -->
 
 ### Onstream
