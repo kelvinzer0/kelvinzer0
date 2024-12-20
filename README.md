@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Christmas Travel Weather Live Updates: Midwest Snow Spreads East](https://www.yahoo.com/news/christmas-travel-weather-live-updates-142000444.html)
 - Dec 20 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
-- Dec 20 - [Israel seeks suspected arsonists in mosque fire](https://www.yahoo.com/news/israel-seeks-suspected-arsonists-mosque-123125726.html)
-- Dec 20 - [At least one killed and several embassies damaged in ‘barbaric’ Russian missile barrage on Kyiv, Ukraine says](https://www.yahoo.com/news/least-one-killed-fresh-russian-111422921.html)
+- Dec 20 - [Trump was poised to inherit a strong economy. Then things got rocky and he added to the uncertainty](https://www.yahoo.com/news/trump-poised-inherit-strong-economy-120023870.html)
 - Dec 20 - [US scientists probe potentially massive energy source buried deep underground — and it has potential to power the globe for thousands of years](https://www.yahoo.com/tech/us-scientists-probe-potentially-massive-111506628.html)
+- Dec 20 - [Britain’s Got Talent tributes pour in for ‘lovely’ contestant after body is found](https://www.yahoo.com/news/britain-got-talent-tributes-pour-101857941.html)
+- Dec 20 - [Prince Andrew Set to Flee England for Controversial Secret Palace Overseas](https://www.yahoo.com/news/prince-andrew-set-flee-england-101445688.html)
 <!-- feed end -->
 
 ### Onstream
