@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Bitcoin Slumps as Trump Euphoria Gives Way to Wariness on Fed](https://finance.yahoo.com/news/bitcoin-slumps-trump-euphoria-gives-114431051.html)
-- Dec 20 - [ABC News staff losing patience with George Stephanopoulos after $15m libel payout](https://www.yahoo.com/news/abc-news-staff-losing-patience-103000563.html)
+- Dec 20 - [Trump was poised to inherit a strong economy. Then things got rocky and he added to the uncertainty](https://finance.yahoo.com/news/trump-poised-inherit-strong-economy-120023064.html)
 - Dec 20 - [Out-of-control invasive species has met its match: Cute and hungry otters](https://www.yahoo.com/news/control-invasive-species-met-match-101422332.html)
 - Dec 20 - [Russian bombardment targets Kyiv after Ukraine fires US-made missiles across the border](https://www.yahoo.com/news/russia-ukraine-exchange-missile-attacks-084750557.html)
-- Dec 20 - [Quantum Computing Stock Plummets 40% After Record Rally](https://finance.yahoo.com/news/quantum-computing-stock-plummets-40-073550360.html)
+- Dec 20 - [Crypto Market Sees $1.2 Billion in Liquidations as Bitcoin, Dogecoin, XRP and Solana Face Double-Digit Losses](https://finance.yahoo.com/news/crypto-market-sees-1-2-042428581.html)
+- Dec 20 - [US State Dept. issues ‘do not travel’ warning for Mexico cruise port](https://www.yahoo.com/lifestyle/us-shares-serious-travel-advisories-181957985.html)
 <!-- feed end -->
 
 ### Onstream
