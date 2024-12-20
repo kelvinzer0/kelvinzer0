@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Parking dispute at Southern California mall turns into violent brawl, robbery](https://www.yahoo.com/news/parking-dispute-southern-california-turns-043736994.html)
 - Dec 20 - [Crypto Market Sees $1.2 Billion in Liquidations as Bitcoin, Dogecoin, XRP and Solana Face Double-Digit Losses](https://finance.yahoo.com/news/crypto-market-sees-1-2-042428581.html)
 - Dec 20 - [The Air Force Secretary said Elon Musk 'needs to learn a little bit more about the business' before deriding crewed fighter jets](https://www.yahoo.com/news/air-force-secretary-said-elon-035917684.html)
-- Dec 20 - [Southern California’s dry spell could be one for the record books](https://www.yahoo.com/news/southern-california-dry-spell-could-012104838.html)
-- Dec 19 - [How a government shutdown affects Social Security payments: What you need to know](https://www.yahoo.com/news/government-shutdown-affects-social-security-234006312.html)
-- Dec 19 - [These 10 Foods Have the Most Microplastics](https://www.yahoo.com/entertainment/10-foods-most-microplastics-230046257.html)
+- Dec 20 - [Scientists think they know why Stonehenge was rebuilt thousands of years ago](https://www.yahoo.com/news/scientists-think-know-why-stonehenge-003538608.html)
+- Dec 19 - [Canada's retaliation for Trump tariffs is biggest concern, says Japan's Komatsu](https://finance.yahoo.com/news/canadas-retaliation-trump-tariffs-biggest-230508775.html)
 <!-- feed end -->
 
 ### Onstream
