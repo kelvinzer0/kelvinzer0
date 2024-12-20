@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Republicans’ troubles are only just beginning](https://www.yahoo.com/news/republicans-troubles-only-just-beginning-171943931.html)
+- Dec 20 - [President-elect Trump transfers close to $4 billion worth of his Trump Media shares to a trust](https://finance.yahoo.com/news/president-elect-trump-transfers-close-164734203.html)
+- Dec 20 - [Man abandons haircut to help officer under attack](https://www.yahoo.com/news/man-abandons-haircut-help-officer-162909352.html)
 - Dec 20 - [Haliey Welch releases first statement after going MIA following 'Hawk Tuah' crypto crash](https://www.yahoo.com/tech/haliey-welch-releases-first-statement-160808862.html)
-- Dec 20 - [35-Year-Old Dividend Investor Retired in 'Paradise Beach' in Southeast Asia Shares His Top 5 ETF Picks – 'The Best Life, Feels Like a Dream'](https://finance.yahoo.com/news/35-old-dividend-investor-retired-160015260.html)
-- Dec 20 - [Trump: ‘If there is going to be a shutdown of government, let it begin now’](https://www.yahoo.com/news/trump-going-shutdown-government-let-140900132.html)
-- Dec 20 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
-- Dec 20 - [How innovation died at Intel: America's only leading-edge chip manufacturer faces an uncertain future and lawsuits](https://finance.yahoo.com/news/how-innovation-died-at-intel-americas-only-leading-edge-chip-manufacturer-faces-an-uncertain-future-and-lawsuits-130018997.html)
+- Dec 20 - [Mark Cuban Admits: 'I've Gotten Beat' After Losing $20 Million On Shark Tank Startups](https://finance.yahoo.com/news/mark-cuban-admits-ive-gotten-144518372.html)
 <!-- feed end -->
 
 ### Onstream
