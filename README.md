@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Qualcomm processors properly licensed from Arm, US jury finds](https://finance.yahoo.com/news/us-jury-deadlocked-arm-trial-193123475.html)
+- Dec 20 - [Big Lots plans to close all stores: See full list of locations around the US](https://finance.yahoo.com/news/big-lots-plans-close-stores-201333453.html)
 - Dec 20 - [Costco opening new store locations in early 2025: See the list of warehouses](https://finance.yahoo.com/news/costco-opening-store-locations-early-180208053.html)
 - Dec 20 - [Why North Korean troops are proving a nightmare for Russia](https://www.yahoo.com/news/why-north-korean-troops-proving-180000712.html)
 - Dec 20 - [U.S. sharpens warning to cruisers: Don't travel to this port](https://www.yahoo.com/lifestyle/us-shares-serious-travel-advisories-181957985.html)
