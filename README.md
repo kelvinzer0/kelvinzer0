@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [How a government shutdown affects Social Security payments: What you need to know](https://www.yahoo.com/news/government-shutdown-affects-social-security-234006312.html)
+- Dec 20 - [Airline passenger refuses to  leave exit row after claiming he had knee injury for priority boarding](https://www.yahoo.com/news/airline-passenger-refuses-leave-exit-033142720.html)
+- Dec 19 - [Canada's retaliation for Trump tariffs is biggest concern, says Japan's Komatsu](https://finance.yahoo.com/news/canadas-retaliation-trump-tariffs-biggest-230508775.html)
+- Dec 19 - [A Quantum Computer Could Crack Bitcoin in Half, Research Finds](https://www.yahoo.com/tech/quantum-computer-could-crack-bitcoin-203405031.html)
 - Dec 19 - [Trump threatens primary against Texas conservative Chip Roy](https://www.yahoo.com/news/trump-threatens-primary-against-texas-201603396.html)
-- Dec 19 - [Israel and Hamas appear close to a ceasefire deal. These are the sticking points](https://www.yahoo.com/news/israel-hamas-appear-close-ceasefire-201527412.html)
 - Dec 19 - [Damning Report on Biden Reveals How He Was Struggling From Beginning](https://www.yahoo.com/news/damning-report-biden-reveals-struggling-200226302.html)
-- Dec 19 - [Restaurant inspections: Crawling cockroaches shut down pizzeria and Chinese food buffet](https://www.yahoo.com/news/restaurant-inspections-crawling-cockroaches-shut-200100143.html)
 <!-- feed end -->
 
 ### Onstream
