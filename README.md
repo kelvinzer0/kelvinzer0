@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Republicans’ troubles are only just beginning](https://www.yahoo.com/news/republicans-troubles-only-just-beginning-171943931.html)
+- Dec 20 - [Gisèle Pelicot has ‘no fear’ over another trial as two men convicted of her rape lodge appeals](https://www.yahoo.com/news/gis-le-pelicot-no-fear-181552235.html)
+- Dec 20 - [Costco opening new store locations in early 2025: See the list of warehouses](https://finance.yahoo.com/news/costco-opening-store-locations-early-180208053.html)
+- Dec 20 - [Texas new mom deported for missed immigration hearing after C-section, family says](https://www.yahoo.com/news/texas-mom-deported-missed-hearing-230430992.html)
 - Dec 20 - [President-elect Trump transfers close to $4 billion worth of his Trump Media shares to a trust](https://finance.yahoo.com/news/president-elect-trump-transfers-close-164734203.html)
 - Dec 20 - [Man abandons haircut to help officer under attack](https://www.yahoo.com/news/man-abandons-haircut-help-officer-162909352.html)
-- Dec 20 - [Haliey Welch releases first statement after going MIA following 'Hawk Tuah' crypto crash](https://www.yahoo.com/tech/haliey-welch-releases-first-statement-160808862.html)
-- Dec 20 - [Mark Cuban Admits: 'I've Gotten Beat' After Losing $20 Million On Shark Tank Startups](https://finance.yahoo.com/news/mark-cuban-admits-ive-gotten-144518372.html)
 <!-- feed end -->
 
 ### Onstream
