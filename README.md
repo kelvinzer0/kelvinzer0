@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [NY Lottery Win 4, Take 5, Numbers winning numbers for Thursday, Dec. 19](https://www.yahoo.com/news/ny-lottery-win-4-5-100011976.html)
-- Dec 20 - [Should You Forget IonQ and Buy 2 Tech Stocks Instead?](https://finance.yahoo.com/news/forget-ionq-buy-2-tech-094600321.html)
-- Dec 20 - [Parking dispute at Southern California mall turns into violent brawl, robbery](https://www.yahoo.com/news/parking-dispute-southern-california-turns-043736994.html)
-- Dec 20 - [The Air Force Secretary said Elon Musk 'needs to learn a little bit more about the business' before deriding crewed fighter jets](https://www.yahoo.com/news/air-force-secretary-said-elon-035917684.html)
-- Dec 20 - [Far-Right Rep Heckled Mercilessly by Dems During Shutdown Speech](https://www.yahoo.com/news/far-rep-heckled-mercilessly-dems-024345331.html)
+- Dec 20 - [Bitcoin Slumps as Trump Euphoria Gives Way to Wariness on Fed](https://finance.yahoo.com/news/bitcoin-slumps-trump-euphoria-gives-114431051.html)
+- Dec 20 - [ABC News staff losing patience with George Stephanopoulos after $15m libel payout](https://www.yahoo.com/news/abc-news-staff-losing-patience-103000563.html)
+- Dec 20 - [Out-of-control invasive species has met its match: Cute and hungry otters](https://www.yahoo.com/news/control-invasive-species-met-match-101422332.html)
+- Dec 20 - [Russian bombardment targets Kyiv after Ukraine fires US-made missiles across the border](https://www.yahoo.com/news/russia-ukraine-exchange-missile-attacks-084750557.html)
+- Dec 20 - [Quantum Computing Stock Plummets 40% After Record Rally](https://finance.yahoo.com/news/quantum-computing-stock-plummets-40-073550360.html)
 <!-- feed end -->
 
 ### Onstream
