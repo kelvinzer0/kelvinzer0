@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Trump was poised to inherit a strong economy. Then things got rocky and he added to the uncertainty](https://finance.yahoo.com/news/trump-poised-inherit-strong-economy-120023064.html)
-- Dec 20 - [Out-of-control invasive species has met its match: Cute and hungry otters](https://www.yahoo.com/news/control-invasive-species-met-match-101422332.html)
-- Dec 20 - [Russian bombardment targets Kyiv after Ukraine fires US-made missiles across the border](https://www.yahoo.com/news/russia-ukraine-exchange-missile-attacks-084750557.html)
-- Dec 20 - [Crypto Market Sees $1.2 Billion in Liquidations as Bitcoin, Dogecoin, XRP and Solana Face Double-Digit Losses](https://finance.yahoo.com/news/crypto-market-sees-1-2-042428581.html)
-- Dec 20 - [US State Dept. issues ‘do not travel’ warning for Mexico cruise port](https://www.yahoo.com/lifestyle/us-shares-serious-travel-advisories-181957985.html)
+- Dec 20 - [King’s cancer treatment to continue into new year](https://www.yahoo.com/lifestyle/king-cancer-treatment-continue-124228784.html)
+- Dec 20 - [US economy in very 'rare,' historical moment: Deutsche Bank's Chadha](https://finance.yahoo.com/video/us-economy-very-rare-historical-121500075.html)
+- Dec 19 - [21 Clueless Bosses Who Should Be Fired From Their Jobs, Like, Immediately](https://www.yahoo.com/lifestyle/21-selfish-bosses-making-employees-233102833.html)
+- Dec 19 - [Canada's retaliation for Trump tariffs is biggest concern, says Japan's Komatsu](https://finance.yahoo.com/news/canadas-retaliation-trump-tariffs-biggest-230508775.html)
+- Dec 19 - [Jimmy Fallon Gives Trump And Musk A Couple Name, And It’s Flawless](https://www.yahoo.com/entertainment/jimmy-fallon-gives-trump-musk-203822144.html)
 <!-- feed end -->
 
 ### Onstream
