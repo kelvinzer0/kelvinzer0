@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [NY Lottery Win 4, Take 5, Numbers winning numbers for Thursday, Dec. 19](https://www.yahoo.com/news/ny-lottery-win-4-5-100011976.html)
+- Dec 20 - [Should You Forget IonQ and Buy 2 Tech Stocks Instead?](https://finance.yahoo.com/news/forget-ionq-buy-2-tech-094600321.html)
 - Dec 20 - [Parking dispute at Southern California mall turns into violent brawl, robbery](https://www.yahoo.com/news/parking-dispute-southern-california-turns-043736994.html)
-- Dec 20 - [Crypto Market Sees $1.2 Billion in Liquidations as Bitcoin, Dogecoin, XRP and Solana Face Double-Digit Losses](https://finance.yahoo.com/news/crypto-market-sees-1-2-042428581.html)
 - Dec 20 - [The Air Force Secretary said Elon Musk 'needs to learn a little bit more about the business' before deriding crewed fighter jets](https://www.yahoo.com/news/air-force-secretary-said-elon-035917684.html)
-- Dec 20 - [Scientists think they know why Stonehenge was rebuilt thousands of years ago](https://www.yahoo.com/news/scientists-think-know-why-stonehenge-003538608.html)
-- Dec 19 - [Canada's retaliation for Trump tariffs is biggest concern, says Japan's Komatsu](https://finance.yahoo.com/news/canadas-retaliation-trump-tariffs-biggest-230508775.html)
+- Dec 20 - [Far-Right Rep Heckled Mercilessly by Dems During Shutdown Speech](https://www.yahoo.com/news/far-rep-heckled-mercilessly-dems-024345331.html)
 <!-- feed end -->
 
 ### Onstream
