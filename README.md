@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Man responsible for two CDOT workers’ deaths now arrested](https://www.yahoo.com/news/man-responsible-two-cdot-workers-001341302.html)
-- Dec 19 - [Trump threatens primary against Texas conservative Chip Roy](https://www.yahoo.com/news/trump-threatens-primary-against-texas-201603396.html)
-- Dec 19 - [Israel and Hamas appear close to a ceasefire deal. These are the sticking points](https://www.yahoo.com/news/israel-hamas-appear-close-ceasefire-201527412.html)
+- Dec 19 - [Ex-Minnesota Vikings star Adrian Peterson facing warrants for arrest in Texas](https://sports.yahoo.com/ex-minnesota-vikings-star-adrian-225033995.html)
 - Dec 19 - [Damning Report on Biden Reveals How He Was Struggling From Beginning](https://www.yahoo.com/news/damning-report-biden-reveals-struggling-200226302.html)
-- Dec 19 - [Trump Sure Seems Pissed at Elon Musk Over the Spending Bill](https://www.yahoo.com/news/trump-sure-seems-pissed-elon-194403488.html)
+- Dec 19 - [Watch the littlest baby bear make a giant leap to cross Gatlinburg creek](https://www.yahoo.com/news/watch-littlest-baby-bear-giant-194351612.html)
+- Dec 19 - [Russian Space Program Confirms Plans to Destroy Space Station](https://www.yahoo.com/news/russian-space-program-confirms-plans-191022723.html)
+- Dec 19 - [James Webb telescope uncovers massive 'grand design' spiral galaxy in the early universe — and scientists can't explain how it got so big, so fast](https://www.yahoo.com/news/james-webb-telescope-uncovers-massive-175907616.html)
 <!-- feed end -->
 
 ### Onstream
