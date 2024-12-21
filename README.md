@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Big Lots plans to close all stores: See full list of locations around the US](https://finance.yahoo.com/news/big-lots-plans-close-stores-201333453.html)
-- Dec 20 - [Costco opening new store locations in early 2025: See the list of warehouses](https://finance.yahoo.com/news/costco-opening-store-locations-early-180208053.html)
-- Dec 20 - [Why North Korean troops are proving a nightmare for Russia](https://www.yahoo.com/news/why-north-korean-troops-proving-180000712.html)
-- Dec 20 - [U.S. sharpens warning to cruisers: Don't travel to this port](https://www.yahoo.com/lifestyle/us-shares-serious-travel-advisories-181957985.html)
-- Dec 20 - [Man abandons haircut to help officer under attack](https://www.yahoo.com/news/man-abandons-haircut-help-officer-162909352.html)
+- Dec 21 - [Homeowner ends up in jail after calling police to remove squatter living inside her house](https://www.yahoo.com/news/homeowner-ends-jail-calling-police-231128321.html)
+- Dec 21 - [Elon Musk Crashing Trump’s Jeff Bezos Dinner at Mar-a-Lago Mocked as ‘Deranged’](https://www.yahoo.com/entertainment/elon-musk-crashing-trump-jeff-003448333.html)
+- Dec 21 - [New damage delays I-40 reopening in North Carolina closed by Helene](https://www.yahoo.com/news/damage-delays-40-reopening-north-003410258.html)
+- Dec 20 - [NTSB trying to determine why tractor-trailer stopped on train tracks before deadly West Texas crash](https://www.yahoo.com/news/ntsb-trying-determine-why-tractor-235316412.html)
+- Dec 20 - [Planes Collide on Airport Runway](https://www.yahoo.com/news/planes-collide-airport-runway-223953436.html)
 <!-- feed end -->
 
 ### Onstream
