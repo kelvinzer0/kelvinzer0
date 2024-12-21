@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [Arizona weather wrapped: A broken record of broken records in Phoenix during 2024](https://www.yahoo.com/news/arizona-weather-wrapped-broken-record-130255781.html)
-- Dec 21 - [Trump and allies are waging campaign against media to stifle dissent – experts](https://www.yahoo.com/news/trump-allies-waging-campaign-against-130018619.html)
-- Dec 21 - [My daughter repeated kindergarten because she couldn't read. I ended up sending both my kids to private school because I don't trust the public system.](https://www.yahoo.com/lifestyle/daughter-repeated-kindergarten-because-she-101201351.html)
+- Dec 21 - [Watch: Ukrainian drones smash into skyscraper in deep Russia](https://www.yahoo.com/news/watch-ukrainian-drones-smash-skyscraper-141702809.html)
 - Dec 21 - [Senate passes Social Security benefits boost for many public service retirees](https://www.yahoo.com/news/senate-final-vote-boosting-social-014848210.html)
 - Dec 21 - [Homeowner ends up in jail after calling police to remove squatter living inside her house](https://www.yahoo.com/news/homeowner-ends-jail-calling-police-231128321.html)
+- Dec 21 - [New damage delays I-40 reopening in North Carolina closed by Helene](https://www.yahoo.com/news/damage-delays-40-reopening-north-003410258.html)
+- Dec 21 - [‘This stops now’: DC mother speaks out after teacher posts video of her son with offensive caption](https://www.yahoo.com/news/stops-now-dc-mother-speaks-000041797.html)
 <!-- feed end -->
 
 ### Onstream
