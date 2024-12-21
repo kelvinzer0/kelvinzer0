@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [Bus and truck collision kills 37 in Brazil](https://www.yahoo.com/news/bus-truck-collision-kills-37-181645527.html)
-- Dec 21 - [Ukrainian commander of ‘mock crucifixion’ unit accused of corruption](https://www.yahoo.com/news/commander-ukraine-mock-crucifixion-army-174432304.html)
+- Dec 21 - ['They came too late,' says sister of missing Syrian detainee who hurled shoe at UN envoy](https://www.yahoo.com/news/came-too-says-sister-missing-173628658.html)
 - Dec 21 - [Dementia Experts Shared The 7 Things They Would Never Do, And We're Taking Notes](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-things-150102634.html)
-- Dec 21 - [A pilot raced through the airport to surprise an old friend: the woman who saved his life](https://www.yahoo.com/news/pilot-raced-airport-surprise-old-150043134.html)
-- Dec 21 - [The 'atheist' Saudi refugee suspected of Germany attack](https://www.yahoo.com/news/atheist-saudi-refugee-suspected-germany-144444626.html)
+- Dec 21 - [Watch: Ukrainian drones smash into skyscraper in deep Russia](https://www.yahoo.com/news/watch-ukrainian-drones-smash-skyscraper-141702809.html)
+- Dec 21 - [Syrian soldiers distance themselves from Assad in return for promised amnesty](https://www.yahoo.com/news/syrian-soldiers-distance-themselves-assad-140422521.html)
+- Dec 21 - [TSA officers stunned by 'extremely concerning' discovery in woman's carry-on at LAX](https://www.yahoo.com/news/tsa-officers-stunned-extremely-concerning-120034920.html)
 <!-- feed end -->
 
 ### Onstream
