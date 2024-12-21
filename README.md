@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 21 - [US Senate approves Social Security change despite fiscal concerns](https://www.yahoo.com/news/us-senate-approves-social-security-052324941.html)
 - Dec 21 - [Senate passes Social Security benefits boost for many public service retirees](https://www.yahoo.com/news/senate-final-vote-boosting-social-014848210.html)
+- Dec 21 - [24 Irritating Screenshots That Prove God Gives His Toughest Battles To People Working In The Food Service Industry](https://www.yahoo.com/lifestyle/24-irritating-screenshots-prove-god-013102747.html)
 - Dec 21 - [Homeowner ends up in jail after calling police to remove squatter living inside her house](https://www.yahoo.com/news/homeowner-ends-jail-calling-police-231128321.html)
 - Dec 21 - [New damage delays I-40 reopening in North Carolina closed by Helene](https://www.yahoo.com/news/damage-delays-40-reopening-north-003410258.html)
-- Dec 21 - [‘This stops now’: DC mother speaks out after teacher posts video of her son with offensive caption](https://www.yahoo.com/news/stops-now-dc-mother-speaks-000041797.html)
 <!-- feed end -->
 
 ### Onstream
