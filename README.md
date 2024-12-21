@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [FAMU hospital closed more than 50 years ago on Christmas Eve. Its memories live on](https://www.yahoo.com/news/famu-hospital-closed-more-50-100132309.html)
+- Dec 21 - [My Top 10 Stocks to Buy for 2025](https://finance.yahoo.com/news/top-10-stocks-buy-2025-090500963.html)
+- Dec 21 - [Senate passes bill to boost Social Security benefits for some](https://www.yahoo.com/news/senate-passes-bill-boost-social-051652971.html)
 - Dec 21 - [Senate passes Social Security benefits boost for many public service retirees](https://www.yahoo.com/news/senate-final-vote-boosting-social-014848210.html)
-- Dec 21 - [24 Irritating Screenshots That Prove God Gives His Toughest Battles To People Working In The Food Service Industry](https://www.yahoo.com/lifestyle/24-irritating-screenshots-prove-god-013102747.html)
 - Dec 21 - [Homeowner ends up in jail after calling police to remove squatter living inside her house](https://www.yahoo.com/news/homeowner-ends-jail-calling-police-231128321.html)
-- Dec 21 - [New damage delays I-40 reopening in North Carolina closed by Helene](https://www.yahoo.com/news/damage-delays-40-reopening-north-003410258.html)
+- Dec 21 - [Elon Musk Crashing Trump’s Jeff Bezos Dinner at Mar-a-Lago Mocked as ‘Deranged’](https://www.yahoo.com/entertainment/elon-musk-crashing-trump-jeff-003448333.html)
 <!-- feed end -->
 
 ### Onstream
