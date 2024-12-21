@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [Crowds in Mayotte vent frustration with cyclone response as Macron tours devastation, AP explains](https://www.yahoo.com/news/crowds-mayotte-vent-frustration-cyclone-014558529.html)
+- Dec 21 - [Senate to take final vote on boosting Social Security benefits for many public service retirees](https://www.yahoo.com/news/senate-final-vote-boosting-social-014848210.html)
 - Dec 21 - [Homeowner ends up in jail after calling police to remove squatter living inside her house](https://www.yahoo.com/news/homeowner-ends-jail-calling-police-231128321.html)
 - Dec 21 - [Elon Musk Crashing Trump’s Jeff Bezos Dinner at Mar-a-Lago Mocked as ‘Deranged’](https://www.yahoo.com/entertainment/elon-musk-crashing-trump-jeff-003448333.html)
 - Dec 21 - [New damage delays I-40 reopening in North Carolina closed by Helene](https://www.yahoo.com/news/damage-delays-40-reopening-north-003410258.html)
