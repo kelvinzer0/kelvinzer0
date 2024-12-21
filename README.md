@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [My Top 10 Stocks to Buy for 2025](https://finance.yahoo.com/news/top-10-stocks-buy-2025-090500963.html)
-- Dec 21 - [Senate passes bill to boost Social Security benefits for some](https://www.yahoo.com/news/senate-passes-bill-boost-social-051652971.html)
+- Dec 21 - [Pakistan dismisses US official's warning over missile programme as unfounded](https://www.yahoo.com/news/pakistan-dismisses-us-officials-warning-121146735.html)
+- Dec 21 - [Can Shiba Inu Reach $0.01 in 2025?](https://finance.yahoo.com/news/shiba-inu-reach-0-01-120000013.html)
 - Dec 21 - [Senate passes Social Security benefits boost for many public service retirees](https://www.yahoo.com/news/senate-final-vote-boosting-social-014848210.html)
 - Dec 21 - [Homeowner ends up in jail after calling police to remove squatter living inside her house](https://www.yahoo.com/news/homeowner-ends-jail-calling-police-231128321.html)
 - Dec 21 - [Elon Musk Crashing Trump’s Jeff Bezos Dinner at Mar-a-Lago Mocked as ‘Deranged’](https://www.yahoo.com/entertainment/elon-musk-crashing-trump-jeff-003448333.html)
