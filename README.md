@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [Gaza ceasefire talks 90% complete, Palestinian official tells BBC](https://www.yahoo.com/news/gaza-ceasefire-talks-90-complete-202913694.html)
-- Dec 21 - [AP Top Stories December 21 P](https://www.yahoo.com/news/ap-top-stories-december-21-201629958.html)
-- Dec 21 - [58 Hilarious Tweets That Would Only Make Sense In 2024](https://www.yahoo.com/lifestyle/58-hilarious-tweets-only-sense-153511213.html)
+- Dec 21 - [What your peeing frequency can say about your health](https://www.yahoo.com/lifestyle/peeing-frequency-health-200043198.html)
 - Dec 21 - [Dementia Experts Shared The 7 Things They Would Never Do, And We're Taking Notes](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-things-150102634.html)
+- Dec 21 - [A pilot raced through the airport to surprise an old friend: the woman who saved his life](https://www.yahoo.com/news/pilot-raced-airport-surprise-old-150043134.html)
+- Dec 21 - [The 'atheist' Saudi refugee suspected of Germany attack](https://www.yahoo.com/news/atheist-saudi-refugee-suspected-germany-144444626.html)
 - Dec 21 - [Watch: Ukrainian drones smash into skyscraper in deep Russia](https://www.yahoo.com/news/watch-ukrainian-drones-smash-skyscraper-141702809.html)
 <!-- feed end -->
 
