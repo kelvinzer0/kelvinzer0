@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [In Israeli-occupied south Syria, villagers feel abandoned](https://www.yahoo.com/news/israeli-occupied-south-syria-villagers-175318270.html)
 - Dec 21 - [Dementia Experts Shared The 7 Things They Would Never Do, And We're Taking Notes](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-things-150102634.html)
-- Dec 21 - [Teenager accused in Wisconsin school shooting had a tumultuous family life, court documents show](https://www.yahoo.com/news/teenager-accused-wisconsin-school-shooting-150000362.html)
+- Dec 21 - [Security guard opens fire at suspects trying to break into mansion in Los Angeles](https://www.yahoo.com/news/security-guard-opens-fire-suspects-145332807.html)
 - Dec 21 - [The 'atheist' Saudi refugee suspected of Germany attack](https://www.yahoo.com/news/atheist-saudi-refugee-suspected-germany-144444626.html)
-- Dec 21 - [Syrian soldiers distance themselves from Assad in return for promised amnesty](https://www.yahoo.com/news/syrian-soldiers-distance-themselves-assad-140422521.html)
-- Dec 21 - [Davenport man in custody after theft of propane tanks at Dollar General store](https://www.yahoo.com/news/davenport-man-custody-theft-propane-133000852.html)
+- Dec 21 - [Watch: Ukrainian drones smash into skyscraper in deep Russia](https://www.yahoo.com/news/watch-ukrainian-drones-smash-skyscraper-141702809.html)
 <!-- feed end -->
 
 ### Onstream
