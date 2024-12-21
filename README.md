@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - ['They came too late,' says sister of missing Syrian detainee who hurled shoe at UN envoy](https://www.yahoo.com/news/came-too-says-sister-missing-173628658.html)
+- Dec 21 - [Gaza ceasefire talks 90% complete, Palestinian official tells BBC](https://www.yahoo.com/news/gaza-ceasefire-talks-90-complete-202913694.html)
+- Dec 21 - [AP Top Stories December 21 P](https://www.yahoo.com/news/ap-top-stories-december-21-201629958.html)
+- Dec 21 - [58 Hilarious Tweets That Would Only Make Sense In 2024](https://www.yahoo.com/lifestyle/58-hilarious-tweets-only-sense-153511213.html)
 - Dec 21 - [Dementia Experts Shared The 7 Things They Would Never Do, And We're Taking Notes](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-things-150102634.html)
 - Dec 21 - [Watch: Ukrainian drones smash into skyscraper in deep Russia](https://www.yahoo.com/news/watch-ukrainian-drones-smash-skyscraper-141702809.html)
-- Dec 21 - [Syrian soldiers distance themselves from Assad in return for promised amnesty](https://www.yahoo.com/news/syrian-soldiers-distance-themselves-assad-140422521.html)
-- Dec 21 - [TSA officers stunned by 'extremely concerning' discovery in woman's carry-on at LAX](https://www.yahoo.com/news/tsa-officers-stunned-extremely-concerning-120034920.html)
 <!-- feed end -->
 
 ### Onstream
