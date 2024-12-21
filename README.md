@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [Ten Palestinians killed in airstrikes on houses in central Gaza, medics say](https://www.yahoo.com/news/ten-palestinians-killed-airstrikes-houses-213214466.html)
 - Dec 21 - [What your peeing frequency can say about your health](https://www.yahoo.com/lifestyle/peeing-frequency-health-200043198.html)
+- Dec 21 - [Ex-OpenAI engineer who raised legal concerns about the technology he helped build has died](https://www.yahoo.com/news/ex-openai-engineer-raised-legal-193502629.html)
+- Dec 21 - [58 Hilarious Tweets That Would Only Make Sense In 2024](https://www.yahoo.com/lifestyle/58-hilarious-tweets-only-sense-153511213.html)
 - Dec 21 - [Dementia Experts Shared The 7 Things They Would Never Do, And We're Taking Notes](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-things-150102634.html)
-- Dec 21 - [A pilot raced through the airport to surprise an old friend: the woman who saved his life](https://www.yahoo.com/news/pilot-raced-airport-surprise-old-150043134.html)
-- Dec 21 - [The 'atheist' Saudi refugee suspected of Germany attack](https://www.yahoo.com/news/atheist-saudi-refugee-suspected-germany-144444626.html)
-- Dec 21 - [Watch: Ukrainian drones smash into skyscraper in deep Russia](https://www.yahoo.com/news/watch-ukrainian-drones-smash-skyscraper-141702809.html)
 <!-- feed end -->
 
 ### Onstream
