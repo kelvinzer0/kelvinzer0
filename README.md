@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [29 Things People Posted On The Internet This Month So Far That Make Me Laugh Every Time I Think Of Them](https://www.yahoo.com/lifestyle/29-things-people-posted-internet-033103374.html)
+- Dec 21 - [Chicago Board of Education votes unanimously to fire schools chief Pedro Martinez](https://www.yahoo.com/news/chicago-board-education-votes-unanimously-032100089.html)
 - Dec 21 - [Senate to take final vote on boosting Social Security benefits for many public service retirees](https://www.yahoo.com/news/senate-final-vote-boosting-social-014848210.html)
-- Dec 21 - [24 Irritating Screenshots That Prove God Gives His Toughest Battles To People Working In The Food Service Industry](https://www.yahoo.com/lifestyle/24-irritating-screenshots-prove-god-013102747.html)
 - Dec 21 - [Homeowner ends up in jail after calling police to remove squatter living inside her house](https://www.yahoo.com/news/homeowner-ends-jail-calling-police-231128321.html)
-- Dec 20 - [NTSB trying to determine why tractor-trailer stopped on train tracks before deadly West Texas crash](https://www.yahoo.com/news/ntsb-trying-determine-why-tractor-235316412.html)
+- Dec 21 - [New damage delays I-40 reopening in North Carolina closed by Helene](https://www.yahoo.com/news/damage-delays-40-reopening-north-003410258.html)
+- Dec 20 - [Death of beloved Albertsons employee leads to calls for safety measures on busy Palm Springs street](https://www.yahoo.com/news/death-beloved-albertsons-employee-leads-234409573.html)
 <!-- feed end -->
 
 ### Onstream
