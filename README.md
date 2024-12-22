@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [The debt ceiling is back on the table for 2025. Here's what happens next.](https://finance.yahoo.com/news/the-debt-ceiling-is-back-on-the-table-for-2025-heres-what-happens-next-210032676.html)
+- Dec 22 - [Female passenger killed after being set on fire on an NYC subway train](https://www.yahoo.com/news/female-passenger-killed-being-set-190713491.html)
+- Dec 22 - [Trump threatens to try to take back the Panama Canal. Panama's president balks at the suggestion](https://www.yahoo.com/news/trump-threatens-try-back-panama-202411965.html)
 - Dec 22 - [Trump vows to rename Denali, North America's tallest mountain, as Mt McKinley](https://www.yahoo.com/news/trump-vows-rename-denali-north-192053563.html)
+- Dec 22 - [Is Investing $50,000 Into the S&P 500 Today a Surefire Way to Get to $1 Million by Retirement?](https://finance.yahoo.com/news/investing-50-000-p-500-190000436.html)
 - Dec 22 - [Here's How Much in Social Security Benefits the Average 62-Year-Old Gets Per Month](https://finance.yahoo.com/news/heres-much-social-security-benefits-184500920.html)
-- Dec 22 - [Chris Christie Predicts What Will Cause Demise of Musk-Trump Bromance](https://www.yahoo.com/news/chris-christie-predicts-cause-demise-181530417.html)
-- Dec 22 - [Pedestrian in Boynton killed by hit-and-run driver; police identify suspect](https://www.yahoo.com/news/pedestrian-boynton-killed-hit-run-175525808.html)
 <!-- feed end -->
 
 ### Onstream
