@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [Ten Palestinians killed in airstrikes on houses in central Gaza, medics say](https://www.yahoo.com/news/ten-palestinians-killed-airstrikes-houses-213214466.html)
-- Dec 21 - [What your peeing frequency can say about your health](https://www.yahoo.com/lifestyle/peeing-frequency-health-200043198.html)
+- Dec 22 - [I'm A Colorectal Cancer Doctor — Here Are 5 Things I'd Never, Ever Do](https://www.yahoo.com/lifestyle/im-colorectal-cancer-doctor-5-002102525.html)
+- Dec 21 - [New York's governor orders firing of prison staffers involved in inmate's fatal beating](https://www.yahoo.com/news/yorks-governor-orders-firing-prison-231640203.html)
+- Dec 21 - [Lara Trump withdraws from consideration to replace Rubio in US Senate](https://www.yahoo.com/news/lara-trump-says-shes-removed-225150935.html)
+- Dec 21 - [UA Little Rock Trojans men’s basketball student manager dies in crash, Saturday game postponed](https://sports.yahoo.com/ua-little-rock-trojans-men-203328015.html)
 - Dec 21 - [Ex-OpenAI engineer who raised legal concerns about the technology he helped build has died](https://www.yahoo.com/news/ex-openai-engineer-raised-legal-193502629.html)
-- Dec 21 - [58 Hilarious Tweets That Would Only Make Sense In 2024](https://www.yahoo.com/lifestyle/58-hilarious-tweets-only-sense-153511213.html)
-- Dec 21 - [Dementia Experts Shared The 7 Things They Would Never Do, And We're Taking Notes](https://www.yahoo.com/lifestyle/dementia-experts-shared-7-things-150102634.html)
 <!-- feed end -->
 
 ### Onstream
