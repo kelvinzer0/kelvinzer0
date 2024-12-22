@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [Woman dies after she catches fire in Brooklyn subway car; NYPD suspects homicide](https://www.yahoo.com/news/woman-dies-she-catches-fire-171300958.html)
+- Dec 22 - [Jeremy Clarkson admits he was ‘wrong’ about new business venture](https://www.yahoo.com/lifestyle/jeremy-clarkson-admits-wrong-business-110850069.html)
+- Dec 22 - [Trump vows to rename Denali, North America's tallest mountain, as Mt McKinley](https://www.yahoo.com/news/trump-vows-rename-denali-north-192053563.html)
+- Dec 22 - [Chris Christie Predicts What Will Cause Demise of Musk-Trump Bromance](https://www.yahoo.com/news/chris-christie-predicts-cause-demise-181530417.html)
+- Dec 22 - [Cadbury’s loses royal warrant for the first time in 170 years](https://www.yahoo.com/news/cadbury-loses-royal-warrant-first-181502310.html)
 - Dec 22 - [A million taxpayers will soon receive up to $1,400 from the IRS. Who are they and why now?](https://finance.yahoo.com/news/million-taxpayers-soon-receive-1-164857112.html)
-- Dec 22 - [Amtrak's new Borealis train 'stuck' near St. Paul, stranding passengers for hours](https://www.yahoo.com/news/amtraks-borealis-train-stuck-near-151307831.html)
-- Dec 22 - [Joe Manchin torches Democrats on the way out the door](https://www.yahoo.com/news/joe-manchin-torches-democrats-way-120043259.html)
-- Dec 22 - [Opinion - Kari Lake will face a harrowing task in fixing a very broken VOA](https://www.yahoo.com/news/opinion-kari-lake-face-harrowing-140000066.html)
 <!-- feed end -->
 
 ### Onstream
