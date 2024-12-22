@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Two US Navy pilots shot down over Red Sea in apparent 'friendly fire' incident, US military says](https://www.yahoo.com/news/two-us-navy-pilots-shot-025637983.html)
+- Dec 22 - [Fleeing motorist is dead after driving into Texas shopping mall and injuring 5](https://www.yahoo.com/news/fleeing-motorist-dead-driving-texas-023101433.html)
+- Dec 22 - [How a teenager’s holiday romance led to prison time in Dubai](https://www.yahoo.com/news/teenager-holiday-romance-led-prison-020934466.html)
+- Dec 22 - [China's Nio says new Firefly EV to go on sale in Europe in H1 2025](https://finance.yahoo.com/news/chinas-nio-launch-firefly-ev-014300584.html)
 - Dec 22 - [Trump threatens to retake Panama Canal](https://www.yahoo.com/news/trump-threatens-retake-panama-canal-012312803.html)
-- Dec 22 - [I'm A Colorectal Cancer Doctor — Here Are 5 Things I'd Never, Ever Do](https://www.yahoo.com/lifestyle/im-colorectal-cancer-doctor-5-002102525.html)
-- Dec 22 - [Turkey will do 'whatever it takes' if Syria government cannot address Kurd militia issue, minister says](https://www.yahoo.com/news/turkey-whatever-takes-syria-government-000555505.html)
-- Dec 21 - [Russia’s war machine is running on fumes as industry warns of bankruptcies and the Kremlin gets old tanks from movie studio](https://www.yahoo.com/news/russia-war-machine-running-fumes-232633149.html)
-- Dec 21 - [Lara Trump withdraws from consideration to replace Rubio in US Senate](https://www.yahoo.com/news/lara-trump-says-shes-removed-225150935.html)
 <!-- feed end -->
 
 ### Onstream
