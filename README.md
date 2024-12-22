@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [Retirement planning: Top tips for your 20s, 40s, and 60s](https://finance.yahoo.com/video/retirement-planning-top-tips-20s-140004794.html)
-- Dec 22 - [Putin vows 'destruction' on Ukraine after Kazan drone attack](https://www.yahoo.com/news/putin-vows-destruction-ukraine-kazan-125747953.html)
-- Dec 22 - [Ukrainian drones hit a Russian fuel depot for the second time this month](https://www.yahoo.com/news/ukrainian-drones-hit-russian-fuel-124454374.html)
+- Dec 22 - [New top Dem on House Agriculture Committee touts plan to ‘win back hearts of rural communities’](https://www.yahoo.com/news/top-dem-house-agriculture-committee-142754690.html)
 - Dec 22 - [Joe Manchin torches Democrats on the way out the door](https://www.yahoo.com/news/joe-manchin-torches-democrats-way-120043259.html)
-- Dec 22 - [Ocasio-Cortez faces uncertain political future](https://www.yahoo.com/news/ocasio-cortez-faces-uncertain-political-110000711.html)
+- Dec 22 - [If You're Dealing With *That* Cough Right Now That Everyone Else Seems To Have, Here's What It Might Be](https://www.yahoo.com/lifestyle/youre-dealing-cough-now-everyone-133103615.html)
+- Dec 22 - [The Dow gets hit with a sledgehammer — how worried should you be?](https://finance.yahoo.com/news/the-dow-gets-hit-with-a-sledgehammer--how-worried-should-you-be-133022256.html)
+- Dec 22 - [Ukrainian drones hit a Russian fuel depot for the second time this month](https://www.yahoo.com/news/ukrainian-drones-hit-russian-fuel-124454374.html)
 <!-- feed end -->
 
 ### Onstream
