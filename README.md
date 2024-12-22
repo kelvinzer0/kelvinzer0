@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Retirement planning: Top tips for your 20s, 40s, and 60s](https://finance.yahoo.com/video/retirement-planning-top-tips-20s-140004794.html)
+- Dec 22 - [Putin vows 'destruction' on Ukraine after Kazan drone attack](https://www.yahoo.com/news/putin-vows-destruction-ukraine-kazan-125747953.html)
+- Dec 22 - [Ukrainian drones hit a Russian fuel depot for the second time this month](https://www.yahoo.com/news/ukrainian-drones-hit-russian-fuel-124454374.html)
 - Dec 22 - [Joe Manchin torches Democrats on the way out the door](https://www.yahoo.com/news/joe-manchin-torches-democrats-way-120043259.html)
-- Dec 22 - [Jelly Roll Opens Up about 140-lb Weight Loss](https://www.yahoo.com/lifestyle/jelly-roll-opens-140-lb-120000918.html)
 - Dec 22 - [Ocasio-Cortez faces uncertain political future](https://www.yahoo.com/news/ocasio-cortez-faces-uncertain-political-110000711.html)
-- Dec 22 - [Two US Navy pilots shot down over Red Sea in apparent 'friendly fire' incident, US military says](https://www.yahoo.com/news/two-us-navy-pilots-shot-025637983.html)
-- Dec 22 - [How a teenager’s holiday romance led to prison time in Dubai](https://www.yahoo.com/news/teenager-holiday-romance-led-prison-020934466.html)
 <!-- feed end -->
 
 ### Onstream
