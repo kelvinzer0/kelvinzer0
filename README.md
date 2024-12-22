@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 22 - [The Fed's 3 defining moments of 2024](https://finance.yahoo.com/video/feds-3-defining-moments-2024-160054423.html)
-- Dec 22 - [Russia to start humanitarian supplies of electricity to breakaway Georgian region](https://www.yahoo.com/news/russia-start-humanitarian-supplies-electricity-134613621.html)
+- Dec 22 - [Joe Manchin torches Democrats on the way out the door](https://www.yahoo.com/news/joe-manchin-torches-democrats-way-120043259.html)
+- Dec 22 - [Opinion - Kari Lake will face a harrowing task in fixing a very broken VOA](https://www.yahoo.com/news/opinion-kari-lake-face-harrowing-140000066.html)
 - Dec 22 - [If You're Dealing With *That* Cough Right Now That Everyone Else Seems To Have, Here's What It Might Be](https://www.yahoo.com/lifestyle/youre-dealing-cough-now-everyone-133103615.html)
-- Dec 22 - [Coffee companies issue serious warnings after beans become nearly impossible to grow — here's what's going on](https://www.yahoo.com/news/coffee-companies-issue-serious-warnings-114504672.html)
-- Dec 22 - [Scientists achieve major milestone that could revolutionize solar panel technology: 'A major step towards high efficiency'](https://www.yahoo.com/tech/scientists-achieve-major-milestone-could-111536620.html)
+- Dec 22 - [Syria's de facto ruler reassures minorities, meets Lebanese Druze leader](https://www.yahoo.com/news/syrias-facto-ruler-reassures-minorities-125541629.html)
 <!-- feed end -->
 
 ### Onstream
