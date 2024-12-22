@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Woman dies after she catches fire in Brooklyn subway car; NYPD suspects homicide](https://www.yahoo.com/news/woman-dies-she-catches-fire-171300958.html)
 - Dec 22 - [A million taxpayers will soon receive up to $1,400 from the IRS. Who are they and why now?](https://finance.yahoo.com/news/million-taxpayers-soon-receive-1-164857112.html)
-- Dec 22 - [Missing Rep’s Whereabouts Revealed After Six-Month Absence on Capitol Hill](https://www.yahoo.com/news/missing-rep-whereabouts-revealed-six-161837867.html)
-- Dec 22 - [The Fed's 3 defining moments of 2024](https://finance.yahoo.com/video/feds-3-defining-moments-2024-160054423.html)
-- Dec 22 - [New top Dem on House Agriculture Committee touts plan to ‘win back hearts of rural communities’](https://www.yahoo.com/news/top-dem-house-agriculture-committee-142754690.html)
+- Dec 22 - [Amtrak's new Borealis train 'stuck' near St. Paul, stranding passengers for hours](https://www.yahoo.com/news/amtraks-borealis-train-stuck-near-151307831.html)
 - Dec 22 - [Joe Manchin torches Democrats on the way out the door](https://www.yahoo.com/news/joe-manchin-torches-democrats-way-120043259.html)
+- Dec 22 - [Opinion - Kari Lake will face a harrowing task in fixing a very broken VOA](https://www.yahoo.com/news/opinion-kari-lake-face-harrowing-140000066.html)
 <!-- feed end -->
 
 ### Onstream
