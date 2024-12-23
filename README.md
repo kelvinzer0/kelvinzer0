@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [Man dies after being shot in a bar parking lot in Kent on Sunday](https://www.yahoo.com/news/man-dies-being-shot-bar-230008944.html)
-- Dec 22 - [NYPD explains what happened when woman was set on fire aboard NYC subway train](https://www.yahoo.com/news/nypd-explains-happened-woman-set-223044042.html)
+- Dec 23 - [Suspect arrested in the killing of a woman who was set on fire on a NYC subway car](https://www.yahoo.com/news/female-passenger-killed-being-set-190713491.html)
+- Dec 23 - [Report: Sitting Texas congresswoman in senior living facility](https://www.yahoo.com/news/report-sitting-texas-congresswoman-senior-000409240.html)
+- Dec 22 - [Starbucks union strike expands to 9 states](https://finance.yahoo.com/news/starbucks-union-strike-expands-9-233729808.html)
 - Dec 22 - [Palantir and Anduril reportedly building a tech consortium to bid on defense contracts](https://finance.yahoo.com/news/palantir-anduril-reportedly-building-tech-221208996.html)
 - Dec 22 - [Trump threatens to try to take back the Panama Canal. Panama's president balks at the suggestion](https://www.yahoo.com/news/trump-threatens-try-back-panama-202411965.html)
-- Dec 22 - [A secretary turned $180 into $7.2 million by holding her employer's stock for 75 years](https://finance.yahoo.com/news/secretary-turned-180-7-2-193502840.html)
 <!-- feed end -->
 
 ### Onstream
