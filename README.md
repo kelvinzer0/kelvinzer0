@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [South Korea detects signs of North Korea preparing more troops, drones for Russia](https://www.yahoo.com/news/south-korea-detects-signs-north-080334674.html)
-- Dec 23 - [China says it provided information, documents in Baltic Sea cables inquiry](https://www.yahoo.com/news/china-provided-information-documents-probe-073158669.html)
-- Dec 23 - [Romanian parliament expected to approve new government](https://www.yahoo.com/news/romanian-parliament-expected-approve-government-065223384.html)
-- Dec 23 - [All 10 passengers killed after small plane crashes into house in southern Brazil](https://www.yahoo.com/news/10-passengers-killed-small-plane-045740061.html)
+- Dec 23 - [Dividend Stocks To Consider In December 2024](https://finance.yahoo.com/news/dividend-stocks-consider-december-2024-050809138.html)
+- Dec 23 - [A board game born in Mexican prisons is bringing together people from all walks of life](https://www.yahoo.com/lifestyle/board-game-born-mexican-prisons-041046113.html)
 - Dec 23 - [Former Israeli spies describe attack using exploding electronic devices against Hezbollah](https://www.yahoo.com/news/former-israeli-spy-agents-describe-034822554.html)
+- Dec 23 - [Woman set on fire, dies on New York subway- police](https://www.yahoo.com/news/woman-set-fire-dies-york-023943949.html)
+- Dec 22 - [Man charged in beating death of woman living in vacant Englewood home with son](https://www.yahoo.com/news/man-charged-beating-death-woman-233000988.html)
 <!-- feed end -->
 
 ### Onstream
