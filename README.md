@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [Enough of Matt Gaetz and Kay Granger. Can we finally get a functional Congress? | Opinion](https://www.yahoo.com/news/enough-matt-gaetz-kay-granger-194512325.html)
+- Dec 23 - [Cucumber-linked salmonella outbreak sickens 100 people in 23 states](https://www.yahoo.com/news/more-cucumbers-recalled-salmonella-sickens-222807970.html)
+- Dec 23 - [Why Elon Musk said a House Democrat ‘needs to be expelled’ from Congress](https://www.yahoo.com/news/maddow-blog-why-elon-musk-202434387.html)
+- Dec 23 - [Local bars, restaurants asking for holiday traffic to keep lights on, doors open](https://www.yahoo.com/news/local-bars-restaurants-asking-holiday-201544063.html)
+- Dec 23 - [Party City is going out of business nationwide: See full list of store closures](https://finance.yahoo.com/news/party-city-going-business-nationwide-193648109.html)
 - Dec 23 - ['Heartbreaking' and 'incredibly sad' for victims of Gaetz's alleged actions: Former Bush aide](https://www.yahoo.com/news/heartbreaking-incredibly-sad-victims-gaetzs-193433496.html)
-- Dec 23 - [US accuses Rocket Homes of illegal kickbacks in mortgage scheme](https://finance.yahoo.com/news/us-accuses-rocket-homes-illegal-192732183.html)
-- Dec 23 - [Family shares horror story of buying a puppy online](https://www.yahoo.com/lifestyle/family-shares-horror-story-buying-191145122.html)
-- Dec 23 - [SUNY CCC President William Mullaney is moving on to new job. What's next for Corning?](https://www.yahoo.com/news/suny-ccc-president-william-mullaney-185017391.html)
 <!-- feed end -->
 
 ### Onstream
