@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [The 3 Mass Killers Biden Left on Death Row for Trump to Execute](https://www.yahoo.com/news/3-mass-killers-biden-left-144524190.html)
-- Dec 23 - [Why Is Faraday Future Intelligent Electric Trading Higher On Monday?](https://finance.yahoo.com/news/why-faraday-future-intelligent-electric-135508334.html)
-- Dec 23 - [Mother clinging to life revealed what happened. Now detectives more keen than ever to solve horrific murder](https://www.yahoo.com/news/mother-clinging-life-revealed-happened-132632987.html)
-- Dec 23 - [Hours after suggesting he would seize the Panama Canal, Trump says he wants Greenland, too](https://www.yahoo.com/news/hours-suggesting-seize-panama-canal-132929397.html)
-- Dec 23 - [US House report finds Matt Gaetz paid thousands for sex and drugs, media reports say](https://www.yahoo.com/news/us-house-report-finds-matt-132502471.html)
+- Dec 23 - [After Trump threat, Mexican president says Panama Canal belongs to Panamanians](https://www.yahoo.com/news/trump-threat-mexican-president-says-144023526.html)
+- Dec 23 - [‘It’s a felony?’ Shoplifting suspects discuss new California law in back of patrol car](https://www.yahoo.com/news/felony-shoplifting-suspects-discuss-california-143959736.html)
+- Dec 23 - [Lebanese prime minister visits army posts near Israeli border](https://www.yahoo.com/news/lebanese-prime-minister-visits-army-140219936.html)
+- Dec 23 - [5 Car Brands With the Most Reliable Engines](https://www.yahoo.com/tech/5-car-brands-most-reliable-170022581.html)
+- Dec 23 - [Honda and Nissan start merger talks in historic pivot](https://finance.yahoo.com/video/honda-nissan-start-merger-talks-121340593.html)
 <!-- feed end -->
 
 ### Onstream
