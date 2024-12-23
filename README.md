@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [Mother clinging to life revealed what happened. Now detectives more keen than ever to solve horrific murder](https://www.yahoo.com/news/mother-clinging-life-revealed-happened-132632987.html)
-- Dec 23 - [Oil spill between Milwaukee and Madison has caused concern. What we know and don't know.](https://www.yahoo.com/news/oil-spill-between-milwaukee-madison-180057355.html)
-- Dec 23 - [Trump transition team plans immediate WHO withdrawal, expert says](https://www.yahoo.com/news/trump-transition-team-plans-immediate-175311831.html)
-- Dec 23 - [Grand Rapids receives EGLE permit for Grand River restoration project](https://www.yahoo.com/news/grand-rapids-receives-egle-permit-174900746.html)
-- Dec 23 - [‘It’s a felony?’ Shoplifting suspects discuss new California law in back of patrol car](https://www.yahoo.com/news/felony-shoplifting-suspects-discuss-california-143959736.html)
+- Dec 23 - [Enough of Matt Gaetz and Kay Granger. Can we finally get a functional Congress? | Opinion](https://www.yahoo.com/news/enough-matt-gaetz-kay-granger-194512325.html)
+- Dec 23 - ['Heartbreaking' and 'incredibly sad' for victims of Gaetz's alleged actions: Former Bush aide](https://www.yahoo.com/news/heartbreaking-incredibly-sad-victims-gaetzs-193433496.html)
+- Dec 23 - [US accuses Rocket Homes of illegal kickbacks in mortgage scheme](https://finance.yahoo.com/news/us-accuses-rocket-homes-illegal-192732183.html)
+- Dec 23 - [Family shares horror story of buying a puppy online](https://www.yahoo.com/lifestyle/family-shares-horror-story-buying-191145122.html)
+- Dec 23 - [SUNY CCC President William Mullaney is moving on to new job. What's next for Corning?](https://www.yahoo.com/news/suny-ccc-president-william-mullaney-185017391.html)
 <!-- feed end -->
 
 ### Onstream
