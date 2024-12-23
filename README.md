@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [Wordle hints today for #1,283: Clues and answer for Monday, December 23](https://www.yahoo.com/tech/wordle-hints-today-for-1283-clues-and-answer-for-monday-december-23-050118029.html)
 - Dec 23 - [Former Israeli spies describe attack using exploding electronic devices against Hezbollah](https://www.yahoo.com/news/former-israeli-spy-agents-describe-034822554.html)
+- Dec 23 - [AP PHOTOS: The scars of a 9.1 earthquake and tsunami continue to haunt Indians for decades](https://www.yahoo.com/news/ap-photos-scars-9-1-031704651.html)
 - Dec 23 - [Woman set on fire, dies on New York subway- police](https://www.yahoo.com/news/woman-set-fire-dies-york-023943949.html)
-- Dec 23 - [Family identifies woman shot and killed in her Gwinnett Co. home](https://www.yahoo.com/news/family-identifies-woman-shot-killed-003908651.html)
-- Dec 23 - [Report: Sitting Texas congresswoman in senior living facility](https://www.yahoo.com/news/report-sitting-texas-congresswoman-senior-000409240.html)
-- Dec 22 - [Man dies after being shot in a bar parking lot in Kent on Sunday](https://www.yahoo.com/news/man-dies-being-shot-bar-230008944.html)
+- Dec 22 - [Joe Manchin torches Democrats on the way out the door](https://www.yahoo.com/news/joe-manchin-torches-democrats-way-120043259.html)
 <!-- feed end -->
 
 ### Onstream
