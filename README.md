@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Man dies after being shot in a bar parking lot in Kent on Sunday](https://www.yahoo.com/news/man-dies-being-shot-bar-230008944.html)
+- Dec 22 - [Trump addresses Elon Musk's growing political influence: 'He's not going to be president'](https://www.yahoo.com/news/trump-addresses-elon-musks-growing-225846895.html)
+- Dec 22 - [Palantir and Anduril reportedly building a tech consortium to bid on defense contracts](https://finance.yahoo.com/news/palantir-anduril-reportedly-building-tech-221208996.html)
 - Dec 22 - [Trump threatens to try to take back the Panama Canal. Panama's president balks at the suggestion](https://www.yahoo.com/news/trump-threatens-try-back-panama-202411965.html)
 - Dec 22 - [Trump vows to rename Denali, North America's tallest mountain, as Mt McKinley](https://www.yahoo.com/news/trump-vows-rename-denali-north-192053563.html)
-- Dec 22 - [Here's How Much in Social Security Benefits the Average 62-Year-Old Gets Per Month](https://finance.yahoo.com/news/heres-much-social-security-benefits-184500920.html)
-- Dec 22 - [Large water main break floods Southwest Portland street, prompts traffic closures](https://www.yahoo.com/news/large-water-main-break-floods-180157071.html)
-- Dec 22 - [Pedestrian in Boynton killed by hit-and-run driver; police identify suspect](https://www.yahoo.com/news/pedestrian-boynton-killed-hit-run-175525808.html)
 <!-- feed end -->
 
 ### Onstream
