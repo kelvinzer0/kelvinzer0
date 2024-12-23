@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 23 - [Mother clinging to life revealed what happened. Now detectives more keen than ever to solve horrific murder](https://www.yahoo.com/news/mother-clinging-life-revealed-happened-132632987.html)
-- Dec 23 - [Read the Ethics Committee report on former Rep. Matt Gaetz](https://www.yahoo.com/news/read-ethics-committee-report-former-175316319.html)
-- Dec 23 - [Rosenblatt Picks AMD and Meta as Top Stocks for 2025 Amid AI Growth](https://finance.yahoo.com/news/rosenblatt-picks-amd-meta-top-163311433.html)
-- Dec 23 - [Christmas Eve snow is in the forecast for Vermont. Here's the timing, how much to expect](https://www.yahoo.com/news/christmas-eve-snow-forecast-vermont-145035898.html)
+- Dec 23 - [Oil spill between Milwaukee and Madison has caused concern. What we know and don't know.](https://www.yahoo.com/news/oil-spill-between-milwaukee-madison-180057355.html)
+- Dec 23 - [Trump transition team plans immediate WHO withdrawal, expert says](https://www.yahoo.com/news/trump-transition-team-plans-immediate-175311831.html)
+- Dec 23 - [Grand Rapids receives EGLE permit for Grand River restoration project](https://www.yahoo.com/news/grand-rapids-receives-egle-permit-174900746.html)
 - Dec 23 - [‘It’s a felony?’ Shoplifting suspects discuss new California law in back of patrol car](https://www.yahoo.com/news/felony-shoplifting-suspects-discuss-california-143959736.html)
 <!-- feed end -->
 
