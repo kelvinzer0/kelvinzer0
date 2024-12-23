@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [US House report finds Matt Gaetz violated law with sexual misconduct, drug use, CBS reports](https://www.yahoo.com/news/us-house-report-finds-matt-132502471.html)
-- Dec 23 - [Elon Musk's X lifts price for premium-plus tier to pay creators](https://finance.yahoo.com/news/elon-musks-x-lifts-price-130932655.html)
-- Dec 23 - [AI's big year: How Big Tech is shaping the future](https://finance.yahoo.com/video/ais-big-big-tech-shaping-130024816.html)
-- Dec 23 - [Tesla, Kia, Jeep among more than 700,000 vehicles recalled: Check recent car recalls here](https://www.yahoo.com/news/tesla-kia-jeep-among-more-122139970.html)
-- Dec 23 - [Honda and Nissan start merger talks in historic pivot](https://finance.yahoo.com/video/honda-nissan-start-merger-talks-121340593.html)
+- Dec 23 - [The 3 Mass Killers Biden Left on Death Row for Trump to Execute](https://www.yahoo.com/news/3-mass-killers-biden-left-144524190.html)
+- Dec 23 - [Why Is Faraday Future Intelligent Electric Trading Higher On Monday?](https://finance.yahoo.com/news/why-faraday-future-intelligent-electric-135508334.html)
+- Dec 23 - [Mother clinging to life revealed what happened. Now detectives more keen than ever to solve horrific murder](https://www.yahoo.com/news/mother-clinging-life-revealed-happened-132632987.html)
+- Dec 23 - [Hours after suggesting he would seize the Panama Canal, Trump says he wants Greenland, too](https://www.yahoo.com/news/hours-suggesting-seize-panama-canal-132929397.html)
+- Dec 23 - [US House report finds Matt Gaetz paid thousands for sex and drugs, media reports say](https://www.yahoo.com/news/us-house-report-finds-matt-132502471.html)
 <!-- feed end -->
 
 ### Onstream
