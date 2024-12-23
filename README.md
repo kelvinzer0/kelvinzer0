@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [Former Huawei 'Genius Youth' recruit says new venture can now mass produce humanoid robots](https://www.yahoo.com/tech/former-huawei-genius-youth-recruit-093000908.html)
-- Dec 23 - [Philippines says to acquire US Typhon missile system](https://www.yahoo.com/news/philippines-says-acquire-us-typhon-092442551.html)
-- Dec 23 - [South Korea detects signs of North Korea preparing more troops, drones for Russia](https://www.yahoo.com/news/south-korea-detects-signs-north-080334674.html)
+- Dec 23 - [Biden gives life in prison to 37 of 40 federal death row inmates so Trump can't have them executed](https://www.yahoo.com/news/biden-gives-life-prison-37-100022313.html)
 - Dec 23 - [All 10 passengers killed after small plane crashes into house in southern Brazil](https://www.yahoo.com/news/10-passengers-killed-small-plane-045740061.html)
 - Dec 23 - [A board game born in Mexican prisons is bringing together people from all walks of life](https://www.yahoo.com/lifestyle/board-game-born-mexican-prisons-041046113.html)
+- Dec 23 - [Jeffries on Johnson’s future as speaker: ‘There will be no Democrats available to save him’](https://www.yahoo.com/news/jeffries-johnson-future-speaker-no-040642724.html)
+- Dec 23 - [Cranberry Township man accused of having 650 child pornography charges on his devices](https://www.yahoo.com/news/cranberry-township-man-accused-having-035559217.html)
 <!-- feed end -->
 
 ### Onstream
