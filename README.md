@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [Theatre slaps trigger warning on Charles Dickens play over ‘Dickensian slurs’](https://www.yahoo.com/news/theatre-slaps-trigger-warning-charles-121527785.html)
+- Dec 23 - [Mother clinging to life revealed what happened. Now detectives more keen than ever to solve horrific murder](https://www.yahoo.com/news/mother-clinging-life-revealed-happened-132632987.html)
+- Dec 23 - [Read the Ethics Committee report on former Rep. Matt Gaetz](https://www.yahoo.com/news/read-ethics-committee-report-former-175316319.html)
+- Dec 23 - [Rosenblatt Picks AMD and Meta as Top Stocks for 2025 Amid AI Growth](https://finance.yahoo.com/news/rosenblatt-picks-amd-meta-top-163311433.html)
+- Dec 23 - [Christmas Eve snow is in the forecast for Vermont. Here's the timing, how much to expect](https://www.yahoo.com/news/christmas-eve-snow-forecast-vermont-145035898.html)
 - Dec 23 - [‘It’s a felony?’ Shoplifting suspects discuss new California law in back of patrol car](https://www.yahoo.com/news/felony-shoplifting-suspects-discuss-california-143959736.html)
-- Dec 23 - [US government sues Walmart, Branch Messenger over delivery driver 'junk fees'](https://finance.yahoo.com/news/cfpb-sues-walmart-branch-messenger-140953871.html)
-- Dec 23 - [5 Reasons Why You Might Want To Hold Off Buying a Home in the Next Two Years](https://finance.yahoo.com/news/5-reasons-why-might-want-220041241.html)
-- Dec 23 - [Hours after suggesting he would seize the Panama Canal, Trump says he wants Greenland, too](https://www.yahoo.com/news/hours-suggesting-seize-panama-canal-132929173.html)
 <!-- feed end -->
 
 ### Onstream
