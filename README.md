@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [Cucumber-linked salmonella outbreak sickens 100 people in 23 states](https://www.yahoo.com/news/more-cucumbers-recalled-salmonella-sickens-222807970.html)
 - Dec 23 - [Why Elon Musk said a House Democrat ‘needs to be expelled’ from Congress](https://www.yahoo.com/news/maddow-blog-why-elon-musk-202434387.html)
-- Dec 23 - [Local bars, restaurants asking for holiday traffic to keep lights on, doors open](https://www.yahoo.com/news/local-bars-restaurants-asking-holiday-201544063.html)
-- Dec 23 - [Party City is going out of business nationwide: See full list of store closures](https://finance.yahoo.com/news/party-city-going-business-nationwide-193648109.html)
-- Dec 23 - ['Heartbreaking' and 'incredibly sad' for victims of Gaetz's alleged actions: Former Bush aide](https://www.yahoo.com/news/heartbreaking-incredibly-sad-victims-gaetzs-193433496.html)
+- Dec 23 - [Stock Market Today: Dow Jones Surges As Broadcom Lifts; Drug Giant Climbs A Second Day After FDA Nod (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-palantir-pltr-tesla-tsla-stock/?src=A00220&yptr=yahoo)
+- Dec 23 - [Bombshell Texts Reveal Full Scope of Matt Gaetz Sex Scandal](https://www.yahoo.com/news/bombshell-texts-reveal-full-scope-203321593.html)
+- Dec 23 - [Quantum Computing: Hype or Investment Opportunity?](https://finance.yahoo.com/news/quantum-computing-hype-investment-opportunity-193300231.html)
+- Dec 23 - [Chinese workers found in 'slavery-like conditions' at BYD construction site in Brazil](https://finance.yahoo.com/news/workers-found-slavery-conditions-byd-191044525.html)
 <!-- feed end -->
 
 ### Onstream
