@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [US House report finds Matt Gaetz violated law with sexual misconduct, drug use, CBS reports](https://www.yahoo.com/news/us-house-report-finds-matt-132502471.html)
+- Dec 23 - [Elon Musk's X lifts price for premium-plus tier to pay creators](https://finance.yahoo.com/news/elon-musks-x-lifts-price-130932655.html)
 - Dec 23 - [AI's big year: How Big Tech is shaping the future](https://finance.yahoo.com/video/ais-big-big-tech-shaping-130024816.html)
-- Dec 23 - [Downed wires, equipment unavailability leading to Northeast delays on Amtrak](https://www.yahoo.com/news/downed-wires-equipment-unavailability-leading-123632522.html)
-- Dec 23 - [Colorado tenants are being forced to pay a $20 monthly fee for package delivery — even if they don't use the service](https://finance.yahoo.com/news/colorado-tenants-being-forced-pay-123300885.html)
+- Dec 23 - [Tesla, Kia, Jeep among more than 700,000 vehicles recalled: Check recent car recalls here](https://www.yahoo.com/news/tesla-kia-jeep-among-more-122139970.html)
 - Dec 23 - [Honda and Nissan start merger talks in historic pivot](https://finance.yahoo.com/video/honda-nissan-start-merger-talks-121340593.html)
-- Dec 23 - [Biden gives life in prison to 37 of 40 federal death row inmates so Trump can't have them executed](https://www.yahoo.com/news/biden-gives-life-prison-37-100022313.html)
 <!-- feed end -->
 
 ### Onstream
