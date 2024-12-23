@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [El Paso man fatally shot breaking up fight in Northeast, police searching for suspect](https://www.yahoo.com/news/el-paso-man-fatally-shot-220741479.html)
+- Dec 23 - [Haitians massacred for practicing voodoo were abducted, hacked to death: UN](https://www.yahoo.com/news/haitians-massacred-practicing-voodoo-were-220208068.html)
+- Dec 23 - [Legendary drug lord Fabio Ochoa is deported to Colombia and walks free after 20 years in US prisons](https://www.yahoo.com/news/legendary-drug-lord-fabio-ochoa-220132648.html)
+- Dec 23 - [NHS neurologist who called Hamas leader a ‘legend’ is suspended](https://www.yahoo.com/news/nhs-neurologist-called-hamas-leader-220000234.html)
 - Dec 23 - [Why Elon Musk said a House Democrat ‘needs to be expelled’ from Congress](https://www.yahoo.com/news/maddow-blog-why-elon-musk-202434387.html)
-- Dec 23 - [Stock Market Today: Dow Jones Surges As Broadcom Lifts; Drug Giant Climbs A Second Day After FDA Nod (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-palantir-pltr-tesla-tsla-stock/?src=A00220&yptr=yahoo)
-- Dec 23 - [Bombshell Texts Reveal Full Scope of Matt Gaetz Sex Scandal](https://www.yahoo.com/news/bombshell-texts-reveal-full-scope-203321593.html)
-- Dec 23 - [Quantum Computing: Hype or Investment Opportunity?](https://finance.yahoo.com/news/quantum-computing-hype-investment-opportunity-193300231.html)
-- Dec 23 - [Chinese workers found in 'slavery-like conditions' at BYD construction site in Brazil](https://finance.yahoo.com/news/workers-found-slavery-conditions-byd-191044525.html)
 <!-- feed end -->
 
 ### Onstream
