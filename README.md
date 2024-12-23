@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [NATO chief Rutte says Zelenskiy's criticism of Germany's Scholz is unfair](https://www.yahoo.com/news/nato-chief-rutte-says-zelenskiys-061255592.html)
+- Dec 23 - [South Korea detects signs of North Korea preparing more troops, drones for Russia](https://www.yahoo.com/news/south-korea-detects-signs-north-080334674.html)
+- Dec 23 - [China says it provided information, documents in Baltic Sea cables inquiry](https://www.yahoo.com/news/china-provided-information-documents-probe-073158669.html)
+- Dec 23 - [Romanian parliament expected to approve new government](https://www.yahoo.com/news/romanian-parliament-expected-approve-government-065223384.html)
+- Dec 23 - [All 10 passengers killed after small plane crashes into house in southern Brazil](https://www.yahoo.com/news/10-passengers-killed-small-plane-045740061.html)
 - Dec 23 - [Former Israeli spies describe attack using exploding electronic devices against Hezbollah](https://www.yahoo.com/news/former-israeli-spy-agents-describe-034822554.html)
-- Dec 23 - [Former Nissan CEO Carlos Ghosn calls the Nissan-Honda merger plan a 'desperate move'](https://finance.yahoo.com/news/former-nissan-ceo-carlos-ghosn-034126684.html)
-- Dec 23 - [AP PHOTOS: The scars of a 9.1 earthquake and tsunami continue to haunt Indians for decades](https://www.yahoo.com/news/ap-photos-scars-9-1-031704651.html)
-- Dec 23 - [Woman set on fire, dies on New York subway- police](https://www.yahoo.com/news/woman-set-fire-dies-york-023943949.html)
 <!-- feed end -->
 
 ### Onstream
