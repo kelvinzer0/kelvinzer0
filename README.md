@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [AI's big year: How Big Tech is shaping the future](https://finance.yahoo.com/video/ais-big-big-tech-shaping-130024816.html)
+- Dec 23 - [Downed wires, equipment unavailability leading to Northeast delays on Amtrak](https://www.yahoo.com/news/downed-wires-equipment-unavailability-leading-123632522.html)
+- Dec 23 - [Colorado tenants are being forced to pay a $20 monthly fee for package delivery — even if they don't use the service](https://finance.yahoo.com/news/colorado-tenants-being-forced-pay-123300885.html)
 - Dec 23 - [Honda and Nissan start merger talks in historic pivot](https://finance.yahoo.com/video/honda-nissan-start-merger-talks-121340593.html)
-- Dec 23 - ['Gut punch': Brockton business owner makes emotional decision to leave. Here's why](https://www.yahoo.com/news/gut-punch-brockton-business-owner-100930245.html)
 - Dec 23 - [Biden gives life in prison to 37 of 40 federal death row inmates so Trump can't have them executed](https://www.yahoo.com/news/biden-gives-life-prison-37-100022313.html)
-- Dec 23 - [Woman dies after being set on fire on New York City subway train](https://www.yahoo.com/news/woman-dies-being-set-fire-084107973.html)
-- Dec 23 - [South Korea says it detects signs of North Korea preparing more troops, drones for Russia](https://www.yahoo.com/news/south-korea-detects-signs-north-080334674.html)
 <!-- feed end -->
 
 ### Onstream
