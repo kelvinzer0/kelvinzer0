@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [12 killed in blast at Turkey explosives plant](https://www.yahoo.com/news/12-killed-blast-turkey-explosives-082056858.html)
-- Dec 24 - [Explosion sinks Russian cargo ship in Mediterranean, Russian Foreign Ministry says](https://www.yahoo.com/news/russian-cargo-ship-sank-mediterranean-074056453.html)
+- Dec 24 - [1 Vanguard Index Fund Could Turn $375 Per Month Into a $569,400 Portfolio That Pays $17,200 in Annual Dividend Income](https://finance.yahoo.com/news/1-vanguard-index-fund-could-091200244.html)
+- Dec 24 - [Russian cargo ship sinks in Mediterranean after explosion, Russian Foreign Ministry says](https://www.yahoo.com/news/russian-cargo-ship-sank-mediterranean-074056453.html)
 - Dec 24 - [20 years after the Indian Ocean tsunami, a boy found in the mud embraces being known as 'Baby 81'](https://www.yahoo.com/news/20-years-indian-ocean-tsunami-042235296.html)
 - Dec 24 - [Biden delivers on threat to veto bill to expand US judiciary](https://www.yahoo.com/news/biden-vetoes-bill-adding-judges-022138831.html)
-- Dec 24 - [Oregon State Police arrest hunters for allegedly using thermal imaging for poaching](https://www.yahoo.com/news/oregon-state-police-arrest-hunters-013415689.html)
+- Dec 24 - [Shooting reported at the Katy Mills Mall, suspects fled scene](https://www.yahoo.com/news/shooting-reported-katy-mills-mall-005828817.html)
 <!-- feed end -->
 
 ### Onstream
