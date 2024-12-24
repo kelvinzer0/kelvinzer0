@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [Ovintiv Inc. (OVV): A Bull Case Theory](https://finance.yahoo.com/news/ovintiv-inc-ovv-bull-case-145708615.html)
+- Dec 24 - [How to hold cash in 2025 to build wealth](https://finance.yahoo.com/video/hold-cash-2025-build-wealth-160053931.html)
 - Dec 24 - [Why sonic booms from the most powerful rocket ever built have some scientists worried](https://www.yahoo.com/news/study-spacex-mega-rocket-hints-124014605.html)
+- Dec 24 - [Kurdish-led forces push back Turkish-backed Syrian rebels in a tense offensive](https://www.yahoo.com/news/kurdish-led-forces-push-back-132226358.html)
+- Dec 24 - [Why recruits are quitting the Armed Forces in their droves](https://www.yahoo.com/news/soldiers-want-fight-why-recruits-130000223.html)
 - Dec 24 - [Woman dies trying to jump from Sky Princess ship on Caribbean Christmas cruise](https://www.yahoo.com/news/woman-dies-trying-jump-sky-124231145.html)
-- Dec 24 - [Dave Ramsey says there's a costly Medicare mistake that could have you paying penalties for ‘rest of your life’](https://finance.yahoo.com/news/dave-ramsey-says-theres-costly-115500766.html)
-- Dec 24 - [At Least 1 Killed as Dangerously High Surf and Rip Currents Hit California Coast](https://www.yahoo.com/news/least-1-killed-dangerously-high-101346945.html)
 <!-- feed end -->
 
 ### Onstream
