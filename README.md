@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [1 Vanguard Index Fund Could Turn $375 Per Month Into a $569,400 Portfolio That Pays $17,200 in Annual Dividend Income](https://finance.yahoo.com/news/1-vanguard-index-fund-could-091200244.html)
+- Dec 24 - [Analyst: ‘Dollars Are Flowing’ Into Nvidia, Not Advanced Micro Devices (AMD)](https://finance.yahoo.com/news/analyst-dollars-flowing-nvidia-not-103349668.html)
+- Dec 24 - [Imagine if Biden pardoned Trump and resigned ahead of the Jan. 20 inauguration | Letters](https://www.yahoo.com/news/imagine-biden-pardoned-trump-resigned-100244381.html)
 - Dec 24 - [Russian cargo ship sinks in Mediterranean after explosion, Russian Foreign Ministry says](https://www.yahoo.com/news/russian-cargo-ship-sank-mediterranean-074056453.html)
-- Dec 24 - [20 years after the Indian Ocean tsunami, a boy found in the mud embraces being known as 'Baby 81'](https://www.yahoo.com/news/20-years-indian-ocean-tsunami-042235296.html)
-- Dec 24 - [Biden delivers on threat to veto bill to expand US judiciary](https://www.yahoo.com/news/biden-vetoes-bill-adding-judges-022138831.html)
-- Dec 24 - [Shooting reported at the Katy Mills Mall, suspects fled scene](https://www.yahoo.com/news/shooting-reported-katy-mills-mall-005828817.html)
+- Dec 24 - [Russia's economy is set to lose another source of income that Ukraine controls](https://finance.yahoo.com/news/russias-economy-set-lose-another-065818548.html)
+- Dec 24 - [Child sex predator in Southern California dies in jail](https://www.yahoo.com/news/child-sex-predator-southern-california-063710019.html)
 <!-- feed end -->
 
 ### Onstream
