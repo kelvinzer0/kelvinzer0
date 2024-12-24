@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [J.B. Hunt Transport Services (JBHT): The Best Trucking Stock to Buy?](https://finance.yahoo.com/news/j-b-hunt-transport-services-210556823.html)
-- Dec 24 - [Santa Cruz Wharf Partially Collapses into Pacific Ocean During Deadly Pre-Holiday Storm](https://www.yahoo.com/entertainment/santa-cruz-wharf-partially-collapses-205201020.html)
-- Dec 24 - [Two people seriously injured in Palm Springs shooting](https://www.yahoo.com/news/two-people-seriously-injured-palm-172443853.html)
+- Dec 24 - [Man accused of fatally setting New York City subway rider on fire says he doesn't recall incident](https://www.yahoo.com/news/man-accused-fatally-setting-york-213638875.html)
+- Dec 24 - [Opinion - We were warned: First term aides told us about Trump’s governing style](https://www.yahoo.com/news/opinion-were-warned-first-term-193000410.html)
 - Dec 24 - [A Ukrainian tank commander shared how a crew survived direct Russian drone strikes in an American-made Abrams tank](https://www.yahoo.com/news/ukrainian-tank-commander-shared-crew-172420939.html)
-- Dec 24 - [Opinion - Elon Musk wants to ‘delete’ many Americans’ financial lifeline](https://finance.yahoo.com/news/opinion-elon-musk-wants-delete-143000169.html)
+- Dec 24 - [Does Gaetz have a political future? Message 'couldn't have been clearer' from MAGA supporters](https://www.yahoo.com/news/does-gaetz-political-future-message-171644095.html)
+- Dec 24 - [More than 100 of North Korea's elite 'Storm' troops are dead and 1,000 more wounded from their first battles for Russia: South Korean intel](https://www.yahoo.com/news/more-100-north-koreas-elite-163934265.html)
 <!-- feed end -->
 
 ### Onstream
