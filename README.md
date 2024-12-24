@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [FAA halts all American Airlines flights in the US after airline reports technical issues systemwide](https://www.yahoo.com/news/faa-halts-american-airlines-flights-130017055.html)
+- Dec 24 - [Woman dies trying to jump from Sky Princess ship on Caribbean Christmas cruise](https://www.yahoo.com/news/woman-dies-trying-jump-sky-124231145.html)
+- Dec 24 - [Historic downtown Indianapolis church destroyed in fire early Christmas Eve](https://www.yahoo.com/news/historic-downtown-indianapolis-church-destroyed-122057133.html)
 - Dec 24 - [Dave Ramsey says there's a costly Medicare mistake that could have you paying penalties for ‘rest of your life’](https://finance.yahoo.com/news/dave-ramsey-says-theres-costly-115500766.html)
-- Dec 24 - [Oklahoma's small business innovations on the line if ACA subsidies expire, experts say](https://www.yahoo.com/news/oklahomas-small-business-innovations-line-114522750.html)
 - Dec 24 - [Russian cargo ship sinks in Mediterranean after explosion, Russian Foreign Ministry says](https://www.yahoo.com/news/russian-cargo-ship-sank-mediterranean-074056453.html)
 - Dec 24 - [Back to the Future’s time-travelling DeLorean set to return – plus five other ‘gullwing’ greats](https://www.yahoo.com/entertainment/back-future-time-travelling-delorean-073000309.html)
 <!-- feed end -->
