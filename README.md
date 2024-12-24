@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 24 - [12 killed in blast at Turkey explosives plant](https://www.yahoo.com/news/12-killed-blast-turkey-explosives-082056858.html)
+- Dec 24 - [Explosion sinks Russian cargo ship in Mediterranean, Russian Foreign Ministry says](https://www.yahoo.com/news/russian-cargo-ship-sank-mediterranean-074056453.html)
 - Dec 24 - [20 years after the Indian Ocean tsunami, a boy found in the mud embraces being known as 'Baby 81'](https://www.yahoo.com/news/20-years-indian-ocean-tsunami-042235296.html)
 - Dec 24 - [Biden delivers on threat to veto bill to expand US judiciary](https://www.yahoo.com/news/biden-vetoes-bill-adding-judges-022138831.html)
-- Dec 24 - [Former President Bill Clinton is in the hospital after developing a fever, spokesperson says](https://www.yahoo.com/news/former-president-bill-clinton-hospital-222614806.html)
-- Dec 23 - [Major storm pounds California's central coast, blamed for man's death and partially collapsing pier](https://www.yahoo.com/news/2-rescued-california-pier-partially-221959161.html)
-- Dec 23 - [Why Elon Musk said a House Democrat ‘needs to be expelled’ from Congress](https://www.yahoo.com/news/maddow-blog-why-elon-musk-202434387.html)
+- Dec 24 - [Oregon State Police arrest hunters for allegedly using thermal imaging for poaching](https://www.yahoo.com/news/oregon-state-police-arrest-hunters-013415689.html)
 <!-- feed end -->
 
 ### Onstream
