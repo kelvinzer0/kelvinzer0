@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [Analyst: ‘Dollars Are Flowing’ Into Nvidia, Not Advanced Micro Devices (AMD)](https://finance.yahoo.com/news/analyst-dollars-flowing-nvidia-not-103349668.html)
-- Dec 24 - [Imagine if Biden pardoned Trump and resigned ahead of the Jan. 20 inauguration | Letters](https://www.yahoo.com/news/imagine-biden-pardoned-trump-resigned-100244381.html)
+- Dec 24 - [Updated snowfall forecast: What to expect from Tuesday’s Christmas Eve snow](https://www.yahoo.com/news/updated-snowfall-forecast-expect-tuesday-114316353.html)
+- Dec 24 - [Elon Musk says America will be ‘toast’ and US dollar will be worth ‘nothing’ without fast action — what he means](https://finance.yahoo.com/news/elon-musk-says-america-toast-111000070.html)
+- Dec 24 - [Explosion at armament factory in Turkey kills at least 12 people](https://www.yahoo.com/news/explosion-armament-factory-turkey-kills-084809447.html)
 - Dec 24 - [Russian cargo ship sinks in Mediterranean after explosion, Russian Foreign Ministry says](https://www.yahoo.com/news/russian-cargo-ship-sank-mediterranean-074056453.html)
-- Dec 24 - [Russia's economy is set to lose another source of income that Ukraine controls](https://finance.yahoo.com/news/russias-economy-set-lose-another-065818548.html)
-- Dec 24 - [Child sex predator in Southern California dies in jail](https://www.yahoo.com/news/child-sex-predator-southern-california-063710019.html)
+- Dec 24 - [20 years after the Indian Ocean tsunami, a boy found in the mud embraces being known as 'Baby 81'](https://www.yahoo.com/news/20-years-indian-ocean-tsunami-042235296.html)
 <!-- feed end -->
 
 ### Onstream
