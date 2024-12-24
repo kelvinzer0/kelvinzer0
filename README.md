@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [US-sanctioned Russian ship sinks in Mediterranean after explosion](https://www.yahoo.com/news/us-sanctioned-russian-ship-sinks-163049394.html)
 - Dec 24 - [Walmart accused of illegally forcing over 1 million of its drivers it open bank accounts](https://www.yahoo.com/news/walmart-accused-illegally-forcing-over-165308381.html)
+- Dec 24 - [Dorchester man arrested, busted with over 300 grams of cocaine and fentanyl](https://www.yahoo.com/news/dorchester-man-arrested-busted-over-182702574.html)
+- Dec 24 - [Three Dividend Stocks To Consider For Your Portfolio](https://finance.yahoo.com/news/three-dividend-stocks-consider-portfolio-180356767.html)
 - Dec 24 - [More than 100 of North Korea's elite 'Storm' troops are dead and 1,000 more wounded from their first battles for Russia: South Korean intel](https://www.yahoo.com/news/more-100-north-koreas-elite-163934265.html)
-- Dec 24 - [James Webb Space Telescope: 4K Mind-Boggling View Of 'Exploded Star'](https://www.yahoo.com/news/james-webb-space-telescope-4k-170100140.html)
 - Dec 24 - [Opinion - Elon Musk wants to ‘delete’ many Americans’ financial lifeline](https://finance.yahoo.com/news/opinion-elon-musk-wants-delete-143000169.html)
 <!-- feed end -->
 
