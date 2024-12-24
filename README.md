@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [Watch as heavy surf causes Santa Cruz pier to partially collapse, sending 3 into water](https://www.yahoo.com/news/watch-heavy-surf-causes-santa-022001707.html)
-- Dec 24 - [Former President Bill Clinton is in the hospital after developing a fever, spokesperson says](https://www.yahoo.com/news/former-president-bill-clinton-hospital-222614806.html)
-- Dec 23 - [Judge rules Arkansas law allowing criminal charges against librarians is unconstitutional](https://www.yahoo.com/news/judge-rules-arkansas-law-allowing-224914711.html)
-- Dec 23 - [Teacher Who Got Pregnant After Raping Boy, 12, Gets 25 Years in Prison: 'Burn in Hell'](https://www.yahoo.com/news/teacher-got-pregnant-raping-boy-215757980.html)
+- Dec 23 - [Legendary drug lord Fabio Ochoa is deported to Colombia and walks free after 20 years in US prisons](https://www.yahoo.com/news/legendary-drug-lord-fabio-ochoa-220132648.html)
 - Dec 23 - [Why Elon Musk said a House Democrat ‘needs to be expelled’ from Congress](https://www.yahoo.com/news/maddow-blog-why-elon-musk-202434387.html)
+- Dec 23 - [Fitness Influencer Miguel Aguilar Dead at 43](https://www.yahoo.com/news/fitness-influencer-miguel-aguilar-dead-213502987.html)
+- Dec 23 - [Why AI agents are 'a massive opportunity' in 2025](https://finance.yahoo.com/video/why-ai-agents-massive-opportunity-213412408.html)
+- Dec 23 - [Biden Just Made a Huge Defensive Move Against Trump. It’s What He Didn’t Do That’s Telling.](https://www.yahoo.com/news/biden-just-made-huge-defensive-203906450.html)
 <!-- feed end -->
 
 ### Onstream
