@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [Two people seriously injured in Palm Springs shooting](https://www.yahoo.com/news/two-people-seriously-injured-palm-172443853.html)
-- Dec 24 - [Does Gaetz have a political future? Message 'couldn't have been clearer' from MAGA supporters](https://www.yahoo.com/news/does-gaetz-political-future-message-171644095.html)
-- Dec 24 - [Becoming a resident of South Dakota is easy. Some say too easy](https://www.yahoo.com/news/becoming-resident-south-dakota-easy-170557216.html)
-- Dec 24 - [Second US Navy fighter jet narrowly avoided being shot down in 'friendly fire' incident: source](https://www.yahoo.com/news/second-us-navy-fighter-jet-165859837.html)
+- Dec 24 - [On Christmas Eve, Pope Francis launches holy Jubilee year](https://www.yahoo.com/news/christmas-eve-pope-francis-launches-200439338.html)
 - Dec 24 - [More than 100 of North Korea's elite 'Storm' troops are dead and 1,000 more wounded from their first battles for Russia: South Korean intel](https://www.yahoo.com/news/more-100-north-koreas-elite-163934265.html)
+- Dec 24 - [In the wake of tragedy: Panama City woman recovers after Dec. 13 shooting that killed her husband](https://www.yahoo.com/news/wake-tragedy-panama-city-woman-152746367.html)
+- Dec 24 - [Brazil shuts BYD factory site over 'slavery' conditions](https://www.yahoo.com/news/brazil-shuts-byd-factory-over-071509072.html)
+- Dec 24 - [Opinion - Elon Musk wants to ‘delete’ many Americans’ financial lifeline](https://finance.yahoo.com/news/opinion-elon-musk-wants-delete-143000169.html)
 <!-- feed end -->
 
 ### Onstream
