@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [How to hold cash in 2025 to build wealth](https://finance.yahoo.com/video/hold-cash-2025-build-wealth-160053931.html)
-- Dec 24 - [Why sonic booms from the most powerful rocket ever built have some scientists worried](https://www.yahoo.com/news/study-spacex-mega-rocket-hints-124014605.html)
-- Dec 24 - [Kurdish-led forces push back Turkish-backed Syrian rebels in a tense offensive](https://www.yahoo.com/news/kurdish-led-forces-push-back-132226358.html)
-- Dec 24 - [Why recruits are quitting the Armed Forces in their droves](https://www.yahoo.com/news/soldiers-want-fight-why-recruits-130000223.html)
-- Dec 24 - [Woman dies trying to jump from Sky Princess ship on Caribbean Christmas cruise](https://www.yahoo.com/news/woman-dies-trying-jump-sky-124231145.html)
+- Dec 24 - [Find The Next Palantir Or Hot IPO In 2025 With This Tool](https://www.investors.com/how-to-invest/stock-screener/?src=A00220&yptr=yahoo)
+- Dec 24 - [US-sanctioned Russian ship sinks in Mediterranean after explosion](https://www.yahoo.com/news/us-sanctioned-russian-ship-sinks-163049394.html)
+- Dec 24 - [20 Cars That Will Last You Twice as Long as Any Regular Vehicle](https://www.yahoo.com/news/more-bang-buck-20-cars-110026804.html)
+- Dec 24 - [Opinion - Elon Musk wants to ‘delete’ many Americans’ financial lifeline](https://www.yahoo.com/news/opinion-elon-musk-wants-delete-143000169.html)
+- Dec 24 - [Walmart illegally opened bank accounts for 1 million drivers, lawsuit alleges](https://finance.yahoo.com/news/walmart-illegally-opened-bank-accounts-141816048.html)
 <!-- feed end -->
 
 ### Onstream
