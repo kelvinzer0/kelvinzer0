@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 23 - [El Paso man fatally shot breaking up fight in Northeast, police searching for suspect](https://www.yahoo.com/news/el-paso-man-fatally-shot-220741479.html)
-- Dec 23 - [Haitians massacred for practicing voodoo were abducted, hacked to death: UN](https://www.yahoo.com/news/haitians-massacred-practicing-voodoo-were-220208068.html)
+- Dec 24 - [Wells Fargo, Chase, Bank of America sued over alleged unchecked fraud on Zelle app](https://finance.yahoo.com/news/wells-fargo-chase-bank-america-004804644.html)
+- Dec 24 - [Former President Bill Clinton is in the hospital after developing a fever, spokesperson says](https://www.yahoo.com/news/former-president-bill-clinton-hospital-222614806.html)
+- Dec 23 - [Santa Cruz wharf section collapses, sending 3 into sea as high surf slams California coast](https://www.yahoo.com/news/santa-cruz-wharf-section-collapses-230608456.html)
+- Dec 23 - [Judge rules Arkansas law allowing criminal charges against librarians is unconstitutional](https://www.yahoo.com/news/judge-rules-arkansas-law-allowing-224914711.html)
 - Dec 23 - [Legendary drug lord Fabio Ochoa is deported to Colombia and walks free after 20 years in US prisons](https://www.yahoo.com/news/legendary-drug-lord-fabio-ochoa-220132648.html)
-- Dec 23 - [NHS neurologist who called Hamas leader a ‘legend’ is suspended](https://www.yahoo.com/news/nhs-neurologist-called-hamas-leader-220000234.html)
-- Dec 23 - [Why Elon Musk said a House Democrat ‘needs to be expelled’ from Congress](https://www.yahoo.com/news/maddow-blog-why-elon-musk-202434387.html)
 <!-- feed end -->
 
 ### Onstream
