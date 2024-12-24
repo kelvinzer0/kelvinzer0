@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [On Christmas Eve, Pope Francis launches holy Jubilee year](https://www.yahoo.com/news/christmas-eve-pope-francis-launches-200439338.html)
-- Dec 24 - [More than 100 of North Korea's elite 'Storm' troops are dead and 1,000 more wounded from their first battles for Russia: South Korean intel](https://www.yahoo.com/news/more-100-north-koreas-elite-163934265.html)
-- Dec 24 - [In the wake of tragedy: Panama City woman recovers after Dec. 13 shooting that killed her husband](https://www.yahoo.com/news/wake-tragedy-panama-city-woman-152746367.html)
-- Dec 24 - [Brazil shuts BYD factory site over 'slavery' conditions](https://www.yahoo.com/news/brazil-shuts-byd-factory-over-071509072.html)
+- Dec 24 - [J.B. Hunt Transport Services (JBHT): The Best Trucking Stock to Buy?](https://finance.yahoo.com/news/j-b-hunt-transport-services-210556823.html)
+- Dec 24 - [Santa Cruz Wharf Partially Collapses into Pacific Ocean During Deadly Pre-Holiday Storm](https://www.yahoo.com/entertainment/santa-cruz-wharf-partially-collapses-205201020.html)
+- Dec 24 - [Two people seriously injured in Palm Springs shooting](https://www.yahoo.com/news/two-people-seriously-injured-palm-172443853.html)
+- Dec 24 - [A Ukrainian tank commander shared how a crew survived direct Russian drone strikes in an American-made Abrams tank](https://www.yahoo.com/news/ukrainian-tank-commander-shared-crew-172420939.html)
 - Dec 24 - [Opinion - Elon Musk wants to ‘delete’ many Americans’ financial lifeline](https://finance.yahoo.com/news/opinion-elon-musk-wants-delete-143000169.html)
 <!-- feed end -->
 
