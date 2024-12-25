@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Undersea power cable linking Finland and Estonia hit by outage, prompting investigation](https://www.yahoo.com/news/undersea-power-cable-linking-finland-205903143.html)
+- Dec 25 - [Archbishop's Christmas sermon 'empty words', Bishop says](https://www.yahoo.com/news/archbishops-christmas-sermon-empty-words-205448866.html)
 - Dec 25 - [Brazil’s iconic Christ the Redeemer statue is caught in a battle between church and state](https://www.yahoo.com/news/brazil-iconic-christ-redeemer-statue-190109411.html)
 - Dec 25 - [Biden, Trump send different Christmas messages](https://www.yahoo.com/news/biden-trump-send-different-christmas-185915995.html)
-- Dec 25 - [Convicted murderer who escaped a Mississippi prison on Christmas Eve has been captured](https://www.yahoo.com/news/manhunt-underway-convicted-murderer-escaped-174138456.html)
-- Dec 25 - [Clashes between Islamists now in power in Syria and Assad's supporters leave casualties](https://www.yahoo.com/news/clashes-between-islamists-now-power-183233880.html)
-- Dec 25 - [Trump aims dig at Obama in bizarre hour-long Christmas Day Truth Social posting spree](https://www.yahoo.com/news/trump-aims-dig-obama-bizarre-171720658.html)
+- Dec 25 - [Clashes between Islamists now in power in Syria and Assad's supporters kill 6 fighters](https://www.yahoo.com/news/clashes-between-islamists-now-power-183233880.html)
 <!-- feed end -->
 
 ### Onstream
