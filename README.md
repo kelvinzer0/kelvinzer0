@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [Man accused of fatally setting New York City subway rider on fire says he doesn't recall incident](https://www.yahoo.com/news/man-accused-fatally-setting-york-213638875.html)
-- Dec 24 - [Opinion - We were warned: First term aides told us about Trump’s governing style](https://www.yahoo.com/news/opinion-were-warned-first-term-193000410.html)
-- Dec 24 - [A Ukrainian tank commander shared how a crew survived direct Russian drone strikes in an American-made Abrams tank](https://www.yahoo.com/news/ukrainian-tank-commander-shared-crew-172420939.html)
-- Dec 24 - [Does Gaetz have a political future? Message 'couldn't have been clearer' from MAGA supporters](https://www.yahoo.com/news/does-gaetz-political-future-message-171644095.html)
-- Dec 24 - [More than 100 of North Korea's elite 'Storm' troops are dead and 1,000 more wounded from their first battles for Russia: South Korean intel](https://www.yahoo.com/news/more-100-north-koreas-elite-163934265.html)
+- Dec 24 - [Elon Musk takes aim at MacKenzie Scott again for giving billions to liberal causes, calling the gifts 'concerning'](https://finance.yahoo.com/news/elon-musk-takes-aim-mackenzie-230656697.html)
+- Dec 24 - [Scientists Destroy 99% of Cancer Cells in Lab Using Vibrating Molecules](https://www.yahoo.com/news/scientists-destroy-99-cancer-cells-223033177.html)
+- Dec 24 - [Syria's new foreign minister tells Iran not to spread chaos in Syria](https://www.yahoo.com/news/syrias-foreign-minister-tells-iran-220811598.html)
+- Dec 24 - [Swiss Olympic snowboarder Sophie Hediger killed in avalanche](https://sports.yahoo.com/swiss-olympic-snowboarder-sophie-hediger-180100630.html)
+- Dec 24 - [The Internet Is Sharing What It's Like To Be On A PIP — AKA A Performance Improvement Plan — At Work, And It's VERY Honest](https://www.yahoo.com/lifestyle/people-sharing-stories-time-job-202102756.html)
 <!-- feed end -->
 
 ### Onstream
