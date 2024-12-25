@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Historical mysteries solved by science in 2024](https://www.yahoo.com/news/myth-lost-prince-other-historical-130158878.html)
+- Dec 25 - [Russian region declares emergency situation as Black Sea oil spill fallout widens](https://www.yahoo.com/news/russian-region-declares-emergency-situation-132546321.html)
 - Dec 25 - [Kurdish militia in Syria will be buried if they do not lay down arms, Turkey's Erdogan says](https://www.yahoo.com/news/kurdish-militia-syria-buried-not-110455227.html)
 - Dec 25 - [The 'Godfather of EVs' explains why China is winning the race to go electric — and why hybrids are a 'fool's errand'](https://finance.yahoo.com/news/godfather-evs-explains-why-china-105502933.html)
-- Dec 25 - [Can I just throw out those old documents in my basement? We asked accountants.](https://finance.yahoo.com/news/just-throw-those-old-documents-100545204.html)
-- Dec 25 - [A doctor who says he's reversed his age by 20 years shares the 6 bare-minimum things you can do to live longer](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-080501638.html)
-- Dec 25 - [Azerbaijan Airlines plane crashes in Kazakhstan, many feared dead](https://www.yahoo.com/news/passenger-plane-crashes-kazakhstan-emergencies-071319857.html)
+- Dec 25 - [An Israeli soldier who died 417 days after his Oct. 7 wounds has become a symbol of sacrifice](https://www.yahoo.com/news/israeli-soldier-died-417-days-084911672.html)
 <!-- feed end -->
 
 ### Onstream
