@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Should You Forget Bitcoin and Buy Solana Instead?](https://finance.yahoo.com/news/forget-bitcoin-buy-solana-instead-094200129.html)
-- Dec 25 - [Meet the Magnificent Vanguard ETF With 37.6% of Its Portfolio Invested in Nvidia, Apple, and Microsoft](https://finance.yahoo.com/news/meet-magnificent-vanguard-etf-37-092900394.html)
+- Dec 25 - [Trump made major economic promises in 2024. Global players get their say in 2025.](https://finance.yahoo.com/news/trump-made-major-economic-promises-in-2024-global-players-get-their-say-in-2025-110033296.html)
 - Dec 25 - [Azerbaijan Airlines plane crashes in Kazakhstan, many feared dead](https://www.yahoo.com/news/passenger-plane-crashes-kazakhstan-emergencies-071319857.html)
 - Dec 25 - [Turkey's soaring costs are creating a 'lost generation' of kids forced to help their families get by](https://www.yahoo.com/news/turkeys-soaring-costs-creating-lost-050238908.html)
+- Dec 25 - [Former deputy in Southern California takes own life after attempted sex with ‘teen’ arrest](https://www.yahoo.com/news/former-deputy-southern-california-takes-021420723.html)
 - Dec 25 - [Biden signs 50 bills, including 1 backed by Paris Hilton, on Christmas Eve](https://www.yahoo.com/news/biden-signs-50-bills-including-004152273.html)
 <!-- feed end -->
 
