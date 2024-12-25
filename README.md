@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Biden signs 50 bills, including 1 backed by Paris Hilton, on Christmas Eve](https://www.yahoo.com/news/biden-signs-50-bills-including-004152273.html)
+- Dec 25 - [Turkey's soaring costs are creating a 'lost generation' of kids forced to help their families get by](https://www.yahoo.com/news/turkeys-soaring-costs-creating-lost-050238908.html)
 - Dec 24 - [Scientists Destroy 99% of Cancer Cells in Lab Using Vibrating Molecules](https://www.yahoo.com/news/scientists-destroy-99-cancer-cells-223033177.html)
-- Dec 24 - [Stunning photos show lava erupting from Hawaii's Kilauea volcano](https://www.yahoo.com/news/stunning-photos-show-lava-erupting-222423154.html)
-- Dec 24 - [Syria's new foreign minister tells Iran not to spread chaos in Syria](https://www.yahoo.com/news/syrias-foreign-minister-tells-iran-220811598.html)
-- Dec 24 - [Video: Man arrested for flying into a rage at Hopkins Airport](https://www.yahoo.com/news/video-man-arrested-flying-rage-215307157.html)
+- Dec 24 - [More than 100 of North Korea's elite 'Storm' troops are dead and 1,000 more wounded from their first battles for Russia: South Korean intel](https://www.yahoo.com/news/more-100-north-koreas-elite-163934265.html)
+- Dec 24 - [Empty lines at Louis Armstrong New Orleans International Airport day before Christmas Eve](https://www.yahoo.com/news/empty-lines-louis-armstrong-orleans-150145056.html)
+- Dec 24 - [Opinion - Elon Musk wants to ‘delete’ many Americans’ financial lifeline](https://finance.yahoo.com/news/opinion-elon-musk-wants-delete-143000169.html)
 <!-- feed end -->
 
 ### Onstream
