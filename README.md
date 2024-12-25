@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 25 - [Historical mysteries solved by science in 2024](https://www.yahoo.com/news/myth-lost-prince-other-historical-130158878.html)
+- Dec 25 - [Did anyone win the Mega Millions drawing last night? $1 billion lottery jackpot up for grabs](https://www.yahoo.com/news/did-anyone-win-mega-millions-135153122.html)
 - Dec 25 - [Russian region declares emergency situation as Black Sea oil spill fallout widens](https://www.yahoo.com/news/russian-region-declares-emergency-situation-132546321.html)
 - Dec 25 - [This Ex-Airline Employee's Mind-Blowing Flight Hack Is Going Viral And You Won't Believe How Simple And Smart It Is](https://www.yahoo.com/lifestyle/ex-airline-employees-mind-blowing-115102818.html)
-- Dec 25 - [Kurdish militia in Syria will be buried if they do not lay down arms, Turkey's Erdogan says](https://www.yahoo.com/news/kurdish-militia-syria-buried-not-110455227.html)
 - Dec 25 - [The 'godfather of EVs' explains why China is winning the race to go electric — and why hybrids are a 'fool's errand'](https://finance.yahoo.com/news/godfather-evs-explains-why-china-105502933.html)
 <!-- feed end -->
 
