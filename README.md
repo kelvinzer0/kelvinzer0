@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Dec 24 - [Scientists Destroy 99% of Cancer Cells in Lab Using Vibrating Molecules](https://www.yahoo.com/news/scientists-destroy-99-cancer-cells-223033177.html)
 - Dec 24 - [Stunning photos show lava erupting from Hawaii's Kilauea volcano](https://www.yahoo.com/news/stunning-photos-show-lava-erupting-222423154.html)
 - Dec 24 - [Syria's new foreign minister tells Iran not to spread chaos in Syria](https://www.yahoo.com/news/syrias-foreign-minister-tells-iran-220811598.html)
-- Dec 24 - [A Ukrainian tank commander shared how a crew survived direct Russian drone strikes in an American-made Abrams tank](https://www.yahoo.com/news/ukrainian-tank-commander-shared-crew-172420939.html)
+- Dec 24 - [The Internet Is Sharing What It's Like To Be On A PIP — AKA A Performance Improvement Plan — At Work, And It's VERY Honest](https://www.yahoo.com/lifestyle/people-sharing-stories-time-job-202102756.html)
 <!-- feed end -->
 
 ### Onstream
