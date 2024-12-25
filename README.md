@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [A ‘silent’ COVID surge may hit the US over the holidays, experts warn — here's what that means](https://www.yahoo.com/news/silent-covid-surge-may-hit-090926929.html)
 - Dec 25 - [Biden signs 50 bills, including 1 backed by Paris Hilton, on Christmas Eve](https://www.yahoo.com/news/biden-signs-50-bills-including-004152273.html)
 - Dec 24 - [Scientists Destroy 99% of Cancer Cells in Lab Using Vibrating Molecules](https://www.yahoo.com/news/scientists-destroy-99-cancer-cells-223033177.html)
+- Dec 24 - [Stunning photos show lava erupting from Hawaii's Kilauea volcano](https://www.yahoo.com/news/stunning-photos-show-lava-erupting-222423154.html)
 - Dec 24 - [Syria's new foreign minister tells Iran not to spread chaos in Syria](https://www.yahoo.com/news/syrias-foreign-minister-tells-iran-220811598.html)
-- Dec 24 - [Funeral services scheduled for deceased Fair Grove principal and bus driver](https://www.yahoo.com/news/funeral-services-scheduled-deceased-fair-211849874.html)
-- Dec 24 - [The Internet Is Sharing What It's Like To Be On A PIP — AKA A Performance Improvement Plan — At Work, And It's VERY Honest](https://www.yahoo.com/lifestyle/people-sharing-stories-time-job-202102756.html)
 <!-- feed end -->
 
 ### Onstream
