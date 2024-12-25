@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 25 - [Trump aims dig at Obama in bizarre hour-long Christmas Day Truth Social posting spree](https://www.yahoo.com/news/trump-aims-dig-obama-bizarre-171720658.html)
-- Dec 25 - [Woman, 26, slashed in neck and man, 42, wrist cut in NYC subway attack Christmas Eve](https://www.yahoo.com/news/woman-26-slashed-neck-man-153151215.html)
 - Dec 25 - [Historical mysteries solved by science in 2024](https://www.yahoo.com/news/myth-lost-prince-other-historical-130158878.html)
-- Dec 25 - [Nike's Turnaround Is Underway, but Is the Dividend Growth Stock a Buy Before 2025?](https://finance.yahoo.com/news/nikes-turnaround-underway-dividend-growth-133000190.html)
 - Dec 25 - [Russian region declares emergency situation as Black Sea oil spill fallout widens](https://www.yahoo.com/news/russian-region-declares-emergency-situation-132546321.html)
+- Dec 25 - [Kurdish militia in Syria will be buried if they do not lay down arms, Turkey's Erdogan says](https://www.yahoo.com/news/kurdish-militia-syria-buried-not-110455227.html)
+- Dec 25 - [The 'godfather of EVs' explains why China is winning the race to go electric — and why hybrids are a 'fool's errand'](https://finance.yahoo.com/news/godfather-evs-explains-why-china-105502933.html)
 <!-- feed end -->
 
 ### Onstream
