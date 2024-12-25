@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Trump made major economic promises in 2024. Global players get their say in 2025.](https://finance.yahoo.com/news/trump-made-major-economic-promises-in-2024-global-players-get-their-say-in-2025-110033296.html)
+- Dec 25 - [The 'Godfather of EVs' explains why China is winning the race to go electric — and why hybrids are a 'fool's errand'](https://finance.yahoo.com/news/godfather-evs-explains-why-china-105502933.html)
+- Dec 25 - [A doctor who says he's reversed his age by 20 years shares the 6 bare-minimum things you can do to live longer](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-080501638.html)
 - Dec 25 - [Azerbaijan Airlines plane crashes in Kazakhstan, many feared dead](https://www.yahoo.com/news/passenger-plane-crashes-kazakhstan-emergencies-071319857.html)
+- Dec 25 - [Why Palestinian forces are cracking down on Palestinian militants in the occupied West Bank](https://www.yahoo.com/news/why-palestinian-forces-cracking-down-070852826.html)
 - Dec 25 - [Turkey's soaring costs are creating a 'lost generation' of kids forced to help their families get by](https://www.yahoo.com/news/turkeys-soaring-costs-creating-lost-050238908.html)
-- Dec 25 - [Former deputy in Southern California takes own life after attempted sex with ‘teen’ arrest](https://www.yahoo.com/news/former-deputy-southern-california-takes-021420723.html)
-- Dec 25 - [Biden signs 50 bills, including 1 backed by Paris Hilton, on Christmas Eve](https://www.yahoo.com/news/biden-signs-50-bills-including-004152273.html)
 <!-- feed end -->
 
 ### Onstream
