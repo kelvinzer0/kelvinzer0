@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Syria authorities say torched 1 million captagon pills](https://www.yahoo.com/news/syria-authorities-torched-1-million-123634287.html)
+- Dec 25 - [Kurdish militia in Syria will be buried if they do not lay down arms, Turkey's Erdogan says](https://www.yahoo.com/news/kurdish-militia-syria-buried-not-110455227.html)
 - Dec 25 - [The 'Godfather of EVs' explains why China is winning the race to go electric — and why hybrids are a 'fool's errand'](https://finance.yahoo.com/news/godfather-evs-explains-why-china-105502933.html)
 - Dec 25 - [Can I just throw out those old documents in my basement? We asked accountants.](https://finance.yahoo.com/news/just-throw-those-old-documents-100545204.html)
-- Dec 25 - [Former defense official makes earth-shattering UFO revelation as unexplained drones leave millions on edge](https://www.yahoo.com/news/former-defense-official-makes-earth-090048883.html)
-- Dec 25 - [JPMorgan Says These 2 Value Stocks Are Among Its ‘Best Idea’ Picks for 2025](https://finance.yahoo.com/news/jpmorgan-says-2-value-stocks-082201577.html)
+- Dec 25 - [A doctor who says he's reversed his age by 20 years shares the 6 bare-minimum things you can do to live longer](https://www.yahoo.com/lifestyle/doctor-says-hes-reversed-age-080501638.html)
+- Dec 25 - [Azerbaijan Airlines plane crashes in Kazakhstan, many feared dead](https://www.yahoo.com/news/passenger-plane-crashes-kazakhstan-emergencies-071319857.html)
 <!-- feed end -->
 
 ### Onstream
