@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Brazil’s iconic Christ the Redeemer statue is caught in a battle between church and state](https://www.yahoo.com/news/brazil-iconic-christ-redeemer-statue-190109411.html)
+- Dec 25 - [Biden, Trump send different Christmas messages](https://www.yahoo.com/news/biden-trump-send-different-christmas-185915995.html)
+- Dec 25 - [Convicted murderer who escaped a Mississippi prison on Christmas Eve has been captured](https://www.yahoo.com/news/manhunt-underway-convicted-murderer-escaped-174138456.html)
+- Dec 25 - [Clashes between Islamists now in power in Syria and Assad's supporters leave casualties](https://www.yahoo.com/news/clashes-between-islamists-now-power-183233880.html)
 - Dec 25 - [Trump aims dig at Obama in bizarre hour-long Christmas Day Truth Social posting spree](https://www.yahoo.com/news/trump-aims-dig-obama-bizarre-171720658.html)
-- Dec 25 - [Historical mysteries solved by science in 2024](https://www.yahoo.com/news/myth-lost-prince-other-historical-130158878.html)
-- Dec 25 - [Russian region declares emergency situation as Black Sea oil spill fallout widens](https://www.yahoo.com/news/russian-region-declares-emergency-situation-132546321.html)
-- Dec 25 - [Kurdish militia in Syria will be buried if they do not lay down arms, Turkey's Erdogan says](https://www.yahoo.com/news/kurdish-militia-syria-buried-not-110455227.html)
-- Dec 25 - [The 'godfather of EVs' explains why China is winning the race to go electric — and why hybrids are a 'fool's errand'](https://finance.yahoo.com/news/godfather-evs-explains-why-china-105502933.html)
 <!-- feed end -->
 
 ### Onstream
