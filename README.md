@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Florida pizza delivery woman stabbed a pregnant customer 14 times over bad tip, police say](https://www.yahoo.com/news/florida-pizza-delivery-woman-stabbed-201529474.html)
-- Dec 26 - [A baby was found on a Colorado street Christmas morning. His parents have been arrested.](https://www.yahoo.com/news/baby-found-colorado-street-christmas-185404275.html)
-- Dec 26 - [U.S. official says early indications Azerbaijan plane was hit by Russia](https://www.yahoo.com/news/u-official-says-early-indications-184243508.html)
-- Dec 26 - ["Dire shortage": Elon Musk sparks MAGA backlash after calling for more immigrant workers](https://finance.yahoo.com/news/dire-shortage-elon-musk-sparks-180303692.html)
-- Dec 26 - [An altercation erupts at a high-level meeting of a Russia-dominated economic union](https://www.yahoo.com/news/altercation-erupts-high-level-meeting-175847334.html)
+- Dec 26 - [People injured in Azerbaijan Airlines plane crash in Kazakhstan medevaced to Baku](https://www.yahoo.com/news/people-injured-azerbaijan-airlines-plane-220855581.html)
+- Dec 26 - [Ex-Sen. Bob Menendez, citing 'emotional toll,' seeks sentencing delay in wake of wife's trial](https://www.yahoo.com/news/ex-sen-bob-menendez-citing-213549654.html)
+- Dec 26 - [Vivek Ramaswamy Dragged After Wild Rant on How American Workers Suck](https://www.yahoo.com/news/vivek-ramaswamy-dragged-wild-rant-210515949.html)
+- Dec 26 - [Mental health firm that employs Duke of Sussex branded ‘toxic train wreck’ by staff member](https://www.yahoo.com/lifestyle/mental-health-firm-employs-duke-204810077.html)
+- Dec 26 - [Who qualifies for $1,400 IRS stimulus checks? Why are they being sent? Here's what to know](https://finance.yahoo.com/news/qualifies-1-400-irs-stimulus-195554352.html)
 <!-- feed end -->
 
 ### Onstream
