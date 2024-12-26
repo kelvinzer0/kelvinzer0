@@ -60,12 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Trump picks ambassador to Panama, knocks Central American country and China 
-in Christmas messages](https://www.yahoo.com/news/trump-picks-ambassador-panama-knocks-211550958.html)
+- Dec 26 - [Taiwan defence ministry warns of 'serious impact' to security under new funding laws](https://www.yahoo.com/news/taiwan-defence-ministry-warns-serious-010851943.html)
+- Dec 26 - [Seven injured after New York taxi jumps sidewalk outside Macy’s on Christmas Day](https://www.yahoo.com/news/seven-injured-york-taxi-jumps-002936989.html)
 - Dec 25 - [Undersea power cable linking Finland and Estonia hit by outage, prompting investigation](https://www.yahoo.com/news/undersea-power-cable-linking-finland-205903143.html)
 - Dec 25 - [Trump aims dig at Obama in bizarre hour-long Christmas Day Truth Social posting spree](https://www.yahoo.com/news/trump-aims-dig-obama-bizarre-171720658.html)
-- Dec 25 - [Biden, Trump send different Christmas messages](https://www.yahoo.com/news/biden-trump-send-different-christmas-185915995.html)
-- Dec 25 - [Clashes between Islamists now in power in Syria and Assad's supporters kill 6 fighters](https://www.yahoo.com/news/clashes-between-islamists-now-power-183233880.html)
+- Dec 25 - [Azerbaijan Airlines crash sparks speculation plane ‘accidentally shot down by Russia’](https://www.yahoo.com/news/azerbaijan-airlines-crash-sparks-speculation-200517076.html)
 <!-- feed end -->
 
 ### Onstream
