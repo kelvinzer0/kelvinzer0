@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Stock market today: Dow, S&P 500, Nasdaq fall, bitcoin slumps after Christmas break](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-fall-bitcoin-slumps-after-christmas-break-143045371.html)
-- Dec 26 - [This company issued 'final notice' letters to American homeowners — despite not being a lender, investigation shows](https://finance.yahoo.com/news/company-issued-final-notice-letters-133200851.html)
-- Dec 26 - [Peyote sacred to Native Americans threatened by psychedelic renaissance and development](https://www.yahoo.com/news/peyote-sacred-native-americans-threatened-130533864.html)
-- Dec 26 - [China Stuns With Heavy Stealth Tactical Jet’s Sudden Appearance](https://www.yahoo.com/news/china-stuns-heavy-stealth-tactical-125038888.html)
-- Dec 26 - [Trump has pressed for voting changes. GOP majorities in Congress will try to make that happen](https://www.yahoo.com/news/trump-pressed-voting-changes-gop-124604499.html)
+- Dec 26 - [Magnificent Seven Stocks: Nvidia Falls From Key Level; Tesla Slides](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
+- Dec 26 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-152143199.html)
+- Dec 26 - [Stranger shoots, kills Ohio puppy before Christmas, family says](https://www.yahoo.com/news/stranger-shoots-kills-ohio-puppy-151258910.html)
+- Dec 26 - [Trump’s Christmas Day Meltdown Was Deranged—Even for Him](https://www.yahoo.com/news/trump-christmas-day-meltdown-deranged-144843707.html)
+- Dec 26 - [The 2025 Android phone I’m most looking forward to isn’t from Samsung or Google](https://www.yahoo.com/tech/2025-android-phone-m-most-144509686.html)
 <!-- feed end -->
 
 ### Onstream
