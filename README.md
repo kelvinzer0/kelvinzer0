@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Who qualifies for $1,400 IRS stimulus checks? Why are they being sent? Here's what to know](https://finance.yahoo.com/news/qualifies-1-400-irs-stimulus-195554352.html)
-- Dec 26 - [Chuck Schumer Reveals Stealth Dem Plan to Block MAGA Revolution](https://www.yahoo.com/news/chuck-schumer-reveals-stealth-dem-193621317.html)
+- Dec 26 - [Florida pizza delivery woman stabbed a pregnant customer 14 times over bad tip, police say](https://www.yahoo.com/news/florida-pizza-delivery-woman-stabbed-201529474.html)
 - Dec 26 - [A baby was found on a Colorado street Christmas morning. His parents have been arrested.](https://www.yahoo.com/news/baby-found-colorado-street-christmas-185404275.html)
-- Dec 26 - [U.S. whooping cough cases hit highest levels in a decade](https://www.yahoo.com/news/u-whooping-cough-cases-hit-185139248.html)
-- Dec 26 - [Thursday's 29% Jump Propels Rigetti's Quantum Revolution to 1,390% YTD Gains](https://finance.yahoo.com/news/thursdays-29-jump-propels-rigettis-184116139.html)
+- Dec 26 - [U.S. official says early indications Azerbaijan plane was hit by Russia](https://www.yahoo.com/news/u-official-says-early-indications-184243508.html)
+- Dec 26 - ["Dire shortage": Elon Musk sparks MAGA backlash after calling for more immigrant workers](https://finance.yahoo.com/news/dire-shortage-elon-musk-sparks-180303692.html)
+- Dec 26 - [An altercation erupts at a high-level meeting of a Russia-dominated economic union](https://www.yahoo.com/news/altercation-erupts-high-level-meeting-175847334.html)
 <!-- feed end -->
 
 ### Onstream
