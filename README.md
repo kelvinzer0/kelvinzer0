@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Magnificent Seven Stocks: Nvidia Falls From Key Level; Tesla Slides](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
+- Dec 26 - [Ukraine's military intelligence says North Korean troops suffer heavy battlefield losses](https://www.yahoo.com/news/ukraines-military-intelligence-says-north-162405308.html)
+- Dec 26 - [The bird at the center of the worst single-species mortality event in modern history isn’t recovering, scientists say](https://www.yahoo.com/news/record-heat-wave-killed-half-153746127.html)
 - Dec 26 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-152143199.html)
-- Dec 26 - [Stranger shoots, kills Ohio puppy before Christmas, family says](https://www.yahoo.com/news/stranger-shoots-kills-ohio-puppy-151258910.html)
-- Dec 26 - [Trump’s Christmas Day Meltdown Was Deranged—Even for Him](https://www.yahoo.com/news/trump-christmas-day-meltdown-deranged-144843707.html)
-- Dec 26 - [The 2025 Android phone I’m most looking forward to isn’t from Samsung or Google](https://www.yahoo.com/tech/2025-android-phone-m-most-144509686.html)
+- Dec 26 - [Early investigation finds Russian missile defences did shoot down Azerbaijan Airlines plane, reports say](https://www.yahoo.com/news/russian-missile-defence-system-shot-141627188.html)
+- Dec 26 - [Middle East latest: Israel bombs Yemen's main airport and key infrastructure](https://www.yahoo.com/news/middle-east-latest-5-palestinian-132436723.html)
 <!-- feed end -->
 
 ### Onstream
