@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Salesforce, Rivian are this strategist's top picks for 2025](https://finance.yahoo.com/video/salesforce-rivian-strategists-top-picks-180000993.html)
 - Dec 26 - [An altercation erupts at a high-level meeting of a Russia-dominated economic union](https://www.yahoo.com/news/altercation-erupts-high-level-meeting-175847334.html)
-- Dec 26 - [Fallen Syrian Dictator’s Wife Said to Be Fighting for Life](https://www.yahoo.com/news/fallen-syrian-dictator-wife-said-171755708.html)
 - Dec 26 - ["Please take care of us": Low-income Trump voters worry he'll cut benefits they rely on](https://www.yahoo.com/news/please-care-us-low-income-171716619.html)
 - Dec 26 - [Hertz Is So Desperate To Unload Tesla Inventory It's Asking Customers If They Just Want To Keep Their Rentals [UPDATE]](https://autos.yahoo.com/hertz-desperate-unload-tesla-inventory-181500366.html)
+- Dec 26 - [U.S. official says early indications Azerbaijan plane was hit by Russia](https://www.yahoo.com/news/u-official-says-early-indications-165438023.html)
+- Dec 26 - [Baby found abandoned Christmas morning in Adams County, parents arrested](https://www.yahoo.com/news/baby-found-abandoned-christmas-morning-035100114.html)
 <!-- feed end -->
 
 ### Onstream
