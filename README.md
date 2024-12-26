@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Assad loyalists kill 14 troops of Syria's new rulers](https://www.yahoo.com/news/syria-says-14-security-personnel-001014014.html)
+- Dec 26 - [Azerbaijan Airlines crash sparks speculation plane ‘accidentally shot down by Russia’](https://www.yahoo.com/news/azerbaijan-airlines-crash-sparks-speculation-200517076.html)
+- Dec 26 - [Pope opens special 'Holy Door' for Catholic Jubilee at Rome prison](https://www.yahoo.com/news/pope-opens-special-holy-door-091518759.html)
 - Dec 26 - [Teen actor Hudson Meek, who appeared in ‘Baby Driver,’ dies after falling from moving vehicle](https://www.yahoo.com/entertainment/teen-actor-hudson-meek-appeared-060346791.html)
 - Dec 26 - [China to build world's largest hydropower dam in Tibet](https://www.yahoo.com/news/china-build-worlds-largest-hydropower-050233125.html)
-- Dec 25 - [Quasar located 12 billion light-years away holds 140 trillion times Earth’s water](https://www.yahoo.com/news/quasar-located-12-billion-light-213042582.html)
-- Dec 25 - [Brazil’s iconic Christ the Redeemer statue is caught in a battle between church and state](https://www.yahoo.com/news/brazil-iconic-christ-redeemer-statue-190109411.html)
+- Dec 26 - [A survivor of the worst gang attack on Haitian journalists says colleagues were cut down by bullets](https://www.yahoo.com/news/survivor-worst-gang-attack-haitian-045317446.html)
 <!-- feed end -->
 
 ### Onstream
