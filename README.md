@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [People injured in Azerbaijan Airlines plane crash in Kazakhstan medevaced to Baku](https://www.yahoo.com/news/people-injured-azerbaijan-airlines-plane-220855581.html)
+- Dec 26 - [Mother who fought for justice in daughter's murder case involving Kennedy cousin has died](https://www.yahoo.com/news/mother-fought-justice-daughters-murder-220311172.html)
+- Dec 26 - [China Stuns With Heavy Stealth Tactical Jet’s Sudden Appearance (Updated)](https://www.yahoo.com/news/china-stuns-heavy-stealth-tactical-125038888.html)
 - Dec 26 - [Ex-Sen. Bob Menendez, citing 'emotional toll,' seeks sentencing delay in wake of wife's trial](https://www.yahoo.com/news/ex-sen-bob-menendez-citing-213549654.html)
+- Dec 26 - [Some whales live more than 100 years, smashing previous life expectancy estimates: Report](https://www.yahoo.com/news/whales-live-more-100-years-213513935.html)
 - Dec 26 - [Vivek Ramaswamy Dragged After Wild Rant on How American Workers Suck](https://www.yahoo.com/news/vivek-ramaswamy-dragged-wild-rant-210515949.html)
-- Dec 26 - [Mental health firm that employs Duke of Sussex branded ‘toxic train wreck’ by staff member](https://www.yahoo.com/lifestyle/mental-health-firm-employs-duke-204810077.html)
-- Dec 26 - [Who qualifies for $1,400 IRS stimulus checks? Why are they being sent? Here's what to know](https://finance.yahoo.com/news/qualifies-1-400-irs-stimulus-195554352.html)
 <!-- feed end -->
 
 ### Onstream
