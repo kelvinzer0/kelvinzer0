@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 26 - [Israeli strike kills 5 Palestinian journalists in Gaza, officials say](https://www.yahoo.com/news/israeli-strike-kills-5-palestinian-063428205.html)
+- Dec 26 - [Teen actor Hudson Meek, who appeared in ‘Baby Driver,’ dies after falling from moving vehicle](https://www.yahoo.com/entertainment/teen-actor-hudson-meek-appeared-060346791.html)
 - Dec 26 - [China to build world's largest hydropower dam in Tibet](https://www.yahoo.com/news/china-build-worlds-largest-hydropower-050233125.html)
 - Dec 26 - [A survivor of the worst gang attack on Haitian journalists says colleagues were cut down by bullets](https://www.yahoo.com/news/survivor-worst-gang-attack-haitian-045317446.html)
-- Dec 26 - [Trump tells 37 people with sentences commuted by Biden to ‘go to hell’ in lengthy Christmas post](https://www.yahoo.com/news/trump-tells-37-people-sentences-004838831.html)
-- Dec 25 - [Suspected DUI crash in south Las Vegas valley leaves 1 dead, 20-year-old arrested](https://www.yahoo.com/news/suspected-dui-crash-south-las-222119961.html)
-- Dec 25 - [Azerbaijan Airlines crash sparks speculation plane ‘accidentally shot down by Russia’](https://www.yahoo.com/news/azerbaijan-airlines-crash-sparks-speculation-200517076.html)
+- Dec 26 - [Seven injured after New York taxi jumps sidewalk outside Macy’s on Christmas Day](https://www.yahoo.com/news/seven-injured-york-taxi-jumps-002936989.html)
 <!-- feed end -->
 
 ### Onstream
