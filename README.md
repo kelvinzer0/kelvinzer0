@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 26 - [Azerbaijan Airlines crash sparks speculation plane ‘accidentally shot down by Russia’](https://www.yahoo.com/news/azerbaijan-airlines-crash-sparks-speculation-200517076.html)
-- Dec 26 - [Pope opens special 'Holy Door' for Catholic Jubilee at Rome prison](https://www.yahoo.com/news/pope-opens-special-holy-door-091518759.html)
 - Dec 26 - [Teen actor Hudson Meek, who appeared in ‘Baby Driver,’ dies after falling from moving vehicle](https://www.yahoo.com/entertainment/teen-actor-hudson-meek-appeared-060346791.html)
 - Dec 26 - [China to build world's largest hydropower dam in Tibet](https://www.yahoo.com/news/china-build-worlds-largest-hydropower-050233125.html)
-- Dec 26 - [A survivor of the worst gang attack on Haitian journalists says colleagues were cut down by bullets](https://www.yahoo.com/news/survivor-worst-gang-attack-haitian-045317446.html)
+- Dec 26 - [Man charged with firing gun inside a home](https://www.yahoo.com/news/man-charged-firing-gun-inside-045900259.html)
+- Dec 25 - [China banned sale of these minerals to the U.S. It matters to all of us](https://www.yahoo.com/news/china-banned-sale-minerals-u-223105622.html)
 <!-- feed end -->
 
 ### Onstream
