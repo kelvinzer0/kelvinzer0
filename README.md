@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Powerball winning numbers for Wednesday, Dec. 25. Check tickets for $115 million jackpot](https://www.yahoo.com/news/powerball-winning-numbers-wednesday-dec-013141854.html)
-- Dec 26 - [Dead body found in wheel well of United Airlines plane in Hawaii](https://www.yahoo.com/news/dead-body-found-wheel-well-012924368.html)
-- Dec 25 - [Trump aims dig at Obama in bizarre hour-long Christmas Day Truth Social posting spree](https://www.yahoo.com/news/trump-aims-dig-obama-bizarre-171720658.html)
-- Dec 25 - [Azerbaijan Airlines crash sparks speculation plane ‘accidentally shot down by Russia’](https://www.yahoo.com/news/azerbaijan-airlines-crash-sparks-speculation-200517076.html)
-- Dec 25 - [Biden, Trump send different Christmas messages](https://www.yahoo.com/news/biden-trump-send-different-christmas-185915995.html)
+- Dec 26 - [Seven injured after New York taxi jumps sidewalk outside Macy’s on Christmas Day](https://www.yahoo.com/news/seven-injured-york-taxi-jumps-002936989.html)
+- Dec 26 - [Taiwan defence ministry warns of 'serious impact' to security under new funding laws](https://www.yahoo.com/news/taiwan-defence-ministry-warns-serious-010851943.html)
+- Dec 26 - [Trump tells 37 people with sentences commuted by Biden to ‘go to hell’ in lengthy Christmas post](https://www.yahoo.com/news/trump-tells-37-people-sentences-004838831.html)
+- Dec 25 - [I-70 traffic impacted by heavy snow: ‘Best option is to stay in Denver’](https://www.yahoo.com/news/70-traffic-impacted-heavy-snow-231523961.html)
+- Dec 25 - [Suspected DUI crash in south Las Vegas valley leaves 1 dead, 20-year-old arrested](https://www.yahoo.com/news/suspected-dui-crash-south-las-222119961.html)
 <!-- feed end -->
 
 ### Onstream
