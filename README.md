@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Bird flu kills more than half the big cats at a Washington sanctuary](https://www.yahoo.com/news/bird-flu-kills-more-half-205053503.html)
-- Dec 26 - [Finland investigates latest ‘sabotage’ of Baltic Sea cables](https://www.yahoo.com/news/finland-investigates-latest-sabotage-baltic-132149152.html)
+- Dec 26 - [Stock market today: Dow, S&P 500, Nasdaq fall, bitcoin slumps after Christmas break](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-fall-bitcoin-slumps-after-christmas-break-143045371.html)
+- Dec 26 - [This company issued 'final notice' letters to American homeowners — despite not being a lender, investigation shows](https://finance.yahoo.com/news/company-issued-final-notice-letters-133200851.html)
 - Dec 26 - [Peyote sacred to Native Americans threatened by psychedelic renaissance and development](https://www.yahoo.com/news/peyote-sacred-native-americans-threatened-130533864.html)
+- Dec 26 - [China Stuns With Heavy Stealth Tactical Jet’s Sudden Appearance](https://www.yahoo.com/news/china-stuns-heavy-stealth-tactical-125038888.html)
 - Dec 26 - [Trump has pressed for voting changes. GOP majorities in Congress will try to make that happen](https://www.yahoo.com/news/trump-pressed-voting-changes-gop-124604499.html)
-- Dec 26 - ["It Will Quickly Become Apparent": Massage Therapists Are Revealing The Surprising Things They Know About Clients After Only One Session](https://www.yahoo.com/lifestyle/quickly-become-apparent-massage-therapists-123102198.html)
 <!-- feed end -->
 
 ### Onstream
