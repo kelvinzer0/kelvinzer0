@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Ukraine's military intelligence says North Korean troops suffer heavy battlefield losses](https://www.yahoo.com/news/ukraines-military-intelligence-says-north-162405308.html)
-- Dec 26 - [The bird at the center of the worst single-species mortality event in modern history isn’t recovering, scientists say](https://www.yahoo.com/news/record-heat-wave-killed-half-153746127.html)
-- Dec 26 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-152143199.html)
-- Dec 26 - [Early investigation finds Russian missile defences did shoot down Azerbaijan Airlines plane, reports say](https://www.yahoo.com/news/russian-missile-defence-system-shot-141627188.html)
-- Dec 26 - [Middle East latest: Israel bombs Yemen's main airport and key infrastructure](https://www.yahoo.com/news/middle-east-latest-5-palestinian-132436723.html)
+- Dec 26 - [Salesforce, Rivian are this strategist's top picks for 2025](https://finance.yahoo.com/video/salesforce-rivian-strategists-top-picks-180000993.html)
+- Dec 26 - [An altercation erupts at a high-level meeting of a Russia-dominated economic union](https://www.yahoo.com/news/altercation-erupts-high-level-meeting-175847334.html)
+- Dec 26 - [Fallen Syrian Dictator’s Wife Said to Be Fighting for Life](https://www.yahoo.com/news/fallen-syrian-dictator-wife-said-171755708.html)
+- Dec 26 - ["Please take care of us": Low-income Trump voters worry he'll cut benefits they rely on](https://www.yahoo.com/news/please-care-us-low-income-171716619.html)
+- Dec 26 - [Hertz Is So Desperate To Unload Tesla Inventory It's Asking Customers If They Just Want To Keep Their Rentals [UPDATE]](https://autos.yahoo.com/hertz-desperate-unload-tesla-inventory-181500366.html)
 <!-- feed end -->
 
 ### Onstream
