@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Taiwan defence ministry warns of 'serious impact' to security under new funding laws](https://www.yahoo.com/news/taiwan-defence-ministry-warns-serious-010851943.html)
+- Dec 26 - [Powerball winning numbers for Wednesday, Dec. 25. Check tickets for $115 million jackpot](https://www.yahoo.com/news/powerball-winning-numbers-wednesday-dec-013141854.html)
+- Dec 26 - [Dead body found in wheel well of United Airlines plane in Hawaii](https://www.yahoo.com/news/dead-body-found-wheel-well-012924368.html)
 - Dec 26 - [Seven injured after New York taxi jumps sidewalk outside Macy’s on Christmas Day](https://www.yahoo.com/news/seven-injured-york-taxi-jumps-002936989.html)
-- Dec 25 - [Undersea power cable linking Finland and Estonia hit by outage, prompting investigation](https://www.yahoo.com/news/undersea-power-cable-linking-finland-205903143.html)
 - Dec 25 - [Trump aims dig at Obama in bizarre hour-long Christmas Day Truth Social posting spree](https://www.yahoo.com/news/trump-aims-dig-obama-bizarre-171720658.html)
-- Dec 25 - [Azerbaijan Airlines crash sparks speculation plane ‘accidentally shot down by Russia’](https://www.yahoo.com/news/azerbaijan-airlines-crash-sparks-speculation-200517076.html)
+- Dec 25 - [Brazil’s iconic Christ the Redeemer statue is caught in a battle between church and state](https://www.yahoo.com/news/brazil-iconic-christ-redeemer-statue-190109411.html)
 <!-- feed end -->
 
 ### Onstream
