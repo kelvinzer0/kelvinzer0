@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Elon Musk Dramatically Puts MAGA Split With RFK Jr. on Display](https://www.yahoo.com/news/elon-musk-dramatically-puts-maga-125347155.html)
+- Dec 26 - [Bird flu kills more than half the big cats at a Washington sanctuary](https://www.yahoo.com/news/bird-flu-kills-more-half-205053503.html)
+- Dec 26 - [Finland investigates latest ‘sabotage’ of Baltic Sea cables](https://www.yahoo.com/news/finland-investigates-latest-sabotage-baltic-132149152.html)
+- Dec 26 - [Peyote sacred to Native Americans threatened by psychedelic renaissance and development](https://www.yahoo.com/news/peyote-sacred-native-americans-threatened-130533864.html)
 - Dec 26 - [Trump has pressed for voting changes. GOP majorities in Congress will try to make that happen](https://www.yahoo.com/news/trump-pressed-voting-changes-gop-124604499.html)
 - Dec 26 - ["It Will Quickly Become Apparent": Massage Therapists Are Revealing The Surprising Things They Know About Clients After Only One Session](https://www.yahoo.com/lifestyle/quickly-become-apparent-massage-therapists-123102198.html)
-- Dec 26 - [Azerbaijan Airlines plane was ‘likely shot down by a Russian military air defence system’](https://www.yahoo.com/news/azerbaijan-airlines-crash-sparks-speculation-200517076.html)
-- Dec 26 - [Ukraine war shows NATO's biggest problem isn't its strategy, think tank argues](https://www.yahoo.com/news/ukraine-war-shows-natos-biggest-100002640.html)
 <!-- feed end -->
 
 ### Onstream
