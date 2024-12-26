@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [An altercation erupts at a high-level meeting of a Russia-dominated economic union](https://www.yahoo.com/news/altercation-erupts-high-level-meeting-175847334.html)
-- Dec 26 - ["Please take care of us": Low-income Trump voters worry he'll cut benefits they rely on](https://www.yahoo.com/news/please-care-us-low-income-171716619.html)
-- Dec 26 - [Hertz Is So Desperate To Unload Tesla Inventory It's Asking Customers If They Just Want To Keep Their Rentals [UPDATE]](https://autos.yahoo.com/hertz-desperate-unload-tesla-inventory-181500366.html)
-- Dec 26 - [U.S. official says early indications Azerbaijan plane was hit by Russia](https://www.yahoo.com/news/u-official-says-early-indications-165438023.html)
-- Dec 26 - [Baby found abandoned Christmas morning in Adams County, parents arrested](https://www.yahoo.com/news/baby-found-abandoned-christmas-morning-035100114.html)
+- Dec 26 - [Who qualifies for $1,400 IRS stimulus checks? Why are they being sent? Here's what to know](https://finance.yahoo.com/news/qualifies-1-400-irs-stimulus-195554352.html)
+- Dec 26 - [Chuck Schumer Reveals Stealth Dem Plan to Block MAGA Revolution](https://www.yahoo.com/news/chuck-schumer-reveals-stealth-dem-193621317.html)
+- Dec 26 - [A baby was found on a Colorado street Christmas morning. His parents have been arrested.](https://www.yahoo.com/news/baby-found-colorado-street-christmas-185404275.html)
+- Dec 26 - [U.S. whooping cough cases hit highest levels in a decade](https://www.yahoo.com/news/u-whooping-cough-cases-hit-185139248.html)
+- Dec 26 - [Thursday's 29% Jump Propels Rigetti's Quantum Revolution to 1,390% YTD Gains](https://finance.yahoo.com/news/thursdays-29-jump-propels-rigettis-184116139.html)
 <!-- feed end -->
 
 ### Onstream
