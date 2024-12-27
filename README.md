@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Wealthy Boomers Will Be Passing On an Average of $3.1M: Where That Money Will Be Going](https://finance.yahoo.com/news/wealthy-boomers-passing-average-3-010101013.html)
-- Dec 27 - [These are all the Macs that are expected to launch in 2025](https://www.yahoo.com/tech/macs-expected-launch-2025-002141005.html)
+- Dec 27 - [Oxnard's legal battles with new Councilman Aaron Starr aren't over. Here's what to know](https://www.yahoo.com/news/oxnards-legal-battles-councilman-aaron-003525907.html)
 - Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
-- Dec 26 - [Inflation in Japan's capital accelerates, keeps rate hike prospects intact](https://finance.yahoo.com/news/inflation-japans-capital-accelerates-keeps-235033324.html)
 - Dec 26 - [Judge says woman accusing Jay-Z, Sean 'Diddy' Combs of raping her at age 13 can proceed anonymously](https://www.yahoo.com/news/judge-says-woman-accusing-jay-234101320.html)
+- Dec 26 - [Check Your $2 Bills — They Could Be Worth a Ton](https://finance.yahoo.com/news/check-2-bills-could-worth-153919942.html)
+- Dec 26 - [Ex-Sen. Bob Menendez, citing 'emotional toll,' seeks sentencing delay in wake of wife's trial](https://www.yahoo.com/news/ex-sen-bob-menendez-citing-213549654.html)
 <!-- feed end -->
 
 ### Onstream
