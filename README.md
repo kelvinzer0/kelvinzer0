@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Why small business owners are 'optimistic' about 2025](https://finance.yahoo.com/video/why-small-business-owners-optimistic-123039899.html)
-- Dec 27 - [BYD objects to reports of ‘slavery-like’ conditions at Brazil site, AP reports](https://www.yahoo.com/news/byd-objects-reports-slavery-conditions-115506454.html)
-- Dec 27 - [Nasa’s Parker probe phones home after ‘touching Sun’ in historic mission](https://www.yahoo.com/news/nasa-parker-probe-phones-home-115020619.html)
-- Dec 27 - [Dave Bautista says he 'lost everything' after leaving WWE — but got the 'best' money advice from 'The Undertaker'](https://finance.yahoo.com/news/dave-bautista-says-lost-everything-111500740.html)
-- Dec 27 - [Suzuki Motor former boss Osamu Suzuki, who turned the minicar maker into a global player, dies at 94](https://www.yahoo.com/news/suzuki-motor-former-boss-osamu-111301158.html)
+- Dec 27 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
+- Dec 27 - [Crypto surge: Key players reveal their strategies](https://finance.yahoo.com/video/crypto-surge-key-players-reveal-130034728.html)
+- Dec 27 - [Whether You Wear Underwear To Bed Or Sleep Commando, Doctors Say You Might Want To Rethink It — Here's Why](https://www.yahoo.com/lifestyle/whether-wear-underwear-bed-sleep-123102050.html)
+- Dec 27 - [Passengers on crashed plane say they heard at least one loud bang before it went down](https://www.yahoo.com/news/passenger-crashed-plane-says-least-120631458.html)
+- Dec 27 - [Here are 6 retirement blunders that successful American millionaires tend to avoid — how many are you guilty of?](https://finance.yahoo.com/news/6-retirement-blunders-successful-american-120000088.html)
 <!-- feed end -->
 
 ### Onstream
