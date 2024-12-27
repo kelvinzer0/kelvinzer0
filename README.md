@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Why Rigetti Computing Inc. (RGTI) Skyrocketed Yesterday](https://finance.yahoo.com/news/why-rigetti-computing-inc-rgti-143826735.html)
-- Dec 27 - [Winter weather advisory issued in much of Massachusetts over ice concerns. What to know](https://www.yahoo.com/news/winter-weather-advisory-issued-much-141447701.html)
+- Dec 27 - [MAGA Crisis Could Mean There Is No Trump Inauguration on Jan. 20](https://www.yahoo.com/news/maga-crisis-could-mean-no-154737097.html)
+- Dec 27 - [Turkey goes to war with Germany over doner kebabs](https://www.yahoo.com/news/turkey-goes-war-germany-over-151411495.html)
+- Dec 27 - [Israeli troops burn northern Gaza hospital after forcibly removing staff and patients, officials say](https://www.yahoo.com/news/israeli-troops-burn-north-gaza-134033371.html)
 - Dec 27 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
-- Dec 27 - [North Korean soldier captured by Ukraine as it says Russia is trying to hide Pyongyang's losses](https://www.yahoo.com/news/north-korean-soldier-captured-ukraine-123532880.html)
-- Dec 27 - [Whether You Wear Underwear To Bed Or Sleep Commando, Doctors Say You Might Want To Rethink It — Here's Why](https://www.yahoo.com/lifestyle/whether-wear-underwear-bed-sleep-123102050.html)
+- Dec 27 - [All-Out MAGA Civil War Engulfs Trump Already](https://www.yahoo.com/news/maga-civil-war-engulfs-trump-124439896.html)
 <!-- feed end -->
 
 ### Onstream
