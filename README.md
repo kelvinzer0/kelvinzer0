@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Serbian university students protest outside the education ministry building in Belgrade](https://www.yahoo.com/news/serbian-university-students-protest-outside-205726232.html)
-- Dec 27 - [Fractional Real Estate – Netflix Generation Invests In Real Estate For $100 Per Share](https://finance.yahoo.com/news/fractional-real-estate-netflix-generation-203031841.html)
-- Dec 27 - [Army bomb squad scrambled to ‘suspect device’ that was a speaker](https://www.yahoo.com/news/army-bomb-squad-scrambled-suspect-200402958.html)
 - Dec 27 - [Video of inmate’s fatal beating shows him handcuffed as correctional officers punch and kick him](https://www.yahoo.com/news/video-inmate-fatal-beating-shows-192314535.html)
-- Dec 27 - [Tennessee has a new execution method, 2.5 years after last scheduled execution abruptly halted](https://www.yahoo.com/news/tennessee-execution-method-2-5-185613459.html)
+- Dec 27 - [Missing dog returned to family home and rang the doorbell](https://www.yahoo.com/lifestyle/missing-dog-returned-family-home-185831309.html)
+- Dec 27 - [NYT Report Says Jensen Huang, The CEO Of Nvidia And The 10th-Richest Person In The U.S., Trying To Allegedly Avoid $8 Billion In Taxes](https://finance.yahoo.com/news/nyt-report-says-jensen-huang-183016464.html)
+- Dec 27 - [N. Korean troops slaughtered in 'hopeless' Ukraine assaults: US](https://www.yahoo.com/news/n-korean-troops-slaughtered-hopeless-170835938.html)
+- Dec 27 - [U.S. sales of hybrid and electric vehicles continue to lag behind gas-powered vehicles in 2024](https://www.yahoo.com/news/u-sales-hybrid-electric-vehicle-170240799.html)
 <!-- feed end -->
 
 ### Onstream
