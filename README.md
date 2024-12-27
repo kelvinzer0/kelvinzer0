@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Malaysian man publicly caned for Islamic crime of close proximity](https://www.yahoo.com/news/malaysian-man-publicly-caned-islamic-091758871.html)
 - Dec 27 - [North Korean soldier captured in Ukraine dies, reports say](https://www.yahoo.com/news/ukraine-captures-injured-north-korean-035328951.html)
-- Dec 27 - [Seemingly new, stealthy Chinese military aircraft seen in Chengdu](https://www.yahoo.com/news/seemingly-stealthy-chinese-military-aircraft-075949457.html)
-- Dec 27 - [Russia warns the United States on possible nuclear testing under Trump](https://www.yahoo.com/news/russia-warns-united-states-possible-061940345.html)
-- Dec 27 - [Jeff Bezos' Miami neighbor bought an empty lot for $27.5 million. Now, they're asking $200 million — and it's still vacant.](https://www.yahoo.com/lifestyle/jeff-bezos-miami-neighbor-bought-044453472.html)
-- Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
+- Dec 27 - [Meet the Newest Stock in the Nasdaq-100. It's Soared 110,600% Since Its IPO and It's Still a Buy Heading Into 2025, According to Wall Street.](https://finance.yahoo.com/news/meet-newest-stock-nasdaq-100-080200336.html)
+- Dec 27 - [Russia warns the United States against possible nuclear testing under Trump](https://www.yahoo.com/news/russia-warns-united-states-possible-061940345.html)
+- Dec 27 - [China’s Monster Type 076 Amphibious Assault Ship Seen Like Never Before At Launch Ceremony](https://www.yahoo.com/news/china-monster-type-076-amphibious-051922380.html)
 <!-- feed end -->
 
 ### Onstream
