@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Oxnard's legal battles with new Councilman Aaron Starr aren't over. Here's what to know](https://www.yahoo.com/news/oxnards-legal-battles-councilman-aaron-003525907.html)
+- Dec 27 - [Israeli strikes hit Yemen as Netanyahu fires warning](https://www.yahoo.com/news/israeli-strikes-hit-yemen-netanyahu-012649220.html)
 - Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
-- Dec 26 - [Judge says woman accusing Jay-Z, Sean 'Diddy' Combs of raping her at age 13 can proceed anonymously](https://www.yahoo.com/news/judge-says-woman-accusing-jay-234101320.html)
-- Dec 26 - [Check Your $2 Bills — They Could Be Worth a Ton](https://finance.yahoo.com/news/check-2-bills-could-worth-153919942.html)
-- Dec 26 - [Ex-Sen. Bob Menendez, citing 'emotional toll,' seeks sentencing delay in wake of wife's trial](https://www.yahoo.com/news/ex-sen-bob-menendez-citing-213549654.html)
+- Dec 26 - [Fight erupts outside North Las Vegas courtroom following boyfriend’s arraignment for allegedly killing his girlfriend](https://www.yahoo.com/news/fight-erupts-outside-las-vegas-212757697.html)
+- Dec 26 - [Vivek Ramaswamy Dragged After Wild Rant on How American Workers Suck](https://www.yahoo.com/news/vivek-ramaswamy-dragged-wild-rant-210515949.html)
+- Dec 26 - [New York to fine fossil fuel companies $75 billion under new climate law](https://finance.yahoo.com/news/york-fine-fossil-fuel-companies-200119198.html)
 <!-- feed end -->
 
 ### Onstream
