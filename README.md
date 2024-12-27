@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [NYT Report Says Jensen Huang, The CEO Of Nvidia And The 10th-Richest Person In The U.S., Trying To Allegedly Avoid $8 Billion In Taxes](https://finance.yahoo.com/news/nyt-report-says-jensen-huang-183016464.html)
-- Dec 27 - [N. Korean troops slaughtered in 'hopeless' Ukraine assaults: US](https://www.yahoo.com/news/n-korean-troops-slaughtered-hopeless-170835938.html)
-- Dec 27 - [U.S. sales of hybrid and electric vehicles continue to lag behind gas-powered vehicles in 2024](https://www.yahoo.com/news/u-sales-hybrid-electric-vehicle-170240799.html)
-- Dec 27 - [Trump says Bill Gates asked to meet in apparent message to Musk](https://www.yahoo.com/news/trump-says-bill-gates-asked-165233133.html)
-- Dec 27 - [Mexico tests cellphone app allowing migrants to send alert if they are about to be detained in US](https://www.yahoo.com/news/mexico-tests-cellphone-app-allowing-155657587.html)
+- Dec 27 - [A father failed to fly home for Christmas. Now his family have gone out to Spain to search for him](https://www.yahoo.com/news/father-failed-fly-home-christmas-193259198.html)
+- Dec 27 - [Video of inmate’s fatal beating shows him handcuffed as correctional officers punch and kick him](https://www.yahoo.com/news/video-inmate-fatal-beating-shows-192314535.html)
+- Dec 27 - [Missing dog returned to family home and rang the doorbell](https://www.yahoo.com/lifestyle/missing-dog-returned-family-home-185831309.html)
+- Dec 27 - [Major port strike could impact U.S. economy](https://www.yahoo.com/news/major-port-strike-could-impact-185828366.html)
+- Dec 27 - [Tennessee has a new execution method, 2.5 years after last scheduled execution abruptly halted](https://www.yahoo.com/news/tennessee-execution-method-2-5-185613459.html)
 <!-- feed end -->
 
 ### Onstream
