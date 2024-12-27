@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Ukraine captures injured North Korean soldier, says Seoul](https://www.yahoo.com/news/ukraine-captures-injured-north-korean-035328951.html)
+- Dec 27 - [North Korean soldier captured in Ukraine dies, reports say](https://www.yahoo.com/news/ukraine-captures-injured-north-korean-035328951.html)
 - Dec 27 - [Seemingly new, stealthy Chinese military aircraft seen in Chengdu](https://www.yahoo.com/news/seemingly-stealthy-chinese-military-aircraft-075949457.html)
 - Dec 27 - [Russia warns the United States on possible nuclear testing under Trump](https://www.yahoo.com/news/russia-warns-united-states-possible-061940345.html)
 - Dec 27 - [Jeff Bezos' Miami neighbor bought an empty lot for $27.5 million. Now, they're asking $200 million — and it's still vacant.](https://www.yahoo.com/lifestyle/jeff-bezos-miami-neighbor-bought-044453472.html)
-- Dec 27 - [China probes personal disputes after mass killings. Many fear further infringement on freedoms](https://www.yahoo.com/news/china-probes-personal-disputes-mass-021210126.html)
+- Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
 <!-- feed end -->
 
 ### Onstream
