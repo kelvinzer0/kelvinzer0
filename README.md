@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Drivers should expect rain, slower drive times on highways this weekend](https://www.yahoo.com/news/drivers-expect-rain-slower-drive-101230839.html)
+- Dec 27 - [Dear Democrats: I survived the Biden administration. You'll survive Trump. | Opinion](https://www.yahoo.com/news/dear-democrats-survived-biden-administration-100136117.html)
+- Dec 27 - [AP Top Stories December 27 A](https://www.yahoo.com/news/ap-top-stories-december-27-095659861.html)
+- Dec 27 - [Can NJ homebuyers feel more confident in 2025? What experts predict for the market](https://finance.yahoo.com/news/nj-homebuyers-feel-more-confident-092625131.html)
 - Dec 27 - [Malaysian man publicly caned for Islamic crime of close proximity](https://www.yahoo.com/news/malaysian-man-publicly-caned-islamic-091758871.html)
-- Dec 27 - [North Korean soldier captured in Ukraine dies, reports say](https://www.yahoo.com/news/ukraine-captures-injured-north-korean-035328951.html)
-- Dec 27 - [Meet the Newest Stock in the Nasdaq-100. It's Soared 110,600% Since Its IPO and It's Still a Buy Heading Into 2025, According to Wall Street.](https://finance.yahoo.com/news/meet-newest-stock-nasdaq-100-080200336.html)
-- Dec 27 - [Russia warns the United States against possible nuclear testing under Trump](https://www.yahoo.com/news/russia-warns-united-states-possible-061940345.html)
-- Dec 27 - [China’s Monster Type 076 Amphibious Assault Ship Seen Like Never Before At Launch Ceremony](https://www.yahoo.com/news/china-monster-type-076-amphibious-051922380.html)
 <!-- feed end -->
 
 ### Onstream
