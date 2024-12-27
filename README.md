@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - ['Significant' tree fossil find at Devon cove](https://www.yahoo.com/news/significant-tree-fossil-devon-cove-061919671.html)
 - Dec 27 - [Ukraine captures injured North Korean soldier, says Seoul](https://www.yahoo.com/news/ukraine-captures-injured-north-korean-035328951.html)
-- Dec 27 - [Severe weather hits Texas, Pacific Northwest with flash flooding, power outages](https://www.yahoo.com/news/severe-weather-hits-texas-pacific-003527869.html)
-- Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
-- Dec 26 - [Judge says woman accusing Jay-Z, Sean 'Diddy' Combs of raping her at age 13 can proceed anonymously](https://www.yahoo.com/news/judge-says-woman-accusing-jay-234101320.html)
+- Dec 27 - [Seemingly new, stealthy Chinese military aircraft seen in Chengdu](https://www.yahoo.com/news/seemingly-stealthy-chinese-military-aircraft-075949457.html)
+- Dec 27 - [Russia warns the United States on possible nuclear testing under Trump](https://www.yahoo.com/news/russia-warns-united-states-possible-061940345.html)
+- Dec 27 - [Jeff Bezos' Miami neighbor bought an empty lot for $27.5 million. Now, they're asking $200 million — and it's still vacant.](https://www.yahoo.com/lifestyle/jeff-bezos-miami-neighbor-bought-044453472.html)
+- Dec 27 - [China probes personal disputes after mass killings. Many fear further infringement on freedoms](https://www.yahoo.com/news/china-probes-personal-disputes-mass-021210126.html)
 <!-- feed end -->
 
 ### Onstream
