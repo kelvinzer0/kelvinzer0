@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Mayor Adams clamps down on overtime fraud for city uniform services following NYPD sex-for-OT scandal](https://www.yahoo.com/news/mayor-adams-clamps-down-overtime-162300251.html)
-- Dec 27 - [Relatives of Bashar Assad arrested as they tried to fly out of Lebanon, officials say](https://www.yahoo.com/news/relatives-bashar-assad-arrested-tried-155943610.html)
-- Dec 27 - [MAGA Crisis Could Mean There Is No Trump Inauguration on Jan. 20](https://www.yahoo.com/news/maga-crisis-could-mean-no-154737097.html)
-- Dec 27 - [Ukraine captures North Korean soldier for first time – but he dies hours later](https://www.yahoo.com/news/ukraine-captures-north-korean-soldier-143417520.html)
-- Dec 27 - ['Willing to take that risk': Republicans want Trump to have vast control over government spending](https://www.yahoo.com/news/willing-risk-republicans-want-trump-132001940.html)
+- Dec 27 - [Watch: Tiger shark hunts inches from beach in 'on-your-toes' moment](https://www.yahoo.com/lifestyle/watch-tiger-shark-hunts-inches-172501023.html)
+- Dec 27 - [N. Korean troops slaughtered in 'hopeless' Ukraine assaults: US](https://www.yahoo.com/news/n-korean-troops-slaughtered-hopeless-170835938.html)
+- Dec 27 - [U.S. sales of hybrid and electric vehicles continue to lag behind gas-powered vehicles in 2024](https://www.yahoo.com/news/u-sales-hybrid-electric-vehicle-170240799.html)
+- Dec 27 - [Trump says Bill Gates asked to meet in apparent message to Musk](https://www.yahoo.com/news/trump-says-bill-gates-asked-165233133.html)
+- Dec 27 - [Jax Beach Nordstrom Rack shoplifting suspect sought](https://www.yahoo.com/news/jax-beach-nordstrom-rack-shoplifting-163435808.html)
 <!-- feed end -->
 
 ### Onstream
