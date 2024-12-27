@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Watch: Tiger shark hunts inches from beach in 'on-your-toes' moment](https://www.yahoo.com/lifestyle/watch-tiger-shark-hunts-inches-172501023.html)
+- Dec 27 - [NYT Report Says Jensen Huang, The CEO Of Nvidia And The 10th-Richest Person In The U.S., Trying To Allegedly Avoid $8 Billion In Taxes](https://finance.yahoo.com/news/nyt-report-says-jensen-huang-183016464.html)
 - Dec 27 - [N. Korean troops slaughtered in 'hopeless' Ukraine assaults: US](https://www.yahoo.com/news/n-korean-troops-slaughtered-hopeless-170835938.html)
 - Dec 27 - [U.S. sales of hybrid and electric vehicles continue to lag behind gas-powered vehicles in 2024](https://www.yahoo.com/news/u-sales-hybrid-electric-vehicle-170240799.html)
 - Dec 27 - [Trump says Bill Gates asked to meet in apparent message to Musk](https://www.yahoo.com/news/trump-says-bill-gates-asked-165233133.html)
-- Dec 27 - [Jax Beach Nordstrom Rack shoplifting suspect sought](https://www.yahoo.com/news/jax-beach-nordstrom-rack-shoplifting-163435808.html)
+- Dec 27 - [Mexico tests cellphone app allowing migrants to send alert if they are about to be detained in US](https://www.yahoo.com/news/mexico-tests-cellphone-app-allowing-155657587.html)
 <!-- feed end -->
 
 ### Onstream
