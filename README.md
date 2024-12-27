@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Mayor Adams clamps down on overtime fraud for city uniform services following NYPD sex-for-OT scandal](https://www.yahoo.com/news/mayor-adams-clamps-down-overtime-162300251.html)
+- Dec 27 - [Relatives of Bashar Assad arrested as they tried to fly out of Lebanon, officials say](https://www.yahoo.com/news/relatives-bashar-assad-arrested-tried-155943610.html)
 - Dec 27 - [MAGA Crisis Could Mean There Is No Trump Inauguration on Jan. 20](https://www.yahoo.com/news/maga-crisis-could-mean-no-154737097.html)
-- Dec 27 - [Turkey goes to war with Germany over doner kebabs](https://www.yahoo.com/news/turkey-goes-war-germany-over-151411495.html)
-- Dec 27 - [Israeli troops burn northern Gaza hospital after forcibly removing staff and patients, officials say](https://www.yahoo.com/news/israeli-troops-burn-north-gaza-134033371.html)
-- Dec 27 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
-- Dec 27 - [All-Out MAGA Civil War Engulfs Trump Already](https://www.yahoo.com/news/maga-civil-war-engulfs-trump-124439896.html)
+- Dec 27 - [Ukraine captures North Korean soldier for first time – but he dies hours later](https://www.yahoo.com/news/ukraine-captures-north-korean-soldier-143417520.html)
+- Dec 27 - ['Willing to take that risk': Republicans want Trump to have vast control over government spending](https://www.yahoo.com/news/willing-risk-republicans-want-trump-132001940.html)
 <!-- feed end -->
 
 ### Onstream
