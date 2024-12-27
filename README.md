@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [China probes personal disputes after mass killings. Many fear further infringement on freedoms](https://www.yahoo.com/news/china-probes-personal-disputes-mass-021210126.html)
-- Dec 27 - [Israeli strikes hit Yemen as Netanyahu fires warning](https://www.yahoo.com/news/israeli-strikes-hit-yemen-netanyahu-012649220.html)
-- Dec 27 - [‘It’s coming down’: Portland house on edge of hill above another home after landslide](https://www.yahoo.com/news/coming-down-portland-house-edge-005720365.html)
+- Dec 27 - [Ukraine captures injured North Korean soldier, says Seoul](https://www.yahoo.com/news/ukraine-captures-injured-north-korean-035328951.html)
+- Dec 27 - [Brazil says workers at China's BYD site are victims of human trafficking](https://www.yahoo.com/news/brazilian-authorities-workers-byd-construction-001821193.html)
 - Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
 - Dec 26 - [Judge says woman accusing Jay-Z, Sean 'Diddy' Combs of raping her at age 13 can proceed anonymously](https://www.yahoo.com/news/judge-says-woman-accusing-jay-234101320.html)
+- Dec 26 - [Elon Musk's Weight Loss Transformation Divides Fans As He Admits To Using Ozempic-Like Drug](https://www.yahoo.com/lifestyle/elon-musks-weight-loss-transformation-223025693.html)
 <!-- feed end -->
 
 ### Onstream
