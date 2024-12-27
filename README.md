@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Video of inmate’s fatal beating shows him handcuffed as correctional officers punch and kick him](https://www.yahoo.com/news/video-inmate-fatal-beating-shows-192314535.html)
-- Dec 27 - [Missing dog returned to family home and rang the doorbell](https://www.yahoo.com/lifestyle/missing-dog-returned-family-home-185831309.html)
-- Dec 27 - [NYT Report Says Jensen Huang, The CEO Of Nvidia And The 10th-Richest Person In The U.S., Trying To Allegedly Avoid $8 Billion In Taxes](https://finance.yahoo.com/news/nyt-report-says-jensen-huang-183016464.html)
-- Dec 27 - [N. Korean troops slaughtered in 'hopeless' Ukraine assaults: US](https://www.yahoo.com/news/n-korean-troops-slaughtered-hopeless-170835938.html)
-- Dec 27 - [U.S. sales of hybrid and electric vehicles continue to lag behind gas-powered vehicles in 2024](https://www.yahoo.com/news/u-sales-hybrid-electric-vehicle-170240799.html)
+- Dec 27 - [Ex-NYPD chief admits to sex with subordinate, but denies he demanded it in exchange for overtime](https://www.yahoo.com/news/ex-nypd-chief-admits-sex-224642318.html)
+- Dec 27 - [Great White Sharks Scared From Their Habitat by Just 2 Predators](https://www.yahoo.com/news/great-white-sharks-scared-habitat-223034869.html)
+- Dec 27 - [Man charged in double murder investigation](https://www.yahoo.com/news/man-charged-double-murder-investigation-212825064.html)
+- Dec 27 - [Russian-Linked Oil Tanker Suspected Of Sabotage Was Brimming With Spy Equipment: Report](https://www.yahoo.com/news/russian-linked-oil-tanker-suspected-212716319.html)
+- Dec 27 - [Costco is pushing back — hard — against the anti-DEI movement](https://finance.yahoo.com/news/costco-pushing-back-hard-against-201119769.html)
 <!-- feed end -->
 
 ### Onstream
