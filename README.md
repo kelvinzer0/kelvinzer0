@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - ['Significant' tree fossil find at Devon cove](https://www.yahoo.com/news/significant-tree-fossil-devon-cove-061919671.html)
 - Dec 27 - [Ukraine captures injured North Korean soldier, says Seoul](https://www.yahoo.com/news/ukraine-captures-injured-north-korean-035328951.html)
-- Dec 27 - [I Befriended A Man On Death Row. Here's What He Taught Me Before He Was Put To Death.](https://www.yahoo.com/news/befriended-man-death-row-heres-023102948.html)
-- Dec 27 - [China probes personal disputes after mass killings. Many fear further infringement on freedoms](https://www.yahoo.com/news/china-probes-personal-disputes-mass-021210126.html)
+- Dec 27 - [Severe weather hits Texas, Pacific Northwest with flash flooding, power outages](https://www.yahoo.com/news/severe-weather-hits-texas-pacific-003527869.html)
 - Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
 - Dec 26 - [Judge says woman accusing Jay-Z, Sean 'Diddy' Combs of raping her at age 13 can proceed anonymously](https://www.yahoo.com/news/judge-says-woman-accusing-jay-234101320.html)
 <!-- feed end -->
