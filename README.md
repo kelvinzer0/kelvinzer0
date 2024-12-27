@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [A father failed to fly home for Christmas. Now his family have gone out to Spain to search for him](https://www.yahoo.com/news/father-failed-fly-home-christmas-193259198.html)
+- Dec 27 - [Serbian university students protest outside the education ministry building in Belgrade](https://www.yahoo.com/news/serbian-university-students-protest-outside-205726232.html)
+- Dec 27 - [Fractional Real Estate – Netflix Generation Invests In Real Estate For $100 Per Share](https://finance.yahoo.com/news/fractional-real-estate-netflix-generation-203031841.html)
+- Dec 27 - [Army bomb squad scrambled to ‘suspect device’ that was a speaker](https://www.yahoo.com/news/army-bomb-squad-scrambled-suspect-200402958.html)
 - Dec 27 - [Video of inmate’s fatal beating shows him handcuffed as correctional officers punch and kick him](https://www.yahoo.com/news/video-inmate-fatal-beating-shows-192314535.html)
-- Dec 27 - [Missing dog returned to family home and rang the doorbell](https://www.yahoo.com/lifestyle/missing-dog-returned-family-home-185831309.html)
-- Dec 27 - [Major port strike could impact U.S. economy](https://www.yahoo.com/news/major-port-strike-could-impact-185828366.html)
 - Dec 27 - [Tennessee has a new execution method, 2.5 years after last scheduled execution abruptly halted](https://www.yahoo.com/news/tennessee-execution-method-2-5-185613459.html)
 <!-- feed end -->
 
