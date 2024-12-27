@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Drivers should expect rain, slower drive times on highways this weekend](https://www.yahoo.com/news/drivers-expect-rain-slower-drive-101230839.html)
-- Dec 27 - [Dear Democrats: I survived the Biden administration. You'll survive Trump. | Opinion](https://www.yahoo.com/news/dear-democrats-survived-biden-administration-100136117.html)
-- Dec 27 - [AP Top Stories December 27 A](https://www.yahoo.com/news/ap-top-stories-december-27-095659861.html)
-- Dec 27 - [Can NJ homebuyers feel more confident in 2025? What experts predict for the market](https://finance.yahoo.com/news/nj-homebuyers-feel-more-confident-092625131.html)
-- Dec 27 - [Malaysian man publicly caned for Islamic crime of close proximity](https://www.yahoo.com/news/malaysian-man-publicly-caned-islamic-091758871.html)
+- Dec 27 - [Why small business owners are 'optimistic' about 2025](https://finance.yahoo.com/video/why-small-business-owners-optimistic-123039899.html)
+- Dec 27 - [BYD objects to reports of ‘slavery-like’ conditions at Brazil site, AP reports](https://www.yahoo.com/news/byd-objects-reports-slavery-conditions-115506454.html)
+- Dec 27 - [Nasa’s Parker probe phones home after ‘touching Sun’ in historic mission](https://www.yahoo.com/news/nasa-parker-probe-phones-home-115020619.html)
+- Dec 27 - [Dave Bautista says he 'lost everything' after leaving WWE — but got the 'best' money advice from 'The Undertaker'](https://finance.yahoo.com/news/dave-bautista-says-lost-everything-111500740.html)
+- Dec 27 - [Suzuki Motor former boss Osamu Suzuki, who turned the minicar maker into a global player, dies at 94](https://www.yahoo.com/news/suzuki-motor-former-boss-osamu-111301158.html)
 <!-- feed end -->
 
 ### Onstream
