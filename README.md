@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Why Rigetti Computing Inc. (RGTI) Skyrocketed Yesterday](https://finance.yahoo.com/news/why-rigetti-computing-inc-rgti-143826735.html)
+- Dec 27 - [Winter weather advisory issued in much of Massachusetts over ice concerns. What to know](https://www.yahoo.com/news/winter-weather-advisory-issued-much-141447701.html)
 - Dec 27 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://www.yahoo.com/news/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
 - Dec 27 - [North Korean soldier captured by Ukraine as it says Russia is trying to hide Pyongyang's losses](https://www.yahoo.com/news/north-korean-soldier-captured-ukraine-123532880.html)
 - Dec 27 - [Whether You Wear Underwear To Bed Or Sleep Commando, Doctors Say You Might Want To Rethink It — Here's Why](https://www.yahoo.com/lifestyle/whether-wear-underwear-bed-sleep-123102050.html)
-- Dec 27 - [Brazil says workers at EV maker BYD's site are trafficking victims](https://www.yahoo.com/news/brazil-says-workers-ev-maker-115345814.html)
-- Dec 27 - [This ETF Is Approaching Correction Territory -- and Could Be One of the Best Investment Opportunities of 2025](https://finance.yahoo.com/news/etf-approaching-correction-territory-could-112200375.html)
 <!-- feed end -->
 
 ### Onstream
