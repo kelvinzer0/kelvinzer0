@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [China probes personal disputes after mass killings. Many fear further infringement on freedoms](https://www.yahoo.com/news/china-probes-personal-disputes-mass-021210126.html)
 - Dec 27 - [Israeli strikes hit Yemen as Netanyahu fires warning](https://www.yahoo.com/news/israeli-strikes-hit-yemen-netanyahu-012649220.html)
+- Dec 27 - [‘It’s coming down’: Portland house on edge of hill above another home after landslide](https://www.yahoo.com/news/coming-down-portland-house-edge-005720365.html)
 - Dec 26 - [Richard Parsons, prominent Black executive who led Time Warner and Citigroup, dies at 76](https://www.yahoo.com/news/richard-parsons-prominent-black-executive-235646303.html)
-- Dec 26 - [Fight erupts outside North Las Vegas courtroom following boyfriend’s arraignment for allegedly killing his girlfriend](https://www.yahoo.com/news/fight-erupts-outside-las-vegas-212757697.html)
-- Dec 26 - [Vivek Ramaswamy Dragged After Wild Rant on How American Workers Suck](https://www.yahoo.com/news/vivek-ramaswamy-dragged-wild-rant-210515949.html)
-- Dec 26 - [New York to fine fossil fuel companies $75 billion under new climate law](https://finance.yahoo.com/news/york-fine-fossil-fuel-companies-200119198.html)
+- Dec 26 - [Judge says woman accusing Jay-Z, Sean 'Diddy' Combs of raping her at age 13 can proceed anonymously](https://www.yahoo.com/news/judge-says-woman-accusing-jay-234101320.html)
 <!-- feed end -->
 
 ### Onstream
