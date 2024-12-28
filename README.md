@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 28 - [Musk says ‘hateful unrepentant racists’ must be removed from Republican Party as visa feud deepens](https://www.yahoo.com/news/musk-says-hateful-unrepentant-racists-022558432.html)
-- Dec 28 - [Mega Millions winning numbers for Dec. 27 lottery drawing: Jackpot balloons to $1.22 billion](https://www.yahoo.com/news/mega-millions-winning-numbers-dec-020119105.html)
+- Dec 28 - [Warren Buffett's Berkshire Hathaway is buying up shares of internet domain provider VeriSign](https://finance.yahoo.com/news/warren-buffetts-berkshire-hathaway-buying-013003731.html)
 - Dec 28 - [Man accused of attacking TV reporter, saying 'This is Trump's America now'](https://www.yahoo.com/news/man-accused-attacking-tv-reporter-011834933.html)
-- Dec 27 - [Oklahoma AG dismisses assault charge against officer who slammed 71-year-old man to the ground](https://www.yahoo.com/news/oklahoma-ag-dismisses-assault-charge-225621080.html)
-- Dec 27 - [Great White Sharks Scared From Their Habitat by Just 2 Predators](https://www.yahoo.com/news/great-white-sharks-scared-habitat-223034869.html)
+- Dec 28 - [Battle-Scarred Johnson Issued Ultimatum: ‘Start Taking Extraordinary Measures’](https://www.yahoo.com/news/battle-scarred-johnson-issued-ultimatum-010247845.html)
+- Dec 28 - [Texas man accused of vandalizing Leavenworth’s Gazebo Park](https://www.yahoo.com/news/texas-man-accused-vandalizing-leavenworth-001513452.html)
 <!-- feed end -->
 
 ### Onstream
