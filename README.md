@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [I'm inheriting my elderly parents’ $680K portfolio managed by an adviser with a 1.75% fee. Should I fire him?](https://finance.yahoo.com/news/im-inheriting-elderly-parents-680k-122200143.html)
+- Dec 28 - [North Korean soldiers kill themselves to avoid capture in Ukraine, U.S. says](https://www.yahoo.com/news/north-korean-soldiers-kill-themselves-134254142.html)
+- Dec 28 - [Putin apologizes for 'tragic incident' but stops short of saying Azerbaijani plane was shot down](https://www.yahoo.com/news/putin-apologizes-azerbaijani-leader-tragic-130939088.html)
 - Dec 28 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-115102868.html)
-- Dec 28 - [Should You Buy SoFi Technologies Stock While It's Below $20?](https://finance.yahoo.com/news/buy-sofi-technologies-stock-while-102500863.html)
+- Dec 28 - [3 Things the Middle Class Won’t Be Able To Afford If Trump Imposes Tariffs in 2025](https://finance.yahoo.com/news/3-things-middle-class-won-130037887.html)
 - Dec 28 - [8 Words From President-Elect Donald Trump That Can Change Social Security Forever](https://finance.yahoo.com/news/8-words-president-elect-donald-084400447.html)
-- Dec 28 - [Warren Buffett Sells Apple Stock and Buys a Restaurant Stock Up 3,100% Since Its IPO](https://finance.yahoo.com/news/warren-buffett-sells-apple-stock-083000181.html)
 <!-- feed end -->
 
 ### Onstream
