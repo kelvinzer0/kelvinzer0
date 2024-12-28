@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [MAGA skilled worker visa battle ‘brings out ugly side’ of MAGA coalition: Former GOP advisor](https://www.yahoo.com/news/maga-skilled-worker-visa-battle-204458534.html)
+- Dec 28 - [Brightline train collides with fire truck in downtown Delray Beach, injuring 15](https://www.yahoo.com/news/brightline-train-collides-fire-truck-201821182.html)
+- Dec 28 - [Nasty norovirus is back in full force with US cases of the stomach virus surging](https://www.yahoo.com/news/nasty-norovirus-back-full-force-201537402.html)
 - Dec 28 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
 - Dec 28 - [Syria's embassy in Lebanon suspends services as Lebanon hands over former Syrian army officers](https://www.yahoo.com/news/syrias-embassy-lebanon-suspends-services-192400921.html)
-- Dec 28 - [Trump Backs H-1B Visa Program After Elon Musk Vows ‘War’ During Fiery Online MAGA Debate](https://www.yahoo.com/news/elon-musk-vows-war-defense-190919100.html)
-- Dec 28 - [Republicans gain temporary control of Minnesota House after Democrat decides not to appeal ruling](https://www.yahoo.com/news/republicans-gain-temporary-control-minnesota-182621438.html)
-- Dec 28 - [‘Unimaginable’: Rutland firefighter’s wife, newborn twins pass away days after medical emergency](https://www.yahoo.com/news/unimaginable-rutland-firefighter-wife-newborn-162448072.html)
 <!-- feed end -->
 
 ### Onstream
