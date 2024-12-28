@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [Mayville State University Old Main renovation project moving forward among other projects and enrollment rise](https://www.yahoo.com/news/mayville-state-university-old-main-153200715.html)
+- Dec 28 - [Putin apologizes for Azerbaijan airlines plane crash but stops short of taking responsibility](https://www.yahoo.com/news/putin-apologizes-azerbaijan-airlines-plane-155713945.html)
+- Dec 28 - [Russian tanker tugged to shore for suspected Baltic Sea sabotage was ‘loaded with spy equipment’](https://www.yahoo.com/news/russian-tanker-tugged-shore-suspected-153703520.html)
 - Dec 28 - [Man wanted by the FBI for 2 separate Atlanta murders arrested](https://www.yahoo.com/news/man-wanted-fbi-2-separate-152944097.html)
-- Dec 28 - [Lively-Baldoni Conflict Takes Another Turn As Director “Prepares To Fight Back With Counter-Suit;” report](https://www.yahoo.com/entertainment/lively-baldoni-conflict-takes-another-134748424.html)
 - Dec 28 - [North Korean soldiers kill themselves to avoid capture in Ukraine, U.S. says](https://www.yahoo.com/news/north-korean-soldiers-kill-themselves-134254142.html)
-- Dec 28 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-115102868.html)
+- Dec 28 - [I'm inheriting my elderly parents’ $680K portfolio managed by an adviser with a 1.75% fee. Should I fire him?](https://finance.yahoo.com/news/im-inheriting-elderly-parents-680k-122200143.html)
 <!-- feed end -->
 
 ### Onstream
