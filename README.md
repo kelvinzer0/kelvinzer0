@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [Battle-Scarred Johnson Issued Ultimatum: ‘Start Taking Extraordinary Measures’](https://www.yahoo.com/news/battle-scarred-johnson-issued-ultimatum-010247845.html)
-- Dec 28 - [Bodycam footage shows correctional officers fatally beating handcuffed inmate](https://www.yahoo.com/news/bodycam-footage-shows-correctional-officers-230707392.html)
+- Dec 27 - [Video of inmate’s fatal beating shows him handcuffed as correctional officers punch and kick him](https://www.yahoo.com/news/video-inmate-fatal-beating-shows-192314535.html)
 - Dec 27 - [Judge signals that contempt hearing for Rudy Giuliani over his assets might not go well for him](https://www.yahoo.com/news/judge-signals-contempt-hearing-rudy-231119076.html)
 - Dec 27 - [Houston man being robbed by children on Christmas shoots them, injuring 3: Police](https://www.yahoo.com/news/houston-man-being-robbed-children-231030859.html)
+- Dec 27 - [Oklahoma AG dismisses assault charge against officer who slammed 71-year-old man to the ground](https://www.yahoo.com/news/oklahoma-ag-dismisses-assault-charge-225621080.html)
 - Dec 27 - [Great White Sharks Scared From Their Habitat by Just 2 Predators](https://www.yahoo.com/news/great-white-sharks-scared-habitat-223034869.html)
 <!-- feed end -->
 
