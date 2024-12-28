@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Mayville State University Old Main renovation project moving forward among other projects and enrollment rise](https://www.yahoo.com/news/mayville-state-university-old-main-153200715.html)
+- Dec 28 - [Man wanted by the FBI for 2 separate Atlanta murders arrested](https://www.yahoo.com/news/man-wanted-fbi-2-separate-152944097.html)
+- Dec 28 - [Lively-Baldoni Conflict Takes Another Turn As Director “Prepares To Fight Back With Counter-Suit;” report](https://www.yahoo.com/entertainment/lively-baldoni-conflict-takes-another-134748424.html)
 - Dec 28 - [North Korean soldiers kill themselves to avoid capture in Ukraine, U.S. says](https://www.yahoo.com/news/north-korean-soldiers-kill-themselves-134254142.html)
-- Dec 28 - [Putin apologizes for 'tragic incident' but stops short of saying Azerbaijani plane was shot down](https://www.yahoo.com/news/putin-apologizes-azerbaijani-leader-tragic-130939088.html)
 - Dec 28 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-115102868.html)
-- Dec 28 - [3 Things the Middle Class Won’t Be Able To Afford If Trump Imposes Tariffs in 2025](https://finance.yahoo.com/news/3-things-middle-class-won-130037887.html)
-- Dec 28 - [8 Words From President-Elect Donald Trump That Can Change Social Security Forever](https://finance.yahoo.com/news/8-words-president-elect-donald-084400447.html)
 <!-- feed end -->
 
 ### Onstream
