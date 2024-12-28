@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [What happens to federal employees in a government shutdown? It depends. | Opinion](https://www.yahoo.com/news/happens-federal-employees-government-shutdown-110226456.html)
+- Dec 28 - [What to do with a natural Christmas tree in Erie County when you're ready to take it down](https://www.yahoo.com/lifestyle/natural-christmas-tree-erie-county-120128135.html)
+- Dec 28 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-115102868.html)
 - Dec 28 - [8 Words From President-Elect Donald Trump That Can Change Social Security Forever](https://finance.yahoo.com/news/8-words-president-elect-donald-084400447.html)
 - Dec 28 - [Winning ticket for $1.22 billion lottery jackpot sold in California, Mega Millions says](https://www.yahoo.com/news/mega-millions-draws-numbers-1-052516246.html)
 - Dec 28 - [My Peanut-Sized Brain Can't Process These 17 Mind-Blowing Photos From The 1920s](https://www.yahoo.com/lifestyle/17-photos-things-1920s-wildy-033104354.html)
-- Dec 28 - [Musk says ‘hateful unrepentant racists’ must be removed from Republican Party as visa feud deepens](https://www.yahoo.com/news/musk-says-hateful-unrepentant-racists-022558432.html)
 <!-- feed end -->
 
 ### Onstream
