@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 28 - [Winning ticket for $1.22 billion lottery jackpot sold in California, Mega Millions says](https://www.yahoo.com/news/mega-millions-draws-numbers-1-052516246.html)
-- Dec 28 - [Bloodied Ukrainian troops risk losing more hard-won land in Kursk to Russia](https://www.yahoo.com/news/bloodied-ukrainian-troops-risk-losing-050054635.html)
-- Dec 28 - [Musk says ‘hateful unrepentant racists’ must be removed from Republican Party as visa feud deepens](https://www.yahoo.com/news/musk-says-hateful-unrepentant-racists-022558432.html)
+- Dec 28 - [Man accused of attacking TV reporter, saying 'This is Trump's America now'](https://www.yahoo.com/news/man-accused-attacking-tv-reporter-011834933.html)
 - Dec 28 - [Battle-Scarred Johnson Issued Ultimatum: ‘Start Taking Extraordinary Measures’](https://www.yahoo.com/news/battle-scarred-johnson-issued-ultimatum-010247845.html)
 - Dec 27 - [Fort Worth police charge 2 with capital murder in Thanksgiving shootout](https://www.yahoo.com/news/fort-worth-police-charge-2-235702425.html)
+- Dec 27 - [Great White Sharks Scared From Their Habitat by Just 2 Predators](https://www.yahoo.com/news/great-white-sharks-scared-habitat-223034869.html)
 <!-- feed end -->
 
 ### Onstream
