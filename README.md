@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [What to do with a natural Christmas tree in Erie County when you're ready to take it down](https://www.yahoo.com/lifestyle/natural-christmas-tree-erie-county-120128135.html)
+- Dec 28 - [I'm inheriting my elderly parents’ $680K portfolio managed by an adviser with a 1.75% fee. Should I fire him?](https://finance.yahoo.com/news/im-inheriting-elderly-parents-680k-122200143.html)
 - Dec 28 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-115102868.html)
+- Dec 28 - [Should You Buy SoFi Technologies Stock While It's Below $20?](https://finance.yahoo.com/news/buy-sofi-technologies-stock-while-102500863.html)
 - Dec 28 - [8 Words From President-Elect Donald Trump That Can Change Social Security Forever](https://finance.yahoo.com/news/8-words-president-elect-donald-084400447.html)
-- Dec 28 - [Winning ticket for $1.22 billion lottery jackpot sold in California, Mega Millions says](https://www.yahoo.com/news/mega-millions-draws-numbers-1-052516246.html)
-- Dec 28 - [My Peanut-Sized Brain Can't Process These 17 Mind-Blowing Photos From The 1920s](https://www.yahoo.com/lifestyle/17-photos-things-1920s-wildy-033104354.html)
+- Dec 28 - [Warren Buffett Sells Apple Stock and Buys a Restaurant Stock Up 3,100% Since Its IPO](https://finance.yahoo.com/news/warren-buffett-sells-apple-stock-083000181.html)
 <!-- feed end -->
 
 ### Onstream
