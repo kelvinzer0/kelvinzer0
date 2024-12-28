@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Ex-NYPD chief admits to sex with subordinate, but denies he demanded it in exchange for overtime](https://www.yahoo.com/news/ex-nypd-chief-admits-sex-224642318.html)
+- Dec 28 - [Battle-Scarred Johnson Issued Ultimatum: ‘Start Taking Extraordinary Measures’](https://www.yahoo.com/news/battle-scarred-johnson-issued-ultimatum-010247845.html)
+- Dec 28 - [Bodycam footage shows correctional officers fatally beating handcuffed inmate](https://www.yahoo.com/news/bodycam-footage-shows-correctional-officers-230707392.html)
+- Dec 27 - [Judge signals that contempt hearing for Rudy Giuliani over his assets might not go well for him](https://www.yahoo.com/news/judge-signals-contempt-hearing-rudy-231119076.html)
+- Dec 27 - [Houston man being robbed by children on Christmas shoots them, injuring 3: Police](https://www.yahoo.com/news/houston-man-being-robbed-children-231030859.html)
 - Dec 27 - [Great White Sharks Scared From Their Habitat by Just 2 Predators](https://www.yahoo.com/news/great-white-sharks-scared-habitat-223034869.html)
-- Dec 27 - [Man charged in double murder investigation](https://www.yahoo.com/news/man-charged-double-murder-investigation-212825064.html)
-- Dec 27 - [Russian-Linked Oil Tanker Suspected Of Sabotage Was Brimming With Spy Equipment: Report](https://www.yahoo.com/news/russian-linked-oil-tanker-suspected-212716319.html)
-- Dec 27 - [Costco is pushing back — hard — against the anti-DEI movement](https://finance.yahoo.com/news/costco-pushing-back-hard-against-201119769.html)
 <!-- feed end -->
 
 ### Onstream
