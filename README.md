@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [Dayle Haddon dies in suspected carbon monoxide leak at Hallmark star's Pennsylvania home](https://www.yahoo.com/news/dayle-haddon-dies-suspected-carbon-223400363.html)
+- Dec 28 - [A missing Tennessee girl, 14, was left in the woods by a man she met online, sheriff says](https://www.yahoo.com/news/missing-tennessee-girl-14-left-192818621.html)
+- Dec 28 - [Syria's embassy in Lebanon suspends services as Lebanon hands over former Syrian army officers](https://www.yahoo.com/news/syrias-embassy-lebanon-suspends-services-192400921.html)
+- Dec 28 - [Israel ‘risks reviving Hamas’ by exchanging terrorists like my father for hostages](https://www.yahoo.com/news/israel-risks-reviving-hamas-exchanging-184226592.html)
+- Dec 28 - [Republicans gain temporary control of Minnesota House after Democrat decides not to appeal ruling](https://www.yahoo.com/news/republicans-gain-temporary-control-minnesota-182621438.html)
 - Dec 28 - [‘Unimaginable’: Rutland firefighter’s wife, newborn twins pass away days after medical emergency](https://www.yahoo.com/news/unimaginable-rutland-firefighter-wife-newborn-162448072.html)
-- Dec 28 - [Steve Bannon mocks ‘toddler’ Elon Musk after he tells X user to ‘f*** yourself’ over visa bust-up](https://www.yahoo.com/news/steve-bannon-mocks-toddler-elon-171549549.html)
-- Dec 28 - [Russian tanker tugged to shore for suspected Baltic Sea sabotage was ‘loaded with spy equipment’](https://www.yahoo.com/news/russian-tanker-tugged-shore-suspected-153703520.html)
-- Dec 28 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-115102868.html)
 <!-- feed end -->
 
 ### Onstream
