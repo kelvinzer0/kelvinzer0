@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 28 - [Musk says ‘hateful unrepentant racists’ must be removed from Republican Party as visa feud deepens](https://www.yahoo.com/news/musk-says-hateful-unrepentant-racists-022558432.html)
-- Dec 28 - [Video of inmate’s fatal beating shows him handcuffed as correctional officers punch and kick him](https://www.yahoo.com/news/video-inmate-fatal-beating-shows-192314535.html)
+- Dec 28 - [Mega Millions winning numbers for Dec. 27 lottery drawing: Jackpot balloons to $1.22 billion](https://www.yahoo.com/news/mega-millions-winning-numbers-dec-020119105.html)
 - Dec 28 - [Man accused of attacking TV reporter, saying 'This is Trump's America now'](https://www.yahoo.com/news/man-accused-attacking-tv-reporter-011834933.html)
-- Dec 27 - [‘Deeply heartbroken’: Officials identify 4 Mass. family members found dead in NH home on Christmas](https://www.yahoo.com/news/deeply-heartbroken-officials-identify-4-162352320.html)
-- Dec 27 - [Houston man being robbed by children on Christmas shoots them, injuring 3: Police](https://www.yahoo.com/news/houston-man-being-robbed-children-231030859.html)
+- Dec 27 - [Oklahoma AG dismisses assault charge against officer who slammed 71-year-old man to the ground](https://www.yahoo.com/news/oklahoma-ag-dismisses-assault-charge-225621080.html)
+- Dec 27 - [Great White Sharks Scared From Their Habitat by Just 2 Predators](https://www.yahoo.com/news/great-white-sharks-scared-habitat-223034869.html)
 <!-- feed end -->
 
 ### Onstream
