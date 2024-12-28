@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 28 - [Warren Buffett Sells Apple Stock and Buys a Restaurant Stock Up 3,100% Since Its IPO](https://finance.yahoo.com/news/warren-buffett-sells-apple-stock-083000181.html)
 - Dec 28 - [Winning ticket for $1.22 billion lottery jackpot sold in California, Mega Millions says](https://www.yahoo.com/news/mega-millions-draws-numbers-1-052516246.html)
 - Dec 28 - [Bloodied Ukrainian troops risk losing more hard-won land in Kursk to Russia](https://www.yahoo.com/news/bloodied-ukrainian-troops-risk-losing-050054635.html)
+- Dec 28 - [My Peanut-Sized Brain Can't Process These 17 Mind-Blowing Photos From The 1920s](https://www.yahoo.com/lifestyle/17-photos-things-1920s-wildy-033104354.html)
 - Dec 28 - [Musk says ‘hateful unrepentant racists’ must be removed from Republican Party as visa feud deepens](https://www.yahoo.com/news/musk-says-hateful-unrepentant-racists-022558432.html)
-- Dec 28 - [Man accused of attacking TV reporter, saying 'This is Trump's America now'](https://www.yahoo.com/news/man-accused-attacking-tv-reporter-011834933.html)
 <!-- feed end -->
 
 ### Onstream
