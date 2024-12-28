@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Steve Bannon mocks ‘toddler’ Elon Musk after he tells X user to ‘f*** yourself’ over visa bust-up](https://www.yahoo.com/news/steve-bannon-mocks-toddler-elon-171549549.html)
+- Dec 28 - [Elevance Health, Inc. (ELV): Among the Cheap Healthcare Stocks to Buy Heading Into 2025](https://finance.yahoo.com/news/elevance-health-inc-elv-among-214710660.html)
+- Dec 28 - [North Korea declares 'strongest' U.S. strategy in key party meeting](https://www.yahoo.com/news/north-korea-convenes-key-party-212341841.html)
 - Dec 28 - [MAGA skilled worker visa battle ‘brings out ugly side’ of MAGA coalition: Former GOP advisor](https://www.yahoo.com/news/maga-skilled-worker-visa-battle-204458534.html)
-- Dec 28 - [Brightline train collides with fire truck in downtown Delray Beach, injuring 15](https://www.yahoo.com/news/brightline-train-collides-fire-truck-201821182.html)
-- Dec 28 - [Nasty norovirus is back in full force with US cases of the stomach virus surging](https://www.yahoo.com/news/nasty-norovirus-back-full-force-201537402.html)
-- Dec 28 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
-- Dec 28 - [Syria's embassy in Lebanon suspends services as Lebanon hands over former Syrian army officers](https://www.yahoo.com/news/syrias-embassy-lebanon-suspends-services-192400921.html)
+- Dec 28 - [Child critically wounded after accidentally shooting herself in the thigh](https://www.yahoo.com/news/child-critically-wounded-accidentally-shooting-202656805.html)
 <!-- feed end -->
 
 ### Onstream
