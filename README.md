@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [At least 122 dead after South Korean jet crash-lands at airport](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
-- Dec 29 - [Plane burst into flames after skidding off runway at an airport in South Korea, killing at least 124](https://www.yahoo.com/news/plane-caught-fire-south-korean-005608682.html)
-- Dec 28 - [North Korea launches 'toughest' U.S. strategy in key party meeting](https://www.yahoo.com/news/north-korea-convenes-key-party-212341841.html)
-- Dec 28 - [Shot fired outside Wauwatosa bar, man charged](https://www.yahoo.com/news/shot-fired-outside-wauwatosa-bar-211525342.html)
-- Dec 28 - [MAGA skilled worker visa battle ‘brings out ugly side’ of MAGA coalition: Former GOP advisor](https://www.yahoo.com/news/maga-skilled-worker-visa-battle-204458534.html)
+- Dec 29 - [More than 100 dead after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
+- Dec 29 - [The women who have become the Breast of Friends](https://www.yahoo.com/lifestyle/women-become-breast-friends-061401487.html)
+- Dec 29 - [People Are Sharing Stories About When They Learned That HR Is Not Their Friend And Holy Crap, I Have No Words](https://www.yahoo.com/lifestyle/people-sharing-stories-learned-hr-041602370.html)
+- Dec 29 - [Plane burst into flames after skidding off runway at an airport in South Korea, killing at least 127](https://www.yahoo.com/news/plane-caught-fire-south-korean-005608682.html)
+- Dec 29 - ["Once You Have It, You Need To Treat It Before It Gets Worse": Doctors, Dentists, And Other Medical Pros Are Sharing Things Patients Often Overlook Or Omit (But Shouldn't)](https://www.yahoo.com/lifestyle/once-treat-gets-worse-doctors-003102236.html)
 <!-- feed end -->
 
 ### Onstream
