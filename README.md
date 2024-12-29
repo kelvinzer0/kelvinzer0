@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Two killed, three injured in fiery wrong-way crash on US 27](https://www.yahoo.com/news/two-killed-three-injured-fiery-212637527.html)
-- Dec 29 - [Kazakhstan says it will send Azerbaijan Airlines black boxes to Brazil as crash probe continues](https://www.yahoo.com/news/kazakhstan-says-send-azerbaijan-airlines-212455901.html)
-- Dec 29 - [Man accused of attacking TV reporter, saying ‘This is Trump’s America now’](https://www.yahoo.com/news/man-accused-attacking-tv-reporter-185927490.html)
-- Dec 29 - [NBA Legend Shaq Abandoned A $40 Million Reebok Shoe Deal After A Lady Confronted Him Over High Price Tag: 'Ma'am, I Don't Make The Prices'](https://finance.yahoo.com/news/nba-legend-shaq-abandoned-40-180021702.html)
-- Dec 29 - [Father of woman killed in South Korea air crash says the tragedy is unbelievable](https://www.yahoo.com/news/father-woman-killed-south-korea-174817222.html)
+- Dec 29 - [Peru's Navy rescues dozens of fishermen stranded at sea as giant waves pound shore](https://www.yahoo.com/news/perus-navy-rescues-dozens-fishermen-224926706.html)
+- Dec 29 - [Crashed South Korean Flight Was Warned of Bird Strike—But Questions Remain](https://www.yahoo.com/news/crashed-south-korean-flight-warned-224900075.html)
+- Dec 29 - [Trump says extension of the debt ceiling will 'go down as one of the dumbest political decisions made in years'](https://www.yahoo.com/news/trump-says-extension-debt-ceiling-223908391.html)
+- Dec 29 - [MSNBC Panel Laughs in Republican’s Face Over Speaker Replacement Suggestion](https://www.yahoo.com/news/msnbc-panel-laughs-republican-face-221638601.html)
+- Dec 29 - [Escaped Wallaby Bounds Through South Carolina Neighborhood](https://www.yahoo.com/news/escaped-wallaby-bounds-south-carolina-212427982.html)
 <!-- feed end -->
 
 ### Onstream
