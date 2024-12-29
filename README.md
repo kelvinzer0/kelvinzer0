@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [UNESCO-listed musical instrument stifled in Afghanistan](https://www.yahoo.com/news/unesco-listed-musical-instrument-stifled-022540183.html)
 - Dec 29 - ["Once You Have It, You Need To Treat It Before It Gets Worse": Doctors, Dentists, And Other Medical Pros Are Sharing Things Patients Often Overlook Or Omit (But Shouldn't)](https://www.yahoo.com/lifestyle/once-treat-gets-worse-doctors-003102236.html)
-- Dec 29 - [Rolex stolen from Keanu Reeves’ LA home turns up in Chile](https://www.yahoo.com/news/rolex-stolen-keanu-reeves-la-002336318.html)
 - Dec 28 - [NASA Is Watching a Vast, Growing Anomaly in Earth's Magnetic Field](https://www.yahoo.com/news/nasa-watching-vast-growing-anomaly-223020792.html)
-- Dec 28 - [Chemung County deputy's patrol car struck by tractor trailer on I-86, 'extensive damage'](https://www.yahoo.com/news/chemung-county-deputys-patrol-car-205727036.html)
+- Dec 28 - [North Korea launches 'toughest' U.S. strategy in key party meeting](https://www.yahoo.com/news/north-korea-convenes-key-party-212341841.html)
 - Dec 28 - [Brightline train collides with fire truck in downtown Delray Beach, injuring 15](https://www.yahoo.com/news/brightline-train-collides-fire-truck-201821182.html)
 <!-- feed end -->
 
