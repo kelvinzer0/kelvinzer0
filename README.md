@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Turkey announces $14 billion regional development plan for Kurdish southeast](https://www.yahoo.com/news/turkey-announces-14-billion-regional-123436088.html)
-- Dec 29 - [Experts question bird strike as cause of deadly South Korean plane crash](https://www.yahoo.com/news/experts-bird-strike-cause-deadly-111110869.html)
-- Dec 29 - [Company unveils game-changing electric truck that could rival Tesla Semi — and it has unbelievable range](https://www.yahoo.com/tech/company-unveils-game-changing-electric-110004075.html)
-- Dec 29 - [More than 170 killed after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
-- Dec 29 - [If I Could Only Buy and Hold a Single Stock, This Would Be It.](https://finance.yahoo.com/news/could-only-buy-hold-single-103300764.html)
+- Dec 29 - [Kansas once required voters to prove citizenship. That didn't work out so well](https://www.yahoo.com/news/kansas-once-required-voters-prove-124136128.html)
+- Dec 29 - [Watch: Moment South Korean plane crashes at Muan airport](https://www.yahoo.com/news/watch-moment-south-korean-plane-123033498.html)
+- Dec 29 - [The Lansing area lost nearly two dozen restaurants in 2024](https://www.yahoo.com/news/lansing-area-lost-nearly-two-110419554.html)
+- Dec 29 - [In shift, Trump downgrades soaring rhetoric on campaign promises](https://www.yahoo.com/news/shift-trump-downgrades-soaring-rhetoric-110000169.html)
+- Dec 29 - [Gaza captors tortured hostages, including minors, Israeli report says](https://www.yahoo.com/news/gaza-captors-tortured-hostages-including-095815157.html)
 <!-- feed end -->
 
 ### Onstream
