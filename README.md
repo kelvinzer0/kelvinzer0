@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [UNESCO-listed musical instrument stifled in Afghanistan](https://www.yahoo.com/news/unesco-listed-musical-instrument-stifled-022540183.html)
+- Dec 29 - [Death toll from a plane fire at a South Korean airport rises to 62](https://www.yahoo.com/news/plane-caught-fire-south-korean-005608682.html)
 - Dec 29 - ["Once You Have It, You Need To Treat It Before It Gets Worse": Doctors, Dentists, And Other Medical Pros Are Sharing Things Patients Often Overlook Or Omit (But Shouldn't)](https://www.yahoo.com/lifestyle/once-treat-gets-worse-doctors-003102236.html)
 - Dec 28 - [NASA Is Watching a Vast, Growing Anomaly in Earth's Magnetic Field](https://www.yahoo.com/news/nasa-watching-vast-growing-anomaly-223020792.html)
 - Dec 28 - [North Korea launches 'toughest' U.S. strategy in key party meeting](https://www.yahoo.com/news/north-korea-convenes-key-party-212341841.html)
-- Dec 28 - [Brightline train collides with fire truck in downtown Delray Beach, injuring 15](https://www.yahoo.com/news/brightline-train-collides-fire-truck-201821182.html)
+- Dec 28 - [MAGA skilled worker visa battle ‘brings out ugly side’ of MAGA coalition: Former GOP advisor](https://www.yahoo.com/news/maga-skilled-worker-visa-battle-204458534.html)
 <!-- feed end -->
 
 ### Onstream
