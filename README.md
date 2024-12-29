@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [Steve Bannon mocks ‘toddler’ Elon Musk after he tells X user to ‘f*** yourself’ over visa bust-up](https://www.yahoo.com/news/steve-bannon-mocks-toddler-elon-171549549.html)
-- Dec 28 - [Elevance Health, Inc. (ELV): Among the Cheap Healthcare Stocks to Buy Heading Into 2025](https://finance.yahoo.com/news/elevance-health-inc-elv-among-214710660.html)
-- Dec 28 - [North Korea declares 'strongest' U.S. strategy in key party meeting](https://www.yahoo.com/news/north-korea-convenes-key-party-212341841.html)
-- Dec 28 - [MAGA skilled worker visa battle ‘brings out ugly side’ of MAGA coalition: Former GOP advisor](https://www.yahoo.com/news/maga-skilled-worker-visa-battle-204458534.html)
-- Dec 28 - [Child critically wounded after accidentally shooting herself in the thigh](https://www.yahoo.com/news/child-critically-wounded-accidentally-shooting-202656805.html)
+- Dec 29 - ["Once You Have It, You Need To Treat It Before It Gets Worse": Doctors, Dentists, And Other Medical Pros Are Sharing Things Patients Often Overlook Or Omit (But Shouldn't)](https://www.yahoo.com/lifestyle/once-treat-gets-worse-doctors-003102236.html)
+- Dec 29 - [Rolex stolen from Keanu Reeves’ LA home turns up in Chile](https://www.yahoo.com/news/rolex-stolen-keanu-reeves-la-002336318.html)
+- Dec 28 - [NASA Is Watching a Vast, Growing Anomaly in Earth's Magnetic Field](https://www.yahoo.com/news/nasa-watching-vast-growing-anomaly-223020792.html)
+- Dec 28 - [Chemung County deputy's patrol car struck by tractor trailer on I-86, 'extensive damage'](https://www.yahoo.com/news/chemung-county-deputys-patrol-car-205727036.html)
+- Dec 28 - [Brightline train collides with fire truck in downtown Delray Beach, injuring 15](https://www.yahoo.com/news/brightline-train-collides-fire-truck-201821182.html)
 <!-- feed end -->
 
 ### Onstream
