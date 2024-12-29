@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 29 - [Michigan animal lover reportedly killed trying to stop man beating dog](https://www.yahoo.com/news/michigan-animal-lover-reportedly-killed-153512066.html)
-- Dec 29 - [Musk's German election 'meddling' slammed by chancellor candidate](https://www.yahoo.com/news/musks-german-election-meddling-slammed-153211292.html)
-- Dec 29 - [A bird strike may have caused South Korea plane crash, official says](https://www.yahoo.com/news/bird-strike-may-caused-south-144850399.html)
+- Dec 29 - [Warning issued after baby accidentally suffocated being breastfed in hands-free sling](https://www.yahoo.com/news/warning-issued-baby-accidentally-suffocated-140000876.html)
+- Dec 29 - [These Are The 7 Things Stroke Doctors Say You Should Never, Ever Do](https://www.yahoo.com/lifestyle/7-things-stroke-doctors-never-133102712.html)
 - Dec 29 - [Kansas once required voters to prove citizenship. That didn't work out so well](https://www.yahoo.com/news/kansas-once-required-voters-prove-124136128.html)
-- Dec 29 - [In shift, Trump downgrades soaring rhetoric on campaign promises](https://www.yahoo.com/news/shift-trump-downgrades-soaring-rhetoric-110000169.html)
+- Dec 29 - [Watch: Moment South Korean plane crashes at Muan airport](https://www.yahoo.com/news/watch-moment-south-korean-plane-123033498.html)
 <!-- feed end -->
 
 ### Onstream
