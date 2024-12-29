@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [NBA Legend Shaq Abandoned A $40 Million Reebok Shoe Deal After A Lady Confronted Him Over High Price Tag: 'Ma'am, I Don't Make The Prices'](https://finance.yahoo.com/news/nba-legend-shaq-abandoned-40-180021702.html)
 - Dec 29 - [Funeral held for pilots and flight attendant of deadly air crash](https://www.yahoo.com/news/funeral-held-pilots-flight-attendant-173735513.html)
+- Dec 29 - [Video shows plane on runway before it bursts into flames](https://www.yahoo.com/news/video-shows-plane-runway-bursts-100416100.html)
 - Dec 29 - [Fallen Syrian Dictator’s ‘Dying’ Wife Blocked From Cancer Treatment](https://www.yahoo.com/news/fallen-syrian-dictator-dying-wife-164232592.html)
-- Dec 29 - [35-Year-Old Earning $10,460 in Dividends With $133,000 Invested Reveals His Top 8 Stocks (CORRECTED)](https://finance.yahoo.com/news/35-old-earning-10-460-150015426.html)
 - Dec 29 - [Russian man arrested for allegedly running LGBTQ+ travel agency found dead in custody](https://www.yahoo.com/news/russian-man-arrested-allegedly-running-163509324.html)
-- Dec 29 - [Flights temporarily suspended at Halifax airport after airplane landing incident](https://www.yahoo.com/news/flights-temporarily-suspended-halifax-airport-145943656.html)
 <!-- feed end -->
 
 ### Onstream
