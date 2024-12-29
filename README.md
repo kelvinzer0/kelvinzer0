@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [Turkey's jailed PKK leader is reported to suggest he might be ready to end insurgency](https://www.yahoo.com/news/turkeys-jailed-pkk-leader-reported-095527097.html)
 - Dec 29 - [More than 100 dead after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
-- Dec 29 - [Plane burst into flames after skidding off runway at an airport in South Korea, killing at least 167](https://www.yahoo.com/news/plane-caught-fire-south-korean-005608682.html)
+- Dec 29 - [Flooding forces Memphis venue to close Saturday](https://www.yahoo.com/news/flooding-forces-memphis-venue-close-035121053.html)
 - Dec 29 - ["Once You Have It, You Need To Treat It Before It Gets Worse": Doctors, Dentists, And Other Medical Pros Are Sharing Things Patients Often Overlook Or Omit (But Shouldn't)](https://www.yahoo.com/lifestyle/once-treat-gets-worse-doctors-003102236.html)
-- Dec 28 - [Nasty norovirus is back in full force with US cases of the stomach virus surging](https://www.yahoo.com/news/nasty-norovirus-back-full-force-201537402.html)
-- Dec 28 - [15 hurt in Florida when train hits fire truck that drove onto tracks after another train passed](https://www.yahoo.com/news/train-collides-fire-truck-florida-192449393.html)
+- Dec 28 - [NASA Is Watching a Vast, Growing Anomaly in Earth's Magnetic Field](https://www.yahoo.com/news/nasa-watching-vast-growing-anomaly-223020792.html)
 <!-- feed end -->
 
 ### Onstream
