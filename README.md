@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Experts question bird strike as cause of deadly South Korean airliner crash](https://www.yahoo.com/news/experts-bird-strike-cause-deadly-111110869.html)
-- Dec 29 - [The Social Security Fairness Act has just passed | Opinion](https://www.yahoo.com/news/social-security-fairness-act-just-110349516.html)
+- Dec 29 - [Turkey announces $14 billion regional development plan for Kurdish southeast](https://www.yahoo.com/news/turkey-announces-14-billion-regional-123436088.html)
+- Dec 29 - [Experts question bird strike as cause of deadly South Korean plane crash](https://www.yahoo.com/news/experts-bird-strike-cause-deadly-111110869.html)
+- Dec 29 - [Company unveils game-changing electric truck that could rival Tesla Semi — and it has unbelievable range](https://www.yahoo.com/tech/company-unveils-game-changing-electric-110004075.html)
 - Dec 29 - [More than 170 killed after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
 - Dec 29 - [If I Could Only Buy and Hold a Single Stock, This Would Be It.](https://finance.yahoo.com/news/could-only-buy-hold-single-103300764.html)
-- Dec 29 - [North Korea's Kim vows the toughest anti-US policy before Trump takes office](https://www.yahoo.com/news/north-koreas-kim-vows-toughest-094659695.html)
 <!-- feed end -->
 
 ### Onstream
