@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [More than 100 dead after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
-- Dec 29 - [Opinion: Trump's choice of Hegseth for secretary of defense shows misguided leadership](https://www.yahoo.com/news/opinion-trumps-choice-hegseth-secretary-100203644.html)
+- Dec 29 - [Experts question bird strike as cause of deadly South Korean airliner crash](https://www.yahoo.com/news/experts-bird-strike-cause-deadly-111110869.html)
+- Dec 29 - [The Social Security Fairness Act has just passed | Opinion](https://www.yahoo.com/news/social-security-fairness-act-just-110349516.html)
+- Dec 29 - [More than 170 killed after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
+- Dec 29 - [If I Could Only Buy and Hold a Single Stock, This Would Be It.](https://finance.yahoo.com/news/could-only-buy-hold-single-103300764.html)
 - Dec 29 - [North Korea's Kim vows the toughest anti-US policy before Trump takes office](https://www.yahoo.com/news/north-koreas-kim-vows-toughest-094659695.html)
-- Dec 29 - [People Are Sharing Stories About When They Learned That HR Is Not Their Friend And Holy Crap, I Have No Words](https://www.yahoo.com/lifestyle/people-sharing-stories-learned-hr-041602370.html)
-- Dec 29 - [A plane is engulfed in flames after skidding off the runway in South Korea, killing at least 177](https://www.yahoo.com/news/plane-caught-fire-south-korean-005608682.html)
 <!-- feed end -->
 
 ### Onstream
