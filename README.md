@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [Two killed, three injured in fiery wrong-way crash on US 27](https://www.yahoo.com/news/two-killed-three-injured-fiery-212637527.html)
+- Dec 29 - [Kazakhstan says it will send Azerbaijan Airlines black boxes to Brazil as crash probe continues](https://www.yahoo.com/news/kazakhstan-says-send-azerbaijan-airlines-212455901.html)
 - Dec 29 - [Man accused of attacking TV reporter, saying ‘This is Trump’s America now’](https://www.yahoo.com/news/man-accused-attacking-tv-reporter-185927490.html)
 - Dec 29 - [NBA Legend Shaq Abandoned A $40 Million Reebok Shoe Deal After A Lady Confronted Him Over High Price Tag: 'Ma'am, I Don't Make The Prices'](https://finance.yahoo.com/news/nba-legend-shaq-abandoned-40-180021702.html)
-- Dec 29 - [Funeral held for pilots and flight attendant of deadly air crash](https://www.yahoo.com/news/funeral-held-pilots-flight-attendant-173735513.html)
-- Dec 29 - [Fallen Syrian Dictator’s ‘Dying’ Wife Blocked From Cancer Treatment](https://www.yahoo.com/news/fallen-syrian-dictator-dying-wife-164232592.html)
-- Dec 29 - [Russian man arrested for allegedly running LGBTQ+ travel agency found dead in custody](https://www.yahoo.com/news/russian-man-arrested-allegedly-running-163509324.html)
+- Dec 29 - [Father of woman killed in South Korea air crash says the tragedy is unbelievable](https://www.yahoo.com/news/father-woman-killed-south-korea-174817222.html)
 <!-- feed end -->
 
 ### Onstream
