@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Severe weather threat: Tornadoes, hail possible from morning squall line in north Florida](https://www.yahoo.com/news/severe-weather-threat-tornadoes-hail-051641836.html)
 - Dec 29 - [At least 122 dead after South Korean jet crash-lands at airport](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
-- Dec 28 - [NASA Is Watching a Vast, Growing Anomaly in Earth's Magnetic Field](https://www.yahoo.com/news/nasa-watching-vast-growing-anomaly-223020792.html)
+- Dec 29 - [Plane burst into flames after skidding off runway at an airport in South Korea, killing at least 124](https://www.yahoo.com/news/plane-caught-fire-south-korean-005608682.html)
 - Dec 28 - [North Korea launches 'toughest' U.S. strategy in key party meeting](https://www.yahoo.com/news/north-korea-convenes-key-party-212341841.html)
+- Dec 28 - [Shot fired outside Wauwatosa bar, man charged](https://www.yahoo.com/news/shot-fired-outside-wauwatosa-bar-211525342.html)
 - Dec 28 - [MAGA skilled worker visa battle ‘brings out ugly side’ of MAGA coalition: Former GOP advisor](https://www.yahoo.com/news/maga-skilled-worker-visa-battle-204458534.html)
 <!-- feed end -->
 
