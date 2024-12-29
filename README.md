@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Turkey's jailed PKK leader is reported to suggest he might be ready to end insurgency](https://www.yahoo.com/news/turkeys-jailed-pkk-leader-reported-095527097.html)
 - Dec 29 - [More than 100 dead after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
-- Dec 29 - [Flooding forces Memphis venue to close Saturday](https://www.yahoo.com/news/flooding-forces-memphis-venue-close-035121053.html)
-- Dec 29 - ["Once You Have It, You Need To Treat It Before It Gets Worse": Doctors, Dentists, And Other Medical Pros Are Sharing Things Patients Often Overlook Or Omit (But Shouldn't)](https://www.yahoo.com/lifestyle/once-treat-gets-worse-doctors-003102236.html)
-- Dec 28 - [NASA Is Watching a Vast, Growing Anomaly in Earth's Magnetic Field](https://www.yahoo.com/news/nasa-watching-vast-growing-anomaly-223020792.html)
+- Dec 29 - [Opinion: Trump's choice of Hegseth for secretary of defense shows misguided leadership](https://www.yahoo.com/news/opinion-trumps-choice-hegseth-secretary-100203644.html)
+- Dec 29 - [North Korea's Kim vows the toughest anti-US policy before Trump takes office](https://www.yahoo.com/news/north-koreas-kim-vows-toughest-094659695.html)
+- Dec 29 - [People Are Sharing Stories About When They Learned That HR Is Not Their Friend And Holy Crap, I Have No Words](https://www.yahoo.com/lifestyle/people-sharing-stories-learned-hr-041602370.html)
+- Dec 29 - [A plane is engulfed in flames after skidding off the runway in South Korea, killing at least 177](https://www.yahoo.com/news/plane-caught-fire-south-korean-005608682.html)
 <!-- feed end -->
 
 ### Onstream
