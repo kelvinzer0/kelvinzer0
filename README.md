@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [Norfolk stakeholders recommend short-term rental policy changes. Some operators want even more.](https://www.yahoo.com/news/norfolk-stakeholders-recommend-short-term-144500072.html)
 - Dec 29 - [Kansas once required voters to prove citizenship. That didn't work out so well](https://www.yahoo.com/news/kansas-once-required-voters-prove-124136128.html)
 - Dec 29 - [Watch: Moment South Korean plane crashes at Muan airport](https://www.yahoo.com/news/watch-moment-south-korean-plane-123033498.html)
-- Dec 29 - [The Lansing area lost nearly two dozen restaurants in 2024](https://www.yahoo.com/news/lansing-area-lost-nearly-two-110419554.html)
+- Dec 29 - [Experts question bird strike as cause of deadly South Korean plane crash](https://www.yahoo.com/news/experts-bird-strike-cause-deadly-111110869.html)
 - Dec 29 - [In shift, Trump downgrades soaring rhetoric on campaign promises](https://www.yahoo.com/news/shift-trump-downgrades-soaring-rhetoric-110000169.html)
-- Dec 29 - [Gaza captors tortured hostages, including minors, Israeli report says](https://www.yahoo.com/news/gaza-captors-tortured-hostages-including-095815157.html)
 <!-- feed end -->
 
 ### Onstream
