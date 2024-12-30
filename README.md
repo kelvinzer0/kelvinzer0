@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [Family says 9-year-old killed in Boxing Day crash was 'bubbly and energetic'](https://www.yahoo.com/news/family-says-9-old-killed-021215878.html)
 - Dec 30 - [Fact Check: The Origin of Photos Supposedly Showing Giant 'Axolotl' Sea Creature](https://www.yahoo.com/tech/fact-check-origin-photos-supposedly-000000119.html)
 - Dec 29 - [CNN commentator says Biden is going to ‘leave office in disgrace’](https://www.yahoo.com/news/cnn-commentator-says-biden-going-234000942.html)
 - Dec 29 - [Jet crash disaster in South Korea marks another setback for Boeing](https://www.yahoo.com/news/jet-crash-disaster-south-korea-232621298.html)
 - Dec 29 - [Trump Pulls a 180 on Jimmy Carter After His Death](https://www.yahoo.com/news/trump-pulls-180-jimmy-carter-232520989.html)
-- Dec 29 - [Trump attacks 'dumbest' 2023 debt limit extension](https://www.yahoo.com/news/trump-says-extension-debt-ceiling-223908391.html)
 <!-- feed end -->
 
 ### Onstream
