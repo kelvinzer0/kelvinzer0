@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Peru's Navy rescues dozens of fishermen stranded at sea as giant waves pound shore](https://www.yahoo.com/news/perus-navy-rescues-dozens-fishermen-224926706.html)
-- Dec 29 - [Crashed South Korean Flight Was Warned of Bird Strike—But Questions Remain](https://www.yahoo.com/news/crashed-south-korean-flight-warned-224900075.html)
-- Dec 29 - [Trump says extension of the debt ceiling will 'go down as one of the dumbest political decisions made in years'](https://www.yahoo.com/news/trump-says-extension-debt-ceiling-223908391.html)
-- Dec 29 - [MSNBC Panel Laughs in Republican’s Face Over Speaker Replacement Suggestion](https://www.yahoo.com/news/msnbc-panel-laughs-republican-face-221638601.html)
-- Dec 29 - [Escaped Wallaby Bounds Through South Carolina Neighborhood](https://www.yahoo.com/news/escaped-wallaby-bounds-south-carolina-212427982.html)
+- Dec 29 - [CNN commentator says Biden is going to ‘leave office in disgrace’](https://www.yahoo.com/news/cnn-commentator-says-biden-going-234000942.html)
+- Dec 29 - [Jet crash disaster in South Korea marks another setback for Boeing](https://www.yahoo.com/news/jet-crash-disaster-south-korea-232621298.html)
+- Dec 29 - [Power mostly restored after outage in Jefferson Parish that impacted thousands](https://www.yahoo.com/news/power-mostly-restored-outage-jefferson-230329302.html)
+- Dec 29 - [Trump attacks 'dumbest' 2023 debt limit extension](https://www.yahoo.com/news/trump-says-extension-debt-ceiling-223908391.html)
+- Dec 29 - [January Temperature Forecast Trends Colder In East, Remains Mild In Rockies](https://www.yahoo.com/news/january-temperature-forecast-trends-colder-123023966.html)
 <!-- feed end -->
 
 ### Onstream
