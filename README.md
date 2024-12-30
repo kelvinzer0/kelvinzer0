@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [15 Hospitalized, Including 3 Firefighters, After Train Collides with Fire Truck in Delray Beach, Fla.](https://www.yahoo.com/news/15-hospitalized-including-3-firefighters-134822023.html)
-- Dec 30 - [MicroStrategy Keeps Building Its $41.6B Bitcoin Fortune, While Surging 422%](https://finance.yahoo.com/news/microstrategy-keeps-building-41-6b-134331903.html)
+- Dec 30 - [Trump loses appeal of E. Jean Carroll $5 million defamation verdict](https://www.yahoo.com/news/trump-loses-appeal-e-jean-143432125.html)
+- Dec 30 - [7 tons of cocaine found buried underneath farm, video shows](https://www.yahoo.com/news/7-tons-cocaine-found-buried-132911588.html)
+- Dec 30 - [How Russian tanks stack up against the American M1 Abrams](https://www.yahoo.com/news/russian-tanks-stack-against-american-133002480.html)
+- Dec 30 - [Boston police investigating after popular restaurant robbed at gunpoint](https://www.yahoo.com/news/boston-police-investigating-popular-restaurant-131152078.html)
 - Dec 30 - [George Conway Jabs At 'Ex-Wife' Kellyanne Conway In Blunt Take On Trump Supporters](https://www.yahoo.com/news/george-conway-jabs-ex-wife-130116303.html)
-- Dec 30 - [Top US generals warned the 'golden hour' for saving injured soldiers could disappear. That future has come.](https://www.yahoo.com/news/top-us-generals-warned-golden-123601702.html)
-- Dec 30 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/news/moms-support-trump-divided-family-123103332.html)
 <!-- feed end -->
 
 ### Onstream
