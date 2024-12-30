@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [The South Korea plane crash is prompting multiple investigations](https://www.yahoo.com/news/south-korea-plane-crash-prompting-181400000.html)
-- Dec 30 - [Magnificent Seven Stocks: Nvidia Rallies; Amazon, Apple, Tesla Slide](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
-- Dec 30 - [Elderly woman to enter plea in husband's fatal shooting at Daytona Beach hospital](https://www.yahoo.com/news/elderly-woman-enter-plea-husbands-173508402.html)
-- Dec 30 - [The Dinnertime Habit Doctors Say Is Secretly Making You Tired The Next Day](https://www.yahoo.com/lifestyle/dinnertime-habit-doctors-secretly-making-173402302.html)
-- Dec 30 - [Angler hooks 'taxman' but then a much larger shark comes calling](https://sports.yahoo.com/angler-hooks-taxman-then-much-171149648.html)
+- Dec 30 - [South Korea plane crash is the deadliest in a year marked by several fatal aviation accidents](https://www.yahoo.com/news/south-korea-plane-crash-deadliest-194603743.html)
+- Dec 30 - [Owner seeks release of oil tanker seized in Finland cable probe](https://www.yahoo.com/news/owner-seeks-release-oil-tanker-183735637.html)
+- Dec 30 - [Senator's son sentenced to 28 years for killing a North Dakota deputy during a car chase](https://www.yahoo.com/news/senators-son-sentenced-28-years-180210145.html)
+- Dec 30 - [Suze Orman: Cut This Expense That ‘Happens Over and Over Again’](https://finance.yahoo.com/news/suze-orman-cut-expense-happens-170032466.html)
+- Dec 30 - [Trump picks Musk's money over 'forgotten' Americans of MAGA. Sorry, xenophobes! | Opinion](https://www.yahoo.com/news/trump-picks-musks-money-over-171527871.html)
 <!-- feed end -->
 
 ### Onstream
