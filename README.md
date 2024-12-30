@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [The South Korea plane crash is prompting multiple investigations](https://www.yahoo.com/news/south-korea-plane-crash-prompting-181400000.html)
 - Dec 30 - [Magnificent Seven Stocks: Nvidia Rallies; Amazon, Apple, Tesla Slide](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
-- Dec 30 - [Trump endorses Mike Johnson for House Speaker days before crucial vote](https://www.yahoo.com/news/trump-endorses-mike-johnson-house-165210521.html)
-- Dec 30 - [Six tornadoes touched down last Saturday across SE Texas](https://www.yahoo.com/news/six-tornadoes-touched-down-last-174600479.html)
-- Dec 30 - [Shelby Police release name of man shot, killed by officer](https://www.yahoo.com/news/shelby-police-release-name-man-171241200.html)
-- Dec 30 - [BMW 530e Runs From Georgia Cops Driving V8s](https://autos.yahoo.com/bmw-530e-runs-georgia-cops-170000490.html)
+- Dec 30 - [Elderly woman to enter plea in husband's fatal shooting at Daytona Beach hospital](https://www.yahoo.com/news/elderly-woman-enter-plea-husbands-173508402.html)
+- Dec 30 - [The Dinnertime Habit Doctors Say Is Secretly Making You Tired The Next Day](https://www.yahoo.com/lifestyle/dinnertime-habit-doctors-secretly-making-173402302.html)
+- Dec 30 - [Angler hooks 'taxman' but then a much larger shark comes calling](https://sports.yahoo.com/angler-hooks-taxman-then-much-171149648.html)
 <!-- feed end -->
 
 ### Onstream
