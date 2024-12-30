@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [South Korea plane crash is the deadliest in a year marked by several fatal aviation accidents](https://www.yahoo.com/news/south-korea-plane-crash-deadliest-194603743.html)
-- Dec 30 - [Owner seeks release of oil tanker seized in Finland cable probe](https://www.yahoo.com/news/owner-seeks-release-oil-tanker-183735637.html)
-- Dec 30 - [Senator's son sentenced to 28 years for killing a North Dakota deputy during a car chase](https://www.yahoo.com/news/senators-son-sentenced-28-years-180210145.html)
-- Dec 30 - [Suze Orman: Cut This Expense That ‘Happens Over and Over Again’](https://finance.yahoo.com/news/suze-orman-cut-expense-happens-170032466.html)
-- Dec 30 - [Trump picks Musk's money over 'forgotten' Americans of MAGA. Sorry, xenophobes! | Opinion](https://www.yahoo.com/news/trump-picks-musks-money-over-171527871.html)
+- Dec 30 - [Warren Buffett Puts Cash Reserves To Work Buying S&P 500 Underperformer](https://www.investors.com/news/warren-buffett-buys-underperforming-sp-500-stock/?src=A00220&yptr=yahoo)
+- Dec 30 - [Nvidia may be entering a 'limitless' era: Investor](https://finance.yahoo.com/news/nvidia-may-be-entering-a-limitless-era-investor-203859004.html)
+- Dec 30 - [North Korea’s New Warship Appears To Be Designed For Vertical Launch System, Phased Array Radar](https://www.yahoo.com/news/north-korea-warship-appears-designed-200159329.html)
+- Dec 30 - [British teenager hands himself into UAE authorities for having sex with 17-year-old girl](https://www.yahoo.com/news/british-teenager-hands-himself-uae-195857116.html)
+- Dec 30 - ['A Christmastime miracle': North Kingstown shelter takes in more than 20 cats](https://www.yahoo.com/news/christmastime-miracle-north-kingstown-shelter-195733719.html)
 <!-- feed end -->
 
 ### Onstream
