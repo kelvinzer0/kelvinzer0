@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [Skip the mugshot: Bartlesville Police offering free New Years rides instead of handcuffs](https://www.yahoo.com/news/skip-mugshot-bartlesville-police-offering-164704551.html)
-- Dec 30 - [Labour's private school tax change explained: Everything parents need to know](https://www.yahoo.com/news/labours-private-school-tax-change-163553168.html)
-- Dec 30 - [Shares of Boeing slide after South Korea plane crash](https://www.yahoo.com/news/shares-boeing-slide-south-korea-163127914.html)
-- Dec 30 - [If You Invested $10,000 In Agree Realty Stock 10 Years Ago, How Much Would You Have Now?](https://finance.yahoo.com/news/invested-10-000-agree-realty-160013529.html)
-- Dec 30 - [King Charles III officially ends royal warrants for Unilever and Cadbury chocolatiers](https://www.yahoo.com/news/king-charles-iii-officially-ends-153503315.html)
+- Dec 30 - [Magnificent Seven Stocks: Nvidia Rallies; Amazon, Apple, Tesla Slide](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
+- Dec 30 - [Trump endorses Mike Johnson for House Speaker days before crucial vote](https://www.yahoo.com/news/trump-endorses-mike-johnson-house-165210521.html)
+- Dec 30 - [Six tornadoes touched down last Saturday across SE Texas](https://www.yahoo.com/news/six-tornadoes-touched-down-last-174600479.html)
+- Dec 30 - [Shelby Police release name of man shot, killed by officer](https://www.yahoo.com/news/shelby-police-release-name-man-171241200.html)
+- Dec 30 - [BMW 530e Runs From Georgia Cops Driving V8s](https://autos.yahoo.com/bmw-530e-runs-georgia-cops-170000490.html)
 <!-- feed end -->
 
 ### Onstream
