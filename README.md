@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [2-year-old found safe after going missing in Ford Explorer stolen in Knoxville](https://www.yahoo.com/news/amber-alert-issued-2-old-012242604.html)
-- Dec 30 - [Audi S5 Blacks Out To Smoke Arkansas State Police](https://autos.yahoo.com/audi-s5-blacks-smoke-arkansas-120000460.html)
+- Dec 30 - [20-day-old baby dies from hypothermia in Gaza as Palestinians seek winter shelter](https://www.yahoo.com/news/20-day-old-baby-dies-042958500.html)
+- Dec 30 - [Family says 9-year-old killed in Boxing Day crash was 'bubbly and energetic'](https://www.yahoo.com/news/family-says-9-old-killed-021215878.html)
+- Dec 30 - [Teen girl killed in Signal Hill party shooting, several others injured](https://www.yahoo.com/news/teen-girl-killed-signal-hill-014933747.html)
 - Dec 30 - [Fact Check: The Origin of Photos Supposedly Showing Giant 'Axolotl' Sea Creature](https://www.yahoo.com/tech/fact-check-origin-photos-supposedly-000000119.html)
 - Dec 29 - [CNN commentator says Biden is going to ‘leave office in disgrace’](https://www.yahoo.com/news/cnn-commentator-says-biden-going-234000942.html)
-- Dec 29 - [Jet crash disaster in South Korea marks another setback for Boeing](https://www.yahoo.com/news/jet-crash-disaster-south-korea-232621298.html)
 <!-- feed end -->
 
 ### Onstream
