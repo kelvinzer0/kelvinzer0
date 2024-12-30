@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [Magnificent Seven Stocks: Nvidia Rises; Amazon, Apple, Meta, Tesla Slide](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
+- Dec 30 - [Four children, one adult saved from Monday morning fire at Chestnut Street home in Corning](https://www.yahoo.com/news/four-children-one-adult-saved-211236483.html)
 - Dec 30 - [Warren Buffett Puts Cash Reserves To Work Buying S&P 500 Underperformer](https://www.investors.com/news/warren-buffett-buys-underperforming-sp-500-stock/?src=A00220&yptr=yahoo)
+- Dec 30 - [California will soon require insurers to increase home coverage in wildfire-prone areas](https://www.yahoo.com/news/california-soon-require-insurers-increase-205015642.html)
 - Dec 30 - [Nvidia may be entering a 'limitless' era: Investor](https://finance.yahoo.com/news/nvidia-may-be-entering-a-limitless-era-investor-203859004.html)
-- Dec 30 - [North Korea’s New Warship Appears To Be Designed For Vertical Launch System, Phased Array Radar](https://www.yahoo.com/news/north-korea-warship-appears-designed-200159329.html)
-- Dec 30 - [British teenager hands himself into UAE authorities for having sex with 17-year-old girl](https://www.yahoo.com/news/british-teenager-hands-himself-uae-195857116.html)
-- Dec 30 - ['A Christmastime miracle': North Kingstown shelter takes in more than 20 cats](https://www.yahoo.com/news/christmastime-miracle-north-kingstown-shelter-195733719.html)
 <!-- feed end -->
 
 ### Onstream
