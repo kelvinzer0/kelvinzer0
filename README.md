@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [LLMs, GPUs, and hallucinations — here's everything you need to know about AI](https://www.yahoo.com/tech/chatgpt-openai-nvidia-deepfakes-heres-102201756.html)
-- Dec 30 - [Starlink to roll out direct-to-cell services in Ukraine](https://finance.yahoo.com/news/starlink-roll-direct-cell-services-080201469.html)
+- Dec 30 - [Dozens of 'kamikaze' Russian drones 'being spoofed' by Ukraine military to hit wrong targets](https://www.yahoo.com/news/dozens-kamikaze-russian-drones-being-103540443.html)
+- Dec 30 - [Savage tactics have swung the Ukraine war in Russia's favor](https://www.yahoo.com/news/savage-tactics-swung-ukraine-war-090102329.html)
 - Dec 30 - [The Taliban say they will close all NGOs employing Afghan women](https://www.yahoo.com/news/taliban-order-ngos-afghanistan-stop-073739042.html)
 - Dec 30 - [Jim Cramer on Apple Inc. (AAPL): ‘It Was The Dumb Money That Was Getting Out, Because Warren Buffett Or One Of His Assistants Made Us Nervous’](https://finance.yahoo.com/news/jim-cramer-apple-inc-aapl-053136089.html)
-- Dec 30 - [Physicists Discover 'Quantum Embezzlement' Could Offer Infinite Source of Entanglement](https://www.yahoo.com/news/physicists-discover-quantum-embezzlement-could-033053724.html)
+- Dec 30 - [In Gaza's crowded tent camps, women wrestle with a life stripped of privacy](https://www.yahoo.com/news/gazas-crowded-tent-camps-women-050611904.html)
 <!-- feed end -->
 
 ### Onstream
