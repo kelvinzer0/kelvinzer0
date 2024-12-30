@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [Trump loses appeal of E. Jean Carroll $5 million defamation verdict](https://www.yahoo.com/news/trump-loses-appeal-e-jean-143432125.html)
-- Dec 30 - [7 tons of cocaine found buried underneath farm, video shows](https://www.yahoo.com/news/7-tons-cocaine-found-buried-132911588.html)
-- Dec 30 - [How Russian tanks stack up against the American M1 Abrams](https://www.yahoo.com/news/russian-tanks-stack-against-american-133002480.html)
+- Dec 30 - [Ukraine says it brings home 189 POWs in swap with Russia](https://www.yahoo.com/news/ukraine-says-brings-home-189-160002218.html)
 - Dec 30 - [Boston police investigating after popular restaurant robbed at gunpoint](https://www.yahoo.com/news/boston-police-investigating-popular-restaurant-131152078.html)
-- Dec 30 - [George Conway Jabs At 'Ex-Wife' Kellyanne Conway In Blunt Take On Trump Supporters](https://www.yahoo.com/news/george-conway-jabs-ex-wife-130116303.html)
+- Dec 30 - [Biden rethinking if he should have handled some decisions differently: WaPo](https://www.yahoo.com/news/biden-rethinking-handled-decisions-differently-154227652.html)
+- Dec 30 - [‘So much love’: Mass. liquor store owner grateful after patrons rally to help clean trashed shop](https://www.yahoo.com/news/much-love-mass-liquor-store-153443370.html)
+- Dec 30 - [Palladyne AI Stock Rises Further as Drone Tracks Moving Target With Its Software](https://finance.yahoo.com/news/palladyne-ai-stock-rises-further-151410023.html)
 <!-- feed end -->
 
 ### Onstream
