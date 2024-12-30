@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [20-day-old baby dies from hypothermia in Gaza as Palestinians seek winter shelter](https://www.yahoo.com/news/20-day-old-baby-dies-042958500.html)
+- Dec 30 - [Jim Cramer on Apple Inc. (AAPL): ‘It Was The Dumb Money That Was Getting Out, Because Warren Buffett Or One Of His Assistants Made Us Nervous’](https://finance.yahoo.com/news/jim-cramer-apple-inc-aapl-053136089.html)
+- Dec 30 - [Physicists Discover 'Quantum Embezzlement' Could Offer Infinite Source of Entanglement](https://www.yahoo.com/news/physicists-discover-quantum-embezzlement-could-033053724.html)
 - Dec 30 - [Family says 9-year-old killed in Boxing Day crash was 'bubbly and energetic'](https://www.yahoo.com/news/family-says-9-old-killed-021215878.html)
-- Dec 30 - [Teen girl killed in Signal Hill party shooting, several others injured](https://www.yahoo.com/news/teen-girl-killed-signal-hill-014933747.html)
 - Dec 30 - [Fact Check: The Origin of Photos Supposedly Showing Giant 'Axolotl' Sea Creature](https://www.yahoo.com/tech/fact-check-origin-photos-supposedly-000000119.html)
 - Dec 29 - [CNN commentator says Biden is going to ‘leave office in disgrace’](https://www.yahoo.com/news/cnn-commentator-says-biden-going-234000942.html)
 <!-- feed end -->
