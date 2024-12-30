@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [Fox News pundit questions whether Jimmy Carter was actually ‘decent’ as he ‘essentially’ called Reagan ‘racist’](https://www.yahoo.com/news/fox-news-pundit-questions-whether-224716255.html)
+- Dec 30 - [Musk has been staying at $2,000-a-night Mar-a-Lago cottage — just hundreds of feet from Trump’s main house](https://www.yahoo.com/news/musk-staying-2-000-night-223535642.html)
+- Dec 30 - ['Stop, Stop, Stop': Officials Investigating After Private Jet and Airliner Have Close Encounter](https://www.yahoo.com/news/stop-stop-stop-officials-investigating-221400371.html)
 - Dec 30 - [Magnificent Seven Stocks: Nvidia Rises; Amazon, Apple, Meta, Tesla Slide](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
-- Dec 30 - [Four children, one adult saved from Monday morning fire at Chestnut Street home in Corning](https://www.yahoo.com/news/four-children-one-adult-saved-211236483.html)
-- Dec 30 - [Warren Buffett Puts Cash Reserves To Work Buying S&P 500 Underperformer](https://www.investors.com/news/warren-buffett-buys-underperforming-sp-500-stock/?src=A00220&yptr=yahoo)
-- Dec 30 - [California will soon require insurers to increase home coverage in wildfire-prone areas](https://www.yahoo.com/news/california-soon-require-insurers-increase-205015642.html)
-- Dec 30 - [Nvidia may be entering a 'limitless' era: Investor](https://finance.yahoo.com/news/nvidia-may-be-entering-a-limitless-era-investor-203859004.html)
+- Dec 30 - [FBI warns that ‘organized theft groups’ from South America are targeting the homes of U.S. pro athletes](https://www.yahoo.com/entertainment/fbi-warns-that-organized-theft-groups-from-south-america-are-targeting-the-homes-of-us-pro-athletes-210007846.html)
 <!-- feed end -->
 
 ### Onstream
