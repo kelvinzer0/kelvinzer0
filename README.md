@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [15 Hospitalized, Including 3 Firefighters, After Train Collides with Fire Truck in Delray Beach, Fla.](https://www.yahoo.com/news/15-hospitalized-including-3-firefighters-134822023.html)
+- Dec 30 - [MicroStrategy Keeps Building Its $41.6B Bitcoin Fortune, While Surging 422%](https://finance.yahoo.com/news/microstrategy-keeps-building-41-6b-134331903.html)
+- Dec 30 - [George Conway Jabs At 'Ex-Wife' Kellyanne Conway In Blunt Take On Trump Supporters](https://www.yahoo.com/news/george-conway-jabs-ex-wife-130116303.html)
 - Dec 30 - [Top US generals warned the 'golden hour' for saving injured soldiers could disappear. That future has come.](https://www.yahoo.com/news/top-us-generals-warned-golden-123601702.html)
-- Dec 30 - [15 Medical "Lies" And "Misconceptions" You Should Stop Believing, According To Doctors And Nurses](https://www.yahoo.com/lifestyle/15-medical-lies-misconceptions-stop-122102619.html)
-- Dec 30 - [EV brand celebrates rollout of all-electric SUV with unparalleled specs: '[It] heralds the dawn of a new era'](https://autos.yahoo.com/ev-brand-celebrates-rollout-electric-111521019.html)
-- Dec 30 - [Savage tactics have swung the Ukraine war in Russia's favor](https://www.yahoo.com/news/savage-tactics-swung-ukraine-war-090102329.html)
-- Dec 30 - [The Taliban say they will close all NGOs employing Afghan women](https://www.yahoo.com/news/taliban-order-ngos-afghanistan-stop-073739042.html)
+- Dec 30 - [My Mom's Support For Trump Divided Our Family. Then I Found The Crack In Her MAGA Armor.](https://www.yahoo.com/news/moms-support-trump-divided-family-123103332.html)
 <!-- feed end -->
 
 ### Onstream
