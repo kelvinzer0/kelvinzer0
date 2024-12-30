@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [What experts see in the ‘shocking and disturbing’ video of New York man’s fatal beating in prison](https://www.yahoo.com/news/experts-see-shocking-disturbing-video-092831474.html)
-- Dec 30 - [More than 170 killed after South Korean jet crash-lands at airport. Here’s what we know](https://www.yahoo.com/news/least-85-dead-south-korean-041310342.html)
-- Dec 30 - [What’s that big new lookout tower off Alligator Alley? Check out the plans](https://www.yahoo.com/lifestyle/big-lookout-tower-off-alligator-080500254.html)
+- Dec 30 - [Top US generals warned the 'golden hour' for saving injured soldiers could disappear. That future has come.](https://www.yahoo.com/news/top-us-generals-warned-golden-123601702.html)
+- Dec 30 - [15 Medical "Lies" And "Misconceptions" You Should Stop Believing, According To Doctors And Nurses](https://www.yahoo.com/lifestyle/15-medical-lies-misconceptions-stop-122102619.html)
+- Dec 30 - [EV brand celebrates rollout of all-electric SUV with unparalleled specs: '[It] heralds the dawn of a new era'](https://autos.yahoo.com/ev-brand-celebrates-rollout-electric-111521019.html)
+- Dec 30 - [Savage tactics have swung the Ukraine war in Russia's favor](https://www.yahoo.com/news/savage-tactics-swung-ukraine-war-090102329.html)
 - Dec 30 - [The Taliban say they will close all NGOs employing Afghan women](https://www.yahoo.com/news/taliban-order-ngos-afghanistan-stop-073739042.html)
-- Dec 30 - [Social Media Users Say Jimmy Carter Left 'One Last Gift' For Trump After His Death](https://www.yahoo.com/news/social-media-users-jimmy-carter-070602732.html)
 <!-- feed end -->
 
 ### Onstream
