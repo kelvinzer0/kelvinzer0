@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Drugmakers to raise US prices on over 250 medicines starting Jan. 1](https://www.yahoo.com/news/drugmakers-raise-us-prices-over-120529601.html)
 - Dec 31 - [Eat pistachios, use a weighted backpack, sleep in on the weekends plus 14 more health tips that we learned and loved this year](https://www.yahoo.com/lifestyle/eat-pistachios-use-a-weighted-backpack-sleep-in-on-the-weekends-plus-14-more-health-tips-that-we-learned-and-loved-this-year-120003637.html)
-- Dec 31 - [How cold will it get in Florida for New Year's Eve? See your local forecast](https://www.yahoo.com/news/cold-florida-years-eve-see-113906632.html)
 - Dec 31 - [Xi says no one can stop China's 'reunification' with Taiwan](https://www.yahoo.com/news/xi-says-no-one-stop-112448707.html)
+- Dec 31 - [Mortgage and refinance rates today, December 31, 2024: Rates decrease across the board](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-december-31-2024-110034782.html)
 - Dec 31 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://www.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
+- Dec 31 - [Stocks are set to do something they haven’t done in nearly three decades](https://finance.yahoo.com/news/stocks-set-something-haven-t-103042505.html)
 <!-- feed end -->
 
 ### Onstream
