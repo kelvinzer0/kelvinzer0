@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [In letter to Putin, Kim lauds North Korean-Russian military ties as a 'new high'](https://www.yahoo.com/news/letter-putin-kim-lauds-north-203036182.html)
-- Dec 31 - [Turkey's offer to rebuild the Syria military is an opening to displace Russian and Iranian power](https://www.yahoo.com/news/turkeys-offer-rebuild-syria-military-202056608.html)
-- Dec 31 - [Top Dividend Stocks To Consider In December 2024](https://finance.yahoo.com/news/top-dividend-stocks-consider-december-200412019.html)
-- Dec 31 - [The killing of an 18-year-old Ohio woman was solved with DNA technology after 43 years](https://www.yahoo.com/news/killing-18-old-ohio-woman-194747378.html)
+- Dec 31 - [10 people injured after Lego display falls at New Year's Eve event in Massachusetts arcade](https://www.yahoo.com/news/10-people-injured-lego-display-215524278.html)
+- Dec 31 - [Outgoing North Carolina governor commutes 15 death row sentences](https://www.yahoo.com/news/outgoing-north-carolina-governor-commutes-211427932.html)
 - Dec 31 - [Nostradamus' predications for 2025](https://www.yahoo.com/entertainment/nostradamus-predications-2025-185644504.html)
+- Dec 31 - [Warren Buffett tells people to buy an S&P 500 index fund. A celebrity tech investor says they face a 'rude awakening.'](https://finance.yahoo.com/news/warren-buffett-tells-people-buy-182611205.html)
+- Dec 31 - [74-Year-Old Democrat Who Ran Against AOC Offers Infuriating Defense](https://www.yahoo.com/news/74-old-democrat-gives-pathetic-171406993.html)
 <!-- feed end -->
 
 ### Onstream
