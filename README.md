@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 31 - [North Korea leader Kim and his daughter take walk along beach as they visit new tourist resort](https://www.yahoo.com/news/north-korea-leader-kim-daughter-015023220.html)
 - Dec 31 - [Man who kidnapped California woman in what was initially called a hoax faces new charges](https://www.yahoo.com/news/man-kidnapped-california-woman-initially-012521534.html)
-- Dec 31 - [Wrongful death lawsuit targets Cosmo restaurant, staff, EMS after man’s death](https://www.yahoo.com/news/wrongful-death-lawsuit-targets-cosmo-010934137.html)
 - Dec 31 - [Prosecutor's review finds new suspects in 1996 double killing and no ties to man tried 5 times](https://www.yahoo.com/news/prosecutors-review-finds-suspects-1996-010645824.html)
-- Dec 30 - [People Are Sharing The Stories Of How THAT Coworker Got Fired, And Most Of 'Em Sound Like Literal Episodes Of "The Office"](https://www.yahoo.com/entertainment/people-sharing-stories-coworker-got-233102311.html)
+- Dec 31 - [A jet carrying the Gonzaga men's basketball team ordered to stop to avoid collision at LAX](https://sports.yahoo.com/jet-carrying-gonzaga-mens-basketball-002911323.html)
+- Dec 30 - [Bird flu found in nearly 1 million chickens in Darke County](https://www.yahoo.com/news/bird-flu-found-nearly-1-175249042.html)
 <!-- feed end -->
 
 ### Onstream
