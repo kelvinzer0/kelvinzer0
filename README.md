@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Woman set on fire on NYC subway identified, police say](https://www.yahoo.com/news/woman-set-fire-nyc-subway-165736475.html)
-- Dec 31 - [First polar vortex of 2025 will bring dangerously frosty temperatures for millions of Americans](https://www.yahoo.com/news/first-polar-vortex-2025-bring-162647316.html)
-- Dec 31 - [Stocks are set to do something they haven’t done in nearly three decades](https://finance.yahoo.com/news/stocks-set-something-haven-t-103042505.html)
-- Dec 31 - [Scientists Built the Battery That Will Finally Unlock Massless Energy Storage](https://www.yahoo.com/tech/scientists-built-battery-finally-unlock-153200175.html)
-- Dec 31 - [Mark Cuban Says 'This Is Single-Payer': How His Healthcare Model Could Transform The U.S. Healthcare System](https://finance.yahoo.com/news/mark-cuban-says-single-payer-153015416.html)
+- Dec 31 - [Ohio parents abused their five adopted special needs children ‘worse than prisoners of war’](https://www.yahoo.com/news/ohio-parents-abused-five-adopted-183336408.html)
+- Dec 31 - [Warren Buffett tells people to buy an S&P 500 index fund. A celebrity tech investor says they face a 'rude awakening.'](https://finance.yahoo.com/news/warren-buffett-tells-people-buy-182611205.html)
+- Dec 31 - [Redding man who died after suspected DUI hit-and-run on Canby Road ID'd](https://www.yahoo.com/news/redding-man-died-suspected-dui-175339679.html)
+- Dec 31 - [New York Police identify woman burned to death inside subway train](https://www.yahoo.com/news/york-police-identify-woman-burned-173257857.html)
+- Dec 31 - [Maersk asks customers to remove cargo before potential strike at US ports](https://finance.yahoo.com/news/maersk-asks-customers-remove-cargo-162105945.html)
 <!-- feed end -->
 
 ### Onstream
