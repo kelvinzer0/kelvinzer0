@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Megadonor To Democrats Has Surprise 2-Word Description Of Donald Trump](https://www.yahoo.com/news/megadonor-democrats-surprise-2-word-073415573.html)
+- Dec 31 - [‘So much love’: Mass. liquor store owner grateful after patrons rally to help clean trashed shop](https://www.yahoo.com/news/much-love-mass-liquor-store-153443370.html)
 - Dec 31 - [Man who kidnapped California woman in what was initially called a hoax faces new charges](https://www.yahoo.com/news/man-kidnapped-california-woman-initially-012521534.html)
+- Dec 31 - [Wrongful death lawsuit targets Cosmo restaurant, staff, EMS after man’s death](https://www.yahoo.com/news/wrongful-death-lawsuit-targets-cosmo-010934137.html)
 - Dec 31 - [Prosecutor's review finds new suspects in 1996 double killing and no ties to man tried 5 times](https://www.yahoo.com/news/prosecutors-review-finds-suspects-1996-010645824.html)
-- Dec 30 - [Bird flu found in nearly 1 million chickens in Darke County](https://www.yahoo.com/news/bird-flu-found-nearly-1-175249042.html)
-- Dec 30 - [New York prison where man died after being beaten by guards will get a new leader](https://www.yahoo.com/news/york-prison-where-handcuffed-man-230424343.html)
+- Dec 31 - [A jet carrying the Gonzaga men's basketball team ordered to stop to avoid collision at LAX](https://sports.yahoo.com/jet-carrying-gonzaga-mens-basketball-002911323.html)
 <!-- feed end -->
 
 ### Onstream
