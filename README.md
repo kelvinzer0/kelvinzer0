@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 30 - [Fox News pundit questions whether Jimmy Carter was actually ‘decent’ as he ‘essentially’ called Reagan ‘racist’](https://www.yahoo.com/news/fox-news-pundit-questions-whether-224716255.html)
-- Dec 30 - [Musk has been staying at $2,000-a-night Mar-a-Lago cottage — just hundreds of feet from Trump’s main house](https://www.yahoo.com/news/musk-staying-2-000-night-223535642.html)
+- Dec 30 - [Bird flu found in nearly 1 million chickens in Darke County](https://www.yahoo.com/news/bird-flu-found-nearly-1-175249042.html)
+- Dec 30 - [New York prison where man died after being beaten by guards will get a new leader](https://www.yahoo.com/news/york-prison-where-handcuffed-man-230424343.html)
+- Dec 30 - [Former intern for Jimmy Carter, Brian Williams: 'he deglorified the presidency'](https://www.yahoo.com/news/former-intern-jimmy-carter-brian-223618556.html)
 - Dec 30 - ['Stop, Stop, Stop': Officials Investigating After Private Jet and Airliner Have Close Encounter](https://www.yahoo.com/news/stop-stop-stop-officials-investigating-221400371.html)
-- Dec 30 - [Magnificent Seven Stocks: Nvidia Rises; Amazon, Apple, Meta, Tesla Slide](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
-- Dec 30 - [FBI warns that ‘organized theft groups’ from South America are targeting the homes of U.S. pro athletes](https://www.yahoo.com/entertainment/fbi-warns-that-organized-theft-groups-from-south-america-are-targeting-the-homes-of-us-pro-athletes-210007846.html)
+- Dec 30 - [3 Reliable Dividend Stocks Offering Up To 9.5% Yield](https://finance.yahoo.com/news/3-reliable-dividend-stocks-offering-220529007.html)
 <!-- feed end -->
 
 ### Onstream
