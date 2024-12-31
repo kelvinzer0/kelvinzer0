@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [10 people injured after Lego display falls at New Year's Eve event in Massachusetts arcade](https://www.yahoo.com/news/10-people-injured-lego-display-215524278.html)
-- Dec 31 - [Outgoing North Carolina governor commutes 15 death row sentences](https://www.yahoo.com/news/outgoing-north-carolina-governor-commutes-211427932.html)
+- Dec 31 - [Topeka intervenes to clean up and cite landlord over trash piles at apartments](https://www.yahoo.com/news/topeka-intervenes-clean-cite-landlord-221948215.html)
+- Dec 31 - [Michigan couple die days apart after separate accidents between Christmas and New Year's Day](https://www.yahoo.com/news/michigan-couple-die-days-apart-220548617.html)
+- Dec 31 - [Photos show how the Times Square ball has evolved over its 117-year history](https://www.yahoo.com/lifestyle/photos-show-times-square-ball-220345325.html)
 - Dec 31 - [Nostradamus' predications for 2025](https://www.yahoo.com/entertainment/nostradamus-predications-2025-185644504.html)
-- Dec 31 - [Warren Buffett tells people to buy an S&P 500 index fund. A celebrity tech investor says they face a 'rude awakening.'](https://finance.yahoo.com/news/warren-buffett-tells-people-buy-182611205.html)
-- Dec 31 - [74-Year-Old Democrat Who Ran Against AOC Offers Infuriating Defense](https://www.yahoo.com/news/74-old-democrat-gives-pathetic-171406993.html)
+- Dec 31 - [What is a jumbo money market account, and where can you find the best rates?](https://finance.yahoo.com/personal-finance/banking/article/best-jumbo-money-market-rates-185203108.html)
 <!-- feed end -->
 
 ### Onstream
