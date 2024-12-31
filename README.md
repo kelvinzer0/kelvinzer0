@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [‘I lost control of my limbs’: Teenager relives spiking horror in warning to New Year’s Eve partygoers](https://www.yahoo.com/news/lost-control-limbs-teenager-relives-104331197.html)
-- Dec 31 - [Seventh Palestinian baby freezes to death as more rain and thunderstorms loom](https://www.yahoo.com/news/seventh-palestinian-baby-freezes-death-100218656.html)
-- Dec 31 - [Megadonor To Democrats Has Surprise 2-Word Description Of Donald Trump](https://www.yahoo.com/news/megadonor-democrats-surprise-2-word-073415573.html)
-- Dec 31 - [Man who kidnapped California woman in what was initially called a hoax faces new charges](https://www.yahoo.com/news/man-kidnapped-california-woman-initially-012521534.html)
-- Dec 31 - [Prosecutor's review finds new suspects in 1996 double killing and no ties to man tried 5 times](https://www.yahoo.com/news/prosecutors-review-finds-suspects-1996-010645824.html)
+- Dec 31 - [How cold will it get in Florida for New Year's Eve? See your local forecast](https://www.yahoo.com/news/cold-florida-years-eve-see-113906632.html)
+- Dec 31 - [Xi says no one can stop China's 'reunification' with Taiwan](https://www.yahoo.com/news/xi-says-no-one-stop-112448707.html)
+- Dec 31 - [Chicago in 2025 will see hikes in taxes, fines and fees as part of Mayor Brandon Johnson’s latest budget](https://www.yahoo.com/news/chicago-2025-see-hikes-taxes-110000903.html)
+- Dec 31 - [Mercedes-Benz unveils innovative new battery technology with potential to change the auto industry: 'Unlocks new possibilities'](https://www.yahoo.com/tech/mercedes-benz-unveils-innovative-battery-104543734.html)
+- Dec 31 - [Stocks are set to do something they haven’t done in nearly three decades](https://finance.yahoo.com/news/stocks-set-something-haven-t-103042505.html)
 <!-- feed end -->
 
 ### Onstream
