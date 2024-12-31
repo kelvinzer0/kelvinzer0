@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Ohio parents abused their five adopted special needs children ‘worse than prisoners of war’](https://www.yahoo.com/news/ohio-parents-abused-five-adopted-183336408.html)
-- Dec 31 - [Warren Buffett tells people to buy an S&P 500 index fund. A celebrity tech investor says they face a 'rude awakening.'](https://finance.yahoo.com/news/warren-buffett-tells-people-buy-182611205.html)
+- Dec 31 - [Mexico unveils new tariffs, popular e-tailers like Shein, Temu may be in crosshairs](https://www.yahoo.com/tech/mexico-unveils-tariffs-popular-e-193319096.html)
+- Dec 31 - [Bernie Madoff victims receiving final payout, will recover 94% of their losses](https://finance.yahoo.com/news/bernie-madoff-victims-receiving-final-192655760.html)
+- Dec 31 - [2 security guards shot after confronting shoplifting suspect in Los Angeles](https://www.yahoo.com/news/2-security-guards-shot-confronting-184626983.html)
 - Dec 31 - [Redding man who died after suspected DUI hit-and-run on Canby Road ID'd](https://www.yahoo.com/news/redding-man-died-suspected-dui-175339679.html)
-- Dec 31 - [New York Police identify woman burned to death inside subway train](https://www.yahoo.com/news/york-police-identify-woman-burned-173257857.html)
-- Dec 31 - [Maersk asks customers to remove cargo before potential strike at US ports](https://finance.yahoo.com/news/maersk-asks-customers-remove-cargo-162105945.html)
+- Dec 31 - [Retired award-winning Channel 2 consumer investigator Jim Strickland dies](https://www.yahoo.com/news/retired-award-winning-channel-2-174451110.html)
 <!-- feed end -->
 
 ### Onstream
