@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [A boomer retired early and moved to a California beach house. She regretted it, returned to work, and sold the house.](https://finance.yahoo.com/news/boomer-retired-early-moved-california-160101514.html)
+- Dec 31 - [Woman set on fire on NYC subway identified, police say](https://www.yahoo.com/news/woman-set-fire-nyc-subway-165736475.html)
+- Dec 31 - [First polar vortex of 2025 will bring dangerously frosty temperatures for millions of Americans](https://www.yahoo.com/news/first-polar-vortex-2025-bring-162647316.html)
+- Dec 31 - [Stocks are set to do something they haven’t done in nearly three decades](https://finance.yahoo.com/news/stocks-set-something-haven-t-103042505.html)
+- Dec 31 - [Scientists Built the Battery That Will Finally Unlock Massless Energy Storage](https://www.yahoo.com/tech/scientists-built-battery-finally-unlock-153200175.html)
 - Dec 31 - [Mark Cuban Says 'This Is Single-Payer': How His Healthcare Model Could Transform The U.S. Healthcare System](https://finance.yahoo.com/news/mark-cuban-says-single-payer-153015416.html)
-- Dec 31 - [Sydney sees in 2025 with its biggest ever fireworks display](https://www.yahoo.com/news/sydney-sees-2025-biggest-ever-145835986.html)
-- Dec 31 - [Ukraine says its deadly sea drones shot down a Russian helicopter for the first time](https://www.yahoo.com/news/ukraine-says-deadly-sea-drones-124812175.html)
-- Dec 31 - [Drugmakers to raise US prices on over 250 medicines starting Jan. 1](https://www.yahoo.com/news/drugmakers-raise-us-prices-over-120529601.html)
 <!-- feed end -->
 
 ### Onstream
