@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [AP Top Stories December 31 A](https://www.yahoo.com/news/ap-top-stories-december-31-095708592.html)
-- Dec 31 - [ONCE UPON OUR TIMES: Ice house, grocery stores and more in the news in Waynesboro in 1901](https://www.yahoo.com/news/once-upon-times-ice-house-090238356.html)
-- Dec 31 - [Social Media Piles On Donald Trump’s Wild New Canada Post: ‘Laughingstock Of The World’](https://www.yahoo.com/news/social-media-piles-donald-trump-084842162.html)
+- Dec 31 - [‘I lost control of my limbs’: Teenager relives spiking horror in warning to New Year’s Eve partygoers](https://www.yahoo.com/news/lost-control-limbs-teenager-relives-104331197.html)
+- Dec 31 - [Seventh Palestinian baby freezes to death as more rain and thunderstorms loom](https://www.yahoo.com/news/seventh-palestinian-baby-freezes-death-100218656.html)
 - Dec 31 - [Megadonor To Democrats Has Surprise 2-Word Description Of Donald Trump](https://www.yahoo.com/news/megadonor-democrats-surprise-2-word-073415573.html)
 - Dec 31 - [Man who kidnapped California woman in what was initially called a hoax faces new charges](https://www.yahoo.com/news/man-kidnapped-california-woman-initially-012521534.html)
+- Dec 31 - [Prosecutor's review finds new suspects in 1996 double killing and no ties to man tried 5 times](https://www.yahoo.com/news/prosecutors-review-finds-suspects-1996-010645824.html)
 <!-- feed end -->
 
 ### Onstream
