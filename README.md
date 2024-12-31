@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Magnificent Seven Stocks: Nvidia Slides, Tesla Rebounds](https://www.investors.com/research/magnificent-seven-stocks-december-2024/?src=A00220&yptr=yahoo)
-- Dec 31 - [31 bodies pulled from hidden graves amid cartel turf war](https://www.yahoo.com/news/31-bodies-pulled-hidden-graves-143616416.html)
-- Dec 31 - [Terraform Labs co-founder Do Kwon will face securities fraud charges in the US](https://www.yahoo.com/tech/terraform-labs-co-founder-do-kwon-will-face-securities-fraud-charges-in-the-us-142734704.html)
-- Dec 31 - [‘It bit me and didn’t let go’: Snorkeller relives battle with tiger shark that killed diplomat friend in Egypt](https://www.yahoo.com/news/bit-didn-t-let-snorkeller-135233571.html)
-- Dec 31 - [Drugmakers to raise US prices on over 250 medicines starting Jan. 1](https://www.yahoo.com/news/drugmakers-raise-us-prices-over-120529601.html)
+- Dec 31 - [Quantum Computing Stocks Skyrocket: Rigetti and QUBT Surge Over 1,600% in 2024](https://finance.yahoo.com/news/quantum-computing-stocks-skyrocket-rigetti-155023509.html)
+- Dec 31 - [Video shared of ablaze drink burning Courtside patrons. Police officer suspended](https://www.yahoo.com/news/video-shared-ablaze-drink-burning-154811850.html)
+- Dec 31 - [Watch A Lexus GX Roll An Arkansas Trooper’s Cruiser](https://autos.yahoo.com/watch-lexus-gx-roll-arkansas-120000357.html)
+- Dec 31 - [Ukraine transit operator says Russia has not nominated gas volumes for Jan. 1 so far](https://finance.yahoo.com/news/ukraine-transit-operator-says-russia-151034771.html)
+- Dec 31 - [Ukraine says its deadly sea drones shot down a Russian helicopter for the first time](https://www.yahoo.com/news/ukraine-says-deadly-sea-drones-124812175.html)
 <!-- feed end -->
 
 ### Onstream
