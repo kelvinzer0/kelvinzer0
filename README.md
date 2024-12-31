@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 31 - [Drugmakers to raise US prices on over 250 medicines starting Jan. 1](https://www.yahoo.com/news/drugmakers-raise-us-prices-over-120529601.html)
+- Dec 31 - [Eat pistachios, use a weighted backpack, sleep in on the weekends plus 14 more health tips that we learned and loved this year](https://www.yahoo.com/lifestyle/eat-pistachios-use-a-weighted-backpack-sleep-in-on-the-weekends-plus-14-more-health-tips-that-we-learned-and-loved-this-year-120003637.html)
 - Dec 31 - [How cold will it get in Florida for New Year's Eve? See your local forecast](https://www.yahoo.com/news/cold-florida-years-eve-see-113906632.html)
 - Dec 31 - [Xi says no one can stop China's 'reunification' with Taiwan](https://www.yahoo.com/news/xi-says-no-one-stop-112448707.html)
-- Dec 31 - [Chicago in 2025 will see hikes in taxes, fines and fees as part of Mayor Brandon Johnson’s latest budget](https://www.yahoo.com/news/chicago-2025-see-hikes-taxes-110000903.html)
-- Dec 31 - [Mercedes-Benz unveils innovative new battery technology with potential to change the auto industry: 'Unlocks new possibilities'](https://www.yahoo.com/tech/mercedes-benz-unveils-innovative-battery-104543734.html)
-- Dec 31 - [Stocks are set to do something they haven’t done in nearly three decades](https://finance.yahoo.com/news/stocks-set-something-haven-t-103042505.html)
+- Dec 31 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://www.yahoo.com/news/m-mechanic-3-pickup-trucks-180118634.html)
 <!-- feed end -->
 
 ### Onstream
