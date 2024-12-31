@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Mexico unveils new tariffs, popular e-tailers like Shein, Temu may be in crosshairs](https://www.yahoo.com/tech/mexico-unveils-tariffs-popular-e-193319096.html)
-- Dec 31 - [Bernie Madoff victims receiving final payout, will recover 94% of their losses](https://finance.yahoo.com/news/bernie-madoff-victims-receiving-final-192655760.html)
-- Dec 31 - [2 security guards shot after confronting shoplifting suspect in Los Angeles](https://www.yahoo.com/news/2-security-guards-shot-confronting-184626983.html)
-- Dec 31 - [Redding man who died after suspected DUI hit-and-run on Canby Road ID'd](https://www.yahoo.com/news/redding-man-died-suspected-dui-175339679.html)
-- Dec 31 - [Retired award-winning Channel 2 consumer investigator Jim Strickland dies](https://www.yahoo.com/news/retired-award-winning-channel-2-174451110.html)
+- Dec 31 - [In letter to Putin, Kim lauds North Korean-Russian military ties as a 'new high'](https://www.yahoo.com/news/letter-putin-kim-lauds-north-203036182.html)
+- Dec 31 - [Turkey's offer to rebuild the Syria military is an opening to displace Russian and Iranian power](https://www.yahoo.com/news/turkeys-offer-rebuild-syria-military-202056608.html)
+- Dec 31 - [Top Dividend Stocks To Consider In December 2024](https://finance.yahoo.com/news/top-dividend-stocks-consider-december-200412019.html)
+- Dec 31 - [The killing of an 18-year-old Ohio woman was solved with DNA technology after 43 years](https://www.yahoo.com/news/killing-18-old-ohio-woman-194747378.html)
+- Dec 31 - [Nostradamus' predications for 2025](https://www.yahoo.com/entertainment/nostradamus-predications-2025-185644504.html)
 <!-- feed end -->
 
 ### Onstream
