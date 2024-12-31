@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Quantum Computing Stocks Skyrocket: Rigetti and QUBT Surge Over 1,600% in 2024](https://finance.yahoo.com/news/quantum-computing-stocks-skyrocket-rigetti-155023509.html)
-- Dec 31 - [Video shared of ablaze drink burning Courtside patrons. Police officer suspended](https://www.yahoo.com/news/video-shared-ablaze-drink-burning-154811850.html)
-- Dec 31 - [Watch A Lexus GX Roll An Arkansas Trooper’s Cruiser](https://autos.yahoo.com/watch-lexus-gx-roll-arkansas-120000357.html)
-- Dec 31 - [Ukraine transit operator says Russia has not nominated gas volumes for Jan. 1 so far](https://finance.yahoo.com/news/ukraine-transit-operator-says-russia-151034771.html)
+- Dec 31 - [A boomer retired early and moved to a California beach house. She regretted it, returned to work, and sold the house.](https://finance.yahoo.com/news/boomer-retired-early-moved-california-160101514.html)
+- Dec 31 - [Mark Cuban Says 'This Is Single-Payer': How His Healthcare Model Could Transform The U.S. Healthcare System](https://finance.yahoo.com/news/mark-cuban-says-single-payer-153015416.html)
+- Dec 31 - [Sydney sees in 2025 with its biggest ever fireworks display](https://www.yahoo.com/news/sydney-sees-2025-biggest-ever-145835986.html)
 - Dec 31 - [Ukraine says its deadly sea drones shot down a Russian helicopter for the first time](https://www.yahoo.com/news/ukraine-says-deadly-sea-drones-124812175.html)
+- Dec 31 - [Drugmakers to raise US prices on over 250 medicines starting Jan. 1](https://www.yahoo.com/news/drugmakers-raise-us-prices-over-120529601.html)
 <!-- feed end -->
 
 ### Onstream
