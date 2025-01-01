@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Trans-identifying male police officers allowed to use women’s showers, toilets and changing rooms](https://www.yahoo.com/news/trans-identifying-male-police-officers-131432283.html)
+- Jan 01 - [Zelenskyy said 30% of the weapons and gear used by Ukraine's military in 2024 was domestically made](https://www.yahoo.com/news/zelenskyy-said-30-weapons-gear-134319688.html)
+- Jan 01 - [Federal official says suspect who drove into New Orleans crowd is believed to be dead](https://www.yahoo.com/news/federal-official-says-suspect-drove-132332117.html)
 - Jan 01 - [Putin orders Russian government and top bank to develop AI cooperation with China](https://finance.yahoo.com/news/putin-orders-russian-government-top-130707315.html)
-- Jan 01 - [Astrologer Aliza Kelly Reveals 2025 Predictions for Each Zodiac Sign](https://www.yahoo.com/lifestyle/astrologer-aliza-kelly-reveals-2025-110000842.html)
-- Jan 01 - [North Korea's Kim Jong Un attends New Year's celebrations, receives card from China's Xi, KCNA says](https://www.yahoo.com/news/north-koreas-kim-jong-un-102450706.html)
-- Jan 01 - [Pensacola Mexican restaurant temporarily closed after 18 rodent droppings found in inspection](https://www.yahoo.com/news/pensacola-mexican-restaurant-temporarily-closed-100805154.html)
+- Jan 01 - [German government condemns New Year's Eve violence after hundreds of arrests](https://www.yahoo.com/news/german-government-condemns-years-eve-130324873.html)
+- Jan 01 - [Driver rams New Year's revelers in New Orleans, killing 10. FBI investigating as 'act of terrorism'](https://www.yahoo.com/news/fatalities-car-reportedly-plows-group-114235670.html)
 <!-- feed end -->
 
 ### Onstream
