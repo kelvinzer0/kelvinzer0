@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [North Las Vegas police search for armed, ‘extremely dangerous’ teen accused of shooting, killing man](https://www.yahoo.com/news/north-las-vegas-police-search-003755872.html)
+- Jan 01 - [Taiwan president wants exchanges with China, sees lack of goodwill](https://www.yahoo.com/news/taiwan-president-says-welcomes-exchanges-010852219.html)
 - Jan 01 - [Instead of partying, thousands turn New Year celebration into anti-government protest in Serbia](https://www.yahoo.com/news/instead-partying-thousands-turn-celebration-001256116.html)
-- Dec 31 - [Roberts warns against ignoring Supreme Court rulings as tension with Trump looms](https://www.yahoo.com/news/roberts-warns-against-ignoring-supreme-230153286.html)
+- Dec 31 - [How much did Georgia pay football recruiting staffer injured in crash for settlement?](https://www.yahoo.com/news/much-did-georgia-pay-football-225522435.html)
 - Dec 31 - [Picturesque Oregon landmark blown over in holiday windstorm](https://www.yahoo.com/news/picturesque-oregon-landmark-blown-over-224909783.html)
-- Dec 31 - [To Minimize Dementia Risk, Doctors Say To Steer Clear Of These 3 Things](https://www.yahoo.com/lifestyle/minimize-dementia-risk-doctors-steer-224302423.html)
+- Dec 31 - [DeSoto County former youth minister, coach indicted on sexual battery charge](https://www.yahoo.com/news/desoto-county-former-youth-minister-224422900.html)
 <!-- feed end -->
 
 ### Onstream
