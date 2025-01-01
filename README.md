@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Mega Millions winning numbers for Wednesday, Dec. 31. Did anyone win $20 million jackpot?](https://www.yahoo.com/news/mega-millions-winning-numbers-wednesday-013904071.html)
+- Jan 01 - [Taiwan president wants exchanges with China, sees lack of goodwill](https://www.yahoo.com/news/taiwan-president-says-welcomes-exchanges-010852219.html)
+- Jan 01 - [North Las Vegas police search for armed, ‘extremely dangerous’ teen accused of shooting, killing man](https://www.yahoo.com/news/north-las-vegas-police-search-003755872.html)
 - Jan 01 - [Instead of partying, thousands turn New Year celebration into anti-government protest in Serbia](https://www.yahoo.com/news/instead-partying-thousands-turn-celebration-001256116.html)
+- Dec 31 - [FBI says it seized biggest cache of explosives in its history from Virginia farm](https://www.yahoo.com/news/fbi-says-seized-biggest-cache-230338106.html)
 - Dec 31 - [Picturesque Oregon landmark blown over in holiday windstorm](https://www.yahoo.com/news/picturesque-oregon-landmark-blown-over-224909783.html)
-- Dec 31 - [To Minimize Dementia Risk, Doctors Say To Steer Clear Of These 3 Things](https://www.yahoo.com/lifestyle/minimize-dementia-risk-doctors-steer-224302423.html)
-- Dec 31 - [Chicago teen visiting Mexico with father and uncle on life support after deadly shooting](https://www.yahoo.com/news/chicago-teen-visiting-mexico-father-222804757.html)
 <!-- feed end -->
 
 ### Onstream
