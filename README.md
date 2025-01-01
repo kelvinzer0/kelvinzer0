@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Israeli strikes kill at least 17 Palestinians in Gaza, WAFA reports](https://www.yahoo.com/news/israeli-strikes-kill-least-17-090547509.html)
 - Jan 01 - [This Woman Shocked The Internet By Revealing "Postpartum Stink" Is A Thing, So Experts Are Explaining Why This Happens To New Moms](https://www.yahoo.com/lifestyle/woman-shocked-internet-revealing-postpartum-033102357.html)
+- Jan 01 - [Taiwan president wants exchanges with China, sees lack of goodwill](https://www.yahoo.com/news/taiwan-president-says-welcomes-exchanges-010852219.html)
 - Jan 01 - [Instead of partying, thousands turn New Year celebration into anti-government protest in Serbia](https://www.yahoo.com/news/instead-partying-thousands-turn-celebration-001256116.html)
-- Dec 31 - [FBI says it seized biggest cache of explosives in its history from Virginia farm](https://www.yahoo.com/news/fbi-says-seized-biggest-cache-230338106.html)
+- Dec 31 - [NYC jail staff blocked medics from treating 23-year-old woman who died weeks later](https://www.yahoo.com/news/nyc-jail-staff-blocked-medics-225857478.html)
 - Dec 31 - [Picturesque Oregon landmark blown over in holiday windstorm](https://www.yahoo.com/news/picturesque-oregon-landmark-blown-over-224909783.html)
 <!-- feed end -->
 
