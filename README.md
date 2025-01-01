@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Weight-loss surgery patient died after hospital’s ‘failings’ during junior doctors’ strike](https://www.yahoo.com/news/weight-loss-surgery-patient-died-192831069.html)
-- Jan 01 - [If You Make a 6-Figure Salary and Still Don’t Feel Rich, You Could Be a ‘HENRY’](https://finance.yahoo.com/news/6-figure-salary-still-don-190220885.html)
-- Jan 01 - [Grandmother ‘nearly drowned’ in sinkhole while trying to save her dog](https://www.yahoo.com/news/grandmother-nearly-drowned-sinkhole-while-185741453.html)
+- Jan 01 - [The 10 best healthy snacks on Amazon, according to registered dietitians](https://www.yahoo.com/lifestyle/best-healthy-snacks-on-amazon-201255279.html)
+- Jan 01 - [1 person dies when truck catches fire and explodes outside Trump's Las Vegas hotel](https://www.yahoo.com/news/vehicle-catches-fire-explodes-outside-193158109.html)
+- Jan 01 - [Interview with next-door neighbor to Airbnb rented by New Orleans truck attack suspect](https://www.yahoo.com/news/interview-next-door-neighbor-airbnb-185703713.html)
 - Jan 01 - [Russia warns of severe environmental damage as oil from damaged tankers washes up on beaches](https://www.yahoo.com/news/russia-warns-severe-environmental-damage-180729567.html)
-- Jan 01 - [The Average Millionaire Has 7 Streams Of Income, According To The IRS – Can You Guess What They Are?](https://finance.yahoo.com/news/average-millionaire-7-streams-income-160022858.html)
+- Jan 01 - [Man Who Killed 15 in New Orleans Terror Truck Attack Identified](https://www.yahoo.com/news/man-killed-10-orleans-terror-180036204.html)
 <!-- feed end -->
 
 ### Onstream
