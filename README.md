@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Dump Truck Helps End Police Chase](https://autos.yahoo.com/dump-truck-helps-end-police-123000841.html)
+- Jan 01 - [Microsoft CEO Satya Nadella Just Said Something That Could Be Terrible News for Nvidia but Great News for This Commodity Stock in 2025](https://finance.yahoo.com/news/microsoft-ceo-satya-nadella-just-143000753.html)
+- Jan 01 - [Suspected driver who slammed truck into New Orleans crowd is dead, sources say](https://www.yahoo.com/news/suspected-driver-slammed-truck-orleans-141723816.html)
 - Jan 01 - [Plane crashes at Naples Airport early Wednesday: What to know](https://www.yahoo.com/news/plane-crashes-naples-airport-early-135808340.html)
+- Jan 01 - [Historic ski resort announces immediate closure after battling decade of insurmountable conditions: 'Mother nature has not been kind to us'](https://www.yahoo.com/news/historic-ski-resort-announces-immediate-104500056.html)
 - Jan 01 - [North Korea's Kim Jong Un attends New Year's celebrations, receives card from China's Xi, KCNA says](https://www.yahoo.com/news/north-koreas-kim-jong-un-102450706.html)
-- Jan 01 - [There are so many drones in Ukraine that operators are stumbling onto enemy drone feeds and picking up intel](https://www.yahoo.com/news/many-drones-ukraine-operators-stumbling-081701980.html)
-- Jan 01 - [This Woman Shocked The Internet By Revealing "Postpartum Stink" Is A Thing, So Experts Are Explaining Why This Happens To New Moms](https://www.yahoo.com/lifestyle/woman-shocked-internet-revealing-postpartum-033102357.html)
 <!-- feed end -->
 
 ### Onstream
