@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Man wanted for multiple sexual offenses in Union County arrested, deputies say](https://www.yahoo.com/news/man-wanted-multiple-sexual-offenses-014854179.html)
-- Jan 01 - [Third suspect arrested, charged in case of missing C.B. man](https://www.yahoo.com/news/third-suspect-arrested-charged-case-011952080.html)
-- Jan 01 - [Up to 5 house cats sick after bird flu found in 2nd raw pet food brand: Health officials](https://www.yahoo.com/news/5-house-cats-sick-bird-010951434.html)
+- Jan 01 - [North Las Vegas police search for armed, ‘extremely dangerous’ teen accused of shooting, killing man](https://www.yahoo.com/news/north-las-vegas-police-search-003755872.html)
 - Jan 01 - [Instead of partying, thousands turn New Year celebration into anti-government protest in Serbia](https://www.yahoo.com/news/instead-partying-thousands-turn-celebration-001256116.html)
-- Jan 01 - [I Withdrew $95k from My Retirement Plan This Year But It Put Me in a Higher Tax Bracket and Increased My Medicare Premiums. Is the Increase Permanent?](https://finance.yahoo.com/news/withdrew-95k-retirement-plan-put-001212716.html)
+- Dec 31 - [Roberts warns against ignoring Supreme Court rulings as tension with Trump looms](https://www.yahoo.com/news/roberts-warns-against-ignoring-supreme-230153286.html)
+- Dec 31 - [NYC jail staff blocked medics from treating 23-year-old woman who died weeks later](https://www.yahoo.com/news/nyc-jail-staff-blocked-medics-225857478.html)
+- Dec 31 - [Picturesque Oregon landmark blown over in holiday windstorm](https://www.yahoo.com/news/picturesque-oregon-landmark-blown-over-224909783.html)
 <!-- feed end -->
 
 ### Onstream
