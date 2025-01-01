@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [Want $2,000 in Annual Dividends? Invest $11,000 in Each of These 3 Stocks.](https://finance.yahoo.com/news/want-2-000-annual-dividends-125500782.html)
+- Jan 01 - [Astrologer Aliza Kelly Reveals 2025 Predictions for Each Zodiac Sign](https://www.yahoo.com/lifestyle/astrologer-aliza-kelly-reveals-2025-110000842.html)
+- Jan 01 - [North Korea's Kim Jong Un attends New Year's celebrations, receives card from China's Xi, KCNA says](https://www.yahoo.com/news/north-koreas-kim-jong-un-102450706.html)
 - Jan 01 - [This Woman Shocked The Internet By Revealing "Postpartum Stink" Is A Thing, So Experts Are Explaining Why This Happens To New Moms](https://www.yahoo.com/lifestyle/woman-shocked-internet-revealing-postpartum-033102357.html)
 - Jan 01 - [Taiwan president wants exchanges with China, sees lack of goodwill](https://www.yahoo.com/news/taiwan-president-says-welcomes-exchanges-010852219.html)
-- Jan 01 - [Instead of partying, thousands turn New Year celebration into anti-government protest in Serbia](https://www.yahoo.com/news/instead-partying-thousands-turn-celebration-001256116.html)
-- Dec 31 - [NYC jail staff blocked medics from treating 23-year-old woman who died weeks later](https://www.yahoo.com/news/nyc-jail-staff-blocked-medics-225857478.html)
-- Dec 31 - [Picturesque Oregon landmark blown over in holiday windstorm](https://www.yahoo.com/news/picturesque-oregon-landmark-blown-over-224909783.html)
 <!-- feed end -->
 
 ### Onstream
