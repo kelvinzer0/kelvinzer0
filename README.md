@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Screams and lifeless bodies filled street as new year celebrations turned to terror](https://www.yahoo.com/news/screams-lifeless-bodies-filled-street-184443866.html)
-- Jan 01 - [New Orleans driver suspected of killing 10 and injuring 35 identified: FBI](https://www.yahoo.com/news/orleans-driver-killed-10-injured-181024952.html)
+- Jan 01 - [Weight-loss surgery patient died after hospital’s ‘failings’ during junior doctors’ strike](https://www.yahoo.com/news/weight-loss-surgery-patient-died-192831069.html)
+- Jan 01 - [If You Make a 6-Figure Salary and Still Don’t Feel Rich, You Could Be a ‘HENRY’](https://finance.yahoo.com/news/6-figure-salary-still-don-190220885.html)
+- Jan 01 - [Grandmother ‘nearly drowned’ in sinkhole while trying to save her dog](https://www.yahoo.com/news/grandmother-nearly-drowned-sinkhole-while-185741453.html)
 - Jan 01 - [Russia warns of severe environmental damage as oil from damaged tankers washes up on beaches](https://www.yahoo.com/news/russia-warns-severe-environmental-damage-180729567.html)
-- Jan 01 - [Five killed and emergency workers targeted as firework chaos mars Germany’s New Year celebrations](https://www.yahoo.com/news/five-killed-emergency-workers-targeted-160610090.html)
 - Jan 01 - [The Average Millionaire Has 7 Streams Of Income, According To The IRS – Can You Guess What They Are?](https://finance.yahoo.com/news/average-millionaire-7-streams-income-160022858.html)
 <!-- feed end -->
 
