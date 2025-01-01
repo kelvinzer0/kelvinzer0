@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [Topeka intervenes to clean up and cite landlord over trash piles at apartments](https://www.yahoo.com/news/topeka-intervenes-clean-cite-landlord-221948215.html)
-- Dec 31 - [Michigan couple die days apart after separate accidents between Christmas and New Year's Day](https://www.yahoo.com/news/michigan-couple-die-days-apart-220548617.html)
-- Dec 31 - [Photos show how the Times Square ball has evolved over its 117-year history](https://www.yahoo.com/lifestyle/photos-show-times-square-ball-220345325.html)
-- Dec 31 - [Nostradamus' predications for 2025](https://www.yahoo.com/entertainment/nostradamus-predications-2025-185644504.html)
-- Dec 31 - [What is a jumbo money market account, and where can you find the best rates?](https://finance.yahoo.com/personal-finance/banking/article/best-jumbo-money-market-rates-185203108.html)
+- Jan 01 - [Instead of partying, thousands turn New Year celebration into anti-government protest in Serbia](https://www.yahoo.com/news/instead-partying-thousands-turn-celebration-001256116.html)
+- Jan 01 - [I Withdrew $95k from My Retirement Plan This Year But It Put Me in a Higher Tax Bracket and Increased My Medicare Premiums. Is the Increase Permanent?](https://finance.yahoo.com/news/withdrew-95k-retirement-plan-put-001212716.html)
+- Jan 01 - [Yukon coroner investigating second death at Whitehorse shelter in less than two weeks](https://www.yahoo.com/news/yukon-coroner-investigating-second-death-000419178.html)
+- Dec 31 - [NYC jail staff blocked medics from treating 23-year-old woman who died weeks later](https://www.yahoo.com/news/nyc-jail-staff-blocked-medics-225857478.html)
+- Dec 31 - [Picturesque Oregon landmark blown over in holiday windstorm](https://www.yahoo.com/news/picturesque-oregon-landmark-blown-over-224909783.html)
 <!-- feed end -->
 
 ### Onstream
