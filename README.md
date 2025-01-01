@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Microsoft CEO Satya Nadella Just Said Something That Could Be Terrible News for Nvidia but Great News for This Commodity Stock in 2025](https://finance.yahoo.com/news/microsoft-ceo-satya-nadella-just-143000753.html)
-- Jan 01 - [Suspected driver who slammed truck into New Orleans crowd is dead, sources say](https://www.yahoo.com/news/suspected-driver-slammed-truck-orleans-141723816.html)
-- Jan 01 - [Plane crashes at Naples Airport early Wednesday: What to know](https://www.yahoo.com/news/plane-crashes-naples-airport-early-135808340.html)
-- Jan 01 - [Historic ski resort announces immediate closure after battling decade of insurmountable conditions: 'Mother nature has not been kind to us'](https://www.yahoo.com/news/historic-ski-resort-announces-immediate-104500056.html)
-- Jan 01 - [North Korea's Kim Jong Un attends New Year's celebrations, receives card from China's Xi, KCNA says](https://www.yahoo.com/news/north-koreas-kim-jong-un-102450706.html)
+- Jan 01 - [Screams and lifeless bodies filled street as new year celebrations turned to terror](https://www.yahoo.com/news/screams-lifeless-bodies-filled-street-184443866.html)
+- Jan 01 - [New Orleans driver suspected of killing 10 and injuring 35 identified: FBI](https://www.yahoo.com/news/orleans-driver-killed-10-injured-181024952.html)
+- Jan 01 - [Russia warns of severe environmental damage as oil from damaged tankers washes up on beaches](https://www.yahoo.com/news/russia-warns-severe-environmental-damage-180729567.html)
+- Jan 01 - [Five killed and emergency workers targeted as firework chaos mars Germany’s New Year celebrations](https://www.yahoo.com/news/five-killed-emergency-workers-targeted-160610090.html)
+- Jan 01 - [The Average Millionaire Has 7 Streams Of Income, According To The IRS – Can You Guess What They Are?](https://finance.yahoo.com/news/average-millionaire-7-streams-income-160022858.html)
 <!-- feed end -->
 
 ### Onstream
