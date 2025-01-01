@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Trump's New Year's Eve party at Mar-a-Lago: Did Musk show up? Who else attended?](https://www.yahoo.com/news/trumps-years-eve-party-mar-153531580.html)
-- Jan 01 - [Top US Dividend Stocks To Watch In January 2025](https://finance.yahoo.com/news/top-us-dividend-stocks-watch-150643137.html)
-- Jan 01 - [FDA Announces Popular Eye Drop Recall Over Fungal Contamination](https://www.yahoo.com/lifestyle/fda-announces-popular-eye-drop-145800177.html)
-- Jan 01 - [Suspected driver who slammed truck into New Orleans crowd is dead, sources say](https://www.yahoo.com/news/suspected-driver-slammed-truck-orleans-141723816.html)
+- Jan 01 - [Dump Truck Helps End Police Chase](https://autos.yahoo.com/dump-truck-helps-end-police-123000841.html)
 - Jan 01 - [Plane crashes at Naples Airport early Wednesday: What to know](https://www.yahoo.com/news/plane-crashes-naples-airport-early-135808340.html)
+- Jan 01 - [North Korea's Kim Jong Un attends New Year's celebrations, receives card from China's Xi, KCNA says](https://www.yahoo.com/news/north-koreas-kim-jong-un-102450706.html)
+- Jan 01 - [There are so many drones in Ukraine that operators are stumbling onto enemy drone feeds and picking up intel](https://www.yahoo.com/news/many-drones-ukraine-operators-stumbling-081701980.html)
+- Jan 01 - [This Woman Shocked The Internet By Revealing "Postpartum Stink" Is A Thing, So Experts Are Explaining Why This Happens To New Moms](https://www.yahoo.com/lifestyle/woman-shocked-internet-revealing-postpartum-033102357.html)
 <!-- feed end -->
 
 ### Onstream
