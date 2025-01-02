@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Australian airline crew members allegedly raped and robbed in Fiji](https://www.yahoo.com/news/australian-airline-crew-members-allegedly-060725142.html)
 - Jan 02 - [Biden is giving the second highest civilian award to the leaders of the Jan. 6 congressional panel](https://www.yahoo.com/news/biden-giving-second-highest-civilian-050005441.html)
 - Jan 02 - [New Orleans attack suspect discussed plans to kill his family and join ISIS in chilling recordings. Here’s what we know](https://www.yahoo.com/news/army-vet-worked-real-estate-224114226.html)
-- Jan 02 - [China's BYD closes in on Tesla as sales jump](https://finance.yahoo.com/news/chinas-byd-closes-tesla-sales-021953586.html)
 - Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
+- Jan 02 - [South Korea police search Jeju Air, airport operator over fatal plane crash](https://www.yahoo.com/news/south-korea-police-raid-jeju-021213342.html)
+- Jan 01 - [Virgin Australia crew allegedly raped, robbed in Fiji](https://www.yahoo.com/news/virgin-australia-says-aware-incident-231318075.html)
 <!-- feed end -->
 
 ### Onstream
