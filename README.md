@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Woman arrested for alleged trespassing for second time in 3 days at Seattle airport](https://www.yahoo.com/news/woman-arrested-alleged-trespassing-second-214251971.html)
+- Jan 02 - [Video shows Army solider's actions before Tesla Cybertruck blows up near Trump’s Las Vegas hotel](https://www.yahoo.com/news/video-shows-army-soliders-actions-212348206.html)
 - Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
-- Jan 02 - [Nancy Mace’s Capitol Hill Bathroom Ban Was Left Out of Republicans’ House Rules Proposal](https://www.yahoo.com/news/nancy-mace-capitol-hill-bathroom-203712955.html)
-- Jan 02 - [Our village will be ‘ruined’ by new housing, residents warn](https://www.yahoo.com/news/village-ruined-housing-residents-warn-202857897.html)
-- Jan 02 - [Suspected Las Vegas Cybertruck Bomber Was a ‘Big’ Trump Supporter: Source](https://www.yahoo.com/news/suspected-las-vegas-cybertruck-bomber-184808920.html)
-- Jan 02 - [Slovakia will discuss retaliation after Ukraine's gas transit 'sabotage', says Fico](https://www.yahoo.com/news/slovakia-discuss-retaliation-ukraines-gas-184543337.html)
+- Jan 02 - [Ukraine's Zelenskiy: Trump can be decisive in helping stop Russia's Putin](https://www.yahoo.com/news/ukraines-zelenskiy-trump-decisive-helping-204642544.html)
+- Jan 02 - [Steelworkers union criticizes Nippon Steel's proposal for lack of long-term commitment](https://finance.yahoo.com/news/steelworkers-union-criticizes-nippon-steels-204317089.html)
 <!-- feed end -->
 
 ### Onstream
