@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Constellation Energy Lands Over $1 Billion In GSA Contracts To Power Federal Agencies; Stock Gains](https://finance.yahoo.com/news/constellation-energy-lands-over-1-172717782.html)
-- Jan 02 - [James Carville admits why Democrats lost and he was wrong. He didn’t listen to himself](https://www.yahoo.com/news/james-carville-admits-why-democrats-172453979.html)
+- Jan 02 - [Man, 22, dies in Augusta crash during morning work rush](https://www.yahoo.com/news/man-22-dies-augusta-crash-180545209.html)
 - Jan 02 - [Melania Trump Wears Draped Versace Gown for Mar-a-Lago New Year’s Eve Party](https://www.yahoo.com/lifestyle/melania-trump-wears-draped-versace-171333937.html)
-- Jan 02 - [New Orleans attack suspect discussed plans to kill his family and join ISIS in chilling recordings. Here’s what we know](https://www.yahoo.com/news/army-vet-worked-real-estate-224114226.html)
-- Jan 02 - [The man who died in a Tesla Cybertruck explosion was an active-duty US Army Green Beret](https://www.yahoo.com/news/man-died-tesla-cybertruck-explosion-153834390.html)
+- Jan 02 - [US appeals court blocks Biden administration effort to restore net neutrality rules](https://www.yahoo.com/tech/us-appeals-court-blocks-biden-170421216.html)
+- Jan 02 - [Snow in Florida? Here's what Jacksonville meteorologists say about incoming cold wave](https://www.yahoo.com/news/snow-florida-heres-jacksonville-meteorologists-162543993.html)
+- Jan 02 - [MAGA Senator Decides Terror Presser Is Perfect Time for Weird Joke](https://www.yahoo.com/news/maga-senator-decides-terror-presser-162044367.html)
 <!-- feed end -->
 
 ### Onstream
