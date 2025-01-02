@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Free Speech Lover Elon Musk Defends Petty Way He Censored His Critics](https://www.yahoo.com/news/free-speech-lover-elon-musk-154313662.html)
+- Jan 02 - [The man who died in a Tesla Cybertruck explosion was an active-duty US Army soldier, officials say](https://www.yahoo.com/news/man-died-tesla-cybertruck-explosion-153834390.html)
+- Jan 02 - [Trump flunks 3 key tests following deadly New Orleans attack](https://www.yahoo.com/news/maddow-blog-trump-flunks-3-141208877.html)
 - Jan 02 - [Cruise line cancels stops at ‘violent’ Mexican port following do not travel warning](https://www.yahoo.com/news/cruise-line-cancels-stops-violent-141715860.html)
 - Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
-- Jan 02 - [Cybertruck bomber was military veteran who used same car share app as New Orleans attacker](https://www.yahoo.com/news/cybertruck-bomber-military-veteran-used-135211561.html)
-- Jan 02 - [Biden, Trump with different responses to New Orleans truck attack](https://www.yahoo.com/news/biden-trump-different-responses-orleans-130446034.html)
-- Jan 02 - [10 people are wounded in a shooting outside a New York City nightclub](https://www.yahoo.com/news/10-people-shot-outside-queens-083918886.html)
 <!-- feed end -->
 
 ### Onstream
