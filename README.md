@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Tesla Cybertruck that exploded and the New Orleans attack vehicle were both rented using the Turo app](https://www.yahoo.com/news/tesla-cybertruck-exploded-orleans-attack-010751506.html)
 - Jan 02 - [New Orleans attack suspect discussed plans to kill his family and join ISIS in chilling recordings. Here’s what we know](https://www.yahoo.com/news/army-vet-worked-real-estate-224114226.html)
 - Jan 01 - [Doctors And Nurses Are Sharing The Wildest Self-Diagnoses That Patients Were Actually Right About](https://www.yahoo.com/lifestyle/doctors-nurses-sharing-wildest-self-233102044.html)
 - Jan 01 - [Virgin Australia crew allegedly raped, robbed in Fiji, police investigating](https://www.yahoo.com/news/virgin-australia-says-aware-incident-231318075.html)
 - Jan 01 - [An aspiring nurse, football star, single mother and father of 2 killed in New Orleans attack](https://www.yahoo.com/news/aspiring-nurse-football-star-father-225740377.html)
+- Jan 01 - [Heavy snowfall expected to blanket much of central Iowa early Thursday morning. What to know:](https://www.yahoo.com/news/heavy-snowfall-expected-blanket-much-224658922.html)
 <!-- feed end -->
 
 ### Onstream
