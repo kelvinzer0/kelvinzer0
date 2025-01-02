@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [2 men injured in shooting at East El Paso bar](https://www.yahoo.com/news/2-men-injured-shooting-east-200218116.html)
+- Jan 02 - [New Orleans attack suspect discussed plans to kill his family and join ISIS in chilling recordings. Here’s what we know](https://www.yahoo.com/news/army-vet-worked-real-estate-224114226.html)
+- Jan 01 - [Fiji police investigating alleged rape, theft of Virgin Australia crew members](https://www.yahoo.com/news/virgin-australia-says-aware-incident-231318075.html)
+- Jan 01 - [The 10 best healthy snacks on Amazon, according to registered dietitians](https://www.yahoo.com/lifestyle/best-healthy-snacks-on-amazon-201255279.html)
 - Jan 01 - [1 person dies when Tesla Cybertruck catches fire and explodes outside Trump's Las Vegas hotel](https://www.yahoo.com/news/vehicle-catches-fire-explodes-outside-193158109.html)
-- Jan 01 - [Russia warns of severe environmental damage as oil from damaged tankers washes up on beaches](https://www.yahoo.com/news/russia-warns-severe-environmental-damage-180729567.html)
-- Jan 01 - [ISIS Flag-Carrying Army Vet Accused of Mowing Down 15 on New Orleans’ Bourbon Street](https://www.yahoo.com/news/man-killed-10-orleans-terror-180036204.html)
-- Jan 01 - [Sugar Bowl CFP quarterfinal between Georgia and Notre Dame postponed after deadly truck attack](https://sports.yahoo.com/superdome-orleans-lockdown-security-sweeps-171826719.html)
+- Jan 01 - [When will winter storm hit Kansas City, and how much snow will fall? Here’s what we know](https://www.yahoo.com/news/winter-storm-hit-kansas-city-183519344.html)
 <!-- feed end -->
 
 ### Onstream
