@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - ['Probably leads to China': How to report potholes in Bloomington, Monroe County](https://www.yahoo.com/news/probably-leads-china-report-potholes-094528030.html)
+- Jan 02 - [Office pool: What will the new Trump administration hold in store? | Opinion](https://www.yahoo.com/news/office-pool-trump-administration-hold-094957157.html)
+- Jan 02 - [Stimulus checks from IRS could be coming your way. Are you eligible?](https://finance.yahoo.com/news/stimulus-checks-irs-could-coming-093534546.html)
 - Jan 02 - [Biden is giving the second highest civilian award to the leaders of the Jan. 6 congressional panel](https://www.yahoo.com/news/biden-giving-second-highest-civilian-050005441.html)
 - Jan 02 - [New Orleans attack suspect discussed plans to kill his family and join ISIS in chilling recordings. Here’s what we know](https://www.yahoo.com/news/army-vet-worked-real-estate-224114226.html)
-- Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
-- Jan 02 - [Las Vegas police believe Tesla Cybertruck fire 'an isolated incident,' thank Elon Musk for data](https://www.yahoo.com/news/las-vegas-police-believe-tesla-005213489.html)
+- Jan 02 - [China's BYD closes in on Tesla as sales jump](https://finance.yahoo.com/news/chinas-byd-closes-tesla-sales-021953586.html)
 <!-- feed end -->
 
 ### Onstream
