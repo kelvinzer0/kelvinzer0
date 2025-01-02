@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Ukrainian soldiers trained by French army go AWOL before shot fired](https://www.yahoo.com/news/ukrainian-soldiers-trained-french-army-134140547.html)
-- Jan 02 - [Warren Buffett Puts Cash Reserves To Work Buying S&P 500 Underperformer](https://www.investors.com/news/warren-buffett-buys-underperforming-sp-500-stock/?src=A00220&yptr=yahoo)
+- Jan 02 - [Cruise line cancels stops at ‘violent’ Mexican port following do not travel warning](https://www.yahoo.com/news/cruise-line-cancels-stops-violent-141715860.html)
+- Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
+- Jan 02 - [Cybertruck bomber was military veteran who used same car share app as New Orleans attacker](https://www.yahoo.com/news/cybertruck-bomber-military-veteran-used-135211561.html)
 - Jan 02 - [Biden, Trump with different responses to New Orleans truck attack](https://www.yahoo.com/news/biden-trump-different-responses-orleans-130446034.html)
-- Jan 02 - [Morgan Stanley to leave sector climate coalition](https://finance.yahoo.com/news/morgan-stanley-leave-sector-climate-130430148.html)
-- Jan 02 - [Suspected Chinese underwater spy drone found by fishermen](https://www.yahoo.com/news/suspected-chinese-underwater-spy-drone-122954668.html)
+- Jan 02 - [10 people are wounded in a shooting outside a New York City nightclub](https://www.yahoo.com/news/10-people-shot-outside-queens-083918886.html)
 <!-- feed end -->
 
 ### Onstream
