@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Man, 22, dies in Augusta crash during morning work rush](https://www.yahoo.com/news/man-22-dies-augusta-crash-180545209.html)
+- Jan 02 - [FAA issues drone flight restrictions above Hudson Yards citing 'special security reasons'](https://www.yahoo.com/news/faa-issues-drone-flight-restrictions-185805002.html)
+- Jan 02 - [Elmira orthodontics office abruptly closes, patients left scrambling to find alternatives](https://www.yahoo.com/news/elmira-orthodontics-office-abruptly-closes-185738469.html)
+- Jan 02 - [Slovakia will discuss retaliation after Ukraine's gas transit 'sabotage', says Fico](https://www.yahoo.com/news/slovakia-discuss-retaliation-ukraines-gas-184543337.html)
+- Jan 02 - [‘If someone wants more surgery, there’s no stopping them’: The changing face of Jocelyn Wildenstein](https://www.yahoo.com/entertainment/someone-wants-more-surgery-no-182656161.html)
 - Jan 02 - [Melania Trump Wears Draped Versace Gown for Mar-a-Lago New Year’s Eve Party](https://www.yahoo.com/lifestyle/melania-trump-wears-draped-versace-171333937.html)
-- Jan 02 - [US appeals court blocks Biden administration effort to restore net neutrality rules](https://www.yahoo.com/tech/us-appeals-court-blocks-biden-170421216.html)
-- Jan 02 - [Snow in Florida? Here's what Jacksonville meteorologists say about incoming cold wave](https://www.yahoo.com/news/snow-florida-heres-jacksonville-meteorologists-162543993.html)
-- Jan 02 - [MAGA Senator Decides Terror Presser Is Perfect Time for Weird Joke](https://www.yahoo.com/news/maga-senator-decides-terror-presser-162044367.html)
 <!-- feed end -->
 
 ### Onstream
