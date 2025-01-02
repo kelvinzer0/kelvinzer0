@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Tesla Cybertruck that exploded and the New Orleans attack vehicle were both rented using the Turo app](https://www.yahoo.com/news/tesla-cybertruck-exploded-orleans-attack-010751506.html)
 - Jan 02 - [New Orleans attack suspect discussed plans to kill his family and join ISIS in chilling recordings. Here’s what we know](https://www.yahoo.com/news/army-vet-worked-real-estate-224114226.html)
-- Jan 01 - [Fiji police investigating alleged rape, theft of Virgin Australia crew members](https://www.yahoo.com/news/virgin-australia-says-aware-incident-231318075.html)
-- Jan 01 - [The 10 best healthy snacks on Amazon, according to registered dietitians](https://www.yahoo.com/lifestyle/best-healthy-snacks-on-amazon-201255279.html)
-- Jan 01 - [1 person dies when Tesla Cybertruck catches fire and explodes outside Trump's Las Vegas hotel](https://www.yahoo.com/news/vehicle-catches-fire-explodes-outside-193158109.html)
-- Jan 01 - [When will winter storm hit Kansas City, and how much snow will fall? Here’s what we know](https://www.yahoo.com/news/winter-storm-hit-kansas-city-183519344.html)
+- Jan 01 - [Doctors And Nurses Are Sharing The Wildest Self-Diagnoses That Patients Were Actually Right About](https://www.yahoo.com/lifestyle/doctors-nurses-sharing-wildest-self-233102044.html)
+- Jan 01 - [Virgin Australia crew allegedly raped, robbed in Fiji, police investigating](https://www.yahoo.com/news/virgin-australia-says-aware-incident-231318075.html)
+- Jan 01 - [An aspiring nurse, football star, single mother and father of 2 killed in New Orleans attack](https://www.yahoo.com/news/aspiring-nurse-football-star-father-225740377.html)
 <!-- feed end -->
 
 ### Onstream
