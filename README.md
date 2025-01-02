@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [FAA issues drone flight restrictions above Hudson Yards citing 'special security reasons'](https://www.yahoo.com/news/faa-issues-drone-flight-restrictions-185805002.html)
-- Jan 02 - [Elmira orthodontics office abruptly closes, patients left scrambling to find alternatives](https://www.yahoo.com/news/elmira-orthodontics-office-abruptly-closes-185738469.html)
+- Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
+- Jan 02 - [Nancy Mace’s Capitol Hill Bathroom Ban Was Left Out of Republicans’ House Rules Proposal](https://www.yahoo.com/news/nancy-mace-capitol-hill-bathroom-203712955.html)
+- Jan 02 - [Our village will be ‘ruined’ by new housing, residents warn](https://www.yahoo.com/news/village-ruined-housing-residents-warn-202857897.html)
+- Jan 02 - [Suspected Las Vegas Cybertruck Bomber Was a ‘Big’ Trump Supporter: Source](https://www.yahoo.com/news/suspected-las-vegas-cybertruck-bomber-184808920.html)
 - Jan 02 - [Slovakia will discuss retaliation after Ukraine's gas transit 'sabotage', says Fico](https://www.yahoo.com/news/slovakia-discuss-retaliation-ukraines-gas-184543337.html)
-- Jan 02 - [‘If someone wants more surgery, there’s no stopping them’: The changing face of Jocelyn Wildenstein](https://www.yahoo.com/entertainment/someone-wants-more-surgery-no-182656161.html)
-- Jan 02 - [Melania Trump Wears Draped Versace Gown for Mar-a-Lago New Year’s Eve Party](https://www.yahoo.com/lifestyle/melania-trump-wears-draped-versace-171333937.html)
 <!-- feed end -->
 
 ### Onstream
