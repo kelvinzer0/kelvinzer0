@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Free Speech Lover Elon Musk Defends Petty Way He Censored His Critics](https://www.yahoo.com/news/free-speech-lover-elon-musk-154313662.html)
-- Jan 02 - [The man who died in a Tesla Cybertruck explosion was an active-duty US Army soldier, officials say](https://www.yahoo.com/news/man-died-tesla-cybertruck-explosion-153834390.html)
-- Jan 02 - [Trump flunks 3 key tests following deadly New Orleans attack](https://www.yahoo.com/news/maddow-blog-trump-flunks-3-141208877.html)
-- Jan 02 - [Cruise line cancels stops at ‘violent’ Mexican port following do not travel warning](https://www.yahoo.com/news/cruise-line-cancels-stops-violent-141715860.html)
+- Jan 02 - [Half of Americans Can't Afford Their Retirement Dreams - Can You Make Yours Work?](https://finance.yahoo.com/news/half-americans-wont-able-afford-162141325.html)
+- Jan 02 - [New Orleans attack suspect discussed plans to kill his family and join ISIS in chilling recordings. Here’s what we know](https://www.yahoo.com/news/army-vet-worked-real-estate-224114226.html)
+- Jan 02 - [How four missing bolts ruined Boeing’s 2024 flight plan](https://www.yahoo.com/news/four-missing-bolts-ruined-boeing-152726965.html)
+- Jan 02 - [Maddow Blog | Trump flunks 3 key tests following deadly New Orleans attack](https://www.yahoo.com/news/maddow-blog-trump-flunks-3-141208877.html)
 - Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
 <!-- feed end -->
 
