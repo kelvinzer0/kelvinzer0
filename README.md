@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Musk urges release of British far-right figurehead](https://www.yahoo.com/news/musk-urges-release-british-far-123732950.html)
-- Jan 02 - [Police look for links between New Orleans and Las Vegas attacks](https://www.yahoo.com/news/police-look-links-between-orleans-123030775.html)
-- Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
-- Jan 02 - [Alligator nicknamed 'Godzilla' hauls massive Burmese python through water in Florida Everglades](https://www.yahoo.com/entertainment/alligator-nicknamed-godzilla-hauls-massive-100529070.html)
-- Jan 02 - [10 people are wounded in a shooting outside a New York City nightclub](https://www.yahoo.com/news/10-people-shot-outside-queens-083918886.html)
+- Jan 02 - [Ukrainian soldiers trained by French army go AWOL before shot fired](https://www.yahoo.com/news/ukrainian-soldiers-trained-french-army-134140547.html)
+- Jan 02 - [Warren Buffett Puts Cash Reserves To Work Buying S&P 500 Underperformer](https://www.investors.com/news/warren-buffett-buys-underperforming-sp-500-stock/?src=A00220&yptr=yahoo)
+- Jan 02 - [Biden, Trump with different responses to New Orleans truck attack](https://www.yahoo.com/news/biden-trump-different-responses-orleans-130446034.html)
+- Jan 02 - [Morgan Stanley to leave sector climate coalition](https://finance.yahoo.com/news/morgan-stanley-leave-sector-climate-130430148.html)
+- Jan 02 - [Suspected Chinese underwater spy drone found by fishermen](https://www.yahoo.com/news/suspected-chinese-underwater-spy-drone-122954668.html)
 <!-- feed end -->
 
 ### Onstream
