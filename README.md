@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [Father of Sara Sharif ‘attacked in prison with tuna tin lid’](https://www.yahoo.com/news/father-sara-sharif-attacked-prison-040156891.html)
 - Jan 03 - ["We arrived four hours early to see London NYE fireworks - it was a waste of time"](https://www.yahoo.com/news/arrived-four-hours-early-see-105528261.html)
+- Jan 03 - [Welcome to the New World Order of automakers. Soon, only the big survive](https://finance.yahoo.com/news/welcome-world-order-automakers-soon-100042100.html)
+- Jan 03 - [‘We’re in the end game’: Why Kyiv’s blow to Russian gas threatens is dividing Europe](https://www.yahoo.com/news/why-ukraine-gas-pipeline-closure-093000276.html)
 - Jan 03 - [Trump calls to 'open up' North Sea, get rid of windmills](https://www.yahoo.com/news/trump-calls-open-north-sea-071948433.html)
-- Jan 03 - [Apple's China troubles mount as foreign phone sales sink for 4th month](https://finance.yahoo.com/news/foreign-smartphone-shipments-china-slump-071538871.html)
-- Jan 03 - [Israel struggles to deter escalating attacks from Yemen's Houthi rebels as other fronts calm](https://www.yahoo.com/news/israel-struggles-deter-escalating-attacks-070056643.html)
-- Jan 03 - [Kim Jong Un's sister seen with children in state media images](https://www.yahoo.com/news/kim-jong-uns-sister-seen-065431919.html)
 <!-- feed end -->
 
 ### Onstream
