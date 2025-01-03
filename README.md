@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Little Amal, symbol of refugee children, tours Chile](https://www.yahoo.com/news/little-amal-symbol-refugee-children-200451900.html)
-- Jan 03 - [Mike Johnson Wins Reelection As House Speaker After Convincing Two First Ballot Holdouts To Switch Votes](https://www.yahoo.com/news/mike-johnson-wins-reelection-house-193629778.html)
-- Jan 03 - [Nancy Pelosi Takes a Big Step Down for Comeback to Congress](https://www.yahoo.com/news/nancy-pelosi-takes-big-step-192104139.html)
-- Jan 03 - [2 autopsies for Black man found hanging in Alabama produce differing conclusions](https://www.yahoo.com/news/2-autopsies-black-man-found-191917130.html)
-- Jan 03 - [New Majority Leader Thune kicks off Senate session with pledge to preserve filibuster](https://www.yahoo.com/news/majority-leader-thune-kicks-off-191854604.html)
+- Jan 03 - [Adobe: UBS cuts price target on AI headwinds](https://finance.yahoo.com/video/adobe-ubs-cuts-price-target-210252569.html)
+- Jan 03 - [If winter storm causes Kansas power outages, Evergy restoration could take days](https://www.yahoo.com/news/winter-storm-causes-kansas-power-201540927.html)
+- Jan 03 - [Net Worth for Retirees: How To Tell Whether You’re Poor, Middle Class or Rich](https://finance.yahoo.com/news/net-worth-retirees-tell-whether-155106510.html)
+- Jan 03 - [Pilot made a panicked attempt to land before a crash in Southern California that killed 2](https://www.yahoo.com/news/pilot-made-panicked-attempt-land-195632482.html)
+- Jan 03 - [Donald Trump fumes over flag flying at half-staff to honor Jimmy Carter during inauguration](https://www.yahoo.com/news/donald-trump-fumes-over-flag-195014501.html)
 <!-- feed end -->
 
 ### Onstream
