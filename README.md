@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [China urges safety assessments after deadly year in commercial aviation](https://www.yahoo.com/news/china-urges-safety-assessments-deadly-054941330.html)
 - Jan 03 - [Matt Gaetz Unveils Radical New Look During MAGA TV Debut](https://www.yahoo.com/news/matt-gaetz-unveils-radical-look-040415653.html)
-- Jan 03 - [Trouble in China's shopping paradise as Hainan duty-free spending falls 29%](https://finance.yahoo.com/news/trouble-chinas-shopping-paradise-hainan-024047535.html)
-- Jan 03 - [10 years after attack, Charlie Hebdo is uncowed and still provoking](https://www.yahoo.com/news/10-years-attack-charlie-hebdo-021624177.html)
-- Jan 03 - [Second Homeland Security agent in Utah charged with selling illicit drugs from evidence](https://www.yahoo.com/news/second-homeland-security-agent-utah-001632873.html)
-- Jan 03 - [Fox Host Forces Trump’s Border Czar to Admit He Has No Proof for Terror Attack Claims](https://www.yahoo.com/news/fox-host-forces-trump-border-000254863.html)
+- Jan 03 - [Trouble in China's shopping paradise as Hainan duty-free spending tumbles](https://finance.yahoo.com/news/trouble-chinas-shopping-paradise-hainan-024047535.html)
+- Jan 02 - [Study estimates when Yellowstone National Park's giant supervolcano will erupt again](https://www.yahoo.com/news/study-estimates-yellowstone-national-parks-235028996.html)
+- Jan 02 - [US Supreme Court's Thomas will not be referred to Justice Department](https://www.yahoo.com/news/us-supreme-courts-thomas-not-231126068.html)
 <!-- feed end -->
 
 ### Onstream
