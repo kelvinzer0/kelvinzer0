@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Trump’s Johnson Fails First Test So Far to Remain Speaker](https://www.yahoo.com/news/trump-johnson-fails-first-test-183525162.html)
-- Jan 03 - [Food inflation: These are the 'problem spots' for consumers](https://finance.yahoo.com/video/food-inflation-problem-spots-consumers-183000181.html)
-- Jan 03 - [Menendez’s lawyers seek lenient sentence, saying conviction made him a ‘national punchline’](https://www.yahoo.com/news/menendez-lawyers-seek-lenient-sentence-153116659.html)
-- Jan 03 - [Surgeon General: Two alcoholic drinks a day increases risks for seven types of cancer](https://www.yahoo.com/news/surgeon-general-two-alcoholic-drinks-151425802.html)
-- Jan 03 - [Trump Fans Are Finding Out How Much He Actually Cares About Them](https://www.yahoo.com/news/trump-fans-finding-much-actually-144626660.html)
+- Jan 03 - [Little Amal, symbol of refugee children, tours Chile](https://www.yahoo.com/news/little-amal-symbol-refugee-children-200451900.html)
+- Jan 03 - [Mike Johnson Wins Reelection As House Speaker After Convincing Two First Ballot Holdouts To Switch Votes](https://www.yahoo.com/news/mike-johnson-wins-reelection-house-193629778.html)
+- Jan 03 - [Nancy Pelosi Takes a Big Step Down for Comeback to Congress](https://www.yahoo.com/news/nancy-pelosi-takes-big-step-192104139.html)
+- Jan 03 - [2 autopsies for Black man found hanging in Alabama produce differing conclusions](https://www.yahoo.com/news/2-autopsies-black-man-found-191917130.html)
+- Jan 03 - [New Majority Leader Thune kicks off Senate session with pledge to preserve filibuster](https://www.yahoo.com/news/majority-leader-thune-kicks-off-191854604.html)
 <!-- feed end -->
 
 ### Onstream
