@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Biden's final actions as president leave some transgender people feeling unsupported](https://www.yahoo.com/news/bidens-final-actions-president-leave-121712446.html)
+- Jan 03 - [EV maker Rivian beats expectations for deliveries as supply snag eases](https://finance.yahoo.com/news/ev-maker-rivian-beats-expectations-133457252.html)
+- Jan 03 - [Trump calls on Britain to dismantle North Sea wind turbines](https://www.yahoo.com/news/trump-calls-britain-dismantle-north-131718727.html)
 - Jan 03 - [By blaming Biden for the New Orleans attack, Trump may be setting himself up for failure](https://www.yahoo.com/news/blaming-biden-orleans-attack-trump-120000579.html)
-- Jan 03 - [A transatlantic United Airlines flight turned around after being struck by  lightning on New Year's Eve](https://www.yahoo.com/news/transatlantic-united-airlines-flight-turned-111315560.html)
 - Jan 03 - [Scientists develop 'sustainable shield' tech on quest to harness limitless energy source: '[It] could play a vital role in the future'](https://www.yahoo.com/tech/scientists-develop-sustainable-shield-tech-110028825.html)
 - Jan 03 - [China's COMAC, maker of C919 jet, aims for Southeast Asian flights by 2026](https://finance.yahoo.com/news/chinas-comac-maker-c919-jet-100453034.html)
 <!-- feed end -->
