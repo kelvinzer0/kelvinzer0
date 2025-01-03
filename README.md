@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Father of Sara Sharif ‘attacked in prison with tuna tin lid’](https://www.yahoo.com/news/father-sara-sharif-attacked-prison-040156891.html)
-- Jan 03 - [What bitcoin's adoption momentum hopes to achieve in 2025](https://finance.yahoo.com/video/bitcoins-adoption-momentum-hopes-achieve-145500704.html)
+- Jan 03 - [House speaker vote live updates: Mike Johnson's fate could hinge on a single GOP vote](https://www.yahoo.com/news/house-speaker-vote-live-updates-151100315.html)
+- Jan 03 - [How Texas investigators unraveled the murder of Texas teen Livye Lewis](https://www.yahoo.com/news/texas-investigators-unraveled-murder-texas-142202538.html)
+- Jan 03 - [Fisherman warned of ‘big angry’ shark in water before surfer attacked](https://www.yahoo.com/news/fisherman-warned-big-angry-shark-135618181.html)
 - Jan 03 - [‘Mystery volcano’ that erupted and cooled Earth in 1831 has finally been identified](https://www.yahoo.com/news/mystery-volcano-erupted-cooled-earth-131746000.html)
 - Jan 03 - [Trump calls on Britain to dismantle North Sea wind turbines](https://www.yahoo.com/news/trump-calls-britain-dismantle-north-131718727.html)
-- Jan 03 - [Biden's final actions as president leave some transgender people feeling unsupported](https://www.yahoo.com/news/bidens-final-actions-president-leave-121712446.html)
 <!-- feed end -->
 
 ### Onstream
