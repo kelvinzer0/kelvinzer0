@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [NYC woman in custody for stabbing US Postal Service worker to death in dispute at deli sandwich line](https://www.yahoo.com/news/nyc-woman-custody-stabbing-us-012300138.html)
 - Jan 03 - [Second Homeland Security agent in Utah charged with selling illicit drugs from evidence](https://www.yahoo.com/news/second-homeland-security-agent-utah-001632873.html)
+- Jan 02 - [Study estimates when Yellowstone National Park's giant supervolcano will erupt again](https://www.yahoo.com/news/study-estimates-yellowstone-national-parks-235028996.html)
+- Jan 02 - [Shasta sheriff's deputies shoot, kill man on New Year's Day north of Redding](https://www.yahoo.com/news/shasta-sheriffs-deputies-shoot-kill-234445277.html)
 - Jan 02 - [US Supreme Court's Thomas will not be referred to Justice Department, judiciary says](https://www.yahoo.com/news/us-supreme-courts-thomas-not-231126068.html)
 - Jan 02 - [Cheney gets standing ovation as Biden awards Presidential Citizens Medal](https://www.yahoo.com/news/cheney-gets-standing-ovation-biden-230721644.html)
-- Jan 02 - [FBI releases new video of a suspect planting a pipe bomb near DNC offices on eve of the Capitol riot](https://www.yahoo.com/news/fbi-releases-video-suspect-planting-230513512.html)
 <!-- feed end -->
 
 ### Onstream
