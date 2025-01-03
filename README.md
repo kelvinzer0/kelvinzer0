@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 03 - [China urges safety assessments after deadly year in commercial aviation](https://www.yahoo.com/news/china-urges-safety-assessments-deadly-054941330.html)
+- Jan 03 - [Girl gets $700,000 settlement; lawsuit claimed she suffered permanent leg injury at UNM Hospital](https://www.yahoo.com/news/girl-gets-700-000-settlement-045900517.html)
 - Jan 03 - [Matt Gaetz Unveils Radical New Look During MAGA TV Debut](https://www.yahoo.com/news/matt-gaetz-unveils-radical-look-040415653.html)
 - Jan 03 - [Trouble in China's shopping paradise as Hainan duty-free spending tumbles](https://finance.yahoo.com/news/trouble-chinas-shopping-paradise-hainan-024047535.html)
-- Jan 02 - [Study estimates when Yellowstone National Park's giant supervolcano will erupt again](https://www.yahoo.com/news/study-estimates-yellowstone-national-parks-235028996.html)
-- Jan 02 - [US Supreme Court's Thomas will not be referred to Justice Department](https://www.yahoo.com/news/us-supreme-courts-thomas-not-231126068.html)
+- Jan 03 - [Inside Israel’s Commando Raid On Iran’s Underground Missile Factory In Syria](https://www.yahoo.com/news/inside-israel-commando-raid-iran-005726284.html)
 <!-- feed end -->
 
 ### Onstream
