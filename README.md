@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - ["We arrived four hours early to see London NYE fireworks - it was a waste of time"](https://www.yahoo.com/news/arrived-four-hours-early-see-105528261.html)
+- Jan 03 - [Trump calls to 'open up' North Sea, get rid of windmills](https://www.yahoo.com/news/trump-calls-open-north-sea-071948433.html)
+- Jan 03 - [Apple's China troubles mount as foreign phone sales sink for 4th month](https://finance.yahoo.com/news/foreign-smartphone-shipments-china-slump-071538871.html)
 - Jan 03 - [Israel struggles to deter escalating attacks from Yemen's Houthi rebels as other fronts calm](https://www.yahoo.com/news/israel-struggles-deter-escalating-attacks-070056643.html)
-- Jan 03 - [Matt Gaetz Unveils Radical New Look During MAGA TV Debut](https://www.yahoo.com/news/matt-gaetz-unveils-radical-look-040415653.html)
-- Jan 03 - [Trouble in China's shopping paradise as Hainan duty-free spending tumbles](https://finance.yahoo.com/news/trouble-chinas-shopping-paradise-hainan-024047535.html)
-- Jan 03 - [Peter Thiel's Bubble Theory Gains Relevance As Bitcoin Hovers Around $95K: 'Extremely Hard To Define'](https://finance.yahoo.com/news/peter-thiels-bubble-theory-gains-011416536.html)
-- Jan 03 - [Inside Israel’s Commando Raid On Iran’s Underground Missile Factory In Syria](https://www.yahoo.com/news/inside-israel-commando-raid-iran-005726284.html)
+- Jan 03 - [Kim Jong Un's sister seen with children in state media images](https://www.yahoo.com/news/kim-jong-uns-sister-seen-065431919.html)
 <!-- feed end -->
 
 ### Onstream
