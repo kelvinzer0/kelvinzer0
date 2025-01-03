@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 03 - [China urges safety assessments after deadly year in commercial aviation](https://www.yahoo.com/news/china-urges-safety-assessments-deadly-054941330.html)
-- Jan 03 - [Girl gets $700,000 settlement; lawsuit claimed she suffered permanent leg injury at UNM Hospital](https://www.yahoo.com/news/girl-gets-700-000-settlement-045900517.html)
+- Jan 03 - [Senate passes Brown's Social Security Fairness Act](https://www.yahoo.com/news/senate-passes-browns-social-security-045900899.html)
 - Jan 03 - [Matt Gaetz Unveils Radical New Look During MAGA TV Debut](https://www.yahoo.com/news/matt-gaetz-unveils-radical-look-040415653.html)
 - Jan 03 - [Trouble in China's shopping paradise as Hainan duty-free spending tumbles](https://finance.yahoo.com/news/trouble-chinas-shopping-paradise-hainan-024047535.html)
-- Jan 03 - [Inside Israel’s Commando Raid On Iran’s Underground Missile Factory In Syria](https://www.yahoo.com/news/inside-israel-commando-raid-iran-005726284.html)
+- Jan 03 - [Peter Thiel's Bubble Theory Gains Relevance As Bitcoin Hovers Around $95K: 'Extremely Hard To Define'](https://finance.yahoo.com/news/peter-thiels-bubble-theory-gains-011416536.html)
 <!-- feed end -->
 
 ### Onstream
