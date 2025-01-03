@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Father of Sara Sharif ‘attacked in prison with tuna tin lid’](https://www.yahoo.com/news/father-sara-sharif-attacked-prison-040156891.html)
-- Jan 03 - ["We arrived four hours early to see London NYE fireworks - it was a waste of time"](https://www.yahoo.com/news/arrived-four-hours-early-see-105528261.html)
-- Jan 03 - [Welcome to the New World Order of automakers. Soon, only the big survive](https://finance.yahoo.com/news/welcome-world-order-automakers-soon-100042100.html)
-- Jan 03 - [‘We’re in the end game’: Why Kyiv’s blow to Russian gas threatens is dividing Europe](https://www.yahoo.com/news/why-ukraine-gas-pipeline-closure-093000276.html)
-- Jan 03 - [Trump calls to 'open up' North Sea, get rid of windmills](https://www.yahoo.com/news/trump-calls-open-north-sea-071948433.html)
+- Jan 03 - [Biden's final actions as president leave some transgender people feeling unsupported](https://www.yahoo.com/news/bidens-final-actions-president-leave-121712446.html)
+- Jan 03 - [By blaming Biden for the New Orleans attack, Trump may be setting himself up for failure](https://www.yahoo.com/news/blaming-biden-orleans-attack-trump-120000579.html)
+- Jan 03 - [A transatlantic United Airlines flight turned around after being struck by  lightning on New Year's Eve](https://www.yahoo.com/news/transatlantic-united-airlines-flight-turned-111315560.html)
+- Jan 03 - [Scientists develop 'sustainable shield' tech on quest to harness limitless energy source: '[It] could play a vital role in the future'](https://www.yahoo.com/tech/scientists-develop-sustainable-shield-tech-110028825.html)
+- Jan 03 - [China's COMAC, maker of C919 jet, aims for Southeast Asian flights by 2026](https://finance.yahoo.com/news/chinas-comac-maker-c919-jet-100453034.html)
 <!-- feed end -->
 
 ### Onstream
