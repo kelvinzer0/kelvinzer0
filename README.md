@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Passengers say they were put on the streets ‘like animals’ after JetBlue flight to Boston delayed](https://www.yahoo.com/news/passengers-were-put-streets-animals-032440200.html)
-- Jan 02 - [US Steelworkers' union criticizes Nippon Steel's proposal for lack of long-term commitment](https://finance.yahoo.com/news/steelworkers-union-criticizes-nippon-steels-204317089.html)
-- Jan 02 - [Truck Carrying Wedding Party Plunges into River After Missing Bridge, Killing at Least 71](https://www.yahoo.com/entertainment/truck-carrying-wedding-party-plunges-200004091.html)
-- Jan 02 - [Slovakia will discuss retaliation after Ukraine's gas transit 'sabotage', says Fico](https://www.yahoo.com/news/slovakia-discuss-retaliation-ukraines-gas-184543337.html)
-- Jan 02 - [Former JCPS football coach charged with attempted murder after allegedly shooting at police](https://www.yahoo.com/news/former-jcps-football-coach-charged-182836879.html)
+- Jan 03 - [Second Homeland Security agent in Utah charged with selling illicit drugs from evidence](https://www.yahoo.com/news/second-homeland-security-agent-utah-001632873.html)
+- Jan 02 - [FBI releases new video and details in four-year hunt for DC pipe bomb suspect](https://www.yahoo.com/news/fbi-releases-video-details-four-233006306.html)
+- Jan 02 - [US Supreme Court's Thomas will not be referred to Justice Department, judiciary says](https://www.yahoo.com/news/us-supreme-courts-thomas-not-231126068.html)
+- Jan 02 - [JD Vance defends billionaire business ally accused of cruel small-town America remark](https://www.yahoo.com/news/jd-vance-defends-billionaire-business-230522149.html)
+- Jan 02 - [Kentucky Gov. Andy Beshear laughs off unflattering social media comments in a video with his wife](https://www.yahoo.com/news/kentucky-gov-andy-beshear-laughs-225112013.html)
 <!-- feed end -->
 
 ### Onstream
