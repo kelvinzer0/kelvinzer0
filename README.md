@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Man arrested for supplying drugs to Liam Payne: Argentine police](https://www.yahoo.com/news/man-arrested-supplying-drugs-liam-190919487.html)
-- Jan 03 - [Soldier who died by suicide in Las Vegas told ex-girlfriend of pain and exhaustion after Afghanistan](https://www.yahoo.com/news/soldier-died-suicide-las-vegas-212031429.html)
-- Jan 03 - [Iowa Republican Sen. Chuck Grassley is once again 3rd in line for presidency. Here's why:](https://www.yahoo.com/news/iowa-republican-sen-chuck-grassley-211953711.html)
-- Jan 03 - [Judge sets Trump's sentencing in hush money case for Jan. 10, but signals no jail time](https://www.yahoo.com/news/judge-sets-trumps-sentencing-hush-205708696.html)
-- Jan 03 - [Tesla Model S Plaid on Drag Radials Faces Off Against 900-HP Hellcat-Swapped 'Cuda in Epic Rematch](https://autos.yahoo.com/tesla-model-plaid-drag-radials-180048423.html)
+- Jan 03 - [TikTok nears Jan. 19 deadline. Who would benefit most from its ban?](https://finance.yahoo.com/video/tiktok-nears-jan-19-deadline-231000128.html)
+- Jan 03 - [What one picture tells us about Trump's power in Congress](https://www.yahoo.com/news/one-picture-tells-us-trumps-213603200.html)
+- Jan 03 - ["Rule Breaker Investing" Mailbag: Portfolio-Level Thinking](https://finance.yahoo.com/news/rule-breaker-investing-mailbag-portfolio-222500116.html)
+- Jan 03 - [Soldier Left Note Explaining Why He Turned a Cybertruck Into a Suicide Bomb](https://www.yahoo.com/news/soldier-left-note-explaining-why-214649545.html)
+- Jan 03 - [One person is in custody after a Conklin shooting killed one person, injured another](https://www.yahoo.com/news/one-person-custody-conklin-shooting-213620402.html)
 <!-- feed end -->
 
 ### Onstream
