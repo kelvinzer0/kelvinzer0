@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [House speaker vote live updates: Mike Johnson's fate could hinge on a single GOP vote](https://www.yahoo.com/news/house-speaker-vote-live-updates-151100315.html)
-- Jan 03 - [How Texas investigators unraveled the murder of Texas teen Livye Lewis](https://www.yahoo.com/news/texas-investigators-unraveled-murder-texas-142202538.html)
-- Jan 03 - [Fisherman warned of ‘big angry’ shark in water before surfer attacked](https://www.yahoo.com/news/fisherman-warned-big-angry-shark-135618181.html)
-- Jan 03 - [‘Mystery volcano’ that erupted and cooled Earth in 1831 has finally been identified](https://www.yahoo.com/news/mystery-volcano-erupted-cooled-earth-131746000.html)
-- Jan 03 - [Trump calls on Britain to dismantle North Sea wind turbines](https://www.yahoo.com/news/trump-calls-britain-dismantle-north-131718727.html)
+- Jan 03 - [US jobs report poses first big stocks test of 2025](https://finance.yahoo.com/news/us-jobs-report-poses-first-165206947.html)
+- Jan 03 - [Angler’s cap 'says it all' after shark swoops in on epic catch](https://sports.yahoo.com/angler-cap-says-shark-swoops-164651837.html)
+- Jan 03 - [An expert in the risks of alcohol drank heavily for years. His 'dry by default' rule helped him drink less, lose weight, and live a fuller life.](https://www.yahoo.com/lifestyle/expert-risks-alcohol-drank-heavily-093102786.html)
+- Jan 03 - [Menendez’s lawyers seek lenient sentence, saying conviction made him a ‘national punchline’](https://www.yahoo.com/news/menendez-lawyers-seek-lenient-sentence-153116659.html)
+- Jan 03 - [$450,000 settlement for Ohio teacher who refused to use students’ pronouns](https://www.yahoo.com/news/450-000-settlement-ohio-teacher-134052553.html)
 <!-- feed end -->
 
 ### Onstream
