@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [US jobs report poses first big stocks test of 2025](https://finance.yahoo.com/news/us-jobs-report-poses-first-165206947.html)
-- Jan 03 - [Angler’s cap 'says it all' after shark swoops in on epic catch](https://sports.yahoo.com/angler-cap-says-shark-swoops-164651837.html)
-- Jan 03 - [An expert in the risks of alcohol drank heavily for years. His 'dry by default' rule helped him drink less, lose weight, and live a fuller life.](https://www.yahoo.com/lifestyle/expert-risks-alcohol-drank-heavily-093102786.html)
+- Jan 03 - [EV maker Rivian beats expectations for deliveries as supply snag eases](https://finance.yahoo.com/video/ev-maker-rivian-beats-expectations-180406436.html)
+- Jan 03 - [Jay-Z’s Request to File to Dismiss Rape Accuser’s Lawsuit Granted](https://www.yahoo.com/news/jay-z-request-file-dismiss-160300169.html)
 - Jan 03 - [Menendez’s lawyers seek lenient sentence, saying conviction made him a ‘national punchline’](https://www.yahoo.com/news/menendez-lawyers-seek-lenient-sentence-153116659.html)
-- Jan 03 - [$450,000 settlement for Ohio teacher who refused to use students’ pronouns](https://www.yahoo.com/news/450-000-settlement-ohio-teacher-134052553.html)
+- Jan 03 - [Watch live: House votes for Speaker as 119th Congress begins](https://www.yahoo.com/news/watch-live-house-votes-speaker-153000556.html)
+- Jan 03 - [Surgeon General: Two alcoholic drinks a day increases risks for seven types of cancer](https://www.yahoo.com/news/surgeon-general-two-alcoholic-drinks-151425802.html)
 <!-- feed end -->
 
 ### Onstream
