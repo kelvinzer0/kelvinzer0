@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [EV maker Rivian beats expectations for deliveries as supply snag eases](https://finance.yahoo.com/video/ev-maker-rivian-beats-expectations-180406436.html)
-- Jan 03 - [Jay-Z’s Request to File to Dismiss Rape Accuser’s Lawsuit Granted](https://www.yahoo.com/news/jay-z-request-file-dismiss-160300169.html)
+- Jan 03 - [Trump’s Johnson Fails First Test So Far to Remain Speaker](https://www.yahoo.com/news/trump-johnson-fails-first-test-183525162.html)
+- Jan 03 - [Food inflation: These are the 'problem spots' for consumers](https://finance.yahoo.com/video/food-inflation-problem-spots-consumers-183000181.html)
 - Jan 03 - [Menendez’s lawyers seek lenient sentence, saying conviction made him a ‘national punchline’](https://www.yahoo.com/news/menendez-lawyers-seek-lenient-sentence-153116659.html)
-- Jan 03 - [Watch live: House votes for Speaker as 119th Congress begins](https://www.yahoo.com/news/watch-live-house-votes-speaker-153000556.html)
 - Jan 03 - [Surgeon General: Two alcoholic drinks a day increases risks for seven types of cancer](https://www.yahoo.com/news/surgeon-general-two-alcoholic-drinks-151425802.html)
+- Jan 03 - [Trump Fans Are Finding Out How Much He Actually Cares About Them](https://www.yahoo.com/news/trump-fans-finding-much-actually-144626660.html)
 <!-- feed end -->
 
 ### Onstream
