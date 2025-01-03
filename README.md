@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Embankment of 18th Century Canal Collapses After Heavy Rain](https://www.yahoo.com/news/embankment-18th-century-canal-collapses-074919757.html)
 - Jan 03 - [Israel struggles to deter escalating attacks from Yemen's Houthi rebels as other fronts calm](https://www.yahoo.com/news/israel-struggles-deter-escalating-attacks-070056643.html)
-- Jan 03 - [Kim Jong Un's sister seen with children in state media images](https://www.yahoo.com/news/kim-jong-uns-sister-seen-065431919.html)
-- Jan 03 - [3 Dividend Stocks Offering Yields Up To 9.8% For Your Income Portfolio](https://finance.yahoo.com/news/3-dividend-stocks-offering-yields-050721914.html)
 - Jan 03 - [Matt Gaetz Unveils Radical New Look During MAGA TV Debut](https://www.yahoo.com/news/matt-gaetz-unveils-radical-look-040415653.html)
+- Jan 03 - [Trouble in China's shopping paradise as Hainan duty-free spending tumbles](https://finance.yahoo.com/news/trouble-chinas-shopping-paradise-hainan-024047535.html)
+- Jan 03 - [Peter Thiel's Bubble Theory Gains Relevance As Bitcoin Hovers Around $95K: 'Extremely Hard To Define'](https://finance.yahoo.com/news/peter-thiels-bubble-theory-gains-011416536.html)
+- Jan 03 - [Inside Israel’s Commando Raid On Iran’s Underground Missile Factory In Syria](https://www.yahoo.com/news/inside-israel-commando-raid-iran-005726284.html)
 <!-- feed end -->
 
 ### Onstream
