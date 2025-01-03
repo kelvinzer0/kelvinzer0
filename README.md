@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Adobe: UBS cuts price target on AI headwinds](https://finance.yahoo.com/video/adobe-ubs-cuts-price-target-210252569.html)
-- Jan 03 - [If winter storm causes Kansas power outages, Evergy restoration could take days](https://www.yahoo.com/news/winter-storm-causes-kansas-power-201540927.html)
-- Jan 03 - [Net Worth for Retirees: How To Tell Whether You’re Poor, Middle Class or Rich](https://finance.yahoo.com/news/net-worth-retirees-tell-whether-155106510.html)
-- Jan 03 - [Pilot made a panicked attempt to land before a crash in Southern California that killed 2](https://www.yahoo.com/news/pilot-made-panicked-attempt-land-195632482.html)
-- Jan 03 - [Donald Trump fumes over flag flying at half-staff to honor Jimmy Carter during inauguration](https://www.yahoo.com/news/donald-trump-fumes-over-flag-195014501.html)
+- Jan 03 - [Man arrested for supplying drugs to Liam Payne: Argentine police](https://www.yahoo.com/news/man-arrested-supplying-drugs-liam-190919487.html)
+- Jan 03 - [Soldier who died by suicide in Las Vegas told ex-girlfriend of pain and exhaustion after Afghanistan](https://www.yahoo.com/news/soldier-died-suicide-las-vegas-212031429.html)
+- Jan 03 - [Iowa Republican Sen. Chuck Grassley is once again 3rd in line for presidency. Here's why:](https://www.yahoo.com/news/iowa-republican-sen-chuck-grassley-211953711.html)
+- Jan 03 - [Judge sets Trump's sentencing in hush money case for Jan. 10, but signals no jail time](https://www.yahoo.com/news/judge-sets-trumps-sentencing-hush-205708696.html)
+- Jan 03 - [Tesla Model S Plaid on Drag Radials Faces Off Against 900-HP Hellcat-Swapped 'Cuda in Epic Rematch](https://autos.yahoo.com/tesla-model-plaid-drag-radials-180048423.html)
 <!-- feed end -->
 
 ### Onstream
