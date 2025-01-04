@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Video shows man violently slamming woman to the ground in Attleboro road rage incident](https://www.yahoo.com/news/video-shows-man-violently-slamming-212809477.html)
+- Jan 04 - [2 Artificial Intelligence (AI) Stocks to Buy Before They Soar to $4 Trillion in 2025, According to a Wall Street Analyst](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-083000407.html)
+- Jan 04 - [Ice-T calls cop a ‘f–king a–hole’ during tense exchange caught on bodycam video: ‘This muthaf–ka’](https://www.yahoo.com/news/ice-t-calls-cop-f-022804675.html)
 - Jan 04 - [WA skiers demanding action as 'rampant' thefts plague Stevens Pass resort](https://www.yahoo.com/news/wa-skiers-demanding-action-rampant-022605405.html)
 - Jan 04 - [Washington Post Cartoonist Ann Telnaes Quits After Bezos-Owned Paper Kills Trump Satire Piece](https://www.yahoo.com/news/washington-post-cartoonist-ann-telnaes-021330404.html)
 - Jan 04 - [Curveball: Judge orders criminal sentencing for Trump before 2025 inauguration](https://www.yahoo.com/news/curveball-judge-orders-criminal-sentencing-000225892.html)
-- Jan 03 - [Tinker and Vance AFB suspends Trusted Traveler Program, 100% ID checks begin](https://www.yahoo.com/news/tinker-afb-suspends-trusted-traveler-232452743.html)
 <!-- feed end -->
 
 ### Onstream
