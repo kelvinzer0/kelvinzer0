@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 03 - [TikTok nears Jan. 19 deadline. Who would benefit most from its ban?](https://finance.yahoo.com/video/tiktok-nears-jan-19-deadline-231000128.html)
-- Jan 03 - [What one picture tells us about Trump's power in Congress](https://www.yahoo.com/news/one-picture-tells-us-trumps-213603200.html)
-- Jan 03 - ["Rule Breaker Investing" Mailbag: Portfolio-Level Thinking](https://finance.yahoo.com/news/rule-breaker-investing-mailbag-portfolio-222500116.html)
-- Jan 03 - [Soldier Left Note Explaining Why He Turned a Cybertruck Into a Suicide Bomb](https://www.yahoo.com/news/soldier-left-note-explaining-why-214649545.html)
-- Jan 03 - [One person is in custody after a Conklin shooting killed one person, injured another](https://www.yahoo.com/news/one-person-custody-conklin-shooting-213620402.html)
+- Jan 03 - [An Arizona prisoner is asking to be executed sooner than the state wants](https://www.yahoo.com/news/arizona-prisoner-asking-executed-sooner-225229767.html)
+- Jan 03 - [Judge in Trump's hush money case expected to sentence him to 'unconditional discharge'](https://www.yahoo.com/news/judge-trumps-hush-money-case-210600353.html)
+- Jan 03 - [Video shows man violently slamming woman to the ground in Attleboro road rage incident](https://www.yahoo.com/news/video-shows-man-violently-slamming-212809477.html)
+- Jan 03 - [VP Harris mocked for flubbing opening line of Pledge of Allegiance: 'What an embarrassment'](https://www.yahoo.com/news/vp-harris-mocked-flubbing-opening-212058691.html)
 <!-- feed end -->
 
 ### Onstream
