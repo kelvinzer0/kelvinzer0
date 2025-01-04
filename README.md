@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 04 - [WA skiers demanding action as 'rampant' thefts plague Stevens Pass resort](https://www.yahoo.com/news/wa-skiers-demanding-action-rampant-022605405.html)
+- Jan 04 - [Washington Post Cartoonist Ann Telnaes Quits After Bezos-Owned Paper Kills Trump Satire Piece](https://www.yahoo.com/news/washington-post-cartoonist-ann-telnaes-021330404.html)
 - Jan 04 - [Curveball: Judge orders criminal sentencing for Trump before 2025 inauguration](https://www.yahoo.com/news/curveball-judge-orders-criminal-sentencing-000225892.html)
 - Jan 03 - [An Arizona prisoner is asking to be executed sooner than the state wants](https://www.yahoo.com/news/arizona-prisoner-asking-executed-sooner-225229767.html)
-- Jan 03 - [Southern California police officer accidentally runs over homeless woman](https://www.yahoo.com/news/southern-california-police-officer-accidentally-223008965.html)
 - Jan 03 - [Judge in Trump's hush money case expected to sentence him to 'unconditional discharge'](https://www.yahoo.com/news/judge-trumps-hush-money-case-210600353.html)
 <!-- feed end -->
 
