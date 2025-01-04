@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [Russia-appointed officials in Crimea declare emergency as oil spill reaches Sevastopol](https://www.yahoo.com/news/russia-appointed-officials-crimea-declare-134039433.html)
 - Jan 04 - [Russia vows retaliation after saying it downed eight US-made long-range missiles](https://www.yahoo.com/news/russia-vows-retaliation-saying-downed-131513319.html)
 - Jan 04 - [There Won't Be Money For Social Security': Elon Musk Tells Joe Rogan About Looming Bankruptcy And $1.1 Trillion Interest](https://finance.yahoo.com/news/wont-money-social-security-elon-130218440.html)
+- Jan 04 - [Video shows man violently slamming woman to the ground in Attleboro road rage incident](https://www.yahoo.com/news/video-shows-man-violently-slamming-212809477.html)
 - Jan 04 - [Marjorie Taylor Greene snatched Trump’s Social Security pledge and threw it on the floor — here’s why she’s so mad](https://www.yahoo.com/news/marjorie-taylor-greene-snatched-trump-115500383.html)
-- Jan 04 - [Tens of thousands of invasive Burmese pythons live in Florida. Where, how far they've spread](https://www.yahoo.com/news/tens-thousands-invasive-burmese-pythons-110216827.html)
-- Jan 04 - [Sussex school bus accident, district changes policy after boy's death](https://www.yahoo.com/news/sussex-school-bus-accident-district-031651530.html)
 <!-- feed end -->
 
 ### Onstream
