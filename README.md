@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Cold front: Here's how low temps will be in Corpus Christi area, how to prepare](https://www.yahoo.com/news/cold-front-heres-low-temps-093109694.html)
-- Jan 04 - [Ice-T calls cop a ‘f–king a–hole’ during tense exchange caught on bodycam video: ‘This muthaf–ka’](https://www.yahoo.com/news/ice-t-calls-cop-f-022804675.html)
-- Jan 04 - [WA skiers demanding action as 'rampant' thefts plague Stevens Pass resort](https://www.yahoo.com/news/wa-skiers-demanding-action-rampant-022605405.html)
-- Jan 03 - [Tinker and Vance AFB suspends Trusted Traveler Program, 100% ID checks begin](https://www.yahoo.com/news/tinker-afb-suspends-trusted-traveler-232452743.html)
-- Jan 03 - [An Arizona prisoner is asking to be executed sooner than the state wants](https://www.yahoo.com/news/arizona-prisoner-asking-executed-sooner-225229767.html)
+- Jan 04 - [Russia vows retaliation after saying it downed eight US-made long-range missiles](https://www.yahoo.com/news/russia-vows-retaliation-saying-downed-131513319.html)
+- Jan 04 - [There Won't Be Money For Social Security': Elon Musk Tells Joe Rogan About Looming Bankruptcy And $1.1 Trillion Interest](https://finance.yahoo.com/news/wont-money-social-security-elon-130218440.html)
+- Jan 04 - [Marjorie Taylor Greene snatched Trump’s Social Security pledge and threw it on the floor — here’s why she’s so mad](https://www.yahoo.com/news/marjorie-taylor-greene-snatched-trump-115500383.html)
+- Jan 04 - [Tens of thousands of invasive Burmese pythons live in Florida. Where, how far they've spread](https://www.yahoo.com/news/tens-thousands-invasive-burmese-pythons-110216827.html)
+- Jan 04 - [Sussex school bus accident, district changes policy after boy's death](https://www.yahoo.com/news/sussex-school-bus-accident-district-031651530.html)
 <!-- feed end -->
 
 ### Onstream
