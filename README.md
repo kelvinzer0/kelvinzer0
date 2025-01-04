@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [Hellcat Driver Runs From Police, Ejects At 160 MPH](https://autos.yahoo.com/hellcat-driver-runs-police-ejects-130000049.html)
+- Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
+- Jan 04 - [Gutsy woman, 71, fends off violent attack by 4 teen girls on blue city subway](https://www.yahoo.com/news/gutsy-woman-71-fends-off-173731205.html)
 - Jan 04 - [Schiff’s swearing-in sets record in U.S. Senate](https://www.yahoo.com/news/schiff-swearing-sets-record-u-155551121.html)
 - Jan 04 - [What do people regret the most when they retire?](https://finance.yahoo.com/news/what-do-people-regret-the-most-when-they-retire-143035482.html)
-- Jan 04 - [Congress is notified by the Biden administration of a planned $8 billion weapons sale to Israel](https://www.yahoo.com/news/congress-notified-biden-administration-planned-151726341.html)
-- Jan 04 - [People Are Sharing All The Things They Assumed Were "Normal" Before They Got Mental Health Help](https://www.yahoo.com/lifestyle/people-mental-health-struggles-sharing-141602775.html)
-- Jan 04 - [Bill Gates Is So Frugal He Wears A $10 Watch But Spent $42,000 In Fines For Manure Bins At His Daughter's $8.7 Million Florida Horse Farm](https://finance.yahoo.com/news/bill-gates-frugal-wears-10-140516005.html)
 <!-- feed end -->
 
 ### Onstream
