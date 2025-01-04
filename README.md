@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jan 04 - [Cold front: Here's how low temps will be in Corpus Christi area, how to prepare](https://www.yahoo.com/news/cold-front-heres-low-temps-093109694.html)
 - Jan 04 - [Ice-T calls cop a ‘f–king a–hole’ during tense exchange caught on bodycam video: ‘This muthaf–ka’](https://www.yahoo.com/news/ice-t-calls-cop-f-022804675.html)
 - Jan 04 - [WA skiers demanding action as 'rampant' thefts plague Stevens Pass resort](https://www.yahoo.com/news/wa-skiers-demanding-action-rampant-022605405.html)
-- Jan 04 - [Washington Post Cartoonist Ann Telnaes Quits After Bezos-Owned Paper Kills Trump Satire Piece](https://www.yahoo.com/news/washington-post-cartoonist-ann-telnaes-021330404.html)
-- Jan 04 - [CCSD police seize 20 guns, 6 from a high school in North Las Vegas](https://www.yahoo.com/news/ccsd-police-seize-20-guns-021046714.html)
+- Jan 03 - [Tinker and Vance AFB suspends Trusted Traveler Program, 100% ID checks begin](https://www.yahoo.com/news/tinker-afb-suspends-trusted-traveler-232452743.html)
+- Jan 03 - [An Arizona prisoner is asking to be executed sooner than the state wants](https://www.yahoo.com/news/arizona-prisoner-asking-executed-sooner-225229767.html)
 <!-- feed end -->
 
 ### Onstream
