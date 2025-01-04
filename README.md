@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Trump jokes about fat coyotes needing weight-loss drugs in call with Starmer](https://www.yahoo.com/news/trump-jokes-fat-coyotes-needing-095732944.html)
-- Jan 04 - [Prince William 'Shocked' After Learning Of Personal Connection To New Orleans Attack](https://www.yahoo.com/news/prince-william-shocked-learning-personal-180412872.html)
-- Jan 04 - [Dangerous and expansive cold pattern jolting the central, eastern half of the United States](https://www.yahoo.com/news/dangerous-expansive-cold-pattern-jolting-164245913.html)
+- Jan 04 - [St. Louis County police investigate fatal shooting in Bellefontaine Neighbors](https://www.yahoo.com/news/st-louis-county-police-investigate-165330940.html)
 - Jan 04 - [What do people regret the most when they retire?](https://finance.yahoo.com/news/what-do-people-regret-the-most-when-they-retire-143035482.html)
 - Jan 04 - [Congress is notified by the Biden administration of a planned $8 billion weapons sale to Israel](https://www.yahoo.com/news/congress-notified-biden-administration-planned-151726341.html)
+- Jan 04 - [Russia vows retaliation after saying it downed eight US-made long-range missiles](https://www.yahoo.com/news/russia-vows-retaliation-saying-downed-131513319.html)
+- Jan 04 - [Video shows man violently slamming woman to the ground in Attleboro road rage incident](https://www.yahoo.com/news/video-shows-man-violently-slamming-212809477.html)
 <!-- feed end -->
 
 ### Onstream
