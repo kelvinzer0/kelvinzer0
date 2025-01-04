@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Suspect in drive-by shooting appears in court, bond set at $250,000 cash](https://www.yahoo.com/news/suspect-drive-shooting-appears-court-024600507.html)
-- Jan 04 - [Indiana State Police, local law enforcement presence reported in New Albany. What we know](https://www.yahoo.com/news/indiana-state-police-local-law-012955448.html)
 - Jan 03 - [An Arizona prisoner is asking to be executed sooner than the state wants](https://www.yahoo.com/news/arizona-prisoner-asking-executed-sooner-225229767.html)
-- Jan 03 - [Utah woman 'who always wanted to be a mom' dies nine days after having twins](https://www.yahoo.com/news/utah-woman-always-wanted-mom-223134607.html)
+- Jan 03 - [What Is HMPV? New Virus Outbreak in China Explained](https://www.yahoo.com/news/hmpv-virus-outbreak-china-explained-222804823.html)
 - Jan 03 - [Judge in Trump's hush money case expected to sentence him to 'unconditional discharge'](https://www.yahoo.com/news/judge-trumps-hush-money-case-210600353.html)
+- Jan 03 - [One person is in custody after a Conklin shooting killed one person, injured another](https://www.yahoo.com/news/one-person-custody-conklin-shooting-213620402.html)
+- Jan 03 - [Video shows man violently slamming woman to the ground in Attleboro road rage incident](https://www.yahoo.com/news/video-shows-man-violently-slamming-212809477.html)
 <!-- feed end -->
 
 ### Onstream
