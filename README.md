@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [UK weather live: Heavy snow causes travel chaos as flights grounded in Bristol and crashes on M5](https://www.yahoo.com/news/airport-delays-live-gatwick-airport-084558767.html)
+- Jan 04 - [‘In a new realm’: China’s escalating cyberespionage leaving the U.S. ‘so vulnerable’](https://www.yahoo.com/news/realm-china-escalating-cyberespionage-leaving-191307294.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
-- Jan 04 - [Gutsy woman, 71, fends off violent attack by 4 teen girls on blue city subway](https://www.yahoo.com/news/gutsy-woman-71-fends-off-173731205.html)
-- Jan 04 - [What do people regret the most when they retire?](https://finance.yahoo.com/news/what-do-people-regret-the-most-when-they-retire-143035482.html)
-- Jan 04 - [6 Reasons Why Dave Ramsey Advises Against This ‘Stupid’ Housing Trend](https://finance.yahoo.com/news/dave-ramsey-advises-against-stupid-160055404.html)
+- Jan 04 - [St. Louis police respond to fight at party with 300 teenagers, one teen arrested](https://www.yahoo.com/news/st-louis-police-respond-fight-175751002.html)
 - Jan 04 - [People Are Sharing All The Things They Assumed Were "Normal" Before They Got Mental Health Help](https://www.yahoo.com/lifestyle/people-mental-health-struggles-sharing-141602775.html)
 <!-- feed end -->
 
