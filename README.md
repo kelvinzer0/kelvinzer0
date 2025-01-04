@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [Curveball: Judge orders criminal sentencing for Trump before 2025 inauguration](https://www.yahoo.com/news/curveball-judge-orders-criminal-sentencing-000225892.html)
 - Jan 03 - [TikTok nears Jan. 19 deadline. Who would benefit most from its ban?](https://finance.yahoo.com/video/tiktok-nears-jan-19-deadline-231000128.html)
 - Jan 03 - [An Arizona prisoner is asking to be executed sooner than the state wants](https://www.yahoo.com/news/arizona-prisoner-asking-executed-sooner-225229767.html)
+- Jan 03 - [Utah woman 'who always wanted to be a mom' dies nine days after having twins](https://www.yahoo.com/news/utah-woman-always-wanted-mom-223134607.html)
 - Jan 03 - [Judge in Trump's hush money case expected to sentence him to 'unconditional discharge'](https://www.yahoo.com/news/judge-trumps-hush-money-case-210600353.html)
-- Jan 03 - [Video shows man violently slamming woman to the ground in Attleboro road rage incident](https://www.yahoo.com/news/video-shows-man-violently-slamming-212809477.html)
-- Jan 03 - [VP Harris mocked for flubbing opening line of Pledge of Allegiance: 'What an embarrassment'](https://www.yahoo.com/news/vp-harris-mocked-flubbing-opening-212058691.html)
 <!-- feed end -->
 
 ### Onstream
