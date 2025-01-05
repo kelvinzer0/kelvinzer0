@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Chinese ship ‘severs undersea cables around Taiwan’](https://www.yahoo.com/news/chinese-ship-severs-undersea-cables-202527317.html)
+- Jan 05 - [ISIS threat will stick around ‘for a long time’: Fmr. NSC Counterterrorism Director](https://www.yahoo.com/news/isis-threat-stick-around-long-212133497.html)
+- Jan 05 - [Plight of wild boar found in the bin captures hearts of French… including Brigitte Bardot](https://www.yahoo.com/news/plight-wild-boar-found-bin-204832976.html)
 - Jan 05 - [Captured Israeli soldier ‘unrecognisable’, says family](https://www.yahoo.com/news/captured-israeli-soldier-19-unrecognisable-140507226.html)
+- Jan 05 - [Passenger Pretends to Be Asleep to Avoid Raising Their Reclined Seat on 9-Hour Flight — Leaving Fellow Traveler Mad](https://www.yahoo.com/lifestyle/passenger-pretends-asleep-avoid-raising-181530915.html)
 - Jan 05 - [Sen. Adam Schiff says the New Orleans attack shows Kash Patel shouldn’t lead the FBI](https://www.yahoo.com/news/sen-adam-schiff-says-orleans-180326222.html)
-- Jan 05 - [Chuck Schumer confronted with old clip of himself declaring Biden's decline 'right-wing propaganda'](https://www.yahoo.com/news/chuck-schumer-confronted-old-clip-174517510.html)
-- Jan 05 - [Warren Buffett dumped stocks, built a $300 billion cash pile, and updated his death plan in 2024. Here are his 6 highlights.](https://finance.yahoo.com/news/warren-buffett-dumped-stocks-built-173302166.html)
 <!-- feed end -->
 
 ### Onstream
