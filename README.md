@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Only a fool would want war in Ukraine to continue – but Trump cannot cave in to Putin](https://www.yahoo.com/news/only-fool-want-war-ukraine-060000943.html)
+- Jan 04 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
 - Jan 04 - [Easton Town Center to convert seven free parking lots to paid lots starting Sunday](https://www.yahoo.com/news/easton-town-center-convert-seven-192405268.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
 - Jan 04 - [Americans alarmed by ‘chemical fog’ spreading across the US: Phenomenon sparks bioweapon conspiracy theories after drone sightings](https://www.yahoo.com/news/americans-alarmed-chemical-fog-spreading-173029805.html)
-- Jan 04 - [Russia-appointed officials in Crimea declare emergency as oil spill reaches Sevastopol](https://www.yahoo.com/news/russia-appointed-officials-crimea-declare-134039433.html)
+- Jan 04 - [Schiff’s swearing-in sets record in U.S. Senate](https://www.yahoo.com/news/schiff-swearing-sets-record-u-155551121.html)
 <!-- feed end -->
 
 ### Onstream
