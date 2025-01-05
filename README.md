@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [New Alphabet CFO Expected To Make Bigger Impact In 2025. Is Google Stock A Buy?](https://www.investors.com/news/technology/google-stock-buy-now-alphabet-stock-january-2025/?src=A00220&yptr=yahoo)
+- Jan 05 - [Higher Social Security payments coming for millions of people from bill that Biden is signing](https://www.yahoo.com/news/higher-social-security-payments-coming-140716823.html)
+- Jan 05 - [Captured Israeli soldier, 19, ‘unrecognisable’, says family](https://www.yahoo.com/news/captured-israeli-soldier-19-unrecognisable-140507226.html)
 - Jan 05 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
-- Jan 05 - [Death investigation underway after man shot, killed in Charlestown](https://www.yahoo.com/news/death-investigation-underway-man-shot-132846708.html)
-- Jan 05 - [Hezbollah leader Nasrallah was killed last year inside the war operations room, aide says](https://www.yahoo.com/news/hezbollah-leader-nasrallah-killed-last-121227556.html)
-- Jan 05 - [Adam Kinzinger Brutally Sums Up The 'Entire' Republican Party With Just 1 Acronym](https://www.yahoo.com/news/adam-kinzinger-brutally-sums-entire-104800302.html)
-- Jan 05 - [As Trump's election is certified, Americans should declare war on stupidity | Opinion](https://www.yahoo.com/news/trumps-election-certified-americans-declare-100911488.html)
+- Jan 05 - [Man angered over used car drove it into a dealership after his return was denied. Here's how to avoid buying a 'lemon'](https://finance.yahoo.com/news/man-angered-over-used-car-133000740.html)
 <!-- feed end -->
 
 ### Onstream
