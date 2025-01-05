@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Best shoes with arch support, tested and reviewed](https://www.yahoo.com/lifestyle/best-shoes-with-arch-support-010717372.html)
-- Jan 05 - [Suspect dead, 2 officers injured after suspect rams cruiser during chase, police say](https://www.yahoo.com/news/suspect-dead-2-officers-injured-003739282.html)
-- Jan 04 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
 - Jan 04 - [Hellcat Driver Runs From Police, Ejects At 160 MPH](https://autos.yahoo.com/hellcat-driver-runs-police-ejects-130000049.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
+- Jan 04 - [Schiff’s swearing-in sets record in U.S. Senate](https://www.yahoo.com/news/schiff-swearing-sets-record-u-155551121.html)
+- Jan 04 - [What do people regret the most when they retire?](https://finance.yahoo.com/news/what-do-people-regret-the-most-when-they-retire-143035482.html)
+- Jan 04 - [6 Reasons Why Dave Ramsey Advises Against This ‘Stupid’ Housing Trend](https://finance.yahoo.com/news/dave-ramsey-advises-against-stupid-160055404.html)
 <!-- feed end -->
 
 ### Onstream
