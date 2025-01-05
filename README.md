@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [28-year-old Wausau man dies from injuries suffered in Dec. 30 Marathon County crash](https://www.yahoo.com/news/28-old-wausau-man-dies-171606749.html)
-- Jan 05 - [Elderly farmer threatened by council after knocking down ‘historic’ wall he built himself](https://www.yahoo.com/news/elderly-farmer-threatened-council-knocking-170325339.html)
+- Jan 05 - [Sen. Adam Schiff says the New Orleans attack shows Kash Patel shouldn’t lead the FBI](https://www.yahoo.com/news/sen-adam-schiff-says-orleans-180326222.html)
+- Jan 05 - [OTD In Space – January 5: Discovery Of Eris Ignites Pluto-Planet Debate](https://www.yahoo.com/news/otd-space-january-5-discovery-180000934.html)
+- Jan 05 - [Chinese nationals arrested with gold bars and $800,000 cash in DR Congo](https://www.yahoo.com/news/chinese-nationals-arrested-gold-bars-173424088.html)
 - Jan 05 - [‘This is Sickening’: Trump Slammed for Jan. 6 Take at Secret Mar-a-Lago Bash](https://www.yahoo.com/news/sickening-trump-slammed-jan-6-160813065.html)
-- Jan 05 - [Captured Israeli soldier, 19, ‘unrecognisable’, says family](https://www.yahoo.com/news/captured-israeli-soldier-19-unrecognisable-140507226.html)
-- Jan 05 - [Man angered over used car drove it into a dealership after his return was denied. Here's how to avoid buying a 'lemon'](https://finance.yahoo.com/news/man-angered-over-used-car-133000740.html)
+- Jan 05 - [Snow & ice are here and more is in the forecast](https://www.yahoo.com/news/snow-ice-more-forecast-143402762.html)
 <!-- feed end -->
 
 ### Onstream
