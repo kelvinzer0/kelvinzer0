@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Man Who Found Newborn's Body in Church Safe Haven Box Speaks Out About the Tragedy and His 'Moment of Shock'](https://www.yahoo.com/news/man-found-newborns-body-church-002350777.html)
+- Jan 05 - [Billionaires Love This Tech Stock, but Will It Continue Its Reign in 2025?](https://finance.yahoo.com/news/billionaires-love-tech-stock-continue-093500980.html)
+- Jan 05 - [Homeowners £400k new build homes "cut off" by landslip which has blocked road](https://www.yahoo.com/news/homeowners-400k-build-homes-cut-092250152.html)
 - Jan 04 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
-- Jan 04 - [Easton Town Center to convert seven free parking lots to paid lots starting Sunday](https://www.yahoo.com/news/easton-town-center-convert-seven-192405268.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
 - Jan 04 - [Americans alarmed by ‘chemical fog’ spreading across the US: Phenomenon sparks bioweapon conspiracy theories after drone sightings](https://www.yahoo.com/news/americans-alarmed-chemical-fog-spreading-173029805.html)
 <!-- feed end -->
