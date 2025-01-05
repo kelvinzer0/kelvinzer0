@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [Only a fool would want war in Ukraine to continue – but Trump cannot cave in to Putin](https://www.yahoo.com/news/only-fool-want-war-ukraine-060000943.html)
+- Jan 04 - [Easton Town Center to convert seven free parking lots to paid lots starting Sunday](https://www.yahoo.com/news/easton-town-center-convert-seven-192405268.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
-- Jan 04 - [Gutsy woman, 71, fends off violent attack by 4 teen girls on blue city subway](https://www.yahoo.com/news/gutsy-woman-71-fends-off-173731205.html)
-- Jan 04 - [What do people regret the most when they retire?](https://finance.yahoo.com/news/what-do-people-regret-the-most-when-they-retire-143035482.html)
-- Jan 04 - [Congress is notified by the Biden administration of a planned $8 billion weapons sale to Israel](https://www.yahoo.com/news/congress-notified-biden-administration-planned-151726341.html)
-- Jan 04 - [Massive estate is largest home ever sold in Charlotte, Realtor says. Here’s the sale price](https://www.yahoo.com/lifestyle/massive-estate-largest-home-ever-133800585.html)
+- Jan 04 - [Americans alarmed by ‘chemical fog’ spreading across the US: Phenomenon sparks bioweapon conspiracy theories after drone sightings](https://www.yahoo.com/news/americans-alarmed-chemical-fog-spreading-173029805.html)
+- Jan 04 - [Russia-appointed officials in Crimea declare emergency as oil spill reaches Sevastopol](https://www.yahoo.com/news/russia-appointed-officials-crimea-declare-134039433.html)
 <!-- feed end -->
 
 ### Onstream
