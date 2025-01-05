@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Man Who Found Newborn's Body in Church Safe Haven Box Speaks Out About the Tragedy and His 'Moment of Shock'](https://www.yahoo.com/news/man-found-newborns-body-church-002350777.html)
-- Jan 04 - [Semi-truck catches fire on I-75 in Tampa after pulling over for a flat tire](https://www.yahoo.com/news/semi-truck-catches-fire-75-212531016.html)
-- Jan 04 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
+- Jan 04 - [Gutsy woman, 71, fends off violent attack by 4 teen girls on blue city subway](https://www.yahoo.com/news/gutsy-woman-71-fends-off-173731205.html)
 - Jan 04 - [What do people regret the most when they retire?](https://finance.yahoo.com/news/what-do-people-regret-the-most-when-they-retire-143035482.html)
+- Jan 04 - [Congress is notified by the Biden administration of a planned $8 billion weapons sale to Israel](https://www.yahoo.com/news/congress-notified-biden-administration-planned-151726341.html)
+- Jan 04 - [Massive estate is largest home ever sold in Charlotte, Realtor says. Here’s the sale price](https://www.yahoo.com/lifestyle/massive-estate-largest-home-ever-133800585.html)
 <!-- feed end -->
 
 ### Onstream
