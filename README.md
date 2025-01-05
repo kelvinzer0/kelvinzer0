@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 05 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
-- Jan 05 - [120 flights cancelled at Frankfurt Airport over winter weather](https://www.yahoo.com/news/120-flights-cancelled-frankfurt-airport-121715857.html)
-- Jan 05 - [Wish You'd Bought Palantir in 2024? Buy This Unstoppable ETF Instead](https://finance.yahoo.com/news/wish-youd-bought-palantir-2024-112200325.html)
+- Jan 05 - [Death investigation underway after man shot, killed in Charlestown](https://www.yahoo.com/news/death-investigation-underway-man-shot-132846708.html)
+- Jan 05 - [Hezbollah leader Nasrallah was killed last year inside the war operations room, aide says](https://www.yahoo.com/news/hezbollah-leader-nasrallah-killed-last-121227556.html)
 - Jan 05 - [Adam Kinzinger Brutally Sums Up The 'Entire' Republican Party With Just 1 Acronym](https://www.yahoo.com/news/adam-kinzinger-brutally-sums-entire-104800302.html)
 - Jan 05 - [As Trump's election is certified, Americans should declare war on stupidity | Opinion](https://www.yahoo.com/news/trumps-election-certified-americans-declare-100911488.html)
 <!-- feed end -->
