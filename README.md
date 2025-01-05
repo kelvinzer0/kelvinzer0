@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [Israel kills a member of the Palestinian security forces who it says was a militant](https://www.yahoo.com/news/israel-kills-member-palestinian-security-121204433.html)
+- Jan 05 - [Adam Kinzinger Brutally Sums Up The 'Entire' Republican Party With Just 1 Acronym](https://www.yahoo.com/news/adam-kinzinger-brutally-sums-entire-104800302.html)
 - Jan 05 - [Nanny Biden's meddling on alcohol reminds us why we'll be better off with Trump | Opinion](https://www.yahoo.com/news/nanny-bidens-meddling-alcohol-reminds-090201947.html)
-- Jan 04 - [Hellcat Driver Runs From Police, Ejects At 160 MPH](https://autos.yahoo.com/hellcat-driver-runs-police-ejects-130000049.html)
+- Jan 04 - [Please stay home! Wrecks adding up in Wichita area as weather officials issue warning](https://www.yahoo.com/news/please-stay-home-wrecks-adding-193301914.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
-- Jan 04 - [Americans alarmed by ‘chemical fog’ spreading across the US: Phenomenon sparks bioweapon conspiracy theories after drone sightings](https://www.yahoo.com/news/americans-alarmed-chemical-fog-spreading-173029805.html)
-- Jan 04 - [I Tried Eating the Doctor-Recommended 30 Plant-Based Foods a Week—Here’s How It Went](https://www.yahoo.com/lifestyle/tried-eating-doctor-recommended-30-140000661.html)
 <!-- feed end -->
 
 ### Onstream
