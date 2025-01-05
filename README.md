@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [Man Who Found Newborn's Body in Church Safe Haven Box Speaks Out About the Tragedy and His 'Moment of Shock'](https://www.yahoo.com/news/man-found-newborns-body-church-002350777.html)
+- Jan 04 - [Semi-truck catches fire on I-75 in Tampa after pulling over for a flat tire](https://www.yahoo.com/news/semi-truck-catches-fire-75-212531016.html)
+- Jan 04 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
-- Jan 04 - [Schiff’s swearing-in sets record in U.S. Senate](https://www.yahoo.com/news/schiff-swearing-sets-record-u-155551121.html)
 - Jan 04 - [What do people regret the most when they retire?](https://finance.yahoo.com/news/what-do-people-regret-the-most-when-they-retire-143035482.html)
-- Jan 04 - [People Are Sharing All The Things They Assumed Were "Normal" Before They Got Mental Health Help](https://www.yahoo.com/lifestyle/people-mental-health-struggles-sharing-141602775.html)
-- Jan 04 - [I Tried Eating the Doctor-Recommended 30 Plant-Based Foods a Week—Here’s How It Went](https://www.yahoo.com/lifestyle/tried-eating-doctor-recommended-30-140000661.html)
 <!-- feed end -->
 
 ### Onstream
