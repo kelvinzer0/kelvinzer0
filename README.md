@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Billionaires Love This Tech Stock, but Will It Continue Its Reign in 2025?](https://finance.yahoo.com/news/billionaires-love-tech-stock-continue-093500980.html)
-- Jan 05 - [Homeowners £400k new build homes "cut off" by landslip which has blocked road](https://www.yahoo.com/news/homeowners-400k-build-homes-cut-092250152.html)
-- Jan 04 - [5 Things You Must Do When Your Retirement Savings Reaches $100K](https://finance.yahoo.com/news/5-things-must-retirement-savings-110043683.html)
+- Jan 05 - [Nanny Biden's meddling on alcohol reminds us why we'll be better off with Trump | Opinion](https://www.yahoo.com/news/nanny-bidens-meddling-alcohol-reminds-090201947.html)
+- Jan 04 - [Hellcat Driver Runs From Police, Ejects At 160 MPH](https://autos.yahoo.com/hellcat-driver-runs-police-ejects-130000049.html)
 - Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
 - Jan 04 - [Americans alarmed by ‘chemical fog’ spreading across the US: Phenomenon sparks bioweapon conspiracy theories after drone sightings](https://www.yahoo.com/news/americans-alarmed-chemical-fog-spreading-173029805.html)
+- Jan 04 - [I Tried Eating the Doctor-Recommended 30 Plant-Based Foods a Week—Here’s How It Went](https://www.yahoo.com/lifestyle/tried-eating-doctor-recommended-30-140000661.html)
 <!-- feed end -->
 
 ### Onstream
