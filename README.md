@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Israel kills a member of the Palestinian security forces who it says was a militant](https://www.yahoo.com/news/israel-kills-member-palestinian-security-121204433.html)
+- Jan 05 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
+- Jan 05 - [120 flights cancelled at Frankfurt Airport over winter weather](https://www.yahoo.com/news/120-flights-cancelled-frankfurt-airport-121715857.html)
+- Jan 05 - [Wish You'd Bought Palantir in 2024? Buy This Unstoppable ETF Instead](https://finance.yahoo.com/news/wish-youd-bought-palantir-2024-112200325.html)
 - Jan 05 - [Adam Kinzinger Brutally Sums Up The 'Entire' Republican Party With Just 1 Acronym](https://www.yahoo.com/news/adam-kinzinger-brutally-sums-entire-104800302.html)
-- Jan 05 - [Nanny Biden's meddling on alcohol reminds us why we'll be better off with Trump | Opinion](https://www.yahoo.com/news/nanny-bidens-meddling-alcohol-reminds-090201947.html)
-- Jan 04 - [Please stay home! Wrecks adding up in Wichita area as weather officials issue warning](https://www.yahoo.com/news/please-stay-home-wrecks-adding-193301914.html)
-- Jan 04 - [Zelenskiy reports heavy Russian, N. Korean troop losses in Russia's Kursk](https://www.yahoo.com/news/ukraines-zelenskiy-heavy-russian-north-185928746.html)
+- Jan 05 - [As Trump's election is certified, Americans should declare war on stupidity | Opinion](https://www.yahoo.com/news/trumps-election-certified-americans-declare-100911488.html)
 <!-- feed end -->
 
 ### Onstream
