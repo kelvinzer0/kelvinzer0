@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [4 years after Jan. 6 insurrection, Kamala Harris certifies Trump's election win](https://www.yahoo.com/news/congress-meets-certify-trumps-2024-180300766.html)
+- Jan 06 - [Estate planning 101: 3 documents everyone in retirement needs](https://finance.yahoo.com/video/estate-planning-101-3-documents-200000242.html)
+- Jan 06 - [Trump promises to replace national archivist after the agency's role in documents case against him](https://www.yahoo.com/news/trump-promises-replace-national-archivist-194526464.html)
+- Jan 06 - [McDonald's to launch the McValue national menu as it looks for a boost from diners and investors](https://finance.yahoo.com/news/mcdonalds-to-launch-the-mcvalue-national-menu-as-it-looks-for-a-boost-from-diners-and-investors-185245238.html)
+- Jan 06 - [72-Year-Old Earning $160,000 in Dividends Shares His 'Best Advice' and Top 10 Stock Picks](https://finance.yahoo.com/news/72-old-earning-160-000-181316540.html)
 - Jan 06 - [Jimmy Carter had little use for the presidents club but formed a friendship for the ages with Ford](https://www.yahoo.com/news/jimmy-carter-had-little-presidents-180152464.html)
-- Jan 06 - [Prison officer Linda De Sousa Abreu jailed after filming sex with inmate in cell](https://www.yahoo.com/news/prison-officer-filmed-having-sex-171651736.html)
-- Jan 06 - [Elon Musk Cusses Out Student Who Called Him a Fake News Machine](https://www.yahoo.com/news/elon-musk-cusses-student-called-171002695.html)
-- Jan 06 - [Cedar Point removing another bygone attraction from lakefront park](https://www.yahoo.com/entertainment/cedar-point-removing-another-bygone-164936233.html)
 <!-- feed end -->
 
 ### Onstream
