@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Justin Welby throws leaving ‘celebration’ after quitting over child abuse scandal](https://www.yahoo.com/news/justin-welby-throws-leaving-celebration-134554573.html)
-- Jan 06 - [French police arrest three Algerians in crackdown on social media influencers](https://www.yahoo.com/news/french-police-arrest-three-algerians-134220099.html)
-- Jan 06 - [Yahoo co-founder Jerry Yang on AI: The wave is coming](https://finance.yahoo.com/news/yahoo-co-founder-jerry-yang-on-ai-the-wave-is-coming-133019251.html)
+- Jan 06 - [My Doctor Forced Me To Do Something Disturbing. It Kept Me From Seeking Further Medical Care For Years.](https://www.yahoo.com/lifestyle/doctor-forced-something-disturbing-kept-134217117.html)
 - Jan 06 - [The No. 1 rule to becoming a millionaire in the US, according to Maria Bartiromo — will you follow or ignore it in 2025?](https://finance.yahoo.com/news/no-1-rule-becoming-millionaire-133000121.html)
-- Jan 06 - [Congestion pricing, meant to reduce traffic, begins in New York City](https://www.yahoo.com/news/congestion-pricing-meant-reduce-traffic-131805209.html)
+- Jan 06 - [Biden bans water heaters? What you should know before you hit the shower](https://www.yahoo.com/news/biden-bans-water-heaters-know-131657336.html)
+- Jan 06 - [Biden Uses 72-Year-Old Law to Give Trump a Slap in the Face Before MAGA 2.0](https://www.yahoo.com/news/biden-uses-72-old-law-124517172.html)
+- Jan 06 - [Disney's Hulu + Live TV business to combine with Fubo, clearing way for Venu Sports](https://finance.yahoo.com/news/disney-nears-deal-merge-hulu-123234209.html)
 <!-- feed end -->
 
 ### Onstream
