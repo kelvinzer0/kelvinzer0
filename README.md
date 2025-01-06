@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Ohio State main campus cancels in-person classes Monday due to winter storm advisory](https://www.yahoo.com/news/ohio-state-main-campus-cancels-003119313.html)
-- Jan 06 - [Woman given ‘second chance at life’ after receiving UK’s first liver transplant for advanced bowel cancer](https://www.yahoo.com/news/woman-given-second-chance-life-001819043.html)
+- Jan 06 - [Lawsuit alleges Fox Sports ex-host harassed hairstylist and offered her $1.5M for sex](https://www.yahoo.com/news/lawsuit-alleges-fox-sports-ex-021520376.html)
+- Jan 06 - [Montenegrins hold demo to demand answers from govt following deadly New Year's Day shooting spree](https://www.yahoo.com/news/montenegrins-hold-demo-demand-answers-015922531.html)
+- Jan 06 - [As he prepares to leave office, Biden urges incoming Democratic lawmakers to reach across the aisle](https://www.yahoo.com/news/prepares-leave-office-biden-urges-014404614.html)
+- Jan 06 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
 - Jan 05 - [UK weather live: Heavy snow causes travel chaos as fresh Met Office warnings issued](https://www.yahoo.com/news/airport-delays-live-gatwick-airport-084558767.html)
-- Jan 05 - [Biden signs Social Security measure into law to expand benefits for some retirees](https://www.yahoo.com/news/biden-signs-social-security-measure-231836118.html)
-- Jan 05 - [Biden says it is awful that Trump is seeking to do away with US birthright citizenship](https://www.yahoo.com/news/biden-says-awful-trump-seeking-231613962.html)
 <!-- feed end -->
 
 ### Onstream
