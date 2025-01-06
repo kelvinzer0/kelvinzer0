@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [Microsoft Plans $80 Billion AI Investment to Strengthen U.S. Competitiveness](https://finance.yahoo.com/news/microsoft-plans-80-billion-ai-115740903.html)
+- Jan 06 - [New Alphabet CFO Expected To Make Bigger Impact In 2025. Is Google Stock A Buy?](https://www.investors.com/news/technology/google-stock-buy-now-alphabet-stock-january-2025/?src=A00220&yptr=yahoo)
+- Jan 06 - [Starmer hits back at Musk, criticizing those ‘spreading lies’ over child sex abuse](https://www.yahoo.com/news/starmer-hits-back-musk-criticizing-113943607.html)
+- Jan 06 - [Police share update on death of RuPaul’s Drag Race star The Vivienne](https://www.yahoo.com/news/police-share-death-rupaul-drag-110942166.html)
 - Jan 06 - [AI gadgets galore at CES 2025 in Las Vegas](https://www.yahoo.com/news/ai-gadgets-galore-ces-2025-110011471.html)
-- Jan 06 - [Ukraine launches new offensive in Russia's Kursk region, Kyiv and Moscow confirm](https://www.yahoo.com/news/ukraine-launches-offensive-russias-kursk-105544702.html)
-- Jan 06 - [Pound, gold and oil prices in focus: commodity and currency check, 6 January](https://uk.finance.yahoo.com/news/pound-gold-oil-prices-100231853.html)
-- Jan 06 - [What's the healthiest bean to eat? 5 types that are nutritionist-approved and how to enjoy them.](https://www.yahoo.com/lifestyle/whats-the-healthiest-bean-to-eat-5-types-that-are-nutritionist-approved-and-how-to-enjoy-them-100013247.html)
-- Jan 06 - [Chinese nationals arrested with gold bars and $800,000 cash in DR Congo](https://www.yahoo.com/news/chinese-nationals-arrested-gold-bars-173424088.html)
 <!-- feed end -->
 
 ### Onstream
