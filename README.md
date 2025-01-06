@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Obese patients to be sent to back of surgery queue](https://www.yahoo.com/news/obese-patients-sent-back-surgery-210000788.html)
+- Jan 06 - [Obese patients face being sent to back of surgery queue](https://www.yahoo.com/news/obese-patients-sent-back-surgery-210000788.html)
+- Jan 06 - [Two Indian companies indicted in US for importing ingredients used in opioid fentanyl](https://finance.yahoo.com/news/two-indian-companies-indicted-us-214818407.html)
 - Jan 06 - [Judge finds Giuliani in civil contempt in 2020 election workers' case](https://www.yahoo.com/news/judge-finds-giuliani-civil-contempt-203456838.html)
-- Jan 06 - [Biden to visit New Orleans after deadly Bourbon Street attack](https://www.yahoo.com/news/biden-visit-orleans-deadly-bourbon-203300308.html)
-- Jan 06 - [LG presents transparent TV, adds AI chatbot to latest screens at CES 2025](https://www.yahoo.com/news/lg-presents-transparent-tv-adds-203255821.html)
 - Jan 06 - [Rudy Giuliani is in contempt of court in $148 million defamation case](https://www.yahoo.com/news/judge-finds-rudy-giuliani-contempt-202202195.html)
+- Jan 06 - [A part-time actor claimed he created a COVID-19 cure. Now he'll spend more than 8 years in prison](https://www.yahoo.com/news/part-time-actor-claimed-created-200056609.html)
 <!-- feed end -->
 
 ### Onstream
