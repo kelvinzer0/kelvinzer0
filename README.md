@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Spanish tourist gored by ‘panic-stricken’ elephant at Thai sanctuary](https://www.yahoo.com/news/spanish-tourist-gored-panic-stricken-115133313.html)
-- Jan 06 - [New Alphabet CFO Expected To Make Bigger Impact In 2025. Is Google Stock A Buy?](https://www.investors.com/news/technology/google-stock-buy-now-alphabet-stock-january-2025/?src=A00220&yptr=yahoo)
-- Jan 06 - [AI gadgets galore at CES 2025 in Las Vegas](https://www.yahoo.com/news/ai-gadgets-galore-ces-2025-110011471.html)
-- Jan 06 - [Trump Orders Congressional Republicans to Pass the Mother of All MAGA Bills](https://www.yahoo.com/news/trump-orders-congressional-republicans-pass-103617170.html)
-- Jan 06 - [Residents of Syria's Quneitra are frustrated by lack of action to halt Israeli advance](https://www.yahoo.com/news/residents-syrias-quneitra-frustrated-lack-102728442.html)
+- Jan 06 - [Justin Welby throws leaving ‘celebration’ after quitting over child abuse scandal](https://www.yahoo.com/news/justin-welby-throws-leaving-celebration-134554573.html)
+- Jan 06 - [French police arrest three Algerians in crackdown on social media influencers](https://www.yahoo.com/news/french-police-arrest-three-algerians-134220099.html)
+- Jan 06 - [Yahoo co-founder Jerry Yang on AI: The wave is coming](https://finance.yahoo.com/news/yahoo-co-founder-jerry-yang-on-ai-the-wave-is-coming-133019251.html)
+- Jan 06 - [The No. 1 rule to becoming a millionaire in the US, according to Maria Bartiromo — will you follow or ignore it in 2025?](https://finance.yahoo.com/news/no-1-rule-becoming-millionaire-133000121.html)
+- Jan 06 - [Congestion pricing, meant to reduce traffic, begins in New York City](https://www.yahoo.com/news/congestion-pricing-meant-reduce-traffic-131805209.html)
 <!-- feed end -->
 
 ### Onstream
