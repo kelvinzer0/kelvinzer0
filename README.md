@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Estate planning 101: 3 documents everyone in retirement needs](https://finance.yahoo.com/video/estate-planning-101-3-documents-200000242.html)
-- Jan 06 - [Trump promises to replace national archivist after the agency's role in documents case against him](https://www.yahoo.com/news/trump-promises-replace-national-archivist-194526464.html)
-- Jan 06 - [McDonald's to launch the McValue national menu as it looks for a boost from diners and investors](https://finance.yahoo.com/news/mcdonalds-to-launch-the-mcvalue-national-menu-as-it-looks-for-a-boost-from-diners-and-investors-185245238.html)
-- Jan 06 - [72-Year-Old Earning $160,000 in Dividends Shares His 'Best Advice' and Top 10 Stock Picks](https://finance.yahoo.com/news/72-old-earning-160-000-181316540.html)
-- Jan 06 - [Jimmy Carter had little use for the presidents club but formed a friendship for the ages with Ford](https://www.yahoo.com/news/jimmy-carter-had-little-presidents-180152464.html)
+- Jan 06 - [LG presents transparent TV, adds AI chatbot to latest screens at CES 2025](https://www.yahoo.com/news/lg-presents-transparent-tv-adds-203255821.html)
+- Jan 06 - [Judge finds Rudy Giuliani in contempt for failed responses in $148 million defamation judgment case](https://www.yahoo.com/news/judge-finds-rudy-giuliani-contempt-202202195.html)
+- Jan 06 - [US cyber watchdog says no indication breach at Treasury hit other federal agencies](https://www.yahoo.com/news/us-cyber-watchdog-says-no-201832002.html)
+- Jan 06 - [Woman accused of shooting man at New Year’s party facing charges](https://www.yahoo.com/news/woman-accused-shooting-man-party-200317933.html)
+- Jan 06 - [Trump's election got certified. Why didn't liberals do their patriotic insurrection? | Opinion](https://www.yahoo.com/news/trumps-election-got-certified-why-195514248.html)
 <!-- feed end -->
 
 ### Onstream
