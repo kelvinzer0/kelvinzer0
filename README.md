@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Prince Andrew reported to police over name used to register company](https://www.yahoo.com/lifestyle/prince-andrew-reported-police-over-154500448.html)
-- Jan 06 - [Explainer-What happens after the TikTok ban?](https://finance.yahoo.com/news/explainer-happens-tiktok-ban-154059074.html)
-- Jan 06 - [All 14 people killed in New Orleans terrorist attack identified](https://www.yahoo.com/news/14-people-killed-orleans-terrorist-153808163.html)
-- Jan 06 - [Delta's 'saving grace' for Q4 will be lower fuel prices: Analyst](https://finance.yahoo.com/video/deltas-saving-grace-q4-lower-152000273.html)
+- Jan 06 - [Political rivals, colleagues and potential successors react to Trudeau's resignation](https://www.yahoo.com/news/political-rivals-colleagues-potential-successors-175658223.html)
+- Jan 06 - [Jane Fonda Stays Fit at 87 Thanks to a Low-Key & Surprisingly Accessible Workout Routine](https://www.yahoo.com/lifestyle/jane-fonda-stays-fit-87-175025143.html)
+- Jan 06 - [Rise in Canadian dollar is not tied to PM exit news: Strategist](https://finance.yahoo.com/video/rise-canadian-dollar-not-tied-174000980.html)
+- Jan 06 - [Prison officer Linda De Sousa Abreu jailed after filming sex with inmate in cell](https://www.yahoo.com/news/prison-officer-filmed-having-sex-171651736.html)
 - Jan 06 - [Watch: Iranian woman grabs cleric’s turban and wraps it round her head after hijab comments](https://www.yahoo.com/news/watch-iranian-woman-grabs-cleric-151822447.html)
 <!-- feed end -->
 
