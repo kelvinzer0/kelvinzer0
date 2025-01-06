@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Nikki Glaser Roasts Timothee Chalamet, Benny Blanco & More For Golden Globes Monologue](https://www.yahoo.com/entertainment/nikki-glaser-roasts-timothee-chalamet-044018795.html)
-- Jan 06 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
-- Jan 06 - [Xpeng, Volkswagen to build ultra-fast charging network in China](https://finance.yahoo.com/news/xpeng-volkswagen-build-ultra-fast-024651456.html)
-- Jan 06 - [Canada’s Justin Trudeau Expected to Resign as Liberal Party Leader This Week: Report](https://www.yahoo.com/news/canada-justin-trudeau-expected-resign-022046216.html)
-- Jan 06 - [Lawsuit alleges Fox Sports ex-host harassed hairstylist and offered her $1.5M for sex](https://www.yahoo.com/news/lawsuit-alleges-fox-sports-ex-021520376.html)
+- Jan 06 - [AI gadgets galore at CES 2025 in Las Vegas](https://www.yahoo.com/news/ai-gadgets-galore-ces-2025-110011471.html)
+- Jan 06 - [Ukraine launches new offensive in Russia's Kursk region, Kyiv and Moscow confirm](https://www.yahoo.com/news/ukraine-launches-offensive-russias-kursk-105544702.html)
+- Jan 06 - [Pound, gold and oil prices in focus: commodity and currency check, 6 January](https://uk.finance.yahoo.com/news/pound-gold-oil-prices-100231853.html)
+- Jan 06 - [What's the healthiest bean to eat? 5 types that are nutritionist-approved and how to enjoy them.](https://www.yahoo.com/lifestyle/whats-the-healthiest-bean-to-eat-5-types-that-are-nutritionist-approved-and-how-to-enjoy-them-100013247.html)
+- Jan 06 - [Chinese nationals arrested with gold bars and $800,000 cash in DR Congo](https://www.yahoo.com/news/chinese-nationals-arrested-gold-bars-173424088.html)
 <!-- feed end -->
 
 ### Onstream
