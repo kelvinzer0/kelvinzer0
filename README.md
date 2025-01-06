@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [My Doctor Forced Me To Do Something Disturbing. It Kept Me From Seeking Further Medical Care For Years.](https://www.yahoo.com/lifestyle/doctor-forced-something-disturbing-kept-134217117.html)
-- Jan 06 - [The No. 1 rule to becoming a millionaire in the US, according to Maria Bartiromo — will you follow or ignore it in 2025?](https://finance.yahoo.com/news/no-1-rule-becoming-millionaire-133000121.html)
-- Jan 06 - [Biden bans water heaters? What you should know before you hit the shower](https://www.yahoo.com/news/biden-bans-water-heaters-know-131657336.html)
-- Jan 06 - [Biden Uses 72-Year-Old Law to Give Trump a Slap in the Face Before MAGA 2.0](https://www.yahoo.com/news/biden-uses-72-old-law-124517172.html)
-- Jan 06 - [Disney's Hulu + Live TV business to combine with Fubo, clearing way for Venu Sports](https://finance.yahoo.com/news/disney-nears-deal-merge-hulu-123234209.html)
+- Jan 06 - [Here's What Mars Retrograde in Cancer Means for Your Zodiac Sign](https://www.yahoo.com/lifestyle/heres-mars-retrograde-cancer-means-155927445.html)
+- Jan 06 - [Canadian Prime Minister Justin Trudeau announces his resignation](https://www.yahoo.com/news/official-says-canadas-trudeau-set-155914570.html)
+- Jan 06 - [Nvidia shares jump 5% as BofA Reiterates Buy Rating](https://finance.yahoo.com/news/nvidia-shares-jump-5-bofa-155112797.html)
+- Jan 06 - [Delta's 'saving grace' for Q4 will be lower fuel prices: Analyst](https://finance.yahoo.com/video/deltas-saving-grace-q4-lower-152000273.html)
+- Jan 06 - [China's export ban to push antimony prices to new highs](https://finance.yahoo.com/news/chinas-export-ban-push-antimony-142357133.html)
 <!-- feed end -->
 
 ### Onstream
