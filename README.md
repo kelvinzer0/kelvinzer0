@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Russia says it captured Ukrainian town; fighting continues in Kursk](https://www.yahoo.com/news/russia-says-captures-kurakhove-eastern-071418623.html)
-- Jan 06 - [This is going to be the worst year for restaurants ever](https://www.yahoo.com/news/going-worst-restaurants-ever-060000599.html)
 - Jan 06 - [Nikki Glaser Roasts Timothee Chalamet, Benny Blanco & More For Golden Globes Monologue](https://www.yahoo.com/entertainment/nikki-glaser-roasts-timothee-chalamet-044018795.html)
 - Jan 06 - [Biden says Americans shouldn't forget Capitol attack -- but that there won't be a repeat this time](https://www.yahoo.com/news/biden-says-americans-shouldnt-forget-042044883.html)
-- Jan 06 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
+- Jan 06 - [Court documents: Spokane man stabbed uncle in head in possible mercy-killing attempt](https://www.yahoo.com/news/court-documents-spokane-man-stabbed-030500034.html)
+- Jan 06 - [Canada’s Justin Trudeau Expected to Resign as Liberal Party Leader This Week: Report](https://www.yahoo.com/news/canada-justin-trudeau-expected-resign-022046216.html)
+- Jan 06 - [Lawsuit alleges Fox Sports ex-host harassed hairstylist and offered her $1.5M for sex](https://www.yahoo.com/news/lawsuit-alleges-fox-sports-ex-021520376.html)
 <!-- feed end -->
 
 ### Onstream
