@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Here's What Mars Retrograde in Cancer Means for Your Zodiac Sign](https://www.yahoo.com/lifestyle/heres-mars-retrograde-cancer-means-155927445.html)
-- Jan 06 - [Canadian Prime Minister Justin Trudeau announces his resignation](https://www.yahoo.com/news/official-says-canadas-trudeau-set-155914570.html)
-- Jan 06 - [Nvidia shares jump 5% as BofA Reiterates Buy Rating](https://finance.yahoo.com/news/nvidia-shares-jump-5-bofa-155112797.html)
+- Jan 06 - [Prince Andrew reported to police over name used to register company](https://www.yahoo.com/lifestyle/prince-andrew-reported-police-over-154500448.html)
+- Jan 06 - [Explainer-What happens after the TikTok ban?](https://finance.yahoo.com/news/explainer-happens-tiktok-ban-154059074.html)
+- Jan 06 - [All 14 people killed in New Orleans terrorist attack identified](https://www.yahoo.com/news/14-people-killed-orleans-terrorist-153808163.html)
 - Jan 06 - [Delta's 'saving grace' for Q4 will be lower fuel prices: Analyst](https://finance.yahoo.com/video/deltas-saving-grace-q4-lower-152000273.html)
-- Jan 06 - [China's export ban to push antimony prices to new highs](https://finance.yahoo.com/news/chinas-export-ban-push-antimony-142357133.html)
+- Jan 06 - [Watch: Iranian woman grabs cleric’s turban and wraps it round her head after hijab comments](https://www.yahoo.com/news/watch-iranian-woman-grabs-cleric-151822447.html)
 <!-- feed end -->
 
 ### Onstream
