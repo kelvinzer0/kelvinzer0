@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [Obese patients to be sent to back of surgery queue](https://www.yahoo.com/news/obese-patients-sent-back-surgery-210000788.html)
+- Jan 06 - [Judge finds Giuliani in civil contempt in 2020 election workers' case](https://www.yahoo.com/news/judge-finds-giuliani-civil-contempt-203456838.html)
+- Jan 06 - [Biden to visit New Orleans after deadly Bourbon Street attack](https://www.yahoo.com/news/biden-visit-orleans-deadly-bourbon-203300308.html)
 - Jan 06 - [LG presents transparent TV, adds AI chatbot to latest screens at CES 2025](https://www.yahoo.com/news/lg-presents-transparent-tv-adds-203255821.html)
-- Jan 06 - [Judge finds Rudy Giuliani in contempt for failed responses in $148 million defamation judgment case](https://www.yahoo.com/news/judge-finds-rudy-giuliani-contempt-202202195.html)
-- Jan 06 - [US cyber watchdog says no indication breach at Treasury hit other federal agencies](https://www.yahoo.com/news/us-cyber-watchdog-says-no-201832002.html)
-- Jan 06 - [Woman accused of shooting man at New Year’s party facing charges](https://www.yahoo.com/news/woman-accused-shooting-man-party-200317933.html)
-- Jan 06 - [Trump's election got certified. Why didn't liberals do their patriotic insurrection? | Opinion](https://www.yahoo.com/news/trumps-election-got-certified-why-195514248.html)
+- Jan 06 - [Rudy Giuliani is in contempt of court in $148 million defamation case](https://www.yahoo.com/news/judge-finds-rudy-giuliani-contempt-202202195.html)
 <!-- feed end -->
 
 ### Onstream
