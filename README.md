@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Political rivals, colleagues and potential successors react to Trudeau's resignation](https://www.yahoo.com/news/political-rivals-colleagues-potential-successors-175658223.html)
-- Jan 06 - [Jane Fonda Stays Fit at 87 Thanks to a Low-Key & Surprisingly Accessible Workout Routine](https://www.yahoo.com/lifestyle/jane-fonda-stays-fit-87-175025143.html)
-- Jan 06 - [Rise in Canadian dollar is not tied to PM exit news: Strategist](https://finance.yahoo.com/video/rise-canadian-dollar-not-tied-174000980.html)
+- Jan 06 - [4 years after Jan. 6 insurrection, Kamala Harris certifies Trump's election win](https://www.yahoo.com/news/congress-meets-certify-trumps-2024-180300766.html)
+- Jan 06 - [Jimmy Carter had little use for the presidents club but formed a friendship for the ages with Ford](https://www.yahoo.com/news/jimmy-carter-had-little-presidents-180152464.html)
 - Jan 06 - [Prison officer Linda De Sousa Abreu jailed after filming sex with inmate in cell](https://www.yahoo.com/news/prison-officer-filmed-having-sex-171651736.html)
-- Jan 06 - [Watch: Iranian woman grabs cleric’s turban and wraps it round her head after hijab comments](https://www.yahoo.com/news/watch-iranian-woman-grabs-cleric-151822447.html)
+- Jan 06 - [Elon Musk Cusses Out Student Who Called Him a Fake News Machine](https://www.yahoo.com/news/elon-musk-cusses-student-called-171002695.html)
+- Jan 06 - [Cedar Point removing another bygone attraction from lakefront park](https://www.yahoo.com/entertainment/cedar-point-removing-another-bygone-164936233.html)
 <!-- feed end -->
 
 ### Onstream
