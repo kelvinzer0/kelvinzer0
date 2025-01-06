@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Woman who killed musician Selena asks for parole amid claims she has ‘bounty’ on her head](https://www.yahoo.com/news/woman-killed-musician-selena-asks-051445251.html)
+- Jan 06 - [An official ‘Islamophobia’ definition would threaten free speech](https://www.yahoo.com/news/official-islamophobia-definition-threaten-free-060000203.html)
 - Jan 06 - [Nikki Glaser Roasts Timothee Chalamet, Benny Blanco & More For Golden Globes Monologue](https://www.yahoo.com/entertainment/nikki-glaser-roasts-timothee-chalamet-044018795.html)
 - Jan 06 - [Biden says Americans shouldn't forget Capitol attack -- but that there won't be a repeat this time](https://www.yahoo.com/news/biden-says-americans-shouldnt-forget-042044883.html)
 - Jan 06 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
