@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
+- Jan 06 - [Court documents: Spokane man stabbed uncle in head in possible mercy-killing attempt](https://www.yahoo.com/news/court-documents-spokane-man-stabbed-030500034.html)
 - Jan 06 - [Xpeng, Volkswagen to build ultra-fast charging network in China](https://finance.yahoo.com/news/xpeng-volkswagen-build-ultra-fast-024651137.html)
 - Jan 06 - [Canada’s Justin Trudeau Expected to Resign as Liberal Party Leader This Week: Report](https://www.yahoo.com/news/canada-justin-trudeau-expected-resign-022046216.html)
 - Jan 06 - [Lawsuit alleges Fox Sports ex-host harassed hairstylist and offered her $1.5M for sex](https://www.yahoo.com/news/lawsuit-alleges-fox-sports-ex-021520376.html)
-- Jan 06 - [As he prepares to leave office, Biden urges incoming Democratic lawmakers to reach across the aisle](https://www.yahoo.com/news/prepares-leave-office-biden-urges-014404614.html)
-- Jan 06 - [Russia ‘getting what it deserves,’ Ukraine says, after launching counterattack in border region](https://www.yahoo.com/news/russia-getting-deserves-ukraine-says-122116768.html)
 <!-- feed end -->
 
 ### Onstream
