@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Microsoft Plans $80 Billion AI Investment to Strengthen U.S. Competitiveness](https://finance.yahoo.com/news/microsoft-plans-80-billion-ai-115740903.html)
+- Jan 06 - [Spanish tourist gored by ‘panic-stricken’ elephant at Thai sanctuary](https://www.yahoo.com/news/spanish-tourist-gored-panic-stricken-115133313.html)
 - Jan 06 - [New Alphabet CFO Expected To Make Bigger Impact In 2025. Is Google Stock A Buy?](https://www.investors.com/news/technology/google-stock-buy-now-alphabet-stock-january-2025/?src=A00220&yptr=yahoo)
-- Jan 06 - [Starmer hits back at Musk, criticizing those ‘spreading lies’ over child sex abuse](https://www.yahoo.com/news/starmer-hits-back-musk-criticizing-113943607.html)
-- Jan 06 - [Police share update on death of RuPaul’s Drag Race star The Vivienne](https://www.yahoo.com/news/police-share-death-rupaul-drag-110942166.html)
 - Jan 06 - [AI gadgets galore at CES 2025 in Las Vegas](https://www.yahoo.com/news/ai-gadgets-galore-ces-2025-110011471.html)
+- Jan 06 - [Trump Orders Congressional Republicans to Pass the Mother of All MAGA Bills](https://www.yahoo.com/news/trump-orders-congressional-republicans-pass-103617170.html)
+- Jan 06 - [Residents of Syria's Quneitra are frustrated by lack of action to halt Israeli advance](https://www.yahoo.com/news/residents-syrias-quneitra-frustrated-lack-102728442.html)
 <!-- feed end -->
 
 ### Onstream
