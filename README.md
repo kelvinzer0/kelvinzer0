@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [Kyiv army's new offensive in Russia is stopping Putin deploying more troops to fight in Ukraine, says Zelensky](https://www.yahoo.com/news/kyiv-armys-offensive-russia-stopping-100753693.html)
 - Jan 07 - [Biden administration bans unpaid medical bills from appearing on credit reports](https://www.yahoo.com/news/biden-administration-bans-unpaid-medical-100352507.html)
-- Jan 07 - [Chair of child sex abuse inquiry denounces Musk over grooming gangs](https://www.yahoo.com/news/chair-child-sex-abuse-inquiry-092425119.html)
+- Jan 07 - [The next round of bitter cold and snow will hit the southern US](https://www.yahoo.com/news/next-round-bitter-cold-snow-060143110.html)
 - Jan 07 - [Saudi Arabia presses Florida man to give up US citizenship over critical tweets, family says](https://www.yahoo.com/news/saudi-arabia-presses-florida-man-050923150.html)
 - Jan 07 - [Mexico drops migrants in troubled resort as it disperses them far from US border](https://www.yahoo.com/news/mexico-drops-migrants-troubled-resort-050903799.html)
-- Jan 07 - [Nvidia debuts GB10 superchip, AI systems for humanoid robots, self-driving trucks at CES 2025](https://finance.yahoo.com/news/nvidia-debuts-gb10-superchip-ai-systems-for-humanoid-robots-self-driving-trucks-at-ces-2025-041518153.html)
 <!-- feed end -->
 
 ### Onstream
