@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Two people found dead on JetBlue plane in Florida](https://www.yahoo.com/news/two-people-found-dead-jetblue-113821184.html)
-- Jan 07 - [Will Honda be in control if Nissan and Honda merge?](https://finance.yahoo.com/news/honda-control-nissan-honda-merge-115157302.html)
+- Jan 07 - [Nvidia showcases new AI gaming chips that promise high quality images](https://www.yahoo.com/news/nvidia-showcases-ai-gaming-chips-144250999.html)
+- Jan 07 - [Donald Trump Jr. arrives in Greenland after his father said the U.S. should own the Arctic territory](https://www.yahoo.com/news/donald-trump-jr-arrives-greenland-132110315.html)
+- Jan 07 - [Scientists warn about concerning factor that could be linked to cancer: 'Exposures are ... projected to increase'](https://www.yahoo.com/news/scientists-warn-concerning-factor-could-110041905.html)
+- Jan 07 - [Mechanics Explain Why You Should Never Buy These 6 Popular Car Brands](https://autos.yahoo.com/mechanics-explain-why-never-buy-120009078.html)
 - Jan 07 - [A Big Social Security Change Proposed by President-Elect Donald Trump May Be Bad News for Retirees](https://finance.yahoo.com/news/big-social-security-change-proposed-100000867.html)
-- Jan 07 - [Saudi Arabia presses Florida man to give up US citizenship over critical tweets, family says](https://www.yahoo.com/news/saudi-arabia-presses-florida-man-050923150.html)
-- Jan 07 - [Top 3 takeaways from Nvidia's CES 2025 keynote](https://finance.yahoo.com/news/top-3-takeaways-from-nvidias-ces-2025-keynote-044257032.html)
 <!-- feed end -->
 
 ### Onstream
