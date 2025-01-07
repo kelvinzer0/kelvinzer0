@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Why AppLovin Stock Is Plummeting Today](https://finance.yahoo.com/news/why-applovin-stock-plummeting-today-175331149.html)
+- Jan 07 - [Trump won't rule out military force to retake Panama Canal, threatens 'all hell will break loose' over Israeli hostages](https://www.yahoo.com/news/trump-remarks-mar-lago-2-152400370.html)
+- Jan 07 - [James Webb Space Telescope Delivers Amazing Horsehead Nebula Imagery](https://www.yahoo.com/news/james-webb-space-telescope-delivers-180000599.html)
+- Jan 07 - [Trump Struggles to Understand Appliances in Bizarre, Rambling Speech](https://www.yahoo.com/news/trump-struggles-understand-appliances-bizarre-175004536.html)
+- Jan 07 - [Republicans on the NC Supreme Court block certification of the Democratic incumbent’s election](https://www.yahoo.com/news/republicans-nc-supreme-court-block-174501274.html)
 - Jan 07 - [Florida grand jury investigating COVID-19 vaccines finds no evidence of criminal activity](https://www.yahoo.com/news/florida-grand-jury-investigating-covid-173734993.html)
-- Jan 07 - [Couple who died in crash on way to holiday were given ‘no chance’ by killer driver](https://www.yahoo.com/news/couple-killed-reckless-driver-way-164027406.html)
-- Jan 07 - [California shoe store owner uses simple trick to make break-in robberies 'pointless'](https://finance.yahoo.com/news/california-shoe-store-owner-uses-163000895.html)
-- Jan 07 - [Photos show Joe Biden's 6,850-square-foot Delaware home where he'll likely move after the White House](https://www.yahoo.com/news/photos-show-joe-bidens-6-145823892.html)
 <!-- feed end -->
 
 ### Onstream
