@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Long silenced by fear, Syrians now speak about rampant torture under Assad](https://www.yahoo.com/news/long-silenced-fear-syrians-now-051131709.html)
+- Jan 07 - [Saudi Arabia presses Florida man to give up US citizenship over critical tweets, family says](https://www.yahoo.com/news/saudi-arabia-presses-florida-man-050923150.html)
+- Jan 07 - [Mexico drops migrants in troubled resort as it disperses them far from US border](https://www.yahoo.com/news/mexico-drops-migrants-troubled-resort-050903799.html)
 - Jan 07 - [Nvidia debuts GB10 superchip, AI systems for humanoid robots, self-driving trucks at CES 2025](https://finance.yahoo.com/news/nvidia-debuts-gb10-superchip-ai-systems-for-humanoid-robots-self-driving-trucks-at-ces-2025-041518153.html)
+- Jan 07 - [Nvidia releases its own brand of world models](https://finance.yahoo.com/news/nvidia-releases-own-brand-world-033800695.html)
 - Jan 07 - [America's stock-market boom will end in 2025 as markets punish the US for its yawning deficits, Rockefeller chairman says](https://finance.yahoo.com/news/americas-stock-market-boom-end-022858489.html)
-- Jan 07 - [Nvidia unveils robot training tech, new gaming chips and Toyota deal](https://finance.yahoo.com/news/nvidia-ceo-set-stage-ces-002616960.html)
-- Jan 07 - [Musk asks his followers if the US ‘should liberate the people of Britain from their tyrannical government’](https://www.yahoo.com/news/musk-asks-followers-us-liberate-001411477.html)
 <!-- feed end -->
 
 ### Onstream
