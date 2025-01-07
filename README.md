@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [Obese patients face being sent to back of surgery queue](https://www.yahoo.com/news/obese-patients-sent-back-surgery-210000788.html)
+- Jan 06 - [Mouse Study Suggests Surprising Link Between Alzheimer's And Nose-Picking](https://www.yahoo.com/news/mouse-study-suggests-surprising-between-232314486.html)
+- Jan 06 - [Pamela Anderson Says a Man Nearly Killed Her After Mistaking Her for a Member of The Chicks](https://www.yahoo.com/entertainment/pamela-anderson-says-man-nearly-230707885.html)
+- Jan 06 - [US transfers 11 Guantanamo detainees to Yemen after more than two decades without charge](https://www.yahoo.com/news/us-transfers-11-guantanamo-detainees-230159349.html)
 - Jan 06 - [Two Indian companies indicted in US for importing ingredients used in opioid fentanyl](https://finance.yahoo.com/news/two-indian-companies-indicted-us-214818407.html)
 - Jan 06 - [Judge finds Giuliani in civil contempt in 2020 election workers' case](https://www.yahoo.com/news/judge-finds-giuliani-civil-contempt-203456838.html)
-- Jan 06 - [Rudy Giuliani is in contempt of court in $148 million defamation case](https://www.yahoo.com/news/judge-finds-rudy-giuliani-contempt-202202195.html)
-- Jan 06 - [A part-time actor claimed he created a COVID-19 cure. Now he'll spend more than 8 years in prison](https://www.yahoo.com/news/part-time-actor-claimed-created-200056609.html)
 <!-- feed end -->
 
 ### Onstream
