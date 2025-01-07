@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [Nvidia CEO set to take stage at CES just after shares hit record high](https://finance.yahoo.com/news/nvidia-ceo-set-stage-ces-002616960.html)
 - Jan 06 - [Mouse Study Suggests Surprising Link Between Alzheimer's And Nose-Picking](https://www.yahoo.com/news/mouse-study-suggests-surprising-between-232314486.html)
-- Jan 06 - [Pamela Anderson Says a Man Nearly Killed Her After Mistaking Her for a Member of The Chicks](https://www.yahoo.com/entertainment/pamela-anderson-says-man-nearly-230707885.html)
+- Jan 06 - [First winter storm could impact Charlotte metro for first time in nearly 3 years](https://www.yahoo.com/news/first-winter-storm-could-impact-230445636.html)
 - Jan 06 - [US transfers 11 Guantanamo detainees to Yemen after more than two decades without charge](https://www.yahoo.com/news/us-transfers-11-guantanamo-detainees-230159349.html)
-- Jan 06 - [Two Indian companies indicted in US for importing ingredients used in opioid fentanyl](https://finance.yahoo.com/news/two-indian-companies-indicted-us-214818407.html)
-- Jan 06 - [Judge finds Giuliani in civil contempt in 2020 election workers' case](https://www.yahoo.com/news/judge-finds-giuliani-civil-contempt-203456838.html)
+- Jan 06 - [Archaeologists stumped by strange alien-like figurine dating back 7,000 years: 'Raises questions'](https://www.yahoo.com/lifestyle/archaeologists-stumped-strange-alien-figurine-223106532.html)
 <!-- feed end -->
 
 ### Onstream
