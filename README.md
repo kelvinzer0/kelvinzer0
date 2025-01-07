@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Kyiv army's new offensive in Russia is stopping Putin deploying more troops to fight in Ukraine, says Zelensky](https://www.yahoo.com/news/kyiv-armys-offensive-russia-stopping-100753693.html)
+- Jan 07 - [South Korean minister to resign over Jeju Air crash that killed 179](https://www.yahoo.com/news/south-korean-minister-resign-over-120534122.html)
 - Jan 07 - [Biden administration bans unpaid medical bills from appearing on credit reports](https://www.yahoo.com/news/biden-administration-bans-unpaid-medical-100352507.html)
-- Jan 07 - [The next round of bitter cold and snow will hit the southern US](https://www.yahoo.com/news/next-round-bitter-cold-snow-060143110.html)
+- Jan 07 - [A Big Social Security Change Proposed by President-Elect Donald Trump May Be Bad News for Retirees](https://finance.yahoo.com/news/big-social-security-change-proposed-100000867.html)
+- Jan 07 - [Microsoft CEO Satya Nadella Said Something That Could Be Bad News for Nvidia but Great News for This AI-Powered Stock in 2025](https://finance.yahoo.com/news/microsoft-ceo-satya-nadella-said-092300796.html)
 - Jan 07 - [Saudi Arabia presses Florida man to give up US citizenship over critical tweets, family says](https://www.yahoo.com/news/saudi-arabia-presses-florida-man-050923150.html)
-- Jan 07 - [Mexico drops migrants in troubled resort as it disperses them far from US border](https://www.yahoo.com/news/mexico-drops-migrants-troubled-resort-050903799.html)
 <!-- feed end -->
 
 ### Onstream
