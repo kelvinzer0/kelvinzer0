@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Judge in Trump's classified docs case temporarily blocks release of special counsel's final report](https://www.yahoo.com/news/special-counsel-responds-trump-co-144600161.html)
-- Jan 07 - [14-year-old boy stabbed to death on bus](https://www.yahoo.com/news/14-old-boy-stabbed-death-164013070.html)
-- Jan 07 - [Osceola County Sheriff Marcos Lopez placed into Brady System, state attorney says](https://www.yahoo.com/news/osceola-county-sheriff-marcos-lopez-205055140.html)
-- Jan 07 - [Archaeologists Pulled a 1,500-Year-Old Sword From a Hidden Grave](https://www.yahoo.com/news/archaeologists-pulled-1-500-old-153000308.html)
+- Jan 07 - [Why AppLovin Stock Is Plummeting Today](https://finance.yahoo.com/news/why-applovin-stock-plummeting-today-175331149.html)
+- Jan 07 - [Florida grand jury investigating COVID-19 vaccines finds no evidence of criminal activity](https://www.yahoo.com/news/florida-grand-jury-investigating-covid-173734993.html)
+- Jan 07 - [Couple who died in crash on way to holiday were given ‘no chance’ by killer driver](https://www.yahoo.com/news/couple-killed-reckless-driver-way-164027406.html)
+- Jan 07 - [California shoe store owner uses simple trick to make break-in robberies 'pointless'](https://finance.yahoo.com/news/california-shoe-store-owner-uses-163000895.html)
 - Jan 07 - [Photos show Joe Biden's 6,850-square-foot Delaware home where he'll likely move after the White House](https://www.yahoo.com/news/photos-show-joe-bidens-6-145823892.html)
 <!-- feed end -->
 
