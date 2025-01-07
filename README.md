@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Boss of Brevard non-profit returns from vacation to "gift" from staff. See what they did](https://www.yahoo.com/lifestyle/boss-brevard-non-profit-returns-200404773.html)
-- Jan 07 - [Fresh job market data, Nvidia falls from record highs: Catalysts](https://finance.yahoo.com/video/fresh-job-market-data-nvidia-200049418.html)
-- Jan 07 - [2 sons of Mexican cartel leader 'El Chapo' are in plea negotiations with US, attorneys say](https://www.yahoo.com/news/2-sons-mexican-cartel-leader-183405810.html)
-- Jan 07 - [Jon Stewart Loses It Over Democrat’s NSFW Nickname for Lauren Boebert | Video](https://www.yahoo.com/entertainment/jon-stewart-loses-over-democrat-180747380.html)
-- Jan 07 - [DOGE is hiring full-time salaried employees. These are the roles Elon Musk and Vivek Ramaswamy aim to fill.](https://finance.yahoo.com/news/doge-hiring-full-time-salaried-180057723.html)
+- Jan 07 - [AI startup Anthropic in talks to raise $2B at $60B valuation: WSJ](https://finance.yahoo.com/video/ai-startup-anthropic-talks-raise-213958384.html)
+- Jan 07 - [Mexico offers protection to famed corridos singer after drug cartel death threats](https://www.yahoo.com/news/mexico-offers-protection-famed-corridos-213610356.html)
+- Jan 07 - [Trump addresses my top issues: Renaming Gulf of Mexico and invading Greenland | Opinion](https://www.yahoo.com/news/trump-addresses-top-issues-renaming-210514313.html)
+- Jan 07 - [Violent offender with long history of assaults expected to live in Winnipeg after release: police](https://www.yahoo.com/news/violent-offender-long-history-assaults-200317582.html)
+- Jan 07 - [Fire Erupts in Pacific Palisades Amid Strong Winds](https://www.yahoo.com/news/fire-erupts-pacific-palisades-amid-200043206.html)
 <!-- feed end -->
 
 ### Onstream
