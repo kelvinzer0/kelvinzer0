@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Nvidia CEO set to take stage at CES just after shares hit record high](https://finance.yahoo.com/news/nvidia-ceo-set-stage-ces-002616960.html)
+- Jan 07 - [Two death row inmates reject Biden's commutation of their life sentences](https://www.yahoo.com/news/two-death-row-inmates-reject-003130500.html)
+- Jan 07 - [Nvidia CEO unveils new gaming chips at CES conference](https://finance.yahoo.com/news/nvidia-ceo-set-stage-ces-002616960.html)
+- Jan 07 - [6 victims of Hawaii fireworks explosion flown to Arizona burn center](https://www.yahoo.com/news/6-victims-hawaii-fireworks-explosion-000148835.html)
 - Jan 06 - [Mouse Study Suggests Surprising Link Between Alzheimer's And Nose-Picking](https://www.yahoo.com/news/mouse-study-suggests-surprising-between-232314486.html)
-- Jan 06 - [First winter storm could impact Charlotte metro for first time in nearly 3 years](https://www.yahoo.com/news/first-winter-storm-could-impact-230445636.html)
 - Jan 06 - [US transfers 11 Guantanamo detainees to Yemen after more than two decades without charge](https://www.yahoo.com/news/us-transfers-11-guantanamo-detainees-230159349.html)
-- Jan 06 - [Archaeologists stumped by strange alien-like figurine dating back 7,000 years: 'Raises questions'](https://www.yahoo.com/lifestyle/archaeologists-stumped-strange-alien-figurine-223106532.html)
 <!-- feed end -->
 
 ### Onstream
