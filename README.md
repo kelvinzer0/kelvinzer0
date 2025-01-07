@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jan 07 - [Saudi Arabia presses Florida man to give up US citizenship over critical tweets, family says](https://www.yahoo.com/news/saudi-arabia-presses-florida-man-050923150.html)
 - Jan 07 - [Mexico drops migrants in troubled resort as it disperses them far from US border](https://www.yahoo.com/news/mexico-drops-migrants-troubled-resort-050903799.html)
 - Jan 07 - [Nvidia debuts GB10 superchip, AI systems for humanoid robots, self-driving trucks at CES 2025](https://finance.yahoo.com/news/nvidia-debuts-gb10-superchip-ai-systems-for-humanoid-robots-self-driving-trucks-at-ces-2025-041518153.html)
-- Jan 07 - [America's stock-market boom will end in 2025 as markets punish the US for its yawning deficits, Rockefeller chairman says](https://finance.yahoo.com/news/americas-stock-market-boom-end-022858489.html)
-- Jan 07 - [Orange County teacher arrested for sexually explicit texts with ’14-year-old boy’](https://www.yahoo.com/news/orange-county-teacher-arrested-sexually-020002178.html)
+- Jan 07 - [Toyota’s next-generation cars will be built with Nvidia supercomputers and operating system](https://finance.yahoo.com/news/toyota-next-generation-cars-built-035300654.html)
+- Jan 07 - [Nvidia releases its own brand of world models](https://finance.yahoo.com/news/nvidia-releases-own-brand-world-033800695.html)
 <!-- feed end -->
 
 ### Onstream
