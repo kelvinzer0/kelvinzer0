@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Trump won't rule out military force to retake Panama Canal, threatens 'all hell will break loose' over Israeli hostages](https://www.yahoo.com/news/trump-remarks-mar-lago-2-152400370.html)
-- Jan 07 - [James Webb Space Telescope Delivers Amazing Horsehead Nebula Imagery](https://www.yahoo.com/news/james-webb-space-telescope-delivers-180000599.html)
+- Jan 07 - [2 sons of Mexican cartel leader 'El Chapo' are in plea negotiations with US, attorneys say](https://www.yahoo.com/news/2-sons-mexican-cartel-leader-183405810.html)
+- Jan 07 - [Jon Stewart Loses It Over Democrat’s NSFW Nickname for Lauren Boebert | Video](https://www.yahoo.com/entertainment/jon-stewart-loses-over-democrat-180747380.html)
 - Jan 07 - [Trump Struggles to Understand Appliances in Bizarre, Rambling Speech](https://www.yahoo.com/news/trump-struggles-understand-appliances-bizarre-175004536.html)
 - Jan 07 - [Republicans on the NC Supreme Court block certification of the Democratic incumbent’s election](https://www.yahoo.com/news/republicans-nc-supreme-court-block-174501274.html)
 - Jan 07 - [Florida grand jury investigating COVID-19 vaccines finds no evidence of criminal activity](https://www.yahoo.com/news/florida-grand-jury-investigating-covid-173734993.html)
