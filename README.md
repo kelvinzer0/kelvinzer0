@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [AI startup Anthropic in talks to raise $2B at $60B valuation: WSJ](https://finance.yahoo.com/video/ai-startup-anthropic-talks-raise-213958384.html)
+- Jan 07 - [Samsung unveils its smart home tech at CES in Las Vegas](https://finance.yahoo.com/video/samsung-unveils-smart-home-tech-224801866.html)
 - Jan 07 - [Mexico offers protection to famed corridos singer after drug cartel death threats](https://www.yahoo.com/news/mexico-offers-protection-famed-corridos-213610356.html)
-- Jan 07 - [Trump addresses my top issues: Renaming Gulf of Mexico and invading Greenland | Opinion](https://www.yahoo.com/news/trump-addresses-top-issues-renaming-210514313.html)
-- Jan 07 - [Violent offender with long history of assaults expected to live in Winnipeg after release: police](https://www.yahoo.com/news/violent-offender-long-history-assaults-200317582.html)
+- Jan 07 - [Palisades Fire live updates: Wildfires spread in Los Angeles, prompting mandatory evacuations, as Santa Ana winds expected to intensify](https://www.yahoo.com/news/live/palisades-fire-live-updates-wildfires-spread-in-los-angeles-prompting-mandatory-evacuations-as-santa-ana-winds-expected-to-intensify-201256465.html)
 - Jan 07 - [Fire Erupts in Pacific Palisades Amid Strong Winds](https://www.yahoo.com/news/fire-erupts-pacific-palisades-amid-200043206.html)
+- Jan 07 - [WATCH: Road rage suspect drags mom out of vehicle, body-slams her on pavement](https://www.yahoo.com/news/watch-road-rage-suspect-drags-194039812.html)
 <!-- feed end -->
 
 ### Onstream
