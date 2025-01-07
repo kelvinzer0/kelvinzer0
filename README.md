@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Two death row inmates reject Biden's commutation of their life sentences](https://www.yahoo.com/news/two-death-row-inmates-reject-003130500.html)
-- Jan 07 - [Nvidia CEO unveils new gaming chips at CES conference](https://finance.yahoo.com/news/nvidia-ceo-set-stage-ces-002616960.html)
-- Jan 07 - [6 victims of Hawaii fireworks explosion flown to Arizona burn center](https://www.yahoo.com/news/6-victims-hawaii-fireworks-explosion-000148835.html)
+- Jan 07 - [Catalytic converter thief shouted 'No!' before accomplice shot Johnny Wactor, police say](https://www.yahoo.com/news/catalytic-converter-thief-shouted-no-020245334.html)
+- Jan 07 - [Bill Maher tells actor he’s ‘crazy woke’ for refusing to 'judge' Islam over its treatment of women](https://www.yahoo.com/news/bill-maher-tells-actor-crazy-010007323.html)
+- Jan 07 - [Nvidia CEO unveils robot training tech, Toyota deal and new gaming chips](https://finance.yahoo.com/news/nvidia-ceo-set-stage-ces-002616960.html)
+- Jan 06 - [What is HMPV? What to know about the virus as cases tick up in China and the US](https://www.yahoo.com/news/hmpv-know-virus-cases-tick-234913762.html)
 - Jan 06 - [Mouse Study Suggests Surprising Link Between Alzheimer's And Nose-Picking](https://www.yahoo.com/news/mouse-study-suggests-surprising-between-232314486.html)
-- Jan 06 - [US transfers 11 Guantanamo detainees to Yemen after more than two decades without charge](https://www.yahoo.com/news/us-transfers-11-guantanamo-detainees-230159349.html)
 <!-- feed end -->
 
 ### Onstream
