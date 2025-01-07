@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Man accused of killing woman in New York subway fire pleads not guilty](https://www.yahoo.com/news/man-accused-killing-woman-york-160151035.html)
-- Jan 07 - [Far-right leader pledges to 'govern Austria honestly' and makes demands of potential partner](https://www.yahoo.com/news/far-leader-pledges-govern-austria-155022416.html)
-- Jan 07 - [Hamas stands by demand for end to Gaza war under hostage deal, as Trump deadline approaches](https://www.yahoo.com/news/hamas-stands-demand-end-gaza-133937204.html)
-- Jan 07 - [Winter Storm In DC Delays President Carter’s Funeral Events](https://www.yahoo.com/news/winter-storm-dc-delays-president-124144613.html)
-- Jan 07 - [Scientists warn about concerning factor that could be linked to cancer: 'Exposures are ... projected to increase'](https://www.yahoo.com/news/scientists-warn-concerning-factor-could-110041905.html)
+- Jan 07 - [Judge in Trump's classified docs case temporarily blocks release of special counsel's final report](https://www.yahoo.com/news/special-counsel-responds-trump-co-144600161.html)
+- Jan 07 - [14-year-old boy stabbed to death on bus](https://www.yahoo.com/news/14-old-boy-stabbed-death-164013070.html)
+- Jan 07 - [Osceola County Sheriff Marcos Lopez placed into Brady System, state attorney says](https://www.yahoo.com/news/osceola-county-sheriff-marcos-lopez-205055140.html)
+- Jan 07 - [Archaeologists Pulled a 1,500-Year-Old Sword From a Hidden Grave](https://www.yahoo.com/news/archaeologists-pulled-1-500-old-153000308.html)
+- Jan 07 - [Photos show Joe Biden's 6,850-square-foot Delaware home where he'll likely move after the White House](https://www.yahoo.com/news/photos-show-joe-bidens-6-145823892.html)
 <!-- feed end -->
 
 ### Onstream
