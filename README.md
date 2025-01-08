@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Lakers coach JJ Redick says his family evacuated and people are 'freaking out' due to LA wildfires](https://www.yahoo.com/news/lakers-coach-jj-redick-says-042056009.html)
-- Jan 08 - ['The View' star Sunny Hostin's surgeon husband accused of insurance fraud in sweeping federal lawsuit](https://www.yahoo.com/news/view-star-sunny-hostins-surgeon-011727745.html)
-- Jan 08 - [Watch: View from inside plane as it flies through Palisade Fire attempting to land at LAX](https://www.yahoo.com/news/watch-view-inside-plane-flies-003831325.html)
+- Jan 08 - [Many structures already destroyed in Pacific Palisades wildfire, California governor says](https://www.yahoo.com/news/many-structures-already-destroyed-pacific-013007453.html)
+- Jan 08 - [Driver in Kansas City viral video explains why she jumped out of car](https://www.yahoo.com/news/driver-kansas-city-viral-video-003140188.html)
 - Jan 08 - [St. Louis prosecutor spent weeks away from office while in nursing school, audit finds](https://www.yahoo.com/news/st-louis-prosecutor-spent-weeks-000009559.html)
 - Jan 07 - [US Justice Department accuses six major landlords of scheming to keep rents high](https://www.yahoo.com/news/us-justice-department-accuses-six-235614069.html)
+- Jan 07 - [Samsung Q4 profit outlook misses estimates by large margin as chip issues drag](https://finance.yahoo.com/news/samsung-q4-operating-profit-outlook-234302520.html)
 <!-- feed end -->
 
 ### Onstream
