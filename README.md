@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Finland says oil tanker linked to subsea cable damage has serious deficiencies](https://www.yahoo.com/news/finland-says-oil-tanker-linked-092832231.html)
-- Jan 08 - ['Jesus God!' Biden says his granddaughter, Naomi, scheduled to have C-section on Wednesday](https://www.yahoo.com/news/jesus-god-biden-says-granddaughter-090821492.html)
-- Jan 08 - [Lakers coach JJ Redick says his family evacuated and people are 'freaking out' due to LA wildfires](https://www.yahoo.com/news/lakers-coach-jj-redick-says-042056009.html)
-- Jan 08 - [Disgraced former US Rep. George Santos seeks to delay fraud sentencing to make more podcast episodes](https://www.yahoo.com/news/disgraced-former-us-rep-george-011126293.html)
-- Jan 07 - [Texas Medical Board temporarily suspends Houston surgeon after he tested positive for cocaine](https://www.yahoo.com/news/texas-medical-board-temporarily-suspends-230920776.html)
+- Jan 08 - [Dow Jones Futures Fall; What To Do After Stock Market Sell-Off; Nvidia, Palantir Tumble](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-sells-off-nvidia-palantir-tumble/?src=A00220&yptr=yahoo)
+- Jan 08 - [Ukraine 'drones attack oil depot for Putin's nuclear bomber planes' deep inside Russia](https://www.yahoo.com/news/ukraine-drones-attack-oil-depot-102843535.html)
+- Jan 08 - [Ukraine claims it struck a key military fuel depot deep inside Russia](https://www.yahoo.com/news/ukraine-claims-struck-key-military-112721446.html)
+- Jan 08 - [Why Nvidia rug pull doesn't faze US stock market bulls: Morning Brief](https://finance.yahoo.com/news/why-nvidia-rug-pull-doesnt-faze-us-stock-market-bulls-morning-brief-105820262.html)
+- Jan 08 - [Limit coffee-drinking to this time window to lower early death risk, study suggests](https://www.yahoo.com/lifestyle/limit-coffee-drinking-time-window-000701698.html)
 <!-- feed end -->
 
 ### Onstream
