@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [US trade deficit with Vietnam soars beyond $110 billion, as weak dong boosts exports](https://finance.yahoo.com/news/us-trade-deficit-vietnam-soars-054040521.html)
 - Jan 08 - [Lakers coach JJ Redick says his family evacuated and people are 'freaking out' due to LA wildfires](https://www.yahoo.com/news/lakers-coach-jj-redick-says-042056009.html)
-- Jan 07 - [Ex-Marine acquitted in NYC subway chokehold case seeks dismissal of suit brought by victim's father](https://www.yahoo.com/news/ex-marine-acquitted-nyc-subway-224858971.html)
-- Jan 07 - [It’s Obvious Why Trump Actually Wants Greenland](https://www.yahoo.com/news/obvious-why-trump-actually-wants-214313936.html)
-- Jan 07 - [Mexico offers protection to famed corridos singer after drug cartel death threats](https://www.yahoo.com/news/mexico-offers-protection-famed-corridos-213610356.html)
+- Jan 08 - ['The View' star Sunny Hostin's surgeon husband accused of insurance fraud in sweeping federal lawsuit](https://www.yahoo.com/news/view-star-sunny-hostins-surgeon-011727745.html)
+- Jan 08 - [Watch: View from inside plane as it flies through Palisade Fire attempting to land at LAX](https://www.yahoo.com/news/watch-view-inside-plane-flies-003831325.html)
+- Jan 08 - [St. Louis prosecutor spent weeks away from office while in nursing school, audit finds](https://www.yahoo.com/news/st-louis-prosecutor-spent-weeks-000009559.html)
+- Jan 07 - [US Justice Department accuses six major landlords of scheming to keep rents high](https://www.yahoo.com/news/us-justice-department-accuses-six-235614069.html)
 <!-- feed end -->
 
 ### Onstream
