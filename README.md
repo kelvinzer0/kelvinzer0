@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Many structures already destroyed in Pacific Palisades wildfire, California governor says](https://www.yahoo.com/news/many-structures-already-destroyed-pacific-013007453.html)
-- Jan 08 - [Lawyers collecting $148 million judgment from Rudy Giuliani say World Series rings must be given up](https://www.yahoo.com/news/lawyers-collecting-148-million-judgment-003112859.html)
-- Jan 08 - [St. Louis prosecutor spent weeks away from office while in nursing school, audit finds](https://www.yahoo.com/news/st-louis-prosecutor-spent-weeks-000009559.html)
-- Jan 07 - [Russia's economy faces a demographic disaster and risks seeing its population reduced by half by the end of this century, think tank says](https://www.yahoo.com/news/russias-economy-faces-demographic-disaster-011318683.html)
-- Jan 07 - [Ex-Marine acquitted in NYC subway chokehold case seeks dismissal of suit brought by victim's father](https://www.yahoo.com/news/ex-marine-acquitted-nyc-subway-224858971.html)
+- Jan 08 - [Finland says oil tanker linked to subsea cable damage has serious deficiencies](https://www.yahoo.com/news/finland-says-oil-tanker-linked-092832231.html)
+- Jan 08 - [Risky UK Mortgage Bonds Face Cash Flow Pressure as Arrears Soar](https://finance.yahoo.com/news/risky-uk-mortgage-bonds-face-090533290.html)
+- Jan 08 - [Lakers coach JJ Redick says his family evacuated and people are 'freaking out' due to LA wildfires](https://www.yahoo.com/news/lakers-coach-jj-redick-says-042056009.html)
+- Jan 08 - [Disgraced former US Rep. George Santos seeks to delay fraud sentencing to make more podcast episodes](https://www.yahoo.com/news/disgraced-former-us-rep-george-011126293.html)
+- Jan 07 - [US Justice Department accuses six major landlords of scheming to keep rents high](https://www.yahoo.com/news/us-justice-department-accuses-six-235614069.html)
 <!-- feed end -->
 
 ### Onstream
