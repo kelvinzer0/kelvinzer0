@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [India's ISRO delays highly anticipated space docking experiment again](https://www.yahoo.com/news/indias-isro-delays-highly-anticipated-164116357.html)
-- Jan 08 - ['I Used To Make A F*** Ton Of Money Shorting Companies,' Says Mark Cuban, Revealing How He Started Sharesleuth, Sent People To Expose Firms](https://finance.yahoo.com/news/used-f-ton-money-shorting-161539512.html)
-- Jan 08 - [Scientists Found Astonishing Lost Landforms Hidden a Half-Mile Beneath the Sea](https://www.yahoo.com/news/scientists-found-astonishing-lost-landforms-133000044.html)
-- Jan 08 - [Ukraine said one of its F-16 pilots achieved a feat nobody flying the jet has managed before](https://www.yahoo.com/news/ukraine-said-one-f-16-132009923.html)
-- Jan 08 - [A senior Assad aide said a 'trick' by Putin contributed to Syria's collapse](https://www.yahoo.com/news/senior-assad-aide-said-trick-130427133.html)
+- Jan 08 - [Rigetti, IonQ stocks plunge after Nvidia CEO says 'useful' quantum computing is decades away](https://finance.yahoo.com/news/rigetti-ionq-stocks-plunge-after-nvidia-ceo-says-useful-quantum-computing-is-decades-away-174222136.html)
+- Jan 08 - [What is closed on January 9? What to know about national day of mourning for Jimmy Carter](https://www.yahoo.com/news/closed-january-9-know-national-170543597.html)
+- Jan 08 - [The remains of at least 1 Israeli hostage are found in Gaza, army says](https://www.yahoo.com/news/bodies-2-israeli-hostages-recovered-155732131.html)
+- Jan 08 - [Man jumps from Route 8 bridge Tuesday and dies, Akron police confirm](https://www.yahoo.com/news/man-jumps-route-8-bridge-150134408.html)
+- Jan 08 - [Winter Storm Warning as SNOW and ICE arrive Thursday and Friday](https://www.yahoo.com/news/winter-storm-warning-snow-ice-134108381.html)
 <!-- feed end -->
 
 ### Onstream
