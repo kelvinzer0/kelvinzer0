@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jan 08 - [Rigetti, IonQ stocks plunge after Nvidia CEO says 'useful' quantum computing is decades away](https://finance.yahoo.com/news/rigetti-ionq-stocks-plunge-after-nvidia-ceo-says-useful-quantum-computing-is-decades-away-174222136.html)
 - Jan 08 - [Mexican President Hits Back at Trump With New Name for North America](https://www.yahoo.com/news/mexican-president-hits-back-trump-185924838.html)
 - Jan 08 - [Major freeways and roads closed due to wildfires across L.A. County](https://www.yahoo.com/news/major-freeways-roads-closed-due-184957064.html)
-- Jan 08 - [Bitter cold temperatures continue with more snow likely this weekend for Augusta County](https://www.yahoo.com/news/bitter-cold-temperatures-more-snow-165556222.html)
-- Jan 08 - [Body of an Israeli hostage is found in Gaza, possibly alongside his son's remains, army says](https://www.yahoo.com/news/bodies-2-israeli-hostages-recovered-155732131.html)
+- Jan 08 - [Are banks, post offices, shipping services closed on Jan. 9, the national day of mourning?](https://www.yahoo.com/news/banks-post-offices-shipping-services-163912171.html)
+- Jan 08 - [Jet Passenger Films Aerial View of Wildfire Ripping Across LA Neighborhood](https://www.yahoo.com/news/jet-passenger-films-aerial-view-163628614.html)
 <!-- feed end -->
 
 ### Onstream
