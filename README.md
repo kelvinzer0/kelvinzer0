@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [US trade deficit with Vietnam soars beyond $110 billion, as weak dong boosts exports](https://finance.yahoo.com/news/us-trade-deficit-vietnam-soars-054040521.html)
 - Jan 08 - [Lakers coach JJ Redick says his family evacuated and people are 'freaking out' due to LA wildfires](https://www.yahoo.com/news/lakers-coach-jj-redick-says-042056009.html)
-- Jan 08 - [Mark Cuban on Selling Dallas Mavericks Stake: 'I Didn't Want My Kids Feeling the Pressure of Walking Into My Spot'](https://finance.yahoo.com/news/mark-cuban-selling-dallas-mavericks-014112830.html)
-- Jan 08 - ['The View' star Sunny Hostin's surgeon husband accused of insurance fraud in sweeping federal lawsuit](https://www.yahoo.com/news/view-star-sunny-hostins-surgeon-011727745.html)
-- Jan 07 - [US Justice Department accuses six major landlords of scheming to keep rents high](https://www.yahoo.com/news/us-justice-department-accuses-six-235614069.html)
-- Jan 07 - [Texas Medical Board temporarily suspends Houston surgeon after he tested positive for cocaine](https://www.yahoo.com/news/texas-medical-board-temporarily-suspends-230920776.html)
+- Jan 07 - [Ex-Marine acquitted in NYC subway chokehold case seeks dismissal of suit brought by victim's father](https://www.yahoo.com/news/ex-marine-acquitted-nyc-subway-224858971.html)
+- Jan 07 - [It’s Obvious Why Trump Actually Wants Greenland](https://www.yahoo.com/news/obvious-why-trump-actually-wants-214313936.html)
+- Jan 07 - [Mexico offers protection to famed corridos singer after drug cartel death threats](https://www.yahoo.com/news/mexico-offers-protection-famed-corridos-213610356.html)
 <!-- feed end -->
 
 ### Onstream
