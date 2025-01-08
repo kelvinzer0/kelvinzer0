@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Dow Jones Futures Rise; What To Do After Stock Market Sell-Off; Nvidia, Palantir Tumble](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-sells-off-nvidia-palantir-tumble/?src=A00220&yptr=yahoo)
+- Jan 08 - [Lakers coach JJ Redick says his family evacuated and people are 'freaking out' due to LA wildfires](https://www.yahoo.com/news/lakers-coach-jj-redick-says-042056009.html)
+- Jan 08 - [Mark Cuban on Selling Dallas Mavericks Stake: 'I Didn't Want My Kids Feeling the Pressure of Walking Into My Spot'](https://finance.yahoo.com/news/mark-cuban-selling-dallas-mavericks-014112830.html)
 - Jan 08 - ['The View' star Sunny Hostin's surgeon husband accused of insurance fraud in sweeping federal lawsuit](https://www.yahoo.com/news/view-star-sunny-hostins-surgeon-011727745.html)
-- Jan 08 - [Lawyers collecting $148 million judgment from Rudy Giuliani say World Series rings must be given up](https://www.yahoo.com/news/lawyers-collecting-148-million-judgment-003112859.html)
-- Jan 07 - [Samsung Q4 profit outlook misses estimates by large margin as chip issues drag](https://finance.yahoo.com/news/samsung-q4-operating-profit-outlook-234302520.html)
+- Jan 07 - [US Justice Department accuses six major landlords of scheming to keep rents high](https://www.yahoo.com/news/us-justice-department-accuses-six-235614069.html)
 - Jan 07 - [Texas Medical Board temporarily suspends Houston surgeon after he tested positive for cocaine](https://www.yahoo.com/news/texas-medical-board-temporarily-suspends-230920776.html)
 <!-- feed end -->
 
