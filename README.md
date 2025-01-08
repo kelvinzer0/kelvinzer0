@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [Ukraine said one of its F-16 pilots achieved a feat nobody flying the jet has managed before](https://www.yahoo.com/news/ukraine-said-one-f-16-132009923.html)
 - Jan 08 - [Single Mom Body Slammed In Road Rage Fight](https://autos.yahoo.com/single-mom-body-slammed-road-130000911.html)
 - Jan 08 - [Quantum computing stocks take a hit as Nvidia CEO predicts long road ahead](https://finance.yahoo.com/news/quantum-computing-stocks-hit-nvidia-125613998.html)
 - Jan 08 - [Why drinking coffee in the morning may lower risk of death](https://www.yahoo.com/news/why-drinking-coffee-morning-may-125405051.html)
 - Jan 08 - [American woman lost her life savings to scammers posing as Amazon. Here’s how the scam works and how to protect yourself](https://finance.yahoo.com/news/american-woman-lost-her-life-123000699.html)
-- Jan 08 - [Ukraine claims it struck a key military fuel depot deep inside Russia](https://www.yahoo.com/news/ukraine-claims-struck-key-military-112721446.html)
 <!-- feed end -->
 
 ### Onstream
