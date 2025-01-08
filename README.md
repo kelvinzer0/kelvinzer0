@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 08 - [Many structures already destroyed in Pacific Palisades wildfire, California governor says](https://www.yahoo.com/news/many-structures-already-destroyed-pacific-013007453.html)
-- Jan 08 - [Driver in Kansas City viral video explains why she jumped out of car](https://www.yahoo.com/news/driver-kansas-city-viral-video-003140188.html)
+- Jan 08 - [Lawyers collecting $148 million judgment from Rudy Giuliani say World Series rings must be given up](https://www.yahoo.com/news/lawyers-collecting-148-million-judgment-003112859.html)
 - Jan 08 - [St. Louis prosecutor spent weeks away from office while in nursing school, audit finds](https://www.yahoo.com/news/st-louis-prosecutor-spent-weeks-000009559.html)
-- Jan 07 - [US Justice Department accuses six major landlords of scheming to keep rents high](https://www.yahoo.com/news/us-justice-department-accuses-six-235614069.html)
-- Jan 07 - [Samsung Q4 profit outlook misses estimates by large margin as chip issues drag](https://finance.yahoo.com/news/samsung-q4-operating-profit-outlook-234302520.html)
+- Jan 07 - [Russia's economy faces a demographic disaster and risks seeing its population reduced by half by the end of this century, think tank says](https://www.yahoo.com/news/russias-economy-faces-demographic-disaster-011318683.html)
+- Jan 07 - [Ex-Marine acquitted in NYC subway chokehold case seeks dismissal of suit brought by victim's father](https://www.yahoo.com/news/ex-marine-acquitted-nyc-subway-224858971.html)
 <!-- feed end -->
 
 ### Onstream
