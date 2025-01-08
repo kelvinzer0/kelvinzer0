@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Rigetti, IonQ stocks plunge after Nvidia CEO says 'useful' quantum computing is decades away](https://finance.yahoo.com/news/rigetti-ionq-stocks-plunge-after-nvidia-ceo-says-useful-quantum-computing-is-decades-away-174222136.html)
-- Jan 08 - [What is closed on January 9? What to know about national day of mourning for Jimmy Carter](https://www.yahoo.com/news/closed-january-9-know-national-170543597.html)
+- Jan 08 - [Undiscovered Gems Including 3 Promising Small Cap Stocks](https://finance.yahoo.com/news/undiscovered-gems-including-3-promising-180355494.html)
+- Jan 08 - [Mexican president trolls Trump, suggests US renamed 'Mexican America'](https://www.yahoo.com/news/mexican-president-trolls-trump-suggests-175029936.html)
 - Jan 08 - [The remains of at least 1 Israeli hostage are found in Gaza, army says](https://www.yahoo.com/news/bodies-2-israeli-hostages-recovered-155732131.html)
-- Jan 08 - [Man jumps from Route 8 bridge Tuesday and dies, Akron police confirm](https://www.yahoo.com/news/man-jumps-route-8-bridge-150134408.html)
-- Jan 08 - [Winter Storm Warning as SNOW and ICE arrive Thursday and Friday](https://www.yahoo.com/news/winter-storm-warning-snow-ice-134108381.html)
+- Jan 08 - [US strikes underground Houthi weapons depots used to hit American ships](https://www.yahoo.com/news/us-strikes-underground-houthi-weapons-155234585.html)
+- Jan 08 - [Is D-Wave Quantum Inc. (QBTS) the Best Quantum Computing Stocks to Buy for 2025?](https://finance.yahoo.com/news/d-wave-quantum-inc-qbts-134908093.html)
 <!-- feed end -->
 
 ### Onstream
