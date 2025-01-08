@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [A tale of two presidents: How L.A. fires show the difference between Biden and Trump](https://www.yahoo.com/news/tale-two-presidents-l-fires-213233454.html)
 - Jan 08 - [Rigetti, IonQ stocks plunge after Nvidia CEO says 'useful' quantum computing is decades away](https://finance.yahoo.com/news/rigetti-ionq-stocks-plunge-after-nvidia-ceo-says-useful-quantum-computing-is-decades-away-174222136.html)
+- Jan 08 - [How Much Savings Middle-Class Retirees Have, According To Most of America](https://finance.yahoo.com/news/much-savings-middle-class-retirees-190134726.html)
 - Jan 08 - [Mexican President Hits Back at Trump With New Name for North America](https://www.yahoo.com/news/mexican-president-hits-back-trump-185924838.html)
-- Jan 08 - [Major freeways and roads closed due to wildfires across L.A. County](https://www.yahoo.com/news/major-freeways-roads-closed-due-184957064.html)
-- Jan 08 - [Are banks, post offices, shipping services closed on Jan. 9, the national day of mourning?](https://www.yahoo.com/news/banks-post-offices-shipping-services-163912171.html)
-- Jan 08 - [Jet Passenger Films Aerial View of Wildfire Ripping Across LA Neighborhood](https://www.yahoo.com/news/jet-passenger-films-aerial-view-163628614.html)
+- Jan 08 - [Cobb County house built before Civil War on sale for $1, but there’s a catch for potential buyers](https://www.yahoo.com/lifestyle/cobb-county-house-built-civil-172457719.html)
 <!-- feed end -->
 
 ### Onstream
