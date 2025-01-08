@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Samsung unveils its smart home tech at CES in Las Vegas](https://finance.yahoo.com/video/samsung-unveils-smart-home-tech-224801866.html)
-- Jan 07 - [Mexico offers protection to famed corridos singer after drug cartel death threats](https://www.yahoo.com/news/mexico-offers-protection-famed-corridos-213610356.html)
-- Jan 07 - [Palisades Fire live updates: Wildfires spread in Los Angeles, prompting mandatory evacuations, as Santa Ana winds expected to intensify](https://www.yahoo.com/news/live/palisades-fire-live-updates-wildfires-spread-in-los-angeles-prompting-mandatory-evacuations-as-santa-ana-winds-expected-to-intensify-201256465.html)
-- Jan 07 - [Fire Erupts in Pacific Palisades Amid Strong Winds](https://www.yahoo.com/news/fire-erupts-pacific-palisades-amid-200043206.html)
-- Jan 07 - [WATCH: Road rage suspect drags mom out of vehicle, body-slams her on pavement](https://www.yahoo.com/news/watch-road-rage-suspect-drags-194039812.html)
+- Jan 08 - [St. Louis prosecutor spent weeks away from office while in nursing school, audit finds](https://www.yahoo.com/news/st-louis-prosecutor-spent-weeks-000009559.html)
+- Jan 08 - [Stubbornly Resilient Lithium Supply Remains Hurdle to Recovery](https://finance.yahoo.com/news/stubbornly-resilient-lithium-supply-remains-000000193.html)
+- Jan 07 - [Ex-Marine acquitted in NYC subway chokehold case seeks dismissal of suit brought by victim's father](https://www.yahoo.com/news/ex-marine-acquitted-nyc-subway-224858971.html)
+- Jan 07 - [It’s Obvious Why Trump Actually Wants Greenland](https://www.yahoo.com/news/obvious-why-trump-actually-wants-214313936.html)
+- Jan 07 - [Wildfire rages in Los Angeles, forcing 30,000 to evacuate](https://www.yahoo.com/news/los-angeles-wildfire-prompts-evacuations-214128276.html)
 <!-- feed end -->
 
 ### Onstream
