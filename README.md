@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 08 - [Finland says oil tanker linked to subsea cable damage has serious deficiencies](https://www.yahoo.com/news/finland-says-oil-tanker-linked-092832231.html)
-- Jan 08 - [Risky UK Mortgage Bonds Face Cash Flow Pressure as Arrears Soar](https://finance.yahoo.com/news/risky-uk-mortgage-bonds-face-090533290.html)
+- Jan 08 - ['Jesus God!' Biden says his granddaughter, Naomi, scheduled to have C-section on Wednesday](https://www.yahoo.com/news/jesus-god-biden-says-granddaughter-090821492.html)
 - Jan 08 - [Lakers coach JJ Redick says his family evacuated and people are 'freaking out' due to LA wildfires](https://www.yahoo.com/news/lakers-coach-jj-redick-says-042056009.html)
 - Jan 08 - [Disgraced former US Rep. George Santos seeks to delay fraud sentencing to make more podcast episodes](https://www.yahoo.com/news/disgraced-former-us-rep-george-011126293.html)
-- Jan 07 - [US Justice Department accuses six major landlords of scheming to keep rents high](https://www.yahoo.com/news/us-justice-department-accuses-six-235614069.html)
+- Jan 07 - [Texas Medical Board temporarily suspends Houston surgeon after he tested positive for cocaine](https://www.yahoo.com/news/texas-medical-board-temporarily-suspends-230920776.html)
 <!-- feed end -->
 
 ### Onstream
