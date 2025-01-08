@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Dow Jones Futures Fall; What To Do After Stock Market Sell-Off; Nvidia, Palantir Tumble](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-sells-off-nvidia-palantir-tumble/?src=A00220&yptr=yahoo)
-- Jan 08 - [Ukraine 'drones attack oil depot for Putin's nuclear bomber planes' deep inside Russia](https://www.yahoo.com/news/ukraine-drones-attack-oil-depot-102843535.html)
+- Jan 08 - [Quantum computing stocks take a hit as Nvidia CEO predicts long road ahead](https://finance.yahoo.com/news/quantum-computing-stocks-hit-nvidia-125613998.html)
+- Jan 08 - [My 2 Top Oil Stocks to Buy in 2025](https://finance.yahoo.com/news/2-top-oil-stocks-buy-124000800.html)
 - Jan 08 - [Ukraine claims it struck a key military fuel depot deep inside Russia](https://www.yahoo.com/news/ukraine-claims-struck-key-military-112721446.html)
 - Jan 08 - [Why Nvidia rug pull doesn't faze US stock market bulls: Morning Brief](https://finance.yahoo.com/news/why-nvidia-rug-pull-doesnt-faze-us-stock-market-bulls-morning-brief-105820262.html)
 - Jan 08 - [Limit coffee-drinking to this time window to lower early death risk, study suggests](https://www.yahoo.com/lifestyle/limit-coffee-drinking-time-window-000701698.html)
