@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [Dow Jones Futures Rise; What To Do After Stock Market Sell-Off; Nvidia, Palantir Tumble](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-sells-off-nvidia-palantir-tumble/?src=A00220&yptr=yahoo)
+- Jan 08 - [Disgraced former US Rep. George Santos seeks to delay fraud sentencing to make more podcast episodes](https://www.yahoo.com/news/disgraced-former-us-rep-george-011126293.html)
+- Jan 08 - [Lawyers collecting $148 million judgment from Rudy Giuliani say World Series rings must be given up](https://www.yahoo.com/news/lawyers-collecting-148-million-judgment-003112859.html)
 - Jan 08 - [St. Louis prosecutor spent weeks away from office while in nursing school, audit finds](https://www.yahoo.com/news/st-louis-prosecutor-spent-weeks-000009559.html)
-- Jan 08 - [Stubbornly Resilient Lithium Supply Remains Hurdle to Recovery](https://finance.yahoo.com/news/stubbornly-resilient-lithium-supply-remains-000000193.html)
 - Jan 07 - [Ex-Marine acquitted in NYC subway chokehold case seeks dismissal of suit brought by victim's father](https://www.yahoo.com/news/ex-marine-acquitted-nyc-subway-224858971.html)
-- Jan 07 - [It’s Obvious Why Trump Actually Wants Greenland](https://www.yahoo.com/news/obvious-why-trump-actually-wants-214313936.html)
-- Jan 07 - [Wildfire rages in Los Angeles, forcing 30,000 to evacuate](https://www.yahoo.com/news/los-angeles-wildfire-prompts-evacuations-214128276.html)
 <!-- feed end -->
 
 ### Onstream
