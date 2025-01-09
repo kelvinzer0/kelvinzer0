@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Germantown resident summoned to court  over holiday decor](https://www.yahoo.com/news/germantown-resident-summoned-court-over-002143933.html)
+- Jan 09 - [A top Iranian general said Russia was actually bombing the empty desert while saying it was attacking Syrian rebels](https://www.yahoo.com/news/top-iranian-general-said-russia-050128598.html)
+- Jan 09 - [Harrison Ford gets escorted by police to check on his Brentwood home as fires rage across Los Angeles](https://www.yahoo.com/entertainment/harrison-ford-gets-escorted-police-031713167.html)
+- Jan 08 - [Lockheed Martin delivers 110 F-35 fighter jets in 2024](https://www.yahoo.com/news/lockheed-martin-delivers-110-f-235449796.html)
+- Jan 08 - [Seminole Towne Center mall to close at the end of January](https://www.yahoo.com/news/seminole-towne-center-mall-close-220353477.html)
 - Jan 08 - [US warns North Korea becoming better prepared for war, fighting against Ukraine](https://www.yahoo.com/news/us-warns-north-korea-becoming-222048263.html)
-- Jan 08 - [A tale of two presidents: How L.A. fires show the difference between Biden and Trump](https://www.yahoo.com/news/tale-two-presidents-l-fires-213233454.html)
-- Jan 08 - [Rigetti, IonQ stocks plunge after Nvidia CEO says 'useful' quantum computing is decades away](https://finance.yahoo.com/news/rigetti-ionq-stocks-plunge-after-nvidia-ceo-says-useful-quantum-computing-is-decades-away-174222136.html)
-- Jan 08 - [Minnesota judge orders Mike Lindell's MyPillow to pay nearly $778K to delivery service DHL](https://finance.yahoo.com/news/minnesota-judge-orders-mike-lindells-205905497.html)
 <!-- feed end -->
 
 ### Onstream
