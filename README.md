@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 09 - [A top Iranian general said Russia was actually bombing the empty desert while saying it was attacking Syrian rebels](https://www.yahoo.com/news/top-iranian-general-said-russia-050128908.html)
-- Jan 09 - [Harrison Ford gets escorted by police to check on his Brentwood home as fires rage across Los Angeles](https://www.yahoo.com/entertainment/harrison-ford-gets-escorted-police-031713167.html)
-- Jan 09 - [Navy veteran warned CNN reporter he would ‘seek legal damages’ if ‘inaccurate’ story was published](https://www.yahoo.com/news/navy-veteran-warned-cnn-reporter-004413874.html)
 - Jan 08 - [Lockheed Martin delivers 110 F-35 fighter jets in 2024](https://www.yahoo.com/news/lockheed-martin-delivers-110-f-235449796.html)
-- Jan 08 - [Sunset Boulevard in ruins: Fire's massive scale comes into focus in Pacific Palisades](https://www.yahoo.com/news/sunset-boulevard-ruins-fires-massive-235144580.html)
+- Jan 08 - [US warns North Korea becoming better prepared for war, fighting against Ukraine](https://www.yahoo.com/news/us-warns-north-korea-becoming-222048263.html)
+- Jan 08 - [A tale of two presidents: How L.A. fires show the difference between Biden and Trump](https://www.yahoo.com/news/tale-two-presidents-l-fires-213233454.html)
+- Jan 08 - [Minnesota judge orders Mike Lindell's MyPillow to pay nearly $778K to delivery service DHL](https://finance.yahoo.com/news/minnesota-judge-orders-mike-lindells-205905497.html)
 <!-- feed end -->
 
 ### Onstream
