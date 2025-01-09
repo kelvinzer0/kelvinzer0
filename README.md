@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 09 - [Ryanair takes legal action against passenger in ‘misconduct clampdown’](https://finance.yahoo.com/news/ryanair-takes-legal-action-against-145106742.html)
+- Jan 09 - [Netherlands secures Nvidia's supply for possible AI-facility](https://finance.yahoo.com/news/netherlands-secures-nvidias-supply-possible-064127191.html)
 - Jan 09 - [A top Iranian general said Russia was actually bombing the empty desert while saying it was attacking Syrian rebels](https://www.yahoo.com/news/top-iranian-general-said-russia-050128908.html)
+- Jan 09 - [GM's best selling EV in 2024 was a Honda](https://autos.yahoo.com/gms-best-selling-ev-2024-010000199.html)
 - Jan 08 - [Lockheed Martin delivers 110 F-35 fighter jets in 2024](https://www.yahoo.com/news/lockheed-martin-delivers-110-f-235449796.html)
-- Jan 08 - [Japanese crime leader pleads guilty in US to trafficking nuclear materials from Myanmar](https://www.yahoo.com/news/japanese-crime-leader-pleads-guilty-234703195.html)
-- Jan 08 - [US warns North Korea becoming better prepared for war, fighting against Ukraine](https://www.yahoo.com/news/us-warns-north-korea-becoming-222048263.html)
 <!-- feed end -->
 
 ### Onstream
