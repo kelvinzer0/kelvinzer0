@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Trump Tariff Fears Spark Disconnect in Silver and Copper Markets](https://finance.yahoo.com/news/trump-tariff-fears-spark-disconnect-183008686.html)
+- Jan 09 - [This is the 'iPhone moment' for AI PCs, AMD exec says](https://finance.yahoo.com/video/iphone-moment-ai-pcs-amd-200000465.html)
+- Jan 09 - [US Bond Yield Surge Prompts Some Companies to Delay Debt Sales](https://finance.yahoo.com/news/us-bond-yield-surge-prompts-191904219.html)
+- Jan 09 - [Lack of water is hampering LA fire battle. Why not use ocean water to fight fires?](https://www.yahoo.com/news/lack-water-hampering-la-fire-183346036.html)
 - Jan 09 - [Limit coffee-drinking to this time window to lower early death risk, study suggests](https://www.yahoo.com/lifestyle/limit-coffee-drinking-time-window-000701698.html)
-- Jan 09 - [Karen Pence's Reaction To Donald And Melania Trump At Jimmy Carter's Funeral Is Going Viral](https://www.yahoo.com/entertainment/karen-pences-icy-reaction-donald-162058059.html)
-- Jan 09 - [Heidi Montag emotionally admits she has ‘two pairs of jeans and two shirts’ left after LA fire torched home](https://www.yahoo.com/news/heidi-montag-emotionally-admits-she-161928437.html)
-- Jan 09 - [Spacecraft buzzes Mercury's north pole and beams back stunning photos](https://www.yahoo.com/news/spacecraft-buzzes-mercurys-north-pole-155850113.html)
+- Jan 09 - [The Getty Villa survived LA's firestorms while everything around it burned, revealing a key lesson for homeowners](https://www.yahoo.com/news/getty-villa-survived-las-firestorms-172532911.html)
 <!-- feed end -->
 
 ### Onstream
