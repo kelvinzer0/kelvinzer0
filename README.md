@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Bunny Museum, iconic Altadena location, burns to the ground in wildfires](https://www.yahoo.com/news/bunny-museum-iconic-altadena-location-121936907.html)
-- Jan 09 - [Owners of abandoned boat share their story but it doesn't match version from the county](https://www.yahoo.com/news/owners-abandoned-boat-share-story-111238403.html)
-- Jan 09 - [A Bull Market Is Here: 2 Brilliant Stocks Down 35% and 43% to Buy Right Now](https://finance.yahoo.com/news/bull-market-2-brilliant-stocks-104500434.html)
-- Jan 09 - [New England Dragway fights new town bylaws: 'Viability of the track' at risk](https://www.yahoo.com/news/england-dragway-fights-town-bylaws-100523108.html)
-- Jan 09 - [ATLANTA SNOW: This is how much snow we could see across North Georgia](https://www.yahoo.com/news/atlanta-snow-much-snow-could-024948717.html)
+- Jan 09 - [Why I Can't Stop Buying This Nearly 6%-Yielding Dividend Stock](https://finance.yahoo.com/news/why-cant-stop-buying-nearly-122800407.html)
+- Jan 09 - [Meet the Supercharged Growth Stock That Could Make You a Millionaire](https://finance.yahoo.com/news/meet-supercharged-growth-stock-could-104000462.html)
+- Jan 09 - [Scientist makes startling discovery at Earth's deepest point: 'What a disgusting and embarrassing display'](https://www.yahoo.com/lifestyle/scientist-makes-startling-discovery-earths-103017789.html)
+- Jan 09 - [Taiwan demonstrates sea defenses against potential Chinese attack as tensions rise with Beijing](https://www.yahoo.com/news/taiwan-demonstrates-sea-defenses-against-081342210.html)
+- Jan 09 - [Donald Trump Wanted This Fox News Host As Running Mate, Says New Book](https://www.yahoo.com/news/donald-trump-wanted-fox-news-072551691.html)
 <!-- feed end -->
 
 ### Onstream
