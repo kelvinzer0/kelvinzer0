@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Europe's aviation regulator issues new warning for Russian airspace](https://www.yahoo.com/news/europes-aviation-regulator-issues-warning-214354979.html)
 - Jan 09 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
 - Jan 09 - [Woman accused of driving through St. Augustine’s band practice arrested](https://www.yahoo.com/news/woman-accused-driving-st-augustine-195229889.html)
 - Jan 09 - [Senate Democrats join Republicans in voting to advance bill to detain migrants accused of crimes](https://www.yahoo.com/news/senate-democrats-vote-advance-bill-193624490.html)
-- Jan 09 - [Landers Center CFO Jason Morgan fired with Executive Director Todd Mastry: What we know](https://finance.yahoo.com/news/landers-center-cfo-jason-morgan-185201479.html)
 - Jan 09 - [Limit coffee-drinking to this time window to lower early death risk, study suggests](https://www.yahoo.com/lifestyle/limit-coffee-drinking-time-window-000701698.html)
 <!-- feed end -->
 
