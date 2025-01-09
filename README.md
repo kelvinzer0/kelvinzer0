@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Ryanair takes legal action against passenger in ‘misconduct clampdown’](https://finance.yahoo.com/news/ryanair-takes-legal-action-against-145106742.html)
-- Jan 09 - [Netherlands secures Nvidia's supply for possible AI-facility](https://finance.yahoo.com/news/netherlands-secures-nvidias-supply-possible-064127191.html)
 - Jan 09 - [A top Iranian general said Russia was actually bombing the empty desert while saying it was attacking Syrian rebels](https://www.yahoo.com/news/top-iranian-general-said-russia-050128908.html)
-- Jan 09 - [GM's best selling EV in 2024 was a Honda](https://autos.yahoo.com/gms-best-selling-ev-2024-010000199.html)
+- Jan 09 - [Harrison Ford gets escorted by police to check on his Brentwood home as fires rage across Los Angeles](https://www.yahoo.com/entertainment/harrison-ford-gets-escorted-police-031713167.html)
+- Jan 09 - [Navy veteran warned CNN reporter he would ‘seek legal damages’ if ‘inaccurate’ story was published](https://www.yahoo.com/news/navy-veteran-warned-cnn-reporter-004413874.html)
 - Jan 08 - [Lockheed Martin delivers 110 F-35 fighter jets in 2024](https://www.yahoo.com/news/lockheed-martin-delivers-110-f-235449796.html)
+- Jan 08 - [Sunset Boulevard in ruins: Fire's massive scale comes into focus in Pacific Palisades](https://www.yahoo.com/news/sunset-boulevard-ruins-fires-massive-235144580.html)
 <!-- feed end -->
 
 ### Onstream
