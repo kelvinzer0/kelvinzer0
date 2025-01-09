@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Why I Can't Stop Buying This Nearly 6%-Yielding Dividend Stock](https://finance.yahoo.com/news/why-cant-stop-buying-nearly-122800407.html)
-- Jan 09 - [Meet the Supercharged Growth Stock That Could Make You a Millionaire](https://finance.yahoo.com/news/meet-supercharged-growth-stock-could-104000462.html)
+- Jan 09 - [Germany's Pistorius announces more air-defence missiles for Ukraine](https://www.yahoo.com/news/germanys-pistorius-announces-more-air-145023784.html)
+- Jan 09 - [This South Jersey resort is the No. 1 new hotel in America, according to USA Today readers](https://www.yahoo.com/lifestyle/south-jersey-resort-no-1-132527725.html)
+- Jan 09 - [Indian rupee's slide to continue despite higher rate cut expectations- Reuters poll](https://finance.yahoo.com/news/indian-rupees-slide-continue-despite-112425233.html)
 - Jan 09 - [Scientist makes startling discovery at Earth's deepest point: 'What a disgusting and embarrassing display'](https://www.yahoo.com/lifestyle/scientist-makes-startling-discovery-earths-103017789.html)
-- Jan 09 - [Taiwan demonstrates sea defenses against potential Chinese attack as tensions rise with Beijing](https://www.yahoo.com/news/taiwan-demonstrates-sea-defenses-against-081342210.html)
-- Jan 09 - [Donald Trump Wanted This Fox News Host As Running Mate, Says New Book](https://www.yahoo.com/news/donald-trump-wanted-fox-news-072551691.html)
+- Jan 09 - [Is Your Zodiac Sign Among the Smartest? Astrological Insights](https://www.yahoo.com/lifestyle/zodiac-sign-among-smartest-astrological-100003705.html)
 <!-- feed end -->
 
 ### Onstream
