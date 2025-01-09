@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [This is the 'iPhone moment' for AI PCs, AMD exec says](https://finance.yahoo.com/video/iphone-moment-ai-pcs-amd-200000465.html)
-- Jan 09 - [US Bond Yield Surge Prompts Some Companies to Delay Debt Sales](https://finance.yahoo.com/news/us-bond-yield-surge-prompts-191904219.html)
+- Jan 09 - [Why BigBear.ai Holdings, Inc. (BBAI) Skyrocketed in Q4](https://finance.yahoo.com/news/why-bigbear-ai-holdings-inc-202656600.html)
+- Jan 09 - [DeSantis appointee to university board says women should become mothers, not pursue higher ed](https://www.yahoo.com/news/desantis-appointee-university-board-says-201742047.html)
+- Jan 09 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
 - Jan 09 - [Lack of water is hampering LA fire battle. Why not use ocean water to fight fires?](https://www.yahoo.com/news/lack-water-hampering-la-fire-183346036.html)
 - Jan 09 - [Limit coffee-drinking to this time window to lower early death risk, study suggests](https://www.yahoo.com/lifestyle/limit-coffee-drinking-time-window-000701698.html)
-- Jan 09 - [The Getty Villa survived LA's firestorms while everything around it burned, revealing a key lesson for homeowners](https://www.yahoo.com/news/getty-villa-survived-las-firestorms-172532911.html)
 <!-- feed end -->
 
 ### Onstream
