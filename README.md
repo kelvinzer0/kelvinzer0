@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Karen Pence's Icy Reaction To Donald And Melania Trump At Jimmy Carter's Funeral Is Going Viral](https://www.yahoo.com/entertainment/karen-pences-icy-reaction-donald-162058059.html)
-- Jan 09 - [Citizens Bank closings begin in Pittsburgh area, more expected throughout January amid renovations](https://finance.yahoo.com/news/citizens-bank-closings-begin-pittsburgh-162046935.html)
+- Jan 09 - [Kamala Harris ignores Donald Trump as presidents gather for Jimmy Carter’s funeral](https://www.yahoo.com/news/donald-trump-kamala-harris-meet-115253444.html)
+- Jan 09 - [Karen Pence's Reaction To Donald And Melania Trump At Jimmy Carter's Funeral Is Going Viral](https://www.yahoo.com/entertainment/karen-pences-icy-reaction-donald-162058059.html)
 - Jan 09 - [This South Jersey resort is the No. 1 new hotel in America, according to USA Today readers](https://www.yahoo.com/lifestyle/south-jersey-resort-no-1-132527725.html)
 - Jan 09 - [Indian rupee's slide to continue despite higher rate cut expectations- Reuters poll](https://finance.yahoo.com/news/indian-rupees-slide-continue-despite-112425233.html)
 - Jan 09 - [Scientist makes startling discovery at Earth's deepest point: 'What a disgusting and embarrassing display'](https://www.yahoo.com/lifestyle/scientist-makes-startling-discovery-earths-103017789.html)
