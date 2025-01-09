@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Happening Today: North Carolina officials updating winter storm plans](https://www.yahoo.com/news/happening-today-north-carolina-officials-121752118.html)
-- Jan 09 - [In their final meeting, Zelenskyy and Austin say military aid to Ukraine must continue under Trump](https://www.yahoo.com/news/final-meeting-zelenskyy-austin-military-112302814.html)
-- Jan 09 - [3 Stocks to Buy for 2025 That Are Practically Money Machines](https://finance.yahoo.com/news/3-stocks-buy-2025-practically-093400691.html)
-- Jan 09 - [Chad says foiled attack on presidency was work of disorganised, intoxicated group](https://www.yahoo.com/news/chad-says-foiled-attack-presidency-090351628.html)
-- Jan 09 - [A top Iranian general said Russia was actually bombing the empty desert while saying it was attacking Syrian rebels](https://www.yahoo.com/news/top-iranian-general-said-russia-050128908.html)
+- Jan 09 - [Bunny Museum, iconic Altadena location, burns to the ground in wildfires](https://www.yahoo.com/news/bunny-museum-iconic-altadena-location-121936907.html)
+- Jan 09 - [Owners of abandoned boat share their story but it doesn't match version from the county](https://www.yahoo.com/news/owners-abandoned-boat-share-story-111238403.html)
+- Jan 09 - [A Bull Market Is Here: 2 Brilliant Stocks Down 35% and 43% to Buy Right Now](https://finance.yahoo.com/news/bull-market-2-brilliant-stocks-104500434.html)
+- Jan 09 - [New England Dragway fights new town bylaws: 'Viability of the track' at risk](https://www.yahoo.com/news/england-dragway-fights-town-bylaws-100523108.html)
+- Jan 09 - [ATLANTA SNOW: This is how much snow we could see across North Georgia](https://www.yahoo.com/news/atlanta-snow-much-snow-could-024948717.html)
 <!-- feed end -->
 
 ### Onstream
