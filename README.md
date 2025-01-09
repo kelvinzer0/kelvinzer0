@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 08 - [Lockheed Martin delivers 110 F-35 fighter jets in 2024](https://www.yahoo.com/news/lockheed-martin-delivers-110-f-235449796.html)
+- Jan 08 - [Sunset Boulevard in ruins: Fire's massive scale comes into focus in Pacific Palisades](https://www.yahoo.com/news/sunset-boulevard-ruins-fires-massive-235144580.html)
 - Jan 08 - [US warns North Korea becoming better prepared for war, fighting against Ukraine](https://www.yahoo.com/news/us-warns-north-korea-becoming-222048263.html)
 - Jan 08 - [A tale of two presidents: How L.A. fires show the difference between Biden and Trump](https://www.yahoo.com/news/tale-two-presidents-l-fires-213233454.html)
 - Jan 08 - [Rigetti, IonQ stocks plunge after Nvidia CEO says 'useful' quantum computing is decades away](https://finance.yahoo.com/news/rigetti-ionq-stocks-plunge-after-nvidia-ceo-says-useful-quantum-computing-is-decades-away-174222136.html)
-- Jan 08 - [How Much Savings Middle-Class Retirees Have, According To Most of America](https://finance.yahoo.com/news/much-savings-middle-class-retirees-190134726.html)
 <!-- feed end -->
 
 ### Onstream
