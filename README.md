@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [US emissions stagnate in 2024, challenging climate goals: study](https://www.yahoo.com/news/us-emissions-stagnate-2024-challenging-102117103.html)
 - Jan 09 - [A top Iranian general said Russia was actually bombing the empty desert while saying it was attacking Syrian rebels](https://www.yahoo.com/news/top-iranian-general-said-russia-050128908.html)
 - Jan 08 - [Lockheed Martin delivers 110 F-35 fighter jets in 2024](https://www.yahoo.com/news/lockheed-martin-delivers-110-f-235449796.html)
+- Jan 08 - [Japanese crime leader pleads guilty in US to trafficking nuclear materials from Myanmar](https://www.yahoo.com/news/japanese-crime-leader-pleads-guilty-234703195.html)
 - Jan 08 - [US warns North Korea becoming better prepared for war, fighting against Ukraine](https://www.yahoo.com/news/us-warns-north-korea-becoming-222048263.html)
-- Jan 08 - [A tale of two presidents: How L.A. fires show the difference between Biden and Trump](https://www.yahoo.com/news/tale-two-presidents-l-fires-213233454.html)
-- Jan 08 - [Minnesota judge orders Mike Lindell's MyPillow to pay nearly $778K to delivery service DHL](https://finance.yahoo.com/news/minnesota-judge-orders-mike-lindells-205905497.html)
 <!-- feed end -->
 
 ### Onstream
