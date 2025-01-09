@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Key steps to slashing your monthly bills in 2025](https://finance.yahoo.com/video/key-steps-slashing-monthly-bills-160033683.html)
-- Jan 09 - [From 9-to-5 Grind to $9,800 per Month in Dividends: Investor Under 35 Shares His 10 Stock Picks](https://finance.yahoo.com/news/9-5-grind-9-800-151537162.html)
+- Jan 09 - [Karen Pence's Icy Reaction To Donald And Melania Trump At Jimmy Carter's Funeral Is Going Viral](https://www.yahoo.com/entertainment/karen-pences-icy-reaction-donald-162058059.html)
+- Jan 09 - [Citizens Bank closings begin in Pittsburgh area, more expected throughout January amid renovations](https://finance.yahoo.com/news/citizens-bank-closings-begin-pittsburgh-162046935.html)
 - Jan 09 - [This South Jersey resort is the No. 1 new hotel in America, according to USA Today readers](https://www.yahoo.com/lifestyle/south-jersey-resort-no-1-132527725.html)
 - Jan 09 - [Indian rupee's slide to continue despite higher rate cut expectations- Reuters poll](https://finance.yahoo.com/news/indian-rupees-slide-continue-despite-112425233.html)
 - Jan 09 - [Scientist makes startling discovery at Earth's deepest point: 'What a disgusting and embarrassing display'](https://www.yahoo.com/lifestyle/scientist-makes-startling-discovery-earths-103017789.html)
