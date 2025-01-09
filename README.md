@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Kamala Harris ignores Donald Trump as presidents gather for Jimmy Carter’s funeral](https://www.yahoo.com/news/donald-trump-kamala-harris-meet-115253444.html)
+- Jan 09 - [Trump Tariff Fears Spark Disconnect in Silver and Copper Markets](https://finance.yahoo.com/news/trump-tariff-fears-spark-disconnect-183008686.html)
+- Jan 09 - [Limit coffee-drinking to this time window to lower early death risk, study suggests](https://www.yahoo.com/lifestyle/limit-coffee-drinking-time-window-000701698.html)
 - Jan 09 - [Karen Pence's Reaction To Donald And Melania Trump At Jimmy Carter's Funeral Is Going Viral](https://www.yahoo.com/entertainment/karen-pences-icy-reaction-donald-162058059.html)
-- Jan 09 - [This South Jersey resort is the No. 1 new hotel in America, according to USA Today readers](https://www.yahoo.com/lifestyle/south-jersey-resort-no-1-132527725.html)
-- Jan 09 - [Indian rupee's slide to continue despite higher rate cut expectations- Reuters poll](https://finance.yahoo.com/news/indian-rupees-slide-continue-despite-112425233.html)
-- Jan 09 - [Scientist makes startling discovery at Earth's deepest point: 'What a disgusting and embarrassing display'](https://www.yahoo.com/lifestyle/scientist-makes-startling-discovery-earths-103017789.html)
+- Jan 09 - [Heidi Montag emotionally admits she has ‘two pairs of jeans and two shirts’ left after LA fire torched home](https://www.yahoo.com/news/heidi-montag-emotionally-admits-she-161928437.html)
+- Jan 09 - [Spacecraft buzzes Mercury's north pole and beams back stunning photos](https://www.yahoo.com/news/spacecraft-buzzes-mercurys-north-pole-155850113.html)
 <!-- feed end -->
 
 ### Onstream
