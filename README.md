@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [‘Dire at best’: Chicago woman, 44, bought a house listed for $1 in Italy — then had to spend $446K to make it a home](https://www.yahoo.com/lifestyle/dire-best-chicago-woman-44-130100501.html)
-- Jan 10 - [Several Hurt in Bronx Building Fire](https://www.yahoo.com/news/several-hurt-bronx-building-fire-124152352.html)
+- Jan 10 - [California Fires Update: Insurance Stocks Dive As Loss Estimates Double](https://www.investors.com/news/california-palisades-fire-update-stock-market-impact/?src=A00220&yptr=yahoo)
+- Jan 10 - [Thousands of armed militia in Iran march against 'threats'](https://www.yahoo.com/news/thousands-armed-militia-iran-march-123604176.html)
 - Jan 10 - [Scientists make groundbreaking discovery while studying solar farms in Minnesota: 'There's still so much work to be done'](https://www.yahoo.com/tech/scientists-groundbreaking-discovery-while-studying-110052579.html)
-- Jan 10 - ['Apocalyptic': ghastly remains of Malibu come into focus](https://www.yahoo.com/news/apocalyptic-ghastly-remains-malibu-come-080718289.html)
-- Jan 10 - [Man arrested on suspicion of starting Los Angeles fire](https://www.yahoo.com/news/man-arrested-suspicion-starting-los-062602203.html)
+- Jan 10 - [Middle East latest: Israel launches new strikes on Yemen’s Houthi rebels](https://www.yahoo.com/news/middle-east-latest-body-recovered-075411136.html)
+- Jan 10 - [Salvage complete of tanker at center of oil spill scare after being hit by Houthi rebels in Red Sea](https://www.yahoo.com/news/tanker-hit-yemen-rebels-threatened-072138973.html)
 <!-- feed end -->
 
 ### Onstream
