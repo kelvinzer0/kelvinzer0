@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Venezuela closes international border bridge with Colombia for three days](https://www.yahoo.com/news/venezuela-closes-international-border-bridge-184549314.html)
-- Jan 10 - [Everything we know about man arrested near Kenneth blaze as LA wildfires rage](https://www.yahoo.com/news/everything-know-armed-arson-suspect-105721414.html)
-- Jan 10 - [MAGA Has Emotional Meltdown After Trump Is Declared a Felon](https://www.yahoo.com/news/maga-emotional-meltdown-trump-declared-182722847.html)
-- Jan 10 - ['Unserious': Trump-Musk 2025 spending plan debunked by GOP debt guru who ran budget office](https://www.yahoo.com/news/unserious-trump-musk-2025-spending-181127112.html)
+- Jan 10 - [LSU WR Kyren Lacy reportedly wanted on charges of negligent homicide and hit-and-run](https://sports.yahoo.com/lsu-wr-kyren-lacy-reportedly-wanted-on-charges-of-negligent-homicide-and-hit-and-run-202451531.html)
+- Jan 10 - [Justin Trudeau Reveals the Comeback That Shut Down Trump’s ‘51st State’ Chatter](https://www.yahoo.com/news/justin-trudeau-reveals-comeback-shut-194446154.html)
+- Jan 10 - [Elon Musk Blames LA Wildfires on Black Firefighters](https://www.yahoo.com/news/elon-musk-blames-la-wildfires-182649755.html)
 - Jan 10 - [Photos of Los Angeles show catastrophic scale of devastation as blazes burn uncontrolled](https://www.yahoo.com/news/photos-los-angeles-show-catastrophic-184113479.html)
+- Jan 10 - [WATCH: Body camera footage released of Jan. 1 terror attack on Bourbon Street](https://www.yahoo.com/news/watch-body-camera-footage-released-165424417.html)
 <!-- feed end -->
 
 ### Onstream
