@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [California Fires Update: Insurance Stocks Dive As Loss Estimates Double](https://www.investors.com/news/california-palisades-fire-update-stock-market-impact/?src=A00220&yptr=yahoo)
-- Jan 10 - [Thousands of armed militia in Iran march against 'threats'](https://www.yahoo.com/news/thousands-armed-militia-iran-march-123604176.html)
-- Jan 10 - [Scientists make groundbreaking discovery while studying solar farms in Minnesota: 'There's still so much work to be done'](https://www.yahoo.com/tech/scientists-groundbreaking-discovery-while-studying-110052579.html)
-- Jan 10 - [Middle East latest: Israel launches new strikes on Yemen’s Houthi rebels](https://www.yahoo.com/news/middle-east-latest-body-recovered-075411136.html)
-- Jan 10 - [Salvage complete of tanker at center of oil spill scare after being hit by Houthi rebels in Red Sea](https://www.yahoo.com/news/tanker-hit-yemen-rebels-threatened-072138973.html)
+- Jan 10 - [Everything we know about ‘armed’ arson suspect arrested over Kenneth blaze as LA wildfires rage](https://www.yahoo.com/news/everything-know-armed-arson-suspect-105721414.html)
+- Jan 10 - [FHP: High Springs man, 39, dies in single-vehicle crash on Interstate 75 in Alachua County](https://www.yahoo.com/news/fhp-high-springs-man-39-151313986.html)
+- Jan 10 - [Russian oil tanker reportedly drifting in Baltic Sea near German island](https://www.yahoo.com/news/russian-oil-tanker-reportedly-drifting-144256901.html)
+- Jan 10 - [Stock market today: Dow, S&P 500, Nasdaq sell off amid jobs report surprise, fresh inflation worries](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-sell-off-amid-jobs-report-surprise-fresh-inflation-worries-143101068.html)
+- Jan 10 - [FHP: Arrest made in hit-and-run of 9-year-old boy in Crawfordville, Wakulla County](https://www.yahoo.com/news/fhp-arrest-made-hit-run-140607053.html)
 <!-- feed end -->
 
 ### Onstream
