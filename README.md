@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [LA Mayor Bass announced that a new fire has emerged near the West Hills neighborhood](https://www.yahoo.com/news/la-mayor-bass-announced-fire-031222953.html)
+- Jan 10 - [Analysis-South Korea jet crash puts fast-growing Jeju Air's safety under scrutiny](https://www.yahoo.com/news/analysis-south-korea-jet-crash-020837168.html)
 - Jan 10 - [Trump says Putin wants to meet him, meeting being set up](https://www.yahoo.com/news/trump-says-putin-wants-meet-010745223.html)
-- Jan 09 - [Famous ‘Tree of Life’ slumps but struggles to survive on WA coast after recent storms](https://www.yahoo.com/news/famous-tree-life-slumps-struggles-221651549.html)
-- Jan 09 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
-- Jan 09 - [Aerial video shows before and after views of Palisades Fire](https://www.yahoo.com/news/aerial-video-shows-views-palisades-193958663.html)
-- Jan 09 - [Senate Democrats join Republicans in voting to advance bill to detain migrants accused of crimes](https://www.yahoo.com/news/senate-democrats-vote-advance-bill-193624490.html)
+- Jan 10 - [Shasta County supervisors settle lawsuit with former sheriff's captain for $2.8 million](https://www.yahoo.com/news/shasta-county-supervisors-settle-lawsuit-005025094.html)
+- Jan 10 - [Divided Supreme Court clears way for Trump's criminal sentencing in NY hush money case](https://www.yahoo.com/news/divided-supreme-court-denies-trump-001907646.html)
 <!-- feed end -->
 
 ### Onstream
