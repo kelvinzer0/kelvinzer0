@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Putin has promised to keep supplying Slovakia with gas, Fico says](https://www.yahoo.com/news/putin-promised-keep-supplying-slovakia-105558433.html)
+- Jan 10 - ['Solving' the mystery of the traffic light at Six Mile Cypress and Daniels in Fort Myers](https://www.yahoo.com/news/solving-mystery-traffic-light-six-100249784.html)
 - Jan 10 - [FTSE 100 LIVE: London stocks lower as UK borrowing costs rise again](https://uk.finance.yahoo.com/news/ftse-100-live-stock-markets-wall-street-uk-borrowing-costs-084031885.html)
-- Jan 10 - [Australian woman who says she is the Philippine president's half-sister appears in a Sydney court](https://www.yahoo.com/news/australian-woman-says-she-philippine-075354988.html)
+- Jan 10 - ['Apocalyptic': ghastly remains of Malibu come into focus](https://www.yahoo.com/news/apocalyptic-ghastly-remains-malibu-come-080718289.html)
 - Jan 10 - [What ignited the deadly California wildfires? Investigators consider an array of possibilities](https://www.yahoo.com/news/ignited-deadly-california-wildfires-investigators-053208174.html)
-- Jan 10 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
-- Jan 10 - [Russia is feeling the full impact of sanctions and the strain could force an end to the war this year, think tank says](https://www.yahoo.com/news/russia-feeling-full-impact-sanctions-023238502.html)
 <!-- feed end -->
 
 ### Onstream
