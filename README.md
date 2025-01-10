@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Last year was hottest on record and first to break Paris Agreement threshold](https://www.yahoo.com/news/last-hottest-record-first-break-073000794.html)
+- Jan 10 - [UK's longest serving barber still cutting hair after 65 years](https://www.yahoo.com/news/uks-longest-serving-barber-still-085858813.html)
+- Jan 10 - [Prada among suitors for Versace, newspaper reports](https://finance.yahoo.com/news/italys-prada-considering-buying-versace-065931095.html)
 - Jan 10 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
-- Jan 10 - [Why hydrants ran dry as firefighters battled California's deadly fires](https://www.yahoo.com/news/why-hydrants-ran-dry-firefighters-031621203.html)
-- Jan 10 - [Analysis-South Korea jet crash puts fast-growing Jeju Air's safety under scrutiny](https://www.yahoo.com/news/analysis-south-korea-jet-crash-020837168.html)
-- Jan 10 - [Tesla launches redesigned Model Y in China, seeking to fend off rivals](https://finance.yahoo.com/news/tesla-announces-revamped-model-y-012820739.html)
+- Jan 10 - [Trump on His Chat With Obama: Didn’t Realize How ‘Friendly’ It Looked](https://www.yahoo.com/news/trump-obama-chat-didn-t-040758977.html)
+- Jan 10 - [Tesla launches redesigned Model Y in Asia, seeking to fend off rivals](https://finance.yahoo.com/news/tesla-announces-revamped-model-y-012820739.html)
 <!-- feed end -->
 
 ### Onstream
