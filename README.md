@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [What ignited the deadly California wildfires? Investigators consider an array of possibilities](https://www.yahoo.com/news/ignited-deadly-california-wildfires-investigators-053208174.html)
+- Jan 10 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
+- Jan 10 - [Why hydrants ran dry as firefighters battled California's deadly fires](https://www.yahoo.com/news/why-hydrants-ran-dry-firefighters-031621203.html)
 - Jan 10 - [Trump says Putin wants to meet him, meeting being set up](https://www.yahoo.com/news/trump-says-putin-wants-meet-010745223.html)
-- Jan 10 - [Man, 23, arrested after fatal multi-vehicle crash on I-15](https://www.yahoo.com/news/man-23-arrested-fatal-multi-000553035.html)
-- Jan 09 - [Joe Rogan and Mel Gibson blast Newsom over fires: ‘You’ve ruined this state’](https://www.yahoo.com/news/joe-rogan-mel-gibson-blast-224951779.html)
-- Jan 09 - [Europe's aviation regulator issues new warning for Russian airspace](https://www.yahoo.com/news/europes-aviation-regulator-issues-warning-214354979.html)
-- Jan 09 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
+- Jan 10 - [Shasta County supervisors settle lawsuit with former sheriff's captain for $2.8 million](https://www.yahoo.com/news/shasta-county-supervisors-settle-lawsuit-005025094.html)
 <!-- feed end -->
 
 ### Onstream
