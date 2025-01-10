@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 10 - [What ignited the deadly California wildfires? Investigators consider an array of possibilities](https://www.yahoo.com/news/ignited-deadly-california-wildfires-investigators-053208174.html)
 - Jan 10 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
-- Jan 10 - [Why hydrants ran dry as firefighters battled California's deadly fires](https://www.yahoo.com/news/why-hydrants-ran-dry-firefighters-031621203.html)
+- Jan 10 - [Analysis-South Korea jet crash puts fast-growing Jeju Air's safety under scrutiny](https://www.yahoo.com/news/analysis-south-korea-jet-crash-020837168.html)
+- Jan 10 - [Tesla launches redesigned Model Y in China, seeking to fend off rivals](https://finance.yahoo.com/news/tesla-announces-revamped-model-y-012820739.html)
 - Jan 10 - [Trump says Putin wants to meet him, meeting being set up](https://www.yahoo.com/news/trump-says-putin-wants-meet-010745223.html)
-- Jan 10 - [Shasta County supervisors settle lawsuit with former sheriff's captain for $2.8 million](https://www.yahoo.com/news/shasta-county-supervisors-settle-lawsuit-005025094.html)
 <!-- feed end -->
 
 ### Onstream
