@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Analysis-South Korea jet crash puts fast-growing Jeju Air's safety under scrutiny](https://www.yahoo.com/news/analysis-south-korea-jet-crash-020837168.html)
 - Jan 10 - [Trump says Putin wants to meet him, meeting being set up](https://www.yahoo.com/news/trump-says-putin-wants-meet-010745223.html)
-- Jan 10 - [Divided Supreme Court clears way for Trump's criminal sentencing in NY hush money case](https://www.yahoo.com/news/divided-supreme-court-denies-trump-001907646.html)
 - Jan 10 - [Man, 23, arrested after fatal multi-vehicle crash on I-15](https://www.yahoo.com/news/man-23-arrested-fatal-multi-000553035.html)
-- Jan 09 - [Kohl’s Corp. announces closure of 27 stores nationwide, including in Chicagoland](https://finance.yahoo.com/news/kohl-corp-announces-closure-27-232205484.html)
+- Jan 09 - [Joe Rogan and Mel Gibson blast Newsom over fires: ‘You’ve ruined this state’](https://www.yahoo.com/news/joe-rogan-mel-gibson-blast-224951779.html)
+- Jan 09 - [Europe's aviation regulator issues new warning for Russian airspace](https://www.yahoo.com/news/europes-aviation-regulator-issues-warning-214354979.html)
+- Jan 09 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
 <!-- feed end -->
 
 ### Onstream
