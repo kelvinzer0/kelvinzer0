@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Kohl's to close 27 stores by April as struggling retailer looks to improve profits, sales](https://finance.yahoo.com/news/kohls-close-27-stores-april-182955205.html)
-- Jan 10 - [Venezuela's Maduro Begins Third Term in Power](https://finance.yahoo.com/video/venezuelas-maduro-begins-third-term-173540739.html)
-- Jan 10 - [Germany calls a Russian oil tanker adrift in the Baltic Sea a threat to security](https://www.yahoo.com/news/russian-oil-tanker-reportedly-drifting-144256901.html)
-- Jan 10 - [Elon Musk aims to reignite Tesla’s fading momentum by making Model Y look like the Cybercab](https://finance.yahoo.com/news/elon-musk-aims-reignite-tesla-143937465.html)
-- Jan 10 - [Stock market today: Dow, S&P 500, Nasdaq sell off amid jobs report surprise, fresh inflation worries](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-sell-off-amid-jobs-report-surprise-fresh-inflation-worries-143101068.html)
+- Jan 10 - [Venezuela closes international border bridge with Colombia for three days](https://www.yahoo.com/news/venezuela-closes-international-border-bridge-184549314.html)
+- Jan 10 - [Everything we know about man arrested near Kenneth blaze as LA wildfires rage](https://www.yahoo.com/news/everything-know-armed-arson-suspect-105721414.html)
+- Jan 10 - [MAGA Has Emotional Meltdown After Trump Is Declared a Felon](https://www.yahoo.com/news/maga-emotional-meltdown-trump-declared-182722847.html)
+- Jan 10 - ['Unserious': Trump-Musk 2025 spending plan debunked by GOP debt guru who ran budget office](https://www.yahoo.com/news/unserious-trump-musk-2025-spending-181127112.html)
+- Jan 10 - [Photos of Los Angeles show catastrophic scale of devastation as blazes burn uncontrolled](https://www.yahoo.com/news/photos-los-angeles-show-catastrophic-184113479.html)
 <!-- feed end -->
 
 ### Onstream
