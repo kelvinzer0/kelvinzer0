@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Satellite photos reveal scale of devastating California wildfires](https://www.yahoo.com/news/satellite-photos-reveal-scale-devastating-112430755.html)
-- Jan 10 - [Rochester school board hires law firm to investigate superintendent on leave](https://www.yahoo.com/news/rochester-school-board-hires-law-101906608.html)
-- Jan 10 - ['Apocalyptic': ghastly remains of Malibu come into focus](https://www.yahoo.com/news/apocalyptic-ghastly-remains-malibu-come-080718289.html)
-- Jan 10 - [What ignited the deadly California wildfires? Investigators consider an array of possibilities](https://www.yahoo.com/news/ignited-deadly-california-wildfires-investigators-053208174.html)
-- Jan 10 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
+- Jan 10 - [Search for missing British hiker continues in Italian Alps](https://www.yahoo.com/news/search-missing-british-hiker-continues-124653562.html)
+- Jan 10 - [1 Magnificent High Dividend Stock Down More Than 20% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-high-dividend-stock-124100388.html)
+- Jan 10 - [Trump sentencing live updates: President-elect to attend sentencing virtually](https://www.yahoo.com/news/trump-sentencing-live-updates-president-124000259.html)
+- Jan 10 - [‘Orange Idiot’: Actor Forced to Flee Wildfire Tears Into Trump on CNN](https://www.yahoo.com/news/orange-idiot-actor-forced-flee-113120572.html)
+- Jan 10 - [Satellite Images Show Devastating Impact of Fires on LA Neighborhoods](https://www.yahoo.com/news/satellite-images-show-homes-catastrophic-081722531.html)
 <!-- feed end -->
 
 ### Onstream
