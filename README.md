@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 10 - [Kohl's to close 27 'underperforming' stores by April. Here's the list](https://finance.yahoo.com/news/kohls-close-27-underperforming-stores-205240137.html)
+- Jan 10 - [LSU WR Kyren Lacy reportedly wanted on charges of negligent homicide and hit-and-run](https://sports.yahoo.com/lsu-wr-kyren-lacy-reportedly-wanted-on-charges-of-negligent-homicide-and-hit-and-run-202451531.html)
+- Jan 10 - [A Lip Reader Interpreted What Donald Trump And Barack Obama Were Talking About Ay Jimmy Carter's Funeral](https://www.yahoo.com/entertainment/heres-one-lip-reader-made-194854785.html)
 - Jan 10 - [Justin Trudeau Reveals the Comeback That Shut Down Trump’s ‘51st State’ Chatter](https://www.yahoo.com/news/justin-trudeau-reveals-comeback-shut-194446154.html)
 - Jan 10 - [Greenland’s leader says he’s ready to talk to Trump](https://www.yahoo.com/news/greenland-leader-calls-respect-island-172849848.html)
-- Jan 10 - [Woman Who Evacuated L.A. Fires Is 'Haunted' by Watching 'Little Kids and Their Little Backpacks Running for Help' (Exclusive)](https://www.yahoo.com/news/woman-evacuated-l-fires-haunted-182016112.html)
-- Jan 10 - [Photos of Los Angeles show catastrophic scale of devastation as blazes burn uncontrolled](https://www.yahoo.com/news/photos-los-angeles-show-catastrophic-184113479.html)
 <!-- feed end -->
 
 ### Onstream
