@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Kohl's to close 27 stores by April as struggling retailer looks to improve profits, sales](https://finance.yahoo.com/news/kohls-close-27-stores-april-182955205.html)
 - Jan 10 - [Venezuela's Maduro Begins Third Term in Power](https://finance.yahoo.com/video/venezuelas-maduro-begins-third-term-173540739.html)
-- Jan 10 - [Grappler Bumper Ends Yet Another Police Chase](https://autos.yahoo.com/grappler-bumper-ends-yet-another-170000106.html)
-- Jan 10 - [Day 2: I-40 reopened as winter storm impedes traffic in Texas Panhandle](https://www.yahoo.com/news/winter-storm-impedes-traffic-texas-155331004.html)
-- Jan 10 - [Russian oil tanker reportedly drifting in Baltic Sea near German island](https://www.yahoo.com/news/russian-oil-tanker-reportedly-drifting-144256901.html)
+- Jan 10 - [Germany calls a Russian oil tanker adrift in the Baltic Sea a threat to security](https://www.yahoo.com/news/russian-oil-tanker-reportedly-drifting-144256901.html)
+- Jan 10 - [Elon Musk aims to reignite Tesla’s fading momentum by making Model Y look like the Cybercab](https://finance.yahoo.com/news/elon-musk-aims-reignite-tesla-143937465.html)
 - Jan 10 - [Stock market today: Dow, S&P 500, Nasdaq sell off amid jobs report surprise, fresh inflation worries](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-sell-off-amid-jobs-report-surprise-fresh-inflation-worries-143101068.html)
 <!-- feed end -->
 
