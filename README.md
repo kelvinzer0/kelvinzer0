@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Zelenskiy says meeting of allies pledges $2 billion in aid](https://www.yahoo.com/news/zelenskiy-says-meeting-allies-pledges-011045990.html)
-- Jan 09 - [Henry Winkler Slammed for Fueling Viral L.A. Fire Theory](https://www.yahoo.com/news/henry-winkler-slammed-fueling-baseless-213342968.html)
-- Jan 09 - [DeSantis nominee for UWF board says women shouldn't delay motherhood for higher ed, career](https://www.yahoo.com/news/desantis-appointee-university-board-says-201742047.html)
+- Jan 10 - [Trump says Putin wants to meet him, meeting being set up](https://www.yahoo.com/news/trump-says-putin-wants-meet-010745223.html)
+- Jan 09 - [Famous ‘Tree of Life’ slumps but struggles to survive on WA coast after recent storms](https://www.yahoo.com/news/famous-tree-life-slumps-struggles-221651549.html)
 - Jan 09 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
+- Jan 09 - [Aerial video shows before and after views of Palisades Fire](https://www.yahoo.com/news/aerial-video-shows-views-palisades-193958663.html)
 - Jan 09 - [Senate Democrats join Republicans in voting to advance bill to detain migrants accused of crimes](https://www.yahoo.com/news/senate-democrats-vote-advance-bill-193624490.html)
 <!-- feed end -->
 
