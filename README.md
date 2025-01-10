@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Putin has promised to keep supplying Slovakia with gas, Fico says](https://www.yahoo.com/news/putin-promised-keep-supplying-slovakia-105558433.html)
-- Jan 10 - ['Solving' the mystery of the traffic light at Six Mile Cypress and Daniels in Fort Myers](https://www.yahoo.com/news/solving-mystery-traffic-light-six-100249784.html)
-- Jan 10 - [FTSE 100 LIVE: London stocks lower as UK borrowing costs rise again](https://uk.finance.yahoo.com/news/ftse-100-live-stock-markets-wall-street-uk-borrowing-costs-084031885.html)
+- Jan 10 - [Satellite photos reveal scale of devastating California wildfires](https://www.yahoo.com/news/satellite-photos-reveal-scale-devastating-112430755.html)
+- Jan 10 - [Rochester school board hires law firm to investigate superintendent on leave](https://www.yahoo.com/news/rochester-school-board-hires-law-101906608.html)
 - Jan 10 - ['Apocalyptic': ghastly remains of Malibu come into focus](https://www.yahoo.com/news/apocalyptic-ghastly-remains-malibu-come-080718289.html)
 - Jan 10 - [What ignited the deadly California wildfires? Investigators consider an array of possibilities](https://www.yahoo.com/news/ignited-deadly-california-wildfires-investigators-053208174.html)
+- Jan 10 - [Before-and-after photos show iconic Los Angeles locations impacted by wildfires](https://www.yahoo.com/news/photos-show-iconic-los-angeles-201438730.html)
 <!-- feed end -->
 
 ### Onstream
