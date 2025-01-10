@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Search for missing British hiker continues in Italian Alps](https://www.yahoo.com/news/search-missing-british-hiker-continues-124653562.html)
-- Jan 10 - [1 Magnificent High Dividend Stock Down More Than 20% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-high-dividend-stock-124100388.html)
-- Jan 10 - [Trump sentencing live updates: President-elect to attend sentencing virtually](https://www.yahoo.com/news/trump-sentencing-live-updates-president-124000259.html)
-- Jan 10 - [‘Orange Idiot’: Actor Forced to Flee Wildfire Tears Into Trump on CNN](https://www.yahoo.com/news/orange-idiot-actor-forced-flee-113120572.html)
-- Jan 10 - [Satellite Images Show Devastating Impact of Fires on LA Neighborhoods](https://www.yahoo.com/news/satellite-images-show-homes-catastrophic-081722531.html)
+- Jan 10 - [‘Dire at best’: Chicago woman, 44, bought a house listed for $1 in Italy — then had to spend $446K to make it a home](https://www.yahoo.com/lifestyle/dire-best-chicago-woman-44-130100501.html)
+- Jan 10 - [Several Hurt in Bronx Building Fire](https://www.yahoo.com/news/several-hurt-bronx-building-fire-124152352.html)
+- Jan 10 - [Scientists make groundbreaking discovery while studying solar farms in Minnesota: 'There's still so much work to be done'](https://www.yahoo.com/tech/scientists-groundbreaking-discovery-while-studying-110052579.html)
+- Jan 10 - ['Apocalyptic': ghastly remains of Malibu come into focus](https://www.yahoo.com/news/apocalyptic-ghastly-remains-malibu-come-080718289.html)
+- Jan 10 - [Man arrested on suspicion of starting Los Angeles fire](https://www.yahoo.com/news/man-arrested-suspicion-starting-los-062602203.html)
 <!-- feed end -->
 
 ### Onstream
