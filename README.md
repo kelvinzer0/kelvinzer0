@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [LA Mayor Bass announced that a new fire has emerged near the West Hills neighborhood](https://www.yahoo.com/news/la-mayor-bass-announced-fire-031222953.html)
 - Jan 10 - [Analysis-South Korea jet crash puts fast-growing Jeju Air's safety under scrutiny](https://www.yahoo.com/news/analysis-south-korea-jet-crash-020837168.html)
 - Jan 10 - [Trump says Putin wants to meet him, meeting being set up](https://www.yahoo.com/news/trump-says-putin-wants-meet-010745223.html)
-- Jan 10 - [Shasta County supervisors settle lawsuit with former sheriff's captain for $2.8 million](https://www.yahoo.com/news/shasta-county-supervisors-settle-lawsuit-005025094.html)
 - Jan 10 - [Divided Supreme Court clears way for Trump's criminal sentencing in NY hush money case](https://www.yahoo.com/news/divided-supreme-court-denies-trump-001907646.html)
+- Jan 10 - [Man, 23, arrested after fatal multi-vehicle crash on I-15](https://www.yahoo.com/news/man-23-arrested-fatal-multi-000553035.html)
+- Jan 09 - [Kohl’s Corp. announces closure of 27 stores nationwide, including in Chicagoland](https://finance.yahoo.com/news/kohl-corp-announces-closure-27-232205484.html)
 <!-- feed end -->
 
 ### Onstream
