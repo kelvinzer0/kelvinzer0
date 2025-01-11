@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [Ukraine says it captured 2 North Korean soldiers fighting for Russia](https://www.yahoo.com/news/ukraine-says-captured-2-north-125203975.html)
+- Jan 11 - [3 Ways To Avoid the ‘Financial Vortex’ That Could Ruin Your Retirement](https://finance.yahoo.com/news/3-ways-avoid-financial-vortex-120025213.html)
 - Jan 11 - [‘Black boxes’ from crashed South Korean plane stopped recording about four minutes before disaster, officials say](https://www.yahoo.com/news/black-boxes-crashed-south-korean-062123532.html)
-- Jan 11 - ['Absolute Destruction': Homes and Business Destroyed by Eaton Fire in Altadena](https://www.yahoo.com/news/absolute-destruction-homes-business-destroyed-071929108.html)
-- Jan 11 - [Mercer Island detectives identify suspects involved in hate crime at middle school](https://www.yahoo.com/news/mercer-island-detectives-seek-public-004117370.html)
-- Jan 10 - [China releases ‘world’s most powerful’ weapon design software, 15x faster than US](https://www.yahoo.com/news/china-releases-world-most-powerful-213431434.html)
-- Jan 10 - [Wanted human trafficker in Houston found after being admitted to hospital](https://www.yahoo.com/news/wanted-human-trafficker-houston-found-211629543.html)
+- Jan 11 - [Wordle hints today for #1,302: Clues and answer for Saturday, January 11](https://www.yahoo.com/tech/wordle-hints-today-for-1302-clues-and-answer-for-saturday-january-11-050117573.html)
+- Jan 11 - [Facing child porn allegations, Boise elementary school employee takes his own life](https://www.yahoo.com/news/facing-child-porn-allegations-boise-004601468.html)
 <!-- feed end -->
 
 ### Onstream
