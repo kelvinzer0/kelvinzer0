@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Lakers coach JJ Redick emotionally recounts losing home to wildfires: 'It is complete devastation'](https://sports.yahoo.com/lakers-coach-jj-redick-emotionally-recounts-losing-home-to-wildfires-it-is-complete-devastation-235946191.html)
-- Jan 10 - [Mark Zuckerberg says Biden officials would 'scream' and 'curse' when seeking removal of Facebook content](https://www.yahoo.com/news/mark-zuckerberg-says-biden-officials-235351715.html)
 - Jan 10 - [Supreme Court to weigh reinstating Obamacare care requirements struck down by lower court](https://www.yahoo.com/news/supreme-court-weigh-reinstating-obamacare-233524809.html)
-- Jan 10 - [Woodland Hills Residents Stop Man With Blowtorch Near Kenneth Fire](https://www.yahoo.com/news/woodland-hills-residents-stop-man-212033293.html)
+- Jan 10 - [In-N-Out Burger proposes first drive-thru in Portland](https://www.yahoo.com/news/n-burger-proposes-first-drive-214535160.html)
 - Jan 10 - [Kohl's to close 27 'underperforming' stores by April. Here's the list](https://finance.yahoo.com/news/kohls-close-27-underperforming-stores-205240137.html)
+- Jan 10 - [Homeless man suspected of trying to start fire in LA with flamethrower](https://www.yahoo.com/news/man-arrested-suspicion-starting-los-062602203.html)
+- Jan 10 - [LSU WR Kyren Lacy wanted on charges of negligent homicide and hit-and-run](https://sports.yahoo.com/lsu-wr-kyren-lacy-wanted-on-charges-of-negligent-homicide-and-hit-and-run-202451789.html)
 <!-- feed end -->
 
 ### Onstream
