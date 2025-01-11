@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 11 - [Trump prosecutor Jack Smith resigns from Justice Department](https://www.yahoo.com/news/trump-prosecutor-jack-smith-resigns-211608887.html)
-- Jan 11 - [Talk of a sharp stock correction is rising. Here's how painful it could get.](https://finance.yahoo.com/news/talk-sharp-stock-correction-rising-203501632.html)
 - Jan 11 - [From yoga to nonprofits, San Diego steps up to help Los Angeles County wildfire survivors](https://www.yahoo.com/news/yoga-nonprofits-san-diego-steps-182022568.html)
 - Jan 11 - [Ukraine captures 2 North Korean soldiers fighting for Russia, releases photos](https://www.yahoo.com/news/ukraine-captures-2-north-korean-180903964.html)
 - Jan 11 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Jan 11 - [Scan Detects Evidence of "Lost World" Under Pacific Ocean](https://www.yahoo.com/news/scan-detects-evidence-lost-world-140038212.html)
 <!-- feed end -->
 
 ### Onstream
