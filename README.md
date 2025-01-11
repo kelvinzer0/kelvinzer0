@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 11 - [Russia says it will continue oil and gas projects despite US sanctions](https://www.yahoo.com/news/russia-says-continue-oil-gas-160539245.html)
+- Jan 11 - [One of four lynx captured in the Scottish Highlands dies](https://www.yahoo.com/news/one-four-lynx-captured-scottish-165016273.html)
+- Jan 11 - [Zelensky says two North Korean soldiers fighting for Russia were captured in Kursk region](https://www.yahoo.com/news/zelensky-says-two-north-korean-133443267.html)
 - Jan 11 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
-- Jan 11 - [Palisades Fire begins moving towards San Fernando Valley, forcing new evacuation warnings for Saturday](https://www.yahoo.com/news/palisades-fire-begins-moving-towards-135557233.html)
 - Jan 11 - [Judge who blocked release of Trump report was 'plainly' wrong, special counsel tells appeals court](https://www.yahoo.com/news/judge-blocked-release-trump-report-132715882.html)
 - Jan 11 - [Ukraine says it captured 2 North Korean soldiers fighting for Russia](https://www.yahoo.com/news/ukraine-says-captured-2-north-125203975.html)
 <!-- feed end -->
