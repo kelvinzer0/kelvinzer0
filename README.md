@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [Trump prosecutor Jack Smith resigns from Justice Department](https://www.yahoo.com/news/trump-prosecutor-jack-smith-resigns-211608887.html)
+- Jan 11 - [Talk of a sharp stock correction is rising. Here's how painful it could get.](https://finance.yahoo.com/news/talk-sharp-stock-correction-rising-203501632.html)
+- Jan 11 - [From yoga to nonprofits, San Diego steps up to help Los Angeles County wildfire survivors](https://www.yahoo.com/news/yoga-nonprofits-san-diego-steps-182022568.html)
 - Jan 11 - [Ukraine captures 2 North Korean soldiers fighting for Russia, releases photos](https://www.yahoo.com/news/ukraine-captures-2-north-korean-180903964.html)
-- Jan 11 - [Snow totals for DC, Maryland & Virginia, after overnight snowfall](https://www.yahoo.com/news/snow-totals-dc-maryland-virginia-155651876.html)
-- Jan 11 - [Scan Detects Evidence of "Lost World" Under Pacific Ocean](https://www.yahoo.com/news/scan-detects-evidence-lost-world-140038212.html)
-- Jan 11 - [Judge who blocked release of Trump report was 'plainly' wrong, special counsel tells appeals court](https://www.yahoo.com/news/judge-blocked-release-trump-report-132715882.html)
-- Jan 11 - [Russia's unjammable drones are causing chaos. A tech firm says it has a fix to help Ukraine fight back.](https://www.yahoo.com/news/russias-unjammable-drones-causing-chaos-124702724.html)
+- Jan 11 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
 <!-- feed end -->
 
 ### Onstream
