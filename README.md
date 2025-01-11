@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 11 - [‘Black boxes’ from crashed South Korean plane stopped recording about four minutes before disaster, officials say](https://www.yahoo.com/news/black-boxes-crashed-south-korean-062123532.html)
+- Jan 11 - ['Absolute Destruction': Homes and Business Destroyed by Eaton Fire in Altadena](https://www.yahoo.com/news/absolute-destruction-homes-business-destroyed-071929108.html)
 - Jan 11 - [Jeju Air 'black box' data missing from last 4 minutes before crash, South Korea ministry says](https://www.yahoo.com/news/south-korea-jeju-air-jet-050000369.html)
-- Jan 10 - [Day after opening warming shelter, Alexandria announces it will close on Saturday](https://www.yahoo.com/news/day-opening-warming-shelter-alexandria-221457312.html)
 - Jan 10 - [China releases ‘world’s most powerful’ weapon design software, 15x faster than US](https://www.yahoo.com/news/china-releases-world-most-powerful-213431434.html)
 - Jan 10 - [Kohl's to close 27 'underperforming' stores by April. Here's the list](https://finance.yahoo.com/news/kohls-close-27-underperforming-stores-205240137.html)
 <!-- feed end -->
