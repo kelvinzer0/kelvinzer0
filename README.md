@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 11 - [Mexico sends firefighters to California to help with raging blazes](https://www.yahoo.com/news/mexico-sends-firefighters-california-help-185159232.html)
+- Jan 11 - [Is Oracle Corporation (ORCL) the Best Cloud Computing Stock to Buy According to Analysts?](https://finance.yahoo.com/news/oracle-corporation-orcl-best-cloud-193922022.html)
 - Jan 11 - [Officials give updates on containment of wildfires throughout the L.A. area](https://www.yahoo.com/news/officials-updates-containment-wildfires-throughout-182604368.html)
 - Jan 11 - [Ukraine captures 2 North Korean soldiers fighting for Russia, releases photos](https://www.yahoo.com/news/ukraine-captures-2-north-korean-180903964.html)
-- Jan 11 - [I’m a Retired Boomer: 7 Reasons I Wish I Used a Financial Advisor To Plan For Retirement](https://finance.yahoo.com/news/m-retired-boomer-7-reasons-120052274.html)
 - Jan 11 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Jan 11 - [Scan Detects Evidence of "Lost World" Under Pacific Ocean](https://www.yahoo.com/news/scan-detects-evidence-lost-world-140038212.html)
 <!-- feed end -->
 
 ### Onstream
