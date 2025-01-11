@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Supreme Court to weigh reinstating Obamacare care requirements struck down by lower court](https://www.yahoo.com/news/supreme-court-weigh-reinstating-obamacare-233524809.html)
+- Jan 10 - [Cat Prevents Surveyor From Landing Drone on Job Site and It's Pure Comedy](https://www.yahoo.com/lifestyle/cat-prevents-surveyor-landing-drone-221429072.html)
 - Jan 10 - [Kohl's to close 27 'underperforming' stores by April. Here's the list](https://finance.yahoo.com/news/kohls-close-27-underperforming-stores-205240137.html)
-- Jan 10 - [LSU WR Kyren Lacy reportedly wanted on charges of negligent homicide and hit-and-run](https://sports.yahoo.com/lsu-wr-kyren-lacy-reportedly-wanted-on-charges-of-negligent-homicide-and-hit-and-run-202451531.html)
-- Jan 10 - [A Lip Reader Interpreted What Donald Trump And Barack Obama Were Talking About Ay Jimmy Carter's Funeral](https://www.yahoo.com/entertainment/heres-one-lip-reader-made-194854785.html)
-- Jan 10 - [Justin Trudeau Reveals the Comeback That Shut Down Trump’s ‘51st State’ Chatter](https://www.yahoo.com/news/justin-trudeau-reveals-comeback-shut-194446154.html)
-- Jan 10 - [Greenland’s leader says he’s ready to talk to Trump](https://www.yahoo.com/news/greenland-leader-calls-respect-island-172849848.html)
+- Jan 10 - [LSU WR Kyren Lacy wanted on charges of negligent homicide and hit-and-run](https://sports.yahoo.com/lsu-wr-kyren-lacy-wanted-on-charges-of-negligent-homicide-and-hit-and-run-202451789.html)
+- Jan 10 - [1958 Chevrolet Impala Found in Barn, Surprises with Original 348 V8](https://autos.yahoo.com/1958-chevrolet-impala-found-barn-200024969.html)
 <!-- feed end -->
 
 ### Onstream
