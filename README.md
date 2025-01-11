@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [Church information for Jan. 11](https://www.yahoo.com/lifestyle/church-information-jan-11-133025308.html)
 - Jan 11 - [Ukraine says it captured 2 North Korean soldiers fighting for Russia](https://www.yahoo.com/news/ukraine-says-captured-2-north-125203975.html)
-- Jan 11 - [3 Ways To Avoid the ‘Financial Vortex’ That Could Ruin Your Retirement](https://finance.yahoo.com/news/3-ways-avoid-financial-vortex-120025213.html)
+- Jan 11 - [Warren Buffett Owns 2 S&P 500 Index Funds. They Could Soar 153%, According to a Top Wall Street Analyst](https://finance.yahoo.com/news/warren-buffett-owns-2-p-092800028.html)
 - Jan 11 - [‘Black boxes’ from crashed South Korean plane stopped recording about four minutes before disaster, officials say](https://www.yahoo.com/news/black-boxes-crashed-south-korean-062123532.html)
-- Jan 11 - [Wordle hints today for #1,302: Clues and answer for Saturday, January 11](https://www.yahoo.com/tech/wordle-hints-today-for-1302-clues-and-answer-for-saturday-january-11-050117573.html)
-- Jan 11 - [Facing child porn allegations, Boise elementary school employee takes his own life](https://www.yahoo.com/news/facing-child-porn-allegations-boise-004601468.html)
+- Jan 11 - [Mercer Island detectives identify suspects involved in hate crime at middle school](https://www.yahoo.com/news/mercer-island-detectives-seek-public-004117370.html)
 <!-- feed end -->
 
 ### Onstream
