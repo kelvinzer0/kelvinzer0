@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 11 - [South Korea says Jeju Air jet black boxes stopped recording before crash](https://www.yahoo.com/news/south-korea-says-jeju-air-055019913.html)
+- Jan 11 - ['Italian touch' lifts sportswear brand Macron towards giants Nike and Adidas](https://uk.finance.yahoo.com/news/macron-sportswear-italy-brand-060001206.html)
+- Jan 11 - [Jeju Air 'black box' data missing from last 4 minutes before crash, South Korea ministry says](https://www.yahoo.com/news/south-korea-jeju-air-jet-050000369.html)
+- Jan 11 - [The most horrific wildfires in recent US history have one key feature in common](https://www.yahoo.com/news/most-horrific-wildfires-recent-us-021937661.html)
 - Jan 10 - [Supreme Court to weigh reinstating Obamacare care requirements struck down by lower court](https://www.yahoo.com/news/supreme-court-weigh-reinstating-obamacare-233524809.html)
 - Jan 10 - [Kohl's to close 27 'underperforming' stores by April. Here's the list](https://finance.yahoo.com/news/kohls-close-27-underperforming-stores-205240137.html)
-- Jan 10 - [LSU WR Kyren Lacy wanted on charges of negligent homicide and hit-and-run](https://sports.yahoo.com/lsu-wr-kyren-lacy-wanted-on-charges-of-negligent-homicide-and-hit-and-run-202451789.html)
-- Jan 10 - [2 teens arrested in large drug bust at two separate homes in Massachusetts town, police say](https://www.yahoo.com/news/2-teens-arrested-large-drug-195633308.html)
 <!-- feed end -->
 
 ### Onstream
