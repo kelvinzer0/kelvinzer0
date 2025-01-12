@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [China says it sees decline in rate of HMPV infections in northern China](https://www.yahoo.com/news/china-says-sees-decline-rate-105222577.html)
-- Jan 12 - [TikTok Trend Turns 'Cherry Tomato Bridge' Into Newest Attraction in Dublin](https://www.yahoo.com/news/tiktok-trend-turns-cherry-tomato-104410453.html)
+- Jan 12 - [A New Yorker who feared rising costs would hurt his retirement moved to Nepal. He said life is much cheaper and more relaxing.](https://www.yahoo.com/lifestyle/yorker-feared-rising-costs-hurt-090102082.html)
 - Jan 12 - [North Korean troops in Ukraine gain battlefield experience, cementing alliance with Russia](https://www.yahoo.com/news/north-korean-troops-ukraine-gain-050058728.html)
 - Jan 12 - [Kamala Harris posts Jimmy Carter funeral photo with notable exclusion; internet reacts](https://www.yahoo.com/news/kamala-harris-posts-jimmy-carter-045246944.html)
+- Jan 12 - [Apple's board recommends shareholders vote against proposal to eliminate diversity programs](https://finance.yahoo.com/news/apples-board-recommends-shareholders-vote-013113043.html)
 - Jan 12 - [Canada's former leader Chrétien has blunt advice for Trump: 'Give your head a shake!'](https://www.yahoo.com/news/canadas-former-leader-chr-tien-010827281.html)
 <!-- feed end -->
 
