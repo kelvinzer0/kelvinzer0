@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 12 - [Fired US Center for SafeSport investigator arrested again, this time charged with rape](https://www.yahoo.com/news/fired-us-center-safesport-investigator-162929656.html)
+- Jan 12 - [Italy releases Iranian citizen held on a US warrant over drone attack in Jordan](https://www.yahoo.com/news/italys-justice-minister-seeks-revoke-151029190.html)
+- Jan 12 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
 - Jan 12 - [Vance Breaks With Trump on ‘Day One’ Promise](https://www.yahoo.com/news/jd-vance-draws-clear-line-144230282.html)
-- Jan 12 - [The California wildfires could be leaving deeper inequality in their wake](https://www.yahoo.com/news/california-wildfires-could-leaving-deeper-142813516.html)
 - Jan 12 - [Bannon Sets MAGA Expiration Date for ‘Evil’ Elon Musk](https://www.yahoo.com/news/bannon-sets-maga-expiration-date-141654431.html)
-- Jan 12 - [The Trump Economy Begins: 3 Money Moves the Upper-Middle Class Should Make Before Inauguration Day](https://finance.yahoo.com/news/trump-economy-begins-3-money-140107977.html)
 <!-- feed end -->
 
 ### Onstream
