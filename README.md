@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [This year could bring the iPhone Air and an entry-level iPad with Apple Intelligence](https://www.yahoo.com/tech/this-year-could-bring-the-iphone-air-and-an-entry-level-ipad-with-apple-intelligence-175059162.html)
+- Jan 12 - [Zelenskiy says he's ready to exchange N. Korean soldiers for Ukrainians held in Russia](https://www.yahoo.com/news/zelenskiy-says-ready-hand-over-181900414.html)
 - Jan 12 - [GOP Senator Blames Americans for Most of Their Health Problems](https://www.yahoo.com/news/gop-senator-blames-americans-most-170112124.html)
-- Jan 12 - [Padilla says he is a ‘no’ on Laken Riley Act ‘as currently written’](https://www.yahoo.com/news/padilla-says-no-laken-riley-162215069.html)
+- Jan 12 - [Fired US Center for SafeSport investigator arrested again, this time charged with rape](https://www.yahoo.com/news/fired-us-center-safesport-investigator-162929656.html)
 - Jan 12 - [Italy releases Iranian citizen held on a US warrant over drone attack in Jordan](https://www.yahoo.com/news/italys-justice-minister-seeks-revoke-151029190.html)
 - Jan 12 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
 <!-- feed end -->
