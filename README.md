@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 11 - [From President to Divine Protector? Putin Elevates Himself to New Heights With Godly Rebrand](https://www.yahoo.com/news/president-divine-protector-putin-elevates-224731985.html)
+- Jan 12 - [Canada's former leader Chrétien has blunt advice for Trump: 'Give your head a shake!'](https://www.yahoo.com/news/canadas-former-leader-chr-tien-010827281.html)
 - Jan 11 - [Trump prosecutor Jack Smith resigns from Justice Department](https://www.yahoo.com/news/trump-prosecutor-jack-smith-resigns-211608887.html)
 - Jan 11 - [From yoga to nonprofits, San Diego steps up to help Los Angeles County wildfire survivors](https://www.yahoo.com/news/yoga-nonprofits-san-diego-steps-182022568.html)
 - Jan 11 - [Ukraine captures 2 North Korean soldiers fighting for Russia, releases photos](https://www.yahoo.com/news/ukraine-captures-2-north-korean-180903964.html)
-- Jan 11 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Jan 11 - [China’s most advanced Fujian carrier shows signs of heavier fighter jet training](https://www.yahoo.com/news/china-most-advanced-fujian-carrier-164703759.html)
 <!-- feed end -->
 
 ### Onstream
