@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Kamala Harris posts Jimmy Carter funeral photo with notable exclusion; internet reacts](https://www.yahoo.com/news/kamala-harris-posts-jimmy-carter-045246944.html)
+- Jan 12 - [One dead after Nutbush electrical fire](https://www.yahoo.com/news/one-dead-nutbush-electrical-fire-032721743.html)
 - Jan 12 - [Apple's board recommends shareholders vote against proposal to eliminate diversity programs](https://finance.yahoo.com/news/apples-board-recommends-shareholders-vote-013113043.html)
 - Jan 12 - [Canada's former leader Chrétien has blunt advice for Trump: 'Give your head a shake!'](https://www.yahoo.com/news/canadas-former-leader-chr-tien-010827281.html)
 - Jan 11 - [Trump prosecutor Jack Smith resigns from Justice Department](https://www.yahoo.com/news/trump-prosecutor-jack-smith-resigns-211608887.html)
-- Jan 11 - [From yoga to nonprofits, San Diego steps up to help Los Angeles County wildfire survivors](https://www.yahoo.com/news/yoga-nonprofits-san-diego-steps-182022568.html)
-- Jan 11 - [China’s most advanced Fujian carrier shows signs of heavier fighter jet training](https://www.yahoo.com/news/china-most-advanced-fujian-carrier-164703759.html)
 <!-- feed end -->
 
 ### Onstream
