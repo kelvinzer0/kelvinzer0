@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Fired US Center for SafeSport investigator arrested again, this time charged with rape](https://www.yahoo.com/news/fired-us-center-safesport-investigator-162929656.html)
 - Jan 12 - [Vance Breaks With Trump on ‘Day One’ Promise](https://www.yahoo.com/news/jd-vance-draws-clear-line-144230282.html)
+- Jan 12 - [The California wildfires could be leaving deeper inequality in their wake](https://www.yahoo.com/news/california-wildfires-could-leaving-deeper-142813516.html)
 - Jan 12 - [Bannon Sets MAGA Expiration Date for ‘Evil’ Elon Musk](https://www.yahoo.com/news/bannon-sets-maga-expiration-date-141654431.html)
-- Jan 12 - [Las Vegas man lost $53K buying a truck that was stolen. Here’s how the VIN swap scam works and 5 things to look out for](https://www.yahoo.com/news/las-vegas-man-lost-53k-123000062.html)
-- Jan 12 - [Mechanics Explain Why You Should Never Buy These 6 Popular Car Brands](https://autos.yahoo.com/mechanics-explain-why-never-buy-120009078.html)
-- Jan 12 - [More melting Sunday afternoon](https://www.yahoo.com/news/two-rounds-storms-today-150114125.html)
+- Jan 12 - [The Trump Economy Begins: 3 Money Moves the Upper-Middle Class Should Make Before Inauguration Day](https://finance.yahoo.com/news/trump-economy-begins-3-money-140107977.html)
 <!-- feed end -->
 
 ### Onstream
