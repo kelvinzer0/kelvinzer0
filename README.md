@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Mechanics Explain Why You Should Never Buy These 6 Popular Car Brands](https://autos.yahoo.com/mechanics-explain-why-never-buy-120009078.html)
+- Jan 12 - [Bannon Sets MAGA Expiration Date for ‘Evil’ Elon Musk](https://www.yahoo.com/news/bannon-sets-maga-expiration-date-141654431.html)
+- Jan 12 - [A couple spent $840,000 moving into a retirement home — then it went bankrupt, report says. Here's why they're not alone](https://finance.yahoo.com/news/couple-spent-840-000-moving-130400074.html)
 - Jan 12 - [More melting Sunday afternoon](https://www.yahoo.com/news/two-rounds-storms-today-150114125.html)
-- Jan 12 - [North Korean troops in Ukraine gain battlefield experience, cementing alliance with Russia](https://www.yahoo.com/news/north-korean-troops-ukraine-gain-050058728.html)
+- Jan 12 - [Sip elderberry juice, drink your coffee in the morning, and wear shoes while you cook — plus 11 more tips to have a great week](https://www.yahoo.com/lifestyle/sip-elderberry-juice-drink-your-coffee-in-the-morning-and-wear-shoes-while-you-cook--plus-11-more-tips-to-have-a-great-week-100009428.html)
 - Jan 12 - [Kamala Harris posts Jimmy Carter funeral photo with notable exclusion; internet reacts](https://www.yahoo.com/news/kamala-harris-posts-jimmy-carter-045246944.html)
-- Jan 12 - [Man steals gun from KCK Bass Pro Shop, KCKPD need help locating](https://www.yahoo.com/news/man-steals-gun-kck-bass-035715807.html)
 <!-- feed end -->
 
 ### Onstream
