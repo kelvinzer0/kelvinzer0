@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Alaska Airlines faces heat after UFC champion Khabib Nurmagomedov gets removed from flight: 'Shame on you'](https://www.yahoo.com/news/alaska-airlines-faces-heat-after-ufc-champion-khabib-nurmagomedov-gets-removed-from-flight-shame-on-you-194503964.html)
-- Jan 12 - [Zelenskiy says he's ready to exchange N. Korean soldiers for Ukrainians held in Russia](https://www.yahoo.com/news/zelenskiy-says-ready-hand-over-181900414.html)
+- Jan 12 - [Face the Nation: Barrasso, Kelly, Gingrich](https://www.yahoo.com/news/face-nation-barrasso-kelly-gingrich-183429350.html)
 - Jan 12 - [Mind the gap - and the goosebumps: No Trousers Tube ride returns](https://www.yahoo.com/lifestyle/mind-gap-goosebumps-no-trousers-181603164.html)
 - Jan 12 - [GOP Senator Blames Americans for Most of Their Health Problems](https://www.yahoo.com/news/gop-senator-blames-americans-most-170112124.html)
 - Jan 12 - [Fired US Center for SafeSport investigator arrested again, this time charged with rape](https://www.yahoo.com/news/fired-us-center-safesport-investigator-162929656.html)
+- Jan 12 - [Padilla says he is a ‘no’ on Laken Riley Act ‘as currently written’](https://www.yahoo.com/news/padilla-says-no-laken-riley-162215069.html)
 <!-- feed end -->
 
 ### Onstream
