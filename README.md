@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 12 - [Kamala Harris posts Jimmy Carter funeral photo with notable exclusion; internet reacts](https://www.yahoo.com/news/kamala-harris-posts-jimmy-carter-045246944.html)
+- Jan 12 - [Georgetown's Blue Hole Park to see renovations](https://www.yahoo.com/news/georgetowns-blue-hole-park-see-015517905.html)
 - Jan 12 - [Apple's board recommends shareholders vote against proposal to eliminate diversity programs](https://finance.yahoo.com/news/apples-board-recommends-shareholders-vote-013113043.html)
 - Jan 12 - [Canada's former leader Chrétien has blunt advice for Trump: 'Give your head a shake!'](https://www.yahoo.com/news/canadas-former-leader-chr-tien-010827281.html)
-- Jan 11 - [From President to Divine Protector? Putin Elevates Himself to New Heights With Godly Rebrand](https://www.yahoo.com/news/president-divine-protector-putin-elevates-224731985.html)
-- Jan 11 - [Trump prosecutor Jack Smith resigns from Justice Department](https://www.yahoo.com/news/trump-prosecutor-jack-smith-resigns-211608887.html)
+- Jan 11 - [SUV driver dies after fiery crash at Warwick traffic circle. What we know.](https://www.yahoo.com/news/suv-driver-dies-fiery-crash-231827204.html)
 <!-- feed end -->
 
 ### Onstream
