@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Mechanics Explain Why You Should Never Buy These 6 Popular Car Brands](https://autos.yahoo.com/mechanics-explain-why-never-buy-120009078.html)
 - Jan 12 - [More melting Sunday afternoon](https://www.yahoo.com/news/two-rounds-storms-today-150114125.html)
 - Jan 12 - [North Korean troops in Ukraine gain battlefield experience, cementing alliance with Russia](https://www.yahoo.com/news/north-korean-troops-ukraine-gain-050058728.html)
 - Jan 12 - [Kamala Harris posts Jimmy Carter funeral photo with notable exclusion; internet reacts](https://www.yahoo.com/news/kamala-harris-posts-jimmy-carter-045246944.html)
-- Jan 12 - [Canada's former leader Chrétien has blunt advice for Trump: 'Give your head a shake!'](https://www.yahoo.com/news/canadas-former-leader-chr-tien-010827281.html)
-- Jan 11 - [SUV driver dies after fiery crash at Warwick traffic circle. What we know.](https://www.yahoo.com/news/suv-driver-dies-fiery-crash-231827204.html)
+- Jan 12 - [Man steals gun from KCK Bass Pro Shop, KCKPD need help locating](https://www.yahoo.com/news/man-steals-gun-kck-bass-035715807.html)
 <!-- feed end -->
 
 ### Onstream
