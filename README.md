@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [China, India refiners scour the world for oil supplies as US sanctions to curb Russian supply](https://finance.yahoo.com/news/china-india-refiners-scour-world-094955628.html)
-- Jan 13 - [A Big Social Security Change Just Signed by President Biden Comes With Bad News for Retirees](https://finance.yahoo.com/news/big-social-security-change-just-093000844.html)
-- Jan 13 - [Jeff Bezos' space company calls off debut launch of massive new rocket in final minutes of countdown](https://www.yahoo.com/news/jeff-bezos-space-company-calls-082804349.html)
-- Jan 13 - ['Massive Reversal': Trump Ripped For Already Backpedaling On Key Campaign Promise](https://www.yahoo.com/news/massive-reversal-trump-ripped-already-071918215.html)
-- Jan 13 - [Seoul's spy agency says North Korean soldiers captured in Ukraine haven't shown desire to defect](https://www.yahoo.com/news/seouls-spy-agency-says-north-053002992.html)
+- Jan 13 - [Sammy Hagar at Barrett Jackson: Ultimate guide to his Scottsdale concert](https://www.yahoo.com/entertainment/sammy-hagar-barrett-jackson-ultimate-120257124.html)
+- Jan 13 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. More Chip Export Rules Coming.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jan 13 - [Vietnam apparel sector urged to prepare for new US trade policies](https://finance.yahoo.com/news/vietnam-apparel-sector-urged-prepare-115809163.html)
+- Jan 13 - [Experts Are Sharing Exactly What Happens To Your Body When You Drink Soda Every Day And It's Kind Of Shocking](https://www.yahoo.com/lifestyle/experts-sharing-exactly-happens-body-113102021.html)
+- Jan 13 - [Incoming Trump team is questioning civil servants at National Security Council about their loyalty](https://www.yahoo.com/news/incoming-trump-team-questioning-civil-112754896.html)
 <!-- feed end -->
 
 ### Onstream
