@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 13 - [China unveils US$13 billion trade finance facility in boost to yuan hub in Hong Kong](https://finance.yahoo.com/news/china-unveils-us-13-billion-093000883.html)
 - Jan 13 - [Jeff Bezos' space company calls off debut launch of massive new rocket in final minutes of countdown](https://www.yahoo.com/news/jeff-bezos-space-company-calls-082804349.html)
-- Jan 13 - [Taiwan's spy agency says China is working with gangs, shell companies to gain intelligence on Taiwan](https://www.yahoo.com/news/taiwans-spy-agency-says-china-080900761.html)
-- Jan 13 - [Seoul's spy agency says North Korean soldiers captured in Ukraine haven't shown desire to defect](https://www.yahoo.com/news/seouls-spy-agency-says-north-053002992.html)
-- Jan 13 - [Croatia’s president Milanović wins second five-year term in a landslide](https://www.yahoo.com/news/croatia-president-milanovi-wins-second-045821747.html)
-- Jan 12 - [Oil jumps as new US sanctions to curb Russian supply to China, India](https://finance.yahoo.com/news/oil-hits-more-3-month-234905889.html)
+- Jan 13 - [India's Modi marks the opening of a strategic tunnel in disputed Kashmir](https://www.yahoo.com/news/indias-modi-marks-opening-strategic-082744082.html)
+- Jan 13 - [Ukraine tried to attack TurkStream pipeline infrastructure in southern Russia, Moscow says](https://www.yahoo.com/news/ukraine-tried-attack-turkstream-pipeline-080327559.html)
+- Jan 13 - ['Massive Reversal': Trump Ripped For Already Backpedaling On Key Campaign Promise](https://www.yahoo.com/news/massive-reversal-trump-ripped-already-071918215.html)
 <!-- feed end -->
 
 ### Onstream
