@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 13 - [Dow Jones Futures Fall After Stock Market's Damaging Losses; What To Do Now](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-buy-signals-nvidia-meta-tesla/?src=A00220&yptr=yahoo)
-- Jan 13 - [A father at the bedside of his son, a surfer and a woman who stayed behind with her beloved pets are among wildfire victims](https://www.yahoo.com/news/father-bedside-son-woman-stayed-195727190.html)
-- Jan 12 - [Little Rock police release name of man suspected in Friday morning homicide](https://www.yahoo.com/news/little-rock-police-release-name-232225453.html)
+- Jan 13 - [China steps up policy measures to defend fragile yuan](https://finance.yahoo.com/news/china-steps-policy-measures-defend-030748214.html)
 - Jan 12 - [The Largest Beef Recall In US History Affected A Dizzying Amount Of Meat](https://www.yahoo.com/news/largest-beef-recall-us-history-211517599.html)
 - Jan 12 - [People Who Were 'Overly Neglected' in Childhood Often Display These 10 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-overly-neglected-childhood-211000330.html)
+- Jan 12 - [Reality TV star Chase Chrisley accused of slapping a Twin Peaks bar manager in Atlanta](https://www.yahoo.com/entertainment/reality-tv-star-chase-chrisley-194802854.html)
 <!-- feed end -->
 
 ### Onstream
