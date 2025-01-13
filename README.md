@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [3 tips for entrepreneurs to help their dream business succeed](https://finance.yahoo.com/video/3-tips-entrepreneurs-help-dream-190028031.html)
+- Jan 13 - [Millions take holy dip as India's Maha Kumbh Mela begins](https://www.yahoo.com/news/millions-holy-dip-indias-maha-193705640.html)
+- Jan 13 - [The first AI chip startup to go public in 2025 will be Blaize](https://finance.yahoo.com/news/first-ai-chip-startup-public-191004556.html)
+- Jan 13 - [Meghan Markle and Prince Harry Visit Eaton Fire Victims, Distributing Food and Supplies](https://www.yahoo.com/entertainment/meghan-markle-prince-harry-visit-184200925.html)
 - Jan 13 - [Dad kills 4-year-old son after boy asked him to leave bedroom during argument, cops say](https://www.yahoo.com/news/dad-kills-4-old-son-182736592.html)
-- Jan 13 - [Wall Street Sees Dollar Rallying Further as Trump Enters Stage](https://finance.yahoo.com/news/wall-street-sees-dollar-rallying-181617250.html)
 - Jan 13 - [Firefighter Shuts Down Elon Musk to His Face](https://www.yahoo.com/news/firefighter-shuts-down-elon-musk-181616065.html)
-- Jan 13 - [Buildings shake as magnitude 6.9 earthquake hits Japan](https://www.yahoo.com/news/buildings-shake-magnitude-6-9-180323647.html)
 <!-- feed end -->
 
 ### Onstream
