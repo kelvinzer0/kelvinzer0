@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Millions take holy dip as India's Maha Kumbh Mela begins](https://www.yahoo.com/news/millions-holy-dip-indias-maha-193705640.html)
+- Jan 13 - [Which companies have the most employees on H-1B visas?](https://www.yahoo.com/news/companies-most-employees-h-1b-192123147.html)
+- Jan 13 - [King to become first British monarch to visit Auschwitz](https://www.yahoo.com/lifestyle/king-become-first-british-monarch-202408270.html)
+- Jan 13 - [Elon Musk says a third patient got a Neuralink brain implant. The work is part of a booming field](https://www.yahoo.com/news/elon-musk-says-third-patient-200832787.html)
+- Jan 13 - [Prisoner filmed having sex with officer in cell seriously injured in attack](https://www.yahoo.com/news/prisoner-filmed-having-sex-officer-200000049.html)
 - Jan 13 - [The first AI chip startup to go public in 2025 will be Blaize](https://finance.yahoo.com/news/first-ai-chip-startup-public-191004556.html)
-- Jan 13 - [Meghan Markle and Prince Harry Visit Eaton Fire Victims, Distributing Food and Supplies](https://www.yahoo.com/entertainment/meghan-markle-prince-harry-visit-184200925.html)
-- Jan 13 - [Dad kills 4-year-old son after boy asked him to leave bedroom during argument, cops say](https://www.yahoo.com/news/dad-kills-4-old-son-182736592.html)
-- Jan 13 - [Firefighter Shuts Down Elon Musk to His Face](https://www.yahoo.com/news/firefighter-shuts-down-elon-musk-181616065.html)
 <!-- feed end -->
 
 ### Onstream
