@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 13 - [Apple fights $1.8 billion App Store lawsuit in UK class action](https://finance.yahoo.com/video/apple-fights-1-8-billion-152145660.html)
+- Jan 13 - [Melania Trump Reveals Where She Plans To Live During Her Husband's Presidency](https://www.yahoo.com/news/melania-trump-reveals-where-she-151716272.html)
+- Jan 13 - [Supreme Court turns back Utah's push to wrest control of public land from the federal government](https://www.yahoo.com/news/supreme-court-turns-back-utahs-145845363.html)
 - Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
-- Jan 13 - [Stock market today: Nasdaq, S&P 500 sink amid cratered hopes for 2025 rate cuts](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-sp-500-sink-amid-cratered-hopes-for-2025-rate-cuts-143049255.html)
-- Jan 13 - [BMW and Porsche have a China problem. They're not the only ones.](https://finance.yahoo.com/news/bmw-porsche-china-problem-theyre-122746115.html)
-- Jan 13 - ["There's Really No Upper Limit": Doctors Share The Foods We Should Eat More Of (And How They Can Impact Our Lives)](https://www.yahoo.com/lifestyle/theres-really-no-upper-limit-121602611.html)
-- Jan 13 - [American Battleground: How a single state took Harris down and raised the new era of Trump](https://www.yahoo.com/news/american-battleground-single-state-took-120042230.html)
+- Jan 13 - [US Supreme Court rebuffs Meta bid to avoid advertisers' lawsuit](https://finance.yahoo.com/news/us-supreme-court-rebuffs-meta-144849995.html)
 <!-- feed end -->
 
 ### Onstream
