@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Apple fights $1.8 billion App Store lawsuit in UK class action](https://finance.yahoo.com/video/apple-fights-1-8-billion-152145660.html)
-- Jan 13 - [Melania Trump Reveals Where She Plans To Live During Her Husband's Presidency](https://www.yahoo.com/news/melania-trump-reveals-where-she-151716272.html)
-- Jan 13 - [Supreme Court turns back Utah's push to wrest control of public land from the federal government](https://www.yahoo.com/news/supreme-court-turns-back-utahs-145845363.html)
-- Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
-- Jan 13 - [US Supreme Court rebuffs Meta bid to avoid advertisers' lawsuit](https://finance.yahoo.com/news/us-supreme-court-rebuffs-meta-144849995.html)
+- Jan 13 - [Nvidia stock falls after Biden administration releases updated export rule for AI chips](https://finance.yahoo.com/news/nvidia-stock-falls-after-biden-administration-releases-updated-export-rule-for-ai-chips-151755666.html)
+- Jan 13 - [The Porsche 911 Just Had its Best Sales Year Ever in the U.S.](https://autos.yahoo.com/porsche-911-just-had-best-165100242.html)
+- Jan 13 - [Lamborghini Breaks Sales Records Again in 2024, Surpassing 10,000 Deliveries](https://autos.yahoo.com/lamborghini-breaks-sales-records-again-163000142.html)
+- Jan 13 - [Gavin Newsom Hits Back at Elon Musk With Clip of Firefighters Exposing His ‘Lies’](https://www.yahoo.com/news/gavin-newsom-hits-back-elon-162502439.html)
+- Jan 13 - [Activists deface Darwin's grave at London's Westminster Abbey](https://www.yahoo.com/news/activists-deface-darwins-grave-londons-161702707.html)
 <!-- feed end -->
 
 ### Onstream
