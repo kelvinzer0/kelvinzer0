@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Closely watched CPI report could decide market's direction, says CIO](https://finance.yahoo.com/video/closely-watched-cpi-report-could-212338513.html)
-- Jan 13 - [‘Thousands of firefighters’ battling flames before high winds return in California](https://www.yahoo.com/news/thousands-firefighters-battling-flames-high-211457048.html)
-- Jan 13 - [Elon Musk says a third patient got a Neuralink brain implant. The work is part of a booming field](https://www.yahoo.com/news/elon-musk-says-third-patient-200832787.html)
-- Jan 13 - [Trump’s Inauguration Will Feature a Shocking Lineup of Musical Guests](https://www.yahoo.com/entertainment/trump-inauguration-feature-shocking-lineup-200444137.html)
-- Jan 13 - [The first AI chip startup to go public in 2025 will be Blaize](https://finance.yahoo.com/news/first-ai-chip-startup-public-191004556.html)
+- Jan 13 - [California Teacher Transforms Students' Lives With Unique Automotive Class](https://www.yahoo.com/entertainment/california-teacher-transforms-students-lives-230000189.html)
+- Jan 13 - [Amazon is ending its 'Try Before You Buy' option for Prime members](https://www.yahoo.com/news/amazon-ending-try-buy-option-222940307.html)
+- Jan 13 - [Sandy Hook families reach settlement over Alex Jones' bankruptcy](https://finance.yahoo.com/news/sandy-hook-families-reach-settlement-214144559.html)
+- Jan 13 - [Bitcoin Dips Below $91K as Banks Brace for Hawkish Fed](https://finance.yahoo.com/video/bitcoin-dips-below-91k-banks-213623403.html)
+- Jan 13 - [Hurricane-force winds cause widespread damage in Alaska's largest city](https://www.yahoo.com/news/hurricane-force-winds-cause-widespread-213139463.html)
 <!-- feed end -->
 
 ### Onstream
