@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Sammy Hagar at Barrett Jackson: Ultimate guide to his Scottsdale concert](https://www.yahoo.com/entertainment/sammy-hagar-barrett-jackson-ultimate-120257124.html)
 - Jan 13 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. More Chip Export Rules Coming.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jan 13 - [Vietnam apparel sector urged to prepare for new US trade policies](https://finance.yahoo.com/news/vietnam-apparel-sector-urged-prepare-115809163.html)
+- Jan 13 - [New laws are forcing South Florida condo owners to sell — here’s the requirement and why ‘nobody is happy’](https://www.yahoo.com/news/laws-forcing-south-florida-condo-120100266.html)
+- Jan 13 - [Stock market today: Dow, S&P 500, Nasdaq futures sink amid cratered hopes for 2025 rate cuts](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-sink-amid-cratered-hopes-for-2025-rate-cuts-115421975.html)
 - Jan 13 - [Experts Are Sharing Exactly What Happens To Your Body When You Drink Soda Every Day And It's Kind Of Shocking](https://www.yahoo.com/lifestyle/experts-sharing-exactly-happens-body-113102021.html)
 - Jan 13 - [Incoming Trump team is questioning civil servants at National Security Council about their loyalty](https://www.yahoo.com/news/incoming-trump-team-questioning-civil-112754896.html)
 <!-- feed end -->
