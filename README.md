@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Which companies have the most employees on H-1B visas?](https://www.yahoo.com/news/companies-most-employees-h-1b-192123147.html)
-- Jan 13 - [King to become first British monarch to visit Auschwitz](https://www.yahoo.com/lifestyle/king-become-first-british-monarch-202408270.html)
+- Jan 13 - [Closely watched CPI report could decide market's direction, says CIO](https://finance.yahoo.com/video/closely-watched-cpi-report-could-212338513.html)
+- Jan 13 - [‘Thousands of firefighters’ battling flames before high winds return in California](https://www.yahoo.com/news/thousands-firefighters-battling-flames-high-211457048.html)
 - Jan 13 - [Elon Musk says a third patient got a Neuralink brain implant. The work is part of a booming field](https://www.yahoo.com/news/elon-musk-says-third-patient-200832787.html)
-- Jan 13 - [Prisoner filmed having sex with officer in cell seriously injured in attack](https://www.yahoo.com/news/prisoner-filmed-having-sex-officer-200000049.html)
+- Jan 13 - [Trump’s Inauguration Will Feature a Shocking Lineup of Musical Guests](https://www.yahoo.com/entertainment/trump-inauguration-feature-shocking-lineup-200444137.html)
 - Jan 13 - [The first AI chip startup to go public in 2025 will be Blaize](https://finance.yahoo.com/news/first-ai-chip-startup-public-191004556.html)
 <!-- feed end -->
 
