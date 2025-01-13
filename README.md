@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Tens of thousands take holy dip in India as Maha Kumbh festival begins](https://www.yahoo.com/news/tens-thousands-holy-dip-india-043954721.html)
-- Jan 13 - [Santa Monica police release mugshots of suspects accused of trying to loot during California wildfires](https://www.yahoo.com/news/santa-monica-police-release-mugshots-024329814.html)
-- Jan 13 - [India kicks off a massive Hindu festival touted as the world's largest religious gathering](https://www.yahoo.com/news/india-kicks-off-massive-hindu-020608254.html)
+- Jan 13 - [Seoul's spy agency says North Korean soldiers captured in Ukraine haven't shown desire to defect](https://www.yahoo.com/news/seouls-spy-agency-says-north-053002992.html)
+- Jan 13 - [A stick-figure drawing in a North Korean soldier's diary showed how Pyongyang's troops wanted to use each other as drone 'bait'](https://www.yahoo.com/news/stick-figure-drawing-north-korean-041032805.html)
+- Jan 13 - [South Korea plans to overhaul airport 'localizers' after fatal Jeju Air crash](https://www.yahoo.com/news/south-korea-says-plans-change-031030378.html)
 - Jan 12 - [‘To know her was to love her’: Bay Village college student dies after being hit by train, school president confirms](https://www.yahoo.com/news/know-her-love-her-bay-232802934.html)
 - Jan 12 - [Little Rock police release name of man suspected in Friday morning homicide](https://www.yahoo.com/news/little-rock-police-release-name-232225453.html)
 <!-- feed end -->
