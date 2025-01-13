@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Dow Jones Futures Fall After Stock Market's Damaging Losses; What To Do Now](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-buy-signals-nvidia-meta-tesla/?src=A00220&yptr=yahoo)
-- Jan 13 - [Goldman Strategists See Tumbling China Stocks Rising 20% in 2025](https://finance.yahoo.com/news/goldman-strategists-see-tumbling-china-031447209.html)
+- Jan 13 - [Tens of thousands take holy dip in India as Maha Kumbh festival begins](https://www.yahoo.com/news/tens-thousands-holy-dip-india-043954721.html)
+- Jan 13 - [Santa Monica police release mugshots of suspects accused of trying to loot during California wildfires](https://www.yahoo.com/news/santa-monica-police-release-mugshots-024329814.html)
 - Jan 13 - [India kicks off a massive Hindu festival touted as the world's largest religious gathering](https://www.yahoo.com/news/india-kicks-off-massive-hindu-020608254.html)
 - Jan 12 - [‘To know her was to love her’: Bay Village college student dies after being hit by train, school president confirms](https://www.yahoo.com/news/know-her-love-her-bay-232802934.html)
-- Jan 12 - [LA fire evacuees headed to the Palm Springs area, these hotels and restaurants want to help](https://www.yahoo.com/news/la-fire-evacuees-headed-palm-232143628.html)
+- Jan 12 - [Little Rock police release name of man suspected in Friday morning homicide](https://www.yahoo.com/news/little-rock-police-release-name-232225453.html)
 <!-- feed end -->
 
 ### Onstream
