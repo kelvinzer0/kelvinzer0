@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Trump tariffs ‘to cost British industry £2.5bn’](https://www.yahoo.com/news/trump-tariffs-cost-british-industry-070000815.html)
+- Jan 13 - ['Massive Reversal': Trump Ripped For Already Backpedaling On Key Campaign Promise](https://www.yahoo.com/news/massive-reversal-trump-ripped-already-071918215.html)
+- Jan 13 - [Taiwan iPhone maker Foxconn sets its sights on the ever more crowded EV market](https://autos.yahoo.com/taiwan-iphone-maker-foxconn-sets-062333544.html)
+- Jan 13 - [Pursuit leads to rollover with 4 arrests, 1 person airlifted](https://www.yahoo.com/news/pursuit-leads-rollover-4-arrests-060029280.html)
 - Jan 13 - [Seoul's spy agency says North Korean soldiers captured in Ukraine haven't shown desire to defect](https://www.yahoo.com/news/seouls-spy-agency-says-north-053002992.html)
 - Jan 13 - [Tens of thousands take holy dip in India as Maha Kumbh festival begins](https://www.yahoo.com/news/tens-thousands-holy-dip-india-043954721.html)
-- Jan 12 - [The Largest Beef Recall In US History Affected A Dizzying Amount Of Meat](https://www.yahoo.com/news/largest-beef-recall-us-history-211517599.html)
-- Jan 12 - [People Who Were 'Overly Neglected' in Childhood Often Display These 10 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-were-overly-neglected-childhood-211000330.html)
 <!-- feed end -->
 
 ### Onstream
