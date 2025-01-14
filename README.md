@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [California Teacher Transforms Students' Lives With Unique Automotive Class](https://www.yahoo.com/entertainment/california-teacher-transforms-students-lives-230000189.html)
-- Jan 13 - [Amazon is ending its 'Try Before You Buy' option for Prime members](https://www.yahoo.com/news/amazon-ending-try-buy-option-222940307.html)
-- Jan 13 - [Sandy Hook families reach settlement over Alex Jones' bankruptcy](https://finance.yahoo.com/news/sandy-hook-families-reach-settlement-214144559.html)
+- Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
+- Jan 13 - [IRA expert: Why traditional retirement accounts have become the worst asset for estate planning](https://finance.yahoo.com/news/ira-expert-why-traditional-retirement-accounts-have-become-the-worst-asset-for-estate-planning-230147658.html)
+- Jan 13 - [APD: Motorists asked to avoid area of Hillside and Bell after fatal crash Monday](https://www.yahoo.com/news/apd-motorists-asked-avoid-area-215455418.html)
 - Jan 13 - [Bitcoin Dips Below $91K as Banks Brace for Hawkish Fed](https://finance.yahoo.com/video/bitcoin-dips-below-91k-banks-213623403.html)
-- Jan 13 - [Hurricane-force winds cause widespread damage in Alaska's largest city](https://www.yahoo.com/news/hurricane-force-winds-cause-widespread-213139463.html)
+- Jan 13 - [Sean Combs Raped 16-Year-Old Babysitter, New Lawsuit Claims](https://www.yahoo.com/news/sean-combs-raped-16-old-201707999.html)
 <!-- feed end -->
 
 ### Onstream
