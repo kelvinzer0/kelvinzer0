@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Sweden’s ‘Fritzl’ used drugged strawberries to kidnap a woman he was dating – now she’s telling her story](https://www.yahoo.com/news/sweden-fritzl-used-drugged-strawberries-130424411.html)
-- Jan 14 - [Peter Thiel warns young Americans of US real estate ‘catastrophe’ — but also sees ‘giant windfall’ for some boomers](https://finance.yahoo.com/news/peter-thiel-warns-young-americans-130200266.html)
-- Jan 14 - [Brits buying homes in Spain to be hit with 100% property tax](https://www.yahoo.com/news/brits-buying-homes-spain-hit-123414914.html)
-- Jan 14 - [EU's Kallas 'Really Pushing' to Lower Price Cap on Russian Oil](https://finance.yahoo.com/video/eus-kallas-really-pushing-lower-122754400.html)
-- Jan 14 - [Exclusive-Syria's new central bank chief vows to boost bank independence post Assad](https://www.yahoo.com/news/exclusive-syrias-central-bank-chief-072104511.html)
+- Jan 14 - [Capital One Accused of Misleading Customers on Savings Rates](https://finance.yahoo.com/news/capital-one-accused-misleading-customers-134816252.html)
+- Jan 14 - [Want $1 Million in Retirement? Look at 3 Simple Index Funds to Buy and Hold for Decades.](https://finance.yahoo.com/news/want-1-million-retirement-look-142100503.html)
+- Jan 14 - [Europe’s biggest airline wants a 2-drink limit for passengers at airports](https://www.yahoo.com/news/europe-biggest-airline-wants-2-140422340.html)
+- Jan 14 - [4 Things the Middle Class Likely Won’t Be Able To Afford Once Trump Takes Office](https://finance.yahoo.com/news/4-things-middle-class-likely-140030566.html)
+- Jan 14 - [I've Studied Anger For Decades. Then An Encounter With A Man After Trump Won Changed Everything.](https://www.yahoo.com/lifestyle/ive-studied-anger-decades-then-132325218.html)
 <!-- feed end -->
 
 ### Onstream
