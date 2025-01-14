@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Why NuScale Power Stock Blasted 445% Higher in 2024](https://finance.yahoo.com/news/why-nuscale-power-stock-blasted-074401592.html)
-- Jan 14 - [GoFundMe made for Fruita woman who survived horrific crash last week](https://www.yahoo.com/news/gofundme-made-fruita-woman-survived-010354525.html)
+- Jan 14 - [Prediction: This Will Be Wall Street's First $5 Trillion Company -- and It's Not Nvidia](https://finance.yahoo.com/news/prediction-wall-streets-first-5-095100784.html)
+- Jan 14 - [Johnson’s Corner, known as an I-25 landmark, closes after decades in business](https://www.yahoo.com/news/johnson-corner-known-25-landmark-033957398.html)
+- Jan 14 - [Buyer of Michael Jordan’s $9.5 Million Chicago Estate Set To Sell Off Pieces of the Property](https://www.yahoo.com/lifestyle/buyer-michael-jordan-9-5-010023481.html)
 - Jan 14 - [China mulls potential sale of TikTok US to Musk, Bloomberg News reports](https://finance.yahoo.com/news/china-mulls-potential-sale-tiktok-002531521.html)
 - Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
-- Jan 13 - [IRA expert: Why traditional retirement accounts have become the worst asset for estate planning](https://finance.yahoo.com/news/ira-expert-why-traditional-retirement-accounts-have-become-the-worst-asset-for-estate-planning-230147658.html)
 <!-- feed end -->
 
 ### Onstream
