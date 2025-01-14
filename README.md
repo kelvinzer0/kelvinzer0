@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Ohio GOP Chair: 'Confusing Ohioans was not such a bad strategy'](https://www.yahoo.com/news/ohio-gop-chair-confusing-ohioans-164815990.html)
-- Jan 14 - [Over 20 million perform holy dip ritual at India's Maha Kumbh](https://www.yahoo.com/news/over-20-million-perform-holy-140507397.html)
-- Jan 14 - [4 Things the Middle Class Likely Won’t Be Able To Afford Once Trump Takes Office](https://finance.yahoo.com/news/4-things-middle-class-likely-140030566.html)
-- Jan 14 - [JPMorgan faces internal revolt over RTO mandate—now talk of a Wells Fargo-style labor union is reportedly spreading](https://finance.yahoo.com/news/jpmorgan-faces-internal-revolt-over-132229899.html)
-- Jan 14 - [Peter Thiel warns young Americans of US real estate ‘catastrophe’ — but also sees ‘giant windfall’ for some boomers](https://finance.yahoo.com/news/peter-thiel-warns-young-americans-130200266.html)
+- Jan 14 - [Elon Musk Says His Boring Company Could Dig The $20 Trillion Tunnel Connecting America With Europe For '1000X Less Money'](https://finance.yahoo.com/news/elon-musk-says-boring-company-170017930.html)
+- Jan 14 - [Capital One sued by US CFPB for avoiding billions in interest payments](https://finance.yahoo.com/news/capital-one-sued-us-regulator-131758602.html)
+- Jan 14 - [I was forced to evacuate my home. Do I still need to pay my mortgage, rent, utility bills?](https://www.yahoo.com/news/forced-evacuate-home-still-pay-110057615.html)
+- Jan 14 - [Israeli minister Ben-Gvir threatens to quit Netanyahu cabinet over Gaza deal](https://www.yahoo.com/news/israeli-minister-ben-gvir-threatens-095901003.html)
+- Jan 14 - [Russia sees shift from Trump towards recognising 'realities' in Ukraine](https://www.yahoo.com/news/trump-buy-greenland-russia-says-095813060.html)
 <!-- feed end -->
 
 ### Onstream
