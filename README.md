@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [AI data center power demand to grow 160% by 2030 globally: Analyst](https://finance.yahoo.com/video/ai-data-center-power-demand-190000493.html)
+- Jan 14 - [Boeing's aircraft deliveries and orders in 2024 reflect the company's rough year](https://finance.yahoo.com/news/boeings-aircraft-deliveries-orders-2024-184246123.html)
+- Jan 14 - [Whoopi Goldberg Says California Should Deny Paying Federal Money in Future if LA Wildfire Relief Has Strings](https://www.yahoo.com/news/whoopi-goldberg-says-california-deny-173324573.html)
 - Jan 14 - [Elon Musk Says His Boring Company Could Dig The $20 Trillion Tunnel Connecting America With Europe For '1000X Less Money'](https://finance.yahoo.com/news/elon-musk-says-boring-company-170017930.html)
-- Jan 14 - [Capital One sued by US CFPB for avoiding billions in interest payments](https://finance.yahoo.com/news/capital-one-sued-us-regulator-131758602.html)
-- Jan 14 - [I was forced to evacuate my home. Do I still need to pay my mortgage, rent, utility bills?](https://www.yahoo.com/news/forced-evacuate-home-still-pay-110057615.html)
-- Jan 14 - [Israeli minister Ben-Gvir threatens to quit Netanyahu cabinet over Gaza deal](https://www.yahoo.com/news/israeli-minister-ben-gvir-threatens-095901003.html)
-- Jan 14 - [Russia sees shift from Trump towards recognising 'realities' in Ukraine](https://www.yahoo.com/news/trump-buy-greenland-russia-says-095813060.html)
+- Jan 14 - [Ukrainian orphan Natalia Grace's adoptive parents accused her of being an adult who was posing as a child. Here's where Michael and Kristine Barnett are now.](https://www.yahoo.com/news/ukrainian-orphan-natalia-graces-adoptive-045413826.html)
 <!-- feed end -->
 
 ### Onstream
