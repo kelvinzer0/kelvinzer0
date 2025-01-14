@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Extreme winds spark new fire in Southern California](https://www.yahoo.com/news/extreme-winds-spark-fire-southern-120908238.html)
-- Jan 14 - [HSBC urges people to take up support as new figures reveal scale of housing crisis](https://www.yahoo.com/news/bank-urges-households-contact-homelessness-170913808.html)
-- Jan 14 - [Trump Has Middle-Of-The-Night Meltdown In Wild Rant Aimed At 'Moron' TV Host](https://www.yahoo.com/entertainment/trump-middle-night-meltdown-wild-095524635.html)
-- Jan 14 - [Former Maryland principal withdraws from new school amid controversy](https://www.yahoo.com/news/former-maryland-principal-withdraws-school-031944474.html)
-- Jan 14 - [Trump Snubs Elon With Decision on White House Digs](https://www.yahoo.com/news/trump-snubs-elon-decision-white-024809786.html)
+- Jan 14 - [Sweden’s ‘Fritzl’ used drugged strawberries to kidnap a woman he was dating – now she’s telling her story](https://www.yahoo.com/news/sweden-fritzl-used-drugged-strawberries-130424411.html)
+- Jan 14 - [Peter Thiel warns young Americans of US real estate ‘catastrophe’ — but also sees ‘giant windfall’ for some boomers](https://finance.yahoo.com/news/peter-thiel-warns-young-americans-130200266.html)
+- Jan 14 - [Brits buying homes in Spain to be hit with 100% property tax](https://www.yahoo.com/news/brits-buying-homes-spain-hit-123414914.html)
+- Jan 14 - [EU's Kallas 'Really Pushing' to Lower Price Cap on Russian Oil](https://finance.yahoo.com/video/eus-kallas-really-pushing-lower-122754400.html)
+- Jan 14 - [Exclusive-Syria's new central bank chief vows to boost bank independence post Assad](https://www.yahoo.com/news/exclusive-syrias-central-bank-chief-072104511.html)
 <!-- feed end -->
 
 ### Onstream
