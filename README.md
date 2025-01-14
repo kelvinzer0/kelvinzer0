@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [More than 15,000 renters could lose homes before ban on no-fault evictions comes into force](https://www.yahoo.com/news/more-15-000-renters-could-114855546.html)
-- Jan 14 - [Russian fines Google $78 million for ignoring previous penalties](https://finance.yahoo.com/news/russian-court-imposes-78-million-114141882.html)
+- Jan 14 - [Extreme winds spark new fire in Southern California](https://www.yahoo.com/news/extreme-winds-spark-fire-southern-120908238.html)
 - Jan 14 - [HSBC urges people to take up support as new figures reveal scale of housing crisis](https://www.yahoo.com/news/bank-urges-households-contact-homelessness-170913808.html)
-- Jan 14 - [Russia sees shift from Trump towards recognising 'realities' in Ukraine](https://www.yahoo.com/news/trump-buy-greenland-russia-says-095813060.html)
 - Jan 14 - [Trump Has Middle-Of-The-Night Meltdown In Wild Rant Aimed At 'Moron' TV Host](https://www.yahoo.com/entertainment/trump-middle-night-meltdown-wild-095524635.html)
+- Jan 14 - [Former Maryland principal withdraws from new school amid controversy](https://www.yahoo.com/news/former-maryland-principal-withdraws-school-031944474.html)
+- Jan 14 - [Trump Snubs Elon With Decision on White House Digs](https://www.yahoo.com/news/trump-snubs-elon-decision-white-024809786.html)
 <!-- feed end -->
 
 ### Onstream
