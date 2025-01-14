@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Will LA Wildfires Continue as High Winds Set to Return?](https://finance.yahoo.com/video/la-wildfires-continue-high-winds-002106737.html)
+- Jan 14 - [Peter Lynch's Money-Making Advice: 'When Things Go From Terrible to Semi-Terrible to OK, You Can Make a Lot of Money'](https://finance.yahoo.com/news/peter-lynchs-money-making-advice-013038519.html)
+- Jan 14 - [China mulls potential sale of TikTok US to Musk, Bloomberg News reports](https://finance.yahoo.com/news/china-mulls-potential-sale-tiktok-002531521.html)
 - Jan 14 - [Traffic into Manhattan drops 7.5% in first week of new toll. That's 43,000 fewer cars a day](https://www.yahoo.com/news/traffic-manhattan-drops-7-5-000147985.html)
-- Jan 13 - [2 women hospitalized after stabbing in Eugene, police say; search for suspect underway](https://www.yahoo.com/news/2-women-hospitalized-stabbing-eugene-235040163.html)
 - Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
 - Jan 13 - [IRA expert: Why traditional retirement accounts have become the worst asset for estate planning](https://finance.yahoo.com/news/ira-expert-why-traditional-retirement-accounts-have-become-the-worst-asset-for-estate-planning-230147658.html)
 <!-- feed end -->
