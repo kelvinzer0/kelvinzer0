@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Apple, Samsung phone sales slide as China competition bites: IDC](https://finance.yahoo.com/video/apple-samsung-phone-sales-slide-064839038.html)
-- Jan 14 - [Trump Snubs Elon With Decision on White House Digs](https://www.yahoo.com/news/trump-snubs-elon-decision-white-024809786.html)
-- Jan 14 - [CHP seeks video of deadly crash involving 13 motorcycles as Sacramento coroner IDs victim](https://www.yahoo.com/news/chp-seeks-video-deadly-crash-002510518.html)
-- Jan 14 - [Tuberville says California doesn’t ‘deserve’ funding after wildfires unless it makes ‘some changes’](https://www.yahoo.com/news/tuberville-says-california-doesn-t-001709889.html)
+- Jan 14 - [Why NuScale Power Stock Blasted 445% Higher in 2024](https://finance.yahoo.com/news/why-nuscale-power-stock-blasted-074401592.html)
+- Jan 14 - [GoFundMe made for Fruita woman who survived horrific crash last week](https://www.yahoo.com/news/gofundme-made-fruita-woman-survived-010354525.html)
+- Jan 14 - [China mulls potential sale of TikTok US to Musk, Bloomberg News reports](https://finance.yahoo.com/news/china-mulls-potential-sale-tiktok-002531521.html)
 - Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
+- Jan 13 - [IRA expert: Why traditional retirement accounts have become the worst asset for estate planning](https://finance.yahoo.com/news/ira-expert-why-traditional-retirement-accounts-have-become-the-worst-asset-for-estate-planning-230147658.html)
 <!-- feed end -->
 
 ### Onstream
