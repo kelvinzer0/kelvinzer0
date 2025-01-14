@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Dad left me $570K and his home in his will — now stepmom and half-siblings want 'their share.' What can I do?](https://finance.yahoo.com/news/dad-left-570k-home-now-135200783.html)
-- Jan 14 - [I've Studied Anger For Decades. Then An Encounter With A Man After Trump Won Changed Everything.](https://www.yahoo.com/lifestyle/ive-studied-anger-decades-then-132325218.html)
+- Jan 14 - [Ohio GOP Chair: 'Confusing Ohioans was not such a bad strategy'](https://www.yahoo.com/news/ohio-gop-chair-confusing-ohioans-164815990.html)
+- Jan 14 - [Over 20 million perform holy dip ritual at India's Maha Kumbh](https://www.yahoo.com/news/over-20-million-perform-holy-140507397.html)
+- Jan 14 - [4 Things the Middle Class Likely Won’t Be Able To Afford Once Trump Takes Office](https://finance.yahoo.com/news/4-things-middle-class-likely-140030566.html)
 - Jan 14 - [JPMorgan faces internal revolt over RTO mandate—now talk of a Wells Fargo-style labor union is reportedly spreading](https://finance.yahoo.com/news/jpmorgan-faces-internal-revolt-over-132229899.html)
-- Jan 14 - [Capital One sued by US CFPB for avoiding billions in interest payments](https://finance.yahoo.com/news/capital-one-sued-us-regulator-131758602.html)
-- Jan 14 - [Guy Spots His Buddy’s Stolen Silverado, Then This Happens](https://autos.yahoo.com/guy-spots-buddy-stolen-silverado-130000429.html)
+- Jan 14 - [Peter Thiel warns young Americans of US real estate ‘catastrophe’ — but also sees ‘giant windfall’ for some boomers](https://finance.yahoo.com/news/peter-thiel-warns-young-americans-130200266.html)
 <!-- feed end -->
 
 ### Onstream
