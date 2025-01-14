@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Trump Snubs Elon With Decision on White House Digs](https://www.yahoo.com/news/trump-snubs-elon-decision-white-024809786.html)
+- Jan 14 - [Victims' son held triple murder suspect at gunpoint until deputies arrived, officials say](https://www.yahoo.com/news/victims-son-held-triple-murder-043952600.html)
+- Jan 14 - [Special Counsel slams Biden’s response to Hunter Biden prosecution](https://www.yahoo.com/news/special-counsel-slams-biden-response-040957313.html)
 - Jan 14 - [China mulls potential sale of TikTok US to Musk, Bloomberg News reports](https://finance.yahoo.com/news/china-mulls-potential-sale-tiktok-002531521.html)
 - Jan 14 - [Tuberville says California doesn’t ‘deserve’ funding after wildfires unless it makes ‘some changes’](https://www.yahoo.com/news/tuberville-says-california-doesn-t-001709889.html)
-- Jan 14 - [$2-billion Powerball jackpot winner loses home in L.A. County wildfire](https://www.yahoo.com/news/2-billion-powerball-jackpot-winner-000625904.html)
 - Jan 14 - [Traffic into Manhattan drops 7.5% in first week of new toll. That's 43,000 fewer cars a day](https://www.yahoo.com/news/traffic-manhattan-drops-7-5-000147985.html)
 <!-- feed end -->
 
