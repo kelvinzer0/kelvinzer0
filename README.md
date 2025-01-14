@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [Will LA Wildfires Continue as High Winds Set to Return?](https://finance.yahoo.com/video/la-wildfires-continue-high-winds-002106737.html)
+- Jan 14 - [Traffic into Manhattan drops 7.5% in first week of new toll. That's 43,000 fewer cars a day](https://www.yahoo.com/news/traffic-manhattan-drops-7-5-000147985.html)
+- Jan 13 - [2 women hospitalized after stabbing in Eugene, police say; search for suspect underway](https://www.yahoo.com/news/2-women-hospitalized-stabbing-eugene-235040163.html)
 - Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
 - Jan 13 - [IRA expert: Why traditional retirement accounts have become the worst asset for estate planning](https://finance.yahoo.com/news/ira-expert-why-traditional-retirement-accounts-have-become-the-worst-asset-for-estate-planning-230147658.html)
-- Jan 13 - [APD: Motorists asked to avoid area of Hillside and Bell after fatal crash Monday](https://www.yahoo.com/news/apd-motorists-asked-avoid-area-215455418.html)
-- Jan 13 - [Bitcoin Dips Below $91K as Banks Brace for Hawkish Fed](https://finance.yahoo.com/video/bitcoin-dips-below-91k-banks-213623403.html)
-- Jan 13 - [Sean Combs Raped 16-Year-Old Babysitter, New Lawsuit Claims](https://www.yahoo.com/news/sean-combs-raped-16-old-201707999.html)
 <!-- feed end -->
 
 ### Onstream
