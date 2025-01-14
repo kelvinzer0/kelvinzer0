@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [AI data center power demand to grow 160% by 2030 globally: Analyst](https://finance.yahoo.com/video/ai-data-center-power-demand-190000493.html)
-- Jan 14 - [Boeing's aircraft deliveries and orders in 2024 reflect the company's rough year](https://finance.yahoo.com/news/boeings-aircraft-deliveries-orders-2024-184246123.html)
-- Jan 14 - [Whoopi Goldberg Says California Should Deny Paying Federal Money in Future if LA Wildfire Relief Has Strings](https://www.yahoo.com/news/whoopi-goldberg-says-california-deny-173324573.html)
-- Jan 14 - [Elon Musk Says His Boring Company Could Dig The $20 Trillion Tunnel Connecting America With Europe For '1000X Less Money'](https://finance.yahoo.com/news/elon-musk-says-boring-company-170017930.html)
-- Jan 14 - [Ukrainian orphan Natalia Grace's adoptive parents accused her of being an adult who was posing as a child. Here's where Michael and Kristine Barnett are now.](https://www.yahoo.com/news/ukrainian-orphan-natalia-graces-adoptive-045413826.html)
+- Jan 14 - [NewsChannel 5 meteorologist Bree Smith leaves station after nine years](https://www.yahoo.com/news/newschannel-5-meteorologist-bree-smith-190811016.html)
+- Jan 14 - [Missing person: Staunton Police seeking public's assistance in locating Karin Sullivan](https://www.yahoo.com/news/missing-person-staunton-police-seeking-190743491.html)
+- Jan 14 - [How Long It Takes To Become a Millionaire Through Your 401(k)](https://finance.yahoo.com/news/long-takes-become-millionaire-401-190023382.html)
+- Jan 14 - [Trump says he will create an 'External Revenue Service' agency to collect tariff income](https://www.yahoo.com/news/trump-says-create-external-revenue-182541097.html)
+- Jan 14 - [Sen. Kaine grills Hegseth at confirmation hearing](https://www.yahoo.com/news/sen-kaine-grills-hegseth-confirmation-182417756.html)
 <!-- feed end -->
 
 ### Onstream
