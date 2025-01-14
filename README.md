@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Archaeologists Dug Up the Tomb of an Egyptian Queen. It Could ‘Reconstruct History.’](https://www.yahoo.com/news/archaeologists-dug-tomb-egyptian-queen-191000615.html)
+- Jan 14 - [Texas has a powerful new House speaker in a blow to the GOP's hard right](https://www.yahoo.com/news/texas-powerful-house-speaker-blow-215019807.html)
 - Jan 14 - [NewsChannel 5 meteorologist Bree Smith leaves station after nine years](https://www.yahoo.com/news/newschannel-5-meteorologist-bree-smith-190811016.html)
 - Jan 14 - [Trump says he will create an 'External Revenue Service' agency to collect tariff income](https://www.yahoo.com/news/trump-says-create-external-revenue-182541097.html)
 - Jan 14 - [Sen. Kaine grills Hegseth at confirmation hearing](https://www.yahoo.com/news/sen-kaine-grills-hegseth-confirmation-182417756.html)
