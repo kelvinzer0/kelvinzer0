@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [Hurlburt Field reminds public that it's illegal to fly drones near the base](https://www.yahoo.com/news/hurlburt-field-reminds-public-illegal-201728874.html)
+- Jan 14 - [84 cited during San Bernardino County off-road vehicle enforcement crackdown](https://www.yahoo.com/news/84-cited-during-san-bernardino-200537586.html)
+- Jan 14 - [Black cop is accused of trafficking his white wife while flying to their honeymoon destination](https://www.yahoo.com/news/black-cop-accused-trafficking-white-192455949.html)
+- Jan 14 - [Gov. Greg Abbott threatens Texas A&M president’s job over claim that university broke DEI ban](https://www.yahoo.com/news/gov-greg-abbott-threatens-texas-162548794.html)
 - Jan 14 - [NewsChannel 5 meteorologist Bree Smith leaves station after nine years](https://www.yahoo.com/news/newschannel-5-meteorologist-bree-smith-190811016.html)
-- Jan 14 - [Missing person: Staunton Police seeking public's assistance in locating Karin Sullivan](https://www.yahoo.com/news/missing-person-staunton-police-seeking-190743491.html)
-- Jan 14 - [How Long It Takes To Become a Millionaire Through Your 401(k)](https://finance.yahoo.com/news/long-takes-become-millionaire-401-190023382.html)
-- Jan 14 - [Trump says he will create an 'External Revenue Service' agency to collect tariff income](https://www.yahoo.com/news/trump-says-create-external-revenue-182541097.html)
-- Jan 14 - [Sen. Kaine grills Hegseth at confirmation hearing](https://www.yahoo.com/news/sen-kaine-grills-hegseth-confirmation-182417756.html)
 <!-- feed end -->
 
 ### Onstream
