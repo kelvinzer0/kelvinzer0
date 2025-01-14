@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Capital One Accused of Misleading Customers on Savings Rates](https://finance.yahoo.com/news/capital-one-accused-misleading-customers-134816252.html)
-- Jan 14 - [Want $1 Million in Retirement? Look at 3 Simple Index Funds to Buy and Hold for Decades.](https://finance.yahoo.com/news/want-1-million-retirement-look-142100503.html)
-- Jan 14 - [Europe’s biggest airline wants a 2-drink limit for passengers at airports](https://www.yahoo.com/news/europe-biggest-airline-wants-2-140422340.html)
-- Jan 14 - [4 Things the Middle Class Likely Won’t Be Able To Afford Once Trump Takes Office](https://finance.yahoo.com/news/4-things-middle-class-likely-140030566.html)
+- Jan 14 - [Dad left me $570K and his home in his will — now stepmom and half-siblings want 'their share.' What can I do?](https://finance.yahoo.com/news/dad-left-570k-home-now-135200783.html)
 - Jan 14 - [I've Studied Anger For Decades. Then An Encounter With A Man After Trump Won Changed Everything.](https://www.yahoo.com/lifestyle/ive-studied-anger-decades-then-132325218.html)
+- Jan 14 - [JPMorgan faces internal revolt over RTO mandate—now talk of a Wells Fargo-style labor union is reportedly spreading](https://finance.yahoo.com/news/jpmorgan-faces-internal-revolt-over-132229899.html)
+- Jan 14 - [Capital One sued by US CFPB for avoiding billions in interest payments](https://finance.yahoo.com/news/capital-one-sued-us-regulator-131758602.html)
+- Jan 14 - [Guy Spots His Buddy’s Stolen Silverado, Then This Happens](https://autos.yahoo.com/guy-spots-buddy-stolen-silverado-130000429.html)
 <!-- feed end -->
 
 ### Onstream
