@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 14 - [Trump Snubs Elon With Decision on White House Digs](https://www.yahoo.com/news/trump-snubs-elon-decision-white-024809786.html)
-- Jan 14 - [Peter Lynch's Money-Making Advice: 'When Things Go From Terrible to Semi-Terrible to OK, You Can Make a Lot of Money'](https://finance.yahoo.com/news/peter-lynchs-money-making-advice-013038519.html)
 - Jan 14 - [China mulls potential sale of TikTok US to Musk, Bloomberg News reports](https://finance.yahoo.com/news/china-mulls-potential-sale-tiktok-002531521.html)
-- Jan 14 - [Will LA Wildfires Continue as High Winds Set to Return?](https://finance.yahoo.com/video/la-wildfires-continue-high-winds-002106737.html)
+- Jan 14 - [Tuberville says California doesn’t ‘deserve’ funding after wildfires unless it makes ‘some changes’](https://www.yahoo.com/news/tuberville-says-california-doesn-t-001709889.html)
 - Jan 14 - [$2-billion Powerball jackpot winner loses home in L.A. County wildfire](https://www.yahoo.com/news/2-billion-powerball-jackpot-winner-000625904.html)
+- Jan 13 - [The end of the world as we know it? Theorist warns humanity is teetering between collapse and advancement](https://www.yahoo.com/news/end-world-know-theorist-warns-150030341.html)
 <!-- feed end -->
 
 ### Onstream
