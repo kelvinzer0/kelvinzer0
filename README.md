@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 15 - [Chinese Barge Usable For Potential Taiwan Beach Landings Seen In Action In New Image](https://www.yahoo.com/news/chinese-barge-usable-potential-taiwan-001910258.html)
-- Jan 14 - [Gov. Greg Abbott threatens Texas A&M president’s job over claim that university broke DEI ban](https://www.yahoo.com/news/gov-greg-abbott-threatens-texas-162548794.html)
 - Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
+- Jan 14 - [Snow/ice possible next week](https://www.yahoo.com/news/snow-ice-possible-next-week-233706602.html)
 - Jan 14 - [Intel to spin off its venture capital arm](https://finance.yahoo.com/news/intel-spin-off-venture-capital-220920649.html)
 - Jan 14 - [Texas has a powerful new House speaker in a blow to the GOP's hard right](https://www.yahoo.com/news/texas-powerful-house-speaker-blow-215019807.html)
 <!-- feed end -->
