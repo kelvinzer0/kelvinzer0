@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [South Korea's Yoon: Embittered survivor becomes first sitting president arrested](https://www.yahoo.com/news/south-koreas-yoon-embittered-survivor-030414879.html)
 - Jan 15 - [Cybertruck Success Comes At A Cost: Tesla Sells Nearly 39,000 Units In 2024, But Luxury Model S And X Sales Take A Hit In US, Data Shows](https://finance.yahoo.com/news/cybertruck-success-comes-cost-tesla-013013780.html)
-- Jan 15 - [Chinese Barge Usable For Potential Taiwan Beach Landings Seen In Action In New Image](https://www.yahoo.com/news/chinese-barge-usable-potential-taiwan-001910258.html)
+- Jan 15 - [New wildfires threaten greater LA area as strong winds develop | Cuomo](https://www.yahoo.com/news/wildfires-threaten-greater-la-area-013003279.html)
 - Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
-- Jan 14 - [Palisades man says wife called 911, fire could've been contained | Vargas Reports](https://www.yahoo.com/news/palisades-man-says-wife-called-231330418.html)
+- Jan 14 - [Arkansas Tech celebrates topping out of Ferguson Student Union](https://www.yahoo.com/news/arkansas-tech-celebrates-topping-ferguson-231138200.html)
+- Jan 14 - [Texas has a powerful new House speaker in a blow to the GOP's hard right](https://www.yahoo.com/news/texas-powerful-house-speaker-blow-215019807.html)
 <!-- feed end -->
 
 ### Onstream
