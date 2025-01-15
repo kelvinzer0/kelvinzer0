@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Wrong-way driver arrested for driving on I-37 while intoxicated, Corpus Christi police say](https://www.yahoo.com/news/wrong-way-driver-arrested-driving-172419672.html)
+- Jan 15 - [Sen. Adam Schiff asks Bondi if she will investigate Jack Smith or Liz Cheney](https://www.yahoo.com/news/sen-adam-schiff-asks-bondi-182747295.html)
 - Jan 15 - [Jill Biden expresses disappointment with Pelosi: ‘We were friends for 50 years’](https://www.yahoo.com/news/jill-biden-expresses-disappointment-pelosi-155321934.html)
-- Jan 15 - [Sen. Durbin focuses Trump's threats of 'retribution' at Bondi hearing](https://www.yahoo.com/news/sen-durbin-focuses-trumps-threats-150814415.html)
-- Jan 15 - [Bondi in her confirmation hearing says Trump was 'targeted' by Justice Department investigations](https://www.yahoo.com/news/bondi-faces-skeptical-reception-democrats-143114965.html)
 - Jan 15 - [Opinion - Biden is using his remaining time in office to give the country what it rejected](https://www.yahoo.com/news/opinion-biden-using-remaining-time-143000075.html)
+- Jan 15 - [Researchers Are Testing How Cold They Can Make Indium—It Might Result in a New State of Matter](https://www.yahoo.com/news/researchers-testing-cold-indium-might-133000011.html)
+- Jan 15 - [911 Call Played in Trial of Grandma Charged in Baby's Death](https://www.yahoo.com/news/911-call-played-trial-grandma-132503909.html)
 <!-- feed end -->
 
 ### Onstream
