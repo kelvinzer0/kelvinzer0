@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Mortgage and refinance rates today, January 15, 2025: Rates might not change much in response to the CPI](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-january-15-2025-110009824.html)
-- Jan 15 - [Moon in Aries: A Deep Dive into Its Fiery Astrology Influence](https://www.yahoo.com/lifestyle/moon-aries-deep-dive-fiery-103003429.html)
-- Jan 15 - [4 Escambia County restaurants receive high complaints in latest inspection](https://www.yahoo.com/news/4-escambia-county-restaurants-receive-101314464.html)
-- Jan 15 - [Erdogan says Turkey can 'crush' all terrorists in Syria](https://www.yahoo.com/news/erdogan-says-turkey-crush-terrorists-101221493.html)
-- Jan 15 - [A United Airlines 737 Max took a 40-minute flight to nowhere after hitting a coyote on the runway](https://www.yahoo.com/news/united-airlines-737-max-took-094334304.html)
+- Jan 15 - [More snow coming to Western NC, Asheville? Arctic air mass effects 'highly uncertain'](https://www.yahoo.com/news/more-snow-coming-western-nc-163608639.html)
+- Jan 15 - [Inflation up 2.9% year-over-year in latest CPI report](https://www.yahoo.com/news/inflation-2-9-over-latest-160747163.html)
+- Jan 15 - [I’m a Retirement Planner: 1 Money Move I Recommend to My High-Net Worth Clients That You Can Use, Too](https://finance.yahoo.com/news/m-retirement-planner-1-money-160046153.html)
+- Jan 15 - [Jill Biden expresses disappointment with Pelosi: ‘We were friends for 50 years’](https://www.yahoo.com/news/jill-biden-expresses-disappointment-pelosi-155321934.html)
+- Jan 15 - [Bondi in her confirmation hearing says Trump was 'targeted' by Justice Department investigations](https://www.yahoo.com/news/bondi-faces-skeptical-reception-democrats-143114965.html)
 <!-- feed end -->
 
 ### Onstream
