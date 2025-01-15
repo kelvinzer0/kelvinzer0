@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 15 - [Gazans shed tears of joy, disbelief at news of ceasefire deal](https://www.yahoo.com/news/gazans-shed-tears-joy-disbelief-190013951.html)
+- Jan 15 - [Drones Uncovered a 3,000-Year-Old Hidden Mega-Fortress in the Mountains](https://www.yahoo.com/news/drones-uncovered-3-000-old-190000540.html)
 - Jan 15 - [The Healthiest Fast Food Fries You Can Order In The U.S. Right Now](https://www.yahoo.com/lifestyle/healthiest-fast-food-fries-order-184200838.html)
 - Jan 15 - [Sen. Adam Schiff asks Bondi if she will investigate Jack Smith or Liz Cheney](https://www.yahoo.com/news/sen-adam-schiff-asks-bondi-182747295.html)
-- Jan 15 - [What's a Realistic Retirement Budget? I'm 48 With $430k Saved, Making $95,000 Annually](https://finance.yahoo.com/news/whats-realistic-retirement-budget-im-145531551.html)
-- Jan 15 - [About that white van in Indianapolis with a hand sticking out, here's what police have learned](https://www.yahoo.com/news/white-van-indianapolis-hand-sticking-144818390.html)
+- Jan 15 - [Guards 'systematically and casually' beat New York inmate to death, lawsuit says](https://www.yahoo.com/news/son-man-beaten-died-york-172814726.html)
 <!-- feed end -->
 
 ### Onstream
