@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Got $1,000? Here Are 2 AI Stocks to Buy Hand Over Fist in 2025](https://finance.yahoo.com/news/got-1-000-2-ai-114500891.html)
+- Jan 15 - [Musk Says Unsupervised Full Self-Driving Is Almost Here, but the Data Says Otherwise](https://www.yahoo.com/tech/musk-says-unsupervised-full-self-130000410.html)
+- Jan 15 - [NASA teams with startup to transform 1980s aircraft into next-gen technological marvel: 'Ushering in the next age of aviation'](https://www.yahoo.com/tech/nasa-teams-startup-transform-1980s-103033336.html)
 - Jan 15 - [If I Could Own Only 1 Artificial Intelligence Stock, This Would Be It](https://finance.yahoo.com/news/could-own-only-1-artificial-095100444.html)
-- Jan 15 - [Goodbye and good riddance, Biden. Americans like me are glad to see Joe go. | Opinion](https://www.yahoo.com/news/goodbye-good-riddance-biden-americans-090316648.html)
 - Jan 15 - [Finland had 12 minutes left to stop a Russia-linked oil tanker from dealing 'much worse' damage to its undersea cables, president says](https://www.yahoo.com/news/finland-had-12-minutes-left-051451666.html)
-- Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
+- Jan 15 - [Cybertruck Success Comes At A Cost: Tesla Sells Nearly 39,000 Units In 2024, But Luxury Model S And X Sales Take A Hit In US, Data Shows](https://finance.yahoo.com/news/cybertruck-success-comes-cost-tesla-013013780.html)
 <!-- feed end -->
 
 ### Onstream
