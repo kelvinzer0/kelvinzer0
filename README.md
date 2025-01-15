@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Texas has a powerful new House speaker in a blow to the GOP's hard right](https://www.yahoo.com/news/texas-powerful-house-speaker-blow-215019807.html)
-- Jan 14 - [NewsChannel 5 meteorologist Bree Smith leaves station after nine years](https://www.yahoo.com/news/newschannel-5-meteorologist-bree-smith-190811016.html)
-- Jan 14 - [Trump says he will create an 'External Revenue Service' agency to collect tariff income](https://www.yahoo.com/news/trump-says-create-external-revenue-182541097.html)
-- Jan 14 - [Sen. Kaine grills Hegseth at confirmation hearing](https://www.yahoo.com/news/sen-kaine-grills-hegseth-confirmation-182417756.html)
-- Jan 14 - [What to do with your 401(k) when you retire](https://finance.yahoo.com/news/401-k-retire-181207428.html)
+- Jan 15 - [Chinese Barge Usable For Potential Taiwan Beach Landings Seen In Action In New Image](https://www.yahoo.com/news/chinese-barge-usable-potential-taiwan-001910258.html)
+- Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
+- Jan 14 - [Palisades man says wife called 911, fire could've been contained | Vargas Reports](https://www.yahoo.com/news/palisades-man-says-wife-called-231330418.html)
+- Jan 14 - [Nancy Mace Challenges Democratic Rival to a Fight on House Floor](https://www.yahoo.com/news/nancy-mace-challenges-democratic-rival-225834698.html)
+- Jan 14 - [Intel to spin off its venture capital arm](https://finance.yahoo.com/news/intel-spin-off-venture-capital-220920649.html)
 <!-- feed end -->
 
 ### Onstream
