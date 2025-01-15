@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [Brewster man arrested for raping teen at Half Moon Bay Marina in Croton-on-Hudson](https://www.yahoo.com/news/brewster-man-arrested-raping-teen-192641340.html)
+- Jan 15 - [Gazans shed tears of joy, disbelief at news of ceasefire deal](https://www.yahoo.com/news/gazans-shed-tears-joy-disbelief-190013951.html)
 - Jan 15 - [Sen. Adam Schiff asks Bondi if she will investigate Jack Smith or Liz Cheney](https://www.yahoo.com/news/sen-adam-schiff-asks-bondi-182747295.html)
-- Jan 15 - [Jill Biden expresses disappointment with Pelosi: ‘We were friends for 50 years’](https://www.yahoo.com/news/jill-biden-expresses-disappointment-pelosi-155321934.html)
-- Jan 15 - [Opinion - Biden is using his remaining time in office to give the country what it rejected](https://www.yahoo.com/news/opinion-biden-using-remaining-time-143000075.html)
-- Jan 15 - [Researchers Are Testing How Cold They Can Make Indium—It Might Result in a New State of Matter](https://www.yahoo.com/news/researchers-testing-cold-indium-might-133000011.html)
-- Jan 15 - [911 Call Played in Trial of Grandma Charged in Baby's Death](https://www.yahoo.com/news/911-call-played-trial-grandma-132503909.html)
+- Jan 15 - [‘A punch in the gut’: Parents of teen recovering from St. Johns County hit and run seeking justice](https://www.yahoo.com/news/punch-gut-parents-teen-recovering-164136615.html)
+- Jan 15 - [What's a Realistic Retirement Budget? I'm 48 With $430k Saved, Making $95,000 Annually](https://finance.yahoo.com/news/whats-realistic-retirement-budget-im-145531551.html)
 <!-- feed end -->
 
 ### Onstream
