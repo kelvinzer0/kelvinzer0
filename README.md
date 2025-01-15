@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [More snow coming to Western NC, Asheville? Arctic air mass effects 'highly uncertain'](https://www.yahoo.com/news/more-snow-coming-western-nc-163608639.html)
-- Jan 15 - [Inflation up 2.9% year-over-year in latest CPI report](https://www.yahoo.com/news/inflation-2-9-over-latest-160747163.html)
-- Jan 15 - [I’m a Retirement Planner: 1 Money Move I Recommend to My High-Net Worth Clients That You Can Use, Too](https://finance.yahoo.com/news/m-retirement-planner-1-money-160046153.html)
+- Jan 15 - [Wrong-way driver arrested for driving on I-37 while intoxicated, Corpus Christi police say](https://www.yahoo.com/news/wrong-way-driver-arrested-driving-172419672.html)
 - Jan 15 - [Jill Biden expresses disappointment with Pelosi: ‘We were friends for 50 years’](https://www.yahoo.com/news/jill-biden-expresses-disappointment-pelosi-155321934.html)
+- Jan 15 - [Sen. Durbin focuses Trump's threats of 'retribution' at Bondi hearing](https://www.yahoo.com/news/sen-durbin-focuses-trumps-threats-150814415.html)
 - Jan 15 - [Bondi in her confirmation hearing says Trump was 'targeted' by Justice Department investigations](https://www.yahoo.com/news/bondi-faces-skeptical-reception-democrats-143114965.html)
+- Jan 15 - [Opinion - Biden is using his remaining time in office to give the country what it rejected](https://www.yahoo.com/news/opinion-biden-using-remaining-time-143000075.html)
 <!-- feed end -->
 
 ### Onstream
