@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Over half a million ‘TikTok refugees’ flock to China's RedNote](https://www.yahoo.com/news/over-half-million-tiktok-refugees-072324215.html)
+- Jan 15 - [The curious crackdown on Hamas by Palestinians – and what it means for Gaza’s future](https://www.yahoo.com/news/curious-crackdown-hamas-palestinians-means-084117032.html)
 - Jan 15 - [Finland had 12 minutes left to stop a Russia-linked oil tanker from dealing 'much worse' damage to its undersea cables, president says](https://www.yahoo.com/news/finland-had-12-minutes-left-051451666.html)
 - Jan 15 - [Cybertruck Success Comes At A Cost: Tesla Sells Nearly 39,000 Units In 2024, But Luxury Model S And X Sales Take A Hit In US, Data Shows](https://finance.yahoo.com/news/cybertruck-success-comes-cost-tesla-013013780.html)
 - Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
