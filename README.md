@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [Got $1,000? Here Are 2 AI Stocks to Buy Hand Over Fist in 2025](https://finance.yahoo.com/news/got-1-000-2-ai-114500891.html)
+- Jan 15 - [If I Could Own Only 1 Artificial Intelligence Stock, This Would Be It](https://finance.yahoo.com/news/could-own-only-1-artificial-095100444.html)
+- Jan 15 - [Goodbye and good riddance, Biden. Americans like me are glad to see Joe go. | Opinion](https://www.yahoo.com/news/goodbye-good-riddance-biden-americans-090316648.html)
 - Jan 15 - [Finland had 12 minutes left to stop a Russia-linked oil tanker from dealing 'much worse' damage to its undersea cables, president says](https://www.yahoo.com/news/finland-had-12-minutes-left-051451666.html)
-- Jan 15 - [Cybertruck Success Comes At A Cost: Tesla Sells Nearly 39,000 Units In 2024, But Luxury Model S And X Sales Take A Hit In US, Data Shows](https://finance.yahoo.com/news/cybertruck-success-comes-cost-tesla-013013780.html)
 - Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
-- Jan 14 - [West Virginia governor axes DEI and enacts vaccine exemptions on first full day in office](https://www.yahoo.com/news/west-virginia-governor-axes-dei-222656712.html)
-- Jan 14 - [Texas has a powerful new House speaker in a blow to the GOP's hard right](https://www.yahoo.com/news/texas-powerful-house-speaker-blow-215019807.html)
 <!-- feed end -->
 
 ### Onstream
