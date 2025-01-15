@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [Mortgage and refinance rates today, January 15, 2025: Rates might not change much in response to the CPI](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-january-15-2025-110009824.html)
 - Jan 15 - [Moon in Aries: A Deep Dive into Its Fiery Astrology Influence](https://www.yahoo.com/lifestyle/moon-aries-deep-dive-fiery-103003429.html)
-- Jan 15 - [Goodbye and good riddance, Biden. Americans like me are glad to see Joe go. | Opinion](https://www.yahoo.com/news/goodbye-good-riddance-biden-americans-090316648.html)
-- Jan 15 - [Finland had 12 minutes left to stop a Russia-linked oil tanker from dealing 'much worse' damage to its undersea cables, president says](https://www.yahoo.com/news/finland-had-12-minutes-left-051451666.html)
-- Jan 15 - [Cybertruck Success Comes At A Cost: Tesla Sells Nearly 39,000 Units In 2024, But Luxury Model S And X Sales Take A Hit In US, Data Shows](https://finance.yahoo.com/news/cybertruck-success-comes-cost-tesla-013013780.html)
-- Jan 14 - [Snow/ice possible next week](https://www.yahoo.com/news/snow-ice-possible-next-week-233706602.html)
+- Jan 15 - [4 Escambia County restaurants receive high complaints in latest inspection](https://www.yahoo.com/news/4-escambia-county-restaurants-receive-101314464.html)
+- Jan 15 - [Erdogan says Turkey can 'crush' all terrorists in Syria](https://www.yahoo.com/news/erdogan-says-turkey-crush-terrorists-101221493.html)
+- Jan 15 - [A United Airlines 737 Max took a 40-minute flight to nowhere after hitting a coyote on the runway](https://www.yahoo.com/news/united-airlines-737-max-took-094334304.html)
 <!-- feed end -->
 
 ### Onstream
