@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 15 - [Finland had 12 minutes left to stop a Russia-linked oil tanker from dealing 'much worse' damage to its undersea cables, president says](https://www.yahoo.com/news/finland-had-12-minutes-left-051451666.html)
+- Jan 15 - [BOJ chief Ueda signals rate hike chance next week, yen jumps](https://finance.yahoo.com/news/boj-raise-rates-economy-price-043842189.html)
 - Jan 15 - [Cybertruck Success Comes At A Cost: Tesla Sells Nearly 39,000 Units In 2024, But Luxury Model S And X Sales Take A Hit In US, Data Shows](https://finance.yahoo.com/news/cybertruck-success-comes-cost-tesla-013013780.html)
+- Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
 - Jan 14 - [Texas has a powerful new House speaker in a blow to the GOP's hard right](https://www.yahoo.com/news/texas-powerful-house-speaker-blow-215019807.html)
-- Jan 14 - [This Architect Explained Why This One House Survived The LA Fires, And The Reasons Are Truly Fascinating](https://www.yahoo.com/lifestyle/picture-fascinating-story-behind-one-205136785.html)
-- Jan 14 - [Trump’s Defense Pick Embarrasses Himself in Basic Geography Question](https://www.yahoo.com/news/trump-defense-pick-embarrasses-himself-195526041.html)
 <!-- feed end -->
 
 ### Onstream
