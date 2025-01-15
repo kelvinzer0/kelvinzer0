@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [SEC sues Elon Musk over late disclosure of Twitter stake](https://www.yahoo.com/news/sec-sues-elon-musk-over-061131375.html)
+- Jan 15 - [Finland had 12 minutes left to stop a Russia-linked oil tanker from dealing 'much worse' damage to its undersea cables, president says](https://www.yahoo.com/news/finland-had-12-minutes-left-051451666.html)
 - Jan 15 - [Cybertruck Success Comes At A Cost: Tesla Sells Nearly 39,000 Units In 2024, But Luxury Model S And X Sales Take A Hit In US, Data Shows](https://finance.yahoo.com/news/cybertruck-success-comes-cost-tesla-013013780.html)
 - Jan 14 - [Trial starts for West Virginia couple accused of subjecting their 5 children to forced labor](https://www.yahoo.com/news/trial-starts-west-virginia-couple-234713452.html)
 - Jan 14 - [Texas has a powerful new House speaker in a blow to the GOP's hard right](https://www.yahoo.com/news/texas-powerful-house-speaker-blow-215019807.html)
-- Jan 14 - [Johnson County department store closed 5 years ago. Construction is finally beginning](https://www.yahoo.com/news/johnson-county-department-store-closed-204351185.html)
+- Jan 14 - [Relatives of Israeli of hostages held in Gaza protest, as ceasefire deal looks close | AP Explains](https://www.yahoo.com/news/relatives-israeli-hostages-held-gaza-205251782.html)
 <!-- feed end -->
 
 ### Onstream
