@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Census suggests a new richest Portland suburb, fewer French Mainers](https://www.yahoo.com/news/census-suggests-richest-portland-suburb-234600276.html)
+- Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
 - Jan 15 - [An Army doctor who sexually abused JBLM soldiers is sentenced to more than 13 years in prison](https://www.yahoo.com/news/army-doctor-sexually-abused-jblm-232236927.html)
+- Jan 15 - [US TikTok users scramble, despair as Bytedance waves the 'white flag'](https://finance.yahoo.com/news/us-tiktok-users-scramble-despair-230701282.html)
+- Jan 15 - [Arkansas broadcasting legend, former KARK general manager Ted Snider dies at 96](https://www.yahoo.com/news/arkansas-broadcasting-legend-former-kark-223204377.html)
 - Jan 15 - [Virginia man pleads not guilty to stockpiling largest number of homemade bombs in FBI history](https://www.yahoo.com/news/virginia-man-pleads-not-guilty-213908779.html)
-- Jan 15 - [Who is Robert Lee Davis III? What we know about the suspect in deputy's shooting](https://www.yahoo.com/news/robert-lee-davis-iii-know-203536367.html)
-- Jan 15 - [Drones Uncovered a 3,000-Year-Old Hidden Mega-Fortress in the Mountains](https://www.yahoo.com/news/drones-uncovered-3-000-old-190000540.html)
 <!-- feed end -->
 
 ### Onstream
