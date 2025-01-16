@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [What the Point-inTime survey of Shasta County's homeless population could teach us](https://www.yahoo.com/news/point-intime-survey-shasta-countys-120420993.html)
-- Jan 16 - [Nokia and Samsung enter video technologies licencing deal](https://finance.yahoo.com/news/nokia-samsung-enter-video-technologies-113059883.html)
 - Jan 16 - [Donald Trump Posts 'Blacklist' Online And Critics Fear The Same Thing](https://www.yahoo.com/news/donald-trump-posts-blacklist-online-105705454.html)
 - Jan 16 - [Middle East latest: Netanyahu says Cabinet won't meet over ceasefire until Hamas drops new demands](https://www.yahoo.com/news/middle-east-latest-netanyahu-says-090004941.html)
-- Jan 16 - [Bezos' Blue Origin reaches orbit in first New Glenn launch, misses booster landing](https://www.yahoo.com/news/blue-origins-debut-glenn-rocket-055821662.html)
+- Jan 16 - [Exclusive-Chinese buyers interested in unwanted German Volkswagen factories, source says](https://finance.yahoo.com/news/exclusive-chinese-buyers-interested-unwanted-050439455.html)
+- Jan 16 - [Former Presidents Obama, Clinton and Bush won't attend Trump's inaugural lunch](https://www.yahoo.com/news/former-presidents-obama-clinton-bush-041528798.html)
+- Jan 16 - [Apple loses smartphone sales crown in China, drops to third in 2024](https://www.yahoo.com/tech/apple-smartphone-shipments-china-fell-005736217.html)
 <!-- feed end -->
 
 ### Onstream
