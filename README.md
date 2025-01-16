@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [American Primeval and the bloody truth about the Mormon massacre of 1857](https://www.yahoo.com/entertainment/american-primeval-bloody-truth-mormon-134048898.html)
 - Jan 16 - [Jimmy Kimmel Says Confirmation Hearings Have ‘Finally Found the Dumbest Person in the Senate’ | Video](https://www.yahoo.com/entertainment/jimmy-kimmel-says-confirmation-hearings-160024562.html)
+- Jan 16 - [The wait is over: Gov. DeSantis names his pick to replace Marco Rubio in US Senate](https://www.yahoo.com/news/wait-over-gov-desantis-names-154823365.html)
 - Jan 16 - [Ukrainian brigade pioneers remote-controlled ground assaults](https://www.yahoo.com/news/ukrainian-brigade-pioneers-remote-controlled-142152921.html)
-- Jan 16 - [How much snow accumulation is expected in New York and New Jersey?](https://www.yahoo.com/news/much-snow-accumulation-expected-york-134515231.html)
-- Jan 16 - [2 Magnificent Stocks to Buy That Are Near Their 52-Week Lows](https://finance.yahoo.com/news/2-magnificent-stocks-buy-near-130000392.html)
 - Jan 16 - [Scientists warn of phenomenon observed in one-third of world's beaches — and we might be underestimating the problem](https://www.yahoo.com/news/scientists-warn-phenomenon-observed-one-111519312.html)
 <!-- feed end -->
 
