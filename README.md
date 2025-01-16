@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - ['The eyes look the same': Former victims of DuJardine testify during second day of trial](https://www.yahoo.com/news/eyes-look-same-former-victims-030400516.html)
 - Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
-- Jan 15 - [An Army doctor who sexually abused JBLM soldiers is sentenced to more than 13 years in prison](https://www.yahoo.com/news/army-doctor-sexually-abused-jblm-232236927.html)
 - Jan 15 - [US TikTok users scramble, despair as Bytedance waves the 'white flag'](https://finance.yahoo.com/news/us-tiktok-users-scramble-despair-230701282.html)
-- Jan 15 - [Arkansas broadcasting legend, former KARK general manager Ted Snider dies at 96](https://www.yahoo.com/news/arkansas-broadcasting-legend-former-kark-223204377.html)
 - Jan 15 - [Virginia man pleads not guilty to stockpiling largest number of homemade bombs in FBI history](https://www.yahoo.com/news/virginia-man-pleads-not-guilty-213908779.html)
+- Jan 15 - [Ford sends U.S. a clear message with patriotic hat](https://www.yahoo.com/news/ford-sends-u-clear-message-213631483.html)
 <!-- feed end -->
 
 ### Onstream
