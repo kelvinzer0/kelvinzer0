@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [US economy resilient, optimism on 2025 rate cuts, GDP at 3%](https://finance.yahoo.com/video/us-economy-resilient-optimism-2025-223635123.html)
+- Jan 16 - [Trump, Vance portraits released ahead of Inauguration Day 2025: See the photos](https://www.yahoo.com/news/trump-vance-portraits-released-ahead-203310949.html)
 - Jan 16 - [Southwest Officially Launching Connections to Europe — What to Know](https://www.yahoo.com/lifestyle/southwest-officially-launching-connections-europe-193745705.html)
 - Jan 16 - [A businessman knew buying a Nantucket beach house was risky. 6 months later, it's gone and he regrets it.](https://www.yahoo.com/news/another-nantucket-beach-house-once-204802204.html)
-- Jan 16 - [Giuliani settles with Georgia election workers over defamation payout](https://www.yahoo.com/news/giuliani-far-no-show-court-173057814.html)
-- Jan 16 - [Veteran skier found buried in avalanche on desolate trail by wife using transceiver](https://www.yahoo.com/news/veteran-skier-found-buried-avalanche-164538030.html)
-- Jan 16 - [Jimmy Kimmel Says Confirmation Hearings Have ‘Finally Found the Dumbest Person in the Senate’ | Video](https://www.yahoo.com/entertainment/jimmy-kimmel-says-confirmation-hearings-160024562.html)
+- Jan 16 - [Corn spilled on I-40 in North Little Rock due to semi-truck incident](https://www.yahoo.com/news/corn-spilled-40-north-little-181711095.html)
 <!-- feed end -->
 
 ### Onstream
