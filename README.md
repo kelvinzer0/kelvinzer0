@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
 - Jan 15 - [US TikTok users scramble, despair as Bytedance waves the 'white flag'](https://finance.yahoo.com/news/us-tiktok-users-scramble-despair-230701282.html)
-- Jan 15 - [The Key to Reducing Your Colon Cancer Risk by 17% May Already Be in Your Fridge, New Study Says](https://www.yahoo.com/lifestyle/key-reducing-colon-cancer-risk-222915457.html)
-- Jan 15 - [Parents reuniting with students after student shoots self at Cobb County middle school](https://www.yahoo.com/news/juvenile-shot-middle-school-cobb-205746048.html)
 - Jan 15 - [Virginia man pleads not guilty to stockpiling largest number of homemade bombs in FBI history](https://www.yahoo.com/news/virginia-man-pleads-not-guilty-213908779.html)
+- Jan 15 - [Ford sends U.S. a clear message with patriotic hat](https://www.yahoo.com/news/ford-sends-u-clear-message-213631483.html)
+- Jan 15 - [Gazans shed tears of joy, disbelief at news of ceasefire deal](https://www.yahoo.com/news/gazans-shed-tears-joy-disbelief-190013951.html)
 <!-- feed end -->
 
 ### Onstream
