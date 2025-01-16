@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [Former Presidents Obama, Clinton and Bush won't attend Trump's inaugural lunch](https://www.yahoo.com/news/former-presidents-obama-clinton-bush-041528798.html)
+- Jan 16 - [A Perhaps Surprising but Serious Question: Is It Time to Worry About Apple?](https://finance.yahoo.com/news/perhaps-surprising-serious-time-worry-095200785.html)
 - Jan 16 - ['Worst farewell speech in presidential history': Biden's Oval Office goodbye panned as 'dark'](https://www.yahoo.com/news/worst-farewell-speech-presidential-history-020827747.html)
 - Jan 16 - [Newsom, Cruz spar over executive order barring predatory real estate offers amid fires](https://www.yahoo.com/news/newsom-cruz-spar-over-executive-020433537.html)
+- Jan 16 - [Apple loses smartphone sales crown in China, drops to third in 2024](https://www.yahoo.com/tech/apple-smartphone-shipments-china-fell-005736217.html)
 - Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
-- Jan 15 - [US TikTok users scramble, despair as Bytedance waves the 'white flag'](https://finance.yahoo.com/news/us-tiktok-users-scramble-despair-230701282.html)
 <!-- feed end -->
 
 ### Onstream
