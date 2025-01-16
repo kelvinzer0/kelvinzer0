@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Jeff Bezos’ Blue Origin launches massive New Glenn rocket on first test flight and reaches orbit](https://www.yahoo.com/news/jeff-bezos-blue-origin-launches-070449794.html)
 - Jan 16 - [Bezos' Blue Origin reaches orbit in first New Glenn launch, misses booster landing](https://www.yahoo.com/news/blue-origins-debut-glenn-rocket-055821662.html)
 - Jan 16 - [Former Presidents Obama, Clinton and Bush won't attend Trump's inaugural lunch](https://www.yahoo.com/news/former-presidents-obama-clinton-bush-041528798.html)
 - Jan 16 - [Jill Biden expresses disappointment with Pelosi: ‘We were friends for 50 years’](https://www.yahoo.com/news/jill-biden-expresses-disappointment-pelosi-155321934.html)
-- Jan 16 - [Apple loses smartphone sales crown in China, drops to third in 2024](https://www.yahoo.com/tech/apple-smartphone-shipments-china-fell-005736217.html)
-- Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
+- Jan 16 - ['Worst farewell speech in presidential history': Biden's Oval Office goodbye panned as 'dark'](https://www.yahoo.com/news/worst-farewell-speech-presidential-history-020827747.html)
 <!-- feed end -->
 
 ### Onstream
