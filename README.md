@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - ['The eyes look the same': Former victims of DuJardine testify during second day of trial](https://www.yahoo.com/news/eyes-look-same-former-victims-030400516.html)
 - Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
 - Jan 15 - [US TikTok users scramble, despair as Bytedance waves the 'white flag'](https://finance.yahoo.com/news/us-tiktok-users-scramble-despair-230701282.html)
+- Jan 15 - [The Key to Reducing Your Colon Cancer Risk by 17% May Already Be in Your Fridge, New Study Says](https://www.yahoo.com/lifestyle/key-reducing-colon-cancer-risk-222915457.html)
+- Jan 15 - [Parents reuniting with students after student shoots self at Cobb County middle school](https://www.yahoo.com/news/juvenile-shot-middle-school-cobb-205746048.html)
 - Jan 15 - [Virginia man pleads not guilty to stockpiling largest number of homemade bombs in FBI history](https://www.yahoo.com/news/virginia-man-pleads-not-guilty-213908779.html)
-- Jan 15 - [Ford sends U.S. a clear message with patriotic hat](https://www.yahoo.com/news/ford-sends-u-clear-message-213631483.html)
 <!-- feed end -->
 
 ### Onstream
