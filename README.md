@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [Donald Trump Posts 'Blacklist' Online And Critics Fear The Same Thing](https://www.yahoo.com/news/donald-trump-posts-blacklist-online-105705454.html)
-- Jan 16 - [Middle East latest: Netanyahu says Cabinet won't meet over ceasefire until Hamas drops new demands](https://www.yahoo.com/news/middle-east-latest-netanyahu-says-090004941.html)
-- Jan 16 - [Exclusive-Chinese buyers interested in unwanted German Volkswagen factories, source says](https://finance.yahoo.com/news/exclusive-chinese-buyers-interested-unwanted-050439455.html)
-- Jan 16 - [Former Presidents Obama, Clinton and Bush won't attend Trump's inaugural lunch](https://www.yahoo.com/news/former-presidents-obama-clinton-bush-041528798.html)
-- Jan 16 - [Apple loses smartphone sales crown in China, drops to third in 2024](https://www.yahoo.com/tech/apple-smartphone-shipments-china-fell-005736217.html)
+- Jan 16 - [Quantum Computing Stocks Rally as Microsoft Pushes Quantum-Ready Future](https://finance.yahoo.com/news/quantum-computing-stocks-rally-microsoft-133441279.html)
+- Jan 16 - [Here’s the withdrawal rate American retirees need to start using in 2025, says a new report — and it’s shockingly low](https://finance.yahoo.com/news/withdrawal-rate-american-retirees-start-114400680.html)
+- Jan 16 - [Officials celebrate after fishermen document incredibly rare sight in river: 'New hope'](https://www.yahoo.com/news/officials-celebrate-fishermen-document-incredibly-110002013.html)
+- Jan 16 - [Donald Trump Posts ‘Blacklist’ Online And Critics Fear The Same Thing](https://www.yahoo.com/news/donald-trump-posts-blacklist-online-105705454.html)
+- Jan 16 - [Nvidia CEO says its advanced packaging technology needs are changing](https://finance.yahoo.com/news/nvidia-ceo-says-advanced-packaging-101509910.html)
 <!-- feed end -->
 
 ### Onstream
