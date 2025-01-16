@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [Kamala Harris & Doug Emhoff Are Reportedly Making a Big Move in Their Post-Washington DC Life](https://www.yahoo.com/lifestyle/kamala-harris-doug-emhoff-reportedly-182530058.html)
-- Jan 16 - [Corn spilled on I-40 in North Little Rock due to semi-truck incident](https://www.yahoo.com/news/corn-spilled-40-north-little-181711095.html)
-- Jan 16 - [Satellite photos show the Gaza Strip before and after the devastation of the Israel-Hamas war](https://www.yahoo.com/news/satellite-photos-show-gaza-strip-165727256.html)
-- Jan 16 - [American Primeval and the bloody truth about the Mormon massacre of 1857](https://www.yahoo.com/entertainment/american-primeval-bloody-truth-mormon-134048898.html)
+- Jan 16 - [Southwest Officially Launching Connections to Europe — What to Know](https://www.yahoo.com/lifestyle/southwest-officially-launching-connections-europe-193745705.html)
+- Jan 16 - [A businessman knew buying a Nantucket beach house was risky. 6 months later, it's gone and he regrets it.](https://www.yahoo.com/news/another-nantucket-beach-house-once-204802204.html)
+- Jan 16 - [Giuliani settles with Georgia election workers over defamation payout](https://www.yahoo.com/news/giuliani-far-no-show-court-173057814.html)
 - Jan 16 - [Veteran skier found buried in avalanche on desolate trail by wife using transceiver](https://www.yahoo.com/news/veteran-skier-found-buried-avalanche-164538030.html)
+- Jan 16 - [Jimmy Kimmel Says Confirmation Hearings Have ‘Finally Found the Dumbest Person in the Senate’ | Video](https://www.yahoo.com/entertainment/jimmy-kimmel-says-confirmation-hearings-160024562.html)
 <!-- feed end -->
 
 ### Onstream
