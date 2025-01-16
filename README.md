@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Bezos' Blue Origin reaches orbit in first New Glenn launch, misses booster landing](https://www.yahoo.com/news/blue-origins-debut-glenn-rocket-055821662.html)
 - Jan 16 - [Former Presidents Obama, Clinton and Bush won't attend Trump's inaugural lunch](https://www.yahoo.com/news/former-presidents-obama-clinton-bush-041528798.html)
+- Jan 16 - [Jill Biden expresses disappointment with Pelosi: ‘We were friends for 50 years’](https://www.yahoo.com/news/jill-biden-expresses-disappointment-pelosi-155321934.html)
+- Jan 16 - [Apple loses smartphone sales crown in China, drops to third in 2024](https://www.yahoo.com/tech/apple-smartphone-shipments-china-fell-005736217.html)
 - Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
-- Jan 15 - [Virginia man pleads not guilty to stockpiling largest number of homemade bombs in FBI history](https://www.yahoo.com/news/virginia-man-pleads-not-guilty-213908779.html)
-- Jan 15 - [Ford sends U.S. a clear message with patriotic hat](https://www.yahoo.com/news/ford-sends-u-clear-message-213631483.html)
-- Jan 15 - [Who is Robert Lee Davis III? What we know about the suspect in deputy's shooting](https://www.yahoo.com/news/robert-lee-davis-iii-know-203536367.html)
 <!-- feed end -->
 
 ### Onstream
