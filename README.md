@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [DDG(X) Next-Generation Destroyer’s Capabilities And Costs Are Solidifying](https://www.yahoo.com/news/ddg-x-next-generation-destroyer-232727787.html)
+- Jan 15 - [Census suggests a new richest Portland suburb, fewer French Mainers](https://www.yahoo.com/news/census-suggests-richest-portland-suburb-234600276.html)
 - Jan 15 - [An Army doctor who sexually abused JBLM soldiers is sentenced to more than 13 years in prison](https://www.yahoo.com/news/army-doctor-sexually-abused-jblm-232236927.html)
+- Jan 15 - [Virginia man pleads not guilty to stockpiling largest number of homemade bombs in FBI history](https://www.yahoo.com/news/virginia-man-pleads-not-guilty-213908779.html)
+- Jan 15 - [Who is Robert Lee Davis III? What we know about the suspect in deputy's shooting](https://www.yahoo.com/news/robert-lee-davis-iii-know-203536367.html)
 - Jan 15 - [Drones Uncovered a 3,000-Year-Old Hidden Mega-Fortress in the Mountains](https://www.yahoo.com/news/drones-uncovered-3-000-old-190000540.html)
-- Jan 15 - [The Healthiest Fast Food Fries You Can Order In The U.S. Right Now](https://www.yahoo.com/lifestyle/healthiest-fast-food-fries-order-184200838.html)
-- Jan 15 - [Sen. Adam Schiff asks Bondi if she will investigate Jack Smith or Liz Cheney](https://www.yahoo.com/news/sen-adam-schiff-asks-bondi-182747295.html)
 <!-- feed end -->
 
 ### Onstream
