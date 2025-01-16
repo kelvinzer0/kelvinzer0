@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Former Presidents Obama, Clinton and Bush won't attend Trump's inaugural lunch](https://www.yahoo.com/news/former-presidents-obama-clinton-bush-041528798.html)
 - Jan 16 - [Speaker Johnson removes chair of powerful House Intelligence Committee](https://www.yahoo.com/news/speaker-johnson-removes-chair-powerful-001511355.html)
-- Jan 15 - [US TikTok users scramble, despair as Bytedance waves the 'white flag'](https://finance.yahoo.com/news/us-tiktok-users-scramble-despair-230701282.html)
 - Jan 15 - [Virginia man pleads not guilty to stockpiling largest number of homemade bombs in FBI history](https://www.yahoo.com/news/virginia-man-pleads-not-guilty-213908779.html)
 - Jan 15 - [Ford sends U.S. a clear message with patriotic hat](https://www.yahoo.com/news/ford-sends-u-clear-message-213631483.html)
-- Jan 15 - [Gazans shed tears of joy, disbelief at news of ceasefire deal](https://www.yahoo.com/news/gazans-shed-tears-joy-disbelief-190013951.html)
+- Jan 15 - [Who is Robert Lee Davis III? What we know about the suspect in deputy's shooting](https://www.yahoo.com/news/robert-lee-davis-iii-know-203536367.html)
 <!-- feed end -->
 
 ### Onstream
