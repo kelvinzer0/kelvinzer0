@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [The wait is over: Gov. DeSantis names his pick to replace Marco Rubio in US Senate](https://www.yahoo.com/news/wait-over-gov-desantis-names-154823365.html)
 - Jan 16 - [36 "Millennial Complaints" That I'm Pretty Sure Gen Z, Gen X, And Boomers All Agree With](https://www.yahoo.com/lifestyle/36-millennial-complaints-im-pretty-143023521.html)
-- Jan 16 - [Scientists warn of phenomenon observed in one-third of world's beaches — and we might be underestimating the problem](https://www.yahoo.com/news/scientists-warn-phenomenon-observed-one-111519312.html)
-- Jan 16 - [Officials celebrate after fishermen document incredibly rare sight in river: 'New hope'](https://www.yahoo.com/news/officials-celebrate-fishermen-document-incredibly-110002013.html)
-- Jan 16 - [Nvidia CEO says its advanced packaging technology needs are changing](https://finance.yahoo.com/news/nvidia-ceo-says-advanced-packaging-101509910.html)
-- Jan 16 - [Chase Koch’s musical passion project could have a profound impact on downtown Wichita](https://www.yahoo.com/news/chase-koch-musical-passion-project-100400081.html)
+- Jan 16 - [Ukrainian brigade pioneers remote-controlled ground assaults](https://www.yahoo.com/news/ukrainian-brigade-pioneers-remote-controlled-142152921.html)
+- Jan 16 - [US defense contractor to build 4,000-worker advanced manufacturing facility in central Ohio](https://www.yahoo.com/news/us-defense-contractor-build-4-135833829.html)
+- Jan 16 - [Dubai's Emaar in talks with Indian groups, including Adani, to sell stake in local business](https://finance.yahoo.com/news/dubais-emaar-talks-indian-groups-130900625.html)
 <!-- feed end -->
 
 ### Onstream
