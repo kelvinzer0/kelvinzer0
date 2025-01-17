@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [How much will it snow? How cold will it get in Petersburg, Hopewell, Colonial Heights?](https://www.yahoo.com/news/much-snow-cold-petersburg-hopewell-093109166.html)
-- Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When they get caught, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
+- Jan 17 - [Tory MP’s bill to ban marriage between cousins is damaging and poses health risk, warn experts](https://www.yahoo.com/news/tory-mp-bill-ban-marriage-102254073.html)
+- Jan 17 - [Iranian president lays wreath at Tomb of Unknown Soldier in Moscow](https://www.yahoo.com/news/iranian-president-lays-wreath-tomb-102004963.html)
+- Jan 17 - [Douglas: Can the DOGE Brothers cut federal spending by $2 trillion?](https://www.yahoo.com/news/douglas-doge-brothers-cut-federal-100813630.html)
+- Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When people don't make it out, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
 - Jan 17 - [Fetterman was elected to challenge convention. Now, he's challenging his fellow Democrats](https://www.yahoo.com/news/fetterman-elected-challenge-convention-now-054552285.html)
-- Jan 17 - [Man jailed for choking grandmother when she refused to give him money; Woman openly vapes on Jetstar flight from Singapore to Bangkok: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-man-jailed-for-choking-grandmother-when-she-refused-to-give-him-money-woman-openly-vapes-on-jetstar-flight-from-singapore-to-bangkok-020647456.html)
-- Jan 17 - [The Famed Ex-USS John F. Kennedy Casts Off On Its Final Voyage](https://www.yahoo.com/news/famed-ex-uss-john-f-003916449.html)
 <!-- feed end -->
 
 ### Onstream
