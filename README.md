@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Former CIA analyst pleads guilty to leaking info on planned Israeli attack on Iran](https://www.yahoo.com/news/former-cia-analyst-pleads-guilty-201008104.html)
-- Jan 17 - [Van carrying several children flips multiple times after crash on I-75; lanes closed](https://www.yahoo.com/news/van-carrying-several-children-flips-195320921.html)
-- Jan 17 - [Solar Wind 'Stopped Blowing' On Mars For 2 Days](https://www.yahoo.com/news/solar-wind-stopped-blowing-mars-120000328.html)
-- Jan 17 - [Ex-sheriff charged in judge's shooting that rocked a Kentucky community watches hearing from jail](https://www.yahoo.com/news/former-kentucky-sheriff-accused-killing-183240053.html)
-- Jan 17 - [State Farm U-Turns on Coverage After ‘Jake’ Trolled Online](https://www.yahoo.com/news/jake-state-farm-gets-dragged-181209437.html)
+- Jan 17 - [Owner of restaurants in Mass., NH sentenced to prison for multi-million dollar tax fraud scheme](https://www.yahoo.com/news/owner-restaurants-mass-nh-sentenced-194228283.html)
+- Jan 17 - [Polar vortex set to freeze the U.S. as far as the Deep South](https://www.yahoo.com/news/polar-vortex-set-freeze-u-013449066.html)
+- Jan 17 - [Trump wants one of the agents who covered him after he was shot to lead the Secret Service](https://www.yahoo.com/news/trump-wants-one-agents-covered-172146618.html)
+- Jan 17 - [Little Rock school principal acknowledges death of elementary student](https://www.yahoo.com/news/little-rock-school-principal-acknowledges-171612976.html)
+- Jan 17 - [Aaron Rodgers Sends Warning to Senate on RFK Jr. Confirmation](https://www.yahoo.com/news/aaron-rodgers-sends-warning-senate-165143600.html)
 <!-- feed end -->
 
 ### Onstream
