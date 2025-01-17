@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [She was searching online for a recipe. She found a video of herself engaged in a sexual act](https://www.yahoo.com/news/she-searching-online-recipe-she-090000355.html)
-- Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When people don't make it out, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
-- Jan 17 - [Fetterman was elected to challenge convention. Now, he's challenging his fellow Democrats](https://www.yahoo.com/news/fetterman-elected-challenge-convention-now-054552285.html)
-- Jan 16 - [Trump’s EPA Pick Flunks Basic Science Quiz at Confirmation Hearing](https://www.yahoo.com/news/trump-epa-pick-flunks-basic-235935465.html)
-- Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
+- Jan 17 - [New details emerge in case of teacher, 34, who gave birth to her student’s baby](https://www.yahoo.com/news/details-emerge-case-teacher-34-124055507.html)
+- Jan 17 - ['One-in-a-billion' round egg discovered in Devon](https://www.yahoo.com/news/one-billion-round-egg-discovered-122522688.html)
+- Jan 17 - [Fed to hold rates in Jan as Trump's policies stir inflation worries: Reuters poll](https://finance.yahoo.com/news/fed-hold-rates-jan-trumps-121610527.html)
+- Jan 17 - [Residents ordered to evacuate after fire breaks out at a power plant in Central California](https://www.yahoo.com/news/residents-ordered-evacuate-fire-breaks-062457095.html)
+- Jan 17 - [Joe Biden Admits His Big Mistake As President That Donald Trump Absolutely Nailed](https://www.yahoo.com/news/joe-biden-admits-big-mistake-103439059.html)
 <!-- feed end -->
 
 ### Onstream
