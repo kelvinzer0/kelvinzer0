@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Here are the top 5 most ‘reliable’ car brands in America right now — does your vehicle make the list?](https://autos.yahoo.com/top-5-most-reliable-car-123000496.html)
-- Jan 17 - [Judge addresses privacy concerns in bankruptcy case of Deion Sanders' son Shilo](https://www.yahoo.com/news/judge-addresses-privacy-concerns-bankruptcy-110642338.html)
-- Jan 17 - [Mortgage and refinance rates today, January 17, 2025: Don't be alarmed by this week's high rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-january-17-2025-110010290.html)
-- Jan 17 - [Carmakers at India auto show unveil charging network plans, new EVs](https://finance.yahoo.com/news/india-pm-modi-invites-investments-083344329.html)
-- Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When people don't make it out, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
+- Jan 17 - [TikTok addicts see silver lining in US ban](https://www.yahoo.com/news/tiktok-addicts-see-silver-lining-163854540.html)
+- Jan 17 - [Snow is in the forecast for Sunday. Here's how much to expect in RI](https://www.yahoo.com/news/snow-forecast-sunday-heres-much-131328676.html)
+- Jan 17 - [Philadelphia weather: How much will it snow on Sunday? Timing, totals, and more](https://www.yahoo.com/news/philadelphia-weather-much-snow-sunday-115709300.html)
+- Jan 17 - [Joe Biden Admits His Big Mistake As President That Donald Trump Absolutely Nailed](https://www.yahoo.com/news/joe-biden-admits-big-mistake-103439059.html)
+- Jan 17 - [Coinbase Launches Bitcoin-Backed Loan Service Allowing Users to Borrow Up to $100,000 in USDC](https://finance.yahoo.com/news/coinbase-launches-bitcoin-backed-loan-074833223.html)
 <!-- feed end -->
 
 ### Onstream
