@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Residents ordered to evacuate after fire breaks out at a power plant in Central California](https://www.yahoo.com/news/residents-ordered-evacuate-fire-breaks-062457095.html)
-- Jan 17 - [Russia says any British military role in Ukraine under new 100-year deal would be worrying](https://www.yahoo.com/news/russia-says-british-military-role-093148662.html)
+- Jan 17 - [Here are the top 5 most ‘reliable’ car brands in America right now — does your vehicle make the list?](https://autos.yahoo.com/top-5-most-reliable-car-123000496.html)
+- Jan 17 - [Judge addresses privacy concerns in bankruptcy case of Deion Sanders' son Shilo](https://www.yahoo.com/news/judge-addresses-privacy-concerns-bankruptcy-110642338.html)
+- Jan 17 - [Mortgage and refinance rates today, January 17, 2025: Don't be alarmed by this week's high rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-january-17-2025-110010290.html)
 - Jan 17 - [Carmakers at India auto show unveil charging network plans, new EVs](https://finance.yahoo.com/news/india-pm-modi-invites-investments-083344329.html)
-- Jan 17 - [Fetterman was elected to challenge convention. Now, he's challenging his fellow Democrats](https://www.yahoo.com/news/fetterman-elected-challenge-convention-now-054552285.html)
-- Jan 17 - [Mysterious airstrip appears on a Yemeni island as Houthi rebel attacks threaten region](https://www.yahoo.com/news/mysterious-airstrip-appears-yemeni-island-053322785.html)
+- Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When people don't make it out, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
 <!-- feed end -->
 
 ### Onstream
