@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Bitcoin & MicroStrategy jump on crypto optimism under Trump](https://finance.yahoo.com/video/bitcoin-microstrategy-jump-crypto-optimism-174134312.html)
+- Jan 17 - [A doctor accused of sexual abuse by more than 200 former patients is indicted on rape charges](https://www.yahoo.com/news/doctor-accused-sexual-abuse-more-181027230.html)
+- Jan 17 - [Macron shakes hands, eats food on walkabout in Beirut](https://www.yahoo.com/news/macron-shakes-hands-eats-food-174414915.html)
 - Jan 17 - [CNN found liable for defaming US Navy veteran who helped people evacuate Afghanistan](https://www.yahoo.com/news/cnn-found-liable-defaming-u-173150968.html)
-- Jan 17 - [African troops 'forced to Ukraine frontlines' while Russians stay in camp](https://www.yahoo.com/news/african-troops-forced-ukraine-frontlines-171754245.html)
+- Jan 17 - [TikTok ban: Where will the app's revenue and 170M users go?](https://finance.yahoo.com/video/tiktok-ban-where-apps-revenue-162426762.html)
 - Jan 17 - [SpaceX launch accident likely caused by fire that sent trails of flaming debris near the Caribbean](https://www.yahoo.com/news/spacex-launch-accident-likely-caused-153708778.html)
-- Jan 17 - [Jamie Dimon's right-hand man is leaving JPMorgan. Meet 4 executives who could be CEO next](https://finance.yahoo.com/news/jamie-dimons-hand-man-leaving-151324817.html)
 <!-- feed end -->
 
 ### Onstream
