@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [US economy resilient, optimism on 2025 rate cuts, GDP at 3%](https://finance.yahoo.com/video/us-economy-resilient-optimism-2025-223635123.html)
-- Jan 16 - [Trump, Vance portraits released ahead of Inauguration Day 2025: See the photos](https://www.yahoo.com/news/trump-vance-portraits-released-ahead-203310949.html)
+- Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
 - Jan 16 - [Southwest Officially Launching Connections to Europe — What to Know](https://www.yahoo.com/lifestyle/southwest-officially-launching-connections-europe-193745705.html)
 - Jan 16 - [A businessman knew buying a Nantucket beach house was risky. 6 months later, it's gone and he regrets it.](https://www.yahoo.com/news/another-nantucket-beach-house-once-204802204.html)
 - Jan 16 - [Corn spilled on I-40 in North Little Rock due to semi-truck incident](https://www.yahoo.com/news/corn-spilled-40-north-little-181711095.html)
+- Jan 16 - [Two state police troopers fired for insensitivity after sharing video of traffic fatality](https://www.yahoo.com/news/two-state-police-troopers-fired-165909794.html)
 <!-- feed end -->
 
 ### Onstream
