@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Tory MP’s bill to ban marriage between cousins is damaging and poses health risk, warn experts](https://www.yahoo.com/news/tory-mp-bill-ban-marriage-102254073.html)
-- Jan 17 - [Iranian president lays wreath at Tomb of Unknown Soldier in Moscow](https://www.yahoo.com/news/iranian-president-lays-wreath-tomb-102004963.html)
-- Jan 17 - [Douglas: Can the DOGE Brothers cut federal spending by $2 trillion?](https://www.yahoo.com/news/douglas-doge-brothers-cut-federal-100813630.html)
+- Jan 17 - [She was searching online for a recipe. She found a video of herself engaged in a sexual act](https://www.yahoo.com/news/she-searching-online-recipe-she-090000355.html)
 - Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When people don't make it out, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
 - Jan 17 - [Fetterman was elected to challenge convention. Now, he's challenging his fellow Democrats](https://www.yahoo.com/news/fetterman-elected-challenge-convention-now-054552285.html)
+- Jan 16 - [Trump’s EPA Pick Flunks Basic Science Quiz at Confirmation Hearing](https://www.yahoo.com/news/trump-epa-pick-flunks-basic-235935465.html)
+- Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
 <!-- feed end -->
 
 ### Onstream
