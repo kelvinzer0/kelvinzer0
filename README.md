@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Authorities chase group of motorcyclists in Los Angeles County](https://www.yahoo.com/news/live-authorities-chasing-group-motorbikes-002550012.html)
+- Jan 17 - [Crash causes vehicle to go off Arlington Memorial Bridge, into Potomac River](https://www.yahoo.com/news/crash-causes-vehicle-over-arlington-003718634.html)
 - Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
 - Jan 16 - [SpaceX loses spacecraft after catching rocket booster at the launch pad in latest Starship test](https://www.yahoo.com/news/spacexs-starship-mega-rocket-blasts-223813383.html)
-- Jan 16 - [Yes, massive great white sharks are found in the Sea of Cortez](https://www.yahoo.com/news/yes-massive-great-white-sharks-172553896.html)
-- Jan 16 - [Southwest Officially Launching Connections to Europe — What to Know](https://www.yahoo.com/lifestyle/southwest-officially-launching-connections-europe-193745705.html)
+- Jan 16 - [Lubbock doctor sentenced for inappropriately touching employee during exam](https://www.yahoo.com/news/lubbock-doctor-sentenced-inappropriately-touching-202922939.html)
+- Jan 16 - [A businessman knew buying a Nantucket beach house was risky. 6 months later, it's gone and he regrets it.](https://www.yahoo.com/news/another-nantucket-beach-house-once-204802204.html)
 <!-- feed end -->
 
 ### Onstream
