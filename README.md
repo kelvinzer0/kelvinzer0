@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When they get caught, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
 - Jan 17 - [Boeing resumes 777X test flights after grounding in August](https://www.yahoo.com/news/boeing-resumes-777x-test-flights-023506076.html)
 - Jan 17 - [Man jailed for choking grandmother when she refused to give him money; Woman openly vapes on Jetstar flight from Singapore to Bangkok: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-man-jailed-for-choking-grandmother-when-she-refused-to-give-him-money-woman-openly-vapes-on-jetstar-flight-from-singapore-to-bangkok-020647456.html)
-- Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
-- Jan 16 - ['Chicago Fire' Actor Helps Detain Suspected LA Arsonist](https://www.yahoo.com/news/chicago-fire-actor-helps-detain-222102943.html)
-- Jan 16 - [Virginia homeowner shoots intruder during attempted break-in](https://www.yahoo.com/news/virginia-homeowner-shoots-intruder-during-215346377.html)
+- Jan 17 - [WATCH: Crash causes vehicle to go off Arlington Memorial Bridge, into Potomac River](https://www.yahoo.com/news/crash-causes-vehicle-over-arlington-003718634.html)
+- Jan 16 - [Trump’s EPA Pick Flunks Basic Science Quiz at Confirmation Hearing](https://www.yahoo.com/news/trump-epa-pick-flunks-basic-235935465.html)
 <!-- feed end -->
 
 ### Onstream
