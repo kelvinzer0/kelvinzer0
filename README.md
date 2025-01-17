@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Here’s Why 3M Company (MMM) Is Among the Highest Yielding Dividend Stocks In the Dow](https://finance.yahoo.com/news/why-3m-company-mmm-among-021256961.html)
-- Jan 17 - [One dead in multi-car crash on I-80](https://www.yahoo.com/news/breaking-one-dead-multi-car-012409484.html)
-- Jan 17 - [HPD says 15 accidents have been reported at ‘dangerous’ intersection since Dec. 1](https://www.yahoo.com/news/hpd-says-15-accidents-reported-004916590.html)
+- Jan 17 - [WATCH: Crash causes vehicle to go off Arlington Memorial Bridge, into Potomac River](https://www.yahoo.com/news/crash-causes-vehicle-over-arlington-003718634.html)
+- Jan 17 - [Watch: SpaceX Starship test flight disintegrates after launch, debris spotted in skies over Caribbean](https://www.yahoo.com/news/watch-spacex-starship-test-flight-003048320.html)
+- Jan 16 - [Sheriff defends deputies who detained and handcuffed 11-year-old girl after mistaking her for suspect](https://www.yahoo.com/news/sheriff-defends-deputies-detained-handcuffed-225701943.html)
 - Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
-- Jan 16 - [$500K Illinois Lottery jackpot ticket sold in Chicago suburb](https://www.yahoo.com/news/500k-illinois-lottery-jackpot-ticket-190127916.html)
+- Jan 16 - [Virginia homeowner shoots intruder during attempted break-in](https://www.yahoo.com/news/virginia-homeowner-shoots-intruder-during-215346377.html)
 <!-- feed end -->
 
 ### Onstream
