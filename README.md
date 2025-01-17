@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Man wanted for drug, prostitution charges arrested in Miamisburg](https://www.yahoo.com/news/man-wanted-drug-prostitution-charges-062717360.html)
-- Jan 16 - [Trump’s EPA Pick Flunks Basic Science Quiz at Confirmation Hearing](https://www.yahoo.com/news/trump-epa-pick-flunks-basic-235935465.html)
-- Jan 16 - [Sheriff defends deputies who detained and handcuffed 11-year-old girl after mistaking her for suspect](https://www.yahoo.com/news/sheriff-defends-deputies-detained-handcuffed-225701943.html)
+- Jan 17 - [Boeing resumes 777X test flights after grounding in August](https://www.yahoo.com/news/boeing-resumes-777x-test-flights-023506076.html)
+- Jan 17 - [Man jailed for choking grandmother when she refused to give him money; Woman openly vapes on Jetstar flight from Singapore to Bangkok: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-man-jailed-for-choking-grandmother-when-she-refused-to-give-him-money-woman-openly-vapes-on-jetstar-flight-from-singapore-to-bangkok-020647456.html)
 - Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
-- Jan 16 - [SpaceX loses spacecraft after catching rocket booster at the launch pad in latest Starship test](https://www.yahoo.com/news/spacexs-starship-mega-rocket-blasts-223813383.html)
+- Jan 16 - ['Chicago Fire' Actor Helps Detain Suspected LA Arsonist](https://www.yahoo.com/news/chicago-fire-actor-helps-detain-222102943.html)
+- Jan 16 - [Virginia homeowner shoots intruder during attempted break-in](https://www.yahoo.com/news/virginia-homeowner-shoots-intruder-during-215346377.html)
 <!-- feed end -->
 
 ### Onstream
