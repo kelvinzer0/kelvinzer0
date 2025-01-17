@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Falling debris from SpaceX's Starship streaks through the sky](https://www.yahoo.com/news/falling-debris-spacexs-starship-streaks-183646954.html)
+- Jan 17 - [Former CIA analyst pleads guilty to leaking info on planned Israeli attack on Iran](https://www.yahoo.com/news/former-cia-analyst-pleads-guilty-201008104.html)
+- Jan 17 - [3 Dividend Stocks To Consider For Your Portfolio](https://finance.yahoo.com/news/3-dividend-stocks-consider-portfolio-200407166.html)
 - Jan 17 - [Former Kentucky sheriff accused of killing a judge appears remotely from jail during court hearing](https://www.yahoo.com/news/former-kentucky-sheriff-accused-killing-183240053.html)
-- Jan 17 - [Tired of snow yet? National Weather Service forecasts plowable snow Sunday for Central PA](https://www.yahoo.com/news/tired-snow-yet-national-weather-181511259.html)
-- Jan 17 - [A doctor accused of sexual abuse by more than 200 former patients is indicted on rape charges](https://www.yahoo.com/news/doctor-accused-sexual-abuse-more-181027230.html)
-- Jan 17 - [CNN found liable for defaming US Navy veteran who helped people evacuate Afghanistan](https://www.yahoo.com/news/cnn-found-liable-defaming-u-173150968.html)
+- Jan 17 - [Mobile police arrest 1, seek another after Home Depot shoplifting](https://www.yahoo.com/news/mobile-police-arrest-1-seek-180514158.html)
+- Jan 17 - [Trump wants one of the agents who covered him after he was shot to lead the Secret Service](https://www.yahoo.com/news/trump-wants-one-agents-covered-172146618.html)
 <!-- feed end -->
 
 ### Onstream
