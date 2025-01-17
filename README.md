@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [New details emerge in case of teacher, 34, who gave birth to her student’s baby](https://www.yahoo.com/news/details-emerge-case-teacher-34-124055507.html)
-- Jan 17 - ['One-in-a-billion' round egg discovered in Devon](https://www.yahoo.com/news/one-billion-round-egg-discovered-122522688.html)
-- Jan 17 - [Fed to hold rates in Jan as Trump's policies stir inflation worries: Reuters poll](https://finance.yahoo.com/news/fed-hold-rates-jan-trumps-121610527.html)
-- Jan 17 - [Residents ordered to evacuate after fire breaks out at a power plant in Central California](https://www.yahoo.com/news/residents-ordered-evacuate-fire-breaks-062457095.html)
-- Jan 17 - [Joe Biden Admits His Big Mistake As President That Donald Trump Absolutely Nailed](https://www.yahoo.com/news/joe-biden-admits-big-mistake-103439059.html)
+- Jan 17 - [Russia says any British military role in Ukraine under new 100-year deal would be worrying](https://www.yahoo.com/news/russia-says-british-military-role-093148662.html)
+- Jan 17 - [How much will it snow? How cold will it get in Petersburg, Hopewell, Colonial Heights?](https://www.yahoo.com/news/much-snow-cold-petersburg-hopewell-093109166.html)
+- Jan 17 - [She was searching online for a recipe. She found a video of herself engaged in a sexual act](https://www.yahoo.com/news/she-searching-online-recipe-she-090000355.html)
+- Jan 17 - [Fetterman was elected to challenge convention. Now, he's challenging his fellow Democrats](https://www.yahoo.com/news/fetterman-elected-challenge-convention-now-054552285.html)
+- Jan 17 - [Mysterious airstrip appears on a Yemeni island as Houthi rebel attacks threaten region](https://www.yahoo.com/news/mysterious-airstrip-appears-yemeni-island-053322785.html)
 <!-- feed end -->
 
 ### Onstream
