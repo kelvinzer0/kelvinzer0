@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Crash causes vehicle to go off Arlington Memorial Bridge, into Potomac River](https://www.yahoo.com/news/crash-causes-vehicle-over-arlington-003718634.html)
+- Jan 17 - [Here’s Why 3M Company (MMM) Is Among the Highest Yielding Dividend Stocks In the Dow](https://finance.yahoo.com/news/why-3m-company-mmm-among-021256961.html)
+- Jan 17 - [One dead in multi-car crash on I-80](https://www.yahoo.com/news/breaking-one-dead-multi-car-012409484.html)
+- Jan 17 - [HPD says 15 accidents have been reported at ‘dangerous’ intersection since Dec. 1](https://www.yahoo.com/news/hpd-says-15-accidents-reported-004916590.html)
 - Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
-- Jan 16 - [SpaceX loses spacecraft after catching rocket booster at the launch pad in latest Starship test](https://www.yahoo.com/news/spacexs-starship-mega-rocket-blasts-223813383.html)
-- Jan 16 - [Lubbock doctor sentenced for inappropriately touching employee during exam](https://www.yahoo.com/news/lubbock-doctor-sentenced-inappropriately-touching-202922939.html)
-- Jan 16 - [A businessman knew buying a Nantucket beach house was risky. 6 months later, it's gone and he regrets it.](https://www.yahoo.com/news/another-nantucket-beach-house-once-204802204.html)
+- Jan 16 - [$500K Illinois Lottery jackpot ticket sold in Chicago suburb](https://www.yahoo.com/news/500k-illinois-lottery-jackpot-ticket-190127916.html)
 <!-- feed end -->
 
 ### Onstream
