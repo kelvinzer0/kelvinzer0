@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [Estimating The Fair Value Of Polymetals Resources Ltd (ASX:POL)](https://finance.yahoo.com/news/estimating-fair-value-polymetals-resources-020629868.html)
+- Jan 16 - [Sheriff defends deputies who detained and handcuffed 11-year-old girl after mistaking her for suspect](https://www.yahoo.com/news/sheriff-defends-deputies-detained-handcuffed-225701943.html)
 - Jan 16 - [Democratic senator on Biden’s farewell plea: ‘Now he tells us’](https://www.yahoo.com/news/democratic-senator-biden-farewell-plea-223935181.html)
-- Jan 16 - [Southwest Officially Launching Connections to Europe — What to Know](https://www.yahoo.com/lifestyle/southwest-officially-launching-connections-europe-193745705.html)
-- Jan 16 - [A businessman knew buying a Nantucket beach house was risky. 6 months later, it's gone and he regrets it.](https://www.yahoo.com/news/another-nantucket-beach-house-once-204802204.html)
-- Jan 16 - [Corn spilled on I-40 in North Little Rock due to semi-truck incident](https://www.yahoo.com/news/corn-spilled-40-north-little-181711095.html)
-- Jan 16 - [Two state police troopers fired for insensitivity after sharing video of traffic fatality](https://www.yahoo.com/news/two-state-police-troopers-fired-165909794.html)
+- Jan 16 - [SpaceX loses spacecraft after catching rocket booster at the launch pad in latest Starship test](https://www.yahoo.com/news/spacexs-starship-mega-rocket-blasts-223813383.html)
+- Jan 16 - [Bo Jackson gives up $21 million judgment he received from extortion lawsuit in Cobb County](https://www.yahoo.com/news/bo-jackson-gives-21-million-182238693.html)
 <!-- feed end -->
 
 ### Onstream
