@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [How much will it snow? How cold will it get in Petersburg, Hopewell, Colonial Heights?](https://www.yahoo.com/news/much-snow-cold-petersburg-hopewell-093109166.html)
 - Jan 17 - [I've helped thousands of Ukrainians escape Russian occupation. When they get caught, it's usually because of their phones.](https://www.yahoo.com/news/ive-helped-thousands-ukrainians-escape-074409222.html)
-- Jan 17 - [Boeing resumes 777X test flights after grounding in August](https://www.yahoo.com/news/boeing-resumes-777x-test-flights-023506076.html)
+- Jan 17 - [Fetterman was elected to challenge convention. Now, he's challenging his fellow Democrats](https://www.yahoo.com/news/fetterman-elected-challenge-convention-now-054552285.html)
 - Jan 17 - [Man jailed for choking grandmother when she refused to give him money; Woman openly vapes on Jetstar flight from Singapore to Bangkok: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-man-jailed-for-choking-grandmother-when-she-refused-to-give-him-money-woman-openly-vapes-on-jetstar-flight-from-singapore-to-bangkok-020647456.html)
-- Jan 17 - [WATCH: Crash causes vehicle to go off Arlington Memorial Bridge, into Potomac River](https://www.yahoo.com/news/crash-causes-vehicle-over-arlington-003718634.html)
-- Jan 16 - [Trump’s EPA Pick Flunks Basic Science Quiz at Confirmation Hearing](https://www.yahoo.com/news/trump-epa-pick-flunks-basic-235935465.html)
+- Jan 17 - [The Famed Ex-USS John F. Kennedy Casts Off On Its Final Voyage](https://www.yahoo.com/news/famed-ex-uss-john-f-003916449.html)
 <!-- feed end -->
 
 ### Onstream
