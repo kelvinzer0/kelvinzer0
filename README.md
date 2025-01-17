@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [TikTok addicts see silver lining in US ban](https://www.yahoo.com/news/tiktok-addicts-see-silver-lining-163854540.html)
-- Jan 17 - [Snow is in the forecast for Sunday. Here's how much to expect in RI](https://www.yahoo.com/news/snow-forecast-sunday-heres-much-131328676.html)
-- Jan 17 - [Philadelphia weather: How much will it snow on Sunday? Timing, totals, and more](https://www.yahoo.com/news/philadelphia-weather-much-snow-sunday-115709300.html)
-- Jan 17 - [Joe Biden Admits His Big Mistake As President That Donald Trump Absolutely Nailed](https://www.yahoo.com/news/joe-biden-admits-big-mistake-103439059.html)
-- Jan 17 - [Coinbase Launches Bitcoin-Backed Loan Service Allowing Users to Borrow Up to $100,000 in USDC](https://finance.yahoo.com/news/coinbase-launches-bitcoin-backed-loan-074833223.html)
+- Jan 17 - [Bitcoin & MicroStrategy jump on crypto optimism under Trump](https://finance.yahoo.com/video/bitcoin-microstrategy-jump-crypto-optimism-174134312.html)
+- Jan 17 - [CNN found liable for defaming US Navy veteran who helped people evacuate Afghanistan](https://www.yahoo.com/news/cnn-found-liable-defaming-u-173150968.html)
+- Jan 17 - [African troops 'forced to Ukraine frontlines' while Russians stay in camp](https://www.yahoo.com/news/african-troops-forced-ukraine-frontlines-171754245.html)
+- Jan 17 - [SpaceX launch accident likely caused by fire that sent trails of flaming debris near the Caribbean](https://www.yahoo.com/news/spacex-launch-accident-likely-caused-153708778.html)
+- Jan 17 - [Jamie Dimon's right-hand man is leaving JPMorgan. Meet 4 executives who could be CEO next](https://finance.yahoo.com/news/jamie-dimons-hand-man-leaving-151324817.html)
 <!-- feed end -->
 
 ### Onstream
