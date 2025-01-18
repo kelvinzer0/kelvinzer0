@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [Owner of restaurants in Mass., NH sentenced to prison for multi-million dollar tax fraud scheme](https://www.yahoo.com/news/owner-restaurants-mass-nh-sentenced-194228283.html)
-- Jan 17 - [Polar vortex set to freeze the U.S. as far as the Deep South](https://www.yahoo.com/news/polar-vortex-set-freeze-u-013449066.html)
-- Jan 17 - [Trump wants one of the agents who covered him after he was shot to lead the Secret Service](https://www.yahoo.com/news/trump-wants-one-agents-covered-172146618.html)
-- Jan 17 - [Little Rock school principal acknowledges death of elementary student](https://www.yahoo.com/news/little-rock-school-principal-acknowledges-171612976.html)
-- Jan 17 - [Aaron Rodgers Sends Warning to Senate on RFK Jr. Confirmation](https://www.yahoo.com/news/aaron-rodgers-sends-warning-senate-165143600.html)
+- Jan 18 - [TikTok's advertiser traffic drops 21% amid shutdown fears: MikMak](https://finance.yahoo.com/video/tiktoks-advertiser-traffic-drops-21-004000344.html)
+- Jan 17 - [Dozens still missing in Southern California wildfires](https://www.yahoo.com/news/dozens-still-missing-southern-california-235425096.html)
+- Jan 17 - [Retired Georgia minister is found not guilty in the 1975 killing of a girl in Pennsylvania](https://www.yahoo.com/news/retired-georgia-minister-found-not-231543929.html)
+- Jan 17 - [Man found dead in trailer of mattresses called his brother panicking in his final moments](https://www.yahoo.com/news/man-found-dead-trailer-mattresses-231247322.html)
+- Jan 17 - [Police: 50-year-old man arrested for paying 14-year-old human trafficking victim for sex](https://www.yahoo.com/news/police-50-old-man-arrested-225223787.html)
 <!-- feed end -->
 
 ### Onstream
