@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Why Is Huntington Ingalls Industries, Inc. (HII) Among Louis Navellier’s Top Long-term Stock Picks?](https://finance.yahoo.com/news/why-huntington-ingalls-industries-inc-160034036.html)
-- Jan 18 - [Rivian and Lucid Investors Need to Watch This 1 Big Competitor (Hint: It's Not Tesla)](https://finance.yahoo.com/news/rivian-lucid-investors-watch-1-153000966.html)
 - Jan 18 - [Two Iranian ‘judges of death’ gunned down in Tehran](https://www.yahoo.com/news/two-iranian-judges-death-gunned-125546553.html)
+- Jan 18 - [Hundreds of Swedish forces arrive in Latvia in largest deployment with NATO to date](https://www.yahoo.com/news/hundreds-swedish-forces-arrive-latvia-135436134.html)
 - Jan 18 - [What happened when a town removed fluoride from its water](https://www.yahoo.com/news/happened-town-removed-fluoride-water-131850856.html)
 - Jan 18 - [I'm a colorectal cancer survivor and advocate. Here are 5 things you should and shouldn't do](https://www.yahoo.com/lifestyle/im-a-colorectal-cancer-survivor-and-advocate-here-are-5-things-you-should-and-shouldnt-do-130001989.html)
+- Jan 18 - [Trump's family circle has a different look as he returns to the White House](https://www.yahoo.com/news/trumps-family-circle-different-look-122705909.html)
 <!-- feed end -->
 
 ### Onstream
