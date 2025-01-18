@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Chinese Coast Guard Vessel Enters Philippines Waters, Ignores Warnings, Officials Say](https://www.yahoo.com/news/chinese-coast-guard-vessel-enters-094529594.html)
+- Jan 18 - [4 Things the Middle Class Likely Won’t Be Able To Afford Once Trump Takes Office](https://finance.yahoo.com/news/4-things-middle-class-likely-140030566.html)
+- Jan 18 - [I covered Rep. Turner for years. Here's why fellow Republicans booted him. | Opinion](https://www.yahoo.com/news/covered-rep-turner-years-heres-104928737.html)
 - Jan 18 - [Ahmaud Arbery's killers avoided arrest at first. Now an ex-prosecutor faces trial for misconduct](https://www.yahoo.com/news/ahmaud-arberys-killers-avoided-arrest-050402988.html)
-- Jan 18 - [Polar vortex set to freeze the U.S. as far as the Deep South](https://www.yahoo.com/news/polar-vortex-set-freeze-u-013449066.html)
-- Jan 18 - [Scientists say they found oxygen where it shouldn’t be. Now, the hunt is on for more answers](https://www.yahoo.com/news/hunt-dark-oxygen-why-might-000505179.html)
-- Jan 18 - [Ex-49er Dana Stubblefield to remain in prison for now after judge denies bail ruling](https://www.yahoo.com/news/ex-49er-dana-stubblefield-remain-010054169.html)
+- Jan 18 - [Here Are 19 Of The Most Hilarious, Out-Of-Pocket Tweets Of The Week](https://www.yahoo.com/entertainment/side-hurts-laughing-19-hilarious-023447366.html)
+- Jan 18 - [Bill Gates on Trump meeting: ‘Frankly I was impressed’](https://www.yahoo.com/news/bill-gates-trump-meeting-frankly-020330851.html)
 <!-- feed end -->
 
 ### Onstream
