@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 18 - [Polar vortex set to freeze the U.S. as far as the Deep South](https://www.yahoo.com/news/polar-vortex-set-freeze-u-013449066.html)
-- Jan 18 - [Butler elementary school officer earns prestigious award](https://www.yahoo.com/news/butler-elementary-school-officer-earns-145120372.html)
+- Jan 18 - [I'm a pilot flying a DC-10 fire bomber to battle the LA fires. This is what I've seen — and this is what needs to stop.](https://www.yahoo.com/news/im-pilot-fighting-ca-wildfires-115002768.html)
 - Jan 18 - [Two Iranian ‘judges of death’ gunned down in Tehran](https://www.yahoo.com/news/two-iranian-judges-death-gunned-125546553.html)
+- Jan 18 - [Bumble cofounder Whitney Wolfe Herd is returning as CEO. Take a look at her career and lavish life.](https://finance.yahoo.com/news/meet-whitney-wolfe-herd-31-205200403.html)
 - Jan 18 - [‘Landlords win either way’: Gordon Ramsay exposes how commercial property owners grow their riches no matter what](https://finance.yahoo.com/news/landlords-win-either-way-gordon-140400336.html)
-- Jan 18 - [Hundreds of Swedish forces arrive in Latvia in largest deployment with NATO to date](https://www.yahoo.com/news/hundreds-swedish-forces-arrive-latvia-135436134.html)
 <!-- feed end -->
 
 ### Onstream
