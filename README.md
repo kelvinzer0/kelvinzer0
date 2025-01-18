@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Polar vortex set to freeze the U.S. as far as the Deep South](https://www.yahoo.com/news/polar-vortex-set-freeze-u-013449066.html)
+- Jan 18 - [Goebbels bullied me for failing to praise Mussolini, say diaries of Hitler’s ‘English girlfriend’](https://www.yahoo.com/news/goebbels-bullied-failing-praise-mussolini-184918269.html)
+- Jan 18 - [She left her puppy with a top-rated sitter while she went on vacation. Her dog has been missing for 2 weeks](https://www.yahoo.com/lifestyle/she-left-her-puppy-top-162006177.html)
 - Jan 18 - [I'm a pilot flying a DC-10 fire bomber to battle the LA fires. This is what I've seen — and this is what needs to stop.](https://www.yahoo.com/news/im-pilot-fighting-ca-wildfires-115002768.html)
 - Jan 18 - [Two Iranian ‘judges of death’ gunned down in Tehran](https://www.yahoo.com/news/two-iranian-judges-death-gunned-125546553.html)
-- Jan 18 - [Bumble cofounder Whitney Wolfe Herd is returning as CEO. Take a look at her career and lavish life.](https://finance.yahoo.com/news/meet-whitney-wolfe-herd-31-205200403.html)
 - Jan 18 - [‘Landlords win either way’: Gordon Ramsay exposes how commercial property owners grow their riches no matter what](https://finance.yahoo.com/news/landlords-win-either-way-gordon-140400336.html)
 <!-- feed end -->
 
