@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [TikTok's advertiser traffic drops 21% amid shutdown fears: MikMak](https://finance.yahoo.com/video/tiktoks-advertiser-traffic-drops-21-004000344.html)
-- Jan 17 - [Dozens still missing in Southern California wildfires](https://www.yahoo.com/news/dozens-still-missing-southern-california-235425096.html)
+- Jan 18 - [Police searching for woman in connection to high-speed chase reaching 130 mph](https://www.yahoo.com/news/police-searching-woman-connection-high-015304151.html)
+- Jan 18 - [Scientists say they found oxygen where it shouldn’t be. Now, the hunt is on for more answers](https://www.yahoo.com/news/hunt-dark-oxygen-why-might-000505179.html)
 - Jan 17 - [Retired Georgia minister is found not guilty in the 1975 killing of a girl in Pennsylvania](https://www.yahoo.com/news/retired-georgia-minister-found-not-231543929.html)
-- Jan 17 - [Man found dead in trailer of mattresses called his brother panicking in his final moments](https://www.yahoo.com/news/man-found-dead-trailer-mattresses-231247322.html)
-- Jan 17 - [Police: 50-year-old man arrested for paying 14-year-old human trafficking victim for sex](https://www.yahoo.com/news/police-50-old-man-arrested-225223787.html)
+- Jan 17 - [Hays cancels school Tuesday ahead of possible icy weather. Here's list of closures, delays](https://www.yahoo.com/news/hays-cancels-school-tuesday-ahead-230440881.html)
+- Jan 17 - [Attorneys for fire victim say utility may have destroyed evidence of what caused deadly LA-area fire](https://www.yahoo.com/news/attorneys-fire-victim-utility-may-223838007.html)
 <!-- feed end -->
 
 ### Onstream
