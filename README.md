@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [ASEAN and China must start tackling thorny issues of South China Sea code, Philippines says](https://www.yahoo.com/news/asean-china-must-start-tackling-123228596.html)
-- Jan 18 - [4 Things the Middle Class Likely Won’t Be Able To Afford Once Trump Takes Office](https://finance.yahoo.com/news/4-things-middle-class-likely-140030566.html)
-- Jan 18 - [Russian attack kills 4 people in Kyiv as Ukrainian drone strikes set Russian fuel stores alight](https://www.yahoo.com/news/russian-attack-kills-3-people-070140899.html)
-- Jan 18 - [Man shot in head while driving on South Bay highway](https://www.yahoo.com/news/man-shot-head-while-driving-053140350.html)
-- Jan 18 - [Here Are 19 Of The Most Hilarious, Out-Of-Pocket Tweets Of The Week](https://www.yahoo.com/entertainment/side-hurts-laughing-19-hilarious-023447366.html)
+- Jan 18 - [Two Iranian ‘judges of death’ gunned down in Tehran](https://www.yahoo.com/news/two-iranian-judges-death-gunned-125546553.html)
+- Jan 18 - [This Is One of the Largest Companies in the World...and the Stock Is an Absolute Bargain](https://finance.yahoo.com/news/one-largest-companies-world-stock-113000206.html)
+- Jan 18 - [Domestic workers in Los Angeles face financial crisis after homes they worked in were lost to the fires](https://www.yahoo.com/news/domestic-workers-los-angeles-face-111644162.html)
+- Jan 18 - [Hezbollah chief says Gaza ceasefire deal shows 'persistence of resistance' against Israel](https://www.yahoo.com/news/hezbollah-chief-says-gaza-ceasefire-093630621.html)
+- Jan 18 - [Russian attack kills at least 3 in Kyiv as Ukrainian drone strikes set Russian fuel stores alight](https://www.yahoo.com/news/russian-attack-kills-3-people-070140899.html)
 <!-- feed end -->
 
 ### Onstream
