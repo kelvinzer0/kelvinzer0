@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [At least three dead after Russia launches a missile attack on Kyiv early Saturday](https://www.yahoo.com/news/least-three-dead-russia-launches-072456458.html)
 - Jan 18 - ['MAGA heads on fire': Biden declares gender equality constitutional amendment 'the law of the land'](https://www.yahoo.com/news/maga-heads-fire-biden-declares-033116306.html)
 - Jan 18 - [Bill Gates on Trump meeting: ‘Frankly I was impressed’](https://www.yahoo.com/news/bill-gates-trump-meeting-frankly-020330851.html)
+- Jan 18 - [Polar vortex set to freeze the U.S. as far as the Deep South](https://www.yahoo.com/news/polar-vortex-set-freeze-u-013449066.html)
 - Jan 18 - [Scientists say they found oxygen where it shouldn’t be. Now, the hunt is on for more answers](https://www.yahoo.com/news/hunt-dark-oxygen-why-might-000505179.html)
-- Jan 18 - [Ex-49er Dana Stubblefield to remain in prison for now after judge denies bail ruling](https://www.yahoo.com/news/ex-49er-dana-stubblefield-remain-010054169.html)
+- Jan 18 - [US accuses Walgreens of filling millions of illegitimate prescriptions, including for opioids](https://www.yahoo.com/news/us-accuses-walgreens-filling-millions-010048579.html)
 <!-- feed end -->
 
 ### Onstream
