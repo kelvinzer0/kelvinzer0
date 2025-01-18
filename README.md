@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Police searching for woman in connection to high-speed chase reaching 130 mph](https://www.yahoo.com/news/police-searching-woman-connection-high-015304151.html)
-- Jan 18 - [Scientists say they found oxygen where it shouldn’t be. Now, the hunt is on for more answers](https://www.yahoo.com/news/hunt-dark-oxygen-why-might-000505179.html)
+- Jan 18 - [The report on Hunter Biden](https://www.yahoo.com/news/report-hunter-biden-021149900.html)
+- Jan 18 - [Ex-49er Dana Stubblefield to remain in prison for now after judge denies bail ruling](https://www.yahoo.com/news/ex-49er-dana-stubblefield-remain-010054169.html)
+- Jan 17 - [National Weather Service: Poconos could see up to 10 inches of snow](https://www.yahoo.com/news/national-weather-poconos-could-see-231701636.html)
 - Jan 17 - [Retired Georgia minister is found not guilty in the 1975 killing of a girl in Pennsylvania](https://www.yahoo.com/news/retired-georgia-minister-found-not-231543929.html)
-- Jan 17 - [Hays cancels school Tuesday ahead of possible icy weather. Here's list of closures, delays](https://www.yahoo.com/news/hays-cancels-school-tuesday-ahead-230440881.html)
 - Jan 17 - [Attorneys for fire victim say utility may have destroyed evidence of what caused deadly LA-area fire](https://www.yahoo.com/news/attorneys-fire-victim-utility-may-223838007.html)
 <!-- feed end -->
 
