@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [2 Top Tech Stocks to Buy in January](https://finance.yahoo.com/news/2-top-tech-stocks-buy-144100758.html)
 - Jan 18 - [Two Iranian ‘judges of death’ gunned down in Tehran](https://www.yahoo.com/news/two-iranian-judges-death-gunned-125546553.html)
-- Jan 18 - [This Is One of the Largest Companies in the World...and the Stock Is an Absolute Bargain](https://finance.yahoo.com/news/one-largest-companies-world-stock-113000206.html)
-- Jan 18 - [Domestic workers in Los Angeles face financial crisis after homes they worked in were lost to the fires](https://www.yahoo.com/news/domestic-workers-los-angeles-face-111644162.html)
-- Jan 18 - [Hezbollah chief says Gaza ceasefire deal shows 'persistence of resistance' against Israel](https://www.yahoo.com/news/hezbollah-chief-says-gaza-ceasefire-093630621.html)
-- Jan 18 - [Russian attack kills at least 3 in Kyiv as Ukrainian drone strikes set Russian fuel stores alight](https://www.yahoo.com/news/russian-attack-kills-3-people-070140899.html)
+- Jan 18 - [What happened when a town removed fluoride from its water](https://www.yahoo.com/news/happened-town-removed-fluoride-water-131850856.html)
+- Jan 18 - [Trump's family circle has a different look as he returns to the White House](https://www.yahoo.com/news/trumps-family-circle-different-look-122705909.html)
+- Jan 18 - [Dave Ramsey Offers Hard Truths About Medicare Every Retiree Should Know](https://finance.yahoo.com/news/dave-ramsey-offers-hard-truths-140027321.html)
 <!-- feed end -->
 
 ### Onstream
