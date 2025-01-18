@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [ASEAN and China must start tackling thorny issues of South China Sea code, Philippines says](https://www.yahoo.com/news/asean-china-must-start-tackling-123228596.html)
 - Jan 18 - [4 Things the Middle Class Likely Won’t Be Able To Afford Once Trump Takes Office](https://finance.yahoo.com/news/4-things-middle-class-likely-140030566.html)
-- Jan 18 - [I covered Rep. Turner for years. Here's why fellow Republicans booted him. | Opinion](https://www.yahoo.com/news/covered-rep-turner-years-heres-104928737.html)
-- Jan 18 - [Ahmaud Arbery's killers avoided arrest at first. Now an ex-prosecutor faces trial for misconduct](https://www.yahoo.com/news/ahmaud-arberys-killers-avoided-arrest-050402988.html)
+- Jan 18 - [Russian attack kills 4 people in Kyiv as Ukrainian drone strikes set Russian fuel stores alight](https://www.yahoo.com/news/russian-attack-kills-3-people-070140899.html)
+- Jan 18 - [Man shot in head while driving on South Bay highway](https://www.yahoo.com/news/man-shot-head-while-driving-053140350.html)
 - Jan 18 - [Here Are 19 Of The Most Hilarious, Out-Of-Pocket Tweets Of The Week](https://www.yahoo.com/entertainment/side-hurts-laughing-19-hilarious-023447366.html)
-- Jan 18 - [Bill Gates on Trump meeting: ‘Frankly I was impressed’](https://www.yahoo.com/news/bill-gates-trump-meeting-frankly-020330851.html)
 <!-- feed end -->
 
 ### Onstream
