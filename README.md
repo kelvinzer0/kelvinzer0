@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [‘Targets culture’ meant police ignored grooming gangs, leaked report reveals](https://www.yahoo.com/news/targets-culture-meant-police-ignored-192913420.html)
+- Jan 18 - [Biden's efforts to show 'vigor' backfired, showed his advanced age: Report](https://www.yahoo.com/news/bidens-efforts-show-vigor-backfired-190427329.html)
 - Jan 18 - [Retirement expert details the 'highest single correlation' to success](https://finance.yahoo.com/news/retirement-expert-details-the-highest-single-correlation-to-success-180125232.html)
 - Jan 18 - [Will Portland see snow in late January? NOAA weather outlook released](https://www.yahoo.com/news/portland-see-snow-january-noaa-180000999.html)
 - Jan 18 - [Troopers searching for driver who caused deadly, fiery crash at Florida intersection](https://www.yahoo.com/news/troopers-searching-driver-caused-deadly-161458222.html)
-- Jan 18 - [I'm a pilot flying a DC-10 fire bomber to battle the LA fires. This is what I've seen — and this is what needs to stop.](https://www.yahoo.com/news/im-pilot-fighting-ca-wildfires-115002768.html)
-- Jan 18 - [Two Iranian ‘judges of death’ gunned down in Tehran](https://www.yahoo.com/news/two-iranian-judges-death-gunned-125546553.html)
 <!-- feed end -->
 
 ### Onstream
