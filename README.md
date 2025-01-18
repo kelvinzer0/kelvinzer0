@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - ['MAGA heads on fire': Biden declares gender equality constitutional amendment 'the law of the land'](https://www.yahoo.com/news/maga-heads-fire-biden-declares-033116306.html)
+- Jan 18 - [Bill Gates on Trump meeting: ‘Frankly I was impressed’](https://www.yahoo.com/news/bill-gates-trump-meeting-frankly-020330851.html)
 - Jan 18 - [Scientists say they found oxygen where it shouldn’t be. Now, the hunt is on for more answers](https://www.yahoo.com/news/hunt-dark-oxygen-why-might-000505179.html)
-- Jan 17 - [DOJ sues Walgreens for 'unlawful' prescription practices](https://finance.yahoo.com/video/doj-sues-walgreens-unlawful-prescription-221139198.html)
-- Jan 17 - [Salt Lake School District addresses rumors of West High principal’s leave](https://www.yahoo.com/news/salt-lake-school-district-addresses-202130198.html)
-- Jan 17 - [Fire at one of the world's largest battery plants in California forces evacuations](https://www.yahoo.com/news/fire-one-worlds-largest-battery-200926515.html)
-- Jan 17 - [Owner of restaurants in Mass., NH sentenced to prison for multi-million dollar tax fraud scheme](https://www.yahoo.com/news/owner-restaurants-mass-nh-sentenced-194228283.html)
+- Jan 18 - [Ex-49er Dana Stubblefield to remain in prison for now after judge denies bail ruling](https://www.yahoo.com/news/ex-49er-dana-stubblefield-remain-010054169.html)
+- Jan 17 - [Van carrying several children flips multiple times after crash on I-75; lanes reopen](https://www.yahoo.com/news/van-carrying-several-children-flips-195320921.html)
 <!-- feed end -->
 
 ### Onstream
