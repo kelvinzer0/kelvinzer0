@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Goebbels bullied me for failing to praise Mussolini, say diaries of Hitler’s ‘English girlfriend’](https://www.yahoo.com/news/goebbels-bullied-failing-praise-mussolini-184918269.html)
-- Jan 18 - [She left her puppy with a top-rated sitter while she went on vacation. Her dog has been missing for 2 weeks](https://www.yahoo.com/lifestyle/she-left-her-puppy-top-162006177.html)
+- Jan 18 - [Retirement expert details the 'highest single correlation' to success](https://finance.yahoo.com/news/retirement-expert-details-the-highest-single-correlation-to-success-180125232.html)
+- Jan 18 - [Will Portland see snow in late January? NOAA weather outlook released](https://www.yahoo.com/news/portland-see-snow-january-noaa-180000999.html)
+- Jan 18 - [Troopers searching for driver who caused deadly, fiery crash at Florida intersection](https://www.yahoo.com/news/troopers-searching-driver-caused-deadly-161458222.html)
 - Jan 18 - [I'm a pilot flying a DC-10 fire bomber to battle the LA fires. This is what I've seen — and this is what needs to stop.](https://www.yahoo.com/news/im-pilot-fighting-ca-wildfires-115002768.html)
 - Jan 18 - [Two Iranian ‘judges of death’ gunned down in Tehran](https://www.yahoo.com/news/two-iranian-judges-death-gunned-125546553.html)
-- Jan 18 - [‘Landlords win either way’: Gordon Ramsay exposes how commercial property owners grow their riches no matter what](https://finance.yahoo.com/news/landlords-win-either-way-gordon-140400336.html)
 <!-- feed end -->
 
 ### Onstream
