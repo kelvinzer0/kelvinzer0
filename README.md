@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [Baltimore mentors want to ensure ‘Safe Passage’ to school. Nearby businesses say violence, disruption is frequent.](https://www.yahoo.com/news/baltimore-mentors-want-ensure-safe-100000595.html)
+- Jan 19 - [Prediction: This Stock Will Be the Biggest Quantum Computing Winner of 2025](https://finance.yahoo.com/news/prediction-stock-biggest-quantum-computing-090500314.html)
 - Jan 19 - [Taliban deputy tells leader there is no excuse for education bans on Afghan women and girls](https://www.yahoo.com/news/taliban-deputy-tells-leader-no-071805690.html)
-- Jan 19 - [India's pioneering female anthropologist who challenged Nazi race theories](https://www.yahoo.com/news/indias-pioneering-female-anthropologist-challenged-042807984.html)
 - Jan 19 - [Two Chicago priests under investigation for alleged sexual abuse of minors: archdiocese](https://www.yahoo.com/news/two-chicago-priests-under-investigation-003016404.html)
 - Jan 18 - [Exclusive-German ambassador warns of Trump plan to redefine constitutional order, document shows](https://www.yahoo.com/news/exclusive-german-ambassador-warns-trump-230455588.html)
-- Jan 18 - [Trump flies on Air Force plane to Washington as Biden sticks to tradition](https://www.yahoo.com/news/trump-flies-air-force-plane-222323767.html)
 <!-- feed end -->
 
 ### Onstream
