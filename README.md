@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [Is the Nasdaq Headed for a Correction? 3 High-Flying AI Stocks to Buy if Prices Fall.](https://finance.yahoo.com/news/nasdaq-headed-correction-3-high-120000064.html)
 - Jan 19 - [Taliban deputy tells leader there is no excuse for education bans on Afghan women and girls](https://www.yahoo.com/news/taliban-deputy-tells-leader-no-071805690.html)
 - Jan 19 - [Assassination of an escort leads to miniskirt ban in world’s least popular parliament](https://www.yahoo.com/news/escort-murder-miniskirt-ban-parliamentary-060000006.html)
+- Jan 19 - [Japan’s elderly are lonely and struggling. Some women choose to go to jail instead](https://www.yahoo.com/news/japan-elderly-lonely-struggling-women-012005066.html)
 - Jan 19 - [Two Chicago priests under investigation for alleged sexual abuse of minors: archdiocese](https://www.yahoo.com/news/two-chicago-priests-under-investigation-003016404.html)
-- Jan 18 - [Exclusive-German ambassador warns of Trump plan to redefine constitutional order, document shows](https://www.yahoo.com/news/exclusive-german-ambassador-warns-trump-230455588.html)
-- Jan 18 - [Trump flies on Air Force plane to Washington as Biden sticks to tradition](https://www.yahoo.com/news/trump-flies-air-force-plane-222323767.html)
 <!-- feed end -->
 
 ### Onstream
