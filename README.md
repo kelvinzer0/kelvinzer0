@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [VPNs not a workaround for U.S. TikTok ban](https://www.yahoo.com/news/vpns-not-workaround-u-tiktok-175138187.html)
-- Jan 19 - [Boston police officer hospitalized after being bitten by dog during drug bust in Dorchester](https://www.yahoo.com/news/boston-police-officer-hospitalized-being-173101507.html)
-- Jan 19 - [Heavy snow forecast Jan. 19 for parts of Western NC, dangerous cold expected overnight](https://www.yahoo.com/news/heavy-snow-forecast-jan-19-171029012.html)
-- Jan 19 - [Billionaires Are Selling Nvidia and Buying a Bitcoin ETF That Cathie Wood Thinks Could Soar Up to 3,700%](https://finance.yahoo.com/news/billionaires-selling-nvidia-buying-bitcoin-155100923.html)
-- Jan 19 - [People Who Were Fired On Day One Of A New Job Are Sharing How Badly They Messed Up, And It’s So Messy](https://www.yahoo.com/lifestyle/people-were-fired-day-one-143102073.html)
+- Jan 19 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://autos.yahoo.com/m-mechanic-3-pickup-trucks-180118634.html)
+- Jan 19 - [Speaker Johnson ‘won’t commit’ to disaster relief for California without conditions](https://www.yahoo.com/news/speaker-johnson-won-t-commit-142424080.html)
+- Jan 19 - [The stock market has never looked like this before — regardless of who's president](https://finance.yahoo.com/news/the-stock-market-has-never-looked-like-this-before--regardless-of-whos-president-140021170.html)
+- Jan 19 - [Gambling ad featuring porn star Bonnie Blue prompts call for crackdown](https://www.yahoo.com/news/gambling-ad-featuring-porn-star-135920415.html)
+- Jan 19 - [Who are the Israelis released on the first day of the ceasefire?](https://www.yahoo.com/news/israelis-released-recovered-first-day-134458793.html)
 <!-- feed end -->
 
 ### Onstream
