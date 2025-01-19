@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [AI Agents Are Coming in 2025. Here's My Top Stock Pick To Capitalize on the Next Wave of AI Investing.](https://finance.yahoo.com/news/ai-agents-coming-2025-heres-134500720.html)
-- Jan 19 - [Winter storm expected to bring up to 9 inches of snow to parts of Mass. on Sunday afternoon](https://www.yahoo.com/news/winter-storm-expected-bring-9-124956263.html)
-- Jan 19 - [Rivian: Buy, Sell, or Hold?](https://finance.yahoo.com/news/rivian-buy-sell-hold-124500754.html)
+- Jan 19 - [Biden pardons five people including late civil rights leader Marcus Garvey](https://www.yahoo.com/news/biden-pardons-five-people-including-133215016.html)
 - Jan 19 - [‘Lady McBiden’: Alexandra Pelosi Blasts the First Lady](https://www.yahoo.com/news/lady-mcbiden-alexandra-pelosi-blasts-120000263.html)
 - Jan 19 - [Wash your hands with soap and water, drink green tea and skip red meat — plus 7 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/wash-your-hands-with-soap-and-water-drink-green-tea-and-skip-red-meat--plus-7-more-health-tips-to-help-you-have-a-great-week-100001533.html)
+- Jan 19 - [Gaza ceasefire delayed as Hamas fails to provide names of first hostages to be freed](https://www.yahoo.com/news/gaza-ceasefire-delayed-hamas-fails-084030292.html)
+- Jan 19 - [Taliban deputy tells leader there is no excuse for education bans on Afghan women and girls](https://www.yahoo.com/news/taliban-deputy-tells-leader-no-071805690.html)
 <!-- feed end -->
 
 ### Onstream
