@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Biden's efforts to show 'vigor' backfired, showed his advanced age: Report](https://www.yahoo.com/news/bidens-efforts-show-vigor-backfired-190427329.html)
+- Jan 18 - [Exclusive-German ambassador warns of Trump plan to redefine constitutional order, document shows](https://www.yahoo.com/news/exclusive-german-ambassador-warns-trump-230455588.html)
+- Jan 18 - [Trump flies on Air Force plane to Washington as Biden sticks to tradition](https://www.yahoo.com/news/trump-flies-air-force-plane-222323767.html)
+- Jan 18 - [Rutgers places women's gymnastics coach on leave after report detailing volatile team environment](https://sports.yahoo.com/rutgers-places-womens-gymnastics-coach-200840864.html)
 - Jan 18 - [Retirement expert details the 'highest single correlation' to success](https://finance.yahoo.com/news/retirement-expert-details-the-highest-single-correlation-to-success-180125232.html)
 - Jan 18 - [Will Portland see snow in late January? NOAA weather outlook released](https://www.yahoo.com/news/portland-see-snow-january-noaa-180000999.html)
-- Jan 18 - [United Airlines flight makes emergency landing at Newark Airport](https://www.yahoo.com/news/united-airlines-flight-makes-emergency-174430172.html)
-- Jan 18 - [Troopers searching for driver who caused deadly, fiery crash at Florida intersection](https://www.yahoo.com/news/troopers-searching-driver-caused-deadly-161458222.html)
 <!-- feed end -->
 
 ### Onstream
