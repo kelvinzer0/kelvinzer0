@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [AI Agents Are Coming in 2025. Here's My Top Stock Pick To Capitalize on the Next Wave of AI Investing.](https://finance.yahoo.com/news/ai-agents-coming-2025-heres-134500720.html)
+- Jan 19 - [Winter storm expected to bring up to 9 inches of snow to parts of Mass. on Sunday afternoon](https://www.yahoo.com/news/winter-storm-expected-bring-9-124956263.html)
+- Jan 19 - [Rivian: Buy, Sell, or Hold?](https://finance.yahoo.com/news/rivian-buy-sell-hold-124500754.html)
 - Jan 19 - [‘Lady McBiden’: Alexandra Pelosi Blasts the First Lady](https://www.yahoo.com/news/lady-mcbiden-alexandra-pelosi-blasts-120000263.html)
 - Jan 19 - [Wash your hands with soap and water, drink green tea and skip red meat — plus 7 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/wash-your-hands-with-soap-and-water-drink-green-tea-and-skip-red-meat--plus-7-more-health-tips-to-help-you-have-a-great-week-100001533.html)
-- Jan 19 - [Trump didn't wait to be sworn in to start breaking his campaign promises to you | Opinion](https://www.yahoo.com/news/trump-didnt-wait-sworn-start-090230030.html)
-- Jan 19 - [Taliban deputy tells leader there is no excuse for education bans on Afghan women and girls](https://www.yahoo.com/news/taliban-deputy-tells-leader-no-071805690.html)
-- Jan 19 - [Assassination of an escort leads to miniskirt ban in world’s least popular parliament](https://www.yahoo.com/news/escort-murder-miniskirt-ban-parliamentary-060000006.html)
 <!-- feed end -->
 
 ### Onstream
