@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [India's pioneering female anthropologist who challenged Nazi race theories](https://www.yahoo.com/news/indias-pioneering-female-anthropologist-challenged-042807984.html)
 - Jan 18 - [Exclusive-German ambassador warns of Trump plan to redefine constitutional order, document shows](https://www.yahoo.com/news/exclusive-german-ambassador-warns-trump-230455588.html)
+- Jan 18 - [‘Immediate danger to anyone present there’: City closes occupied Wichita hotel](https://www.yahoo.com/news/immediate-danger-anyone-present-city-224351180.html)
 - Jan 18 - [Trump flies on Air Force plane to Washington as Biden sticks to tradition](https://www.yahoo.com/news/trump-flies-air-force-plane-222323767.html)
-- Jan 18 - [The One Habit Oncologists Wish Everyone Would Quit By 50](https://www.yahoo.com/lifestyle/one-habit-oncologists-wish-everyone-202500386.html)
 - Jan 18 - [Rutgers places women's gymnastics coach on leave after report detailing volatile team environment](https://sports.yahoo.com/rutgers-places-womens-gymnastics-coach-200840864.html)
-- Jan 18 - [Retirement expert details the 'highest single correlation' to success](https://finance.yahoo.com/news/retirement-expert-details-the-highest-single-correlation-to-success-180125232.html)
 <!-- feed end -->
 
 ### Onstream
