@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [Eggs recalled in many provinces across Canada over salmonella concerns — here's what you should know](https://www.yahoo.com/lifestyle/eggs-recalled-in-many-provinces-across-canada-over-salmonella-concerns--heres-what-you-should-know-203213129.html)
-- Jan 19 - [Porsche Cayman Running From Police Causes Fatal Crash](https://autos.yahoo.com/porsche-cayman-running-police-causes-190000369.html)
+- Jan 19 - [As first Israeli hostages are released, Hamas sends a message: It is far from being destroyed](https://www.yahoo.com/news/first-israeli-hostages-released-hamas-193517832.html)
+- Jan 19 - [A WINTER STORM WARNING and a WINTER WEATHER ADVISORY in effect! The heaviest snow falls between 6pm and Midnight!](https://www.yahoo.com/news/accumulating-plowable-snow-afternoon-evening-095155353.html)
 - Jan 19 - [Israeli media: Freed hostage Damari lost two fingers during captivity](https://www.yahoo.com/news/israeli-media-freed-hostage-damari-192658637.html)
+- Jan 19 - [How Does Your Nest Egg Stack Up? Here's What It Takes To Be In The Top 10% Of Retirement Savers](https://finance.yahoo.com/news/does-nest-egg-stack-heres-190038978.html)
 - Jan 19 - [Lindsey Graham Berates CBS Host for Tough Questions: ‘Worry About Reporting the News Fairly’](https://www.yahoo.com/news/lindsey-graham-berates-cbs-host-183752592.html)
-- Jan 19 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://autos.yahoo.com/m-mechanic-3-pickup-trucks-180118634.html)
 <!-- feed end -->
 
 ### Onstream
