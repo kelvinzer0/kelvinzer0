@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [The Playbook: AI is shaping hiring decisions as more workers start looking for jobs](https://finance.yahoo.com/news/playbook-ai-shaping-hiring-decisions-214051653.html)
 - Jan 19 - [As first Israeli hostages are released, Hamas sends a message: It is far from being destroyed](https://www.yahoo.com/news/first-israeli-hostages-released-hamas-193517832.html)
-- Jan 19 - [A WINTER STORM WARNING and a WINTER WEATHER ADVISORY in effect! The heaviest snow falls between 6pm and Midnight!](https://www.yahoo.com/news/accumulating-plowable-snow-afternoon-evening-095155353.html)
 - Jan 19 - [Israeli media: Freed hostage Damari lost two fingers during captivity](https://www.yahoo.com/news/israeli-media-freed-hostage-damari-192658637.html)
-- Jan 19 - [How Does Your Nest Egg Stack Up? Here's What It Takes To Be In The Top 10% Of Retirement Savers](https://finance.yahoo.com/news/does-nest-egg-stack-heres-190038978.html)
 - Jan 19 - [Lindsey Graham Berates CBS Host for Tough Questions: ‘Worry About Reporting the News Fairly’](https://www.yahoo.com/news/lindsey-graham-berates-cbs-host-183752592.html)
+- Jan 19 - [Attorneys for LDS Church appear in federal court, seek to dismiss tithing fraud lawsuit](https://www.yahoo.com/news/attorneys-lds-church-appear-federal-174303019.html)
 <!-- feed end -->
 
 ### Onstream
