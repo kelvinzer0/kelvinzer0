@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [The stock market has never looked like this before — regardless of who's president](https://finance.yahoo.com/news/the-stock-market-has-never-looked-like-this-before--regardless-of-whos-president-140021170.html)
+- Jan 19 - [Chinese app Xiaohongshu springs to U.S. dominance as TikTok ban takes effect](https://www.yahoo.com/news/chinese-app-xiaohongshu-springs-u-162147232.html)
 - Jan 19 - [Gambling ad featuring porn star Bonnie Blue prompts call for crackdown](https://www.yahoo.com/news/gambling-ad-featuring-porn-star-135920415.html)
-- Jan 19 - [Biden pardons five people including late civil rights leader Marcus Garvey](https://www.yahoo.com/news/biden-pardons-five-people-including-133215016.html)
+- Jan 19 - [Who are the Israelis released on the first day of the ceasefire?](https://www.yahoo.com/news/israelis-released-recovered-first-day-134458793.html)
+- Jan 19 - ['Shock and awe': Trump plans 100 immediate executive actions. Here's what could be coming.](https://www.yahoo.com/news/shock-awe-trump-plans-100-134241993.html)
 - Jan 19 - [‘Lady McBiden’: Alexandra Pelosi Blasts the First Lady](https://www.yahoo.com/news/lady-mcbiden-alexandra-pelosi-blasts-120000263.html)
-- Jan 19 - [Syrian defence minister rejects Kurdish proposal for its own military bloc](https://www.yahoo.com/news/syrian-defence-minister-rejects-kurdish-110852932.html)
 <!-- feed end -->
 
 ### Onstream
