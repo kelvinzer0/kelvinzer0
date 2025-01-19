@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://autos.yahoo.com/m-mechanic-3-pickup-trucks-180118634.html)
-- Jan 19 - [Speaker Johnson ‘won’t commit’ to disaster relief for California without conditions](https://www.yahoo.com/news/speaker-johnson-won-t-commit-142424080.html)
-- Jan 19 - [The stock market has never looked like this before — regardless of who's president](https://finance.yahoo.com/news/the-stock-market-has-never-looked-like-this-before--regardless-of-whos-president-140021170.html)
-- Jan 19 - [Gambling ad featuring porn star Bonnie Blue prompts call for crackdown](https://www.yahoo.com/news/gambling-ad-featuring-porn-star-135920415.html)
-- Jan 19 - [Who are the Israelis released on the first day of the ceasefire?](https://www.yahoo.com/news/israelis-released-recovered-first-day-134458793.html)
+- Jan 19 - [Nigerian gasoline tanker explosion death toll rises to 86, with 55 others injured](https://www.yahoo.com/news/nigerian-gasoline-tanker-explosion-death-195150282.html)
+- Jan 19 - [Lindsey Graham Berates CBS Host for Tough Questions: ‘Worry About Reporting the News Fairly’](https://www.yahoo.com/news/lindsey-graham-berates-cbs-host-183752592.html)
+- Jan 19 - [Pardoned by Biden: ‘I dropped to my knees and I thanked God’](https://www.yahoo.com/news/pardoned-biden-dropped-knees-thanked-180424045.html)
+- Jan 19 - [Hamas armed wing says abiding by Gaza ceasefire deal, success hinges on Israeli commitment](https://www.yahoo.com/news/hamas-armed-wing-says-abiding-165653635.html)
+- Jan 19 - [Billionaires Are Selling Nvidia and Buying a Bitcoin ETF That Cathie Wood Thinks Could Soar Up to 3,700%](https://finance.yahoo.com/news/billionaires-selling-nvidia-buying-bitcoin-155100923.html)
 <!-- feed end -->
 
 ### Onstream
