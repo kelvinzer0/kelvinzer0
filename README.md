@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [The stock market has never looked like this before — regardless of who's president](https://finance.yahoo.com/news/the-stock-market-has-never-looked-like-this-before--regardless-of-whos-president-140021170.html)
+- Jan 19 - [Gambling ad featuring porn star Bonnie Blue prompts call for crackdown](https://www.yahoo.com/news/gambling-ad-featuring-porn-star-135920415.html)
 - Jan 19 - [Biden pardons five people including late civil rights leader Marcus Garvey](https://www.yahoo.com/news/biden-pardons-five-people-including-133215016.html)
 - Jan 19 - [‘Lady McBiden’: Alexandra Pelosi Blasts the First Lady](https://www.yahoo.com/news/lady-mcbiden-alexandra-pelosi-blasts-120000263.html)
-- Jan 19 - [Wash your hands with soap and water, drink green tea and skip red meat — plus 7 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/wash-your-hands-with-soap-and-water-drink-green-tea-and-skip-red-meat--plus-7-more-health-tips-to-help-you-have-a-great-week-100001533.html)
-- Jan 19 - [Gaza ceasefire delayed as Hamas fails to provide names of first hostages to be freed](https://www.yahoo.com/news/gaza-ceasefire-delayed-hamas-fails-084030292.html)
-- Jan 19 - [Taliban deputy tells leader there is no excuse for education bans on Afghan women and girls](https://www.yahoo.com/news/taliban-deputy-tells-leader-no-071805690.html)
+- Jan 19 - [Syrian defence minister rejects Kurdish proposal for its own military bloc](https://www.yahoo.com/news/syrian-defence-minister-rejects-kurdish-110852932.html)
 <!-- feed end -->
 
 ### Onstream
