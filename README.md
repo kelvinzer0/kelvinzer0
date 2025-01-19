@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [Nigerian gasoline tanker explosion death toll rises to 86, with 55 others injured](https://www.yahoo.com/news/nigerian-gasoline-tanker-explosion-death-195150282.html)
+- Jan 19 - [Eggs recalled in many provinces across Canada over salmonella concerns — here's what you should know](https://www.yahoo.com/lifestyle/eggs-recalled-in-many-provinces-across-canada-over-salmonella-concerns--heres-what-you-should-know-203213129.html)
+- Jan 19 - [Porsche Cayman Running From Police Causes Fatal Crash](https://autos.yahoo.com/porsche-cayman-running-police-causes-190000369.html)
+- Jan 19 - [Israeli media: Freed hostage Damari lost two fingers during captivity](https://www.yahoo.com/news/israeli-media-freed-hostage-damari-192658637.html)
 - Jan 19 - [Lindsey Graham Berates CBS Host for Tough Questions: ‘Worry About Reporting the News Fairly’](https://www.yahoo.com/news/lindsey-graham-berates-cbs-host-183752592.html)
-- Jan 19 - [Pardoned by Biden: ‘I dropped to my knees and I thanked God’](https://www.yahoo.com/news/pardoned-biden-dropped-knees-thanked-180424045.html)
-- Jan 19 - [Hamas armed wing says abiding by Gaza ceasefire deal, success hinges on Israeli commitment](https://www.yahoo.com/news/hamas-armed-wing-says-abiding-165653635.html)
-- Jan 19 - [Billionaires Are Selling Nvidia and Buying a Bitcoin ETF That Cathie Wood Thinks Could Soar Up to 3,700%](https://finance.yahoo.com/news/billionaires-selling-nvidia-buying-bitcoin-155100923.html)
+- Jan 19 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://autos.yahoo.com/m-mechanic-3-pickup-trucks-180118634.html)
 <!-- feed end -->
 
 ### Onstream
