@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [Is the Nasdaq Headed for a Correction? 3 High-Flying AI Stocks to Buy if Prices Fall.](https://finance.yahoo.com/news/nasdaq-headed-correction-3-high-120000064.html)
+- Jan 19 - [‘Lady McBiden’: Alexandra Pelosi Blasts the First Lady](https://www.yahoo.com/news/lady-mcbiden-alexandra-pelosi-blasts-120000263.html)
+- Jan 19 - [Wash your hands with soap and water, drink green tea and skip red meat — plus 7 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/wash-your-hands-with-soap-and-water-drink-green-tea-and-skip-red-meat--plus-7-more-health-tips-to-help-you-have-a-great-week-100001533.html)
+- Jan 19 - [Trump didn't wait to be sworn in to start breaking his campaign promises to you | Opinion](https://www.yahoo.com/news/trump-didnt-wait-sworn-start-090230030.html)
 - Jan 19 - [Taliban deputy tells leader there is no excuse for education bans on Afghan women and girls](https://www.yahoo.com/news/taliban-deputy-tells-leader-no-071805690.html)
 - Jan 19 - [Assassination of an escort leads to miniskirt ban in world’s least popular parliament](https://www.yahoo.com/news/escort-murder-miniskirt-ban-parliamentary-060000006.html)
-- Jan 19 - [Japan’s elderly are lonely and struggling. Some women choose to go to jail instead](https://www.yahoo.com/news/japan-elderly-lonely-struggling-women-012005066.html)
-- Jan 19 - [Two Chicago priests under investigation for alleged sexual abuse of minors: archdiocese](https://www.yahoo.com/news/two-chicago-priests-under-investigation-003016404.html)
 <!-- feed end -->
 
 ### Onstream
