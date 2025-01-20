@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Don Jr. Snubs Girlfriend—Who’d Even Chosen Swearing-In Dress](https://www.yahoo.com/entertainment/don-jr-snubs-girlfriend-d-203621670.html)
+- Jan 20 - [Exclusive-Trump administration canceling flights for nearly 1,660 Afghan refugees, say U.S official, advocate](https://www.yahoo.com/news/exclusive-trump-administration-canceling-flights-220249333.html)
+- Jan 20 - [Donald Trump Didn't Place Hand On Bible During Presidential Oath Of Office](https://www.yahoo.com/news/donald-trump-didnt-place-hand-210626528.html)
+- Jan 20 - [World reacts to Trump's plan to withdraw US from Paris climate pact](https://www.yahoo.com/news/world-reacts-trumps-plan-withdraw-210558840.html)
 - Jan 20 - [Trump Slams ‘Crying’ Liz Cheney and Frees J6 ‘Hostages’](https://www.yahoo.com/news/trump-slams-crying-liz-cheney-202012067.html)
-- Jan 20 - [McCarthy slams Gaetz and links actions to ethics report](https://www.yahoo.com/news/mccarthy-slams-gaetz-links-actions-192933171.html)
-- Jan 20 - [Trump, in his inaugural address, rips into the country's past leaders and makes sweeping promises](https://www.yahoo.com/news/trump-inaugural-address-rips-countrys-175342379.html)
-- Jan 20 - [Barron Trump’s White Glove Tailor Describes What He Really Likes](https://www.yahoo.com/lifestyle/barron-trump-white-glove-tailor-174323952.html)
+- Jan 20 - [Russian BTR-82 Had A Spectacular Misfire On The Battlefield In Ukraine](https://www.yahoo.com/news/russian-btr-82-had-spectacular-194204010.html)
 <!-- feed end -->
 
 ### Onstream
