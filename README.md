@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Husband, 81, shot dead his wife, 80, in their bed after an argument, cops say](https://www.yahoo.com/news/husband-81-shot-dead-wife-181445059.html)
-- Jan 20 - [Gazans face mountains of rubble as they look to rebuild homes](https://www.yahoo.com/news/gazans-face-mountains-rubble-look-175424610.html)
+- Jan 20 - [General Wesley Clark's one key to be an effective leader](https://finance.yahoo.com/video/general-wesley-clarks-one-key-200035329.html)
+- Jan 20 - [Alaska Bartender Kicked Out Customer to Protect Coworker From Harassment. Months Later, He’s Found Dead](https://www.yahoo.com/news/alaska-bartender-kicked-customer-protect-192604305.html)
+- Jan 20 - [Trump pledges unity in inaugural address by immediately attacking fellow Americans | Opinion](https://www.yahoo.com/news/trump-pledges-unity-inaugural-address-185007355.html)
+- Jan 20 - [Trump mentions Houston on Inauguration speech | CW39 HOUSTON](https://www.yahoo.com/news/trump-mentions-houston-inauguration-speech-183529898.html)
 - Jan 20 - [Trump, in his inaugural address, rips into the country's past leaders and makes sweeping promises](https://www.yahoo.com/news/trump-inaugural-address-rips-countrys-175342379.html)
-- Jan 20 - [Sen. John Fetterman Wears Shorts and Sneakers to Trump's Inauguration and Sits in the Front Row](https://www.yahoo.com/news/sen-john-fetterman-wears-shorts-171011835.html)
-- Jan 20 - [President Biden pardons brother James, other relatives for unspecified crimes before leaving office](https://www.yahoo.com/news/president-biden-pardons-brother-james-164941346.html)
 <!-- feed end -->
 
 ### Onstream
