@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Biden commutes sentence for Indigenous activist Leonard Peltier, convicted in killing of FBI agents](https://www.yahoo.com/news/biden-commutes-sentence-indigenous-activist-164648815.html)
-- Jan 20 - [NewsChannel 5 says it 'actively' worked to keep popular meteorologist Bree Smith on the air](https://www.yahoo.com/news/newschannel-5-says-actively-worked-161933342.html)
-- Jan 20 - [Inside the Mystery of Girl Who Vanished from Her Mom’s Home — Then Reappeared 700 Miles Away, 22 Years Later](https://www.yahoo.com/entertainment/inside-mystery-girl-vanished-her-160920710.html)
-- Jan 20 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Cloud Capital Spending In Focus.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jan 20 - [How much snow did we get in south-central PA? Here are totals across the region](https://www.yahoo.com/news/much-snow-did-south-central-143939910.html)
+- Jan 20 - [Trucks loaded with oil derivatives and supplies enter Rafah city](https://www.yahoo.com/news/trucks-loaded-oil-derivatives-supplies-175606925.html)
+- Jan 20 - [Georgia winter storm: What to know now about the timing, snow amounts for Tuesday](https://www.yahoo.com/news/georgia-winter-storm-know-now-132601536.html)
+- Jan 20 - [Sen. John Fetterman Wears Shorts and Sneakers to Trump's Inauguration and Sits in the Front Row](https://www.yahoo.com/news/sen-john-fetterman-wears-shorts-171011835.html)
+- Jan 20 - [President Biden pardons brother James, other relatives for unspecified crimes before leaving office](https://www.yahoo.com/news/president-biden-pardons-brother-james-164941346.html)
+- Jan 20 - [Bree Smith's NewsChannel 5 exit came after station says it 'actively' worked to keep her](https://www.yahoo.com/news/newschannel-5-says-actively-worked-161933342.html)
 <!-- feed end -->
 
 ### Onstream
