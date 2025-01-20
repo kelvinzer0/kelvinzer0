@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [The Playbook: AI is shaping hiring decisions as more workers start looking for jobs](https://finance.yahoo.com/news/playbook-ai-shaping-hiring-decisions-214051653.html)
-- Jan 19 - [As first Israeli hostages are released, Hamas sends a message: It is far from being destroyed](https://www.yahoo.com/news/first-israeli-hostages-released-hamas-193517832.html)
-- Jan 19 - [Israeli media: Freed hostage Damari lost two fingers during captivity](https://www.yahoo.com/news/israeli-media-freed-hostage-damari-192658637.html)
-- Jan 19 - [Lindsey Graham Berates CBS Host for Tough Questions: ‘Worry About Reporting the News Fairly’](https://www.yahoo.com/news/lindsey-graham-berates-cbs-host-183752592.html)
-- Jan 19 - [Attorneys for LDS Church appear in federal court, seek to dismiss tithing fraud lawsuit](https://www.yahoo.com/news/attorneys-lds-church-appear-federal-174303019.html)
+- Jan 19 - [Elizabeth Nissen, Veteran ABC News Correspondent, Dies at 71](https://www.yahoo.com/news/elizabeth-nissen-veteran-abc-news-233312006.html)
+- Jan 19 - [Pensacola area begins to shut down: Cancellations spread across area](https://www.yahoo.com/news/pensacola-area-begins-shut-down-204406585.html)
+- Jan 19 - [Scientists Discover Bacteria Trapped in Endless Evolutionary Time Loop](https://www.yahoo.com/news/scientists-discover-bacteria-trapped-endless-200055198.html)
+- Jan 19 - [Video shows three Israeli hostages in Israel as fragile ceasefire passes first hurdle](https://www.yahoo.com/news/video-shows-three-israeli-hostages-180705312.html)
+- Jan 19 - [Pardoned by Biden: ‘I dropped to my knees and I thanked God’](https://www.yahoo.com/news/pardoned-biden-dropped-knees-thanked-180424045.html)
 <!-- feed end -->
 
 ### Onstream
