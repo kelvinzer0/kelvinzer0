@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Biden commutes sentence for Indigenous activist Leonard Peltier, convicted in killing of FBI agents](https://www.yahoo.com/news/biden-commutes-sentence-indigenous-activist-164648815.html)
+- Jan 20 - [NewsChannel 5 says it 'actively' worked to keep popular meteorologist Bree Smith on the air](https://www.yahoo.com/news/newschannel-5-says-actively-worked-161933342.html)
+- Jan 20 - [Inside the Mystery of Girl Who Vanished from Her Mom’s Home — Then Reappeared 700 Miles Away, 22 Years Later](https://www.yahoo.com/entertainment/inside-mystery-girl-vanished-her-160920710.html)
+- Jan 20 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Cloud Capital Spending In Focus.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
 - Jan 20 - [How much snow did we get in south-central PA? Here are totals across the region](https://www.yahoo.com/news/much-snow-did-south-central-143939910.html)
-- Jan 20 - [Trump to sign orders ending diversity programs, proclaim there are only two sexes](https://www.yahoo.com/news/trump-sign-orders-ending-diversity-142300793.html)
-- Jan 20 - [Trump Really Is Renaming the Gulf of Mexico on Day 1 of MAGA 2.0](https://www.yahoo.com/news/trump-really-renaming-gulf-mexico-141808734.html)
-- Jan 20 - [Hamas gave the three hostages ‘gift bags’ upon their release. This is what was inside](https://www.yahoo.com/news/hamas-gave-three-hostages-gift-132423253.html)
-- Jan 20 - [A sample from a remote Tanzanian region tests positive for Marburg disease, confirming WHO fears](https://www.yahoo.com/news/sample-remote-tanzanian-region-tests-130708248.html)
 <!-- feed end -->
 
 ### Onstream
