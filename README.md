@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Nvidia Stock Is Poised to Be a Big Winner From Humanoid Robots, Which Are Coming Faster Than Many People Probably Realize](https://finance.yahoo.com/news/nvidia-stock-poised-big-winner-103000310.html)
+- Jan 20 - [Meta Says No Changes to Fact-Checking in Europe for Now](https://finance.yahoo.com/video/meta-says-no-changes-fact-101517103.html)
+- Jan 20 - [Alabama freeze: Montgomery opens warming station, ALEA warns of driving hazards](https://www.yahoo.com/news/alabama-freeze-montgomery-opens-warming-101056047.html)
+- Jan 20 - [Iranian Pop Star Tataloo Sentenced to Death for “Blasphemy” (Reports)](https://www.yahoo.com/news/iranian-pop-star-tataloo-sentenced-095835242.html)
 - Jan 20 - [Hamas gives hostages ‘goody bags’ with signed certificates of captivity](https://www.yahoo.com/news/hamas-gives-hostages-gift-bags-055309118.html)
-- Jan 20 - [Waymo among vehicles hit in deadly 7-car crash in San Francisco](https://www.yahoo.com/news/waymo-among-vehicles-hit-deadly-032314583.html)
-- Jan 20 - [My Son's Birth Was Nearly Perfect, But Days Later I Almost Died. These Are The Symptoms You Should Never Ignore.](https://www.yahoo.com/lifestyle/sons-birth-nearly-perfect-days-023102532.html)
-- Jan 20 - [These South Texas school districts will be closed due to arctic front](https://www.yahoo.com/news/south-texas-school-districts-closed-001733332.html)
-- Jan 19 - [Trump says he will quickly release JFK, Robert Kennedy, MLK assassination files](https://www.yahoo.com/news/trump-says-quickly-release-jfk-233658811.html)
 <!-- feed end -->
 
 ### Onstream
