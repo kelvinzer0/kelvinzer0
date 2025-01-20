@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Vice President Han Zheng, China's representative at Trump's inauguration, is a trusted adviser to Xi](https://www.yahoo.com/news/vice-president-han-zheng-chinas-084323198.html)
 - Jan 20 - [Hamas gives hostages ‘gift bags’ with signed certificates of captivity](https://www.yahoo.com/news/hamas-gives-hostages-gift-bags-055309118.html)
-- Jan 20 - [Ukraine's military chief says Russia has 'practically halved' artillery ammo usage after its production lines and depots were hit](https://www.yahoo.com/news/ukraines-military-chief-says-russia-045915503.html)
+- Jan 20 - [Waymo among vehicles hit in deadly 7-car crash in San Francisco](https://www.yahoo.com/news/waymo-among-vehicles-hit-deadly-032314583.html)
 - Jan 20 - [Powerball ticket worth $328.5 million sold in Oregon](https://www.yahoo.com/news/powerball-ticket-worth-328-5-023330134.html)
 - Jan 20 - [My Son's Birth Was Nearly Perfect, But Days Later I Almost Died. These Are The Symptoms You Should Never Ignore.](https://www.yahoo.com/lifestyle/sons-birth-nearly-perfect-days-023102532.html)
-- Jan 20 - [He pulled up to Palisades fire with a fire engine and an offer to help. It was fake, authorities say](https://www.yahoo.com/news/pulled-palisades-fire-fire-engine-001837395.html)
 <!-- feed end -->
 
 ### Onstream
