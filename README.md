@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [My Son's Birth Was Nearly Perfect, But Days Later I Almost Died. These Are The Symptoms You Should Never Ignore.](https://www.yahoo.com/lifestyle/sons-birth-nearly-perfect-days-023102532.html)
-- Jan 20 - [People Are Sharing Wild Medical Facts Most People Don't Know About, And You Should Probably Read These](https://www.yahoo.com/lifestyle/people-sharing-wild-medical-facts-021602088.html)
-- Jan 20 - [Chicago weather: Wind chills plunge to -25, Cold Weather Advisory issued](https://www.yahoo.com/news/chicago-weather-wind-chills-plunge-014040810.html)
-- Jan 19 - [Elizabeth Nissen, Veteran ABC News Correspondent, Dies at 71](https://www.yahoo.com/news/elizabeth-nissen-veteran-abc-news-233312006.html)
-- Jan 19 - [Scientists Discover Bacteria Trapped in Endless Evolutionary Time Loop](https://www.yahoo.com/news/scientists-discover-bacteria-trapped-endless-200055198.html)
+- Jan 20 - [Hamas gives hostages ‘gift bags’ with signed certificates of captivity](https://www.yahoo.com/news/hamas-gives-hostages-gift-bags-055309118.html)
+- Jan 20 - [Israeli Hostages Reunite With Family in Israel After 471 Days in Captivity](https://www.yahoo.com/news/israeli-hostages-reunite-family-israel-054838021.html)
+- Jan 19 - [South MS braces for first big snowfall in decades. Stay home, emergency managers urge](https://www.yahoo.com/news/south-ms-braces-first-big-205416509.html)
+- Jan 19 - [Pardoned by Biden: ‘I dropped to my knees and I thanked God’](https://www.yahoo.com/news/pardoned-biden-dropped-knees-thanked-180424045.html)
+- Jan 19 - [Attorneys for LDS Church appear in federal court, seek to dismiss tithing fraud lawsuit](https://www.yahoo.com/news/attorneys-lds-church-appear-federal-174303019.html)
 <!-- feed end -->
 
 ### Onstream
