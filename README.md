@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Powerball ticket worth $328.5 million sold in Oregon](https://www.yahoo.com/news/powerball-ticket-worth-328-5-023330134.html)
 - Jan 20 - [People Are Sharing Wild Medical Facts Most People Don't Know About, And You Should Probably Read These](https://www.yahoo.com/lifestyle/people-sharing-wild-medical-facts-021602088.html)
-- Jan 20 - [A WINTER STORM WARNING and a WINTER WEATHER ADVISORY in effect! The heaviest snow falls between 6pm and Midnight!](https://www.yahoo.com/news/accumulating-plowable-snow-afternoon-evening-095155353.html)
+- Jan 20 - [These South Texas school districts will be closed due to arctic front](https://www.yahoo.com/news/south-texas-school-districts-closed-001733332.html)
+- Jan 19 - [Elizabeth Nissen, Veteran ABC News Correspondent, Dies at 71](https://www.yahoo.com/news/elizabeth-nissen-veteran-abc-news-233312006.html)
 - Jan 19 - [Pensacola area begins to shut down: Cancellations spread across area](https://www.yahoo.com/news/pensacola-area-begins-shut-down-204406585.html)
-- Jan 19 - [Scientists Discover Bacteria Trapped in Endless Evolutionary Time Loop](https://www.yahoo.com/news/scientists-discover-bacteria-trapped-endless-200055198.html)
-- Jan 19 - [Israeli media: Freed hostage Damari lost two fingers during captivity](https://www.yahoo.com/news/israeli-media-freed-hostage-damari-192658637.html)
 <!-- feed end -->
 
 ### Onstream
