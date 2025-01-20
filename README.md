@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Nvidia Stock Is Poised to Be a Big Winner From Humanoid Robots, Which Are Coming Faster Than Many People Probably Realize](https://finance.yahoo.com/news/nvidia-stock-poised-big-winner-103000310.html)
-- Jan 20 - [Meta Says No Changes to Fact-Checking in Europe for Now](https://finance.yahoo.com/video/meta-says-no-changes-fact-101517103.html)
-- Jan 20 - [Alabama freeze: Montgomery opens warming station, ALEA warns of driving hazards](https://www.yahoo.com/news/alabama-freeze-montgomery-opens-warming-101056047.html)
-- Jan 20 - [Iranian Pop Star Tataloo Sentenced to Death for “Blasphemy” (Reports)](https://www.yahoo.com/news/iranian-pop-star-tataloo-sentenced-095835242.html)
+- Jan 20 - [Philippines’ Laguna Lakeshore Road Network Project secures loan from South Korea](https://finance.yahoo.com/news/philippines-laguna-lakeshore-road-network-121029284.html)
+- Jan 20 - [As first Israeli hostages are released, Hamas sends a message: It is far from being destroyed](https://www.yahoo.com/news/first-israeli-hostages-released-hamas-193517832.html)
 - Jan 20 - [Hamas gives hostages ‘goody bags’ with signed certificates of captivity](https://www.yahoo.com/news/hamas-gives-hostages-gift-bags-055309118.html)
+- Jan 20 - [These South Texas school districts will be closed due to arctic front](https://www.yahoo.com/news/south-texas-school-districts-closed-001733332.html)
+- Jan 19 - [Trump says he will quickly release JFK, Robert Kennedy, MLK assassination files](https://www.yahoo.com/news/trump-says-quickly-release-jfk-233658811.html)
 <!-- feed end -->
 
 ### Onstream
