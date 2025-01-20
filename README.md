@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Harris and Vance meet at White House before inauguration ceremony](https://www.yahoo.com/news/harris-vance-meet-white-house-144240533.html)
-- Jan 20 - [Axel Rudakubana pleads guilty to Southport murders - five key developments](https://www.yahoo.com/news/axel-rudakubana-southport-murders-school-latest-updates-prevent-143235384.html)
+- Jan 20 - [How much snow did we get in south-central PA? Here are totals across the region](https://www.yahoo.com/news/much-snow-did-south-central-143939910.html)
+- Jan 20 - [Trump to sign orders ending diversity programs, proclaim there are only two sexes](https://www.yahoo.com/news/trump-sign-orders-ending-diversity-142300793.html)
+- Jan 20 - [Trump Really Is Renaming the Gulf of Mexico on Day 1 of MAGA 2.0](https://www.yahoo.com/news/trump-really-renaming-gulf-mexico-141808734.html)
 - Jan 20 - [Hamas gave the three hostages ‘gift bags’ upon their release. This is what was inside](https://www.yahoo.com/news/hamas-gave-three-hostages-gift-132423253.html)
 - Jan 20 - [A sample from a remote Tanzanian region tests positive for Marburg disease, confirming WHO fears](https://www.yahoo.com/news/sample-remote-tanzanian-region-tests-130708248.html)
-- Jan 20 - [Biden pardons Fauci and Milley in an effort to guard against potential 'revenge' by Trump](https://www.yahoo.com/news/biden-pardons-fauci-milley-effort-121317946.html)
 <!-- feed end -->
 
 ### Onstream
