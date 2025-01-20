@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Freshmen, but experienced: Two dozen new lawmakers have deep ties to communities](https://www.yahoo.com/news/freshmen-experienced-two-dozen-lawmakers-043400436.html)
+- Jan 20 - [He pulled up to Palisades fire with a fire engine and an offer to help. It was fake, authorities say](https://www.yahoo.com/news/pulled-palisades-fire-fire-engine-001837395.html)
+- Jan 19 - [Trump says he will quickly release JFK, Robert Kennedy, MLK assassination files](https://www.yahoo.com/news/trump-says-quickly-release-jfk-233658811.html)
+- Jan 19 - [Homan says Trump admin ‘reconsidering’ details of Chicago immigration raids after leak](https://www.yahoo.com/news/homan-says-trump-admin-reconsidering-214849484.html)
 - Jan 19 - [Pensacola area begins to shut down: Cancellations spread across area](https://www.yahoo.com/news/pensacola-area-begins-shut-down-204406585.html)
-- Jan 19 - [19 Screenshots Of Clueless Bosses Who Clearly Don’t Understand The Meaning Of Work/Life Balance](https://www.yahoo.com/lifestyle/19-screenshots-clueless-bosses-clearly-202102171.html)
-- Jan 19 - [Scientists Discover Bacteria Trapped in Endless Evolutionary Time Loop](https://www.yahoo.com/news/scientists-discover-bacteria-trapped-endless-200055198.html)
-- Jan 19 - [Video shows three Israeli hostages in Israel as fragile ceasefire passes first hurdle](https://www.yahoo.com/news/video-shows-three-israeli-hostages-180705312.html)
-- Jan 19 - [Pardoned by Biden: ‘I dropped to my knees and I thanked God’](https://www.yahoo.com/news/pardoned-biden-dropped-knees-thanked-180424045.html)
 <!-- feed end -->
 
 ### Onstream
