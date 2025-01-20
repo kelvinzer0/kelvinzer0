@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Freshmen, but experienced: Two dozen new lawmakers have deep ties to communities](https://www.yahoo.com/news/freshmen-experienced-two-dozen-lawmakers-043400436.html)
-- Jan 20 - [He pulled up to Palisades fire with a fire engine and an offer to help. It was fake, authorities say](https://www.yahoo.com/news/pulled-palisades-fire-fire-engine-001837395.html)
-- Jan 19 - [Trump says he will quickly release JFK, Robert Kennedy, MLK assassination files](https://www.yahoo.com/news/trump-says-quickly-release-jfk-233658811.html)
-- Jan 19 - [Homan says Trump admin ‘reconsidering’ details of Chicago immigration raids after leak](https://www.yahoo.com/news/homan-says-trump-admin-reconsidering-214849484.html)
-- Jan 19 - [Pensacola area begins to shut down: Cancellations spread across area](https://www.yahoo.com/news/pensacola-area-begins-shut-down-204406585.html)
+- Jan 20 - [My Son's Birth Was Nearly Perfect, But Days Later I Almost Died. These Are The Symptoms You Should Never Ignore.](https://www.yahoo.com/lifestyle/sons-birth-nearly-perfect-days-023102532.html)
+- Jan 20 - [People Are Sharing Wild Medical Facts Most People Don't Know About, And You Should Probably Read These](https://www.yahoo.com/lifestyle/people-sharing-wild-medical-facts-021602088.html)
+- Jan 20 - [Chicago weather: Wind chills plunge to -25, Cold Weather Advisory issued](https://www.yahoo.com/news/chicago-weather-wind-chills-plunge-014040810.html)
+- Jan 19 - [Elizabeth Nissen, Veteran ABC News Correspondent, Dies at 71](https://www.yahoo.com/news/elizabeth-nissen-veteran-abc-news-233312006.html)
+- Jan 19 - [Scientists Discover Bacteria Trapped in Endless Evolutionary Time Loop](https://www.yahoo.com/news/scientists-discover-bacteria-trapped-endless-200055198.html)
 <!-- feed end -->
 
 ### Onstream
