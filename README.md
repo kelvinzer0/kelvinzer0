@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Trucks loaded with oil derivatives and supplies enter Rafah city](https://www.yahoo.com/news/trucks-loaded-oil-derivatives-supplies-175606925.html)
-- Jan 20 - [Georgia winter storm: What to know now about the timing, snow amounts for Tuesday](https://www.yahoo.com/news/georgia-winter-storm-know-now-132601536.html)
+- Jan 20 - [Husband, 81, shot dead his wife, 80, in their bed after an argument, cops say](https://www.yahoo.com/news/husband-81-shot-dead-wife-181445059.html)
+- Jan 20 - [Gazans face mountains of rubble as they look to rebuild homes](https://www.yahoo.com/news/gazans-face-mountains-rubble-look-175424610.html)
+- Jan 20 - [Trump, in his inaugural address, rips into the country's past leaders and makes sweeping promises](https://www.yahoo.com/news/trump-inaugural-address-rips-countrys-175342379.html)
 - Jan 20 - [Sen. John Fetterman Wears Shorts and Sneakers to Trump's Inauguration and Sits in the Front Row](https://www.yahoo.com/news/sen-john-fetterman-wears-shorts-171011835.html)
 - Jan 20 - [President Biden pardons brother James, other relatives for unspecified crimes before leaving office](https://www.yahoo.com/news/president-biden-pardons-brother-james-164941346.html)
-- Jan 20 - [Bree Smith's NewsChannel 5 exit came after station says it 'actively' worked to keep her](https://www.yahoo.com/news/newschannel-5-says-actively-worked-161933342.html)
 <!-- feed end -->
 
 ### Onstream
