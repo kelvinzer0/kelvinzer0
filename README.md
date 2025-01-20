@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Trump Slams ‘Crying’ Liz Cheney and Frees J6 ‘Hostages’](https://www.yahoo.com/news/trump-slams-crying-liz-cheney-202012067.html)
 - Jan 20 - [General Wesley Clark's one key to be an effective leader](https://finance.yahoo.com/video/general-wesley-clarks-one-key-200035329.html)
+- Jan 20 - [McCarthy slams Gaetz and links actions to ethics report](https://www.yahoo.com/news/mccarthy-slams-gaetz-links-actions-192933171.html)
 - Jan 20 - [Alaska Bartender Kicked Out Customer to Protect Coworker From Harassment. Months Later, He’s Found Dead](https://www.yahoo.com/news/alaska-bartender-kicked-customer-protect-192604305.html)
 - Jan 20 - [Trump pledges unity in inaugural address by immediately attacking fellow Americans | Opinion](https://www.yahoo.com/news/trump-pledges-unity-inaugural-address-185007355.html)
-- Jan 20 - [Trump mentions Houston on Inauguration speech | CW39 HOUSTON](https://www.yahoo.com/news/trump-mentions-houston-inauguration-speech-183529898.html)
-- Jan 20 - [Trump, in his inaugural address, rips into the country's past leaders and makes sweeping promises](https://www.yahoo.com/news/trump-inaugural-address-rips-countrys-175342379.html)
 <!-- feed end -->
 
 ### Onstream
