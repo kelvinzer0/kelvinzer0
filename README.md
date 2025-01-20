@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Powerball ticket worth $328.5 million sold in Oregon](https://www.yahoo.com/news/powerball-ticket-worth-328-5-023330134.html)
-- Jan 20 - [People Are Sharing Wild Medical Facts Most People Don't Know About, And You Should Probably Read These](https://www.yahoo.com/lifestyle/people-sharing-wild-medical-facts-021602088.html)
-- Jan 20 - [These South Texas school districts will be closed due to arctic front](https://www.yahoo.com/news/south-texas-school-districts-closed-001733332.html)
-- Jan 19 - [Elizabeth Nissen, Veteran ABC News Correspondent, Dies at 71](https://www.yahoo.com/news/elizabeth-nissen-veteran-abc-news-233312006.html)
 - Jan 19 - [Pensacola area begins to shut down: Cancellations spread across area](https://www.yahoo.com/news/pensacola-area-begins-shut-down-204406585.html)
+- Jan 19 - [19 Screenshots Of Clueless Bosses Who Clearly Don’t Understand The Meaning Of Work/Life Balance](https://www.yahoo.com/lifestyle/19-screenshots-clueless-bosses-clearly-202102171.html)
+- Jan 19 - [Scientists Discover Bacteria Trapped in Endless Evolutionary Time Loop](https://www.yahoo.com/news/scientists-discover-bacteria-trapped-endless-200055198.html)
+- Jan 19 - [Video shows three Israeli hostages in Israel as fragile ceasefire passes first hurdle](https://www.yahoo.com/news/video-shows-three-israeli-hostages-180705312.html)
+- Jan 19 - [Pardoned by Biden: ‘I dropped to my knees and I thanked God’](https://www.yahoo.com/news/pardoned-biden-dropped-knees-thanked-180424045.html)
 <!-- feed end -->
 
 ### Onstream
