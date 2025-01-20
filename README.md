@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Philippines’ Laguna Lakeshore Road Network Project secures loan from South Korea](https://finance.yahoo.com/news/philippines-laguna-lakeshore-road-network-121029284.html)
-- Jan 20 - [As first Israeli hostages are released, Hamas sends a message: It is far from being destroyed](https://www.yahoo.com/news/first-israeli-hostages-released-hamas-193517832.html)
-- Jan 20 - [Hamas gives hostages ‘goody bags’ with signed certificates of captivity](https://www.yahoo.com/news/hamas-gives-hostages-gift-bags-055309118.html)
-- Jan 20 - [These South Texas school districts will be closed due to arctic front](https://www.yahoo.com/news/south-texas-school-districts-closed-001733332.html)
-- Jan 19 - [Trump says he will quickly release JFK, Robert Kennedy, MLK assassination files](https://www.yahoo.com/news/trump-says-quickly-release-jfk-233658811.html)
+- Jan 20 - [Globe-trotting butler's 1920s postcards reunited](https://www.yahoo.com/lifestyle/globe-trotting-butlers-1920s-postcards-122908610.html)
+- Jan 20 - [The Smartest High-Yield Energy Stocks to Buy With $1,000 Right Now](https://finance.yahoo.com/news/smartest-high-yield-energy-stocks-121900630.html)
+- Jan 20 - [Biden pardons Fauci and Milley in an effort to guard against potential 'revenge' by Trump](https://www.yahoo.com/news/biden-pardons-fauci-milley-effort-121317946.html)
+- Jan 20 - [Get $15 off Apple AirPods 4 with Best Buy's Deal of the Day](https://www.yahoo.com/tech/15-off-apple-airpods-4-121150441.html)
+- Jan 20 - [Happy Inauguration Day! Once Trump is president, America will become great again! | Opinion](https://www.yahoo.com/news/happy-inauguration-day-once-trump-110256178.html)
 <!-- feed end -->
 
 ### Onstream
