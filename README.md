@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Globe-trotting butler's 1920s postcards reunited](https://www.yahoo.com/lifestyle/globe-trotting-butlers-1920s-postcards-122908610.html)
-- Jan 20 - [The Smartest High-Yield Energy Stocks to Buy With $1,000 Right Now](https://finance.yahoo.com/news/smartest-high-yield-energy-stocks-121900630.html)
+- Jan 20 - [A sample from a remote Tanzanian region tests positive for Marburg disease, confirming WHO fears](https://www.yahoo.com/news/sample-remote-tanzanian-region-tests-130708248.html)
+- Jan 20 - [Sen. Lankford ‘not surprised’ by last-minute Biden pardons | Morning in America](https://www.yahoo.com/news/sen-lankford-not-surprised-last-125424101.html)
+- Jan 20 - [3 Subtle Investing Mistakes I Won't Repeat in 2025 And Beyond](https://finance.yahoo.com/news/3-subtle-investing-mistakes-wont-124500734.html)
 - Jan 20 - [Biden pardons Fauci and Milley in an effort to guard against potential 'revenge' by Trump](https://www.yahoo.com/news/biden-pardons-fauci-milley-effort-121317946.html)
-- Jan 20 - [Get $15 off Apple AirPods 4 with Best Buy's Deal of the Day](https://www.yahoo.com/tech/15-off-apple-airpods-4-121150441.html)
-- Jan 20 - [Happy Inauguration Day! Once Trump is president, America will become great again! | Opinion](https://www.yahoo.com/news/happy-inauguration-day-once-trump-110256178.html)
+- Jan 20 - [Do US adults support Trump's agenda? Here's what an AP-NORC poll shows](https://www.yahoo.com/news/us-adults-support-trumps-agenda-120155900.html)
 <!-- feed end -->
 
 ### Onstream
