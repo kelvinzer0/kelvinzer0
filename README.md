@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Vice President Han Zheng, China's representative at Trump's inauguration, is a trusted adviser to Xi](https://www.yahoo.com/news/vice-president-han-zheng-chinas-084323198.html)
-- Jan 20 - [Hamas gives hostages ‘gift bags’ with signed certificates of captivity](https://www.yahoo.com/news/hamas-gives-hostages-gift-bags-055309118.html)
+- Jan 20 - [Hamas gives hostages ‘goody bags’ with signed certificates of captivity](https://www.yahoo.com/news/hamas-gives-hostages-gift-bags-055309118.html)
 - Jan 20 - [Waymo among vehicles hit in deadly 7-car crash in San Francisco](https://www.yahoo.com/news/waymo-among-vehicles-hit-deadly-032314583.html)
-- Jan 20 - [Powerball ticket worth $328.5 million sold in Oregon](https://www.yahoo.com/news/powerball-ticket-worth-328-5-023330134.html)
 - Jan 20 - [My Son's Birth Was Nearly Perfect, But Days Later I Almost Died. These Are The Symptoms You Should Never Ignore.](https://www.yahoo.com/lifestyle/sons-birth-nearly-perfect-days-023102532.html)
+- Jan 20 - [These South Texas school districts will be closed due to arctic front](https://www.yahoo.com/news/south-texas-school-districts-closed-001733332.html)
+- Jan 19 - [Trump says he will quickly release JFK, Robert Kennedy, MLK assassination files](https://www.yahoo.com/news/trump-says-quickly-release-jfk-233658811.html)
 <!-- feed end -->
 
 ### Onstream
