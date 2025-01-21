@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [ARCTIC BLAST: Winter storm systems bring cold, rain and wind to Central Florida](https://www.yahoo.com/news/arctic-blast-winter-storm-systems-112527896.html)
+- Jan 21 - [Father stopped Southport killer from going to former school a week before attack](https://www.yahoo.com/news/father-stopped-southport-killer-going-205339713.html)
 - Jan 21 - [Trump announces purge of over 1,000 Biden appointees](https://www.yahoo.com/news/trump-says-team-process-removing-055402620.html)
-- Jan 21 - [A Giant Object May Have Warped Our Solar System, Study Says](https://www.yahoo.com/news/giant-object-may-warped-solar-054538953.html)
-- Jan 21 - [At least 66 dead, 51 injured in a hotel fire at a ski resort in northwestern Turkey](https://www.yahoo.com/news/three-killed-hotel-blaze-turkish-053327333.html)
-- Jan 21 - [Trump suspends US foreign assistance for 90 days pending reviews](https://www.yahoo.com/news/trump-suspends-us-foreign-assistance-022951918.html)
+- Jan 21 - [At least 66 dead, 51 injured in hotel fire at a ski resort in northwestern Turkey](https://www.yahoo.com/news/three-killed-hotel-blaze-turkish-053327333.html)
+- Jan 21 - [Usha Vance Wears Blue Evening Dress for 2025 Inaugural Balls With JD Vance](https://www.yahoo.com/entertainment/usha-vance-wears-blue-evening-045158045.html)
+- Jan 21 - [Six egg brands recalled over salmonella contamination](https://www.yahoo.com/news/six-egg-brands-recalled-over-141208111.html)
 <!-- feed end -->
 
 ### Onstream
