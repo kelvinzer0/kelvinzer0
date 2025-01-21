@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 20 - [Trump Inauguration: Why This George W. Bush Moment Is Going Viral](https://www.yahoo.com/entertainment/trump-inauguration-why-george-w-234651399.html)
-- Jan 20 - [Neighbors to the Rescue Shoot and Kill Mountain Lion with a Dog In Its Mouth](https://www.yahoo.com/news/neighbors-rescue-shoot-kill-mountain-233154390.html)
-- Jan 20 - [Exclusive-Trump to pull nearly 1,660 Afghan refugees from flights, say US official, advocate](https://www.yahoo.com/news/exclusive-trump-administration-canceling-flights-220249333.html)
-- Jan 20 - [Donald Trump Didn't Place Hand On Bible During Presidential Oath Of Office](https://www.yahoo.com/news/donald-trump-didnt-place-hand-210626528.html)
-- Jan 20 - [World reacts to Trump's plan to withdraw US from Paris climate pact](https://www.yahoo.com/news/world-reacts-trumps-plan-withdraw-210558840.html)
+- Jan 20 - [Authorities say a US border patrol agent was fatally shot in Vermont south of border](https://www.yahoo.com/news/shooting-involving-border-patrol-agent-223720162.html)
+- Jan 20 - [Jill Biden Seemingly Sends a Political Message With Her Inauguration Day Outfit](https://www.yahoo.com/lifestyle/jill-biden-seemingly-sends-political-204457183.html)
+- Jan 20 - [Bernie Sanders's Face During Donald Trump's Inauguration Is Going Viral](https://www.yahoo.com/entertainment/bernie-sanderss-face-during-donald-202613765.html)
+- Jan 20 - [Police investigating after more than 50 properties vandalized in Cape Cod town](https://www.yahoo.com/news/police-investigating-more-50-properties-195111749.html)
 <!-- feed end -->
 
 ### Onstream
