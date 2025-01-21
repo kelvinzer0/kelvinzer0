@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Rescue camera gave officials a view of hundreds of miners in South Africa trapped in shaft](https://www.yahoo.com/news/rescue-camera-gave-officials-view-204857629.html)
-- Jan 21 - [Trump terminates John Bolton’s security detail within hours of taking office](https://www.yahoo.com/news/trump-terminates-john-bolton-security-191235229.html)
-- Jan 21 - [As historic storm races across Florida, what's in store for St. Augustine?](https://www.yahoo.com/news/historic-storm-races-across-florida-195130332.html)
-- Jan 21 - [Pete Hegseth Accused of Getting Lap Dances While in Uniform](https://www.yahoo.com/news/pete-hegseth-former-sister-law-194406734.html)
-- Jan 21 - [Georgia winter storm: Snow starting to fall in far south metro Atlanta counties](https://www.yahoo.com/news/snow-georgia-winter-weather-advisory-103947995.html)
+- Jan 21 - [Sledding in Houston and snowball fights in New Orleans: Photos of the rare winter storm blanketing the South in snow](https://www.yahoo.com/news/sledding-in-houston-and-snowball-fights-in-new-orleans-photos-of-the-rare-winter-storm-blanketing-the-south-in-snow-215614324.html)
+- Jan 21 - [The 18 Best New Supercars of 2025](https://autos.yahoo.com/18-best-supercars-2025-210000840.html)
+- Jan 21 - [Yemen Red Sea port capacity down sharply after hostilities, UN says](https://www.yahoo.com/news/yemen-red-sea-port-capacity-202915714.html)
+- Jan 21 - [Trump announces ‘Gulf of America’ executive order](https://www.yahoo.com/news/trump-announces-gulf-america-executive-202800118.html)
+- Jan 21 - [Augusta-area schools staying canceled Wednesday due to winter storm? Here's what we know](https://www.yahoo.com/news/augusta-area-schools-staying-canceled-193322769.html)
 <!-- feed end -->
 
 ### Onstream
