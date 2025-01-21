@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Six egg brands recalled over salmonella contamination](https://www.yahoo.com/news/six-egg-brands-recalled-over-141208111.html)
 - Jan 21 - [Trump suspends US foreign assistance for 90 days pending reviews](https://www.yahoo.com/news/trump-suspends-us-foreign-assistance-022951918.html)
-- Jan 21 - [Supermassive Black Hole Caught Doing Something Never Seen Before](https://www.yahoo.com/news/supermassive-black-hole-caught-doing-004846323.html)
-- Jan 21 - ["What An Odd Thing To Say": This 33-Year-Old Collects "Boundary Phrases," And I'm Studying Them All In Preparation For My Next Awkward Moment](https://www.yahoo.com/lifestyle/odd-thing-33-old-collects-003102358.html)
 - Jan 21 - [Trump orders federal workers back to office, weakens job protections](https://www.yahoo.com/news/trump-orders-federal-workers-back-001423538.html)
+- Jan 20 - [Indiana eliminates 25 athletic department jobs in preparation for revenue sharing, AP source says](https://sports.yahoo.com/indiana-lays-off-25-athletic-235348862.html)
+- Jan 20 - [Trump Inauguration: Why This George W. Bush Moment Is Going Viral](https://www.yahoo.com/entertainment/trump-inauguration-why-george-w-234651399.html)
+- Jan 20 - [Neighbors to the Rescue Shoot and Kill Mountain Lion with a Dog In Its Mouth](https://www.yahoo.com/news/neighbors-rescue-shoot-kill-mountain-233154390.html)
 <!-- feed end -->
 
 ### Onstream
