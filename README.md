@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [A Giant Object May Have Warped Our Solar System, Study Says](https://www.yahoo.com/news/giant-object-may-warped-solar-054538953.html)
+- Jan 21 - [At least 10 dead, 32 injured in a hotel fire at a ski resort in northwestern Turkey](https://www.yahoo.com/news/three-killed-hotel-blaze-turkish-053327333.html)
+- Jan 21 - [Six egg brands recalled over salmonella contamination](https://www.yahoo.com/news/six-egg-brands-recalled-over-141208111.html)
 - Jan 21 - [Trump suspends US foreign assistance for 90 days pending reviews](https://www.yahoo.com/news/trump-suspends-us-foreign-assistance-022951918.html)
-- Jan 21 - [Trump orders federal workers back to office, weakens job protections](https://www.yahoo.com/news/trump-orders-federal-workers-back-001423538.html)
-- Jan 20 - [Indiana eliminates 25 athletic department jobs in preparation for revenue sharing, AP source says](https://sports.yahoo.com/indiana-lays-off-25-athletic-235348862.html)
-- Jan 20 - [Trump Inauguration: Why This George W. Bush Moment Is Going Viral](https://www.yahoo.com/entertainment/trump-inauguration-why-george-w-234651399.html)
-- Jan 20 - [Neighbors to the Rescue Shoot and Kill Mountain Lion with a Dog In Its Mouth](https://www.yahoo.com/news/neighbors-rescue-shoot-kill-mountain-233154390.html)
+- Jan 21 - [Elon Musk and Barron Trump’s ‘very different energy’ mocked  as pair sit next to each other at inauguration](https://www.yahoo.com/news/elon-musk-barron-trump-very-002534979.html)
 <!-- feed end -->
 
 ### Onstream
