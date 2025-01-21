@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Ask an Advisor: At 65 With 82% of My Portfolio in Equities, Should I Be Moving to Bonds?](https://finance.yahoo.com/news/ask-advisor-moving-stocks-bonds-131134742.html)
-- Jan 21 - [Dozens Reported Killed in Fire at Turkish Ski Resort Hotel](https://www.yahoo.com/news/dozens-reported-killed-fire-turkish-125749848.html)
-- Jan 21 - [Sisters Who Vanished After Night Walk Near River Sent Eerie Final Text Before Disappearing: Police](https://www.yahoo.com/news/sisters-vanished-night-walk-near-115225621.html)
-- Jan 21 - [Has it ever snowed in Naples or Fort Myers? Our 2018 story tackled this popular question](https://www.yahoo.com/news/ever-snowed-naples-fort-myers-100732454.html)
-- Jan 21 - [Trump announces purge of over 1,000 Biden appointees](https://www.yahoo.com/news/trump-says-team-process-removing-055402620.html)
+- Jan 21 - [Walgreens stock plummets on DOJ's opioid lawsuit](https://finance.yahoo.com/video/walgreens-stock-plummets-dojs-opioid-160156070.html)
+- Jan 21 - [Citibank executive ‘bludgeoned to death’ in London flat as police hunt killer](https://www.yahoo.com/news/citi-banker-bludgeoned-death-london-141106464.html)
+- Jan 21 - [Firefighters tackle blaze after Russia strikes Pokrovsk in Ukraine's Donetsk region](https://www.yahoo.com/news/firefighters-tackle-blaze-russia-strikes-153048079.html)
+- Jan 21 - [Trump removes Coast Guard commandant, US official says](https://www.yahoo.com/news/trump-fires-coast-guard-commandant-144621351.html)
+- Jan 21 - [Embattled South Korean president appears at impeachment trial](https://www.yahoo.com/news/embattled-south-korean-president-appears-142546998.html)
 <!-- feed end -->
 
 ### Onstream
