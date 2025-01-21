@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [Dozens Killed by Hotel Fire in Turkey](https://www.yahoo.com/news/dozens-killed-hotel-fire-turkey-161532930.html)
+- Jan 21 - [Prince Harry ‘in eleventh-hour settlement talks’ with Rupert Murdoch’s News Group Newspapers](https://www.yahoo.com/news/prince-harry-eleventh-hour-settlement-153236224.html)
 - Jan 21 - [Walgreens stock plummets on DOJ's opioid lawsuit](https://finance.yahoo.com/video/walgreens-stock-plummets-dojs-opioid-160156070.html)
-- Jan 21 - [Citibank executive ‘bludgeoned to death’ in London flat as police hunt killer](https://www.yahoo.com/news/citi-banker-bludgeoned-death-london-141106464.html)
-- Jan 21 - [Firefighters tackle blaze after Russia strikes Pokrovsk in Ukraine's Donetsk region](https://www.yahoo.com/news/firefighters-tackle-blaze-russia-strikes-153048079.html)
+- Jan 21 - [Supreme Court rejects GOP-backed Montana case based on controversial election law theory](https://www.yahoo.com/news/supreme-court-rejects-gop-backed-145326407.html)
 - Jan 21 - [Trump removes Coast Guard commandant, US official says](https://www.yahoo.com/news/trump-fires-coast-guard-commandant-144621351.html)
-- Jan 21 - [Embattled South Korean president appears at impeachment trial](https://www.yahoo.com/news/embattled-south-korean-president-appears-142546998.html)
 <!-- feed end -->
 
 ### Onstream
