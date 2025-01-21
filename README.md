@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [Six egg brands recalled over salmonella contamination](https://www.yahoo.com/news/six-egg-brands-recalled-over-141208111.html)
+- Jan 21 - [Supermassive Black Hole Caught Doing Something Never Seen Before](https://www.yahoo.com/news/supermassive-black-hole-caught-doing-004846323.html)
+- Jan 21 - [Trump orders federal workers back to office full-time](https://www.yahoo.com/news/trump-orders-federal-workers-back-001423538.html)
 - Jan 20 - [Trump Inauguration: Why This George W. Bush Moment Is Going Viral](https://www.yahoo.com/entertainment/trump-inauguration-why-george-w-234651399.html)
-- Jan 20 - [Authorities say a US border patrol agent was fatally shot in Vermont south of border](https://www.yahoo.com/news/shooting-involving-border-patrol-agent-223720162.html)
-- Jan 20 - [Jill Biden Seemingly Sends a Political Message With Her Inauguration Day Outfit](https://www.yahoo.com/lifestyle/jill-biden-seemingly-sends-political-204457183.html)
-- Jan 20 - [Bernie Sanders's Face During Donald Trump's Inauguration Is Going Viral](https://www.yahoo.com/entertainment/bernie-sanderss-face-during-donald-202613765.html)
-- Jan 20 - [Police investigating after more than 50 properties vandalized in Cape Cod town](https://www.yahoo.com/news/police-investigating-more-50-properties-195111749.html)
+- Jan 20 - [COMAC jets for Vietnam show China's push for international market](https://finance.yahoo.com/news/comac-jets-vietnam-show-chinas-230221805.html)
 <!-- feed end -->
 
 ### Onstream
