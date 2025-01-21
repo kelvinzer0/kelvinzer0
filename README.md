@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Fatal crash on Interstate 95 in St. Lucie County](https://www.yahoo.com/news/fatal-crash-interstate-95-st-195326465.html)
-- Jan 21 - [Pete Hegseth’s Former Sister-In-Law Makes Damning Allegation](https://www.yahoo.com/news/pete-hegseth-former-sister-law-194406734.html)
-- Jan 21 - [Jan. 6ers RELEASED! Trump Grants Clemency to more than 1600 Rioters + Musk's DOGE SUED on Day 2](https://www.yahoo.com/news/jan-6ers-released-trump-grants-192200069.html)
-- Jan 21 - [Winter storm: All roads and bridges in Montgomery County closed amid icy travel dangers](https://www.yahoo.com/news/winter-storm-roads-bridges-montgomery-191653421.html)
-- Jan 21 - [France's Macron wants more young volunteers 'to reinforce' the army](https://www.yahoo.com/news/frances-macron-wants-more-young-191427056.html)
+- Jan 21 - [Rescue camera gave officials a view of hundreds of miners in South Africa trapped in shaft](https://www.yahoo.com/news/rescue-camera-gave-officials-view-204857629.html)
+- Jan 21 - [Trump terminates John Bolton’s security detail within hours of taking office](https://www.yahoo.com/news/trump-terminates-john-bolton-security-191235229.html)
+- Jan 21 - [As historic storm races across Florida, what's in store for St. Augustine?](https://www.yahoo.com/news/historic-storm-races-across-florida-195130332.html)
+- Jan 21 - [Pete Hegseth Accused of Getting Lap Dances While in Uniform](https://www.yahoo.com/news/pete-hegseth-former-sister-law-194406734.html)
+- Jan 21 - [Georgia winter storm: Snow starting to fall in far south metro Atlanta counties](https://www.yahoo.com/news/snow-georgia-winter-weather-advisory-103947995.html)
 <!-- feed end -->
 
 ### Onstream
