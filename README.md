@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Dozens Killed by Hotel Fire in Turkey](https://www.yahoo.com/news/dozens-killed-hotel-fire-turkey-161532930.html)
-- Jan 21 - [Prince Harry ‘in eleventh-hour settlement talks’ with Rupert Murdoch’s News Group Newspapers](https://www.yahoo.com/news/prince-harry-eleventh-hour-settlement-153236224.html)
-- Jan 21 - [Walgreens stock plummets on DOJ's opioid lawsuit](https://finance.yahoo.com/video/walgreens-stock-plummets-dojs-opioid-160156070.html)
-- Jan 21 - [Supreme Court rejects GOP-backed Montana case based on controversial election law theory](https://www.yahoo.com/news/supreme-court-rejects-gop-backed-145326407.html)
-- Jan 21 - [Trump removes Coast Guard commandant, US official says](https://www.yahoo.com/news/trump-fires-coast-guard-commandant-144621351.html)
+- Jan 21 - [Hubble Constant Tension Explained - 'Measuring The Expansion Rate Of The Universe'](https://www.yahoo.com/news/measuring-expansion-rate-universe-hubble-170000260.html)
+- Jan 21 - ['Good Progress' Made Against Fire in San Diego County, Officials Say](https://www.yahoo.com/news/good-progress-made-against-fire-175959130.html)
+- Jan 21 - [Murder charge upheld for the only suspect to face prosecution in 1996 Tupac Shakur killing](https://www.yahoo.com/news/murder-charge-upheld-only-suspect-173914347.html)
+- Jan 21 - [Son of New England Patriots owner to run for mayor of Boston, source says](https://www.yahoo.com/news/son-england-patriots-owner-run-173140146.html)
+- Jan 21 - [Jerry Seinfeld Turned Down $25 Million for Steve McQueen’s ‘Le Mans’ Porsche 917K](https://autos.yahoo.com/jerry-seinfeld-turned-down-25-173000945.html)
 <!-- feed end -->
 
 ### Onstream
