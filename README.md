@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Thomasville officials urge residents to cut back on water](https://www.yahoo.com/news/thomasville-officials-urge-residents-cut-032926236.html)
+- Jan 21 - [Powerball winning numbers for Monday, Jan. 20. Did anyone win $20 million jackpot?](https://www.yahoo.com/news/powerball-winning-numbers-monday-jan-041412641.html)
+- Jan 21 - [Trump suspends US foreign assistance for 90 days pending reviews](https://www.yahoo.com/news/trump-suspends-us-foreign-assistance-022951918.html)
 - Jan 21 - [Supermassive Black Hole Caught Doing Something Never Seen Before](https://www.yahoo.com/news/supermassive-black-hole-caught-doing-004846323.html)
-- Jan 21 - [Trump executive order on free speech draws criticism](https://www.yahoo.com/news/trump-signs-executive-order-says-001929996.html)
-- Jan 21 - [Trump orders federal workers back to office, weakens job protections](https://www.yahoo.com/news/trump-orders-federal-workers-back-001423538.html)
-- Jan 20 - [Trump Inauguration: Why This George W. Bush Moment Is Going Viral](https://www.yahoo.com/entertainment/trump-inauguration-why-george-w-234651399.html)
+- Jan 21 - [Elon Musk and Barron Trump’s ‘very different energy’ mocked  as pair sit next to each other at inauguration](https://www.yahoo.com/news/elon-musk-barron-trump-very-002534979.html)
+- Jan 20 - [Indiana eliminates 25 athletic department jobs in preparation for revenue sharing, AP source says](https://sports.yahoo.com/indiana-lays-off-25-athletic-235348862.html)
 <!-- feed end -->
 
 ### Onstream
