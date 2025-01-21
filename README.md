@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Indiana eliminates 25 athletic department jobs in preparation for revenue sharing, AP source says](https://sports.yahoo.com/indiana-lays-off-25-athletic-235348862.html)
+- Jan 21 - [Thomasville officials urge residents to cut back on water](https://www.yahoo.com/news/thomasville-officials-urge-residents-cut-032926236.html)
+- Jan 21 - [Supermassive Black Hole Caught Doing Something Never Seen Before](https://www.yahoo.com/news/supermassive-black-hole-caught-doing-004846323.html)
+- Jan 21 - [Trump executive order on free speech draws criticism](https://www.yahoo.com/news/trump-signs-executive-order-says-001929996.html)
+- Jan 21 - [Trump orders federal workers back to office, weakens job protections](https://www.yahoo.com/news/trump-orders-federal-workers-back-001423538.html)
 - Jan 20 - [Trump Inauguration: Why This George W. Bush Moment Is Going Viral](https://www.yahoo.com/entertainment/trump-inauguration-why-george-w-234651399.html)
-- Jan 20 - [Hamas gave the three hostages ‘gift bags’ upon their release. This is what was inside](https://www.yahoo.com/news/hamas-gave-three-hostages-gift-132423253.html)
-- Jan 20 - [COMAC jets for Vietnam show China's push for international market](https://finance.yahoo.com/news/comac-jets-vietnam-show-chinas-230221805.html)
-- Jan 20 - [Authorities say a US border patrol agent was fatally shot in Vermont south of border](https://www.yahoo.com/news/shooting-involving-border-patrol-agent-223720162.html)
 <!-- feed end -->
 
 ### Onstream
