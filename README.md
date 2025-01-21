@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Why Apple Fell Even as the Market Rallied Today](https://finance.yahoo.com/news/why-apple-fell-even-market-184409921.html)
-- Jan 21 - [Supreme Court rules for female Oklahoma death row inmate over sex-shaming claim](https://www.yahoo.com/news/supreme-court-rules-female-oklahoma-180639325.html)
-- Jan 21 - [Murder charge upheld for the only suspect to face prosecution in 1996 Tupac Shakur killing](https://www.yahoo.com/news/murder-charge-upheld-only-suspect-173914347.html)
-- Jan 21 - [Jerry Seinfeld Turned Down $25 Million for Steve McQueen’s ‘Le Mans’ Porsche 917K](https://autos.yahoo.com/jerry-seinfeld-turned-down-25-173000945.html)
-- Jan 21 - [A Georgia fire chief stopped to help a driver who hit a deer. He was then shot and killed.](https://www.yahoo.com/news/georgia-fire-chief-stopped-help-165440802.html)
+- Jan 21 - [Fatal crash on Interstate 95 in St. Lucie County](https://www.yahoo.com/news/fatal-crash-interstate-95-st-195326465.html)
+- Jan 21 - [Pete Hegseth’s Former Sister-In-Law Makes Damning Allegation](https://www.yahoo.com/news/pete-hegseth-former-sister-law-194406734.html)
+- Jan 21 - [Jan. 6ers RELEASED! Trump Grants Clemency to more than 1600 Rioters + Musk's DOGE SUED on Day 2](https://www.yahoo.com/news/jan-6ers-released-trump-grants-192200069.html)
+- Jan 21 - [Winter storm: All roads and bridges in Montgomery County closed amid icy travel dangers](https://www.yahoo.com/news/winter-storm-roads-bridges-montgomery-191653421.html)
+- Jan 21 - [France's Macron wants more young volunteers 'to reinforce' the army](https://www.yahoo.com/news/frances-macron-wants-more-young-191427056.html)
 <!-- feed end -->
 
 ### Onstream
