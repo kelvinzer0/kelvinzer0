@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Hubble Constant Tension Explained - 'Measuring The Expansion Rate Of The Universe'](https://www.yahoo.com/news/measuring-expansion-rate-universe-hubble-170000260.html)
-- Jan 21 - ['Good Progress' Made Against Fire in San Diego County, Officials Say](https://www.yahoo.com/news/good-progress-made-against-fire-175959130.html)
+- Jan 21 - [Why Apple Fell Even as the Market Rallied Today](https://finance.yahoo.com/news/why-apple-fell-even-market-184409921.html)
+- Jan 21 - [Supreme Court rules for female Oklahoma death row inmate over sex-shaming claim](https://www.yahoo.com/news/supreme-court-rules-female-oklahoma-180639325.html)
 - Jan 21 - [Murder charge upheld for the only suspect to face prosecution in 1996 Tupac Shakur killing](https://www.yahoo.com/news/murder-charge-upheld-only-suspect-173914347.html)
-- Jan 21 - [Son of New England Patriots owner to run for mayor of Boston, source says](https://www.yahoo.com/news/son-england-patriots-owner-run-173140146.html)
 - Jan 21 - [Jerry Seinfeld Turned Down $25 Million for Steve McQueen’s ‘Le Mans’ Porsche 917K](https://autos.yahoo.com/jerry-seinfeld-turned-down-25-173000945.html)
+- Jan 21 - [A Georgia fire chief stopped to help a driver who hit a deer. He was then shot and killed.](https://www.yahoo.com/news/georgia-fire-chief-stopped-help-165440802.html)
 <!-- feed end -->
 
 ### Onstream
