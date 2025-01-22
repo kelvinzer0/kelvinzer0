@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Netflix raising prices as subscriptions soar](https://www.yahoo.com/news/netflix-raising-prices-subscriptions-soar-202900878.html)
+- Jan 22 - [Nasdaq soars on AI optimism](https://finance.yahoo.com/video/nasdaq-soars-tech-stock-strength-211727474.html)
+- Jan 22 - [New wildfire breaks out north of Los Angeles, forces evacuations](https://www.yahoo.com/news/wildfire-breaks-north-los-angeles-211045899.html)
 - Jan 22 - [I make more money from my side hustles than my six-figure software engineering job. Here's how I build and manage my income streams.](https://finance.yahoo.com/news/more-money-side-hustles-six-104102155.html)
-- Jan 22 - [Hughes Fire in Los Angeles County prompts evacuation orders](https://www.yahoo.com/news/hughes-fire-los-angeles-county-194814848.html)
-- Jan 22 - [Pardoned Jan. 6 Defendant Arrested a Day After Getting Break From Trump](https://www.yahoo.com/news/pardoned-jan-6-defendant-arrested-182631149.html)
-- Jan 22 - [Supreme Court could revive lawsuit against Texas officer who shot motorist stopped for unpaid tolls](https://www.yahoo.com/news/supreme-court-could-revive-lawsuit-180828302.html)
+- Jan 22 - [Susan Collins: ‘Troubling’ that Hegseth FBI report omitted key information](https://www.yahoo.com/news/susan-collins-troubling-hegseth-fbi-185952347.html)
+- Jan 22 - [New York obtains $1.065 billion judgment against accused predatory lender](https://finance.yahoo.com/news/york-obtains-1-065-billion-181518857.html)
 <!-- feed end -->
 
 ### Onstream
