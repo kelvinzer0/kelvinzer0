@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Man, 66, arrested in Utah for alleged 1977 murder of McKinley student](https://www.yahoo.com/news/man-66-arrested-utah-alleged-050100833.html)
-- Jan 22 - [White House orders government DEI employees to be placed on leave](https://www.yahoo.com/news/white-house-orders-government-dei-035107322.html)
+- Jan 22 - [‘This may be my last message’: Uyghurs stage hunger strike over China deportation](https://www.yahoo.com/news/may-last-message-uyghurs-stage-060000865.html)
+- Jan 22 - [South Korea to remove concrete embankment blamed for exacerbating deadly plane crash](https://www.yahoo.com/news/south-korea-remove-concrete-embankment-050328860.html)
+- Jan 22 - [Ukrainians said North Koreans are so determined to avoid capture that one tried to take himself out with a concrete pillar](https://www.yahoo.com/news/ukrainians-said-north-koreans-determined-035256316.html)
 - Jan 22 - [Here’s The Real Reason Women Have That Little Pooch](https://www.yahoo.com/lifestyle/real-reason-women-little-pooch-003102556.html)
 - Jan 21 - [Trump says he would sanction Russia if Putin does not negotiate on Ukraine](https://www.yahoo.com/news/trump-says-sanction-russia-putin-234355729.html)
-- Jan 21 - ['It Won't Be Enough': Financial Experts Warn Gen X About Key Retirement Pitfalls](https://finance.yahoo.com/news/wont-enough-financial-experts-warn-233016638.html)
 <!-- feed end -->
 
 ### Onstream
