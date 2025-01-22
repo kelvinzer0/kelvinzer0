@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 22 - [South Korea to remove concrete embankment blamed for exacerbating deadly plane crash](https://www.yahoo.com/news/south-korea-remove-concrete-embankment-050328860.html)
+- Jan 22 - [Woman beaten with brass knuckles during Midtown robbery](https://www.yahoo.com/news/woman-beaten-brass-knuckles-during-015201678.html)
 - Jan 22 - [Here’s The Real Reason Women Have That Little Pooch](https://www.yahoo.com/lifestyle/real-reason-women-little-pooch-003102556.html)
 - Jan 21 - [Trump says he would sanction Russia if Putin does not negotiate on Ukraine](https://www.yahoo.com/news/trump-says-sanction-russia-putin-234355729.html)
-- Jan 21 - [Investor’s multimillion-dollar lawsuit against Tony Finau has been dismissed by a Utah County judge — at request of both parties](https://sports.yahoo.com/investor-multimillion-dollar-lawsuit-against-234221193.html)
-- Jan 21 - [GOP member wants bishop ‘added to deportation list’ after Trump prayer service](https://www.yahoo.com/news/gop-member-wants-bishop-added-224103604.html)
+- Jan 21 - [Trump fires heads of TSA, Coast Guard and guts key aviation safety advisory committee](https://www.yahoo.com/news/trump-fires-heads-tsa-coast-224441644.html)
 <!-- feed end -->
 
 ### Onstream
