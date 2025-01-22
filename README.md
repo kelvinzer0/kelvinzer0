@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Samsung Galaxy AI becomes more personal and cohesive](https://www.yahoo.com/tech/samsung-galaxy-ai-becomes-more-personal-and-cohesive-180029521.html)
+- Jan 22 - [Three call options to watch in the new administration](https://finance.yahoo.com/video/three-call-options-watch-administration-183508228.html)
+- Jan 22 - [Fire out at Moss Landing battery plant, heat pockets persist; EPA concludes air monitoring](https://www.yahoo.com/news/fire-moss-landing-battery-plant-182157718.html)
 - Jan 22 - [I make more money from my side hustles than my six-figure software engineering job. Here's how I build and manage my income streams.](https://finance.yahoo.com/news/more-money-side-hustles-six-104102155.html)
 - Jan 22 - [A British submarine secretly tracking a Russian spy ship hanging around undersea cables suddenly surfaced close to send a message, UK says](https://www.yahoo.com/news/british-submarine-secretly-tracking-russian-170547326.html)
-- Jan 22 - [A Mother Tracks Her Son's Stolen iPhone On An 8,000-Mile Trip From NYC To Shenzhen, China – Here's What Irks Her More Than Losing The Phone](https://finance.yahoo.com/news/mother-tracks-her-sons-stolen-164517561.html)
-- Jan 22 - [If You Want To Be More Productive, Experts Are Begging You To Stop Doing These 5 Things After Work](https://www.yahoo.com/lifestyle/want-more-productive-experts-begging-143102010.html)
+- Jan 22 - [How much snow fell in Savannah? Here are the latest totals from NWS](https://www.yahoo.com/news/much-snow-fell-savannah-latest-155119166.html)
 <!-- feed end -->
 
 ### Onstream
