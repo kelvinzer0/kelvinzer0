@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Should You Buy Archer Aviation While It's Below $10?](https://finance.yahoo.com/news/buy-archer-aviation-while-below-131500470.html)
-- Jan 22 - [5 Best Pickup Trucks for Retirees on a Budget](https://autos.yahoo.com/5-best-pickup-trucks-retirees-130016032.html)
+- Jan 22 - [Netflix's ad-tier success 'exceeded their wildest dreams'](https://finance.yahoo.com/video/netflixs-ad-tier-success-exceeded-150922355.html)
+- Jan 22 - [Google is investing another billion dollars in Anthropic](https://www.yahoo.com/tech/google-is-investing-another-billion-dollars-in-anthropic-145548826.html)
+- Jan 22 - [Are You Rich or Middle Class? 8 Ways To Tell That Go Beyond Your Paycheck](https://finance.yahoo.com/news/rich-middle-class-8-ways-210013031.html)
+- Jan 22 - [Texas coastal resort city covered by ‘once in a lifetime’ snow in US South](https://www.yahoo.com/news/texas-coastal-resort-city-covered-124325104.html)
 - Jan 22 - [Doug Emhoff Avenges Kamala’s Viral Handshake Snub](https://www.yahoo.com/news/doug-emhoff-avenges-kamala-viral-113346520.html)
-- Jan 22 - [Exclusive-China halts Brazilian soy shipments from five firms, sources say](https://finance.yahoo.com/news/exclusive-brazilian-soy-shipments-china-112140171.html)
-- Jan 22 - [Researchers make alarming discovery after sampling common types of seafood: 'It's very concerning'](https://www.yahoo.com/news/researchers-alarming-discovery-sampling-common-111559457.html)
 <!-- feed end -->
 
 ### Onstream
