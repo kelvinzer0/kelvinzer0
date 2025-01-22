@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Nasdaq soars on AI optimism](https://finance.yahoo.com/video/nasdaq-soars-tech-stock-strength-211727474.html)
-- Jan 22 - [New wildfire breaks out north of Los Angeles, forces evacuations](https://www.yahoo.com/news/wildfire-breaks-north-los-angeles-211045899.html)
-- Jan 22 - [I make more money from my side hustles than my six-figure software engineering job. Here's how I build and manage my income streams.](https://finance.yahoo.com/news/more-money-side-hustles-six-104102155.html)
-- Jan 22 - [Susan Collins: ‘Troubling’ that Hegseth FBI report omitted key information](https://www.yahoo.com/news/susan-collins-troubling-hegseth-fbi-185952347.html)
-- Jan 22 - [New York obtains $1.065 billion judgment against accused predatory lender](https://finance.yahoo.com/news/york-obtains-1-065-billion-181518857.html)
+- Jan 22 - [Family outraged after man convicted in Connecticut killings gets clemency from Biden in drug case](https://www.yahoo.com/news/family-outraged-man-convicted-connecticut-223450142.html)
+- Jan 22 - [United Airlines CEO calls pullback in domestic seats a durable trend](https://finance.yahoo.com/news/united-airlines-ceo-calls-pullback-221704888.html)
+- Jan 22 - [Why Advanced Micro Devices, Inc. (AMD) Among the Best Semiconductor Stocks to Buy for the AI Boom](https://finance.yahoo.com/news/why-advanced-micro-devices-inc-214925098.html)
+- Jan 22 - [Fast-growing wildfire breaks out north of Los Angeles, forces evacuations](https://www.yahoo.com/news/wildfire-breaks-north-los-angeles-211045899.html)
+- Jan 22 - [Influencer, 45, dies after going under general anesthesia for back tattoo](https://www.yahoo.com/news/influencer-45-dies-going-under-205341402.html)
 <!-- feed end -->
 
 ### Onstream
