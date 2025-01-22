@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 22 - [Netflix's ad-tier success 'exceeded their wildest dreams'](https://finance.yahoo.com/video/netflixs-ad-tier-success-exceeded-150922355.html)
-- Jan 22 - [Google is investing another billion dollars in Anthropic](https://www.yahoo.com/tech/google-is-investing-another-billion-dollars-in-anthropic-145548826.html)
-- Jan 22 - [Are You Rich or Middle Class? 8 Ways To Tell That Go Beyond Your Paycheck](https://finance.yahoo.com/news/rich-middle-class-8-ways-210013031.html)
-- Jan 22 - [Texas coastal resort city covered by ‘once in a lifetime’ snow in US South](https://www.yahoo.com/news/texas-coastal-resort-city-covered-124325104.html)
+- Jan 22 - [Road Rager Picks On The Wrong Victim](https://autos.yahoo.com/road-rager-picks-wrong-victim-130000429.html)
+- Jan 22 - [Reporter Asks Trump Why He Pardoned Cop-Beating Capitol Rioter. Wait For The Answer.](https://www.yahoo.com/news/reporter-asks-trump-why-pardoned-124426691.html)
 - Jan 22 - [Doug Emhoff Avenges Kamala’s Viral Handshake Snub](https://www.yahoo.com/news/doug-emhoff-avenges-kamala-viral-113346520.html)
+- Jan 22 - [I’m 52 with a $2,000,000 portfolio, no debt, and burned out — how much can I spend each year if I retire now?](https://finance.yahoo.com/news/m-52-2-000-000-112200048.html)
 <!-- feed end -->
 
 ### Onstream
