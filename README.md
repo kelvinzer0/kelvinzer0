@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Brush Fire Breaks Out on Hillside Near San Diego Mall](https://www.yahoo.com/news/brush-fire-breaks-hillside-near-120740806.html)
-- Jan 22 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Stargate Project Unveiled.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
 - Jan 22 - [Doug Emhoff Avenges Kamala’s Viral Handshake Snub](https://www.yahoo.com/news/doug-emhoff-avenges-kamala-viral-113346520.html)
-- Jan 22 - [Exclusive-Brazilian soy shipments to China from five firms halted, sources say](https://finance.yahoo.com/news/exclusive-brazilian-soy-shipments-china-112140171.html)
+- Jan 22 - [I’m 52 with a $2,000,000 portfolio, no debt, and burned out — how much can I spend each year if I retire now?](https://finance.yahoo.com/news/m-52-2-000-000-112200048.html)
+- Jan 22 - [Exclusive-China halts Brazilian soy shipments from five firms, sources say](https://finance.yahoo.com/news/exclusive-brazilian-soy-shipments-china-112140171.html)
+- Jan 22 - [Donald Trump Has Middle-Of-The-Night Meltdown Over Pastor’s ‘Nasty’ Sermon About Him](https://www.yahoo.com/news/donald-trump-middle-night-meltdown-074927510.html)
 - Jan 22 - [South Korea to remove concrete embankment blamed for exacerbating deadly plane crash](https://www.yahoo.com/news/south-korea-remove-concrete-embankment-050328860.html)
 <!-- feed end -->
 
