@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Netflix's ad-tier success 'exceeded their wildest dreams'](https://finance.yahoo.com/video/netflixs-ad-tier-success-exceeded-150922355.html)
-- Jan 22 - [Road Rager Picks On The Wrong Victim](https://autos.yahoo.com/road-rager-picks-wrong-victim-130000429.html)
-- Jan 22 - [Reporter Asks Trump Why He Pardoned Cop-Beating Capitol Rioter. Wait For The Answer.](https://www.yahoo.com/news/reporter-asks-trump-why-pardoned-124426691.html)
+- Jan 22 - [Trump issues slew of executive orders on energy](https://finance.yahoo.com/video/trump-issues-slew-executive-orders-154335353.html)
+- Jan 22 - [Stay off roads in Elmore and Montgomery counties, authorities warn](https://www.yahoo.com/news/stay-off-roads-elmore-montgomery-150300693.html)
+- Jan 22 - [I Withdrew $60k from My Retirement Plan This Year But It Increased My Medicare Premiums. Is This Permanent?](https://finance.yahoo.com/news/withdrew-60k-retirement-plan-increased-133000550.html)
 - Jan 22 - [Doug Emhoff Avenges Kamala’s Viral Handshake Snub](https://www.yahoo.com/news/doug-emhoff-avenges-kamala-viral-113346520.html)
-- Jan 22 - [I’m 52 with a $2,000,000 portfolio, no debt, and burned out — how much can I spend each year if I retire now?](https://finance.yahoo.com/news/m-52-2-000-000-112200048.html)
+- Jan 22 - [This Type of Coffee Is the Worst for Heart Health, According to Cardiologists](https://www.yahoo.com/lifestyle/type-coffee-worst-heart-health-112500932.html)
 <!-- feed end -->
 
 ### Onstream
