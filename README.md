@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Amazon includes a $200 gift card when you pre-order the Samsung Galaxy S25 Ultra](https://www.yahoo.com/tech/amazon-includes-a-200-gift-card-when-you-pre-order-the-samsung-galaxy-s25-ultra-195455473.html)
-- Jan 22 - [Colombian police seize 8.2 tons of cocaine intended for shipment to Europe](https://www.yahoo.com/news/colombian-police-seize-8-2-194936603.html)
-- Jan 22 - [Pardoned Jan. 6 Defendant Arrested a Day After Getting Break From Trump](https://www.yahoo.com/news/pardoned-jan-6-defendant-arrested-182631149.html)
+- Jan 22 - [Netflix raising prices as subscriptions soar](https://www.yahoo.com/news/netflix-raising-prices-subscriptions-soar-202900878.html)
 - Jan 22 - [I make more money from my side hustles than my six-figure software engineering job. Here's how I build and manage my income streams.](https://finance.yahoo.com/news/more-money-side-hustles-six-104102155.html)
-- Jan 22 - [Here’s how much rain Southern California could get this weekend](https://www.yahoo.com/news/much-rain-southern-california-could-171030327.html)
+- Jan 22 - [Hughes Fire in Los Angeles County prompts evacuation orders](https://www.yahoo.com/news/hughes-fire-los-angeles-county-194814848.html)
+- Jan 22 - [Pardoned Jan. 6 Defendant Arrested a Day After Getting Break From Trump](https://www.yahoo.com/news/pardoned-jan-6-defendant-arrested-182631149.html)
+- Jan 22 - [Supreme Court could revive lawsuit against Texas officer who shot motorist stopped for unpaid tolls](https://www.yahoo.com/news/supreme-court-could-revive-lawsuit-180828302.html)
 <!-- feed end -->
 
 ### Onstream
