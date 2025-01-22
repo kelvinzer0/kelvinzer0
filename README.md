@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Trump issues slew of executive orders on energy](https://finance.yahoo.com/video/trump-issues-slew-executive-orders-154335353.html)
-- Jan 22 - [Stay off roads in Elmore and Montgomery counties, authorities warn](https://www.yahoo.com/news/stay-off-roads-elmore-montgomery-150300693.html)
-- Jan 22 - [I Withdrew $60k from My Retirement Plan This Year But It Increased My Medicare Premiums. Is This Permanent?](https://finance.yahoo.com/news/withdrew-60k-retirement-plan-increased-133000550.html)
-- Jan 22 - [Doug Emhoff Avenges Kamala’s Viral Handshake Snub](https://www.yahoo.com/news/doug-emhoff-avenges-kamala-viral-113346520.html)
-- Jan 22 - [This Type of Coffee Is the Worst for Heart Health, According to Cardiologists](https://www.yahoo.com/lifestyle/type-coffee-worst-heart-health-112500932.html)
+- Jan 22 - [Samsung Galaxy AI becomes more personal and cohesive](https://www.yahoo.com/tech/samsung-galaxy-ai-becomes-more-personal-and-cohesive-180029521.html)
+- Jan 22 - [I make more money from my side hustles than my six-figure software engineering job. Here's how I build and manage my income streams.](https://finance.yahoo.com/news/more-money-side-hustles-six-104102155.html)
+- Jan 22 - [A British submarine secretly tracking a Russian spy ship hanging around undersea cables suddenly surfaced close to send a message, UK says](https://www.yahoo.com/news/british-submarine-secretly-tracking-russian-170547326.html)
+- Jan 22 - [A Mother Tracks Her Son's Stolen iPhone On An 8,000-Mile Trip From NYC To Shenzhen, China – Here's What Irks Her More Than Losing The Phone](https://finance.yahoo.com/news/mother-tracks-her-sons-stolen-164517561.html)
+- Jan 22 - [If You Want To Be More Productive, Experts Are Begging You To Stop Doing These 5 Things After Work](https://www.yahoo.com/lifestyle/want-more-productive-experts-begging-143102010.html)
 <!-- feed end -->
 
 ### Onstream
