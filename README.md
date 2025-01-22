@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [Donald Trump Has Middle-Of-The-Night Meltdown Over Pastor's 'Nasty' Sermon About Him](https://www.yahoo.com/news/donald-trump-middle-night-meltdown-074927510.html)
 - Jan 22 - [South Korea to remove concrete embankment blamed for exacerbating deadly plane crash](https://www.yahoo.com/news/south-korea-remove-concrete-embankment-050328860.html)
 - Jan 22 - [Ukrainians said North Koreans are so determined to avoid capture that one tried to take himself out with a concrete pillar](https://www.yahoo.com/news/ukrainians-said-north-koreans-determined-035256316.html)
 - Jan 22 - [Here’s The Real Reason Women Have That Little Pooch](https://www.yahoo.com/lifestyle/real-reason-women-little-pooch-003102556.html)
 - Jan 21 - [Trump says he would sanction Russia if Putin does not negotiate on Ukraine](https://www.yahoo.com/news/trump-says-sanction-russia-putin-234355729.html)
-- Jan 21 - [GOP member wants bishop ‘added to deportation list’ after Trump prayer service](https://www.yahoo.com/news/gop-member-wants-bishop-added-224103604.html)
 <!-- feed end -->
 
 ### Onstream
