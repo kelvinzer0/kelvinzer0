@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Three call options to watch in the new administration](https://finance.yahoo.com/video/three-call-options-watch-administration-183508228.html)
-- Jan 22 - [Fire out at Moss Landing battery plant, heat pockets persist; EPA concludes air monitoring](https://www.yahoo.com/news/fire-moss-landing-battery-plant-182157718.html)
+- Jan 22 - [Amazon includes a $200 gift card when you pre-order the Samsung Galaxy S25 Ultra](https://www.yahoo.com/tech/amazon-includes-a-200-gift-card-when-you-pre-order-the-samsung-galaxy-s25-ultra-195455473.html)
+- Jan 22 - [Colombian police seize 8.2 tons of cocaine intended for shipment to Europe](https://www.yahoo.com/news/colombian-police-seize-8-2-194936603.html)
+- Jan 22 - [Pardoned Jan. 6 Defendant Arrested a Day After Getting Break From Trump](https://www.yahoo.com/news/pardoned-jan-6-defendant-arrested-182631149.html)
 - Jan 22 - [I make more money from my side hustles than my six-figure software engineering job. Here's how I build and manage my income streams.](https://finance.yahoo.com/news/more-money-side-hustles-six-104102155.html)
-- Jan 22 - [A British submarine secretly tracking a Russian spy ship hanging around undersea cables suddenly surfaced close to send a message, UK says](https://www.yahoo.com/news/british-submarine-secretly-tracking-russian-170547326.html)
-- Jan 22 - [How much snow fell in Savannah? Here are the latest totals from NWS](https://www.yahoo.com/news/much-snow-fell-savannah-latest-155119166.html)
+- Jan 22 - [Here’s how much rain Southern California could get this weekend](https://www.yahoo.com/news/much-rain-southern-california-could-171030327.html)
 <!-- feed end -->
 
 ### Onstream
