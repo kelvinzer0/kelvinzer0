@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [Trump says he would sanction Russia if Putin does not negotiate on Ukraine](https://www.yahoo.com/news/trump-says-sanction-russia-putin-234355729.html)
 - Jan 21 - [Trump fires heads of TSA, Coast Guard and guts key aviation safety advisory committee](https://www.yahoo.com/news/trump-fires-heads-tsa-coast-224441644.html)
 - Jan 21 - [Residents ordered to pay $850,000 bond to appeal Ohio derailment settlement vow not to give up](https://www.yahoo.com/news/residents-ordered-pay-850-000-223734146.html)
 - Jan 21 - [Elephants can't pursue their release from a Colorado zoo because they're not human, court says](https://www.yahoo.com/news/elephants-cant-pursue-release-colorado-215332340.html)
 - Jan 21 - [This Utah location dropped to negative 55 degrees on Monday night](https://www.yahoo.com/news/utah-location-dropped-negative-55-213312342.html)
-- Jan 21 - [The rescue of hundreds of miners in a deep South African gold mine began with a camera and a note](https://www.yahoo.com/news/rescue-camera-gave-officials-view-204857629.html)
 <!-- feed end -->
 
 ### Onstream
