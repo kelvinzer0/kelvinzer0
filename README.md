@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Jacksonville area urged to 'hunker down' for wintry mix through early Wednesday and more](https://www.yahoo.com/news/jacksonville-area-urged-hunker-down-220255922.html)
+- Jan 21 - [Man reported missing from Apple Valley pizza delivery job dies by suicide in St. Paul](https://www.yahoo.com/news/man-reported-missing-apple-valley-224300988.html)
+- Jan 21 - [Residents ordered to pay $850,000 bond to appeal Ohio derailment settlement vow not to give up](https://www.yahoo.com/news/residents-ordered-pay-850-000-223734146.html)
 - Jan 21 - [Sledding in Houston and snowball fights in New Orleans: Photos of the rare winter storm blanketing the South in snow](https://www.yahoo.com/news/sledding-in-houston-and-snowball-fights-in-new-orleans-photos-of-the-rare-winter-storm-blanketing-the-south-in-snow-215614324.html)
-- Jan 21 - [Rescue camera gave officials a view of hundreds of miners in South Africa trapped in shaft](https://www.yahoo.com/news/rescue-camera-gave-officials-view-204857629.html)
-- Jan 21 - [Trump says ICE can arrest people at churches and schools, directs agency to use ‘common sense’](https://www.yahoo.com/news/trump-says-ice-arrest-people-204630965.html)
-- Jan 21 - [Trump announces ‘Gulf of America’ executive order](https://www.yahoo.com/news/trump-announces-gulf-america-executive-202800118.html)
+- Jan 21 - [Elephants can't pursue their release from a Colorado zoo because they're not human, court says](https://www.yahoo.com/news/elephants-cant-pursue-release-colorado-215332340.html)
+- Jan 21 - [The rescue of hundreds of miners in a deep South African gold mine began with a camera and a note](https://www.yahoo.com/news/rescue-camera-gave-officials-view-204857629.html)
 <!-- feed end -->
 
 ### Onstream
