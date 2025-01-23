@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [Intel: Possible candidates for CEO](https://finance.yahoo.com/video/intel-possible-candidates-ceo-163214339.html)
 - Jan 23 - [5 men sentenced to death for gang rape and murder of teen](https://www.yahoo.com/news/5-men-sentenced-death-gang-144739670.html)
 - Jan 23 - [German-Indian JV emerges as sole contender for $5 billion India submarine deal](https://finance.yahoo.com/news/german-indian-jv-emerges-sole-144110668.html)
-- Jan 23 - [Hegseth’s ex-wife gives new statement to FBI amid scrutiny over his nomination](https://www.yahoo.com/news/top-senate-armed-services-members-011933450.html)
-- Jan 23 - [French divorcee who stopped having sex with husband wins appeal at European court](https://www.yahoo.com/news/french-divorcee-stopped-having-sex-121145500.html)
-- Jan 23 - [Above-Average Temperatures Could Dominate Much Of US As Winter Hands Off To Spring](https://www.yahoo.com/news/above-average-temperatures-could-dominate-120000235.html)
+- Jan 23 - [Why President Johnson signed the executive order in 1965 that Trump rescinded](https://www.yahoo.com/news/why-president-johnson-signed-executive-142554990.html)
+- Jan 23 - [6 Money Mistakes Retirees Make That Force Them To Change Their Lifestyles](https://finance.yahoo.com/news/6-money-mistakes-retirees-force-110105447.html)
 <!-- feed end -->
 
 ### Onstream
