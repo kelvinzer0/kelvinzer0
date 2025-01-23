@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [UnitedHealthcare names new CEO to replace slain Brian Thompson](https://finance.yahoo.com/video/unitedhealthcare-names-ceo-replace-slain-211357932.html)
-- Jan 23 - [Laguna Fire Map Near Camarillo Reveals How Far The Flames Have Spread](https://www.yahoo.com/news/laguna-fire-map-near-camarillo-194312727.html)
-- Jan 23 - [US Supreme Court allows anti-money laundering law to take effect](https://www.yahoo.com/news/us-supreme-court-allows-anti-190114112.html)
+- Jan 23 - [GE Aerospace beats Q4 estimates, 'constructive' for sector](https://finance.yahoo.com/video/ge-aerospace-beats-q4-estimates-223137009.html)
+- Jan 23 - [Female Deer Battle It Out in Snowy Wisconsin Woods](https://www.yahoo.com/news/female-deer-duke-dramatic-battle-170946808.html)
 - Jan 23 - [I was in the packed hall at Davos to hear Trump speak. The audience went from laughter to silence in seconds.](https://www.yahoo.com/news/packed-hall-davos-hear-trump-184210357.html)
-- Jan 23 - [Trump revokes protections for former Secretary of State Pompeo and top aide threatened by Iran](https://www.yahoo.com/news/trump-revokes-protections-former-secretary-181334273.html)
+- Jan 23 - [Mike Matheny reflects on near-death experience and new life mission](https://sports.yahoo.com/mike-matheny-reflects-near-death-183629534.html)
+- Jan 23 - [5 men sentenced to death for gang rape and murder of teen](https://www.yahoo.com/news/5-men-sentenced-death-gang-144739670.html)
 <!-- feed end -->
 
 ### Onstream
