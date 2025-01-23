@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Hundreds of couples marry in joyful scenes as Thailand legalises same-sex marriage: ‘Today we will become one’](https://www.yahoo.com/news/hundreds-couples-marry-joyful-scenes-122933089.html)
+- Jan 23 - [Celebration and a mass wedding in Thailand as same-sex marriage law takes effect](https://www.yahoo.com/news/celebration-mass-wedding-thailand-same-133028356.html)
 - Jan 23 - [French divorcee who stopped having sex with husband wins appeal at European court](https://www.yahoo.com/news/french-divorcee-stopped-having-sex-121145500.html)
-- Jan 23 - [OOPS: Trump Accidentally Gives Up The Game With Very Revealing Response](https://www.yahoo.com/news/oops-trump-accidentally-gives-game-100951041.html)
+- Jan 23 - [Hegseth’s ex-wife gives new statement to FBI amid scrutiny over his nomination](https://www.yahoo.com/news/top-senate-armed-services-members-011933450.html)
 - Jan 23 - [Plane Passenger Teaches Fellow Traveler a Lesson After They Try to Guilt Them Into Swapping Seats](https://www.yahoo.com/lifestyle/plane-passenger-teaches-fellow-traveler-093000513.html)
 - Jan 23 - [The Latest iPhone Update Includes 1 Feature You Might Want To Turn Off ASAP](https://www.yahoo.com/tech/latest-iphone-includes-1-feature-080020279.html)
 <!-- feed end -->
