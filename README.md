@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Celebration and a mass wedding in Thailand as same-sex marriage law takes effect](https://www.yahoo.com/news/celebration-mass-wedding-thailand-same-133028356.html)
 - Jan 23 - [French divorcee who stopped having sex with husband wins appeal at European court](https://www.yahoo.com/news/french-divorcee-stopped-having-sex-121145500.html)
-- Jan 23 - [Hegseth’s ex-wife gives new statement to FBI amid scrutiny over his nomination](https://www.yahoo.com/news/top-senate-armed-services-members-011933450.html)
-- Jan 23 - [Plane Passenger Teaches Fellow Traveler a Lesson After They Try to Guilt Them Into Swapping Seats](https://www.yahoo.com/lifestyle/plane-passenger-teaches-fellow-traveler-093000513.html)
+- Jan 23 - [Scientists make disturbing new discovery while studying human urine samples: 'We urgently need to classify [this]'](https://www.yahoo.com/news/scientists-disturbing-discovery-while-studying-103028262.html)
+- Jan 23 - [California issues new mandate that will have a major impact on homeowners' insurance: 'This is a historic moment'](https://www.yahoo.com/news/california-issues-mandate-major-impact-103007261.html)
 - Jan 23 - [The Latest iPhone Update Includes 1 Feature You Might Want To Turn Off ASAP](https://www.yahoo.com/tech/latest-iphone-includes-1-feature-080020279.html)
+- Jan 23 - [Exclusive-US deploys Typhon missile launchers to new location in Philippines](https://www.yahoo.com/news/exclusive-us-deploys-typhon-missile-055549133.html)
 <!-- feed end -->
 
 ### Onstream
