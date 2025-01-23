@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [D-Wave Quantum Sells $150 Million in Stock. It Isn’t the Only One Seizing the Opportunity.](https://www.barrons.com/articles/d-wave-quantum-stock-sale-1af5f2ea?siteid=yhoof2&yptr=yahoo)
+- Jan 23 - [Cohesity CEO on the impact of Trump 2.0 on the cybersecurity sector](https://finance.yahoo.com/video/cohesity-ceo-impact-trump-2-195050079.html)
+- Jan 23 - [Fourth Gen Camaro Police Impersonator Busted](https://autos.yahoo.com/fourth-gen-camaro-police-impersonator-193000517.html)
+- Jan 23 - [ADL Changes Its Tune on Elon Musk Amid Salute Backlash](https://www.yahoo.com/news/adl-changes-tune-elon-musk-190022726.html)
+- Jan 23 - [Trump revokes protections for former Secretary of State Mike Pompeo and top Iran aide](https://www.yahoo.com/news/trump-revokes-protections-former-secretary-181334273.html)
 - Jan 23 - [5 men sentenced to death for gang rape and murder of teen](https://www.yahoo.com/news/5-men-sentenced-death-gang-144739670.html)
-- Jan 23 - [Tech trade outlook: AI has 'long road ahead' and 'room to run'](https://finance.yahoo.com/video/tech-trade-outlook-ai-long-172943665.html)
-- Jan 23 - [This Is South Korea’s New Heavily Armed Marine Attack Helicopter](https://www.yahoo.com/news/south-korea-heavily-armed-marine-172933144.html)
-- Jan 23 - [JPMorgan Chase workers grouse over measly bonuses, 2% pay bumps as bank reels in record $58.5 billion in profits](https://finance.yahoo.com/news/jpmorgan-chase-workers-grouse-over-161900550.html)
 <!-- feed end -->
 
 ### Onstream
