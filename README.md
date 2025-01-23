@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Former Arkansas officer arrested, charged with assault in beating of handcuffed inmate](https://www.yahoo.com/news/former-arkansas-officer-arrested-charged-003446001.html)
-- Jan 22 - [Half of Atlanta TSA agents call out, leading to major delays at Hartsfield-Jackson](https://www.yahoo.com/news/half-atlanta-tsa-agents-call-225152261.html)
+- Jan 23 - [MLB Hall of Famer Mariano Rivera, Wife Clara Accused of Covering Up Child Sex Abuse](https://www.yahoo.com/news/mlb-hall-famer-mariano-rivera-011842039.html)
 - Jan 22 - [United Airlines CEO calls pullback in domestic seats a durable trend](https://finance.yahoo.com/news/united-airlines-ceo-calls-pullback-221704888.html)
+- Jan 22 - ['Blow her head off': Video shows armed man attack, threaten to shoot woman outside Indy gas station](https://www.yahoo.com/news/blow-her-head-off-video-220452920.html)
 - Jan 22 - [How to delete Facebook, Instagram, and Threads](https://finance.yahoo.com/news/delete-facebook-instagram-threads-193950524.html)
-- Jan 22 - [CNN and NBC News to lay off employees, CNBC reports](https://www.yahoo.com/news/cnn-lay-off-hundreds-employees-214216830.html)
+- Jan 22 - [Rivian Is Offering $6,000 In Discounts On Its Excellent Trucks And SUVs](https://autos.yahoo.com/rivian-offering-6-000-discounts-213000675.html)
 <!-- feed end -->
 
 ### Onstream
