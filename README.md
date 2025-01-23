@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Family outraged after man convicted in Connecticut killings gets clemency from Biden in drug case](https://www.yahoo.com/news/family-outraged-man-convicted-connecticut-223450142.html)
+- Jan 23 - [Former Arkansas officer arrested, charged with assault in beating of handcuffed inmate](https://www.yahoo.com/news/former-arkansas-officer-arrested-charged-003446001.html)
+- Jan 22 - [Half of Atlanta TSA agents call out, leading to major delays at Hartsfield-Jackson](https://www.yahoo.com/news/half-atlanta-tsa-agents-call-225152261.html)
 - Jan 22 - [United Airlines CEO calls pullback in domestic seats a durable trend](https://finance.yahoo.com/news/united-airlines-ceo-calls-pullback-221704888.html)
-- Jan 22 - [Why Advanced Micro Devices, Inc. (AMD) Among the Best Semiconductor Stocks to Buy for the AI Boom](https://finance.yahoo.com/news/why-advanced-micro-devices-inc-214925098.html)
-- Jan 22 - [Fast-growing wildfire breaks out north of Los Angeles, forces evacuations](https://www.yahoo.com/news/wildfire-breaks-north-los-angeles-211045899.html)
-- Jan 22 - [Influencer, 45, dies after going under general anesthesia for back tattoo](https://www.yahoo.com/news/influencer-45-dies-going-under-205341402.html)
+- Jan 22 - [How to delete Facebook, Instagram, and Threads](https://finance.yahoo.com/news/delete-facebook-instagram-threads-193950524.html)
+- Jan 22 - [CNN and NBC News to lay off employees, CNBC reports](https://www.yahoo.com/news/cnn-lay-off-hundreds-employees-214216830.html)
 <!-- feed end -->
 
 ### Onstream
