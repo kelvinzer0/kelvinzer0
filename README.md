@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Chinese mine worker killed in attack claimed by Isis in Afghanistan](https://www.yahoo.com/news/chinese-mine-worker-killed-attack-114204948.html)
-- Jan 23 - [OOPS: Trump Accidentally Gives Up The Game With 3 Very Revealing Words](https://www.yahoo.com/news/oops-trump-accidentally-gives-game-100951041.html)
-- Jan 23 - [Syria's new leaders turn to Islamic law in effort to rebuild Assad's police](https://www.yahoo.com/news/syrias-leaders-turn-islamic-law-100245282.html)
+- Jan 23 - [Hundreds of couples marry in joyful scenes as Thailand legalises same-sex marriage: ‘Today we will become one’](https://www.yahoo.com/news/hundreds-couples-marry-joyful-scenes-122933089.html)
+- Jan 23 - [French divorcee who stopped having sex with husband wins appeal at European court](https://www.yahoo.com/news/french-divorcee-stopped-having-sex-121145500.html)
+- Jan 23 - [OOPS: Trump Accidentally Gives Up The Game With Very Revealing Response](https://www.yahoo.com/news/oops-trump-accidentally-gives-game-100951041.html)
 - Jan 23 - [Plane Passenger Teaches Fellow Traveler a Lesson After They Try to Guilt Them Into Swapping Seats](https://www.yahoo.com/lifestyle/plane-passenger-teaches-fellow-traveler-093000513.html)
 - Jan 23 - [The Latest iPhone Update Includes 1 Feature You Might Want To Turn Off ASAP](https://www.yahoo.com/tech/latest-iphone-includes-1-feature-080020279.html)
 <!-- feed end -->
