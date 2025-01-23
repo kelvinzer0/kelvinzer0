@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [3 Reasons to Buy Axon Stock Like There's No Tomorrow](https://finance.yahoo.com/news/3-reasons-buy-axon-stock-081500745.html)
-- Jan 23 - [Exclusive-US deploys Typhon missile launchers to new location in Philippines](https://www.yahoo.com/news/exclusive-us-deploys-typhon-missile-055549133.html)
+- Jan 23 - [China made a bet decades ago because it couldn’t compete with the US on cars. That bet is paying off big](https://www.yahoo.com/news/china-made-bet-decades-ago-092414839.html)
+- Jan 23 - [Hegseth’s ex-wife gives new statement to FBI amid scrutiny over his nomination](https://www.yahoo.com/news/top-senate-armed-services-members-011933450.html)
 - Jan 23 - [Record-Shattering 20,000 Mph Winds Detected on Wild Alien Planet](https://www.yahoo.com/news/record-shattering-20-000-mph-044829982.html)
-- Jan 23 - [Union investigates claims that Boeing is sending work to non-union locations](https://finance.yahoo.com/news/union-investigates-claims-boeing-sending-041854282.html)
-- Jan 23 - [A Pastor's Powerful Plea For 'Mercy' Drew Trump's Ire — And Faith Leaders Have Something To Say](https://www.yahoo.com/news/pastors-powerful-plea-mercy-drew-002115333.html)
+- Jan 23 - [Former Arkansas officer arrested, charged with assault in beating of handcuffed inmate](https://www.yahoo.com/news/former-arkansas-officer-arrested-charged-003446001.html)
+- Jan 22 - [Local TV Meteorologists Bid Farewell After Layoffs](https://www.yahoo.com/news/local-tv-meteorologists-bid-farewell-223704794.html)
 <!-- feed end -->
 
 ### Onstream
