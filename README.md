@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Cold snap chills New York City's rats, and heats up the fight against them](https://www.yahoo.com/news/cold-snap-chills-york-citys-050426264.html)
-- Jan 23 - [Large new wildfire forces more evacuations in Southern California](https://www.yahoo.com/news/large-wildfire-forces-more-evacuations-000536505.html)
+- Jan 23 - [Trump addresses Davos, American Airlines earnings: What to Watch](https://finance.yahoo.com/video/trump-addresses-davos-american-airlines-000000879.html)
+- Jan 22 - [Family outraged after man convicted in Connecticut killings gets clemency from Biden in drug case](https://www.yahoo.com/news/family-outraged-man-convicted-connecticut-223450142.html)
 - Jan 22 - [United Airlines CEO calls pullback in domestic seats a durable trend](https://finance.yahoo.com/news/united-airlines-ceo-calls-pullback-221704888.html)
 - Jan 22 - [How to delete Facebook, Instagram, and Threads](https://finance.yahoo.com/news/delete-facebook-instagram-threads-193950524.html)
-- Jan 22 - [CNN and NBC News to lay off employees, CNBC reports](https://www.yahoo.com/news/cnn-lay-off-hundreds-employees-214216830.html)
+- Jan 22 - [Trump has canceled Biden's ethics rules. Critics call it the opposite of 'drain the swamp'](https://www.yahoo.com/news/trump-canceled-bidens-ethics-rules-204702933.html)
 <!-- feed end -->
 
 ### Onstream
