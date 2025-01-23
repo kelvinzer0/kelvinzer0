@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [3 Reasons to Buy Axon Stock Like There's No Tomorrow](https://finance.yahoo.com/news/3-reasons-buy-axon-stock-081500745.html)
+- Jan 23 - [Exclusive-US deploys Typhon missile launchers to new location in Philippines](https://www.yahoo.com/news/exclusive-us-deploys-typhon-missile-055549133.html)
+- Jan 23 - [Record-Shattering 20,000 Mph Winds Detected on Wild Alien Planet](https://www.yahoo.com/news/record-shattering-20-000-mph-044829982.html)
 - Jan 23 - [Union investigates claims that Boeing is sending work to non-union locations](https://finance.yahoo.com/news/union-investigates-claims-boeing-sending-041854282.html)
-- Jan 23 - [Former Arkansas officer arrested, charged with assault in beating of handcuffed inmate](https://www.yahoo.com/news/former-arkansas-officer-arrested-charged-003446001.html)
-- Jan 22 - [Half of Atlanta TSA agents call out, leading to major delays at Hartsfield-Jackson](https://www.yahoo.com/news/half-atlanta-tsa-agents-call-225152261.html)
-- Jan 22 - [Family outraged after man convicted in Connecticut killings gets clemency from Biden in drug case](https://www.yahoo.com/news/family-outraged-man-convicted-connecticut-223450142.html)
-- Jan 22 - [United Airlines CEO calls pullback in domestic seats a durable trend](https://finance.yahoo.com/news/united-airlines-ceo-calls-pullback-221704888.html)
+- Jan 23 - [A Pastor's Powerful Plea For 'Mercy' Drew Trump's Ire — And Faith Leaders Have Something To Say](https://www.yahoo.com/news/pastors-powerful-plea-mercy-drew-002115333.html)
 <!-- feed end -->
 
 ### Onstream
