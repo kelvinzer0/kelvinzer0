@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [California wildfires live updates: 30,000 evacuated as explosive Hughes fire breaks out amid strong winds near Castaic](https://www.yahoo.com/news/california-wildfires-live-updates-thousands-033313207.html)
-- Jan 23 - [Roswell police officer rams vehicle while responding to crash](https://www.yahoo.com/news/roswell-police-officer-rams-vehicle-040600892.html)
-- Jan 23 - [MLB Hall of Famer Mariano Rivera, Wife Clara Accused of Covering Up Child Sex Abuse](https://www.yahoo.com/news/mlb-hall-famer-mariano-rivera-011842039.html)
+- Jan 23 - [Cold snap chills New York City's rats, and heats up the fight against them](https://www.yahoo.com/news/cold-snap-chills-york-citys-050426264.html)
+- Jan 23 - [Large new wildfire forces more evacuations in Southern California](https://www.yahoo.com/news/large-wildfire-forces-more-evacuations-000536505.html)
 - Jan 22 - [United Airlines CEO calls pullback in domestic seats a durable trend](https://finance.yahoo.com/news/united-airlines-ceo-calls-pullback-221704888.html)
-- Jan 22 - ['Blow her head off': Video shows armed man attack, threaten to shoot woman outside Indy gas station](https://www.yahoo.com/news/blow-her-head-off-video-220452920.html)
+- Jan 22 - [How to delete Facebook, Instagram, and Threads](https://finance.yahoo.com/news/delete-facebook-instagram-threads-193950524.html)
+- Jan 22 - [CNN and NBC News to lay off employees, CNBC reports](https://www.yahoo.com/news/cnn-lay-off-hundreds-employees-214216830.html)
 <!-- feed end -->
 
 ### Onstream
