@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Intel: Possible candidates for CEO](https://finance.yahoo.com/video/intel-possible-candidates-ceo-163214339.html)
+- Jan 23 - [Why OSI Systems Stock Soared by More Than 15% Thursday](https://finance.yahoo.com/news/why-osi-systems-stock-soared-174445752.html)
 - Jan 23 - [5 men sentenced to death for gang rape and murder of teen](https://www.yahoo.com/news/5-men-sentenced-death-gang-144739670.html)
-- Jan 23 - [German-Indian JV emerges as sole contender for $5 billion India submarine deal](https://finance.yahoo.com/news/german-indian-jv-emerges-sole-144110668.html)
-- Jan 23 - [Why President Johnson signed the executive order in 1965 that Trump rescinded](https://www.yahoo.com/news/why-president-johnson-signed-executive-142554990.html)
-- Jan 23 - [6 Money Mistakes Retirees Make That Force Them To Change Their Lifestyles](https://finance.yahoo.com/news/6-money-mistakes-retirees-force-110105447.html)
+- Jan 23 - [Tech trade outlook: AI has 'long road ahead' and 'room to run'](https://finance.yahoo.com/video/tech-trade-outlook-ai-long-172943665.html)
+- Jan 23 - [FBI agents raid a building in downtown Providence. What we know.](https://www.yahoo.com/news/fbi-agents-raid-building-downtown-161455403.html)
+- Jan 23 - [Rare corpse flower to bloom at Brooklyn Botanical Garden for a limited time](https://www.yahoo.com/lifestyle/rare-corpse-flower-bloom-brooklyn-155525731.html)
 <!-- feed end -->
 
 ### Onstream
