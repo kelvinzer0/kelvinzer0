@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Why OSI Systems Stock Soared by More Than 15% Thursday](https://finance.yahoo.com/news/why-osi-systems-stock-soared-174445752.html)
+- Jan 23 - [D-Wave Quantum Sells $150 Million in Stock. It Isn’t the Only One Seizing the Opportunity.](https://www.barrons.com/articles/d-wave-quantum-stock-sale-1af5f2ea?siteid=yhoof2&yptr=yahoo)
 - Jan 23 - [5 men sentenced to death for gang rape and murder of teen](https://www.yahoo.com/news/5-men-sentenced-death-gang-144739670.html)
 - Jan 23 - [Tech trade outlook: AI has 'long road ahead' and 'room to run'](https://finance.yahoo.com/video/tech-trade-outlook-ai-long-172943665.html)
-- Jan 23 - [FBI agents raid a building in downtown Providence. What we know.](https://www.yahoo.com/news/fbi-agents-raid-building-downtown-161455403.html)
-- Jan 23 - [Rare corpse flower to bloom at Brooklyn Botanical Garden for a limited time](https://www.yahoo.com/lifestyle/rare-corpse-flower-bloom-brooklyn-155525731.html)
+- Jan 23 - [This Is South Korea’s New Heavily Armed Marine Attack Helicopter](https://www.yahoo.com/news/south-korea-heavily-armed-marine-172933144.html)
+- Jan 23 - [JPMorgan Chase workers grouse over measly bonuses, 2% pay bumps as bank reels in record $58.5 billion in profits](https://finance.yahoo.com/news/jpmorgan-chase-workers-grouse-over-161900550.html)
 <!-- feed end -->
 
 ### Onstream
