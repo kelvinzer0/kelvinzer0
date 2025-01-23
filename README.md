@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [With 47% ownership, Vault Minerals Limited (ASX:VAU) has piqued the interest of institutional investors](https://finance.yahoo.com/news/47-ownership-vault-minerals-limited-201911457.html)
-- Jan 23 - [How much money is considered rich?](https://finance.yahoo.com/personal-finance/banking/article/how-much-money-is-considered-rich-200433766.html)
-- Jan 23 - [Undiscovered Gems Three Promising Stocks with Strong Potential](https://finance.yahoo.com/news/undiscovered-gems-three-promising-stocks-200406909.html)
-- Jan 23 - [Trump challenges BofA CEO Moynihan: 'I hope you start opening your bank to conservatives'](https://finance.yahoo.com/news/trump-challenges-bofa-ceo-moynihan-i-hope-you-start-opening-your-bank-to-conservatives-190534911.html)
-- Jan 23 - [5 men sentenced to death for gang rape and murder of teen](https://www.yahoo.com/news/5-men-sentenced-death-gang-144739670.html)
+- Jan 23 - [UnitedHealthcare names new CEO to replace slain Brian Thompson](https://finance.yahoo.com/video/unitedhealthcare-names-ceo-replace-slain-211357932.html)
+- Jan 23 - [Laguna Fire Map Near Camarillo Reveals How Far The Flames Have Spread](https://www.yahoo.com/news/laguna-fire-map-near-camarillo-194312727.html)
+- Jan 23 - [US Supreme Court allows anti-money laundering law to take effect](https://www.yahoo.com/news/us-supreme-court-allows-anti-190114112.html)
+- Jan 23 - [I was in the packed hall at Davos to hear Trump speak. The audience went from laughter to silence in seconds.](https://www.yahoo.com/news/packed-hall-davos-hear-trump-184210357.html)
+- Jan 23 - [Trump revokes protections for former Secretary of State Pompeo and top aide threatened by Iran](https://www.yahoo.com/news/trump-revokes-protections-former-secretary-181334273.html)
 <!-- feed end -->
 
 ### Onstream
