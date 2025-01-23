@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Fast-moving fire north of LA closes part of I-5 and frays nerves in California after back-to-back blazes](https://www.yahoo.com/news/fast-moving-fire-north-la-021600638.html)
-- Jan 23 - [MLB Hall of Famer Mariano Rivera, Wife Clara Accused of Covering Up Child Sex Abuse](https://www.yahoo.com/news/mlb-hall-famer-mariano-rivera-011842039.html)
-- Jan 22 - [Jamie Dimon sounds the alarm on stocks, says the market is looking 'kind of inflated'](https://finance.yahoo.com/news/jamie-dimon-sounds-alarm-stocks-233356983.html)
+- Jan 23 - [Police: NH driver yells at trooper, speeds off at over 100mph, crashes car into snow bank](https://www.yahoo.com/news/police-nh-driver-yells-trooper-035313616.html)
+- Jan 23 - [Samsung unveils new AI phones in bid to beat Apple, Chinese rivals](https://finance.yahoo.com/video/samsung-unveils-ai-phones-bid-035035604.html)
+- Jan 22 - [Family outraged after man convicted in Connecticut killings gets clemency from Biden in drug case](https://www.yahoo.com/news/family-outraged-man-convicted-connecticut-223450142.html)
 - Jan 22 - [United Airlines CEO calls pullback in domestic seats a durable trend](https://finance.yahoo.com/news/united-airlines-ceo-calls-pullback-221704888.html)
-- Jan 22 - ['Blow her head off': Video shows armed man attack, threaten to shoot woman outside Indy gas station](https://www.yahoo.com/news/blow-her-head-off-video-220452920.html)
+- Jan 22 - [How to delete Facebook, Instagram, and Threads](https://finance.yahoo.com/news/delete-facebook-instagram-threads-193950524.html)
 <!-- feed end -->
 
 ### Onstream
