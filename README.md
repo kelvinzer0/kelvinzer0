@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [I-110 overpass in Pensacola closed, other roads open but ice causing slowdowns](https://www.yahoo.com/news/110-overpass-pensacola-closed-other-130254673.html)
+- Jan 24 - [Mum who left sons home alone jailed for fire deaths](https://www.yahoo.com/news/mum-left-sons-home-alone-133403608.html)
+- Jan 24 - [Russia says it sees no signs that Ukraine and the West are ready for peace talks despite all statements](https://www.yahoo.com/news/russia-says-sees-no-signs-140915493.html)
 - Jan 24 - [Tucker Carlson asked Dave Ramsey why he’s against credit cards — and was blown away by his answer. Here’s why](https://finance.yahoo.com/news/tucker-carlson-asked-dave-ramsey-120300697.html)
+- Jan 24 - [Ask an Advisor: Will My Wife Get Spousal Benefits Automatically When I Start My $4,000 Social Security?](https://finance.yahoo.com/news/claim-4-000-social-security-110000022.html)
 - Jan 24 - [Jesse Watters Outraged by Harris Grocery Shopping With Her Husband](https://www.yahoo.com/news/fox-jesse-watters-metes-bizarre-103745203.html)
-- Jan 24 - [Scientists discover game-changing property of abundant metal — here's how it could help solve a global issue](https://www.yahoo.com/tech/scientists-discover-game-changing-property-103054852.html)
-- Jan 24 - [Conservatives Flip Out Over 1 Of JD Vance's First Moves As Vice President](https://www.yahoo.com/news/conservatives-flip-over-1-jd-075729335.html)
 <!-- feed end -->
 
 ### Onstream
