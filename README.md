@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Official sources: Russian investigators suggest Pantsir-S1 missile downed Azerbaijan Airlines flight](https://www.yahoo.com/news/official-sources-russian-investigators-suggest-175152556.html)
+- Jan 24 - [Ukrainian Leopard 1 Tank Survived A Dozen Drone Strikes: Report](https://www.yahoo.com/news/ukrainian-leopard-1-tank-survived-191331675.html)
+- Jan 24 - [Trump Reportedly Preparing an Executive Order Banning Federal Funding of Gain-of-Function Research](https://www.yahoo.com/news/trump-reportedly-preparing-executive-order-185522875.html)
 - Jan 24 - [Trump ends Fauci's security detail and says he'd feel no responsibility if harm befell him](https://www.yahoo.com/news/trump-ends-faucis-security-detail-175704076.html)
-- Jan 24 - [Hamas names four Israeli female soldier hostages to be freed in second swap](https://www.yahoo.com/news/hamas-gives-names-four-israeli-151455882.html)
-- Jan 24 - [North Korean forces are being slaughtered fighting for Russia, harming combat operations, intel says](https://www.yahoo.com/news/north-korean-forces-being-slaughtered-144920818.html)
-- Jan 24 - [Lauren Boebert forced to apologize after trying to kick out ‘a guy’ from women’s bathroom at Capitol](https://www.yahoo.com/news/lauren-boebert-forced-apologize-trying-143312431.html)
-- Jan 24 - [Firefighters tackle raging San Diego wildfire blaze as evacuation orders issued](https://www.yahoo.com/news/firefighters-tackle-raging-san-diego-113905697.html)
+- Jan 24 - [Martin Luther King’s Family Responds to Trump’s Assassination Files Order With a Request](https://www.yahoo.com/news/martin-luther-king-family-responds-160641934.html)
 <!-- feed end -->
 
 ### Onstream
