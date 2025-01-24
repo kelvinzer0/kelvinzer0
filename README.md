@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Official sources: Russian investigators suggest Pantsir-S1 missile downed Azerbaijan Airlines flight](https://www.yahoo.com/news/official-sources-russian-investigators-suggest-175152556.html)
-- Jan 24 - [Ukrainian Leopard 1 Tank Survived A Dozen Drone Strikes: Report](https://www.yahoo.com/news/ukrainian-leopard-1-tank-survived-191331675.html)
+- Jan 24 - [Former Proud Boys leader Enrique Tarrio says he 'did nothing wrong'](https://www.yahoo.com/news/former-proud-boys-leader-enrique-201759068.html)
+- Jan 24 - [Thieves target Falcons’ Antonio Hamilton’s Roswell home, steal safe with guns, handbags](https://www.yahoo.com/news/thieves-target-falcons-antonio-hamilton-201059321.html)
 - Jan 24 - [Trump Reportedly Preparing an Executive Order Banning Federal Funding of Gain-of-Function Research](https://www.yahoo.com/news/trump-reportedly-preparing-executive-order-185522875.html)
 - Jan 24 - [Trump ends Fauci's security detail and says he'd feel no responsibility if harm befell him](https://www.yahoo.com/news/trump-ends-faucis-security-detail-175704076.html)
-- Jan 24 - [Martin Luther King’s Family Responds to Trump’s Assassination Files Order With a Request](https://www.yahoo.com/news/martin-luther-king-family-responds-160641934.html)
+- Jan 24 - [Washington state woman is arrested in the fatal shooting of a Vermont Border Patrol agent](https://www.yahoo.com/news/fbi-arrests-washington-state-woman-173612688.html)
 <!-- feed end -->
 
 ### Onstream
