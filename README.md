@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - ["Over Time, It Starves The Brain": Neurologists Shared The Foods They Would Never, Ever Eat And Why](https://www.yahoo.com/lifestyle/over-time-starves-brain-neurologists-061601730.html)
+- Jan 24 - [Rivian says other automakers 'knocking on door' about tech from VW joint venture](https://finance.yahoo.com/news/rivian-says-other-automakers-knocking-042927428.html)
 - Jan 24 - [Recording captured ex-interpreter impersonating Ohtani to transfer $200,000, prosecutors say](https://www.yahoo.com/news/recording-captured-ex-interpreter-impersonating-030243640.html)
 - Jan 24 - [Homeowners in Palisades Fire burn area angered by bank’s decision](https://finance.yahoo.com/news/homeowners-palisades-fire-burn-area-010506414.html)
-- Jan 24 - [Norah O’Donnell Exits Ahead of Hard Pivot for ‘CBS Evening News’](https://www.yahoo.com/news/norah-o-donnell-exits-ahead-010213101.html)
 - Jan 24 - [If Your Pee Looks Or Smells Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/pee-looks-smells-time-see-003102422.html)
-- Jan 23 - [St. Louis barbecue franchise to open new $1.5M location](https://www.yahoo.com/news/st-louis-barbecue-franchise-open-222427189.html)
 <!-- feed end -->
 
 ### Onstream
