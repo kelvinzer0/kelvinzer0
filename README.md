@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Oak Hill members could be on the hook for $160K legal costs after insurance denial](https://www.yahoo.com/news/oak-hill-members-could-hook-153846352.html)
+- Jan 24 - [Trump ends Fauci's security detail and says he'd feel no responsibility if harm befell him](https://www.yahoo.com/news/trump-ends-faucis-security-detail-175704076.html)
 - Jan 24 - [Hamas names four Israeli female soldier hostages to be freed in second swap](https://www.yahoo.com/news/hamas-gives-names-four-israeli-151455882.html)
+- Jan 24 - [North Korean forces are being slaughtered fighting for Russia, harming combat operations, intel says](https://www.yahoo.com/news/north-korean-forces-being-slaughtered-144920818.html)
 - Jan 24 - [Lauren Boebert forced to apologize after trying to kick out ‘a guy’ from women’s bathroom at Capitol](https://www.yahoo.com/news/lauren-boebert-forced-apologize-trying-143312431.html)
-- Jan 24 - [Tucker Carlson asked Dave Ramsey why he’s against credit cards — and was blown away by his answer. Here’s why](https://finance.yahoo.com/news/tucker-carlson-asked-dave-ramsey-120300697.html)
-- Jan 24 - [Ask an Advisor: We're 65, Have $1 Million, and Want to Live on $90K a Year. Is That Feasible?](https://finance.yahoo.com/news/ask-advisor-were-65-1-141758582.html)
+- Jan 24 - [Firefighters tackle raging San Diego wildfire blaze as evacuation orders issued](https://www.yahoo.com/news/firefighters-tackle-raging-san-diego-113905697.html)
 <!-- feed end -->
 
 ### Onstream
