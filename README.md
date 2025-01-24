@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Italy's Monte dei Paschi bids 13.3 bn euros for Mediobanca](https://finance.yahoo.com/news/italys-monte-dei-paschi-bids-100730133.html)
 - Jan 24 - [Jesse Watters Outraged by Harris Grocery Shopping With Her Husband](https://www.yahoo.com/news/fox-jesse-watters-metes-bizarre-103745203.html)
 - Jan 24 - [If I Could Buy Only 1 Stock to Bet on the AI Boom in 2025, It Would Be This One](https://finance.yahoo.com/news/could-buy-only-1-stock-091000538.html)
 - Jan 24 - [Conservatives Flip Out Over 1 Of JD Vance's First Moves As Vice President](https://www.yahoo.com/news/conservatives-flip-over-1-jd-075729335.html)
 - Jan 24 - ["Over Time, It Starves The Brain": Neurologists Shared The Foods They Would Never, Ever Eat And Why](https://www.yahoo.com/lifestyle/over-time-starves-brain-neurologists-061601730.html)
+- Jan 24 - [Tesla driver in deadly San Francisco 7-car crash released](https://www.yahoo.com/news/tesla-driver-deadly-san-francisco-014910678.html)
 <!-- feed end -->
 
 ### Onstream
