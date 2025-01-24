@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Eerie Moment Beach Transforms Into Sepia Tone as Smoke From Wildfire Sets in](https://www.yahoo.com/news/eerie-moment-beach-transforms-sepia-021638663.html)
-- Jan 24 - [12-year-old shot after throwing snowball at car in Connecticut](https://www.yahoo.com/news/12-old-shot-throwing-snowball-014146668.html)
-- Jan 24 - [BYD overtakes Toyota, Tesla  as Singapore’s top car brand in 2024; Singapore’s favourite Chinese New Year traditions, revealed: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-byd-overtakes-toyota-tesla-singapore-top-car-brand-2024-010234124.html)
+- Jan 24 - [Homeowners in Palisades Fire burn area angered by bank’s decision](https://finance.yahoo.com/news/homeowners-palisades-fire-burn-area-010506414.html)
 - Jan 24 - [If Your Pee Looks Or Smells Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/pee-looks-smells-time-see-003102422.html)
 - Jan 24 - [Lauren Boebert Tries to Evict a ‘Guy’ From Ladies Room in Capitol](https://www.yahoo.com/news/boebert-tries-evict-guy-ladies-001042065.html)
+- Jan 23 - [Solar plant on I-15 near its end, shutting off in 2026, officials say](https://www.yahoo.com/news/solar-plant-15-near-end-233624167.html)
+- Jan 23 - [St. Louis barbecue franchise to open new $1.5M location](https://www.yahoo.com/news/st-louis-barbecue-franchise-open-222427189.html)
 <!-- feed end -->
 
 ### Onstream
