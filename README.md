@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Tesla launches new Model Y in US, Canada, Europe weeks after China](https://finance.yahoo.com/news/tesla-announces-revamped-model-y-012813698.html)
 - Jan 24 - [Homeowners in Palisades Fire burn area angered by bank’s decision](https://finance.yahoo.com/news/homeowners-palisades-fire-burn-area-010506414.html)
-- Jan 24 - [BYD overtakes Toyota, Tesla  as Singapore’s top car brand in 2024; Singapore’s favourite Chinese New Year traditions, revealed: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-byd-overtakes-toyota-tesla-singapore-top-car-brand-2024-singapore-favourite-chinese-new-year-traditions-revealed-010234936.html)
+- Jan 24 - [Norah O’Donnell Exits Ahead of Hard Pivot for ‘CBS Evening News’](https://www.yahoo.com/news/norah-o-donnell-exits-ahead-010213101.html)
 - Jan 24 - [If Your Pee Looks Or Smells Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/pee-looks-smells-time-see-003102422.html)
-- Jan 23 - [Fire with ‘dangerous rate of spread’ erupts at Otay Mountain](https://www.yahoo.com/news/fire-dangerous-rate-spread-erupts-223141703.html)
+- Jan 23 - [St. Louis barbecue franchise to open new $1.5M location](https://www.yahoo.com/news/st-louis-barbecue-franchise-open-222427189.html)
+- Jan 23 - [Boeing warns of bigger-than-expected $4 billion quarterly loss; shares drop](https://finance.yahoo.com/news/boeing-forecasts-bigger-expected-loss-213825500.html)
 <!-- feed end -->
 
 ### Onstream
