@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Social media post leads to investigation, causing concerns for parents in local school district](https://www.yahoo.com/news/social-media-post-leads-investigation-214718544.html)
+- Jan 24 - [Hamas names four Israeli female soldier hostages set to be freed](https://www.yahoo.com/news/hamas-names-four-israeli-female-212132474.html)
+- Jan 24 - [ICE agents attempted entry into Chicago elementary school but were not allowed inside, Chicago Public Schools officials say](https://www.yahoo.com/news/ice-agents-attempted-entry-chicago-204621405.html)
 - Jan 24 - [Former Proud Boys leader Enrique Tarrio says he 'did nothing wrong'](https://www.yahoo.com/news/former-proud-boys-leader-enrique-201759068.html)
-- Jan 24 - [Thieves target Falcons’ Antonio Hamilton’s Roswell home, steal safe with guns, handbags](https://www.yahoo.com/news/thieves-target-falcons-antonio-hamilton-201059321.html)
-- Jan 24 - [Trump Reportedly Preparing an Executive Order Banning Federal Funding of Gain-of-Function Research](https://www.yahoo.com/news/trump-reportedly-preparing-executive-order-185522875.html)
-- Jan 24 - [Trump ends Fauci's security detail and says he'd feel no responsibility if harm befell him](https://www.yahoo.com/news/trump-ends-faucis-security-detail-175704076.html)
-- Jan 24 - [Washington state woman is arrested in the fatal shooting of a Vermont Border Patrol agent](https://www.yahoo.com/news/fbi-arrests-washington-state-woman-173612688.html)
+- Jan 24 - [Trump WH Press Secretary took hundreds of thousands of dollars in illegal campaign contributions](https://www.yahoo.com/news/trump-wh-press-secretary-took-200109900.html)
 <!-- feed end -->
 
 ### Onstream
