@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Beatified martyr who saved war torn children of Congo revered by Goma's Catholics](https://www.yahoo.com/news/beatified-martyr-saved-war-torn-101049795.html)
-- Jan 24 - [Russian ships damaging UK underwater cables face raid by Royal Marine Commandos, signals Defence Secretary](https://www.yahoo.com/news/russian-ships-damaging-uk-underwater-092448682.html)
+- Jan 24 - [If I Could Buy Only 1 Stock to Bet on the AI Boom in 2025, It Would Be This One](https://finance.yahoo.com/news/could-buy-only-1-stock-091000538.html)
 - Jan 24 - [Conservatives Flip Out Over 1 Of JD Vance's First Moves As Vice President](https://www.yahoo.com/news/conservatives-flip-over-1-jd-075729335.html)
+- Jan 24 - [Rivian says other automakers 'knocking on door' about tech from VW joint venture](https://finance.yahoo.com/news/rivian-says-other-automakers-knocking-042927428.html)
+- Jan 24 - [Tesla driver in deadly San Francisco 7-car crash released](https://www.yahoo.com/news/tesla-driver-deadly-san-francisco-014910678.html)
 - Jan 24 - [Homeowners in Palisades Fire burn area angered by bank’s decision](https://finance.yahoo.com/news/homeowners-palisades-fire-burn-area-010506414.html)
-- Jan 24 - [Norah O’Donnell Exits Ahead of Hard Pivot for ‘CBS Evening News’](https://www.yahoo.com/news/norah-o-donnell-exits-ahead-010213101.html)
 <!-- feed end -->
 
 ### Onstream
