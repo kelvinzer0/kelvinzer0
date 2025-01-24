@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Social media post leads to investigation, causing concerns for parents in local school district](https://www.yahoo.com/news/social-media-post-leads-investigation-214718544.html)
-- Jan 24 - [Hamas names four Israeli female soldier hostages set to be freed](https://www.yahoo.com/news/hamas-names-four-israeli-female-212132474.html)
-- Jan 24 - [ICE agents attempted entry into Chicago elementary school but were not allowed inside, Chicago Public Schools officials say](https://www.yahoo.com/news/ice-agents-attempted-entry-chicago-204621405.html)
-- Jan 24 - [Former Proud Boys leader Enrique Tarrio says he 'did nothing wrong'](https://www.yahoo.com/news/former-proud-boys-leader-enrique-201759068.html)
-- Jan 24 - [Trump WH Press Secretary took hundreds of thousands of dollars in illegal campaign contributions](https://www.yahoo.com/news/trump-wh-press-secretary-took-200109900.html)
+- Jan 24 - [Stargate & OpenAI announcement is 'net positive' for Microsoft](https://finance.yahoo.com/video/stargate-openai-announcement-net-positive-230857570.html)
+- Jan 24 - [West El Paso massage parlor shut down for allegedly offering illegal sexual activities](https://www.yahoo.com/news/west-el-paso-massage-parlor-221254277.html)
+- Jan 24 - [Law enforcement agents tried to enter a Chicago elementary school but were not allowed, Chicago Public Schools officials say](https://www.yahoo.com/news/ice-agents-attempted-entry-chicago-204621405.html)
+- Jan 24 - [Top Dividend Stocks To Consider In January 2025](https://finance.yahoo.com/news/top-dividend-stocks-consider-january-220557316.html)
+- Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
 <!-- feed end -->
 
 ### Onstream
