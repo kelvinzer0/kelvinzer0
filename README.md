@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Firefighters on scene after fatal overnight Russian drone attack in Ukraine's Kyiv region](https://www.yahoo.com/news/firefighters-scene-fatal-overnight-russian-083312507.html)
+- Jan 24 - [Beatified martyr who saved war torn children of Congo revered by Goma's Catholics](https://www.yahoo.com/news/beatified-martyr-saved-war-torn-101049795.html)
+- Jan 24 - [Russian ships damaging UK underwater cables face raid by Royal Marine Commandos, signals Defence Secretary](https://www.yahoo.com/news/russian-ships-damaging-uk-underwater-092448682.html)
 - Jan 24 - [Conservatives Flip Out Over 1 Of JD Vance's First Moves As Vice President](https://www.yahoo.com/news/conservatives-flip-over-1-jd-075729335.html)
-- Jan 24 - [Rivian says other automakers 'knocking on door' about tech from VW joint venture](https://finance.yahoo.com/news/rivian-says-other-automakers-knocking-042927428.html)
-- Jan 24 - [Recording captured ex-interpreter impersonating Ohtani to transfer $200,000, prosecutors say](https://www.yahoo.com/news/recording-captured-ex-interpreter-impersonating-030243640.html)
 - Jan 24 - [Homeowners in Palisades Fire burn area angered by bank’s decision](https://finance.yahoo.com/news/homeowners-palisades-fire-burn-area-010506414.html)
+- Jan 24 - [Norah O’Donnell Exits Ahead of Hard Pivot for ‘CBS Evening News’](https://www.yahoo.com/news/norah-o-donnell-exits-ahead-010213101.html)
 <!-- feed end -->
 
 ### Onstream
