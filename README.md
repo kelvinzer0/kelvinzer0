@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [GE Aerospace beats Q4 estimates, 'constructive' for sector](https://finance.yahoo.com/video/ge-aerospace-beats-q4-estimates-223137009.html)
-- Jan 23 - [Female Deer Battle It Out in Snowy Wisconsin Woods](https://www.yahoo.com/news/female-deer-duke-dramatic-battle-170946808.html)
-- Jan 23 - [I was in the packed hall at Davos to hear Trump speak. The audience went from laughter to silence in seconds.](https://www.yahoo.com/news/packed-hall-davos-hear-trump-184210357.html)
-- Jan 23 - [Mike Matheny reflects on near-death experience and new life mission](https://sports.yahoo.com/mike-matheny-reflects-near-death-183629534.html)
-- Jan 23 - [5 men sentenced to death for gang rape and murder of teen](https://www.yahoo.com/news/5-men-sentenced-death-gang-144739670.html)
+- Jan 24 - [Abductions spark fears of a return to Kenya's dark past](https://www.yahoo.com/news/abductions-spark-fears-return-kenyas-010815547.html)
+- Jan 24 - [BYD overtakes Toyota, Tesla  as Singapore’s top car brand in 2024: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-byd-overtakes-toyota-tesla-singapore-top-car-brand-2024-010234124.html)
+- Jan 24 - [Lauren Boebert Tries to Evict a ‘Guy’ From Ladies Room in Capitol](https://www.yahoo.com/news/boebert-tries-evict-guy-ladies-001042065.html)
+- Jan 23 - [Fire with ‘dangerous rate of spread’ erupts at Otay Mountain](https://www.yahoo.com/news/fire-dangerous-rate-spread-erupts-223141703.html)
+- Jan 23 - [St. Louis barbecue franchise to open new $1.5M location](https://www.yahoo.com/news/st-louis-barbecue-franchise-open-222427189.html)
 <!-- feed end -->
 
 ### Onstream
