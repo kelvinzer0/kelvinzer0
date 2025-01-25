@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [Funeral for holidaymaker found dead in lift-shaft](https://www.yahoo.com/news/funeral-holidaymaker-found-dead-lift-174248240.html)
+- Jan 25 - [Edison says encampment found near area where Eaton fire started; critics doubt it sparked fire](https://www.yahoo.com/news/edison-says-encampment-found-near-171311908.html)
 - Jan 25 - [Billionaire BlackRock CEO Larry Fink Declares No One Should Have To Work Longer Than They Want But Says Retiring At 65 Is 'Crazy'](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-153016289.html)
-- Jan 25 - [I realized my lender used $5,100 of my escrow money to pay someone else’s taxes — 20 years ago. What can I do now?](https://finance.yahoo.com/news/realized-lender-used-5-100-130100518.html)
-- Jan 25 - [Insurers are dropping HOAs, threatening the condo market](https://finance.yahoo.com/news/insurers-are-dropping-hoas-threatening-the-condo-market-124429337.html)
-- Jan 25 - [I'm A 37-Year-Old Breast Cancer Survivor, And My Red Flag Symptom Wasn't A Lump](https://www.yahoo.com/lifestyle/im-37-old-breast-cancer-122602888.html)
+- Jan 25 - [Multiple injuries as United Airlines flight from Nigeria to the US forced to turn back after 'unexpected aircraft movement'](https://www.yahoo.com/news/multiple-injuries-united-airlines-flight-150739887.html)
+- Jan 25 - [My RMDs will be $100,000 or more. What can I do now to lower my taxable income — before it’s too late?](https://finance.yahoo.com/news/rmds-100-000-more-now-105900985.html)
+- Jan 25 - [Family of freed Israeli hostage says 19-year-old 'survived hell'](https://www.yahoo.com/news/family-freed-israeli-hostage-says-124423165.html)
 <!-- feed end -->
 
 ### Onstream
