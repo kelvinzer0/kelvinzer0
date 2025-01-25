@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [Edison says encampment found near area where Eaton fire started; critics doubt it sparked fire](https://www.yahoo.com/news/edison-says-encampment-found-near-171311908.html)
+- Jan 25 - [If Oxfam is right about Empire, then where is my $1 million?](https://www.yahoo.com/news/oxfam-empire-then-where-1-193535986.html)
 - Jan 25 - [Billionaire BlackRock CEO Larry Fink Declares No One Should Have To Work Longer Than They Want But Says Retiring At 65 Is 'Crazy'](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-153016289.html)
-- Jan 25 - [Multiple injuries as United Airlines flight from Nigeria to the US forced to turn back after 'unexpected aircraft movement'](https://www.yahoo.com/news/multiple-injuries-united-airlines-flight-150739887.html)
 - Jan 25 - [My RMDs will be $100,000 or more. What can I do now to lower my taxable income — before it’s too late?](https://finance.yahoo.com/news/rmds-100-000-more-now-105900985.html)
-- Jan 25 - [Family of freed Israeli hostage says 19-year-old 'survived hell'](https://www.yahoo.com/news/family-freed-israeli-hostage-says-124423165.html)
+- Jan 25 - [The only person in the world with a functioning pig organ is thriving after a record 2 months](https://www.yahoo.com/news/only-person-world-functioning-pig-143230832.html)
+- Jan 25 - [Insurers are dropping HOAs, threatening the condo market](https://finance.yahoo.com/news/insurers-are-dropping-hoas-threatening-the-condo-market-124429337.html)
 <!-- feed end -->
 
 ### Onstream
