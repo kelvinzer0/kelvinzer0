@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Stargate & OpenAI announcement is 'net positive' for Microsoft](https://finance.yahoo.com/video/stargate-openai-announcement-net-positive-230857570.html)
-- Jan 24 - [West El Paso massage parlor shut down for allegedly offering illegal sexual activities](https://www.yahoo.com/news/west-el-paso-massage-parlor-221254277.html)
-- Jan 24 - [Law enforcement agents tried to enter a Chicago elementary school but were not allowed, Chicago Public Schools officials say](https://www.yahoo.com/news/ice-agents-attempted-entry-chicago-204621405.html)
-- Jan 24 - [Top Dividend Stocks To Consider In January 2025](https://finance.yahoo.com/news/top-dividend-stocks-consider-january-220557316.html)
-- Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
+- Jan 25 - [Former FEMA regional administrator breaks down its role during disaster events](https://www.yahoo.com/news/former-fema-regional-administrator-breaks-010153634.html)
+- Jan 25 - [Female Israeli hostages' names released before planned exchange](https://www.yahoo.com/news/female-israeli-hostages-names-released-005537513.html)
+- Jan 25 - [Justice Department drops case against Texas doctor charged with leaking transgender care data](https://www.yahoo.com/news/justice-department-drops-case-against-004452978.html)
+- Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
+- Jan 24 - [US Justice Department drops case against Texas doctor charged with leaking transgender care data](https://www.yahoo.com/news/us-justice-department-drops-case-233309960.html)
 <!-- feed end -->
 
 ### Onstream
