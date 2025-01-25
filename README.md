@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Palestinian prisoners released by Israel arrive in Ramallah](https://www.yahoo.com/news/palestinian-prisoners-released-israel-arrive-170730277.html)
 - Jan 25 - [Billionaire BlackRock CEO Larry Fink Declares No One Should Have To Work Longer Than They Want But Says Retiring At 65 Is 'Crazy'](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-153016289.html)
 - Jan 25 - [The only person in the world with a functioning pig organ is thriving after a record 2 months](https://www.yahoo.com/news/only-person-world-functioning-pig-143230832.html)
-- Jan 25 - [Insurers are dropping HOAs, threatening the condo market](https://finance.yahoo.com/news/insurers-are-dropping-hoas-threatening-the-condo-market-124429337.html)
 - Jan 25 - [I'm A 37-Year-Old Breast Cancer Survivor, And My Red Flag Symptom Wasn't A Lump](https://www.yahoo.com/lifestyle/im-37-old-breast-cancer-122602888.html)
-- Jan 25 - [Pet owner finds remarkable talent in dog to help eradicate widespread nuisance: 'The dogs are an absolutely crucial part of it all'](https://www.yahoo.com/lifestyle/pet-owner-finds-remarkable-talent-104520949.html)
+- Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
 <!-- feed end -->
 
 ### Onstream
