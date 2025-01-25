@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [Female Israeli hostages' names released before planned exchange](https://www.yahoo.com/news/female-israeli-hostages-names-released-005537513.html)
 - Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
-- Jan 24 - [US Justice Department drops case against Texas doctor charged with leaking transgender care data](https://www.yahoo.com/news/us-justice-department-drops-case-233309960.html)
 - Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
 - Jan 24 - [Denmark “In Crisis Mode” After Terrible Trump Phone Call on Greenland](https://www.yahoo.com/news/denmark-crisis-mode-terrible-trump-220403992.html)
+- Jan 24 - [2 Cal Maritime students shot while pumping gas in Vallejo](https://www.yahoo.com/news/2-cal-maritime-students-shot-202234879.html)
+- Jan 24 - [Exclusive-Hamas has added up to 15,000 fighters since start of war, US figures show](https://www.yahoo.com/news/exclusive-hamas-added-15-000-202012003.html)
 <!-- feed end -->
 
 ### Onstream
