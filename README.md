@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Local reacts after trafficking raids lead to arrests in six Arkansas cities](https://www.yahoo.com/news/local-reacts-trafficking-raids-lead-001908451.html)
 - Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
 - Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
 - Jan 24 - [Denmark “In Crisis Mode” After Terrible Trump Phone Call on Greenland](https://www.yahoo.com/news/denmark-crisis-mode-terrible-trump-220403992.html)
-- Jan 24 - [2 Cal Maritime students shot while pumping gas in Vallejo](https://www.yahoo.com/news/2-cal-maritime-students-shot-202234879.html)
-- Jan 24 - [Exclusive-Hamas has added up to 15,000 fighters since start of war, US figures show](https://www.yahoo.com/news/exclusive-hamas-added-15-000-202012003.html)
+- Jan 24 - [Man Dressed as a Construction Worker Shoots Woman in Her Driveway](https://www.yahoo.com/news/man-dressed-construction-worker-shoots-214457686.html)
 <!-- feed end -->
 
 ### Onstream
