@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [I'm A 37-Year-Old Breast Cancer Survivor, And My Red Flag Symptom Wasn't A Lump](https://www.yahoo.com/lifestyle/im-37-old-breast-cancer-122602888.html)
-- Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
-- Jan 25 - [Trump fires 17 independent inspectors general at federal agencies, source says](https://www.yahoo.com/news/trump-fires-least-12-independent-043418795.html)
-- Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
-- Jan 24 - [Man Dressed as a Construction Worker Shoots Woman in Her Driveway](https://www.yahoo.com/news/man-dressed-construction-worker-shoots-214457686.html)
+- Jan 25 - [Phoenix nears dry spell record as drought conditions worsen](https://www.yahoo.com/news/phoenix-nears-dry-spell-record-130020116.html)
+- Jan 25 - [US rental giant that billed tenant a ‘cleaning fee’ after she moved now being sued for $100M+ in ‘hidden fees’](https://finance.yahoo.com/news/us-rental-giant-billed-tenant-115500172.html)
+- Jan 25 - [Bon Voyage: Massive boat stuck on Fort Myers Beach dock since Hurricane Ian removed](https://www.yahoo.com/news/bon-voyage-massive-boat-stuck-100831802.html)
+- Jan 25 - [Billionaire Steven Cohen Sells Apple Stock and Buys a Little-Known AI Stock Up 500% in Less Than 3 Years](https://finance.yahoo.com/news/billionaire-steven-cohen-sells-apple-082500462.html)
+- Jan 25 - [Manfred Goldberg wants you to know how the Nazis took his brother’s life. And how an angel saved his](https://www.yahoo.com/news/manfred-goldberg-wants-know-nazis-051617764.html)
 <!-- feed end -->
 
 ### Onstream
