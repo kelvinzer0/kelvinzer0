@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
 - Jan 25 - [Manfred Goldberg wants you to know how the Nazis took his brother’s life. And how an angel saved his](https://www.yahoo.com/news/manfred-goldberg-wants-know-nazis-051617764.html)
-- Jan 25 - [Philippines accuses China coast guard ships of harassing fisheries vessels in South China Sea](https://www.yahoo.com/news/philippines-accuses-china-coast-guard-045402437.html)
 - Jan 25 - [Joe Biden's parting gift to Elon Musk: 2 11th-hour filings that bolster the tech big's beef with Sam Altman, Microsoft](https://finance.yahoo.com/news/joe-bidens-parting-gift-elon-020038177.html)
 - Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
-- Jan 24 - [Denmark “In Crisis Mode” After Terrible Trump Phone Call on Greenland](https://www.yahoo.com/news/denmark-crisis-mode-terrible-trump-220403992.html)
+- Jan 24 - [Demolition of old McClugage Bridge has started. Here's what to expect.](https://www.yahoo.com/news/demolition-old-mcclugage-bridge-started-215536603.html)
 <!-- feed end -->
 
 ### Onstream
