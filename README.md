@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [I'm A 37-Year-Old Breast Cancer Survivor, And My Red Flag Symptom Wasn't A Lump](https://www.yahoo.com/lifestyle/im-37-old-breast-cancer-122602888.html)
 - Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
 - Jan 25 - [Trump fires 17 independent inspectors general at federal agencies, source says](https://www.yahoo.com/news/trump-fires-least-12-independent-043418795.html)
-- Jan 24 - [New Hampshire businessman sentenced to federal prison for failing to pay $14.8M in taxes to IRS](https://www.yahoo.com/news/hampshire-businessman-sentenced-federal-prison-234537352.html)
-- Jan 24 - [US Justice Department drops case against Texas doctor charged with leaking transgender care data](https://www.yahoo.com/news/us-justice-department-drops-case-233309960.html)
 - Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
+- Jan 24 - [Man Dressed as a Construction Worker Shoots Woman in Her Driveway](https://www.yahoo.com/news/man-dressed-construction-worker-shoots-214457686.html)
 <!-- feed end -->
 
 ### Onstream
