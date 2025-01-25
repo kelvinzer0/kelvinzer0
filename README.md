@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Ukraine's Kursk invasion was a risky play, but it might have nailed the timing](https://www.yahoo.com/news/ukraines-kursk-invasion-risky-play-102701837.html)
+- Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
+- Jan 25 - [Albuquerque police chief speaks about how DWI Unit evaded detection](https://www.yahoo.com/news/albuquerque-police-chief-speaks-dwi-052747555.html)
 - Jan 25 - [Manfred Goldberg wants you to know how the Nazis took his brother’s life. And how an angel saved his](https://www.yahoo.com/news/manfred-goldberg-wants-know-nazis-051617764.html)
 - Jan 25 - [Trump fires 17 independent inspectors general at federal agencies, source says](https://www.yahoo.com/news/trump-fires-least-12-independent-043418795.html)
-- Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
-- Jan 24 - [Denmark “In Crisis Mode” After Terrible Trump Phone Call on Greenland](https://www.yahoo.com/news/denmark-crisis-mode-terrible-trump-220403992.html)
-- Jan 24 - [Trump administration says 'Gulf of America' name change now official](https://www.yahoo.com/news/trump-administration-says-gulf-america-214009187.html)
 <!-- feed end -->
 
 ### Onstream
