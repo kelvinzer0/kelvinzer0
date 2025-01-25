@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Manfred Goldberg wants you to know how the Nazis took his brother’s life. And how an angel saved his](https://www.yahoo.com/news/manfred-goldberg-wants-know-nazis-051617764.html)
 - Jan 25 - [Philippines accuses China coast guard ships of harassing fisheries vessels in South China Sea](https://www.yahoo.com/news/philippines-accuses-china-coast-guard-045402437.html)
+- Jan 25 - [Joe Biden's parting gift to Elon Musk: 2 11th-hour filings that bolster the tech big's beef with Sam Altman, Microsoft](https://finance.yahoo.com/news/joe-bidens-parting-gift-elon-020038177.html)
 - Jan 24 - [Minnesota high court sides with Democrats in struggle with Republicans over control of state House](https://www.yahoo.com/news/minnesota-high-court-sides-democrats-220545646.html)
 - Jan 24 - [Denmark “In Crisis Mode” After Terrible Trump Phone Call on Greenland](https://www.yahoo.com/news/denmark-crisis-mode-terrible-trump-220403992.html)
-- Jan 24 - [Man Dressed as a Construction Worker Shoots Woman in Her Driveway](https://www.yahoo.com/news/man-dressed-construction-worker-shoots-214457686.html)
-- Jan 24 - [Can You Guess What It Takes To Be Wealthy In Retirement? Hint: It's Probably Less Than Your Goal](https://finance.yahoo.com/news/guess-takes-wealthy-retirement-hint-203037367.html)
 <!-- feed end -->
 
 ### Onstream
