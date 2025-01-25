@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [Phoenix nears dry spell record as drought conditions worsen](https://www.yahoo.com/news/phoenix-nears-dry-spell-record-130020116.html)
+- Jan 25 - [Four Israeli hostages freed in ceasefire deal](https://www.yahoo.com/news/four-israeli-hostages-freed-ceasefire-142101775.html)
+- Jan 25 - [China Medical System enters collaboration agreement with Mabgeek Biotechnology](https://finance.yahoo.com/news/china-medical-system-enters-collaboration-141134123.html)
+- Jan 25 - [Insurers are dropping HOAs, threatening the condo market](https://finance.yahoo.com/news/insurers-are-dropping-hoas-threatening-the-condo-market-124429337.html)
+- Jan 25 - [I'm A 37-Year-Old Breast Cancer Survivor, And My Red Flag Symptom Wasn't A Lump](https://www.yahoo.com/lifestyle/im-37-old-breast-cancer-122602888.html)
 - Jan 25 - [US rental giant that billed tenant a ‘cleaning fee’ after she moved now being sued for $100M+ in ‘hidden fees’](https://finance.yahoo.com/news/us-rental-giant-billed-tenant-115500172.html)
-- Jan 25 - [Bon Voyage: Massive boat stuck on Fort Myers Beach dock since Hurricane Ian removed](https://www.yahoo.com/news/bon-voyage-massive-boat-stuck-100831802.html)
-- Jan 25 - [Billionaire Steven Cohen Sells Apple Stock and Buys a Little-Known AI Stock Up 500% in Less Than 3 Years](https://finance.yahoo.com/news/billionaire-steven-cohen-sells-apple-082500462.html)
-- Jan 25 - [Manfred Goldberg wants you to know how the Nazis took his brother’s life. And how an angel saved his](https://www.yahoo.com/news/manfred-goldberg-wants-know-nazis-051617764.html)
 <!-- feed end -->
 
 ### Onstream
