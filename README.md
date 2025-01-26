@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [At least 18 have died after a tanker carrying gasoline exploded in southern Nigeria](https://www.yahoo.com/news/least-18-died-tanker-carrying-102332044.html)
-- Jan 26 - [PNJ top news stories: The Pensacola area saw record-breaking temperatures, snow](https://www.yahoo.com/news/pnj-top-news-stories-pensacola-100733023.html)
-- Jan 26 - [Trump suggests his plan for Gaza Strip is to ‘clean out the whole thing’](https://www.yahoo.com/news/trump-suggests-plan-gaza-strip-024044181.html)
+- Jan 26 - [Monstrous Creatures of The Past Could Have Feasted on Today's Apex Predators](https://www.yahoo.com/news/monstrous-creatures-past-could-feasted-113002207.html)
+- Jan 26 - [Could immigration enforcement officials visit Fall River's schools? Here's what we know.](https://www.yahoo.com/news/could-immigration-enforcement-officials-visit-090126273.html)
 - Jan 26 - [Yale grad student killed in what investigators feared was a perfect murder](https://www.yahoo.com/news/yale-grad-student-killed-investigators-075125670.html)
-- Jan 26 - [Man dies after falling through ice on Pewaukee Lake](https://www.yahoo.com/news/man-dies-falling-ice-pewaukee-021902879.html)
+- Jan 26 - [US teacher put on leave after allegedly calling Palestinian child an extremist](https://www.yahoo.com/news/us-teacher-put-leave-allegedly-020942504.html)
+- Jan 26 - [Pete Hegseth Gives US Troops New Marching Orders Hours After Confirmation](https://www.yahoo.com/news/pete-hegseth-gives-us-troops-000637276.html)
 <!-- feed end -->
 
 ### Onstream
