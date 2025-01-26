@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [ICE arrests member of Haitian street gang with numerous convictions in Boston](https://www.yahoo.com/news/ice-arrests-member-haitian-street-194421669.html)
+- Jan 26 - [AOC Says Democrats in Congress Are Doing Insider Trading: 'People Think That Everyday People Are Stupid'](https://finance.yahoo.com/news/aoc-says-democrats-congress-doing-005913706.html)
+- Jan 26 - [Saratoga Investment Corp. (SAR): Why You Should Invest In This Extreme Dividend Stock Now](https://finance.yahoo.com/news/saratoga-investment-corp-sar-why-004116750.html)
+- Jan 26 - [Pete Hegseth Gives US Troops New Marching Orders Hours After Confirmation](https://www.yahoo.com/news/pete-hegseth-gives-us-troops-000637276.html)
+- Jan 25 - [UPDATE: Clay County elected official resigns after child sex sting operation arrest](https://www.yahoo.com/news/clay-county-elected-official-arrested-224640787.html)
 - Jan 25 - [CIA now says COVID-19 'more likely' to have come from lab](https://www.yahoo.com/news/cia-now-says-covid-19-192327546.html)
-- Jan 25 - [British Officials Reduced To Tears Of Laughter During Trump Calls: Report](https://www.yahoo.com/news/british-officials-reduced-tears-laughter-175708480.html)
-- Jan 25 - [Edison says encampment found near area where Eaton fire started; critics doubt it sparked fire](https://www.yahoo.com/news/edison-says-encampment-found-near-171311908.html)
-- Jan 25 - [Man accused of helping son hide 4 bodies in Wisconsin cornfield sentenced to 16 years in prison](https://www.yahoo.com/news/man-accused-helping-son-hide-170747921.html)
 <!-- feed end -->
 
 ### Onstream
