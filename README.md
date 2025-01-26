@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Perilous landscape: California's 250-year struggle to prepare for natural disasters](https://www.yahoo.com/news/perilous-landscape-californias-250-struggle-140102912.html)
-- Jan 26 - [Families in Gaza City wait for the return of loved ones displaced by the war](https://www.yahoo.com/news/families-gaza-city-wait-return-134230511.html)
+- Jan 26 - [I drive a Cybertruck, and I'm sick of people flipping me off. I wish they understood how helpful this car is for me.](https://www.yahoo.com/lifestyle/drive-cybertruck-im-sick-people-140701009.html)
+- Jan 26 - [TRAFFIC ALERT: I-55 southbound lanes closed at I-294 due to fatal crash early Sunday morning, ISP says](https://www.yahoo.com/news/traffic-alert-55-southbound-lanes-134827484.html)
 - Jan 26 - [As Hegseth takes charge at the Pentagon, here's what changes could be in store](https://www.yahoo.com/news/hegseth-takes-charge-pentagon-heres-134031943.html)
-- Jan 26 - [Policy change might worsen ongoing crisis for one US state: 'Balanced on a knife edge'](https://www.yahoo.com/news/policy-change-might-worsen-ongoing-111534383.html)
-- Jan 26 - [Fisherman's illegal scheme exposed after authorities discover what was hidden behind trawler's false wall](https://www.yahoo.com/lifestyle/fishermans-illegal-scheme-exposed-authorities-111529830.html)
+- Jan 26 - [Trump administration swiftly enacts retribution against political enemies](https://www.yahoo.com/news/trump-administration-swiftly-enacts-retribution-120000056.html)
+- Jan 26 - [This Atlanta woman is fighting the city over a $10,000 water bill for just 2 months of use. Here’s what happened](https://www.yahoo.com/news/atlanta-woman-fighting-city-over-114400744.html)
 <!-- feed end -->
 
 ### Onstream
