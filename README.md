@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [NASA and ESA share a breathtaking Hubble image of the Tarantula Nebula’s outer edge](https://www.yahoo.com/tech/nasa-and-esa-share-a-breathtaking-hubble-image-of-the-tarantula-nebulas-outer-edge-202349788.html)
-- Jan 26 - [Storm Herminia map: Where 80mph winds and rain will hit UK today as more bad weather follows Storm Eowyn](https://www.yahoo.com/news/storm-eowyn-map-where-snow-093025439.html)
 - Jan 26 - [Trump Zeroes in on Country to Dump Migrants From All Over](https://www.yahoo.com/news/trump-zeros-country-dump-migrants-174717530.html)
+- Jan 26 - [Multi-vehicle crash gridlocks I-8 traffic as rain wets roadway](https://www.yahoo.com/news/multi-vehicle-crash-gridlocks-8-173155886.html)
+- Jan 26 - [Former Employees Are Sharing Company Secrets Now That They No Longer Work There, And These Are Fascinating](https://www.yahoo.com/lifestyle/former-employees-sharing-company-secrets-164502721.html)
+- Jan 26 - [Top Republicans urge Trump to rethink stripping security from ex-officials](https://www.yahoo.com/news/top-republicans-urge-trump-rethink-154613071.html)
 - Jan 26 - [“I’m not dealing with this”: Parents allegedly refuse to pick up child from hospital](https://www.yahoo.com/news/m-not-dealing-parents-allegedly-151610691.html)
-- Jan 26 - [Trump imposes tariffs, sanctions on Colombia after it refuses deportation flights](https://www.yahoo.com/news/colombias-petro-not-allow-us-150256189.html)
 <!-- feed end -->
 
 ### Onstream
