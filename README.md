@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Storm Herminia — latest: Two killed in Eowyn’s hurricane-force gales as UK braces for fresh 80mph winds and heavy rain](https://www.yahoo.com/news/storm-eowyn-live-uk-braces-073856391.html)
-- Jan 26 - [Palestinians wait for Israel to allow their return to northern Gaza](https://www.yahoo.com/news/palestinians-wait-israel-allow-return-173929842.html)
-- Jan 26 - [Olive Garden, Texas Roadhouse chasing Chili's success as casual dining chains compete for date nights in 2025](https://finance.yahoo.com/news/olive-garden-texas-roadhouse-chasing-chilis-success-as-casual-dining-chains-compete-for-date-nights-in-2025-170008355.html)
+- Jan 26 - [Storm Herminia map: Where 80mph winds and rain will hit UK today as more bad weather follows Storm Eowyn](https://www.yahoo.com/news/storm-eowyn-map-where-snow-093025439.html)
+- Jan 26 - [Rep. Jason Crow says "some guardrails" need to be "put in place" on presidential pardons](https://www.yahoo.com/news/rep-jason-crow-says-guardrails-184513800.html)
+- Jan 26 - [JD Vance Snaps at CBS Host as He’s Grilled on Lowering Grocery Prices: ‘Going to Take a Little Bit of Time’](https://www.yahoo.com/news/jd-vance-snaps-cbs-host-183913338.html)
 - Jan 26 - [Former Employees Are Sharing Company Secrets Now That They No Longer Work There, And These Are Fascinating](https://www.yahoo.com/lifestyle/former-employees-sharing-company-secrets-164502721.html)
 - Jan 26 - [Vanguard’s U.S. stock-market call is even more shocking than you realize](https://finance.yahoo.com/news/vanguard-u-stock-market-call-115600370.html)
 <!-- feed end -->
