@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [At least 18 have died after a tanker carrying gasoline exploded in southern Nigeria](https://www.yahoo.com/news/least-18-died-tanker-carrying-102332044.html)
+- Jan 26 - [PNJ top news stories: The Pensacola area saw record-breaking temperatures, snow](https://www.yahoo.com/news/pnj-top-news-stories-pensacola-100733023.html)
+- Jan 26 - [Trump suggests his plan for Gaza Strip is to ‘clean out the whole thing’](https://www.yahoo.com/news/trump-suggests-plan-gaza-strip-024044181.html)
 - Jan 26 - [Yale grad student killed in what investigators feared was a perfect murder](https://www.yahoo.com/news/yale-grad-student-killed-investigators-075125670.html)
-- Jan 26 - [AOC Says Democrats in Congress Are Doing Insider Trading: 'People Think That Everyday People Are Stupid'](https://finance.yahoo.com/news/aoc-says-democrats-congress-doing-005913706.html)
-- Jan 26 - [Pete Hegseth Gives US Troops New Marching Orders Hours After Confirmation](https://www.yahoo.com/news/pete-hegseth-gives-us-troops-000637276.html)
-- Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
-- Jan 25 - [US may put 'very big bounty' on Taliban leaders, Secretary of State Rubio says](https://www.yahoo.com/news/us-may-put-very-big-235446599.html)
+- Jan 26 - [Man dies after falling through ice on Pewaukee Lake](https://www.yahoo.com/news/man-dies-falling-ice-pewaukee-021902879.html)
 <!-- feed end -->
 
 ### Onstream
