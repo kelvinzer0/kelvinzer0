@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [AOC Says Democrats in Congress Are Doing Insider Trading: 'People Think That Everyday People Are Stupid'](https://finance.yahoo.com/news/aoc-says-democrats-congress-doing-005913706.html)
 - Jan 26 - [Pete Hegseth Gives US Troops New Marching Orders Hours After Confirmation](https://www.yahoo.com/news/pete-hegseth-gives-us-troops-000637276.html)
 - Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
 - Jan 25 - [US may put 'very big bounty' on Taliban leaders, Secretary of State Rubio says](https://www.yahoo.com/news/us-may-put-very-big-235446599.html)
-- Jan 25 - [Aerials show devastation of hospitals in the Gaza Strip](https://www.yahoo.com/news/aerials-show-devastation-hospitals-gaza-233555286.html)
-- Jan 25 - [CIA now says COVID-19 'more likely' to have come from lab](https://www.yahoo.com/news/cia-now-says-covid-19-192327546.html)
+- Jan 25 - [ICE arrests member of Haitian street gang with numerous convictions in Boston](https://www.yahoo.com/news/ice-arrests-member-haitian-street-194421669.html)
 <!-- feed end -->
 
 ### Onstream
