@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Israel ‘sends weapons captured in Lebanon to Ukraine’](https://www.yahoo.com/news/israel-sends-weapons-captured-lebanon-164252629.html)
+- Jan 26 - [Israel says it won't complete its withdrawal from Lebanon by Sunday](https://www.yahoo.com/news/israel-says-wont-complete-withdrawal-153227081.html)
+- Jan 26 - [Colombia turns away two US military flights with deported migrants, official says](https://www.yahoo.com/news/colombias-petro-not-allow-us-150256189.html)
 - Jan 26 - [I drive a Cybertruck, and I'm sick of people flipping me off. I wish they understood how helpful this car is for me.](https://www.yahoo.com/lifestyle/drive-cybertruck-im-sick-people-140701009.html)
-- Jan 26 - [TRAFFIC ALERT: I-55 southbound lanes closed at I-294 due to fatal crash early Sunday morning, ISP says](https://www.yahoo.com/news/traffic-alert-55-southbound-lanes-134827484.html)
-- Jan 26 - [As Hegseth takes charge at the Pentagon, here's what changes could be in store](https://www.yahoo.com/news/hegseth-takes-charge-pentagon-heres-134031943.html)
-- Jan 26 - [Trump administration swiftly enacts retribution against political enemies](https://www.yahoo.com/news/trump-administration-swiftly-enacts-retribution-120000056.html)
-- Jan 26 - [This Atlanta woman is fighting the city over a $10,000 water bill for just 2 months of use. Here’s what happened](https://www.yahoo.com/news/atlanta-woman-fighting-city-over-114400744.html)
+- Jan 26 - [Freighter on the move after it was freed from ice on frozen Lake Erie](https://www.yahoo.com/news/freighter-move-freed-ice-frozen-130942041.html)
 <!-- feed end -->
 
 ### Onstream
