@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Trump suggests his plan for Gaza Strip is to ‘clean out the whole thing’](https://www.yahoo.com/news/trump-suggests-plan-gaza-strip-024044181.html)
-- Jan 26 - [This Atlanta woman is fighting the city over a $10,000 water bill for just 2 months of use. Here’s what happened](https://www.yahoo.com/news/atlanta-woman-fighting-city-over-114400744.html)
+- Jan 26 - [ICE arrests member of Haitian street gang with numerous convictions in Boston](https://www.yahoo.com/news/ice-arrests-member-haitian-street-194421669.html)
+- Jan 26 - [Trump administration swiftly enacts retribution against political enemies](https://www.yahoo.com/news/trump-administration-swiftly-enacts-retribution-120000056.html)
 - Jan 26 - [Lightning strikes British Airways plane at a Brazil airport](https://www.yahoo.com/news/lightning-strikes-british-airways-plane-113349259.html)
-- Jan 26 - [Avid photographers were trying for an 'apocalyptic" shot.' They captured history instead.](https://www.yahoo.com/news/avid-photographers-were-trying-apocalyptic-100822976.html)
-- Jan 26 - [Warren Buffett Sold Over $134 Billion Worth of Stock in 2024, But His Most Recent $200 Million in Purchases Are Sending a Clear Message to Investors](https://finance.yahoo.com/news/warren-buffett-sold-over-134-095000789.html)
+- Jan 26 - [Fisherman's illegal scheme exposed after authorities discover what was hidden behind trawler's false wall](https://www.yahoo.com/lifestyle/fishermans-illegal-scheme-exposed-authorities-111529830.html)
+- Jan 26 - [Scientists make disturbing new discovery after analyzing blood of vultures: 'The tip of the iceberg'](https://www.yahoo.com/news/scientists-disturbing-discovery-analyzing-blood-110032320.html)
 <!-- feed end -->
 
 ### Onstream
