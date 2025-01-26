@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [US teacher put on leave after allegedly calling Palestinian child an extremist](https://www.yahoo.com/news/us-teacher-put-leave-allegedly-020942504.html)
 - Jan 26 - [Pete Hegseth Gives US Troops New Marching Orders Hours After Confirmation](https://www.yahoo.com/news/pete-hegseth-gives-us-troops-000637276.html)
+- Jan 25 - [Mexico refuses to accept a U.S. deportation flight](https://www.yahoo.com/news/mexico-refuses-accept-u-deportation-000155641.html)
 - Jan 25 - [US may put 'very big bounty' on Taliban leaders, Secretary of State Rubio says](https://www.yahoo.com/news/us-may-put-very-big-235446599.html)
 - Jan 25 - [Aerials show devastation of hospitals in the Gaza Strip](https://www.yahoo.com/news/aerials-show-devastation-hospitals-gaza-233555286.html)
-- Jan 25 - [Sheriff’s office: 1 killed in possible animal attack in southern Colorado](https://www.yahoo.com/news/sheriff-office-1-killed-possible-232743381.html)
+- Jan 25 - [CIA now says COVID-19 'more likely' to have come from lab](https://www.yahoo.com/news/cia-now-says-covid-19-192327546.html)
 <!-- feed end -->
 
 ### Onstream
