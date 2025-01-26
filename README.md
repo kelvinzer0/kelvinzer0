@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [US teacher put on leave after allegedly calling Palestinian child an extremist](https://www.yahoo.com/news/us-teacher-put-leave-allegedly-020942504.html)
 - Jan 26 - [AOC Says Democrats in Congress Are Doing Insider Trading: 'People Think That Everyday People Are Stupid'](https://finance.yahoo.com/news/aoc-says-democrats-congress-doing-005913706.html)
-- Jan 26 - [4 more Israeli hostages reunited with their families](https://www.yahoo.com/news/4-more-israeli-hostages-reunited-002951677.html)
-- Jan 26 - [Inmate Speaks Out About Prison ‘Brother’ Luigi Mangione’s Stay in Pennsylvania Lockup](https://www.yahoo.com/news/inmate-speaks-prison-brother-luigi-002538011.html)
 - Jan 26 - [Pete Hegseth Gives US Troops New Marching Orders Hours After Confirmation](https://www.yahoo.com/news/pete-hegseth-gives-us-troops-000637276.html)
+- Jan 25 - [CIA now says COVID-19 'more likely' to have come from lab](https://www.yahoo.com/news/cia-now-says-covid-19-192327546.html)
+- Jan 25 - [My RMDs will be $100,000 or more. What can I do now to lower my taxable income — before it’s too late?](https://finance.yahoo.com/news/rmds-100-000-more-now-105900985.html)
+- Jan 25 - [It turns out that Akio Toyoda was right](https://autos.yahoo.com/turns-akio-toyoda-150000523.html)
 <!-- feed end -->
 
 ### Onstream
