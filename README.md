@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Israel ‘sends weapons captured in Lebanon to Ukraine’](https://www.yahoo.com/news/israel-sends-weapons-captured-lebanon-164252629.html)
-- Jan 26 - [Israel says it won't complete its withdrawal from Lebanon by Sunday](https://www.yahoo.com/news/israel-says-wont-complete-withdrawal-153227081.html)
+- Jan 26 - [Belarus expects to host new Russian hypersonic missile within days](https://www.yahoo.com/news/belarus-expects-host-russian-hypersonic-174418608.html)
 - Jan 26 - [Colombia turns away two US military flights with deported migrants, official says](https://www.yahoo.com/news/colombias-petro-not-allow-us-150256189.html)
-- Jan 26 - [I drive a Cybertruck, and I'm sick of people flipping me off. I wish they understood how helpful this car is for me.](https://www.yahoo.com/lifestyle/drive-cybertruck-im-sick-people-140701009.html)
-- Jan 26 - [Freighter on the move after it was freed from ice on frozen Lake Erie](https://www.yahoo.com/news/freighter-move-freed-ice-frozen-130942041.html)
+- Jan 26 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Stargate, DeepSeek Emerge.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Jan 26 - [Families in Gaza City wait for the return of loved ones displaced by the war](https://www.yahoo.com/news/families-gaza-city-wait-return-134230511.html)
+- Jan 26 - [As Hegseth takes charge at the Pentagon, here's what changes could be in store](https://www.yahoo.com/news/hegseth-takes-charge-pentagon-heres-134031943.html)
 <!-- feed end -->
 
 ### Onstream
