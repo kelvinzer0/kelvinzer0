@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Belarus expects to host new Russian hypersonic missile within days](https://www.yahoo.com/news/belarus-expects-host-russian-hypersonic-174418608.html)
-- Jan 26 - [Colombia turns away two US military flights with deported migrants, official says](https://www.yahoo.com/news/colombias-petro-not-allow-us-150256189.html)
-- Jan 26 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. Stargate, DeepSeek Emerge.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
-- Jan 26 - [Families in Gaza City wait for the return of loved ones displaced by the war](https://www.yahoo.com/news/families-gaza-city-wait-return-134230511.html)
-- Jan 26 - [As Hegseth takes charge at the Pentagon, here's what changes could be in store](https://www.yahoo.com/news/hegseth-takes-charge-pentagon-heres-134031943.html)
+- Jan 26 - [Storm Herminia — latest: Two killed in Eowyn’s hurricane-force gales as UK braces for fresh 80mph winds and heavy rain](https://www.yahoo.com/news/storm-eowyn-live-uk-braces-073856391.html)
+- Jan 26 - [Palestinians wait for Israel to allow their return to northern Gaza](https://www.yahoo.com/news/palestinians-wait-israel-allow-return-173929842.html)
+- Jan 26 - [Olive Garden, Texas Roadhouse chasing Chili's success as casual dining chains compete for date nights in 2025](https://finance.yahoo.com/news/olive-garden-texas-roadhouse-chasing-chilis-success-as-casual-dining-chains-compete-for-date-nights-in-2025-170008355.html)
+- Jan 26 - [Former Employees Are Sharing Company Secrets Now That They No Longer Work There, And These Are Fascinating](https://www.yahoo.com/lifestyle/former-employees-sharing-company-secrets-164502721.html)
+- Jan 26 - [Vanguard’s U.S. stock-market call is even more shocking than you realize](https://finance.yahoo.com/news/vanguard-u-stock-market-call-115600370.html)
 <!-- feed end -->
 
 ### Onstream
