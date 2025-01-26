@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Monstrous Creatures of The Past Could Have Feasted on Today's Apex Predators](https://www.yahoo.com/news/monstrous-creatures-past-could-feasted-113002207.html)
-- Jan 26 - [Could immigration enforcement officials visit Fall River's schools? Here's what we know.](https://www.yahoo.com/news/could-immigration-enforcement-officials-visit-090126273.html)
-- Jan 26 - [Yale grad student killed in what investigators feared was a perfect murder](https://www.yahoo.com/news/yale-grad-student-killed-investigators-075125670.html)
-- Jan 26 - [US teacher put on leave after allegedly calling Palestinian child an extremist](https://www.yahoo.com/news/us-teacher-put-leave-allegedly-020942504.html)
-- Jan 26 - [Pete Hegseth Gives US Troops New Marching Orders Hours After Confirmation](https://www.yahoo.com/news/pete-hegseth-gives-us-troops-000637276.html)
+- Jan 26 - [Trump suggests his plan for Gaza Strip is to ‘clean out the whole thing’](https://www.yahoo.com/news/trump-suggests-plan-gaza-strip-024044181.html)
+- Jan 26 - [This Atlanta woman is fighting the city over a $10,000 water bill for just 2 months of use. Here’s what happened](https://www.yahoo.com/news/atlanta-woman-fighting-city-over-114400744.html)
+- Jan 26 - [Lightning strikes British Airways plane at a Brazil airport](https://www.yahoo.com/news/lightning-strikes-british-airways-plane-113349259.html)
+- Jan 26 - [Avid photographers were trying for an 'apocalyptic" shot.' They captured history instead.](https://www.yahoo.com/news/avid-photographers-were-trying-apocalyptic-100822976.html)
+- Jan 26 - [Warren Buffett Sold Over $134 Billion Worth of Stock in 2024, But His Most Recent $200 Million in Purchases Are Sending a Clear Message to Investors](https://finance.yahoo.com/news/warren-buffett-sold-over-134-095000789.html)
 <!-- feed end -->
 
 ### Onstream
