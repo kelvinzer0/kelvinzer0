@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - ['A bad dream': Russian troops threaten Dnipropetrovsk](https://www.yahoo.com/news/bad-dream-russia-marches-dnipropetrovsk-142331277.html)
-- Jan 27 - [5-year-old answers door with loaded gun to police and has to be disarmed](https://www.yahoo.com/news/5-old-answers-door-loaded-173603752.html)
-- Jan 27 - [Photos show the horrors of Auschwitz, the largest and deadliest Nazi concentration camp, 80 years after its liberation](https://www.yahoo.com/news/photos-show-horrors-auschwitz-largest-220636485.html)
-- Jan 27 - [Did you feel it? Earthquake centered in Maine rattles communities across Massachusetts](https://www.yahoo.com/news/did-feel-earthquake-centered-maine-162515116.html)
-- Jan 27 - [Hamas: Eight hostages to be released from Gaza are dead](https://www.yahoo.com/news/hamas-eight-hostages-released-gaza-152924982.html)
+- Jan 27 - [Woman injured after being shot in leg at NE Canton bar, suspect arrested](https://www.yahoo.com/news/woman-injured-being-shot-leg-182236824.html)
+- Jan 27 - [DeepSeek AI: What you need to know about the ChatGPT rival](https://www.yahoo.com/tech/deepseek-ai-know-chatgpt-rival-173447905.html)
+- Jan 27 - [How women's dollars are driving the US economy](https://finance.yahoo.com/video/womens-dollars-driving-us-economy-173000499.html)
+- Jan 27 - [DeepSeek sell-off reminds investors of the biggest earnings story holding up the stock market](https://finance.yahoo.com/news/deepseek-sell-off-reminds-investors-of-the-biggest-earnings-story-holding-up-the-stock-market-141101978.html)
+- Jan 27 - [Child rape gang plunged to depths of human depravity, says judge](https://www.yahoo.com/news/child-rape-gang-worst-example-170616252.html)
 <!-- feed end -->
 
 ### Onstream
