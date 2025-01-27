@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Banijay Unveils New Leadership Structure for Scripted, Promotes Steve Matthews and Johannes Jensen](https://www.yahoo.com/entertainment/banijay-unveils-leadership-structure-scripted-101907585.html)
-- Jan 27 - [Winter wine and beer tasting events are coming to Watkins Glen and Corning. How to attend.](https://www.yahoo.com/lifestyle/winter-wine-beer-tasting-events-100759974.html)
-- Jan 27 - [Europe is cautiously optimistic about Trump’s Ukraine comments](https://www.yahoo.com/news/europe-cautiously-optimistic-trump-ukraine-100000707.html)
-- Jan 27 - [Here's what's happening with opiate overdoses in Burlington: How BPD is aiming to solve it](https://www.yahoo.com/news/heres-whats-happening-opiate-overdoses-095550200.html)
-- Jan 27 - [Warren Buffett Sends Wall Street a Grim $127 Billion Warning: History Says the Stock Market Will Do This in 2025.](https://finance.yahoo.com/news/warren-buffett-sends-wall-street-090000507.html)
+- Jan 27 - [Richard Deyo left Ames locals with 'ripple effect' of fond memories](https://www.yahoo.com/news/richard-deyo-left-ames-locals-120219440.html)
+- Jan 27 - [Stock market today: Nasdaq futures tank, Dow tumbles 350 points as AI fears rock tech stocks](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-tank-dow-tumbles-350-points-as-ai-fears-rock-tech-stocks-112807488.html)
+- Jan 27 - [Editorial: Not all ‘processed’ food is bad — but Red Dye No. 3 and harmful chemicals don’t belong in what we eat](https://www.yahoo.com/news/editorial-not-processed-food-bad-110000768.html)
+- Jan 27 - [This national park train is getting an electrifying makeover: 'A unique chance to bring modern efficiency to a historic rail icon'](https://www.yahoo.com/news/national-park-train-getting-electrifying-104518122.html)
+- Jan 27 - [Watch: Thousands of Palestinians Return to Northern Gaza](https://finance.yahoo.com/video/watch-thousands-palestinians-return-northern-104200726.html)
 <!-- feed end -->
 
 ### Onstream
