@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Could DeepSeek's AI gains be good news for all AI players?](https://finance.yahoo.com/video/could-deepseeks-ai-gains-good-215847832.html)
+- Jan 27 - [In the early going, Trump 2.0 approach on foreign policy is to talk loudly and carry a big stick](https://www.yahoo.com/news/early-going-trump-2-0-225049854.html)
+- Jan 27 - [Three Top Dividend Stocks To Consider](https://finance.yahoo.com/news/three-top-dividend-stocks-consider-221218616.html)
 - Jan 27 - [German Highway Bridge Demolished in Controlled Explosion](https://www.yahoo.com/news/german-highway-bridge-demolished-controlled-215316352.html)
-- Jan 27 - [Father who stabbed daughter, 14, found guilty of murder after claiming it was a play fight](https://www.yahoo.com/news/father-stabbed-daughter-14-found-130007856.html)
-- Jan 27 - [DeepSeek sell-off reminds investors of the biggest earnings story holding up the stock market](https://finance.yahoo.com/news/deepseek-sell-off-reminds-investors-of-the-biggest-earnings-story-holding-up-the-stock-market-141101978.html)
+- Jan 27 - [Did you feel it? Earthquake centered in Maine rattles communities across Massachusetts](https://www.yahoo.com/news/did-feel-earthquake-centered-maine-162515116.html)
 - Jan 27 - [Why market panic over China's DeepSeek is 'overblown,' analysts say](https://finance.yahoo.com/news/why-market-panic-over-chinas-deepseek-is-overblown-analysts-say-211148821.html)
 <!-- feed end -->
 
