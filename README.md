@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Father who stabbed daughter, 14, found guilty of murder after claiming it was a play fight](https://www.yahoo.com/news/father-stabbed-daughter-14-found-130007856.html)
+- Jan 27 - ['A bad dream': Russian troops threaten Dnipropetrovsk](https://www.yahoo.com/news/bad-dream-russia-marches-dnipropetrovsk-142331277.html)
+- Jan 27 - [5-year-old answers door with loaded gun to police and has to be disarmed](https://www.yahoo.com/news/5-old-answers-door-loaded-173603752.html)
+- Jan 27 - [Photos show the horrors of Auschwitz, the largest and deadliest Nazi concentration camp, 80 years after its liberation](https://www.yahoo.com/news/photos-show-horrors-auschwitz-largest-220636485.html)
 - Jan 27 - [Did you feel it? Earthquake centered in Maine rattles communities across Massachusetts](https://www.yahoo.com/news/did-feel-earthquake-centered-maine-162515116.html)
-- Jan 27 - [‘Mad’ Green Party council wants to collect black bin bags once a month](https://www.yahoo.com/news/mad-green-party-council-wants-160249377.html)
 - Jan 27 - [Hamas: Eight hostages to be released from Gaza are dead](https://www.yahoo.com/news/hamas-eight-hostages-released-gaza-152924982.html)
-- Jan 27 - [New ‘Concorde’ prepares for first supersonic flight](https://www.yahoo.com/news/concorde-prepares-first-supersonic-flight-152658238.html)
 <!-- feed end -->
 
 ### Onstream
