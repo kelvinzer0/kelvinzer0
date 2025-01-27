@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Storm Herminia map: Where 80mph winds and rain will hit UK today as more bad weather follows Storm Eowyn](https://www.yahoo.com/news/storm-eowyn-map-where-snow-093025439.html)
+- Jan 27 - [7 arrested, Providence nightclub temporarily closed after early morning disturbance](https://www.yahoo.com/news/7-arrested-providence-nightclub-temporarily-002948109.html)
 - Jan 26 - [The Explosive Secret Behind the Most Famous Photo in History](https://www.yahoo.com/news/explosive-secret-behind-most-famous-235452418.html)
 - Jan 26 - [South Korea reports initial findings of Jeju Air crash to ICAO, U.S. and Thailand](https://www.yahoo.com/news/south-korea-reports-initial-findings-231741666.html)
+- Jan 26 - [Vince Vaughn's Rental Real Estate Portfolio Has Allowed Him To Weather Hollywood. Here's How He Invested His Money](https://finance.yahoo.com/news/vince-vaughns-rental-real-estate-210041844.html)
 - Jan 26 - [Colombian leader quickly caves after Trump threats, offers presidential plane for deportation flights](https://www.yahoo.com/news/colombian-leader-quickly-caves-trump-203810899.html)
-- Jan 26 - [Russia says its troops have captured a strategic town in eastern Ukraine](https://www.yahoo.com/news/russia-says-troops-captured-strategic-203007488.html)
 <!-- feed end -->
 
 ### Onstream
