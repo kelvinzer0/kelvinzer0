@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [Storm Herminia – latest: Two killed in Eowyn’s hurricane-force gales as UK braces for fresh 80mph winds and heavy rain](https://www.yahoo.com/news/storm-eowyn-live-uk-braces-073856391.html)
 - Jan 27 - [This Rare Bicentennial Quarter Has Nearly $20K Value — Plus 7 More Worth Thousands](https://finance.yahoo.com/news/rare-bicentennial-quarter-nearly-20k-154916635.html)
 - Jan 27 - [Pepsi Just Made a $1.2 Billion Acquisition of Something That Has Nothing to Do With Carbonated Beverages](https://finance.yahoo.com/news/pepsi-just-made-1-2-010000468.html)
+- Jan 27 - [Shooting outside Sacramento sports bar leaves one dead](https://www.yahoo.com/news/shooting-outside-sacramento-sports-bar-005451390.html)
 - Jan 26 - [The Explosive Secret Behind the Most Famous Photo in History](https://www.yahoo.com/news/explosive-secret-behind-most-famous-235452418.html)
-- Jan 26 - [Are You On Track To Retire Richer Than 75% Of People? Here's The Nest Egg You'll Need To Be Considered A Wealthy Retiree](https://finance.yahoo.com/news/track-retire-richer-75-people-233040184.html)
-- Jan 26 - [Duck DNA in both engines of Jeju Air plane that crashed, report says](https://www.yahoo.com/news/south-korea-reports-initial-findings-231741666.html)
 <!-- feed end -->
 
 ### Onstream
