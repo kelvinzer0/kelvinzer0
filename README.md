@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [Storm Herminia map: Where 80mph winds and rain will hit UK today as more bad weather follows Storm Eowyn](https://www.yahoo.com/news/storm-eowyn-map-where-snow-093025439.html)
+- Jan 27 - [Trapped miners ‘resort to cannibalism’ after police fail to ‘smoke them out’](https://www.yahoo.com/news/trapped-miners-resort-cannibalism-police-064300461.html)
 - Jan 27 - [Chinese AI startup DeepSeek overtakes ChatGPT on Apple App Store](https://finance.yahoo.com/news/chinese-ai-startup-deepseek-overtakes-053700426.html)
 - Jan 27 - [‘Stay out of (the) road or I’ll kill you’: Court docs indicate man pushed, punched teen for riding motorized bike](https://www.yahoo.com/news/stay-road-ll-kill-court-044328492.html)
-- Jan 27 - [This Rare Bicentennial Quarter Has Nearly $20K Value — Plus 7 More Worth Thousands](https://finance.yahoo.com/news/rare-bicentennial-quarter-nearly-20k-154916635.html)
-- Jan 27 - [Rapid Response Network confirms ICE activity in San Jose](https://www.yahoo.com/news/rapid-response-network-confirms-ice-001141607.html)
-- Jan 26 - [The Explosive Secret Behind the Most Famous Photo in History](https://www.yahoo.com/news/explosive-secret-behind-most-famous-235452418.html)
+- Jan 27 - [19 Stories About When People Learned That HR Is Not Their Friend That Left Me Speechless](https://www.yahoo.com/lifestyle/19-stories-people-learned-hr-033102515.html)
 <!-- feed end -->
 
 ### Onstream
