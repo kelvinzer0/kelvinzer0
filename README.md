@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [7 arrested, Providence nightclub temporarily closed after early morning disturbance](https://www.yahoo.com/news/7-arrested-providence-nightclub-temporarily-002948109.html)
+- Jan 27 - [This Rare Bicentennial Quarter Has Nearly $20K Value — Plus 7 More Worth Thousands](https://finance.yahoo.com/news/rare-bicentennial-quarter-nearly-20k-154916635.html)
+- Jan 27 - [Pepsi Just Made a $1.2 Billion Acquisition of Something That Has Nothing to Do With Carbonated Beverages](https://finance.yahoo.com/news/pepsi-just-made-1-2-010000468.html)
 - Jan 26 - [The Explosive Secret Behind the Most Famous Photo in History](https://www.yahoo.com/news/explosive-secret-behind-most-famous-235452418.html)
-- Jan 26 - [South Korea reports initial findings of Jeju Air crash to ICAO, U.S. and Thailand](https://www.yahoo.com/news/south-korea-reports-initial-findings-231741666.html)
-- Jan 26 - [Vince Vaughn's Rental Real Estate Portfolio Has Allowed Him To Weather Hollywood. Here's How He Invested His Money](https://finance.yahoo.com/news/vince-vaughns-rental-real-estate-210041844.html)
-- Jan 26 - [Colombian leader quickly caves after Trump threats, offers presidential plane for deportation flights](https://www.yahoo.com/news/colombian-leader-quickly-caves-trump-203810899.html)
+- Jan 26 - [Are You On Track To Retire Richer Than 75% Of People? Here's The Nest Egg You'll Need To Be Considered A Wealthy Retiree](https://finance.yahoo.com/news/track-retire-richer-75-people-233040184.html)
+- Jan 26 - [Duck DNA in both engines of Jeju Air plane that crashed, report says](https://www.yahoo.com/news/south-korea-reports-initial-findings-231741666.html)
 <!-- feed end -->
 
 ### Onstream
