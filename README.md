@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Storm Herminia – latest: UK braces for 80mph winds and widespread power cuts after Storm Eowyn kills two](https://www.yahoo.com/news/storm-eowyn-live-uk-braces-073856391.html)
-- Jan 27 - [Wordle hints today for #1,318: Clues and answer for Monday, January 27](https://www.yahoo.com/tech/wordle-hints-today-for-1318-clues-and-answer-for-monday-january-27-050155630.html)
+- Jan 27 - [Recession fears grow as companies prepare to ramp up staff cuts](https://finance.yahoo.com/news/recession-fears-grow-companies-prepare-060000303.html)
+- Jan 27 - [Exclusive-OpenAI to face Indian digital news firms of Ambani, Adani in copyright battle](https://finance.yahoo.com/news/exclusive-openai-face-indian-digital-054749046.html)
 - Jan 27 - [‘Stay out of (the) road or I’ll kill you’: Court docs indicate man pushed, punched teen for riding motorized bike](https://www.yahoo.com/news/stay-road-ll-kill-court-044328492.html)
-- Jan 27 - [UK sailor missing after yacht found 'eviscerated'](https://www.yahoo.com/news/uk-sailor-missing-yacht-found-042450605.html)
 - Jan 27 - [19 Stories About When People Learned That HR Is Not Their Friend That Left Me Speechless](https://www.yahoo.com/lifestyle/19-stories-people-learned-hr-033102515.html)
+- Jan 27 - [This Rare Bicentennial Quarter Has Nearly $20K Value — Plus 7 More Worth Thousands](https://finance.yahoo.com/news/rare-bicentennial-quarter-nearly-20k-154916635.html)
 <!-- feed end -->
 
 ### Onstream
