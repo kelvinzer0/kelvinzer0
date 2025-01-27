@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Why Chinese AI app DeepSeek is sending the tech world into a panic](https://www.yahoo.com/news/why-chinese-ai-app-deepseek-193303199.html)
-- Jan 27 - [Marjorie Taylor Greene’s ‘Homeschooling’ And ‘Gulf Of America’ Post Begs For Comment](https://www.yahoo.com/news/marjorie-taylor-greene-homeschooling-gulf-190216930.html)
-- Jan 27 - [After nearly 42 years, Jacksonville area's first microbrewery, landmark restaurant closes](https://www.yahoo.com/news/nearly-42-years-jacksonville-areas-190159322.html)
+- Jan 27 - [What is DeepSeek?](https://finance.yahoo.com/video/deepseek-205942949.html)
+- Jan 27 - [Woman arrested for ‘wearing wigs and disguises’ to take UK citizenship tests for multiple people](https://www.yahoo.com/news/woman-arrested-wearing-wigs-disguises-203613868.html)
+- Jan 27 - [Apple iPhone SE 4 Surfaces in Leak, Points to Big Changes](https://www.yahoo.com/tech/apple-iphone-se-4-surfaces-191139924.html)
 - Jan 27 - [Cuban on Musk: 'I Have No Problem Throwing Elon Under the Bus, but I'll Save It for When It's Truly Deserved'](https://finance.yahoo.com/news/cuban-musk-no-problem-throwing-190023832.html)
-- Jan 27 - [Career US Justice Department official in charge of public corruption cases resigns](https://www.yahoo.com/news/career-us-justice-department-official-182427571.html)
+- Jan 27 - [GM dealer Rick Hendrick pays $3.7M to own Corvette ZR1, the fastest car in US](https://autos.yahoo.com/gm-dealer-rick-hendrick-pays-185736418.html)
 <!-- feed end -->
 
 ### Onstream
