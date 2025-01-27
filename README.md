@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Woman injured after being shot in leg at NE Canton bar, suspect arrested](https://www.yahoo.com/news/woman-injured-being-shot-leg-182236824.html)
-- Jan 27 - [DeepSeek AI: What you need to know about the ChatGPT rival](https://www.yahoo.com/tech/deepseek-ai-know-chatgpt-rival-173447905.html)
-- Jan 27 - [How women's dollars are driving the US economy](https://finance.yahoo.com/video/womens-dollars-driving-us-economy-173000499.html)
-- Jan 27 - [DeepSeek sell-off reminds investors of the biggest earnings story holding up the stock market](https://finance.yahoo.com/news/deepseek-sell-off-reminds-investors-of-the-biggest-earnings-story-holding-up-the-stock-market-141101978.html)
-- Jan 27 - [Child rape gang plunged to depths of human depravity, says judge](https://www.yahoo.com/news/child-rape-gang-worst-example-170616252.html)
+- Jan 27 - [Why Chinese AI app DeepSeek is sending the tech world into a panic](https://www.yahoo.com/news/why-chinese-ai-app-deepseek-193303199.html)
+- Jan 27 - [Marjorie Taylor Greene’s ‘Homeschooling’ And ‘Gulf Of America’ Post Begs For Comment](https://www.yahoo.com/news/marjorie-taylor-greene-homeschooling-gulf-190216930.html)
+- Jan 27 - [After nearly 42 years, Jacksonville area's first microbrewery, landmark restaurant closes](https://www.yahoo.com/news/nearly-42-years-jacksonville-areas-190159322.html)
+- Jan 27 - [Cuban on Musk: 'I Have No Problem Throwing Elon Under the Bus, but I'll Save It for When It's Truly Deserved'](https://finance.yahoo.com/news/cuban-musk-no-problem-throwing-190023832.html)
+- Jan 27 - [Career US Justice Department official in charge of public corruption cases resigns](https://www.yahoo.com/news/career-us-justice-department-official-182427571.html)
 <!-- feed end -->
 
 ### Onstream
