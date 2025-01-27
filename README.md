@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [3 injured by car driven into a crowd in Philadelphia after Eagles playoff game](https://www.yahoo.com/news/3-injured-car-driven-crowd-074113129.html)
+- Jan 27 - [Analysis-Renewed inflation worries help drive oil price rally](https://finance.yahoo.com/news/analysis-renewed-inflation-worries-help-095258880.html)
+- Jan 27 - [Belarus strongman extends his rule after an election rejected by opposition and the EU](https://www.yahoo.com/news/belarus-strongman-extends-rule-election-093550081.html)
+- Jan 27 - [Warren Buffett Sends Wall Street a Grim $127 Billion Warning: History Says the Stock Market Will Do This in 2025.](https://finance.yahoo.com/news/warren-buffett-sends-wall-street-090000507.html)
 - Jan 27 - [China's DeepSeek sets off AI market rout](https://finance.yahoo.com/news/chinas-deepseek-sets-off-ai-071458375.html)
-- Jan 27 - [Power outages, flooding, landslide cause chaos for thousands of Oʻahu residents during flash flood warning](https://www.yahoo.com/news/power-outages-flooding-landslide-cause-064911328.html)
-- Jan 27 - [Chinese AI startup DeepSeek overtakes ChatGPT on Apple App Store](https://finance.yahoo.com/news/chinese-ai-startup-deepseek-overtakes-053700426.html)
-- Jan 27 - [19 Stories About When People Learned That HR Is Not Their Friend That Left Me Speechless](https://www.yahoo.com/lifestyle/19-stories-people-learned-hr-033102515.html)
+- Jan 27 - [South Korean plane crash report says bird remains were found in engines, but no cause yet revealed](https://www.yahoo.com/news/south-korean-plane-crash-report-064022836.html)
 <!-- feed end -->
 
 ### Onstream
