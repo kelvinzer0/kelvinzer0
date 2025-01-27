@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [No, Spain isn't banning tourists. Here’s what to know before planning a trip](https://www.yahoo.com/news/no-spain-isnt-banning-tourists-131825654.html)
-- Jan 27 - [Iran's Revolutionary Guards commander says Iran purchased Russian-made Sukhoi 35 fighter jets](https://www.yahoo.com/news/irans-revolutionary-guards-commander-says-130849234.html)
-- Jan 27 - [Joy and relief as crowds of Palestinians return to northern Gaza](https://www.yahoo.com/news/joy-relief-crowds-palestinians-return-103922038.html)
-- Jan 27 - [Judge dismisses Jan. 6 riot charges against Topekan Will Pope and his brother](https://www.yahoo.com/news/judge-dismisses-jan-6-riot-101222714.html)
-- Jan 27 - [Navajo Nation leaders raise alarm over reports of Indigenous people being questioned and detained during immigration sweeps](https://www.yahoo.com/news/navajo-nation-leaders-raise-alarm-093255788.html)
+- Jan 27 - [Super Micro Stock Crashes 10% Over Fears of Chinese AI Innovation](https://finance.yahoo.com/news/super-micro-stock-crashes-10-144059195.html)
+- Jan 27 - [Stock market today: Nasdaq sinks, S&P 500 tumbles as AI fears rock tech stocks](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-sinks-sp-500-tumbles-as-ai-fears-rock-tech-stocks-143116264.html)
+- Jan 27 - [DeepSeek sell-off reminds investors of the biggest earnings story holding up the stock market](https://finance.yahoo.com/news/deepseek-sell-off-reminds-investors-of-the-biggest-earnings-story-holding-up-the-stock-market-141101978.html)
+- Jan 27 - [Israel arrests Iron Dome soldiers suspected of spying for Iran](https://www.yahoo.com/news/israel-arrests-iron-dome-soldiers-140916633.html)
+- Jan 27 - [Father who stabbed daughter, 14, found guilty of murder after claiming it was a playfight](https://www.yahoo.com/news/father-stabbed-daughter-14-found-130007856.html)
 <!-- feed end -->
 
 ### Onstream
