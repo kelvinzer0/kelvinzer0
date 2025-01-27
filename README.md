@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Scalpers may have a field day with the RTX 5090 this week](https://finance.yahoo.com/news/scalpers-may-field-day-rtx-155901018.html)
-- Jan 27 - [Why bitcoin investors are looking for a 'surprise'](https://finance.yahoo.com/video/why-bitcoin-investors-looking-surprise-155240929.html)
-- Jan 27 - [Why Nvidia Stock Is Plummeting Today](https://finance.yahoo.com/news/why-nvidia-stock-plummeting-today-154121267.html)
 - Jan 27 - [Father who stabbed daughter, 14, found guilty of murder after claiming it was a play fight](https://www.yahoo.com/news/father-stabbed-daughter-14-found-130007856.html)
-- Jan 27 - [AT&T Earnings, Wireless Subscriber Additions Top Estimates. Telecom Stock Pops.](https://www.investors.com/news/technology/att-earnings-att-stock-t-stock-q42024/?src=A00220&yptr=yahoo)
+- Jan 27 - [Did you feel it? Earthquake centered in Maine rattles communities across Massachusetts](https://www.yahoo.com/news/did-feel-earthquake-centered-maine-162515116.html)
+- Jan 27 - [‘Mad’ Green Party council wants to collect black bin bags once a month](https://www.yahoo.com/news/mad-green-party-council-wants-160249377.html)
+- Jan 27 - [Hamas: Eight hostages to be released from Gaza are dead](https://www.yahoo.com/news/hamas-eight-hostages-released-gaza-152924982.html)
+- Jan 27 - [New ‘Concorde’ prepares for first supersonic flight](https://www.yahoo.com/news/concorde-prepares-first-supersonic-flight-152658238.html)
 <!-- feed end -->
 
 ### Onstream
