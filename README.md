@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Recession fears grow as companies prepare to ramp up staff cuts](https://finance.yahoo.com/news/recession-fears-grow-companies-prepare-060000303.html)
-- Jan 27 - [Exclusive-OpenAI to face Indian digital news firms of Ambani, Adani in copyright battle](https://finance.yahoo.com/news/exclusive-openai-face-indian-digital-054749046.html)
+- Jan 27 - [Chinese AI startup DeepSeek overtakes ChatGPT on Apple App Store](https://finance.yahoo.com/news/chinese-ai-startup-deepseek-overtakes-053700426.html)
 - Jan 27 - [‘Stay out of (the) road or I’ll kill you’: Court docs indicate man pushed, punched teen for riding motorized bike](https://www.yahoo.com/news/stay-road-ll-kill-court-044328492.html)
-- Jan 27 - [19 Stories About When People Learned That HR Is Not Their Friend That Left Me Speechless](https://www.yahoo.com/lifestyle/19-stories-people-learned-hr-033102515.html)
 - Jan 27 - [This Rare Bicentennial Quarter Has Nearly $20K Value — Plus 7 More Worth Thousands](https://finance.yahoo.com/news/rare-bicentennial-quarter-nearly-20k-154916635.html)
+- Jan 27 - [Rapid Response Network confirms ICE activity in San Jose](https://www.yahoo.com/news/rapid-response-network-confirms-ice-001141607.html)
+- Jan 26 - [The Explosive Secret Behind the Most Famous Photo in History](https://www.yahoo.com/news/explosive-secret-behind-most-famous-235452418.html)
 <!-- feed end -->
 
 ### Onstream
