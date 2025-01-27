@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Storm Herminia – latest: Two killed in Eowyn’s hurricane-force gales as UK braces for fresh 80mph winds and heavy rain](https://www.yahoo.com/news/storm-eowyn-live-uk-braces-073856391.html)
-- Jan 27 - [This Rare Bicentennial Quarter Has Nearly $20K Value — Plus 7 More Worth Thousands](https://finance.yahoo.com/news/rare-bicentennial-quarter-nearly-20k-154916635.html)
-- Jan 27 - [Pepsi Just Made a $1.2 Billion Acquisition of Something That Has Nothing to Do With Carbonated Beverages](https://finance.yahoo.com/news/pepsi-just-made-1-2-010000468.html)
-- Jan 27 - [Shooting outside Sacramento sports bar leaves one dead](https://www.yahoo.com/news/shooting-outside-sacramento-sports-bar-005451390.html)
-- Jan 26 - [The Explosive Secret Behind the Most Famous Photo in History](https://www.yahoo.com/news/explosive-secret-behind-most-famous-235452418.html)
+- Jan 27 - [Storm Herminia – latest: UK braces for 80mph winds and widespread power cuts after Storm Eowyn kills two](https://www.yahoo.com/news/storm-eowyn-live-uk-braces-073856391.html)
+- Jan 27 - [Wordle hints today for #1,318: Clues and answer for Monday, January 27](https://www.yahoo.com/tech/wordle-hints-today-for-1318-clues-and-answer-for-monday-january-27-050155630.html)
+- Jan 27 - [‘Stay out of (the) road or I’ll kill you’: Court docs indicate man pushed, punched teen for riding motorized bike](https://www.yahoo.com/news/stay-road-ll-kill-court-044328492.html)
+- Jan 27 - [UK sailor missing after yacht found 'eviscerated'](https://www.yahoo.com/news/uk-sailor-missing-yacht-found-042450605.html)
+- Jan 27 - [19 Stories About When People Learned That HR Is Not Their Friend That Left Me Speechless](https://www.yahoo.com/lifestyle/19-stories-people-learned-hr-033102515.html)
 <!-- feed end -->
 
 ### Onstream
