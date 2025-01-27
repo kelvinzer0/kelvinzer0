@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Super Micro Stock Crashes 10% Over Fears of Chinese AI Innovation](https://finance.yahoo.com/news/super-micro-stock-crashes-10-144059195.html)
-- Jan 27 - [Stock market today: Nasdaq sinks, S&P 500 tumbles as AI fears rock tech stocks](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-sinks-sp-500-tumbles-as-ai-fears-rock-tech-stocks-143116264.html)
-- Jan 27 - [DeepSeek sell-off reminds investors of the biggest earnings story holding up the stock market](https://finance.yahoo.com/news/deepseek-sell-off-reminds-investors-of-the-biggest-earnings-story-holding-up-the-stock-market-141101978.html)
-- Jan 27 - [Israel arrests Iron Dome soldiers suspected of spying for Iran](https://www.yahoo.com/news/israel-arrests-iron-dome-soldiers-140916633.html)
-- Jan 27 - [Father who stabbed daughter, 14, found guilty of murder after claiming it was a playfight](https://www.yahoo.com/news/father-stabbed-daughter-14-found-130007856.html)
+- Jan 27 - [Scalpers may have a field day with the RTX 5090 this week](https://finance.yahoo.com/news/scalpers-may-field-day-rtx-155901018.html)
+- Jan 27 - [Why bitcoin investors are looking for a 'surprise'](https://finance.yahoo.com/video/why-bitcoin-investors-looking-surprise-155240929.html)
+- Jan 27 - [Why Nvidia Stock Is Plummeting Today](https://finance.yahoo.com/news/why-nvidia-stock-plummeting-today-154121267.html)
+- Jan 27 - [Father who stabbed daughter, 14, found guilty of murder after claiming it was a play fight](https://www.yahoo.com/news/father-stabbed-daughter-14-found-130007856.html)
+- Jan 27 - [AT&T Earnings, Wireless Subscriber Additions Top Estimates. Telecom Stock Pops.](https://www.investors.com/news/technology/att-earnings-att-stock-t-stock-q42024/?src=A00220&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
