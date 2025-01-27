@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Storm Herminia map: Where 80mph winds and rain will hit UK today as more bad weather follows Storm Eowyn](https://www.yahoo.com/news/storm-eowyn-map-where-snow-093025439.html)
-- Jan 27 - [Trapped miners ‘resort to cannibalism’ after police fail to ‘smoke them out’](https://www.yahoo.com/news/trapped-miners-resort-cannibalism-police-064300461.html)
+- Jan 27 - [3 injured by car driven into a crowd in Philadelphia after Eagles playoff game](https://www.yahoo.com/news/3-injured-car-driven-crowd-074113129.html)
+- Jan 27 - [China's DeepSeek sets off AI market rout](https://finance.yahoo.com/news/chinas-deepseek-sets-off-ai-071458375.html)
+- Jan 27 - [Power outages, flooding, landslide cause chaos for thousands of Oʻahu residents during flash flood warning](https://www.yahoo.com/news/power-outages-flooding-landslide-cause-064911328.html)
 - Jan 27 - [Chinese AI startup DeepSeek overtakes ChatGPT on Apple App Store](https://finance.yahoo.com/news/chinese-ai-startup-deepseek-overtakes-053700426.html)
-- Jan 27 - [‘Stay out of (the) road or I’ll kill you’: Court docs indicate man pushed, punched teen for riding motorized bike](https://www.yahoo.com/news/stay-road-ll-kill-court-044328492.html)
 - Jan 27 - [19 Stories About When People Learned That HR Is Not Their Friend That Left Me Speechless](https://www.yahoo.com/lifestyle/19-stories-people-learned-hr-033102515.html)
 <!-- feed end -->
 
