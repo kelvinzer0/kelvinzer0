@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Stock market today: Nasdaq futures tank, Dow tumbles 350 points as AI fears rock tech stocks](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-tank-dow-tumbles-350-points-as-ai-fears-rock-tech-stocks-112807488.html)
-- Jan 27 - [Leaked memo reveals push underway to reverse controversial vehicle ban: 'Thousands of jobs on the line'](https://www.yahoo.com/news/leaked-memo-reveals-push-underway-104521982.html)
-- Jan 27 - [Watch: Los Angeles Fire Department truck stuck in mud](https://www.yahoo.com/news/watch-los-angeles-fire-department-102712254.html)
-- Jan 27 - [James Carville Predicts Donald Trump Will ‘Punch Himself Out’ If Democrats Do This](https://www.yahoo.com/news/james-carville-predicts-donald-trump-101301943.html)
+- Jan 27 - [No, Spain isn't banning tourists. Here’s what to know before planning a trip](https://www.yahoo.com/news/no-spain-isnt-banning-tourists-131825654.html)
+- Jan 27 - [Iran's Revolutionary Guards commander says Iran purchased Russian-made Sukhoi 35 fighter jets](https://www.yahoo.com/news/irans-revolutionary-guards-commander-says-130849234.html)
+- Jan 27 - [Joy and relief as crowds of Palestinians return to northern Gaza](https://www.yahoo.com/news/joy-relief-crowds-palestinians-return-103922038.html)
+- Jan 27 - [Judge dismisses Jan. 6 riot charges against Topekan Will Pope and his brother](https://www.yahoo.com/news/judge-dismisses-jan-6-riot-101222714.html)
 - Jan 27 - [Navajo Nation leaders raise alarm over reports of Indigenous people being questioned and detained during immigration sweeps](https://www.yahoo.com/news/navajo-nation-leaders-raise-alarm-093255788.html)
 <!-- feed end -->
 
