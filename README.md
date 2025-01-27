@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Actor guilty of assault the day after jail release](https://www.yahoo.com/news/actor-guilty-assault-day-jail-195951075.html)
-- Jan 26 - [NASA and ESA share a breathtaking Hubble image of the Tarantula Nebula’s outer edge](https://www.yahoo.com/tech/nasa-and-esa-share-a-breathtaking-hubble-image-of-the-tarantula-nebulas-outer-edge-202349788.html)
-- Jan 26 - [Trump Zeroes in on Country to Dump Migrants From All Over](https://www.yahoo.com/news/trump-zeros-country-dump-migrants-174717530.html)
-- Jan 26 - [Multi-vehicle crash gridlocks I-8 traffic as rain wets roadway](https://www.yahoo.com/news/multi-vehicle-crash-gridlocks-8-173155886.html)
-- Jan 26 - [Former Employees Are Sharing Company Secrets Now That They No Longer Work There, And These Are Fascinating](https://www.yahoo.com/lifestyle/former-employees-sharing-company-secrets-164502721.html)
+- Jan 27 - [Storm Herminia map: Where 80mph winds and rain will hit UK today as more bad weather follows Storm Eowyn](https://www.yahoo.com/news/storm-eowyn-map-where-snow-093025439.html)
+- Jan 26 - [The Explosive Secret Behind the Most Famous Photo in History](https://www.yahoo.com/news/explosive-secret-behind-most-famous-235452418.html)
+- Jan 26 - [South Korea reports initial findings of Jeju Air crash to ICAO, U.S. and Thailand](https://www.yahoo.com/news/south-korea-reports-initial-findings-231741666.html)
+- Jan 26 - [Colombian leader quickly caves after Trump threats, offers presidential plane for deportation flights](https://www.yahoo.com/news/colombian-leader-quickly-caves-trump-203810899.html)
+- Jan 26 - [Russia says its troops have captured a strategic town in eastern Ukraine](https://www.yahoo.com/news/russia-says-troops-captured-strategic-203007488.html)
 <!-- feed end -->
 
 ### Onstream
