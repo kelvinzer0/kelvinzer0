@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Analysis-Renewed inflation worries help drive oil price rally](https://finance.yahoo.com/news/analysis-renewed-inflation-worries-help-095258880.html)
-- Jan 27 - [Belarus strongman extends his rule after an election rejected by opposition and the EU](https://www.yahoo.com/news/belarus-strongman-extends-rule-election-093550081.html)
+- Jan 27 - [Banijay Unveils New Leadership Structure for Scripted, Promotes Steve Matthews and Johannes Jensen](https://www.yahoo.com/entertainment/banijay-unveils-leadership-structure-scripted-101907585.html)
+- Jan 27 - [Winter wine and beer tasting events are coming to Watkins Glen and Corning. How to attend.](https://www.yahoo.com/lifestyle/winter-wine-beer-tasting-events-100759974.html)
+- Jan 27 - [Europe is cautiously optimistic about Trump’s Ukraine comments](https://www.yahoo.com/news/europe-cautiously-optimistic-trump-ukraine-100000707.html)
+- Jan 27 - [Here's what's happening with opiate overdoses in Burlington: How BPD is aiming to solve it](https://www.yahoo.com/news/heres-whats-happening-opiate-overdoses-095550200.html)
 - Jan 27 - [Warren Buffett Sends Wall Street a Grim $127 Billion Warning: History Says the Stock Market Will Do This in 2025.](https://finance.yahoo.com/news/warren-buffett-sends-wall-street-090000507.html)
-- Jan 27 - [China's DeepSeek sets off AI market rout](https://finance.yahoo.com/news/chinas-deepseek-sets-off-ai-071458375.html)
-- Jan 27 - [South Korean plane crash report says bird remains were found in engines, but no cause yet revealed](https://www.yahoo.com/news/south-korean-plane-crash-report-064022836.html)
 <!-- feed end -->
 
 ### Onstream
