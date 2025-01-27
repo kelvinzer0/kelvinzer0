@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [What is DeepSeek?](https://finance.yahoo.com/video/deepseek-205942949.html)
-- Jan 27 - [Woman arrested for ‘wearing wigs and disguises’ to take UK citizenship tests for multiple people](https://www.yahoo.com/news/woman-arrested-wearing-wigs-disguises-203613868.html)
-- Jan 27 - [Apple iPhone SE 4 Surfaces in Leak, Points to Big Changes](https://www.yahoo.com/tech/apple-iphone-se-4-surfaces-191139924.html)
-- Jan 27 - [Cuban on Musk: 'I Have No Problem Throwing Elon Under the Bus, but I'll Save It for When It's Truly Deserved'](https://finance.yahoo.com/news/cuban-musk-no-problem-throwing-190023832.html)
-- Jan 27 - [GM dealer Rick Hendrick pays $3.7M to own Corvette ZR1, the fastest car in US](https://autos.yahoo.com/gm-dealer-rick-hendrick-pays-185736418.html)
+- Jan 27 - [Could DeepSeek's AI gains be good news for all AI players?](https://finance.yahoo.com/video/could-deepseeks-ai-gains-good-215847832.html)
+- Jan 27 - [German Highway Bridge Demolished in Controlled Explosion](https://www.yahoo.com/news/german-highway-bridge-demolished-controlled-215316352.html)
+- Jan 27 - [Father who stabbed daughter, 14, found guilty of murder after claiming it was a play fight](https://www.yahoo.com/news/father-stabbed-daughter-14-found-130007856.html)
+- Jan 27 - [DeepSeek sell-off reminds investors of the biggest earnings story holding up the stock market](https://finance.yahoo.com/news/deepseek-sell-off-reminds-investors-of-the-biggest-earnings-story-holding-up-the-stock-market-141101978.html)
+- Jan 27 - [Why market panic over China's DeepSeek is 'overblown,' analysts say](https://finance.yahoo.com/news/why-market-panic-over-chinas-deepseek-is-overblown-analysts-say-211148821.html)
 <!-- feed end -->
 
 ### Onstream
