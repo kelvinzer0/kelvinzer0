@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [New snowfall map: Widespread snow on tap for Mass. Here’s how much to expect and when](https://www.yahoo.com/news/snowfall-map-widespread-snow-tap-134149319.html)
+- Jan 28 - [Why DeepSeek could bring 'opportunities to monetize' software](https://finance.yahoo.com/video/why-deepseek-could-bring-opportunities-214120388.html)
+- Jan 28 - [ICE Releases Video Showing Arrests Made in Chicago](https://www.yahoo.com/news/ice-releases-video-showing-arrests-213351282.html)
 - Jan 28 - [Trump federal spending freeze sparks confusion, fury](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
-- Jan 28 - [Customer and teen employee identified as fatal victims from Elkhart Martin's shooting](https://www.yahoo.com/news/customer-teen-employee-identified-fatal-202245398.html)
 - Jan 28 - [Nancy Pelosi's Husband Sold a Boatload of Nvidia Stock Right Before It Was Eviscerated by Chinese Startup](https://finance.yahoo.com/news/nancy-pelosis-husband-sold-boatload-190826497.html)
-- Jan 28 - [Lay’s Classic potato chips recall elevated to highest FDA level over ‘deadly’ ingredient](https://www.yahoo.com/news/lay-classic-potato-chips-recalled-152448296.html)
-- Jan 28 - [Alleged Drug Kingpin Caught After Wife’s European Vacation Photos Reveal His Location](https://www.yahoo.com/news/alleged-drug-kingpin-caught-wife-182908822.html)
 <!-- feed end -->
 
 ### Onstream
