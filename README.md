@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Woman's cancer diagnosis after wrong smear results](https://www.yahoo.com/news/womans-cancer-diagnosis-wrong-smear-063756991.html)
-- Jan 28 - [NATO is deploying eyes in the sky and on the Baltic Sea to protect vital cables. Here's why and how](https://www.yahoo.com/news/nato-deploying-eyes-sky-baltic-050639979.html)
-- Jan 28 - [Prosecutors say New York state trooper lied about getting shot](https://www.yahoo.com/news/prosecutors-york-state-trooper-lied-032301231.html)
+- Jan 28 - [Indian Oil faces decline in Russian oil imports in 2024/25](https://finance.yahoo.com/news/indian-oil-faces-decline-russian-075950284.html)
+- Jan 28 - [‘My father was the Tattooist of Auschwitz – it took me five attempts to visit his prison home’](https://www.yahoo.com/news/father-tattooist-auschwitz-took-five-070000361.html)
 - Jan 28 - [Family identifies 8-month-old hit, killed by car on Saturday](https://www.yahoo.com/news/8-month-old-baby-placed-232423245.html)
-- Jan 28 - [59-Year-Old Earning $15,000 a Month in Dividends Shares Top 4 Stock Picks – 'Lot of Frugal Living the Last 30 Years'](https://finance.yahoo.com/news/59-old-earning-15-000-000017800.html)
+- Jan 27 - [Trump: DeepSeek's AI should be a 'wakeup call' to US industry](https://finance.yahoo.com/news/trump-deepseeks-ai-wakeup-call-235234051.html)
+- Jan 27 - [Indiana man pardoned by Trump for Jan. 6 riot is shot and killed by deputy during arrest](https://www.yahoo.com/news/indiana-man-pardoned-trump-jan-225620637.html)
 <!-- feed end -->
 
 ### Onstream
