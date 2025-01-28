@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [In the early going, Trump 2.0 approach on foreign policy is to talk loudly and carry a big stick](https://www.yahoo.com/news/early-going-trump-2-0-225049854.html)
-- Jan 27 - [Three Top Dividend Stocks To Consider](https://finance.yahoo.com/news/three-top-dividend-stocks-consider-221218616.html)
-- Jan 27 - [German Highway Bridge Demolished in Controlled Explosion](https://www.yahoo.com/news/german-highway-bridge-demolished-controlled-215316352.html)
+- Jan 28 - [Ms. Rachel opens up about her support for Gaza’s children: ‘I couldn’t look away’](https://www.yahoo.com/news/ms-rachel-opens-her-support-000808331.html)
+- Jan 28 - [United flight loses altitude over Africa, forcing emergency landing](https://www.yahoo.com/news/united-flight-loses-altitude-over-000046492.html)
+- Jan 27 - [California utility reports fault on power line miles away from origin of deadly Eaton fire](https://www.yahoo.com/news/california-utility-reports-fault-power-221949342.html)
 - Jan 27 - [Did you feel it? Earthquake centered in Maine rattles communities across Massachusetts](https://www.yahoo.com/news/did-feel-earthquake-centered-maine-162515116.html)
 - Jan 27 - [Why market panic over China's DeepSeek is 'overblown,' analysts say](https://finance.yahoo.com/news/why-market-panic-over-chinas-deepseek-is-overblown-analysts-say-211148821.html)
 <!-- feed end -->
