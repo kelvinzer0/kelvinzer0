@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Coca-Cola investigated by UK authorities after urgent chemical recall of drinks in Europe](https://www.yahoo.com/news/coca-cola-issues-recall-drinks-233852369.html)
+- Jan 28 - [Lawsuit says Russian officials stole millions meant to fortify border region attacked by Ukraine](https://www.yahoo.com/news/lawsuit-says-russian-officials-stole-130332622.html)
+- Jan 28 - [6 Questions You Should Never Ask at a Car Dealership](https://finance.yahoo.com/news/6-questions-never-ask-car-120037492.html)
 - Jan 28 - [Pro-Musk Scott Jennings Is Dared to Repeat ‘Nazi Salute’ During On-Air Brawl](https://www.yahoo.com/news/pro-musk-scott-jennings-dared-112518995.html)
-- Jan 28 - [Mississippi deer hunting: Hunter in MS takes huge 10-point buck](https://sports.yahoo.com/mississippi-deer-hunting-hunter-ms-103334629.html)
-- Jan 28 - [Honda's all-electric SUV is rapidly outselling other models — here's why drivers are scrambling to buy this 'surprise hit'](https://autos.yahoo.com/hondas-electric-suv-rapidly-outselling-103033086.html)
-- Jan 28 - [Dubai billionaire Habtoor pulls out of Lebanon amid fear of Shi'ite influence](https://www.yahoo.com/news/dubai-billionaire-habtoor-pulls-lebanon-085111632.html)
+- Jan 28 - [Mortgage and refinance rates today, January 28, 2024: Rates drop ahead of Fed meeting](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-january-28-2025-110059953.html)
+- Jan 28 - [A remote US island will soon power itself with an untapped rare source: 'One of the best sites in the country'](https://www.yahoo.com/news/remote-us-island-soon-power-104541136.html)
 <!-- feed end -->
 
 ### Onstream
