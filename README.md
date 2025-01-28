@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Caroline Kennedy Slams RFK Jr. as ‘Predator’ in Bid to Derail HHS Job](https://www.yahoo.com/news/caroline-kennedy-slams-rfk-jr-180631354.html)
-- Jan 28 - [AI sell-off underlines need for 'exposure across the value chain'](https://finance.yahoo.com/video/ai-sell-off-underlines-exposure-173000335.html)
-- Jan 28 - [Megabucks ticket sold at Massachusetts liquor store wins $6.13M jackpot](https://www.yahoo.com/news/megabucks-ticket-sold-massachusetts-liquor-172633957.html)
-- Jan 28 - [Helicopters loaded with Gaza aid packages from Jordan land in Israel](https://www.yahoo.com/news/helicopters-loaded-gaza-aid-packages-172122025.html)
-- Jan 28 - [Wisconsin Republicans ask liberal Supreme Court Justice to step aside in union case](https://www.yahoo.com/news/wisconsin-republicans-ask-liberal-supreme-170536007.html)
+- Jan 28 - [Alleged Drug Kingpin Caught After Wife’s European Vacation Photos Reveal His Location](https://www.yahoo.com/news/alleged-drug-kingpin-caught-wife-182908822.html)
+- Jan 28 - [Caroline Kennedy: RFK Jr. Is ‘Predator’ and Anti-Vax Hypocrite](https://www.yahoo.com/news/caroline-kennedy-slams-rfk-jr-180631354.html)
+- Jan 28 - [Crowd Shatters Windows, Rips Door Off Empty Waymo Cab Stopped In LA](https://autos.yahoo.com/crowd-shatters-windows-rips-door-170000618.html)
+- Jan 28 - [Trump freezes federal aid to Americans, triggering fury](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
+- Jan 28 - [Passenger plane catches fire at South Korean airport. All 176 people on board are evacuated](https://www.yahoo.com/news/passenger-plane-catches-fire-south-151249107.html)
 <!-- feed end -->
 
 ### Onstream
