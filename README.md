@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [India’s Smallcap Stock Index Plunges 20% From September High](https://finance.yahoo.com/news/india-smallcap-stock-index-plunges-043529592.html)
+- Jan 28 - [Prosecutors say New York state trooper lied about getting shot](https://www.yahoo.com/news/prosecutors-york-state-trooper-lied-032301231.html)
 - Jan 28 - [Man admits why he pushed woman into NYC subway train](https://www.yahoo.com/news/man-admits-why-pushed-woman-000657919.html)
 - Jan 28 - [59-Year-Old Earning $15,000 a Month in Dividends Shares Top 4 Stock Picks – 'Lot of Frugal Living the Last 30 Years'](https://finance.yahoo.com/news/59-old-earning-15-000-000017800.html)
 - Jan 27 - [Trump: DeepSeek's AI should be a 'wakeup call' to US industry](https://finance.yahoo.com/news/trump-deepseeks-ai-wakeup-call-235234051.html)
-- Jan 27 - [Listen to The Eerie 'Sounds' From A Black Hole, Captured by NASA](https://www.yahoo.com/news/listen-eerie-sounds-black-hole-233244132.html)
-- Jan 27 - [California considers letting victims of natural disasters sue oil companies for damages](https://www.yahoo.com/news/california-considers-letting-wildfire-victims-223401431.html)
 <!-- feed end -->
 
 ### Onstream
