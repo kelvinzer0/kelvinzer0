@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Dead bodies on the streets and hospitals overwhelmed as rebels battle government in DR Congo city of Goma](https://www.yahoo.com/news/dead-bodies-streets-hospitals-overwhelmed-124130581.html)
-- Jan 28 - [Rwanda-backed rebels say they've captured Congo city of Goma](https://www.yahoo.com/news/rwanda-backed-rebels-theyve-captured-140258356.html)
-- Jan 28 - [New snowfall map: Widespread snow on tap for Mass. Here’s how much to expect and when](https://www.yahoo.com/news/snowfall-map-widespread-snow-tap-134149319.html)
+- Jan 28 - [Security from Egyptian-Qatari committee inspect vehicles of people returning to northern Gaza](https://www.yahoo.com/news/security-egyptian-qatari-committee-inspect-161737893.html)
+- Jan 28 - [How men's minds and bodies may change after they become parents](https://www.yahoo.com/news/mens-minds-bodies-may-change-154851786.html)
+- Jan 28 - [Were the rains enough to ease Southern California's fire threat? What we know](https://www.yahoo.com/news/were-rains-enough-ease-southern-154249233.html)
 - Jan 28 - [Elon Musk clashes with Norway wealth fund CEO; 'friends are as friends do'](https://finance.yahoo.com/news/elon-musk-clashes-norway-wealth-134134064.html)
-- Jan 28 - [6 Questions You Should Never Ask at a Car Dealership](https://finance.yahoo.com/news/6-questions-never-ask-car-120037492.html)
+- Jan 28 - [Lawsuit says Russian officials stole millions meant to fortify border region attacked by Ukraine](https://www.yahoo.com/news/lawsuit-says-russian-officials-stole-130332622.html)
 <!-- feed end -->
 
 ### Onstream
