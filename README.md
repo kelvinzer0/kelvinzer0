@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Security from Egyptian-Qatari committee inspect vehicles of people returning to northern Gaza](https://www.yahoo.com/news/security-egyptian-qatari-committee-inspect-161737893.html)
-- Jan 28 - [More frequent marijuana use may damage an important memory skill](https://www.yahoo.com/lifestyle/more-frequent-marijuana-may-damage-160058907.html)
-- Jan 28 - [Boeing reports $11.8-billion annual loss after crisis-ridden year](https://finance.yahoo.com/video/boeing-reports-11-8-billion-151747418.html)
-- Jan 28 - [Passenger plane catches fire at South Korean airport. All 176 people on board are evacuated](https://www.yahoo.com/news/passenger-plane-catches-fire-south-151249107.html)
-- Jan 28 - [Elon Musk clashes with Norway wealth fund CEO; 'friends are as friends do'](https://finance.yahoo.com/news/elon-musk-clashes-norway-wealth-134134064.html)
+- Jan 28 - [Dominican hospitals face surge of Haitian mothers fleeing conflict](https://www.yahoo.com/news/dominican-hospitals-face-surge-haitian-174838395.html)
+- Jan 28 - [AI sell-off underlines need for 'exposure across the value chain'](https://finance.yahoo.com/video/ai-sell-off-underlines-exposure-173000335.html)
+- Jan 28 - [Wisconsin Republicans ask liberal Supreme Court Justice to step aside in union case](https://www.yahoo.com/news/wisconsin-republicans-ask-liberal-supreme-170536007.html)
+- Jan 28 - [Trump freezes federal aid to Americans, triggering fury](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
+- Jan 28 - [Amazon's advocates fear Trump's return means little US help to protect rainforest](https://www.yahoo.com/news/amazons-advocates-fear-trumps-return-164631049.html)
 <!-- feed end -->
 
 ### Onstream
