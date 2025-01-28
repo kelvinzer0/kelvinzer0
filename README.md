@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [New snowfall map: Widespread snow on tap for Mass. Here’s how much to expect and when](https://www.yahoo.com/news/snowfall-map-widespread-snow-tap-134149319.html)
-- Jan 28 - [Why DeepSeek could bring 'opportunities to monetize' software](https://finance.yahoo.com/video/why-deepseek-could-bring-opportunities-214120388.html)
+- Jan 28 - [Nvidia sell-off, markets under Trump, coffee: Market Takeaways](https://finance.yahoo.com/video/nvidia-sell-off-markets-under-223046085.html)
+- Jan 28 - [Astronaut Whose Return to Earth Keeps Getting Delayed Says She's Been 'Trying to Remember What It’s Like to Walk'](https://www.yahoo.com/entertainment/astronaut-whose-return-earth-keeps-222819687.html)
 - Jan 28 - [ICE Releases Video Showing Arrests Made in Chicago](https://www.yahoo.com/news/ice-releases-video-showing-arrests-213351282.html)
 - Jan 28 - [Trump federal spending freeze sparks confusion, fury](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
-- Jan 28 - [Nancy Pelosi's Husband Sold a Boatload of Nvidia Stock Right Before It Was Eviscerated by Chinese Startup](https://finance.yahoo.com/news/nancy-pelosis-husband-sold-boatload-190826497.html)
+- Jan 28 - [Savannah Chrisley Doesn't Know Where Dad Todd Will Go Once Prison Facility Closes Down: 'It Breaks My Heart'](https://www.yahoo.com/entertainment/savannah-chrisley-doesnt-know-where-195318917.html)
 <!-- feed end -->
 
 ### Onstream
