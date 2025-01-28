@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [DeepSeek founder Liang Wenfeng puts focus on Chinese innovation](https://finance.yahoo.com/news/deepseek-founder-liang-wenfeng-puts-121628394.html)
+- Jan 28 - [Coca-Cola investigated by UK authorities after urgent chemical recall of drinks in Europe](https://www.yahoo.com/news/coca-cola-issues-recall-drinks-233852369.html)
 - Jan 28 - [Pro-Musk Scott Jennings Is Dared to Repeat ‘Nazi Salute’ During On-Air Brawl](https://www.yahoo.com/news/pro-musk-scott-jennings-dared-112518995.html)
-- Jan 28 - [‘My father was the Tattooist of Auschwitz – it took me five attempts to visit his prison home’](https://www.yahoo.com/news/father-tattooist-auschwitz-took-five-070000361.html)
-- Jan 28 - [The Most Active Volcano in The Northeast Pacific Is Preparing to Erupt](https://www.yahoo.com/news/most-active-volcano-northeast-pacific-063006621.html)
-- Jan 28 - [NATO is deploying eyes in the sky and on the Baltic Sea to protect vital cables. Here's why and how](https://www.yahoo.com/news/nato-deploying-eyes-sky-baltic-050639979.html)
+- Jan 28 - [Mississippi deer hunting: Hunter in MS takes huge 10-point buck](https://sports.yahoo.com/mississippi-deer-hunting-hunter-ms-103334629.html)
+- Jan 28 - [Honda's all-electric SUV is rapidly outselling other models — here's why drivers are scrambling to buy this 'surprise hit'](https://autos.yahoo.com/hondas-electric-suv-rapidly-outselling-103033086.html)
+- Jan 28 - [Dubai billionaire Habtoor pulls out of Lebanon amid fear of Shi'ite influence](https://www.yahoo.com/news/dubai-billionaire-habtoor-pulls-lebanon-085111632.html)
 <!-- feed end -->
 
 ### Onstream
