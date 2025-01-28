@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Dominican hospitals face surge of Haitian mothers fleeing conflict](https://www.yahoo.com/news/dominican-hospitals-face-surge-haitian-174838395.html)
+- Jan 28 - [Caroline Kennedy Slams RFK Jr. as ‘Predator’ in Bid to Derail HHS Job](https://www.yahoo.com/news/caroline-kennedy-slams-rfk-jr-180631354.html)
 - Jan 28 - [AI sell-off underlines need for 'exposure across the value chain'](https://finance.yahoo.com/video/ai-sell-off-underlines-exposure-173000335.html)
+- Jan 28 - [Megabucks ticket sold at Massachusetts liquor store wins $6.13M jackpot](https://www.yahoo.com/news/megabucks-ticket-sold-massachusetts-liquor-172633957.html)
+- Jan 28 - [Helicopters loaded with Gaza aid packages from Jordan land in Israel](https://www.yahoo.com/news/helicopters-loaded-gaza-aid-packages-172122025.html)
 - Jan 28 - [Wisconsin Republicans ask liberal Supreme Court Justice to step aside in union case](https://www.yahoo.com/news/wisconsin-republicans-ask-liberal-supreme-170536007.html)
-- Jan 28 - [Trump freezes federal aid to Americans, triggering fury](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
-- Jan 28 - [Amazon's advocates fear Trump's return means little US help to protect rainforest](https://www.yahoo.com/news/amazons-advocates-fear-trumps-return-164631049.html)
 <!-- feed end -->
 
 ### Onstream
