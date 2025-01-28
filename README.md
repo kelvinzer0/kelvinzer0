@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 28 - [Security from Egyptian-Qatari committee inspect vehicles of people returning to northern Gaza](https://www.yahoo.com/news/security-egyptian-qatari-committee-inspect-161737893.html)
-- Jan 28 - [How men's minds and bodies may change after they become parents](https://www.yahoo.com/news/mens-minds-bodies-may-change-154851786.html)
-- Jan 28 - [Were the rains enough to ease Southern California's fire threat? What we know](https://www.yahoo.com/news/were-rains-enough-ease-southern-154249233.html)
+- Jan 28 - [More frequent marijuana use may damage an important memory skill](https://www.yahoo.com/lifestyle/more-frequent-marijuana-may-damage-160058907.html)
+- Jan 28 - [Boeing reports $11.8-billion annual loss after crisis-ridden year](https://finance.yahoo.com/video/boeing-reports-11-8-billion-151747418.html)
+- Jan 28 - [Passenger plane catches fire at South Korean airport. All 176 people on board are evacuated](https://www.yahoo.com/news/passenger-plane-catches-fire-south-151249107.html)
 - Jan 28 - [Elon Musk clashes with Norway wealth fund CEO; 'friends are as friends do'](https://finance.yahoo.com/news/elon-musk-clashes-norway-wealth-134134064.html)
-- Jan 28 - [Lawsuit says Russian officials stole millions meant to fortify border region attacked by Ukraine](https://www.yahoo.com/news/lawsuit-says-russian-officials-stole-130332622.html)
 <!-- feed end -->
 
 ### Onstream
