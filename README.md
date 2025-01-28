@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Record $4.5 billion EU fine punished its innovation, Google tells EU court](https://finance.yahoo.com/news/record-4-5-billion-eu-091232620.html)
-- Jan 28 - [Rupee logs worst day in nearly 2 weeks as tariff jitters lift dollar](https://finance.yahoo.com/news/rupee-falls-tariff-news-flow-090732667.html)
+- Jan 28 - [Swedish police arrest man trying to force his way into Russian embassy in Stockholm](https://www.yahoo.com/news/swedish-police-arrest-man-trying-075927288.html)
 - Jan 28 - [‘My father was the Tattooist of Auschwitz – it took me five attempts to visit his prison home’](https://www.yahoo.com/news/father-tattooist-auschwitz-took-five-070000361.html)
-- Jan 28 - [The Most Active Volcano in The Northeast Pacific Is Preparing to Erupt](https://www.yahoo.com/news/most-active-volcano-northeast-pacific-063006621.html)
-- Jan 28 - [NATO is deploying eyes in the sky and on the Baltic Sea to protect vital cables. Here's why and how](https://www.yahoo.com/news/nato-deploying-eyes-sky-baltic-050639979.html)
+- Jan 28 - [59-Year-Old Earning $15,000 a Month in Dividends Shares Top 4 Stock Picks – 'Lot of Frugal Living the Last 30 Years'](https://finance.yahoo.com/news/59-old-earning-15-000-000017800.html)
+- Jan 27 - [Trump: DeepSeek's AI should be a 'wakeup call' to US industry](https://finance.yahoo.com/news/trump-deepseeks-ai-wakeup-call-235234051.html)
+- Jan 27 - [Listen to The Eerie 'Sounds' From A Black Hole, Captured by NASA](https://www.yahoo.com/news/listen-eerie-sounds-black-hole-233244132.html)
 <!-- feed end -->
 
 ### Onstream
