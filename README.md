@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Vehicles crowd the road in Gaza as displaced Palestinians return to the north](https://www.yahoo.com/news/vehicles-crowd-road-gaza-displaced-082053510.html)
+- Jan 28 - [Record $4.5 billion EU fine punished its innovation, Google tells EU court](https://finance.yahoo.com/news/record-4-5-billion-eu-091232620.html)
+- Jan 28 - [Rupee logs worst day in nearly 2 weeks as tariff jitters lift dollar](https://finance.yahoo.com/news/rupee-falls-tariff-news-flow-090732667.html)
+- Jan 28 - [‘My father was the Tattooist of Auschwitz – it took me five attempts to visit his prison home’](https://www.yahoo.com/news/father-tattooist-auschwitz-took-five-070000361.html)
 - Jan 28 - [The Most Active Volcano in The Northeast Pacific Is Preparing to Erupt](https://www.yahoo.com/news/most-active-volcano-northeast-pacific-063006621.html)
 - Jan 28 - [NATO is deploying eyes in the sky and on the Baltic Sea to protect vital cables. Here's why and how](https://www.yahoo.com/news/nato-deploying-eyes-sky-baltic-050639979.html)
-- Jan 28 - [Black-owned brands urge US consumers not to boycott Target over end of diversity efforts](https://www.yahoo.com/news/black-owned-brands-urge-us-011034865.html)
-- Jan 27 - [Trump: DeepSeek's AI should be a 'wakeup call' to US industry](https://finance.yahoo.com/news/trump-deepseeks-ai-wakeup-call-235234051.html)
 <!-- feed end -->
 
 ### Onstream
