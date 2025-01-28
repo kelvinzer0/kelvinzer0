@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [Ms. Rachel opens up about her support for Gaza’s children: ‘I couldn’t look away’](https://www.yahoo.com/news/ms-rachel-opens-her-support-000808331.html)
-- Jan 28 - [United flight loses altitude over Africa, forcing emergency landing](https://www.yahoo.com/news/united-flight-loses-altitude-over-000046492.html)
+- Jan 28 - [DA: Man faces 25 years to life in prison for assaulting woman and 3 daughters](https://www.yahoo.com/news/da-man-faces-25-years-020100817.html)
+- Jan 28 - [Man admits why he pushed woman into NYC subway train](https://www.yahoo.com/news/man-admits-why-pushed-woman-000657919.html)
+- Jan 27 - [DeepSeek caused a $600 billion freakout. But China’s AI upstart may not be the danger to Nvidia and U.S. export controls many assume](https://finance.yahoo.com/news/deepseek-caused-600-billion-freakout-230234215.html)
 - Jan 27 - [California utility reports fault on power line miles away from origin of deadly Eaton fire](https://www.yahoo.com/news/california-utility-reports-fault-power-221949342.html)
-- Jan 27 - [Did you feel it? Earthquake centered in Maine rattles communities across Massachusetts](https://www.yahoo.com/news/did-feel-earthquake-centered-maine-162515116.html)
-- Jan 27 - [Why market panic over China's DeepSeek is 'overblown,' analysts say](https://finance.yahoo.com/news/why-market-panic-over-chinas-deepseek-is-overblown-analysts-say-211148821.html)
+- Jan 27 - [DeepSeek sell-off reminds investors of the biggest earnings story holding up the stock market](https://finance.yahoo.com/news/deepseek-sell-off-reminds-investors-of-the-biggest-earnings-story-holding-up-the-stock-market-141101978.html)
 <!-- feed end -->
 
 ### Onstream
