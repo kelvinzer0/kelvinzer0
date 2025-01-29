@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Climate change made LA wildfires 'more likely' according to international study](https://www.yahoo.com/news/climate-change-made-la-wildfires-132740397.html)
+- Jan 29 - [Comcast unveils ultra-low lag Internet connection](https://www.yahoo.com/tech/comcast-unveils-ultra-low-lag-internet-connection-150034901.html)
 - Jan 29 - [FDA recalls blood pressure drug after potentially fatal contamination | Morning in America](https://www.yahoo.com/news/fda-recalls-blood-pressure-drug-131732169.html)
-- Jan 29 - [Argentina’s Energy Export Surge Quells Fears Over Currency Management](https://finance.yahoo.com/news/argentina-energy-export-surge-quells-130000162.html)
+- Jan 29 - [Pilot ejects moments before F-35 jet crashes and bursts into flames](https://www.yahoo.com/news/pilot-ejects-moments-f-35-123658959.html)
 - Jan 29 - [Plane fire ‘caused by passenger’s portable battery’ leaves seven injured](https://www.yahoo.com/news/plane-fire-caused-passenger-portable-115746303.html)
 - Jan 29 - [Trump makes moves to expand his power, sparking chaos and a possible constitutional crisis](https://www.yahoo.com/news/trump-makes-moves-expand-power-110648110.html)
 <!-- feed end -->
