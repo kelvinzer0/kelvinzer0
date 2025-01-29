@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Leader of rebels who toppled Syrian President Bashar Assad is named country's interim president](https://www.yahoo.com/news/leader-rebels-toppled-syrian-president-190002584.html)
-- Jan 29 - [USDA inspector general escorted out of her office after defying White House](https://www.yahoo.com/news/usda-inspector-general-escorted-her-182104535.html)
+- Jan 29 - [Nvidia's CEO lays out his vision of what the next 10 years will look like — and his simple advice to young people](https://finance.yahoo.com/news/nvidias-ceo-lays-vision-next-191447705.html)
+- Jan 29 - [`You're going home,' police tell Ahmaud Arbery's killer in video shown to jury](https://www.yahoo.com/news/youre-going-home-police-tell-184036637.html)
+- Jan 29 - [House Republicans fail to clinch deal on tax cuts, despite Trump's urging](https://www.yahoo.com/news/house-republicans-fail-clinch-deal-174342704.html)
 - Jan 29 - [Senator Rips Into RFK Jr. — And Gets Him To Admit He Spread A Conspiracy Theory](https://www.yahoo.com/news/senator-rips-rfk-jr-gets-173421432.html)
 - Jan 29 - [Trump administration revokes deportation protections for 600,000 Venezuelans](https://www.yahoo.com/news/trump-administration-revokes-deportation-protections-170122949.html)
-- Jan 29 - [F-16s Have Been Using Laser-Guided Rockets To Shoot Down Houthi Drones](https://www.yahoo.com/news/f-16s-using-laser-guided-163431577.html)
 <!-- feed end -->
 
 ### Onstream
