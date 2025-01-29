@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [Levi's 2025 profit forecast underwhelms after quarterly revenue beat; shares fall](https://finance.yahoo.com/news/levi-strauss-beats-quarterly-revenue-211433961.html)
 - Jan 29 - [Nvidia's CEO lays out his vision of what the next 10 years will look like — and his simple advice to young people](https://finance.yahoo.com/news/nvidias-ceo-lays-vision-next-191447705.html)
 - Jan 29 - [`You're going home,' police tell Ahmaud Arbery's killer in video shown to jury](https://www.yahoo.com/news/youre-going-home-police-tell-184036637.html)
-- Jan 29 - [House Republicans fail to clinch deal on tax cuts, despite Trump's urging](https://www.yahoo.com/news/house-republicans-fail-clinch-deal-174342704.html)
-- Jan 29 - [Senator Rips Into RFK Jr. — And Gets Him To Admit He Spread A Conspiracy Theory](https://www.yahoo.com/news/senator-rips-rfk-jr-gets-173421432.html)
-- Jan 29 - [Trump administration revokes deportation protections for 600,000 Venezuelans](https://www.yahoo.com/news/trump-administration-revokes-deportation-protections-170122949.html)
+- Jan 29 - [Nvidia stock crash saw retail investors dump more than $900 million into the name](https://finance.yahoo.com/news/nvidia-stock-crash-saw-retail-investors-dump-more-than-900-million-into-the-name-174826054.html)
+- Jan 29 - [DeSantis signals he will veto immigration bill passed by Florida GOP lawmakers](https://www.yahoo.com/news/desantis-signals-veto-immigration-bill-174343846.html)
 <!-- feed end -->
 
 ### Onstream
