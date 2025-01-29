@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Merck & Co., Inc. (MRK): Is This Healthcare Stock A Good Buy?](https://finance.yahoo.com/news/merck-co-inc-mrk-healthcare-115857095.html)
-- Jan 29 - [Walmart broccoli recall elevated to highest level by FDA over risk of ‘death’](https://www.yahoo.com/lifestyle/broccoli-sold-walmart-stores-20-221353062.html)
+- Jan 29 - [Apple Downgraded by Oppenheimer as iPhone Sales Slow, China Market Shrinks](https://finance.yahoo.com/news/apple-downgraded-oppenheimer-iphone-sales-130450480.html)
+- Jan 29 - [Spirit Airlines rejects Frontier's bid, expects to exit bankruptcy in first quarter](https://finance.yahoo.com/news/spirit-airlines-rejects-frontiers-bid-124455839.html)
+- Jan 29 - [Vanguard just issued a warning for future retirees — here’s why ‘retirement is changing’ and how to prepare](https://finance.yahoo.com/news/vanguard-just-issued-warning-future-112200374.html)
 - Jan 29 - [White House Press Secretary’s ‘Unconstitutional’ Claim Is Quickly Dismantled By Critics](https://www.yahoo.com/news/white-house-press-secretary-unconstitutional-093022982.html)
-- Jan 29 - [Elon Musk gave the cold shoulder to Norway’s $1.4 trillion sovereign wealth CEO Nicolai Tangen after the fund snubbed the Tesla CEO’s pay package—twice](https://finance.yahoo.com/news/elon-musk-gave-cold-shoulder-031400327.html)
-- Jan 29 - [Cal Poly computer science student dies as tragedy hits sorority again](https://www.yahoo.com/news/cal-poly-computer-science-student-015838654.html)
+- Jan 29 - [Israeli father says even in Hamas captivity, his daughter heard his pleas to come home alive](https://www.yahoo.com/news/israeli-father-says-even-hamas-052644033.html)
 <!-- feed end -->
 
 ### Onstream
