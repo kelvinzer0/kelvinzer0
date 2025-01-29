@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [First Chick-fil-A planned in Alachua County outside of Gainesville. Here's what we know](https://www.yahoo.com/news/first-chick-fil-planned-alachua-175839969.html)
+- Jan 29 - [Leader of rebels who toppled Syrian President Bashar Assad is named country's interim president](https://www.yahoo.com/news/leader-rebels-toppled-syrian-president-190002584.html)
+- Jan 29 - [USDA inspector general escorted out of her office after defying White House](https://www.yahoo.com/news/usda-inspector-general-escorted-her-182104535.html)
 - Jan 29 - [Senator Rips Into RFK Jr. — And Gets Him To Admit He Spread A Conspiracy Theory](https://www.yahoo.com/news/senator-rips-rfk-jr-gets-173421432.html)
 - Jan 29 - [Trump administration revokes deportation protections for 600,000 Venezuelans](https://www.yahoo.com/news/trump-administration-revokes-deportation-protections-170122949.html)
-- Jan 29 - [Fight breaks out at township meeting south of Chicago](https://www.yahoo.com/news/fight-breaks-township-meeting-south-162718323.html)
-- Jan 29 - [4-year-old girl dead, mom hospitalized after being struck by car while walking in New England town](https://www.yahoo.com/news/officials-id-4-old-girl-141743858.html)
+- Jan 29 - [F-16s Have Been Using Laser-Guided Rockets To Shoot Down Houthi Drones](https://www.yahoo.com/news/f-16s-using-laser-guided-163431577.html)
 <!-- feed end -->
 
 ### Onstream
