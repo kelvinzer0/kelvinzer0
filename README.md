@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Israeli father says even in Hamas captivity, his daughter heard his pleas to come home alive](https://www.yahoo.com/news/israeli-father-says-even-hamas-052644033.html)
-- Jan 29 - [‘I’m worried about him’: Undocumented father of 4 removed from Elgin home during raid targeting different man](https://www.yahoo.com/news/m-worried-him-undocumented-father-014607749.html)
-- Jan 29 - [Trump offers federal workers exit package as funding freeze sows chaos](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
-- Jan 29 - [Pilot safe after F-35 military jet suffers 'significant damage' in accident at Alaska base](https://www.yahoo.com/news/pilot-safe-f-35-military-005222069.html)
-- Jan 29 - [Do Ukrainians want a ceasefire almost 3 years into its war with Russia?](https://www.yahoo.com/news/ukrainians-want-ceasefire-almost-3-004707132.html)
+- Jan 29 - [Microsoft probes if DeepSeek-linked group got OpenAI data: report](https://finance.yahoo.com/video/microsoft-probes-deepseek-linked-group-103749320.html)
+- Jan 29 - [Lay’s Classic potato chips recall elevated to highest FDA level over ‘deadly’ ingredient](https://www.yahoo.com/news/lay-classic-potato-chips-recalled-152448296.html)
+- Jan 29 - [This 116-year-old Wisconsin Rapids church will be demolished in February. Here's why.](https://www.yahoo.com/news/116-old-wisconsin-rapids-church-100234199.html)
+- Jan 29 - [White House Press Secretary’s ‘Unconstitutional’ Claim Is Quickly Dismantled By Critics](https://www.yahoo.com/news/white-house-press-secretary-unconstitutional-093022982.html)
+- Jan 29 - [South Korean airliner destroyed by blaze before flight](https://www.yahoo.com/news/south-korean-airliner-destroyed-blaze-091335940.html)
 <!-- feed end -->
 
 ### Onstream
