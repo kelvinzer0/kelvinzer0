@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Air Force Materiel Command exec relieved after investigation finds ‘inappropriate’ relationships](https://www.yahoo.com/news/air-force-materiel-command-exec-010033234.html)
+- Jan 29 - [Stephen Miller Stuns Jake Tapper in Trainwreck CNN Interview](https://www.yahoo.com/news/stephen-miller-stuns-jake-tapper-012441250.html)
 - Jan 29 - [Do Ukrainians want a ceasefire almost 3 years into its war with Russia?](https://www.yahoo.com/news/ukrainians-want-ceasefire-almost-3-004707132.html)
-- Jan 28 - [Trump offers all federal workers a buyout with 7 months' pay in effort to shrink size of government](https://www.yahoo.com/news/trump-offers-federal-workers-buyout-225932178.html)
-- Jan 28 - [Nvidia sell-off, markets under Trump, coffee: Market Takeaways](https://finance.yahoo.com/video/nvidia-sell-off-markets-under-223046085.html)
-- Jan 28 - [Astronaut Whose Return to Earth Keeps Getting Delayed Says She's Been 'Trying to Remember What It’s Like to Walk'](https://www.yahoo.com/entertainment/astronaut-whose-return-earth-keeps-222819687.html)
+- Jan 29 - [Ex-detective in Kansas left suicide letters before his body was found ahead of trial](https://www.yahoo.com/news/ex-detective-kansas-left-suicide-000235186.html)
+- Jan 28 - [Trump offering federal workers buyouts with about 8 months' pay in effort to shrink government](https://www.yahoo.com/news/trump-offers-federal-workers-buyout-225932178.html)
+- Jan 28 - [New snowfall map: Widespread snow on tap for Mass. Here’s how much to expect and when](https://www.yahoo.com/news/snowfall-map-widespread-snow-tap-134149319.html)
 <!-- feed end -->
 
 ### Onstream
