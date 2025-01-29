@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [New snowfall map: Widespread snow on tap for Mass. Here’s how much to expect and when](https://www.yahoo.com/news/snowfall-map-widespread-snow-tap-134149319.html)
+- Jan 29 - ['No disruption anticipated' during aviation strike](https://www.yahoo.com/news/no-disruption-anticipated-during-aviation-060241536.html)
+- Jan 29 - ['Difficult decision' to apply to close GP branch](https://www.yahoo.com/news/difficult-decision-apply-close-gp-055959116.html)
+- Jan 29 - [Turkey Detains Journalists as Opposition Crackdown Intensifies](https://www.yahoo.com/news/turkey-detains-journalists-opposition-crackdown-052201366.html)
 - Jan 29 - [Stephen Miller Stuns Jake Tapper in Trainwreck CNN Interview](https://www.yahoo.com/news/stephen-miller-stuns-jake-tapper-012441250.html)
 - Jan 29 - [Pilot safe after F-35 military jet suffers 'significant damage' in accident at Alaska base](https://www.yahoo.com/news/pilot-safe-f-35-military-005222069.html)
-- Jan 29 - [Do Ukrainians want a ceasefire almost 3 years into its war with Russia?](https://www.yahoo.com/news/ukrainians-want-ceasefire-almost-3-004707132.html)
-- Jan 28 - [Trump offering federal workers buyouts with about 8 months' pay in effort to shrink government](https://www.yahoo.com/news/trump-offers-federal-workers-buyout-225932178.html)
 <!-- feed end -->
 
 ### Onstream
