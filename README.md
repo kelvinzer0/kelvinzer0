@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [NHTSA opens a safety probe affecting nearly 900K GM vehicles](https://www.yahoo.com/lifestyle/nhtsa-opens-safety-probe-affecting-055103467.html)
+- Jan 29 - [Dead bodies on the streets and hospitals overwhelmed as rebels battle government in DR Congo city of Goma](https://www.yahoo.com/news/dead-bodies-streets-hospitals-overwhelmed-124130581.html)
 - Jan 29 - [Israeli father says even in Hamas captivity, his daughter heard his pleas to come home alive](https://www.yahoo.com/news/israeli-father-says-even-hamas-052644033.html)
-- Jan 29 - [Lay’s Classic potato chips recall elevated to highest FDA level over ‘deadly’ ingredient](https://www.yahoo.com/news/lay-classic-potato-chips-recalled-152448296.html)
+- Jan 29 - [Elon Musk gave the cold shoulder to Norway’s $1.4 trillion sovereign wealth CEO Nicolai Tangen after the fund snubbed the Tesla CEO’s pay package—twice](https://finance.yahoo.com/news/elon-musk-gave-cold-shoulder-031400327.html)
 - Jan 29 - [‘I’m worried about him’: Undocumented father of 4 removed from Elgin home during raid targeting different man](https://www.yahoo.com/news/m-worried-him-undocumented-father-014607749.html)
-- Jan 29 - [Stephen Miller Stuns Jake Tapper in Trainwreck CNN Interview](https://www.yahoo.com/news/stephen-miller-stuns-jake-tapper-012441250.html)
+- Jan 29 - [Trump offers federal workers exit package as funding freeze sows chaos](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
 <!-- feed end -->
 
 ### Onstream
