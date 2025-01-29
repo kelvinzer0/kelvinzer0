@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Australian teacher captured by Russian forces in Ukraine war is alive, foreign minister confirms](https://www.yahoo.com/news/australian-teacher-captured-russian-forces-083440053.html)
-- Jan 29 - [Multiple people killed in crowd crush at world’s largest religious festival](https://www.yahoo.com/news/several-injured-crowd-crush-india-001920029.html)
-- Jan 29 - [Gold holds steady as investors eye Fed decision, Trump tariff moves](https://finance.yahoo.com/news/gold-holds-steady-investors-eye-034719313.html)
-- Jan 29 - [Elon Musk gave the cold shoulder to Norway’s $1.4 trillion sovereign wealth CEO Nicolai Tangen after the fund snubbed the Tesla CEO’s pay package—twice](https://finance.yahoo.com/news/elon-musk-gave-cold-shoulder-031400327.html)
+- Jan 29 - [Israeli father says even in Hamas captivity, his daughter heard his pleas to come home alive](https://www.yahoo.com/news/israeli-father-says-even-hamas-052644033.html)
+- Jan 29 - [‘I’m worried about him’: Undocumented father of 4 removed from Elgin home during raid targeting different man](https://www.yahoo.com/news/m-worried-him-undocumented-father-014607749.html)
 - Jan 29 - [Trump offers federal workers exit package as funding freeze sows chaos](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
+- Jan 29 - [Pilot safe after F-35 military jet suffers 'significant damage' in accident at Alaska base](https://www.yahoo.com/news/pilot-safe-f-35-military-005222069.html)
+- Jan 29 - [Do Ukrainians want a ceasefire almost 3 years into its war with Russia?](https://www.yahoo.com/news/ukrainians-want-ceasefire-almost-3-004707132.html)
 <!-- feed end -->
 
 ### Onstream
