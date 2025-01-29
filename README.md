@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [A Not-So-Magnificent Day for These 7 Stocks](https://www.barrons.com/livecoverage/stock-market-today-012925/card/a-not-so-magnificent-day-for-these-7-stocks-GW5aSYKo5zxF6ogd7aTB?siteid=yhoof2&yptr=yahoo)
+- Jan 29 - [Trump administration revokes deportation protections for 600,000 Venezuelans](https://www.yahoo.com/news/trump-administration-revokes-deportation-protections-170122949.html)
 - Jan 29 - [Fight breaks out at township meeting south of Chicago](https://www.yahoo.com/news/fight-breaks-township-meeting-south-162718323.html)
 - Jan 29 - [4-year-old girl dead, mom hospitalized after being struck by car while walking in New England town](https://www.yahoo.com/news/officials-id-4-old-girl-141743858.html)
-- Jan 29 - [If You Invested $10,000 In Exxon Mobil Stock 10 Years Ago, How Much Would You Have Now?](https://finance.yahoo.com/news/invested-10-000-exxon-mobil-154512257.html)
-- Jan 29 - [What federal workers should know about Trump administration’s ‘deferred resignation’ offer](https://www.yahoo.com/news/federal-workers-know-trump-administration-142156317.html)
-- Jan 29 - [Fleet of abandoned ships keeps growing, leaving more sailors stuck at sea](https://www.yahoo.com/news/fleet-abandoned-ships-keeps-growing-140018501.html)
+- Jan 29 - ['Remarkably poor judgment': Wall Street Journal takes a critical eye to start of Trump's 2nd term](https://www.yahoo.com/news/remarkably-poor-judgment-wall-street-154527278.html)
 <!-- feed end -->
 
 ### Onstream
