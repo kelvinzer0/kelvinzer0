@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Microsoft probes if DeepSeek-linked group got OpenAI data: report](https://finance.yahoo.com/video/microsoft-probes-deepseek-linked-group-103749320.html)
-- Jan 29 - [Lay’s Classic potato chips recall elevated to highest FDA level over ‘deadly’ ingredient](https://www.yahoo.com/news/lay-classic-potato-chips-recalled-152448296.html)
-- Jan 29 - [This 116-year-old Wisconsin Rapids church will be demolished in February. Here's why.](https://www.yahoo.com/news/116-old-wisconsin-rapids-church-100234199.html)
+- Jan 29 - [Merck & Co., Inc. (MRK): Is This Healthcare Stock A Good Buy?](https://finance.yahoo.com/news/merck-co-inc-mrk-healthcare-115857095.html)
+- Jan 29 - [Walmart broccoli recall elevated to highest level by FDA over risk of ‘death’](https://www.yahoo.com/lifestyle/broccoli-sold-walmart-stores-20-221353062.html)
 - Jan 29 - [White House Press Secretary’s ‘Unconstitutional’ Claim Is Quickly Dismantled By Critics](https://www.yahoo.com/news/white-house-press-secretary-unconstitutional-093022982.html)
-- Jan 29 - [South Korean airliner destroyed by blaze before flight](https://www.yahoo.com/news/south-korean-airliner-destroyed-blaze-091335940.html)
+- Jan 29 - [Elon Musk gave the cold shoulder to Norway’s $1.4 trillion sovereign wealth CEO Nicolai Tangen after the fund snubbed the Tesla CEO’s pay package—twice](https://finance.yahoo.com/news/elon-musk-gave-cold-shoulder-031400327.html)
+- Jan 29 - [Cal Poly computer science student dies as tragedy hits sorority again](https://www.yahoo.com/news/cal-poly-computer-science-student-015838654.html)
 <!-- feed end -->
 
 ### Onstream
