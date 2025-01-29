@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Apple Downgraded by Oppenheimer as iPhone Sales Slow, China Market Shrinks](https://finance.yahoo.com/news/apple-downgraded-oppenheimer-iphone-sales-130450480.html)
-- Jan 29 - [Spirit Airlines rejects Frontier's bid, expects to exit bankruptcy in first quarter](https://finance.yahoo.com/news/spirit-airlines-rejects-frontiers-bid-124455839.html)
-- Jan 29 - [Vanguard just issued a warning for future retirees — here’s why ‘retirement is changing’ and how to prepare](https://finance.yahoo.com/news/vanguard-just-issued-warning-future-112200374.html)
-- Jan 29 - [White House Press Secretary’s ‘Unconstitutional’ Claim Is Quickly Dismantled By Critics](https://www.yahoo.com/news/white-house-press-secretary-unconstitutional-093022982.html)
-- Jan 29 - [Israeli father says even in Hamas captivity, his daughter heard his pleas to come home alive](https://www.yahoo.com/news/israeli-father-says-even-hamas-052644033.html)
+- Jan 29 - [Climate change made LA wildfires 'more likely' according to international study](https://www.yahoo.com/news/climate-change-made-la-wildfires-132740397.html)
+- Jan 29 - [FDA recalls blood pressure drug after potentially fatal contamination | Morning in America](https://www.yahoo.com/news/fda-recalls-blood-pressure-drug-131732169.html)
+- Jan 29 - [Argentina’s Energy Export Surge Quells Fears Over Currency Management](https://finance.yahoo.com/news/argentina-energy-export-surge-quells-130000162.html)
+- Jan 29 - [Plane fire ‘caused by passenger’s portable battery’ leaves seven injured](https://www.yahoo.com/news/plane-fire-caused-passenger-portable-115746303.html)
+- Jan 29 - [Trump makes moves to expand his power, sparking chaos and a possible constitutional crisis](https://www.yahoo.com/news/trump-makes-moves-expand-power-110648110.html)
 <!-- feed end -->
 
 ### Onstream
