@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [Air Force Materiel Command exec relieved after investigation finds ‘inappropriate’ relationships](https://www.yahoo.com/news/air-force-materiel-command-exec-010033234.html)
+- Jan 29 - [Do Ukrainians want a ceasefire almost 3 years into its war with Russia?](https://www.yahoo.com/news/ukrainians-want-ceasefire-almost-3-004707132.html)
+- Jan 28 - [Trump offers all federal workers a buyout with 7 months' pay in effort to shrink size of government](https://www.yahoo.com/news/trump-offers-federal-workers-buyout-225932178.html)
 - Jan 28 - [Nvidia sell-off, markets under Trump, coffee: Market Takeaways](https://finance.yahoo.com/video/nvidia-sell-off-markets-under-223046085.html)
 - Jan 28 - [Astronaut Whose Return to Earth Keeps Getting Delayed Says She's Been 'Trying to Remember What It’s Like to Walk'](https://www.yahoo.com/entertainment/astronaut-whose-return-earth-keeps-222819687.html)
-- Jan 28 - [ICE Releases Video Showing Arrests Made in Chicago](https://www.yahoo.com/news/ice-releases-video-showing-arrests-213351282.html)
-- Jan 28 - [Trump federal spending freeze sparks confusion, fury](https://www.yahoo.com/news/trump-freezes-federal-aid-americans-164919757.html)
-- Jan 28 - [Savannah Chrisley Doesn't Know Where Dad Todd Will Go Once Prison Facility Closes Down: 'It Breaks My Heart'](https://www.yahoo.com/entertainment/savannah-chrisley-doesnt-know-where-195318917.html)
 <!-- feed end -->
 
 ### Onstream
