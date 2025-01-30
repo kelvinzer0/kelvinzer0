@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Family reels after 2-year-old left on bus for hours outside Aumsville child care center](https://www.yahoo.com/news/family-reels-2-old-left-005251879.html)
+- Jan 29 - [Olympian Gabby Thomas says a group of men have been following her at airports](https://www.yahoo.com/news/olympian-gabby-thomas-says-group-231504288.html)
+- Jan 29 - ['Cincinnati, I'm coming home!': Fox 19 hires new meteorologist](https://www.yahoo.com/news/cincinnati-im-coming-home-fox-214939390.html)
 - Jan 29 - [Former Obama administration adviser flew to Britain to rape nine-year-old girl](https://www.yahoo.com/news/former-obama-administration-policy-adviser-213623947.html)
-- Jan 29 - [Nvidia's CEO lays out his vision of what the next 10 years will look like — and his simple advice to young people](https://finance.yahoo.com/news/nvidias-ceo-lays-vision-next-191447705.html)
-- Jan 29 - [Nvidia stock crash saw retail investors dump more than $900 million into the name](https://finance.yahoo.com/news/nvidia-stock-crash-saw-retail-investors-dump-more-than-900-million-into-the-name-174826054.html)
-- Jan 29 - [DeSantis signals he will veto immigration bill passed by Florida GOP lawmakers](https://www.yahoo.com/news/desantis-signals-veto-immigration-bill-174343846.html)
-- Jan 29 - [House Republicans fail to clinch deal on tax cuts, despite Trump's urging](https://www.yahoo.com/news/house-republicans-fail-clinch-deal-174342704.html)
+- Jan 29 - [I Just Got Trump’s “Buyout” Offer at My Job. Let Me Tell You How That’s Going.](https://www.yahoo.com/news/just-got-trump-buyout-offer-212718713.html)
 <!-- feed end -->
 
 ### Onstream
