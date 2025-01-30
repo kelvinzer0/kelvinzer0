@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Family reels after 2-year-old left on bus for hours outside Aumsville child care center](https://www.yahoo.com/news/family-reels-2-old-left-005251879.html)
+- Jan 30 - [Ukraine Discloses New Method To Defeat Russian Fiber-Optic-Controlled FPV Drones](https://www.yahoo.com/news/ukraine-discloses-method-defeat-russian-004208782.html)
+- Jan 30 - [Central Ohio car dealerships accused of withholding vehicle titles, altering odometers](https://www.yahoo.com/news/central-ohio-car-dealerships-accused-003824556.html)
+- Jan 29 - [Destroyer Has Become First U.S. Navy Ship To Deploy Artificial Intelligence System](https://www.yahoo.com/news/destroyer-become-first-u-navy-235417302.html)
 - Jan 29 - [Olympian Gabby Thomas says a group of men have been following her at airports](https://www.yahoo.com/news/olympian-gabby-thomas-says-group-231504288.html)
-- Jan 29 - ['Cincinnati, I'm coming home!': Fox 19 hires new meteorologist](https://www.yahoo.com/news/cincinnati-im-coming-home-fox-214939390.html)
-- Jan 29 - [Former Obama administration adviser flew to Britain to rape nine-year-old girl](https://www.yahoo.com/news/former-obama-administration-policy-adviser-213623947.html)
-- Jan 29 - [I Just Got Trump’s “Buyout” Offer at My Job. Let Me Tell You How That’s Going.](https://www.yahoo.com/news/just-got-trump-buyout-offer-212718713.html)
+- Jan 29 - [Man who killed five people after a neighbor complained about his gunfire gets life in prison](https://www.yahoo.com/news/man-killed-five-people-neighbor-223632284.html)
 <!-- feed end -->
 
 ### Onstream
