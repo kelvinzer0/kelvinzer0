@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Israeli PM slams 'shocking scenes' at hostage release](https://www.yahoo.com/news/israeli-pm-slams-shocking-scenes-122357328.html)
-- Jan 30 - [Helicopter pilot may have avoided wrong airplane: Retired pilot | Morning in America](https://www.yahoo.com/news/helicopter-pilot-may-avoided-wrong-120432926.html)
-- Jan 30 - [Justice Jackson punches out her frustrations with the conservative Supreme Court in the boxing ring](https://www.yahoo.com/news/justice-jackson-punches-her-frustrations-114831576.html)
 - Jan 30 - [Washington plane crash: The footage that shows what went wrong](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
+- Jan 30 - [Israeli PM slams 'shocking scenes' at hostage release](https://www.yahoo.com/news/israeli-pm-slams-shocking-scenes-122357328.html)
+- Jan 30 - [What does it take to retire with a comfy $10,000/month in America? It's probably less than you think](https://finance.yahoo.com/news/does-retire-comfy-10-000-111200347.html)
 - Jan 30 - ["AI nurses" as "good as any doctor": RFK Jr. confirms he wants to take away people's health care](https://www.yahoo.com/news/ai-nurses-good-doctor-rfk-110006607.html)
+- Jan 30 - [Gisèle Pelicot's ex-husband, imprisoned for raping and drugging her, now caught up in other cases](https://www.yahoo.com/news/gis-le-pelicots-ex-husband-105601278.html)
 <!-- feed end -->
 
 ### Onstream
