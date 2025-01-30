@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Families in India cremate loved ones killed in stampede at religious festival](https://www.yahoo.com/news/families-india-cremate-loved-ones-121611648.html)
-- Jan 30 - [What does it take to retire with a comfy $10,000/month in America? It's probably less than you think](https://finance.yahoo.com/news/does-retire-comfy-10-000-111200347.html)
+- Jan 30 - [BBC apologises to staff over handling of Russell Brand complaints](https://www.yahoo.com/news/bbc-apologises-staff-over-handling-123038569.html)
+- Jan 30 - [Helicopter pilot may have avoided wrong airplane: Retired pilot | Morning in America](https://www.yahoo.com/news/helicopter-pilot-may-avoided-wrong-120432926.html)
+- Jan 30 - [Washington plane crash: The footage that shows what went wrong](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
+- Jan 30 - [‘I did something wrong’: Chicago man arrested by ICE asks forgiveness, victim’s mother supports possible deportation](https://www.yahoo.com/news/did-something-wrong-chicago-man-110000031.html)
 - Jan 30 - [Philippine president offers a deal to China: Stop sea aggression and I'll return missiles to US](https://www.yahoo.com/news/philippine-president-offers-deal-china-103530798.html)
-- Jan 30 - [An Iraqi man who carried out several Quran burnings in Sweden has been killed](https://www.yahoo.com/news/iraqi-man-carried-several-quran-082736570.html)
-- Jan 30 - [Russian skating couple, world champions in 1990s, were in crashed US airliner](https://www.yahoo.com/news/renowned-russian-figure-skating-couple-075843057.html)
 <!-- feed end -->
 
 ### Onstream
