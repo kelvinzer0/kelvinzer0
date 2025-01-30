@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Families in India cremate loved ones killed in stampede at religious festival](https://www.yahoo.com/news/families-india-cremate-loved-ones-121611648.html)
+- Jan 30 - [What does it take to retire with a comfy $10,000/month in America? It's probably less than you think](https://finance.yahoo.com/news/does-retire-comfy-10-000-111200347.html)
+- Jan 30 - [Philippine president offers a deal to China: Stop sea aggression and I'll return missiles to US](https://www.yahoo.com/news/philippine-president-offers-deal-china-103530798.html)
 - Jan 30 - [An Iraqi man who carried out several Quran burnings in Sweden has been killed](https://www.yahoo.com/news/iraqi-man-carried-several-quran-082736570.html)
-- Jan 30 - [Russian skating couple, world champions in 1990s, were on crashed US plane](https://www.yahoo.com/news/renowned-russian-figure-skating-couple-075843057.html)
-- Jan 30 - [Woman on Ill-Fated Flight Texted Husband Minutes Before Mid-Air Collision](https://www.yahoo.com/news/woman-ill-fated-flight-texted-061831398.html)
-- Jan 30 - [Air Traffic Controller Asked Blackhawk Helicopter If It Had American Airlines Jet 'in Sight' 30 Seconds Before Crash: Report](https://www.yahoo.com/entertainment/air-traffic-controller-asked-blackhawk-052323133.html)
-- Jan 30 - [Toyota sells 10.8 million vehicles in 2024 to remain world's top-selling automaker](https://finance.yahoo.com/news/toyota-sells-10-8-million-043644931.html)
+- Jan 30 - [Russian skating couple, world champions in 1990s, were in crashed US airliner](https://www.yahoo.com/news/renowned-russian-figure-skating-couple-075843057.html)
 <!-- feed end -->
 
 ### Onstream
