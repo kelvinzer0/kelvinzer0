@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Mass Retirement? SpaceX Spotted Deorbiting Dozens of Starlink Satellites](https://www.yahoo.com/tech/mass-retirement-spacex-spotted-deorbiting-173600751.html)
 - Jan 30 - [State of emergency declared in Dover due to potential cybersecurity threat](https://www.yahoo.com/news/state-emergency-declared-dover-due-154540580.html)
-- Jan 30 - [A pilot’s view on why helicopter did not avoid passenger jet in Washington crash](https://www.yahoo.com/news/pilot-view-why-helicopter-did-153659445.html)
+- Jan 30 - [60-Year-Old Retiree Earning $6,000 Per Month in Dividends Reveals Stock Portfolio – 'I Read and Research Daily'](https://finance.yahoo.com/news/60-old-retiree-earning-6-150026097.html)
+- Jan 30 - [Nelly to open ‘Dirty Bowling,’ reviving historic Florissant bowling alley](https://www.yahoo.com/news/nelly-open-dirty-bowling-reviving-145212229.html)
 - Jan 30 - [Vance suggests some reporters covering the Trump White House are biased](https://www.yahoo.com/news/vance-suggests-reporters-covering-trump-144116362.html)
-- Jan 30 - [Netanyahu Criticizes 'Shocking' Hostage Scenes, Delays Release of Palestinian Prisoners](https://www.yahoo.com/news/netanyahu-criticizes-shocking-hostage-scenes-142837748.html)
-- Jan 30 - [‘Devastating’: Footage shows what went wrong in Washington plane crash that left no survivors](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
 <!-- feed end -->
 
 ### Onstream
