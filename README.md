@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Attorney for Eric Adams has contacted DOJ officials about dropping the case against him](https://www.yahoo.com/news/attorney-eric-adams-contacted-doj-025119874.html)
-- Jan 30 - [Nashville Predators hold moment of silence for victims of Antioch High School shooting](https://www.yahoo.com/news/nashville-predators-hold-moment-silence-023820982.html)
-- Jan 30 - [Ukraine Discloses New Method To Defeat Russian Fiber-Optic-Controlled FPV Drones](https://www.yahoo.com/news/ukraine-discloses-method-defeat-russian-004208782.html)
-- Jan 30 - [Central Ohio car dealerships accused of withholding vehicle titles, altering odometers](https://www.yahoo.com/news/central-ohio-car-dealerships-accused-003824556.html)
-- Jan 29 - [Destroyer Has Become First U.S. Navy Ship To Deploy Artificial Intelligence System](https://www.yahoo.com/news/destroyer-become-first-u-navy-235417302.html)
+- Jan 30 - [American Airlines flight collides with helicopter in midair during approach to Reagan National, FAA says](https://finance.yahoo.com/news/american-airlines-flight-collides-with-helicopter-in-midair-during-approach-to-reagan-national-faa-says-032858129.html)
+- Jan 30 - [American Airlines Plane Carrying 64 People Crashes Midair with Army Black Hawk Helicopter Over Washington, D.C.](https://www.yahoo.com/entertainment/american-airlines-plane-crashes-midair-032706725.html)
+- Jan 30 - [Breaking: Aircraft down in Potomac River near Reagan National Airport](https://www.yahoo.com/news/breaking-aircraft-down-potomac-river-024053907.html)
+- Jan 30 - [American Airlines jet collides with helicopter near Washington's Reagan Airport](https://www.yahoo.com/news/takeoffs-landings-halted-ronald-reagan-022931307.html)
+- Jan 30 - [Larry Ellison, Oracle Co-Founder And One Of Richest Men In The World, Saw His Net Worth Dip $22.6 Billion In One Day Due To DeepSeek Selloff](https://finance.yahoo.com/news/larry-ellison-oracle-co-founder-013235399.html)
 <!-- feed end -->
 
 ### Onstream
