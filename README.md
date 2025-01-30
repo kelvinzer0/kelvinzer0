@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Lawmakers urge Trump to consider new curbs on Nvidia chips used by China's Deepseek](https://www.yahoo.com/tech/lawmakers-urge-trump-consider-curbs-203329691.html)
+- Jan 30 - [Nvidia retail investors told us why they're unfazed by DeepSeek's market disruption and refusing to sell](https://finance.yahoo.com/news/nvidia-retail-investors-told-us-180002450.html)
+- Jan 30 - [Dana White: UFC 'beyond disgusted' by Bryce Mitchell's pro-Hitler rant – but no punishment](https://www.yahoo.com/news/dana-white-ufc-beyond-disgusted-211535220.html)
+- Jan 30 - [RFK Jr. stunned after emotionally-charged testimony from senator over discredited autism claims](https://www.yahoo.com/news/rfk-jr-stunned-emotionally-charged-204048734.html)
 - Jan 30 - [US ban on gun sales to adults under age 21 is unconstitutional, court rules](https://www.yahoo.com/news/us-ban-gun-sales-adults-202913380.html)
 - Jan 30 - [Trump was challenged after blaming DEI for the DC plane crash. Here's what he said](https://www.yahoo.com/news/trump-challenged-blaming-dei-dc-200820669.html)
-- Jan 30 - [Elon Musk takes the return to office to new extremes—he claims he’s turned DOGE’s D.C. headquarters into his bedroom](https://finance.yahoo.com/news/elon-musk-takes-return-office-171517940.html)
-- Jan 30 - [Man Shares Wife’s Heartbreaking Text Sent Right Before American Airlines Plane Crashed](https://www.yahoo.com/entertainment/man-shares-wife-heartbreaking-text-170000629.html)
 <!-- feed end -->
 
 ### Onstream
