@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Little Rock police arrest suspect in deadly Park Plaza Mall shooting](https://www.yahoo.com/news/little-rock-police-arrest-suspect-050327243.html)
-- Jan 30 - [18 Bodies Removed from the Potomac River After American Airlines Flight Crash in Washington, D.C.: Report](https://www.yahoo.com/entertainment/four-people-removed-potomac-river-043438313.html)
-- Jan 30 - [Larry Ellison, Oracle Co-Founder And One Of Richest Men In The World, Saw His Net Worth Dip $22.6 Billion In One Day Due To DeepSeek Selloff](https://finance.yahoo.com/news/larry-ellison-oracle-co-founder-013235399.html)
+- Jan 30 - [Woman on Ill-Fated Flight Texted Husband Minutes Before Mid-Air Collision](https://www.yahoo.com/news/woman-ill-fated-flight-texted-061831398.html)
+- Jan 30 - [Air Traffic Controller Asked Blackhawk Helicopter If It Had American Airlines Jet 'in Sight' 30 Seconds Before Crash: Report](https://www.yahoo.com/entertainment/air-traffic-controller-asked-blackhawk-052323133.html)
+- Jan 30 - [Toyota sells 10.8 million vehicles in 2024 to remain world's top-selling automaker](https://finance.yahoo.com/news/toyota-sells-10-8-million-043644931.html)
 - Jan 30 - [Ukraine Discloses New Method To Defeat Russian Fiber-Optic-Controlled FPV Drones](https://www.yahoo.com/news/ukraine-discloses-method-defeat-russian-004208782.html)
 - Jan 30 - [Central Ohio car dealerships accused of withholding vehicle titles, altering odometers](https://www.yahoo.com/news/central-ohio-car-dealerships-accused-003824556.html)
 <!-- feed end -->
