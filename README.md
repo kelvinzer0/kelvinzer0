@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Mass Retirement? SpaceX Spotted Deorbiting Dozens of Starlink Satellites](https://www.yahoo.com/tech/mass-retirement-spacex-spotted-deorbiting-173600751.html)
-- Jan 30 - [State of emergency declared in Dover due to potential cybersecurity threat](https://www.yahoo.com/news/state-emergency-declared-dover-due-154540580.html)
-- Jan 30 - [60-Year-Old Retiree Earning $6,000 Per Month in Dividends Reveals Stock Portfolio – 'I Read and Research Daily'](https://finance.yahoo.com/news/60-old-retiree-earning-6-150026097.html)
-- Jan 30 - [Nelly to open ‘Dirty Bowling,’ reviving historic Florissant bowling alley](https://www.yahoo.com/news/nelly-open-dirty-bowling-reviving-145212229.html)
+- Jan 30 - [14 key things parents should know about RSV in 2025: Symptoms, treatment & prevention](https://www.yahoo.com/lifestyle/14-key-things-parents-know-182105248.html)
 - Jan 30 - [Vance suggests some reporters covering the Trump White House are biased](https://www.yahoo.com/news/vance-suggests-reporters-covering-trump-144116362.html)
+- Jan 30 - [‘Devastating’: Footage shows what went wrong in Washington plane crash that left no survivors](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
+- Jan 30 - [Is a fully paid-off home in retirement really worth it? Not for all US retirees — here’s why](https://finance.yahoo.com/news/fully-paid-off-home-retirement-140500478.html)
+- Jan 30 - [Israeli PM slams 'shocking scenes' at hostage release](https://www.yahoo.com/news/israeli-pm-slams-shocking-scenes-122357328.html)
 <!-- feed end -->
 
 ### Onstream
