@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [What To Eat And Drink Immediately After A Workout](https://www.yahoo.com/lifestyle/eat-drink-immediately-workout-080004243.html)
+- Jan 30 - [Labour’s border bill to 'block migrants from claiming slavery protections’](https://www.yahoo.com/news/labour-border-bill-block-migrants-091033156.html)
+- Jan 30 - [An Iraqi man who carried out several Quran burnings in Sweden has been killed](https://www.yahoo.com/news/iraqi-man-carried-several-quran-082736570.html)
+- Jan 30 - [Air traffic controller audio captures moments before and after Washington plane crash](https://www.yahoo.com/news/air-traffic-controller-audio-captures-081507871.html)
+- Jan 30 - [Russian skating couple, world champions in 1990s, were on crashed US plane, TASS reports](https://www.yahoo.com/news/renowned-russian-figure-skating-couple-075843057.html)
 - Jan 30 - [Woman on Ill-Fated Flight Texted Husband Minutes Before Mid-Air Collision](https://www.yahoo.com/news/woman-ill-fated-flight-texted-061831398.html)
-- Jan 30 - [Air Traffic Controller Asked Blackhawk Helicopter If It Had American Airlines Jet 'in Sight' 30 Seconds Before Crash: Report](https://www.yahoo.com/entertainment/air-traffic-controller-asked-blackhawk-052323133.html)
-- Jan 30 - [Law enforcement says American Airlines plane broke in two pieces](https://www.yahoo.com/news/law-enforcement-says-american-airlines-050036824.html)
-- Jan 30 - [Toyota sells 10.8 million vehicles in 2024 to remain world's top-selling automaker](https://finance.yahoo.com/news/toyota-sells-10-8-million-043644931.html)
 <!-- feed end -->
 
 ### Onstream
