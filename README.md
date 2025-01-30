@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [BBC apologises to staff over handling of Russell Brand complaints](https://www.yahoo.com/news/bbc-apologises-staff-over-handling-123038569.html)
+- Jan 30 - [Israeli PM slams 'shocking scenes' at hostage release](https://www.yahoo.com/news/israeli-pm-slams-shocking-scenes-122357328.html)
 - Jan 30 - [Helicopter pilot may have avoided wrong airplane: Retired pilot | Morning in America](https://www.yahoo.com/news/helicopter-pilot-may-avoided-wrong-120432926.html)
+- Jan 30 - [Justice Jackson punches out her frustrations with the conservative Supreme Court in the boxing ring](https://www.yahoo.com/news/justice-jackson-punches-her-frustrations-114831576.html)
 - Jan 30 - [Washington plane crash: The footage that shows what went wrong](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
-- Jan 30 - [‘I did something wrong’: Chicago man arrested by ICE asks forgiveness, victim’s mother supports possible deportation](https://www.yahoo.com/news/did-something-wrong-chicago-man-110000031.html)
-- Jan 30 - [Philippine president offers a deal to China: Stop sea aggression and I'll return missiles to US](https://www.yahoo.com/news/philippine-president-offers-deal-china-103530798.html)
+- Jan 30 - ["AI nurses" as "good as any doctor": RFK Jr. confirms he wants to take away people's health care](https://www.yahoo.com/news/ai-nurses-good-doctor-rfk-110006607.html)
 <!-- feed end -->
 
 ### Onstream
