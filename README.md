@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Woman Whose Flight Was About to Take Off for D.C. Describes 'Heartbreaking' Moment They Found Out About the Crash (Exclusive)](https://www.yahoo.com/entertainment/woman-whose-flight-off-d-193808195.html)
-- Jan 30 - [Pilot Killed in D.C. Crash Was Set to Get Married: ‘Prime of His Life’](https://www.yahoo.com/news/pilot-killed-d-c-crash-184602182.html)
+- Jan 30 - [Lawmakers urge Trump to consider new curbs on Nvidia chips used by China's Deepseek](https://www.yahoo.com/tech/lawmakers-urge-trump-consider-curbs-203329691.html)
+- Jan 30 - [US ban on gun sales to adults under age 21 is unconstitutional, court rules](https://www.yahoo.com/news/us-ban-gun-sales-adults-202913380.html)
+- Jan 30 - [Trump was challenged after blaming DEI for the DC plane crash. Here's what he said](https://www.yahoo.com/news/trump-challenged-blaming-dei-dc-200820669.html)
+- Jan 30 - [Elon Musk takes the return to office to new extremes—he claims he’s turned DOGE’s D.C. headquarters into his bedroom](https://finance.yahoo.com/news/elon-musk-takes-return-office-171517940.html)
 - Jan 30 - [Man Shares Wife’s Heartbreaking Text Sent Right Before American Airlines Plane Crashed](https://www.yahoo.com/entertainment/man-shares-wife-heartbreaking-text-170000629.html)
-- Jan 30 - [FAA Got Rid of Its Leader Before D.C. Plane Crash—Thanks to Elon Musk](https://www.yahoo.com/news/faa-got-rid-leader-d-165311806.html)
-- Jan 30 - [60-Year-Old Retiree Earning $6,000 Per Month in Dividends Reveals Stock Portfolio – 'I Read and Research Daily'](https://finance.yahoo.com/news/60-old-retiree-earning-6-150026097.html)
 <!-- feed end -->
 
 ### Onstream
