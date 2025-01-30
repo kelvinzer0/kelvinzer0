@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [State of emergency declared in Dover due to potential cybersecurity threat](https://www.yahoo.com/news/state-emergency-declared-dover-due-154540580.html)
+- Jan 30 - [A pilot’s view on why helicopter did not avoid passenger jet in Washington crash](https://www.yahoo.com/news/pilot-view-why-helicopter-did-153659445.html)
 - Jan 30 - [Vance suggests some reporters covering the Trump White House are biased](https://www.yahoo.com/news/vance-suggests-reporters-covering-trump-144116362.html)
-- Jan 30 - [Washington plane crash: The footage that shows what went wrong](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
-- Jan 30 - [Gear Up for Advanced Micro (AMD) Q4 Earnings: Wall Street Estimates for Key Metrics](https://finance.yahoo.com/news/gear-advanced-micro-amd-q4-141504408.html)
-- Jan 30 - [Israeli PM slams 'shocking scenes' at hostage release](https://www.yahoo.com/news/israeli-pm-slams-shocking-scenes-122357328.html)
-- Jan 30 - [Mortgage and refinance rates today, January 30, 2025: Rates fall after the Fed meeting](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-january-30-2025-110040605.html)
+- Jan 30 - [Netanyahu Criticizes 'Shocking' Hostage Scenes, Delays Release of Palestinian Prisoners](https://www.yahoo.com/news/netanyahu-criticizes-shocking-hostage-scenes-142837748.html)
+- Jan 30 - [‘Devastating’: Footage shows what went wrong in Washington plane crash that left no survivors](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
 <!-- feed end -->
 
 ### Onstream
