@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Little Rock police arrest suspect in deadly Park Plaza Mall shooting](https://www.yahoo.com/news/little-rock-police-arrest-suspect-050327243.html)
 - Jan 30 - [18 Bodies Removed from the Potomac River After American Airlines Flight Crash in Washington, D.C.: Report](https://www.yahoo.com/entertainment/four-people-removed-potomac-river-043438313.html)
-- Jan 30 - [American Airlines jet, Army helicopter collide, crash into Washington's Potomac River](https://www.yahoo.com/news/takeoffs-landings-halted-ronald-reagan-022931307.html)
 - Jan 30 - [Larry Ellison, Oracle Co-Founder And One Of Richest Men In The World, Saw His Net Worth Dip $22.6 Billion In One Day Due To DeepSeek Selloff](https://finance.yahoo.com/news/larry-ellison-oracle-co-founder-013235399.html)
 - Jan 30 - [Ukraine Discloses New Method To Defeat Russian Fiber-Optic-Controlled FPV Drones](https://www.yahoo.com/news/ukraine-discloses-method-defeat-russian-004208782.html)
 - Jan 30 - [Central Ohio car dealerships accused of withholding vehicle titles, altering odometers](https://www.yahoo.com/news/central-ohio-car-dealerships-accused-003824556.html)
