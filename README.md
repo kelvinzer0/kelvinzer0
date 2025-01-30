@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [14 key things parents should know about RSV in 2025: Symptoms, treatment & prevention](https://www.yahoo.com/lifestyle/14-key-things-parents-know-182105248.html)
-- Jan 30 - [Vance suggests some reporters covering the Trump White House are biased](https://www.yahoo.com/news/vance-suggests-reporters-covering-trump-144116362.html)
-- Jan 30 - [‘Devastating’: Footage shows what went wrong in Washington plane crash that left no survivors](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
-- Jan 30 - [Is a fully paid-off home in retirement really worth it? Not for all US retirees — here’s why](https://finance.yahoo.com/news/fully-paid-off-home-retirement-140500478.html)
-- Jan 30 - [Israeli PM slams 'shocking scenes' at hostage release](https://www.yahoo.com/news/israeli-pm-slams-shocking-scenes-122357328.html)
+- Jan 30 - [Woman Whose Flight Was About to Take Off for D.C. Describes 'Heartbreaking' Moment They Found Out About the Crash (Exclusive)](https://www.yahoo.com/entertainment/woman-whose-flight-off-d-193808195.html)
+- Jan 30 - [Pilot Killed in D.C. Crash Was Set to Get Married: ‘Prime of His Life’](https://www.yahoo.com/news/pilot-killed-d-c-crash-184602182.html)
+- Jan 30 - [Man Shares Wife’s Heartbreaking Text Sent Right Before American Airlines Plane Crashed](https://www.yahoo.com/entertainment/man-shares-wife-heartbreaking-text-170000629.html)
+- Jan 30 - [FAA Got Rid of Its Leader Before D.C. Plane Crash—Thanks to Elon Musk](https://www.yahoo.com/news/faa-got-rid-leader-d-165311806.html)
+- Jan 30 - [60-Year-Old Retiree Earning $6,000 Per Month in Dividends Reveals Stock Portfolio – 'I Read and Research Daily'](https://finance.yahoo.com/news/60-old-retiree-earning-6-150026097.html)
 <!-- feed end -->
 
 ### Onstream
