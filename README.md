@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Vance suggests some reporters covering the Trump White House are biased](https://www.yahoo.com/news/vance-suggests-reporters-covering-trump-144116362.html)
 - Jan 30 - [Washington plane crash: The footage that shows what went wrong](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
+- Jan 30 - [Gear Up for Advanced Micro (AMD) Q4 Earnings: Wall Street Estimates for Key Metrics](https://finance.yahoo.com/news/gear-advanced-micro-amd-q4-141504408.html)
 - Jan 30 - [Israeli PM slams 'shocking scenes' at hostage release](https://www.yahoo.com/news/israeli-pm-slams-shocking-scenes-122357328.html)
-- Jan 30 - [What does it take to retire with a comfy $10,000/month in America? It's probably less than you think](https://finance.yahoo.com/news/does-retire-comfy-10-000-111200347.html)
-- Jan 30 - ["AI nurses" as "good as any doctor": RFK Jr. confirms he wants to take away people's health care](https://www.yahoo.com/news/ai-nurses-good-doctor-rfk-110006607.html)
-- Jan 30 - [Gisèle Pelicot's ex-husband, imprisoned for raping and drugging her, now caught up in other cases](https://www.yahoo.com/news/gis-le-pelicots-ex-husband-105601278.html)
+- Jan 30 - [Mortgage and refinance rates today, January 30, 2025: Rates fall after the Fed meeting](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-january-30-2025-110040605.html)
 <!-- feed end -->
 
 ### Onstream
