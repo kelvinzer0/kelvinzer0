@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Attorney for Eric Adams has contacted DOJ officials about dropping the case against him](https://www.yahoo.com/news/attorney-eric-adams-contacted-doj-025119874.html)
+- Jan 30 - [Nashville Predators hold moment of silence for victims of Antioch High School shooting](https://www.yahoo.com/news/nashville-predators-hold-moment-silence-023820982.html)
 - Jan 30 - [Ukraine Discloses New Method To Defeat Russian Fiber-Optic-Controlled FPV Drones](https://www.yahoo.com/news/ukraine-discloses-method-defeat-russian-004208782.html)
 - Jan 30 - [Central Ohio car dealerships accused of withholding vehicle titles, altering odometers](https://www.yahoo.com/news/central-ohio-car-dealerships-accused-003824556.html)
 - Jan 29 - [Destroyer Has Become First U.S. Navy Ship To Deploy Artificial Intelligence System](https://www.yahoo.com/news/destroyer-become-first-u-navy-235417302.html)
-- Jan 29 - [Olympian Gabby Thomas says a group of men have been following her at airports](https://www.yahoo.com/news/olympian-gabby-thomas-says-group-231504288.html)
-- Jan 29 - [Man who killed five people after a neighbor complained about his gunfire gets life in prison](https://www.yahoo.com/news/man-killed-five-people-neighbor-223632284.html)
 <!-- feed end -->
 
 ### Onstream
