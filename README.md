@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Federal prosecutors say there is no evidence Shohei Ohtani's ex-interpreter, Ippei Mizuhara, has gambling addiction](https://sports.yahoo.com/federal-prosecutors-say-there-is-no-evidence-shohei-ohtanis-ex-interpreter-ippei-mizuhara-has-gambling-addiction-152222004.html)
-- Jan 31 - [Someone Asked Mark Cuban About Cancer Research Being Canceled; His Surprising Answer: 'Trump Is Doing What You Do After Acquiring A Company'](https://finance.yahoo.com/news/someone-asked-mark-cuban-cancer-151519899.html)
+- Jan 31 - [Retired, or nearing retirement? The DeepSeek scare should be a wake-up call.](https://finance.yahoo.com/news/retired-nearing-retirement-deepseek-scare-185000241.html)
 - Jan 31 - [RFK Jr. Pops a Very Suspicious Pouch as He Rants About Making America Healthy Again](https://www.yahoo.com/news/rfk-jr-pops-very-suspicious-151142679.html)
+- Jan 31 - [Why this 50-year-old restaurant chain has a stock that's smoking Nvidia's](https://finance.yahoo.com/news/why-this-50-year-old-restaurant-chain-has-a-stock-thats-smoking-nvidias-141949435.html)
 - Jan 31 - [Colombia's president calls for migrants to leave jobs in the US and return home](https://www.yahoo.com/news/colombias-president-calls-migrants-leave-134422557.html)
 - Jan 31 - [American Airlines Crash: U.S. Skater Shared Chilling Photo From Plane](https://www.yahoo.com/news/american-airlines-crash-u-skater-133514059.html)
 <!-- feed end -->
