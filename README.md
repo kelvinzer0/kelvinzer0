@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [Gwinnett County Schools superintendent dismissed by school board](https://www.yahoo.com/news/gwinnett-county-schools-superintendent-dismissed-163528211.html)
+- Jan 31 - [Trump Broke the Federal Email System and Government Employees Got Blasted With Astonishingly Vulgar Messages](https://www.yahoo.com/news/trump-broke-federal-email-system-163327905.html)
+- Jan 31 - [Federal prosecutors say there is no evidence Shohei Ohtani's ex-interpreter, Ippei Mizuhara, has gambling addiction](https://sports.yahoo.com/federal-prosecutors-say-there-is-no-evidence-shohei-ohtanis-ex-interpreter-ippei-mizuhara-has-gambling-addiction-152222004.html)
 - Jan 31 - [RFK Jr. Pops a Very Suspicious Pouch as He Rants About Making America Healthy Again](https://www.yahoo.com/news/rfk-jr-pops-very-suspicious-151142679.html)
 - Jan 31 - [Why this 50-year-old restaurant chain has a stock that's smoking Nvidia's](https://finance.yahoo.com/news/why-this-50-year-old-restaurant-chain-has-a-stock-thats-smoking-nvidias-141949435.html)
-- Jan 31 - [Colombia's president calls for migrants to leave jobs in the US and return home](https://www.yahoo.com/news/colombias-president-calls-migrants-leave-134422557.html)
-- Jan 31 - [American Airlines Crash: U.S. Skater Shared Chilling Photo From Plane](https://www.yahoo.com/news/american-airlines-crash-u-skater-133514059.html)
-- Jan 31 - [I'm an American spending my retirement living in dozens of countries. There's one thing I wish I'd known before I started.](https://www.yahoo.com/lifestyle/im-american-spending-retirement-living-123401662.html)
 <!-- feed end -->
 
 ### Onstream
