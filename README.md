@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Trump says tariffs on Canada and Mexico coming Saturday, and he's deciding whether to tax their oil](https://www.yahoo.com/news/trump-says-tariffs-canada-mexico-213111750.html)
-- Jan 30 - [RFK Jr. stunned after emotionally-charged testimony from senator over discredited autism claims](https://www.yahoo.com/news/rfk-jr-stunned-emotionally-charged-204048734.html)
-- Jan 30 - [US ban on gun sales to adults under age 21 is unconstitutional, court rules](https://www.yahoo.com/news/us-ban-gun-sales-adults-202913380.html)
-- Jan 30 - [PBS, NPR Say They Comply With U.S. Regulations After Trump-Appointed FCC Chairman Warns They May Be ‘Violating Federal Law’ by Airing Ads](https://www.yahoo.com/news/pbs-npr-comply-u-regulations-202802382.html)
-- Jan 30 - [RFK Jr. and Bernie Sanders Get Into Screaming Match Over Big Pharma](https://www.yahoo.com/news/rfk-jr-bernie-sanders-screaming-202247762.html)
+- Jan 31 - [11 years after a celebrated opening, massive solar plant faces a bleak future in the Mojave Desert](https://www.yahoo.com/news/11-years-celebrated-opening-massive-000749414.html)
+- Jan 30 - [Intel won't bring its Falcon Shores AI chip to market](https://finance.yahoo.com/news/intel-wont-bring-falcon-shores-224648300.html)
+- Jan 30 - [E-citations to begin in Lubbock, here's what that is and what to expect](https://www.yahoo.com/news/e-citations-begin-lubbock-heres-223144276.html)
+- Jan 30 - [For first time in 92 years, Walgreens suspends quarterly dividend amid financial struggles](https://finance.yahoo.com/news/first-time-92-years-walgreens-222500325.html)
+- Jan 30 - [Air Force deportation flight skirts Mexican airspace to Guatemala as military's border role grows](https://www.yahoo.com/news/air-force-deportation-flight-skirts-221316783.html)
 <!-- feed end -->
 
 ### Onstream
