@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Rolling Stones 'scrap plans' for 2025 tour in UK and Europe despite weeks of rumours](https://www.yahoo.com/news/rolling-stones-scrap-plans-2025-115923531.html)
-- Jan 31 - [I tried hypnotherapy to cure my anxiety and noticed results after just one session](https://www.yahoo.com/news/tried-hypnotherapy-cure-anxiety-noticed-115523955.html)
-- Jan 31 - [Putin approves sale of Goldman Sachs' Russian unit to Armenian fund](https://finance.yahoo.com/news/putin-decree-permits-sale-goldman-112747213.html)
-- Jan 31 - [A groom-to-be pilot, daughter of Indian immigrants and figure skating champions are among DC air collision victims](https://www.yahoo.com/news/groom-pilot-daughter-indian-immigrants-050604433.html)
-- Jan 31 - [Traders offer March-delivery Russian oil to India at narrower discounts, sources say](https://finance.yahoo.com/news/traders-offer-march-delivery-russian-111121403.html)
+- Jan 31 - [Make iOS 18.3 Your Own by Changing These 8 iPhone Settings Now](https://www.yahoo.com/tech/ios-18-3-own-changing-111803007.html)
+- Jan 31 - [This 14.5%-Yielding Dividend Stock Has Maintained Its Payment for 58 Months in a Row. Can That Streak Continue in 2025?](https://finance.yahoo.com/news/14-5-yielding-dividend-stock-082500151.html)
+- Jan 31 - [Ex-Prosecutor Thinks Trump Is Accidentally Creating The Very Thing He Fears](https://www.yahoo.com/news/ex-prosecutor-thinks-trump-accidentally-074429109.html)
+- Jan 31 - [Costco to raise hourly pay for most US store workers to over $30](https://finance.yahoo.com/news/costco-raise-hourly-pay-most-005921636.html)
+- Jan 31 - [Haliey ‘Hawk Tuah’ Welch Goes Silent After Meme Coin Crashes—What’s She Hiding?](https://www.yahoo.com/entertainment/haliey-hawk-tuah-welch-goes-005008516.html)
 <!-- feed end -->
 
 ### Onstream
