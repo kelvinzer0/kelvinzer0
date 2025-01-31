@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Exclusive-Musk aides lock government workers out of computer systems at US agency, sources say](https://www.yahoo.com/news/exclusive-musk-aides-lock-government-200344003.html)
-- Jan 31 - [Berkshire Hathaway has shed more than 4,000 jobs](https://finance.yahoo.com/news/berkshire-hathaway-shed-more-4-192519491.html)
-- Jan 31 - [Intel gets $536 million in interest from 1.06 billion euro EU antitrust fine](https://finance.yahoo.com/news/intel-gets-536-million-interest-173905431.html)
+- Jan 31 - [Driver charged in fiery highway bridge crash in Connecticut dies of cancer](https://www.yahoo.com/news/driver-charged-fiery-highway-bridge-181105044.html)
+- Jan 31 - [77-Year-Old Dividend Investor Earning $270,000 a Year Shares Top 6 Stock Picks – 'I Now Sleep Much Better at Night'](https://finance.yahoo.com/news/77-old-dividend-investor-earning-170158239.html)
 - Jan 31 - [Massachusetts high school closed amid investigation into threat made against student](https://www.yahoo.com/news/massachusetts-high-school-closed-amid-164255198.html)
+- Jan 31 - [Federal prosecutors say there is no evidence Shohei Ohtani's ex-interpreter, Ippei Mizuhara, has gambling addiction](https://sports.yahoo.com/federal-prosecutors-say-there-is-no-evidence-shohei-ohtanis-ex-interpreter-ippei-mizuhara-has-gambling-addiction-152222004.html)
 - Jan 31 - [RFK Jr. Pops a Very Suspicious Pouch as He Rants About Making America Healthy Again](https://www.yahoo.com/news/rfk-jr-pops-very-suspicious-151142679.html)
 <!-- feed end -->
 
