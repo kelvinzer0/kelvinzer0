@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [U.S. Stocks Aren't Great Anymore — And Trump's Term Just Started](https://www.investors.com/etfs-and-funds/sectors/sp500-us-stocks-arent-great-anymore-and-trumps-term-just-started/?src=A00220&yptr=yahoo)
+- Jan 31 - [Why this 50-year old restaurant chain has a stock that's smoking Nvidia's](https://finance.yahoo.com/news/why-this-50-year-old-restaurant-chain-has-a-stock-thats-smoking-nvidias-141949435.html)
+- Jan 31 - [Colombia's president calls for migrants to leave jobs in the US and return home](https://www.yahoo.com/news/colombias-president-calls-migrants-leave-134422557.html)
+- Jan 31 - [February Temperature Outlook Trends Warmer In South, East, But There's A Catch](https://www.yahoo.com/news/february-temperature-outlook-trends-warmer-120000668.html)
 - Jan 31 - [Researchers make unexpected discovery after studying world's largest no-fishing zone: 'Just outside the boundaries'](https://www.yahoo.com/news/researchers-unexpected-discovery-studying-worlds-101559957.html)
-- Jan 31 - [Jacksonville businessman and millionaire indicted, accused of evading nearly $2M in taxes](https://www.yahoo.com/news/jacksonville-businessman-millionaire-indicted-accused-043405567.html)
-- Jan 31 - [A look back at the ‘blizzard’ of 1982 in St. Louis](https://www.yahoo.com/news/look-back-blizzard-1982-st-040420571.html)
-- Jan 31 - [Costco to raise hourly pay for most US store workers to over $30](https://finance.yahoo.com/news/costco-raise-hourly-pay-most-005921636.html)
+- Jan 31 - [XRP Jumps 50% in January as Ripple Secures Key Licenses and Institutional Adoption Grows](https://finance.yahoo.com/news/xrp-jumps-50-january-ripple-080207993.html)
 <!-- feed end -->
 
 ### Onstream
