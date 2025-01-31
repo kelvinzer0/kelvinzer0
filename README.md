@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [Is Chevron Corporation (CVX) a Cheap Quarterly Dividend Stock to Invest In?](https://finance.yahoo.com/news/chevron-corporation-cvx-cheap-quarterly-090236760.html)
+- Jan 31 - [A groom-to-be pilot, daughter of Indian immigrants and figure skating champions are among DC air collision victims](https://www.yahoo.com/news/groom-pilot-daughter-indian-immigrants-050604433.html)
+- Jan 31 - [Costco to raise hourly pay for most US store workers to over $30](https://finance.yahoo.com/news/costco-raise-hourly-pay-most-005921636.html)
 - Jan 31 - [11 years after a celebrated opening, massive solar plant faces a bleak future in the Mojave Desert](https://www.yahoo.com/news/11-years-celebrated-opening-massive-000749414.html)
-- Jan 30 - [E-citations to begin in Lubbock, here's what that is and what to expect](https://www.yahoo.com/news/e-citations-begin-lubbock-heres-223144276.html)
-- Jan 30 - [For first time in 92 years, Walgreens suspends quarterly dividend amid financial struggles](https://finance.yahoo.com/news/first-time-92-years-walgreens-222500325.html)
-- Jan 30 - [Air Force deportation flight skirts Mexican airspace to Guatemala as military's border role grows](https://www.yahoo.com/news/air-force-deportation-flight-skirts-221316783.html)
-- Jan 30 - [‘Devastating’: Footage shows what went wrong in Washington plane crash that left no survivors](https://www.yahoo.com/news/washington-plane-crash-footage-shows-112212860.html)
+- Jan 30 - [Intel won't bring its Falcon Shores AI chip to market](https://finance.yahoo.com/news/intel-wont-bring-falcon-shores-224648300.html)
 <!-- feed end -->
 
 ### Onstream
