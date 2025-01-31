@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 31 - [Costco to raise hourly pay for most US store workers to over $30](https://finance.yahoo.com/news/costco-raise-hourly-pay-most-005921636.html)
+- Jan 31 - [Emily Willis Left Permanently Disabled After Cardiac Arrest at Rehab Center](https://www.yahoo.com/entertainment/emily-willis-left-permanently-disabled-003227060.html)
 - Jan 31 - [11 years after a celebrated opening, massive solar plant faces a bleak future in the Mojave Desert](https://www.yahoo.com/news/11-years-celebrated-opening-massive-000749414.html)
 - Jan 30 - [Intel won't bring its Falcon Shores AI chip to market](https://finance.yahoo.com/news/intel-wont-bring-falcon-shores-224648300.html)
 - Jan 30 - [For first time in 92 years, Walgreens suspends quarterly dividend amid financial struggles](https://finance.yahoo.com/news/first-time-92-years-walgreens-222500325.html)
-- Jan 30 - [Air Force deportation flight skirts Mexican airspace to Guatemala as military's border role grows](https://www.yahoo.com/news/air-force-deportation-flight-skirts-221316783.html)
 <!-- feed end -->
 
 ### Onstream
