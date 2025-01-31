@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - ['You want me to go swimming?': Trump won't visit Washington DC plane crash site because it's 'the water'](https://www.yahoo.com/news/want-swimming-trump-says-wont-010003077.html)
-- Jan 31 - [Haliey ‘Hawk Tuah’ Welch Goes Silent After Meme Coin Crashes—What’s She Hiding?](https://www.yahoo.com/entertainment/haliey-hawk-tuah-welch-goes-005008516.html)
-- Jan 31 - [When RFK Jr. was presented with the science on vaccines he said needed to see, he dismissed it](https://www.yahoo.com/news/rfk-jr-presented-science-vaccines-003219171.html)
-- Jan 31 - [11 years after a celebrated opening, massive solar plant faces a bleak future in the Mojave Desert](https://www.yahoo.com/news/11-years-celebrated-opening-massive-000749414.html)
-- Jan 30 - [Intel won't bring its Falcon Shores AI chip to market](https://finance.yahoo.com/news/intel-wont-bring-falcon-shores-224648300.html)
+- Jan 31 - [Rolling Stones 'scrap plans' for 2025 tour in UK and Europe despite weeks of rumours](https://www.yahoo.com/news/rolling-stones-scrap-plans-2025-115923531.html)
+- Jan 31 - [I tried hypnotherapy to cure my anxiety and noticed results after just one session](https://www.yahoo.com/news/tried-hypnotherapy-cure-anxiety-noticed-115523955.html)
+- Jan 31 - [Putin approves sale of Goldman Sachs' Russian unit to Armenian fund](https://finance.yahoo.com/news/putin-decree-permits-sale-goldman-112747213.html)
+- Jan 31 - [A groom-to-be pilot, daughter of Indian immigrants and figure skating champions are among DC air collision victims](https://www.yahoo.com/news/groom-pilot-daughter-indian-immigrants-050604433.html)
+- Jan 31 - [Traders offer March-delivery Russian oil to India at narrower discounts, sources say](https://finance.yahoo.com/news/traders-offer-march-delivery-russian-111121403.html)
 <!-- feed end -->
 
 ### Onstream
