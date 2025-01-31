@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Gwinnett County Schools superintendent dismissed by school board](https://www.yahoo.com/news/gwinnett-county-schools-superintendent-dismissed-163528211.html)
-- Jan 31 - [Trump Broke the Federal Email System and Government Employees Got Blasted With Astonishingly Vulgar Messages](https://www.yahoo.com/news/trump-broke-federal-email-system-163327905.html)
+- Jan 31 - [The millionaire boomer next door: How 4 older Americans retired comfortably — and why some wish they worked less](https://finance.yahoo.com/news/millionaire-boomer-next-door-4-170502772.html)
+- Jan 31 - [Massachusetts high school closed amid investigation into threat made against student](https://www.yahoo.com/news/massachusetts-high-school-closed-amid-164255198.html)
 - Jan 31 - [Federal prosecutors say there is no evidence Shohei Ohtani's ex-interpreter, Ippei Mizuhara, has gambling addiction](https://sports.yahoo.com/federal-prosecutors-say-there-is-no-evidence-shohei-ohtanis-ex-interpreter-ippei-mizuhara-has-gambling-addiction-152222004.html)
 - Jan 31 - [RFK Jr. Pops a Very Suspicious Pouch as He Rants About Making America Healthy Again](https://www.yahoo.com/news/rfk-jr-pops-very-suspicious-151142679.html)
-- Jan 31 - [Why this 50-year-old restaurant chain has a stock that's smoking Nvidia's](https://finance.yahoo.com/news/why-this-50-year-old-restaurant-chain-has-a-stock-thats-smoking-nvidias-141949435.html)
+- Jan 31 - [Snowmobilers who tormented fox in Heidelberg Twp. have been charged: Lebanon County DA](https://www.yahoo.com/news/snowmobilers-tormented-fox-heidelberg-twp-144434540.html)
 <!-- feed end -->
 
 ### Onstream
