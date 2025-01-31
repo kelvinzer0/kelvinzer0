@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Make iOS 18.3 Your Own by Changing These 8 iPhone Settings Now](https://www.yahoo.com/tech/ios-18-3-own-changing-111803007.html)
-- Jan 31 - [This 14.5%-Yielding Dividend Stock Has Maintained Its Payment for 58 Months in a Row. Can That Streak Continue in 2025?](https://finance.yahoo.com/news/14-5-yielding-dividend-stock-082500151.html)
-- Jan 31 - [Ex-Prosecutor Thinks Trump Is Accidentally Creating The Very Thing He Fears](https://www.yahoo.com/news/ex-prosecutor-thinks-trump-accidentally-074429109.html)
+- Jan 31 - [U.S. Stocks Aren't Great Anymore — And Trump's Term Just Started](https://www.investors.com/etfs-and-funds/sectors/sp500-us-stocks-arent-great-anymore-and-trumps-term-just-started/?src=A00220&yptr=yahoo)
+- Jan 31 - [Researchers make unexpected discovery after studying world's largest no-fishing zone: 'Just outside the boundaries'](https://www.yahoo.com/news/researchers-unexpected-discovery-studying-worlds-101559957.html)
+- Jan 31 - [Jacksonville businessman and millionaire indicted, accused of evading nearly $2M in taxes](https://www.yahoo.com/news/jacksonville-businessman-millionaire-indicted-accused-043405567.html)
+- Jan 31 - [A look back at the ‘blizzard’ of 1982 in St. Louis](https://www.yahoo.com/news/look-back-blizzard-1982-st-040420571.html)
 - Jan 31 - [Costco to raise hourly pay for most US store workers to over $30](https://finance.yahoo.com/news/costco-raise-hourly-pay-most-005921636.html)
-- Jan 31 - [Haliey ‘Hawk Tuah’ Welch Goes Silent After Meme Coin Crashes—What’s She Hiding?](https://www.yahoo.com/entertainment/haliey-hawk-tuah-welch-goes-005008516.html)
 <!-- feed end -->
 
 ### Onstream
