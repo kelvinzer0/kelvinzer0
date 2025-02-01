@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Pro-RFK Jr. letter to the Senate includes names of doctors whose licenses were revoked or suspended](https://www.yahoo.com/news/pro-rfk-jr-letter-senate-050331777.html)
 - Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
-- Feb 01 - [Police: Woman found badly burned in St. Paul was kidnapped, forced to perform sex acts](https://www.yahoo.com/news/police-woman-found-badly-burned-000102824.html)
+- Feb 01 - [Jim Nantz's bid holds up and he now owns the 2012 GMC Yukon XL of the world's No. 1 player](https://sports.yahoo.com/jim-nantzs-bid-holds-now-000227539.html)
+- Jan 31 - [More Than Half of People with Diabetes Are Deficient in This Vitamin, New Study Suggests](https://www.yahoo.com/lifestyle/more-half-people-diabetes-deficient-214047953.html)
 - Jan 31 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-205907305.html)
-- Jan 31 - [Identity thief whose deception led to his victim’s incarceration gets a 12-year prison term](https://www.yahoo.com/news/identity-thief-whose-deception-led-205215355.html)
-- Jan 31 - [Ex-Federal Reserve adviser Rogers arrested for passing trade secrets to China](https://www.yahoo.com/news/former-federal-adviser-arrested-passing-204357630.html)
 <!-- feed end -->
 
 ### Onstream
