@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Hamas hands over two Israeli hostages in southern Gaza](https://www.yahoo.com/news/hamas-hands-over-two-israeli-075830562.html)
 - Feb 01 - [Pro-RFK Jr. letter to the Senate includes names of doctors whose licenses were revoked or suspended](https://www.yahoo.com/news/pro-rfk-jr-letter-senate-050331777.html)
 - Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
-- Feb 01 - [Jim Nantz's bid holds up and he now owns the 2012 GMC Yukon XL of the world's No. 1 player](https://sports.yahoo.com/jim-nantzs-bid-holds-now-000227539.html)
-- Jan 31 - [More Than Half of People with Diabetes Are Deficient in This Vitamin, New Study Suggests](https://www.yahoo.com/lifestyle/more-half-people-diabetes-deficient-214047953.html)
-- Jan 31 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-205907305.html)
+- Feb 01 - [Exposed: Trump’s hidden revenge tour seeps out on Fridays as FBI pushes back](https://www.yahoo.com/news/exposed-trump-hidden-revenge-tour-000222064.html)
+- Jan 31 - [Sam Altman: OpenAI has been on the 'wrong side of history' concerning open source](https://finance.yahoo.com/news/sam-altman-openai-wrong-side-233435180.html)
 <!-- feed end -->
 
 ### Onstream
