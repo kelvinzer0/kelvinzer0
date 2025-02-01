@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
 - Feb 01 - [Exposed: Trump’s hidden revenge tour seeps out on Fridays as FBI pushes back](https://www.yahoo.com/news/exposed-trump-hidden-revenge-tour-000222064.html)
+- Jan 31 - [Sam Altman: OpenAI has been on the 'wrong side of history' concerning open source](https://finance.yahoo.com/news/sam-altman-openai-wrong-side-233435180.html)
 - Jan 31 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-205907305.html)
-- Jan 31 - [Ex-Federal Reserve adviser Rogers arrested for passing trade secrets to China](https://www.yahoo.com/news/former-federal-adviser-arrested-passing-204357630.html)
 - Jan 31 - [Exclusive-Musk aides lock government workers out of computer systems at US agency, sources say](https://www.yahoo.com/news/exclusive-musk-aides-lock-government-200344003.html)
 <!-- feed end -->
 
