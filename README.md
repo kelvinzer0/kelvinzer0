@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 01 - [Boca couple ambushed in driveway by 3 masked men; thieves take $250K](https://www.yahoo.com/news/boca-couple-ambushed-driveway-3-200734425.html)
-- Feb 01 - [Yellowstone bison stampede toward snow coach in thrilling encounter](https://www.yahoo.com/lifestyle/yellowstone-bison-stampede-toward-snow-171611916.html)
 - Feb 01 - [Second body found in search for missing sisters](https://www.yahoo.com/news/second-body-found-search-missing-104327955.html)
-- Feb 01 - [Early morning fire tears through SC apartment, Columbia fire department says. 18 displaced](https://www.yahoo.com/news/early-morning-fire-tears-sc-153714623.html)
 - Feb 01 - [Royal Caribbean fixes a terrible part of the cruising experience](https://www.yahoo.com/lifestyle/royal-caribbean-fixes-terrible-part-135100870.html)
+- Feb 01 - [The U.S. government is now warning against Mexico travel](https://www.yahoo.com/lifestyle/u-government-now-warning-against-132800021.html)
+- Feb 01 - [The Style of Egg Experts Say You Shouldn't Be Eating Right Now](https://www.yahoo.com/lifestyle/style-egg-experts-shouldnt-eating-121200589.html)
 <!-- feed end -->
 
 ### Onstream
