@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Emergency services arrive after small plane crashes near airport in Philadelphia](https://www.yahoo.com/news/emergency-services-arrive-small-plane-010728083.html)
 - Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
-- Feb 01 - [Jim Nantz's bid holds up and he now owns the 2012 GMC Yukon XL of the world's No. 1 player](https://sports.yahoo.com/jim-nantzs-bid-holds-now-000227539.html)
-- Jan 31 - [Watch: Oxygen tank explodes in the back of a garbage truck](https://www.yahoo.com/news/watch-oxygen-tank-explodes-back-210812149.html)
+- Feb 01 - [Exposed: Trump’s hidden revenge tour seeps out on Fridays as FBI pushes back](https://www.yahoo.com/news/exposed-trump-hidden-revenge-tour-000222064.html)
 - Jan 31 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-205907305.html)
+- Jan 31 - [Ex-Federal Reserve adviser Rogers arrested for passing trade secrets to China](https://www.yahoo.com/news/former-federal-adviser-arrested-passing-204357630.html)
+- Jan 31 - [Exclusive-Musk aides lock government workers out of computer systems at US agency, sources say](https://www.yahoo.com/news/exclusive-musk-aides-lock-government-200344003.html)
 <!-- feed end -->
 
 ### Onstream
