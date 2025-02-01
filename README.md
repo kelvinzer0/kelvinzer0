@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Tennessee settles its federal lawsuit with the NCAA over name, image and likeness rules](https://sports.yahoo.com/tennessee-settles-federal-lawsuit-ncaa-223228935.html)
-- Jan 31 - [Exclusive-Musk aides lock government workers out of computer systems at US agency, sources say](https://www.yahoo.com/news/exclusive-musk-aides-lock-government-200344003.html)
-- Jan 31 - [Navy SEAL who led workout that hospitalized Tufts lacrosse players lacked expertise, report says](https://www.yahoo.com/news/navy-seal-led-workout-hospitalized-183534193.html)
-- Jan 31 - [Driver charged in fiery highway bridge crash in Connecticut dies of cancer](https://www.yahoo.com/news/driver-charged-fiery-highway-bridge-181105044.html)
-- Jan 31 - [Air traffic controller 'left work early' before deadly crash as helicopter's flight height comes into question](https://www.yahoo.com/news/air-traffic-controller-left-early-165821604.html)
+- Feb 01 - [Emergency services arrive after small plane crashes near airport in Philadelphia](https://www.yahoo.com/news/emergency-services-arrive-small-plane-010728083.html)
+- Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
+- Feb 01 - [Jim Nantz's bid holds up and he now owns the 2012 GMC Yukon XL of the world's No. 1 player](https://sports.yahoo.com/jim-nantzs-bid-holds-now-000227539.html)
+- Jan 31 - [Watch: Oxygen tank explodes in the back of a garbage truck](https://www.yahoo.com/news/watch-oxygen-tank-explodes-back-210812149.html)
+- Jan 31 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-205907305.html)
 <!-- feed end -->
 
 ### Onstream
