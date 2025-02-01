@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
-- Feb 01 - [Trump fires the director of the Consumer Financial Protection Bureau](https://www.yahoo.com/news/trump-fires-director-consumer-financial-150201313.html)
+- Feb 01 - [Teenager dies of ‘cardiac arrest’ at go-karting track](https://www.yahoo.com/news/teenager-dies-cardiac-arrest-karting-150014125.html)
+- Feb 01 - [The Style of Egg Experts Say You Shouldn't Be Eating Right Now](https://www.yahoo.com/lifestyle/style-egg-experts-shouldnt-eating-121200589.html)
+- Feb 01 - [‘There will be many casualties’: Panama girds for war as Rubio opens talks](https://www.yahoo.com/news/many-casualties-panama-girds-war-120000376.html)
 - Feb 01 - [Mortgage and refinance rates today, February 1, 2025: The 30-year rate decreases for a full week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-february-1-2025-110002982.html)
-- Feb 01 - [Donald Trump says he stopped $50 million for condoms going to Gaza. Is it true?](https://www.yahoo.com/news/donald-trump-says-stopped-50-101023341.html)
 - Feb 01 - [See Lockheed's cutting-edge $50 million stealth ship the US Navy couldn't find a use for](https://www.yahoo.com/news/see-lockheeds-cutting-edge-50-090802263.html)
 <!-- feed end -->
 
