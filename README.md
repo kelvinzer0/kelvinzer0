@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 01 - ['Which Executive Order Lowers Prices?': CBS Host Brennan Grills JD Vance On Trump's Economic Promises](https://finance.yahoo.com/news/executive-order-lowers-prices-cbs-183229574.html)
-- Feb 01 - [Gaza ceasefire sees smoothest exchange yet of Israel hostages and Palestinian prisoners; AP explains](https://www.yahoo.com/news/gaza-ceasefire-sees-smoothest-exchange-174807603.html)
-- Feb 01 - [Pentagon Removes NBC News, NYT, Other Media From Offices in New Rotation Program](https://www.yahoo.com/news/pentagon-removes-nbc-news-nyt-173615126.html)
 - Feb 01 - [Second body found in search for missing sisters](https://www.yahoo.com/news/second-body-found-search-missing-104327955.html)
+- Feb 01 - [The U.S. government is now warning against Mexico travel](https://www.yahoo.com/lifestyle/u-government-now-warning-against-132800021.html)
 - Feb 01 - [‘There will be many casualties’: Panama girds for war as Rubio opens talks](https://www.yahoo.com/news/many-casualties-panama-girds-war-120000376.html)
+- Feb 01 - [Mortgage and refinance rates today, February 1, 2025: The 30-year rate decreases for a full week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-february-1-2025-110002982.html)
 <!-- feed end -->
 
 ### Onstream
