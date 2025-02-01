@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - ['Which Executive Order Lowers Prices?': CBS Host Brennan Grills JD Vance On Trump's Economic Promises](https://finance.yahoo.com/news/executive-order-lowers-prices-cbs-183229574.html)
 - Feb 01 - [Gaza ceasefire sees smoothest exchange yet of Israel hostages and Palestinian prisoners; AP explains](https://www.yahoo.com/news/gaza-ceasefire-sees-smoothest-exchange-174807603.html)
+- Feb 01 - [Pentagon Removes NBC News, NYT, Other Media From Offices in New Rotation Program](https://www.yahoo.com/news/pentagon-removes-nbc-news-nyt-173615126.html)
+- Feb 01 - [Second body found in search for missing sisters](https://www.yahoo.com/news/second-body-found-search-missing-104327955.html)
 - Feb 01 - [‘There will be many casualties’: Panama girds for war as Rubio opens talks](https://www.yahoo.com/news/many-casualties-panama-girds-war-120000376.html)
-- Feb 01 - [Mortgage and refinance rates today, February 1, 2025: The 30-year rate decreases for a full week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-february-1-2025-110002982.html)
-- Feb 01 - [See Lockheed's cutting-edge $50 million stealth ship the US Navy couldn't find a use for](https://www.yahoo.com/news/see-lockheeds-cutting-edge-50-090802263.html)
-- Feb 01 - [Your Monthly Work Horoscope for February 2025](https://www.yahoo.com/lifestyle/monthly-horoscope-february-2025-080000035.html)
 <!-- feed end -->
 
 ### Onstream
