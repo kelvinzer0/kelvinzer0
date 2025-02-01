@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 01 - [See Lockheed's cutting-edge $50 million stealth ship the US Navy couldn't find a use for](https://www.yahoo.com/news/see-lockheeds-cutting-edge-50-090802263.html)
 - Feb 01 - [Prediction: President Donald Trump Is Going to Break His Social Security Promise -- and It's Absolutely the Right Decision](https://finance.yahoo.com/news/prediction-president-donald-trump-going-084400072.html)
-- Feb 01 - [Pentagon removes major media outlets, including NBC News, from dedicated workstations as part of a new 'rotation program'](https://www.yahoo.com/news/pentagon-removes-major-media-outlets-080157457.html)
 - Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
 - Feb 01 - [Exposed: Trump’s hidden revenge tour seeps out on Fridays as FBI pushes back](https://www.yahoo.com/news/exposed-trump-hidden-revenge-tour-000222064.html)
+- Jan 31 - [Sam Altman: OpenAI has been on the 'wrong side of history' concerning open source](https://finance.yahoo.com/news/sam-altman-openai-wrong-side-233435180.html)
 <!-- feed end -->
 
 ### Onstream
