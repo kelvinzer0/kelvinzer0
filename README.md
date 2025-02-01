@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Starbucks' New Free Refill Program Has 5 Major Exceptions](https://www.yahoo.com/lifestyle/starbucks-free-refill-program-5-110000395.html)
+- Feb 01 - [I’m Retired and Regret Claiming Social Security at 70 — Here’s Why](https://finance.yahoo.com/news/m-retired-regret-claiming-social-120021931.html)
+- Feb 01 - [Trump fires the director of the Consumer Financial Protection Bureau](https://www.yahoo.com/news/trump-fires-director-consumer-financial-150201313.html)
+- Feb 01 - [Mortgage and refinance rates today, February 1, 2025: The 30-year rate decreases for a full week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-february-1-2025-110002982.html)
+- Feb 01 - [Donald Trump says he stopped $50 million for condoms going to Gaza. Is it true?](https://www.yahoo.com/news/donald-trump-says-stopped-50-101023341.html)
 - Feb 01 - [See Lockheed's cutting-edge $50 million stealth ship the US Navy couldn't find a use for](https://www.yahoo.com/news/see-lockheeds-cutting-edge-50-090802263.html)
-- Feb 01 - [Prediction: President Donald Trump Is Going to Break His Social Security Promise -- and It's Absolutely the Right Decision](https://finance.yahoo.com/news/prediction-president-donald-trump-going-084400072.html)
-- Feb 01 - [Pro-RFK Jr. letter to the Senate includes names of doctors whose licenses were revoked or suspended](https://www.yahoo.com/news/pro-rfk-jr-letter-senate-050331777.html)
-- Feb 01 - [Philadelphia plane crash debris flies through diner window, hitting customer in head](https://www.yahoo.com/news/philadelphia-plane-crash-debris-flies-023037764.html)
 <!-- feed end -->
 
 ### Onstream
