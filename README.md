@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Small plane carrying 6 crashes in Philadelphia neighborhood, several homes catch fire](https://www.yahoo.com/news/small-plane-carrying-6-crashes-044504104.html)
 - Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
+- Feb 01 - [Police: Woman found badly burned in St. Paul was kidnapped, forced to perform sex acts](https://www.yahoo.com/news/police-woman-found-badly-burned-000102824.html)
 - Jan 31 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-205907305.html)
 - Jan 31 - [Identity thief whose deception led to his victim’s incarceration gets a 12-year prison term](https://www.yahoo.com/news/identity-thief-whose-deception-led-205215355.html)
-- Jan 31 - [Exclusive-Musk aides lock government workers out of computer systems at US agency, sources say](https://www.yahoo.com/news/exclusive-musk-aides-lock-government-200344003.html)
+- Jan 31 - [Ex-Federal Reserve adviser Rogers arrested for passing trade secrets to China](https://www.yahoo.com/news/former-federal-adviser-arrested-passing-204357630.html)
 <!-- feed end -->
 
 ### Onstream
