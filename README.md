@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [All six passengers killed in Philadelphia medical plane crash, mayor's office says](https://www.yahoo.com/news/six-passengers-killed-philadelphia-medical-134846458.html)
+- Feb 01 - [Starbucks' New Free Refill Program Has 5 Major Exceptions](https://www.yahoo.com/lifestyle/starbucks-free-refill-program-5-110000395.html)
 - Feb 01 - [See Lockheed's cutting-edge $50 million stealth ship the US Navy couldn't find a use for](https://www.yahoo.com/news/see-lockheeds-cutting-edge-50-090802263.html)
 - Feb 01 - [Prediction: President Donald Trump Is Going to Break His Social Security Promise -- and It's Absolutely the Right Decision](https://finance.yahoo.com/news/prediction-president-donald-trump-going-084400072.html)
-- Feb 01 - [Your Monthly Work Horoscope for February 2025](https://www.yahoo.com/lifestyle/monthly-horoscope-february-2025-080000035.html)
-- Feb 01 - [Deadly Houston crash: Authorities investigating crash involving 4 vehicles](https://www.yahoo.com/news/deadly-houston-crash-authorities-investigating-020529570.html)
+- Feb 01 - [Pro-RFK Jr. letter to the Senate includes names of doctors whose licenses were revoked or suspended](https://www.yahoo.com/news/pro-rfk-jr-letter-senate-050331777.html)
+- Feb 01 - [Philadelphia plane crash debris flies through diner window, hitting customer in head](https://www.yahoo.com/news/philadelphia-plane-crash-debris-flies-023037764.html)
 <!-- feed end -->
 
 ### Onstream
