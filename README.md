@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Las Vegas couple wrestles with car insurance claim following theft of ‘dream car’](https://www.yahoo.com/news/las-vegas-couple-wrestles-car-072142957.html)
-- Feb 01 - [Pro-RFK Jr. letter to the Senate includes names of doctors whose licenses were revoked or suspended](https://www.yahoo.com/news/pro-rfk-jr-letter-senate-050331777.html)
+- Feb 01 - [See Lockheed's cutting-edge $50 million stealth ship the US Navy couldn't find a use for](https://www.yahoo.com/news/see-lockheeds-cutting-edge-50-090802263.html)
+- Feb 01 - [Why Mastercard Incorporated (MA) Is Among the Best Long Term Low Risk Stocks to Buy Now](https://finance.yahoo.com/news/why-mastercard-incorporated-ma-among-085434887.html)
+- Feb 01 - [Pentagon removes major media outlets, including NBC News, from dedicated workstations as part of a new 'rotation program'](https://www.yahoo.com/news/pentagon-removes-major-media-outlets-080157457.html)
 - Feb 01 - [Trump moves to cancel recent union agreements with federal workers](https://www.yahoo.com/news/trump-moves-cancel-recent-union-005715063.html)
-- Jan 31 - [Sam Altman: OpenAI has been on the 'wrong side of history' concerning open source](https://finance.yahoo.com/news/sam-altman-openai-wrong-side-233435180.html)
-- Jan 31 - [ACHD declares emergency closure of busy Boise bridge. Its new weight limit: About 1 car](https://www.yahoo.com/news/achd-declares-emergency-closure-busy-194531369.html)
+- Feb 01 - [Exposed: Trump’s hidden revenge tour seeps out on Fridays as FBI pushes back](https://www.yahoo.com/news/exposed-trump-hidden-revenge-tour-000222064.html)
 <!-- feed end -->
 
 ### Onstream
