@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 01 - [Gaza ceasefire sees smoothest exchange yet of Israel hostages and Palestinian prisoners; AP explains](https://www.yahoo.com/news/gaza-ceasefire-sees-smoothest-exchange-174807603.html)
-- Feb 01 - [The Style of Egg Experts Say You Shouldn't Be Eating Right Now](https://www.yahoo.com/lifestyle/style-egg-experts-shouldnt-eating-121200589.html)
 - Feb 01 - [‘There will be many casualties’: Panama girds for war as Rubio opens talks](https://www.yahoo.com/news/many-casualties-panama-girds-war-120000376.html)
+- Feb 01 - [Mortgage and refinance rates today, February 1, 2025: The 30-year rate decreases for a full week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-february-1-2025-110002982.html)
 - Feb 01 - [See Lockheed's cutting-edge $50 million stealth ship the US Navy couldn't find a use for](https://www.yahoo.com/news/see-lockheeds-cutting-edge-50-090802263.html)
 - Feb 01 - [Your Monthly Work Horoscope for February 2025](https://www.yahoo.com/lifestyle/monthly-horoscope-february-2025-080000035.html)
 <!-- feed end -->
