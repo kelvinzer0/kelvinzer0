@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [Canada announces retaliatory tariffs on long-time ally US](https://www.yahoo.com/news/canadas-trudeau-announces-counter-tariffs-023300730.html)
+- Feb 02 - ['Miracle On The Hudson' Pilot Has Just 3 Words For Trump's DC Crash Response](https://www.yahoo.com/news/miracle-hudson-pilot-just-3-085425734.html)
 - Feb 02 - [Billionaire hedge fund manager Bill Ackman says he will move management company out of Delaware](https://finance.yahoo.com/news/billionaire-hedge-fund-manager-bill-005946945.html)
-- Feb 02 - [Doctors Are Sharing The 1 Bathroom Habit They Would Avoid At All Costs](https://www.yahoo.com/lifestyle/doctors-sharing-1-bathroom-habit-003102079.html)
-- Feb 02 - [Musk’s Lackeys Seize Control of Social Security Check System](https://www.yahoo.com/news/musk-lackeys-seize-control-social-002907189.html)
 - Feb 01 - [Army releases name of 3rd soldier who died in helicopter and airliner crash](https://www.yahoo.com/news/army-releases-name-3rd-soldier-225112745.html)
+- Feb 01 - [Write This Down: 24 Things You Didn't Realize Apple's Notes App Could Do](https://www.yahoo.com/tech/write-down-24-things-didnt-215420451.html)
+- Feb 01 - [University of Mississippi official to retire](https://www.yahoo.com/news/university-mississippi-official-retire-212447548.html)
 <!-- feed end -->
 
 ### Onstream
