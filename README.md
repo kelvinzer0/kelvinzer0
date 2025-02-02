@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Canada announces retaliatory tariffs on long-time ally US](https://www.yahoo.com/news/canadas-trudeau-announces-counter-tariffs-023300730.html)
 - Feb 02 - [Billionaire hedge fund manager Bill Ackman says he will move management company out of Delaware](https://finance.yahoo.com/news/billionaire-hedge-fund-manager-bill-005946945.html)
-- Feb 02 - [Doctors Are Sharing The 1 Bathroom Habit They Would Avoid At All Costs](https://www.yahoo.com/lifestyle/doctors-sharing-1-bathroom-habit-003102079.html)
 - Feb 02 - [Musk’s Lackeys Seize Control of Social Security Check System](https://www.yahoo.com/news/musk-lackeys-seize-control-social-002907189.html)
-- Feb 01 - [Minneapolis will pay $600,000 to settle with woman who says ex-Officer Chauvin knelt on her back](https://www.yahoo.com/news/minneapolis-pay-600-000-settle-225044932.html)
-- Feb 01 - [Fight between couple leads to ‘rushed mass exodus’ at Opry Mills Mall, police say](https://www.yahoo.com/news/fight-leads-rushed-mass-exodus-210754747.html)
+- Feb 01 - [Powerball winning numbers for Saturday, Feb. 1. Did anyone win $89 million jackpot?](https://www.yahoo.com/news/powerball-winning-numbers-saturday-feb-230249912.html)
+- Feb 01 - [Write This Down: 24 Things You Didn't Realize Apple's Notes App Could Do](https://www.yahoo.com/tech/write-down-24-things-didnt-215420451.html)
 <!-- feed end -->
 
 ### Onstream
