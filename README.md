@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Billionaire hedge fund manager Bill Ackman says he will move management company out of Delaware](https://finance.yahoo.com/news/billionaire-hedge-fund-manager-bill-005946945.html)
+- Feb 01 - [Minneapolis will pay $600,000 to settle with woman who says ex-Officer Chauvin knelt on her neck](https://www.yahoo.com/news/minneapolis-pay-600-000-settle-225044932.html)
 - Feb 01 - [Boca couple ambushed in driveway by 3 masked men; thieves take $250K](https://www.yahoo.com/news/boca-couple-ambushed-driveway-3-200734425.html)
+- Feb 01 - [An Extremely Contagious Stomach Bug Is Rapidly Spreading, So We Asked Experts How To Avoid It](https://www.yahoo.com/lifestyle/norovirus-cases-rising-heres-prevent-193103391.html)
 - Feb 01 - [Second body found in search for missing sisters](https://www.yahoo.com/news/second-body-found-search-missing-104327955.html)
-- Feb 01 - [Royal Caribbean fixes a terrible part of the cruising experience](https://www.yahoo.com/lifestyle/royal-caribbean-fixes-terrible-part-135100870.html)
-- Feb 01 - [The U.S. government is now warning against Mexico travel](https://www.yahoo.com/lifestyle/u-government-now-warning-against-132800021.html)
-- Feb 01 - [The Style of Egg Experts Say You Shouldn't Be Eating Right Now](https://www.yahoo.com/lifestyle/style-egg-experts-shouldnt-eating-121200589.html)
 <!-- feed end -->
 
 ### Onstream
