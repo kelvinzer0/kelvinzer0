@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Morgan Stanley Trims Microsoft Corporation (MSFT) Price Target Amid AI and Margin Concerns](https://finance.yahoo.com/news/morgan-stanley-trims-microsoft-corporation-115854813.html)
 - Feb 02 - [The West is seeing Kim Jong Un's army in action. The North Korean soldiers are brutal zealots undeterred in the face of death.](https://www.yahoo.com/news/west-seeing-kim-jong-uns-090101308.html)
 - Feb 02 - ['Miracle On The Hudson' Pilot Has Just 3 Words For Trump's DC Crash Response](https://www.yahoo.com/news/miracle-hudson-pilot-just-3-085425734.html)
-- Feb 02 - [Canada announces retaliatory tariffs on long-time ally US](https://www.yahoo.com/news/canadas-trudeau-announces-counter-tariffs-023300730.html)
 - Feb 02 - [Billionaire hedge fund manager Bill Ackman says he will move management company out of Delaware](https://finance.yahoo.com/news/billionaire-hedge-fund-manager-bill-005946945.html)
 - Feb 02 - [Doctors Are Sharing The 1 Bathroom Habit They Would Avoid At All Costs](https://www.yahoo.com/lifestyle/doctors-sharing-1-bathroom-habit-003102079.html)
 <!-- feed end -->
