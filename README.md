@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [JD Vance Backtracks on DEI Slur After Pilot’s Identity Revealed](https://www.yahoo.com/news/jd-vance-backtracks-dei-theory-142939840.html)
-- Feb 02 - [5 Japanese Cars To Stay Away From Buying](https://autos.yahoo.com/5-japanese-cars-stay-away-130056772.html)
-- Feb 02 - [Here’s what will get more expensive from Trump’s tariffs on Mexico, Canada and China](https://www.yahoo.com/news/more-expensive-trump-tariffs-mexico-014410664.html)
-- Feb 02 - [Researchers make disturbing discovery while studying organic waste: 'This raises concerns about the long-term impact'](https://www.yahoo.com/news/researchers-disturbing-discovery-while-studying-110002579.html)
-- Feb 02 - [Did Punxsutawney Phil see his shadow on Groundhog Day?: Live updates](https://www.yahoo.com/lifestyle/punxsutawney-phil-sees-shadow-gobblers-105400337.html)
+- Feb 02 - [The Gaza war is paused, but Israel and Hamas keep up a fierce battle of optics over hostage releases](https://www.yahoo.com/news/gaza-war-paused-israel-hamas-175542785.html)
+- Feb 02 - [Retirement expert: 401(k)s have a 'portability failure,' and that's a problem for employees](https://finance.yahoo.com/news/retirement-expert-401ks-have-a-portability-failure-and-thats-a-problem-for-employees-173025460.html)
+- Feb 02 - [SNP to consider banning cats](https://www.yahoo.com/news/snp-consider-banning-cats-172328022.html)
+- Feb 02 - [With tariffs signed, Trump warns of ‘pain’ to come for Americans](https://www.yahoo.com/news/tariffs-signed-trump-warns-pain-161944996.html)
+- Feb 02 - [Did you feel it? 3rd earthquake this week detected off coast of New England](https://www.yahoo.com/news/did-feel-3rd-earthquake-week-160645981.html)
 <!-- feed end -->
 
 ### Onstream
