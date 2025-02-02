@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [The Gaza war is paused, but Israel and Hamas keep up a fierce battle of optics over hostage releases](https://www.yahoo.com/news/gaza-war-paused-israel-hamas-175542785.html)
+- Feb 02 - [Snow expected tonight in CT, weather service says ‘100% chance of precipitation.’  What to know.](https://www.yahoo.com/news/snow-expected-tonight-ct-weather-183100444.html)
 - Feb 02 - [Retirement expert: 401(k)s have a 'portability failure,' and that's a problem for employees](https://finance.yahoo.com/news/retirement-expert-401ks-have-a-portability-failure-and-thats-a-problem-for-employees-173025460.html)
-- Feb 02 - [SNP to consider banning cats](https://www.yahoo.com/news/snp-consider-banning-cats-172328022.html)
 - Feb 02 - [With tariffs signed, Trump warns of ‘pain’ to come for Americans](https://www.yahoo.com/news/tariffs-signed-trump-warns-pain-161944996.html)
 - Feb 02 - [Did you feel it? 3rd earthquake this week detected off coast of New England](https://www.yahoo.com/news/did-feel-3rd-earthquake-week-160645981.html)
+- Feb 02 - [Trump says Americans could feel 'some pain' from his new tariffs that are triggering a trade war](https://www.yahoo.com/news/trump-says-americans-could-feel-155950434.html)
 <!-- feed end -->
 
 ### Onstream
