@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [Canada announces retaliatory tariffs on long-time ally US](https://www.yahoo.com/news/canadas-trudeau-announces-counter-tariffs-023300730.html)
-- Feb 02 - [Obama Center subcontractor files $40M discrimination lawsuit against engineering firm for overruns](https://www.yahoo.com/news/obama-center-subcontractor-files-40m-011519969.html)
+- Feb 02 - [Known to generations of El Pasoans, Father ‘Buzz’ dies at 82](https://www.yahoo.com/news/known-generations-el-pasoans-father-032957629.html)
 - Feb 02 - [Billionaire hedge fund manager Bill Ackman says he will move management company out of Delaware](https://finance.yahoo.com/news/billionaire-hedge-fund-manager-bill-005946945.html)
 - Feb 02 - [Musk’s Lackeys Seize Control of Social Security Check System](https://www.yahoo.com/news/musk-lackeys-seize-control-social-002907189.html)
-- Feb 01 - [Passenger Says She Was Told to 'Respect My Elders' by Fellow Traveler Who Demanded She Check Her Carry-On](https://www.yahoo.com/lifestyle/passenger-says-she-told-respect-230000285.html)
+- Feb 01 - [Write This Down: 24 Things You Didn't Realize Apple's Notes App Could Do](https://www.yahoo.com/tech/write-down-24-things-didnt-215420451.html)
+- Feb 01 - [University of Mississippi official to retire](https://www.yahoo.com/news/university-mississippi-official-retire-212447548.html)
 <!-- feed end -->
 
 ### Onstream
