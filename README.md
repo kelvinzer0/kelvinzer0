@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [Ask an Advisor: We're 56 With $1.2 Million Saved. Can We Afford $60K–$80K Annual Withdrawals?](https://finance.yahoo.com/news/ask-advisor-were-56-1-120000397.html)
-- Feb 02 - [‘Hairy’ fighting vehicle spotted in Ukraine as Russia struggles to avoid drone attacks](https://www.yahoo.com/news/hairy-fighting-vehicle-spotted-ukraine-125051754.html)
-- Feb 02 - [AI Stocks: Tech Giants, Cloud Titans Face 'Show Me' Moment. China's DeepSeek Roils AI Trade.](https://www.investors.com/news/technology/artificial-intelligence-stocks/?src=A00220&yptr=yahoo)
+- Feb 02 - [Verizon, ForgiveCo get assist from Roy Williams to announce debt forgiveness program in western NC](https://www.yahoo.com/news/verizon-forgiveco-assist-roy-williams-142402884.html)
+- Feb 02 - [Trump has confused the C-suite](https://finance.yahoo.com/news/trump-has-confused-the-c-suite-133007724.html)
+- Feb 02 - [Unitree's G1 Humanoid Robots Shown Running in New Video](https://www.yahoo.com/tech/unitrees-g1-humanoid-robots-shown-130015238.html)
+- Feb 02 - [5 Japanese Cars To Stay Away From Buying](https://autos.yahoo.com/5-japanese-cars-stay-away-130056772.html)
 - Feb 02 - [I want to leave my grandson a $500K inheritance and skip my daughter. Can I gift it to him directly?](https://finance.yahoo.com/news/want-leave-grandson-500k-inheritance-120000447.html)
-- Feb 02 - [The West is seeing Kim Jong Un's army in action. The North Korean soldiers are brutal zealots undeterred in the face of death.](https://www.yahoo.com/news/west-seeing-kim-jong-uns-090101308.html)
 <!-- feed end -->
 
 ### Onstream
