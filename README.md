@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Pregnant woman's remains, showing signs of sacrifice, unearthed in Ecuador](https://www.yahoo.com/news/pregnant-womans-remains-showing-signs-023727368.html)
+- Feb 02 - [Canada's Trudeau announces tariffs on US in retaliation for Trump's tariffs](https://www.yahoo.com/news/canadas-trudeau-announces-counter-tariffs-023300730.html)
 - Feb 02 - [Billionaire hedge fund manager Bill Ackman says he will move management company out of Delaware](https://finance.yahoo.com/news/billionaire-hedge-fund-manager-bill-005946945.html)
-- Feb 01 - [Army releases name of 3rd soldier who died in helicopter and airliner crash](https://www.yahoo.com/news/army-releases-name-3rd-soldier-225112745.html)
-- Feb 01 - [Minneapolis will pay $600,000 to settle with woman who says ex-Officer Chauvin knelt on her neck](https://www.yahoo.com/news/minneapolis-pay-600-000-settle-225044932.html)
-- Feb 01 - [Boca couple ambushed in driveway by 3 masked men; thieves take $250K](https://www.yahoo.com/news/boca-couple-ambushed-driveway-3-200734425.html)
-- Feb 01 - [An Extremely Contagious Stomach Bug Is Rapidly Spreading, So We Asked Experts How To Avoid It](https://www.yahoo.com/lifestyle/norovirus-cases-rising-heres-prevent-193103391.html)
+- Feb 02 - [Musk’s Lackeys Seize Control of Social Security Check System](https://www.yahoo.com/news/musk-lackeys-seize-control-social-002907189.html)
+- Feb 01 - [‘To call this a crime of violence is quite the understatement’: Judge detains two men accused of tying up, killing 63-year-old man](https://www.yahoo.com/news/call-crime-violence-quite-understatement-230100947.html)
 <!-- feed end -->
 
 ### Onstream
