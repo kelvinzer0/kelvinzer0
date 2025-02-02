@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [AP Top Stories February 2 P](https://www.yahoo.com/news/ap-top-stories-february-2-205616161.html)
 - Feb 02 - [US CDC orders pullback of new scientific papers involving its researchers, source says](https://www.yahoo.com/news/us-cdc-orders-pullback-scientific-205138485.html)
+- Feb 02 - [Diddy Was Taken To A Hospital Late At Night A Month After Allegedly Having A 'Meltdown' In Jail](https://www.yahoo.com/news/diddy-taken-hospital-night-month-201514878.html)
+- Feb 02 - [Nvidia's Stock Just Did Something It Hasn't Done in a Year. Here's What History Says Happens Next.](https://finance.yahoo.com/news/nvidias-stock-just-did-something-200000329.html)
+- Feb 02 - [Trump tariffs rattle Wall Street — here's what the movers and shakers are talking about](https://finance.yahoo.com/news/trump-tariffs-rattle-wall-street--heres-what-the-movers-and-shakers-are-talking-about-192418770.html)
 - Feb 02 - [‘Any Evidence?’: Vance Confronted About Claim That Biden Banned White Air Traffic Controllers](https://www.yahoo.com/news/evidence-vance-confronted-claim-biden-192110273.html)
-- Feb 02 - [Retirement expert: 401(k)s have a 'portability failure,' and that's a problem for employees](https://finance.yahoo.com/news/retirement-expert-401ks-have-a-portability-failure-and-thats-a-problem-for-employees-173025460.html)
-- Feb 02 - [2 Fulton County teens killed in crash along GA 400](https://www.yahoo.com/news/2-fulton-county-teens-killed-174654052.html)
 <!-- feed end -->
 
 ### Onstream
