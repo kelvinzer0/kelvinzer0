@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [Is Verizon Communications Inc. (VZ) the Best Dividend Stock on Robinhood?](https://finance.yahoo.com/news/verizon-communications-inc-vz-best-191854519.html)
-- Feb 02 - [With tariffs signed, Trump warns of ‘pain’ to come for Americans](https://www.yahoo.com/news/tariffs-signed-trump-warns-pain-161944996.html)
-- Feb 02 - [Tallahassee Police round up dogs that attacked person, causing serious injuries](https://www.yahoo.com/news/tallahassee-police-warn-residents-gang-181320552.html)
-- Feb 02 - [Wind-farm turbine bursts into flames](https://www.yahoo.com/news/wind-farm-turbine-bursts-flames-173748838.html)
+- Feb 02 - [Trump tariffs rattle Wall Street — here's what the movers and shakers are talking about](https://finance.yahoo.com/news/trump-tariffs-rattle-wall-street--heres-what-the-movers-and-shakers-are-talking-about-192418770.html)
+- Feb 02 - [‘Any Evidence?’: Vance Confronted About Claim That Biden Banned White Air Traffic Controllers](https://www.yahoo.com/news/evidence-vance-confronted-claim-biden-192110273.html)
+- Feb 02 - [Trump's Canada, Mexico, China tariffs suspend loophole behind fentanyl shipments](https://www.yahoo.com/news/trumps-canada-mexico-china-tariffs-183630148.html)
+- Feb 02 - [Retirement expert: 401(k)s have a 'portability failure,' and that's a problem for employees](https://finance.yahoo.com/news/retirement-expert-401ks-have-a-portability-failure-and-thats-a-problem-for-employees-173025460.html)
 - Feb 02 - [Did you feel it? 3rd earthquake this week detected off coast of New England](https://www.yahoo.com/news/did-feel-3rd-earthquake-week-160645981.html)
 <!-- feed end -->
 
