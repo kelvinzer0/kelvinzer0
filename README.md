@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 03 - [Polestar takes tariffs 'very serious.' CEO talks US manufacturing](https://finance.yahoo.com/video/polestar-takes-tariffs-very-serious-214657386.html)
+- Feb 03 - [Alphabet to report Q4 earnings as investors look to cloud growth, AI spending](https://finance.yahoo.com/news/alphabet-to-report-q4-earnings-as-investors-look-to-cloud-growth-ai-spending-212322356.html)
+- Feb 03 - [American Airlines Collision: Army Helicopter Warned Twice Before Crash](https://www.yahoo.com/news/american-airlines-collision-army-helicopter-201957605.html)
+- Feb 03 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
 - Feb 03 - [Bill Gates reminder on Intel struggles: One can get 'annihilated' if you miss a turn in the market](https://finance.yahoo.com/news/bill-gates-reminder-on-intel-struggles-one-can-get-annihilated-if-you-miss-a-turn-in-the-market-200028989.html)
-- Feb 03 - [Child crash victims were on e-scooter, say police](https://www.yahoo.com/news/child-crash-victims-were-e-193606139.html)
-- Feb 03 - [Trump says he wants Ukraine's rare earth elements as a condition of further support](https://www.yahoo.com/news/trump-says-wants-ukraines-rare-191545599.html)
-- Feb 03 - [Why Bill Gates wouldn't want to be in Nvidia's CEO's shoes](https://finance.yahoo.com/video/why-bill-gates-wouldnt-want-190053023.html)
-- Feb 03 - [Ecuador president announces 27% tariff on Mexican goods](https://finance.yahoo.com/news/ecuador-president-announces-27-tariff-184930184.html)
 <!-- feed end -->
 
 ### Onstream
