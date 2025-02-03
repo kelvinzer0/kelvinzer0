@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 03 - [8 Foods That Will Help You Build Muscle and Optimize Your Gains](https://www.yahoo.com/lifestyle/8-foods-help-build-muscle-073300924.html)
+- Feb 03 - [Quantum Experiment Reveals Light Existing in Dozens of Dimensions](https://www.yahoo.com/news/quantum-experiment-reveals-light-existing-063418175.html)
+- Feb 03 - [Couple embezzled $5 million from Southern California company, police say](https://www.yahoo.com/news/couple-embezzled-5-million-southern-051345382.html)
 - Feb 03 - [Why Bill Gates agrees with Nvidia's CEO on quantum's timeline](https://finance.yahoo.com/video/why-bill-gates-agrees-nvidias-050117080.html)
 - Feb 03 - [Africa knew Trump's 'America First' pledge meant it might be last. Then came the freeze on aid](https://www.yahoo.com/news/africa-knew-trumps-america-first-041331997.html)
-- Feb 03 - [El Paso Police ask for your help in missing woman, dog last seen in Upper Valley](https://www.yahoo.com/news/el-paso-police-ask-help-010538628.html)
-- Feb 03 - [Mark Cuban Said If He Had Enough Money To Buy Fox News, He'd 'Buy It In A Heartbeat' - Estimates It Could Turn Around For $15B-$20B](https://finance.yahoo.com/news/mark-cuban-said-had-enough-003616772.html)
-- Feb 03 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
 <!-- feed end -->
 
 ### Onstream
