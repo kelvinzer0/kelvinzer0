@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Does Dutch Bros (BROS) Have the Potential to be a Long-Duration EPS Growth Business?](https://finance.yahoo.com/news/does-dutch-bros-bros-potential-124050716.html)
+- Feb 03 - [White House: Mexico is 'serious', Canada appears to have 'misunderstood' Trump's executive order](https://www.yahoo.com/news/white-house-mexico-serious-canada-133644275.html)
+- Feb 03 - [RMDs Are Mandatory, But I Don't Need the Cash - What Should I Do?](https://finance.yahoo.com/news/rmds-dont-money-yet-140430152.html)
+- Feb 03 - [Families of victims of deadly midair collision near Washington, D.C., visit wreckage site](https://www.yahoo.com/news/families-victims-deadly-midair-collision-132632597.html)
+- Feb 03 - [Gateway: The 21st-century moonshot mission](https://www.yahoo.com/news/gateway-21st-century-moonshot-mission-130000283.html)
 - Feb 03 - [NFL emails reveal extent of Saints' damage control for clergy sex abuse crisis](https://www.yahoo.com/news/nfl-emails-reveal-extent-saints-114651106.html)
-- Feb 03 - [Did you feel it? 3rd earthquake this week detected off coast of New England](https://www.yahoo.com/news/did-feel-3rd-earthquake-week-160645981.html)
-- Feb 03 - [Marjorie Taylor Greene’s ‘Disturbing’ Post About Reporter’s Foreign Accent Is Slammed](https://www.yahoo.com/news/marjorie-taylor-greene-disturbing-post-100355164.html)
-- Feb 03 - [Scientists puzzled by disturbing discovery while analyzing areas after heavy rainfall — here's what they found](https://www.yahoo.com/news/scientists-puzzled-disturbing-discovery-while-100053119.html)
 <!-- feed end -->
 
 ### Onstream
