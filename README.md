@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Alphabet faces scrutiny on AI spending as Google cloud growth slows](https://finance.yahoo.com/news/alphabet-faces-scrutiny-ai-spending-194627114.html)
-- Feb 03 - [Did RFK Jr. mislead the Senate on measles deaths in Samoa? The island nation's health chief says yes](https://www.yahoo.com/news/did-rfk-jr-mislead-senate-192232133.html)
+- Feb 03 - [Bill Gates reminder on Intel struggles: One can get 'annihilated' if you miss a turn in the market](https://finance.yahoo.com/news/bill-gates-reminder-on-intel-struggles-one-can-get-annihilated-if-you-miss-a-turn-in-the-market-200028989.html)
+- Feb 03 - [Child crash victims were on e-scooter, say police](https://www.yahoo.com/news/child-crash-victims-were-e-193606139.html)
 - Feb 03 - [Trump says he wants Ukraine's rare earth elements as a condition of further support](https://www.yahoo.com/news/trump-says-wants-ukraines-rare-191545599.html)
-- Feb 03 - [Trump orders creation of US sovereign wealth fund, says it could own part of TikTok](https://finance.yahoo.com/news/trump-orders-creation-us-sovereign-185926141.html)
-- Feb 03 - [Mass. bracing for potentially disruptive winter storm packing snow, ice. Here’s the latest timeline](https://www.yahoo.com/news/mass-bracing-potentially-disruptive-winter-180241158.html)
+- Feb 03 - [Why Bill Gates wouldn't want to be in Nvidia's CEO's shoes](https://finance.yahoo.com/video/why-bill-gates-wouldnt-want-190053023.html)
+- Feb 03 - [Ecuador president announces 27% tariff on Mexican goods](https://finance.yahoo.com/news/ecuador-president-announces-27-tariff-184930184.html)
 <!-- feed end -->
 
 ### Onstream
