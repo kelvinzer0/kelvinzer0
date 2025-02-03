@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 03 - [Africa knew Trump's 'America First' pledge meant it might be last. Then came the freeze on aid](https://www.yahoo.com/news/africa-knew-trumps-america-first-041331997.html)
+- Feb 03 - [How Trump's tariffs might affect commodity and energy sectors](https://finance.yahoo.com/news/trumps-tariffs-might-affect-commodity-033032872.html)
 - Feb 03 - [Trump and Musk’s friendship takes a dark turn](https://www.yahoo.com/news/trump-musk-friendship-takes-dark-014043562.html)
 - Feb 03 - [Panama president says he won’t renew Belt and Road deal with China, as US demands less Chinese influence over canal](https://www.yahoo.com/news/panama-president-says-won-t-012947370.html)
 - Feb 03 - [Mark Cuban Said If He Had Enough Money To Buy Fox News, He'd 'Buy It In A Heartbeat' - Estimates It Could Turn Around For $15B-$20B](https://finance.yahoo.com/news/mark-cuban-said-had-enough-003616772.html)
-- Feb 03 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
-- Feb 02 - [Woman suffers pain for 20 years until her mystery ailment is finally diagnosed](https://www.yahoo.com/news/woman-suffers-pain-20-years-214558028.html)
 <!-- feed end -->
 
 ### Onstream
