@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Americans have high hopes for Trump's economy, Gallup poll shows](https://finance.yahoo.com/news/americans-high-hopes-trumps-economy-090552077.html)
-- Feb 03 - [Trackless trams pilot due 'before end of the year'](https://www.yahoo.com/news/trackless-trams-pilot-due-end-081507333.html)
-- Feb 03 - [This loophole let Temu and Shein become giants. Trump has just closed it](https://www.yahoo.com/news/trump-tariffs-stop-chinese-firms-081028301.html)
-- Feb 03 - [US retailers react to Trump’s tariffs on Canada, Mexico, and China](https://finance.yahoo.com/news/us-retailers-react-trump-tariffs-074941717.html)
-- Feb 03 - [Why Bill Gates agrees with Nvidia's CEO on quantum's timeline](https://finance.yahoo.com/video/why-bill-gates-agrees-nvidias-050117080.html)
+- Feb 03 - [Tiny endangered froglets saved from deadly fungus in dramatic 7,000-mile rescue](https://www.yahoo.com/news/tiny-endangered-froglets-saved-deadly-000604145.html)
+- Feb 03 - [Epidemiologist Flags Dangers Of Donald Trump’s ‘Deeply Disturbing’ Data Scrub](https://www.yahoo.com/news/epidemiologist-flags-dangers-donald-trump-091239053.html)
+- Feb 03 - [Grammys Audience Erupts Over Alicia Keys’ Apparent Slam Of Donald Trump Move](https://www.yahoo.com/entertainment/grammys-audience-erupts-over-alicia-080352062.html)
+- Feb 03 - [Emergency crews deployed on Santorini as an earthquake swarm worries Greek experts](https://www.yahoo.com/news/emergency-crews-deployed-santorini-earthquake-064245786.html)
+- Feb 03 - [Quantum Experiment Reveals Light Existing in Dozens of Dimensions](https://www.yahoo.com/news/quantum-experiment-reveals-light-existing-063418175.html)
 <!-- feed end -->
 
 ### Onstream
