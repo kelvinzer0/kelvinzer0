@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [US CDC orders pullback of new scientific papers involving its researchers, source says](https://www.yahoo.com/news/us-cdc-orders-pullback-scientific-205138485.html)
-- Feb 02 - [Diddy Was Taken To A Hospital Late At Night A Month After Allegedly Having A 'Meltdown' In Jail](https://www.yahoo.com/news/diddy-taken-hospital-night-month-201514878.html)
-- Feb 02 - [Nvidia's Stock Just Did Something It Hasn't Done in a Year. Here's What History Says Happens Next.](https://finance.yahoo.com/news/nvidias-stock-just-did-something-200000329.html)
-- Feb 02 - [Trump tariffs rattle Wall Street — here's what the movers and shakers are talking about](https://finance.yahoo.com/news/trump-tariffs-rattle-wall-street--heres-what-the-movers-and-shakers-are-talking-about-192418770.html)
-- Feb 02 - [‘Any Evidence?’: Vance Confronted About Claim That Biden Banned White Air Traffic Controllers](https://www.yahoo.com/news/evidence-vance-confronted-claim-biden-192110273.html)
+- Feb 03 - [Russia's Supreme Court refuses to consider nationalist Girkin's appeal, TASS reports](https://www.yahoo.com/news/russias-supreme-court-refuses-consider-012553055.html)
+- Feb 03 - [Mark Cuban Said If He Had Enough Money To Buy Fox News, He'd 'Buy It In A Heartbeat' - Estimates It Could Turn Around For $15B-$20B](https://finance.yahoo.com/news/mark-cuban-said-had-enough-003616772.html)
+- Feb 03 - [Stock market today: Dow, S&P 500, Nasdaq futures plummet after Trump hits Canada, Mexico, China with tariffs](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-plummet-after-trump-hits-canada-mexico-china-with-tariffs-002434712.html)
+- Feb 03 - [Tiny endangered froglets saved from deadly fungus in dramatic 7,000-mile rescue](https://www.yahoo.com/news/tiny-endangered-froglets-saved-deadly-000604145.html)
+- Feb 02 - [Parent at a Texas school band competition tackles a gunman who injured 1, officials say](https://www.yahoo.com/news/parent-texas-school-band-competition-230505756.html)
 <!-- feed end -->
 
 ### Onstream
