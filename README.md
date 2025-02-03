@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [8 Foods That Will Help You Build Muscle and Optimize Your Gains](https://www.yahoo.com/lifestyle/8-foods-help-build-muscle-073300924.html)
-- Feb 03 - [Quantum Experiment Reveals Light Existing in Dozens of Dimensions](https://www.yahoo.com/news/quantum-experiment-reveals-light-existing-063418175.html)
-- Feb 03 - [Couple embezzled $5 million from Southern California company, police say](https://www.yahoo.com/news/couple-embezzled-5-million-southern-051345382.html)
+- Feb 03 - [Americans have high hopes for Trump's economy, Gallup poll shows](https://finance.yahoo.com/news/americans-high-hopes-trumps-economy-090552077.html)
+- Feb 03 - [Trackless trams pilot due 'before end of the year'](https://www.yahoo.com/news/trackless-trams-pilot-due-end-081507333.html)
+- Feb 03 - [This loophole let Temu and Shein become giants. Trump has just closed it](https://www.yahoo.com/news/trump-tariffs-stop-chinese-firms-081028301.html)
+- Feb 03 - [US retailers react to Trump’s tariffs on Canada, Mexico, and China](https://finance.yahoo.com/news/us-retailers-react-trump-tariffs-074941717.html)
 - Feb 03 - [Why Bill Gates agrees with Nvidia's CEO on quantum's timeline](https://finance.yahoo.com/video/why-bill-gates-agrees-nvidias-050117080.html)
-- Feb 03 - [Africa knew Trump's 'America First' pledge meant it might be last. Then came the freeze on aid](https://www.yahoo.com/news/africa-knew-trumps-america-first-041331997.html)
 <!-- feed end -->
 
 ### Onstream
