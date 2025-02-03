@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Travellers, check out Cuba’s new must-have requirement to visit](https://www.yahoo.com/news/travellers-check-cuba-must-requirement-104816719.html)
-- Feb 03 - [Naples police officers must know how to shoot their guns in darkness](https://www.yahoo.com/news/naples-police-officers-must-know-100520548.html)
-- Feb 03 - [Tiny endangered froglets saved from deadly fungus in dramatic 7,000-mile rescue](https://www.yahoo.com/news/tiny-endangered-froglets-saved-deadly-000604145.html)
-- Feb 03 - [February 2025's Prominent Dividend Stocks To Consider](https://finance.yahoo.com/news/february-2025s-prominent-dividend-stocks-100413451.html)
-- Feb 03 - [Epidemiologist Flags Dangers Of Donald Trump’s ‘Deeply Disturbing’ Data Scrub](https://www.yahoo.com/news/epidemiologist-flags-dangers-donald-trump-091239053.html)
+- Feb 03 - [Analysis: How to make US foreign aid work for Africa](https://www.yahoo.com/news/analysis-us-foreign-aid-africa-121224735.html)
+- Feb 03 - [Saudi state mining giant steps up search for copper](https://finance.yahoo.com/news/saudi-state-mining-giant-steps-120958211.html)
+- Feb 03 - [Scholz: European defence needs 'more determination'](https://www.yahoo.com/news/scholz-european-defence-needs-more-114827916.html)
+- Feb 03 - [NFL emails reveal extent of Saints' damage control for clergy sex abuse crisis](https://www.yahoo.com/news/nfl-emails-reveal-extent-saints-114651106.html)
+- Feb 03 - [Movement of trucks seen at Rafah Crossing as ceasefire continues to gain traction](https://www.yahoo.com/news/movement-trucks-seen-rafah-crossing-112106788.html)
 <!-- feed end -->
 
 ### Onstream
