@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Analysis: How to make US foreign aid work for Africa](https://www.yahoo.com/news/analysis-us-foreign-aid-africa-121224735.html)
-- Feb 03 - [Saudi state mining giant steps up search for copper](https://finance.yahoo.com/news/saudi-state-mining-giant-steps-120958211.html)
-- Feb 03 - [Scholz: European defence needs 'more determination'](https://www.yahoo.com/news/scholz-european-defence-needs-more-114827916.html)
+- Feb 03 - [Does Dutch Bros (BROS) Have the Potential to be a Long-Duration EPS Growth Business?](https://finance.yahoo.com/news/does-dutch-bros-bros-potential-124050716.html)
 - Feb 03 - [NFL emails reveal extent of Saints' damage control for clergy sex abuse crisis](https://www.yahoo.com/news/nfl-emails-reveal-extent-saints-114651106.html)
-- Feb 03 - [Movement of trucks seen at Rafah Crossing as ceasefire continues to gain traction](https://www.yahoo.com/news/movement-trucks-seen-rafah-crossing-112106788.html)
+- Feb 03 - [Did you feel it? 3rd earthquake this week detected off coast of New England](https://www.yahoo.com/news/did-feel-3rd-earthquake-week-160645981.html)
+- Feb 03 - [Marjorie Taylor Greene’s ‘Disturbing’ Post About Reporter’s Foreign Accent Is Slammed](https://www.yahoo.com/news/marjorie-taylor-greene-disturbing-post-100355164.html)
+- Feb 03 - [Scientists puzzled by disturbing discovery while analyzing areas after heavy rainfall — here's what they found](https://www.yahoo.com/news/scientists-puzzled-disturbing-discovery-while-100053119.html)
 <!-- feed end -->
 
 ### Onstream
