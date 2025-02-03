@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Why Bill Gates wouldn't want to be in Nvidia's CEO's shoes](https://finance.yahoo.com/video/why-bill-gates-wouldnt-want-190053023.html)
-- Feb 03 - [Arrest made in case where man was fatally shot while playing a video game in NE Ocala](https://www.yahoo.com/news/arrest-made-case-where-man-182705582.html)
+- Feb 03 - [Alphabet faces scrutiny on AI spending as Google cloud growth slows](https://finance.yahoo.com/news/alphabet-faces-scrutiny-ai-spending-194627114.html)
+- Feb 03 - [Did RFK Jr. mislead the Senate on measles deaths in Samoa? The island nation's health chief says yes](https://www.yahoo.com/news/did-rfk-jr-mislead-senate-192232133.html)
+- Feb 03 - [Trump says he wants Ukraine's rare earth elements as a condition of further support](https://www.yahoo.com/news/trump-says-wants-ukraines-rare-191545599.html)
+- Feb 03 - [Trump orders creation of US sovereign wealth fund, says it could own part of TikTok](https://finance.yahoo.com/news/trump-orders-creation-us-sovereign-185926141.html)
 - Feb 03 - [Mass. bracing for potentially disruptive winter storm packing snow, ice. Here’s the latest timeline](https://www.yahoo.com/news/mass-bracing-potentially-disruptive-winter-180241158.html)
-- Feb 03 - [Former Ohio State cornerback admits strangling woman during alcohol-fueled argument](https://www.yahoo.com/news/former-ohio-state-cornerback-admits-175434104.html)
-- Feb 03 - [What to know about the Philadelphia plane crash that killed at least 7](https://www.yahoo.com/news/know-philadelphia-plane-crash-killed-170822312.html)
 <!-- feed end -->
 
 ### Onstream
