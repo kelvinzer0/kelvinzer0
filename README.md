@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 03 - [Africa knew Trump's 'America First' pledge meant it might be last. Then came the freeze on aid](https://www.yahoo.com/news/africa-knew-trumps-america-first-041331997.html)
 - Feb 03 - [El Paso Police ask for your help in missing woman, dog last seen in Upper Valley](https://www.yahoo.com/news/el-paso-police-ask-help-010538628.html)
 - Feb 03 - [Mark Cuban Said If He Had Enough Money To Buy Fox News, He'd 'Buy It In A Heartbeat' - Estimates It Could Turn Around For $15B-$20B](https://finance.yahoo.com/news/mark-cuban-said-had-enough-003616772.html)
-- Feb 02 - [Parent at a Texas school band competition tackles a gunman who injured 1, officials say](https://www.yahoo.com/news/parent-texas-school-band-competition-230505756.html)
+- Feb 03 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
 <!-- feed end -->
 
 ### Onstream
