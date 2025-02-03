@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [British teenager killed by Russian drone 'minutes into first mission' in Ukraine](https://www.yahoo.com/news/british-teenager-killed-russian-drone-160601694.html)
-- Feb 03 - [Young woman arrested after person found dead on Boston houseboat arraigned on unrelated charges](https://www.yahoo.com/news/young-woman-arrested-person-found-172752499.html)
-- Feb 03 - [Ukrainian commander who invaded Russia said his troops had no idea that's where they were going until the last minute](https://www.yahoo.com/news/ukrainian-commander-invaded-russia-said-170132731.html)
-- Feb 03 - [Stock market today: Dow, S&P 500, Nasdaq pare losses after Trump delays tariffs against Mexico](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-pare-losses-after-trump-delays-tariffs-against-mexico-164925592.html)
-- Feb 03 - [I’m a Federal Worker. Elon Musk’s Government Data Heist Is the Entire Ballgame.](https://www.yahoo.com/news/m-federal-worker-elon-musk-153448903.html)
+- Feb 03 - [Why Bill Gates wouldn't want to be in Nvidia's CEO's shoes](https://finance.yahoo.com/video/why-bill-gates-wouldnt-want-190053023.html)
+- Feb 03 - [Arrest made in case where man was fatally shot while playing a video game in NE Ocala](https://www.yahoo.com/news/arrest-made-case-where-man-182705582.html)
+- Feb 03 - [Mass. bracing for potentially disruptive winter storm packing snow, ice. Here’s the latest timeline](https://www.yahoo.com/news/mass-bracing-potentially-disruptive-winter-180241158.html)
+- Feb 03 - [Former Ohio State cornerback admits strangling woman during alcohol-fueled argument](https://www.yahoo.com/news/former-ohio-state-cornerback-admits-175434104.html)
+- Feb 03 - [What to know about the Philadelphia plane crash that killed at least 7](https://www.yahoo.com/news/know-philadelphia-plane-crash-killed-170822312.html)
 <!-- feed end -->
 
 ### Onstream
