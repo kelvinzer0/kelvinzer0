@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Dow, Nasdaq, S&P 500 sink following weekend's Trump tariffs](https://finance.yahoo.com/video/dow-nasdaq-p-500-sink-143942360.html)
-- Feb 03 - [White House says Canada has 'misunderstood' tariff order as a trade war, Mexico is 'serious'](https://www.yahoo.com/news/white-house-mexico-serious-canada-133644275.html)
+- Feb 03 - [Democratic senators express concern about RFK Jr. investments in vaccine lawsuits](https://www.yahoo.com/news/democratic-senators-express-concern-rfk-153900731.html)
+- Feb 03 - [Stock market today: Dow, S&P 500, Nasdaq pare losses after US delays tariffs against Mexico](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-pare-losses-after-us-delays-tariffs-against-mexico-153807051.html)
+- Feb 03 - [What Amazon, Alphabet earnings could say about Mag 7 trade](https://finance.yahoo.com/video/amazon-alphabet-earnings-could-mag-153213823.html)
 - Feb 03 - [The ‘ultimate selfie’ has claimed up to 480 lives – yet the craze shows no signs of ending](https://www.yahoo.com/lifestyle/ultimate-selfie-claimed-480-lives-133625749.html)
-- Feb 03 - [‘You’ll be free too’: Kevin O’Leary says you’ll be a ‘multimillionaire’ if you can do 1 crucial thing in America](https://finance.yahoo.com/news/ll-free-too-kevin-o-120100829.html)
-- Feb 03 - [Woman, 34, Arrested After Police Say She Threw 'First Date' Brick Through Ex-Husband's Window](https://www.yahoo.com/entertainment/woman-34-arrested-police-she-115207234.html)
+- Feb 03 - [Ontario premier says he's 'ripping up' $100m contract with Musk's Starlink in response to US tariffs](https://www.yahoo.com/news/ontario-premier-says-hes-ripping-133352242.html)
 <!-- feed end -->
 
 ### Onstream
