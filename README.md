@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Democratic senators express concern about RFK Jr. investments in vaccine lawsuits](https://www.yahoo.com/news/democratic-senators-express-concern-rfk-153900731.html)
-- Feb 03 - [Stock market today: Dow, S&P 500, Nasdaq pare losses after US delays tariffs against Mexico](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-pare-losses-after-us-delays-tariffs-against-mexico-153807051.html)
+- Feb 03 - [Stock market today: Dow, S&P 500, Nasdaq pare losses after Trump delays tariffs against Mexico](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-pare-losses-after-trump-delays-tariffs-against-mexico-164925592.html)
+- Feb 03 - [Top 3 Dividend Stocks To Consider For Your Portfolio](https://finance.yahoo.com/news/top-3-dividend-stocks-consider-160415266.html)
+- Feb 03 - [I’m a Federal Worker. Elon Musk’s Government Data Heist Is the Entire Ballgame.](https://www.yahoo.com/news/m-federal-worker-elon-musk-153448903.html)
 - Feb 03 - [What Amazon, Alphabet earnings could say about Mag 7 trade](https://finance.yahoo.com/video/amazon-alphabet-earnings-could-mag-153213823.html)
 - Feb 03 - [The ‘ultimate selfie’ has claimed up to 480 lives – yet the craze shows no signs of ending](https://www.yahoo.com/lifestyle/ultimate-selfie-claimed-480-lives-133625749.html)
-- Feb 03 - [Ontario premier says he's 'ripping up' $100m contract with Musk's Starlink in response to US tariffs](https://www.yahoo.com/news/ontario-premier-says-hes-ripping-133352242.html)
 <!-- feed end -->
 
 ### Onstream
