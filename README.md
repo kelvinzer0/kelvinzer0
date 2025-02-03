@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [White House: Mexico is 'serious', Canada appears to have 'misunderstood' Trump's executive order](https://www.yahoo.com/news/white-house-mexico-serious-canada-133644275.html)
-- Feb 03 - [RMDs Are Mandatory, But I Don't Need the Cash - What Should I Do?](https://finance.yahoo.com/news/rmds-dont-money-yet-140430152.html)
-- Feb 03 - [Families of victims of deadly midair collision near Washington, D.C., visit wreckage site](https://www.yahoo.com/news/families-victims-deadly-midair-collision-132632597.html)
-- Feb 03 - [Gateway: The 21st-century moonshot mission](https://www.yahoo.com/news/gateway-21st-century-moonshot-mission-130000283.html)
-- Feb 03 - [NFL emails reveal extent of Saints' damage control for clergy sex abuse crisis](https://www.yahoo.com/news/nfl-emails-reveal-extent-saints-114651106.html)
+- Feb 03 - [Dow, Nasdaq, S&P 500 sink following weekend's Trump tariffs](https://finance.yahoo.com/video/dow-nasdaq-p-500-sink-143942360.html)
+- Feb 03 - [White House says Canada has 'misunderstood' tariff order as a trade war, Mexico is 'serious'](https://www.yahoo.com/news/white-house-mexico-serious-canada-133644275.html)
+- Feb 03 - [The ‘ultimate selfie’ has claimed up to 480 lives – yet the craze shows no signs of ending](https://www.yahoo.com/lifestyle/ultimate-selfie-claimed-480-lives-133625749.html)
+- Feb 03 - [‘You’ll be free too’: Kevin O’Leary says you’ll be a ‘multimillionaire’ if you can do 1 crucial thing in America](https://finance.yahoo.com/news/ll-free-too-kevin-o-120100829.html)
+- Feb 03 - [Woman, 34, Arrested After Police Say She Threw 'First Date' Brick Through Ex-Husband's Window](https://www.yahoo.com/entertainment/woman-34-arrested-police-she-115207234.html)
 <!-- feed end -->
 
 ### Onstream
