@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 03 - [British teenager killed by Russian drone 'minutes into first mission' in Ukraine](https://www.yahoo.com/news/british-teenager-killed-russian-drone-160601694.html)
+- Feb 03 - [Young woman arrested after person found dead on Boston houseboat arraigned on unrelated charges](https://www.yahoo.com/news/young-woman-arrested-person-found-172752499.html)
+- Feb 03 - [Ukrainian commander who invaded Russia said his troops had no idea that's where they were going until the last minute](https://www.yahoo.com/news/ukrainian-commander-invaded-russia-said-170132731.html)
 - Feb 03 - [Stock market today: Dow, S&P 500, Nasdaq pare losses after Trump delays tariffs against Mexico](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-pare-losses-after-trump-delays-tariffs-against-mexico-164925592.html)
-- Feb 03 - [Top 3 Dividend Stocks To Consider For Your Portfolio](https://finance.yahoo.com/news/top-3-dividend-stocks-consider-160415266.html)
 - Feb 03 - [I’m a Federal Worker. Elon Musk’s Government Data Heist Is the Entire Ballgame.](https://www.yahoo.com/news/m-federal-worker-elon-musk-153448903.html)
-- Feb 03 - [What Amazon, Alphabet earnings could say about Mag 7 trade](https://finance.yahoo.com/video/amazon-alphabet-earnings-could-mag-153213823.html)
-- Feb 03 - [The ‘ultimate selfie’ has claimed up to 480 lives – yet the craze shows no signs of ending](https://www.yahoo.com/lifestyle/ultimate-selfie-claimed-480-lives-133625749.html)
 <!-- feed end -->
 
 ### Onstream
