@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Polestar takes tariffs 'very serious.' CEO talks US manufacturing](https://finance.yahoo.com/video/polestar-takes-tariffs-very-serious-214657386.html)
-- Feb 03 - [Alphabet to report Q4 earnings as investors look to cloud growth, AI spending](https://finance.yahoo.com/news/alphabet-to-report-q4-earnings-as-investors-look-to-cloud-growth-ai-spending-212322356.html)
+- Feb 03 - [Former LDS bishop charged with sexual assault of 16-year-old girl](https://www.yahoo.com/news/former-lds-bishop-charged-sexual-203700611.html)
+- Feb 03 - [Ski lift at popular New Hampshire resort remains closed after chair detaches, man falls 20 feet](https://www.yahoo.com/news/ski-lift-popular-hampshire-resort-203150055.html)
 - Feb 03 - [American Airlines Collision: Army Helicopter Warned Twice Before Crash](https://www.yahoo.com/news/american-airlines-collision-army-helicopter-201957605.html)
-- Feb 03 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
-- Feb 03 - [Bill Gates reminder on Intel struggles: One can get 'annihilated' if you miss a turn in the market](https://finance.yahoo.com/news/bill-gates-reminder-on-intel-struggles-one-can-get-annihilated-if-you-miss-a-turn-in-the-market-200028989.html)
+- Feb 03 - [Child crash victims were on e-scooter, say police](https://www.yahoo.com/news/child-crash-victims-were-e-193606139.html)
+- Feb 03 - [Mark Cuban Suggests 20-Minute Daily Habit to 'Destabilize' Musk, Zuckerberg, and Even President Trump](https://finance.yahoo.com/news/mark-cuban-suggests-20-minute-193015543.html)
 <!-- feed end -->
 
 ### Onstream
