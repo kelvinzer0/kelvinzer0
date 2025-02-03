@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 03 - [Why Bill Gates agrees with Nvidia's CEO on quantum's timeline](https://finance.yahoo.com/video/why-bill-gates-agrees-nvidias-050117080.html)
 - Feb 03 - [Africa knew Trump's 'America First' pledge meant it might be last. Then came the freeze on aid](https://www.yahoo.com/news/africa-knew-trumps-america-first-041331997.html)
-- Feb 03 - [How Trump's tariffs might affect commodity and energy sectors](https://finance.yahoo.com/news/trumps-tariffs-might-affect-commodity-033032872.html)
-- Feb 03 - [Trump and Musk’s friendship takes a dark turn](https://www.yahoo.com/news/trump-musk-friendship-takes-dark-014043562.html)
-- Feb 03 - [Panama president says he won’t renew Belt and Road deal with China, as US demands less Chinese influence over canal](https://www.yahoo.com/news/panama-president-says-won-t-012947370.html)
+- Feb 03 - [El Paso Police ask for your help in missing woman, dog last seen in Upper Valley](https://www.yahoo.com/news/el-paso-police-ask-help-010538628.html)
 - Feb 03 - [Mark Cuban Said If He Had Enough Money To Buy Fox News, He'd 'Buy It In A Heartbeat' - Estimates It Could Turn Around For $15B-$20B](https://finance.yahoo.com/news/mark-cuban-said-had-enough-003616772.html)
+- Feb 02 - [Parent at a Texas school band competition tackles a gunman who injured 1, officials say](https://www.yahoo.com/news/parent-texas-school-band-competition-230505756.html)
 <!-- feed end -->
 
 ### Onstream
