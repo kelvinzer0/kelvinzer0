@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Hunters who didn’t want to stop shooting get ‘sad slap on the wrist’](https://www.yahoo.com/news/hunters-didn-t-want-stop-170140236.html)
-- Feb 04 - [Dave Ramsey To 47-Year-Old Caller: "Fire Your Tax Advisor" After He Was Told To Switch From A Roth To A Traditional 401(k) For Tax Deduction](https://finance.yahoo.com/news/dave-ramsey-47-old-caller-164518030.html)
+- Feb 04 - [Trump and Musk demand termination of federal office leases through General Services Administration](https://www.yahoo.com/news/trump-musk-demand-termination-federal-190050546.html)
+- Feb 04 - [Can an executive order eliminate the Department of Education?](https://www.yahoo.com/news/executive-order-eliminate-department-education-180944663.html)
+- Feb 04 - [Italian politicians seek action against Trump Jr. hunting party for allegedly killing protected duck](https://www.yahoo.com/news/italian-politicians-seek-action-against-171607872.html)
 - Feb 04 - [Thousands leave as fresh tremors shake Greece's Santorini](https://www.yahoo.com/news/thousands-leave-fresh-tremors-shake-162337965.html)
 - Feb 04 - [Mexican president shrugs off Ecuador tariff announcement](https://www.yahoo.com/news/mexican-president-shrugs-off-ecuador-162224378.html)
-- Feb 04 - [Mark Cuban Says If You Want To Get Rich, 'Throw A Hail Mary' And Invest 10% Of Savings In Bitcoin, But You Must Pretend You Already Lost It](https://finance.yahoo.com/news/mark-cuban-says-want-rich-161518373.html)
 <!-- feed end -->
 
 ### Onstream
