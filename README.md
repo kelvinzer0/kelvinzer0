@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [Former LDS bishop charged with sexual assault of 16-year-old girl](https://www.yahoo.com/news/former-lds-bishop-charged-sexual-203700611.html)
-- Feb 03 - [Ski lift at popular New Hampshire resort remains closed after chair detaches, man falls 20 feet](https://www.yahoo.com/news/ski-lift-popular-hampshire-resort-203150055.html)
-- Feb 03 - [American Airlines Collision: Army Helicopter Warned Twice Before Crash](https://www.yahoo.com/news/american-airlines-collision-army-helicopter-201957605.html)
-- Feb 03 - [Child crash victims were on e-scooter, say police](https://www.yahoo.com/news/child-crash-victims-were-e-193606139.html)
-- Feb 03 - [Mark Cuban Suggests 20-Minute Daily Habit to 'Destabilize' Musk, Zuckerberg, and Even President Trump](https://finance.yahoo.com/news/mark-cuban-suggests-20-minute-193015543.html)
+- Feb 04 - [Prediction: Disney Will Soar in 2025 and Beyond Thanks to This 1 Thing](https://finance.yahoo.com/news/prediction-disney-soar-2025-beyond-010500731.html)
+- Feb 04 - [Apple raises concern over first porn app on iPhone under EU rules](https://www.yahoo.com/news/apple-raises-concern-over-first-003631258.html)
+- Feb 04 - [A$AP Rocky accuser ends a long slog on the witness stand and lashes out at 'annoying' defense lawyer](https://www.yahoo.com/news/ap-rocky-accuser-ends-long-003245554.html)
+- Feb 03 - [Two weeks after leaving White House, former President Joe Biden signs with talent agency](https://www.yahoo.com/entertainment/two-weeks-leaving-white-house-232624539.html)
+- Feb 03 - [Palestinian family demands justice after Israeli military kills 2-year-old girl in West Bank](https://www.yahoo.com/news/palestinian-family-demands-justice-israeli-231644111.html)
 <!-- feed end -->
 
 ### Onstream
