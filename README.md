@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Eight cancer-fighting foods you can start eating now](https://www.yahoo.com/lifestyle/world-cancer-day-food-healthy-diet-061240545.html)
 - Feb 04 - [El Salvador offers to house violent US criminals and deportees of any nationality in unprecedented deal](https://www.yahoo.com/news/el-salvador-offers-house-violent-040702060.html)
 - Feb 04 - [Despite 20 knife wounds and 11 bruises, Ellen Greenberg’s death was ruled a suicide. The pathologist just changed his mind](https://www.yahoo.com/news/despite-20-knife-wounds-11-012600024.html)
 - Feb 04 - [Elon Musk creates confusion about IRS' Direct File — but the free tax program is still available](https://finance.yahoo.com/news/elon-musk-creates-confusion-irs-015928331.html)
-- Feb 04 - [New details of Assad's final 24 hours in Syria before his regime collapsed](https://www.yahoo.com/news/details-assads-final-24-hours-010009851.html)
+- Feb 04 - [Apple raises concern over first porn app on iPhone under EU rules](https://www.yahoo.com/news/apple-raises-concern-over-first-003631258.html)
+- Feb 03 - [Two weeks after leaving White House, former President Joe Biden signs with talent agency](https://www.yahoo.com/entertainment/two-weeks-leaving-white-house-232624539.html)
 <!-- feed end -->
 
 ### Onstream
