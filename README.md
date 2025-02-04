@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Trump and Musk demand termination of federal office leases through General Services Administration](https://www.yahoo.com/news/trump-musk-demand-termination-federal-190050546.html)
-- Feb 04 - [Can an executive order eliminate the Department of Education?](https://www.yahoo.com/news/executive-order-eliminate-department-education-180944663.html)
-- Feb 04 - [Italian politicians seek action against Trump Jr. hunting party for allegedly killing protected duck](https://www.yahoo.com/news/italian-politicians-seek-action-against-171607872.html)
-- Feb 04 - [Thousands leave as fresh tremors shake Greece's Santorini](https://www.yahoo.com/news/thousands-leave-fresh-tremors-shake-162337965.html)
-- Feb 04 - [Mexican president shrugs off Ecuador tariff announcement](https://www.yahoo.com/news/mexican-president-shrugs-off-ecuador-162224378.html)
+- Feb 04 - [Multiple people killed in ‘worst mass shooting in Swedish history,’ authorities say](https://www.yahoo.com/news/five-people-shot-school-central-144004042.html)
+- Feb 04 - [Trump says he's given advisers instructions for Iran to be 'obliterated' if it assassinates him](https://www.yahoo.com/news/trump-says-hes-given-advisers-202131425.html)
+- Feb 04 - [Black Bear Found Living In Altadena Crawl Space After Fire](https://www.yahoo.com/news/black-bear-found-living-altadena-200035410.html)
+- Feb 04 - [Ice storm takes aim at Midwest. What Hoosiers can expect after warm start to the week](https://www.yahoo.com/news/ice-storm-takes-aim-midwest-193411752.html)
+- Feb 04 - [Boeing executive says supplier Spirit Aero has a substantial inventory of 737 fuselages](https://finance.yahoo.com/news/boeing-executive-says-supplier-spirit-191646471.html)
 <!-- feed end -->
 
 ### Onstream
