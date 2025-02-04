@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [More than 20,000 US federal workers sign up for buyout offer](https://www.yahoo.com/news/more-20-000-us-federal-180511317.html)
+- Feb 04 - [Freezing rain expected, ice possible in Lansing as major winter storm moves into Michigan](https://www.yahoo.com/news/freezing-rain-expected-ice-possible-165801308.html)
+- Feb 04 - [Thousands leave as fresh tremors shake Greece's Santorini](https://www.yahoo.com/news/thousands-leave-fresh-tremors-shake-162337965.html)
 - Feb 04 - [Mark Cuban Says If You Want To Get Rich, 'Throw A Hail Mary' And Invest 10% Of Savings In Bitcoin, But You Must Pretend You Already Lost It](https://finance.yahoo.com/news/mark-cuban-says-want-rich-161518373.html)
 - Feb 04 - [Asteroid impact on moon blasted two grand canyons in 10 minutes](https://www.yahoo.com/news/asteroid-impact-moon-blasted-two-160739358.html)
-- Feb 04 - [Back in the USSR: Putin revives Soviet-era 'Eurovision' with new allies](https://www.yahoo.com/news/back-ussr-putin-revives-soviet-144212803.html)
-- Feb 04 - [Breaking Down How Much Time Biden Spent on Vacation While President – It's Not 40%](https://www.yahoo.com/news/breaking-down-much-time-biden-140000701.html)
-- Feb 04 - [Argentina breeds world's first genetically-edited polo horses](https://www.yahoo.com/news/argentina-breeds-worlds-first-genetically-134359384.html)
 <!-- feed end -->
 
 ### Onstream
