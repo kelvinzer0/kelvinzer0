@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Prediction: Disney Will Soar in 2025 and Beyond Thanks to This 1 Thing](https://finance.yahoo.com/news/prediction-disney-soar-2025-beyond-010500731.html)
-- Feb 04 - [Apple raises concern over first porn app on iPhone under EU rules](https://www.yahoo.com/news/apple-raises-concern-over-first-003631258.html)
+- Feb 04 - [New details of Assad's final 24 hours in Syria before his regime collapsed](https://www.yahoo.com/news/details-assads-final-24-hours-010009851.html)
 - Feb 04 - [A$AP Rocky accuser ends a long slog on the witness stand and lashes out at 'annoying' defense lawyer](https://www.yahoo.com/news/ap-rocky-accuser-ends-long-003245554.html)
-- Feb 03 - [Two weeks after leaving White House, former President Joe Biden signs with talent agency](https://www.yahoo.com/entertainment/two-weeks-leaving-white-house-232624539.html)
-- Feb 03 - [Palestinian family demands justice after Israeli military kills 2-year-old girl in West Bank](https://www.yahoo.com/news/palestinian-family-demands-justice-israeli-231644111.html)
+- Feb 03 - [In separate incidents, 2 hikers die in Great Smoky Mountains, Zion national parks](https://www.yahoo.com/news/separate-incidents-2-hikers-die-233147713.html)
+- Feb 03 - ['Ultimate ocean warrior': Colossal great white shark tracked off Florida coast. What to know](https://www.yahoo.com/news/ultimate-ocean-warrior-colossal-great-223013002.html)
+- Feb 03 - [Judge orders acquittal of ex-prosecutor on 1 of 2 counts in misconduct trial over Ahmaud Arbery case](https://www.yahoo.com/news/judge-orders-acquittal-ex-prosecutor-214636163.html)
 <!-- feed end -->
 
 ### Onstream
