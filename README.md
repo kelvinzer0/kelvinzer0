@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [El Salvador offers to house violent US criminals and deportees of any nationality in unprecedented deal](https://www.yahoo.com/news/el-salvador-offers-house-violent-040702060.html)
-- Feb 04 - [CBS News Hands Over Kamala Harris Interview Transcript, ’60 Minutes’ Chief Says He Won’t Apologize](https://www.yahoo.com/news/cbs-news-hands-over-kamala-050229972.html)
-- Feb 04 - [Extremely Rare 'Super Pod' of Dolphins Off CA Coast Is Being Called a 'Sign'](https://www.yahoo.com/news/extremely-rare-super-pod-dolphins-020500522.html)
-- Feb 04 - [Elon Musk creates confusion about IRS' Direct File — but the free tax program is still available](https://finance.yahoo.com/news/elon-musk-creates-confusion-irs-015928331.html)
-- Feb 04 - [Apple raises concern over first porn app on iPhone under EU rules](https://www.yahoo.com/news/apple-raises-concern-over-first-003631258.html)
+- Feb 04 - [Blue Origin to simulate lunar gravity during New Shepard launch: How to watch](https://www.yahoo.com/news/blue-origin-simulate-lunar-gravity-125849163.html)
+- Feb 04 - [Bitcoin Slides as US-China Trade War Escalation Rattles Markets](https://finance.yahoo.com/news/bitcoin-slides-us-china-trade-081050353.html)
+- Feb 04 - [Grieving families of war heroes face £180k death duty bills](https://www.yahoo.com/news/grieving-families-war-heroes-face-122432538.html)
+- Feb 04 - [Archaeologists pinpoint the home of an 11th century king depicted on the Bayeux Tapestry](https://www.yahoo.com/news/archaeologists-pinpoint-home-11th-century-121658646.html)
+- Feb 04 - [Gerber recalls teething sticks | CW39 HOUSTON](https://www.yahoo.com/news/gerber-recalls-teething-sticks-cw39-115457183.html)
 <!-- feed end -->
 
 ### Onstream
