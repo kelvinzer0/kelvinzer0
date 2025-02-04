@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [Nvidia sell-off hasn't rocked this bull looking for a nearly 60% pop in the AI darling](https://finance.yahoo.com/news/nvidia-sell-off-hasnt-rocked-this-bull-looking-for-a-nearly-60-pop-in-the-ai-darling-155843344.html)
 - Feb 04 - [Back in the USSR: Putin revives Soviet-era 'Eurovision' with new allies](https://www.yahoo.com/news/back-ussr-putin-revives-soviet-144212803.html)
+- Feb 04 - [Woman dies in fiery Tesla crash on Manhattan’s FDR Drive](https://www.yahoo.com/news/woman-dies-fiery-tesla-crash-142000582.html)
 - Feb 04 - [Marcus Jordan, Michael Jordan's son, arrested on DUI, cocaine possession charges](https://sports.yahoo.com/marcus-jordan-michael-jordans-son-arrested-on-dui-cocaine-possession-charges-140327283.html)
 - Feb 04 - [Breaking Down How Much Time Biden Spent on Vacation While President – It's Not 40%](https://www.yahoo.com/news/breaking-down-much-time-biden-140000701.html)
-- Feb 04 - [‘The whole island has emptied:’ Thousands flee Santorini as quakes rattle Greek tourist haven](https://www.yahoo.com/news/whole-island-emptied-thousands-flee-101902285.html)
-- Feb 04 - [Microsoft's Bill Gates issues this key reminder to Nvidia bulls](https://finance.yahoo.com/news/microsofts-bill-gates-issues-this-key-reminder-to-nvidia-bulls-125913525.html)
 <!-- feed end -->
 
 ### Onstream
