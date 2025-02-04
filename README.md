@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Porn star says his career was destroyed by false claims he nearly killed a dog with meth](https://www.yahoo.com/news/porn-star-says-career-destroyed-212627191.html)
-- Feb 04 - [Mondelez forecasts steep drop in annual profit on soaring cocoa prices](https://finance.yahoo.com/news/mondelez-misses-fourth-quarter-revenue-212006439.html)
-- Feb 04 - [Google parent Alphabet plans $75 billion capital expenditures this year, misses on cloud revenue](https://finance.yahoo.com/news/google-parent-alphabet-misses-quarterly-210818617.html)
-- Feb 04 - [At least 10 dead 'after worst school shooting in Sweden's history'](https://www.yahoo.com/news/moment-people-fled-deadliest-school-195446727.html)
+- Feb 04 - [At least one dead in I-10 crash; expect major traffic delays](https://www.yahoo.com/news/least-one-dead-10-crash-224838293.html)
+- Feb 04 - [Why assessing tariffs means considering 'different scenarios'](https://finance.yahoo.com/video/why-assessing-tariffs-means-considering-223434493.html)
+- Feb 04 - [Watch: Albanian burglar who cannot be deported taunts Home Office by driving Rolls-Royce in London](https://www.yahoo.com/news/watch-albanian-burglar-cannot-deported-194854885.html)
 - Feb 04 - [Trump says he's given advisers instructions for Iran to be 'obliterated' if it assassinates him](https://www.yahoo.com/news/trump-says-hes-given-advisers-202131425.html)
+- Feb 04 - [Boeing executive says supplier Spirit Aero has a substantial inventory of 737 fuselages](https://finance.yahoo.com/news/boeing-executive-says-supplier-spirit-191646471.html)
 <!-- feed end -->
 
 ### Onstream
