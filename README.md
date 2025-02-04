@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Crews remove wreckage in Potomac River after midair collision last week](https://www.yahoo.com/news/crews-remove-wreckage-potomac-river-135837264.html)
-- Feb 04 - [Galaxy S25 and S25 Plus Review: AI Finally Makes Itself Useful (Mostly)](https://www.yahoo.com/tech/galaxy-s25-s25-plus-review-130003317.html)
+- Feb 04 - [Back in the USSR: Putin revives Soviet-era 'Eurovision' with new allies](https://www.yahoo.com/news/back-ussr-putin-revives-soviet-144212803.html)
+- Feb 04 - [Marcus Jordan, Michael Jordan's son, arrested on DUI, cocaine possession charges](https://sports.yahoo.com/marcus-jordan-michael-jordans-son-arrested-on-dui-cocaine-possession-charges-140327283.html)
+- Feb 04 - [Breaking Down How Much Time Biden Spent on Vacation While President – It's Not 40%](https://www.yahoo.com/news/breaking-down-much-time-biden-140000701.html)
+- Feb 04 - [‘The whole island has emptied:’ Thousands flee Santorini as quakes rattle Greek tourist haven](https://www.yahoo.com/news/whole-island-emptied-thousands-flee-101902285.html)
 - Feb 04 - [Microsoft's Bill Gates issues this key reminder to Nvidia bulls](https://finance.yahoo.com/news/microsofts-bill-gates-issues-this-key-reminder-to-nvidia-bulls-125913525.html)
-- Feb 04 - [Van Jones Says the Latest Trump Appointee Is One of the ‘Worst People Ever Born’](https://www.yahoo.com/news/van-jones-says-latest-trump-112216968.html)
-- Feb 04 - [Ukrainian commander says North Korean soldiers charged his unit 'like in a World War II movie' during combat](https://www.yahoo.com/news/ukrainian-commander-says-north-korean-102001951.html)
 <!-- feed end -->
 
 ### Onstream
