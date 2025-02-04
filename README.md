@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Multiple people killed in ‘worst mass shooting in Swedish history,’ authorities say](https://www.yahoo.com/news/five-people-shot-school-central-144004042.html)
+- Feb 04 - [Porn star says his career was destroyed by false claims he nearly killed a dog with meth](https://www.yahoo.com/news/porn-star-says-career-destroyed-212627191.html)
+- Feb 04 - [Mondelez forecasts steep drop in annual profit on soaring cocoa prices](https://finance.yahoo.com/news/mondelez-misses-fourth-quarter-revenue-212006439.html)
+- Feb 04 - [Google parent Alphabet plans $75 billion capital expenditures this year, misses on cloud revenue](https://finance.yahoo.com/news/google-parent-alphabet-misses-quarterly-210818617.html)
+- Feb 04 - [At least 10 dead 'after worst school shooting in Sweden's history'](https://www.yahoo.com/news/moment-people-fled-deadliest-school-195446727.html)
 - Feb 04 - [Trump says he's given advisers instructions for Iran to be 'obliterated' if it assassinates him](https://www.yahoo.com/news/trump-says-hes-given-advisers-202131425.html)
-- Feb 04 - [Black Bear Found Living In Altadena Crawl Space After Fire](https://www.yahoo.com/news/black-bear-found-living-altadena-200035410.html)
-- Feb 04 - [Ice storm takes aim at Midwest. What Hoosiers can expect after warm start to the week](https://www.yahoo.com/news/ice-storm-takes-aim-midwest-193411752.html)
-- Feb 04 - [Boeing executive says supplier Spirit Aero has a substantial inventory of 737 fuselages](https://finance.yahoo.com/news/boeing-executive-says-supplier-spirit-191646471.html)
 <!-- feed end -->
 
 ### Onstream
