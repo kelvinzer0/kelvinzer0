@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - ['My son was 18 and went to Ukraine as cannon fodder'](https://www.yahoo.com/news/son-18-went-ukraine-cannon-063638301.html)
+- Feb 04 - [Prague museum to host first European display of 3.18 million year old Lucy](https://www.yahoo.com/news/prague-museum-host-first-european-103948436.html)
+- Feb 04 - [Purdue dorm resident assistants push their case for a union; top concern is sharing rooms](https://www.yahoo.com/news/purdue-dorm-resident-assistants-push-101045071.html)
+- Feb 04 - [3M Stock: Buy, Sell, or Hold?](https://finance.yahoo.com/news/3m-stock-buy-sell-hold-095200040.html)
+- Feb 04 - [2 Stock-Split AI Stocks to Buy Before They Soar in 2025, According to Wall Street](https://finance.yahoo.com/news/2-stock-split-ai-stocks-084000130.html)
 - Feb 04 - [El Salvador offers to house violent US criminals and deportees of any nationality in unprecedented deal](https://www.yahoo.com/news/el-salvador-offers-house-violent-040702060.html)
-- Feb 04 - [Elon Musk creates confusion about IRS' Direct File — but the free tax program is still available](https://finance.yahoo.com/news/elon-musk-creates-confusion-irs-015928331.html)
-- Feb 04 - [El Pasoan killed in crash along I-10 in Las Cruces](https://www.yahoo.com/news/el-pasoan-killed-crash-along-010842498.html)
-- Feb 03 - [Target is sued for defrauding shareholders about DEI](https://finance.yahoo.com/news/target-sued-defrauding-shareholders-dei-224901614.html)
 <!-- feed end -->
 
 ### Onstream
