@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [Elon Musk creates confusion about IRS' Direct File — but the free tax program is still available](https://finance.yahoo.com/news/elon-musk-creates-confusion-irs-015928331.html)
+- Feb 03 - [Pensacola woman sentenced for causing 2022 deadly crash in Santa Rosa County, officials say](https://www.yahoo.com/news/pensacola-woman-sentenced-causing-2022-234947072.html)
 - Feb 03 - [Peter Lynch's Stock Tips: 'There's No Shame In Losing Money On A Stock, What Is Shameful Is To Hold On To A Stock When Fundamentals Are Deteriorating'](https://finance.yahoo.com/news/peter-lynchs-stock-tips-theres-223041098.html)
+- Feb 03 - [Meta says it may stop development of AI systems it deems too risky](https://finance.yahoo.com/news/meta-says-may-stop-development-215229315.html)
 - Feb 03 - [Wilted leaves signal bigger hit to Argentina's soy, corn harvest](https://www.yahoo.com/news/wilted-leaves-signal-bigger-hit-214819917.html)
-- Feb 03 - [Judge orders acquittal of ex-prosecutor on 1 of 2 counts in misconduct trial over Ahmaud Arbery case](https://www.yahoo.com/news/judge-orders-acquittal-ex-prosecutor-214636163.html)
-- Feb 03 - [Magma found under volcanoes thought dormant in the Cascade Range](https://www.yahoo.com/news/magma-found-under-volcanoes-thought-210323189.html)
-- Feb 03 - [Former LDS bishop charged with sexual assault of 16-year-old girl](https://www.yahoo.com/news/former-lds-bishop-charged-sexual-203700611.html)
 <!-- feed end -->
 
 ### Onstream
