@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Blue Origin to simulate lunar gravity during New Shepard launch: How to watch](https://www.yahoo.com/news/blue-origin-simulate-lunar-gravity-125849163.html)
-- Feb 04 - [Bitcoin Slides as US-China Trade War Escalation Rattles Markets](https://finance.yahoo.com/news/bitcoin-slides-us-china-trade-081050353.html)
-- Feb 04 - [Grieving families of war heroes face £180k death duty bills](https://www.yahoo.com/news/grieving-families-war-heroes-face-122432538.html)
-- Feb 04 - [Archaeologists pinpoint the home of an 11th century king depicted on the Bayeux Tapestry](https://www.yahoo.com/news/archaeologists-pinpoint-home-11th-century-121658646.html)
-- Feb 04 - [Gerber recalls teething sticks | CW39 HOUSTON](https://www.yahoo.com/news/gerber-recalls-teething-sticks-cw39-115457183.html)
+- Feb 04 - [Crews remove wreckage in Potomac River after midair collision last week](https://www.yahoo.com/news/crews-remove-wreckage-potomac-river-135837264.html)
+- Feb 04 - [Galaxy S25 and S25 Plus Review: AI Finally Makes Itself Useful (Mostly)](https://www.yahoo.com/tech/galaxy-s25-s25-plus-review-130003317.html)
+- Feb 04 - [Microsoft's Bill Gates issues this key reminder to Nvidia bulls](https://finance.yahoo.com/news/microsofts-bill-gates-issues-this-key-reminder-to-nvidia-bulls-125913525.html)
+- Feb 04 - [Van Jones Says the Latest Trump Appointee Is One of the ‘Worst People Ever Born’](https://www.yahoo.com/news/van-jones-says-latest-trump-112216968.html)
+- Feb 04 - [Ukrainian commander says North Korean soldiers charged his unit 'like in a World War II movie' during combat](https://www.yahoo.com/news/ukrainian-commander-says-north-korean-102001951.html)
 <!-- feed end -->
 
 ### Onstream
