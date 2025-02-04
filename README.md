@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [New details of Assad's final 24 hours in Syria before his regime collapsed](https://www.yahoo.com/news/details-assads-final-24-hours-010009851.html)
-- Feb 04 - [A$AP Rocky accuser ends a long slog on the witness stand and lashes out at 'annoying' defense lawyer](https://www.yahoo.com/news/ap-rocky-accuser-ends-long-003245554.html)
-- Feb 03 - [In separate incidents, 2 hikers die in Great Smoky Mountains, Zion national parks](https://www.yahoo.com/news/separate-incidents-2-hikers-die-233147713.html)
-- Feb 03 - ['Ultimate ocean warrior': Colossal great white shark tracked off Florida coast. What to know](https://www.yahoo.com/news/ultimate-ocean-warrior-colossal-great-223013002.html)
+- Feb 03 - [Peter Lynch's Stock Tips: 'There's No Shame In Losing Money On A Stock, What Is Shameful Is To Hold On To A Stock When Fundamentals Are Deteriorating'](https://finance.yahoo.com/news/peter-lynchs-stock-tips-theres-223041098.html)
+- Feb 03 - [Wilted leaves signal bigger hit to Argentina's soy, corn harvest](https://www.yahoo.com/news/wilted-leaves-signal-bigger-hit-214819917.html)
 - Feb 03 - [Judge orders acquittal of ex-prosecutor on 1 of 2 counts in misconduct trial over Ahmaud Arbery case](https://www.yahoo.com/news/judge-orders-acquittal-ex-prosecutor-214636163.html)
+- Feb 03 - [Magma found under volcanoes thought dormant in the Cascade Range](https://www.yahoo.com/news/magma-found-under-volcanoes-thought-210323189.html)
+- Feb 03 - [Former LDS bishop charged with sexual assault of 16-year-old girl](https://www.yahoo.com/news/former-lds-bishop-charged-sexual-203700611.html)
 <!-- feed end -->
 
 ### Onstream
