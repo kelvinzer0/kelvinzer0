@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Russia’s Modernized Nuclear Battlecruiser Finally Powers Up Its Reactors: Report](https://www.yahoo.com/news/russia-modernized-nuclear-battlecruiser-finally-230935219.html)
-- Feb 04 - [Azerbaijan jet that crashed was riddled with holes, report says](https://www.yahoo.com/news/azerbaijan-jet-crashed-riddled-holes-220847111.html)
+- Feb 05 - [Colombia's president orders national oil company to cancel US venture over environmental concerns](https://www.yahoo.com/news/colombias-president-orders-national-oil-010238657.html)
+- Feb 04 - [Albuquerque business takes matters into their own hands when it comes to shoplifters](https://www.yahoo.com/news/albuquerque-business-takes-matters-own-234500432.html)
 - Feb 04 - [Arrests made in connection to series of fires in San Diego, police say](https://www.yahoo.com/news/arrests-made-connection-series-fires-214322532.html)
 - Feb 04 - [AMD shares tumble as CEO forecasts declining data center sales](https://finance.yahoo.com/news/amd-forecasts-first-quarter-revenue-211920395.html)
 - Feb 04 - [Trump says he's given advisers instructions for Iran to be 'obliterated' if it assassinates him](https://www.yahoo.com/news/trump-says-hes-given-advisers-202131425.html)
