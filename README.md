@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [Where is New Albany, Ohio? All about the community at the center of latest mass shooting](https://www.yahoo.com/news/where-albany-ohio-community-center-132351168.html)
-- Feb 05 - [Thailand cuts power to Myanmar border areas linked to scam centers](https://www.yahoo.com/news/thailand-cuts-power-myanmar-border-124213220.html)
+- Feb 05 - [Nissan sours on merger with Honda, set to call off plan, sources say](https://finance.yahoo.com/news/nissan-sours-merger-honda-set-132930355.html)
+- Feb 05 - [I'm 63 and only have $850K saved. Is that enough to retire or do I need to consider part-time consulting work?](https://finance.yahoo.com/news/im-63-only-850k-saved-122200946.html)
+- Feb 05 - [Multiple people killed in ‘worst mass shooting in Swedish history,’ authorities say](https://www.yahoo.com/news/five-people-shot-school-central-144004042.html)
 - Feb 05 - [Rachel Maddow Breaks Down 2 Major Ways The Trump Admin’s ‘Stupidity’ Is Backfiring](https://www.yahoo.com/news/rachel-maddow-breaks-down-2-111248576.html)
-- Feb 05 - [Russians told not to panic over 'gas cloud' in city near plant struck by Ukraine](https://www.yahoo.com/news/russians-told-not-panic-over-085614342.html)
-- Feb 05 - [American woman in Pakistan finally returning home after her planned marriage to a teen fell through](https://www.yahoo.com/news/american-woman-pakistan-finally-returning-084858503.html)
+- Feb 05 - [A 22-year-old from Appleton died after his inhaler price skyrocketed. His parents are suing.](https://www.yahoo.com/news/22-old-appleton-died-inhaler-110723415.html)
 <!-- feed end -->
 
 ### Onstream
