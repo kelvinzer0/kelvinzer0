@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - [Thailand cuts power to Myanmar border areas linked to scam centers](https://www.yahoo.com/news/thailand-cuts-power-myanmar-border-124213220.html)
 - Feb 05 - [Rachel Maddow Breaks Down 2 Major Ways The Trump Admin’s ‘Stupidity’ Is Backfiring](https://www.yahoo.com/news/rachel-maddow-breaks-down-2-111248576.html)
-- Feb 05 - [Workers forced to return to the office may soon become 'accidental landlords'](https://finance.yahoo.com/news/workers-forced-return-office-may-170701323.html)
 - Feb 05 - [Russians told not to panic over 'gas cloud' in city near plant struck by Ukraine](https://www.yahoo.com/news/russians-told-not-panic-over-085614342.html)
-- Feb 05 - [USPS has suspended parcels from Hong Kong and China. Here's what it means for Shein and Temu](https://finance.yahoo.com/news/usps-suspended-parcels-hong-kong-082952874.html)
 - Feb 05 - [China has delayed or redirected 600,000 tons of wheat imports, sources say](https://finance.yahoo.com/news/china-delayed-redirected-600-000-062758804.html)
+- Feb 05 - [DNA Confirms Orcas Prey Upon One of Australia's Deadliest Marine Predators](https://www.yahoo.com/news/dna-confirms-orcas-prey-upon-060747672.html)
 <!-- feed end -->
 
 ### Onstream
