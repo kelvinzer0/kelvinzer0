@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - [Massachusetts schools announce closures ahead of winter storm on Thursday](https://www.yahoo.com/news/massachusetts-schools-announce-closures-ahead-193117684.html)
+- Feb 05 - [Milwaukee police arrest 39-year-old man in connection with four bank robberies in five days](https://www.yahoo.com/news/milwaukee-police-arrest-39-old-202257272.html)
+- Feb 05 - [FMC Stock Biggest S&P Decliner After Surprise Q4 Net Loss](https://finance.yahoo.com/news/fmc-stock-biggest-p-decliner-195949680.html)
 - Feb 05 - [House Republicans Implode: ‘Angry’ ‘Rude’ and ‘Frustrated’](https://www.yahoo.com/news/house-republicans-implode-angry-rude-193826172.html)
-- Feb 05 - [Airbus A321 Airliners To Be Modified Into “Flying Frigate” Patrol Jets By France](https://www.yahoo.com/news/airbus-a321-airliners-modified-flying-183353302.html)
 - Feb 05 - [Mike Johnson Has Truly Wild Defense for Letting Elon Musk Run Rampant](https://www.yahoo.com/news/mike-johnson-truly-wild-defense-172315377.html)
-- Feb 05 - [Amber Alert issued for pregnant 16-year-old believed to be with the 40-year-old father](https://www.yahoo.com/news/amber-alert-issued-pregnant-16-171902106.html)
-- Feb 05 - [I'm 63 and only have $850K saved. Is that enough to retire, or do I need to consider part-time consulting work?](https://finance.yahoo.com/news/im-63-only-850k-saved-122200946.html)
 <!-- feed end -->
 
 ### Onstream
