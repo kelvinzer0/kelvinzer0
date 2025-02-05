@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [Comet Joins Colorful Aurora Australis in Tasmanian Sky](https://www.yahoo.com/news/comet-joins-colorful-aurora-australis-090817686.html)
+- Feb 05 - [USPS has suspended parcels from Hong Kong and China. Here's what it means for Shein and Temu](https://finance.yahoo.com/news/usps-suspended-parcels-hong-kong-082952874.html)
 - Feb 05 - [China has delayed or redirected 600,000 tons of wheat imports, sources say](https://finance.yahoo.com/news/china-delayed-redirected-600-000-062758804.html)
+- Feb 05 - [15 Jaw-Droppingly WILD Facts About The Female Body That I Am 99.9% Sure You've Never Heard Before](https://www.yahoo.com/lifestyle/15-jaw-droppingly-wild-facts-043102743.html)
 - Feb 05 - [Saudi Arabia, in swift response to Trump, says no ties with Israel without Palestinian state](https://www.yahoo.com/news/saudi-arabia-says-wont-establish-020308928.html)
 - Feb 05 - [Colombia's president orders national oil company to cancel US venture over environmental concerns](https://www.yahoo.com/news/colombias-president-orders-national-oil-010238657.html)
-- Feb 05 - [USS Gerald R. Ford Was Still Struggling With Its Dual Band Radar Prior To Deployment](https://www.yahoo.com/news/uss-gerald-r-ford-still-004554296.html)
 <!-- feed end -->
 
 ### Onstream
