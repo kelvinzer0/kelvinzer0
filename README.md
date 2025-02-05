@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - [AI Weekly: Altman does Asia, DeepSeek divides opinion](https://finance.yahoo.com/video/ai-weekly-altman-does-asia-215054952.html)
+- Feb 05 - [Dog leaves man in ICU after violent attack in Panama City Beach](https://www.yahoo.com/news/dog-leaves-man-icu-violent-214740147.html)
+- Feb 05 - [Big Tech's massive AI CapEx just 'the beginning'](https://finance.yahoo.com/video/big-techs-massive-ai-capex-213626379.html)
 - Feb 05 - [Massachusetts schools announce closures ahead of winter storm on Thursday](https://www.yahoo.com/news/massachusetts-schools-announce-closures-ahead-193117684.html)
-- Feb 05 - [Milwaukee police arrest 39-year-old man in connection with four bank robberies in five days](https://www.yahoo.com/news/milwaukee-police-arrest-39-old-202257272.html)
-- Feb 05 - [FMC Stock Biggest S&P Decliner After Surprise Q4 Net Loss](https://finance.yahoo.com/news/fmc-stock-biggest-p-decliner-195949680.html)
-- Feb 05 - [House Republicans Implode: ‘Angry’ ‘Rude’ and ‘Frustrated’](https://www.yahoo.com/news/house-republicans-implode-angry-rude-193826172.html)
-- Feb 05 - [Mike Johnson Has Truly Wild Defense for Letting Elon Musk Run Rampant](https://www.yahoo.com/news/mike-johnson-truly-wild-defense-172315377.html)
+- Feb 05 - [Are You An 'Upper Class' Retiree? Here's A Look At The Net Worth That Makes You Poor, Middle Class, Or Rich in Retirement](https://finance.yahoo.com/news/upper-class-retiree-heres-look-203042593.html)
 <!-- feed end -->
 
 ### Onstream
