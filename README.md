@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [Nissan sours on merger with Honda, set to call off plan, sources say](https://finance.yahoo.com/news/nissan-sours-merger-honda-set-132930355.html)
-- Feb 05 - [I'm 63 and only have $850K saved. Is that enough to retire or do I need to consider part-time consulting work?](https://finance.yahoo.com/news/im-63-only-850k-saved-122200946.html)
-- Feb 05 - [Multiple people killed in ‘worst mass shooting in Swedish history,’ authorities say](https://www.yahoo.com/news/five-people-shot-school-central-144004042.html)
+- Feb 05 - [China regulators consider antitrust probe into Apple's App Store](https://finance.yahoo.com/video/china-regulators-consider-antitrust-probe-161523259.html)
+- Feb 05 - [These restaurants in the Jackson area failed January health inspections. See list](https://www.yahoo.com/news/restaurants-jackson-area-failed-january-152044167.html)
+- Feb 05 - [Judge tosses last charge against ex-prosecutor accused of misconduct in Ahmaud Arbery case](https://www.yahoo.com/news/ex-prosecutor-trial-ends-judge-144231544.html)
+- Feb 05 - [Oklahoma State University President Kayse Shrum has resigned](https://www.yahoo.com/news/oklahoma-state-university-president-kayse-143421905.html)
 - Feb 05 - [Rachel Maddow Breaks Down 2 Major Ways The Trump Admin’s ‘Stupidity’ Is Backfiring](https://www.yahoo.com/news/rachel-maddow-breaks-down-2-111248576.html)
-- Feb 05 - [A 22-year-old from Appleton died after his inhaler price skyrocketed. His parents are suing.](https://www.yahoo.com/news/22-old-appleton-died-inhaler-110723415.html)
 <!-- feed end -->
 
 ### Onstream
