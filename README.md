@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [China regulators consider antitrust probe into Apple's App Store](https://finance.yahoo.com/video/china-regulators-consider-antitrust-probe-161523259.html)
+- Feb 05 - [More than 100 women raped and burned alive in DR Congo jailbreak, UN says](https://www.yahoo.com/news/more-100-women-raped-burned-153417928.html)
+- Feb 05 - [International Business Machines Corporation (IBM) Reaffirmed with Buy Rating by Bank of America, Set Target at $270 Following Investor Day](https://finance.yahoo.com/news/international-business-machines-corporation-ibm-163618053.html)
+- Feb 05 - [USPS accepting Chinese packages again: Alibaba, PDD, JD.com react](https://finance.yahoo.com/video/usps-accepting-chinese-packages-again-161003755.html)
+- Feb 05 - [Group of Sick and Wounded Children Evacuated From Gaza](https://www.yahoo.com/news/group-sick-wounded-children-evacuated-160719222.html)
 - Feb 05 - [These restaurants in the Jackson area failed January health inspections. See list](https://www.yahoo.com/news/restaurants-jackson-area-failed-january-152044167.html)
-- Feb 05 - [Judge tosses last charge against ex-prosecutor accused of misconduct in Ahmaud Arbery case](https://www.yahoo.com/news/ex-prosecutor-trial-ends-judge-144231544.html)
-- Feb 05 - [Oklahoma State University President Kayse Shrum has resigned](https://www.yahoo.com/news/oklahoma-state-university-president-kayse-143421905.html)
-- Feb 05 - [Rachel Maddow Breaks Down 2 Major Ways The Trump Admin’s ‘Stupidity’ Is Backfiring](https://www.yahoo.com/news/rachel-maddow-breaks-down-2-111248576.html)
 <!-- feed end -->
 
 ### Onstream
