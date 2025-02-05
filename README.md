@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [AI Weekly: Altman does Asia, DeepSeek divides opinion](https://finance.yahoo.com/video/ai-weekly-altman-does-asia-215054952.html)
-- Feb 05 - [Dog leaves man in ICU after violent attack in Panama City Beach](https://www.yahoo.com/news/dog-leaves-man-icu-violent-214740147.html)
-- Feb 05 - [Big Tech's massive AI CapEx just 'the beginning'](https://finance.yahoo.com/video/big-techs-massive-ai-capex-213626379.html)
+- Feb 05 - [CNN’s Kaitlan Collins Cries Interviewing Man Who Lost Wife And Daughter In American Airlines Crash](https://www.yahoo.com/entertainment/cnn-kaitlan-collins-cries-interviewing-230023841.html)
 - Feb 05 - [Massachusetts schools announce closures ahead of winter storm on Thursday](https://www.yahoo.com/news/massachusetts-schools-announce-closures-ahead-193117684.html)
 - Feb 05 - [Are You An 'Upper Class' Retiree? Here's A Look At The Net Worth That Makes You Poor, Middle Class, Or Rich in Retirement](https://finance.yahoo.com/news/upper-class-retiree-heres-look-203042593.html)
+- Feb 05 - [DOGE Cancels Politico’s Government Funding After $8 Million in Subscription Contracts Revealed](https://www.yahoo.com/news/doge-cancels-politico-government-funding-200829761.html)
+- Feb 05 - [Idaho Now Requiring Nonresident Shed Hunters to Buy a License. Montana, Other Western States Eyeing Similar Changes](https://www.yahoo.com/news/idaho-now-requiring-nonresident-shed-193445271.html)
 <!-- feed end -->
 
 ### Onstream
