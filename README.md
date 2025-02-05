@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [More than 100 women raped and burned alive in DR Congo jailbreak, UN says](https://www.yahoo.com/news/more-100-women-raped-burned-153417928.html)
-- Feb 05 - [International Business Machines Corporation (IBM) Reaffirmed with Buy Rating by Bank of America, Set Target at $270 Following Investor Day](https://finance.yahoo.com/news/international-business-machines-corporation-ibm-163618053.html)
-- Feb 05 - [USPS accepting Chinese packages again: Alibaba, PDD, JD.com react](https://finance.yahoo.com/video/usps-accepting-chinese-packages-again-161003755.html)
-- Feb 05 - [Group of Sick and Wounded Children Evacuated From Gaza](https://www.yahoo.com/news/group-sick-wounded-children-evacuated-160719222.html)
-- Feb 05 - [These restaurants in the Jackson area failed January health inspections. See list](https://www.yahoo.com/news/restaurants-jackson-area-failed-january-152044167.html)
+- Feb 05 - [ADP private jobs data: Economist says to 'follow the consumer'](https://finance.yahoo.com/video/adp-private-jobs-data-economist-171328990.html)
+- Feb 05 - [Pro-Trump Arab American group changes its name after the president's Gaza 'Riviera' comments](https://www.yahoo.com/news/pro-trump-arab-american-group-165922571.html)
+- Feb 05 - [A US Navy pilot narrowly avoided crashing into the sea by as little as 16 feet after a 'catastrophic' failure aboard his aircraft carrier](https://www.yahoo.com/news/us-navy-pilot-narrowly-avoided-164422141.html)
+- Feb 05 - [RI is expected to get snow tomorrow. Here's how much, where parking bans are issued for](https://www.yahoo.com/news/ri-expected-snow-tomorrow-heres-145826360.html)
+- Feb 05 - [Oklahoma State President Kayse Shrum resigns after almost four years at university](https://www.yahoo.com/news/oklahoma-state-university-president-kayse-143421905.html)
 <!-- feed end -->
 
 ### Onstream
