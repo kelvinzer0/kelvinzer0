@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [ADP private jobs data: Economist says to 'follow the consumer'](https://finance.yahoo.com/video/adp-private-jobs-data-economist-171328990.html)
-- Feb 05 - [Pro-Trump Arab American group changes its name after the president's Gaza 'Riviera' comments](https://www.yahoo.com/news/pro-trump-arab-american-group-165922571.html)
+- Feb 05 - [MicroStrategy deepens bitcoin focus with rebrand](https://finance.yahoo.com/news/microstrategy-deepens-bitcoin-focus-rebrand-183533672.html)
+- Feb 05 - [Mike Johnson Has Truly Wild Defense for Letting Elon Musk Run Rampant](https://www.yahoo.com/news/mike-johnson-truly-wild-defense-172315377.html)
+- Feb 05 - [Amber Alert issued for pregnant 16-year-old believed to be with the 40-year-old father](https://www.yahoo.com/news/amber-alert-issued-pregnant-16-171902106.html)
 - Feb 05 - [A US Navy pilot narrowly avoided crashing into the sea by as little as 16 feet after a 'catastrophic' failure aboard his aircraft carrier](https://www.yahoo.com/news/us-navy-pilot-narrowly-avoided-164422141.html)
-- Feb 05 - [RI is expected to get snow tomorrow. Here's how much, where parking bans are issued for](https://www.yahoo.com/news/ri-expected-snow-tomorrow-heres-145826360.html)
-- Feb 05 - [Oklahoma State President Kayse Shrum resigns after almost four years at university](https://www.yahoo.com/news/oklahoma-state-university-president-kayse-143421905.html)
+- Feb 05 - [Workday lays off 1,750 employees, or about 8.5% of its workforce](https://finance.yahoo.com/news/workday-lays-off-1-750-164135762.html)
 <!-- feed end -->
 
 ### Onstream
