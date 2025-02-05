@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - [China has delayed or redirected 600,000 tons of wheat imports, sources say](https://finance.yahoo.com/news/china-delayed-redirected-600-000-062758804.html)
 - Feb 05 - [15 Jaw-Droppingly WILD Facts About The Female Body That I Am 99.9% Sure You've Never Heard Before](https://www.yahoo.com/lifestyle/15-jaw-droppingly-wild-facts-043102743.html)
-- Feb 05 - [Northern Japanese city hit with nearly 4 feet of snow in 12 hours](https://www.yahoo.com/news/northern-japanese-city-hit-nearly-033654825.html)
-- Feb 05 - [Saudi Arabia, in swift response to Trump, says no ties with Israel without Palestinian state](https://www.yahoo.com/news/saudi-arabia-says-wont-establish-020308928.html)
-- Feb 04 - [Albuquerque business takes matters into their own hands when it comes to shoplifters](https://www.yahoo.com/news/albuquerque-business-takes-matters-own-234500432.html)
-- Feb 04 - ['Lost City' Deep Under The Ocean Is Unlike Anything We've Ever Seen Before on Earth](https://www.yahoo.com/news/lost-city-deep-under-ocean-215447789.html)
+- Feb 04 - [Commander of Navy Ship Involved in F/A-18 Friendly Fire Incident Turns over Command](https://www.yahoo.com/news/commander-navy-ship-involved-f-230608727.html)
+- Feb 04 - [Sugar Land road rage incident leaves couple terrified](https://www.yahoo.com/news/sugar-land-road-rage-incident-222809491.html)
+- Feb 04 - [Nissan calls off Honda merger talks, Nikkei says](https://finance.yahoo.com/news/nissan-honda-may-call-off-220622122.html)
 <!-- feed end -->
 
 ### Onstream
