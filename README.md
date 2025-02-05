@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [MicroStrategy deepens bitcoin focus with rebrand](https://finance.yahoo.com/news/microstrategy-deepens-bitcoin-focus-rebrand-183533672.html)
+- Feb 05 - [House Republicans Implode: ‘Angry’ ‘Rude’ and ‘Frustrated’](https://www.yahoo.com/news/house-republicans-implode-angry-rude-193826172.html)
+- Feb 05 - [Airbus A321 Airliners To Be Modified Into “Flying Frigate” Patrol Jets By France](https://www.yahoo.com/news/airbus-a321-airliners-modified-flying-183353302.html)
 - Feb 05 - [Mike Johnson Has Truly Wild Defense for Letting Elon Musk Run Rampant](https://www.yahoo.com/news/mike-johnson-truly-wild-defense-172315377.html)
 - Feb 05 - [Amber Alert issued for pregnant 16-year-old believed to be with the 40-year-old father](https://www.yahoo.com/news/amber-alert-issued-pregnant-16-171902106.html)
-- Feb 05 - [A US Navy pilot narrowly avoided crashing into the sea by as little as 16 feet after a 'catastrophic' failure aboard his aircraft carrier](https://www.yahoo.com/news/us-navy-pilot-narrowly-avoided-164422141.html)
-- Feb 05 - [Workday lays off 1,750 employees, or about 8.5% of its workforce](https://finance.yahoo.com/news/workday-lays-off-1-750-164135762.html)
+- Feb 05 - [I'm 63 and only have $850K saved. Is that enough to retire, or do I need to consider part-time consulting work?](https://finance.yahoo.com/news/im-63-only-850k-saved-122200946.html)
 <!-- feed end -->
 
 ### Onstream
