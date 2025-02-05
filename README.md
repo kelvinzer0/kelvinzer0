@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [Colombia's president orders national oil company to cancel US venture over environmental concerns](https://www.yahoo.com/news/colombias-president-orders-national-oil-010238657.html)
+- Feb 05 - [Federal health workers terrified after 'DEI' website publishes list of 'targets'](https://www.yahoo.com/news/federal-health-workers-terrified-dei-033522113.html)
+- Feb 05 - [Gaza electricity crisis spawns solar-powered charging stations and alternative battery repair](https://www.yahoo.com/news/gaza-electricity-crisis-spawns-solar-054612347.html)
 - Feb 05 - [USS Gerald R. Ford Was Still Struggling With Its Dual Band Radar Prior To Deployment](https://www.yahoo.com/news/uss-gerald-r-ford-still-004554296.html)
-- Feb 04 - [Azerbaijan jet that crashed was riddled with holes, report says](https://www.yahoo.com/news/azerbaijan-jet-crashed-riddled-holes-220847111.html)
-- Feb 04 - [Nissan may call off merger talks with Honda, source says](https://finance.yahoo.com/news/nissan-honda-may-call-off-220622122.html)
-- Feb 04 - ['Lost City' Deep Under The Ocean Is Unlike Anything We've Ever Seen Before on Earth](https://www.yahoo.com/news/lost-city-deep-under-ocean-215447789.html)
+- Feb 04 - [Manhunt in Middle Tennessee: Community to 'lock their doors and use caution,' sheriff says](https://www.yahoo.com/news/manhunt-middle-tennessee-community-lock-225756505.html)
+- Feb 04 - [Nissan calls off Honda merger talks, Nikkei says](https://finance.yahoo.com/news/nissan-honda-may-call-off-220622122.html)
 <!-- feed end -->
 
 ### Onstream
