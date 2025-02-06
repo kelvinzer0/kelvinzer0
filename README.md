@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [House Floats Down River After Landslide in Sonoma County](https://www.yahoo.com/news/house-floats-down-river-landslide-194432935.html)
-- Feb 06 - [iPhone 7 owners are getting $200 in class action lawsuit, and here’s how you can track yours](https://finance.yahoo.com/news/iphone-7-owners-getting-200-175342586.html)
+- Feb 06 - [What Do Sea Turtles Do In Their ‘Lost Years’?](https://www.yahoo.com/news/sea-turtles-lost-years-212526624.html)
+- Feb 06 - [Kansas City sports reporter dies while in New Orleans for Super Bowl LIX](https://sports.yahoo.com/kansas-city-sports-reporter-dies-194407771.html)
 - Feb 06 - [Why was the UK cooler than normal in January while global temperatures hit record high?](https://www.yahoo.com/news/uk-january-cooler-world-record-temperatures-171427178.html)
 - Feb 06 - [AOC says she's worth less than $500,000 after kickback claims — and seems to get kudos from Trump fans in response](https://www.yahoo.com/news/aoc-says-shes-worth-less-160020985.html)
-- Feb 06 - [Volkswagen is unveiling a $21,000 entry-level EV in March](https://www.yahoo.com/tech/volkswagen-is-unveiling-a-21000-entry-level-ev-in-march-150057140.html)
+- Feb 06 - [NHRA Jr. Drag Racer Dies in Crash at Orlando](https://autos.yahoo.com/nhra-jr-drag-racer-dies-152800997.html)
 <!-- feed end -->
 
 ### Onstream
