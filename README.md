@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [What Do Sea Turtles Do In Their ‘Lost Years’?](https://www.yahoo.com/news/sea-turtles-lost-years-212526624.html)
+- Feb 06 - [Shark Tank star Barbara Corcoran's 5 tips for buying a house](https://finance.yahoo.com/video/shark-tank-star-barbara-corcorans-230000739.html)
+- Feb 06 - [New bird flu variant found in dairy cattle. Can H5N1 be transmitted to humans?](https://www.yahoo.com/news/bird-flu-variant-found-dairy-223025214.html)
+- Feb 06 - [Judge rules Georgia railroad can seize land as landowners vow to fight](https://www.yahoo.com/news/judge-rules-georgia-railroad-seize-220428956.html)
 - Feb 06 - [Kansas City sports reporter dies while in New Orleans for Super Bowl LIX](https://sports.yahoo.com/kansas-city-sports-reporter-dies-194407771.html)
 - Feb 06 - [Why was the UK cooler than normal in January while global temperatures hit record high?](https://www.yahoo.com/news/uk-january-cooler-world-record-temperatures-171427178.html)
-- Feb 06 - [AOC says she's worth less than $500,000 after kickback claims — and seems to get kudos from Trump fans in response](https://www.yahoo.com/news/aoc-says-shes-worth-less-160020985.html)
-- Feb 06 - [NHRA Jr. Drag Racer Dies in Crash at Orlando](https://autos.yahoo.com/nhra-jr-drag-racer-dies-152800997.html)
 <!-- feed end -->
 
 ### Onstream
