@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [3 factors keeping the US strong despite policy uncertainty](https://finance.yahoo.com/video/3-factors-keeping-us-strong-164315430.html)
+- Feb 06 - [Congo hospital bears the scars of clashes between rebels, army](https://www.yahoo.com/news/congo-hospital-bears-scars-clashes-161639975.html)
+- Feb 06 - [31-Year-Old With $250,000 Investment Plan Sparks Debate – 'Should I Go Big On Dividends Like JEPQ, ARCC, Or Stick To VTI For Safety?'](https://finance.yahoo.com/news/31-old-250-000-investment-144519743.html)
 - Feb 06 - [North Korea’s experimental capitalist city is about to open to tourists (but there’s a catch)](https://www.yahoo.com/news/north-korea-experimental-capitalist-city-140000121.html)
-- Feb 06 - [‘Be real careful’: Snow, sleet, icy rain could cause dangerous driving conditions in Mass. today](https://www.yahoo.com/news/real-careful-snow-sleet-icy-125149132.html)
 - Feb 06 - [I Spent 32 Years Believing I Was Male. Then A Shocking Phone Call Exploded Everything I Knew.](https://www.yahoo.com/news/spent-32-years-believing-male-133011006.html)
-- Feb 06 - [Dave Ramsey: A 401(k) Has a Big Tax Downside — Pick This Retirement Plan Instead](https://finance.yahoo.com/news/dave-ramsey-says-401-k-165915295.html)
-- Feb 06 - [Ukraine says its long-range drones hit a Russian airfield as France delivers Mirage fighter jets](https://www.yahoo.com/news/ukraine-says-long-range-drones-113901050.html)
 <!-- feed end -->
 
 ### Onstream
