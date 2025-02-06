@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Huge Mounds of Garbage Piling Up in Gaza Creating 'Health Hazard'](https://www.yahoo.com/news/garbage-piling-gaza-creating-health-165530189.html)
-- Feb 06 - [Jamie Dimon says he didn't run for president because he knew winning the White House would mean barely seeing his family for 4 years](https://finance.yahoo.com/news/jamie-dimon-says-didnt-run-044445137.html)
-- Feb 06 - [Remembering Dennis Richmond: Public figures react to passing legendary anchorman](https://www.yahoo.com/news/remembering-dennis-richmond-public-figures-024450583.html)
+- Feb 06 - [Drone Operator Finds Puppy Lost in Deep Snow](https://www.yahoo.com/news/drone-operator-finds-puppy-lost-095402833.html)
 - Feb 06 - [Report Reveals World's Fourth Largest Lake Now a Deadly Desert](https://www.yahoo.com/news/report-reveals-worlds-fourth-largest-024335894.html)
 - Feb 06 - [US to seize Venezuelan president's plane held in Dominican Republic during Rubio visit](https://www.yahoo.com/news/us-seize-venezuelan-presidents-plane-023656953.html)
+- Feb 05 - [The sea was once a blessing for the Pakistani city of Gwadar. But it's become a curse](https://www.yahoo.com/news/sea-once-blessing-pakistani-city-233919074.html)
+- Feb 05 - [North Las Vegas police identify officer killed in deadly shooting](https://www.yahoo.com/news/north-las-vegas-police-identify-232521240.html)
 <!-- feed end -->
 
 ### Onstream
