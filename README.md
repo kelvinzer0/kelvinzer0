@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Princess Anne Makes Emotional Stop at Hospital Where She Was Treated After Horse Accident to Thank Staff](https://www.yahoo.com/entertainment/princess-anne-makes-emotional-stop-200604209.html)
-- Feb 06 - [Scottsdale police rescue and arrest Phoenix Open attendee who jumped into canal](https://www.azcentral.com/story/news/local/scottsdale-breaking/2025/02/06/police-rescue-arrest-man-who-jumped-into-canal-at-phoenix-open/78285810007/)
+- Feb 06 - [House Floats Down River After Landslide in Sonoma County](https://www.yahoo.com/news/house-floats-down-river-landslide-194432935.html)
+- Feb 06 - [iPhone 7 owners are getting $200 in class action lawsuit, and here’s how you can track yours](https://finance.yahoo.com/news/iphone-7-owners-getting-200-175342586.html)
+- Feb 06 - [Why was the UK cooler than normal in January while global temperatures hit record high?](https://www.yahoo.com/news/uk-january-cooler-world-record-temperatures-171427178.html)
+- Feb 06 - [AOC says she's worth less than $500,000 after kickback claims — and seems to get kudos from Trump fans in response](https://www.yahoo.com/news/aoc-says-shes-worth-less-160020985.html)
 - Feb 06 - [Volkswagen is unveiling a $21,000 entry-level EV in March](https://www.yahoo.com/tech/volkswagen-is-unveiling-a-21000-entry-level-ev-in-march-150057140.html)
-- Feb 06 - [Archaeologists Just Found the Oldest 3D Map in the World](https://www.yahoo.com/news/archaeologists-just-found-oldest-3d-140000521.html)
-- Feb 06 - [North Korea’s experimental capitalist city is about to open to tourists (but there’s a catch)](https://www.yahoo.com/news/north-korea-experimental-capitalist-city-140000121.html)
 <!-- feed end -->
 
 ### Onstream
