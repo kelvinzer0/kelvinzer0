@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [3 factors keeping the US strong despite policy uncertainty](https://finance.yahoo.com/video/3-factors-keeping-us-strong-164315430.html)
-- Feb 06 - [Will it freeze in Texas next week? 12 maps show how cold it'll get across the state](https://www.yahoo.com/news/freeze-texas-next-week-12-153813178.html)
+- Feb 06 - [There's Actually an Incredibly Easy Way for Elon Musk to Trim $2 Trillion of Government Spending: Cut Funding for Nuclear Weapons](https://www.yahoo.com/news/theres-actually-incredibly-easy-way-150518925.html)
+- Feb 06 - [Volkswagen is unveiling a $21,000 entry-level EV in March](https://www.yahoo.com/tech/volkswagen-is-unveiling-a-21000-entry-level-ev-in-march-150057140.html)
 - Feb 06 - [North Korea’s experimental capitalist city is about to open to tourists (but there’s a catch)](https://www.yahoo.com/news/north-korea-experimental-capitalist-city-140000121.html)
 - Feb 06 - [I Spent 32 Years Believing I Was Male. Then A Shocking Phone Call Exploded Everything I Knew.](https://www.yahoo.com/news/spent-32-years-believing-male-133011006.html)
 - Feb 06 - [Latest Starship Explosion Trashes Poor Caribbean Island, Leaving The Locals To Clean It Up](https://autos.yahoo.com/latest-starship-explosion-trashes-poor-133000969.html)
