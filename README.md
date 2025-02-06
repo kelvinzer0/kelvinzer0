@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Big Tech's CapEx spending growth exceeding revenue growth](https://finance.yahoo.com/video/big-techs-capex-spending-growth-120023343.html)
-- Feb 06 - [Skyworks earnings-linked selloff extends as analysts cut ratings](https://finance.yahoo.com/news/skyworks-earnings-linked-selloff-extends-110243407.html)
+- Feb 06 - [Ukraine says its long-range drones hit a Russian airfield as France delivers Mirage fighter jets](https://www.yahoo.com/news/ukraine-says-long-range-drones-113901050.html)
 - Feb 06 - [A Grocery What?!? Karoline Leavitt’s Briefing Blunder Leaves Everyone Confused](https://www.yahoo.com/news/grocery-karoline-leavitt-briefing-blunder-090144337.html)
 - Feb 06 - [Bitcoin’s $850 Billion Realized Cap Suggests Bull Market Could Last Beyond March 2025—Research](https://finance.yahoo.com/news/bitcoin-850-billion-realized-cap-080551884.html)
 - Feb 06 - [Scientists Simulated Bennu Crashing to Earth in September 2182. It's Not Pretty.](https://www.yahoo.com/news/scientists-simulated-bennu-crashing-earth-060622115.html)
+- Feb 06 - [Report Reveals World's Fourth Largest Lake Now a Deadly Desert](https://www.yahoo.com/news/report-reveals-worlds-fourth-largest-024335894.html)
 <!-- feed end -->
 
 ### Onstream
