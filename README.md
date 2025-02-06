@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Flight attendant killed in midair collision near D.C. honored with service](https://www.yahoo.com/news/flight-attendant-killed-midair-collision-005527611.html)
-- Feb 06 - [As case involving Prince Harry's immigration paperwork inches forward, judge considers next steps](https://www.yahoo.com/news/case-involving-prince-harrys-immigration-000611312.html)
-- Feb 05 - [Dog leaves man in ICU after violent attack in Panama City Beach](https://www.yahoo.com/news/dog-leaves-man-icu-violent-214740147.html)
+- Feb 05 - [Wondering what to do with $100,000 in savings? Here are 4 smart options.](https://finance.yahoo.com/personal-finance/banking/article/what-to-do-with-100k-213435081.html)
 - Feb 05 - [Mitch McConnell, 82, Taken Away in Wheelchair After Falling Twice](https://www.yahoo.com/news/mitch-mcconnell-82-taken-away-210439974.html)
+- Feb 05 - [Musk to House Democrat absent on subpoena vote: ‘Don’t be a d‑‑‑’](https://www.yahoo.com/news/musk-house-democrat-absent-subpoena-205935711.html)
 - Feb 05 - [Massachusetts schools announce closures ahead of winter storm on Thursday](https://www.yahoo.com/news/massachusetts-schools-announce-closures-ahead-193117684.html)
+- Feb 05 - [Are You An 'Upper Class' Retiree? Here's A Look At The Net Worth That Makes You Poor, Middle Class, Or Rich in Retirement](https://finance.yahoo.com/news/upper-class-retiree-heres-look-203042593.html)
 <!-- feed end -->
 
 ### Onstream
