@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [American woman in Pakistan finally returning home after her planned marriage to a teen fell through](https://www.yahoo.com/news/american-woman-pakistan-finally-returning-084858503.html)
 - Feb 06 - [Report Reveals World's Fourth Largest Lake Now a Deadly Desert](https://www.yahoo.com/news/report-reveals-worlds-fourth-largest-024335894.html)
-- Feb 06 - [Up to 10 inches of snow possible in Twin Cities from Saturday winter storm](https://www.yahoo.com/news/10-inches-snow-possible-twin-014658907.html)
+- Feb 06 - [US to seize Venezuelan president's plane held in Dominican Republic during Rubio visit](https://www.yahoo.com/news/us-seize-venezuelan-presidents-plane-023656953.html)
+- Feb 06 - [Nissan CEO tells Honda counterpart he wants to scrap merger talks, source says](https://finance.yahoo.com/news/nissan-ceo-uchida-tells-honda-022706750.html)
 - Feb 05 - [The sea was once a blessing for the Pakistani city of Gwadar. But it's become a curse](https://www.yahoo.com/news/sea-once-blessing-pakistani-city-233919074.html)
-- Feb 05 - [Mitch McConnell, 82, Taken Away in Wheelchair After Falling Twice](https://www.yahoo.com/news/mitch-mcconnell-82-taken-away-210439974.html)
-- Feb 05 - [Musk to House Democrat absent on subpoena vote: ‘Don’t be a d‑‑‑’](https://www.yahoo.com/news/musk-house-democrat-absent-subpoena-205935711.html)
 <!-- feed end -->
 
 ### Onstream
