@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Drone Operator Finds Puppy Lost in Deep Snow](https://www.yahoo.com/news/drone-operator-finds-puppy-lost-095402833.html)
+- Feb 06 - [A Grocery What?!? Karoline Leavitt’s Briefing Blunder Leaves Everyone Confused](https://www.yahoo.com/news/grocery-karoline-leavitt-briefing-blunder-090144337.html)
+- Feb 06 - [Scientists Simulated Bennu Crashing to Earth in September 2182. It's Not Pretty.](https://www.yahoo.com/news/scientists-simulated-bennu-crashing-earth-060622115.html)
 - Feb 06 - [Report Reveals World's Fourth Largest Lake Now a Deadly Desert](https://www.yahoo.com/news/report-reveals-worlds-fourth-largest-024335894.html)
 - Feb 06 - [US to seize Venezuelan president's plane held in Dominican Republic during Rubio visit](https://www.yahoo.com/news/us-seize-venezuelan-presidents-plane-023656953.html)
 - Feb 05 - [The sea was once a blessing for the Pakistani city of Gwadar. But it's become a curse](https://www.yahoo.com/news/sea-once-blessing-pakistani-city-233919074.html)
-- Feb 05 - [North Las Vegas police identify officer killed in deadly shooting](https://www.yahoo.com/news/north-las-vegas-police-identify-232521240.html)
 <!-- feed end -->
 
 ### Onstream
