@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [There's Actually an Incredibly Easy Way for Elon Musk to Trim $2 Trillion of Government Spending: Cut Funding for Nuclear Weapons](https://www.yahoo.com/news/theres-actually-incredibly-easy-way-150518925.html)
+- Feb 06 - [Princess Anne Makes Emotional Stop at Hospital Where She Was Treated After Horse Accident to Thank Staff](https://www.yahoo.com/entertainment/princess-anne-makes-emotional-stop-200604209.html)
+- Feb 06 - [Scottsdale police rescue and arrest Phoenix Open attendee who jumped into canal](https://www.azcentral.com/story/news/local/scottsdale-breaking/2025/02/06/police-rescue-arrest-man-who-jumped-into-canal-at-phoenix-open/78285810007/)
 - Feb 06 - [Volkswagen is unveiling a $21,000 entry-level EV in March](https://www.yahoo.com/tech/volkswagen-is-unveiling-a-21000-entry-level-ev-in-march-150057140.html)
+- Feb 06 - [Archaeologists Just Found the Oldest 3D Map in the World](https://www.yahoo.com/news/archaeologists-just-found-oldest-3d-140000521.html)
 - Feb 06 - [North Korea’s experimental capitalist city is about to open to tourists (but there’s a catch)](https://www.yahoo.com/news/north-korea-experimental-capitalist-city-140000121.html)
-- Feb 06 - [I Spent 32 Years Believing I Was Male. Then A Shocking Phone Call Exploded Everything I Knew.](https://www.yahoo.com/news/spent-32-years-believing-male-133011006.html)
-- Feb 06 - [Latest Starship Explosion Trashes Poor Caribbean Island, Leaving The Locals To Clean It Up](https://autos.yahoo.com/latest-starship-explosion-trashes-poor-133000969.html)
 <!-- feed end -->
 
 ### Onstream
