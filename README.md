@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Trump administration evicts former Coast Guard leader from her house with 3 hours notice](https://www.yahoo.com/news/trump-administration-evicts-former-coast-013216685.html)
-- Feb 06 - [As case involving Prince Harry's immigration paperwork inches forward, judge considers next steps](https://www.yahoo.com/news/case-involving-prince-harrys-immigration-000611312.html)
+- Feb 06 - [Report Reveals World's Fourth Largest Lake Now a Deadly Desert](https://www.yahoo.com/news/report-reveals-worlds-fourth-largest-024335894.html)
+- Feb 06 - [Up to 10 inches of snow possible in Twin Cities from Saturday winter storm](https://www.yahoo.com/news/10-inches-snow-possible-twin-014658907.html)
 - Feb 05 - [The sea was once a blessing for the Pakistani city of Gwadar. But it's become a curse](https://www.yahoo.com/news/sea-once-blessing-pakistani-city-233919074.html)
-- Feb 05 - [CNN’s Kaitlan Collins Cries Interviewing Man Who Lost Wife And Daughter In American Airlines Crash](https://www.yahoo.com/entertainment/cnn-kaitlan-collins-cries-interviewing-230023841.html)
-- Feb 05 - [Dog leaves man in ICU after violent attack in Panama City Beach](https://www.yahoo.com/news/dog-leaves-man-icu-violent-214740147.html)
+- Feb 05 - [Mitch McConnell, 82, Taken Away in Wheelchair After Falling Twice](https://www.yahoo.com/news/mitch-mcconnell-82-taken-away-210439974.html)
+- Feb 05 - [Musk to House Democrat absent on subpoena vote: ‘Don’t be a d‑‑‑’](https://www.yahoo.com/news/musk-house-democrat-absent-subpoena-205935711.html)
 <!-- feed end -->
 
 ### Onstream
