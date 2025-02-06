@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Ukraine says its long-range drones hit a Russian airfield as France delivers Mirage fighter jets](https://www.yahoo.com/news/ukraine-says-long-range-drones-113901050.html)
-- Feb 06 - [A Grocery What?!? Karoline Leavitt’s Briefing Blunder Leaves Everyone Confused](https://www.yahoo.com/news/grocery-karoline-leavitt-briefing-blunder-090144337.html)
-- Feb 06 - [Bitcoin’s $850 Billion Realized Cap Suggests Bull Market Could Last Beyond March 2025—Research](https://finance.yahoo.com/news/bitcoin-850-billion-realized-cap-080551884.html)
-- Feb 06 - [Scientists Simulated Bennu Crashing to Earth in September 2182. It's Not Pretty.](https://www.yahoo.com/news/scientists-simulated-bennu-crashing-earth-060622115.html)
-- Feb 06 - [Report Reveals World's Fourth Largest Lake Now a Deadly Desert](https://www.yahoo.com/news/report-reveals-worlds-fourth-largest-024335894.html)
+- Feb 06 - [Dave Ramsey: A 401(k) Has a Big Tax Downside — Pick This Retirement Plan Instead](https://finance.yahoo.com/news/dave-ramsey-says-401-k-165915295.html)
+- Feb 06 - [Honeywell, one of the few remaining US industrial conglomerates, will split into three companies](https://finance.yahoo.com/news/honeywell-one-few-remaining-us-113124365.html)
+- Feb 06 - [The same Boeing passenger plane keeps being diverted after take-off... what's going on?](https://www.yahoo.com/news/same-boeing-passenger-plane-keeps-111409276.html)
+- Feb 06 - [Insiders Pull the Trigger on 2 Dividend Stocks With Double-Digit Upside](https://finance.yahoo.com/news/insiders-pull-trigger-2-dividend-105439217.html)
+- Feb 06 - [Researchers make troubling discovery in highly sought-after fish: 'There's a problem here'](https://www.yahoo.com/news/researchers-troubling-discovery-highly-sought-101542598.html)
 <!-- feed end -->
 
 ### Onstream
