@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Dave Ramsey: A 401(k) Has a Big Tax Downside — Pick This Retirement Plan Instead](https://finance.yahoo.com/news/dave-ramsey-says-401-k-165915295.html)
-- Feb 06 - [Honeywell, one of the few remaining US industrial conglomerates, will split into three companies](https://finance.yahoo.com/news/honeywell-one-few-remaining-us-113124365.html)
-- Feb 06 - [The same Boeing passenger plane keeps being diverted after take-off... what's going on?](https://www.yahoo.com/news/same-boeing-passenger-plane-keeps-111409276.html)
-- Feb 06 - [Insiders Pull the Trigger on 2 Dividend Stocks With Double-Digit Upside](https://finance.yahoo.com/news/insiders-pull-trigger-2-dividend-105439217.html)
+- Feb 06 - [North Korea’s experimental capitalist city is about to open to tourists (but there’s a catch)](https://www.yahoo.com/news/north-korea-experimental-capitalist-city-140000121.html)
+- Feb 06 - [I Spent 32 Years Believing I Was Male. Then A Shocking Phone Call Exploded Everything I Knew.](https://www.yahoo.com/news/spent-32-years-believing-male-133011006.html)
+- Feb 06 - [A short honeymoon for Catholics in D.C. as Vice President Vance clashes with bishops on migration](https://www.yahoo.com/news/short-honeymoon-catholics-d-c-130201365.html)
+- Feb 06 - [Ukraine says its long-range drones hit a Russian airfield as France delivers Mirage fighter jets](https://www.yahoo.com/news/ukraine-says-long-range-drones-113901050.html)
 - Feb 06 - [Researchers make troubling discovery in highly sought-after fish: 'There's a problem here'](https://www.yahoo.com/news/researchers-troubling-discovery-highly-sought-101542598.html)
 <!-- feed end -->
 
