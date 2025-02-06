@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [How the UAE Became Zimbabwe's Biggest Export Partner](https://finance.yahoo.com/video/uae-became-zimbabwes-biggest-export-061530250.html)
+- Feb 06 - [Remembering Dennis Richmond: Public figures react to passing legendary anchorman](https://www.yahoo.com/news/remembering-dennis-richmond-public-figures-024450583.html)
 - Feb 06 - [Report Reveals World's Fourth Largest Lake Now a Deadly Desert](https://www.yahoo.com/news/report-reveals-worlds-fourth-largest-024335894.html)
 - Feb 06 - [US to seize Venezuelan president's plane held in Dominican Republic during Rubio visit](https://www.yahoo.com/news/us-seize-venezuelan-presidents-plane-023656953.html)
+- Feb 06 - ['He fought to the very end': Steven Nelson executed in Texas for murder of young pastor](https://www.yahoo.com/news/fought-very-end-steven-nelson-011253038.html)
 - Feb 05 - [The sea was once a blessing for the Pakistani city of Gwadar. But it's become a curse](https://www.yahoo.com/news/sea-once-blessing-pakistani-city-233919074.html)
-- Feb 05 - [Wondering what to do with $100,000 in savings? Here are 4 smart options.](https://finance.yahoo.com/personal-finance/banking/article/what-to-do-with-100k-213435081.html)
 <!-- feed end -->
 
 ### Onstream
