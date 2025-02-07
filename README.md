@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [2 dead, 3 injured in weather event with 'possible tornado,' officials in Tennessee say](https://www.yahoo.com/news/2-dead-3-injured-weather-131834021.html)
-- Feb 07 - [News outlet Politico got dragged into the USAID chaos. Turns out, government workers have a $16 million habit of reading premium political news](https://www.yahoo.com/news/news-outlet-politico-got-dragged-120700040.html)
-- Feb 07 - [Argentine river turns blood red, causing local alarm](https://www.yahoo.com/news/argentine-river-turns-blood-red-115212482.html)
-- Feb 07 - [One country is on the verge of phasing out gas cars completely after boosting EV sales to staggering level: 'The future is electric'](https://www.yahoo.com/news/one-country-verge-phasing-gas-104522552.html)
-- Feb 07 - [I Work in the Office Carrying Out the Government Purge. Here’s What I Want You to Know.](https://www.yahoo.com/news/office-carrying-government-purge-want-104000528.html)
+- Feb 07 - [Rival School Mariachi Groups Join Forces for Impromptu Performance at Burger Joint](https://www.yahoo.com/news/rival-school-mariachi-groups-join-160923955.html)
+- Feb 07 - [Super Micro Computer Jumps 6% as Investors favor AI push](https://finance.yahoo.com/news/super-micro-computer-jumps-6-160147078.html)
+- Feb 07 - [Worried about Elon Musk and ‘DOGE’ getting your Social Security number? Here’s how to protect yourself.](https://www.yahoo.com/news/worried-elon-musk-doge-getting-230600194.html)
+- Feb 07 - [Watch: Moment policeman knocks ‘goading’ teenager off e-bike](https://www.yahoo.com/news/watch-moment-policeman-knocks-goading-141657943.html)
+- Feb 07 - [8-hour flightmare after Boeing 737 Max bound for Iceland was diverted to Scotland when strong winds stopped it landing](https://www.yahoo.com/news/8-hour-flightmare-boeing-737-125924718.html)
 <!-- feed end -->
 
 ### Onstream
