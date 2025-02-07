@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - ["My Heart Breaks Just Thinking My Vote Contributed To This": 27 MAGA Voters Shared What Donald Trump Could Do To Lose Their Support, And For Some It's Too Late](https://www.yahoo.com/news/heart-breaks-just-thinking-vote-201426198.html)
+- Feb 07 - [Bangladesh's government warns of stern action after house where independence was declared is razed](https://www.yahoo.com/news/bangladeshs-government-warns-stern-action-213155054.html)
 - Feb 07 - [Trump turns on Time magazine after new cover shows Musk sitting behind his Resolute desk](https://www.yahoo.com/news/trump-turns-time-magazine-cover-192730827.html)
-- Feb 07 - [Chinese Tank’s Active Protection System Seen Intercepting Drone-Fired Rocket Propelled Grenade](https://www.yahoo.com/news/chinese-tank-active-protection-system-191750448.html)
-- Feb 07 - [Bill Gates Says He Donated $100 Billion Of His Wealth To Charitable Causes, But He 'Didn't Order Less Hamburgers Or Less Movies'](https://finance.yahoo.com/news/bill-gates-says-donated-100-190014760.html)
-- Feb 07 - [Des Moines grocery owner charged with money laundering related to drug trafficking](https://www.yahoo.com/news/des-moines-grocery-owner-charged-175955062.html)
+- Feb 07 - [Kentucky child not vaccinated against influenza dies from flu](https://www.yahoo.com/news/kentucky-child-not-vaccinated-against-212042675.html)
+- Feb 07 - [Trudeau Caught on Hot Mic Revealing Trump’s Plans for Canada](https://www.yahoo.com/news/trudeau-caught-hot-mic-revealing-205223800.html)
+- Feb 07 - [Battery firm abandons plan for a $2.6 billion plant in Georgia](https://finance.yahoo.com/news/battery-firm-abandons-plan-2-204124724.html)
 <!-- feed end -->
 
 ### Onstream
