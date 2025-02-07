@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Shark Tank star Barbara Corcoran's 5 tips for buying a house](https://finance.yahoo.com/video/shark-tank-star-barbara-corcorans-230000739.html)
-- Feb 06 - [New bird flu variant found in dairy cattle. Can H5N1 be transmitted to humans?](https://www.yahoo.com/news/bird-flu-variant-found-dairy-223025214.html)
-- Feb 06 - [Judge rules Georgia railroad can seize land as landowners vow to fight](https://www.yahoo.com/news/judge-rules-georgia-railroad-seize-220428956.html)
-- Feb 06 - [Kansas City sports reporter dies while in New Orleans for Super Bowl LIX](https://sports.yahoo.com/kansas-city-sports-reporter-dies-194407771.html)
+- Feb 07 - [Two years on since a devastating earthquake hit southern Turkey, survivors suffer continued hardship](https://www.yahoo.com/news/two-years-since-devastating-earthquake-011922679.html)
 - Feb 06 - [Why was the UK cooler than normal in January while global temperatures hit record high?](https://www.yahoo.com/news/uk-january-cooler-world-record-temperatures-171427178.html)
+- Feb 06 - [AOC says she's worth less than $500,000 after kickback claims — and seems to get kudos from Trump fans in response](https://www.yahoo.com/news/aoc-says-shes-worth-less-160020985.html)
+- Feb 06 - [Volkswagen is unveiling a $21,000 entry-level EV in March](https://www.yahoo.com/tech/volkswagen-is-unveiling-a-21000-entry-level-ev-in-march-150057140.html)
+- Feb 06 - [Archaeologists Just Found the Oldest 3D Map in the World](https://www.yahoo.com/news/archaeologists-just-found-oldest-3d-140000521.html)
 <!-- feed end -->
 
 ### Onstream
