@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Too many questions have those in their 60s wondering whether they should retire or not](https://finance.yahoo.com/news/too-many-questions-those-60s-124100907.html)
+- Feb 07 - [How To Earn $500 A Month From McDonald's Stock Ahead Of Q4 Earnings](https://finance.yahoo.com/news/earn-500-month-mcdonalds-stock-132210778.html)
 - Feb 07 - [I Work in the Office Carrying Out the Government Purge. Here’s What I Want You to Know.](https://www.yahoo.com/news/office-carrying-government-purge-want-104000528.html)
 - Feb 07 - [Norwegian company abandons plans for $2.5 billion battery plant, 700 jobs in metro Atlanta](https://finance.yahoo.com/news/norwegian-company-abandons-plans-2-093350190.html)
 - Feb 07 - [China lashes out at US 'coercion' after Panama declines to renew infrastructure agreement](https://www.yahoo.com/news/china-lashes-us-coercion-panama-092137453.html)
-- Feb 07 - [More than 140,000 Toyota and Lexus vehicles recalled: See affected vehicles](https://www.yahoo.com/news/more-140-000-toyota-lexus-013120880.html)
+- Feb 07 - [Frontier passenger overpowered after punching out plane window during a flight after he was asked to move seat](https://www.yahoo.com/news/frontier-passenger-overpowered-punching-plane-021303536.html)
 <!-- feed end -->
 
 ### Onstream
