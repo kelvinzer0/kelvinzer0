@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 07 - [More than 140,000 Toyota and Lexus vehicles recalled: See affected vehicles](https://www.yahoo.com/news/more-140-000-toyota-lexus-013120880.html)
-- Feb 07 - [Woman, 33, shares 5 colon cancer symptoms she dismissed: 'I was in shock'](https://www.yahoo.com/lifestyle/woman-33-shares-5-colon-010721677.html)
-- Feb 07 - [Flailing fast! Trump loses in court as MAGA leader blasts Musk as a dangerous phony](https://www.yahoo.com/news/flailing-fast-trump-loses-court-005151767.html)
-- Feb 07 - [Palm Springs to pay downtown restaurant $500,000 to settle dispute over Plaza Theatre](https://www.yahoo.com/news/palm-springs-pay-downtown-restaurant-003954763.html)
 - Feb 06 - [DeepSeek's advanced tracking technology 'never seen before'](https://finance.yahoo.com/video/deepseeks-advanced-tracking-technology-never-222053515.html)
+- Feb 06 - [What's Nissan’s next move after Honda deal collapses?](https://autos.yahoo.com/whats-nissan-next-move-honda-210000844.html)
+- Feb 06 - [Kansas City sports reporter dies while in New Orleans for Super Bowl LIX](https://www.yahoo.com/news/kansas-city-sports-reporter-dies-194407874.html)
+- Feb 06 - [There's Actually an Incredibly Easy Way for Elon Musk to Trim $2 Trillion of Government Spending: Cut Funding for Nuclear Weapons](https://www.yahoo.com/news/theres-actually-incredibly-easy-way-150518925.html)
 <!-- feed end -->
 
 ### Onstream
