@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Democrats ask for an investigation into DOGE's access to Treasury's payment systems](https://www.yahoo.com/news/democrats-ask-investigation-doges-access-180855853.html)
-- Feb 07 - [Gino D’Acampo shows axed by ITV following ‘sexually inappropriate’ behaviour accusations](https://www.yahoo.com/news/gino-d-acampo-shows-axed-145937814.html)
-- Feb 07 - [How Navy submarine cooks feed 150 sailors at sea](https://www.yahoo.com/news/navy-submarine-cooks-feed-150-180628830.html)
+- Feb 07 - [New allegations Diddy sexually assaulted minor in nightclub](https://www.yahoo.com/news/allegations-diddy-sexually-assaulted-minor-183920225.html)
+- Feb 07 - [Don't confuse consumer AI with Big Tech's enterprise initiatives](https://finance.yahoo.com/video/dont-confuse-consumer-ai-big-174121164.html)
 - Feb 07 - [Los Angeles sheriff deputy found guilty of excessive force in arrest of woman caught on video](https://www.yahoo.com/news/los-angeles-sheriff-deputy-found-172926758.html)
-- Feb 07 - [Chilling Twist in Death of 27-Year-Old Super Bowl Reporter Adan Manzano](https://www.yahoo.com/news/chilling-twist-death-27-old-162915433.html)
+- Feb 07 - [Trump Is Going to Blow a Fuse Over This New Time Cover With Elon Musk](https://www.yahoo.com/news/trump-going-blow-fuse-over-170857856.html)
+- Feb 07 - [iOS 18.3.1 is reportedly coming to iPhones soon: What we know about mystery update](https://www.yahoo.com/tech/ios-18-3-1-reportedly-164635556.html)
 <!-- feed end -->
 
 ### Onstream
