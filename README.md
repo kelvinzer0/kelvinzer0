@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Fellow travelers restrain passenger who was 'going crazy'](https://www.yahoo.com/news/fellow-travelers-restrain-passenger-going-032148256.html)
 - Feb 07 - [More than 140,000 Toyota and Lexus vehicles recalled: See affected vehicles](https://www.yahoo.com/news/more-140-000-toyota-lexus-013120880.html)
+- Feb 07 - [Flailing fast! Trump loses in court as MAGA leader blasts Musk as a dangerous phony](https://www.yahoo.com/news/flailing-fast-trump-loses-court-005151767.html)
+- Feb 06 - [UFC settles antitrust lawsuit filed by former fighters for $375 million](https://sports.yahoo.com/ufc-settles-antitrust-lawsuit-filed-by-former-fighters-for-375-million-224745716.html)
 - Feb 06 - [F-15EX Nails Pentagon Test Campaign, Survivability Concerns Remain](https://www.yahoo.com/news/f-15ex-nails-pentagon-test-223132294.html)
 - Feb 06 - [DeepSeek's advanced tracking technology 'never seen before'](https://finance.yahoo.com/video/deepseeks-advanced-tracking-technology-never-222053515.html)
-- Feb 06 - [What's Nissan’s next move after Honda deal collapses?](https://autos.yahoo.com/whats-nissan-next-move-honda-210000844.html)
 <!-- feed end -->
 
 ### Onstream
