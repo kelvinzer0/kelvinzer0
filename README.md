@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [New allegations Diddy sexually assaulted minor in nightclub](https://www.yahoo.com/news/allegations-diddy-sexually-assaulted-minor-183920225.html)
-- Feb 07 - [Don't confuse consumer AI with Big Tech's enterprise initiatives](https://finance.yahoo.com/video/dont-confuse-consumer-ai-big-174121164.html)
-- Feb 07 - [Los Angeles sheriff deputy found guilty of excessive force in arrest of woman caught on video](https://www.yahoo.com/news/los-angeles-sheriff-deputy-found-172926758.html)
-- Feb 07 - [Trump Is Going to Blow a Fuse Over This New Time Cover With Elon Musk](https://www.yahoo.com/news/trump-going-blow-fuse-over-170857856.html)
-- Feb 07 - [iOS 18.3.1 is reportedly coming to iPhones soon: What we know about mystery update](https://www.yahoo.com/tech/ios-18-3-1-reportedly-164635556.html)
+- Feb 07 - [Trump turns on Time magazine after new cover shows Musk sitting behind his Resolute desk](https://www.yahoo.com/news/trump-turns-time-magazine-cover-192730827.html)
+- Feb 07 - [Is a certificate of deposit (CD) still a good investment?](https://finance.yahoo.com/personal-finance/banking/article/is-a-cd-a-good-investment-192229276.html)
+- Feb 07 - [Bill Gates Says He Donated $100 Billion Of His Wealth To Charitable Causes, But He 'Didn't Order Less Hamburgers Or Less Movies'](https://finance.yahoo.com/news/bill-gates-says-donated-100-190014760.html)
+- Feb 07 - [People Are Convinced This Time Magazine Cover Is Going To Enrage Donald Trump](https://www.yahoo.com/entertainment/people-convinced-time-magazine-cover-183911754.html)
+- Feb 07 - [How Navy submarine cooks feed 150 sailors at sea](https://www.yahoo.com/news/navy-submarine-cooks-feed-150-180628830.html)
 <!-- feed end -->
 
 ### Onstream
