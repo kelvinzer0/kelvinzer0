@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Rival School Mariachi Groups Join Forces for Impromptu Performance at Burger Joint](https://www.yahoo.com/news/rival-school-mariachi-groups-join-160923955.html)
-- Feb 07 - [Super Micro Computer Jumps 6% as Investors favor AI push](https://finance.yahoo.com/news/super-micro-computer-jumps-6-160147078.html)
-- Feb 07 - [Worried about Elon Musk and ‘DOGE’ getting your Social Security number? Here’s how to protect yourself.](https://www.yahoo.com/news/worried-elon-musk-doge-getting-230600194.html)
+- Feb 07 - [John Fetterman reveals which way he’ll vote on RFK Jr and Tulsi Gabbard](https://www.yahoo.com/news/john-fetterman-reveals-way-ll-153930067.html)
+- Feb 07 - [Chilling Twist in Death of 27-Year-Old Super Bowl Reporter Adan Manzano](https://www.yahoo.com/news/chilling-twist-death-27-old-162915433.html)
+- Feb 07 - [Exclusive-Trump to announce reciprocal tariffs as early as Friday, sources say](https://finance.yahoo.com/news/exclusive-trump-told-gop-lawmakers-160217180.html)
+- Feb 07 - [Father on indefinite jail term for stealing phone has ‘lost hope’ after being denied hospital transfer](https://www.yahoo.com/news/father-indefinite-jail-term-stealing-160011893.html)
 - Feb 07 - [Watch: Moment policeman knocks ‘goading’ teenager off e-bike](https://www.yahoo.com/news/watch-moment-policeman-knocks-goading-141657943.html)
-- Feb 07 - [8-hour flightmare after Boeing 737 Max bound for Iceland was diverted to Scotland when strong winds stopped it landing](https://www.yahoo.com/news/8-hour-flightmare-boeing-737-125924718.html)
 <!-- feed end -->
 
 ### Onstream
