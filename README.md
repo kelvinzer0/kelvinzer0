@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 07 - ["My Heart Breaks Just Thinking My Vote Contributed To This": 27 MAGA Voters Shared What Donald Trump Could Do To Lose Their Support, And For Some It's Too Late](https://www.yahoo.com/news/heart-breaks-just-thinking-vote-201426198.html)
 - Feb 07 - [Trump turns on Time magazine after new cover shows Musk sitting behind his Resolute desk](https://www.yahoo.com/news/trump-turns-time-magazine-cover-192730827.html)
-- Feb 07 - [Is a certificate of deposit (CD) still a good investment?](https://finance.yahoo.com/personal-finance/banking/article/is-a-cd-a-good-investment-192229276.html)
+- Feb 07 - [Chinese Tank’s Active Protection System Seen Intercepting Drone-Fired Rocket Propelled Grenade](https://www.yahoo.com/news/chinese-tank-active-protection-system-191750448.html)
 - Feb 07 - [Bill Gates Says He Donated $100 Billion Of His Wealth To Charitable Causes, But He 'Didn't Order Less Hamburgers Or Less Movies'](https://finance.yahoo.com/news/bill-gates-says-donated-100-190014760.html)
-- Feb 07 - [People Are Convinced This Time Magazine Cover Is Going To Enrage Donald Trump](https://www.yahoo.com/entertainment/people-convinced-time-magazine-cover-183911754.html)
-- Feb 07 - [How Navy submarine cooks feed 150 sailors at sea](https://www.yahoo.com/news/navy-submarine-cooks-feed-150-180628830.html)
+- Feb 07 - [Des Moines grocery owner charged with money laundering related to drug trafficking](https://www.yahoo.com/news/des-moines-grocery-owner-charged-175955062.html)
 <!-- feed end -->
 
 ### Onstream
