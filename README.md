@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Inside Ukraine's race to crank out unjammable, fiber-optic drones that can break through Russia's electronic warfare](https://www.yahoo.com/news/inside-ukraines-race-crank-unjammable-100602988.html)
-- Feb 07 - [A Russian spy ship caught fire off Syria's coast, officials say. Here's audio of its broadcasts](https://www.yahoo.com/news/russian-spy-ship-caught-fire-030822355.html)
+- Feb 07 - [Norwegian company abandons plans for $2.5 billion battery plant, 700 jobs in metro Atlanta](https://finance.yahoo.com/news/norwegian-company-abandons-plans-2-093350190.html)
 - Feb 07 - [More than 140,000 Toyota and Lexus vehicles recalled: See affected vehicles](https://www.yahoo.com/news/more-140-000-toyota-lexus-013120880.html)
-- Feb 07 - [Flailing fast! Trump loses in court as MAGA leader blasts Musk as a dangerous phony](https://www.yahoo.com/news/flailing-fast-trump-loses-court-005151767.html)
 - Feb 06 - [DeepSeek's advanced tracking technology 'never seen before'](https://finance.yahoo.com/video/deepseeks-advanced-tracking-technology-never-222053515.html)
+- Feb 06 - [Judge rules Georgia railroad can seize land as landowners vow to fight](https://www.yahoo.com/news/judge-rules-georgia-railroad-seize-220428956.html)
+- Feb 06 - [Kansas City sports reporter dies while in New Orleans for Super Bowl LIX](https://www.yahoo.com/news/kansas-city-sports-reporter-dies-194407874.html)
 <!-- feed end -->
 
 ### Onstream
