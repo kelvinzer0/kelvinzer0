@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Two years on since a devastating earthquake hit southern Turkey, survivors suffer continued hardship](https://www.yahoo.com/news/two-years-since-devastating-earthquake-011922679.html)
-- Feb 06 - [Why was the UK cooler than normal in January while global temperatures hit record high?](https://www.yahoo.com/news/uk-january-cooler-world-record-temperatures-171427178.html)
-- Feb 06 - [AOC says she's worth less than $500,000 after kickback claims — and seems to get kudos from Trump fans in response](https://www.yahoo.com/news/aoc-says-shes-worth-less-160020985.html)
-- Feb 06 - [Volkswagen is unveiling a $21,000 entry-level EV in March](https://www.yahoo.com/tech/volkswagen-is-unveiling-a-21000-entry-level-ev-in-march-150057140.html)
-- Feb 06 - [Archaeologists Just Found the Oldest 3D Map in the World](https://www.yahoo.com/news/archaeologists-just-found-oldest-3d-140000521.html)
+- Feb 07 - [More than 140,000 Toyota and Lexus vehicles recalled: See affected vehicles](https://www.yahoo.com/news/more-140-000-toyota-lexus-013120880.html)
+- Feb 07 - [Woman, 33, shares 5 colon cancer symptoms she dismissed: 'I was in shock'](https://www.yahoo.com/lifestyle/woman-33-shares-5-colon-010721677.html)
+- Feb 07 - [Flailing fast! Trump loses in court as MAGA leader blasts Musk as a dangerous phony](https://www.yahoo.com/news/flailing-fast-trump-loses-court-005151767.html)
+- Feb 07 - [Palm Springs to pay downtown restaurant $500,000 to settle dispute over Plaza Theatre](https://www.yahoo.com/news/palm-springs-pay-downtown-restaurant-003954763.html)
+- Feb 06 - [DeepSeek's advanced tracking technology 'never seen before'](https://finance.yahoo.com/video/deepseeks-advanced-tracking-technology-never-222053515.html)
 <!-- feed end -->
 
 ### Onstream
