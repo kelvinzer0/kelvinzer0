@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [John Fetterman reveals which way he’ll vote on RFK Jr and Tulsi Gabbard](https://www.yahoo.com/news/john-fetterman-reveals-way-ll-153930067.html)
+- Feb 07 - [Democrats ask for an investigation into DOGE's access to Treasury's payment systems](https://www.yahoo.com/news/democrats-ask-investigation-doges-access-180855853.html)
+- Feb 07 - [Gino D’Acampo shows axed by ITV following ‘sexually inappropriate’ behaviour accusations](https://www.yahoo.com/news/gino-d-acampo-shows-axed-145937814.html)
+- Feb 07 - [How Navy submarine cooks feed 150 sailors at sea](https://www.yahoo.com/news/navy-submarine-cooks-feed-150-180628830.html)
+- Feb 07 - [Los Angeles sheriff deputy found guilty of excessive force in arrest of woman caught on video](https://www.yahoo.com/news/los-angeles-sheriff-deputy-found-172926758.html)
 - Feb 07 - [Chilling Twist in Death of 27-Year-Old Super Bowl Reporter Adan Manzano](https://www.yahoo.com/news/chilling-twist-death-27-old-162915433.html)
-- Feb 07 - [Exclusive-Trump to announce reciprocal tariffs as early as Friday, sources say](https://finance.yahoo.com/news/exclusive-trump-told-gop-lawmakers-160217180.html)
-- Feb 07 - [Father on indefinite jail term for stealing phone has ‘lost hope’ after being denied hospital transfer](https://www.yahoo.com/news/father-indefinite-jail-term-stealing-160011893.html)
-- Feb 07 - [Watch: Moment policeman knocks ‘goading’ teenager off e-bike](https://www.yahoo.com/news/watch-moment-policeman-knocks-goading-141657943.html)
 <!-- feed end -->
 
 ### Onstream
