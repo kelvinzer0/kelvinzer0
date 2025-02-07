@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [How To Earn $500 A Month From McDonald's Stock Ahead Of Q4 Earnings](https://finance.yahoo.com/news/earn-500-month-mcdonalds-stock-132210778.html)
+- Feb 07 - [2 dead, 3 injured in weather event with 'possible tornado,' officials in Tennessee say](https://www.yahoo.com/news/2-dead-3-injured-weather-131834021.html)
+- Feb 07 - [News outlet Politico got dragged into the USAID chaos. Turns out, government workers have a $16 million habit of reading premium political news](https://www.yahoo.com/news/news-outlet-politico-got-dragged-120700040.html)
+- Feb 07 - [Argentine river turns blood red, causing local alarm](https://www.yahoo.com/news/argentine-river-turns-blood-red-115212482.html)
+- Feb 07 - [One country is on the verge of phasing out gas cars completely after boosting EV sales to staggering level: 'The future is electric'](https://www.yahoo.com/news/one-country-verge-phasing-gas-104522552.html)
 - Feb 07 - [I Work in the Office Carrying Out the Government Purge. Here’s What I Want You to Know.](https://www.yahoo.com/news/office-carrying-government-purge-want-104000528.html)
-- Feb 07 - [Norwegian company abandons plans for $2.5 billion battery plant, 700 jobs in metro Atlanta](https://finance.yahoo.com/news/norwegian-company-abandons-plans-2-093350190.html)
-- Feb 07 - [China lashes out at US 'coercion' after Panama declines to renew infrastructure agreement](https://www.yahoo.com/news/china-lashes-us-coercion-panama-092137453.html)
-- Feb 07 - [Frontier passenger overpowered after punching out plane window during a flight after he was asked to move seat](https://www.yahoo.com/news/frontier-passenger-overpowered-punching-plane-021303536.html)
 <!-- feed end -->
 
 ### Onstream
