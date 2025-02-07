@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Bangladesh's government warns of stern action after house where independence was declared is razed](https://www.yahoo.com/news/bangladeshs-government-warns-stern-action-213155054.html)
+- Feb 07 - [Rainbow Appears Over San Francisco Airport](https://www.yahoo.com/news/rainbow-appears-over-san-francisco-222129387.html)
 - Feb 07 - [Trump turns on Time magazine after new cover shows Musk sitting behind his Resolute desk](https://www.yahoo.com/news/trump-turns-time-magazine-cover-192730827.html)
-- Feb 07 - [Kentucky child not vaccinated against influenza dies from flu](https://www.yahoo.com/news/kentucky-child-not-vaccinated-against-212042675.html)
 - Feb 07 - [Trudeau Caught on Hot Mic Revealing Trump’s Plans for Canada](https://www.yahoo.com/news/trudeau-caught-hot-mic-revealing-205223800.html)
 - Feb 07 - [Battery firm abandons plan for a $2.6 billion plant in Georgia](https://finance.yahoo.com/news/battery-firm-abandons-plan-2-204124724.html)
+- Feb 07 - [Former BYU basketball player killed in I-15 rollover crash](https://sports.yahoo.com/former-byu-basketball-player-killed-194603571.html)
 <!-- feed end -->
 
 ### Onstream
