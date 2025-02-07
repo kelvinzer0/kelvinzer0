@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 07 - [A Russian spy ship caught fire off Syria's coast, officials say. Here's audio of its broadcasts](https://www.yahoo.com/news/russian-spy-ship-caught-fire-030822355.html)
 - Feb 07 - [More than 140,000 Toyota and Lexus vehicles recalled: See affected vehicles](https://www.yahoo.com/news/more-140-000-toyota-lexus-013120880.html)
 - Feb 07 - [Flailing fast! Trump loses in court as MAGA leader blasts Musk as a dangerous phony](https://www.yahoo.com/news/flailing-fast-trump-loses-court-005151767.html)
-- Feb 07 - [Palm Springs to pay downtown restaurant $500,000 to settle dispute over Plaza Theatre](https://www.yahoo.com/news/palm-springs-pay-downtown-restaurant-003954763.html)
 - Feb 06 - [DeepSeek's advanced tracking technology 'never seen before'](https://finance.yahoo.com/video/deepseeks-advanced-tracking-technology-never-222053515.html)
 - Feb 06 - [Judge rules Georgia railroad can seize land as landowners vow to fight](https://www.yahoo.com/news/judge-rules-georgia-railroad-seize-220428956.html)
 <!-- feed end -->
