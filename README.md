@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [The flu season is so severe that it's forcing schools to close across the country](https://www.yahoo.com/news/flu-season-severe-forcing-schools-072107546.html)
+- Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
 - Feb 08 - [Busted: Trump AG's revenge plans may haunt Trump in future cases](https://www.yahoo.com/news/busted-trump-ags-revenge-plans-002513484.html)
-- Feb 07 - [Meta prepares for layoffs on Monday -internal memo](https://finance.yahoo.com/news/meta-prepares-layoffs-monday-internal-215926552.html)
+- Feb 08 - [The 9 Best Canned Foods You Should Be Eating for Weight Loss, According to Dietitians](https://www.yahoo.com/lifestyle/9-best-canned-foods-eating-002429517.html)
 - Feb 07 - [Unprecedented New View Of BLU-109 Bunker Buster Strike That Killed Hezbollah’s Leadership](https://www.yahoo.com/news/unprecedented-view-blu-109-bunker-211205308.html)
-- Feb 07 - [Trudeau Caught on Hot Mic Revealing Trump’s Plans for Canada](https://www.yahoo.com/news/trudeau-caught-hot-mic-revealing-205223800.html)
-- Feb 07 - [These St. Louis suburbs ranked as best places to live in the U.S.](https://www.yahoo.com/lifestyle/st-louis-suburbs-ranked-best-201532785.html)
 <!-- feed end -->
 
 ### Onstream
