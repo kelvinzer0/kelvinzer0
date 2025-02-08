@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [I'm 31, make $48K/year and can only afford to invest $120 per month. Can I build real wealth in America?](https://finance.yahoo.com/news/im-31-48k-only-afford-115500089.html)
 - Feb 08 - [Israeli hostages forced by Hamas captors to speak in Gaza release](https://www.yahoo.com/news/israeli-hostages-forced-hamas-captors-112733940.html)
 - Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
-- Feb 08 - ['They are truly heroes': North Naples man survived gator attack thanks to his neighbors](https://www.yahoo.com/news/truly-heroes-north-naples-man-100805914.html)
 - Feb 08 - [The Stock Market Is Doing Something Witnessed Only 3 Times in 154 Years -- and History Makes Clear What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-witnessed-090600619.html)
+- Feb 08 - [At Least 1 Person Killed in Collision Between Train and Bus](https://www.yahoo.com/news/least-1-person-killed-collision-085144718.html)
+- Feb 08 - [President Donald Trump Wants to Change Social Security, but It Comes With a Potentially Big Cost to Retirees](https://finance.yahoo.com/news/president-donald-trump-wants-change-084400868.html)
 <!-- feed end -->
 
 ### Onstream
