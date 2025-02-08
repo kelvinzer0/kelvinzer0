@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [Latvia cuts Russian power grid ties as Baltics set to link with EU](https://www.yahoo.com/news/latvia-cuts-russian-power-grid-133544841.html)
+- Feb 08 - [Is BigCommerce Holdings Inc. (BIGC) the Best Tech Stock to Buy Right Now Under $10?](https://finance.yahoo.com/news/bigcommerce-holdings-inc-bigc-best-144716634.html)
+- Feb 08 - [Chevron Says Fading US Crude Growth Casts Pall on Port Projects](https://finance.yahoo.com/news/chevron-says-fading-us-crude-140100518.html)
+- Feb 08 - [Man ransacks altar at St. Peter’s Basilica, knocking over candelabra worth thousands of dollars](https://www.yahoo.com/news/man-ransacks-altar-st-peter-134606942.html)
 - Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
 - Feb 08 - [8th-grader makes concerning discovery about tumor formation during school science project — here's why experts should be paying attention](https://www.yahoo.com/news/8th-grader-makes-concerning-discovery-110006304.html)
-- Feb 08 - [Iran leader Khamenei meets top Hamas leaders in Tehran, state TV says](https://www.yahoo.com/news/iran-leader-khamenei-meets-top-092513965.html)
-- Feb 08 - [President Donald Trump Wants to Change Social Security, but It Comes With a Potentially Big Cost to Retirees](https://finance.yahoo.com/news/president-donald-trump-wants-change-084400868.html)
 <!-- feed end -->
 
 ### Onstream
