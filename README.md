@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Rainbow Appears Over San Francisco Airport](https://www.yahoo.com/news/rainbow-appears-over-san-francisco-222129387.html)
-- Feb 07 - [Trump turns on Time magazine after new cover shows Musk sitting behind his Resolute desk](https://www.yahoo.com/news/trump-turns-time-magazine-cover-192730827.html)
-- Feb 07 - [Trudeau Caught on Hot Mic Revealing Trump’s Plans for Canada](https://www.yahoo.com/news/trudeau-caught-hot-mic-revealing-205223800.html)
-- Feb 07 - [Battery firm abandons plan for a $2.6 billion plant in Georgia](https://finance.yahoo.com/news/battery-firm-abandons-plan-2-204124724.html)
-- Feb 07 - [Former BYU basketball player killed in I-15 rollover crash](https://sports.yahoo.com/former-byu-basketball-player-killed-194603571.html)
+- Feb 07 - [Trump says he's ending Biden's classified intelligence briefings in payback move](https://www.yahoo.com/news/trump-says-hes-revoking-bidens-234120213.html)
+- Feb 07 - [Donald Trump Says He’s Firing Kennedy Center Board Members, Naming Himself Chairman](https://www.yahoo.com/news/donald-trump-says-firing-kennedy-232612293.html)
+- Feb 07 - [Meta prepares for layoffs on Monday -internal memo](https://finance.yahoo.com/news/meta-prepares-layoffs-monday-internal-215926552.html)
+- Feb 07 - [Coast Guard: No survivors in crash of Alaska plane carrying 10 people. Here's what we know.](https://www.yahoo.com/news/coast-guard-no-survivors-in-crash-of-alaska-plane-carrying-10-people-heres-what-we-know-213701277.html)
+- Feb 07 - [Unprecedented New View Of BLU-109 Bunker Buster Strike That Killed Hezbollah’s Leadership](https://www.yahoo.com/news/unprecedented-view-blu-109-bunker-211205308.html)
 <!-- feed end -->
 
 ### Onstream
