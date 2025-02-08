@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [Is BigCommerce Holdings Inc. (BIGC) the Best Tech Stock to Buy Right Now Under $10?](https://finance.yahoo.com/news/bigcommerce-holdings-inc-bigc-best-144716634.html)
-- Feb 08 - [Chevron Says Fading US Crude Growth Casts Pall on Port Projects](https://finance.yahoo.com/news/chevron-says-fading-us-crude-140100518.html)
 - Feb 08 - [Man ransacks altar at St. Peter’s Basilica, knocking over candelabra worth thousands of dollars](https://www.yahoo.com/news/man-ransacks-altar-st-peter-134606942.html)
+- Feb 08 - [Zelenskyy confirms a new Ukrainian offensive in Russia's Kursk region](https://www.yahoo.com/news/zelenskyy-confirms-ukrainian-offensive-russias-144348036.html)
+- Feb 08 - [Trump chops away at the government and the fallout is felt in the Virginia governor's race](https://www.yahoo.com/news/trump-chops-away-government-fallout-134816510.html)
 - Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
 - Feb 08 - [8th-grader makes concerning discovery about tumor formation during school science project — here's why experts should be paying attention](https://www.yahoo.com/news/8th-grader-makes-concerning-discovery-110006304.html)
 <!-- feed end -->
