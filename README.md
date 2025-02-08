@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Trump says he's ending Biden's classified intelligence briefings in payback move](https://www.yahoo.com/news/trump-says-hes-revoking-bidens-234120213.html)
-- Feb 07 - [Woman takes down US flag, replaces it with Mexican flag at California park: 'This is Mexican land'](https://www.yahoo.com/news/woman-takes-down-us-flag-231055311.html)
-- Feb 07 - [Meta prepares for layoffs on Monday -internal memo](https://finance.yahoo.com/news/meta-prepares-layoffs-monday-internal-215926552.html)
+- Feb 08 - [NYC employees given steps to follow during ICE interaction](https://www.yahoo.com/news/nyc-employees-given-steps-during-010918621.html)
+- Feb 08 - [Busted: Trump AG's revenge plans may haunt Trump in future cases](https://www.yahoo.com/news/busted-trump-ags-revenge-plans-002513484.html)
+- Feb 07 - [Measles outbreak expands in West Texas around county with low vaccination rate](https://www.yahoo.com/news/measles-outbreak-expands-west-texas-235320557.html)
 - Feb 07 - [Unprecedented New View Of BLU-109 Bunker Buster Strike That Killed Hezbollah’s Leadership](https://www.yahoo.com/news/unprecedented-view-blu-109-bunker-211205308.html)
 - Feb 07 - [I'm retired — and diagnosed with cancer. My doctor wants to start chemo ASAP, but I have a gap in my health coverage](https://finance.yahoo.com/news/im-retired-diagnosed-cancer-doctor-200000860.html)
 <!-- feed end -->
