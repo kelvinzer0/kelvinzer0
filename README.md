@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 07 - [Trump says he's ending Biden's classified intelligence briefings in payback move](https://www.yahoo.com/news/trump-says-hes-revoking-bidens-234120213.html)
-- Feb 07 - [Donald Trump Says He’s Firing Kennedy Center Board Members, Naming Himself Chairman](https://www.yahoo.com/news/donald-trump-says-firing-kennedy-232612293.html)
+- Feb 07 - [Woman takes down US flag, replaces it with Mexican flag at California park: 'This is Mexican land'](https://www.yahoo.com/news/woman-takes-down-us-flag-231055311.html)
 - Feb 07 - [Meta prepares for layoffs on Monday -internal memo](https://finance.yahoo.com/news/meta-prepares-layoffs-monday-internal-215926552.html)
-- Feb 07 - [Coast Guard: No survivors in crash of Alaska plane carrying 10 people. Here's what we know.](https://www.yahoo.com/news/coast-guard-no-survivors-in-crash-of-alaska-plane-carrying-10-people-heres-what-we-know-213701277.html)
 - Feb 07 - [Unprecedented New View Of BLU-109 Bunker Buster Strike That Killed Hezbollah’s Leadership](https://www.yahoo.com/news/unprecedented-view-blu-109-bunker-211205308.html)
+- Feb 07 - [I'm retired — and diagnosed with cancer. My doctor wants to start chemo ASAP, but I have a gap in my health coverage](https://finance.yahoo.com/news/im-retired-diagnosed-cancer-doctor-200000860.html)
 <!-- feed end -->
 
 ### Onstream
