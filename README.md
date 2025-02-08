@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [Israeli hostages forced by Hamas captors to speak in Gaza release](https://www.yahoo.com/news/israeli-hostages-forced-hamas-captors-112733940.html)
+- Feb 08 - [Latvia cuts Russian power grid ties as Baltics set to link with EU](https://www.yahoo.com/news/latvia-cuts-russian-power-grid-133544841.html)
 - Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
-- Feb 08 - [The Stock Market Is Doing Something Witnessed Only 3 Times in 154 Years -- and History Makes Clear What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-witnessed-090600619.html)
-- Feb 08 - [At Least 1 Person Killed in Collision Between Train and Bus](https://www.yahoo.com/news/least-1-person-killed-collision-085144718.html)
+- Feb 08 - [8th-grader makes concerning discovery about tumor formation during school science project — here's why experts should be paying attention](https://www.yahoo.com/news/8th-grader-makes-concerning-discovery-110006304.html)
+- Feb 08 - [Iran leader Khamenei meets top Hamas leaders in Tehran, state TV says](https://www.yahoo.com/news/iran-leader-khamenei-meets-top-092513965.html)
 - Feb 08 - [President Donald Trump Wants to Change Social Security, but It Comes With a Potentially Big Cost to Retirees](https://finance.yahoo.com/news/president-donald-trump-wants-change-084400868.html)
 <!-- feed end -->
 
