@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [Pete Hegseth rips former Fox News colleague and calls out ‘fake news’ for her sharing of factual information](https://www.yahoo.com/news/pete-hegseth-rips-former-fox-164051101.html)
+- Feb 08 - [Here’s Why Marvell Technology Inc. (MRVL) Crashed on Friday](https://finance.yahoo.com/news/why-marvell-technology-inc-mrvl-155123437.html)
 - Feb 08 - [Man ransacks altar at St. Peter’s Basilica, knocking over candelabra worth thousands of dollars](https://www.yahoo.com/news/man-ransacks-altar-st-peter-134606942.html)
 - Feb 08 - [Zelenskyy confirms a new Ukrainian offensive in Russia's Kursk region](https://www.yahoo.com/news/zelenskyy-confirms-ukrainian-offensive-russias-144348036.html)
 - Feb 08 - [Trump chops away at the government and the fallout is felt in the Virginia governor's race](https://www.yahoo.com/news/trump-chops-away-government-fallout-134816510.html)
-- Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
-- Feb 08 - [8th-grader makes concerning discovery about tumor formation during school science project — here's why experts should be paying attention](https://www.yahoo.com/news/8th-grader-makes-concerning-discovery-110006304.html)
 <!-- feed end -->
 
 ### Onstream
