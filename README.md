@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [PlayStation Network 16-hour outage continues, quashing online video games](https://www.yahoo.com/tech/playstation-network-16-hour-outage-184432368.html)
 - Feb 08 - [Bison 'thunder' through crowd of panicked Yellowstone tourists](https://www.yahoo.com/news/bison-thunder-crowd-panicked-yellowstone-180329075.html)
 - Feb 08 - [Kennedy Center Swipes Back at Unprecedented Trump Shakeup](https://www.yahoo.com/news/kennedy-center-swipes-back-unprecedented-180235045.html)
 - Feb 08 - [Singer-Activist Buffy Sainte-Marie Stripped of Order of Canada, the Country’s Most Prestigious Civilian Honor](https://www.yahoo.com/news/singer-activist-buffy-sainte-marie-172606961.html)
+- Feb 08 - [Pete Hegseth rips former Fox News colleague and calls out ‘fake news’ for her sharing of factual information](https://www.yahoo.com/news/pete-hegseth-rips-former-fox-164051101.html)
 - Feb 08 - [First words decoded from burnt scrolls that haven’t been read in nearly 2,000 years](https://www.yahoo.com/news/first-words-decoded-burnt-scrolls-160047748.html)
 <!-- feed end -->
 
