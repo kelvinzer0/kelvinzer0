@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [The flu season is so severe that it's forcing schools to close across the country](https://www.yahoo.com/news/flu-season-severe-forcing-schools-072107546.html)
 - Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
 - Feb 08 - [Busted: Trump AG's revenge plans may haunt Trump in future cases](https://www.yahoo.com/news/busted-trump-ags-revenge-plans-002513484.html)
-- Feb 08 - [The 9 Best Canned Foods You Should Be Eating for Weight Loss, According to Dietitians](https://www.yahoo.com/lifestyle/9-best-canned-foods-eating-002429517.html)
-- Feb 07 - [Unprecedented New View Of BLU-109 Bunker Buster Strike That Killed Hezbollah’s Leadership](https://www.yahoo.com/news/unprecedented-view-blu-109-bunker-211205308.html)
+- Feb 07 - [UNLV shooter kept dresses for sex workers, received startling text in aftermath, Las Vegas police say](https://www.yahoo.com/news/unlv-shooter-kept-dresses-sex-235652893.html)
+- Feb 07 - [Measles outbreak expands in West Texas around county with low vaccination rate](https://www.yahoo.com/news/measles-outbreak-expands-west-texas-235320557.html)
+- Feb 07 - [Hegseth Wants $50,000 for 'Emergency' Paint Job to Move into Military Family Housing, Lawmakers Say](https://www.yahoo.com/news/hegseth-wants-50-000-emergency-224234848.html)
 <!-- feed end -->
 
 ### Onstream
