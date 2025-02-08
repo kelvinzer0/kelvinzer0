@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [President Donald Trump Wants to Change Social Security, but It Comes With a Potentially Big Cost to Retirees](https://finance.yahoo.com/news/president-donald-trump-wants-change-084400868.html)
+- Feb 08 - [I'm 31, make $48K/year and can only afford to invest $120 per month. Can I build real wealth in America?](https://finance.yahoo.com/news/im-31-48k-only-afford-115500089.html)
+- Feb 08 - [Israeli hostages forced by Hamas captors to speak in Gaza release](https://www.yahoo.com/news/israeli-hostages-forced-hamas-captors-112733940.html)
 - Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
-- Feb 08 - [Busted: Trump AG's revenge plans may haunt Trump in future cases](https://www.yahoo.com/news/busted-trump-ags-revenge-plans-002513484.html)
-- Feb 08 - [The 9 Best Canned Foods You Should Be Eating for Weight Loss, According to Dietitians](https://www.yahoo.com/lifestyle/9-best-canned-foods-eating-002429517.html)
-- Feb 07 - [Trump says he's ending Biden's classified intelligence briefings in payback move](https://www.yahoo.com/news/trump-says-hes-revoking-bidens-234120213.html)
+- Feb 08 - ['They are truly heroes': North Naples man survived gator attack thanks to his neighbors](https://www.yahoo.com/news/truly-heroes-north-naples-man-100805914.html)
+- Feb 08 - [The Stock Market Is Doing Something Witnessed Only 3 Times in 154 Years -- and History Makes Clear What Happens Next](https://finance.yahoo.com/news/stock-market-doing-something-witnessed-090600619.html)
 <!-- feed end -->
 
 ### Onstream
