@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [4 Stocks That Turned $1,000 Into $1 Million (or More)](https://finance.yahoo.com/news/4-stocks-turned-1-000-094100331.html)
+- Feb 08 - [President Donald Trump Wants to Change Social Security, but It Comes With a Potentially Big Cost to Retirees](https://finance.yahoo.com/news/president-donald-trump-wants-change-084400868.html)
 - Feb 08 - ['We left pieces of our life behind': Indigenous group flees drowning island](https://www.yahoo.com/news/left-pieces-life-behind-indigenous-014753918.html)
 - Feb 08 - [Busted: Trump AG's revenge plans may haunt Trump in future cases](https://www.yahoo.com/news/busted-trump-ags-revenge-plans-002513484.html)
 - Feb 08 - [The 9 Best Canned Foods You Should Be Eating for Weight Loss, According to Dietitians](https://www.yahoo.com/lifestyle/9-best-canned-foods-eating-002429517.html)
-- Feb 07 - [Unprecedented New View Of BLU-109 Bunker Buster Strike That Killed Hezbollah’s Leadership](https://www.yahoo.com/news/unprecedented-view-blu-109-bunker-211205308.html)
+- Feb 07 - [Trump says he's ending Biden's classified intelligence briefings in payback move](https://www.yahoo.com/news/trump-says-hes-revoking-bidens-234120213.html)
 <!-- feed end -->
 
 ### Onstream
