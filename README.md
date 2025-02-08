@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [Busted: Trump AG's revenge plans may haunt Trump in future cases](https://www.yahoo.com/news/busted-trump-ags-revenge-plans-002513484.html)
+- Feb 08 - [The 9 Best Canned Foods You Should Be Eating for Weight Loss, According to Dietitians](https://www.yahoo.com/lifestyle/9-best-canned-foods-eating-002429517.html)
+- Feb 07 - [Hegseth Wants $50,000 for 'Emergency' Paint Job to Move into Military Family Housing, Lawmakers Say](https://www.yahoo.com/news/hegseth-wants-50-000-emergency-224234848.html)
+- Feb 07 - [Former Alachua County Sheriff's Office sergeant wins $15M racial discrimination verdict](https://www.yahoo.com/news/former-alachua-county-sheriffs-office-220138197.html)
 - Feb 07 - [Meta prepares for layoffs on Monday -internal memo](https://finance.yahoo.com/news/meta-prepares-layoffs-monday-internal-215926552.html)
-- Feb 07 - [Unprecedented New View Of BLU-109 Bunker Buster Strike That Killed Hezbollah’s Leadership](https://www.yahoo.com/news/unprecedented-view-blu-109-bunker-211205308.html)
-- Feb 07 - [Scorched Pacific Palisades Plot Finds a Buyer for Just Under $1 Million—Less Than a Month After Home Was Destroyed by Wildfires](https://www.yahoo.com/lifestyle/scorched-pacific-palisades-plot-finds-210912933.html)
-- Feb 07 - [These St. Louis suburbs ranked as best places to live in the U.S.](https://www.yahoo.com/lifestyle/st-louis-suburbs-ranked-best-201532785.html)
-- Feb 07 - [Is a certificate of deposit (CD) still a good investment?](https://finance.yahoo.com/personal-finance/banking/article/is-a-cd-a-good-investment-192229276.html)
 <!-- feed end -->
 
 ### Onstream
