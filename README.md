@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Egypt to host Arab crisis meeting amid uproar over Trump's Gaza plan](https://www.yahoo.com/news/egypt-host-arab-crisis-meeting-101226826.html)
+- Feb 09 - [Baltic states switch to European power grid, ending Russia ties](https://finance.yahoo.com/news/baltic-states-switch-european-power-121255141.html)
+- Feb 09 - [The Most Livable City in Every State and What It Will Cost You](https://finance.yahoo.com/news/most-livable-city-every-state-110105712.html)
+- Feb 09 - [Men Who Have Gotten Vasectomies Are Sharing Their Stories And Some Of Them May Surprise You](https://www.yahoo.com/lifestyle/men-gotten-vasectomies-sharing-stories-101602263.html)
 - Feb 09 - [New bird flu variant found in Nevada dairy cows has experts sounding alarms: ‘We have never been closer to a pandemic from this virus’](https://www.yahoo.com/news/bird-flu-variant-found-nevada-034706069.html)
 - Feb 09 - [FDA recalls more than 2 million baked goods over concerns of listeria contamination](https://www.yahoo.com/news/fda-recalls-more-2-million-002332218.html)
-- Feb 08 - [Trump Enrages Christian MAGA By Naming ‘Heretic’ Pastor to White House](https://www.yahoo.com/news/trump-enrages-christian-maga-naming-224833273.html)
-- Feb 08 - [Kennedy Center Swipes Back at Unprecedented Trump Shakeup](https://www.yahoo.com/news/kennedy-center-swipes-back-unprecedented-180235045.html)
 <!-- feed end -->
 
 ### Onstream
