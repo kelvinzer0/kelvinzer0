@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Town-by-town totals: These Massachusetts communities received the most snow](https://www.yahoo.com/news/town-town-totals-massachusetts-communities-120353619.html)
-- Feb 09 - [Trump tariffs rip right through C-suites and financial models](https://finance.yahoo.com/news/trump-tariffs-rip-right-through-c-suites-and-financial-models-133008778.html)
-- Feb 09 - [Iranian schools and offices shut as cold snap bites](https://www.yahoo.com/news/iranian-schools-offices-shut-cold-132617715.html)
+- Feb 09 - [I’m a Bank Teller: 6 Top Ways You Can Keep Your Checking Account Safe](https://finance.yahoo.com/news/m-bank-teller-6-top-110144390.html)
 - Feb 09 - [This Wisconsin man with autism was 'devastated' after Social Security told him to pay back $35K. Is the system broken?](https://www.yahoo.com/news/wisconsin-man-autism-devastated-social-115500584.html)
 - Feb 09 - [Chinese cargo ship runs aground off Russia's Sakhalin Island](https://www.yahoo.com/news/chinese-cargo-ship-runs-aground-113119204.html)
+- Feb 09 - [Men Who Have Gotten Vasectomies Are Sharing Their Stories And Some Of Them May Surprise You](https://www.yahoo.com/lifestyle/men-gotten-vasectomies-sharing-stories-101602263.html)
+- Feb 09 - [Trump vows to tap America’s ‘liquid gold’ oil reserves and ‘drill baby, drill’—the only problem is, it’s not up to him](https://www.yahoo.com/news/trump-vows-tap-america-liquid-100000692.html)
 <!-- feed end -->
 
 ### Onstream
