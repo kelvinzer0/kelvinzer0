@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Former minimum-wage worker retired at 39 with $3.5M nest egg — now he’s an expat in Dubai living on $185K/year](https://finance.yahoo.com/news/former-minimum-wage-worker-retired-121400973.html)
 - Feb 09 - [Baltic states switch to European power grid, ending Russia ties](https://finance.yahoo.com/news/baltic-states-switch-european-power-121255141.html)
-- Feb 09 - [The Most Livable City in Every State and What It Will Cost You](https://finance.yahoo.com/news/most-livable-city-every-state-110105712.html)
-- Feb 09 - [Men Who Have Gotten Vasectomies Are Sharing Their Stories And Some Of Them May Surprise You](https://www.yahoo.com/lifestyle/men-gotten-vasectomies-sharing-stories-101602263.html)
+- Feb 09 - [New study sheds light on game-changing discovery in the Indian Ocean: 'Past models have been coarse'](https://www.yahoo.com/news/study-sheds-light-game-changing-104505650.html)
 - Feb 09 - [New bird flu variant found in Nevada dairy cows has experts sounding alarms: ‘We have never been closer to a pandemic from this virus’](https://www.yahoo.com/news/bird-flu-variant-found-nevada-034706069.html)
-- Feb 09 - [FDA recalls more than 2 million baked goods over concerns of listeria contamination](https://www.yahoo.com/news/fda-recalls-more-2-million-002332218.html)
+- Feb 09 - [Man's pop-up urinal death may never be explained, family fears](https://www.yahoo.com/news/mans-pop-urinal-death-may-031138269.html)
 <!-- feed end -->
 
 ### Onstream
