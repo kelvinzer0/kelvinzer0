@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Powerful earthquake strikes Caribbean Sea, tsunami threat for some](https://www.yahoo.com/news/powerful-earthquake-strikes-caribbean-sea-001739338.html)
-- Feb 08 - [PennDOT announces speed restrictions as winter storm rolls into PA](https://www.yahoo.com/news/penndot-announces-speed-restrictions-winter-235113898.html)
+- Feb 09 - [FDA recalls more than 2 million baked goods over concerns of listeria contamination](https://www.yahoo.com/news/fda-recalls-more-2-million-002332218.html)
 - Feb 08 - [Trump Enrages Christian MAGA By Naming ‘Heretic’ Pastor to White House](https://www.yahoo.com/news/trump-enrages-christian-maga-naming-224833273.html)
-- Feb 08 - [Kennedy Center Swipes Back at Unprecedented Trump Shakeup](https://www.yahoo.com/news/kennedy-center-swipes-back-unprecedented-180235045.html)
-- Feb 08 - [Trump signs order prioritizing US ‘resettlement’ of white South Africans over ‘discrimination’](https://www.yahoo.com/news/trump-signs-order-prioritizing-us-064151087.html)
+- Feb 08 - [Singer-Activist Buffy Sainte-Marie Stripped of Order of Canada, the Country’s Most Prestigious Civilian Honor](https://www.yahoo.com/news/singer-activist-buffy-sainte-marie-172606961.html)
+- Feb 08 - [UnitedHealthcare Threatens Legal Action Against Doctor Who Says They Interrupted Her in the Middle of Surgery](https://www.yahoo.com/news/unitedhealthcare-threatens-legal-action-against-170028021.html)
+- Feb 08 - [First words decoded from burnt scrolls that haven’t been read in nearly 2,000 years](https://www.yahoo.com/news/first-words-decoded-burnt-scrolls-160047748.html)
 <!-- feed end -->
 
 ### Onstream
