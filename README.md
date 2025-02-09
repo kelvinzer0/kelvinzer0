@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Scrapping the licence fee will force the BBC to excel](https://www.yahoo.com/news/scrapping-licence-fee-force-bbc-070000536.html)
 - Feb 09 - [New bird flu variant found in Nevada dairy cows has experts sounding alarms: ‘We have never been closer to a pandemic from this virus’](https://www.yahoo.com/news/bird-flu-variant-found-nevada-034706069.html)
-- Feb 09 - [Man's pop-up urinal death may never be explained, family fears](https://www.yahoo.com/news/mans-pop-urinal-death-may-031138269.html)
-- Feb 09 - [Residents in northeast Las Vegas valley want action taken against influx of unregistered vehicles](https://www.yahoo.com/news/residents-northeast-las-vegas-valley-020404561.html)
+- Feb 09 - [FDA recalls more than 2 million baked goods over concerns of listeria contamination](https://www.yahoo.com/news/fda-recalls-more-2-million-002332218.html)
 - Feb 08 - [Trump Enrages Christian MAGA By Naming ‘Heretic’ Pastor to White House](https://www.yahoo.com/news/trump-enrages-christian-maga-naming-224833273.html)
-- Feb 08 - [Kennedy Center Swipes Back at Unprecedented Trump Shakeup](https://www.yahoo.com/news/kennedy-center-swipes-back-unprecedented-180235045.html)
+- Feb 08 - [Suze Orman: The 1 Thing To Never Do With Your 401(k)](https://finance.yahoo.com/news/suze-orman-1-thing-never-220019483.html)
 <!-- feed end -->
 
 ### Onstream
