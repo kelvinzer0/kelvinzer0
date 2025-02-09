@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Former minimum-wage worker retired at 39 with $3.5M nest egg — now he’s an expat in Dubai living on $185K/year](https://finance.yahoo.com/news/former-minimum-wage-worker-retired-121400973.html)
-- Feb 09 - [Baltic states switch to European power grid, ending Russia ties](https://finance.yahoo.com/news/baltic-states-switch-european-power-121255141.html)
-- Feb 09 - [New study sheds light on game-changing discovery in the Indian Ocean: 'Past models have been coarse'](https://www.yahoo.com/news/study-sheds-light-game-changing-104505650.html)
-- Feb 09 - [New bird flu variant found in Nevada dairy cows has experts sounding alarms: ‘We have never been closer to a pandemic from this virus’](https://www.yahoo.com/news/bird-flu-variant-found-nevada-034706069.html)
-- Feb 09 - [Man's pop-up urinal death may never be explained, family fears](https://www.yahoo.com/news/mans-pop-urinal-death-may-031138269.html)
+- Feb 09 - [Town-by-town totals: These Massachusetts communities received the most snow](https://www.yahoo.com/news/town-town-totals-massachusetts-communities-120353619.html)
+- Feb 09 - [Trump tariffs rip right through C-suites and financial models](https://finance.yahoo.com/news/trump-tariffs-rip-right-through-c-suites-and-financial-models-133008778.html)
+- Feb 09 - [Iranian schools and offices shut as cold snap bites](https://www.yahoo.com/news/iranian-schools-offices-shut-cold-132617715.html)
+- Feb 09 - [This Wisconsin man with autism was 'devastated' after Social Security told him to pay back $35K. Is the system broken?](https://www.yahoo.com/news/wisconsin-man-autism-devastated-social-115500584.html)
+- Feb 09 - [Chinese cargo ship runs aground off Russia's Sakhalin Island](https://www.yahoo.com/news/chinese-cargo-ship-runs-aground-113119204.html)
 <!-- feed end -->
 
 ### Onstream
