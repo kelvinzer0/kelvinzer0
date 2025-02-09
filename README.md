@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Feb 09 - [Man's pop-up urinal death may never be explained, family fears](https://www.yahoo.com/news/mans-pop-urinal-death-may-031138269.html)
 - Feb 09 - [FDA recalls more than 2 million baked goods over concerns of listeria contamination](https://www.yahoo.com/news/fda-recalls-more-2-million-002332218.html)
 - Feb 08 - [Trump Enrages Christian MAGA By Naming ‘Heretic’ Pastor to White House](https://www.yahoo.com/news/trump-enrages-christian-maga-naming-224833273.html)
-- Feb 08 - [Suze Orman: The 1 Thing To Never Do With Your 401(k)](https://finance.yahoo.com/news/suze-orman-1-thing-never-220019483.html)
-- Feb 08 - [Bison 'thunder' through crowd of panicked Yellowstone tourists](https://www.yahoo.com/news/bison-thunder-crowd-panicked-yellowstone-180329075.html)
+- Feb 08 - [Kennedy Center Swipes Back at Unprecedented Trump Shakeup](https://www.yahoo.com/news/kennedy-center-swipes-back-unprecedented-180235045.html)
+- Feb 08 - [Emboldened by Trump, Iranian dissidents demand overthrow of rulers](https://www.yahoo.com/news/emboldened-trump-iranian-dissidents-demand-170510532.html)
 <!-- feed end -->
 
 ### Onstream
