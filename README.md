@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Sen. Andy Kim says he’s open to shutting down the government if  Trump continues dismantling agencies](https://www.yahoo.com/news/sen-andy-kim-says-open-173910632.html)
+- Feb 09 - [Hidden AI stocks set to rally amid DeepSeek's breakthrough, analysts predict](https://finance.yahoo.com/news/hidden-ai-stocks-set-to-rally-amid-deepseeks-breakthrough-analysts-predict-160009905.html)
 - Feb 09 - [How much snow should St. Louis expect this week?](https://www.yahoo.com/news/much-snow-st-louis-expect-155741632.html)
-- Feb 09 - [Trump's acting CFPB chief halts all supervision of companies](https://www.yahoo.com/news/trumps-acting-cfpb-chief-halts-151814753.html)
-- Feb 09 - [Physicists Find That the Universe Could "Collapse Like a House of Cards"](https://www.yahoo.com/news/physicists-universe-could-collapse-house-141519467.html)
-- Feb 09 - [Musk calls for impeachment of judge who blocked DOGE access at Treasury](https://www.yahoo.com/news/musk-calls-impeachment-judge-blocked-131852951.html)
+- Feb 09 - [Trump's acting CFPB chief shutters headquarters, halts supervision](https://www.yahoo.com/news/trumps-acting-cfpb-chief-halts-151814753.html)
+- Feb 09 - [Hostages' families urge Netanyahu to extend ceasefire after release of three frail-looking Israelis](https://www.yahoo.com/news/hostages-families-urge-netanyahu-extend-151217513.html)
+- Feb 09 - [He Isn’t Who Anyone Would Have Imagined as a Credible Foe to Trump and Musk’s Assault on America. Yet Here He Is.](https://www.yahoo.com/news/isn-t-anyone-imagined-credible-150000764.html)
 <!-- feed end -->
 
 ### Onstream
