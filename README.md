@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Duke of York ‘strikes deal to make money off Pitch@Palace contacts’](https://www.yahoo.com/lifestyle/duke-york-strikes-deal-money-172302043.html)
 - Feb 09 - [Vance and Musk question the authority of the courts as Trump's agenda faces legal pushback](https://www.yahoo.com/news/vance-musk-authority-courts-trumps-195900026.html)
-- Feb 09 - [Virgin River 's Callum Kerr Mourns Mom and Stepdad Who Were Found Dead](https://www.yahoo.com/news/virgin-river-callum-kerr-mourns-191242814.html)
-- Feb 09 - [Hidden AI stocks set to rally amid DeepSeek's breakthrough, analysts predict](https://finance.yahoo.com/news/hidden-ai-stocks-set-to-rally-amid-deepseeks-breakthrough-analysts-predict-160009905.html)
-- Feb 09 - [How much snow should St. Louis expect this week?](https://www.yahoo.com/news/much-snow-st-louis-expect-155741632.html)
-- Feb 09 - [Trump's acting CFPB chief shutters headquarters, halts supervision](https://www.yahoo.com/news/trumps-acting-cfpb-chief-halts-151814753.html)
+- Feb 09 - [California ‘teacher of the year’ sexually abused two of her students](https://www.yahoo.com/news/california-teacher-sexually-abused-two-195848173.html)
+- Feb 09 - [Hollywood producer convicted of murder in deaths of model and her friend](https://www.yahoo.com/news/hollywood-producer-convicted-murder-deaths-190044904.html)
+- Feb 09 - [Boy saves thousands of sweet tubs from landfill](https://www.yahoo.com/lifestyle/boy-saves-thousands-sweet-tubs-071603963.html)
 <!-- feed end -->
 
 ### Onstream
