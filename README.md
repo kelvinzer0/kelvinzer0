@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Boy saves thousands of sweet tubs from landfill](https://www.yahoo.com/lifestyle/boy-saves-thousands-sweet-tubs-071603963.html)
-- Feb 09 - [‘You Are the Government’: Noem Called Out for Trashing ‘Trust’ in Own Administration](https://www.yahoo.com/news/government-noem-called-trashing-trust-154540432.html)
-- Feb 09 - [Where Will Palantir Technologies Stock Be in 1 Year?](https://finance.yahoo.com/news/where-palantir-technologies-stock-1-153000668.html)
 - Feb 09 - [Trump's acting CFPB chief halts all supervision of companies](https://www.yahoo.com/news/trumps-acting-cfpb-chief-halts-151814753.html)
-- Feb 09 - [Hostages' families urge Netanyahu to extend ceasefire after release of three frail-looking Israelis](https://www.yahoo.com/news/hostages-families-urge-netanyahu-extend-151217513.html)
+- Feb 09 - [He Isn’t Who Anyone Would Have Imagined as a Credible Foe to Trump and Musk’s Assault on America. Yet Here He Is.](https://www.yahoo.com/news/isn-t-anyone-imagined-credible-150000764.html)
+- Feb 09 - [Trump Orders NASA to Purge All Mentions of Women in Leadership On Its Websites](https://www.yahoo.com/news/trump-orders-nasa-purge-mentions-120008493.html)
+- Feb 09 - [Parts of Russia’s Sakhalin Region on high alert after Chinese cargo ship runs aground off coast](https://www.yahoo.com/news/parts-russia-sakhalin-region-high-115731755.html)
+- Feb 09 - [Grid operator sounds the alarm after predatory behavior by providers: 'There is a feeling that this system is rigged'](https://www.yahoo.com/news/grid-operator-sounds-alarm-predatory-104510382.html)
 <!-- feed end -->
 
 ### Onstream
