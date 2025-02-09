@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Vance and Musk question the authority of the courts as Trump's agenda faces legal pushback](https://www.yahoo.com/news/vance-musk-authority-courts-trumps-195900026.html)
+- Feb 09 - [Virgin River 's Callum Kerr Mourns Mom and Stepdad Who Were Found Dead](https://www.yahoo.com/news/virgin-river-callum-kerr-mourns-191242814.html)
 - Feb 09 - [Hidden AI stocks set to rally amid DeepSeek's breakthrough, analysts predict](https://finance.yahoo.com/news/hidden-ai-stocks-set-to-rally-amid-deepseeks-breakthrough-analysts-predict-160009905.html)
 - Feb 09 - [How much snow should St. Louis expect this week?](https://www.yahoo.com/news/much-snow-st-louis-expect-155741632.html)
 - Feb 09 - [Trump's acting CFPB chief shutters headquarters, halts supervision](https://www.yahoo.com/news/trumps-acting-cfpb-chief-halts-151814753.html)
-- Feb 09 - [Hostages' families urge Netanyahu to extend ceasefire after release of three frail-looking Israelis](https://www.yahoo.com/news/hostages-families-urge-netanyahu-extend-151217513.html)
-- Feb 09 - [He Isn’t Who Anyone Would Have Imagined as a Credible Foe to Trump and Musk’s Assault on America. Yet Here He Is.](https://www.yahoo.com/news/isn-t-anyone-imagined-credible-150000764.html)
 <!-- feed end -->
 
 ### Onstream
