@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [Breaking down the consequences of dismantling USAID region by region, across the globe](https://www.yahoo.com/news/breaking-down-consequences-dismantling-usaid-205337803.html)
-- Feb 08 - [A father of five was detained by ICE on his way to work. Now his family is losing their home](https://www.yahoo.com/news/father-five-detained-ice-way-200140177.html)
-- Feb 08 - [Bison 'thunder' through crowd of panicked Yellowstone tourists](https://www.yahoo.com/news/bison-thunder-crowd-panicked-yellowstone-180329075.html)
-- Feb 08 - [Singer-Activist Buffy Sainte-Marie Stripped of Order of Canada, the Country’s Most Prestigious Civilian Honor](https://www.yahoo.com/news/singer-activist-buffy-sainte-marie-172606961.html)
-- Feb 08 - [First words decoded from burnt scrolls that haven’t been read in nearly 2,000 years](https://www.yahoo.com/news/first-words-decoded-burnt-scrolls-160047748.html)
+- Feb 09 - [Powerful earthquake strikes Caribbean Sea, tsunami threat for some](https://www.yahoo.com/news/powerful-earthquake-strikes-caribbean-sea-001739338.html)
+- Feb 08 - [PennDOT announces speed restrictions as winter storm rolls into PA](https://www.yahoo.com/news/penndot-announces-speed-restrictions-winter-235113898.html)
+- Feb 08 - [Trump Enrages Christian MAGA By Naming ‘Heretic’ Pastor to White House](https://www.yahoo.com/news/trump-enrages-christian-maga-naming-224833273.html)
+- Feb 08 - [Kennedy Center Swipes Back at Unprecedented Trump Shakeup](https://www.yahoo.com/news/kennedy-center-swipes-back-unprecedented-180235045.html)
+- Feb 08 - [Trump signs order prioritizing US ‘resettlement’ of white South Africans over ‘discrimination’](https://www.yahoo.com/news/trump-signs-order-prioritizing-us-064151087.html)
 <!-- feed end -->
 
 ### Onstream
