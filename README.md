@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [McDonald’s Corporation (MCD) Among the Best Stocks to Buy for Financial Stability](https://finance.yahoo.com/news/mcdonald-corporation-mcd-among-best-173822852.html)
+- Feb 09 - [Pair of rare black wolves caught on camera in Polish forest by wildlife researchers](https://www.yahoo.com/news/pair-rare-black-wolves-caught-173026497.html)
+- Feb 09 - [Intel Continues to See Revenue Declines. Can the Stock Rebound?](https://finance.yahoo.com/news/intel-continues-see-revenue-declines-170900267.html)
+- Feb 09 - [Hidden AI stocks set to rally amid DeepSeek's breakthrough, analysts predict](https://finance.yahoo.com/news/hidden-ai-stocks-set-to-rally-amid-deepseeks-breakthrough-analysts-predict-160009905.html)
 - Feb 09 - [Trump's acting CFPB chief halts all supervision of companies](https://www.yahoo.com/news/trumps-acting-cfpb-chief-halts-151814753.html)
-- Feb 09 - [He Isn’t Who Anyone Would Have Imagined as a Credible Foe to Trump and Musk’s Assault on America. Yet Here He Is.](https://www.yahoo.com/news/isn-t-anyone-imagined-credible-150000764.html)
-- Feb 09 - [Trump Orders NASA to Purge All Mentions of Women in Leadership On Its Websites](https://www.yahoo.com/news/trump-orders-nasa-purge-mentions-120008493.html)
-- Feb 09 - [Parts of Russia’s Sakhalin Region on high alert after Chinese cargo ship runs aground off coast](https://www.yahoo.com/news/parts-russia-sakhalin-region-high-115731755.html)
-- Feb 09 - [Grid operator sounds the alarm after predatory behavior by providers: 'There is a feeling that this system is rigged'](https://www.yahoo.com/news/grid-operator-sounds-alarm-predatory-104510382.html)
 <!-- feed end -->
 
 ### Onstream
