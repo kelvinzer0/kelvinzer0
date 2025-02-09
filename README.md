@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Man's pop-up urinal death may never be explained, family fears](https://www.yahoo.com/news/mans-pop-urinal-death-may-031138269.html)
 - Feb 09 - [FDA recalls more than 2 million baked goods over concerns of listeria contamination](https://www.yahoo.com/news/fda-recalls-more-2-million-002332218.html)
 - Feb 08 - [Trump Enrages Christian MAGA By Naming ‘Heretic’ Pastor to White House](https://www.yahoo.com/news/trump-enrages-christian-maga-naming-224833273.html)
-- Feb 08 - [Suze Orman: The 1 Thing To Never Do With Your 401(k)](https://finance.yahoo.com/news/suze-orman-1-thing-never-220019483.html)
-- Feb 08 - [Singer-Activist Buffy Sainte-Marie Stripped of Order of Canada, the Country’s Most Prestigious Civilian Honor](https://www.yahoo.com/news/singer-activist-buffy-sainte-marie-172606961.html)
+- Feb 08 - [Roadside armed robbers took money from family in Chicago’s far south suburbs](https://www.yahoo.com/news/roadside-armed-robbers-took-money-182835780.html)
 - Feb 08 - [UnitedHealthcare Threatens Legal Action Against Doctor Who Says They Interrupted Her in the Middle of Surgery](https://www.yahoo.com/news/unitedhealthcare-threatens-legal-action-against-170028021.html)
 <!-- feed end -->
 
