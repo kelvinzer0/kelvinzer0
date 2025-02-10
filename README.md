@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [There's Nothing That Hits Better Than A Good Laugh Right Now, So Here Are 33 Funny Tweets From The Week](https://www.yahoo.com/lifestyle/theres-nothing-hits-better-good-204726875.html)
-- Feb 10 - [What to know about February's full snow moon](https://www.yahoo.com/news/know-februarys-full-snow-moon-204442942.html)
-- Feb 10 - [Grieving parents couldn’t understand how their son died of an asthma attack. Then they found out how much his meds now cost](https://www.yahoo.com/news/grieving-parents-couldn-t-understand-141241314.html)
-- Feb 10 - [Judge finds Trump administration hasn’t fully followed his order to unfreeze federal spending](https://www.yahoo.com/news/judge-finds-trump-administration-hasn-180949677.html)
-- Feb 10 - [Watch this creepy deep sea creature see the light of day, a first in recorded history](https://www.yahoo.com/news/watch-creepy-deep-sea-creature-175350612.html)
+- Feb 10 - [Amazon.com (AMZN): RBC Raises Price Target Amid AWS Strength and AI Investment](https://finance.yahoo.com/news/amazon-com-amzn-rbc-raises-215206252.html)
+- Feb 10 - [What to expect from Fed Chair Powell's testimony, tariff reactions](https://finance.yahoo.com/video/expect-fed-chair-powells-testimony-213848567.html)
+- Feb 10 - [Altman Says ‘No Thank You’ to Reported Musk Bid for OpenAI](https://finance.yahoo.com/news/altman-says-no-thank-reported-213020465.html)
+- Feb 10 - [Elon Musk Backlash Casts Shadow Over T-Mobile's Starlink Partnership](https://www.yahoo.com/tech/elon-musk-backlash-casts-shadow-211110626.html)
+- Feb 10 - [Trump to loosen enforcement of US law banning bribery of foreign officials](https://www.yahoo.com/news/trump-loosen-enforcement-us-law-204530479.html)
 <!-- feed end -->
 
 ### Onstream
