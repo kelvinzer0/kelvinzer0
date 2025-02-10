@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Northern Ireland facing shortage of 5k workers a year](https://www.yahoo.com/news/northern-ireland-facing-shortage-5k-093149375.html)
+- Feb 10 - [North Korea used student visas to send thousands of workers to Russia, Seoul says](https://www.yahoo.com/news/north-korea-used-student-visas-095614988.html)
+- Feb 10 - [A Big Social Security Change Proposed by President Donald Trump May Be Bad News for Retirees](https://finance.yahoo.com/news/big-social-security-change-proposed-093600755.html)
 - Feb 10 - [Trump Throws A Super Fit At Taylor Swift In 'Unforgiving' Post-Game Rant](https://www.yahoo.com/entertainment/trump-throws-super-fit-taylor-084842982.html)
 - Feb 10 - [Ed Sheeran busted by Indian police for busking without permission](https://www.yahoo.com/entertainment/ed-sheeran-busted-indian-police-073618437.html)
-- Feb 10 - [India in talks with US to buy combat vehicles, seal fighter jet engine deal as Modi visits, sources say](https://www.yahoo.com/news/india-talks-us-buy-combat-045211088.html)
-- Feb 10 - [Alarm as JD Vance says federal judges ‘aren’t allowed’ to control president](https://www.independent.co.uk/news/world/americas/us-politics/jd-vance-doge-treasury-constitution-b2695120.html)
+- Feb 10 - [Radical Study Proposes a Single Cause to Explain Alzheimer's Disease](https://www.yahoo.com/news/radical-study-proposes-single-cause-050744388.html)
 <!-- feed end -->
 
 ### Onstream
