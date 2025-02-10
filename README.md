@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - ['Not So Brilliant,' Says Mark Cuban As Nearly $7 Million In Taxpayer Money Flows To Elon Musk's Doge In Just 2 Weeks](https://finance.yahoo.com/news/not-brilliant-says-mark-cuban-150027890.html)
+- Feb 10 - [Central Florida music teacher arrested for enticing minors in online sex acts, records show](https://www.yahoo.com/news/central-florida-music-teacher-arrested-234412110.html)
+- Feb 10 - [Deep sea fish makes surprise appearance near the ocean’s surface](https://www.yahoo.com/news/deep-sea-fish-makes-surprise-132354439.html)
 - Feb 10 - [Trump administration seeks urgent end of ‘impermissible’ court order blocking access to Treasury systems](https://www.yahoo.com/news/trump-administration-seeks-urgent-end-123406840.html)
-- Feb 10 - [Hamas hostages reveal grim details of captivity](https://www.yahoo.com/news/hamas-hostages-reveal-grim-details-121526239.html)
-- Feb 10 - [Florida condo owners hammered by soaring insurance, dues, special assessments — but some are taking a stand](https://finance.yahoo.com/news/florida-condo-owners-hammered-soaring-114500409.html)
-- Feb 10 - [Bank Seen With Smashed Windows in Philadelphia After Super Bowl Celebrations](https://www.yahoo.com/news/bank-seen-smashed-windows-philadelphia-113123584.html)
-- Feb 10 - [Trail cameras catch sight of rare predator thought to be extinct in US: 'Meant everything to me'](https://www.yahoo.com/news/trail-cameras-catch-sight-rare-111538991.html)
+- Feb 10 - [Second sinkhole opens up on I-80 in New Jersey, shutting down roadway](https://www.yahoo.com/news/second-sinkhole-opens-80-jersey-121643732.html)
 <!-- feed end -->
 
 ### Onstream
