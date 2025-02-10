@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Colombian pair who fought for Ukraine ‘kidnapped by Putin’ in Venezuela](https://www.yahoo.com/news/colombian-pair-fought-ukraine-kidnapped-060000417.html)
+- Feb 10 - [Police in India pull the plug on British singer Ed Sheeran's impromptu street concert](https://www.yahoo.com/news/police-india-pull-plug-british-051115142.html)
+- Feb 10 - [Alarm as JD Vance says federal judges ‘aren’t allowed’ to control president](https://www.independent.co.uk/news/world/americas/us-politics/jd-vance-doge-treasury-constitution-b2695120.html)
+- Feb 10 - [Markets react to Trump's tariffs on steel and aluminium imports](https://finance.yahoo.com/news/markets-react-trumps-tariffs-steel-020357508.html)
 - Feb 10 - [Court grants request to block detained Venezuelan immigrants from being sent to Guantanamo](https://www.yahoo.com/news/venezuelan-immigrants-ask-court-block-005332289.html)
-- Feb 10 - [Donald Trump Brings Big Entourage To Super Bowl -- With 1 Key Person Seemingly MIA](https://www.yahoo.com/news/donald-trump-bring-big-entourage-004420709.html)
-- Feb 10 - [Taiwan's legacy chip industry contemplates future as China eats into share​](https://finance.yahoo.com/news/taiwans-legacy-chip-industry-contemplates-000647032.html)
-- Feb 10 - [Trump says US might lose patience with ceasefire deal over Israeli hostages' appearance](https://www.yahoo.com/news/trump-says-us-might-lose-000043070.html)
-- Feb 09 - [Trump hits highest approval mark of either term as new poll finds America loves his policies](https://www.yahoo.com/news/trump-hits-highest-approval-mark-225704215.html)
 <!-- feed end -->
 
 ### Onstream
