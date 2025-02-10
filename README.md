@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Florida condo owners hammered by soaring insurance, dues, special assessments — but some are taking a stand](https://finance.yahoo.com/news/florida-condo-owners-hammered-soaring-114500409.html)
-- Feb 10 - [Middle East latest: Turkey's Erdogan again rejects US proposal to relocate Palestinians from Gaza](https://www.yahoo.com/news/middle-east-latest-turkeys-erdogan-094855835.html)
+- Feb 10 - [Here are 5 signs that someone is secretly broke in America, and how they may apply to the people around you](https://finance.yahoo.com/news/5-signs-someone-secretly-broke-123000966.html)
+- Feb 10 - [George Conway: J.D. Vance is telling us something we should've already known](https://www.yahoo.com/news/george-conway-j-d-vance-115352902.html)
+- Feb 10 - [Looming tariffs turned into a mad dash north for one US manufacturer](https://finance.yahoo.com/news/looming-tariffs-turned-mad-dash-110511262.html)
 - Feb 10 - [A Big Social Security Change Proposed by President Donald Trump May Be Bad News for Retirees](https://finance.yahoo.com/news/big-social-security-change-proposed-093600755.html)
 - Feb 10 - [Boeing signals more orders needed before setting up assembly line in India](https://finance.yahoo.com/news/boeing-signals-more-orders-needed-085547068.html)
-- Feb 10 - [Trump Throws A Super Fit At Taylor Swift In 'Unforgiving' Post-Game Rant](https://www.yahoo.com/entertainment/trump-throws-super-fit-taylor-084842982.html)
 <!-- feed end -->
 
 ### Onstream
