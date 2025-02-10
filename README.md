@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [World powers fail to reach climate targets as UN deadline passes](https://www.yahoo.com/news/world-powers-fail-reach-climate-162819655.html)
-- Feb 10 - [Intel Shares Climb 5% as AI Chief Moves to Nokia](https://finance.yahoo.com/news/intel-shares-climb-5-ai-160838978.html)
-- Feb 10 - [Another atmospheric river brings flood, mudslide concerns to California](https://www.yahoo.com/news/another-atmospheric-river-brings-flood-160615168.html)
-- Feb 10 - [(Spanish) Northside HS parents demand HISD deny ICE agents access to any school in district | CW39](https://www.yahoo.com/news/spanish-northside-hs-parents-demand-154625370.html)
-- Feb 10 - [Palantir, Salesforce Poised to Dominate AI Software as Wedbush Forecasts $2T AI Boom](https://finance.yahoo.com/news/palantir-salesforce-poised-dominate-ai-133705077.html)
+- Feb 10 - [NASA to study "city-killer" asteroid as odds of hitting Earth go up](https://www.yahoo.com/news/nasa-study-city-killer-asteroid-154518886.html)
+- Feb 10 - [Judge says Trump administration violating order to lift spending freeze](https://www.yahoo.com/news/judge-says-trump-administration-violating-180146548.html)
+- Feb 10 - [Mom Loses Lawsuit Against School District Which Banned Her from Volunteering After Learning She Works on OnlyFans](https://www.yahoo.com/entertainment/mom-loses-lawsuit-against-school-175302168.html)
+- Feb 10 - [McDonald's (MCD) Shares Skyrocket, What You Need To Know](https://finance.yahoo.com/news/mcdonalds-mcd-shares-skyrocket-know-175250422.html)
+- Feb 10 - [Drone headsets sent to Russian troops were booby-trapped to explode when switched on, state media says](https://www.yahoo.com/news/drone-headsets-sent-russian-troops-153542947.html)
 <!-- feed end -->
 
 ### Onstream
