@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Trial begins for 84 Congolese soldiers accused of murder, rape and other crimes against civilians](https://www.yahoo.com/news/trial-begins-84-congolese-soldiers-185051333.html)
+- Feb 10 - [Grieving parents couldn’t understand how their son died of an asthma attack. Then they found out how much his meds now cost](https://www.yahoo.com/news/grieving-parents-couldn-t-understand-141241314.html)
+- Feb 10 - [Mark Cuban's $400K Bet On Teen Founder Comes With An Unexpected Invitation: 'I Want My Daughters To Meet You, And Learn From You'](https://finance.yahoo.com/news/mark-cubans-400k-bet-teen-193017422.html)
 - Feb 10 - [Judge finds Trump administration hasn’t fully followed his order to unfreeze federal spending](https://www.yahoo.com/news/judge-finds-trump-administration-hasn-180949677.html)
-- Feb 10 - [Big Tech CapEx: How Nvidia actually stands to gain from DeepSeek](https://finance.yahoo.com/video/big-tech-capex-nvidia-actually-180000672.html)
+- Feb 10 - [Tech layoffs reveal the unintended consequences of mass job cuts](https://www.yahoo.com/news/tech-layoffs-reveal-unintended-consequences-180423610.html)
 - Feb 10 - [Mom Loses Lawsuit Against School District Which Banned Her from Volunteering After Learning She Works on OnlyFans](https://www.yahoo.com/entertainment/mom-loses-lawsuit-against-school-175302168.html)
-- Feb 10 - [UBS whistleblower verdict thrown out despite US Supreme Court win](https://finance.yahoo.com/news/ubs-whistleblower-verdict-thrown-despite-174858510.html)
 <!-- feed end -->
 
 ### Onstream
