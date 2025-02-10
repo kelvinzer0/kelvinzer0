@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Donald Trump Brings Big Entourage To Super Bowl -- With 1 Key Person Seemingly MIA](https://www.yahoo.com/news/donald-trump-bring-big-entourage-004420709.html)
+- Feb 10 - [Trump says US might lose patience with ceasefire deal over Israeli hostages' appearance](https://www.yahoo.com/news/trump-says-us-might-lose-000043070.html)
+- Feb 09 - [Trump says US may have less debt than thought because of fraud](https://finance.yahoo.com/news/trump-says-u-might-less-221932618.html)
 - Feb 09 - [Trump says he will announce 25% steel and aluminum tariffs Monday, and more import duties are coming](https://www.yahoo.com/news/trump-says-announce-25-steel-220231095.html)
-- Feb 09 - [Duke of York ‘strikes deal to make money off Pitch@Palace contacts’](https://www.yahoo.com/lifestyle/duke-york-strikes-deal-money-172302043.html)
 - Feb 09 - [Vance and Musk question the authority of the courts as Trump's agenda faces legal pushback](https://www.yahoo.com/news/vance-musk-authority-courts-trumps-195900026.html)
-- Feb 09 - [Virgin River 's Callum Kerr Mourns Mom and Stepdad Who Were Found Dead](https://www.yahoo.com/news/virgin-river-callum-kerr-mourns-191242814.html)
-- Feb 09 - [Hollywood producer convicted of murder in deaths of model and her friend](https://www.yahoo.com/news/hollywood-producer-convicted-murder-deaths-190044904.html)
 <!-- feed end -->
 
 ### Onstream
