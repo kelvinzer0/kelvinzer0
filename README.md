@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [North Korea used student visas to send thousands of workers to Russia, Seoul says](https://www.yahoo.com/news/north-korea-used-student-visas-095614988.html)
+- Feb 10 - [Florida condo owners hammered by soaring insurance, dues, special assessments — but some are taking a stand](https://finance.yahoo.com/news/florida-condo-owners-hammered-soaring-114500409.html)
+- Feb 10 - [Middle East latest: Turkey's Erdogan again rejects US proposal to relocate Palestinians from Gaza](https://www.yahoo.com/news/middle-east-latest-turkeys-erdogan-094855835.html)
 - Feb 10 - [A Big Social Security Change Proposed by President Donald Trump May Be Bad News for Retirees](https://finance.yahoo.com/news/big-social-security-change-proposed-093600755.html)
+- Feb 10 - [Boeing signals more orders needed before setting up assembly line in India](https://finance.yahoo.com/news/boeing-signals-more-orders-needed-085547068.html)
 - Feb 10 - [Trump Throws A Super Fit At Taylor Swift In 'Unforgiving' Post-Game Rant](https://www.yahoo.com/entertainment/trump-throws-super-fit-taylor-084842982.html)
-- Feb 10 - [Ed Sheeran busted by Indian police for busking without permission](https://www.yahoo.com/entertainment/ed-sheeran-busted-indian-police-073618437.html)
-- Feb 10 - [Radical Study Proposes a Single Cause to Explain Alzheimer's Disease](https://www.yahoo.com/news/radical-study-proposes-single-cause-050744388.html)
 <!-- feed end -->
 
 ### Onstream
