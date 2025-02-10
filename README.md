@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Northern Ireland facing shortage of 5k workers a year](https://www.yahoo.com/news/northern-ireland-facing-shortage-5k-093149375.html)
+- Feb 10 - [Trump Throws A Super Fit At Taylor Swift In 'Unforgiving' Post-Game Rant](https://www.yahoo.com/entertainment/trump-throws-super-fit-taylor-084842982.html)
 - Feb 10 - [Ed Sheeran busted by Indian police for busking without permission](https://www.yahoo.com/entertainment/ed-sheeran-busted-indian-police-073618437.html)
-- Feb 10 - [Fatberg causes Bryan Adams Perth show to be cancelled](https://www.yahoo.com/news/fatberg-causes-bryan-adams-perth-071616648.html)
+- Feb 10 - [India in talks with US to buy combat vehicles, seal fighter jet engine deal as Modi visits, sources say](https://www.yahoo.com/news/india-talks-us-buy-combat-045211088.html)
 - Feb 10 - [Alarm as JD Vance says federal judges ‘aren’t allowed’ to control president](https://www.independent.co.uk/news/world/americas/us-politics/jd-vance-doge-treasury-constitution-b2695120.html)
-- Feb 10 - [Trump says he has directed US Treasury to stop minting new pennies, citing rising cost](https://www.yahoo.com/news/trump-says-directed-treasury-stop-024608475.html)
-- Feb 10 - [Markets react to Trump's tariffs on steel and aluminium imports](https://finance.yahoo.com/news/markets-react-trumps-tariffs-steel-020357508.html)
 <!-- feed end -->
 
 ### Onstream
