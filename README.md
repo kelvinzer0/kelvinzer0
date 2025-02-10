@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - ['Not So Brilliant,' Says Mark Cuban As Nearly $7 Million In Taxpayer Money Flows To Elon Musk's Doge In Just 2 Weeks](https://finance.yahoo.com/news/not-brilliant-says-mark-cuban-150027890.html)
-- Feb 10 - [Central Florida music teacher arrested for enticing minors in online sex acts, records show](https://www.yahoo.com/news/central-florida-music-teacher-arrested-234412110.html)
-- Feb 10 - [Deep sea fish makes surprise appearance near the ocean’s surface](https://www.yahoo.com/news/deep-sea-fish-makes-surprise-132354439.html)
-- Feb 10 - [Trump administration seeks urgent end of ‘impermissible’ court order blocking access to Treasury systems](https://www.yahoo.com/news/trump-administration-seeks-urgent-end-123406840.html)
-- Feb 10 - [Second sinkhole opens up on I-80 in New Jersey, shutting down roadway](https://www.yahoo.com/news/second-sinkhole-opens-80-jersey-121643732.html)
+- Feb 10 - [Why Super Micro (SMCI) Shares Are Jumping Today?](https://finance.yahoo.com/news/why-super-micro-smci-shares-160352537.html)
+- Feb 10 - [(Spanish) Northside HS parents demand HISD deny ICE agents access to any school in district | CW39](https://www.yahoo.com/news/spanish-northside-hs-parents-demand-154625370.html)
+- Feb 10 - [Russia says U.S. relations are on brink of collapse, refuses to confirm Trump call claim](https://www.yahoo.com/news/russia-says-u-relations-brink-154454090.html)
+- Feb 10 - [Milwaukee will be a 'winter wonderland' on Wednesday with several inches of snowfall, says NWS](https://www.yahoo.com/news/milwaukee-winter-wonderland-wednesday-several-152613608.html)
+- Feb 10 - [The Easiest Choice You Can Make To Save Money On Groceries](https://www.yahoo.com/lifestyle/easiest-choice-save-money-groceries-152517674.html)
 <!-- feed end -->
 
 ### Onstream
