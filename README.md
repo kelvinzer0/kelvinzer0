@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Australia's Global Lithium seeks government help, alleging Chinese control attempt](https://finance.yahoo.com/news/australias-global-lithium-seeks-government-023841700.html)
 - Feb 10 - [Markets react to Trump's tariffs on steel and aluminium imports](https://finance.yahoo.com/news/markets-react-trumps-tariffs-steel-020357508.html)
-- Feb 10 - [‘I thought I was going to die’: Woman says she was attacked by men in Boston alleyway](https://www.yahoo.com/news/thought-going-die-woman-says-014504432.html)
+- Feb 10 - [Court grants request to block detained Venezuelan immigrants from being sent to Guantanamo](https://www.yahoo.com/news/venezuelan-immigrants-ask-court-block-005332289.html)
 - Feb 10 - [Donald Trump Brings Big Entourage To Super Bowl -- With 1 Key Person Seemingly MIA](https://www.yahoo.com/news/donald-trump-bring-big-entourage-004420709.html)
 - Feb 10 - [Taiwan's legacy chip industry contemplates future as China eats into share​](https://finance.yahoo.com/news/taiwans-legacy-chip-industry-contemplates-000647032.html)
-- Feb 10 - [Trump says US might lose patience with ceasefire deal over Israeli hostages' appearance](https://www.yahoo.com/news/trump-says-us-might-lose-000043070.html)
 <!-- feed end -->
 
 ### Onstream
