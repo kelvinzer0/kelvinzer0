@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [There's Nothing That Hits Better Than A Good Laugh Right Now, So Here Are 33 Funny Tweets From The Week](https://www.yahoo.com/lifestyle/theres-nothing-hits-better-good-204726875.html)
+- Feb 10 - [What to know about February's full snow moon](https://www.yahoo.com/news/know-februarys-full-snow-moon-204442942.html)
 - Feb 10 - [Grieving parents couldn’t understand how their son died of an asthma attack. Then they found out how much his meds now cost](https://www.yahoo.com/news/grieving-parents-couldn-t-understand-141241314.html)
-- Feb 10 - [Mark Cuban's $400K Bet On Teen Founder Comes With An Unexpected Invitation: 'I Want My Daughters To Meet You, And Learn From You'](https://finance.yahoo.com/news/mark-cubans-400k-bet-teen-193017422.html)
 - Feb 10 - [Judge finds Trump administration hasn’t fully followed his order to unfreeze federal spending](https://www.yahoo.com/news/judge-finds-trump-administration-hasn-180949677.html)
-- Feb 10 - [Tech layoffs reveal the unintended consequences of mass job cuts](https://www.yahoo.com/news/tech-layoffs-reveal-unintended-consequences-180423610.html)
-- Feb 10 - [Mom Loses Lawsuit Against School District Which Banned Her from Volunteering After Learning She Works on OnlyFans](https://www.yahoo.com/entertainment/mom-loses-lawsuit-against-school-175302168.html)
+- Feb 10 - [Watch this creepy deep sea creature see the light of day, a first in recorded history](https://www.yahoo.com/news/watch-creepy-deep-sea-creature-175350612.html)
 <!-- feed end -->
 
 ### Onstream
