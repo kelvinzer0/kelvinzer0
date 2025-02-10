@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Why Super Micro (SMCI) Shares Are Jumping Today?](https://finance.yahoo.com/news/why-super-micro-smci-shares-160352537.html)
+- Feb 10 - [World powers fail to reach climate targets as UN deadline passes](https://www.yahoo.com/news/world-powers-fail-reach-climate-162819655.html)
+- Feb 10 - [Intel Shares Climb 5% as AI Chief Moves to Nokia](https://finance.yahoo.com/news/intel-shares-climb-5-ai-160838978.html)
+- Feb 10 - [Another atmospheric river brings flood, mudslide concerns to California](https://www.yahoo.com/news/another-atmospheric-river-brings-flood-160615168.html)
 - Feb 10 - [(Spanish) Northside HS parents demand HISD deny ICE agents access to any school in district | CW39](https://www.yahoo.com/news/spanish-northside-hs-parents-demand-154625370.html)
-- Feb 10 - [Russia says U.S. relations are on brink of collapse, refuses to confirm Trump call claim](https://www.yahoo.com/news/russia-says-u-relations-brink-154454090.html)
-- Feb 10 - [Milwaukee will be a 'winter wonderland' on Wednesday with several inches of snowfall, says NWS](https://www.yahoo.com/news/milwaukee-winter-wonderland-wednesday-several-152613608.html)
-- Feb 10 - [The Easiest Choice You Can Make To Save Money On Groceries](https://www.yahoo.com/lifestyle/easiest-choice-save-money-groceries-152517674.html)
+- Feb 10 - [Palantir, Salesforce Poised to Dominate AI Software as Wedbush Forecasts $2T AI Boom](https://finance.yahoo.com/news/palantir-salesforce-poised-dominate-ai-133705077.html)
 <!-- feed end -->
 
 ### Onstream
