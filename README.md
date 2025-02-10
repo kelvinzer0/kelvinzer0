@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Amazon.com (AMZN): RBC Raises Price Target Amid AWS Strength and AI Investment](https://finance.yahoo.com/news/amazon-com-amzn-rbc-raises-215206252.html)
-- Feb 10 - [What to expect from Fed Chair Powell's testimony, tariff reactions](https://finance.yahoo.com/video/expect-fed-chair-powells-testimony-213848567.html)
-- Feb 10 - [Altman Says ‘No Thank You’ to Reported Musk Bid for OpenAI](https://finance.yahoo.com/news/altman-says-no-thank-reported-213020465.html)
-- Feb 10 - [Elon Musk Backlash Casts Shadow Over T-Mobile's Starlink Partnership](https://www.yahoo.com/tech/elon-musk-backlash-casts-shadow-211110626.html)
-- Feb 10 - [Trump to loosen enforcement of US law banning bribery of foreign officials](https://www.yahoo.com/news/trump-loosen-enforcement-us-law-204530479.html)
+- Feb 10 - [2 American women attacked by shark in Bahamas' Bimini district, police force says](https://www.yahoo.com/news/2-american-women-attacked-shark-224653897.html)
+- Feb 10 - [Rhode Island man in federal prison pleads guilty to bank fraud, US Attorney says](https://www.yahoo.com/news/rhode-island-man-federal-prison-223110093.html)
+- Feb 10 - [Elon Musk Leads $97.4 Billion Bid to Acquire OpenAI, Sam Altman Claps Back With ‘No Thanks’ Burn on X](https://finance.yahoo.com/news/elon-musk-leads-97-4-213154152.html)
+- Feb 10 - [Trump loosens enforcement of US law banning bribery of foreign officials](https://www.yahoo.com/news/trump-loosen-enforcement-us-law-204530479.html)
+- Feb 10 - [Hawaii court rules against insurance companies in Maui wildfire, allowing $4B settlement to proceed](https://www.yahoo.com/news/hawaii-court-rules-against-insurance-203058907.html)
 <!-- feed end -->
 
 ### Onstream
