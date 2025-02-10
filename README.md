@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Markets react to Trump's tariffs on steel and aluminium imports](https://finance.yahoo.com/news/markets-react-trumps-tariffs-steel-020357508.html)
 - Feb 10 - [Donald Trump Brings Big Entourage To Super Bowl -- With 1 Key Person Seemingly MIA](https://www.yahoo.com/news/donald-trump-bring-big-entourage-004420709.html)
-- Feb 10 - [Trump says US might lose patience with ceasefire deal over Israeli hostages' appearance](https://www.yahoo.com/news/trump-says-us-might-lose-000043070.html)
-- Feb 09 - [Trump says US may have less debt than thought because of fraud](https://finance.yahoo.com/news/trump-says-u-might-less-221932618.html)
+- Feb 10 - [Taiwan's legacy chip industry contemplates future as China eats into share​](https://finance.yahoo.com/news/taiwans-legacy-chip-industry-contemplates-000647032.html)
+- Feb 09 - [Trump hits highest approval mark of either term as new poll finds America loves his policies](https://www.yahoo.com/news/trump-hits-highest-approval-mark-225704215.html)
 - Feb 09 - [Trump says he will announce 25% steel and aluminum tariffs Monday, and more import duties are coming](https://www.yahoo.com/news/trump-says-announce-25-steel-220231095.html)
-- Feb 09 - [Vance and Musk question the authority of the courts as Trump's agenda faces legal pushback](https://www.yahoo.com/news/vance-musk-authority-courts-trumps-195900026.html)
 <!-- feed end -->
 
 ### Onstream
