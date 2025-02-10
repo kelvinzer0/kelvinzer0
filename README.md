@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Colombian pair who fought for Ukraine ‘kidnapped by Putin’ in Venezuela](https://www.yahoo.com/news/colombian-pair-fought-ukraine-kidnapped-060000417.html)
+- Feb 10 - [Ed Sheeran busted by Indian police for busking without permission](https://www.yahoo.com/entertainment/ed-sheeran-busted-indian-police-073618437.html)
 - Feb 10 - [Fatberg causes Bryan Adams Perth show to be cancelled](https://www.yahoo.com/news/fatberg-causes-bryan-adams-perth-071616648.html)
 - Feb 10 - [Alarm as JD Vance says federal judges ‘aren’t allowed’ to control president](https://www.independent.co.uk/news/world/americas/us-politics/jd-vance-doge-treasury-constitution-b2695120.html)
 - Feb 10 - [Trump says he has directed US Treasury to stop minting new pennies, citing rising cost](https://www.yahoo.com/news/trump-says-directed-treasury-stop-024608475.html)
-- Feb 10 - [Court grants request to block detained Venezuelan immigrants from being sent to Guantanamo](https://www.yahoo.com/news/venezuelan-immigrants-ask-court-block-005332289.html)
+- Feb 10 - [Markets react to Trump's tariffs on steel and aluminium imports](https://finance.yahoo.com/news/markets-react-trumps-tariffs-steel-020357508.html)
 <!-- feed end -->
 
 ### Onstream
