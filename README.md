@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [NASA to study "city-killer" asteroid as odds of hitting Earth go up](https://www.yahoo.com/news/nasa-study-city-killer-asteroid-154518886.html)
-- Feb 10 - [Judge says Trump administration violating order to lift spending freeze](https://www.yahoo.com/news/judge-says-trump-administration-violating-180146548.html)
+- Feb 10 - [Trial begins for 84 Congolese soldiers accused of murder, rape and other crimes against civilians](https://www.yahoo.com/news/trial-begins-84-congolese-soldiers-185051333.html)
+- Feb 10 - [Judge finds Trump administration hasn’t fully followed his order to unfreeze federal spending](https://www.yahoo.com/news/judge-finds-trump-administration-hasn-180949677.html)
+- Feb 10 - [Big Tech CapEx: How Nvidia actually stands to gain from DeepSeek](https://finance.yahoo.com/video/big-tech-capex-nvidia-actually-180000672.html)
 - Feb 10 - [Mom Loses Lawsuit Against School District Which Banned Her from Volunteering After Learning She Works on OnlyFans](https://www.yahoo.com/entertainment/mom-loses-lawsuit-against-school-175302168.html)
-- Feb 10 - [McDonald's (MCD) Shares Skyrocket, What You Need To Know](https://finance.yahoo.com/news/mcdonalds-mcd-shares-skyrocket-know-175250422.html)
-- Feb 10 - [Drone headsets sent to Russian troops were booby-trapped to explode when switched on, state media says](https://www.yahoo.com/news/drone-headsets-sent-russian-troops-153542947.html)
+- Feb 10 - [UBS whistleblower verdict thrown out despite US Supreme Court win](https://finance.yahoo.com/news/ubs-whistleblower-verdict-thrown-despite-174858510.html)
 <!-- feed end -->
 
 ### Onstream
