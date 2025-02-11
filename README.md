@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Can Disney (DIS) Stock Regain its Magic, or is it a Sinking Ship?](https://finance.yahoo.com/news/disney-dis-stock-regain-magic-203436824.html)
+- Feb 11 - [CPI preview: How does inflation typically move in January?](https://finance.yahoo.com/video/cpi-preview-does-inflation-typically-231500763.html)
+- Feb 11 - [Is school closed tomorrow? Here's the list of OKC schools closed or going virtual Wednesday](https://www.yahoo.com/news/school-closed-tomorrow-heres-list-221409341.html)
+- Feb 11 - [Trump, joined by Musk in Oval Office, orders up big cuts in federal workforce](https://www.yahoo.com/news/trump-joined-musk-oval-office-213730417.html)
+- Feb 11 - [Former interim Hinds County Sheriff Marshand Crisler sentenced to federal prison](https://www.yahoo.com/news/former-interim-hinds-county-sheriff-204018815.html)
 - Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
-- Feb 11 - [4 FEMA employees are fired over payments to reimburse New York City for hotel costs for migrants](https://www.yahoo.com/news/4-fema-employees-fired-over-175536358.html)
-- Feb 11 - [Judge tells agencies to restore webpages and data removed after Trump's executive order](https://www.yahoo.com/news/judge-tells-agencies-restore-webpages-173927370.html)
-- Feb 11 - [DOGE slashes millions from Education Department research](https://www.yahoo.com/news/doge-takes-chainsaw-education-department-162932154.html)
 <!-- feed end -->
 
 ### Onstream
