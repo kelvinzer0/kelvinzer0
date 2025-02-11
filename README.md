@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Hegseth orders US Army to restore name of Fort Bragg](https://www.yahoo.com/news/hegseth-orders-us-army-restore-031002914.html)
+- Feb 11 - [China Vanke gets $383 million loan from state shareholder](https://finance.yahoo.com/news/china-vanke-gets-383-million-042319628.html)
+- Feb 11 - [Rep. Nancy Mace accuses ex-fiancé, associates of assaulting her, raping others in House speech](https://www.yahoo.com/news/rep-nancy-mace-accuses-ex-022440429.html)
 - Feb 11 - [Does Warren Buffett Know Something That Wall Street Doesn't? The Billionaire Investor Is Piling Into a High-Yield Stock That Certain Analysts Recommend Selling.](https://finance.yahoo.com/news/does-warren-buffett-know-something-022400204.html)
-- Feb 11 - [Tech layoffs reveal the unintended consequences of mass job cuts](https://www.yahoo.com/news/tech-layoffs-reveal-unintended-consequences-180423610.html)
-- Feb 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/experts-6-common-habits-may-003103566.html)
-- Feb 10 - [China’s J-20 Fighter Is Now Flying In ‘Beast Mode’](https://www.yahoo.com/news/china-j-20-fighter-now-225300028.html)
+- Feb 11 - [Details Behind Ricky Starks, Miro, and Malakai Black AEW Releases](https://www.yahoo.com/entertainment/details-behind-ricky-starks-miro-014041910.html)
+- Feb 10 - [59-Year-Old Dividend Investor Earning $17,800 a Month Shares Portfolio — 'So Nice Living Without Worrying About Money'](https://finance.yahoo.com/news/59-old-dividend-investor-earning-233013315.html)
 <!-- feed end -->
 
 ### Onstream
