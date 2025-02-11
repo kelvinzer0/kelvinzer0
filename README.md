@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Rep. Buddy Carter wants to rename Greenland](https://www.yahoo.com/news/rep-buddy-carter-wants-rename-173005263.html)
+- Feb 11 - [STAAR results: How did Wylie ISD students do?](https://www.yahoo.com/news/staar-results-did-wylie-isd-175001553.html)
+- Feb 11 - [Judge tells agencies to restore webpages and data removed after Trump's executive order](https://www.yahoo.com/news/judge-tells-agencies-restore-webpages-173927370.html)
 - Feb 11 - [The Real Reason No President Went to the Super Bowl Before Trump](https://www.yahoo.com/news/real-reason-no-president-went-171822501.html)
+- Feb 11 - [The Governor Of Illinois Is Trolling Donald Trump By Renaming The Great Lakes](https://www.yahoo.com/news/governor-illinois-trolling-donald-trump-165541459.html)
 - Feb 11 - [Major airlines urge Trump administration to abandon passenger compensation review](https://finance.yahoo.com/news/major-airlines-urge-trump-administration-163158435.html)
-- Feb 11 - [Russia offers India its most advanced Su-57 stealth fighter jet](https://www.yahoo.com/news/russia-offers-india-most-advanced-155136599.html)
-- Feb 11 - [Massachusetts top court rules Karen Read can be retried in her boyfriend's death](https://www.yahoo.com/news/massachusetts-top-court-rules-karen-151241151.html)
 <!-- feed end -->
 
 ### Onstream
