@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [STAAR results: How did Wylie ISD students do?](https://www.yahoo.com/news/staar-results-did-wylie-isd-175001553.html)
+- Feb 11 - [Powell predicts a time when mortgages are impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-are-impossible-to-get-in-parts-of-us-190820551.html)
+- Feb 11 - ['Senile insanity': Ukrainians outraged at Trump's Russia comment](https://www.yahoo.com/news/senile-insanity-ukrainians-outraged-trumps-190536521.html)
+- Feb 11 - [Nancy Pelosi Says 'Extreme MAGA Republicans' Have Revealed Their 'Tax Scam' To Plunder Medicaid For Giving Tax Cuts To Billionaires](https://finance.yahoo.com/news/nancy-pelosi-says-extreme-maga-190014742.html)
+- Feb 11 - [Detroit mom called city for help before 2 kids froze in casino parking garage](https://www.yahoo.com/news/detroit-mom-called-city-help-184323330.html)
 - Feb 11 - [Judge tells agencies to restore webpages and data removed after Trump's executive order](https://www.yahoo.com/news/judge-tells-agencies-restore-webpages-173927370.html)
-- Feb 11 - [The Real Reason No President Went to the Super Bowl Before Trump](https://www.yahoo.com/news/real-reason-no-president-went-171822501.html)
-- Feb 11 - [The Governor Of Illinois Is Trolling Donald Trump By Renaming The Great Lakes](https://www.yahoo.com/news/governor-illinois-trolling-donald-trump-165541459.html)
-- Feb 11 - [Major airlines urge Trump administration to abandon passenger compensation review](https://finance.yahoo.com/news/major-airlines-urge-trump-administration-163158435.html)
 <!-- feed end -->
 
 ### Onstream
