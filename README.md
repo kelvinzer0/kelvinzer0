@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Why the Federal Reserve could shock the markets this summer: Economist](https://finance.yahoo.com/news/why-the-federal-reserve-could-shock-the-markets-this-summer-economist-124411720.html)
+- Feb 11 - [Thai environmentalists upset as US revokes plastic straw ban](https://www.yahoo.com/news/thai-environmentalists-upset-us-revokes-122652954.html)
 - Feb 11 - [Vance warns against ‘authoritarian censorship’ at Paris AI summit](https://www.yahoo.com/news/vance-storms-chinese-vice-premier-090116706.html)
-- Feb 11 - [I travelled on Eurostar’s relaunched Amsterdam to London service – and there were a few hiccups](https://www.yahoo.com/lifestyle/travelled-eurostar-relaunched-amsterdam-london-120000209.html)
-- Feb 11 - [Reeves’s blunder Budget is decimating London’s property market](https://finance.yahoo.com/news/reeves-blunder-budget-decimating-london-115326744.html)
-- Feb 11 - [Iliana To Spread Snow, Ice From Plains To Midwest, Northeast](https://www.yahoo.com/news/iliana-spread-snow-ice-plains-113724366.html)
-- Feb 11 - [Mortgage and refinance rates today, February 11, 2024: Rates hold steady ahead of inflation report](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-february-11-2025-110026670.html)
+- Feb 11 - [Scientists celebrate after making first-time discovery inside Southeast Asian cave: 'It's an exciting moment'](https://www.yahoo.com/news/scientists-celebrate-making-first-time-103048417.html)
+- Feb 11 - [Scientists make ominous discovery about volcanoes beneath Antarctic ice sheet](https://www.yahoo.com/news/scientists-ominous-discovery-volcanoes-beneath-103008641.html)
 <!-- feed end -->
 
 ### Onstream
