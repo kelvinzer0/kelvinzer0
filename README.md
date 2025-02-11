@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Trump pardons former Democratic Illinois Gov. Rod Blagojevich](https://www.yahoo.com/news/trump-pardons-former-democratic-illinois-232600701.html)
-- Feb 11 - [Almost a third of central banks delaying digital currency plans, report shows](https://finance.yahoo.com/news/almost-third-central-banks-delaying-162200556.html)
-- Feb 11 - [Shopify's Q4 Results Top Estimates, But Its Outlook Underwhelms](https://finance.yahoo.com/news/shopifys-q4-results-top-estimates-161959377.html)
-- Feb 11 - [Boeing says it delivered 45 aircraft in busiest January since 2023](https://finance.yahoo.com/news/boeing-says-delivered-45-aircraft-161246124.html)
+- Feb 11 - [Rep. Buddy Carter wants to rename Greenland](https://www.yahoo.com/news/rep-buddy-carter-wants-rename-173005263.html)
+- Feb 11 - [The Real Reason No President Went to the Super Bowl Before Trump](https://www.yahoo.com/news/real-reason-no-president-went-171822501.html)
+- Feb 11 - [Major airlines urge Trump administration to abandon passenger compensation review](https://finance.yahoo.com/news/major-airlines-urge-trump-administration-163158435.html)
 - Feb 11 - [Russia offers India its most advanced Su-57 stealth fighter jet](https://www.yahoo.com/news/russia-offers-india-most-advanced-155136599.html)
+- Feb 11 - [Massachusetts top court rules Karen Read can be retried in her boyfriend's death](https://www.yahoo.com/news/massachusetts-top-court-rules-karen-151241151.html)
 <!-- feed end -->
 
 ### Onstream
