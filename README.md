@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Why the Federal Reserve could shock the markets this summer: Economist](https://finance.yahoo.com/news/why-the-federal-reserve-could-shock-the-markets-this-summer-economist-124411720.html)
+- Feb 11 - [More users are watching YouTube on TV than mobile](https://www.yahoo.com/tech/more-users-are-watching-youtube-on-tv-than-mobile-140035151.html)
+- Feb 11 - ['Limpet mines' suspected of blowing three holes in 'shadow fleet' oil tanker in Russian port](https://www.yahoo.com/news/limpet-mines-suspected-blowing-three-130853907.html)
+- Feb 11 - [A Colorado electronics repair shop has filed more than 85 lawsuits against customers — but they’re fighting back](https://www.yahoo.com/news/colorado-electronics-repair-shop-filed-130200275.html)
 - Feb 11 - [Thai environmentalists upset as US revokes plastic straw ban](https://www.yahoo.com/news/thai-environmentalists-upset-us-revokes-122652954.html)
-- Feb 11 - [Vance warns against ‘authoritarian censorship’ at Paris AI summit](https://www.yahoo.com/news/vance-storms-chinese-vice-premier-090116706.html)
-- Feb 11 - [Scientists celebrate after making first-time discovery inside Southeast Asian cave: 'It's an exciting moment'](https://www.yahoo.com/news/scientists-celebrate-making-first-time-103048417.html)
-- Feb 11 - [Scientists make ominous discovery about volcanoes beneath Antarctic ice sheet](https://www.yahoo.com/news/scientists-ominous-discovery-volcanoes-beneath-103008641.html)
+- Feb 11 - [Trump rolls back standards for water-using appliances, light bulbs](https://finance.yahoo.com/news/trump-roll-back-appliance-light-122050090.html)
 <!-- feed end -->
 
 ### Onstream
