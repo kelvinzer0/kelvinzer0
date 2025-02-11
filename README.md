@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Donald Trump’s Anti-‘Woke’ Rant Ends With Awkward Admission](https://www.yahoo.com/news/donald-trump-anti-woke-rant-094654202.html)
-- Feb 11 - [US coal exports to India expected to rise due to China tariffs](https://finance.yahoo.com/news/us-coal-exports-india-expected-074208310.html)
-- Feb 11 - [Mace alleges sexual abuse, rape in stunning House floor speech](https://www.yahoo.com/news/mace-alleges-sexual-abuse-rape-035933782.html)
-- Feb 11 - [Hegseth renames North Carolina military base Fort Roland L. Bragg](https://www.yahoo.com/news/hegseth-renames-north-carolina-military-034146783.html)
-- Feb 11 - [Rep. Nancy Mace accuses ex-fiancé, associates of assaulting her, raping others in House speech](https://www.yahoo.com/news/rep-nancy-mace-accuses-ex-022440429.html)
+- Feb 11 - [Vance warns against ‘authoritarian censorship’ at Paris AI summit](https://www.yahoo.com/news/vance-storms-chinese-vice-premier-090116706.html)
+- Feb 11 - [I travelled on Eurostar’s relaunched Amsterdam to London service – and there were a few hiccups](https://www.yahoo.com/lifestyle/travelled-eurostar-relaunched-amsterdam-london-120000209.html)
+- Feb 11 - [Reeves’s blunder Budget is decimating London’s property market](https://finance.yahoo.com/news/reeves-blunder-budget-decimating-london-115326744.html)
+- Feb 11 - [Iliana To Spread Snow, Ice From Plains To Midwest, Northeast](https://www.yahoo.com/news/iliana-spread-snow-ice-plains-113724366.html)
+- Feb 11 - [Mortgage and refinance rates today, February 11, 2024: Rates hold steady ahead of inflation report](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-february-11-2025-110026670.html)
 <!-- feed end -->
 
 ### Onstream
