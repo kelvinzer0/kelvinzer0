@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [CNN panel gets heated as Scott Jennings calls for Trump to ‘absolutely defy’ courts blocking his executive actions](https://www.yahoo.com/news/cnn-panel-gets-heated-scott-152905436.html)
-- Feb 11 - [Defense Secretary Hegseth booed and heckled by military families protesting against DEI push](https://www.yahoo.com/news/defense-secretary-hegseth-booed-heckled-152521670.html)
-- Feb 11 - [A Colorado electronics repair shop has filed more than 85 lawsuits against customers — but they’re fighting back](https://www.yahoo.com/news/colorado-electronics-repair-shop-filed-130200275.html)
-- Feb 11 - [New wave of flu spikes doctor visits to 15-year high](https://www.yahoo.com/news/wave-flu-spikes-doctor-visits-123256191.html)
-- Feb 11 - [Trump rolls back standards for water-using appliances, light bulbs](https://finance.yahoo.com/news/trump-roll-back-appliance-light-122050090.html)
+- Feb 11 - [Trump pardons former Democratic Illinois Gov. Rod Blagojevich](https://www.yahoo.com/news/trump-pardons-former-democratic-illinois-232600701.html)
+- Feb 11 - [Almost a third of central banks delaying digital currency plans, report shows](https://finance.yahoo.com/news/almost-third-central-banks-delaying-162200556.html)
+- Feb 11 - [Shopify's Q4 Results Top Estimates, But Its Outlook Underwhelms](https://finance.yahoo.com/news/shopifys-q4-results-top-estimates-161959377.html)
+- Feb 11 - [Boeing says it delivered 45 aircraft in busiest January since 2023](https://finance.yahoo.com/news/boeing-says-delivered-45-aircraft-161246124.html)
+- Feb 11 - [Russia offers India its most advanced Su-57 stealth fighter jet](https://www.yahoo.com/news/russia-offers-india-most-advanced-155136599.html)
 <!-- feed end -->
 
 ### Onstream
