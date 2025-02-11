@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Tech layoffs reveal the unintended consequences of mass job cuts](https://www.yahoo.com/news/tech-layoffs-reveal-unintended-consequences-180423610.html)
-- Feb 11 - [Vance in Paris after questioning authority of U.S. judicial system](https://www.yahoo.com/news/vance-paris-questioning-authority-u-004057018.html)
 - Feb 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/experts-6-common-habits-may-003103566.html)
+- Feb 10 - [Private jets collide at Scottsdale Airport in Arizona, killing 1 person, authorities say](https://www.yahoo.com/news/private-jet-veered-off-runway-233630273.html)
 - Feb 10 - [59-Year-Old Dividend Investor Earning $17,800 a Month Shares Portfolio — 'So Nice Living Without Worrying About Money'](https://finance.yahoo.com/news/59-old-dividend-investor-earning-233013315.html)
-- Feb 10 - [FEMA says it's halting payments for migrant housing in New York after Musk blasts money for hotels](https://www.yahoo.com/news/fema-says-halting-payments-migrant-225906497.html)
+- Feb 10 - [A Strange New Cosmic Explosion May Have Just Been Discovered](https://www.yahoo.com/news/strange-cosmic-explosion-may-just-231609749.html)
+- Feb 10 - [China’s J-20 Fighter Is Now Flying In ‘Beast Mode’](https://www.yahoo.com/news/china-j-20-fighter-now-225300028.html)
 <!-- feed end -->
 
 ### Onstream
