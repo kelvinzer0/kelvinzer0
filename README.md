@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Private jets collide at Scottsdale Airport in Arizona, killing at least 1 person, authorities say](https://www.yahoo.com/news/private-jet-veered-off-runway-233630273.html)
+- Feb 11 - [Tech layoffs reveal the unintended consequences of mass job cuts](https://www.yahoo.com/news/tech-layoffs-reveal-unintended-consequences-180423610.html)
+- Feb 11 - [Vance in Paris after questioning authority of U.S. judicial system](https://www.yahoo.com/news/vance-paris-questioning-authority-u-004057018.html)
+- Feb 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/experts-6-common-habits-may-003103566.html)
+- Feb 10 - [59-Year-Old Dividend Investor Earning $17,800 a Month Shares Portfolio — 'So Nice Living Without Worrying About Money'](https://finance.yahoo.com/news/59-old-dividend-investor-earning-233013315.html)
 - Feb 10 - [FEMA says it's halting payments for migrant housing in New York after Musk blasts money for hotels](https://www.yahoo.com/news/fema-says-halting-payments-migrant-225906497.html)
-- Feb 10 - [Trump’s Supreme Court Immunity Ruling Just Came Back to Bite Him](https://www.yahoo.com/news/trump-supreme-court-immunity-ruling-214309019.html)
-- Feb 10 - [Trump loosens enforcement of US law banning bribery of foreign officials](https://www.yahoo.com/news/trump-loosen-enforcement-us-law-204530479.html)
-- Feb 10 - [Hawaii court rules against insurance companies in Maui wildfire, allowing $4B settlement to proceed](https://www.yahoo.com/news/hawaii-court-rules-against-insurance-203058907.html)
 <!-- feed end -->
 
 ### Onstream
