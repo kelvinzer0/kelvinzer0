@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [More users are watching YouTube on TV than mobile](https://www.yahoo.com/tech/more-users-are-watching-youtube-on-tv-than-mobile-140035151.html)
-- Feb 11 - ['Limpet mines' suspected of blowing three holes in 'shadow fleet' oil tanker in Russian port](https://www.yahoo.com/news/limpet-mines-suspected-blowing-three-130853907.html)
+- Feb 11 - [Britain and US refuse to sign ‘inclusive’ AI deal](https://www.yahoo.com/news/vance-storms-chinese-vice-premier-090116706.html)
+- Feb 11 - [Monroe police arrest two in road rage incident involving gunfire on Interstate 75](https://www.yahoo.com/news/monroe-police-arrest-two-road-143432022.html)
 - Feb 11 - [A Colorado electronics repair shop has filed more than 85 lawsuits against customers — but they’re fighting back](https://www.yahoo.com/news/colorado-electronics-repair-shop-filed-130200275.html)
+- Feb 11 - [Quantum computing startup QuEra closes $230 million funding round](https://finance.yahoo.com/news/quantum-computing-startup-quera-closes-130026492.html)
 - Feb 11 - [Thai environmentalists upset as US revokes plastic straw ban](https://www.yahoo.com/news/thai-environmentalists-upset-us-revokes-122652954.html)
-- Feb 11 - [Trump rolls back standards for water-using appliances, light bulbs](https://finance.yahoo.com/news/trump-roll-back-appliance-light-122050090.html)
 <!-- feed end -->
 
 ### Onstream
