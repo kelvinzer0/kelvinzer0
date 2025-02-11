@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Can Disney (DIS) Stock Regain its Magic, or is it a Sinking Ship?](https://finance.yahoo.com/news/disney-dis-stock-regain-magic-203436824.html)
 - Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
-- Feb 11 - ['Senile insanity': Ukrainians outraged at Trump's Russia comment](https://www.yahoo.com/news/senile-insanity-ukrainians-outraged-trumps-190536521.html)
 - Feb 11 - [4 FEMA employees are fired over payments to reimburse New York City for hotel costs for migrants](https://www.yahoo.com/news/4-fema-employees-fired-over-175536358.html)
-- Feb 11 - [Russia offers India its most advanced Su-57 stealth fighter jet](https://www.yahoo.com/news/russia-offers-india-most-advanced-155136599.html)
-- Feb 11 - [Florida 'brothel' allegedly run by illegal immigrants shut down after victim's desperate phone call](https://www.yahoo.com/news/florida-brothel-allegedly-run-illegal-153706206.html)
+- Feb 11 - [Judge tells agencies to restore webpages and data removed after Trump's executive order](https://www.yahoo.com/news/judge-tells-agencies-restore-webpages-173927370.html)
+- Feb 11 - [DOGE slashes millions from Education Department research](https://www.yahoo.com/news/doge-takes-chainsaw-education-department-162932154.html)
 <!-- feed end -->
 
 ### Onstream
