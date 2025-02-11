@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Britain and US refuse to sign ‘inclusive’ AI deal](https://www.yahoo.com/news/vance-storms-chinese-vice-premier-090116706.html)
-- Feb 11 - [Monroe police arrest two in road rage incident involving gunfire on Interstate 75](https://www.yahoo.com/news/monroe-police-arrest-two-road-143432022.html)
+- Feb 11 - [CNN panel gets heated as Scott Jennings calls for Trump to ‘absolutely defy’ courts blocking his executive actions](https://www.yahoo.com/news/cnn-panel-gets-heated-scott-152905436.html)
+- Feb 11 - [Defense Secretary Hegseth booed and heckled by military families protesting against DEI push](https://www.yahoo.com/news/defense-secretary-hegseth-booed-heckled-152521670.html)
 - Feb 11 - [A Colorado electronics repair shop has filed more than 85 lawsuits against customers — but they’re fighting back](https://www.yahoo.com/news/colorado-electronics-repair-shop-filed-130200275.html)
-- Feb 11 - [Quantum computing startup QuEra closes $230 million funding round](https://finance.yahoo.com/news/quantum-computing-startup-quera-closes-130026492.html)
-- Feb 11 - [Thai environmentalists upset as US revokes plastic straw ban](https://www.yahoo.com/news/thai-environmentalists-upset-us-revokes-122652954.html)
+- Feb 11 - [New wave of flu spikes doctor visits to 15-year high](https://www.yahoo.com/news/wave-flu-spikes-doctor-visits-123256191.html)
+- Feb 11 - [Trump rolls back standards for water-using appliances, light bulbs](https://finance.yahoo.com/news/trump-roll-back-appliance-light-122050090.html)
 <!-- feed end -->
 
 ### Onstream
