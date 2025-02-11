@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Migrants stranded in Mexico try to restart life after Trump eliminates legal pathway to US](https://www.yahoo.com/news/migrants-stranded-mexico-try-restart-050623188.html)
+- Feb 11 - [Hegseth renames North Carolina military base Fort Roland L. Bragg](https://www.yahoo.com/news/hegseth-renames-north-carolina-military-034146783.html)
 - Feb 11 - [Rep. Nancy Mace accuses ex-fiancé, associates of assaulting her, raping others in House speech](https://www.yahoo.com/news/rep-nancy-mace-accuses-ex-022440429.html)
-- Feb 11 - [Private jets collide at Scottsdale Airport in Arizona, killing at least 1 person, authorities say](https://www.yahoo.com/news/private-jets-collide-scottsdale-airport-010353903.html)
-- Feb 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/experts-6-common-habits-may-003103566.html)
-- Feb 10 - [A Strange New Cosmic Explosion May Have Just Been Discovered](https://www.yahoo.com/news/strange-cosmic-explosion-may-just-231609749.html)
-- Feb 10 - [China’s J-20 Fighter Is Now Flying In ‘Beast Mode’](https://www.yahoo.com/news/china-j-20-fighter-now-225300028.html)
+- Feb 11 - [Plane Owned by Mötley Crüe Singer Vince Neil Involved in Fatal Crash](https://www.yahoo.com/news/plane-owned-m-tley-cr-020246988.html)
+- Feb 11 - [Tech layoffs reveal the unintended consequences of mass job cuts](https://www.yahoo.com/news/tech-layoffs-reveal-unintended-consequences-180423610.html)
 <!-- feed end -->
 
 ### Onstream
