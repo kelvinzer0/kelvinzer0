@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Billionaire Bill Ackman Just Bought $2.3 Billion Worth of This Incredible Growth Stock, Which Could Make It His Hedge Fund's Biggest Bet](https://finance.yahoo.com/news/billionaire-bill-ackman-just-bought-024200879.html)
 - Feb 11 - [Rep. Nancy Mace accuses ex-fiancé, associates of assaulting her, raping others in House speech](https://www.yahoo.com/news/rep-nancy-mace-accuses-ex-022440429.html)
 - Feb 11 - [Private jets collide at Scottsdale Airport in Arizona, killing at least 1 person, authorities say](https://www.yahoo.com/news/private-jets-collide-scottsdale-airport-010353903.html)
-- Feb 10 - [59-Year-Old Dividend Investor Earning $17,800 a Month Shares Portfolio — 'So Nice Living Without Worrying About Money'](https://finance.yahoo.com/news/59-old-dividend-investor-earning-233013315.html)
+- Feb 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/experts-6-common-habits-may-003103566.html)
 - Feb 10 - [A Strange New Cosmic Explosion May Have Just Been Discovered](https://www.yahoo.com/news/strange-cosmic-explosion-may-just-231609749.html)
+- Feb 10 - [China’s J-20 Fighter Is Now Flying In ‘Beast Mode’](https://www.yahoo.com/news/china-j-20-fighter-now-225300028.html)
 <!-- feed end -->
 
 ### Onstream
