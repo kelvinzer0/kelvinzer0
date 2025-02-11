@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 11 - [Protesters demanding the handover of hostages briefly block a main highway leading to Jerusalem](https://www.yahoo.com/news/protesters-demanding-handover-hostages-briefly-080907284.html)
-- Feb 11 - [US coal exports to India expected to rise due to China tariffs](https://finance.yahoo.com/news/us-coal-exports-india-expected-074208310.html)
 - Feb 11 - [Russian strike damaged Ukrainian gas production facilities, Naftogaz says](https://www.yahoo.com/news/ukraine-imposes-power-restrictions-russia-070259156.html)
+- Feb 11 - [Mace alleges sexual abuse, rape in stunning House floor speech](https://www.yahoo.com/news/mace-alleges-sexual-abuse-rape-035933782.html)
 - Feb 11 - [Hegseth renames North Carolina military base Fort Roland L. Bragg](https://www.yahoo.com/news/hegseth-renames-north-carolina-military-034146783.html)
-- Feb 11 - [Heavy police presence reported in Wilkes-Barre](https://www.yahoo.com/news/heavy-police-presence-reported-wilkes-032515939.html)
+- Feb 11 - [Rep. Nancy Mace accuses ex-fiancé, associates of assaulting her, raping others in House speech](https://www.yahoo.com/news/rep-nancy-mace-accuses-ex-022440429.html)
 <!-- feed end -->
 
 ### Onstream
