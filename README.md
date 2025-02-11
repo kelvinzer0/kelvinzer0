@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [2 American women attacked by shark in Bahamas' Bimini district, police force says](https://www.yahoo.com/news/2-american-women-attacked-shark-224653897.html)
-- Feb 10 - [Rhode Island man in federal prison pleads guilty to bank fraud, US Attorney says](https://www.yahoo.com/news/rhode-island-man-federal-prison-223110093.html)
-- Feb 10 - [Elon Musk Leads $97.4 Billion Bid to Acquire OpenAI, Sam Altman Claps Back With ‘No Thanks’ Burn on X](https://finance.yahoo.com/news/elon-musk-leads-97-4-213154152.html)
+- Feb 10 - [Private jets collide at Scottsdale Airport in Arizona, killing at least 1 person, authorities say](https://www.yahoo.com/news/private-jet-veered-off-runway-233630273.html)
+- Feb 10 - [FEMA says it's halting payments for migrant housing in New York after Musk blasts money for hotels](https://www.yahoo.com/news/fema-says-halting-payments-migrant-225906497.html)
+- Feb 10 - [Trump’s Supreme Court Immunity Ruling Just Came Back to Bite Him](https://www.yahoo.com/news/trump-supreme-court-immunity-ruling-214309019.html)
 - Feb 10 - [Trump loosens enforcement of US law banning bribery of foreign officials](https://www.yahoo.com/news/trump-loosen-enforcement-us-law-204530479.html)
 - Feb 10 - [Hawaii court rules against insurance companies in Maui wildfire, allowing $4B settlement to proceed](https://www.yahoo.com/news/hawaii-court-rules-against-insurance-203058907.html)
 <!-- feed end -->
