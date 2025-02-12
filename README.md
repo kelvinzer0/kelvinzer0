@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Unexploded WW2 bombs found under playground in England](https://www.yahoo.com/news/unexploded-ww2-bombs-found-under-123951396.html)
+- Feb 12 - [Modi and Macron visit ITER site in southern France](https://www.yahoo.com/news/modi-macron-visit-iter-southern-145121274.html)
+- Feb 12 - [Blackrock CEO Larry Fink Gave His 'Diagnosis' Of Retirement Crisis: Rely On Social Security Alone And 'You're Going To Be Living In Poverty'](https://finance.yahoo.com/news/blackrock-ceo-larry-fink-gave-144521903.html)
+- Feb 12 - [Archbishop of Cincinnati resigns, successor appointed](https://www.yahoo.com/news/archbishop-cincinnati-resigns-successor-appointed-130333190.html)
+- Feb 12 - [Some Americans' Social Security checks may have been suspended — here's who is being targeted and what you can do](https://finance.yahoo.com/news/americans-social-security-checks-may-124700094.html)
 - Feb 12 - [Tesla's stock slide looks to be unrelenting](https://finance.yahoo.com/news/teslas-stock-slide-looks-to-be-unrelenting-111050162.html)
-- Feb 12 - [A funny thing happened on the way to closing the U.S. Department of Education](https://www.yahoo.com/news/funny-thing-happened-way-closing-110013237.html)
-- Feb 12 - [Russia says it will never swap Ukrainian territory for Kyiv-held parts of Kursk region](https://www.yahoo.com/news/russia-says-never-swap-ukrainian-104538766.html)
-- Feb 12 - [Donald Trump Taunted Over ‘Most Powerless Image Of A President’ Ever](https://www.yahoo.com/news/donald-trump-taunted-over-most-104505118.html)
 <!-- feed end -->
 
 ### Onstream
