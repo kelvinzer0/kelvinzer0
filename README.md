@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 12 - [Egg prices soar in the US due to bird flu outbreak](https://finance.yahoo.com/video/egg-prices-soar-us-due-064433611.html)
-- Feb 11 - ["Imagine Getting Called Out By The Pope For Being A Horrible Person": People Are Ridiculing JD Vance For Being So Confidently Wrong That He Was Apparently Corrected By The Pope Himself](https://www.yahoo.com/news/people-roasting-jd-vance-pope-223140995.html)
-- Feb 11 - [School closings: Here's the list of OKC schools closed or going virtual Wednesday](https://www.yahoo.com/news/school-closed-tomorrow-heres-list-221409341.html)
+- Feb 12 - [Philippines law agency recommends filing criminal charges against VP Duterte over threat](https://www.yahoo.com/news/philippines-law-agency-recommends-filing-035420256.html)
+- Feb 12 - [Supermicro Stock Whipsaws After Saying It'll Meet Filing Deadline—Watch These Price Levels](https://finance.yahoo.com/news/supermicro-stock-whipsaws-saying-itll-032138197.html)
+- Feb 11 - [Man dies following Feb. 4 dog attack in Panama City Beach](https://www.yahoo.com/news/man-dies-following-feb-4-210956883.html)
 - Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
-- Feb 11 - [4 FEMA employees are fired over payments to reimburse New York City for hotel costs for migrants](https://www.yahoo.com/news/4-fema-employees-fired-over-175536358.html)
 <!-- feed end -->
 
 ### Onstream
