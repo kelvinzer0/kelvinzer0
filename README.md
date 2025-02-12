@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Egg prices soar in the US due to bird flu outbreak](https://finance.yahoo.com/video/egg-prices-soar-us-due-064433611.html)
+- Feb 12 - [China's purchases of chipmaking equipment to decline in 2025, consultancy says](https://finance.yahoo.com/news/chinas-purchases-chipmaking-equipment-decline-064853951.html)
 - Feb 12 - [Philippines law agency recommends filing criminal charges against VP Duterte over threat](https://www.yahoo.com/news/philippines-law-agency-recommends-filing-035420256.html)
-- Feb 12 - [Supermicro Stock Whipsaws After Saying It'll Meet Filing Deadline—Watch These Price Levels](https://finance.yahoo.com/news/supermicro-stock-whipsaws-saying-itll-032138197.html)
-- Feb 11 - [Man dies following Feb. 4 dog attack in Panama City Beach](https://www.yahoo.com/news/man-dies-following-feb-4-210956883.html)
-- Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
+- Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
+- Feb 11 - [Heavy rain coming to desert this week. How will it stack up against past major storms?](https://www.yahoo.com/news/heavy-rain-coming-desert-week-203153566.html)
+- Feb 11 - [Boise police hired Meridian officer amid ‘use of force’ investigation. Then this happened](https://www.yahoo.com/news/boise-police-hired-meridian-officer-185603859.html)
 <!-- feed end -->
 
 ### Onstream
