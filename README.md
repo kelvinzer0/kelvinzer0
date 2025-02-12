@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
-- Feb 11 - [Fox 19 meteorologist leaving the station after 18 years](https://www.yahoo.com/news/fox-19-meteorologist-leaving-station-231053403.html)
-- Feb 11 - [Las Vegas man arrested after fatal shooting of woman he met on dating app](https://www.yahoo.com/news/las-vegas-man-arrested-fatal-222912607.html)
+- Feb 11 - [California teenager sentenced for nationwide swatting spree, including two Florida incidents](https://www.yahoo.com/news/california-teenager-sentenced-nationwide-swatting-221552101.html)
+- Feb 11 - [San Diego braces for first major storm of year: What to expect and when](https://www.yahoo.com/news/san-diego-braces-first-major-221128322.html)
 - Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
-- Feb 11 - [Mark Zuckerberg warned employees to prepare for an ‘intense year.’ He just laid off 3,600 workers—including some who claim they got glowing reviews](https://finance.yahoo.com/news/mark-zuckerberg-warned-employees-prepare-174916671.html)
+- Feb 11 - [Detroit mom called city for help before 2 kids froze in casino parking garage](https://www.yahoo.com/news/detroit-mom-called-city-help-184323330.html)
 <!-- feed end -->
 
 ### Onstream
