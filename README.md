@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [House Republicans unveil blueprint to extend $4.5 trillion in tax cuts and lift the debt ceiling](https://www.yahoo.com/news/house-republicans-unveil-blueprint-extend-180524608.html)
-- Feb 12 - [Emergency declared on a second Greek island as a string of earthquakes persists](https://www.yahoo.com/news/emergency-declared-second-greek-island-175118917.html)
-- Feb 12 - [Prince William Suffers Heartbreaking Personal Loss](https://www.yahoo.com/news/prince-william-suffers-heartbreaking-personal-162739907.html)
-- Feb 12 - [Sergeant who 'pinned down' soldier will leave Army, inquest told](https://www.yahoo.com/news/sergeant-pinned-down-soldier-leave-161216347.html)
-- Feb 12 - [High-energy cosmic neutrino detected under Mediterranean Sea](https://www.yahoo.com/news/high-energy-cosmic-neutrino-detected-161119131.html)
+- Feb 12 - [Fed Chair Powell reinforces patient approach to rate cuts](https://finance.yahoo.com/video/fed-chair-powell-reinforces-patient-203434363.html)
+- Feb 12 - [MoonPie Is Renaming The State Of Florida, And Their Suggestion Is Going Super Viral](https://www.yahoo.com/lifestyle/moonpie-renaming-state-florida-suggestion-200431482.html)
+- Feb 12 - [Navy crew members eject from their jet before it crashes off the San Diego coast](https://www.yahoo.com/news/navy-jet-crashed-off-coast-194325396.html)
+- Feb 12 - [Trudeau: ‘Not a snowball’s chance in Hell’ Canada becomes 51st state](https://www.yahoo.com/news/trudeau-not-snowball-chance-hell-191018182.html)
+- Feb 12 - [Air India rules out more Boeing jet orders for now, CEO says](https://finance.yahoo.com/news/air-india-rules-more-boeing-183729963.html)
 <!-- feed end -->
 
 ### Onstream
