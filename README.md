@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 12 - [Some Americans' Social Security checks may have been suspended — here's who is being targeted and what you can do](https://finance.yahoo.com/news/americans-social-security-checks-may-124700094.html)
+- Feb 12 - [Analysis-Rising airfares boost profit outlook for airlines](https://finance.yahoo.com/news/analysis-rising-airfares-boost-profit-121144755.html)
+- Feb 12 - [Is the Magnificent 7 trade in big trouble?](https://finance.yahoo.com/video/magnificent-7-trade-big-trouble-121036170.html)
 - Feb 12 - [Tesla's stock slide looks to be unrelenting](https://finance.yahoo.com/news/teslas-stock-slide-looks-to-be-unrelenting-111050162.html)
 - Feb 12 - [Russia says it will never swap Ukrainian territory for Kyiv-held parts of Kursk region](https://www.yahoo.com/news/russia-says-never-swap-ukrainian-104538766.html)
-- Feb 12 - [Donald Trump Taunted Over ‘Most Powerless Image Of A President’ Ever](https://www.yahoo.com/news/donald-trump-taunted-over-most-104505118.html)
-- Feb 12 - [Anderson Cooper Snaps At Trump-Defending Chris Sununu On Live TV: ‘Don’t Be A Dick’](https://www.yahoo.com/news/anderson-cooper-snaps-trump-defending-072635513.html)
-- Feb 12 - [China's purchases of chipmaking equipment to decline in 2025, consultancy says](https://finance.yahoo.com/news/chinas-purchases-chipmaking-equipment-decline-064853951.html)
 <!-- feed end -->
 
 ### Onstream
