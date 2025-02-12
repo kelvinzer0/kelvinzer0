@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Former longtime Illinois legislative leader Michael Madigan is convicted in corruption trial](https://www.yahoo.com/news/former-longtime-illinois-legislative-leader-172900998.html)
+- Feb 12 - [Drone Captures Stunning View of Horses on Snowy Maryland Farm](https://www.yahoo.com/news/drone-captures-stunning-view-horses-180821172.html)
+- Feb 12 - [House Republicans unveil blueprint to extend $4.5 trillion in tax cuts and lift the debt ceiling](https://www.yahoo.com/news/house-republicans-unveil-blueprint-extend-180524608.html)
 - Feb 12 - [Warren Buffett boosts stake in Occidental, sees growth opportunity](https://finance.yahoo.com/video/warren-buffett-boosts-stake-occidental-164518833.html)
-- Feb 12 - [JPMorgan Chase begins planned layoffs for 2025, source says](https://finance.yahoo.com/news/jpmorgan-chase-begins-layoffs-more-163424331.html)
 - Feb 12 - [Sergeant who 'pinned down' soldier will leave Army, inquest told](https://www.yahoo.com/news/sergeant-pinned-down-soldier-leave-161216347.html)
 - Feb 12 - [High-energy cosmic neutrino detected under Mediterranean Sea](https://www.yahoo.com/news/high-energy-cosmic-neutrino-detected-161119131.html)
 <!-- feed end -->
