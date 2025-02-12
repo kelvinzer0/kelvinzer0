@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 12 - [Republicans on collision course as lawmakers proceed with competing spending packages](https://www.yahoo.com/news/republicans-collision-course-lawmakers-proceed-040000682.html)
 - Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
 - Feb 11 - [Fox 19 meteorologist leaving the station after 18 years](https://www.yahoo.com/news/fox-19-meteorologist-leaving-station-231053403.html)
-- Feb 11 - [Indianapolis fraudster behind multi-million dollar real estate Ponzi scheme sentenced](https://www.yahoo.com/news/indianapolis-fraudster-behind-multi-million-223819876.html)
-- Feb 11 - [San Diego braces for first major storm of year: What to expect and when](https://www.yahoo.com/news/san-diego-braces-first-major-221128322.html)
-- Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
+- Feb 11 - [Gwinnett man who shot woman through door after she complained about loud music won’t be charged](https://www.yahoo.com/news/gwinnett-man-shot-woman-door-230528957.html)
+- Feb 11 - ["Imagine Getting Called Out By The Pope For Being A Horrible Person": People Are Ridiculing JD Vance For Being So Confidently Wrong That He Was Apparently Corrected By The Pope Himself](https://www.yahoo.com/news/people-roasting-jd-vance-pope-223140995.html)
 <!-- feed end -->
 
 ### Onstream
