@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 12 - [Funeral firm offering world's first 'living coffin' - made out of mushrooms](https://www.yahoo.com/news/funeral-firm-offering-worlds-first-094613443.html)
+- Feb 12 - [Don't Let This Dividend Stock's High Yield Fool You. It Has the Fuel to Deliver High-Octane Growth Through 2030.](https://finance.yahoo.com/news/dont-let-dividend-stocks-high-094400045.html)
 - Feb 12 - [China's purchases of chipmaking equipment to decline in 2025, consultancy says](https://finance.yahoo.com/news/chinas-purchases-chipmaking-equipment-decline-064853951.html)
-- Feb 12 - [Philippines law agency recommends filing criminal charges against VP Duterte over threat](https://www.yahoo.com/news/philippines-law-agency-recommends-filing-035420256.html)
 - Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
-- Feb 11 - [Heavy rain coming to desert this week. How will it stack up against past major storms?](https://www.yahoo.com/news/heavy-rain-coming-desert-week-203153566.html)
-- Feb 11 - [Boise police hired Meridian officer amid ‘use of force’ investigation. Then this happened](https://www.yahoo.com/news/boise-police-hired-meridian-officer-185603859.html)
+- Feb 11 - [Fox 19 meteorologist leaving the station after 18 years](https://www.yahoo.com/news/fox-19-meteorologist-leaving-station-231053403.html)
 <!-- feed end -->
 
 ### Onstream
