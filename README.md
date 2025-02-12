@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Trump dismisses hot inflation report as 'Biden inflation' after another call to lower interest rates](https://finance.yahoo.com/news/trump-dismisses-hot-inflation-report-as-biden-inflation-after-another-call-to-lower-interest-rates-150051992.html)
 - Feb 12 - [Education Department rescinds Biden memo that threatened to upend college NIL payments](https://www.yahoo.com/news/education-department-rescinds-biden-memo-145328475.html)
 - Feb 12 - [Modi and Macron visit ITER site in southern France](https://www.yahoo.com/news/modi-macron-visit-iter-southern-145121274.html)
 - Feb 12 - [House Dem prepares to 'bring the fire' to first DOGE subcommittee hearing](https://www.yahoo.com/news/house-dem-prepares-bring-fire-144554388.html)
 - Feb 12 - [Blackrock CEO Larry Fink Gave His 'Diagnosis' Of Retirement Crisis: Rely On Social Security Alone And 'You're Going To Be Living In Poverty'](https://finance.yahoo.com/news/blackrock-ceo-larry-fink-gave-144521903.html)
+- Feb 12 - [Hegseth says Ukraine cannot expect return to old borders, NATO membership](https://www.yahoo.com/news/us-defense-chief-hegseth-says-142858987.html)
 <!-- feed end -->
 
 ### Onstream
