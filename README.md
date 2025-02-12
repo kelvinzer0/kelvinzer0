@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 12 - [Trump offers Putin a way back in from the cold](https://www.yahoo.com/news/trump-offers-putin-way-back-201626506.html)
-- Feb 12 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
-- Feb 12 - [Trump Mocked After Blaming Bad Inflation Report On Biden](https://www.yahoo.com/news/trump-mocked-blaming-bad-inflation-202409846.html)
 - Feb 12 - [MoonPie Has Renamed The State Of Florida, And Everyone Is Loving It](https://www.yahoo.com/lifestyle/moonpie-renaming-state-florida-suggestion-200431482.html)
-- Feb 12 - [Navy fighter jet crashes near Shelter Island](https://www.yahoo.com/news/navy-fighter-jet-crashes-near-185553422.html)
+- Feb 12 - [4 Sneaky Car Dealership Scams That Might Be Illegal in 2025](https://finance.yahoo.com/news/4-sneaky-car-dealership-scams-140036803.html)
+- Feb 12 - [Navy crew members eject from their jet before it crashes off the San Diego coast](https://www.yahoo.com/news/navy-jet-crashed-off-coast-194325396.html)
+- Feb 12 - [Trump Press Secretary Crashes and Burns When Trying to Prove Fraud](https://www.yahoo.com/news/trump-press-secretary-crashes-burns-191936682.html)
 <!-- feed end -->
 
 ### Onstream
