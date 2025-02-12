@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Tropical Cyclone Zelia Intensifies as It Moves Towards Australian Coast](https://www.yahoo.com/news/tropical-cyclone-zelia-intensifies-moves-110414057.html)
+- Feb 12 - [Tesla's stock slide looks to be unrelenting](https://finance.yahoo.com/news/teslas-stock-slide-looks-to-be-unrelenting-111050162.html)
 - Feb 12 - [Russia says it will never swap Ukrainian territory for Kyiv-held parts of Kursk region](https://www.yahoo.com/news/russia-says-never-swap-ukrainian-104538766.html)
-- Feb 12 - [One OptimizeRx Insider Raised Their Stake In The Previous Year](https://finance.yahoo.com/news/one-optimizerx-insider-raised-stake-102228013.html)
-- Feb 12 - [Bridgewater resident achieves highest Sea Cadet rank, says joining corps changed his life](https://www.yahoo.com/news/bridgewater-resident-achieves-highest-sea-101008650.html)
-- Feb 12 - [Two Mass. men arrested for trafficking fentanyl and cocaine during 1-95 traffic stop in NH](https://www.yahoo.com/news/two-mass-men-arrested-trafficking-012328278.html)
+- Feb 12 - [Donald Trump Taunted Over ‘Most Powerless Image Of A President’ Ever](https://www.yahoo.com/news/donald-trump-taunted-over-most-104505118.html)
+- Feb 12 - [Anderson Cooper Snaps At Trump-Defending Chris Sununu On Live TV: ‘Don’t Be A Dick’](https://www.yahoo.com/news/anderson-cooper-snaps-trump-defending-072635513.html)
+- Feb 12 - [China's purchases of chipmaking equipment to decline in 2025, consultancy says](https://finance.yahoo.com/news/chinas-purchases-chipmaking-equipment-decline-064853951.html)
 <!-- feed end -->
 
 ### Onstream
