@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Fed Chair Powell reinforces patient approach to rate cuts](https://finance.yahoo.com/video/fed-chair-powell-reinforces-patient-203434363.html)
-- Feb 12 - [MoonPie Is Renaming The State Of Florida, And Their Suggestion Is Going Super Viral](https://www.yahoo.com/lifestyle/moonpie-renaming-state-florida-suggestion-200431482.html)
-- Feb 12 - [Navy crew members eject from their jet before it crashes off the San Diego coast](https://www.yahoo.com/news/navy-jet-crashed-off-coast-194325396.html)
-- Feb 12 - [Trudeau: ‘Not a snowball’s chance in Hell’ Canada becomes 51st state](https://www.yahoo.com/news/trudeau-not-snowball-chance-hell-191018182.html)
-- Feb 12 - [Air India rules out more Boeing jet orders for now, CEO says](https://finance.yahoo.com/news/air-india-rules-more-boeing-183729963.html)
+- Feb 12 - [Trump offers Putin a way back in from the cold](https://www.yahoo.com/news/trump-offers-putin-way-back-201626506.html)
+- Feb 12 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
+- Feb 12 - [Trump Mocked After Blaming Bad Inflation Report On Biden](https://www.yahoo.com/news/trump-mocked-blaming-bad-inflation-202409846.html)
+- Feb 12 - [MoonPie Has Renamed The State Of Florida, And Everyone Is Loving It](https://www.yahoo.com/lifestyle/moonpie-renaming-state-florida-suggestion-200431482.html)
+- Feb 12 - [Navy fighter jet crashes near Shelter Island](https://www.yahoo.com/news/navy-fighter-jet-crashes-near-185553422.html)
 <!-- feed end -->
 
 ### Onstream
