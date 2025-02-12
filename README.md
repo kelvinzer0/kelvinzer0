@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Las Vegas sex worker accused of kidnapping, stealing $300K in crypto](https://www.yahoo.com/news/las-vegas-sex-worker-accused-213917372.html)
-- Feb 11 - [Teen rescued after becoming trapped in abandoned Northern California mine shaft](https://www.yahoo.com/news/teen-rescued-becoming-trapped-abandoned-193406116.html)
-- Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
+- Feb 12 - [UNICEF: Children living in poverty are the worst affected by air pollution in Asia](https://www.yahoo.com/news/unicef-children-living-poverty-worst-054412235.html)
+- Feb 12 - [Top ICE officials removed as White House ramps up pressure on deportations](https://www.yahoo.com/news/top-ice-officials-removed-white-021950112.html)
+- Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
 - Feb 11 - [Detroit mom called city for help before 2 kids froze in casino parking garage](https://www.yahoo.com/news/detroit-mom-called-city-help-184323330.html)
-- Feb 11 - [4 FEMA employees are fired over payments to reimburse New York City for hotel costs for migrants](https://www.yahoo.com/news/4-fema-employees-fired-over-175536358.html)
+- Feb 11 - [Mark Zuckerberg warned employees to prepare for an ‘intense year.’ He just laid off 3,600 workers—including some who claim they got glowing reviews](https://finance.yahoo.com/news/mark-zuckerberg-warned-employees-prepare-174916671.html)
 <!-- feed end -->
 
 ### Onstream
