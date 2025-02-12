@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [CPI preview: How does inflation typically move in January?](https://finance.yahoo.com/video/cpi-preview-does-inflation-typically-231500763.html)
-- Feb 11 - [Is school closed tomorrow? Here's the list of OKC schools closed or going virtual Wednesday](https://www.yahoo.com/news/school-closed-tomorrow-heres-list-221409341.html)
-- Feb 11 - [Trump, joined by Musk in Oval Office, orders up big cuts in federal workforce](https://www.yahoo.com/news/trump-joined-musk-oval-office-213730417.html)
-- Feb 11 - [Former interim Hinds County Sheriff Marshand Crisler sentenced to federal prison](https://www.yahoo.com/news/former-interim-hinds-county-sheriff-204018815.html)
+- Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
+- Feb 11 - [Fox 19 meteorologist leaving the station after 18 years](https://www.yahoo.com/news/fox-19-meteorologist-leaving-station-231053403.html)
+- Feb 11 - [Las Vegas man arrested after fatal shooting of woman he met on dating app](https://www.yahoo.com/news/las-vegas-man-arrested-fatal-222912607.html)
 - Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
+- Feb 11 - [Mark Zuckerberg warned employees to prepare for an ‘intense year.’ He just laid off 3,600 workers—including some who claim they got glowing reviews](https://finance.yahoo.com/news/mark-zuckerberg-warned-employees-prepare-174916671.html)
 <!-- feed end -->
 
 ### Onstream
