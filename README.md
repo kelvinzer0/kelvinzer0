@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Republicans on collision course as lawmakers proceed with competing spending packages](https://www.yahoo.com/news/republicans-collision-course-lawmakers-proceed-040000682.html)
-- Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
-- Feb 11 - [Fox 19 meteorologist leaving the station after 18 years](https://www.yahoo.com/news/fox-19-meteorologist-leaving-station-231053403.html)
-- Feb 11 - [Gwinnett man who shot woman through door after she complained about loud music won’t be charged](https://www.yahoo.com/news/gwinnett-man-shot-woman-door-230528957.html)
-- Feb 11 - ["Imagine Getting Called Out By The Pope For Being A Horrible Person": People Are Ridiculing JD Vance For Being So Confidently Wrong That He Was Apparently Corrected By The Pope Himself](https://www.yahoo.com/news/people-roasting-jd-vance-pope-223140995.html)
+- Feb 11 - [Las Vegas sex worker accused of kidnapping, stealing $300K in crypto](https://www.yahoo.com/news/las-vegas-sex-worker-accused-213917372.html)
+- Feb 11 - [Teen rescued after becoming trapped in abandoned Northern California mine shaft](https://www.yahoo.com/news/teen-rescued-becoming-trapped-abandoned-193406116.html)
+- Feb 11 - [Powell predicts a time when mortgages will be impossible to get in parts of US](https://finance.yahoo.com/news/powell-predicts-a-time-when-mortgages-will-be-impossible-to-get-in-parts-of-us-190820841.html)
+- Feb 11 - [Detroit mom called city for help before 2 kids froze in casino parking garage](https://www.yahoo.com/news/detroit-mom-called-city-help-184323330.html)
+- Feb 11 - [4 FEMA employees are fired over payments to reimburse New York City for hotel costs for migrants](https://www.yahoo.com/news/4-fema-employees-fired-over-175536358.html)
 <!-- feed end -->
 
 ### Onstream
