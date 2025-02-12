@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Funeral firm offering world's first 'living coffin' - made out of mushrooms](https://www.yahoo.com/news/funeral-firm-offering-worlds-first-094613443.html)
-- Feb 12 - [Don't Let This Dividend Stock's High Yield Fool You. It Has the Fuel to Deliver High-Octane Growth Through 2030.](https://finance.yahoo.com/news/dont-let-dividend-stocks-high-094400045.html)
-- Feb 12 - [China's purchases of chipmaking equipment to decline in 2025, consultancy says](https://finance.yahoo.com/news/chinas-purchases-chipmaking-equipment-decline-064853951.html)
-- Feb 12 - [Her parents were injured in a Tesla crash. She ended up having to pay Tesla damages](https://www.yahoo.com/news/her-parents-were-injured-tesla-010111764.html)
-- Feb 11 - [Fox 19 meteorologist leaving the station after 18 years](https://www.yahoo.com/news/fox-19-meteorologist-leaving-station-231053403.html)
+- Feb 12 - [Tropical Cyclone Zelia Intensifies as It Moves Towards Australian Coast](https://www.yahoo.com/news/tropical-cyclone-zelia-intensifies-moves-110414057.html)
+- Feb 12 - [Russia says it will never swap Ukrainian territory for Kyiv-held parts of Kursk region](https://www.yahoo.com/news/russia-says-never-swap-ukrainian-104538766.html)
+- Feb 12 - [One OptimizeRx Insider Raised Their Stake In The Previous Year](https://finance.yahoo.com/news/one-optimizerx-insider-raised-stake-102228013.html)
+- Feb 12 - [Bridgewater resident achieves highest Sea Cadet rank, says joining corps changed his life](https://www.yahoo.com/news/bridgewater-resident-achieves-highest-sea-101008650.html)
+- Feb 12 - [Two Mass. men arrested for trafficking fentanyl and cocaine during 1-95 traffic stop in NH](https://www.yahoo.com/news/two-mass-men-arrested-trafficking-012328278.html)
 <!-- feed end -->
 
 ### Onstream
