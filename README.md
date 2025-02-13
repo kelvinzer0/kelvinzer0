@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Dave Ramsey: 6 Retirement Statistics That Will Make You Think Twice About Saving for the Future](https://finance.yahoo.com/news/dave-ramsey-6-retirement-statistics-140027650.html)
+- Feb 13 - [Germany says its warships were sabotaged as concerns mount that Russia is waging a hybrid war](https://www.yahoo.com/news/germany-said-warships-were-sabotaged-043336363.html)
 - Feb 13 - [Exclusive-JPMorgan CEO Dimon derides in-office work pushback, demands efficiency](https://finance.yahoo.com/news/exclusive-jpmorgan-ceo-dimon-derides-014208206.html)
-- Feb 13 - [Man dies after Las Vegas fire crews find him stuck in palm tree](https://www.yahoo.com/news/man-dies-las-vegas-fire-005940681.html)
-- Feb 13 - [Trump allows foreign bribery and 'corruption' in suspicious DOJ plan](https://www.yahoo.com/news/trump-allows-foreign-bribery-corruption-002718571.html)
 - Feb 13 - [GOP hardliners threaten revolt over Johnson plan to implement Trump agenda](https://www.yahoo.com/news/gop-hardliners-threaten-revolt-over-000244445.html)
+- Feb 12 - [Recording captured the chilling sound of the Titan submersible's final moment](https://www.yahoo.com/news/recording-captured-chilling-sound-titan-215957544.html)
+- Feb 12 - [US judge clears the way for tens of thousands of federal workers to take Trump buyout](https://www.yahoo.com/news/us-judge-allows-trump-proceed-225131723.html)
 <!-- feed end -->
 
 ### Onstream
