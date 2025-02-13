@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [At least 20 injured after driver hits a group of people in Munich](https://www.yahoo.com/news/least-20-injured-driver-hits-120944412.html)
+- Feb 13 - [Israel-Gaza latest: Hamas says it will release hostages under ceasefire deal this weekend as planned](https://www.yahoo.com/news/israel-gaza-ceasefire-live-trump-091443041.html)
+- Feb 13 - [Hays ISD: Pfluger Elementary teacher resigns after dragging student by the arm](https://www.yahoo.com/news/hays-isd-pfluger-elementary-teacher-121532175.html)
 - Feb 13 - [Scientists sound alarm after making disturbing discovery about Earth's rainfall: 'Urgent need'](https://www.yahoo.com/news/scientists-sound-alarm-making-disturbing-103032580.html)
-- Feb 13 - [US relations with Europe will never be the same after Trump’s call with Putin](https://www.yahoo.com/news/us-relations-europe-never-same-050046052.html)
-- Feb 13 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
-- Feb 13 - [Germany says its warships were sabotaged as concerns mount that Russia is waging a hybrid war](https://www.yahoo.com/news/germany-said-warships-were-sabotaged-043336363.html)
+- Feb 13 - [Why tourists are being told to wipe their shoes before visiting the ‘world’s clearest lake’](https://www.yahoo.com/lifestyle/why-tourists-being-told-wipe-092647661.html)
+- Feb 13 - [Wordle hints today for #1,335: Clues and answer for Thursday, February 13](https://www.yahoo.com/tech/wordle-hints-today-for-1335-clues-and-answer-for-thursday-february-13-050148764.html)
 <!-- feed end -->
 
 ### Onstream
