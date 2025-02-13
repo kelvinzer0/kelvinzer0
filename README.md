@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [John Bolton Says He Knows 'Exactly' What Trump Will Do Next, And It's Frightening](https://www.yahoo.com/news/john-bolton-says-knows-exactly-073433584.html)
+- Feb 13 - [China sees 'in-depth' Cook Islands talks, partnership deal expected](https://www.yahoo.com/news/china-sees-depth-cook-islands-105018307.html)
 - Feb 13 - [US relations with Europe will never be the same after Trump’s call with Putin](https://www.yahoo.com/news/us-relations-europe-never-same-050046052.html)
 - Feb 13 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
 - Feb 13 - [Germany says its warships were sabotaged as concerns mount that Russia is waging a hybrid war](https://www.yahoo.com/news/germany-said-warships-were-sabotaged-043336363.html)
