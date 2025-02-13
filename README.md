@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Trump offers Putin a way back in from the cold](https://www.yahoo.com/news/trump-offers-putin-way-back-201626506.html)
-- Feb 13 - [Two people fighting for life and 28 injured as car drives into crowd in Munich attack](https://www.yahoo.com/news/multiple-people-injured-car-drives-100409857.html)
+- Feb 13 - [Robinhood's Q4 crypto revenue soars 700% year-over-year](https://finance.yahoo.com/video/robinhoods-q4-crypto-revenue-soars-145634010.html)
+- Feb 13 - [Hertz Tumbles With Worse-Than-Expected Loss on EV Sale Plan](https://finance.yahoo.com/news/hertz-tumbles-worse-expected-loss-132817345.html)
+- Feb 13 - [Trump wants the Department of Education to be closed 'immediately.' Here's what shutting it down would mean.](https://www.yahoo.com/news/trump-wants-department-education-closed-092702060.html)
 - Feb 13 - [Given Christianity's dominance in US, Trump raises eyebrows with anti-Christian bias initiative](https://www.yahoo.com/news/given-christianitys-dominance-us-trump-130243429.html)
-- Feb 13 - [Ford CEO trashes large EVs saying the problems are "unresolvable"](https://autos.yahoo.com/ford-ceo-trashes-large-evs-130000066.html)
-- Feb 13 - [The world is underestimating the risk of a US recession](https://finance.yahoo.com/news/world-underestimating-risk-us-recession-130000237.html)
+- Feb 13 - [US relations with Europe will never be the same after Trump’s call with Putin](https://www.yahoo.com/news/us-relations-europe-never-same-050046052.html)
 <!-- feed end -->
 
 ### Onstream
