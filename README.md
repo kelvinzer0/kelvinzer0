@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Manhattan US attorney resigns after refusing orders to drop case against New York City Mayor Adams](https://www.yahoo.com/news/manhattan-us-attorney-resigns-refusing-192647391.html)
+- Feb 13 - [WKYC denies allegations made by former meteorologist Hollie Strano in civil case](https://www.yahoo.com/news/wkyc-denies-allegations-made-former-190937688.html)
+- Feb 13 - [Idaho Murders Suspect Bryan Kohberger 'Could Walk Free' Due To Bombshell DNA Evidence](https://www.yahoo.com/news/idaho-murders-suspect-bryan-kohberger-184533831.html)
+- Feb 13 - [Nissan CEO says it will be 'difficult to survive' without partnerships after Honda merger collapses](https://finance.yahoo.com/news/nissan-ceo-says-it-will-be-difficult-to-survive-without-partnerships-after-honda-merger-collapses-184244494.html)
 - Feb 13 - [Wrestler Triple H sitting behind Linda McMahon at hearing delights social media: ‘I guess she brought her own security’](https://www.yahoo.com/news/social-media-abuzz-wrestler-triple-164355328.html)
-- Feb 13 - [The Reason Why Encyclopaedia Britannica Refuses To Rename The Gulf Of Mexico Is Going Viral](https://www.yahoo.com/news/reason-why-encyclopaedia-britannica-refuses-180334925.html)
-- Feb 13 - [US aircraft carrier collides with merchant ship in Mediterranean](https://www.yahoo.com/news/us-aircraft-carrier-collides-merchant-170845799.html)
-- Feb 13 - [Sen. Tina Smith of Minnesota won’t seek reelection, dealing blow to Democrats’ hopes to take Senate](https://www.yahoo.com/news/sen-tina-smith-minnesota-won-162625101.html)
-- Feb 13 - [Apple will introduce its 'newest member of the family' on February 19](https://www.yahoo.com/tech/apple-will-introduce-its-newest-member-of-the-family-on-february-19-162056946.html)
 <!-- feed end -->
 
 ### Onstream
