@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 13 - [Exclusive-JPMorgan CEO Dimon derides in-office work pushback, demands efficiency](https://finance.yahoo.com/news/exclusive-jpmorgan-ceo-dimon-derides-014208206.html)
 - Feb 13 - [Trump allows foreign bribery and 'corruption' in suspicious DOJ plan](https://www.yahoo.com/news/trump-allows-foreign-bribery-corruption-002718571.html)
-- Feb 13 - [They left their corporate jobs and built a hotel in the surfing capital of the Philippines. Island life is busy, too.](https://www.yahoo.com/lifestyle/left-corporate-jobs-built-hotel-001402643.html)
-- Feb 13 - [GOP hardliners threaten revolt over Johnson plan to implement Trump agenda](https://www.yahoo.com/news/gop-hardliners-threaten-revolt-over-000244445.html)
 - Feb 12 - [Recording captured the chilling sound of the Titan submersible's final moment](https://www.yahoo.com/news/recording-captured-chilling-sound-titan-215957544.html)
+- Feb 12 - [Trump offers Putin a way back in from the cold](https://www.yahoo.com/news/trump-offers-putin-way-back-201626506.html)
+- Feb 12 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
 <!-- feed end -->
 
 ### Onstream
