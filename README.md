@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Israel-Gaza latest: Hamas says it will release hostages under ceasefire deal this weekend as planned](https://www.yahoo.com/news/israel-gaza-ceasefire-live-trump-091443041.html)
-- Feb 13 - [Hays ISD: Pfluger Elementary teacher resigns after dragging student by the arm](https://www.yahoo.com/news/hays-isd-pfluger-elementary-teacher-121532175.html)
-- Feb 13 - [Scientists sound alarm after making disturbing discovery about Earth's rainfall: 'Urgent need'](https://www.yahoo.com/news/scientists-sound-alarm-making-disturbing-103032580.html)
-- Feb 13 - [Why tourists are being told to wipe their shoes before visiting the ‘world’s clearest lake’](https://www.yahoo.com/lifestyle/why-tourists-being-told-wipe-092647661.html)
-- Feb 13 - [Wordle hints today for #1,335: Clues and answer for Thursday, February 13](https://www.yahoo.com/tech/wordle-hints-today-for-1335-clues-and-answer-for-thursday-february-13-050148764.html)
+- Feb 13 - [Trump offers Putin a way back in from the cold](https://www.yahoo.com/news/trump-offers-putin-way-back-201626506.html)
+- Feb 13 - [Two people fighting for life and 28 injured as car drives into crowd in Munich attack](https://www.yahoo.com/news/multiple-people-injured-car-drives-100409857.html)
+- Feb 13 - [Given Christianity's dominance in US, Trump raises eyebrows with anti-Christian bias initiative](https://www.yahoo.com/news/given-christianitys-dominance-us-trump-130243429.html)
+- Feb 13 - [Ford CEO trashes large EVs saying the problems are "unresolvable"](https://autos.yahoo.com/ford-ceo-trashes-large-evs-130000066.html)
+- Feb 13 - [The world is underestimating the risk of a US recession](https://finance.yahoo.com/news/world-underestimating-risk-us-recession-130000237.html)
 <!-- feed end -->
 
 ### Onstream
