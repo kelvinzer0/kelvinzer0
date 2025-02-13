@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [NASA says chance of asteroid hitting Earth in 2032 is 2.3%](https://www.yahoo.com/news/nasa-says-chance-asteroid-hitting-004004665.html)
+- Feb 13 - [They left their corporate jobs and built a hotel in the surfing capital of the Philippines. Island life is busy, too.](https://www.yahoo.com/lifestyle/left-corporate-jobs-built-hotel-001402643.html)
 - Feb 12 - [Recording captured the chilling sound of the Titan submersible's final moment](https://www.yahoo.com/news/recording-captured-chilling-sound-titan-215957544.html)
 - Feb 12 - [Trump offers Putin a way back in from the cold](https://www.yahoo.com/news/trump-offers-putin-way-back-201626506.html)
 - Feb 12 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
-- Feb 12 - [4 Sneaky Car Dealership Scams That Might Be Illegal in 2025](https://finance.yahoo.com/news/4-sneaky-car-dealership-scams-140036803.html)
+- Feb 12 - [Palantir Technologies Inc. (PLTR) – Jim Cramer: “This Is GameStop”](https://finance.yahoo.com/news/palantir-technologies-inc-pltr-jim-210510912.html)
 <!-- feed end -->
 
 ### Onstream
