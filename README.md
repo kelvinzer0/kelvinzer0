@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 13 - [Wrestler Triple H sitting behind Linda McMahon at hearing delights social media: ‘I guess she brought her own security’](https://www.yahoo.com/news/social-media-abuzz-wrestler-triple-164355328.html)
-- Feb 13 - [Cybersecurity firm SailPoint returns to markets as the first major tech IPO of the year](https://finance.yahoo.com/news/cybersecurity-firm-sailpoint-returns-to-markets-as-the-first-major-tech-ipo-of-the-year-173318594.html)
+- Feb 13 - [The Reason Why Encyclopaedia Britannica Refuses To Rename The Gulf Of Mexico Is Going Viral](https://www.yahoo.com/news/reason-why-encyclopaedia-britannica-refuses-180334925.html)
 - Feb 13 - [US aircraft carrier collides with merchant ship in Mediterranean](https://www.yahoo.com/news/us-aircraft-carrier-collides-merchant-170845799.html)
+- Feb 13 - [Sen. Tina Smith of Minnesota won’t seek reelection, dealing blow to Democrats’ hopes to take Senate](https://www.yahoo.com/news/sen-tina-smith-minnesota-won-162625101.html)
 - Feb 13 - [Apple will introduce its 'newest member of the family' on February 19](https://www.yahoo.com/tech/apple-will-introduce-its-newest-member-of-the-family-on-february-19-162056946.html)
-- Feb 13 - [GOP hardliners threaten revolt over Johnson plan to implement Trump agenda](https://www.yahoo.com/news/gop-hardliners-threaten-revolt-over-000244445.html)
 <!-- feed end -->
 
 ### Onstream
