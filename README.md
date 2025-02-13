@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Robinhood's Q4 crypto revenue soars 700% year-over-year](https://finance.yahoo.com/video/robinhoods-q4-crypto-revenue-soars-145634010.html)
-- Feb 13 - [Hertz Tumbles With Worse-Than-Expected Loss on EV Sale Plan](https://finance.yahoo.com/news/hertz-tumbles-worse-expected-loss-132817345.html)
+- Feb 13 - [Alibaba confirms Apple partnership to bring AI to China iPhones](https://finance.yahoo.com/video/alibaba-confirms-apple-partnership-bring-155628204.html)
+- Feb 13 - [GOP hardliners threaten revolt over Johnson plan to implement Trump agenda](https://www.yahoo.com/news/gop-hardliners-threaten-revolt-over-000244445.html)
+- Feb 13 - [This River Is Filled With Human Bones but No One Knows Exactly Why](https://www.yahoo.com/news/river-filled-human-bones-no-143000741.html)
 - Feb 13 - [Trump wants the Department of Education to be closed 'immediately.' Here's what shutting it down would mean.](https://www.yahoo.com/news/trump-wants-department-education-closed-092702060.html)
 - Feb 13 - [Given Christianity's dominance in US, Trump raises eyebrows with anti-Christian bias initiative](https://www.yahoo.com/news/given-christianitys-dominance-us-trump-130243429.html)
-- Feb 13 - [US relations with Europe will never be the same after Trump’s call with Putin](https://www.yahoo.com/news/us-relations-europe-never-same-050046052.html)
 <!-- feed end -->
 
 ### Onstream
