@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [John Bolton Says He Knows 'Exactly' What Trump Will Do Next, And It's Frightening](https://www.yahoo.com/news/john-bolton-says-knows-exactly-073433584.html)
 - Feb 13 - [US relations with Europe will never be the same after Trump’s call with Putin](https://www.yahoo.com/news/us-relations-europe-never-same-050046052.html)
+- Feb 13 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
 - Feb 13 - [Germany says its warships were sabotaged as concerns mount that Russia is waging a hybrid war](https://www.yahoo.com/news/germany-said-warships-were-sabotaged-043336363.html)
 - Feb 13 - [Dave Ramsey: 6 Retirement Statistics That Will Make You Think Twice About Saving for the Future](https://finance.yahoo.com/news/dave-ramsey-6-retirement-statistics-140027650.html)
-- Feb 13 - [MOE formulating advertising code of conduct to keep errant tuition centres in check; Rainforest Wild Asia in Mandai opens 12 March: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-moe-formulating-advertising-code-of-conduct-to-keep-errant-tuition-centres-in-check-rainforest-wild-asia-in-mandai-opens-12-march-010833096.html)
-- Feb 13 - [Trump's Body Language During Baffling Elon Musk Press Conference Spoke Volumes, Experts Say](https://www.yahoo.com/news/trumps-body-language-during-baffling-005827303.html)
 <!-- feed end -->
 
 ### Onstream
