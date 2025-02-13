@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Wrestler Triple H sitting behind Linda McMahon at hearing delights social media: ‘I guess she brought her own security’](https://www.yahoo.com/news/social-media-abuzz-wrestler-triple-164355328.html)
+- Feb 13 - [Cybersecurity firm SailPoint returns to markets as the first major tech IPO of the year](https://finance.yahoo.com/news/cybersecurity-firm-sailpoint-returns-to-markets-as-the-first-major-tech-ipo-of-the-year-173318594.html)
+- Feb 13 - [US aircraft carrier collides with merchant ship in Mediterranean](https://www.yahoo.com/news/us-aircraft-carrier-collides-merchant-170845799.html)
 - Feb 13 - [Apple will introduce its 'newest member of the family' on February 19](https://www.yahoo.com/tech/apple-will-introduce-its-newest-member-of-the-family-on-february-19-162056946.html)
-- Feb 13 - [Alibaba confirms Apple partnership to bring AI to China iPhones](https://finance.yahoo.com/video/alibaba-confirms-apple-partnership-bring-155628204.html)
 - Feb 13 - [GOP hardliners threaten revolt over Johnson plan to implement Trump agenda](https://www.yahoo.com/news/gop-hardliners-threaten-revolt-over-000244445.html)
-- Feb 13 - [A rare photo shows Russian and American fighter jets in one place, in India](https://www.yahoo.com/news/rare-photo-shows-russian-american-143925990.html)
-- Feb 13 - [This River Is Filled With Human Bones but No One Knows Exactly Why](https://www.yahoo.com/news/river-filled-human-bones-no-143000741.html)
 <!-- feed end -->
 
 ### Onstream
