@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Dave Ramsey: 6 Retirement Statistics That Will Make You Think Twice About Saving for the Future](https://finance.yahoo.com/news/dave-ramsey-6-retirement-statistics-140027650.html)
 - Feb 13 - [Exclusive-JPMorgan CEO Dimon derides in-office work pushback, demands efficiency](https://finance.yahoo.com/news/exclusive-jpmorgan-ceo-dimon-derides-014208206.html)
+- Feb 13 - [Man dies after Las Vegas fire crews find him stuck in palm tree](https://www.yahoo.com/news/man-dies-las-vegas-fire-005940681.html)
 - Feb 13 - [Trump allows foreign bribery and 'corruption' in suspicious DOJ plan](https://www.yahoo.com/news/trump-allows-foreign-bribery-corruption-002718571.html)
-- Feb 12 - [Recording captured the chilling sound of the Titan submersible's final moment](https://www.yahoo.com/news/recording-captured-chilling-sound-titan-215957544.html)
-- Feb 12 - [Trump offers Putin a way back in from the cold](https://www.yahoo.com/news/trump-offers-putin-way-back-201626506.html)
-- Feb 12 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
+- Feb 13 - [GOP hardliners threaten revolt over Johnson plan to implement Trump agenda](https://www.yahoo.com/news/gop-hardliners-threaten-revolt-over-000244445.html)
 <!-- feed end -->
 
 ### Onstream
