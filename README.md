@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Manhattan US attorney resigns after refusing orders to drop case against New York City Mayor Adams](https://www.yahoo.com/news/manhattan-us-attorney-resigns-refusing-192647391.html)
-- Feb 13 - [WKYC denies allegations made by former meteorologist Hollie Strano in civil case](https://www.yahoo.com/news/wkyc-denies-allegations-made-former-190937688.html)
-- Feb 13 - [Idaho Murders Suspect Bryan Kohberger 'Could Walk Free' Due To Bombshell DNA Evidence](https://www.yahoo.com/news/idaho-murders-suspect-bryan-kohberger-184533831.html)
-- Feb 13 - [Nissan CEO says it will be 'difficult to survive' without partnerships after Honda merger collapses](https://finance.yahoo.com/news/nissan-ceo-says-it-will-be-difficult-to-survive-without-partnerships-after-honda-merger-collapses-184244494.html)
-- Feb 13 - [Wrestler Triple H sitting behind Linda McMahon at hearing delights social media: ‘I guess she brought her own security’](https://www.yahoo.com/news/social-media-abuzz-wrestler-triple-164355328.html)
+- Feb 13 - [Arm reportedly signs Meta as first chip customer](https://finance.yahoo.com/video/arm-reportedly-signs-meta-first-204038608.html)
+- Feb 13 - [WATCH: Kayaker Swallowed Whole by Humpback Whale—Then Spit Back Out](https://www.yahoo.com/news/watch-kayaker-swallowed-whole-humpback-202840097.html)
+- Feb 13 - [Girl's overdose death not preventable - coroner](https://www.yahoo.com/news/girls-overdose-death-not-preventable-162625118.html)
+- Feb 13 - [Trump Shockingly Purges U.S. Attorneys With Unprecedented Move](https://www.yahoo.com/news/trump-shockingly-purges-u-attorneys-193855882.html)
+- Feb 13 - [Top prosecutors quit after Justice Department orders end to corruption case against New York mayor](https://www.yahoo.com/news/manhattan-us-attorney-resigns-refusing-192647391.html)
 <!-- feed end -->
 
 ### Onstream
