@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Analysis-Latest US sanctions on Russia throw global oil trade into disarray](https://finance.yahoo.com/news/analysis-latest-us-sanctions-russia-082811999.html)
+- Feb 14 - [Satellite Imagery Shows Burned Structures in Aftermath of Sudan Refugee Camp Raid](https://www.yahoo.com/news/satellite-imagery-shows-burned-structures-101525166.html)
 - Feb 14 - [Prediction: This Unstoppable Stock Will Soar to $10 Trillion By 2030](https://finance.yahoo.com/news/prediction-unstoppable-stock-soar-10-080200013.html)
+- Feb 14 - [Mysterious Radioactive Anomaly Discovered Deep Under The Pacific Ocean](https://www.yahoo.com/news/mysterious-radioactive-anomaly-discovered-deep-030500304.html)
 - Feb 14 - [Henderson police chief placed on administrative leave](https://www.yahoo.com/news/henderson-police-chief-placed-administrative-030342538.html)
-- Feb 14 - [Florida state Sen. Geraldine Thompson dies at 76 after complications from knee replacement surgery](https://www.yahoo.com/news/florida-state-sen-geraldine-thompson-010631971.html)
-- Feb 14 - [‘Massacre’: Six DOJ officials resign in protest of ‘dangerous’ Trump abuse in widening scandal](https://www.yahoo.com/news/massacre-six-doj-officials-resign-004228608.html)
+- Feb 14 - [Plane carrying Secretary of State Rubio to Europe turned around because of a mechanical issue](https://www.yahoo.com/news/mechanical-issue-forces-secretary-state-024428111.html)
 <!-- feed end -->
 
 ### Onstream
