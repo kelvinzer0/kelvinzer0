@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 14 - [Satellite Imagery Shows Burned Structures in Aftermath of Sudan Refugee Camp Raid](https://www.yahoo.com/news/satellite-imagery-shows-burned-structures-101525166.html)
-- Feb 14 - [Prediction: This Unstoppable Stock Will Soar to $10 Trillion By 2030](https://finance.yahoo.com/news/prediction-unstoppable-stock-soar-10-080200013.html)
-- Feb 14 - [Mysterious Radioactive Anomaly Discovered Deep Under The Pacific Ocean](https://www.yahoo.com/news/mysterious-radioactive-anomaly-discovered-deep-030500304.html)
+- Feb 14 - ['Conditional approval' offered for one-day Orange Crush event](https://www.yahoo.com/news/conditional-approval-offered-one-day-100706927.html)
+- Feb 14 - [Apple's new Powerbeats Pro will measure your pulse through your ears](https://www.yahoo.com/tech/apples-powerbeats-pro-measure-pulse-100317141.html)
+- Feb 14 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
 - Feb 14 - [Henderson police chief placed on administrative leave](https://www.yahoo.com/news/henderson-police-chief-placed-administrative-030342538.html)
-- Feb 14 - [Plane carrying Secretary of State Rubio to Europe turned around because of a mechanical issue](https://www.yahoo.com/news/mechanical-issue-forces-secretary-state-024428111.html)
 <!-- feed end -->
 
 ### Onstream
