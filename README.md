@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Helicopter crew in collision with plane may not have heard key instruction from tower, NTSB says](https://www.yahoo.com/news/helicopter-crew-collision-plane-may-194626367.html)
-- Feb 14 - [Airbnb jumps after earnings beat. CEO sees it as the 'Amazon' of travel](https://finance.yahoo.com/news/airbnb-jumps-earnings-beat-ceo-154935850.html)
-- Feb 14 - [IRS employees accept OPM federal worker buyout; How the 2025 tax season may be affected](https://finance.yahoo.com/news/irs-employees-accept-opm-federal-183335589.html)
-- Feb 14 - [Fire Department Vehicle Falls Down Cliff Into Ocean](https://www.yahoo.com/news/fire-department-vehicle-falls-down-171602572.html)
-- Feb 14 - [Jamie Dimon: ‘Don’t give me this s‑‑‑ that work-from-home Friday works’](https://finance.yahoo.com/news/jamie-dimon-don-t-home-164333537.html)
+- Feb 14 - [Nvidia shakes up stock portfolio, cratering Serve Robotics and sending WeRide soaring](https://finance.yahoo.com/news/nvidia-shakes-up-stock-portfolio-cratering-serve-robotics-and-sending-weride-soaring-155911446.html)
+- Feb 14 - [Plan for reciprocal tariffs on US trading partners ushers in economic uncertainty](https://www.yahoo.com/news/plan-reciprocal-tariffs-us-trading-204122041.html)
+- Feb 14 - [Trump calls for withholding federal money from schools and colleges that require COVID vaccines](https://www.yahoo.com/news/trump-calls-withholding-federal-money-193938931.html)
+- Feb 14 - [Bondi orders federal inmate transferred to Oklahoma for execution](https://www.yahoo.com/news/bondi-orders-federal-inmate-transferred-190549918.html)
+- Feb 14 - [Driver in deadly Tesla Cybertruck crash had alcohol and cocaine in system, report shows](https://www.yahoo.com/news/driver-deadly-tesla-cybertruck-crash-184725593.html)
 <!-- feed end -->
 
 ### Onstream
