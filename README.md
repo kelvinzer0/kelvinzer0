@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - [Meta: Are humanoid robots reshaping the tech giant's AI narrative?](https://finance.yahoo.com/video/meta-humanoid-robots-reshaping-tech-214714980.html)
+- Feb 14 - [‘Bourbon Street Hustler’ Victim Says He’s Lucky to Be Alive](https://www.yahoo.com/news/bourbon-street-hustler-victim-says-211940511.html)
 - Feb 14 - [Nvidia shakes up stock portfolio, cratering Serve Robotics and sending WeRide soaring](https://finance.yahoo.com/news/nvidia-shakes-up-stock-portfolio-cratering-serve-robotics-and-sending-weride-soaring-155911446.html)
-- Feb 14 - [Plan for reciprocal tariffs on US trading partners ushers in economic uncertainty](https://www.yahoo.com/news/plan-reciprocal-tariffs-us-trading-204122041.html)
-- Feb 14 - [Trump calls for withholding federal money from schools and colleges that require COVID vaccines](https://www.yahoo.com/news/trump-calls-withholding-federal-money-193938931.html)
-- Feb 14 - [Bondi orders federal inmate transferred to Oklahoma for execution](https://www.yahoo.com/news/bondi-orders-federal-inmate-transferred-190549918.html)
-- Feb 14 - [Driver in deadly Tesla Cybertruck crash had alcohol and cocaine in system, report shows](https://www.yahoo.com/news/driver-deadly-tesla-cybertruck-crash-184725593.html)
+- Feb 14 - [Shark bites off tourist’s hands as she tries to take selfie on Caribbean beach](https://www.yahoo.com/news/shark-bites-off-tourist-hands-205333844.html)
+- Feb 14 - [VP Vance RIPS World Leaders Over Free Speech And Mass Migration, New Wave Of Federal Firings Coming?](https://www.yahoo.com/news/vp-vance-rips-world-leaders-200800921.html)
 <!-- feed end -->
 
 ### Onstream
