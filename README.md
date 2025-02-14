@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Satellite Imagery Shows Burned Structures in Aftermath of Sudan Refugee Camp Raid](https://www.yahoo.com/news/satellite-imagery-shows-burned-structures-101525166.html)
-- Feb 14 - ['Conditional approval' offered for one-day Orange Crush event](https://www.yahoo.com/news/conditional-approval-offered-one-day-100706927.html)
-- Feb 14 - [Apple's new Powerbeats Pro will measure your pulse through your ears](https://www.yahoo.com/tech/apples-powerbeats-pro-measure-pulse-100317141.html)
-- Feb 14 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
-- Feb 14 - [Henderson police chief placed on administrative leave](https://www.yahoo.com/news/henderson-police-chief-placed-administrative-030342538.html)
+- Feb 14 - [Why PBF Energy Inc. (PBF) Went Down on Thursday](https://finance.yahoo.com/news/why-pbf-energy-inc-pbf-121400694.html)
+- Feb 14 - [Footballer handed suspended jail term for filming sexual encounter with woman](https://www.yahoo.com/news/south-korean-footballer-handed-suspended-113915374.html)
+- Feb 14 - [China's AI firms take spotlight with deals, low-cost models](https://finance.yahoo.com/news/factbox-chinas-ai-firms-spotlight-113200732.html)
+- Feb 14 - [JD Vance’s relative, 12, refused heart transplant over vaccine status](https://www.yahoo.com/news/jd-vance-relative-12-refused-193226156.html)
+- Feb 14 - [Warren Buffett Owns 1 Vanguard Index Fund, and It Could Soar 147%, According to a Top Wall Street Analyst](https://finance.yahoo.com/news/warren-buffett-owns-1-vanguard-092700492.html)
 <!-- feed end -->
 
 ### Onstream
