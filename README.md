@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Meta Just Made a $65 Billion Bet--And It Could Change Everything](https://finance.yahoo.com/news/meta-just-made-65-billion-164151601.html)
-- Feb 14 - [Why XRP Is Skyrocketing Today](https://finance.yahoo.com/news/why-xrp-skyrocketing-today-163810835.html)
-- Feb 14 - [XRP & DOGE Blast After SEC Acknowledges Grayscale ETF Applications](https://finance.yahoo.com/video/xrp-doge-blast-sec-acknowledges-162211617.html)
-- Feb 14 - [Engine maker Safran upbeat on Boeing 737 MAX production this year](https://finance.yahoo.com/news/engine-maker-safran-upbeat-boeing-135230259.html)
-- Feb 14 - [Up to 8 inches of snow expected in parts of MA this weekend. See latest weather forecast](https://www.yahoo.com/news/8-inches-snow-expected-parts-135131865.html)
+- Feb 14 - [Italy president's 'Third Reich' comments on Russia spark Rome-Moscow dispute](https://www.yahoo.com/news/italy-presidents-third-reich-comments-175430710.html)
+- Feb 14 - [Israel-Hamas ceasefire holds despite tensions, American-Israeli hostage to be released](https://www.yahoo.com/news/israel-hamas-ceasefire-holds-despite-171142590.html)
+- Feb 14 - [Meta stock continues record run: 'Prime example' of implementing AI](https://finance.yahoo.com/video/meta-stock-continues-record-run-165700839.html)
+- Feb 14 - [Deadly 16 vehicle crash on I-80 during snow squall](https://www.yahoo.com/news/deadly-16-vehicle-crash-80-140858062.html)
+- Feb 14 - [An Ancient Burial Ground Has Been Preserved Under an Alpine City for More than 2,000 Years](https://www.yahoo.com/news/ancient-burial-ground-preserved-under-140000486.html)
 <!-- feed end -->
 
 ### Onstream
