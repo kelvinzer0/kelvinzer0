@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Italy president's 'Third Reich' comments on Russia spark Rome-Moscow dispute](https://www.yahoo.com/news/italy-presidents-third-reich-comments-175430710.html)
-- Feb 14 - [Israel-Hamas ceasefire holds despite tensions, American-Israeli hostage to be released](https://www.yahoo.com/news/israel-hamas-ceasefire-holds-despite-171142590.html)
+- Feb 14 - [IRS employees accept OPM federal worker buyout; How the 2025 tax season may be affected](https://finance.yahoo.com/news/irs-employees-accept-opm-federal-183335589.html)
+- Feb 14 - [So much for the art of the deal. Trump’s Putin call threatens disaster for Western security](https://www.yahoo.com/news/much-art-deal-trump-putin-183248925.html)
+- Feb 14 - [Fire Department Vehicle Falls Down Cliff Into Ocean](https://www.yahoo.com/news/fire-department-vehicle-falls-down-171602572.html)
 - Feb 14 - [Meta stock continues record run: 'Prime example' of implementing AI](https://finance.yahoo.com/video/meta-stock-continues-record-run-165700839.html)
-- Feb 14 - [Deadly 16 vehicle crash on I-80 during snow squall](https://www.yahoo.com/news/deadly-16-vehicle-crash-80-140858062.html)
-- Feb 14 - [An Ancient Burial Ground Has Been Preserved Under an Alpine City for More than 2,000 Years](https://www.yahoo.com/news/ancient-burial-ground-preserved-under-140000486.html)
+- Feb 14 - [Nvidia shakes up stock portfolio, cratering Serve Robotics and sending WeRide soaring](https://finance.yahoo.com/news/nvidia-shakes-up-stock-portfolio-cratering-serve-robotics-and-sending-weride-soaring-155911446.html)
 <!-- feed end -->
 
 ### Onstream
