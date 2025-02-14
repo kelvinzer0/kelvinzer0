@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Plane carrying Secretary of State Rubio forced to return to Washington ahead of Europe trip](https://www.yahoo.com/news/mechanical-issue-forces-secretary-state-024428111.html)
-- Feb 14 - [‘Massacre’: Six DOJ officials resign in protest of ‘dangerous’ Trump abuse in widening scandal](https://www.yahoo.com/news/massacre-six-doj-officials-resign-004228608.html)
+- Feb 14 - [‘He’s on a leash’: Trump DOJ ordering federal prosecutors to drop Adams charges a 'quid pro quo'?](https://www.yahoo.com/news/leash-trump-doj-ordering-federal-033259618.html)
+- Feb 14 - [Plane carrying Secretary of State Rubio to Europe turned around because of a mechanical issue](https://www.yahoo.com/news/mechanical-issue-forces-secretary-state-024428111.html)
+- Feb 14 - [Florida state Sen. Geraldine Thompson dies at 76 after complications from knee replacement surgery](https://www.yahoo.com/news/florida-state-sen-geraldine-thompson-010631971.html)
 - Feb 13 - [Reporters Laugh as Trump Lambasts CNN Star Kaitlan Collins to Her Face](https://www.yahoo.com/news/reporters-laugh-trump-lambasts-cnn-225549017.html)
 - Feb 13 - [US congressmen sound the alarm on 'secret' Apple order from UK. Read their letter.](https://www.yahoo.com/news/us-congressmen-sound-alarm-secret-214608415.html)
-- Feb 13 - [Texas judge fines New York doctor for prescribing abortion pills to a woman near Dallas](https://www.yahoo.com/news/york-refuses-louisianas-extradition-request-211726656.html)
 <!-- feed end -->
 
 ### Onstream
