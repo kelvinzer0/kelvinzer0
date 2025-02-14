@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Why PBF Energy Inc. (PBF) Went Down on Thursday](https://finance.yahoo.com/news/why-pbf-energy-inc-pbf-121400694.html)
-- Feb 14 - [Footballer handed suspended jail term for filming sexual encounter with woman](https://www.yahoo.com/news/south-korean-footballer-handed-suspended-113915374.html)
-- Feb 14 - [China's AI firms take spotlight with deals, low-cost models](https://finance.yahoo.com/news/factbox-chinas-ai-firms-spotlight-113200732.html)
-- Feb 14 - [JD Vance’s relative, 12, refused heart transplant over vaccine status](https://www.yahoo.com/news/jd-vance-relative-12-refused-193226156.html)
 - Feb 14 - [Warren Buffett Owns 1 Vanguard Index Fund, and It Could Soar 147%, According to a Top Wall Street Analyst](https://finance.yahoo.com/news/warren-buffett-owns-1-vanguard-092700492.html)
+- Feb 14 - [Prediction: This Unstoppable Stock Will Soar to $10 Trillion By 2030](https://finance.yahoo.com/news/prediction-unstoppable-stock-soar-10-080200013.html)
+- Feb 14 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
+- Feb 14 - [Mysterious Radioactive Anomaly Discovered Deep Under The Pacific Ocean](https://www.yahoo.com/news/mysterious-radioactive-anomaly-discovered-deep-030500304.html)
+- Feb 14 - [Henderson police chief placed on administrative leave](https://www.yahoo.com/news/henderson-police-chief-placed-administrative-030342538.html)
 <!-- feed end -->
 
 ### Onstream
