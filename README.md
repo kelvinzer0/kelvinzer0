@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Indiana teen accused of plotting Valentine’s Day school shooting inspired by Parkland massacre](https://www.yahoo.com/news/indiana-teen-accused-plotting-valentine-115112481.html)
-- Feb 14 - [Scientists sound alarm over troubling phenomena forcing them to 'rethink' everything: 'Predictability has become more challenging'](https://www.yahoo.com/news/scientists-sound-alarm-over-troubling-110052179.html)
-- Feb 14 - [Republicans Get A Taste Of How Wrong They Were About Michelle Obama’s Plan](https://www.yahoo.com/news/republicans-taste-wrong-were-michelle-095922274.html)
-- Feb 14 - [Warren Buffett Owns 1 Vanguard Index Fund, and It Could Soar 147%, According to a Top Wall Street Analyst](https://finance.yahoo.com/news/warren-buffett-owns-1-vanguard-092700492.html)
-- Feb 14 - [Prediction: This Unstoppable Stock Will Soar to $10 Trillion By 2030](https://finance.yahoo.com/news/prediction-unstoppable-stock-soar-10-080200013.html)
+- Feb 14 - [Airbnb surges double digits on Q4 earnings](https://finance.yahoo.com/video/airbnb-surges-double-digits-q4-144530355.html)
+- Feb 14 - [Nvidia Dumps SoundHound, Trims Arm Stake, Buys These 2 Stocks](https://www.investors.com/news/technology/nvidia-stock-nvda-sells-soundhound-buys-nebius-weride/?src=A00220&yptr=yahoo)
+- Feb 14 - [Texas judge fines New York doctor for prescribing abortion pills to a woman near Dallas](https://www.yahoo.com/news/texas-judge-fines-york-doctor-141748797.html)
+- Feb 14 - [Engine maker Safran upbeat on Boeing 737 MAX production this year](https://finance.yahoo.com/news/engine-maker-safran-upbeat-boeing-135230259.html)
+- Feb 14 - [An Indian court finds a 31-year-old man guilty of the rape and murder of an Irish backpacker](https://www.yahoo.com/news/indian-court-finds-31-old-132904427.html)
 <!-- feed end -->
 
 ### Onstream
