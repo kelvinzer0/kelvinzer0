@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Dozens injured in German car attack ahead of JD Vance visit](https://www.yahoo.com/news/dozens-injured-german-car-attack-235422071.html)
+- Feb 13 - [Reporters Laugh as Trump Lambasts CNN Star Kaitlan Collins to Her Face](https://www.yahoo.com/news/reporters-laugh-trump-lambasts-cnn-225549017.html)
 - Feb 13 - [US congressmen sound the alarm on 'secret' Apple order from UK. Read their letter.](https://www.yahoo.com/news/us-congressmen-sound-alarm-secret-214608415.html)
-- Feb 13 - [New York refuses Louisiana's extradition request for doctor charged with prescribing abortion pills](https://www.yahoo.com/news/york-refuses-louisianas-extradition-request-211726656.html)
 - Feb 13 - [In-N-Out in Rancho Mirage is reopen today after four-day closure. Here's why](https://www.yahoo.com/news/n-rancho-mirage-reopen-today-205252704.html)
 - Feb 13 - [WATCH: Kayaker Swallowed Whole by Humpback Whale—Then Spit Back Out](https://www.yahoo.com/news/watch-kayaker-swallowed-whole-humpback-202840097.html)
-- Feb 13 - [McMahon promises she'll implement public service loan forgiveness  — even if DOGE tells her not to](https://finance.yahoo.com/news/mcmahon-promises-shell-implement-public-service-loan-forgiveness--even-if-doge-tells-her-not-to-192124487.html)
 <!-- feed end -->
 
 ### Onstream
