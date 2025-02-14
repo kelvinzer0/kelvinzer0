@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Airbnb surges double digits on Q4 earnings](https://finance.yahoo.com/video/airbnb-surges-double-digits-q4-144530355.html)
-- Feb 14 - [Nvidia Dumps SoundHound, Trims Arm Stake, Buys These 2 Stocks](https://www.investors.com/news/technology/nvidia-stock-nvda-sells-soundhound-buys-nebius-weride/?src=A00220&yptr=yahoo)
-- Feb 14 - [Texas judge fines New York doctor for prescribing abortion pills to a woman near Dallas](https://www.yahoo.com/news/texas-judge-fines-york-doctor-141748797.html)
-- Feb 14 - [Engine maker Safran upbeat on Boeing 737 MAX production this year](https://finance.yahoo.com/news/engine-maker-safran-upbeat-boeing-135230259.html)
+- Feb 14 - [Google Maps Adds Weather-Related Incident Reports for Safer Driving](https://www.yahoo.com/tech/google-maps-adds-weather-related-155336485.html)
+- Feb 14 - [NYC Mayor Eric Adams to allow ICE agents on Rikers Island](https://www.yahoo.com/news/nyc-mayor-eric-adams-allow-145848209.html)
+- Feb 14 - [Pete Hegseth Slammed by Republican Senator for ‘Rookie Mistake’](https://www.yahoo.com/news/pete-hegseth-slammed-republican-senator-133403662.html)
 - Feb 14 - [An Indian court finds a 31-year-old man guilty of the rape and murder of an Irish backpacker](https://www.yahoo.com/news/indian-court-finds-31-old-132904427.html)
+- Feb 14 - [How Mexican cartels and Chinese criminal networks are moving 'cocaine of the sea' through Canadian ports](https://www.yahoo.com/news/mexican-cartels-chinese-criminal-networks-120000369.html)
 <!-- feed end -->
 
 ### Onstream
