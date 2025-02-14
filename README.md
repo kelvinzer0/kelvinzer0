@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - [Indiana teen accused of plotting Valentine’s Day school shooting inspired by Parkland massacre](https://www.yahoo.com/news/indiana-teen-accused-plotting-valentine-115112481.html)
+- Feb 14 - [Scientists sound alarm over troubling phenomena forcing them to 'rethink' everything: 'Predictability has become more challenging'](https://www.yahoo.com/news/scientists-sound-alarm-over-troubling-110052179.html)
+- Feb 14 - [Republicans Get A Taste Of How Wrong They Were About Michelle Obama’s Plan](https://www.yahoo.com/news/republicans-taste-wrong-were-michelle-095922274.html)
 - Feb 14 - [Warren Buffett Owns 1 Vanguard Index Fund, and It Could Soar 147%, According to a Top Wall Street Analyst](https://finance.yahoo.com/news/warren-buffett-owns-1-vanguard-092700492.html)
 - Feb 14 - [Prediction: This Unstoppable Stock Will Soar to $10 Trillion By 2030](https://finance.yahoo.com/news/prediction-unstoppable-stock-soar-10-080200013.html)
-- Feb 14 - [JCPenney is closing stores in eight states — see the full list of locations](https://finance.yahoo.com/news/jcpenney-closing-stores-eight-states-212556968.html)
-- Feb 14 - [Mysterious Radioactive Anomaly Discovered Deep Under The Pacific Ocean](https://www.yahoo.com/news/mysterious-radioactive-anomaly-discovered-deep-030500304.html)
-- Feb 14 - [Henderson police chief placed on administrative leave](https://www.yahoo.com/news/henderson-police-chief-placed-administrative-030342538.html)
 <!-- feed end -->
 
 ### Onstream
