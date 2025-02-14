@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Google Maps Adds Weather-Related Incident Reports for Safer Driving](https://www.yahoo.com/tech/google-maps-adds-weather-related-155336485.html)
-- Feb 14 - [NYC Mayor Eric Adams to allow ICE agents on Rikers Island](https://www.yahoo.com/news/nyc-mayor-eric-adams-allow-145848209.html)
-- Feb 14 - [Pete Hegseth Slammed by Republican Senator for ‘Rookie Mistake’](https://www.yahoo.com/news/pete-hegseth-slammed-republican-senator-133403662.html)
-- Feb 14 - [An Indian court finds a 31-year-old man guilty of the rape and murder of an Irish backpacker](https://www.yahoo.com/news/indian-court-finds-31-old-132904427.html)
-- Feb 14 - [How Mexican cartels and Chinese criminal networks are moving 'cocaine of the sea' through Canadian ports](https://www.yahoo.com/news/mexican-cartels-chinese-criminal-networks-120000369.html)
+- Feb 14 - [Meta Just Made a $65 Billion Bet--And It Could Change Everything](https://finance.yahoo.com/news/meta-just-made-65-billion-164151601.html)
+- Feb 14 - [Why XRP Is Skyrocketing Today](https://finance.yahoo.com/news/why-xrp-skyrocketing-today-163810835.html)
+- Feb 14 - [XRP & DOGE Blast After SEC Acknowledges Grayscale ETF Applications](https://finance.yahoo.com/video/xrp-doge-blast-sec-acknowledges-162211617.html)
+- Feb 14 - [Engine maker Safran upbeat on Boeing 737 MAX production this year](https://finance.yahoo.com/news/engine-maker-safran-upbeat-boeing-135230259.html)
+- Feb 14 - [Up to 8 inches of snow expected in parts of MA this weekend. See latest weather forecast](https://www.yahoo.com/news/8-inches-snow-expected-parts-135131865.html)
 <!-- feed end -->
 
 ### Onstream
