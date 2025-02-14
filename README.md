@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 14 - [Plane carrying Secretary of State Rubio to Europe turned around because of a mechanical issue](https://www.yahoo.com/news/mechanical-issue-forces-secretary-state-024428111.html)
+- Feb 14 - [Florida state Sen. Geraldine Thompson dies at 76 after complications from knee replacement surgery](https://www.yahoo.com/news/florida-state-sen-geraldine-thompson-010631971.html)
+- Feb 14 - [Warren Buffett Was Asked How A Regular Person Gets Rich? He Detailed Exactly How He'd Make $30 Billion Starting Over With Only $10,000](https://finance.yahoo.com/news/warren-buffett-asked-regular-person-010017986.html)
 - Feb 14 - [‘Massacre’: Six DOJ officials resign in protest of ‘dangerous’ Trump abuse in widening scandal](https://www.yahoo.com/news/massacre-six-doj-officials-resign-004228608.html)
 - Feb 13 - [One Body Language Expert Spotted Something Very Telling When Donald Trump "Held His Own Hand" At His Recent Press Conference](https://www.yahoo.com/news/professional-body-language-experts-interpreted-235313783.html)
-- Feb 13 - [Las Vegas man gets 4-12 years for driving drunk at 140 mph, killing chef, splitting car in half](https://www.yahoo.com/news/las-vegas-man-gets-4-235039485.html)
-- Feb 13 - [Reporters Laugh as Trump Lambasts CNN Star Kaitlan Collins to Her Face](https://www.yahoo.com/news/reporters-laugh-trump-lambasts-cnn-225549017.html)
 <!-- feed end -->
 
 ### Onstream
