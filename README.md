@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [6 Stores That Are Putting Limits On Egg Purchases](https://www.yahoo.com/news/6-stores-putting-limits-egg-020739114.html)
+- Feb 15 - [Right-Wing Influencer: Elon Musk Is the Father of My 5-Month-Old](https://www.yahoo.com/news/wing-influencer-elon-musk-father-015737481.html)
 - Feb 15 - [14-year-old Gwinnett boy dies in his sleep after overdosing on drugs laced with fentanyl](https://www.yahoo.com/news/14-old-gwinnett-boy-dies-211719102.html)
-- Feb 15 - [Walmart earnings, Fed minutes, housing data: What to Watch](https://finance.yahoo.com/video/walmart-earnings-fed-minutes-housing-000000285.html)
-- Feb 14 - [Trump’s cuts hit red states, triggering GOP pushback](https://www.yahoo.com/news/republicans-rush-soften-trump-cuts-220000057.html)
-- Feb 14 - [Harvey Weinstein says he was duped into guaranteeing $45M loan, sues brother and other movie execs](https://finance.yahoo.com/news/harvey-weinstein-says-duped-guaranteeing-205601212.html)
-- Feb 14 - [VP Vance RIPS World Leaders Over Free Speech And Mass Migration, New Wave Of Federal Firings Coming?](https://www.yahoo.com/news/vp-vance-rips-world-leaders-200800921.html)
+- Feb 14 - [Venomous 3-ft yellow-bellied sea snake found on Hilo beach](https://www.yahoo.com/news/venomous-3-ft-yellow-bellied-234655100.html)
+- Feb 14 - [TSMC and Intel's foundry, Dell-xAI deal: Market Domination](https://finance.yahoo.com/video/tsmc-intels-foundry-dell-xai-222322986.html)
 <!-- feed end -->
 
 ### Onstream
