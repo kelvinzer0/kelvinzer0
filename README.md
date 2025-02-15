@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Munich mother and daughter dead after suspected car ramming attack](https://www.yahoo.com/news/munich-mother-daughter-dead-suspected-191824744.html)
 - Feb 15 - [Bank of America says growth stocks are in a bubble exceeding the 'dot-com' and 'nifty fifty' eras — and warns they could take the S&P 500 down 40%](https://finance.yahoo.com/news/bank-america-says-growth-stocks-180002109.html)
 - Feb 15 - [Lexus, Buick top J.D. Power's latest car dependability survey, with Volkswagen, Chrysler lagging behind](https://finance.yahoo.com/news/lexus-buick-top-jd-powers-latest-car-dependability-survey-with-volkswagen-chrysler-lagging-behind-160004587.html)
 - Feb 15 - [Isolated Indigenous man returns to tribe in the Amazon rainforest after brief contact](https://www.yahoo.com/news/isolated-indigenous-man-returns-tribe-143832723.html)
-- Feb 15 - [Scientists Intrigued by Nearby Planet That Could Potentially Support Life](https://www.yahoo.com/news/scientists-intrigued-nearby-planet-could-140006087.html)
-- Feb 15 - [Trump Supporters Shared How He Could Lose Their Support, And There's One Issue That's Verrrrry Important To Them](https://www.yahoo.com/news/trump-supporters-shared-could-lose-130024234.html)
+- Feb 15 - [Trump moves with dizzying speed on his to-do list. But there are warning signs in his first month](https://www.yahoo.com/news/trump-moves-dizzying-speed-list-140908452.html)
 <!-- feed end -->
 
 ### Onstream
