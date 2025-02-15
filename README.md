@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [How a traffic stop in Vermont cracked open a cultlike group linked to deaths in multiple states](https://www.yahoo.com/news/traffic-stop-vermont-cracked-open-050329644.html)
+- Feb 15 - [Luigi Mangione Makes First Public Statement Since Arrest](https://www.yahoo.com/news/luigi-mangione-makes-first-public-030701157.html)
+- Feb 14 - [Venomous 3-ft yellow-bellied sea snake found on Hilo beach](https://www.yahoo.com/news/venomous-3-ft-yellow-bellied-234655100.html)
 - Feb 14 - [This Absolutely Bonkers Valentine's Day Post From The White House Is Going Viral](https://www.yahoo.com/news/absolutely-bonkers-valentines-day-post-225714729.html)
-- Feb 14 - [TSMC and Intel's foundry, Dell-xAI deal: Market Domination](https://finance.yahoo.com/video/tsmc-intels-foundry-dell-xai-222322986.html)
-- Feb 14 - [New York police find body of missing man they say was tortured for more than a month by 5 people](https://www.yahoo.com/news/york-police-body-missing-man-220551262.html)
-- Feb 14 - [Harvey Weinstein says he was duped into guaranteeing $45M loan, sues brother and other movie execs](https://finance.yahoo.com/news/harvey-weinstein-says-duped-guaranteeing-205601212.html)
-- Feb 14 - [VP Vance RIPS World Leaders Over Free Speech And Mass Migration, New Wave Of Federal Firings Coming?](https://www.yahoo.com/news/vp-vance-rips-world-leaders-200800921.html)
+- Feb 14 - [Trump’s cuts hit red states, triggering GOP pushback](https://www.yahoo.com/news/republicans-rush-soften-trump-cuts-220000057.html)
 <!-- feed end -->
 
 ### Onstream
