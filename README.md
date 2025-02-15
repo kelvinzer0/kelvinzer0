@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - ['Not well received': Hegseth, Vance embarrass themselves on international stage](https://www.yahoo.com/news/not-well-received-hegseth-vance-062507922.html)
+- Feb 15 - [Letters on Gov. Stitt, Trump and Musk, political hypocrisy and George Washington | Letters](https://www.yahoo.com/news/letters-gov-stitt-trump-musk-114527802.html)
+- Feb 15 - [Next time we elect someone for business skills, can they at least be good at it? | Opinion](https://www.yahoo.com/news/next-time-elect-someone-business-100600978.html)
+- Feb 15 - [F-35 test pilot shares what it's like to jump from flying an old F-16 to Lockheed Martin's newest 5th-gen stealth fighter](https://www.yahoo.com/news/f-35-test-pilot-shares-100302054.html)
 - Feb 15 - [How a traffic stop in Vermont cracked open a cultlike group linked to deaths in multiple states](https://www.yahoo.com/news/traffic-stop-vermont-cracked-open-050329644.html)
-- Feb 14 - [‘Mass casualty’ crash closes I-80 tunnel in Green River, WY](https://www.yahoo.com/news/mass-casualty-crash-closes-80-230244522.html)
-- Feb 14 - [Trump’s cuts hit red states, triggering GOP pushback](https://www.yahoo.com/news/republicans-rush-soften-trump-cuts-220000057.html)
-- Feb 14 - [Harvey Weinstein says he was duped into guaranteeing $45M loan, sues brother and other movie execs](https://finance.yahoo.com/news/harvey-weinstein-says-duped-guaranteeing-205601212.html)
+- Feb 15 - [Massive Florida human trafficking bust: 29 arrested for prostitution and drug charges, 4 victims rescued](https://www.yahoo.com/news/massive-florida-human-trafficking-bust-031859002.html)
 <!-- feed end -->
 
 ### Onstream
