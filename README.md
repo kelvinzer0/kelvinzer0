@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Justice Department fires 20 immigration judges from backlogged courts amid major government cuts](https://www.yahoo.com/news/justice-department-fires-20-immigration-194302860.html)
+- Feb 15 - [Trump administration wants to un-fire nuclear safety workers but can’t figure out how to reach them](https://www.yahoo.com/news/trump-administration-wants-un-fire-192226884.html)
 - Feb 15 - [Bank of America says growth stocks are in a bubble exceeding the 'dot-com' and 'nifty fifty' eras — and warns they could take the S&P 500 down 40%](https://finance.yahoo.com/news/bank-america-says-growth-stocks-180002109.html)
 - Feb 15 - [Lexus, Buick top J.D. Power's latest car dependability survey, with Volkswagen, Chrysler lagging behind](https://finance.yahoo.com/news/lexus-buick-top-jd-powers-latest-car-dependability-survey-with-volkswagen-chrysler-lagging-behind-160004587.html)
-- Feb 15 - [Trump moves with dizzying speed on his to-do list. But there are warning signs in his first month](https://www.yahoo.com/news/trump-moves-dizzying-speed-list-140908452.html)
-- Feb 15 - [British couple arrested in Iran named as husband and wife on round-the-world motorbike ride](https://www.yahoo.com/news/british-couple-arrested-iran-named-133930944.html)
-- Feb 15 - [Woman, 62, found out her husband drained nest egg and took on $126K debt. Rachel Cruze offers ‘rare’ solution](https://finance.yahoo.com/news/woman-62-found-her-husband-113200889.html)
+- Feb 15 - [Second earthquake jolts Los Angeles area within hours](https://www.yahoo.com/news/second-earthquake-jolts-los-angeles-144622183.html)
 <!-- feed end -->
 
 ### Onstream
