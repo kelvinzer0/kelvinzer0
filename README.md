@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Hamas frees 3 hostages, Israel releases hundreds of prisoners as fragile ceasefire holds](https://www.yahoo.com/news/hamas-frees-3-hostages-israel-142506452.html)
+- Feb 15 - [UK's foreign minister: US and Ukraine should deepen partnership](https://www.yahoo.com/news/uks-foreign-minister-us-ukraine-153602975.html)
+- Feb 15 - [Ambulance transporting patient involved in crash with semi](https://www.yahoo.com/news/ambulance-transporting-patient-involved-crash-152430391.html)
+- Feb 15 - [Three Israeli hostages and hundreds of Palestinian prisoners freed as ceasefire holds](https://www.yahoo.com/news/three-israeli-hostages-hundreds-palestinian-144521745.html)
+- Feb 15 - [Isolated Indigenous man returns to tribe in the Amazon rainforest after brief contact](https://www.yahoo.com/news/isolated-indigenous-man-returns-tribe-143832723.html)
 - Feb 15 - [Trump moves with dizzying speed on his to-do list. But there are warning signs in his first month](https://www.yahoo.com/news/trump-moves-dizzying-speed-list-140908452.html)
-- Feb 15 - [Woman, 62, found out her husband drained nest egg and took on $126K debt. Rachel Cruze offers ‘rare’ solution](https://finance.yahoo.com/news/woman-62-found-her-husband-113200889.html)
-- Feb 15 - [Researchers make 'fascinating' discovery after examining isolated areas of ocean: 'Substantially more work is required'](https://www.yahoo.com/news/researchers-fascinating-discovery-examining-isolated-113031130.html)
-- Feb 15 - [Trump-Musk Scandal at USAID Takes Unnerving Turn With Vile Leaked Memo](https://www.yahoo.com/news/trump-musk-scandal-usaid-takes-110000546.html)
 <!-- feed end -->
 
 ### Onstream
