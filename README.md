@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Munich mother and daughter dead after suspected car ramming attack](https://www.yahoo.com/news/munich-mother-daughter-dead-suspected-191824744.html)
+- Feb 15 - [Austria stabbing latest: Boy, 14, dies after knife attack in Villach leaves four wounded](https://www.yahoo.com/news/austria-stabbing-latest-boy-14-194322081.html)
+- Feb 15 - [Justice Department fires 20 immigration judges from backlogged courts amid major government cuts](https://www.yahoo.com/news/justice-department-fires-20-immigration-194302860.html)
 - Feb 15 - [Bank of America says growth stocks are in a bubble exceeding the 'dot-com' and 'nifty fifty' eras — and warns they could take the S&P 500 down 40%](https://finance.yahoo.com/news/bank-america-says-growth-stocks-180002109.html)
+- Feb 15 - [JPMorgan employee who questioned Jamie Dimon’s RTO mandate says he was fired—then told he could stay—after testy town hall](https://www.yahoo.com/news/jpmorgan-employee-questioned-jamie-dimon-174335133.html)
 - Feb 15 - [Lexus, Buick top J.D. Power's latest car dependability survey, with Volkswagen, Chrysler lagging behind](https://finance.yahoo.com/news/lexus-buick-top-jd-powers-latest-car-dependability-survey-with-volkswagen-chrysler-lagging-behind-160004587.html)
-- Feb 15 - [Isolated Indigenous man returns to tribe in the Amazon rainforest after brief contact](https://www.yahoo.com/news/isolated-indigenous-man-returns-tribe-143832723.html)
-- Feb 15 - [Trump moves with dizzying speed on his to-do list. But there are warning signs in his first month](https://www.yahoo.com/news/trump-moves-dizzying-speed-list-140908452.html)
 <!-- feed end -->
 
 ### Onstream
