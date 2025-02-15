@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Crowd gathers as militants prepare to release more hostages](https://www.yahoo.com/news/crowd-gathers-militants-prepare-release-070151509.html)
+- Feb 15 - ['Not well received': Hegseth, Vance embarrass themselves on international stage](https://www.yahoo.com/news/not-well-received-hegseth-vance-062507922.html)
 - Feb 15 - [How a traffic stop in Vermont cracked open a cultlike group linked to deaths in multiple states](https://www.yahoo.com/news/traffic-stop-vermont-cracked-open-050329644.html)
-- Feb 15 - [Luigi Mangione Makes First Public Statement Since Arrest](https://www.yahoo.com/news/luigi-mangione-makes-first-public-030701157.html)
-- Feb 14 - [This Absolutely Bonkers Valentine's Day Post From The White House Is Going Viral](https://www.yahoo.com/news/absolutely-bonkers-valentines-day-post-225714729.html)
-- Feb 14 - [New York police find body of missing man they say was tortured for more than a month by 5 people](https://www.yahoo.com/news/york-police-body-missing-man-220551262.html)
+- Feb 14 - [‘Mass casualty’ crash closes I-80 tunnel in Green River, WY](https://www.yahoo.com/news/mass-casualty-crash-closes-80-230244522.html)
+- Feb 14 - [Trump’s cuts hit red states, triggering GOP pushback](https://www.yahoo.com/news/republicans-rush-soften-trump-cuts-220000057.html)
+- Feb 14 - [Harvey Weinstein says he was duped into guaranteeing $45M loan, sues brother and other movie execs](https://finance.yahoo.com/news/harvey-weinstein-says-duped-guaranteeing-205601212.html)
 <!-- feed end -->
 
 ### Onstream
