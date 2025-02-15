@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Letters on Gov. Stitt, Trump and Musk, political hypocrisy and George Washington | Letters](https://www.yahoo.com/news/letters-gov-stitt-trump-musk-114527802.html)
-- Feb 15 - [Next time we elect someone for business skills, can they at least be good at it? | Opinion](https://www.yahoo.com/news/next-time-elect-someone-business-100600978.html)
+- Feb 15 - [Israeli president condemns hostage handover ceremony as 'cynical'](https://www.yahoo.com/news/israeli-president-condemns-hostage-handover-114835649.html)
+- Feb 15 - [Woman, 62, found out her husband drained nest egg and took on $126K debt. Rachel Cruze offers ‘rare’ solution](https://finance.yahoo.com/news/woman-62-found-her-husband-113200889.html)
 - Feb 15 - [F-35 test pilot shares what it's like to jump from flying an old F-16 to Lockheed Martin's newest 5th-gen stealth fighter](https://www.yahoo.com/news/f-35-test-pilot-shares-100302054.html)
-- Feb 15 - [How a traffic stop in Vermont cracked open a cultlike group linked to deaths in multiple states](https://www.yahoo.com/news/traffic-stop-vermont-cracked-open-050329644.html)
-- Feb 15 - [Massive Florida human trafficking bust: 29 arrested for prostitution and drug charges, 4 victims rescued](https://www.yahoo.com/news/massive-florida-human-trafficking-bust-031859002.html)
+- Feb 15 - [Prediction: President Donald Trump Will Break His Social Security Promise and Propose Cuts -- Just Not in the Way You Might Think](https://finance.yahoo.com/news/prediction-president-donald-trump-break-084400874.html)
+- Feb 15 - ['Not well received': Hegseth, Vance embarrass themselves on international stage](https://www.yahoo.com/news/not-well-received-hegseth-vance-062507922.html)
 <!-- feed end -->
 
 ### Onstream
