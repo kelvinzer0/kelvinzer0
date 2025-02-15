@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Crowd gathers as militants prepare to release more hostages](https://www.yahoo.com/news/crowd-gathers-militants-prepare-release-070151509.html)
 - Feb 15 - [How a traffic stop in Vermont cracked open a cultlike group linked to deaths in multiple states](https://www.yahoo.com/news/traffic-stop-vermont-cracked-open-050329644.html)
-- Feb 14 - [Venomous 3-ft yellow-bellied sea snake found on Hilo beach](https://www.yahoo.com/news/venomous-3-ft-yellow-bellied-234655100.html)
+- Feb 15 - [Luigi Mangione Makes First Public Statement Since Arrest](https://www.yahoo.com/news/luigi-mangione-makes-first-public-030701157.html)
 - Feb 14 - [This Absolutely Bonkers Valentine's Day Post From The White House Is Going Viral](https://www.yahoo.com/news/absolutely-bonkers-valentines-day-post-225714729.html)
 - Feb 14 - [New York police find body of missing man they say was tortured for more than a month by 5 people](https://www.yahoo.com/news/york-police-body-missing-man-220551262.html)
-- Feb 14 - [Trump calls for withholding federal money from schools and colleges that require COVID vaccines](https://www.yahoo.com/news/trump-calls-withholding-federal-money-193938931.html)
 <!-- feed end -->
 
 ### Onstream
