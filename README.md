@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Right-Wing Influencer: Elon Musk Is the Father of My 5-Month-Old](https://www.yahoo.com/news/wing-influencer-elon-musk-father-015737481.html)
-- Feb 15 - [Trump officials fired nuclear staff not realizing they oversee the country’s weapons stockpile, sources say](https://www.yahoo.com/news/trump-officials-fired-nuclear-staff-003107756.html)
+- Feb 14 - [This Absolutely Bonkers Valentine's Day Post From The White House Is Going Viral](https://www.yahoo.com/news/absolutely-bonkers-valentines-day-post-225714729.html)
+- Feb 14 - [TSMC and Intel's foundry, Dell-xAI deal: Market Domination](https://finance.yahoo.com/video/tsmc-intels-foundry-dell-xai-222322986.html)
 - Feb 14 - [New York police find body of missing man they say was tortured for more than a month by 5 people](https://www.yahoo.com/news/york-police-body-missing-man-220551262.html)
-- Feb 14 - [Trump’s cuts hit red states, triggering GOP pushback](https://www.yahoo.com/news/republicans-rush-soften-trump-cuts-220000057.html)
+- Feb 14 - [Harvey Weinstein says he was duped into guaranteeing $45M loan, sues brother and other movie execs](https://finance.yahoo.com/news/harvey-weinstein-says-duped-guaranteeing-205601212.html)
 - Feb 14 - [VP Vance RIPS World Leaders Over Free Speech And Mass Migration, New Wave Of Federal Firings Coming?](https://www.yahoo.com/news/vp-vance-rips-world-leaders-200800921.html)
 <!-- feed end -->
 
