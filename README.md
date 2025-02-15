@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Trump Supporters Shared How He Could Lose Their Support, And There's One Issue That's Verrrrry Important To Them](https://www.yahoo.com/news/trump-supporters-shared-could-lose-130024234.html)
+- Feb 15 - [Hamas frees 3 hostages, Israel releases hundreds of prisoners as fragile ceasefire holds](https://www.yahoo.com/news/hamas-frees-3-hostages-israel-142506452.html)
+- Feb 15 - [Trump moves with dizzying speed on his to-do list. But there are warning signs in his first month](https://www.yahoo.com/news/trump-moves-dizzying-speed-list-140908452.html)
 - Feb 15 - [Woman, 62, found out her husband drained nest egg and took on $126K debt. Rachel Cruze offers ‘rare’ solution](https://finance.yahoo.com/news/woman-62-found-her-husband-113200889.html)
-- Feb 15 - [F-35 test pilot shares what it's like to jump from flying an old F-16 to Lockheed Martin's newest 5th-gen stealth fighter](https://www.yahoo.com/news/f-35-test-pilot-shares-100302054.html)
-- Feb 15 - [Prediction: President Donald Trump Will Break His Social Security Promise and Propose Cuts -- Just Not in the Way You Might Think](https://finance.yahoo.com/news/prediction-president-donald-trump-break-084400874.html)
-- Feb 15 - ['Not well received': Hegseth, Vance embarrass themselves on international stage](https://www.yahoo.com/news/not-well-received-hegseth-vance-062507922.html)
+- Feb 15 - [Researchers make 'fascinating' discovery after examining isolated areas of ocean: 'Substantially more work is required'](https://www.yahoo.com/news/researchers-fascinating-discovery-examining-isolated-113031130.html)
+- Feb 15 - [Trump-Musk Scandal at USAID Takes Unnerving Turn With Vile Leaked Memo](https://www.yahoo.com/news/trump-musk-scandal-usaid-takes-110000546.html)
 <!-- feed end -->
 
 ### Onstream
