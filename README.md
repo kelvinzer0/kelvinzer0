@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Meta: Are humanoid robots reshaping the tech giant's AI narrative?](https://finance.yahoo.com/video/meta-humanoid-robots-reshaping-tech-214714980.html)
-- Feb 14 - [RFK Jr. Just Kneecapped the CDC on His First Day](https://www.yahoo.com/news/rfk-jr-just-kneecapped-cdc-213212470.html)
-- Feb 14 - [‘Bourbon Street Hustler’ Victim Says He’s Lucky to Be Alive](https://www.yahoo.com/news/bourbon-street-hustler-victim-says-211940511.html)
+- Feb 15 - [14-year-old Gwinnett boy dies in his sleep after overdosing on drugs laced with fentanyl](https://www.yahoo.com/news/14-old-gwinnett-boy-dies-211719102.html)
+- Feb 15 - [Walmart earnings, Fed minutes, housing data: What to Watch](https://finance.yahoo.com/video/walmart-earnings-fed-minutes-housing-000000285.html)
+- Feb 14 - [Trump’s cuts hit red states, triggering GOP pushback](https://www.yahoo.com/news/republicans-rush-soften-trump-cuts-220000057.html)
 - Feb 14 - [Harvey Weinstein says he was duped into guaranteeing $45M loan, sues brother and other movie execs](https://finance.yahoo.com/news/harvey-weinstein-says-duped-guaranteeing-205601212.html)
-- Feb 14 - [Shark bites off tourist’s hands as she tries to take selfie on Caribbean beach](https://www.yahoo.com/news/shark-bites-off-tourist-hands-205333844.html)
+- Feb 14 - [VP Vance RIPS World Leaders Over Free Speech And Mass Migration, New Wave Of Federal Firings Coming?](https://www.yahoo.com/news/vp-vance-rips-world-leaders-200800921.html)
 <!-- feed end -->
 
 ### Onstream
