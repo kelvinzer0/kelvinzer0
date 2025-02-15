@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 15 - [How a traffic stop in Vermont cracked open a cultlike group linked to deaths in multiple states](https://www.yahoo.com/news/traffic-stop-vermont-cracked-open-050329644.html)
-- Feb 14 - [Venomous 3-ft yellow-bellied sea snake found on Hilo beach](https://www.yahoo.com/news/venomous-3-ft-yellow-bellied-234655100.html)
-- Feb 14 - [This Absolutely Bonkers Valentine's Day Post From The White House Is Going Viral](https://www.yahoo.com/news/absolutely-bonkers-valentines-day-post-225714729.html)
+- Feb 15 - [GOP senator rips Hegseth’s Ukraine remarks: Could be written by ‘fool’ Tucker Carlson](https://www.yahoo.com/news/gop-senator-rips-hegseth-ukraine-014440207.html)
 - Feb 14 - [Trump’s cuts hit red states, triggering GOP pushback](https://www.yahoo.com/news/republicans-rush-soften-trump-cuts-220000057.html)
 - Feb 14 - [Harvey Weinstein says he was duped into guaranteeing $45M loan, sues brother and other movie execs](https://finance.yahoo.com/news/harvey-weinstein-says-duped-guaranteeing-205601212.html)
+- Feb 14 - [Trump calls for withholding federal money from schools and colleges that require COVID vaccines](https://www.yahoo.com/news/trump-calls-withholding-federal-money-193938931.html)
 <!-- feed end -->
 
 ### Onstream
