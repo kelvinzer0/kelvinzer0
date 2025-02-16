@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 16 - [Unlike Costco And Sam's Club, This Warehouse Grocer Doesn't Require A Membership](https://www.yahoo.com/lifestyle/unlike-costco-sams-club-warehouse-131556637.html)
-- Feb 16 - [Indian crowd crush survivors describe chaos as death toll rises](https://www.yahoo.com/news/indian-crowd-crush-survivors-describe-125201348.html)
 - Feb 16 - [This man waited 2 years, been charged $115k to restore vintage truck for his kid — and the work still isn’t done](https://www.yahoo.com/lifestyle/man-waited-2-years-charged-123000706.html)
-- Feb 16 - [Obama library, begun with lofty DEI goals, now plagued by $40M racially charged suit, ballooning costs](https://www.yahoo.com/news/obama-library-begun-lofty-dei-113218965.html)
 - Feb 16 - [Researchers discover virus for the first time in new geographic region — here's what it means for the future of illnesses](https://www.yahoo.com/news/researchers-discover-virus-first-time-113042185.html)
+- Feb 16 - [Researchers make stunning discovery that shatters previous conceptions of ozone levels: 'Detrimental impacts on human health'](https://www.yahoo.com/news/researchers-stunning-discovery-shatters-previous-111504386.html)
+- Feb 16 - [President Trump's Social Security Changes So Far: 4 Things You Should Know](https://finance.yahoo.com/news/president-trumps-social-security-changes-094500685.html)
 <!-- feed end -->
 
 ### Onstream
