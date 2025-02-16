@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [Investigators find 3rd victim from fiery Wyoming highway tunnel crash](https://www.yahoo.com/news/investigators-3rd-victim-fiery-wyoming-222423562.html)
+- Feb 16 - [Florida Mall shooting leaves one injured, according to Orange County Sheriff’s](https://www.yahoo.com/news/florida-mall-shooting-leaves-20-212218153.html)
 - Feb 16 - [Here are 5 big things that disappear after you retire in America — are you prepared to lose them all?](https://finance.yahoo.com/news/5-big-things-disappear-retire-210400972.html)
-- Feb 16 - [Long Island ex-jail guard shoots woman, dies by suicide in standoff with cops](https://www.yahoo.com/news/long-island-ex-jail-guard-205000554.html)
-- Feb 16 - [Trump administration wants the Supreme Court to let the firing of whistleblower agency head proceed](https://www.yahoo.com/news/trump-administration-wants-supreme-court-194953380.html)
+- Feb 16 - [‘Dinnertime burglaries’ on the rise in affluent Southern California community](https://www.yahoo.com/news/dinnertime-burglaries-rise-affluent-southern-195108324.html)
 - Feb 16 - [72-year-old man dies in overturned vehicle crash on interstate 64 in Virginia Beach](https://www.yahoo.com/news/72-old-man-dies-overturned-190746784.html)
-- Feb 16 - [Donald Trump Just Shared A Very Ominous Post, And People Are Calling It "One Of The Worst Statements Ever Made By A Sitting US President"](https://www.yahoo.com/news/ominous-donald-trump-post-seemingly-174725764.html)
 <!-- feed end -->
 
 ### Onstream
