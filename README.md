@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [Building partially collapses in Brookline, police say](https://www.yahoo.com/news/building-partially-collapses-brookline-police-175418555.html)
+- Feb 16 - [Hezbollah chief says Israel must fully withdraw from Lebanon by February 18](https://www.yahoo.com/news/hezbollah-chief-says-israel-must-182213873.html)
 - Feb 16 - [Row as nude models told to put clothes on at life-drawing class](https://www.yahoo.com/news/row-nude-models-told-put-174640673.html)
-- Feb 16 - [Does Warren Buffett Know Something Wall Street Doesn't? He Just Made a Shocking Move That Could Be a Warning for Investors.](https://finance.yahoo.com/news/does-warren-buffett-know-something-171500119.html)
 - Feb 16 - [This Is The 1 Thing An Eye Doctor Says You Should Never Do — And It's 'Bad... Real Bad'](https://www.yahoo.com/lifestyle/1-thing-eye-doctor-says-170457108.html)
 - Feb 16 - [Ukraine is making weapons 'faster and cheaper' than anywhere else in Europe — and that's a problem, Danish PM warns](https://www.yahoo.com/news/ukraine-making-weapons-faster-cheaper-152021158.html)
+- Feb 16 - [Fatal fiery crash on I-20 after semi goes over bridge](https://www.yahoo.com/news/fatal-fiery-crash-20-semi-132442969.html)
 <!-- feed end -->
 
 ### Onstream
