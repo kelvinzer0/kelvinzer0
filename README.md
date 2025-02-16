@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [Eric Adams reacts to Justice Department motion to drop his corruption charges](https://www.yahoo.com/news/eric-adams-reacts-justice-department-020711419.html)
-- Feb 16 - [Investor Earning $24,000 a Month in Dividends Shares Top 9 Stocks in Portfolio – 'Goal Is To Retire By 2027'](https://finance.yahoo.com/news/investor-earning-24-000-month-013026490.html)
 - Feb 15 - [Investigators enter a highway tunnel in Wyoming where a fiery crash killed 2](https://www.yahoo.com/news/investigators-enter-highway-tunnel-wyoming-224413591.html)
 - Feb 15 - [This Denver woman had to fight her bank for a refund after scammers stole $7,363 — and her bank first ruled it legit](https://finance.yahoo.com/news/denver-woman-had-fight-her-214400154.html)
-- Feb 15 - [Over 700 flights delayed, dozens canceled at Denver airport after ground stop](https://www.yahoo.com/news/over-100-flights-delayed-14-163004514.html)
+- Feb 15 - [Justice Department fires 20 immigration judges from backlogged courts amid major government cuts](https://www.yahoo.com/news/justice-department-fires-20-immigration-194302860.html)
+- Feb 15 - [Bank of America says growth stocks are in a bubble exceeding the 'dot-com' and 'nifty fifty' eras — and warns they could take the S&P 500 down 40%](https://finance.yahoo.com/news/bank-america-says-growth-stocks-180002109.html)
+- Feb 15 - [Scientists Detect Huge Radioactive "Anomaly" Under Pacific Ocean](https://www.yahoo.com/news/scientists-detect-huge-radioactive-anomaly-161515338.html)
 <!-- feed end -->
 
 ### Onstream
