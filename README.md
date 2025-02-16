@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 16 - [Building partially collapses in Brookline, police say](https://www.yahoo.com/news/building-partially-collapses-brookline-police-175418555.html)
+- Feb 16 - [Row as nude models told to put clothes on at life-drawing class](https://www.yahoo.com/news/row-nude-models-told-put-174640673.html)
 - Feb 16 - [Does Warren Buffett Know Something Wall Street Doesn't? He Just Made a Shocking Move That Could Be a Warning for Investors.](https://finance.yahoo.com/news/does-warren-buffett-know-something-171500119.html)
+- Feb 16 - [This Is The 1 Thing An Eye Doctor Says You Should Never Do — And It's 'Bad... Real Bad'](https://www.yahoo.com/lifestyle/1-thing-eye-doctor-says-170457108.html)
 - Feb 16 - [Ukraine is making weapons 'faster and cheaper' than anywhere else in Europe — and that's a problem, Danish PM warns](https://www.yahoo.com/news/ukraine-making-weapons-faster-cheaper-152021158.html)
-- Feb 16 - [Musk goes ‘offline’ after Maga influencer claims she gave birth to his 13th child](https://www.yahoo.com/entertainment/musk-goes-offline-maga-influencer-151207648.html)
-- Feb 16 - [Obama library, begun with lofty DEI goals, now plagued by $40M racially charged suit, ballooning costs](https://www.yahoo.com/news/obama-library-begun-lofty-dei-113218965.html)
 <!-- feed end -->
 
 ### Onstream
