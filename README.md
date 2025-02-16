@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Investigators enter a highway tunnel in Wyoming where a fiery crash killed 2](https://www.yahoo.com/news/investigators-enter-highway-tunnel-wyoming-224413591.html)
-- Feb 15 - [Justice Department fires 20 immigration judges from backlogged courts amid major government cuts](https://www.yahoo.com/news/justice-department-fires-20-immigration-194302860.html)
-- Feb 15 - [A German drone manufacturer backed by Peter Thiel says it will double its production capacity in Ukraine in 2025](https://finance.yahoo.com/news/german-drone-manufacturer-backed-peter-185257863.html)
+- Feb 16 - [Russian lawmaker: Munich fireworks show EU is out of touch and facing crisis](https://www.yahoo.com/news/russian-lawmaker-munich-fireworks-show-064735495.html)
 - Feb 15 - [Scientists Detect Huge Radioactive "Anomaly" Under Pacific Ocean](https://www.yahoo.com/news/scientists-detect-huge-radioactive-anomaly-161515338.html)
 - Feb 15 - ["We're So Doomed": People Are Sharing Their Unfiltered Reactions To RFK Jr. Being Confirmed As Health Secretary, And It's Bleak](https://www.yahoo.com/news/people-reacting-rfk-jr-being-160550372.html)
+- Feb 15 - [Lexus, Buick top J.D. Power's latest car dependability survey, with Volkswagen, Chrysler lagging behind](https://finance.yahoo.com/news/lexus-buick-top-jd-powers-latest-car-dependability-survey-with-volkswagen-chrysler-lagging-behind-160004587.html)
+- Feb 15 - [Second earthquake jolts Los Angeles area within hours](https://www.yahoo.com/news/second-earthquake-jolts-los-angeles-144622183.html)
 <!-- feed end -->
 
 ### Onstream
