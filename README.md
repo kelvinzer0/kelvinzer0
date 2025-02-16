@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [Teenager and toddler found dead in CT apartment; both suffered multiple stab wounds](https://www.yahoo.com/news/teenager-toddler-found-dead-ct-201200920.html)
 - Feb 16 - [Hezbollah chief says Israel must fully withdraw from Lebanon by February 18](https://www.yahoo.com/news/hezbollah-chief-says-israel-must-182213873.html)
 - Feb 16 - [Row as nude models told to put clothes on at life-drawing class](https://www.yahoo.com/news/row-nude-models-told-put-174640673.html)
 - Feb 16 - [This Is The 1 Thing An Eye Doctor Says You Should Never Do — And It's 'Bad... Real Bad'](https://www.yahoo.com/lifestyle/1-thing-eye-doctor-says-170457108.html)
-- Feb 16 - [Ukraine is making weapons 'faster and cheaper' than anywhere else in Europe — and that's a problem, Danish PM warns](https://www.yahoo.com/news/ukraine-making-weapons-faster-cheaper-152021158.html)
-- Feb 16 - [Fatal fiery crash on I-20 after semi goes over bridge](https://www.yahoo.com/news/fatal-fiery-crash-20-semi-132442969.html)
+- Feb 16 - [A 59-year-old died in a one-car crash Sunday morning in a Hobby Lobby parking lot](https://www.yahoo.com/news/59-old-died-one-car-170131028.html)
 <!-- feed end -->
 
 ### Onstream
