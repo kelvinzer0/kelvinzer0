@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [AI beds and sleep labs: Some luxury hotels are charging more than $1,000 a night for good sleep](https://www.yahoo.com/lifestyle/ai-beds-sleep-labs-luxury-100002274.html)
 - Feb 16 - [US presented Ukraine with a document to access its minerals but offered almost nothing in return](https://www.yahoo.com/news/us-presented-ukraine-document-access-051106468.html)
 - Feb 16 - [Man dies after being hit by multiple cars on Garden State Parkway; none stopped](https://www.yahoo.com/news/man-dies-being-hit-multiple-022200995.html)
 - Feb 16 - [Pushy passengers attacked by furious fellow traveler over rude inflight behavior: ‘Garbage people’](https://www.yahoo.com/lifestyle/pushy-passengers-attacked-furious-fellow-004002559.html)
-- Feb 15 - [Justice Department fires 20 immigration judges from backlogged courts amid major government cuts](https://www.yahoo.com/news/justice-department-fires-20-immigration-194302860.html)
-- Feb 15 - [Zelensky warns days of guaranteed US support for Europe are over, as Kellogg says Europeans won’t be at table for peace talks](https://www.yahoo.com/news/zelensky-warns-trump-meeting-putin-111710878.html)
+- Feb 16 - [Iran's abandoned bases in Syria: Years of military expansion lie in ruins](https://www.yahoo.com/news/irans-abandoned-bases-syria-years-001548643.html)
 <!-- feed end -->
 
 ### Onstream
