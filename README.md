@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [Trump suggests he’s above the law with ominous Napoleon quote](https://www.yahoo.com/news/trump-suggests-above-law-ominous-214617165.html)
-- Feb 16 - [Fed's focus shift: From data to policy](https://finance.yahoo.com/video/feds-focus-shift-data-policy-120040052.html)
 - Feb 16 - [President Trump's Social Security Changes So Far: 4 Things You Should Know](https://finance.yahoo.com/news/president-trumps-social-security-changes-094500685.html)
+- Feb 16 - [2 Monster Stocks to Buy Before They Soar 150% and 630%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/2-monster-stocks-buy-soar-085500385.html)
 - Feb 16 - [US presented Ukraine with a document to access its minerals but offered almost nothing in return](https://www.yahoo.com/news/us-presented-ukraine-document-access-051106468.html)
-- Feb 16 - [Man dies after being hit by multiple cars on Garden State Parkway; none stopped](https://www.yahoo.com/news/man-dies-being-hit-multiple-022200995.html)
+- Feb 16 - [Pushy passengers attacked by furious fellow traveler over rude inflight behavior: ‘Garbage people’](https://www.yahoo.com/lifestyle/pushy-passengers-attacked-furious-fellow-004002559.html)
+- Feb 15 - [A German drone manufacturer backed by Peter Thiel says it will double its production capacity in Ukraine in 2025](https://finance.yahoo.com/news/german-drone-manufacturer-backed-peter-185257863.html)
 <!-- feed end -->
 
 ### Onstream
