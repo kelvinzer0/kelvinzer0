@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 16 - [US presented Ukraine with a document to access its minerals but offered almost nothing in return](https://www.yahoo.com/news/us-presented-ukraine-document-access-051106468.html)
-- Feb 15 - [This Denver woman had to fight her bank for a refund after scammers stole $7,363 — and her bank first ruled it legit](https://finance.yahoo.com/news/denver-woman-had-fight-her-214400154.html)
-- Feb 15 - [Lexus, Buick top J.D. Power's latest car dependability survey, with Volkswagen, Chrysler lagging behind](https://finance.yahoo.com/news/lexus-buick-top-jd-powers-latest-car-dependability-survey-with-volkswagen-chrysler-lagging-behind-160004587.html)
-- Feb 15 - [Second earthquake jolts Los Angeles area within hours](https://www.yahoo.com/news/second-earthquake-jolts-los-angeles-144622183.html)
-- Feb 15 - [Trump moves with dizzying speed on his to-do list. But there are warning signs in his first month](https://www.yahoo.com/news/trump-moves-dizzying-speed-list-140908452.html)
+- Feb 16 - [Pushy passengers attacked by furious fellow traveler over rude inflight behavior: ‘Garbage people’](https://www.yahoo.com/lifestyle/pushy-passengers-attacked-furious-fellow-004002559.html)
+- Feb 15 - [Justice Department fires 20 immigration judges from backlogged courts amid major government cuts](https://www.yahoo.com/news/justice-department-fires-20-immigration-194302860.html)
+- Feb 15 - [Scientists Detect Huge Radioactive "Anomaly" Under Pacific Ocean](https://www.yahoo.com/news/scientists-detect-huge-radioactive-anomaly-161515338.html)
+- Feb 15 - ["We're So Doomed": People Are Sharing Their Unfiltered Reactions To RFK Jr. Being Confirmed As Health Secretary, And It's Bleak](https://www.yahoo.com/news/people-reacting-rfk-jr-being-160550372.html)
 <!-- feed end -->
 
 ### Onstream
