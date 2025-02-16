@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [President Trump's Social Security Changes So Far: 4 Things You Should Know](https://finance.yahoo.com/news/president-trumps-social-security-changes-094500685.html)
-- Feb 16 - [2 Monster Stocks to Buy Before They Soar 150% and 630%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/2-monster-stocks-buy-soar-085500385.html)
-- Feb 16 - [US presented Ukraine with a document to access its minerals but offered almost nothing in return](https://www.yahoo.com/news/us-presented-ukraine-document-access-051106468.html)
-- Feb 16 - [Pushy passengers attacked by furious fellow traveler over rude inflight behavior: ‘Garbage people’](https://www.yahoo.com/lifestyle/pushy-passengers-attacked-furious-fellow-004002559.html)
-- Feb 15 - [A German drone manufacturer backed by Peter Thiel says it will double its production capacity in Ukraine in 2025](https://finance.yahoo.com/news/german-drone-manufacturer-backed-peter-185257863.html)
+- Feb 16 - [Indian crowd crush survivors describe chaos as death toll rises](https://www.yahoo.com/news/indian-crowd-crush-survivors-describe-125201348.html)
+- Feb 16 - [Earnings Beat: Avient Corporation Just Beat Analyst Forecasts, And Analysts Have Been Updating Their Models](https://finance.yahoo.com/news/earnings-beat-avient-corporation-just-123537945.html)
+- Feb 16 - [Scientists Reveal "Artificial Leaf" That Turns Carbon Into Sustainable Fuels](https://www.yahoo.com/news/scientists-reveal-artificial-leaf-turns-123025979.html)
+- Feb 16 - [This man waited 2 years, been charged $115k to restore vintage truck for his kid — and the work still isn’t done](https://www.yahoo.com/lifestyle/man-waited-2-years-charged-123000706.html)
+- Feb 16 - [Severe storms leave destructive path across North Georgia](https://www.yahoo.com/news/strong-severe-storms-possible-overnight-114300299.html)
 <!-- feed end -->
 
 ### Onstream
