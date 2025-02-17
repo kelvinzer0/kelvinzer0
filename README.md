@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [7-year-old girl dies five days after three sisters killed in mom’s murder-suicide](https://www.yahoo.com/news/7-old-girl-dies-five-171154426.html)
+- Feb 17 - [Woman shot dead in Valentine’s Day pub attack named by police as hunt for gunman continues](https://www.yahoo.com/news/woman-shot-dead-valentine-day-124310773.html)
+- Feb 17 - [Zelensky: We will not accept a peace deal without Ukraine’s involvement](https://www.yahoo.com/news/zelensky-not-accept-peace-deal-183909894.html)
+- Feb 17 - [Is NIO Inc. (NIO) One of the Best Robinhood Stocks to Buy Under $20?](https://finance.yahoo.com/news/nio-inc-nio-one-best-182527228.html)
+- Feb 17 - [AOC says Trump’s border czar should ‘learn to read’ after she becomes latest Democrat to be threatened by him](https://www.yahoo.com/news/aoc-says-trump-border-czar-215758073.html)
 - Feb 17 - [AI is creating 'drive-through of the future,' Presto CEO says](https://finance.yahoo.com/video/ai-creating-drive-future-presto-170040883.html)
-- Feb 17 - [Far-right extremists arrested after violent attack at Paris migrant association](https://www.yahoo.com/news/far-extremists-arrested-violent-attack-165525197.html)
-- Feb 17 - [This is not the seat you paid for. Here’s what to do if you get downgraded on a flight](https://www.yahoo.com/lifestyle/not-seat-paid-downgraded-flight-154045480.html)
-- Feb 17 - [Dave Ramsey Offers Some Hard Truths About Medicare Every Retiree Should Know](https://finance.yahoo.com/news/dave-ramsey-offers-hard-truths-140027321.html)
 <!-- feed end -->
 
 ### Onstream
