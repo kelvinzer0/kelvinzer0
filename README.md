@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [An Indian court sentences a man to life in prison for raping and murdering an Irish backpacker](https://www.yahoo.com/news/indian-court-sentences-man-life-064412432.html)
-- Feb 17 - [German voters demand change as Europe's biggest economy stalls](https://finance.yahoo.com/news/german-voters-demand-change-europes-060431891.html)
+- Feb 17 - [North Korean leader watches groundbreaking for new apartments on anniversary of father's birth](https://www.yahoo.com/news/north-korean-leader-watches-groundbreaking-062238813.html)
+- Feb 17 - [Ukrainians say civilian-funded drones destroyed 3 high-value Russian air defense systems in a single day](https://www.yahoo.com/news/ukrainians-civilian-funded-drones-destroyed-055602657.html)
+- Feb 17 - [CNN Host Kaitlan Collins Bites Back After Conservatives Flame Her X Post](https://www.yahoo.com/news/cnn-host-kaitlan-collins-bites-051315565.html)
 - Feb 17 - [Trump offers key concessions to Putin ahead of Ukraine peace talks in Saudi Arabia](https://www.yahoo.com/news/trump-offers-key-concessions-putin-050046685.html)
-- Feb 17 - [North Korea's Kim makes rare visit to father's tomb](https://www.yahoo.com/news/north-koreas-kim-makes-rare-014348408.html)
-- Feb 16 - [Rubio spars with Brennan over Vance’s Munich speech](https://www.yahoo.com/news/rubio-spars-brennan-over-vance-225357641.html)
+- Feb 17 - [China's Xi holds rare meeting with business leaders amid slowing economy, US tensions](https://finance.yahoo.com/news/chinas-xi-attends-symposium-private-035116484.html)
 <!-- feed end -->
 
 ### Onstream
