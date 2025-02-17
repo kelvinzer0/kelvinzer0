@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [China's Xi holds rare meet with business leaders amid US tech rivalry](https://finance.yahoo.com/video/chinas-xi-holds-rare-meet-153423170.html)
+- Feb 17 - [Baby 'would have lived' but for hospital infection](https://www.yahoo.com/news/inquiry-begins-hospital-death-baby-112809559.html)
+- Feb 17 - [Woman shot dead in Valentine’s Day pub attack named by police as hunt for gunman continues](https://www.yahoo.com/news/woman-shot-dead-valentine-day-124310773.html)
 - Feb 17 - [Pope Francis’ hospital treatment changed to fight ‘complex clinical’ condition, Vatican says](https://www.yahoo.com/news/pope-francis-hospital-treatment-changed-132350674.html)
-- Feb 17 - [Broad Arrow Offers Exquisite 1958 BMW 507 Series II Roadster](https://autos.yahoo.com/broad-arrow-offers-exquisite-1958-143000726.html)
-- Feb 17 - [Germany is once more a threat to European security](https://www.yahoo.com/news/germany-once-more-threat-european-142251822.html)
-- Feb 17 - [Health group 'truly sorry' about misconduct doctor](https://www.yahoo.com/news/health-group-truly-sorry-misconduct-142111391.html)
-- Feb 17 - [Dallas Mavericks assistant coach assaulted girlfriend after she read his texts, police say](https://www.yahoo.com/news/dallas-mavericks-assistant-coach-assaulted-131042357.html)
+- Feb 17 - [As a personal finance expert, this is the worst savings advice I see on social media](https://finance.yahoo.com/personal-finance/banking/article/worst-savings-advice-social-media-140013856.html)
 <!-- feed end -->
 
 ### Onstream
