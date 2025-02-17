@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [FTSE 100 LIVE: London markets tick up as Starmer 'ready' to send peacekeeping troops to Ukraine](https://uk.finance.yahoo.com/news/ftse-100-london-markets-starmer-peacekeeping-troops-ukraine-090427789.html)
-- Feb 17 - [Marjorie Taylor Greene Warned What’s ‘A Bit Toxic’ And You Know What Happened Next](https://www.yahoo.com/news/marjorie-taylor-greene-warned-bit-082836334.html)
-- Feb 17 - [Ukrainians say civilian-funded drones destroyed 3 high-value Russian air defense systems in a single day](https://www.yahoo.com/news/ukrainians-civilian-funded-drones-destroyed-055602657.html)
-- Feb 17 - [Trump offers key concessions to Putin ahead of Ukraine peace talks in Saudi Arabia](https://www.yahoo.com/news/trump-offers-key-concessions-putin-050046685.html)
-- Feb 17 - [China urges US to 'correct its mistakes' after State Department website removes Taiwan independence reference](https://www.yahoo.com/news/us-says-website-routine-removal-002416346.html)
+- Feb 17 - [In NC Supreme Court race, Griffin’s bid to toss ballots faces setback, intends to appeal](https://www.yahoo.com/news/nc-supreme-court-race-griffin-100251206.html)
+- Feb 17 - [What are the healthiest breads to eat? The benefits of sourdough, sprouted grain and more.](https://www.yahoo.com/lifestyle/what-are-the-healthiest-breads-to-eat-the-benefits-of-sourdough-sprouted-grain-and-more-100047332.html)
+- Feb 17 - [America is obsessed with its ancestry – and Scotland is cashing in](https://www.yahoo.com/lifestyle/america-obsessed-ancestry-scotland-cashing-100000039.html)
+- Feb 17 - [Man who raped and murdered Irish backpacker found dead in Goa is jailed for life](https://www.yahoo.com/news/man-raped-murdered-irish-backpacker-092725886.html)
+- Feb 17 - [Aubrey Plaza Makes Public Return on SNL 50 After Husband’s Death](https://www.yahoo.com/entertainment/aubrey-plaza-makes-public-return-093202692.html)
 <!-- feed end -->
 
 ### Onstream
