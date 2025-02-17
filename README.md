@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [Detroit neighborhood is submerged after water main bursts](https://www.yahoo.com/news/detroit-neighborhood-submerged-water-main-192549514.html)
-- Feb 17 - [Woman shot dead in Valentine’s Day pub attack named by police as hunt for gunman continues](https://www.yahoo.com/news/woman-shot-dead-valentine-day-124310773.html)
-- Feb 17 - [Your Silver Dollars Could Make You Rich — These 8 Are Worth Millions](https://finance.yahoo.com/news/silver-dollars-could-rich-8-130120797.html)
+- Feb 17 - [12 Signs Cracker Barrel Isn't Doing So Well](https://finance.yahoo.com/news/12-signs-cracker-barrel-isnt-204049315.html)
+- Feb 17 - [Jewish man mistakes two Israeli tourists for Palestinians and opens fire on them in Miami](https://www.yahoo.com/news/jewish-man-mistakes-two-israeli-201547793.html)
+- Feb 17 - [Police arrest apparent leader of cultlike 'Zizian' group linked to multiple killings in the US](https://www.yahoo.com/news/police-arrest-apparent-leader-cultlike-200100656.html)
 - Feb 17 - [Wall collapse at Wilmington parking garage causes 'significant' damage to 4 buildings](https://www.yahoo.com/news/wall-collapse-wilmington-parking-garage-183344186.html)
-- Feb 17 - [AI is creating 'drive-through of the future,' Presto CEO says](https://finance.yahoo.com/video/ai-creating-drive-future-presto-170040883.html)
+- Feb 17 - [Up to 12 inches of snow expected near St. Louis; where will it fall?](https://www.yahoo.com/news/12-inches-snow-expected-near-183312534.html)
 <!-- feed end -->
 
 ### Onstream
