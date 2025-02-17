@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [Detroit neighborhood is submerged after water main bursts](https://www.yahoo.com/news/detroit-neighborhood-submerged-water-main-192549514.html)
 - Feb 17 - [Woman shot dead in Valentine’s Day pub attack named by police as hunt for gunman continues](https://www.yahoo.com/news/woman-shot-dead-valentine-day-124310773.html)
-- Feb 17 - [Zelensky: We will not accept a peace deal without Ukraine’s involvement](https://www.yahoo.com/news/zelensky-not-accept-peace-deal-183909894.html)
-- Feb 17 - [Is NIO Inc. (NIO) One of the Best Robinhood Stocks to Buy Under $20?](https://finance.yahoo.com/news/nio-inc-nio-one-best-182527228.html)
-- Feb 17 - [AOC says Trump’s border czar should ‘learn to read’ after she becomes latest Democrat to be threatened by him](https://www.yahoo.com/news/aoc-says-trump-border-czar-215758073.html)
+- Feb 17 - [Your Silver Dollars Could Make You Rich — These 8 Are Worth Millions](https://finance.yahoo.com/news/silver-dollars-could-rich-8-130120797.html)
+- Feb 17 - [Wall collapse at Wilmington parking garage causes 'significant' damage to 4 buildings](https://www.yahoo.com/news/wall-collapse-wilmington-parking-garage-183344186.html)
 - Feb 17 - [AI is creating 'drive-through of the future,' Presto CEO says](https://finance.yahoo.com/video/ai-creating-drive-future-presto-170040883.html)
 <!-- feed end -->
 
