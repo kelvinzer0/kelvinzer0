@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [In NC Supreme Court race, Griffin’s bid to toss ballots faces setback, intends to appeal](https://www.yahoo.com/news/nc-supreme-court-race-griffin-100251206.html)
-- Feb 17 - [What are the healthiest breads to eat? The benefits of sourdough, sprouted grain and more.](https://www.yahoo.com/lifestyle/what-are-the-healthiest-breads-to-eat-the-benefits-of-sourdough-sprouted-grain-and-more-100047332.html)
-- Feb 17 - [America is obsessed with its ancestry – and Scotland is cashing in](https://www.yahoo.com/lifestyle/america-obsessed-ancestry-scotland-cashing-100000039.html)
-- Feb 17 - [Man who raped and murdered Irish backpacker found dead in Goa is jailed for life](https://www.yahoo.com/news/man-raped-murdered-irish-backpacker-092725886.html)
-- Feb 17 - [Aubrey Plaza Makes Public Return on SNL 50 After Husband’s Death](https://www.yahoo.com/entertainment/aubrey-plaza-makes-public-return-093202692.html)
+- Feb 17 - [HanesBrands CEO to depart as Q4 2024 sales beat expectations](https://finance.yahoo.com/news/hanesbrands-ceo-depart-q4-2024-121834964.html)
+- Feb 17 - [A Once-in-a-Lifetime Buying Opportunity: This Quantum Computing Stock Looks Primed to Skyrocket](https://finance.yahoo.com/news/once-lifetime-buying-opportunity-quantum-121500731.html)
+- Feb 17 - [US House Speaker Johnson: West will only survive if countries prioritise national interests](https://www.yahoo.com/news/us-house-speaker-johnson-west-114401097.html)
+- Feb 17 - [Paleontologists uncover a nearly complete skull of a 30 million-year-old apex carnivore in Egypt](https://www.yahoo.com/news/paleontologists-uncover-nearly-complete-skull-114134699.html)
+- Feb 17 - [Lava Flows Down Snowy Mount Etna](https://www.yahoo.com/news/lava-flows-down-snowy-mount-112848973.html)
 <!-- feed end -->
 
 ### Onstream
