@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [North Korea's Kim makes rare visit to father's tomb](https://www.yahoo.com/news/north-koreas-kim-makes-rare-014348408.html)
+- Feb 17 - [Body matching missing University of Colorado Boulder student Megan Trussell recovered](https://www.yahoo.com/news/body-matching-missing-university-colorado-012412903.html)
 - Feb 16 - [Investigators find 3rd victim from fiery Wyoming highway tunnel crash](https://www.yahoo.com/news/investigators-3rd-victim-fiery-wyoming-222423562.html)
 - Feb 16 - [Mavericks suspend unidentified employee after arrest of assistant coach Darrell Armstrong](https://sports.yahoo.com/mavericks-suspend-unidentified-employee-amid-200338851.html)
-- Feb 16 - [Donald Trump Just Shared A Very Ominous Post, And People Are Calling It "One Of The Worst Statements Ever Made By A Sitting US President"](https://www.yahoo.com/news/ominous-donald-trump-post-seemingly-174725764.html)
-- Feb 16 - [Row as nude models told to put clothes on at life-drawing class](https://www.yahoo.com/news/row-nude-models-told-put-174640673.html)
-- Feb 16 - [Modesto man who beat young robbery victim with metal bat in Turlock park guilty of murder](https://www.yahoo.com/news/modesto-man-beat-young-robbery-173721129.html)
+- Feb 16 - [Deadly flash flooding event unfolding across Kentucky, Tennessee](https://www.yahoo.com/news/deadly-flash-flooding-event-unfolding-181716522.html)
 <!-- feed end -->
 
 ### Onstream
