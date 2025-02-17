@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [Photos show damage done to USS Harry Truman after collision in Egypt](https://www.yahoo.com/news/photos-show-damage-done-uss-125242194.html)
-- Feb 17 - [Tearful homecoming for one Thai national held hostage by Hamas](https://www.yahoo.com/news/tearful-homecoming-one-thai-national-123401172.html)
-- Feb 17 - [US House Speaker Johnson: West will only survive if countries prioritise national interests](https://www.yahoo.com/news/us-house-speaker-johnson-west-114401097.html)
-- Feb 17 - [Trump offers key concessions to Putin ahead of Ukraine peace talks in Saudi Arabia](https://www.yahoo.com/news/trump-offers-key-concessions-putin-050046685.html)
-- Feb 17 - [US Supreme Court makes landmark decision that could allow states to hold major industry accountable: 'The stakes could not be higher'](https://www.yahoo.com/news/us-supreme-court-makes-landmark-103014266.html)
+- Feb 17 - [Suze Orman: Here’s How Much Cash You Should Have Available When You Retire](https://finance.yahoo.com/news/suze-orman-much-cash-available-130059050.html)
+- Feb 17 - [Tragic Cause of Death for Netflix Star Who Was Just 24](https://www.yahoo.com/news/tragic-cause-death-netflix-star-132236023.html)
+- Feb 17 - [An apex carnivore was ‘king of the ancient Egyptian forest’ then mysteriously went extinct. A fossil could offer clues](https://www.yahoo.com/news/paleontologists-uncover-nearly-complete-skull-114134699.html)
+- Feb 17 - [Dai-ichi Life Holdings Inc (DLICY) Q3 2025 Earnings Call Highlights: Surpassing Profit ...](https://finance.yahoo.com/news/dai-ichi-life-holdings-inc-130018218.html)
+- Feb 17 - [Mike Pence emerges as one of the few Republicans willing to challenge Trump 2.0](https://www.yahoo.com/news/mike-pence-emerges-one-few-125259479.html)
 <!-- feed end -->
 
 ### Onstream
