@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [Suze Orman: Here’s How Much Cash You Should Have Available When You Retire](https://finance.yahoo.com/news/suze-orman-much-cash-available-130059050.html)
-- Feb 17 - [Tragic Cause of Death for Netflix Star Who Was Just 24](https://www.yahoo.com/news/tragic-cause-death-netflix-star-132236023.html)
-- Feb 17 - [An apex carnivore was ‘king of the ancient Egyptian forest’ then mysteriously went extinct. A fossil could offer clues](https://www.yahoo.com/news/paleontologists-uncover-nearly-complete-skull-114134699.html)
-- Feb 17 - [Dai-ichi Life Holdings Inc (DLICY) Q3 2025 Earnings Call Highlights: Surpassing Profit ...](https://finance.yahoo.com/news/dai-ichi-life-holdings-inc-130018218.html)
-- Feb 17 - [Mike Pence emerges as one of the few Republicans willing to challenge Trump 2.0](https://www.yahoo.com/news/mike-pence-emerges-one-few-125259479.html)
+- Feb 17 - [Pope Francis’ hospital treatment changed to fight ‘complex clinical’ condition, Vatican says](https://www.yahoo.com/news/pope-francis-hospital-treatment-changed-132350674.html)
+- Feb 17 - [Broad Arrow Offers Exquisite 1958 BMW 507 Series II Roadster](https://autos.yahoo.com/broad-arrow-offers-exquisite-1958-143000726.html)
+- Feb 17 - [Germany is once more a threat to European security](https://www.yahoo.com/news/germany-once-more-threat-european-142251822.html)
+- Feb 17 - [Health group 'truly sorry' about misconduct doctor](https://www.yahoo.com/news/health-group-truly-sorry-misconduct-142111391.html)
+- Feb 17 - [Dallas Mavericks assistant coach assaulted girlfriend after she read his texts, police say](https://www.yahoo.com/news/dallas-mavericks-assistant-coach-assaulted-131042357.html)
 <!-- feed end -->
 
 ### Onstream
