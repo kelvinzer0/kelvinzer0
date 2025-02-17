@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [North Korea's Kim makes rare visit to father's tomb](https://www.yahoo.com/news/north-koreas-kim-makes-rare-014348408.html)
+- Feb 17 - [Very windy and colder to start this week](https://www.yahoo.com/news/valentine-day-feature-lovely-weather-102154140.html)
 - Feb 16 - [Rubio spars with Brennan over Vance’s Munich speech](https://www.yahoo.com/news/rubio-spars-brennan-over-vance-225357641.html)
 - Feb 16 - [Investigators find 3rd victim from fiery Wyoming highway tunnel crash](https://www.yahoo.com/news/investigators-3rd-victim-fiery-wyoming-222423562.html)
 - Feb 16 - [Large fight breaks out in San Jose, officers attacked](https://www.yahoo.com/news/large-fight-breaks-san-jose-220844600.html)
-- Feb 16 - [Mavericks suspend unidentified employee after arrest of assistant coach Darrell Armstrong](https://sports.yahoo.com/mavericks-suspend-unidentified-employee-amid-200338851.html)
+- Feb 16 - [72-year-old man dies in overturned vehicle crash on interstate 64 in Virginia Beach](https://www.yahoo.com/news/72-old-man-dies-overturned-190746784.html)
 <!-- feed end -->
 
 ### Onstream
