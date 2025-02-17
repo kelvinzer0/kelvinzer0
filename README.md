@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [HanesBrands CEO to depart as Q4 2024 sales beat expectations](https://finance.yahoo.com/news/hanesbrands-ceo-depart-q4-2024-121834964.html)
-- Feb 17 - [A Once-in-a-Lifetime Buying Opportunity: This Quantum Computing Stock Looks Primed to Skyrocket](https://finance.yahoo.com/news/once-lifetime-buying-opportunity-quantum-121500731.html)
+- Feb 17 - [Photos show damage done to USS Harry Truman after collision in Egypt](https://www.yahoo.com/news/photos-show-damage-done-uss-125242194.html)
+- Feb 17 - [Tearful homecoming for one Thai national held hostage by Hamas](https://www.yahoo.com/news/tearful-homecoming-one-thai-national-123401172.html)
 - Feb 17 - [US House Speaker Johnson: West will only survive if countries prioritise national interests](https://www.yahoo.com/news/us-house-speaker-johnson-west-114401097.html)
-- Feb 17 - [Paleontologists uncover a nearly complete skull of a 30 million-year-old apex carnivore in Egypt](https://www.yahoo.com/news/paleontologists-uncover-nearly-complete-skull-114134699.html)
-- Feb 17 - [Lava Flows Down Snowy Mount Etna](https://www.yahoo.com/news/lava-flows-down-snowy-mount-112848973.html)
+- Feb 17 - [Trump offers key concessions to Putin ahead of Ukraine peace talks in Saudi Arabia](https://www.yahoo.com/news/trump-offers-key-concessions-putin-050046685.html)
+- Feb 17 - [US Supreme Court makes landmark decision that could allow states to hold major industry accountable: 'The stakes could not be higher'](https://www.yahoo.com/news/us-supreme-court-makes-landmark-103014266.html)
 <!-- feed end -->
 
 ### Onstream
