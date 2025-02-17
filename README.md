@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [North Korean leader watches groundbreaking for new apartments on anniversary of father's birth](https://www.yahoo.com/news/north-korean-leader-watches-groundbreaking-062238813.html)
-- Feb 17 - [Ukrainians say civilian-funded drones destroyed 3 high-value Russian air defense systems in a single day](https://www.yahoo.com/news/ukrainians-civilian-funded-drones-destroyed-055602657.html)
+- Feb 17 - [European leaders seek to prevent rewarding Russian aggression, Spain says](https://www.yahoo.com/news/european-leaders-seek-prevent-rewarding-084927195.html)
+- Feb 17 - [Downloads of DeepSeek's artificial intelligence apps paused in South Korea over privacy concerns](https://www.yahoo.com/news/downloads-deepseeks-artificial-intelligence-apps-064344870.html)
 - Feb 17 - [CNN Host Kaitlan Collins Bites Back After Conservatives Flame Her X Post](https://www.yahoo.com/news/cnn-host-kaitlan-collins-bites-051315565.html)
 - Feb 17 - [Trump offers key concessions to Putin ahead of Ukraine peace talks in Saudi Arabia](https://www.yahoo.com/news/trump-offers-key-concessions-putin-050046685.html)
 - Feb 17 - [China's Xi holds rare meeting with business leaders amid slowing economy, US tensions](https://finance.yahoo.com/news/chinas-xi-attends-symposium-private-035116484.html)
