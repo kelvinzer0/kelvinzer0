@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [Delta plane flips upside down after crash landing in Toronto](https://www.yahoo.com/news/plane-reportedly-crashes-while-arriving-202716109.html)
-- Feb 17 - [Maddow Blog | Pete Hegseth’s tenure at the Pentagon goes from bad to worse](https://www.yahoo.com/news/maddow-blog-pete-hegseth-tenure-211824583.html)
+- Feb 17 - [Local voters gather to protest lawsuit to toss out votes in N.C. Supreme Court race](https://www.yahoo.com/news/local-voters-gather-protest-lawsuit-223828855.html)
+- Feb 17 - [Pete Hegseth’s tenure at the Pentagon goes from bad to worse](https://www.yahoo.com/news/maddow-blog-pete-hegseth-tenure-211824583.html)
+- Feb 17 - [Apartment Building Partially Collapses in Eastern Massachusetts](https://www.yahoo.com/news/apartment-building-partially-collapses-eastern-223317475.html)
+- Feb 17 - [Scientists Just Found The Perfect Disguise to Sneak Into a Termite Colony](https://www.yahoo.com/news/scientists-just-found-perfect-disguise-220058725.html)
 - Feb 17 - [Senior officer admits Army ‘should have done more’ before teenage soldier was found hanged](https://www.yahoo.com/news/senior-officer-admits-army-done-210525816.html)
-- Feb 17 - [Delta Airlines plane flips on landing in Toronto and a badly hurt child is among 8 casualties](https://www.yahoo.com/news/toronto-airport-confirms-incident-occurred-204541473.html)
-- Feb 17 - [Delta plane flips on landing at Toronto airport, injuring 8](https://www.yahoo.com/news/crews-responding-plane-crash-toronto-200224842.html)
 <!-- feed end -->
 
 ### Onstream
