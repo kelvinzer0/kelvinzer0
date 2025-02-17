@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 16 - [Investigators find 3rd victim from fiery Wyoming highway tunnel crash](https://www.yahoo.com/news/investigators-3rd-victim-fiery-wyoming-222423562.html)
-- Feb 16 - [Florida Mall shooting leaves one injured, according to Orange County Sheriff’s](https://www.yahoo.com/news/florida-mall-shooting-leaves-20-212218153.html)
 - Feb 16 - [Here are 5 big things that disappear after you retire in America — are you prepared to lose them all?](https://finance.yahoo.com/news/5-big-things-disappear-retire-210400972.html)
-- Feb 16 - [‘Dinnertime burglaries’ on the rise in affluent Southern California community](https://www.yahoo.com/news/dinnertime-burglaries-rise-affluent-southern-195108324.html)
-- Feb 16 - [72-year-old man dies in overturned vehicle crash on interstate 64 in Virginia Beach](https://www.yahoo.com/news/72-old-man-dies-overturned-190746784.html)
+- Feb 16 - [Mavericks suspend unidentified employee after arrest of assistant coach Darrell Armstrong](https://sports.yahoo.com/mavericks-suspend-unidentified-employee-amid-200338851.html)
+- Feb 16 - [Hezbollah chief says Israel must fully withdraw from Lebanon by February 18](https://www.yahoo.com/news/hezbollah-chief-says-israel-must-182213873.html)
+- Feb 16 - [Deadly flash flooding event unfolding across Kentucky, Tennessee](https://www.yahoo.com/news/deadly-flash-flooding-event-unfolding-181716522.html)
 <!-- feed end -->
 
 ### Onstream
