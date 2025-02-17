@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [7-year-old girl dies five days after three sisters killed in mom’s murder-suicide](https://www.yahoo.com/news/7-old-girl-dies-five-171154426.html)
 - Feb 17 - [AI is creating 'drive-through of the future,' Presto CEO says](https://finance.yahoo.com/video/ai-creating-drive-future-presto-170040883.html)
-- Feb 17 - [Pope Francis’ hospital treatment changed to fight ‘complex clinical’ condition, Vatican says](https://www.yahoo.com/news/pope-francis-hospital-treatment-changed-132350674.html)
-- Feb 17 - [Elon Musk Threatens to Imprison Entire News Agency](https://www.yahoo.com/news/elon-musk-threatens-imprison-entire-154619494.html)
+- Feb 17 - [Far-right extremists arrested after violent attack at Paris migrant association](https://www.yahoo.com/news/far-extremists-arrested-violent-attack-165525197.html)
 - Feb 17 - [This is not the seat you paid for. Here’s what to do if you get downgraded on a flight](https://www.yahoo.com/lifestyle/not-seat-paid-downgraded-flight-154045480.html)
-- Feb 17 - [Palestinian detainee says he was tortured in Israeli detention centre](https://www.yahoo.com/news/palestinian-detainee-says-tortured-israeli-143407781.html)
+- Feb 17 - [Dave Ramsey Offers Some Hard Truths About Medicare Every Retiree Should Know](https://finance.yahoo.com/news/dave-ramsey-offers-hard-truths-140027321.html)
 <!-- feed end -->
 
 ### Onstream
