@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 18 - [Bull shark bites off both hands of woman on beach ‘after she tried to take its picture’](https://www.yahoo.com/news/bull-shark-bites-off-both-123220060.html)
 - Feb 18 - [Videos show Delta plane from Minneapolis crash-landing in Toronto](https://www.yahoo.com/news/videos-show-plane-minneapolis-crash-135300790.html)
 - Feb 18 - [Trump will sign new executive orders while his first joint TV interview with Musk airs in prime time](https://www.yahoo.com/news/trump-sign-executive-orders-while-161726692.html)
-- Feb 18 - [Ford Ordered To Pay Family $2.5 Billion For Super Duty Rollover Fatality](https://autos.yahoo.com/ford-ordered-pay-family-2-153000340.html)
+- Feb 18 - [Why Intel could be worth more than $200 billion if it breaks up](https://finance.yahoo.com/news/why-intel-could-be-worth-more-than-200-billion-if-it-breaks-up-154736492.html)
 <!-- feed end -->
 
 ### Onstream
