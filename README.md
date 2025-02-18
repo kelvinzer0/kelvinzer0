@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [Hedge Funds Help Drive Record Growth in Dubai Financial District](https://finance.yahoo.com/news/hedge-funds-help-drive-record-063337517.html)
-- Feb 18 - [Londoners should be able to live and work in EU countries, Sadiq Khan says](https://www.yahoo.com/news/londoners-able-live-eu-countries-060000000.html)
+- Feb 18 - [Stephen Colbert Salutes The 1 Unexpected Company Defying Trump's 'Stupid' Obsession](https://www.yahoo.com/entertainment/stephen-colbert-salutes-1-unexpected-063321964.html)
 - Feb 18 - ['Way Sooner Than You Think': James Carville Names Key Date Trump May Be Dreading](https://www.yahoo.com/news/way-sooner-think-james-carville-045925605.html)
 - Feb 18 - [NYU College Republicans Ditch President in Bid for Barron](https://www.yahoo.com/news/nyu-college-republicans-ditch-president-042142981.html)
 - Feb 18 - [Columbine shooting survivor Anne Marie Hochhalter dies](https://www.yahoo.com/news/columbine-shooting-survivor-anne-marie-022644010.html)
+- Feb 18 - [Honda ready to revive takeover talks if Nissan CEO Uchida leaves, FT reports](https://finance.yahoo.com/news/honda-ready-revive-takeover-talks-005030781.html)
 <!-- feed end -->
 
 ### Onstream
