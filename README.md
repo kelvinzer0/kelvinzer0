@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [Local elections and national opinions: Letters](https://www.yahoo.com/news/local-elections-national-opinions-letters-101311689.html)
+- Feb 18 - ['Hanging like bats': Toronto plane crash survivor speaks out after aircraft flips on runway](https://www.yahoo.com/news/hanging-bats-toronto-plane-crash-120600755.html)
+- Feb 18 - [Trump and allies celebrated court orders against Biden they now claim are ‘tyrannical’](https://www.yahoo.com/news/trump-allies-celebrated-court-orders-100048309.html)
 - Feb 18 - [Kremlin says joining the EU is Ukraine's sovereign right](https://www.yahoo.com/news/kremlin-says-joining-eu-ukraines-093756873.html)
+- Feb 18 - [Huawei’s wild tri-fold phone finally breaks out of China, and I’m excited](https://www.yahoo.com/tech/huawei-wild-tri-fold-phone-093139453.html)
 - Feb 18 - [Dying to serve: Dozens of recruits have died nationwide while training to become police officers](https://www.yahoo.com/news/dying-serve-dozens-recruits-died-090504998.html)
-- Feb 18 - [Leader of cultlike group linked to multiple killings is arrested in Maryland](https://www.yahoo.com/news/leader-cultlike-group-linked-multiple-074420178.html)
-- Feb 18 - [Stephen Colbert Salutes The 1 Unexpected Company Defying Trump's 'Stupid' Obsession](https://www.yahoo.com/entertainment/stephen-colbert-salutes-1-unexpected-063321964.html)
 <!-- feed end -->
 
 ### Onstream
