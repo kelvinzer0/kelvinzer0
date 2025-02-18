@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [UN nuclear chief to view soil removed from Fukushima](https://www.yahoo.com/news/un-nuclear-chief-view-soil-013813502.html)
-- Feb 17 - [Southwest Airlines is cutting 15% of its workforce in its first-ever mass layoff. Read the CEO's full memo to employees.](https://finance.yahoo.com/news/southwest-airlines-cutting-15-workforce-234617333.html)
+- Feb 18 - [Honda ready to revive takeover talks if Nissan CEO Uchida leaves, FT reports](https://finance.yahoo.com/news/honda-ready-revive-takeover-talks-005030781.html)
 - Feb 17 - [Royals owner John Sherman gives update on new stadium](https://www.yahoo.com/news/got-deal-buttoned-royals-owner-232002643.html)
 - Feb 17 - [Woman arrested on suspicion of DUI in deadly Anaheim crash](https://www.yahoo.com/news/woman-arrested-suspicion-dui-deadly-230821939.html)
 - Feb 17 - [Maddow Blog | Pete Hegseth’s tenure at the Pentagon goes from bad to worse](https://www.yahoo.com/news/maddow-blog-pete-hegseth-tenure-211824583.html)
+- Feb 17 - [WSJ asks Kennedy to cast aside ‘antivax hooey’ amid Texas measles outbreak](https://www.yahoo.com/news/wsj-asks-kennedy-cast-aside-215428276.html)
 <!-- feed end -->
 
 ### Onstream
