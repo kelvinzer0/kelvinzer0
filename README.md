@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [Hamas says it will release bodies of four hostages, including Bibas children, on Thursday and six living hostages on Saturday](https://www.yahoo.com/news/hamas-says-release-bodies-four-143123671.html)
+- Feb 18 - [Bull shark bites off both hands of woman on beach ‘after she tried to take its picture’](https://www.yahoo.com/news/bull-shark-bites-off-both-123220060.html)
+- Feb 18 - [Videos show Delta plane from Minneapolis crash-landing in Toronto](https://www.yahoo.com/news/videos-show-plane-minneapolis-crash-135300790.html)
 - Feb 18 - [Trump will sign new executive orders while his first joint TV interview with Musk airs in prime time](https://www.yahoo.com/news/trump-sign-executive-orders-while-161726692.html)
-- Feb 18 - [Video shows Toronto plane's hard landing before flipping](https://www.yahoo.com/news/video-shows-toronto-planes-hard-160306785.html)
-- Feb 18 - [The worrying rise of ‘danger tourists’ ignoring Foreign Office advice](https://www.yahoo.com/lifestyle/worrying-rise-danger-tourists-ignoring-160000373.html)
-- Feb 18 - [Is a nor’easter headed for the East Coast this week?](https://www.yahoo.com/news/nor-easter-headed-east-coast-175339706.html)
-- Feb 18 - [Teenager arrested after suspected ‘chilli spray’ attack at Costco](https://www.yahoo.com/news/teenager-arrested-suspected-chilli-spray-154139846.html)
+- Feb 18 - [President of NYU College Republicans resigns after calling Barron Trump ‘an oddity’](https://www.yahoo.com/news/president-nyu-college-republicans-resigns-144916659.html)
 <!-- feed end -->
 
 ### Onstream
