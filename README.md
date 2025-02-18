@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [Apple Partners With Alibaba, Eyes Baidu for AI Expansion in China](https://finance.yahoo.com/news/apple-partners-alibaba-eyes-baidu-150006091.html)
-- Feb 18 - [Grab your raincoats: A much needed pattern flip is coming to B.C.](https://www.yahoo.com/news/grab-raincoats-much-needed-pattern-144452610.html)
-- Feb 18 - [China's electric vehicles are around 3-5 years ahead, BYD CEO says](https://finance.yahoo.com/news/chinas-electric-vehicles-around-3-143000398.html)
-- Feb 18 - [Hamas says it will free 6 living hostages and hand over four bodies, accelerating Gaza releases](https://www.yahoo.com/news/hamas-says-free-6-living-132123159.html)
-- Feb 18 - [Exclusive-Chinese lithium company halts tech exports as trade tensions build](https://finance.yahoo.com/news/exclusive-chinese-lithium-company-halts-131455070.html)
+- Feb 18 - [Alibaba stock rises after Jack Ma met with Xi Jinping](https://finance.yahoo.com/video/alibaba-stock-rises-jack-ma-160832334.html)
+- Feb 18 - [Is a nor’easter headed for the East Coast this week?](https://www.yahoo.com/news/nor-easter-headed-east-coast-175339706.html)
+- Feb 18 - [Teenager arrested after suspected ‘chilli spray’ attack at Costco](https://www.yahoo.com/news/teenager-arrested-suspected-chilli-spray-154139846.html)
+- Feb 18 - [Freight train carrying printer paper derails in Massachusetts town](https://www.yahoo.com/news/train-carrying-printer-paper-derails-131324479.html)
+- Feb 18 - [EU might impose further regulation on WhatsApp](https://www.yahoo.com/tech/eu-might-impose-further-regulation-on-whatsapp-152832935.html)
 <!-- feed end -->
 
 ### Onstream
