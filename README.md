@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - ['Way Sooner Than You Think': James Carville Names Key Date Trump May Be Dreading](https://www.yahoo.com/news/way-sooner-think-james-carville-045925605.html)
 - Feb 18 - [NYU College Republicans Ditch President in Bid for Barron](https://www.yahoo.com/news/nyu-college-republicans-ditch-president-042142981.html)
 - Feb 18 - [Honda ready to revive takeover talks if Nissan CEO Uchida leaves, FT reports](https://finance.yahoo.com/news/honda-ready-revive-takeover-talks-005030781.html)
-- Feb 18 - [DOGE says it found nearly untraceable budget line item responsible for $4.7T in payments](https://www.yahoo.com/news/doge-says-found-nearly-untraceable-001435971.html)
-- Feb 17 - [Norfolk marks 45 years since circus blizzard, urges residents to help neighbors](https://www.yahoo.com/news/norfolk-marks-45-years-since-232933076.html)
 - Feb 17 - [Royals owner John Sherman gives update on new stadium](https://www.yahoo.com/news/got-deal-buttoned-royals-owner-232002643.html)
+- Feb 17 - [Woman arrested on suspicion of DUI in deadly Anaheim crash](https://www.yahoo.com/news/woman-arrested-suspicion-dui-deadly-230821939.html)
 <!-- feed end -->
 
 ### Onstream
