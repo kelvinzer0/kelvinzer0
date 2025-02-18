@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [Local elections and national opinions: Letters](https://www.yahoo.com/news/local-elections-national-opinions-letters-101311689.html)
 - Feb 18 - [Kremlin says joining the EU is Ukraine's sovereign right](https://www.yahoo.com/news/kremlin-says-joining-eu-ukraines-093756873.html)
-- Feb 18 - [Tim Cook Drops Hint on iPhone SE's Launch for Tomorrow](https://www.yahoo.com/tech/iphone-se-incoming-apples-tim-162500687.html)
-- Feb 18 - [Thousands of Indian investors lose $100 million in Ponzi scheme, police say](https://finance.yahoo.com/news/thousands-indian-investors-lose-100-070815365.html)
+- Feb 18 - [Dying to serve: Dozens of recruits have died nationwide while training to become police officers](https://www.yahoo.com/news/dying-serve-dozens-recruits-died-090504998.html)
+- Feb 18 - [Leader of cultlike group linked to multiple killings is arrested in Maryland](https://www.yahoo.com/news/leader-cultlike-group-linked-multiple-074420178.html)
 - Feb 18 - [Stephen Colbert Salutes The 1 Unexpected Company Defying Trump's 'Stupid' Obsession](https://www.yahoo.com/entertainment/stephen-colbert-salutes-1-unexpected-063321964.html)
-- Feb 18 - [Kylie Kelce says there are 3 things a man should do for his pregnant wife](https://www.yahoo.com/lifestyle/kylie-kelce-says-3-things-055447747.html)
 <!-- feed end -->
 
 ### Onstream
