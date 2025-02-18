@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [Hamas says it will release bodies of four hostages, including Bibas children, on Thursday and six living hostages on Saturday](https://www.yahoo.com/news/hamas-says-release-bodies-four-143123671.html)
-- Feb 18 - [Bull shark bites off both hands of woman on beach ‘after she tried to take its picture’](https://www.yahoo.com/news/bull-shark-bites-off-both-123220060.html)
-- Feb 18 - [Videos show Delta plane from Minneapolis crash-landing in Toronto](https://www.yahoo.com/news/videos-show-plane-minneapolis-crash-135300790.html)
-- Feb 18 - [Trump will sign new executive orders while his first joint TV interview with Musk airs in prime time](https://www.yahoo.com/news/trump-sign-executive-orders-while-161726692.html)
-- Feb 18 - [Why Intel could be worth more than $200 billion if it breaks up](https://finance.yahoo.com/news/why-intel-could-be-worth-more-than-200-billion-if-it-breaks-up-154736492.html)
+- Feb 18 - [J&J begins battle over $10 billion baby powder settlement](https://finance.yahoo.com/video/j-j-begins-battle-over-214700970.html)
+- Feb 18 - [Palantir Jumped Today -- Is the Red-Hot Artificial Intelligence (AI) Stock Still a Buy?](https://finance.yahoo.com/news/palantir-jumped-today-red-hot-214106205.html)
+- Feb 18 - [Warren Buffett's Favorite Energy Stock Posts Surprise Profit Growth Amid Debt Reduction Focus](https://www.investors.com/news/warren-buffett-occidental-petroleum-q4-earnings/?src=A00220&yptr=yahoo)
+- Feb 18 - [Meta's 20-day winning streak ends](https://finance.yahoo.com/video/metas-20-day-winning-streak-212441326.html)
+- Feb 18 - [A Post By A MAGA Supporter Who Said They Were Laid Off Because Of Trump's Cuts Is Going Mega-Viral](https://www.yahoo.com/news/post-maga-supporter-said-were-204356732.html)
 <!-- feed end -->
 
 ### Onstream
