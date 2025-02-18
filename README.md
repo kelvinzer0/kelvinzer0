@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 18 - [Honda ready to revive takeover talks if Nissan CEO Uchida leaves, FT reports](https://finance.yahoo.com/news/honda-ready-revive-takeover-talks-005030781.html)
+- Feb 18 - [DOGE says it found nearly untraceable budget line item responsible for $4.7T in payments](https://www.yahoo.com/news/doge-says-found-nearly-untraceable-001435971.html)
 - Feb 17 - [Royals owner John Sherman gives update on new stadium](https://www.yahoo.com/news/got-deal-buttoned-royals-owner-232002643.html)
 - Feb 17 - [Woman arrested on suspicion of DUI in deadly Anaheim crash](https://www.yahoo.com/news/woman-arrested-suspicion-dui-deadly-230821939.html)
 - Feb 17 - [Maddow Blog | Pete Hegseth’s tenure at the Pentagon goes from bad to worse](https://www.yahoo.com/news/maddow-blog-pete-hegseth-tenure-211824583.html)
-- Feb 17 - [WSJ asks Kennedy to cast aside ‘antivax hooey’ amid Texas measles outbreak](https://www.yahoo.com/news/wsj-asks-kennedy-cast-aside-215428276.html)
 <!-- feed end -->
 
 ### Onstream
