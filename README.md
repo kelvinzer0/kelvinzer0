@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [UN nuclear chief to view soil removed from Fukushima](https://www.yahoo.com/news/un-nuclear-chief-view-soil-013813502.html)
+- Feb 17 - [Southwest Airlines is cutting 15% of its workforce in its first-ever mass layoff. Read the CEO's full memo to employees.](https://finance.yahoo.com/news/southwest-airlines-cutting-15-workforce-234617333.html)
+- Feb 17 - [Royals owner John Sherman gives update on new stadium](https://www.yahoo.com/news/got-deal-buttoned-royals-owner-232002643.html)
+- Feb 17 - [Woman arrested on suspicion of DUI in deadly Anaheim crash](https://www.yahoo.com/news/woman-arrested-suspicion-dui-deadly-230821939.html)
 - Feb 17 - [Maddow Blog | Pete Hegseth’s tenure at the Pentagon goes from bad to worse](https://www.yahoo.com/news/maddow-blog-pete-hegseth-tenure-211824583.html)
-- Feb 17 - [An Iowa college gets a $10 million gift from the estate trust of a famous alum](https://www.yahoo.com/news/iowa-college-gets-10-million-220216692.html)
-- Feb 17 - [Watch live: Delta Air Lines flight crashes at Toronto Pearson Airport](https://www.yahoo.com/news/watch-live-delta-air-lines-213915452.html)
-- Feb 17 - [Senior officer admits Army ‘should have done more’ before teenage soldier was found hanged](https://www.yahoo.com/news/senior-officer-admits-army-done-210525816.html)
-- Feb 17 - [I’m retired with a 401k, but I’m worried about Trump. How do I crashproof money without cashing out and paying tax?](https://finance.yahoo.com/news/m-retired-401k-m-worried-210500487.html)
 <!-- feed end -->
 
 ### Onstream
