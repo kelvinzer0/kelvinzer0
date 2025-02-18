@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 17 - [Local voters gather to protest lawsuit to toss out votes in N.C. Supreme Court race](https://www.yahoo.com/news/local-voters-gather-protest-lawsuit-223828855.html)
-- Feb 17 - [Pete Hegseth’s tenure at the Pentagon goes from bad to worse](https://www.yahoo.com/news/maddow-blog-pete-hegseth-tenure-211824583.html)
-- Feb 17 - [Apartment Building Partially Collapses in Eastern Massachusetts](https://www.yahoo.com/news/apartment-building-partially-collapses-eastern-223317475.html)
-- Feb 17 - [Scientists Just Found The Perfect Disguise to Sneak Into a Termite Colony](https://www.yahoo.com/news/scientists-just-found-perfect-disguise-220058725.html)
+- Feb 17 - [Maddow Blog | Pete Hegseth’s tenure at the Pentagon goes from bad to worse](https://www.yahoo.com/news/maddow-blog-pete-hegseth-tenure-211824583.html)
+- Feb 17 - [An Iowa college gets a $10 million gift from the estate trust of a famous alum](https://www.yahoo.com/news/iowa-college-gets-10-million-220216692.html)
+- Feb 17 - [Watch live: Delta Air Lines flight crashes at Toronto Pearson Airport](https://www.yahoo.com/news/watch-live-delta-air-lines-213915452.html)
 - Feb 17 - [Senior officer admits Army ‘should have done more’ before teenage soldier was found hanged](https://www.yahoo.com/news/senior-officer-admits-army-done-210525816.html)
+- Feb 17 - [I’m retired with a 401k, but I’m worried about Trump. How do I crashproof money without cashing out and paying tax?](https://finance.yahoo.com/news/m-retired-401k-m-worried-210500487.html)
 <!-- feed end -->
 
 ### Onstream
