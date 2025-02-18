@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [J&J begins battle over $10 billion baby powder settlement](https://finance.yahoo.com/video/j-j-begins-battle-over-214700970.html)
-- Feb 18 - [Palantir Jumped Today -- Is the Red-Hot Artificial Intelligence (AI) Stock Still a Buy?](https://finance.yahoo.com/news/palantir-jumped-today-red-hot-214106205.html)
-- Feb 18 - [Warren Buffett's Favorite Energy Stock Posts Surprise Profit Growth Amid Debt Reduction Focus](https://www.investors.com/news/warren-buffett-occidental-petroleum-q4-earnings/?src=A00220&yptr=yahoo)
-- Feb 18 - [Meta's 20-day winning streak ends](https://finance.yahoo.com/video/metas-20-day-winning-streak-212441326.html)
+- Feb 18 - [3.0-magnitude earthquake shakes western Washington, seismologists say. What to know](https://www.yahoo.com/news/3-0-magnitude-earthquake-shakes-211107687.html)
+- Feb 18 - [What Brian Laundrie Allegedly Texted Himself After Gabby Petito Murder](https://www.yahoo.com/entertainment/brian-laundrie-allegedly-texted-himself-210107150.html)
+- Feb 18 - [JPMorgan CEO Jamie Dimon criticizes select DEI spending](https://finance.yahoo.com/video/jpmorgan-ceo-jamie-dimon-criticizes-205524379.html)
 - Feb 18 - [A Post By A MAGA Supporter Who Said They Were Laid Off Because Of Trump's Cuts Is Going Mega-Viral](https://www.yahoo.com/news/post-maga-supporter-said-were-204356732.html)
+- Feb 18 - ['Sell your Teslas, dump your stock' — Tesla protests, Musk's tanking popularity hit EV maker at bad time](https://finance.yahoo.com/news/sell-your-teslas-dump-your-stock--tesla-protests-musks-tanking-popularity-hit-ev-maker-at-bad-time-193044438.html)
 <!-- feed end -->
 
 ### Onstream
