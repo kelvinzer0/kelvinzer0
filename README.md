@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [Crossroads Mall has new owners and redevelopment plans backed by Hobby Lobby](https://www.yahoo.com/news/crossroads-mall-owners-redevelopment-plans-114028906.html)
+- Feb 18 - [Exclusive-Chinese lithium company halts tech exports as trade tensions build](https://finance.yahoo.com/news/exclusive-chinese-lithium-company-halts-131455070.html)
+- Feb 18 - [Trump tariffs are already causing this 1 unfortunate consequence](https://finance.yahoo.com/news/trump-tariffs-are-already-causing-this-1-unfortunate-consequence-131138046.html)
+- Feb 18 - [Bull shark bites off both hands of woman on beach ‘after she tried to take its picture’](https://www.yahoo.com/news/bull-shark-bites-off-both-123220060.html)
+- Feb 18 - [This man pays $1,200/month for his $56k car, has $94k in debt and blames it on a weird ‘dynamic’ with mother-in-law](https://finance.yahoo.com/news/man-pays-1-200-month-123000310.html)
 - Feb 18 - [People Are Sharing The Pain Everyone Underestimates Until They Experience It Themselves, And It Ranges From Physical To Emotional](https://www.yahoo.com/lifestyle/people-sharing-pain-everyone-underestimates-113104317.html)
-- Feb 18 - [Scientists sound the alarm after staggering change in world's oceans creates surprising consequence: 'The only answer'](https://www.yahoo.com/news/scientists-sound-alarm-staggering-change-104555820.html)
-- Feb 18 - [Trump and allies celebrated court orders against Biden they now claim are ‘tyrannical’](https://www.yahoo.com/news/trump-allies-celebrated-court-orders-100048309.html)
-- Feb 18 - [Kremlin says joining the EU is Ukraine's sovereign right](https://www.yahoo.com/news/kremlin-says-joining-eu-ukraines-093756873.html)
 <!-- feed end -->
 
 ### Onstream
