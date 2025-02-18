@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [Alibaba stock rises after Jack Ma met with Xi Jinping](https://finance.yahoo.com/video/alibaba-stock-rises-jack-ma-160832334.html)
+- Feb 18 - [Trump will sign new executive orders while his first joint TV interview with Musk airs in prime time](https://www.yahoo.com/news/trump-sign-executive-orders-while-161726692.html)
+- Feb 18 - [Video shows Toronto plane's hard landing before flipping](https://www.yahoo.com/news/video-shows-toronto-planes-hard-160306785.html)
+- Feb 18 - [The worrying rise of ‘danger tourists’ ignoring Foreign Office advice](https://www.yahoo.com/lifestyle/worrying-rise-danger-tourists-ignoring-160000373.html)
 - Feb 18 - [Is a nor’easter headed for the East Coast this week?](https://www.yahoo.com/news/nor-easter-headed-east-coast-175339706.html)
 - Feb 18 - [Teenager arrested after suspected ‘chilli spray’ attack at Costco](https://www.yahoo.com/news/teenager-arrested-suspected-chilli-spray-154139846.html)
-- Feb 18 - [Freight train carrying printer paper derails in Massachusetts town](https://www.yahoo.com/news/train-carrying-printer-paper-derails-131324479.html)
-- Feb 18 - [EU might impose further regulation on WhatsApp](https://www.yahoo.com/tech/eu-might-impose-further-regulation-on-whatsapp-152832935.html)
 <!-- feed end -->
 
 ### Onstream
