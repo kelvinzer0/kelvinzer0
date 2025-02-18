@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [Apple Partners With Alibaba, Eyes Baidu for AI Expansion in China](https://finance.yahoo.com/news/apple-partners-alibaba-eyes-baidu-150006091.html)
+- Feb 18 - [Grab your raincoats: A much needed pattern flip is coming to B.C.](https://www.yahoo.com/news/grab-raincoats-much-needed-pattern-144452610.html)
+- Feb 18 - [China's electric vehicles are around 3-5 years ahead, BYD CEO says](https://finance.yahoo.com/news/chinas-electric-vehicles-around-3-143000398.html)
+- Feb 18 - [Hamas says it will free 6 living hostages and hand over four bodies, accelerating Gaza releases](https://www.yahoo.com/news/hamas-says-free-6-living-132123159.html)
 - Feb 18 - [Exclusive-Chinese lithium company halts tech exports as trade tensions build](https://finance.yahoo.com/news/exclusive-chinese-lithium-company-halts-131455070.html)
-- Feb 18 - [Trump tariffs are already causing this 1 unfortunate consequence](https://finance.yahoo.com/news/trump-tariffs-are-already-causing-this-1-unfortunate-consequence-131138046.html)
-- Feb 18 - [Bull shark bites off both hands of woman on beach ‘after she tried to take its picture’](https://www.yahoo.com/news/bull-shark-bites-off-both-123220060.html)
-- Feb 18 - [This man pays $1,200/month for his $56k car, has $94k in debt and blames it on a weird ‘dynamic’ with mother-in-law](https://finance.yahoo.com/news/man-pays-1-200-month-123000310.html)
-- Feb 18 - [People Are Sharing The Pain Everyone Underestimates Until They Experience It Themselves, And It Ranges From Physical To Emotional](https://www.yahoo.com/lifestyle/people-sharing-pain-everyone-underestimates-113104317.html)
 <!-- feed end -->
 
 ### Onstream
