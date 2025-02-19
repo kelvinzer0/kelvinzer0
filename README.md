@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [Ugandan opposition figure Besigye, looking frail, appears in court as calls for his release grow](https://www.yahoo.com/news/ugandan-opposition-figure-besigye-looking-093447808.html)
 - Feb 19 - [Dozens of endangered false killer whales wash up on Tasmania beach](https://www.yahoo.com/news/dozens-endangered-false-killer-whales-073157522.html)
 - Feb 19 - [Trump Signs New Order to Vastly Expand His Presidential Powers](https://www.yahoo.com/news/trump-signs-order-vastly-expand-040133466.html)
 - Feb 19 - [‘Rampant’ tow truck scam targets Southern California drivers, officials say](https://www.yahoo.com/news/rampant-tow-truck-scam-targets-021253190.html)
 - Feb 19 - [Former Vice President Kamala Harris Signs With CAA](https://www.yahoo.com/entertainment/former-vice-president-kamala-harris-005206556.html)
-- Feb 19 - [Cornered! Trump on defense over ‘Nixonian’ confession](https://www.yahoo.com/news/cornered-trump-defense-over-nixonian-002746739.html)
 <!-- feed end -->
 
 ### Onstream
