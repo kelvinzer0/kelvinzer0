@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Expect tech earnings to moderate from 'incredibly high' levels](https://finance.yahoo.com/video/expect-tech-earnings-moderate-incredibly-170000233.html)
+- Feb 19 - [11-year-old took her own life after classmates threatened to call ICE on her family, devastated mother reveals](https://www.yahoo.com/news/11-old-took-her-own-100207022.html)
+- Feb 19 - [FHA may face 40% workforce reduction: Bloomberg](https://finance.yahoo.com/video/fha-may-face-40-workforce-175442114.html)
+- Feb 19 - [Tesla rival once valued at $30bn collapses amid electric car downturn](https://finance.yahoo.com/news/tesla-rival-once-valued-30bn-170805338.html)
+- Feb 19 - [Fired FAA employee who was working on missile defense says Americans should be scared](https://www.yahoo.com/news/fired-faa-employee-working-missile-164553022.html)
 - Feb 19 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-162533996.html)
-- Feb 19 - [The iPhone 16e gives you Apple Intelligence for $599](https://www.yahoo.com/tech/the-iphone-16e-gives-you-apple-intelligence-for-599-161435332.html)
-- Feb 19 - [DOGE’s Shocking $8 Billion Dollar Mistake Called Out](https://www.yahoo.com/news/doge-shocking-8-billion-dollar-154824634.html)
-- Feb 19 - [Turkey to export 15,000 tonnes of eggs to US amid bird flu disruptions](https://www.yahoo.com/news/turkey-export-15-000-tonnes-131314536.html)
 <!-- feed end -->
 
 ### Onstream
