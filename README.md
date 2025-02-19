@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Why Super Micro Computer Stock Rocketed Higher Again Today](https://finance.yahoo.com/news/why-super-micro-computer-stock-200113152.html)
-- Feb 19 - [International consortium wins C$3.9 billion Canada high speed train contract](https://finance.yahoo.com/news/international-consortium-wins-c-3-194614751.html)
 - Feb 19 - [Israel confirms four dead hostages who will be returned from Gaza include young family](https://www.yahoo.com/news/israel-confirms-four-dead-hostages-193954844.html)
+- Feb 19 - [Rep. Jasmine Crockett tells “The View” a congressional staffer made 'threatening' call betting money on fight with Nancy Mace](https://www.yahoo.com/entertainment/rep-jasmine-crockett-tells-view-193000509.html)
 - Feb 19 - [Historic ocean liner departs Philadelphia on voyage to become the world's largest artificial reef](https://www.yahoo.com/news/historic-ocean-liner-departs-philadelphia-191920880.html)
-- Feb 19 - [North Dakota Rep. Christy of Fargo dies at 43](https://www.yahoo.com/news/north-dakota-rep-christy-fargo-191021808.html)
+- Feb 19 - [Netanyahu tells nation to prepare for 'shocking day' with Hamas to release bodies of four hostages](https://www.yahoo.com/news/netanyahu-tells-nation-prepare-shocking-191822822.html)
+- Feb 19 - [Take A $450,000 Pension In A Lump Sum Or $3,000 Monthly Payments? Suze Orman's Advice To Anxious Soon-To-Be Retiree](https://finance.yahoo.com/news/450-000-pension-lump-sum-183040000.html)
 <!-- feed end -->
 
 ### Onstream
