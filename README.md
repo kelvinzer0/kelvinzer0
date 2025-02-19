@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [RI weather: Will coastal snow storm hit the Ocean State?](https://www.yahoo.com/news/ri-weather-coastal-snow-storm-135011471.html)
+- Feb 19 - [Turkey to export 15,000 tonnes of eggs to US amid bird flu disruptions](https://www.yahoo.com/news/turkey-export-15-000-tonnes-131314536.html)
 - Feb 19 - [Here are 7 scary stats that will make you ‘rethink’ retirement in America — know them now before it's too late](https://finance.yahoo.com/news/7-scary-stats-rethink-retirement-123000671.html)
-- Feb 19 - [What to know about traffic restrictions this week for US 60, I-10 and I-17 drivers](https://www.yahoo.com/news/know-traffic-restrictions-week-us-120436859.html)
-- Feb 19 - [A record number of Americans are now 401(k) millionaires — but it’s probably fewer than you think](https://finance.yahoo.com/news/record-number-americans-now-401-111200707.html)
+- Feb 19 - [Scientists discover promising solution for looming global crisis: 'The potential is pretty large'](https://www.yahoo.com/tech/scientists-discover-promising-solution-looming-111546175.html)
 - Feb 19 - [Trump's approval rating slips as Americans worry about the economy](https://www.yahoo.com/news/trumps-approval-rating-slips-americans-110203457.html)
-- Feb 19 - [I Went to the ER with an Anxiety Attack Before College Finals. The Same Day, Doctors Found Pancreatic Cancer (Exclusive)](https://www.yahoo.com/lifestyle/went-er-anxiety-attack-college-103000830.html)
 <!-- feed end -->
 
 ### Onstream
