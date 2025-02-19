@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Ugandan opposition figure Besigye, looking frail, appears in court as calls for his release grow](https://www.yahoo.com/news/ugandan-opposition-figure-besigye-looking-093447808.html)
-- Feb 19 - [Dozens of endangered false killer whales wash up on Tasmania beach](https://www.yahoo.com/news/dozens-endangered-false-killer-whales-073157522.html)
-- Feb 19 - [Trump Signs New Order to Vastly Expand His Presidential Powers](https://www.yahoo.com/news/trump-signs-order-vastly-expand-040133466.html)
+- Feb 19 - [Which companies will win the AI race? One VC shares his take.](https://finance.yahoo.com/video/companies-win-ai-race-one-110046429.html)
+- Feb 19 - [UH-OH: Trump Just Publicly Abandoned 1 Of His Biggest 'Day One' Promises](https://www.yahoo.com/news/uh-oh-trump-just-publicly-091834188.html)
+- Feb 19 - [Cal Fire captain with connections to the Coachella Valley dies from multiple stab wounds](https://www.yahoo.com/news/cal-fire-captain-connections-coachella-043646431.html)
 - Feb 19 - [‘Rampant’ tow truck scam targets Southern California drivers, officials say](https://www.yahoo.com/news/rampant-tow-truck-scam-targets-021253190.html)
 - Feb 19 - [Former Vice President Kamala Harris Signs With CAA](https://www.yahoo.com/entertainment/former-vice-president-kamala-harris-005206556.html)
 <!-- feed end -->
