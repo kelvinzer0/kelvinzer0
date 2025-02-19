@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [RI weather: Will coastal snow storm hit the Ocean State?](https://www.yahoo.com/news/ri-weather-coastal-snow-storm-135011471.html)
+- Feb 19 - [Warren Buffett's Favorite Energy Stock Posts Surprise Profit Growth Amid Debt Reduction Focus](https://www.investors.com/news/warren-buffett-occidental-petroleum-q4-earnings/?src=A00220&yptr=yahoo)
+- Feb 19 - [2 Cryptocurrencies That Could Soar in 2025 and 1 to Avoid](https://finance.yahoo.com/news/2-cryptocurrencies-could-soar-2025-140000864.html)
+- Feb 19 - [Armed men are guarding the streets of Lincoln Heights, stopping cars and vetting passersby](https://www.yahoo.com/news/armed-men-guarding-streets-lincoln-132743700.html)
 - Feb 19 - [Turkey to export 15,000 tonnes of eggs to US amid bird flu disruptions](https://www.yahoo.com/news/turkey-export-15-000-tonnes-131314536.html)
-- Feb 19 - [Here are 7 scary stats that will make you ‘rethink’ retirement in America — know them now before it's too late](https://finance.yahoo.com/news/7-scary-stats-rethink-retirement-123000671.html)
-- Feb 19 - [Scientists discover promising solution for looming global crisis: 'The potential is pretty large'](https://www.yahoo.com/tech/scientists-discover-promising-solution-looming-111546175.html)
-- Feb 19 - [Trump's approval rating slips as Americans worry about the economy](https://www.yahoo.com/news/trumps-approval-rating-slips-americans-110203457.html)
+- Feb 19 - [Health officials sound alarm over concerning discovery made during mosquito testing: 'Prompting heightened awareness'](https://www.yahoo.com/news/health-officials-sound-alarm-over-113005482.html)
 <!-- feed end -->
 
 ### Onstream
