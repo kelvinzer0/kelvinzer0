@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 19 - [11-year-old took her own life after classmates threatened to call ICE on her family, devastated mother reveals](https://www.yahoo.com/news/11-old-took-her-own-100207022.html)
-- Feb 19 - [FHA may face 40% workforce reduction: Bloomberg](https://finance.yahoo.com/video/fha-may-face-40-workforce-175442114.html)
 - Feb 19 - [Tesla rival once valued at $30bn collapses amid electric car downturn](https://finance.yahoo.com/news/tesla-rival-once-valued-30bn-170805338.html)
+- Feb 19 - [‘We’re All Paying for It’: Kash Patel Called Out Elon Musk for Getting Rich Off Taxpayers](https://www.yahoo.com/news/paying-kash-patel-called-elon-170110297.html)
 - Feb 19 - [Fired FAA employee who was working on missile defense says Americans should be scared](https://www.yahoo.com/news/fired-faa-employee-working-missile-164553022.html)
-- Feb 19 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-162533996.html)
+- Feb 19 - [Trump said in an interview with Elon Musk that he wouldn't touch Medicaid. Hours later he endorsed a GOP plan that could slash the program.](https://www.yahoo.com/news/trump-said-interview-elon-musk-163833302.html)
 <!-- feed end -->
 
 ### Onstream
