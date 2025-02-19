@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Which companies will win the AI race? One VC shares his take.](https://finance.yahoo.com/video/companies-win-ai-race-one-110046429.html)
-- Feb 19 - [UH-OH: Trump Just Publicly Abandoned 1 Of His Biggest 'Day One' Promises](https://www.yahoo.com/news/uh-oh-trump-just-publicly-091834188.html)
-- Feb 19 - [Cal Fire captain with connections to the Coachella Valley dies from multiple stab wounds](https://www.yahoo.com/news/cal-fire-captain-connections-coachella-043646431.html)
-- Feb 19 - [‘Rampant’ tow truck scam targets Southern California drivers, officials say](https://www.yahoo.com/news/rampant-tow-truck-scam-targets-021253190.html)
-- Feb 19 - [Former Vice President Kamala Harris Signs With CAA](https://www.yahoo.com/entertainment/former-vice-president-kamala-harris-005206556.html)
+- Feb 19 - [Salman Rushdie says ‘dishonest’ Elon Musk should be fired into space: ‘If he likes it so much, let him go’](https://www.yahoo.com/news/salman-rushdie-really-wants-elon-060123998.html)
+- Feb 19 - [Warren Buffett's Favorite Energy Stock Posts Surprise Profit Growth Amid Debt Reduction Focus](https://www.investors.com/news/warren-buffett-occidental-petroleum-q4-earnings/?src=A00220&yptr=yahoo)
+- Feb 19 - [Americans' confidence in air travel safety dips slightly after Washington crash, poll shows](https://www.yahoo.com/news/americans-confidence-air-travel-safety-120101607.html)
+- Feb 19 - ['Hypnotic' doctor faces new sexual misconduct panel](https://www.yahoo.com/news/hypnotic-doctor-faces-sexual-misconduct-115550633.html)
+- Feb 19 - [Elon Musk Sparks Debate On Social Security Data After Report Finds Millions Of Alive Centenarians In America](https://finance.yahoo.com/news/elon-musk-sparks-debate-social-104543410.html)
 <!-- feed end -->
 
 ### Onstream
