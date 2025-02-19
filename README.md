@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Israel confirms four dead hostages who will be returned from Gaza include young family](https://www.yahoo.com/news/israel-confirms-four-dead-hostages-193954844.html)
-- Feb 19 - [Rep. Jasmine Crockett tells “The View” a congressional staffer made 'threatening' call betting money on fight with Nancy Mace](https://www.yahoo.com/entertainment/rep-jasmine-crockett-tells-view-193000509.html)
-- Feb 19 - [Historic ocean liner departs Philadelphia on voyage to become the world's largest artificial reef](https://www.yahoo.com/news/historic-ocean-liner-departs-philadelphia-191920880.html)
-- Feb 19 - [Netanyahu tells nation to prepare for 'shocking day' with Hamas to release bodies of four hostages](https://www.yahoo.com/news/netanyahu-tells-nation-prepare-shocking-191822822.html)
-- Feb 19 - [Take A $450,000 Pension In A Lump Sum Or $3,000 Monthly Payments? Suze Orman's Advice To Anxious Soon-To-Be Retiree](https://finance.yahoo.com/news/450-000-pension-lump-sum-183040000.html)
+- Feb 19 - [Microsoft's Majorana 1 quantum chip: What you should know](https://finance.yahoo.com/video/microsofts-majorana-1-quantum-chip-215358217.html)
+- Feb 19 - [2 Dead After Midair Collision Between 2 Small Planes at Arizona Airport](https://www.yahoo.com/entertainment/2-dead-midair-collision-between-214400736.html)
+- Feb 19 - [An 11-year-old girl in Texas died by suicide after she was bullied about her family’s immigration status, her mother says](https://www.yahoo.com/news/11-old-girl-texas-died-193221903.html)
+- Feb 19 - [The white man who pleaded guilty to shooting a Black teen who rang a wrong doorbell dies](https://www.yahoo.com/news/white-man-pleaded-guilty-shooting-205530137.html)
+- Feb 19 - [‘Avoid the area’: Serious crash shuts down part of Route 128 on North Shore, state police say](https://www.yahoo.com/news/avoid-area-serious-crash-shuts-201658863.html)
 <!-- feed end -->
 
 ### Onstream
