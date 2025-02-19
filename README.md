@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 19 - [‘Rampant’ tow truck scam targets Southern California drivers, officials say](https://www.yahoo.com/news/rampant-tow-truck-scam-targets-021253190.html)
 - Feb 19 - [Former Vice President Kamala Harris Signs With CAA](https://www.yahoo.com/entertainment/former-vice-president-kamala-harris-005206556.html)
 - Feb 18 - [Columbine survivor Anne Marie Hochhalter, who forgave gunman's mother, dies at 43](https://www.yahoo.com/news/columbine-survivor-anne-marie-hochhalter-235725455.html)
-- Feb 18 - [Trump says he has instructed DOJ to terminate all remaining Biden-era US attorneys](https://www.yahoo.com/news/trump-says-instructed-doj-terminate-231957600.html)
+- Feb 18 - [Extreme Drop in Oxygen Will Eventually Suffocate Most Life on Earth](https://www.yahoo.com/news/extreme-drop-oxygen-eventually-suffocate-232030686.html)
 <!-- feed end -->
 
 ### Onstream
