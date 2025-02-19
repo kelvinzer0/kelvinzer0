@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [3.0-magnitude earthquake shakes western Washington, seismologists say. What to know](https://www.yahoo.com/news/3-0-magnitude-earthquake-shakes-211107687.html)
-- Feb 18 - [What Brian Laundrie Allegedly Texted Himself After Gabby Petito Murder](https://www.yahoo.com/entertainment/brian-laundrie-allegedly-texted-himself-210107150.html)
-- Feb 18 - [JPMorgan CEO Jamie Dimon criticizes select DEI spending](https://finance.yahoo.com/video/jpmorgan-ceo-jamie-dimon-criticizes-205524379.html)
-- Feb 18 - [A Post By A MAGA Supporter Who Said They Were Laid Off Because Of Trump's Cuts Is Going Mega-Viral](https://www.yahoo.com/news/post-maga-supporter-said-were-204356732.html)
-- Feb 18 - ['Sell your Teslas, dump your stock' — Tesla protests, Musk's tanking popularity hit EV maker at bad time](https://finance.yahoo.com/news/sell-your-teslas-dump-your-stock--tesla-protests-musks-tanking-popularity-hit-ev-maker-at-bad-time-193044438.html)
+- Feb 19 - [Cornered! Trump on defense over ‘Nixonian’ confession](https://www.yahoo.com/news/cornered-trump-defense-over-nixonian-002746739.html)
+- Feb 18 - [Columbine survivor Anne Marie Hochhalter, who forgave gunman's mother, dies at 43](https://www.yahoo.com/news/columbine-survivor-anne-marie-hochhalter-235725455.html)
+- Feb 18 - [Trump says he has instructed DOJ to terminate all remaining Biden-era US attorneys](https://www.yahoo.com/news/trump-says-instructed-doj-terminate-231957600.html)
+- Feb 18 - [Hip-hop star A$AP Rocky is found not guilty of firing a handgun and avoids decades in prison](https://www.yahoo.com/news/jurors-reached-verdict-felony-trial-225627666.html)
+- Feb 18 - [Trump snaps back at Zelenskyy, blaming Ukraine for the war](https://www.yahoo.com/news/trump-snaps-back-zelenskyy-blaming-225017876.html)
 <!-- feed end -->
 
 ### Onstream
