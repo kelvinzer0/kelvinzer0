@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Microsoft's Majorana 1 quantum computing chip uses a new kind of superconductor](https://www.yahoo.com/tech/microsofts-majorana-1-quantum-computing-chip-uses-a-new-kind-of-superconductor-160009056.html)
+- Feb 19 - [Expect tech earnings to moderate from 'incredibly high' levels](https://finance.yahoo.com/video/expect-tech-earnings-moderate-incredibly-170000233.html)
+- Feb 19 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-162533996.html)
+- Feb 19 - [The iPhone 16e gives you Apple Intelligence for $599](https://www.yahoo.com/tech/the-iphone-16e-gives-you-apple-intelligence-for-599-161435332.html)
 - Feb 19 - [DOGE’s Shocking $8 Billion Dollar Mistake Called Out](https://www.yahoo.com/news/doge-shocking-8-billion-dollar-154824634.html)
-- Feb 19 - [2025 is 'a Meta story' for Big Tech. Here's why.](https://finance.yahoo.com/video/2025-meta-story-big-tech-154457169.html)
-- Feb 19 - [Armed men are guarding the streets of Lincoln Heights, stopping cars and vetting passersby](https://www.yahoo.com/news/armed-men-guarding-streets-lincoln-132743700.html)
 - Feb 19 - [Turkey to export 15,000 tonnes of eggs to US amid bird flu disruptions](https://www.yahoo.com/news/turkey-export-15-000-tonnes-131314536.html)
 <!-- feed end -->
 
