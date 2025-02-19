@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [Former Vice President Kamala Harris Signs With CAA](https://www.yahoo.com/entertainment/former-vice-president-kamala-harris-005206556.html)
 - Feb 19 - [Cornered! Trump on defense over ‘Nixonian’ confession](https://www.yahoo.com/news/cornered-trump-defense-over-nixonian-002746739.html)
 - Feb 18 - [Columbine survivor Anne Marie Hochhalter, who forgave gunman's mother, dies at 43](https://www.yahoo.com/news/columbine-survivor-anne-marie-hochhalter-235725455.html)
+- Feb 18 - [Trump has signed an executive order on IVF. Here's what you should know about the procedure](https://www.yahoo.com/news/trump-signed-executive-order-ivf-234035821.html)
 - Feb 18 - [Trump says he has instructed DOJ to terminate all remaining Biden-era US attorneys](https://www.yahoo.com/news/trump-says-instructed-doj-terminate-231957600.html)
-- Feb 18 - [A$AP Rocky dives into Rihanna's arms as not guilty verdict is read at felony assault trial](https://www.yahoo.com/news/jurors-reached-verdict-felony-trial-225627666.html)
-- Feb 18 - [Trump snaps back at Zelenskyy, blaming Ukraine for the war](https://www.yahoo.com/news/trump-snaps-back-zelenskyy-blaming-225017876.html)
 <!-- feed end -->
 
 ### Onstream
