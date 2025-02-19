@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Salman Rushdie says ‘dishonest’ Elon Musk should be fired into space: ‘If he likes it so much, let him go’](https://www.yahoo.com/news/salman-rushdie-really-wants-elon-060123998.html)
-- Feb 19 - [Warren Buffett's Favorite Energy Stock Posts Surprise Profit Growth Amid Debt Reduction Focus](https://www.investors.com/news/warren-buffett-occidental-petroleum-q4-earnings/?src=A00220&yptr=yahoo)
-- Feb 19 - [Americans' confidence in air travel safety dips slightly after Washington crash, poll shows](https://www.yahoo.com/news/americans-confidence-air-travel-safety-120101607.html)
-- Feb 19 - ['Hypnotic' doctor faces new sexual misconduct panel](https://www.yahoo.com/news/hypnotic-doctor-faces-sexual-misconduct-115550633.html)
-- Feb 19 - [Elon Musk Sparks Debate On Social Security Data After Report Finds Millions Of Alive Centenarians In America](https://finance.yahoo.com/news/elon-musk-sparks-debate-social-104543410.html)
+- Feb 19 - [Here are 7 scary stats that will make you ‘rethink’ retirement in America — know them now before it's too late](https://finance.yahoo.com/news/7-scary-stats-rethink-retirement-123000671.html)
+- Feb 19 - [What to know about traffic restrictions this week for US 60, I-10 and I-17 drivers](https://www.yahoo.com/news/know-traffic-restrictions-week-us-120436859.html)
+- Feb 19 - [A record number of Americans are now 401(k) millionaires — but it’s probably fewer than you think](https://finance.yahoo.com/news/record-number-americans-now-401-111200707.html)
+- Feb 19 - [Trump's approval rating slips as Americans worry about the economy](https://www.yahoo.com/news/trumps-approval-rating-slips-americans-110203457.html)
+- Feb 19 - [I Went to the ER with an Anxiety Attack Before College Finals. The Same Day, Doctors Found Pancreatic Cancer (Exclusive)](https://www.yahoo.com/lifestyle/went-er-anxiety-attack-college-103000830.html)
 <!-- feed end -->
 
 ### Onstream
