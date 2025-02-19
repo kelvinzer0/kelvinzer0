@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [11-year-old took her own life after classmates threatened to call ICE on her family, devastated mother reveals](https://www.yahoo.com/news/11-old-took-her-own-100207022.html)
-- Feb 19 - [Tesla rival once valued at $30bn collapses amid electric car downturn](https://finance.yahoo.com/news/tesla-rival-once-valued-30bn-170805338.html)
-- Feb 19 - [‘We’re All Paying for It’: Kash Patel Called Out Elon Musk for Getting Rich Off Taxpayers](https://www.yahoo.com/news/paying-kash-patel-called-elon-170110297.html)
-- Feb 19 - [Fired FAA employee who was working on missile defense says Americans should be scared](https://www.yahoo.com/news/fired-faa-employee-working-missile-164553022.html)
-- Feb 19 - [Trump said in an interview with Elon Musk that he wouldn't touch Medicaid. Hours later he endorsed a GOP plan that could slash the program.](https://www.yahoo.com/news/trump-said-interview-elon-musk-163833302.html)
+- Feb 19 - [Why Super Micro Computer Stock Rocketed Higher Again Today](https://finance.yahoo.com/news/why-super-micro-computer-stock-200113152.html)
+- Feb 19 - [International consortium wins C$3.9 billion Canada high speed train contract](https://finance.yahoo.com/news/international-consortium-wins-c-3-194614751.html)
+- Feb 19 - [Israel confirms four dead hostages who will be returned from Gaza include young family](https://www.yahoo.com/news/israel-confirms-four-dead-hostages-193954844.html)
+- Feb 19 - [Historic ocean liner departs Philadelphia on voyage to become the world's largest artificial reef](https://www.yahoo.com/news/historic-ocean-liner-departs-philadelphia-191920880.html)
+- Feb 19 - [North Dakota Rep. Christy of Fargo dies at 43](https://www.yahoo.com/news/north-dakota-rep-christy-fargo-191021808.html)
 <!-- feed end -->
 
 ### Onstream
