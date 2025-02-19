@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Microsoft's Majorana 1 quantum chip: What you should know](https://finance.yahoo.com/video/microsofts-majorana-1-quantum-chip-215358217.html)
-- Feb 19 - [2 Dead After Midair Collision Between 2 Small Planes at Arizona Airport](https://www.yahoo.com/entertainment/2-dead-midair-collision-between-214400736.html)
-- Feb 19 - [An 11-year-old girl in Texas died by suicide after she was bullied about her family’s immigration status, her mother says](https://www.yahoo.com/news/11-old-girl-texas-died-193221903.html)
+- Feb 19 - [Two more staffers quit John Fetterman's office as the senator carves his own lane with Trump](https://www.yahoo.com/news/two-more-staffers-quit-john-220156126.html)
 - Feb 19 - [The white man who pleaded guilty to shooting a Black teen who rang a wrong doorbell dies](https://www.yahoo.com/news/white-man-pleaded-guilty-shooting-205530137.html)
-- Feb 19 - [‘Avoid the area’: Serious crash shuts down part of Route 128 on North Shore, state police say](https://www.yahoo.com/news/avoid-area-serious-crash-shuts-201658863.html)
+- Feb 19 - [A Popular Trader Joe's Frozen Item Was Just Recalled For Possible 'Foreign Material'](https://www.yahoo.com/lifestyle/popular-trader-joes-frozen-item-204325681.html)
+- Feb 19 - [Israel confirms four dead hostages who will be returned from Gaza include young family](https://www.yahoo.com/news/israel-confirms-four-dead-hostages-193954844.html)
+- Feb 19 - [Self-Made Millionaire: This Is the Max Number of Bank Accounts You Should Have](https://finance.yahoo.com/news/self-made-millionaire-max-number-190026431.html)
 <!-- feed end -->
 
 ### Onstream
