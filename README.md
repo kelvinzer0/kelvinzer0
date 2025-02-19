@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Warren Buffett's Favorite Energy Stock Posts Surprise Profit Growth Amid Debt Reduction Focus](https://www.investors.com/news/warren-buffett-occidental-petroleum-q4-earnings/?src=A00220&yptr=yahoo)
-- Feb 19 - [2 Cryptocurrencies That Could Soar in 2025 and 1 to Avoid](https://finance.yahoo.com/news/2-cryptocurrencies-could-soar-2025-140000864.html)
+- Feb 19 - [Microsoft's Majorana 1 quantum computing chip uses a new kind of superconductor](https://www.yahoo.com/tech/microsofts-majorana-1-quantum-computing-chip-uses-a-new-kind-of-superconductor-160009056.html)
+- Feb 19 - [DOGE’s Shocking $8 Billion Dollar Mistake Called Out](https://www.yahoo.com/news/doge-shocking-8-billion-dollar-154824634.html)
+- Feb 19 - [2025 is 'a Meta story' for Big Tech. Here's why.](https://finance.yahoo.com/video/2025-meta-story-big-tech-154457169.html)
 - Feb 19 - [Armed men are guarding the streets of Lincoln Heights, stopping cars and vetting passersby](https://www.yahoo.com/news/armed-men-guarding-streets-lincoln-132743700.html)
 - Feb 19 - [Turkey to export 15,000 tonnes of eggs to US amid bird flu disruptions](https://www.yahoo.com/news/turkey-export-15-000-tonnes-131314536.html)
-- Feb 19 - [Health officials sound alarm over concerning discovery made during mosquito testing: 'Prompting heightened awareness'](https://www.yahoo.com/news/health-officials-sound-alarm-over-113005482.html)
 <!-- feed end -->
 
 ### Onstream
