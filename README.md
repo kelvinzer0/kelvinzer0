@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Robert De Niro’s Politically Charged Answer Leaves ‘Late Show’ In Eerie Silence](https://www.yahoo.com/news/robert-niro-politically-charged-answer-143308103.html)
+- Feb 20 - [User growth, advertisers are what's driving Meta: Analyst](https://finance.yahoo.com/video/user-growth-advertisers-whats-driving-152852463.html)
+- Feb 20 - [2 ETFs to Buy in 2025 That Could Help Set You Up for Life](https://finance.yahoo.com/news/2-etfs-buy-2025-could-150000084.html)
+- Feb 20 - [I toured the USS Becuna, a WWII warship and the only submarine of its kind left in the world. Take a look inside.](https://www.yahoo.com/news/toured-uss-becuna-world-war-134601113.html)
 - Feb 20 - [What Nvidia bulls are whispering about before its big earnings report](https://finance.yahoo.com/news/what-nvidia-bulls-are-whispering-about-before-its-big-earnings-report-120347483.html)
 - Feb 20 - [UN rights chief: parading of bodies in Gaza abhorrent](https://www.yahoo.com/news/un-rights-chief-parading-bodies-112824496.html)
-- Feb 20 - [Former coal mine to be transformed into revolutionary new energy source — here's how it could power 3 million homes](https://www.yahoo.com/news/former-coal-mine-transformed-revolutionary-103049665.html)
-- Feb 20 - [Experts sound the alarm over a disturbing new source driving soaring demand and higher costs: 'Not inevitable'](https://www.yahoo.com/news/experts-sound-alarm-over-disturbing-103008966.html)
 <!-- feed end -->
 
 ### Onstream
