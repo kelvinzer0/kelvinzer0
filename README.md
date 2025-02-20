@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Two more staffers quit John Fetterman's office as the senator carves his own lane with Trump](https://www.yahoo.com/news/two-more-staffers-quit-john-220156126.html)
-- Feb 19 - [The white man who pleaded guilty to shooting a Black teen who rang a wrong doorbell dies](https://www.yahoo.com/news/white-man-pleaded-guilty-shooting-205530137.html)
-- Feb 19 - [A Popular Trader Joe's Frozen Item Was Just Recalled For Possible 'Foreign Material'](https://www.yahoo.com/lifestyle/popular-trader-joes-frozen-item-204325681.html)
-- Feb 19 - [Israel confirms four dead hostages who will be returned from Gaza include young family](https://www.yahoo.com/news/israel-confirms-four-dead-hostages-193954844.html)
-- Feb 19 - [Self-Made Millionaire: This Is the Max Number of Bank Accounts You Should Have](https://finance.yahoo.com/news/self-made-millionaire-max-number-190026431.html)
+- Feb 19 - [A Mississippi judge ordered a newspaper to remove an editorial. Press advocates are outraged](https://www.yahoo.com/news/mississippi-judge-ordered-newspaper-remove-233648461.html)
+- Feb 19 - [Panama says it recaptured Chinese woman who escaped a hotel holding hundreds of deportees](https://www.yahoo.com/news/chinese-woman-escaped-panama-hotel-232825879.html)
+- Feb 19 - [Trump says he's considering returning 20% of DOGE savings to Americans](https://www.yahoo.com/news/trump-says-hes-considering-returning-230212911.html)
+- Feb 19 - [One dead in crash that shut down part of Route 128 on the North Shore, police say](https://www.yahoo.com/news/avoid-area-serious-crash-shuts-201658863.html)
+- Feb 19 - [‘The entire place was in shock’: Fmr. Russian Ambassador on Europe's reaction to VP Vance's speech](https://www.yahoo.com/news/entire-place-shock-fmr-russian-220715224.html)
 <!-- feed end -->
 
 ### Onstream
