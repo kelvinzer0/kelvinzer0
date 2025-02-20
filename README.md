@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Southeast Texas Faces Wet and Slippery Conditions This Weekend](https://www.yahoo.com/news/southeast-texas-faces-wet-slippery-174900545.html)
-- Feb 20 - [Average US rate on a 30-year mortgage slips to 8-week low after fifth-straight weekly decline](https://finance.yahoo.com/news/average-us-rate-30-mortgage-170128171.html)
+- Feb 20 - [Leonardo finds new partner for aerostructures unit after Boeing issues](https://finance.yahoo.com/news/leonardo-finds-partner-aerostructures-unit-182045833.html)
+- Feb 20 - [Elon Musk Called Conversations With Bill Gates 'Underwhelming' After Fellow Tech Billionaire Shared He Bought An Electric Porsche, Not A Tesla](https://finance.yahoo.com/news/elon-musk-called-conversations-bill-180045053.html)
 - Feb 20 - [Billionaire Blackrock CEO Larry Fink Says People Are Saving Too Much And Not Investing Enough To 'Retire With Dignity'](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-170036131.html)
-- Feb 20 - [Disney's Power Move: Is This the Biggest Streaming Shake-Up Yet?](https://finance.yahoo.com/news/disneys-power-move-biggest-streaming-165726756.html)
-- Feb 20 - [WATCH: Sen. Mitch McConnell announces his departure from US Senate](https://www.yahoo.com/news/watch-sen-mitch-mcconnell-announces-165353121.html)
+- Feb 20 - ['Reacher' actor Alan Ritchson shares how he got so ripped: corned beef, cookies, and push-ups](https://www.yahoo.com/lifestyle/reacher-actor-alan-ritchson-shares-164509789.html)
+- Feb 20 - [A Delta flight crashed and overturned while landing in Toronto. Here’s what we know](https://www.yahoo.com/news/delta-flight-crashed-while-landing-070927342.html)
 <!-- feed end -->
 
 ### Onstream
