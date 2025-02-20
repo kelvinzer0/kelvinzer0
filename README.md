@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Trump’s ‘Long Live the King’ Post Sparks Outcry: ‘Embarrassing and Disrespectful to Our Country’](https://www.yahoo.com/news/trump-long-live-king-post-002349338.html)
 - Feb 20 - [Hamas kills a mother and two babies who were hostages. Rep. Langworthy reacts](https://www.yahoo.com/news/hamas-kills-mother-two-babies-001029918.html)
 - Feb 19 - [Michigan Supreme Court Chief Justice announces she is stepping down](https://www.yahoo.com/news/michigan-supreme-court-chief-justice-233716021.html)
-- Feb 19 - [A Mississippi judge ordered a newspaper to remove an editorial. Press advocates are outraged](https://www.yahoo.com/news/mississippi-judge-ordered-newspaper-remove-233648461.html)
 - Feb 19 - [Los Angeles news anchor’s cause of death deemed an accident](https://www.yahoo.com/news/los-angeles-news-anchor-cause-233534465.html)
+- Feb 19 - [Trump says he's considering returning 20% of DOGE savings to Americans](https://www.yahoo.com/news/trump-says-hes-considering-returning-230212911.html)
+- Feb 19 - [Killer Asteroid Could Be Headed for Some of the World's Most Populous Cities](https://www.yahoo.com/news/killer-asteroid-could-headed-worlds-212549816.html)
 <!-- feed end -->
 
 ### Onstream
