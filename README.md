@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [These Lamborghini-Driving TikTokers Are Calling Out Cybertrucks in Real Time](https://autos.yahoo.com/lamborghini-driving-tiktokers-calling-cybertrucks-195700584.html)
+- Feb 20 - [Funeral held for 2 Detroit kids who died in cold while family gets promise of a home](https://www.yahoo.com/news/funeral-held-2-detroit-kids-200811115.html)
+- Feb 20 - [What is Tramadol? What to know about the drug after Bobby Portis Jr.'s 25-game suspension](https://sports.yahoo.com/article/tramadol-know-drug-bobby-portis-193709739.html)
 - Feb 20 - [Trump official calls Social Security ‘wrong’ as administration lays groundwork for massive cuts](https://www.yahoo.com/news/trump-official-calls-social-security-192404146.html)
-- Feb 20 - [Billionaire Blackrock CEO Larry Fink Says People Are Saving Too Much And Not Investing Enough To 'Retire With Dignity'](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-170036131.html)
-- Feb 20 - [U-2 Spy Plane Captured Stunning Image Of Chinese Surveillance Balloon](https://www.yahoo.com/news/u-2-spy-plane-captured-150000718.html)
-- Feb 20 - [Troopers stop 100 drivers from Fort Myers to Immokalee in reckless driving crackdown](https://www.yahoo.com/news/troopers-stop-100-drivers-fort-163330043.html)
+- Feb 20 - [Megabucks ticket sold at Cumberland Farms in Mass. wins $770K jackpot](https://www.yahoo.com/news/megabucks-ticket-sold-cumberland-farms-190426583.html)
+- Feb 20 - [Leonardo finds new partner for aerostructures unit after Boeing issues](https://finance.yahoo.com/news/leonardo-finds-partner-aerostructures-unit-182045402.html)
 <!-- feed end -->
 
 ### Onstream
