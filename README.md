@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [The Biggest Fish Ever Caught](https://sports.yahoo.com/article/biggest-fish-ever-caught-181927608.html)
 - Feb 20 - [Man on carnivore diet has cholesterol of 1,000, sees shocking symptom appear on hands](https://www.yahoo.com/lifestyle/man-carnivore-diet-cholesterol-1-024437384.html)
-- Feb 20 - [Hamas kills a mother and two babies who were hostages. Rep. Langworthy reacts](https://www.yahoo.com/news/hamas-kills-mother-two-babies-001029918.html)
 - Feb 19 - [Michigan Supreme Court Chief Justice announces she is stepping down](https://www.yahoo.com/news/michigan-supreme-court-chief-justice-233716021.html)
 - Feb 19 - [Los Angeles news anchor’s cause of death deemed an accident](https://www.yahoo.com/news/los-angeles-news-anchor-cause-233534465.html)
+- Feb 19 - [Trump says he's considering returning 20% of DOGE savings to Americans](https://www.yahoo.com/news/trump-says-hes-considering-returning-230212911.html)
+- Feb 19 - [‘The entire place was in shock’: Fmr. Russian Ambassador on Europe's reaction to VP Vance's speech](https://www.yahoo.com/news/entire-place-shock-fmr-russian-220715224.html)
 <!-- feed end -->
 
 ### Onstream
