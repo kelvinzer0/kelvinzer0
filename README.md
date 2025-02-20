@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [User growth, advertisers are what's driving Meta: Analyst](https://finance.yahoo.com/video/user-growth-advertisers-whats-driving-152852463.html)
-- Feb 20 - [2 ETFs to Buy in 2025 That Could Help Set You Up for Life](https://finance.yahoo.com/news/2-etfs-buy-2025-could-150000084.html)
-- Feb 20 - [I toured the USS Becuna, a WWII warship and the only submarine of its kind left in the world. Take a look inside.](https://www.yahoo.com/news/toured-uss-becuna-world-war-134601113.html)
+- Feb 20 - [Two women killed in Pittsford house fire identified](https://www.yahoo.com/news/two-women-killed-pittsford-house-151840862.html)
+- Feb 20 - [AI cracks superbug problem in two days that took scientists years](https://www.yahoo.com/news/ai-cracks-superbug-problem-two-120831291.html)
+- Feb 20 - [Buttigieg weighs a decision with huge implications for Democrats: Run for Senate or president?](https://www.yahoo.com/news/buttigieg-weighs-decision-huge-implications-140744353.html)
+- Feb 20 - [The Cause of Alzheimer's Might Be Coming From Inside Your Mouth](https://www.yahoo.com/news/cause-alzheimers-might-coming-inside-140038382.html)
 - Feb 20 - [What Nvidia bulls are whispering about before its big earnings report](https://finance.yahoo.com/news/what-nvidia-bulls-are-whispering-about-before-its-big-earnings-report-120347483.html)
-- Feb 20 - [UN rights chief: parading of bodies in Gaza abhorrent](https://www.yahoo.com/news/un-rights-chief-parading-bodies-112824496.html)
 <!-- feed end -->
 
 ### Onstream
