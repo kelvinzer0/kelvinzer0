@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Funeral held for 2 Detroit kids who died in cold while family gets promise of a home](https://www.yahoo.com/news/funeral-held-2-detroit-kids-200811115.html)
-- Feb 20 - [What is Tramadol? What to know about the drug after Bobby Portis Jr.'s 25-game suspension](https://sports.yahoo.com/article/tramadol-know-drug-bobby-portis-193709739.html)
 - Feb 20 - [Trump official calls Social Security ‘wrong’ as administration lays groundwork for massive cuts](https://www.yahoo.com/news/trump-official-calls-social-security-192404146.html)
-- Feb 20 - [Megabucks ticket sold at Cumberland Farms in Mass. wins $770K jackpot](https://www.yahoo.com/news/megabucks-ticket-sold-cumberland-farms-190426583.html)
-- Feb 20 - [Leonardo finds new partner for aerostructures unit after Boeing issues](https://finance.yahoo.com/news/leonardo-finds-partner-aerostructures-unit-182045402.html)
+- Feb 20 - [A major Mega Millions winning ticket was sold in La Quinta. Next came Coachella.](https://www.yahoo.com/news/major-mega-millions-winning-ticket-205713486.html)
+- Feb 20 - [Funeral held for 2 Detroit kids who died in cold while family gets promise of a home](https://www.yahoo.com/news/funeral-held-2-detroit-kids-200811115.html)
+- Feb 20 - [Where Brian Laundrie’s Sister Cassie Stands With Their Parents Today](https://www.yahoo.com/entertainment/where-brian-laundrie-sister-cassie-195336285.html)
+- Feb 20 - [What is Tramadol? What to know about the drug after Bobby Portis Jr.'s 25-game suspension](https://sports.yahoo.com/article/tramadol-know-drug-bobby-portis-193709739.html)
 <!-- feed end -->
 
 ### Onstream
