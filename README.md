@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Snowfall totals reported across Hampton Roads, northeastern NC](https://www.yahoo.com/news/snowfall-totals-reported-across-hampton-041509893.html)
+- Feb 20 - [2 dead after 2 small planes collide midair in Arizona, officials say](https://www.yahoo.com/news/two-small-planes-collide-midair-191228585.html)
 - Feb 20 - [Man on carnivore diet has cholesterol of 1,000, sees shocking symptom appear on hands](https://www.yahoo.com/lifestyle/man-carnivore-diet-cholesterol-1-024437384.html)
-- Feb 20 - [An 11-year-old girl in Texas died by suicide after she was bullied about her family’s immigration status, her mother says](https://www.yahoo.com/news/11-old-girl-texas-died-193221903.html)
 - Feb 20 - [Grand jury recommends Alabama police department be 'immediately abolished'](https://www.yahoo.com/news/grand-jury-recommends-alabama-police-021013059.html)
-- Feb 20 - [Hamas kills a mother and two babies who were hostages. Rep. Langworthy reacts](https://www.yahoo.com/news/hamas-kills-mother-two-babies-001029918.html)
+- Feb 19 - [Los Angeles news anchor’s cause of death deemed an accident](https://www.yahoo.com/news/los-angeles-news-anchor-cause-233534465.html)
+- Feb 19 - [Thousands of tourists swarm active volcano, shocked when things end badly](https://www.yahoo.com/news/thousands-tourists-swarm-active-volcano-175329904.html)
 <!-- feed end -->
 
 ### Onstream
