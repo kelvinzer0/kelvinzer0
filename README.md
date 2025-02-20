@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Two women killed in Pittsford house fire identified](https://www.yahoo.com/news/two-women-killed-pittsford-house-151840862.html)
-- Feb 20 - [AI cracks superbug problem in two days that took scientists years](https://www.yahoo.com/news/ai-cracks-superbug-problem-two-120831291.html)
-- Feb 20 - [Buttigieg weighs a decision with huge implications for Democrats: Run for Senate or president?](https://www.yahoo.com/news/buttigieg-weighs-decision-huge-implications-140744353.html)
-- Feb 20 - [The Cause of Alzheimer's Might Be Coming From Inside Your Mouth](https://www.yahoo.com/news/cause-alzheimers-might-coming-inside-140038382.html)
-- Feb 20 - [What Nvidia bulls are whispering about before its big earnings report](https://finance.yahoo.com/news/what-nvidia-bulls-are-whispering-about-before-its-big-earnings-report-120347483.html)
+- Feb 20 - [Southeast Texas Faces Wet and Slippery Conditions This Weekend](https://www.yahoo.com/news/southeast-texas-faces-wet-slippery-174900545.html)
+- Feb 20 - [Average US rate on a 30-year mortgage slips to 8-week low after fifth-straight weekly decline](https://finance.yahoo.com/news/average-us-rate-30-mortgage-170128171.html)
+- Feb 20 - [Billionaire Blackrock CEO Larry Fink Says People Are Saving Too Much And Not Investing Enough To 'Retire With Dignity'](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-170036131.html)
+- Feb 20 - [Disney's Power Move: Is This the Biggest Streaming Shake-Up Yet?](https://finance.yahoo.com/news/disneys-power-move-biggest-streaming-165726756.html)
+- Feb 20 - [WATCH: Sen. Mitch McConnell announces his departure from US Senate](https://www.yahoo.com/news/watch-sen-mitch-mcconnell-announces-165353121.html)
 <!-- feed end -->
 
 ### Onstream
