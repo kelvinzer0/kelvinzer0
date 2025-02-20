@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [Dr. Mehmet Oz holds millions from companies that he'd wield power over if confirmed, report shows](https://www.yahoo.com/news/dr-mehmet-oz-holds-millions-221856888.html)
+- Feb 20 - [Former Colorado sheriff’s deputy convicted of homicide in shooting death of man in crisis](https://www.yahoo.com/news/former-colorado-sheriff-deputy-convicted-215044840.html)
 - Feb 20 - [Trump official calls Social Security ‘wrong’ as administration lays groundwork for massive cuts](https://www.yahoo.com/news/trump-official-calls-social-security-192404146.html)
-- Feb 20 - [A major Mega Millions winning ticket was sold in La Quinta. Next came Coachella.](https://www.yahoo.com/news/major-mega-millions-winning-ticket-205713486.html)
-- Feb 20 - [Funeral held for 2 Detroit kids who died in cold while family gets promise of a home](https://www.yahoo.com/news/funeral-held-2-detroit-kids-200811115.html)
-- Feb 20 - [Where Brian Laundrie’s Sister Cassie Stands With Their Parents Today](https://www.yahoo.com/entertainment/where-brian-laundrie-sister-cassie-195336285.html)
-- Feb 20 - [What is Tramadol? What to know about the drug after Bobby Portis Jr.'s 25-game suspension](https://sports.yahoo.com/article/tramadol-know-drug-bobby-portis-193709739.html)
+- Feb 20 - [Trump administration throws out protections from deportation for roughly half a million Haitians](https://www.yahoo.com/news/trump-administration-throws-protections-deportation-212958954.html)
+- Feb 20 - [7 Subtle Signs That Show You a Person Has a Lot of Money in the Bank](https://finance.yahoo.com/news/7-subtle-signs-show-person-210044714.html)
 <!-- feed end -->
 
 ### Onstream
