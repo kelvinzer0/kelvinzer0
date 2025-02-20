@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [Microsoft's Quantum Computing Chip Could Be a Game Changer](https://finance.yahoo.com/news/microsofts-quantum-computing-chip-could-123500927.html)
 - Feb 20 - [What Nvidia bulls are whispering about before its big earnings report](https://finance.yahoo.com/news/what-nvidia-bulls-are-whispering-about-before-its-big-earnings-report-120347483.html)
-- Feb 20 - [JPMorgan Takes In $60 Billion From Rich Latin American Clients](https://finance.yahoo.com/news/jpmorgan-takes-60-billion-rich-110000874.html)
+- Feb 20 - [UN rights chief: parading of bodies in Gaza abhorrent](https://www.yahoo.com/news/un-rights-chief-parading-bodies-112824496.html)
+- Feb 20 - [Trump reveals he has removed the Resolute Desk used by Biden and Obama from the Oval Office](https://www.yahoo.com/news/trump-reveals-removed-resolute-desk-102558633.html)
 - Feb 20 - [A New Study Has Identified The 1 Grandparent Who Has The Biggest Impact On Kids, And It Makes A Lot Of Sense](https://www.yahoo.com/lifestyle/study-identified-1-grandparent-biggest-101602835.html)
-- Feb 20 - [Man on carnivore diet has cholesterol of 1,000, sees shocking symptom appear on hands](https://www.yahoo.com/lifestyle/man-carnivore-diet-cholesterol-1-024437384.html)
-- Feb 20 - [Grand jury recommends Alabama police department be 'immediately abolished'](https://www.yahoo.com/news/grand-jury-recommends-alabama-police-021013059.html)
 <!-- feed end -->
 
 ### Onstream
