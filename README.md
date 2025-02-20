@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Seven things to know about epilepsy in children as new drug rolled out](https://www.yahoo.com/lifestyle/epilepsy-children-new-drug-fenfluramine-132502483.html)
+- Feb 20 - [Robert De Niro’s Politically Charged Answer Leaves ‘Late Show’ In Eerie Silence](https://www.yahoo.com/news/robert-niro-politically-charged-answer-143308103.html)
 - Feb 20 - [What Nvidia bulls are whispering about before its big earnings report](https://finance.yahoo.com/news/what-nvidia-bulls-are-whispering-about-before-its-big-earnings-report-120347483.html)
 - Feb 20 - [UN rights chief: parading of bodies in Gaza abhorrent](https://www.yahoo.com/news/un-rights-chief-parading-bodies-112824496.html)
-- Feb 20 - [A New Study Has Identified The 1 Grandparent Who Has The Biggest Impact On Kids, And It Makes A Lot Of Sense](https://www.yahoo.com/lifestyle/study-identified-1-grandparent-biggest-101602835.html)
-- Feb 20 - [The destinations trying to ban cruise ships and their ‘low-cost clientele’](https://www.yahoo.com/news/destinations-trying-ban-cruise-ships-092145175.html)
+- Feb 20 - [Former coal mine to be transformed into revolutionary new energy source — here's how it could power 3 million homes](https://www.yahoo.com/news/former-coal-mine-transformed-revolutionary-103049665.html)
+- Feb 20 - [Experts sound the alarm over a disturbing new source driving soaring demand and higher costs: 'Not inevitable'](https://www.yahoo.com/news/experts-sound-alarm-over-disturbing-103008966.html)
 <!-- feed end -->
 
 ### Onstream
