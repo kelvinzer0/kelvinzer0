@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Leonardo finds new partner for aerostructures unit after Boeing issues](https://finance.yahoo.com/news/leonardo-finds-partner-aerostructures-unit-182045833.html)
-- Feb 20 - [Elon Musk Called Conversations With Bill Gates 'Underwhelming' After Fellow Tech Billionaire Shared He Bought An Electric Porsche, Not A Tesla](https://finance.yahoo.com/news/elon-musk-called-conversations-bill-180045053.html)
+- Feb 20 - [These Lamborghini-Driving TikTokers Are Calling Out Cybertrucks in Real Time](https://autos.yahoo.com/lamborghini-driving-tiktokers-calling-cybertrucks-195700584.html)
+- Feb 20 - [Trump official calls Social Security ‘wrong’ as administration lays groundwork for massive cuts](https://www.yahoo.com/news/trump-official-calls-social-security-192404146.html)
 - Feb 20 - [Billionaire Blackrock CEO Larry Fink Says People Are Saving Too Much And Not Investing Enough To 'Retire With Dignity'](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-170036131.html)
-- Feb 20 - ['Reacher' actor Alan Ritchson shares how he got so ripped: corned beef, cookies, and push-ups](https://www.yahoo.com/lifestyle/reacher-actor-alan-ritchson-shares-164509789.html)
-- Feb 20 - [A Delta flight crashed and overturned while landing in Toronto. Here’s what we know](https://www.yahoo.com/news/delta-flight-crashed-while-landing-070927342.html)
+- Feb 20 - [U-2 Spy Plane Captured Stunning Image Of Chinese Surveillance Balloon](https://www.yahoo.com/news/u-2-spy-plane-captured-150000718.html)
+- Feb 20 - [Troopers stop 100 drivers from Fort Myers to Immokalee in reckless driving crackdown](https://www.yahoo.com/news/troopers-stop-100-drivers-fort-163330043.html)
 <!-- feed end -->
 
 ### Onstream
