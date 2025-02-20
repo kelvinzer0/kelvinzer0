@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 20 - [Man on carnivore diet has cholesterol of 1,000, sees shocking symptom appear on hands](https://www.yahoo.com/lifestyle/man-carnivore-diet-cholesterol-1-024437384.html)
 - Feb 20 - [Grand jury recommends Alabama police department be 'immediately abolished'](https://www.yahoo.com/news/grand-jury-recommends-alabama-police-021013059.html)
-- Feb 20 - [‘She always had a smile’: Colleague remembers Cal Fire captain killed inside Ramona home](https://www.yahoo.com/news/she-always-had-smile-colleague-005739794.html)
-- Feb 19 - [Michigan Supreme Court Chief Justice announces she is stepping down](https://www.yahoo.com/news/michigan-supreme-court-chief-justice-233716021.html)
 - Feb 19 - [A Mississippi judge ordered a newspaper to remove an editorial. Press advocates are outraged](https://www.yahoo.com/news/mississippi-judge-ordered-newspaper-remove-233648461.html)
+- Feb 19 - [Los Angeles news anchor’s cause of death deemed an accident](https://www.yahoo.com/news/los-angeles-news-anchor-cause-233534465.html)
+- Feb 19 - [Trump says he's considering returning 20% of DOGE savings to Americans](https://www.yahoo.com/news/trump-says-hes-considering-returning-230212911.html)
 <!-- feed end -->
 
 ### Onstream
