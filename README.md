@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [What did China's tech entrepreneurs tell Xi Jinping at the symposium?](https://finance.yahoo.com/news/did-chinas-tech-entrepreneurs-tell-093000233.html)
-- Feb 21 - [Israeli PM Netanyahu says Hamas will pay for not returning Shiri Bibas](https://www.yahoo.com/news/israeli-pm-netanyahu-says-hamas-070050946.html)
+- Feb 21 - [GOP Rep. Rich McCormick Faces Furious Locals in Town Hall Event Gone Wrong](https://www.yahoo.com/news/gop-rep-rich-mccormick-faces-044356470.html)
 - Feb 21 - ['Not A Lot Of People Are Going To Stand Up To Him. I Don't Care,' Says Billionaire Mark Cuban On Why He's Not Afraid To Call Out Elon Musk](https://finance.yahoo.com/news/not-lot-people-going-stand-030047987.html)
 - Feb 21 - [Huawei founder told Xi China's concerns about lack of chips have eased, state media says](https://www.yahoo.com/tech/huawei-founder-told-xi-chinas-015107584.html)
+- Feb 21 - [‘Looks like that's that.’ Trump may have just ended the Florida governor’s race.](https://www.yahoo.com/news/looks-thats-trump-may-just-003414859.html)
 - Feb 21 - [Since Anyone Can Rename Geographical Landmarks Now, MapQuest Made It Stupidly Easy For You](https://www.yahoo.com/entertainment/since-anyone-rename-geographical-landmarks-000008722.html)
 <!-- feed end -->
 
