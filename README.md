@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - ['I Did The Math, Sean': James Carville Hits Hannity With Searing Fact Check On Live TV](https://www.yahoo.com/news/did-math-sean-james-carville-095528739.html)
+- Feb 21 - [Delta releases info about crew for flight that crashed, flipped in Toronto](https://www.yahoo.com/news/delta-releases-crew-flight-crashed-025000464.html)
+- Feb 21 - [Mortgage and refinance rates today, February 21, 2025: The 30-year rate falls 11 basis points in a month](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-february-21-2025-110049933.html)
 - Feb 21 - [Spring break warning: Most unlikely American tourist hot spots emerge as deadly risk](https://www.yahoo.com/news/spring-break-warning-most-unlikely-090022329.html)
-- Feb 21 - [Plane passenger refuses to move from seat she took, faces instant karma](https://www.yahoo.com/lifestyle/plane-passenger-refuses-move-seat-222232646.html)
-- Feb 21 - [Trump’s attempts to denigrate Zelenskyy have led to a surge in Ukrainian unity](https://www.yahoo.com/news/ukrainians-rally-around-president-trump-050623362.html)
-- Feb 21 - [Buick frozen in White Bear Lake goes viral on social media](https://www.yahoo.com/lifestyle/buick-frozen-white-bear-lake-034847189.html)
+- Feb 21 - [Hidden for centuries, Chinese treasures finally see the light of day](https://www.yahoo.com/news/hidden-centuries-chinese-treasures-finally-082853791.html)
+- Feb 21 - [Huawei founder told Xi China's concerns about lack of chips have eased, state media says](https://www.yahoo.com/tech/huawei-founder-told-xi-chinas-015107584.html)
 <!-- feed end -->
 
 ### Onstream
