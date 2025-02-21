@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [Nvidia: Why markets may shrug off chipmaker's Q4 results](https://finance.yahoo.com/video/nvidia-why-markets-may-shrug-184714468.html)
+- Feb 21 - [Comparing AI chatbots: ChatGPT, Gemini, Claude, Grok](https://finance.yahoo.com/video/comparing-ai-chatbots-chatgpt-gemini-184108051.html)
 - Feb 21 - [Condemned South Carolina killer chooses to be executed by firing squad](https://www.yahoo.com/news/condemned-south-carolina-killer-chooses-174849329.html)
-- Feb 21 - [Nvidia's Blackwell demand, govt. AI spend key areas for Q4 results](https://finance.yahoo.com/video/nvidias-blackwell-demand-govt-ai-174654771.html)
-- Feb 21 - [The Ozempic shortage is over, a big threat to off-brand weight loss drug sellers](https://www.yahoo.com/news/ozempic-shortage-over-big-threat-173741827.html)
-- Feb 21 - [Sean Combs Attorney Steps Down, Says There Are “No Circumstances” In Which He Can Represent Diddy](https://www.yahoo.com/news/sean-combs-attorney-steps-down-165445043.html)
-- Feb 21 - [Supreme Court deals a severe blow to Holocaust survivors' lawsuit against Hungary](https://www.yahoo.com/news/supreme-court-deals-severe-blow-164437329.html)
+- Feb 21 - [UnitedHealth Crashes 9% as DOJ Investigation Uncovers Billion-Dollar Medicare Billing Scandal](https://finance.yahoo.com/news/unitedhealth-crashes-9-doj-investigation-172538104.html)
+- Feb 21 - [Mexico reviewing request from cartel leader jailed in the US to be sent back](https://www.yahoo.com/news/mexico-reviewing-request-cartel-leader-172348430.html)
 <!-- feed end -->
 
 ### Onstream
