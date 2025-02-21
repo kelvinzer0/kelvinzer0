@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [Stunning Moment Snowplow Flies Down Street Caught on Home Security Camera](https://www.yahoo.com/news/stunning-moment-snowplow-flies-down-161848520.html)
-- Feb 21 - [Consumer sentiment drops to 64.7 in February: UMich](https://finance.yahoo.com/video/consumer-sentiment-drops-64-7-154445231.html)
-- Feb 21 - [Flight crew member arrested at Boston’s Logan Airport to face a judge](https://www.yahoo.com/news/flight-crew-member-arrested-boston-151551542.html)
-- Feb 21 - [In Russian town, monument to fallen soldiers shows toll of three years of war](https://www.yahoo.com/news/russian-town-monument-fallen-soldiers-122230861.html)
-- Feb 21 - [Meta approves bonuses of up to 200% of company executives’ salaries a week after laying off 3,600 employees](https://finance.yahoo.com/news/meta-approves-bonuses-200-company-120523678.html)
+- Feb 21 - [Condemned South Carolina killer chooses to be executed by firing squad](https://www.yahoo.com/news/condemned-south-carolina-killer-chooses-174849329.html)
+- Feb 21 - [Nvidia's Blackwell demand, govt. AI spend key areas for Q4 results](https://finance.yahoo.com/video/nvidias-blackwell-demand-govt-ai-174654771.html)
+- Feb 21 - [The Ozempic shortage is over, a big threat to off-brand weight loss drug sellers](https://www.yahoo.com/news/ozempic-shortage-over-big-threat-173741827.html)
+- Feb 21 - [Sean Combs Attorney Steps Down, Says There Are “No Circumstances” In Which He Can Represent Diddy](https://www.yahoo.com/news/sean-combs-attorney-steps-down-165445043.html)
+- Feb 21 - [Supreme Court deals a severe blow to Holocaust survivors' lawsuit against Hungary](https://www.yahoo.com/news/supreme-court-deals-severe-blow-164437329.html)
 <!-- feed end -->
 
 ### Onstream
