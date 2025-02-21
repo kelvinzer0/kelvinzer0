@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [GOP Rep. Rich McCormick Faces Furious Locals in Town Hall Event Gone Wrong](https://www.yahoo.com/news/gop-rep-rich-mccormick-faces-044356470.html)
-- Feb 21 - ['Not A Lot Of People Are Going To Stand Up To Him. I Don't Care,' Says Billionaire Mark Cuban On Why He's Not Afraid To Call Out Elon Musk](https://finance.yahoo.com/news/not-lot-people-going-stand-030047987.html)
-- Feb 21 - [Huawei founder told Xi China's concerns about lack of chips have eased, state media says](https://www.yahoo.com/tech/huawei-founder-told-xi-chinas-015107584.html)
-- Feb 21 - [‘Looks like that's that.’ Trump may have just ended the Florida governor’s race.](https://www.yahoo.com/news/looks-thats-trump-may-just-003414859.html)
-- Feb 21 - [Since Anyone Can Rename Geographical Landmarks Now, MapQuest Made It Stupidly Easy For You](https://www.yahoo.com/entertainment/since-anyone-rename-geographical-landmarks-000008722.html)
+- Feb 21 - ['I Did The Math, Sean': James Carville Hits Hannity With Searing Fact Check On Live TV](https://www.yahoo.com/news/did-math-sean-james-carville-095528739.html)
+- Feb 21 - [Spring break warning: Most unlikely American tourist hot spots emerge as deadly risk](https://www.yahoo.com/news/spring-break-warning-most-unlikely-090022329.html)
+- Feb 21 - [Plane passenger refuses to move from seat she took, faces instant karma](https://www.yahoo.com/lifestyle/plane-passenger-refuses-move-seat-222232646.html)
+- Feb 21 - [Trump’s attempts to denigrate Zelenskyy have led to a surge in Ukrainian unity](https://www.yahoo.com/news/ukrainians-rally-around-president-trump-050623362.html)
+- Feb 21 - [Buick frozen in White Bear Lake goes viral on social media](https://www.yahoo.com/lifestyle/buick-frozen-white-bear-lake-034847189.html)
 <!-- feed end -->
 
 ### Onstream
