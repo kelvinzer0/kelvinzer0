@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [‘Looks like that's that.’ Trump may have just ended the Florida governor’s race.](https://www.yahoo.com/news/looks-thats-trump-may-just-003414859.html)
+- Feb 20 - [Plane passenger refuses to move from seat she took, faces instant karma](https://www.yahoo.com/lifestyle/plane-passenger-refuses-move-seat-222232646.html)
 - Feb 20 - [Dr. Mehmet Oz holds millions from companies that he'd wield power over if confirmed, report shows](https://www.yahoo.com/news/dr-mehmet-oz-holds-millions-221856888.html)
 - Feb 20 - [Former Colorado sheriff’s deputy convicted of homicide in shooting death of man in crisis](https://www.yahoo.com/news/former-colorado-sheriff-deputy-convicted-215044840.html)
-- Feb 20 - [Trump official calls Social Security ‘wrong’ as administration lays groundwork for massive cuts](https://www.yahoo.com/news/trump-official-calls-social-security-192404146.html)
 - Feb 20 - [Trump administration throws out protections from deportation for roughly half a million Haitians](https://www.yahoo.com/news/trump-administration-throws-protections-deportation-212958954.html)
-- Feb 20 - [7 Subtle Signs That Show You a Person Has a Lot of Money in the Bank](https://finance.yahoo.com/news/7-subtle-signs-show-person-210044714.html)
 <!-- feed end -->
 
 ### Onstream
