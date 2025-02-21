@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [Markets: Are semiconductor companies due for a shift in 2025?](https://finance.yahoo.com/video/markets-semiconductor-companies-due-shift-212659895.html)
+- Feb 21 - [A top US Navy shipbuilder says the problem isn't that the industry doesn't know how to build warships](https://www.yahoo.com/news/top-us-navy-shipbuilder-says-214621544.html)
+- Feb 21 - [Gambling Stock Up 94% Since June; Company Announces Record Preliminary Q4 Revenue](https://www.investors.com/stock-lists/sector-leaders/gambling-stock-gamb-record-revenue/?src=A00220&yptr=yahoo)
 - Feb 21 - [Maddow Blog | Rachel Maddow: Republicans silent after Trump reportedly slashes funds for Alzheimer’s center](https://www.yahoo.com/news/maddow-blog-rachel-maddow-republicans-202017034.html)
 - Feb 21 - [The Dow plunges 750 points as bad economic news piles up fast](https://finance.yahoo.com/news/dow-plunged-400-points-unitedhealth-161000364.html)
-- Feb 21 - [A South Carolina man is sentenced to life after confession on stand also led to his friend's arrest](https://www.yahoo.com/news/south-carolina-man-sentenced-life-201603395.html)
-- Feb 21 - [Hawaii beachside resort rocked by explosion, injuring at least 7 people](https://www.yahoo.com/news/hawaii-beachside-resort-rocked-explosion-200647782.html)
+- Feb 21 - [The Fed has pulled 'a rabbit out of a hat,' strategist says](https://finance.yahoo.com/video/fed-pulled-rabbit-hat-strategist-210342321.html)
 <!-- feed end -->
 
 ### Onstream
