@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [Donald Trump Shades Musk: ‘What the F*** Is Wrong With Him?’](https://www.yahoo.com/news/donald-trump-shades-musk-f-193326676.html)
-- Feb 21 - [Nvidia: Why markets may shrug off chipmaker's Q4 results](https://finance.yahoo.com/video/nvidia-why-markets-may-shrug-184714468.html)
-- Feb 21 - [Trump Blows Up After Onslaught of Devastating Polls](https://www.yahoo.com/news/trump-blows-onslaught-devastating-polls-173815941.html)
-- Feb 21 - [Mexico reviewing request from cartel leader jailed in the US to be sent back](https://www.yahoo.com/news/mexico-reviewing-request-cartel-leader-172348430.html)
-- Feb 21 - [Authorities arrest JetBlue pilot at Boston's Logan Airport](https://www.yahoo.com/news/authorities-arrest-jetblue-pilot-bostons-171254791.html)
+- Feb 21 - [Maddow Blog | Rachel Maddow: Republicans silent after Trump reportedly slashes funds for Alzheimer’s center](https://www.yahoo.com/news/maddow-blog-rachel-maddow-republicans-202017034.html)
+- Feb 21 - [A South Carolina man is sentenced to life after confession on stand also led to his friend's arrest](https://www.yahoo.com/news/south-carolina-man-sentenced-life-201603395.html)
+- Feb 21 - ["Not going to shoot from the hip": Federal judge refuses to drop NYC Mayor Adams' corruption case](https://www.yahoo.com/news/not-going-shoot-hip-federal-200417989.html)
+- Feb 21 - [The Controversial Chain Restaurant That Could Soon Go Bankrupt](https://www.yahoo.com/lifestyle/controversial-chain-restaurant-could-soon-192350119.html)
+- Feb 21 - [Condemned South Carolina killer chooses to be executed by firing squad](https://www.yahoo.com/news/condemned-south-carolina-killer-chooses-174849329.html)
 <!-- feed end -->
 
 ### Onstream
