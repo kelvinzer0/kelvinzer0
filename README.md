@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [Netanyahu vows to make Hamas pay for no returning body of Israeli hostage Shiri Bibas](https://www.yahoo.com/news/netanyahu-vows-hamas-pay-no-131953192.html)
+- Feb 21 - [Gold on pace to clock in eighth week of gains: What to know](https://finance.yahoo.com/video/gold-pace-clock-eighth-week-143806927.html)
+- Feb 21 - [UnitedHealth shares dive after report of US investigation into Medicare billing](https://finance.yahoo.com/news/unitedhealth-shares-dive-report-us-133625844.html)
+- Feb 21 - [In Russian town, monument to fallen soldiers shows toll of three years of war](https://www.yahoo.com/news/russian-town-monument-fallen-soldiers-122230861.html)
+- Feb 21 - [China unveils two groundbreaking projects that drastically slash travel times — and they're packed with cutting-edge tech](https://www.yahoo.com/tech/china-unveils-two-groundbreaking-projects-114500979.html)
 - Feb 21 - [Scientists make shocking discovery after interviewing fishermen at Panama Canal: 'We'll just keep running out of them'](https://www.yahoo.com/news/scientists-shocking-discovery-interviewing-fishermen-113003544.html)
-- Feb 21 - [Mortgage and refinance rates today, February 21, 2025: The 30-year rate falls 11 basis points in a month](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-february-21-2025-110049933.html)
-- Feb 21 - [Scientists make unexpected discovery beneath mountain range: 'We really are only beginning to understand it'](https://www.yahoo.com/news/scientists-unexpected-discovery-beneath-mountain-110046897.html)
-- Feb 21 - ['I Did The Math, Sean': James Carville Hits Hannity With Searing Fact Check On Live TV](https://www.yahoo.com/news/did-math-sean-james-carville-095528739.html)
 <!-- feed end -->
 
 ### Onstream
