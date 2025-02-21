@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [Gold on pace to clock in eighth week of gains: What to know](https://finance.yahoo.com/video/gold-pace-clock-eighth-week-143806927.html)
-- Feb 21 - [UnitedHealth shares dive after report of US investigation into Medicare billing](https://finance.yahoo.com/news/unitedhealth-shares-dive-report-us-133625844.html)
+- Feb 21 - [Consumer sentiment drops to 64.7 in February: UMich](https://finance.yahoo.com/video/consumer-sentiment-drops-64-7-154445231.html)
+- Feb 21 - [NHTSA Finally Releases Cybertruck Crash Test, Just Don't Ask About Pedestrian Safety](https://autos.yahoo.com/nhtsa-finally-releases-cybertruck-crash-152405826.html)
+- Feb 21 - [Warren Buffett Just Issued His Most Daunting Warning to Wall Street Yet. It Couldn't Be Any Clearer](https://finance.yahoo.com/news/warren-buffett-just-issued-most-143000078.html)
 - Feb 21 - [In Russian town, monument to fallen soldiers shows toll of three years of war](https://www.yahoo.com/news/russian-town-monument-fallen-soldiers-122230861.html)
-- Feb 21 - [China unveils two groundbreaking projects that drastically slash travel times — and they're packed with cutting-edge tech](https://www.yahoo.com/tech/china-unveils-two-groundbreaking-projects-114500979.html)
 - Feb 21 - [Scientists make shocking discovery after interviewing fishermen at Panama Canal: 'We'll just keep running out of them'](https://www.yahoo.com/news/scientists-shocking-discovery-interviewing-fishermen-113003544.html)
 <!-- feed end -->
 
