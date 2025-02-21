@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [What did China's tech entrepreneurs tell Xi Jinping at the symposium?](https://finance.yahoo.com/news/did-chinas-tech-entrepreneurs-tell-093000233.html)
 - Feb 21 - [Israeli PM Netanyahu says Hamas will pay for not returning Shiri Bibas](https://www.yahoo.com/news/israeli-pm-netanyahu-says-hamas-070050946.html)
+- Feb 21 - ['Not A Lot Of People Are Going To Stand Up To Him. I Don't Care,' Says Billionaire Mark Cuban On Why He's Not Afraid To Call Out Elon Musk](https://finance.yahoo.com/news/not-lot-people-going-stand-030047987.html)
+- Feb 21 - [Huawei founder told Xi China's concerns about lack of chips have eased, state media says](https://www.yahoo.com/tech/huawei-founder-told-xi-chinas-015107584.html)
 - Feb 21 - [Since Anyone Can Rename Geographical Landmarks Now, MapQuest Made It Stupidly Easy For You](https://www.yahoo.com/entertainment/since-anyone-rename-geographical-landmarks-000008722.html)
-- Feb 20 - [Woman Was Alleged Victim of Murder-for-Hire Plot](https://www.yahoo.com/news/woman-alleged-victim-murder-hire-225002183.html)
-- Feb 20 - [Dr. Mehmet Oz holds millions from companies that he'd wield power over if confirmed, report shows](https://www.yahoo.com/news/dr-mehmet-oz-holds-millions-221856888.html)
-- Feb 20 - [Trump official calls Social Security ‘wrong’ as administration lays groundwork for massive cuts](https://www.yahoo.com/news/trump-official-calls-social-security-192404146.html)
 <!-- feed end -->
 
 ### Onstream
