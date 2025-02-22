@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 21 - [Woman accused of drugging and robbing older men in a deadly romance scheme](https://www.yahoo.com/news/woman-accused-drugging-robbing-older-215713931.html)
 - Feb 21 - [A top US Navy shipbuilder says the problem isn't that the industry doesn't know how to build warships](https://www.yahoo.com/news/top-us-navy-shipbuilder-says-214621544.html)
 - Feb 21 - [Maddow Blog | Rachel Maddow: Republicans silent after Trump reportedly slashes funds for Alzheimer’s center](https://www.yahoo.com/news/maddow-blog-rachel-maddow-republicans-202017034.html)
-- Feb 21 - [A South Carolina man is sentenced to life after confession on stand also led to his friend's arrest](https://www.yahoo.com/news/south-carolina-man-sentenced-life-201603395.html)
+- Feb 21 - [Bystander Saves Abandoned Dog Trying to 'Disappear Into the Pavement' from Kids Pelting the Pet with Rocks](https://www.yahoo.com/lifestyle/bystander-saves-abandoned-dog-trying-211007479.html)
 <!-- feed end -->
 
 ### Onstream
