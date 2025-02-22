@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Parents Say Son, 13, Died After Attempting Dangerous Social Media Challenge: ‘We Remain Paralyzed in Thought and Sorrow’](https://www.yahoo.com/entertainment/parents-son-13-died-attempting-200733315.html)
+- Feb 22 - [Police officer killed, 5 other people wounded after gunman holds Pennsylvania hospital staff hostage, officials say](https://www.yahoo.com/news/police-officer-killed-pennsylvania-hospital-200205502.html)
+- Feb 22 - [Elon Musk Says Federal Employees Will Receive an Email ‘Requesting to Understand What They Got Done Last Week’](https://www.yahoo.com/news/elon-musk-says-federal-employees-221428214.html)
 - Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
 - Feb 22 - [This NATO ally will ‘buy, buy, buy’ more weapons as quickly as possible after intelligence report says Russia may start a war in Europe in a few years](https://www.yahoo.com/news/nato-ally-buy-buy-buy-174149642.html)
 - Feb 22 - [He was once Elon Musk's biggest believer. Now he's doubling down on why Tesla stock will feel serious pain in 2025.](https://finance.yahoo.com/news/once-elon-musks-biggest-believer-090001869.html)
-- Feb 22 - [Thieves used a stolen card to buy a $523,000 lottery ticket. The victim wants to share the winnings](https://www.yahoo.com/news/thieves-used-stolen-card-buy-145346935.html)
 <!-- feed end -->
 
 ### Onstream
