@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Unity price target raised to $32 from $26 at Morgan Stanley](https://finance.yahoo.com/news/unity-price-target-raised-32-134613950.html)
+- Feb 22 - [APA (NASDAQ:APA) Is Paying Out A Dividend Of $0.25](https://finance.yahoo.com/news/apa-nasdaq-apa-paying-dividend-143335524.html)
+- Feb 22 - [Warren Buffett offers Donald Trump some advice while celebrating Berkshire Hathaway's success](https://finance.yahoo.com/news/warren-buffett-celebrates-berkshire-hathaways-135912493.html)
+- Feb 22 - [Forget egg prices! There's 1 more grocery staple that sits near record highs at $11.97 per pound](https://finance.yahoo.com/news/forget-egg-prices-theres-1-111300821.html)
 - Feb 22 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-080003456.html)
-- Feb 22 - [Author of Upcoming Elon Musk Biography Says ‘There Is No Evidence’ Billionaire Has Any ‘Intellectual Achievements’](https://www.yahoo.com/news/author-upcoming-elon-musk-biography-040538098.html)
-- Feb 22 - [Several injured in Hawaii beachfront explosion](https://www.yahoo.com/news/several-injured-hawaii-beachfront-explosion-030706793.html)
-- Feb 22 - [FOUND: Victim and suspect in statewide amber alert have been located](https://www.yahoo.com/news/amber-alert-1-old-danger-021646947.html)
+- Feb 22 - [Press Secretary Bites Back at Jim Acosta: ‘At Least I Have a Job’](https://www.yahoo.com/news/press-secretary-bites-back-jim-054846064.html)
 <!-- feed end -->
 
 ### Onstream
