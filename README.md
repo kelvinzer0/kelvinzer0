@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [Warren Buffett offers Donald Trump some advice while celebrating Berkshire Hathaway's success](https://finance.yahoo.com/news/warren-buffett-celebrates-berkshire-hathaways-135912493.html)
 - Feb 22 - [2 Virginia Beach police officers killed in shooting after traffic stop](https://www.yahoo.com/news/1-virginia-beach-police-officer-123700523.html)
-- Feb 22 - [5 Things To Know About Your 401(k) To Avoid a Retirement Disaster, According to Jaspreet Singh](https://finance.yahoo.com/news/5-things-know-401-k-120029468.html)
+- Feb 22 - [Costco opening 6 new US stores next month, plus another in April: Here's when and where](https://finance.yahoo.com/news/costco-opening-6-us-stores-115822611.html)
 - Feb 22 - [Forget egg prices! There's 1 more grocery staple that sits near record highs at $11.97 per pound](https://finance.yahoo.com/news/forget-egg-prices-theres-1-111300821.html)
 - Feb 22 - [Scientists issue warning over bizarre phenomenon spotted in Alaskan rivers: 'Have to be stained a lot...'](https://www.yahoo.com/news/scientists-issue-warning-over-bizarre-110010033.html)
-- Feb 22 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-080003456.html)
 <!-- feed end -->
 
 ### Onstream
