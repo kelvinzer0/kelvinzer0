@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Trump fires chairman of the Joint Chiefs of Staff and two other military officers](https://www.yahoo.com/news/trump-fires-chairman-joint-chiefs-004046181.html)
+- Feb 22 - [These Are The Most Dangerous Foods In Your Refrigerator, According To Foodborne Illness Experts](https://www.yahoo.com/lifestyle/most-dangerous-foods-refrigerator-according-041602471.html)
+- Feb 22 - [Several injured in Hawaii beachfront explosion](https://www.yahoo.com/news/several-injured-hawaii-beachfront-explosion-030706793.html)
+- Feb 22 - [Endangered bighorn sheep spotted in downtown Palm Springs. Here's what to do if they return](https://www.yahoo.com/news/endangered-bighorn-sheep-spotted-downtown-005626072.html)
 - Feb 22 - [Delta Passenger Who Survived Upside Down Crash Landing in Toronto Sues Airline: 'Drenched With Jet Fuel'](https://www.yahoo.com/entertainment/delta-passenger-survived-upside-down-002139166.html)
 - Feb 21 - [Woman accused of drugging and robbing older men in a deadly romance scheme](https://www.yahoo.com/news/woman-accused-drugging-robbing-older-215713931.html)
-- Feb 21 - [A top US Navy shipbuilder says the problem isn't that the industry doesn't know how to build warships](https://www.yahoo.com/news/top-us-navy-shipbuilder-says-214621544.html)
-- Feb 21 - [Maddow Blog | Rachel Maddow: Republicans silent after Trump reportedly slashes funds for Alzheimer’s center](https://www.yahoo.com/news/maddow-blog-rachel-maddow-republicans-202017034.html)
 <!-- feed end -->
 
 ### Onstream
