@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Warren Buffett offers Donald Trump some advice while celebrating Berkshire Hathaway's success](https://finance.yahoo.com/news/warren-buffett-celebrates-berkshire-hathaways-135912493.html)
-- Feb 22 - [2 Virginia Beach police officers killed in shooting after traffic stop](https://www.yahoo.com/news/1-virginia-beach-police-officer-123700523.html)
-- Feb 22 - [Costco opening 6 new US stores next month, plus another in April: Here's when and where](https://finance.yahoo.com/news/costco-opening-6-us-stores-115822611.html)
-- Feb 22 - [Forget egg prices! There's 1 more grocery staple that sits near record highs at $11.97 per pound](https://finance.yahoo.com/news/forget-egg-prices-theres-1-111300821.html)
-- Feb 22 - [Scientists issue warning over bizarre phenomenon spotted in Alaskan rivers: 'Have to be stained a lot...'](https://www.yahoo.com/news/scientists-issue-warning-over-bizarre-110010033.html)
+- Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
+- Feb 22 - [One killed and police seriously injured in ‘Islamist terror attack’ in France](https://www.yahoo.com/news/one-dead-police-officers-injured-170139083.html)
+- Feb 22 - [Bernie Sanders Warns: If Elon Musk Can Fire Hundreds Of Thousands Of Federal Employees, Imagine What He'll Do To Private Sector Workers](https://finance.yahoo.com/news/bernie-sanders-warns-elon-musk-170018305.html)
+- Feb 22 - [Scottish and UK governments both urged to ‘stand by’ Grangemouth workers](https://finance.yahoo.com/news/scottish-uk-governments-both-urged-144125014.html)
+- Feb 22 - [Thieves used a stolen card to buy a $523,000 lottery ticket. The victim wants to share the winnings](https://www.yahoo.com/news/thieves-used-stolen-card-buy-145346935.html)
 <!-- feed end -->
 
 ### Onstream
