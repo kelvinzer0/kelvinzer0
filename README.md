@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [Ector County Felony Dispositions & Indictments: February 21, 2025](https://www.yahoo.com/news/ector-county-felony-dispositions-indictments-010300008.html)
+- Feb 21 - [Woman accused of drugging and robbing older men in a deadly romance scheme](https://www.yahoo.com/news/woman-accused-drugging-robbing-older-215713931.html)
 - Feb 21 - [A top US Navy shipbuilder says the problem isn't that the industry doesn't know how to build warships](https://www.yahoo.com/news/top-us-navy-shipbuilder-says-214621544.html)
-- Feb 21 - [Gambling Stock Up 94% Since June; Company Announces Record Preliminary Q4 Revenue](https://www.investors.com/stock-lists/sector-leaders/gambling-stock-gamb-record-revenue/?src=A00220&yptr=yahoo)
 - Feb 21 - [Maddow Blog | Rachel Maddow: Republicans silent after Trump reportedly slashes funds for Alzheimer’s center](https://www.yahoo.com/news/maddow-blog-rachel-maddow-republicans-202017034.html)
 - Feb 21 - [The Dow plunges 750 points as bad economic news piles up fast](https://finance.yahoo.com/news/dow-plunged-400-points-unitedhealth-161000364.html)
-- Feb 21 - [The Fed has pulled 'a rabbit out of a hat,' strategist says](https://finance.yahoo.com/video/fed-pulled-rabbit-hat-strategist-210342321.html)
 <!-- feed end -->
 
 ### Onstream
