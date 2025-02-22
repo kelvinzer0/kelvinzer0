@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Shilo Sanders' bankruptcy case stuck in dispute over his privacy: 'Ball of chaos'](https://www.yahoo.com/news/shilo-sanders-bankruptcy-case-stuck-120252907.html)
-- Feb 22 - [Will President Trump's Tariffs Cause the S&P 500 to Plunge? Here's What 1 Top Wall Street Analyst Thinks.](https://finance.yahoo.com/news/president-trumps-tariffs-cause-p-104900000.html)
-- Feb 22 - [Why This High-Yield Dividend Stock Should Be Your First Choice for a Sustainable Income Stream](https://finance.yahoo.com/news/why-high-yield-dividend-stock-103800452.html)
+- Feb 22 - [Mortgage and refinance rates today, February 22, 2025: Lowest 30-year rate since December](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-february-22-2025-110019897.html)
 - Feb 22 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-080003456.html)
+- Feb 22 - [Las Vegas woman allegedly drugged, fleeced older men she met on dating apps](https://www.yahoo.com/news/las-vegas-woman-allegedly-drugged-055627777.html)
 - Feb 22 - [Author of Upcoming Elon Musk Biography Says ‘There Is No Evidence’ Billionaire Has Any ‘Intellectual Achievements’](https://www.yahoo.com/news/author-upcoming-elon-musk-biography-040538098.html)
+- Feb 22 - [Hamas frees five hostages in Gaza after body of Shiri Bibas returned](https://www.yahoo.com/news/israel-prepares-receive-six-more-001616972.html)
 <!-- feed end -->
 
 ### Onstream
