@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [APA (NASDAQ:APA) Is Paying Out A Dividend Of $0.25](https://finance.yahoo.com/news/apa-nasdaq-apa-paying-dividend-143335524.html)
-- Feb 22 - [Warren Buffett offers Donald Trump some advice while celebrating Berkshire Hathaway's success](https://finance.yahoo.com/news/warren-buffett-celebrates-berkshire-hathaways-135912493.html)
+- Feb 22 - [2 Virginia Beach police officers killed in shooting after traffic stop](https://www.yahoo.com/news/1-virginia-beach-police-officer-123700523.html)
+- Feb 22 - [5 Things To Know About Your 401(k) To Avoid a Retirement Disaster, According to Jaspreet Singh](https://finance.yahoo.com/news/5-things-know-401-k-120029468.html)
 - Feb 22 - [Forget egg prices! There's 1 more grocery staple that sits near record highs at $11.97 per pound](https://finance.yahoo.com/news/forget-egg-prices-theres-1-111300821.html)
+- Feb 22 - [Scientists issue warning over bizarre phenomenon spotted in Alaskan rivers: 'Have to be stained a lot...'](https://www.yahoo.com/news/scientists-issue-warning-over-bizarre-110010033.html)
 - Feb 22 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-080003456.html)
-- Feb 22 - [Press Secretary Bites Back at Jim Acosta: ‘At Least I Have a Job’](https://www.yahoo.com/news/press-secretary-bites-back-jim-054846064.html)
 <!-- feed end -->
 
 ### Onstream
