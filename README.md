@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [A renowned market strategist who called the dot-com bubble warns US stocks are at 'serious risk' as tech analyst optimism starts to sour](https://finance.yahoo.com/news/renowned-market-strategist-called-dot-180001099.html)
 - Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
-- Feb 22 - [Bernie Sanders Warns: If Elon Musk Can Fire Hundreds Of Thousands Of Federal Employees, Imagine What He'll Do To Private Sector Workers](https://finance.yahoo.com/news/bernie-sanders-warns-elon-musk-170018305.html)
+- Feb 22 - [This NATO ally will ‘buy, buy, buy’ more weapons as quickly as possible after intelligence report says Russia may start a war in Europe in a few years](https://www.yahoo.com/news/nato-ally-buy-buy-buy-174149642.html)
 - Feb 22 - [President Zelensky is not accepting the proposed U.S. deal](https://www.yahoo.com/news/president-zelensky-not-accepting-proposed-164356638.html)
 - Feb 22 - [Thieves used a stolen card to buy a $523,000 lottery ticket. The victim wants to share the winnings](https://www.yahoo.com/news/thieves-used-stolen-card-buy-145346935.html)
-- Feb 22 - [Warren Buffett offers Donald Trump some advice while celebrating Berkshire Hathaway's success](https://finance.yahoo.com/news/warren-buffett-celebrates-berkshire-hathaways-135912493.html)
 <!-- feed end -->
 
 ### Onstream
