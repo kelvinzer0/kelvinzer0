@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Mortgage and refinance rates today, February 22, 2025: Lowest 30-year rate since December](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-february-22-2025-110019897.html)
+- Feb 22 - [Unity price target raised to $32 from $26 at Morgan Stanley](https://finance.yahoo.com/news/unity-price-target-raised-32-134613950.html)
 - Feb 22 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/rfk-jr-stunning-claim-black-080003456.html)
-- Feb 22 - [Las Vegas woman allegedly drugged, fleeced older men she met on dating apps](https://www.yahoo.com/news/las-vegas-woman-allegedly-drugged-055627777.html)
 - Feb 22 - [Author of Upcoming Elon Musk Biography Says ‘There Is No Evidence’ Billionaire Has Any ‘Intellectual Achievements’](https://www.yahoo.com/news/author-upcoming-elon-musk-biography-040538098.html)
-- Feb 22 - [Hamas frees five hostages in Gaza after body of Shiri Bibas returned](https://www.yahoo.com/news/israel-prepares-receive-six-more-001616972.html)
+- Feb 22 - [Several injured in Hawaii beachfront explosion](https://www.yahoo.com/news/several-injured-hawaii-beachfront-explosion-030706793.html)
+- Feb 22 - [FOUND: Victim and suspect in statewide amber alert have been located](https://www.yahoo.com/news/amber-alert-1-old-danger-021646947.html)
 <!-- feed end -->
 
 ### Onstream
