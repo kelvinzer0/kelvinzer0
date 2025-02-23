@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Elon Musk Faces Suits From Ashley St. Clair Over Paternity and Custody of Their Alleged Child](https://www.yahoo.com/news/elon-musk-faces-suits-ashley-040959259.html)
-- Feb 23 - [Japan's emperor marks his 65th birthday with a call to keep telling the tragedy of WWII to the young](https://www.yahoo.com/news/japans-emperor-marks-65th-birthday-035422862.html)
-- Feb 23 - [Puyallup Police investigate human bone fragments found near railroad tracks](https://www.yahoo.com/news/puyallup-police-investigate-human-bone-030738207.html)
+- Feb 23 - [Isabel Padilla Isabel Padilla, age 96, passed away on](https://www.yahoo.com/lifestyle/isabel-padilla-isabel-padilla-age-040900342.html)
+- Feb 23 - [Former LAFD Chief Kristin Crowley issues statement after removal](https://www.yahoo.com/news/former-lafd-chief-kristin-crowley-001116164.html)
+- Feb 22 - [Musk orders US federal workers to report on work by Monday or resign](https://www.yahoo.com/news/musk-orders-us-federal-workers-213635585.html)
 - Feb 22 - [This NATO ally will ‘buy, buy, buy’ more weapons as quickly as possible after intelligence report says Russia may start a war in Europe in a few years](https://www.yahoo.com/news/nato-ally-buy-buy-buy-174149642.html)
 - Feb 22 - [President Zelensky is not accepting the proposed U.S. deal](https://www.yahoo.com/news/president-zelensky-not-accepting-proposed-164356638.html)
 <!-- feed end -->
