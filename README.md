@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Can RFK Jr. Really Take Away ADHD Medications?](https://www.yahoo.com/news/rfk-jr-really-away-adhd-152947023.html)
+- Feb 23 - [Key agencies, including some led by Trump loyalists, refuse to comply with Musk's latest demand](https://www.yahoo.com/news/key-agencies-including-led-trump-173333630.html)
+- Feb 23 - [American Airlines flight from New York to Delhi lands safely in Rome after security concern](https://www.yahoo.com/news/american-airlines-flight-york-delhi-164403264.html)
+- Feb 23 - [3 Artificial Intelligence (AI) Stocks That I'm Buying and Holding Forever](https://finance.yahoo.com/news/3-artificial-intelligence-ai-stocks-161600167.html)
 - Feb 23 - [Louisiana man with execution date next month dies at Angola](https://www.yahoo.com/news/louisiana-man-execution-date-next-151417891.html)
-- Feb 23 - [Zelensky offers to step down as president in exchange for peace](https://www.yahoo.com/news/zelensky-offers-step-down-president-150022656.html)
-- Feb 23 - [One ridiculous chart on Nvidia ahead of earnings](https://finance.yahoo.com/news/one-ridiculous-chart-on-nvidia-ahead-of-earnings-133020976.html)
 - Feb 23 - [47 ships rerouted to Suez Canal this month, chairman says](https://www.yahoo.com/news/47-ships-rerouted-suez-canal-122357208.html)
 <!-- feed end -->
 
