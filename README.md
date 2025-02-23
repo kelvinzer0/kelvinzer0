@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [BBC bosses to demand answers over Gaza film’s Hamas link](https://www.yahoo.com/news/bbc-bosses-demand-answers-over-131330654.html)
-- Feb 23 - [One ridiculous chart on Nvidia ahead of earnings](https://finance.yahoo.com/news/one-ridiculous-chart-on-nvidia-ahead-of-earnings-133020976.html)
-- Feb 23 - [Murphy defends Sinn Féin's White House boycott](https://www.yahoo.com/news/murphy-defends-sinn-f-ins-125325561.html)
+- Feb 23 - [Rumble and Trump Media file motion in US court over decision by Brazilian judge](https://www.yahoo.com/tech/rumble-trump-media-file-motion-145230703.html)
+- Feb 23 - [NC homebuilder ordered to pay $250K or go to jail — how one couple’s dream home became a violation-riddled nightmare](https://www.yahoo.com/news/nc-homebuilder-ordered-pay-250k-130500916.html)
 - Feb 23 - [Tennessee woman banned from every Walmart in U.S. in self-checkout scam contributing to national shoplifting crisis](https://www.yahoo.com/news/tennessee-woman-banned-every-walmart-123000403.html)
 - Feb 23 - [47 ships rerouted to Suez Canal this month, chairman says](https://www.yahoo.com/news/47-ships-rerouted-suez-canal-122357208.html)
+- Feb 23 - [Joy Reid and Alex Wagner Axed From MSNBC Lineup in Major Network Shakeup](https://www.yahoo.com/news/msnbc-chief-plans-evening-shake-100000799.html)
 <!-- feed end -->
 
 ### Onstream
