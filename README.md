@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 23 - [Joy Reid and Alex Wagner Axed From MSNBC Lineup in Major Network Shakeup](https://www.yahoo.com/news/msnbc-chief-plans-evening-shake-100000799.html)
 - Feb 23 - [Wounded, recovered and back to war. Ukrainian soldiers are returning to battle after amputation](https://www.yahoo.com/news/wounded-recovered-back-war-ukrainian-050400225.html)
 - Feb 23 - [Viral video shows massive brawl at Atlanta airport boarding gate](https://www.yahoo.com/news/viral-video-shows-massive-brawl-033837981.html)
 - Feb 22 - [Strange Metal From Beyond Our World Found in an Ancient Treasure Stash](https://www.yahoo.com/news/strange-metal-beyond-world-found-222912850.html)
-- Feb 22 - [Dolly Parton Responded to Indiana’s Threat To Cut Funding of Her Children’s Literacy Program With This Smart Instagram Move](https://www.yahoo.com/news/dolly-parton-responded-indiana-threat-180000175.html)
-- Feb 22 - [Utah CEO killed in helicopter crash in Idaho](https://www.yahoo.com/news/utah-ceo-killed-helicopter-crash-174629793.html)
+- Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
 <!-- feed end -->
 
 ### Onstream
