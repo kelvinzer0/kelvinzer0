@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Joby Aviation: Buy, Sell, or Hold?](https://finance.yahoo.com/news/joby-aviation-buy-sell-hold-100000508.html)
 - Feb 23 - [Wounded, recovered and back to war. Ukrainian soldiers are returning to battle after amputation](https://www.yahoo.com/news/wounded-recovered-back-war-ukrainian-050400225.html)
+- Feb 23 - [Viral video shows massive brawl at Atlanta airport boarding gate](https://www.yahoo.com/news/viral-video-shows-massive-brawl-033837981.html)
 - Feb 23 - [Former LAFD Chief Kristin Crowley issues statement after removal](https://www.yahoo.com/news/former-lafd-chief-kristin-crowley-001116164.html)
+- Feb 22 - [Ashley St. Clair Says Elon Musk Messaged Her That They Have a 'Legion of Kids to Make' Months After Reported Son's Birth](https://www.yahoo.com/entertainment/ashley-st-clair-says-elon-233000933.html)
 - Feb 22 - [Strange Metal From Beyond Our World Found in an Ancient Treasure Stash](https://www.yahoo.com/news/strange-metal-beyond-world-found-222912850.html)
-- Feb 22 - [Parents Say Son, 13, Died After Attempting Dangerous Social Media Challenge: ‘We Remain Paralyzed in Thought and Sorrow’](https://www.yahoo.com/entertainment/parents-son-13-died-attempting-200733315.html)
 <!-- feed end -->
 
 ### Onstream
