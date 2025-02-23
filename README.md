@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Police officer killed, 5 other people wounded after gunman holds Pennsylvania hospital staff hostage, officials say](https://www.yahoo.com/news/police-officer-killed-pennsylvania-hospital-200205502.html)
-- Feb 22 - [Elon Musk Says Federal Employees Will Receive an Email ‘Requesting to Understand What They Got Done Last Week’](https://www.yahoo.com/news/elon-musk-says-federal-employees-221428214.html)
-- Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
-- Feb 22 - [This NATO ally will ‘buy, buy, buy’ more weapons as quickly as possible after intelligence report says Russia may start a war in Europe in a few years](https://www.yahoo.com/news/nato-ally-buy-buy-buy-174149642.html)
-- Feb 22 - [He was once Elon Musk's biggest believer. Now he's doubling down on why Tesla stock will feel serious pain in 2025.](https://finance.yahoo.com/news/once-elon-musks-biggest-believer-090001869.html)
+- Feb 22 - [Musk orders US federal workers to report on work by Monday or resign](https://www.yahoo.com/news/musk-orders-us-federal-workers-213635585.html)
+- Feb 22 - [Utah CEO killed in helicopter crash in Idaho](https://www.yahoo.com/news/utah-ceo-killed-helicopter-crash-174629793.html)
+- Feb 22 - [President Zelensky is not accepting the proposed U.S. deal](https://www.yahoo.com/news/president-zelensky-not-accepting-proposed-164356638.html)
+- Feb 22 - [Warren Buffett offers Donald Trump some advice while celebrating Berkshire Hathaway's success](https://finance.yahoo.com/news/warren-buffett-celebrates-berkshire-hathaways-135912493.html)
+- Feb 22 - [Costco opening 6 new US stores next month, plus another in April: Here's when and where](https://finance.yahoo.com/news/costco-opening-6-us-stores-115822611.html)
 <!-- feed end -->
 
 ### Onstream
