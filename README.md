@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Ukraine can fight until end-2025 with European support, Poland says](https://www.yahoo.com/news/ukraine-fight-until-end-2025-155602044.html)
 - Feb 23 - [Can RFK Jr. Really Take Away ADHD Medications?](https://www.yahoo.com/news/rfk-jr-really-away-adhd-152947023.html)
-- Feb 23 - [Zizians crime rampage: How six deaths in three states came to be linked to a cult-like group](https://www.yahoo.com/news/zizians-crime-rampage-six-deaths-150243456.html)
 - Feb 23 - [Zelensky offers to step down as president in exchange for peace](https://www.yahoo.com/news/zelensky-offers-step-down-president-150022656.html)
 - Feb 23 - [One ridiculous chart on Nvidia ahead of earnings](https://finance.yahoo.com/news/one-ridiculous-chart-on-nvidia-ahead-of-earnings-133020976.html)
+- Feb 23 - [Exclusive-Trump administration directs ICE agents to find, deport unaccompanied migrant children](https://www.yahoo.com/news/exclusive-trump-administration-directs-ice-130545717.html)
+- Feb 23 - [47 ships rerouted to Suez Canal this month, chairman says](https://www.yahoo.com/news/47-ships-rerouted-suez-canal-122357208.html)
 <!-- feed end -->
 
 ### Onstream
