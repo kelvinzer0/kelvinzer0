@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Joy Reid and Alex Wagner Axed From MSNBC Lineup in Major Network Shakeup](https://www.yahoo.com/news/msnbc-chief-plans-evening-shake-100000799.html)
-- Feb 23 - [Wounded, recovered and back to war. Ukrainian soldiers are returning to battle after amputation](https://www.yahoo.com/news/wounded-recovered-back-war-ukrainian-050400225.html)
-- Feb 23 - [Viral video shows massive brawl at Atlanta airport boarding gate](https://www.yahoo.com/news/viral-video-shows-massive-brawl-033837981.html)
-- Feb 22 - [Strange Metal From Beyond Our World Found in an Ancient Treasure Stash](https://www.yahoo.com/news/strange-metal-beyond-world-found-222912850.html)
-- Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
+- Feb 23 - [BBC bosses to demand answers over Gaza film’s Hamas link](https://www.yahoo.com/news/bbc-bosses-demand-answers-over-131330654.html)
+- Feb 23 - [One ridiculous chart on Nvidia ahead of earnings](https://finance.yahoo.com/news/one-ridiculous-chart-on-nvidia-ahead-of-earnings-133020976.html)
+- Feb 23 - [Murphy defends Sinn Féin's White House boycott](https://www.yahoo.com/news/murphy-defends-sinn-f-ins-125325561.html)
+- Feb 23 - [Tennessee woman banned from every Walmart in U.S. in self-checkout scam contributing to national shoplifting crisis](https://www.yahoo.com/news/tennessee-woman-banned-every-walmart-123000403.html)
+- Feb 23 - [47 ships rerouted to Suez Canal this month, chairman says](https://www.yahoo.com/news/47-ships-rerouted-suez-canal-122357208.html)
 <!-- feed end -->
 
 ### Onstream
