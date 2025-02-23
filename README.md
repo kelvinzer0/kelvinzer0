@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Musk orders US federal workers to report on work by Monday or resign](https://www.yahoo.com/news/musk-orders-us-federal-workers-213635585.html)
-- Feb 22 - [Parents Say Son, 13, Died After Attempting Dangerous Social Media Challenge: ‘We Remain Paralyzed in Thought and Sorrow’](https://www.yahoo.com/entertainment/parents-son-13-died-attempting-200733315.html)
+- Feb 23 - [JD Vance becomes latest victim in MAGA's anti-DEI crusade](https://www.yahoo.com/news/jd-vance-becomes-latest-victim-021435117.html)
+- Feb 22 - [Ashley St. Clair Says Elon Musk Messaged Her That They Have a 'Legion of Kids to Make' Months After Reported Son's Birth](https://www.yahoo.com/entertainment/ashley-st-clair-says-elon-233000933.html)
 - Feb 22 - [This NATO ally will ‘buy, buy, buy’ more weapons as quickly as possible after intelligence report says Russia may start a war in Europe in a few years](https://www.yahoo.com/news/nato-ally-buy-buy-buy-174149642.html)
 - Feb 22 - [President Zelensky is not accepting the proposed U.S. deal](https://www.yahoo.com/news/president-zelensky-not-accepting-proposed-164356638.html)
 - Feb 22 - [Warren Buffett offers Donald Trump some advice while celebrating Berkshire Hathaway's success](https://finance.yahoo.com/news/warren-buffett-celebrates-berkshire-hathaways-135912493.html)
