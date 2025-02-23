@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [The Most Common COVID Symptoms Doctors Are Seeing In Winter 2025](https://www.yahoo.com/lifestyle/most-common-covid-symptoms-doctors-080007128.html)
+- Feb 23 - [Wounded, recovered and back to war. Ukrainian soldiers are returning to battle after amputation](https://www.yahoo.com/news/wounded-recovered-back-war-ukrainian-050400225.html)
 - Feb 23 - [Former LAFD Chief Kristin Crowley issues statement after removal](https://www.yahoo.com/news/former-lafd-chief-kristin-crowley-001116164.html)
+- Feb 22 - [Strange Metal From Beyond Our World Found in an Ancient Treasure Stash](https://www.yahoo.com/news/strange-metal-beyond-world-found-222912850.html)
 - Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
-- Feb 22 - [President Zelensky is not accepting the proposed U.S. deal](https://www.yahoo.com/news/president-zelensky-not-accepting-proposed-164356638.html)
-- Feb 22 - [Astronomers discover 'Quipu,' the single largest structure in the known universe](https://www.yahoo.com/news/astronomers-discover-quipu-single-largest-150000428.html)
+- Feb 22 - [This NATO ally will ‘buy, buy, buy’ more weapons as quickly as possible after intelligence report says Russia may start a war in Europe in a few years](https://www.yahoo.com/news/nato-ally-buy-buy-buy-174149642.html)
 <!-- feed end -->
 
 ### Onstream
