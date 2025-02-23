@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Baby Rhino Frolicking Like Puppy Is Moment of Pure Joy Everyone Needs](https://www.yahoo.com/lifestyle/baby-rhino-frolicking-puppy-moment-183951949.html)
-- Feb 23 - [Key agencies, including some led by Trump loyalists, refuse to comply with Musk's latest demand](https://www.yahoo.com/news/key-agencies-including-led-trump-173333630.html)
-- Feb 23 - [American Airlines flight from New York to Delhi lands safely in Rome after security concern](https://www.yahoo.com/news/american-airlines-flight-york-delhi-164403264.html)
-- Feb 23 - [Is TotalEnergies SE (TTE) The Best Oil Refinery Stock To Invest In According to Analysts?](https://finance.yahoo.com/news/totalenergies-se-tte-best-oil-144122795.html)
-- Feb 23 - [A Post By A MAGA Supporter Who Said They Were Laid Off Because Of Trump's Cuts Is Going Mega-Viral](https://www.yahoo.com/news/post-maga-supporter-said-were-130016062.html)
+- Feb 23 - [Body found in search for missing jogger](https://www.yahoo.com/news/body-found-search-missing-jogger-163902432.html)
+- Feb 23 - [International reaction to German election](https://www.yahoo.com/news/international-reaction-germanys-election-194005032.html)
+- Feb 23 - [Airport Brawl Video — Showing Many People Punching and Kicking Each Other Near Spirit Airlines Boarding Area — Goes Viral](https://www.yahoo.com/entertainment/airport-brawl-video-showing-many-192923126.html)
+- Feb 23 - [Netanyahu says Israel won't allow Syrian forces 'south of Damascus'](https://www.yahoo.com/news/netanyahu-says-israel-wont-allow-180616812.html)
+- Feb 23 - [Key federal agencies refuse to comply with Musk's latest demand in his cost-cutting crusade](https://www.yahoo.com/news/key-agencies-including-led-trump-173333630.html)
 <!-- feed end -->
 
 ### Onstream
