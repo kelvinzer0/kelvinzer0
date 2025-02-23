@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 23 - [Former LAFD Chief Kristin Crowley issues statement after removal](https://www.yahoo.com/news/former-lafd-chief-kristin-crowley-001116164.html)
-- Feb 22 - [Ashley St. Clair Says Elon Musk Messaged Her That They Have a 'Legion of Kids to Make' Months After Reported Son's Birth](https://www.yahoo.com/entertainment/ashley-st-clair-says-elon-233000933.html)
 - Feb 22 - [Musk orders US federal workers to report on work by Monday or resign](https://www.yahoo.com/news/musk-orders-us-federal-workers-213635585.html)
+- Feb 22 - [At Least 3 People Killed and 79 Injured After Roof Collapses at Shopping Mall: Reports](https://www.yahoo.com/entertainment/least-3-people-killed-79-175201490.html)
 - Feb 22 - [This NATO ally will ‘buy, buy, buy’ more weapons as quickly as possible after intelligence report says Russia may start a war in Europe in a few years](https://www.yahoo.com/news/nato-ally-buy-buy-buy-174149642.html)
 - Feb 22 - [President Zelensky is not accepting the proposed U.S. deal](https://www.yahoo.com/news/president-zelensky-not-accepting-proposed-164356638.html)
 <!-- feed end -->
