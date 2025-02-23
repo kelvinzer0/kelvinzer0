@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 23 - [Baby Rhino Frolicking Like Puppy Is Moment of Pure Joy Everyone Needs](https://www.yahoo.com/lifestyle/baby-rhino-frolicking-puppy-moment-183951949.html)
 - Feb 23 - [Key agencies, including some led by Trump loyalists, refuse to comply with Musk's latest demand](https://www.yahoo.com/news/key-agencies-including-led-trump-173333630.html)
 - Feb 23 - [American Airlines flight from New York to Delhi lands safely in Rome after security concern](https://www.yahoo.com/news/american-airlines-flight-york-delhi-164403264.html)
-- Feb 23 - [3 Artificial Intelligence (AI) Stocks That I'm Buying and Holding Forever](https://finance.yahoo.com/news/3-artificial-intelligence-ai-stocks-161600167.html)
-- Feb 23 - [Louisiana man with execution date next month dies at Angola](https://www.yahoo.com/news/louisiana-man-execution-date-next-151417891.html)
-- Feb 23 - [47 ships rerouted to Suez Canal this month, chairman says](https://www.yahoo.com/news/47-ships-rerouted-suez-canal-122357208.html)
+- Feb 23 - [Is TotalEnergies SE (TTE) The Best Oil Refinery Stock To Invest In According to Analysts?](https://finance.yahoo.com/news/totalenergies-se-tte-best-oil-144122795.html)
+- Feb 23 - [A Post By A MAGA Supporter Who Said They Were Laid Off Because Of Trump's Cuts Is Going Mega-Viral](https://www.yahoo.com/news/post-maga-supporter-said-were-130016062.html)
 <!-- feed end -->
 
 ### Onstream
