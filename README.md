@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 23 - [Moldova urges clergy to "tell the truth" about Ukraine war](https://www.yahoo.com/news/moldova-urges-clergy-tell-truth-213716451.html)
 - Feb 23 - [Body found in search for missing jogger](https://www.yahoo.com/news/body-found-search-missing-jogger-163902432.html)
 - Feb 23 - [International reaction to German election](https://www.yahoo.com/news/international-reaction-germanys-election-194005032.html)
-- Feb 23 - [Airport Brawl Video — Showing Many People Punching and Kicking Each Other Near Spirit Airlines Boarding Area — Goes Viral](https://www.yahoo.com/entertainment/airport-brawl-video-showing-many-192923126.html)
-- Feb 23 - [Netanyahu says Israel won't allow Syrian forces 'south of Damascus'](https://www.yahoo.com/news/netanyahu-says-israel-wont-allow-180616812.html)
-- Feb 23 - [Key federal agencies refuse to comply with Musk's latest demand in his cost-cutting crusade](https://www.yahoo.com/news/key-agencies-including-led-trump-173333630.html)
+- Feb 23 - [Baby Rhino Frolicking Like Puppy Is Moment of Pure Joy Everyone Needs](https://www.yahoo.com/lifestyle/baby-rhino-frolicking-puppy-moment-183951949.html)
+- Feb 23 - [Snow plows clear wall of snow in Oswego County, New York](https://www.yahoo.com/news/snow-plows-clear-wall-snow-182916635.html)
 <!-- feed end -->
 
 ### Onstream
