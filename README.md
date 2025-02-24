@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [American Airlines flight from NYC to India diverted over threat: Here's what we know](https://www.yahoo.com/news/american-airlines-flight-nyc-india-134818983.html)
-- Feb 24 - [Dow Jones Futures Rise; Nvidia In Focus After Palantir, Axon Lead Market Sell-Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-palantir-axon-tesla-sell-off/?src=A00220&yptr=yahoo)
-- Feb 24 - [I Tried Using My Mobile Hotspot at Home. Here’s Everything That Went Wrong](https://www.yahoo.com/tech/tried-using-mobile-hotspot-home-130000861.html)
-- Feb 24 - [A Brooklyn auto shop held a man's SUV for two years as the man got more than $2K in parking fines. Here's what went down](https://www.yahoo.com/news/brooklyn-auto-shop-held-mans-124500413.html)
-- Feb 24 - [Tesla, Ford, Toyota, Maserati among over 850,000 vehicles recalled: Check car recalls here](https://autos.yahoo.com/tesla-ford-toyota-maserati-among-115441139.html)
+- Feb 24 - [7 Tax Loopholes the Rich Use To Pay Less and Build More Wealth](https://finance.yahoo.com/news/7-tax-loopholes-rich-pay-170045762.html)
+- Feb 24 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-134338069.html)
+- Feb 24 - [Hamburger Mary’s restaurant announces details on new Central Florida location](https://www.yahoo.com/lifestyle/hamburger-mary-restaurant-announces-details-133528636.html)
+- Feb 24 - [When Warren Buffett bought an obscure RV maker he promised to pay the CEO whatever he asked—it’s not a tactic Buffett recommends, but the gamble paid off](https://finance.yahoo.com/news/warren-buffett-bought-obscure-rv-114931035.html)
+- Feb 24 - [Amid Trump’s threats to deport workers, Wisconsin dairy farmers travel to Mexico](https://www.yahoo.com/news/amid-trump-threats-deport-workers-114538492.html)
 <!-- feed end -->
 
 ### Onstream
