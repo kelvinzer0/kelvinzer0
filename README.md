@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [German far-right AfD's leaders to run for another term in leadership](https://www.yahoo.com/news/german-far-afds-leaders-run-121845484.html)
-- Feb 24 - [‘I feel trapped’: how home ownership has become a nightmare for many Americans](https://www.yahoo.com/news/feel-trapped-home-ownership-become-120056938.html)
+- Feb 24 - [American Airlines flight from NYC to India diverted over threat: Here's what we know](https://www.yahoo.com/news/american-airlines-flight-nyc-india-134818983.html)
+- Feb 24 - [Dow Jones Futures Rise; Nvidia In Focus After Palantir, Axon Lead Market Sell-Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-nvidia-palantir-axon-tesla-sell-off/?src=A00220&yptr=yahoo)
+- Feb 24 - [I Tried Using My Mobile Hotspot at Home. Here’s Everything That Went Wrong](https://www.yahoo.com/tech/tried-using-mobile-hotspot-home-130000861.html)
+- Feb 24 - [A Brooklyn auto shop held a man's SUV for two years as the man got more than $2K in parking fines. Here's what went down](https://www.yahoo.com/news/brooklyn-auto-shop-held-mans-124500413.html)
 - Feb 24 - [Tesla, Ford, Toyota, Maserati among over 850,000 vehicles recalled: Check car recalls here](https://autos.yahoo.com/tesla-ford-toyota-maserati-among-115441139.html)
-- Feb 24 - [Police could immediately remove squatters occupying vacant property under Iowa House bill](https://www.yahoo.com/news/police-could-immediately-remove-squatters-115015969.html)
-- Feb 24 - [Warren Buffett Sends a Dire $134 Billion Warning to Wall Street. History Says the Stock Market Will Do This Next.](https://finance.yahoo.com/news/warren-buffett-sends-dire-134-085100859.html)
 <!-- feed end -->
 
 ### Onstream
