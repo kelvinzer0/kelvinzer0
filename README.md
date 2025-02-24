@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Three years of war in Ukraine: Ask our world affairs editor anything](https://www.yahoo.com/news/three-years-war-ukraine-ask-154507184.html)
-- Feb 24 - [Fans love the 'super fast' Samsung Galaxy Tab A9+ — and it's over $50 off](https://www.yahoo.com/tech/fans-love-the-super-fast-samsung-galaxy-tab-a9--and-its-over-50-off-152306629.html)
-- Feb 24 - [New EU sanctions target airlines operating domestic flights in Russia](https://www.yahoo.com/news/eu-sanctions-target-airlines-operating-152104997.html)
-- Feb 24 - [Mother in custody after teen daughter with autism found dead and ‘mummified’ in their home](https://www.yahoo.com/news/mother-custody-teen-daughter-autism-150338068.html)
-- Feb 24 - [US Supreme Court rejects RFK Jr's challenge to New York ballot rules](https://www.yahoo.com/news/us-supreme-court-rejects-rfk-150228997.html)
+- Feb 24 - [How Germany voted: Election results map shows far-right AfD surge in East as CDU win most seats](https://www.yahoo.com/news/mapped-german-election-results-far-162126896.html)
+- Feb 24 - [Violent neo-Nazi group is silently rebuilding in the US and telling followers there are ‘only military solutions’](https://www.yahoo.com/news/violent-neo-nazi-group-silently-164053431.html)
+- Feb 24 - [Lester Holt to Exit ‘NBC Nightly News’ After Decade Behind the Desk](https://www.yahoo.com/news/lester-holt-exit-nbc-nightly-160500104.html)
+- Feb 24 - [Don't Miss Apple's Latest 10th-Gen iPad for Just $279 in 4 Stunning Colors](https://www.yahoo.com/tech/dont-miss-apples-latest-10th-155825741.html)
+- Feb 24 - [‘Devastating’: Mass. school district mourning unexpected death of fifth-grade student](https://www.yahoo.com/news/devastating-mass-school-district-mourning-150726611.html)
 <!-- feed end -->
 
 ### Onstream
