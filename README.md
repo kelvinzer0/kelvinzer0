@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Marseille Russian consulate explosion: Three Molotov cocktails thrown in attack branded ‘terrorism’ by Moscow](https://www.yahoo.com/news/marseille-russian-consulate-explosion-branded-085827729.html)
-- Feb 24 - [Debatable: Is Trump’s ‘Fork in the Road’ program legal?](https://www.yahoo.com/news/debatable-trump-fork-road-program-104451516.html)
-- Feb 24 - [What to know about bird flu in greater Gardner: Tips to keep your backyard chickens safe](https://www.yahoo.com/news/know-bird-flu-greater-gardner-095553383.html)
-- Feb 24 - [FD: Firefighter injured, roof collapses in Division Avenue fire](https://www.yahoo.com/news/fd-firefighter-injured-roof-collapses-040341627.html)
-- Feb 24 - [Ex-Secret Service agent and conservative media personality Dan Bongino picked as FBI deputy director](https://www.yahoo.com/news/ex-secret-agent-conservative-media-023434361.html)
+- Feb 24 - [BLM secures $20.67m from quarterly oil and gas lease sale](https://finance.yahoo.com/news/blm-secures-20-67m-quarterly-114753860.html)
+- Feb 24 - [Children face lethal violence, rape in east Congo war](https://www.yahoo.com/news/children-face-lethal-violence-rape-114650530.html)
+- Feb 24 - [BBC must say if it gave licence fee money to Hamas for documentary, says Badenoch](https://www.yahoo.com/news/bbc-must-gave-licence-fee-110036836.html)
+- Feb 24 - [Ukrainian emigres face uncertain future in Manitoba on anniversary of invasion](https://www.yahoo.com/news/ukrainian-emigres-face-uncertain-future-110006999.html)
+- Feb 24 - [China's new 'artificial sun' sets world record — here's how it could change energy production forever](https://www.yahoo.com/tech/chinas-artificial-sun-sets-world-103029425.html)
 <!-- feed end -->
 
 ### Onstream
