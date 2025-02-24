@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [7 Tax Loopholes the Rich Use To Pay Less and Build More Wealth](https://finance.yahoo.com/news/7-tax-loopholes-rich-pay-170045762.html)
-- Feb 24 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-134338069.html)
-- Feb 24 - [Hamburger Mary’s restaurant announces details on new Central Florida location](https://www.yahoo.com/lifestyle/hamburger-mary-restaurant-announces-details-133528636.html)
-- Feb 24 - [When Warren Buffett bought an obscure RV maker he promised to pay the CEO whatever he asked—it’s not a tactic Buffett recommends, but the gamble paid off](https://finance.yahoo.com/news/warren-buffett-bought-obscure-rv-114931035.html)
-- Feb 24 - [Amid Trump’s threats to deport workers, Wisconsin dairy farmers travel to Mexico](https://www.yahoo.com/news/amid-trump-threats-deport-workers-114538492.html)
+- Feb 24 - [Three years of war in Ukraine: Ask our world affairs editor anything](https://www.yahoo.com/news/three-years-war-ukraine-ask-154507184.html)
+- Feb 24 - [Fans love the 'super fast' Samsung Galaxy Tab A9+ — and it's over $50 off](https://www.yahoo.com/tech/fans-love-the-super-fast-samsung-galaxy-tab-a9--and-its-over-50-off-152306629.html)
+- Feb 24 - [New EU sanctions target airlines operating domestic flights in Russia](https://www.yahoo.com/news/eu-sanctions-target-airlines-operating-152104997.html)
+- Feb 24 - [Mother in custody after teen daughter with autism found dead and ‘mummified’ in their home](https://www.yahoo.com/news/mother-custody-teen-daughter-autism-150338068.html)
+- Feb 24 - [US Supreme Court rejects RFK Jr's challenge to New York ballot rules](https://www.yahoo.com/news/us-supreme-court-rejects-rfk-150228997.html)
 <!-- feed end -->
 
 ### Onstream
