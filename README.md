@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 24 - [Ex-Secret Service agent and conservative media personality Dan Bongino picked as FBI deputy director](https://www.yahoo.com/news/ex-secret-agent-conservative-media-023434361.html)
-- Feb 24 - [Man arrested in Redlands shootings, burglaries](https://www.yahoo.com/news/man-arrested-redlands-shootings-burglaries-021616310.html)
-- Feb 24 - [Man rescued after reports of overturned boat on Arkansas River](https://www.yahoo.com/news/man-rescued-reports-overturned-boat-015700934.html)
-- Feb 24 - [American Airlines flight escorted by fighter jets and diverted after security scare](https://www.yahoo.com/news/american-airlines-flight-escorted-fighter-004822569.html)
+- Feb 24 - [I’m a Mechanic: 5 Hybrid Vehicles I Would Never Buy and Why They Aren’t Worth It](https://autos.yahoo.com/m-mechanic-5-hybrid-vehicles-010021918.html)
+- Feb 23 - [Warren Buffett Said He Could End U.S. Deficit In 5 Minutes: 'If You Guys Can't Get It Done, We'll Get Some Other Guys To Get It Done'](https://finance.yahoo.com/news/warren-buffett-said-could-end-233043535.html)
 - Feb 23 - [James Carville Makes Bold Prediction About When Trump’s White House Will ‘Collapse’](https://www.yahoo.com/news/james-carville-makes-bold-prediction-223752694.html)
+- Feb 23 - [Trump and Elon Musk are floating 'DOGE dividends.' Low-income Americans might not benefit.](https://www.yahoo.com/news/trump-elon-musk-floating-doge-220559174.html)
 <!-- feed end -->
 
 ### Onstream
