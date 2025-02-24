@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Kindle Users, Save Your Ebooks Before This Feature Disappears This Week](https://www.yahoo.com/tech/super-useful-kindle-feature-vanish-153746372.html)
+- Feb 24 - [Giuliani has fully satisfied Georgia election workers' $148 million judgment](https://www.yahoo.com/news/giuliani-fully-satisfied-georgia-election-194919826.html)
+- Feb 24 - [DeSantis promotes his wife as next Florida governor and takes a shot at Trump's pick](https://www.yahoo.com/news/desantis-promotes-wife-next-florida-193301015.html)
+- Feb 24 - [Ex-West Chester police officer avoids prison after interfering with death investigation](https://www.yahoo.com/news/ex-west-chester-police-officer-191925945.html)
+- Feb 24 - [Elon Musk Asks for Reason US Can’t Afford Healthcare — Mark Cuban Gives 7 (and a Solution)](https://finance.yahoo.com/news/elon-musk-asks-reason-us-190023168.html)
 - Feb 24 - [Clint Hill, Secret Service agent who leaped onto JFK's car after the president was shot, dies at 93](https://www.yahoo.com/news/clint-hill-secret-agent-leapt-183636236.html)
-- Feb 24 - [Irving Paper cuts operations in half, blames cost of electricity](https://www.yahoo.com/news/irving-paper-cuts-operations-half-182300523.html)
-- Feb 24 - [Violent neo-Nazi group is silently rebuilding in the US and telling followers there are ‘only military solutions’](https://www.yahoo.com/news/violent-neo-nazi-group-silently-164053742.html)
-- Feb 24 - [Fed expected to respond strongly to inflation, job market conditions, research shows](https://finance.yahoo.com/news/fed-expected-respond-strongly-inflation-180207403.html)
 <!-- feed end -->
 
 ### Onstream
