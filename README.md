@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 24 - [Florida sheriff puts seven cops on leave after bungled domestic violence response ends in triple homicide: ‘P*** poor’](https://www.yahoo.com/news/florida-sheriff-puts-seven-cops-010429287.html)
-- Feb 23 - [Warren Buffett Said He Could End U.S. Deficit In 5 Minutes: 'If You Guys Can't Get It Done, We'll Get Some Other Guys To Get It Done'](https://finance.yahoo.com/news/warren-buffett-said-could-end-233043535.html)
-- Feb 23 - [Trump and Elon Musk are floating 'DOGE dividends.' Low-income Americans might not benefit.](https://www.yahoo.com/news/trump-elon-musk-floating-doge-220559174.html)
+- Feb 23 - [Early Retiree Earning $20,000 a Month in Dividends Shares His Top 9 Stocks - 'Simply Taking a Chance On Leveling Up My Life'](https://finance.yahoo.com/news/early-retiree-earning-20-000-223014653.html)
 - Feb 23 - [Dementia risk could be lowered by doing this for 5 minutes a day: study](https://www.yahoo.com/news/dementia-risk-could-lowered-doing-214705985.html)
 - Feb 23 - [Moldova urges clergy to "tell the truth" about Ukraine war](https://www.yahoo.com/news/moldova-urges-clergy-tell-truth-213716451.html)
+- Feb 23 - [‘I’ve opened a hornet’s nest’: My mother-in-law lists my husband as beneficiary on her $1 million IRA. But her will says otherwise. Which wins?](https://finance.yahoo.com/news/ve-opened-hornet-nest-mother-232200981.html)
 <!-- feed end -->
 
 ### Onstream
