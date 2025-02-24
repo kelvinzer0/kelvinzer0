@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [How Germany voted: Election results map shows far-right AfD surge in East as CDU win most seats](https://www.yahoo.com/news/mapped-german-election-results-far-162126896.html)
-- Feb 24 - [Violent neo-Nazi group is silently rebuilding in the US and telling followers there are ‘only military solutions’](https://www.yahoo.com/news/violent-neo-nazi-group-silently-164053431.html)
-- Feb 24 - [Lester Holt to Exit ‘NBC Nightly News’ After Decade Behind the Desk](https://www.yahoo.com/news/lester-holt-exit-nbc-nightly-160500104.html)
-- Feb 24 - [Don't Miss Apple's Latest 10th-Gen iPad for Just $279 in 4 Stunning Colors](https://www.yahoo.com/tech/dont-miss-apples-latest-10th-155825741.html)
-- Feb 24 - [‘Devastating’: Mass. school district mourning unexpected death of fifth-grade student](https://www.yahoo.com/news/devastating-mass-school-district-mourning-150726611.html)
+- Feb 24 - [Violent neo-Nazi group is silently rebuilding in the US and telling followers there are ‘only military solutions’](https://www.yahoo.com/news/violent-neo-nazi-group-silently-164053742.html)
+- Feb 24 - [Nvidia-Backed Cohere's Revenue Surpasses $70 Million as AI Startup Weighs Employee Share Sales](https://finance.yahoo.com/news/nvidia-backed-coheres-revenue-surpasses-175021738.html)
+- Feb 24 - [Apple's Mac mini is one of the most affordable ways to get M4 power — and it just got cheaper thanks to this deal](https://www.yahoo.com/tech/apples-mac-mini-one-most-173527429.html)
+- Feb 24 - [Woman Dragged Out of Republican Town Hall After Asking Question](https://www.yahoo.com/news/woman-dragged-republican-town-hall-164340684.html)
+- Feb 24 - [Police use thermal imaging drone, K9 to track down driver who fled crash](https://www.yahoo.com/news/police-thermal-imaging-drone-k9-161517604.html)
 <!-- feed end -->
 
 ### Onstream
