@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 24 - [Florida sheriff puts seven cops on leave after bungled domestic violence response ends in triple homicide: ‘P*** poor’](https://www.yahoo.com/news/florida-sheriff-puts-seven-cops-010429287.html)
+- Feb 23 - [Warren Buffett Said He Could End U.S. Deficit In 5 Minutes: 'If You Guys Can't Get It Done, We'll Get Some Other Guys To Get It Done'](https://finance.yahoo.com/news/warren-buffett-said-could-end-233043535.html)
+- Feb 23 - [Trump and Elon Musk are floating 'DOGE dividends.' Low-income Americans might not benefit.](https://www.yahoo.com/news/trump-elon-musk-floating-doge-220559174.html)
+- Feb 23 - [Dementia risk could be lowered by doing this for 5 minutes a day: study](https://www.yahoo.com/news/dementia-risk-could-lowered-doing-214705985.html)
 - Feb 23 - [Moldova urges clergy to "tell the truth" about Ukraine war](https://www.yahoo.com/news/moldova-urges-clergy-tell-truth-213716451.html)
-- Feb 23 - [Dave Ramsey’s wife was once asked why she was with a man who won’t pay his bills — Here's what the money guru did](https://finance.yahoo.com/news/dave-ramsey-wife-once-asked-210000418.html)
-- Feb 23 - [International reaction to German election](https://www.yahoo.com/news/international-reaction-germanys-election-194005032.html)
-- Feb 23 - [Buick frozen in Minnesota lake goes viral on social media](https://www.yahoo.com/news/buick-frozen-minnesota-lake-goes-175941400.html)
-- Feb 23 - [Key federal agencies refuse to comply with Musk's latest demand in his cost-cutting crusade](https://www.yahoo.com/news/key-agencies-including-led-trump-173333630.html)
 <!-- feed end -->
 
 ### Onstream
