@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Oort cloud resembles a galaxy, new study finds](https://www.yahoo.com/news/oort-cloud-resembles-galaxy-study-024141382.html)
+- Feb 24 - [The Department of Defense is publicly telling staff to ignore the DOGE team's 'what did you do last week' email requests](https://www.yahoo.com/news/department-defense-publicly-telling-staff-033542992.html)
+- Feb 24 - [Four people pronounced dead at Bloomington, Illinois residence. Here's what we know](https://www.yahoo.com/news/four-people-pronounced-dead-bloomington-031146785.html)
 - Feb 24 - [Ex-Secret Service agent and conservative media personality Dan Bongino picked as FBI deputy director](https://www.yahoo.com/news/ex-secret-agent-conservative-media-023434361.html)
-- Feb 24 - [Dividend Stocks To Consider In February 2025](https://finance.yahoo.com/news/dividend-stocks-consider-february-2025-020205537.html)
-- Feb 23 - [Louisiana death row inmate Christopher Sepulvado dies before execution date](https://www.yahoo.com/news/louisiana-death-row-inmate-christopher-235534871.html)
+- Feb 23 - [James Carville Makes Bold Prediction About When Trump’s White House Will ‘Collapse’](https://www.yahoo.com/news/james-carville-makes-bold-prediction-223752694.html)
 - Feb 23 - [Dementia risk could be lowered by doing this for 5 minutes a day: study](https://www.yahoo.com/news/dementia-risk-could-lowered-doing-214705985.html)
 <!-- feed end -->
 
