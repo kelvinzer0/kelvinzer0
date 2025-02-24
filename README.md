@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 24 - [Giuliani has fully satisfied Georgia election workers' $148 million judgment](https://www.yahoo.com/news/giuliani-fully-satisfied-georgia-election-194919826.html)
+- Feb 24 - [I'm Laughing Uncontrollably At These 36 Hilarious Internet Fails From Last Week](https://www.yahoo.com/lifestyle/im-laughing-uncontrollably-36-hilarious-193626894.html)
 - Feb 24 - [DeSantis promotes his wife as next Florida governor and takes a shot at Trump's pick](https://www.yahoo.com/news/desantis-promotes-wife-next-florida-193301015.html)
-- Feb 24 - [Ex-West Chester police officer avoids prison after interfering with death investigation](https://www.yahoo.com/news/ex-west-chester-police-officer-191925945.html)
-- Feb 24 - [Elon Musk Asks for Reason US Can’t Afford Healthcare — Mark Cuban Gives 7 (and a Solution)](https://finance.yahoo.com/news/elon-musk-asks-reason-us-190023168.html)
-- Feb 24 - [Clint Hill, Secret Service agent who leaped onto JFK's car after the president was shot, dies at 93](https://www.yahoo.com/news/clint-hill-secret-agent-leapt-183636236.html)
+- Feb 24 - [‘Devastating’: Mass. school district mourning unexpected death of fifth-grade student](https://www.yahoo.com/news/devastating-mass-school-district-mourning-150726611.html)
+- Feb 24 - [SpaceX says Starship self-destructed after propellant leaks caused fires and comms blackout](https://finance.yahoo.com/news/spacex-says-starship-self-destructed-190539091.html)
 <!-- feed end -->
 
 ### Onstream
