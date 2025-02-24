@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [BLM secures $20.67m from quarterly oil and gas lease sale](https://finance.yahoo.com/news/blm-secures-20-67m-quarterly-114753860.html)
-- Feb 24 - [Children face lethal violence, rape in east Congo war](https://www.yahoo.com/news/children-face-lethal-violence-rape-114650530.html)
-- Feb 24 - [BBC must say if it gave licence fee money to Hamas for documentary, says Badenoch](https://www.yahoo.com/news/bbc-must-gave-licence-fee-110036836.html)
-- Feb 24 - [Ukrainian emigres face uncertain future in Manitoba on anniversary of invasion](https://www.yahoo.com/news/ukrainian-emigres-face-uncertain-future-110006999.html)
-- Feb 24 - [China's new 'artificial sun' sets world record — here's how it could change energy production forever](https://www.yahoo.com/tech/chinas-artificial-sun-sets-world-103029425.html)
+- Feb 24 - [German far-right AfD's leaders to run for another term in leadership](https://www.yahoo.com/news/german-far-afds-leaders-run-121845484.html)
+- Feb 24 - [‘I feel trapped’: how home ownership has become a nightmare for many Americans](https://www.yahoo.com/news/feel-trapped-home-ownership-become-120056938.html)
+- Feb 24 - [Tesla, Ford, Toyota, Maserati among over 850,000 vehicles recalled: Check car recalls here](https://autos.yahoo.com/tesla-ford-toyota-maserati-among-115441139.html)
+- Feb 24 - [Police could immediately remove squatters occupying vacant property under Iowa House bill](https://www.yahoo.com/news/police-could-immediately-remove-squatters-115015969.html)
+- Feb 24 - [Warren Buffett Sends a Dire $134 Billion Warning to Wall Street. History Says the Stock Market Will Do This Next.](https://finance.yahoo.com/news/warren-buffett-sends-dire-134-085100859.html)
 <!-- feed end -->
 
 ### Onstream
