@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 24 - [Marseille Russian consulate explosion branded ‘terrorist attack’ by Moscow](https://www.yahoo.com/news/marseille-russian-consulate-explosion-branded-085827729.html)
 - Feb 24 - [Ex-Secret Service agent and conservative media personality Dan Bongino picked as FBI deputy director](https://www.yahoo.com/news/ex-secret-agent-conservative-media-023434361.html)
+- Feb 24 - [I’m a Mechanic: 5 Hybrid Vehicles I Would Never Buy and Why They Aren’t Worth It](https://autos.yahoo.com/m-mechanic-5-hybrid-vehicles-010021918.html)
 - Feb 23 - [James Carville Makes Bold Prediction About When Trump’s White House Will ‘Collapse’](https://www.yahoo.com/news/james-carville-makes-bold-prediction-223752694.html)
-- Feb 23 - [Trump and Elon Musk are floating 'DOGE dividends.' Low-income Americans might not benefit.](https://www.yahoo.com/news/trump-elon-musk-floating-doge-220559174.html)
-- Feb 23 - [Dementia risk could be lowered by doing this for 5 minutes a day: study](https://www.yahoo.com/news/dementia-risk-could-lowered-doing-214705985.html)
-- Feb 23 - [Moldova urges clergy to "tell the truth" about Ukraine war](https://www.yahoo.com/news/moldova-urges-clergy-tell-truth-213716451.html)
+- Feb 23 - [‘She acted as a mother to me growing up’: My stepmother remarried after my father died. How can I claim my inheritance?](https://finance.yahoo.com/news/she-acted-mother-growing-stepmother-205300396.html)
 <!-- feed end -->
 
 ### Onstream
