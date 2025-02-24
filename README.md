@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Giuliani has fully satisfied Georgia election workers' $148 million judgment](https://www.yahoo.com/news/giuliani-fully-satisfied-georgia-election-194919826.html)
-- Feb 24 - [I'm Laughing Uncontrollably At These 36 Hilarious Internet Fails From Last Week](https://www.yahoo.com/lifestyle/im-laughing-uncontrollably-36-hilarious-193626894.html)
-- Feb 24 - [DeSantis promotes his wife as next Florida governor and takes a shot at Trump's pick](https://www.yahoo.com/news/desantis-promotes-wife-next-florida-193301015.html)
-- Feb 24 - [‘Devastating’: Mass. school district mourning unexpected death of fifth-grade student](https://www.yahoo.com/news/devastating-mass-school-district-mourning-150726611.html)
-- Feb 24 - [SpaceX says Starship self-destructed after propellant leaks caused fires and comms blackout](https://finance.yahoo.com/news/spacex-says-starship-self-destructed-190539091.html)
+- Feb 24 - [Reverse migration: Venezuelans head back toward South America after US dreams dashed](https://www.yahoo.com/news/reverse-migration-venezuelans-head-back-211846902.html)
+- Feb 24 - [Russia's Putin outlines aluminium, rare earth deals with the US](https://www.yahoo.com/news/russias-putin-outlines-aluminium-rare-210850477.html)
+- Feb 24 - [‘Wildcat’ strikes by New York prison guards continue into this week](https://www.yahoo.com/news/wildcat-strikes-york-prison-guards-205252347.html)
+- Feb 24 - [8 iPhone Settings to Change Immediately After Installing 18.3](https://www.yahoo.com/tech/ios-18-3-own-changing-111803007.html)
+- Feb 24 - [Thieves targeting freight trains in California and Arizona deserts make off with $2M worth of Nikes](https://www.yahoo.com/news/thieves-targeting-freight-trains-california-202626259.html)
 <!-- feed end -->
 
 ### Onstream
