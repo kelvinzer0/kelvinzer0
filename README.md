@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Marseille Russian consulate explosion branded ‘terrorist attack’ by Moscow](https://www.yahoo.com/news/marseille-russian-consulate-explosion-branded-085827729.html)
+- Feb 24 - [Marseille Russian consulate explosion: Three Molotov cocktails thrown in attack branded ‘terrorism’ by Moscow](https://www.yahoo.com/news/marseille-russian-consulate-explosion-branded-085827729.html)
+- Feb 24 - [Debatable: Is Trump’s ‘Fork in the Road’ program legal?](https://www.yahoo.com/news/debatable-trump-fork-road-program-104451516.html)
+- Feb 24 - [What to know about bird flu in greater Gardner: Tips to keep your backyard chickens safe](https://www.yahoo.com/news/know-bird-flu-greater-gardner-095553383.html)
+- Feb 24 - [FD: Firefighter injured, roof collapses in Division Avenue fire](https://www.yahoo.com/news/fd-firefighter-injured-roof-collapses-040341627.html)
 - Feb 24 - [Ex-Secret Service agent and conservative media personality Dan Bongino picked as FBI deputy director](https://www.yahoo.com/news/ex-secret-agent-conservative-media-023434361.html)
-- Feb 24 - [I’m a Mechanic: 5 Hybrid Vehicles I Would Never Buy and Why They Aren’t Worth It](https://autos.yahoo.com/m-mechanic-5-hybrid-vehicles-010021918.html)
-- Feb 23 - [James Carville Makes Bold Prediction About When Trump’s White House Will ‘Collapse’](https://www.yahoo.com/news/james-carville-makes-bold-prediction-223752694.html)
-- Feb 23 - [‘She acted as a mother to me growing up’: My stepmother remarried after my father died. How can I claim my inheritance?](https://finance.yahoo.com/news/she-acted-mother-growing-stepmother-205300396.html)
 <!-- feed end -->
 
 ### Onstream
