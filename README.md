@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Florida sheriff puts seven cops on leave after bungled domestic violence response ends in triple homicide: ‘P*** poor’](https://www.yahoo.com/news/florida-sheriff-puts-seven-cops-010429287.html)
-- Feb 23 - [Early Retiree Earning $20,000 a Month in Dividends Shares His Top 9 Stocks - 'Simply Taking a Chance On Leveling Up My Life'](https://finance.yahoo.com/news/early-retiree-earning-20-000-223014653.html)
+- Feb 24 - [Oort cloud resembles a galaxy, new study finds](https://www.yahoo.com/news/oort-cloud-resembles-galaxy-study-024141382.html)
+- Feb 24 - [Ex-Secret Service agent and conservative media personality Dan Bongino picked as FBI deputy director](https://www.yahoo.com/news/ex-secret-agent-conservative-media-023434361.html)
+- Feb 24 - [Dividend Stocks To Consider In February 2025](https://finance.yahoo.com/news/dividend-stocks-consider-february-2025-020205537.html)
+- Feb 23 - [Louisiana death row inmate Christopher Sepulvado dies before execution date](https://www.yahoo.com/news/louisiana-death-row-inmate-christopher-235534871.html)
 - Feb 23 - [Dementia risk could be lowered by doing this for 5 minutes a day: study](https://www.yahoo.com/news/dementia-risk-could-lowered-doing-214705985.html)
-- Feb 23 - [Moldova urges clergy to "tell the truth" about Ukraine war](https://www.yahoo.com/news/moldova-urges-clergy-tell-truth-213716451.html)
-- Feb 23 - [‘I’ve opened a hornet’s nest’: My mother-in-law lists my husband as beneficiary on her $1 million IRA. But her will says otherwise. Which wins?](https://finance.yahoo.com/news/ve-opened-hornet-nest-mother-232200981.html)
 <!-- feed end -->
 
 ### Onstream
