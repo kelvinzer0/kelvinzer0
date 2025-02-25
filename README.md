@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [What Feb. consumer confidence says about the labor market](https://finance.yahoo.com/video/feb-consumer-confidence-says-labor-162525579.html)
 - Feb 25 - [Yosemite Staff Hang Upside-Down US Flag to Protest Terminations](https://www.yahoo.com/news/yosemite-staff-members-hang-upside-161230150.html)
 - Feb 25 - [16-Year-Old Breaks Down in Court and Shouts 'I Love You, Mama' After Being Charged as an Adult for Murder](https://www.yahoo.com/entertainment/16-old-breaks-down-court-154007170.html)
-- Feb 25 - [Mag 7 nears correction territory ahead of Nvidia earnings](https://finance.yahoo.com/video/mag-7-nears-correction-territory-153500126.html)
-- Feb 25 - [Supreme Court throws out Oklahoma inmate Richard Glossip's murder conviction and death sentence](https://www.yahoo.com/news/supreme-court-throws-oklahoma-mans-150910200.html)
 - Feb 25 - [North Korea steals $1.5bn as it pulls off world’s biggest ever heist](https://www.yahoo.com/news/north-korea-plunders-world-crypto-144944458.html)
+- Feb 25 - [Donald Trump Accidentally Insults Himself: ‘Who Would Ever Sign A Thing Like This?’](https://www.yahoo.com/news/donald-trump-accidentally-insults-himself-142955248.html)
 <!-- feed end -->
 
 ### Onstream
