@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Rachel Maddow Calls Out MSNBC for Canceling Joy Reid’s Show: ‘Feels Indefensible’ | Video](https://www.yahoo.com/news/rachel-maddow-calls-msnbc-canceling-024326692.html)
-- Feb 24 - [LA traffic officer confronted at home by ICE agents who were ‘hesitant’ about showing warrant while citywide sweep fails to materialize](https://www.yahoo.com/news/la-traffic-cop-confronted-home-232007696.html)
+- Feb 25 - [Elevated parts of highway being built in South Korea collapses, killing 2 workers](https://www.yahoo.com/news/elevated-parts-highway-being-built-035002573.html)
+- Feb 25 - [26 Inconsiderate Customers Who Are So Awful, I Feel Bad For The Employees Who Had To Deal With Them](https://www.yahoo.com/lifestyle/26-inconsiderate-customers-awful-feel-033103481.html)
+- Feb 24 - [Hollywood’s Ozempic craze has ‘changed the narrative’ of body positivity as celebs are noticeably slimmer than ever](https://www.yahoo.com/lifestyle/hollywood-ozempic-craze-changed-narrative-231029921.html)
+- Feb 24 - [Jamie Dimon doubles down on RTO plans after testy town hall audio leak: 'We're going back to the office'](https://finance.yahoo.com/news/jamie-dimon-doubles-down-on-rto-plans-after-testy-town-hall-audio-leak-were-going-back-to-the-office-225247338.html)
 - Feb 24 - [Pennsylvania's governor says the Trump administration has unfrozen billions in grants and loans](https://www.yahoo.com/news/pennsylvanias-governor-says-trump-administration-220541422.html)
-- Feb 24 - [Motorcycle group of about 100 lift San Leandro railroad crossing arm; passenger dies](https://www.yahoo.com/news/motorcycle-group-100-lift-san-213550663.html)
-- Feb 24 - [Reverse migration: Venezuelans head back toward South America after US dreams dashed](https://www.yahoo.com/news/reverse-migration-venezuelans-head-back-211846902.html)
 <!-- feed end -->
 
 ### Onstream
