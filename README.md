@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Southport yoga teacher Leanne Lucas sobs remembering how online trolls blamed her for children’s deaths](https://www.yahoo.com/news/southport-yoga-teacher-leanne-lucas-221835366.html)
-- Feb 24 - [Reverse migration: Venezuelans head back toward South America after US dreams dashed](https://www.yahoo.com/news/reverse-migration-venezuelans-head-back-211846902.html)
-- Feb 24 - [Russia's Putin outlines aluminium, rare earth deals with the US](https://www.yahoo.com/news/russias-putin-outlines-aluminium-rare-210850477.html)
-- Feb 24 - [8 iPhone Settings to Change Immediately After Installing 18.3](https://www.yahoo.com/tech/ios-18-3-own-changing-111803007.html)
-- Feb 24 - [Thieves targeting freight trains in California and Arizona deserts make off with $2M worth of Nikes](https://www.yahoo.com/news/thieves-targeting-freight-trains-california-202626259.html)
+- Feb 25 - [Remaining assault, sexual assault charges stayed in case against former Yellowknife councillor](https://www.yahoo.com/news/remaining-assault-sexual-assault-charges-010143245.html)
+- Feb 25 - [Miami University and faculty union reach contract agreement after a year](https://www.yahoo.com/news/miami-university-faculty-union-reach-004404448.html)
+- Feb 24 - [Intel says new ASML machines are in production, with positive results](https://finance.yahoo.com/news/intel-says-first-two-asml-221529518.html)
+- Feb 24 - [Pennsylvania's governor says the Trump administration has unfrozen billions in grants and loans](https://www.yahoo.com/news/pennsylvanias-governor-says-trump-administration-220541422.html)
+- Feb 24 - [Sam’s Steakhouse employees indicted for $1.4M fraud scheme](https://www.yahoo.com/news/sam-steakhouse-employees-indicted-1-214319803.html)
 <!-- feed end -->
 
 ### Onstream
