@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Prediction: 1 Stock That Will Be Worth More Than Oracle 5 Years From Now](https://finance.yahoo.com/news/prediction-1-stock-worth-more-090300563.html)
+- Feb 25 - [Social Security changes include payment amount, age eligibility and more](https://finance.yahoo.com/news/social-security-changes-payment-amount-091427233.html)
 - Feb 25 - [Lawrence O'Donnell Flags Moment Trump Was ‘Fully Humiliated On The World Stage’](https://www.yahoo.com/news/donald-trump-dragged-being-fully-072215531.html)
 - Feb 25 - [Jon Stewart Accidentally Slices His Hand Open During Fiery Takedown of Elon Musk’s Department of Government Efficiency: ‘I Will Be Going to the Hospital Soon’](https://www.yahoo.com/entertainment/jon-stewart-accidentally-slices-hand-052924310.html)
-- Feb 25 - [Rachel Maddow Sounds Off On Major MSNBC Line-Up Changes and Exit of Joy Reid: ‘I Think It Is a Bad Mistake to Let Her Walk Out the Door’](https://www.yahoo.com/news/rachel-maddow-sounds-off-major-033946994.html)
-- Feb 25 - [Air-Launched Supersonic Anti-Ship Missile Being Tested By Taiwan](https://www.yahoo.com/news/taiwan-testing-air-launched-supersonic-233328992.html)
+- Feb 25 - [Nearly 40% of contracts canceled by DOGE are expected to produce no savings](https://www.yahoo.com/news/nearly-40-contracts-canceled-doge-050202947.html)
+- Feb 25 - [Rachel Maddow Sounds Off on Major MSNBC Line-Up Changes and Exit of Joy Reid: ‘I Think It Is a Bad Mistake to Let Her Walk Out the Door’](https://www.yahoo.com/news/rachel-maddow-sounds-off-major-033946994.html)
 <!-- feed end -->
 
 ### Onstream
