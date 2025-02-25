@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [What Feb. consumer confidence says about the labor market](https://finance.yahoo.com/video/feb-consumer-confidence-says-labor-162525579.html)
-- Feb 25 - [Yosemite Staff Hang Upside-Down US Flag to Protest Terminations](https://www.yahoo.com/news/yosemite-staff-members-hang-upside-161230150.html)
-- Feb 25 - [16-Year-Old Breaks Down in Court and Shouts 'I Love You, Mama' After Being Charged as an Adult for Murder](https://www.yahoo.com/entertainment/16-old-breaks-down-court-154007170.html)
-- Feb 25 - [North Korea steals $1.5bn as it pulls off world’s biggest ever heist](https://www.yahoo.com/news/north-korea-plunders-world-crypto-144944458.html)
-- Feb 25 - [Donald Trump Accidentally Insults Himself: ‘Who Would Ever Sign A Thing Like This?’](https://www.yahoo.com/news/donald-trump-accidentally-insults-himself-142955248.html)
+- Feb 25 - [Supreme Court rules against drivers in a case advocates say could make civil-rights claims harder](https://www.yahoo.com/news/supreme-court-rules-against-drivers-175629982.html)
+- Feb 25 - [Dave Ramsey Baffled By Family Living Paycheck-To-Paycheck On $600,000 A Year—'Why Do You Need $18,000 A Month To Run Your Household?'](https://finance.yahoo.com/news/dave-ramsey-baffled-family-living-164528006.html)
+- Feb 25 - [After viral Trump showdown, Maine governor’s MAGA opponents petition for her recall – but there’s a problem](https://www.yahoo.com/news/viral-trump-showdown-maine-governor-163501649.html)
+- Feb 25 - [Mag 7 nears correction territory ahead of Nvidia earnings](https://finance.yahoo.com/video/mag-7-nears-correction-territory-153500126.html)
+- Feb 25 - [Trump Encourages Vivek Ramaswamy to Stay as Far From Him as Possible](https://www.yahoo.com/news/trump-encourages-vivek-ramaswamy-stay-151211361.html)
 <!-- feed end -->
 
 ### Onstream
