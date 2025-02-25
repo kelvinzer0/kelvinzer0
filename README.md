@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 25 - [A Grocery Store Worker Was Arrested for Urinating on Food and Filming It. Police Say They Found Similar Videos Dating Back to 2021](https://www.yahoo.com/entertainment/grocery-store-worker-arrested-urinating-115338528.html)
-- Feb 25 - [Fears fatal red squirrel disease has moved north](https://www.yahoo.com/news/fears-fatal-red-squirrel-disease-114450356.html)
+- Feb 25 - [European car sales drop in January as falling combustion engines outweigh EV gains](https://finance.yahoo.com/video/european-car-sales-drop-january-104847459.html)
+- Feb 25 - [New study reveals the least expensive car to operate: 'We are never going back'](https://autos.yahoo.com/study-reveals-least-expensive-car-104559603.html)
+- Feb 25 - [Tens of thousands of residents forced out of their homes as once looming threat begins to wreak havoc: 'A ... crisis'](https://www.yahoo.com/news/tens-thousands-residents-forced-homes-104503090.html)
 - Feb 25 - [WISH-TV meteorologist says she was fired after questioning how station treats Black women](https://www.yahoo.com/news/wish-tv-meteorologist-says-she-103135768.html)
-- Feb 25 - [Ohio’s J.D. Vance rebuked by the Pope, denounced by NATO allies, ridiculed for bizarre rant](https://www.yahoo.com/news/ohio-j-d-vance-rebuked-093003779.html)
-- Feb 25 - [Taiwan detains China-linked cargo ship after undersea cable disconnected](https://www.yahoo.com/news/taiwan-detains-china-linked-cargo-073803257.html)
 <!-- feed end -->
 
 ### Onstream
