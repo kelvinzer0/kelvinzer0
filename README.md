@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Remaining assault, sexual assault charges stayed in case against former Yellowknife councillor](https://www.yahoo.com/news/remaining-assault-sexual-assault-charges-010143245.html)
-- Feb 25 - [Miami University and faculty union reach contract agreement after a year](https://www.yahoo.com/news/miami-university-faculty-union-reach-004404448.html)
 - Feb 24 - [Intel says new ASML machines are in production, with positive results](https://finance.yahoo.com/news/intel-says-first-two-asml-221529518.html)
 - Feb 24 - [Pennsylvania's governor says the Trump administration has unfrozen billions in grants and loans](https://www.yahoo.com/news/pennsylvanias-governor-says-trump-administration-220541422.html)
-- Feb 24 - [Sam’s Steakhouse employees indicted for $1.4M fraud scheme](https://www.yahoo.com/news/sam-steakhouse-employees-indicted-1-214319803.html)
+- Feb 24 - [Students at elite NYC college expelled for disrupting class with threatening Hamas propaganda](https://www.yahoo.com/news/students-elite-nyc-college-expelled-214425639.html)
+- Feb 24 - [Motorcycle group of about 100 lift San Leandro railroad crossing arm; passenger dies](https://www.yahoo.com/news/motorcycle-group-100-lift-san-213550663.html)
+- Feb 24 - [Reverse migration: Venezuelans head back toward South America after US dreams dashed](https://www.yahoo.com/news/reverse-migration-venezuelans-head-back-211846902.html)
 <!-- feed end -->
 
 ### Onstream
