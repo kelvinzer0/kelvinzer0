@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Better Cryptocurrency to Buy and Hold for 10 Years: Bitcoin vs. Cardano](https://finance.yahoo.com/news/better-cryptocurrency-buy-hold-10-104500616.html)
-- Feb 25 - [Three Palestinian babies die of hypothermia in devastated Gaza Strip](https://www.yahoo.com/news/three-palestinian-babies-die-hypothermia-100336210.html)
-- Feb 25 - [Why is Mars red? Our old understanding might be wrong.](https://www.yahoo.com/news/why-mars-red-old-understanding-100000549.html)
+- Feb 25 - [A Grocery Store Worker Was Arrested for Urinating on Food and Filming It. Police Say They Found Similar Videos Dating Back to 2021](https://www.yahoo.com/entertainment/grocery-store-worker-arrested-urinating-115338528.html)
+- Feb 25 - [Fears fatal red squirrel disease has moved north](https://www.yahoo.com/news/fears-fatal-red-squirrel-disease-114450356.html)
+- Feb 25 - [WISH-TV meteorologist says she was fired after questioning how station treats Black women](https://www.yahoo.com/news/wish-tv-meteorologist-says-she-103135768.html)
 - Feb 25 - [Ohio’s J.D. Vance rebuked by the Pope, denounced by NATO allies, ridiculed for bizarre rant](https://www.yahoo.com/news/ohio-j-d-vance-rebuked-093003779.html)
-- Feb 25 - [Jon Stewart Accidentally Slices His Hand Open During Fiery Takedown of Elon Musk’s Department of Government Efficiency: ‘I Will Be Going to the Hospital Soon’](https://www.yahoo.com/entertainment/jon-stewart-accidentally-slices-hand-052924310.html)
+- Feb 25 - [Taiwan detains China-linked cargo ship after undersea cable disconnected](https://www.yahoo.com/news/taiwan-detains-china-linked-cargo-073803257.html)
 <!-- feed end -->
 
 ### Onstream
