@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [CEO resigns after video of him giving ‘Nazi salute’ at company event goes viral](https://www.yahoo.com/news/ceo-resigns-video-him-giving-132335889.html)
-- Feb 25 - [3 US Penny Stocks With At Least $3M Market Cap](https://finance.yahoo.com/news/3-us-penny-stocks-least-131115628.html)
-- Feb 25 - [Metal Detectorists Pulled Up a 15th-Century Sword—and Couldn’t Believe Its Condition](https://www.yahoo.com/news/metal-detectorists-pulled-15th-century-130000453.html)
-- Feb 25 - [New study reveals the least expensive car to operate: 'We are never going back'](https://autos.yahoo.com/study-reveals-least-expensive-car-104559603.html)
-- Feb 25 - [Tens of thousands of residents forced out of their homes as once looming threat begins to wreak havoc: 'A ... crisis'](https://www.yahoo.com/news/tens-thousands-residents-forced-homes-104503090.html)
+- Feb 25 - [METRO unveils new initiative to tackle crime | CW39 Houston](https://www.yahoo.com/news/metro-unveils-initiative-tackle-crime-144747777.html)
+- Feb 25 - [Is Etsy Stock Your Ticket to Becoming a Millionaire? The Answer Is Clear as Day.](https://finance.yahoo.com/news/etsy-stock-ticket-becoming-millionaire-144500158.html)
+- Feb 25 - [Donald Trump Accidentally Insults Himself: ‘Who Would Ever Sign A Thing Like This?’](https://www.yahoo.com/news/donald-trump-accidentally-insults-himself-142955248.html)
+- Feb 25 - [Six newborns die from severe cold in Gaza, medic says](https://www.yahoo.com/news/six-newborns-die-severe-cold-141428836.html)
+- Feb 25 - [Butchers, bakers, candlestick-makers − and prostitutes: The women working behind the scenes in papal Avignon](https://www.yahoo.com/news/butchers-bakers-candlestick-makers-prostitutes-133701119.html)
 <!-- feed end -->
 
 ### Onstream
