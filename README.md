@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [China’s Massive WZ-9 Divine Eagle Drone Now Operating From South China Sea Base](https://www.yahoo.com/news/china-massive-wz-9-divine-210055369.html)
+- Feb 25 - [Uhhh, People Zoomed Into This Picture Of Donald Trump And Found A Scary Surprise](https://www.yahoo.com/entertainment/people-zoomed-picture-donald-trump-205840286.html)
+- Feb 25 - [Mayor Brandon Johnson warns he will need to dip into reserves unless school board approves pension payment, borrowing](https://www.yahoo.com/news/mayor-brandon-johnson-warns-dip-202600989.html)
 - Feb 25 - [Southwest Airlines plane aborts landing to avoid colliding with private jet at Chicago Midway Airport](https://www.yahoo.com/news/southwest-jet-attempting-land-chicago-184507106.html)
-- Feb 25 - [Charlie Munger's Financial Success and Longevity Advice: 'My Game in Life Was Always To Avoid All Standard Ways of Failing'](https://finance.yahoo.com/news/charlie-mungers-financial-success-longevity-193014725.html)
 - Feb 25 - [Michigan veterinarian faces theft charge after refusing to return homeless man's dog](https://www.yahoo.com/news/michigan-veterinarian-faces-theft-charge-190721850.html)
-- Feb 25 - [Judge gives Trump administration two days to release billions of dollars in blocked foreign aid](https://www.yahoo.com/news/judge-gives-trump-administration-two-184757797.html)
-- Feb 25 - [‘These are bada**’: Las Vegas police to receive Cybertruck fleet from donor](https://www.yahoo.com/news/bada-las-vegas-police-receive-180111283.html)
 <!-- feed end -->
 
 ### Onstream
