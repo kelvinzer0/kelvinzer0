@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [METRO unveils new initiative to tackle crime | CW39 Houston](https://www.yahoo.com/news/metro-unveils-initiative-tackle-crime-144747777.html)
-- Feb 25 - [Is Etsy Stock Your Ticket to Becoming a Millionaire? The Answer Is Clear as Day.](https://finance.yahoo.com/news/etsy-stock-ticket-becoming-millionaire-144500158.html)
-- Feb 25 - [Donald Trump Accidentally Insults Himself: ‘Who Would Ever Sign A Thing Like This?’](https://www.yahoo.com/news/donald-trump-accidentally-insults-himself-142955248.html)
-- Feb 25 - [Six newborns die from severe cold in Gaza, medic says](https://www.yahoo.com/news/six-newborns-die-severe-cold-141428836.html)
-- Feb 25 - [Butchers, bakers, candlestick-makers − and prostitutes: The women working behind the scenes in papal Avignon](https://www.yahoo.com/news/butchers-bakers-candlestick-makers-prostitutes-133701119.html)
+- Feb 25 - [Yosemite Staff Hang Upside-Down US Flag to Protest Terminations](https://www.yahoo.com/news/yosemite-staff-members-hang-upside-161230150.html)
+- Feb 25 - [16-Year-Old Breaks Down in Court and Shouts 'I Love You, Mama' After Being Charged as an Adult for Murder](https://www.yahoo.com/entertainment/16-old-breaks-down-court-154007170.html)
+- Feb 25 - [Mag 7 nears correction territory ahead of Nvidia earnings](https://finance.yahoo.com/video/mag-7-nears-correction-territory-153500126.html)
+- Feb 25 - [Supreme Court throws out Oklahoma inmate Richard Glossip's murder conviction and death sentence](https://www.yahoo.com/news/supreme-court-throws-oklahoma-mans-150910200.html)
+- Feb 25 - [North Korea steals $1.5bn as it pulls off world’s biggest ever heist](https://www.yahoo.com/news/north-korea-plunders-world-crypto-144944458.html)
 <!-- feed end -->
 
 ### Onstream
