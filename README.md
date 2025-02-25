@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [Southwest Airlines plane aborts landing to avoid colliding with private jet at Chicago Midway Airport](https://www.yahoo.com/news/southwest-jet-attempting-land-chicago-184507106.html)
+- Feb 25 - [Charlie Munger's Financial Success and Longevity Advice: 'My Game in Life Was Always To Avoid All Standard Ways of Failing'](https://finance.yahoo.com/news/charlie-mungers-financial-success-longevity-193014725.html)
+- Feb 25 - [Michigan veterinarian faces theft charge after refusing to return homeless man's dog](https://www.yahoo.com/news/michigan-veterinarian-faces-theft-charge-190721850.html)
 - Feb 25 - [Judge gives Trump administration two days to release billions of dollars in blocked foreign aid](https://www.yahoo.com/news/judge-gives-trump-administration-two-184757797.html)
-- Feb 25 - [Southwest jet narrowly avoids colliding with business jet at Chicago airport](https://finance.yahoo.com/news/us-faa-opens-probe-close-182744078.html)
-- Feb 25 - [Supreme Court rules against drivers in a case advocates say could make civil-rights claims harder](https://www.yahoo.com/news/supreme-court-rules-against-drivers-175629982.html)
-- Feb 25 - [Aldi's Biggest Change in 50 Years Could Transform How You Shop for Groceries—Here's What to Know](https://finance.yahoo.com/news/aldis-biggest-change-50-years-173322862.html)
-- Feb 25 - [Republicans who got an earful from constituents have message for Trump and DOGE](https://www.yahoo.com/news/getting-earful-constituents-gop-reps-173000091.html)
+- Feb 25 - [‘These are bada**’: Las Vegas police to receive Cybertruck fleet from donor](https://www.yahoo.com/news/bada-las-vegas-police-receive-180111283.html)
 <!-- feed end -->
 
 ### Onstream
