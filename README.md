@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 25 - [Supreme Court rules against drivers in a case advocates say could make civil-rights claims harder](https://www.yahoo.com/news/supreme-court-rules-against-drivers-175629982.html)
-- Feb 25 - [Dave Ramsey Baffled By Family Living Paycheck-To-Paycheck On $600,000 A Year—'Why Do You Need $18,000 A Month To Run Your Household?'](https://finance.yahoo.com/news/dave-ramsey-baffled-family-living-164528006.html)
+- Feb 25 - [A Georgia deputy won't be charged for killing an exonerated man during a violent traffic stop](https://www.yahoo.com/news/georgia-deputy-wont-charged-killing-165253845.html)
 - Feb 25 - [After viral Trump showdown, Maine governor’s MAGA opponents petition for her recall – but there’s a problem](https://www.yahoo.com/news/viral-trump-showdown-maine-governor-163501649.html)
+- Feb 25 - [Elon Musk keeps tweeting the 'R-word.' Disability advocates say he needs to stop.](https://www.yahoo.com/news/elon-musk-keeps-tweeting-r-160600959.html)
 - Feb 25 - [Mag 7 nears correction territory ahead of Nvidia earnings](https://finance.yahoo.com/video/mag-7-nears-correction-territory-153500126.html)
-- Feb 25 - [Trump Encourages Vivek Ramaswamy to Stay as Far From Him as Possible](https://www.yahoo.com/news/trump-encourages-vivek-ramaswamy-stay-151211361.html)
 <!-- feed end -->
 
 ### Onstream
