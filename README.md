@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Intel says new ASML machines are in production, with positive results](https://finance.yahoo.com/news/intel-says-first-two-asml-221529518.html)
+- Feb 25 - [Rachel Maddow Calls Out MSNBC for Canceling Joy Reid’s Show: ‘Feels Indefensible’ | Video](https://www.yahoo.com/news/rachel-maddow-calls-msnbc-canceling-024326692.html)
+- Feb 24 - [LA traffic officer confronted at home by ICE agents who were ‘hesitant’ about showing warrant while citywide sweep fails to materialize](https://www.yahoo.com/news/la-traffic-cop-confronted-home-232007696.html)
 - Feb 24 - [Pennsylvania's governor says the Trump administration has unfrozen billions in grants and loans](https://www.yahoo.com/news/pennsylvanias-governor-says-trump-administration-220541422.html)
-- Feb 24 - [Students at elite NYC college expelled for disrupting class with threatening Hamas propaganda](https://www.yahoo.com/news/students-elite-nyc-college-expelled-214425639.html)
 - Feb 24 - [Motorcycle group of about 100 lift San Leandro railroad crossing arm; passenger dies](https://www.yahoo.com/news/motorcycle-group-100-lift-san-213550663.html)
 - Feb 24 - [Reverse migration: Venezuelans head back toward South America after US dreams dashed](https://www.yahoo.com/news/reverse-migration-venezuelans-head-back-211846902.html)
 <!-- feed end -->
