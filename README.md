@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [A Grocery Store Worker Was Arrested for Urinating on Food and Filming It. Police Say They Found Similar Videos Dating Back to 2021](https://www.yahoo.com/entertainment/grocery-store-worker-arrested-urinating-115338528.html)
-- Feb 25 - [European car sales drop in January as falling combustion engines outweigh EV gains](https://finance.yahoo.com/video/european-car-sales-drop-january-104847459.html)
+- Feb 25 - [CEO resigns after video of him giving ‘Nazi salute’ at company event goes viral](https://www.yahoo.com/news/ceo-resigns-video-him-giving-132335889.html)
+- Feb 25 - [3 US Penny Stocks With At Least $3M Market Cap](https://finance.yahoo.com/news/3-us-penny-stocks-least-131115628.html)
+- Feb 25 - [Metal Detectorists Pulled Up a 15th-Century Sword—and Couldn’t Believe Its Condition](https://www.yahoo.com/news/metal-detectorists-pulled-15th-century-130000453.html)
 - Feb 25 - [New study reveals the least expensive car to operate: 'We are never going back'](https://autos.yahoo.com/study-reveals-least-expensive-car-104559603.html)
 - Feb 25 - [Tens of thousands of residents forced out of their homes as once looming threat begins to wreak havoc: 'A ... crisis'](https://www.yahoo.com/news/tens-thousands-residents-forced-homes-104503090.html)
-- Feb 25 - [WISH-TV meteorologist says she was fired after questioning how station treats Black women](https://www.yahoo.com/news/wish-tv-meteorologist-says-she-103135768.html)
 <!-- feed end -->
 
 ### Onstream
