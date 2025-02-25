@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [Judge gives Trump administration two days to release billions of dollars in blocked foreign aid](https://www.yahoo.com/news/judge-gives-trump-administration-two-184757797.html)
+- Feb 25 - [Southwest jet narrowly avoids colliding with business jet at Chicago airport](https://finance.yahoo.com/news/us-faa-opens-probe-close-182744078.html)
 - Feb 25 - [Supreme Court rules against drivers in a case advocates say could make civil-rights claims harder](https://www.yahoo.com/news/supreme-court-rules-against-drivers-175629982.html)
-- Feb 25 - [A Georgia deputy won't be charged for killing an exonerated man during a violent traffic stop](https://www.yahoo.com/news/georgia-deputy-wont-charged-killing-165253845.html)
-- Feb 25 - [After viral Trump showdown, Maine governor’s MAGA opponents petition for her recall – but there’s a problem](https://www.yahoo.com/news/viral-trump-showdown-maine-governor-163501649.html)
-- Feb 25 - [Elon Musk keeps tweeting the 'R-word.' Disability advocates say he needs to stop.](https://www.yahoo.com/news/elon-musk-keeps-tweeting-r-160600959.html)
-- Feb 25 - [Mag 7 nears correction territory ahead of Nvidia earnings](https://finance.yahoo.com/video/mag-7-nears-correction-territory-153500126.html)
+- Feb 25 - [Aldi's Biggest Change in 50 Years Could Transform How You Shop for Groceries—Here's What to Know](https://finance.yahoo.com/news/aldis-biggest-change-50-years-173322862.html)
+- Feb 25 - [Republicans who got an earful from constituents have message for Trump and DOGE](https://www.yahoo.com/news/getting-earful-constituents-gop-reps-173000091.html)
 <!-- feed end -->
 
 ### Onstream
