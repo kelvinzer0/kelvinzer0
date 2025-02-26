@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Strain, fear roil a tiny, rapidly militarizing Japanese island near frontline with Taiwan](https://www.yahoo.com/news/strain-fear-roil-tiny-rapidly-050250514.html)
 - Feb 26 - [Tulsi Gabbard says more than 100 intelligence officers will be fired for sexually explicit NSA chat messages](https://www.yahoo.com/news/tulsi-gabbard-says-more-100-043635850.html)
-- Feb 26 - [After laying groundwork for months, Andrew Cuomo is said to be on the verge of entering the race for New York City Mayor](https://www.yahoo.com/news/laying-groundwork-months-andrew-cuomo-005241248.html)
 - Feb 26 - [Trump says he will offer 'gold cards' for $5 million path to citizenship, replacing investor visas](https://www.yahoo.com/news/trump-says-offer-gold-cards-003652322.html)
+- Feb 26 - [Telvin Osborne Once Said He’d Rather Sleep With a Dog Than a Black Woman—Now He’s Dead, and Social Media Has Thoughts](https://www.yahoo.com/entertainment/telvin-osborne-once-said-d-002925091.html)
 - Feb 26 - [After trade dispute, Mexico officially bans the planting of GM corn](https://www.yahoo.com/news/trade-dispute-mexico-officially-bans-000433218.html)
-- Feb 25 - [This Bay Area city was ranked 'richest retirement town' in the U.S.](https://finance.yahoo.com/news/bay-area-city-ranked-richest-234953268.html)
 <!-- feed end -->
 
 ### Onstream
