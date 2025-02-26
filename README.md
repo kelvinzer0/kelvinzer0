@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Three American women found dead inside Belize hotel](https://www.yahoo.com/news/three-american-women-found-dead-182321485.html)
+- Feb 26 - [New details emerge in the case against Bryan Kohberger, the man accused of fatally stabbing four University of Idaho students](https://www.yahoo.com/news/details-emerge-case-against-bryan-090046942.html)
 - Feb 26 - [The Trump administration sets the stage for large-scale federal worker layoffs in a new memo](https://www.yahoo.com/news/trump-administration-sets-stage-large-163100485.html)
+- Feb 26 - [Gunman who held Pennsylvania hospital staff hostage felt more could have been done to save his terminally ill wife](https://www.yahoo.com/news/gunman-held-pennsylvania-hospital-staff-182859352.html)
 - Feb 26 - [Archaeologists Discovered 22,000-Year-Old Tracks That May Be From the World’s First Vehicle](https://www.yahoo.com/news/archaeologists-discovered-22-000-old-130000891.html)
-- Feb 26 - [20 "Next Big Things" That Flopped So Hard, They're Now Collecting Dust In The Bargain Bin](https://www.yahoo.com/entertainment/people-sharing-biggest-flops-were-123102472.html)
-- Feb 26 - [Mortgage and refinance rates today, February 26, 2025: Rates fall for a straight week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-february-26-2025-110038772.html)
-- Feb 26 - [Christian sect members who watched 8-year-old die get lengthy prison sentences](https://www.yahoo.com/news/christian-sect-members-watched-8-073329794.html)
 <!-- feed end -->
 
 ### Onstream
