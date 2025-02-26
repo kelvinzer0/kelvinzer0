@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Woman uncovers old newspapers amid home renovation including one from 1937](https://www.yahoo.com/news/woman-uncovers-old-newspapers-amid-133614099.html)
+- Feb 26 - [Mass crackdowns see thousands of scam center workers waiting in Myanmar for repatriation](https://www.yahoo.com/news/mass-crackdowns-see-thousands-scam-135439367.html)
+- Feb 26 - [Court Overturns Biden’s Car Dealer Scam Protections — 3 Red Flags To Watch For](https://finance.yahoo.com/news/court-overturns-biden-car-dealer-130057277.html)
+- Feb 26 - [People Are Sharing The Biggest Flops That Were Supposed To Be The Next Big Thing, And It's Kinda Fascinating](https://www.yahoo.com/entertainment/people-sharing-biggest-flops-were-123102472.html)
 - Feb 26 - [Market is 'on stilts,' mediocre outlook for Nvidia may topple it](https://finance.yahoo.com/video/market-stilts-mediocre-outlook-nvidia-113051986.html)
-- Feb 26 - [Oceanographers disturbed after spotting mysterious yellow cloud looming over boat: 'It was not snowflakes'](https://www.yahoo.com/news/oceanographers-disturbed-spotting-mysterious-yellow-103059305.html)
-- Feb 26 - [If I Could Buy and Hold Only a Single Stock, This Would Be It](https://finance.yahoo.com/news/could-buy-hold-only-single-090500318.html)
 - Feb 26 - [Israel mourns Bibas family as Hamas signals breakthrough on hostages](https://www.yahoo.com/news/mediators-agree-swap-palestinian-prisoners-065432269.html)
 <!-- feed end -->
 
