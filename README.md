@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Johnson & Johnson (JNJ): Among the Top Dividend Stocks to Buy According to Hedge Funds](https://finance.yahoo.com/news/johnson-johnson-jnj-among-top-154812661.html)
+- Feb 26 - [Little hope of finding workers alive after tunnel collapse, official says](https://www.yahoo.com/news/little-hope-finding-workers-alive-113240612.html)
+- Feb 26 - [BP cuts renewable investment and boosts oil and gas in strategy shift](https://finance.yahoo.com/video/bp-cuts-renewable-investment-boosts-151751147.html)
 - Feb 26 - [Mass crackdowns see thousands of scam center workers waiting in Myanmar for repatriation](https://www.yahoo.com/news/mass-crackdowns-see-thousands-scam-135439367.html)
-- Feb 26 - [Court Overturns Biden’s Car Dealer Scam Protections — 3 Red Flags To Watch For](https://finance.yahoo.com/news/court-overturns-biden-car-dealer-130057277.html)
 - Feb 26 - [People Are Sharing The Biggest Flops That Were Supposed To Be The Next Big Thing, And It's Kinda Fascinating](https://www.yahoo.com/entertainment/people-sharing-biggest-flops-were-123102472.html)
-- Feb 26 - [Market is 'on stilts,' mediocre outlook for Nvidia may topple it](https://finance.yahoo.com/video/market-stilts-mediocre-outlook-nvidia-113051986.html)
-- Feb 26 - [Israel mourns Bibas family as Hamas signals breakthrough on hostages](https://www.yahoo.com/news/mediators-agree-swap-palestinian-prisoners-065432269.html)
 <!-- feed end -->
 
 ### Onstream
