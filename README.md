@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [American Airlines flight discontinues landing to avoid departing plane at Washington National](https://www.yahoo.com/news/american-airlines-flight-discontinues-landing-125832377.html)
-- Feb 26 - [People Are Sharing The Biggest Flops That Were Supposed To Be The Next Big Thing, And It's Kinda Fascinating](https://www.yahoo.com/entertainment/people-sharing-biggest-flops-were-123102472.html)
-- Feb 26 - ["A woman is like a child": MAGA quickly turns its sights on stripping Republican women of power](https://www.yahoo.com/news/woman-child-maga-quickly-turns-105907677.html)
-- Feb 26 - [Trump says he will offer 'gold cards' for $5 million path to citizenship, replacing investor visas](https://www.yahoo.com/news/trump-says-offer-gold-cards-003652322.html)
-- Feb 25 - [This Bay Area city was ranked 'richest retirement town' in the U.S.](https://finance.yahoo.com/news/bay-area-city-ranked-richest-234953268.html)
+- Feb 26 - [Woman uncovers old newspapers amid home renovation including one from 1937](https://www.yahoo.com/news/woman-uncovers-old-newspapers-amid-133614099.html)
+- Feb 26 - [Market is 'on stilts,' mediocre outlook for Nvidia may topple it](https://finance.yahoo.com/video/market-stilts-mediocre-outlook-nvidia-113051986.html)
+- Feb 26 - [Oceanographers disturbed after spotting mysterious yellow cloud looming over boat: 'It was not snowflakes'](https://www.yahoo.com/news/oceanographers-disturbed-spotting-mysterious-yellow-103059305.html)
+- Feb 26 - [If I Could Buy and Hold Only a Single Stock, This Would Be It](https://finance.yahoo.com/news/could-buy-hold-only-single-090500318.html)
+- Feb 26 - [Israel mourns Bibas family as Hamas signals breakthrough on hostages](https://www.yahoo.com/news/mediators-agree-swap-palestinian-prisoners-065432269.html)
 <!-- feed end -->
 
 ### Onstream
