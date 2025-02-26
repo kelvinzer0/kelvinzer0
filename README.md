@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [State of Emergency Declared in Chile as Blackout Leaves Millions Without Power](https://www.yahoo.com/news/state-emergency-declared-chile-blackout-084646958.html)
 - Feb 26 - [Tulsi Gabbard says more than 100 intelligence officers will be fired for sexually explicit NSA chat messages](https://www.yahoo.com/news/tulsi-gabbard-says-more-100-043635850.html)
-- Feb 26 - [‘You need a bath after the bath’: World’s largest religious gathering wraps up after 600 million devotees take holy dip](https://www.yahoo.com/news/bath-bath-world-largest-religious-040631358.html)
 - Feb 26 - [Trump says he will offer 'gold cards' for $5 million path to citizenship, replacing investor visas](https://www.yahoo.com/news/trump-says-offer-gold-cards-003652322.html)
 - Feb 26 - [Telvin Osborne Once Said He’d Rather Sleep With a Dog Than a Black Woman—Now He’s Dead, and Social Media Has Thoughts](https://www.yahoo.com/entertainment/telvin-osborne-once-said-d-002925091.html)
 - Feb 25 - [This Bay Area city was ranked 'richest retirement town' in the U.S.](https://finance.yahoo.com/news/bay-area-city-ranked-richest-234953268.html)
