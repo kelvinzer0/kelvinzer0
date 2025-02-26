@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Orangutan Gets Introduced to a Mirror, and the Result Is Pure Diva Energy](https://www.yahoo.com/lifestyle/orangutan-gets-introduced-mirror-result-231500180.html)
+- Feb 26 - [After laying groundwork for months, Andrew Cuomo is said to be on the verge of entering the race for New York City Mayor](https://www.yahoo.com/news/laying-groundwork-months-andrew-cuomo-005241248.html)
+- Feb 26 - [Trump says he will offer 'gold cards' for $5 million path to citizenship, replacing investor visas](https://www.yahoo.com/news/trump-says-offer-gold-cards-003652322.html)
 - Feb 25 - [Fox News correspondent slams Trump administration for new press access rules that ‘gives power to the White House’](https://www.yahoo.com/news/fox-news-correspondent-slams-trump-230052637.html)
+- Feb 25 - [Penn State president announces that some campuses will close. Which are at risk?](https://www.yahoo.com/news/penn-state-president-announces-campuses-223829055.html)
 - Feb 25 - [I'm 52 With $1.4 Million in My 401(k). Would Catch-Up Contributions Be Worth It?](https://finance.yahoo.com/news/im-52-1-4-million-213024562.html)
-- Feb 25 - [Michigan veterinarian faces theft charge after refusing to return homeless man's dog](https://www.yahoo.com/news/michigan-veterinarian-faces-theft-charge-190721850.html)
-- Feb 25 - [69-year-old Wisconsin man with revoked license arrested for 14th OWI offense](https://www.yahoo.com/news/69-old-wisconsin-man-revoked-190717192.html)
 <!-- feed end -->
 
 ### Onstream
