@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 26 - [Three American women found dead inside Belize hotel](https://www.yahoo.com/news/three-american-women-found-dead-182321485.html)
 - Feb 26 - [New details emerge in the case against Bryan Kohberger, the man accused of fatally stabbing four University of Idaho students](https://www.yahoo.com/news/details-emerge-case-against-bryan-090046942.html)
+- Feb 26 - [JD Vance Torn to Shreds in Hilarious Ohio Newspaper Op-Ed](https://www.yahoo.com/news/jd-vance-torn-shreds-hilarious-171844630.html)
+- Feb 26 - [Now That Trump Has Banished the Woke From Science, These Truth-Telling New Scientific Papers Reveal What COVID Vaccines Actually Do to Children](https://www.yahoo.com/news/now-trump-banished-woke-science-163616742.html)
 - Feb 26 - [The Trump administration sets the stage for large-scale federal worker layoffs in a new memo](https://www.yahoo.com/news/trump-administration-sets-stage-large-163100485.html)
-- Feb 26 - [Gunman who held Pennsylvania hospital staff hostage felt more could have been done to save his terminally ill wife](https://www.yahoo.com/news/gunman-held-pennsylvania-hospital-staff-182859352.html)
-- Feb 26 - [Archaeologists Discovered 22,000-Year-Old Tracks That May Be From the World’s First Vehicle](https://www.yahoo.com/news/archaeologists-discovered-22-000-old-130000891.html)
 <!-- feed end -->
 
 ### Onstream
