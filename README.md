@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Nigeria to automate short stay visa approval process](https://www.yahoo.com/news/nigeria-automate-short-stay-visa-114855403.html)
+- Feb 26 - [American Airlines flight discontinues landing to avoid departing plane at Washington National](https://www.yahoo.com/news/american-airlines-flight-discontinues-landing-125832377.html)
+- Feb 26 - [People Are Sharing The Biggest Flops That Were Supposed To Be The Next Big Thing, And It's Kinda Fascinating](https://www.yahoo.com/entertainment/people-sharing-biggest-flops-were-123102472.html)
 - Feb 26 - ["A woman is like a child": MAGA quickly turns its sights on stripping Republican women of power](https://www.yahoo.com/news/woman-child-maga-quickly-turns-105907677.html)
-- Feb 26 - [Major Fort Myers Beach demolition underway at classic hotel pummeled by Hurricane Ian](https://www.yahoo.com/news/major-fort-myers-beach-demolition-100456250.html)
+- Feb 26 - [Trump says he will offer 'gold cards' for $5 million path to citizenship, replacing investor visas](https://www.yahoo.com/news/trump-says-offer-gold-cards-003652322.html)
 - Feb 25 - [This Bay Area city was ranked 'richest retirement town' in the U.S.](https://finance.yahoo.com/news/bay-area-city-ranked-richest-234953268.html)
-- Feb 25 - [Fox News correspondent slams Trump administration for new press access rules that ‘gives power to the White House’](https://www.yahoo.com/news/fox-news-correspondent-slams-trump-230052637.html)
 <!-- feed end -->
 
 ### Onstream
