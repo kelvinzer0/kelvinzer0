@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 26 - [Nvidia sells $11 billion of next-gen Blackwell AI chips in 'fastest product ramp in our company’s history'](https://finance.yahoo.com/news/nvidia-sells-11-billion-of-next-gen-blackwell-ai-chips-in-fastest-product-ramp-in-our-companys-history-215339003.html)
 - Feb 26 - [Trump calls America 'fat and disgusting.' What leadership! | Opinion](https://www.yahoo.com/news/trump-calls-america-fat-disgusting-205019687.html)
+- Feb 26 - [Trump Finally Has a Plan to Solve Egg Costs, and It’s a Doozy](https://www.yahoo.com/news/trump-finally-plan-solve-egg-203341422.html)
+- Feb 26 - [Ground-Launched And Powered Air-Launched Versions Of StormBreaker Glide Bomb Are In Development](https://www.yahoo.com/news/ground-launched-powered-air-launched-200029898.html)
 - Feb 26 - [Three American women found dead inside Belize hotel](https://www.yahoo.com/news/three-american-women-found-dead-182321485.html)
-- Feb 26 - [Musk dominates, disparages federal workers at first Trump Cabinet meeting](https://www.yahoo.com/news/musk-dominates-disparages-federal-workers-175534307.html)
-- Feb 26 - [New details emerge in the case against Bryan Kohberger, the man accused of fatally stabbing four University of Idaho students](https://www.yahoo.com/news/details-emerge-case-against-bryan-090046942.html)
 <!-- feed end -->
 
 ### Onstream
