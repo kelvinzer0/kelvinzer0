@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [Orangutan Gets Introduced to a Mirror, and the Result Is Pure Diva Energy](https://www.yahoo.com/lifestyle/orangutan-gets-introduced-mirror-result-231500180.html)
+- Feb 25 - [Fox News correspondent slams Trump administration for new press access rules that ‘gives power to the White House’](https://www.yahoo.com/news/fox-news-correspondent-slams-trump-230052637.html)
 - Feb 25 - [I'm 52 With $1.4 Million in My 401(k). Would Catch-Up Contributions Be Worth It?](https://finance.yahoo.com/news/im-52-1-4-million-213024562.html)
-- Feb 25 - [Thief Breaks Through Grocery Store Ceiling](https://www.yahoo.com/news/thief-breaks-grocery-store-ceiling-210603884.html)
-- Feb 25 - [Uhhh, People Zoomed Into This Picture Of Donald Trump And Found A Scary Surprise](https://www.yahoo.com/entertainment/people-zoomed-picture-donald-trump-205840286.html)
-- Feb 25 - [Charlie Munger's Financial Success and Longevity Advice: 'My Game in Life Was Always To Avoid All Standard Ways of Failing'](https://finance.yahoo.com/news/charlie-mungers-financial-success-longevity-193014725.html)
 - Feb 25 - [Michigan veterinarian faces theft charge after refusing to return homeless man's dog](https://www.yahoo.com/news/michigan-veterinarian-faces-theft-charge-190721850.html)
+- Feb 25 - [69-year-old Wisconsin man with revoked license arrested for 14th OWI offense](https://www.yahoo.com/news/69-old-wisconsin-man-revoked-190717192.html)
 <!-- feed end -->
 
 ### Onstream
