@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Johnson & Johnson (JNJ): Among the Top Dividend Stocks to Buy According to Hedge Funds](https://finance.yahoo.com/news/johnson-johnson-jnj-among-top-154812661.html)
+- Feb 26 - [Startup PsiQuantum says it is making millions of quantum computing chips](https://finance.yahoo.com/news/startup-psiquantum-says-making-millions-164519904.html)
 - Feb 26 - [Little hope of finding workers alive after tunnel collapse, official says](https://www.yahoo.com/news/little-hope-finding-workers-alive-113240612.html)
-- Feb 26 - [BP cuts renewable investment and boosts oil and gas in strategy shift](https://finance.yahoo.com/video/bp-cuts-renewable-investment-boosts-151751147.html)
-- Feb 26 - [Mass crackdowns see thousands of scam center workers waiting in Myanmar for repatriation](https://www.yahoo.com/news/mass-crackdowns-see-thousands-scam-135439367.html)
-- Feb 26 - [People Are Sharing The Biggest Flops That Were Supposed To Be The Next Big Thing, And It's Kinda Fascinating](https://www.yahoo.com/entertainment/people-sharing-biggest-flops-were-123102472.html)
+- Feb 26 - [Archaeologists Found a 2,000-Year-Old Cult Site Hidden Beneath a Subterranean River](https://www.yahoo.com/news/archaeologists-found-2-000-old-140000033.html)
+- Feb 26 - [Archaeologists Discovered 22,000-Year-Old Tracks That May Be From the World’s First Vehicle](https://www.yahoo.com/news/archaeologists-discovered-22-000-old-130000891.html)
+- Feb 26 - [Marjorie Taylor Greene says federal workers ‘do not deserve their paychecks’](https://www.yahoo.com/news/burnett-reacts-mtg-federal-workers-021847893.html)
 <!-- feed end -->
 
 ### Onstream
