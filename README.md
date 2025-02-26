@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Feb 26 - [After laying groundwork for months, Andrew Cuomo is said to be on the verge of entering the race for New York City Mayor](https://www.yahoo.com/news/laying-groundwork-months-andrew-cuomo-005241248.html)
 - Feb 26 - [Trump says he will offer 'gold cards' for $5 million path to citizenship, replacing investor visas](https://www.yahoo.com/news/trump-says-offer-gold-cards-003652322.html)
 - Feb 25 - [Fox News correspondent slams Trump administration for new press access rules that ‘gives power to the White House’](https://www.yahoo.com/news/fox-news-correspondent-slams-trump-230052637.html)
-- Feb 25 - [Penn State president announces that some campuses will close. Which are at risk?](https://www.yahoo.com/news/penn-state-president-announces-campuses-223829055.html)
-- Feb 25 - [I'm 52 With $1.4 Million in My 401(k). Would Catch-Up Contributions Be Worth It?](https://finance.yahoo.com/news/im-52-1-4-million-213024562.html)
+- Feb 25 - [Rachel Maddow staff to be let go as part of MSNBC overhaul](https://www.yahoo.com/news/rachel-maddow-says-msnbc-laying-214311214.html)
+- Feb 25 - [Boeing No. 2 executive's role narrowed to focus on fixing commercial plane unit](https://finance.yahoo.com/news/boeing-says-stephanie-pope-no-224945561.html)
 <!-- feed end -->
 
 ### Onstream
