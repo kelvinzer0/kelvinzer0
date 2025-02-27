@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Self-Made Millionaire Warns 90% Of People Are Throwing Away Money On This Expense](https://finance.yahoo.com/news/self-made-millionaire-warns-90-021209945.html)
-- Feb 27 - [Sophie Rain Breaks the Internet Again: OnlyFans Star Claims $50 Million in Net Earnings!](https://www.yahoo.com/entertainment/sophie-rain-breaks-internet-again-014500208.html)
-- Feb 27 - [Henderson man kidnaps Las Vegas business owner after his wife steals $20M: police](https://www.yahoo.com/news/henderson-man-kidnaps-las-vegas-012021729.html)
+- Feb 27 - [Michigan Democratic Gov. Whitmer makes direct appeal to young men after sharp shift in election](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-makes-013133035.html)
 - Feb 27 - [Jeff Bezos Announces That Washington Post Opinions Will Now Exclusively Celebrate the Glories of Capitalism](https://www.yahoo.com/news/jeff-bezos-announces-washington-post-002920836.html)
 - Feb 26 - [CDC investigating hospitalizations of five people who recently received chikungunya vaccine](https://www.yahoo.com/news/cdc-investigating-hospitalizations-five-people-234343133.html)
+- Feb 26 - [Nvidia sells $11 billion of next-gen Blackwell AI chips in 'fastest product ramp in our company’s history'](https://finance.yahoo.com/news/nvidia-sells-11-billion-of-next-gen-blackwell-ai-chips-in-fastest-product-ramp-in-our-companys-history-215339003.html)
+- Feb 26 - [Sen. Mark Kelly exposes the truth: Everyone is lying about Ukraine | Opinion](https://www.yahoo.com/news/sen-mark-kelly-exposes-truth-212207962.html)
 <!-- feed end -->
 
 ### Onstream
