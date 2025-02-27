@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Billionaire Bill Ackman Just Bought 30.3 Million Shares of This Soaring Growth Stock](https://finance.yahoo.com/news/billionaire-bill-ackman-just-bought-233200806.html)
+- Feb 27 - ['Contemplated suicide': Ethiopians recount horror of SE Asia scam centres](https://www.yahoo.com/news/contemplated-suicide-ethiopians-recount-horror-020421352.html)
+- Feb 27 - [Michigan Democratic Gov. Whitmer makes direct appeal to young men after sharp shift in election](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-makes-013133035.html)
+- Feb 27 - [Greene threatens criminal referrals at House DOGE hearing](https://www.yahoo.com/news/greene-threatens-criminal-referrals-house-002611196.html)
 - Feb 26 - [3 councilmen in South Carolina's third-largest city charged in bribery and kickback scheme](https://www.yahoo.com/news/3-councilmen-south-carolinas-third-213621535.html)
-- Feb 26 - [Trump Finally Has a Plan to Solve Egg Costs, and It’s a Doozy](https://www.yahoo.com/news/trump-finally-plan-solve-egg-203341422.html)
-- Feb 26 - [Ground-Launched And Powered Air-Launched Versions Of StormBreaker Glide Bomb Are In Development](https://www.yahoo.com/news/ground-launched-powered-air-launched-200029898.html)
-- Feb 26 - [I’m a Bank Teller: 5 Things You May Not Know About Your Savings Account](https://finance.yahoo.com/news/m-bank-teller-5-things-194330941.html)
+- Feb 26 - [Bitcoin retreats below $84,000: Latest crypto news](https://finance.yahoo.com/video/bitcoin-retreats-below-84-000-203603016.html)
 <!-- feed end -->
 
 ### Onstream
