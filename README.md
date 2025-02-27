@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 27 - [Self-Made Millionaire Warns 90% Of People Are Throwing Away Money On This Expense](https://finance.yahoo.com/news/self-made-millionaire-warns-90-021209945.html)
+- Feb 27 - [Sophie Rain Breaks the Internet Again: OnlyFans Star Claims $50 Million in Net Earnings!](https://www.yahoo.com/entertainment/sophie-rain-breaks-internet-again-014500208.html)
 - Feb 27 - [Michigan Democratic Gov. Whitmer makes direct appeal to young men after sharp shift in election](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-makes-013133035.html)
 - Feb 27 - [Jeff Bezos Announces That Washington Post Opinions Will Now Exclusively Celebrate the Glories of Capitalism](https://www.yahoo.com/news/jeff-bezos-announces-washington-post-002920836.html)
-- Feb 27 - [Dethroned! 'Powerless' Trump watches Musk go 'full Monty Burns' at own cabinet meeting](https://www.yahoo.com/news/dethroned-powerless-trump-watches-musk-002742068.html)
-- Feb 26 - [Low Levels Of This Vitamin Were Just Linked To Dementia. Are You Getting Enough?](https://www.yahoo.com/lifestyle/low-levels-vitamin-were-just-192400011.html)
-- Feb 26 - [Sen. Mark Kelly exposes the truth: Everyone is lying about Ukraine | Opinion](https://www.yahoo.com/news/sen-mark-kelly-exposes-truth-212207962.html)
+- Feb 26 - [Trump Finally Has a Plan to Solve Egg Costs, and It’s a Doozy](https://www.yahoo.com/news/trump-finally-plan-solve-egg-203341422.html)
 <!-- feed end -->
 
 ### Onstream
