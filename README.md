@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [NATO-Member Turkey Open to Deploying Peacekeepers in Ukraine](https://finance.yahoo.com/news/nato-member-turkey-open-deploying-133657539.html)
-- Feb 27 - [Intel Corporation (INTC) : Among Stocks That Could Skyrocket After Jensen Huang’s Earnings Call](https://finance.yahoo.com/news/intel-corporation-intc-among-stocks-133408152.html)
-- Feb 27 - [Israel's refusal to withdraw from this narrow strip of desert could threaten the Gaza ceasefire](https://www.yahoo.com/news/israels-refusal-withdraw-narrow-strip-113943218.html)
-- Feb 27 - [Scientists' stunning observation of hybrid 'grolar' bear sparks concern: 'Ill-suited to adapt'](https://www.yahoo.com/news/scientists-stunning-observation-hybrid-grolar-110014670.html)
-- Feb 27 - [Oscar-winning actor Gene Hackman and his wife and dog found dead in their New Mexico home](https://www.yahoo.com/news/gene-hackman-wife-dog-found-090407795.html)
+- Feb 27 - [Gene Hackman, wife found dead in New Mexico home, officials say](https://www.yahoo.com/news/gene-hackman-wife-found-dead-143136767.html)
+- Feb 27 - [CDC investigating hospitalizations of five people who recently received chikungunya vaccine](https://www.yahoo.com/news/cdc-investigating-hospitalizations-five-people-234343133.html)
+- Feb 27 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-134449109.html)
+- Feb 27 - [Putin warns Europe against sabotaging US-Russia rapprochement](https://www.yahoo.com/news/russias-putin-says-first-contacts-123524555.html)
+- Feb 27 - [Mortgage and refinance rates today, February 27, 2025: The 30-year rate inches closer to 6.25%](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-february-27-2025-110050211.html)
 <!-- feed end -->
 
 ### Onstream
