@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [A Member Of Congress Proposed Making A Donald Trump $250 Bill And Shared What That Might Look Like](https://www.yahoo.com/news/member-congress-proposed-making-donald-195747216.html)
+- Feb 27 - [Conservative commentators seen with 'Epstein Files' binders after AG Bondi promises docs release](https://www.yahoo.com/news/conservative-commentators-seen-epstein-files-184027669.html)
 - Feb 27 - [Musk Takes $2.4 Billion Contract From Verizon To Give It To Starlink Instead, Which Definitely Isn't Blatantly Illegal Or Wildly Corrupt In Any Way](https://autos.yahoo.com/musk-takes-2-4-billion-181208839.html)
 - Feb 27 - [Gene Hackman's Daughter Reveals What She Believes Led to Father's Unexpected Death](https://www.yahoo.com/entertainment/gene-hackmans-daughter-reveals-she-165736262.html)
 - Feb 27 - [Teacher union head taking fight to Elon Musk through Tesla stock](https://finance.yahoo.com/news/teacher-union-head-taking-fight-162607617.html)
-- Feb 27 - [RFK Jr. Takes a Sledgehammer to Two Major Vaccine Developments](https://www.yahoo.com/news/rfk-jr-takes-sledgehammer-two-142741731.html)
+- Feb 27 - [Multiple people flown to various hospitals following crash in Waupaca County](https://www.yahoo.com/news/multiple-people-flown-various-hospitals-154328373.html)
 <!-- feed end -->
 
 ### Onstream
