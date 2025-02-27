@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [California couple convicted after plane chat leads to animal trafficking bust](https://www.yahoo.com/news/california-couple-convicted-airplane-chat-210814340.html)
-- Feb 27 - [Trump says he is likely to accept UK deal on Chagos Islands](https://www.yahoo.com/news/trump-says-likely-accept-uk-195123719.html)
+- Feb 27 - [RFK Jr. shrugs shoulders at deadly Texas measles outbreak. What'd you expect? | Opinion](https://www.yahoo.com/news/rfk-jr-shrugs-shoulders-deadly-223400365.html)
+- Feb 27 - [Tom Sandoval Asks Judge for Forgiveness After Rachel Leviss Court Battle Mistake](https://www.yahoo.com/entertainment/tom-sandoval-asks-judge-forgiveness-200501905.html)
+- Feb 27 - [GJPD makes arrest in serious injury crash](https://www.yahoo.com/news/gjpd-makes-arrest-serious-injury-192656306.html)
 - Feb 27 - [Gene Hackman, Betsy Arakawa’s harrowing 911 call revealed: Caller tears up begging for help](https://www.yahoo.com/entertainment/gene-hackman-betsy-arakawa-harrowing-183926752.html)
 - Feb 27 - [Musk Takes $2.4 Billion Contract From Verizon To Give It To Starlink Instead, Which Definitely Isn't Blatantly Illegal Or Wildly Corrupt In Any Way](https://autos.yahoo.com/musk-takes-2-4-billion-181208839.html)
-- Feb 27 - [This might be the first vehicle that drives and flies](https://finance.yahoo.com/video/might-first-vehicle-drives-flies-163951290.html)
 <!-- feed end -->
 
 ### Onstream
