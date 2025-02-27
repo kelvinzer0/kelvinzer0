@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 27 - [NATO-Member Turkey Open to Deploying Peacekeepers in Ukraine](https://finance.yahoo.com/news/nato-member-turkey-open-deploying-133657539.html)
+- Feb 27 - [Intel Corporation (INTC) : Among Stocks That Could Skyrocket After Jensen Huang’s Earnings Call](https://finance.yahoo.com/news/intel-corporation-intc-among-stocks-133408152.html)
+- Feb 27 - [Israel's refusal to withdraw from this narrow strip of desert could threaten the Gaza ceasefire](https://www.yahoo.com/news/israels-refusal-withdraw-narrow-strip-113943218.html)
 - Feb 27 - [Scientists' stunning observation of hybrid 'grolar' bear sparks concern: 'Ill-suited to adapt'](https://www.yahoo.com/news/scientists-stunning-observation-hybrid-grolar-110014670.html)
 - Feb 27 - [Oscar-winning actor Gene Hackman and his wife and dog found dead in their New Mexico home](https://www.yahoo.com/news/gene-hackman-wife-dog-found-090407795.html)
-- Feb 27 - [One map shows how Medicaid cuts could affect each state](https://www.yahoo.com/news/one-map-shows-medicaid-cuts-090302068.html)
-- Feb 27 - [Self-Made Millionaire Warns 90% Of People Are Throwing Away Money On This Expense](https://finance.yahoo.com/news/self-made-millionaire-warns-90-021209945.html)
-- Feb 27 - [Michigan Democratic Gov. Whitmer makes direct appeal to young men after sharp shift in election](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-makes-013133035.html)
 <!-- feed end -->
 
 ### Onstream
