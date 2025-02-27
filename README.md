@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 27 - [Michigan Democratic Gov. Whitmer makes direct appeal to young men after sharp shift in election](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-makes-013133035.html)
 - Feb 27 - [Jeff Bezos Announces That Washington Post Opinions Will Now Exclusively Celebrate the Glories of Capitalism](https://www.yahoo.com/news/jeff-bezos-announces-washington-post-002920836.html)
-- Feb 26 - [CDC investigating hospitalizations of five people who recently received chikungunya vaccine](https://www.yahoo.com/news/cdc-investigating-hospitalizations-five-people-234343133.html)
-- Feb 26 - [Nvidia sells $11 billion of next-gen Blackwell AI chips in 'fastest product ramp in our company’s history'](https://finance.yahoo.com/news/nvidia-sells-11-billion-of-next-gen-blackwell-ai-chips-in-fastest-product-ramp-in-our-companys-history-215339003.html)
+- Feb 27 - [Dethroned! 'Powerless' Trump watches Musk go 'full Monty Burns' at own cabinet meeting](https://www.yahoo.com/news/dethroned-powerless-trump-watches-musk-002742068.html)
+- Feb 26 - [Low Levels Of This Vitamin Were Just Linked To Dementia. Are You Getting Enough?](https://www.yahoo.com/lifestyle/low-levels-vitamin-were-just-192400011.html)
 - Feb 26 - [Sen. Mark Kelly exposes the truth: Everyone is lying about Ukraine | Opinion](https://www.yahoo.com/news/sen-mark-kelly-exposes-truth-212207962.html)
 <!-- feed end -->
 
