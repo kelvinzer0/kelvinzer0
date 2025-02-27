@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Convoy believed to be carrying remains of four Israeli hostages arrives at Tel Aviv forensics centre](https://www.yahoo.com/news/convoy-believed-carrying-remains-four-033830401.html)
-- Feb 26 - [Billionaire Bill Ackman Just Bought 30.3 Million Shares of This Soaring Growth Stock](https://finance.yahoo.com/news/billionaire-bill-ackman-just-bought-233200806.html)
-- Feb 26 - [Boeing’s Little Bird Helicopter Production Set To End](https://www.yahoo.com/news/boeing-little-bird-helicopter-production-224238443.html)
-- Feb 26 - [Nvidia sells $11 billion of next-gen Blackwell AI chips in 'fastest product ramp in our company’s history'](https://finance.yahoo.com/news/nvidia-sells-11-billion-of-next-gen-blackwell-ai-chips-in-fastest-product-ramp-in-our-companys-history-215339003.html)
-- Feb 26 - [3 councilmen in South Carolina's third-largest city charged in bribery and kickback scheme](https://www.yahoo.com/news/3-councilmen-south-carolinas-third-213621535.html)
+- Feb 27 - [Self-Made Millionaire Warns 90% Of People Are Throwing Away Money On This Expense](https://finance.yahoo.com/news/self-made-millionaire-warns-90-021209945.html)
+- Feb 27 - [Sophie Rain Breaks the Internet Again: OnlyFans Star Claims $50 Million in Net Earnings!](https://www.yahoo.com/entertainment/sophie-rain-breaks-internet-again-014500208.html)
+- Feb 27 - [Henderson man kidnaps Las Vegas business owner after his wife steals $20M: police](https://www.yahoo.com/news/henderson-man-kidnaps-las-vegas-012021729.html)
+- Feb 27 - [Jeff Bezos Announces That Washington Post Opinions Will Now Exclusively Celebrate the Glories of Capitalism](https://www.yahoo.com/news/jeff-bezos-announces-washington-post-002920836.html)
+- Feb 26 - [CDC investigating hospitalizations of five people who recently received chikungunya vaccine](https://www.yahoo.com/news/cdc-investigating-hospitalizations-five-people-234343133.html)
 <!-- feed end -->
 
 ### Onstream
