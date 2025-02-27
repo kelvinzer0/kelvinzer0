@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [This Is Who Really Makes Costco's Kirkland Signature Butter](https://www.yahoo.com/lifestyle/really-makes-costcos-kirkland-signature-163054101.html)
+- Feb 27 - [A Member Of Congress Proposed Making A Donald Trump $250 Bill And Shared What That Might Look Like](https://www.yahoo.com/news/member-congress-proposed-making-donald-195747216.html)
+- Feb 27 - [Musk Takes $2.4 Billion Contract From Verizon To Give It To Starlink Instead, Which Definitely Isn't Blatantly Illegal Or Wildly Corrupt In Any Way](https://autos.yahoo.com/musk-takes-2-4-billion-181208839.html)
+- Feb 27 - [Gene Hackman's Daughter Reveals What She Believes Led to Father's Unexpected Death](https://www.yahoo.com/entertainment/gene-hackmans-daughter-reveals-she-165736262.html)
+- Feb 27 - [Teacher union head taking fight to Elon Musk through Tesla stock](https://finance.yahoo.com/news/teacher-union-head-taking-fight-162607617.html)
 - Feb 27 - [RFK Jr. Takes a Sledgehammer to Two Major Vaccine Developments](https://www.yahoo.com/news/rfk-jr-takes-sledgehammer-two-142741731.html)
-- Feb 27 - [Mike Johnson claims ‘paid protesters’ are disrupting GOP town halls — then backtracks when asked for proof](https://www.yahoo.com/news/mike-johnson-claims-paid-protesters-142202159.html)
-- Feb 27 - [CDC investigating hospitalizations of five people who recently received chikungunya vaccine](https://www.yahoo.com/news/cdc-investigating-hospitalizations-five-people-234343133.html)
-- Feb 27 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-134449109.html)
 <!-- feed end -->
 
 ### Onstream
