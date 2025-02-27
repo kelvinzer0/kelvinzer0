@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Conservative commentators seen with 'Epstein Files' binders after AG Bondi promises docs release](https://www.yahoo.com/news/conservative-commentators-seen-epstein-files-184027669.html)
+- Feb 27 - [California couple convicted after plane chat leads to animal trafficking bust](https://www.yahoo.com/news/california-couple-convicted-airplane-chat-210814340.html)
+- Feb 27 - [Trump says he is likely to accept UK deal on Chagos Islands](https://www.yahoo.com/news/trump-says-likely-accept-uk-195123719.html)
+- Feb 27 - [Gene Hackman, Betsy Arakawa’s harrowing 911 call revealed: Caller tears up begging for help](https://www.yahoo.com/entertainment/gene-hackman-betsy-arakawa-harrowing-183926752.html)
 - Feb 27 - [Musk Takes $2.4 Billion Contract From Verizon To Give It To Starlink Instead, Which Definitely Isn't Blatantly Illegal Or Wildly Corrupt In Any Way](https://autos.yahoo.com/musk-takes-2-4-billion-181208839.html)
-- Feb 27 - [Gene Hackman's Daughter Reveals What She Believes Led to Father's Unexpected Death](https://www.yahoo.com/entertainment/gene-hackmans-daughter-reveals-she-165736262.html)
-- Feb 27 - [Teacher union head taking fight to Elon Musk through Tesla stock](https://finance.yahoo.com/news/teacher-union-head-taking-fight-162607617.html)
-- Feb 27 - [Multiple people flown to various hospitals following crash in Waupaca County](https://www.yahoo.com/news/multiple-people-flown-various-hospitals-154328373.html)
+- Feb 27 - [This might be the first vehicle that drives and flies](https://finance.yahoo.com/video/might-first-vehicle-drives-flies-163951290.html)
 <!-- feed end -->
 
 ### Onstream
