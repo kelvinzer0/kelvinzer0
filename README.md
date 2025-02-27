@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Gene Hackman, wife found dead in New Mexico home, officials say](https://www.yahoo.com/news/gene-hackman-wife-found-dead-143136767.html)
+- Feb 27 - [Jefferies came away ‘confident’ in DraftKings after meeting with CFO](https://finance.yahoo.com/news/jefferies-came-away-confident-draftkings-155032708.html)
+- Feb 27 - [Watch: Gene Hackman’s most iconic movie roles](https://www.yahoo.com/entertainment/watch-gene-hackman-most-iconic-145519988.html)
+- Feb 27 - [Mike Johnson claims ‘paid protesters’ are disrupting GOP town halls — then backtracks when asked for proof](https://www.yahoo.com/news/mike-johnson-claims-paid-protesters-142202159.html)
 - Feb 27 - [CDC investigating hospitalizations of five people who recently received chikungunya vaccine](https://www.yahoo.com/news/cdc-investigating-hospitalizations-five-people-234343133.html)
 - Feb 27 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-134449109.html)
-- Feb 27 - [Putin warns Europe against sabotaging US-Russia rapprochement](https://www.yahoo.com/news/russias-putin-says-first-contacts-123524555.html)
-- Feb 27 - [Mortgage and refinance rates today, February 27, 2025: The 30-year rate inches closer to 6.25%](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-february-27-2025-110050211.html)
 <!-- feed end -->
 
 ### Onstream
