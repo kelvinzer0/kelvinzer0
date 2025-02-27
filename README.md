@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Amazon unveils quantum chip, aiming to shave years off development time](https://www.yahoo.com/tech/amazon-unveils-quantum-chip-aiming-110211789.html)
+- Feb 27 - [Scientists' stunning observation of hybrid 'grolar' bear sparks concern: 'Ill-suited to adapt'](https://www.yahoo.com/news/scientists-stunning-observation-hybrid-grolar-110014670.html)
 - Feb 27 - [Oscar-winning actor Gene Hackman and his wife and dog found dead in their New Mexico home](https://www.yahoo.com/news/gene-hackman-wife-dog-found-090407795.html)
+- Feb 27 - [One map shows how Medicaid cuts could affect each state](https://www.yahoo.com/news/one-map-shows-medicaid-cuts-090302068.html)
 - Feb 27 - [Self-Made Millionaire Warns 90% Of People Are Throwing Away Money On This Expense](https://finance.yahoo.com/news/self-made-millionaire-warns-90-021209945.html)
-- Feb 27 - [Sophie Rain Breaks the Internet Again: OnlyFans Star Claims $50 Million in Net Earnings!](https://www.yahoo.com/entertainment/sophie-rain-breaks-internet-again-014500208.html)
 - Feb 27 - [Michigan Democratic Gov. Whitmer makes direct appeal to young men after sharp shift in election](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-makes-013133035.html)
 <!-- feed end -->
 
