@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [BBC Komla Dumor Award 2025 launched](https://www.yahoo.com/news/bbc-komla-dumor-award-2025-034545263.html)
 - Feb 27 - [Convoy believed to be carrying remains of four Israeli hostages arrives at Tel Aviv forensics centre](https://www.yahoo.com/news/convoy-believed-carrying-remains-four-033830401.html)
-- Feb 27 - [Moroccan king calls for Eid animal sacrifice restraint](https://www.yahoo.com/news/moroccan-king-calls-eid-animal-032014980.html)
-- Feb 26 - [CDC investigating hospitalizations of five people who recently received chikungunya vaccine](https://www.yahoo.com/news/cdc-investigating-hospitalizations-five-people-234343133.html)
+- Feb 26 - [Billionaire Bill Ackman Just Bought 30.3 Million Shares of This Soaring Growth Stock](https://finance.yahoo.com/news/billionaire-bill-ackman-just-bought-233200806.html)
+- Feb 26 - [Boeing’s Little Bird Helicopter Production Set To End](https://www.yahoo.com/news/boeing-little-bird-helicopter-production-224238443.html)
+- Feb 26 - [Nvidia sells $11 billion of next-gen Blackwell AI chips in 'fastest product ramp in our company’s history'](https://finance.yahoo.com/news/nvidia-sells-11-billion-of-next-gen-blackwell-ai-chips-in-fastest-product-ramp-in-our-companys-history-215339003.html)
 - Feb 26 - [3 councilmen in South Carolina's third-largest city charged in bribery and kickback scheme](https://www.yahoo.com/news/3-councilmen-south-carolinas-third-213621535.html)
 <!-- feed end -->
 
