@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Can Microsoft, Salesforce overcome challenges for AI growth?](https://finance.yahoo.com/video/microsoft-salesforce-overcome-challenges-ai-170700086.html)
-- Feb 27 - [Is Super Micro Computer (SMCI) the High Growth Cybersecurity Stock to Buy?](https://finance.yahoo.com/news/super-micro-computer-smci-high-164424054.html)
-- Feb 27 - [Watch Trump Tell Fox News Reporter To Gush Over Cabinet Meeting After It's Over](https://www.yahoo.com/news/watch-trump-tell-fox-news-162842150.html)
-- Feb 27 - [Crypto Bloodbath: $810 Billion Wiped Out--Bitcoin ETFs See Record Exodus as Market Confidence ...](https://finance.yahoo.com/news/crypto-bloodbath-810-billion-wiped-143612891.html)
+- Feb 27 - [Amazon's new quantum computing chip, Tesla and Elon Musk: Catalysts](https://finance.yahoo.com/video/amazons-quantum-computing-chip-tesla-170928068.html)
+- Feb 27 - [Major I-15 crash delays traffic for several miles near South Jordan](https://www.yahoo.com/news/major-15-crash-delays-traffic-165107792.html)
+- Feb 27 - [I'm 65 With $1.1 Million in My 401(k) and IRA and a $2,800 Social Security Check. What's My Retirement Budget?](https://finance.yahoo.com/news/im-65-1-1-million-163410320.html)
 - Feb 27 - [RFK Jr. Takes a Sledgehammer to Two Major Vaccine Developments](https://www.yahoo.com/news/rfk-jr-takes-sledgehammer-two-142741731.html)
+- Feb 27 - [Mike Johnson claims ‘paid protesters’ are disrupting GOP town halls — then backtracks when asked for proof](https://www.yahoo.com/news/mike-johnson-claims-paid-protesters-142202159.html)
 <!-- feed end -->
 
 ### Onstream
