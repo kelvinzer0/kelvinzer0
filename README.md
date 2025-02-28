@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Mason High School student arrested following shooting threat, district says](https://www.yahoo.com/news/mason-high-school-student-arrested-014837299.html)
+- Feb 28 - [The International Space Station is too clean, scientists say](https://www.yahoo.com/news/international-space-station-too-clean-155749962.html)
 - Feb 28 - [Release of Jeffrey Epstein files sparks anger among MAGA faithful: ‘The evil deep state LIED TO YOUR FACE’](https://www.yahoo.com/news/release-jeffrey-epstein-files-sparks-011806408.html)
-- Feb 28 - [NOAA fires about 800 employees, with more possible Friday](https://www.yahoo.com/news/noaa-fires-800-employees-more-011533138.html)
 - Feb 28 - [That was fast! Trump MIA as prices spike from coffee to eggs to gasoline](https://www.yahoo.com/news/fast-trump-mia-prices-spike-004846528.html)
 - Feb 27 - [How to avoid taxes on savings account interest](https://finance.yahoo.com/personal-finance/banking/article/how-to-avoid-taxes-on-savings-account-225057079.html)
+- Feb 27 - [Judge overthrows conviction of owners of New Zealand island volcano where 22 died in an eruption](https://www.yahoo.com/news/criminal-conviction-thrown-owners-zealand-214632857.html)
 <!-- feed end -->
 
 ### Onstream
