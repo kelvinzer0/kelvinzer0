@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [RFK Jr. shrugs shoulders at deadly Texas measles outbreak. What'd you expect? | Opinion](https://www.yahoo.com/news/rfk-jr-shrugs-shoulders-deadly-223400365.html)
-- Feb 27 - [Tom Sandoval Asks Judge for Forgiveness After Rachel Leviss Court Battle Mistake](https://www.yahoo.com/entertainment/tom-sandoval-asks-judge-forgiveness-200501905.html)
-- Feb 27 - [GJPD makes arrest in serious injury crash](https://www.yahoo.com/news/gjpd-makes-arrest-serious-injury-192656306.html)
-- Feb 27 - [Gene Hackman, Betsy Arakawa’s harrowing 911 call revealed: Caller tears up begging for help](https://www.yahoo.com/entertainment/gene-hackman-betsy-arakawa-harrowing-183926752.html)
-- Feb 27 - [Musk Takes $2.4 Billion Contract From Verizon To Give It To Starlink Instead, Which Definitely Isn't Blatantly Illegal Or Wildly Corrupt In Any Way](https://autos.yahoo.com/musk-takes-2-4-billion-181208839.html)
+- Feb 28 - [Murder suspect claims self-defense in young mother’s death](https://www.yahoo.com/news/murder-suspect-claims-self-defense-211901297.html)
+- Feb 27 - [Is the Ford Mustang Shelby GT500 Going to Return in 2026?](https://autos.yahoo.com/ford-mustang-shelby-gt500-going-212300278.html)
+- Feb 27 - [Exclusive-Aerospace industry scrambles to deal with fallout from huge US factory fire](https://www.yahoo.com/news/exclusive-aerospace-industry-scrambles-deal-211425832.html)
+- Feb 27 - [Johnson says approach to IRA repeal will be ‘between a scalpel and a sledgehammer’](https://www.yahoo.com/news/johnson-says-approach-ira-repeal-204350014.html)
+- Feb 27 - [Trump says he is likely to accept UK deal on Chagos Islands](https://www.yahoo.com/news/trump-says-likely-accept-uk-195123719.html)
 <!-- feed end -->
 
 ### Onstream
