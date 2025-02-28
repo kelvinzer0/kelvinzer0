@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Murder suspect claims self-defense in young mother’s death](https://www.yahoo.com/news/murder-suspect-claims-self-defense-211901297.html)
-- Feb 27 - [Is the Ford Mustang Shelby GT500 Going to Return in 2026?](https://autos.yahoo.com/ford-mustang-shelby-gt500-going-212300278.html)
-- Feb 27 - [Exclusive-Aerospace industry scrambles to deal with fallout from huge US factory fire](https://www.yahoo.com/news/exclusive-aerospace-industry-scrambles-deal-211425832.html)
-- Feb 27 - [Johnson says approach to IRA repeal will be ‘between a scalpel and a sledgehammer’](https://www.yahoo.com/news/johnson-says-approach-ira-repeal-204350014.html)
-- Feb 27 - [Trump says he is likely to accept UK deal on Chagos Islands](https://www.yahoo.com/news/trump-says-likely-accept-uk-195123719.html)
+- Feb 28 - [Mason High School student arrested following shooting threat, district says](https://www.yahoo.com/news/mason-high-school-student-arrested-014837299.html)
+- Feb 28 - [Release of Jeffrey Epstein files sparks anger among MAGA faithful: ‘The evil deep state LIED TO YOUR FACE’](https://www.yahoo.com/news/release-jeffrey-epstein-files-sparks-011806408.html)
+- Feb 28 - [NOAA fires about 800 employees, with more possible Friday](https://www.yahoo.com/news/noaa-fires-800-employees-more-011533138.html)
+- Feb 28 - [That was fast! Trump MIA as prices spike from coffee to eggs to gasoline](https://www.yahoo.com/news/fast-trump-mia-prices-spike-004846528.html)
+- Feb 27 - [How to avoid taxes on savings account interest](https://finance.yahoo.com/personal-finance/banking/article/how-to-avoid-taxes-on-savings-account-225057079.html)
 <!-- feed end -->
 
 ### Onstream
