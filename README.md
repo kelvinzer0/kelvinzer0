@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Qatar Airways says crew handled dead passenger 'appropriately'](https://www.yahoo.com/news/qatar-airways-says-crew-handled-050306677.html)
 - Feb 28 - [Mason High School student arrested following shooting threat, district says](https://www.yahoo.com/news/mason-high-school-student-arrested-014837299.html)
 - Feb 28 - [Release of Jeffrey Epstein files sparks anger among MAGA faithful: ‘The evil deep state LIED TO YOUR FACE’](https://www.yahoo.com/news/release-jeffrey-epstein-files-sparks-011806408.html)
 - Feb 28 - [That was fast! Trump MIA as prices spike from coffee to eggs to gasoline](https://www.yahoo.com/news/fast-trump-mia-prices-spike-004846528.html)
 - Feb 27 - [How to avoid taxes on savings account interest](https://finance.yahoo.com/personal-finance/banking/article/how-to-avoid-taxes-on-savings-account-225057079.html)
+- Feb 27 - [Trump Stuns British Prime Minister With Mind-Boggling Russia Question](https://www.yahoo.com/news/trump-stuns-british-prime-minister-213552165.html)
 <!-- feed end -->
 
 ### Onstream
