@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Veteran Rochester newsman and familiar public radio voice announces retirement](https://www.yahoo.com/news/veteran-rochester-newsman-familiar-public-102048509.html)
-- Feb 28 - [Namibia's top court dismisses opposition election challenge](https://www.yahoo.com/news/namibias-top-court-dismisses-opposition-093754222.html)
+- Feb 28 - [Baltimore weather: Mild conditions continue before temperatures plummet](https://www.yahoo.com/news/baltimore-weather-mild-conditions-continue-115000216.html)
 - Feb 28 - [Pam Bondi Becomes Bipartisan Laughingstock After Epstein Document Dump Flop](https://www.yahoo.com/news/pam-bondi-becomes-bipartisan-laughingstock-042049161.html)
-- Feb 28 - [Musk Makes Big Mistake While Trying to Smear CNN Legal Analyst Norm Eisen](https://www.yahoo.com/news/musk-makes-big-mistake-while-025512367.html)
 - Feb 28 - [Release of Jeffrey Epstein files sparks anger among MAGA faithful: ‘The evil deep state LIED TO YOUR FACE’](https://www.yahoo.com/news/release-jeffrey-epstein-files-sparks-011806408.html)
+- Feb 28 - [That was fast! Trump MIA as prices spike from coffee to eggs to gasoline](https://www.yahoo.com/news/fast-trump-mia-prices-spike-004846528.html)
+- Feb 28 - [Remote US federal employees get ultimatum to move to Washington](https://www.yahoo.com/news/remote-us-federal-employees-ultimatum-003808679.html)
 <!-- feed end -->
 
 ### Onstream
