@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Intel delaying $28B chip factory in New Albany, Ohio to 2030](https://finance.yahoo.com/video/intel-delaying-28b-chip-factory-165544622.html)
-- Feb 28 - [Released Israeli hostage recounts hunger, chains that 'cut into your flesh'](https://www.yahoo.com/news/released-israeli-hostage-recounts-hunger-160442113.html)
-- Feb 28 - [‘Seek an alternate route’: Busy stretch of Mass. Turnpike shut down for ‘emergency repairs’](https://www.yahoo.com/news/seek-alternate-route-busy-stretch-141548312.html)
-- Feb 28 - [Trump to make English official US language, White House official says](https://www.yahoo.com/news/trump-sign-executive-order-making-142939777.html)
-- Feb 28 - [Trump's early backing of Ramaswamy for Ohio governor seen by some as meant to avoid a nasty primary](https://www.yahoo.com/news/trumps-early-backing-ramaswamy-ohio-130433022.html)
+- Feb 28 - [A total lunar eclipse is coming in March: Will Illinois see it?](https://www.yahoo.com/news/total-lunar-eclipse-coming-march-180554941.html)
+- Feb 28 - [Federal workers will get a new email demanding their accomplishments, with a key change](https://www.yahoo.com/news/federal-workers-email-demanding-accomplishments-172519251.html)
+- Feb 28 - [Father of young fan who received game-worn Victor Wembanyama jersey tries to reverse sale after auction](https://sports.yahoo.com/nba/article/father-of-young-fan-who-received-game-worn-victor-wembanyama-jersey-tries-to-reverse-sale-after-auction-170744857.html)
+- Feb 28 - [What happened to Dave Frankel? Longtime 6ABC weatherman Dave Frankel dead at 67](https://www.yahoo.com/news/happened-dave-frankel-longtime-6abc-161512715.html)
+- Feb 28 - [‘Cocaine queen of Europe’ arrested after four years on the run](https://www.yahoo.com/news/cocaine-queen-europe-arrested-four-154515095.html)
 <!-- feed end -->
 
 ### Onstream
