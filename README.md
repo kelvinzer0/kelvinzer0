@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Busy road closed after rollover crash involving semi in Shelby County](https://www.yahoo.com/news/busy-road-closed-rollover-crash-090046633.html)
+- Feb 28 - [Veteran Rochester newsman and familiar public radio voice announces retirement](https://www.yahoo.com/news/veteran-rochester-newsman-familiar-public-102048509.html)
+- Feb 28 - [Namibia's top court dismisses opposition election challenge](https://www.yahoo.com/news/namibias-top-court-dismisses-opposition-093754222.html)
+- Feb 28 - [Pam Bondi Becomes Bipartisan Laughingstock After Epstein Document Dump Flop](https://www.yahoo.com/news/pam-bondi-becomes-bipartisan-laughingstock-042049161.html)
 - Feb 28 - [Musk Makes Big Mistake While Trying to Smear CNN Legal Analyst Norm Eisen](https://www.yahoo.com/news/musk-makes-big-mistake-while-025512367.html)
-- Feb 28 - [Mason High School student arrested following shooting threat, district says](https://www.yahoo.com/news/mason-high-school-student-arrested-014837299.html)
 - Feb 28 - [Release of Jeffrey Epstein files sparks anger among MAGA faithful: ‘The evil deep state LIED TO YOUR FACE’](https://www.yahoo.com/news/release-jeffrey-epstein-files-sparks-011806408.html)
-- Feb 27 - [How to avoid taxes on savings account interest](https://finance.yahoo.com/personal-finance/banking/article/how-to-avoid-taxes-on-savings-account-225057079.html)
 <!-- feed end -->
 
 ### Onstream
