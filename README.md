@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [‘I’m turning away six people a day at Gatwick’: Birthday trip wrecked as staff reject valid passports again](https://www.yahoo.com/news/m-turning-away-six-people-150117503.html)
-- Feb 28 - [Canada's economy posts surprise annualized fourth quarter growth of 2.6%](https://finance.yahoo.com/news/canadas-economy-posts-surprise-annualized-133509638.html)
-- Feb 28 - [Europe's Greens have the blues as climate measures rolled back](https://www.yahoo.com/news/europes-greens-blues-climate-measures-132820103.html)
-- Feb 28 - [Mortgage and refinance rates today, February 28, 2025: Lowest rates all year](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-february-28-2025-110006674.html)
-- Feb 28 - [Mason High School student arrested following shooting threat, district says](https://www.yahoo.com/news/mason-high-school-student-arrested-014837299.html)
+- Feb 28 - [If I Could Only Buy 1 Quantum Computing Stock, This Would Be It](https://finance.yahoo.com/news/could-only-buy-1-quantum-143000226.html)
+- Feb 28 - [1 in 3 Americans Are Worried About Layoffs in 2025 — 3 Ways To Prepare Your Finances](https://finance.yahoo.com/news/1-3-americans-worried-layoffs-140332816.html)
+- Feb 28 - ['No Amazon, no Walmart, no fast food': What's behind the 'Feb. 28 economic blackout'](https://www.yahoo.com/news/no-amazon-no-walmart-no-fast-food-whats-behind-the-feb-28-economic-blackout-200849532.html)
+- Feb 28 - [Trump's early backing of Ramaswamy for Ohio governor seen by some as meant to avoid a nasty primary](https://www.yahoo.com/news/trumps-early-backing-ramaswamy-ohio-130433022.html)
+- Feb 28 - [Archaeologists Discovered a 3,000-Year-Old Egyptian Gold Mine—and Another World Around It](https://www.yahoo.com/news/archaeologists-discovered-3-000-old-130000605.html)
 <!-- feed end -->
 
 ### Onstream
