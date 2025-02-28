@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 28 - [Mason High School student arrested following shooting threat, district says](https://www.yahoo.com/news/mason-high-school-student-arrested-014837299.html)
 - Feb 28 - [Release of Jeffrey Epstein files sparks anger among MAGA faithful: ‘The evil deep state LIED TO YOUR FACE’](https://www.yahoo.com/news/release-jeffrey-epstein-files-sparks-011806408.html)
+- Feb 28 - [That was fast! Trump MIA as prices spike from coffee to eggs to gasoline](https://www.yahoo.com/news/fast-trump-mia-prices-spike-004846528.html)
 - Feb 27 - [Republicans call for attorney general’s ouster after Trump challenges and court losses](https://www.yahoo.com/news/republicans-call-attorney-general-ouster-225212825.html)
 - Feb 27 - [How to avoid taxes on savings account interest](https://finance.yahoo.com/personal-finance/banking/article/how-to-avoid-taxes-on-savings-account-225057079.html)
-- Feb 27 - [Judge overthrows conviction of owners of New Zealand island where 22 died in volcanic eruption](https://www.yahoo.com/news/criminal-conviction-thrown-owners-zealand-214632857.html)
 <!-- feed end -->
 
 ### Onstream
