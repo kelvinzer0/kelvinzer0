@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [A total lunar eclipse is coming in March: Will Illinois see it?](https://www.yahoo.com/news/total-lunar-eclipse-coming-march-180554941.html)
+- Feb 28 - [Economic blackout: Consumers are leveraging their 'economic power'](https://finance.yahoo.com/video/economic-blackout-consumers-leveraging-economic-182936499.html)
+- Feb 28 - [Prayers at Jerusalem's Al Aqsa Mosque, with Ramadan to start on Saturday](https://www.yahoo.com/news/prayers-jerusalems-al-aqsa-mosque-181945012.html)
 - Feb 28 - [Federal workers will get a new email demanding their accomplishments, with a key change](https://www.yahoo.com/news/federal-workers-email-demanding-accomplishments-172519251.html)
-- Feb 28 - [Father of young fan who received game-worn Victor Wembanyama jersey tries to reverse sale after auction](https://sports.yahoo.com/nba/article/father-of-young-fan-who-received-game-worn-victor-wembanyama-jersey-tries-to-reverse-sale-after-auction-170744857.html)
-- Feb 28 - [What happened to Dave Frankel? Longtime 6ABC weatherman Dave Frankel dead at 67](https://www.yahoo.com/news/happened-dave-frankel-longtime-6abc-161512715.html)
 - Feb 28 - [‘Cocaine queen of Europe’ arrested after four years on the run](https://www.yahoo.com/news/cocaine-queen-europe-arrested-four-154515095.html)
+- Feb 28 - [‘Seek an alternate route’: Busy stretch of Mass. Turnpike shut down for ‘emergency repairs’](https://www.yahoo.com/news/seek-alternate-route-busy-stretch-141548312.html)
 <!-- feed end -->
 
 ### Onstream
