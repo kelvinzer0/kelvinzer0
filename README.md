@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [No suit, no lunch, no respect: Zelenskyy-Trump feud started with a fashion dig](https://www.yahoo.com/news/no-suit-no-lunch-no-221947928.html)
+- Feb 28 - [Sen. Lummis on crypto, Trumponomics latest: Market Domination Overtime](https://finance.yahoo.com/video/sen-lummis-crypto-trumponomics-latest-221943387.html)
+- Feb 28 - [Palmyra school officials wrestle with building security issues during after school events](https://www.yahoo.com/news/palmyra-school-officials-wrestle-building-220456614.html)
 - Feb 28 - ['Invasive and delicious': The federal government is begging people to eat this massive, harmful rodent species](https://www.yahoo.com/news/invasive-and-delicious-the-federal-government-is-begging-people-to-eat-this-massive-harmful-rodent-species-202015284.html)
-- Feb 28 - [How Americans Define Wealthy, According to Fidelity Survey](https://finance.yahoo.com/news/americans-define-wealthy-according-fidelity-200019294.html)
-- Feb 28 - [Jeffrey Epstein Files Released: Celebrities Named in His Contact Book](https://www.yahoo.com/news/jeffrey-epstein-files-released-celebrities-185431306.html)
-- Feb 28 - [Federal workers will get a new email demanding their accomplishments, with a key change](https://www.yahoo.com/news/federal-workers-email-demanding-accomplishments-172519251.html)
-- Feb 28 - [Opinion - Trump is following Obama’s path to gridlock — and could be creating the anti-MAGA that takes him down](https://www.yahoo.com/news/opinion-trump-following-obama-path-170000429.html)
+- Feb 28 - [In full view of the world, Trump and Vance told Zelensky he can’t win the war. He told them they’re naive for believing Putin](https://www.yahoo.com/news/full-view-world-trump-vance-193848700.html)
 <!-- feed end -->
 
 ### Onstream
