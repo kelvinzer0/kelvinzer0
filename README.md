@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [A stretch of a North Carolina highway that collapsed during Helene is about to reopen](https://www.yahoo.com/news/stretch-north-carolina-highway-collapsed-155908802.html)
+- Feb 28 - [Intel delaying $28B chip factory in New Albany, Ohio to 2030](https://finance.yahoo.com/video/intel-delaying-28b-chip-factory-165544622.html)
+- Feb 28 - [Released Israeli hostage recounts hunger, chains that 'cut into your flesh'](https://www.yahoo.com/news/released-israeli-hostage-recounts-hunger-160442113.html)
+- Feb 28 - [‘Seek an alternate route’: Busy stretch of Mass. Turnpike shut down for ‘emergency repairs’](https://www.yahoo.com/news/seek-alternate-route-busy-stretch-141548312.html)
 - Feb 28 - [Trump to make English official US language, White House official says](https://www.yahoo.com/news/trump-sign-executive-order-making-142939777.html)
 - Feb 28 - [Trump's early backing of Ramaswamy for Ohio governor seen by some as meant to avoid a nasty primary](https://www.yahoo.com/news/trumps-early-backing-ramaswamy-ohio-130433022.html)
-- Feb 28 - [Archaeologists Discovered a 3,000-Year-Old Egyptian Gold Mine—and Another World Around It](https://www.yahoo.com/news/archaeologists-discovered-3-000-old-130000605.html)
-- Feb 28 - [Mortgage and refinance rates today, February 28, 2025: Lowest rates all year](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-february-28-2025-110006674.html)
 <!-- feed end -->
 
 ### Onstream
