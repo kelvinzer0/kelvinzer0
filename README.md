@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [Elon Musk Calls Social Security 'The Biggest Ponzi Scheme Of All Time'](https://finance.yahoo.com/news/elon-musk-calls-social-security-212613265.html)
-- Mar 01 - [Bladed Hellfire Missile Seen In Action For The First Time](https://www.yahoo.com/news/bladed-hellfire-missile-seen-action-211720943.html)
+- Mar 01 - [What are the worst ultra-processed foods? New study links them to nearly 1 in 4 heart and stroke deaths in Canada](https://www.yahoo.com/lifestyle/what-are-the-worst-ultra-processed-foods-new-study-links-them-to-nearly-1-in-4-heart-and-stroke-deaths-in-canada-170048390.html)
+- Mar 01 - [JD Vance receives ice-cold reception as family arrives for Vermont skiing vacation](https://www.yahoo.com/news/jd-vance-receives-ice-cold-214153836.html)
+- Mar 01 - [2 Workers Rescued from Scaffolding Hanging Off of High-Rise Building’s 78th Floor as Glass Was ‘Raining’ Down on Street](https://www.yahoo.com/entertainment/2-workers-rescued-scaffolding-hanging-211200957.html)
 - Mar 01 - ['Megalodon' Goldfish Found in Pennsylvania Waterway — and Now Officials Are Issuing a Warning to Pet Owners](https://www.yahoo.com/entertainment/megalodon-goldfish-found-pennsylvania-waterway-194834075.html)
-- Mar 01 - [8 Chicago area hospitals acquired by California-based healthcare system](https://www.yahoo.com/news/8-chicago-area-hospitals-acquired-154806150.html)
-- Mar 01 - [Black graves are being moved to make way for an industrial park, drawing a mix of emotions](https://www.yahoo.com/news/black-graves-being-moved-way-150144357.html)
+- Mar 01 - [NJ Transit service suspended in and out of Penn Station in NYC](https://www.yahoo.com/news/nj-transit-suspended-penn-station-191931301.html)
 <!-- feed end -->
 
 ### Onstream
