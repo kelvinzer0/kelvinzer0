@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [Experts track razor-toothed predator as it moves through state's hidden passages — here's how it could torpedo the local economy](https://www.yahoo.com/news/experts-track-razor-toothed-predator-005500973.html)
+- Mar 01 - [Here’s the Salary You’ll Need To Afford a House in the Top 10 Markets for First-Time Buyers](https://finance.yahoo.com/news/salary-ll-afford-house-top-120043409.html)
 - Mar 01 - [Gene Hackman Death Case: Pills Found by Wife’s Body Identified](https://www.yahoo.com/news/gene-hackman-death-case-pills-005449517.html)
-- Mar 01 - [Court hearing for South Dakota’s lone death row inmate](https://www.yahoo.com/news/court-hearing-south-dakota-lone-002300813.html)
 - Mar 01 - [91-Year-Old Michael Caine's Three-Word Response To The Trump/Zelensky Fight Is Going Viral](https://www.yahoo.com/entertainment/michael-caines-response-trump-zelensky-002218812.html)
-- Feb 28 - [Stunned by angry Trump exchange, Ukrainians rally around Zelenskiy](https://www.yahoo.com/news/stunned-angry-trump-exchange-ukrainians-233949681.html)
+- Feb 28 - [Zelensky Trolls Trump and Vance as He Breaks Silence on Oval Office Row](https://www.yahoo.com/news/zelensky-trolls-trump-vance-breaks-232623152.html)
+- Feb 28 - [Alabama governor commutes death row inmate Rocky Myers' sentence to life in prison](https://www.yahoo.com/news/alabama-governor-commutes-death-row-223641047.html)
 <!-- feed end -->
 
 ### Onstream
