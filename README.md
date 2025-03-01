@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [Researchers baffled by remains of animal found in desert: 'It was beyond anything we had expected'](https://www.yahoo.com/news/researchers-baffled-remains-animal-found-110031498.html)
-- Mar 01 - [Musk’s Purges Suddenly Take a Horrific Turn—and Wreck an Ugly MAGA Lie](https://www.yahoo.com/news/musk-purges-suddenly-horrific-turn-110000402.html)
-- Mar 01 - [Major company to axe nearly 5,000 jobs and cut 3,000 contractors in massive downsizing effort: 'We have got more we need to do'](https://www.yahoo.com/news/major-company-axe-nearly-5-104532916.html)
-- Mar 01 - [Scientists discover innovative method to extract critical material from salt water — and it could make electric cars more affordable](https://www.yahoo.com/tech/scientists-discover-innovative-method-extract-104511832.html)
-- Mar 01 - [Experts track razor-toothed predator as it moves through state's hidden passages — here's how it could torpedo the local economy](https://www.yahoo.com/news/experts-track-razor-toothed-predator-005500973.html)
+- Mar 01 - [Woman dies day after vehicle hit her at Mississauga intersection, police say](https://www.yahoo.com/news/woman-dies-day-vehicle-hit-161528801.html)
+- Mar 01 - [4K Footage: James Webb Space Telescope's View Of Breathtaking Star-Forming Region NGC 604](https://www.yahoo.com/news/james-webb-space-telescopes-view-133056563.html)
+- Mar 01 - [Elon Musk Asks for Reason US Can’t Afford Healthcare — Mark Cuban Gives 7 (and a Solution)](https://finance.yahoo.com/news/elon-musk-asks-reason-us-190023168.html)
+- Mar 01 - [China's DeepSeek claims theoretical cost-profit ratio of 545% per day](https://finance.yahoo.com/news/chinas-deepseek-claims-theoretical-cost-121658741.html)
+- Mar 01 - [Elisabeth Fritzl Was Lured into a Basement By Her Dad and Trapped for 24 Years. Inside the Horrifying Case That Inspired “Room” — and How She Pulled Off Her Escape](https://www.yahoo.com/entertainment/elisabeth-fritzl-lured-basement-her-120000101.html)
 <!-- feed end -->
 
 ### Onstream
