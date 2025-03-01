@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [US judge dismisses SEC fraud lawsuit against Hex crypto founder](https://www.yahoo.com/tech/us-judge-dismisses-sec-fraud-011525463.html)
+- Mar 01 - [91-Year-Old Michael Caine's Three-Word Response To The Trump/Zelensky Fight Is Going Viral](https://www.yahoo.com/entertainment/michael-caines-response-trump-zelensky-002218812.html)
+- Feb 28 - [Stunned by angry Trump exchange, Ukrainians rally round Zelenskiy](https://www.yahoo.com/news/stunned-angry-trump-exchange-ukrainians-233949681.html)
+- Feb 28 - [Alabama governor commutes death row inmate Rocky Myers' sentence to life in prison](https://www.yahoo.com/news/alabama-governor-commutes-death-row-223641047.html)
 - Feb 28 - [No suit, no lunch, no respect: Zelenskyy-Trump feud started with a fashion dig](https://www.yahoo.com/news/no-suit-no-lunch-no-221947928.html)
-- Feb 28 - [Sen. Lummis on crypto, Trumponomics latest: Market Domination Overtime](https://finance.yahoo.com/video/sen-lummis-crypto-trumponomics-latest-221943387.html)
-- Feb 28 - [Palmyra school officials wrestle with building security issues during after school events](https://www.yahoo.com/news/palmyra-school-officials-wrestle-building-220456614.html)
-- Feb 28 - ['Invasive and delicious': The federal government is begging people to eat this massive, harmful rodent species](https://www.yahoo.com/news/invasive-and-delicious-the-federal-government-is-begging-people-to-eat-this-massive-harmful-rodent-species-202015284.html)
-- Feb 28 - [In full view of the world, Trump and Vance told Zelensky he can’t win the war. He told them they’re naive for believing Putin](https://www.yahoo.com/news/full-view-world-trump-vance-193848700.html)
 <!-- feed end -->
 
 ### Onstream
