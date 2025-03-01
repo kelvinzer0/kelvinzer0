@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [How Tractor Supply could ride 'egg-flation' wave](https://finance.yahoo.com/video/tractor-supply-could-ride-egg-183043388.html)
-- Mar 01 - [Gainesville police, ACSO in standoff with suspect after shots fired in Walmart parking lot](https://www.yahoo.com/news/gainesville-police-acso-standoff-suspect-182605253.html)
-- Mar 01 - [4K Footage: James Webb Space Telescope's View Of Breathtaking Star-Forming Region NGC 604](https://www.yahoo.com/news/james-webb-space-telescopes-view-133056563.html)
-- Mar 01 - [FedEx cargo plane makes emergency landing following bird strike, engine fire](https://www.yahoo.com/news/fedex-cargo-plane-makes-emergency-155238845.html)
+- Mar 01 - [Elon Musk Calls Social Security 'The Biggest Ponzi Scheme Of All Time'](https://finance.yahoo.com/news/elon-musk-calls-social-security-212613265.html)
+- Mar 01 - [Bladed Hellfire Missile Seen In Action For The First Time](https://www.yahoo.com/news/bladed-hellfire-missile-seen-action-211720943.html)
+- Mar 01 - ['Megalodon' Goldfish Found in Pennsylvania Waterway — and Now Officials Are Issuing a Warning to Pet Owners](https://www.yahoo.com/entertainment/megalodon-goldfish-found-pennsylvania-waterway-194834075.html)
 - Mar 01 - [8 Chicago area hospitals acquired by California-based healthcare system](https://www.yahoo.com/news/8-chicago-area-hospitals-acquired-154806150.html)
+- Mar 01 - [Black graves are being moved to make way for an industrial park, drawing a mix of emotions](https://www.yahoo.com/news/black-graves-being-moved-way-150144357.html)
 <!-- feed end -->
 
 ### Onstream
