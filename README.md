@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 01 - [How Tractor Supply could ride 'egg-flation' wave](https://finance.yahoo.com/video/tractor-supply-could-ride-egg-183043388.html)
-- Mar 01 - [Black graves are being moved to make way for an industrial park, drawing a mix of emotions](https://www.yahoo.com/news/black-graves-being-moved-way-150144357.html)
-- Mar 01 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
-- Mar 01 - [Call to scrap Trump's state visit over Zelensky row](https://www.yahoo.com/news/call-scrap-trumps-state-visit-143209501.html)
-- Mar 01 - [Elisabeth Fritzl Was Lured into a Basement By Her Dad and Trapped for 24 Years. Inside the Horrifying Case That Inspired “Room” — and How She Pulled Off Her Escape](https://www.yahoo.com/entertainment/elisabeth-fritzl-lured-basement-her-120000101.html)
+- Mar 01 - [Gainesville police, ACSO in standoff with suspect after shots fired in Walmart parking lot](https://www.yahoo.com/news/gainesville-police-acso-standoff-suspect-182605253.html)
+- Mar 01 - [4K Footage: James Webb Space Telescope's View Of Breathtaking Star-Forming Region NGC 604](https://www.yahoo.com/news/james-webb-space-telescopes-view-133056563.html)
+- Mar 01 - [FedEx cargo plane makes emergency landing following bird strike, engine fire](https://www.yahoo.com/news/fedex-cargo-plane-makes-emergency-155238845.html)
+- Mar 01 - [8 Chicago area hospitals acquired by California-based healthcare system](https://www.yahoo.com/news/8-chicago-area-hospitals-acquired-154806150.html)
 <!-- feed end -->
 
 ### Onstream
