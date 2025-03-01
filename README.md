@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [US judge dismisses SEC fraud lawsuit against Hex crypto founder](https://www.yahoo.com/tech/us-judge-dismisses-sec-fraud-011525463.html)
 - Mar 01 - [91-Year-Old Michael Caine's Three-Word Response To The Trump/Zelensky Fight Is Going Viral](https://www.yahoo.com/entertainment/michael-caines-response-trump-zelensky-002218812.html)
 - Feb 28 - [Stunned by angry Trump exchange, Ukrainians rally round Zelenskiy](https://www.yahoo.com/news/stunned-angry-trump-exchange-ukrainians-233949681.html)
 - Feb 28 - [Alabama governor commutes death row inmate Rocky Myers' sentence to life in prison](https://www.yahoo.com/news/alabama-governor-commutes-death-row-223641047.html)
-- Feb 28 - [No suit, no lunch, no respect: Zelenskyy-Trump feud started with a fashion dig](https://www.yahoo.com/news/no-suit-no-lunch-no-221947928.html)
+- Feb 28 - [‘This is the point you resign’: Former U.S. National Security Advisor calls on Marco Rubio to resign](https://www.yahoo.com/news/point-resign-former-u-national-220229216.html)
+- Feb 28 - [State Department terminates U.S. support of Ukraine energy grid restoration](https://www.yahoo.com/news/state-department-terminates-u-support-213604436.html)
 <!-- feed end -->
 
 ### Onstream
