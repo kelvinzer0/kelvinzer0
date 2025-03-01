@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [Woman dies day after vehicle hit her at Mississauga intersection, police say](https://www.yahoo.com/news/woman-dies-day-vehicle-hit-161528801.html)
-- Mar 01 - [4K Footage: James Webb Space Telescope's View Of Breathtaking Star-Forming Region NGC 604](https://www.yahoo.com/news/james-webb-space-telescopes-view-133056563.html)
-- Mar 01 - [Elon Musk Asks for Reason US Can’t Afford Healthcare — Mark Cuban Gives 7 (and a Solution)](https://finance.yahoo.com/news/elon-musk-asks-reason-us-190023168.html)
-- Mar 01 - [China's DeepSeek claims theoretical cost-profit ratio of 545% per day](https://finance.yahoo.com/news/chinas-deepseek-claims-theoretical-cost-121658741.html)
+- Mar 01 - [Call to scrap Trump's state visit over Zelensky row](https://www.yahoo.com/news/call-scrap-trumps-state-visit-143209501.html)
+- Mar 01 - [Mysterious tunnels sketched by Leonardo da Vinci in the late 1400s may have been found](https://www.yahoo.com/news/secret-tunnels-likely-once-drawn-120053419.html)
 - Mar 01 - [Elisabeth Fritzl Was Lured into a Basement By Her Dad and Trapped for 24 Years. Inside the Horrifying Case That Inspired “Room” — and How She Pulled Off Her Escape](https://www.yahoo.com/entertainment/elisabeth-fritzl-lured-basement-her-120000101.html)
+- Mar 01 - [Musk’s Purges Suddenly Take a Horrific Turn—and Wreck an Ugly MAGA Lie](https://www.yahoo.com/news/musk-purges-suddenly-horrific-turn-110000402.html)
+- Mar 01 - [Major company to axe nearly 5,000 jobs and cut 3,000 contractors in massive downsizing effort: 'We have got more we need to do'](https://www.yahoo.com/news/major-company-axe-nearly-5-104532916.html)
 <!-- feed end -->
 
 ### Onstream
