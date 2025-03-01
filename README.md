@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [Former BET CEO's game-changing advice for aspiring leaders](https://finance.yahoo.com/video/former-bet-ceos-game-changing-183024898.html)
-- Mar 01 - [Airplane Forced to Make Emergency Landing After Bird Strike Causes Aircraft to Burst into Flames During Takeoff](https://www.yahoo.com/entertainment/airplane-forced-emergency-landing-bird-181401660.html)
+- Mar 01 - [How Tractor Supply could ride 'egg-flation' wave](https://finance.yahoo.com/video/tractor-supply-could-ride-egg-183043388.html)
+- Mar 01 - [Black graves are being moved to make way for an industrial park, drawing a mix of emotions](https://www.yahoo.com/news/black-graves-being-moved-way-150144357.html)
+- Mar 01 - [I’m a Bank Teller: 7 Reasons You Shouldn’t Keep More Than $3,000 in a Checking Account](https://finance.yahoo.com/news/m-bank-teller-7-reasons-130007632.html)
 - Mar 01 - [Call to scrap Trump's state visit over Zelensky row](https://www.yahoo.com/news/call-scrap-trumps-state-visit-143209501.html)
 - Mar 01 - [Elisabeth Fritzl Was Lured into a Basement By Her Dad and Trapped for 24 Years. Inside the Horrifying Case That Inspired “Room” — and How She Pulled Off Her Escape](https://www.yahoo.com/entertainment/elisabeth-fritzl-lured-basement-her-120000101.html)
-- Mar 01 - [Musk’s Purges Suddenly Take a Horrific Turn—and Wreck an Ugly MAGA Lie](https://www.yahoo.com/news/musk-purges-suddenly-horrific-turn-110000402.html)
 <!-- feed end -->
 
 ### Onstream
