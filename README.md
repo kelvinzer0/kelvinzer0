@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [China's DeepSeek claims theoretical cost-profit ratio of 545% per day](https://finance.yahoo.com/news/chinas-deepseek-claims-theoretical-cost-121658741.html)
 - Mar 01 - [Researchers baffled by remains of animal found in desert: 'It was beyond anything we had expected'](https://www.yahoo.com/news/researchers-baffled-remains-animal-found-110031498.html)
 - Mar 01 - [Musk’s Purges Suddenly Take a Horrific Turn—and Wreck an Ugly MAGA Lie](https://www.yahoo.com/news/musk-purges-suddenly-horrific-turn-110000402.html)
-- Mar 01 - [Gene Hackman Death Case: Pills Found by Wife’s Body Identified](https://www.yahoo.com/news/gene-hackman-death-case-pills-005449517.html)
+- Mar 01 - [Major company to axe nearly 5,000 jobs and cut 3,000 contractors in massive downsizing effort: 'We have got more we need to do'](https://www.yahoo.com/news/major-company-axe-nearly-5-104532916.html)
+- Mar 01 - [Experts track razor-toothed predator as it moves through state's hidden passages — here's how it could torpedo the local economy](https://www.yahoo.com/news/experts-track-razor-toothed-predator-005500973.html)
 - Mar 01 - [91-Year-Old Michael Caine's Three-Word Response To The Trump/Zelensky Fight Is Going Viral](https://www.yahoo.com/entertainment/michael-caines-response-trump-zelensky-002218812.html)
 <!-- feed end -->
 
