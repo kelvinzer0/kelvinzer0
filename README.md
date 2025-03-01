@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [Here’s the Salary You’ll Need To Afford a House in the Top 10 Markets for First-Time Buyers](https://finance.yahoo.com/news/salary-ll-afford-house-top-120043409.html)
+- Mar 01 - [China's DeepSeek claims theoretical cost-profit ratio of 545% per day](https://finance.yahoo.com/news/chinas-deepseek-claims-theoretical-cost-121658741.html)
+- Mar 01 - [Researchers baffled by remains of animal found in desert: 'It was beyond anything we had expected'](https://www.yahoo.com/news/researchers-baffled-remains-animal-found-110031498.html)
+- Mar 01 - [Musk’s Purges Suddenly Take a Horrific Turn—and Wreck an Ugly MAGA Lie](https://www.yahoo.com/news/musk-purges-suddenly-horrific-turn-110000402.html)
 - Mar 01 - [Gene Hackman Death Case: Pills Found by Wife’s Body Identified](https://www.yahoo.com/news/gene-hackman-death-case-pills-005449517.html)
 - Mar 01 - [91-Year-Old Michael Caine's Three-Word Response To The Trump/Zelensky Fight Is Going Viral](https://www.yahoo.com/entertainment/michael-caines-response-trump-zelensky-002218812.html)
-- Feb 28 - [Zelensky Trolls Trump and Vance as He Breaks Silence on Oval Office Row](https://www.yahoo.com/news/zelensky-trolls-trump-vance-breaks-232623152.html)
-- Feb 28 - [Alabama governor commutes death row inmate Rocky Myers' sentence to life in prison](https://www.yahoo.com/news/alabama-governor-commutes-death-row-223641047.html)
 <!-- feed end -->
 
 ### Onstream
