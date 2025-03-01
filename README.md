@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Former BET CEO's game-changing advice for aspiring leaders](https://finance.yahoo.com/video/former-bet-ceos-game-changing-183024898.html)
+- Mar 01 - [Airplane Forced to Make Emergency Landing After Bird Strike Causes Aircraft to Burst into Flames During Takeoff](https://www.yahoo.com/entertainment/airplane-forced-emergency-landing-bird-181401660.html)
 - Mar 01 - [Call to scrap Trump's state visit over Zelensky row](https://www.yahoo.com/news/call-scrap-trumps-state-visit-143209501.html)
-- Mar 01 - [Mysterious tunnels sketched by Leonardo da Vinci in the late 1400s may have been found](https://www.yahoo.com/news/secret-tunnels-likely-once-drawn-120053419.html)
 - Mar 01 - [Elisabeth Fritzl Was Lured into a Basement By Her Dad and Trapped for 24 Years. Inside the Horrifying Case That Inspired “Room” — and How She Pulled Off Her Escape](https://www.yahoo.com/entertainment/elisabeth-fritzl-lured-basement-her-120000101.html)
 - Mar 01 - [Musk’s Purges Suddenly Take a Horrific Turn—and Wreck an Ugly MAGA Lie](https://www.yahoo.com/news/musk-purges-suddenly-horrific-turn-110000402.html)
-- Mar 01 - [Major company to axe nearly 5,000 jobs and cut 3,000 contractors in massive downsizing effort: 'We have got more we need to do'](https://www.yahoo.com/news/major-company-axe-nearly-5-104532916.html)
 <!-- feed end -->
 
 ### Onstream
