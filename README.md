@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [Neighborhoods Evacuated As Wildfires Burn In The Carolinas](https://www.yahoo.com/news/neighborhoods-evacuated-wildfires-burn-carolinas-141716130.html)
+- Mar 02 - [New Ukrainian general inflicts ‘unsustainable losses’ on Russia](https://www.yahoo.com/news/ukrainian-general-inflicts-unsustainable-losses-141524741.html)
+- Mar 02 - [Man arrested for murder following pub disturbance](https://www.yahoo.com/news/man-arrested-murder-following-pub-140953543.html)
 - Mar 02 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
 - Mar 02 - [The dust settles on Nvidia: Morning Brief](https://finance.yahoo.com/news/the-dust-settles-on-nvidia-morning-brief-110036550.html)
-- Mar 02 - [Outraged fans call out Coca-Cola after noticing glaring issue with new ad: 'How ... lazy can one of the biggest companies in the world be?'](https://www.yahoo.com/lifestyle/outraged-fans-call-coca-cola-110011983.html)
-- Mar 02 - [Experts celebrate rediscovery of rare species 120 years after it went missing: 'I was completely amazed'](https://www.yahoo.com/news/experts-celebrate-rediscovery-rare-species-110001588.html)
-- Mar 02 - [This Ultra-High Dividend Stock Is Approaching an 8% Yield: Does That Make It a Buy Right Now?](https://finance.yahoo.com/news/ultra-high-dividend-stock-approaching-104500006.html)
 <!-- feed end -->
 
 ### Onstream
