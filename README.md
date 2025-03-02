@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 02 - [6 killed, 13 taken to hospital after fiery I-10 crash west of Phoenix](https://www.yahoo.com/news/6-killed-13-taken-hospital-173652133.html)
 - Mar 02 - [The Trump administration may exclude government spending from GDP, obscuring the impact of DOGE cuts](https://finance.yahoo.com/news/trump-administration-may-exclude-government-173641347.html)
 - Mar 02 - [Trump names cryptocurrencies in strategic reserve, sending prices up](https://finance.yahoo.com/news/trump-names-cryptocurrencies-strategic-prices-160454350.html)
-- Mar 02 - [Potential multiday severe weather outbreak looms for southern, eastern US beginning Monday](https://www.yahoo.com/news/potential-multiday-severe-weather-outbreak-150100934.html)
+- Mar 02 - [Second email to federal workers comes with caveat](https://www.yahoo.com/news/second-email-federal-workers-comes-160333917.html)
 <!-- feed end -->
 
 ### Onstream
