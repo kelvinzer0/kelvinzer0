@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [6 killed, 13 taken to hospital after fiery I-10 crash west of Phoenix](https://www.yahoo.com/news/6-killed-13-taken-hospital-173652133.html)
+- Mar 02 - [Mark Cuban Says 'I'm Dumb, I Can't Figure Out How To End World Hunger' But Promises To Keep Pushing For Affordable And Universal Healthcare](https://finance.yahoo.com/news/mark-cuban-says-im-dumb-183016599.html)
 - Mar 02 - [The Trump administration may exclude government spending from GDP, obscuring the impact of DOGE cuts](https://finance.yahoo.com/news/trump-administration-may-exclude-government-173641347.html)
-- Mar 02 - [4-star Pitt signee Mason Alexander killed in car crash](https://sports.yahoo.com/college-football/article/4-star-pitt-signee-mason-alexander-killed-in-car-crash-173115216.html)
-- Mar 02 - [The Biggest Pasta Recalls In US History](https://www.yahoo.com/news/biggest-pasta-recalls-us-history-173026644.html)
-- Mar 02 - [New Ukrainian general inflicts ‘unsustainable losses’ on Russia](https://www.yahoo.com/news/ukrainian-general-inflicts-unsustainable-losses-141524741.html)
+- Mar 02 - [Pope gets visit from Vatican secretary of state as he continues recovery | AP Explains](https://www.yahoo.com/news/pope-gets-visit-vatican-secretary-170910022.html)
+- Mar 02 - [The accounting maneuver that could make the cost of extending Trump's tax cuts look like zero](https://finance.yahoo.com/news/the-accounting-maneuver-that-could-make-the-cost-of-extending-trumps-tax-cuts-look-like-zero-150057205.html)
+- Mar 02 - [Warren Buffett Reveals How To Invest $10K If You Want To Get Rich](https://finance.yahoo.com/news/warren-buffett-reveals-invest-10-110045016.html)
 <!-- feed end -->
 
 ### Onstream
