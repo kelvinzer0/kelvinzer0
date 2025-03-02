@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [The 1991 Ice Storm that froze Rochester: See rare photos from the historic event](https://www.yahoo.com/news/1991-ice-storm-froze-rochester-012859301.html)
+- Mar 02 - [How Trump and Musk’s agenda is shaping up to be full-on class warfare](https://www.yahoo.com/news/trump-musk-agenda-shaping-full-014511387.html)
+- Mar 02 - [Rubio signs declaration to expedite delivery of $4 billion in military aid to Israel](https://www.yahoo.com/news/rubio-signs-declaration-expedite-delivery-014129783.html)
+- Mar 01 - [Police arrest two people after armed bank robbery in Boise. One other still at large](https://www.yahoo.com/news/police-arrest-two-people-armed-233524820.html)
 - Mar 01 - [What are the worst ultra-processed foods? New study links them to nearly 1 in 4 heart and stroke deaths in Canada](https://www.yahoo.com/lifestyle/what-are-the-worst-ultra-processed-foods-new-study-links-them-to-nearly-1-in-4-heart-and-stroke-deaths-in-canada-170048390.html)
-- Mar 01 - [Elon Musk Calls Social Security 'The Biggest Ponzi Scheme Of All Time'](https://finance.yahoo.com/news/elon-musk-calls-social-security-212613265.html)
-- Mar 01 - [Airplane Forced to Make Emergency Landing After Bird Strike Causes Aircraft to Burst into Flames During Takeoff](https://www.yahoo.com/entertainment/airplane-forced-emergency-landing-bird-181401660.html)
-- Mar 01 - [US citizen faces hefty fines for accidentally bringing this common item into the country from overseas: ‘Are they serious?’](https://www.yahoo.com/news/us-citizen-faces-hefty-fines-181335335.html)
+- Mar 01 - [Passenger Who Refused to Give Aisle Seat to ‘Overweight’ Traveler on Flight Is Second Guessing Her Decision](https://www.yahoo.com/lifestyle/passenger-refused-aisle-seat-overweight-220000803.html)
 <!-- feed end -->
 
 ### Onstream
