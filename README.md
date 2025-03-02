@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [Rubio signs declaration to expedite delivery of $4 billion in military aid to Israel](https://www.yahoo.com/news/rubio-signs-declaration-expedite-delivery-014129783.html)
+- Mar 02 - [The 1991 Ice Storm that froze Rochester: See rare photos from the historic event](https://www.yahoo.com/news/1991-ice-storm-froze-rochester-012859301.html)
 - Mar 01 - [What are the worst ultra-processed foods? New study links them to nearly 1 in 4 heart and stroke deaths in Canada](https://www.yahoo.com/lifestyle/what-are-the-worst-ultra-processed-foods-new-study-links-them-to-nearly-1-in-4-heart-and-stroke-deaths-in-canada-170048390.html)
-- Mar 01 - [2 Workers Rescued from Scaffolding Hanging Off of High-Rise Building’s 78th Floor as Glass Was ‘Raining’ Down on Street](https://www.yahoo.com/entertainment/2-workers-rescued-scaffolding-hanging-211200957.html)
-- Mar 01 - [Fight inside Kay Bailey Hutchison Convention Center causes chaos, suspension of NCA cheer event](https://www.yahoo.com/news/fight-inside-kay-bailey-hutchison-194043360.html)
+- Mar 01 - [Elon Musk Calls Social Security 'The Biggest Ponzi Scheme Of All Time'](https://finance.yahoo.com/news/elon-musk-calls-social-security-212613265.html)
+- Mar 01 - [Airplane Forced to Make Emergency Landing After Bird Strike Causes Aircraft to Burst into Flames During Takeoff](https://www.yahoo.com/entertainment/airplane-forced-emergency-landing-bird-181401660.html)
 - Mar 01 - [US citizen faces hefty fines for accidentally bringing this common item into the country from overseas: ‘Are they serious?’](https://www.yahoo.com/news/us-citizen-faces-hefty-fines-181335335.html)
 <!-- feed end -->
 
