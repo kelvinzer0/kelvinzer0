@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [‘I could have been killed’: Man attacked by Mike Amesbury speaks out after MP walks free from prison](https://www.yahoo.com/news/could-killed-man-attacked-mike-125226897.html)
-- Mar 02 - [The accounting maneuver that could make the cost of extending Trump's tax cuts look like zero](https://finance.yahoo.com/news/the-accounting-maneuver-that-could-make-the-cost-of-extending-trumps-tax-cuts-look-like-zero-150057205.html)
-- Mar 02 - [My mom, 72, was pressured into paying $200/month for decades-old debt. After 1 year of payments, can she just stop?](https://finance.yahoo.com/news/mom-72-pressured-paying-200-140500341.html)
-- Mar 02 - [The dust settles on Nvidia: Morning Brief](https://finance.yahoo.com/news/the-dust-settles-on-nvidia-morning-brief-110036550.html)
-- Mar 02 - [Outraged fans call out Coca-Cola after noticing glaring issue with new ad: 'How ... lazy can one of the biggest companies in the world be?'](https://www.yahoo.com/lifestyle/outraged-fans-call-coca-cola-110011983.html)
+- Mar 02 - [The Trump administration may exclude government spending from GDP, obscuring the impact of DOGE cuts](https://finance.yahoo.com/news/trump-administration-may-exclude-government-173641347.html)
+- Mar 02 - [4-star Pitt signee Mason Alexander killed in car crash](https://sports.yahoo.com/college-football/article/4-star-pitt-signee-mason-alexander-killed-in-car-crash-173115216.html)
+- Mar 02 - [Pope gets visit from Vatican secretary of state as he continues recovery | AP Explains](https://www.yahoo.com/news/pope-gets-visit-vatican-secretary-170910022.html)
+- Mar 02 - [1 Growth Stock Down 50% to Buy Right Now](https://finance.yahoo.com/news/1-growth-stock-down-50-161100414.html)
+- Mar 02 - [New Ukrainian general inflicts ‘unsustainable losses’ on Russia](https://www.yahoo.com/news/ukrainian-general-inflicts-unsustainable-losses-141524741.html)
 <!-- feed end -->
 
 ### Onstream
