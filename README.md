@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [Stock Market Volatilty: Buy These 3 No-Brainer AI Stocks When Prices Fall](https://finance.yahoo.com/news/stock-market-volatilty-buy-3-100000748.html)
+- Mar 02 - [Norway says it will keep supplying fuel to US navy after company calls for boycott](https://www.yahoo.com/news/norway-says-keep-supplying-fuel-102845504.html)
+- Mar 02 - [Examining claim Trump was recruited by KGB in 1987 and given codename 'Krasnov'](https://www.yahoo.com/news/examining-claim-trump-recruited-kgb-030000387.html)
 - Mar 01 - [Police arrest two people after armed bank robbery in Boise. One other still at large](https://www.yahoo.com/news/police-arrest-two-people-armed-233524820.html)
 - Mar 01 - [Trump takes actions to increase lumber supplies and curb wood imports](https://www.yahoo.com/news/trump-takes-actions-increase-lumber-233040241.html)
 - Mar 01 - [What are the worst ultra-processed foods? New study links them to nearly 1 in 4 heart and stroke deaths in Canada](https://www.yahoo.com/lifestyle/what-are-the-worst-ultra-processed-foods-new-study-links-them-to-nearly-1-in-4-heart-and-stroke-deaths-in-canada-170048390.html)
-- Mar 01 - [2 Workers Rescued from Scaffolding Hanging Off of High-Rise Building’s 78th Floor as Glass Was ‘Raining’ Down on Street](https://www.yahoo.com/entertainment/2-workers-rescued-scaffolding-hanging-211200957.html)
 <!-- feed end -->
 
 ### Onstream
