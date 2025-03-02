@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [6 killed, 13 taken to hospital after fiery I-10 crash west of Phoenix](https://www.yahoo.com/news/6-killed-13-taken-hospital-173652133.html)
 - Mar 02 - [The Trump administration may exclude government spending from GDP, obscuring the impact of DOGE cuts](https://finance.yahoo.com/news/trump-administration-may-exclude-government-173641347.html)
 - Mar 02 - [4-star Pitt signee Mason Alexander killed in car crash](https://sports.yahoo.com/college-football/article/4-star-pitt-signee-mason-alexander-killed-in-car-crash-173115216.html)
-- Mar 02 - [Pope gets visit from Vatican secretary of state as he continues recovery | AP Explains](https://www.yahoo.com/news/pope-gets-visit-vatican-secretary-170910022.html)
-- Mar 02 - [1 Growth Stock Down 50% to Buy Right Now](https://finance.yahoo.com/news/1-growth-stock-down-50-161100414.html)
+- Mar 02 - [The Biggest Pasta Recalls In US History](https://www.yahoo.com/news/biggest-pasta-recalls-us-history-173026644.html)
 - Mar 02 - [New Ukrainian general inflicts ‘unsustainable losses’ on Russia](https://www.yahoo.com/news/ukrainian-general-inflicts-unsustainable-losses-141524741.html)
 <!-- feed end -->
 
