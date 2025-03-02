@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [New Ukrainian general inflicts ‘unsustainable losses’ on Russia](https://www.yahoo.com/news/ukrainian-general-inflicts-unsustainable-losses-141524741.html)
+- Mar 02 - [‘I could have been killed’: Man attacked by Mike Amesbury speaks out after MP walks free from prison](https://www.yahoo.com/news/could-killed-man-attacked-mike-125226897.html)
 - Mar 02 - [The accounting maneuver that could make the cost of extending Trump's tax cuts look like zero](https://finance.yahoo.com/news/the-accounting-maneuver-that-could-make-the-cost-of-extending-trumps-tax-cuts-look-like-zero-150057205.html)
 - Mar 02 - [My mom, 72, was pressured into paying $200/month for decades-old debt. After 1 year of payments, can she just stop?](https://finance.yahoo.com/news/mom-72-pressured-paying-200-140500341.html)
-- Mar 02 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
+- Mar 02 - [The dust settles on Nvidia: Morning Brief](https://finance.yahoo.com/news/the-dust-settles-on-nvidia-morning-brief-110036550.html)
 - Mar 02 - [Outraged fans call out Coca-Cola after noticing glaring issue with new ad: 'How ... lazy can one of the biggest companies in the world be?'](https://www.yahoo.com/lifestyle/outraged-fans-call-coca-cola-110011983.html)
 <!-- feed end -->
 
