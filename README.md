@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [3 Great Value Stocks That Could Crush the S&P 500 This Year](https://finance.yahoo.com/news/3-great-value-stocks-could-110500103.html)
-- Mar 02 - [10 states with the worst deer problems in America](https://www.yahoo.com/news/10-states-worst-deer-problems-100000558.html)
-- Mar 02 - [Private lunar lander Blue Ghost aces moon touchdown with a special delivery for NASA](https://www.yahoo.com/news/private-lunar-lander-blue-ghost-084444680.html)
+- Mar 02 - [Firefly’s Blue Ghost lander successfully touches down on the moon](https://www.yahoo.com/news/firefly-blue-ghost-lander-heads-011402900.html)
+- Mar 02 - [The dust settles on Nvidia: Morning Brief](https://finance.yahoo.com/news/the-dust-settles-on-nvidia-morning-brief-110036550.html)
 - Mar 02 - [Susan Rice Slams Rumor That Team Obama ‘Advised’ Zelenskyy on Trump Meeting: ‘Up to the Same Old Tired Crap’](https://www.yahoo.com/news/susan-rice-slams-rumor-team-000402814.html)
+- Mar 01 - [Police arrest two people after armed bank robbery in Boise. One other still at large](https://www.yahoo.com/news/police-arrest-two-people-armed-233524820.html)
 - Mar 01 - [Trump takes actions to increase lumber supplies and curb wood imports](https://www.yahoo.com/news/trump-takes-actions-increase-lumber-233040241.html)
 <!-- feed end -->
 
