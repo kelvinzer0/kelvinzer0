@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [Rubio signs declaration to expedite delivery of $4 billion in military aid to Israel](https://www.yahoo.com/news/rubio-signs-declaration-expedite-delivery-014129783.html)
 - Mar 01 - [What are the worst ultra-processed foods? New study links them to nearly 1 in 4 heart and stroke deaths in Canada](https://www.yahoo.com/lifestyle/what-are-the-worst-ultra-processed-foods-new-study-links-them-to-nearly-1-in-4-heart-and-stroke-deaths-in-canada-170048390.html)
 - Mar 01 - [2 Workers Rescued from Scaffolding Hanging Off of High-Rise Building’s 78th Floor as Glass Was ‘Raining’ Down on Street](https://www.yahoo.com/entertainment/2-workers-rescued-scaffolding-hanging-211200957.html)
-- Mar 01 - ['Megalodon' Goldfish Found in Pennsylvania Waterway — and Now Officials Are Issuing a Warning to Pet Owners](https://www.yahoo.com/entertainment/megalodon-goldfish-found-pennsylvania-waterway-194834075.html)
 - Mar 01 - [US citizen faces hefty fines for accidentally bringing this common item into the country from overseas: ‘Are they serious?’](https://www.yahoo.com/news/us-citizen-faces-hefty-fines-181335335.html)
 - Mar 01 - [8 Chicago area hospitals acquired by California-based healthcare system](https://www.yahoo.com/news/8-chicago-area-hospitals-acquired-154806150.html)
 <!-- feed end -->
