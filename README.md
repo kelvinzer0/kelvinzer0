@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [Firefly’s Blue Ghost lander successfully touches down on the moon](https://www.yahoo.com/news/firefly-blue-ghost-lander-heads-011402900.html)
+- Mar 02 - [Suze Orman Says If You’re Doing This, You’re ‘Making the Biggest Mistake in Life’](https://finance.yahoo.com/news/suze-orman-says-doing-making-180230742.html)
 - Mar 02 - [The dust settles on Nvidia: Morning Brief](https://finance.yahoo.com/news/the-dust-settles-on-nvidia-morning-brief-110036550.html)
-- Mar 02 - [Susan Rice Slams Rumor That Team Obama ‘Advised’ Zelenskyy on Trump Meeting: ‘Up to the Same Old Tired Crap’](https://www.yahoo.com/news/susan-rice-slams-rumor-team-000402814.html)
-- Mar 01 - [Police arrest two people after armed bank robbery in Boise. One other still at large](https://www.yahoo.com/news/police-arrest-two-people-armed-233524820.html)
-- Mar 01 - [Trump takes actions to increase lumber supplies and curb wood imports](https://www.yahoo.com/news/trump-takes-actions-increase-lumber-233040241.html)
+- Mar 02 - [Outraged fans call out Coca-Cola after noticing glaring issue with new ad: 'How ... lazy can one of the biggest companies in the world be?'](https://www.yahoo.com/lifestyle/outraged-fans-call-coca-cola-110011983.html)
+- Mar 02 - [Experts celebrate rediscovery of rare species 120 years after it went missing: 'I was completely amazed'](https://www.yahoo.com/news/experts-celebrate-rediscovery-rare-species-110001588.html)
+- Mar 02 - [This Ultra-High Dividend Stock Is Approaching an 8% Yield: Does That Make It a Buy Right Now?](https://finance.yahoo.com/news/ultra-high-dividend-stock-approaching-104500006.html)
 <!-- feed end -->
 
 ### Onstream
