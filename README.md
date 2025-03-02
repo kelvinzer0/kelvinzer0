@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [Norway says it will keep supplying fuel to US navy after company calls for boycott](https://www.yahoo.com/news/norway-says-keep-supplying-fuel-102845504.html)
-- Mar 02 - [Examining claim Trump was recruited by KGB in 1987 and given codename 'Krasnov'](https://www.yahoo.com/news/examining-claim-trump-recruited-kgb-030000387.html)
-- Mar 01 - [Police arrest two people after armed bank robbery in Boise. One other still at large](https://www.yahoo.com/news/police-arrest-two-people-armed-233524820.html)
+- Mar 02 - [3 Great Value Stocks That Could Crush the S&P 500 This Year](https://finance.yahoo.com/news/3-great-value-stocks-could-110500103.html)
+- Mar 02 - [10 states with the worst deer problems in America](https://www.yahoo.com/news/10-states-worst-deer-problems-100000558.html)
+- Mar 02 - [Private lunar lander Blue Ghost aces moon touchdown with a special delivery for NASA](https://www.yahoo.com/news/private-lunar-lander-blue-ghost-084444680.html)
+- Mar 02 - [Susan Rice Slams Rumor That Team Obama ‘Advised’ Zelenskyy on Trump Meeting: ‘Up to the Same Old Tired Crap’](https://www.yahoo.com/news/susan-rice-slams-rumor-team-000402814.html)
 - Mar 01 - [Trump takes actions to increase lumber supplies and curb wood imports](https://www.yahoo.com/news/trump-takes-actions-increase-lumber-233040241.html)
-- Mar 01 - [What are the worst ultra-processed foods? New study links them to nearly 1 in 4 heart and stroke deaths in Canada](https://www.yahoo.com/lifestyle/what-are-the-worst-ultra-processed-foods-new-study-links-them-to-nearly-1-in-4-heart-and-stroke-deaths-in-canada-170048390.html)
 <!-- feed end -->
 
 ### Onstream
