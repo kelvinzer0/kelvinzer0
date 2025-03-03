@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [Everyone will 'profit greatly' from AI in the future, expert says](https://www.yahoo.com/news/everyone-profit-greatly-ai-future-180033372.html)
-- Mar 03 - [Tuesday storms could help Alabama battle wildfire outbreak](https://www.yahoo.com/news/tuesday-storms-could-help-alabama-174807388.html)
+- Mar 03 - [How a one-month truce in Ukraine could lead to a permanent ceasefire](https://www.yahoo.com/news/one-month-truce-ukraine-could-183123512.html)
+- Mar 03 - [Two dead, five hurt as car hits crowd in German city: police](https://www.yahoo.com/news/two-dead-several-hurt-car-163743329.html)
+- Mar 03 - [Barbara Corcoran: If Mortgage Rates Hit This Number, the Market Will ‘Go Ballistic’](https://finance.yahoo.com/news/barbara-corcoran-mortgage-rates-hit-204455298.html)
 - Mar 03 - [Amid community outcry, ICE releases statement on arrests of N.J. restaurant owners](https://www.yahoo.com/news/amid-community-outcry-ice-releases-173214355.html)
-- Mar 03 - [France's prime minister tears into Trump's attack on Zelenskyy as a staggering show of 'brutality'](https://www.yahoo.com/news/frances-prime-minister-tears-trumps-170248065.html)
-- Mar 03 - [Robert Crimo III pleads guilty to 2022 Illinois Fourth of July shooting on first day of trial](https://www.yahoo.com/news/robert-crimo-iii-pleads-guilty-164121007.html)
+- Mar 03 - [Elon Musk slams Mike Myers' impression of him on "SNL"](https://www.yahoo.com/entertainment/elon-musk-slams-mike-myers-171522923.html)
 <!-- feed end -->
 
 ### Onstream
