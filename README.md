@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - ['Real assets' may be the key to surviving in volatile economy](https://finance.yahoo.com/video/real-assets-may-key-surviving-120040523.html)
-- Mar 03 - [Horror as woman’s body discovered dumped in suitcase on road](https://www.yahoo.com/news/horror-woman-body-discovered-dumped-113753389.html)
-- Mar 03 - [I worked for ICE under Biden. Even I'm taken aback by immigration changes under Trump — and sad to see federal workers being vilified.](https://www.yahoo.com/news/worked-ice-under-biden-even-105817626.html)
-- Mar 03 - [Warren Buffett Sells His Only Vanguard Index Fund and Buys a Dividend Stock Up 7,120% Since 2010](https://finance.yahoo.com/news/warren-buffett-sells-only-vanguard-090100021.html)
-- Mar 03 - [Hillary Clinton Shreds Donald Trump Over Putin With Scathing One-Liner](https://www.yahoo.com/news/hillary-clinton-shreds-donald-trump-082848352.html)
+- Mar 03 - [Street carnival kicks off in Germany amid security concerns](https://www.yahoo.com/news/street-carnival-kicks-off-germany-130321566.html)
+- Mar 03 - [Kroger Chairman and CEO resigns following investigation into personal conduct](https://finance.yahoo.com/news/kroger-chairman-ceo-resigns-following-124827684.html)
+- Mar 03 - [JP Morgan sees copper prices at $11,000/mt in 2026, 10% tariffs by late 3Q25](https://finance.yahoo.com/news/jp-morgan-sees-copper-prices-124713299.html)
+- Mar 03 - [Musk's embrace of right-wing politics risks turning off car buyers and sinking Tesla's stock](https://finance.yahoo.com/news/musks-embrace-wing-politics-risks-124517662.html)
+- Mar 03 - [Tesla Owners Are Sharing Their Thoughts After Elon's Latest Antics: "My Car Became A Badge Of Shame"](https://finance.yahoo.com/news/tesla-owners-sharing-thoughts-elons-121602305.html)
 <!-- feed end -->
 
 ### Onstream
