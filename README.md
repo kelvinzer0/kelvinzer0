@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [Dozens found alive in metal containers after India avalanche](https://www.yahoo.com/news/dozens-found-alive-metal-containers-071856039.html)
-- Mar 03 - [Brazil's coffee stockpiles dwindle as prices hit record highs](https://finance.yahoo.com/news/brazils-coffee-stockpiles-dwindle-prices-100249329.html)
-- Mar 03 - [3.9 magnitude earthquake jolts Los Angeles](https://www.yahoo.com/news/3-9-magnitude-earthquake-jolts-062501264.html)
-- Mar 03 - [Denver man fears for safety as dozens show up at his house seeking PS5s in online scam](https://www.yahoo.com/news/denver-man-fears-safety-dozens-044639973.html)
-- Mar 03 - [As measles outbreak grows, HHS secretary says vaccination is a personal decision that can protect individuals and communities](https://www.yahoo.com/news/measles-outbreak-grows-hhs-secretary-023335225.html)
+- Mar 03 - ['Real assets' may be the key to surviving in volatile economy](https://finance.yahoo.com/video/real-assets-may-key-surviving-120040523.html)
+- Mar 03 - [Horror as woman’s body discovered dumped in suitcase on road](https://www.yahoo.com/news/horror-woman-body-discovered-dumped-113753389.html)
+- Mar 03 - [I worked for ICE under Biden. Even I'm taken aback by immigration changes under Trump — and sad to see federal workers being vilified.](https://www.yahoo.com/news/worked-ice-under-biden-even-105817626.html)
+- Mar 03 - [Warren Buffett Sells His Only Vanguard Index Fund and Buys a Dividend Stock Up 7,120% Since 2010](https://finance.yahoo.com/news/warren-buffett-sells-only-vanguard-090100021.html)
+- Mar 03 - [Hillary Clinton Shreds Donald Trump Over Putin With Scathing One-Liner](https://www.yahoo.com/news/hillary-clinton-shreds-donald-trump-082848352.html)
 <!-- feed end -->
 
 ### Onstream
