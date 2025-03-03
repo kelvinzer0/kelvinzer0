@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [How a one-month truce in Ukraine could lead to a permanent ceasefire](https://www.yahoo.com/news/one-month-truce-ukraine-could-183123512.html)
-- Mar 03 - [Two dead, five hurt as car hits crowd in German city: police](https://www.yahoo.com/news/two-dead-several-hurt-car-163743329.html)
+- Mar 03 - [White House seeks plan for possible Russia sanctions relief, sources say](https://www.yahoo.com/news/white-house-seeks-plan-possible-191854487.html)
+- Mar 03 - [German police have one person in custody following latest deadly car attack](https://www.yahoo.com/news/german-police-one-person-custody-191052736.html)
+- Mar 03 - ['Disgraceful' NASCAR Pre-Race Prayer Has Fans Raising A Ruckus](https://sports.yahoo.com/article/disgraceful-nascar-pre-race-prayer-184738863.html)
 - Mar 03 - [Barbara Corcoran: If Mortgage Rates Hit This Number, the Market Will ‘Go Ballistic’](https://finance.yahoo.com/news/barbara-corcoran-mortgage-rates-hit-204455298.html)
-- Mar 03 - [Amid community outcry, ICE releases statement on arrests of N.J. restaurant owners](https://www.yahoo.com/news/amid-community-outcry-ice-releases-173214355.html)
-- Mar 03 - [Elon Musk slams Mike Myers' impression of him on "SNL"](https://www.yahoo.com/entertainment/elon-musk-slams-mike-myers-171522923.html)
+- Mar 03 - [Popular OKC bakery gutted by weekend fire, Oklahoma City Fire Dept. investigating cause](https://www.yahoo.com/news/popular-okc-bakery-gutted-weekend-175912035.html)
 <!-- feed end -->
 
 ### Onstream
