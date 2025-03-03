@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [Controversial Middle East documentary wins Academy Award](https://www.yahoo.com/news/controversial-middle-east-documentary-wins-030708954.html)
 - Mar 03 - [As measles outbreak grows, HHS secretary says vaccination is a personal decision that can protect individuals and communities](https://www.yahoo.com/news/measles-outbreak-grows-hhs-secretary-023335225.html)
 - Mar 03 - [US Treasury Department says it will not enforce anti-money laundering law](https://finance.yahoo.com/news/us-treasury-department-says-not-015049621.html)
-- Mar 02 - [Authorities search for a missing 2-year-old Oregon boy last seen playing in a yard](https://www.yahoo.com/news/authorities-search-missing-2-old-233550761.html)
-- Mar 02 - [Crews drop water on wildfires burning in South Carolina as some areas under evacuation orders](https://www.yahoo.com/news/crews-drop-water-wildfires-burning-225508670.html)
+- Mar 02 - [AP Top Stories for March 2 P](https://www.yahoo.com/news/ap-top-stories-march-2-230857662.html)
+- Mar 02 - [NBA Legend Shaq Says His Net Worth 'Quadrupled' Once He Took Note From Jeff Bezos And Started Investing In Things That 'Change People's Lives'](https://finance.yahoo.com/news/nba-legend-shaq-says-net-223041693.html)
+- Mar 02 - [If You Regularly Walk Around Your Home Barefoot, Doctors Have Something They Want To Say To You](https://www.yahoo.com/lifestyle/walk-around-home-barefoot-may-223002506.html)
 <!-- feed end -->
 
 ### Onstream
