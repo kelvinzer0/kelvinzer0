@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [How your zodiac sign influences your taxes](https://www.yahoo.com/lifestyle/zodiac-sign-influences-taxes-092229595.html)
+- Mar 03 - [Dozens found alive in metal containers after India avalanche](https://www.yahoo.com/news/dozens-found-alive-metal-containers-071856039.html)
+- Mar 03 - [Brazil's coffee stockpiles dwindle as prices hit record highs](https://finance.yahoo.com/news/brazils-coffee-stockpiles-dwindle-prices-100249329.html)
 - Mar 03 - [3.9 magnitude earthquake jolts Los Angeles](https://www.yahoo.com/news/3-9-magnitude-earthquake-jolts-062501264.html)
+- Mar 03 - [Denver man fears for safety as dozens show up at his house seeking PS5s in online scam](https://www.yahoo.com/news/denver-man-fears-safety-dozens-044639973.html)
 - Mar 03 - [As measles outbreak grows, HHS secretary says vaccination is a personal decision that can protect individuals and communities](https://www.yahoo.com/news/measles-outbreak-grows-hhs-secretary-023335225.html)
-- Mar 03 - [US Treasury Department says it will not enforce anti-money laundering law](https://finance.yahoo.com/news/us-treasury-department-says-not-015049621.html)
-- Mar 03 - [State of emergency in South Carolina as wildfires prompt evacuations](https://www.yahoo.com/news/state-emergency-south-carolina-wildfires-000905172.html)
 <!-- feed end -->
 
 ### Onstream
