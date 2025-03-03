@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [White House seeks plan for possible Russia sanctions relief, sources say](https://www.yahoo.com/news/white-house-seeks-plan-possible-191854487.html)
-- Mar 03 - [German police have one person in custody following latest deadly car attack](https://www.yahoo.com/news/german-police-one-person-custody-191052736.html)
-- Mar 03 - ['Disgraceful' NASCAR Pre-Race Prayer Has Fans Raising A Ruckus](https://sports.yahoo.com/article/disgraceful-nascar-pre-race-prayer-184738863.html)
-- Mar 03 - [Barbara Corcoran: If Mortgage Rates Hit This Number, the Market Will ‘Go Ballistic’](https://finance.yahoo.com/news/barbara-corcoran-mortgage-rates-hit-204455298.html)
-- Mar 03 - [Popular OKC bakery gutted by weekend fire, Oklahoma City Fire Dept. investigating cause](https://www.yahoo.com/news/popular-okc-bakery-gutted-weekend-175912035.html)
+- Mar 03 - [Huawei showcases its new tri-foldable phone](https://www.yahoo.com/news/huawei-showcases-tri-foldable-phone-210851972.html)
+- Mar 03 - [US senator asks Rubio to answer questions on planned Tesla Cybertruck purchase](https://www.yahoo.com/news/us-senator-asks-rubio-answer-204057277.html)
+- Mar 03 - [I Cackled So Hard At These 33 Internet Fails From Last Week That I'm Pretty Sure My Neighbor Thinks I'm A Witch](https://www.yahoo.com/lifestyle/cackled-hard-33-internet-fails-203119294.html)
+- Mar 03 - [Severe Outbreak; With Tornadoes Likely Starting Monday Night](https://www.yahoo.com/news/severe-outbreak-tornadoes-likely-starting-202437632.html)
+- Mar 03 - [Canada, Mexico currencies drop as Trump confirms pending tariffs](https://finance.yahoo.com/news/canada-mexico-currencies-drop-trump-202130187.html)
 <!-- feed end -->
 
 ### Onstream
