@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [Senate will vote on confirming Linda McMahon to lead an education agency Trump has vowed to close](https://www.yahoo.com/news/senate-vote-confirming-linda-mcmahon-140116244.html)
 - Mar 03 - [Street carnival kicks off in Germany amid security concerns](https://www.yahoo.com/news/street-carnival-kicks-off-germany-130321566.html)
+- Mar 03 - [Ask an Advisor: We Sold an Investment and Our Medicare Part B Premiums Shot Up to $592. Can We Avoid This Increase?](https://finance.yahoo.com/news/ask-advisor-sold-investment-medicare-130000475.html)
 - Mar 03 - [Kroger Chairman and CEO resigns following investigation into personal conduct](https://finance.yahoo.com/news/kroger-chairman-ceo-resigns-following-124827684.html)
-- Mar 03 - [JP Morgan sees copper prices at $11,000/mt in 2026, 10% tariffs by late 3Q25](https://finance.yahoo.com/news/jp-morgan-sees-copper-prices-124713299.html)
-- Mar 03 - [Musk's embrace of right-wing politics risks turning off car buyers and sinking Tesla's stock](https://finance.yahoo.com/news/musks-embrace-wing-politics-risks-124517662.html)
-- Mar 03 - [Tesla Owners Are Sharing Their Thoughts After Elon's Latest Antics: "My Car Became A Badge Of Shame"](https://finance.yahoo.com/news/tesla-owners-sharing-thoughts-elons-121602305.html)
+- Mar 03 - [Musk's embrace of right-wing politics risks turning off car buyers and sinking Tesla's stock](https://finance.yahoo.com/news/musks-embrace-wing-politics-risks-124517950.html)
 <!-- feed end -->
 
 ### Onstream
