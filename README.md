@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [A South African woman goes on trial charged with kidnapping and selling her daughter](https://www.yahoo.com/news/south-african-woman-goes-trial-152502290.html)
-- Mar 03 - [As measles outbreak grows, HHS secretary says vaccination is a personal decision that can protect individuals and communities](https://www.yahoo.com/news/measles-outbreak-grows-hhs-secretary-023335225.html)
-- Mar 03 - [Prime Video U.K. Director Chris Bird Stepping Down After 14 Years](https://www.yahoo.com/entertainment/prime-video-u-k-director-151611237.html)
-- Mar 03 - [US Supreme Court turns away challenge to Indiana University bias reporting policy](https://www.yahoo.com/news/us-supreme-court-turns-away-144143116.html)
-- Mar 03 - [Cellphone deepfake detection technology unveiled at MWC](https://finance.yahoo.com/video/cellphone-deepfake-detection-technology-unveiled-142431681.html)
+- Mar 03 - [What Trump's Mexico, Canada tariffs would mean for March PMI](https://finance.yahoo.com/video/trumps-mexico-canada-tariffs-mean-170512827.html)
+- Mar 03 - [Is Taiwan Semiconductor Manufacturing Company Limited (TSM) the Tech Stock with High Upside Potential?](https://finance.yahoo.com/news/taiwan-semiconductor-manufacturing-company-limited-161934574.html)
+- Mar 03 - [Youngkin grants clemency to a fired Virginia police sergeant who shot and killed an unarmed man](https://www.yahoo.com/news/youngkin-grants-clemency-fired-virginia-161450164.html)
+- Mar 03 - [Woman hospitalized after being stung by scorpion at Boston’s Logan Airport, police say](https://www.yahoo.com/news/woman-hospitalized-being-stung-scorpion-161358881.html)
+- Mar 03 - [One dead after car drives into crowd in Mannheim, police say](https://www.yahoo.com/news/one-dead-car-drives-crowd-160801685.html)
 <!-- feed end -->
 
 ### Onstream
