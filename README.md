@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [Senate will vote on confirming Linda McMahon to lead an education agency Trump has vowed to close](https://www.yahoo.com/news/senate-vote-confirming-linda-mcmahon-140116244.html)
-- Mar 03 - [Street carnival kicks off in Germany amid security concerns](https://www.yahoo.com/news/street-carnival-kicks-off-germany-130321566.html)
-- Mar 03 - [Ask an Advisor: We Sold an Investment and Our Medicare Part B Premiums Shot Up to $592. Can We Avoid This Increase?](https://finance.yahoo.com/news/ask-advisor-sold-investment-medicare-130000475.html)
-- Mar 03 - [Kroger Chairman and CEO resigns following investigation into personal conduct](https://finance.yahoo.com/news/kroger-chairman-ceo-resigns-following-124827684.html)
-- Mar 03 - [Musk's embrace of right-wing politics risks turning off car buyers and sinking Tesla's stock](https://finance.yahoo.com/news/musks-embrace-wing-politics-risks-124517950.html)
+- Mar 03 - [US Supreme Court turns away challenge to Indiana University bias reporting policy](https://www.yahoo.com/news/us-supreme-court-turns-away-144143116.html)
+- Mar 03 - [Kroger CEO resigns following personal conduct probe](https://finance.yahoo.com/video/kroger-ceo-resigns-following-personal-142644457.html)
+- Mar 03 - [Cellphone deepfake detection technology unveiled at MWC](https://finance.yahoo.com/video/cellphone-deepfake-detection-technology-unveiled-142431681.html)
+- Mar 03 - [Downing Street defends small boats plan as migrant crossing up by 20%](https://www.yahoo.com/news/channel-migrant-crossings-hit-2025-114226156.html)
+- Mar 03 - [Eutelsat soars as investors bet on OneWeb satellites as European option to Starlink](https://finance.yahoo.com/news/eutelsat-committed-boosting-europes-satellite-140707904.html)
 <!-- feed end -->
 
 ### Onstream
