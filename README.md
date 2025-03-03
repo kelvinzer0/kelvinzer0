@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [US Treasury Department says it will not enforce anti-money laundering law](https://finance.yahoo.com/news/us-treasury-department-says-not-015049621.html)
+- Mar 03 - [Albuquerque man shot at Smith’s after intervening in suspicious activity](https://www.yahoo.com/news/albuquerque-man-shot-smith-intervening-002710278.html)
+- Mar 03 - [State of emergency in South Carolina as wildfires prompt evacuations](https://www.yahoo.com/news/state-emergency-south-carolina-wildfires-000905172.html)
+- Mar 03 - [4 ejected from motor home after crashing on I-15 in southern Utah](https://www.yahoo.com/news/4-ejected-motor-home-crashing-000649684.html)
 - Mar 02 - [NBA Legend Shaq Says His Net Worth 'Quadrupled' Once He Took Note From Jeff Bezos And Started Investing In Things That 'Change People's Lives'](https://finance.yahoo.com/news/nba-legend-shaq-says-net-223041693.html)
-- Mar 02 - [You can eat these 5 invasive animals to help population control, US Fish & Wildlife Service says](https://www.yahoo.com/lifestyle/eat-5-invasive-animals-help-213449340.html)
-- Mar 02 - [Tony Robbins calls on Americans to get ‘head out of the sand’ and says Social Security isn’t enough, urging action](https://finance.yahoo.com/news/tony-robbins-calls-americans-head-210000699.html)
-- Mar 02 - [FAA reportedly ordered staff to find millions of dollars to fund Starlink deal](https://www.yahoo.com/tech/faa-reportedly-ordered-staff-to-find-millions-of-dollars-to-fund-starlink-deal-205236985.html)
-- Mar 02 - [Following Trump's lead, his allies lash out at Ukraine's Zelenskyy and suggest he may need to resign](https://www.yahoo.com/news/following-trumps-lead-allies-lash-200050641.html)
 <!-- feed end -->
 
 ### Onstream
