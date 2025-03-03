@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [A South African woman goes on trial charged with kidnapping and selling her daughter](https://www.yahoo.com/news/south-african-woman-goes-trial-152502290.html)
+- Mar 03 - [As measles outbreak grows, HHS secretary says vaccination is a personal decision that can protect individuals and communities](https://www.yahoo.com/news/measles-outbreak-grows-hhs-secretary-023335225.html)
+- Mar 03 - [Prime Video U.K. Director Chris Bird Stepping Down After 14 Years](https://www.yahoo.com/entertainment/prime-video-u-k-director-151611237.html)
 - Mar 03 - [US Supreme Court turns away challenge to Indiana University bias reporting policy](https://www.yahoo.com/news/us-supreme-court-turns-away-144143116.html)
-- Mar 03 - [Kroger CEO resigns following personal conduct probe](https://finance.yahoo.com/video/kroger-ceo-resigns-following-personal-142644457.html)
 - Mar 03 - [Cellphone deepfake detection technology unveiled at MWC](https://finance.yahoo.com/video/cellphone-deepfake-detection-technology-unveiled-142431681.html)
-- Mar 03 - [Downing Street defends small boats plan as migrant crossing up by 20%](https://www.yahoo.com/news/channel-migrant-crossings-hit-2025-114226156.html)
-- Mar 03 - [Eutelsat soars as investors bet on OneWeb satellites as European option to Starlink](https://finance.yahoo.com/news/eutelsat-committed-boosting-europes-satellite-140707904.html)
 <!-- feed end -->
 
 ### Onstream
