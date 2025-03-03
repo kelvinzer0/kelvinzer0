@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [What Trump's Mexico, Canada tariffs would mean for March PMI](https://finance.yahoo.com/video/trumps-mexico-canada-tariffs-mean-170512827.html)
-- Mar 03 - [Is Taiwan Semiconductor Manufacturing Company Limited (TSM) the Tech Stock with High Upside Potential?](https://finance.yahoo.com/news/taiwan-semiconductor-manufacturing-company-limited-161934574.html)
-- Mar 03 - [Youngkin grants clemency to a fired Virginia police sergeant who shot and killed an unarmed man](https://www.yahoo.com/news/youngkin-grants-clemency-fired-virginia-161450164.html)
-- Mar 03 - [Woman hospitalized after being stung by scorpion at Boston’s Logan Airport, police say](https://www.yahoo.com/news/woman-hospitalized-being-stung-scorpion-161358881.html)
-- Mar 03 - [One dead after car drives into crowd in Mannheim, police say](https://www.yahoo.com/news/one-dead-car-drives-crowd-160801685.html)
+- Mar 03 - [Everyone will 'profit greatly' from AI in the future, expert says](https://www.yahoo.com/news/everyone-profit-greatly-ai-future-180033372.html)
+- Mar 03 - [Tuesday storms could help Alabama battle wildfire outbreak](https://www.yahoo.com/news/tuesday-storms-could-help-alabama-174807388.html)
+- Mar 03 - [Amid community outcry, ICE releases statement on arrests of N.J. restaurant owners](https://www.yahoo.com/news/amid-community-outcry-ice-releases-173214355.html)
+- Mar 03 - [France's prime minister tears into Trump's attack on Zelenskyy as a staggering show of 'brutality'](https://www.yahoo.com/news/frances-prime-minister-tears-trumps-170248065.html)
+- Mar 03 - [Robert Crimo III pleads guilty to 2022 Illinois Fourth of July shooting on first day of trial](https://www.yahoo.com/news/robert-crimo-iii-pleads-guilty-164121007.html)
 <!-- feed end -->
 
 ### Onstream
