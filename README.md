@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [On The Hunt For Magnificent Earnings Growth? Check These 7 Stocks.](https://www.investors.com/research/best-stocks-sp500-sp400-sp600-magnificent-earnings-growth-march-2025/?src=A00220&yptr=yahoo)
+- Mar 03 - [North Korea's Kim Yo Jong says US Trump administration stepping up provocations](https://www.yahoo.com/news/north-koreas-kim-yo-jong-212447373.html)
 - Mar 03 - [Huawei showcases its new tri-foldable phone](https://www.yahoo.com/news/huawei-showcases-tri-foldable-phone-210851972.html)
 - Mar 03 - [US senator asks Rubio to answer questions on planned Tesla Cybertruck purchase](https://www.yahoo.com/news/us-senator-asks-rubio-answer-204057277.html)
-- Mar 03 - [I Cackled So Hard At These 33 Internet Fails From Last Week That I'm Pretty Sure My Neighbor Thinks I'm A Witch](https://www.yahoo.com/lifestyle/cackled-hard-33-internet-fails-203119294.html)
 - Mar 03 - [Severe Outbreak; With Tornadoes Likely Starting Monday Night](https://www.yahoo.com/news/severe-outbreak-tornadoes-likely-starting-202437632.html)
-- Mar 03 - [Canada, Mexico currencies drop as Trump confirms pending tariffs](https://finance.yahoo.com/news/canada-mexico-currencies-drop-trump-202130187.html)
 <!-- feed end -->
 
 ### Onstream
