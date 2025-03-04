@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [What pause in US military aid could mean for Ukraine](https://www.yahoo.com/news/pause-us-military-aid-could-094007067.html)
+- Mar 04 - [Fox News Hits Trump With Uncomfortable Real-Time Reality Check On Live TV](https://finance.yahoo.com/news/fox-news-hits-trump-uncomfortable-101118522.html)
+- Mar 04 - [JD Vance Accidentally Spills The GOP’s Strategy In Stunning Self-Own](https://www.yahoo.com/news/jd-vance-accidentally-spills-gop-093359914.html)
 - Mar 04 - [Families of captured North Korean troops 'will be executed,' former Pyongyang soldier tells ABC News](https://www.yahoo.com/news/families-captured-north-korean-troops-090313885.html)
-- Mar 04 - [New Zealand lawmakers told to stop complaining about use of the country's Māori name in Parliament](https://www.yahoo.com/news/zealand-lawmakers-told-stop-complaining-074338136.html)
 - Mar 04 - [Russia is beating its military recruitment goals as Putin pumps cash into bonuses and lets men sign up to avoid trials](https://www.yahoo.com/news/russia-beating-military-recruitment-goals-050937610.html)
 - Mar 04 - [Exclusive-China to publish policy to boost RISC-V chip use nationwide, sources say](https://finance.yahoo.com/news/exclusive-china-publish-policy-boost-035222756.html)
 <!-- feed end -->
