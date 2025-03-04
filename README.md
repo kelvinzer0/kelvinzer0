@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Michael Bloomberg tops the list of America’s biggest donors for the second year in a row](https://www.yahoo.com/news/michael-bloomberg-tops-list-america-162752710.html)
-- Mar 04 - [Missouri State names its next provost, vice president of academic affairs](https://www.yahoo.com/news/missouri-state-names-next-provost-155243754.html)
-- Mar 04 - [Multi-vehicle wreck shuts down major highway near Massachusetts-Rhode Island line](https://www.yahoo.com/news/multi-vehicle-wreck-shuts-down-150823231.html)
-- Mar 04 - [Trump's new education boss just took over — and she's already announcing a 'historic final mission'](https://www.yahoo.com/news/trumps-education-secretary-announces-historic-122301938.html)
-- Mar 04 - [Trump slaps tariffs on Canada, Mexico; WSJ says Trump taking 'the dumbest tariff plunge'](https://www.yahoo.com/news/trump-slaps-tariffs-canada-mexico-114212137.html)
+- Mar 04 - [Youth detention centre allegedly forced inmates into ‘gladiator fights’](https://www.yahoo.com/news/youth-detention-centre-allegedly-forced-175407796.html)
+- Mar 04 - [Speaker Johnson tells GOP lawmakers to skip town halls after an onslaught of protests](https://www.yahoo.com/news/speaker-johnson-tells-gop-lawmakers-173522084.html)
+- Mar 04 - [Canada's tariffs to hit these U.S. states the hardest, according to a study](https://finance.yahoo.com/news/canadas-tariffs-to-hit-these-us-states-the-hardest-according-to-a-study-172435379.html)
+- Mar 04 - [Dog in fatal attack confirmed as banned XL Bully](https://www.yahoo.com/news/dog-fatal-attack-confirmed-banned-164808334.html)
+- Mar 04 - [Trump threatens to deport, imprison foreign students for 'illegal protests'](https://www.yahoo.com/news/trump-american-students-permanently-expelled-162037337.html)
 <!-- feed end -->
 
 ### Onstream
