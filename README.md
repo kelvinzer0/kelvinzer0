@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Youth detention centre allegedly forced inmates into ‘gladiator fights’](https://www.yahoo.com/news/youth-detention-centre-allegedly-forced-175407796.html)
+- Mar 04 - [French defense minister responds to JD Vance comments on post-conflict peacekeeping force in Ukraine](https://www.yahoo.com/news/french-defense-minister-responds-jd-184924315.html)
+- Mar 04 - [EU plans law to give car services groups access to vehicle data](https://finance.yahoo.com/news/eu-plans-law-car-services-184332714.html)
+- Mar 04 - [Trump tariffs: These U.S. states may be hit hardest by Canada's retaliatory measures, as Trudeau predicts 'harm' for American families](https://finance.yahoo.com/news/trump-tariffs-these-us-states-may-be-hit-hardest-by-canadas-retaliatory-measures-as-trudeau-predicts-harm-for-american-families-184048053.html)
+- Mar 04 - [Want to be a Trump impersonator? You’ll have some competition](https://www.yahoo.com/news/parties-great-again-donald-trump-160603951.html)
 - Mar 04 - [Speaker Johnson tells GOP lawmakers to skip town halls after an onslaught of protests](https://www.yahoo.com/news/speaker-johnson-tells-gop-lawmakers-173522084.html)
-- Mar 04 - [Canada's tariffs to hit these U.S. states the hardest, according to a study](https://finance.yahoo.com/news/canadas-tariffs-to-hit-these-us-states-the-hardest-according-to-a-study-172435379.html)
-- Mar 04 - [Dog in fatal attack confirmed as banned XL Bully](https://www.yahoo.com/news/dog-fatal-attack-confirmed-banned-164808334.html)
-- Mar 04 - [Trump threatens to deport, imprison foreign students for 'illegal protests'](https://www.yahoo.com/news/trump-american-students-permanently-expelled-162037337.html)
 <!-- feed end -->
 
 ### Onstream
