@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Ukrainian lawmaker says Trump military aid pause looks like attempt to push Kyiv towards capitulation](https://www.yahoo.com/news/ukrainian-lawmaker-says-trump-military-075048681.html)
-- Mar 04 - [Number of teachers leaving Apalachee High School after deadly shooting rises](https://www.yahoo.com/news/number-teachers-leaving-apalachee-high-074838076.html)
+- Mar 04 - [New Zealand lawmakers told to stop complaining about use of the country's Māori name in Parliament](https://www.yahoo.com/news/zealand-lawmakers-told-stop-complaining-074338136.html)
+- Mar 04 - [Hawaii’s giant iguanas aren’t its worst invasive species](https://www.yahoo.com/news/hawaii-giant-iguanas-aren-t-063045253.html)
+- Mar 04 - [The real reason Trump is waging a global trade war](https://www.yahoo.com/news/real-reason-trump-waging-global-121110484.html)
 - Mar 04 - [Exclusive-China to publish policy to boost RISC-V chip use nationwide - sources](https://finance.yahoo.com/news/exclusive-china-publish-policy-boost-035222756.html)
-- Mar 04 - [Sheriff's office makes error about Gene Hackman's dog in initial death report](https://www.yahoo.com/news/sheriffs-office-makes-error-gene-005423136.html)
-- Mar 04 - [Trump pauses all U.S. military aid to Ukraine after angry clash with Zelenskiy](https://www.yahoo.com/news/trump-halts-u-military-aid-003520770.html)
+- Mar 04 - [One month later, search continues for missing pregnant Wisconsin teen](https://www.yahoo.com/news/one-month-later-search-continues-034921683.html)
 <!-- feed end -->
 
 ### Onstream
