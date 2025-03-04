@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Best Buy: Brace For Price Increases From Trump's Tariffs](https://www.yahoo.com/tech/best-buy-brace-price-increases-155725421.html)
-- Mar 04 - [Gas Station Sign Toppled During Severe Storm](https://www.yahoo.com/news/gas-station-sign-toppled-during-155002756.html)
-- Mar 04 - [Stock market today: Dow, S&P 500, Nasdaq wipe out Trump-led gains as tariff sell-off continues](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-wipe-out-trump-led-gains-as-tariff-sell-off-continues-154218096.html)
-- Mar 04 - [Driver dies in fiery single-vehicle crash in Tallahassee](https://www.yahoo.com/news/driver-dies-fiery-single-vehicle-152453141.html)
-- Mar 04 - [Vance says US-Ukraine minerals deal better deterrent of Putin than 'troops from some random country'](https://www.yahoo.com/news/vance-says-us-ukraine-minerals-144502202.html)
+- Mar 04 - [Michael Bloomberg tops the list of America’s biggest donors for the second year in a row](https://www.yahoo.com/news/michael-bloomberg-tops-list-america-162752710.html)
+- Mar 04 - [Missouri State names its next provost, vice president of academic affairs](https://www.yahoo.com/news/missouri-state-names-next-provost-155243754.html)
+- Mar 04 - [Multi-vehicle wreck shuts down major highway near Massachusetts-Rhode Island line](https://www.yahoo.com/news/multi-vehicle-wreck-shuts-down-150823231.html)
+- Mar 04 - [Trump's new education boss just took over — and she's already announcing a 'historic final mission'](https://www.yahoo.com/news/trumps-education-secretary-announces-historic-122301938.html)
+- Mar 04 - [Trump slaps tariffs on Canada, Mexico; WSJ says Trump taking 'the dumbest tariff plunge'](https://www.yahoo.com/news/trump-slaps-tariffs-canada-mexico-114212137.html)
 <!-- feed end -->
 
 ### Onstream
