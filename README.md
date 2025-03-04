@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Chocolate price hikes sweeten Lindt's operating profit](https://finance.yahoo.com/video/chocolate-price-hikes-sweeten-lindts-144302774.html)
-- Mar 04 - [Utah Veterans Affairs worker shocked to be fired for 'performance' after glowing review. What to do if you're laid off](https://finance.yahoo.com/news/utah-veterans-affairs-worker-shocked-130000564.html)
-- Mar 04 - [Trump's new education boss just took over — and she's already announcing a 'historic final mission'](https://www.yahoo.com/news/trumps-education-secretary-announces-historic-122301938.html)
-- Mar 04 - [Scientists make astounding discovery beneath Antarctica's floating ice shelves: 'We had to double-check it was real'](https://www.yahoo.com/news/scientists-astounding-discovery-beneath-antarcticas-113001388.html)
-- Mar 04 - [Exclusive-Fired US government workers with top security clearances were not given exit briefings, sources say](https://www.yahoo.com/news/exclusive-fired-us-government-workers-110955417.html)
+- Mar 04 - [Best Buy: Brace For Price Increases From Trump's Tariffs](https://www.yahoo.com/tech/best-buy-brace-price-increases-155725421.html)
+- Mar 04 - [Gas Station Sign Toppled During Severe Storm](https://www.yahoo.com/news/gas-station-sign-toppled-during-155002756.html)
+- Mar 04 - [Stock market today: Dow, S&P 500, Nasdaq wipe out Trump-led gains as tariff sell-off continues](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-wipe-out-trump-led-gains-as-tariff-sell-off-continues-154218096.html)
+- Mar 04 - [Driver dies in fiery single-vehicle crash in Tallahassee](https://www.yahoo.com/news/driver-dies-fiery-single-vehicle-152453141.html)
+- Mar 04 - [Vance says US-Ukraine minerals deal better deterrent of Putin than 'troops from some random country'](https://www.yahoo.com/news/vance-says-us-ukraine-minerals-144502202.html)
 <!-- feed end -->
 
 ### Onstream
