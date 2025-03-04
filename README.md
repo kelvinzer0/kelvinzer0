@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 04 - [Hundreds protest mass firing of NOAA employees from DOGE cuts](https://www.yahoo.com/news/hundreds-protest-mass-firing-noaa-011703686.html)
+- Mar 04 - [New York’s top FBI field office agent forced out](https://www.yahoo.com/news/york-top-fbi-field-office-005700169.html)
 - Mar 04 - [Trump halts all U.S. military aid to Ukraine, White House official says](https://www.yahoo.com/news/trump-halts-u-military-aid-003520770.html)
-- Mar 03 - [People are using Super Mario to benchmark AI now](https://finance.yahoo.com/news/people-using-super-mario-benchmark-235419429.html)
+- Mar 03 - [Travelers to JFK Airport face delays due to Van Wyck Expressway closures](https://www.yahoo.com/news/travelers-jfk-airport-face-delays-233800322.html)
 - Mar 03 - [Head of FBI New York office says he's retired from the bureau after being ordered to do so](https://www.yahoo.com/news/head-fbi-york-office-says-232632815.html)
-- Mar 03 - [Republican Senator gets booed by voters, after cutting town hall short over DOGE questions](https://www.yahoo.com/news/republican-senator-gets-booed-voters-223028012.html)
 <!-- feed end -->
 
 ### Onstream
