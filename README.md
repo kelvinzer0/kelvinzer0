@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [French defense minister responds to JD Vance comments on post-conflict peacekeeping force in Ukraine](https://www.yahoo.com/news/french-defense-minister-responds-jd-184924315.html)
-- Mar 04 - [EU plans law to give car services groups access to vehicle data](https://finance.yahoo.com/news/eu-plans-law-car-services-184332714.html)
+- Mar 04 - [AMC, GameStop Fall As Trump Tariffs Land; Are Meme Stocks A Buy Or Sell Now?](https://www.investors.com/research/meme-stocks-buy-now-march-2025/?src=A00220&yptr=yahoo)
+- Mar 04 - [Exclusive-US and Ukraine prepare to sign minerals deal on Tuesday, sources say](https://www.yahoo.com/news/exclusive-us-ukraine-prepare-sign-190405422.html)
+- Mar 04 - [Trump Abruptly Walks Back His Directive To Fire Thousands Of Federal Employees](https://www.yahoo.com/news/trump-abruptly-walks-back-directive-185407582.html)
 - Mar 04 - [Trump tariffs: These U.S. states may be hit hardest by Canada's retaliatory measures, as Trudeau predicts 'harm' for American families](https://finance.yahoo.com/news/trump-tariffs-these-us-states-may-be-hit-hardest-by-canadas-retaliatory-measures-as-trudeau-predicts-harm-for-american-families-184048053.html)
-- Mar 04 - [Want to be a Trump impersonator? You’ll have some competition](https://www.yahoo.com/news/parties-great-again-donald-trump-160603951.html)
 - Mar 04 - [Speaker Johnson tells GOP lawmakers to skip town halls after an onslaught of protests](https://www.yahoo.com/news/speaker-johnson-tells-gop-lawmakers-173522084.html)
 <!-- feed end -->
 
