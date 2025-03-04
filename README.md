@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [AMC, GameStop Fall As Trump Tariffs Land; Are Meme Stocks A Buy Or Sell Now?](https://www.investors.com/research/meme-stocks-buy-now-march-2025/?src=A00220&yptr=yahoo)
-- Mar 04 - [Exclusive-US and Ukraine prepare to sign minerals deal on Tuesday, sources say](https://www.yahoo.com/news/exclusive-us-ukraine-prepare-sign-190405422.html)
-- Mar 04 - [Trump Abruptly Walks Back His Directive To Fire Thousands Of Federal Employees](https://www.yahoo.com/news/trump-abruptly-walks-back-directive-185407582.html)
-- Mar 04 - [Trump tariffs: These U.S. states may be hit hardest by Canada's retaliatory measures, as Trudeau predicts 'harm' for American families](https://finance.yahoo.com/news/trump-tariffs-these-us-states-may-be-hit-hardest-by-canadas-retaliatory-measures-as-trudeau-predicts-harm-for-american-families-184048053.html)
-- Mar 04 - [Speaker Johnson tells GOP lawmakers to skip town halls after an onslaught of protests](https://www.yahoo.com/news/speaker-johnson-tells-gop-lawmakers-173522084.html)
+- Mar 04 - [Doorbell Camera Catches Delivery Driver Hitting Customer's Car, Fleeing Scene](https://www.yahoo.com/news/doorbell-camera-catches-delivery-driver-210318463.html)
+- Mar 04 - [St. Johns County Airport Authority board member wants policy review after claims of statute breaches](https://www.yahoo.com/news/st-johns-county-airport-authority-205122300.html)
+- Mar 04 - [Tesla EV sales in China fell 49% in February](https://finance.yahoo.com/video/tesla-ev-sales-china-fell-203625220.html)
+- Mar 04 - [University of Florida student, 21, dies Sunday following scooter crash on campus](https://www.yahoo.com/news/university-florida-student-21-dies-201215429.html)
+- Mar 04 - [Zelenskiy instructs defence minister to secure precise information on US military assistance](https://www.yahoo.com/news/zelenskiy-instructs-defence-minister-secure-200224671.html)
 <!-- feed end -->
 
 ### Onstream
