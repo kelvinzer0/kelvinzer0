@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [Head of FBI New York office says he's retired from the bureau after being ordered to do so](https://www.yahoo.com/news/head-fbi-york-office-says-232632815.html)
+- Mar 04 - [Researchers stunned to discover cause of change in chimpanzee mating behavior: 'Rarely been demonstrated before'](https://www.yahoo.com/news/researchers-stunned-discover-cause-change-011500862.html)
+- Mar 03 - [Canadian premier says he will cut off electricity exports to US ‘with a smile on my face’](https://www.yahoo.com/news/canadian-premier-says-cut-off-225606450.html)
+- Mar 03 - [3 Boys Never Returned from Dad's After Thanksgiving. Then Police Found a Noose, a Note and Bible with Verse Circled in His Home](https://www.yahoo.com/entertainment/3-boys-never-returned-dads-223908938.html)
 - Mar 03 - [Historic SS United States Arrives In Mobile Bay](https://www.yahoo.com/news/historic-ss-united-states-arrives-211547702.html)
 - Mar 03 - [Send This To Your Grandma, Dad, Or MAGA-Supporting Family When They Ask You How Trump’s Economy Is Faring](https://www.yahoo.com/news/im-big-big-big-big-205151593.html)
-- Mar 03 - [US senator asks Rubio to answer questions on planned Tesla Cybertruck purchase](https://www.yahoo.com/news/us-senator-asks-rubio-answer-204057277.html)
-- Mar 03 - [Killer whales amaze Seattle onlookers with a rarely seen bird hunt](https://www.yahoo.com/news/killer-whales-amaze-seattle-onlookers-200704684.html)
 <!-- feed end -->
 
 ### Onstream
