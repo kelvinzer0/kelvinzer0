@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [AI leads consumer tech trends at Mobile World Congress 2025](https://www.yahoo.com/news/ai-leads-consumer-tech-trends-135409318.html)
-- Mar 04 - [Farmers’ protest live: Protesters say ‘no pancakes without us’ on tractor tax march in London](https://www.yahoo.com/news/farmers-protest-live-thousands-set-072729755.html)
-- Mar 04 - [European companies take evasive action as Trump tariffs hit, brace for second wave](https://finance.yahoo.com/news/european-companies-evasive-action-trump-131458563.html)
-- Mar 04 - [Trump’s plan to end taxes on Social Security will benefit this 1 group of Americans the most, report finds](https://finance.yahoo.com/news/trump-plan-end-taxes-social-123000690.html)
-- Mar 04 - [Trump's new education secretary announces 'historic final mission' in staff email sent hours after confirmation](https://www.yahoo.com/news/trumps-education-secretary-announces-historic-122301938.html)
+- Mar 04 - [Chocolate price hikes sweeten Lindt's operating profit](https://finance.yahoo.com/video/chocolate-price-hikes-sweeten-lindts-144302774.html)
+- Mar 04 - [Utah Veterans Affairs worker shocked to be fired for 'performance' after glowing review. What to do if you're laid off](https://finance.yahoo.com/news/utah-veterans-affairs-worker-shocked-130000564.html)
+- Mar 04 - [Trump's new education boss just took over — and she's already announcing a 'historic final mission'](https://www.yahoo.com/news/trumps-education-secretary-announces-historic-122301938.html)
+- Mar 04 - [Scientists make astounding discovery beneath Antarctica's floating ice shelves: 'We had to double-check it was real'](https://www.yahoo.com/news/scientists-astounding-discovery-beneath-antarcticas-113001388.html)
+- Mar 04 - [Exclusive-Fired US government workers with top security clearances were not given exit briefings, sources say](https://www.yahoo.com/news/exclusive-fired-us-government-workers-110955417.html)
 <!-- feed end -->
 
 ### Onstream
