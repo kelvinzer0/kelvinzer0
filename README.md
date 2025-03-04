@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [AI leads consumer tech trends at Mobile World Congress 2025](https://www.yahoo.com/news/ai-leads-consumer-tech-trends-135409318.html)
 - Mar 04 - [Farmers’ protest live: Protesters say ‘no pancakes without us’ on tractor tax march in London](https://www.yahoo.com/news/farmers-protest-live-thousands-set-072729755.html)
-- Mar 04 - [Man suspected of smuggling hundreds of migrants into Europe arrested in London](https://www.yahoo.com/news/man-suspected-smuggling-hundreds-migrants-122113401.html)
-- Mar 04 - [Trump slaps tariffs on Canada, Mexico; WSJ says Trump taking 'the dumbest tariff plunge'](https://www.yahoo.com/news/trump-slaps-tariffs-canada-mexico-114212137.html)
-- Mar 04 - [Commentary: Trump, the GOP and DOGE have launched their attack on Social Security. You should start worrying now](https://www.yahoo.com/news/commentary-trump-gop-doge-launched-110052676.html)
-- Mar 04 - [Deputies respond after homeowner discovers terrifying visitor in backyard — and it's becoming a growing issue](https://www.yahoo.com/news/deputies-respond-homeowner-discovers-terrifying-110038718.html)
+- Mar 04 - [European companies take evasive action as Trump tariffs hit, brace for second wave](https://finance.yahoo.com/news/european-companies-evasive-action-trump-131458563.html)
+- Mar 04 - [Trump’s plan to end taxes on Social Security will benefit this 1 group of Americans the most, report finds](https://finance.yahoo.com/news/trump-plan-end-taxes-social-123000690.html)
+- Mar 04 - [Trump's new education secretary announces 'historic final mission' in staff email sent hours after confirmation](https://www.yahoo.com/news/trumps-education-secretary-announces-historic-122301938.html)
 <!-- feed end -->
 
 ### Onstream
