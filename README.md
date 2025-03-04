@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [Surveillance video shows moments before and after Kendal Crank’s fatal shooting](https://www.yahoo.com/news/surveillance-video-shows-moments-kendal-212928513.html)
+- Mar 04 - [Exclusive-China to publish policy to boost RISC-V chip use nationwide - sources](https://finance.yahoo.com/news/exclusive-china-publish-policy-boost-035222756.html)
 - Mar 04 - [Researchers stunned to discover cause of change in chimpanzee mating behavior: 'Rarely been demonstrated before'](https://www.yahoo.com/news/researchers-stunned-discover-cause-change-011500862.html)
+- Mar 04 - [Trump pauses all U.S. military aid to Ukraine after angry clash with Zelenskiy](https://www.yahoo.com/news/trump-halts-u-military-aid-003520770.html)
 - Mar 03 - [Canadian premier says he will cut off electricity exports to US ‘with a smile on my face’](https://www.yahoo.com/news/canadian-premier-says-cut-off-225606450.html)
-- Mar 03 - [3 Boys Never Returned from Dad's After Thanksgiving. Then Police Found a Noose, a Note and Bible with Verse Circled in His Home](https://www.yahoo.com/entertainment/3-boys-never-returned-dads-223908938.html)
-- Mar 03 - [Historic SS United States Arrives In Mobile Bay](https://www.yahoo.com/news/historic-ss-united-states-arrives-211547702.html)
-- Mar 03 - [Send This To Your Grandma, Dad, Or MAGA-Supporting Family When They Ask You How Trump’s Economy Is Faring](https://www.yahoo.com/news/im-big-big-big-big-205151593.html)
 <!-- feed end -->
 
 ### Onstream
