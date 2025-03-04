@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Downing Street defends small boats plan as Channel migrant crossings increase](https://www.yahoo.com/news/channel-migrant-crossings-hit-2025-114226156.html)
-- Mar 04 - [Measles outbreak expected to surge across US for months | Morning in America](https://www.yahoo.com/news/measles-outbreak-expected-surge-across-114057684.html)
+- Mar 04 - [Farmers’ protest live: Protesters say ‘no pancakes without us’ on tractor tax march in London](https://www.yahoo.com/news/farmers-protest-live-thousands-set-072729755.html)
+- Mar 04 - [Man suspected of smuggling hundreds of migrants into Europe arrested in London](https://www.yahoo.com/news/man-suspected-smuggling-hundreds-migrants-122113401.html)
+- Mar 04 - [Trump slaps tariffs on Canada, Mexico; WSJ says Trump taking 'the dumbest tariff plunge'](https://www.yahoo.com/news/trump-slaps-tariffs-canada-mexico-114212137.html)
 - Mar 04 - [Commentary: Trump, the GOP and DOGE have launched their attack on Social Security. You should start worrying now](https://www.yahoo.com/news/commentary-trump-gop-doge-launched-110052676.html)
-- Mar 04 - [JD Vance Accidentally Spills The GOP’s Strategy In Stunning Self-Own](https://www.yahoo.com/news/jd-vance-accidentally-spills-gop-093359914.html)
-- Mar 04 - [Families of North Korean troops captured in Russia 'will be executed,' former Pyongyang soldier tells ABC News](https://www.yahoo.com/news/families-captured-north-korean-troops-090313885.html)
+- Mar 04 - [Deputies respond after homeowner discovers terrifying visitor in backyard — and it's becoming a growing issue](https://www.yahoo.com/news/deputies-respond-homeowner-discovers-terrifying-110038718.html)
 <!-- feed end -->
 
 ### Onstream
