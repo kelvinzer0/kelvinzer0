@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [Is Apple hinting at new MacBook Air with M4 chip in new teaser?](https://finance.yahoo.com/video/apple-hinting-macbook-air-m4-231500424.html)
-- Mar 03 - [3 Boys Never Returned from Dad's After Thanksgiving. Then Police Found a Noose, a Note and Bible with Verse Circled in His Home](https://www.yahoo.com/entertainment/3-boys-never-returned-dads-223908938.html)
-- Mar 03 - [CCTV footage captures car accelerating during time of Mannheim attack](https://www.yahoo.com/news/cctv-footage-captures-car-accelerating-223725465.html)
-- Mar 03 - [Fatal vape robbery leads to felony-murder charges for 18-year-old](https://www.yahoo.com/news/fatal-vape-robbery-leads-felony-222355661.html)
-- Mar 03 - [North Korea's Kim Yo Jong says US Trump administration stepping up provocations](https://www.yahoo.com/news/north-koreas-kim-yo-jong-212447373.html)
+- Mar 04 - [Hundreds protest mass firing of NOAA employees from DOGE cuts](https://www.yahoo.com/news/hundreds-protest-mass-firing-noaa-011703686.html)
+- Mar 04 - [Trump halts all U.S. military aid to Ukraine, White House official says](https://www.yahoo.com/news/trump-halts-u-military-aid-003520770.html)
+- Mar 03 - [People are using Super Mario to benchmark AI now](https://finance.yahoo.com/news/people-using-super-mario-benchmark-235419429.html)
+- Mar 03 - [Head of FBI New York office says he's retired from the bureau after being ordered to do so](https://www.yahoo.com/news/head-fbi-york-office-says-232632815.html)
+- Mar 03 - [Republican Senator gets booed by voters, after cutting town hall short over DOGE questions](https://www.yahoo.com/news/republican-senator-gets-booed-voters-223028012.html)
 <!-- feed end -->
 
 ### Onstream
