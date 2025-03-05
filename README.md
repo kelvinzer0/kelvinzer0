@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - ['Truly Cinematic' Moment Lost Dog is Found by Veteran Drone Team in Just 41 Minutes](https://www.yahoo.com/news/truly-cinematic-moment-lost-dog-011535538.html)
+- Mar 05 - [Analysis-Sony, Suntory build U.S. stockpiles as Japan faces Trump tariff threat](https://finance.yahoo.com/news/analysis-sony-suntory-build-u-084429083.html)
+- Mar 05 - [Delivery Driver Hit Customer's Car Then Fled Scene, Doorbell Camera Shows](https://www.yahoo.com/news/doorbell-camera-catches-delivery-driver-210318463.html)
 - Mar 05 - ['Irony Is Dead': Trump's Most Outrageous Claim Leads To Open Laughter During Speech](https://www.yahoo.com/news/irony-dead-trumps-most-outrageous-045339329.html)
 - Mar 05 - [Democratic Rep. Al Green removed from House chamber after disrupting Trump's address to Congress](https://www.yahoo.com/news/democratic-rep-al-green-removed-from-house-chamber-after-disrupting-trumps-address-to-congress-024143812.html)
-- Mar 04 - [Rapper G$ Lil Ronnie and 5-Year-Old Daughter Killed at Car Wash](https://www.yahoo.com/entertainment/rapper-g-lil-ronnie-5-224702640.html)
-- Mar 04 - [This Fox News Clip Showing What The Price Of A Truck Will Be After Tariffs Is Going Viral](https://finance.yahoo.com/news/fox-news-clip-showing-price-221119606.html)
+- Mar 05 - [A German tattoo artist came to the US for a 3-week trip. She’s now been in ICE detention for over a month](https://www.yahoo.com/news/german-tattoo-artist-came-us-000752099.html)
 <!-- feed end -->
 
 ### Onstream
