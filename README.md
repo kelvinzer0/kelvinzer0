@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Dow Jones Futures Rise On Lutnick's Tariff Hints, But Trump Says 'Little Disturbance' OK](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
+- Mar 05 - [Russian drone attack on Odesa kills at least one person](https://www.yahoo.com/news/russian-drone-attack-odesa-kills-131031418.html)
 - Mar 05 - [A man claims he lost $70,000 in business because he drives a Cybertruck. Is Elon Musk's public image hurting Tesla?](https://finance.yahoo.com/news/man-claims-lost-70-000-121300776.html)
-- Mar 05 - [3 AI Stocks That Could Help Make You a Fortune](https://finance.yahoo.com/news/3-ai-stocks-could-help-113000695.html)
+- Mar 05 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
 - Mar 05 - [A NATO ally figured out the trick to getting weapons to Ukraine cheaper and faster. It could be critical.](https://www.yahoo.com/news/nato-ally-figured-trick-getting-103001809.html)
-- Mar 05 - [‘Students are under attack.’ Ohio State students and faculty rally against controversial bill](https://www.yahoo.com/news/students-under-attack-ohio-state-100525875.html)
-- Mar 05 - [Sen. Elizabeth Warren Turns Donald Trump Speech Taunt Into A Power Move](https://www.yahoo.com/news/sen-elizabeth-warren-turns-donald-084944021.html)
 <!-- feed end -->
 
 ### Onstream
