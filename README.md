@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Dow Jones Futures Rise After Market Whipsaws Lower; Trump Says Tariff 'Disturbance' OK](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
-- Mar 05 - [The problem with forcing employees to list workplace achievements](https://uk.finance.yahoo.com/news/employees-workplace-achievements-problem-elon-musk-060057305.html)
+- Mar 05 - ['Truly Cinematic' Moment Lost Dog is Found by Veteran Drone Team in Just 41 Minutes](https://www.yahoo.com/news/truly-cinematic-moment-lost-dog-011535538.html)
 - Mar 05 - ['Irony Is Dead': Trump's Most Outrageous Claim Leads To Open Laughter During Speech](https://www.yahoo.com/news/irony-dead-trumps-most-outrageous-045339329.html)
 - Mar 05 - [Democratic Rep. Al Green removed from House chamber after disrupting Trump's address to Congress](https://www.yahoo.com/news/democratic-rep-al-green-removed-from-house-chamber-after-disrupting-trumps-address-to-congress-024143812.html)
 - Mar 04 - [Rapper G$ Lil Ronnie and 5-Year-Old Daughter Killed at Car Wash](https://www.yahoo.com/entertainment/rapper-g-lil-ronnie-5-224702640.html)
+- Mar 04 - [This Fox News Clip Showing What The Price Of A Truck Will Be After Tariffs Is Going Viral](https://finance.yahoo.com/news/fox-news-clip-showing-price-221119606.html)
 <!-- feed end -->
 
 ### Onstream
