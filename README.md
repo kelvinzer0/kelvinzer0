@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Elon Musk's DOGE may bring some pain to these 4 high-growth restaurant stocks](https://finance.yahoo.com/news/elon-musks-doge-may-bring-some-pain-to-these-4-high-growth-restaurant-stocks-215352959.html)
-- Mar 05 - [3 Piglets Were Left to Starve in a Shocking Art Exhibit. The Artist’s Friend Admits Hatching Plot to Steal Them](https://www.yahoo.com/entertainment/3-piglets-were-left-starve-214843229.html)
-- Mar 05 - [Disneyland outrage after couple left child unattended in stroller while they waited for ride](https://www.yahoo.com/news/disneyland-outrage-couple-leaves-child-205220714.html)
+- Mar 05 - [A toddler died after allegedly being denied food for two days. Mom blamed it on ‘a migraine,’ cops say](https://www.yahoo.com/news/toddler-died-allegedly-being-denied-214919207.html)
+- Mar 05 - [Macron says he'll confer with allies on protecting Europe with French nuclear deterrence](https://www.yahoo.com/news/macron-says-hell-confer-allies-214850610.html)
+- Mar 05 - [Two men charged in connection to deaths of 3 Chiefs fans in Northland backyard](https://www.yahoo.com/news/two-men-charged-connection-deaths-204604134.html)
 - Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
-- Mar 05 - [Casino’s shutdown on Nevada-California border to last at least 2 years, possibly 3](https://www.yahoo.com/news/casino-shutdown-nevada-california-border-184910539.html)
+- Mar 05 - [What's driving the drop in crude oil prices?](https://finance.yahoo.com/video/whats-driving-drop-crude-oil-183000413.html)
 <!-- feed end -->
 
 ### Onstream
