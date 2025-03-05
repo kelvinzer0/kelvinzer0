@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Analysis-Sony, Suntory build U.S. stockpiles as Japan faces Trump tariff threat](https://finance.yahoo.com/news/analysis-sony-suntory-build-u-084429083.html)
-- Mar 05 - [Delivery Driver Hit Customer's Car Then Fled Scene, Doorbell Camera Shows](https://www.yahoo.com/news/doorbell-camera-catches-delivery-driver-210318463.html)
+- Mar 05 - [Want to Outperform Nearly 92% of Professional Fund Managers? Buy This 1 Investment and Hold It Forever.](https://finance.yahoo.com/news/want-outperform-nearly-92-professional-090500064.html)
+- Mar 05 - [The US is killing someone by firing squad for the 1st time in 15 years. Here's a look at the history](https://www.yahoo.com/news/us-killing-someone-firing-squad-050932726.html)
+- Mar 05 - [Rescuers find Philippine fighter jet's wreckage and the bodies of 2 pilots deployed to fight rebels](https://www.yahoo.com/news/philippine-forces-wreckage-missing-fighter-050441295.html)
 - Mar 05 - ['Irony Is Dead': Trump's Most Outrageous Claim Leads To Open Laughter During Speech](https://www.yahoo.com/news/irony-dead-trumps-most-outrageous-045339329.html)
-- Mar 05 - [Democratic Rep. Al Green removed from House chamber after disrupting Trump's address to Congress](https://www.yahoo.com/news/democratic-rep-al-green-removed-from-house-chamber-after-disrupting-trumps-address-to-congress-024143812.html)
-- Mar 05 - [A German tattoo artist came to the US for a 3-week trip. She’s now been in ICE detention for over a month](https://www.yahoo.com/news/german-tattoo-artist-came-us-000752099.html)
+- Mar 05 - [2,400-year-old puppets with 'dramatic facial expression' discovered atop pyramid in El Salvador](https://www.yahoo.com/news/2-400-old-puppets-dramatic-000110703.html)
 <!-- feed end -->
 
 ### Onstream
