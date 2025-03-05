@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Close-Up View Reveals 'Incredible' Scale of Mega-Iceberg That Ran Aground in Southern Ocean](https://www.yahoo.com/news/close-view-reveals-incredible-scale-104332211.html)
-- Mar 05 - [Rescuers find Philippine fighter jet's wreckage and the bodies of 2 pilots deployed to fight rebels](https://www.yahoo.com/news/philippine-forces-wreckage-missing-fighter-050441295.html)
-- Mar 05 - ['Irony Is Dead': Trump's Most Outrageous Claim Leads To Open Laughter During Speech](https://www.yahoo.com/news/irony-dead-trumps-most-outrageous-045339329.html)
-- Mar 05 - [Man arrested for allegedly operating brothel in Orange County](https://www.yahoo.com/news/man-arrested-allegedly-operating-brothel-030522340.html)
-- Mar 05 - [Netizens Share Candid Reactions After Learning Luigi Mangione Allegedly Filmed 20 Sex Tapes Prior To Arrest](https://www.yahoo.com/news/netizens-share-candid-reactions-learning-020022912.html)
+- Mar 05 - [A man claims he lost $70,000 in business because he drives a Cybertruck. Is Elon Musk's public image hurting Tesla?](https://finance.yahoo.com/news/man-claims-lost-70-000-121300776.html)
+- Mar 05 - [3 AI Stocks That Could Help Make You a Fortune](https://finance.yahoo.com/news/3-ai-stocks-could-help-113000695.html)
+- Mar 05 - [A NATO ally figured out the trick to getting weapons to Ukraine cheaper and faster. It could be critical.](https://www.yahoo.com/news/nato-ally-figured-trick-getting-103001809.html)
+- Mar 05 - [‘Students are under attack.’ Ohio State students and faculty rally against controversial bill](https://www.yahoo.com/news/students-under-attack-ohio-state-100525875.html)
+- Mar 05 - [Sen. Elizabeth Warren Turns Donald Trump Speech Taunt Into A Power Move](https://www.yahoo.com/news/sen-elizabeth-warren-turns-donald-084944021.html)
 <!-- feed end -->
 
 ### Onstream
