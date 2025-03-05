@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [US eyes zero tariff on cars in India trade deal as Tesla entry nears, sources say](https://finance.yahoo.com/news/us-eyes-zero-tariff-cars-135728878.html)
-- Mar 05 - [Dow Jones Futures Rise On Lutnick's Tariff Hints, But Trump Says 'Little Disturbance' OK](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
-- Mar 05 - [Shake Shack offers first-ever nationwide combo meal for $9.99](https://www.yahoo.com/news/shake-shack-offers-first-ever-130547209.html)
-- Mar 05 - [A man claims he lost $70,000 in business because he drives a Cybertruck. Is Elon Musk's public image hurting Tesla?](https://finance.yahoo.com/news/man-claims-lost-70-000-121300776.html)
-- Mar 05 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
+- Mar 05 - [Royal Caribbean upgraded, AppLovin downgraded: Wall Street's top analyst calls](https://finance.yahoo.com/news/royal-caribbean-upgraded-applovin-downgraded-143408612.html)
+- Mar 05 - [‘The Mountain that Eats Men.’ This Bolivian town is the only place in the world where you can legally buy dynamite](https://www.yahoo.com/news/mountain-eats-men-bolivian-town-131428267.html)
+- Mar 05 - [AOC Rips Into Elon Musk: 'He Is Not A Scientist, He Is Not An Engineer. He Is A Billionaire Con Man With A Lot Of Money'](https://finance.yahoo.com/news/aoc-rips-elon-musk-not-130019571.html)
+- Mar 05 - [How the S&P 500 is lining up with its 200-day moving average](https://finance.yahoo.com/video/p-500-lining-200-day-123048730.html)
+- Mar 05 - [Investors aren't cheering for Fed rate cuts anymore](https://finance.yahoo.com/news/investors-arent-cheering-for-fed-rate-cuts-anymore-110043459.html)
 <!-- feed end -->
 
 ### Onstream
