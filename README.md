@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Democratic Rep. Al Green removed from House chamber after disrupting Trump's address to Congress](https://www.yahoo.com/news/democratic-rep-al-green-removed-from-house-chamber-after-disrupting-trumps-address-to-congress-024143812.html)
+- Mar 05 - [A German tattoo artist came to the US for a 3-week trip. She’s now been in ICE detention for over a month](https://www.yahoo.com/news/german-tattoo-artist-came-us-000752099.html)
 - Mar 04 - [Rapper G$ Lil Ronnie and 5-Year-Old Daughter Killed at Car Wash](https://www.yahoo.com/entertainment/rapper-g-lil-ronnie-5-224702640.html)
-- Mar 04 - [Officials reveal shocking shift in major water source that millions of Americans depend on — here's what's happening](https://www.yahoo.com/news/officials-reveal-shocking-shift-major-110030440.html)
-- Mar 04 - [Gene Hackman, wife Betsy Arakawa death investigation reveals gas, carbon monoxide results](https://www.yahoo.com/news/gene-hackman-wife-betsy-arakawa-212835455.html)
-- Mar 04 - [Teen with ‘Perfect’ School Attendance Went Absent for Weeks. Then Police Found His Mom, Stepdad Slain at Home](https://www.yahoo.com/entertainment/teen-perfect-school-attendance-went-212332336.html)
+- Mar 04 - [Dozens of faculty, staff positions at University of Dayton eliminated](https://www.yahoo.com/news/dozens-faculty-staff-positions-university-223248798.html)
 - Mar 04 - [Supreme Court gravitates toward gun industry in bid to end Mexico lawsuit](https://www.yahoo.com/news/supreme-court-gravitates-toward-gun-210900604.html)
 <!-- feed end -->
 
