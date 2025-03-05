@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Dow Jones Futures Rise After Market Whipsaws Lower; Trump Touts Tariffs Before Congress](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
-- Mar 05 - [Major upgrades coming to four miles of I-70 downtown in Kansas City](https://www.yahoo.com/news/major-upgrades-coming-four-miles-033009349.html)
 - Mar 05 - [Takeaways from Trump’s address to Congress](https://www.yahoo.com/news/takeaways-trump-address-congress-032618847.html)
+- Mar 05 - [Dow Jones Futures Rise After Market Whipsaws Lower; Trump Touts Tariffs Before Congress](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
 - Mar 05 - [Democratic Rep. Al Green removed from House chamber after disrupting Trump's address to Congress](https://www.yahoo.com/news/democratic-rep-al-green-removed-from-house-chamber-after-disrupting-trumps-address-to-congress-024143812.html)
+- Mar 05 - [Guest describes experience at San Diego hotel after deadly shooting](https://www.yahoo.com/news/guest-describes-experience-san-diego-010529972.html)
 - Mar 04 - [Rapper G$ Lil Ronnie and 5-Year-Old Daughter Killed at Car Wash](https://www.yahoo.com/entertainment/rapper-g-lil-ronnie-5-224702640.html)
 <!-- feed end -->
 
