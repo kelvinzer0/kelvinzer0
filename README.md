@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Want to Outperform Nearly 92% of Professional Fund Managers? Buy This 1 Investment and Hold It Forever.](https://finance.yahoo.com/news/want-outperform-nearly-92-professional-090500064.html)
-- Mar 05 - [The US is killing someone by firing squad for the 1st time in 15 years. Here's a look at the history](https://www.yahoo.com/news/us-killing-someone-firing-squad-050932726.html)
+- Mar 05 - [Close-Up View Reveals 'Incredible' Scale of Mega-Iceberg That Ran Aground in Southern Ocean](https://www.yahoo.com/news/close-view-reveals-incredible-scale-104332211.html)
 - Mar 05 - [Rescuers find Philippine fighter jet's wreckage and the bodies of 2 pilots deployed to fight rebels](https://www.yahoo.com/news/philippine-forces-wreckage-missing-fighter-050441295.html)
 - Mar 05 - ['Irony Is Dead': Trump's Most Outrageous Claim Leads To Open Laughter During Speech](https://www.yahoo.com/news/irony-dead-trumps-most-outrageous-045339329.html)
-- Mar 05 - [2,400-year-old puppets with 'dramatic facial expression' discovered atop pyramid in El Salvador](https://www.yahoo.com/news/2-400-old-puppets-dramatic-000110703.html)
+- Mar 05 - [Man arrested for allegedly operating brothel in Orange County](https://www.yahoo.com/news/man-arrested-allegedly-operating-brothel-030522340.html)
+- Mar 05 - [Netizens Share Candid Reactions After Learning Luigi Mangione Allegedly Filmed 20 Sex Tapes Prior To Arrest](https://www.yahoo.com/news/netizens-share-candid-reactions-learning-020022912.html)
 <!-- feed end -->
 
 ### Onstream
