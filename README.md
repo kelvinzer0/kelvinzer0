@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - ['There's a shift towards buying local': Canadian brewery on tariffs](https://finance.yahoo.com/video/theres-shift-towards-buying-local-013110265.html)
-- Mar 05 - [Toyota aims for consistent return on equity, finance executive says](https://finance.yahoo.com/news/toyota-aims-consistent-return-equity-010853781.html)
-- Mar 05 - [These 20,000-Year-Old Vehicle Tracks Suggest a New Timeline for Human Migration](https://www.yahoo.com/news/20-000-old-vehicle-tracks-010000149.html)
 - Mar 04 - [Rapper G$ Lil Ronnie and 5-Year-Old Daughter Killed at Car Wash](https://www.yahoo.com/entertainment/rapper-g-lil-ronnie-5-224702640.html)
-- Mar 04 - [US commerce chief says Trump to meet Canada, Mexico in middle on tariffs](https://www.yahoo.com/news/us-commerce-chief-says-trump-222048424.html)
+- Mar 04 - [Officials reveal shocking shift in major water source that millions of Americans depend on — here's what's happening](https://www.yahoo.com/news/officials-reveal-shocking-shift-major-110030440.html)
+- Mar 04 - [Gene Hackman, wife Betsy Arakawa death investigation reveals gas, carbon monoxide results](https://www.yahoo.com/news/gene-hackman-wife-betsy-arakawa-212835455.html)
+- Mar 04 - [Teen with ‘Perfect’ School Attendance Went Absent for Weeks. Then Police Found His Mom, Stepdad Slain at Home](https://www.yahoo.com/entertainment/teen-perfect-school-attendance-went-212332336.html)
+- Mar 04 - [Supreme Court gravitates toward gun industry in bid to end Mexico lawsuit](https://www.yahoo.com/news/supreme-court-gravitates-toward-gun-210900604.html)
 <!-- feed end -->
 
 ### Onstream
