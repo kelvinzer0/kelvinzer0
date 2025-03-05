@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Takeaways from Trump’s address to Congress](https://www.yahoo.com/news/takeaways-trump-address-congress-032618847.html)
 - Mar 05 - [Dow Jones Futures Rise After Market Whipsaws Lower; Trump Touts Tariffs Before Congress](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
+- Mar 05 - ['Irony Is Dead': Trump's Most Outrageous Claim Leads To Open Laughter During Speech](https://www.yahoo.com/news/irony-dead-trumps-most-outrageous-045339329.html)
+- Mar 05 - [Hawaii girl, 7, fighting for life after e-bike collision](https://www.yahoo.com/news/hawaii-girl-7-fighting-life-041230156.html)
 - Mar 05 - [Democratic Rep. Al Green removed from House chamber after disrupting Trump's address to Congress](https://www.yahoo.com/news/democratic-rep-al-green-removed-from-house-chamber-after-disrupting-trumps-address-to-congress-024143812.html)
-- Mar 05 - [Guest describes experience at San Diego hotel after deadly shooting](https://www.yahoo.com/news/guest-describes-experience-san-diego-010529972.html)
-- Mar 04 - [Rapper G$ Lil Ronnie and 5-Year-Old Daughter Killed at Car Wash](https://www.yahoo.com/entertainment/rapper-g-lil-ronnie-5-224702640.html)
+- Mar 05 - [James Webb Spots Mysterious Object Crossing Space Between Stars](https://www.yahoo.com/news/james-webb-spots-mysterious-object-003037054.html)
 <!-- feed end -->
 
 ### Onstream
