@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Royal Caribbean upgraded, AppLovin downgraded: Wall Street's top analyst calls](https://finance.yahoo.com/news/royal-caribbean-upgraded-applovin-downgraded-143408612.html)
+- Mar 05 - [Newly Elected Texas Congressman, Who Replaced Late Rep. Sheila Jackson Lee, Dies Hours After Attending Trump's Speech](https://www.yahoo.com/entertainment/newly-elected-texas-congressman-replaced-154312889.html)
+- Mar 05 - [Stephen Colbert’s brutal three-word message to Dems who protested Trump speech](https://www.yahoo.com/entertainment/stephen-colbert-brutal-three-word-151510044.html)
+- Mar 05 - [Life finds a way: Your pet goldfish is bulking up in Lake Erie this winter](https://www.yahoo.com/news/life-finds-way-pet-goldfish-151152913.html)
+- Mar 05 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
 - Mar 05 - [‘The Mountain that Eats Men.’ This Bolivian town is the only place in the world where you can legally buy dynamite](https://www.yahoo.com/news/mountain-eats-men-bolivian-town-131428267.html)
-- Mar 05 - [AOC Rips Into Elon Musk: 'He Is Not A Scientist, He Is Not An Engineer. He Is A Billionaire Con Man With A Lot Of Money'](https://finance.yahoo.com/news/aoc-rips-elon-musk-not-130019571.html)
-- Mar 05 - [How the S&P 500 is lining up with its 200-day moving average](https://finance.yahoo.com/video/p-500-lining-200-day-123048730.html)
-- Mar 05 - [Investors aren't cheering for Fed rate cuts anymore](https://finance.yahoo.com/news/investors-arent-cheering-for-fed-rate-cuts-anymore-110043459.html)
 <!-- feed end -->
 
 ### Onstream
