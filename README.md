@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [South Carolina Supreme Court rejects man's final appeal, clearing way for firing squad execution](https://www.yahoo.com/news/south-carolina-supreme-court-rejects-184354699.html)
-- Mar 05 - [How Trump's mass layoffs could disrupt Social Security payments](https://finance.yahoo.com/video/trumps-mass-layoffs-could-disrupt-180233165.html)
-- Mar 05 - [MS homes destroyed by possible tornado, 3 dead in storm aftermath: 'It was out of nowhere'](https://www.yahoo.com/news/ms-homes-destroyed-possible-tornado-165245131.html)
+- Mar 05 - [Disney cuts 6% of staffers from news and entertainment unit, shutters data-driven website 538](https://finance.yahoo.com/news/disney-cuts-6-of-staffers-from-news-and-entertainment-unit-shutters-data-driven-website-538-195553389.html)
+- Mar 05 - [What's driving the drop in crude oil prices?](https://finance.yahoo.com/video/whats-driving-drop-crude-oil-183000413.html)
+- Mar 05 - [Canada's oil pipelines to the U.S. slowed within hours of Trump's tariffs, data show](https://finance.yahoo.com/news/canadas-oil-pipelines-to-the-us-slowed-within-hours-of-trumps-tariffs-data-show-155731492.html)
+- Mar 05 - [Intel defeats shareholder lawsuit over foundry losses, $32 billion plunge](https://finance.yahoo.com/news/intel-defeats-shareholder-lawsuit-over-170152972.html)
 - Mar 05 - [Donald Trump Rips The Mask Off Of John Roberts’ Court In One Sentence](https://www.yahoo.com/news/donald-trump-rips-mask-off-164909505.html)
-- Mar 05 - [Texas body builder Jodi Vance dies at age 20 'due to complications of severe dehydration'](https://www.yahoo.com/news/texas-body-builder-jodi-vance-162144643.html)
 <!-- feed end -->
 
 ### Onstream
