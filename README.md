@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Dow Jones Futures Rise After Market Whipsaws Lower; Trump Touts Tariffs Before Congress](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
+- Mar 05 - [Major upgrades coming to four miles of I-70 downtown in Kansas City](https://www.yahoo.com/news/major-upgrades-coming-four-miles-033009349.html)
+- Mar 05 - [Takeaways from Trump’s address to Congress](https://www.yahoo.com/news/takeaways-trump-address-congress-032618847.html)
 - Mar 05 - [Democratic Rep. Al Green removed from House chamber after disrupting Trump's address to Congress](https://www.yahoo.com/news/democratic-rep-al-green-removed-from-house-chamber-after-disrupting-trumps-address-to-congress-024143812.html)
-- Mar 05 - [A German tattoo artist came to the US for a 3-week trip. She’s now been in ICE detention for over a month](https://www.yahoo.com/news/german-tattoo-artist-came-us-000752099.html)
 - Mar 04 - [Rapper G$ Lil Ronnie and 5-Year-Old Daughter Killed at Car Wash](https://www.yahoo.com/entertainment/rapper-g-lil-ronnie-5-224702640.html)
-- Mar 04 - [Dozens of faculty, staff positions at University of Dayton eliminated](https://www.yahoo.com/news/dozens-faculty-staff-positions-university-223248798.html)
-- Mar 04 - [Supreme Court gravitates toward gun industry in bid to end Mexico lawsuit](https://www.yahoo.com/news/supreme-court-gravitates-toward-gun-210900604.html)
 <!-- feed end -->
 
 ### Onstream
