@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Biggest impact of tariffs 'could be growth,' not inflation](https://finance.yahoo.com/video/biggest-impact-tariffs-could-growth-163158478.html)
-- Mar 05 - [Pope Francis to skip Ash Wednesday services as hospital stay continues](https://www.yahoo.com/news/pope-francis-skip-ash-wednesday-162046574.html)
-- Mar 05 - [Trudeau not willing to lift Canada's retaliatory tariffs if Trump leaves some tariffs on Canada](https://www.yahoo.com/news/trudeau-not-willing-lift-canadas-160719236.html)
-- Mar 05 - [Newly Elected Texas Congressman, Who Replaced Late Rep. Sheila Jackson Lee, Dies Hours After Attending Trump's Speech](https://www.yahoo.com/entertainment/newly-elected-texas-congressman-replaced-154312889.html)
-- Mar 05 - [Stephen Colbert’s brutal three-word message to Dems who protested Trump speech](https://www.yahoo.com/entertainment/stephen-colbert-brutal-three-word-151510044.html)
+- Mar 05 - [How Trump's mass layoffs could disrupt Social Security payments](https://finance.yahoo.com/video/trumps-mass-layoffs-could-disrupt-180233165.html)
+- Mar 05 - [Canada's oil pipelines to the U.S. slowed within hours of Trump's tariffs, data show](https://finance.yahoo.com/news/canadas-oil-pipelines-to-the-us-slowed-within-hours-of-trumps-tariffs-data-show-155731492.html)
+- Mar 05 - [Intel defeats shareholder lawsuit over foundry losses, $32 billion plunge](https://finance.yahoo.com/news/intel-defeats-shareholder-lawsuit-over-170152972.html)
+- Mar 05 - [Flight Attendant Breaks Leg Detaining Passenger Who Attempted To Open Plane Doors Mid-Flight](https://autos.yahoo.com/flight-attendant-breaks-leg-detaining-170119140.html)
+- Mar 05 - [Charlie Munger Said He Was Passionate About Getting Rich But 'Not Because I Wanted Ferraris – I Wanted The Independence'](https://finance.yahoo.com/news/charlie-munger-said-passionate-getting-170045634.html)
 <!-- feed end -->
 
 ### Onstream
