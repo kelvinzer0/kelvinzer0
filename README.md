@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [US eyes zero tariff on cars in India trade deal as Tesla entry nears, sources say](https://finance.yahoo.com/news/us-eyes-zero-tariff-cars-135728878.html)
 - Mar 05 - [Dow Jones Futures Rise On Lutnick's Tariff Hints, But Trump Says 'Little Disturbance' OK](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-market-lower-trump-tariffs-speech-congress-nvidia/?src=A00220&yptr=yahoo)
-- Mar 05 - [Russian drone attack on Odesa kills at least one person](https://www.yahoo.com/news/russian-drone-attack-odesa-kills-131031418.html)
+- Mar 05 - [Shake Shack offers first-ever nationwide combo meal for $9.99](https://www.yahoo.com/news/shake-shack-offers-first-ever-130547209.html)
 - Mar 05 - [A man claims he lost $70,000 in business because he drives a Cybertruck. Is Elon Musk's public image hurting Tesla?](https://finance.yahoo.com/news/man-claims-lost-70-000-121300776.html)
 - Mar 05 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
-- Mar 05 - [A NATO ally figured out the trick to getting weapons to Ukraine cheaper and faster. It could be critical.](https://www.yahoo.com/news/nato-ally-figured-trick-getting-103001809.html)
 <!-- feed end -->
 
 ### Onstream
