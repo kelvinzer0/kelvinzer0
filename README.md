@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Disney cuts 6% of staffers from news and entertainment unit, shutters data-driven website 538](https://finance.yahoo.com/news/disney-cuts-6-of-staffers-from-news-and-entertainment-unit-shutters-data-driven-website-538-195553389.html)
+- Mar 05 - [US authorities begin releasing some seized cryptocurrency miners, industry executives say](https://finance.yahoo.com/news/us-authorities-begin-releasing-seized-200018286.html)
+- Mar 05 - [Devastation Left Behind as Israel Demolishes Homes in West Bank Camp](https://www.yahoo.com/news/devastation-left-behind-israel-demolishes-194037898.html)
 - Mar 05 - [What's driving the drop in crude oil prices?](https://finance.yahoo.com/video/whats-driving-drop-crude-oil-183000413.html)
 - Mar 05 - [Canada's oil pipelines to the U.S. slowed within hours of Trump's tariffs, data show](https://finance.yahoo.com/news/canadas-oil-pipelines-to-the-us-slowed-within-hours-of-trumps-tariffs-data-show-155731492.html)
-- Mar 05 - [Intel defeats shareholder lawsuit over foundry losses, $32 billion plunge](https://finance.yahoo.com/news/intel-defeats-shareholder-lawsuit-over-170152972.html)
-- Mar 05 - [Donald Trump Rips The Mask Off Of John Roberts’ Court In One Sentence](https://www.yahoo.com/news/donald-trump-rips-mask-off-164909505.html)
+- Mar 05 - [Melinda French Gates got her start at Microsoft because an IBM hiring manager told her to turn down their job offer—‘It dumbfounded me’](https://finance.yahoo.com/news/melinda-french-gates-got-her-174102513.html)
 <!-- feed end -->
 
 ### Onstream
