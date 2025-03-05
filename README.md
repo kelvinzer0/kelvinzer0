@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [US authorities begin releasing some seized cryptocurrency miners, industry executives say](https://finance.yahoo.com/news/us-authorities-begin-releasing-seized-200018286.html)
-- Mar 05 - [Devastation Left Behind as Israel Demolishes Homes in West Bank Camp](https://www.yahoo.com/news/devastation-left-behind-israel-demolishes-194037898.html)
-- Mar 05 - [What's driving the drop in crude oil prices?](https://finance.yahoo.com/video/whats-driving-drop-crude-oil-183000413.html)
-- Mar 05 - [Canada's oil pipelines to the U.S. slowed within hours of Trump's tariffs, data show](https://finance.yahoo.com/news/canadas-oil-pipelines-to-the-us-slowed-within-hours-of-trumps-tariffs-data-show-155731492.html)
-- Mar 05 - [Melinda French Gates got her start at Microsoft because an IBM hiring manager told her to turn down their job offer—‘It dumbfounded me’](https://finance.yahoo.com/news/melinda-french-gates-got-her-174102513.html)
+- Mar 05 - [Elon Musk's DOGE may bring some pain to these 4 high-growth restaurant stocks](https://finance.yahoo.com/news/elon-musks-doge-may-bring-some-pain-to-these-4-high-growth-restaurant-stocks-215352959.html)
+- Mar 05 - [3 Piglets Were Left to Starve in a Shocking Art Exhibit. The Artist’s Friend Admits Hatching Plot to Steal Them](https://www.yahoo.com/entertainment/3-piglets-were-left-starve-214843229.html)
+- Mar 05 - [Disneyland outrage after couple left child unattended in stroller while they waited for ride](https://www.yahoo.com/news/disneyland-outrage-couple-leaves-child-205220714.html)
+- Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
+- Mar 05 - [Casino’s shutdown on Nevada-California border to last at least 2 years, possibly 3](https://www.yahoo.com/news/casino-shutdown-nevada-california-border-184910539.html)
 <!-- feed end -->
 
 ### Onstream
