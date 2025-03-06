@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Ohio Mom Discovers Cancer Deep in Her Thumb — and the Only Sign Was 2 Thin Lines on Her Nail](https://www.yahoo.com/lifestyle/ohio-mom-discovers-cancer-deep-203710212.html)
-- Mar 06 - [The Pandemic Started 5 Years Ago — Here Are 36 Things That Happened Back Then That Will Make You Question Reality](https://www.yahoo.com/entertainment/pandemic-started-5-years-ago-201837283.html)
+- Mar 06 - [Ice fisherman who went missing during blizzard warning found dead at Minnesota lake](https://www.yahoo.com/news/ice-fisherman-went-missing-during-210728151.html)
+- Mar 06 - [Intuitive Machines stock drops after unclear Athena moon landing](https://finance.yahoo.com/video/intuitive-machines-stock-drops-unclear-210010162.html)
 - Mar 06 - [Pilot error likely caused a small plane crash in Tennessee that killed a Canadian family, NTSB says](https://www.yahoo.com/news/pilot-error-likely-caused-small-201234110.html)
-- Mar 06 - [Foldable iPhone Rumors Tip 2026 Launch, $2,000+ Price Tag](https://www.yahoo.com/tech/foldable-iphone-rumors-tip-2026-194539682.html)
+- Mar 06 - [As JPMorgan Chase enforces a 5-day RTO, staffers complain about too few desks, spotty Wi-Fi, and sneezing, sick coworkers](https://finance.yahoo.com/news/jpmorgan-chase-enforces-5-day-185703089.html)
 - Mar 06 - [Trump puts new limits on Elon Musk](https://www.yahoo.com/news/trump-cabinet-musk-no-authority-185514425.html)
 <!-- feed end -->
 
