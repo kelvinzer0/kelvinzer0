@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
-- Mar 06 - [Arizona lawmaker who announced plans in a floor speech last year to get an abortion is resigning](https://www.yahoo.com/news/arizona-lawmaker-announced-plans-floor-000254791.html)
-- Mar 05 - [Police believe 2 dead following fiery North Las Vegas crash](https://www.yahoo.com/news/police-believe-2-dead-following-204319789.html)
 - Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
+- Mar 05 - [Volkswagen's cheapest EV ever is the first to use Rivian software](https://finance.yahoo.com/news/volkswagens-cheapest-ev-ever-first-193344434.html)
+- Mar 05 - [Man treated 'like a dog' before murder in upstate New York, prosecutor says](https://www.yahoo.com/news/man-treated-dog-murder-upstate-191523562.html)
 - Mar 05 - [Elon Musk’s DOGE slapped a $1 limit on government credit cards and now workers say they can’t do their jobs](https://www.yahoo.com/news/elon-musk-doge-slapped-1-191228515.html)
 <!-- feed end -->
 
