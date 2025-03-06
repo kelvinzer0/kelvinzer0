@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Starmer and Taoiseach plan to ‘reset’ relations with EU](https://www.yahoo.com/news/starmer-taoiseach-plan-reset-relations-092917791.html)
-- Mar 06 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
-- Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
-- Mar 05 - [Idaho police recovered a 3-person mixture of DNA under Maddie Mogen's fingernails](https://www.yahoo.com/news/idaho-police-recovered-3-person-201552518.html)
-- Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
+- Mar 06 - [Experts sound alarm over insects laying massive amounts of eggs: 'It's very concerning'](https://www.yahoo.com/news/experts-sound-alarm-over-insects-103024463.html)
+- Mar 06 - [Hamas brushes off Trump's threat and says it will only free hostages in return for a lasting truce](https://www.yahoo.com/news/hamas-brushes-off-trumps-threat-094244815.html)
+- Mar 06 - [An air force bombing drill with South Korean F-16s just ended in disaster](https://www.yahoo.com/news/air-force-bombing-drill-south-083607053.html)
+- Mar 06 - [Three men rented a car on Turo to get to a baby shower. Then the police arrived](https://www.yahoo.com/news/three-men-rented-car-turo-010446691.html)
+- Mar 05 - [Pathologist Lists 3 Possible Causes of Death for Gene Hackman and Wife Betsy](https://www.yahoo.com/news/pathologist-lists-3-possible-causes-222835678.html)
 <!-- feed end -->
 
 ### Onstream
