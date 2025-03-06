@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Longtime Henrietta strip club gets OK for addition](https://www.yahoo.com/news/longtime-henrietta-strip-club-gets-163433235.html)
+- Mar 06 - [Blake Lively and Justin Baldoni in court: Live updates as actress seeks stronger protective order against her 'It Ends With Us' co-star](https://www.yahoo.com/entertainment/live/blake-lively-and-justin-baldoni-in-court-live-updates-as-actress-seeks-stronger-protective-order-against-her-it-ends-with-us-co-star-161113962.html)
+- Mar 06 - [Blake Lively Vs Justin Baldoni Battle Is “Feud Between PR Firms,” Judge Declares As Decision Punted Over What Material Lawyers Can Share](https://www.yahoo.com/news/blake-lively-vs-justin-baldoni-174323988.html)
+- Mar 06 - [Wichita County sheriff: Mystery of the human ashes solved](https://www.yahoo.com/news/wichita-county-sheriff-mystery-human-165003402.html)
+- Mar 06 - [Putin says any Ukraine peace deal must ensure Russia's security, vows no retreat](https://www.yahoo.com/news/putin-says-ukraine-peace-deal-164354941.html)
 - Mar 06 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
-- Mar 06 - [Dad Of Cancer Survivor Celebrated By Trump Tells Rachel Maddow To 'Shut Her Mouth'](https://www.yahoo.com/news/dad-cancer-survivor-celebrated-trump-154856749.html)
-- Mar 06 - [Russia files lawsuit against US-based owner of seized canned food maker](https://www.yahoo.com/news/russia-files-lawsuit-against-us-143944320.html)
-- Mar 06 - [Driver, students injured after Mars elementary school bus crashes into tree in Butler County](https://www.yahoo.com/news/driver-students-injured-school-bus-135946582.html)
 <!-- feed end -->
 
 ### Onstream
