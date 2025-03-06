@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Gazan woman turns aid cartons into colorful Ramadan lanterns](https://www.yahoo.com/news/gazan-woman-turns-aid-cartons-124524657.html)
-- Mar 06 - [Mortgage and refinance rates today, March 6, 2025: Rates increase amid economic uncertainty](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-march-6-2025-110018701.html)
-- Mar 06 - [Experts sound alarm over insects laying massive amounts of eggs: 'It's very concerning'](https://www.yahoo.com/news/experts-sound-alarm-over-insects-103024463.html)
-- Mar 06 - [First-of-its-kind train could revolutionize travel for millions: 'A large amount of energy'](https://www.yahoo.com/tech/first-kind-train-could-revolutionize-103001849.html)
-- Mar 06 - [Two men found unresponsive on Kailua Beach](https://www.yahoo.com/news/two-men-found-unresponsive-kailua-003726866.html)
+- Mar 06 - [This young Texas doctor only read about measles. Now she's a leading expert amid outbreak.](https://www.yahoo.com/news/young-texas-doctor-only-read-131506336.html)
+- Mar 06 - [A 17-year-old with a gun boarded a flight and was overpowered by passengers and crew, police say](https://www.yahoo.com/news/17-old-gun-boarded-flight-124158321.html)
+- Mar 06 - [Turkey ready to send troops to Ukraine if necessary, source says](https://www.yahoo.com/news/turkey-ready-send-troops-ukraine-113213319.html)
+- Mar 06 - [Creature that can 'punch [its] way through aquarium glass' found inhabiting new waters: 'It's not something to celebrate'](https://www.yahoo.com/news/creature-punch-way-aquarium-glass-110050442.html)
+- Mar 06 - [Bitcoin Chart Shows Back to Back Weekly Hammer Candles, Seen Only a Handful Of Times in BTC History](https://finance.yahoo.com/news/bitcoin-chart-shows-back-back-103038605.html)
 <!-- feed end -->
 
 ### Onstream
