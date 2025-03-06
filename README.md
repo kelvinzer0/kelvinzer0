@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - ["Our useless council blew £16m on a bridge to nowhere"](https://www.yahoo.com/news/useless-council-blew-16m-bridge-084627275.html)
+- Mar 06 - [Starmer and Taoiseach plan to ‘reset’ relations with EU](https://www.yahoo.com/news/starmer-taoiseach-plan-reset-relations-092917791.html)
 - Mar 06 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
 - Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
-- Mar 06 - [Boeing needs to change its insular culture, CEO says in company-wide meeting](https://finance.yahoo.com/news/boeing-needs-change-insular-culture-000923506.html)
-- Mar 05 - [Pathologist Lists 3 Possible Causes of Death for Gene Hackman and Wife Betsy](https://www.yahoo.com/news/pathologist-lists-3-possible-causes-222835678.html)
+- Mar 05 - [Idaho police recovered a 3-person mixture of DNA under Maddie Mogen's fingernails](https://www.yahoo.com/news/idaho-police-recovered-3-person-201552518.html)
+- Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
 <!-- feed end -->
 
 ### Onstream
