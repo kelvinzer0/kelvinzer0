@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [Gazan woman turns aid cartons into colorful Ramadan lanterns](https://www.yahoo.com/news/gazan-woman-turns-aid-cartons-124524657.html)
+- Mar 06 - [Mortgage and refinance rates today, March 6, 2025: Rates increase amid economic uncertainty](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-march-6-2025-110018701.html)
 - Mar 06 - [Experts sound alarm over insects laying massive amounts of eggs: 'It's very concerning'](https://www.yahoo.com/news/experts-sound-alarm-over-insects-103024463.html)
-- Mar 06 - [Hamas brushes off Trump's threat and says it will only free hostages in return for a lasting truce](https://www.yahoo.com/news/hamas-brushes-off-trumps-threat-094244815.html)
-- Mar 06 - [An air force bombing drill with South Korean F-16s just ended in disaster](https://www.yahoo.com/news/air-force-bombing-drill-south-083607053.html)
-- Mar 06 - [Three men rented a car on Turo to get to a baby shower. Then the police arrived](https://www.yahoo.com/news/three-men-rented-car-turo-010446691.html)
-- Mar 05 - [Pathologist Lists 3 Possible Causes of Death for Gene Hackman and Wife Betsy](https://www.yahoo.com/news/pathologist-lists-3-possible-causes-222835678.html)
+- Mar 06 - [First-of-its-kind train could revolutionize travel for millions: 'A large amount of energy'](https://www.yahoo.com/tech/first-kind-train-could-revolutionize-103001849.html)
+- Mar 06 - [Two men found unresponsive on Kailua Beach](https://www.yahoo.com/news/two-men-found-unresponsive-kailua-003726866.html)
 <!-- feed end -->
 
 ### Onstream
