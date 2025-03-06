@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Opinion - Trump may have already planted the seeds of his political collapse](https://www.yahoo.com/news/opinion-trump-may-already-planted-133000888.html)
-- Mar 06 - [Texas couple makes $161,000 per year, but is drowning in $90,000 credit card debt, spent $20,000 on California vacation](https://finance.yahoo.com/news/texas-couple-makes-161-000-132200526.html)
-- Mar 06 - [A 17-year-old with a gun boarded a flight and was overpowered by passengers and crew, police say](https://www.yahoo.com/news/17-old-gun-boarded-flight-124158321.html)
-- Mar 06 - [Turkey ready to send troops to Ukraine if necessary, source says](https://www.yahoo.com/news/turkey-ready-send-troops-ukraine-113213319.html)
-- Mar 06 - [Creature that can 'punch [its] way through aquarium glass' found inhabiting new waters: 'It's not something to celebrate'](https://www.yahoo.com/news/creature-punch-way-aquarium-glass-110050442.html)
+- Mar 06 - [Longtime Henrietta strip club gets OK for addition](https://www.yahoo.com/news/longtime-henrietta-strip-club-gets-163433235.html)
+- Mar 06 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
+- Mar 06 - [Dad Of Cancer Survivor Celebrated By Trump Tells Rachel Maddow To 'Shut Her Mouth'](https://www.yahoo.com/news/dad-cancer-survivor-celebrated-trump-154856749.html)
+- Mar 06 - [Russia files lawsuit against US-based owner of seized canned food maker](https://www.yahoo.com/news/russia-files-lawsuit-against-us-143944320.html)
+- Mar 06 - [Driver, students injured after Mars elementary school bus crashes into tree in Butler County](https://www.yahoo.com/news/driver-students-injured-school-bus-135946582.html)
 <!-- feed end -->
 
 ### Onstream
