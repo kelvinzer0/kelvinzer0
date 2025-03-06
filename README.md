@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
+- Mar 06 - [Schools are closed and public transport has stopped as rare cyclone approaches Australian coast](https://www.yahoo.com/news/schools-closed-public-transport-stopped-035141940.html)
+- Mar 06 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
+- Mar 05 - [Idaho police recovered a 3-person mixture of DNA under Maddie Mogen's fingernails](https://www.yahoo.com/news/idaho-police-recovered-3-person-201552518.html)
 - Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
 - Mar 05 - [Volkswagen's cheapest EV ever is the first to use Rivian software](https://finance.yahoo.com/news/volkswagens-cheapest-ev-ever-first-193344434.html)
-- Mar 05 - [Man treated 'like a dog' before murder in upstate New York, prosecutor says](https://www.yahoo.com/news/man-treated-dog-murder-upstate-191523562.html)
-- Mar 05 - [Elon Musk’s DOGE slapped a $1 limit on government credit cards and now workers say they can’t do their jobs](https://www.yahoo.com/news/elon-musk-doge-slapped-1-191228515.html)
 <!-- feed end -->
 
 ### Onstream
