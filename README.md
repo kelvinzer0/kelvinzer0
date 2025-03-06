@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [A toddler died after allegedly being denied food for two days. Mom blamed it on ‘a migraine,’ cops say](https://www.yahoo.com/news/toddler-died-allegedly-being-denied-214919207.html)
-- Mar 05 - [Macron says he'll confer with allies on protecting Europe with French nuclear deterrence](https://www.yahoo.com/news/macron-says-hell-confer-allies-214850610.html)
-- Mar 05 - [Two men charged in connection to deaths of 3 Chiefs fans in Northland backyard](https://www.yahoo.com/news/two-men-charged-connection-deaths-204604134.html)
+- Mar 06 - [Abdul Aziz Khan, Who Disappeared from Georgia 7 Years Ago at Age 7, Found in Colorado — Why His Mother Now Faces Charges](https://www.yahoo.com/entertainment/abdul-aziz-khan-disappeared-georgia-003855625.html)
+- Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
+- Mar 05 - [‘Found in deplorable conditions’: Police in Wisconsin respond to check on seven children reportedly left alone for a week](https://www.yahoo.com/news/found-deplorable-conditions-police-wisconsin-223238492.html)
+- Mar 05 - [Police believe 2 dead following fiery North Las Vegas crash](https://www.yahoo.com/news/police-believe-2-dead-following-204319789.html)
 - Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
-- Mar 05 - [What's driving the drop in crude oil prices?](https://finance.yahoo.com/video/whats-driving-drop-crude-oil-183000413.html)
 <!-- feed end -->
 
 ### Onstream
