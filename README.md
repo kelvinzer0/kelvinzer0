@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Ex-Army recruiter flees state with 17-year-old girlfriend after estranged wife's murder](https://www.yahoo.com/news/ex-army-recruiter-flees-state-142426984.html)
+- Mar 06 - [Opinion - Trump may have already planted the seeds of his political collapse](https://www.yahoo.com/news/opinion-trump-may-already-planted-133000888.html)
 - Mar 06 - [Texas couple makes $161,000 per year, but is drowning in $90,000 credit card debt, spent $20,000 on California vacation](https://finance.yahoo.com/news/texas-couple-makes-161-000-132200526.html)
 - Mar 06 - [A 17-year-old with a gun boarded a flight and was overpowered by passengers and crew, police say](https://www.yahoo.com/news/17-old-gun-boarded-flight-124158321.html)
-- Mar 06 - [8 Rare Coins Worth Thousands That Are Highly Coveted by Coin Collectors](https://finance.yahoo.com/news/8-rare-coins-worth-thousands-110125018.html)
-- Mar 06 - [6 Things You Should Not Do Before 9 A.M. If You're Trying to Lose Weight, According to Dietitians](https://www.yahoo.com/lifestyle/6-things-not-9-m-120000881.html)
+- Mar 06 - [Turkey ready to send troops to Ukraine if necessary, source says](https://www.yahoo.com/news/turkey-ready-send-troops-ukraine-113213319.html)
+- Mar 06 - [Creature that can 'punch [its] way through aquarium glass' found inhabiting new waters: 'It's not something to celebrate'](https://www.yahoo.com/news/creature-punch-way-aquarium-glass-110050442.html)
 <!-- feed end -->
 
 ### Onstream
