@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Bodybuilder Jodi Vance dies at age 20](https://www.yahoo.com/news/bodybuilder-jodi-vance-dies-age-043031432.html)
-- Mar 06 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
 - Mar 06 - [Three men rented a car on Turo to get to a baby shower. Then the police arrived](https://www.yahoo.com/news/three-men-rented-car-turo-010446691.html)
-- Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
-- Mar 05 - [Volkswagen's cheapest EV ever is the first to use Rivian software](https://finance.yahoo.com/news/volkswagens-cheapest-ev-ever-first-193344434.html)
+- Mar 06 - [Two men found unresponsive on Kailua Beach](https://www.yahoo.com/news/two-men-found-unresponsive-kailua-003726866.html)
+- Mar 06 - [Boeing needs to change its insular culture, CEO says in company-wide meeting](https://finance.yahoo.com/news/boeing-needs-change-insular-culture-000923506.html)
+- Mar 05 - [Two charged in Kansas City Chiefs fans' deaths 14 months after bodies found frozen in backyard](https://www.yahoo.com/news/two-charged-kansas-city-chiefs-232626679.html)
+- Mar 05 - [Rep. Al Green faces censure after he was removed from House for disrupting Trump's Congressional address](https://www.yahoo.com/news/rep-al-green-faces-censure-after-he-was-removed-from-house-for-disrupting-trumps-congressional-address-202813903.html)
 <!-- feed end -->
 
 ### Onstream
