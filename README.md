@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Abdul Aziz Khan, Who Disappeared from Georgia 7 Years Ago at Age 7, Found in Colorado — Why His Mother Now Faces Charges](https://www.yahoo.com/entertainment/abdul-aziz-khan-disappeared-georgia-003855625.html)
 - Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
-- Mar 05 - [‘Found in deplorable conditions’: Police in Wisconsin respond to check on seven children reportedly left alone for a week](https://www.yahoo.com/news/found-deplorable-conditions-police-wisconsin-223238492.html)
+- Mar 06 - [Arizona lawmaker who announced plans in a floor speech last year to get an abortion is resigning](https://www.yahoo.com/news/arizona-lawmaker-announced-plans-floor-000254791.html)
 - Mar 05 - [Police believe 2 dead following fiery North Las Vegas crash](https://www.yahoo.com/news/police-believe-2-dead-following-204319789.html)
 - Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
+- Mar 05 - [Elon Musk’s DOGE slapped a $1 limit on government credit cards and now workers say they can’t do their jobs](https://www.yahoo.com/news/elon-musk-doge-slapped-1-191228515.html)
 <!-- feed end -->
 
 ### Onstream
