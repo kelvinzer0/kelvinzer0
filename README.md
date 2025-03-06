@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Starmer celebrates relationship with Ireland at first summit](https://www.yahoo.com/news/starmer-celebrates-relationship-ireland-first-075720124.html)
+- Mar 06 - ["Our useless council blew £16m on a bridge to nowhere"](https://www.yahoo.com/news/useless-council-blew-16m-bridge-084627275.html)
 - Mar 06 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
 - Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
-- Mar 05 - [Two charged in Kansas City Chiefs fans' deaths 14 months after bodies found frozen in backyard](https://www.yahoo.com/news/two-charged-kansas-city-chiefs-232626679.html)
-- Mar 05 - [The controversy behind California’s swastika-shaped building complex](https://www.yahoo.com/news/controversy-behind-california-swastika-shaped-232444552.html)
+- Mar 06 - [Boeing needs to change its insular culture, CEO says in company-wide meeting](https://finance.yahoo.com/news/boeing-needs-change-insular-culture-000923506.html)
+- Mar 05 - [Pathologist Lists 3 Possible Causes of Death for Gene Hackman and Wife Betsy](https://www.yahoo.com/news/pathologist-lists-3-possible-causes-222835678.html)
 <!-- feed end -->
 
 ### Onstream
