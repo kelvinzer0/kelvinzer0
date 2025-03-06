@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Medical jet’s voice recorder likely wasn’t working for years before Philadelphia crash](https://www.yahoo.com/news/medical-jet-voice-recorder-likely-194122743.html)
-- Mar 06 - [Private lunar lander touches down on the moon, but its status is unknown](https://www.yahoo.com/news/private-lunar-lander-touches-down-181132511.html)
-- Mar 06 - [Blake Lively and Justin Baldoni in court: Live updates as actress seeks stronger protective order against her 'It Ends With Us' co-star](https://www.yahoo.com/entertainment/live/blake-lively-and-justin-baldoni-in-court-live-updates-as-actress-seeks-stronger-protective-order-against-her-it-ends-with-us-co-star-161113962.html)
-- Mar 06 - [First Loch Ness monster sighting in 2025 reported. Could mystery finally be solved?](https://www.yahoo.com/news/first-loch-ness-monster-sighting-170109279.html)
-- Mar 06 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
+- Mar 06 - [Ohio Mom Discovers Cancer Deep in Her Thumb — and the Only Sign Was 2 Thin Lines on Her Nail](https://www.yahoo.com/lifestyle/ohio-mom-discovers-cancer-deep-203710212.html)
+- Mar 06 - [The Pandemic Started 5 Years Ago — Here Are 36 Things That Happened Back Then That Will Make You Question Reality](https://www.yahoo.com/entertainment/pandemic-started-5-years-ago-201837283.html)
+- Mar 06 - [Pilot error likely caused a small plane crash in Tennessee that killed a Canadian family, NTSB says](https://www.yahoo.com/news/pilot-error-likely-caused-small-201234110.html)
+- Mar 06 - [Foldable iPhone Rumors Tip 2026 Launch, $2,000+ Price Tag](https://www.yahoo.com/tech/foldable-iphone-rumors-tip-2026-194539682.html)
+- Mar 06 - [Trump puts new limits on Elon Musk](https://www.yahoo.com/news/trump-cabinet-musk-no-authority-185514425.html)
 <!-- feed end -->
 
 ### Onstream
