@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Schools are closed and public transport has stopped as rare cyclone approaches Australian coast](https://www.yahoo.com/news/schools-closed-public-transport-stopped-035141940.html)
+- Mar 06 - [Bodybuilder Jodi Vance dies at age 20](https://www.yahoo.com/news/bodybuilder-jodi-vance-dies-age-043031432.html)
 - Mar 06 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
-- Mar 05 - [Idaho police recovered a 3-person mixture of DNA under Maddie Mogen's fingernails](https://www.yahoo.com/news/idaho-police-recovered-3-person-201552518.html)
+- Mar 06 - [Three men rented a car on Turo to get to a baby shower. Then the police arrived](https://www.yahoo.com/news/three-men-rented-car-turo-010446691.html)
 - Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
 - Mar 05 - [Volkswagen's cheapest EV ever is the first to use Rivian software](https://finance.yahoo.com/news/volkswagens-cheapest-ev-ever-first-193344434.html)
 <!-- feed end -->
