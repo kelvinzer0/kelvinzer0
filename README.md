@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 06 - [A 40-day Target boycott starts today. It couldn’t come at a worse time for the company](https://finance.yahoo.com/news/40-day-target-boycott-starts-103052115.html)
+- Mar 06 - [Two men found unresponsive on Kailua Beach](https://www.yahoo.com/news/two-men-found-unresponsive-kailua-003726866.html)
 - Mar 06 - [Charges filed in deaths of 3 Kansas City Chiefs fans whose bodies were found in friend's backyard](https://www.yahoo.com/news/charges-filed-deaths-3-kansas-003158487.html)
 - Mar 06 - [Boeing needs to change its insular culture, CEO says in company-wide meeting](https://finance.yahoo.com/news/boeing-needs-change-insular-culture-000923506.html)
-- Mar 05 - [Border Patrol identifies strange object that fell from sky in North Texas](https://www.yahoo.com/news/border-patrol-identifies-strange-object-204934080.html)
-- Mar 05 - [Aerospace company Firefly released fantastic POV footage of Blue Ghost landing on the Moon](https://www.yahoo.com/tech/aerospace-company-firefly-released-fantastic-pov-footage-of-blue-ghost-landing-on-the-moon-195821368.html)
+- Mar 05 - [The controversy behind California’s swastika-shaped building complex](https://www.yahoo.com/news/controversy-behind-california-swastika-shaped-232444552.html)
 <!-- feed end -->
 
 ### Onstream
