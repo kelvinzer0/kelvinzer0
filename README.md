@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Great wealth transfer: Women expected to control $30T by 2030](https://finance.yahoo.com/video/great-wealth-transfer-women-expected-202446560.html)
+- Mar 07 - [Trump administration plans new travel ban. Here's who could be affected.](https://www.yahoo.com/news/trump-administration-plans-travel-ban-200753576.html)
+- Mar 07 - [Judge denies Georgia state senator's request for criminal charges against state House staffer](https://www.yahoo.com/news/judge-denies-georgia-state-senators-192900610.html)
 - Mar 07 - [Scientists date remains of an ancient child that resembles both humans and Neanderthals](https://www.yahoo.com/news/scientists-date-remains-ancient-child-190013797.html)
-- Mar 07 - [Is volatility more about uncertainty than a 'growth scare?'](https://finance.yahoo.com/video/volatility-more-uncertainty-growth-scare-190000200.html)
 - Mar 07 - [Pilot arrested at Logan Airport dies in parking garage at MBTA station, state police say](https://www.yahoo.com/news/pilot-previously-arrested-logan-airport-152157117.html)
-- Mar 07 - [My partner works at JP Morgan and is being forced back into the office. I'm terrified of what this means for our relationship.](https://www.yahoo.com/lifestyle/partner-works-jp-morgan-being-182318087.html)
-- Mar 07 - [US military's mini space shuttle returns to Earth after orbiting for 434 days on a secret mission](https://www.yahoo.com/news/us-militarys-mini-space-shuttle-173640071.html)
 <!-- feed end -->
 
 ### Onstream
