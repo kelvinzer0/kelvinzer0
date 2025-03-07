@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Hunter Biden Claims He’s Been Left Homeless After $4 Million Malibu Rental Home Was Made ‘Unlivable’ by California Wildfires](https://www.yahoo.com/lifestyle/hunter-biden-claims-left-homeless-161551236.html)
 - Mar 07 - [Man believed to be pilot arrested at Logan Airport dies in parking garage at MBTA station](https://www.yahoo.com/news/pilot-previously-arrested-logan-airport-152157117.html)
-- Mar 07 - [Why the tech sell-off is a 'buying opportunity' for new investors](https://finance.yahoo.com/video/why-tech-sell-off-buying-155309562.html)
+- Mar 07 - [Watch: Black belt shopper in heels karate kicks armed robber](https://www.yahoo.com/news/watch-black-belt-shopper-heels-150328710.html)
 - Mar 07 - [Tears, ruined plans as WWII bomb halts Paris-London trains](https://www.yahoo.com/news/tears-ruined-plans-wwii-bomb-154514094.html)
-- Mar 07 - [Private lunar lander is declared dead after landing sideways in a crater near the moon's south pole](https://www.yahoo.com/news/private-lunar-lander-declared-dead-150910269.html)
-- Mar 07 - [Trump Asked For Cherished Piece Of History To Be Moved To Oval Office: Report](https://www.yahoo.com/news/trump-asked-cherished-piece-history-141552707.html)
+- Mar 07 - [Kennedy and influencers bash seed oils, baffling nutrition scientists](https://www.yahoo.com/news/kennedy-influencers-bash-seed-oils-142854745.html)
 <!-- feed end -->
 
 ### Onstream
