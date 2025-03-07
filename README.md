@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Thousands of children to be given supervised toothbrushing](https://www.yahoo.com/news/thousands-children-given-supervised-toothbrushing-111824297.html)
+- Mar 07 - [Winter storm to dump more snow across US on Friday; warnings abound](https://www.yahoo.com/news/winter-storm-dump-more-snow-125649070.html)
+- Mar 07 - [Timebomb fuses detonating explosions on oil tankers 'days or weeks' after they leave Russian ports](https://www.yahoo.com/news/timebomb-fuses-detonating-explosions-oil-124615074.html)
+- Mar 07 - [Animal control officer takes swift action after driver flags her down: 'Amazing things can happen'](https://www.yahoo.com/news/animal-control-officer-takes-swift-104547504.html)
+- Mar 07 - [New study makes surprising discovery about Tesla longevity — here's what you need to know](https://www.yahoo.com/news/study-makes-surprising-discovery-tesla-101549360.html)
 - Mar 07 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
-- Mar 07 - [Pete Hegseth Banned Images of ‘Enola Gay’ WWII Plane in DEI Crackdown](https://www.yahoo.com/news/pete-hegseth-banned-images-enola-041104452.html)
-- Mar 07 - [Why was Atlantic City airport evacuated? What we know about airport emergency](https://www.yahoo.com/news/why-atlantic-city-airport-evacuated-022423053.html)
-- Mar 07 - [This Surprising Drink Could Help Reduce Heart Disease Risk, According to Dietitians](https://www.yahoo.com/lifestyle/surprising-drink-could-help-reduce-011940972.html)
 <!-- feed end -->
 
 ### Onstream
