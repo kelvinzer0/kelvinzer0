@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Trudeau reduced to tears after ‘colourful’ phone call with Trump over tariffs](https://www.yahoo.com/news/trudeau-reduced-tears-colourful-phone-115124326.html)
-- Mar 07 - [Unexploded WWII bomb discovered in Paris, causing major train disruptions](https://www.yahoo.com/news/unexploded-wwii-bomb-discovered-paris-145614424.html)
-- Mar 07 - [Putin ally says UK will have to return Russia money that London has 'illegally' gifted to Ukraine](https://www.yahoo.com/news/putin-ally-says-uk-return-142146732.html)
-- Mar 07 - [Pro-life activist prosecuted after holding ‘here to help’ sign outside abortion clinic](https://www.yahoo.com/news/pro-life-activist-prosecuted-holding-141710185.html)
+- Mar 07 - [Man believed to be pilot arrested at Logan Airport dies in parking garage at MBTA station](https://www.yahoo.com/news/pilot-previously-arrested-logan-airport-152157117.html)
+- Mar 07 - [Why the tech sell-off is a 'buying opportunity' for new investors](https://finance.yahoo.com/video/why-tech-sell-off-buying-155309562.html)
+- Mar 07 - [Tears, ruined plans as WWII bomb halts Paris-London trains](https://www.yahoo.com/news/tears-ruined-plans-wwii-bomb-154514094.html)
+- Mar 07 - [Private lunar lander is declared dead after landing sideways in a crater near the moon's south pole](https://www.yahoo.com/news/private-lunar-lander-declared-dead-150910269.html)
 - Mar 07 - [Trump Asked For Cherished Piece Of History To Be Moved To Oval Office: Report](https://www.yahoo.com/news/trump-asked-cherished-piece-history-141552707.html)
 <!-- feed end -->
 
