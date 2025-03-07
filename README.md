@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [My Lungs Are Physically Sore From Laughing So Hard At These 17 Black Twitter Tweets From The Week](https://www.yahoo.com/lifestyle/lungs-physically-sore-laughing-hard-173508186.html)
-- Mar 07 - [Man believed to be pilot arrested at Logan Airport dies in parking garage at MBTA station](https://www.yahoo.com/news/pilot-previously-arrested-logan-airport-152157117.html)
+- Mar 07 - [Pilot arrested at Logan Airport dies in parking garage at MBTA station, state police say](https://www.yahoo.com/news/pilot-previously-arrested-logan-airport-152157117.html)
+- Mar 07 - [US military's mini space shuttle returns to Earth after orbiting for 434 days on a secret mission](https://www.yahoo.com/news/us-militarys-mini-space-shuttle-173640071.html)
+- Mar 07 - [Tesla stock falls almost 50% from record high, a 'gut check moment' that has Wall Street bulls doubling down](https://finance.yahoo.com/news/tesla-stock-falls-almost-50-from-record-high-a-gut-check-moment-that-has-wall-street-bulls-doubling-down-132150025.html)
 - Mar 07 - [U.S. spaceplane deorbits after secret mission and lands in California](https://www.yahoo.com/news/u-spaceplane-deorbits-secret-mission-161734194.html)
-- Mar 07 - [Hunter Biden Claims He’s Been Left Homeless After $4 Million Malibu Rental Home Was Made ‘Unlivable’ by California Wildfires](https://www.yahoo.com/lifestyle/hunter-biden-claims-left-homeless-161551236.html)
 - Mar 07 - [Watch: Black belt shopper in heels karate kicks armed robber](https://www.yahoo.com/news/watch-black-belt-shopper-heels-150328710.html)
 <!-- feed end -->
 
