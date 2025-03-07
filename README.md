@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Houses Burn in Odesa as Russia Launches 'Massive' Attack](https://www.yahoo.com/news/houses-burn-odesa-russia-launches-141330482.html)
-- Mar 07 - [Thrust into unemployment, axed federal workers face relatives who celebrate their firing](https://www.yahoo.com/news/thrust-unemployment-axed-federal-workers-130433180.html)
-- Mar 07 - [Warren Buffett Owns $29 Billion of This Top Dividend Stock: Could It Make You a Millionaire One Day?](https://finance.yahoo.com/news/warren-buffett-owns-29-billion-130000660.html)
-- Mar 07 - [Animal control officer takes swift action after driver flags her down: 'Amazing things can happen'](https://www.yahoo.com/news/animal-control-officer-takes-swift-104547504.html)
-- Mar 07 - [Manufacturer set to announce electric vehicle that will cost less than $22,000: 'Attractive for everyone'](https://www.yahoo.com/news/manufacturer-set-announce-electric-vehicle-104537234.html)
+- Mar 07 - [Trudeau reduced to tears after ‘colourful’ phone call with Trump over tariffs](https://www.yahoo.com/news/trudeau-reduced-tears-colourful-phone-115124326.html)
+- Mar 07 - [Unexploded WWII bomb discovered in Paris, causing major train disruptions](https://www.yahoo.com/news/unexploded-wwii-bomb-discovered-paris-145614424.html)
+- Mar 07 - [Putin ally says UK will have to return Russia money that London has 'illegally' gifted to Ukraine](https://www.yahoo.com/news/putin-ally-says-uk-return-142146732.html)
+- Mar 07 - [Pro-life activist prosecuted after holding ‘here to help’ sign outside abortion clinic](https://www.yahoo.com/news/pro-life-activist-prosecuted-holding-141710185.html)
+- Mar 07 - [Trump Asked For Cherished Piece Of History To Be Moved To Oval Office: Report](https://www.yahoo.com/news/trump-asked-cherished-piece-history-141552707.html)
 <!-- feed end -->
 
 ### Onstream
