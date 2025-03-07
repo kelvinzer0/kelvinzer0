@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Kennedy touts unconventional therapies for measles linked to disciplined Texas doctor](https://www.yahoo.com/news/kennedy-touts-unconventional-therapies-measles-234556202.html)
-- Mar 07 - [Gusty winds force plane to abort landing at Reagan National in Washington](https://www.yahoo.com/news/gusty-winds-force-plane-abort-025235741.html)
 - Mar 07 - [Why was Atlantic City airport evacuated? What we know about airport emergency](https://www.yahoo.com/news/why-atlantic-city-airport-evacuated-022423053.html)
+- Mar 06 - [Board of GJ Regional addresses city and county leaders on state of airport](https://www.yahoo.com/news/board-gj-regional-addresses-city-235017616.html)
+- Mar 06 - [Residents face massive dilemma as city considers 'controversial' plan to abandon homes: 'There are big and challenging discussions ahead'](https://www.yahoo.com/news/residents-face-massive-dilemma-city-234500346.html)
 - Mar 06 - [SpaceX's Starship explodes in space, again raining debris over Caribbean](https://finance.yahoo.com/news/spacex-launches-eighth-starship-test-233739207.html)
 - Mar 06 - [SpaceX's latest Starship test flight ends with another explosion](https://www.yahoo.com/news/spacex-launches-starship-mega-rocket-233131854.html)
 <!-- feed end -->
