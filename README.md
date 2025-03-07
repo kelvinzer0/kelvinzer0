@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Canadian snowboarding star and ex-Olympian added to FBI’s 10 most wanted](https://www.yahoo.com/news/canadian-snowboarding-star-ex-olympian-100446124.html)
-- Mar 07 - [Social Security Is Changing Under President Donald Trump. Here's What Retirees Need to Know.](https://finance.yahoo.com/news/social-security-changing-under-president-085500811.html)
+- Mar 07 - [Thousands of children to be given supervised toothbrushing](https://www.yahoo.com/news/thousands-children-given-supervised-toothbrushing-111824297.html)
 - Mar 07 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
-- Mar 07 - [Kennedy touts unconventional therapies for measles linked to disciplined Texas doctor](https://www.yahoo.com/news/kennedy-touts-unconventional-therapies-measles-234556202.html)
+- Mar 07 - [Pete Hegseth Banned Images of ‘Enola Gay’ WWII Plane in DEI Crackdown](https://www.yahoo.com/news/pete-hegseth-banned-images-enola-041104452.html)
 - Mar 07 - [Why was Atlantic City airport evacuated? What we know about airport emergency](https://www.yahoo.com/news/why-atlantic-city-airport-evacuated-022423053.html)
+- Mar 07 - [This Surprising Drink Could Help Reduce Heart Disease Risk, According to Dietitians](https://www.yahoo.com/lifestyle/surprising-drink-could-help-reduce-011940972.html)
 <!-- feed end -->
 
 ### Onstream
