@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [New Mexico adult dies with measles, though cause of death isn't yet confirmed](https://www.yahoo.com/news/mexico-adult-dies-measles-though-223603592.html)
-- Mar 06 - [New details about Idaho student killings suspect Bryan Kohberger revealed in unsealed court filing](https://www.yahoo.com/news/details-idaho-student-killings-suspect-165156054.html)
+- Mar 06 - [SpaceX's latest Starship test flight ends with another explosion](https://www.yahoo.com/news/spacex-launches-starship-mega-rocket-233131854.html)
+- Mar 06 - [Well, It Looks Like We Know What Donald Trump Will Do About Daylight Saving Time Now](https://www.yahoo.com/news/heres-donald-trump-said-ending-232255348.html)
+- Mar 06 - [Former Oklahoma City ‘First Lady’ dies of cancer](https://www.yahoo.com/news/former-oklahoma-city-first-lady-214412403.html)
 - Mar 06 - [‘A world without American leadership’: Top allies scaling back intelligence sharing with America](https://www.yahoo.com/news/world-without-american-leadership-top-212758760.html)
 - Mar 06 - [Ice fisherman who went missing during blizzard warning found dead at Minnesota lake](https://www.yahoo.com/news/ice-fisherman-went-missing-during-210728151.html)
-- Mar 06 - [Rick Scott Reveals Republicans Are Absolutely Cutting Medicare](https://www.yahoo.com/news/rick-scott-reveals-republicans-absolutely-203313232.html)
 <!-- feed end -->
 
 ### Onstream
