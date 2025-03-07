@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [‘We Will Not Give Up What Is Ours’: Putin Reaffirms Russian Territorial Claims](https://www.yahoo.com/news/not-ours-putin-reaffirms-russian-085133269.html)
+- Mar 07 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
+- Mar 07 - [Plane passenger goes viral after pilot left flirtatious note on her table](https://www.yahoo.com/lifestyle/plane-passenger-goes-viral-pilot-162128723.html)
 - Mar 07 - [Kennedy touts unconventional therapies for measles linked to disciplined Texas doctor](https://www.yahoo.com/news/kennedy-touts-unconventional-therapies-measles-234556202.html)
 - Mar 07 - [Why was Atlantic City airport evacuated? What we know about airport emergency](https://www.yahoo.com/news/why-atlantic-city-airport-evacuated-022423053.html)
-- Mar 07 - [Losing! Trump cuts and runs in self-inflicted ‘trade war’ as markets call the shots](https://www.yahoo.com/news/losing-trump-cuts-runs-self-003324914.html)
-- Mar 07 - [I love my new Ozempic body and I’d take the shots all over again — but there’s one unsettling downside](https://www.yahoo.com/lifestyle/love-ozempic-body-d-shots-000437869.html)
-- Mar 06 - [SpaceX's Starship explodes in space, again raining debris over Caribbean](https://finance.yahoo.com/news/spacex-launches-eighth-starship-test-233739207.html)
 <!-- feed end -->
 
 ### Onstream
