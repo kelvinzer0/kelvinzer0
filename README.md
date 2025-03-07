@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Great wealth transfer: Women expected to control $30T by 2030](https://finance.yahoo.com/video/great-wealth-transfer-women-expected-202446560.html)
+- Mar 07 - [Gene Hackman and Wife Betsy’s Cause of Death Revealed](https://www.yahoo.com/news/gene-hackman-wife-betsy-cause-212235498.html)
+- Mar 07 - [Utah senator announces he’s leaving the Republican party, joining Utah Forward Party](https://www.yahoo.com/news/utah-senator-announces-leaving-republican-205735063.html)
+- Mar 07 - [Commentary: After Maine's governor publicly challenged him, Trump threw the state's Social Security into chaos](https://www.yahoo.com/news/commentary-maines-governor-publicly-challenged-203021640.html)
 - Mar 07 - [Trump administration plans new travel ban. Here's who could be affected.](https://www.yahoo.com/news/trump-administration-plans-travel-ban-200753576.html)
-- Mar 07 - [Judge denies Georgia state senator's request for criminal charges against state House staffer](https://www.yahoo.com/news/judge-denies-georgia-state-senators-192900610.html)
-- Mar 07 - [Scientists date remains of an ancient child that resembles both humans and Neanderthals](https://www.yahoo.com/news/scientists-date-remains-ancient-child-190013797.html)
-- Mar 07 - [Pilot arrested at Logan Airport dies in parking garage at MBTA station, state police say](https://www.yahoo.com/news/pilot-previously-arrested-logan-airport-152157117.html)
+- Mar 07 - [Marco Rubio Finally Loses It at Elon Musk in Trump Cabinet Meeting](https://www.yahoo.com/news/marco-rubio-finally-loses-elon-193953512.html)
 <!-- feed end -->
 
 ### Onstream
