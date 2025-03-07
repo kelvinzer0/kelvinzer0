@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [‘We Will Not Give Up What Is Ours’: Putin Reaffirms Russian Territorial Claims](https://www.yahoo.com/news/not-ours-putin-reaffirms-russian-085133269.html)
-- Mar 07 - [Toyota launches its cheapest smart EV in China, aims to up market share](https://autos.yahoo.com/toyota-launches-cheapest-smart-ev-071717266.html)
+- Mar 07 - [Canadian snowboarding star and ex-Olympian added to FBI’s 10 most wanted](https://www.yahoo.com/news/canadian-snowboarding-star-ex-olympian-100446124.html)
+- Mar 07 - [Social Security Is Changing Under President Donald Trump. Here's What Retirees Need to Know.](https://finance.yahoo.com/news/social-security-changing-under-president-085500811.html)
 - Mar 07 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
 - Mar 07 - [Kennedy touts unconventional therapies for measles linked to disciplined Texas doctor](https://www.yahoo.com/news/kennedy-touts-unconventional-therapies-measles-234556202.html)
 - Mar 07 - [Why was Atlantic City airport evacuated? What we know about airport emergency](https://www.yahoo.com/news/why-atlantic-city-airport-evacuated-022423053.html)
