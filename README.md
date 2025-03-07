@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Winter storm to dump more snow across US on Friday; warnings abound](https://www.yahoo.com/news/winter-storm-dump-more-snow-125649070.html)
-- Mar 07 - [Timebomb fuses detonating explosions on oil tankers 'days or weeks' after they leave Russian ports](https://www.yahoo.com/news/timebomb-fuses-detonating-explosions-oil-124615074.html)
+- Mar 07 - [Houses Burn in Odesa as Russia Launches 'Massive' Attack](https://www.yahoo.com/news/houses-burn-odesa-russia-launches-141330482.html)
+- Mar 07 - [Thrust into unemployment, axed federal workers face relatives who celebrate their firing](https://www.yahoo.com/news/thrust-unemployment-axed-federal-workers-130433180.html)
+- Mar 07 - [Warren Buffett Owns $29 Billion of This Top Dividend Stock: Could It Make You a Millionaire One Day?](https://finance.yahoo.com/news/warren-buffett-owns-29-billion-130000660.html)
 - Mar 07 - [Animal control officer takes swift action after driver flags her down: 'Amazing things can happen'](https://www.yahoo.com/news/animal-control-officer-takes-swift-104547504.html)
-- Mar 07 - [New study makes surprising discovery about Tesla longevity — here's what you need to know](https://www.yahoo.com/news/study-makes-surprising-discovery-tesla-101549360.html)
-- Mar 07 - [Sweden is 'no longer a country that cannot be trusted'](https://www.yahoo.com/news/were-no-longer-country-cannot-000336818.html)
+- Mar 07 - [Manufacturer set to announce electric vehicle that will cost less than $22,000: 'Attractive for everyone'](https://www.yahoo.com/news/manufacturer-set-announce-electric-vehicle-104537234.html)
 <!-- feed end -->
 
 ### Onstream
