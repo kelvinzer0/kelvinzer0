@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Jim Cramer On Lowe’s Companies, Inc. (LOW): “Marvin Ellison’s Excellent Quarter – It’s Not as Bad as Feared”](https://finance.yahoo.com/news/jim-cramer-lowe-companies-inc-133021809.html)
-- Mar 08 - [Eating This Fruit Daily Can Improve Insulin Resistance in Just 4 Weeks](https://www.yahoo.com/lifestyle/eating-fruit-daily-improve-insulin-110000093.html)
+- Mar 08 - [Charles Barkley says Michael Jordan gave him 1 financial tip that made him millions, and you can use it to get rich, too](https://finance.yahoo.com/news/charles-barkley-says-michael-jordan-123000912.html)
+- Mar 08 - [Jerome Powell says the ‘net effect’ of the Trump administration’s policies on trade, immigration, fiscal policy, and regulation will determine interest rates in the future](https://finance.yahoo.com/news/jerome-powell-says-net-effect-110000112.html)
 - Mar 08 - [Experts sound alarm over 'ticking time bomb' that could rip through Texas: 'We're sitting here waiting for [it] to explode'](https://www.yahoo.com/news/experts-sound-alarm-over-ticking-103033175.html)
-- Mar 08 - [Wordle hints today for #1,358: Clues and answer for Saturday, March 8](https://www.yahoo.com/tech/wordle-hints-today-for-1358-clues-and-answer-for-saturday-march-8-050106338.html)
 - Mar 08 - [JonBenét Ramsey murder suspect resurfaces| Banfield](https://www.yahoo.com/news/jonben-t-ramsey-murder-suspect-041134513.html)
+- Mar 08 - [China imposes retaliatory tariffs on Canadian farm and food products](https://www.yahoo.com/news/china-imposes-retaliatory-tariffs-canadian-031712784.html)
 <!-- feed end -->
 
 ### Onstream
