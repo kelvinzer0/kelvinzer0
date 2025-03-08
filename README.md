@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Video of Indianapolis ICE arrest captures agents dragging men out of their vehicle](https://www.yahoo.com/news/video-indianapolis-ice-arrest-captures-004623362.html)
 - Mar 07 - [Firing squad executes Brad Keith Sigmon in South Carolina in 'bloody spectacle'](https://www.yahoo.com/news/firing-squad-executes-brad-keith-233926208.html)
+- Mar 07 - [Fetterman: ‘Columbia pays for its failure’ with $400M in grants axed](https://www.yahoo.com/news/fetterman-columbia-pays-failure-400m-223246623.html)
 - Mar 07 - [Scientists stunned by rare sighting of creature thought to be extinct for decades: 'A remarkable discovery'](https://www.yahoo.com/news/scientists-stunned-rare-sighting-creature-223000904.html)
 - Mar 07 - [What is hantavirus, the infection that killed Gene Hackman's wife, Betsy Arakawa?](https://www.yahoo.com/news/hantavirus-infection-killed-gene-hackmans-222140076.html)
-- Mar 07 - [Gene Hackman and Wife Betsy’s Causes of Death Revealed](https://www.yahoo.com/news/gene-hackman-wife-betsy-cause-212235498.html)
+- Mar 07 - [Regent says employee tip led to internal OSU audit that showed alleged misspending](https://www.yahoo.com/news/regent-says-employee-tip-led-203144845.html)
 <!-- feed end -->
 
 ### Onstream
