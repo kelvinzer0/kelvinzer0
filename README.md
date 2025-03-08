@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [Vietnam tackles human trafficking with learning](https://www.yahoo.com/news/vietnam-tackles-human-trafficking-learning-072446813.html)
+- Mar 08 - [Violent and sudden. What a firing squad execution looked like through my eyes](https://www.yahoo.com/news/violent-sudden-firing-squad-execution-032438738.html)
 - Mar 08 - [China imposes retaliatory tariffs on Canadian farm and food products](https://www.yahoo.com/news/china-imposes-retaliatory-tariffs-canadian-031712784.html)
 - Mar 07 - [Firing squad executes Brad Keith Sigmon in South Carolina in 'bloody spectacle'](https://www.yahoo.com/news/firing-squad-executes-brad-keith-233926208.html)
 - Mar 07 - [Scientists stunned by rare sighting of creature thought to be extinct for decades: 'A remarkable discovery'](https://www.yahoo.com/news/scientists-stunned-rare-sighting-creature-223000904.html)
-- Mar 07 - [What is hantavirus, the infection that killed Gene Hackman's wife, Betsy Arakawa?](https://www.yahoo.com/news/hantavirus-infection-killed-gene-hackmans-222140076.html)
-- Mar 07 - [Utah senator announces he’s leaving the Republican party, joining Utah Forward Party](https://www.yahoo.com/news/utah-senator-announces-leaving-republican-205735063.html)
 <!-- feed end -->
 
 ### Onstream
