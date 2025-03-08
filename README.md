@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [Video of Indianapolis ICE arrest captures agents dragging men out of their vehicle](https://www.yahoo.com/news/video-indianapolis-ice-arrest-captures-004623362.html)
 - Mar 07 - [Firing squad executes Brad Keith Sigmon in South Carolina in 'bloody spectacle'](https://www.yahoo.com/news/firing-squad-executes-brad-keith-233926208.html)
-- Mar 07 - [A South Carolina man executed by firing squad is the first US prisoner killed this way in 15 years](https://www.yahoo.com/news/south-carolina-man-executed-firing-232140531.html)
+- Mar 07 - [Scientists stunned by rare sighting of creature thought to be extinct for decades: 'A remarkable discovery'](https://www.yahoo.com/news/scientists-stunned-rare-sighting-creature-223000904.html)
 - Mar 07 - [What is hantavirus, the infection that killed Gene Hackman's wife, Betsy Arakawa?](https://www.yahoo.com/news/hantavirus-infection-killed-gene-hackmans-222140076.html)
-- Mar 07 - [Utah senator announces he’s leaving the Republican party, joining Utah Forward Party](https://www.yahoo.com/news/utah-senator-announces-leaving-republican-205735063.html)
-- Mar 07 - [Trump administration plans new travel ban. Here's who could be affected.](https://www.yahoo.com/news/trump-administration-plans-travel-ban-200753576.html)
+- Mar 07 - [Gene Hackman and Wife Betsy’s Causes of Death Revealed](https://www.yahoo.com/news/gene-hackman-wife-betsy-cause-212235498.html)
 <!-- feed end -->
 
 ### Onstream
