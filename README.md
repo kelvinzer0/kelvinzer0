@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Is Adobe Inc. (ADBE) the Most Undervalued High Quality Stock to Buy According to Analysts?](https://finance.yahoo.com/news/adobe-inc-adbe-most-undervalued-185851806.html)
-- Mar 08 - [JD Vance heard on hot mic discussing lengthy Trump speech: 'I don’t know how you do this'](https://www.yahoo.com/news/jd-vance-heard-hot-mic-181342630.html)
-- Mar 08 - [At 60 We Have $1.3 Million in 401(k)s and Will Receive $5,100 Monthly From Social Security. What's Our Retirement Budget?](https://finance.yahoo.com/news/were-60-1-3-million-100000664.html)
+- Mar 08 - [Spelman student charged in wrong-way DUI crash that shut down I-75/I-85](https://www.yahoo.com/news/spelman-student-charged-wrong-way-184216779.html)
+- Mar 08 - [Disney Ride Passengers ‘Dumbfounded’ After Man Jumps from Log to Wander with His Son, Causing ‘40 Minute’ Delay](https://www.yahoo.com/entertainment/disney-ride-passengers-dumbfounded-man-140639427.html)
 - Mar 08 - [In-N-Out’s billionaire heiress says she stood in line for 2 hours to land a job at her own store when she was just a teenager to shake the ‘stigma of being the owner’s kid’ and ‘earn respect’](https://finance.yahoo.com/news/n-billionaire-heiress-says-she-140000973.html)
 - Mar 08 - [Curiosity Cracked Open a Rock on Mars And Discovered a Big Surprise](https://www.yahoo.com/news/curiosity-cracked-open-rock-mars-134912150.html)
+- Mar 08 - [Russia's arms exports are going bust as foreign buyers bolt and the Ukraine war chews through its weapons](https://www.yahoo.com/news/russias-arms-exports-going-bust-130801769.html)
 <!-- feed end -->
 
 ### Onstream
