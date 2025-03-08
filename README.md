@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Electric vehicle model smashes massive milestone: 'Who would have thought?'](https://www.yahoo.com/news/electric-vehicle-model-smashes-massive-101511836.html)
+- Mar 08 - [Jim Cramer On Lowe’s Companies, Inc. (LOW): “Marvin Ellison’s Excellent Quarter – It’s Not as Bad as Feared”](https://finance.yahoo.com/news/jim-cramer-lowe-companies-inc-133021809.html)
+- Mar 08 - [Eating This Fruit Daily Can Improve Insulin Resistance in Just 4 Weeks](https://www.yahoo.com/lifestyle/eating-fruit-daily-improve-insulin-110000093.html)
+- Mar 08 - [Experts sound alarm over 'ticking time bomb' that could rip through Texas: 'We're sitting here waiting for [it] to explode'](https://www.yahoo.com/news/experts-sound-alarm-over-ticking-103033175.html)
+- Mar 08 - [Wordle hints today for #1,358: Clues and answer for Saturday, March 8](https://www.yahoo.com/tech/wordle-hints-today-for-1358-clues-and-answer-for-saturday-march-8-050106338.html)
 - Mar 08 - [JonBenét Ramsey murder suspect resurfaces| Banfield](https://www.yahoo.com/news/jonben-t-ramsey-murder-suspect-041134513.html)
-- Mar 08 - [China imposes retaliatory tariffs on Canadian farm and food products](https://www.yahoo.com/news/china-imposes-retaliatory-tariffs-canadian-031712784.html)
-- Mar 07 - [Scientists stunned by rare sighting of creature thought to be extinct for decades: 'A remarkable discovery'](https://www.yahoo.com/news/scientists-stunned-rare-sighting-creature-223000904.html)
-- Mar 07 - [What is hantavirus, the infection that killed Gene Hackman's wife, Betsy Arakawa?](https://www.yahoo.com/news/hantavirus-infection-killed-gene-hackmans-222140076.html)
 <!-- feed end -->
 
 ### Onstream
