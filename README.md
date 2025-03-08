@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Titanosaurs were the biggest land animals Earth’s ever seen − these plant-powered dinos combined reptile and mammal traits](https://www.yahoo.com/news/titanosaurs-were-biggest-land-animals-213541626.html)
+- Mar 08 - [It's Official: Scientists Have Confirmed What's Inside Our Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-223015889.html)
 - Mar 08 - [Spelman student charged in wrong-way DUI crash that shut down I-75/I-85](https://www.yahoo.com/news/spelman-student-charged-wrong-way-184216779.html)
+- Mar 08 - [Disney Ride Passengers ‘Dumbfounded’ After Man Jumps from Log to Wander with His Son, Causing ‘40 Minute’ Delay](https://www.yahoo.com/entertainment/disney-ride-passengers-dumbfounded-man-140639427.html)
 - Mar 08 - [In-N-Out’s billionaire heiress says she stood in line for 2 hours to land a job at her own store when she was just a teenager to shake the ‘stigma of being the owner’s kid’ and ‘earn respect’](https://finance.yahoo.com/news/n-billionaire-heiress-says-she-140000973.html)
-- Mar 08 - [I’m 65, have $120K, get $1,700 in Social Security a month with $3,900 monthly expenses. I want to know if I can get by](https://finance.yahoo.com/news/m-65-120k-1-700-130000573.html)
-- Mar 08 - [Jerome Powell says the ‘net effect’ of the Trump administration’s policies on trade, immigration, fiscal policy, and regulation will determine interest rates in the future](https://finance.yahoo.com/news/jerome-powell-says-net-effect-110000112.html)
+- Mar 08 - [Russia's arms exports are going bust as foreign buyers bolt and the Ukraine war chews through its weapons](https://www.yahoo.com/news/russias-arms-exports-going-bust-130801769.html)
 <!-- feed end -->
 
 ### Onstream
