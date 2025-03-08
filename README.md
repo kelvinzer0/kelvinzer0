@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Chiefs receiver Xavier Worthy is arrested in Texas on a family violence assault charge](https://sports.yahoo.com/article/chiefs-receiver-xavier-worthy-arrested-154638171.html)
-- Mar 08 - [Disney Ride Passengers ‘Dumbfounded’ After Man Jumps from Log to Wander with His Son, Causing ‘40 Minute’ Delay](https://www.yahoo.com/entertainment/disney-ride-passengers-dumbfounded-man-140639427.html)
-- Mar 08 - [Charles Barkley says Michael Jordan gave him 1 financial tip that made him millions, and you can use it to get rich, too](https://finance.yahoo.com/news/charles-barkley-says-michael-jordan-123000912.html)
-- Mar 08 - [Eating This Fruit Daily Can Improve Insulin Resistance in Just 4 Weeks](https://www.yahoo.com/lifestyle/eating-fruit-daily-improve-insulin-110000093.html)
-- Mar 08 - [Experts sound alarm over 'ticking time bomb' that could rip through Texas: 'We're sitting here waiting for [it] to explode'](https://www.yahoo.com/news/experts-sound-alarm-over-ticking-103033175.html)
+- Mar 08 - [At 60 We Have $1.3 Million in 401(k)s and Will Receive $5,100 Monthly From Social Security. What's Our Retirement Budget?](https://finance.yahoo.com/news/were-60-1-3-million-100000664.html)
+- Mar 08 - [In-N-Out’s billionaire heiress says she stood in line for 2 hours to land a job at her own store when she was just a teenager to shake the ‘stigma of being the owner’s kid’ and ‘earn respect’](https://finance.yahoo.com/news/n-billionaire-heiress-says-she-140000973.html)
+- Mar 08 - [Curiosity Cracked Open a Rock on Mars And Discovered a Big Surprise](https://www.yahoo.com/news/curiosity-cracked-open-rock-mars-134912150.html)
+- Mar 08 - [Russia's arms exports are going bust as foreign buyers bolt and the Ukraine war chews through its weapons](https://www.yahoo.com/news/russias-arms-exports-going-bust-130801769.html)
+- Mar 08 - [I’m 65, have $120K, get $1,700 in Social Security a month with $3,900 monthly expenses. I want to know if I can get by](https://finance.yahoo.com/news/m-65-120k-1-700-130000573.html)
 <!-- feed end -->
 
 ### Onstream
