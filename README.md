@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [Suspected gang member arrested after 'serious event' in Clarksville. What we know](https://www.yahoo.com/news/suspected-gang-member-arrested-serious-183058762.html)
+- Mar 09 - [I’m 34, make $5K a month and spend 64% of my income on rent. I also have $0 savings. Am I making a big mistake?](https://finance.yahoo.com/news/m-34-5k-month-spend-194500141.html)
+- Mar 09 - [A trans sex worker called 911 to report being kidnapped. LAPD officers shot and killed her](https://www.yahoo.com/news/trans-sex-worker-called-911-191353572.html)
+- Mar 09 - [Authorities traced this Myrtle Beach wildfire to a South Carolina woman’s backyard. She is now facing charges](https://www.yahoo.com/news/authorities-traced-myrtle-beach-wildfire-190034414.html)
 - Mar 09 - [Mass layoffs at Veterans' Affairs will begin early as June, memo says](https://www.yahoo.com/news/mass-layoffs-veterans-affairs-begin-182220381.html)
-- Mar 09 - [What is conscription and is the government considering it?](https://www.yahoo.com/news/what-is-conscription-and-is-the-government-considering-it-180622206.html)
-- Mar 09 - [Donald Trump's Only Been President For Six Weeks, And He's Already Reposted An Article Called "Shut Up About Egg Prices"](https://www.yahoo.com/news/donald-trumps-only-president-six-164436925.html)
-- Mar 09 - [The biggest retirement regrets — and how to avoid them](https://finance.yahoo.com/news/the-biggest-retirement-regrets--and-how-to-avoid-them-153041835.html)
+- Mar 09 - [Trans doctors can use lavatories of their choice, says hospital trust](https://www.yahoo.com/news/trans-doctors-lavatories-choice-says-180700128.html)
 <!-- feed end -->
 
 ### Onstream
