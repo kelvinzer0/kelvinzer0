@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [Will Brown run for Ohio governor? Doesn’t sound like he’s ready for rocking chair. |Opinion](https://www.yahoo.com/news/brown-run-ohio-governor-doesn-091623833.html)
-- Mar 09 - [Andrew Tate, social media influencer who faces trafficking charges, sits cageside for UFC 313](https://www.yahoo.com/news/andrew-tate-social-media-influencer-052812413.html)
+- Mar 09 - [Woman Says Her Wealthy Boyfriend Is Making Her Pay Rent, Even Though He Owns the House They're Living in](https://www.yahoo.com/lifestyle/woman-says-her-wealthy-boyfriend-081500999.html)
 - Mar 09 - [Multiple arrests, medical calls as police use ‘chemical munitions’ to break up UD gathering](https://www.yahoo.com/news/multiple-arrests-medical-calls-police-235717212.html)
 - Mar 09 - ['I was drawn into a secretive world of chemsex and it turned me into a zombie'](https://www.yahoo.com/news/drawn-secretive-world-chemsex-turned-004102732.html)
 - Mar 08 - [Venezuela president says flights to bring home migrants from US 'affected'](https://www.yahoo.com/news/venezuela-president-says-flights-bring-232928892.html)
+- Mar 08 - [53 Shocking Photos Of American Schools That Prove Some States Have It Wayyy Better Than Others](https://www.yahoo.com/lifestyle/53-shocking-photos-american-schools-223103155.html)
 <!-- feed end -->
 
 ### Onstream
