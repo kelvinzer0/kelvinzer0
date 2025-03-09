@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [The bitter Reform UK row involving Nigel Farage and one of his MPs explained](https://www.yahoo.com/news/farage-lowe-reform-uk-row-123925087.html)
-- Mar 09 - [Officials urge caution after rare creatures are sighted near shore:  'You can hear them from quite a distance away'](https://www.yahoo.com/news/officials-urge-caution-rare-creatures-111504165.html)
-- Mar 09 - [They were forced to scam others worldwide. Now thousands are held in detention on the Myanmar border](https://www.yahoo.com/news/were-forced-scam-others-worldwide-110426034.html)
+- Mar 09 - [Something Mysterious Swept Over Our Entire Solar System, Scientists Say](https://www.yahoo.com/news/something-mysterious-swept-over-entire-130059708.html)
+- Mar 09 - [Don’t rush into the recession trade — Wall Street pros see opportunity in tech and banks](https://finance.yahoo.com/news/dont-rush-into-the-recession-trade--wall-street-pros-see-opportunity-in-tech-and-banks-130023061.html)
+- Mar 09 - [Why Trump tariffs are burning up your portfolio](https://finance.yahoo.com/news/why-trump-tariffs-are-burning-up-your-portfolio-123019440.html)
+- Mar 09 - [Steve Young still drives a 2011 minivan — here’s why even millionaires avoid flashy cars](https://finance.yahoo.com/news/steve-young-still-drives-2011-113800883.html)
 - Mar 09 - [Officials stunned as trail cameras catch sight of rare species for first time in nearly a century: '[They] just about fell off their chairs'](https://www.yahoo.com/news/officials-stunned-trail-cameras-catch-103052560.html)
-- Mar 09 - [Ancient city crumbles as looming threat begins to wreak havoc: 'Undoing in decades what took millennia of human ingenuity to create'](https://www.yahoo.com/news/ancient-city-crumbles-looming-threat-103050633.html)
 <!-- feed end -->
 
 ### Onstream
