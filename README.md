@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Clark County animal rights advocates help dog left on roadside to recovery](https://www.yahoo.com/news/clark-county-animal-rights-advocates-221757620.html)
+- Mar 09 - ['I was drawn into a secretive world of chemsex and it turned me into a zombie'](https://www.yahoo.com/news/drawn-secretive-world-chemsex-turned-004102732.html)
+- Mar 08 - [Multiple arrests, medical calls as police use ‘chemical munitions’ to break up UD gathering](https://www.yahoo.com/news/multiple-arrests-medical-calls-police-235717212.html)
+- Mar 08 - [Venezuela president says flights to bring home migrants from US 'affected'](https://www.yahoo.com/news/venezuela-president-says-flights-bring-232928892.html)
 - Mar 08 - [Spelman student charged in wrong-way DUI crash that shut down I-75/I-85](https://www.yahoo.com/news/spelman-student-charged-wrong-way-184216779.html)
-- Mar 08 - [Disney Ride Passengers ‘Dumbfounded’ After Man Jumps from Log to Wander with His Son, Causing ‘40 Minute’ Delay](https://www.yahoo.com/entertainment/disney-ride-passengers-dumbfounded-man-140639427.html)
-- Mar 08 - [In-N-Out’s billionaire heiress says she stood in line for 2 hours to land a job at her own store when she was just a teenager to shake the ‘stigma of being the owner’s kid’ and ‘earn respect’](https://finance.yahoo.com/news/n-billionaire-heiress-says-she-140000973.html)
-- Mar 08 - [Russia's arms exports are going bust as foreign buyers bolt and the Ukraine war chews through its weapons](https://www.yahoo.com/news/russias-arms-exports-going-bust-130801769.html)
+- Mar 08 - [Investigators Believe They Know How Gene Hackman's Dog Died](https://www.yahoo.com/news/investigators-believe-know-gene-hackmans-170555370.html)
 <!-- feed end -->
 
 ### Onstream
