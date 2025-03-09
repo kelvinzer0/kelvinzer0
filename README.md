@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 09 - [VP Vance confronts Cincinnati protestors, condemns them on social media](https://www.yahoo.com/news/vp-vance-confronts-cincinnati-protestors-021100091.html)
-- Mar 08 - [Multiple arrests, medical calls as police use ‘chemical munitions’ to break up UD gathering](https://www.yahoo.com/news/multiple-arrests-medical-calls-police-235717212.html)
-- Mar 08 - [Venezuela president says flights to bring home migrants from US 'affected'](https://www.yahoo.com/news/venezuela-president-says-flights-bring-232928892.html)
-- Mar 08 - [DOGE has reportedly started rolling out a custom chatbot to automate some government tasks](https://www.yahoo.com/tech/doge-has-reportedly-started-rolling-out-a-custom-chatbot-to-automate-some-government-tasks-211616079.html)
-- Mar 08 - [Spelman student charged in wrong-way DUI crash that shut down I-75/I-85](https://www.yahoo.com/news/spelman-student-charged-wrong-way-184216779.html)
+- Mar 09 - [Multiple arrests, medical calls as police use ‘chemical munitions’ to break up UD gathering](https://www.yahoo.com/news/multiple-arrests-medical-calls-police-235717212.html)
+- Mar 09 - [Nigeria seeks to cash in on soaring cocoa prices](https://finance.yahoo.com/news/nigeria-seeks-cash-soaring-cocoa-030354920.html)
+- Mar 09 - ['I was drawn into a secretive world of chemsex and it turned me into a zombie'](https://www.yahoo.com/news/drawn-secretive-world-chemsex-turned-004102732.html)
+- Mar 09 - [JoCo fire captain dies while fighting fire Saturday afternoon](https://www.yahoo.com/news/joco-fire-captain-dies-while-002854714.html)
 <!-- feed end -->
 
 ### Onstream
