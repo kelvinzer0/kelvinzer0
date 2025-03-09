@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [Unseasonably warm week in Central Indiana could close with storms Friday](https://www.yahoo.com/news/unseasonably-warm-week-central-indiana-153522785.html)
 - Mar 09 - [The biggest retirement regrets — and how to avoid them](https://finance.yahoo.com/news/the-biggest-retirement-regrets--and-how-to-avoid-them-153041835.html)
-- Mar 09 - [Migrant who called for slaughter of all Jews arrives in UK on small boat](https://www.yahoo.com/news/migrant-called-slaughter-jews-arrives-144344976.html)
 - Mar 09 - [Oops, Scientists May Have Miscalculated Our Global Warming Timeline](https://www.yahoo.com/news/oops-scientists-may-miscalculated-global-135500189.html)
-- Mar 09 - [Kohl’s Will Be Closing Stores in 15 States by April 2025: Is Yours One of Them?](https://finance.yahoo.com/news/kohl-closing-stores-15-states-130215568.html)
+- Mar 09 - [Downtown Sioux Falls assault sends man to hospital with 'traumatic' head injury](https://www.yahoo.com/news/downtown-sioux-falls-assault-sends-131257393.html)
+- Mar 09 - [Why Trump tariffs are burning up your portfolio](https://finance.yahoo.com/news/why-trump-tariffs-are-burning-up-your-portfolio-123019440.html)
+- Mar 09 - [Officials urge caution after rare creatures are sighted near shore:  'You can hear them from quite a distance away'](https://www.yahoo.com/news/officials-urge-caution-rare-creatures-111504165.html)
 <!-- feed end -->
 
 ### Onstream
