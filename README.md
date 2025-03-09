@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [It's Official: Scientists Have Confirmed What's Inside Our Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-223015889.html)
+- Mar 08 - [Clark County animal rights advocates help dog left on roadside to recovery](https://www.yahoo.com/news/clark-county-animal-rights-advocates-221757620.html)
 - Mar 08 - [Spelman student charged in wrong-way DUI crash that shut down I-75/I-85](https://www.yahoo.com/news/spelman-student-charged-wrong-way-184216779.html)
 - Mar 08 - [Disney Ride Passengers ‘Dumbfounded’ After Man Jumps from Log to Wander with His Son, Causing ‘40 Minute’ Delay](https://www.yahoo.com/entertainment/disney-ride-passengers-dumbfounded-man-140639427.html)
 - Mar 08 - [In-N-Out’s billionaire heiress says she stood in line for 2 hours to land a job at her own store when she was just a teenager to shake the ‘stigma of being the owner’s kid’ and ‘earn respect’](https://finance.yahoo.com/news/n-billionaire-heiress-says-she-140000973.html)
