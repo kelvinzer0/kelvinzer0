@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [Syrian Kurdish commander demands accountability for those behind mass killings](https://www.yahoo.com/news/syrian-kurdish-commander-demands-accountability-124523069.html)
-- Mar 09 - [World Health Organization warns of possible tuberculosis surge because of USAID cuts](https://www.yahoo.com/news/world-health-organization-warns-possible-123000931.html)
-- Mar 09 - [Company calls on Hollywood to normalize critical theme in films: 'A cultural shift starts with what we see on screen'](https://www.yahoo.com/news/company-calls-hollywood-normalize-critical-113036373.html)
+- Mar 09 - [The bitter Reform UK row involving Nigel Farage and one of his MPs explained](https://www.yahoo.com/news/farage-lowe-reform-uk-row-123925087.html)
+- Mar 09 - [Officials urge caution after rare creatures are sighted near shore:  'You can hear them from quite a distance away'](https://www.yahoo.com/news/officials-urge-caution-rare-creatures-111504165.html)
 - Mar 09 - [They were forced to scam others worldwide. Now thousands are held in detention on the Myanmar border](https://www.yahoo.com/news/were-forced-scam-others-worldwide-110426034.html)
-- Mar 09 - [Residents raise concerns over serious risk creeping into iconic beach waters: 'Getting more and more frequent'](https://www.yahoo.com/lifestyle/residents-raise-concerns-over-serious-103059821.html)
+- Mar 09 - [Officials stunned as trail cameras catch sight of rare species for first time in nearly a century: '[They] just about fell off their chairs'](https://www.yahoo.com/news/officials-stunned-trail-cameras-catch-103052560.html)
+- Mar 09 - [Ancient city crumbles as looming threat begins to wreak havoc: 'Undoing in decades what took millennia of human ingenuity to create'](https://www.yahoo.com/news/ancient-city-crumbles-looming-threat-103050633.html)
 <!-- feed end -->
 
 ### Onstream
