@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 09 - [VP Vance confronts Cincinnati protestors, condemns them on social media](https://www.yahoo.com/news/vp-vance-confronts-cincinnati-protestors-021100091.html)
+- Mar 08 - [Multiple arrests, medical calls as police use ‘chemical munitions’ to break up UD gathering](https://www.yahoo.com/news/multiple-arrests-medical-calls-police-235717212.html)
 - Mar 08 - [Venezuela president says flights to bring home migrants from US 'affected'](https://www.yahoo.com/news/venezuela-president-says-flights-bring-232928892.html)
 - Mar 08 - [DOGE has reportedly started rolling out a custom chatbot to automate some government tasks](https://www.yahoo.com/tech/doge-has-reportedly-started-rolling-out-a-custom-chatbot-to-automate-some-government-tasks-211616079.html)
 - Mar 08 - [Spelman student charged in wrong-way DUI crash that shut down I-75/I-85](https://www.yahoo.com/news/spelman-student-charged-wrong-way-184216779.html)
-- Mar 08 - [At 60 We Have $1.3 Million in 401(k)s and Will Receive $5,100 Monthly From Social Security. What's Our Retirement Budget?](https://finance.yahoo.com/news/were-60-1-3-million-100000664.html)
 <!-- feed end -->
 
 ### Onstream
