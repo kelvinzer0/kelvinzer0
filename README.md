@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [A trans sex worker called 911 to report being kidnapped. LAPD officers shot and killed her](https://www.yahoo.com/news/trans-sex-worker-called-911-191353572.html)
-- Mar 09 - [Authorities traced this Myrtle Beach wildfire to a South Carolina woman’s backyard. She is now facing charges](https://www.yahoo.com/news/authorities-traced-myrtle-beach-wildfire-190034414.html)
+- Mar 09 - [The #1 Protein to Reduce Visceral Fat, Recommended by Dietitians](https://www.yahoo.com/lifestyle/1-protein-reduce-visceral-fat-210431150.html)
+- Mar 09 - [Small plane crashes with 5 aboard in Pennsylvania](https://www.yahoo.com/news/small-plane-crashes-pennsylvania-203400740.html)
+- Mar 09 - [Rubio and Musk turn on Polish foreign minister in spat over Starlink use in Ukraine: ‘Be quiet small man’](https://www.yahoo.com/news/rubio-musk-turn-polish-foreign-202224521.html)
+- Mar 09 - [Mass layoffs at Veterans' Affairs will begin early as June, memo says](https://www.yahoo.com/news/mass-layoffs-veterans-affairs-begin-182220381.html)
 - Mar 09 - [Trans doctors can use lavatories of their choice, says hospital trust](https://www.yahoo.com/news/trans-doctors-lavatories-choice-says-180700128.html)
-- Mar 09 - [Trump's Latest Repost On Truth Social, Called "Shut Up About Egg Prices," Is Going Viral, And It NEEDS To Be Hung At Grocery Stores Nationwide](https://www.yahoo.com/news/donald-trumps-only-president-six-164436925.html)
-- Mar 09 - [ICE arrests Palestinian activist who helped lead Columbia University protests, his lawyer says](https://www.yahoo.com/news/ice-arrests-palestinian-activist-helped-162258497.html)
 <!-- feed end -->
 
 ### Onstream
