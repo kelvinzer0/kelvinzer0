@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 09 - [A lost pet parrot spooked by seagulls turns up 20 miles away from home](https://www.yahoo.com/news/lost-pet-parrot-spooked-seagulls-083318971.html)
 - Mar 09 - [Andrew Tate, social media influencer who faces trafficking charges, sits cageside for UFC 313](https://www.yahoo.com/news/andrew-tate-social-media-influencer-052812413.html)
-- Mar 09 - [Multiple arrests, medical calls as police use ‘chemical munitions’ to break up UD gathering](https://www.yahoo.com/news/multiple-arrests-medical-calls-police-235717212.html)
-- Mar 09 - ['I was drawn into a secretive world of chemsex and it turned me into a zombie'](https://www.yahoo.com/news/drawn-secretive-world-chemsex-turned-004102732.html)
 - Mar 08 - [DOGE has reportedly started rolling out a custom chatbot to automate some government tasks](https://www.yahoo.com/tech/doge-has-reportedly-started-rolling-out-a-custom-chatbot-to-automate-some-government-tasks-211616079.html)
+- Mar 08 - [Musk’s DOGE team reportedly tried to fire air traffic controllers amid multiple plane crashes but was stopped by the transportation secretary](https://www.yahoo.com/news/musk-doge-team-reportedly-tried-185321436.html)
 - Mar 08 - [Spelman student charged in wrong-way DUI crash that shut down I-75/I-85](https://www.yahoo.com/news/spelman-student-charged-wrong-way-184216779.html)
 <!-- feed end -->
 
