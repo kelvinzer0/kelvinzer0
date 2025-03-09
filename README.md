@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 09 - [Suspected gang member arrested after 'serious event' in Clarksville. What we know](https://www.yahoo.com/news/suspected-gang-member-arrested-serious-183058762.html)
+- Mar 09 - [Mass layoffs at Veterans' Affairs will begin early as June, memo says](https://www.yahoo.com/news/mass-layoffs-veterans-affairs-begin-182220381.html)
+- Mar 09 - [What is conscription and is the government considering it?](https://www.yahoo.com/news/what-is-conscription-and-is-the-government-considering-it-180622206.html)
 - Mar 09 - [Donald Trump's Only Been President For Six Weeks, And He's Already Reposted An Article Called "Shut Up About Egg Prices"](https://www.yahoo.com/news/donald-trumps-only-president-six-164436925.html)
-- Mar 09 - [Newsom becomes most prominent Democrat to buck the party and echo majority public opinion on trans athletes](https://www.yahoo.com/news/newsom-becomes-most-prominent-democrat-152449330.html)
-- Mar 09 - [Oops, Scientists May Have Miscalculated Our Global Warming Timeline](https://www.yahoo.com/news/oops-scientists-may-miscalculated-global-135500189.html)
-- Mar 09 - [What would change if daylight saving time became permanent?](https://www.yahoo.com/news/change-daylight-saving-time-became-125515242.html)
-- Mar 09 - [Why Trump tariffs are burning up your portfolio](https://finance.yahoo.com/news/why-trump-tariffs-are-burning-up-your-portfolio-123019440.html)
+- Mar 09 - [The biggest retirement regrets — and how to avoid them](https://finance.yahoo.com/news/the-biggest-retirement-regrets--and-how-to-avoid-them-153041835.html)
 <!-- feed end -->
 
 ### Onstream
