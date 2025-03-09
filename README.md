@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [Woman Says Her Wealthy Boyfriend Is Making Her Pay Rent, Even Though He Owns the House They're Living in](https://www.yahoo.com/lifestyle/woman-says-her-wealthy-boyfriend-081500999.html)
-- Mar 09 - [Multiple arrests, medical calls as police use ‘chemical munitions’ to break up UD gathering](https://www.yahoo.com/news/multiple-arrests-medical-calls-police-235717212.html)
+- Mar 09 - [U.S. Money Supply Growth Is Accelerating -- It Could Signal a Huge Change Coming in the Stock Market](https://finance.yahoo.com/news/u-money-supply-growth-accelerating-091200611.html)
+- Mar 09 - [Liberals choose their leader today, after campaign defined by chaos of Trump administration](https://www.yahoo.com/news/liberals-choose-leader-today-campaign-080009913.html)
+- Mar 09 - [Marco Rubio’s irrelevance in Trump world](https://www.yahoo.com/news/marco-rubio-irrelevance-trump-world-015755017.html)
 - Mar 09 - ['I was drawn into a secretive world of chemsex and it turned me into a zombie'](https://www.yahoo.com/news/drawn-secretive-world-chemsex-turned-004102732.html)
 - Mar 08 - [Venezuela president says flights to bring home migrants from US 'affected'](https://www.yahoo.com/news/venezuela-president-says-flights-bring-232928892.html)
-- Mar 08 - [53 Shocking Photos Of American Schools That Prove Some States Have It Wayyy Better Than Others](https://www.yahoo.com/lifestyle/53-shocking-photos-american-schools-223103155.html)
 <!-- feed end -->
 
 ### Onstream
