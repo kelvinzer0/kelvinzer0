@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [The biggest retirement regrets — and how to avoid them](https://finance.yahoo.com/news/the-biggest-retirement-regrets--and-how-to-avoid-them-153041835.html)
+- Mar 09 - [Donald Trump's Only Been President For Six Weeks, And He's Already Reposted An Article Called "Shut Up About Egg Prices"](https://www.yahoo.com/news/donald-trumps-only-president-six-164436925.html)
+- Mar 09 - [Newsom becomes most prominent Democrat to buck the party and echo majority public opinion on trans athletes](https://www.yahoo.com/news/newsom-becomes-most-prominent-democrat-152449330.html)
 - Mar 09 - [Oops, Scientists May Have Miscalculated Our Global Warming Timeline](https://www.yahoo.com/news/oops-scientists-may-miscalculated-global-135500189.html)
-- Mar 09 - [Downtown Sioux Falls assault sends man to hospital with 'traumatic' head injury](https://www.yahoo.com/news/downtown-sioux-falls-assault-sends-131257393.html)
+- Mar 09 - [What would change if daylight saving time became permanent?](https://www.yahoo.com/news/change-daylight-saving-time-became-125515242.html)
 - Mar 09 - [Why Trump tariffs are burning up your portfolio](https://finance.yahoo.com/news/why-trump-tariffs-are-burning-up-your-portfolio-123019440.html)
-- Mar 09 - [Officials urge caution after rare creatures are sighted near shore:  'You can hear them from quite a distance away'](https://www.yahoo.com/news/officials-urge-caution-rare-creatures-111504165.html)
 <!-- feed end -->
 
 ### Onstream
