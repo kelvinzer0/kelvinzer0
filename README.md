@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [U.S. Money Supply Growth Is Accelerating -- It Could Signal a Huge Change Coming in the Stock Market](https://finance.yahoo.com/news/u-money-supply-growth-accelerating-091200611.html)
-- Mar 09 - [Liberals choose their leader today, after campaign defined by chaos of Trump administration](https://www.yahoo.com/news/liberals-choose-leader-today-campaign-080009913.html)
-- Mar 09 - [Marco Rubio’s irrelevance in Trump world](https://www.yahoo.com/news/marco-rubio-irrelevance-trump-world-015755017.html)
-- Mar 09 - ['I was drawn into a secretive world of chemsex and it turned me into a zombie'](https://www.yahoo.com/news/drawn-secretive-world-chemsex-turned-004102732.html)
-- Mar 08 - [Venezuela president says flights to bring home migrants from US 'affected'](https://www.yahoo.com/news/venezuela-president-says-flights-bring-232928892.html)
+- Mar 09 - [Syrian Kurdish commander demands accountability for those behind mass killings](https://www.yahoo.com/news/syrian-kurdish-commander-demands-accountability-124523069.html)
+- Mar 09 - [World Health Organization warns of possible tuberculosis surge because of USAID cuts](https://www.yahoo.com/news/world-health-organization-warns-possible-123000931.html)
+- Mar 09 - [Company calls on Hollywood to normalize critical theme in films: 'A cultural shift starts with what we see on screen'](https://www.yahoo.com/news/company-calls-hollywood-normalize-critical-113036373.html)
+- Mar 09 - [They were forced to scam others worldwide. Now thousands are held in detention on the Myanmar border](https://www.yahoo.com/news/were-forced-scam-others-worldwide-110426034.html)
+- Mar 09 - [Residents raise concerns over serious risk creeping into iconic beach waters: 'Getting more and more frequent'](https://www.yahoo.com/lifestyle/residents-raise-concerns-over-serious-103059821.html)
 <!-- feed end -->
 
 ### Onstream
