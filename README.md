@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [I’m 34, make $5K a month and spend 64% of my income on rent. I also have $0 savings. Am I making a big mistake?](https://finance.yahoo.com/news/m-34-5k-month-spend-194500141.html)
 - Mar 09 - [A trans sex worker called 911 to report being kidnapped. LAPD officers shot and killed her](https://www.yahoo.com/news/trans-sex-worker-called-911-191353572.html)
 - Mar 09 - [Authorities traced this Myrtle Beach wildfire to a South Carolina woman’s backyard. She is now facing charges](https://www.yahoo.com/news/authorities-traced-myrtle-beach-wildfire-190034414.html)
-- Mar 09 - [Mass layoffs at Veterans' Affairs will begin early as June, memo says](https://www.yahoo.com/news/mass-layoffs-veterans-affairs-begin-182220381.html)
 - Mar 09 - [Trans doctors can use lavatories of their choice, says hospital trust](https://www.yahoo.com/news/trans-doctors-lavatories-choice-says-180700128.html)
+- Mar 09 - [Trump's Latest Repost On Truth Social, Called "Shut Up About Egg Prices," Is Going Viral, And It NEEDS To Be Hung At Grocery Stores Nationwide](https://www.yahoo.com/news/donald-trumps-only-president-six-164436925.html)
+- Mar 09 - [ICE arrests Palestinian activist who helped lead Columbia University protests, his lawyer says](https://www.yahoo.com/news/ice-arrests-palestinian-activist-helped-162258497.html)
 <!-- feed end -->
 
 ### Onstream
