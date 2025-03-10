@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Someone Asked "What Products Do People Refuse To Buy The Generic Version Of," And The Responses Are Fascinating](https://www.yahoo.com/lifestyle/someone-asked-products-people-refuse-173554045.html)
-- Mar 10 - [Tornado leaves major damage in its wake as storms blast through Central Florida](https://www.yahoo.com/news/scattered-storms-move-across-central-105202142.html)
+- Mar 10 - [Canadian police identify remains of murdered Indigenous woman at landfill](https://www.yahoo.com/news/canadian-police-identify-remains-murdered-181757658.html)
+- Mar 10 - [McLaren Adapts Space Age Carbon Fiber Tape Process To Car Production](https://autos.yahoo.com/mclaren-adapts-space-age-carbon-172500616.html)
+- Mar 10 - [NYPD Detective Removed From Active Cases And Under Review For Pole-Dancing In Viral Music Video](https://www.yahoo.com/news/nypd-detective-removed-active-cases-170035396.html)
 - Mar 10 - [‘The View’: Ana Navarro Theorizes That Marco Rubio May Have Been Responsible for Leak About Musk/Trump Cabinet Clash](https://www.yahoo.com/news/view-ana-navarro-theorizes-marco-163323687.html)
 - Mar 10 - [Saudi Arabia's 100-Mile Skyscraper Is Turning Into a Disaster](https://www.yahoo.com/news/saudi-arabias-100-mile-skyscraper-161431659.html)
-- Mar 10 - [Finger-prick blood tests which quickly detect the deadliest type of stroke could save lives](https://www.yahoo.com/news/finger-prick-blood-tests-quickly-125116574.html)
 <!-- feed end -->
 
 ### Onstream
