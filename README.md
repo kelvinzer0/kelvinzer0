@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 10 - [Musk calls Sen. Kelly a 'traitor' over trip to Ukraine, Kelly hits back](https://www.yahoo.com/news/musk-calls-sen-kelly-traitor-185802249.html)
 - Mar 10 - [Musk Melts Down as Tesla Stock Price Plunges](https://finance.yahoo.com/news/musk-melts-down-tesla-stock-212504241.html)
-- Mar 10 - [Dow sinks nearly 900 points as recession fears grow](https://finance.yahoo.com/video/dow-sinks-nearly-900-points-201625900.html)
+- Mar 10 - [Man Rollerskating with His Siamese Shoulder Cat Is the Definition of an 80s King](https://www.yahoo.com/lifestyle/man-rollerskating-siamese-shoulder-cat-210000247.html)
 - Mar 10 - [Track Star Who Hit Opponent in Head with Baton Breaks Silence amid Controversy Over If It Was Intentional](https://sports.yahoo.com/article/track-star-hit-opponent-head-200153131.html)
 - Mar 10 - [I Cackled So Hard I Woke Up My Parrot Laughing At These 17 Funny Pet Tweets](https://www.yahoo.com/lifestyle/cackled-hard-woke-parrot-laughing-195501761.html)
 <!-- feed end -->
