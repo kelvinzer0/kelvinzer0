@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [Finger-prick blood tests which quickly detect the deadliest type of stroke could save lives](https://www.yahoo.com/news/finger-prick-blood-tests-quickly-125116574.html)
+- Mar 10 - [Eight healthy breakfast cereal options as Alan Titchmarsh urges switch from avocados](https://www.yahoo.com/lifestyle/alan-titchmarsh-healthy-breakfast-cereal-options-121747540.html)
+- Mar 10 - [Trump’s tariff ‘delay’ is a confusing mess](https://www.yahoo.com/news/trump-tariff-delay-confusing-mess-120052330.html)
 - Mar 10 - [The Cream Of The Crop: 5 Biotechs That Outrank Most Stocks](https://www.investors.com/news/technology/biotech-stocks-the-top-5-to-watch-amid-a-blazing-hot-run/?src=A00220&yptr=yahoo)
-- Mar 10 - [Energy firm sets world record with 'champion cell' technology: 'This result is laying the groundwork'](https://www.yahoo.com/tech/energy-firm-sets-world-record-104513300.html)
-- Mar 10 - [Elon Musk's Ex-Wife Spills The Truth About What It Really Takes To Be A Billionaire: 'There Is No Roadmap, No Blueprint For This'](https://finance.yahoo.com/news/elon-musks-ex-wife-spills-104513767.html)
-- Mar 10 - [Prime minister makes bold 'superpower' pledge that could dramatically change life for residents: 'Other countries ... should follow suit'](https://www.yahoo.com/news/prime-minister-makes-bold-superpower-104510126.html)
-- Mar 10 - [Russia’s glide bombs were unstoppable – but Ukraine has made them useless](https://www.yahoo.com/news/russia-glide-bombs-were-unstoppable-101722051.html)
+- Mar 10 - [IBM wins UK lawsuit against LzLabs over alleged theft of mainframe technology](https://finance.yahoo.com/news/ibm-wins-uk-lawsuit-against-114808852.html)
 <!-- feed end -->
 
 ### Onstream
