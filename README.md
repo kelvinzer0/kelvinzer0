@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Bike Week child predator sting leads to Port Orange school employee arrest](https://www.yahoo.com/news/bike-week-child-predator-sting-194700120.html)
-- Mar 10 - [Wendy Williams Taken To Hospital After Dropping Troubling Note Outside Of Assisted Living Facility](https://www.yahoo.com/news/wendy-williams-taken-hospital-dropping-185503208.html)
-- Mar 10 - [Tesla tumbles again as investors bail on Elon Musk's suddenly struggling electric vehicle company](https://finance.yahoo.com/news/tesla-tumbles-again-investors-bail-185255580.html)
+- Mar 10 - [Video Captures 'Soulless' Person Dumping Dog on Arizona Street and Telling Pet 'Bye-Bye' Before Driving Off](https://www.yahoo.com/entertainment/video-captures-soulless-person-dumping-204500702.html)
+- Mar 10 - [Track Star Who Hit Opponent in Head with Baton Breaks Silence amid Controversy Over If It Was Intentional](https://sports.yahoo.com/article/track-star-hit-opponent-head-200153131.html)
+- Mar 10 - [I Cackled So Hard I Woke Up My Parrot Laughing At These 17 Funny Pet Tweets](https://www.yahoo.com/lifestyle/cackled-hard-woke-parrot-laughing-195501761.html)
+- Mar 10 - [Musk calls Sen. Kelly a 'traitor' over trip to Ukraine, Kelly hits back](https://www.yahoo.com/news/musk-calls-sen-kelly-traitor-185802249.html)
 - Mar 10 - [Elon Musk Searching for Mysterious Billionaire Who’s Making Everyone Hate Tesla](https://finance.yahoo.com/news/elon-musk-searching-mysterious-billionaire-184827085.html)
-- Mar 10 - [LA district attorney says he won’t support resentencing the Menendez brothers because they lied](https://www.yahoo.com/news/la-district-attorney-says-won-174639027.html)
 <!-- feed end -->
 
 ### Onstream
