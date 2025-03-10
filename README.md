@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [Meet the federal worker who went rogue: ‘I hope that it lights a fire under people’](https://www.yahoo.com/news/meet-federal-worker-went-rogue-041739436.html)
+- Mar 10 - [Missing Univ. of Pittsburgh student believed to have died by drowning in Dominican Republic](https://www.yahoo.com/news/missing-univ-pittsburgh-student-believed-222442657.html)
+- Mar 10 - [Drawing huge crowds, Bernie Sanders steps into leadership of the anti-Trump resistance](https://www.yahoo.com/news/drawing-huge-crowds-bernie-sanders-040333889.html)
 - Mar 10 - [Tokyo was filled with charred corpses after US firebombing 80 years ago. Survivors want compensation](https://www.yahoo.com/news/tokyo-filled-charred-corpses-us-021150764.html)
 - Mar 10 - [Kid Rock Says He’s Bringing This Infamous Trump-Hater To The White House To ‘Unite The Country’](https://www.yahoo.com/news/kid-rock-says-bringing-infamous-000340272.html)
-- Mar 10 - [Fox host asks Trump whether he is ‘comfortable’ that ‘Ukraine may not survive’](https://www.yahoo.com/news/fox-host-asks-trump-whether-000324222.html)
-- Mar 09 - [Trump says US has "just about" ended pause on Ukraine intel sharing](https://www.yahoo.com/news/trump-says-expects-good-results-235255471.html)
-- Mar 09 - [The Wall Street strategist who nailed the stock market’s recent mega-rallies sees a 10%-15% jump in the coming months](https://finance.yahoo.com/news/wall-street-strategist-nailed-stock-221856870.html)
 <!-- feed end -->
 
 ### Onstream
