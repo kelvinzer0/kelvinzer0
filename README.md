@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [7-Eleven takeover moves closer amid talks over fate of stores](https://finance.yahoo.com/video/7-eleven-takeover-moves-closer-054957699.html)
-- Mar 10 - [Megalodon: Scientists Reveal a Crucial Surprise About The Mega-Shark](https://www.yahoo.com/news/megalodon-scientists-reveal-crucial-surprise-044234446.html)
+- Mar 10 - [Brian Boru stands as a reminder of Portland's past. Is it time to move on?](https://www.yahoo.com/lifestyle/brian-boru-stands-reminder-portlands-080500065.html)
+- Mar 10 - [Philippines says acts in national interest in South China Sea](https://www.yahoo.com/news/philippines-says-actions-south-china-021839631.html)
 - Mar 10 - [Tokyo was filled with charred corpses after US firebombing 80 years ago. Survivors want compensation](https://www.yahoo.com/news/tokyo-filled-charred-corpses-us-021150764.html)
 - Mar 10 - [8 injured when man rams SUV into California car dealership](https://www.yahoo.com/news/8-injured-man-rams-suv-002548078.html)
 - Mar 10 - [Fox host asks Trump whether he is ‘comfortable’ that ‘Ukraine may not survive’](https://www.yahoo.com/news/fox-host-asks-trump-whether-000324222.html)
