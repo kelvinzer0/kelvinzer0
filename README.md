@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Nvidia Price Target Slashed As AI Stocks Swoon. 'No One Knows What's Going On,' Says Analyst.](https://www.investors.com/news/technology/nvidia-stock-price-target-cut-ai-stocks-swoon/?src=A00220&yptr=yahoo)
-- Mar 10 - [How explosive new UFO doc got Marco Rubio and other high-ranking officials to break their silence on aliens](https://www.yahoo.com/entertainment/explosive-ufo-doc-got-marco-140000276.html)
-- Mar 10 - [Trump's Former Lawyer Names 'The Thing That Sinks Trump's Presidency'](https://www.yahoo.com/news/trumps-former-lawyer-names-thing-131434588.html)
+- Mar 10 - ['Once in 400 years' planetary alignment graces Chilean skies](https://www.yahoo.com/news/once-400-years-planetary-alignment-160140060.html)
 - Mar 10 - [Finger-prick blood tests which quickly detect the deadliest type of stroke could save lives](https://www.yahoo.com/news/finger-prick-blood-tests-quickly-125116574.html)
-- Mar 10 - [Secretary of State Rubio says purge of USAID programs complete, with 83% of agency's programs gone](https://www.yahoo.com/news/secretary-state-rubio-says-purge-122253678.html)
+- Mar 10 - [Musk Slings Insults at EU Leaders But Vows to Keep Starlink Active in Ukraine](https://www.yahoo.com/tech/musk-slings-insults-eu-leaders-152730282.html)
+- Mar 10 - [VIDEO: US military support tanker on fire off English coast](https://www.yahoo.com/news/video-us-military-support-tanker-145853111.html)
+- Mar 10 - [Nvidia Price Target Slashed As AI Stocks Swoon. 'No One Knows What's Going On,' Says Analyst.](https://www.investors.com/news/technology/nvidia-stock-price-target-cut-ai-stocks-swoon/?src=A00220&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
