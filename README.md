@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [EU trade chief says U.S. not seeking deal to avert tariffs](https://finance.yahoo.com/news/eu-trade-chief-says-u-132536199.html)
+- Mar 10 - [Trump's Former Lawyer Names 'The Thing That Sinks Trump's Presidency'](https://www.yahoo.com/news/trumps-former-lawyer-names-thing-131434588.html)
 - Mar 10 - [Finger-prick blood tests which quickly detect the deadliest type of stroke could save lives](https://www.yahoo.com/news/finger-prick-blood-tests-quickly-125116574.html)
-- Mar 10 - [Eight healthy breakfast cereal options as Alan Titchmarsh urges switch from avocados](https://www.yahoo.com/lifestyle/alan-titchmarsh-healthy-breakfast-cereal-options-121747540.html)
-- Mar 10 - [Trump’s tariff ‘delay’ is a confusing mess](https://www.yahoo.com/news/trump-tariff-delay-confusing-mess-120052330.html)
-- Mar 10 - [The Cream Of The Crop: 5 Biotechs That Outrank Most Stocks](https://www.investors.com/news/technology/biotech-stocks-the-top-5-to-watch-amid-a-blazing-hot-run/?src=A00220&yptr=yahoo)
-- Mar 10 - [IBM wins UK lawsuit against LzLabs over alleged theft of mainframe technology](https://finance.yahoo.com/news/ibm-wins-uk-lawsuit-against-114808852.html)
+- Mar 10 - [Surfer Missing After Attack by 'Massive' Shark in Chest-Deep Water: Reports](https://www.yahoo.com/entertainment/surfer-missing-attack-massive-shark-114442706.html)
+- Mar 10 - [More than 130,000 homeowners are about to face a painful new expense — and the worst may be yet to come](https://www.yahoo.com/news/more-130-000-homeowners-face-111511666.html)
 <!-- feed end -->
 
 ### Onstream
