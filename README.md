@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 10 - [7-Eleven takeover moves closer amid talks over fate of stores](https://finance.yahoo.com/video/7-eleven-takeover-moves-closer-054957699.html)
+- Mar 10 - [Russian forces advance further in Kursk, pro-Russian war bloggers say](https://www.yahoo.com/news/russian-forces-advance-further-kursk-054143266.html)
+- Mar 10 - [Missing Univ. of Pittsburgh student believed to have died by drowning in Dominican Republic](https://www.yahoo.com/news/missing-univ-pittsburgh-student-believed-222442657.html)
 - Mar 10 - [Drawing huge crowds, Bernie Sanders steps into leadership of the anti-Trump resistance](https://www.yahoo.com/news/drawing-huge-crowds-bernie-sanders-040333889.html)
-- Mar 10 - [Fox host asks Trump whether he is ‘comfortable’ that ‘Ukraine may not survive’](https://www.yahoo.com/news/fox-host-asks-trump-whether-000324222.html)
-- Mar 09 - [More winter storms on the way to Southern California - here's when](https://www.yahoo.com/news/more-winter-storms-way-southern-235652058.html)
-- Mar 09 - [Trump says US has "just about" ended pause on Ukraine intel sharing](https://www.yahoo.com/news/trump-says-expects-good-results-235255471.html)
+- Mar 10 - [Tokyo was filled with charred corpses after US firebombing 80 years ago. Survivors want compensation](https://www.yahoo.com/news/tokyo-filled-charred-corpses-us-021150764.html)
 <!-- feed end -->
 
 ### Onstream
