@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - ['Once in 400 years' planetary alignment graces Chilean skies](https://www.yahoo.com/news/once-400-years-planetary-alignment-160140060.html)
-- Mar 10 - [Finger-prick blood tests which quickly detect the deadliest type of stroke could save lives](https://www.yahoo.com/news/finger-prick-blood-tests-quickly-125116574.html)
-- Mar 10 - [Musk Slings Insults at EU Leaders But Vows to Keep Starlink Active in Ukraine](https://www.yahoo.com/tech/musk-slings-insults-eu-leaders-152730282.html)
-- Mar 10 - [VIDEO: US military support tanker on fire off English coast](https://www.yahoo.com/news/video-us-military-support-tanker-145853111.html)
-- Mar 10 - [Nvidia Price Target Slashed As AI Stocks Swoon. 'No One Knows What's Going On,' Says Analyst.](https://www.investors.com/news/technology/nvidia-stock-price-target-cut-ai-stocks-swoon/?src=A00220&yptr=yahoo)
+- Mar 10 - [Man sleeping on tracks survives after being hit by a train in Peru](https://www.yahoo.com/news/man-sleeping-tracks-survives-being-170108583.html)
+- Mar 10 - [Angry CarMax Customer Drives His Subaru Through the Dealership](https://autos.yahoo.com/angry-carmax-customer-drives-subaru-163800769.html)
+- Mar 10 - [‘The View’: Ana Navarro Theorizes That Marco Rubio May Have Been Responsible for Leak About Musk/Trump Cabinet Clash](https://www.yahoo.com/news/view-ana-navarro-theorizes-marco-163323687.html)
+- Mar 10 - [Residents evacuated as Guatemalan volcano spews lava, rocks](https://www.yahoo.com/news/residents-evacuated-guatemalan-volcano-spews-163054268.html)
+- Mar 10 - ['It's unbelievable': Joe reacts to letter from D.C. U.S. attorney to Georgetown Law](https://www.yahoo.com/news/unbelievable-joe-reacts-letter-d-160311581.html)
 <!-- feed end -->
 
 ### Onstream
