@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Ford to inject up to $4.76 billion into cash-strapped German business](https://finance.yahoo.com/news/ford-inject-4-76-billion-092738554.html)
-- Mar 10 - [What to know about March's full "Blood Worm Moon," a total lunar eclipse](https://www.yahoo.com/news/know-marchs-full-blood-worm-090012220.html)
-- Mar 10 - [China says it will grow relations with Canada on basis of mutual respect](https://www.yahoo.com/news/china-says-grow-relations-canada-073419699.html)
+- Mar 10 - [Medicaid Advocates Say Critics Use Loaded Terms To Gain Edge in Congressional Debate](https://www.yahoo.com/news/medicaid-advocates-critics-loaded-terms-094052871.html)
+- Mar 10 - [Ford to inject up to $4.8 billion into cash-strapped German business](https://finance.yahoo.com/news/ford-inject-4-76-billion-092738554.html)
+- Mar 10 - [Deleted tweets show top State Department official spread false rumor about Rubio’s sexuality, called him ‘low IQ’](https://www.yahoo.com/news/deleted-tweets-show-top-state-090052236.html)
 - Mar 10 - [7-Eleven takeover moves closer amid talks over fate of stores](https://finance.yahoo.com/video/7-eleven-takeover-moves-closer-054957699.html)
 - Mar 10 - [Megalodon: Scientists Reveal a Crucial Surprise About The Mega-Shark](https://www.yahoo.com/news/megalodon-scientists-reveal-crucial-surprise-044234446.html)
 <!-- feed end -->
