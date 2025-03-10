@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Canadian police identify remains of murdered Indigenous woman at landfill](https://www.yahoo.com/news/canadian-police-identify-remains-murdered-181757658.html)
-- Mar 10 - [McLaren Adapts Space Age Carbon Fiber Tape Process To Car Production](https://autos.yahoo.com/mclaren-adapts-space-age-carbon-172500616.html)
-- Mar 10 - [NYPD Detective Removed From Active Cases And Under Review For Pole-Dancing In Viral Music Video](https://www.yahoo.com/news/nypd-detective-removed-active-cases-170035396.html)
-- Mar 10 - [‘The View’: Ana Navarro Theorizes That Marco Rubio May Have Been Responsible for Leak About Musk/Trump Cabinet Clash](https://www.yahoo.com/news/view-ana-navarro-theorizes-marco-163323687.html)
-- Mar 10 - [Saudi Arabia's 100-Mile Skyscraper Is Turning Into a Disaster](https://www.yahoo.com/news/saudi-arabias-100-mile-skyscraper-161431659.html)
+- Mar 10 - [Bike Week child predator sting leads to Port Orange school employee arrest](https://www.yahoo.com/news/bike-week-child-predator-sting-194700120.html)
+- Mar 10 - [Wendy Williams Taken To Hospital After Dropping Troubling Note Outside Of Assisted Living Facility](https://www.yahoo.com/news/wendy-williams-taken-hospital-dropping-185503208.html)
+- Mar 10 - [Tesla tumbles again as investors bail on Elon Musk's suddenly struggling electric vehicle company](https://finance.yahoo.com/news/tesla-tumbles-again-investors-bail-185255580.html)
+- Mar 10 - [Elon Musk Searching for Mysterious Billionaire Who’s Making Everyone Hate Tesla](https://finance.yahoo.com/news/elon-musk-searching-mysterious-billionaire-184827085.html)
+- Mar 10 - [LA district attorney says he won’t support resentencing the Menendez brothers because they lied](https://www.yahoo.com/news/la-district-attorney-says-won-174639027.html)
 <!-- feed end -->
 
 ### Onstream
