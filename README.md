@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Star Entertainment: money laundering claims to teetering on the brink](https://finance.yahoo.com/news/star-entertainment-money-laundering-claims-030327764.html)
-- Mar 10 - [Japan posts current account deficit for first time in 2 years](https://finance.yahoo.com/news/japan-posts-current-account-deficit-025346764.html)
 - Mar 10 - [Tokyo was filled with charred corpses after US firebombing 80 years ago. Survivors want compensation](https://www.yahoo.com/news/tokyo-filled-charred-corpses-us-021150764.html)
 - Mar 10 - [Kid Rock Says He’s Bringing This Infamous Trump-Hater To The White House To ‘Unite The Country’](https://www.yahoo.com/news/kid-rock-says-bringing-infamous-000340272.html)
+- Mar 10 - [Fox host asks Trump whether he is ‘comfortable’ that ‘Ukraine may not survive’](https://www.yahoo.com/news/fox-host-asks-trump-whether-000324222.html)
 - Mar 09 - [Trump says US has "just about" ended pause on Ukraine intel sharing](https://www.yahoo.com/news/trump-says-expects-good-results-235255471.html)
+- Mar 09 - [The Wall Street strategist who nailed the stock market’s recent mega-rallies sees a 10%-15% jump in the coming months](https://finance.yahoo.com/news/wall-street-strategist-nailed-stock-221856870.html)
 <!-- feed end -->
 
 ### Onstream
