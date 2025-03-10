@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [EU trade chief says U.S. not seeking deal to avert tariffs](https://finance.yahoo.com/news/eu-trade-chief-says-u-132536199.html)
+- Mar 10 - [Nvidia Price Target Slashed As AI Stocks Swoon. 'No One Knows What's Going On,' Says Analyst.](https://www.investors.com/news/technology/nvidia-stock-price-target-cut-ai-stocks-swoon/?src=A00220&yptr=yahoo)
+- Mar 10 - [How explosive new UFO doc got Marco Rubio and other high-ranking officials to break their silence on aliens](https://www.yahoo.com/entertainment/explosive-ufo-doc-got-marco-140000276.html)
 - Mar 10 - [Trump's Former Lawyer Names 'The Thing That Sinks Trump's Presidency'](https://www.yahoo.com/news/trumps-former-lawyer-names-thing-131434588.html)
 - Mar 10 - [Finger-prick blood tests which quickly detect the deadliest type of stroke could save lives](https://www.yahoo.com/news/finger-prick-blood-tests-quickly-125116574.html)
-- Mar 10 - [Surfer Missing After Attack by 'Massive' Shark in Chest-Deep Water: Reports](https://www.yahoo.com/entertainment/surfer-missing-attack-massive-shark-114442706.html)
-- Mar 10 - [More than 130,000 homeowners are about to face a painful new expense — and the worst may be yet to come](https://www.yahoo.com/news/more-130-000-homeowners-face-111511666.html)
+- Mar 10 - [Secretary of State Rubio says purge of USAID programs complete, with 83% of agency's programs gone](https://www.yahoo.com/news/secretary-state-rubio-says-purge-122253678.html)
 <!-- feed end -->
 
 ### Onstream
