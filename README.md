@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Medicaid Advocates Say Critics Use Loaded Terms To Gain Edge in Congressional Debate](https://www.yahoo.com/news/medicaid-advocates-critics-loaded-terms-094052871.html)
-- Mar 10 - [Ford to inject up to $4.8 billion into cash-strapped German business](https://finance.yahoo.com/news/ford-inject-4-76-billion-092738554.html)
-- Mar 10 - [Deleted tweets show top State Department official spread false rumor about Rubio’s sexuality, called him ‘low IQ’](https://www.yahoo.com/news/deleted-tweets-show-top-state-090052236.html)
-- Mar 10 - [7-Eleven takeover moves closer amid talks over fate of stores](https://finance.yahoo.com/video/7-eleven-takeover-moves-closer-054957699.html)
-- Mar 10 - [Megalodon: Scientists Reveal a Crucial Surprise About The Mega-Shark](https://www.yahoo.com/news/megalodon-scientists-reveal-crucial-surprise-044234446.html)
+- Mar 10 - [The Cream Of The Crop: 5 Biotechs That Outrank Most Stocks](https://www.investors.com/news/technology/biotech-stocks-the-top-5-to-watch-amid-a-blazing-hot-run/?src=A00220&yptr=yahoo)
+- Mar 10 - [Energy firm sets world record with 'champion cell' technology: 'This result is laying the groundwork'](https://www.yahoo.com/tech/energy-firm-sets-world-record-104513300.html)
+- Mar 10 - [Elon Musk's Ex-Wife Spills The Truth About What It Really Takes To Be A Billionaire: 'There Is No Roadmap, No Blueprint For This'](https://finance.yahoo.com/news/elon-musks-ex-wife-spills-104513767.html)
+- Mar 10 - [Prime minister makes bold 'superpower' pledge that could dramatically change life for residents: 'Other countries ... should follow suit'](https://www.yahoo.com/news/prime-minister-makes-bold-superpower-104510126.html)
+- Mar 10 - [Russia’s glide bombs were unstoppable – but Ukraine has made them useless](https://www.yahoo.com/news/russia-glide-bombs-were-unstoppable-101722051.html)
 <!-- feed end -->
 
 ### Onstream
