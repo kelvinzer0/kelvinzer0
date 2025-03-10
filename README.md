@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Man sleeping on tracks survives after being hit by a train in Peru](https://www.yahoo.com/news/man-sleeping-tracks-survives-being-170108583.html)
-- Mar 10 - [Angry CarMax Customer Drives His Subaru Through the Dealership](https://autos.yahoo.com/angry-carmax-customer-drives-subaru-163800769.html)
+- Mar 10 - [Someone Asked "What Products Do People Refuse To Buy The Generic Version Of," And The Responses Are Fascinating](https://www.yahoo.com/lifestyle/someone-asked-products-people-refuse-173554045.html)
+- Mar 10 - [Tornado leaves major damage in its wake as storms blast through Central Florida](https://www.yahoo.com/news/scattered-storms-move-across-central-105202142.html)
 - Mar 10 - [‘The View’: Ana Navarro Theorizes That Marco Rubio May Have Been Responsible for Leak About Musk/Trump Cabinet Clash](https://www.yahoo.com/news/view-ana-navarro-theorizes-marco-163323687.html)
-- Mar 10 - [Residents evacuated as Guatemalan volcano spews lava, rocks](https://www.yahoo.com/news/residents-evacuated-guatemalan-volcano-spews-163054268.html)
-- Mar 10 - ['It's unbelievable': Joe reacts to letter from D.C. U.S. attorney to Georgetown Law](https://www.yahoo.com/news/unbelievable-joe-reacts-letter-d-160311581.html)
+- Mar 10 - [Saudi Arabia's 100-Mile Skyscraper Is Turning Into a Disaster](https://www.yahoo.com/news/saudi-arabias-100-mile-skyscraper-161431659.html)
+- Mar 10 - [Finger-prick blood tests which quickly detect the deadliest type of stroke could save lives](https://www.yahoo.com/news/finger-prick-blood-tests-quickly-125116574.html)
 <!-- feed end -->
 
 ### Onstream
