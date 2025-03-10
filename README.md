@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [Kid Rock Says He’s Bringing This Infamous Trump-Hater To The White House To ‘Unite The Country’](https://www.yahoo.com/news/kid-rock-says-bringing-infamous-000340272.html)
 - Mar 09 - [Small plane crashes with 5 aboard in Pennsylvania](https://www.yahoo.com/news/small-plane-crashes-pennsylvania-203400740.html)
 - Mar 09 - [Aliens Are Real, U.S. Government Officials Have Admitted. ‘The Age of Disclosure’ Director Dan Farah Wants You to Know There’s More to the Story](https://www.yahoo.com/news/aliens-real-u-government-officials-215604190.html)
-- Mar 09 - [Rubio and Musk turn on Polish foreign minister in spat over Starlink use in Ukraine: ‘Be quiet small man’](https://www.yahoo.com/news/rubio-musk-turn-polish-foreign-202224521.html)
 - Mar 09 - [Man arrested after deadly golf cart crash near The Villages](https://www.yahoo.com/news/man-arrested-dui-manslaughter-golf-201234615.html)
-- Mar 09 - [4.1-magnitude earthquake jolts Los Angeles area](https://www.yahoo.com/news/4-1-magnitude-earthquake-jolts-200926711.html)
+- Mar 09 - [Trump's Latest Repost On Truth Social, Called "Shut Up About Egg Prices," Is Going Viral, And It NEEDS To Be Hung At Grocery Stores Nationwide](https://www.yahoo.com/news/donald-trumps-only-president-six-164436925.html)
 <!-- feed end -->
 
 ### Onstream
