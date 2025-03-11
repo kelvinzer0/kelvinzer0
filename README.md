@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Former Philippine leader Duterte arrested on an ICC warrant over drug killings](https://www.yahoo.com/news/former-philippine-leader-duterte-arrested-032553253.html)
-- Mar 11 - [Police searching for missing Natick 11-year-old](https://www.yahoo.com/news/police-searching-missing-natick-11-004746991.html)
-- Mar 11 - [PM Justin Trudeau’s hilarious House of Commons exit caught in viral photo: ‘What a goofy legend’](https://www.yahoo.com/news/pm-justin-trudeaus-hilarious-house-of-commons-exit-caught-in-viral-photo-what-a-goofy-legend-014847920.html)
+- Mar 11 - [North Korea taekwondo supremo that Austria can't kick](https://www.yahoo.com/news/north-korea-taekwondo-supremo-austria-043342242.html)
+- Mar 11 - [Former Philippine President Duterte arrested on an ICC warrant over drug killings](https://www.yahoo.com/news/former-philippine-leader-duterte-arrested-032553253.html)
+- Mar 11 - [Cargo vessel that collided with US-military chartered tanker was carrying sodium cyanide](https://www.yahoo.com/news/cargo-vessel-collides-oil-tanker-151014170.html)
+- Mar 11 - [Ukraine's biggest drone attack on Moscow kills one, disrupts air and train transport](https://www.yahoo.com/news/ukraine-launches-drone-attacks-targeting-021529778.html)
 - Mar 10 - [Ukraine on its way to negotiated surrender because of Trump: Bolton | Elizabeth Vargas Reports](https://www.yahoo.com/news/ukraine-way-negotiated-surrender-because-235431376.html)
-- Mar 10 - [Men Who Haven't Matured Emotionally Usually Display These 10 Behaviors Without Realizing It, Psychologists Sa](https://www.yahoo.com/lifestyle/men-havent-matured-emotionally-usually-231000994.html)
 <!-- feed end -->
 
 ### Onstream
