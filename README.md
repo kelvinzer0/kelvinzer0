@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [Air India flight from Chicago to New Delhi returns hours into journey after rags, clothes and plastic bags clog toilets](https://www.yahoo.com/news/air-india-flight-chicago-delhi-095908067.html)
 - Mar 11 - [Constellation Energy CEO talks AI, deals, and regulation](https://finance.yahoo.com/video/constellation-energy-ceo-talks-ai-110028646.html)
-- Mar 11 - [37-year-old single mom went from just $10,000 in savings after her divorce to earning nearly $1 million a year at AI job](https://finance.yahoo.com/news/37-old-single-mom-went-104400603.html)
+- Mar 11 - [Trump's tariffs create the 'Wild West' on Wisconsin's factory floors](https://finance.yahoo.com/news/trumps-tariffs-create-wild-west-100519813.html)
+- Mar 11 - [NBA paused. Tom Hanks' diagnosis. A Trump address. Here's what happened on March 11, 2020.](https://www.yahoo.com/news/nba-paused-tom-hanks-diagnosis-084909550.html)
 - Mar 11 - [American college student missing in Dominican Republic didn't drown, Natalee Holloway private eye believes](https://www.yahoo.com/news/american-college-student-missing-dominican-080050913.html)
-- Mar 11 - [Clear risks that Sweden's security situation could get worse, Swedish security police says](https://www.yahoo.com/news/clear-risks-swedens-security-situation-073633878.html)
-- Mar 11 - [The list of the world’s top 20 most polluted cities is out. All but one are in Asia](https://www.yahoo.com/news/list-world-top-20-most-040152422.html)
 <!-- feed end -->
 
 ### Onstream
