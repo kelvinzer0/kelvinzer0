@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [The stock market has a $1 trillion secret weapon to fight further declines](https://finance.yahoo.com/news/stock-market-1-trillion-secret-223342256.html)
+- Mar 10 - [Missouri plans to seize assets to make China pay a $24.5 billion judgment, but can it collect?](https://www.yahoo.com/news/missouri-plans-seize-assets-china-222127975.html)
 - Mar 10 - [Musk calls Sen. Kelly a 'traitor' over trip to Ukraine, Kelly hits back](https://www.yahoo.com/news/musk-calls-sen-kelly-traitor-185802249.html)
 - Mar 10 - [Musk Melts Down as Tesla Stock Price Plunges](https://finance.yahoo.com/news/musk-melts-down-tesla-stock-212504241.html)
-- Mar 10 - [Man Rollerskating with His Siamese Shoulder Cat Is the Definition of an 80s King](https://www.yahoo.com/lifestyle/man-rollerskating-siamese-shoulder-cat-210000247.html)
-- Mar 10 - [Track Star Who Hit Opponent in Head with Baton Breaks Silence amid Controversy Over If It Was Intentional](https://sports.yahoo.com/article/track-star-hit-opponent-head-200153131.html)
-- Mar 10 - [I Cackled So Hard I Woke Up My Parrot Laughing At These 17 Funny Pet Tweets](https://www.yahoo.com/lifestyle/cackled-hard-woke-parrot-laughing-195501761.html)
+- Mar 10 - [I had 80% of my stomach removed because of cancer. Now I'm encouraging people not to ignore these troubling symptoms.](https://www.yahoo.com/lifestyle/i-had-80-of-my-stomach-removed-because-of-cancer-now-im-encouraging-people-not-to-ignore-these-troubling-symptoms-190954339.html)
 <!-- feed end -->
 
 ### Onstream
