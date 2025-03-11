@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - ['War has come': Russians shaken by Ukrainian drone barrage](https://www.yahoo.com/news/war-come-russians-shaken-ukrainian-130523521.html)
-- Mar 11 - [‘Jeopardy!’ champ with Parkinson’s shares touching story](https://www.yahoo.com/news/jeopardy-champ-parkinson-shares-touching-123025096.html)
-- Mar 11 - [I Was In The Women's Restroom When A Man Came In And Called Out A Question That Left Me Nauseated](https://www.yahoo.com/lifestyle/womens-restroom-man-came-called-122540165.html)
-- Mar 11 - [Tesla owners offloading their cars over Elon Musk backlash are in for a nasty surprise](https://finance.yahoo.com/news/tesla-owners-offloading-cars-over-114255052.html)
-- Mar 11 - [Air India flight from Chicago to New Delhi returns hours into journey after rags, clothes and plastic bags clog toilets](https://www.yahoo.com/news/air-india-flight-chicago-delhi-095908067.html)
+- Mar 11 - [Crossbow killer who murdered 3 women is sentenced to a whole-life order in UK prison](https://www.yahoo.com/news/crossbow-killer-murdered-3-women-144152310.html)
+- Mar 11 - [Opinion | Covid quadrupled the number of bodies coming into my funeral home](https://www.yahoo.com/news/opinion-covid-quadrupled-number-bodies-140140286.html)
+- Mar 11 - [The end of MAGA's dominance: "The American people see the Democrats take down Trump themselves"](https://www.yahoo.com/news/end-magas-dominance-american-people-135843869.html)
+- Mar 11 - [Trump doubles planned tariffs on Canadian steel and aluminum to 50% as trade war intensifies](https://finance.yahoo.com/news/trump-slump-president-restore-trust-135723200.html)
+- Mar 11 - [Massive Hole Seen in Side of Oil Tanker After North Sea Collision](https://www.yahoo.com/news/massive-hole-seen-side-oil-130429923.html)
 <!-- feed end -->
 
 ### Onstream
