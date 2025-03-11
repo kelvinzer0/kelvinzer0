@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [PM Justin Trudeau’s hilarious House of Commons exit caught in viral photo: ‘What a goofy legend’](https://www.yahoo.com/news/pm-justin-trudeaus-hilarious-house-of-commons-exit-caught-in-viral-photo-what-a-goofy-legend-014847920.html)
+- Mar 11 - [Police searching for missing Natick 11-year-old](https://www.yahoo.com/news/police-searching-missing-natick-11-004746991.html)
 - Mar 10 - [Ukraine on its way to negotiated surrender because of Trump: Bolton | Elizabeth Vargas Reports](https://www.yahoo.com/news/ukraine-way-negotiated-surrender-because-235431376.html)
 - Mar 10 - [Men Who Haven't Matured Emotionally Usually Display These 10 Behaviors Without Realizing It, Psychologists Sa](https://www.yahoo.com/lifestyle/men-havent-matured-emotionally-usually-231000994.html)
+- Mar 10 - [The stock market has a $1 trillion secret weapon to fight further declines](https://finance.yahoo.com/news/stock-market-1-trillion-secret-223342256.html)
 - Mar 10 - [Missouri plans to seize assets to make China pay a $24.5 billion judgment, but can it collect?](https://www.yahoo.com/news/missouri-plans-seize-assets-china-222127975.html)
-- Mar 10 - [Cargo vessel that collided with US-military chartered tanker was carrying sodium cyanide](https://www.yahoo.com/news/cargo-vessel-collides-oil-tanker-151014170.html)
 <!-- feed end -->
 
 ### Onstream
