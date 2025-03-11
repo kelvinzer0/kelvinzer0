@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [February CPI report expected to show inflation moderated as 'stagflation' fears rise](https://finance.yahoo.com/news/february-cpi-report-expected-to-show-inflation-moderated-as-stagflation-fears-rise-184443587.html)
+- Mar 11 - [Israel kills senior Hezbollah militant, frees four Lebanese prisoners](https://www.yahoo.com/news/israel-kills-senior-hezbollah-militant-180750109.html)
+- Mar 11 - [Does Sugar Feed Cancer? Here’s What the Latest Science Says](https://www.yahoo.com/lifestyle/does-sugar-feed-cancer-latest-175643492.html)
 - Mar 11 - [Iran's President to Trump: I will not negotiate, 'do whatever the hell you want'](https://www.yahoo.com/news/irans-president-trump-not-negotiate-174849201.html)
-- Mar 11 - [Why Lockheed Martin Corporation (LMT) Is Gaining This Week?](https://finance.yahoo.com/news/why-lockheed-martin-corporation-lmt-173843182.html)
-- Mar 11 - [Jamie Dimon says business school grads taking a private equity job while already working at JPMorgan is ‘unethical’](https://finance.yahoo.com/news/jamie-dimon-says-business-school-145008674.html)
-- Mar 11 - [The end of MAGA's dominance: "The American people see the Democrats take down Trump themselves"](https://www.yahoo.com/news/end-magas-dominance-american-people-135843869.html)
-- Mar 11 - [Residents on edge after woman attacked at Mass. cemetery while paying respects to grandparents](https://www.yahoo.com/news/residents-edge-woman-attacked-mass-131043039.html)
+- Mar 11 - [Donald Trump's Tweet From Last Year Is Going Viral Because It Literally Predicted The Future](https://www.yahoo.com/news/resurfaced-donald-trump-post-going-161713354.html)
 <!-- feed end -->
 
 ### Onstream
