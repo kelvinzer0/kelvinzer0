@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Air India flight from Chicago to New Delhi returns hours into journey after rags, clothes and plastic bags clog toilets](https://www.yahoo.com/news/air-india-flight-chicago-delhi-095908067.html)
-- Mar 11 - [Constellation Energy CEO talks AI, deals, and regulation](https://finance.yahoo.com/video/constellation-energy-ceo-talks-ai-110028646.html)
-- Mar 11 - [Trump's tariffs create the 'Wild West' on Wisconsin's factory floors](https://finance.yahoo.com/news/trumps-tariffs-create-wild-west-100519813.html)
-- Mar 11 - [NBA paused. Tom Hanks' diagnosis. A Trump address. Here's what happened on March 11, 2020.](https://www.yahoo.com/news/nba-paused-tom-hanks-diagnosis-084909550.html)
-- Mar 11 - [American college student missing in Dominican Republic didn't drown, Natalee Holloway private eye believes](https://www.yahoo.com/news/american-college-student-missing-dominican-080050913.html)
+- Mar 11 - [Columbia protester's immigration arrest fuels debate ahead of court hearing](https://www.yahoo.com/news/columbia-protesters-immigration-arrest-fuels-130935017.html)
+- Mar 11 - [Ex-Barclays CEO Staley says he had no idea of Epstein's 'monstrous activities'](https://finance.yahoo.com/news/ex-barclays-ceo-staley-says-130101352.html)
+- Mar 11 - [‘Jeopardy!’ champ with Parkinson’s shares touching story](https://www.yahoo.com/news/jeopardy-champ-parkinson-shares-touching-123025096.html)
+- Mar 11 - [I Was In The Women's Restroom When A Man Came In And Called Out A Question That Left Me Nauseated](https://www.yahoo.com/lifestyle/womens-restroom-man-came-called-122540165.html)
+- Mar 11 - [Tesla owners offloading their cars over Elon Musk backlash are in for a nasty surprise](https://finance.yahoo.com/news/tesla-owners-offloading-cars-over-114255052.html)
 <!-- feed end -->
 
 ### Onstream
