@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [February CPI report expected to show inflation moderated as 'stagflation' fears rise](https://finance.yahoo.com/news/february-cpi-report-expected-to-show-inflation-moderated-as-stagflation-fears-rise-184443587.html)
-- Mar 11 - [Israel kills senior Hezbollah militant, frees four Lebanese prisoners](https://www.yahoo.com/news/israel-kills-senior-hezbollah-militant-180750109.html)
-- Mar 11 - [Does Sugar Feed Cancer? Here’s What the Latest Science Says](https://www.yahoo.com/lifestyle/does-sugar-feed-cancer-latest-175643492.html)
+- Mar 11 - [2nd deadly crash on Charlotte road renews calls for safety](https://www.yahoo.com/news/2nd-deadly-crash-charlotte-road-191338472.html)
+- Mar 11 - [White House dismisses economic concerns, says market volatility is 'a snapshot in a moment in time'](https://www.yahoo.com/news/white-house-dismisses-economic-concerns-185813564.html)
 - Mar 11 - [Iran's President to Trump: I will not negotiate, 'do whatever the hell you want'](https://www.yahoo.com/news/irans-president-trump-not-negotiate-174849201.html)
+- Mar 11 - [The 5 states in America most dependent on federal funding — and the 5 least dependent](https://www.yahoo.com/news/5-most-federally-dependent-states-154600764.html)
 - Mar 11 - [Donald Trump's Tweet From Last Year Is Going Viral Because It Literally Predicted The Future](https://www.yahoo.com/news/resurfaced-donald-trump-post-going-161713354.html)
 <!-- feed end -->
 
