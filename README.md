@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Bill Burr Says ‘Idiot’ Elon Musk Is ‘Evidently a Nazi’ With ‘Dyed Hair Plugs and a Laminated Face’: ‘I Hate Liberals’ for Being ‘So Afraid of This Guy’](https://www.yahoo.com/entertainment/bill-burr-says-idiot-elon-195030998.html)
-- Mar 11 - [DOGE axes CISA ‘red team’ staffers amid ongoing federal cuts](https://finance.yahoo.com/news/doge-axes-cisa-red-team-184423328.html)
+- Mar 11 - [What's the number one way Americans are becoming millionaires​?](https://finance.yahoo.com/personal-finance/banking/article/the-number-one-way-americans-are-becoming-millionaires-191057199.html)
+- Mar 11 - [Stock market plunge is ‘direct response’ to ‘incompetence’ of Trump’s decision-making: Setmayer](https://www.yahoo.com/news/stock-market-plunge-direct-response-181226334.html)
 - Mar 11 - [Iran's President to Trump: I will not negotiate, 'do whatever the hell you want'](https://www.yahoo.com/news/irans-president-trump-not-negotiate-174849201.html)
+- Mar 11 - [The 5 states in America most dependent on federal funding — and the 5 least dependent](https://www.yahoo.com/news/5-most-federally-dependent-states-154600764.html)
 - Mar 11 - [Donald Trump's Tweet From Last Year Is Going Viral Because It Literally Predicted The Future](https://www.yahoo.com/news/resurfaced-donald-trump-post-going-161713354.html)
-- Mar 11 - [Tesla owners offloading their cars over Elon Musk backlash are in for a nasty surprise](https://finance.yahoo.com/news/tesla-owners-offloading-cars-over-155236295.html)
 <!-- feed end -->
 
 ### Onstream
