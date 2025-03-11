@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Ex Philippine president Duterte arrested over 'war on drugs' deaths](https://www.yahoo.com/news/ex-philippine-president-duterte-arrested-055116003.html)
 - Mar 11 - [Jamie Dimon says it's only 'people in the middle' complaining a lot about RTO](https://finance.yahoo.com/news/jamie-dimon-says-only-people-044053287.html)
-- Mar 11 - [Cargo vessel that collided with US-military chartered tanker was carrying sodium cyanide](https://www.yahoo.com/news/cargo-vessel-collides-oil-tanker-151014170.html)
-- Mar 11 - [MPS paraprofessional charged with child abuse](https://www.yahoo.com/news/mps-paraprofessional-charged-child-abuse-021811982.html)
+- Mar 11 - [Former President Rodrigo Duterte arrested in the Philippines on an ICC warrant over drug killings](https://www.yahoo.com/news/former-philippine-leader-duterte-arrested-032553253.html)
+- Mar 11 - [Ukraine strikes Moscow in biggest drone attack on Russian capital](https://www.yahoo.com/news/ukraine-launches-drone-attacks-targeting-021529778.html)
+- Mar 11 - [PM Justin Trudeau’s hilarious House of Commons exit caught in viral photo: ‘What a goofy legend’](https://www.yahoo.com/news/pm-justin-trudeaus-hilarious-house-of-commons-exit-caught-in-viral-photo-what-a-goofy-legend-014847920.html)
 - Mar 10 - [Ukraine on its way to negotiated surrender because of Trump: Bolton | Elizabeth Vargas Reports](https://www.yahoo.com/news/ukraine-way-negotiated-surrender-because-235431376.html)
 <!-- feed end -->
 
