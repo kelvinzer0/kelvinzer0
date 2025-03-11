@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [1 No-Brainer Artificial Intelligence (AI) ETF to Buy With $40 During the Nasdaq Sell-Off](https://finance.yahoo.com/news/1-no-brainer-artificial-intelligence-085900719.html)
+- Mar 11 - [Investors Learn Brutal Lesson From Sweden’s Wind Farm Woes](https://finance.yahoo.com/news/investors-learn-brutal-lesson-swedens-050008371.html)
 - Mar 11 - [Jamie Dimon says it's only 'people in the middle' complaining a lot about RTO](https://finance.yahoo.com/news/jamie-dimon-says-only-people-044053287.html)
 - Mar 11 - [Former President Rodrigo Duterte arrested in the Philippines on an ICC warrant over drug killings](https://www.yahoo.com/news/former-philippine-leader-duterte-arrested-032553253.html)
 - Mar 11 - [Cargo vessel that collided with US-military chartered tanker was carrying sodium cyanide](https://www.yahoo.com/news/cargo-vessel-collides-oil-tanker-151014170.html)
-- Mar 11 - [Police searching for missing Natick 11-year-old](https://www.yahoo.com/news/police-searching-missing-natick-11-004746991.html)
+- Mar 11 - [Two killed in biggest ever Ukrainian drone attack on Moscow](https://www.yahoo.com/news/ukraine-launches-drone-attacks-targeting-021529778.html)
 <!-- feed end -->
 
 ### Onstream
