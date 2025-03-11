@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Corporate America is 'absolutely' seeing a slowdown. Here's why.](https://finance.yahoo.com/video/corporate-america-absolutely-seeing-slowdown-151500424.html)
+- Mar 11 - [Filipino's affected by drug war hold vigil after Duterte's arrest](https://www.yahoo.com/news/filipinos-affected-drug-war-hold-165028732.html)
+- Mar 11 - [1 crew member missing after Portuguese-flagged ship slams U.S. tanker in North Sea](https://www.yahoo.com/news/1-crew-member-missing-u-160335478.html)
 - Mar 11 - [A painting stolen from an Italian museum is found in England, but its new owner wants to keep it](https://www.yahoo.com/news/painting-stolen-italian-museum-found-151224459.html)
-- Mar 11 - [The end of MAGA's dominance: "The American people see the Democrats take down Trump themselves"](https://www.yahoo.com/news/end-magas-dominance-american-people-135843869.html)
 - Mar 11 - [Residents on edge after woman attacked at Mass. cemetery while paying respects to grandparents](https://www.yahoo.com/news/residents-edge-woman-attacked-mass-131043039.html)
 - Mar 11 - ['War has come': Russians shaken by Ukrainian drone barrage](https://www.yahoo.com/news/war-come-russians-shaken-ukrainian-130523521.html)
 <!-- feed end -->
