@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Investors Learn Brutal Lesson From Sweden’s Wind Farm Woes](https://finance.yahoo.com/news/investors-learn-brutal-lesson-swedens-050008371.html)
-- Mar 11 - [Jamie Dimon says it's only 'people in the middle' complaining a lot about RTO](https://finance.yahoo.com/news/jamie-dimon-says-only-people-044053287.html)
-- Mar 11 - [Former President Rodrigo Duterte arrested in the Philippines on an ICC warrant over drug killings](https://www.yahoo.com/news/former-philippine-leader-duterte-arrested-032553253.html)
-- Mar 11 - [Cargo vessel that collided with US-military chartered tanker was carrying sodium cyanide](https://www.yahoo.com/news/cargo-vessel-collides-oil-tanker-151014170.html)
-- Mar 11 - [Two killed in biggest ever Ukrainian drone attack on Moscow](https://www.yahoo.com/news/ukraine-launches-drone-attacks-targeting-021529778.html)
+- Mar 11 - [Constellation Energy CEO talks AI, deals, and regulation](https://finance.yahoo.com/video/constellation-energy-ceo-talks-ai-110028646.html)
+- Mar 11 - [37-year-old single mom went from just $10,000 in savings after her divorce to earning nearly $1 million a year at AI job](https://finance.yahoo.com/news/37-old-single-mom-went-104400603.html)
+- Mar 11 - [American college student missing in Dominican Republic didn't drown, Natalee Holloway private eye believes](https://www.yahoo.com/news/american-college-student-missing-dominican-080050913.html)
+- Mar 11 - [Clear risks that Sweden's security situation could get worse, Swedish security police says](https://www.yahoo.com/news/clear-risks-swedens-security-situation-073633878.html)
+- Mar 11 - [The list of the world’s top 20 most polluted cities is out. All but one are in Asia](https://www.yahoo.com/news/list-world-top-20-most-040152422.html)
 <!-- feed end -->
 
 ### Onstream
