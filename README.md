@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Inflation data cools in February, easing investor fears about the health of the US economy](https://finance.yahoo.com/news/inflation-data-cools-in-february-easing-investor-fears-about-the-health-of-the-us-economy-123241312.html)
-- Mar 12 - [Trump said Russia had ‘all the cards,’ but this ceasefire proposal just called Putin’s bluff](https://www.yahoo.com/news/trump-said-russia-had-cards-011344093.html)
+- Mar 12 - [Goldman Sachs cuts S&P 500 target, citing Maleficent 7 weakness](https://finance.yahoo.com/video/goldman-sachs-cuts-p-500-135025424.html)
+- Mar 12 - [EasyJet investigating after pilot  reportedly flew too close to mountain](https://www.yahoo.com/news/easyjet-investigating-pilot-reportedly-flew-131103176.html)
 - Mar 12 - [RFK Jr. Makes More Alarming Comments About Measles Amid U.S. Outbreaks](https://www.yahoo.com/news/rfk-jr-makes-more-alarming-122346777.html)
 - Mar 12 - [We're struggling despite my $172,000 salary. I'm worried about the economy under Trump. Should we stick it out or leave?](https://finance.yahoo.com/news/were-struggling-despite-172-000-115500036.html)
-- Mar 12 - [Experts alarmed after researching bottlenose dolphins off coast of Florida: 'There's a growing concern'](https://www.yahoo.com/news/experts-alarmed-researching-bottlenose-dolphins-101516149.html)
+- Mar 12 - [Researchers make concerning discovery after examining sheep feces found on lettuce crops: 'Increasing impacts on our health and food security'](https://www.yahoo.com/news/researchers-concerning-discovery-examining-sheep-104559558.html)
 <!-- feed end -->
 
 ### Onstream
