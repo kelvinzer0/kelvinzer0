@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Indonesian fishermen sue Bumble Bee and say the canned tuna giant knew of abuse in its supply chain](https://www.yahoo.com/news/indonesian-fishermen-sue-bumble-bee-181023508.html)
+- Mar 12 - [Wisconsin clerk who failed to count almost 200 ballots is suspended](https://www.yahoo.com/news/wisconsin-clerk-failed-count-almost-172913871.html)
 - Mar 12 - [Linda McMahon Makes Major Fumble On Fox News While Trying To Defend Education Cuts](https://www.yahoo.com/news/linda-mcmahon-makes-major-fumble-151837816.html)
 - Mar 12 - [People Zoomed Into Donald Trump's Tesla Sales Pitch And Can't Believe What They're Seeing](https://www.yahoo.com/entertainment/donald-trumps-tesla-sales-script-150620563.html)
-- Mar 12 - [German spy agency concluded COVID virus likely leaked from lab, papers say](https://www.yahoo.com/news/german-spy-agency-concluded-covid-143453885.html)
-- Mar 12 - [Police pursue 'rifleman' at under-10s football match](https://www.yahoo.com/news/police-pursue-rifleman-under-10s-135615987.html)
-- Mar 12 - [Europe Hits Back at Trump Tariffs by Targeting Republican States](https://www.yahoo.com/news/europe-hits-back-trump-tariffs-131301710.html)
+- Mar 12 - [A rare Alabama storm threat arrives this weekend. Here's what to expect.](https://www.yahoo.com/news/rare-alabama-storm-threat-arrives-143504139.html)
 <!-- feed end -->
 
 ### Onstream
