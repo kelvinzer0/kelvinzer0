@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Trump slump! MAGA billionaires lose 200B, banks pin crash on 'extreme' Trumpism](https://www.yahoo.com/news/trump-slump-maga-billionaires-lose-233521618.html)
-- Mar 11 - [Musk launches appeal to restore $56 billion Tesla payday](https://finance.yahoo.com/news/musk-launches-appeal-restore-56-223029184.html)
+- Mar 11 - [Kennedy tells US food companies to remove artificial dyes](https://www.yahoo.com/news/kennedy-tells-us-food-companies-220723799.html)
 - Mar 11 - [Researchers are learning the Trump administration axed their work to improve vaccination](https://www.yahoo.com/news/researchers-learning-trump-administration-axed-215244682.html)
-- Mar 11 - [The sellers of a $4.9 million house bragged their kids went to Harvard and Stanford. It might've found them a buyer.](https://www.yahoo.com/lifestyle/sellers-4-9-million-house-195454362.html)
-- Mar 11 - [Bill Burr Says ‘Idiot’ Elon Musk Is ‘Evidently a Nazi’ With ‘Dyed Hair Plugs and a Laminated Face’: ‘I Hate Liberals’ for Being ‘So Afraid of This Guy’](https://www.yahoo.com/entertainment/bill-burr-says-idiot-elon-195030998.html)
+- Mar 11 - [Two men accused of assault at Cordova restaurant](https://www.yahoo.com/news/two-men-accused-assault-cordova-214355541.html)
+- Mar 11 - [Man Whose Daughter Died From Measles Stands by Failure to Vaccinate Her: "The Vaccination Has Stuff We Don’t Trust"](https://www.yahoo.com/news/man-whose-daughter-died-measles-213712327.html)
+- Mar 11 - [This historic $1.8 million church is for sale in St. Louis](https://www.yahoo.com/lifestyle/historic-1-8-million-church-213617971.html)
 <!-- feed end -->
 
 ### Onstream
