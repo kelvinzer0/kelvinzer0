@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [US chipmaker Intel appoints industry veteran Lip-Bu Tan as CEO](https://finance.yahoo.com/news/us-chipmaker-intel-appoints-lip-201927228.html)
 - Mar 12 - [Ford shows off a treasure trove of rarely seen vehicles to a select few at its Michigan headquarters](https://autos.yahoo.com/ford-shows-off-treasure-trove-185511715.html)
 - Mar 12 - [Oregon appeals court says voter-approved gun law is constitutional, reversing lower court ruling](https://www.yahoo.com/news/oregon-appeals-court-says-voter-184100179.html)
+- Mar 12 - [Staley Said He Had Sex With Epstein Staffer in NYC Apartment](https://finance.yahoo.com/news/staley-said-had-sex-epstein-183745922.html)
 - Mar 12 - [‘Absolute tragedy’: Four dead in local crash](https://www.yahoo.com/news/four-dead-stolen-car-slams-073627767.html)
-- Mar 12 - [Wisconsin clerk who failed to count almost 200 ballots is suspended](https://www.yahoo.com/news/wisconsin-clerk-failed-count-almost-172913871.html)
-- Mar 12 - [Elon Musk's Father Warned In November That If Elon Had To Step Away From His Companies For Government Duties, It Could Be 'A Big Concern'](https://finance.yahoo.com/news/elon-musks-father-warned-november-170045832.html)
 <!-- feed end -->
 
 ### Onstream
