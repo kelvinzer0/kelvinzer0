@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Ex-Tennessee lawmaker announces Trump's pardon 2 weeks into prison time for campaign finance scheme](https://www.yahoo.com/news/ex-tennessee-lawmaker-announces-trumps-144717078.html)
+- Mar 12 - [Linda McMahon Makes Major Fumble On Fox News While Trying To Defend Education Cuts](https://www.yahoo.com/news/linda-mcmahon-makes-major-fumble-151837816.html)
+- Mar 12 - [Man tried to sneak turtle through airport security in his pants, TSA says](https://www.yahoo.com/news/man-tried-sneak-turtle-airport-150959019.html)
+- Mar 12 - [Elon Musk Reportedly Wants the Government to Shut Down So He Can Do Something Dark](https://www.yahoo.com/news/elon-musk-reportedly-wants-government-150942719.html)
 - Mar 12 - [German spy agency concluded COVID virus likely leaked from lab, papers say](https://www.yahoo.com/news/german-spy-agency-concluded-covid-143453885.html)
-- Mar 12 - [A woman realized she could work out to live longer not just look better. 3 simple things helped her make exercise a fun, daily habit.](https://www.yahoo.com/lifestyle/woman-realized-she-could-live-121849345.html)
 - Mar 12 - [A vast undersea tunnel is being built that will change the road and rail map of Europe](https://www.yahoo.com/news/vast-undersea-tunnel-being-built-115723959.html)
-- Mar 12 - [Goldman Sachs cuts S&P 500 target, citing Maleficent 7 weakness](https://finance.yahoo.com/video/goldman-sachs-cuts-p-500-135025424.html)
 <!-- feed end -->
 
 ### Onstream
