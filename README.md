@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Ship owner says arrested captain of cargo vessel involved in North Sea collision is Russian](https://www.yahoo.com/news/ship-owner-says-arrested-captain-092515121.html)
+- Mar 12 - [Inflation data cools in February, easing investor fears about the health of the US economy](https://finance.yahoo.com/news/inflation-data-cools-in-february-easing-investor-fears-about-the-health-of-the-us-economy-123241312.html)
+- Mar 12 - [Mortgage and refinance rates today, March 12, 2025: Struggling economy pushes rates down](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-march-12-2025-100032528.html)
+- Mar 12 - [Some CPS teachers claim REACH evaluation system disproportionately targets Black educators](https://www.yahoo.com/news/cps-teachers-claim-reach-evaluation-100000417.html)
+- Mar 12 - [Trump said Russia had ‘all the cards,’ but this ceasefire proposal just called Putin’s bluff](https://www.yahoo.com/news/trump-said-russia-had-cards-011344093.html)
 - Mar 12 - [Scott Peterson injured in prison | Banfield](https://www.yahoo.com/news/scott-peterson-injured-prison-banfield-030240007.html)
-- Mar 11 - [Musk launches appeal to restore $56 billion Tesla payday](https://finance.yahoo.com/news/musk-launches-appeal-restore-56-223029184.html)
-- Mar 11 - [Researchers are learning the Trump administration axed their work to improve vaccination](https://www.yahoo.com/news/researchers-learning-trump-administration-axed-215244682.html)
-- Mar 11 - [Man Whose Daughter Died From Measles Stands by Failure to Vaccinate Her: "The Vaccination Has Stuff We Don’t Trust"](https://www.yahoo.com/news/man-whose-daughter-died-measles-213712327.html)
 <!-- feed end -->
 
 ### Onstream
