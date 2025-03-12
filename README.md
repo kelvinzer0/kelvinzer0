@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 12 - [Linda McMahon Makes Major Fumble On Fox News While Trying To Defend Education Cuts](https://www.yahoo.com/news/linda-mcmahon-makes-major-fumble-151837816.html)
 - Mar 12 - [People Zoomed Into Donald Trump's Tesla Sales Pitch And Can't Believe What They're Seeing](https://www.yahoo.com/entertainment/donald-trumps-tesla-sales-script-150620563.html)
-- Mar 12 - [A rare Alabama storm threat arrives this weekend. Here's what to expect.](https://www.yahoo.com/news/rare-alabama-storm-threat-arrives-143504139.html)
 - Mar 12 - [German spy agency concluded COVID virus likely leaked from lab, papers say](https://www.yahoo.com/news/german-spy-agency-concluded-covid-143453885.html)
-- Mar 12 - [EU's tariffs will be 'devastating' for spirits sector, industry says](https://finance.yahoo.com/news/eus-tariffs-devastating-spirits-sector-141839732.html)
+- Mar 12 - [Police pursue 'rifleman' at under-10s football match](https://www.yahoo.com/news/police-pursue-rifleman-under-10s-135615987.html)
+- Mar 12 - [Europe Hits Back at Trump Tariffs by Targeting Republican States](https://www.yahoo.com/news/europe-hits-back-trump-tariffs-131301710.html)
 <!-- feed end -->
 
 ### Onstream
