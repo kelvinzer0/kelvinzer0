@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [California prisons restrict movement, calls and visits as violence surges](https://www.yahoo.com/news/california-prisons-restrict-movement-calls-032601517.html)
-- Mar 12 - [46-Year-Old Making $36,500 in Dividends Shares His Top 8 High-Yield Stocks — 'I Do What I Want on Regular Basis'](https://finance.yahoo.com/news/46-old-making-36-500-010041269.html)
-- Mar 11 - [Trump slump! MAGA billionaires lose 200B, banks pin crash on 'extreme' Trumpism](https://www.yahoo.com/news/trump-slump-maga-billionaires-lose-233521618.html)
+- Mar 12 - [This 'Dune' isn't fiction. It's the longest conveyer belt in the US and moving sand in Texas](https://www.yahoo.com/news/dune-isnt-fiction-longest-conveyer-040311880.html)
+- Mar 12 - [Trump said Russia had ‘all the cards,’ but this ceasefire proposal just called Putin’s bluff](https://www.yahoo.com/news/trump-said-russia-had-cards-011344093.html)
+- Mar 12 - [Scott Peterson injured in prison | Banfield](https://www.yahoo.com/news/scott-peterson-injured-prison-banfield-030240007.html)
 - Mar 11 - [Musk launches appeal to restore $56 billion Tesla payday](https://finance.yahoo.com/news/musk-launches-appeal-restore-56-223029184.html)
 - Mar 11 - [Kennedy tells US food companies to remove artificial dyes](https://www.yahoo.com/news/kennedy-tells-us-food-companies-220723799.html)
 <!-- feed end -->
