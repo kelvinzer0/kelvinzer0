@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 12 - [Inflation data cools in February, easing investor fears about the health of the US economy](https://finance.yahoo.com/news/inflation-data-cools-in-february-easing-investor-fears-about-the-health-of-the-us-economy-123241312.html)
-- Mar 12 - [Mortgage and refinance rates today, March 12, 2025: Struggling economy pushes rates down](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-march-12-2025-100032528.html)
-- Mar 12 - [Some CPS teachers claim REACH evaluation system disproportionately targets Black educators](https://www.yahoo.com/news/cps-teachers-claim-reach-evaluation-100000417.html)
 - Mar 12 - [Trump said Russia had ‘all the cards,’ but this ceasefire proposal just called Putin’s bluff](https://www.yahoo.com/news/trump-said-russia-had-cards-011344093.html)
-- Mar 12 - [Scott Peterson injured in prison | Banfield](https://www.yahoo.com/news/scott-peterson-injured-prison-banfield-030240007.html)
+- Mar 12 - [RFK Jr. Makes More Alarming Comments About Measles Amid U.S. Outbreaks](https://www.yahoo.com/news/rfk-jr-makes-more-alarming-122346777.html)
+- Mar 12 - [We're struggling despite my $172,000 salary. I'm worried about the economy under Trump. Should we stick it out or leave?](https://finance.yahoo.com/news/were-struggling-despite-172-000-115500036.html)
+- Mar 12 - [Experts alarmed after researching bottlenose dolphins off coast of Florida: 'There's a growing concern'](https://www.yahoo.com/news/experts-alarmed-researching-bottlenose-dolphins-101516149.html)
 <!-- feed end -->
 
 ### Onstream
