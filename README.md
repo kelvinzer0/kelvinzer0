@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 12 - [Ford shows off a treasure trove of rarely seen vehicles to a select few at its Michigan headquarters](https://autos.yahoo.com/ford-shows-off-treasure-trove-185511715.html)
 - Mar 12 - [Oregon appeals court says voter-approved gun law is constitutional, reversing lower court ruling](https://www.yahoo.com/news/oregon-appeals-court-says-voter-184100179.html)
+- Mar 12 - [‘Absolute tragedy’: Four dead in local crash](https://www.yahoo.com/news/four-dead-stolen-car-slams-073627767.html)
 - Mar 12 - [Wisconsin clerk who failed to count almost 200 ballots is suspended](https://www.yahoo.com/news/wisconsin-clerk-failed-count-almost-172913871.html)
-- Mar 12 - ['Very bad for Russia': Trump issues warning as U.S. awaits response to ceasefire proposal](https://www.yahoo.com/news/very-bad-russia-trump-issues-171332944.html)
-- Mar 12 - [32 Things Basically Every Person On Earth Has Experienced Once In Their Life But Would Never Admit In A Million Years](https://www.yahoo.com/lifestyle/32-things-know-fact-every-154602111.html)
+- Mar 12 - [Elon Musk's Father Warned In November That If Elon Had To Step Away From His Companies For Government Duties, It Could Be 'A Big Concern'](https://finance.yahoo.com/news/elon-musks-father-warned-november-170045832.html)
 <!-- feed end -->
 
 ### Onstream
