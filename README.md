@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 12 - [Linda McMahon Makes Major Fumble On Fox News While Trying To Defend Education Cuts](https://www.yahoo.com/news/linda-mcmahon-makes-major-fumble-151837816.html)
-- Mar 12 - [Man tried to sneak turtle through airport security in his pants, TSA says](https://www.yahoo.com/news/man-tried-sneak-turtle-airport-150959019.html)
-- Mar 12 - [Elon Musk Reportedly Wants the Government to Shut Down So He Can Do Something Dark](https://www.yahoo.com/news/elon-musk-reportedly-wants-government-150942719.html)
+- Mar 12 - [People Zoomed Into Donald Trump's Tesla Sales Pitch And Can't Believe What They're Seeing](https://www.yahoo.com/entertainment/donald-trumps-tesla-sales-script-150620563.html)
+- Mar 12 - [A rare Alabama storm threat arrives this weekend. Here's what to expect.](https://www.yahoo.com/news/rare-alabama-storm-threat-arrives-143504139.html)
 - Mar 12 - [German spy agency concluded COVID virus likely leaked from lab, papers say](https://www.yahoo.com/news/german-spy-agency-concluded-covid-143453885.html)
-- Mar 12 - [A vast undersea tunnel is being built that will change the road and rail map of Europe](https://www.yahoo.com/news/vast-undersea-tunnel-being-built-115723959.html)
+- Mar 12 - [EU's tariffs will be 'devastating' for spirits sector, industry says](https://finance.yahoo.com/news/eus-tariffs-devastating-spirits-sector-141839732.html)
 <!-- feed end -->
 
 ### Onstream
