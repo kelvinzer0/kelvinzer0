@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [Trump slump! MAGA billionaires lose 200B, banks pin crash on 'extreme' Trumpism](https://www.yahoo.com/news/trump-slump-maga-billionaires-lose-233521618.html)
 - Mar 11 - [Musk launches appeal to restore $56 billion Tesla payday](https://finance.yahoo.com/news/musk-launches-appeal-restore-56-223029184.html)
-- Mar 11 - [Construction team chosen to build $1 billion OKC arena to open in 2028](https://www.yahoo.com/news/construction-team-chosen-build-1-222316834.html)
-- Mar 11 - [Kennedy tells US food companies to remove artificial dyes](https://www.yahoo.com/news/kennedy-tells-us-food-companies-220723799.html)
+- Mar 11 - [Researchers are learning the Trump administration axed their work to improve vaccination](https://www.yahoo.com/news/researchers-learning-trump-administration-axed-215244682.html)
 - Mar 11 - [The sellers of a $4.9 million house bragged their kids went to Harvard and Stanford. It might've found them a buyer.](https://www.yahoo.com/lifestyle/sellers-4-9-million-house-195454362.html)
 - Mar 11 - [Bill Burr Says ‘Idiot’ Elon Musk Is ‘Evidently a Nazi’ With ‘Dyed Hair Plugs and a Laminated Face’: ‘I Hate Liberals’ for Being ‘So Afraid of This Guy’](https://www.yahoo.com/entertainment/bill-burr-says-idiot-elon-195030998.html)
 <!-- feed end -->
