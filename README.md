@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Ex-Tennessee lawmaker announces Trump's pardon 2 weeks into prison time for campaign finance scheme](https://www.yahoo.com/news/ex-tennessee-lawmaker-announces-trumps-144717078.html)
+- Mar 12 - [German spy agency concluded COVID virus likely leaked from lab, papers say](https://www.yahoo.com/news/german-spy-agency-concluded-covid-143453885.html)
+- Mar 12 - [A woman realized she could work out to live longer not just look better. 3 simple things helped her make exercise a fun, daily habit.](https://www.yahoo.com/lifestyle/woman-realized-she-could-live-121849345.html)
+- Mar 12 - [A vast undersea tunnel is being built that will change the road and rail map of Europe](https://www.yahoo.com/news/vast-undersea-tunnel-being-built-115723959.html)
 - Mar 12 - [Goldman Sachs cuts S&P 500 target, citing Maleficent 7 weakness](https://finance.yahoo.com/video/goldman-sachs-cuts-p-500-135025424.html)
-- Mar 12 - [EasyJet investigating after pilot  reportedly flew too close to mountain](https://www.yahoo.com/news/easyjet-investigating-pilot-reportedly-flew-131103176.html)
-- Mar 12 - [RFK Jr. Makes More Alarming Comments About Measles Amid U.S. Outbreaks](https://www.yahoo.com/news/rfk-jr-makes-more-alarming-122346777.html)
-- Mar 12 - [We're struggling despite my $172,000 salary. I'm worried about the economy under Trump. Should we stick it out or leave?](https://finance.yahoo.com/news/were-struggling-despite-172-000-115500036.html)
-- Mar 12 - [Researchers make concerning discovery after examining sheep feces found on lettuce crops: 'Increasing impacts on our health and food security'](https://www.yahoo.com/news/researchers-concerning-discovery-examining-sheep-104559558.html)
 <!-- feed end -->
 
 ### Onstream
