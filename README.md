@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [US chipmaker Intel appoints industry veteran Lip-Bu Tan as CEO](https://finance.yahoo.com/news/us-chipmaker-intel-appoints-lip-201927228.html)
-- Mar 12 - [Ford shows off a treasure trove of rarely seen vehicles to a select few at its Michigan headquarters](https://autos.yahoo.com/ford-shows-off-treasure-trove-185511715.html)
+- Mar 12 - [Video shows moment fuel tanker, container ship collide off UK coast](https://www.yahoo.com/news/video-shows-moment-fuel-tanker-230143089.html)
+- Mar 12 - [Unpacking February's slight inflation cooldown](https://www.yahoo.com/news/unpacking-februarys-slight-inflation-cooldown-223337721.html)
+- Mar 12 - [Trump’s FBI Moves to Criminally Charge Major Climate Groups](https://www.yahoo.com/news/trump-fbi-moves-criminally-charge-190534242.html)
 - Mar 12 - [Oregon appeals court says voter-approved gun law is constitutional, reversing lower court ruling](https://www.yahoo.com/news/oregon-appeals-court-says-voter-184100179.html)
 - Mar 12 - [Staley Said He Had Sex With Epstein Staffer in NYC Apartment](https://finance.yahoo.com/news/staley-said-had-sex-epstein-183745922.html)
-- Mar 12 - [‘Absolute tragedy’: Four dead in local crash](https://www.yahoo.com/news/four-dead-stolen-car-slams-073627767.html)
 <!-- feed end -->
 
 ### Onstream
