@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Indonesian fishermen sue Bumble Bee and say the canned tuna giant knew of abuse in its supply chain](https://www.yahoo.com/news/indonesian-fishermen-sue-bumble-bee-181023508.html)
+- Mar 12 - [Ford shows off a treasure trove of rarely seen vehicles to a select few at its Michigan headquarters](https://autos.yahoo.com/ford-shows-off-treasure-trove-185511715.html)
+- Mar 12 - [Oregon appeals court says voter-approved gun law is constitutional, reversing lower court ruling](https://www.yahoo.com/news/oregon-appeals-court-says-voter-184100179.html)
 - Mar 12 - [Wisconsin clerk who failed to count almost 200 ballots is suspended](https://www.yahoo.com/news/wisconsin-clerk-failed-count-almost-172913871.html)
-- Mar 12 - [Linda McMahon Makes Major Fumble On Fox News While Trying To Defend Education Cuts](https://www.yahoo.com/news/linda-mcmahon-makes-major-fumble-151837816.html)
-- Mar 12 - [People Zoomed Into Donald Trump's Tesla Sales Pitch And Can't Believe What They're Seeing](https://www.yahoo.com/entertainment/donald-trumps-tesla-sales-script-150620563.html)
-- Mar 12 - [A rare Alabama storm threat arrives this weekend. Here's what to expect.](https://www.yahoo.com/news/rare-alabama-storm-threat-arrives-143504139.html)
+- Mar 12 - ['Very bad for Russia': Trump issues warning as U.S. awaits response to ceasefire proposal](https://www.yahoo.com/news/very-bad-russia-trump-issues-171332944.html)
+- Mar 12 - [32 Things Basically Every Person On Earth Has Experienced Once In Their Life But Would Never Admit In A Million Years](https://www.yahoo.com/lifestyle/32-things-know-fact-every-154602111.html)
 <!-- feed end -->
 
 ### Onstream
