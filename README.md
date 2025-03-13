@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Father gets 13 years for shooting youth football coach over son’s playing time](https://www.yahoo.com/news/father-gets-13-years-shooting-192231348.html)
+- Mar 13 - [Dow Jones Futures: S&P 500 Hits New Low On Trump Tariff Threats; Warren Buffett Stock Makes Bullish Move](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-sp-500-trump-tariff-threats-warren-buffett-stock/?src=A00220&yptr=yahoo)
+- Mar 13 - [Trump believes US will annex Greenland as NATO leader tells him the organization will sit out potential takeover](https://www.yahoo.com/news/trump-vows-annex-greenland-sits-180654737.html)
+- Mar 13 - [Sea levels rise by 'unexpected' amount in 2024: NASA](https://www.yahoo.com/news/sea-levels-rise-unexpected-amount-204651152.html)
 - Mar 13 - [North Dakota lawmaker became disoriented by darkness before plane crash that killed 4](https://www.yahoo.com/news/north-dakota-lawmaker-became-disoriented-190701437.html)
-- Mar 13 - [First responders find huge catfish in truck pulled from Oklahoma River](https://www.yahoo.com/news/first-responders-huge-catfish-truck-180836834.html)
-- Mar 13 - [Our Best Look Yet At China’s New ‘Invasion Barges’](https://www.yahoo.com/news/best-look-yet-china-invasion-180741826.html)
-- Mar 13 - [Nvidia's Huang, critics were wrong about quantum computing: D-Wave CEO](https://finance.yahoo.com/video/nvidias-huang-critics-were-wrong-170000181.html)
+- Mar 13 - [Knoxville, East Tennessee could see tornadoes, damaging wind as part of severe thunderstorm outbreak](https://www.yahoo.com/news/knoxville-east-tennessee-could-see-155905004.html)
 <!-- feed end -->
 
 ### Onstream
