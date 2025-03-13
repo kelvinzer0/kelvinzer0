@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Mortgage and refinance rates today, March 13, 2025: Rates increase in response to inflation](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-march-13-2025-100017973.html)
-- Mar 13 - [Man allegedly held captive by stepmother for more than 20 years escaped after setting a fire in their home](https://www.yahoo.com/news/man-allegedly-held-captive-stepmother-093130395.html)
+- Mar 13 - [Palantir hosts annual AIPCon while announcing Archer partnership](https://finance.yahoo.com/video/palantir-hosts-annual-aipcon-while-132945643.html)
+- Mar 13 - [Video shows additional people on Punta Cana beach when US student went missing, sources say](https://www.yahoo.com/news/details-emerge-missing-us-student-071910579.html)
+- Mar 13 - [Tim Walz Says 'We Wouldn't Be In This Mess' If It Wasn't For Him And Harris](https://www.yahoo.com/news/tim-walz-says-wouldnt-mess-122535558.html)
 - Mar 13 - [Fox Reports On ‘Good News’ For Donald Trump… But Then Immediately Sounds The Alarm](https://www.yahoo.com/news/fox-reports-good-news-trump-075656855.html)
 - Mar 13 - [Gazprom's grandeur fades as Europe abandons Russian gas](https://finance.yahoo.com/news/gazproms-grandeur-fades-europe-abandons-070342138.html)
-- Mar 13 - [Chinese restaurant apologizes after video of diners urinating into hotpot broth goes viral](https://www.yahoo.com/news/chinese-restaurant-apologizes-video-diners-065202155.html)
 <!-- feed end -->
 
 ### Onstream
