@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 13 - [Guatemala's Fuego volcano erupts, then settles](https://www.yahoo.com/news/guatemalas-fuego-volcano-erupts-then-023944712.html)
+- Mar 13 - [Authorities rush to Loma Linda hospital amid reports of possible active shooter](https://www.yahoo.com/news/authorities-rush-loma-linda-hospital-014522164.html)
+- Mar 13 - [Former Texas megachurch pastor indicted in Oklahoma on child sexual abuse charges](https://www.yahoo.com/news/former-texas-megachurch-pastor-indicted-004801750.html)
 - Mar 13 - [Russia lays out demands for talks with US on Ukraine, sources say](https://www.yahoo.com/news/russia-lays-demands-talks-us-001214694.html)
 - Mar 12 - [SpaceX delays flight to replace NASA's stuck astronauts after launch pad problem](https://www.yahoo.com/news/spacex-delays-flight-replace-nasas-231016032.html)
-- Mar 12 - [SpaceX scrubs astronaut flight that was to retrieve stuck astronauts](https://www.yahoo.com/news/spacex-nasa-set-astronaut-flight-215242322.html)
-- Mar 12 - [A volcano near Alaska's largest city could erupt in the coming weeks or months, scientists say](https://www.yahoo.com/news/volcano-near-alaskas-largest-city-215209333.html)
 <!-- feed end -->
 
 ### Onstream
