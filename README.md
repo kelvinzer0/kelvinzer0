@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 13 - [Dow Jones Futures: S&P 500 Hits New Low On Trump Tariff Threats; Warren Buffett Stock Makes Bullish Move](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-sp-500-trump-tariff-threats-warren-buffett-stock/?src=A00220&yptr=yahoo)
+- Mar 13 - [Marjorie Taylor Greene Wants Tesla Protests Investigated, Presumably Because They're Hurting The Value Of Her Tesla Stock](https://autos.yahoo.com/marjorie-taylor-greene-wants-tesla-220600164.html)
 - Mar 13 - [Trump believes US will annex Greenland as NATO leader tells him the organization will sit out potential takeover](https://www.yahoo.com/news/trump-vows-annex-greenland-sits-180654737.html)
-- Mar 13 - [Sea levels rise by 'unexpected' amount in 2024: NASA](https://www.yahoo.com/news/sea-levels-rise-unexpected-amount-204651152.html)
-- Mar 13 - [North Dakota lawmaker became disoriented by darkness before plane crash that killed 4](https://www.yahoo.com/news/north-dakota-lawmaker-became-disoriented-190701437.html)
-- Mar 13 - [Knoxville, East Tennessee could see tornadoes, damaging wind as part of severe thunderstorm outbreak](https://www.yahoo.com/news/knoxville-east-tennessee-could-see-155905004.html)
+- Mar 13 - [Warren Buffett Said 'Bad News Is an Investor's Best Friend' and If You're Not Ready for Stocks to Drop 50%, You Shouldn't Be Investing](https://finance.yahoo.com/news/warren-buffett-said-bad-news-203018862.html)
+- Mar 13 - [Trump Gets Brutal News From Republicans in Devastating Polls](https://www.yahoo.com/news/trump-gets-brutal-news-republicans-201341732.html)
 <!-- feed end -->
 
 ### Onstream
