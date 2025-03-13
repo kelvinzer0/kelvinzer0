@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Couche-Tard tries to sell Japan on the idea of 7-Eleven takeover](https://finance.yahoo.com/video/couche-tard-tries-sell-japan-073612816.html)
 - Mar 13 - [Gazprom's grandeur fades as Europe abandons Russian gas](https://finance.yahoo.com/news/gazproms-grandeur-fades-europe-abandons-070342138.html)
+- Mar 13 - [Chinese restaurant apologizes after video of diners urinating into hotpot broth goes viral](https://www.yahoo.com/news/chinese-restaurant-apologizes-video-diners-065202155.html)
+- Mar 13 - [Chiefs WR Xavier Worthy's fiancée says she's been granted temporary protective order after assault arrest](https://sports.yahoo.com/nfl/article/chiefs-wr-xavier-worthys-fiancee-says-shes-been-granted-temporary-protective-order-after-assault-arrest-013214783.html)
 - Mar 13 - [Former Texas megachurch pastor indicted in Oklahoma on child sexual abuse charges](https://www.yahoo.com/news/former-texas-megachurch-pastor-indicted-004801750.html)
 - Mar 13 - [Russia lays out demands for talks with US on Ukraine, sources say](https://www.yahoo.com/news/russia-lays-demands-talks-us-001214694.html)
-- Mar 12 - [SpaceX delays flight to replace NASA's stuck astronauts after launch pad problem](https://www.yahoo.com/news/spacex-delays-flight-replace-nasas-231016032.html)
 <!-- feed end -->
 
 ### Onstream
