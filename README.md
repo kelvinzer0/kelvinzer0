@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Government shutdown Democrats are staring into the abyss](https://www.yahoo.com/news/government-shutdown-democrats-staring-abyss-154015859.html)
-- Mar 13 - [Trump Loses It After Wall Street Journal Trashes His Economic Policies](https://finance.yahoo.com/news/trump-loses-wall-street-journal-151107574.html)
-- Mar 13 - [Bernie Sanders Says 'Stress Kills' As He Highlights A 7-Year Life Expectancy Gap Between The Working Class And The Wealthy](https://finance.yahoo.com/news/bernie-sanders-says-stress-kills-134543359.html)
+- Mar 13 - [Roswell police charge youth pastor with possession of child sexual abuse materials](https://www.yahoo.com/news/roswell-police-charge-youth-pastor-162903456.html)
+- Mar 13 - [Runner caught on video hitting competitor with baton charged with assault, battery](https://sports.yahoo.com/article/runner-caught-video-hitting-competitor-160028428.html)
+- Mar 13 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://autos.yahoo.com/m-mechanic-3-pickup-trucks-180118634.html)
 - Mar 13 - [Expired Cans of Salmon From Decades Ago Contained a Big Surprise](https://www.yahoo.com/news/expired-cans-salmon-decades-ago-130103037.html)
-- Mar 13 - [Tim Walz Says 'We Wouldn't Be In This Mess' If It Wasn't For Him And Harris](https://www.yahoo.com/news/tim-walz-says-wouldnt-mess-122535558.html)
+- Mar 13 - [Syrian leader signs constitution that puts the country under an Islamist group's rule for 5 years](https://www.yahoo.com/news/syrian-leader-signs-constitution-puts-125652528.html)
 <!-- feed end -->
 
 ### Onstream
