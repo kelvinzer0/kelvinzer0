@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Video shows moment fuel tanker, container ship collide off UK coast](https://www.yahoo.com/news/video-shows-moment-fuel-tanker-230143089.html)
-- Mar 12 - [Unpacking February's slight inflation cooldown](https://www.yahoo.com/news/unpacking-februarys-slight-inflation-cooldown-223337721.html)
-- Mar 12 - [Trump’s FBI Moves to Criminally Charge Major Climate Groups](https://www.yahoo.com/news/trump-fbi-moves-criminally-charge-190534242.html)
-- Mar 12 - [Oregon appeals court says voter-approved gun law is constitutional, reversing lower court ruling](https://www.yahoo.com/news/oregon-appeals-court-says-voter-184100179.html)
-- Mar 12 - [Staley Said He Had Sex With Epstein Staffer in NYC Apartment](https://finance.yahoo.com/news/staley-said-had-sex-epstein-183745922.html)
+- Mar 13 - [Relatives aim lights at Gaza Strip to call for release of Israeli twin brothers taken during Oct. 7 attack](https://www.yahoo.com/news/relatives-aim-lights-gaza-strip-005056256.html)
+- Mar 13 - [Russia lays out demands for talks with US on Ukraine, sources say](https://www.yahoo.com/news/russia-lays-demands-talks-us-001214694.html)
+- Mar 12 - [SpaceX delays flight to replace NASA's stuck astronauts after launch pad problem](https://www.yahoo.com/news/spacex-delays-flight-replace-nasas-231016032.html)
+- Mar 12 - [SpaceX scrubs astronaut flight that was to retrieve stuck astronauts](https://www.yahoo.com/news/spacex-nasa-set-astronaut-flight-215242322.html)
+- Mar 12 - [A volcano near Alaska's largest city could erupt in the coming weeks or months, scientists say](https://www.yahoo.com/news/volcano-near-alaskas-largest-city-215209333.html)
 <!-- feed end -->
 
 ### Onstream
