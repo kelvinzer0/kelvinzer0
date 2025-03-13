@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [Couche-Tard tries to sell Japan on the idea of 7-Eleven takeover](https://finance.yahoo.com/video/couche-tard-tries-sell-japan-073612816.html)
+- Mar 13 - [Gazprom's grandeur fades as Europe abandons Russian gas](https://finance.yahoo.com/news/gazproms-grandeur-fades-europe-abandons-070342138.html)
+- Mar 13 - [Former Texas megachurch pastor indicted in Oklahoma on child sexual abuse charges](https://www.yahoo.com/news/former-texas-megachurch-pastor-indicted-004801750.html)
 - Mar 13 - [Russia lays out demands for talks with US on Ukraine, sources say](https://www.yahoo.com/news/russia-lays-demands-talks-us-001214694.html)
-- Mar 12 - [‘I made a stupid mistake’: Clark County Commissioner Justin Jones asks bar hearing panel for mercy after deleting texts](https://www.yahoo.com/news/made-stupid-mistake-clark-county-235344469.html)
-- Mar 12 - [Cottage Grove man who went missing from campsite found dead in Dorena Lake](https://www.yahoo.com/news/cottage-grove-man-went-missing-231113455.html)
 - Mar 12 - [SpaceX delays flight to replace NASA's stuck astronauts after launch pad problem](https://www.yahoo.com/news/spacex-delays-flight-replace-nasas-231016032.html)
-- Mar 12 - [NASA, SpaceX delay flight that was to retrieve stuck astronauts](https://www.yahoo.com/news/spacex-nasa-set-astronaut-flight-215242322.html)
 <!-- feed end -->
 
 ### Onstream
