@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Palantir hosts annual AIPCon while announcing Archer partnership](https://finance.yahoo.com/video/palantir-hosts-annual-aipcon-while-132945643.html)
-- Mar 13 - [Video shows additional people on Punta Cana beach when US student went missing, sources say](https://www.yahoo.com/news/details-emerge-missing-us-student-071910579.html)
+- Mar 13 - [Bernie Sanders Says 'Stress Kills' As He Highlights A 7-Year Life Expectancy Gap Between The Working Class And The Wealthy](https://finance.yahoo.com/news/bernie-sanders-says-stress-kills-134543359.html)
+- Mar 13 - [Snowboarder Outruns Avalanche on Mount Washington](https://www.yahoo.com/news/snowboarder-outruns-avalanche-mount-washington-134247308.html)
+- Mar 13 - [Trump administration withdraws nomination of David Weldon for CDC director](https://www.yahoo.com/news/trump-administration-withdraws-nomination-david-133816476.html)
 - Mar 13 - [Tim Walz Says 'We Wouldn't Be In This Mess' If It Wasn't For Him And Harris](https://www.yahoo.com/news/tim-walz-says-wouldnt-mess-122535558.html)
-- Mar 13 - [Fox Reports On ‘Good News’ For Donald Trump… But Then Immediately Sounds The Alarm](https://www.yahoo.com/news/fox-reports-good-news-trump-075656855.html)
-- Mar 13 - [Gazprom's grandeur fades as Europe abandons Russian gas](https://finance.yahoo.com/news/gazproms-grandeur-fades-europe-abandons-070342138.html)
+- Mar 13 - [Scientists issue critical warning after linking common appliance to major health risk: 'The problem is far worse than we thought'](https://www.yahoo.com/news/scientists-issue-critical-warning-linking-110000931.html)
 <!-- feed end -->
 
 ### Onstream
