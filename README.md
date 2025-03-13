@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Former CDC nominee goes scorched earth, blaming two Republicans and ‘big Pharma’ for failed bid](https://www.yahoo.com/news/former-cdc-nominee-goes-scorched-194337476.html)
-- Mar 13 - [This southern Wisconsin city is one of the best places to raise a family, study finds](https://www.yahoo.com/news/southern-wisconsin-city-one-best-182903259.html)
+- Mar 13 - [Father gets 13 years for shooting youth football coach over son’s playing time](https://www.yahoo.com/news/father-gets-13-years-shooting-192231348.html)
+- Mar 13 - [North Dakota lawmaker became disoriented by darkness before plane crash that killed 4](https://www.yahoo.com/news/north-dakota-lawmaker-became-disoriented-190701437.html)
+- Mar 13 - [First responders find huge catfish in truck pulled from Oklahoma River](https://www.yahoo.com/news/first-responders-huge-catfish-truck-180836834.html)
 - Mar 13 - [Our Best Look Yet At China’s New ‘Invasion Barges’](https://www.yahoo.com/news/best-look-yet-china-invasion-180741826.html)
-- Mar 13 - [Trump's Steel Tariffs Strike Again--Algoma Steel's Survival Play Stuns Investors](https://finance.yahoo.com/news/trumps-steel-tariffs-strike-again-170240787.html)
 - Mar 13 - [Nvidia's Huang, critics were wrong about quantum computing: D-Wave CEO](https://finance.yahoo.com/video/nvidias-huang-critics-were-wrong-170000181.html)
 <!-- feed end -->
 
