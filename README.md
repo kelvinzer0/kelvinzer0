@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Bernie Sanders Says 'Stress Kills' As He Highlights A 7-Year Life Expectancy Gap Between The Working Class And The Wealthy](https://finance.yahoo.com/news/bernie-sanders-says-stress-kills-134543359.html)
-- Mar 13 - [Snowboarder Outruns Avalanche on Mount Washington](https://www.yahoo.com/news/snowboarder-outruns-avalanche-mount-washington-134247308.html)
-- Mar 13 - [Trump administration withdraws nomination of David Weldon for CDC director](https://www.yahoo.com/news/trump-administration-withdraws-nomination-david-133816476.html)
+- Mar 13 - [Government shutdown Democrats are staring into the abyss](https://www.yahoo.com/news/government-shutdown-democrats-staring-abyss-154015859.html)
 - Mar 13 - [Tim Walz Says 'We Wouldn't Be In This Mess' If It Wasn't For Him And Harris](https://www.yahoo.com/news/tim-walz-says-wouldnt-mess-122535558.html)
+- Mar 13 - [4th teen identified in deadly Cleveland crash](https://www.yahoo.com/news/4th-teen-identified-deadly-cleveland-120842275.html)
+- Mar 13 - [Researchers stunned after discovering cause of massive animal die-off along coastline: 'It was a gut punch'](https://www.yahoo.com/news/researchers-stunned-discovering-cause-massive-111544538.html)
 - Mar 13 - [Scientists issue critical warning after linking common appliance to major health risk: 'The problem is far worse than we thought'](https://www.yahoo.com/news/scientists-issue-critical-warning-linking-110000931.html)
 <!-- feed end -->
 
