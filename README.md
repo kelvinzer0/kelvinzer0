@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Abercrombie & Fitch Co. (ANF): Among the Undervalued Stocks with the Highest Upside Potential](https://finance.yahoo.com/news/abercrombie-fitch-co-nyse-anf-182650519.html)
+- Mar 13 - [Former CDC nominee goes scorched earth, blaming two Republicans and ‘big Pharma’ for failed bid](https://www.yahoo.com/news/former-cdc-nominee-goes-scorched-194337476.html)
+- Mar 13 - [This southern Wisconsin city is one of the best places to raise a family, study finds](https://www.yahoo.com/news/southern-wisconsin-city-one-best-182903259.html)
+- Mar 13 - [Our Best Look Yet At China’s New ‘Invasion Barges’](https://www.yahoo.com/news/best-look-yet-china-invasion-180741826.html)
+- Mar 13 - [Trump's Steel Tariffs Strike Again--Algoma Steel's Survival Play Stuns Investors](https://finance.yahoo.com/news/trumps-steel-tariffs-strike-again-170240787.html)
 - Mar 13 - [Nvidia's Huang, critics were wrong about quantum computing: D-Wave CEO](https://finance.yahoo.com/video/nvidias-huang-critics-were-wrong-170000181.html)
-- Mar 13 - [Jewish protesters flood Trump Tower's lobby to demand the Columbia University activist's release](https://www.yahoo.com/news/jewish-group-fills-trump-towers-161226177.html)
-- Mar 13 - [Runner caught on video hitting competitor with baton charged with assault, battery](https://sports.yahoo.com/article/runner-caught-video-hitting-competitor-160028428.html)
-- Mar 13 - [iPhone 17 Pro, Max and Air: Everything we know about Apple's new phones](https://www.yahoo.com/tech/iphone-17-pro-max-and-air-everything-we-know-about-apples-new-phones-153024282.html)
 <!-- feed end -->
 
 ### Onstream
