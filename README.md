@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [Economic Fear Pummels Stocks Tied to Americans’ Spending](https://finance.yahoo.com/news/economic-fear-pummels-stocks-closely-154637814.html)
-- Mar 14 - [Tesla Cybertruck Deliveries Paused Because Losing Sharp Metal Body Panels On The Road Is Bad Or Something](https://autos.yahoo.com/tesla-cybertruck-deliveries-paused-because-200551828.html)
-- Mar 14 - ['Where is the third baby?' Concern grows over Jackie and Shadow's missing eaglet](https://www.yahoo.com/news/where-third-baby-concern-grows-192254101.html)
+- Mar 14 - [Here's A Timeline Of Hitler's First 53 Days In Office — Let Me Know If You Notice Anything Familiar](https://www.yahoo.com/news/heres-timeline-hitlers-first-53-200306788.html)
 - Mar 14 - [Democratic Party fractures in government shutdown fight, with anger running high](https://www.yahoo.com/news/democratic-party-fractures-government-shutdown-183154896.html)
 - Mar 14 - [Vladimir Putin says Ukraine must surrender after Donald Trump calls for soldiers to be spared](https://www.yahoo.com/news/vladimir-putin-says-ukraine-must-183111706.html)
+- Mar 14 - [There Are Thousands of Unsold New Chevy Corvettes at Dealers Across the U.S.](https://autos.yahoo.com/thousands-unsold-chevy-corvettes-dealers-173000267.html)
+- Mar 14 - [Photos from the American Airlines fire show passengers made a huge mistake](https://www.yahoo.com/news/photos-american-airlines-fire-show-161949038.html)
 <!-- feed end -->
 
 ### Onstream
