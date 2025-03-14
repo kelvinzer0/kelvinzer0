@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [Judge formally sentences Adnan Syed to time served in 'Serial' podcast case](https://www.yahoo.com/news/judge-formally-sentences-adnan-syed-183917157.html)
-- Mar 14 - ['The Pitt' is pushing the limits on depictions of childbirth, but it's triggering for people with birth trauma](https://www.yahoo.com/lifestyle/the-pitt-is-pushing-the-limits-on-depictions-of-childbirth-but-its-triggering-for-people-with-birth-trauma-182209954.html)
-- Mar 14 - [Ukraine's Zelenskiy says there is now a good chance to end war](https://www.yahoo.com/news/ukraines-zelenskiy-says-now-good-174228989.html)
-- Mar 14 - [Bitcoin, S&P 500 Slide Below Key Support Level](https://finance.yahoo.com/video/bitcoin-p-500-slide-below-152426629.html)
-- Mar 14 - [Peoria native and judge named Bradley University's new president](https://www.yahoo.com/news/peoria-native-judge-named-bradley-140824258.html)
+- Mar 14 - [The end of fracking is madness that will harm Britain](https://www.yahoo.com/news/end-fracking-madness-harm-britain-190000314.html)
+- Mar 14 - [PepsiCo ‘nears deal for prebiotic soda brand Poppi’](https://finance.yahoo.com/news/pepsico-nears-deal-prebiotic-soda-183354483.html)
+- Mar 14 - [Democratic Party fractures in government shutdown fight, with anger running high](https://www.yahoo.com/news/democratic-party-fractures-government-shutdown-183154896.html)
+- Mar 14 - [Vladimir Putin says Ukraine must surrender after Donald Trump calls for soldiers to be spared](https://www.yahoo.com/news/vladimir-putin-says-ukraine-must-183111706.html)
+- Mar 14 - [Why a Government Shutdown Would Strike an Especially Devastating Blow to Black Workers](https://www.yahoo.com/news/why-government-shutdown-strike-especially-181655803.html)
 <!-- feed end -->
 
 ### Onstream
