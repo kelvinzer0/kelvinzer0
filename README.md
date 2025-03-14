@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [Head of the Islamic State in Iraq and Syria has been killed, Iraqi prime minister says](https://www.yahoo.com/news/head-islamic-state-iraq-syria-145327021.html)
 - Mar 14 - [Man last known to be seen with missing University of Pittsburgh student tells prosecutors how he rescued her from rough water](https://www.yahoo.com/news/man-last-known-seen-missing-134716940.html)
+- Mar 14 - [Head of the Islamic State in Iraq and Syria has been killed, Iraqi prime minister says](https://www.yahoo.com/news/head-islamic-state-iraq-syria-145327021.html)
 - Mar 14 - [Archaeologists Found a 5,000-Year-Old Fortress That Nature Had Hidden for Centuries](https://www.yahoo.com/news/archaeologists-found-5-000-old-133000533.html)
+- Mar 14 - [Driver charged with intoxication manslaughter in fatal 17-vehicle car crash in Austin](https://www.yahoo.com/news/5-dead-including-2-children-123603459.html)
 - Mar 14 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
-- Mar 14 - [Experts thrilled after rediscovering rare species last seen nearly 80 years ago: 'No living person has … experience with this species'](https://www.yahoo.com/news/experts-thrilled-rediscovering-rare-species-113045081.html)
 <!-- feed end -->
 
 ### Onstream
