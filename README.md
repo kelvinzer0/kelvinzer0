@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [Man last known to be seen with missing University of Pittsburgh student tells prosecutors how he rescued her from rough water](https://www.yahoo.com/news/man-last-known-seen-missing-134716940.html)
-- Mar 14 - [Head of the Islamic State in Iraq and Syria has been killed, Iraqi prime minister says](https://www.yahoo.com/news/head-islamic-state-iraq-syria-145327021.html)
-- Mar 14 - [Archaeologists Found a 5,000-Year-Old Fortress That Nature Had Hidden for Centuries](https://www.yahoo.com/news/archaeologists-found-5-000-old-133000533.html)
-- Mar 14 - [Driver charged with intoxication manslaughter in fatal 17-vehicle car crash in Austin](https://www.yahoo.com/news/5-dead-including-2-children-123603459.html)
-- Mar 14 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
+- Mar 14 - [Judge formally sentences Adnan Syed to time served in 'Serial' podcast case](https://www.yahoo.com/news/judge-formally-sentences-adnan-syed-183917157.html)
+- Mar 14 - ['The Pitt' is pushing the limits on depictions of childbirth, but it's triggering for people with birth trauma](https://www.yahoo.com/lifestyle/the-pitt-is-pushing-the-limits-on-depictions-of-childbirth-but-its-triggering-for-people-with-birth-trauma-182209954.html)
+- Mar 14 - [Ukraine's Zelenskiy says there is now a good chance to end war](https://www.yahoo.com/news/ukraines-zelenskiy-says-now-good-174228989.html)
+- Mar 14 - [Bitcoin, S&P 500 Slide Below Key Support Level](https://finance.yahoo.com/video/bitcoin-p-500-slide-below-152426629.html)
+- Mar 14 - [Peoria native and judge named Bradley University's new president](https://www.yahoo.com/news/peoria-native-judge-named-bradley-140824258.html)
 <!-- feed end -->
 
 ### Onstream
