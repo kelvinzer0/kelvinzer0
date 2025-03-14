@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [British national killed by vehicle in Kenyan president’s motorcade](https://www.yahoo.com/news/british-national-killed-vehicle-kenyan-081857529.html)
-- Mar 14 - [Maine-Canada border town businesses hurting thanks to tariffs on $6B trade relationship, bracing for it to 'get worse'](https://finance.yahoo.com/news/maine-canada-border-town-businesses-104400955.html)
+- Mar 14 - [American Airlines plane catches fire at Denver International Airport](https://www.yahoo.com/news/american-airlines-plane-catches-fire-011641117.html)
 - Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
-- Mar 13 - [Trump believes US will annex Greenland as NATO leader tells him the organization will sit out potential takeover](https://www.yahoo.com/news/trump-vows-annex-greenland-sits-180654737.html)
-- Mar 13 - [Ukraine loses a ceasefire bargaining chip as its troops lose ground in Russia](https://www.yahoo.com/news/ukraine-loses-ceasefire-bargaining-chip-200906107.html)
+- Mar 14 - [Downtown Portland sees open-air drug market resurgence after return of can redemptions](https://www.yahoo.com/news/downtown-portland-sees-open-air-010024379.html)
+- Mar 14 - [RFK Jr.'s Steak 'N Shake Visit Has Spurred A New Meme, And People Are Questioning Why Conservative Politicians Can't Ever Stand Normally](https://www.yahoo.com/lifestyle/internet-cant-enough-photo-rfk-001234943.html)
+- Mar 13 - [Columbia University expels students, revokes degrees of Hamilton Hall takeover Gaza protesters](https://www.yahoo.com/news/columbia-university-expels-students-revokes-234500413.html)
 <!-- feed end -->
 
 ### Onstream
