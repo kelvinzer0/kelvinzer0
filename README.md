@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [Turkish authorities vow to enforce controversial law to cull stray dogs following death or two-year-old](https://www.yahoo.com/news/turkish-authorities-vow-enforce-controversial-050851416.html)
-- Mar 14 - [China set for rapeseed meal shortage after 100% duty on top supplier Canada](https://finance.yahoo.com/news/china-set-rapeseed-meal-shortage-044027273.html)
 - Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
 - Mar 13 - [Connecticut man held captive by stepmom for 20 years weighed only 68 pounds: Police](https://www.yahoo.com/news/woman-charged-holding-severely-emaciated-065522449.html)
+- Mar 13 - [NYC subways has deadly 24 hours as four people jump in front of trains: sources](https://www.yahoo.com/news/nyc-subways-deadly-24-hours-220900859.html)
 - Mar 13 - [Fear and resignation after ‘world’s most powerful company’ pays Trump a $100 billion ‘protection fee’](https://www.yahoo.com/news/fear-resignation-world-most-powerful-220052463.html)
+- Mar 13 - [A Navy veteran and his wife say Tricare rescinded approvals for over $100K in health care claims paid years ago](https://www.yahoo.com/news/navy-veteran-wife-tricare-rescinded-214350232.html)
 <!-- feed end -->
 
 ### Onstream
