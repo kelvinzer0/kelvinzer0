@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [The end of fracking is madness that will harm Britain](https://www.yahoo.com/news/end-fracking-madness-harm-britain-190000314.html)
-- Mar 14 - [PepsiCo ‘nears deal for prebiotic soda brand Poppi’](https://finance.yahoo.com/news/pepsico-nears-deal-prebiotic-soda-183354483.html)
+- Mar 14 - [Economic Fear Pummels Stocks Tied to Americans’ Spending](https://finance.yahoo.com/news/economic-fear-pummels-stocks-closely-154637814.html)
+- Mar 14 - [Tesla Cybertruck Deliveries Paused Because Losing Sharp Metal Body Panels On The Road Is Bad Or Something](https://autos.yahoo.com/tesla-cybertruck-deliveries-paused-because-200551828.html)
+- Mar 14 - ['Where is the third baby?' Concern grows over Jackie and Shadow's missing eaglet](https://www.yahoo.com/news/where-third-baby-concern-grows-192254101.html)
 - Mar 14 - [Democratic Party fractures in government shutdown fight, with anger running high](https://www.yahoo.com/news/democratic-party-fractures-government-shutdown-183154896.html)
 - Mar 14 - [Vladimir Putin says Ukraine must surrender after Donald Trump calls for soldiers to be spared](https://www.yahoo.com/news/vladimir-putin-says-ukraine-must-183111706.html)
-- Mar 14 - [Why a Government Shutdown Would Strike an Especially Devastating Blow to Black Workers](https://www.yahoo.com/news/why-government-shutdown-strike-especially-181655803.html)
 <!-- feed end -->
 
 ### Onstream
