@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [American Airlines plane catches fire at Denver International Airport](https://www.yahoo.com/news/american-airlines-plane-catches-fire-011641117.html)
+- Mar 14 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
+- Mar 14 - [Mortgage and refinance rates today, March 14, 2025: Rate is 10 basis points under 52-week average](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-march-14-2025-100046414.html)
+- Mar 14 - [China spent 43 years engineering the perfect cattle, and Laos deal marks its first export](https://www.yahoo.com/news/china-spent-43-years-engineering-093000486.html)
+- Mar 14 - [California school settles with student accused of wearing ‘blackface’ at football game](https://www.yahoo.com/news/california-school-settles-student-accused-090012916.html)
 - Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
-- Mar 14 - [Downtown Portland sees open-air drug market resurgence after return of can redemptions](https://www.yahoo.com/news/downtown-portland-sees-open-air-010024379.html)
-- Mar 14 - [RFK Jr.'s Steak 'N Shake Visit Has Spurred A New Meme, And People Are Questioning Why Conservative Politicians Can't Ever Stand Normally](https://www.yahoo.com/lifestyle/internet-cant-enough-photo-rfk-001234943.html)
-- Mar 13 - [Columbia University expels students, revokes degrees of Hamilton Hall takeover Gaza protesters](https://www.yahoo.com/news/columbia-university-expels-students-revokes-234500413.html)
 <!-- feed end -->
 
 ### Onstream
