@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Man who last saw missing Pittsburgh student Sudiksha Konanki thought she took 'her things and left'](https://www.yahoo.com/news/man-last-saw-missing-pittsburgh-134321571.html)
+- Mar 14 - [Passengers describe terrifying moments plane catches fire at Denver airport](https://www.yahoo.com/news/passengers-describe-terrifying-moments-plane-130643683.html)
 - Mar 14 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
 - Mar 14 - [Mortgage and refinance rates today, March 14, 2025: Rate is 10 basis points under 52-week average](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-march-14-2025-100046414.html)
-- Mar 14 - [China spent 43 years engineering the perfect cattle, and Laos deal marks its first export](https://www.yahoo.com/news/china-spent-43-years-engineering-093000486.html)
 - Mar 14 - [California school settles with student accused of wearing ‘blackface’ at football game](https://www.yahoo.com/news/california-school-settles-student-accused-090012916.html)
-- Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
 <!-- feed end -->
 
 ### Onstream
