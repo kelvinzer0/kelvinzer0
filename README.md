@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [Here's A Timeline Of Hitler's First 53 Days In Office — Let Me Know If You Notice Anything Familiar](https://www.yahoo.com/news/heres-timeline-hitlers-first-53-200306788.html)
-- Mar 14 - [Democratic Party fractures in government shutdown fight, with anger running high](https://www.yahoo.com/news/democratic-party-fractures-government-shutdown-183154896.html)
-- Mar 14 - [Vladimir Putin says Ukraine must surrender after Donald Trump calls for soldiers to be spared](https://www.yahoo.com/news/vladimir-putin-says-ukraine-must-183111706.html)
-- Mar 14 - [There Are Thousands of Unsold New Chevy Corvettes at Dealers Across the U.S.](https://autos.yahoo.com/thousands-unsold-chevy-corvettes-dealers-173000267.html)
-- Mar 14 - [Photos from the American Airlines fire show passengers made a huge mistake](https://www.yahoo.com/news/photos-american-airlines-fire-show-161949038.html)
+- Mar 14 - [Berkshire Hathaway director Olson to step down, Buffett opposes shareholder proposals](https://finance.yahoo.com/news/berkshire-hathaway-director-olson-step-224844647.html)
+- Mar 14 - [Donald Trump, In DOJ Speech, Calls CNN And MSNBC “Illegal” For Reporting Negatively On Him](https://www.yahoo.com/news/donald-trump-doj-speech-calls-220706098.html)
+- Mar 14 - [Intel’s New CEO Gets Pay Package Valued at About $69 Million](https://finance.yahoo.com/news/intel-ceo-gets-pay-package-214728321.html)
+- Mar 14 - [Rubio says South Africa’s ambassador to the US 'is no longer welcome' in the country](https://www.yahoo.com/news/rubio-says-south-africa-ambassador-213227696.html)
+- Mar 14 - [TD Bank to close nearly a dozen locations in NY, NJ](https://finance.yahoo.com/news/td-bank-close-nearly-dozen-201642282.html)
 <!-- feed end -->
 
 ### Onstream
