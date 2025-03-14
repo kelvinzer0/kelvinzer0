@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [British national killed by vehicle in Kenyan president’s motorcade](https://www.yahoo.com/news/british-national-killed-vehicle-kenyan-081857529.html)
+- Mar 14 - [Maine-Canada border town businesses hurting thanks to tariffs on $6B trade relationship, bracing for it to 'get worse'](https://finance.yahoo.com/news/maine-canada-border-town-businesses-104400955.html)
 - Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
-- Mar 13 - [Fear and resignation after ‘world’s most powerful company’ pays Trump a $100 billion ‘protection fee’](https://www.yahoo.com/news/fear-resignation-world-most-powerful-220052463.html)
-- Mar 13 - [A Navy veteran and his wife say Tricare rescinded approvals for over $100K in health care claims paid years ago](https://www.yahoo.com/news/navy-veteran-wife-tricare-rescinded-214350232.html)
-- Mar 13 - [This Kansas university was named #1 for having the friendliest students in the U.S.](https://www.yahoo.com/lifestyle/kansas-university-named-1-having-211855584.html)
 - Mar 13 - [Trump believes US will annex Greenland as NATO leader tells him the organization will sit out potential takeover](https://www.yahoo.com/news/trump-vows-annex-greenland-sits-180654737.html)
+- Mar 13 - [Ukraine loses a ceasefire bargaining chip as its troops lose ground in Russia](https://www.yahoo.com/news/ukraine-loses-ceasefire-bargaining-chip-200906107.html)
 <!-- feed end -->
 
 ### Onstream
