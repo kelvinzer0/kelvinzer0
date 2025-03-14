@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [American Airlines flight catches fire at Denver airport](https://www.yahoo.com/news/american-airlines-flight-catches-fire-014200408.html)
+- Mar 14 - [After DeepSeek, Chinese fund managers beat High-Flyer's path to AI](https://www.yahoo.com/tech/deepseek-chinese-fund-managers-beat-030011371.html)
 - Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
-- Mar 13 - [US FDA makes recommendations for influenza vaccines to manufacturers](https://www.yahoo.com/news/us-fda-makes-recommendations-influenza-235345827.html)
-- Mar 13 - [Texas Tech, Lubbock officials share early timeline of campus overnight fires, explosion](https://www.yahoo.com/news/texas-tech-lubbock-officials-share-224034413.html)
-- Mar 13 - [Connecticut man held captive by stepmom for 20 years weighed only 68 pounds: Police](https://www.yahoo.com/news/woman-charged-holding-severely-emaciated-065522449.html)
+- Mar 14 - [JD Vance Booed at Kennedy Center](https://www.yahoo.com/entertainment/jd-vance-booed-kennedy-center-010454277.html)
+- Mar 13 - [Marjorie Taylor Greene Wants Tesla Protests Investigated, Presumably Because They're Hurting The Value Of Her Tesla Stock](https://autos.yahoo.com/marjorie-taylor-greene-wants-tesla-220600164.html)
+- Mar 13 - [Fear and resignation after ‘world’s most powerful company’ pays Trump a $100 billion ‘protection fee’](https://www.yahoo.com/news/fear-resignation-world-most-powerful-220052463.html)
 <!-- feed end -->
 
 ### Onstream
