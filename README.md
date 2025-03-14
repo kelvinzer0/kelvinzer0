@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [I’ve had insomnia since I was 18 and it’s affected my whole life](https://www.yahoo.com/lifestyle/sleep-insomnia-affected-whole-life-055130283.html)
 - Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
+- Mar 13 - [RFK Jr. drops threat on major food corporations — and shoppers may soon see the impact](https://www.yahoo.com/news/rfk-jr-drops-threat-major-235500603.html)
 - Mar 13 - [NYC subways has deadly 24 hours as four people jump in front of trains: sources](https://www.yahoo.com/news/nyc-subways-deadly-24-hours-220900859.html)
 - Mar 13 - [Fear and resignation after ‘world’s most powerful company’ pays Trump a $100 billion ‘protection fee’](https://www.yahoo.com/news/fear-resignation-world-most-powerful-220052463.html)
-- Mar 13 - [Trump believes US will annex Greenland as NATO leader tells him the organization will sit out potential takeover](https://www.yahoo.com/news/trump-vows-annex-greenland-sits-180654737.html)
+- Mar 13 - [A Navy veteran and his wife say Tricare rescinded approvals for over $100K in health care claims paid years ago](https://www.yahoo.com/news/navy-veteran-wife-tricare-rescinded-214350232.html)
 <!-- feed end -->
 
 ### Onstream
