@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Head of the Islamic State in Iraq and Syria has been killed, Iraqi prime minister says](https://www.yahoo.com/news/head-islamic-state-iraq-syria-145327021.html)
 - Mar 14 - [Man last known to be seen with missing University of Pittsburgh student tells prosecutors how he rescued her from rough water](https://www.yahoo.com/news/man-last-known-seen-missing-134716940.html)
-- Mar 14 - [Trump administration demands Columbia overhaul its policies in extraordinary ultimatum](https://www.yahoo.com/news/trump-administration-demands-columbia-overhaul-141052680.html)
-- Mar 14 - [Iraqi PM says Islamic State leader for Iraq and Syria killed](https://www.yahoo.com/news/iraqi-pm-says-islamic-state-134220100.html)
+- Mar 14 - [Search expands for American college student who vanished in the Dominican Republic](https://www.yahoo.com/news/search-expands-american-college-student-132154603.html)
 - Mar 14 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
-- Mar 14 - [Experts thrilled after rediscovering rare species last seen nearly 80 years ago: 'No living person has … experience with this species'](https://www.yahoo.com/news/experts-thrilled-rediscovering-rare-species-113045081.html)
+- Mar 14 - [Researchers stunned after discovering breakthrough firefighting tool delivers unexpected results: 'We were blown away'](https://www.yahoo.com/tech/researchers-stunned-discovering-breakthrough-firefighting-111549562.html)
 <!-- feed end -->
 
 ### Onstream
