@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [After DeepSeek, Chinese fund managers beat High-Flyer's path to AI](https://www.yahoo.com/tech/deepseek-chinese-fund-managers-beat-030011371.html)
+- Mar 14 - [Watch JD Vance Get Viciously Booed By Kennedy Center Crowd](https://www.yahoo.com/entertainment/watch-jd-vance-viciously-booed-030000011.html)
 - Mar 14 - [Ocasio-Cortez mobilizes Democrats against Schumer plan as colleagues privately urge her to consider primary challenge](https://www.yahoo.com/news/ocasio-cortez-mobilizes-democrats-against-011515631.html)
-- Mar 14 - [JD Vance Booed at Kennedy Center](https://www.yahoo.com/entertainment/jd-vance-booed-kennedy-center-010454277.html)
-- Mar 13 - [Marjorie Taylor Greene Wants Tesla Protests Investigated, Presumably Because They're Hurting The Value Of Her Tesla Stock](https://autos.yahoo.com/marjorie-taylor-greene-wants-tesla-220600164.html)
+- Mar 14 - [Man who identifies himself as a veteran escorted out of GOP Rep’s town hall after shouting](https://www.yahoo.com/news/man-identifies-himself-veteran-escorted-004937471.html)
 - Mar 13 - [Fear and resignation after ‘world’s most powerful company’ pays Trump a $100 billion ‘protection fee’](https://www.yahoo.com/news/fear-resignation-world-most-powerful-220052463.html)
+- Mar 13 - [Trump believes US will annex Greenland as NATO leader tells him the organization will sit out potential takeover](https://www.yahoo.com/news/trump-vows-annex-greenland-sits-180654737.html)
 <!-- feed end -->
 
 ### Onstream
