@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [Severe storms to move across GA, significant risk for tornadoes](https://www.yahoo.com/news/severe-storms-move-across-ga-094602523.html)
-- Mar 15 - [Kia is crushing it in America, and sidestepping tariffs — for now](https://finance.yahoo.com/news/kia-is-crushing-it-in-america-and-sidestepping-tariffs--for-now-150004894.html)
-- Mar 15 - [After Elon Musk Promised Cybertrucks Could Function as Boats, One Fell Into a Harbor for a Perfect Test](https://www.yahoo.com/news/elon-musk-promised-cybertrucks-could-134517997.html)
+- Mar 15 - [Two big changes coming to Social Security you need to know about](https://finance.yahoo.com/news/two-big-changes-coming-to-social-security-you-need-to-know-about-150020216.html)
+- Mar 15 - [Key witness provides new details about missing college student](https://www.yahoo.com/news/key-witness-provides-details-missing-125149010.html)
 - Mar 15 - [Scientist Says He Found Evidence Our Entire Universe Is Trapped Inside a Black Hole](https://www.yahoo.com/news/scientist-says-found-evidence-entire-121519011.html)
 - Mar 15 - [Scientists make revolutionary breakthrough that could reshape how we grow food: 'This marks the beginning of a new era'](https://www.yahoo.com/tech/scientists-revolutionary-breakthrough-could-reshape-111508573.html)
+- Mar 15 - [NASA astronauts return home after major delay. Their extended stay could have health consequences](https://www.yahoo.com/news/nasa-astronauts-return-home-major-095903979.html)
 <!-- feed end -->
 
 ### Onstream
