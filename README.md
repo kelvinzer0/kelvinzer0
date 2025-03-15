@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [Cybersecurity officials warn against potentially costly Medusa ransomware attacks](https://www.yahoo.com/news/cybersecurity-officials-warn-against-potentially-180406702.html)
-- Mar 15 - [Undiscovered cause of Parkinson’s found for first time by scientists in huge breakthrough](https://www.yahoo.com/news/scientists-life-changing-discovery-over-181831483.html)
+- Mar 15 - [A judge limits Trump's ability to deport people under the 18th century Alien Enemies Act](https://www.yahoo.com/news/judge-limits-trumps-ability-deport-184126243.html)
+- Mar 15 - [Israeli airstrikes into Gaza kill at least 9, including journalists, Hamas says](https://www.yahoo.com/news/israeli-airstrikes-gaza-kill-least-155724856.html)
 - Mar 15 - [The Air Force Asked L3Harris: Can You Build Us a Fighter Plane for Less Than $50 Million?](https://finance.yahoo.com/news/air-force-asked-l3harris-build-141000997.html)
-- Mar 15 - [Scientist Says He Found Evidence Our Entire Universe Is Trapped Inside a Black Hole](https://www.yahoo.com/news/scientist-says-found-evidence-entire-121519011.html)
-- Mar 15 - [Scientists make revolutionary breakthrough that could reshape how we grow food: 'This marks the beginning of a new era'](https://www.yahoo.com/tech/scientists-revolutionary-breakthrough-could-reshape-111508573.html)
+- Mar 15 - [Not just condos: Florida’s housing market is softening, especially along the southwest coast](https://finance.yahoo.com/news/not-just-condos-floridas-housing-market-is-softening-especially-along-the-southwest-coast-130036267.html)
+- Mar 15 - [Ukrainian residents left reeling after shelling in Kherson](https://www.yahoo.com/news/ukrainian-residents-left-reeling-shelling-123813326.html)
 <!-- feed end -->
 
 ### Onstream
