@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 15 - [Trump says he was being a 'bit sarcastic' when he promised to end Russia-Ukraine war in 24 hours](https://www.yahoo.com/news/trump-says-being-bit-sarcastic-014900811.html)
+- Mar 14 - [Scientists issue urgent warning about mysterious 'cold blob' in the ocean: 'Most likely underestimated'](https://www.yahoo.com/news/scientists-issue-urgent-warning-mysterious-233000393.html)
 - Mar 14 - [Berkshire Hathaway director Olson to step down, Buffett opposes shareholder proposals](https://finance.yahoo.com/news/berkshire-hathaway-director-olson-step-224844647.html)
 - Mar 14 - [Rubio says South Africa’s ambassador to the US 'is no longer welcome' in the country](https://www.yahoo.com/news/rubio-says-south-africa-ambassador-213227696.html)
 - Mar 14 - [Fetterman claps back at Ocasio-Cortez on government funding vote](https://www.yahoo.com/news/fetterman-claps-back-ocasio-cortez-203212022.html)
-- Mar 14 - [Michigan judge wanted Walmart shoplifters to wash cars. His boss stepped on the hose.](https://www.yahoo.com/news/michigan-judge-wanted-walmart-shoplifters-200924171.html)
 <!-- feed end -->
 
 ### Onstream
