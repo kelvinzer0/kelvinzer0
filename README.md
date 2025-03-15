@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [Ukrainian residents left reeling after shelling in Kherson](https://www.yahoo.com/news/ukrainian-residents-left-reeling-shelling-123813326.html)
-- Mar 15 - [NASA astronauts return home after major delay. Their extended stay could have health consequences](https://www.yahoo.com/news/nasa-astronauts-return-home-major-095903979.html)
-- Mar 15 - [This Recession Indicator Hasn't Been Wrong in 59 Years: Here's What It Says Happens Next](https://finance.yahoo.com/news/recession-indicator-hasnt-wrong-59-080600943.html)
-- Mar 15 - [A river ‘died' overnight in Zambia after an acidic waste spill at a Chinese-owned mine](https://www.yahoo.com/news/river-died-overnight-zambia-acidic-043610777.html)
-- Mar 15 - [PHOTOS: Severe weather causes extensive impact in St. Louis area and beyond](https://www.yahoo.com/news/photos-severe-weather-causes-extensive-042537398.html)
+- Mar 15 - [Severe storms to move across GA, significant risk for tornadoes](https://www.yahoo.com/news/severe-storms-move-across-ga-094602523.html)
+- Mar 15 - [Kia is crushing it in America, and sidestepping tariffs — for now](https://finance.yahoo.com/news/kia-is-crushing-it-in-america-and-sidestepping-tariffs--for-now-150004894.html)
+- Mar 15 - [After Elon Musk Promised Cybertrucks Could Function as Boats, One Fell Into a Harbor for a Perfect Test](https://www.yahoo.com/news/elon-musk-promised-cybertrucks-could-134517997.html)
+- Mar 15 - [Scientist Says He Found Evidence Our Entire Universe Is Trapped Inside a Black Hole](https://www.yahoo.com/news/scientist-says-found-evidence-entire-121519011.html)
+- Mar 15 - [Scientists make revolutionary breakthrough that could reshape how we grow food: 'This marks the beginning of a new era'](https://www.yahoo.com/tech/scientists-revolutionary-breakthrough-could-reshape-111508573.html)
 <!-- feed end -->
 
 ### Onstream
