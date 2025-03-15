@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 15 - [Ukrainian residents left reeling after shelling in Kherson](https://www.yahoo.com/news/ukrainian-residents-left-reeling-shelling-123813326.html)
-- Mar 15 - [The Best 7-Day Walking Plan for Weight Loss, Created by Certified Trainers](https://www.yahoo.com/lifestyle/best-7-day-walking-plan-120000813.html)
 - Mar 15 - [NASA astronauts return home after major delay. Their extended stay could have health consequences](https://www.yahoo.com/news/nasa-astronauts-return-home-major-095903979.html)
+- Mar 15 - [This Recession Indicator Hasn't Been Wrong in 59 Years: Here's What It Says Happens Next](https://finance.yahoo.com/news/recession-indicator-hasnt-wrong-59-080600943.html)
 - Mar 15 - [A river ‘died' overnight in Zambia after an acidic waste spill at a Chinese-owned mine](https://www.yahoo.com/news/river-died-overnight-zambia-acidic-043610777.html)
-- Mar 15 - [Trump says he was being a 'bit sarcastic' when he promised to end Russia-Ukraine war in 24 hours](https://www.yahoo.com/news/trump-says-being-bit-sarcastic-014900811.html)
+- Mar 15 - [PHOTOS: Severe weather causes extensive impact in St. Louis area and beyond](https://www.yahoo.com/news/photos-severe-weather-causes-extensive-042537398.html)
 <!-- feed end -->
 
 ### Onstream
