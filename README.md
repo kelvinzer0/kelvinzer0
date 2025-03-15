@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 15 - [Trump says he was being a 'bit sarcastic' when he promised to end Russia-Ukraine war in 24 hours](https://www.yahoo.com/news/trump-says-being-bit-sarcastic-014900811.html)
-- Mar 14 - [Man who sexually assaulted, impregnated disabled assisted living facility resident handed 25-year sentence](https://www.yahoo.com/news/man-sexually-assaulted-impregnated-disabled-233826077.html)
+- Mar 15 - [Trump administration weighs travel ban on dozens of countries, memo says](https://www.yahoo.com/news/trump-administration-weighs-travel-ban-004049990.html)
+- Mar 14 - ["Eventually, Sleep Will Kick In": Sleep Psychologists Are Sharing 6 Weird Ways That Actually Help You Fall Asleep Faster](https://www.yahoo.com/lifestyle/eventually-sleep-kick-sleep-psychologists-233102558.html)
 - Mar 14 - [Scientists issue urgent warning about mysterious 'cold blob' in the ocean: 'Most likely underestimated'](https://www.yahoo.com/news/scientists-issue-urgent-warning-mysterious-233000393.html)
-- Mar 14 - [Berkshire Hathaway director Olson to step down, Buffett opposes shareholder proposals](https://finance.yahoo.com/news/berkshire-hathaway-director-olson-step-224844647.html)
-- Mar 14 - [10 facts about Obama’s $18M Hawaiʻi beachfront mansion](https://www.yahoo.com/news/10-facts-obama-18m-hawai-220000235.html)
+- Mar 14 - [Diddy Looked 'Bloated' & 'Old' During His Latest Court Appearance As He Faced Fresh Sexual Abuse Allegations](https://www.yahoo.com/news/diddy-looked-bloated-old-during-231531489.html)
 <!-- feed end -->
 
 ### Onstream
