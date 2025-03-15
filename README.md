@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [Two big changes coming to Social Security you need to know about](https://finance.yahoo.com/news/two-big-changes-coming-to-social-security-you-need-to-know-about-150020216.html)
-- Mar 15 - [Key witness provides new details about missing college student](https://www.yahoo.com/news/key-witness-provides-details-missing-125149010.html)
+- Mar 15 - [Three dead, multiple injured after Friday night storms across Arkansas](https://www.yahoo.com/news/three-dead-multiple-injured-friday-144549854.html)
+- Mar 15 - [The Air Force Asked L3Harris: Can You Build Us a Fighter Plane for Less Than $50 Million?](https://finance.yahoo.com/news/air-force-asked-l3harris-build-141000997.html)
+- Mar 15 - [Not just condos: Florida’s housing market is softening, especially along the southwest coast](https://finance.yahoo.com/news/not-just-condos-floridas-housing-market-is-softening-especially-along-the-southwest-coast-130036267.html)
+- Mar 15 - [Ukrainian residents left reeling after shelling in Kherson](https://www.yahoo.com/news/ukrainian-residents-left-reeling-shelling-123813326.html)
 - Mar 15 - [Scientist Says He Found Evidence Our Entire Universe Is Trapped Inside a Black Hole](https://www.yahoo.com/news/scientist-says-found-evidence-entire-121519011.html)
-- Mar 15 - [Scientists make revolutionary breakthrough that could reshape how we grow food: 'This marks the beginning of a new era'](https://www.yahoo.com/tech/scientists-revolutionary-breakthrough-could-reshape-111508573.html)
-- Mar 15 - [NASA astronauts return home after major delay. Their extended stay could have health consequences](https://www.yahoo.com/news/nasa-astronauts-return-home-major-095903979.html)
 <!-- feed end -->
 
 ### Onstream
