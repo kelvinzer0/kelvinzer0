@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 15 - [Trump says he was being a 'bit sarcastic' when he promised to end Russia-Ukraine war in 24 hours](https://www.yahoo.com/news/trump-says-being-bit-sarcastic-014900811.html)
+- Mar 14 - [Man who sexually assaulted, impregnated disabled assisted living facility resident handed 25-year sentence](https://www.yahoo.com/news/man-sexually-assaulted-impregnated-disabled-233826077.html)
 - Mar 14 - [Scientists issue urgent warning about mysterious 'cold blob' in the ocean: 'Most likely underestimated'](https://www.yahoo.com/news/scientists-issue-urgent-warning-mysterious-233000393.html)
 - Mar 14 - [Berkshire Hathaway director Olson to step down, Buffett opposes shareholder proposals](https://finance.yahoo.com/news/berkshire-hathaway-director-olson-step-224844647.html)
-- Mar 14 - [Rubio says South Africa’s ambassador to the US 'is no longer welcome' in the country](https://www.yahoo.com/news/rubio-says-south-africa-ambassador-213227696.html)
-- Mar 14 - [Fetterman claps back at Ocasio-Cortez on government funding vote](https://www.yahoo.com/news/fetterman-claps-back-ocasio-cortez-203212022.html)
+- Mar 14 - [10 facts about Obama’s $18M Hawaiʻi beachfront mansion](https://www.yahoo.com/news/10-facts-obama-18m-hawai-220000235.html)
 <!-- feed end -->
 
 ### Onstream
