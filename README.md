@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [A judge limits Trump's ability to deport people under the 18th century Alien Enemies Act](https://www.yahoo.com/news/judge-limits-trumps-ability-deport-184126243.html)
-- Mar 15 - [Israeli airstrikes into Gaza kill at least 9, including journalists, Hamas says](https://www.yahoo.com/news/israeli-airstrikes-gaza-kill-least-155724856.html)
-- Mar 15 - [The Air Force Asked L3Harris: Can You Build Us a Fighter Plane for Less Than $50 Million?](https://finance.yahoo.com/news/air-force-asked-l3harris-build-141000997.html)
-- Mar 15 - [Not just condos: Florida’s housing market is softening, especially along the southwest coast](https://finance.yahoo.com/news/not-just-condos-floridas-housing-market-is-softening-especially-along-the-southwest-coast-130036267.html)
-- Mar 15 - [Ukrainian residents left reeling after shelling in Kherson](https://www.yahoo.com/news/ukrainian-residents-left-reeling-shelling-123813326.html)
+- Mar 15 - [Struggling Steakhouse Chains That Turned Things Around](https://finance.yahoo.com/news/struggling-steakhouse-chains-turned-things-194000138.html)
+- Mar 15 - [Canada reconsidering multi-billion dollar defense deal with the US](https://www.yahoo.com/news/canada-reconsidering-multi-billion-dollar-184950458.html)
+- Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
+- Mar 15 - [Two big changes coming to Social Security you need to know about](https://finance.yahoo.com/news/two-big-changes-coming-to-social-security-you-need-to-know-about-150020216.html)
+- Mar 15 - [Three dead, multiple injured after Friday night storms across Arkansas](https://www.yahoo.com/news/three-dead-multiple-injured-friday-144549854.html)
 <!-- feed end -->
 
 ### Onstream
