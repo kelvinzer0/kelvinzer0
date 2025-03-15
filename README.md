@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [A river ‘died' overnight in Zambia after an acidic waste spill at a Chinese-owned mine](https://www.yahoo.com/news/river-died-overnight-zambia-acidic-043610777.html)
 - Mar 15 - [Trump says he was being a 'bit sarcastic' when he promised to end Russia-Ukraine war in 24 hours](https://www.yahoo.com/news/trump-says-being-bit-sarcastic-014900811.html)
 - Mar 15 - [Trump administration weighs travel ban on dozens of countries, memo says](https://www.yahoo.com/news/trump-administration-weighs-travel-ban-004049990.html)
 - Mar 14 - ["Eventually, Sleep Will Kick In": Sleep Psychologists Are Sharing 6 Weird Ways That Actually Help You Fall Asleep Faster](https://www.yahoo.com/lifestyle/eventually-sleep-kick-sleep-psychologists-233102558.html)
 - Mar 14 - [Scientists issue urgent warning about mysterious 'cold blob' in the ocean: 'Most likely underestimated'](https://www.yahoo.com/news/scientists-issue-urgent-warning-mysterious-233000393.html)
-- Mar 14 - [Berkshire Hathaway director Olson to step down, Buffett opposes shareholder proposals](https://finance.yahoo.com/news/berkshire-hathaway-director-olson-step-224844647.html)
 <!-- feed end -->
 
 ### Onstream
