@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [Struggling Steakhouse Chains That Turned Things Around](https://finance.yahoo.com/news/struggling-steakhouse-chains-turned-things-194000138.html)
+- Mar 15 - [Missouri prosecutor declines to charge a police officer who shot and killed a woman and infant](https://www.yahoo.com/news/missouri-prosecutor-declines-charge-police-195135341.html)
 - Mar 15 - [Canada reconsidering multi-billion dollar defense deal with the US](https://www.yahoo.com/news/canada-reconsidering-multi-billion-dollar-184950458.html)
+- Mar 15 - [Crews work to restore power to thousands in West Michigan](https://www.yahoo.com/news/crews-restore-power-thousands-west-180036479.html)
 - Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
 - Mar 15 - [Two big changes coming to Social Security you need to know about](https://finance.yahoo.com/news/two-big-changes-coming-to-social-security-you-need-to-know-about-150020216.html)
-- Mar 15 - [Three dead, multiple injured after Friday night storms across Arkansas](https://www.yahoo.com/news/three-dead-multiple-injured-friday-144549854.html)
 <!-- feed end -->
 
 ### Onstream
