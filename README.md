@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - ["Eventually, Sleep Will Kick In": Sleep Psychologists Are Sharing 6 Weird Ways That Actually Help You Fall Asleep Faster](https://www.yahoo.com/lifestyle/eventually-sleep-kick-sleep-psychologists-233102558.html)
 - Mar 14 - [Berkshire Hathaway director Olson to step down, Buffett opposes shareholder proposals](https://finance.yahoo.com/news/berkshire-hathaway-director-olson-step-224844647.html)
-- Mar 14 - [Donald Trump, In DOJ Speech, Calls CNN And MSNBC “Illegal” For Reporting Negatively On Him](https://www.yahoo.com/news/donald-trump-doj-speech-calls-220706098.html)
-- Mar 14 - [Intel’s New CEO Gets Pay Package Valued at About $69 Million](https://finance.yahoo.com/news/intel-ceo-gets-pay-package-214728321.html)
 - Mar 14 - [Rubio says South Africa’s ambassador to the US 'is no longer welcome' in the country](https://www.yahoo.com/news/rubio-says-south-africa-ambassador-213227696.html)
-- Mar 14 - [TD Bank to close nearly a dozen locations in NY, NJ](https://finance.yahoo.com/news/td-bank-close-nearly-dozen-201642282.html)
+- Mar 14 - [Michigan judge wanted Walmart shoplifters to wash cars. His boss stepped on the hose.](https://www.yahoo.com/news/michigan-judge-wanted-walmart-shoplifters-200924171.html)
+- Mar 14 - [Winter weather brings snow to Redding, northern Sacramento Valley floor, and chains to I-5](https://www.yahoo.com/news/winter-weather-brings-snow-redding-155723724.html)
 <!-- feed end -->
 
 ### Onstream
