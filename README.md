@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [Ukrainian residents left reeling after shelling in Kherson](https://www.yahoo.com/news/ukrainian-residents-left-reeling-shelling-123813326.html)
+- Mar 15 - [The Best 7-Day Walking Plan for Weight Loss, Created by Certified Trainers](https://www.yahoo.com/lifestyle/best-7-day-walking-plan-120000813.html)
 - Mar 15 - [NASA astronauts return home after major delay. Their extended stay could have health consequences](https://www.yahoo.com/news/nasa-astronauts-return-home-major-095903979.html)
 - Mar 15 - [A river ‘died' overnight in Zambia after an acidic waste spill at a Chinese-owned mine](https://www.yahoo.com/news/river-died-overnight-zambia-acidic-043610777.html)
-- Mar 15 - [Woman sues Connecticut school system saying she can't read or write after graduating](https://www.yahoo.com/news/woman-sues-connecticut-school-system-023450640.html)
-- Mar 15 - [Trump administration weighs travel ban on dozens of countries, memo says](https://www.yahoo.com/news/trump-administration-weighs-travel-ban-004049990.html)
-- Mar 14 - [Scientists issue urgent warning about mysterious 'cold blob' in the ocean: 'Most likely underestimated'](https://www.yahoo.com/news/scientists-issue-urgent-warning-mysterious-233000393.html)
+- Mar 15 - [Trump says he was being a 'bit sarcastic' when he promised to end Russia-Ukraine war in 24 hours](https://www.yahoo.com/news/trump-says-being-bit-sarcastic-014900811.html)
 <!-- feed end -->
 
 ### Onstream
