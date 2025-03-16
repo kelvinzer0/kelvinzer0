@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [Fusion energy: Unlocking the power of the stars](https://www.yahoo.com/news/fusion-energy-unlocking-power-stars-150209984.html)
 - Mar 16 - ['A sentiment shift': What Wall Street is saying after the S&P 500's 10% tumble](https://finance.yahoo.com/news/a-sentiment-shift-what-wall-street-is-saying-after-the-sp-500s-10-tumble-133045156.html)
-- Mar 16 - [Tornadoes rip across South as storm system nears East Coast](https://www.yahoo.com/news/tornadoes-rip-across-south-storm-121519146.html)
-- Mar 16 - [Doctors Are Sharing The Things We Still Don't Know About The Human Body, And I've Never Been More Fascinated In My Life](https://www.yahoo.com/lifestyle/doctors-sharing-things-still-dont-103103455.html)
-- Mar 16 - [Researchers make surprising discovery after planting two common crops side by side — here's how it could shake up food production](https://www.yahoo.com/tech/researchers-surprising-discovery-planting-two-103012586.html)
-- Mar 16 - [Cameras capture surprising change in predators' behavior at watering hole: 'It was not just one species'](https://www.yahoo.com/news/cameras-capture-surprising-change-predators-101525545.html)
+- Mar 16 - [At Least 59 Concertgoers Dead and Over 100 Injured in Nightclub Fire: ‘A Difficult and Very Sad Day'](https://www.yahoo.com/entertainment/least-51-concertgoers-dead-over-130257308.html)
+- Mar 16 - [First Alert Weather Day: Tornado watch in effect for the entire viewing area](https://www.yahoo.com/news/first-alert-weather-day-expecting-115514506.html)
+- Mar 16 - [Russian troops battle last Ukrainian forces in Kursk region](https://www.yahoo.com/news/russian-troops-battle-last-ukrainian-112904056.html)
 <!-- feed end -->
 
 ### Onstream
