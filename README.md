@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [Burger chain says its 'fries will be RFK'd' as it joins 'Make America Healthy Again' effort](https://www.yahoo.com/lifestyle/burger-chain-says-fries-rfkd-160007636.html)
+- Mar 16 - [Here Are The Absolute Funniest Weekend Tweets](https://www.yahoo.com/lifestyle/absolute-funniest-weekend-tweets-152749529.html)
 - Mar 16 - [Fusion energy: Unlocking the power of the stars](https://www.yahoo.com/news/fusion-energy-unlocking-power-stars-150209984.html)
 - Mar 16 - ['A sentiment shift': What Wall Street is saying after the S&P 500's 10% tumble](https://finance.yahoo.com/news/a-sentiment-shift-what-wall-street-is-saying-after-the-sp-500s-10-tumble-133045156.html)
 - Mar 16 - [At Least 59 Concertgoers Dead and Over 100 Injured in Nightclub Fire: ‘A Difficult and Very Sad Day'](https://www.yahoo.com/entertainment/least-51-concertgoers-dead-over-130257308.html)
-- Mar 16 - [First Alert Weather Day: Tornado watch in effect for the entire viewing area](https://www.yahoo.com/news/first-alert-weather-day-expecting-115514506.html)
-- Mar 16 - [Russian troops battle last Ukrainian forces in Kursk region](https://www.yahoo.com/news/russian-troops-battle-last-ukrainian-112904056.html)
 <!-- feed end -->
 
 ### Onstream
