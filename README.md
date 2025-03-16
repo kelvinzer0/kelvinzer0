@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Burger chain says its 'fries will be RFK'd' as it joins 'Make America Healthy Again' effort](https://www.yahoo.com/lifestyle/burger-chain-says-fries-rfkd-160007636.html)
+- Mar 16 - [Apple considered making the rumored iPhone 17 Air ‘completely port-free,’ according to report](https://www.yahoo.com/tech/apple-considered-making-the-rumored-iphone-17-air-completely-port-free-according-to-report-165334942.html)
+- Mar 16 - [Ukraine's Zelenskiy appoints new chief of general staff to speed up reforms](https://www.yahoo.com/news/ukraines-zelenskiy-appoints-chief-general-165235959.html)
+- Mar 16 - [Video shows fire starting to burn during performance at North Macedonia nightclub](https://www.yahoo.com/news/video-shows-fire-starting-burn-152802765.html)
 - Mar 16 - [Here Are The Absolute Funniest Weekend Tweets](https://www.yahoo.com/lifestyle/absolute-funniest-weekend-tweets-152749529.html)
-- Mar 16 - [Fusion energy: Unlocking the power of the stars](https://www.yahoo.com/news/fusion-energy-unlocking-power-stars-150209984.html)
-- Mar 16 - ['A sentiment shift': What Wall Street is saying after the S&P 500's 10% tumble](https://finance.yahoo.com/news/a-sentiment-shift-what-wall-street-is-saying-after-the-sp-500s-10-tumble-133045156.html)
-- Mar 16 - [At Least 59 Concertgoers Dead and Over 100 Injured in Nightclub Fire: ‘A Difficult and Very Sad Day'](https://www.yahoo.com/entertainment/least-51-concertgoers-dead-over-130257308.html)
+- Mar 16 - [Truck overturns on U.S. 231, 21-year-old taken to hospital for treatment](https://www.yahoo.com/news/truck-overturns-u-231-21-135654109.html)
 <!-- feed end -->
 
 ### Onstream
