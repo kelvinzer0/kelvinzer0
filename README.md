@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [A Kansas babysitter was arrested after an infant died with meth in his system. She has now escaped her treatment facility](https://www.yahoo.com/news/kansas-babysitter-arrested-infant-died-220616469.html)
-- Mar 15 - [1 Magnificent S&P 500 High-Yield Dividend Stock Down 25% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-p-500-high-220500982.html)
+- Mar 15 - [UPDATE: Strong winds cause partial collapse of Dayton building; roads closed throughout weekend](https://www.yahoo.com/news/facade-downtown-high-rise-building-183327085.html)
 - Mar 15 - [Missouri prosecutor declines to charge a police officer who shot and killed a woman and infant](https://www.yahoo.com/news/missouri-prosecutor-declines-charge-police-195135341.html)
-- Mar 15 - [Helicopter crashes into Northern California waterway](https://www.yahoo.com/news/helicopter-crashes-northern-california-waterway-192916473.html)
 - Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
+- Mar 15 - [Two big changes coming to Social Security you need to know about](https://finance.yahoo.com/news/two-big-changes-coming-to-social-security-you-need-to-know-about-150020216.html)
+- Mar 15 - [FBI warns of dangerous new ‘smishing' scam targeting your phone](https://www.yahoo.com/tech/fbi-warns-dangerous-smishing-scam-140056543.html)
 <!-- feed end -->
 
 ### Onstream
