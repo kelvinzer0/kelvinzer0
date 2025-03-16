@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Fallas figures target flood failures in annual Spanish festival](https://www.yahoo.com/news/fallas-figures-target-flood-failures-170522098.html)
+- Mar 16 - [Ex-US Rep. Nita Lowey, a New York Democrat who chaired powerful House Appropriations Committee, dies](https://www.yahoo.com/news/ex-us-rep-nita-lowey-180547245.html)
+- Mar 16 - [The 4% rule creator reveals the new safe retirement withdrawal rate](https://finance.yahoo.com/news/the-4-rule-creator-reveals-the-new-safe-retirement-withdrawal-rate-180042257.html)
+- Mar 16 - [Need More Magnesium? Here Are the Different Types and Ways to Add It to Your Diet](https://www.yahoo.com/lifestyle/magnesium-different-types-add-diet-113803102.html)
 - Mar 16 - [Twin Brothers, 19, Missed a Trip to Boston. Now Their Family Wants Answers After They Were Found Dead in Georgia Mountains](https://www.yahoo.com/entertainment/twin-brothers-19-missed-trip-162208217.html)
-- Mar 16 - [Schumer under fire from Democrats for supporting Republican spending bill, fueling leadership concerns: report](https://www.yahoo.com/news/schumer-under-fire-democrats-supporting-155311022.html)
-- Mar 16 - [Here Are The Absolute Funniest Weekend Tweets](https://www.yahoo.com/lifestyle/absolute-funniest-weekend-tweets-152749529.html)
-- Mar 16 - ['A sentiment shift': What Wall Street is saying after the S&P 500's 10% tumble](https://finance.yahoo.com/news/a-sentiment-shift-what-wall-street-is-saying-after-the-sp-500s-10-tumble-133045156.html)
+- Mar 16 - [Researchers make surprising discovery after planting two common crops side by side — here's how it could shake up food production](https://www.yahoo.com/tech/researchers-surprising-discovery-planting-two-103012586.html)
 <!-- feed end -->
 
 ### Onstream
