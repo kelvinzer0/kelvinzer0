@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [22 Amusement Park Visitors Who Must've Left Their Brains At Home Because They Acted Like Total Ding-Dongs While Inside The Gates](https://www.yahoo.com/entertainment/22-amusement-park-visitors-mustve-021602688.html)
-- Mar 16 - [Ceasefire between Israel and Hamas in limbo](https://www.yahoo.com/news/ceasefire-between-israel-hamas-limbo-013813254.html)
-- Mar 15 - [Missouri prosecutor declines to charge a police officer who shot and killed a woman and infant](https://www.yahoo.com/news/missouri-prosecutor-declines-charge-police-195135341.html)
-- Mar 15 - [Eight dead, dozens injured in 71-vehicle accident during dust storm in western Kansas](https://www.yahoo.com/news/eight-dead-dozens-injured-71-194829019.html)
-- Mar 15 - [Nikki McCain disappearance now a homicide case in Shasta County](https://www.yahoo.com/news/nikki-mccain-disappearance-now-homicide-175900463.html)
+- Mar 16 - [Dozens dead as tornadoes rip through central and southern US](https://www.yahoo.com/news/sixteen-dead-tornadoes-rip-southern-181459919.html)
+- Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
+- Mar 15 - [Two big changes coming to Social Security you need to know about](https://finance.yahoo.com/news/two-big-changes-coming-to-social-security-you-need-to-know-about-150020216.html)
+- Mar 15 - [FBI warns of dangerous new ‘smishing' scam targeting your phone](https://www.yahoo.com/tech/fbi-warns-dangerous-smishing-scam-140056543.html)
+- Mar 15 - [After Elon Musk Promised Cybertrucks Could Function as Boats, One Fell Into a Harbor for a Perfect Test](https://www.yahoo.com/news/elon-musk-promised-cybertrucks-could-134517997.html)
 <!-- feed end -->
 
 ### Onstream
