@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [U.S. removes hundreds of alleged Venezuelan gang members under now-blocked authority](https://www.yahoo.com/news/u-removes-hundreds-alleged-venezuelan-125122509.html)
-- Mar 16 - [First Alert Weather Day: Expecting Strong to Severe Thunderstorms](https://www.yahoo.com/news/first-alert-weather-day-expecting-115514506.html)
+- Mar 16 - ['A sentiment shift': What Wall Street is saying after the S&P 500's 10% tumble](https://finance.yahoo.com/news/a-sentiment-shift-what-wall-street-is-saying-after-the-sp-500s-10-tumble-133045156.html)
+- Mar 16 - [Tornadoes rip across South as storm system nears East Coast](https://www.yahoo.com/news/tornadoes-rip-across-south-storm-121519146.html)
+- Mar 16 - [Doctors Are Sharing The Things We Still Don't Know About The Human Body, And I've Never Been More Fascinated In My Life](https://www.yahoo.com/lifestyle/doctors-sharing-things-still-dont-103103455.html)
 - Mar 16 - [Researchers make surprising discovery after planting two common crops side by side — here's how it could shake up food production](https://www.yahoo.com/tech/researchers-surprising-discovery-planting-two-103012586.html)
-- Mar 16 - [Scientists make groundbreaking discovery that could change the future of recycling: 'This process could make a significant impact'](https://www.yahoo.com/tech/scientists-groundbreaking-discovery-could-change-101518239.html)
-- Mar 16 - [Scientists make alarming discovery about health impact of drinking bottled water — here's what you need to know](https://www.yahoo.com/news/scientists-alarming-discovery-health-impact-101513788.html)
+- Mar 16 - [Cameras capture surprising change in predators' behavior at watering hole: 'It was not just one species'](https://www.yahoo.com/news/cameras-capture-surprising-change-predators-101525545.html)
 <!-- feed end -->
 
 ### Onstream
