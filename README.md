@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Vigil in Mexico City after discovery of alleged Mexican cartel 'extermination site'](https://www.yahoo.com/news/vigil-mexico-city-discovery-alleged-065729003.html)
-- Mar 16 - [Thousands without power as storms sweep through metro Atlanta, north Georgia](https://www.yahoo.com/news/thousands-without-power-storms-sweep-064240007.html)
 - Mar 16 - [NASA's stuck astronauts welcome their newly arrived replacements to the space station](https://www.yahoo.com/news/nasas-stuck-astronauts-welcome-newly-040526807.html)
-- Mar 15 - [Unlicensed Houston strip club raided by police](https://www.yahoo.com/news/unlicensed-houston-strip-club-raided-202109969.html)
+- Mar 16 - [L.A. man scalded by Starbucks drinks is awarded $50 million](https://www.yahoo.com/news/l-man-scalded-starbucks-drinks-025912204.html)
+- Mar 16 - [Ceasefire between Israel and Hamas in limbo](https://www.yahoo.com/news/ceasefire-between-israel-hamas-limbo-013813254.html)
 - Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
+- Mar 15 - [NATO countries are having second thoughts about buying America’s F-35 as the ‘predictability of our allies’ is doubted amid Trump’s seismic shifts](https://www.yahoo.com/news/nato-countries-having-second-thoughts-165713248.html)
 <!-- feed end -->
 
 ### Onstream
