@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Dozens dead as tornadoes rip through central and southern US](https://www.yahoo.com/news/sixteen-dead-tornadoes-rip-southern-181459919.html)
+- Mar 16 - [NASA's stuck astronauts welcome their newly arrived replacements to the space station](https://www.yahoo.com/news/nasas-stuck-astronauts-welcome-newly-040526807.html)
+- Mar 16 - [Ceasefire between Israel and Hamas in limbo](https://www.yahoo.com/news/ceasefire-between-israel-hamas-limbo-013813254.html)
+- Mar 15 - [Austin I-35 crash: Truck carrying Amazon haul failed to slow for merge in deadly wreck](https://www.yahoo.com/news/austin-35-crash-truck-carrying-223222122.html)
+- Mar 15 - [Crews work to restore power to thousands in West Michigan](https://www.yahoo.com/news/crews-restore-power-thousands-west-180036479.html)
 - Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
-- Mar 15 - [Two big changes coming to Social Security you need to know about](https://finance.yahoo.com/news/two-big-changes-coming-to-social-security-you-need-to-know-about-150020216.html)
-- Mar 15 - [FBI warns of dangerous new ‘smishing' scam targeting your phone](https://www.yahoo.com/tech/fbi-warns-dangerous-smishing-scam-140056543.html)
-- Mar 15 - [After Elon Musk Promised Cybertrucks Could Function as Boats, One Fell Into a Harbor for a Perfect Test](https://www.yahoo.com/news/elon-musk-promised-cybertrucks-could-134517997.html)
 <!-- feed end -->
 
 ### Onstream
