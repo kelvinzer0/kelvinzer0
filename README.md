@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Live updates: At least 30 dead as tornadoes and extreme weather push across US](https://www.yahoo.com/news/live-updates-least-30-dead-120926800.html)
-- Mar 16 - [Abcarian: There is nothing efficient about Musk and Trump's toxic lack of empathy](https://www.yahoo.com/news/abcarian-nothing-efficient-musk-trumps-100059065.html)
-- Mar 16 - [Arizona Lottery Powerball, The Pick results for March 15, 2025](https://www.yahoo.com/news/arizona-lottery-powerball-pick-results-041004894.html)
-- Mar 16 - [NASA's stuck astronauts welcome their newly arrived replacements to the space station](https://www.yahoo.com/news/nasas-stuck-astronauts-welcome-newly-040526807.html)
-- Mar 16 - [Sinema calls out Ocasio-Cortez, other Dems over ‘sudden change of heart’ on filibuster](https://www.yahoo.com/news/sinema-calls-ocasio-cortez-other-024210141.html)
+- Mar 16 - [U.S. removes hundreds of alleged Venezuelan gang members under now-blocked authority](https://www.yahoo.com/news/u-removes-hundreds-alleged-venezuelan-125122509.html)
+- Mar 16 - [First Alert Weather Day: Expecting Strong to Severe Thunderstorms](https://www.yahoo.com/news/first-alert-weather-day-expecting-115514506.html)
+- Mar 16 - [Researchers make surprising discovery after planting two common crops side by side — here's how it could shake up food production](https://www.yahoo.com/tech/researchers-surprising-discovery-planting-two-103012586.html)
+- Mar 16 - [Scientists make groundbreaking discovery that could change the future of recycling: 'This process could make a significant impact'](https://www.yahoo.com/tech/scientists-groundbreaking-discovery-could-change-101518239.html)
+- Mar 16 - [Scientists make alarming discovery about health impact of drinking bottled water — here's what you need to know](https://www.yahoo.com/news/scientists-alarming-discovery-health-impact-101513788.html)
 <!-- feed end -->
 
 ### Onstream
