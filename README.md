@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 16 - [NASA's stuck astronauts welcome their newly arrived replacements to the space station](https://www.yahoo.com/news/nasas-stuck-astronauts-welcome-newly-040526807.html)
 - Mar 16 - [Ceasefire between Israel and Hamas in limbo](https://www.yahoo.com/news/ceasefire-between-israel-hamas-limbo-013813254.html)
+- Mar 16 - [Eaglet that disappeared from nest in California 'did not make it' through storm](https://www.yahoo.com/news/eaglet-disappeared-nest-california-did-001601752.html)
 - Mar 15 - [Austin I-35 crash: Truck carrying Amazon haul failed to slow for merge in deadly wreck](https://www.yahoo.com/news/austin-35-crash-truck-carrying-223222122.html)
-- Mar 15 - [Crews work to restore power to thousands in West Michigan](https://www.yahoo.com/news/crews-restore-power-thousands-west-180036479.html)
-- Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
+- Mar 15 - [Eight dead, dozens injured in 71-vehicle accident during dust storm in western Kansas](https://www.yahoo.com/news/eight-dead-dozens-injured-71-194829019.html)
 <!-- feed end -->
 
 ### Onstream
