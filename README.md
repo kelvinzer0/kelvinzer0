@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 16 - [Iran-backed Yemen rebels say attacked US carrier after air strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
-- Mar 16 - [Ex-US Rep. Nita Lowey, a New York Democrat who chaired powerful House Appropriations Committee, dies](https://www.yahoo.com/news/ex-us-rep-nita-lowey-180547245.html)
+- Mar 16 - [Jasmine Crockett fires back at John Fetterman over senator’s criticism of Democrats](https://www.yahoo.com/news/jasmine-crockett-fires-back-john-193537620.html)
+- Mar 16 - [What to know about El Salvador's mega-prison after Trump sent hundreds of immigrants there](https://www.yahoo.com/news/know-el-salvadors-mega-prison-180737450.html)
 - Mar 16 - [The 4% rule creator reveals the new safe retirement withdrawal rate](https://finance.yahoo.com/news/the-4-rule-creator-reveals-the-new-safe-retirement-withdrawal-rate-180042257.html)
 - Mar 16 - [Twin Brothers, 19, Missed a Trip to Boston. Now Their Family Wants Answers After They Were Found Dead in Georgia Mountains](https://www.yahoo.com/entertainment/twin-brothers-19-missed-trip-162208217.html)
-- Mar 16 - [I Almost Choked On My Coffee While Reading These Hilarious Weekend Tweets](https://www.yahoo.com/lifestyle/absolute-funniest-weekend-tweets-152749529.html)
 <!-- feed end -->
 
 ### Onstream
