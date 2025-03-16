@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [Severe storms cause damage across metro Atlanta](https://www.yahoo.com/news/severe-storms-cause-damage-across-065339561.html)
 - Mar 16 - [NASA's stuck astronauts welcome their newly arrived replacements to the space station](https://www.yahoo.com/news/nasas-stuck-astronauts-welcome-newly-040526807.html)
+- Mar 16 - [Villa Ridge faces long road to recovery after tornado damage](https://www.yahoo.com/news/villa-ridge-faces-long-road-033828197.html)
 - Mar 16 - [L.A. man scalded by Starbucks drinks is awarded $50 million](https://www.yahoo.com/news/l-man-scalded-starbucks-drinks-025912204.html)
-- Mar 16 - [Ceasefire between Israel and Hamas in limbo](https://www.yahoo.com/news/ceasefire-between-israel-hamas-limbo-013813254.html)
-- Mar 15 - [Donald Trump Reacts After Reporter Hits Him in Face With Microphone](https://www.yahoo.com/entertainment/donald-trump-reacts-reporter-hits-172900394.html)
-- Mar 15 - [NATO countries are having second thoughts about buying America’s F-35 as the ‘predictability of our allies’ is doubted amid Trump’s seismic shifts](https://www.yahoo.com/news/nato-countries-having-second-thoughts-165713248.html)
+- Mar 15 - [Austin I-35 crash: Truck carrying Amazon haul failed to slow for merge in deadly wreck](https://www.yahoo.com/news/austin-35-crash-truck-carrying-223222122.html)
 <!-- feed end -->
 
 ### Onstream
