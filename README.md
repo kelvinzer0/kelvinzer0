@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Not for Russia to decide on peacekeepers in Ukraine, Macron says](https://www.yahoo.com/news/not-russia-decide-peacekeepers-ukraine-104712324.html)
-- Mar 16 - [The 1925 fire that leveled The Breakers as wind-swept embers burned path across the island](https://www.yahoo.com/news/1925-fire-leveled-breakers-wind-100443568.html)
+- Mar 16 - [Live updates: At least 30 dead as tornadoes and extreme weather push across US](https://www.yahoo.com/news/live-updates-least-30-dead-120926800.html)
+- Mar 16 - [Abcarian: There is nothing efficient about Musk and Trump's toxic lack of empathy](https://www.yahoo.com/news/abcarian-nothing-efficient-musk-trumps-100059065.html)
+- Mar 16 - [Arizona Lottery Powerball, The Pick results for March 15, 2025](https://www.yahoo.com/news/arizona-lottery-powerball-pick-results-041004894.html)
 - Mar 16 - [NASA's stuck astronauts welcome their newly arrived replacements to the space station](https://www.yahoo.com/news/nasas-stuck-astronauts-welcome-newly-040526807.html)
-- Mar 15 - [Austin I-35 crash: Truck carrying Amazon haul failed to slow for merge in deadly wreck](https://www.yahoo.com/news/austin-35-crash-truck-carrying-223222122.html)
-- Mar 15 - [Strong winds cause partial collapse of Dayton building; roads closed throughout weekend](https://www.yahoo.com/news/facade-downtown-high-rise-building-183327085.html)
+- Mar 16 - [Sinema calls out Ocasio-Cortez, other Dems over ‘sudden change of heart’ on filibuster](https://www.yahoo.com/news/sinema-calls-ocasio-cortez-other-024210141.html)
 <!-- feed end -->
 
 ### Onstream
