@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [A century after his death, Black man lynched in Indianapolis gets historical marker](https://www.yahoo.com/news/century-death-black-man-lynched-214611413.html)
 - Mar 16 - [Another cat food brand recalled due to possible bird flu contamination](https://www.yahoo.com/lifestyle/another-cat-food-brand-recalled-213335322.html)
 - Mar 16 - [Iran-backed Yemen rebels say attacked US carrier after air strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
-- Mar 16 - [Man set on fire in Times Square as police hunt assailant after similar attack months earlier](https://www.yahoo.com/news/man-set-fire-times-square-202451656.html)
-- Mar 16 - [‘I assume I’ll be driven out the country’: Workers fear Trump is leading a purge of LGBTQ+ federal employees](https://www.yahoo.com/news/assume-ll-driven-country-workers-202837832.html)
+- Mar 16 - ['It's unbelievable they survived.' MS family buried in debris as tornado destroys home](https://www.yahoo.com/news/unbelievable-survived-ms-family-buried-192655901.html)
+- Mar 16 - [What to know about El Salvador's mega-prison after Trump sent hundreds of immigrants there](https://www.yahoo.com/news/know-el-salvadors-mega-prison-180737450.html)
+- Mar 16 - [Ex-US Rep. Nita Lowey, a New York Democrat who chaired powerful House Appropriations Committee, dies](https://www.yahoo.com/news/ex-us-rep-nita-lowey-180547245.html)
 <!-- feed end -->
 
 ### Onstream
