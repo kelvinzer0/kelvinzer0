@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 17 - [Fox News’ Trey Gowdy Takes A Bite Out Of Trump Policy With Movie-Themed Burn](https://www.yahoo.com/news/fox-news-trey-gowdy-takes-122313814.html)
+- Mar 17 - [Trump says Biden’s pardons are now ‘void and vacant’ after autopen controversy](https://www.yahoo.com/news/trump-says-biden-pardons-now-113131037.html)
+- Mar 17 - [Florida spring breakers hold beach boxing match with bets: Video | Morning in America](https://www.yahoo.com/news/florida-spring-breakers-hold-beach-112136283.html)
 - Mar 17 - [Oil isn't going anywhere. Here's why.](https://finance.yahoo.com/video/oil-isnt-going-anywhere-heres-110039141.html)
-- Mar 17 - [Tesla launches free trial of assisted driving service in China](https://finance.yahoo.com/news/tesla-launches-free-trial-assisted-102244064.html)
-- Mar 17 - [Republicans want to officially classify ‘Trump Derangement Syndrome’ as a mental illness](https://www.yahoo.com/news/republicans-want-officially-classify-trump-100316028.html)
-- Mar 17 - [Bitcoin Whale Places $368M Short Bet With 40x Leverage Ahead of March 19 Fed Meeting](https://finance.yahoo.com/news/bitcoin-whale-places-368m-short-075138078.html)
-- Mar 17 - [US meat exports at risk as China lets registrations lapse](https://finance.yahoo.com/news/us-meat-exports-risk-china-043340034.html)
+- Mar 17 - [Exclusive-Intel's new CEO plots overhaul of manufacturing and AI operations](https://finance.yahoo.com/news/exclusive-intels-ceo-plots-overhaul-100609418.html)
 <!-- feed end -->
 
 ### Onstream
