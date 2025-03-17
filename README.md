@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 17 - [Ukraine made a new version of its 'Neptune' missile for strikes deep into Russia. It's already put it to work.](https://www.yahoo.com/news/ukraine-made-version-neptune-missile-153033013.html)
+- Mar 17 - [Cramer on Ford Motor (F): Aluminum Tariffs Will Hurt, But President’s Support for Ford and GM is Clear](https://finance.yahoo.com/news/cramer-ford-motor-f-aluminum-152206335.html)
 - Mar 17 - [Alexandra Clarke: Fears grow for British tourist missing after boat caught fire in Thailand](https://www.yahoo.com/news/fears-grow-british-tourist-missing-141427086.html)
-- Mar 17 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://autos.yahoo.com/m-mechanic-3-pickup-trucks-180118634.html)
-- Mar 17 - [The Dow Theory market indicator is sounding alarm bells for stocks](https://finance.yahoo.com/video/dow-theory-market-indicator-sounding-150000593.html)
+- Mar 17 - [ACLU asks judge to force the Trump administration to state under oath if it violated his court order](https://www.yahoo.com/news/aclu-asks-judge-force-trump-150212032.html)
 - Mar 17 - [Berkshire Hathaway raises stake in these 5 Japanese trading houses](https://finance.yahoo.com/video/berkshire-hathaway-raises-stake-5-144333031.html)
-- Mar 17 - [Urgent search for British football fan who vanished in Italy after visiting Pompeii](https://www.yahoo.com/news/urgent-search-british-football-fan-141951361.html)
 <!-- feed end -->
 
 ### Onstream
