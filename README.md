@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 16 - [Stock market today: Dow, S&P 500, Nasdaq futures tumble after another week of sharp losses](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-tumble-after-another-week-of-sharp-losses-233621800.html)
 - Mar 16 - [Oklahomans survey devastation after hundreds of homes are destroyed and damaged by wildfires](https://www.yahoo.com/news/oklahomans-survey-devastation-hundreds-homes-223207578.html)
 - Mar 16 - [Doctor Claims Gene Hackman's Wife Called Him 24 Hours After Police Say She Died](https://www.yahoo.com/news/doctor-claims-gene-hackmans-wife-223041596.html)
-- Mar 16 - [Iran-backed Yemen rebels say attacked US carrier after air strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
+- Mar 16 - [Doctor at Brown University deported to Lebanon despite US judge's order](https://www.yahoo.com/news/doctor-brown-university-deported-lebanon-221023691.html)
 <!-- feed end -->
 
 ### Onstream
