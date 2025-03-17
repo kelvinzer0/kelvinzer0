@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Elon Musk and Sam Altman finally agree on something: When their courtroom showdown should start](https://finance.yahoo.com/news/elon-musk-and-sam-altman-finally-agree-on-something-when-their-courtroom-showdown-should-start-165356911.html)
-- Mar 17 - [Ukraine’s troops vastly outnumbered and facing ‘huge swarms’ of Russian drones in Kursk retreat](https://www.yahoo.com/news/ukraine-troops-vastly-outnumbered-facing-162604365.html)
+- Mar 17 - [Ask a Realtor: We're relocating for retirement. Should we buy a house or rent first?](https://finance.yahoo.com/personal-finance/mortgages/article/ask-a-realtor-buy-or-rent-when-relocating-for-retirement-170154713.html)
+- Mar 17 - [Here’s what federal judges could do if they’re ignored by the Trump administration](https://www.yahoo.com/news/federal-judges-could-ignored-trump-120047473.html)
+- Mar 17 - ['Danish Viking blood is boiling.' Danes boycott US goods with fervor as others in Europe do so too](https://www.yahoo.com/news/danish-viking-blood-boiling-danes-164711884.html)
+- Mar 17 - [Group attacks pub said to belong to owner of nightclub where fire killed 59](https://www.yahoo.com/news/group-attacks-pub-said-belong-164303576.html)
 - Mar 17 - [Trump administration says South African ambassador has to leave the US by Friday](https://www.yahoo.com/news/trump-administration-says-south-african-161325827.html)
-- Mar 17 - [Firefighters Hands Out Flags in Honor of Members Who Died on 9/11](https://www.yahoo.com/news/firefighters-hands-flags-honor-members-161200378.html)
-- Mar 17 - [Maddow Blog | Monday’s Campaign Round-Up, 3.17.25: Democrats struggle in latest national polls](https://www.yahoo.com/news/maddow-blog-monday-campaign-round-160007769.html)
 <!-- feed end -->
 
 ### Onstream
