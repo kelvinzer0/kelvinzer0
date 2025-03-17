@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Lithuania says Russian military intelligence behind Ikea arson attack in Vilnius](https://www.yahoo.com/news/lithuania-says-russian-military-intelligence-111549779.html)
-- Mar 17 - [A Team of Scientists Is Trapped at Isolated Antarctic Base for 10 Months. 1 of Them Just Attacked and Threatened Others: Report](https://www.yahoo.com/entertainment/team-scientists-trapped-isolated-antarctic-122249452.html)
-- Mar 17 - [Trump says Biden’s pardons are now ‘void and vacant’ after autopen controversy](https://www.yahoo.com/news/trump-says-biden-pardons-now-113131037.html)
-- Mar 17 - [Russia plans to launch large-scale lithium production in 2030](https://finance.yahoo.com/news/russia-plans-launch-large-scale-111738231.html)
-- Mar 17 - [Exclusive-Intel's new CEO plots overhaul of manufacturing and AI operations](https://finance.yahoo.com/news/exclusive-intels-ceo-plots-overhaul-100609418.html)
+- Mar 17 - [Stock market today: Dow, S&P 500, Nasdaq edge higher as Bessent dismisses sell-off, retail sales miss](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-edge-higher-as-bessent-dismisses-sell-off-retail-sales-miss-133145987.html)
+- Mar 17 - [Hedge fund millionaire banned by City watchdog](https://finance.yahoo.com/news/hedge-fund-millionaire-banned-city-132838886.html)
+- Mar 17 - [Starliner astronauts to return with Crew-9 sooner than expected: Time, how to watch](https://www.yahoo.com/news/starliner-astronauts-return-crew-9-125223195.html)
+- Mar 17 - [At least 13 people facing charges, slew of ‘borgs’ seized during St. Patrick’s Day parade in Boston](https://www.yahoo.com/news/least-13-people-facing-charges-124324002.html)
+- Mar 17 - [UFC could ditch ‘bad marriage’ with ESPN for Netflix as pay-per-view numbers reportedly drop](https://sports.yahoo.com/article/ufc-could-ditch-bad-marriage-122929184.html)
 <!-- feed end -->
 
 ### Onstream
