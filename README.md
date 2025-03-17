@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Ukraine made a new version of its 'Neptune' missile for strikes deep into Russia. It's already put it to work.](https://www.yahoo.com/news/ukraine-made-version-neptune-missile-153033013.html)
-- Mar 17 - [Cramer on Ford Motor (F): Aluminum Tariffs Will Hurt, But President’s Support for Ford and GM is Clear](https://finance.yahoo.com/news/cramer-ford-motor-f-aluminum-152206335.html)
-- Mar 17 - [Alexandra Clarke: Fears grow for British tourist missing after boat caught fire in Thailand](https://www.yahoo.com/news/fears-grow-british-tourist-missing-141427086.html)
-- Mar 17 - [ACLU asks judge to force the Trump administration to state under oath if it violated his court order](https://www.yahoo.com/news/aclu-asks-judge-force-trump-150212032.html)
-- Mar 17 - [Berkshire Hathaway raises stake in these 5 Japanese trading houses](https://finance.yahoo.com/video/berkshire-hathaway-raises-stake-5-144333031.html)
+- Mar 17 - [Elon Musk and Sam Altman finally agree on something: When their courtroom showdown should start](https://finance.yahoo.com/news/elon-musk-and-sam-altman-finally-agree-on-something-when-their-courtroom-showdown-should-start-165356911.html)
+- Mar 17 - [Ukraine’s troops vastly outnumbered and facing ‘huge swarms’ of Russian drones in Kursk retreat](https://www.yahoo.com/news/ukraine-troops-vastly-outnumbered-facing-162604365.html)
+- Mar 17 - [Trump administration says South African ambassador has to leave the US by Friday](https://www.yahoo.com/news/trump-administration-says-south-african-161325827.html)
+- Mar 17 - [Firefighters Hands Out Flags in Honor of Members Who Died on 9/11](https://www.yahoo.com/news/firefighters-hands-flags-honor-members-161200378.html)
+- Mar 17 - [Maddow Blog | Monday’s Campaign Round-Up, 3.17.25: Democrats struggle in latest national polls](https://www.yahoo.com/news/maddow-blog-monday-campaign-round-160007769.html)
 <!-- feed end -->
 
 ### Onstream
