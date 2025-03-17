@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Stock market today: Dow, S&P 500, Nasdaq edge higher as Bessent dismisses sell-off, retail sales miss](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-edge-higher-as-bessent-dismisses-sell-off-retail-sales-miss-133145987.html)
-- Mar 17 - [Hedge fund millionaire banned by City watchdog](https://finance.yahoo.com/news/hedge-fund-millionaire-banned-city-132838886.html)
-- Mar 17 - [Starliner astronauts to return with Crew-9 sooner than expected: Time, how to watch](https://www.yahoo.com/news/starliner-astronauts-return-crew-9-125223195.html)
-- Mar 17 - [At least 13 people facing charges, slew of ‘borgs’ seized during St. Patrick’s Day parade in Boston](https://www.yahoo.com/news/least-13-people-facing-charges-124324002.html)
-- Mar 17 - [UFC could ditch ‘bad marriage’ with ESPN for Netflix as pay-per-view numbers reportedly drop](https://sports.yahoo.com/article/ufc-could-ditch-bad-marriage-122929184.html)
+- Mar 17 - [Alexandra Clarke: Fears grow for British tourist missing after boat caught fire in Thailand](https://www.yahoo.com/news/fears-grow-british-tourist-missing-141427086.html)
+- Mar 17 - [I’m a Mechanic: 3 Pickup Trucks I Would Never Buy and Why They Are Not Worth It](https://autos.yahoo.com/m-mechanic-3-pickup-trucks-180118634.html)
+- Mar 17 - [The Dow Theory market indicator is sounding alarm bells for stocks](https://finance.yahoo.com/video/dow-theory-market-indicator-sounding-150000593.html)
+- Mar 17 - [Berkshire Hathaway raises stake in these 5 Japanese trading houses](https://finance.yahoo.com/video/berkshire-hathaway-raises-stake-5-144333031.html)
+- Mar 17 - [Urgent search for British football fan who vanished in Italy after visiting Pompeii](https://www.yahoo.com/news/urgent-search-british-football-fan-141951361.html)
 <!-- feed end -->
 
 ### Onstream
