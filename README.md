@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Accused Texas megachurch pastor to surrender in Oklahoma on child sexual abuse charges](https://www.yahoo.com/news/accused-texas-megachurch-pastor-surrender-040645406.html)
+- Mar 17 - [Airbus and others call for sovereign infrastructure fund, buy European](https://finance.yahoo.com/news/airbus-others-call-sovereign-infrastructure-050828912.html)
+- Mar 17 - [Analysis-Britain's growth risks put bond investors on high alert](https://finance.yahoo.com/news/analysis-britains-growth-risks-put-050725928.html)
+- Mar 17 - [US meat exports at risk as China lets registrations lapse](https://finance.yahoo.com/news/us-meat-exports-risk-china-043340034.html)
+- Mar 17 - [Yemen's Huthis claim attacks on carrier group after US strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
 - Mar 17 - [Accused gang members deported to El Salvador get harsh reception](https://www.yahoo.com/news/accused-gang-members-deported-el-011933526.html)
-- Mar 16 - [Stock market today: Dow, S&P 500, Nasdaq futures tumble after another week of sharp losses](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-tumble-after-another-week-of-sharp-losses-233621800.html)
-- Mar 16 - [Oklahomans survey devastation after hundreds of homes are destroyed and damaged by wildfires](https://www.yahoo.com/news/oklahomans-survey-devastation-hundreds-homes-223207578.html)
-- Mar 16 - [Doctor at Brown University deported to Lebanon despite US judge's order](https://www.yahoo.com/news/doctor-brown-university-deported-lebanon-221023691.html)
 <!-- feed end -->
 
 ### Onstream
