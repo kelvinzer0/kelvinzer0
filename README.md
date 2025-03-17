@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Britain's youngest shepherdess 'over the moon' at the birth of five lambs](https://www.yahoo.com/news/britains-youngest-shepherdess-over-moon-091342265.html)
-- Mar 17 - [A couple has sold the 1920s-era bungalow they completely rebuilt in Palm Beach](https://www.yahoo.com/lifestyle/couple-sold-1920s-era-bungalow-091254422.html)
+- Mar 17 - [Oil isn't going anywhere. Here's why.](https://finance.yahoo.com/video/oil-isnt-going-anywhere-heres-110039141.html)
+- Mar 17 - [Tesla launches free trial of assisted driving service in China](https://finance.yahoo.com/news/tesla-launches-free-trial-assisted-102244064.html)
+- Mar 17 - [Republicans want to officially classify ‘Trump Derangement Syndrome’ as a mental illness](https://www.yahoo.com/news/republicans-want-officially-classify-trump-100316028.html)
 - Mar 17 - [Bitcoin Whale Places $368M Short Bet With 40x Leverage Ahead of March 19 Fed Meeting](https://finance.yahoo.com/news/bitcoin-whale-places-368m-short-075138078.html)
 - Mar 17 - [US meat exports at risk as China lets registrations lapse](https://finance.yahoo.com/news/us-meat-exports-risk-china-043340034.html)
-- Mar 17 - [Accused Texas megachurch pastor to surrender in Oklahoma on child sexual abuse charges](https://www.yahoo.com/news/accused-texas-megachurch-pastor-surrender-040645406.html)
 <!-- feed end -->
 
 ### Onstream
