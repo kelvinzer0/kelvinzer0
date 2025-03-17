@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Another cat food brand recalled due to possible bird flu contamination](https://www.yahoo.com/lifestyle/another-cat-food-brand-recalled-213335322.html)
+- Mar 16 - [Mysterious Twist Revealed in Saga of Human-Neanderthal Hybrid Child](https://www.yahoo.com/news/mysterious-twist-revealed-saga-human-235154675.html)
+- Mar 16 - [Stock market today: Dow, S&P 500, Nasdaq futures tumble after another week of sharp losses](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-tumble-after-another-week-of-sharp-losses-233621800.html)
+- Mar 16 - [Oklahomans survey devastation after hundreds of homes are destroyed and damaged by wildfires](https://www.yahoo.com/news/oklahomans-survey-devastation-hundreds-homes-223207578.html)
+- Mar 16 - [Doctor Claims Gene Hackman's Wife Called Him 24 Hours After Police Say She Died](https://www.yahoo.com/news/doctor-claims-gene-hackmans-wife-223041596.html)
 - Mar 16 - [Iran-backed Yemen rebels say attacked US carrier after air strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
-- Mar 16 - ['It's unbelievable they survived.' MS family buried in debris as tornado destroys home](https://www.yahoo.com/news/unbelievable-survived-ms-family-buried-192655901.html)
-- Mar 16 - [What to know about El Salvador's mega-prison after Trump sent hundreds of immigrants there](https://www.yahoo.com/news/know-el-salvadors-mega-prison-180737450.html)
-- Mar 16 - [Ex-US Rep. Nita Lowey, a New York Democrat who chaired powerful House Appropriations Committee, dies](https://www.yahoo.com/news/ex-us-rep-nita-lowey-180547245.html)
 <!-- feed end -->
 
 ### Onstream
