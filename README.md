@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 17 - [Dashed Hopes of Common Sense](https://www.yahoo.com/news/dashed-hopes-common-sense-064700548.html)
+- Mar 17 - [How to make ‘manifesting’ work for your money](https://uk.finance.yahoo.com/news/manifesting-money-social-media-trend-finances-060004088.html)
 - Mar 17 - [Airbus and others call for sovereign infrastructure fund, buy European](https://finance.yahoo.com/news/airbus-others-call-sovereign-infrastructure-050828912.html)
-- Mar 17 - [Analysis-Britain's growth risks put bond investors on high alert](https://finance.yahoo.com/news/analysis-britains-growth-risks-put-050725928.html)
 - Mar 17 - [US meat exports at risk as China lets registrations lapse](https://finance.yahoo.com/news/us-meat-exports-risk-china-043340034.html)
-- Mar 17 - [Yemen's Huthis claim attacks on carrier group after US strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
-- Mar 17 - [Accused gang members deported to El Salvador get harsh reception](https://www.yahoo.com/news/accused-gang-members-deported-el-011933526.html)
+- Mar 17 - [Accused Texas megachurch pastor to surrender in Oklahoma on child sexual abuse charges](https://www.yahoo.com/news/accused-texas-megachurch-pastor-surrender-040645406.html)
 <!-- feed end -->
 
 ### Onstream
