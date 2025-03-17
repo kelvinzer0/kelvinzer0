@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 17 - [A Once-in-a-Decade Investment Opportunity: My Pick for the Best AI Stock to Buy Now](https://finance.yahoo.com/news/once-decade-investment-opportunity-pick-080700435.html)
+- Mar 17 - [Wildfires in Oklahoma Ravage Homes](https://www.yahoo.com/news/wildfires-oklahoma-ravage-homes-064428182.html)
 - Mar 17 - [US meat exports at risk as China lets registrations lapse](https://finance.yahoo.com/news/us-meat-exports-risk-china-043340034.html)
 - Mar 17 - [Accused Texas megachurch pastor to surrender in Oklahoma on child sexual abuse charges](https://www.yahoo.com/news/accused-texas-megachurch-pastor-surrender-040645406.html)
-- Mar 17 - [Yemen's Huthis claim attacks on carrier group after US strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
-- Mar 17 - [Accused gang members deported to El Salvador get harsh reception](https://www.yahoo.com/news/accused-gang-members-deported-el-011933526.html)
-- Mar 16 - [Stock market today: Dow, S&P 500, Nasdaq futures slide after another week of sharp losses](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-slide-after-another-week-of-sharp-losses-233621009.html)
+- Mar 17 - [After a stint in Guantanamo Bay, a Venezuelan deported from the US adjusts to his homeland](https://www.yahoo.com/news/stint-guantanamo-bay-venezuelan-deported-040447533.html)
 <!-- feed end -->
 
 ### Onstream
