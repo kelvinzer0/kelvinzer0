@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 16 - [Mysterious Twist Revealed in Saga of Human-Neanderthal Hybrid Child](https://www.yahoo.com/news/mysterious-twist-revealed-saga-human-235154675.html)
+- Mar 17 - [Russia demands Ukraine’s Nato exclusion as part of peace deal](https://www.yahoo.com/news/russia-demands-ukraine-nato-exclusion-034834608.html)
+- Mar 17 - [Yemen's Huthis claim attacks on carrier group after US strikes](https://www.yahoo.com/news/iran-backed-yemen-rebels-attacked-183900142.html)
 - Mar 16 - [Stock market today: Dow, S&P 500, Nasdaq futures tumble after another week of sharp losses](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-tumble-after-another-week-of-sharp-losses-233621800.html)
 - Mar 16 - [Oklahomans survey devastation after hundreds of homes are destroyed and damaged by wildfires](https://www.yahoo.com/news/oklahomans-survey-devastation-hundreds-homes-223207578.html)
-- Mar 16 - [Doctor Claims Gene Hackman's Wife Called Him 24 Hours After Police Say She Died](https://www.yahoo.com/news/doctor-claims-gene-hackmans-wife-223041596.html)
-- Mar 16 - [Doctor at Brown University deported to Lebanon despite US judge's order](https://www.yahoo.com/news/doctor-brown-university-deported-lebanon-221023691.html)
+- Mar 16 - [D.C. Press Breaks 140-Year Tradition in Snub to Trump](https://www.yahoo.com/news/d-c-press-breaks-140-191233830.html)
 <!-- feed end -->
 
 ### Onstream
