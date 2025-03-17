@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Man implicated in fatal drug overdose now facing criminal charges](https://www.yahoo.com/news/man-implicated-fatal-drug-overdose-210856046.html)
-- Mar 17 - [Astronauts who were left on International Space Station can finally come home, NASA says](https://www.yahoo.com/news/astronauts-were-left-international-space-205903188.html)
+- Mar 17 - [Trump Memo Reveals Plan to Throw Social Security Into Chaos](https://www.yahoo.com/news/trump-memo-reveals-plan-throw-213051817.html)
+- Mar 17 - [FDA staff return to crowded offices, broken equipment and missing chairs](https://www.yahoo.com/news/fda-staff-return-crowded-offices-210248035.html)
+- Mar 17 - [Israel carries out airstrikes in Gaza, Lebanon and Syria, killing at least 10 people](https://www.yahoo.com/news/israel-carries-airstrikes-gaza-lebanon-205630115.html)
 - Mar 17 - [Alphabet in talks to acquire Wiz for $30 billion: WSJ](https://finance.yahoo.com/video/alphabet-talks-acquire-wiz-30-204446508.html)
-- Mar 17 - [Tesla beware: Rival BYD unveils ultra-fast chargers, giving its stock a jolt](https://finance.yahoo.com/news/tesla-beware-rival-byd-unveils-185300318.html)
-- Mar 17 - [Things to know about the former megachurch pastor charged with child sexual abuse](https://www.yahoo.com/news/things-know-former-megachurch-pastor-200146350.html)
+- Mar 17 - [Ben Stiller, Aubrey Plaza Among More Than 400 Stars Who Urge Trump to Stop OpenAI’s Push to ‘Exploit’ Hollywood](https://www.yahoo.com/news/ben-stiller-aubrey-plaza-among-204045997.html)
 <!-- feed end -->
 
 ### Onstream
