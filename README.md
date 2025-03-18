@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Nvidia's GTC conference could be a 'wake-up moment' for investors as the AI trade falters](https://finance.yahoo.com/news/nvidias-gtc-conference-could-be-a-wake-up-moment-for-investors-as-the-ai-trade-falters-134709308.html)
+- Mar 18 - [The risks of patients seeing test results before their doctors](https://www.yahoo.com/news/risks-patients-seeing-test-results-144606494.html)
+- Mar 18 - [Frontier is offering free bags to entice angry Southwest flyers](https://finance.yahoo.com/news/frontier-offering-free-bags-entice-141624574.html)
+- Mar 18 - [Adam Kinzinger Dares Trump To Arrest Him: 'Stop Pretending Like You're Tough'](https://www.yahoo.com/news/adam-kinzinger-dares-trump-arrest-140439772.html)
+- Mar 18 - [Trump Goes on Crazed Rant Over Journalists Saying He’s Not a King](https://www.yahoo.com/news/trump-goes-crazed-rant-over-134251304.html)
 - Mar 18 - [Putin promises tough road back for Western businesses that 'slammed door defiantly' on Russia](https://finance.yahoo.com/news/putin-promises-tough-road-back-133524224.html)
-- Mar 18 - [Private Credit Set to Win €6.25 Billion Adevinta Deal](https://finance.yahoo.com/news/private-credit-set-beat-banks-121416282.html)
-- Mar 18 - [Voices: Is Labour’s welfare reform going too far – or is it necessary to balance the books? Join The Independent Debate](https://finance.yahoo.com/news/voices-labour-welfare-reform-going-165254144.html)
-- Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
 <!-- feed end -->
 
 ### Onstream
