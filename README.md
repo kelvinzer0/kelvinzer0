@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Fed meeting, US housing starts, Nvidia GTC: What to Watch](https://finance.yahoo.com/video/fed-meeting-us-housing-starts-230000855.html)
+- Mar 18 - [The judge who tried to stop the deportation planes is not happy with the Trump administration](https://www.yahoo.com/news/judge-tried-stop-deportation-planes-010446515.html)
 - Mar 17 - [Trump says he's ending Secret Service protection for Biden's adult children](https://www.yahoo.com/news/trump-says-hes-ending-secret-222920353.html)
-- Mar 17 - [Trump Memo Reveals Plan to Throw Social Security Into Chaos](https://www.yahoo.com/news/trump-memo-reveals-plan-throw-213051817.html)
 - Mar 17 - [What we know about the El Salvador ‘mega prison’ where Trump is sending alleged Venezuelan gang members](https://www.yahoo.com/news/know-el-salvador-mega-prison-210440904.html)
-- Mar 17 - [Alphabet in talks to acquire Wiz for $30 billion: WSJ](https://finance.yahoo.com/video/alphabet-talks-acquire-wiz-30-204446508.html)
+- Mar 17 - [FDA staff return to crowded offices, broken equipment and missing chairs](https://www.yahoo.com/news/fda-staff-return-crowded-offices-210248035.html)
+- Mar 17 - [Toyota bZ4X Gets Major Updates for 2026: What Changed?](https://autos.yahoo.com/toyota-bz4x-gets-major-updates-210000521.html)
 <!-- feed end -->
 
 ### Onstream
