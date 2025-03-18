@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Hospital bosses say new evidence casts doubt on UK nurse Letby's baby murder convictions](https://www.yahoo.com/news/hospital-bosses-evidence-casts-doubt-120722649.html)
-- Mar 18 - [Sudiksha Konanki's parents ask police to declare her dead: officials](https://www.yahoo.com/news/sudiksha-konankis-parents-ask-police-114757464.html)
-- Mar 18 - [Donald Trump Snaps At NBC Reporter, Swerves Question With Tactic He’s Using More And More](https://www.yahoo.com/news/donald-trump-snaps-nbc-reporter-095257762.html)
-- Mar 18 - [Kremlin says it is concerned about 'major civilian casualties' after Israel strikes Gaza](https://www.yahoo.com/news/kremlin-says-concerned-major-civilian-093510590.html)
-- Mar 18 - [Chinese EV maker BYD's shares surge on unveiling of 'fast as pumping gas' charging tech](https://finance.yahoo.com/news/chinese-ev-maker-byds-shares-093000276.html)
+- Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
+- Mar 18 - [Wizz Air baggage handler caught on camera hurling luggage off plane](https://www.yahoo.com/news/wizz-air-baggage-handler-caught-123920088.html)
+- Mar 18 - [Partners in $2.2 Billion Deal to Buy California Gas Plants](https://finance.yahoo.com/news/partners-group-2-2-billion-093001749.html)
+- Mar 18 - [Big pharma fears best-selling drugs in crosshairs of US-EU tariff spat](https://finance.yahoo.com/video/big-pharma-fears-best-selling-115232428.html)
+- Mar 18 - [Ferrari surprises fans with an unexpected engine type in its latest lineup: 'I dig that'](https://autos.yahoo.com/ferrari-surprises-fans-unexpected-engine-110016890.html)
 <!-- feed end -->
 
 ### Onstream
