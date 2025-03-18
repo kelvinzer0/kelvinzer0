@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [History Professor Answers Dictator Questions](https://www.yahoo.com/entertainment/history-professor-answers-dictator-questions-160000015.html)
-- Mar 18 - [Schumer defends voting for GOP funding bill amid some Democrats' calls for new party leadership](https://www.yahoo.com/news/schumer-defends-voting-gop-funding-154507082.html)
+- Mar 18 - [Trump cabinet to form affordable housing task force: What to know](https://finance.yahoo.com/video/trump-cabinet-form-affordable-housing-170500603.html)
 - Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
+- Mar 18 - ['Could be a shocker': Markets might not yet be grasping what Trump may do April 2 on reciprocal tariffs](https://finance.yahoo.com/news/could-be-a-shocker-markets-might-not-yet-be-grasping-what-trump-may-do-april-2-on-reciprocal-tariffs-163620675.html)
+- Mar 18 - ["Like Armageddon": Israel resumes its war on Gaza, killing hundreds of Palestinians](https://www.yahoo.com/news/armageddon-israel-resumes-war-gaza-163435280.html)
 - Mar 18 - [I Just Spent The Past 15 Minutes With My Jaw On The Floor After Looking At All These Weird, Rare, And Shocking Pictures And Now I Need You To See Them](https://www.yahoo.com/lifestyle/just-spent-past-15-minutes-150859963.html)
-- Mar 18 - [Crimea has been a battleground and a playground. Why it's coveted by both Russia and Ukraine](https://www.yahoo.com/news/crimea-battleground-playground-why-coveted-144546445.html)
 <!-- feed end -->
 
 ### Onstream
