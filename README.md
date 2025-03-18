@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [How to 'Trump-proof' your finances](https://finance.yahoo.com/video/trump-proof-finances-183000314.html)
-- Mar 18 - [Hilarious Karoline Leavitt Blunder Causes Her To Accidentally Tell The Truth](https://www.yahoo.com/news/hilarious-karoline-leavitt-blunder-causes-171731015.html)
 - Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
-- Mar 18 - ['Could be a shocker': Markets might not yet be grasping what Trump may do April 2 on reciprocal tariffs](https://finance.yahoo.com/news/could-be-a-shocker-markets-might-not-yet-be-grasping-what-trump-may-do-april-2-on-reciprocal-tariffs-163620675.html)
-- Mar 18 - [State orders GA church daycare to shut down after director, 2 workers arrested](https://www.yahoo.com/news/state-orders-ga-church-daycare-161707454.html)
+- Mar 18 - [Pentagon is cutting up to 60,000 civilian jobs. About a third of those took voluntary resignations](https://www.yahoo.com/news/pentagon-aims-cut-60-000-181003947.html)
+- Mar 18 - [Black Hole Potentially 6000 Light-Years Away - Evidence From Hubble Space Telescope](https://www.yahoo.com/news/black-hole-potentially-6000-light-160000625.html)
+- Mar 18 - [First Brown Bear to Have Brain Surgery in UK Making 'Remarkable Recovery,' Carers Say](https://www.yahoo.com/news/first-brown-bear-brain-surgery-173938524.html)
+- Mar 18 - [Hilarious Karoline Leavitt Blunder Causes Her To Accidentally Tell The Truth](https://www.yahoo.com/news/hilarious-karoline-leavitt-blunder-causes-171731015.html)
 <!-- feed end -->
 
 ### Onstream
