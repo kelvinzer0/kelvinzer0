@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [The risks of patients seeing test results before their doctors](https://www.yahoo.com/news/risks-patients-seeing-test-results-144606494.html)
-- Mar 18 - [Frontier is offering free bags to entice angry Southwest flyers](https://finance.yahoo.com/news/frontier-offering-free-bags-entice-141624574.html)
-- Mar 18 - [Adam Kinzinger Dares Trump To Arrest Him: 'Stop Pretending Like You're Tough'](https://www.yahoo.com/news/adam-kinzinger-dares-trump-arrest-140439772.html)
-- Mar 18 - [Trump Goes on Crazed Rant Over Journalists Saying He’s Not a King](https://www.yahoo.com/news/trump-goes-crazed-rant-over-134251304.html)
-- Mar 18 - [Putin promises tough road back for Western businesses that 'slammed door defiantly' on Russia](https://finance.yahoo.com/news/putin-promises-tough-road-back-133524224.html)
+- Mar 18 - [History Professor Answers Dictator Questions](https://www.yahoo.com/entertainment/history-professor-answers-dictator-questions-160000015.html)
+- Mar 18 - [Schumer defends voting for GOP funding bill amid some Democrats' calls for new party leadership](https://www.yahoo.com/news/schumer-defends-voting-gop-funding-154507082.html)
+- Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
+- Mar 18 - [I Just Spent The Past 15 Minutes With My Jaw On The Floor After Looking At All These Weird, Rare, And Shocking Pictures And Now I Need You To See Them](https://www.yahoo.com/lifestyle/just-spent-past-15-minutes-150859963.html)
+- Mar 18 - [Crimea has been a battleground and a playground. Why it's coveted by both Russia and Ukraine](https://www.yahoo.com/news/crimea-battleground-playground-why-coveted-144546445.html)
 <!-- feed end -->
 
 ### Onstream
