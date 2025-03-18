@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [French police evict migrants occupying cultural center in Paris](https://www.yahoo.com/news/french-police-evict-migrants-occupying-094658870.html)
+- Mar 18 - [Massive Volatility Injected by Trump Policies: Euronext](https://finance.yahoo.com/video/massive-volatility-injected-trump-policies-093805966.html)
+- Mar 18 - [‘Shocking, Insulting’: Karoline Leavitt’s France Remark Stuns Critics](https://www.yahoo.com/news/shocking-insulting-karoline-leavitt-france-083414688.html)
 - Mar 18 - [Rare sighting of four snow leopards together sparks frenzy of excitement](https://www.yahoo.com/news/rare-sighting-four-snow-leopards-063322257.html)
-- Mar 18 - [Detained Columbia University student disputes government's 'bedbugs' claim in court papers](https://www.yahoo.com/news/detained-columbia-university-student-disputes-071827591.html)
-- Mar 18 - [Teens charged with murder in fatal hit-and-run of bicyclist captured on video](https://www.yahoo.com/news/teens-charged-murder-fatal-hit-063501636.html)
-- Mar 18 - [Russia said it's rebuilt its Superjet airliner 'from scratch' with local parts after being cut off from Western supplies](https://www.yahoo.com/news/russia-said-rebuilt-superjet-airliner-052738960.html)
 - Mar 18 - [Louisiana death row inmate asks for last-minute court ruling to halt nitrogen gas execution](https://www.yahoo.com/news/louisiana-death-row-inmate-asks-041418138.html)
 <!-- feed end -->
 
