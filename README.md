@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Suni and Butch, Crew-9 Dragon capsule to return to earth Tuesday | CW39 HOUSTON](https://www.yahoo.com/news/suni-butch-crew-9-dragon-040400924.html)
-- Mar 18 - [Mom, 2-year-old in critical condition after being rescued from Independence house fire](https://www.yahoo.com/news/mom-2-old-critical-condition-033407229.html)
-- Mar 18 - [U.S. Marshals arrest Memphis woman on first-degree murder charge](https://www.yahoo.com/news/u-marshals-arrest-memphis-woman-001109563.html)
+- Mar 18 - [New video of Pitt student Sudiksha Konaki before disappearance | Banfield](https://www.yahoo.com/news/video-pitt-student-sudiksha-konaki-032133595.html)
+- Mar 17 - [Trump loses 'gang case,' but defies ruling: Ari breaks down 'Autocratic' showdown](https://www.yahoo.com/news/trump-loses-gang-case-defies-235352739.html)
 - Mar 17 - [Trump administration aims to make faster meat processing permanent](https://www.yahoo.com/news/trump-administration-aims-faster-meat-234912827.html)
 - Mar 17 - [Trump says he's ending Secret Service protection for Biden's adult children](https://www.yahoo.com/news/trump-says-hes-ending-secret-222920353.html)
+- Mar 17 - [What we know about the El Salvador ‘mega prison’ where Trump is sending alleged Venezuelan gang members](https://www.yahoo.com/news/know-el-salvador-mega-prison-210440904.html)
 <!-- feed end -->
 
 ### Onstream
