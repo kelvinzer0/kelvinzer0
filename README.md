@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Major search continues after deadly migrant boat sinking off Cyprus coast](https://www.yahoo.com/news/major-search-continues-deadly-migrant-075149579.html)
+- Mar 18 - [Japan cult widow speaks 30 years after subway attack](https://www.yahoo.com/news/japan-cult-widow-speaks-30-023956407.html)
 - Mar 18 - [Louisiana death row inmate asks for last-minute court ruling to halt nitrogen gas execution](https://www.yahoo.com/news/louisiana-death-row-inmate-asks-041418138.html)
-- Mar 18 - [New video of Pitt student Sudiksha Konaki before disappearance | Banfield](https://www.yahoo.com/news/video-pitt-student-sudiksha-konaki-032133595.html)
-- Mar 18 - [Fires burning in Merritt Island National Wildlife Refuge near KSC, officials say](https://www.yahoo.com/news/fires-burning-merritt-island-national-015337129.html)
-- Mar 17 - [Trump says he's ending Secret Service protection for Biden's adult children](https://www.yahoo.com/news/trump-says-hes-ending-secret-222920353.html)
-- Mar 17 - [Stephen Miller Loses His Cool on Fox News: ‘Absolute Moron’](https://www.yahoo.com/news/stephen-miller-loses-cool-fox-220523738.html)
+- Mar 17 - [Trump administration aims to make faster meat processing permanent](https://www.yahoo.com/news/trump-administration-aims-faster-meat-234912827.html)
+- Mar 17 - [Former Hamas hostage returns to Kibbutz Be’eri and shares his story while in captivity](https://www.yahoo.com/news/former-hamas-hostage-returns-kibbutz-233310582.html)
 <!-- feed end -->
 
 ### Onstream
