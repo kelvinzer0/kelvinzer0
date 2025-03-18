@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
+- Mar 18 - [Kennedy off to a bumpy start as US health secretary](https://www.yahoo.com/news/kennedy-off-bumpy-start-us-200700634.html)
+- Mar 18 - [A Woman Who Refused To Switch Seats For A Crying Toddler On An Airplane Is Sparking An Important Conversation Online](https://www.yahoo.com/lifestyle/woman-refused-switch-seats-crying-185829107.html)
+- Mar 18 - [Investment Property for Sale: How To Buy Real Estate To Grow Wealth](https://www.yahoo.com/lifestyle/investment-property-sale-buy-real-183820849.html)
 - Mar 18 - [Pentagon is cutting up to 60,000 civilian jobs. About a third of those took voluntary resignations](https://www.yahoo.com/news/pentagon-aims-cut-60-000-181003947.html)
-- Mar 18 - [Black Hole Potentially 6000 Light-Years Away - Evidence From Hubble Space Telescope](https://www.yahoo.com/news/black-hole-potentially-6000-light-160000625.html)
-- Mar 18 - [First Brown Bear to Have Brain Surgery in UK Making 'Remarkable Recovery,' Carers Say](https://www.yahoo.com/news/first-brown-bear-brain-surgery-173938524.html)
-- Mar 18 - [Hilarious Karoline Leavitt Blunder Causes Her To Accidentally Tell The Truth](https://www.yahoo.com/news/hilarious-karoline-leavitt-blunder-causes-171731015.html)
+- Mar 18 - [Marcellus Wiley, Former NFL Player and Husband of “RHOBH”'s Annemarie, Accused of Raping 2 Women While at Columbia University](https://www.yahoo.com/entertainment/marcellus-wiley-former-nfl-player-175241321.html)
 <!-- feed end -->
 
 ### Onstream
