@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [French police evict migrants occupying cultural center in Paris](https://www.yahoo.com/news/french-police-evict-migrants-occupying-094658870.html)
-- Mar 18 - [Massive Volatility Injected by Trump Policies: Euronext](https://finance.yahoo.com/video/massive-volatility-injected-trump-policies-093805966.html)
-- Mar 18 - [‘Shocking, Insulting’: Karoline Leavitt’s France Remark Stuns Critics](https://www.yahoo.com/news/shocking-insulting-karoline-leavitt-france-083414688.html)
-- Mar 18 - [Rare sighting of four snow leopards together sparks frenzy of excitement](https://www.yahoo.com/news/rare-sighting-four-snow-leopards-063322257.html)
+- Mar 18 - [Donald Trump Snaps At NBC Reporter, Swerves Question With Tactic He’s Using More And More](https://www.yahoo.com/news/donald-trump-snaps-nbc-reporter-095257762.html)
+- Mar 18 - [Kremlin says it is concerned about 'major civilian casualties' after Israel strikes Gaza](https://www.yahoo.com/news/kremlin-says-concerned-major-civilian-093510590.html)
+- Mar 18 - [Indian city sets curfew after Hindu groups demand demolition of 17th century Muslim ruler's tomb](https://www.yahoo.com/news/indian-city-sets-curfew-hindu-090012266.html)
+- Mar 18 - [A highway pileup in western Kansas shows how dust storms can turn deadly](https://www.yahoo.com/news/highway-pileup-western-kansas-shows-050706665.html)
 - Mar 18 - [Louisiana death row inmate asks for last-minute court ruling to halt nitrogen gas execution](https://www.yahoo.com/news/louisiana-death-row-inmate-asks-041418138.html)
 <!-- feed end -->
 
