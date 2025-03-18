@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Nvidia's GTC conference could be a 'wake-up moment' for investors as the AI trade falters](https://finance.yahoo.com/news/nvidias-gtc-conference-could-be-a-wake-up-moment-for-investors-as-the-ai-trade-falters-134709308.html)
+- Mar 18 - [Putin promises tough road back for Western businesses that 'slammed door defiantly' on Russia](https://finance.yahoo.com/news/putin-promises-tough-road-back-133524224.html)
+- Mar 18 - [Private Credit Set to Win €6.25 Billion Adevinta Deal](https://finance.yahoo.com/news/private-credit-set-beat-banks-121416282.html)
+- Mar 18 - [Voices: Is Labour’s welfare reform going too far – or is it necessary to balance the books? Join The Independent Debate](https://finance.yahoo.com/news/voices-labour-welfare-reform-going-165254144.html)
 - Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
-- Mar 18 - [Wizz Air baggage handler caught on camera hurling luggage off plane](https://www.yahoo.com/news/wizz-air-baggage-handler-caught-123920088.html)
-- Mar 18 - [Partners in $2.2 Billion Deal to Buy California Gas Plants](https://finance.yahoo.com/news/partners-group-2-2-billion-093001749.html)
-- Mar 18 - [Big pharma fears best-selling drugs in crosshairs of US-EU tariff spat](https://finance.yahoo.com/video/big-pharma-fears-best-selling-115232428.html)
-- Mar 18 - [Ferrari surprises fans with an unexpected engine type in its latest lineup: 'I dig that'](https://autos.yahoo.com/ferrari-surprises-fans-unexpected-engine-110016890.html)
 <!-- feed end -->
 
 ### Onstream
