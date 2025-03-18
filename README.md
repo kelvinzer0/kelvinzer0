@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Parents of missing Pitt student Sudiksha Konanki ask Dominican Republic police to declare her dead](https://www.yahoo.com/news/parents-missing-pitt-student-sudiksha-033335793.html)
-- Mar 17 - [Trump loses 'gang case,' but defies ruling: Ari breaks down 'Autocratic' showdown](https://www.yahoo.com/news/trump-loses-gang-case-defies-235352739.html)
+- Mar 18 - [Louisiana death row inmate asks for last-minute court ruling to halt nitrogen gas execution](https://www.yahoo.com/news/louisiana-death-row-inmate-asks-041418138.html)
+- Mar 18 - [New video of Pitt student Sudiksha Konaki before disappearance | Banfield](https://www.yahoo.com/news/video-pitt-student-sudiksha-konaki-032133595.html)
+- Mar 18 - [Fires burning in Merritt Island National Wildlife Refuge near KSC, officials say](https://www.yahoo.com/news/fires-burning-merritt-island-national-015337129.html)
 - Mar 17 - [Trump says he's ending Secret Service protection for Biden's adult children](https://www.yahoo.com/news/trump-says-hes-ending-secret-222920353.html)
-- Mar 17 - [What we know about the El Salvador ‘mega prison’ where Trump is sending alleged Venezuelan gang members](https://www.yahoo.com/news/know-el-salvador-mega-prison-210440904.html)
-- Mar 17 - [Israel launches deadly wave of airstrikes across Gaza after ceasefire talks stall](https://www.yahoo.com/news/israel-carries-airstrikes-gaza-lebanon-205630115.html)
+- Mar 17 - [Stephen Miller Loses His Cool on Fox News: ‘Absolute Moron’](https://www.yahoo.com/news/stephen-miller-loses-cool-fox-220523738.html)
 <!-- feed end -->
 
 ### Onstream
