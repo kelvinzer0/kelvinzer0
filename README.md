@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Hospital bosses say new evidence casts doubt on UK nurse Letby's baby murder convictions](https://www.yahoo.com/news/hospital-bosses-evidence-casts-doubt-120722649.html)
+- Mar 18 - [Sudiksha Konanki's parents ask police to declare her dead: officials](https://www.yahoo.com/news/sudiksha-konankis-parents-ask-police-114757464.html)
 - Mar 18 - [Donald Trump Snaps At NBC Reporter, Swerves Question With Tactic He’s Using More And More](https://www.yahoo.com/news/donald-trump-snaps-nbc-reporter-095257762.html)
 - Mar 18 - [Kremlin says it is concerned about 'major civilian casualties' after Israel strikes Gaza](https://www.yahoo.com/news/kremlin-says-concerned-major-civilian-093510590.html)
-- Mar 18 - [Indian city sets curfew after Hindu groups demand demolition of 17th century Muslim ruler's tomb](https://www.yahoo.com/news/indian-city-sets-curfew-hindu-090012266.html)
-- Mar 18 - [A highway pileup in western Kansas shows how dust storms can turn deadly](https://www.yahoo.com/news/highway-pileup-western-kansas-shows-050706665.html)
-- Mar 18 - [Louisiana death row inmate asks for last-minute court ruling to halt nitrogen gas execution](https://www.yahoo.com/news/louisiana-death-row-inmate-asks-041418138.html)
+- Mar 18 - [Chinese EV maker BYD's shares surge on unveiling of 'fast as pumping gas' charging tech](https://finance.yahoo.com/news/chinese-ev-maker-byds-shares-093000276.html)
 <!-- feed end -->
 
 ### Onstream
