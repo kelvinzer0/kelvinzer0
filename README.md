@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [NC city overtakes Charlotte, Raleigh as state’s fastest-growing metro](https://www.yahoo.com/news/nc-city-overtakes-charlotte-raleigh-172057710.html)
 - Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
 - Mar 18 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
-- Mar 18 - [Watch live: Starliner astronauts return to Earth with SpaceX Crew-9](https://www.yahoo.com/news/watch-live-starliner-astronauts-return-200119633.html)
-- Mar 18 - [Putin Makes Stunning Demand in Ukraine Call as Trump Stays Quiet](https://www.yahoo.com/news/putin-makes-stunning-demand-ukraine-192404641.html)
-- Mar 18 - [Pentagon is cutting up to 60,000 civilian jobs. About a third of those took voluntary resignations](https://www.yahoo.com/news/pentagon-aims-cut-60-000-181003947.html)
+- Mar 18 - [Hollywood director arrested on charges of swindling Netflix out of $11M for a show that never aired](https://www.yahoo.com/news/hollywood-director-arrested-charges-swindling-214551042.html)
+- Mar 18 - [Trump fires both Democratic commissioners at FTC](https://www.yahoo.com/news/exclusive-trump-fires-both-democratic-210608282.html)
 <!-- feed end -->
 
 ### Onstream
