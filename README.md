@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Amarillo police respond to serious traffic crash at I-40 and Western](https://www.yahoo.com/news/amarillo-police-respond-serious-traffic-212733649.html)
-- Mar 19 - [Brothers and roommate of Laken Riley's killer to be deported after fake green card convictions](https://www.yahoo.com/news/brothers-roommate-laken-rileys-killer-212621909.html)
 - Mar 19 - [Am I responsible for my spouse’s credit card debt when they die?](https://finance.yahoo.com/personal-finance/credit-cards/article/am-i-responsible-for-my-spouses-credit-card-debt-when-they-die-211343701.html)
+- Mar 19 - [Fishermen Find Stranded Teens on Deserted Island Near Tampa](https://www.yahoo.com/news/fishermen-stranded-teens-deserted-island-203845362.html)
 - Mar 19 - [NASA may require Boeing's Starliner to fly third uncrewed test](https://www.yahoo.com/news/nasa-may-require-boeings-starliner-194947084.html)
-- Mar 19 - ["Delete This Number NOW:" 50 Wrong Number Texts That Spiraled Way, Way, Way, Wayyyyyy Out Of Control](https://www.yahoo.com/lifestyle/delete-number-now-50-wrong-190519368.html)
+- Mar 19 - ["Delete This Number NOW:" 50 Wrong Number Texts That Make Me Cry Laughing No Matter How Many Times I've Seen Them](https://www.yahoo.com/lifestyle/delete-number-now-50-wrong-190519368.html)
+- Mar 19 - [US investigators say Alaska plane was overweight for icy conditions in crash that killed 10](https://www.yahoo.com/news/us-investigators-alaska-plane-overweight-185802948.html)
 <!-- feed end -->
 
 ### Onstream
