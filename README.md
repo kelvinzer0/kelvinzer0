@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Poll: Who was the high school Wrestler of the Year in Battle Creek area?](https://sports.yahoo.com/article/poll-high-school-wrestler-battle-082514860.html)
 - Mar 19 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
-- Mar 19 - [He said she drugged him and could kill somebody. Now she’s accused of murdering a Super Bowl reporter](https://www.yahoo.com/news/said-she-drugged-him-could-060457873.html)
 - Mar 19 - [Trump administration removes ban on 'segregated facilities' in federal contracts](https://www.yahoo.com/news/trump-administration-removes-ban-segregated-022039273.html)
 - Mar 19 - [Officials issue urgent warning about health risks of eating area's local fish — and the risks are greater than expected](https://www.yahoo.com/news/officials-issue-urgent-warning-health-002000806.html)
+- Mar 18 - [Trump releases classified files on JFK assassination. Here's what they say.](https://www.yahoo.com/news/trump-releases-classified-files-jfk-230444978.html)
+- Mar 18 - [Trump fires both Democratic commissioners at FTC](https://www.yahoo.com/news/exclusive-trump-fires-both-democratic-210608282.html)
 <!-- feed end -->
 
 ### Onstream
