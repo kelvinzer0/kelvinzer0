@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [‘You cannot replace that;’ Ohio’s oldest log tavern goes up in flames; cause now determined](https://www.yahoo.com/news/cannot-replace-ohio-oldest-log-153534689.html)
+- Mar 19 - [Russian state has claimed assets worth $28.7 billion, prosecutor says](https://www.yahoo.com/news/russian-state-claimed-assets-worth-164800232.html)
 - Mar 19 - [Man seen with missing Pittsburgh student trying to obtain new passport, lawyers say](https://www.yahoo.com/news/man-seen-missing-pittsburgh-student-151840612.html)
-- Mar 19 - [Boeing Rallies as CFO Highlights Steady 737 Max and Dreamliner Production](https://finance.yahoo.com/news/boeing-rallies-cfo-highlights-steady-145923888.html)
-- Mar 19 - [How mass layoffs at Morgan Stanley reflect the financial sector](https://finance.yahoo.com/video/mass-layoffs-morgan-stanley-reflect-145627869.html)
-- Mar 19 - [Trump Reveals Stunning Reason Why He’s Bullying Canada](https://www.yahoo.com/news/trump-reveals-stunning-reason-why-133422022.html)
+- Mar 19 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
+- Mar 19 - [Brookfield Leading Race to Acquire $10 Billion Colonial Pipeline](https://finance.yahoo.com/news/brookfield-leading-race-acquire-10-162022029.html)
+- Mar 19 - [RFK Jr. Unveils Disturbing Plan to Combat Bird Flu](https://www.yahoo.com/news/rfk-jr-unveils-disturbing-plan-155958001.html)
 <!-- feed end -->
 
 ### Onstream
