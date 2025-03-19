@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Rep. Mike Flood of Nebraska is the latest GOP member of Congress to face angry crowds back home](https://www.yahoo.com/news/rep-mike-flood-nebraska-latest-043554011.html)
+- Mar 19 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
+- Mar 19 - [What's driving the surge in UK private health insurance?](https://uk.finance.yahoo.com/news/uk-private-health-insurance-surge-nhs-care-060054423.html)
+- Mar 19 - [Are work coaches the answer to get people back into the workplace?](https://uk.finance.yahoo.com/news/unemployment-sickness-workplace-coach-060033452.html)
 - Mar 19 - [Trump administration removes ban on 'segregated facilities' in federal contracts](https://www.yahoo.com/news/trump-administration-removes-ban-segregated-022039273.html)
-- Mar 19 - [Mysterious Weapon Fired From Bradley Fighting Vehicle During Exercise](https://www.yahoo.com/news/mysterious-weapon-fired-bradley-fighting-002214013.html)
-- Mar 18 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
-- Mar 18 - [Trump fires both Democratic commissioners at FTC](https://www.yahoo.com/news/exclusive-trump-fires-both-democratic-210608282.html)
+- Mar 19 - [Officials issue urgent warning about health risks of eating area's local fish — and the risks are greater than expected](https://www.yahoo.com/news/officials-issue-urgent-warning-health-002000806.html)
 <!-- feed end -->
 
 ### Onstream
