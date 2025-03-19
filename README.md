@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Scott Jennings' Temper ERUPTS At Former Biden Official On CNN](https://www.yahoo.com/news/scott-jennings-temper-erupts-former-131248178.html)
-- Mar 19 - [Law roundup: 'No parking' means 'no parking'](https://www.yahoo.com/news/law-roundup-no-parking-means-130400032.html)
-- Mar 19 - [Starliner saga: See photos of astronauts landing, exiting SpaceX Dragon in Florida](https://www.yahoo.com/news/starliner-saga-see-photos-astronauts-123959813.html)
-- Mar 19 - [Germany updates US travel advice after citizens detained](https://www.yahoo.com/news/germany-updates-us-travel-advice-123912779.html)
-- Mar 19 - [I'm 60, retired, and have $2 million in my 401(k). How do I plan my withdrawals in a way that minimizes taxes?](https://finance.yahoo.com/news/im-60-retired-2-million-112500833.html)
+- Mar 19 - [Elon Musk mocked for ‘woe is me’ interview on Hannity](https://www.yahoo.com/news/elon-musk-mocked-woe-interview-150144033.html)
+- Mar 19 - ['Slothy' the Viral Stuffed Animal Removed From Washington Roadside After Year Up Tree](https://www.yahoo.com/news/slothy-viral-stuffed-animal-removed-145647074.html)
+- Mar 19 - [Conservative former federal judge says Trump has ‘declared war’ on US rule of law](https://www.yahoo.com/news/conservative-former-federal-judge-says-142000845.html)
+- Mar 19 - [Trump Reveals Stunning Reason Why He’s Bullying Canada](https://www.yahoo.com/news/trump-reveals-stunning-reason-why-133422022.html)
+- Mar 19 - [These 10 Used Cars Will Last Longer Than an Average New Vehicle](https://www.yahoo.com/lifestyle/10-used-cars-last-longer-185141023.html)
 <!-- feed end -->
 
 ### Onstream
