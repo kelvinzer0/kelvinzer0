@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Steve Bannon Makes Unsettling Prediction For Trump In 2028](https://www.yahoo.com/news/steve-bannon-makes-unsettling-prediction-101724084.html)
-- Mar 19 - [My Top 5 Bargain AI Stocks to Buy in the Nasdaq Correction](https://finance.yahoo.com/news/top-5-bargain-ai-stocks-081000827.html)
+- Mar 19 - ['So Scary': Brush Fire Closes Routes to Florida Keys](https://www.yahoo.com/news/scary-brush-fire-closes-routes-122503801.html)
+- Mar 19 - [I'm 60, retired, and have $2 million in my 401(k). How do I plan my withdrawals in a way that minimizes taxes?](https://finance.yahoo.com/news/im-60-retired-2-million-112500833.html)
+- Mar 19 - [Sarasota area waterfront restaurant closes after nearly 70 years, will be deeply missed](https://www.yahoo.com/news/sarasota-area-waterfront-restaurant-closes-091955305.html)
+- Mar 19 - [Dear Abby: My boyfriend is texting another woman behind my back](https://www.yahoo.com/lifestyle/dear-abby-boyfriend-texting-another-070000148.html)
 - Mar 19 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
-- Mar 19 - [He said she drugged him and could kill somebody. Now she’s accused of murdering a Super Bowl reporter](https://www.yahoo.com/news/said-she-drugged-him-could-060457873.html)
-- Mar 19 - [Chris Hayes Visibly Exasperated by Chuck Schumer’s Insistence Trump Hasn’t Threatened Democracy ‘Yet’: ‘My God’ | Video](https://www.yahoo.com/news/chris-hayes-visibly-exasperated-chuck-031721900.html)
 <!-- feed end -->
 
 ### Onstream
