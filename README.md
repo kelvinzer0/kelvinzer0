@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - ['So Scary': Brush Fire Closes Routes to Florida Keys](https://www.yahoo.com/news/scary-brush-fire-closes-routes-122503801.html)
+- Mar 19 - [Germany updates US travel advice after citizens detained](https://www.yahoo.com/news/germany-updates-us-travel-advice-123912779.html)
+- Mar 19 - [Teslas in Belfast latest to be damaged amid growing anti-Musk protest](https://www.yahoo.com/news/teslas-belfast-latest-damaged-amid-123831833.html)
+- Mar 19 - [Nvidia CEO Jensen Huang says we'll soon see 1 million GPU data centers visible from space](https://finance.yahoo.com/news/nvidia-ceo-jensen-huang-says-well-soon-see-1-million-gpu-data-centers-visible-from-space-123801629.html)
+- Mar 19 - [Courtroom erupts in chaos around witness Joshua Riibe's hearing](https://www.yahoo.com/news/courtroom-erupts-chaos-around-witness-120447028.html)
 - Mar 19 - [I'm 60, retired, and have $2 million in my 401(k). How do I plan my withdrawals in a way that minimizes taxes?](https://finance.yahoo.com/news/im-60-retired-2-million-112500833.html)
-- Mar 19 - [Sarasota area waterfront restaurant closes after nearly 70 years, will be deeply missed](https://www.yahoo.com/news/sarasota-area-waterfront-restaurant-closes-091955305.html)
-- Mar 19 - [Dear Abby: My boyfriend is texting another woman behind my back](https://www.yahoo.com/lifestyle/dear-abby-boyfriend-texting-another-070000148.html)
-- Mar 19 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
 <!-- feed end -->
 
 ### Onstream
