@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Trump releases classified files on JFK assassination. Here's what they say.](https://www.yahoo.com/news/trump-releases-classified-files-jfk-230444978.html)
-- Mar 18 - [Plane crash off Caribbean island kills at least 12, including music star](https://www.yahoo.com/news/plane-crash-off-caribbean-island-110602595.html)
+- Mar 19 - [Should You Forget Boeing and Buy These 2 Hot Growth Stocks Instead?](https://finance.yahoo.com/news/forget-boeing-buy-2-hot-011400748.html)
 - Mar 18 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
+- Mar 18 - [Trump fires both Democratic commissioners at FTC](https://www.yahoo.com/news/exclusive-trump-fires-both-democratic-210608282.html)
 - Mar 18 - [Opinion - Sadly, Trump is right on Ukraine](https://www.yahoo.com/news/opinion-sadly-trump-ukraine-200000471.html)
-- Mar 18 - [Putin Makes Stunning Demand in Ukraine Call as Trump Stays Quiet](https://www.yahoo.com/news/putin-makes-stunning-demand-ukraine-192404641.html)
+- Mar 18 - [Firefighter Arrested in Case Involving Twin Brothers, 19, Who Were Found Dead on Georgia Mountain](https://www.yahoo.com/news/firefighter-arrested-case-involving-twin-193308571.html)
 <!-- feed end -->
 
 ### Onstream
