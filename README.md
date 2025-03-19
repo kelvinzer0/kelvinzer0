@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Should You Forget Boeing and Buy These 2 Hot Growth Stocks Instead?](https://finance.yahoo.com/news/forget-boeing-buy-2-hot-011400748.html)
+- Mar 19 - [Trump administration removes ban on 'segregated facilities' in federal contracts](https://www.yahoo.com/news/trump-administration-removes-ban-segregated-022039273.html)
 - Mar 18 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
+- Mar 18 - [Verizon Communications (VZ) Ascends While Market Falls: Some Facts to Note](https://finance.yahoo.com/news/verizon-communications-vz-ascends-while-214517026.html)
 - Mar 18 - [Trump fires both Democratic commissioners at FTC](https://www.yahoo.com/news/exclusive-trump-fires-both-democratic-210608282.html)
 - Mar 18 - [Opinion - Sadly, Trump is right on Ukraine](https://www.yahoo.com/news/opinion-sadly-trump-ukraine-200000471.html)
-- Mar 18 - [Firefighter Arrested in Case Involving Twin Brothers, 19, Who Were Found Dead on Georgia Mountain](https://www.yahoo.com/news/firefighter-arrested-case-involving-twin-193308571.html)
 <!-- feed end -->
 
 ### Onstream
