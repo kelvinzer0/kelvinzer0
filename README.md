@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Large brush fire, smoky conditions shut down road leading in and out of Florida Keys](https://www.yahoo.com/news/large-brush-fire-smoky-conditions-192109679.html)
 - Mar 19 - ["Delete This Number NOW:" 50 Wrong Number Texts That Spiraled Way, Way, Way, Wayyyyyy Out Of Control](https://www.yahoo.com/lifestyle/delete-number-now-50-wrong-190519368.html)
-- Mar 19 - [US investigators say Alaska plane was overweight for icy conditions in crash that killed 10](https://www.yahoo.com/news/us-investigators-alaska-plane-overweight-185802948.html)
-- Mar 19 - [‘Livid’ Rupert Murdoch reportedly ‘berated’ Wall Street Journal editor for article promoting former CNN reporter’s newsletter](https://www.yahoo.com/news/livid-rupert-murdoch-reportedly-berated-175244760.html)
-- Mar 19 - [A Republican's Response To A "Tax The Rich" Chant At His Town Hall Is Going Viral](https://www.yahoo.com/news/republicans-response-tax-rich-chant-174658240.html)
-- Mar 19 - [Trump administration suspends $175 million in federal funding for Penn over transgender swimmer](https://www.yahoo.com/news/trump-administration-suspends-175-million-174455572.html)
+- Mar 19 - [Dana White's TKO boxing plans reportedly include fight purses ranging from $20K to 6 figures for title defenses](https://sports.yahoo.com/boxing/article/dana-whites-tko-boxing-plans-reportedly-include-fight-purses-ranging-from-20k-to-6-figures-for-title-defenses-174243398.html)
+- Mar 19 - [PCB high rise catches fire Monday afternoon; fire chief shares details](https://www.yahoo.com/news/pcb-high-rise-catches-fire-173023192.html)
+- Mar 19 - [Billionaire Peter Thiel Warns of a Looming Real Estate 'Catastrophe'—A 'Massive Hit to the Lower Middle Class and Young People' Who Can't Buy Homes](https://finance.yahoo.com/news/billionaire-peter-thiel-warns-looming-170746602.html)
 <!-- feed end -->
 
 ### Onstream
