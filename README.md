@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 19 - [Trump administration removes ban on 'segregated facilities' in federal contracts](https://www.yahoo.com/news/trump-administration-removes-ban-segregated-022039273.html)
+- Mar 19 - [Two more arrests in large fraud investigation in Tupelo](https://www.yahoo.com/news/two-more-arrests-large-fraud-010200186.html)
+- Mar 19 - [Mysterious Weapon Fired From Bradley Fighting Vehicle During Exercise](https://www.yahoo.com/news/mysterious-weapon-fired-bradley-fighting-002214013.html)
 - Mar 18 - [Missing South African girl was wanted for her 'eyes and skin'](https://www.yahoo.com/news/missing-south-african-girl-wanted-204245393.html)
-- Mar 18 - [Verizon Communications (VZ) Ascends While Market Falls: Some Facts to Note](https://finance.yahoo.com/news/verizon-communications-vz-ascends-while-214517026.html)
 - Mar 18 - [Trump fires both Democratic commissioners at FTC](https://www.yahoo.com/news/exclusive-trump-fires-both-democratic-210608282.html)
-- Mar 18 - [Opinion - Sadly, Trump is right on Ukraine](https://www.yahoo.com/news/opinion-sadly-trump-ukraine-200000471.html)
 <!-- feed end -->
 
 ### Onstream
