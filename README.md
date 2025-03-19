@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Elon Musk mocked for ‘woe is me’ interview on Hannity](https://www.yahoo.com/news/elon-musk-mocked-woe-interview-150144033.html)
-- Mar 19 - ['Slothy' the Viral Stuffed Animal Removed From Washington Roadside After Year Up Tree](https://www.yahoo.com/news/slothy-viral-stuffed-animal-removed-145647074.html)
-- Mar 19 - [Conservative former federal judge says Trump has ‘declared war’ on US rule of law](https://www.yahoo.com/news/conservative-former-federal-judge-says-142000845.html)
+- Mar 19 - [‘You cannot replace that;’ Ohio’s oldest log tavern goes up in flames; cause now determined](https://www.yahoo.com/news/cannot-replace-ohio-oldest-log-153534689.html)
+- Mar 19 - [Man seen with missing Pittsburgh student trying to obtain new passport, lawyers say](https://www.yahoo.com/news/man-seen-missing-pittsburgh-student-151840612.html)
+- Mar 19 - [Boeing Rallies as CFO Highlights Steady 737 Max and Dreamliner Production](https://finance.yahoo.com/news/boeing-rallies-cfo-highlights-steady-145923888.html)
+- Mar 19 - [How mass layoffs at Morgan Stanley reflect the financial sector](https://finance.yahoo.com/video/mass-layoffs-morgan-stanley-reflect-145627869.html)
 - Mar 19 - [Trump Reveals Stunning Reason Why He’s Bullying Canada](https://www.yahoo.com/news/trump-reveals-stunning-reason-why-133422022.html)
-- Mar 19 - [These 10 Used Cars Will Last Longer Than an Average New Vehicle](https://www.yahoo.com/lifestyle/10-used-cars-last-longer-185141023.html)
 <!-- feed end -->
 
 ### Onstream
