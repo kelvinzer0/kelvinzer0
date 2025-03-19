@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - ["Delete This Number NOW:" 50 Wrong Number Texts That Spiraled Way, Way, Way, Wayyyyyy Out Of Control](https://www.yahoo.com/lifestyle/delete-number-now-50-wrong-190519368.html)
+- Mar 19 - [US investigators say Alaska plane was overweight for icy conditions in crash that killed 10](https://www.yahoo.com/news/us-investigators-alaska-plane-overweight-185802948.html)
+- Mar 19 - [‘Livid’ Rupert Murdoch reportedly ‘berated’ Wall Street Journal editor for article promoting former CNN reporter’s newsletter](https://www.yahoo.com/news/livid-rupert-murdoch-reportedly-berated-175244760.html)
 - Mar 19 - [A Republican's Response To A "Tax The Rich" Chant At His Town Hall Is Going Viral](https://www.yahoo.com/news/republicans-response-tax-rich-chant-174658240.html)
-- Mar 19 - [Billionaire Peter Thiel Warns of a Looming Real Estate 'Catastrophe'—A 'Massive Hit to the Lower Middle Class and Young People' Who Can't Buy Homes](https://finance.yahoo.com/news/billionaire-peter-thiel-warns-looming-170746602.html)
-- Mar 19 - [Mugshot of Georgia college student arrested for speeding ‘steals the internet’s heart’](https://www.yahoo.com/lifestyle/mugshot-georgia-college-student-arrested-165252707.html)
-- Mar 19 - [Russian state has claimed assets worth $28.7 billion, prosecutor says](https://www.yahoo.com/news/russian-state-claimed-assets-worth-164800232.html)
-- Mar 19 - [I Need To Call My Doc For A New Inhaler After Cackling So Hard At These 41 Funny Tweets From The Week](https://www.yahoo.com/lifestyle/41-funny-tweets-week-feel-162641764.html)
+- Mar 19 - [Trump administration suspends $175 million in federal funding for Penn over transgender swimmer](https://www.yahoo.com/news/trump-administration-suspends-175-million-174455572.html)
 <!-- feed end -->
 
 ### Onstream
