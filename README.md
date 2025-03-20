@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Tourists are being told to stay away from Majorca this summer. Should we listen?](https://www.yahoo.com/news/tourists-being-told-stay-away-150000527.html)
-- Mar 20 - [67,000 white South Africans have expressed interest in Trump's plan to give them refugee status](https://www.yahoo.com/news/67-000-white-south-africans-144002966.html)
+- Mar 20 - [China executes four Canadians, triggering international outrage](https://www.yahoo.com/news/china-executes-four-canadians-triggering-163021301.html)
+- Mar 20 - [Zelensky hangs up on Macron during press briefing](https://www.yahoo.com/news/zelensky-hangs-french-president-during-160805760.html)
+- Mar 20 - [Crews battle fire at site of historic Los Angeles restaurant](https://www.yahoo.com/news/crews-battle-fire-historic-los-144440184.html)
 - Mar 20 - [Russia’s Black Sea strategy is key to understanding the war in Ukraine. See how.](https://www.yahoo.com/news/russia-black-sea-strategy-key-113924582.html)
-- Mar 20 - [Fast descent warning triggered on Delta jet that went belly-up on landing in Toronto](https://www.yahoo.com/news/warning-system-fast-descent-triggered-133156245.html)
-- Mar 20 - [Massive landlocked body of water resurfaces after more than a century: 'The land needs that lake'](https://www.yahoo.com/news/massive-landlocked-body-water-resurfaces-110025023.html)
+- Mar 20 - [‘I just fell to the ground’: Some of Trump and Musk’s most public supporters targeted in a wave of swatting incidents](https://www.yahoo.com/news/just-fell-ground-trump-musk-093052637.html)
 <!-- feed end -->
 
 ### Onstream
