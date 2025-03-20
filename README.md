@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [Canada PM Carney expected to call for snap election on April 28, Globe and Mail reports](https://www.yahoo.com/news/canada-pm-carney-expected-call-094506511.html)
+- Mar 20 - [BofA: Europe to Be Structural Growth Market for Defense](https://finance.yahoo.com/video/bofa-europe-structural-growth-market-092538802.html)
+- Mar 20 - [A Stock Market Alarm Is Sounding for the Third Time in 20 Years. History Says This Will Happen Next.](https://finance.yahoo.com/news/stock-market-alarm-sounding-third-074500506.html)
+- Mar 20 - [Karoline Leavitt’s Briefing Blunder Accidentally Undoes Key Trump Policy, Sparks Mockery Online](https://www.yahoo.com/news/karoline-leavitt-briefing-blunder-accidentally-070253323.html)
 - Mar 20 - [Trump's bluntness powered a White House comeback. Now his words are getting him in trouble in court](https://www.yahoo.com/news/trumps-bluntness-powered-white-house-040111695.html)
-- Mar 20 - [Married couple in U.S. for 35 years deported to Colombia](https://www.yahoo.com/news/southern-california-couple-u-35-014058969.html)
-- Mar 20 - [FBI agent who has criticized the bureau arrested on charges of sharing confidential information](https://www.yahoo.com/news/fbi-agent-criticized-bureau-arrested-003638766.html)
-- Mar 19 - [Evidence mounts that universe's dark energy is changing over time](https://www.yahoo.com/news/evidence-mounts-universes-dark-energy-220256389.html)
-- Mar 19 - [Vancouver considers annexation that could make it Washington’s second-largest city](https://www.yahoo.com/news/vancouver-considers-annexation-could-washington-215950863.html)
 <!-- feed end -->
 
 ### Onstream
