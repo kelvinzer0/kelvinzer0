@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [People Are Sharing The Moment Their Parents Acknowledged Voting For Donald Trump Was A Mistake, And I'm Speechless](https://www.yahoo.com/news/people-sharing-moment-parents-acknowledged-204937367.html)
+- Mar 20 - [Dow Jones Futures: Stock Market On Cusp Of Bullish Signal, What You Should Do Now](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bullish-signal-micron-earnings/?src=A00220&yptr=yahoo)
+- Mar 20 - [Southwest flight takeoff canceled after crew mistook Orlando taxiway for runway](https://www.yahoo.com/news/southwest-flight-cancels-takeoff-crew-200944893.html)
 - Mar 20 - [Ex-Ravens and Michigan assistant charged with accessing thousands of college athletes' 'intimate digital photographs and videos'](https://sports.yahoo.com/college-football/article/ex-ravens-and-michigan-assistant-charged-with-accessing-thousands-of-college-athletes-intimate-digital-photographs-and-videos-184432770.html)
+- Mar 20 - [Bondi, DOJ may block judge's request for more details on mass deportation flights to El Salvador](https://www.yahoo.com/news/bondi-doj-may-block-judges-182320009.html)
 - Mar 20 - [Parents of unvaccinated 6-year-old killed by measles in Texas speak out. They still are anti-vax](https://www.yahoo.com/news/parents-unvaccinated-6-old-killed-174054140.html)
-- Mar 20 - [Murphy The Bald Eagle Passes After Severe Weather](https://www.yahoo.com/news/murphy-bald-eagle-passes-severe-174036889.html)
-- Mar 20 - [GOP Lawmaker Who Ousted Liz Cheney Says It's 'Bizarre' How 'Obsessed' People Are with Government at Explosive Town Hall](https://www.yahoo.com/entertainment/gop-lawmaker-ousted-liz-cheney-165833047.html)
 <!-- feed end -->
 
 ### Onstream
