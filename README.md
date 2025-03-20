@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Canada PM Carney expected to call for snap election on April 28, Globe and Mail reports](https://www.yahoo.com/news/canada-pm-carney-expected-call-094506511.html)
-- Mar 20 - [BofA: Europe to Be Structural Growth Market for Defense](https://finance.yahoo.com/video/bofa-europe-structural-growth-market-092538802.html)
-- Mar 20 - [A Stock Market Alarm Is Sounding for the Third Time in 20 Years. History Says This Will Happen Next.](https://finance.yahoo.com/news/stock-market-alarm-sounding-third-074500506.html)
-- Mar 20 - [Karoline Leavitt’s Briefing Blunder Accidentally Undoes Key Trump Policy, Sparks Mockery Online](https://www.yahoo.com/news/karoline-leavitt-briefing-blunder-accidentally-070253323.html)
+- Mar 20 - [Ukraine attacks Russian strategic bomber airfield, Russian officials say](https://www.yahoo.com/news/ukraine-attacked-airfield-near-engels-061759692.html)
+- Mar 20 - [World’s population may actually be vastly undercounted, study claims](https://www.yahoo.com/news/world-population-may-actually-vastly-044122881.html)
 - Mar 20 - [Trump's bluntness powered a White House comeback. Now his words are getting him in trouble in court](https://www.yahoo.com/news/trumps-bluntness-powered-white-house-040111695.html)
+- Mar 20 - [People Are Sharing The Best One-Liners To Shut Down Arguments With Trump-Supporting Family Members](https://www.yahoo.com/lifestyle/people-sharing-best-one-liners-021602377.html)
+- Mar 20 - [Married couple in U.S. for 35 years deported to Colombia](https://www.yahoo.com/news/southern-california-couple-u-35-014058969.html)
 <!-- feed end -->
 
 ### Onstream
