@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [‘It can feel so lonely’: Bruce Willis's wife says caregivers 'need care too' after Gene Hackman and Betsy Arakawa's deaths. This Canadian mom agrees](https://www.yahoo.com/lifestyle/it-can-feel-so-lonely-bruce-williss-wife-says-caregivers-need-care-too-after-gene-hackman-and-betsy-arakawas-deaths-this-canadian-mom-agrees-180030876.html)
+- Mar 20 - [Trump administration deported Venezuelan asylum seeker over Real Madrid tattoo, court documents say](https://www.yahoo.com/news/trump-administration-deported-venezuelan-asylum-174620787.html)
+- Mar 20 - [Parents of unvaccinated 6-year-old killed by measles in Texas speak out. They still are anti-vax](https://www.yahoo.com/news/parents-unvaccinated-6-old-killed-174054140.html)
+- Mar 20 - [GOP Lawmaker Who Ousted Liz Cheney Says It's 'Bizarre' How 'Obsessed' People Are with Government at Explosive Town Hall](https://www.yahoo.com/entertainment/gop-lawmaker-ousted-liz-cheney-165833047.html)
 - Mar 20 - [China executes four Canadians, triggering international outrage](https://www.yahoo.com/news/china-executes-four-canadians-triggering-163021301.html)
-- Mar 20 - [Zelensky hangs up on Macron during press briefing](https://www.yahoo.com/news/zelensky-hangs-french-president-during-160805760.html)
-- Mar 20 - [Crews battle fire at site of historic Los Angeles restaurant](https://www.yahoo.com/news/crews-battle-fire-historic-los-144440184.html)
-- Mar 20 - [Russia’s Black Sea strategy is key to understanding the war in Ukraine. See how.](https://www.yahoo.com/news/russia-black-sea-strategy-key-113924582.html)
-- Mar 20 - [‘I just fell to the ground’: Some of Trump and Musk’s most public supporters targeted in a wave of swatting incidents](https://www.yahoo.com/news/just-fell-ground-trump-musk-093052637.html)
 <!-- feed end -->
 
 ### Onstream
