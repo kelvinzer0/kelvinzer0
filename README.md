@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Elliott Denied Appeal Over LME Nickel Ruling at UK’s Top Court](https://finance.yahoo.com/news/elliott-denied-appeal-over-lme-113032356.html)
-- Mar 20 - [I’m a Retired Boomer: 7 Reasons I Wish I Used a Financial Advisor To Plan for Retirement](https://finance.yahoo.com/news/m-retired-boomer-7-reasons-120052274.html)
-- Mar 20 - [‘I just fell to the ground:’ Some of Trump and Musk’s most public supporters targeted in a wave of swatting incidents](https://www.yahoo.com/news/just-fell-ground-trump-musk-093052637.html)
-- Mar 20 - [Exclusive-Air India in talks for dozens of new widebody jets from Airbus, Boeing, sources say](https://finance.yahoo.com/news/exclusive-air-india-talks-dozens-082536051.html)
-- Mar 20 - [Karoline Leavitt’s Briefing Blunder Accidentally Undoes Key Trump Policy, Sparks Mockery Online](https://www.yahoo.com/news/karoline-leavitt-briefing-blunder-accidentally-070253323.html)
+- Mar 20 - [EU health regulator clears use of AI tool in fatty liver disease trials](https://www.yahoo.com/news/eu-health-regulator-clears-ai-121637113.html)
+- Mar 20 - [‘A movement taking shape’: Many US retirees are looking to move abroad. Here are the best countries for them](https://www.yahoo.com/lifestyle/movement-taking-shape-many-us-115500632.html)
+- Mar 20 - [Ukraine strikes Russian strategic bomber airfield, triggering huge blast](https://www.yahoo.com/news/ukraine-attacked-airfield-near-engels-061759692.html)
+- Mar 20 - [Trump's bluntness powered a White House comeback. Now his words are getting him in trouble in court](https://www.yahoo.com/news/trumps-bluntness-powered-white-house-040111695.html)
+- Mar 20 - [People Are Sharing The Best One-Liners To Shut Down Arguments With Trump-Supporting Family Members](https://www.yahoo.com/lifestyle/people-sharing-best-one-liners-021602377.html)
 <!-- feed end -->
 
 ### Onstream
