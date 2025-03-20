@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Why Barnwell Industries, Inc. (BRN) is Gaining This Week?](https://finance.yahoo.com/news/why-barnwell-industries-inc-brn-131402410.html)
-- Mar 20 - [‘A movement taking shape’: Many US retirees are looking to move abroad. Here are the best countries for them](https://www.yahoo.com/lifestyle/movement-taking-shape-many-us-115500632.html)
+- Mar 20 - [‘I just fell to the ground’: Some of Trump and Musk’s most public supporters targeted in a wave of swatting incidents](https://www.yahoo.com/news/just-fell-ground-trump-musk-093052637.html)
+- Mar 20 - [Fast descent warning triggered on Delta jet that went belly-up on landing in Toronto](https://www.yahoo.com/news/warning-system-fast-descent-triggered-133156245.html)
 - Mar 20 - [Cruise passengers were told to draw curtains and turn off lights as they passed through a pirate hot spot](https://www.yahoo.com/news/cruise-passengers-were-told-draw-112854468.html)
-- Mar 20 - [Major EV company unveils record-breaking car carrier set to transport thousands of vehicles: '[Enhanced] operational efficiency'](https://autos.yahoo.com/major-ev-company-unveils-record-104534225.html)
-- Mar 20 - [Ukraine strikes Russian strategic bomber airfield, triggering huge blast](https://www.yahoo.com/news/ukraine-attacked-airfield-near-engels-061759692.html)
+- Mar 20 - [Philippines eyes transforming islands of former U.S. base into military reservation](https://www.yahoo.com/news/philippines-eyes-transforming-islands-former-104450031.html)
+- Mar 20 - [CNN Panelist Awkwardly Tells Kevin O’Leary to Back Off: ‘I Don’t Want You to Touch Me!’](https://www.yahoo.com/news/cnn-panelist-awkwardly-tells-kevin-103058833.html)
 <!-- feed end -->
 
 ### Onstream
