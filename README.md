@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Ryan Giggs suffers huge setback as business venture folds unexpectedly](https://sports.yahoo.com/article/ryan-giggs-suffers-huge-setback-233000369.html)
+- Mar 19 - [GOP chairs ‘very concerned’ over report of Trump changing military commands](https://www.yahoo.com/news/gop-chairs-very-concerned-over-223840613.html)
 - Mar 19 - [Vancouver considers annexation that could make it Washington’s second-largest city](https://www.yahoo.com/news/vancouver-considers-annexation-could-washington-215950863.html)
 - Mar 19 - [Update: 1 dead, 1 injured after truck slams into sign at I-40 and Western](https://www.yahoo.com/news/amarillo-police-respond-serious-traffic-212733649.html)
-- Mar 19 - [Southwest Announces a Second Controversial Change Sure to Displease Passengers](https://www.yahoo.com/lifestyle/southwest-announces-second-controversial-change-201424990.html)
-- Mar 19 - [NASA may require Boeing's Starliner to fly third uncrewed test](https://www.yahoo.com/news/nasa-may-require-boeings-starliner-194947084.html)
-- Mar 19 - ["Delete This Number NOW:" 50 Wrong Number Texts That Make Me Cry Laughing No Matter How Many Times I've Seen Them](https://www.yahoo.com/lifestyle/delete-number-now-50-wrong-190519368.html)
+- Mar 19 - [Am I responsible for my spouse’s credit card debt when they die?](https://finance.yahoo.com/personal-finance/credit-cards/article/am-i-responsible-for-my-spouses-credit-card-debt-when-they-die-211343701.html)
 <!-- feed end -->
 
 ### Onstream
