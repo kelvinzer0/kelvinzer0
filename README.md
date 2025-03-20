@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Celtics sold for $6.1 billion. Here's what we know about their new owner](https://sports.yahoo.com/video/celtics-sold-6-1-billion-181427590.html)
 - Mar 20 - [Parents of unvaccinated 6-year-old killed by measles in Texas speak out. They still are anti-vax](https://www.yahoo.com/news/parents-unvaccinated-6-old-killed-174054140.html)
-- Mar 20 - [Murphy The Bald Eagle Passes After Severe Weather](https://www.yahoo.com/news/murphy-bald-eagle-passes-severe-174036889.html)
 - Mar 20 - [GOP Lawmaker Who Ousted Liz Cheney Says It's 'Bizarre' How 'Obsessed' People Are with Government at Explosive Town Hall](https://www.yahoo.com/entertainment/gop-lawmaker-ousted-liz-cheney-165833047.html)
 - Mar 20 - [China executes four Canadians, triggering international outrage](https://www.yahoo.com/news/china-executes-four-canadians-triggering-163021301.html)
+- Mar 20 - [Zelensky hangs up on Macron during press briefing](https://www.yahoo.com/news/zelensky-hangs-french-president-during-160805760.html)
+- Mar 20 - [Jimmy Kimmel Roasts Elon Musk for Claiming Teslas Are Being Destroyed Due to ‘Mental Illness’: You Did ‘One, Maybe Two Nazi Salutes’](https://www.yahoo.com/entertainment/jimmy-kimmel-roasts-elon-musk-154848899.html)
 <!-- feed end -->
 
 ### Onstream
