@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [‘I just fell to the ground’: Some of Trump and Musk’s most public supporters targeted in a wave of swatting incidents](https://www.yahoo.com/news/just-fell-ground-trump-musk-093052637.html)
+- Mar 20 - [Tourists are being told to stay away from Majorca this summer. Should we listen?](https://www.yahoo.com/news/tourists-being-told-stay-away-150000527.html)
+- Mar 20 - [67,000 white South Africans have expressed interest in Trump's plan to give them refugee status](https://www.yahoo.com/news/67-000-white-south-africans-144002966.html)
+- Mar 20 - [Russia’s Black Sea strategy is key to understanding the war in Ukraine. See how.](https://www.yahoo.com/news/russia-black-sea-strategy-key-113924582.html)
 - Mar 20 - [Fast descent warning triggered on Delta jet that went belly-up on landing in Toronto](https://www.yahoo.com/news/warning-system-fast-descent-triggered-133156245.html)
-- Mar 20 - [Cruise passengers were told to draw curtains and turn off lights as they passed through a pirate hot spot](https://www.yahoo.com/news/cruise-passengers-were-told-draw-112854468.html)
-- Mar 20 - [Philippines eyes transforming islands of former U.S. base into military reservation](https://www.yahoo.com/news/philippines-eyes-transforming-islands-former-104450031.html)
-- Mar 20 - [CNN Panelist Awkwardly Tells Kevin O’Leary to Back Off: ‘I Don’t Want You to Touch Me!’](https://www.yahoo.com/news/cnn-panelist-awkwardly-tells-kevin-103058833.html)
+- Mar 20 - [Massive landlocked body of water resurfaces after more than a century: 'The land needs that lake'](https://www.yahoo.com/news/massive-landlocked-body-water-resurfaces-110025023.html)
 <!-- feed end -->
 
 ### Onstream
