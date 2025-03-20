@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [EU health regulator clears use of AI tool in fatty liver disease trials](https://www.yahoo.com/news/eu-health-regulator-clears-ai-121637113.html)
+- Mar 20 - [Why Barnwell Industries, Inc. (BRN) is Gaining This Week?](https://finance.yahoo.com/news/why-barnwell-industries-inc-brn-131402410.html)
 - Mar 20 - [‘A movement taking shape’: Many US retirees are looking to move abroad. Here are the best countries for them](https://www.yahoo.com/lifestyle/movement-taking-shape-many-us-115500632.html)
+- Mar 20 - [Cruise passengers were told to draw curtains and turn off lights as they passed through a pirate hot spot](https://www.yahoo.com/news/cruise-passengers-were-told-draw-112854468.html)
+- Mar 20 - [Major EV company unveils record-breaking car carrier set to transport thousands of vehicles: '[Enhanced] operational efficiency'](https://autos.yahoo.com/major-ev-company-unveils-record-104534225.html)
 - Mar 20 - [Ukraine strikes Russian strategic bomber airfield, triggering huge blast](https://www.yahoo.com/news/ukraine-attacked-airfield-near-engels-061759692.html)
-- Mar 20 - [Trump's bluntness powered a White House comeback. Now his words are getting him in trouble in court](https://www.yahoo.com/news/trumps-bluntness-powered-white-house-040111695.html)
-- Mar 20 - [People Are Sharing The Best One-Liners To Shut Down Arguments With Trump-Supporting Family Members](https://www.yahoo.com/lifestyle/people-sharing-best-one-liners-021602377.html)
 <!-- feed end -->
 
 ### Onstream
