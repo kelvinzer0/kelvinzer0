@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Dow Jones Futures: Stock Market On Cusp Of Bullish Signal, What You Should Do Now](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bullish-signal-micron-earnings/?src=A00220&yptr=yahoo)
+- Mar 21 - [Dow Jones Futures: Stock Market On Cusp Of Bullish Signal, What You Should Do Now](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bullish-signal-micron-earnings/?src=A00220&yptr=yahoo)
+- Mar 20 - [Israeli hostage freed after 491 days asks: Where was the United Nations, the Red Cross, the world?](https://www.yahoo.com/news/israeli-hostage-freed-491-days-235706128.html)
+- Mar 20 - [Musk demoted, markets sink & voters recoil from Trump slump: Ezra Klein x Ari Melber](https://www.yahoo.com/news/musk-demoted-markets-sink-voters-201433044.html)
 - Mar 20 - [Southwest flight takeoff canceled after crew mistook Orlando taxiway for runway](https://www.yahoo.com/news/southwest-flight-cancels-takeoff-crew-200944893.html)
-- Mar 20 - [Ex-Ravens and Michigan assistant charged with accessing thousands of college athletes' 'intimate digital photographs and videos'](https://sports.yahoo.com/college-football/article/ex-ravens-and-michigan-assistant-charged-with-accessing-thousands-of-college-athletes-intimate-digital-photographs-and-videos-184432770.html)
-- Mar 20 - [Bondi, DOJ may block judge's request for more details on mass deportation flights to El Salvador](https://www.yahoo.com/news/bondi-doj-may-block-judges-182320009.html)
-- Mar 20 - [Parents of unvaccinated 6-year-old killed by measles in Texas speak out. They still are anti-vax](https://www.yahoo.com/news/parents-unvaccinated-6-old-killed-174054140.html)
+- Mar 20 - [Celtics sold for $6.1 billion. Here's what we know about their new owner](https://sports.yahoo.com/video/celtics-sold-6-1-billion-181427590.html)
 <!-- feed end -->
 
 ### Onstream
