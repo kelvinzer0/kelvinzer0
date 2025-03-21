@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [More names of men accused of paying for sex at high-end brothels in Mass. being revealed](https://www.yahoo.com/news/more-names-men-accused-paying-151611598.html)
+- Mar 21 - [Missing New Hampshire woman found dead in Merrimack Valley pond after massive search](https://www.yahoo.com/news/missing-hampshire-woman-found-dead-193334976.html)
+- Mar 21 - [Washington bars ex-Argentina president from entering US, citing corruption](https://www.yahoo.com/news/washington-bars-ex-argentina-president-192323046.html)
+- Mar 21 - [Names of 11 more men accused of paying for sex at high-end brothels in Mass. revealed in court](https://www.yahoo.com/news/more-names-men-accused-paying-151611598.html)
 - Mar 21 - ['Threat to national security': House calls on Purdue to release info on Chinese students](https://www.yahoo.com/news/threat-national-security-house-calls-180841528.html)
-- Mar 21 - [A mountainous region in Italy is offering €100,000 to move there. But there’s a catch](https://www.yahoo.com/lifestyle/mountainous-region-italy-offering-100-143742182.html)
-- Mar 21 - [Musk group offers $100 to Wisconsin voters ahead of pivotal state Supreme Court election](https://www.yahoo.com/news/musk-group-offers-100-wisconsin-142333249.html)
-- Mar 21 - [Trump Melts Down Over How Much Power President Elon Musk Has](https://www.yahoo.com/news/trump-melts-down-over-much-135004741.html)
+- Mar 21 - [Donald Trump Asked Son Barron 'How'd You Do That?' When He Turned on a Laptop: 'Unbelievable Aptitude in Technology'](https://www.yahoo.com/entertainment/donald-trump-asked-son-barron-165653018.html)
 <!-- feed end -->
 
 ### Onstream
