@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Appleton man who died at Progressive Converting came to US as a refugee; friends set up GoFundMe](https://www.yahoo.com/news/appleton-man-died-progressive-converting-200004333.html)
+- Mar 21 - [Trump revokes legal status for 530,000 Cubans, Haitians, Nicaraguans and Venezuelans](https://www.yahoo.com/news/trump-revokes-legal-status-530-210307627.html)
+- Mar 21 - [Meta has revenue sharing agreements with Llama AI model hosts, filing reveals](https://finance.yahoo.com/news/meta-revenue-sharing-agreements-llama-204053859.html)
 - Mar 21 - [Names of 11 more men accused of paying for sex at high-end brothels in Mass. revealed in court](https://www.yahoo.com/news/more-names-men-accused-paying-151611598.html)
 - Mar 21 - [Donald Trump Asked Son Barron 'How'd You Do That?' When He Turned on a Laptop: 'Unbelievable Aptitude in Technology'](https://www.yahoo.com/entertainment/donald-trump-asked-son-barron-165653018.html)
-- Mar 21 - [Trump Throws Fit at NYT’s ‘Dumb’ Maggie Haberman and Wants Her Pulitzer](https://www.yahoo.com/news/trump-throws-fit-nyt-dumb-161106220.html)
-- Mar 21 - [A mountainous region in Italy is offering €100,000 to move there. But there’s a catch](https://www.yahoo.com/lifestyle/mountainous-region-italy-offering-100-143742182.html)
+- Mar 21 - [Drivers could soon be charged to travel on this key Southern California commuter road](https://www.yahoo.com/news/drivers-could-soon-charged-travel-164710839.html)
 <!-- feed end -->
 
 ### Onstream
