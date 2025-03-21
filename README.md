@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 21 - [Trump revokes legal status for 530,000 Cubans, Haitians, Nicaraguans and Venezuelans](https://www.yahoo.com/news/trump-revokes-legal-status-530-210307627.html)
-- Mar 21 - [Meta has revenue sharing agreements with Llama AI model hosts, filing reveals](https://finance.yahoo.com/news/meta-revenue-sharing-agreements-llama-204053859.html)
 - Mar 21 - [Names of 11 more men accused of paying for sex at high-end brothels in Mass. revealed in court](https://www.yahoo.com/news/more-names-men-accused-paying-151611598.html)
-- Mar 21 - [Donald Trump Asked Son Barron 'How'd You Do That?' When He Turned on a Laptop: 'Unbelievable Aptitude in Technology'](https://www.yahoo.com/entertainment/donald-trump-asked-son-barron-165653018.html)
 - Mar 21 - [Drivers could soon be charged to travel on this key Southern California commuter road](https://www.yahoo.com/news/drivers-could-soon-charged-travel-164710839.html)
+- Mar 21 - [Trump Throws Fit at NYT’s ‘Dumb’ Maggie Haberman and Wants Her Pulitzer](https://www.yahoo.com/news/trump-throws-fit-nyt-dumb-161106220.html)
+- Mar 21 - [Catholic infant school teacher moonlighting on OnlyFans sparks government intervention](https://www.yahoo.com/news/catholic-infant-school-teacher-moonlighting-145026358.html)
 <!-- feed end -->
 
 ### Onstream
