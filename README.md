@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Olympics-You can't choose who congratulates you, IOC says after Putin's best wishes](https://www.yahoo.com/news/olympics-cant-choose-congratulates-ioc-125659428.html)
-- Mar 21 - [Texas nurse abandons 3-year-old home — says microwave kept fogging up before house deemed 'uninhabitable' by inspector](https://www.yahoo.com/news/texas-nurse-abandons-3-old-104400336.html)
-- Mar 21 - [FTSE 100 LIVE: London stocks slide as UK borrowing hits £10.7bn in February](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-uk-borrowing-rises-heathrow-094519853.html)
-- Mar 21 - [Howard Lutnick says Elon Musk vowed onstage that DOGE would cut $2 trillion in spending when he was supposed to say $1 trillion](https://finance.yahoo.com/news/howard-lutnick-says-elon-musk-090354040.html)
-- Mar 21 - [The Bidens want back in](https://www.yahoo.com/news/bidens-want-back-090000276.html)
+- Mar 21 - [Republicans force vote on bill to allow driver's licenses for undocumented immigrants](https://www.yahoo.com/news/republicans-force-vote-bill-allow-145818073.html)
+- Mar 21 - [Musk group offers $100 to Wisconsin voters ahead of pivotal state Supreme Court election](https://www.yahoo.com/news/musk-group-offers-100-wisconsin-142333249.html)
+- Mar 21 - [Israel Threatens to Annex Land in Gaza Unless Hostages Freed](https://finance.yahoo.com/news/israel-threatens-annex-land-gaza-123400745.html)
+- Mar 21 - [National Medal of Honor recipients gather in Texas for museum opening](https://www.yahoo.com/news/national-medal-honor-recipients-gather-134109276.html)
+- Mar 21 - [Fires burn in Odesa and Zaporizhzhia after deadly Russian overnight strikes on Ukraine](https://www.yahoo.com/news/fires-burn-odesa-zaporizhzhia-deadly-113428182.html)
 <!-- feed end -->
 
 ### Onstream
