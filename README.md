@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Wendy's CEO: from AI-powered drive-thrus to thick bacon](https://finance.yahoo.com/video/wendys-ceo-ai-powered-drive-123037039.html)
-- Mar 21 - [Mortgage and refinance rates today, March 21, 2025: Lowest 30-year rate in a week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-march-21-2025-100029547.html)
+- Mar 21 - [The little-known levy raking in more revenue than inheritance tax](https://finance.yahoo.com/news/little-known-levy-raking-more-122256792.html)
+- Mar 21 - [FTSE 100 LIVE: London stocks slide as UK borrowing hits £10.7bn in February](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-uk-borrowing-rises-heathrow-094519853.html)
 - Mar 21 - [After pouring $450 million into Florida real estate, Larry Ellison plans to lure the ultra-rich to an exclusive town just minutes from Mar-a-Lago](https://finance.yahoo.com/news/pouring-450-million-florida-real-091300004.html)
 - Mar 21 - [Great Smoky Mountains National Park closes campgrounds, trims offerings amid federal cuts](https://www.yahoo.com/news/great-smoky-mountains-national-park-091002169.html)
-- Mar 21 - [The Latest: Hundreds of thousands of passengers face flight cancelations as Heathrow closes](https://www.yahoo.com/news/latest-hundreds-thousands-passengers-face-080103038.html)
+- Mar 21 - [Howard Lutnick says Elon Musk vowed onstage that DOGE would cut $2 trillion in spending when he was supposed to say $1 trillion](https://finance.yahoo.com/news/howard-lutnick-says-elon-musk-090354040.html)
 <!-- feed end -->
 
 ### Onstream
