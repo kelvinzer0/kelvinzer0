@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 21 - [Dow Jones Futures Fall As Market Still Needs This; Six Stocks To Watch](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bullish-signal-micron-earnings/?src=A00220&yptr=yahoo)
-- Mar 21 - [Dan Ives Just Said Buying the Dip in This Artificial Intelligence (AI) Stock Is a "Generational Opportunity" (Hint: It's Not Nvidia)](https://finance.yahoo.com/news/dan-ives-just-said-buying-071100134.html)
-- Mar 21 - [Resorts World faces $10.5 million fine from Nevada gaming regulators](https://www.yahoo.com/news/resorts-world-faces-10-5-020301903.html)
+- Mar 21 - [Howard Lutnick says Elon Musk vowed onstage that DOGE would cut $2 trillion in spending when he was supposed to say $1 trillion](https://finance.yahoo.com/news/howard-lutnick-says-elon-musk-090354040.html)
+- Mar 21 - [Switching off plants: Chinese copper smelters grapple with margin collapse](https://finance.yahoo.com/news/switching-off-plants-chinese-copper-035541883.html)
 - Mar 21 - [Trump denies Musk to be briefed on top-secret plan for potential war with China](https://www.yahoo.com/news/pentagon-brief-musk-top-secret-014945499.html)
-- Mar 20 - [Why the men who were sent to El Salvador’s mega-prison may never make it out](https://www.yahoo.com/news/why-men-were-sent-el-233040258.html)
+- Mar 20 - [Israeli hostage freed after 491 days asks: Where was the United Nations, the Red Cross, the world?](https://www.yahoo.com/news/israeli-hostage-freed-491-days-235706128.html)
 <!-- feed end -->
 
 ### Onstream
