@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Dow Jones Futures: Stock Market On Cusp Of Bullish Signal, What You Should Do Now](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bullish-signal-micron-earnings/?src=A00220&yptr=yahoo)
+- Mar 21 - [Dow Jones Futures: Market Still Needs This; Six Stocks To Watch](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bullish-signal-micron-earnings/?src=A00220&yptr=yahoo)
+- Mar 21 - [Pentagon to brief Musk on top-secret plan for potential war with China, NYT reports](https://www.yahoo.com/news/pentagon-brief-musk-top-secret-014945499.html)
 - Mar 20 - [Israeli hostage freed after 491 days asks: Where was the United Nations, the Red Cross, the world?](https://www.yahoo.com/news/israeli-hostage-freed-491-days-235706128.html)
+- Mar 20 - [Why the men who were sent to El Salvador’s mega-prison may never make it out](https://www.yahoo.com/news/why-men-were-sent-el-233040258.html)
 - Mar 20 - [Musk demoted, markets sink & voters recoil from Trump slump: Ezra Klein x Ari Melber](https://www.yahoo.com/news/musk-demoted-markets-sink-voters-201433044.html)
-- Mar 20 - [Southwest flight takeoff canceled after crew mistook Orlando taxiway for runway](https://www.yahoo.com/news/southwest-flight-cancels-takeoff-crew-200944893.html)
-- Mar 20 - [Celtics sold for $6.1 billion. Here's what we know about their new owner](https://sports.yahoo.com/video/celtics-sold-6-1-billion-181427590.html)
 <!-- feed end -->
 
 ### Onstream
