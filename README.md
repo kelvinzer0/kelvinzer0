@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Four key AI skills anyone can learn](https://uk.finance.yahoo.com/news/ai-skills-anyone-can-learn-060012651.html)
-- Mar 21 - [More than half of Gazans would leave if given chance, poll finds](https://www.yahoo.com/news/more-half-gazans-leave-given-060000275.html)
-- Mar 21 - [London’s Heathrow Airport announces complete shutdown due to ‘significant power outage’](https://www.yahoo.com/news/london-heathrow-airport-announces-complete-052425501.html)
+- Mar 21 - [Global travel disrupted after Heathrow Airport shuts down over power outage caused by fire](https://www.yahoo.com/news/london-heathrow-airport-announces-complete-052425501.html)
 - Mar 21 - [Trump denies Musk to be briefed on top-secret plan for potential war with China](https://www.yahoo.com/news/pentagon-brief-musk-top-secret-014945499.html)
-- Mar 21 - [Trump to award US Air Force's next-generation fighter jet contract Friday, sources say](https://finance.yahoo.com/news/pentagon-set-award-us-air-000948648.html)
+- Mar 21 - [Tesla springs last-minute public all hands on staffers, confusion ensues](https://finance.yahoo.com/news/tesla-springs-last-minute-public-014157230.html)
+- Mar 20 - [Israeli hostage freed after 491 days asks: Where was the United Nations, the Red Cross, the world?](https://www.yahoo.com/news/israeli-hostage-freed-491-days-235706128.html)
+- Mar 20 - [Why the men who were sent to El Salvador’s mega-prison may never make it out](https://www.yahoo.com/news/why-men-were-sent-el-233040258.html)
 <!-- feed end -->
 
 ### Onstream
