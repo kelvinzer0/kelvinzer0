@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [Dan Ives Just Said Buying the Dip in This Artificial Intelligence (AI) Stock Is a "Generational Opportunity" (Hint: It's Not Nvidia)](https://finance.yahoo.com/news/dan-ives-just-said-buying-071100134.html)
+- Mar 21 - [Trump Admin Threatens to Stop Social Security If DOGE Can’t Have Personal Data](https://www.yahoo.com/news/trump-admin-threatens-stop-social-041848651.html)
 - Mar 21 - [Trump denies Musk to be briefed on top-secret plan for potential war with China](https://www.yahoo.com/news/pentagon-brief-musk-top-secret-014945499.html)
-- Mar 21 - [Tesla springs last-minute public all hands on staffers, confusion ensues](https://finance.yahoo.com/news/tesla-springs-last-minute-public-014157230.html)
 - Mar 21 - [Trump to award US Air Force's next-generation fighter jet contract Friday, sources say](https://finance.yahoo.com/news/pentagon-set-award-us-air-000948648.html)
 - Mar 20 - [Israeli hostage freed after 491 days asks: Where was the United Nations, the Red Cross, the world?](https://www.yahoo.com/news/israeli-hostage-freed-491-days-235706128.html)
-- Mar 20 - [Why the men who were sent to El Salvador’s mega-prison may never make it out](https://www.yahoo.com/news/why-men-were-sent-el-233040258.html)
 <!-- feed end -->
 
 ### Onstream
