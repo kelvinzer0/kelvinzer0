@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [The little-known levy raking in more revenue than inheritance tax](https://finance.yahoo.com/news/little-known-levy-raking-more-122256792.html)
+- Mar 21 - [Olympics-You can't choose who congratulates you, IOC says after Putin's best wishes](https://www.yahoo.com/news/olympics-cant-choose-congratulates-ioc-125659428.html)
+- Mar 21 - [Texas nurse abandons 3-year-old home — says microwave kept fogging up before house deemed 'uninhabitable' by inspector](https://www.yahoo.com/news/texas-nurse-abandons-3-old-104400336.html)
 - Mar 21 - [FTSE 100 LIVE: London stocks slide as UK borrowing hits £10.7bn in February](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-uk-borrowing-rises-heathrow-094519853.html)
-- Mar 21 - [After pouring $450 million into Florida real estate, Larry Ellison plans to lure the ultra-rich to an exclusive town just minutes from Mar-a-Lago](https://finance.yahoo.com/news/pouring-450-million-florida-real-091300004.html)
-- Mar 21 - [Great Smoky Mountains National Park closes campgrounds, trims offerings amid federal cuts](https://www.yahoo.com/news/great-smoky-mountains-national-park-091002169.html)
 - Mar 21 - [Howard Lutnick says Elon Musk vowed onstage that DOGE would cut $2 trillion in spending when he was supposed to say $1 trillion](https://finance.yahoo.com/news/howard-lutnick-says-elon-musk-090354040.html)
+- Mar 21 - [The Bidens want back in](https://www.yahoo.com/news/bidens-want-back-090000276.html)
 <!-- feed end -->
 
 ### Onstream
