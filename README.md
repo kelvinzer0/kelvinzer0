@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Drivers pull over to watch the substation fire near Heathrow airport](https://www.yahoo.com/news/drivers-pull-over-watch-substation-154419489.html)
+- Mar 21 - [Crash shuts down I-295 in Scarborough for hours](https://www.yahoo.com/news/crash-shuts-down-295-scarborough-163200477.html)
 - Mar 21 - [More names of men accused of paying for sex at high-end brothels in Mass. being revealed](https://www.yahoo.com/news/more-names-men-accused-paying-151611598.html)
-- Mar 21 - [110 years ago a US president refused to go to war, citing ‘America First’. Is Trump following his lead?](https://www.yahoo.com/news/110-years-ago-us-president-150818670.html)
 - Mar 21 - [A mountainous region in Italy is offering €100,000 to move there. But there’s a catch](https://www.yahoo.com/lifestyle/mountainous-region-italy-offering-100-143742182.html)
+- Mar 21 - [Multiple cougar sightings reported near Beaverton shopping center](https://www.yahoo.com/news/multiple-cougar-sightings-reported-near-143000005.html)
 - Mar 21 - [Musk group offers $100 to Wisconsin voters ahead of pivotal state Supreme Court election](https://www.yahoo.com/news/musk-group-offers-100-wisconsin-142333249.html)
 <!-- feed end -->
 
