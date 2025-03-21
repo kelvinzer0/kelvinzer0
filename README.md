@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [US carries out third and fourth executions of week](https://www.yahoo.com/news/oklahoma-man-put-death-third-170614362.html)
-- Mar 21 - [Dow Jones Futures: Market Still Needs This; Six Stocks To Watch](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-bullish-signal-micron-earnings/?src=A00220&yptr=yahoo)
 - Mar 21 - [Trump denies Musk to be briefed on top-secret plan for potential war with China](https://www.yahoo.com/news/pentagon-brief-musk-top-secret-014945499.html)
-- Mar 21 - [Tesla springs last-minute public all hands on staffers, confusion ensues](https://finance.yahoo.com/news/tesla-springs-last-minute-public-014157230.html)
 - Mar 20 - [Israeli hostage freed after 491 days asks: Where was the United Nations, the Red Cross, the world?](https://www.yahoo.com/news/israeli-hostage-freed-491-days-235706128.html)
+- Mar 20 - [Why the men who were sent to El Salvador’s mega-prison may never make it out](https://www.yahoo.com/news/why-men-were-sent-el-233040258.html)
+- Mar 20 - [Rocked! Trump losing in court as AOC dunks, voters revolt, markets slide, Tesla crashes](https://www.yahoo.com/news/rocked-trump-losing-court-aoc-232755675.html)
+- Mar 20 - [Southwest flight takeoff canceled after crew mistook Orlando taxiway for runway](https://www.yahoo.com/news/southwest-flight-cancels-takeoff-crew-200944893.html)
 <!-- feed end -->
 
 ### Onstream
