@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [Ukraine's combat drones are coming from all over the place. It's a good and bad thing.](https://www.yahoo.com/news/ukraines-combat-drones-coming-over-113001612.html)
+- Mar 22 - [Russia accuses an 'unfriendly state' of planning the 2024 Moscow concert hall assault](https://www.yahoo.com/news/russia-accuses-unfriendly-state-planning-111214192.html)
 - Mar 22 - [This molten thermite drone ammo burns through damaged Russian tanks at over 3000 degrees to make sure they stay dead](https://www.yahoo.com/news/molten-thermite-drone-ammo-burns-092502670.html)
 - Mar 22 - [Trump just ordered the attorney general to report 'frivolous' lawsuits against his administration so he can consider executive actions against firms. Read the memo.](https://www.yahoo.com/news/trump-just-ordered-attorney-general-041838098.html)
 - Mar 22 - [US decision to limit Canadian access to border-straddling library prompts outpouring of emotion](https://www.yahoo.com/news/us-decision-limit-canadian-access-023626341.html)
-- Mar 21 - [Coty sells its stake in Kim Kardashian's beauty brand to SKIMS](https://finance.yahoo.com/news/coty-sells-stake-kim-kardashians-230258305.html)
-- Mar 21 - [Trump revokes legal status for 530,000 Cubans, Haitians, Nicaraguans and Venezuelans](https://www.yahoo.com/news/trump-revokes-legal-status-530-210307627.html)
 <!-- feed end -->
 
 ### Onstream
