@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 21 - [Coty sells its stake in Kim Kardashian's beauty brand to SKIMS](https://finance.yahoo.com/news/coty-sells-stake-kim-kardashians-230258305.html)
 - Mar 21 - [Trump revokes legal status for 530,000 Cubans, Haitians, Nicaraguans and Venezuelans](https://www.yahoo.com/news/trump-revokes-legal-status-530-210307627.html)
 - Mar 21 - [Influencer brothers Andrew and Tristan Tate arrive in Romania after weeks in the United States](https://www.yahoo.com/news/influencer-brothers-andrew-tristan-tate-204949997.html)
-- Mar 21 - [3,200-year-old Egyptian tomb may belong to military commander who served under Ramesses III](https://www.yahoo.com/news/3-200-old-egyptian-tomb-204557404.html)
+- Mar 21 - ['Where is Congress?' Sen. Chuck Grassley town hall in Iowa gets heated quickly](https://www.yahoo.com/news/where-congress-sen-chuck-grassley-193007091.html)
 <!-- feed end -->
 
 ### Onstream
