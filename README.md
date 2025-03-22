@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [A flyer says a United Airlines pilot forcibly removed him from an airplane bathroom. Now he's suing](https://www.yahoo.com/news/flyer-says-united-airlines-pilot-162858543.html)
-- Mar 22 - [Kitty Dukakis, former first lady of Massachusetts, dies at 88](https://www.yahoo.com/news/kitty-dukakis-former-first-lady-134534443.html)
 - Mar 22 - [Joe Rogan Says There's A 'Bizarre Connection' Between The Government And The People. It's No Longer 'Just For The People, By The People'](https://finance.yahoo.com/news/joe-rogan-says-theres-bizarre-150327861.html)
 - Mar 22 - [Forget Florida — these 2 states are the new retirement hot spots for low costs and high quality of life](https://www.yahoo.com/lifestyle/forget-florida-2-states-retirement-120700927.html)
-- Mar 22 - [Scientists issue alarming update on phenomenon that could impact millions: 'What happens … doesn't stay there'](https://www.yahoo.com/news/scientists-issue-alarming-phenomenon-could-113022553.html)
+- Mar 22 - [Thousands lose access to bank accounts — over $100M frozen. Here's how to protect yourself when banks have tech issues](https://finance.yahoo.com/news/thousands-lose-access-bank-accounts-113000049.html)
+- Mar 22 - [This molten thermite drone ammo burns through damaged Russian tanks at over 3000 degrees to make sure they stay dead](https://www.yahoo.com/news/molten-thermite-drone-ammo-burns-092502670.html)
+- Mar 22 - [China Discloses Powerful Deep-Sea Cable Cutter, SCMP Reports](https://www.yahoo.com/news/china-discloses-powerful-deep-sea-064531319.html)
 <!-- feed end -->
 
 ### Onstream
