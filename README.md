@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [Ukraine's combat drones are coming from all over the place. It's a good and bad thing.](https://www.yahoo.com/news/ukraines-combat-drones-coming-over-113001612.html)
-- Mar 22 - [Russia accuses an 'unfriendly state' of planning the 2024 Moscow concert hall assault](https://www.yahoo.com/news/russia-accuses-unfriendly-state-planning-111214192.html)
-- Mar 22 - [This molten thermite drone ammo burns through damaged Russian tanks at over 3000 degrees to make sure they stay dead](https://www.yahoo.com/news/molten-thermite-drone-ammo-burns-092502670.html)
+- Mar 22 - [Forget Florida — these 2 states are the new retirement hot spots for low costs and high quality of life](https://www.yahoo.com/lifestyle/forget-florida-2-states-retirement-120700927.html)
+- Mar 22 - [Barcelona finally turned on its crowds of tourists. Now the city faces a major problem](https://www.yahoo.com/news/barcelona-finally-turned-crowds-tourists-120053645.html)
+- Mar 22 - [Thousands lose access to bank accounts — over $100M frozen. Here's how to protect yourself when banks have tech issues](https://finance.yahoo.com/news/thousands-lose-access-bank-accounts-113000049.html)
 - Mar 22 - [Trump just ordered the attorney general to report 'frivolous' lawsuits against his administration so he can consider executive actions against firms. Read the memo.](https://www.yahoo.com/news/trump-just-ordered-attorney-general-041838098.html)
 - Mar 22 - [US decision to limit Canadian access to border-straddling library prompts outpouring of emotion](https://www.yahoo.com/news/us-decision-limit-canadian-access-023626341.html)
 <!-- feed end -->
