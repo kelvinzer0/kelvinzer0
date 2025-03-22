@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [Joe Rogan Says There's A 'Bizarre Connection' Between The Government And The People. It's No Longer 'Just For The People, By The People'](https://finance.yahoo.com/news/joe-rogan-says-theres-bizarre-150327861.html)
+- Mar 22 - [What the Fed's forecasts could mean for REITs](https://finance.yahoo.com/video/feds-forecasts-could-mean-reits-140012167.html)
+- Mar 22 - [Drone Video Shows Major Fire in Greater Manchester](https://www.yahoo.com/news/drone-video-shows-major-fire-135859533.html)
 - Mar 22 - [Forget Florida — these 2 states are the new retirement hot spots for low costs and high quality of life](https://www.yahoo.com/lifestyle/forget-florida-2-states-retirement-120700927.html)
 - Mar 22 - [Barcelona finally turned on its crowds of tourists. Now the city faces a major problem](https://www.yahoo.com/news/barcelona-finally-turned-crowds-tourists-120053645.html)
-- Mar 22 - [Scientists issue alarming update on phenomenon that could impact millions: 'What happens … doesn't stay there'](https://www.yahoo.com/news/scientists-issue-alarming-phenomenon-could-113022553.html)
-- Mar 22 - [Thousands lose access to bank accounts — over $100M frozen. Here's how to protect yourself when banks have tech issues](https://finance.yahoo.com/news/thousands-lose-access-bank-accounts-113000049.html)
-- Mar 22 - [Russia accuses an 'unfriendly state' of planning the 2024 Moscow concert hall assault](https://www.yahoo.com/news/russia-accuses-unfriendly-state-planning-111214192.html)
 <!-- feed end -->
 
 ### Onstream
