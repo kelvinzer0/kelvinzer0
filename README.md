@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [Displaced Gazans Forced to Shelter Next to Landfill](https://www.yahoo.com/news/displaced-gazans-forced-shelter-next-190406548.html)
-- Mar 22 - [Student, 12, accused of hate crime after school fight where two students ‘had hijabs ripped off’](https://www.yahoo.com/news/student-12-accused-hate-crime-182419563.html)
-- Mar 22 - [A flyer says a United Airlines pilot forcibly removed him from an airplane bathroom. Now he's suing](https://www.yahoo.com/news/flyer-says-united-airlines-pilot-162858543.html)
+- Mar 22 - [We will all pay the price for Labour’s war on wealth](https://www.yahoo.com/news/pay-price-labour-war-wealth-190000401.html)
+- Mar 22 - [Ex-MSNBC Legal Analyst Has A Prediction For Trump, And It Involves 'The C-Word'](https://www.yahoo.com/news/ex-msnbc-legal-analyst-prediction-183345762.html)
+- Mar 22 - [BlackRock's Fink made Trump happy with Panama Canal deal. The cost may be an unhappy China.](https://finance.yahoo.com/news/blackrocks-fink-made-trump-happy-with-panama-canal-deal-the-cost-may-be-an-unhappy-china-160059381.html)
 - Mar 22 - [Joe Rogan Says There's A 'Bizarre Connection' Between The Government And The People. It's No Longer 'Just For The People, By The People'](https://finance.yahoo.com/news/joe-rogan-says-theres-bizarre-150327861.html)
-- Mar 22 - [Tourist booed for climbing sacred Mayan pyramid in Mexico](https://www.yahoo.com/news/tourist-booed-climbing-sacred-mayan-140639688.html)
+- Mar 22 - [NJ sinkhole I-80 repairs expected to take weeks: Latest updates, map](https://www.yahoo.com/news/nj-sinkhole-80-repairs-expected-145018067.html)
 <!-- feed end -->
 
 ### Onstream
