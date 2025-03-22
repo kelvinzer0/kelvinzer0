@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - ['Studying chemistry helped me sell millions of oat milk bottles'](https://uk.finance.yahoo.com/news/oato-fresh-oat-milk-round-supermarket-060047084.html)
 - Mar 22 - [Trump just ordered the attorney general to report 'frivolous' lawsuits against his administration so he can consider executive actions against firms. Read the memo.](https://www.yahoo.com/news/trump-just-ordered-attorney-general-041838098.html)
 - Mar 22 - [US decision to limit Canadian access to border-straddling library prompts outpouring of emotion](https://www.yahoo.com/news/us-decision-limit-canadian-access-023626341.html)
 - Mar 21 - [Coty sells its stake in Kim Kardashian's beauty brand to SKIMS](https://finance.yahoo.com/news/coty-sells-stake-kim-kardashians-230258305.html)
 - Mar 21 - [Trump revokes legal status for 530,000 Cubans, Haitians, Nicaraguans and Venezuelans](https://www.yahoo.com/news/trump-revokes-legal-status-530-210307627.html)
+- Mar 21 - [Influencer brothers Andrew and Tristan Tate arrive in Romania after weeks in the United States](https://www.yahoo.com/news/influencer-brothers-andrew-tristan-tate-204949997.html)
 <!-- feed end -->
 
 ### Onstream
