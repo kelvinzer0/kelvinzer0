@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [Man faces federal charges for cocaine trafficking, unlawful gun possession, illegal reentry](https://www.yahoo.com/news/man-faces-federal-charges-cocaine-032625609.html)
+- Mar 22 - [Trump official doubts seniors would mind if their Social Security checks stopped](https://www.yahoo.com/news/trump-official-doubts-seniors-mind-002921242.html)
 - Mar 21 - [Coty sells its stake in Kim Kardashian's beauty brand to SKIMS](https://finance.yahoo.com/news/coty-sells-stake-kim-kardashians-230258305.html)
 - Mar 21 - [Trump revokes legal status for 530,000 Cubans, Haitians, Nicaraguans and Venezuelans](https://www.yahoo.com/news/trump-revokes-legal-status-530-210307627.html)
 - Mar 21 - [Influencer brothers Andrew and Tristan Tate arrive in Romania after weeks in the United States](https://www.yahoo.com/news/influencer-brothers-andrew-tristan-tate-204949997.html)
-- Mar 21 - ['Where is Congress?' Sen. Chuck Grassley town hall in Iowa gets heated quickly](https://www.yahoo.com/news/where-congress-sen-chuck-grassley-193007091.html)
-- Mar 21 - [Names of 11 more men accused of paying for sex at high-end brothels in Mass. revealed in court](https://www.yahoo.com/news/more-names-men-accused-paying-151611598.html)
 <!-- feed end -->
 
 ### Onstream
