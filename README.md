@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 22 - [Barcelona finally turned on its crowds of tourists. Now the city faces a major problem](https://www.yahoo.com/news/barcelona-finally-turned-crowds-tourists-120053645.html)
 - Mar 22 - [Scientists issue alarming update on phenomenon that could impact millions: 'What happens … doesn't stay there'](https://www.yahoo.com/news/scientists-issue-alarming-phenomenon-could-113022553.html)
 - Mar 22 - [Thousands lose access to bank accounts — over $100M frozen. Here's how to protect yourself when banks have tech issues](https://finance.yahoo.com/news/thousands-lose-access-bank-accounts-113000049.html)
-- Mar 22 - [Give Your iPhone a Makeover by Changing These iOS 18.3 Settings](https://tech.yahoo.com/articles/ios-18-3-own-changing-111803007.html)
+- Mar 22 - [Russia accuses an 'unfriendly state' of planning the 2024 Moscow concert hall assault](https://www.yahoo.com/news/russia-accuses-unfriendly-state-planning-111214192.html)
 <!-- feed end -->
 
 ### Onstream
