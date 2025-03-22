@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [Looking For Yields: Pfizer, Spire, And TriCo Bancshares Are Consistent Moneymakers](https://finance.yahoo.com/news/looking-yields-pfizer-spire-trico-010019354.html)
+- Mar 22 - [Madison city leaders hold ribbon cutting for new Sunshine Oaks Park](https://www.yahoo.com/news/madison-city-leaders-hold-ribbon-010401422.html)
+- Mar 22 - [Nvidia Stock Slide Signals Time to Reposition, Says Wealth Manager Michael Landsberg: 'I Wouldn't Buy Tech Here On The Dip'](https://finance.yahoo.com/news/nvidia-stock-slide-signals-time-003014524.html)
 - Mar 21 - [Coty sells its stake in Kim Kardashian's beauty brand to SKIMS](https://finance.yahoo.com/news/coty-sells-stake-kim-kardashians-230258305.html)
 - Mar 21 - [Trump revokes legal status for 530,000 Cubans, Haitians, Nicaraguans and Venezuelans](https://www.yahoo.com/news/trump-revokes-legal-status-530-210307627.html)
-- Mar 21 - ['Where is Congress?' Sen. Chuck Grassley town hall in Iowa gets heated quickly](https://www.yahoo.com/news/where-congress-sen-chuck-grassley-193007091.html)
-- Mar 21 - [Names of 11 more men accused of paying for sex at high-end brothels in Mass. revealed in court](https://www.yahoo.com/news/more-names-men-accused-paying-151611598.html)
+- Mar 21 - [Influencer brothers Andrew and Tristan Tate arrive in Romania after weeks in the United States](https://www.yahoo.com/news/influencer-brothers-andrew-tristan-tate-204949997.html)
 <!-- feed end -->
 
 ### Onstream
