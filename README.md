@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [Northern lights may be visible over parts of Massachusetts tonight. See map of where](https://www.yahoo.com/news/northern-lights-may-visible-over-211605149.html)
+- Mar 22 - [AP Top Stories March 22 P](https://www.yahoo.com/news/ap-top-stories-march-22-204844628.html)
 - Mar 22 - [Ex-MSNBC Legal Analyst Has A Prediction For Trump, And It Involves 'The C-Word'](https://www.yahoo.com/news/ex-msnbc-legal-analyst-prediction-183345762.html)
 - Mar 22 - [A passenger says a United pilot forcibly removed him from an airplane bathroom. Now he is suing](https://www.yahoo.com/news/flyer-says-united-airlines-pilot-162858543.html)
-- Mar 22 - [Kitty Dukakis, wife of former Massachusetts governor and presidential hopeful Michael Dukakis, dead at 88](https://www.yahoo.com/news/kitty-dukakis-wife-former-massachusetts-161928030.html)
 - Mar 22 - [BlackRock's Fink made Trump happy with Panama Canal deal. The cost may be an unhappy China.](https://finance.yahoo.com/news/blackrocks-fink-made-trump-happy-with-panama-canal-deal-the-cost-may-be-an-unhappy-china-160059381.html)
-- Mar 22 - [Joe Rogan Says There's A 'Bizarre Connection' Between The Government And The People. It's No Longer 'Just For The People, By The People'](https://finance.yahoo.com/news/joe-rogan-says-theres-bizarre-150327861.html)
 <!-- feed end -->
 
 ### Onstream
