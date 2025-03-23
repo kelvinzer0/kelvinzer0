@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 23 - [2 arrested after nearly 150 grams of drugs found inside house](https://www.yahoo.com/news/2-arrested-nearly-150-grams-145348064.html)
+- Mar 23 - ['This is on Hamas,' US special envoy Witkoff says of new Gaza fighting](https://www.yahoo.com/news/hamas-us-special-envoy-witkoff-143511928.html)
 - Mar 23 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-140644313.html)
-- Mar 23 - [Agencies respond to vehicle, field fire off Pulaski Pike](https://www.yahoo.com/news/agencies-respond-vehicle-field-fire-123221263.html)
+- Mar 23 - [An Amateur Archaeologist Found a 1,000-Year-Old Ring With Incredible Implications](https://www.yahoo.com/news/amateur-archaeologist-found-1-000-124200269.html)
 - Mar 23 - [The biggest question facing the stock market](https://finance.yahoo.com/news/the-biggest-question-facing-the-stock-market-123012922.html)
-- Mar 23 - [Scientists alarmed by 'new normal' observed on slopes of Mount Everest: 'This is a wake-up call'](https://www.yahoo.com/news/scientists-alarmed-normal-observed-slopes-111556112.html)
-- Mar 23 - [F-47 Was Born Out Of Secret X-Planes Built By Both Boeing And Lockheed](https://www.yahoo.com/news/f-47-born-secret-x-061047641.html)
 <!-- feed end -->
 
 ### Onstream
