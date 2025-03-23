@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 23 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-140644313.html)
+- Mar 23 - [Agencies respond to vehicle, field fire off Pulaski Pike](https://www.yahoo.com/news/agencies-respond-vehicle-field-fire-123221263.html)
 - Mar 23 - [The biggest question facing the stock market](https://finance.yahoo.com/news/the-biggest-question-facing-the-stock-market-123012922.html)
-- Mar 23 - [A young man emerged from a burning house after decades of alleged captivity. His city is now reckoning with the fallout](https://www.yahoo.com/news/young-man-emerged-burning-house-120053566.html)
-- Mar 23 - [India says quashing Volkswagen's $1.4 billion tax bill would be 'catastrophic'](https://finance.yahoo.com/news/india-says-quashing-volkswagens-1-064854007.html)
+- Mar 23 - [Scientists alarmed by 'new normal' observed on slopes of Mount Everest: 'This is a wake-up call'](https://www.yahoo.com/news/scientists-alarmed-normal-observed-slopes-111556112.html)
 - Mar 23 - [F-47 Was Born Out Of Secret X-Planes Built By Both Boeing And Lockheed](https://www.yahoo.com/news/f-47-born-secret-x-061047641.html)
-- Mar 23 - [Wordle hints today for #1,373: Clues and answer for Sunday, March 23](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1373-clues-and-answer-for-sunday-march-23-040102822.html)
 <!-- feed end -->
 
 ### Onstream
