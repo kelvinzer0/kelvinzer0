@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Mar 22 - [Fact Check: Photos don't show NASA astronaut returned to Earth with dark hair despite it being gray in space](https://www.yahoo.com/news/fact-check-photos-dont-show-230000658.html)
 - Mar 22 - [Former St. Louis sportscaster Brian McKenna killed in overnight crash](https://www.yahoo.com/news/former-st-louis-sportscaster-brian-222758940.html)
 - Mar 22 - [Prostate cancer risk increases by 45% among men who share one troubling behavior](https://www.yahoo.com/news/prostate-cancer-risk-increases-45-195351425.html)
-- Mar 22 - [Octopus hitches ride on shark’s back in remarkable footage that is  ‘a reminder of the wonders of the ocean’: ‘Sharktopus’](https://www.yahoo.com/news/octopus-hitches-ride-shark-back-193746865.html)
 - Mar 22 - [Ex-MSNBC Legal Analyst Has A Prediction For Trump, And It Involves 'The C-Word'](https://www.yahoo.com/news/ex-msnbc-legal-analyst-prediction-183345762.html)
+- Mar 22 - [Fire Chief Suspended 'Indefinitely' After Admitting to Dropping His 3-Month-Old Daughter and Fracturing Her Skull](https://www.yahoo.com/entertainment/fire-chief-suspended-indefinitely-admitting-182427254.html)
 <!-- feed end -->
 
 ### Onstream
