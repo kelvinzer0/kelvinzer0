@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [My mom died and left me 10 times as much as I expected, leaving me grateful but a little lost on how best to manage it](https://finance.yahoo.com/news/mom-died-left-10-times-200000737.html)
-- Mar 23 - [Egyptologists clash over ‘underground city’ beneath pyramids](https://www.yahoo.com/news/egyptologists-clash-over-underground-city-193459408.html)
-- Mar 23 - [Lily Stewart, College Student Who Went Viral for Smiling Mugshot, Arrested Again](https://www.yahoo.com/entertainment/lily-stewart-college-student-went-192246714.html)
-- Mar 23 - [Apple’s rumored plastic Apple Watch SE has reportedly hit a serious snag](https://tech.yahoo.com/article/apples-rumored-plastic-apple-watch-se-has-reportedly-hit-a-serious-snag-180820143.html)
-- Mar 23 - [Parisians vote in referendum on pedestrianizing 500 city streets](https://www.yahoo.com/news/parisians-vote-referendum-pedestrianizing-500-174029747.html)
+- Mar 23 - [Arrests in shooting that killed 3 and hurt 15 at a park in Las Cruces, New Mexico](https://www.yahoo.com/news/arrests-shooting-killed-3-hurt-215602243.html)
+- Mar 23 - ['We are horrified': Ajax, Ont., mayor and community react after police say hijab-wearing woman almost lit on fire](https://www.yahoo.com/news/we-are-horrified-ajax-ont-mayor-and-community-react-after-police-say-hijab-wearing-woman-almost-lit-on-fire-212218217.html)
+- Mar 23 - [Trump reveals who he thinks killed JFK after releasing assassination investigation files](https://www.yahoo.com/news/trump-reveals-thinks-killed-jfk-210156015.html)
+- Mar 23 - [Former Miss Scotland bit security guard and called him N-word, court hears](https://www.yahoo.com/news/former-miss-scotland-bit-security-211027892.html)
+- Mar 23 - [‘Chilling effect on free speech:’ Trump wants green card applicants already legally in the US to hand over social media profiles](https://www.yahoo.com/news/chilling-effect-free-speech-trump-210013309.html)
 <!-- feed end -->
 
 ### Onstream
