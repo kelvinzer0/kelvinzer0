@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [2 arrested after nearly 150 grams of drugs found inside house](https://www.yahoo.com/news/2-arrested-nearly-150-grams-145348064.html)
+- Mar 23 - [Segway recalls 220,000 of its scooters due to a fall hazard that has resulted in 20 injuries](https://www.yahoo.com/news/segway-recalls-220-000-scooters-162026141.html)
+- Mar 23 - [Former US Attorney Jessica Aber found dead in Virginia at 43](https://www.yahoo.com/news/former-us-attorney-jessica-aber-235837007.html)
 - Mar 23 - ['This is on Hamas,' US special envoy Witkoff says of new Gaza fighting](https://www.yahoo.com/news/hamas-us-special-envoy-witkoff-143511928.html)
+- Mar 23 - [Another US Navy destroyer that fought off missiles in the Red Sea has been sent to guard America's southern border](https://www.yahoo.com/news/another-us-navy-destroyer-fought-142509500.html)
 - Mar 23 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-140644313.html)
-- Mar 23 - [An Amateur Archaeologist Found a 1,000-Year-Old Ring With Incredible Implications](https://www.yahoo.com/news/amateur-archaeologist-found-1-000-124200269.html)
-- Mar 23 - [The biggest question facing the stock market](https://finance.yahoo.com/news/the-biggest-question-facing-the-stock-market-123012922.html)
 <!-- feed end -->
 
 ### Onstream
