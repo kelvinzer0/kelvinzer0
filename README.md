@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [Segway recalls 220,000 of its scooters due to a fall hazard that has resulted in 20 injuries](https://www.yahoo.com/news/segway-recalls-220-000-scooters-162026141.html)
-- Mar 23 - [Former US Attorney Jessica Aber found dead in Virginia at 43](https://www.yahoo.com/news/former-us-attorney-jessica-aber-235837007.html)
-- Mar 23 - ['This is on Hamas,' US special envoy Witkoff says of new Gaza fighting](https://www.yahoo.com/news/hamas-us-special-envoy-witkoff-143511928.html)
+- Mar 23 - [Parisians vote in referendum on pedestrianizing 500 city streets](https://www.yahoo.com/news/parisians-vote-referendum-pedestrianizing-500-174029747.html)
+- Mar 23 - [Iceland's minister for children quits after admitting she had a baby with a teenager 30 years ago](https://www.yahoo.com/news/icelands-minister-children-quits-admitting-173600876.html)
+- Mar 23 - [Bernie Sanders tries to end interview when asked if he wants Alexandria Ocasio-Cortez in the Senate](https://www.yahoo.com/news/bernie-sanders-tries-end-interview-170627656.html)
 - Mar 23 - [Another US Navy destroyer that fought off missiles in the Red Sea has been sent to guard America's southern border](https://www.yahoo.com/news/another-us-navy-destroyer-fought-142509500.html)
 - Mar 23 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-140644313.html)
 <!-- feed end -->
