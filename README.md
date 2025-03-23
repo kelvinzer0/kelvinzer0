@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 23 - [My mom died and left me 10 times as much as I expected, leaving me grateful but a little lost on how best to manage it](https://finance.yahoo.com/news/mom-died-left-10-times-200000737.html)
+- Mar 23 - [Egyptologists clash over ‘underground city’ beneath pyramids](https://www.yahoo.com/news/egyptologists-clash-over-underground-city-193459408.html)
+- Mar 23 - [Lily Stewart, College Student Who Went Viral for Smiling Mugshot, Arrested Again](https://www.yahoo.com/entertainment/lily-stewart-college-student-went-192246714.html)
 - Mar 23 - [Apple’s rumored plastic Apple Watch SE has reportedly hit a serious snag](https://tech.yahoo.com/article/apples-rumored-plastic-apple-watch-se-has-reportedly-hit-a-serious-snag-180820143.html)
-- Mar 23 - [Iceland's minister for children quits after admitting she had a baby with a teenager 30 years ago](https://www.yahoo.com/news/icelands-minister-children-quits-admitting-173600876.html)
-- Mar 23 - [Avoid These Grocery Stores If You're Trying To Save Money](https://www.yahoo.com/lifestyle/avoid-grocery-stores-youre-trying-152500429.html)
-- Mar 23 - [‘Shock and concern’: Klein describes reactions to Trump WH sponsorships](https://www.yahoo.com/news/shock-concern-klein-describes-reactions-145104240.html)
-- Mar 23 - ['This is on Hamas,' US special envoy Witkoff says of new Gaza fighting](https://www.yahoo.com/news/hamas-us-special-envoy-witkoff-143511928.html)
+- Mar 23 - [Parisians vote in referendum on pedestrianizing 500 city streets](https://www.yahoo.com/news/parisians-vote-referendum-pedestrianizing-500-174029747.html)
 <!-- feed end -->
 
 ### Onstream
