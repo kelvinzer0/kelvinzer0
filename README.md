@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [New Canadian Prime Minister Carney will run in Ottawa area district as he seeks to join Parliament](https://www.yahoo.com/news/canadian-prime-minister-carney-run-012015172.html)
-- Mar 23 - [The man with a mind-reading chip in his brain - thanks to Elon Musk](https://www.yahoo.com/news/man-mind-reading-chip-brain-010414306.html)
 - Mar 22 - [Former US Attorney Jessica Aber found dead in Virginia at 43](https://www.yahoo.com/news/former-us-attorney-jessica-aber-235837007.html)
 - Mar 22 - [Fact Check: Photos don't show NASA astronaut returned to Earth with dark hair despite it being gray in space](https://www.yahoo.com/news/fact-check-photos-dont-show-230000658.html)
 - Mar 22 - [Former St. Louis sportscaster Brian McKenna killed in overnight crash](https://www.yahoo.com/news/former-st-louis-sportscaster-brian-222758940.html)
+- Mar 22 - [Murphy, a beloved bald eagle who became a foster dad, dies](https://www.yahoo.com/news/murphy-beloved-bald-eagle-became-184247161.html)
+- Mar 22 - [Ex-MSNBC Legal Analyst Has A Prediction For Trump, And It Involves 'The C-Word'](https://www.yahoo.com/news/ex-msnbc-legal-analyst-prediction-183345762.html)
 <!-- feed end -->
 
 ### Onstream
