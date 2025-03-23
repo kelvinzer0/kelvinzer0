@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 23 - [4 Pieces of Financial Advice From Warren Buffett That Have Stood the Test of Time](https://finance.yahoo.com/news/4-pieces-financial-advice-warren-110222152.html)
 - Mar 23 - [Houston couple fights — and wins — battle with Wells Fargo over $40,000 in fraudulent transactions](https://finance.yahoo.com/news/houston-couple-fights-wins-battle-104900079.html)
 - Mar 23 - [Med Student Breaks Down After She's Blindsided by Shocking Rejection. Now She May Be Forced to Leave Fiancé Behind (Exclusive)](https://www.yahoo.com/lifestyle/med-student-breaks-down-shes-080000788.html)
-- Mar 23 - [Wordle hints today for #1,373: Clues and answer for Sunday, March 23](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1373-clues-and-answer-for-sunday-march-23-040102822.html)
+- Mar 23 - [Trump asks if Lee Harvey Oswald was helped in assassinating JFK](https://www.yahoo.com/news/trump-asks-lee-harvey-oswald-053003034.html)
 - Mar 22 - [Fact Check: Photos don't show NASA astronaut returned to Earth with dark hair despite it being gray in space](https://www.yahoo.com/news/fact-check-photos-dont-show-230000658.html)
-- Mar 22 - [Prostate cancer risk increases by 45% among men who share one troubling behavior](https://www.yahoo.com/news/prostate-cancer-risk-increases-45-195351425.html)
 <!-- feed end -->
 
 ### Onstream
