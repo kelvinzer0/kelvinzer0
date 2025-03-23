@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [Bernie Sanders tries to end interview when asked if he wants Alexandria Ocasio-Cortez in the Senate](https://www.yahoo.com/news/bernie-sanders-tries-end-interview-170627656.html)
-- Mar 23 - [Canada amongst countries like the U.K., Germany and others in Europe issuing advisories about U.S. travel](https://www.yahoo.com/news/canada-amongst-countries-like-the-uk-germany-and-others-in-europe-issuing-advisories-about-us-travel-170032815.html)
+- Mar 23 - [Apple’s rumored plastic Apple Watch SE has reportedly hit a serious snag](https://tech.yahoo.com/article/apples-rumored-plastic-apple-watch-se-has-reportedly-hit-a-serious-snag-180820143.html)
+- Mar 23 - [Iceland's minister for children quits after admitting she had a baby with a teenager 30 years ago](https://www.yahoo.com/news/icelands-minister-children-quits-admitting-173600876.html)
+- Mar 23 - [Avoid These Grocery Stores If You're Trying To Save Money](https://www.yahoo.com/lifestyle/avoid-grocery-stores-youre-trying-152500429.html)
 - Mar 23 - [‘Shock and concern’: Klein describes reactions to Trump WH sponsorships](https://www.yahoo.com/news/shock-concern-klein-describes-reactions-145104240.html)
-- Mar 23 - [Another US Navy destroyer that fought off missiles in the Red Sea has been sent to guard America's southern border](https://www.yahoo.com/news/another-us-navy-destroyer-fought-142509500.html)
-- Mar 23 - [Trump administration sets out to create an America its people have never experienced − one without a meaningful government](https://www.yahoo.com/news/trump-administration-sets-create-america-140644313.html)
+- Mar 23 - ['This is on Hamas,' US special envoy Witkoff says of new Gaza fighting](https://www.yahoo.com/news/hamas-us-special-envoy-witkoff-143511928.html)
 <!-- feed end -->
 
 ### Onstream
