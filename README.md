@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Trump administration asks Supreme Court to allow mass firings of probationary workers](https://www.yahoo.com/news/trump-administration-asks-supreme-court-165025785.html)
-- Mar 24 - [‘The View’ Host Whoopi Goldberg Gives Blunt Warning About Trump’s Deportations: ‘Next One They Take Could Be You’](https://www.yahoo.com/news/view-host-whoopi-goldberg-gives-163402435.html)
-- Mar 24 - [Why anger has shifted from Trump's overreach to the Democrats' disunity and apathy](https://www.yahoo.com/news/why-anger-shifted-trumps-overreach-162407674.html)
-- Mar 24 - [Joanna Lumley joins stars in calling on ferry firm to reverse plan to resume live animal exports](https://www.yahoo.com/news/joanna-lumley-joins-stars-calling-162317101.html)
-- Mar 24 - [New Map Gives Stunning Look At What’s Under Antarctica’s Ice](https://www.yahoo.com/news/map-gives-stunning-look-under-160629587.html)
+- Mar 24 - [New Map Gives Stunning Look At What’s Under Antarctica’s Ice](https://www.yahoo.com/news/map-gives-stunning-look-under-181226718.html)
+- Mar 24 - [Shocking figures reveal UK spends twice as much on working age benefits than defence](https://www.yahoo.com/news/shocking-figures-reveal-uk-spends-175110210.html)
+- Mar 24 - [The year's first major political test in Wisconsin becomes a referendum on Elon Musk](https://www.yahoo.com/news/years-first-major-political-test-174947842.html)
+- Mar 24 - [United Nations to scale down operations in Gaza amid renewed fighting](https://www.yahoo.com/news/united-nations-scale-down-operations-173312283.html)
+- Mar 24 - [Popular brewery closes Wayne County location with 'extreme sadness and heavy heart'](https://www.yahoo.com/news/popular-brewery-closes-wayne-county-172226908.html)
 <!-- feed end -->
 
 ### Onstream
