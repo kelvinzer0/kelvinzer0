@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Food prices continue to rise](https://www.yahoo.com/news/food-prices-continue-rise-011512611.html)
-- Mar 24 - [Massive fire destroys four Liberty, Missouri businesses and classic cars](https://www.yahoo.com/news/massive-fire-destroys-four-liberty-005508484.html)
-- Mar 23 - [Mia Khalifa Blasts Hyper-Religious Adults: “It’s a Sign of Low Intelligence, Not Enlightenment”](https://www.yahoo.com/entertainment/mia-khalifa-blasts-hyper-religious-231532096.html)
 - Mar 23 - [Law firm targeted by Trump could have been 'destroyed,' chairman says in explaining deal with Trump](https://www.yahoo.com/news/law-firm-targeted-trump-could-230739587.html)
+- Mar 23 - [Warning shot from the US Supreme Court: Follow the rule of law | R. Bruce Anderson](https://www.yahoo.com/news/warning-shot-us-supreme-court-215500610.html)
+- Mar 23 - [The Bashiri mystery: A 2,300-year-old Egyptian mummy that no archaeologist dares to open](https://www.yahoo.com/news/bashiri-mystery-2-300-old-214220700.html)
 - Mar 23 - [‘Chilling effect on free speech:’ Trump wants green card applicants already legally in the US to hand over social media profiles](https://www.yahoo.com/news/chilling-effect-free-speech-trump-210013309.html)
+- Mar 23 - [My mom died and left me 10 times as much as I expected, leaving me grateful but a little lost on how best to manage it](https://finance.yahoo.com/news/mom-died-left-10-times-200000737.html)
 <!-- feed end -->
 
 ### Onstream
