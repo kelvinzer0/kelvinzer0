@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [Former US Attorney Jessica Aber found dead in Virginia at 43](https://www.yahoo.com/news/former-us-attorney-jessica-aber-235837007.html)
-- Mar 23 - [Trump reveals who he thinks killed JFK after releasing assassination investigation files](https://www.yahoo.com/news/trump-reveals-thinks-killed-jfk-210156015.html)
+- Mar 24 - [Food prices continue to rise](https://www.yahoo.com/news/food-prices-continue-rise-011512611.html)
+- Mar 24 - [Massive fire destroys four Liberty, Missouri businesses and classic cars](https://www.yahoo.com/news/massive-fire-destroys-four-liberty-005508484.html)
+- Mar 23 - [Mia Khalifa Blasts Hyper-Religious Adults: “It’s a Sign of Low Intelligence, Not Enlightenment”](https://www.yahoo.com/entertainment/mia-khalifa-blasts-hyper-religious-231532096.html)
+- Mar 23 - [Law firm targeted by Trump could have been 'destroyed,' chairman says in explaining deal with Trump](https://www.yahoo.com/news/law-firm-targeted-trump-could-230739587.html)
 - Mar 23 - [‘Chilling effect on free speech:’ Trump wants green card applicants already legally in the US to hand over social media profiles](https://www.yahoo.com/news/chilling-effect-free-speech-trump-210013309.html)
-- Mar 23 - [Rosie O’Donnell Questions ‘Why’ Donald Trump Won Every Swing State Considering He Is ‘Best Friends’ With a ‘Man Who Owns and Runs the Internet’: ‘I Would Hope that Would be Investigated’](https://www.yahoo.com/news/rosie-o-donnell-questions-why-200046677.html)
-- Mar 23 - [My mom died and left me 10 times as much as I expected, leaving me grateful but a little lost on how best to manage it](https://finance.yahoo.com/news/mom-died-left-10-times-200000737.html)
 <!-- feed end -->
 
 ### Onstream
