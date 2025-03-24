@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [23andMe files for Chapter 11 bankruptcy as co-founder and CEO Wojcicki resigns](https://finance.yahoo.com/news/23andme-files-chapter-11-bankruptcy-125809340.html)
-- Mar 24 - [Are you concerned about tax increases in the spring statement? Have your say](https://uk.finance.yahoo.com/news/tax-increases-spring-statement-poll-121030465.html)
-- Mar 24 - [A Palestinian American medical student objected to working alongside IDF soldiers. The university suspended her](https://www.yahoo.com/news/palestinian-american-medical-student-objected-120054732.html)
+- Mar 24 - [Bitcoin price rises but odds suggest it may have already peaked this year](https://uk.finance.yahoo.com/news/bitcoin-price-crypto-firms-higher-134846692.html)
+- Mar 24 - [U.S. relationship likely top of mind for voters this federal election, poll analyst says](https://www.yahoo.com/news/u-relationship-likely-top-mind-133705255.html)
+- Mar 24 - [Alan Jackson's health condition: What to know about this Georgia born and raised legend](https://www.yahoo.com/news/alan-jacksons-health-condition-know-131758117.html)
+- Mar 24 - [Former Intel CEO Gelsinger joins religious-oriented tech firm Gloo for AI push](https://finance.yahoo.com/news/former-intel-ceo-gelsinger-joins-120732137.html)
 - Mar 24 - [Residents urged to evacuate as wildfires burn along East Coast](https://www.yahoo.com/news/residents-urged-evacuate-wildfires-burn-111905933.html)
-- Mar 24 - [LinkedIn's Hoffman on AI, Bias, Sam Altman, Elon Musk](https://finance.yahoo.com/video/linkedins-hoffman-ai-bias-sam-110319271.html)
 <!-- feed end -->
 
 ### Onstream
