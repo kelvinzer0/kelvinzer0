@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Kremlin says key parts of original Black Sea grain deal with Ukraine were never fulfilled](https://www.yahoo.com/news/kremlin-says-key-parts-original-101741330.html)
+- Mar 24 - [I’m a Mechanic: 11 SUVs I Would Not Buy and Why They Aren’t Worth It](https://autos.yahoo.com/m-mechanic-11-suvs-never-130034769.html)
+- Mar 24 - [Mike Myers tells Canadians to 'elbow up' to Trump in new ad](https://www.yahoo.com/news/mike-myers-tells-canadians-elbow-111407865.html)
+- Mar 24 - [LinkedIn's Hoffman on AI, Bias, Sam Altman, Elon Musk](https://finance.yahoo.com/video/linkedins-hoffman-ai-bias-sam-110319271.html)
+- Mar 24 - [Scientists stunned by unexpected side effects in rivers after knocking down dams: 'The other experts in the field were also surprised'](https://www.yahoo.com/news/scientists-stunned-unexpected-side-effects-101527554.html)
 - Mar 24 - [Austria says it has uncovered a Russian-steered campaign to spread disinformation about Ukraine](https://www.yahoo.com/news/austria-says-uncovered-russian-steered-095653446.html)
-- Mar 24 - [Man shot in stomach during argument in Jacksonville](https://www.yahoo.com/news/man-shot-stomach-during-argument-095411871.html)
-- Mar 24 - [Tesla halts driving-assistance software trial in China, pending approval](https://finance.yahoo.com/news/tesla-says-release-fsd-feature-094457389.html)
-- Mar 24 - [Emergency services battle blazes after Russian strikes in Ukraine](https://www.yahoo.com/news/emergency-services-battle-blazes-russian-094242485.html)
 <!-- feed end -->
 
 ### Onstream
