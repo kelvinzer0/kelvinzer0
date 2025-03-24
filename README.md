@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [US airstrikes launched against Yemen's Houthi rebels](https://www.yahoo.com/news/us-airstrikes-launched-against-yemens-075901733.html)
-- Mar 24 - [Protests in Istanbul Following Imamoglu Arrest](https://finance.yahoo.com/video/protests-istanbul-following-imamoglu-arrest-074818225.html)
+- Mar 24 - [Austria says it has uncovered a Russian-steered campaign to spread disinformation about Ukraine](https://www.yahoo.com/news/austria-says-uncovered-russian-steered-095653446.html)
+- Mar 24 - [Attacker hits a bus stop in northern Israel, killing 1](https://www.yahoo.com/news/attacker-hits-bus-stop-northern-094432691.html)
 - Mar 24 - [United Airlines is apologizing to a mother who accused the crew of trying to make her take off her 2-year-old son's ventilator](https://www.yahoo.com/news/united-airlines-apologizing-mother-accused-073105509.html)
 - Mar 24 - ['Full-Blown Meltdown': Trump Flips Out Over A Not-Very-Flattering Official Portrait](https://www.yahoo.com/news/full-blown-meltdown-trump-flips-045320935.html)
 - Mar 24 - [Former Utah Rep. Mia Love, the first Black Republican woman elected to the US House, has died](https://www.yahoo.com/news/former-utah-rep-mia-love-025816801.html)
