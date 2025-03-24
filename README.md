@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Cain Velasquez sentenced to prison after pleading no contest to attempted murder](https://www.yahoo.com/news/cain-velasquez-gets-prison-sentence-211216517.html)
-- Mar 24 - [UFC legend Cain Velasquez sentenced to 5 years in prison for 2022 shooting](https://sports.yahoo.com/mma/article/ufc-legend-cain-velasquez-sentenced-to-5-years-in-prison-for-2022-shooting-210340719.html)
+- Mar 24 - [Three aboard missing Alaska plane found alive](https://www.yahoo.com/news/three-aboard-missing-alaska-plane-221106546.html)
+- Mar 24 - [Former Denmark Ambassador Rufus Gifford responds to VP Vance's 'not a good ally' comments](https://www.yahoo.com/news/former-denmark-ambassador-rufus-gifford-215116082.html)
 - Mar 24 - [US Postal Service chief DeJoy steps down](https://www.yahoo.com/news/us-postal-chief-dejoy-stepping-202746320.html)
-- Mar 24 - [Greenlanders Made Their Own MAGA Hat And Acronym, And It's Going Viral](https://www.yahoo.com/news/greenlanders-made-own-maga-hat-201223101.html)
 - Mar 24 - [Body camera footage is released showing scene outside Gene Hackman's home](https://www.yahoo.com/news/body-camera-footage-released-showing-193028735.html)
+- Mar 24 - [Trump’s Defense Secretary Accidentally Texted War Plans to The Atlantic: ‘I Didn’t Think It Could Be Real,’ Editor Says](https://www.yahoo.com/news/trump-defense-secretary-accidentally-texted-183229353.html)
 <!-- feed end -->
 
 ### Onstream
