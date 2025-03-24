@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [Webb Space Telescope captures a star in the making and a galaxy far, far away](https://www.yahoo.com/news/webb-space-telescope-captures-star-194157170.html)
+- Mar 24 - [Body camera footage is released showing scene outside Gene Hackman's home](https://www.yahoo.com/news/body-camera-footage-released-showing-193028735.html)
+- Mar 24 - [Could Istanbul's arrested mayor Ekrem İmamoğlu become Turkey's next president?](https://www.yahoo.com/news/could-istanbuls-arrested-mayor-ekrem-173814020.html)
 - Mar 24 - [Trump’s Defense Secretary Accidentally Texted War Plans to The Atlantic: ‘I Didn’t Think It Could Be Real,’ Editor Says](https://www.yahoo.com/news/trump-defense-secretary-accidentally-texted-183229353.html)
-- Mar 24 - [New Map Gives Stunning Look At What’s Under Antarctica’s Ice](https://www.yahoo.com/news/map-gives-stunning-look-under-181226718.html)
-- Mar 24 - [The year's first major political test in Wisconsin becomes a referendum on Elon Musk](https://www.yahoo.com/news/years-first-major-political-test-174947842.html)
-- Mar 24 - [United Nations to scale down operations in Gaza amid renewed fighting](https://www.yahoo.com/news/united-nations-scale-down-operations-173312283.html)
-- Mar 24 - [US senators push Trump administration on Russian assets, letter says](https://www.yahoo.com/news/us-senators-push-trump-administration-170900667.html)
+- Mar 24 - [Settling a loved one's estate can take up to '900 hours of effort,' expert says](https://finance.yahoo.com/news/settling-a-loved-ones-estate-can-take-up-to-900-hours-of-effort-expert-says-181341207.html)
 <!-- feed end -->
 
 ### Onstream
