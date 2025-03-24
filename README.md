@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Denmark's defense committee head said he regrets choosing the F-35: 'We must avoid American weapons if at all possible'](https://www.yahoo.com/news/denmarks-defense-committee-head-said-043056367.html)
 - Mar 24 - [Gaza's Health Ministry says Israel has struck the largest hospital in the territory's south](https://www.yahoo.com/news/gazas-health-ministry-says-israel-033713219.html)
 - Mar 24 - [Former Utah Rep. Mia Love, the first Black Republican woman elected to the US House, has died](https://www.yahoo.com/news/former-utah-rep-mia-love-025816801.html)
 - Mar 23 - [Mia Khalifa Blasts Hyper-Religious Adults: “It’s a Sign of Low Intelligence, Not Enlightenment”](https://www.yahoo.com/entertainment/mia-khalifa-blasts-hyper-religious-231532096.html)
 - Mar 23 - [Law firm targeted by Trump could have been 'destroyed,' chairman says in explaining deal with Trump](https://www.yahoo.com/news/law-firm-targeted-trump-could-230739587.html)
+- Mar 23 - [Rosie O’Donnell Questions ‘Why’ Donald Trump Won Every Swing State Considering He Is ‘Best Friends’ With a ‘Man Who Owns and Runs the Internet’: ‘I Would Hope that Would be Investigated’](https://www.yahoo.com/news/rosie-o-donnell-questions-why-200046677.html)
 <!-- feed end -->
 
 ### Onstream
