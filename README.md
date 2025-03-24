@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Israel Latest: Hamas' Top Leadership in Gaza Halved in Strikes](https://finance.yahoo.com/video/israel-latest-hamas-top-leadership-065007184.html)
-- Mar 24 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
+- Mar 24 - [US airstrikes launched against Yemen's Houthi rebels](https://www.yahoo.com/news/us-airstrikes-launched-against-yemens-075901733.html)
+- Mar 24 - [Protests in Istanbul Following Imamoglu Arrest](https://finance.yahoo.com/video/protests-istanbul-following-imamoglu-arrest-074818225.html)
+- Mar 24 - [United Airlines is apologizing to a mother who accused the crew of trying to make her take off her 2-year-old son's ventilator](https://www.yahoo.com/news/united-airlines-apologizing-mother-accused-073105509.html)
 - Mar 24 - ['Full-Blown Meltdown': Trump Flips Out Over A Not-Very-Flattering Official Portrait](https://www.yahoo.com/news/full-blown-meltdown-trump-flips-045320935.html)
 - Mar 24 - [Former Utah Rep. Mia Love, the first Black Republican woman elected to the US House, has died](https://www.yahoo.com/news/former-utah-rep-mia-love-025816801.html)
-- Mar 23 - [Mia Khalifa Blasts Hyper-Religious Adults: “It’s a Sign of Low Intelligence, Not Enlightenment”](https://www.yahoo.com/entertainment/mia-khalifa-blasts-hyper-religious-231532096.html)
 <!-- feed end -->
 
 ### Onstream
