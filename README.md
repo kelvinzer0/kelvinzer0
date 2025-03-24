@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [WFP: Conflict in DR Congo becoming regional crisis as thousands flee country](https://www.yahoo.com/news/wfp-conflict-dr-congo-becoming-204224488.html)
-- Mar 24 - [Is it cherry blossom season in New Jersey? Here's the best places to view cherry blossoms](https://www.yahoo.com/lifestyle/cherry-blossom-season-jersey-heres-203441092.html)
+- Mar 24 - [Cain Velasquez sentenced to prison after pleading no contest to attempted murder](https://www.yahoo.com/news/cain-velasquez-gets-prison-sentence-211216517.html)
+- Mar 24 - [UFC legend Cain Velasquez sentenced to 5 years in prison for 2022 shooting](https://sports.yahoo.com/mma/article/ufc-legend-cain-velasquez-sentenced-to-5-years-in-prison-for-2022-shooting-210340719.html)
+- Mar 24 - [US Postal Service chief DeJoy steps down](https://www.yahoo.com/news/us-postal-chief-dejoy-stepping-202746320.html)
+- Mar 24 - [Greenlanders Made Their Own MAGA Hat And Acronym, And It's Going Viral](https://www.yahoo.com/news/greenlanders-made-own-maga-hat-201223101.html)
 - Mar 24 - [Body camera footage is released showing scene outside Gene Hackman's home](https://www.yahoo.com/news/body-camera-footage-released-showing-193028735.html)
-- Mar 24 - [Could Istanbul's arrested mayor Ekrem İmamoğlu become Turkey's next president?](https://www.yahoo.com/news/could-istanbuls-arrested-mayor-ekrem-173814020.html)
-- Mar 24 - [Trump’s Defense Secretary Accidentally Texted War Plans to The Atlantic: ‘I Didn’t Think It Could Be Real,’ Editor Says](https://www.yahoo.com/news/trump-defense-secretary-accidentally-texted-183229353.html)
 <!-- feed end -->
 
 ### Onstream
