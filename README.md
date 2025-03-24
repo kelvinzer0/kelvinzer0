@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [In Buenos Aires' poor neighborhoods, residents recall beers and chats with Pope Francis](https://www.yahoo.com/news/buenos-aires-poor-neighborhoods-residents-160701548.html)
+- Mar 24 - [Trump administration asks Supreme Court to allow mass firings of probationary workers](https://www.yahoo.com/news/trump-administration-asks-supreme-court-165025785.html)
+- Mar 24 - [‘The View’ Host Whoopi Goldberg Gives Blunt Warning About Trump’s Deportations: ‘Next One They Take Could Be You’](https://www.yahoo.com/news/view-host-whoopi-goldberg-gives-163402435.html)
+- Mar 24 - [Why anger has shifted from Trump's overreach to the Democrats' disunity and apathy](https://www.yahoo.com/news/why-anger-shifted-trumps-overreach-162407674.html)
+- Mar 24 - [Joanna Lumley joins stars in calling on ferry firm to reverse plan to resume live animal exports](https://www.yahoo.com/news/joanna-lumley-joins-stars-calling-162317101.html)
 - Mar 24 - [New Map Gives Stunning Look At What’s Under Antarctica’s Ice](https://www.yahoo.com/news/map-gives-stunning-look-under-160629587.html)
-- Mar 24 - [Massachusetts man arrested after elderly woman robbed of winnings at Bally's](https://www.yahoo.com/news/massachusetts-man-arrested-elderly-woman-160141355.html)
-- Mar 24 - ['Very weak case': Ex-ICE lawyer reacts to arguments over Trump deportation flights](https://www.yahoo.com/news/very-weak-case-ex-ice-154639415.html)
-- Mar 24 - [How new documentary "Putin's Endgame" explores fears beyond Ukraine's borders](https://www.yahoo.com/news/documentary-putins-endgame-explores-fears-150457556.html)
 <!-- feed end -->
 
 ### Onstream
