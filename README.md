@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [GoAERO CEO Gwen Lighter on how the company could transform the future of rescue operations.](https://www.yahoo.com/news/goaero-ceo-gwen-lighter-company-150539471.html)
+- Mar 24 - [In Buenos Aires' poor neighborhoods, residents recall beers and chats with Pope Francis](https://www.yahoo.com/news/buenos-aires-poor-neighborhoods-residents-160701548.html)
+- Mar 24 - [New Map Gives Stunning Look At What’s Under Antarctica’s Ice](https://www.yahoo.com/news/map-gives-stunning-look-under-160629587.html)
+- Mar 24 - [Massachusetts man arrested after elderly woman robbed of winnings at Bally's](https://www.yahoo.com/news/massachusetts-man-arrested-elderly-woman-160141355.html)
+- Mar 24 - ['Very weak case': Ex-ICE lawyer reacts to arguments over Trump deportation flights](https://www.yahoo.com/news/very-weak-case-ex-ice-154639415.html)
 - Mar 24 - [How new documentary "Putin's Endgame" explores fears beyond Ukraine's borders](https://www.yahoo.com/news/documentary-putins-endgame-explores-fears-150457556.html)
-- Mar 24 - [Almost 7 Years Ago, Elon Musk Announced He'd Turn Tunnel Dirt Into 'Bricks For Low-Cost Housing.' Another One Of His Ideas That Fizzled Out?](https://finance.yahoo.com/news/almost-7-years-ago-elon-145526694.html)
-- Mar 24 - [Trump world cheers markets with talk of narrowing April 2 tariffs to the 'dirty 15'](https://finance.yahoo.com/news/trump-world-cheers-markets-with-talk-of-narrowing-april-2-tariffs-to-the-dirty-15-142232090.html)
-- Mar 24 - [CNN's Kaitlan Collins: Donald Trump 'Doesn't Really Do Much In The Morning'](https://www.yahoo.com/news/cnns-kaitlan-collins-donald-trump-132437407.html)
 <!-- feed end -->
 
 ### Onstream
