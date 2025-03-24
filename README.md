@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Bitcoin price rises but odds suggest it may have already peaked this year](https://uk.finance.yahoo.com/news/bitcoin-price-crypto-firms-higher-134846692.html)
-- Mar 24 - [U.S. relationship likely top of mind for voters this federal election, poll analyst says](https://www.yahoo.com/news/u-relationship-likely-top-mind-133705255.html)
-- Mar 24 - [Alan Jackson's health condition: What to know about this Georgia born and raised legend](https://www.yahoo.com/news/alan-jacksons-health-condition-know-131758117.html)
-- Mar 24 - [Former Intel CEO Gelsinger joins religious-oriented tech firm Gloo for AI push](https://finance.yahoo.com/news/former-intel-ceo-gelsinger-joins-120732137.html)
-- Mar 24 - [Residents urged to evacuate as wildfires burn along East Coast](https://www.yahoo.com/news/residents-urged-evacuate-wildfires-burn-111905933.html)
+- Mar 24 - [GoAERO CEO Gwen Lighter on how the company could transform the future of rescue operations.](https://www.yahoo.com/news/goaero-ceo-gwen-lighter-company-150539471.html)
+- Mar 24 - [How new documentary "Putin's Endgame" explores fears beyond Ukraine's borders](https://www.yahoo.com/news/documentary-putins-endgame-explores-fears-150457556.html)
+- Mar 24 - [Almost 7 Years Ago, Elon Musk Announced He'd Turn Tunnel Dirt Into 'Bricks For Low-Cost Housing.' Another One Of His Ideas That Fizzled Out?](https://finance.yahoo.com/news/almost-7-years-ago-elon-145526694.html)
+- Mar 24 - [Trump world cheers markets with talk of narrowing April 2 tariffs to the 'dirty 15'](https://finance.yahoo.com/news/trump-world-cheers-markets-with-talk-of-narrowing-april-2-tariffs-to-the-dirty-15-142232090.html)
+- Mar 24 - [CNN's Kaitlan Collins: Donald Trump 'Doesn't Really Do Much In The Morning'](https://www.yahoo.com/news/cnns-kaitlan-collins-donald-trump-132437407.html)
 <!-- feed end -->
 
 ### Onstream
