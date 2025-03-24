@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [Trump’s Defense Secretary Accidentally Texted War Plans to The Atlantic: ‘I Didn’t Think It Could Be Real,’ Editor Says](https://www.yahoo.com/news/trump-defense-secretary-accidentally-texted-183229353.html)
 - Mar 24 - [New Map Gives Stunning Look At What’s Under Antarctica’s Ice](https://www.yahoo.com/news/map-gives-stunning-look-under-181226718.html)
-- Mar 24 - [Shocking figures reveal UK spends twice as much on working age benefits than defence](https://www.yahoo.com/news/shocking-figures-reveal-uk-spends-175110210.html)
 - Mar 24 - [The year's first major political test in Wisconsin becomes a referendum on Elon Musk](https://www.yahoo.com/news/years-first-major-political-test-174947842.html)
 - Mar 24 - [United Nations to scale down operations in Gaza amid renewed fighting](https://www.yahoo.com/news/united-nations-scale-down-operations-173312283.html)
-- Mar 24 - [Popular brewery closes Wayne County location with 'extreme sadness and heavy heart'](https://www.yahoo.com/news/popular-brewery-closes-wayne-county-172226908.html)
+- Mar 24 - [US senators push Trump administration on Russian assets, letter says](https://www.yahoo.com/news/us-senators-push-trump-administration-170900667.html)
 <!-- feed end -->
 
 ### Onstream
