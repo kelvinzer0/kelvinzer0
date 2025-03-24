@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [Kremlin says key parts of original Black Sea grain deal with Ukraine were never fulfilled](https://www.yahoo.com/news/kremlin-says-key-parts-original-101741330.html)
 - Mar 24 - [Austria says it has uncovered a Russian-steered campaign to spread disinformation about Ukraine](https://www.yahoo.com/news/austria-says-uncovered-russian-steered-095653446.html)
-- Mar 24 - [Attacker hits a bus stop in northern Israel, killing 1](https://www.yahoo.com/news/attacker-hits-bus-stop-northern-094432691.html)
-- Mar 24 - [United Airlines is apologizing to a mother who accused the crew of trying to make her take off her 2-year-old son's ventilator](https://www.yahoo.com/news/united-airlines-apologizing-mother-accused-073105509.html)
-- Mar 24 - ['Full-Blown Meltdown': Trump Flips Out Over A Not-Very-Flattering Official Portrait](https://www.yahoo.com/news/full-blown-meltdown-trump-flips-045320935.html)
-- Mar 24 - [Former Utah Rep. Mia Love, the first Black Republican woman elected to the US House, has died](https://www.yahoo.com/news/former-utah-rep-mia-love-025816801.html)
+- Mar 24 - [Man shot in stomach during argument in Jacksonville](https://www.yahoo.com/news/man-shot-stomach-during-argument-095411871.html)
+- Mar 24 - [Tesla halts driving-assistance software trial in China, pending approval](https://finance.yahoo.com/news/tesla-says-release-fsd-feature-094457389.html)
+- Mar 24 - [Emergency services battle blazes after Russian strikes in Ukraine](https://www.yahoo.com/news/emergency-services-battle-blazes-russian-094242485.html)
 <!-- feed end -->
 
 ### Onstream
