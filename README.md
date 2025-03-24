@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [Georgia jury orders Monsanto parent to pay nearly $2.1 billion in Roundup weedkiller lawsuit](https://www.yahoo.com/news/georgia-jury-orders-monsanto-parent-042213546.html)
+- Mar 24 - [Wordle hints today for #1,374: Clues and answer for Monday, March 24](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1374-clues-and-answer-for-monday-march-24-040111433.html)
 - Mar 24 - [Gaza's Health Ministry says Israel has struck the largest hospital in the territory's south](https://www.yahoo.com/news/gazas-health-ministry-says-israel-033713219.html)
+- Mar 24 - [Former Utah Rep. Mia Love, the first Black Republican woman elected to the US House, has died](https://www.yahoo.com/news/former-utah-rep-mia-love-025816801.html)
 - Mar 23 - [Mia Khalifa Blasts Hyper-Religious Adults: “It’s a Sign of Low Intelligence, Not Enlightenment”](https://www.yahoo.com/entertainment/mia-khalifa-blasts-hyper-religious-231532096.html)
-- Mar 23 - [Law firm targeted by Trump could have been 'destroyed,' chairman says in explaining deal with Trump](https://www.yahoo.com/news/law-firm-targeted-trump-could-230739587.html)
-- Mar 23 - [Trump reveals who he thinks killed JFK after releasing assassination investigation files](https://www.yahoo.com/news/trump-reveals-thinks-killed-jfk-210156015.html)
-- Mar 23 - [‘Chilling effect on free speech:’ Trump wants green card applicants already legally in the US to hand over social media profiles](https://www.yahoo.com/news/chilling-effect-free-speech-trump-210013309.html)
 <!-- feed end -->
 
 ### Onstream
