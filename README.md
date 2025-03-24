@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [I’m a Mechanic: 11 SUVs I Would Not Buy and Why They Aren’t Worth It](https://autos.yahoo.com/m-mechanic-11-suvs-never-130034769.html)
-- Mar 24 - [Mike Myers tells Canadians to 'elbow up' to Trump in new ad](https://www.yahoo.com/news/mike-myers-tells-canadians-elbow-111407865.html)
+- Mar 24 - [23andMe files for Chapter 11 bankruptcy as co-founder and CEO Wojcicki resigns](https://finance.yahoo.com/news/23andme-files-chapter-11-bankruptcy-125809340.html)
+- Mar 24 - [Are you concerned about tax increases in the spring statement? Have your say](https://uk.finance.yahoo.com/news/tax-increases-spring-statement-poll-121030465.html)
+- Mar 24 - [A Palestinian American medical student objected to working alongside IDF soldiers. The university suspended her](https://www.yahoo.com/news/palestinian-american-medical-student-objected-120054732.html)
+- Mar 24 - [Residents urged to evacuate as wildfires burn along East Coast](https://www.yahoo.com/news/residents-urged-evacuate-wildfires-burn-111905933.html)
 - Mar 24 - [LinkedIn's Hoffman on AI, Bias, Sam Altman, Elon Musk](https://finance.yahoo.com/video/linkedins-hoffman-ai-bias-sam-110319271.html)
-- Mar 24 - [Scientists stunned by unexpected side effects in rivers after knocking down dams: 'The other experts in the field were also surprised'](https://www.yahoo.com/news/scientists-stunned-unexpected-side-effects-101527554.html)
-- Mar 24 - [Austria says it has uncovered a Russian-steered campaign to spread disinformation about Ukraine](https://www.yahoo.com/news/austria-says-uncovered-russian-steered-095653446.html)
 <!-- feed end -->
 
 ### Onstream
