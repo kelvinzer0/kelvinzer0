@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 25 - [Could Istanbul's arrested mayor Ekrem İmamoğlu become Turkey's next president?](https://www.yahoo.com/news/could-istanbuls-arrested-mayor-ekrem-173814020.html)
+- Mar 25 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
 - Mar 25 - [As the Carolinas burn, Homeland Security head Kristie Noem says Trump administration is going to ‘eliminate’ FEMA](https://www.yahoo.com/news/carolinas-burn-homeland-security-head-043814922.html)
 - Mar 25 - ['We want justice': Another woman killed during conjugal visit with murderer | Banfield](https://www.yahoo.com/news/want-justice-another-woman-killed-030500903.html)
 - Mar 25 - [Fox’s Brit Hume on Hegseth’s response to war plans texts: ‘Oh for God’s sake’](https://www.yahoo.com/news/fox-brit-hume-hegseth-response-010158070.html)
-- Mar 24 - [Waltz’s future in doubt following accidental war plan leak](https://www.yahoo.com/news/waltz-future-doubt-following-accidental-232521257.html)
-- Mar 24 - [After Trump Demanded A "Full Throated Apology" From The Governor Of Maine, People Are Calling Him Out On His "Tantrum"](https://www.yahoo.com/news/trump-demanded-full-throated-apology-224419582.html)
 <!-- feed end -->
 
 ### Onstream
