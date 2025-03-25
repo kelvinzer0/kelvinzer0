@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - ['How could I do that to my wife?' Man stands trial in wife's killing](https://www.yahoo.com/news/could-wife-man-stands-trial-133646235.html)
-- Mar 25 - [Doctor treating Pope Francis says team considered ending treatment so he could die](https://www.yahoo.com/news/doctor-treating-pope-francis-says-130327488.html)
-- Mar 25 - [Mortgage and refinance rates today, March 25, 2025: Rates increase to kick off home-buying season](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-march-25-2025-100054648.html)
-- Mar 25 - [Russia says it will sign Black Sea deal if US gives 'order' to Zelenskiy](https://www.yahoo.com/news/russia-us-studying-outcome-talks-094338191.html)
-- Mar 25 - [Boeing, Northrop Grumman await US Navy next-generation fighter contract this week, sources say](https://www.yahoo.com/news/boeing-northrop-grumman-await-us-090146355.html)
+- Mar 25 - [Moscow outraged at Time image of Zelensky in front of burning Kremlin](https://www.yahoo.com/news/moscow-outraged-time-image-zelensky-133825351.html)
+- Mar 25 - [Grandparents arrested for murder of French toddler who disappeared from their garden](https://www.yahoo.com/news/grandparents-arrested-murder-french-toddler-133035787.html)
+- Mar 25 - [Video Shows Elon Musk Acting Very Strange at Trump Dinner](https://www.yahoo.com/entertainment/video-shows-elon-musk-acting-130521635.html)
+- Mar 25 - [Dave Ramsey Offers Some Hard Truths About Medicare Every Retiree Should Know](https://finance.yahoo.com/news/dave-ramsey-offers-hard-truths-140027321.html)
+- Mar 25 - [New analysis sounds alarm as dangerous trifecta creeps closer to US homes — and it could cost trillions in damage](https://www.yahoo.com/news/analysis-sounds-alarm-dangerous-trifecta-113012793.html)
 <!-- feed end -->
 
 ### Onstream
