@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [China frees five Mintz Group employees detained for two years](https://www.yahoo.com/news/china-frees-five-mintz-group-122025014.html)
-- Mar 25 - [Hundreds evacuate in Japan after new wildfires break out](https://www.yahoo.com/news/hundreds-evacuate-japan-wildfires-break-122708552.html)
+- Mar 25 - ['How could I do that to my wife?' Man stands trial in wife's killing](https://www.yahoo.com/news/could-wife-man-stands-trial-133646235.html)
+- Mar 25 - [Doctor treating Pope Francis says team considered ending treatment so he could die](https://www.yahoo.com/news/doctor-treating-pope-francis-says-130327488.html)
+- Mar 25 - [Mortgage and refinance rates today, March 25, 2025: Rates increase to kick off home-buying season](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-march-25-2025-100054648.html)
 - Mar 25 - [Russia says it will sign Black Sea deal if US gives 'order' to Zelenskiy](https://www.yahoo.com/news/russia-us-studying-outcome-talks-094338191.html)
 - Mar 25 - [Boeing, Northrop Grumman await US Navy next-generation fighter contract this week, sources say](https://www.yahoo.com/news/boeing-northrop-grumman-await-us-090146355.html)
-- Mar 25 - ['Zombie drug' smuggled across southern border a growing threat to Americans, doctor warns](https://www.yahoo.com/news/zombie-drug-smuggled-across-southern-080021764.html)
 <!-- feed end -->
 
 ### Onstream
