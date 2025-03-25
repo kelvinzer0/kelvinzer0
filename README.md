@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 25 - [Could Istanbul's arrested mayor Ekrem İmamoğlu become Turkey's next president?](https://www.yahoo.com/news/could-istanbuls-arrested-mayor-ekrem-173814020.html)
 - Mar 25 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
+- Mar 25 - [Australia air force pilots also heard Chinese navy live-fire warning on radio](https://www.yahoo.com/news/australia-air-force-pilots-heard-050707359.html)
 - Mar 25 - [As the Carolinas burn, Homeland Security head Kristie Noem says Trump administration is going to ‘eliminate’ FEMA](https://www.yahoo.com/news/carolinas-burn-homeland-security-head-043814922.html)
-- Mar 25 - ['We want justice': Another woman killed during conjugal visit with murderer | Banfield](https://www.yahoo.com/news/want-justice-another-woman-killed-030500903.html)
-- Mar 25 - [Fox’s Brit Hume on Hegseth’s response to war plans texts: ‘Oh for God’s sake’](https://www.yahoo.com/news/fox-brit-hume-hegseth-response-010158070.html)
+- Mar 25 - [International students weigh new risks of pursuing higher education in the US under Trump](https://www.yahoo.com/news/international-students-weigh-risks-pursuing-041442304.html)
 <!-- feed end -->
 
 ### Onstream
