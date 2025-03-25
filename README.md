@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Bitcoin to close Q1 in the red, but 'peaks coming later' in 2025](https://finance.yahoo.com/video/bitcoin-close-q1-red-peaks-185459173.html)
-- Mar 25 - [Taiwan’s Endeavor Manta Drone Boat Breaks Cover](https://www.yahoo.com/news/taiwan-endeavor-manta-drone-boat-175522291.html)
-- Mar 25 - [North Korea's tallest building is an abandoned hotel that has never hosted a single guest. Take a closer look at the 'Hotel of Doom.'](https://www.yahoo.com/news/north-koreas-tallest-building-abandoned-162020783.html)
-- Mar 25 - [Russia says food and fertiliser sanctions must be lifted for Black Sea deal](https://www.yahoo.com/news/russia-agreed-ensure-safe-navigation-164945854.html)
-- Mar 25 - [CIA Director Flails When Asked Who Added a Reporter to the Group Chat](https://www.yahoo.com/news/cia-director-flails-asked-added-164619410.html)
+- Mar 25 - [Mike Johnson Has Terrifying Threat for Courts That Rule Against Trump](https://www.yahoo.com/news/mike-johnson-terrifying-threat-courts-192743259.html)
+- Mar 25 - [Texas Rep. Jasmine Crockett mocks wheelchair-bound Greg Abbott as 'Gov. Hot Wheels'](https://www.yahoo.com/news/texas-rep-jasmine-crockett-mocks-191741726.html)
+- Mar 25 - [Trump signs executive order against law firm Jenner & Block](https://finance.yahoo.com/news/trump-signs-executive-order-against-190149575.html)
+- Mar 25 - [Greenlander’s Hilarious Anti-MAGA Hat Goes Viral Because Lots Of People Want It](https://www.yahoo.com/news/greenlander-hilarious-anti-maga-hat-185406224.html)
+- Mar 25 - [Tesla bull Cathie Wood says it isn’t just Elon Musk’s politics that are causing Tesla’s ‘demand hit.’ It’s also a bad economy](https://finance.yahoo.com/news/tesla-bull-cathie-wood-says-170209831.html)
 <!-- feed end -->
 
 ### Onstream
