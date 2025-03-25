@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [This Retail Giant's Stock Is an Absolute Bargain. It's Cheaper Than Walmart and Costco.](https://finance.yahoo.com/news/retail-giants-stock-absolute-bargain-094200609.html)
-- Mar 25 - [Could Istanbul's arrested mayor Ekrem İmamoğlu become Turkey's next president?](https://www.yahoo.com/news/could-istanbuls-arrested-mayor-ekrem-173814020.html)
+- Mar 25 - [A Stock Market Indicator Seen Only Twice Since 2009 Is Flashing. History Says This Will Happen Next.](https://finance.yahoo.com/news/stock-market-indicator-seen-only-075500403.html)
 - Mar 25 - [‘It’s quite embarrassing’: China-bound United flight turns around after pilot forgets passport](https://www.yahoo.com/news/plane-turns-around-pilot-forgets-203805596.html)
 - Mar 25 - [Australia air force pilots also heard Chinese navy live-fire warning on radio](https://www.yahoo.com/news/australia-air-force-pilots-heard-050707359.html)
 - Mar 25 - [As the Carolinas burn, Homeland Security head Kristie Noem says Trump administration is going to ‘eliminate’ FEMA](https://www.yahoo.com/news/carolinas-burn-homeland-security-head-043814922.html)
+- Mar 25 - [Abandoned construction projects in Central Florida raise number of concerns: FOX 35 Investigates](https://www.yahoo.com/news/abandoned-construction-projects-central-florida-032057992.html)
 <!-- feed end -->
 
 ### Onstream
