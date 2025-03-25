@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Boeing production of Patriot component hits record](https://www.yahoo.com/news/boeing-production-patriot-component-hits-160235088.html)
-- Mar 25 - [CIA Director insists war plan group chat contained no classified information](https://www.yahoo.com/news/cia-director-insists-war-plan-153824770.html)
-- Mar 25 - [Pope Francis' doctors considered stopping treatment to 'let him go' after serious breathing crisis](https://www.yahoo.com/news/pope-francis-doctors-considered-stopping-153033736.html)
-- Mar 25 - [Grandparents arrested for murder of French toddler who disappeared from their garden](https://www.yahoo.com/news/grandparents-arrested-murder-french-toddler-133035787.html)
-- Mar 25 - [Moscow outraged at Time image of Zelensky in front of burning Kremlin](https://www.yahoo.com/news/moscow-outraged-time-image-zelensky-133825351.html)
+- Mar 25 - [Bitcoin to close Q1 in the red, but 'peaks coming later' in 2025](https://finance.yahoo.com/video/bitcoin-close-q1-red-peaks-185459173.html)
+- Mar 25 - [Taiwan’s Endeavor Manta Drone Boat Breaks Cover](https://www.yahoo.com/news/taiwan-endeavor-manta-drone-boat-175522291.html)
+- Mar 25 - [North Korea's tallest building is an abandoned hotel that has never hosted a single guest. Take a closer look at the 'Hotel of Doom.'](https://www.yahoo.com/news/north-koreas-tallest-building-abandoned-162020783.html)
+- Mar 25 - [Russia says food and fertiliser sanctions must be lifted for Black Sea deal](https://www.yahoo.com/news/russia-agreed-ensure-safe-navigation-164945854.html)
+- Mar 25 - [CIA Director Flails When Asked Who Added a Reporter to the Group Chat](https://www.yahoo.com/news/cia-director-flails-asked-added-164619410.html)
 <!-- feed end -->
 
 ### Onstream
