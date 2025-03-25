@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - ['We see your pretty wife': Gilbert woman accused of sending threatening letters to couple](https://www.yahoo.com/news/see-pretty-wife-gilbert-woman-012522220.html)
 - Mar 24 - [Waltz’s future in doubt following accidental war plan leak](https://www.yahoo.com/news/waltz-future-doubt-following-accidental-232521257.html)
 - Mar 24 - [Preliminary Cause of Death Revealed for Son of Yankees’ Brett Gardner](https://www.yahoo.com/news/preliminary-cause-death-revealed-son-225700283.html)
 - Mar 24 - [After Trump Demanded A "Full Throated Apology" From The Governor Of Maine, People Are Calling Him Out On His "Tantrum"](https://www.yahoo.com/news/trump-demanded-full-throated-apology-224419582.html)
 - Mar 24 - ['Absolutely gutted': Cain Velasquez's prison verdict ignites outrage, condemnation across MMA](https://sports.yahoo.com/article/absolutely-gutted-cain-velasquezs-prison-220720456.html)
+- Mar 24 - [AT&T (T) Stock Sinks As Market Gains: Here's Why](https://finance.yahoo.com/news/t-t-stock-sinks-market-214516733.html)
 <!-- feed end -->
 
 ### Onstream
