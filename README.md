@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Three aboard missing Alaska plane found alive](https://www.yahoo.com/news/three-aboard-missing-alaska-plane-221106546.html)
-- Mar 24 - [Former Denmark Ambassador Rufus Gifford responds to VP Vance's 'not a good ally' comments](https://www.yahoo.com/news/former-denmark-ambassador-rufus-gifford-215116082.html)
-- Mar 24 - [US Postal Service chief DeJoy steps down](https://www.yahoo.com/news/us-postal-chief-dejoy-stepping-202746320.html)
-- Mar 24 - [Body camera footage is released showing scene outside Gene Hackman's home](https://www.yahoo.com/news/body-camera-footage-released-showing-193028735.html)
-- Mar 24 - [Trump’s Defense Secretary Accidentally Texted War Plans to The Atlantic: ‘I Didn’t Think It Could Be Real,’ Editor Says](https://www.yahoo.com/news/trump-defense-secretary-accidentally-texted-183229353.html)
+- Mar 25 - ['We see your pretty wife': Gilbert woman accused of sending threatening letters to couple](https://www.yahoo.com/news/see-pretty-wife-gilbert-woman-012522220.html)
+- Mar 24 - [Waltz’s future in doubt following accidental war plan leak](https://www.yahoo.com/news/waltz-future-doubt-following-accidental-232521257.html)
+- Mar 24 - [Preliminary Cause of Death Revealed for Son of Yankees’ Brett Gardner](https://www.yahoo.com/news/preliminary-cause-death-revealed-son-225700283.html)
+- Mar 24 - [After Trump Demanded A "Full Throated Apology" From The Governor Of Maine, People Are Calling Him Out On His "Tantrum"](https://www.yahoo.com/news/trump-demanded-full-throated-apology-224419582.html)
+- Mar 24 - ['Absolutely gutted': Cain Velasquez's prison verdict ignites outrage, condemnation across MMA](https://sports.yahoo.com/article/absolutely-gutted-cain-velasquezs-prison-220720456.html)
 <!-- feed end -->
 
 ### Onstream
