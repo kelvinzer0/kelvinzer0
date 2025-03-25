@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Transgender Americans sue to block Trump's passport policy change that doesn't recognize "X" gender](https://www.yahoo.com/news/transgender-americans-sue-block-trumps-040205500.html)
+- Mar 25 - ['We want justice': Another woman killed during conjugal visit with murderer | Banfield](https://www.yahoo.com/news/want-justice-another-woman-killed-030500903.html)
+- Mar 25 - [Fox’s Brit Hume on Hegseth’s response to war plans texts: ‘Oh for God’s sake’](https://www.yahoo.com/news/fox-brit-hume-hegseth-response-010158070.html)
 - Mar 24 - [San Diego passes first-in-the-nation policy to ban digital-only coupons at grocery stores](https://www.yahoo.com/news/san-diego-passes-first-nation-234050748.html)
+- Mar 24 - [Waltz’s future in doubt following accidental war plan leak](https://www.yahoo.com/news/waltz-future-doubt-following-accidental-232521257.html)
 - Mar 24 - [Preliminary Cause of Death Revealed for Son of Yankees’ Brett Gardner](https://www.yahoo.com/news/preliminary-cause-death-revealed-son-225700283.html)
-- Mar 24 - [Exclusive-Quantum computing startup PsiQuantum raising at least $750 million, sources say](https://finance.yahoo.com/news/exclusive-quantum-computing-startup-psiquantum-225331626.html)
-- Mar 24 - [After Trump Demanded A "Full Throated Apology" From The Governor Of Maine, People Are Calling Him Out On His "Tantrum"](https://www.yahoo.com/news/trump-demanded-full-throated-apology-224419582.html)
 <!-- feed end -->
 
 ### Onstream
