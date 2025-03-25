@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Where Will Energy Transfer Be in 3 Years?](https://finance.yahoo.com/news/where-energy-transfer-3-years-082200070.html)
+- Mar 25 - [This Retail Giant's Stock Is an Absolute Bargain. It's Cheaper Than Walmart and Costco.](https://finance.yahoo.com/news/retail-giants-stock-absolute-bargain-094200609.html)
 - Mar 25 - [Could Istanbul's arrested mayor Ekrem İmamoğlu become Turkey's next president?](https://www.yahoo.com/news/could-istanbuls-arrested-mayor-ekrem-173814020.html)
+- Mar 25 - [‘It’s quite embarrassing’: China-bound United flight turns around after pilot forgets passport](https://www.yahoo.com/news/plane-turns-around-pilot-forgets-203805596.html)
+- Mar 25 - [Australia air force pilots also heard Chinese navy live-fire warning on radio](https://www.yahoo.com/news/australia-air-force-pilots-heard-050707359.html)
 - Mar 25 - [As the Carolinas burn, Homeland Security head Kristie Noem says Trump administration is going to ‘eliminate’ FEMA](https://www.yahoo.com/news/carolinas-burn-homeland-security-head-043814922.html)
-- Mar 25 - ['We want justice': Another woman killed during conjugal visit with murderer | Banfield](https://www.yahoo.com/news/want-justice-another-woman-killed-030500903.html)
-- Mar 25 - [Cleveland car dealership to be demolished after arson; investigators seek public’s help](https://www.yahoo.com/news/cleveland-car-dealership-demolished-arson-020936348.html)
 <!-- feed end -->
 
 ### Onstream
