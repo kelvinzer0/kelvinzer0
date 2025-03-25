@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Factbox-What to know about Signal messaging app used by Trump aides to share war plans](https://finance.yahoo.com/news/factbox-know-signal-messaging-app-121418905.html)
-- Mar 25 - [How to check for testicular cancer as Chris Stark ‘feels like an idiot’ for not spotting signs](https://www.yahoo.com/lifestyle/testicular-cancer-signs-symptoms-how-check-chris-stark-115841843.html)
+- Mar 25 - [China frees five Mintz Group employees detained for two years](https://www.yahoo.com/news/china-frees-five-mintz-group-122025014.html)
+- Mar 25 - [Hundreds evacuate in Japan after new wildfires break out](https://www.yahoo.com/news/hundreds-evacuate-japan-wildfires-break-122708552.html)
+- Mar 25 - [Russia says it will sign Black Sea deal if US gives 'order' to Zelenskiy](https://www.yahoo.com/news/russia-us-studying-outcome-talks-094338191.html)
+- Mar 25 - [Boeing, Northrop Grumman await US Navy next-generation fighter contract this week, sources say](https://www.yahoo.com/news/boeing-northrop-grumman-await-us-090146355.html)
 - Mar 25 - ['Zombie drug' smuggled across southern border a growing threat to Americans, doctor warns](https://www.yahoo.com/news/zombie-drug-smuggled-across-southern-080021764.html)
-- Mar 25 - [A Stock Market Indicator Seen Only Twice Since 2009 Is Flashing. History Says This Will Happen Next.](https://finance.yahoo.com/news/stock-market-indicator-seen-only-075500403.html)
-- Mar 25 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
 <!-- feed end -->
 
 ### Onstream
