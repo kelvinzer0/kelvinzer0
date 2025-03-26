@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Supreme Court upholds Biden rule requiring serial numbers and background checks for ghost guns](https://www.yahoo.com/news/supreme-court-upholds-biden-rule-141359438.html)
+- Mar 26 - [Rivian Spins Off 'Micromobility' Small-EV Startup](https://finance.yahoo.com/video/rivian-spins-off-micromobility-small-140752327.html)
+- Mar 26 - [Analyst Explains Why His Firm Has Sold Its Entire Nvidia (NVDA) Position](https://finance.yahoo.com/news/analyst-explains-why-firm-sold-140313524.html)
+- Mar 26 - [EU says 'unconditional withdrawal' of Russia from Ukraine is a precondition to amend sanctions](https://www.yahoo.com/news/eu-says-unconditional-withdrawal-russia-121445409.html)
 - Mar 26 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
-- Mar 26 - [Russia hands long prison terms to Ukrainian 'Azov' fighters who defended Mariupol](https://www.yahoo.com/news/russia-hands-long-prison-terms-113455053.html)
-- Mar 26 - [Delete personal 23andMe data, privacy experts urge users](https://finance.yahoo.com/news/delete-personal-23andme-data-privacy-111110955.html)
-- Mar 26 - [Change in itinerary for US Vice President JD Vance brings cautious relief for Greenland and Denmark](https://www.yahoo.com/news/change-itinerary-us-vice-president-104424974.html)
-- Mar 26 - ['There is no blank check': Syrian leader told to rein in jihadis](https://www.yahoo.com/news/no-blank-check-syrian-leader-101345262.html)
 <!-- feed end -->
 
 ### Onstream
