@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Argument leads to deadly shooting in east Charlotte, CMPD says](https://www.yahoo.com/news/cmpd-investigating-homicide-east-charlotte-032448215.html)
+- Mar 26 - [Musk is back in the building — the Tesla one: Morning Brief](https://finance.yahoo.com/news/musk-is-back-in-the-building--the-tesla-one-morning-brief-100043363.html)
+- Mar 26 - [This 7.7%-Yielding Dividend Stock Has Maintained Its Payment for 24 Quarters in a Row. Can That Streak Continue in 2025?](https://finance.yahoo.com/news/7-7-yielding-dividend-stock-083000532.html)
 - Mar 26 - [‘HAHAHAHA!’: Marjorie Taylor Greene Accidentally Defies Trump With Hilarious Self-Own](https://www.yahoo.com/news/hahahaha-marjorie-taylor-greene-accidentally-065545978.html)
-- Mar 26 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
-- Mar 25 - [Tragedy rocks Texas sheriff’s office after four deputies die by suicide in six weeks: ‘It caught a lot of us by surprise’](https://www.yahoo.com/news/tragedy-rocks-texas-sheriff-office-234031995.html)
-- Mar 25 - [Pro-Russian leader of Moldovan ethnic minority detained](https://www.yahoo.com/news/pro-russian-leader-moldovan-ethnic-232229001.html)
-- Mar 25 - ["Take Your Tourism Somewhere Else": Americans Are Reacting To Countries Heightening Their Travel Guidelines For Citizens Traveling To The US](https://www.yahoo.com/news/countries-updated-travel-advisories-those-220610973.html)
+- Mar 26 - [Bitcoin's Price Recovery Runs Into a Bearish Double Top Pattern, What Next for XRP, SOL, DOGE?](https://finance.yahoo.com/news/bitcoins-price-recovery-runs-bearish-063111726.html)
 <!-- feed end -->
 
 ### Onstream
