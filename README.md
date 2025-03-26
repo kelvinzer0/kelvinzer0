@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [4 American soldiers are missing from a training area near Lithuania's capital, the US military says](https://www.yahoo.com/news/4-american-soldiers-missing-training-142913628.html)
+- Mar 26 - [Why Gutting USAID Will Hurt America](https://www.yahoo.com/entertainment/why-gutting-usaid-hurt-america-160000415.html)
 - Mar 26 - [Vance and his wife appease Denmark with change to Greenland visit plans](https://www.yahoo.com/news/vance-wife-appease-denmark-change-125526747.html)
 - Mar 26 - [EU says 'unconditional withdrawal' of Russia from Ukraine is a precondition to amend sanctions](https://www.yahoo.com/news/eu-says-unconditional-withdrawal-russia-121445409.html)
 - Mar 26 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
