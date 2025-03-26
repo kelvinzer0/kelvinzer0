@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Why Gutting USAID Will Hurt America](https://www.yahoo.com/entertainment/why-gutting-usaid-hurt-america-160000415.html)
-- Mar 26 - [Vance and his wife appease Denmark with change to Greenland visit plans](https://www.yahoo.com/news/vance-wife-appease-denmark-change-125526747.html)
-- Mar 26 - [EU says 'unconditional withdrawal' of Russia from Ukraine is a precondition to amend sanctions](https://www.yahoo.com/news/eu-says-unconditional-withdrawal-russia-121445409.html)
-- Mar 26 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
-- Mar 26 - [Russia hands long prison terms to Ukrainian 'Azov' fighters who defended Mariupol](https://www.yahoo.com/news/russia-hands-long-prison-terms-113455053.html)
+- Mar 26 - [9 million student loan borrowers are about to see their credit scores drop](https://finance.yahoo.com/news/9-million-student-loan-borrowers-are-about-to-see-their-credit-scores-drop-173439660.html)
+- Mar 26 - [Texas Man Flees the Scene of 100 MPH Car Crash, Abandoning his Wife and 4 Children Now in Critical Condition: Police](https://www.yahoo.com/entertainment/texas-man-flees-scene-100-170042229.html)
+- Mar 26 - [Incredible Orca Encounter Thrills Tour Guides in Argentina](https://www.yahoo.com/news/incredible-orca-encounter-thrills-tour-164637349.html)
+- Mar 26 - [Lawmakers were set to bring over $15 billion back to their home states. Then Congress passed the GOP's government funding bill.](https://www.yahoo.com/news/lawmakers-were-set-bring-over-144726756.html)
+- Mar 26 - [4 American soldiers who went missing in Lithuania have died, NATO leader says](https://www.yahoo.com/news/4-american-soldiers-missing-training-142913628.html)
 <!-- feed end -->
 
 ### Onstream
