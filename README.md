@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Tragedy rocks Texas sheriff’s office after four deputies die by suicide in six weeks: ‘It caught a lot of us by surprise’](https://www.yahoo.com/news/tragedy-rocks-texas-sheriff-office-234031995.html)
 - Mar 25 - [Prince Harry Makes “Devastating” Career Decision in Surprise Statement](https://www.yahoo.com/news/prince-harry-makes-devastating-career-215202145.html)
+- Mar 25 - [What Percentage of Retirees Have $2.5 Million?](https://finance.yahoo.com/news/percentage-retirees-2-5-million-214933627.html)
 - Mar 25 - [8 new Corvettes go missing from Kentucky car plant, but the conspicuous muscle cars are all found](https://www.yahoo.com/news/8-corvettes-missing-kentucky-car-213653309.html)
 - Mar 25 - [HPV-linked cancer is becoming common in one group — here’s who is most at risk](https://www.yahoo.com/lifestyle/hpv-linked-cancer-becoming-common-205919983.html)
-- Mar 25 - [These EVs Are About to Be Compatible with Tesla's Charging Network](https://autos.yahoo.com/evs-compatible-teslas-charging-network-123100824.html)
+- Mar 25 - [Pilot and 2 children survive the night on airplane wing after crashing into icy Alaska lake](https://www.yahoo.com/news/pilot-2-children-survive-night-194636131.html)
 <!-- feed end -->
 
 ### Onstream
