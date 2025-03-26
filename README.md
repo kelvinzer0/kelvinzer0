@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Gabbard says it was ‘mistake’ for reporter to be added to Signal group chat](https://www.yahoo.com/news/gabbard-says-mistake-reporter-added-200200633.html)
-- Mar 26 - [Trump's Biggest Fan Marjorie Taylor Greene Just Humiliated Herself In The Most Spectacular Way Possible](https://www.yahoo.com/news/hahahaha-marjorie-taylor-greene-accidentally-173757196.html)
+- Mar 26 - [Microsoft stock drops from news of abandoned data center projects](https://finance.yahoo.com/video/microsoft-stock-drops-news-abandoned-195131720.html)
 - Mar 26 - [9 million student loan borrowers are about to see their credit scores drop](https://finance.yahoo.com/news/9-million-student-loan-borrowers-are-about-to-see-their-credit-scores-drop-173439660.html)
-- Mar 26 - [I booked basic economy flights with Delta and United. They felt like 2 completely different classes.](https://www.yahoo.com/lifestyle/booked-basic-economy-flights-delta-153506222.html)
-- Mar 26 - [4 American soldiers who went missing in Lithuania have died, NATO leader says](https://www.yahoo.com/news/4-american-soldiers-missing-training-142913628.html)
+- Mar 26 - [Trump places 25% tariff on imported autos, expecting to raise $100 billion in tax revenues](https://www.yahoo.com/news/trump-announce-auto-tariffs-white-173014126.html)
+- Mar 26 - ['Gonna Be Some Upset Seniors At Town Halls,' Says Mark Cuban. He Calls DOGE Social Security Actions 'A Back Door Move To Cut Payments'](https://finance.yahoo.com/news/gonna-upset-seniors-town-halls-163557903.html)
+- Mar 26 - [Plane Skids Out of Control on Runway After Landing Gear Breaks](https://www.yahoo.com/news/plane-skids-control-runway-landing-163502415.html)
 <!-- feed end -->
 
 ### Onstream
