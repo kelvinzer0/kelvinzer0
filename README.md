@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Did a Beauty Queen and Her Lover Plot to Kill Her Husband in the Bahamas? 'Thankful to be Alive'](https://www.yahoo.com/entertainment/did-beauty-queen-her-lover-120000450.html)
+- Mar 26 - [AI Weekly: China closes the gap](https://finance.yahoo.com/video/ai-weekly-china-closes-gap-112550449.html)
+- Mar 26 - [Change in itinerary for US Vice President JD Vance brings cautious relief for Greenland and Denmark](https://www.yahoo.com/news/change-itinerary-us-vice-president-104424974.html)
 - Mar 26 - [DOGE staffer, 'Big Balls', provided tech support to cybercrime ring, records show](https://www.yahoo.com/news/exclusive-doge-staffer-big-balls-100814927.html)
-- Mar 26 - [‘HAHAHAHA!’: Marjorie Taylor Greene Accidentally Defies Trump With Hilarious Self-Own](https://www.yahoo.com/news/hahahaha-marjorie-taylor-greene-accidentally-065545978.html)
-- Mar 26 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
-- Mar 26 - [Bride-to-be attacked in Deep Ellum while celebrating her bachelorette party](https://www.yahoo.com/news/bride-attacked-deep-ellum-while-025838809.html)
-- Mar 26 - [Democrat wins special state Senate election in Pennsylvania in major upset](https://www.yahoo.com/news/democrat-wins-special-state-senate-022725175.html)
+- Mar 26 - [With Trump's blessing, Israel has Hamas terrorists on back foot: 'Operating in survival mode'](https://www.yahoo.com/news/trumps-blessing-israel-hamas-terrorists-100053598.html)
 <!-- feed end -->
 
 ### Onstream
