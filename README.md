@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Gazans chant anti-Hamas slogans as they condemn terrorists’ war](https://www.yahoo.com/news/gazans-chant-anti-hamas-slogans-223350261.html)
-- Mar 26 - [Three survive mid-air crash of French air force acrobatics team](https://www.yahoo.com/news/three-survive-mid-air-crash-000837088.html)
-- Mar 25 - [‘It’s the angriest and most disappointed I’ve ever seen our teachers’: Williamson County school board adopts new science curriculum, rejects committee recommendation](https://www.yahoo.com/news/angriest-most-disappointed-ve-ever-235315294.html)
-- Mar 25 - [California city named one of the best places to live in America](https://www.yahoo.com/lifestyle/california-city-named-one-best-215605915.html)
+- Mar 26 - [Top 12 things to do in Cincinnati this weekend: March 28-30](https://www.yahoo.com/lifestyle/top-12-things-cincinnati-weekend-040530491.html)
+- Mar 26 - [Idaho Murders Suspect Bryan Kohberger's Case Takes New Turn As Prosecutors Mull Calling His Family To Testify](https://www.yahoo.com/news/idaho-murders-suspect-bryan-kohbergers-020022193.html)
 - Mar 25 - [Prince Harry Makes “Devastating” Career Decision in Surprise Statement](https://www.yahoo.com/news/prince-harry-makes-devastating-career-215202145.html)
+- Mar 25 - [8 new Corvettes go missing from Kentucky car plant, but the conspicuous muscle cars are all found](https://www.yahoo.com/news/8-corvettes-missing-kentucky-car-213653309.html)
+- Mar 25 - [HPV-linked cancer is becoming common in one group — here’s who is most at risk](https://www.yahoo.com/lifestyle/hpv-linked-cancer-becoming-common-205919983.html)
 <!-- feed end -->
 
 ### Onstream
