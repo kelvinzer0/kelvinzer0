@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Microsoft stock drops from news of abandoned data center projects](https://finance.yahoo.com/video/microsoft-stock-drops-news-abandoned-195131720.html)
+- Mar 26 - [Kim Schatzel steps down as University of Louisville president. What we know](https://www.yahoo.com/news/kim-schatzel-steps-down-university-222930264.html)
+- Mar 26 - [These San Diego areas now considered ‘very high fire hazard’ zones by Cal Fire](https://www.yahoo.com/news/san-diego-areas-now-considered-192919022.html)
 - Mar 26 - [9 million student loan borrowers are about to see their credit scores drop](https://finance.yahoo.com/news/9-million-student-loan-borrowers-are-about-to-see-their-credit-scores-drop-173439660.html)
+- Mar 26 - ['Underperforming' Kohl's stores in Ohio, 15 states, to close this weekend. See the list](https://finance.yahoo.com/news/underperforming-kohls-stores-ohio-15-173407889.html)
 - Mar 26 - [Trump places 25% tariff on imported autos, expecting to raise $100 billion in tax revenues](https://www.yahoo.com/news/trump-announce-auto-tariffs-white-173014126.html)
-- Mar 26 - ['Gonna Be Some Upset Seniors At Town Halls,' Says Mark Cuban. He Calls DOGE Social Security Actions 'A Back Door Move To Cut Payments'](https://finance.yahoo.com/news/gonna-upset-seniors-town-halls-163557903.html)
-- Mar 26 - [Plane Skids Out of Control on Runway After Landing Gear Breaks](https://www.yahoo.com/news/plane-skids-control-runway-landing-163502415.html)
 <!-- feed end -->
 
 ### Onstream
