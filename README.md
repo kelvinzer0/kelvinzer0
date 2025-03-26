@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [SailPoint stock drop 'hard to explain' after post-IPO earnings, CEO says](https://finance.yahoo.com/news/sailpoint-stock-drop-hard-to-explain-after-post-ipo-earnings-ceo-says-194037216.html)
 - Mar 26 - [9 million student loan borrowers are about to see their credit scores drop](https://finance.yahoo.com/news/9-million-student-loan-borrowers-are-about-to-see-their-credit-scores-drop-173439660.html)
-- Mar 26 - [Trump's move to end an immigration program hits a powerful Republican base of voters](https://www.yahoo.com/news/trumps-move-end-immigration-program-150745834.html)
-- Mar 26 - [Lawmakers were set to bring over $15 billion back to their home states. Then Congress passed the GOP's government funding bill.](https://www.yahoo.com/news/lawmakers-were-set-bring-over-144726756.html)
+- Mar 26 - [Texas Man Flees the Scene of 100 MPH Car Crash, Abandoning his Wife and 4 Children Now in Critical Condition: Police](https://www.yahoo.com/entertainment/texas-man-flees-scene-100-170042229.html)
+- Mar 26 - ['Gonna Be Some Upset Seniors At Town Halls,' Says Mark Cuban. He Calls DOGE Social Security Actions 'A Back Door Move To Cut Payments'](https://finance.yahoo.com/news/gonna-upset-seniors-town-halls-163557903.html)
 - Mar 26 - [4 American soldiers who went missing in Lithuania have died, NATO leader says](https://www.yahoo.com/news/4-american-soldiers-missing-training-142913628.html)
-- Mar 26 - [Vance and his wife appease Denmark with change to Greenland visit plans](https://www.yahoo.com/news/vance-wife-appease-denmark-change-125526747.html)
 <!-- feed end -->
 
 ### Onstream
