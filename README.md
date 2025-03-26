@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [SailPoint stock drop 'hard to explain' after post-IPO earnings, CEO says](https://finance.yahoo.com/news/sailpoint-stock-drop-hard-to-explain-after-post-ipo-earnings-ceo-says-194037216.html)
+- Mar 26 - [Gabbard says it was ‘mistake’ for reporter to be added to Signal group chat](https://www.yahoo.com/news/gabbard-says-mistake-reporter-added-200200633.html)
+- Mar 26 - [Trump's Biggest Fan Marjorie Taylor Greene Just Humiliated Herself In The Most Spectacular Way Possible](https://www.yahoo.com/news/hahahaha-marjorie-taylor-greene-accidentally-173757196.html)
 - Mar 26 - [9 million student loan borrowers are about to see their credit scores drop](https://finance.yahoo.com/news/9-million-student-loan-borrowers-are-about-to-see-their-credit-scores-drop-173439660.html)
-- Mar 26 - [Texas Man Flees the Scene of 100 MPH Car Crash, Abandoning his Wife and 4 Children Now in Critical Condition: Police](https://www.yahoo.com/entertainment/texas-man-flees-scene-100-170042229.html)
-- Mar 26 - ['Gonna Be Some Upset Seniors At Town Halls,' Says Mark Cuban. He Calls DOGE Social Security Actions 'A Back Door Move To Cut Payments'](https://finance.yahoo.com/news/gonna-upset-seniors-town-halls-163557903.html)
+- Mar 26 - [I booked basic economy flights with Delta and United. They felt like 2 completely different classes.](https://www.yahoo.com/lifestyle/booked-basic-economy-flights-delta-153506222.html)
 - Mar 26 - [4 American soldiers who went missing in Lithuania have died, NATO leader says](https://www.yahoo.com/news/4-american-soldiers-missing-training-142913628.html)
 <!-- feed end -->
 
