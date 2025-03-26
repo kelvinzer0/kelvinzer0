@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
 - Mar 26 - [Russia hands long prison terms to Ukrainian 'Azov' fighters who defended Mariupol](https://www.yahoo.com/news/russia-hands-long-prison-terms-113455053.html)
+- Mar 26 - [Delete personal 23andMe data, privacy experts urge users](https://finance.yahoo.com/news/delete-personal-23andme-data-privacy-111110955.html)
 - Mar 26 - [Change in itinerary for US Vice President JD Vance brings cautious relief for Greenland and Denmark](https://www.yahoo.com/news/change-itinerary-us-vice-president-104424974.html)
-- Mar 26 - [DOGE staffer, 'Big Balls', provided tech support to cybercrime ring, records show](https://www.yahoo.com/news/exclusive-doge-staffer-big-balls-100814927.html)
-- Mar 26 - [Amarillo is one of the windiest cities in the US: See where it falls in the ranking](https://www.yahoo.com/news/amarillo-one-windiest-cities-us-080631130.html)
-- Mar 26 - [BYD aims to double overseas sales to 800,000 in 2025, chairman tells analysts](https://finance.yahoo.com/news/byd-aims-double-overseas-sales-072335433.html)
+- Mar 26 - ['There is no blank check': Syrian leader told to rein in jihadis](https://www.yahoo.com/news/no-blank-check-syrian-leader-101345262.html)
 <!-- feed end -->
 
 ### Onstream
