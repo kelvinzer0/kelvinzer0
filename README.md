@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Top 12 things to do in Cincinnati this weekend: March 28-30](https://www.yahoo.com/lifestyle/top-12-things-cincinnati-weekend-040530491.html)
-- Mar 26 - [Idaho Murders Suspect Bryan Kohberger's Case Takes New Turn As Prosecutors Mull Calling His Family To Testify](https://www.yahoo.com/news/idaho-murders-suspect-bryan-kohbergers-020022193.html)
+- Mar 26 - [Britain should ‘continue to do what’s right’ on diversity, says Microsoft executive](https://finance.yahoo.com/news/britain-continue-diversity-says-microsoft-060000289.html)
+- Mar 26 - [Democrat wins special state Senate election in Pennsylvania in major upset](https://www.yahoo.com/news/democrat-wins-special-state-senate-022725175.html)
+- Mar 25 - ["Take Your Tourism Somewhere Else": Americans Are Reacting To Countries Heightening Their Travel Guidelines For Citizens Traveling To The US](https://www.yahoo.com/news/countries-updated-travel-advisories-those-220610973.html)
 - Mar 25 - [Prince Harry Makes “Devastating” Career Decision in Surprise Statement](https://www.yahoo.com/news/prince-harry-makes-devastating-career-215202145.html)
-- Mar 25 - [8 new Corvettes go missing from Kentucky car plant, but the conspicuous muscle cars are all found](https://www.yahoo.com/news/8-corvettes-missing-kentucky-car-213653309.html)
-- Mar 25 - [HPV-linked cancer is becoming common in one group — here’s who is most at risk](https://www.yahoo.com/lifestyle/hpv-linked-cancer-becoming-common-205919983.html)
+- Mar 25 - [Alachua County Sheriff's Office update: Armed suspect in northwest Gainesville now in custody](https://www.yahoo.com/news/residents-urged-shelter-place-deputies-214818031.html)
 <!-- feed end -->
 
 ### Onstream
