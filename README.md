@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - ["Everyone In America Knows It's A Scam": 19 Verrryyyy Shady Things We Encounter Daily That Have Unfortunately Become Normalized](https://www.yahoo.com/lifestyle/nothing-huge-legal-ponzi-scheme-020105493.html)
-- Mar 26 - [Idaho Murders Suspect Bryan Kohberger's Case Takes New Turn As Prosecutors Mull Calling His Family To Testify](https://www.yahoo.com/news/idaho-murders-suspect-bryan-kohbergers-020022193.html)
-- Mar 25 - [‘It’s the angriest and most disappointed I’ve ever seen our teachers’: Williamson County school board adopts new science curriculum, rejects committee recommendation](https://www.yahoo.com/news/angriest-most-disappointed-ve-ever-235315294.html)
+- Mar 26 - [‘HAHAHAHA!’: Marjorie Taylor Greene Accidentally Defies Trump With Hilarious Self-Own](https://www.yahoo.com/news/hahahaha-marjorie-taylor-greene-accidentally-065545978.html)
+- Mar 26 - [You Might Not Make Enough Money To Get Musk’s Potential DOGE Dividend Check: Here’s the Salary Cutoff](https://finance.yahoo.com/news/might-not-enough-money-musk-120113915.html)
+- Mar 25 - [Tragedy rocks Texas sheriff’s office after four deputies die by suicide in six weeks: ‘It caught a lot of us by surprise’](https://www.yahoo.com/news/tragedy-rocks-texas-sheriff-office-234031995.html)
+- Mar 25 - [Pro-Russian leader of Moldovan ethnic minority detained](https://www.yahoo.com/news/pro-russian-leader-moldovan-ethnic-232229001.html)
 - Mar 25 - ["Take Your Tourism Somewhere Else": Americans Are Reacting To Countries Heightening Their Travel Guidelines For Citizens Traveling To The US](https://www.yahoo.com/news/countries-updated-travel-advisories-those-220610973.html)
-- Mar 25 - [8 new Corvettes go missing from Kentucky car plant, but the conspicuous muscle cars are all found](https://www.yahoo.com/news/8-corvettes-missing-kentucky-car-213653309.html)
 <!-- feed end -->
 
 ### Onstream
