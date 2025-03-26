@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Supreme Court upholds Biden rule requiring serial numbers and background checks for ghost guns](https://www.yahoo.com/news/supreme-court-upholds-biden-rule-141359438.html)
-- Mar 26 - [Rivian Spins Off 'Micromobility' Small-EV Startup](https://finance.yahoo.com/video/rivian-spins-off-micromobility-small-140752327.html)
-- Mar 26 - [Analyst Explains Why His Firm Has Sold Its Entire Nvidia (NVDA) Position](https://finance.yahoo.com/news/analyst-explains-why-firm-sold-140313524.html)
+- Mar 26 - [4 American soldiers are missing from a training area near Lithuania's capital, the US military says](https://www.yahoo.com/news/4-american-soldiers-missing-training-142913628.html)
+- Mar 26 - [Vance and his wife appease Denmark with change to Greenland visit plans](https://www.yahoo.com/news/vance-wife-appease-denmark-change-125526747.html)
 - Mar 26 - [EU says 'unconditional withdrawal' of Russia from Ukraine is a precondition to amend sanctions](https://www.yahoo.com/news/eu-says-unconditional-withdrawal-russia-121445409.html)
 - Mar 26 - [James Webb Space Telescope Captures Dazzling 4K Views Of Uranus And Its Moons](https://www.yahoo.com/news/james-webb-space-telescope-captures-170000250.html)
+- Mar 26 - [Russia hands long prison terms to Ukrainian 'Azov' fighters who defended Mariupol](https://www.yahoo.com/news/russia-hands-long-prison-terms-113455053.html)
 <!-- feed end -->
 
 ### Onstream
