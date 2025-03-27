@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [US Seeks to Control Ukraine Investment, Squeezing Out Europe](https://finance.yahoo.com/news/us-seeks-control-investment-ukraine-161046382.html)
+- Mar 27 - [Florida 6th District election: President Trump will join Randy Fine during 'tele-rally'](https://www.yahoo.com/news/florida-6th-district-election-president-192254846.html)
 - Mar 27 - [Putin says US push for Greenland rooted in history, vows to uphold Russian interest in the Arctic](https://www.yahoo.com/news/putin-says-us-push-greenland-182852517.html)
+- Mar 27 - [U.S. officials went door-to-door in Greenland to find anyone who wanted to be visited by the Vances. They found no one.](https://www.yahoo.com/news/u-officials-went-door-door-180606208.html)
 - Mar 27 - [Uhhhhh, Marjorie Taylor Greene Refused To Answer A Reporter's Simple Question Because They Aren't American](https://www.yahoo.com/news/uhhhhh-marjorie-taylor-greene-refused-175059095.html)
-- Mar 27 - [First-class passenger says she was thrown off Delta plane for ‘flying while Black’](https://www.yahoo.com/news/first-class-passenger-says-she-163125046.html)
-- Mar 27 - [Trump withdraws his pick to be UN envoy](https://www.yahoo.com/news/elise-stefaniks-nomination-u-ambassador-155525961.html)
-- Mar 27 - [Musk announces $1 million for Wisconsin voter in Supreme Court race. Opposition calls it 'corrupt'](https://www.yahoo.com/news/musk-announces-1-million-wisconsin-152348382.html)
 <!-- feed end -->
 
 ### Onstream
