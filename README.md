@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [Here's What To Make Of Mieco Chipboard Berhad's (KLSE:MIECO) Decelerating Rates Of Return](https://finance.yahoo.com/news/heres-mieco-chipboard-berhads-klse-015739720.html)
+- Mar 27 - [Trump Mocked For Getting ‘Weirder By the Day’ After Calling Himself the ‘Fertilization President’](https://www.yahoo.com/entertainment/trump-mocked-getting-weirder-day-004738515.html)
 - Mar 27 - [Some measles patients in West Texas show signs of vitamin A toxicity, doctors say, raising concerns about misinformation](https://www.yahoo.com/news/measles-patients-west-texas-show-004023292.html)
-- Mar 27 - [Pilot rescued with 2 girls from icy Alaska lake was not authorized to have passengers, official says](https://www.yahoo.com/news/pilot-rescued-2-girls-icy-002654738.html)
-- Mar 26 - [Beloved Grandfather Dies After 'Tragic Mistake' Returning Home for Dinner with His Wife](https://www.yahoo.com/entertainment/beloved-grandfather-dies-tragic-mistake-230443913.html)
-- Mar 26 - [Kim Schatzel resigns as University of Louisville president, new president named](https://www.yahoo.com/news/kim-schatzel-steps-down-university-222930264.html)
+- Mar 26 - ['Dishonesty': Trump 'incompetence' exposed as poll numbers plunge amid military scandal](https://www.yahoo.com/news/dishonesty-trump-incompetence-exposed-poll-230115135.html)
 - Mar 26 - [Judge says Justice Department attacked her character to 'impugn the integrity' of US judicial system](https://www.yahoo.com/news/judge-says-justice-department-attacked-222813389.html)
 <!-- feed end -->
 
