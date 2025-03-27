@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Three Intel board members to retire in latest shakeup amid turnaround](https://finance.yahoo.com/news/three-intel-board-members-retire-145128442.html)
-- Mar 27 - [Worried about your child after watching Adolescence? Then you should read this](https://www.yahoo.com/lifestyle/adolescence-netflix-parents-guide-tips-young-boys-143915136.html)
-- Mar 27 - [Former US attorney Jessica Aber’s cause of death is revealed by family](https://www.yahoo.com/news/former-us-attorney-jessica-aber-123059450.html)
-- Mar 27 - [Trump tariffs: 39 imported cars and trucks that are likely to see price hikes](https://finance.yahoo.com/news/trump-tariffs-39-cars-trucks-202101386.html)
-- Mar 27 - [Scientists make disturbing discovery after examining the lungs of wild birds: 'Our research highlights an urgent need'](https://www.yahoo.com/news/scientists-disturbing-discovery-examining-lungs-111549028.html)
+- Mar 27 - [Female RAF police officer snooped on sex assault case to ‘impress’ her lover, court hears](https://www.yahoo.com/news/female-raf-police-officer-accessed-155146523.html)
+- Mar 27 - [Rep. Lauren Boebert employs a new tactic in order to avoid being grilled by constituents at town hall](https://www.yahoo.com/news/rep-lauren-boebert-employs-tactic-152612327.html)
+- Mar 27 - [Musk announces $1 million for Wisconsin voter in Supreme Court race. Opposition calls it 'corrupt'](https://www.yahoo.com/news/musk-announces-1-million-wisconsin-152348382.html)
+- Mar 27 - [Three Intel board members to retire in chip industry-focused reshuffle](https://finance.yahoo.com/news/three-intel-board-members-retire-145128442.html)
+- Mar 27 - [Babysitter Checking for 'Monster' in Child’s Room Finds Man Hiding Under the Bed: Police](https://www.yahoo.com/entertainment/babysitter-checking-monster-child-room-115432953.html)
 <!-- feed end -->
 
 ### Onstream
