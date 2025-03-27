@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Putin says US push for Greenland rooted in history, vows to uphold Russian interest in the Arctic](https://www.yahoo.com/news/putin-says-us-push-greenland-182852517.html)
+- Mar 27 - [King Charles taken to hospital after cancer treatment 'bump in the road'](https://www.yahoo.com/news/king-charles-experiences-temporary-side-211412636.html)
+- Mar 27 - [U.S. officials went door-to-door in Greenland to find anyone who wanted to be visited by the Vances. They found no one.](https://www.yahoo.com/news/u-officials-went-door-door-180606208.html)
+- Mar 27 - [Marjorie Taylor Greene Just Told A British Reporter To "Go Back To Your Country" When They Asked A Simple Question](https://www.yahoo.com/news/uhhhhh-marjorie-taylor-greene-refused-175059095.html)
 - Mar 27 - [The Founder Of Signal's Hilarious Troll Of White House Officials Is Going Viral](https://www.yahoo.com/entertainment/founder-signal-hilariously-trolled-white-172543725.html)
-- Mar 27 - [NY county clerk refuses to file Texas' fine for doctor accused of prescribing abortion pills](https://www.yahoo.com/news/ny-county-clerk-refuses-file-164310889.html)
-- Mar 27 - [Bizarre creature preserved in 99 million-year-old amber was ‘beyond imagination,’ scientists say](https://www.yahoo.com/news/bizarre-wasp-preserved-amber-flew-160339292.html)
-- Mar 27 - [Trump withdraws Stefanik as his pick for United Nations envoy](https://www.yahoo.com/news/elise-stefaniks-nomination-u-ambassador-155525961.html)
+- Mar 27 - [These US states may be able to see the northern lights tonight](https://www.yahoo.com/news/us-states-may-able-see-171039494.html)
 <!-- feed end -->
 
 ### Onstream
