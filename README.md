@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Female RAF police officer snooped on sex assault case to ‘impress’ her lover, court hears](https://www.yahoo.com/news/female-raf-police-officer-accessed-155146523.html)
-- Mar 27 - [Rep. Lauren Boebert employs a new tactic in order to avoid being grilled by constituents at town hall](https://www.yahoo.com/news/rep-lauren-boebert-employs-tactic-152612327.html)
+- Mar 27 - [Elise Stefanik's nomination for US ambassador to UN may be withdrawn, White House official says](https://www.yahoo.com/news/elise-stefaniks-nomination-u-ambassador-155525961.html)
 - Mar 27 - [Musk announces $1 million for Wisconsin voter in Supreme Court race. Opposition calls it 'corrupt'](https://www.yahoo.com/news/musk-announces-1-million-wisconsin-152348382.html)
+- Mar 27 - [Militants warn against helping Israel with Gaza protests](https://www.yahoo.com/news/militants-warn-against-helping-israel-150250477.html)
 - Mar 27 - [Three Intel board members to retire in chip industry-focused reshuffle](https://finance.yahoo.com/news/three-intel-board-members-retire-145128442.html)
-- Mar 27 - [Babysitter Checking for 'Monster' in Child’s Room Finds Man Hiding Under the Bed: Police](https://www.yahoo.com/entertainment/babysitter-checking-monster-child-room-115432953.html)
+- Mar 27 - [Prediction: Apple Will Soar Over the Next 5 Years. Here's 1 Reason Why.](https://finance.yahoo.com/news/prediction-apple-soar-over-next-144237732.html)
 <!-- feed end -->
 
 ### Onstream
