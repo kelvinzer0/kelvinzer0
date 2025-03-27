@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 27 - [Dow Jones Futures: Trump Tariffs On Autos Trigger Market Sell-Off; Nvidia, Tesla, Palantir Hit](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-trump-tariffs-sp-500-nasdaq-nvidia-tesla-palantir/?src=A00220&yptr=yahoo)
-- Mar 27 - [What we know about coeliac disease as Rebecca Adlington diagnosed with condition](https://www.yahoo.com/lifestyle/rebecca-adlington-coeliac-disease-symptoms-diagnosis-103942077.html)
-- Mar 27 - [Karoline Leavitt’s Latest Spin Cycle Malfunctions Spectacularly](https://www.yahoo.com/news/karoline-leavitt-latest-spin-cycle-072412392.html)
+- Mar 27 - [US could see return of acid rain if pollution rules are quashed, says scientist who first discovered it](https://www.yahoo.com/news/us-could-see-return-acid-113018717.html)
+- Mar 27 - [Cooper announces Ninja sword ban under Ronan’s Law](https://www.yahoo.com/news/cooper-announces-ninja-sword-ban-110517586.html)
 - Mar 27 - [Middle East latest: Israeli strikes kill a family of 6 and a Hamas spokesman in Gaza](https://www.yahoo.com/news/middle-east-latest-israeli-strikes-061928602.html)
 - Mar 27 - [Trump says larger tariffs could be imposed on Canada, EU if they work together to cause US 'economic harm'](https://finance.yahoo.com/news/trump-says-larger-tariffs-could-061919317.html)
 <!-- feed end -->
