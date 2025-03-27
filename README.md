@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Rivian ventures away from cars, heads down an unexpected avenue](https://finance.yahoo.com/news/rivian-ventures-away-cars-heads-020700622.html)
+- Mar 27 - [Carney calls Trump’s auto tariffs a ‘direct attack’ on Canada](https://www.yahoo.com/news/carney-calls-trump-auto-tariffs-041048599.html)
 - Mar 27 - [Jury awards $48.1M in malpractice case against Mercy Hospital](https://www.yahoo.com/news/jury-awards-48-1m-malpractice-012441346.html)
 - Mar 27 - [Trump Mocked For Getting ‘Weirder By the Day’ After Calling Himself the ‘Fertilization President’](https://www.yahoo.com/entertainment/trump-mocked-getting-weirder-day-004738515.html)
 - Mar 27 - [Some measles patients in West Texas show signs of vitamin A toxicity, doctors say, raising concerns about misinformation](https://www.yahoo.com/news/measles-patients-west-texas-show-004023292.html)
