@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [US Seeks to Control Ukraine Investment, Squeezing Out Europe](https://finance.yahoo.com/news/us-seeks-control-investment-ukraine-161046382.html)
-- Mar 27 - [Florida 6th District election: President Trump will join Randy Fine during 'tele-rally'](https://www.yahoo.com/news/florida-6th-district-election-president-192254846.html)
+- Mar 27 - [Death Cross Pattern Appears for NVIDIA Stock: Buy, Hold, or Sell?](https://finance.yahoo.com/news/death-cross-pattern-appears-nvidia-190500852.html)
 - Mar 27 - [Putin says US push for Greenland rooted in history, vows to uphold Russian interest in the Arctic](https://www.yahoo.com/news/putin-says-us-push-greenland-182852517.html)
 - Mar 27 - [U.S. officials went door-to-door in Greenland to find anyone who wanted to be visited by the Vances. They found no one.](https://www.yahoo.com/news/u-officials-went-door-door-180606208.html)
 - Mar 27 - [Uhhhhh, Marjorie Taylor Greene Refused To Answer A Reporter's Simple Question Because They Aren't American](https://www.yahoo.com/news/uhhhhh-marjorie-taylor-greene-refused-175059095.html)
+- Mar 27 - [Bizarre creature preserved in 99 million-year-old amber was ‘beyond imagination,’ scientists say](https://www.yahoo.com/news/bizarre-wasp-preserved-amber-flew-160339292.html)
 <!-- feed end -->
 
 ### Onstream
