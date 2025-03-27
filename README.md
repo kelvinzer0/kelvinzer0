@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Ukrainian F-16 pilot says Russia's battlefield actions show its troops think NATO jets are higher quality and fear them](https://www.yahoo.com/news/ukrainian-f-16-pilot-says-060750824.html)
-- Mar 27 - [Global auto industry stocks slump as 25% tariff on U.S. imports looms](https://finance.yahoo.com/news/auto-industry-rocked-trumps-25-005508916.html)
-- Mar 27 - [Trump Mocked For Getting ‘Weirder By the Day’ After Calling Himself the ‘Fertilization President’](https://www.yahoo.com/entertainment/trump-mocked-getting-weirder-day-004738515.html)
-- Mar 27 - [Some measles patients in West Texas show signs of vitamin A toxicity, doctors say, raising concerns about misinformation](https://www.yahoo.com/news/measles-patients-west-texas-show-004023292.html)
-- Mar 27 - [Pilot rescued with 2 girls from icy Alaska lake was not authorized to have passengers, official says](https://www.yahoo.com/news/pilot-rescued-2-girls-icy-002654738.html)
+- Mar 27 - [Dow Jones Futures: Trump Tariffs On Autos Trigger Market Sell-Off; Nvidia, Tesla, Palantir Hit](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-trump-tariffs-sp-500-nasdaq-nvidia-tesla-palantir/?src=A00220&yptr=yahoo)
+- Mar 27 - [What we know about coeliac disease as Rebecca Adlington diagnosed with condition](https://www.yahoo.com/lifestyle/rebecca-adlington-coeliac-disease-symptoms-diagnosis-103942077.html)
+- Mar 27 - [Karoline Leavitt’s Latest Spin Cycle Malfunctions Spectacularly](https://www.yahoo.com/news/karoline-leavitt-latest-spin-cycle-072412392.html)
+- Mar 27 - [Middle East latest: Israeli strikes kill a family of 6 and a Hamas spokesman in Gaza](https://www.yahoo.com/news/middle-east-latest-israeli-strikes-061928602.html)
+- Mar 27 - [Trump says larger tariffs could be imposed on Canada, EU if they work together to cause US 'economic harm'](https://finance.yahoo.com/news/trump-says-larger-tariffs-could-061919317.html)
 <!-- feed end -->
 
 ### Onstream
