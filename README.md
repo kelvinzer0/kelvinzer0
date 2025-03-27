@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Sutton Hoo helmet may not be from Sweden after all, new discovery suggests](https://www.yahoo.com/news/sutton-hoo-helmet-may-not-110605732.html)
+- Mar 27 - [Partner of Ukraine fighter facing Russian prison sentence demands his release](https://www.yahoo.com/news/partner-ukraine-fighter-facing-russian-140256997.html)
+- Mar 27 - [New US airstrike campaign targeting Yemen's Houthi rebels more intense than last, AP review finds](https://www.yahoo.com/news/us-airstrike-campaign-targeting-yemens-104444485.html)
 - Mar 27 - [Exclusive-How Syria's sectarian violence spread to capital, terrorizing Alawites](https://www.yahoo.com/news/exclusive-syrias-sectarian-violence-reached-085857510.html)
+- Mar 27 - [SiCarrier says its tools can help China make advanced chips](https://finance.yahoo.com/news/sicarrier-says-tools-help-china-084722812.html)
 - Mar 27 - [Experts sound the alarm over concerning move made by India: 'This is not something to celebrate'](https://www.yahoo.com/news/experts-sound-alarm-over-concerning-070500376.html)
-- Mar 27 - [Middle East latest: Israeli strikes kill a family of 6 and a Hamas spokesman in Gaza](https://www.yahoo.com/news/middle-east-latest-israeli-strikes-061928602.html)
-- Mar 27 - [Trump says larger tariffs could be imposed on Canada, EU if they work together to cause US 'economic harm'](https://finance.yahoo.com/news/trump-says-larger-tariffs-could-061919317.html)
 <!-- feed end -->
 
 ### Onstream
