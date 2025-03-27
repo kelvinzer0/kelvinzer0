@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Partner of Ukraine fighter facing Russian prison sentence demands his release](https://www.yahoo.com/news/partner-ukraine-fighter-facing-russian-140256997.html)
-- Mar 27 - [New US airstrike campaign targeting Yemen's Houthi rebels more intense than last, AP review finds](https://www.yahoo.com/news/us-airstrike-campaign-targeting-yemens-104444485.html)
-- Mar 27 - [Exclusive-How Syria's sectarian violence spread to capital, terrorizing Alawites](https://www.yahoo.com/news/exclusive-syrias-sectarian-violence-reached-085857510.html)
-- Mar 27 - [SiCarrier says its tools can help China make advanced chips](https://finance.yahoo.com/news/sicarrier-says-tools-help-china-084722812.html)
-- Mar 27 - [Experts sound the alarm over concerning move made by India: 'This is not something to celebrate'](https://www.yahoo.com/news/experts-sound-alarm-over-concerning-070500376.html)
+- Mar 27 - [Three Intel board members to retire in latest shakeup amid turnaround](https://finance.yahoo.com/news/three-intel-board-members-retire-145128442.html)
+- Mar 27 - [Worried about your child after watching Adolescence? Then you should read this](https://www.yahoo.com/lifestyle/adolescence-netflix-parents-guide-tips-young-boys-143915136.html)
+- Mar 27 - [Former US attorney Jessica Aber’s cause of death is revealed by family](https://www.yahoo.com/news/former-us-attorney-jessica-aber-123059450.html)
+- Mar 27 - [Trump tariffs: 39 imported cars and trucks that are likely to see price hikes](https://finance.yahoo.com/news/trump-tariffs-39-cars-trucks-202101386.html)
+- Mar 27 - [Scientists make disturbing discovery after examining the lungs of wild birds: 'Our research highlights an urgent need'](https://www.yahoo.com/news/scientists-disturbing-discovery-examining-lungs-111549028.html)
 <!-- feed end -->
 
 ### Onstream
