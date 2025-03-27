@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 27 - [Ukrainian F-16 pilot says Russia's battlefield actions show its troops think NATO jets are higher quality and fear them](https://www.yahoo.com/news/ukrainian-f-16-pilot-says-060750824.html)
-- Mar 27 - [Rivian ventures away from cars, heads down an unexpected avenue](https://finance.yahoo.com/news/rivian-ventures-away-cars-heads-020700622.html)
+- Mar 27 - [Global auto industry stocks slump as 25% tariff on U.S. imports looms](https://finance.yahoo.com/news/auto-industry-rocked-trumps-25-005508916.html)
 - Mar 27 - [Trump Mocked For Getting ‘Weirder By the Day’ After Calling Himself the ‘Fertilization President’](https://www.yahoo.com/entertainment/trump-mocked-getting-weirder-day-004738515.html)
 - Mar 27 - [Some measles patients in West Texas show signs of vitamin A toxicity, doctors say, raising concerns about misinformation](https://www.yahoo.com/news/measles-patients-west-texas-show-004023292.html)
 - Mar 27 - [Pilot rescued with 2 girls from icy Alaska lake was not authorized to have passengers, official says](https://www.yahoo.com/news/pilot-rescued-2-girls-icy-002654738.html)
