@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Watch: Kristi Noem wears gold Rolex to inspect tattooed inmates at El-Salvador mega-prison](https://www.yahoo.com/news/watch-kristi-noem-inspects-shaven-172601337.html)
-- Mar 27 - [Bizarre creature preserved in 99 million-year-old amber was ‘beyond imagination,’ scientists say](https://www.yahoo.com/news/bizarre-wasp-preserved-amber-flew-160339292.html)
+- Mar 27 - [Putin says US push for Greenland rooted in history, vows to uphold Russian interest in the Arctic](https://www.yahoo.com/news/putin-says-us-push-greenland-182852517.html)
+- Mar 27 - [Uhhhhh, Marjorie Taylor Greene Refused To Answer A Reporter's Simple Question Because They Aren't American](https://www.yahoo.com/news/uhhhhh-marjorie-taylor-greene-refused-175059095.html)
 - Mar 27 - [First-class passenger says she was thrown off Delta plane for ‘flying while Black’](https://www.yahoo.com/news/first-class-passenger-says-she-163125046.html)
-- Mar 27 - [Trump's pick to be UN envoy withdrawn, says Senate Foreign Relations Committee Chairman Risch](https://www.yahoo.com/news/elise-stefaniks-nomination-u-ambassador-155525961.html)
-- Mar 27 - [Rep. Lauren Boebert employs a new tactic in order to avoid being grilled by constituents at town hall](https://www.yahoo.com/news/rep-lauren-boebert-employs-tactic-152612327.html)
+- Mar 27 - [Trump withdraws his pick to be UN envoy](https://www.yahoo.com/news/elise-stefaniks-nomination-u-ambassador-155525961.html)
+- Mar 27 - [Musk announces $1 million for Wisconsin voter in Supreme Court race. Opposition calls it 'corrupt'](https://www.yahoo.com/news/musk-announces-1-million-wisconsin-152348382.html)
 <!-- feed end -->
 
 ### Onstream
