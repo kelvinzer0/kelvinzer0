@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Elise Stefanik's nomination for US ambassador to UN may be withdrawn, White House official says](https://www.yahoo.com/news/elise-stefaniks-nomination-u-ambassador-155525961.html)
-- Mar 27 - [Musk announces $1 million for Wisconsin voter in Supreme Court race. Opposition calls it 'corrupt'](https://www.yahoo.com/news/musk-announces-1-million-wisconsin-152348382.html)
-- Mar 27 - [Militants warn against helping Israel with Gaza protests](https://www.yahoo.com/news/militants-warn-against-helping-israel-150250477.html)
-- Mar 27 - [Three Intel board members to retire in chip industry-focused reshuffle](https://finance.yahoo.com/news/three-intel-board-members-retire-145128442.html)
-- Mar 27 - [Prediction: Apple Will Soar Over the Next 5 Years. Here's 1 Reason Why.](https://finance.yahoo.com/news/prediction-apple-soar-over-next-144237732.html)
+- Mar 27 - [Watch: Kristi Noem wears gold Rolex to inspect tattooed inmates at El-Salvador mega-prison](https://www.yahoo.com/news/watch-kristi-noem-inspects-shaven-172601337.html)
+- Mar 27 - [Bizarre creature preserved in 99 million-year-old amber was ‘beyond imagination,’ scientists say](https://www.yahoo.com/news/bizarre-wasp-preserved-amber-flew-160339292.html)
+- Mar 27 - [First-class passenger says she was thrown off Delta plane for ‘flying while Black’](https://www.yahoo.com/news/first-class-passenger-says-she-163125046.html)
+- Mar 27 - [Trump's pick to be UN envoy withdrawn, says Senate Foreign Relations Committee Chairman Risch](https://www.yahoo.com/news/elise-stefaniks-nomination-u-ambassador-155525961.html)
+- Mar 27 - [Rep. Lauren Boebert employs a new tactic in order to avoid being grilled by constituents at town hall](https://www.yahoo.com/news/rep-lauren-boebert-employs-tactic-152612327.html)
 <!-- feed end -->
 
 ### Onstream
