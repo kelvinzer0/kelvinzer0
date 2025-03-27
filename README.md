@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Kim Schatzel steps down as University of Louisville president. What we know](https://www.yahoo.com/news/kim-schatzel-steps-down-university-222930264.html)
-- Mar 26 - [These San Diego areas now considered ‘very high fire hazard’ zones by Cal Fire](https://www.yahoo.com/news/san-diego-areas-now-considered-192919022.html)
-- Mar 26 - [9 million student loan borrowers are about to see their credit scores drop](https://finance.yahoo.com/news/9-million-student-loan-borrowers-are-about-to-see-their-credit-scores-drop-173439660.html)
-- Mar 26 - ['Underperforming' Kohl's stores in Ohio, 15 states, to close this weekend. See the list](https://finance.yahoo.com/news/underperforming-kohls-stores-ohio-15-173407889.html)
-- Mar 26 - [Trump places 25% tariff on imported autos, expecting to raise $100 billion in tax revenues](https://www.yahoo.com/news/trump-announce-auto-tariffs-white-173014126.html)
+- Mar 27 - [Some measles patients in West Texas show signs of vitamin A toxicity, doctors say, raising concerns about misinformation](https://www.yahoo.com/news/measles-patients-west-texas-show-004023292.html)
+- Mar 27 - [Pilot rescued with 2 girls from icy Alaska lake was not authorized to have passengers, official says](https://www.yahoo.com/news/pilot-rescued-2-girls-icy-002654738.html)
+- Mar 26 - [Beloved Grandfather Dies After 'Tragic Mistake' Returning Home for Dinner with His Wife](https://www.yahoo.com/entertainment/beloved-grandfather-dies-tragic-mistake-230443913.html)
+- Mar 26 - [Kim Schatzel resigns as University of Louisville president, new president named](https://www.yahoo.com/news/kim-schatzel-steps-down-university-222930264.html)
+- Mar 26 - [Judge says Justice Department attacked her character to 'impugn the integrity' of US judicial system](https://www.yahoo.com/news/judge-says-justice-department-attacked-222813389.html)
 <!-- feed end -->
 
 ### Onstream
