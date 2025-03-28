@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Ferrari upgraded to Overweight, Tesla's price target cut](https://finance.yahoo.com/video/ferrari-upgraded-overweight-teslas-price-160122137.html)
-- Mar 28 - [Convicted founder of electric vehicle startup Nikola pardoned by Trump](https://finance.yahoo.com/news/convicted-founder-electric-vehicle-startup-154216800.html)
-- Mar 28 - [A second South Carolina death row inmate chooses execution by firing squad](https://www.yahoo.com/news/south-carolina-inmate-chooses-die-153901200.html)
-- Mar 28 - [Thousands Buried Alive: 7.7 Magnitude Earthquake Destroys Southeast Asia](https://www.yahoo.com/entertainment/thousands-buried-alive-7-7-142059501.html)
+- Mar 28 - [Kentucky Gov. Andy Beshear displays his colors in veto fights with Republican lawmakers](https://www.yahoo.com/news/kentucky-gov-andy-beshear-displays-162955211.html)
+- Mar 28 - [Intel's Former CEO Is Not Impressed With TSMC's $100B US Investment](https://tech.yahoo.com/articles/intels-former-ceo-not-impressed-160430602.html)
+- Mar 28 - [North Carolina judge challenging outcome of race wore Confederate uniform in college photo](https://www.yahoo.com/news/north-carolina-judge-challenging-outcome-160413471.html)
 - Mar 28 - [Usha Vance Photo Op Effort In Greenland Took Embarrassing Turn: Report](https://www.yahoo.com/news/usha-vance-photo-op-effort-115207056.html)
+- Mar 28 - [FDA bars Chinese seafood companies from doing business in US after disturbing discovery found in imported clams — here's what it found](https://www.yahoo.com/news/fda-bars-chinese-seafood-companies-111510271.html)
 <!-- feed end -->
 
 ### Onstream
