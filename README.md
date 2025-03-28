@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Half the US population could be in the path of severe thunderstorms early next week](https://www.yahoo.com/news/half-us-population-could-path-200534518.html)
-- Mar 28 - [Charlie Javice convicted of defrauding JPMorgan during $175 million sale of financial aid startup](https://finance.yahoo.com/news/charlie-javice-convicted-defrauding-jpmorgan-190119939.html)
+- Mar 28 - [JD Vance ruthlessly mocked after everyone in Greenland refused to welcome wife Usha Vance](https://www.yahoo.com/news/jd-vance-ruthlessly-mocked-everyone-203526936.html)
 - Mar 28 - [What to know about Carlo Acutis, the Catholic Church’s new millennial saint](https://www.yahoo.com/news/know-carlo-acutis-catholic-church-185323346.html)
+- Mar 28 - [A restaurant objected to paying twice in a week to have a drain unclogged. The plumber then decided to plug it himself](https://www.yahoo.com/news/plumber-clogs-restaurant-pipes-dispute-135833344.html)
 - Mar 28 - [Joaquin Phoenix, Sandra Oh, Emma Thompson and More Sign Letter Condemning Academy for Lack of Support for Hamdan Ballal](https://www.yahoo.com/entertainment/joaquin-phoenix-sandra-oh-emma-184443358.html)
-- Mar 28 - [Musk OUT at DOGE, Plans to Step Down at the End of May as Tesla Dealerships TARGETED, Stock PLUMMITS](https://www.yahoo.com/news/musk-doge-plans-step-down-181600945.html)
+- Mar 28 - [Exclusive-Buyout, aerospace firms close in on $8 billion-plus Boeing navigation unit, sources say](https://finance.yahoo.com/news/exclusive-buyout-aerospace-firms-close-174043738.html)
 <!-- feed end -->
 
 ### Onstream
