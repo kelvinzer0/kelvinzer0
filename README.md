@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [1 Crypto Stock That Could Go Parabolic](https://finance.yahoo.com/news/1-crypto-stock-could-parabolic-093100955.html)
-- Mar 28 - [Prediction: 2 Stocks That Will Be Worth More Than Palantir 1 Year From Now](https://finance.yahoo.com/news/prediction-2-stocks-worth-more-082200409.html)
-- Mar 28 - [Strong earthquake strikes central Myanmar, tremors in Bangkok](https://www.yahoo.com/news/strong-earthquake-strikes-central-myanmar-081403112.html)
-- Mar 28 - [U.S. officials went door-to-door in Greenland to find anyone who wanted to be visited by the Vances. They found no one](https://www.yahoo.com/news/u-officials-went-door-door-180606208.html)
-- Mar 28 - [Watch: Building collapses in Bangkok after earthquake 800 miles away](https://www.yahoo.com/news/strong-7-7-earthquake-hits-073537233.html)
+- Mar 28 - [Scores of workers trapped in Bangkok building collapse after Myanmar earthquake](https://www.yahoo.com/news/myanmar-struck-7-7-magnitude-082843444.html)
+- Mar 28 - [Oahu doctor’s wife tells police he tried to inject her with syringes, bashed her head with a rock when she refused selfie](https://www.yahoo.com/news/doctor-arrested-attempting-kill-wife-035735911.html)
+- Mar 28 - [Autopsy expert says Diego Maradona was in agony in the hours before his death](https://www.yahoo.com/news/autopsy-expert-says-diego-maradona-003214715.html)
+- Mar 27 - [Putin Sends a Clear Warning as Trump Tries to Take Over Greenland](https://www.yahoo.com/news/putin-sends-clear-warning-trump-232300445.html)
+- Mar 27 - [Putin suggests temporary administration for Ukraine, Russian news agencies report](https://www.yahoo.com/news/putin-suggests-possibility-placing-ukraine-223129683.html)
 <!-- feed end -->
 
 ### Onstream
