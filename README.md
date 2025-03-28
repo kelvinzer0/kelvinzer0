@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Kentucky Gov. Andy Beshear displays his colors in veto fights with Republican lawmakers](https://www.yahoo.com/news/kentucky-gov-andy-beshear-displays-162955211.html)
-- Mar 28 - [Intel's Former CEO Is Not Impressed With TSMC's $100B US Investment](https://tech.yahoo.com/articles/intels-former-ceo-not-impressed-160430602.html)
+- Mar 28 - [A partial solar eclipse will stun in the sky this Saturday. Here's how and where you'll be able to see it.](https://www.yahoo.com/news/a-partial-solar-eclipse-will-stun-in-the-sky-this-saturday-heres-how-and-where-youll-be-able-to-see-it-175619959.html)
+- Mar 28 - [Abandoned vehicles litter flooded streets after over a half year’s worth of rain forces water rescues in parts of South Texas](https://www.yahoo.com/news/multiple-water-rescues-conducted-amid-082306023.html)
+- Mar 28 - [Army looks to artificial intelligence to enhance future Golden Dome](https://www.yahoo.com/news/army-looks-artificial-intelligence-enhance-173518282.html)
 - Mar 28 - [North Carolina judge challenging outcome of race wore Confederate uniform in college photo](https://www.yahoo.com/news/north-carolina-judge-challenging-outcome-160413471.html)
-- Mar 28 - [Usha Vance Photo Op Effort In Greenland Took Embarrassing Turn: Report](https://www.yahoo.com/news/usha-vance-photo-op-effort-115207056.html)
-- Mar 28 - [FDA bars Chinese seafood companies from doing business in US after disturbing discovery found in imported clams — here's what it found](https://www.yahoo.com/news/fda-bars-chinese-seafood-companies-111510271.html)
+- Mar 28 - [Astronomers Investigate Whether Dying Star's Blast of Deadly Gamma Radiation Will Hit Earth](https://www.yahoo.com/news/astronomers-investigate-whether-dying-stars-151304178.html)
 <!-- feed end -->
 
 ### Onstream
