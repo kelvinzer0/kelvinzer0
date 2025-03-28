@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [U.S. officials went door-to-door in Greenland to find anyone who wanted to be visited by the Vances. They found no one](https://www.yahoo.com/news/u-officials-went-door-door-180606208.html)
 - Mar 28 - [Oahu doctor’s wife tells police he tried to inject her with syringes, bashed her head with a rock when she refused selfie](https://www.yahoo.com/news/doctor-arrested-attempting-kill-wife-035735911.html)
-- Mar 28 - [Mufi Hannemann resigns as Hawaii Tourism Authority Chair amid audit questions](https://www.yahoo.com/news/mufi-hannemann-resigns-hawaii-tourism-025630844.html)
 - Mar 28 - [Putin suggests temporary administration for Ukraine to end war](https://www.yahoo.com/news/putin-suggests-temporary-administration-ukraine-020434757.html)
 - Mar 28 - [Autopsy expert says Diego Maradona was in agony in the hours before his death](https://www.yahoo.com/news/autopsy-expert-says-diego-maradona-003214715.html)
-- Mar 27 - [Putin suggests temporary administration for Ukraine, Russian news agencies report](https://www.yahoo.com/news/putin-suggests-possibility-placing-ukraine-223129683.html)
+- Mar 27 - [Putin Sends a Clear Warning as Trump Tries to Take Over Greenland](https://www.yahoo.com/news/putin-sends-clear-warning-trump-232300445.html)
 <!-- feed end -->
 
 ### Onstream
