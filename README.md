@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [1 Crypto Stock That Could Go Parabolic](https://finance.yahoo.com/news/1-crypto-stock-could-parabolic-093100955.html)
+- Mar 28 - [Prediction: 2 Stocks That Will Be Worth More Than Palantir 1 Year From Now](https://finance.yahoo.com/news/prediction-2-stocks-worth-more-082200409.html)
+- Mar 28 - [Strong earthquake strikes central Myanmar, tremors in Bangkok](https://www.yahoo.com/news/strong-earthquake-strikes-central-myanmar-081403112.html)
 - Mar 28 - [U.S. officials went door-to-door in Greenland to find anyone who wanted to be visited by the Vances. They found no one](https://www.yahoo.com/news/u-officials-went-door-door-180606208.html)
 - Mar 28 - [Watch: Building collapses in Bangkok after earthquake 800 miles away](https://www.yahoo.com/news/strong-7-7-earthquake-hits-073537233.html)
-- Mar 28 - [Oahu doctor’s wife tells police he tried to inject her with syringes, bashed her head with a rock when she refused selfie](https://www.yahoo.com/news/doctor-arrested-attempting-kill-wife-035735911.html)
-- Mar 28 - ['Lying And Gaslighting': Elon Musk Torched After Unbelievable Claim About Trump](https://www.yahoo.com/news/lying-gaslighting-elon-musk-torched-034126750.html)
-- Mar 28 - [Mufi Hannemann resigns as Hawaii Tourism Authority Chair amid audit questions](https://www.yahoo.com/news/mufi-hannemann-resigns-hawaii-tourism-025630844.html)
 <!-- feed end -->
 
 ### Onstream
