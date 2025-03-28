@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Rocket Lab, UbiSoft, Nippon Steel: Stocks in 30](https://finance.yahoo.com/video/rocket-lab-ubisoft-nippon-steel-145413369.html)
-- Mar 28 - [Scores of workers trapped in Bangkok building collapse after Myanmar earthquake](https://www.yahoo.com/news/myanmar-struck-7-7-magnitude-082843444.html)
-- Mar 28 - [Farmers stunned after near-extinct creature resurfaces decades after disappearing: 'We were a bit worried'](https://www.yahoo.com/news/farmers-stunned-near-extinct-creature-103035961.html)
-- Mar 28 - [Russia says Ukraine 'virtually destroys' gas infrastructure in Sudzha](https://www.yahoo.com/news/russia-says-ukraine-virtually-destroys-095340102.html)
-- Mar 28 - [Powerful Myanmar Earthquake Felt in Bangkok](https://www.yahoo.com/news/powerful-myanmar-earthquake-felt-bangkok-084813989.html)
+- Mar 28 - [Ferrari upgraded to Overweight, Tesla's price target cut](https://finance.yahoo.com/video/ferrari-upgraded-overweight-teslas-price-160122137.html)
+- Mar 28 - [Convicted founder of electric vehicle startup Nikola pardoned by Trump](https://finance.yahoo.com/news/convicted-founder-electric-vehicle-startup-154216800.html)
+- Mar 28 - [A second South Carolina death row inmate chooses execution by firing squad](https://www.yahoo.com/news/south-carolina-inmate-chooses-die-153901200.html)
+- Mar 28 - [Thousands Buried Alive: 7.7 Magnitude Earthquake Destroys Southeast Asia](https://www.yahoo.com/entertainment/thousands-buried-alive-7-7-142059501.html)
+- Mar 28 - [Usha Vance Photo Op Effort In Greenland Took Embarrassing Turn: Report](https://www.yahoo.com/news/usha-vance-photo-op-effort-115207056.html)
 <!-- feed end -->
 
 ### Onstream
