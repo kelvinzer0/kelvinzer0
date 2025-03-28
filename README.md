@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [Tariffs begin, March jobs report, earnings: What to Watch](https://finance.yahoo.com/video/tariffs-begin-march-jobs-report-230000949.html)
+- Mar 28 - [At least 3 deaths reported after over a half year’s worth of rain forces water rescues in parts of South Texas](https://www.yahoo.com/news/multiple-water-rescues-conducted-amid-082306023.html)
+- Mar 28 - [X Acquired by Elon Musk’s AI Company for $45 Billion](https://finance.yahoo.com/news/x-acquired-elon-musk-ai-213815258.html)
+- Mar 28 - [A Pregnant Mom Fled a Violent Attack. Then Boyfriend Sent Photos Showing Her Kids Had Been Beaten, Too: Police](https://www.yahoo.com/entertainment/pregnant-mom-fled-violent-attack-213654459.html)
 - Mar 28 - [JD Vance ruthlessly mocked after everyone in Greenland refused to welcome wife Usha Vance](https://www.yahoo.com/news/jd-vance-ruthlessly-mocked-everyone-203526936.html)
-- Mar 28 - [What to know about Carlo Acutis, the Catholic Church’s new millennial saint](https://www.yahoo.com/news/know-carlo-acutis-catholic-church-185323346.html)
-- Mar 28 - [A restaurant objected to paying twice in a week to have a drain unclogged. The plumber then decided to plug it himself](https://www.yahoo.com/news/plumber-clogs-restaurant-pipes-dispute-135833344.html)
-- Mar 28 - [Joaquin Phoenix, Sandra Oh, Emma Thompson and More Sign Letter Condemning Academy for Lack of Support for Hamdan Ballal](https://www.yahoo.com/entertainment/joaquin-phoenix-sandra-oh-emma-184443358.html)
-- Mar 28 - [Exclusive-Buyout, aerospace firms close in on $8 billion-plus Boeing navigation unit, sources say](https://finance.yahoo.com/news/exclusive-buyout-aerospace-firms-close-174043738.html)
 <!-- feed end -->
 
 ### Onstream
