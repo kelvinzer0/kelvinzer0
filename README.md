@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 28 - [Oahu doctor’s wife tells police he tried to inject her with syringes, bashed her head with a rock when she refused selfie](https://www.yahoo.com/news/doctor-arrested-attempting-kill-wife-035735911.html)
+- Mar 28 - [Putin suggests temporary administration for Ukraine to end war](https://www.yahoo.com/news/putin-suggests-temporary-administration-ukraine-020434757.html)
 - Mar 28 - [Autopsy expert says Diego Maradona was in agony in the hours before his death](https://www.yahoo.com/news/autopsy-expert-says-diego-maradona-003214715.html)
-- Mar 27 - [Putin Sends a Clear Warning as Trump Tries to Take Over Greenland](https://www.yahoo.com/news/putin-sends-clear-warning-trump-232300445.html)
+- Mar 27 - [Man arrested for Las Vegas Tesla center fires reported car stolen hours after attack](https://www.yahoo.com/news/man-arrested-las-vegas-tesla-223608697.html)
 - Mar 27 - [Putin suggests temporary administration for Ukraine, Russian news agencies report](https://www.yahoo.com/news/putin-suggests-possibility-placing-ukraine-223129683.html)
-- Mar 27 - [After RFK Jr. recommends vitamin A as a measles treatment, some Texas patients show signs of toxicity](https://www.yahoo.com/news/after-rfk-jr-recommends-vitamin-a-as-a-measles-treatment-some-texas-patients-show-signs-of-toxicity-214353603.html)
 <!-- feed end -->
 
 ### Onstream
