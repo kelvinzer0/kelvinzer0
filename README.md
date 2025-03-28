@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Trump giving too much ground on Ukraine, says Farage](https://www.yahoo.com/news/trump-giving-too-much-ground-131908190.html)
-- Mar 28 - [Hemi V8 Dodge Charger Reportedly In The Works](https://autos.yahoo.com/hemi-v8-dodge-charger-reportedly-130000585.html)
-- Mar 28 - [Iran speaker says US bases will be struck if Trump attacks Iran](https://www.yahoo.com/news/iran-speaker-says-us-bases-105440319.html)
+- Mar 28 - [Rocket Lab, UbiSoft, Nippon Steel: Stocks in 30](https://finance.yahoo.com/video/rocket-lab-ubisoft-nippon-steel-145413369.html)
+- Mar 28 - [Scores of workers trapped in Bangkok building collapse after Myanmar earthquake](https://www.yahoo.com/news/myanmar-struck-7-7-magnitude-082843444.html)
+- Mar 28 - [Farmers stunned after near-extinct creature resurfaces decades after disappearing: 'We were a bit worried'](https://www.yahoo.com/news/farmers-stunned-near-extinct-creature-103035961.html)
+- Mar 28 - [Russia says Ukraine 'virtually destroys' gas infrastructure in Sudzha](https://www.yahoo.com/news/russia-says-ukraine-virtually-destroys-095340102.html)
 - Mar 28 - [Powerful Myanmar Earthquake Felt in Bangkok](https://www.yahoo.com/news/powerful-myanmar-earthquake-felt-bangkok-084813989.html)
-- Mar 28 - [Mark Cuban is wondering aloud if Elon Musk's just forgotten about the '5 things' DOGE productivity emails: 'Typical'](https://www.yahoo.com/news/mark-cuban-wondering-aloud-elon-070724354.html)
 <!-- feed end -->
 
 ### Onstream
