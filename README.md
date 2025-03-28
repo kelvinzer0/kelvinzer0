@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Scores of workers trapped in Bangkok building collapse after Myanmar earthquake](https://www.yahoo.com/news/myanmar-struck-7-7-magnitude-082843444.html)
+- Mar 28 - [Powerful Myanmar Earthquake Felt in Bangkok](https://www.yahoo.com/news/powerful-myanmar-earthquake-felt-bangkok-084813989.html)
+- Mar 28 - [Watch: Building collapses in Bangkok after earthquake 800 miles away](https://www.yahoo.com/news/strong-7-7-earthquake-hits-073537233.html)
+- Mar 28 - [Mark Cuban is wondering aloud if Elon Musk's just forgotten about the '5 things' DOGE productivity emails: 'Typical'](https://www.yahoo.com/news/mark-cuban-wondering-aloud-elon-070724354.html)
 - Mar 28 - [Oahu doctor’s wife tells police he tried to inject her with syringes, bashed her head with a rock when she refused selfie](https://www.yahoo.com/news/doctor-arrested-attempting-kill-wife-035735911.html)
-- Mar 28 - [Autopsy expert says Diego Maradona was in agony in the hours before his death](https://www.yahoo.com/news/autopsy-expert-says-diego-maradona-003214715.html)
-- Mar 27 - [Putin Sends a Clear Warning as Trump Tries to Take Over Greenland](https://www.yahoo.com/news/putin-sends-clear-warning-trump-232300445.html)
-- Mar 27 - [Putin suggests temporary administration for Ukraine, Russian news agencies report](https://www.yahoo.com/news/putin-suggests-possibility-placing-ukraine-223129683.html)
+- Mar 28 - ['Lying And Gaslighting': Elon Musk Torched After Unbelievable Claim About Trump](https://www.yahoo.com/news/lying-gaslighting-elon-musk-torched-034126750.html)
 <!-- feed end -->
 
 ### Onstream
