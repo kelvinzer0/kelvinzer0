@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [A partial solar eclipse will stun in the sky this Saturday. Here's how and where you'll be able to see it.](https://www.yahoo.com/news/a-partial-solar-eclipse-will-stun-in-the-sky-this-saturday-heres-how-and-where-youll-be-able-to-see-it-175619959.html)
+- Mar 28 - [What to know about Carlo Acutis, the Catholic Church’s new millennial saint](https://www.yahoo.com/news/know-carlo-acutis-catholic-church-185323346.html)
+- Mar 28 - [Shuttle used to supply the International Space Station with food is damaged as future trips are put on hold](https://www.yahoo.com/news/shuttle-used-supply-international-space-153802207.html)
+- Mar 28 - [Musk OUT at DOGE, Plans to Step Down at the End of May as Tesla Dealerships TARGETED, Stock PLUMMITS](https://www.yahoo.com/news/musk-doge-plans-step-down-181600945.html)
 - Mar 28 - [Abandoned vehicles litter flooded streets after over a half year’s worth of rain forces water rescues in parts of South Texas](https://www.yahoo.com/news/multiple-water-rescues-conducted-amid-082306023.html)
-- Mar 28 - [Army looks to artificial intelligence to enhance future Golden Dome](https://www.yahoo.com/news/army-looks-artificial-intelligence-enhance-173518282.html)
 - Mar 28 - [North Carolina judge challenging outcome of race wore Confederate uniform in college photo](https://www.yahoo.com/news/north-carolina-judge-challenging-outcome-160413471.html)
-- Mar 28 - [Astronomers Investigate Whether Dying Star's Blast of Deadly Gamma Radiation Will Hit Earth](https://www.yahoo.com/news/astronomers-investigate-whether-dying-stars-151304178.html)
 <!-- feed end -->
 
 ### Onstream
