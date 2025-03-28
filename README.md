@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [Autopsy expert says Diego Maradona was in agony in the hours before his death](https://www.yahoo.com/news/autopsy-expert-says-diego-maradona-003214715.html)
+- Mar 27 - [Man arrested for Las Vegas Tesla center fires reported car stolen hours after attack](https://www.yahoo.com/news/man-arrested-las-vegas-tesla-223608697.html)
+- Mar 27 - [After RFK Jr. recommends vitamin A as a measles treatment, some Texas patients show signs of toxicity](https://www.yahoo.com/news/after-rfk-jr-recommends-vitamin-a-as-a-measles-treatment-some-texas-patients-show-signs-of-toxicity-214353603.html)
 - Mar 27 - [King Charles taken to hospital after cancer treatment 'bump in the road'](https://www.yahoo.com/news/king-charles-experiences-temporary-side-211412636.html)
-- Mar 27 - [Macy's Is Closing Over 60 Stores—See if the One Near You Is GONE](https://finance.yahoo.com/news/macys-closing-over-60-stores-210000823.html)
 - Mar 27 - [Canada Announces Bombshell Break With U.S. Over Trump](https://www.yahoo.com/news/canada-announces-bombshell-break-u-205145430.html)
-- Mar 27 - [Gov. Andy Beshear says UofL should have conducted search for new president](https://www.yahoo.com/news/gov-andy-beshear-says-uofl-190911867.html)
-- Mar 27 - [Putin says US push for Greenland rooted in history, vows to uphold Russian interest in the Arctic](https://www.yahoo.com/news/putin-says-us-push-greenland-182852517.html)
 <!-- feed end -->
 
 ### Onstream
