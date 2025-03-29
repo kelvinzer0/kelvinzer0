@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [Fight between neighbors leads to deadly Pierce County, WA shooting](https://www.yahoo.com/news/fight-between-neighbors-leads-deadly-031325643.html)
 - Mar 29 - [Elon Musk Says Tesla Doesn't Need Lidar Because 'People Don't Shoot Lasers Out Of Their Eyes' After YouTubers Put His Cars Through Wylie E. Coyote Tests](https://finance.yahoo.com/news/elon-musk-says-tesla-doesnt-023035552.html)
 - Mar 29 - [Indiana Republican lawmaker's town hall a crowd-fest of boos and jeers as she defends Trump spending cuts](https://www.yahoo.com/news/indiana-republican-lawmakers-town-hall-005835730.html)
+- Mar 28 - [Grand jury indicts Oahu doctor after wife tells police he bashed her head at least 10 times with a rock after refusing selfie](https://www.yahoo.com/news/doctor-arrested-attempting-kill-wife-035735911.html)
 - Mar 28 - [Elon Musk sells X to his own xAI for $33 billion in all-stock deal](https://finance.yahoo.com/news/elon-musk-sells-x-own-225246177.html)
-- Mar 28 - [Video obtained by AP shows settler assault on small Palestinian village with rare clarity](https://www.yahoo.com/news/video-obtained-ap-shows-settler-223151284.html)
-- Mar 28 - [This Silent Condition  May Triple Dementia Risk—and Most Women Don’t Know They Have It](https://www.yahoo.com/lifestyle/silent-condition-may-triple-dementia-220000755.html)
 <!-- feed end -->
 
 ### Onstream
