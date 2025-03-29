@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 28 - [Elon Musk sells X to his own xAI for $33 billion in all-stock deal](https://finance.yahoo.com/news/elon-musk-sells-x-own-225246177.html)
-- Mar 28 - [Video obtained by AP shows settler assault on small Palestinian village with rare clarity](https://www.yahoo.com/news/video-obtained-ap-shows-settler-223151284.html)
-- Mar 28 - [DOJ documents reveal names of 20 people arrested, charged in FBI Lubbock drug bust](https://www.yahoo.com/news/doj-documents-reveal-names-20-215443346.html)
+- Mar 28 - [Police: Four teens in Wisconsin arrested for trespassing after caller reports smashing sounds](https://www.yahoo.com/news/police-four-teens-wisconsin-arrested-220916710.html)
+- Mar 28 - [A Pregnant Mom Fled a Violent Attack. Then Boyfriend Sent Photos Showing Her Kids Had Been Beaten, Too: Police](https://www.yahoo.com/entertainment/pregnant-mom-fled-violent-attack-213654459.html)
 - Mar 28 - [Elon Musk must face fraud lawsuit over disclosure of Twitter stake](https://finance.yahoo.com/news/elon-musk-must-face-fraud-213345833.html)
-- Mar 28 - [Resorts World casino in Las Vegas fined $10.5M in money-laundering case](https://www.yahoo.com/news/resorts-world-casino-las-vegas-193400078.html)
+- Mar 28 - [If you bought $1000 of Bitcoin in 2015, you’d have enough retirement money today](https://finance.yahoo.com/news/skipping-100-401-k-match-210900861.html)
 <!-- feed end -->
 
 ### Onstream
