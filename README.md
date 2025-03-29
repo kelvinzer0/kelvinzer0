@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [JD Vance and other officials told Trump to fire Waltz. There was just one reason he didn’t](https://www.yahoo.com/news/jd-vance-other-officials-told-215026834.html)
 - Mar 29 - [Hamas agrees to Gaza ceasefire proposal, the group's chief says](https://www.yahoo.com/news/hamas-agrees-ceasefire-proposal-received-193508109.html)
+- Mar 29 - [Zelenskiy says Ukraine expects strong Western response to Russian drone attacks](https://www.yahoo.com/news/zelenskiy-says-ukraine-expects-strong-192607437.html)
 - Mar 29 - [Famous comedian arrested on drug charge in Burbank, police say](https://www.yahoo.com/news/famous-comedian-arrested-drug-charge-192423905.html)
 - Mar 29 - [Protesters rebelling against Elon Musk's purge of US government swarm Tesla showrooms](https://www.yahoo.com/news/protesters-rebelling-against-elon-musks-181354214.html)
-- Mar 29 - [Trump seeks even more aggressive tariffs to fundamentally transform the US economy and eyes a single universal duty, report says](https://www.yahoo.com/news/trump-seeks-even-more-aggressive-173026720.html)
-- Mar 29 - [Former Nevada state senator’s son killed in shooting at North Las Vegas casino](https://www.yahoo.com/news/former-nevada-state-senator-son-165117837.html)
 <!-- feed end -->
 
 ### Onstream
