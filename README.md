@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [ICE detains U of M student at Twin Cities campus, officials say](https://www.yahoo.com/news/ice-detains-u-m-student-234427253.html)
 - Mar 28 - [Elon Musk sells X to his own xAI for $33 billion in all-stock deal](https://finance.yahoo.com/news/elon-musk-sells-x-own-225246177.html)
+- Mar 28 - [Video obtained by AP shows settler assault on small Palestinian village with rare clarity](https://www.yahoo.com/news/video-obtained-ap-shows-settler-223151284.html)
 - Mar 28 - [Elon Musk must face fraud lawsuit over disclosure of Twitter stake](https://finance.yahoo.com/news/elon-musk-must-face-fraud-213345833.html)
-- Mar 28 - [Charlie Munger Lived in the Same House for 70 Years—And Thought Fancy Homes Just Make People Miserable:  'Having a Basic House Really Helps You'](https://finance.yahoo.com/news/charlie-munger-lived-same-house-203031744.html)
-- Mar 28 - [CIA found the Ark of the Covenant by using psychics, declassified files claim](https://www.yahoo.com/news/cia-found-ark-covenant-using-104441588.html)
+- Mar 28 - [If you bought $1000 of Bitcoin in 2015, you’d have enough retirement money today](https://finance.yahoo.com/news/skipping-100-401-k-match-210900861.html)
+- Mar 28 - [Resorts World casino in Las Vegas fined $10.5M in money-laundering case](https://www.yahoo.com/news/resorts-world-casino-las-vegas-193400078.html)
 <!-- feed end -->
 
 ### Onstream
