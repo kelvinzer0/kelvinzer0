@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 29 - [Elon Musk Says Tesla Doesn't Need Lidar Because 'People Don't Shoot Lasers Out Of Their Eyes' After YouTubers Put His Cars Through Wylie E. Coyote Tests](https://finance.yahoo.com/news/elon-musk-says-tesla-doesnt-023035552.html)
+- Mar 29 - [Thai minister hopeful, but time running out for people buried under Bangkok high rise rubble](https://www.yahoo.com/news/thai-minister-hopeful-time-running-094627137.html)
 - Mar 29 - [Indiana Republican lawmaker's town hall a crowd-fest of boos and jeers as she defends Trump spending cuts](https://www.yahoo.com/news/indiana-republican-lawmakers-town-hall-005835730.html)
 - Mar 28 - [Grand jury indicts Oahu doctor after wife tells police he bashed her head at least 10 times with a rock after refusing selfie](https://www.yahoo.com/news/doctor-arrested-attempting-kill-wife-035735911.html)
 - Mar 28 - [Elon Musk sells X to his own xAI for $33 billion in all-stock deal](https://finance.yahoo.com/news/elon-musk-sells-x-own-225246177.html)
