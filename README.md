@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Tariffs begin, March jobs report, earnings: What to Watch](https://finance.yahoo.com/video/tariffs-begin-march-jobs-report-230000949.html)
-- Mar 28 - [At least 3 deaths reported after over a half year’s worth of rain forces water rescues in parts of South Texas](https://www.yahoo.com/news/multiple-water-rescues-conducted-amid-082306023.html)
-- Mar 28 - [X Acquired by Elon Musk’s AI Company for $45 Billion](https://finance.yahoo.com/news/x-acquired-elon-musk-ai-213815258.html)
-- Mar 28 - [A Pregnant Mom Fled a Violent Attack. Then Boyfriend Sent Photos Showing Her Kids Had Been Beaten, Too: Police](https://www.yahoo.com/entertainment/pregnant-mom-fled-violent-attack-213654459.html)
-- Mar 28 - [JD Vance ruthlessly mocked after everyone in Greenland refused to welcome wife Usha Vance](https://www.yahoo.com/news/jd-vance-ruthlessly-mocked-everyone-203526936.html)
+- Mar 28 - [Elon Musk sells X to his own xAI for $33 billion in all-stock deal](https://finance.yahoo.com/news/elon-musk-sells-x-own-225246177.html)
+- Mar 28 - [Social Media Shocked By What JD Vance Said About Trump In Greenland](https://www.yahoo.com/news/social-media-shocked-jd-vance-223658845.html)
+- Mar 28 - [Video obtained by AP shows settler assault on small Palestinian village with rare clarity](https://www.yahoo.com/news/video-obtained-ap-shows-settler-223151284.html)
+- Mar 28 - [Elon Musk must face fraud lawsuit over disclosure of Twitter stake](https://finance.yahoo.com/news/elon-musk-must-face-fraud-213345833.html)
+- Mar 28 - [Charlie Munger Lived in the Same House for 70 Years—And Thought Fancy Homes Just Make People Miserable:  'Having a Basic House Really Helps You'](https://finance.yahoo.com/news/charlie-munger-lived-same-house-203031744.html)
 <!-- feed end -->
 
 ### Onstream
