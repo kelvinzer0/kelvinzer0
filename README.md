@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 29 - [Prince Harry accused of ‘harassment and bullying at scale’ by charity boss](https://www.yahoo.com/lifestyle/chair-prince-harry-south-africa-102758052.html)
-- Mar 29 - [3 found dead in suspected Scottsdale murder-suicide were dad, mom and teen daughter](https://www.yahoo.com/news/3-found-dead-suspected-scottsdale-194606764.html)
 - Mar 29 - [Hamas agrees to Gaza ceasefire proposal, the group's chief says](https://www.yahoo.com/news/hamas-agrees-ceasefire-proposal-received-193508109.html)
+- Mar 29 - [Famous comedian arrested on drug charge in Burbank, police say](https://www.yahoo.com/news/famous-comedian-arrested-drug-charge-192423905.html)
 - Mar 29 - [Protesters rebelling against Elon Musk's purge of US government swarm Tesla showrooms](https://www.yahoo.com/news/protesters-rebelling-against-elon-musks-181354214.html)
+- Mar 29 - [Trump seeks even more aggressive tariffs to fundamentally transform the US economy and eyes a single universal duty, report says](https://www.yahoo.com/news/trump-seeks-even-more-aggressive-173026720.html)
 - Mar 29 - [Former Nevada state senator’s son killed in shooting at North Las Vegas casino](https://www.yahoo.com/news/former-nevada-state-senator-son-165117837.html)
 <!-- feed end -->
 
