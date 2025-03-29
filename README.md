@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 29 - [Prince Harry accused of ‘harassment and bullying at scale’ by charity boss](https://www.yahoo.com/lifestyle/chair-prince-harry-south-africa-102758052.html)
-- Mar 29 - [Venice says it will host Bezos wedding and denies reports of possible disruptions for the city](https://www.yahoo.com/news/venice-says-host-bezos-wedding-194123059.html)
-- Mar 29 - [Blind people set to lose thousands in benefits still cannot read details of Labour’s welfare reform plans](https://www.yahoo.com/news/blind-people-set-lose-thousands-161850818.html)
+- Mar 29 - [3 found dead in suspected Scottsdale murder-suicide were dad, mom and teen daughter](https://www.yahoo.com/news/3-found-dead-suspected-scottsdale-194606764.html)
+- Mar 29 - [Hamas agrees to Gaza ceasefire proposal, the group's chief says](https://www.yahoo.com/news/hamas-agrees-ceasefire-proposal-received-193508109.html)
 - Mar 29 - [Protesters rebelling against Elon Musk's purge of US government swarm Tesla showrooms](https://www.yahoo.com/news/protesters-rebelling-against-elon-musks-181354214.html)
 - Mar 29 - [Former Nevada state senator’s son killed in shooting at North Las Vegas casino](https://www.yahoo.com/news/former-nevada-state-senator-son-165117837.html)
 <!-- feed end -->
