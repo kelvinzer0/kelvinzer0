@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 29 - [Several Tesla cars burn down in the north of Germany](https://www.yahoo.com/news/several-tesla-cars-burn-down-162743155.html)
-- Mar 29 - [What To Do With Your Money If Trump Changes the FDIC](https://finance.yahoo.com/news/money-trump-changes-fdic-130247177.html)
+- Mar 29 - [Blind people set to lose thousands in benefits still cannot read details of Labour’s welfare reform plans](https://www.yahoo.com/news/blind-people-set-lose-thousands-161850818.html)
+- Mar 29 - [Protesters rebelling against Elon Musk's purge of US government swarm Tesla showrooms](https://www.yahoo.com/news/protesters-rebelling-against-elon-musks-181354214.html)
+- Mar 29 - [Social Security employee warns ‘people could be out of benefits for months’ as staffers who fix payment glitches exit](https://www.yahoo.com/news/social-security-employee-warns-people-153300562.html)
+- Mar 29 - [GM storing poor-selling Canadian-made electric vans on Michigan lot](https://finance.yahoo.com/news/gm-storing-poor-selling-canadian-150034015.html)
 - Mar 29 - [Bleak images show snapshots of daily life in the closed world of North Korea](https://www.yahoo.com/news/bleak-images-show-snapshots-daily-163810254.html)
-- Mar 29 - [‘I'm a Nutritionist, and I Tell Everyone to Avoid These 4 Foods If They Want to Lose Belly Fat'](https://www.yahoo.com/lifestyle/im-nutritionist-tell-everyone-avoid-130000590.html)
-- Mar 29 - [Opinion - Trump’s response to bird flu could be the defining test of his second term](https://www.yahoo.com/news/opinion-trump-response-bird-flu-130000885.html)
 <!-- feed end -->
 
 ### Onstream
