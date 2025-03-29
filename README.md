@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [Prince Harry accused of ‘harassment and bullying at scale’ by charity boss](https://www.yahoo.com/lifestyle/chair-prince-harry-south-africa-102758052.html)
+- Mar 29 - [Venice says it will host Bezos wedding and denies reports of possible disruptions for the city](https://www.yahoo.com/news/venice-says-host-bezos-wedding-194123059.html)
 - Mar 29 - [Blind people set to lose thousands in benefits still cannot read details of Labour’s welfare reform plans](https://www.yahoo.com/news/blind-people-set-lose-thousands-161850818.html)
 - Mar 29 - [Protesters rebelling against Elon Musk's purge of US government swarm Tesla showrooms](https://www.yahoo.com/news/protesters-rebelling-against-elon-musks-181354214.html)
-- Mar 29 - [Social Security employee warns ‘people could be out of benefits for months’ as staffers who fix payment glitches exit](https://www.yahoo.com/news/social-security-employee-warns-people-153300562.html)
-- Mar 29 - [GM storing poor-selling Canadian-made electric vans on Michigan lot](https://finance.yahoo.com/news/gm-storing-poor-selling-canadian-150034015.html)
-- Mar 29 - [Bleak images show snapshots of daily life in the closed world of North Korea](https://www.yahoo.com/news/bleak-images-show-snapshots-daily-163810254.html)
+- Mar 29 - [Former Nevada state senator’s son killed in shooting at North Las Vegas casino](https://www.yahoo.com/news/former-nevada-state-senator-son-165117837.html)
 <!-- feed end -->
 
 ### Onstream
