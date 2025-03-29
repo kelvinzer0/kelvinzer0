@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 29 - [Death toll in Myanmar earthquake tops 1,600; 18 million people impacted](https://www.yahoo.com/news/death-toll-myanmar-earthquake-tops-152246846.html)
+- Mar 29 - [Several Tesla cars burn down in the north of Germany](https://www.yahoo.com/news/several-tesla-cars-burn-down-162743155.html)
+- Mar 29 - [Blind people set to lose thousands in benefits still cannot read details of Labour’s welfare reform plans](https://www.yahoo.com/news/blind-people-set-lose-thousands-161850818.html)
+- Mar 29 - [I-10 Eastbound wreck snarls traffic for miles as Springtime brings thousands to Tallahassee](https://www.yahoo.com/news/10-eastbound-wreck-snarls-traffic-160616905.html)
 - Mar 29 - [What To Do With Your Money If Trump Changes the FDIC](https://finance.yahoo.com/news/money-trump-changes-fdic-130247177.html)
 - Mar 29 - [Bleak images show snapshots of daily life in the closed world of North Korea](https://www.yahoo.com/news/bleak-images-show-snapshots-daily-163810254.html)
-- Mar 29 - [Rescuers search for survivors at collapsed building in Bangkok](https://www.yahoo.com/news/rescuers-search-survivors-collapsed-building-114907435.html)
-- Mar 29 - [Scientists make mind-blowing discovery about llama-like animal's waste product: 'It's interesting to see'](https://www.yahoo.com/news/scientists-mind-blowing-discovery-llama-104525755.html)
 <!-- feed end -->
 
 ### Onstream
