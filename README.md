@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [Indiana Republican lawmaker's town hall a crowd-fest of boos and jeers as she defends Trump spending cuts](https://www.yahoo.com/news/indiana-republican-lawmakers-town-hall-005835730.html)
 - Mar 28 - [Elon Musk sells X to his own xAI for $33 billion in all-stock deal](https://finance.yahoo.com/news/elon-musk-sells-x-own-225246177.html)
-- Mar 28 - [Social Media Shocked By What JD Vance Said About Trump In Greenland](https://www.yahoo.com/news/social-media-shocked-jd-vance-223658845.html)
-- Mar 28 - [Video obtained by AP shows settler assault on small Palestinian village with rare clarity](https://www.yahoo.com/news/video-obtained-ap-shows-settler-223151284.html)
-- Mar 28 - [Elon Musk must face fraud lawsuit over disclosure of Twitter stake](https://finance.yahoo.com/news/elon-musk-must-face-fraud-213345833.html)
-- Mar 28 - [Charlie Munger Lived in the Same House for 70 Years—And Thought Fancy Homes Just Make People Miserable:  'Having a Basic House Really Helps You'](https://finance.yahoo.com/news/charlie-munger-lived-same-house-203031744.html)
+- Mar 28 - [CIA found the Ark of the Covenant by using psychics, declassified files claim](https://www.yahoo.com/news/cia-found-ark-covenant-using-104441588.html)
+- Mar 28 - [Charlie Javice guilty of defrauding JPMorgan into buying college aid startup](https://finance.yahoo.com/news/charlie-javice-founder-startup-bought-190147924.html)
+- Mar 28 - [What to know about Carlo Acutis, the Catholic Church’s new millennial saint](https://www.yahoo.com/news/know-carlo-acutis-catholic-church-185323346.html)
 <!-- feed end -->
 
 ### Onstream
