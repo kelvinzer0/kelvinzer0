@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 29 - [War zone innovation: For Palestinians, survival has meant creativity](https://www.yahoo.com/news/war-zone-innovation-palestinians-survival-130006853.html)
 - Mar 29 - [A woman who lost 130 pounds shares 7 changes she wasn't expecting — from people being nicer to her to food tasting different](https://www.yahoo.com/lifestyle/woman-lost-130-pounds-shares-113601600.html)
-- Mar 29 - [Country music singers urge Congress to support PEPFAR and end AIDS epidemic | Letters](https://www.yahoo.com/news/country-music-singers-urge-congress-110036233.html)
 - Mar 29 - [SSI recipients will get April check on regular schedule, but upcoming months will vary](https://finance.yahoo.com/news/ssi-recipients-april-check-regular-100107255.html)
+- Mar 29 - [Trump Accidentally Wrecks His Own Tariff Spin in Leaked Call Stunner](https://www.yahoo.com/news/trump-accidentally-wrecks-own-tariff-100000332.html)
 - Mar 29 - [Women Going Through Menopause Are Sharing The Exact Moment They Knew Something Had Changed With Their Bodies](https://www.yahoo.com/lifestyle/women-going-menopause-sharing-exact-091602303.html)
+- Mar 29 - [Comedy influencer rips California law doubling his ambulance bill after he provided proof of insurance](https://www.yahoo.com/news/comedy-influencer-rips-california-law-090046921.html)
 <!-- feed end -->
 
 ### Onstream
