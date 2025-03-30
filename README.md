@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Maryland State Police investigating inmate death at Somerset County's ECI prison](https://www.yahoo.com/news/maryland-state-police-investigating-inmate-171842374.html)
+- Mar 30 - [‘I was telling my baby, don’t come out yet’: Woman gives birth to daughter during Myanmar earthquake](https://www.yahoo.com/news/telling-baby-don-t-come-140214306.html)
+- Mar 30 - [Submarine carrying tonnes of cocaine seized with help of UK police](https://www.yahoo.com/news/submarine-carrying-tonnes-cocaine-seized-170838581.html)
 - Mar 30 - [Trump says he is not joking about third presidential term](https://www.yahoo.com/news/trump-says-not-joking-third-170159890.html)
-- Mar 30 - [The tariff-proof trade no one is talking about](https://finance.yahoo.com/video/tariff-proof-trade-no-one-170000457.html)
 - Mar 30 - [Bennet says Gabbard and Ratcliffe ‘lied repeatedly’ to Congress about Signal chat: Full interview](https://www.yahoo.com/news/bennet-says-gabbard-ratcliffe-lied-140936314.html)
 - Mar 30 - ['Not currently priced in': What Wall Street is saying about Trump's April tariff deadline](https://finance.yahoo.com/news/not-currently-priced-in-what-wall-street-is-saying-about-trumps-april-tariff-deadline-130002337.html)
 <!-- feed end -->
