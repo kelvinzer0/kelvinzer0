@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Recession vs. Stagflation and Jobs. Economist Weighs in on What’s Next](https://finance.yahoo.com/video/recession-vs-stagflation-jobs-economist-100000714.html)
+- Mar 30 - [A new car costs nearly $50K, $10K more than 5 years ago. Here are the financial realities of buying a new car](https://finance.yahoo.com/news/car-costs-nearly-50k-10k-114500006.html)
+- Mar 30 - [Social Security beneficiaries receiving mysterious $6K deposits. Here’s why and how to tell if it’s legit](https://finance.yahoo.com/news/social-security-beneficiaries-receiving-mysterious-113000787.html)
+- Mar 30 - [Avoid sugary soda, play pickleball, eat peanut butter and jelly — plus 10 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/avoid-sugary-soda-play-pickleball-eat-peanut-butter-and-jelly--plus-10-more-health-tips-to-help-you-have-a-great-week-090036488.html)
+- Mar 30 - [Wordle hints today for #1,380: Clues and answer for Sunday, March 30](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1380-clues-and-answer-for-sunday-march-30-040145762.html)
 - Mar 30 - [Louisiana voters reject 4 constitutional amendments, handing Landry major defeat](https://www.yahoo.com/news/louisiana-voters-reject-4-constitutional-025549216.html)
-- Mar 30 - [Scientists hope hungry weevils from Louisiana can tackle South Africa's invasive water plants](https://www.yahoo.com/news/scientists-hope-hungry-weevils-louisiana-023231580.html)
-- Mar 30 - [Trump tells NBC he 'couldn't care less' if car makers hike prices due to tariffs](https://www.yahoo.com/news/trump-tells-nbc-couldnt-care-000557253.html)
-- Mar 29 - [Trump administration reportedly moves to ban Jackie Robinson biography from Naval Academy library](https://sports.yahoo.com/mlb/article/trump-administration-reportedly-moves-to-ban-jackie-robinson-biography-from-naval-academy-library-235013259.html)
 <!-- feed end -->
 
 ### Onstream
