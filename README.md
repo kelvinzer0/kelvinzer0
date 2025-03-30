@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Tsunami warning as strong 7.1 magnitude earthquake hits near Tonga](https://www.yahoo.com/news/tsunami-warning-strong-7-1-130207470.html)
-- Mar 30 - [German space rocket explodes seconds after takeoff from Norway](https://finance.yahoo.com/video/german-space-rocket-explodes-seconds-153605010.html)
+- Mar 30 - [Maryland State Police investigating inmate death at Somerset County's ECI prison](https://www.yahoo.com/news/maryland-state-police-investigating-inmate-171842374.html)
+- Mar 30 - [Trump says he is not joking about third presidential term](https://www.yahoo.com/news/trump-says-not-joking-third-170159890.html)
+- Mar 30 - [The tariff-proof trade no one is talking about](https://finance.yahoo.com/video/tariff-proof-trade-no-one-170000457.html)
 - Mar 30 - [Bennet says Gabbard and Ratcliffe ‘lied repeatedly’ to Congress about Signal chat: Full interview](https://www.yahoo.com/news/bennet-says-gabbard-ratcliffe-lied-140936314.html)
-- Mar 30 - [Social Security beneficiaries receiving mysterious $6K deposits. Here’s why and how to tell if it’s legit](https://finance.yahoo.com/news/social-security-beneficiaries-receiving-mysterious-113000787.html)
-- Mar 30 - [KC man tackled, handcuffed at church after unauthorized but straight-from-Jesus prayer | Opinion](https://www.yahoo.com/news/kc-man-tackled-handcuffed-church-100600835.html)
+- Mar 30 - ['Not currently priced in': What Wall Street is saying about Trump's April tariff deadline](https://finance.yahoo.com/news/not-currently-priced-in-what-wall-street-is-saying-about-trumps-april-tariff-deadline-130002337.html)
 <!-- feed end -->
 
 ### Onstream
