@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [UPDATES: Severe weather expected in Tri-State on Sunday evening](https://www.yahoo.com/news/updates-severe-weather-expected-tri-185823987.html)
-- Mar 30 - [GM and Ford leaders' messages to employees indicate impact from Trump tariffs](https://finance.yahoo.com/news/gm-ford-leaders-messages-employees-183926722.html)
+- Mar 30 - [AP Top Stories March 30 P](https://www.yahoo.com/news/ap-top-stories-march-30-211718215.html)
+- Mar 30 - [Why Quantum Computing Inc. (QUBT) Is Plunging In 2025?](https://finance.yahoo.com/news/why-quantum-computing-inc-qubt-210153670.html)
+- Mar 30 - [James Carville says Trump administration has already ‘collapsed’: ‘Happened Even Faster Than I Could Imagine’](https://www.yahoo.com/news/james-carville-says-trump-administration-185058787.html)
 - Mar 30 - [US Senate Republican Ron Johnson says advancing Trump agenda depends on spending cuts](https://www.yahoo.com/news/us-senate-republican-ron-johnson-173936162.html)
 - Mar 30 - [Trump says he is not joking about third presidential term](https://www.yahoo.com/news/trump-says-not-joking-third-170159890.html)
-- Mar 30 - [The 'tariff-proof' sector no one's talking about](https://finance.yahoo.com/news/the-tariff-proof-sector-no-ones-talking-about-154934005.html)
 <!-- feed end -->
 
 ### Onstream
