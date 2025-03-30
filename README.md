@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 29 - [JD Vance and other officials told Trump to fire Waltz. There was just one reason he didn’t](https://www.yahoo.com/news/jd-vance-other-officials-told-215026834.html)
+- Mar 30 - [Trump Says He “Couldn’t Care Less” If Car Prices Go Up Due To Tariffs: “People Are Gonna Buy American-Made”](https://www.yahoo.com/news/trump-says-couldn-t-care-004202759.html)
+- Mar 29 - [Shouted questions at Trump have consequences: New actions by White House](https://www.yahoo.com/news/shouted-questions-trump-consequences-actions-210000625.html)
 - Mar 29 - [Hamas agrees to Gaza ceasefire proposal, the group's chief says](https://www.yahoo.com/news/hamas-agrees-ceasefire-proposal-received-193508109.html)
-- Mar 29 - [Zelenskiy says Ukraine expects strong Western response to Russian drone attacks](https://www.yahoo.com/news/zelenskiy-says-ukraine-expects-strong-192607437.html)
-- Mar 29 - [Famous comedian arrested on drug charge in Burbank, police say](https://www.yahoo.com/news/famous-comedian-arrested-drug-charge-192423905.html)
+- Mar 29 - [Comedy icon arrested on drug charge in Burbank](https://www.yahoo.com/news/famous-comedian-arrested-drug-charge-192423905.html)
 - Mar 29 - [Protesters rebelling against Elon Musk's purge of US government swarm Tesla showrooms](https://www.yahoo.com/news/protesters-rebelling-against-elon-musks-181354214.html)
 <!-- feed end -->
 
