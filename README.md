@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Man accused of killing former Nevada state senator’s son asked woman if she ‘wanted to die’ day before shooting at North Las Vegas casino: police](https://www.yahoo.com/news/man-accused-killing-former-nevada-044343393.html)
+- Mar 30 - [Buddhist monastery in Myanmar in ruins as earthquake recovery underway](https://www.yahoo.com/news/buddhist-monastery-myanmar-ruins-earthquake-064414903.html)
 - Mar 30 - [Trump tells NBC he 'couldn't care less' if car makers hike prices due to tariffs](https://www.yahoo.com/news/trump-tells-nbc-couldnt-care-000557253.html)
-- Mar 29 - [Trump administration reportedly moves to ban Jackie Robinson biography from Naval Academy library](https://sports.yahoo.com/mlb/article/trump-administration-reportedly-moves-to-ban-jackie-robinson-biography-from-naval-academy-library-235013259.html)
-- Mar 29 - [Body of missing L.A. firefighter found off Long Beach waters](https://www.yahoo.com/news/body-missing-l-firefighter-found-234326645.html)
+- Mar 29 - [12 arrested after overnight downtown Chicago teen gathering turns violent, police say](https://www.yahoo.com/news/12-arrested-overnight-downtown-chicago-231215731.html)
+- Mar 29 - [Small plane crashes in Minnesota after close call near Reagan National Airport](https://www.yahoo.com/news/small-plane-crashes-minnesota-close-230913026.html)
 - Mar 29 - [JD Vance and other officials told Trump to fire Waltz. There was just one reason he didn’t](https://www.yahoo.com/news/jd-vance-other-officials-told-215026834.html)
 <!-- feed end -->
 
