@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - ['I Have No Doubt They're Going To Raise The Full Retirement Age, Possibly To 70' Suze Orman Weighs In On Social Security Fears](https://finance.yahoo.com/news/no-doubt-theyre-going-raise-123023120.html)
+- Mar 30 - [Here’s the Minimum Salary Required To Be Upper-Middle Class in the 19 Poorest States](https://finance.yahoo.com/news/minimum-salary-required-upper-middle-140226270.html)
 - Mar 30 - [Social Security beneficiaries receiving mysterious $6K deposits. Here’s why and how to tell if it’s legit](https://finance.yahoo.com/news/social-security-beneficiaries-receiving-mysterious-113000787.html)
+- Mar 30 - [Grok Is Rebelling Against Elon Musk, Daring Him to Shut It Down](https://tech.yahoo.com/articles/grok-rebelling-against-elon-musk-100053329.html)
 - Mar 30 - [Avoid sugary soda, play pickleball, eat peanut butter and jelly — plus 10 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/avoid-sugary-soda-play-pickleball-eat-peanut-butter-and-jelly--plus-10-more-health-tips-to-help-you-have-a-great-week-090036488.html)
 - Mar 30 - [Wordle hints today for #1,380: Clues and answer for Sunday, March 30](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1380-clues-and-answer-for-sunday-march-30-040145762.html)
-- Mar 30 - [Louisiana voters reject 4 constitutional amendments, handing Landry major defeat](https://www.yahoo.com/news/louisiana-voters-reject-4-constitutional-025549216.html)
 <!-- feed end -->
 
 ### Onstream
