@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [‘I was telling my baby, don’t come out yet’: Woman gives birth to daughter during Myanmar earthquake](https://www.yahoo.com/news/telling-baby-don-t-come-140214306.html)
-- Mar 30 - [Submarine carrying tonnes of cocaine seized with help of UK police](https://www.yahoo.com/news/submarine-carrying-tonnes-cocaine-seized-170838581.html)
+- Mar 30 - ["Phoenix, Arizona": People Are Not Holding Back Their Hatred For These 19 Cities, And The Reasons They "Should Have Never Been Populated"](https://www.yahoo.com/lifestyle/phoenix-arizona-people-not-holding-193102833.html)
 - Mar 30 - [Trump says he is not joking about third presidential term](https://www.yahoo.com/news/trump-says-not-joking-third-170159890.html)
-- Mar 30 - [Bennet says Gabbard and Ratcliffe ‘lied repeatedly’ to Congress about Signal chat: Full interview](https://www.yahoo.com/news/bennet-says-gabbard-ratcliffe-lied-140936314.html)
+- Mar 30 - [The 'tariff-proof' sector no one's talking about](https://finance.yahoo.com/news/the-tariff-proof-sector-no-ones-talking-about-154934005.html)
+- Mar 30 - [German space rocket explodes seconds after takeoff from Norway](https://finance.yahoo.com/video/german-space-rocket-explodes-seconds-153605010.html)
 - Mar 30 - ['Not currently priced in': What Wall Street is saying about Trump's April tariff deadline](https://finance.yahoo.com/news/not-currently-priced-in-what-wall-street-is-saying-about-trumps-april-tariff-deadline-130002337.html)
 <!-- feed end -->
 
