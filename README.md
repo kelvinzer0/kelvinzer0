@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 30 - [Trump Says He “Couldn’t Care Less” If Car Prices Go Up Due To Tariffs: “People Are Gonna Buy American-Made”](https://www.yahoo.com/news/trump-says-couldn-t-care-004202759.html)
-- Mar 30 - [14 People Who Died In The Most Horrifying, Disturbing, And "Please Don't Let This Happen To Me!" Ways](https://www.yahoo.com/lifestyle/14-people-died-most-horrifying-003104573.html)
 - Mar 30 - [Trump tells NBC he 'couldn't care less' if car makers hike prices due to tariffs](https://www.yahoo.com/news/trump-tells-nbc-couldnt-care-000557253.html)
 - Mar 29 - [Trump administration reportedly moves to ban Jackie Robinson biography from Naval Academy library](https://sports.yahoo.com/mlb/article/trump-administration-reportedly-moves-to-ban-jackie-robinson-biography-from-naval-academy-library-235013259.html)
 - Mar 29 - [Small plane crashes in Minnesota after close call near Reagan National Airport](https://www.yahoo.com/news/small-plane-crashes-minnesota-close-230913026.html)
+- Mar 29 - [Woman struggles to keep up with overgrown, littered sidewalks near Youngstown school](https://www.yahoo.com/news/woman-struggles-keep-overgrown-littered-222626302.html)
 <!-- feed end -->
 
 ### Onstream
