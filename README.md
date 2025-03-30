@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [AP Top Stories March 30 P](https://www.yahoo.com/news/ap-top-stories-march-30-211718215.html)
-- Mar 30 - [Why Quantum Computing Inc. (QUBT) Is Plunging In 2025?](https://finance.yahoo.com/news/why-quantum-computing-inc-qubt-210153670.html)
+- Mar 30 - [Historic tree to be cut down at the White House over safety concerns](https://www.yahoo.com/news/historic-tree-cut-down-white-214556643.html)
 - Mar 30 - [James Carville says Trump administration has already ‘collapsed’: ‘Happened Even Faster Than I Could Imagine’](https://www.yahoo.com/news/james-carville-says-trump-administration-185058787.html)
 - Mar 30 - [US Senate Republican Ron Johnson says advancing Trump agenda depends on spending cuts](https://www.yahoo.com/news/us-senate-republican-ron-johnson-173936162.html)
+- Mar 30 - [Popular pizza chain battles key customer problem](https://finance.yahoo.com/news/popular-pizza-chain-contends-key-171407647.html)
 - Mar 30 - [Trump says he is not joking about third presidential term](https://www.yahoo.com/news/trump-says-not-joking-third-170159890.html)
 <!-- feed end -->
 
