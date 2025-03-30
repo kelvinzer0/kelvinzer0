@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - ["Phoenix, Arizona": People Are Not Holding Back Their Hatred For These 19 Cities, And The Reasons They "Should Have Never Been Populated"](https://www.yahoo.com/lifestyle/phoenix-arizona-people-not-holding-193102833.html)
+- Mar 30 - [UPDATES: Severe weather expected in Tri-State on Sunday evening](https://www.yahoo.com/news/updates-severe-weather-expected-tri-185823987.html)
+- Mar 30 - [GM and Ford leaders' messages to employees indicate impact from Trump tariffs](https://finance.yahoo.com/news/gm-ford-leaders-messages-employees-183926722.html)
+- Mar 30 - [US Senate Republican Ron Johnson says advancing Trump agenda depends on spending cuts](https://www.yahoo.com/news/us-senate-republican-ron-johnson-173936162.html)
 - Mar 30 - [Trump says he is not joking about third presidential term](https://www.yahoo.com/news/trump-says-not-joking-third-170159890.html)
 - Mar 30 - [The 'tariff-proof' sector no one's talking about](https://finance.yahoo.com/news/the-tariff-proof-sector-no-ones-talking-about-154934005.html)
-- Mar 30 - [German space rocket explodes seconds after takeoff from Norway](https://finance.yahoo.com/video/german-space-rocket-explodes-seconds-153605010.html)
-- Mar 30 - ['Not currently priced in': What Wall Street is saying about Trump's April tariff deadline](https://finance.yahoo.com/news/not-currently-priced-in-what-wall-street-is-saying-about-trumps-april-tariff-deadline-130002337.html)
 <!-- feed end -->
 
 ### Onstream
