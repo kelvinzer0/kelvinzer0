@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Louisiana voters reject 4 constitutional amendments, handing Landry major defeat](https://www.yahoo.com/news/louisiana-voters-reject-4-constitutional-025549216.html)
+- Mar 30 - [Trout arriving for fishing at waterholes near you in central Ohio](https://www.yahoo.com/news/trout-arriving-fishing-waterholes-near-090514476.html)
+- Mar 30 - [Scientists hope hungry weevils from Louisiana can tackle South Africa's invasive water plants](https://www.yahoo.com/news/scientists-hope-hungry-weevils-louisiana-023231580.html)
 - Mar 30 - [Trump tells NBC he 'couldn't care less' if car makers hike prices due to tariffs](https://www.yahoo.com/news/trump-tells-nbc-couldnt-care-000557253.html)
-- Mar 29 - [12 arrested after overnight downtown Chicago teen gathering turns violent, police say](https://www.yahoo.com/news/12-arrested-overnight-downtown-chicago-231215731.html)
 - Mar 29 - [JD Vance and other officials told Trump to fire Waltz. There was just one reason he didn’t](https://www.yahoo.com/news/jd-vance-other-officials-told-215026834.html)
 - Mar 29 - [Shouted questions at Trump have consequences: New actions by White House](https://www.yahoo.com/news/shouted-questions-trump-consequences-actions-210000625.html)
 <!-- feed end -->
