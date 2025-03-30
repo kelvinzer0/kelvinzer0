@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Power outages sweep across Northern Michigan due to ice storm](https://www.yahoo.com/news/power-outages-sweep-across-northern-130454445.html)
+- Mar 30 - [Tsunami warning as strong 7.1 magnitude earthquake hits near Tonga](https://www.yahoo.com/news/tsunami-warning-strong-7-1-130207470.html)
+- Mar 30 - [German space rocket explodes seconds after takeoff from Norway](https://finance.yahoo.com/video/german-space-rocket-explodes-seconds-153605010.html)
+- Mar 30 - [Bennet says Gabbard and Ratcliffe ‘lied repeatedly’ to Congress about Signal chat: Full interview](https://www.yahoo.com/news/bennet-says-gabbard-ratcliffe-lied-140936314.html)
 - Mar 30 - [Social Security beneficiaries receiving mysterious $6K deposits. Here’s why and how to tell if it’s legit](https://finance.yahoo.com/news/social-security-beneficiaries-receiving-mysterious-113000787.html)
-- Mar 30 - [Government issues warning after millions of liters of acid are spilled into major waterway: 'Disaster'](https://www.yahoo.com/news/government-issues-warning-millions-liters-101546934.html)
-- Mar 30 - [Grok Is Rebelling Against Elon Musk, Daring Him to Shut It Down](https://tech.yahoo.com/articles/grok-rebelling-against-elon-musk-100053329.html)
-- Mar 30 - [Avoid sugary soda, play pickleball, eat peanut butter and jelly — plus 10 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/avoid-sugary-soda-play-pickleball-eat-peanut-butter-and-jelly--plus-10-more-health-tips-to-help-you-have-a-great-week-090036488.html)
+- Mar 30 - [KC man tackled, handcuffed at church after unauthorized but straight-from-Jesus prayer | Opinion](https://www.yahoo.com/news/kc-man-tackled-handcuffed-church-100600835.html)
 <!-- feed end -->
 
 ### Onstream
