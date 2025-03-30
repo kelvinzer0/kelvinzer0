@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Trump Says He “Couldn’t Care Less” If Car Prices Go Up Due To Tariffs: “People Are Gonna Buy American-Made”](https://www.yahoo.com/news/trump-says-couldn-t-care-004202759.html)
-- Mar 30 - [Sewage truck overturns, spills in Cumberland Co. street](https://www.yahoo.com/news/sewage-truck-overturns-spills-cumberland-004013388.html)
+- Mar 30 - [Man accused of killing former Nevada state senator’s son asked woman if she ‘wanted to die’ day before shooting at North Las Vegas casino: police](https://www.yahoo.com/news/man-accused-killing-former-nevada-044343393.html)
 - Mar 30 - [Trump tells NBC he 'couldn't care less' if car makers hike prices due to tariffs](https://www.yahoo.com/news/trump-tells-nbc-couldnt-care-000557253.html)
-- Mar 29 - [Shouted questions at Trump have consequences: New actions by White House](https://www.yahoo.com/news/shouted-questions-trump-consequences-actions-210000625.html)
-- Mar 29 - [Hamas agrees to Gaza ceasefire proposal, the group's chief says](https://www.yahoo.com/news/hamas-agrees-ceasefire-proposal-received-193508109.html)
+- Mar 29 - [Trump administration reportedly moves to ban Jackie Robinson biography from Naval Academy library](https://sports.yahoo.com/mlb/article/trump-administration-reportedly-moves-to-ban-jackie-robinson-biography-from-naval-academy-library-235013259.html)
+- Mar 29 - [Body of missing L.A. firefighter found off Long Beach waters](https://www.yahoo.com/news/body-missing-l-firefighter-found-234326645.html)
+- Mar 29 - [JD Vance and other officials told Trump to fire Waltz. There was just one reason he didn’t](https://www.yahoo.com/news/jd-vance-other-officials-told-215026834.html)
 <!-- feed end -->
 
 ### Onstream
