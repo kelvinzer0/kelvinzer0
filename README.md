@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Here’s the Minimum Salary Required To Be Upper-Middle Class in the 19 Poorest States](https://finance.yahoo.com/news/minimum-salary-required-upper-middle-140226270.html)
+- Mar 30 - [Power outages sweep across Northern Michigan due to ice storm](https://www.yahoo.com/news/power-outages-sweep-across-northern-130454445.html)
 - Mar 30 - [Social Security beneficiaries receiving mysterious $6K deposits. Here’s why and how to tell if it’s legit](https://finance.yahoo.com/news/social-security-beneficiaries-receiving-mysterious-113000787.html)
+- Mar 30 - [Government issues warning after millions of liters of acid are spilled into major waterway: 'Disaster'](https://www.yahoo.com/news/government-issues-warning-millions-liters-101546934.html)
 - Mar 30 - [Grok Is Rebelling Against Elon Musk, Daring Him to Shut It Down](https://tech.yahoo.com/articles/grok-rebelling-against-elon-musk-100053329.html)
 - Mar 30 - [Avoid sugary soda, play pickleball, eat peanut butter and jelly — plus 10 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/avoid-sugary-soda-play-pickleball-eat-peanut-butter-and-jelly--plus-10-more-health-tips-to-help-you-have-a-great-week-090036488.html)
-- Mar 30 - [Wordle hints today for #1,380: Clues and answer for Sunday, March 30](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1380-clues-and-answer-for-sunday-march-30-040145762.html)
 <!-- feed end -->
 
 ### Onstream
