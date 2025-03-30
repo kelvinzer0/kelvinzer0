@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 30 - [Trump Says He “Couldn’t Care Less” If Car Prices Go Up Due To Tariffs: “People Are Gonna Buy American-Made”](https://www.yahoo.com/news/trump-says-couldn-t-care-004202759.html)
-- Mar 29 - [Shouted questions at Trump have consequences: New actions by White House](https://www.yahoo.com/news/shouted-questions-trump-consequences-actions-210000625.html)
-- Mar 29 - [Hamas agrees to Gaza ceasefire proposal, the group's chief says](https://www.yahoo.com/news/hamas-agrees-ceasefire-proposal-received-193508109.html)
-- Mar 29 - [Comedy icon arrested on drug charge in Burbank](https://www.yahoo.com/news/famous-comedian-arrested-drug-charge-192423905.html)
-- Mar 29 - [Protesters rebelling against Elon Musk's purge of US government swarm Tesla showrooms](https://www.yahoo.com/news/protesters-rebelling-against-elon-musks-181354214.html)
+- Mar 30 - [14 People Who Died In The Most Horrifying, Disturbing, And "Please Don't Let This Happen To Me!" Ways](https://www.yahoo.com/lifestyle/14-people-died-most-horrifying-003104573.html)
+- Mar 30 - [Trump tells NBC he 'couldn't care less' if car makers hike prices due to tariffs](https://www.yahoo.com/news/trump-tells-nbc-couldnt-care-000557253.html)
+- Mar 29 - [Trump administration reportedly moves to ban Jackie Robinson biography from Naval Academy library](https://sports.yahoo.com/mlb/article/trump-administration-reportedly-moves-to-ban-jackie-robinson-biography-from-naval-academy-library-235013259.html)
+- Mar 29 - [Small plane crashes in Minnesota after close call near Reagan National Airport](https://www.yahoo.com/news/small-plane-crashes-minnesota-close-230913026.html)
 <!-- feed end -->
 
 ### Onstream
