@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Trump says Zelenskiy wants to back out of critical minerals deal](https://www.yahoo.com/news/trump-says-zelenskiy-wants-back-083330288.html)
+- Mar 31 - [Bernie Sanders says claims of Social Security waste one step toward privatizing it, raising retirees' fears](https://www.yahoo.com/news/bernie-sanders-says-claims-social-110000300.html)
+- Mar 31 - [French far-right leader Le Pen barred from seeking public office with immediate effect](https://www.yahoo.com/news/french-far-leader-le-pen-104033216.html)
+- Mar 31 - [I'm tired of being mocked and hated because I'm a conservative woman | Opinion](https://www.yahoo.com/news/im-tired-being-mocked-hated-090530234.html)
 - Mar 31 - [US armored vehicle missing in Lithuania pulled from swamp but fate of 4 soldiers is still unknown](https://www.yahoo.com/news/us-armored-vehicle-missing-lithuania-065625636.html)
-- Mar 31 - [Exclusive-Dude, where's my car? Toyota buyers face long waits amid hybrid boom](https://finance.yahoo.com/news/exclusive-dude-wheres-car-toyota-052746645.html)
-- Mar 31 - [US Bancorp exec's plane crashes in Minnesota, killing the pilot](https://www.yahoo.com/news/us-bancorp-execs-plane-crashes-013110578.html)
-- Mar 31 - [China's CNOOC discovers 100 million-ton oilfield in South China Sea, Xinhua says](https://finance.yahoo.com/news/chinas-cnooc-discovers-100-million-010423210.html)
+- Mar 31 - [NASA Took Mice Into Space, And It Did Something Scary to Their Bones](https://www.yahoo.com/news/nasa-took-mice-space-did-043828162.html)
 <!-- feed end -->
 
 ### Onstream
