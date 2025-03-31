@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [Historic tree to be cut down at the White House over safety concerns](https://www.yahoo.com/news/historic-tree-cut-down-white-214556643.html)
-- Mar 30 - [James Carville says Trump administration has already ‘collapsed’: ‘Happened Even Faster Than I Could Imagine’](https://www.yahoo.com/news/james-carville-says-trump-administration-185058787.html)
-- Mar 30 - [US Senate Republican Ron Johnson says advancing Trump agenda depends on spending cuts](https://www.yahoo.com/news/us-senate-republican-ron-johnson-173936162.html)
-- Mar 30 - [Popular pizza chain battles key customer problem](https://finance.yahoo.com/news/popular-pizza-chain-contends-key-171407647.html)
-- Mar 30 - [Trump says he is not joking about third presidential term](https://www.yahoo.com/news/trump-says-not-joking-third-170159890.html)
+- Mar 30 - [U.S. Bancorp vice chair's plane crashed on Saturday, bank says it believes he was on board](https://www.yahoo.com/news/u-bancorp-vice-chairs-plane-214012029.html)
+- Mar 30 - [Man arrested in brutal assault of bride-to-be on bachelorette outing in Dallas](https://www.yahoo.com/news/man-arrested-brutal-assault-bride-212925261.html)
+- Mar 30 - [Trump announces plan to chop down magnolia tree purportedly planted by Andrew Jackson: 'Must come to an end'](https://www.yahoo.com/news/trump-announces-plan-chop-down-211303354.html)
+- Mar 30 - [Firefighter injured battling fire in Susquehanna County](https://www.yahoo.com/news/firefighter-injured-battling-fire-susquehanna-184819141.html)
+- Mar 30 - [Running Out of iPhone Space? Here's How to Free It Up Without Deleting Anything](https://tech.yahoo.com/phones/articles/two-iphone-settings-free-big-000003495.html)
 <!-- feed end -->
 
 ### Onstream
