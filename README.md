@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [‘I was telling my baby, don’t come out yet’: Woman gives birth to daughter during Myanmar earthquake (cloned)](https://www.yahoo.com/news/telling-baby-don-t-come-140214306.html)
-- Mar 31 - [China's CNOOC discovers 100 million-ton oilfield in South China Sea, Xinhua says](https://finance.yahoo.com/news/chinas-cnooc-discovers-100-million-010423210.html)
-- Mar 31 - [Power out across mid-Michigan after severe storm](https://www.yahoo.com/news/power-across-mid-michigan-severe-002632069.html)
 - Mar 30 - [Trump announces plan to chop down magnolia tree purportedly planted by Andrew Jackson: 'Must come to an end'](https://www.yahoo.com/news/trump-announces-plan-chop-down-211303354.html)
+- Mar 30 - ["This City Should Not Exist!": People Are Dragging These 19 Cities To Filth, And A Lot Of The Reasonings Check Out](https://www.yahoo.com/lifestyle/phoenix-arizona-people-not-holding-193102833.html)
 - Mar 30 - [Firefighter injured battling fire in Susquehanna County](https://www.yahoo.com/news/firefighter-injured-battling-fire-susquehanna-184819141.html)
+- Mar 30 - [GM and Ford leaders' messages to employees indicate impact from Trump tariffs](https://finance.yahoo.com/news/gm-ford-leaders-messages-employees-183926722.html)
+- Mar 30 - [7.0 magnitude earthquake strikes off coast of Tonga, prompting tsunami warning](https://www.yahoo.com/news/7-0-magnitude-earthquake-strikes-183403530.html)
 <!-- feed end -->
 
 ### Onstream
