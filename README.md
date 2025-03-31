@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 30 - [U.S. Bancorp vice chair's plane crashed on Saturday, bank says it believes he was on board](https://www.yahoo.com/news/u-bancorp-vice-chairs-plane-214012029.html)
-- Mar 30 - [Man arrested in brutal assault of bride-to-be on bachelorette outing in Dallas](https://www.yahoo.com/news/man-arrested-brutal-assault-bride-212925261.html)
+- Mar 31 - [Gold surges past $3,100 as US tariffs, uncertainty propel safe-haven flows](https://finance.yahoo.com/news/gold-surges-past-3-100-023657245.html)
+- Mar 31 - [US Bancorp exec's plane crashes in Minnesota, killing the pilot](https://www.yahoo.com/news/us-bancorp-execs-plane-crashes-013110578.html)
 - Mar 30 - [Trump announces plan to chop down magnolia tree purportedly planted by Andrew Jackson: 'Must come to an end'](https://www.yahoo.com/news/trump-announces-plan-chop-down-211303354.html)
-- Mar 30 - [Firefighter injured battling fire in Susquehanna County](https://www.yahoo.com/news/firefighter-injured-battling-fire-susquehanna-184819141.html)
-- Mar 30 - [Running Out of iPhone Space? Here's How to Free It Up Without Deleting Anything](https://tech.yahoo.com/phones/articles/two-iphone-settings-free-big-000003495.html)
+- Mar 30 - [Who is Terry Dolan?: U.S. Bank exec believed to been killed in MN plane crash](https://www.yahoo.com/news/terry-dolan-u-bank-exec-203336274.html)
+- Mar 30 - [Former Kansas police chief sentenced to 60 years in prison in child porn case](https://www.yahoo.com/news/former-kansas-police-chief-sentenced-191708143.html)
 <!-- feed end -->
 
 ### Onstream
