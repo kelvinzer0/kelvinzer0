@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Bernie Sanders says claims of Social Security waste one step toward privatizing it, raising retirees' fears](https://www.yahoo.com/news/bernie-sanders-says-claims-social-110000300.html)
-- Mar 31 - [French far-right leader Le Pen barred from seeking public office with immediate effect](https://www.yahoo.com/news/french-far-leader-le-pen-104033216.html)
-- Mar 31 - [I'm tired of being mocked and hated because I'm a conservative woman | Opinion](https://www.yahoo.com/news/im-tired-being-mocked-hated-090530234.html)
-- Mar 31 - [US armored vehicle missing in Lithuania pulled from swamp but fate of 4 soldiers is still unknown](https://www.yahoo.com/news/us-armored-vehicle-missing-lithuania-065625636.html)
-- Mar 31 - [NASA Took Mice Into Space, And It Did Something Scary to Their Bones](https://www.yahoo.com/news/nasa-took-mice-space-did-043828162.html)
+- Mar 31 - [Jenrick: Two-tier sentencing is unfair against white men](https://www.yahoo.com/news/jenrick-two-tier-sentencing-unfair-122436002.html)
+- Mar 31 - [Hungary Expands Meddling From Bonds to Banks as Economy Stutters](https://finance.yahoo.com/news/hungary-expands-meddling-bonds-banks-120147800.html)
+- Mar 31 - [3 killed when tree hits vehicle in Michigan and damage reported in Tennessee amid widespread storms](https://www.yahoo.com/news/3-killed-tree-hits-vehicle-114051294.html)
+- Mar 31 - [These Russians Fled But Couldn’t Escape Repression](https://www.yahoo.com/news/russians-fled-couldn-t-escape-110000889.html)
+- Mar 31 - [The Fyre Festival organiser is out of jail. Now he wants a shark-infested sequel](https://www.yahoo.com/entertainment/inside-ridiculous-return-most-catastrophic-110000349.html)
 <!-- feed end -->
 
 ### Onstream
