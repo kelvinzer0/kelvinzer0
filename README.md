@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Here’s What Microsoft’s Newest Product Could Do for Its Stock (Is It Time To Invest?)](https://finance.yahoo.com/news/microsoft-newest-product-could-stock-180149019.html)
-- Mar 31 - [Evacuations ordered as winds pose challenges for firefighters battling California blaze](https://www.yahoo.com/news/evacuations-ordered-winds-pose-challenges-165702396.html)
-- Mar 31 - [Stolen Truck Slams Through Cars in Wild Long Beach Chase](https://www.yahoo.com/news/stolen-truck-slams-cars-wild-154602071.html)
-- Mar 31 - [All but one of the 20 Concordes are accounted for. Here’s what happened to the missing plane](https://www.yahoo.com/news/one-20-concordes-accounted-happened-150615126.html)
-- Mar 31 - [3 missing US soldiers found dead in Lithuania, search continues for 4th soldier](https://www.yahoo.com/news/missing-us-soldiers-vehicle-pulled-134353380.html)
+- Mar 31 - [Does AstraZeneca Have 'One Pill To Rule Them All' In Cholesterol?](https://www.investors.com/news/technology/astrazeneca-stock-cholesterol-treatment-pcsk9-oral/?src=A00220&yptr=yahoo)
+- Mar 31 - [Former Medellin Cartel boss released in Colombia after a judge rules his sentence expired](https://www.yahoo.com/news/former-medellin-cartel-boss-released-181705069.html)
+- Mar 31 - [Calls of grief into the night at preschool destroyed in earthquake](https://www.yahoo.com/news/calls-grief-night-preschool-destroyed-180318141.html)
+- Mar 31 - [Astronauts Sunita Williams, Butch Wilmore Break Silence After Return](https://www.yahoo.com/news/astronauts-sunita-williams-butch-wilmore-171642075.html)
+- Mar 31 - [These Countries Have Issued Travel Advisories for the United States](https://www.yahoo.com/news/countries-issued-travel-advisories-united-192527743.html)
 <!-- feed end -->
 
 ### Onstream
