@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [US armored vehicle missing in Lithuania pulled from swamp but fate of 4 soldiers is still unknown](https://www.yahoo.com/news/us-armored-vehicle-missing-lithuania-065625636.html)
-- Mar 31 - [Exclusive-Dude, where's my car? Toyota buyers face long waits amid hybrid boom](https://finance.yahoo.com/news/exclusive-dude-wheres-car-toyota-052746645.html)
-- Mar 31 - [US Bancorp exec's plane crashes in Minnesota, killing the pilot](https://www.yahoo.com/news/us-bancorp-execs-plane-crashes-013110578.html)
+- Mar 31 - [Chinese brain chip project speeds up human trials after first success](https://www.yahoo.com/news/chinese-brain-chip-project-speeds-085045920.html)
+- Mar 31 - [Why do younger generations schedule worry time?](https://www.yahoo.com/lifestyle/why-younger-generations-schedule-worry-081056136.html)
+- Mar 31 - [Red Cross ‘heartbroken’ by suspected Israeli attack killing eight aid workers in Gaza](https://www.yahoo.com/news/red-cross-heartbroken-suspected-israeli-075410715.html)
 - Mar 31 - [China's CNOOC discovers 100 million-ton oilfield in South China Sea, Xinhua says](https://finance.yahoo.com/news/chinas-cnooc-discovers-100-million-010423210.html)
-- Mar 30 - [People Are Just Now Realizing These Everyday Behaviors Are Actually Symptoms Of Adult ADHD](https://www.yahoo.com/lifestyle/common-signs-adult-adhd-may-231602786.html)
+- Mar 31 - [Vitalik Buterin’s Viral ‘Meow’ at Robot Sparks Ethereum Price Speculation as ETH Drops Below $2,000](https://finance.yahoo.com/news/vitalik-buterin-viral-meow-robot-005907420.html)
 <!-- feed end -->
 
 ### Onstream
