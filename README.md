@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Trump calls on Federal Reserve to cut interest rate ahead of tariff 'Liberation Day'](https://finance.yahoo.com/news/trump-calls-federal-cut-interest-160700661.html)
-- Mar 31 - [Evacuations in California as huge wildfire rages through 1,000 acres](https://www.yahoo.com/news/evacuations-california-huge-wildfire-rages-084637598.html)
-- Mar 31 - [Kim Delaney, ‘NYPD Blue’ actress, arrested after alleged domestic dispute](https://www.yahoo.com/entertainment/kim-delaney-nypd-blue-actress-152021553.html)
-- Mar 31 - [Mother arrested after dead baby found inside Marks and Spencer bag outside London church](https://www.yahoo.com/news/mother-arrested-dead-baby-found-140110460.html)
-- Mar 31 - [San Francisco restaurant facing closure after 20 years — all thanks to high costs and shifting dining trends](https://finance.yahoo.com/news/san-francisco-restaurant-facing-closure-144500911.html)
+- Mar 31 - [Measles Cases in Texas Rise to 400 as U.S. Total Reaches Nearly 500 amid Worsening Outbreak, Officials Say](https://www.yahoo.com/lifestyle/measles-cases-texas-rise-400-164823283.html)
+- Mar 31 - [Health insurance CEO admits to hiring private investigators to dig up dirt on patients, doctors and politicians](https://www.yahoo.com/news/health-insurance-ceo-admits-hiring-164253164.html)
+- Mar 31 - [Lawyer tears into her former employer in viral resignation letter over $100M Trump deal](https://www.yahoo.com/news/lawyer-tears-her-former-employer-162847886.html)
+- Mar 31 - ['#ByeTesla': People are posting videos of their Tesla trade-in to a Taylor Swift song](https://www.yahoo.com/news/byetesla-people-posting-videos-tesla-162237597.html)
+- Mar 31 - [RFK Jr., West Virginia's governor and why you shouldn’t comment on someone's weight](https://www.yahoo.com/news/rfk-west-virginias-governor-why-155014392.html)
 <!-- feed end -->
 
 ### Onstream
