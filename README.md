@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Wisconsin Supreme Court candidates make final push amid high spending, voting](https://www.yahoo.com/news/wisconsin-supreme-court-candidates-final-150005303.html)
+- Mar 31 - [Trump calls on Federal Reserve to cut interest rate ahead of tariff 'Liberation Day'](https://finance.yahoo.com/news/trump-calls-federal-cut-interest-160700661.html)
+- Mar 31 - [Evacuations in California as huge wildfire rages through 1,000 acres](https://www.yahoo.com/news/evacuations-california-huge-wildfire-rages-084637598.html)
+- Mar 31 - [Kim Delaney, ‘NYPD Blue’ actress, arrested after alleged domestic dispute](https://www.yahoo.com/entertainment/kim-delaney-nypd-blue-actress-152021553.html)
+- Mar 31 - [Mother arrested after dead baby found inside Marks and Spencer bag outside London church](https://www.yahoo.com/news/mother-arrested-dead-baby-found-140110460.html)
 - Mar 31 - [San Francisco restaurant facing closure after 20 years — all thanks to high costs and shifting dining trends](https://finance.yahoo.com/news/san-francisco-restaurant-facing-closure-144500911.html)
-- Mar 31 - [3 missing US soldiers found dead in Lithuania, search continues for 4th soldier](https://www.yahoo.com/news/missing-us-soldiers-vehicle-pulled-134353380.html)
-- Mar 31 - [Steve Phelps Named First Commissioner of NASCAR](https://autos.yahoo.com/steve-phelps-named-first-commissioner-140000860.html)
-- Mar 31 - [Record-breaking Fram2 crew to launch on SpaceX rocket tonight from Kennedy Space Center](https://www.yahoo.com/news/record-breaking-fram2-crew-launch-135459769.html)
 <!-- feed end -->
 
 ### Onstream
