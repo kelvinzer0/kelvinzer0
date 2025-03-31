@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Tariffs, Goldman cuts S&P 500 target, tech stocks fall: 3 Things](https://finance.yahoo.com/video/tariffs-goldman-cuts-p-500-130946426.html)
+- Mar 31 - [Poland to sign air defence deal with US worth almost $2 billion](https://www.yahoo.com/news/poland-sign-air-defence-deal-140410284.html)
+- Mar 31 - [Deutsche Bank: Kirsty Roth, Klaus Moosmayer proposed to join supervisory board](https://finance.yahoo.com/news/deutsche-bank-kirsty-roth-klaus-135612372.html)
+- Mar 31 - [Justice Department instructed to dismiss legal challenge to Georgia election law](https://www.yahoo.com/news/justice-department-instructed-dismiss-legal-133444677.html)
+- Mar 31 - [UK expecting to be hit by Donald Trump’s tariffs this week – No 10](https://finance.yahoo.com/news/uk-expecting-hit-donald-trump-121103639.html)
 - Mar 31 - [Jenrick: Two-tier sentencing is unfair against white men](https://www.yahoo.com/news/jenrick-two-tier-sentencing-unfair-122436002.html)
-- Mar 31 - [3 killed when tree hits vehicle in Michigan and damage reported in Tennessee amid widespread storms](https://www.yahoo.com/news/3-killed-tree-hits-vehicle-114051294.html)
-- Mar 31 - [After Trump sanctions threat, Kremlin says Russia and US working on Ukraine peace moves](https://www.yahoo.com/news/trump-sanctions-threat-kremlin-says-112440050.html)
-- Mar 31 - [French far-right leader Le Pen barred from seeking public office with immediate effect](https://www.yahoo.com/news/french-far-leader-le-pen-104033216.html)
 <!-- feed end -->
 
 ### Onstream
