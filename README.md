@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Poland to sign air defence deal with US worth almost $2 billion](https://www.yahoo.com/news/poland-sign-air-defence-deal-140410284.html)
-- Mar 31 - [Deutsche Bank: Kirsty Roth, Klaus Moosmayer proposed to join supervisory board](https://finance.yahoo.com/news/deutsche-bank-kirsty-roth-klaus-135612372.html)
-- Mar 31 - [Justice Department instructed to dismiss legal challenge to Georgia election law](https://www.yahoo.com/news/justice-department-instructed-dismiss-legal-133444677.html)
-- Mar 31 - [UK expecting to be hit by Donald Trump’s tariffs this week – No 10](https://finance.yahoo.com/news/uk-expecting-hit-donald-trump-121103639.html)
-- Mar 31 - [Jenrick: Two-tier sentencing is unfair against white men](https://www.yahoo.com/news/jenrick-two-tier-sentencing-unfair-122436002.html)
+- Mar 31 - [Wisconsin Supreme Court candidates make final push amid high spending, voting](https://www.yahoo.com/news/wisconsin-supreme-court-candidates-final-150005303.html)
+- Mar 31 - [San Francisco restaurant facing closure after 20 years — all thanks to high costs and shifting dining trends](https://finance.yahoo.com/news/san-francisco-restaurant-facing-closure-144500911.html)
+- Mar 31 - [3 missing US soldiers found dead in Lithuania, search continues for 4th soldier](https://www.yahoo.com/news/missing-us-soldiers-vehicle-pulled-134353380.html)
+- Mar 31 - [Steve Phelps Named First Commissioner of NASCAR](https://autos.yahoo.com/steve-phelps-named-first-commissioner-140000860.html)
+- Mar 31 - [Record-breaking Fram2 crew to launch on SpaceX rocket tonight from Kennedy Space Center](https://www.yahoo.com/news/record-breaking-fram2-crew-launch-135459769.html)
 <!-- feed end -->
 
 ### Onstream
