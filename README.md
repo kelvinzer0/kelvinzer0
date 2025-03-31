@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [Tariffs, Goldman cuts S&P 500 target, tech stocks fall: 3 Things](https://finance.yahoo.com/video/tariffs-goldman-cuts-p-500-130946426.html)
 - Mar 31 - [Jenrick: Two-tier sentencing is unfair against white men](https://www.yahoo.com/news/jenrick-two-tier-sentencing-unfair-122436002.html)
-- Mar 31 - [Hungary Expands Meddling From Bonds to Banks as Economy Stutters](https://finance.yahoo.com/news/hungary-expands-meddling-bonds-banks-120147800.html)
 - Mar 31 - [3 killed when tree hits vehicle in Michigan and damage reported in Tennessee amid widespread storms](https://www.yahoo.com/news/3-killed-tree-hits-vehicle-114051294.html)
-- Mar 31 - [These Russians Fled But Couldn’t Escape Repression](https://www.yahoo.com/news/russians-fled-couldn-t-escape-110000889.html)
-- Mar 31 - [The Fyre Festival organiser is out of jail. Now he wants a shark-infested sequel](https://www.yahoo.com/entertainment/inside-ridiculous-return-most-catastrophic-110000349.html)
+- Mar 31 - [After Trump sanctions threat, Kremlin says Russia and US working on Ukraine peace moves](https://www.yahoo.com/news/trump-sanctions-threat-kremlin-says-112440050.html)
+- Mar 31 - [French far-right leader Le Pen barred from seeking public office with immediate effect](https://www.yahoo.com/news/french-far-leader-le-pen-104033216.html)
 <!-- feed end -->
 
 ### Onstream
