@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 30 - ["This City Should Not Exist!": People Are Dragging These 19 Cities To Filth, And A Lot Of The Reasonings Check Out](https://www.yahoo.com/lifestyle/phoenix-arizona-people-not-holding-193102833.html)
 - Mar 30 - [Firefighter injured battling fire in Susquehanna County](https://www.yahoo.com/news/firefighter-injured-battling-fire-susquehanna-184819141.html)
 - Mar 30 - [GM and Ford leaders' messages to employees indicate impact from Trump tariffs](https://finance.yahoo.com/news/gm-ford-leaders-messages-employees-183926722.html)
-- Mar 30 - [7.0 magnitude earthquake strikes off coast of Tonga, prompting tsunami warning](https://www.yahoo.com/news/7-0-magnitude-earthquake-strikes-183403530.html)
+- Mar 30 - [US Senate Republican Ron Johnson says advancing Trump agenda depends on spending cuts](https://www.yahoo.com/news/us-senate-republican-ron-johnson-173936162.html)
 <!-- feed end -->
 
 ### Onstream
