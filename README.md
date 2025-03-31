@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [Alexander Kolodin seeks secretary of state post under Freedom Caucus banner](https://www.yahoo.com/news/alexander-kolodin-seeks-secretary-state-211916360.html)
 - Mar 31 - [S&P 500 closes higher after volatile day](https://www.yahoo.com/news/p-500-closes-higher-volatile-210307032.html)
 - Mar 31 - [EV maker Lucid is capturing Tesla buyers at a higher rate as its new Gravity SUV hits showrooms](https://finance.yahoo.com/news/ev-maker-lucid-is-capturing-tesla-buyers-at-a-higher-rate-as-its-new-gravity-suv-hits-showrooms-203540677.html)
-- Mar 31 - [Trump says popularity in polls gives him third-term platform. See his approval ratings.](https://www.yahoo.com/news/trump-says-popularity-polls-gives-202204393.html)
-- Mar 31 - [NASA's newly returned astronauts say they would fly on Boeing's Starliner capsule again](https://www.yahoo.com/news/nasas-newly-returned-astronauts-fly-194501454.html)
-- Mar 31 - [‘Egregious conduct’: Boston judge finds ICE agent in contempt of court after man detained mid-trial](https://www.yahoo.com/news/egregious-conduct-boston-judge-finds-190744108.html)
+- Mar 31 - [Sean ‘Diddy’ Combs Sexual Assault Lawsuit Dismissed After Jane Doe Chose Not to Reveal Identity Due to ‘Perceived Danger’](https://www.yahoo.com/news/sean-diddy-combs-sexual-assault-203025569.html)
+- Mar 31 - [C-32A ‘Air Force 2’ Jet Like You’ve Never Seen One Before](https://www.yahoo.com/news/c-32a-air-force-2-202616620.html)
 <!-- feed end -->
 
 ### Onstream
