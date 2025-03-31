@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [S&P 500 closes higher after volatile day](https://www.yahoo.com/news/p-500-closes-higher-volatile-210307032.html)
+- Mar 31 - [EV maker Lucid is capturing Tesla buyers at a higher rate as its new Gravity SUV hits showrooms](https://finance.yahoo.com/news/ev-maker-lucid-is-capturing-tesla-buyers-at-a-higher-rate-as-its-new-gravity-suv-hits-showrooms-203540677.html)
+- Mar 31 - [Trump says popularity in polls gives him third-term platform. See his approval ratings.](https://www.yahoo.com/news/trump-says-popularity-polls-gives-202204393.html)
 - Mar 31 - [NASA's newly returned astronauts say they would fly on Boeing's Starliner capsule again](https://www.yahoo.com/news/nasas-newly-returned-astronauts-fly-194501454.html)
-- Mar 31 - [Months After Student's Remains Were Found in Well, Authorities Discovered More of Him — but Still Don't Know How He Died](https://www.yahoo.com/entertainment/months-students-remains-were-found-192510256.html)
 - Mar 31 - [‘Egregious conduct’: Boston judge finds ICE agent in contempt of court after man detained mid-trial](https://www.yahoo.com/news/egregious-conduct-boston-judge-finds-190744108.html)
-- Mar 31 - [Mark Cuban Warns Of 'Red Rural Recession' As Hundreds Of Small Town MAGA Supporters Reportedly Lose Federal Jobs: 'Their Finances Will Be Turned Upside Down'](https://finance.yahoo.com/news/mark-cuban-warns-red-rural-183041504.html)
-- Mar 31 - [Brett Gardner And Family Receive Troubling Autopsy Update In Son’s Death](https://www.yahoo.com/news/brett-gardner-family-receive-troubling-183006018.html)
 <!-- feed end -->
 
 ### Onstream
