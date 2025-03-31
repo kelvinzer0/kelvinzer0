@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Does AstraZeneca Have 'One Pill To Rule Them All' In Cholesterol?](https://www.investors.com/news/technology/astrazeneca-stock-cholesterol-treatment-pcsk9-oral/?src=A00220&yptr=yahoo)
-- Mar 31 - [Former Medellin Cartel boss released in Colombia after a judge rules his sentence expired](https://www.yahoo.com/news/former-medellin-cartel-boss-released-181705069.html)
-- Mar 31 - [Calls of grief into the night at preschool destroyed in earthquake](https://www.yahoo.com/news/calls-grief-night-preschool-destroyed-180318141.html)
-- Mar 31 - [Astronauts Sunita Williams, Butch Wilmore Break Silence After Return](https://www.yahoo.com/news/astronauts-sunita-williams-butch-wilmore-171642075.html)
-- Mar 31 - [These Countries Have Issued Travel Advisories for the United States](https://www.yahoo.com/news/countries-issued-travel-advisories-united-192527743.html)
+- Mar 31 - [NASA's newly returned astronauts say they would fly on Boeing's Starliner capsule again](https://www.yahoo.com/news/nasas-newly-returned-astronauts-fly-194501454.html)
+- Mar 31 - [Months After Student's Remains Were Found in Well, Authorities Discovered More of Him — but Still Don't Know How He Died](https://www.yahoo.com/entertainment/months-students-remains-were-found-192510256.html)
+- Mar 31 - [‘Egregious conduct’: Boston judge finds ICE agent in contempt of court after man detained mid-trial](https://www.yahoo.com/news/egregious-conduct-boston-judge-finds-190744108.html)
+- Mar 31 - [Mark Cuban Warns Of 'Red Rural Recession' As Hundreds Of Small Town MAGA Supporters Reportedly Lose Federal Jobs: 'Their Finances Will Be Turned Upside Down'](https://finance.yahoo.com/news/mark-cuban-warns-red-rural-183041504.html)
+- Mar 31 - [Brett Gardner And Family Receive Troubling Autopsy Update In Son’s Death](https://www.yahoo.com/news/brett-gardner-family-receive-troubling-183006018.html)
 <!-- feed end -->
 
 ### Onstream
