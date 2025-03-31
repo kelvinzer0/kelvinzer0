@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [US armored vehicle missing in Lithuania pulled from swamp but fate of 4 soldiers is still unknown](https://www.yahoo.com/news/us-armored-vehicle-missing-lithuania-065625636.html)
+- Mar 31 - [Exclusive-Dude, where's my car? Toyota buyers face long waits amid hybrid boom](https://finance.yahoo.com/news/exclusive-dude-wheres-car-toyota-052746645.html)
 - Mar 31 - [US Bancorp exec's plane crashes in Minnesota, killing the pilot](https://www.yahoo.com/news/us-bancorp-execs-plane-crashes-013110578.html)
 - Mar 31 - [China's CNOOC discovers 100 million-ton oilfield in South China Sea, Xinhua says](https://finance.yahoo.com/news/chinas-cnooc-discovers-100-million-010423210.html)
-- Mar 30 - [Man arrested in brutal assault of bride-to-be on bachelorette outing in Dallas](https://www.yahoo.com/news/man-arrested-brutal-assault-bride-212925261.html)
-- Mar 30 - [Trump announces plan to chop down magnolia tree purportedly planted by Andrew Jackson: 'Must come to an end'](https://www.yahoo.com/news/trump-announces-plan-chop-down-211303354.html)
-- Mar 30 - [Firefighter injured battling fire in Susquehanna County](https://www.yahoo.com/news/firefighter-injured-battling-fire-susquehanna-184819141.html)
+- Mar 30 - [People Are Just Now Realizing These Everyday Behaviors Are Actually Symptoms Of Adult ADHD](https://www.yahoo.com/lifestyle/common-signs-adult-adhd-may-231602786.html)
 <!-- feed end -->
 
 ### Onstream
