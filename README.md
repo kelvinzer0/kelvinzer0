@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Israel strikes building in southern Beirut, killing at least 3 people](https://www.yahoo.com/news/israel-strikes-building-southern-beirut-070247915.html)
+- Apr 01 - [A Ukrainian unit is hunting down dozens of Russian drones with a flying double-barrel shotgun](https://www.yahoo.com/news/ukrainian-unit-hunting-down-dozens-044003615.html)
+- Apr 01 - [Liberal candidate Paul Chiang withdraws from race after suggesting people claim China's bounty on Conservative](https://www.yahoo.com/news/liberal-candidate-paul-chiang-withdraws-042938903.html)
 - Apr 01 - [Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back](https://www.yahoo.com/news/trump-admin-accidentally-sent-maryland-041939189.html)
-- Apr 01 - [A 17-year-old from the West Bank becomes the first Palestinian teenager to die in an Israeli prison](https://www.yahoo.com/news/17-old-west-bank-becomes-041036169.html)
-- Apr 01 - [Rattlesnake bite prompts Northern California firefighters to issue warning](https://www.yahoo.com/news/rattlesnake-bite-prompts-northern-california-030607403.html)
-- Apr 01 - [Alabama police officer denied immunity for shooting armed Black man in his front yard](https://www.yahoo.com/news/alabama-police-officer-denied-immunity-005710534.html)
+- Apr 01 - [A Senate vote to reverse Trump's tariffs on Canada is testing Republican support](https://www.yahoo.com/news/senate-vote-reverse-trumps-tariffs-040406642.html)
+- Apr 01 - [A former South Korean lawmaker accused of sexual assault has been found dead](https://www.yahoo.com/news/former-south-korean-lawmaker-accused-023629870.html)
 <!-- feed end -->
 
 ### Onstream
