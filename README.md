@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Hospital Staff Believed Husband's Death Was Suspicious. An Autopsy Revealed the Unthinkable](https://www.yahoo.com/entertainment/hospital-staff-believed-husbands-death-162219703.html)
-- Apr 01 - [Transport of massive transformer from Charlotte to Cowans Ford plant  set to disrupt traffic](https://www.yahoo.com/news/transport-massive-transformer-charlotte-mcguire-223527362.html)
-- Apr 01 - [Cornell student protester facing deportation leaves the US on his 'own terms' after losing faith](https://www.yahoo.com/news/cornell-student-protester-facing-deportation-145905011.html)
-- Apr 01 - [‘I don’t know anyone that isn’t pissed off at him’: Trump world turns on Lutnick](https://www.yahoo.com/news/don-t-know-anyone-isn-140625316.html)
-- Apr 01 - [Investigation of ranch in northern Mexico reveals some details of Jalisco cartel's operations](https://www.yahoo.com/news/investigation-ranch-northern-mexico-reveals-133042202.html)
+- Apr 01 - [Cory Booker has been speaking on the Senate floor in opposition to Trump for 19 hours and counting: ‘I am not gonna stop speaking’](https://www.yahoo.com/news/cory-booker-has-been-speaking-on-the-senate-floor-in-opposition-to-trump-for-19-hours-and-counting-i-am-not-gonna-stop-speaking-181722074.html)
+- Apr 01 - [Where is my Social Security check? See SSI payment schedule for 2025](https://finance.yahoo.com/news/where-social-security-check-see-173142679.html)
+- Apr 01 - [German and Ukrainian foreign ministers pay their respects at Maidan Square memorial in Kyiv](https://www.yahoo.com/news/german-ukrainian-foreign-ministers-pay-165106043.html)
+- Apr 01 - [Trump administration pulls nearly $42 million in federal funding from Michigan schools](https://www.yahoo.com/news/trump-administration-pulls-nearly-42-164643267.html)
+- Apr 01 - [Jalisco cartel lures recruits with fake jobs through social platforms and kills those who resist](https://www.yahoo.com/news/investigation-ranch-northern-mexico-reveals-133042202.html)
 <!-- feed end -->
 
 ### Onstream
