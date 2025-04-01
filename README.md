@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Bankruptcy judge denies J&J settlement plan related to baby powder containing talc](https://finance.yahoo.com/news/bankruptcy-judge-denies-j-j-122627196.html)
-- Apr 01 - [Finland’s president: ‘I just met Donald Trump. Russia is running out of time’](https://www.yahoo.com/news/finland-president-just-met-president-115416951.html)
-- Apr 01 - [The good, the bad, and the 'screamers': A Brit who fought for Ukraine reveals how international fighters make their mark](https://www.yahoo.com/news/good-bad-screamers-brit-fought-105809150.html)
-- Apr 01 - [‘Egregious conduct’: Boston judge finds ICE agent in contempt of court after man detained mid-trial](https://www.yahoo.com/news/egregious-conduct-boston-judge-finds-190744108.html)
-- Apr 01 - [Mike Rowe warns of a ‘will gap’ as millions of men abandon workforce — here’s why](https://finance.yahoo.com/news/mike-rowe-warns-gap-millions-102200259.html)
+- Apr 01 - [Today’s deals: $99 Beats Pill, $230 Apple Watch Series 9, $270 Roku TV, $12 Crest 3D White toothpaste, more](https://tech.yahoo.com/articles/today-deals-99-beats-pill-135300553.html)
+- Apr 01 - [Investigation of ranch in northern Mexico reveals some details of Jalisco cartel's operations](https://www.yahoo.com/news/investigation-ranch-northern-mexico-reveals-133042202.html)
+- Apr 01 - [Italy slams door on people hoping to claim citizenship through great-grandparents](https://www.yahoo.com/news/italy-slams-door-people-hoping-111459444.html)
+- Apr 01 - [Morgan Stanley: Upcoming AI Conferences May Serve as a Catalyst for Tech Stocks](https://finance.yahoo.com/news/morgan-stanley-upcoming-ai-conferences-131110586.html)
+- Apr 01 - [Cerebras Systems, Ranovus win $45 million US military deal to speed up chip connections](https://finance.yahoo.com/news/cerebras-systems-ranovus-win-45-130800411.html)
 <!-- feed end -->
 
 ### Onstream
