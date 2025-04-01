@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Circle files to go public on the NYSE](https://finance.yahoo.com/video/circle-files-public-nyse-211625960.html)
-- Apr 01 - [Republicans and Democrats team up to defy House leadership on voting for new parents](https://www.yahoo.com/news/house-gop-leaders-expected-block-153300560.html)
-- Apr 01 - [Damaging Winds, Tornadoes And Flooding Likely Into Late Week](https://www.yahoo.com/news/damaging-winds-tornadoes-flooding-likely-205917091.html)
-- Apr 01 - [F-47 Fighter Program Could See Multiple Versions Built In Increments](https://www.yahoo.com/news/f-47-fighter-program-could-204331180.html)
-- Apr 01 - [No food or bathroom breaks: How Cory Booker is pulling off his Senate talk-a-thon](https://www.yahoo.com/news/no-food-bathroom-breaks-cory-203407461.html)
+- Apr 01 - [S&P, Nasdaq end higher as stocks gyrate in Trump-tariffs limbo](https://finance.yahoo.com/video/p-nasdaq-end-higher-stocks-223709021.html)
+- Apr 01 - [Trump Is Asking the Supreme Court To Let Him Have Black Sites](https://www.yahoo.com/news/trump-asking-supreme-court-let-195220384.html)
+- Apr 01 - [House cancels rest of votes for week after GOP floor rebellion](https://www.yahoo.com/news/house-cancels-rest-votes-week-193337302.html)
+- Apr 01 - [Trump Supporters Are Revealing How They'll Vote In The Midterms, And I Was Not Expecting Most Of These Responses](https://www.yahoo.com/news/trump-supporters-revealing-theyll-vote-190938402.html)
+- Apr 01 - [Elon Musk's disclosure of planned Social Security fraud arrest troubles top law enforcement officials: Sources](https://www.yahoo.com/news/elon-musks-disclosure-planned-social-190423197.html)
 <!-- feed end -->
 
 ### Onstream
