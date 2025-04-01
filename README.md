@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [JSO: Man charged with attempted murder after shooting at Jacksonville motel during prostitution deal](https://www.yahoo.com/news/jso-man-charged-attempted-murder-094723194.html)
-- Apr 01 - [Your Monthly Work Horoscope for April 2025](https://www.yahoo.com/lifestyle/monthly-horoscope-april-2025-070000927.html)
+- Apr 01 - [UPDATE: Serious injuries after SUV crashes into 2 Dayton homes](https://www.yahoo.com/news/officers-medics-respond-reports-car-073420462.html)
+- Apr 01 - [Mike Rowe warns of a ‘will gap’ as millions of men abandon workforce — here’s why](https://finance.yahoo.com/news/mike-rowe-warns-gap-millions-102200259.html)
+- Apr 01 - [Hiltzik: RFK Jr. reportedly puts anti-vaxxer in charge of studying debunked link between vaccines and autism](https://www.yahoo.com/news/hiltzik-rfk-jr-reportedly-puts-100058684.html)
+- Apr 01 - [Boeing slows output of 737 Max to 31 a month jets due to wing systems issues](https://finance.yahoo.com/news/boeing-slowed-production-737-max-055352957.html)
 - Apr 01 - [Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back](https://www.yahoo.com/news/trump-admin-accidentally-sent-maryland-041939189.html)
-- Apr 01 - [Alabama police officer denied immunity for shooting armed Black man in his front yard](https://www.yahoo.com/news/alabama-police-officer-denied-immunity-005710534.html)
-- Mar 31 - [Analysts at Cantor, formerly headed by Lutnick, call for Kennedy's dismissal](https://www.yahoo.com/news/analysts-cantor-formerly-headed-lutnick-232933488.html)
 <!-- feed end -->
 
 ### Onstream
