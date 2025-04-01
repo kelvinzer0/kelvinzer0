@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Liberal candidate Paul Chiang withdraws from race after suggesting people claim China's bounty on Conservative](https://www.yahoo.com/news/liberal-candidate-paul-chiang-withdraws-042938903.html)
+- Apr 01 - [Israel strikes building in southern Beirut, killing at least 3 people](https://www.yahoo.com/news/israel-strikes-building-southern-beirut-070247915.html)
 - Apr 01 - [Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back](https://www.yahoo.com/news/trump-admin-accidentally-sent-maryland-041939189.html)
-- Apr 01 - [SpaceX launches 4 people on a polar orbit never attempted before](https://www.yahoo.com/news/spacex-launches-4-people-polar-030642303.html)
+- Apr 01 - [A 17-year-old from the West Bank becomes the first Palestinian teenager to die in an Israeli prison](https://www.yahoo.com/news/17-old-west-bank-becomes-041036169.html)
+- Apr 01 - [Rattlesnake bite prompts Northern California firefighters to issue warning](https://www.yahoo.com/news/rattlesnake-bite-prompts-northern-california-030607403.html)
 - Apr 01 - [Alabama police officer denied immunity for shooting armed Black man in his front yard](https://www.yahoo.com/news/alabama-police-officer-denied-immunity-005710534.html)
-- Apr 01 - [Mark Cuban Says, If They Replaced Elon Musk With Him, He's Still Try to Make Government Smaller By 'Cutting A Lot Of People'](https://finance.yahoo.com/news/mark-cuban-says-replaced-elon-000023519.html)
 <!-- feed end -->
 
 ### Onstream
