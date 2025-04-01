@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [How Sec. Lutnick's push for US chip production impacts chipmakers](https://finance.yahoo.com/video/sec-lutnicks-push-us-chip-202724802.html)
 - Apr 01 - [Trump Supporters Are Revealing How They'll Vote In The Midterms, And I Was Not Expecting Most Of These Responses](https://www.yahoo.com/news/trump-supporters-revealing-theyll-vote-190938402.html)
-- Apr 01 - [Chips Act Grants in Limbo](https://finance.yahoo.com/video/chips-act-grants-limbo-183612253.html)
-- Apr 01 - [House Speaker Johnson fails to squash a proxy voting effort from new moms in Congress](https://www.yahoo.com/news/speaker-johnson-tries-squash-proxy-181139867.html)
-- Apr 01 - [This Sneaky App Is Sucking Up Your iPhone Storage, And Here's The Super Simple Way To Free Up Space](https://tech.yahoo.com/articles/sneaky-app-sucking-iphone-storage-173902631.html)
-- Apr 01 - [Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back](https://www.yahoo.com/news/trump-admin-accidentally-sent-maryland-041939189.html)
+- Apr 01 - [Elon Musk's disclosure of planned Social Security fraud arrest troubles top law enforcement officials: Sources](https://www.yahoo.com/news/elon-musks-disclosure-planned-social-190423197.html)
+- Apr 01 - [I'm Sorry, But These "Get Me To God's Country" Memes Are So, So Funny](https://www.yahoo.com/lifestyle/gods-country-memes-waaaay-funnier-172543625.html)
+- Apr 01 - [Yellowstone bison prevail in show of force against grizzly bear near Old Faithful](https://www.yahoo.com/news/yellowstone-bison-prevail-show-force-164226272.html)
 <!-- feed end -->
 
 ### Onstream
