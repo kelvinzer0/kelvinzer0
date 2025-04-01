@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [Liberal candidate Paul Chiang withdraws from race after suggesting people claim China's bounty on Conservative](https://www.yahoo.com/news/liberal-candidate-paul-chiang-withdraws-042938903.html)
 - Apr 01 - [Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back](https://www.yahoo.com/news/trump-admin-accidentally-sent-maryland-041939189.html)
 - Apr 01 - [SpaceX launches 4 people on a polar orbit never attempted before](https://www.yahoo.com/news/spacex-launches-4-people-polar-030642303.html)
-- Apr 01 - [White House directly involved in sudden firing of federal prosecutor](https://www.yahoo.com/news/white-house-directly-involved-sudden-010456288.html)
 - Apr 01 - [Alabama police officer denied immunity for shooting armed Black man in his front yard](https://www.yahoo.com/news/alabama-police-officer-denied-immunity-005710534.html)
-- Apr 01 - [Trump hints that Musk and DOGE may be coming to the end of the road](https://www.yahoo.com/news/trump-hints-musk-doge-may-004350624.html)
+- Apr 01 - [Mark Cuban Says, If They Replaced Elon Musk With Him, He's Still Try to Make Government Smaller By 'Cutting A Lot Of People'](https://finance.yahoo.com/news/mark-cuban-says-replaced-elon-000023519.html)
 <!-- feed end -->
 
 ### Onstream
