@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [‘No injuries reported’ in crash believed to involve Prince Andrew accuser, say police](https://www.yahoo.com/news/no-injuries-reported-crash-believed-105824037.html)
-- Apr 01 - [Exclusive-Trump administration begins mass layoffs at health agencies, sources say](https://www.yahoo.com/news/exclusive-trump-administration-begins-mass-122432312.html)
-- Apr 01 - [FFA approves plan to install Starlink Wi-Fi on United Airlines planes](https://www.yahoo.com/news/ffa-approves-plan-install-starlink-121547177.html)
+- Apr 01 - [Bankruptcy judge denies J&J settlement plan related to baby powder containing talc](https://finance.yahoo.com/news/bankruptcy-judge-denies-j-j-122627196.html)
+- Apr 01 - [Finland’s president: ‘I just met Donald Trump. Russia is running out of time’](https://www.yahoo.com/news/finland-president-just-met-president-115416951.html)
 - Apr 01 - [The good, the bad, and the 'screamers': A Brit who fought for Ukraine reveals how international fighters make their mark](https://www.yahoo.com/news/good-bad-screamers-brit-fought-105809150.html)
 - Apr 01 - [‘Egregious conduct’: Boston judge finds ICE agent in contempt of court after man detained mid-trial](https://www.yahoo.com/news/egregious-conduct-boston-judge-finds-190744108.html)
+- Apr 01 - [Mike Rowe warns of a ‘will gap’ as millions of men abandon workforce — here’s why](https://finance.yahoo.com/news/mike-rowe-warns-gap-millions-102200259.html)
 <!-- feed end -->
 
 ### Onstream
