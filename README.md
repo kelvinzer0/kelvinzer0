@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [A Ukrainian unit is hunting down dozens of Russian drones with a flying double-barrel shotgun](https://www.yahoo.com/news/ukrainian-unit-hunting-down-dozens-044003615.html)
+- Apr 01 - [South Korean superstar Kim Soo Hyun tearfully denies controversial claims about relationship with late actress](https://www.yahoo.com/entertainment/south-korean-superstar-kim-soo-080653756.html)
+- Apr 01 - [Kenya president still handing cash to churches despite his own ban](https://www.yahoo.com/news/kenya-president-still-handing-cash-063857479.html)
 - Apr 01 - [Liberal candidate Paul Chiang withdraws from race after suggesting people claim China's bounty on Conservative](https://www.yahoo.com/news/liberal-candidate-paul-chiang-withdraws-042938903.html)
 - Apr 01 - [Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back](https://www.yahoo.com/news/trump-admin-accidentally-sent-maryland-041939189.html)
-- Apr 01 - [A Senate vote to reverse Trump's tariffs on Canada is testing Republican support](https://www.yahoo.com/news/senate-vote-reverse-trumps-tariffs-040406642.html)
 - Apr 01 - [A former South Korean lawmaker accused of sexual assault has been found dead](https://www.yahoo.com/news/former-south-korean-lawmaker-accused-023629870.html)
 <!-- feed end -->
 
