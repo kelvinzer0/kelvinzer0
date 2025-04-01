@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Jesse Watters' 'Main Question' For Astronauts Is Out-Of-This-World Crass](https://www.yahoo.com/news/jesse-watters-main-astronauts-world-155918843.html)
-- Apr 01 - [Palestinian doctors ‘tortured into confessions’ in harrowing claims of abuse against Israel’s soldiers](https://www.yahoo.com/news/way-hell-palestinian-doctors-accuse-110930439.html)
-- Apr 01 - [‘I’ve risked everything’: New airline vowing to revolutionise transatlantic flights ready for take-off](https://www.yahoo.com/news/ve-risked-everything-airline-vowing-075148306.html)
-- Apr 01 - [Proposed Port Fees for Chinese Ships May Hit US Maritime Industry](https://finance.yahoo.com/video/proposed-port-fees-chinese-ships-151544901.html)
+- Apr 01 - [Hospital Staff Believed Husband's Death Was Suspicious. An Autopsy Revealed the Unthinkable](https://www.yahoo.com/entertainment/hospital-staff-believed-husbands-death-162219703.html)
+- Apr 01 - [Transport of massive transformer from Charlotte to Cowans Ford plant  set to disrupt traffic](https://www.yahoo.com/news/transport-massive-transformer-charlotte-mcguire-223527362.html)
+- Apr 01 - [Cornell student protester facing deportation leaves the US on his 'own terms' after losing faith](https://www.yahoo.com/news/cornell-student-protester-facing-deportation-145905011.html)
 - Apr 01 - [‘I don’t know anyone that isn’t pissed off at him’: Trump world turns on Lutnick](https://www.yahoo.com/news/don-t-know-anyone-isn-140625316.html)
+- Apr 01 - [Investigation of ranch in northern Mexico reveals some details of Jalisco cartel's operations](https://www.yahoo.com/news/investigation-ranch-northern-mexico-reveals-133042202.html)
 <!-- feed end -->
 
 ### Onstream
