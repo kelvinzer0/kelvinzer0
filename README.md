@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Tariffs will impact prices, NY Fed's Williams warns](https://finance.yahoo.com/video/tariffs-impact-prices-ny-feds-222415201.html)
-- Mar 31 - [‘Egregious conduct’: Boston judge finds ICE agent in contempt of court after man detained mid-trial](https://www.yahoo.com/news/egregious-conduct-boston-judge-finds-190744108.html)
-- Mar 31 - [Wife of Hawaii Doctor Alleges He Had Been Sexually Abusing Her For Months Before Cliff Attack](https://www.yahoo.com/entertainment/wife-hawaii-doctor-alleges-had-214808489.html)
-- Mar 31 - [Loch Ness monster camera set up 55 years ago accidentally found by Boaty McBoatface](https://www.yahoo.com/news/loch-ness-monster-camera-set-211244084.html)
-- Mar 31 - [EV maker Lucid is capturing Tesla buyers at a higher rate as its new Gravity SUV hits showrooms](https://finance.yahoo.com/news/ev-maker-lucid-is-capturing-tesla-buyers-at-a-higher-rate-as-its-new-gravity-suv-hits-showrooms-203540677.html)
+- Apr 01 - [Intel’s New CEO Says Company Turnaround ‘Won’t Be Easy’](https://finance.yahoo.com/video/intel-ceo-says-company-turnaround-015300424.html)
+- Apr 01 - [Alabama police officer denied immunity for shooting armed Black man in his front yard](https://www.yahoo.com/news/alabama-police-officer-denied-immunity-005710534.html)
+- Apr 01 - [Federal judge rules Pa. ballot dating rule violates constitutional right to political expression](https://www.yahoo.com/news/federal-judge-rules-pa-ballot-005325210.html)
+- Apr 01 - [Trump hints that Musk and DOGE may be coming to the end of the road](https://www.yahoo.com/news/trump-hints-musk-doge-may-004350624.html)
+- Apr 01 - [Mark Cuban Says, If They Replaced Elon Musk With Him, He's Still Try to Make Government Smaller By 'Cutting A Lot Of People'](https://finance.yahoo.com/news/mark-cuban-says-replaced-elon-000023519.html)
 <!-- feed end -->
 
 ### Onstream
