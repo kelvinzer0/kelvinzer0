@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Today’s deals: $99 Beats Pill, $230 Apple Watch Series 9, $270 Roku TV, $12 Crest 3D White toothpaste, more](https://tech.yahoo.com/articles/today-deals-99-beats-pill-135300553.html)
+- Apr 01 - [‘I don’t know anyone that isn’t pissed off at him’: Trump world turns on Lutnick](https://www.yahoo.com/news/don-t-know-anyone-isn-140625316.html)
 - Apr 01 - [Investigation of ranch in northern Mexico reveals some details of Jalisco cartel's operations](https://www.yahoo.com/news/investigation-ranch-northern-mexico-reveals-133042202.html)
 - Apr 01 - [Italy slams door on people hoping to claim citizenship through great-grandparents](https://www.yahoo.com/news/italy-slams-door-people-hoping-111459444.html)
-- Apr 01 - [Morgan Stanley: Upcoming AI Conferences May Serve as a Catalyst for Tech Stocks](https://finance.yahoo.com/news/morgan-stanley-upcoming-ai-conferences-131110586.html)
-- Apr 01 - [Cerebras Systems, Ranovus win $45 million US military deal to speed up chip connections](https://finance.yahoo.com/news/cerebras-systems-ranovus-win-45-130800411.html)
+- Apr 01 - [Lip-Bu Tan says Intel will spin off non-core units](https://finance.yahoo.com/news/lip-bu-tan-says-intel-125947660.html)
+- Apr 01 - [Finland’s president: ‘I just met Donald Trump. Russia is running out of time’](https://www.yahoo.com/news/finland-president-just-met-president-115416951.html)
 <!-- feed end -->
 
 ### Onstream
