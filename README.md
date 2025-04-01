@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Cory Booker has been speaking on the Senate floor in opposition to Trump for 19 hours and counting: ‘I am not gonna stop speaking’](https://www.yahoo.com/news/cory-booker-has-been-speaking-on-the-senate-floor-in-opposition-to-trump-for-19-hours-and-counting-i-am-not-gonna-stop-speaking-181722074.html)
-- Apr 01 - [Where is my Social Security check? See SSI payment schedule for 2025](https://finance.yahoo.com/news/where-social-security-check-see-173142679.html)
-- Apr 01 - [German and Ukrainian foreign ministers pay their respects at Maidan Square memorial in Kyiv](https://www.yahoo.com/news/german-ukrainian-foreign-ministers-pay-165106043.html)
-- Apr 01 - [Trump administration pulls nearly $42 million in federal funding from Michigan schools](https://www.yahoo.com/news/trump-administration-pulls-nearly-42-164643267.html)
-- Apr 01 - [Jalisco cartel lures recruits with fake jobs through social platforms and kills those who resist](https://www.yahoo.com/news/investigation-ranch-northern-mexico-reveals-133042202.html)
+- Apr 01 - [House Speaker Johnson fails to squash a proxy voting effort from new moms in Congress](https://www.yahoo.com/news/speaker-johnson-tries-squash-proxy-181139867.html)
+- Apr 01 - [The Proposed "Luigi Mangione Act" Is Going Viral Because It Could Make It Harder For Healthcare Insurers To Deny Claims](https://www.yahoo.com/news/proposed-luigi-mangione-act-going-175044997.html)
+- Apr 01 - [This Sneaky App Is Sucking Up Your iPhone Storage, And Here's The Super Simple Way To Free Up Space](https://tech.yahoo.com/articles/sneaky-app-sucking-iphone-storage-173902631.html)
+- Apr 01 - [IRS to auction $1 million Mequon home Thurs. Owner was a lawyer convicted of tax evasion.](https://www.yahoo.com/news/irs-auction-1-million-mequon-163257668.html)
+- Apr 01 - [A Gulf War veteran convicted of killing his girlfriend and 3 children is set for execution](https://www.yahoo.com/news/gulf-war-veteran-convicted-killing-144327121.html)
 <!-- feed end -->
 
 ### Onstream
