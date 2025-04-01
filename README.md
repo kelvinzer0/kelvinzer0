@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [UPDATE: Serious injuries after SUV crashes into 2 Dayton homes](https://www.yahoo.com/news/officers-medics-respond-reports-car-073420462.html)
-- Apr 01 - [Mike Rowe warns of a ‘will gap’ as millions of men abandon workforce — here’s why](https://finance.yahoo.com/news/mike-rowe-warns-gap-millions-102200259.html)
-- Apr 01 - [Hiltzik: RFK Jr. reportedly puts anti-vaxxer in charge of studying debunked link between vaccines and autism](https://www.yahoo.com/news/hiltzik-rfk-jr-reportedly-puts-100058684.html)
-- Apr 01 - [Boeing slows output of 737 Max to 31 a month jets due to wing systems issues](https://finance.yahoo.com/news/boeing-slowed-production-737-max-055352957.html)
-- Apr 01 - [Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back](https://www.yahoo.com/news/trump-admin-accidentally-sent-maryland-041939189.html)
+- Apr 01 - [‘No injuries reported’ in crash believed to involve Prince Andrew accuser, say police](https://www.yahoo.com/news/no-injuries-reported-crash-believed-105824037.html)
+- Apr 01 - [Exclusive-Trump administration begins mass layoffs at health agencies, sources say](https://www.yahoo.com/news/exclusive-trump-administration-begins-mass-122432312.html)
+- Apr 01 - [FFA approves plan to install Starlink Wi-Fi on United Airlines planes](https://www.yahoo.com/news/ffa-approves-plan-install-starlink-121547177.html)
+- Apr 01 - [The good, the bad, and the 'screamers': A Brit who fought for Ukraine reveals how international fighters make their mark](https://www.yahoo.com/news/good-bad-screamers-brit-fought-105809150.html)
+- Apr 01 - [‘Egregious conduct’: Boston judge finds ICE agent in contempt of court after man detained mid-trial](https://www.yahoo.com/news/egregious-conduct-boston-judge-finds-190744108.html)
 <!-- feed end -->
 
 ### Onstream
