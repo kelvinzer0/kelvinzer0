@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 02 - [Mercedes-Benz wants car back from Deion Sanders' son Shilo after alleged default](https://finance.yahoo.com/news/mercedes-benz-wants-car-back-020518212.html)
-- Apr 02 - [Police searched woman’s truck over marijuana smell. What was inside impacts dozens across metro](https://www.yahoo.com/news/police-searched-woman-truck-over-010722360.html)
-- Apr 01 - [Triple whammy! Trump rocked by voter fury, Booker’s marathon speech & econ woes (Carville x Melber)](https://www.yahoo.com/news/triple-whammy-trump-rocked-voter-235208315.html)
 - Apr 01 - [Anger against Trump is likely to cost the US international visitors, forecaster says](https://www.yahoo.com/news/anger-against-trump-likely-cost-225818268.html)
-- Apr 01 - [PF Chang's employee beats man in Winter Park after forcing him to undress, police say](https://www.yahoo.com/news/pf-changs-employee-beats-man-195445347.html)
+- Apr 01 - [Rumor: If You Have This iPhone, It May Not Work With iOS 19](https://tech.yahoo.com/articles/rumor-iphone-may-not-ios-201808592.html)
+- Apr 01 - [Trump Is Asking the Supreme Court To Let Him Have Black Sites](https://www.yahoo.com/news/trump-asking-supreme-court-let-195220384.html)
+- Apr 01 - [House cancels rest of votes for week after GOP floor rebellion](https://www.yahoo.com/news/house-cancels-rest-votes-week-193337302.html)
 <!-- feed end -->
 
 ### Onstream
