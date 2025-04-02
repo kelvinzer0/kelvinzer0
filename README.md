@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Will mortgage rates ever be 3% again?](https://finance.yahoo.com/personal-finance/mortgages/article/will-mortgage-rates-ever-be-3-again-183831629.html)
+- Apr 02 - [Sweden's $80B Giant Just Dumped Tesla -- Here's Why It Could Spark a Bigger Investor Revolt](https://finance.yahoo.com/news/swedens-80b-giant-just-dumped-180841193.html)
+- Apr 02 - [Confusion gripped US base defenders just before a flying bomb struck a deadly blow at Tower 22, investigation reveals](https://www.yahoo.com/news/confusion-gripped-us-defenders-just-170002662.html)
 - Apr 02 - [I Used to Work at NASA. I Have Some Insights About Sex in Space.](https://www.yahoo.com/news/used-nasa-insights-sex-space-155534779.html)
 - Apr 02 - [Tesla stock pops after report Musk will step back from government role 'in the coming weeks'](https://finance.yahoo.com/news/tesla-stock-pops-after-report-musk-will-step-back-from-government-role-in-the-coming-weeks-133800376.html)
-- Apr 02 - [Judge who ordered fired federal workers to be reinstated now says ruling applies to 19 states and DC](https://www.yahoo.com/news/judge-ordered-fired-federal-workers-154336780.html)
-- Apr 02 - [Hamas warns those who 'spread chaos' after killing of its police officer](https://www.yahoo.com/news/hamas-warns-those-spread-chaos-153717232.html)
-- Apr 02 - [Economist: Trump tariffs could send the S&P 500 to 4,450 and the economy into recession](https://finance.yahoo.com/news/economist-trump-tariffs-could-send-the-sp-500-to-4450-and-the-economy-into-recession-140326769.html)
 <!-- feed end -->
 
 ### Onstream
