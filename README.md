@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Trump's 'Liberation Day' tariffs may send prices for these 3 common household products higher](https://finance.yahoo.com/news/trumps-liberation-day-tariffs-may-send-prices-for-these-3-common-household-products-higher-130146344.html)
-- Apr 02 - [Passengers end up in Texas instead of Tokyo after spending about 12 hours in the air on diverted flight](https://www.yahoo.com/news/passengers-end-texas-instead-tokyo-122410510.html)
-- Apr 02 - [Why Trump tariffs may torpedo the stock market](https://finance.yahoo.com/video/why-trump-tariffs-may-torpedo-122041111.html)
-- Apr 02 - [Trump Set To Announce Biggest Tax Increase On Americans In Decades](https://www.yahoo.com/news/trump-set-announce-biggest-tax-120013377.html)
-- Apr 02 - [Mortgage and refinance rates today, April 2, 2025: The 30-year rate finally falls to 6.5%](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-april-2-2025-100046083.html)
+- Apr 02 - [Woman told she has just years to live after deadly disease mistaken for stress](https://www.yahoo.com/news/woman-dismissed-stress-divorce-told-231103204.html)
+- Apr 02 - [Tesla sales tumble to weakest since 2022 amid Musk backlash](https://finance.yahoo.com/news/tesla-sales-tumble-weakest-since-141619887.html)
+- Apr 02 - [Concerns over China, Russia, Iran and North Korea partnership](https://www.yahoo.com/news/concerns-over-china-russia-iran-140447231.html)
+- Apr 02 - [Economist: Trump tariffs could send the S&P 500 to 4,450 and the economy into recession](https://finance.yahoo.com/news/economist-trump-tariffs-could-send-the-sp-500-to-4450-and-the-economy-into-recession-140326769.html)
+- Apr 02 - [Tesla stock drops as Q1 deliveries miss Wall Street estimates](https://finance.yahoo.com/news/tesla-stock-drops-as-q1-deliveries-miss-wall-street-estimates-131438025.html)
 <!-- feed end -->
 
 ### Onstream
