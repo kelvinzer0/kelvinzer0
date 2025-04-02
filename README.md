@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Triple whammy! Trump rocked by voter fury, Booker’s marathon speech & econ woes (Carville x Melber)](https://www.yahoo.com/news/triple-whammy-trump-rocked-voter-235208315.html)
-- Apr 01 - [Anger against Trump is likely to cost the US international visitors, forecaster says](https://www.yahoo.com/news/anger-against-trump-likely-cost-225818268.html)
-- Apr 01 - [House cancels rest of votes for week after GOP floor rebellion](https://www.yahoo.com/news/house-cancels-rest-votes-week-193337302.html)
-- Apr 01 - [Trump Supporters Are Revealing How They'll Vote In The Midterms, And I Was Not Expecting Most Of These Responses](https://www.yahoo.com/news/trump-supporters-revealing-theyll-vote-190938402.html)
-- Apr 01 - [DOGE’s access to the payroll system of 276,000 federal employees puts government on path to have ‘unprecedented power and control’ over Americans’ information, experts say](https://www.yahoo.com/news/doge-access-payroll-system-276-180529960.html)
+- Apr 02 - [RI Lottery Mega Millions, Lucky For Life winning numbers for April 1, 2025](https://www.yahoo.com/news/ri-lottery-mega-millions-lucky-033011036.html)
+- Apr 02 - [Republicans win Florida special elections, Democrat-backed judge wins in Wisconsin | Special Report](https://www.yahoo.com/news/republicans-win-florida-special-elections-030223872.html)
+- Apr 02 - [Republicans Plan To Go 'Nuclear' On Passing Trillion Dollar Tax Cuts](https://www.yahoo.com/news/republicans-plan-nuclear-passing-trillion-023157381.html)
+- Apr 02 - [Mercedes-Benz wants car back from Deion Sanders' son Shilo after alleged default](https://finance.yahoo.com/news/mercedes-benz-wants-car-back-020518212.html)
+- Apr 02 - [Police searched woman’s truck over marijuana smell. What was inside impacts dozens across metro](https://www.yahoo.com/news/police-searched-woman-truck-over-010722360.html)
 <!-- feed end -->
 
 ### Onstream
