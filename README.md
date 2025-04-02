@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Mexico bans junk food sales in schools in its latest salvo against child obesity](https://www.yahoo.com/news/mexico-bans-junk-food-sales-045106721.html)
-- Apr 02 - [Republicans Plan To Go 'Nuclear' On Passing Trillion Dollar Tax Cuts](https://www.yahoo.com/news/republicans-plan-nuclear-passing-trillion-023157381.html)
+- Apr 02 - [Mercedes-Benz wants car back from Deion Sanders' son Shilo after alleged default](https://finance.yahoo.com/news/mercedes-benz-wants-car-back-020518212.html)
 - Apr 02 - [Police searched woman’s truck over marijuana smell. What was inside impacts dozens across metro](https://www.yahoo.com/news/police-searched-woman-truck-over-010722360.html)
+- Apr 01 - [Triple whammy! Trump rocked by voter fury, Booker’s marathon speech & econ woes (Carville x Melber)](https://www.yahoo.com/news/triple-whammy-trump-rocked-voter-235208315.html)
 - Apr 01 - [Anger against Trump is likely to cost the US international visitors, forecaster says](https://www.yahoo.com/news/anger-against-trump-likely-cost-225818268.html)
-- Apr 01 - [Teacher Arrested for Alleged Inappropriate Relationship With Student](https://www.yahoo.com/news/teacher-arrested-alleged-inappropriate-relationship-212653463.html)
+- Apr 01 - [PF Chang's employee beats man in Winter Park after forcing him to undress, police say](https://www.yahoo.com/news/pf-changs-employee-beats-man-195445347.html)
 <!-- feed end -->
 
 ### Onstream
