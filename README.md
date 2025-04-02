@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Altria vs. Eli Lilly: What's the Better Stock for Dividend Investors?](https://finance.yahoo.com/news/altria-vs-eli-lilly-whats-090600919.html)
-- Apr 02 - [Europeans now need an Electronic Travel Authorisation (ETA) permit to visit the UK – here’s what to know](https://www.yahoo.com/news/10-charge-almost-uk-visitors-095242994.html)
-- Apr 02 - [This Top Warren Buffett Stock Continues to Get Better as It Grows Bigger](https://finance.yahoo.com/news/top-warren-buffett-stock-continues-082700237.html)
-- Apr 02 - [As outages continue, West Michigan braces for next round of storms](https://www.yahoo.com/news/outages-continue-west-michigan-braces-033230637.html)
-- Apr 01 - [No food or bathroom breaks: How Cory Booker is pulling off his Senate talk-a-thon](https://www.yahoo.com/news/no-food-bathroom-breaks-cory-203407461.html)
+- Apr 02 - ["I Didn't Even Understand What He Meant Until Years Later": Patients Are Revealing The Worst Doctor They've Seen In Their Entire Lives, And I Wasn't Expecting This Horror](https://www.yahoo.com/lifestyle/didnt-even-understand-meant-until-091602541.html)
+- Apr 02 - [Forget 60/40. BlackRock's Larry Fink wants investors to embrace 50/30/20.](https://finance.yahoo.com/news/forget-6040-blackrocks-larry-fink-wants-investors-to-embrace-503020-090006622.html)
+- Apr 02 - [US auto sales surge as buyers rush to beat tariffs](https://finance.yahoo.com/video/us-auto-sales-surge-buyers-073015046.html)
+- Apr 02 - [Republicans Plan To Go 'Nuclear' On Passing Trillion Dollar Tax Cuts](https://www.yahoo.com/news/republicans-plan-nuclear-passing-trillion-023157381.html)
+- Apr 02 - [Las Vegas plans to convert golf course into major affordable housing development](https://www.yahoo.com/news/las-vegas-plans-convert-golf-001128853.html)
 <!-- feed end -->
 
 ### Onstream
