@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Remembering Martin Luther King Jr.: National Civil Rights Museum to celebrate MLK's legacy](https://www.yahoo.com/news/remembering-martin-luther-king-jr-100215303.html)
+- Apr 02 - [Mortgage and refinance rates today, April 2, 2025: The 30-year rate finally falls to 6.5%](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-april-2-2025-100046083.html)
+- Apr 02 - [Cheeseburgers and chicken so far fail to entice a rescue dog who's spent weeks on the run in Alaska](https://www.yahoo.com/news/cheeseburgers-chicken-far-fail-entice-093153424.html)
 - Apr 02 - ["I Didn't Even Understand What He Meant Until Years Later": Patients Are Revealing The Worst Doctor They've Seen In Their Entire Lives, And I Wasn't Expecting This Horror](https://www.yahoo.com/lifestyle/didnt-even-understand-meant-until-091602541.html)
 - Apr 02 - [Police searched woman’s vehicle over marijuana smell. What was inside impacts dozens across metro](https://www.yahoo.com/news/police-searched-woman-truck-over-010722360.html)
 - Apr 02 - [China's main auto show cast in unwelcome spotlight as government backers clash](https://finance.yahoo.com/news/chinas-main-auto-show-cast-054037853.html)
-- Apr 02 - [US officials object to European push to buy weapons locally](https://www.yahoo.com/news/us-officials-object-european-push-050404725.html)
 <!-- feed end -->
 
 ### Onstream
