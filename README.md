@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Remembering Martin Luther King Jr.: National Civil Rights Museum to celebrate MLK's legacy](https://www.yahoo.com/news/remembering-martin-luther-king-jr-100215303.html)
 - Apr 02 - ["I Didn't Even Understand What He Meant Until Years Later": Patients Are Revealing The Worst Doctor They've Seen In Their Entire Lives, And I Wasn't Expecting This Horror](https://www.yahoo.com/lifestyle/didnt-even-understand-meant-until-091602541.html)
-- Apr 02 - [Forget 60/40. BlackRock's Larry Fink wants investors to embrace 50/30/20.](https://finance.yahoo.com/news/forget-6040-blackrocks-larry-fink-wants-investors-to-embrace-503020-090006622.html)
-- Apr 02 - [US auto sales surge as buyers rush to beat tariffs](https://finance.yahoo.com/video/us-auto-sales-surge-buyers-073015046.html)
-- Apr 02 - [Republicans Plan To Go 'Nuclear' On Passing Trillion Dollar Tax Cuts](https://www.yahoo.com/news/republicans-plan-nuclear-passing-trillion-023157381.html)
-- Apr 02 - [Las Vegas plans to convert golf course into major affordable housing development](https://www.yahoo.com/news/las-vegas-plans-convert-golf-001128853.html)
+- Apr 02 - [Police searched woman’s vehicle over marijuana smell. What was inside impacts dozens across metro](https://www.yahoo.com/news/police-searched-woman-truck-over-010722360.html)
+- Apr 02 - [China's main auto show cast in unwelcome spotlight as government backers clash](https://finance.yahoo.com/news/chinas-main-auto-show-cast-054037853.html)
+- Apr 02 - [US officials object to European push to buy weapons locally](https://www.yahoo.com/news/us-officials-object-european-push-050404725.html)
 <!-- feed end -->
 
 ### Onstream
