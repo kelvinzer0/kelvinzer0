@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Mercedes-Benz wants car back from Deion Sanders' son Shilo after alleged default](https://finance.yahoo.com/news/mercedes-benz-wants-car-back-020518212.html)
-- Apr 01 - [Anger against Trump is likely to cost the US international visitors, forecaster says](https://www.yahoo.com/news/anger-against-trump-likely-cost-225818268.html)
-- Apr 01 - [Rumor: If You Have This iPhone, It May Not Work With iOS 19](https://tech.yahoo.com/articles/rumor-iphone-may-not-ios-201808592.html)
-- Apr 01 - [Trump Is Asking the Supreme Court To Let Him Have Black Sites](https://www.yahoo.com/news/trump-asking-supreme-court-let-195220384.html)
-- Apr 01 - [House cancels rest of votes for week after GOP floor rebellion](https://www.yahoo.com/news/house-cancels-rest-votes-week-193337302.html)
+- Apr 02 - [Altria vs. Eli Lilly: What's the Better Stock for Dividend Investors?](https://finance.yahoo.com/news/altria-vs-eli-lilly-whats-090600919.html)
+- Apr 02 - [Europeans now need an Electronic Travel Authorisation (ETA) permit to visit the UK – here’s what to know](https://www.yahoo.com/news/10-charge-almost-uk-visitors-095242994.html)
+- Apr 02 - [This Top Warren Buffett Stock Continues to Get Better as It Grows Bigger](https://finance.yahoo.com/news/top-warren-buffett-stock-continues-082700237.html)
+- Apr 02 - [As outages continue, West Michigan braces for next round of storms](https://www.yahoo.com/news/outages-continue-west-michigan-braces-033230637.html)
+- Apr 01 - [No food or bathroom breaks: How Cory Booker is pulling off his Senate talk-a-thon](https://www.yahoo.com/news/no-food-bathroom-breaks-cory-203407461.html)
 <!-- feed end -->
 
 ### Onstream
