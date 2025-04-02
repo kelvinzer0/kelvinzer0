@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [S&P, Nasdaq end higher as stocks gyrate in Trump-tariffs limbo](https://finance.yahoo.com/video/p-nasdaq-end-higher-stocks-223709021.html)
+- Apr 01 - [Triple whammy! Trump rocked by voter fury, Booker’s marathon speech & econ woes (Carville x Melber)](https://www.yahoo.com/news/triple-whammy-trump-rocked-voter-235208315.html)
+- Apr 01 - [Dog of captain who lost boats in Lahaina wildfire barks with delight during whale encounter](https://www.yahoo.com/news/dog-captain-lost-boats-lahaina-223104854.html)
+- Apr 01 - [Warren Buffett Asked 'What Can I Possibly Do With Billions and Billions of Dollars?' — Sees No  Reason To Own '6 Houses or 20 Cars'](https://finance.yahoo.com/news/warren-buffett-asked-possibly-billions-223043769.html)
 - Apr 01 - [Trump Is Asking the Supreme Court To Let Him Have Black Sites](https://www.yahoo.com/news/trump-asking-supreme-court-let-195220384.html)
 - Apr 01 - [House cancels rest of votes for week after GOP floor rebellion](https://www.yahoo.com/news/house-cancels-rest-votes-week-193337302.html)
-- Apr 01 - [Trump Supporters Are Revealing How They'll Vote In The Midterms, And I Was Not Expecting Most Of These Responses](https://www.yahoo.com/news/trump-supporters-revealing-theyll-vote-190938402.html)
-- Apr 01 - [Elon Musk's disclosure of planned Social Security fraud arrest troubles top law enforcement officials: Sources](https://www.yahoo.com/news/elon-musks-disclosure-planned-social-190423197.html)
 <!-- feed end -->
 
 ### Onstream
