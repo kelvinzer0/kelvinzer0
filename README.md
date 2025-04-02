@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [The Repair Shop helps siblings who had to flee Uganda under Idi Amin](https://www.yahoo.com/news/the-repair-shop-bbc-uganda-idi-amin-204628449.html)
-- Apr 02 - [Trump ends ‘Liberation Day’ suspense with new 10% worldwide tariff and additional tariffs for certain countries](https://finance.yahoo.com/news/trump-ends-liberation-day-suspense-with-new-10-worldwide-tariff-and-additional-tariffs-for-certain-countries-203505695.html)
-- Apr 02 - [Tesla stock pops after report Musk will step back from government role 'in the coming weeks'](https://finance.yahoo.com/news/tesla-stock-pops-after-report-musk-will-step-back-from-government-role-in-the-coming-weeks-133800376.html)
-- Apr 02 - [Will Tennessee be hit with once in 1,000-year rain? Latest forecast ahead of severe weather](https://www.yahoo.com/news/tennessee-hit-once-1-000-172042747.html)
-- Apr 02 - [Emmet County Sheriff's Office, Michigan National Guard respond to 'apocalyptic' conditions](https://www.yahoo.com/news/emmet-county-sheriffs-office-michigan-171757170.html)
+- Apr 02 - [Judge dismissed corruption case against New York City Mayor Adams, AP Explains](https://www.yahoo.com/news/judge-dismissed-corruption-case-against-215537590.html)
+- Apr 02 - [Nu Holdings Ltd. (NU): Among the Best Foreign Stocks to Buy According to Billionaires](https://finance.yahoo.com/news/nu-holdings-ltd-nu-among-212700808.html)
+- Apr 02 - [Mass shooter who killed 6 people at The Covenant School had no grudge against victims but was fueled by a quest for notoriety](https://www.yahoo.com/news/mass-shooter-killed-6-people-155831236.html)
+- Apr 02 - [Why Tesla deliveries are much worse than expected](https://www.yahoo.com/news/why-tesla-deliveries-much-worse-205924297.html)
+- Apr 02 - [Dog saved after falling over 100 feet at Colorado National Monument](https://www.yahoo.com/news/dog-saved-falling-over-100-195342802.html)
 <!-- feed end -->
 
 ### Onstream
