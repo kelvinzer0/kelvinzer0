@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Woman told she has just years to live after deadly disease mistaken for stress](https://www.yahoo.com/news/woman-dismissed-stress-divorce-told-231103204.html)
-- Apr 02 - [Tesla sales tumble to weakest since 2022 amid Musk backlash](https://finance.yahoo.com/news/tesla-sales-tumble-weakest-since-141619887.html)
-- Apr 02 - [Concerns over China, Russia, Iran and North Korea partnership](https://www.yahoo.com/news/concerns-over-china-russia-iran-140447231.html)
-- Apr 02 - [Economist: Trump tariffs could send the S&P 500 to 4,450 and the economy into recession](https://finance.yahoo.com/news/economist-trump-tariffs-could-send-the-sp-500-to-4450-and-the-economy-into-recession-140326769.html)
-- Apr 02 - [Tesla stock drops as Q1 deliveries miss Wall Street estimates](https://finance.yahoo.com/news/tesla-stock-drops-as-q1-deliveries-miss-wall-street-estimates-131438025.html)
+- Apr 02 - [Judge who ordered fired federal workers to be reinstated now says ruling applies to 19 states and DC](https://www.yahoo.com/news/judge-ordered-fired-federal-workers-154336780.html)
+- Apr 02 - [Hamas warns those who "spread chaos" following killing of its police officer](https://www.yahoo.com/news/hamas-warns-those-spread-chaos-153717232.html)
+- Apr 02 - [Ukraine prepares corruption charges in high-profile procurement case](https://www.yahoo.com/news/ukraine-prepares-corruption-charges-high-151635154.html)
+- Apr 02 - [Wild weather expected Wednesday gets a rare 'high-risk' designation -- the most severe category](https://www.yahoo.com/news/wild-weather-expected-wednesday-gets-145559187.html)
+- Apr 02 - [Oman eyes coastline for economic opportunity](https://finance.yahoo.com/video/oman-eyes-coastline-economic-opportunity-144544706.html)
 <!-- feed end -->
 
 ### Onstream
