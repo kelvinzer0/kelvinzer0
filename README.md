@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Will mortgage rates ever be 3% again?](https://finance.yahoo.com/personal-finance/mortgages/article/will-mortgage-rates-ever-be-3-again-183831629.html)
-- Apr 02 - [Sweden's $80B Giant Just Dumped Tesla -- Here's Why It Could Spark a Bigger Investor Revolt](https://finance.yahoo.com/news/swedens-80b-giant-just-dumped-180841193.html)
-- Apr 02 - [Confusion gripped US base defenders just before a flying bomb struck a deadly blow at Tower 22, investigation reveals](https://www.yahoo.com/news/confusion-gripped-us-defenders-just-170002662.html)
-- Apr 02 - [I Used to Work at NASA. I Have Some Insights About Sex in Space.](https://www.yahoo.com/news/used-nasa-insights-sex-space-155534779.html)
 - Apr 02 - [Tesla stock pops after report Musk will step back from government role 'in the coming weeks'](https://finance.yahoo.com/news/tesla-stock-pops-after-report-musk-will-step-back-from-government-role-in-the-coming-weeks-133800376.html)
+- Apr 02 - [Woman, 32, Credits Her ‘Quite Big' Breast Implants with Helping Her Discover a Cancerous Lump by ‘Pushing It Forward’](https://www.yahoo.com/lifestyle/woman-32-credits-her-quite-185030595.html)
+- Apr 02 - [US revokes visas of Mexican band members after cartel leader's face was projected at a concert](https://www.yahoo.com/news/us-revokes-visas-mexican-band-185016399.html)
+- Apr 02 - [Will Tennessee be hit with once in 1,000-year rain? Latest forecast ahead of severe weather](https://www.yahoo.com/news/tennessee-hit-once-1-000-172042747.html)
+- Apr 02 - [Emmet County Sheriff's Office, Michigan National Guard respond to 'apocalyptic' conditions](https://www.yahoo.com/news/emmet-county-sheriffs-office-michigan-171757170.html)
 <!-- feed end -->
 
 ### Onstream
