@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [The Repair Shop helps siblings who had to flee Uganda under Idi Amin](https://www.yahoo.com/news/the-repair-shop-bbc-uganda-idi-amin-204628449.html)
+- Apr 02 - [Trump ends ‘Liberation Day’ suspense with new 10% worldwide tariff and additional tariffs for certain countries](https://finance.yahoo.com/news/trump-ends-liberation-day-suspense-with-new-10-worldwide-tariff-and-additional-tariffs-for-certain-countries-203505695.html)
 - Apr 02 - [Tesla stock pops after report Musk will step back from government role 'in the coming weeks'](https://finance.yahoo.com/news/tesla-stock-pops-after-report-musk-will-step-back-from-government-role-in-the-coming-weeks-133800376.html)
-- Apr 02 - [Woman, 32, Credits Her ‘Quite Big' Breast Implants with Helping Her Discover a Cancerous Lump by ‘Pushing It Forward’](https://www.yahoo.com/lifestyle/woman-32-credits-her-quite-185030595.html)
-- Apr 02 - [US revokes visas of Mexican band members after cartel leader's face was projected at a concert](https://www.yahoo.com/news/us-revokes-visas-mexican-band-185016399.html)
 - Apr 02 - [Will Tennessee be hit with once in 1,000-year rain? Latest forecast ahead of severe weather](https://www.yahoo.com/news/tennessee-hit-once-1-000-172042747.html)
 - Apr 02 - [Emmet County Sheriff's Office, Michigan National Guard respond to 'apocalyptic' conditions](https://www.yahoo.com/news/emmet-county-sheriffs-office-michigan-171757170.html)
 <!-- feed end -->
