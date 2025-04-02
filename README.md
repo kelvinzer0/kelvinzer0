@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Tesla stock pops after report Musk will step back from government role 'in the coming weeks'](https://finance.yahoo.com/news/tesla-stock-pops-after-report-musk-will-step-back-from-government-role-in-the-coming-weeks-133800376.html)
 - Apr 02 - [Judge who ordered fired federal workers to be reinstated now says ruling applies to 19 states and DC](https://www.yahoo.com/news/judge-ordered-fired-federal-workers-154336780.html)
-- Apr 02 - [Hamas warns those who "spread chaos" following killing of its police officer](https://www.yahoo.com/news/hamas-warns-those-spread-chaos-153717232.html)
-- Apr 02 - [Ukraine prepares corruption charges in high-profile procurement case](https://www.yahoo.com/news/ukraine-prepares-corruption-charges-high-151635154.html)
+- Apr 02 - [Teens accused of starting massive South Carolina wildfire by tossing their cigarette butts along a hiking trail](https://www.yahoo.com/news/teens-accused-starting-massive-south-153852945.html)
 - Apr 02 - [Wild weather expected Wednesday gets a rare 'high-risk' designation -- the most severe category](https://www.yahoo.com/news/wild-weather-expected-wednesday-gets-145559187.html)
-- Apr 02 - [Oman eyes coastline for economic opportunity](https://finance.yahoo.com/video/oman-eyes-coastline-economic-opportunity-144544706.html)
+- Apr 02 - [Economist: Trump tariffs could send the S&P 500 to 4,450 and the economy into recession](https://finance.yahoo.com/news/economist-trump-tariffs-could-send-the-sp-500-to-4450-and-the-economy-into-recession-140326769.html)
 <!-- feed end -->
 
 ### Onstream
