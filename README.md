@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Judge dismissed corruption case against New York City Mayor Adams, AP Explains](https://www.yahoo.com/news/judge-dismissed-corruption-case-against-215537590.html)
-- Apr 02 - [Nu Holdings Ltd. (NU): Among the Best Foreign Stocks to Buy According to Billionaires](https://finance.yahoo.com/news/nu-holdings-ltd-nu-among-212700808.html)
+- Apr 02 - ['Worse than expected': Wall Street reacts to Trump's 'Liberation Day' tariff surprise, stocks sink](https://finance.yahoo.com/news/worse-than-expected-wall-street-reacts-to-trumps-liberation-day-tariff-surprise-stocks-sink-222345902.html)
 - Apr 02 - [Mass shooter who killed 6 people at The Covenant School had no grudge against victims but was fueled by a quest for notoriety](https://www.yahoo.com/news/mass-shooter-killed-6-people-155831236.html)
+- Apr 02 - [Hefty Trump tariffs surprise markets, S&P futures slide](https://finance.yahoo.com/news/instant-view-investors-react-trump-210107864.html)
 - Apr 02 - [Why Tesla deliveries are much worse than expected](https://www.yahoo.com/news/why-tesla-deliveries-much-worse-205924297.html)
-- Apr 02 - [Dog saved after falling over 100 feet at Colorado National Monument](https://www.yahoo.com/news/dog-saved-falling-over-100-195342802.html)
+- Apr 02 - [Nashville area school closings: These schools are closed Thursday due to severe weather threat](https://www.yahoo.com/news/nashville-area-school-closings-schools-203908049.html)
 <!-- feed end -->
 
 ### Onstream
