@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [RI Lottery Mega Millions, Lucky For Life winning numbers for April 1, 2025](https://www.yahoo.com/news/ri-lottery-mega-millions-lucky-033011036.html)
-- Apr 02 - [Republicans win Florida special elections, Democrat-backed judge wins in Wisconsin | Special Report](https://www.yahoo.com/news/republicans-win-florida-special-elections-030223872.html)
+- Apr 02 - [Mexico bans junk food sales in schools in its latest salvo against child obesity](https://www.yahoo.com/news/mexico-bans-junk-food-sales-045106721.html)
 - Apr 02 - [Republicans Plan To Go 'Nuclear' On Passing Trillion Dollar Tax Cuts](https://www.yahoo.com/news/republicans-plan-nuclear-passing-trillion-023157381.html)
-- Apr 02 - [Mercedes-Benz wants car back from Deion Sanders' son Shilo after alleged default](https://finance.yahoo.com/news/mercedes-benz-wants-car-back-020518212.html)
-- Apr 02 - [Police searched woman’s truck over marijuana smell. What was inside impacts dozens across metro](https://www.yahoo.com/news/police-searched-woman-truck-over-010722360.html)
+- Apr 01 - [Anger against Trump is likely to cost the US international visitors, forecaster says](https://www.yahoo.com/news/anger-against-trump-likely-cost-225818268.html)
+- Apr 01 - [Kansas City fried chicken chain has opened its first new location in 25 years](https://www.yahoo.com/lifestyle/kansas-city-fried-chicken-chain-220102950.html)
+- Apr 01 - [Teacher Arrested for Alleged Inappropriate Relationship With Student](https://www.yahoo.com/news/teacher-arrested-alleged-inappropriate-relationship-212653463.html)
 <!-- feed end -->
 
 ### Onstream
