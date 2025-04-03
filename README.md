@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Stock market today: Nasdaq futures lead stock plunge, Dow drops 1,000 points as Trump's punishing tariffs rip through markets](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-lead-stock-plunge-dow-drops-1000-points-as-trumps-punishing-tariffs-rip-through-markets-000611007.html)
+- Apr 02 - [Orphaned cougar cub finds new home at Northwest Trek Wildlife Park after rescue in Washington](https://www.yahoo.com/news/orphaned-cougar-cub-finds-home-233928269.html)
 - Apr 02 - ['Worse than expected': Wall Street reacts to Trump's 'Liberation Day' tariff surprise, stocks sink](https://finance.yahoo.com/news/worse-than-expected-wall-street-reacts-to-trumps-liberation-day-tariff-surprise-stocks-sink-222345902.html)
-- Apr 02 - [Mass shooter who killed 6 people at The Covenant School had no grudge against victims but was fueled by a quest for notoriety](https://www.yahoo.com/news/mass-shooter-killed-6-people-155831236.html)
-- Apr 02 - [Hefty Trump tariffs surprise markets, S&P futures slide](https://finance.yahoo.com/news/instant-view-investors-react-trump-210107864.html)
-- Apr 02 - [Why Tesla deliveries are much worse than expected](https://www.yahoo.com/news/why-tesla-deliveries-much-worse-205924297.html)
-- Apr 02 - [Nashville area school closings: These schools are closed Thursday due to severe weather threat](https://www.yahoo.com/news/nashville-area-school-closings-schools-203908049.html)
+- Apr 02 - [North Dakota voters banned lawmakers from seeking term limit changes. They did it anyway](https://www.yahoo.com/news/north-dakota-voters-banned-lawmakers-222145312.html)
+- Apr 02 - [Police: Body of unidentified woman found in canal off Versailles Boulevard in Alexandria](https://www.yahoo.com/news/police-body-unidentified-woman-found-212147577.html)
 <!-- feed end -->
 
 ### Onstream
