@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Stock market today: S&P 500, Nasdaq plunge, Dow drops 1,500 points as Trump's tariffs rip through markets worldwide](https://finance.yahoo.com/news/live/stock-market-today-sp-500-nasdaq-plunge-dow-drops-1500-points-as-trumps-tariffs-rip-through-markets-worldwide-133046991.html)
-- Apr 03 - [Big Shot Investor Savagely Sums Up Donald Trump’s Tariffs In 3 Words](https://finance.yahoo.com/news/big-shot-investor-savagely-sums-124355341.html)
-- Apr 03 - [Everything is blowing up in Elon Musk’s face](https://finance.yahoo.com/news/everything-blowing-elon-musk-face-090036385.html)
-- Apr 03 - [Chevrolet debuts stunning prototype vehicle with incredible performance: 'The fundamental objective is clear'](https://autos.yahoo.com/chevrolet-debuts-stunning-prototype-vehicle-110045390.html)
-- Apr 03 - [Scientists scramble to save beloved breakfast staple from looming threat: 'It's crucial we act now'](https://www.yahoo.com/news/scientists-scramble-save-beloved-breakfast-110028706.html)
+- Apr 03 - [Trump moves to fire several national security officials over concerns they're not loyal: AP sources](https://www.yahoo.com/news/trump-moves-fire-several-national-153156206.html)
+- Apr 03 - [The moment Sen. Ted Cruz flies into a rage with Sen. Amy Klobuchar over ‘radical judges’](https://www.yahoo.com/news/moment-sen-ted-cruz-flies-152622871.html)
+- Apr 03 - [Eliot stepping down as president of Jordan’s Furniture](https://www.yahoo.com/news/eliot-stepping-down-president-jordan-145754957.html)
+- Apr 03 - [Parents defend bus driver accused of crashing into Virginia Giuffre at 70mph](https://www.yahoo.com/news/parents-defend-bus-driver-accused-144136023.html)
+- Apr 03 - [Stock market today: S&P 500, Nasdaq plunge, Dow drops 1,200 points as Trump's tariffs rip through global markets](https://finance.yahoo.com/news/live/stock-market-today-sp-500-nasdaq-plunge-dow-drops-1200-points-as-trumps-tariffs-rip-through-global-markets-133046436.html)
 <!-- feed end -->
 
 ### Onstream
