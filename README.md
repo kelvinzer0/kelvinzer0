@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 03 - [Stock market today: Nasdaq futures lead stock plunge, Dow drops 1,000 points as Trump's punishing tariffs rip through markets](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-lead-stock-plunge-dow-drops-1000-points-as-trumps-punishing-tariffs-rip-through-markets-000611007.html)
 - Apr 02 - [Orphaned cougar cub finds new home at Northwest Trek Wildlife Park after rescue in Washington](https://www.yahoo.com/news/orphaned-cougar-cub-finds-home-233928269.html)
+- Apr 02 - [Megyn Kelly Blames Dems for Elon Musk’s Reported White House Exit, Says It’s ‘Sad’ He’s Not Embraced Like Einstein or Edison | Video](https://www.yahoo.com/news/megyn-kelly-blames-dems-elon-230134741.html)
 - Apr 02 - ['Worse than expected': Wall Street reacts to Trump's 'Liberation Day' tariff surprise, stocks sink](https://finance.yahoo.com/news/worse-than-expected-wall-street-reacts-to-trumps-liberation-day-tariff-surprise-stocks-sink-222345902.html)
 - Apr 02 - [North Dakota voters banned lawmakers from seeking term limit changes. They did it anyway](https://www.yahoo.com/news/north-dakota-voters-banned-lawmakers-222145312.html)
-- Apr 02 - [Police: Body of unidentified woman found in canal off Versailles Boulevard in Alexandria](https://www.yahoo.com/news/police-body-unidentified-woman-found-212147577.html)
 <!-- feed end -->
 
 ### Onstream
