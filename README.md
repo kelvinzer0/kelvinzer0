@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Senate confirms Mehmet Oz to take lead of Medicare and Medicaid agency](https://www.yahoo.com/news/senate-confirms-mehmet-oz-lead-204539174.html)
+- Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
+- Apr 03 - [Intel and TSMC reach tentative deal on chip manufacturing: Report](https://finance.yahoo.com/news/intel-and-tsmc-reach-tentative-deal-on-chip-manufacturing-report-202417844.html)
+- Apr 03 - [Dan Rather's Post About Donald Trump Is Going Mega Viral](https://www.yahoo.com/news/dan-rathers-post-donald-trump-194053988.html)
 - Apr 03 - [Yale fires legal scholar amid review of possible ties to 'sham charity' for designated terror group](https://www.yahoo.com/news/yale-fires-legal-scholar-amid-191230983.html)
-- Apr 03 - [Tornado damages businesses in Jeffersontown, Middletown. See who was affected by Kentucky storms](https://www.yahoo.com/news/tornado-damages-businesses-jeffersontown-middletown-182818907.html)
-- Apr 03 - [High just got higher: Trump tariffs to raise prices for US cannabis users](https://finance.yahoo.com/news/high-just-got-higher-trump-173438031.html)
-- Apr 03 - [National Weather Service is 'sure' a tornado hit Vanderburgh County on Wednesday](https://www.yahoo.com/news/national-weather-sure-tornado-hit-170417603.html)
-- Apr 03 - [A Scientist Says He Has the Evidence That We Live in a Simulation](https://www.yahoo.com/news/scientist-says-evidence-live-simulation-165600705.html)
 <!-- feed end -->
 
 ### Onstream
