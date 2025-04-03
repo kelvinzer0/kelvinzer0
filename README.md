@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Philippines assures China potential F-16 purchase not intended to harm any nation](https://www.yahoo.com/news/philippines-assures-china-potential-f-044909662.html)
+- Apr 03 - [Bids for TikTok pile up, with Amazon and OnlyFans founder in the race](https://finance.yahoo.com/video/bids-tiktok-pile-amazon-onlyfans-084205666.html)
 - Apr 03 - [US bans government personnel in China from romantic or sexual relations with Chinese citizens](https://www.yahoo.com/news/us-bans-government-personnel-china-040933519.html)
-- Apr 02 - ['Worse than expected': Wall Street reacts to Trump's 'Liberation Day' tariff surprise, stocks sink](https://finance.yahoo.com/news/worse-than-expected-wall-street-reacts-to-trumps-liberation-day-tariff-surprise-stocks-sink-222345902.html)
-- Apr 02 - [North Dakota voters banned lawmakers from seeking term limit changes. They did it anyway](https://www.yahoo.com/news/north-dakota-voters-banned-lawmakers-222145312.html)
-- Apr 02 - [Hamas will not respond to Israel's counter Gaza ceasefire proposal, official says](https://www.yahoo.com/news/hamas-not-respond-israels-counter-213610753.html)
+- Apr 03 - [Stock market today: Nasdaq futures lead stock plunge, Dow drops 1,000 points as Trump's punishing tariffs rip through markets](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-lead-stock-plunge-dow-drops-1000-points-as-trumps-punishing-tariffs-rip-through-markets-000611007.html)
+- Apr 02 - [Orphaned cougar cub finds new home at Northwest Trek Wildlife Park after rescue in Washington](https://www.yahoo.com/news/orphaned-cougar-cub-finds-home-233928269.html)
+- Apr 02 - [Megyn Kelly Blames Dems for Elon Musk’s Reported White House Exit, Says It’s ‘Sad’ He’s Not Embraced Like Einstein or Edison | Video](https://www.yahoo.com/news/megyn-kelly-blames-dems-elon-230134741.html)
 <!-- feed end -->
 
 ### Onstream
