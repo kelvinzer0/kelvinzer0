@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [When I was diagnosed with stage three skin cancer it felt like the ground had shifted beneath me](https://www.yahoo.com/lifestyle/stage-three-skin-cancer-134814141.html)
-- Apr 03 - [EEOC chief shifts focus to investigating DEI but the methods provoke an outcry](https://www.yahoo.com/news/eeoc-chief-shift-focus-investigating-134126126.html)
-- Apr 03 - [Stock market today: S&P 500, Nasdaq tank, Dow drops over 1,000 points as Trump's tariffs rip through markets worldwide](https://finance.yahoo.com/news/live/stock-market-today-sp-500-nasdaq-tank-dow-drops-over-1000-points-as-trumps-tariffs-rip-through-markets-worldwide-133046652.html)
-- Apr 03 - [Yes, that's a trampoline caught in utility lines. Check out these photos taken during storm](https://www.yahoo.com/news/yes-thats-trampoline-caught-utility-130740776.html)
+- Apr 03 - [Stock market today: S&P 500, Nasdaq plunge, Dow drops 1,500 points as Trump's tariffs rip through markets worldwide](https://finance.yahoo.com/news/live/stock-market-today-sp-500-nasdaq-plunge-dow-drops-1500-points-as-trumps-tariffs-rip-through-markets-worldwide-133046991.html)
 - Apr 03 - [Big Shot Investor Savagely Sums Up Donald Trump’s Tariffs In 3 Words](https://finance.yahoo.com/news/big-shot-investor-savagely-sums-124355341.html)
+- Apr 03 - [Everything is blowing up in Elon Musk’s face](https://finance.yahoo.com/news/everything-blowing-elon-musk-face-090036385.html)
+- Apr 03 - [Chevrolet debuts stunning prototype vehicle with incredible performance: 'The fundamental objective is clear'](https://autos.yahoo.com/chevrolet-debuts-stunning-prototype-vehicle-110045390.html)
+- Apr 03 - [Scientists scramble to save beloved breakfast staple from looming threat: 'It's crucial we act now'](https://www.yahoo.com/news/scientists-scramble-save-beloved-breakfast-110028706.html)
 <!-- feed end -->
 
 ### Onstream
