@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Trump moves to fire several national security officials over concerns they're not loyal: AP sources](https://www.yahoo.com/news/trump-moves-fire-several-national-153156206.html)
+- Apr 03 - [Did Trump really bring down the price of eggs by half?](https://finance.yahoo.com/news/did-trump-really-bring-down-the-price-of-eggs-by-half-154725852.html)
+- Apr 03 - [Nite Owl, Wedl's and more: Here's when Milwaukee-area drive-ins open for the 2025 season](https://www.yahoo.com/lifestyle/nite-owl-wedls-more-heres-154607160.html)
 - Apr 03 - [The moment Sen. Ted Cruz flies into a rage with Sen. Amy Klobuchar over ‘radical judges’](https://www.yahoo.com/news/moment-sen-ted-cruz-flies-152622871.html)
 - Apr 03 - [Eliot stepping down as president of Jordan’s Furniture](https://www.yahoo.com/news/eliot-stepping-down-president-jordan-145754957.html)
-- Apr 03 - [Parents defend bus driver accused of crashing into Virginia Giuffre at 70mph](https://www.yahoo.com/news/parents-defend-bus-driver-accused-144136023.html)
-- Apr 03 - [Stock market today: S&P 500, Nasdaq plunge, Dow drops 1,200 points as Trump's tariffs rip through global markets](https://finance.yahoo.com/news/live/stock-market-today-sp-500-nasdaq-plunge-dow-drops-1200-points-as-trumps-tariffs-rip-through-global-markets-133046436.html)
+- Apr 03 - [Thunderstorms to impact Southern California on Thursday. Here’s the timing](https://www.yahoo.com/news/thunderstorms-impact-southern-california-thursday-144900156.html)
 <!-- feed end -->
 
 ### Onstream
