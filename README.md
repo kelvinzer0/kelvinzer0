@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Pictured: The Tintin ‘danger tourist’ who left Coke can for world’s most isolated tribe](https://www.yahoo.com/news/pictured-tintin-danger-tourist-left-182937805.html)
-- Apr 03 - [Man kills mother in moving car, then kills passing motorist and injures others, Maine police say](https://www.yahoo.com/news/man-kills-mother-moving-car-173737339.html)
+- Apr 03 - [Yale fires legal scholar amid review of possible ties to 'sham charity' for designated terror group](https://www.yahoo.com/news/yale-fires-legal-scholar-amid-191230983.html)
+- Apr 03 - [Tornado damages businesses in Jeffersontown, Middletown. See who was affected by Kentucky storms](https://www.yahoo.com/news/tornado-damages-businesses-jeffersontown-middletown-182818907.html)
 - Apr 03 - [High just got higher: Trump tariffs to raise prices for US cannabis users](https://finance.yahoo.com/news/high-just-got-higher-trump-173438031.html)
-- Apr 03 - [Allegiant launches new nonstop flight from Sarasota Bradenton International Airport](https://www.yahoo.com/lifestyle/allegiant-launches-nonstop-flight-sarasota-170343020.html)
-- Apr 03 - [Frisco Memorial High School football player fatally stabbed over reported seating dispute at Texas track and field event](https://sports.yahoo.com/article/frisco-memorial-high-school-football-player-fatally-stabbed-over-reported-seating-dispute-at-texas-track-and-field-event-162428589.html)
+- Apr 03 - [National Weather Service is 'sure' a tornado hit Vanderburgh County on Wednesday](https://www.yahoo.com/news/national-weather-sure-tornado-hit-170417603.html)
+- Apr 03 - [A Scientist Says He Has the Evidence That We Live in a Simulation](https://www.yahoo.com/news/scientist-says-evidence-live-simulation-165600705.html)
 <!-- feed end -->
 
 ### Onstream
