@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Prediction: 4 Artificial Intelligence (AI) Stocks That Could Be Worth More Than Apple by 2030](https://finance.yahoo.com/news/prediction-4-artificial-intelligence-ai-101500646.html)
 - Apr 03 - [US bans government personnel in China from romantic or sexual relations with Chinese citizens](https://www.yahoo.com/news/us-bans-government-personnel-china-040933519.html)
 - Apr 03 - [China urges US to immediately lift tariffs, vows retaliation](https://finance.yahoo.com/news/china-urges-us-cancel-reciprocal-021804860.html)
-- Apr 03 - [Jean-Claude Van Damme accused of having sex with 5 Romanian women he knew were trafficked](https://www.yahoo.com/entertainment/jean-claude-van-damme-accused-004251837.html)
-- Apr 02 - [2 brothers arrested on warrants in Northeast El Paso](https://www.yahoo.com/news/2-brothers-arrested-warrants-northeast-223418425.html)
-- Apr 02 - ['Worse than expected': Wall Street reacts to Trump's 'Liberation Day' tariff surprise, stocks sink](https://finance.yahoo.com/news/worse-than-expected-wall-street-reacts-to-trumps-liberation-day-tariff-surprise-stocks-sink-222345902.html)
+- Apr 03 - [Billionaire Michael Bloomberg sends hard-nosed message on economy](https://finance.yahoo.com/news/billionaire-michael-bloomberg-sends-hard-003300933.html)
+- Apr 03 - [Stock market today: Nasdaq futures lead stock plunge, Dow drops 1,000 points as Trump's punishing tariffs rip through markets](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-lead-stock-plunge-dow-drops-1000-points-as-trumps-punishing-tariffs-rip-through-markets-000611007.html)
 <!-- feed end -->
 
 ### Onstream
