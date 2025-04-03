@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Georgia lawmakers pass religious freedom bill despite discrimination concerns](https://www.yahoo.com/news/georgia-lawmakers-pass-religious-freedom-034241199.html)
+- Apr 03 - [US bans government personnel in China from romantic or sexual relations with Chinese citizens](https://www.yahoo.com/news/us-bans-government-personnel-china-040933519.html)
 - Apr 03 - [China urges US to immediately lift tariffs, vows retaliation](https://finance.yahoo.com/news/china-urges-us-cancel-reciprocal-021804860.html)
-- Apr 03 - [Watch: Violent tornado causes damage near Lake City, Arkansas](https://www.yahoo.com/news/watch-violent-tornado-causes-damage-004751301.html)
 - Apr 03 - [Stock market today: Nasdaq futures lead stock plunge, Dow drops 1,000 points as Trump's punishing tariffs rip through markets](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-lead-stock-plunge-dow-drops-1000-points-as-trumps-punishing-tariffs-rip-through-markets-000611007.html)
 - Apr 02 - [Megyn Kelly Blames Dems for Elon Musk’s Reported White House Exit, Says It’s ‘Sad’ He’s Not Embraced Like Einstein or Edison | Video](https://www.yahoo.com/news/megyn-kelly-blames-dems-elon-230134741.html)
+- Apr 02 - ['Worse than expected': Wall Street reacts to Trump's 'Liberation Day' tariff surprise, stocks sink](https://finance.yahoo.com/news/worse-than-expected-wall-street-reacts-to-trumps-liberation-day-tariff-surprise-stocks-sink-222345902.html)
 <!-- feed end -->
 
 ### Onstream
