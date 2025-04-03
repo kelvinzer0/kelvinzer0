@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Did Trump really bring down the price of eggs by half?](https://finance.yahoo.com/news/did-trump-really-bring-down-the-price-of-eggs-by-half-154725852.html)
-- Apr 03 - [Nite Owl, Wedl's and more: Here's when Milwaukee-area drive-ins open for the 2025 season](https://www.yahoo.com/lifestyle/nite-owl-wedls-more-heres-154607160.html)
-- Apr 03 - [The moment Sen. Ted Cruz flies into a rage with Sen. Amy Klobuchar over ‘radical judges’](https://www.yahoo.com/news/moment-sen-ted-cruz-flies-152622871.html)
-- Apr 03 - [Eliot stepping down as president of Jordan’s Furniture](https://www.yahoo.com/news/eliot-stepping-down-president-jordan-145754957.html)
-- Apr 03 - [Thunderstorms to impact Southern California on Thursday. Here’s the timing](https://www.yahoo.com/news/thunderstorms-impact-southern-california-thursday-144900156.html)
+- Apr 03 - [High just got higher: Trump tariffs to raise prices for US cannabis users](https://finance.yahoo.com/news/high-just-got-higher-trump-173438031.html)
+- Apr 03 - [Exclusion from Trump's tariffs reduces premium of New York precious metals over London](https://finance.yahoo.com/news/exclusion-trumps-tariffs-reduces-premium-171033551.html)
+- Apr 03 - [Fla. Troopers Say They Saw Married Woman Having Sex on Grave in Historic Cemetery with Lover — But Only She Is Jailed](https://www.yahoo.com/entertainment/fla-troopers-saw-married-woman-170659707.html)
+- Apr 03 - [Frisco Memorial High School football player fatally stabbed over reported seating dispute at Texas track and field event](https://sports.yahoo.com/article/frisco-memorial-high-school-football-player-fatally-stabbed-over-reported-seating-dispute-at-texas-track-and-field-event-162428589.html)
+- Apr 03 - [France's Macron calls for suspension of investment in US after tariffs](https://www.yahoo.com/news/frances-macron-calls-suspension-investment-155300404.html)
 <!-- feed end -->
 
 ### Onstream
