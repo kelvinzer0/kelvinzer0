@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Ukraine great Shevchenko is not elected to UEFA ruling committee as Russia cedes place](https://sports.yahoo.com/article/ukraine-great-shevchenko-not-elected-122038001.html)
-- Apr 03 - [What is MEI? It’s the ‘new corporate rage’ as DEI dies, says a Harvard economist — but is this true?](https://finance.yahoo.com/news/mei-corporate-rage-dei-dies-103200711.html)
-- Apr 03 - [Hiltzik: GOP thinks the court orders they used against Biden should be outlawed — because they now target Trump](https://www.yahoo.com/news/hiltzik-gop-thinks-court-orders-100049596.html)
-- Apr 03 - [New York school district hit with lawsuit over 'Spartans' mascot deemed symbol of 'White supremacy'](https://www.yahoo.com/news/york-school-district-hit-lawsuit-090027575.html)
+- Apr 03 - [Big Shot Investor Savagely Sums Up Donald Trump’s Tariffs In 3 Words](https://finance.yahoo.com/news/big-shot-investor-savagely-sums-124355341.html)
+- Apr 03 - [Chevrolet debuts stunning prototype vehicle with incredible performance: 'The fundamental objective is clear'](https://autos.yahoo.com/chevrolet-debuts-stunning-prototype-vehicle-110045390.html)
+- Apr 03 - [Finland says all of Europe should engage with the US on tariffs](https://finance.yahoo.com/news/finland-says-europe-engage-us-100020863.html)
 - Apr 03 - [US bans government personnel in China from romantic or sexual relations with Chinese citizens](https://www.yahoo.com/news/us-bans-government-personnel-china-040933519.html)
+- Apr 03 - [China urges US to immediately lift tariffs, vows retaliation](https://finance.yahoo.com/news/china-urges-us-cancel-reciprocal-021804860.html)
 <!-- feed end -->
 
 ### Onstream
