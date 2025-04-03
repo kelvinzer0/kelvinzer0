@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Prediction: 4 Artificial Intelligence (AI) Stocks That Could Be Worth More Than Apple by 2030](https://finance.yahoo.com/news/prediction-4-artificial-intelligence-ai-101500646.html)
+- Apr 03 - [Ukraine great Shevchenko is not elected to UEFA ruling committee as Russia cedes place](https://sports.yahoo.com/article/ukraine-great-shevchenko-not-elected-122038001.html)
+- Apr 03 - [What is MEI? It’s the ‘new corporate rage’ as DEI dies, says a Harvard economist — but is this true?](https://finance.yahoo.com/news/mei-corporate-rage-dei-dies-103200711.html)
+- Apr 03 - [Hiltzik: GOP thinks the court orders they used against Biden should be outlawed — because they now target Trump](https://www.yahoo.com/news/hiltzik-gop-thinks-court-orders-100049596.html)
+- Apr 03 - [New York school district hit with lawsuit over 'Spartans' mascot deemed symbol of 'White supremacy'](https://www.yahoo.com/news/york-school-district-hit-lawsuit-090027575.html)
 - Apr 03 - [US bans government personnel in China from romantic or sexual relations with Chinese citizens](https://www.yahoo.com/news/us-bans-government-personnel-china-040933519.html)
-- Apr 03 - [China urges US to immediately lift tariffs, vows retaliation](https://finance.yahoo.com/news/china-urges-us-cancel-reciprocal-021804860.html)
-- Apr 03 - [Billionaire Michael Bloomberg sends hard-nosed message on economy](https://finance.yahoo.com/news/billionaire-michael-bloomberg-sends-hard-003300933.html)
-- Apr 03 - [Stock market today: Nasdaq futures lead stock plunge, Dow drops 1,000 points as Trump's punishing tariffs rip through markets](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-lead-stock-plunge-dow-drops-1000-points-as-trumps-punishing-tariffs-rip-through-markets-000611007.html)
 <!-- feed end -->
 
 ### Onstream
