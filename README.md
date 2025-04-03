@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 03 - [US bans government personnel in China from romantic or sexual relations with Chinese citizens](https://www.yahoo.com/news/us-bans-government-personnel-china-040933519.html)
+- Apr 03 - [Stock market today: Nasdaq futures lead stock plunge, Dow drops 1,000 points as Trump's punishing tariffs rip through markets](https://finance.yahoo.com/news/live/stock-market-today-nasdaq-futures-lead-stock-plunge-dow-drops-1000-points-as-trumps-punishing-tariffs-rip-through-markets-000611007.html)
 - Apr 02 - ['Worse than expected': Wall Street reacts to Trump's 'Liberation Day' tariff surprise, stocks sink](https://finance.yahoo.com/news/worse-than-expected-wall-street-reacts-to-trumps-liberation-day-tariff-surprise-stocks-sink-222345902.html)
-- Apr 02 - [North Dakota voters banned lawmakers from seeking term limit changes. They did it anyway](https://www.yahoo.com/news/north-dakota-voters-banned-lawmakers-222145312.html)
+- Apr 02 - [Utah judge facing charges for sexual abuse, drug distribution](https://www.yahoo.com/news/utah-judge-facing-charges-sexual-215939808.html)
 - Apr 02 - [Mass shooter who killed 6 people at The Covenant School had no grudge against victims but was fueled by a quest for notoriety](https://www.yahoo.com/news/mass-shooter-killed-6-people-155831236.html)
-- Apr 02 - [Hefty Trump tariffs surprise markets, stocks slide](https://finance.yahoo.com/news/instant-view-investors-react-trump-210107864.html)
 <!-- feed end -->
 
 ### Onstream
