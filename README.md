@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Israeli forces expand ground operations in Gaza](https://www.yahoo.com/news/israeli-forces-expand-ground-operations-163943074.html)
 - Apr 04 - [Klarna reportedly pauses IPO](https://finance.yahoo.com/video/klarna-reportedly-pauses-ipo-153517362.html)
-- Apr 04 - [The FTSE 100 companies that could come out best after Trump's tariffs](https://uk.finance.yahoo.com/news/ftse-100-stocks-us-operations-trump-tariffs-trade-151552925.html)
+- Apr 04 - [Mass grave of Roman soldiers tells gruesome tale of military disaster](https://www.yahoo.com/news/mass-grave-roman-soldiers-tells-144620270.html)
+- Apr 04 - [Wall Street now hates these 10 stocks because of Trump tariffs](https://finance.yahoo.com/news/wall-street-now-hates-these-10-stocks-because-of-trump-tariffs-135445636.html)
 - Apr 04 - [Fyre Fest 2 is not happening in Playa del Carmen, city officials say](https://www.yahoo.com/news/fyre-fest-2-not-happening-115345318.html)
-- Apr 04 - [New electric vehicle model just rapidly outsold Tesla — here's why its flying off of lots](https://autos.yahoo.com/electric-vehicle-model-just-rapidly-114552945.html)
-- Apr 04 - [Coast guard makes disturbing discovery during routine stop: 'An apparent attempt to conceal and smuggle them'](https://www.yahoo.com/news/coast-guard-makes-disturbing-discovery-111550503.html)
 <!-- feed end -->
 
 ### Onstream
