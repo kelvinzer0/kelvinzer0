@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Israeli troops expand 'security zone' in northern Gaza](https://www.yahoo.com/news/israeli-troops-expand-security-zone-065438499.html)
+- Apr 04 - [Tennessee storms kill multiple people: officials](https://www.yahoo.com/news/tennessee-storms-kill-multiple-people-022115687.html)
+- Apr 03 - [Mexico to dump millions of gallons of sewage into Tijuana River, US continues to be a dumping ground: Official](https://www.yahoo.com/news/mexico-dump-millions-gallons-sewage-230826012.html)
 - Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
 - Apr 03 - [Intel and TSMC reach tentative deal on chip manufacturing: Report](https://finance.yahoo.com/news/intel-and-tsmc-reach-tentative-deal-on-chip-manufacturing-report-202417844.html)
 - Apr 03 - [This Bay Area city ranks most expensive in the U.S. to 'live comfortably'](https://finance.yahoo.com/news/bay-area-city-ranks-most-195642055.html)
-- Apr 03 - [Dan Rather's Post About Donald Trump Is Going Mega Viral](https://www.yahoo.com/news/dan-rathers-post-donald-trump-194053988.html)
 <!-- feed end -->
 
 ### Onstream
