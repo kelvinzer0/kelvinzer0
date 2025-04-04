@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [‘Caring’ man mauled to death while feeding brother’s dogs](https://www.yahoo.com/news/caring-man-found-dead-being-114818511.html)
+- Apr 04 - [People Are Deciding What To Call The Next "Great Depression," And The Winner Is Both Funny And, Yeah, Depressing](https://www.yahoo.com/entertainment/people-deciding-call-next-great-181037385.html)
+- Apr 04 - [How far stocks would need to fall to trigger a circuit breaker as rout intensifies](https://finance.yahoo.com/news/could-tariffs-trigger-stock-market-162800612.html)
 - Apr 04 - [Warren Buffett defended his massive $300 billion cash pile in February. Now he doesn't have to.](https://finance.yahoo.com/news/warren-buffett-defended-his-massive-300-billion-cash-pile-in-february-now-he-doesnt-have-to-174312496.html)
-- Apr 04 - [San Francisco park-naming contest goes hilariously wrong](https://www.yahoo.com/news/san-francisco-park-naming-contest-131615518.html)
-- Apr 04 - [Wall Street now hates these 10 stocks because of Trump tariffs](https://finance.yahoo.com/news/wall-street-now-hates-these-10-stocks-because-of-trump-tariffs-135445636.html)
-- Apr 04 - [Michael Saylor offers blunt response on why Bitcoin dips with stocks](https://finance.yahoo.com/news/michael-saylor-offers-blunt-response-130038411.html)
-- Apr 04 - [Fyre Fest 2 is not happening in Playa del Carmen, city officials say](https://www.yahoo.com/news/fyre-fest-2-not-happening-115345318.html)
+- Apr 04 - [North Carolina judges side with Republican colleague in close Supreme Court race](https://www.yahoo.com/news/north-carolina-judges-side-colleague-172150955.html)
 <!-- feed end -->
 
 ### Onstream
