@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Tennessee storms kill multiple people: officials](https://www.yahoo.com/news/tennessee-storms-kill-multiple-people-022115687.html)
-- Apr 03 - [Mexico to dump millions of gallons of sewage into Tijuana River, US continues to be a dumping ground: Official](https://www.yahoo.com/news/mexico-dump-millions-gallons-sewage-230826012.html)
+- Apr 04 - [Oil prices are crashing after tariffs and OPEC deliver a double whammy to energy markets](https://finance.yahoo.com/news/oil-prices-crashing-tariffs-opec-004901673.html)
 - Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
-- Apr 03 - [Intel and TSMC reach tentative deal on chip manufacturing: Report](https://finance.yahoo.com/news/intel-and-tsmc-reach-tentative-deal-on-chip-manufacturing-report-202417844.html)
+- Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
+- Apr 03 - [Exclusive: Mark Cuban offers one-word blunt reaction on Trump’s tariffs](https://finance.yahoo.com/news/exclusive-mark-cuban-offers-one-200016626.html)
 - Apr 03 - [This Bay Area city ranks most expensive in the U.S. to 'live comfortably'](https://finance.yahoo.com/news/bay-area-city-ranks-most-195642055.html)
 <!-- feed end -->
 
