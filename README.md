@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
+- Apr 04 - [Oil prices are crashing after tariffs and OPEC deliver a double whammy to energy markets](https://finance.yahoo.com/news/oil-prices-crashing-tariffs-opec-004901673.html)
+- Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
+- Apr 03 - [A married couple enjoyed an ‘intimate moment’ at their Airbnb. Then they discovered a hidden camera above the bed](https://www.yahoo.com/news/married-couple-enjoyed-intimate-moment-210233937.html)
 - Apr 03 - [Intel and TSMC reach tentative deal on chip manufacturing: Report](https://finance.yahoo.com/news/intel-and-tsmc-reach-tentative-deal-on-chip-manufacturing-report-202417844.html)
 - Apr 03 - [Exclusive: Mark Cuban offers one-word blunt reaction on Trump’s tariffs](https://finance.yahoo.com/news/exclusive-mark-cuban-offers-one-200016626.html)
-- Apr 03 - [Dan Rather's Post About Donald Trump Is Going Mega Viral](https://www.yahoo.com/news/dan-rathers-post-donald-trump-194053988.html)
-- Apr 03 - [Gold Star Medal Found in Vault Returned to Soldier's Family](https://www.yahoo.com/news/gold-star-medal-found-vault-193202482.html)
 <!-- feed end -->
 
 ### Onstream
