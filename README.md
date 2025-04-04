@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Judge orders wrongly deported Maryland man to be returned to U.S.](https://www.yahoo.com/news/judge-orders-wrongly-deported-maryland-213328169.html)
+- Apr 04 - [Trump extends sale, ban of TikTok another 75 days](https://www.yahoo.com/news/tiktok-faces-sale-ban-deadline-133139652.html)
 - Apr 04 - [Trump admin. to reportedly drop Medicare GLP-1 plan](https://finance.yahoo.com/video/trump-admin-reportedly-drop-medicare-211717981.html)
-- Apr 04 - [Cory Booker's Oura Ring Reveals What The 25-Hour Speech Did To His Body](https://www.yahoo.com/news/cory-bookers-oura-ring-reveals-204828115.html)
-- Apr 04 - [Nio Begins European Layoffs to Cut Global Costs by 25%](https://finance.yahoo.com/news/nio-begins-european-layoffs-cut-200802910.html)
+- Apr 04 - [About 500 law firms sign brief challenging Trump's executive orders targeting the legal community](https://www.yahoo.com/news/500-law-firms-sign-brief-201958772.html)
 - Apr 04 - [The White House cited these economists to justify its tariffs. They aren't thrilled.](https://finance.yahoo.com/news/the-white-house-cited-these-economists-to-justify-its-tariffs-they-arent-thrilled-193615537.html)
-- Apr 04 - [Russia’s New Helicopter Carrier Is Taking Shape In Crimea](https://www.yahoo.com/news/russia-helicopter-carrier-taking-shape-190218972.html)
 <!-- feed end -->
 
 ### Onstream
