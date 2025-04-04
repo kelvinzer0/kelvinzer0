@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Trump tariffs are putting Wall Street through 5 stages of grief](https://finance.yahoo.com/video/trump-tariffs-putting-wall-street-103038048.html)
-- Apr 04 - [Private Milwaukee school buys neighboring supermarket for $8.25 million. It plans to expand there](https://finance.yahoo.com/news/private-milwaukee-school-buys-neighboring-100249685.html)
-- Apr 04 - [Iowa student’s passport seizure in Dominican Republic raises red flags for Americans traveling: What to know](https://www.yahoo.com/news/iowa-student-passport-seizure-dominican-080028155.html)
-- Apr 04 - [OPEC+ Announcement Stuns Oil Market](https://finance.yahoo.com/video/opec-announcement-stuns-oil-market-065541671.html)
-- Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
+- Apr 04 - [‘Caring’ man mauled to death while feeding brother’s dogs](https://www.yahoo.com/news/caring-man-found-dead-being-114818511.html)
+- Apr 04 - [Fyre Fest 2 is not happening in Playa del Carmen, city officials say](https://www.yahoo.com/news/fyre-fest-2-not-happening-115345318.html)
+- Apr 04 - [People Over 30 Are Sharing The Surprising Physical Signs Of Aging They Weren't Prepared For](https://www.yahoo.com/lifestyle/people-over-30-sharing-surprising-103104355.html)
+- Apr 04 - [‘I didn’t ask you’: The CNN anchor rattling Donald Trump’s cage](https://www.yahoo.com/news/didn-t-ask-cnn-anchor-093000724.html)
+- Apr 04 - [Should You Really Buy Stocks as President Trump's Tariffs Take Effect? History Gives a Clear Answer.](https://finance.yahoo.com/news/really-buy-stocks-president-trumps-072000274.html)
 <!-- feed end -->
 
 ### Onstream
