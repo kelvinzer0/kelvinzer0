@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [NWS confirms that an EF1 tornado hit Carmel and an EF2 tornado hit Hendricks county](https://www.yahoo.com/news/nws-confirms-ef1-tornado-hit-213825471.html)
+- Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
 - Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
 - Apr 03 - [Intel and TSMC reach tentative deal on chip manufacturing: Report](https://finance.yahoo.com/news/intel-and-tsmc-reach-tentative-deal-on-chip-manufacturing-report-202417844.html)
-- Apr 03 - [Dan Rather's Post About Donald Trump Is Going Mega Viral](https://www.yahoo.com/news/dan-rathers-post-donald-trump-194053988.html)
-- Apr 03 - [Yale fires legal scholar amid review of possible ties to 'sham charity' for designated terror group](https://www.yahoo.com/news/yale-fires-legal-scholar-amid-191230983.html)
+- Apr 03 - [Exclusive: Mark Cuban offers one-word blunt reaction on Trump’s tariffs](https://finance.yahoo.com/news/exclusive-mark-cuban-offers-one-200016626.html)
+- Apr 03 - [Delta removes an employee, changes its uniform policy after backlash over social media post perceived to be anti-Palestinian](https://www.yahoo.com/news/delta-removes-employee-changes-uniform-194654885.html)
 <!-- feed end -->
 
 ### Onstream
