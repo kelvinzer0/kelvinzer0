@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [‘Caring’ man mauled to death while feeding brother’s dogs](https://www.yahoo.com/news/caring-man-found-dead-being-114818511.html)
-- Apr 04 - [Fyre Fest 2 is not happening in Playa del Carmen, city officials say](https://www.yahoo.com/news/fyre-fest-2-not-happening-115345318.html)
-- Apr 04 - [People Over 30 Are Sharing The Surprising Physical Signs Of Aging They Weren't Prepared For](https://www.yahoo.com/lifestyle/people-over-30-sharing-surprising-103104355.html)
-- Apr 04 - [‘I didn’t ask you’: The CNN anchor rattling Donald Trump’s cage](https://www.yahoo.com/news/didn-t-ask-cnn-anchor-093000724.html)
-- Apr 04 - [Should You Really Buy Stocks as President Trump's Tariffs Take Effect? History Gives a Clear Answer.](https://finance.yahoo.com/news/really-buy-stocks-president-trumps-072000274.html)
+- Apr 04 - [Pierce County apartments were unsafe for years. Why did people still live there?](https://www.yahoo.com/news/pierce-county-apartments-were-unsafe-123000866.html)
+- Apr 04 - [This unusual gut bacteria could prevent obesity - here’s how to keep it happy](https://www.yahoo.com/news/unusual-gut-bacteria-could-prevent-121841958.html)
+- Apr 04 - [New report reveals 'outrageous' issue with Tesla Model 3s: 'We have no reason to believe [newer models] will differ significantly'](https://autos.yahoo.com/report-reveals-outrageous-issue-tesla-113011674.html)
+- Apr 04 - [Sonic weapon allegedly used on crowd protesting government corruption in Serbia](https://www.yahoo.com/news/sonic-weapon-allegedly-used-crowd-103344001.html)
+- Apr 04 - [Odds to win the Mega Millions jackpot improve next week, but come with these tax issues](https://finance.yahoo.com/news/odds-win-mega-millions-jackpot-090556517.html)
 <!-- feed end -->
 
 ### Onstream
