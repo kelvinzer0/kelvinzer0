@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [‘Caring’ man mauled to death while feeding brother’s dogs](https://www.yahoo.com/news/caring-man-found-dead-being-114818511.html)
+- Apr 04 - [Social Security Administration planning to lay off thousands more staff in DOGE cuts despite long wait times and web crashes](https://www.yahoo.com/news/social-security-administration-planning-lay-194627920.html)
+- Apr 04 - [AP top stories April 4 P](https://www.yahoo.com/news/ap-top-stories-april-4-193750677.html)
+- Apr 04 - [JD Vance applauded Trump’s tariff announcement from the Rose Garden - after spending years calling them a terrible idea](https://www.yahoo.com/news/jd-vance-applauded-trump-tariff-181906822.html)
 - Apr 04 - [People Are Deciding What To Call The Next "Great Depression," And The Winner Is Both Funny And, Yeah, Depressing](https://www.yahoo.com/entertainment/people-deciding-call-next-great-181037385.html)
-- Apr 04 - [How far stocks would need to fall to trigger a circuit breaker as rout intensifies](https://finance.yahoo.com/news/could-tariffs-trigger-stock-market-162800612.html)
 - Apr 04 - [Warren Buffett defended his massive $300 billion cash pile in February. Now he doesn't have to.](https://finance.yahoo.com/news/warren-buffett-defended-his-massive-300-billion-cash-pile-in-february-now-he-doesnt-have-to-174312496.html)
-- Apr 04 - [North Carolina judges side with Republican colleague in close Supreme Court race](https://www.yahoo.com/news/north-carolina-judges-side-colleague-172150955.html)
 <!-- feed end -->
 
 ### Onstream
