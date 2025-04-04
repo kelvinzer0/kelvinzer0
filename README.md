@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Pierce County apartments were unsafe for years. Why did people still live there?](https://www.yahoo.com/news/pierce-county-apartments-were-unsafe-123000866.html)
-- Apr 04 - [This unusual gut bacteria could prevent obesity - here’s how to keep it happy](https://www.yahoo.com/news/unusual-gut-bacteria-could-prevent-121841958.html)
-- Apr 04 - [New report reveals 'outrageous' issue with Tesla Model 3s: 'We have no reason to believe [newer models] will differ significantly'](https://autos.yahoo.com/report-reveals-outrageous-issue-tesla-113011674.html)
-- Apr 04 - [Sonic weapon allegedly used on crowd protesting government corruption in Serbia](https://www.yahoo.com/news/sonic-weapon-allegedly-used-crowd-103344001.html)
-- Apr 04 - [Odds to win the Mega Millions jackpot improve next week, but come with these tax issues](https://finance.yahoo.com/news/odds-win-mega-millions-jackpot-090556517.html)
+- Apr 04 - [Scientists make game-changing discovery about the hidden factor threatening honeybees worldwide: 'May need to adapt their practices'](https://www.yahoo.com/news/scientists-game-changing-discovery-hidden-113010401.html)
+- Apr 04 - [‘I didn’t ask you’: The CNN anchor rattling Donald Trump’s cage](https://www.yahoo.com/news/didn-t-ask-cnn-anchor-093000724.html)
+- Apr 04 - [OPEC+ Announcement Stuns Oil Market](https://finance.yahoo.com/video/opec-announcement-stuns-oil-market-065541671.html)
+- Apr 03 - [Swingers club in Plymouth gets shut down by town: Owner says he’s doing nothing wrong](https://www.yahoo.com/news/swingers-club-plymouth-gets-shut-214247420.html)
+- Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
 <!-- feed end -->
 
 ### Onstream
