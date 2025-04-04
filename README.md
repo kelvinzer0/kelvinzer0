@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Impeached South Korean president is out. What’s next?](https://www.yahoo.com/news/impeached-south-korean-president-next-053921533.html)
+- Apr 04 - [Oil prices are crashing after tariffs and OPEC deliver a double whammy to energy markets](https://finance.yahoo.com/news/oil-prices-crashing-tariffs-opec-004901673.html)
 - Apr 03 - [See it: See the moment Trump’s economy went up in flames: Melber breaks down the lost ‘trade war’](https://www.yahoo.com/news/see-see-moment-trump-economy-234238955.html)
-- Apr 03 - [Moment Mama Dog Finds Puppy in Aftermath of Awful Tornado Is Incredible](https://www.yahoo.com/news/moment-mama-dog-finds-puppy-233000984.html)
 - Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
-- Apr 03 - [Enterprise Products Partners (EPD) Stock Moves -1.7%: What You Should Know](https://finance.yahoo.com/news/enterprise-products-partners-epd-stock-214513253.html)
 - Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
 <!-- feed end -->
 
