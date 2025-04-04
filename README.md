@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Oil prices are crashing after tariffs and OPEC deliver a double whammy to energy markets](https://finance.yahoo.com/news/oil-prices-crashing-tariffs-opec-004901673.html)
-- Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
-- Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
-- Apr 03 - [Exclusive: Mark Cuban offers one-word blunt reaction on Trump’s tariffs](https://finance.yahoo.com/news/exclusive-mark-cuban-offers-one-200016626.html)
-- Apr 03 - [This Bay Area city ranks most expensive in the U.S. to 'live comfortably'](https://finance.yahoo.com/news/bay-area-city-ranks-most-195642055.html)
+- Apr 04 - [3 Warren Buffett Stocks to Buy Hand Over Fist in April](https://finance.yahoo.com/news/3-warren-buffett-stocks-buy-094500400.html)
+- Apr 04 - [Israel expands ground offensive in Gaza City](https://www.yahoo.com/news/israel-expands-ground-offensive-gaza-081216793.html)
+- Apr 04 - [OPEC+ Announcement Stuns Oil Market](https://finance.yahoo.com/video/opec-announcement-stuns-oil-market-065541671.html)
+- Apr 04 - [Barack Obama Says The 'Silent' Part Out Loud With 'Unimaginable' Trump Comparison](https://www.yahoo.com/news/barack-obama-says-silent-part-063904809.html)
+- Apr 04 - [Wordle hints today for #1,385: Clues and answer for Friday, April 4](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1385-clues-and-answer-for-friday-april-4-040152792.html)
 <!-- feed end -->
 
 ### Onstream
