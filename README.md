@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Scientists make game-changing discovery about the hidden factor threatening honeybees worldwide: 'May need to adapt their practices'](https://www.yahoo.com/news/scientists-game-changing-discovery-hidden-113010401.html)
+- Apr 04 - [Archaeologists Discovered Two Life-Size Statues at Pompeii, Covered With Mysterious Symbols](https://www.yahoo.com/news/archaeologists-discovered-two-life-size-133000919.html)
+- Apr 04 - [Sonic weapon allegedly used on crowd protesting government corruption in Serbia](https://www.yahoo.com/news/sonic-weapon-allegedly-used-crowd-103344001.html)
+- Apr 04 - [House Republicans bash Senate’s Trump agenda blueprint: ‘This is offensive’](https://www.yahoo.com/news/house-republicans-bash-senate-trump-100000246.html)
 - Apr 04 - [‘I didn’t ask you’: The CNN anchor rattling Donald Trump’s cage](https://www.yahoo.com/news/didn-t-ask-cnn-anchor-093000724.html)
-- Apr 04 - [OPEC+ Announcement Stuns Oil Market](https://finance.yahoo.com/video/opec-announcement-stuns-oil-market-065541671.html)
-- Apr 03 - [Swingers club in Plymouth gets shut down by town: Owner says he’s doing nothing wrong](https://www.yahoo.com/news/swingers-club-plymouth-gets-shut-214247420.html)
-- Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
+- Apr 04 - [India minister triggers uproar after telling startups to create tech like China, not ice cream](https://finance.yahoo.com/news/india-minister-triggers-uproar-telling-090305764.html)
 <!-- feed end -->
 
 ### Onstream
