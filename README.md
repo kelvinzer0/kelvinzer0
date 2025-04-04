@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Impeached South Korean president is out. What’s next?](https://www.yahoo.com/news/impeached-south-korean-president-next-053921533.html)
-- Apr 04 - [Oil prices are crashing after tariffs and OPEC deliver a double whammy to energy markets](https://finance.yahoo.com/news/oil-prices-crashing-tariffs-opec-004901673.html)
-- Apr 03 - [See it: See the moment Trump’s economy went up in flames: Melber breaks down the lost ‘trade war’](https://www.yahoo.com/news/see-see-moment-trump-economy-234238955.html)
+- Apr 04 - [Israeli troops expand 'security zone' in northern Gaza](https://www.yahoo.com/news/israeli-troops-expand-security-zone-065438499.html)
 - Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
-- Apr 03 - [Judge says US government may have 'acted in bad faith' as he weighs contempt over deportation order](https://www.yahoo.com/news/judge-says-us-government-may-203416037.html)
+- Apr 03 - [Intel and TSMC reach tentative deal on chip manufacturing: Report](https://finance.yahoo.com/news/intel-and-tsmc-reach-tentative-deal-on-chip-manufacturing-report-202417844.html)
+- Apr 03 - [This Bay Area city ranks most expensive in the U.S. to 'live comfortably'](https://finance.yahoo.com/news/bay-area-city-ranks-most-195642055.html)
+- Apr 03 - [Dan Rather's Post About Donald Trump Is Going Mega Viral](https://www.yahoo.com/news/dan-rathers-post-donald-trump-194053988.html)
 <!-- feed end -->
 
 ### Onstream
