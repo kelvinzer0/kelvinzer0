@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Judge orders wrongly deported Maryland man to be returned to U.S.](https://www.yahoo.com/news/judge-orders-wrongly-deported-maryland-213328169.html)
-- Apr 04 - [Trump extends sale, ban of TikTok another 75 days](https://www.yahoo.com/news/tiktok-faces-sale-ban-deadline-133139652.html)
-- Apr 04 - [Trump admin. to reportedly drop Medicare GLP-1 plan](https://finance.yahoo.com/video/trump-admin-reportedly-drop-medicare-211717981.html)
 - Apr 04 - [About 500 law firms sign brief challenging Trump's executive orders targeting the legal community](https://www.yahoo.com/news/500-law-firms-sign-brief-201958772.html)
 - Apr 04 - [The White House cited these economists to justify its tariffs. They aren't thrilled.](https://finance.yahoo.com/news/the-white-house-cited-these-economists-to-justify-its-tariffs-they-arent-thrilled-193615537.html)
+- Apr 04 - [Tesla's software engineering head to step down, Bloomberg News reports](https://finance.yahoo.com/news/teslas-software-engineering-head-step-193513164.html)
+- Apr 04 - [RFK Jr. Realizes He's Made a Huge Mistake](https://www.yahoo.com/news/rfk-jr-realizes-hes-made-192750375.html)
+- Apr 04 - [VIDEO: Homeowner records man threatening to deport roof workers, gets punched](https://www.yahoo.com/news/video-homeowner-records-man-threatening-190953088.html)
 <!-- feed end -->
 
 ### Onstream
