@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [3 Warren Buffett Stocks to Buy Hand Over Fist in April](https://finance.yahoo.com/news/3-warren-buffett-stocks-buy-094500400.html)
-- Apr 04 - [Israel expands ground offensive in Gaza City](https://www.yahoo.com/news/israel-expands-ground-offensive-gaza-081216793.html)
+- Apr 04 - [Trump tariffs are putting Wall Street through 5 stages of grief](https://finance.yahoo.com/video/trump-tariffs-putting-wall-street-103038048.html)
+- Apr 04 - [Private Milwaukee school buys neighboring supermarket for $8.25 million. It plans to expand there](https://finance.yahoo.com/news/private-milwaukee-school-buys-neighboring-100249685.html)
+- Apr 04 - [Iowa student’s passport seizure in Dominican Republic raises red flags for Americans traveling: What to know](https://www.yahoo.com/news/iowa-student-passport-seizure-dominican-080028155.html)
 - Apr 04 - [OPEC+ Announcement Stuns Oil Market](https://finance.yahoo.com/video/opec-announcement-stuns-oil-market-065541671.html)
-- Apr 04 - [Barack Obama Says The 'Silent' Part Out Loud With 'Unimaginable' Trump Comparison](https://www.yahoo.com/news/barack-obama-says-silent-part-063904809.html)
-- Apr 04 - [Wordle hints today for #1,385: Clues and answer for Friday, April 4](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1385-clues-and-answer-for-friday-april-4-040152792.html)
+- Apr 03 - [US Senate Republicans vote to advance Trump's sweeping tax cut plan](https://www.yahoo.com/news/us-senate-republicans-vote-trumps-222428123.html)
 <!-- feed end -->
 
 ### Onstream
