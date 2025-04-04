@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Israeli forces expand ground operations in Gaza](https://www.yahoo.com/news/israeli-forces-expand-ground-operations-163943074.html)
-- Apr 04 - [Klarna reportedly pauses IPO](https://finance.yahoo.com/video/klarna-reportedly-pauses-ipo-153517362.html)
-- Apr 04 - [Mass grave of Roman soldiers tells gruesome tale of military disaster](https://www.yahoo.com/news/mass-grave-roman-soldiers-tells-144620270.html)
+- Apr 04 - [Warren Buffett defended his massive $300 billion cash pile in February. Now he doesn't have to.](https://finance.yahoo.com/news/warren-buffett-defended-his-massive-300-billion-cash-pile-in-february-now-he-doesnt-have-to-174312496.html)
+- Apr 04 - [San Francisco park-naming contest goes hilariously wrong](https://www.yahoo.com/news/san-francisco-park-naming-contest-131615518.html)
 - Apr 04 - [Wall Street now hates these 10 stocks because of Trump tariffs](https://finance.yahoo.com/news/wall-street-now-hates-these-10-stocks-because-of-trump-tariffs-135445636.html)
+- Apr 04 - [Michael Saylor offers blunt response on why Bitcoin dips with stocks](https://finance.yahoo.com/news/michael-saylor-offers-blunt-response-130038411.html)
 - Apr 04 - [Fyre Fest 2 is not happening in Playa del Carmen, city officials say](https://www.yahoo.com/news/fyre-fest-2-not-happening-115345318.html)
 <!-- feed end -->
 
