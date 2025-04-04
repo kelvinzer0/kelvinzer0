@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Archaeologists Discovered Two Life-Size Statues at Pompeii, Covered With Mysterious Symbols](https://www.yahoo.com/news/archaeologists-discovered-two-life-size-133000919.html)
-- Apr 04 - [Sonic weapon allegedly used on crowd protesting government corruption in Serbia](https://www.yahoo.com/news/sonic-weapon-allegedly-used-crowd-103344001.html)
-- Apr 04 - [House Republicans bash Senate’s Trump agenda blueprint: ‘This is offensive’](https://www.yahoo.com/news/house-republicans-bash-senate-trump-100000246.html)
-- Apr 04 - [‘I didn’t ask you’: The CNN anchor rattling Donald Trump’s cage](https://www.yahoo.com/news/didn-t-ask-cnn-anchor-093000724.html)
-- Apr 04 - [India minister triggers uproar after telling startups to create tech like China, not ice cream](https://finance.yahoo.com/news/india-minister-triggers-uproar-telling-090305764.html)
+- Apr 04 - [Klarna reportedly pauses IPO](https://finance.yahoo.com/video/klarna-reportedly-pauses-ipo-153517362.html)
+- Apr 04 - [The FTSE 100 companies that could come out best after Trump's tariffs](https://uk.finance.yahoo.com/news/ftse-100-stocks-us-operations-trump-tariffs-trade-151552925.html)
+- Apr 04 - [Fyre Fest 2 is not happening in Playa del Carmen, city officials say](https://www.yahoo.com/news/fyre-fest-2-not-happening-115345318.html)
+- Apr 04 - [New electric vehicle model just rapidly outsold Tesla — here's why its flying off of lots](https://autos.yahoo.com/electric-vehicle-model-just-rapidly-114552945.html)
+- Apr 04 - [Coast guard makes disturbing discovery during routine stop: 'An apparent attempt to conceal and smuggle them'](https://www.yahoo.com/news/coast-guard-makes-disturbing-discovery-111550503.html)
 <!-- feed end -->
 
 ### Onstream
