@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [Musk says he hopes for ‘zero’ tariffs between US and Europe](https://www.yahoo.com/news/musk-says-hopes-zero-tariffs-201917647.html)
+- Apr 05 - [Judge awards $6.6 million to whistleblowers who reported Texas Attorney General Ken Paxton to FBI](https://www.yahoo.com/news/texas-attorney-general-ken-paxton-184521190.html)
 - Apr 05 - [Animal rights group criticises ‘cowardly’ ITV coverage after Broadway Boy horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
+- Apr 05 - [AC-130J Ghostrider Gunship Launches Black Arrow Small Cruise Missile In New Video](https://www.yahoo.com/news/ac-130j-ghostrider-gunship-launches-173645079.html)
 - Apr 05 - [A boy walking to a school bus was swept away by floodwater and died – more than an hour after other bus routes were canceled](https://www.yahoo.com/news/boy-walking-school-bus-swept-172207333.html)
-- Apr 05 - [Trump administration argues judge can't order return of man mistakenly deported to El Salvador](https://www.yahoo.com/news/trump-administration-argues-judge-cant-145806514.html)
-- Apr 05 - [Should you buy the dip? Veteran trader explains why it 'isn't always the smartest thing to do'](https://finance.yahoo.com/news/should-you-buy-the-dip-veteran-trader-explains-why-it-isnt-always-the-smartest-thing-to-do-143005061.html)
-- Apr 05 - [Frisco track meet stabbing: Police warn against misinformation online](https://www.yahoo.com/news/frisco-track-meet-stabbing-police-141732516.html)
 <!-- feed end -->
 
 ### Onstream
