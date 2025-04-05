@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [Drone video shows flooding in Hopkinsville, Kentucky after days of heavy rain](https://www.yahoo.com/news/drone-video-shows-flooding-hopkinsville-012936907.html)
+- Apr 05 - [Video shows Rep. Marjorie Taylor Greene’s ex-husband berating three Muslim women](https://www.yahoo.com/news/video-shows-rep-marjorie-taylor-021450386.html)
 - Apr 04 - [2 US Border Patrol officers are charged with taking bribes to wave in people without documents](https://www.yahoo.com/news/2-us-border-patrol-officers-235611020.html)
 - Apr 04 - [Trump Posts Dark 5-Word Message From His Motorcade](https://www.yahoo.com/news/trump-posts-dark-5-word-233245633.html)
-- Apr 04 - [Trump's tariff policy could be economic misconduct. Here's why.](https://finance.yahoo.com/video/trumps-tariff-policy-could-economic-210803233.html)
 - Apr 04 - [8 alleged gang members arrested in San Jose homicide](https://www.yahoo.com/news/8-alleged-gang-members-arrested-205601189.html)
+- Apr 04 - [Berkshire Hathaway pulls the rug on a video shared by Trump that claimed Warren Buffett said the president was making ‘the best economic moves’ in 50 years](https://www.yahoo.com/news/berkshire-hathaway-pulls-rug-video-204511513.html)
 <!-- feed end -->
 
 ### Onstream
