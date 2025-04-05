@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [Tariffs throw US, Canadian farm machinery manufacturers into turmoil](https://finance.yahoo.com/news/tariffs-throw-us-canadian-farm-100802196.html)
-- Apr 05 - [Plant-based pizzeria in Gainesville, sushi restaurant in Town of Tioga close](https://www.yahoo.com/news/plant-based-pizzeria-gainesville-sushi-090420076.html)
-- Apr 05 - [Britain’s second-biggest city has a big garbage problem. Here’s what CNN found](https://finance.yahoo.com/video/britain-second-biggest-city-big-083037716.html)
+- Apr 05 - [Oneida County corrections officer injured, hospitalized after attack by inmate](https://www.yahoo.com/news/oneida-county-corrections-officer-injured-085531624.html)
 - Apr 05 - [Sex toys and exploding cosmetics: anatomy of a 'hybrid war' on the West](https://www.yahoo.com/news/sex-toys-exploding-cosmetics-anatomy-070904103.html)
+- Apr 05 - [U.S. Money Supply Recently Did Something Last Witnessed During the Great Depression -- and It's Typically a Harbinger of a Big Move in Stocks](https://finance.yahoo.com/news/u-money-supply-recently-did-070600899.html)
 - Apr 05 - [Sierra Leone declared an emergency over a powerful synthetic drug but women were left behind](https://www.yahoo.com/news/sierra-leone-declared-emergency-over-063708972.html)
+- Apr 04 - [2 US Border Patrol officers are charged with taking bribes to wave in people without documents](https://www.yahoo.com/news/2-us-border-patrol-officers-235611020.html)
 <!-- feed end -->
 
 ### Onstream
