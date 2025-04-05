@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [Burmese pythons are adapting, evolving and slithering around these parts of Florida](https://www.yahoo.com/news/burmese-pythons-adapting-evolving-slithering-100053686.html)
+- Apr 05 - [Tariffs throw US, Canadian farm machinery manufacturers into turmoil](https://finance.yahoo.com/news/tariffs-throw-us-canadian-farm-100802196.html)
+- Apr 05 - [Plant-based pizzeria in Gainesville, sushi restaurant in Town of Tioga close](https://www.yahoo.com/news/plant-based-pizzeria-gainesville-sushi-090420076.html)
+- Apr 05 - [Britain’s second-biggest city has a big garbage problem. Here’s what CNN found](https://finance.yahoo.com/video/britain-second-biggest-city-big-083037716.html)
+- Apr 05 - [Sex toys and exploding cosmetics: anatomy of a 'hybrid war' on the West](https://www.yahoo.com/news/sex-toys-exploding-cosmetics-anatomy-070904103.html)
 - Apr 05 - [Sierra Leone declared an emergency over a powerful synthetic drug but women were left behind](https://www.yahoo.com/news/sierra-leone-declared-emergency-over-063708972.html)
-- Apr 05 - [Weekly Horoscope April 6-12: Bye Mercury & Venus Retrograde](https://www.yahoo.com/lifestyle/weekly-horoscope-says-mercury-retrograde-033000960.html)
-- Apr 04 - [2 US Border Patrol officers are charged with taking bribes to wave in people without documents](https://www.yahoo.com/news/2-us-border-patrol-officers-235611020.html)
-- Apr 04 - [China’s ‘J-50’ Tailless Stealth Fighter Seen In New Imagery](https://www.yahoo.com/news/china-j-50-tailless-stealth-222931981.html)
 <!-- feed end -->
 
 ### Onstream
