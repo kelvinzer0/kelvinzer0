@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 05 - [Trump administration argues judge can't order return of man mistakenly deported to El Salvador](https://www.yahoo.com/news/trump-administration-argues-judge-cant-145806514.html)
-- Apr 05 - [Hundreds of protesters turn out in European cities against Trump](https://www.yahoo.com/news/hundreds-protesters-turn-european-cities-145526814.html)
-- Apr 05 - [Flash Flood Emergency Swamps Southeast Missouri](https://www.yahoo.com/news/flash-flood-emergency-swamps-southeast-144123359.html)
+- Apr 05 - [Rescue Team’s Warning: Stay Out Of Floodwaters](https://www.yahoo.com/news/rescue-team-warning-stay-floodwaters-144233585.html)
 - Apr 05 - [Molly Russell: Meta and Pinterest ‘make secret donations to schoolgirl’s charity’](https://www.yahoo.com/news/molly-russell-meta-pinterest-secret-092527016.html)
 - Apr 05 - [I Just Spent The Last 20 Minutes Laughing Hysterically At These 27 Hilarious Photos](https://www.yahoo.com/lifestyle/just-spent-last-20-minutes-123102743.html)
+- Apr 05 - [Tariffs throw US, Canadian farm machinery manufacturers into turmoil](https://finance.yahoo.com/news/tariffs-throw-us-canadian-farm-100802196.html)
 <!-- feed end -->
 
 ### Onstream
