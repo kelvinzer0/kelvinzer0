@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [Pfizer (NYSE:PFE) Involved In Lawsuit Over US$45 Per Share Cerevel Acquisition](https://finance.yahoo.com/news/pfizer-nyse-pfe-involved-lawsuit-174133461.html)
-- Apr 05 - [3 dead, including two convicted pedophiles, after ‘altercation’ in Arizona State Prison](https://www.yahoo.com/news/3-dead-including-two-convicted-163846262.html)
+- Apr 05 - [Animal rights group criticises ‘cowardly’ ITV coverage after Broadway Boy horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
+- Apr 05 - [A boy walking to a school bus was swept away by floodwater and died – more than an hour after other bus routes were canceled](https://www.yahoo.com/news/boy-walking-school-bus-swept-172207333.html)
 - Apr 05 - [Trump administration argues judge can't order return of man mistakenly deported to El Salvador](https://www.yahoo.com/news/trump-administration-argues-judge-cant-145806514.html)
-- Apr 05 - [Molly Russell: Meta and Pinterest ‘make secret donations to schoolgirl’s charity’](https://www.yahoo.com/news/molly-russell-meta-pinterest-secret-092527016.html)
 - Apr 05 - [Dave Ramsey's Blunt Advice To Aunt Who Won't Sell $650K In Tesla Stock Over Tax Fears: 'You're Going To Have Taxes. Welcome To Making Money.'](https://finance.yahoo.com/news/dave-ramseys-blunt-advice-aunt-140016344.html)
+- Apr 05 - [Local park enlists unexpected ally to battle invasive pest: 'What a huge difference'](https://www.yahoo.com/news/local-park-enlists-unexpected-ally-104506873.html)
 <!-- feed end -->
 
 ### Onstream
