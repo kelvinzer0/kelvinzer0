@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 05 - [Video shows Rep. Marjorie Taylor Greene’s ex-husband berating three Muslim women](https://www.yahoo.com/news/video-shows-rep-marjorie-taylor-021450386.html)
+- Apr 05 - [Camaro Hits Parked Corvette, Then Takes Off](https://autos.yahoo.com/camaro-hits-parked-corvette-then-000000497.html)
 - Apr 04 - [2 US Border Patrol officers are charged with taking bribes to wave in people without documents](https://www.yahoo.com/news/2-us-border-patrol-officers-235611020.html)
 - Apr 04 - [Trump Posts Dark 5-Word Message From His Motorcade](https://www.yahoo.com/news/trump-posts-dark-5-word-233245633.html)
-- Apr 04 - [8 alleged gang members arrested in San Jose homicide](https://www.yahoo.com/news/8-alleged-gang-members-arrested-205601189.html)
-- Apr 04 - [Berkshire Hathaway pulls the rug on a video shared by Trump that claimed Warren Buffett said the president was making ‘the best economic moves’ in 50 years](https://www.yahoo.com/news/berkshire-hathaway-pulls-rug-video-204511513.html)
+- Apr 04 - [China’s ‘J-50’ Tailless Stealth Fighter Seen In New Imagery](https://www.yahoo.com/news/china-j-50-tailless-stealth-222931981.html)
 <!-- feed end -->
 
 ### Onstream
