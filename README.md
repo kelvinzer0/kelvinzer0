@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [Musk says he hopes for ‘zero’ tariffs between US and Europe](https://www.yahoo.com/news/musk-says-hopes-zero-tariffs-201917647.html)
+- Apr 05 - [Canadian parliament on lockdown amid large police presence: ‘Lock all doors and hide’](https://www.yahoo.com/news/canadian-parliament-lockdown-amid-large-204020409.html)
+- Apr 05 - [Al Sharpton Calls Out PepsiCo Over Diversity Changes, Threatens To Boycott](https://www.yahoo.com/news/al-sharpton-calls-pepsico-over-213000126.html)
+- Apr 05 - [DHS claims these tattoos show Venezuelan gang membership. The tattoo artists who did them say the truth is a lot more innocent](https://www.yahoo.com/news/dhs-claims-tattoos-show-venezuelan-192158262.html)
 - Apr 05 - [Judge awards $6.6 million to whistleblowers who reported Texas Attorney General Ken Paxton to FBI](https://www.yahoo.com/news/texas-attorney-general-ken-paxton-184521190.html)
 - Apr 05 - [Animal rights group criticises ‘cowardly’ ITV coverage after Broadway Boy horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
-- Apr 05 - [AC-130J Ghostrider Gunship Launches Black Arrow Small Cruise Missile In New Video](https://www.yahoo.com/news/ac-130j-ghostrider-gunship-launches-173645079.html)
-- Apr 05 - [A boy walking to a school bus was swept away by floodwater and died – more than an hour after other bus routes were canceled](https://www.yahoo.com/news/boy-walking-school-bus-swept-172207333.html)
 <!-- feed end -->
 
 ### Onstream
