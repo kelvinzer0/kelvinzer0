@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Texas county that swung to Trump grapples with immigration crackdown after bakery is targeted](https://www.yahoo.com/news/texas-county-swung-trump-grapples-051827128.html)
 - Apr 06 - [Mark Cuban warns that Trump's tariff plan plus DOGE cuts could lead the country to 'a far worse situation than 2008'](https://finance.yahoo.com/news/mark-cuban-warns-trumps-tariff-034040295.html)
 - Apr 06 - [Rubio says US is revoking all visas held by South Sudanese passport holders](https://www.yahoo.com/news/rubio-says-us-revoking-visas-013559382.html)
-- Apr 06 - [17 Inconsiderate People Who Need To Be Banned From Public Spaces Immediately](https://www.yahoo.com/lifestyle/17-inconsiderate-people-banned-public-011602032.html)
-- Apr 06 - [We went to the anti-Trump protests. Here's what surprised us the most.](https://www.yahoo.com/news/went-anti-trump-protests-heres-215013681.html)
-- Apr 05 - [Musk Calls For ‘Zero Tariff Situation’  Between U.S. And Europe, Slams Trump Advisor](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-210010291.html)
+- Apr 05 - [DHS claims these tattoos show Venezuelan gang membership. The tattoo artists who did them say the truth is a lot more innocent](https://www.yahoo.com/news/dhs-claims-tattoos-show-venezuelan-192158262.html)
+- Apr 05 - [A boy walking to a school bus was swept away by floodwater and died – more than an hour after other bus routes were canceled](https://www.yahoo.com/news/boy-walking-school-bus-swept-172207333.html)
 <!-- feed end -->
 
 ### Onstream
