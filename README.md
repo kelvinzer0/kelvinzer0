@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [Soaring tariffs have investors concerned New Zealand's kiwi may near 2020 low](https://finance.yahoo.com/news/soaring-tariffs-investors-concerned-kiwi-200000390.html)
-- Apr 06 - [Hamas fires rockets at Israeli cities, Israel issues evacuation orders in Gaza](https://www.yahoo.com/news/hamas-fires-rockets-israeli-cities-192050494.html)
+- Apr 06 - ['Hard to imagine a bigger betrayal': AZ judge reveals men's Russia aircraft parts scheme](https://www.yahoo.com/news/hard-imagine-bigger-betrayal-az-212133036.html)
 - Apr 06 - [US investors braced for more volatility, bumps ahead of Monday trading open](https://finance.yahoo.com/news/us-investors-braced-more-volatility-184919009.html)
-- Apr 06 - [OTD In Space - April  6: NASA Launches 1st Commercial Communication Satellite](https://www.yahoo.com/news/otd-space-april-6-nasa-180000192.html)
 - Apr 06 - [A bailout for farmers caught in Trump’s trade war is already being discussed. ‘If we don’t get something, it will be quite a disaster’](https://www.yahoo.com/news/bailout-farmers-caught-trump-trade-171113348.html)
+- Apr 06 - [2 Growth Stocks That Could Go Parabolic](https://finance.yahoo.com/news/2-growth-stocks-could-parabolic-164500774.html)
+- Apr 06 - [Police find missing 2-year-old in ditch near I-94](https://www.yahoo.com/news/michigan-state-police-missing-2-163841226.html)
 <!-- feed end -->
 
 ### Onstream
