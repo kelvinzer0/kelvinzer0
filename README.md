@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - ['Hard to imagine a bigger betrayal': AZ judge reveals men's Russia aircraft parts scheme](https://www.yahoo.com/news/hard-imagine-bigger-betrayal-az-212133036.html)
-- Apr 06 - [US investors braced for more volatility, bumps ahead of Monday trading open](https://finance.yahoo.com/news/us-investors-braced-more-volatility-184919009.html)
-- Apr 06 - [A bailout for farmers caught in Trump’s trade war is already being discussed. ‘If we don’t get something, it will be quite a disaster’](https://www.yahoo.com/news/bailout-farmers-caught-trump-trade-171113348.html)
-- Apr 06 - [2 Growth Stocks That Could Go Parabolic](https://finance.yahoo.com/news/2-growth-stocks-could-parabolic-164500774.html)
-- Apr 06 - [Police find missing 2-year-old in ditch near I-94](https://www.yahoo.com/news/michigan-state-police-missing-2-163841226.html)
+- Apr 06 - [Wall St futures, oil plunge, markets bay for US rate cuts](https://finance.yahoo.com/news/wall-st-futures-oil-plunge-225616767.html)
+- Apr 06 - [Aid cuts could leave more women dying in pregnancy and birth, UN says](https://www.yahoo.com/news/aid-cuts-could-leave-more-223329472.html)
+- Apr 06 - [Firefighter injured in Portsmouth house fire, occupants evacuated safely](https://www.yahoo.com/news/firefighter-injured-portsmouth-house-fire-212445029.html)
+- Apr 06 - [Meat cleaver-wielding man stabs young girls in bloody NYC attack as 11-year-old calls 911: police](https://www.yahoo.com/news/meat-cleaver-wielding-man-stabs-205317676.html)
+- Apr 06 - [U.S. envoy says Hezbollah must be disarmed 'as soon as possible'](https://www.yahoo.com/news/u-envoy-says-hezbollah-must-195010344.html)
 <!-- feed end -->
 
 ### Onstream
