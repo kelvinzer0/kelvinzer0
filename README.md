@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Nurse who called transgender paedophile ‘Mr’ is suspended after investigation](https://www.yahoo.com/news/nurse-called-transgender-paedophile-mr-120827056.html)
 - Apr 06 - [Racing breathes sigh of relief after Broadway Boy returns home following Grand National horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
-- Apr 06 - [3 Dividend Stocks to Buy and Hold for the Next Decade](https://finance.yahoo.com/news/3-dividend-stocks-buy-hold-104400951.html)
+- Apr 06 - [Unprecedented events happening with Redding's bald eagle pair: ‘None of us are ready for this’](https://www.yahoo.com/news/unprecedented-events-happening-reddings-bald-100211331.html)
 - Apr 06 - [A boomer who lives off $1,547 in Social Security and has subsidized housing is still struggling to make ends meet: 'I'll be working until I die'](https://www.yahoo.com/news/boomer-lives-off-1-547-080702835.html)
 - Apr 06 - [Texas county that swung to Trump grapples with immigration crackdown after bakery is targeted](https://www.yahoo.com/news/texas-county-swung-trump-grapples-051827128.html)
-- Apr 06 - [Rubio says US is revoking all visas held by South Sudanese passport holders](https://www.yahoo.com/news/rubio-says-us-revoking-visas-013559382.html)
 <!-- feed end -->
 
 ### Onstream
