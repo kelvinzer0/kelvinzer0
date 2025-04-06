@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [Syria's president to visit Turkey and UAE next week](https://www.yahoo.com/news/syrias-president-visit-turkey-uae-195421834.html)
-- Apr 06 - [Police find missing 2-year-old in ditch near I-94](https://www.yahoo.com/news/michigan-state-police-missing-2-163841226.html)
-- Apr 06 - ['Whatever': Trump official pressed on tariffs against islands populated by penguins](https://www.yahoo.com/news/whatever-trump-official-pressed-tariffs-154432672.html)
-- Apr 06 - [Central Arkansas highways, interstates affected by flooding](https://www.yahoo.com/news/central-arkansas-highways-interstates-affected-153505973.html)
-- Apr 06 - [Person dies at Perry-Castañeda Library on UT campus Saturday, authorities say](https://www.yahoo.com/news/person-dies-perry-casta-eda-151458873.html)
+- Apr 06 - [Soaring tariffs have investors concerned New Zealand's kiwi may near 2020 low](https://finance.yahoo.com/news/soaring-tariffs-investors-concerned-kiwi-200000390.html)
+- Apr 06 - [Hamas fires rockets at Israeli cities, Israel issues evacuation orders in Gaza](https://www.yahoo.com/news/hamas-fires-rockets-israeli-cities-192050494.html)
+- Apr 06 - [US investors braced for more volatility, bumps ahead of Monday trading open](https://finance.yahoo.com/news/us-investors-braced-more-volatility-184919009.html)
+- Apr 06 - [OTD In Space - April  6: NASA Launches 1st Commercial Communication Satellite](https://www.yahoo.com/news/otd-space-april-6-nasa-180000192.html)
+- Apr 06 - [A bailout for farmers caught in Trump’s trade war is already being discussed. ‘If we don’t get something, it will be quite a disaster’](https://www.yahoo.com/news/bailout-farmers-caught-trump-trade-171113348.html)
 <!-- feed end -->
 
 ### Onstream
