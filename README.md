@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Rare insight given into ‘Russian’ parcel sabotage plot](https://www.yahoo.com/news/rare-insight-given-russian-parcel-150510191.html)
+- Apr 06 - [22 Memorable Protest Signs From The "Hands Off" Protests Across America](https://www.yahoo.com/news/22-memorable-protest-signs-hands-145513318.html)
+- Apr 06 - [Nashville weather updates: Power outages drop, flood chances remain in place](https://www.yahoo.com/news/nashville-weather-updates-power-outages-143746644.html)
 - Apr 06 - [Musk calls for 'zero tariff situation' between US and Europe, slams Trump trade adviser](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-125101764.html)
 - Apr 06 - [Racing breathes sigh of relief after Broadway Boy returns home following Grand National horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
-- Apr 06 - [A boomer who lives off $1,547 in Social Security and has subsidized housing is still struggling to make ends meet: 'I'll be working until I die'](https://www.yahoo.com/news/boomer-lives-off-1-547-080702835.html)
-- Apr 06 - [Texas county that swung to Trump grapples with immigration crackdown after bakery is targeted](https://www.yahoo.com/news/texas-county-swung-trump-grapples-051827128.html)
-- Apr 06 - [Wordle hints today for #1,387: Clues and answer for Sunday, April 6](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1387-clues-and-answer-for-sunday-april-6-040115962.html)
 <!-- feed end -->
 
 ### Onstream
