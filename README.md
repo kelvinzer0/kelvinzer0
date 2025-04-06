@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [US, Vietnamese businesses ask Trump to delay 46% tariffs on Vietnam](https://finance.yahoo.com/news/us-vietnamese-businesses-ask-trump-072707160.html)
 - Apr 06 - [Texas county that swung to Trump grapples with immigration crackdown after bakery is targeted](https://www.yahoo.com/news/texas-county-swung-trump-grapples-051827128.html)
 - Apr 06 - [Mark Cuban warns that Trump's tariff plan plus DOGE cuts could lead the country to 'a far worse situation than 2008'](https://finance.yahoo.com/news/mark-cuban-warns-trumps-tariff-034040295.html)
 - Apr 06 - [Rubio says US is revoking all visas held by South Sudanese passport holders](https://www.yahoo.com/news/rubio-says-us-revoking-visas-013559382.html)
-- Apr 06 - [17 Inconsiderate People Who Need To Be Banned From Public Spaces Immediately](https://www.yahoo.com/lifestyle/17-inconsiderate-people-banned-public-011602032.html)
+- Apr 05 - [Musk Calls For ‘Zero Tariff Situation’  Between U.S. And Europe, Slams Trump Advisor](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-210010291.html)
+- Apr 05 - [LASD deputies boycotting 'Baker to Vegas' relay after fellow deputy's excessive force conviction](https://www.yahoo.com/news/lasd-deputies-boycotting-baker-vegas-201755176.html)
 <!-- feed end -->
 
 ### Onstream
