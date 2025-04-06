@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Trump tariffs are a 'self-inflicted economic Armageddon'](https://finance.yahoo.com/video/trump-tariffs-self-inflicted-economic-190047310.html)
+- Apr 06 - [Michigan State Police find missing 2-year-old in ditch near I-94](https://www.yahoo.com/news/michigan-state-police-missing-2-163841226.html)
 - Apr 06 - ['Whatever': Trump official pressed on tariffs against islands populated by penguins](https://www.yahoo.com/news/whatever-trump-official-pressed-tariffs-154432672.html)
+- Apr 06 - [Central Arkansas highways, interstates affected by flooding](https://www.yahoo.com/news/central-arkansas-highways-interstates-affected-153505973.html)
 - Apr 06 - [Bible story where Jesus’ ancestor was slain by pharaoh could be true](https://www.yahoo.com/news/bible-story-where-jesus-ancestor-143807602.html)
-- Apr 06 - [Over 50 nations want to start trade talks with US after tariffs, Trump officials say](https://finance.yahoo.com/news/more-50-countries-contacted-white-141336735.html)
-- Apr 06 - [Builders sitting on a pile of unsold homes are slashing prices and offering mortgage rate deals](https://finance.yahoo.com/news/builders-sitting-on-a-pile-of-unsold-homes-are-slashing-prices-and-offering-mortgage-rate-deals-140058365.html)
-- Apr 06 - ['Too late to panic': Wall Street strategists warn messy tariff fallout won't go away anytime soon](https://finance.yahoo.com/news/too-late-to-panic-wall-street-strategists-warn-messy-tariff-fallout-wont-go-away-anytime-soon-130019633.html)
 <!-- feed end -->
 
 ### Onstream
