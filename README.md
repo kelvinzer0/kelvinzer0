@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 06 - [Rubio says US is revoking all visas held by South Sudanese passport holders](https://www.yahoo.com/news/rubio-says-us-revoking-visas-013559382.html)
+- Apr 05 - [Musk Calls For ‘Zero Tariff Situation’  Between U.S. And Europe, Slams Trump Advisor](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-210010291.html)
 - Apr 05 - [DHS claims these tattoos show Venezuelan gang membership. The tattoo artists who did them say the truth is a lot more innocent](https://www.yahoo.com/news/dhs-claims-tattoos-show-venezuelan-192158262.html)
+- Apr 05 - [Train derails in Arkansas as swollen river floods bridge in state park](https://www.yahoo.com/news/train-derails-arkansas-swollen-river-180107471.html)
 - Apr 05 - [Animal rights group criticises ‘cowardly’ ITV coverage after Broadway Boy horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
-- Apr 05 - [‘Unhappy’ Trump Blindsided by Musk Briefing on Secret China War Plan](https://www.yahoo.com/news/unhappy-trump-blindsided-musk-briefing-174213334.html)
-- Apr 05 - [Driver dies when vehicle plunges from downtown Topeka's Polk-Quincy Viaduct](https://www.yahoo.com/news/driver-dies-vehicle-plunges-downtown-165312324.html)
 <!-- feed end -->
 
 ### Onstream
