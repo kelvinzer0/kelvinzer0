@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - ['Whatever': Trump official pressed on tariffs against islands populated by penguins](https://www.yahoo.com/news/whatever-trump-official-pressed-tariffs-154432672.html)
+- Apr 06 - [Over 50 nations want to start trade talks with US after tariffs, Trump officials say](https://finance.yahoo.com/news/more-50-countries-contacted-white-141336735.html)
 - Apr 06 - [Builders sitting on a pile of unsold homes are slashing prices and offering mortgage rate deals](https://finance.yahoo.com/news/builders-sitting-on-a-pile-of-unsold-homes-are-slashing-prices-and-offering-mortgage-rate-deals-140058365.html)
+- Apr 06 - [Multiple high schoolers hospitalized after drinking at SeaWorld prom, school officials confirm](https://www.yahoo.com/news/multiple-high-schoolers-hospitalized-drinking-130936819.html)
 - Apr 06 - ['Too late to panic': Wall Street strategists warn messy tariff fallout won't go away anytime soon](https://finance.yahoo.com/news/too-late-to-panic-wall-street-strategists-warn-messy-tariff-fallout-wont-go-away-anytime-soon-130019633.html)
-- Apr 06 - [Musk calls for 'zero tariff situation' between US and Europe, slams Trump trade adviser](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-125101764.html)
-- Apr 06 - ['Just tell me if my daughter's alive.' After near fatal dog attack, family wants changes](https://www.yahoo.com/news/just-tell-daughters-alive-near-123029548.html)
-- Apr 06 - [Racing breathes sigh of relief after Broadway Boy returns home following Grand National horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
 <!-- feed end -->
 
 ### Onstream
