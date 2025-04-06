@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [Rare insight given into ‘Russian’ parcel sabotage plot](https://www.yahoo.com/news/rare-insight-given-russian-parcel-150510191.html)
-- Apr 06 - [22 Memorable Protest Signs From The "Hands Off" Protests Across America](https://www.yahoo.com/news/22-memorable-protest-signs-hands-145513318.html)
-- Apr 06 - [Nashville weather updates: Power outages drop, flood chances remain in place](https://www.yahoo.com/news/nashville-weather-updates-power-outages-143746644.html)
+- Apr 06 - [Builders sitting on a pile of unsold homes are slashing prices and offering mortgage rate deals](https://finance.yahoo.com/news/builders-sitting-on-a-pile-of-unsold-homes-are-slashing-prices-and-offering-mortgage-rate-deals-140058365.html)
+- Apr 06 - ['Too late to panic': Wall Street strategists warn messy tariff fallout won't go away anytime soon](https://finance.yahoo.com/news/too-late-to-panic-wall-street-strategists-warn-messy-tariff-fallout-wont-go-away-anytime-soon-130019633.html)
 - Apr 06 - [Musk calls for 'zero tariff situation' between US and Europe, slams Trump trade adviser](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-125101764.html)
+- Apr 06 - ['Just tell me if my daughter's alive.' After near fatal dog attack, family wants changes](https://www.yahoo.com/news/just-tell-daughters-alive-near-123029548.html)
 - Apr 06 - [Racing breathes sigh of relief after Broadway Boy returns home following Grand National horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
 <!-- feed end -->
 
