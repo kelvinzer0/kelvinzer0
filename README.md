@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [We were right: New books expose truth about Biden's failing health. I'm furious. | Opinion](https://www.yahoo.com/news/were-books-expose-truth-bidens-083047140.html)
+- Apr 06 - [Racing breathes sigh of relief after Broadway Boy returns home following Grand National horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
+- Apr 06 - [3 Dividend Stocks to Buy and Hold for the Next Decade](https://finance.yahoo.com/news/3-dividend-stocks-buy-hold-104400951.html)
+- Apr 06 - [A boomer who lives off $1,547 in Social Security and has subsidized housing is still struggling to make ends meet: 'I'll be working until I die'](https://www.yahoo.com/news/boomer-lives-off-1-547-080702835.html)
 - Apr 06 - [Texas county that swung to Trump grapples with immigration crackdown after bakery is targeted](https://www.yahoo.com/news/texas-county-swung-trump-grapples-051827128.html)
 - Apr 06 - [Rubio says US is revoking all visas held by South Sudanese passport holders](https://www.yahoo.com/news/rubio-says-us-revoking-visas-013559382.html)
-- Apr 05 - [A Woman Whispered 'Help Me' to an Amazon Driver While He Was Delivering Packages in Florida. Then, a Man Was Arrested](https://www.yahoo.com/entertainment/woman-whispered-help-amazon-driver-225909759.html)
-- Apr 05 - [Musk Calls For ‘Zero Tariff Situation’  Between U.S. And Europe, Slams Trump Advisor](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-210010291.html)
 <!-- feed end -->
 
 ### Onstream
