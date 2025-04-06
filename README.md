@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [Death toll from Tennessee storms, tornado doubles to 10 amid week filled with severe weather](https://www.yahoo.com/news/death-toll-tennessee-storms-tornado-002332780.html)
+- Apr 06 - [Rubio says US is revoking all visas held by South Sudanese passport holders](https://www.yahoo.com/news/rubio-says-us-revoking-visas-013559382.html)
 - Apr 05 - [DHS claims these tattoos show Venezuelan gang membership. The tattoo artists who did them say the truth is a lot more innocent](https://www.yahoo.com/news/dhs-claims-tattoos-show-venezuelan-192158262.html)
-- Apr 05 - [Judge awards $6.6 million to whistleblowers who reported Texas Attorney General Ken Paxton to FBI](https://www.yahoo.com/news/texas-attorney-general-ken-paxton-184521190.html)
 - Apr 05 - [Animal rights group criticises ‘cowardly’ ITV coverage after Broadway Boy horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
 - Apr 05 - [‘Unhappy’ Trump Blindsided by Musk Briefing on Secret China War Plan](https://www.yahoo.com/news/unhappy-trump-blindsided-musk-briefing-174213334.html)
+- Apr 05 - [Driver dies when vehicle plunges from downtown Topeka's Polk-Quincy Viaduct](https://www.yahoo.com/news/driver-dies-vehicle-plunges-downtown-165312324.html)
 <!-- feed end -->
 
 ### Onstream
