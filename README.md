@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 06 - ['Whatever': Trump official pressed on tariffs against islands populated by penguins](https://www.yahoo.com/news/whatever-trump-official-pressed-tariffs-154432672.html)
+- Apr 06 - [Bible story where Jesus’ ancestor was slain by pharaoh could be true](https://www.yahoo.com/news/bible-story-where-jesus-ancestor-143807602.html)
 - Apr 06 - [Over 50 nations want to start trade talks with US after tariffs, Trump officials say](https://finance.yahoo.com/news/more-50-countries-contacted-white-141336735.html)
 - Apr 06 - [Builders sitting on a pile of unsold homes are slashing prices and offering mortgage rate deals](https://finance.yahoo.com/news/builders-sitting-on-a-pile-of-unsold-homes-are-slashing-prices-and-offering-mortgage-rate-deals-140058365.html)
-- Apr 06 - [Multiple high schoolers hospitalized after drinking at SeaWorld prom, school officials confirm](https://www.yahoo.com/news/multiple-high-schoolers-hospitalized-drinking-130936819.html)
 - Apr 06 - ['Too late to panic': Wall Street strategists warn messy tariff fallout won't go away anytime soon](https://finance.yahoo.com/news/too-late-to-panic-wall-street-strategists-warn-messy-tariff-fallout-wont-go-away-anytime-soon-130019633.html)
 <!-- feed end -->
 
