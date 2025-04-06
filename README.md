@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [Nurse who called transgender paedophile ‘Mr’ is suspended after investigation](https://www.yahoo.com/news/nurse-called-transgender-paedophile-mr-120827056.html)
+- Apr 06 - [Musk calls for 'zero tariff situation' between US and Europe, slams Trump trade adviser](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-125101764.html)
 - Apr 06 - [Racing breathes sigh of relief after Broadway Boy returns home following Grand National horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
-- Apr 06 - [Unprecedented events happening with Redding's bald eagle pair: ‘None of us are ready for this’](https://www.yahoo.com/news/unprecedented-events-happening-reddings-bald-100211331.html)
 - Apr 06 - [A boomer who lives off $1,547 in Social Security and has subsidized housing is still struggling to make ends meet: 'I'll be working until I die'](https://www.yahoo.com/news/boomer-lives-off-1-547-080702835.html)
 - Apr 06 - [Texas county that swung to Trump grapples with immigration crackdown after bakery is targeted](https://www.yahoo.com/news/texas-county-swung-trump-grapples-051827128.html)
+- Apr 06 - [Wordle hints today for #1,387: Clues and answer for Sunday, April 6](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1387-clues-and-answer-for-sunday-april-6-040115962.html)
 <!-- feed end -->
 
 ### Onstream
