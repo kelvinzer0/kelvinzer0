@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Mark Cuban warns that Trump's tariff plan plus DOGE cuts could lead the country to 'a far worse situation than 2008'](https://finance.yahoo.com/news/mark-cuban-warns-trumps-tariff-034040295.html)
 - Apr 06 - [Rubio says US is revoking all visas held by South Sudanese passport holders](https://www.yahoo.com/news/rubio-says-us-revoking-visas-013559382.html)
-- Apr 05 - [Musk Calls For ‘Zero Tariff Situation’  Between U.S. And Europe, Slams Trump Advisor](https://finance.yahoo.com/news/musk-calls-zero-tariff-situation-210010291.html)
+- Apr 06 - [No one shot at 404 Day Festival at Underground Atlanta, police confirm](https://www.yahoo.com/news/no-one-shot-404-day-004353526.html)
+- Apr 05 - [6-year-old girl and dog found abandoned in Volusia County, deputies say](https://www.yahoo.com/news/6-old-girl-dog-found-194802763.html)
 - Apr 05 - [DHS claims these tattoos show Venezuelan gang membership. The tattoo artists who did them say the truth is a lot more innocent](https://www.yahoo.com/news/dhs-claims-tattoos-show-venezuelan-192158262.html)
-- Apr 05 - [Train derails in Arkansas as swollen river floods bridge in state park](https://www.yahoo.com/news/train-derails-arkansas-swollen-river-180107471.html)
-- Apr 05 - [Animal rights group criticises ‘cowardly’ ITV coverage after Broadway Boy horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
 <!-- feed end -->
 
 ### Onstream
