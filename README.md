@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [Canadian parliament on lockdown amid large police presence: ‘Lock all doors and hide’](https://www.yahoo.com/news/canadian-parliament-lockdown-amid-large-204020409.html)
-- Apr 05 - [Musk says he hopes for ‘zero’ tariffs between US and Europe](https://www.yahoo.com/news/musk-says-hopes-zero-tariffs-201917647.html)
+- Apr 06 - [Death toll from Tennessee storms, tornado doubles to 10 amid week filled with severe weather](https://www.yahoo.com/news/death-toll-tennessee-storms-tornado-002332780.html)
 - Apr 05 - [DHS claims these tattoos show Venezuelan gang membership. The tattoo artists who did them say the truth is a lot more innocent](https://www.yahoo.com/news/dhs-claims-tattoos-show-venezuelan-192158262.html)
 - Apr 05 - [Judge awards $6.6 million to whistleblowers who reported Texas Attorney General Ken Paxton to FBI](https://www.yahoo.com/news/texas-attorney-general-ken-paxton-184521190.html)
-- Apr 05 - [Donald Trump Says 'Market Is Going To Boom,' Claiming '$6-7 Trillion' Worth Of Inflows Will Come After The Worst Selloff Since 2020](https://finance.yahoo.com/news/donald-trump-says-market-going-183015153.html)
+- Apr 05 - [Animal rights group criticises ‘cowardly’ ITV coverage after Broadway Boy horror fall](https://sports.yahoo.com/article/animal-rights-group-criticises-cowardly-180027298.html)
+- Apr 05 - [‘Unhappy’ Trump Blindsided by Musk Briefing on Secret China War Plan](https://www.yahoo.com/news/unhappy-trump-blindsided-musk-briefing-174213334.html)
 <!-- feed end -->
 
 ### Onstream
