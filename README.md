@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [BYD launches Denza premium brand in Europe to support expansion](https://finance.yahoo.com/news/byd-launches-denza-premium-brand-124231785.html)
+- Apr 07 - [GOP senator believes there would be less ‘fake news’ if violence were used against reporters](https://www.yahoo.com/news/gop-senator-believes-less-fake-121617742.html)
+- Apr 07 - [Kremlin says nobody has yet answered Russia's questions around a proposed Ukraine ceasefire](https://www.yahoo.com/news/kremlin-says-nobody-yet-answered-111054398.html)
 - Apr 07 - [In conservative Alabama, Republicans are cheering for Trump - with some quiet concerns and caveats](https://www.yahoo.com/news/conservative-alabama-republicans-cheering-trump-111047275.html)
-- Apr 07 - [Floods Send Dock Crashing Into Bridge On The Kentucky River](https://www.yahoo.com/news/floods-send-dock-crashing-bridge-105816282.html)
-- Apr 07 - [Boaz Weinstein Warns of Spike in Bankruptcies](https://finance.yahoo.com/video/boaz-weinstein-warns-spike-bankruptcies-101843512.html)
-- Apr 07 - [Jamie Dimon warns of slower growth, higher inflation as tariffs reshape global economy: 'We're not in Kansas anymore'](https://finance.yahoo.com/news/jamie-dimon-warns-of-slower-growth-higher-inflation-as-tariffs-reshape-global-economy-were-not-in-kansas-anymore-101743849.html)
-- Apr 07 - [Microsoft venture Wicresoft to halt China operations, lay off staff, report says](https://finance.yahoo.com/news/microsoft-venture-wicresoft-halt-china-085738025.html)
+- Apr 07 - [Texas is home to 4 venomous snake species. Here's what to do if a rattlesnake bites you](https://www.yahoo.com/lifestyle/texas-home-4-venomous-snake-110124494.html)
 <!-- feed end -->
 
 ### Onstream
