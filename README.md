@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [A woman dies every two minutes globally due to failures in maternal care, shocking new figures reveal](https://www.yahoo.com/news/woman-dies-every-two-minutes-224603885.html)
-- Apr 07 - [Super Rat: the record-setting rodent sniffing out landmines and saving lives](https://www.yahoo.com/news/super-rat-record-setting-rodent-061800855.html)
-- Apr 07 - [China tells US companies it will protect rights of foreign-funded firms](https://finance.yahoo.com/news/china-tells-us-companies-always-054415099.html)
-- Apr 07 - [Trump says he’s ready to talk as new stock market losses fuel tariff chaos](https://www.yahoo.com/news/trump-says-ready-talk-stock-040035591.html)
-- Apr 07 - [Kenya hopes designating massive Kakuma camp a city will help refugees assimilate](https://www.yahoo.com/news/kenya-hopes-designating-massive-kakuma-034216571.html)
+- Apr 07 - [A woman dies every two minutes due to failures in maternal care, shocking new figures reveal](https://www.yahoo.com/news/woman-dies-every-two-minutes-224603885.html)
+- Apr 07 - [Birmingham has been revealed as the noisiest city in the UK](https://www.yahoo.com/news/birmingham-revealed-noisiest-city-uk-073744230.html)
+- Apr 07 - [UK police escort mum off flight after her card is declined for £7](https://www.yahoo.com/lifestyle/uk-police-escort-mum-off-073425139.html)
+- Apr 07 - [RH PetroGas (SGX:T13) Could Become A Multi-Bagger](https://finance.yahoo.com/news/rh-petrogas-sgx-t13-could-072844767.html)
+- Apr 07 - [Two arrested in Paris over suspected terror plot, explosives found](https://www.yahoo.com/news/two-arrested-paris-over-suspected-052657119.html)
 <!-- feed end -->
 
 ### Onstream
