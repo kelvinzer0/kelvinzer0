@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Trump Border Czar Tried to Deport His Own Neighbors. It Didn’t Work.](https://www.yahoo.com/news/trump-border-czar-tried-deport-212424822.html)
-- Apr 07 - [Former high school staffer accused of having sexual relationship with student pleads guilty](https://www.yahoo.com/news/former-high-school-staffer-accused-211739178.html)
-- Apr 07 - [Tigers executive Sam Menzin resigns after probe revealed that he allegedly sent unsolicited lewd photos to women on staff: Report](https://sports.yahoo.com/mlb/article/tigers-executive-sam-menzin-resigns-after-probe-revealed-that-he-allegedly-sent-unsolicited-lewd-photos-to-women-on-staff-report-202451793.html)
-- Apr 07 - [JD Vance Uses 1 Derogatory Word To Describe China, And People Are Disgusted](https://www.yahoo.com/news/jd-vance-uses-1-derogatory-195641709.html)
-- Apr 07 - [These 19 Hilarious Fails From Last Week Made Me Laugh So Hard I Forgot The Economy Even Exists](https://www.yahoo.com/lifestyle/19-hilarious-fails-last-week-194503044.html)
+- Apr 07 - [Funerals of children killed by Russian attack in Krivyi Rih](https://www.yahoo.com/news/funerals-children-killed-russian-attack-230139294.html)
+- Apr 07 - [US Supreme Court backs Trump on deportations under 1798 law](https://www.yahoo.com/news/us-supreme-court-backs-trump-224913571.html)
+- Apr 07 - [The White House has reportedly settled on an explanation for how 'Signalgate' happened](https://tech.yahoo.com/article/the-white-house-has-reportedly-settled-on-an-explanation-for-how-signalgate-happened-212107380.html)
+- Apr 07 - [Court directive to notify voters in close North Carolina election blocked for now](https://www.yahoo.com/news/court-directive-locate-voters-close-210053784.html)
+- Apr 07 - [A Michigan woman missing for 3 days after a casino trip is found alive in the woods](https://www.yahoo.com/news/michigan-woman-missing-3-days-202754738.html)
 <!-- feed end -->
 
 ### Onstream
