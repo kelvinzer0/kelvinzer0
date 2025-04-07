@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [BYD launches Denza premium brand in Europe to support expansion](https://finance.yahoo.com/news/byd-launches-denza-premium-brand-124231785.html)
-- Apr 07 - [GOP senator believes there would be less ‘fake news’ if violence were used against reporters](https://www.yahoo.com/news/gop-senator-believes-less-fake-121617742.html)
-- Apr 07 - [Kremlin says nobody has yet answered Russia's questions around a proposed Ukraine ceasefire](https://www.yahoo.com/news/kremlin-says-nobody-yet-answered-111054398.html)
-- Apr 07 - [In conservative Alabama, Republicans are cheering for Trump - with some quiet concerns and caveats](https://www.yahoo.com/news/conservative-alabama-republicans-cheering-trump-111047275.html)
-- Apr 07 - [Texas is home to 4 venomous snake species. Here's what to do if a rattlesnake bites you](https://www.yahoo.com/lifestyle/texas-home-4-venomous-snake-110124494.html)
+- Apr 07 - [One chart shows how much optimism has been wiped out of the 'Magnificent 7' because of Trump tariffs](https://finance.yahoo.com/news/one-chart-shows-how-much-optimism-has-been-wiped-out-of-the-magnificent-7-because-of-trump-tariffs-140305268.html)
+- Apr 07 - [Woman dies after falling 20ft from rollercoaster within seconds of start of ride](https://www.yahoo.com/news/woman-dies-rollercoaster-accident-seat-121708652.html)
+- Apr 07 - [Appeals court reverses Trump firings of 2 board members in cases likely headed for the Supreme Court](https://www.yahoo.com/news/appeals-court-reverses-2-trump-133043291.html)
+- Apr 07 - [Ask an Advisor: Will IRA Withdrawals Before Age 73 Offset My RMDs?](https://finance.yahoo.com/news/ask-advisor-ira-withdrawals-turn-123000573.html)
+- Apr 07 - [3 things that must happen to get bullish about stocks again: JPMorgan](https://finance.yahoo.com/news/3-things-that-must-happen-to-get-bullish-about-stocks-again-jpmorgan-132908835.html)
 <!-- feed end -->
 
 ### Onstream
