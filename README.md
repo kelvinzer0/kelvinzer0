@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [One chart shows how much optimism has been wiped out of the 'Magnificent 7' because of Trump tariffs](https://finance.yahoo.com/news/one-chart-shows-how-much-optimism-has-been-wiped-out-of-the-magnificent-7-because-of-trump-tariffs-140305268.html)
-- Apr 07 - [Woman dies after falling 20ft from rollercoaster within seconds of start of ride](https://www.yahoo.com/news/woman-dies-rollercoaster-accident-seat-121708652.html)
-- Apr 07 - [Appeals court reverses Trump firings of 2 board members in cases likely headed for the Supreme Court](https://www.yahoo.com/news/appeals-court-reverses-2-trump-133043291.html)
-- Apr 07 - [Ask an Advisor: Will IRA Withdrawals Before Age 73 Offset My RMDs?](https://finance.yahoo.com/news/ask-advisor-ira-withdrawals-turn-123000573.html)
-- Apr 07 - [3 things that must happen to get bullish about stocks again: JPMorgan](https://finance.yahoo.com/news/3-things-that-must-happen-to-get-bullish-about-stocks-again-jpmorgan-132908835.html)
+- Apr 07 - [Stock market goes haywire with massive swings after ‘fake news’ reports about future of Trump’s tariff plan](https://finance.yahoo.com/news/stock-market-goes-haywire-massive-144838691.html)
+- Apr 07 - ['Don't be stupid,' says Donald Trump as he 'shoots himself in foot' with tariffs global markets meltdown](https://www.yahoo.com/news/dont-stupid-says-donald-trump-140739045.html)
+- Apr 07 - [US tariffs, auto trade and the limits of the ‘Yank Tank’](https://finance.yahoo.com/news/us-tariffs-auto-trade-limits-142408512.html)
+- Apr 07 - [EU ministers push for joint defence fund to secure a more self-reliant Europe](https://www.yahoo.com/news/eu-ministers-push-joint-defence-141856742.html)
+- Apr 07 - [How Much House Does $500K Buy You in the South?](https://finance.yahoo.com/news/much-house-does-500k-buy-140358787.html)
 <!-- feed end -->
 
 ### Onstream
