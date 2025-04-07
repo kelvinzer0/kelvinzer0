@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [A woman dies every two minutes globally due to failures in maternal care, shocking new figures reveal](https://www.yahoo.com/news/woman-dies-every-two-minutes-224603885.html)
+- Apr 07 - [Super Rat: the record-setting rodent sniffing out landmines and saving lives](https://www.yahoo.com/news/super-rat-record-setting-rodent-061800855.html)
+- Apr 07 - [China tells US companies it will protect rights of foreign-funded firms](https://finance.yahoo.com/news/china-tells-us-companies-always-054415099.html)
 - Apr 07 - [Trump says he’s ready to talk as new stock market losses fuel tariff chaos](https://www.yahoo.com/news/trump-says-ready-talk-stock-040035591.html)
-- Apr 07 - [Rupee shorts rue ill-timed exits as US tariffs pummel risk assets, Asia FX](https://finance.yahoo.com/news/indian-rupee-slumps-ndf-market-021913592.html)
-- Apr 07 - [Investigators in small Missouri town say they have solved one of the most unsolvable crimes](https://www.yahoo.com/news/investigators-small-missouri-town-solved-013859262.html)
-- Apr 06 - [Toyota to boost EV models to 15, targets producing 1 million by 2027, Nikkei says](https://finance.yahoo.com/news/toyota-boost-ev-models-15-233421083.html)
-- Apr 06 - [Wall Street experts warn stocks have 'ample space' to continue cratering as Trump team digs in on tariffs](https://finance.yahoo.com/news/wall-street-experts-warn-stocks-have-ample-space-to-continue-cratering-as-trump-team-digs-in-on-tariffs-225515352.html)
+- Apr 07 - [Kenya hopes designating massive Kakuma camp a city will help refugees assimilate](https://www.yahoo.com/news/kenya-hopes-designating-massive-kakuma-034216571.html)
 <!-- feed end -->
 
 ### Onstream
