@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Meghann Fahy Thinks About Jennifer Coolidge—and Contraception—Every Time She Moisturizes](https://www.yahoo.com/lifestyle/meghann-fahy-thinks-jennifer-coolidge-160000797.html)
-- Apr 07 - [Ex-official says he was forced out of FDA after trying to protect vaccine safety data from RFK Jr.](https://www.yahoo.com/news/ex-official-says-forced-fda-151149074.html)
-- Apr 07 - ['Don't be stupid,' says Donald Trump as he 'shoots himself in foot' with tariffs global markets meltdown](https://www.yahoo.com/news/dont-stupid-says-donald-trump-140739045.html)
-- Apr 07 - [Jeffrey Epstein Accuser Virginia Giuffre Leaves Hospital After Crash: Why Brother Says Accident 'Saved Her Life'](https://www.yahoo.com/entertainment/jeffrey-epstein-accuser-virginia-giuffre-150259352.html)
-- Apr 07 - [US Justice Dept mobilized armed Marshals to warn ex-lawyer over congressional testimony, letter shows](https://www.yahoo.com/news/us-justice-dept-mobilized-armed-150244604.html)
+- Apr 07 - [WLW's decision to put Thom Brennaman back on air is tone-deaf | Letter](https://www.yahoo.com/news/wlws-decision-put-thom-brennaman-164754462.html)
+- Apr 07 - [Delta to kick off airline earnings: What to expect](https://finance.yahoo.com/video/delta-kick-off-airline-earnings-164136590.html)
+- Apr 07 - [My Brain Is Throbbing After Watching This MAGA Voter Argue About Inflation Without Knowing What It Is](https://www.yahoo.com/news/brain-throbbing-watching-maga-voter-163842594.html)
+- Apr 07 - [One Wall Street bull still sees a stock market rally: 'These levies will eventually be negotiated lower'](https://finance.yahoo.com/news/one-wall-street-bull-still-sees-a-stock-market-rally-these-levies-will-eventually-be-negotiated-lower-160859105.html)
+- Apr 07 - [Put buying surge signals market fear as people seek 'protection'](https://finance.yahoo.com/video/put-buying-surge-signals-market-153937803.html)
 <!-- feed end -->
 
 ### Onstream
