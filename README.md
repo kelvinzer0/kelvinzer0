@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [How to ask an employer about flexible working without explicitly asking](https://uk.finance.yahoo.com/news/ask-employer-flexible-working-050047039.html)
+- Apr 07 - [Trump says he’s ready to talk as new stock market losses fuel tariff chaos](https://www.yahoo.com/news/trump-says-ready-talk-stock-040035591.html)
+- Apr 07 - [Rupee shorts rue ill-timed exits as US tariffs pummel risk assets, Asia FX](https://finance.yahoo.com/news/indian-rupee-slumps-ndf-market-021913592.html)
+- Apr 07 - [Investigators in small Missouri town say they have solved one of the most unsolvable crimes](https://www.yahoo.com/news/investigators-small-missouri-town-solved-013859262.html)
+- Apr 06 - [Toyota to boost EV models to 15, targets producing 1 million by 2027, Nikkei says](https://finance.yahoo.com/news/toyota-boost-ev-models-15-233421083.html)
 - Apr 06 - [Wall Street experts warn stocks have 'ample space' to continue cratering as Trump team digs in on tariffs](https://finance.yahoo.com/news/wall-street-experts-warn-stocks-have-ample-space-to-continue-cratering-as-trump-team-digs-in-on-tariffs-225515352.html)
-- Apr 06 - [Stock market today: Dow, S&P 500, Nasdaq futures plunge as Trump tariff rout set to escalate](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-plunge-as-trump-tariff-rout-set-to-escalate-220537788.html)
-- Apr 06 - ["Own this": Walz tells CNN he doesn't appreciate Harris' "I told you so"](https://www.yahoo.com/news/own-walz-tells-cnn-doesnt-212355626.html)
-- Apr 06 - [RFK Jr. consoles Texas family: MMR vaccine ‘most effective’ way to stop measles spread](https://www.yahoo.com/news/rfk-jr-consoles-texas-family-205112445.html)
 <!-- feed end -->
 
 ### Onstream
