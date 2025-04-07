@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Home price increases slow: What it means for buyers](https://finance.yahoo.com/video/home-price-increases-slow-means-190000768.html)
-- Apr 07 - [Auto stocks continue slide as tariff impact threatens to decimate sales](https://finance.yahoo.com/news/auto-stocks-continue-slide-as-tariff-impact-threatens-to-decimate-sales-185757899.html)
-- Apr 07 - [Reports of damage roll in after Tallahassee endures two possible tornadoes on Monday](https://www.yahoo.com/news/reports-damage-roll-tallahassee-endures-174721597.html)
-- Apr 07 - [US families accuse Palestinian-American billionaire of facilitating Hamas attacks](https://www.yahoo.com/news/us-families-accuse-palestinian-american-172526763.html)
-- Apr 07 - [Video captures freight train crashing through grain truck in rural Minnesota](https://www.yahoo.com/news/video-captures-freight-train-crashing-172519691.html)
+- Apr 07 - [Stock market today: Dow sinks 350 points, S&P 500 falls for third day as tariffs send stocks on roller coaster](https://finance.yahoo.com/news/live/stock-market-today-dow-sinks-350-points-sp-500-falls-for-third-day-as-tariffs-send-stocks-on-roller-coaster-200044633.html)
+- Apr 07 - [JD Vance Uses 1 Derogatory Word To Describe China, And People Are Disgusted](https://www.yahoo.com/news/jd-vance-uses-1-derogatory-195641709.html)
+- Apr 07 - [Microsoft workers say they've been fired after 50th anniversary protest over Israel contract](https://www.yahoo.com/news/microsoft-workers-theyve-fired-50th-194831445.html)
+- Apr 07 - [Window replacement cost: A guide to upgrading your home's windows](https://finance.yahoo.com/personal-finance/mortgages/article/window-replacement-cost-194622009.html)
+- Apr 07 - [Zelenskiy confirms for first time that Ukrainian troops active in Russia's Belgorod region](https://www.yahoo.com/news/zelenskiy-acknowledges-ukrainian-troops-were-182646304.html)
 <!-- feed end -->
 
 ### Onstream
