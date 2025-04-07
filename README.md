@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Tech stock sell-off: What one tech bull is worried about](https://finance.yahoo.com/video/tech-stock-sell-off-one-100050929.html)
-- Apr 07 - [Easter holiday travel chaos awaits with disruption expected on trains, flights and roads](https://www.yahoo.com/news/easter-holiday-travel-chaos-awaits-121654589.html)
-- Apr 07 - [Flooding Cuts Off Road in Sebastian County](https://www.yahoo.com/news/flooding-cuts-off-road-sebastian-094614622.html)
-- Apr 07 - [These Stocks Are Moving the Most Today: Apple, Tesla, JPMorgan, Nvidia, MicroStrategy, Alibaba, Lilly, and More](https://www.barrons.com/articles/stock-market-movers-74d6dd68?siteid=yhoof2&yptr=yahoo)
-- Apr 07 - [Trump says he’s ready to talk as new stock market losses fuel tariff chaos](https://www.yahoo.com/news/trump-says-ready-talk-stock-040035591.html)
+- Apr 07 - [Myanmar tour guide left 'heartbroken' as ancient temple destroyed](https://www.yahoo.com/news/myanmar-tour-guide-left-heartbroken-104846863.html)
+- Apr 07 - [Jamie Dimon warns of slower growth, higher inflation as tariffs reshape global economy: 'We're not in Kansas anymore'](https://finance.yahoo.com/news/jamie-dimon-warns-of-slower-growth-higher-inflation-as-tariffs-reshape-global-economy-were-not-in-kansas-anymore-101743849.html)
+- Apr 07 - [What are the healthiest cities in NY? See the list](https://www.yahoo.com/lifestyle/healthiest-cities-ny-see-list-093105463.html)
+- Apr 07 - [Tulare County Supervisors abolish park entrance fees](https://www.yahoo.com/news/tulare-county-supervisors-abolish-park-093044234.html)
+- Apr 07 - [Reporter killed after Israel strikes tents outside hospitals in Gaza](https://www.yahoo.com/news/reporter-killed-israel-strikes-tents-072658262.html)
 <!-- feed end -->
 
 ### Onstream
