@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [David and Victoria Beckham’s former bodyguard Craig Ainsworth found dead in Spain after going missing](https://www.yahoo.com/news/david-victoria-beckham-former-bodyguard-084107913.html)
-- Apr 07 - [A woman dies every two minutes due to failures in maternal care, shocking new figures reveal](https://www.yahoo.com/news/woman-dies-every-two-minutes-224603885.html)
+- Apr 07 - [Tech stock sell-off: What one tech bull is worried about](https://finance.yahoo.com/video/tech-stock-sell-off-one-100050929.html)
 - Apr 07 - [Easter holiday travel chaos awaits with disruption expected on trains, flights and roads](https://www.yahoo.com/news/easter-holiday-travel-chaos-awaits-121654589.html)
-- Apr 07 - [Pakistani security forces kill 9 militants in a raid near the Afghan border](https://www.yahoo.com/news/pakistani-security-forces-kill-9-075845576.html)
-- Apr 07 - [Birmingham has been revealed as the noisiest city in the UK](https://www.yahoo.com/news/birmingham-revealed-noisiest-city-uk-073744230.html)
+- Apr 07 - [Flooding Cuts Off Road in Sebastian County](https://www.yahoo.com/news/flooding-cuts-off-road-sebastian-094614622.html)
+- Apr 07 - [These Stocks Are Moving the Most Today: Apple, Tesla, JPMorgan, Nvidia, MicroStrategy, Alibaba, Lilly, and More](https://www.barrons.com/articles/stock-market-movers-74d6dd68?siteid=yhoof2&yptr=yahoo)
+- Apr 07 - [Trump says he’s ready to talk as new stock market losses fuel tariff chaos](https://www.yahoo.com/news/trump-says-ready-talk-stock-040035591.html)
 <!-- feed end -->
 
 ### Onstream
