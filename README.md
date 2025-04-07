@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Stock market today: Dow sinks 350 points, S&P 500 falls for third day as tariffs send stocks on roller coaster](https://finance.yahoo.com/news/live/stock-market-today-dow-sinks-350-points-sp-500-falls-for-third-day-as-tariffs-send-stocks-on-roller-coaster-200044633.html)
-- Apr 07 - [JD Vance Uses 1 Derogatory Word To Describe China, And People Are Disgusted](https://www.yahoo.com/news/jd-vance-uses-1-derogatory-195641709.html)
-- Apr 07 - [Microsoft workers say they've been fired after 50th anniversary protest over Israel contract](https://www.yahoo.com/news/microsoft-workers-theyve-fired-50th-194831445.html)
-- Apr 07 - [Window replacement cost: A guide to upgrading your home's windows](https://finance.yahoo.com/personal-finance/mortgages/article/window-replacement-cost-194622009.html)
-- Apr 07 - [Zelenskiy confirms for first time that Ukrainian troops active in Russia's Belgorod region](https://www.yahoo.com/news/zelenskiy-acknowledges-ukrainian-troops-were-182646304.html)
+- Apr 07 - [Reporter killed as Israel strikes tents outside hospitals in Gaza](https://www.yahoo.com/news/reporter-killed-israel-strikes-tents-072658262.html)
+- Apr 07 - [Alibaba, PDD, JD.com fall on Trump's additional tariff threats](https://finance.yahoo.com/video/alibaba-pdd-jd-com-fall-204736510.html)
+- Apr 07 - [Trump appointment of junior official to oversee State Department personnel meets resistance](https://www.yahoo.com/news/trump-appointment-junior-official-oversee-204216718.html)
+- Apr 07 - [A Michigan woman missing for 3 days after a casino trip is found alive in the woods](https://www.yahoo.com/news/michigan-woman-missing-3-days-202754738.html)
+- Apr 07 - [Tigers executive Sam Menzin resigns after probe revealed that he allegedly sent unsolicited lewd photos to women on staff: Report](https://sports.yahoo.com/mlb/article/tigers-executive-sam-menzin-resigns-after-probe-revealed-that-he-allegedly-sent-unsolicited-lewd-photos-to-women-on-staff-report-202451793.html)
 <!-- feed end -->
 
 ### Onstream
