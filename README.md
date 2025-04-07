@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Residents of a Tennessee town evacuated, leaving behind flooded homes](https://www.yahoo.com/news/residents-tennessee-town-evacuated-leaving-012902001.html)
+- Apr 07 - [Convicted felon accused of leading state police on chase on Route 28 sentenced to prison](https://www.yahoo.com/news/convicted-felon-accused-leading-state-012308703.html)
 - Apr 06 - [France's far-right politician Le Pen remains defiant despite embezzlement conviction](https://www.yahoo.com/news/frances-far-politician-le-pen-233951444.html)
+- Apr 06 - [Dow futures down 1,600 points as impact of Trump’s tariffs grows](https://www.yahoo.com/news/dow-futures-down-1-600-231948507.html)
 - Apr 06 - [Global stock markets tumble, bonds rally on recession fear](https://finance.yahoo.com/news/u-stock-futures-tumble-indicating-231724827.html)
 - Apr 06 - [Stock market today: Dow, S&P 500, Nasdaq futures plunge as Trump tariff rout set to escalate](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-plunge-as-trump-tariff-rout-set-to-escalate-220537788.html)
-- Apr 06 - ['Horrific scene' as police take down man allegedly attacking 4 young girls in NYC](https://www.yahoo.com/news/nypd-officers-shoot-man-allegedly-215510521.html)
 <!-- feed end -->
 
 ### Onstream
