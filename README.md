@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 06 - [Wall St futures, oil plunge, markets bay for US rate cuts](https://finance.yahoo.com/news/wall-st-futures-oil-plunge-225616767.html)
-- Apr 06 - [Aid cuts could leave more women dying in pregnancy and birth, UN says](https://www.yahoo.com/news/aid-cuts-could-leave-more-223329472.html)
-- Apr 06 - [Firefighter injured in Portsmouth house fire, occupants evacuated safely](https://www.yahoo.com/news/firefighter-injured-portsmouth-house-fire-212445029.html)
-- Apr 06 - [Meat cleaver-wielding man stabs young girls in bloody NYC attack as 11-year-old calls 911: police](https://www.yahoo.com/news/meat-cleaver-wielding-man-stabs-205317676.html)
-- Apr 06 - [U.S. envoy says Hezbollah must be disarmed 'as soon as possible'](https://www.yahoo.com/news/u-envoy-says-hezbollah-must-195010344.html)
+- Apr 07 - [Residents of a Tennessee town evacuated, leaving behind flooded homes](https://www.yahoo.com/news/residents-tennessee-town-evacuated-leaving-012902001.html)
+- Apr 06 - [France's far-right politician Le Pen remains defiant despite embezzlement conviction](https://www.yahoo.com/news/frances-far-politician-le-pen-233951444.html)
+- Apr 06 - [Global stock markets tumble, bonds rally on recession fear](https://finance.yahoo.com/news/u-stock-futures-tumble-indicating-231724827.html)
+- Apr 06 - [Stock market today: Dow, S&P 500, Nasdaq futures plunge as Trump tariff rout set to escalate](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-plunge-as-trump-tariff-rout-set-to-escalate-220537788.html)
+- Apr 06 - ['Horrific scene' as police take down man allegedly attacking 4 young girls in NYC](https://www.yahoo.com/news/nypd-officers-shoot-man-allegedly-215510521.html)
 <!-- feed end -->
 
 ### Onstream
