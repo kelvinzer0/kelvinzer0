@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [David and Victoria Beckham’s former bodyguard Craig Ainsworth found dead in Spain after going missing](https://www.yahoo.com/news/david-victoria-beckham-former-bodyguard-084107913.html)
 - Apr 07 - [A woman dies every two minutes due to failures in maternal care, shocking new figures reveal](https://www.yahoo.com/news/woman-dies-every-two-minutes-224603885.html)
+- Apr 07 - [Easter holiday travel chaos awaits with disruption expected on trains, flights and roads](https://www.yahoo.com/news/easter-holiday-travel-chaos-awaits-121654589.html)
+- Apr 07 - [Pakistani security forces kill 9 militants in a raid near the Afghan border](https://www.yahoo.com/news/pakistani-security-forces-kill-9-075845576.html)
 - Apr 07 - [Birmingham has been revealed as the noisiest city in the UK](https://www.yahoo.com/news/birmingham-revealed-noisiest-city-uk-073744230.html)
-- Apr 07 - [UK police escort mum off flight after her card is declined for £7](https://www.yahoo.com/lifestyle/uk-police-escort-mum-off-073425139.html)
-- Apr 07 - [RH PetroGas (SGX:T13) Could Become A Multi-Bagger](https://finance.yahoo.com/news/rh-petrogas-sgx-t13-could-072844767.html)
-- Apr 07 - [Two arrested in Paris over suspected terror plot, explosives found](https://www.yahoo.com/news/two-arrested-paris-over-suspected-052657119.html)
 <!-- feed end -->
 
 ### Onstream
