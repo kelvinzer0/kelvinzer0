@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Reporter killed as Israel strikes tents outside hospitals in Gaza](https://www.yahoo.com/news/reporter-killed-israel-strikes-tents-072658262.html)
-- Apr 07 - [Alibaba, PDD, JD.com fall on Trump's additional tariff threats](https://finance.yahoo.com/video/alibaba-pdd-jd-com-fall-204736510.html)
-- Apr 07 - [Trump appointment of junior official to oversee State Department personnel meets resistance](https://www.yahoo.com/news/trump-appointment-junior-official-oversee-204216718.html)
-- Apr 07 - [A Michigan woman missing for 3 days after a casino trip is found alive in the woods](https://www.yahoo.com/news/michigan-woman-missing-3-days-202754738.html)
+- Apr 07 - [Trump Border Czar Tried to Deport His Own Neighbors. It Didn’t Work.](https://www.yahoo.com/news/trump-border-czar-tried-deport-212424822.html)
+- Apr 07 - [Former high school staffer accused of having sexual relationship with student pleads guilty](https://www.yahoo.com/news/former-high-school-staffer-accused-211739178.html)
 - Apr 07 - [Tigers executive Sam Menzin resigns after probe revealed that he allegedly sent unsolicited lewd photos to women on staff: Report](https://sports.yahoo.com/mlb/article/tigers-executive-sam-menzin-resigns-after-probe-revealed-that-he-allegedly-sent-unsolicited-lewd-photos-to-women-on-staff-report-202451793.html)
+- Apr 07 - [JD Vance Uses 1 Derogatory Word To Describe China, And People Are Disgusted](https://www.yahoo.com/news/jd-vance-uses-1-derogatory-195641709.html)
+- Apr 07 - [These 19 Hilarious Fails From Last Week Made Me Laugh So Hard I Forgot The Economy Even Exists](https://www.yahoo.com/lifestyle/19-hilarious-fails-last-week-194503044.html)
 <!-- feed end -->
 
 ### Onstream
