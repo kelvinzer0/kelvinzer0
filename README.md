@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Convicted felon accused of leading state police on chase on Route 28 sentenced to prison](https://www.yahoo.com/news/convicted-felon-accused-leading-state-012308703.html)
-- Apr 06 - [France's far-right politician Le Pen remains defiant despite embezzlement conviction](https://www.yahoo.com/news/frances-far-politician-le-pen-233951444.html)
-- Apr 06 - [Dow futures down 1,600 points as impact of Trump’s tariffs grows](https://www.yahoo.com/news/dow-futures-down-1-600-231948507.html)
-- Apr 06 - [Global stock markets tumble, bonds rally on recession fear](https://finance.yahoo.com/news/u-stock-futures-tumble-indicating-231724827.html)
+- Apr 07 - [Twin Cities restaurateur David Burley dies in motorcycle accident](https://www.yahoo.com/news/twin-cities-restaurateur-david-burley-034900242.html)
+- Apr 07 - [Kenya hopes designating massive Kakuma camp a city will help refugees assimilate](https://www.yahoo.com/news/kenya-hopes-designating-massive-kakuma-034216571.html)
+- Apr 07 - [Rupee to tank on US tariffs-fuelled meltdown in Asia equities](https://finance.yahoo.com/news/indian-rupee-slumps-ndf-market-021913592.html)
+- Apr 06 - [Bill Ackman warns Trump to call a timeout on trade war: ‘This is not what we voted for’](https://finance.yahoo.com/news/bill-ackman-warns-trump-call-231013298.html)
 - Apr 06 - [Stock market today: Dow, S&P 500, Nasdaq futures plunge as Trump tariff rout set to escalate](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-plunge-as-trump-tariff-rout-set-to-escalate-220537788.html)
 <!-- feed end -->
 
