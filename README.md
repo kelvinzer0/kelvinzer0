@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [US tariffs won't change China economy's big picture](https://finance.yahoo.com/video/us-tariffs-wont-change-china-180000999.html)
+- Apr 07 - [Home price increases slow: What it means for buyers](https://finance.yahoo.com/video/home-price-increases-slow-means-190000768.html)
+- Apr 07 - [Auto stocks continue slide as tariff impact threatens to decimate sales](https://finance.yahoo.com/news/auto-stocks-continue-slide-as-tariff-impact-threatens-to-decimate-sales-185757899.html)
+- Apr 07 - [Reports of damage roll in after Tallahassee endures two possible tornadoes on Monday](https://www.yahoo.com/news/reports-damage-roll-tallahassee-endures-174721597.html)
+- Apr 07 - [US families accuse Palestinian-American billionaire of facilitating Hamas attacks](https://www.yahoo.com/news/us-families-accuse-palestinian-american-172526763.html)
 - Apr 07 - [Video captures freight train crashing through grain truck in rural Minnesota](https://www.yahoo.com/news/video-captures-freight-train-crashing-172519691.html)
-- Apr 07 - [RFK Jr praises anti-vaxxer hours after attending funeral of 8-year-old who died from measles](https://www.yahoo.com/news/rfk-praises-anti-vaxxer-hours-164824522.html)
-- Apr 07 - [Radio station's decision to put homophobic broadcaster back on air is tone-deaf | Letter](https://www.yahoo.com/news/wlws-decision-put-thom-brennaman-164754462.html)
-- Apr 07 - [Delta to kick off airline earnings: What to expect](https://finance.yahoo.com/video/delta-kick-off-airline-earnings-164136590.html)
 <!-- feed end -->
 
 ### Onstream
