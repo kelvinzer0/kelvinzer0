@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Stock market goes haywire with massive swings after ‘fake news’ reports about future of Trump’s tariff plan](https://finance.yahoo.com/news/stock-market-goes-haywire-massive-144838691.html)
+- Apr 07 - [Meghann Fahy Thinks About Jennifer Coolidge—and Contraception—Every Time She Moisturizes](https://www.yahoo.com/lifestyle/meghann-fahy-thinks-jennifer-coolidge-160000797.html)
+- Apr 07 - [Ex-official says he was forced out of FDA after trying to protect vaccine safety data from RFK Jr.](https://www.yahoo.com/news/ex-official-says-forced-fda-151149074.html)
 - Apr 07 - ['Don't be stupid,' says Donald Trump as he 'shoots himself in foot' with tariffs global markets meltdown](https://www.yahoo.com/news/dont-stupid-says-donald-trump-140739045.html)
-- Apr 07 - [US tariffs, auto trade and the limits of the ‘Yank Tank’](https://finance.yahoo.com/news/us-tariffs-auto-trade-limits-142408512.html)
-- Apr 07 - [EU ministers push for joint defence fund to secure a more self-reliant Europe](https://www.yahoo.com/news/eu-ministers-push-joint-defence-141856742.html)
-- Apr 07 - [How Much House Does $500K Buy You in the South?](https://finance.yahoo.com/news/much-house-does-500k-buy-140358787.html)
+- Apr 07 - [Jeffrey Epstein Accuser Virginia Giuffre Leaves Hospital After Crash: Why Brother Says Accident 'Saved Her Life'](https://www.yahoo.com/entertainment/jeffrey-epstein-accuser-virginia-giuffre-150259352.html)
+- Apr 07 - [US Justice Dept mobilized armed Marshals to warn ex-lawyer over congressional testimony, letter shows](https://www.yahoo.com/news/us-justice-dept-mobilized-armed-150244604.html)
 <!-- feed end -->
 
 ### Onstream
