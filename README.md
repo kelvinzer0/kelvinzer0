@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [WLW's decision to put Thom Brennaman back on air is tone-deaf | Letter](https://www.yahoo.com/news/wlws-decision-put-thom-brennaman-164754462.html)
+- Apr 07 - [US tariffs won't change China economy's big picture](https://finance.yahoo.com/video/us-tariffs-wont-change-china-180000999.html)
+- Apr 07 - [Video captures freight train crashing through grain truck in rural Minnesota](https://www.yahoo.com/news/video-captures-freight-train-crashing-172519691.html)
+- Apr 07 - [RFK Jr praises anti-vaxxer hours after attending funeral of 8-year-old who died from measles](https://www.yahoo.com/news/rfk-praises-anti-vaxxer-hours-164824522.html)
+- Apr 07 - [Radio station's decision to put homophobic broadcaster back on air is tone-deaf | Letter](https://www.yahoo.com/news/wlws-decision-put-thom-brennaman-164754462.html)
 - Apr 07 - [Delta to kick off airline earnings: What to expect](https://finance.yahoo.com/video/delta-kick-off-airline-earnings-164136590.html)
-- Apr 07 - [My Brain Is Throbbing After Watching This MAGA Voter Argue About Inflation Without Knowing What It Is](https://www.yahoo.com/news/brain-throbbing-watching-maga-voter-163842594.html)
-- Apr 07 - [One Wall Street bull still sees a stock market rally: 'These levies will eventually be negotiated lower'](https://finance.yahoo.com/news/one-wall-street-bull-still-sees-a-stock-market-rally-these-levies-will-eventually-be-negotiated-lower-160859105.html)
-- Apr 07 - [Put buying surge signals market fear as people seek 'protection'](https://finance.yahoo.com/video/put-buying-surge-signals-market-153937803.html)
 <!-- feed end -->
 
 ### Onstream
