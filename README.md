@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Twin Cities restaurateur David Burley dies in motorcycle accident](https://www.yahoo.com/news/twin-cities-restaurateur-david-burley-034900242.html)
-- Apr 07 - [Kenya hopes designating massive Kakuma camp a city will help refugees assimilate](https://www.yahoo.com/news/kenya-hopes-designating-massive-kakuma-034216571.html)
-- Apr 07 - [Rupee to tank on US tariffs-fuelled meltdown in Asia equities](https://finance.yahoo.com/news/indian-rupee-slumps-ndf-market-021913592.html)
-- Apr 06 - [Bill Ackman warns Trump to call a timeout on trade war: ‘This is not what we voted for’](https://finance.yahoo.com/news/bill-ackman-warns-trump-call-231013298.html)
+- Apr 07 - [How to ask an employer about flexible working without explicitly asking](https://uk.finance.yahoo.com/news/ask-employer-flexible-working-050047039.html)
+- Apr 06 - [Wall Street experts warn stocks have 'ample space' to continue cratering as Trump team digs in on tariffs](https://finance.yahoo.com/news/wall-street-experts-warn-stocks-have-ample-space-to-continue-cratering-as-trump-team-digs-in-on-tariffs-225515352.html)
 - Apr 06 - [Stock market today: Dow, S&P 500, Nasdaq futures plunge as Trump tariff rout set to escalate](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-plunge-as-trump-tariff-rout-set-to-escalate-220537788.html)
+- Apr 06 - ["Own this": Walz tells CNN he doesn't appreciate Harris' "I told you so"](https://www.yahoo.com/news/own-walz-tells-cnn-doesnt-212355626.html)
+- Apr 06 - [RFK Jr. consoles Texas family: MMR vaccine ‘most effective’ way to stop measles spread](https://www.yahoo.com/news/rfk-jr-consoles-texas-family-205112445.html)
 <!-- feed end -->
 
 ### Onstream
