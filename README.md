@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Myanmar tour guide left 'heartbroken' as ancient temple destroyed](https://www.yahoo.com/news/myanmar-tour-guide-left-heartbroken-104846863.html)
+- Apr 07 - [In conservative Alabama, Republicans are cheering for Trump - with some quiet concerns and caveats](https://www.yahoo.com/news/conservative-alabama-republicans-cheering-trump-111047275.html)
+- Apr 07 - [Floods Send Dock Crashing Into Bridge On The Kentucky River](https://www.yahoo.com/news/floods-send-dock-crashing-bridge-105816282.html)
+- Apr 07 - [Boaz Weinstein Warns of Spike in Bankruptcies](https://finance.yahoo.com/video/boaz-weinstein-warns-spike-bankruptcies-101843512.html)
 - Apr 07 - [Jamie Dimon warns of slower growth, higher inflation as tariffs reshape global economy: 'We're not in Kansas anymore'](https://finance.yahoo.com/news/jamie-dimon-warns-of-slower-growth-higher-inflation-as-tariffs-reshape-global-economy-were-not-in-kansas-anymore-101743849.html)
-- Apr 07 - [What are the healthiest cities in NY? See the list](https://www.yahoo.com/lifestyle/healthiest-cities-ny-see-list-093105463.html)
-- Apr 07 - [Tulare County Supervisors abolish park entrance fees](https://www.yahoo.com/news/tulare-county-supervisors-abolish-park-093044234.html)
-- Apr 07 - [Reporter killed after Israel strikes tents outside hospitals in Gaza](https://www.yahoo.com/news/reporter-killed-israel-strikes-tents-072658262.html)
+- Apr 07 - [Microsoft venture Wicresoft to halt China operations, lay off staff, report says](https://finance.yahoo.com/news/microsoft-venture-wicresoft-halt-china-085738025.html)
 <!-- feed end -->
 
 ### Onstream
