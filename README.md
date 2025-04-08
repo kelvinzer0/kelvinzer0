@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Federal magistrate weighs arguments in Idaho news groups' execution access lawsuit](https://www.yahoo.com/news/federal-magistrate-weighs-arguments-idaho-042740856.html)
 - Apr 08 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-013102033.html)
-- Apr 08 - [China says it will 'fight to the end' after Trump threatens to impose still more tariffs](https://www.yahoo.com/news/china-threatens-countermeasures-trump-threatens-011858033.html)
+- Apr 08 - [Trump trade guru Peter Navarro says Vietnam’s zero-tariff offer ‘means nothing’ because ‘it’s the non-tariff cheating that matters’](https://www.yahoo.com/news/trump-trade-guru-peter-navarro-011500965.html)
+- Apr 07 - [I was ‘killed’ in a lightning strike —here’s what happens after you die](https://www.yahoo.com/lifestyle/killed-lightning-strike-happens-die-231532701.html)
 - Apr 07 - [US Supreme Court lets Trump pursue deportations under 1798 law, with limits](https://www.yahoo.com/news/us-supreme-court-backs-trump-224913571.html)
-- Apr 07 - [Former Wisconsin Supreme Court justice who led 2020 election probe agrees to surrender law license](https://www.yahoo.com/news/former-wisconsin-supreme-court-justice-223454304.html)
-- Apr 07 - [Winter storm warning issued for Cascade mountains in Washington](https://www.yahoo.com/news/winter-storm-warning-issued-cascade-223238341.html)
 <!-- feed end -->
 
 ### Onstream
