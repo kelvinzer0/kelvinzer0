@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Inquiry against Indian man seen giving water to cheetahs in viral video](https://www.yahoo.com/news/inquiry-against-indian-man-seen-073658215.html)
-- Apr 08 - [You can still get $1,400 stimulus check from the IRS. Here's who's eligible, how to claim](https://finance.yahoo.com/news/still-1-400-stimulus-check-090231651.html)
+- Apr 08 - [Wall Street got a preview of what could stop the tariff turmoil: Morning Brief](https://finance.yahoo.com/news/wall-street-got-a-preview-of-what-could-stop-the-tariff-turmoil-morning-brief-100056957.html)
+- Apr 08 - [A scream at 30,000 feet: What happened when a bride's heart gave out on her flight home](https://www.yahoo.com/news/scream-30-000-feet-happened-090110478.html)
 - Apr 08 - [Donald Trump’s New Insulting Nickname Is Mocked As A Total Dud](https://www.yahoo.com/news/donald-trump-insulting-nickname-mocked-070012432.html)
+- Apr 08 - [Timelapse shows Kanlaon Volcano erupting in the Philippines](https://www.yahoo.com/news/timelapse-shows-kanlaon-volcano-erupting-034512257.html)
 - Apr 08 - [Hong Kong leader says city will sign more free trade pacts amid 'ruthless' US tariffs](https://finance.yahoo.com/news/hong-kong-leader-says-city-031236650.html)
-- Apr 08 - [Everyone’s Saying the Same Thing After Scientists 'Resurrect' the Dire Wolf](https://www.yahoo.com/news/everyone-saying-same-thing-scientists-022746419.html)
 <!-- feed end -->
 
 ### Onstream
