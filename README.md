@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Thousands of intimate images found in hacking investigation of former NFL and Michigan coach](https://www.yahoo.com/news/thousands-intimate-images-found-hacking-193453782.html)
-- Apr 08 - [Press Secretary Says Trump Wasn’t Joking About Deporting U.S. Citizens](https://www.yahoo.com/news/press-secretary-says-trump-wasn-191749494.html)
-- Apr 08 - [Woman gets 12 years in prison for shooting up Connecticut police department lobby](https://www.yahoo.com/news/woman-gets-12-years-prison-191229396.html)
-- Apr 08 - [A 6-Year-Old Girl and Her Dog Were Found Wandering Alone on a Florida Street. Then Police Learned the Sad Truth](https://www.yahoo.com/entertainment/6-old-girl-her-dog-184150419.html)
-- Apr 08 - [Alibaba Just Fired a Global AI Warning Shot -- Silicon Valley Should Be Worried](https://finance.yahoo.com/news/alibaba-just-fired-global-ai-172837527.html)
+- Apr 08 - [Watch: White House hit with several questions about tariffs at press briefing](https://www.yahoo.com/news/watch-white-house-hit-several-215042346.html)
+- Apr 08 - [Stocks haven't fallen this much since 2020. Their recovery could look different this time.](https://finance.yahoo.com/news/stocks-havent-fallen-this-much-since-2020-their-recovery-could-look-different-this-time-212645541.html)
+- Apr 08 - [Trump says US taking in $2 billion a day from tariffs](https://finance.yahoo.com/news/trump-says-us-taking-2-203937701.html)
+- Apr 08 - [Stock market today: Dow sinks 300 points, S&P 500 nears bear market as Trump's tariffs keep roiling Wall Street](https://finance.yahoo.com/news/live/stock-market-today-dow-sinks-300-points-sp-500-nears-bear-market-as-trumps-tariffs-keep-roiling-wall-street-200257670.html)
+- Apr 08 - [US regulator OCC says its executives' emails were hacked](https://tech.yahoo.com/articles/us-regulator-occ-notifies-congress-193927677.html)
 <!-- feed end -->
 
 ### Onstream
