@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Apple looks to India, Micron adds surcharge: Trending Tickers](https://finance.yahoo.com/video/apple-looks-india-micron-adds-160849590.html)
+- Apr 08 - [Joe Rogan and Dave Portnoy are among the Trump backers now questioning his tariff policies](https://finance.yahoo.com/news/joe-rogan-dave-portnoy-among-170044616.html)
+- Apr 08 - [Stock Market Today: Stocks Off Day's Highs As Nasdaq Leads; Cruise Line Stocks Sail Higher (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-nvidia-stock-nvda-tsla-pltr-hum/?src=A00220&yptr=yahoo)
+- Apr 08 - [US Supreme Court halts reinstatement of fired federal employees](https://www.yahoo.com/news/us-supreme-court-halts-reinstatement-160350822.html)
 - Apr 08 - [Most automakers to stay put in Mexico, president says](https://finance.yahoo.com/news/most-automakers-stay-put-mexico-153152026.html)
-- Apr 08 - [Both occupants walk away from airplane crash in Zeeland Township](https://www.yahoo.com/news/both-occupants-walk-away-airplane-145742143.html)
-- Apr 08 - [Stock Market Today: Dow Jones Rebounds 1,200 Points After 3-Day Rout; Health Insurers Bolt Higher (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-nvidia-stock-nvda-tsla-pltr-hum/?src=A00220&yptr=yahoo)
-- Apr 08 - [Attorney General Pam Bondi says mistakenly deported Maryland man 'should stay where he is"](https://www.yahoo.com/news/attorney-general-pam-bondi-says-135356204.html)
+- Apr 08 - [Prison governor guilty of jail fling with inmate](https://www.yahoo.com/news/prison-governor-guilty-jail-fling-133612352.html)
 <!-- feed end -->
 
 ### Onstream
