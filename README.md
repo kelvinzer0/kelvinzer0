@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Exclusive: US considers adjusting port fee plan for Chinese vessels after pushback, sources say](https://finance.yahoo.com/news/exclusive-us-considers-adjusting-port-174445609.html)
+- Apr 08 - [Stock Market Today: Stocks Crumble As Nasdaq Turns Negative; Apple, Tesla Give Back Gains (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-nvidia-stock-nvda-tsla-pltr-hum/?src=A00220&yptr=yahoo)
+- Apr 08 - [Video shows woman narrowly escaping as tree smashes her car](https://www.yahoo.com/news/video-shows-woman-narrowly-escaping-172547638.html)
+- Apr 08 - [Billy McFarland’s Fyre Fest 2 Permit Only Allows for a 12-Hour Listening Party with 250 People](https://www.yahoo.com/entertainment/billy-mcfarland-fyre-fest-2-171505477.html)
 - Apr 08 - [Joe Rogan and Dave Portnoy are among the Trump backers now questioning his tariff policies](https://finance.yahoo.com/news/joe-rogan-dave-portnoy-among-170044616.html)
-- Apr 08 - [Exclusive-TSMC could face $1 billion or more fine from US probe, sources say](https://finance.yahoo.com/news/exclusive-tsmc-could-face-1-155046365.html)
-- Apr 08 - [India Bars BYD Entry as Minister Signals Preference for Tesla, Citing Trade Concerns](https://finance.yahoo.com/news/india-bars-byd-entry-minister-151057141.html)
-- Apr 08 - [DOGE stimulus check update: Here's the latest news on the dividend and when it may arrive](https://www.yahoo.com/news/doge-stimulus-check-heres-latest-145755327.html)
+- Apr 08 - [Orchard Park man sentenced to 13 years for sexually abusing 2 children](https://www.yahoo.com/news/orchard-park-man-sentenced-13-160834178.html)
 <!-- feed end -->
 
 ### Onstream
