@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Explosive Mount Kanlaon Eruption Ignites Grassfire](https://www.yahoo.com/news/explosive-mount-kanlaon-eruption-ignites-075517691.html)
+- Apr 08 - [Inquiry against Indian man seen giving water to cheetahs in viral video](https://www.yahoo.com/news/inquiry-against-indian-man-seen-073658215.html)
+- Apr 08 - [Timelapse shows Kanlaon Volcano erupting in the Philippines](https://www.yahoo.com/news/timelapse-shows-kanlaon-volcano-erupting-034512257.html)
 - Apr 08 - [Hong Kong leader says city will sign more free trade pacts amid 'ruthless' US tariffs](https://finance.yahoo.com/news/hong-kong-leader-says-city-031236650.html)
 - Apr 08 - [San Francisco woman dies while skiing in Lake Tahoe](https://www.yahoo.com/news/san-francisco-woman-dies-while-024104443.html)
 - Apr 08 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-013102033.html)
-- Apr 07 - [I was ‘killed’ in a lightning strike —here’s what happens after you die](https://www.yahoo.com/lifestyle/killed-lightning-strike-happens-die-231532701.html)
 <!-- feed end -->
 
 ### Onstream
