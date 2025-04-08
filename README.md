@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [S&P 500 opens 3.4% higher as some relief washes through markets](https://www.yahoo.com/news/p-500-opens-3-4-134643332.html)
-- Apr 08 - [Tesla Sales Numbers 'Suck,' Says Ross Gerber. He Claims The Tesla Brand Is Broken Because Of The Board That Should Be Removed For Negligence](https://finance.yahoo.com/news/tesla-sales-numbers-suck-says-134542626.html)
-- Apr 08 - [Commuter shock after man seen smoking ‘crack pipe’ on London Underground](https://www.yahoo.com/news/commuter-shock-man-seen-smoking-133418876.html)
-- Apr 08 - [THE MINING POD: The Trumps Mine BTC Now: Inside American Bitcoin w/ Matt Prusak](https://finance.yahoo.com/video/mining-pod-trumps-mine-btc-131815670.html)
-- Apr 08 - [RFK Jr stayed silent on vaccine, says father of child who died from measles](https://www.yahoo.com/news/rfk-jr-stayed-silent-vaccine-110010779.html)
+- Apr 08 - [Market bounce on tariff negotiations marks 'end of the beginning'](https://finance.yahoo.com/video/market-bounce-tariff-negotiations-marks-143250081.html)
+- Apr 08 - [Turkey arrests 38 customs officers in graft probe at Europe's busiest land border](https://www.yahoo.com/news/turkey-arrests-38-customs-officers-143200493.html)
+- Apr 08 - [The BBC has just given the game away](https://www.yahoo.com/news/bbc-just-given-game-away-142403891.html)
+- Apr 08 - [Prague Zoo joins the effort to ensure the survival of a rare insect once considered extinct](https://www.yahoo.com/news/prague-zoo-joins-effort-ensure-135228153.html)
+- Apr 08 - [Winston-Salem doctor charged with sexual exploitation in Alexander County, records show; Wake Forest University responds](https://www.yahoo.com/news/winston-salem-doctor-charged-sexual-134518297.html)
 <!-- feed end -->
 
 ### Onstream
