@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 08 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-013102033.html)
-- Apr 08 - [Peter Lynch's Advice: 'If You Can't Explain to an 11-Year-Old in Two Minutes or Less Why You Own the Stock, You Shouldn't Own It'](https://finance.yahoo.com/news/peter-lynchs-advice-cant-explain-003040470.html)
-- Apr 07 - [Texas governor calls November election for vacant US House seat as Democrats criticize timing](https://www.yahoo.com/news/texas-governor-calls-november-election-232035881.html)
+- Apr 08 - [China says it will 'fight to the end' after Trump threatens to impose still more tariffs](https://www.yahoo.com/news/china-threatens-countermeasures-trump-threatens-011858033.html)
 - Apr 07 - [US Supreme Court lets Trump pursue deportations under 1798 law, with limits](https://www.yahoo.com/news/us-supreme-court-backs-trump-224913571.html)
 - Apr 07 - [Former Wisconsin Supreme Court justice who led 2020 election probe agrees to surrender law license](https://www.yahoo.com/news/former-wisconsin-supreme-court-justice-223454304.html)
+- Apr 07 - [Winter storm warning issued for Cascade mountains in Washington](https://www.yahoo.com/news/winter-storm-warning-issued-cascade-223238341.html)
 <!-- feed end -->
 
 ### Onstream
