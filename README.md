@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Exclusive: US considers adjusting port fee plan for Chinese vessels after pushback, sources say](https://finance.yahoo.com/news/exclusive-us-considers-adjusting-port-174445609.html)
 - Apr 08 - [Joe Rogan and Dave Portnoy are among the Trump backers now questioning his tariff policies](https://finance.yahoo.com/news/joe-rogan-dave-portnoy-among-170044616.html)
-- Apr 08 - [Stock Market Today: Stocks Off Day's Highs As Nasdaq Leads; Cruise Line Stocks Sail Higher (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-nvidia-stock-nvda-tsla-pltr-hum/?src=A00220&yptr=yahoo)
-- Apr 08 - [US Supreme Court halts reinstatement of fired federal employees](https://www.yahoo.com/news/us-supreme-court-halts-reinstatement-160350822.html)
-- Apr 08 - [Most automakers to stay put in Mexico, president says](https://finance.yahoo.com/news/most-automakers-stay-put-mexico-153152026.html)
-- Apr 08 - [Prison governor guilty of jail fling with inmate](https://www.yahoo.com/news/prison-governor-guilty-jail-fling-133612352.html)
+- Apr 08 - [Exclusive-TSMC could face $1 billion or more fine from US probe, sources say](https://finance.yahoo.com/news/exclusive-tsmc-could-face-1-155046365.html)
+- Apr 08 - [India Bars BYD Entry as Minister Signals Preference for Tesla, Citing Trade Concerns](https://finance.yahoo.com/news/india-bars-byd-entry-minister-151057141.html)
+- Apr 08 - [DOGE stimulus check update: Here's the latest news on the dividend and when it may arrive](https://www.yahoo.com/news/doge-stimulus-check-heres-latest-145755327.html)
 <!-- feed end -->
 
 ### Onstream
