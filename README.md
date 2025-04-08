@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Stock Market Today: Stocks Crumble As Nasdaq Turns Negative; Apple, Tesla Give Back Gains (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-nvidia-stock-nvda-tsla-pltr-hum/?src=A00220&yptr=yahoo)
-- Apr 08 - [Video shows woman narrowly escaping as tree smashes her car](https://www.yahoo.com/news/video-shows-woman-narrowly-escaping-172547638.html)
-- Apr 08 - [Billy McFarland’s Fyre Fest 2 Permit Only Allows for a 12-Hour Listening Party with 250 People](https://www.yahoo.com/entertainment/billy-mcfarland-fyre-fest-2-171505477.html)
+- Apr 08 - [Stock market today: Dow sinks 300 points, S&P 500 nears bear market as Trump's tariffs keep roiling Wall Street](https://finance.yahoo.com/news/live/stock-market-today-dow-sinks-300-points-sp-500-nears-bear-market-as-trumps-tariffs-keep-roiling-wall-street-200257670.html)
+- Apr 08 - [Thousands of intimate images found in hacking investigation of former NFL and Michigan coach](https://www.yahoo.com/news/thousands-intimate-images-found-hacking-193453782.html)
+- Apr 08 - [A 6-Year-Old Girl and Her Dog Were Found Wandering Alone on a Florida Street. Then Police Learned the Sad Truth](https://www.yahoo.com/entertainment/6-old-girl-her-dog-184150419.html)
 - Apr 08 - [Joe Rogan and Dave Portnoy are among the Trump backers now questioning his tariff policies](https://finance.yahoo.com/news/joe-rogan-dave-portnoy-among-170044616.html)
-- Apr 08 - [Orchard Park man sentenced to 13 years for sexually abusing 2 children](https://www.yahoo.com/news/orchard-park-man-sentenced-13-160834178.html)
+- Apr 08 - [DOGE stimulus check update: Here's the latest news on the dividend and when it may arrive](https://www.yahoo.com/news/doge-stimulus-check-heres-latest-145755327.html)
 <!-- feed end -->
 
 ### Onstream
