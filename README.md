@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Market bounce on tariff negotiations marks 'end of the beginning'](https://finance.yahoo.com/video/market-bounce-tariff-negotiations-marks-143250081.html)
-- Apr 08 - [Turkey arrests 38 customs officers in graft probe at Europe's busiest land border](https://www.yahoo.com/news/turkey-arrests-38-customs-officers-143200493.html)
-- Apr 08 - [The BBC has just given the game away](https://www.yahoo.com/news/bbc-just-given-game-away-142403891.html)
-- Apr 08 - [Prague Zoo joins the effort to ensure the survival of a rare insect once considered extinct](https://www.yahoo.com/news/prague-zoo-joins-effort-ensure-135228153.html)
-- Apr 08 - [Winston-Salem doctor charged with sexual exploitation in Alexander County, records show; Wake Forest University responds](https://www.yahoo.com/news/winston-salem-doctor-charged-sexual-134518297.html)
+- Apr 08 - [Apple looks to India, Micron adds surcharge: Trending Tickers](https://finance.yahoo.com/video/apple-looks-india-micron-adds-160849590.html)
+- Apr 08 - [Most automakers to stay put in Mexico, president says](https://finance.yahoo.com/news/most-automakers-stay-put-mexico-153152026.html)
+- Apr 08 - [Both occupants walk away from airplane crash in Zeeland Township](https://www.yahoo.com/news/both-occupants-walk-away-airplane-145742143.html)
+- Apr 08 - [Stock Market Today: Dow Jones Rebounds 1,200 Points After 3-Day Rout; Health Insurers Bolt Higher (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-nvidia-stock-nvda-tsla-pltr-hum/?src=A00220&yptr=yahoo)
+- Apr 08 - [Attorney General Pam Bondi says mistakenly deported Maryland man 'should stay where he is"](https://www.yahoo.com/news/attorney-general-pam-bondi-says-135356204.html)
 <!-- feed end -->
 
 ### Onstream
