@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Chinese nationals captured fighting for Russia in Ukraine, Zelenskiy says](https://www.yahoo.com/news/chinese-nationals-captured-fighting-russia-130918402.html)
-- Apr 08 - [Stocks set to surge, Levi's & Walgreens earnings: 3 Things](https://finance.yahoo.com/video/stocks-set-surge-levis-walgreens-130730509.html)
-- Apr 08 - [The dangers of chronic inflammation – and the worst things for it](https://www.yahoo.com/lifestyle/dangers-chronic-inflammation-worst-things-121210273.html)
-- Apr 08 - [Musk's DOGE using AI to snoop on U.S. federal workers, sources say](https://www.yahoo.com/news/exclusive-musks-doge-using-ai-101848878.html)
-- Apr 08 - [Wall Street got a preview of what could stop the tariff turmoil: Morning Brief](https://finance.yahoo.com/news/wall-street-got-a-preview-of-what-could-stop-the-tariff-turmoil-morning-brief-100056957.html)
+- Apr 08 - [S&P 500 opens 3.4% higher as some relief washes through markets](https://www.yahoo.com/news/p-500-opens-3-4-134643332.html)
+- Apr 08 - [Tesla Sales Numbers 'Suck,' Says Ross Gerber. He Claims The Tesla Brand Is Broken Because Of The Board That Should Be Removed For Negligence](https://finance.yahoo.com/news/tesla-sales-numbers-suck-says-134542626.html)
+- Apr 08 - [Commuter shock after man seen smoking ‘crack pipe’ on London Underground](https://www.yahoo.com/news/commuter-shock-man-seen-smoking-133418876.html)
+- Apr 08 - [THE MINING POD: The Trumps Mine BTC Now: Inside American Bitcoin w/ Matt Prusak](https://finance.yahoo.com/video/mining-pod-trumps-mine-btc-131815670.html)
+- Apr 08 - [RFK Jr stayed silent on vaccine, says father of child who died from measles](https://www.yahoo.com/news/rfk-jr-stayed-silent-vaccine-110010779.html)
 <!-- feed end -->
 
 ### Onstream
