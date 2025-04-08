@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Most of Bourbon Street should be closed to cars following New Orleans truck attack, report recommends](https://www.yahoo.com/news/most-bourbon-street-closed-cars-220654120.html)
 - Apr 08 - [Watch: White House hit with several questions about tariffs at press briefing](https://www.yahoo.com/news/watch-white-house-hit-several-215042346.html)
 - Apr 08 - [Stocks haven't fallen this much since 2020. Their recovery could look different this time.](https://finance.yahoo.com/news/stocks-havent-fallen-this-much-since-2020-their-recovery-could-look-different-this-time-212645541.html)
 - Apr 08 - [Trump says US taking in $2 billion a day from tariffs](https://finance.yahoo.com/news/trump-says-us-taking-2-203937701.html)
-- Apr 08 - [Stock market today: Dow sinks 300 points, S&P 500 nears bear market as Trump's tariffs keep roiling Wall Street](https://finance.yahoo.com/news/live/stock-market-today-dow-sinks-300-points-sp-500-nears-bear-market-as-trumps-tariffs-keep-roiling-wall-street-200257670.html)
-- Apr 08 - [US regulator OCC says its executives' emails were hacked](https://tech.yahoo.com/articles/us-regulator-occ-notifies-congress-193927677.html)
+- Apr 08 - [Press Secretary Says Trump Wasn’t Joking About Deporting U.S. Citizens](https://www.yahoo.com/news/press-secretary-says-trump-wasn-191749494.html)
 <!-- feed end -->
 
 ### Onstream
