@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Legislative roundtable to review potential closure of Penn State Hazleton](https://www.yahoo.com/news/legislative-roundtable-review-potential-closure-012100910.html)
-- Apr 07 - [Scientists genetically engineer wolves with white hair and muscular jaws like the extinct dire wolf](https://www.yahoo.com/news/scientists-genetically-engineer-wolves-white-235017258.html)
+- Apr 08 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-013102033.html)
+- Apr 08 - [Peter Lynch's Advice: 'If You Can't Explain to an 11-Year-Old in Two Minutes or Less Why You Own the Stock, You Shouldn't Own It'](https://finance.yahoo.com/news/peter-lynchs-advice-cant-explain-003040470.html)
+- Apr 07 - [Texas governor calls November election for vacant US House seat as Democrats criticize timing](https://www.yahoo.com/news/texas-governor-calls-november-election-232035881.html)
 - Apr 07 - [US Supreme Court lets Trump pursue deportations under 1798 law, with limits](https://www.yahoo.com/news/us-supreme-court-backs-trump-224913571.html)
-- Apr 07 - [Tesla Sitting On Thousands Of Unsold Cybertrucks As It Stops Accepting Its Own Cars As Trade-Ins](https://autos.yahoo.com/tesla-sitting-thousands-unsold-cybertrucks-212500038.html)
-- Apr 07 - [The White House has reportedly settled on an explanation for how 'Signalgate' happened](https://tech.yahoo.com/article/the-white-house-has-reportedly-settled-on-an-explanation-for-how-signalgate-happened-212107380.html)
+- Apr 07 - [Former Wisconsin Supreme Court justice who led 2020 election probe agrees to surrender law license](https://www.yahoo.com/news/former-wisconsin-supreme-court-justice-223454304.html)
 <!-- feed end -->
 
 ### Onstream
