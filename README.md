@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [Funerals of children killed by Russian attack in Krivyi Rih](https://www.yahoo.com/news/funerals-children-killed-russian-attack-230139294.html)
-- Apr 07 - [US Supreme Court backs Trump on deportations under 1798 law](https://www.yahoo.com/news/us-supreme-court-backs-trump-224913571.html)
+- Apr 08 - [Legislative roundtable to review potential closure of Penn State Hazleton](https://www.yahoo.com/news/legislative-roundtable-review-potential-closure-012100910.html)
+- Apr 07 - [Scientists genetically engineer wolves with white hair and muscular jaws like the extinct dire wolf](https://www.yahoo.com/news/scientists-genetically-engineer-wolves-white-235017258.html)
+- Apr 07 - [US Supreme Court lets Trump pursue deportations under 1798 law, with limits](https://www.yahoo.com/news/us-supreme-court-backs-trump-224913571.html)
+- Apr 07 - [Tesla Sitting On Thousands Of Unsold Cybertrucks As It Stops Accepting Its Own Cars As Trade-Ins](https://autos.yahoo.com/tesla-sitting-thousands-unsold-cybertrucks-212500038.html)
 - Apr 07 - [The White House has reportedly settled on an explanation for how 'Signalgate' happened](https://tech.yahoo.com/article/the-white-house-has-reportedly-settled-on-an-explanation-for-how-signalgate-happened-212107380.html)
-- Apr 07 - [Court directive to notify voters in close North Carolina election blocked for now](https://www.yahoo.com/news/court-directive-locate-voters-close-210053784.html)
-- Apr 07 - [A Michigan woman missing for 3 days after a casino trip is found alive in the woods](https://www.yahoo.com/news/michigan-woman-missing-3-days-202754738.html)
 <!-- feed end -->
 
 ### Onstream
