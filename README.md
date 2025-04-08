@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Wall Street got a preview of what could stop the tariff turmoil: Morning Brief](https://finance.yahoo.com/news/wall-street-got-a-preview-of-what-could-stop-the-tariff-turmoil-morning-brief-100056957.html)
+- Apr 08 - [Porsche Q1 deliveries fall 8% on weaker demand in China and Europe](https://finance.yahoo.com/video/porsche-q1-deliveries-fall-8-095546697.html)
 - Apr 08 - [Inquiry against Indian man seen giving water to cheetahs in viral video](https://www.yahoo.com/news/inquiry-against-indian-man-seen-073658215.html)
-- Apr 08 - [Timelapse shows Kanlaon Volcano erupting in the Philippines](https://www.yahoo.com/news/timelapse-shows-kanlaon-volcano-erupting-034512257.html)
-- Apr 08 - [Hong Kong leader says city will sign more free trade pacts amid 'ruthless' US tariffs](https://finance.yahoo.com/news/hong-kong-leader-says-city-031236650.html)
-- Apr 08 - [San Francisco woman dies while skiing in Lake Tahoe](https://www.yahoo.com/news/san-francisco-woman-dies-while-024104443.html)
-- Apr 08 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-013102033.html)
+- Apr 08 - [Palm Coast man, known as 'King Bob,' pleads guilty in cryptocurrency and phishing scam](https://www.yahoo.com/news/palm-coast-man-known-king-090644100.html)
+- Apr 08 - [You can still get $1,400 stimulus check from the IRS. Here's who's eligible, how to claim](https://finance.yahoo.com/news/still-1-400-stimulus-check-090231651.html)
 <!-- feed end -->
 
 ### Onstream
