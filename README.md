@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Chinese nationals captured fighting for Russia in Ukraine, Zelenskiy says](https://www.yahoo.com/news/chinese-nationals-captured-fighting-russia-130918402.html)
+- Apr 08 - [Stocks set to surge, Levi's & Walgreens earnings: 3 Things](https://finance.yahoo.com/video/stocks-set-surge-levis-walgreens-130730509.html)
+- Apr 08 - [The dangers of chronic inflammation – and the worst things for it](https://www.yahoo.com/lifestyle/dangers-chronic-inflammation-worst-things-121210273.html)
+- Apr 08 - [Musk's DOGE using AI to snoop on U.S. federal workers, sources say](https://www.yahoo.com/news/exclusive-musks-doge-using-ai-101848878.html)
 - Apr 08 - [Wall Street got a preview of what could stop the tariff turmoil: Morning Brief](https://finance.yahoo.com/news/wall-street-got-a-preview-of-what-could-stop-the-tariff-turmoil-morning-brief-100056957.html)
-- Apr 08 - [A scream at 30,000 feet: What happened when a bride's heart gave out on her flight home](https://www.yahoo.com/news/scream-30-000-feet-happened-090110478.html)
-- Apr 08 - [Donald Trump’s New Insulting Nickname Is Mocked As A Total Dud](https://www.yahoo.com/news/donald-trump-insulting-nickname-mocked-070012432.html)
-- Apr 08 - [Timelapse shows Kanlaon Volcano erupting in the Philippines](https://www.yahoo.com/news/timelapse-shows-kanlaon-volcano-erupting-034512257.html)
-- Apr 08 - [Hong Kong leader says city will sign more free trade pacts amid 'ruthless' US tariffs](https://finance.yahoo.com/news/hong-kong-leader-says-city-031236650.html)
 <!-- feed end -->
 
 ### Onstream
