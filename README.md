@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Stock market today: Dow sinks 300 points, S&P 500 nears bear market as Trump's tariffs keep roiling Wall Street](https://finance.yahoo.com/news/live/stock-market-today-dow-sinks-300-points-sp-500-nears-bear-market-as-trumps-tariffs-keep-roiling-wall-street-200257670.html)
 - Apr 08 - [Thousands of intimate images found in hacking investigation of former NFL and Michigan coach](https://www.yahoo.com/news/thousands-intimate-images-found-hacking-193453782.html)
+- Apr 08 - [Press Secretary Says Trump Wasn’t Joking About Deporting U.S. Citizens](https://www.yahoo.com/news/press-secretary-says-trump-wasn-191749494.html)
+- Apr 08 - [Woman gets 12 years in prison for shooting up Connecticut police department lobby](https://www.yahoo.com/news/woman-gets-12-years-prison-191229396.html)
 - Apr 08 - [A 6-Year-Old Girl and Her Dog Were Found Wandering Alone on a Florida Street. Then Police Learned the Sad Truth](https://www.yahoo.com/entertainment/6-old-girl-her-dog-184150419.html)
-- Apr 08 - [Joe Rogan and Dave Portnoy are among the Trump backers now questioning his tariff policies](https://finance.yahoo.com/news/joe-rogan-dave-portnoy-among-170044616.html)
-- Apr 08 - [DOGE stimulus check update: Here's the latest news on the dividend and when it may arrive](https://www.yahoo.com/news/doge-stimulus-check-heres-latest-145755327.html)
+- Apr 08 - [Alibaba Just Fired a Global AI Warning Shot -- Silicon Valley Should Be Worried](https://finance.yahoo.com/news/alibaba-just-fired-global-ai-172837527.html)
 <!-- feed end -->
 
 ### Onstream
