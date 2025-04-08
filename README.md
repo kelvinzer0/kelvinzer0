@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Federal magistrate weighs arguments in Idaho news groups' execution access lawsuit](https://www.yahoo.com/news/federal-magistrate-weighs-arguments-idaho-042740856.html)
+- Apr 08 - [Russia's Black Sea Fleet is figuring out how to defend against Ukraine's deadly sea drones: 'Now it's not so simple'](https://www.yahoo.com/news/russias-black-sea-fleet-figuring-051910623.html)
+- Apr 08 - [Hong Kong leader says city will sign more free trade pacts amid 'ruthless' US tariffs](https://finance.yahoo.com/news/hong-kong-leader-says-city-031236650.html)
+- Apr 08 - [San Francisco woman dies while skiing in Lake Tahoe](https://www.yahoo.com/news/san-francisco-woman-dies-while-024104443.html)
 - Apr 08 - [A Doctor Claimed He Knew Why I Got Cancer. When He Told Me, I Was Horrified And Embarrassed.](https://www.yahoo.com/lifestyle/doctor-claimed-knew-why-got-013102033.html)
 - Apr 08 - [Trump trade guru Peter Navarro says Vietnam’s zero-tariff offer ‘means nothing’ because ‘it’s the non-tariff cheating that matters’](https://www.yahoo.com/news/trump-trade-guru-peter-navarro-011500965.html)
-- Apr 07 - [I was ‘killed’ in a lightning strike —here’s what happens after you die](https://www.yahoo.com/lifestyle/killed-lightning-strike-happens-die-231532701.html)
-- Apr 07 - [US Supreme Court lets Trump pursue deportations under 1798 law, with limits](https://www.yahoo.com/news/us-supreme-court-backs-trump-224913571.html)
 <!-- feed end -->
 
 ### Onstream
