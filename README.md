@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [School stops disciplinary action against teacher who denies she is GAA catfish](https://www.yahoo.com/news/teacher-identified-podcast-gaa-catfish-123035882.html)
-- Apr 09 - [Govt seek solution as Scunthorpe steelworks faces closure](https://www.yahoo.com/news/govt-seek-solution-scunthorpe-steelworks-121454495.html)
-- Apr 09 - [Fact Check: Luigi Mangione may receive death penalty, while white supremacist who killed 23 at Texas Walmart won't](https://www.yahoo.com/news/fact-check-luigi-mangione-may-100000110.html)
+- Apr 09 - [Americans die earlier at all wealth levels, even if wealth buys more years of life in the US than in Europe](https://www.yahoo.com/news/americans-die-earlier-wealth-levels-125857776.html)
+- Apr 09 - [61 Workplaces And Bosses So Terrible They Should Be Banned From Hiring Anyone Ever Again](https://www.yahoo.com/lifestyle/61-workplaces-bosses-terrible-banned-111602059.html)
+- Apr 09 - [Chevron to 'triple-frac' half of Permian oil wells in 2025 to cut costs, time](https://finance.yahoo.com/news/chevron-triple-frac-half-permian-100928474.html)
+- Apr 09 - [Mortgage and refinance interest rates today, April 9, 2025: Rates increase by 17 basis points](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-april-9-2025-100053044.html)
 - Apr 09 - [Side-By-Side Photos Of Donald Trump And Joe Biden Oval Office Goes Wildly Viral](https://www.yahoo.com/news/side-side-post-donald-trump-084014015.html)
-- Apr 09 - [Exclusive-China's central bank asks state lenders to reduce dollar purchases, sources say](https://finance.yahoo.com/news/exclusive-chinas-central-bank-asks-075205098.html)
 <!-- feed end -->
 
 ### Onstream
