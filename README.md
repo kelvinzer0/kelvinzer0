@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [ICE Barbie Kristi Noem Mocked for Pointing Gun at Officer’s Head](https://www.yahoo.com/news/ice-barbie-kristi-noem-mocked-004230140.html)
-- Apr 09 - [Dave Portnoy Says What Many Are Thinking, 'If Bitcoin's Supposed To Be Independent of Dollar, Why Does It Trade Just Like The Stock Market?'](https://finance.yahoo.com/news/dave-portnoy-says-many-thinking-000019225.html)
+- Apr 09 - [Part of busy road closed after truck hits utility pole, wires down in Clark County](https://www.yahoo.com/news/part-busy-road-closed-truck-082117326.html)
 - Apr 08 - [Brawl involving 20-30 people breaks out at California In-N-Out](https://www.yahoo.com/news/massive-brawl-breaks-southern-california-221416152.html)
 - Apr 08 - [A Couple Ordered Pringles, a Coke and a Water on Their Flight. Then They Were Escorted Off the Plane by Police](https://www.yahoo.com/entertainment/couple-ordered-pringles-coke-water-214539685.html)
-- Apr 08 - [Stocks haven't fallen this much since 2020. Their recovery could look different this time.](https://finance.yahoo.com/news/stocks-havent-fallen-this-much-since-2020-their-recovery-could-look-different-this-time-212645541.html)
+- Apr 08 - [Trump says US taking in $2 billion a day from tariffs](https://finance.yahoo.com/news/trump-says-us-taking-2-203937701.html)
+- Apr 08 - [Thousands of intimate images found in hacking investigation of former NFL and Michigan coach](https://www.yahoo.com/news/thousands-intimate-images-found-hacking-193453782.html)
 <!-- feed end -->
 
 ### Onstream
