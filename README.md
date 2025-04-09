@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 09 - [Stock market today: Dow explodes 3,000 points higher, S&P 500 has best day since 2008 as Trump pauses most reciprocal tariffs](https://finance.yahoo.com/news/live/stock-market-today-dow-explodes-3000-points-higher-sp-500-has-best-day-since-2008-as-trump-pauses-most-reciprocal-tariffs-133616395.html)
 - Apr 09 - [JFK flight turns around over angry passenger’s meal demand](https://www.yahoo.com/news/jfk-flight-turns-around-over-194800802.html)
-- Apr 09 - [19 Baldwin County restaurants claiming imported shrimp is locally sourced: report](https://www.yahoo.com/news/19-baldwin-county-restaurants-claiming-183420893.html)
-- Apr 09 - [Chinese restaurant shut down after pigeons served as ‘roast duck’](https://www.yahoo.com/news/chinese-restaurant-shut-down-pigeons-174215162.html)
-- Apr 09 - [Kash Patel was removed as acting ATF director, U.S. officials confirm](https://www.yahoo.com/news/kash-patel-removed-acting-atf-170935951.html)
-- Apr 09 - [Michigan Democratic Gov. Whitmer partly backs tariffs before again meeting with Trump](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-strays-150247011.html)
+- Apr 09 - [Truck found with multiple violations near Iowa & Wisconsin border, was trying to make it to Tennessee](https://www.yahoo.com/news/truck-found-multiple-violations-near-185826479.html)
+- Apr 09 - [Butter Recalled Due to Potential Fecal Contamination—Here's What to Know](https://www.yahoo.com/lifestyle/butter-recalled-due-potential-fecal-181614963.html)
+- Apr 09 - [Utah Woman Who Went Missing After Her Phone Became Inactive Has Been Found Alive a Week Later](https://www.yahoo.com/entertainment/utah-woman-went-missing-her-154942173.html)
 <!-- feed end -->
 
 ### Onstream
