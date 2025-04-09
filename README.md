@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Most of the families applying for Alabama's new school vouchers have kids in non-public schools](https://www.yahoo.com/news/most-families-applying-alabamas-school-003450964.html)
-- Apr 09 - [Standard Chartered Predicts XRP To Hit $12.50 by 2028 Following ETF Prospects and Legal Clarity](https://finance.yahoo.com/news/standard-chartered-predicts-xrp-hit-002549992.html)
-- Apr 08 - [Losing: MAGA bros lose millions as Trump's tariffs tank markets](https://www.yahoo.com/news/losing-maga-bros-lose-millions-234425250.html)
 - Apr 08 - [Brawl involving 20-30 people breaks out at California In-N-Out](https://www.yahoo.com/news/massive-brawl-breaks-southern-california-221416152.html)
 - Apr 08 - [A Couple Ordered Pringles, a Coke and a Water on Their Flight. Then They Were Escorted Off the Plane by Police](https://www.yahoo.com/entertainment/couple-ordered-pringles-coke-water-214539685.html)
+- Apr 08 - [Stocks haven't fallen this much since 2020. Their recovery could look different this time.](https://finance.yahoo.com/news/stocks-havent-fallen-this-much-since-2020-their-recovery-could-look-different-this-time-212645541.html)
+- Apr 08 - [Trump says US taking in $2 billion a day from tariffs](https://finance.yahoo.com/news/trump-says-us-taking-2-203937701.html)
+- Apr 08 - [Thousands of intimate images found in hacking investigation of former NFL and Michigan coach](https://www.yahoo.com/news/thousands-intimate-images-found-hacking-193453782.html)
 <!-- feed end -->
 
 ### Onstream
