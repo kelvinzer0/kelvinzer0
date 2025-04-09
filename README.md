@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Before and After Satellite Imagery Shows 'Swollen' Rivers in Queensland](https://www.yahoo.com/news/satellite-imagery-shows-swollen-rivers-185705355.html)
+- Apr 09 - [Stock market today: Dow explodes 3,000 points higher, S&P 500 has best day since 2008 as Trump pauses most reciprocal tariffs](https://finance.yahoo.com/news/live/stock-market-today-dow-explodes-3000-points-higher-sp-500-has-best-day-since-2008-as-trump-pauses-most-reciprocal-tariffs-133616395.html)
+- Apr 09 - [Hibachi Grill owner charged for hiring undocumented immigrants, closes restaurant](https://www.yahoo.com/news/hibachi-grill-owner-charged-hiring-191821165.html)
 - Apr 09 - [Exclusive-Kash Patel removed as acting ATF director, replaced by Army Secretary, sources say](https://www.yahoo.com/news/kash-patel-removed-acting-atf-170935951.html)
-- Apr 09 - [Utah Woman Who Went Missing After Her Phone Became Inactive Has Been Found Alive a Week Later](https://www.yahoo.com/entertainment/utah-woman-went-missing-her-154942173.html)
+- Apr 09 - [NASCAR Hacked By Infamous Cybercrime Group](https://autos.yahoo.com/nascar-hacked-infamous-cybercrime-group-163000186.html)
 - Apr 09 - [Michigan Democratic Gov. Whitmer strays from her party in moving closer to Trump](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-strays-150247011.html)
-- Apr 09 - [Cave discovery could rewrite 1,000 years of Mediterranean history](https://www.yahoo.com/news/cave-discovery-could-rewrite-1-150000557.html)
 <!-- feed end -->
 
 ### Onstream
