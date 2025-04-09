@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Former base commander set for court-martial next week at WPFAB](https://www.yahoo.com/news/former-commander-set-court-martial-163043053.html)
+- Apr 09 - [JFK flight turns around over angry passenger’s meal demand](https://www.yahoo.com/news/jfk-flight-turns-around-over-194800802.html)
+- Apr 09 - [19 Baldwin County restaurants claiming imported shrimp is locally sourced: report](https://www.yahoo.com/news/19-baldwin-county-restaurants-claiming-183420893.html)
 - Apr 09 - [Chinese restaurant shut down after pigeons served as ‘roast duck’](https://www.yahoo.com/news/chinese-restaurant-shut-down-pigeons-174215162.html)
 - Apr 09 - [Kash Patel was removed as acting ATF director, U.S. officials confirm](https://www.yahoo.com/news/kash-patel-removed-acting-atf-170935951.html)
 - Apr 09 - [Michigan Democratic Gov. Whitmer partly backs tariffs before again meeting with Trump](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-strays-150247011.html)
-- Apr 09 - [Cave discovery could rewrite 1,000 years of Mediterranean history](https://www.yahoo.com/news/cave-discovery-could-rewrite-1-150000557.html)
 <!-- feed end -->
 
 ### Onstream
