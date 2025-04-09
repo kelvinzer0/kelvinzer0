@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Part of busy road closed after truck hits utility pole, wires down in Clark County](https://www.yahoo.com/news/part-busy-road-closed-truck-082117326.html)
+- Apr 09 - [Fed minutes may show scope of tariff debate ahead of Trump's 'Liberation Day'](https://finance.yahoo.com/news/fed-minutes-may-show-scope-100546597.html)
+- Apr 09 - [Exclusive-China's central bank asks state lenders to reduce dollar purchases, sources say](https://finance.yahoo.com/news/exclusive-chinas-central-bank-asks-075205098.html)
+- Apr 09 - [ICE Barbie Kristi Noem Mocked for Pointing Gun at Officer’s Head](https://www.yahoo.com/news/ice-barbie-kristi-noem-mocked-004230140.html)
+- Apr 09 - [Most of the families applying for Alabama's new school vouchers have kids in non-public schools](https://www.yahoo.com/news/most-families-applying-alabamas-school-003450964.html)
 - Apr 08 - [Brawl involving 20-30 people breaks out at California In-N-Out](https://www.yahoo.com/news/massive-brawl-breaks-southern-california-221416152.html)
-- Apr 08 - [A Couple Ordered Pringles, a Coke and a Water on Their Flight. Then They Were Escorted Off the Plane by Police](https://www.yahoo.com/entertainment/couple-ordered-pringles-coke-water-214539685.html)
-- Apr 08 - [Trump says US taking in $2 billion a day from tariffs](https://finance.yahoo.com/news/trump-says-us-taking-2-203937701.html)
-- Apr 08 - [Thousands of intimate images found in hacking investigation of former NFL and Michigan coach](https://www.yahoo.com/news/thousands-intimate-images-found-hacking-193453782.html)
 <!-- feed end -->
 
 ### Onstream
