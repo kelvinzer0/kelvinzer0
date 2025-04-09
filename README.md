@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Kia Is Building an EV Pickup Truck, and It's Headed to the U.S.A.](https://autos.yahoo.com/kia-building-ev-pickup-truck-162300806.html)
-- Apr 09 - [Utah Woman Who Went Missing After Her Phone Became Inactive Has Been Found Alive a Week Later](https://www.yahoo.com/entertainment/utah-woman-went-missing-her-154942173.html)
-- Apr 09 - [Michigan Democratic Gov. Whitmer strays from her party in moving closer to Trump](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-strays-150247011.html)
+- Apr 09 - [Exclusive-Kash Patel removed as acting ATF director, replaced by Army Secretary, sources say](https://www.yahoo.com/news/kash-patel-removed-acting-atf-170935951.html)
 - Apr 09 - [Florida high school teacher loses job after using student's preferred name](https://www.yahoo.com/news/florida-high-school-teacher-loses-150102267.html)
-- Apr 09 - [Mark Cuban Tells Americans to Stock Up on Consumables As Trump’s Tariffs Hit — Here’s What to Buy](https://finance.yahoo.com/news/mark-cuban-tells-americans-stock-110120266.html)
+- Apr 09 - [Cave discovery could rewrite 1,000 years of Mediterranean history](https://www.yahoo.com/news/cave-discovery-could-rewrite-1-150000557.html)
+- Apr 09 - [India withdraws transhipment facility for Bangladesh exports via land borders](https://finance.yahoo.com/news/india-withdraws-transhipment-facility-bangladesh-134049141.html)
+- Apr 09 - [Stock market today: Dow, S&P 500, Nasdaq soar as Trump announces '90 day pause' on tariffs for most countries, ups levies on China](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-soar-as-trump-announces-90-day-pause-on-tariffs-for-most-countries-ups-levies-on-china-133616912.html)
 <!-- feed end -->
 
 ### Onstream
