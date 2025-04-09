@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Most of Bourbon Street should be closed to cars following New Orleans truck attack, report recommends](https://www.yahoo.com/news/most-bourbon-street-closed-cars-220654120.html)
-- Apr 08 - [Watch: White House hit with several questions about tariffs at press briefing](https://www.yahoo.com/news/watch-white-house-hit-several-215042346.html)
+- Apr 09 - [Most of the families applying for Alabama's new school vouchers have kids in non-public schools](https://www.yahoo.com/news/most-families-applying-alabamas-school-003450964.html)
+- Apr 08 - [Brawl involving 20-30 people breaks out at California In-N-Out](https://www.yahoo.com/news/massive-brawl-breaks-southern-california-221416152.html)
+- Apr 08 - [A Couple Ordered Pringles, a Coke and a Water on Their Flight. Then They Were Escorted Off the Plane by Police](https://www.yahoo.com/entertainment/couple-ordered-pringles-coke-water-213200084.html)
 - Apr 08 - [Stocks haven't fallen this much since 2020. Their recovery could look different this time.](https://finance.yahoo.com/news/stocks-havent-fallen-this-much-since-2020-their-recovery-could-look-different-this-time-212645541.html)
-- Apr 08 - [Trump says US taking in $2 billion a day from tariffs](https://finance.yahoo.com/news/trump-says-us-taking-2-203937701.html)
-- Apr 08 - [Press Secretary Says Trump Wasn’t Joking About Deporting U.S. Citizens](https://www.yahoo.com/news/press-secretary-says-trump-wasn-191749494.html)
+- Apr 08 - [These Are the Top Compact Luxury SUVs Ranked from Best to Worst](https://autos.yahoo.com/top-compact-luxury-suvs-ranked-195400879.html)
 <!-- feed end -->
 
 ### Onstream
