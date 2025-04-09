@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Over 100 dead, including former MLB pitcher Octavio Dotel, after roof collapses at Dominican Republic nightclub](https://www.yahoo.com/news/over-100-dead-including-former-150900702.html)
-- Apr 09 - [15 Texas A&M international students might have quietly lost ability to stay in the U.S.](https://www.yahoo.com/news/15-texas-m-international-students-150951855.html)
+- Apr 09 - [Kia Is Building an EV Pickup Truck, and It's Headed to the U.S.A.](https://autos.yahoo.com/kia-building-ev-pickup-truck-162300806.html)
+- Apr 09 - [Utah Woman Who Went Missing After Her Phone Became Inactive Has Been Found Alive a Week Later](https://www.yahoo.com/entertainment/utah-woman-went-missing-her-154942173.html)
 - Apr 09 - [Michigan Democratic Gov. Whitmer strays from her party in moving closer to Trump](https://www.yahoo.com/news/michigan-democratic-gov-whitmer-strays-150247011.html)
-- Apr 09 - [Ukraine's military chief says new Russian offensive has begun](https://www.yahoo.com/news/ukraines-military-chief-says-russian-130852764.html)
-- Apr 09 - [Trump’s trade war has taken a $700 billion bite out of Apple as people wake up to the reality of how expensive an iPhone will be under the new tariffs](https://finance.yahoo.com/news/trump-trade-war-taken-700-110500448.html)
+- Apr 09 - [Florida high school teacher loses job after using student's preferred name](https://www.yahoo.com/news/florida-high-school-teacher-loses-150102267.html)
+- Apr 09 - [Mark Cuban Tells Americans to Stock Up on Consumables As Trump’s Tariffs Hit — Here’s What to Buy](https://finance.yahoo.com/news/mark-cuban-tells-americans-stock-110120266.html)
 <!-- feed end -->
 
 ### Onstream
