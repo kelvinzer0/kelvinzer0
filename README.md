@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Beijing rejects Ukraine's claim significant numbers of Chinese troops are fighting alongside Russia](https://www.yahoo.com/news/beijing-rejects-ukraines-claim-significant-091855975.html)
-- Apr 09 - [Exclusive-China's central bank asks state lenders to reduce dollar purchases, sources say](https://finance.yahoo.com/news/exclusive-chinas-central-bank-asks-075205098.html)
+- Apr 09 - [How common is scurvy? Robbie Williams diagnosed with '17th-century disease'](https://www.yahoo.com/lifestyle/scurvy-robbie-williams-vitamin-c-deficiency-120937605.html)
+- Apr 09 - [Verizon says Google AI for customer service agents has led to sales jump](https://finance.yahoo.com/news/verizon-says-google-ai-customer-120648667.html)
+- Apr 09 - [61 Workplaces And Bosses So Terrible They Should Be Banned From Hiring Anyone Ever Again](https://www.yahoo.com/lifestyle/61-workplaces-bosses-terrible-banned-111602059.html)
 - Apr 09 - [Asian buyers shun US farm goods, hit by ship crunch and trade war](https://finance.yahoo.com/news/asian-buyers-shun-us-farm-070855563.html)
-- Apr 08 - [Losing: MAGA bros lose millions as Trump's tariffs tank markets](https://www.yahoo.com/news/losing-maga-bros-lose-millions-234425250.html)
-- Apr 08 - [Brawl involving 20-30 people breaks out at California In-N-Out](https://www.yahoo.com/news/massive-brawl-breaks-southern-california-221416152.html)
+- Apr 09 - [27 Extremely Rare, Mind-Blowing Photos From The 19th Century That Show Just How Wildly Different Things Used To Be](https://www.yahoo.com/lifestyle/27-extremely-rare-photos-1800s-023102311.html)
 <!-- feed end -->
 
 ### Onstream
