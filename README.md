@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [I Knew I Needed to Lose Weight. My Shameful Secret Was Holding Me Back (Exclusive)](https://www.yahoo.com/lifestyle/knew-needed-lose-weight-shameful-134500042.html)
-- Apr 10 - [Government proposal to relocate island residents sparks fear and uncertainty: 'This is not an overnight decision'](https://www.yahoo.com/news/government-proposal-relocate-island-residents-113000512.html)
-- Apr 10 - [America’s largest egg producer saw profits triple last quarter after raking in millions in government assistance](https://finance.yahoo.com/news/america-largest-egg-producer-saw-110300276.html)
+- Apr 10 - [Meeting with Trump ‘f-----g disastrous’ for Democrat presidential hopeful](https://www.yahoo.com/news/meeting-trump-f-g-disastrous-135232709.html)
+- Apr 10 - [“Resign or be fired” – APHA executive director calls out RFK Jr](https://finance.yahoo.com/news/resign-fired-apha-executive-director-111952742.html)
+- Apr 10 - [‘Nobody’s ever heard of it. It’s gonna be a record’: Donald Trump is claiming victory for the stock market’s rebound](https://finance.yahoo.com/news/nobody-ever-heard-gonna-record-102439414.html)
+- Apr 10 - [Lawmakers consider bill that would ban historic facet of American entertainment: 'A lifetime of misery'](https://www.yahoo.com/news/lawmakers-consider-bill-ban-historic-101553299.html)
 - Apr 10 - [China warns against 'irresponsible' remarks after Kyiv claim on Chinese fighters](https://www.yahoo.com/news/china-warns-against-irresponsible-remarks-095622742.html)
-- Apr 10 - [Trump accidentally phoned former official HR McMaster – then abused him when he realized who was on the line, report says](https://www.yahoo.com/news/trump-accidentally-phoned-former-official-034416853.html)
 <!-- feed end -->
 
 ### Onstream
