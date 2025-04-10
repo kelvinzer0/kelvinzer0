@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Pope Francis makes surprise visit to St. Peter's Basilica](https://www.yahoo.com/news/pope-francis-makes-surprise-visit-180013445.html)
-- Apr 10 - [EU, China will look into setting minimum prices on electric vehicles, EU says](https://finance.yahoo.com/news/eu-china-start-talks-lifting-173917473.html)
+- Apr 10 - [Trump Accidentally Burned Himself With His Own Question, And People Cannot Stop Laughing](https://www.yahoo.com/news/trump-accidentally-burned-himself-own-174851761.html)
 - Apr 10 - [Pressed for evidence against Mahmoud Khalil, government cites its power to deport people for beliefs](https://www.yahoo.com/news/pressed-evidence-against-mahmoud-khalil-173708087.html)
-- Apr 10 - [Egg prices soar to record high as DOJ investigates America's largest egg producer](https://finance.yahoo.com/news/egg-prices-soar-to-record-high-as-doj-investigates-americas-largest-egg-producer-172504315.html)
 - Apr 10 - [Restarting coal plants after Trump's executive orders makes no economic sense, report says](https://finance.yahoo.com/news/restarting-coal-plants-trumps-executive-170641153.html)
+- Apr 10 - [The House passed a requirement to prove US citizenship to vote. This is how it could affect voting](https://www.yahoo.com/news/house-passed-requirement-prove-us-165710811.html)
+- Apr 10 - [Apple’s Steve Jobs dealt with the 2008 financial crisis by investing his way through the downturn, instead of slashing jobs and budgets—2 years later the iconic iPad was launched](https://finance.yahoo.com/news/apple-steve-jobs-dealt-2008-154148301.html)
 <!-- feed end -->
 
 ### Onstream
