@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Helicopter crashes in New York, no word on injuries](https://www.yahoo.com/news/helicopter-crashes-york-no-word-195322217.html)
-- Apr 10 - [Minnesota nurse facing federal charges for allegedly grabbing flight attendant’s crotch](https://www.yahoo.com/news/minnesota-nurse-facing-federal-charges-195152559.html)
+- Apr 10 - [Rep. Marjorie Taylor Greene bought stocks hit hard by Trump tariffs during the market meltdown](https://finance.yahoo.com/news/rep-marjorie-taylor-greene-bought-201206296.html)
+- Apr 10 - [Helicopter crashes into Hudson River in New York City](https://www.yahoo.com/news/helicopter-crashes-hudson-river-york-200131445.html)
+- Apr 10 - [Planes collide at Reagan airport: One had several members of Congress aboard](https://www.yahoo.com/news/planes-collide-reagan-airport-one-191245055.html)
 - Apr 10 - [Trump called a cabinet meeting after walking back his tariff plans. It might as well have been held in Moscow](https://www.yahoo.com/news/trump-called-cabinet-meeting-walking-193232817.html)
-- Apr 10 - [Democrats lose another top contender in Michigan Senate after Whitmer and Buttigieg bow out](https://www.yahoo.com/news/democrats-lose-another-top-contender-192617203.html)
-- Apr 10 - [Trump Accidentally Burned Himself With His Own Question, And People Cannot Stop Laughing](https://www.yahoo.com/news/trump-accidentally-burned-himself-own-174851761.html)
+- Apr 10 - [Pressed for evidence against Mahmoud Khalil, government cites its power to deport people for beliefs](https://www.yahoo.com/news/pressed-evidence-against-mahmoud-khalil-173708087.html)
 <!-- feed end -->
 
 ### Onstream
