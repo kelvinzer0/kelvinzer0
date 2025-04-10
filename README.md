@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Global emissions due to AI-related chipmaking grew more than four times in 2024](https://tech.yahoo.com/article/global-emissions-due-to-ai-related-chipmaking-grew-more-than-four-times-in-2024-160304017.html)
-- Apr 10 - [Republicans pass Trump-backed tax plan that could drastically cut Medicaid](https://www.yahoo.com/news/republicans-pass-trump-backed-tax-151305067.html)
+- Apr 10 - [Harley-Davidson board member resigns, cites 'grave concerns' about company](https://finance.yahoo.com/news/harley-davidson-board-member-resigns-153532375.html)
 - Apr 10 - [Meeting with Trump ‘f-----g disastrous’ for Democrat presidential hopeful](https://www.yahoo.com/news/meeting-trump-f-g-disastrous-135232709.html)
 - Apr 10 - [The Biden administration gave TSMC billions to build its semiconductors in the U.S., but Trump says he threatened 100% tariffs and got the company to double down](https://finance.yahoo.com/news/biden-administration-gave-tsmc-billions-114700035.html)
 - Apr 10 - [“Resign or be fired” – APHA executive director calls out RFK Jr](https://finance.yahoo.com/news/resign-fired-apha-executive-director-111952742.html)
+- Apr 10 - [A new ‘jackpotting’ scam has drained more than $236,000 from Texas ATMs — but who foots the loss?](https://www.yahoo.com/news/jackpotting-scam-drained-more-236-110900898.html)
 <!-- feed end -->
 
 ### Onstream
