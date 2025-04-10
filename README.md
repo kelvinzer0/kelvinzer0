@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Global emissions due to AI-related chipmaking grew more than four times in 2024](https://tech.yahoo.com/article/global-emissions-due-to-ai-related-chipmaking-grew-more-than-four-times-in-2024-160304017.html)
+- Apr 10 - [Republicans pass Trump-backed tax plan that could drastically cut Medicaid](https://www.yahoo.com/news/republicans-pass-trump-backed-tax-151305067.html)
 - Apr 10 - [Meeting with Trump ‘f-----g disastrous’ for Democrat presidential hopeful](https://www.yahoo.com/news/meeting-trump-f-g-disastrous-135232709.html)
+- Apr 10 - [The Biden administration gave TSMC billions to build its semiconductors in the U.S., but Trump says he threatened 100% tariffs and got the company to double down](https://finance.yahoo.com/news/biden-administration-gave-tsmc-billions-114700035.html)
 - Apr 10 - [“Resign or be fired” – APHA executive director calls out RFK Jr](https://finance.yahoo.com/news/resign-fired-apha-executive-director-111952742.html)
-- Apr 10 - [‘Nobody’s ever heard of it. It’s gonna be a record’: Donald Trump is claiming victory for the stock market’s rebound](https://finance.yahoo.com/news/nobody-ever-heard-gonna-record-102439414.html)
-- Apr 10 - [Lawmakers consider bill that would ban historic facet of American entertainment: 'A lifetime of misery'](https://www.yahoo.com/news/lawmakers-consider-bill-ban-historic-101553299.html)
-- Apr 10 - [China warns against 'irresponsible' remarks after Kyiv claim on Chinese fighters](https://www.yahoo.com/news/china-warns-against-irresponsible-remarks-095622742.html)
 <!-- feed end -->
 
 ### Onstream
