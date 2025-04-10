@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Pound rises amid Trump's tariff U-turn](https://uk.finance.yahoo.com/news/pound-rises-trump-tariff-u-turn-084702239.html)
+- Apr 10 - [Aboard a nuclear-powered submarine, 'everything changes on a dime'](https://www.yahoo.com/news/aboard-nuclear-powered-submarine-everything-080934297.html)
 - Apr 10 - [Trump accidentally phoned former official HR McMaster – then abused him when he realized who was on the line, report says](https://www.yahoo.com/news/trump-accidentally-phoned-former-official-034416853.html)
 - Apr 10 - [Mexican drug lord convicted in killing of DEA agent released after completing sentence](https://www.yahoo.com/news/mexican-drug-lord-convicted-killing-024432644.html)
 - Apr 10 - [Canadian PM Carney says negotiations with Trump on economic, security relationship to commence after election](https://www.yahoo.com/news/canadian-pm-carney-says-negotiations-003331001.html)
