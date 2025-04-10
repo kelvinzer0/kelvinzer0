@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Harley-Davidson board member resigns, cites 'grave concerns' about company](https://finance.yahoo.com/news/harley-davidson-board-member-resigns-153532375.html)
-- Apr 10 - [Meeting with Trump ‘f-----g disastrous’ for Democrat presidential hopeful](https://www.yahoo.com/news/meeting-trump-f-g-disastrous-135232709.html)
-- Apr 10 - [The Biden administration gave TSMC billions to build its semiconductors in the U.S., but Trump says he threatened 100% tariffs and got the company to double down](https://finance.yahoo.com/news/biden-administration-gave-tsmc-billions-114700035.html)
-- Apr 10 - [“Resign or be fired” – APHA executive director calls out RFK Jr](https://finance.yahoo.com/news/resign-fired-apha-executive-director-111952742.html)
-- Apr 10 - [A new ‘jackpotting’ scam has drained more than $236,000 from Texas ATMs — but who foots the loss?](https://www.yahoo.com/news/jackpotting-scam-drained-more-236-110900898.html)
+- Apr 10 - [Pope Francis makes surprise visit to St. Peter's Basilica](https://www.yahoo.com/news/pope-francis-makes-surprise-visit-180013445.html)
+- Apr 10 - [EU, China will look into setting minimum prices on electric vehicles, EU says](https://finance.yahoo.com/news/eu-china-start-talks-lifting-173917473.html)
+- Apr 10 - [Pressed for evidence against Mahmoud Khalil, government cites its power to deport people for beliefs](https://www.yahoo.com/news/pressed-evidence-against-mahmoud-khalil-173708087.html)
+- Apr 10 - [Egg prices soar to record high as DOJ investigates America's largest egg producer](https://finance.yahoo.com/news/egg-prices-soar-to-record-high-as-doj-investigates-americas-largest-egg-producer-172504315.html)
+- Apr 10 - [Restarting coal plants after Trump's executive orders makes no economic sense, report says](https://finance.yahoo.com/news/restarting-coal-plants-trumps-executive-170641153.html)
 <!-- feed end -->
 
 ### Onstream
