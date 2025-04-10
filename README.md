@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [China warns against 'irresponsible' remarks after Kyiv claim on Chinese fighters](https://www.yahoo.com/news/china-warns-against-irresponsible-remarks-095622742.html)
 - Apr 10 - [Aboard a nuclear-powered submarine, 'everything changes on a dime'](https://www.yahoo.com/news/aboard-nuclear-powered-submarine-everything-080934297.html)
 - Apr 10 - [Trump accidentally phoned former official HR McMaster – then abused him when he realized who was on the line, report says](https://www.yahoo.com/news/trump-accidentally-phoned-former-official-034416853.html)
 - Apr 10 - [Mexican drug lord convicted in killing of DEA agent released after completing sentence](https://www.yahoo.com/news/mexican-drug-lord-convicted-killing-024432644.html)
-- Apr 10 - [Canadian PM Carney says negotiations with Trump on economic, security relationship to commence after election](https://www.yahoo.com/news/canadian-pm-carney-says-negotiations-003331001.html)
-- Apr 10 - [Republican-led House passes bill to limit nationwide orders from federal district judges](https://www.yahoo.com/news/republican-led-house-passes-bill-001017498.html)
+- Apr 09 - [Bahamas officials reveal American man's cause of death after body found on beach](https://www.yahoo.com/news/bahamas-officials-reveal-american-mans-234704633.html)
 <!-- feed end -->
 
 ### Onstream
