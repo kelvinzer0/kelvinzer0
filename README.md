@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Young woman ‘would do anything to have eczema again’ after steroid withdrawal](https://www.yahoo.com/news/young-woman-anything-eczema-again-231019238.html)
-- Apr 10 - [Republican-led House passes bill to limit nationwide orders from federal district judges](https://www.yahoo.com/news/republican-led-house-passes-bill-001017498.html)
-- Apr 09 - [Watch as bear barrels toward skier on Colorado slopes: 'It happened so quick'](https://www.yahoo.com/news/watch-bear-barrels-toward-skier-235902022.html)
-- Apr 09 - [Trump's 'buy' tip on social media before his tariffs pause made money for investors who listened](https://finance.yahoo.com/news/trumps-buy-tip-social-media-230226562.html)
-- Apr 09 - [Democratic-led Illinois Supreme Court rejects GOP challenge to legislative maps that kept Democrats in control](https://www.yahoo.com/news/democratic-led-illinois-supreme-court-212300482.html)
+- Apr 10 - [A woman dies every two minutes due to failures in maternal care, shocking new figures reveal](https://www.yahoo.com/news/woman-dies-every-two-minutes-224603885.html)
+- Apr 10 - [Trump accidentally phoned former official HR McMaster – then abused him when he realized who was on the line, report says](https://www.yahoo.com/news/trump-accidentally-phoned-former-official-034416853.html)
+- Apr 10 - [Mexican drug lord convicted in killing of DEA agent released after completing sentence](https://www.yahoo.com/news/mexican-drug-lord-convicted-killing-024432644.html)
+- Apr 10 - [Australia turns down China's offer to 'join hands' to fight US tariffs](https://finance.yahoo.com/news/australia-turns-down-chinas-offer-024057219.html)
+- Apr 10 - [Canadian PM Carney says negotiations with Trump on economic, security relationship to commence after election](https://www.yahoo.com/news/canadian-pm-carney-says-negotiations-003331001.html)
 <!-- feed end -->
 
 ### Onstream
