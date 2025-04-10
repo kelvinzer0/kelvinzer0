@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 10 - [Rep. Marjorie Taylor Greene bought stocks hit hard by Trump tariffs during the market meltdown](https://finance.yahoo.com/news/rep-marjorie-taylor-greene-bought-201206296.html)
-- Apr 10 - [Helicopter crashes into Hudson River in New York City](https://www.yahoo.com/news/helicopter-crashes-hudson-river-york-200131445.html)
-- Apr 10 - [Planes collide at Reagan airport: One had several members of Congress aboard](https://www.yahoo.com/news/planes-collide-reagan-airport-one-191245055.html)
-- Apr 10 - [Trump called a cabinet meeting after walking back his tariff plans. It might as well have been held in Moscow](https://www.yahoo.com/news/trump-called-cabinet-meeting-walking-193232817.html)
+- Apr 10 - [US military planes flew a Patriot air defense battalion out of the Pacific to the Middle East. It took over 70 flights, commander says.](https://www.yahoo.com/news/us-military-planes-flew-patriot-191451712.html)
+- Apr 10 - [Mayor-elect Cara Spencer announces staff hires, transition team](https://www.yahoo.com/news/mayor-elect-cara-spencer-announces-185306352.html)
+- Apr 10 - [Trump Accidentally Burned Himself With His Own Question, And People Cannot Stop Laughing](https://www.yahoo.com/news/trump-accidentally-burned-himself-own-174851761.html)
 - Apr 10 - [Pressed for evidence against Mahmoud Khalil, government cites its power to deport people for beliefs](https://www.yahoo.com/news/pressed-evidence-against-mahmoud-khalil-173708087.html)
 <!-- feed end -->
 
