@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Hamas leadership operating behind veil of secrecy](https://www.yahoo.com/news/hamas-leadership-operating-behind-veil-022744514.html)
-- Apr 10 - [Residents call for changes to east Las Vegas valley intersection: ‘Incredibly dangerous’](https://www.yahoo.com/news/residents-call-changes-east-las-005345637.html)
+- Apr 10 - [Trump accidentally phoned former official HR McMaster – then abused him when he realized who was on the line, report says](https://www.yahoo.com/news/trump-accidentally-phoned-former-official-034416853.html)
+- Apr 10 - [Mexican drug lord convicted in killing of DEA agent released after completing sentence](https://www.yahoo.com/news/mexican-drug-lord-convicted-killing-024432644.html)
 - Apr 10 - [BREAKING: Thousands of homes, restaurants without gas in Saugatuck, Douglas, Fennville](https://www.yahoo.com/news/breaking-thousands-homes-restaurants-without-001115356.html)
 - Apr 09 - [Trump's 'buy' tip on social media before his tariffs pause made money for investors who listened](https://finance.yahoo.com/news/trumps-buy-tip-social-media-230226562.html)
 - Apr 09 - [Man dies after confronting shoplifters in L.A. parking lot](https://www.yahoo.com/news/store-owner-dies-confronting-shoplifters-224917518.html)
