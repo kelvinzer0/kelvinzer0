@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Stock market today: Dow explodes 3,000 points higher, S&P 500 has best day since 2008 as Trump pauses most reciprocal tariffs](https://finance.yahoo.com/news/live/stock-market-today-dow-explodes-3000-points-higher-sp-500-has-best-day-since-2008-as-trump-pauses-most-reciprocal-tariffs-133616395.html)
+- Apr 09 - [Trump's 'buy' tip on social media before his tariffs pause made money for investors who listened](https://finance.yahoo.com/news/trumps-buy-tip-social-media-230226562.html)
 - Apr 09 - [JFK flight turns around over angry passenger’s meal demand](https://www.yahoo.com/news/jfk-flight-turns-around-over-194800802.html)
-- Apr 09 - [Truck found with multiple violations near Iowa & Wisconsin border, was trying to make it to Tennessee](https://www.yahoo.com/news/truck-found-multiple-violations-near-185826479.html)
-- Apr 09 - [Butter Recalled Due to Potential Fecal Contamination—Here's What to Know](https://www.yahoo.com/lifestyle/butter-recalled-due-potential-fecal-181614963.html)
-- Apr 09 - [Utah Woman Who Went Missing After Her Phone Became Inactive Has Been Found Alive a Week Later](https://www.yahoo.com/entertainment/utah-woman-went-missing-her-154942173.html)
+- Apr 09 - [Check Your Fridge—Major Brand Recalls Butter Due To 'Fecal Contamination'](https://www.yahoo.com/news/check-fridge-major-brand-recalls-184900577.html)
+- Apr 09 - [19 Baldwin County restaurants claiming imported shrimp is locally sourced: report](https://www.yahoo.com/news/19-baldwin-county-restaurants-claiming-183420893.html)
+- Apr 09 - [“I want to tell you Donald Trump outsmarted the world but ...”: Fox Biz reporter pushes back on Trump tariff narrative.](https://www.yahoo.com/news/want-tell-donald-trump-outsmarted-175229487.html)
 <!-- feed end -->
 
 ### Onstream
