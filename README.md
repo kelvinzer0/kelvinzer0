@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Want Decades of Passive Income? Buy This Index Fund and Hold It Forever.](https://finance.yahoo.com/news/want-decades-passive-income-buy-124500362.html)
+- Apr 10 - [“Resign or be fired” – APHA executive director calls out RFK Jr](https://finance.yahoo.com/news/resign-fired-apha-executive-director-111952742.html)
+- Apr 10 - [Residents sound alarm after invasive red fire ants land over 20 people in hospital, kill puppy: 'They're just everywhere'](https://www.yahoo.com/news/residents-sound-alarm-invasive-red-101505982.html)
 - Apr 10 - [China warns against 'irresponsible' remarks after Kyiv claim on Chinese fighters](https://www.yahoo.com/news/china-warns-against-irresponsible-remarks-095622742.html)
 - Apr 10 - [Aboard a nuclear-powered submarine, 'everything changes on a dime'](https://www.yahoo.com/news/aboard-nuclear-powered-submarine-everything-080934297.html)
-- Apr 10 - [Trump accidentally phoned former official HR McMaster – then abused him when he realized who was on the line, report says](https://www.yahoo.com/news/trump-accidentally-phoned-former-official-034416853.html)
-- Apr 10 - [Mexican drug lord convicted in killing of DEA agent released after completing sentence](https://www.yahoo.com/news/mexican-drug-lord-convicted-killing-024432644.html)
-- Apr 09 - [Bahamas officials reveal American man's cause of death after body found on beach](https://www.yahoo.com/news/bahamas-officials-reveal-american-mans-234704633.html)
 <!-- feed end -->
 
 ### Onstream
