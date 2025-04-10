@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Mexican drug lord convicted in killing of DEA agent released after completing sentence](https://www.yahoo.com/news/mexican-drug-lord-convicted-killing-024432644.html)
+- Apr 10 - [Young woman ‘would do anything to have eczema again’ after steroid withdrawal](https://www.yahoo.com/news/young-woman-anything-eczema-again-231019238.html)
+- Apr 10 - [Republican-led House passes bill to limit nationwide orders from federal district judges](https://www.yahoo.com/news/republican-led-house-passes-bill-001017498.html)
+- Apr 09 - [Watch as bear barrels toward skier on Colorado slopes: 'It happened so quick'](https://www.yahoo.com/news/watch-bear-barrels-toward-skier-235902022.html)
 - Apr 09 - [Trump's 'buy' tip on social media before his tariffs pause made money for investors who listened](https://finance.yahoo.com/news/trumps-buy-tip-social-media-230226562.html)
-- Apr 09 - [Man dies after confronting shoplifters in L.A. parking lot](https://www.yahoo.com/news/store-owner-dies-confronting-shoplifters-224917518.html)
-- Apr 09 - [Weezer bassist Scott Shriner’s wife shot by cops, booked for attempted murder](https://www.yahoo.com/news/weezer-bassist-scott-shriner-wife-215957313.html)
-- Apr 09 - [NFL star Tyreek Hill’s wife filed for divorce a day after cops responded to ‘assault in progress’ at Florida home](https://sports.yahoo.com/article/nfl-star-tyreek-hill-wife-215629715.html)
+- Apr 09 - [Democratic-led Illinois Supreme Court rejects GOP challenge to legislative maps that kept Democrats in control](https://www.yahoo.com/news/democratic-led-illinois-supreme-court-212300482.html)
 <!-- feed end -->
 
 ### Onstream
