@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Hamas leadership operating behind veil of secrecy](https://www.yahoo.com/news/hamas-leadership-operating-behind-veil-022744514.html)
+- Apr 10 - [Residents call for changes to east Las Vegas valley intersection: ‘Incredibly dangerous’](https://www.yahoo.com/news/residents-call-changes-east-las-005345637.html)
+- Apr 10 - [BREAKING: Thousands of homes, restaurants without gas in Saugatuck, Douglas, Fennville](https://www.yahoo.com/news/breaking-thousands-homes-restaurants-without-001115356.html)
 - Apr 09 - [Trump's 'buy' tip on social media before his tariffs pause made money for investors who listened](https://finance.yahoo.com/news/trumps-buy-tip-social-media-230226562.html)
-- Apr 09 - [JFK flight turns around over angry passenger’s meal demand](https://www.yahoo.com/news/jfk-flight-turns-around-over-194800802.html)
-- Apr 09 - [Check Your Fridge—Major Brand Recalls Butter Due To 'Fecal Contamination'](https://www.yahoo.com/news/check-fridge-major-brand-recalls-184900577.html)
-- Apr 09 - [19 Baldwin County restaurants claiming imported shrimp is locally sourced: report](https://www.yahoo.com/news/19-baldwin-county-restaurants-claiming-183420893.html)
-- Apr 09 - [“I want to tell you Donald Trump outsmarted the world but ...”: Fox Biz reporter pushes back on Trump tariff narrative.](https://www.yahoo.com/news/want-tell-donald-trump-outsmarted-175229487.html)
+- Apr 09 - [Man dies after confronting shoplifters in L.A. parking lot](https://www.yahoo.com/news/store-owner-dies-confronting-shoplifters-224917518.html)
 <!-- feed end -->
 
 ### Onstream
