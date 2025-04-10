@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [US Supreme Court upholds order to facilitate return of deportee sent to El Salvador in error](https://www.yahoo.com/news/us-supreme-court-upholds-order-224812994.html)
+- Apr 10 - [Judge allows requirement that everyone in the US illegally must register to move forward](https://www.yahoo.com/news/judge-allows-requirement-everyone-us-205540371.html)
 - Apr 10 - [Rep. Marjorie Taylor Greene bought stocks hit hard by Trump tariffs during the market meltdown](https://finance.yahoo.com/news/rep-marjorie-taylor-greene-bought-201206296.html)
-- Apr 10 - [US military planes flew a Patriot air defense battalion out of the Pacific to the Middle East. It took over 70 flights, commander says.](https://www.yahoo.com/news/us-military-planes-flew-patriot-191451712.html)
-- Apr 10 - [Mayor-elect Cara Spencer announces staff hires, transition team](https://www.yahoo.com/news/mayor-elect-cara-spencer-announces-185306352.html)
-- Apr 10 - [Trump Accidentally Burned Himself With His Own Question, And People Cannot Stop Laughing](https://www.yahoo.com/news/trump-accidentally-burned-himself-own-174851761.html)
-- Apr 10 - [Pressed for evidence against Mahmoud Khalil, government cites its power to deport people for beliefs](https://www.yahoo.com/news/pressed-evidence-against-mahmoud-khalil-173708087.html)
+- Apr 10 - [Trump called a cabinet meeting after walking back his tariff plans. It might as well have been held in Moscow](https://www.yahoo.com/news/trump-called-cabinet-meeting-walking-193232817.html)
+- Apr 10 - [Jeff Bezos and Lauren Sánchez "Cozy Up" in the BOUGIEST Mansions We've Ever Seen](https://www.yahoo.com/lifestyle/jeff-bezos-lauren-nchez-cozy-191500245.html)
 <!-- feed end -->
 
 ### Onstream
