@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Helicopter crashes in New York, no word on injuries](https://www.yahoo.com/news/helicopter-crashes-york-no-word-195322217.html)
+- Apr 10 - [Minnesota nurse facing federal charges for allegedly grabbing flight attendant’s crotch](https://www.yahoo.com/news/minnesota-nurse-facing-federal-charges-195152559.html)
+- Apr 10 - [Trump called a cabinet meeting after walking back his tariff plans. It might as well have been held in Moscow](https://www.yahoo.com/news/trump-called-cabinet-meeting-walking-193232817.html)
+- Apr 10 - [Democrats lose another top contender in Michigan Senate after Whitmer and Buttigieg bow out](https://www.yahoo.com/news/democrats-lose-another-top-contender-192617203.html)
 - Apr 10 - [Trump Accidentally Burned Himself With His Own Question, And People Cannot Stop Laughing](https://www.yahoo.com/news/trump-accidentally-burned-himself-own-174851761.html)
-- Apr 10 - [Pressed for evidence against Mahmoud Khalil, government cites its power to deport people for beliefs](https://www.yahoo.com/news/pressed-evidence-against-mahmoud-khalil-173708087.html)
-- Apr 10 - [Restarting coal plants after Trump's executive orders makes no economic sense, report says](https://finance.yahoo.com/news/restarting-coal-plants-trumps-executive-170641153.html)
-- Apr 10 - [The House passed a requirement to prove US citizenship to vote. This is how it could affect voting](https://www.yahoo.com/news/house-passed-requirement-prove-us-165710811.html)
-- Apr 10 - [Apple’s Steve Jobs dealt with the 2008 financial crisis by investing his way through the downturn, instead of slashing jobs and budgets—2 years later the iconic iPad was launched](https://finance.yahoo.com/news/apple-steve-jobs-dealt-2008-154148301.html)
 <!-- feed end -->
 
 ### Onstream
