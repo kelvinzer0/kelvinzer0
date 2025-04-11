@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [US-China trade could decrease by as much as 80%, WTO chief warns](https://www.yahoo.com/news/us-china-trade-could-decrease-160629445.html)
+- Apr 11 - [Gold, US chipmakers, Morgan Stanley & Elon Musk: Market Minute](https://finance.yahoo.com/video/gold-us-chipmakers-morgan-stanley-161704927.html)
+- Apr 11 - [Hacked documents reveal guide to serving Elon Musk on private jets](https://finance.yahoo.com/news/hacked-documents-reveal-guide-serving-155953339.html)
 - Apr 11 - [Trump -- oldest elected US president -- undergoes medical](https://www.yahoo.com/news/trump-oldest-elected-us-president-150527055.html)
+- Apr 11 - [Prince Harry Just Popped Up in the Last Place I Expected—and He Wasn't Alone](https://www.yahoo.com/news/prince-harry-just-popped-last-145623658.html)
 - Apr 11 - [Iguanas have invaded a Florida island. One man is on a quest to stop them.](https://www.yahoo.com/news/iguanas-invaded-florida-island-one-145509737.html)
-- Apr 11 - [China's rare earth exports grind to a halt as trade war controls bite](https://finance.yahoo.com/news/chinas-rare-earth-exports-grind-140331016.html)
-- Apr 11 - [Exclusive-China has considered opening its $520 billion ETF market to Western market makers, sources say](https://finance.yahoo.com/news/exclusive-china-considered-opening-520-140032425.html)
 <!-- feed end -->
 
 ### Onstream
