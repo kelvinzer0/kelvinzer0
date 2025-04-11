@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [Gold, US chipmakers, Morgan Stanley & Elon Musk: Market Minute](https://finance.yahoo.com/video/gold-us-chipmakers-morgan-stanley-161704927.html)
+- Apr 11 - [Trump -- oldest elected US president -- undergoes physical](https://www.yahoo.com/news/trump-oldest-elected-us-president-150527055.html)
+- Apr 11 - [Judge says it's 'extremely troubling' Trump administration cannot tell her location of deported man](https://www.yahoo.com/news/judge-orders-trump-administration-advise-163825027.html)
+- Apr 11 - [US-China trade could decrease by as much as 80%, WTO chief warns](https://www.yahoo.com/news/us-china-trade-could-decrease-160629445.html)
 - Apr 11 - [Hacked documents reveal guide to serving Elon Musk on private jets](https://finance.yahoo.com/news/hacked-documents-reveal-guide-serving-155953339.html)
-- Apr 11 - [Trump -- oldest elected US president -- undergoes medical](https://www.yahoo.com/news/trump-oldest-elected-us-president-150527055.html)
-- Apr 11 - [Prince Harry Just Popped Up in the Last Place I Expected—and He Wasn't Alone](https://www.yahoo.com/news/prince-harry-just-popped-last-145623658.html)
-- Apr 11 - [Iguanas have invaded a Florida island. One man is on a quest to stop them.](https://www.yahoo.com/news/iguanas-invaded-florida-island-one-145509737.html)
+- Apr 11 - [Golden Retriever Who 'Thinks She's a Fire Truck' Scores a Perfect 10/10](https://www.yahoo.com/lifestyle/golden-retriever-thinks-shes-fire-154500005.html)
 <!-- feed end -->
 
 ### Onstream
