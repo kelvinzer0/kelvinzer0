@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [Tiny cut marks on animal bone fossils reveal that human ancestors were in Romania 1.95 million years ago](https://www.yahoo.com/news/tiny-cut-marks-animal-bone-124315326.html)
-- Apr 11 - [Operator of Helicopter That Crashed in Hudson River Reveals Pilot Radioed to Say He ‘Needed Fuel’ Before Tragedy](https://www.yahoo.com/entertainment/articles/operator-helicopter-crashed-hudson-river-120101614.html)
-- Apr 11 - [Tesla's $70,000 RWD Cybertruck arrives with some key features removed](https://tech.yahoo.com/article/teslas-70000-rwd-cybertruck-arrives-with-some-key-features-removed-120044840.html)
-- Apr 11 - [TX Measles update at 10 a.m.](https://www.yahoo.com/news/tx-measles-10-m-114742276.html)
-- Apr 11 - [China just poured more fuel on the trade war fire and called the US a 'joke'](https://www.yahoo.com/news/china-hits-back-fresh-125-082704570.html)
+- Apr 11 - [Head of US Space Force base in Greenland is fired after Vance visit](https://www.yahoo.com/news/head-us-space-force-greenland-134758049.html)
+- Apr 11 - [Automated driving: German carmakers, industry experts on road ahead](https://tech.yahoo.com/transportation/articles/automated-driving-german-carmakers-industry-134116544.html)
+- Apr 11 - [Graduates want compensation over Covid teaching](https://www.yahoo.com/news/graduates-want-compensation-over-covid-133110648.html)
+- Apr 11 - [Stock market today: Dow, S&P 500, Nasdaq whipsaw after China hits back in trade war, bank earnings roll in](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-whipsaw-after-china-hits-back-in-trade-war-bank-earnings-roll-in-133100377.html)
+- Apr 11 - [China announces 125% tariffs on U.S. goods](https://www.yahoo.com/news/china-announces-125-tariffs-u-124913686.html)
 <!-- feed end -->
 
 ### Onstream
