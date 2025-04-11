@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [Chevron, Occidental downgraded amid oil price concerns](https://finance.yahoo.com/video/chevron-occidental-downgraded-amid-oil-210015472.html)
-- Apr 11 - [Immigration judge rules student activist Mahmoud Khalil can be deported from US](https://www.yahoo.com/news/immigration-judge-rules-detained-student-202858839.html)
+- Apr 11 - [Gas crews hope to turn on heat soon for 5K customers in Allegan County](https://www.yahoo.com/news/gas-crews-hope-turn-heat-213315649.html)
+- Apr 11 - [BITCOIN SEASON 2: Bitcoin’s Biggest Crashes Compared!](https://finance.yahoo.com/video/bitcoin-season-2-bitcoin-biggest-205031840.html)
 - Apr 11 - [Picture of Trump after the assassination attempt displaces Obama portrait at the White House](https://www.yahoo.com/news/picture-trump-assassination-attempt-displaces-203429947.html)
+- Apr 11 - [Forgotten Mansion Garage Hides Rare Cadillac and Muscle Cars in Pristine Condition](https://autos.yahoo.com/forgotten-mansion-garage-hides-rare-201541314.html)
 - Apr 11 - [Stock market today: Dow, S&P 500 post best week since 2023 to cap wild week of tariff-fueled chaos](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-post-best-week-since-2023-to-cap-wild-week-of-tariff-fueled-chaos-200222921.html)
-- Apr 11 - [Boca plane crash: What we know now on Florida tragedy that killed all three passengers](https://www.yahoo.com/news/boca-plane-crash-know-now-194404288.html)
 <!-- feed end -->
 
 ### Onstream
