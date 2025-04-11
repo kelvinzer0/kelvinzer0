@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [Pro-Palestinian demonstrators who occupied Stanford building are charged with felonies](https://www.yahoo.com/news/pro-palestinian-demonstrators-occupied-stanford-031234838.html)
+- Apr 11 - [Italy's new high-speed rail line looks to reverse depopulation, lift southern economy](https://www.yahoo.com/news/italys-high-speed-rail-line-063347485.html)
+- Apr 11 - [Israelis mark another Passover hoping for Gaza captives to be freed](https://www.yahoo.com/news/israelis-mark-another-passover-hoping-060317177.html)
+- Apr 11 - [A US Navy captain ordered a military funeral for a kamikaze pilot during WWII. Here's why](https://www.yahoo.com/news/us-navy-captain-ordered-military-042047525.html)
 - Apr 11 - [Doctors And Nurses Are Calling Out Common Health "Lies" You Should Stop Believing, And It's Shocking](https://www.yahoo.com/lifestyle/doctors-nurses-calling-common-health-021602850.html)
-- Apr 11 - [The Pentagon just killed $5.1 billion in IT and consulting contracts with firms like Accenture and Deloitte, calling it 'wasteful spending'](https://www.yahoo.com/news/pentagon-just-killed-5-1-015956256.html)
-- Apr 10 - [Musician says she was left shocked by ‘bizarre’ emails from acting Kennedy Center director Richard Grenell](https://www.yahoo.com/news/musician-says-she-left-shocked-224710365.html)
-- Apr 10 - [Rep. Marjorie Taylor Greene bought stocks hit hard by Trump tariffs during the market meltdown](https://finance.yahoo.com/news/rep-marjorie-taylor-greene-bought-201206296.html)
+- Apr 11 - [The Pentagon just cut $5.1 billion in IT and consulting contracts with firms like Accenture and Deloitte, calling it 'wasteful spending'](https://www.yahoo.com/news/pentagon-just-killed-5-1-015956256.html)
 <!-- feed end -->
 
 ### Onstream
