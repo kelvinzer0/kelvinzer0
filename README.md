@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [China's rare earth exports grind to a halt as trade war controls bite](https://finance.yahoo.com/news/chinas-rare-earth-exports-grind-140331016.html)
+- Apr 11 - [Wall Street opens as China imposes 125% tariffs on U.S. goods](https://www.yahoo.com/news/wall-street-opens-china-imposes-135506846.html)
 - Apr 11 - [Head of US Space Force base in Greenland is fired after Vance visit](https://www.yahoo.com/news/head-us-space-force-greenland-134758049.html)
-- Apr 11 - [Automated driving: German carmakers, industry experts on road ahead](https://tech.yahoo.com/transportation/articles/automated-driving-german-carmakers-industry-134116544.html)
-- Apr 11 - [Graduates want compensation over Covid teaching](https://www.yahoo.com/news/graduates-want-compensation-over-covid-133110648.html)
-- Apr 11 - [Stock market today: Dow, S&P 500, Nasdaq whipsaw after China hits back in trade war, bank earnings roll in](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-whipsaw-after-china-hits-back-in-trade-war-bank-earnings-roll-in-133100377.html)
-- Apr 11 - [China announces 125% tariffs on U.S. goods](https://www.yahoo.com/news/china-announces-125-tariffs-u-124913686.html)
+- Apr 11 - [Operator of Helicopter That Crashed in Hudson River Reveals Pilot Radioed to Say He ‘Needed Fuel’ Before Tragedy](https://www.yahoo.com/entertainment/articles/operator-helicopter-crashed-hudson-river-120101614.html)
+- Apr 11 - [Tesla announces big change that will affect the cost of its vehicles in major market: 'I think we are at a really good point'](https://autos.yahoo.com/tesla-announces-big-change-affect-104537953.html)
 <!-- feed end -->
 
 ### Onstream
