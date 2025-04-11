@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 11 - [Doctors And Nurses Are Calling Out Common Health "Lies" You Should Stop Believing, And It's Shocking](https://www.yahoo.com/lifestyle/doctors-nurses-calling-common-health-021602850.html)
+- Apr 11 - [The Pentagon just killed $5.1 billion in IT and consulting contracts with firms like Accenture and Deloitte, calling it 'wasteful spending'](https://www.yahoo.com/news/pentagon-just-killed-5-1-015956256.html)
 - Apr 11 - [Siemens exec and his family identified as victims in deadly Hudson helicopter crash](https://www.yahoo.com/news/siemens-ceo-family-identified-victims-005708332.html)
 - Apr 10 - [Rep. Marjorie Taylor Greene bought stocks hit hard by Trump tariffs during the market meltdown](https://finance.yahoo.com/news/rep-marjorie-taylor-greene-bought-201206296.html)
-- Apr 10 - [Trump called a cabinet meeting after walking back his tariff plans. It might as well have been held in Moscow](https://www.yahoo.com/news/trump-called-cabinet-meeting-walking-193232817.html)
-- Apr 10 - [Arkansas Attorney General Tim Griffin announces arrest of $2 million retail crime pair, calls for more prison space](https://www.yahoo.com/news/watch-arkansas-attorney-general-tim-192314725.html)
+- Apr 10 - [US military planes flew a Patriot air defense battalion out of the Pacific to the Middle East. It took over 70 flights, commander says.](https://www.yahoo.com/news/us-military-planes-flew-patriot-191451712.html)
 <!-- feed end -->
 
 ### Onstream
