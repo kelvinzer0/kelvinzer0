@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [US-China trade could decrease by as much as 80%, WTO chief warns](https://www.yahoo.com/news/us-china-trade-could-decrease-160629445.html)
+- Apr 11 - [Trump -- oldest elected US president -- undergoes medical](https://www.yahoo.com/news/trump-oldest-elected-us-president-150527055.html)
+- Apr 11 - [Iguanas have invaded a Florida island. One man is on a quest to stop them.](https://www.yahoo.com/news/iguanas-invaded-florida-island-one-145509737.html)
 - Apr 11 - [China's rare earth exports grind to a halt as trade war controls bite](https://finance.yahoo.com/news/chinas-rare-earth-exports-grind-140331016.html)
-- Apr 11 - [Wall Street opens as China imposes 125% tariffs on U.S. goods](https://www.yahoo.com/news/wall-street-opens-china-imposes-135506846.html)
-- Apr 11 - [Head of US Space Force base in Greenland is fired after Vance visit](https://www.yahoo.com/news/head-us-space-force-greenland-134758049.html)
-- Apr 11 - [Operator of Helicopter That Crashed in Hudson River Reveals Pilot Radioed to Say He ‘Needed Fuel’ Before Tragedy](https://www.yahoo.com/entertainment/articles/operator-helicopter-crashed-hudson-river-120101614.html)
-- Apr 11 - [Tesla announces big change that will affect the cost of its vehicles in major market: 'I think we are at a really good point'](https://autos.yahoo.com/tesla-announces-big-change-affect-104537953.html)
+- Apr 11 - [Exclusive-China has considered opening its $520 billion ETF market to Western market makers, sources say](https://finance.yahoo.com/news/exclusive-china-considered-opening-520-140032425.html)
 <!-- feed end -->
 
 ### Onstream
