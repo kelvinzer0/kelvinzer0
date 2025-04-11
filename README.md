@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [4 tips for raising financially literate kids](https://finance.yahoo.com/video/4-tips-raising-financially-literate-190018461.html)
-- Apr 11 - [Joe Rogan Podcast Guest Confronts Him for Platforming ‘Counter-Historical’ Views: ‘Just Raising Questions Is Not a Valid Thing’](https://www.yahoo.com/news/joe-rogan-podcast-guest-confronts-183811690.html)
-- Apr 11 - [Prince Harry Says His "Worst Fears Have Been Confirmed" Five Years After Leaving Royal Family](https://www.yahoo.com/news/prince-harry-says-worst-fears-182600102.html)
-- Apr 11 - [US-China trade could decrease by as much as 80%, WTO chief warns](https://www.yahoo.com/news/us-china-trade-could-decrease-160629445.html)
-- Apr 11 - [Hacked documents reveal guide to serving Elon Musk on private jets](https://finance.yahoo.com/news/hacked-documents-reveal-guide-serving-155953339.html)
+- Apr 11 - [Chevron, Occidental downgraded amid oil price concerns](https://finance.yahoo.com/video/chevron-occidental-downgraded-amid-oil-210015472.html)
+- Apr 11 - [Immigration judge rules student activist Mahmoud Khalil can be deported from US](https://www.yahoo.com/news/immigration-judge-rules-detained-student-202858839.html)
+- Apr 11 - [Picture of Trump after the assassination attempt displaces Obama portrait at the White House](https://www.yahoo.com/news/picture-trump-assassination-attempt-displaces-203429947.html)
+- Apr 11 - [Stock market today: Dow, S&P 500 post best week since 2023 to cap wild week of tariff-fueled chaos](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-post-best-week-since-2023-to-cap-wild-week-of-tariff-fueled-chaos-200222921.html)
+- Apr 11 - [Boca plane crash: What we know now on Florida tragedy that killed all three passengers](https://www.yahoo.com/news/boca-plane-crash-know-now-194404288.html)
 <!-- feed end -->
 
 ### Onstream
