@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [China raises tariffs on US goods from 84% to 125%, AP explains](https://www.yahoo.com/news/china-raises-tariffs-us-goods-115713331.html)
-- Apr 11 - [Tesla announcement sparks concern over the future of one of its most hyped models: 'Good luck ever recovering'](https://autos.yahoo.com/tesla-announcement-sparks-concern-over-101544432.html)
-- Apr 11 - [Democrats lose another top contender for US Senate seat in Michigan after Whitmer and Buttigieg bow out](https://www.yahoo.com/news/democrats-lose-another-top-contender-192617203.html)
-- Apr 11 - ['Prime viewing': Naples landmark made USA Today's 10Best for unique attraction](https://www.yahoo.com/lifestyle/prime-viewing-naples-landmark-made-090140098.html)
-- Apr 11 - [A US Navy captain ordered a military funeral for a kamikaze pilot during WWII. Here's why](https://www.yahoo.com/news/us-navy-captain-ordered-military-042047525.html)
+- Apr 11 - [Tiny cut marks on animal bone fossils reveal that human ancestors were in Romania 1.95 million years ago](https://www.yahoo.com/news/tiny-cut-marks-animal-bone-124315326.html)
+- Apr 11 - [Operator of Helicopter That Crashed in Hudson River Reveals Pilot Radioed to Say He ‘Needed Fuel’ Before Tragedy](https://www.yahoo.com/entertainment/articles/operator-helicopter-crashed-hudson-river-120101614.html)
+- Apr 11 - [Tesla's $70,000 RWD Cybertruck arrives with some key features removed](https://tech.yahoo.com/article/teslas-70000-rwd-cybertruck-arrives-with-some-key-features-removed-120044840.html)
+- Apr 11 - [TX Measles update at 10 a.m.](https://www.yahoo.com/news/tx-measles-10-m-114742276.html)
+- Apr 11 - [China just poured more fuel on the trade war fire and called the US a 'joke'](https://www.yahoo.com/news/china-hits-back-fresh-125-082704570.html)
 <!-- feed end -->
 
 ### Onstream
