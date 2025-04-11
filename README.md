@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [4 tips for raising financially literate kids](https://finance.yahoo.com/video/4-tips-raising-financially-literate-190018461.html)
 - Apr 11 - [Joe Rogan Podcast Guest Confronts Him for Platforming ‘Counter-Historical’ Views: ‘Just Raising Questions Is Not a Valid Thing’](https://www.yahoo.com/news/joe-rogan-podcast-guest-confronts-183811690.html)
-- Apr 11 - [Trump -- oldest elected US president -- undergoes physical](https://www.yahoo.com/news/trump-oldest-elected-us-president-150527055.html)
-- Apr 11 - [Woman Asks Boyfriend to Contribute to Bills After He Stays at Her Place Rent-Free for Months. His Answer Shocks Her](https://www.yahoo.com/lifestyle/woman-asks-boyfriend-contribute-bills-181338299.html)
-- Apr 11 - [Elon Musk's Credibility Sinking as He's Caught in Web of Lies](https://finance.yahoo.com/news/elon-musks-credibility-sinking-hes-162443523.html)
+- Apr 11 - [Prince Harry Says His "Worst Fears Have Been Confirmed" Five Years After Leaving Royal Family](https://www.yahoo.com/news/prince-harry-says-worst-fears-182600102.html)
 - Apr 11 - [US-China trade could decrease by as much as 80%, WTO chief warns](https://www.yahoo.com/news/us-china-trade-could-decrease-160629445.html)
+- Apr 11 - [Hacked documents reveal guide to serving Elon Musk on private jets](https://finance.yahoo.com/news/hacked-documents-reveal-guide-serving-155953339.html)
 <!-- feed end -->
 
 ### Onstream
