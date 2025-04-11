@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [South Korea's Yoon leaves presidential residence after ouster](https://www.yahoo.com/news/south-koreas-yoon-leaves-presidential-102347938.html)
+- Apr 11 - [China raises tariffs on US goods from 84% to 125%, AP explains](https://www.yahoo.com/news/china-raises-tariffs-us-goods-115713331.html)
+- Apr 11 - [Tesla announcement sparks concern over the future of one of its most hyped models: 'Good luck ever recovering'](https://autos.yahoo.com/tesla-announcement-sparks-concern-over-101544432.html)
 - Apr 11 - [Democrats lose another top contender for US Senate seat in Michigan after Whitmer and Buttigieg bow out](https://www.yahoo.com/news/democrats-lose-another-top-contender-192617203.html)
-- Apr 11 - [Siemens exec and his family identified as victims in deadly Hudson helicopter crash](https://www.yahoo.com/news/siemens-ceo-family-identified-victims-005708332.html)
+- Apr 11 - ['Prime viewing': Naples landmark made USA Today's 10Best for unique attraction](https://www.yahoo.com/lifestyle/prime-viewing-naples-landmark-made-090140098.html)
 - Apr 11 - [A US Navy captain ordered a military funeral for a kamikaze pilot during WWII. Here's why](https://www.yahoo.com/news/us-navy-captain-ordered-military-042047525.html)
-- Apr 11 - [Pro-Palestinian demonstrators who occupied Stanford building are charged with felonies](https://www.yahoo.com/news/pro-palestinian-demonstrators-occupied-stanford-031234838.html)
 <!-- feed end -->
 
 ### Onstream
