@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [Seattle City Light probe reveals ‘party truck’ culture in underground network crew](https://www.yahoo.com/news/seattle-city-light-probe-reveals-002859663.html)
-- Apr 10 - [US Supreme Court tells Trump administration to facilitate return of Salvadoran man deported in error](https://www.yahoo.com/news/us-supreme-court-upholds-order-224812994.html)
-- Apr 10 - [Musician says she was left shocked by ‘bizarre’ emails from acting Kennedy Center director Richard Grenell](https://www.yahoo.com/news/musician-says-she-left-shocked-224710365.html)
+- Apr 11 - [Doctors And Nurses Are Calling Out Common Health "Lies" You Should Stop Believing, And It's Shocking](https://www.yahoo.com/lifestyle/doctors-nurses-calling-common-health-021602850.html)
+- Apr 11 - [Siemens exec and his family identified as victims in deadly Hudson helicopter crash](https://www.yahoo.com/news/siemens-ceo-family-identified-victims-005708332.html)
 - Apr 10 - [Rep. Marjorie Taylor Greene bought stocks hit hard by Trump tariffs during the market meltdown](https://finance.yahoo.com/news/rep-marjorie-taylor-greene-bought-201206296.html)
+- Apr 10 - [Trump called a cabinet meeting after walking back his tariff plans. It might as well have been held in Moscow](https://www.yahoo.com/news/trump-called-cabinet-meeting-walking-193232817.html)
 - Apr 10 - [US military planes flew a Patriot air defense battalion out of the Pacific to the Middle East. It took over 70 flights, commander says.](https://www.yahoo.com/news/us-military-planes-flew-patriot-191451712.html)
 <!-- feed end -->
 
