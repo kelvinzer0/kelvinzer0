@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 12 - [Pastor abducted at gunpoint while delivering sermon](https://www.yahoo.com/news/pastor-abducted-gunpoint-while-delivering-144232878.html)
+- Apr 12 - [Hundreds of Passengers Forced to Stay on Planes Overnight After International Flights Diverted to Airport with No Customs](https://www.yahoo.com/entertainment/articles/hundreds-passengers-forced-stay-planes-163401646.html)
+- Apr 12 - [Barack Obama's Steak Order Still Has Us Shaking Our Heads](https://www.yahoo.com/lifestyle/barack-obamas-steak-order-still-161500350.html)
+- Apr 12 - [Kamala Harris mocked on social media for reported interest in creating an institute for policy and ideas](https://www.yahoo.com/news/kamala-harris-mocked-social-media-145047852.html)
 - Apr 12 - [New Research Finds That Dogs Are Incredibly Horrible](https://www.yahoo.com/lifestyle/research-finds-dogs-incredibly-horrible-143025539.html)
-- Apr 12 - [Donald Trump Supporters Are Losing Their Minds Over The New Trump Tariffs, And It's Exactly The Meltdown We All Saw Coming](https://www.yahoo.com/news/donald-trump-supporters-losing-minds-120020153.html)
-- Apr 12 - [Wealthy Americans are buying second homes in this small ski town where slopeside property is quickly disappearing](https://www.yahoo.com/lifestyle/wealthy-americans-buying-second-homes-110302428.html)
-- Apr 12 - [Researchers make stunning discovery after fish disappear from bustling waterway: 'A big deal'](https://www.yahoo.com/news/researchers-stunning-discovery-fish-disappear-104522122.html)
 <!-- feed end -->
 
 ### Onstream
