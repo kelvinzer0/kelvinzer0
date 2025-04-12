@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Patrons hang out with the 'it' animals of the moment at this Florida capybara cafe](https://www.yahoo.com/news/patrons-hang-animals-moment-florida-040202391.html)
-- Apr 12 - [‘People need to wake up’: Father of 4 killed in southwest Las Vegas motorcycle crash](https://www.yahoo.com/news/people-wake-father-4-killed-014534548.html)
 - Apr 12 - [After Dire Wolves Are Resurrected, Trump Administration Says U.S. Endangered Species List Should 'Go Extinct'](https://www.yahoo.com/entertainment/articles/dire-wolves-resurrected-trump-administration-000333896.html)
-- Apr 11 - [VIDEO: Wind, hail reported across Gainesville and Alachua County](https://www.yahoo.com/news/video-wind-hail-reported-across-234747339.html)
 - Apr 11 - [Donald Trump authorizes U.S. military to take control of land on southern border](https://www.yahoo.com/news/donald-trump-authorizes-u-military-232546670.html)
+- Apr 11 - [North Carolina Supreme Court rules most challenged ballots must stay in election count](https://www.yahoo.com/news/north-carolina-supreme-court-rules-213133095.html)
+- Apr 11 - [San Diego asks that you not put these items in your garbage bins](https://www.yahoo.com/news/san-diego-asks-not-put-210435894.html)
+- Apr 11 - [60 years ago, she bit the tongue of the man who allegedly tried to rape her. Now, she’s trying to overturn her conviction](https://www.yahoo.com/news/60-years-ago-she-bit-210036459.html)
 <!-- feed end -->
 
 ### Onstream
