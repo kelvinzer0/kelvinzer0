@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Why Donald Trump Is The Hardest President To Cook For, According To His Former White House Chef](https://www.yahoo.com/lifestyle/why-donald-trump-hardest-president-193000000.html)
+- Apr 12 - [Georgia Girl, 2, Was Taken to a Hospital After She Was Bitten by Fire Ants. Now, Her Parents Have Filed a Wrongful Death Suit](https://www.yahoo.com/entertainment/articles/georgia-girl-2-taken-hospital-190000529.html)
 - Apr 12 - [America's news TV channel for the Mideast fires its staff after funding cuts](https://www.yahoo.com/news/americas-news-tv-channel-mideast-175434485.html)
 - Apr 12 - [Kansas man who was falsely accused of being a shooter after Chiefs’ 2024 Super Bowl win has died](https://www.yahoo.com/news/kansas-man-falsely-accused-being-174242684.html)
-- Apr 12 - [Barack Obama's Steak Order Still Has Us Shaking Our Heads](https://www.yahoo.com/lifestyle/barack-obamas-steak-order-still-161500350.html)
-- Apr 12 - [DOGE Goons Physically Drag Social Security Worker From Desk](https://www.yahoo.com/news/doge-goons-physically-drag-social-161147381.html)
-- Apr 12 - [A 92-year-old refuses to sell her home to the Masters golf course that’s spent $200 million on expansion: ‘Money ain’t everything’](https://www.yahoo.com/news/92-old-refuses-sell-her-153100625.html)
+- Apr 12 - [Pastor abducted at gunpoint while delivering sermon](https://www.yahoo.com/news/pastor-abducted-gunpoint-while-delivering-144232878.html)
 <!-- feed end -->
 
 ### Onstream
