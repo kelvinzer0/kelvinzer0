@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [West Lafayette police arrest made after man allegedly threatens Neon Cactus staff with a gun](https://www.yahoo.com/news/west-lafayette-police-arrest-made-151826088.html)
-- Apr 12 - [Jawbone from ancient land bridge reveals a mysterious human ancestor](https://www.yahoo.com/news/jawbone-ancient-land-bridge-reveals-150035459.html)
+- Apr 12 - [Pastor abducted at gunpoint while delivering sermon](https://www.yahoo.com/news/pastor-abducted-gunpoint-while-delivering-144232878.html)
+- Apr 12 - [New Research Finds That Dogs Are Incredibly Horrible](https://www.yahoo.com/lifestyle/research-finds-dogs-incredibly-horrible-143025539.html)
 - Apr 12 - [Donald Trump Supporters Are Losing Their Minds Over The New Trump Tariffs, And It's Exactly The Meltdown We All Saw Coming](https://www.yahoo.com/news/donald-trump-supporters-losing-minds-120020153.html)
+- Apr 12 - [Wealthy Americans are buying second homes in this small ski town where slopeside property is quickly disappearing](https://www.yahoo.com/lifestyle/wealthy-americans-buying-second-homes-110302428.html)
 - Apr 12 - [Researchers make stunning discovery after fish disappear from bustling waterway: 'A big deal'](https://www.yahoo.com/news/researchers-stunning-discovery-fish-disappear-104522122.html)
-- Apr 12 - [A longevity doctor lost 50 pounds because he worried he wouldn't see his son grow up. He made 4 simple lifestyle changes.](https://www.yahoo.com/lifestyle/longevity-doctor-lost-50-pounds-051201896.html)
 <!-- feed end -->
 
 ### Onstream
