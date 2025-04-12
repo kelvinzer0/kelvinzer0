@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [South Carolina executes second man by firing squad in 5 weeks](https://www.yahoo.com/news/south-carolina-executes-second-man-000956343.html)
+- Apr 12 - [Nearly 300 passengers stuck on planes overnight](https://www.yahoo.com/news/nearly-300-passengers-stuck-planes-010947694.html)
 - Apr 12 - [After Dire Wolves Are Resurrected, Trump Administration Says U.S. Endangered Species List Should 'Go Extinct'](https://www.yahoo.com/entertainment/articles/dire-wolves-resurrected-trump-administration-000333896.html)
-- Apr 11 - [Mysterious altar found in ancient Mayan city contains bodies – and wasn’t made by the Maya](https://www.yahoo.com/news/mysterious-altar-found-ancient-mayan-141456764.html)
+- Apr 11 - [Boca Raton plane crash: NTSB says plane was built in 1977 and was in air 8-10 minutes](https://www.yahoo.com/news/boca-raton-plane-crash-ntsb-235028005.html)
 - Apr 11 - [Donald Trump authorizes U.S. military to take control of land on southern border](https://www.yahoo.com/news/donald-trump-authorizes-u-military-232546670.html)
-- Apr 11 - [Meta's antitrust case, retail sales, housing data: What to Watch](https://finance.yahoo.com/video/metas-antitrust-case-retail-sales-230023162.html)
+- Apr 11 - [Rumor claims Trump will declare martial law on April 20. Here's what we know](https://www.yahoo.com/news/rumor-claims-trump-declare-martial-230800902.html)
 <!-- feed end -->
 
 ### Onstream
