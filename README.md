@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [South Carolina executes second man by firing squad in 5 weeks](https://www.yahoo.com/news/south-carolina-executes-second-man-000956343.html)
+- Apr 12 - [After Dire Wolves Are Resurrected, Trump Administration Says U.S. Endangered Species List Should 'Go Extinct'](https://www.yahoo.com/entertainment/articles/dire-wolves-resurrected-trump-administration-000333896.html)
+- Apr 11 - [Mysterious altar found in ancient Mayan city contains bodies – and wasn’t made by the Maya](https://www.yahoo.com/news/mysterious-altar-found-ancient-mayan-141456764.html)
+- Apr 11 - [Donald Trump authorizes U.S. military to take control of land on southern border](https://www.yahoo.com/news/donald-trump-authorizes-u-military-232546670.html)
 - Apr 11 - [Meta's antitrust case, retail sales, housing data: What to Watch](https://finance.yahoo.com/video/metas-antitrust-case-retail-sales-230023162.html)
-- Apr 11 - [Officials Assess Wildfire Damage in Coastal Texas](https://www.yahoo.com/news/officials-assess-wildfire-damage-coastal-214738356.html)
-- Apr 11 - [North Carolina Supreme Court rules most challenged ballots must stay in election count](https://www.yahoo.com/news/north-carolina-supreme-court-rules-213133095.html)
-- Apr 11 - [60 years ago, she bit the tongue of the man who allegedly tried to rape her. Now, she’s trying to overturn her conviction](https://www.yahoo.com/news/60-years-ago-she-bit-210036459.html)
-- Apr 11 - [Picture of Trump after the assassination attempt displaces Obama portrait at the White House](https://www.yahoo.com/news/picture-trump-assassination-attempt-displaces-203429947.html)
 <!-- feed end -->
 
 ### Onstream
