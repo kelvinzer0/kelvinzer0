@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Is NVIDIA Corp. (NASDAQ:NVDA) the Best Tech Stock to Buy For Long-Term Investment?](https://finance.yahoo.com/news/nvidia-corp-nasdaq-nvda-best-124751329.html)
+- Apr 12 - [RFK Jr. Surprised to Learn He'd Cut a Grant For Youth Diabetes Research](https://www.yahoo.com/news/rfk-jr-surprised-learn-hed-130032379.html)
 - Apr 12 - [Donald Trump Supporters Are Losing Their Minds Over The New Trump Tariffs, And It's Exactly The Meltdown We All Saw Coming](https://www.yahoo.com/news/donald-trump-supporters-losing-minds-120020153.html)
 - Apr 12 - [Meet Walmart heir Steuart Walton, who will lead a new era for the retailer](https://finance.yahoo.com/video/meet-walmart-heir-steuart-walton-112856130.html)
 - Apr 12 - [Researchers make stunning discovery after fish disappear from bustling waterway: 'A big deal'](https://www.yahoo.com/news/researchers-stunning-discovery-fish-disappear-104522122.html)
