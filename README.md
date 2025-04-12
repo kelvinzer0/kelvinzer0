@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Oldest Pearl Harbor survivor dies at 106](https://www.yahoo.com/news/oldest-pearl-harbor-survivor-dies-192559845.html)
+- Apr 12 - [America's news TV channel for the Mideast fires its staff and goes off the air after funding cuts](https://www.yahoo.com/news/americas-news-tv-channel-mideast-175434485.html)
 - Apr 12 - [Pastor abducted at gunpoint while delivering sermon](https://www.yahoo.com/news/pastor-abducted-gunpoint-while-delivering-144232878.html)
 - Apr 12 - [Hundreds of Passengers Forced to Stay on Planes Overnight After International Flights Diverted to Airport with No Customs](https://www.yahoo.com/entertainment/articles/hundreds-passengers-forced-stay-planes-163401646.html)
 - Apr 12 - [Barack Obama's Steak Order Still Has Us Shaking Our Heads](https://www.yahoo.com/lifestyle/barack-obamas-steak-order-still-161500350.html)
-- Apr 12 - [A 92-year-old refuses to sell her home to the Masters golf course that’s spent $200 million on expansion: ‘Money ain’t everything’](https://www.yahoo.com/news/92-old-refuses-sell-her-153100625.html)
-- Apr 12 - [Kamala Harris mocked on social media for reported interest in creating an institute for policy and ideas](https://www.yahoo.com/news/kamala-harris-mocked-social-media-145047852.html)
 <!-- feed end -->
 
 ### Onstream
