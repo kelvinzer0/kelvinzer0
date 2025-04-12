@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Is NVIDIA Corp. (NASDAQ:NVDA) the Best Tech Stock to Buy For Long-Term Investment?](https://finance.yahoo.com/news/nvidia-corp-nasdaq-nvda-best-124751329.html)
+- Apr 12 - [Donald Trump Supporters Are Losing Their Minds Over The New Trump Tariffs, And It's Exactly The Meltdown We All Saw Coming](https://www.yahoo.com/news/donald-trump-supporters-losing-minds-120020153.html)
 - Apr 12 - [Meet Walmart heir Steuart Walton, who will lead a new era for the retailer](https://finance.yahoo.com/video/meet-walmart-heir-steuart-walton-112856130.html)
-- Apr 12 - [Can You Walk To Burn Fat And Build Muscle At The Same Time? Experts Weigh In](https://www.yahoo.com/lifestyle/walk-burn-fat-build-muscle-104700857.html)
+- Apr 12 - [Researchers make stunning discovery after fish disappear from bustling waterway: 'A big deal'](https://www.yahoo.com/news/researchers-stunning-discovery-fish-disappear-104522122.html)
 - Apr 12 - [A longevity doctor lost 50 pounds because he worried he wouldn't see his son grow up. He made 4 simple lifestyle changes.](https://www.yahoo.com/lifestyle/longevity-doctor-lost-50-pounds-051201896.html)
-- Apr 12 - [Nearly 300 passengers stuck on planes overnight](https://www.yahoo.com/news/nearly-300-passengers-stuck-planes-010947694.html)
-- Apr 12 - [After Dire Wolves Are Resurrected, Trump Administration Says U.S. Endangered Species List Should 'Go Extinct'](https://www.yahoo.com/entertainment/articles/dire-wolves-resurrected-trump-administration-000333896.html)
 <!-- feed end -->
 
 ### Onstream
