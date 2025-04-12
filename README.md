@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Meet Walmart heir Steuart Walton, who will lead a new era for the retailer](https://finance.yahoo.com/video/meet-walmart-heir-steuart-walton-112856130.html)
+- Apr 12 - [Can You Walk To Burn Fat And Build Muscle At The Same Time? Experts Weigh In](https://www.yahoo.com/lifestyle/walk-burn-fat-build-muscle-104700857.html)
 - Apr 12 - [A longevity doctor lost 50 pounds because he worried he wouldn't see his son grow up. He made 4 simple lifestyle changes.](https://www.yahoo.com/lifestyle/longevity-doctor-lost-50-pounds-051201896.html)
 - Apr 12 - [Nearly 300 passengers stuck on planes overnight](https://www.yahoo.com/news/nearly-300-passengers-stuck-planes-010947694.html)
 - Apr 12 - [After Dire Wolves Are Resurrected, Trump Administration Says U.S. Endangered Species List Should 'Go Extinct'](https://www.yahoo.com/entertainment/articles/dire-wolves-resurrected-trump-administration-000333896.html)
-- Apr 11 - [San Diego asks that you not put these items in your garbage bins](https://www.yahoo.com/news/san-diego-asks-not-put-210435894.html)
-- Apr 11 - [60 years ago, she bit the tongue of the man who allegedly tried to rape her. Now, she’s trying to overturn her conviction](https://www.yahoo.com/news/60-years-ago-she-bit-210036459.html)
 <!-- feed end -->
 
 ### Onstream
