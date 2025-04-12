@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Protesting Hungarians mock Orban's anti-LGBT moves, saying 'Let's all be the same'](https://www.yahoo.com/news/protesting-hungarians-mock-orbans-anti-144021021.html)
-- Apr 12 - [Cold winds sweep Beijing, close key sites, disrupt travel](https://www.yahoo.com/news/cold-winds-sweep-beijing-close-133312774.html)
-- Apr 12 - [Wealthy Americans are buying second homes in this small ski town where slopeside property is quickly disappearing](https://www.yahoo.com/lifestyle/wealthy-americans-buying-second-homes-110302428.html)
+- Apr 12 - [West Lafayette police arrest made after man allegedly threatens Neon Cactus staff with a gun](https://www.yahoo.com/news/west-lafayette-police-arrest-made-151826088.html)
+- Apr 12 - [Jawbone from ancient land bridge reveals a mysterious human ancestor](https://www.yahoo.com/news/jawbone-ancient-land-bridge-reveals-150035459.html)
+- Apr 12 - [Donald Trump Supporters Are Losing Their Minds Over The New Trump Tariffs, And It's Exactly The Meltdown We All Saw Coming](https://www.yahoo.com/news/donald-trump-supporters-losing-minds-120020153.html)
 - Apr 12 - [Researchers make stunning discovery after fish disappear from bustling waterway: 'A big deal'](https://www.yahoo.com/news/researchers-stunning-discovery-fish-disappear-104522122.html)
-- Apr 12 - [Best TVs of 2025: Tested by CNET Experts](https://tech.yahoo.com/home-entertainment/tvs/articles/best-tv-super-bowl-lix-214500926.html)
+- Apr 12 - [A longevity doctor lost 50 pounds because he worried he wouldn't see his son grow up. He made 4 simple lifestyle changes.](https://www.yahoo.com/lifestyle/longevity-doctor-lost-50-pounds-051201896.html)
 <!-- feed end -->
 
 ### Onstream
