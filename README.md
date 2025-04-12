@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [RFK Jr. Surprised to Learn He'd Cut a Grant For Youth Diabetes Research](https://www.yahoo.com/news/rfk-jr-surprised-learn-hed-130032379.html)
-- Apr 12 - [Donald Trump Supporters Are Losing Their Minds Over The New Trump Tariffs, And It's Exactly The Meltdown We All Saw Coming](https://www.yahoo.com/news/donald-trump-supporters-losing-minds-120020153.html)
-- Apr 12 - [Meet Walmart heir Steuart Walton, who will lead a new era for the retailer](https://finance.yahoo.com/video/meet-walmart-heir-steuart-walton-112856130.html)
+- Apr 12 - [Protesting Hungarians mock Orban's anti-LGBT moves, saying 'Let's all be the same'](https://www.yahoo.com/news/protesting-hungarians-mock-orbans-anti-144021021.html)
+- Apr 12 - [Cold winds sweep Beijing, close key sites, disrupt travel](https://www.yahoo.com/news/cold-winds-sweep-beijing-close-133312774.html)
+- Apr 12 - [Wealthy Americans are buying second homes in this small ski town where slopeside property is quickly disappearing](https://www.yahoo.com/lifestyle/wealthy-americans-buying-second-homes-110302428.html)
 - Apr 12 - [Researchers make stunning discovery after fish disappear from bustling waterway: 'A big deal'](https://www.yahoo.com/news/researchers-stunning-discovery-fish-disappear-104522122.html)
-- Apr 12 - [A longevity doctor lost 50 pounds because he worried he wouldn't see his son grow up. He made 4 simple lifestyle changes.](https://www.yahoo.com/lifestyle/longevity-doctor-lost-50-pounds-051201896.html)
+- Apr 12 - [Best TVs of 2025: Tested by CNET Experts](https://tech.yahoo.com/home-entertainment/tvs/articles/best-tv-super-bowl-lix-214500926.html)
 <!-- feed end -->
 
 ### Onstream
