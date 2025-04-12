@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Oldest Pearl Harbor survivor dies at 106](https://www.yahoo.com/news/oldest-pearl-harbor-survivor-dies-192559845.html)
+- Apr 12 - [Regulators order corrective action as Keystone Pipeline operators aim to restore service](https://www.yahoo.com/news/regulators-order-corrective-action-keystone-194344005.html)
+- Apr 12 - [‘Tiger Brigade’ deployment ceremony to send off 700 Louisiana guardsmen in Lafayette](https://www.yahoo.com/news/tiger-brigade-deployment-ceremony-send-190720094.html)
 - Apr 12 - [America's news TV channel for the Mideast fires its staff and goes off the air after funding cuts](https://www.yahoo.com/news/americas-news-tv-channel-mideast-175434485.html)
 - Apr 12 - [Pastor abducted at gunpoint while delivering sermon](https://www.yahoo.com/news/pastor-abducted-gunpoint-while-delivering-144232878.html)
-- Apr 12 - [Hundreds of Passengers Forced to Stay on Planes Overnight After International Flights Diverted to Airport with No Customs](https://www.yahoo.com/entertainment/articles/hundreds-passengers-forced-stay-planes-163401646.html)
-- Apr 12 - [Barack Obama's Steak Order Still Has Us Shaking Our Heads](https://www.yahoo.com/lifestyle/barack-obamas-steak-order-still-161500350.html)
+- Apr 12 - [Dominican club collapse death toll rises to 226 after woman pulled from rubble dies in hospital](https://www.yahoo.com/news/death-toll-dominican-club-roof-165109401.html)
 <!-- feed end -->
 
 ### Onstream
