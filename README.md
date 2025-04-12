@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Nearly 300 passengers stuck on planes overnight](https://www.yahoo.com/news/nearly-300-passengers-stuck-planes-010947694.html)
+- Apr 12 - [Patrons hang out with the 'it' animals of the moment at this Florida capybara cafe](https://www.yahoo.com/news/patrons-hang-animals-moment-florida-040202391.html)
 - Apr 12 - [After Dire Wolves Are Resurrected, Trump Administration Says U.S. Endangered Species List Should 'Go Extinct'](https://www.yahoo.com/entertainment/articles/dire-wolves-resurrected-trump-administration-000333896.html)
-- Apr 11 - [Boca Raton plane crash: NTSB says plane was built in 1977 and was in air 8-10 minutes](https://www.yahoo.com/news/boca-raton-plane-crash-ntsb-235028005.html)
 - Apr 11 - [Donald Trump authorizes U.S. military to take control of land on southern border](https://www.yahoo.com/news/donald-trump-authorizes-u-military-232546670.html)
 - Apr 11 - [Rumor claims Trump will declare martial law on April 20. Here's what we know](https://www.yahoo.com/news/rumor-claims-trump-declare-martial-230800902.html)
+- Apr 11 - [North Carolina Supreme Court rules most challenged ballots must stay in election count](https://www.yahoo.com/news/north-carolina-supreme-court-rules-213133095.html)
 <!-- feed end -->
 
 ### Onstream
