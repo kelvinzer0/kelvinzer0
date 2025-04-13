@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 13 - [Russia missile strike kills more than 20 in Ukraine's Sumy, mayor says](https://www.yahoo.com/news/russian-missile-strike-ukraines-sumy-081830619.html)
 - Apr 13 - [Chinese EV giant BYD overtakes Tesla in the Global EV race](https://finance.yahoo.com/video/chinese-ev-giant-byd-overtakes-062449241.html)
+- Apr 13 - [How Sweden’s multi-cultural dream went fatally wrong](https://www.yahoo.com/news/sweden-multi-cultural-dream-went-055041254.html)
 - Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
-- Apr 12 - [Trump’s ‘punitive’ China tariffs could end trade between the world’s two largest economies—and that would be painful, volatile, and dangerous](https://finance.yahoo.com/news/trump-punitive-china-tariffs-could-230705252.html)
 - Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
-- Apr 12 - [Metro Atlanta murder suspects arrested hours away in coastal Georgia](https://www.yahoo.com/news/metro-atlanta-murder-suspects-arrested-192412065.html)
 <!-- feed end -->
 
 ### Onstream
