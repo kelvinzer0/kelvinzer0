@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [UK will set 'high trust bar' for future Chinese investment after British Steel rescue, minister says](https://www.yahoo.com/news/uk-set-high-trust-bar-134153541.html)
+- Apr 13 - [Plane carrying six people crashes in upstate New York](https://www.yahoo.com/news/plane-carrying-six-people-crashes-145618518.html)
+- Apr 13 - [Trump is 'fully fit' to serve as commander in chief, his doctor says after recent physical](https://www.yahoo.com/news/trump-fully-fit-serve-commander-142930156.html)
+- Apr 13 - [Investor tips for buying the dip & navigating volatility](https://finance.yahoo.com/video/investor-tips-buying-dip-navigating-140028920.html)
 - Apr 13 - [NYC helicopter crash: Victims' family member speaks out](https://www.yahoo.com/news/nyc-helicopter-crash-victims-family-133455593.html)
-- Apr 13 - [I bought a Cybertruck for my business. After receiving threats, I paid over $400 to teach my staff self-defense.](https://finance.yahoo.com/news/bought-cybertruck-business-receiving-threats-111402706.html)
-- Apr 13 - [Eat a banana, swap salt for garlic and skip late-night meals — plus 6 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/eat-a-banana-swap-salt-for-garlic-and-skip-late-night-meals--plus-6-more-health-tips-to-help-you-have-a-great-week-090011549.html)
-- Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
+- Apr 13 - [Walking At This Pace 'Significantly' Boosted Weight Loss In Women Over 50, Per Study](https://www.yahoo.com/lifestyle/walking-pace-significantly-boosted-weight-091000780.html)
 <!-- feed end -->
 
 ### Onstream
