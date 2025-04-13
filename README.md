@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 13 - [Amazon and Alphabet Bet Big on AI. Why History Says It's Time to Buy Both Stocks](https://finance.yahoo.com/news/amazon-alphabet-bet-big-ai-224500163.html)
+- Apr 13 - [Sephora's massive sale ends tomorrow. I tried $2,083 worth of beauty products — here's what's worth buying (and what you should skip)](https://www.yahoo.com/lifestyle/sephoras-massive-sale-ends-tomorrow-i-tried-2083-worth-of-beauty-products--heres-whats-worth-buying-and-what-you-should-skip-212955680.html)
 - Apr 13 - [New armed extremist group claims responsibility for bombing near rail company headquarters](https://www.yahoo.com/news/armed-extremist-group-claims-responsibility-203351658.html)
-- Apr 13 - [Hedge Fund Billionaire Ray Dalio Warns ‘Meet the Press’ Tariffs Could Bring ‘Something Worse Than a Recession’ | Video](https://finance.yahoo.com/news/hedge-fund-billionaire-ray-dalio-183954298.html)
+- Apr 13 - [iPad software will reportedly get more Mac-like with the iPadOS 19 redesign](https://tech.yahoo.com/article/ipad-software-will-reportedly-get-more-mac-like-with-the-ipados-19-redesign-200759136.html)
 - Apr 13 - [6 injured in Northwest Austin home explosion, 24 other houses damaged, authorities say](https://www.yahoo.com/news/home-explodes-northwest-austin-near-174730613.html)
-- Apr 13 - [Scientists Found a 520-Million-Year-Old Miracle: a Fossil With Brains and Guts Intact](https://www.yahoo.com/news/scientists-found-520-million-old-174200867.html)
-- Apr 13 - [Donald Trump's Annual Physical Exam Reveals What Medications He's Taking — and If He's Lost Weight Since His First Term](https://www.yahoo.com/entertainment/articles/donald-trumps-annual-physical-exam-160041439.html)
 <!-- feed end -->
 
 ### Onstream
