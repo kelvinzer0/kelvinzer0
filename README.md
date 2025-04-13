@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [Search for suspect underway after Pennsylvania governor's mansion catches fire](https://www.yahoo.com/news/search-suspect-underway-pennsylvania-governors-181613502.html)
+- Apr 13 - [Hedge Fund Billionaire Ray Dalio Warns ‘Meet the Press’ Tariffs Could Bring ‘Something Worse Than a Recession’ | Video](https://finance.yahoo.com/news/hedge-fund-billionaire-ray-dalio-183954298.html)
+- Apr 13 - [‘I realized, it might have to be me’: Lawyer resigns from firm over Trump deal, says ‘pay attention’](https://www.yahoo.com/news/realized-might-lawyer-resigns-firm-172402568.html)
 - Apr 13 - [Donald Trump's Annual Physical Exam Reveals What Medications He's Taking — and If He's Lost Weight Since His First Term](https://www.yahoo.com/entertainment/articles/donald-trumps-annual-physical-exam-160041439.html)
-- Apr 13 - [Jack Dorsey and Elon Musk would like to ‘delete all IP law’](https://finance.yahoo.com/news/jack-dorsey-elon-musk-delete-151201898.html)
-- Apr 13 - [Gov. Josh Shapiro and his family escape fire set at the Governor's Residence: PA police](https://www.yahoo.com/news/gov-josh-shapiro-family-escape-150606697.html)
+- Apr 13 - [Just to break even after the recent selloff, stocks will need to have the sort of rally that only happens during bull markets](https://finance.yahoo.com/news/just-break-even-recent-selloff-154014355.html)
 - Apr 13 - [UK will set 'high trust bar' for future Chinese investment after British Steel rescue, minister says](https://www.yahoo.com/news/uk-set-high-trust-bar-134153541.html)
 <!-- feed end -->
 
