@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [Hedge Fund Billionaire Ray Dalio Warns ‘Meet the Press’ Tariffs Could Bring ‘Something Worse Than a Recession’ | Video](https://finance.yahoo.com/news/hedge-fund-billionaire-ray-dalio-183954298.html)
+- Apr 13 - [New armed extremist group claims responsibility for bombing near rail company headquarters](https://www.yahoo.com/news/armed-extremist-group-claims-responsibility-203351658.html)
+- Apr 13 - [Nissan sports car driver wanted for fleeing from El Paso police, trying to hit officer](https://www.yahoo.com/news/nissan-sports-car-driver-wanted-194859142.html)
+- Apr 13 - [Vistra (VST) Upgraded by BofA as Power Demand, AI Needs Surge](https://finance.yahoo.com/news/vistra-vst-upgraded-bofa-power-183758054.html)
+- Apr 13 - [Scientists Found a 520-Million-Year-Old Miracle: a Fossil With Brains and Guts Intact](https://www.yahoo.com/news/scientists-found-520-million-old-174200867.html)
 - Apr 13 - [‘I realized, it might have to be me’: Lawyer resigns from firm over Trump deal, says ‘pay attention’](https://www.yahoo.com/news/realized-might-lawyer-resigns-firm-172402568.html)
-- Apr 13 - [Donald Trump's Annual Physical Exam Reveals What Medications He's Taking — and If He's Lost Weight Since His First Term](https://www.yahoo.com/entertainment/articles/donald-trumps-annual-physical-exam-160041439.html)
-- Apr 13 - [Just to break even after the recent selloff, stocks will need to have the sort of rally that only happens during bull markets](https://finance.yahoo.com/news/just-break-even-recent-selloff-154014355.html)
-- Apr 13 - [UK will set 'high trust bar' for future Chinese investment after British Steel rescue, minister says](https://www.yahoo.com/news/uk-set-high-trust-bar-134153541.html)
 <!-- feed end -->
 
 ### Onstream
