@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [Russia missile strike kills more than 20 in Ukraine's Sumy, mayor says](https://www.yahoo.com/news/russian-missile-strike-ukraines-sumy-081830619.html)
-- Apr 13 - [Chinese EV giant BYD overtakes Tesla in the Global EV race](https://finance.yahoo.com/video/chinese-ev-giant-byd-overtakes-062449241.html)
+- Apr 13 - [I'm a former recruiter for Google and Indeed. If I were labeled an underperformer, here's what I'd do next.](https://www.yahoo.com/lifestyle/im-former-recruiter-google-indeed-090702935.html)
+- Apr 13 - [Eat a banana, swap salt for garlic and skip late-night meals — plus 6 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/eat-a-banana-swap-salt-for-garlic-and-skip-late-night-meals--plus-6-more-health-tips-to-help-you-have-a-great-week-090011549.html)
+- Apr 13 - [A federal worker was months away from a full pension when DOGE laid her off. Now she'll get $3,000 less per month.](https://www.yahoo.com/news/federal-worker-months-away-full-080502567.html)
 - Apr 13 - [How Sweden’s multi-cultural dream went fatally wrong](https://www.yahoo.com/news/sweden-multi-cultural-dream-went-055041254.html)
 - Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
-- Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
 <!-- feed end -->
 
 ### Onstream
