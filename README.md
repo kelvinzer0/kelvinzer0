@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [New build estate drama as row breaks out over wall just two bricks high](https://www.yahoo.com/news/build-estate-drama-row-breaks-125108172.html)
-- Apr 13 - [Scientists Intrigued by Tree That Harnesses Electricity to Kill Its Enemies](https://www.yahoo.com/news/scientists-intrigued-tree-harnesses-electricity-121508512.html)
-- Apr 13 - [‘I'm definitely taking a hit economically’: Florida condo market slumps as prices fall, listings surge](https://finance.yahoo.com/news/im-definitely-taking-hit-economically-103100794.html)
-- Apr 13 - [GM drowning in unsold BrightDrop vans as mounting EV inventory sparks mass layoffs](https://finance.yahoo.com/news/gm-drowning-unsold-brightdrop-vans-090502930.html)
-- Apr 12 - [Trump’s ‘punitive’ China tariffs could end trade between the world’s two largest economies—and that would be painful, volatile, and dangerous](https://finance.yahoo.com/news/trump-punitive-china-tariffs-could-230705252.html)
+- Apr 13 - [UK will set 'high trust bar' for future Chinese investment after British Steel rescue, minister says](https://www.yahoo.com/news/uk-set-high-trust-bar-134153541.html)
+- Apr 13 - [NYC helicopter crash: Victims' family member speaks out](https://www.yahoo.com/news/nyc-helicopter-crash-victims-family-133455593.html)
+- Apr 13 - [I bought a Cybertruck for my business. After receiving threats, I paid over $400 to teach my staff self-defense.](https://finance.yahoo.com/news/bought-cybertruck-business-receiving-threats-111402706.html)
+- Apr 13 - [Eat a banana, swap salt for garlic and skip late-night meals — plus 6 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/eat-a-banana-swap-salt-for-garlic-and-skip-late-night-meals--plus-6-more-health-tips-to-help-you-have-a-great-week-090011549.html)
+- Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
 <!-- feed end -->
 
 ### Onstream
