@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [How Sweden’s multi-cultural dream went fatally wrong](https://www.yahoo.com/news/sweden-multi-cultural-dream-went-055041254.html)
+- Apr 12 - [Trump’s ‘punitive’ China tariffs could end trade between the world’s two largest economies—and that would be painful, volatile, and dangerous](https://finance.yahoo.com/news/trump-punitive-china-tariffs-could-230705252.html)
 - Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
-- Apr 12 - [San Diego restaurateur sentenced for COVID-relief fraud, tax evasion](https://www.yahoo.com/news/san-diego-restaurateur-sentenced-covid-194843323.html)
-- Apr 12 - [Kansas man who was falsely accused of being a shooter after Chiefs’ 2024 Super Bowl win has died](https://www.yahoo.com/news/kansas-man-falsely-accused-being-174242684.html)
+- Apr 12 - [Church security guard killed, another injured in shooting at MS Coast event, police said](https://www.yahoo.com/news/church-security-guard-killed-another-210630422.html)
+- Apr 12 - [Bomb threat investigation leads to PSPD warn residents away from area near Baristo Park](https://www.yahoo.com/news/palm-springs-police-urge-public-210525660.html)
 - Apr 12 - [Hundreds of Passengers Forced to Stay on Planes Overnight After International Flights Diverted to Airport with No Customs](https://www.yahoo.com/entertainment/articles/hundreds-passengers-forced-stay-planes-163401646.html)
 <!-- feed end -->
 
