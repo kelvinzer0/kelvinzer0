@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [I bought a Cybertruck for my business. After receiving threats, I paid over $400 to teach my staff self-defense.](https://finance.yahoo.com/news/bought-cybertruck-business-receiving-threats-111402706.html)
+- Apr 13 - [New build estate drama as row breaks out over wall just two bricks high](https://www.yahoo.com/news/build-estate-drama-row-breaks-125108172.html)
+- Apr 13 - [Scientists Intrigued by Tree That Harnesses Electricity to Kill Its Enemies](https://www.yahoo.com/news/scientists-intrigued-tree-harnesses-electricity-121508512.html)
+- Apr 13 - [‘I'm definitely taking a hit economically’: Florida condo market slumps as prices fall, listings surge](https://finance.yahoo.com/news/im-definitely-taking-hit-economically-103100794.html)
 - Apr 13 - [GM drowning in unsold BrightDrop vans as mounting EV inventory sparks mass layoffs](https://finance.yahoo.com/news/gm-drowning-unsold-brightdrop-vans-090502930.html)
-- Apr 13 - [Eat a banana, swap salt for garlic and skip late-night meals — plus 6 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/eat-a-banana-swap-salt-for-garlic-and-skip-late-night-meals--plus-6-more-health-tips-to-help-you-have-a-great-week-090011549.html)
-- Apr 13 - [Arizona Lottery Powerball, The Pick results for April 12, 2025](https://www.yahoo.com/news/arizona-lottery-powerball-pick-results-041008603.html)
-- Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
+- Apr 12 - [Trump’s ‘punitive’ China tariffs could end trade between the world’s two largest economies—and that would be painful, volatile, and dangerous](https://finance.yahoo.com/news/trump-punitive-china-tariffs-could-230705252.html)
 <!-- feed end -->
 
 ### Onstream
