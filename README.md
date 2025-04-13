@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Why Donald Trump Is The Hardest President To Cook For, According To His Former White House Chef](https://www.yahoo.com/lifestyle/why-donald-trump-hardest-president-193000000.html)
-- Apr 12 - [Georgia Girl, 2, Was Taken to a Hospital After She Was Bitten by Fire Ants. Now, Her Parents Have Filed a Wrongful Death Suit](https://www.yahoo.com/entertainment/articles/georgia-girl-2-taken-hospital-190000529.html)
-- Apr 12 - [America's news TV channel for the Mideast fires its staff after funding cuts](https://www.yahoo.com/news/americas-news-tv-channel-mideast-175434485.html)
-- Apr 12 - [Kansas man who was falsely accused of being a shooter after Chiefs’ 2024 Super Bowl win has died](https://www.yahoo.com/news/kansas-man-falsely-accused-being-174242684.html)
-- Apr 12 - [Pastor abducted at gunpoint while delivering sermon](https://www.yahoo.com/news/pastor-abducted-gunpoint-while-delivering-144232878.html)
+- Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
+- Apr 12 - [Trump’s ‘punitive’ China tariffs could end trade between the world’s two largest economies—and that would be painful, volatile, and dangerous](https://finance.yahoo.com/news/trump-punitive-china-tariffs-could-230705252.html)
+- Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
+- Apr 12 - [Wisconsin teen allegedly killed parents in extremist plot to assassinate Trump, FBI says](https://www.yahoo.com/news/wisconsin-teen-allegedly-killed-parents-200300135.html)
+- Apr 12 - [San Diego restaurateur sentenced for COVID-relief fraud, tax evasion](https://www.yahoo.com/news/san-diego-restaurateur-sentenced-covid-194843323.html)
 <!-- feed end -->
 
 ### Onstream
