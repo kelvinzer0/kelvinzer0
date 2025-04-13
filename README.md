@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [Plane carrying six people crashes in upstate New York](https://www.yahoo.com/news/plane-carrying-six-people-crashes-145618518.html)
-- Apr 13 - [Trump is 'fully fit' to serve as commander in chief, his doctor says after recent physical](https://www.yahoo.com/news/trump-fully-fit-serve-commander-142930156.html)
-- Apr 13 - [Investor tips for buying the dip & navigating volatility](https://finance.yahoo.com/video/investor-tips-buying-dip-navigating-140028920.html)
-- Apr 13 - [NYC helicopter crash: Victims' family member speaks out](https://www.yahoo.com/news/nyc-helicopter-crash-victims-family-133455593.html)
+- Apr 13 - [Former LSU receiver, NFL prospect Kyren Lacy found dead in Houston: Reports](https://sports.yahoo.com/college-football/article/former-lsu-receiver-nfl-prospect-kyren-lacy-found-dead-in-houston-reports-150101176.html)
+- Apr 13 - [Can You Really Go to Jail for Not Paying Your Taxes? The Answer May Surprise You](https://finance.yahoo.com/news/really-jail-not-paying-taxes-140000440.html)
+- Apr 13 - [Fire causes estimated $460K in damage to Clarence home](https://www.yahoo.com/news/fire-causes-estimated-460k-damage-115416943.html)
+- Apr 13 - [Coca-Cola slammed for quietly quitting on major initiative and hoping no one would notice: 'Masterclass'](https://www.yahoo.com/news/coca-cola-slammed-quietly-quitting-110036242.html)
 - Apr 13 - [Walking At This Pace 'Significantly' Boosted Weight Loss In Women Over 50, Per Study](https://www.yahoo.com/lifestyle/walking-pace-significantly-boosted-weight-091000780.html)
 <!-- feed end -->
 
