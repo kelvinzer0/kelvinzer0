@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 13 - [‘Saturday Night Live’ Opens With Donald Trump Comparing Himself To The Messiah — “Because Of The Mess I, Ah, Made Out Of The Economy”](https://www.yahoo.com/entertainment/articles/saturday-night-live-opens-donald-035726890.html)
 - Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
 - Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
-- Apr 12 - [Kansas man who was falsely accused of being a shooter after Chiefs’ 2024 Super Bowl win has died](https://www.yahoo.com/news/kansas-man-falsely-accused-being-174242684.html)
-- Apr 12 - [Hundreds of Passengers Forced to Stay on Planes Overnight After International Flights Diverted to Airport with No Customs](https://www.yahoo.com/entertainment/articles/hundreds-passengers-forced-stay-planes-163401646.html)
-- Apr 12 - [DOGE Goons Physically Drag Social Security Worker From Desk](https://www.yahoo.com/news/doge-goons-physically-drag-social-161147381.html)
+- Apr 12 - [Plane Seen Flying Erratically Before Fatal Crash in Boca Raton](https://www.yahoo.com/news/plane-seen-flying-erratically-fatal-221924633.html)
+- Apr 12 - [Church security guard killed, another injured in shooting at MS Coast event, police said](https://www.yahoo.com/news/church-security-guard-killed-another-210630422.html)
 <!-- feed end -->
 
 ### Onstream
