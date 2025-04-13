@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [Is it legal to shoot invasive iguanas in Palm Beach County, Florida? Here’s what to know](https://www.yahoo.com/news/legal-shoot-invasive-iguanas-palm-164731455.html)
-- Apr 13 - [Starmer has ‘lost control of borders’ after record small boat crossings](https://www.yahoo.com/news/starmer-lost-control-borders-record-164500862.html)
+- Apr 13 - [15 Of The Best Tweets We Found This Week Came From Women, So Here They Are In All Their Glory](https://www.yahoo.com/lifestyle/15-best-tweets-found-week-174220745.html)
+- Apr 13 - [Starmer has ‘lost control of borders’ after record small boat crossings](https://www.yahoo.com/news/starmer-lost-control-borders-record-164500273.html)
 - Apr 13 - [Donald Trump's Annual Physical Exam Reveals What Medications He's Taking — and If He's Lost Weight Since His First Term](https://www.yahoo.com/entertainment/articles/donald-trumps-annual-physical-exam-160041439.html)
+- Apr 13 - [Jack Dorsey and Elon Musk would like to ‘delete all IP law’](https://finance.yahoo.com/news/jack-dorsey-elon-musk-delete-151201898.html)
 - Apr 13 - [Gov. Josh Shapiro and his family escape fire set at the Governor's Residence: PA police](https://www.yahoo.com/news/gov-josh-shapiro-family-escape-150606697.html)
-- Apr 13 - [Former LSU receiver, NFL prospect Kyren Lacy found dead in Houston: Reports](https://sports.yahoo.com/college-football/article/former-lsu-receiver-nfl-prospect-kyren-lacy-found-dead-in-houston-reports-150101176.html)
 <!-- feed end -->
 
 ### Onstream
