@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
-- Apr 12 - [Trump’s ‘punitive’ China tariffs could end trade between the world’s two largest economies—and that would be painful, volatile, and dangerous](https://finance.yahoo.com/news/trump-punitive-china-tariffs-could-230705252.html)
 - Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
-- Apr 12 - [Wisconsin teen allegedly killed parents in extremist plot to assassinate Trump, FBI says](https://www.yahoo.com/news/wisconsin-teen-allegedly-killed-parents-200300135.html)
-- Apr 12 - [San Diego restaurateur sentenced for COVID-relief fraud, tax evasion](https://www.yahoo.com/news/san-diego-restaurateur-sentenced-covid-194843323.html)
+- Apr 12 - [Kansas man who was falsely accused of being a shooter after Chiefs’ 2024 Super Bowl win has died](https://www.yahoo.com/news/kansas-man-falsely-accused-being-174242684.html)
+- Apr 12 - [Hundreds of Passengers Forced to Stay on Planes Overnight After International Flights Diverted to Airport with No Customs](https://www.yahoo.com/entertainment/articles/hundreds-passengers-forced-stay-planes-163401646.html)
+- Apr 12 - [DOGE Goons Physically Drag Social Security Worker From Desk](https://www.yahoo.com/news/doge-goons-physically-drag-social-161147381.html)
 <!-- feed end -->
 
 ### Onstream
