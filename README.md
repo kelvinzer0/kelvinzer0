@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [How China went from courting Trump to ‘never yield’ tariff defiance](https://www.yahoo.com/news/china-went-courting-trump-never-100431206.html)
+- Apr 13 - [I bought a Cybertruck for my business. After receiving threats, I paid over $400 to teach my staff self-defense.](https://finance.yahoo.com/news/bought-cybertruck-business-receiving-threats-111402706.html)
 - Apr 13 - [GM drowning in unsold BrightDrop vans as mounting EV inventory sparks mass layoffs](https://finance.yahoo.com/news/gm-drowning-unsold-brightdrop-vans-090502930.html)
-- Apr 13 - [Chinese EV giant BYD overtakes Tesla in the Global EV race](https://finance.yahoo.com/video/chinese-ev-giant-byd-overtakes-062449241.html)
-- Apr 13 - [‘Saturday Night Live’ Opens With Donald Trump Comparing Himself To The Messiah — “Because Of The Mess I, Ah, Made Out Of The Economy”](https://www.yahoo.com/entertainment/articles/saturday-night-live-opens-donald-035726890.html)
-- Apr 13 - [Amanda Knox Says Cops at Seattle Airport Asked Her What She ‘Did’ to Be Imprisoned for Years: ‘Actually, I Didn’t Do It’](https://www.yahoo.com/entertainment/articles/amanda-knox-says-cops-seattle-000102622.html)
+- Apr 13 - [Eat a banana, swap salt for garlic and skip late-night meals — plus 6 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/eat-a-banana-swap-salt-for-garlic-and-skip-late-night-meals--plus-6-more-health-tips-to-help-you-have-a-great-week-090011549.html)
+- Apr 13 - [Arizona Lottery Powerball, The Pick results for April 12, 2025](https://www.yahoo.com/news/arizona-lottery-powerball-pick-results-041008603.html)
+- Apr 12 - [Massive nude woman sculpture in blue city sparks reaction after public unveiling: 'Embarrassed'](https://www.yahoo.com/news/massive-nude-woman-sculpture-blue-223905685.html)
 <!-- feed end -->
 
 ### Onstream
