@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [UK bosses to slash hiring at fastest rate since Covid over tariff fears](https://finance.yahoo.com/news/uk-bosses-slash-hiring-fastest-050000174.html)
+- Apr 14 - [Trump Has A ‘Maximum’ Meltdown On Social Media After Hate-Watching ‘60 Minutes’](https://www.yahoo.com/news/trump-maximum-meltdown-social-media-052258686.html)
 - Apr 14 - [President Trump says CBS and '60 Minutes' should 'pay a big price' for going after him](https://www.yahoo.com/news/president-trump-says-cbs-60-035040999.html)
-- Apr 14 - [Harry Enten breaks down poll on who Americans think is responsible for economic state](https://www.yahoo.com/news/harry-enten-breaks-down-poll-014415401.html)
+- Apr 14 - [Residents react to deadly Russian strikes on heart of Ukraine's Sumy during Palm Sunday celebrations](https://www.yahoo.com/news/residents-react-deadly-russian-strikes-000242861.html)
+- Apr 13 - [The dead in an upstate New York plane crash included 2022 NCAA woman of the year and family members](https://www.yahoo.com/news/dead-upstate-york-plane-crash-231357942.html)
 - Apr 13 - [Trump-appointed official who oversaw dismantling of USAID leaves State Department](https://www.yahoo.com/news/trump-official-oversaw-closure-usaid-215421284.html)
-- Apr 13 - [Sephora's massive sale ends tomorrow. I tried $2,083 worth of beauty products — here's what's worth buying (and what you should skip)](https://www.yahoo.com/lifestyle/sephoras-massive-sale-ends-tomorrow-i-tried-2083-worth-of-beauty-products--heres-whats-worth-buying-and-what-you-should-skip-212955680.html)
 <!-- feed end -->
 
 ### Onstream
