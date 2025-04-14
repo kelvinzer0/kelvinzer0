@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Hungary to vote on legislation targeting LGBTQ+ community as campaign heats up](https://www.yahoo.com/news/hungary-vote-legislation-targeting-lgbtq-121118152.html)
-- Apr 14 - [2 High-Growth Electric Vehicle (EV) Stocks to Buy Now (Hint: Not Tesla)](https://finance.yahoo.com/news/2-high-growth-electric-vehicle-120500308.html)
+- Apr 14 - [Large fire destroys Joliet, IL area factory](https://www.yahoo.com/news/large-fire-destroys-joliet-il-125105384.html)
+- Apr 14 - [Utilities choosing coal, solar, nuclear or other power sources have a lot to consider, beyond just cost](https://www.yahoo.com/news/utilities-choosing-coal-solar-nuclear-124053558.html)
+- Apr 14 - [Intel to sell majority stake in Altera for $4.46 billion to fund revival effort](https://finance.yahoo.com/news/intel-sell-51-stake-altera-123710414.html)
+- Apr 14 - [US Coast Guard says 1 dead, 4 rescued and 5 missing from capsized boat off Florida's Atlantic Coast](https://www.yahoo.com/news/us-coast-guard-says-1-123653020.html)
 - Apr 14 - [Kremlin says tough line from Merz on Ukraine risks escalating war](https://www.yahoo.com/news/kremlin-says-tough-line-merz-115607980.html)
-- Apr 14 - [Uber cofounder says AI means some consultants are in 'big trouble'](https://finance.yahoo.com/news/uber-cofounder-says-ai-means-114127930.html)
-- Apr 14 - [Top US power sector CEOs pull down $115 million in performance pay](https://finance.yahoo.com/news/top-us-power-sector-ceos-111509537.html)
 <!-- feed end -->
 
 ### Onstream
