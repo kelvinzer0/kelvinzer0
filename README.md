@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 14 - [Donald Trump Again Lashes Out At CBS And ’60 Minutes’ And Urges FCC Chair To “Impose The Maximum Fines And Punishment”](https://www.yahoo.com/news/donald-trump-again-lashes-cbs-022838680.html)
+- Apr 14 - [North Korea is making what could be its largest, most advanced warship ever, new satellite photos show](https://www.yahoo.com/news/north-korea-making-could-largest-021217034.html)
+- Apr 14 - [Peruvian writer and Nobel Prize winner Mario Vargas Llosa dies age 89](https://www.yahoo.com/news/peruvian-writer-nobel-prize-winner-015052293.html)
 - Apr 13 - [The dead in an upstate New York plane crash included 2022 NCAA woman of the year and family members](https://www.yahoo.com/news/dead-upstate-york-plane-crash-231357942.html)
-- Apr 13 - [Police issue warning after several children reported missing on beach](https://www.yahoo.com/news/police-issue-warning-several-children-184641840.html)
 - Apr 13 - [Stock market today: Dow, S&P 500, Nasdaq futures rise as tech gets a temporary tariff reprieve](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-rise-as-tech-gets-a-temporary-tariff-reprieve-221244481.html)
-- Apr 13 - [Trump-appointed official who oversaw dismantling of USAID leaves State Department](https://www.yahoo.com/news/trump-official-oversaw-closure-usaid-215421284.html)
-- Apr 13 - [New armed extremist group claims responsibility for bombing near rail company headquarters](https://www.yahoo.com/news/armed-extremist-group-claims-responsibility-203351658.html)
 <!-- feed end -->
 
 ### Onstream
