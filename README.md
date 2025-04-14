@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 14 - [Jim Cramer on Recursion (RXRX): “The AI Company That Has It – Backed by Jensen Huang and NVIDIA”](https://finance.yahoo.com/news/jim-cramer-recursion-rxrx-ai-193510944.html)
+- Apr 14 - [Is Adobe Inc. (ADBE) the Best Bargain Stock to Buy in May?](https://finance.yahoo.com/news/adobe-inc-adbe-best-bargain-193042231.html)
 - Apr 14 - [Economists continue to revise estimates for Trump's tariff policy. Most possibilities still take us back to the 1910s.](https://finance.yahoo.com/news/economists-continue-to-revise-estimates-for-trumps-tariff-policy-most-possibilities-still-take-us-back-to-the-1910s-184137558.html)
 - Apr 14 - [Company plans to restart Keystone Pipeline after oil spill in rural North Dakota](https://www.yahoo.com/news/company-plans-restart-keystone-pipeline-183604856.html)
-- Apr 14 - [Trump wants to deport some US citizens to El Salvador](https://www.yahoo.com/news/trump-wants-deport-us-citizens-181642313.html)
-- Apr 14 - [5.2 magnitude earthquake near San Diego rattles Southern California](https://www.yahoo.com/news/52-magnitude-earthquake-near-san-diego-rattles-southern-california-173708277.html)
-- Apr 14 - [Mysterious Weapon Fired From M2 Bradley Fighting Vehicle Identified](https://www.yahoo.com/news/mysterious-weapon-fired-m2-bradley-173123170.html)
+- Apr 14 - [New York plane crash claims lives of high-achieving family celebrating a birthday](https://www.yahoo.com/news/york-plane-crash-claims-lives-182616014.html)
 <!-- feed end -->
 
 ### Onstream
