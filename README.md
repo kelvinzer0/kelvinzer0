@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Tourists slammed by environmental group for causing harm to Spain’s highest peak](https://www.yahoo.com/lifestyle/tourists-slammed-environmental-group-causing-095543931.html)
-- Apr 14 - [Coal Plant Cooling Tower Disappears in Cloud of Dust](https://www.yahoo.com/news/coal-plant-cooling-tower-disappears-095807815.html)
-- Apr 14 - [Futures rally, tech shares jump on tariff reprieve for some electronics](https://finance.yahoo.com/news/futures-rally-tech-shares-jump-095206975.html)
-- Apr 14 - [The dead in an upstate New York plane crash included 2022 NCAA woman of the year and family members](https://www.yahoo.com/news/dead-upstate-york-plane-crash-231357942.html)
-- Apr 14 - [This gut bacteria can help prevent obesity. Here’s how to boost it](https://www.yahoo.com/news/unusual-gut-bacteria-could-prevent-121841958.html)
+- Apr 14 - ['Where is your baby?': A familiar tragedy strikes US for the first time in 2025](https://www.yahoo.com/news/where-baby-familiar-tragedy-strikes-100341827.html)
+- Apr 14 - [High school students reconsidering applying to Ohio universities due to new higher education law](https://www.yahoo.com/news/high-school-students-reconsidering-applying-091031246.html)
+- Apr 14 - [FTSE 100 LIVE: Tech stocks rise amid mixed messages on Trump's electronics tariff reprieve](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-trump-electronics-tariff-reprieve-080201135.html)
+- Apr 14 - [China imposes visa restrictions on US personnel over Tibet](https://www.yahoo.com/news/china-imposes-visa-restrictions-us-072523200.html)
+- Apr 14 - [A former Colorado sheriff's deputy is to be sentenced in the death of Christian Glass](https://www.yahoo.com/news/former-colorado-sheriffs-deputy-sentenced-040925504.html)
 <!-- feed end -->
 
 ### Onstream
