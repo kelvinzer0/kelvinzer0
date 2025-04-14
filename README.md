@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Texas Fire Burning 'Mountain' of Dirt and Tires Could Last Days](https://www.yahoo.com/news/texas-fire-burning-mountain-dirt-091051040.html)
+- Apr 14 - [Tourists slammed by environmental group for causing harm to Spain’s highest peak](https://www.yahoo.com/lifestyle/tourists-slammed-environmental-group-causing-095543931.html)
+- Apr 14 - [Coal Plant Cooling Tower Disappears in Cloud of Dust](https://www.yahoo.com/news/coal-plant-cooling-tower-disappears-095807815.html)
+- Apr 14 - [Futures rally, tech shares jump on tariff reprieve for some electronics](https://finance.yahoo.com/news/futures-rally-tech-shares-jump-095206975.html)
+- Apr 14 - [The dead in an upstate New York plane crash included 2022 NCAA woman of the year and family members](https://www.yahoo.com/news/dead-upstate-york-plane-crash-231357942.html)
 - Apr 14 - [This gut bacteria can help prevent obesity. Here’s how to boost it](https://www.yahoo.com/news/unusual-gut-bacteria-could-prevent-121841958.html)
-- Apr 14 - [Trump official who helped dismantle USAID leaves role after ‘depriving millions’ of life-saving support](https://www.yahoo.com/news/trump-official-helped-dismantle-usaid-084741251.html)
-- Apr 14 - [Train of Light Dashes Across Puerto Vallarta Night Sky in Mesmerizing Sight](https://www.yahoo.com/news/train-light-dashes-across-puerto-054721800.html)
-- Apr 14 - [Trump Has A ‘Maximum’ Meltdown On Social Media After Hate-Watching ‘60 Minutes’](https://www.yahoo.com/news/trump-maximum-meltdown-social-media-052258686.html)
 <!-- feed end -->
 
 ### Onstream
