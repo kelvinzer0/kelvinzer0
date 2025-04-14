@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Bukele says at White House that El Salvador won't return mistakenly deported man](https://www.yahoo.com/news/trump-host-el-salvadors-bukele-141028467.html)
-- Apr 14 - [Italian data firm Cerved names former secret service executive as chairman](https://finance.yahoo.com/news/italian-data-firm-cerved-names-162650255.html)
-- Apr 14 - [You Won’t Believe Who Trump Blames for Russia Attacking Ukraine](https://www.yahoo.com/news/won-t-believe-trump-blames-155952414.html)
-- Apr 14 - [A fugitive Indian jeweler accused of a $1.8bn bank fraud has been arrested in Belgium](https://www.yahoo.com/news/fugitive-indian-jeweler-accused-1-154038583.html)
-- Apr 14 - [Mass. House Dem leaders giving Cape Cod rep facing charges ‘room to look in the mirror’](https://www.yahoo.com/news/mass-house-dem-leaders-giving-153632313.html)
+- Apr 14 - [Drop in job-finding rate, rise in time out of work could signal recession ahead, SF Fed paper says](https://finance.yahoo.com/news/drop-job-finding-rate-rise-175820284.html)
+- Apr 14 - [Woman shot by police during weekend traffic stop in New Hampshire facing several charges](https://www.yahoo.com/news/woman-shot-police-during-weekend-173447368.html)
+- Apr 14 - [India develops ‘Star Wars’ laser gun to shoot down drones](https://www.yahoo.com/news/india-develops-star-wars-laser-173037245.html)
+- Apr 14 - [A Venezuelan man was tackled in a New Hampshire courthouse and sent by ICE to Texas](https://www.yahoo.com/news/venezuelan-man-tackled-hampshire-courthouse-172305010.html)
+- Apr 14 - [Surveillance video shows immigration arrest in New Hampshire](https://www.yahoo.com/news/surveillance-video-shows-immigration-arrest-171127361.html)
 <!-- feed end -->
 
 ### Onstream
