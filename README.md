@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Jim Cramer on Recursion (RXRX): “The AI Company That Has It – Backed by Jensen Huang and NVIDIA”](https://finance.yahoo.com/news/jim-cramer-recursion-rxrx-ai-193510944.html)
-- Apr 14 - [Is Adobe Inc. (ADBE) the Best Bargain Stock to Buy in May?](https://finance.yahoo.com/news/adobe-inc-adbe-best-bargain-193042231.html)
-- Apr 14 - [Economists continue to revise estimates for Trump's tariff policy. Most possibilities still take us back to the 1910s.](https://finance.yahoo.com/news/economists-continue-to-revise-estimates-for-trumps-tariff-policy-most-possibilities-still-take-us-back-to-the-1910s-184137558.html)
-- Apr 14 - [Company plans to restart Keystone Pipeline after oil spill in rural North Dakota](https://www.yahoo.com/news/company-plans-restart-keystone-pipeline-183604856.html)
-- Apr 14 - [New York plane crash claims lives of high-achieving family celebrating a birthday](https://www.yahoo.com/news/york-plane-crash-claims-lives-182616014.html)
+- Apr 14 - [ADM halting domestic trading in China, cutting jobs in Shanghai](https://finance.yahoo.com/news/adm-halting-domestic-trading-china-205151307.html)
+- Apr 14 - [Chinese factories flood TikTok with videos urging Americans to buy direct after Trump’s tariffs](https://www.yahoo.com/news/chinese-factories-flood-tiktok-videos-204209131.html)
+- Apr 14 - [Craigslist Cruise Ship That Cost Man $1 Million And 15 Years Of His Life Is Now A Pile Of Scrap](https://autos.yahoo.com/craigslist-cruise-ship-cost-man-202500082.html)
+- Apr 14 - [Trump Insults CNN's Kaitlan Collins For Asking Why He's Defying Supreme Court Order](https://www.yahoo.com/news/trump-insults-cnns-kaitlan-collins-193351503.html)
+- Apr 14 - [Israeli makes new Gaza ceasefire proposal but prospects appear slim](https://www.yahoo.com/news/egypt-receives-israeli-proposal-gaza-191355841.html)
 <!-- feed end -->
 
 ### Onstream
