@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Blue Origin All-Female Space Flight: Gayle King, Katy Perry and More](https://www.yahoo.com/lifestyle/blue-origin-female-space-flight-150508923.html)
-- Apr 14 - [Cleveland Browns' quest for a domed stadium starts an NFL fight for Ohio dollars](https://www.yahoo.com/news/cleveland-browns-quest-domed-stadium-150125541.html)
-- Apr 14 - [Samsung 65-Inch S95F OLED TV](https://tech.yahoo.com/articles/samsung-65-inch-s95f-oled-150000014.html)
-- Apr 14 - [Howard Lutnick Is Pissing Off Whole Trump Team With Tariff Flip](https://www.yahoo.com/news/howard-lutnick-pissing-off-whole-145542522.html)
-- Apr 14 - [Passenger's bathroom nightmare is turning into another headache for Boeing](https://www.yahoo.com/news/passengers-bathroom-nightmare-turning-another-144213544.html)
+- Apr 14 - [Bukele says at White House that El Salvador won't return mistakenly deported man](https://www.yahoo.com/news/trump-host-el-salvadors-bukele-141028467.html)
+- Apr 14 - [Italian data firm Cerved names former secret service executive as chairman](https://finance.yahoo.com/news/italian-data-firm-cerved-names-162650255.html)
+- Apr 14 - [You Won’t Believe Who Trump Blames for Russia Attacking Ukraine](https://www.yahoo.com/news/won-t-believe-trump-blames-155952414.html)
+- Apr 14 - [A fugitive Indian jeweler accused of a $1.8bn bank fraud has been arrested in Belgium](https://www.yahoo.com/news/fugitive-indian-jeweler-accused-1-154038583.html)
+- Apr 14 - [Mass. House Dem leaders giving Cape Cod rep facing charges ‘room to look in the mirror’](https://www.yahoo.com/news/mass-house-dem-leaders-giving-153632313.html)
 <!-- feed end -->
 
 ### Onstream
