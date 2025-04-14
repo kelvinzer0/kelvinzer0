@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 14 - [UK bosses to slash hiring at fastest rate since Covid over tariff fears](https://finance.yahoo.com/news/uk-bosses-slash-hiring-fastest-050000174.html)
 - Apr 14 - [President Trump says CBS and '60 Minutes' should 'pay a big price' for going after him](https://www.yahoo.com/news/president-trump-says-cbs-60-035040999.html)
-- Apr 14 - [Donald Trump Again Lashes Out At CBS And ’60 Minutes’ And Urges FCC Chair To “Impose The Maximum Fines And Punishment”](https://www.yahoo.com/news/donald-trump-again-lashes-cbs-022838680.html)
-- Apr 13 - [Stock market today: Dow, S&P 500, Nasdaq futures rise as tech gets a temporary tariff reprieve](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-rise-as-tech-gets-a-temporary-tariff-reprieve-221244481.html)
+- Apr 14 - [Harry Enten breaks down poll on who Americans think is responsible for economic state](https://www.yahoo.com/news/harry-enten-breaks-down-poll-014415401.html)
 - Apr 13 - [Trump-appointed official who oversaw dismantling of USAID leaves State Department](https://www.yahoo.com/news/trump-official-oversaw-closure-usaid-215421284.html)
-- Apr 13 - [White Hall High School Boys Basketball coach dies in traffic collision](https://sports.yahoo.com/article/white-hall-high-school-boys-213012917.html)
+- Apr 13 - [Sephora's massive sale ends tomorrow. I tried $2,083 worth of beauty products — here's what's worth buying (and what you should skip)](https://www.yahoo.com/lifestyle/sephoras-massive-sale-ends-tomorrow-i-tried-2083-worth-of-beauty-products--heres-whats-worth-buying-and-what-you-should-skip-212955680.html)
 <!-- feed end -->
 
 ### Onstream
