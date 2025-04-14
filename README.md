@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Prince Harry’s North Pole guide in court battle with billionaire over tragic Titan trip](https://www.yahoo.com/news/prince-harry-north-pole-guide-081735103.html)
-- Apr 14 - [Cambodia’s haunted present: 50 years after Khmer Rouge’s rise, murderous legacy looms large](https://www.yahoo.com/news/cambodia-haunted-present-50-years-125639087.html)
-- Apr 14 - [Large fire destroys Joliet, IL area factory](https://www.yahoo.com/news/large-fire-destroys-joliet-il-125105384.html)
-- Apr 14 - [Exclusive-Saudi Arabia plans to pay off Syria's World Bank debts, sources say](https://www.yahoo.com/news/exclusive-saudi-arabia-plans-pay-124657808.html)
-- Apr 14 - [Kremlin says tough line from Merz on Ukraine risks escalating war](https://www.yahoo.com/news/kremlin-says-tough-line-merz-115607980.html)
+- Apr 14 - [Why Meta's antitrust trial is an 'uphill battle' for the FTC](https://finance.yahoo.com/video/why-metas-antitrust-trial-uphill-150828555.html)
+- Apr 14 - [Cleveland Browns' quest for a domed stadium starts an NFL fight for Ohio dollars](https://www.yahoo.com/news/cleveland-browns-quest-domed-stadium-150125541.html)
+- Apr 14 - [Menendez brothers' aunt hospitalized after DA shares graphic photos in court: 'We are devastated'](https://www.yahoo.com/news/menendez-brothers-aunt-hospitalized-da-142315181.html)
+- Apr 14 - [5 Simple Things Ethan Suplee Did to Lose Almost 300 Pounds—And Keep It Off](https://www.yahoo.com/lifestyle/5-simple-things-ethan-suplee-135322218.html)
+- Apr 14 - [Conifer locks down $20M seed round for its 'drop-in' electric hub motor](https://finance.yahoo.com/news/conifer-locks-down-20m-seed-130000484.html)
 <!-- feed end -->
 
 ### Onstream
