@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Why Meta's antitrust trial is an 'uphill battle' for the FTC](https://finance.yahoo.com/video/why-metas-antitrust-trial-uphill-150828555.html)
+- Apr 14 - [Blue Origin All-Female Space Flight: Gayle King, Katy Perry and More](https://www.yahoo.com/lifestyle/blue-origin-female-space-flight-150508923.html)
 - Apr 14 - [Cleveland Browns' quest for a domed stadium starts an NFL fight for Ohio dollars](https://www.yahoo.com/news/cleveland-browns-quest-domed-stadium-150125541.html)
-- Apr 14 - [Menendez brothers' aunt hospitalized after DA shares graphic photos in court: 'We are devastated'](https://www.yahoo.com/news/menendez-brothers-aunt-hospitalized-da-142315181.html)
-- Apr 14 - [5 Simple Things Ethan Suplee Did to Lose Almost 300 Pounds—And Keep It Off](https://www.yahoo.com/lifestyle/5-simple-things-ethan-suplee-135322218.html)
-- Apr 14 - [Conifer locks down $20M seed round for its 'drop-in' electric hub motor](https://finance.yahoo.com/news/conifer-locks-down-20m-seed-130000484.html)
+- Apr 14 - [Samsung 65-Inch S95F OLED TV](https://tech.yahoo.com/articles/samsung-65-inch-s95f-oled-150000014.html)
+- Apr 14 - [Howard Lutnick Is Pissing Off Whole Trump Team With Tariff Flip](https://www.yahoo.com/news/howard-lutnick-pissing-off-whole-145542522.html)
+- Apr 14 - [Passenger's bathroom nightmare is turning into another headache for Boeing](https://www.yahoo.com/news/passengers-bathroom-nightmare-turning-another-144213544.html)
 <!-- feed end -->
 
 ### Onstream
