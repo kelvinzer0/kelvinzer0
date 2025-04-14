@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - ['Where is your baby?': A familiar tragedy strikes US for the first time in 2025](https://www.yahoo.com/news/where-baby-familiar-tragedy-strikes-100341827.html)
-- Apr 14 - [High school students reconsidering applying to Ohio universities due to new higher education law](https://www.yahoo.com/news/high-school-students-reconsidering-applying-091031246.html)
-- Apr 14 - [FTSE 100 LIVE: Tech stocks rise amid mixed messages on Trump's electronics tariff reprieve](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-trump-electronics-tariff-reprieve-080201135.html)
-- Apr 14 - [China imposes visa restrictions on US personnel over Tibet](https://www.yahoo.com/news/china-imposes-visa-restrictions-us-072523200.html)
-- Apr 14 - [A former Colorado sheriff's deputy is to be sentenced in the death of Christian Glass](https://www.yahoo.com/news/former-colorado-sheriffs-deputy-sentenced-040925504.html)
+- Apr 14 - [Hungary to vote on legislation targeting LGBTQ+ community as campaign heats up](https://www.yahoo.com/news/hungary-vote-legislation-targeting-lgbtq-121118152.html)
+- Apr 14 - [2 High-Growth Electric Vehicle (EV) Stocks to Buy Now (Hint: Not Tesla)](https://finance.yahoo.com/news/2-high-growth-electric-vehicle-120500308.html)
+- Apr 14 - [Kremlin says tough line from Merz on Ukraine risks escalating war](https://www.yahoo.com/news/kremlin-says-tough-line-merz-115607980.html)
+- Apr 14 - [Uber cofounder says AI means some consultants are in 'big trouble'](https://finance.yahoo.com/news/uber-cofounder-says-ai-means-114127930.html)
+- Apr 14 - [Top US power sector CEOs pull down $115 million in performance pay](https://finance.yahoo.com/news/top-us-power-sector-ceos-111509537.html)
 <!-- feed end -->
 
 ### Onstream
