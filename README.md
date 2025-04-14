@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Trump Has A ‘Maximum’ Meltdown On Social Media After Hate-Watching ‘60 Minutes’](https://www.yahoo.com/news/trump-maximum-meltdown-social-media-052258686.html)
+- Apr 14 - [Trump says Russian attack on Ukrainian city ‘horrible’ as Sumy death roll rises](https://www.yahoo.com/news/trump-dubs-russian-attack-ukrainian-063050492.html)
+- Apr 14 - [First phase of US tariff talks 'smooth', Taiwan president says](https://finance.yahoo.com/news/first-phase-us-tariff-talks-064521005.html)
+- Apr 14 - [A former Colorado sheriff's deputy is to be sentenced in the death of Christian Glass](https://www.yahoo.com/news/former-colorado-sheriffs-deputy-sentenced-040925504.html)
 - Apr 14 - [President Trump says CBS and '60 Minutes' should 'pay a big price' for going after him](https://www.yahoo.com/news/president-trump-says-cbs-60-035040999.html)
-- Apr 14 - [Residents react to deadly Russian strikes on heart of Ukraine's Sumy during Palm Sunday celebrations](https://www.yahoo.com/news/residents-react-deadly-russian-strikes-000242861.html)
-- Apr 13 - [The dead in an upstate New York plane crash included 2022 NCAA woman of the year and family members](https://www.yahoo.com/news/dead-upstate-york-plane-crash-231357942.html)
-- Apr 13 - [Trump-appointed official who oversaw dismantling of USAID leaves State Department](https://www.yahoo.com/news/trump-official-oversaw-closure-usaid-215421284.html)
+- Apr 14 - [Philippines says voiced South China Sea concerns during ASEAN-China negotiations](https://www.yahoo.com/news/philippines-says-voiced-south-china-024756279.html)
 <!-- feed end -->
 
 ### Onstream
