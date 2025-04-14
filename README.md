@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 14 - [Prince Harry’s North Pole guide in court battle with billionaire over tragic Titan trip](https://www.yahoo.com/news/prince-harry-north-pole-guide-081735103.html)
+- Apr 14 - [Cambodia’s haunted present: 50 years after Khmer Rouge’s rise, murderous legacy looms large](https://www.yahoo.com/news/cambodia-haunted-present-50-years-125639087.html)
 - Apr 14 - [Large fire destroys Joliet, IL area factory](https://www.yahoo.com/news/large-fire-destroys-joliet-il-125105384.html)
-- Apr 14 - [Utilities choosing coal, solar, nuclear or other power sources have a lot to consider, beyond just cost](https://www.yahoo.com/news/utilities-choosing-coal-solar-nuclear-124053558.html)
-- Apr 14 - [Intel to sell majority stake in Altera for $4.46 billion to fund revival effort](https://finance.yahoo.com/news/intel-sell-51-stake-altera-123710414.html)
-- Apr 14 - [US Coast Guard says 1 dead, 4 rescued and 5 missing from capsized boat off Florida's Atlantic Coast](https://www.yahoo.com/news/us-coast-guard-says-1-123653020.html)
+- Apr 14 - [Exclusive-Saudi Arabia plans to pay off Syria's World Bank debts, sources say](https://www.yahoo.com/news/exclusive-saudi-arabia-plans-pay-124657808.html)
 - Apr 14 - [Kremlin says tough line from Merz on Ukraine risks escalating war](https://www.yahoo.com/news/kremlin-says-tough-line-merz-115607980.html)
 <!-- feed end -->
 
