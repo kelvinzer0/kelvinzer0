@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Pfizer hits setback in obesity drug race as GLP-1 trial halts](https://finance.yahoo.com/video/pfizer-hits-setback-obesity-drug-214449466.html)
-- Apr 14 - [Female soldier becomes the first woman to compete in the grueling Army Ranger contest](https://www.yahoo.com/news/female-soldier-becomes-first-woman-213052010.html)
-- Apr 14 - [ADM halting domestic trading in China, cutting jobs in Shanghai](https://finance.yahoo.com/news/adm-halting-domestic-trading-china-205151413.html)
-- Apr 14 - [Ukrainians mourns victims of Russian missile strike on Sumy that killed scores on Palm Sunday](https://www.yahoo.com/news/ukrainians-mourns-victims-russian-missile-205111967.html)
+- Apr 14 - [Meta faces historic antitrust trial that could force it to break off Instagram, WhatsApp](https://www.yahoo.com/news/meta-faces-historic-antitrust-trial-222624508.html)
 - Apr 14 - [A Palestinian activist expecting a US citizenship interview is arrested instead by ICE in Vermont](https://www.yahoo.com/news/palestinian-activist-expecting-us-citizenship-204041300.html)
+- Apr 14 - [Woman, 32, Gets Hysterectomy Due to Tumor on Her Ovary. Doctors Later Apologize When Biopsy Shows No Cancer](https://www.yahoo.com/lifestyle/woman-32-gets-hysterectomy-due-203820034.html)
+- Apr 14 - [Earthquake shakes San Diego, causing road closures and rockfalls](https://www.yahoo.com/news/earthquake-shakes-san-diego-causing-203804333.html)
+- Apr 14 - [Trump Insults CNN's Kaitlan Collins For Asking Why He's Defying Supreme Court Order](https://www.yahoo.com/news/trump-insults-cnns-kaitlan-collins-193351503.html)
 <!-- feed end -->
 
 ### Onstream
