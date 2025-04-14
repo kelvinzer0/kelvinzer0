@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Drop in job-finding rate, rise in time out of work could signal recession ahead, SF Fed paper says](https://finance.yahoo.com/news/drop-job-finding-rate-rise-175820284.html)
-- Apr 14 - [Woman shot by police during weekend traffic stop in New Hampshire facing several charges](https://www.yahoo.com/news/woman-shot-police-during-weekend-173447368.html)
-- Apr 14 - [India develops ‘Star Wars’ laser gun to shoot down drones](https://www.yahoo.com/news/india-develops-star-wars-laser-173037245.html)
-- Apr 14 - [A Venezuelan man was tackled in a New Hampshire courthouse and sent by ICE to Texas](https://www.yahoo.com/news/venezuelan-man-tackled-hampshire-courthouse-172305010.html)
-- Apr 14 - [Surveillance video shows immigration arrest in New Hampshire](https://www.yahoo.com/news/surveillance-video-shows-immigration-arrest-171127361.html)
+- Apr 14 - [Economists continue to revise estimates for Trump's tariff policy. Most possibilities still take us back to the 1910s.](https://finance.yahoo.com/news/economists-continue-to-revise-estimates-for-trumps-tariff-policy-most-possibilities-still-take-us-back-to-the-1910s-184137558.html)
+- Apr 14 - [Company plans to restart Keystone Pipeline after oil spill in rural North Dakota](https://www.yahoo.com/news/company-plans-restart-keystone-pipeline-183604856.html)
+- Apr 14 - [Trump wants to deport some US citizens to El Salvador](https://www.yahoo.com/news/trump-wants-deport-us-citizens-181642313.html)
+- Apr 14 - [5.2 magnitude earthquake near San Diego rattles Southern California](https://www.yahoo.com/news/52-magnitude-earthquake-near-san-diego-rattles-southern-california-173708277.html)
+- Apr 14 - [Mysterious Weapon Fired From M2 Bradley Fighting Vehicle Identified](https://www.yahoo.com/news/mysterious-weapon-fired-m2-bradley-173123170.html)
 <!-- feed end -->
 
 ### Onstream
