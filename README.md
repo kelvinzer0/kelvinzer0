@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [ADM halting domestic trading in China, cutting jobs in Shanghai](https://finance.yahoo.com/news/adm-halting-domestic-trading-china-205151307.html)
-- Apr 14 - [Chinese factories flood TikTok with videos urging Americans to buy direct after Trump’s tariffs](https://www.yahoo.com/news/chinese-factories-flood-tiktok-videos-204209131.html)
-- Apr 14 - [Craigslist Cruise Ship That Cost Man $1 Million And 15 Years Of His Life Is Now A Pile Of Scrap](https://autos.yahoo.com/craigslist-cruise-ship-cost-man-202500082.html)
-- Apr 14 - [Trump Insults CNN's Kaitlan Collins For Asking Why He's Defying Supreme Court Order](https://www.yahoo.com/news/trump-insults-cnns-kaitlan-collins-193351503.html)
-- Apr 14 - [Israeli makes new Gaza ceasefire proposal but prospects appear slim](https://www.yahoo.com/news/egypt-receives-israeli-proposal-gaza-191355841.html)
+- Apr 14 - [Pfizer hits setback in obesity drug race as GLP-1 trial halts](https://finance.yahoo.com/video/pfizer-hits-setback-obesity-drug-214449466.html)
+- Apr 14 - [Female soldier becomes the first woman to compete in the grueling Army Ranger contest](https://www.yahoo.com/news/female-soldier-becomes-first-woman-213052010.html)
+- Apr 14 - [ADM halting domestic trading in China, cutting jobs in Shanghai](https://finance.yahoo.com/news/adm-halting-domestic-trading-china-205151413.html)
+- Apr 14 - [Ukrainians mourns victims of Russian missile strike on Sumy that killed scores on Palm Sunday](https://www.yahoo.com/news/ukrainians-mourns-victims-russian-missile-205111967.html)
+- Apr 14 - [A Palestinian activist expecting a US citizenship interview is arrested instead by ICE in Vermont](https://www.yahoo.com/news/palestinian-activist-expecting-us-citizenship-204041300.html)
 <!-- feed end -->
 
 ### Onstream
