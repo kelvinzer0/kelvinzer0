@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 13 - [Amazon and Alphabet Bet Big on AI. Why History Says It's Time to Buy Both Stocks](https://finance.yahoo.com/news/amazon-alphabet-bet-big-ai-224500163.html)
-- Apr 13 - [Sephora's massive sale ends tomorrow. I tried $2,083 worth of beauty products — here's what's worth buying (and what you should skip)](https://www.yahoo.com/lifestyle/sephoras-massive-sale-ends-tomorrow-i-tried-2083-worth-of-beauty-products--heres-whats-worth-buying-and-what-you-should-skip-212955680.html)
+- Apr 13 - [The dead in an upstate New York plane crash included 2022 NCAA woman of the year and family members](https://www.yahoo.com/news/dead-upstate-york-plane-crash-231357942.html)
+- Apr 13 - [Police issue warning after several children reported missing on beach](https://www.yahoo.com/news/police-issue-warning-several-children-184641840.html)
+- Apr 13 - [Stock market today: Dow, S&P 500, Nasdaq futures rise as tech gets a temporary tariff reprieve](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-rise-as-tech-gets-a-temporary-tariff-reprieve-221244481.html)
+- Apr 13 - [Trump-appointed official who oversaw dismantling of USAID leaves State Department](https://www.yahoo.com/news/trump-official-oversaw-closure-usaid-215421284.html)
 - Apr 13 - [New armed extremist group claims responsibility for bombing near rail company headquarters](https://www.yahoo.com/news/armed-extremist-group-claims-responsibility-203351658.html)
-- Apr 13 - [iPad software will reportedly get more Mac-like with the iPadOS 19 redesign](https://tech.yahoo.com/article/ipad-software-will-reportedly-get-more-mac-like-with-the-ipados-19-redesign-200759136.html)
-- Apr 13 - [6 injured in Northwest Austin home explosion, 24 other houses damaged, authorities say](https://www.yahoo.com/news/home-explodes-northwest-austin-near-174730613.html)
 <!-- feed end -->
 
 ### Onstream
