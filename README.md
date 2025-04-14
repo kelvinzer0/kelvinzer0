@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [The dead in an upstate New York plane crash included 2022 NCAA woman of the year and family members](https://www.yahoo.com/news/dead-upstate-york-plane-crash-231357942.html)
-- Apr 14 - [Body found in search for missing 91-year-old man](https://www.yahoo.com/news/body-found-search-missing-91-070348418.html)
-- Apr 14 - [Trump says Russian attack on Ukrainian city ‘horrible’ as Sumy death roll rises](https://www.yahoo.com/news/trump-dubs-russian-attack-ukrainian-063050492.html)
+- Apr 14 - [Texas Fire Burning 'Mountain' of Dirt and Tires Could Last Days](https://www.yahoo.com/news/texas-fire-burning-mountain-dirt-091051040.html)
+- Apr 14 - [This gut bacteria can help prevent obesity. Here’s how to boost it](https://www.yahoo.com/news/unusual-gut-bacteria-could-prevent-121841958.html)
+- Apr 14 - [Trump official who helped dismantle USAID leaves role after ‘depriving millions’ of life-saving support](https://www.yahoo.com/news/trump-official-helped-dismantle-usaid-084741251.html)
+- Apr 14 - [Train of Light Dashes Across Puerto Vallarta Night Sky in Mesmerizing Sight](https://www.yahoo.com/news/train-light-dashes-across-puerto-054721800.html)
 - Apr 14 - [Trump Has A ‘Maximum’ Meltdown On Social Media After Hate-Watching ‘60 Minutes’](https://www.yahoo.com/news/trump-maximum-meltdown-social-media-052258686.html)
-- Apr 14 - [Brinc Drones on Impact of Trump's Tariffs](https://finance.yahoo.com/video/brinc-drones-impact-trumps-tariffs-051110539.html)
 <!-- feed end -->
 
 ### Onstream
