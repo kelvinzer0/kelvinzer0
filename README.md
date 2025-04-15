@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Honda to make 90% of US sales locally by relocating Mexico, Canada production, Nikkei reports](https://finance.yahoo.com/news/honda-90-us-sales-locally-091537399.html)
+- Apr 15 - [Honda to make 90% of US sales locally by relocating Mexico, Canada production, Nikkei reports](https://finance.yahoo.com/news/honda-90-us-sales-locally-091537809.html)
+- Apr 15 - [A tech investor says AI is already coming for jobs — and 2 professions should be very nervous](https://finance.yahoo.com/news/tech-investor-says-ai-already-090138939.html)
 - Apr 15 - [A Chinese man who said he fought for Russia said he couldn't even go to the bathroom without an armed escort](https://www.yahoo.com/news/chinese-mercenary-russias-invasion-said-083252999.html)
-- Apr 15 - [Retirees on Social Security Just Got Some Excellent News](https://finance.yahoo.com/news/retirees-social-security-just-got-073600906.html)
-- Apr 15 - [Venezuelan man tackled by federal agents in courthouse arrest](https://www.yahoo.com/news/venezuelan-man-tackled-federal-agents-072804433.html)
-- Apr 15 - [Maui teen faces 10-year sentence for stealing pet pig, killing it for $1k](https://www.yahoo.com/news/maui-teen-faces-10-sentence-055126137.html)
+- Apr 15 - [Extended heatwave in India, Pakistan to test survivability limits, with temperatures reaching Death Valley levels](https://www.yahoo.com/news/extended-heatwave-india-pakistan-test-070119348.html)
+- Apr 15 - [Russian forces weaker than they claim, say Chinese POWs](https://www.yahoo.com/news/russia-forces-aren-t-strong-210221873.html)
 <!-- feed end -->
 
 ### Onstream
