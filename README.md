@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [What does it mean that Milei ended Argentina's strict controls on currency and capital?](https://www.yahoo.com/news/does-mean-milei-ended-argentinas-150351559.html)
-- Apr 15 - [Andrew Tate to be ‘held to account’ in groundbreaking High Court coercive control case](https://www.yahoo.com/news/andrew-tate-held-account-groundbreaking-143826016.html)
+- Apr 15 - [Ant smugglers arrested in Kenya as government warns of changing trafficking trends](https://www.yahoo.com/news/ant-smugglers-arrested-kenya-government-154846911.html)
+- Apr 15 - [Arkansas asks USDA to let it ban soda, candy from food stamps program](https://www.yahoo.com/news/arkansas-asks-usda-let-ban-153340233.html)
+- Apr 15 - [Tech stocks stepped away from 'cliff,' Dan Ives says](https://finance.yahoo.com/video/tech-stocks-stepped-away-cliff-145345291.html)
 - Apr 15 - [Mich. Man Who Was ‘Upset’ Girlfriend Went on Cruise Without Him Sentenced to Prison for Sending Ship She Was on ‘False Bomb Threat’](https://www.yahoo.com/entertainment/articles/mich-man-upset-girlfriend-went-140917442.html)
-- Apr 15 - [Avoid US or Take Burner Phones, Canada Executives Tell Staff](https://finance.yahoo.com/news/avoid-us-burner-phones-canada-122850963.html)
-- Apr 15 - [My Partner Was In A Study For Dementia Patients. Then The Trump Administration Did The Unthinkable.](https://www.yahoo.com/news/partner-study-dementia-patients-then-122420421.html)
+- Apr 15 - [Teen set to be first millennial saint was 'ordinary', says mother](https://www.yahoo.com/news/teen-set-first-millennial-saint-130417918.html)
 <!-- feed end -->
 
 ### Onstream
