@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Harvard's challenge to Trump administration could test limits of government power](https://www.yahoo.com/news/harvards-challenge-trump-administration-could-170109926.html)
+- Apr 15 - [This week is the best time to sell your home. Here's why.](https://finance.yahoo.com/video/week-best-time-sell-home-165152214.html)
 - Apr 15 - [Ant smugglers arrested in Kenya as government warns of changing trafficking trends](https://www.yahoo.com/news/ant-smugglers-arrested-kenya-government-154846911.html)
-- Apr 15 - [Arkansas asks USDA to let it ban soda, candy from food stamps program](https://www.yahoo.com/news/arkansas-asks-usda-let-ban-153340233.html)
-- Apr 15 - [Tech stocks stepped away from 'cliff,' Dan Ives says](https://finance.yahoo.com/video/tech-stocks-stepped-away-cliff-145345291.html)
-- Apr 15 - [Mich. Man Who Was ‘Upset’ Girlfriend Went on Cruise Without Him Sentenced to Prison for Sending Ship She Was on ‘False Bomb Threat’](https://www.yahoo.com/entertainment/articles/mich-man-upset-girlfriend-went-140917442.html)
-- Apr 15 - [Teen set to be first millennial saint was 'ordinary', says mother](https://www.yahoo.com/news/teen-set-first-millennial-saint-130417918.html)
+- Apr 15 - [Starbucks union hits out at new dress code announcement: ‘We’re struggling as it is’](https://finance.yahoo.com/news/starbucks-announces-stricter-dress-code-221448589.html)
+- Apr 15 - [Joe Rogan Says Ross Perot Was Right: 'American Manufacturing Collapsed' Because 'Greedy' Executives Sent Jobs Overseas](https://finance.yahoo.com/news/joe-rogan-says-ross-perot-145311859.html)
 <!-- feed end -->
 
 ### Onstream
