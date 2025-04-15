@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Russia forces aren’t as strong as they claim, say captured Chinese fighters](https://www.yahoo.com/news/russia-forces-aren-t-strong-210221873.html)
-- Apr 15 - [Nissan to cut Japanese production of top-selling US model due to tariffs, source says](https://finance.yahoo.com/news/exclusive-nissan-cut-japanese-production-043925322.html)
+- Apr 15 - [Russian forces weaker than they claim, say Chinese POWs](https://www.yahoo.com/news/russia-forces-aren-t-strong-210221873.html)
 - Apr 15 - [China accuses US of launching 'advanced' cyberattacks, names alleged NSA agents](https://www.yahoo.com/news/chinas-harbin-says-us-launched-013146949.html)
 - Apr 14 - [FEMA denies Washington state disaster relief from bomb cyclone, governor says](https://www.yahoo.com/news/fema-denies-washington-state-disaster-224928009.html)
-- Apr 14 - [2 dead, 3 injured after crash at busy Atlanta intersection](https://www.yahoo.com/news/crash-shuts-down-busy-atlanta-153601806.html)
+- Apr 14 - [Multiple Harvard Students and Alumni Have Student Visas Abruptly Revoked—Here's What We Know](https://www.yahoo.com/lifestyle/multiple-harvard-students-alumni-student-223000224.html)
+- Apr 14 - [Judge orders Bank of America to pay $540 million in FDIC lawsuit](https://finance.yahoo.com/news/judge-orders-bank-america-pay-220900153.html)
 <!-- feed end -->
 
 ### Onstream
