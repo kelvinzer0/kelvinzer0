@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Dershowitz on why Trump admin hasn't returned Kilmar Abrego Garcia to US | CUOMO](https://www.yahoo.com/news/dershowitz-why-trump-admin-hasnt-011822743.html)
+- Apr 15 - [Watch as elephants form a protective circle in San Diego after 5.2-magnitude earthquake](https://www.yahoo.com/news/watch-elephants-form-protective-circle-002219796.html)
 - Apr 14 - [FEMA denies Washington state disaster relief from bomb cyclone, governor says](https://www.yahoo.com/news/fema-denies-washington-state-disaster-224928009.html)
-- Apr 14 - [2 dead, 3 injured after crash at busy Atlanta intersection](https://www.yahoo.com/news/crash-shuts-down-busy-atlanta-153601806.html)
-- Apr 14 - [Father, uncle heard shot that killed anti-gun violence advocate](https://www.yahoo.com/news/father-uncle-heard-shot-killed-220359369.html)
+- Apr 14 - [Judge orders Bank of America to pay $540 million in FDIC lawsuit](https://finance.yahoo.com/news/judge-orders-bank-america-pay-220900153.html)
 - Apr 14 - [ADM halting domestic trading in China, cutting jobs in Shanghai](https://finance.yahoo.com/news/adm-halting-domestic-trading-china-205151413.html)
-- Apr 14 - [Woman, 32, Gets Hysterectomy Due to Tumor on Her Ovary. Doctors Later Apologize When Biopsy Shows No Cancer](https://www.yahoo.com/lifestyle/woman-32-gets-hysterectomy-due-203820034.html)
 <!-- feed end -->
 
 ### Onstream
