@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [1 Wall Street Analyst Says There's a Great Investment Hiding in Plain Sight. These 2 Dividend Stocks Are My Best Ideas for Investing in It.](https://finance.yahoo.com/news/1-wall-street-analyst-says-140000285.html)
-- Apr 15 - [Supplies arrive as UK moves to save British Steel plant](https://www.yahoo.com/news/supplies-arrive-uk-moves-save-123646097.html)
+- Apr 15 - [What does it mean that Milei ended Argentina's strict controls on currency and capital?](https://www.yahoo.com/news/does-mean-milei-ended-argentinas-150351559.html)
+- Apr 15 - [Andrew Tate to be ‘held to account’ in groundbreaking High Court coercive control case](https://www.yahoo.com/news/andrew-tate-held-account-groundbreaking-143826016.html)
+- Apr 15 - [Mich. Man Who Was ‘Upset’ Girlfriend Went on Cruise Without Him Sentenced to Prison for Sending Ship She Was on ‘False Bomb Threat’](https://www.yahoo.com/entertainment/articles/mich-man-upset-girlfriend-went-140917442.html)
+- Apr 15 - [Avoid US or Take Burner Phones, Canada Executives Tell Staff](https://finance.yahoo.com/news/avoid-us-burner-phones-canada-122850963.html)
 - Apr 15 - [My Partner Was In A Study For Dementia Patients. Then The Trump Administration Did The Unthinkable.](https://www.yahoo.com/news/partner-study-dementia-patients-then-122420421.html)
-- Apr 15 - [Mark Zuckerberg suggested wiping everyone’s Facebook friends and making users start again to boost the platform’s relevance](https://www.yahoo.com/news/mark-zuckerberg-suggested-wiping-everyone-110408822.html)
-- Apr 15 - [Mortgage and refinance interest rates today, April 15, 2025: 30-year rates drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-april-15-2025-100032496.html)
 <!-- feed end -->
 
 ### Onstream
