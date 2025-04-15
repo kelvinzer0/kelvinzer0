@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [AP top stories April 15 P](https://www.yahoo.com/news/ap-top-stories-april-15-220451445.html)
-- Apr 15 - [Jasmine Crockett Uses 2 Cutting Words To Describe The Trump Era](https://www.yahoo.com/news/jasmine-crockett-uses-2-cutting-215110649.html)
-- Apr 15 - [School Shooting in Dallas Leaves 4 Students Hospitalized: Reports](https://www.yahoo.com/entertainment/videos/school-shooting-dallas-leaves-4-213801016.html)
-- Apr 15 - [Waianae gang leader apologizes before 14-year sentence](https://www.yahoo.com/news/waianae-gang-leader-apologizes-14-213300647.html)
-- Apr 15 - [Treasury Secretary Scott Bessent to Yahoo Finance: China hasn't weaponized Treasurys despite bond market volatility](https://finance.yahoo.com/news/treasury-secretary-scott-bessent-to-yahoo-finance-china-hasnt-weaponized-treasurys-despite-bond-market-volatility-203333748.html)
+- Apr 15 - [White House threatens Colombia over regulations affecting US auto exports](https://www.yahoo.com/news/white-house-threatens-colombia-over-224839213.html)
+- Apr 15 - [Trump signs healthcare executive order that includes a win for pharma companies](https://www.yahoo.com/news/trump-signs-healthcare-executive-order-214319502.html)
+- Apr 15 - [Harvard University resists Trump's demands: 'We'll see how far the president takes this'](https://www.yahoo.com/news/harvard-university-resists-trumps-demands-212253076.html)
+- Apr 15 - [Former Air Force Commander at Wright-Patterson Faces Court-Martial](https://www.yahoo.com/news/former-air-force-commander-wright-194728947.html)
+- Apr 15 - [A strong solar storm heads to Earth. Here's what to know about northern lights](https://www.yahoo.com/news/strong-solar-storm-heads-earth-192413944.html)
 <!-- feed end -->
 
 ### Onstream
