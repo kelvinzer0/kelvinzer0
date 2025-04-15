@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Marjorie Taylor Greene Made Large Stock Purchases Ahead Of Trump's 90-Day Tariff Pause: Hakeem Jeffries Calls It 'Problematic'](https://finance.yahoo.com/news/marjorie-taylor-greene-made-large-080107328.html)
+- Apr 15 - [Maui teen faces 10-year sentence for stealing pet pig, killing it for $1k](https://www.yahoo.com/news/maui-teen-faces-10-sentence-055126137.html)
 - Apr 15 - [Russian forces weaker than they claim, say Chinese POWs](https://www.yahoo.com/news/russia-forces-aren-t-strong-210221873.html)
-- Apr 15 - [China accuses US of launching 'advanced' cyberattacks, names alleged NSA agents](https://www.yahoo.com/news/chinas-harbin-says-us-launched-013146949.html)
+- Apr 15 - [Watch as elephants form a protective circle in San Diego after 5.2-magnitude earthquake](https://www.yahoo.com/news/watch-elephants-form-protective-circle-002219796.html)
 - Apr 14 - [FEMA denies Washington state disaster relief from bomb cyclone, governor says](https://www.yahoo.com/news/fema-denies-washington-state-disaster-224928009.html)
-- Apr 14 - [Multiple Harvard Students and Alumni Have Student Visas Abruptly Revoked—Here's What We Know](https://www.yahoo.com/lifestyle/multiple-harvard-students-alumni-student-223000224.html)
-- Apr 14 - [Judge orders Bank of America to pay $540 million in FDIC lawsuit](https://finance.yahoo.com/news/judge-orders-bank-america-pay-220900153.html)
 <!-- feed end -->
 
 ### Onstream
