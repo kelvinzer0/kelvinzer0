@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Why China's reported delivery halt won't derail Boeing's recovery](https://finance.yahoo.com/video/why-chinas-jet-delivery-halt-202250115.html)
-- Apr 15 - [Man who says he was held captive in Connecticut home for 20 years makes his first public comments](https://www.yahoo.com/news/man-says-held-captive-connecticut-195338382.html)
-- Apr 15 - [A strong solar storm heads to Earth. Here's what to know about northern lights](https://www.yahoo.com/news/strong-solar-storm-heads-earth-192413944.html)
-- Apr 15 - [Karoline Leavitt Crashes When Asked if Trump Is Abusing His Power](https://www.yahoo.com/news/karoline-leavitt-crashes-asked-trump-190858817.html)
-- Apr 15 - [Tesla Odometers Could Be Overestimating Mileage By As Much As 117%: Lawsuit](https://autos.yahoo.com/tesla-odometers-could-overestimating-mileage-185510056.html)
+- Apr 15 - [AP top stories April 15 P](https://www.yahoo.com/news/ap-top-stories-april-15-220451445.html)
+- Apr 15 - [Jasmine Crockett Uses 2 Cutting Words To Describe The Trump Era](https://www.yahoo.com/news/jasmine-crockett-uses-2-cutting-215110649.html)
+- Apr 15 - [School Shooting in Dallas Leaves 4 Students Hospitalized: Reports](https://www.yahoo.com/entertainment/videos/school-shooting-dallas-leaves-4-213801016.html)
+- Apr 15 - [Waianae gang leader apologizes before 14-year sentence](https://www.yahoo.com/news/waianae-gang-leader-apologizes-14-213300647.html)
+- Apr 15 - [Treasury Secretary Scott Bessent to Yahoo Finance: China hasn't weaponized Treasurys despite bond market volatility](https://finance.yahoo.com/news/treasury-secretary-scott-bessent-to-yahoo-finance-china-hasnt-weaponized-treasurys-despite-bond-market-volatility-203333748.html)
 <!-- feed end -->
 
 ### Onstream
