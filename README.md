@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Road-rage shooting closes portion of I-70 west of downtown Columbus](https://www.yahoo.com/news/road-rage-shooting-closes-portion-115301399.html)
+- Apr 15 - [Stellantis closing in on new CEO with shortlist of five candidates, sources say](https://finance.yahoo.com/news/stellantis-closing-ceo-shortlist-five-111410827.html)
+- Apr 15 - [Cicada Brood XIV is coming. See map of where they'll emerge this year.](https://www.yahoo.com/news/cicada-brood-xiv-coming-see-110126060.html)
+- Apr 15 - [Farmers devastated as unexpected disaster destroys crops overnight: 'I have lost half of the yield that I had expected'](https://www.yahoo.com/news/farmers-devastated-unexpected-disaster-destroys-101516730.html)
 - Apr 15 - [Honda to make 90% of US sales locally by relocating Mexico, Canada production, Nikkei reports](https://finance.yahoo.com/news/honda-90-us-sales-locally-091537809.html)
-- Apr 15 - [A tech investor says AI is already coming for jobs — and 2 professions should be very nervous](https://finance.yahoo.com/news/tech-investor-says-ai-already-090138939.html)
-- Apr 15 - [A Chinese man who said he fought for Russia said he couldn't even go to the bathroom without an armed escort](https://www.yahoo.com/news/chinese-mercenary-russias-invasion-said-083252999.html)
-- Apr 15 - [Extended heatwave in India, Pakistan to test survivability limits, with temperatures reaching Death Valley levels](https://www.yahoo.com/news/extended-heatwave-india-pakistan-test-070119348.html)
-- Apr 15 - [Russian forces weaker than they claim, say Chinese POWs](https://www.yahoo.com/news/russia-forces-aren-t-strong-210221873.html)
 <!-- feed end -->
 
 ### Onstream
