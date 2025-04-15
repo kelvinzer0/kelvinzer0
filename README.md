@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Denmark starts rebuilding historic stock exchange destroyed by fire](https://www.yahoo.com/news/denmark-starts-rebuilding-historic-stock-201307177.html)
-- Apr 15 - [Elliott Said To Take $1.5b Stake in HPE](https://finance.yahoo.com/video/elliott-said-1-5b-stake-193843345.html)
-- Apr 15 - [Trump Press Secretary Admits One Problem With Plan to Deport Citizens](https://www.yahoo.com/news/trump-press-secretary-admits-one-192221917.html)
-- Apr 15 - [Why don't more Canadians know about stomach cancer? What woman who lost 80% of her stomach wants you to know about the 'orphaned' cancer](https://www.yahoo.com/lifestyle/why-dont-more-canadians-know-about-stomach-cancer-what-woman-who-lost-80-of-her-stomach-wants-you-to-know-about-the-orphaned-cancer-175111904.html)
-- Apr 15 - [Records show Gene Hackman's wife researched symptoms of illness days before her death](https://www.yahoo.com/news/records-show-gene-hackmans-wife-174206360.html)
+- Apr 15 - [Why China's reported delivery halt won't derail Boeing's recovery](https://finance.yahoo.com/video/why-chinas-jet-delivery-halt-202250115.html)
+- Apr 15 - [Man who says he was held captive in Connecticut home for 20 years makes his first public comments](https://www.yahoo.com/news/man-says-held-captive-connecticut-195338382.html)
+- Apr 15 - [A strong solar storm heads to Earth. Here's what to know about northern lights](https://www.yahoo.com/news/strong-solar-storm-heads-earth-192413944.html)
+- Apr 15 - [Karoline Leavitt Crashes When Asked if Trump Is Abusing His Power](https://www.yahoo.com/news/karoline-leavitt-crashes-asked-trump-190858817.html)
+- Apr 15 - [Tesla Odometers Could Be Overestimating Mileage By As Much As 117%: Lawsuit](https://autos.yahoo.com/tesla-odometers-could-overestimating-mileage-185510056.html)
 <!-- feed end -->
 
 ### Onstream
