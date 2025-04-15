@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [The Magnus Walker x Pininfarina Battista Collaboration in Photos](https://autos.yahoo.com/magnus-walker-x-pininfarina-battista-180800728.html)
-- Apr 15 - [How AI can help to detect oil spills at sea](https://www.yahoo.com/news/ai-help-detect-oil-spills-180217070.html)
-- Apr 15 - [She Was Relieved Her Flight Was Landing. Then Her Seatmate Pointed Out Something Disgusting (Exclusive)](https://www.yahoo.com/lifestyle/she-relieved-her-flight-landing-174543709.html)
-- Apr 15 - [Watch: Woman arrested after attacking man who was whipping donkey](https://www.yahoo.com/news/watch-woman-arrested-attacking-man-171357915.html)
-- Apr 15 - [Ant smugglers arrested in Kenya as government warns of changing trafficking trends](https://www.yahoo.com/news/ant-smugglers-arrested-kenya-government-154846911.html)
+- Apr 15 - [RFK Jr. claims 'leaky' measles vaccine wanes over time. Scientists say he's wrong.](https://www.yahoo.com/news/rfk-jr-claims-leaky-measles-183002103.html)
+- Apr 15 - [Dozens of student pilots sue United Airlines and its flight school over fraud allegations](https://www.yahoo.com/news/dozens-student-pilots-sue-united-175815061.html)
+- Apr 15 - [Is Exxon Mobil Corporation (XOM) the Best Oil Stock to Invest in According to Billionaires?](https://finance.yahoo.com/news/exxon-mobil-corporation-xom-best-174210470.html)
+- Apr 15 - [Records show Gene Hackman's wife researched symptoms of illness days before her death](https://www.yahoo.com/news/records-show-gene-hackmans-wife-174206360.html)
+- Apr 15 - [Woman arrested after attacking man who was whipping donkey](https://www.yahoo.com/news/watch-woman-arrested-attacking-man-171357915.html)
 <!-- feed end -->
 
 ### Onstream
