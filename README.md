@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Anheuser-Busch InBev (BUD): Among the Best Performing Stocks in Europe](https://finance.yahoo.com/news/anheuser-busch-inbev-bud-among-124647696.html)
+- Apr 15 - [1 Wall Street Analyst Says There's a Great Investment Hiding in Plain Sight. These 2 Dividend Stocks Are My Best Ideas for Investing in It.](https://finance.yahoo.com/news/1-wall-street-analyst-says-140000285.html)
 - Apr 15 - [Supplies arrive as UK moves to save British Steel plant](https://www.yahoo.com/news/supplies-arrive-uk-moves-save-123646097.html)
 - Apr 15 - [My Partner Was In A Study For Dementia Patients. Then The Trump Administration Did The Unthinkable.](https://www.yahoo.com/news/partner-study-dementia-patients-then-122420421.html)
-- Apr 15 - [Massive electric vehicle charging project moves forward despite potential huge obstacle: 'We remain confident'](https://autos.yahoo.com/massive-electric-vehicle-charging-project-111508034.html)
+- Apr 15 - [Mark Zuckerberg suggested wiping everyone’s Facebook friends and making users start again to boost the platform’s relevance](https://www.yahoo.com/news/mark-zuckerberg-suggested-wiping-everyone-110408822.html)
 - Apr 15 - [Mortgage and refinance interest rates today, April 15, 2025: 30-year rates drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-april-15-2025-100032496.html)
 <!-- feed end -->
 
