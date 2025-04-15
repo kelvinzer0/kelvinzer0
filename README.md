@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Road-rage shooting closes portion of I-70 west of downtown Columbus](https://www.yahoo.com/news/road-rage-shooting-closes-portion-115301399.html)
-- Apr 15 - [Stellantis closing in on new CEO with shortlist of five candidates, sources say](https://finance.yahoo.com/news/stellantis-closing-ceo-shortlist-five-111410827.html)
-- Apr 15 - [Cicada Brood XIV is coming. See map of where they'll emerge this year.](https://www.yahoo.com/news/cicada-brood-xiv-coming-see-110126060.html)
-- Apr 15 - [Farmers devastated as unexpected disaster destroys crops overnight: 'I have lost half of the yield that I had expected'](https://www.yahoo.com/news/farmers-devastated-unexpected-disaster-destroys-101516730.html)
-- Apr 15 - [Honda to make 90% of US sales locally by relocating Mexico, Canada production, Nikkei reports](https://finance.yahoo.com/news/honda-90-us-sales-locally-091537809.html)
+- Apr 15 - [Anheuser-Busch InBev (BUD): Among the Best Performing Stocks in Europe](https://finance.yahoo.com/news/anheuser-busch-inbev-bud-among-124647696.html)
+- Apr 15 - [Supplies arrive as UK moves to save British Steel plant](https://www.yahoo.com/news/supplies-arrive-uk-moves-save-123646097.html)
+- Apr 15 - [My Partner Was In A Study For Dementia Patients. Then The Trump Administration Did The Unthinkable.](https://www.yahoo.com/news/partner-study-dementia-patients-then-122420421.html)
+- Apr 15 - [Massive electric vehicle charging project moves forward despite potential huge obstacle: 'We remain confident'](https://autos.yahoo.com/massive-electric-vehicle-charging-project-111508034.html)
+- Apr 15 - [Mortgage and refinance interest rates today, April 15, 2025: 30-year rates drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-april-15-2025-100032496.html)
 <!-- feed end -->
 
 ### Onstream
