@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 16 - [Bar brawl among rival biker gangs turns deadly in Southern California](https://www.yahoo.com/news/bar-brawl-among-rival-biker-015958956.html)
+- Apr 15 - [Citizen who was ordered to leave the U.S. in 7 days says she's heard nothing from federal officials](https://www.yahoo.com/news/citizen-ordered-leave-u-7-233534283.html)
+- Apr 15 - [From losing to ‘crisis’: Decoding Trump ploy to defy his SCOTUS loss](https://www.yahoo.com/news/losing-crisis-decoding-trump-ploy-232122352.html)
 - Apr 15 - [Trump Cuts Permanent Press Pool Spot for All Wire Services After Court Orders AP Access Restored](https://www.yahoo.com/news/trump-cuts-permanent-press-pool-225123407.html)
-- Apr 15 - [Winston-Salem doctor facing new charges of secret peeping after sexual exploitation arrest](https://www.yahoo.com/news/winston-salem-doctor-facing-charges-223753591.html)
 - Apr 15 - [Trump signs healthcare executive order that includes a win for pharma companies](https://www.yahoo.com/news/trump-signs-healthcare-executive-order-214319502.html)
-- Apr 15 - [Harvard University resists Trump's demands: 'We'll see how far the president takes this'](https://www.yahoo.com/news/harvard-university-resists-trumps-demands-212253076.html)
 <!-- feed end -->
 
 ### Onstream
