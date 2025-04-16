@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Citizen who was ordered to leave the U.S. in 7 days says she's heard nothing from federal officials](https://www.yahoo.com/news/citizen-ordered-leave-u-7-233534283.html)
+- Apr 16 - [New details on suspect in arson at Pennsylvania Gov. Josh Shapiro's residence](https://www.yahoo.com/news/details-suspect-arson-pennsylvania-gov-022544830.html)
+- Apr 16 - [Border deployment vehicle accident kills two service members, third in critical condition](https://www.yahoo.com/news/border-deployment-vehicle-accident-kills-021603788.html)
+- Apr 16 - [Bar brawl among rival biker gangs turns deadly in Southern California](https://www.yahoo.com/news/bar-brawl-among-rival-biker-015958956.html)
 - Apr 15 - [Trump Cuts Permanent Press Pool Spot for All Wire Services After Court Orders AP Access Restored](https://www.yahoo.com/news/trump-cuts-permanent-press-pool-225123407.html)
 - Apr 15 - [Trump signs healthcare executive order that includes a win for pharma companies](https://www.yahoo.com/news/trump-signs-healthcare-executive-order-214319502.html)
-- Apr 15 - [Harvard University resists Trump's demands: 'We'll see how far the president takes this'](https://www.yahoo.com/news/harvard-university-resists-trumps-demands-212253076.html)
-- Apr 15 - [Treasury Secretary Scott Bessent to Yahoo Finance: China hasn't weaponized Treasurys despite bond market volatility](https://finance.yahoo.com/news/treasury-secretary-scott-bessent-to-yahoo-finance-china-hasnt-weaponized-treasurys-despite-bond-market-volatility-203333748.html)
 <!-- feed end -->
 
 ### Onstream
