@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [Could You Afford a Truly ‘All-American’ Lifestyle? How Much ‘Made in the USA’ Really Costs](https://finance.yahoo.com/news/could-afford-truly-american-lifestyle-180321091.html)
-- Apr 16 - [Trump administration plans to end the IRS Direct File program for free tax filing, AP sources say](https://www.yahoo.com/news/trump-administration-plans-end-irs-175500176.html)
-- Apr 16 - [ICE agent smashes window to detain man, attorney says they have the wrong person](https://www.yahoo.com/news/ice-agent-smashes-window-detain-175420063.html)
-- Apr 16 - [US senator lands in El Salvador seeking release of wrongly deported Salvadoran man](https://www.yahoo.com/news/us-senator-lands-el-salvador-173844646.html)
-- Apr 16 - [Trump Voters Are Sharing If He's Lost Their Support, And There's One Friendship Of His That They're Verrrrry Upset About](https://www.yahoo.com/news/trump-voters-sharing-hes-lost-172603524.html)
+- Apr 16 - [Tornado touched down in Montgomery County, NWS confirms](https://www.yahoo.com/news/tornado-touched-down-montgomery-county-194948373.html)
+- Apr 16 - [Family says ICE agents smashed car window in seizing Guatemalan man who's seeking asylum](https://www.yahoo.com/news/family-says-ice-agents-smashed-193848244.html)
+- Apr 16 - [Video Captures Man Dragged Out of Car After Window Is Smashed by ICE Agent. His Lawyer Says They Have the Wrong Guy](https://www.yahoo.com/entertainment/articles/video-captures-man-dragged-car-191316678.html)
+- Apr 16 - [Chinese couple shot dead in Italian  ‘gang war’ over designer fakes](https://www.yahoo.com/news/chinese-couple-shot-dead-italian-184410152.html)
+- Apr 16 - [Powell warns it's 'highly likely' tariffs will boost inflation](https://finance.yahoo.com/video/powell-warns-highly-likely-tariffs-184253963.html)
 <!-- feed end -->
 
 ### Onstream
