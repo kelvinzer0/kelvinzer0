@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [Liberation Day parade to feature 100 military personnel](https://www.yahoo.com/news/liberation-day-parade-feature-100-094921340.html)
-- Apr 16 - [FTSE 100 LIVE: Stocks tumble into the red as trade war fears offset slowing UK inflation](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-trade-war-uk-inflation-082722965.html)
+- Apr 16 - [Television could go the way of newspapers if the US economy tips into recession, analyst warns](https://finance.yahoo.com/news/television-could-go-the-way-of-newspapers-if-the-us-economy-tips-into-recession-analyst-warns-091448700.html)
 - Apr 16 - [Bill Gates says AI is coming for 2 kinds of jobs that once seemed tech-proof](https://www.yahoo.com/news/bill-gates-says-ai-coming-054706440.html)
 - Apr 16 - [China unexpectedly anoints new trade negotiator amid US tariff war](https://finance.yahoo.com/news/china-changes-top-trade-negotiator-035624976.html)
 - Apr 16 - [Bar brawl among rival biker gangs turns deadly in Southern California](https://www.yahoo.com/news/bar-brawl-among-rival-biker-015958956.html)
+- Apr 15 - [Citizen who was ordered to leave the U.S. in 7 days says she's heard nothing from federal officials](https://www.yahoo.com/news/citizen-ordered-leave-u-7-233534283.html)
 <!-- feed end -->
 
 ### Onstream
