@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Liberation Day parade to feature 100 military personnel](https://www.yahoo.com/news/liberation-day-parade-feature-100-094921340.html)
+- Apr 16 - [FTSE 100 LIVE: Stocks tumble into the red as trade war fears offset slowing UK inflation](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-trade-war-uk-inflation-082722965.html)
+- Apr 16 - [Bill Gates says AI is coming for 2 kinds of jobs that once seemed tech-proof](https://www.yahoo.com/news/bill-gates-says-ai-coming-054706440.html)
+- Apr 16 - [China unexpectedly anoints new trade negotiator amid US tariff war](https://finance.yahoo.com/news/china-changes-top-trade-negotiator-035624976.html)
 - Apr 16 - [Bar brawl among rival biker gangs turns deadly in Southern California](https://www.yahoo.com/news/bar-brawl-among-rival-biker-015958956.html)
-- Apr 16 - [Coachella organizers apologize for massive traffic backups, promise fixes for Weekend 2](https://www.yahoo.com/news/coachella-organizers-apologize-massive-traffic-015157140.html)
-- Apr 15 - [Cargo ship cancellations cause concern at largest container port in the US](https://www.yahoo.com/news/cargo-ship-cancellations-cause-concern-230830742.html)
-- Apr 15 - [Trump Cuts Permanent Press Pool Spot for All Wire Services After Court Orders AP Access Restored](https://www.yahoo.com/news/trump-cuts-permanent-press-pool-225123407.html)
-- Apr 15 - [Winston-Salem doctor facing new charges of secret peeping after sexual exploitation arrest](https://www.yahoo.com/news/winston-salem-doctor-facing-charges-223753591.html)
 <!-- feed end -->
 
 ### Onstream
