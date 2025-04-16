@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [White House threatens Colombia over regulations affecting US auto exports](https://www.yahoo.com/news/white-house-threatens-colombia-over-224839213.html)
+- Apr 16 - [Judge gives stern warning to Trump administration over mistakenly deported Maryland man](https://www.yahoo.com/news/judge-gives-stern-warning-trump-005128757.html)
+- Apr 16 - [Millions in merchandise taken by burglars who tunneled through concrete into LA jewelry store](https://www.yahoo.com/news/millions-merchandise-taken-burglars-tunneled-001724302.html)
+- Apr 16 - ['Kiss your kids goodbye:' Indiana mom tells teacher who flew a Pride flag in class, police say](https://www.yahoo.com/news/kiss-kids-goodbye-indiana-mom-001057635.html)
+- Apr 15 - [Trump Cuts Permanent Press Pool Spot for All Wire Services After Court Orders AP Access Restored](https://www.yahoo.com/news/trump-cuts-permanent-press-pool-225123407.html)
 - Apr 15 - [Trump signs healthcare executive order that includes a win for pharma companies](https://www.yahoo.com/news/trump-signs-healthcare-executive-order-214319502.html)
-- Apr 15 - [Harvard University resists Trump's demands: 'We'll see how far the president takes this'](https://www.yahoo.com/news/harvard-university-resists-trumps-demands-212253076.html)
-- Apr 15 - [Former Air Force Commander at Wright-Patterson Faces Court-Martial](https://www.yahoo.com/news/former-air-force-commander-wright-194728947.html)
-- Apr 15 - [A strong solar storm heads to Earth. Here's what to know about northern lights](https://www.yahoo.com/news/strong-solar-storm-heads-earth-192413944.html)
 <!-- feed end -->
 
 ### Onstream
