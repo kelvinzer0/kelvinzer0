@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [AP top stories April 16 A](https://www.yahoo.com/news/ap-top-stories-april-16-150343142.html)
-- Apr 16 - [There are 'definitely buying opportunities' in the tech sell-off](https://finance.yahoo.com/video/definitely-buying-opportunities-tech-sell-145640214.html)
-- Apr 16 - [MTG’s Town Hall Goes Haywire as Voters Tear Her to Shreds](https://www.yahoo.com/news/mtg-town-hall-goes-haywire-133356200.html)
-- Apr 16 - [Archaeologists Found a 3,000-Year-Old Lost City That May Hold Secrets of a Royal Past](https://www.yahoo.com/news/archaeologists-found-3-000-old-130000906.html)
-- Apr 16 - [Archaeologists May Have Just Found the Site of Jesus’s Tomb](https://www.yahoo.com/news/archaeologists-may-just-found-jesus-120000278.html)
+- Apr 16 - [Kennedy to move autism study to newly-created administrative office](https://www.yahoo.com/news/kennedy-move-autism-study-newly-155610736.html)
+- Apr 16 - [Kia is pitching Americans an affordable EV sedan with EV4 debut](https://finance.yahoo.com/news/kia-pitching-americans-affordable-ev-145324136.html)
+- Apr 16 - [Elon Musk Reportedly Sends DMs on Twitter Offering Women the Chance to Have His Babies](https://www.yahoo.com/news/elon-musk-reportedly-sends-dms-153420600.html)
+- Apr 16 - [Mexico's Sheinbaum says country will not renew diplomatic relations with Ecuador](https://www.yahoo.com/news/mexicos-sheinbaum-says-country-not-152945557.html)
+- Apr 16 - [Tesla's first-quarter registrations in California fell 15%, industry data shows](https://finance.yahoo.com/news/teslas-first-quarter-registrations-california-150406767.html)
 <!-- feed end -->
 
 ### Onstream
