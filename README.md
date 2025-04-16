@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Trump Voters Are Sharing If He's Lost Their Support, And There's One Friendship Of His That They're Verrrrry Upset About](https://www.yahoo.com/news/trump-voters-sharing-hes-lost-172603524.html)
+- Apr 16 - [Judge finds probable cause to hold Trump administration in contempt for violating deportation order](https://www.yahoo.com/news/judge-finds-probable-cause-hold-163258062.html)
 - Apr 16 - [Musk asked influencer Tiffany Fong to have his baby and she worried saying ‘no’ would hurt her X earnings, report says](https://www.yahoo.com/news/musk-asked-influencer-tiffany-fong-161245385.html)
 - Apr 16 - [Elon Musk Reportedly Sends DMs on Twitter Offering Women the Chance to Have His Babies](https://www.yahoo.com/news/elon-musk-reportedly-sends-dms-153420600.html)
 - Apr 16 - [Mexico's Sheinbaum says country will not renew diplomatic relations with Ecuador](https://www.yahoo.com/news/mexicos-sheinbaum-says-country-not-152945557.html)
-- Apr 16 - [A busy father and business owner got shredded at 42. He said 3 simple things helped him stay in shape for a decade.](https://www.yahoo.com/lifestyle/busy-father-business-owner-got-142054623.html)
-- Apr 16 - [MTG’s Town Hall Goes Haywire as Voters Tear Her to Shreds](https://www.yahoo.com/news/mtg-town-hall-goes-haywire-133356200.html)
 <!-- feed end -->
 
 ### Onstream
