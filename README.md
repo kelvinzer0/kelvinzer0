@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [Kennedy to move autism study to newly-created administrative office](https://www.yahoo.com/news/kennedy-move-autism-study-newly-155610736.html)
-- Apr 16 - [Kia is pitching Americans an affordable EV sedan with EV4 debut](https://finance.yahoo.com/news/kia-pitching-americans-affordable-ev-145324136.html)
+- Apr 16 - [Musk asked influencer Tiffany Fong to have his baby and she worried saying ‘no’ would hurt her X earnings, report says](https://www.yahoo.com/news/musk-asked-influencer-tiffany-fong-161245385.html)
 - Apr 16 - [Elon Musk Reportedly Sends DMs on Twitter Offering Women the Chance to Have His Babies](https://www.yahoo.com/news/elon-musk-reportedly-sends-dms-153420600.html)
 - Apr 16 - [Mexico's Sheinbaum says country will not renew diplomatic relations with Ecuador](https://www.yahoo.com/news/mexicos-sheinbaum-says-country-not-152945557.html)
-- Apr 16 - [Tesla's first-quarter registrations in California fell 15%, industry data shows](https://finance.yahoo.com/news/teslas-first-quarter-registrations-california-150406767.html)
+- Apr 16 - [A busy father and business owner got shredded at 42. He said 3 simple things helped him stay in shape for a decade.](https://www.yahoo.com/lifestyle/busy-father-business-owner-got-142054623.html)
+- Apr 16 - [MTG’s Town Hall Goes Haywire as Voters Tear Her to Shreds](https://www.yahoo.com/news/mtg-town-hall-goes-haywire-133356200.html)
 <!-- feed end -->
 
 ### Onstream
