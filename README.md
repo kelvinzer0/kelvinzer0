@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Could You Afford a Truly ‘All-American’ Lifestyle? How Much ‘Made in the USA’ Really Costs](https://finance.yahoo.com/news/could-afford-truly-american-lifestyle-180321091.html)
+- Apr 16 - [Trump administration plans to end the IRS Direct File program for free tax filing, AP sources say](https://www.yahoo.com/news/trump-administration-plans-end-irs-175500176.html)
+- Apr 16 - [ICE agent smashes window to detain man, attorney says they have the wrong person](https://www.yahoo.com/news/ice-agent-smashes-window-detain-175420063.html)
+- Apr 16 - [US senator lands in El Salvador seeking release of wrongly deported Salvadoran man](https://www.yahoo.com/news/us-senator-lands-el-salvador-173844646.html)
 - Apr 16 - [Trump Voters Are Sharing If He's Lost Their Support, And There's One Friendship Of His That They're Verrrrry Upset About](https://www.yahoo.com/news/trump-voters-sharing-hes-lost-172603524.html)
-- Apr 16 - [Judge finds probable cause to hold Trump administration in contempt for violating deportation order](https://www.yahoo.com/news/judge-finds-probable-cause-hold-163258062.html)
-- Apr 16 - [Musk asked influencer Tiffany Fong to have his baby and she worried saying ‘no’ would hurt her X earnings, report says](https://www.yahoo.com/news/musk-asked-influencer-tiffany-fong-161245385.html)
-- Apr 16 - [Elon Musk Reportedly Sends DMs on Twitter Offering Women the Chance to Have His Babies](https://www.yahoo.com/news/elon-musk-reportedly-sends-dms-153420600.html)
-- Apr 16 - [Mexico's Sheinbaum says country will not renew diplomatic relations with Ecuador](https://www.yahoo.com/news/mexicos-sheinbaum-says-country-not-152945557.html)
 <!-- feed end -->
 
 ### Onstream
