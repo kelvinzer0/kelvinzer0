@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [New details on suspect in arson at Pennsylvania Gov. Josh Shapiro's residence](https://www.yahoo.com/news/details-suspect-arson-pennsylvania-gov-022544830.html)
-- Apr 16 - [Border deployment vehicle accident kills two service members, third in critical condition](https://www.yahoo.com/news/border-deployment-vehicle-accident-kills-021603788.html)
 - Apr 16 - [Bar brawl among rival biker gangs turns deadly in Southern California](https://www.yahoo.com/news/bar-brawl-among-rival-biker-015958956.html)
 - Apr 15 - [Trump Cuts Permanent Press Pool Spot for All Wire Services After Court Orders AP Access Restored](https://www.yahoo.com/news/trump-cuts-permanent-press-pool-225123407.html)
+- Apr 15 - [Winston-Salem doctor facing new charges of secret peeping after sexual exploitation arrest](https://www.yahoo.com/news/winston-salem-doctor-facing-charges-223753591.html)
 - Apr 15 - [Trump signs healthcare executive order that includes a win for pharma companies](https://www.yahoo.com/news/trump-signs-healthcare-executive-order-214319502.html)
+- Apr 15 - [Harvard University resists Trump's demands: 'We'll see how far the president takes this'](https://www.yahoo.com/news/harvard-university-resists-trumps-demands-212253076.html)
 <!-- feed end -->
 
 ### Onstream
