@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [What to know as China reportedly orders its airlines to halt deliveries of Boeing aircraft](https://www.yahoo.com/news/know-china-reportedly-orders-airlines-125841475.html)
+- Apr 16 - [Recession 'more likely than not' if trade war keeps escalating](https://finance.yahoo.com/video/recession-more-likely-not-trade-140951594.html)
+- Apr 16 - [Stock market today: Dow, S&P 500, Nasdaq slide as Nvidia's dive weighs on tech](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-slide-as-nvidias-dive-weighs-on-tech-133757299.html)
+- Apr 16 - [Suspect in Dallas high school shooting in custody, 4 hospitalized, officials say](https://www.yahoo.com/news/suspect-dallas-high-school-shooting-132657583.html)
 - Apr 16 - [Xi promises greater access to Chinese market for Malaysia and Vietnam](https://www.yahoo.com/news/xi-promises-greater-access-chinese-120803224.html)
-- Apr 16 - [Officials issue warning as California homeowners are faced with unexpected obstacle in wake of catastrophe](https://www.yahoo.com/news/officials-issue-warning-california-homeowners-111555764.html)
-- Apr 16 - [Hedge fund legend, who earned 4,144% during COVID, warns stocks will crash 80% and 'Armageddon’ is coming](https://finance.yahoo.com/news/hedge-fund-legend-earned-4-104200152.html)
-- Apr 16 - [Mortgage and refinance interest rates today, April 16, 2025: Rates fall across the board](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-april-16-2025-100050024.html)
+- Apr 16 - [Missing toddler who walked 7 miles alone through Arizona wilderness led to safety by rancher's dog](https://www.yahoo.com/news/missing-toddler-walked-7-miles-104220055.html)
 <!-- feed end -->
 
 ### Onstream
