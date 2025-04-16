@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [Recession 'more likely than not' if trade war keeps escalating](https://finance.yahoo.com/video/recession-more-likely-not-trade-140951594.html)
-- Apr 16 - [Stock market today: Dow, S&P 500, Nasdaq slide as Nvidia's dive weighs on tech](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-slide-as-nvidias-dive-weighs-on-tech-133757299.html)
-- Apr 16 - [Suspect in Dallas high school shooting in custody, 4 hospitalized, officials say](https://www.yahoo.com/news/suspect-dallas-high-school-shooting-132657583.html)
-- Apr 16 - [Xi promises greater access to Chinese market for Malaysia and Vietnam](https://www.yahoo.com/news/xi-promises-greater-access-chinese-120803224.html)
-- Apr 16 - [Missing toddler who walked 7 miles alone through Arizona wilderness led to safety by rancher's dog](https://www.yahoo.com/news/missing-toddler-walked-7-miles-104220055.html)
+- Apr 16 - [AP top stories April 16 A](https://www.yahoo.com/news/ap-top-stories-april-16-150343142.html)
+- Apr 16 - [There are 'definitely buying opportunities' in the tech sell-off](https://finance.yahoo.com/video/definitely-buying-opportunities-tech-sell-145640214.html)
+- Apr 16 - [MTG’s Town Hall Goes Haywire as Voters Tear Her to Shreds](https://www.yahoo.com/news/mtg-town-hall-goes-haywire-133356200.html)
+- Apr 16 - [Archaeologists Found a 3,000-Year-Old Lost City That May Hold Secrets of a Royal Past](https://www.yahoo.com/news/archaeologists-found-3-000-old-130000906.html)
+- Apr 16 - [Archaeologists May Have Just Found the Site of Jesus’s Tomb](https://www.yahoo.com/news/archaeologists-may-just-found-jesus-120000278.html)
 <!-- feed end -->
 
 ### Onstream
