@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [What to know as China reportedly orders its airlines to halt deliveries of Boeing aircraft](https://www.yahoo.com/news/know-china-reportedly-orders-airlines-125841475.html)
+- Apr 16 - [Xi promises greater access to Chinese market for Malaysia and Vietnam](https://www.yahoo.com/news/xi-promises-greater-access-chinese-120803224.html)
+- Apr 16 - [Officials issue warning as California homeowners are faced with unexpected obstacle in wake of catastrophe](https://www.yahoo.com/news/officials-issue-warning-california-homeowners-111555764.html)
 - Apr 16 - [Hedge fund legend, who earned 4,144% during COVID, warns stocks will crash 80% and 'Armageddon’ is coming](https://finance.yahoo.com/news/hedge-fund-legend-earned-4-104200152.html)
-- Apr 16 - [Television could go the way of newspapers if the US economy tips into recession, analyst warns](https://finance.yahoo.com/news/television-could-go-the-way-of-newspapers-if-the-us-economy-tips-into-recession-analyst-warns-091448700.html)
-- Apr 16 - [Bar brawl among rival biker gangs turns deadly in Southern California](https://www.yahoo.com/news/bar-brawl-among-rival-biker-015958956.html)
-- Apr 16 - [Bahamas suspends SpaceX rocket landings pending post-launch probe](https://www.yahoo.com/news/bahamas-suspends-spacex-landings-pending-011050502.html)
-- Apr 15 - [Citizen who was ordered to leave the U.S. in 7 days says she's heard nothing from federal officials](https://www.yahoo.com/news/citizen-ordered-leave-u-7-233534283.html)
+- Apr 16 - [Mortgage and refinance interest rates today, April 16, 2025: Rates fall across the board](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-april-16-2025-100050024.html)
 <!-- feed end -->
 
 ### Onstream
