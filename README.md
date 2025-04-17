@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [JD Vance wants the UK to repeal its LGBTQ+ hate speech laws to secure a trade deal](https://www.yahoo.com/news/jd-vance-wants-uk-repeal-183752239.html)
+- Apr 17 - [Republicans in Gulf states push to embrace Gulf of America name](https://www.yahoo.com/news/republicans-gulf-states-push-embrace-200135895.html)
 - Apr 17 - [People Are Absolutely Losing It After Trump Said He Got The "Highest Mark" On His Cognitive Exam](https://www.yahoo.com/news/people-absolutely-losing-trump-said-181118483.html)
-- Apr 17 - [Nearly $1 billion of DOGE ‘savings’ vanish overnight](https://www.yahoo.com/news/nearly-one-billion-dollars-doge-163003613.html)
-- Apr 17 - [Are we trapped inside a black hole?](https://finance.yahoo.com/news/trapped-inside-black-hole-165046371.html)
-- Apr 17 - [Trump didn't take over Arizona border land just to catch migrants | Opinion](https://www.yahoo.com/news/trump-didnt-over-arizona-border-154813854.html)
+- Apr 17 - [Lockheed Martin Just Gave Investors Something New to Worry About](https://finance.yahoo.com/news/lockheed-martin-just-gave-investors-175857687.html)
+- Apr 17 - [Longtime MMA manager details GFL chaos, says promotion is 'asking fighters to compete for free'](https://sports.yahoo.com/mma/article/longtime-mma-manager-details-gfl-chaos-says-promotion-is-asking-fighters-to-compete-for-free-173858013.html)
+- Apr 17 - [Trump: We will have a trade deal with China](https://finance.yahoo.com/news/trump-trade-deal-china-173200980.html)
 <!-- feed end -->
 
 ### Onstream
