@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Three dead after horrific boat collision at Major League Fishing event](https://www.yahoo.com/news/three-dead-horrific-boat-collision-090052424.html)
-- Apr 17 - [This is America. Pearl clutching won't stop criticisms of OSU's Trump visit. | Opinion](https://www.yahoo.com/news/america-pearl-clutching-wont-stop-094833678.html)
-- Apr 17 - [Moscow plans to use seized US-owned company to feed Russian army, document shows](https://www.yahoo.com/news/exclusive-moscow-plans-seized-us-061140932.html)
-- Apr 17 - [Operation Assad: the air mission to smuggle the Syrian despot's valuables](https://www.yahoo.com/news/operation-assad-air-mission-smuggle-060659929.html)
-- Apr 17 - [Divided loyalties? 62 Taiwanese military members found with Chinese residency permits](https://www.yahoo.com/news/divided-loyalties-62-taiwanese-military-043301179.html)
+- Apr 17 - [Tesla hits bump in the road as sales slip: Steve Rattner](https://www.yahoo.com/news/tesla-hits-bump-road-sales-114748982.html)
+- Apr 17 - [Trump: 'Powell's termination cannot come fast enough'](https://finance.yahoo.com/news/trump-powells-termination-cannot-come-fast-enough-113417649.html)
+- Apr 17 - [Bright orange flare brightens Baytown skies at ExxonMobil plant | CW39](https://www.yahoo.com/news/bright-orange-flare-brightens-baytown-111040521.html)
+- Apr 17 - [Trump’s pick to be DC’s top prosecutor failed to report nearly 200 appearances on far-right media outlets to Senate](https://www.yahoo.com/news/trump-pick-dc-top-prosecutor-110036970.html)
+- Apr 17 - [This California woman says random pedestrians stole her $30K life savings. Here's what the scammers did](https://www.yahoo.com/news/california-woman-says-random-pedestrians-095500371.html)
 <!-- feed end -->
 
 ### Onstream
