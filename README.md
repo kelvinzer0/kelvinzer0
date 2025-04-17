@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Will Trump's tariffs lead to more revenue to cover tax cuts?](https://www.yahoo.com/news/trumps-tariffs-lead-more-revenue-005846121.html)
+- Apr 17 - [Ex-Rams star Aaron Donald reportedly granted temporary restraining order against alleged stalker](https://sports.yahoo.com/nfl/article/ex-rams-star-aaron-donald-reportedly-granted-temporary-restraining-order-against-alleged-stalker-005106953.html)
+- Apr 17 - [North Korean leader Kim Jong Un with daughter at ribbon cutting ceremony for construction project](https://www.yahoo.com/news/north-korean-leader-kim-jong-004148623.html)
 - Apr 17 - [United Airlines plane engine shoots out fire after hitting an animal on takeoff](https://www.yahoo.com/news/united-airlines-plane-engine-shoots-003818689.html)
-- Apr 17 - [Regional Hospital remains open amid negotiations with potential buyer](https://www.yahoo.com/news/regional-hospital-remains-open-amid-000800966.html)
 - Apr 16 - [Trump’s Press Secretary’s Dress Stirs Up Social Media in China](https://www.yahoo.com/lifestyle/trump-press-secretary-dress-stirs-231028015.html)
 - Apr 16 - [Scientists find strongest evidence yet of life on an alien planet](https://www.yahoo.com/news/scientists-strongest-evidence-yet-life-230259079.html)
 <!-- feed end -->
