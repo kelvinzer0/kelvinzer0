@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Longtime MMA manager details GFL chaos, says promotion is 'asking fighters to compete for free'](https://sports.yahoo.com/mma/article/longtime-mma-manager-details-gfl-chaos-says-promotion-is-asking-fighters-to-compete-for-free-173858013.html)
-- Apr 17 - [At least 4 hospitalized in Florida State University shooting](https://www.yahoo.com/news/least-4-hospitalized-florida-state-172357316.html)
-- Apr 17 - [Lockheed Martin Corporation (NYSE:LMT): Turbulent Times Ahead](https://finance.yahoo.com/news/lockheed-martin-corporation-nyse-lmt-171840959.html)
-- Apr 17 - [Florida State University shooting leaves at least 6 hospitalized; suspect reportedly in custody](https://www.yahoo.com/news/florida-state-university-shooting-leaves-at-least-6-hospitalized-suspect-reportedly-in-custody-171135347.html)
+- Apr 17 - [JD Vance wants the UK to repeal its LGBTQ+ hate speech laws to secure a trade deal](https://www.yahoo.com/news/jd-vance-wants-uk-repeal-183752239.html)
+- Apr 17 - [People Are Absolutely Losing It After Trump Said He Got The "Highest Mark" On His Cognitive Exam](https://www.yahoo.com/news/people-absolutely-losing-trump-said-181118483.html)
 - Apr 17 - [Nearly $1 billion of DOGE ‘savings’ vanish overnight](https://www.yahoo.com/news/nearly-one-billion-dollars-doge-163003613.html)
+- Apr 17 - [Are we trapped inside a black hole?](https://finance.yahoo.com/news/trapped-inside-black-hole-165046371.html)
+- Apr 17 - [Trump didn't take over Arizona border land just to catch migrants | Opinion](https://www.yahoo.com/news/trump-didnt-over-arizona-border-154813854.html)
 <!-- feed end -->
 
 ### Onstream
