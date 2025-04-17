@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [How to gain ‘buffer’ weight – and avoid frailty](https://www.yahoo.com/lifestyle/gain-buffer-weight-avoid-frailty-143812217.html)
-- Apr 17 - [Return of Ukrainian children forcefully deported to Russia is non-negotiable, Kyiv says](https://www.yahoo.com/news/return-ukrainian-children-forcefully-deported-140354349.html)
-- Apr 17 - [Why this analyst is 'confident' in US–China trade deal for Nvidia](https://finance.yahoo.com/video/why-analyst-confident-us-china-140211537.html)
-- Apr 17 - [Dunnellon council says yes to the sheriff providing law enforcement services](https://www.yahoo.com/news/dunnellon-council-says-yes-sheriff-133337042.html)
-- Apr 17 - [Archaeologists Found 317 Skeletons Buried Under a Department Store](https://www.yahoo.com/news/archaeologists-found-317-skeletons-buried-123000318.html)
+- Apr 17 - [Tears on my MyPillow: Weeping pro-Trump conspiracy theorist Mike Lindell tells judge he has no money to pay fines: ‘I’m in ruins’](https://www.yahoo.com/news/tears-mypillow-weeping-pro-trump-155016755.html)
+- Apr 17 - [Target CEO to meet with civil rights leader Al Sharpton amid DEI cuts](https://www.yahoo.com/news/target-ceo-meet-civil-rights-152733919.html)
+- Apr 17 - [Walking faster may reduce your risk of abnormal heart rhythms, study finds](https://www.yahoo.com/lifestyle/walking-faster-may-reduce-risk-150847216.html)
+- Apr 17 - [Fatma Hassona, the Palestinian Protagonist of Cannes-Bound ‘Put Your Soul on Your Hand and Walk,’ Killed in Israeli Missile Strike](https://www.yahoo.com/news/fatma-hassona-palestinian-protagonist-cannes-150158821.html)
+- Apr 17 - [Putin discusses Israel-Hamas war and Syria with visiting Qatari Emir](https://www.yahoo.com/news/putin-discusses-israel-hamas-war-135018253.html)
 <!-- feed end -->
 
 ### Onstream
