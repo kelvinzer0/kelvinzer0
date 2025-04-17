@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [United Airlines plane engine shoots out fire after hitting an animal on takeoff](https://www.yahoo.com/news/united-airlines-plane-engine-shoots-003818689.html)
+- Apr 17 - [Gov. Beshear appoints 2 new members to University of Louisville Board of Trustees](https://www.yahoo.com/news/gov-beshear-appoints-2-members-163953772.html)
+- Apr 17 - [Zelenskiy says Ukraine has evidence of China supplying Russia with artillery](https://www.yahoo.com/news/zelenskiy-says-ukraine-evidence-china-155943012.html)
 - Apr 17 - [Tears on my MyPillow: Weeping pro-Trump conspiracy theorist Mike Lindell tells judge he has no money to pay fines: ‘I’m in ruins’](https://www.yahoo.com/news/tears-mypillow-weeping-pro-trump-155016755.html)
-- Apr 17 - [Target CEO to meet with civil rights leader Al Sharpton amid DEI cuts](https://www.yahoo.com/news/target-ceo-meet-civil-rights-152733919.html)
-- Apr 17 - [Walking faster may reduce your risk of abnormal heart rhythms, study finds](https://www.yahoo.com/lifestyle/walking-faster-may-reduce-risk-150847216.html)
-- Apr 17 - [Fatma Hassona, the Palestinian Protagonist of Cannes-Bound ‘Put Your Soul on Your Hand and Walk,’ Killed in Israeli Missile Strike](https://www.yahoo.com/news/fatma-hassona-palestinian-protagonist-cannes-150158821.html)
-- Apr 17 - [Putin discusses Israel-Hamas war and Syria with visiting Qatari Emir](https://www.yahoo.com/news/putin-discusses-israel-hamas-war-135018253.html)
+- Apr 17 - [China Returns Boeing Jets. It’s a Headwind for the Stock.](https://www.barrons.com/articles/boeing-stock-price-china-jets-c2b1bef2?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
