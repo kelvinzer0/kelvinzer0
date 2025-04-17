@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [China Returns Boeing Jets, Report Says. It’s a Headwind for the Stock.](https://www.barrons.com/articles/boeing-stock-price-china-jets-c2b1bef2?siteid=yhoof2&yptr=yahoo)
-- Apr 17 - [Finance Expert Warns Trump Tariffs Make Saving Crucial: He'll 'Light A Fire Through The Global Economy'](https://finance.yahoo.com/news/finance-expert-warns-trump-tariffs-194708915.html)
+- Apr 17 - [Why Is Blue Origin Facing Backlash? Inside the All-Female Space Trip's Controversy — and How Its Crew Is Responding](https://www.yahoo.com/entertainment/articles/why-blue-origin-facing-backlash-214210489.html)
+- Apr 17 - [Tesla speeds up odometers to avoid warranty repairs, US lawsuit claims](https://finance.yahoo.com/news/tesla-speeds-odometers-avoid-warranty-213536596.html)
+- Apr 17 - [Republican Senator Murkowski on threat of Trump retaliation: 'We are all afraid'](https://www.yahoo.com/news/republican-senator-murkowski-threat-trump-205655641.html)
+- Apr 17 - [Hamas says it is ready to release all remaining hostages for an end to Gaza war](https://www.yahoo.com/news/hamas-ready-release-remaining-hostages-192855135.html)
 - Apr 17 - [Elon Musk Lost It on a Call With the Government After Autopilot Killed a Tesla Driver](https://www.yahoo.com/news/elon-musk-lost-call-government-192827723.html)
-- Apr 17 - [People Are Absolutely Losing It After Trump Said He Got The "Highest Mark" On His Cognitive Exam](https://www.yahoo.com/news/people-absolutely-losing-trump-said-181118483.html)
-- Apr 17 - [Longtime MMA manager details GFL chaos, says promotion is 'asking fighters to compete for free'](https://sports.yahoo.com/mma/article/longtime-mma-manager-details-gfl-chaos-says-promotion-is-asking-fighters-to-compete-for-free-173858013.html)
 <!-- feed end -->
 
 ### Onstream
