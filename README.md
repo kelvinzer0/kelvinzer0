@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Tesla hits bump in the road as sales slip: Steve Rattner](https://www.yahoo.com/news/tesla-hits-bump-road-sales-114748982.html)
+- Apr 17 - ['I am still in shock', says survivor of Dnipro mass drone attack](https://www.yahoo.com/news/am-still-shock-says-survivor-125421016.html)
+- Apr 17 - [Russian barriers to re-entry stymie prospects of Western companies' return](https://finance.yahoo.com/news/russian-barriers-entry-stymie-prospects-125214628.html)
+- Apr 17 - [Russia’s top court lifts terror group designation on Afghanistan’s Taliban](https://www.yahoo.com/news/russia-top-court-lifts-terror-125100695.html)
+- Apr 17 - [Archer outlines its plan to use air taxis between New York's major airports](https://tech.yahoo.com/article/archer-outlines-its-plan-to-use-air-taxis-between-new-yorks-major-airports-123024903.html)
 - Apr 17 - [Trump: 'Powell's termination cannot come fast enough'](https://finance.yahoo.com/news/trump-powells-termination-cannot-come-fast-enough-113417649.html)
-- Apr 17 - [Bright orange flare brightens Baytown skies at ExxonMobil plant | CW39](https://www.yahoo.com/news/bright-orange-flare-brightens-baytown-111040521.html)
-- Apr 17 - [Trump’s pick to be DC’s top prosecutor failed to report nearly 200 appearances on far-right media outlets to Senate](https://www.yahoo.com/news/trump-pick-dc-top-prosecutor-110036970.html)
-- Apr 17 - [This California woman says random pedestrians stole her $30K life savings. Here's what the scammers did](https://www.yahoo.com/news/california-woman-says-random-pedestrians-095500371.html)
 <!-- feed end -->
 
 ### Onstream
