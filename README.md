@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 17 - [Cyclone Errol Shows 'Some Signs of Weakening' as 'Intense Storm' Swirls Off Western Australia](https://www.yahoo.com/news/cyclone-errol-shows-signs-weakening-045423189.html)
-- Apr 17 - [Japan reports a $63 billion trade surplus with the US as it talks with Trump on tariffs](https://finance.yahoo.com/news/japan-reports-63-billion-trade-041927388.html)
+- Apr 17 - [Viral racist rant in Pinole sparks hate crime investigation](https://www.yahoo.com/news/viral-racist-rant-pinole-sparks-005213842.html)
 - Apr 17 - [Ex-Rams star Aaron Donald reportedly granted temporary restraining order against alleged stalker](https://sports.yahoo.com/nfl/article/ex-rams-star-aaron-donald-reportedly-granted-temporary-restraining-order-against-alleged-stalker-005106953.html)
+- Apr 17 - [United Airlines plane engine shoots out fire after hitting an animal on takeoff](https://www.yahoo.com/news/united-airlines-plane-engine-shoots-003818689.html)
 - Apr 16 - [Trump opposed a planned Israeli strike on Iranian nuclear sites, New York Times reports](https://www.yahoo.com/news/trump-waved-off-planned-israeli-232550017.html)
-- Apr 16 - [Trump’s Press Secretary’s Dress Stirs Up Social Media in China](https://www.yahoo.com/lifestyle/trump-press-secretary-dress-stirs-231028015.html)
 <!-- feed end -->
 
 ### Onstream
