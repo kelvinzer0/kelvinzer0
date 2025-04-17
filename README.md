@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [How to gain ‘buffer’ weight – and avoid frailty](https://www.yahoo.com/lifestyle/gain-buffer-weight-avoid-frailty-143812217.html)
+- Apr 17 - [Return of Ukrainian children forcefully deported to Russia is non-negotiable, Kyiv says](https://www.yahoo.com/news/return-ukrainian-children-forcefully-deported-140354349.html)
 - Apr 17 - [Why this analyst is 'confident' in US–China trade deal for Nvidia](https://finance.yahoo.com/video/why-analyst-confident-us-china-140211537.html)
-- Apr 17 - [A NATO country will send troops to Ukraine to learn from the war. Russia said they will be legitimate targets.](https://www.yahoo.com/news/nato-country-send-troops-ukraine-115441655.html)
-- Apr 17 - [Trump: 'Powell's termination cannot come fast enough'](https://finance.yahoo.com/news/trump-powells-termination-cannot-come-fast-enough-113417649.html)
-- Apr 17 - [Someone Asked The Internet What The US Would Be Like If Trump Never Won Any Elections, And The Answers Are A Glimpse Into A Different World](https://www.yahoo.com/entertainment/articles/someone-asked-internet-us-trump-103104007.html)
-- Apr 17 - [Mortgage and refinance interest rates today, April 17, 2025: Rates fall for 3 straight days](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-april-17-2025-100014615.html)
+- Apr 17 - [Dunnellon council says yes to the sheriff providing law enforcement services](https://www.yahoo.com/news/dunnellon-council-says-yes-sheriff-133337042.html)
+- Apr 17 - [Archaeologists Found 317 Skeletons Buried Under a Department Store](https://www.yahoo.com/news/archaeologists-found-317-skeletons-buried-123000318.html)
 <!-- feed end -->
 
 ### Onstream
