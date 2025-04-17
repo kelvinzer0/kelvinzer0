@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Why Is Blue Origin Facing Backlash? Inside the All-Female Space Trip's Controversy — and How Its Crew Is Responding](https://www.yahoo.com/entertainment/articles/why-blue-origin-facing-backlash-214210489.html)
-- Apr 17 - [Tesla speeds up odometers to avoid warranty repairs, US lawsuit claims](https://finance.yahoo.com/news/tesla-speeds-odometers-avoid-warranty-213536596.html)
-- Apr 17 - [Republican Senator Murkowski on threat of Trump retaliation: 'We are all afraid'](https://www.yahoo.com/news/republican-senator-murkowski-threat-trump-205655641.html)
+- Apr 17 - [How to play the VIX, Tesla earnings using options](https://finance.yahoo.com/video/play-vix-tesla-earnings-using-222410832.html)
+- Apr 17 - [George Santos is 'unrepentant' as he faces years in prison for fraud, prosecutors say](https://www.yahoo.com/news/george-santos-unrepentant-faces-years-213739181.html)
+- Apr 17 - [Tesla speeds up odometers to avoid warranty repairs, US lawsuit claims](https://finance.yahoo.com/news/tesla-speeds-odometers-avoid-warranty-213536905.html)
+- Apr 17 - [Fact Check: Real photo shows tied-up, stripped men in Salvadoran prison — just not the one receiving US deportees in 2025](https://www.yahoo.com/news/fact-check-real-photo-shows-205700008.html)
 - Apr 17 - [Hamas says it is ready to release all remaining hostages for an end to Gaza war](https://www.yahoo.com/news/hamas-ready-release-remaining-hostages-192855135.html)
-- Apr 17 - [Elon Musk Lost It on a Call With the Government After Autopilot Killed a Tesla Driver](https://www.yahoo.com/news/elon-musk-lost-call-government-192827723.html)
 <!-- feed end -->
 
 ### Onstream
