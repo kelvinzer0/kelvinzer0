@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [Trump tariffs provoke growing economic uncertainty](https://www.yahoo.com/news/trump-touts-trade-talks-china-172835818.html)
-- Apr 16 - [Video Captures Man Dragged Out of Car After Window Is Smashed by ICE Agent. His Lawyer Says They Have the Wrong Guy](https://www.yahoo.com/entertainment/articles/video-captures-man-dragged-car-191316678.html)
-- Apr 16 - [Trump administration plans to end the IRS Direct File program for free tax filing, AP sources say](https://www.yahoo.com/news/trump-administration-plans-end-irs-175500176.html)
-- Apr 16 - [El Salvador blocks US senator from visiting wrongly deported Salvadoran man](https://www.yahoo.com/news/us-senator-lands-el-salvador-173844646.html)
-- Apr 16 - [Trump Voters Are Sharing If He's Lost Their Support, And There's One Friendship Of His That They're Verrrrry Upset About](https://www.yahoo.com/news/trump-voters-sharing-hes-lost-172603524.html)
+- Apr 17 - [Will Trump's tariffs lead to more revenue to cover tax cuts?](https://www.yahoo.com/news/trumps-tariffs-lead-more-revenue-005846121.html)
+- Apr 17 - [United Airlines plane engine shoots out fire after hitting an animal on takeoff](https://www.yahoo.com/news/united-airlines-plane-engine-shoots-003818689.html)
+- Apr 17 - [Regional Hospital remains open amid negotiations with potential buyer](https://www.yahoo.com/news/regional-hospital-remains-open-amid-000800966.html)
+- Apr 16 - [Trump’s Press Secretary’s Dress Stirs Up Social Media in China](https://www.yahoo.com/lifestyle/trump-press-secretary-dress-stirs-231028015.html)
+- Apr 16 - [Scientists find strongest evidence yet of life on an alien planet](https://www.yahoo.com/news/scientists-strongest-evidence-yet-life-230259079.html)
 <!-- feed end -->
 
 ### Onstream
