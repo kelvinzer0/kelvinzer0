@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - ['I am still in shock', says survivor of Dnipro mass drone attack](https://www.yahoo.com/news/am-still-shock-says-survivor-125421016.html)
-- Apr 17 - [Russian barriers to re-entry stymie prospects of Western companies' return](https://finance.yahoo.com/news/russian-barriers-entry-stymie-prospects-125214628.html)
-- Apr 17 - [Russia’s top court lifts terror group designation on Afghanistan’s Taliban](https://www.yahoo.com/news/russia-top-court-lifts-terror-125100695.html)
-- Apr 17 - [Archer outlines its plan to use air taxis between New York's major airports](https://tech.yahoo.com/article/archer-outlines-its-plan-to-use-air-taxis-between-new-yorks-major-airports-123024903.html)
+- Apr 17 - [Why this analyst is 'confident' in US–China trade deal for Nvidia](https://finance.yahoo.com/video/why-analyst-confident-us-china-140211537.html)
+- Apr 17 - [A NATO country will send troops to Ukraine to learn from the war. Russia said they will be legitimate targets.](https://www.yahoo.com/news/nato-country-send-troops-ukraine-115441655.html)
 - Apr 17 - [Trump: 'Powell's termination cannot come fast enough'](https://finance.yahoo.com/news/trump-powells-termination-cannot-come-fast-enough-113417649.html)
+- Apr 17 - [Someone Asked The Internet What The US Would Be Like If Trump Never Won Any Elections, And The Answers Are A Glimpse Into A Different World](https://www.yahoo.com/entertainment/articles/someone-asked-internet-us-trump-103104007.html)
+- Apr 17 - [Mortgage and refinance interest rates today, April 17, 2025: Rates fall for 3 straight days](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-april-17-2025-100014615.html)
 <!-- feed end -->
 
 ### Onstream
