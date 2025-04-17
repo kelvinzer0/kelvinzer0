@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Exclusive-Moscow plans to use seized US-owned company to feed Russian army, document shows](https://www.yahoo.com/news/exclusive-moscow-plans-seized-us-061140932.html)
+- Apr 17 - ['Freak' Hailstorm Claims Several Lives in Parts of Pakistan](https://www.yahoo.com/news/freak-hailstorm-claims-several-lives-083354515.html)
+- Apr 17 - [Moscow plans to use seized US-owned company to feed Russian army, document shows](https://www.yahoo.com/news/exclusive-moscow-plans-seized-us-061140932.html)
 - Apr 17 - [Operation Assad: the air mission to smuggle the Syrian despot's valuables](https://www.yahoo.com/news/operation-assad-air-mission-smuggle-060659929.html)
 - Apr 17 - [Ex-Rams star Aaron Donald reportedly granted temporary restraining order against alleged stalker](https://sports.yahoo.com/nfl/article/ex-rams-star-aaron-donald-reportedly-granted-temporary-restraining-order-against-alleged-stalker-005106953.html)
-- Apr 17 - [North Korean leader Kim Jong Un with daughter at ribbon cutting ceremony for construction project](https://www.yahoo.com/news/north-korean-leader-kim-jong-004148623.html)
-- Apr 16 - [Trump opposed a planned Israeli strike on Iranian nuclear sites, New York Times reports](https://www.yahoo.com/news/trump-waved-off-planned-israeli-232550017.html)
+- Apr 16 - [Trump’s Press Secretary’s Dress Stirs Up Social Media in China](https://www.yahoo.com/lifestyle/trump-press-secretary-dress-stirs-231028015.html)
 <!-- feed end -->
 
 ### Onstream
