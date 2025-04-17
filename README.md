@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Republicans in Gulf states push to embrace Gulf of America name](https://www.yahoo.com/news/republicans-gulf-states-push-embrace-200135895.html)
+- Apr 17 - [China Returns Boeing Jets, Report Says. It’s a Headwind for the Stock.](https://www.barrons.com/articles/boeing-stock-price-china-jets-c2b1bef2?siteid=yhoof2&yptr=yahoo)
+- Apr 17 - [Finance Expert Warns Trump Tariffs Make Saving Crucial: He'll 'Light A Fire Through The Global Economy'](https://finance.yahoo.com/news/finance-expert-warns-trump-tariffs-194708915.html)
+- Apr 17 - [Elon Musk Lost It on a Call With the Government After Autopilot Killed a Tesla Driver](https://www.yahoo.com/news/elon-musk-lost-call-government-192827723.html)
 - Apr 17 - [People Are Absolutely Losing It After Trump Said He Got The "Highest Mark" On His Cognitive Exam](https://www.yahoo.com/news/people-absolutely-losing-trump-said-181118483.html)
-- Apr 17 - [Lockheed Martin Just Gave Investors Something New to Worry About](https://finance.yahoo.com/news/lockheed-martin-just-gave-investors-175857687.html)
 - Apr 17 - [Longtime MMA manager details GFL chaos, says promotion is 'asking fighters to compete for free'](https://sports.yahoo.com/mma/article/longtime-mma-manager-details-gfl-chaos-says-promotion-is-asking-fighters-to-compete-for-free-173858013.html)
-- Apr 17 - [Trump: We will have a trade deal with China](https://finance.yahoo.com/news/trump-trade-deal-china-173200980.html)
 <!-- feed end -->
 
 ### Onstream
