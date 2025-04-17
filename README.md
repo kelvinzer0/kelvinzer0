@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Three dead after horrific boat collision at Major League Fishing event](https://www.yahoo.com/news/three-dead-horrific-boat-collision-090052424.html)
+- Apr 17 - [This is America. Pearl clutching won't stop criticisms of OSU's Trump visit. | Opinion](https://www.yahoo.com/news/america-pearl-clutching-wont-stop-094833678.html)
 - Apr 17 - [Moscow plans to use seized US-owned company to feed Russian army, document shows](https://www.yahoo.com/news/exclusive-moscow-plans-seized-us-061140932.html)
 - Apr 17 - [Operation Assad: the air mission to smuggle the Syrian despot's valuables](https://www.yahoo.com/news/operation-assad-air-mission-smuggle-060659929.html)
-- Apr 16 - [Trump opposed a planned Israeli strike on Iranian nuclear sites, New York Times reports](https://www.yahoo.com/news/trump-waved-off-planned-israeli-232550017.html)
-- Apr 16 - [Trump’s Press Secretary’s Dress Stirs Up Social Media in China](https://www.yahoo.com/lifestyle/trump-press-secretary-dress-stirs-231028015.html)
-- Apr 16 - [Scientists find strongest evidence yet of life on an alien planet](https://www.yahoo.com/news/scientists-strongest-evidence-yet-life-230259079.html)
+- Apr 17 - [Divided loyalties? 62 Taiwanese military members found with Chinese residency permits](https://www.yahoo.com/news/divided-loyalties-62-taiwanese-military-043301179.html)
 <!-- feed end -->
 
 ### Onstream
