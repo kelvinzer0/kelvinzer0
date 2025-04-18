@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [I’m A Teacher. Here’s The Shocking Truth About The "Woke" Indoctrination Of Students That Terrifies Conservatives.](https://www.yahoo.com/news/m-teacher-shocking-truth-woke-013104888.html)
 - Apr 18 - [Two arrested in Luzerne County drug bust](https://www.yahoo.com/news/two-arrested-luzerne-county-drug-004443905.html)
-- Apr 17 - [B-1B Bones Make Unprecedented Bomber Task Force Deployment To Japan](https://www.yahoo.com/news/b-1b-bones-unprecedented-bomber-225328886.html)
+- Apr 18 - [JD Vance made a mockery once again, this time he's besieged with devastating AI eyeliner videos](https://www.yahoo.com/lifestyle/jd-vance-made-mockery-once-004111040.html)
+- Apr 17 - [Exclusive-Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237338.html)
 - Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
-- Apr 17 - [Medical Professionals, Tell Us The "Small" Health Issues People Ignore That Are Actually Serious](https://www.yahoo.com/lifestyle/doctors-tell-us-serious-health-215721534.html)
+- Apr 17 - [Menendez brothers' long-awaited resentencing hearing is delayed after dramatic day in court](https://www.yahoo.com/news/da-asks-delay-hours-menendez-090129649.html)
 <!-- feed end -->
 
 ### Onstream
