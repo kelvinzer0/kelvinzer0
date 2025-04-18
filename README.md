@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [2 Dividend Stocks to Double Up on Right Now](https://finance.yahoo.com/news/2-dividend-stocks-double-now-084500798.html)
+- Apr 18 - [Rubio warns if it’s not possible to end the war in Ukraine, US needs to ‘move on’](https://www.yahoo.com/news/rubio-warns-not-possible-end-080913430.html)
 - Apr 18 - [The US has a single rare earths mine. Chinese export limits are energizing a push for more](https://www.yahoo.com/news/us-single-rare-earths-mine-042234910.html)
 - Apr 18 - [JD Vance made a mockery once again, this time he's besieged with devastating AI eyeliner videos](https://www.yahoo.com/lifestyle/jd-vance-made-mockery-once-004111040.html)
 - Apr 17 - [Exclusive-Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237338.html)
-- Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
-- Apr 17 - [Menendez brothers' long-awaited resentencing hearing is delayed after dramatic day in court](https://www.yahoo.com/news/da-asks-delay-hours-menendez-090129649.html)
 <!-- feed end -->
 
 ### Onstream
