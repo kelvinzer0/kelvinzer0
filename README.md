@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Two arrested on suspicion of murder after woman disappears in South Wales](https://www.yahoo.com/news/two-arrested-suspicion-murder-woman-113524256.html)
-- Apr 18 - [I’ve Been on Social Security for 2 Years — Here’s How My Finances Have Changed](https://finance.yahoo.com/news/ve-social-security-2-years-110111777.html)
 - Apr 18 - [Social Security Changes Proposed by President Trump Could Be Bad News for Retirees](https://finance.yahoo.com/news/social-security-changes-proposed-president-090000268.html)
+- Apr 18 - [San Jose police arrest 7 men allegedly trying to meet minors under 14 for sex](https://www.yahoo.com/news/san-jose-police-arrest-7-001540211.html)
 - Apr 17 - [Exclusive-Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237338.html)
 - Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
+- Apr 17 - [Medical Professionals, Tell Us The "Small" Health Issues People Ignore That Are Actually Serious](https://www.yahoo.com/lifestyle/doctors-tell-us-serious-health-215721534.html)
 <!-- feed end -->
 
 ### Onstream
