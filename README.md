@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [New York settles lawsuit with ex-governor's former aide](https://www.yahoo.com/news/york-settles-lawsuit-ex-governors-214836052.html)
-- Apr 18 - [Alabama House passes 'Don't Say Gay,' drag ban, and Ten Commandments bills all at once](https://www.yahoo.com/news/alabama-house-passes-dont-gay-213816973.html)
+- Apr 18 - [Italian court upholds life sentence for parents of Pakistani woman killed by her family](https://www.yahoo.com/news/italian-court-upholds-life-sentence-213358079.html)
+- Apr 18 - [Here is what US military leaders in the Pacific suspect North Korea is getting for sending troops and weapons into Russia's war](https://www.yahoo.com/news/us-military-leaders-pacific-suspect-211602570.html)
+- Apr 18 - [Second teenager arrested for house party shooting that killed 2 in Pierce County](https://www.yahoo.com/news/second-teenager-arrested-house-party-210207034.html)
 - Apr 18 - [He’s been dead for more than 300 years. So why is this emperor angering millions today?](https://www.yahoo.com/news/dead-more-300-years-why-210035168.html)
 - Apr 18 - [People Cannot Believe This Was Actually Donald Trump's Response To The FSU Shooting](https://www.yahoo.com/news/people-cannot-believe-actually-donald-202903054.html)
-- Apr 18 - [Video shows doctor with measles treating kids. RFK Jr later praised him as an ‘extraordinary’ healer](https://www.yahoo.com/news/video-shows-doctor-measles-treating-190902080.html)
 <!-- feed end -->
 
 ### Onstream
