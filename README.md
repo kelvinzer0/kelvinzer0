@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Dave Ramsey speechless after man admits to borrowing $80K for trailer parked on ‘dirt’ — 3 crucial takeaways](https://finance.yahoo.com/news/dave-ramsey-speechless-man-admits-120500232.html)
+- Apr 18 - [New Pornographers ‘Absolutely Shocked’ After Drummer Joe Seiders Arrested For Possession of Child Pornography](https://www.yahoo.com/news/pornographers-absolutely-shocked-drummer-joe-115041546.html)
+- Apr 18 - [Berkshire Hathaway is top defensive pick, portfolio manager says](https://finance.yahoo.com/video/berkshire-hathaway-top-defensive-pick-103052738.html)
 - Apr 18 - [Social Security Changes Proposed by President Trump Could Be Bad News for Retirees](https://finance.yahoo.com/news/social-security-changes-proposed-president-090000268.html)
-- Apr 18 - [San Jose police arrest 7 men allegedly trying to meet minors under 14 for sex](https://www.yahoo.com/news/san-jose-police-arrest-7-001540211.html)
-- Apr 17 - [Exclusive-Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237338.html)
-- Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
-- Apr 17 - [Medical Professionals, Tell Us The "Small" Health Issues People Ignore That Are Actually Serious](https://www.yahoo.com/lifestyle/doctors-tell-us-serious-health-215721534.html)
+- Apr 18 - [The US has a single rare earths mine. Chinese export limits are energizing a push for more](https://www.yahoo.com/news/us-single-rare-earths-mine-042234910.html)
 <!-- feed end -->
 
 ### Onstream
