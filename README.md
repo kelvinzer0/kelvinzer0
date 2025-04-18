@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 18 - [JD Vance made a mockery once again, this time he's besieged with devastating AI eyeliner videos](https://www.yahoo.com/lifestyle/jd-vance-made-mockery-once-004111040.html)
 - Apr 17 - [Exclusive-Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237338.html)
-- Apr 17 - [‘Truly devastated’: Missing kayaker identified after going over Willamette Falls](https://www.yahoo.com/news/truly-devastated-missing-kayaker-identified-224740867.html)
 - Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
-- Apr 17 - [Trump signals tit-for-tat China tariffs may be near end; TikTok deal on ice](https://finance.yahoo.com/news/trump-says-china-reached-tariffs-210109406.html)
+- Apr 17 - [Menendez brothers' long-awaited resentencing hearing is delayed after dramatic day in court](https://www.yahoo.com/news/da-asks-delay-hours-menendez-090129649.html)
+- Apr 17 - [Medical Professionals, Tell Us The "Small" Health Issues People Ignore That Are Actually Serious](https://www.yahoo.com/lifestyle/doctors-tell-us-serious-health-215721534.html)
 <!-- feed end -->
 
 ### Onstream
