@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Exclusive-Tesla to delay US launch of affordable EV, a lower-cost Model Y, sources say](https://finance.yahoo.com/news/exclusive-tesla-delay-us-launch-203403188.html)
+- Apr 18 - [People Cannot Believe This Was Actually Donald Trump's Response To The FSU Shooting](https://www.yahoo.com/news/people-cannot-believe-actually-donald-202903054.html)
 - Apr 18 - [Video shows doctor with measles treating kids. RFK Jr later praised him as an ‘extraordinary’ healer](https://www.yahoo.com/news/video-shows-doctor-measles-treating-190902080.html)
+- Apr 18 - [Dr. Oz's Swearing-In Ceremony Turns to Chaos When Granddaughter Faints During Trump's Speech: 'Everybody Out!'](https://www.yahoo.com/entertainment/articles/dr-ozs-swearing-ceremony-turns-185921259.html)
 - Apr 18 - [IRS acting head ousted after US Treasury chief wins power struggle with Musk, NYT reports](https://www.yahoo.com/news/irs-acting-head-ousted-us-174614390.html)
-- Apr 18 - [Trump White House Openly Mocks Maryland Senator for Meeting With Kilmar Abrego Garcia: ‘He’s NOT Coming Back’](https://www.yahoo.com/news/trump-white-house-openly-mocks-173901887.html)
-- Apr 18 - [The Ethical Reason Some People Avoid Ordering In-N-Out](https://www.yahoo.com/lifestyle/ethical-reason-people-avoid-ordering-154000525.html)
-- Apr 18 - [After Trans Women Were Ruled To No Longer Be Legally Women In The UK, Nicola Coughlan Had Some Excellent Words](https://www.yahoo.com/news/nicola-coughlan-criticized-j-k-151849870.html)
 <!-- feed end -->
 
 ### Onstream
