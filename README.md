@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [The Apple Watch Series 10 is back on sale for $299](https://tech.yahoo.com/article/the-apple-watch-series-10-is-back-on-sale-for-299-155611025.html)
-- Apr 18 - [AP top stories April 18 A](https://www.yahoo.com/news/ap-top-stories-april-18-153734013.html)
-- Apr 18 - [Wisconsin governor can lock in 400-year school funding increase using a veto, court says](https://www.yahoo.com/news/wisconsin-governor-lock-400-school-142657858.html)
-- Apr 18 - [Social Security Changes Proposed by President Trump Could Be Bad News for Retirees](https://finance.yahoo.com/news/social-security-changes-proposed-president-090000268.html)
-- Apr 18 - [Corpus Christi ISD is considering closing two schools. Here's why](https://www.yahoo.com/news/corpus-christi-isd-considering-closing-083052361.html)
+- Apr 18 - [Trump Administration Blasts Biden, Fauci for ‘Outright Censorship’ on Revamped Covid-19 Website](https://www.yahoo.com/news/trump-administration-blasts-biden-fauci-170301618.html)
+- Apr 18 - [JK Rowling’s journey from Harry Potter creator to gender-critical campaigner](https://www.yahoo.com/news/jk-rowling-journey-harry-potter-161128667.html)
+- Apr 18 - [Indian man says his US visa for Florida holiday was rejected in less than a minute](https://www.yahoo.com/news/indian-man-says-us-visa-155930960.html)
+- Apr 18 - [Watch Chinese EVs Show Off Just How Much Better They Are Than Our Inferior Western EVs](https://autos.yahoo.com/watch-chinese-evs-show-off-152500312.html)
+- Apr 18 - [Trump Just Lost His Most Important Talking Point Thanks to Brutal Poll](https://www.yahoo.com/news/trump-just-lost-most-important-143016152.html)
 <!-- feed end -->
 
 ### Onstream
