@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Fire crews douse multiple blazes in north Lincoln Co.](https://www.yahoo.com/news/fire-crews-douse-multiple-blazes-181900421.html)
-- Apr 18 - [Detained Welsh tourist tells of experience in US](https://www.yahoo.com/news/detained-welsh-tourist-tells-experience-175809819.html)
+- Apr 18 - [Video shows doctor with measles treating kids. RFK Jr later praised him as an ‘extraordinary’ healer](https://www.yahoo.com/news/video-shows-doctor-measles-treating-190902080.html)
 - Apr 18 - [IRS acting head ousted after US Treasury chief wins power struggle with Musk, NYT reports](https://www.yahoo.com/news/irs-acting-head-ousted-us-174614390.html)
 - Apr 18 - [Trump White House Openly Mocks Maryland Senator for Meeting With Kilmar Abrego Garcia: ‘He’s NOT Coming Back’](https://www.yahoo.com/news/trump-white-house-openly-mocks-173901887.html)
-- Apr 18 - [Judge won’t take further steps to enforce his order in AP case against Trump administration](https://www.yahoo.com/news/judge-won-t-further-steps-171942733.html)
+- Apr 18 - [The Ethical Reason Some People Avoid Ordering In-N-Out](https://www.yahoo.com/lifestyle/ethical-reason-people-avoid-ordering-154000525.html)
+- Apr 18 - [After Trans Women Were Ruled To No Longer Be Legally Women In The UK, Nicola Coughlan Had Some Excellent Words](https://www.yahoo.com/news/nicola-coughlan-criticized-j-k-151849870.html)
 <!-- feed end -->
 
 ### Onstream
