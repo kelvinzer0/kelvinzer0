@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [New Pornographers ‘Absolutely Shocked’ After Drummer Joe Seiders Arrested For Possession of Child Pornography](https://www.yahoo.com/news/pornographers-absolutely-shocked-drummer-joe-115041546.html)
+- Apr 18 - [The Apple Watch Series 10 is back on sale for $299](https://tech.yahoo.com/article/the-apple-watch-series-10-is-back-on-sale-for-299-155611025.html)
+- Apr 18 - [AP top stories April 18 A](https://www.yahoo.com/news/ap-top-stories-april-18-153734013.html)
+- Apr 18 - [Wisconsin governor can lock in 400-year school funding increase using a veto, court says](https://www.yahoo.com/news/wisconsin-governor-lock-400-school-142657858.html)
 - Apr 18 - [Social Security Changes Proposed by President Trump Could Be Bad News for Retirees](https://finance.yahoo.com/news/social-security-changes-proposed-president-090000268.html)
-- Apr 18 - [‘Made enough people uncomfortable’: FSU student describes what suspect was like in class](https://www.yahoo.com/news/made-enough-people-uncomfortable-fsu-072154238.html)
-- Apr 18 - [Wordle hints today for #1,399: Clues and answer for Friday, April 18](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1399-clues-and-answer-for-friday-april-18-040155383.html)
-- Apr 18 - [JD Vance made a mockery once again, this time he's besieged with devastating AI eyeliner videos](https://www.yahoo.com/lifestyle/jd-vance-made-mockery-once-004111040.html)
+- Apr 18 - [Corpus Christi ISD is considering closing two schools. Here's why](https://www.yahoo.com/news/corpus-christi-isd-considering-closing-083052361.html)
 <!-- feed end -->
 
 ### Onstream
