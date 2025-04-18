@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [How to play the VIX, Tesla earnings using options](https://finance.yahoo.com/video/play-vix-tesla-earnings-using-222410832.html)
+- Apr 18 - [Police reportedly shoot, kill dog while responding to call in Pasadena](https://www.yahoo.com/news/police-reportedly-shoot-kill-dog-001300676.html)
+- Apr 17 - [Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237497.html)
+- Apr 17 - [House Republicans refuse to pass ceremonial resolution honoring Cecile Richards](https://www.yahoo.com/news/house-republicans-refuse-pass-ceremonial-201310616.html)
+- Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
 - Apr 17 - [George Santos is 'unrepentant' as he faces years in prison for fraud, prosecutors say](https://www.yahoo.com/news/george-santos-unrepentant-faces-years-213739181.html)
-- Apr 17 - [Tesla speeds up odometers to avoid warranty repairs, US lawsuit claims](https://finance.yahoo.com/news/tesla-speeds-odometers-avoid-warranty-213536905.html)
-- Apr 17 - [Fact Check: Real photo shows tied-up, stripped men in Salvadoran prison — just not the one receiving US deportees in 2025](https://www.yahoo.com/news/fact-check-real-photo-shows-205700008.html)
-- Apr 17 - [Hamas says it is ready to release all remaining hostages for an end to Gaza war](https://www.yahoo.com/news/hamas-ready-release-remaining-hostages-192855135.html)
 <!-- feed end -->
 
 ### Onstream
