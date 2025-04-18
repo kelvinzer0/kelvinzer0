@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Dave Ramsey speechless after man admits to borrowing $80K for trailer parked on ‘dirt’ — 3 crucial takeaways](https://finance.yahoo.com/news/dave-ramsey-speechless-man-admits-120500232.html)
 - Apr 18 - [New Pornographers ‘Absolutely Shocked’ After Drummer Joe Seiders Arrested For Possession of Child Pornography](https://www.yahoo.com/news/pornographers-absolutely-shocked-drummer-joe-115041546.html)
-- Apr 18 - [Berkshire Hathaway is top defensive pick, portfolio manager says](https://finance.yahoo.com/video/berkshire-hathaway-top-defensive-pick-103052738.html)
 - Apr 18 - [Social Security Changes Proposed by President Trump Could Be Bad News for Retirees](https://finance.yahoo.com/news/social-security-changes-proposed-president-090000268.html)
-- Apr 18 - [The US has a single rare earths mine. Chinese export limits are energizing a push for more](https://www.yahoo.com/news/us-single-rare-earths-mine-042234910.html)
+- Apr 18 - [‘Made enough people uncomfortable’: FSU student describes what suspect was like in class](https://www.yahoo.com/news/made-enough-people-uncomfortable-fsu-072154238.html)
+- Apr 18 - [Wordle hints today for #1,399: Clues and answer for Friday, April 18](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1399-clues-and-answer-for-friday-april-18-040155383.html)
+- Apr 18 - [JD Vance made a mockery once again, this time he's besieged with devastating AI eyeliner videos](https://www.yahoo.com/lifestyle/jd-vance-made-mockery-once-004111040.html)
 <!-- feed end -->
 
 ### Onstream
