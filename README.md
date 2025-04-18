@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Exclusive-Tesla to delay US launch of affordable EV, a lower-cost Model Y, sources say](https://finance.yahoo.com/news/exclusive-tesla-delay-us-launch-203403188.html)
+- Apr 18 - [New York settles lawsuit with ex-governor's former aide](https://www.yahoo.com/news/york-settles-lawsuit-ex-governors-214836052.html)
+- Apr 18 - [Alabama House passes 'Don't Say Gay,' drag ban, and Ten Commandments bills all at once](https://www.yahoo.com/news/alabama-house-passes-dont-gay-213816973.html)
+- Apr 18 - [He’s been dead for more than 300 years. So why is this emperor angering millions today?](https://www.yahoo.com/news/dead-more-300-years-why-210035168.html)
 - Apr 18 - [People Cannot Believe This Was Actually Donald Trump's Response To The FSU Shooting](https://www.yahoo.com/news/people-cannot-believe-actually-donald-202903054.html)
 - Apr 18 - [Video shows doctor with measles treating kids. RFK Jr later praised him as an ‘extraordinary’ healer](https://www.yahoo.com/news/video-shows-doctor-measles-treating-190902080.html)
-- Apr 18 - [Dr. Oz's Swearing-In Ceremony Turns to Chaos When Granddaughter Faints During Trump's Speech: 'Everybody Out!'](https://www.yahoo.com/entertainment/articles/dr-ozs-swearing-ceremony-turns-185921259.html)
-- Apr 18 - [IRS acting head ousted after US Treasury chief wins power struggle with Musk, NYT reports](https://www.yahoo.com/news/irs-acting-head-ousted-us-174614390.html)
 <!-- feed end -->
 
 ### Onstream
