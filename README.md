@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Police reportedly shoot, kill dog while responding to call in Pasadena](https://www.yahoo.com/news/police-reportedly-shoot-kill-dog-001300676.html)
-- Apr 17 - [Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237497.html)
-- Apr 17 - [House Republicans refuse to pass ceremonial resolution honoring Cecile Richards](https://www.yahoo.com/news/house-republicans-refuse-pass-ceremonial-201310616.html)
+- Apr 18 - [I’m A Teacher. Here’s The Shocking Truth About The "Woke" Indoctrination Of Students That Terrifies Conservatives.](https://www.yahoo.com/news/m-teacher-shocking-truth-woke-013104888.html)
+- Apr 18 - [Two arrested in Luzerne County drug bust](https://www.yahoo.com/news/two-arrested-luzerne-county-drug-004443905.html)
+- Apr 17 - [B-1B Bones Make Unprecedented Bomber Task Force Deployment To Japan](https://www.yahoo.com/news/b-1b-bones-unprecedented-bomber-225328886.html)
 - Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
-- Apr 17 - [George Santos is 'unrepentant' as he faces years in prison for fraud, prosecutors say](https://www.yahoo.com/news/george-santos-unrepentant-faces-years-213739181.html)
+- Apr 17 - [Medical Professionals, Tell Us The "Small" Health Issues People Ignore That Are Actually Serious](https://www.yahoo.com/lifestyle/doctors-tell-us-serious-health-215721534.html)
 <!-- feed end -->
 
 ### Onstream
