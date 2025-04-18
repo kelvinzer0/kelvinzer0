@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Trump Administration Blasts Biden, Fauci for ‘Outright Censorship’ on Revamped Covid-19 Website](https://www.yahoo.com/news/trump-administration-blasts-biden-fauci-170301618.html)
-- Apr 18 - [JK Rowling’s journey from Harry Potter creator to gender-critical campaigner](https://www.yahoo.com/news/jk-rowling-journey-harry-potter-161128667.html)
-- Apr 18 - [Indian man says his US visa for Florida holiday was rejected in less than a minute](https://www.yahoo.com/news/indian-man-says-us-visa-155930960.html)
+- Apr 18 - [Toddler Who Wandered Miles From Home And Spent Night In Desert Saved By Very Good Dog](https://www.yahoo.com/news/toddler-wandered-miles-home-spent-180628074.html)
+- Apr 18 - [Best Apple Watch Deals: Save Up to a Massive $280 Instantly or Get a Discount With a New Line or Trade-In](https://tech.yahoo.com/wearables/deals/articles/best-apple-watch-deals-save-203800242.html)
+- Apr 18 - [Judge won’t take further steps to enforce his order in AP case against Trump administration](https://www.yahoo.com/news/judge-won-t-further-steps-171942733.html)
 - Apr 18 - [Watch Chinese EVs Show Off Just How Much Better They Are Than Our Inferior Western EVs](https://autos.yahoo.com/watch-chinese-evs-show-off-152500312.html)
 - Apr 18 - [Trump Just Lost His Most Important Talking Point Thanks to Brutal Poll](https://www.yahoo.com/news/trump-just-lost-most-important-143016152.html)
 <!-- feed end -->
