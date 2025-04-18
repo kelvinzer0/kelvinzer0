@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [2 Dividend Stocks to Double Up on Right Now](https://finance.yahoo.com/news/2-dividend-stocks-double-now-084500798.html)
-- Apr 18 - [Rubio warns if it’s not possible to end the war in Ukraine, US needs to ‘move on’](https://www.yahoo.com/news/rubio-warns-not-possible-end-080913430.html)
-- Apr 18 - [The US has a single rare earths mine. Chinese export limits are energizing a push for more](https://www.yahoo.com/news/us-single-rare-earths-mine-042234910.html)
-- Apr 18 - [JD Vance made a mockery once again, this time he's besieged with devastating AI eyeliner videos](https://www.yahoo.com/lifestyle/jd-vance-made-mockery-once-004111040.html)
+- Apr 18 - [In US Chinatowns, merchants ‘don’t want the trade war to be a war’](https://finance.yahoo.com/news/us-chinatowns-merchants-don-t-100431098.html)
+- Apr 18 - [US will abandon Ukraine peace efforts ‘within days’ if no progress made, Rubio warns](https://www.yahoo.com/news/rubio-warns-not-possible-end-080913430.html)
+- Apr 18 - [Two British tourists among four killed after cable car crashes to ground in Naples](https://www.yahoo.com/news/four-killed-cable-car-crashes-180836277.html)
+- Apr 18 - [How much does a Real ID cost in Rhode Island? What to know ahead of May deadline](https://www.yahoo.com/news/much-does-real-id-cost-090844372.html)
 - Apr 17 - [Exclusive-Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237338.html)
 <!-- feed end -->
 
