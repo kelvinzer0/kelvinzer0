@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Two British tourists among four killed after cable car crashes to ground in Naples](https://www.yahoo.com/news/four-killed-cable-car-crashes-180836277.html)
+- Apr 18 - [Two arrested on suspicion of murder after woman disappears in South Wales](https://www.yahoo.com/news/two-arrested-suspicion-murder-woman-113524256.html)
+- Apr 18 - [I’ve Been on Social Security for 2 Years — Here’s How My Finances Have Changed](https://finance.yahoo.com/news/ve-social-security-2-years-110111777.html)
 - Apr 18 - [Social Security Changes Proposed by President Trump Could Be Bad News for Retirees](https://finance.yahoo.com/news/social-security-changes-proposed-president-090000268.html)
-- Apr 18 - [Bitcoin Is Plummeting: How Much Will a $10,000 Investment Be Worth in 10 Years? Here Are 3 Possible Answers.](https://finance.yahoo.com/news/bitcoin-plummeting-much-10-000-083000706.html)
-- Apr 17 - [House Republicans refuse to pass ceremonial resolution honoring Cecile Richards](https://www.yahoo.com/news/house-republicans-refuse-pass-ceremonial-201310616.html)
-- Apr 17 - [Medical Professionals, Tell Us The "Small" Health Issues People Ignore That Are Actually Serious](https://www.yahoo.com/lifestyle/doctors-tell-us-serious-health-215721534.html)
+- Apr 17 - [Exclusive-Intel CEO Lip-Bu Tan flattens leadership structure, names new AI chief, memo says](https://finance.yahoo.com/news/exclusive-intel-ceo-lip-bu-233237338.html)
+- Apr 17 - [Hillary Clinton Shares Blunt Message About Trump's Administration — And It’s Spot-On](https://www.yahoo.com/news/hillary-clinton-shares-blunt-message-223648081.html)
 <!-- feed end -->
 
 ### Onstream
