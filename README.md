@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Baltimore weather: Warm, breezy Saturday followed by a mild Easter Sunday](https://www.yahoo.com/news/baltimore-weather-warm-breezy-saturday-123000544.html)
+- Apr 19 - [After diagnosis, RFK Jr. comments, local entrepreneur to host Happy Hour for Adults with Autism](https://www.yahoo.com/news/diagnosis-rfk-jr-comments-local-122400692.html)
+- Apr 19 - [A prince and knight fall in love and the Supreme Court is asked to intervene](https://www.yahoo.com/news/prince-knight-fall-love-supreme-121003400.html)
 - Apr 19 - [This Florida metro is the foreclosure capital of the US — here's what is behind the crisis](https://finance.yahoo.com/news/florida-metro-foreclosure-capital-us-102500296.html)
 - Apr 19 - [Buick finally had cars Americans wanted to buy - then came tariffs](https://finance.yahoo.com/news/buick-finally-had-cars-americans-100252827.html)
-- Apr 19 - [Vatican notes 'exchange of opinions' over migrants, prisoners in meeting with Vance](https://www.yahoo.com/news/jd-vance-goes-vatican-following-051009984.html)
-- Apr 19 - [27 Fiends Who Asked To Speak To The Manager For The Most Obnoxious Reasons](https://www.yahoo.com/lifestyle/27-fiends-asked-speak-manager-033102192.html)
-- Apr 19 - [17 injured in fiery crash of multiple motorcycles on I-35W in north Fort Worth](https://www.yahoo.com/news/17-injured-fiery-crash-multiple-032104222.html)
 <!-- feed end -->
 
 ### Onstream
