@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [Chinese robots ran against humans in the world’s first humanoid half-marathon. They lost by a mile](https://www.yahoo.com/news/chinese-robots-ran-against-humans-052025375.html)
-- Apr 19 - [JD Vance visits the Vatican following remarkable papal rebuke over Trump's migrant crackdown](https://www.yahoo.com/news/jd-vance-goes-vatican-following-051009984.html)
-- Apr 19 - [Trump Officials Tried to Claim Harvard Letter Was Sent by Mistake After University Publicly Rejected Demands](https://www.yahoo.com/news/trump-officials-tried-claim-harvard-030616955.html)
-- Apr 19 - [US citizen says he and his wife detained without explanation after returning from Canada](https://www.yahoo.com/news/us-citizen-says-wife-detained-003840480.html)
-- Apr 19 - [First female Thunderbird pilot removed from Air Force website](https://www.yahoo.com/news/first-female-thunderbird-pilot-removed-000505093.html)
+- Apr 19 - [This Florida metro is the foreclosure capital of the US — here's what is behind the crisis](https://finance.yahoo.com/news/florida-metro-foreclosure-capital-us-102500296.html)
+- Apr 19 - [Buick finally had cars Americans wanted to buy - then came tariffs](https://finance.yahoo.com/news/buick-finally-had-cars-americans-100252827.html)
+- Apr 19 - [1 Under-the-Radar Stock to Buy Hand Over Fist During the Nasdaq Bear Market](https://finance.yahoo.com/news/1-under-radar-stock-buy-082900860.html)
+- Apr 19 - [27 Fiends Who Asked To Speak To The Manager For The Most Obnoxious Reasons](https://www.yahoo.com/lifestyle/27-fiends-asked-speak-manager-033102192.html)
+- Apr 19 - [Alabama Bar and Lounge owner receives eviction notice](https://www.yahoo.com/news/alabama-bar-lounge-owner-receives-032411764.html)
 <!-- feed end -->
 
 ### Onstream
