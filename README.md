@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [Tanzania opposition party says its leader has been moved to different prison](https://www.yahoo.com/news/tanzania-opposition-party-says-leader-135228899.html)
-- Apr 19 - [Florida State University shooting: New details emerge of suspect](https://www.yahoo.com/news/florida-state-university-shooting-details-132902550.html)
-- Apr 19 - [JD Vance visits the Vatican on Easter weekend](https://www.yahoo.com/news/jd-vance-visits-vatican-easter-132423574.html)
+- Apr 19 - [A prince and knight fall in love and the Supreme Court is asked to intervene](https://www.yahoo.com/news/prince-knight-fall-love-supreme-121003400.html)
 - Apr 19 - [Cambodia welcomes Japanese navy ships to naval base that US suspects is for China's special use](https://www.yahoo.com/news/cambodia-welcomes-japanese-navy-ships-114513068.html)
+- Apr 19 - [Russian President Vladimir Putin announces an Easter ceasefire in Ukraine](https://www.yahoo.com/news/russia-says-retaken-another-village-103001211.html)
 - Apr 19 - [This Florida metro is the foreclosure capital of the US — here's what is behind the crisis](https://finance.yahoo.com/news/florida-metro-foreclosure-capital-us-102500296.html)
+- Apr 19 - [Mortgage and refinance rates today, April 19, 2025: Rates increase after Powell's comments](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-april-19-2025-100056754.html)
 <!-- feed end -->
 
 ### Onstream
