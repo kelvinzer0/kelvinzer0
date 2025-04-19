@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [SpaceX launch set for Sunday morning on California coast. Will you see it from Coachella?](https://www.yahoo.com/news/spacex-launch-set-sunday-morning-175946051.html)
-- Apr 19 - [Former FSU coach praises law enforcement, university safety updates as school recovers](https://www.yahoo.com/news/former-fsu-coach-praises-law-170726099.html)
-- Apr 19 - [Russian President Vladimir Putin announces an Easter ceasefire in Ukraine](https://www.yahoo.com/news/russian-president-vladimir-putin-announces-151110845.html)
+- Apr 19 - [Plane crashes into Nebraska river, killing all passengers on board](https://www.yahoo.com/news/plane-crashes-nebraska-river-killing-152858084.html)
 - Apr 19 - [Winning Mega Millions ticket worth $112 million sold in Northeast Ohio](https://www.yahoo.com/news/winning-mega-millions-ticket-worth-131315213.html)
 - Apr 19 - [Scientists Opened Up a 3,000-Year-Old Crocodile. The Contents Left Them Awestruck.](https://www.yahoo.com/news/scientists-opened-3-000-old-124500487.html)
+- Apr 19 - [A prince and knight fall in love and the Supreme Court is asked to intervene](https://www.yahoo.com/news/prince-knight-fall-love-supreme-121003400.html)
+- Apr 19 - [Farmers sound the alarm as planting season reaches a crucial turning point: 'It will be a total disaster'](https://www.yahoo.com/news/farmers-sound-alarm-planting-season-110040192.html)
 <!-- feed end -->
 
 ### Onstream
