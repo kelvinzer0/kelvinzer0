@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [Prom 2025: All the glamorous photos from around Oklahoma City, OK County](https://www.yahoo.com/lifestyle/prom-2025-glamorous-photos-around-153016471.html)
-- Apr 19 - [Woman removed from OKC bombing ceremony after walking onto stage, talking at officials](https://www.yahoo.com/news/woman-removed-okc-bombing-ceremony-202143083.html)
+- Apr 19 - [Thousands of protesters rally against Trump across US](https://www.yahoo.com/news/thousands-protesters-rally-against-trump-204357805.html)
+- Apr 19 - [Student could face ‘decades behind bars’ for alleged Tesla firebomb attack in Missouri](https://www.yahoo.com/news/student-could-face-decades-behind-203348078.html)
 - Apr 19 - [The Supreme Court’s Late-Night Rebuke to Trump Is Extraordinary in More Ways Than One](https://www.yahoo.com/news/supreme-court-night-rebuke-trump-180734719.html)
 - Apr 19 - [Plane crashes into Nebraska river, killing all passengers on board](https://www.yahoo.com/news/plane-crashes-nebraska-river-killing-152858084.html)
 - Apr 19 - [Winning Mega Millions ticket worth $112 million sold in Northeast Ohio](https://www.yahoo.com/news/winning-mega-millions-ticket-worth-131315213.html)
