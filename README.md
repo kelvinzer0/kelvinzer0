@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 19 - [This Florida metro is the foreclosure capital of the US — here's what is behind the crisis](https://finance.yahoo.com/news/florida-metro-foreclosure-capital-us-102500296.html)
 - Apr 19 - [Buick finally had cars Americans wanted to buy - then came tariffs](https://finance.yahoo.com/news/buick-finally-had-cars-americans-100252827.html)
-- Apr 19 - [1 Under-the-Radar Stock to Buy Hand Over Fist During the Nasdaq Bear Market](https://finance.yahoo.com/news/1-under-radar-stock-buy-082900860.html)
+- Apr 19 - [Vatican notes 'exchange of opinions' over migrants, prisoners in meeting with Vance](https://www.yahoo.com/news/jd-vance-goes-vatican-following-051009984.html)
 - Apr 19 - [27 Fiends Who Asked To Speak To The Manager For The Most Obnoxious Reasons](https://www.yahoo.com/lifestyle/27-fiends-asked-speak-manager-033102192.html)
-- Apr 19 - [Alabama Bar and Lounge owner receives eviction notice](https://www.yahoo.com/news/alabama-bar-lounge-owner-receives-032411764.html)
+- Apr 19 - [17 injured in fiery crash of multiple motorcycles on I-35W in north Fort Worth](https://www.yahoo.com/news/17-injured-fiery-crash-multiple-032104222.html)
 <!-- feed end -->
 
 ### Onstream
