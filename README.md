@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 19 - [Chinese robots ran against humans in the world’s first humanoid half-marathon. They lost by a mile](https://www.yahoo.com/news/chinese-robots-ran-against-humans-052025375.html)
-- Apr 19 - [JD Vance goes to the Vatican following remarkable papal rebuke over Trump crackdown on migrants](https://www.yahoo.com/news/jd-vance-goes-vatican-following-051009984.html)
-- Apr 19 - [Alabama Bar and Lounge owner receives eviction notice](https://www.yahoo.com/news/alabama-bar-lounge-owner-receives-032411764.html)
+- Apr 19 - [JD Vance visits the Vatican following remarkable papal rebuke over Trump's migrant crackdown](https://www.yahoo.com/news/jd-vance-goes-vatican-following-051009984.html)
+- Apr 19 - [Arizona Lottery Mega Millions, Pick 3 results for April 18, 2025](https://www.yahoo.com/news/arizona-lottery-mega-millions-pick-041004872.html)
 - Apr 19 - [‘He’s got MS-13 tattooed onto his knuckles’: Trump appears to hold up altered image of Abrego Garcia’s hand](https://www.yahoo.com/news/got-ms-13-tattooed-onto-024822957.html)
 - Apr 19 - [What caused the ‘mud rain’ in West Michigan?](https://www.yahoo.com/news/caused-mud-rain-west-michigan-013200393.html)
 <!-- feed end -->
