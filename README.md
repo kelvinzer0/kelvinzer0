@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Chinese robots ran against humans in the world’s first humanoid half-marathon. They lost by a mile](https://www.yahoo.com/news/chinese-robots-ran-against-humans-052025375.html)
+- Apr 19 - [JD Vance goes to the Vatican following remarkable papal rebuke over Trump crackdown on migrants](https://www.yahoo.com/news/jd-vance-goes-vatican-following-051009984.html)
 - Apr 19 - [‘He’s got MS-13 tattooed onto his knuckles’: Trump appears to hold up altered image of Abrego Garcia’s hand](https://www.yahoo.com/news/got-ms-13-tattooed-onto-024822957.html)
 - Apr 19 - [US citizen says he and his wife detained without explanation after returning from Canada](https://www.yahoo.com/news/us-citizen-says-wife-detained-003840480.html)
-- Apr 19 - [Appeals court halts Boasberg’s contempt proceedings against Trump administration](https://www.yahoo.com/news/appeals-court-halts-boasberg-contempt-003100226.html)
-- Apr 18 - [Trump now a 'historic failure' in 100 days: WashPo's Milbank on Trump slump & legal losses](https://www.yahoo.com/news/trump-now-historic-failure-100-232322444.html)
-- Apr 18 - [Back down? Trump now claims he's 'not involved' in foreign prison debacle, after SCOTUS loss](https://www.yahoo.com/news/back-down-trump-now-claims-232136249.html)
+- Apr 19 - [Top Tesla executive announces abrupt departure amid wave of leadership exits — here's what's happening](https://www.yahoo.com/news/top-tesla-executive-announces-abrupt-000000593.html)
 <!-- feed end -->
 
 ### Onstream
