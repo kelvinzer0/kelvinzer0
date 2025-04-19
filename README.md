@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [27 Fiends Who Asked To Speak To The Manager For The Most Obnoxious Reasons](https://www.yahoo.com/lifestyle/27-fiends-asked-speak-manager-033102192.html)
-- Apr 19 - [Trump Officials Tried to Claim Harvard Letter Was Sent by Mistake After University Publicly Rejected Demands](https://www.yahoo.com/news/trump-officials-tried-claim-harvard-030616955.html)
+- Apr 19 - [‘He’s got MS-13 tattooed onto his knuckles’: Trump appears to hold up altered image of Abrego Garcia’s hand](https://www.yahoo.com/news/got-ms-13-tattooed-onto-024822957.html)
 - Apr 19 - [US citizen says he and his wife detained without explanation after returning from Canada](https://www.yahoo.com/news/us-citizen-says-wife-detained-003840480.html)
-- Apr 18 - [Italian court upholds life sentence for parents of Pakistani woman killed by her family](https://www.yahoo.com/news/italian-court-upholds-life-sentence-213358079.html)
-- Apr 18 - [Boston Marathon and city insist all are welcome. But some runners say politics will keep them home](https://sports.yahoo.com/article/boston-marathon-city-insist-welcome-204752792.html)
+- Apr 19 - [Appeals court halts Boasberg’s contempt proceedings against Trump administration](https://www.yahoo.com/news/appeals-court-halts-boasberg-contempt-003100226.html)
+- Apr 18 - [Trump now a 'historic failure' in 100 days: WashPo's Milbank on Trump slump & legal losses](https://www.yahoo.com/news/trump-now-historic-failure-100-232322444.html)
+- Apr 18 - [Back down? Trump now claims he's 'not involved' in foreign prison debacle, after SCOTUS loss](https://www.yahoo.com/news/back-down-trump-now-claims-232136249.html)
 <!-- feed end -->
 
 ### Onstream
