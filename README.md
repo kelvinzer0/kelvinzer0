@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Palm tree dedicated to 1 of 5 students murdered in Gainesville in 1990 appears to have died](https://www.yahoo.com/news/palm-tree-dedicated-1-5-135244511.html)
 - Apr 19 - [A prince and knight fall in love and the Supreme Court is asked to intervene](https://www.yahoo.com/news/prince-knight-fall-love-supreme-121003400.html)
 - Apr 19 - [Cambodia welcomes Japanese navy ships to naval base that US suspects is for China's special use](https://www.yahoo.com/news/cambodia-welcomes-japanese-navy-ships-114513068.html)
-- Apr 19 - [Russian President Vladimir Putin announces an Easter ceasefire in Ukraine](https://www.yahoo.com/news/russia-says-retaken-another-village-103001211.html)
+- Apr 19 - [Putin announces an Easter ceasefire as Russia and Ukraine swap hundreds of POWs](https://www.yahoo.com/news/russia-says-retaken-another-village-103001211.html)
 - Apr 19 - [This Florida metro is the foreclosure capital of the US — here's what is behind the crisis](https://finance.yahoo.com/news/florida-metro-foreclosure-capital-us-102500296.html)
-- Apr 19 - [Mortgage and refinance rates today, April 19, 2025: Rates increase after Powell's comments](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-april-19-2025-100056754.html)
 <!-- feed end -->
 
 ### Onstream
