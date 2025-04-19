@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [Costco & Target: Why this analyst doesn't rate them as a Buy](https://finance.yahoo.com/video/costco-target-why-analyst-doesnt-173014948.html)
-- Apr 19 - [Zelensky reacts sceptically to Putin's Easter ceasefire](https://www.yahoo.com/news/zelensky-reacts-sceptically-putins-easter-161322777.html)
-- Apr 19 - [Billionaire fund manager makes bold bets on Meta, Nvidia stock](https://finance.yahoo.com/news/billionaire-fund-manager-makes-bold-141700630.html)
+- Apr 19 - [SpaceX launch set for Sunday morning on California coast. Will you see it from Coachella?](https://www.yahoo.com/news/spacex-launch-set-sunday-morning-175946051.html)
+- Apr 19 - [Former FSU coach praises law enforcement, university safety updates as school recovers](https://www.yahoo.com/news/former-fsu-coach-praises-law-170726099.html)
+- Apr 19 - [Russian President Vladimir Putin announces an Easter ceasefire in Ukraine](https://www.yahoo.com/news/russian-president-vladimir-putin-announces-151110845.html)
 - Apr 19 - [Winning Mega Millions ticket worth $112 million sold in Northeast Ohio](https://www.yahoo.com/news/winning-mega-millions-ticket-worth-131315213.html)
 - Apr 19 - [Scientists Opened Up a 3,000-Year-Old Crocodile. The Contents Left Them Awestruck.](https://www.yahoo.com/news/scientists-opened-3-000-old-124500487.html)
 <!-- feed end -->
