@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 19 - [US citizen says he and his wife detained without explanation after returning from Canada](https://www.yahoo.com/news/us-citizen-says-wife-detained-003840480.html)
 - Apr 18 - [Italian court upholds life sentence for parents of Pakistani woman killed by her family](https://www.yahoo.com/news/italian-court-upholds-life-sentence-213358079.html)
-- Apr 18 - [He’s been dead for more than 300 years. So why is this emperor angering millions today?](https://www.yahoo.com/news/dead-more-300-years-why-210035168.html)
+- Apr 18 - [Here is what US military leaders in the Pacific suspect North Korea is getting for sending troops and weapons into Russia's war](https://www.yahoo.com/news/us-military-leaders-pacific-suspect-211602570.html)
 - Apr 18 - [Boston Marathon and city insist all are welcome. But some runners say politics will keep them home](https://sports.yahoo.com/article/boston-marathon-city-insist-welcome-204752792.html)
-- Apr 18 - ["Not Even Thoughts And Prayers Anymore. Just 'Go F Yourself'" — People Are Floored By Donald Trump's Response To The FSU Shooting](https://www.yahoo.com/news/people-cannot-believe-actually-donald-202903054.html)
+- Apr 18 - [Exclusive-Tesla to delay US launch of affordable EV, a lower-cost Model Y, sources say](https://finance.yahoo.com/news/exclusive-tesla-delay-us-launch-203403612.html)
 <!-- feed end -->
 
 ### Onstream
