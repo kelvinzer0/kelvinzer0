@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [University of Oregon issues alert after gunfire reported near campus](https://www.yahoo.com/news/university-oregon-issues-alert-gunfire-040247123.html)
+- Apr 20 - [Swiss Butter rise down to secret steak sauce and Lebanese resilience, says CEO](https://uk.finance.yahoo.com/news/swiss-butter-restaurant-ceo-050038153.html)
 - Apr 19 - [Woman removed from OKC bombing ceremony after walking onto stage, talking at officials](https://www.yahoo.com/news/woman-removed-okc-bombing-ceremony-202143083.html)
 - Apr 19 - [Northern California casino set to undergo massive $2 billion to $4 billion expansion](https://www.yahoo.com/news/northern-california-casino-set-undergo-202141472.html)
+- Apr 19 - [The real strategy behind Russia’s sudden truce announcement](https://www.yahoo.com/news/real-strategy-behind-russia-sudden-185619768.html)
 - Apr 19 - [The Supreme Court’s Late-Night Rebuke to Trump Is Extraordinary in More Ways Than One](https://www.yahoo.com/news/supreme-court-night-rebuke-trump-180734719.html)
-- Apr 19 - [JELL-O Just Launched a New Pudding Flavor, and It’s Like Taking a Bite Out of Childhood (I Had it 3 Times in One Week)](https://www.yahoo.com/lifestyle/jell-o-just-launched-pudding-163000218.html)
 <!-- feed end -->
 
 ### Onstream
