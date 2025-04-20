@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [Pope Francis makes his way through St Peter's Square in popemobile, greeting pilgrims](https://www.yahoo.com/news/pope-francis-makes-way-st-121349872.html)
+- Apr 20 - [Police in central Germany hunt for a suspect on the run after 2 people were shot dead](https://www.yahoo.com/news/police-central-germany-hunt-suspect-114418496.html)
+- Apr 20 - [I'm 38, lost my job and my basement just got flooded — which will cost me $20K. Is a HELOC my only option?](https://finance.yahoo.com/news/im-38-lost-job-basement-110000073.html)
+- Apr 20 - [This Unstoppable Stock Just Revealed Ambitious Plans to Join the $1 Trillion Club by 2030](https://finance.yahoo.com/news/unstoppable-stock-just-revealed-ambitious-080200040.html)
 - Apr 20 - [Zelenskiy tells Ukraine on Easter: 'Evil may have its hour but God will have his day'](https://www.yahoo.com/news/zelenskiy-tells-ukraine-easter-evil-072154769.html)
-- Apr 20 - [Boeing jet returns to US from China, a victim of Trump's tariff war](https://finance.yahoo.com/news/boeing-jet-returns-us-china-031348606.html)
-- Apr 19 - [Northern California casino set to undergo massive $2 billion to $4 billion expansion](https://www.yahoo.com/news/northern-california-casino-set-undergo-202141472.html)
-- Apr 19 - [The real strategy behind Russia’s sudden truce announcement](https://www.yahoo.com/news/real-strategy-behind-russia-sudden-185619768.html)
-- Apr 19 - [The Supreme Court’s Late-Night Rebuke to Trump Is Extraordinary in More Ways Than One](https://www.yahoo.com/news/supreme-court-night-rebuke-trump-180734719.html)
 <!-- feed end -->
 
 ### Onstream
