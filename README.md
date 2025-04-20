@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [Ukraine's Zelenskiy says Russian army 'trying to create impression' of Easter ceasefire](https://www.yahoo.com/news/ukraines-zelenskiy-says-russian-army-053129416.html)
-- Apr 20 - [Swiss Butter rise down to secret steak sauce and Lebanese resilience, says CEO](https://uk.finance.yahoo.com/news/swiss-butter-restaurant-ceo-050038153.html)
-- Apr 20 - [In Maga country, Trump supporters want to get even – no matter the cost](https://www.yahoo.com/news/maga-country-trump-supporters-want-050000541.html)
+- Apr 20 - [Boeing jet returns to US from China, a victim of Trump's tariff war](https://finance.yahoo.com/news/boeing-jet-returns-us-china-031348606.html)
 - Apr 19 - [Woman removed from OKC bombing ceremony after walking onto stage, talking at officials](https://www.yahoo.com/news/woman-removed-okc-bombing-ceremony-202143083.html)
 - Apr 19 - [Northern California casino set to undergo massive $2 billion to $4 billion expansion](https://www.yahoo.com/news/northern-california-casino-set-undergo-202141472.html)
+- Apr 19 - [The Supreme Court’s Late-Night Rebuke to Trump Is Extraordinary in More Ways Than One](https://www.yahoo.com/news/supreme-court-night-rebuke-trump-180734719.html)
+- Apr 19 - [JELL-O Just Launched a New Pudding Flavor, and It’s Like Taking a Bite Out of Childhood (I Had it 3 Times in One Week)](https://www.yahoo.com/lifestyle/jell-o-just-launched-pudding-163000218.html)
 <!-- feed end -->
 
 ### Onstream
