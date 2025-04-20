@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [Alito's dissent in deportation case says court rushed to block Trump with middle-of-the night order](https://www.yahoo.com/news/alitos-dissent-deportation-case-says-135438476.html)
-- Apr 20 - [The Famous Golfer Who Owns Five Guys Franchises In California](https://finance.yahoo.com/news/famous-golfer-owns-five-guys-110000092.html)
-- Apr 20 - [Scientists make stunning discovery after studying 20 years of satellite images of the globe: 'Important impacts'](https://www.yahoo.com/news/scientists-stunning-discovery-studying-20-103027478.html)
-- Apr 20 - [Zelenskiy tells Ukraine on Easter: 'Evil may have its hour but God will have his day'](https://www.yahoo.com/news/zelenskiy-tells-ukraine-easter-evil-072154769.html)
-- Apr 20 - [University of Oregon issues alert after gunfire reported near campus](https://www.yahoo.com/news/university-oregon-issues-alert-gunfire-040247123.html)
+- Apr 20 - [This Midwestern city has long been a federal hub. The pain from DOGE’s cuts is everywhere](https://www.yahoo.com/news/midwestern-city-long-federal-hub-123110947.html)
+- Apr 20 - [El Paso Walmart mass shooting: 6 minutes of horror; racist motives and 23 lives lost](https://www.yahoo.com/news/el-paso-walmart-mass-shooting-120232037.html)
+- Apr 20 - [Scientists issue warning after observing alarming shift in great white sharks: 'We saw things happen that we'd never expect'](https://www.yahoo.com/news/scientists-issue-warning-observing-alarming-113047446.html)
+- Apr 20 - [Researchers issue urgent warning after discovering 'invisible' threat in everyday products: 'Requires us to act now'](https://www.yahoo.com/news/researchers-issue-urgent-warning-discovering-113027252.html)
+- Apr 20 - [Cameras reveal long-lost creature wandering through national park after years in hiding: 'A beacon of hope'](https://www.yahoo.com/news/cameras-reveal-long-lost-creature-104512455.html)
 <!-- feed end -->
 
 ### Onstream
