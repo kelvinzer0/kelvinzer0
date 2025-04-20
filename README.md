@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [‘Kush destroys them’: the Guinean rehab clinic tackling a drug epidemic](https://www.yahoo.com/news/kush-destroys-them-guinean-rehab-083607195.html)
 - Apr 20 - [Zelenskiy tells Ukraine on Easter: 'Evil may have its hour but God will have his day'](https://www.yahoo.com/news/zelenskiy-tells-ukraine-easter-evil-072154769.html)
 - Apr 19 - [Northern California casino set to undergo massive $2 billion to $4 billion expansion](https://www.yahoo.com/news/northern-california-casino-set-undergo-202141472.html)
 - Apr 19 - [The real strategy behind Russia’s sudden truce announcement](https://www.yahoo.com/news/real-strategy-behind-russia-sudden-185619768.html)
 - Apr 19 - [The Supreme Court’s Late-Night Rebuke to Trump Is Extraordinary in More Ways Than One](https://www.yahoo.com/news/supreme-court-night-rebuke-trump-180734719.html)
+- Apr 19 - [Gunmen disguised as soldiers kill 12 spectators at cockfight](https://www.yahoo.com/news/gunmen-disguised-soldiers-kill-12-154028742.html)
 <!-- feed end -->
 
 ### Onstream
