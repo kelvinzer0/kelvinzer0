@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [Alito's dissent in deportation case says court rushed to block Trump with middle-of-the night order](https://www.yahoo.com/news/alitos-dissent-deportation-case-says-135438476.html)
+- Apr 20 - [The Famous Golfer Who Owns Five Guys Franchises In California](https://finance.yahoo.com/news/famous-golfer-owns-five-guys-110000092.html)
 - Apr 20 - [Scientists make stunning discovery after studying 20 years of satellite images of the globe: 'Important impacts'](https://www.yahoo.com/news/scientists-stunning-discovery-studying-20-103027478.html)
 - Apr 20 - [Zelenskiy tells Ukraine on Easter: 'Evil may have its hour but God will have his day'](https://www.yahoo.com/news/zelenskiy-tells-ukraine-easter-evil-072154769.html)
-- Apr 19 - [Woman removed from OKC bombing ceremony after walking onto stage, talking at officials](https://www.yahoo.com/news/woman-removed-okc-bombing-ceremony-202143083.html)
-- Apr 19 - [Northern California casino set to undergo massive $2 billion to $4 billion expansion](https://www.yahoo.com/news/northern-california-casino-set-undergo-202141472.html)
-- Apr 19 - [The real strategy behind Russia’s sudden truce announcement](https://www.yahoo.com/news/real-strategy-behind-russia-sudden-185619768.html)
+- Apr 20 - [University of Oregon issues alert after gunfire reported near campus](https://www.yahoo.com/news/university-oregon-issues-alert-gunfire-040247123.html)
 <!-- feed end -->
 
 ### Onstream
