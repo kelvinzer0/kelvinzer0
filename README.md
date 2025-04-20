@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [Displaced people in Sudan arrive in North Darfur, amid intense fighting](https://www.yahoo.com/news/displaced-people-sudan-arrive-north-154909813.html)
-- Apr 20 - [Girl, 14, killed by lion in Kenya](https://www.yahoo.com/news/girl-14-killed-lion-kenya-120425683.html)
-- Apr 20 - [This Midwestern city has long been a federal hub. The pain from DOGE’s cuts is everywhere](https://www.yahoo.com/news/midwestern-city-long-federal-hub-123110947.html)
+- Apr 20 - [Police searching for missing Cumberland County man](https://www.yahoo.com/news/police-searching-missing-cumberland-county-134702566.html)
 - Apr 20 - [Why the latest stock market pullback feels right](https://finance.yahoo.com/news/why-the-latest-stock-market-pullback-feels-right-123015811.html)
-- Apr 20 - [Cameras reveal long-lost creature wandering through national park after years in hiding: 'A beacon of hope'](https://www.yahoo.com/news/cameras-reveal-long-lost-creature-104512455.html)
+- Apr 20 - [Scientists make stunning discovery after studying 20 years of satellite images of the globe: 'Important impacts'](https://www.yahoo.com/news/scientists-stunning-discovery-studying-20-103027478.html)
+- Apr 20 - [Family arrested for ransacking Southern California Target store](https://www.yahoo.com/news/family-arrested-ransacking-target-store-054539508.html)
+- Apr 20 - [Wordle hints today for #1,401: Clues and answer for Sunday, April 20](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1401-clues-and-answer-for-sunday-april-20-040136096.html)
 <!-- feed end -->
 
 ### Onstream
