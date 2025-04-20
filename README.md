@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [Police searching for missing Cumberland County man](https://www.yahoo.com/news/police-searching-missing-cumberland-county-134702566.html)
-- Apr 20 - [Why the latest stock market pullback feels right](https://finance.yahoo.com/news/why-the-latest-stock-market-pullback-feels-right-123015811.html)
-- Apr 20 - [Scientists make stunning discovery after studying 20 years of satellite images of the globe: 'Important impacts'](https://www.yahoo.com/news/scientists-stunning-discovery-studying-20-103027478.html)
-- Apr 20 - [Family arrested for ransacking Southern California Target store](https://www.yahoo.com/news/family-arrested-ransacking-target-store-054539508.html)
-- Apr 20 - [Wordle hints today for #1,401: Clues and answer for Sunday, April 20](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1401-clues-and-answer-for-sunday-april-20-040136096.html)
+- Apr 20 - [WA State Senator Bill Ramos dies unexpectedly](https://www.yahoo.com/news/wa-state-senator-bill-ramos-173516480.html)
+- Apr 20 - [56 drivers cited in Escondido during traffic enforcement operation](https://www.yahoo.com/news/56-drivers-cited-escondido-during-161358201.html)
+- Apr 20 - [Alito's dissent in deportation case says court rushed to block Trump with middle-of-the night order](https://www.yahoo.com/news/alitos-dissent-deportation-case-says-135438476.html)
+- Apr 20 - [Deadly wrong-way crash shuts down freeway in downtown Los Angeles on Easter Sunday](https://www.yahoo.com/news/deadly-wrong-way-crash-shuts-135405444.html)
+- Apr 20 - [This Midwestern city has long been a federal hub. The pain from DOGE’s cuts is everywhere](https://www.yahoo.com/news/midwestern-city-long-federal-hub-123110947.html)
 <!-- feed end -->
 
 ### Onstream
