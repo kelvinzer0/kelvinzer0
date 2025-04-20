@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [WA State Senator Bill Ramos dies unexpectedly](https://www.yahoo.com/news/wa-state-senator-bill-ramos-173516480.html)
-- Apr 20 - [Here’s what Utah voters say about Trump’s job performance](https://www.yahoo.com/news/utah-voters-trump-job-performance-160000956.html)
+- Apr 20 - [Some families 'feel unsafe' after group puts up flags on lampposts](https://www.yahoo.com/news/families-feel-unsafe-group-puts-170518878.html)
+- Apr 20 - [China begins returning Boeing aircraft to US](https://finance.yahoo.com/news/china-begins-returning-boeing-aircraft-171939224.html)
+- Apr 20 - [Trump is defending Obamacare at the Supreme Court. A win could boost RFK Jr.’s influence](https://www.yahoo.com/news/trump-defending-obamacare-supreme-court-165903010.html)
+- Apr 20 - [‘Bonkers crazypants’: American diplomats shaken by reports of possible cuts](https://www.yahoo.com/news/bonkers-crazypants-american-diplomats-shaken-152821528.html)
 - Apr 20 - [Marijuana hospital visits linked to dementia diagnosis within 5 years, study finds](https://www.yahoo.com/lifestyle/marijuana-hospital-visits-linked-dementia-140035485.html)
-- Apr 20 - [Alito's dissent in deportation case says court rushed to block Trump with middle-of-the night order](https://www.yahoo.com/news/alitos-dissent-deportation-case-says-135438476.html)
-- Apr 20 - [Deadly wrong-way crash shuts down freeway in downtown Los Angeles on Easter Sunday](https://www.yahoo.com/news/deadly-wrong-way-crash-shuts-135405444.html)
 <!-- feed end -->
 
 ### Onstream
