@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [WA State Senator Bill Ramos dies unexpectedly](https://www.yahoo.com/news/wa-state-senator-bill-ramos-173516480.html)
-- Apr 20 - [56 drivers cited in Escondido during traffic enforcement operation](https://www.yahoo.com/news/56-drivers-cited-escondido-during-161358201.html)
-- Apr 20 - [Alito's dissent in deportation case says court rushed to block Trump with middle-of-the night order](https://www.yahoo.com/news/alitos-dissent-deportation-case-says-135438476.html)
+- Apr 20 - [Here’s what Utah voters say about Trump’s job performance](https://www.yahoo.com/news/utah-voters-trump-job-performance-160000956.html)
+- Apr 20 - [Displaced people in Sudan arrive in North Darfur, amid intense fighting](https://www.yahoo.com/news/displaced-people-sudan-arrive-north-154909813.html)
 - Apr 20 - [Deadly wrong-way crash shuts down freeway in downtown Los Angeles on Easter Sunday](https://www.yahoo.com/news/deadly-wrong-way-crash-shuts-135405444.html)
 - Apr 20 - [This Midwestern city has long been a federal hub. The pain from DOGE’s cuts is everywhere](https://www.yahoo.com/news/midwestern-city-long-federal-hub-123110947.html)
+- Apr 20 - [Why the latest stock market pullback feels right](https://finance.yahoo.com/news/why-the-latest-stock-market-pullback-feels-right-123015811.html)
 <!-- feed end -->
 
 ### Onstream
