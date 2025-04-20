@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [Some families 'feel unsafe' after group puts up flags on lampposts](https://www.yahoo.com/news/families-feel-unsafe-group-puts-170518878.html)
+- Apr 20 - [Pete Hegseth Shared Yemen Attack Plans With Wife, Brother in Second Signal Chat](https://www.yahoo.com/news/pete-hegseth-shared-yemen-attack-214218980.html)
+- Apr 20 - [Robert F. Kennedy Jr. suggests compensating families of some people with autism](https://www.yahoo.com/news/robert-f-kennedy-jr-suggests-185453763.html)
+- Apr 20 - [Chicago Fed President Austan Goolsbee says a move by Trump to terminate Jerome Powell would ‘undermine the credibility of the Fed’](https://www.yahoo.com/news/chicago-fed-president-austan-goolsbee-184920887.html)
+- Apr 20 - [WA State Senator Bill Ramos dies unexpectedly](https://www.yahoo.com/news/wa-state-senator-bill-ramos-173516480.html)
 - Apr 20 - [China begins returning Boeing aircraft to US](https://finance.yahoo.com/news/china-begins-returning-boeing-aircraft-171939224.html)
-- Apr 20 - [Trump is defending Obamacare at the Supreme Court. A win could boost RFK Jr.’s influence](https://www.yahoo.com/news/trump-defending-obamacare-supreme-court-165903010.html)
-- Apr 20 - [‘Bonkers crazypants’: American diplomats shaken by reports of possible cuts](https://www.yahoo.com/news/bonkers-crazypants-american-diplomats-shaken-152821528.html)
-- Apr 20 - [Marijuana hospital visits linked to dementia diagnosis within 5 years, study finds](https://www.yahoo.com/lifestyle/marijuana-hospital-visits-linked-dementia-140035485.html)
 <!-- feed end -->
 
 ### Onstream
