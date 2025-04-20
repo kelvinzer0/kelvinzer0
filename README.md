@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 19 - [Woman removed from OKC bombing ceremony after walking onto stage, talking at officials](https://www.yahoo.com/news/woman-removed-okc-bombing-ceremony-202143083.html)
+- Apr 19 - [Northern California casino set to undergo massive $2 billion to $4 billion expansion](https://www.yahoo.com/news/northern-california-casino-set-undergo-202141472.html)
 - Apr 19 - [The Supreme Court’s Late-Night Rebuke to Trump Is Extraordinary in More Ways Than One](https://www.yahoo.com/news/supreme-court-night-rebuke-trump-180734719.html)
 - Apr 19 - [Southwest Airlines Announces 'Unprecedented' Change Amid Free Bag Outrage](https://finance.yahoo.com/news/southwest-airlines-announces-unprecedented-change-160604197.html)
 - Apr 19 - [People Are Not Happy After A GOP Lawmaker Confessed To Her Constituents That She's Afraid Of Speaking Out Against Trump](https://www.yahoo.com/news/gop-lawmaker-confessed-her-constituents-154546465.html)
-- Apr 19 - [Plane crashes into Nebraska river, killing all passengers on board](https://www.yahoo.com/news/plane-crashes-nebraska-river-killing-152858084.html)
 <!-- feed end -->
 
 ### Onstream
