@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [Joe Rogan Paints A Picture Of Trump: In Between Golf Swings, He's On The Phone With Other Presidents: 'We're Going To Need More Money!'](https://finance.yahoo.com/news/joe-rogan-paints-picture-trump-223052993.html)
+- Apr 20 - [Salvadoran President Bukele proposes prisoner swap with Maduro for Venezuelan deportees](https://www.yahoo.com/news/el-salvador-president-nayib-bukele-220813013.html)
+- Apr 20 - [Burger King franchisee with restaurants in South Georgia files for bankruptcy](https://finance.yahoo.com/news/burger-king-franchisee-restaurants-south-214222243.html)
 - Apr 20 - [Pete Hegseth Shared Yemen Attack Plans With Wife, Brother in Second Signal Chat](https://www.yahoo.com/news/pete-hegseth-shared-yemen-attack-214218980.html)
-- Apr 20 - [Robert F. Kennedy Jr. suggests compensating families of some people with autism](https://www.yahoo.com/news/robert-f-kennedy-jr-suggests-185453763.html)
 - Apr 20 - [Chicago Fed President Austan Goolsbee says a move by Trump to terminate Jerome Powell would ‘undermine the credibility of the Fed’](https://www.yahoo.com/news/chicago-fed-president-austan-goolsbee-184920887.html)
-- Apr 20 - [WA State Senator Bill Ramos dies unexpectedly](https://www.yahoo.com/news/wa-state-senator-bill-ramos-173516480.html)
-- Apr 20 - [China begins returning Boeing aircraft to US](https://finance.yahoo.com/news/china-begins-returning-boeing-aircraft-171939224.html)
 <!-- feed end -->
 
 ### Onstream
