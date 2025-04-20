@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [Displaced people in Sudan arrive in North Darfur, amid intense fighting](https://www.yahoo.com/news/displaced-people-sudan-arrive-north-154909813.html)
+- Apr 20 - [Girl, 14, killed by lion in Kenya](https://www.yahoo.com/news/girl-14-killed-lion-kenya-120425683.html)
 - Apr 20 - [This Midwestern city has long been a federal hub. The pain from DOGE’s cuts is everywhere](https://www.yahoo.com/news/midwestern-city-long-federal-hub-123110947.html)
-- Apr 20 - [El Paso Walmart mass shooting: 6 minutes of horror; racist motives and 23 lives lost](https://www.yahoo.com/news/el-paso-walmart-mass-shooting-120232037.html)
-- Apr 20 - [Scientists issue warning after observing alarming shift in great white sharks: 'We saw things happen that we'd never expect'](https://www.yahoo.com/news/scientists-issue-warning-observing-alarming-113047446.html)
-- Apr 20 - [Researchers issue urgent warning after discovering 'invisible' threat in everyday products: 'Requires us to act now'](https://www.yahoo.com/news/researchers-issue-urgent-warning-discovering-113027252.html)
+- Apr 20 - [Why the latest stock market pullback feels right](https://finance.yahoo.com/news/why-the-latest-stock-market-pullback-feels-right-123015811.html)
 - Apr 20 - [Cameras reveal long-lost creature wandering through national park after years in hiding: 'A beacon of hope'](https://www.yahoo.com/news/cameras-reveal-long-lost-creature-104512455.html)
 <!-- feed end -->
 
