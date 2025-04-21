@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [US Supreme Court won't save Minnesota age restriction on carrying guns](https://www.yahoo.com/news/us-supreme-court-wont-save-133919233.html)
-- Apr 21 - [How does the Catholic Church choose a new pope?](https://www.yahoo.com/news/does-catholic-church-choose-pope-132442941.html)
-- Apr 21 - [US sell-off, Tesla & Alphabet earnings, Pope Francis: 3 Things](https://finance.yahoo.com/video/us-sell-off-tesla-alphabet-132002702.html)
-- Apr 21 - [I Inherited My Husband's 401(k) With $615k. How Do Handle This Money to Reduce Taxes?](https://finance.yahoo.com/news/inherited-husbands-401-k-615k-131502211.html)
-- Apr 21 - [This 32-year-old Pilates instructor told ‘lies’ that duped JPMorgan out of $175M. Here's how she did it](https://finance.yahoo.com/news/32-old-pilates-instructor-told-131500719.html)
+- Apr 21 - [Trump doubles down on Powell criticism & calls for Fed cuts](https://finance.yahoo.com/video/trump-doubles-down-powell-criticism-145744629.html)
+- Apr 21 - [Pope Francis gripped his hands and asked a Franciscan a favor](https://www.yahoo.com/news/pope-francis-gripped-hands-asked-145142708.html)
+- Apr 21 - [RI weather: Above normal temperatures for much of the week ahead](https://www.yahoo.com/news/ri-weather-above-normal-temperatures-144632462.html)
+- Apr 21 - [Sherpa climber set to break his own record for ascents of Mount Everest](https://www.yahoo.com/news/sherpa-climber-set-break-own-105547785.html)
+- Apr 21 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
 <!-- feed end -->
 
 ### Onstream
