@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Pope Francis shook up Church with simplicity, raising conservative ire](https://www.yahoo.com/news/pope-francis-shook-church-simplicity-080654443.html)
-- Apr 21 - [Trump tariff worries spur record overseas demand for JGBs](https://finance.yahoo.com/news/trump-tariff-worries-spur-record-065614853.html)
+- Apr 21 - [Who could succeed Pope Francis? Eight candidates on the conclave’s list](https://www.yahoo.com/news/could-succeed-pope-francis-eight-083611778.html)
+- Apr 21 - [Who feels ‘very good’ about their finances right now?](https://www.yahoo.com/news/feels-very-good-finances-now-080212671.html)
 - Apr 21 - ['Cancer' of billion-dollar cyberscam industry spreading globally - UN](https://finance.yahoo.com/news/cancer-billion-dollar-cyberscam-industry-060616157.html)
 - Apr 21 - [US beef off the menu as the trade war hits Beijing's American-style restaurants](https://finance.yahoo.com/news/us-beef-off-menu-trade-051659503.html)
 - Apr 21 - [60,000 Americans to lose their rental assistance and risk eviction unless Congress acts](https://www.yahoo.com/news/60-000-americans-lose-rental-041130929.html)
