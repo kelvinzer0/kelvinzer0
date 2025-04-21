@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Trump doubles down on Powell criticism & calls for Fed cuts](https://finance.yahoo.com/video/trump-doubles-down-powell-criticism-145744629.html)
-- Apr 21 - [Pope Francis gripped his hands and asked a Franciscan a favor](https://www.yahoo.com/news/pope-francis-gripped-hands-asked-145142708.html)
-- Apr 21 - [RI weather: Above normal temperatures for much of the week ahead](https://www.yahoo.com/news/ri-weather-above-normal-temperatures-144632462.html)
-- Apr 21 - [Sherpa climber set to break his own record for ascents of Mount Everest](https://www.yahoo.com/news/sherpa-climber-set-break-own-105547785.html)
+- Apr 21 - [Alpaca on the Loose in Westchester Safely Reunited With Owner (PHOTOS)](https://www.yahoo.com/news/alpaca-loose-westchester-safely-reunited-160409715.html)
+- Apr 21 - [NY Fed finds Americans trimming back wage expectations for new jobs](https://finance.yahoo.com/news/ny-fed-finds-americans-trimming-160155865.html)
 - Apr 21 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
+- Apr 21 - [Iowa considers whether to change constitution to address how traumatized witnesses testify in court](https://www.yahoo.com/news/iowa-considers-whether-change-constitution-152736296.html)
+- Apr 21 - [NY Cardinal Dolan reflects on the legacy of Pope Francis](https://www.yahoo.com/news/ny-cardinal-dolan-reflects-legacy-151216618.html)
 <!-- feed end -->
 
 ### Onstream
