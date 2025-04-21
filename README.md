@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Iowa considers whether to change constitution to address how traumatized witnesses testify in court](https://www.yahoo.com/news/iowa-considers-whether-change-constitution-152736296.html)
-- Apr 21 - [UN researchers warn that Asian scam operations are spreading across the rest of the world](https://www.yahoo.com/news/un-researchers-warn-asian-scam-152350839.html)
-- Apr 21 - [What Does It Cost To Charge a Tesla Monthly Compared to Gas for a Toyota Camry?](https://finance.yahoo.com/news/does-cost-charge-tesla-monthly-150328004.html)
-- Apr 21 - [Charles Barkley to Dems: Run either of these 2 candidates or lose my support](https://www.yahoo.com/news/charles-barkley-dems-run-either-145925560.html)
-- Apr 21 - [Former Tesla Engineer Says Elon Musk Threatened to Deport Her Team for Pointing Out a Problem With the Brakes](https://www.yahoo.com/news/former-tesla-engineer-says-elon-143325402.html)
+- Apr 21 - [Three men charged after woman dies following crash on golf course](https://www.yahoo.com/news/three-men-charged-woman-dies-162806792.html)
+- Apr 21 - [Nashville's property values jump up by a record 45%. See the areas with the highest jump](https://www.yahoo.com/news/nashvilles-property-values-jump-record-180826521.html)
+- Apr 21 - [Pope Francis danced the tango with the global Catholic Church amid its culture wars](https://www.yahoo.com/news/pope-francis-danced-tango-global-180520404.html)
+- Apr 21 - [Flags at half-mast in London following death of Pope Francis](https://www.yahoo.com/news/flags-half-mast-london-following-175311863.html)
+- Apr 21 - [Wall Street Just Dropped a $4B Bomb--Is the Credit Freeze Finally Thawing?](https://finance.yahoo.com/news/wall-street-just-dropped-4b-173515354.html)
 <!-- feed end -->
 
 ### Onstream
