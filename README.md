@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Who could succeed Pope Francis? Eight candidates on the conclave’s list](https://www.yahoo.com/news/could-succeed-pope-francis-eight-083611778.html)
-- Apr 21 - [Who feels ‘very good’ about their finances right now?](https://www.yahoo.com/news/feels-very-good-finances-now-080212671.html)
-- Apr 21 - ['Cancer' of billion-dollar cyberscam industry spreading globally - UN](https://finance.yahoo.com/news/cancer-billion-dollar-cyberscam-industry-060616157.html)
-- Apr 21 - [US beef off the menu as the trade war hits Beijing's American-style restaurants](https://finance.yahoo.com/news/us-beef-off-menu-trade-051659503.html)
-- Apr 21 - [60,000 Americans to lose their rental assistance and risk eviction unless Congress acts](https://www.yahoo.com/news/60-000-americans-lose-rental-041130929.html)
+- Apr 21 - [US Supreme Court to hear clash over Obamacare preventive care](https://www.yahoo.com/news/us-supreme-court-hear-clash-100255307.html)
+- Apr 21 - [Putin praises Pope Francis, sends his condolences](https://www.yahoo.com/news/putin-praises-pope-francis-sends-100150335.html)
+- Apr 21 - ['Unhinged': Trump's 'Greatest' Claim About Business Backfires Spectacularly](https://www.yahoo.com/news/unhinged-trumps-greatest-claim-business-094644795.html)
+- Apr 21 - [Sewickley Academy students stepping up to help victims of Hurricane Helene with fundraiser](https://www.yahoo.com/news/sewickley-academy-students-stepping-help-091119716.html)
+- Apr 21 - [It was the hedonistic party capital of Europe. Now Gen Z wants a different kind of fun](https://www.yahoo.com/news/hedonistic-party-capital-europe-now-094537437.html)
 <!-- feed end -->
 
 ### Onstream
