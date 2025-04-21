@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [Google's antitrust breakup trial: What to know](https://finance.yahoo.com/video/googles-antitrust-breakup-trial-know-210843962.html)
 - Apr 21 - [Wife of former US Sen. Bob Menendez convicted in bribery scheme](https://www.yahoo.com/news/wife-former-us-sen-bob-195043475.html)
-- Apr 21 - [Seattle to lose millions in parking revenue by 2026](https://www.yahoo.com/news/seattle-lose-millions-parking-revenue-193343431.html)
-- Apr 21 - [NASA's Lucy spacecraft beams back pictures of an asteroid shaped like a lumpy bowling pin](https://www.yahoo.com/news/nasas-lucy-spacecraft-beams-back-192141871.html)
+- Apr 21 - [University of Louisville cancels graduation ceremony for LGBTQ+ students. Here's why](https://www.yahoo.com/news/university-louisville-cancels-graduation-ceremony-194437628.html)
+- Apr 21 - [Texas Walmart shooter who killed 23 avoids death penalty by pleading guilty](https://www.yahoo.com/news/texas-walmart-shooter-killed-23-192713161.html)
 - Apr 21 - [Sarah Palin tells defamation trial jury that Times editorial 'kicked the oomph' out of her](https://www.yahoo.com/news/sarah-palin-tells-defamation-trial-191215831.html)
-- Apr 21 - [Hall of Fame TE and ESPN analyst Shannon Sharpe accused of rape and sexual assault in $50M lawsuit](https://sports.yahoo.com/nfl/article/hall-of-fame-te-and-espn-analyst-shannon-sharpe-accused-of-rape-and-sexual-assault-in-50m-lawsuit-190201775.html)
 <!-- feed end -->
 
 ### Onstream
