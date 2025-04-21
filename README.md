@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Tesla's affordable EV, robotaxis in focus after Musk backlash, competition hurt demand](https://finance.yahoo.com/news/teslas-affordable-ev-robotaxis-focus-100436923.html)
-- Apr 21 - [Wisconsin autism groups say RFK Jr. wrong on facts, offensive in approach](https://www.yahoo.com/news/wisconsin-autism-groups-rfk-jr-100409215.html)
-- Apr 21 - ['Unhinged': Trump's 'Greatest' Claim About Business Backfires Spectacularly](https://www.yahoo.com/news/unhinged-trumps-greatest-claim-business-094644795.html)
+- Apr 21 - [What Trump tariffs really mean to semiconductors: Former Intel CEO](https://finance.yahoo.com/video/trump-tariffs-really-mean-semiconductors-120019266.html)
+- Apr 21 - [What to know about the death of Pope Francis](https://www.yahoo.com/news/know-death-pope-francis-110509201.html)
+- Apr 21 - [When will I get my Social Security payments this month? See April 2025 schedule](https://www.yahoo.com/news/social-security-payments-month-see-110305800.html)
+- Apr 21 - [Francis showed that it is in weakness, not strength, that you conquer](https://www.yahoo.com/news/francis-showed-weakness-not-strength-110000158.html)
 - Apr 21 - [The rites and rituals following the death of a pope, his funeral and burial, explained](https://www.yahoo.com/news/rites-rituals-following-death-pope-091557943.html)
-- Apr 21 - [Australia hits back after being mocked by Russia as ‘having no cards’ to play in Indo-Pacific dispute](https://www.yahoo.com/news/australia-hits-back-being-mocked-090204632.html)
 <!-- feed end -->
 
 ### Onstream
