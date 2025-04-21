@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Judge temporarily blocks NYC mayor from allowing ICE agents on Rikers Island jail](https://www.yahoo.com/news/judge-temporarily-blocks-nyc-mayor-184303872.html)
-- Apr 21 - [Teenage German tourists handcuffed and deported from Hawaii over ‘suspicious’ hotel booking](https://www.yahoo.com/news/teenage-german-tourists-handcuffed-deported-122305110.html)
-- Apr 21 - ['Way in over his head': Sen. Warner slams Hegseth for second Signal chat controversy](https://www.yahoo.com/news/way-over-head-sen-warner-180253938.html)
-- Apr 21 - [Flags at half-mast in London following death of Pope Francis](https://www.yahoo.com/news/flags-half-mast-london-following-175311863.html)
-- Apr 21 - [Huawei readies AI chip for China, sources say; Nvidia shares drop](https://finance.yahoo.com/video/huawei-readies-ai-chip-china-173638828.html)
+- Apr 21 - [Wife of former US Sen. Bob Menendez convicted in bribery scheme](https://www.yahoo.com/news/wife-former-us-sen-bob-195043475.html)
+- Apr 21 - [Seattle to lose millions in parking revenue by 2026](https://www.yahoo.com/news/seattle-lose-millions-parking-revenue-193343431.html)
+- Apr 21 - [NASA's Lucy spacecraft beams back pictures of an asteroid shaped like a lumpy bowling pin](https://www.yahoo.com/news/nasas-lucy-spacecraft-beams-back-192141871.html)
+- Apr 21 - [Sarah Palin tells defamation trial jury that Times editorial 'kicked the oomph' out of her](https://www.yahoo.com/news/sarah-palin-tells-defamation-trial-191215831.html)
+- Apr 21 - [Hall of Fame TE and ESPN analyst Shannon Sharpe accused of rape and sexual assault in $50M lawsuit](https://sports.yahoo.com/nfl/article/hall-of-fame-te-and-espn-analyst-shannon-sharpe-accused-of-rape-and-sexual-assault-in-50m-lawsuit-190201775.html)
 <!-- feed end -->
 
 ### Onstream
