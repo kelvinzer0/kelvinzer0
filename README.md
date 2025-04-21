@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Three men charged after woman dies following crash on golf course](https://www.yahoo.com/news/three-men-charged-woman-dies-162806792.html)
-- Apr 21 - [Nashville's property values jump up by a record 45%. See the areas with the highest jump](https://www.yahoo.com/news/nashvilles-property-values-jump-record-180826521.html)
-- Apr 21 - [Pope Francis danced the tango with the global Catholic Church amid its culture wars](https://www.yahoo.com/news/pope-francis-danced-tango-global-180520404.html)
+- Apr 21 - [Judge temporarily blocks NYC mayor from allowing ICE agents on Rikers Island jail](https://www.yahoo.com/news/judge-temporarily-blocks-nyc-mayor-184303872.html)
+- Apr 21 - [Teenage German tourists handcuffed and deported from Hawaii over ‘suspicious’ hotel booking](https://www.yahoo.com/news/teenage-german-tourists-handcuffed-deported-122305110.html)
+- Apr 21 - ['Way in over his head': Sen. Warner slams Hegseth for second Signal chat controversy](https://www.yahoo.com/news/way-over-head-sen-warner-180253938.html)
 - Apr 21 - [Flags at half-mast in London following death of Pope Francis](https://www.yahoo.com/news/flags-half-mast-london-following-175311863.html)
-- Apr 21 - [Wall Street Just Dropped a $4B Bomb--Is the Credit Freeze Finally Thawing?](https://finance.yahoo.com/news/wall-street-just-dropped-4b-173515354.html)
+- Apr 21 - [Huawei readies AI chip for China, sources say; Nvidia shares drop](https://finance.yahoo.com/video/huawei-readies-ai-chip-china-173638828.html)
 <!-- feed end -->
 
 ### Onstream
