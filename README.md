@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Google's antitrust breakup trial: What to know](https://finance.yahoo.com/video/googles-antitrust-breakup-trial-know-210843962.html)
-- Apr 21 - [Wife of former US Sen. Bob Menendez convicted in bribery scheme](https://www.yahoo.com/news/wife-former-us-sen-bob-195043475.html)
-- Apr 21 - [University of Louisville cancels graduation ceremony for LGBTQ+ students. Here's why](https://www.yahoo.com/news/university-louisville-cancels-graduation-ceremony-194437628.html)
-- Apr 21 - [Texas Walmart shooter who killed 23 avoids death penalty by pleading guilty](https://www.yahoo.com/news/texas-walmart-shooter-killed-23-192713161.html)
-- Apr 21 - [Sarah Palin tells defamation trial jury that Times editorial 'kicked the oomph' out of her](https://www.yahoo.com/news/sarah-palin-tells-defamation-trial-191215831.html)
+- Apr 21 - [Trump approval rating dips; many wary of his wielding of power, Reuters/Ipsos poll finds](https://www.yahoo.com/news/trump-approval-rating-dips-many-213756684.html)
+- Apr 21 - [Gwinnett’s interim superintendent says he’s focused on stability, safety, and keeping staff](https://www.yahoo.com/news/gwinnett-interim-superintendent-says-focused-213456617.html)
+- Apr 21 - [MTG sparks backlash after X post appearing to celebrate Pope’s death](https://www.yahoo.com/news/mtg-sparks-backlash-x-post-213359992.html)
+- Apr 21 - [How crooks convinced her to put $17,500 into a bitcoin ATM to 'secure' her money](https://www.yahoo.com/news/crooks-convinced-her-put-17-212854190.html)
+- Apr 21 - [Harvard Sues Trump Administration, Says $2.2 Billion Freeze Is Punishment for ‘Protecting Its Constitutional Rights’](https://www.yahoo.com/news/harvard-sues-trump-administration-says-212821205.html)
 <!-- feed end -->
 
 ### Onstream
