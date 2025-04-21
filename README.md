@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [Stock market today: Dow, S&P 500, Nasdaq futures fall with Trump tariffs, Big Tech earnings kickoff in focus](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-fall-with-trump-tariffs-big-tech-earnings-kickoff-in-focus-070402378.html)
 - Apr 21 - [US beef off the menu as the trade war hits Beijing's American-style restaurants](https://finance.yahoo.com/news/us-beef-off-menu-trade-051659503.html)
 - Apr 21 - [60,000 Americans to lose their rental assistance and risk eviction unless Congress acts](https://www.yahoo.com/news/60-000-americans-lose-rental-041130929.html)
 - Apr 21 - [Top Pentagon Spokesperson Quits, Then Drops 'Bombshell' Warning About Pete Hegseth](https://www.yahoo.com/news/top-pentagon-spokesperson-quits-then-040731926.html)
 - Apr 21 - [Malaysia Airlines eyes new Boeing jets should China reject them](https://finance.yahoo.com/news/malaysia-airlines-eyes-boeing-jets-040235481.html)
-- Apr 21 - [Moscow court finds Google guilty of disclosing Russian war casualties, TASS says](https://www.yahoo.com/news/moscow-court-finds-google-guilty-033727347.html)
 <!-- feed end -->
 
 ### Onstream
