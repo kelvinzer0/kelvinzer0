@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Pete Hegseth shared Yemen strike info in Signal chat with wife and brother](https://www.yahoo.com/news/pete-hegseth-shared-yemen-strike-123925224.html)
-- Apr 21 - [Pope Francis Made Final Appearance Hours Before His Death](https://www.yahoo.com/news/pope-francis-made-final-appearance-120600584.html)
-- Apr 21 - ['Hate will never overcome love': El Paso Walmart shooting memorials keep memory alive](https://www.yahoo.com/news/hate-never-overcome-love-el-120138051.html)
-- Apr 21 - [Which cardinals are seen as contenders to be the next pope?](https://www.yahoo.com/news/cardinals-seen-contenders-next-pope-115551844.html)
-- Apr 21 - [The canonization of the first millennial saint, Carlo Acutis, is postponed after the pope's death](https://www.yahoo.com/news/canonization-first-millennial-saint-carlo-110357505.html)
+- Apr 21 - [US Supreme Court won't save Minnesota age restriction on carrying guns](https://www.yahoo.com/news/us-supreme-court-wont-save-133919233.html)
+- Apr 21 - [How does the Catholic Church choose a new pope?](https://www.yahoo.com/news/does-catholic-church-choose-pope-132442941.html)
+- Apr 21 - [US sell-off, Tesla & Alphabet earnings, Pope Francis: 3 Things](https://finance.yahoo.com/video/us-sell-off-tesla-alphabet-132002702.html)
+- Apr 21 - [I Inherited My Husband's 401(k) With $615k. How Do Handle This Money to Reduce Taxes?](https://finance.yahoo.com/news/inherited-husbands-401-k-615k-131502211.html)
+- Apr 21 - [This 32-year-old Pilates instructor told ‘lies’ that duped JPMorgan out of $175M. Here's how she did it](https://finance.yahoo.com/news/32-old-pilates-instructor-told-131500719.html)
 <!-- feed end -->
 
 ### Onstream
