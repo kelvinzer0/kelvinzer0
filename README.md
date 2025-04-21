@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [Atlanta church accused of labor trafficking in lawsuit](https://www.yahoo.com/news/atlanta-church-accused-labor-trafficking-221444343.html)
 - Apr 21 - [Trump approval rating dips; many wary of his wielding of power, Reuters/Ipsos poll finds](https://www.yahoo.com/news/trump-approval-rating-dips-many-213756684.html)
-- Apr 21 - [Gwinnett’s interim superintendent says he’s focused on stability, safety, and keeping staff](https://www.yahoo.com/news/gwinnett-interim-superintendent-says-focused-213456617.html)
 - Apr 21 - [MTG sparks backlash after X post appearing to celebrate Pope’s death](https://www.yahoo.com/news/mtg-sparks-backlash-x-post-213359992.html)
-- Apr 21 - [How crooks convinced her to put $17,500 into a bitcoin ATM to 'secure' her money](https://www.yahoo.com/news/crooks-convinced-her-put-17-212854190.html)
-- Apr 21 - [Harvard Sues Trump Administration, Says $2.2 Billion Freeze Is Punishment for ‘Protecting Its Constitutional Rights’](https://www.yahoo.com/news/harvard-sues-trump-administration-says-212821205.html)
+- Apr 21 - [‘A month from hell’: Pete Hegseth’s former aides at Pentagon call for his removal over conduct](https://www.yahoo.com/news/month-hell-pete-hegseth-former-203219547.html)
+- Apr 21 - [Team Trump Drafts Dystopian Plan to Get Women to Have More Babies](https://www.yahoo.com/news/team-trump-drafts-dystopian-plan-200255011.html)
 <!-- feed end -->
 
 ### Onstream
