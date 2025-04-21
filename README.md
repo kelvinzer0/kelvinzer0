@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Malaysia Airlines eyes new Boeing jets should China reject them](https://finance.yahoo.com/news/malaysia-airlines-eyes-boeing-jets-040235481.html)
+- Apr 21 - [60,000 Americans to lose their rental assistance and risk eviction unless Congress acts](https://www.yahoo.com/news/60-000-americans-lose-rental-041130929.html)
+- Apr 21 - [Top Pentagon Spokesperson Quits, Then Drops 'Bombshell' Warning About Pete Hegseth](https://www.yahoo.com/news/top-pentagon-spokesperson-quits-then-040731926.html)
 - Apr 21 - [Tariffs will push customers to secondhand clothing market, industry expert says](https://www.yahoo.com/news/tariffs-push-customers-secondhand-clothing-040159068.html)
+- Apr 21 - [Moscow court finds Google guilty of disclosing Russian war casualties, TASS says](https://www.yahoo.com/news/moscow-court-finds-google-guilty-033727347.html)
 - Apr 21 - [JPMorgan details exactly how it thinks Trump's trade war will play out — and what investors should do](https://finance.yahoo.com/news/jpmorgan-details-exactly-thinks-trumps-175501505.html)
-- Apr 21 - [El Salvador’s president offers Maduro US-deported Venezuelans for prisoner swap](https://www.yahoo.com/news/el-salvador-president-offers-maduro-001641210.html)
-- Apr 21 - [South Korea finds 'Made in Korea' breaches intended to bypass US tariffs](https://finance.yahoo.com/news/south-korea-finds-made-korea-010230781.html)
 <!-- feed end -->
 
 ### Onstream
