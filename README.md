@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [China warns countries against striking trade deals with US at its expense](https://www.yahoo.com/news/china-opposes-deals-between-us-005128422.html)
 - Apr 20 - [Joe Rogan Paints A Picture Of Trump: In Between Golf Swings, He's On The Phone With Other Presidents: 'We're Going To Need More Money!'](https://finance.yahoo.com/news/joe-rogan-paints-picture-trump-223052993.html)
 - Apr 20 - [Salvadoran President Bukele proposes prisoner swap with Maduro for Venezuelan deportees](https://www.yahoo.com/news/el-salvador-president-nayib-bukele-220813013.html)
 - Apr 20 - [Pete Hegseth Shared Yemen Attack Plans With Wife, Brother in Second Signal Chat](https://www.yahoo.com/news/pete-hegseth-shared-yemen-attack-214218980.html)
-- Apr 20 - [WA State Senator Bill Ramos dies unexpectedly](https://www.yahoo.com/news/wa-state-senator-bill-ramos-173516480.html)
 - Apr 20 - [19-Year-Old Student-Athlete and Oregon College Softball Coach Dead After Team Bus Collides with a Truck](https://sports.yahoo.com/article/19-old-student-athlete-oregon-161239676.html)
 <!-- feed end -->
 
