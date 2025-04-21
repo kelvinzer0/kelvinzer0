@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [US Supreme Court to hear clash over Obamacare preventive care](https://www.yahoo.com/news/us-supreme-court-hear-clash-100255307.html)
-- Apr 21 - [Putin praises Pope Francis, sends his condolences](https://www.yahoo.com/news/putin-praises-pope-francis-sends-100150335.html)
+- Apr 21 - [Tesla's affordable EV, robotaxis in focus after Musk backlash, competition hurt demand](https://finance.yahoo.com/news/teslas-affordable-ev-robotaxis-focus-100436923.html)
+- Apr 21 - [Wisconsin autism groups say RFK Jr. wrong on facts, offensive in approach](https://www.yahoo.com/news/wisconsin-autism-groups-rfk-jr-100409215.html)
 - Apr 21 - ['Unhinged': Trump's 'Greatest' Claim About Business Backfires Spectacularly](https://www.yahoo.com/news/unhinged-trumps-greatest-claim-business-094644795.html)
-- Apr 21 - [Sewickley Academy students stepping up to help victims of Hurricane Helene with fundraiser](https://www.yahoo.com/news/sewickley-academy-students-stepping-help-091119716.html)
-- Apr 21 - [It was the hedonistic party capital of Europe. Now Gen Z wants a different kind of fun](https://www.yahoo.com/news/hedonistic-party-capital-europe-now-094537437.html)
+- Apr 21 - [The rites and rituals following the death of a pope, his funeral and burial, explained](https://www.yahoo.com/news/rites-rituals-following-death-pope-091557943.html)
+- Apr 21 - [Australia hits back after being mocked by Russia as ‘having no cards’ to play in Indo-Pacific dispute](https://www.yahoo.com/news/australia-hits-back-being-mocked-090204632.html)
 <!-- feed end -->
 
 ### Onstream
