@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [What Trump tariffs really mean to semiconductors: Former Intel CEO](https://finance.yahoo.com/video/trump-tariffs-really-mean-semiconductors-120019266.html)
-- Apr 21 - [What to know about the death of Pope Francis](https://www.yahoo.com/news/know-death-pope-francis-110509201.html)
-- Apr 21 - [When will I get my Social Security payments this month? See April 2025 schedule](https://www.yahoo.com/news/social-security-payments-month-see-110305800.html)
-- Apr 21 - [Francis showed that it is in weakness, not strength, that you conquer](https://www.yahoo.com/news/francis-showed-weakness-not-strength-110000158.html)
-- Apr 21 - [The rites and rituals following the death of a pope, his funeral and burial, explained](https://www.yahoo.com/news/rites-rituals-following-death-pope-091557943.html)
+- Apr 21 - [Pete Hegseth shared Yemen strike info in Signal chat with wife and brother](https://www.yahoo.com/news/pete-hegseth-shared-yemen-strike-123925224.html)
+- Apr 21 - [Pope Francis Made Final Appearance Hours Before His Death](https://www.yahoo.com/news/pope-francis-made-final-appearance-120600584.html)
+- Apr 21 - ['Hate will never overcome love': El Paso Walmart shooting memorials keep memory alive](https://www.yahoo.com/news/hate-never-overcome-love-el-120138051.html)
+- Apr 21 - [Which cardinals are seen as contenders to be the next pope?](https://www.yahoo.com/news/cardinals-seen-contenders-next-pope-115551844.html)
+- Apr 21 - [The canonization of the first millennial saint, Carlo Acutis, is postponed after the pope's death](https://www.yahoo.com/news/canonization-first-millennial-saint-carlo-110357505.html)
 <!-- feed end -->
 
 ### Onstream
