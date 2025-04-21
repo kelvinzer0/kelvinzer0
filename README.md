@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Alpaca on the Loose in Westchester Safely Reunited With Owner (PHOTOS)](https://www.yahoo.com/news/alpaca-loose-westchester-safely-reunited-160409715.html)
-- Apr 21 - [NY Fed finds Americans trimming back wage expectations for new jobs](https://finance.yahoo.com/news/ny-fed-finds-americans-trimming-160155865.html)
-- Apr 21 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
 - Apr 21 - [Iowa considers whether to change constitution to address how traumatized witnesses testify in court](https://www.yahoo.com/news/iowa-considers-whether-change-constitution-152736296.html)
-- Apr 21 - [NY Cardinal Dolan reflects on the legacy of Pope Francis](https://www.yahoo.com/news/ny-cardinal-dolan-reflects-legacy-151216618.html)
+- Apr 21 - [UN researchers warn that Asian scam operations are spreading across the rest of the world](https://www.yahoo.com/news/un-researchers-warn-asian-scam-152350839.html)
+- Apr 21 - [What Does It Cost To Charge a Tesla Monthly Compared to Gas for a Toyota Camry?](https://finance.yahoo.com/news/does-cost-charge-tesla-monthly-150328004.html)
+- Apr 21 - [Charles Barkley to Dems: Run either of these 2 candidates or lose my support](https://www.yahoo.com/news/charles-barkley-dems-run-either-145925560.html)
+- Apr 21 - [Former Tesla Engineer Says Elon Musk Threatened to Deport Her Team for Pointing Out a Problem With the Brakes](https://www.yahoo.com/news/former-tesla-engineer-says-elon-143325402.html)
 <!-- feed end -->
 
 ### Onstream
