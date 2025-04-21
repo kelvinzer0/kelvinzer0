@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [China warns countries against striking trade deals with US at its expense](https://www.yahoo.com/news/china-opposes-deals-between-us-005128422.html)
-- Apr 20 - [Joe Rogan Paints A Picture Of Trump: In Between Golf Swings, He's On The Phone With Other Presidents: 'We're Going To Need More Money!'](https://finance.yahoo.com/news/joe-rogan-paints-picture-trump-223052993.html)
-- Apr 20 - [Salvadoran President Bukele proposes prisoner swap with Maduro for Venezuelan deportees](https://www.yahoo.com/news/el-salvador-president-nayib-bukele-220813013.html)
-- Apr 20 - [Pete Hegseth Shared Yemen Attack Plans With Wife, Brother in Second Signal Chat](https://www.yahoo.com/news/pete-hegseth-shared-yemen-attack-214218980.html)
-- Apr 20 - [19-Year-Old Student-Athlete and Oregon College Softball Coach Dead After Team Bus Collides with a Truck](https://sports.yahoo.com/article/19-old-student-athlete-oregon-161239676.html)
+- Apr 21 - [Malaysia Airlines eyes new Boeing jets should China reject them](https://finance.yahoo.com/news/malaysia-airlines-eyes-boeing-jets-040235481.html)
+- Apr 21 - [Tariffs will push customers to secondhand clothing market, industry expert says](https://www.yahoo.com/news/tariffs-push-customers-secondhand-clothing-040159068.html)
+- Apr 21 - [JPMorgan details exactly how it thinks Trump's trade war will play out — and what investors should do](https://finance.yahoo.com/news/jpmorgan-details-exactly-thinks-trumps-175501505.html)
+- Apr 21 - [El Salvador’s president offers Maduro US-deported Venezuelans for prisoner swap](https://www.yahoo.com/news/el-salvador-president-offers-maduro-001641210.html)
+- Apr 21 - [South Korea finds 'Made in Korea' breaches intended to bypass US tariffs](https://finance.yahoo.com/news/south-korea-finds-made-korea-010230781.html)
 <!-- feed end -->
 
 ### Onstream
