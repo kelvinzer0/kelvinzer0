@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [I'm Sorry, But These Jokes About The Upcoming Conclave Are Waaaay Funnier Than They Should Be](https://www.yahoo.com/lifestyle/im-sorry-jokes-upcoming-conclave-182850557.html)
-- Apr 22 - [Top "60 Minutes" producer quits, saying he can no longer run the show as he has](https://www.yahoo.com/news/top-60-minutes-producer-quits-175046278.html)
-- Apr 22 - [George Santos defends social media tirade to federal judge set to sentence prison him for fraud](https://www.yahoo.com/news/george-santos-defends-social-media-162901853.html)
-- Apr 22 - [People crowding sharks may have led to attack on missing man off Israeli coast; AP explains](https://www.yahoo.com/news/people-crowding-sharks-may-led-154112217.html)
-- Apr 22 - [Russian region declares emergency after blast at military unit](https://www.yahoo.com/news/russian-region-declares-emergency-blast-153539774.html)
+- Apr 22 - [Alabama inmate seeks his execution, saying he believes in 'an eye for an eye'](https://www.yahoo.com/news/alabama-inmate-seeks-execution-saying-190531349.html)
+- Apr 22 - [Jury finds The New York Times did not libel former Alaska Gov. Sarah Palin](https://www.yahoo.com/news/jury-deliberates-whether-york-times-185446974.html)
+- Apr 22 - [I'm Sorry, But These 26 Jokes About The Conclave Are So, So Very Funny](https://www.yahoo.com/lifestyle/im-sorry-jokes-upcoming-conclave-182850557.html)
+- Apr 22 - [Top '60 Minutes' producer quits, saying he can no longer run the show as he has in the past](https://www.yahoo.com/news/top-60-minutes-producer-quits-175046278.html)
+- Apr 22 - [If Trump fires Jerome Powell and replaces him with someone more politically pliant, ‘it could be something that backfires on Trump spectacularly,’ researcher says](https://finance.yahoo.com/news/trump-fires-jerome-powell-replaces-160155178.html)
 <!-- feed end -->
 
 ### Onstream
