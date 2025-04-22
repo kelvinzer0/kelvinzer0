@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [What causes breakthrough measles infections?](https://www.yahoo.com/news/causes-breakthrough-measles-infections-140936929.html)
-- Apr 22 - [Shark filmed swimming among children before ‘deadly’ attack](https://www.yahoo.com/news/shark-filmed-swimming-among-children-134814765.html)
-- Apr 22 - [Powerful line of storms could bring tornadoes, hail the size of baseballs](https://www.yahoo.com/news/powerful-line-storms-could-bring-130329653.html)
-- Apr 22 - [The Latest: Trump allies turn on one another as controversies accumulate](https://www.yahoo.com/news/latest-controversies-pile-trump-allies-123223101.html)
-- Apr 22 - [Archaeologists Found a 7,500-Year-Old Antler. Turns Out It’s a Sacred Weapon.](https://www.yahoo.com/news/archaeologists-found-7-500-old-123000961.html)
+- Apr 22 - [People crowding sharks may have led to attack on missing man off Israeli coast; AP explains](https://www.yahoo.com/news/people-crowding-sharks-may-led-154112217.html)
+- Apr 22 - [Russian region declares emergency after blast at military unit](https://www.yahoo.com/news/russian-region-declares-emergency-blast-153539774.html)
+- Apr 22 - [Identity revealed for man, 65, found dead in burning East Topeka home](https://www.yahoo.com/news/identity-revealed-man-65-found-140327946.html)
+- Apr 22 - [Shark filmed swimming among children before attack](https://www.yahoo.com/news/shark-filmed-swimming-among-children-134814765.html)
+- Apr 22 - [Woman Dragged From Republican Town Hall Seeks $5 Million In Damages](https://www.yahoo.com/news/woman-dragged-republican-town-hall-133000076.html)
 <!-- feed end -->
 
 ### Onstream
