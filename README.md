@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Girl, 3, killed by van driver who took ‘at least 20 lines of cocaine’ before fatal crash](https://www.yahoo.com/news/girl-3-killed-van-driver-155642553.html)
-- Apr 22 - [People crowding sharks may have led to attack on missing man off Israeli coast; AP explains](https://www.yahoo.com/news/people-crowding-sharks-may-led-154112217.html)
-- Apr 22 - [Russian region declares emergency after blast at military unit](https://www.yahoo.com/news/russian-region-declares-emergency-blast-153539774.html)
-- Apr 22 - [Shark filmed swimming among children before attack](https://www.yahoo.com/news/shark-filmed-swimming-among-children-134814765.html)
-- Apr 22 - [Coca-Cola under fire after bombshell report exposes ties to controversial industry: 'The cost is irreversible damage to our children's health'](https://www.yahoo.com/news/coca-cola-under-fire-bombshell-113034785.html)
+- Apr 22 - [ICE Given Hours to Reinstate Over 100 Student Visas in Blow to MAGA](https://www.yahoo.com/news/ice-given-hours-reinstate-over-175123887.html)
+- Apr 22 - [Top "60 Minutes" producer quits, saying he can no longer run the show as he has](https://www.yahoo.com/news/top-60-minutes-producer-quits-175046278.html)
+- Apr 22 - [George Santos defends social media tirade to federal judge set to sentence prison him for fraud](https://www.yahoo.com/news/george-santos-defends-social-media-162901853.html)
+- Apr 22 - [RFK Jr. Set to Launch Disease Registry Tracking Autistic People](https://www.yahoo.com/news/rfk-jr-set-launch-disease-161101322.html)
+- Apr 22 - [Nintendo Switch 2 Pro Controller Fixes One of the Worst Parts of the Original](https://tech.yahoo.com/articles/nintendo-switch-2-pro-controller-160416216.html)
 <!-- feed end -->
 
 ### Onstream
