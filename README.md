@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - ['60 Minutes' producer quits after show targeted by Trump](https://www.yahoo.com/news/60-minutes-producer-quits-show-210010874.html)
-- Apr 22 - [UN to review the impact of its agency helping Palestinian refugees in Gaza and elsewhere](https://www.yahoo.com/news/un-review-impact-agency-helping-205013026.html)
-- Apr 22 - [29 Hilarious Tweets From The Week Because Laughter Is The Small Cure We Alllll Need Right Now](https://www.yahoo.com/lifestyle/29-hilarious-tweets-week-because-194544476.html)
+- Apr 22 - [Trump administration is about to collect payments from millions of student borrowers. Experts say it risks slowing the economy.](https://www.yahoo.com/news/trump-administration-collect-payments-millions-191700372.html)
 - Apr 22 - [Alabama inmate seeks his execution, saying he believes in 'an eye for an eye'](https://www.yahoo.com/news/alabama-inmate-seeks-execution-saying-190531349.html)
 - Apr 22 - [Jury finds The New York Times did not libel former Alaska Gov. Sarah Palin](https://www.yahoo.com/news/jury-deliberates-whether-york-times-185446974.html)
+- Apr 22 - [The Texas Lottery's top executive resigns as scrutiny over big jackpot winners intensifies](https://www.yahoo.com/news/texas-lotterys-top-executive-resigns-183154936.html)
+- Apr 22 - [I'm Sorry, But These 26 Jokes About The Conclave Are So, So Very Funny](https://www.yahoo.com/lifestyle/im-sorry-jokes-upcoming-conclave-182850557.html)
 <!-- feed end -->
 
 ### Onstream
