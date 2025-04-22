@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 22 - [Thai PM says US tariff negotiations postponed to review 'issues'](https://www.yahoo.com/news/thai-pm-says-us-tariff-061502156.html)
+- Apr 22 - [Elizabeth Warren Says We’re ‘Starting to See the Cracks of Fear’ in Trump After Latest Pete Hegseth Scandal | Video](https://www.yahoo.com/news/elizabeth-warren-says-starting-see-043003654.html)
 - Apr 22 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
-- Apr 22 - [Texas county commissioner injured, husband killed in knife attack](https://www.yahoo.com/news/texas-county-commissioner-injured-husband-020812090.html)
 - Apr 22 - [Wife of detained Columbia activist says her husband was denied release for his son's birth](https://www.yahoo.com/news/wife-detained-columbia-activist-says-014138286.html)
-- Apr 21 - [People Are Obsessed With Pope Francis's Final, Resounding Message To JD Vance After His Visit To The Vatican](https://www.yahoo.com/news/pope-franciss-death-mic-drop-235856147.html)
+- Apr 22 - [One person seriously injured after hit-and-run in Costco parking lot](https://www.yahoo.com/news/one-person-seriously-injured-hit-004922224.html)
 <!-- feed end -->
 
 ### Onstream
