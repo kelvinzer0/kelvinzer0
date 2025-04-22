@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Sharks drew crowds who chased and fed them off Israel's coast — until one man disappeared](https://www.yahoo.com/news/sharks-drew-crowds-chased-fed-102213881.html)
-- Apr 22 - [Japan sends more naval ships to China-linked base despite US concerns](https://www.yahoo.com/news/japan-sends-more-naval-ships-095956617.html)
-- Apr 22 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
-- Apr 22 - [Wife of detained Columbia activist says her husband was denied release for his son's birth](https://www.yahoo.com/news/wife-detained-columbia-activist-says-014138286.html)
-- Apr 21 - [People Are Obsessed With Pope Francis's Final, Resounding Message To JD Vance After His Visit To The Vatican](https://www.yahoo.com/news/pope-franciss-death-mic-drop-235856147.html)
+- Apr 22 - [Stock Market Sell-Off: 3 Stocks That Wall Street Thinks Can Rally Roughly 40% Over the Next 12 Months](https://finance.yahoo.com/news/stock-market-sell-off-3-113300125.html)
+- Apr 22 - [Five tourists feared dead, eight injured in militant attack in Indian Kashmir, police source says](https://www.yahoo.com/news/one-killed-seven-injured-militant-111243627.html)
+- Apr 22 - [Israeli strikes kill 14 in Gaza and destroy heavy equipment needed to clear rubble](https://www.yahoo.com/news/israeli-strikes-kill-14-gaza-104823383.html)
+- Apr 22 - [This Minnesota couple was charged with running a $15M medical fraud scheme out of their suburban home](https://www.yahoo.com/news/minnesota-couple-charged-running-15m-104400563.html)
+- Apr 22 - [Arizona Democrats roiled by infighting ahead of midterms](https://www.yahoo.com/news/arizona-democrats-roiled-infighting-ahead-100000967.html)
 <!-- feed end -->
 
 ### Onstream
