@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [US to impose new duties on solar imports from Southeast Asia](https://www.yahoo.com/news/us-impose-duties-solar-imports-034158699.html)
-- Apr 22 - [Gay man Nancy Mace cursed out in South Carolina Ulta says ‘a fire was lit’ from Republican's ‘meltdown’](https://www.yahoo.com/news/gay-man-nancy-mace-cursed-025216947.html)
+- Apr 22 - [Texas county commissioner injured, husband killed in knife attack](https://www.yahoo.com/news/texas-county-commissioner-injured-husband-020812090.html)
 - Apr 22 - [Wife of detained Columbia activist says her husband was denied release for his son's birth](https://www.yahoo.com/news/wife-detained-columbia-activist-says-014138286.html)
-- Apr 22 - [One person seriously injured after hit-and-run in Costco parking lot](https://www.yahoo.com/news/one-person-seriously-injured-hit-004922224.html)
-- Apr 21 - [After Pope Francis's Death, His "Mic Drop" Last Act During A Visit From JD Vance Is Going Super Viral](https://www.yahoo.com/news/pope-franciss-death-mic-drop-235856147.html)
+- Apr 21 - [People Are Obsessed With Pope Francis's Final, Resounding Message To JD Vance After His Visit To The Vatican](https://www.yahoo.com/news/pope-franciss-death-mic-drop-235856147.html)
+- Apr 21 - [Losing at red line! Trump hits brick wall in 7-2 SCOTUS loss, Melber reports on coalition vs. 47](https://www.yahoo.com/news/losing-red-line-trump-hits-234343176.html)
+- Apr 21 - [Hit-and-run pickup driver destroys front of downtown Anchorage dumpling eatery](https://www.yahoo.com/news/hit-run-pickup-driver-destroys-221000432.html)
 <!-- feed end -->
 
 ### Onstream
