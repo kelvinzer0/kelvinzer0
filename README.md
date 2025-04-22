@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [What causes breakthrough measles infections?](https://www.yahoo.com/news/causes-breakthrough-measles-infections-140936929.html)
 - Apr 22 - [Shark filmed swimming among children before ‘deadly’ attack](https://www.yahoo.com/news/shark-filmed-swimming-among-children-134814765.html)
-- Apr 22 - [Heavy equipment needed to clear rubble destroyed in Israeli strike on Jabaliya](https://www.yahoo.com/news/heavy-equipment-needed-clear-rubble-124312216.html)
+- Apr 22 - [Powerful line of storms could bring tornadoes, hail the size of baseballs](https://www.yahoo.com/news/powerful-line-storms-could-bring-130329653.html)
 - Apr 22 - [The Latest: Trump allies turn on one another as controversies accumulate](https://www.yahoo.com/news/latest-controversies-pile-trump-allies-123223101.html)
-- Apr 22 - [Provost: Purdue will not provide numbers on students affected by visa revocations](https://www.yahoo.com/news/provost-purdue-not-numbers-students-121935614.html)
-- Apr 22 - [Coca-Cola under fire after bombshell report exposes ties to controversial industry: 'The cost is irreversible damage to our children's health'](https://www.yahoo.com/news/coca-cola-under-fire-bombshell-113034785.html)
+- Apr 22 - [Archaeologists Found a 7,500-Year-Old Antler. Turns Out It’s a Sacred Weapon.](https://www.yahoo.com/news/archaeologists-found-7-500-old-123000961.html)
 <!-- feed end -->
 
 ### Onstream
