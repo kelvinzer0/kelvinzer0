@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Dramatic Moment Woman and Children Narrowly Escape Manhole Explosion](https://www.yahoo.com/news/dramatic-moment-woman-children-narrowly-082733573.html)
-- Apr 22 - [Parking machines ‘set up to trap people’ as thousands sent tickets](https://www.yahoo.com/news/parking-machines-set-trap-people-230931169.html)
-- Apr 22 - [Thai PM says US tariff negotiations postponed to review 'issues'](https://www.yahoo.com/news/thai-pm-says-us-tariff-061502156.html)
-- Apr 22 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
-- Apr 22 - ['For our country': China's patriots are buying the dip](https://finance.yahoo.com/news/country-chinas-patriots-buying-dip-020251211.html)
+- Apr 22 - [Stock market volatility offers 2 important lessons for investors: Morning Brief](https://finance.yahoo.com/news/stock-market-volatility-offers-2-important-lessons-for-investors-morning-brief-100046588.html)
+- Apr 22 - [Thailand convicts ex-prosecutors in fugitive Red Bull heir hit-and-run case](https://www.yahoo.com/news/thailand-convicts-ex-prosecutors-fugitive-091650027.html)
+- Apr 22 - [Analysis: China's cutthroat EV revolution leaves little margin for profit](https://finance.yahoo.com/news/analysis-chinas-cutthroat-ev-revolution-080814197.html)
+- Apr 22 - [The U.S. slaps even more tariffs on Southeast Asia, as solar panels get anti-dumping duties that go as high as 3,521%](https://www.yahoo.com/news/u-slaps-even-more-tariffs-063509077.html)
+- Apr 22 - [Elizabeth Warren Says We’re ‘Starting to See the Cracks of Fear’ in Trump After Latest Pete Hegseth Scandal | Video](https://www.yahoo.com/news/elizabeth-warren-says-starting-see-043003654.html)
 <!-- feed end -->
 
 ### Onstream
