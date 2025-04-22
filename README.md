@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Girl, 3, killed by van driver who took ‘at least 20 lines of cocaine’ before fatal crash](https://www.yahoo.com/news/girl-3-killed-van-driver-155642553.html)
 - Apr 22 - [People crowding sharks may have led to attack on missing man off Israeli coast; AP explains](https://www.yahoo.com/news/people-crowding-sharks-may-led-154112217.html)
 - Apr 22 - [Russian region declares emergency after blast at military unit](https://www.yahoo.com/news/russian-region-declares-emergency-blast-153539774.html)
-- Apr 22 - [Identity revealed for man, 65, found dead in burning East Topeka home](https://www.yahoo.com/news/identity-revealed-man-65-found-140327946.html)
 - Apr 22 - [Shark filmed swimming among children before attack](https://www.yahoo.com/news/shark-filmed-swimming-among-children-134814765.html)
-- Apr 22 - [Woman Dragged From Republican Town Hall Seeks $5 Million In Damages](https://www.yahoo.com/news/woman-dragged-republican-town-hall-133000076.html)
+- Apr 22 - [Coca-Cola under fire after bombshell report exposes ties to controversial industry: 'The cost is irreversible damage to our children's health'](https://www.yahoo.com/news/coca-cola-under-fire-bombshell-113034785.html)
 <!-- feed end -->
 
 ### Onstream
