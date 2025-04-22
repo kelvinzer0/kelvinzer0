@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Dow Jones Futures Rise: Trump Calls Powell 'Loser'; Apple, Nvidia, Tesla Sell Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-trump-powell-apple-nvidia-tesla/?src=A00220&yptr=yahoo)
-- Apr 21 - [Man arrested for attempted murder after shooting would-be thief during car break-in](https://www.yahoo.com/news/man-arrested-attempted-murder-shooting-215444783.html)
-- Apr 21 - ['The money came so fast': What an NBA All-Star learned after going from millions to bankruptcy](https://finance.yahoo.com/news/the-money-came-so-fast-what-an-nba-all-star-learned-after-going-from-millions-to-bankruptcy-215432482.html)
+- Apr 22 - [Wife of detained Columbia activist says her husband was denied release for his son's birth](https://www.yahoo.com/news/wife-detained-columbia-activist-says-014138286.html)
+- Apr 21 - [After Pope Francis's Death, His "Mic Drop" Last Act During A Visit From JD Vance Is Going Super Viral](https://www.yahoo.com/news/pope-franciss-death-mic-drop-235856147.html)
+- Apr 21 - [Losing at red line! Trump hits brick wall in 7-2 SCOTUS loss, Melber reports on coalition vs. 47](https://www.yahoo.com/news/losing-red-line-trump-hits-234343176.html)
+- Apr 21 - [Delta Plane Bursts Into Flames on Orlando Runway as Passengers Evacuate on Emergency Slides](https://www.yahoo.com/entertainment/videos/delta-plane-bursts-flames-orlando-233001448.html)
 - Apr 21 - [Trump approval rating dips; many wary of his wielding of power, Reuters/Ipsos poll finds](https://www.yahoo.com/news/trump-approval-rating-dips-many-213756684.html)
-- Apr 21 - [MTG sparks backlash after ugly X  post appearing to celebrate Pope’s death](https://www.yahoo.com/news/mtg-sparks-backlash-x-post-213359992.html)
 <!-- feed end -->
 
 ### Onstream
