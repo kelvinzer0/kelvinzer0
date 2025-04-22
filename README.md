@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Stock market volatility offers 2 important lessons for investors: Morning Brief](https://finance.yahoo.com/news/stock-market-volatility-offers-2-important-lessons-for-investors-morning-brief-100046588.html)
-- Apr 22 - [Thailand convicts ex-prosecutors in fugitive Red Bull heir hit-and-run case](https://www.yahoo.com/news/thailand-convicts-ex-prosecutors-fugitive-091650027.html)
-- Apr 22 - [Analysis: China's cutthroat EV revolution leaves little margin for profit](https://finance.yahoo.com/news/analysis-chinas-cutthroat-ev-revolution-080814197.html)
-- Apr 22 - [The U.S. slaps even more tariffs on Southeast Asia, as solar panels get anti-dumping duties that go as high as 3,521%](https://www.yahoo.com/news/u-slaps-even-more-tariffs-063509077.html)
-- Apr 22 - [Elizabeth Warren Says We’re ‘Starting to See the Cracks of Fear’ in Trump After Latest Pete Hegseth Scandal | Video](https://www.yahoo.com/news/elizabeth-warren-says-starting-see-043003654.html)
+- Apr 22 - [Sharks drew crowds who chased and fed them off Israel's coast — until one man disappeared](https://www.yahoo.com/news/sharks-drew-crowds-chased-fed-102213881.html)
+- Apr 22 - [Japan sends more naval ships to China-linked base despite US concerns](https://www.yahoo.com/news/japan-sends-more-naval-ships-095956617.html)
+- Apr 22 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
+- Apr 22 - [Wife of detained Columbia activist says her husband was denied release for his son's birth](https://www.yahoo.com/news/wife-detained-columbia-activist-says-014138286.html)
+- Apr 21 - [People Are Obsessed With Pope Francis's Final, Resounding Message To JD Vance After His Visit To The Vatican](https://www.yahoo.com/news/pope-franciss-death-mic-drop-235856147.html)
 <!-- feed end -->
 
 ### Onstream
