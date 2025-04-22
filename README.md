@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Atlanta church accused of labor trafficking in lawsuit](https://www.yahoo.com/news/atlanta-church-accused-labor-trafficking-221444343.html)
+- Apr 22 - [Dow Jones Futures Rise: Trump Calls Powell 'Loser'; Apple, Nvidia, Tesla Sell Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-trump-powell-apple-nvidia-tesla/?src=A00220&yptr=yahoo)
+- Apr 21 - [Man arrested for attempted murder after shooting would-be thief during car break-in](https://www.yahoo.com/news/man-arrested-attempted-murder-shooting-215444783.html)
+- Apr 21 - ['The money came so fast': What an NBA All-Star learned after going from millions to bankruptcy](https://finance.yahoo.com/news/the-money-came-so-fast-what-an-nba-all-star-learned-after-going-from-millions-to-bankruptcy-215432482.html)
 - Apr 21 - [Trump approval rating dips; many wary of his wielding of power, Reuters/Ipsos poll finds](https://www.yahoo.com/news/trump-approval-rating-dips-many-213756684.html)
-- Apr 21 - [MTG sparks backlash after X post appearing to celebrate Pope’s death](https://www.yahoo.com/news/mtg-sparks-backlash-x-post-213359992.html)
-- Apr 21 - [‘A month from hell’: Pete Hegseth’s former aides at Pentagon call for his removal over conduct](https://www.yahoo.com/news/month-hell-pete-hegseth-former-203219547.html)
-- Apr 21 - [Team Trump Drafts Dystopian Plan to Get Women to Have More Babies](https://www.yahoo.com/news/team-trump-drafts-dystopian-plan-200255011.html)
+- Apr 21 - [MTG sparks backlash after ugly X  post appearing to celebrate Pope’s death](https://www.yahoo.com/news/mtg-sparks-backlash-x-post-213359992.html)
 <!-- feed end -->
 
 ### Onstream
