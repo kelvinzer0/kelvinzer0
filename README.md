@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [US Supreme Court to hear case against LGBTQ books in schools](https://www.yahoo.com/news/us-supreme-court-hear-case-052404200.html)
+- Apr 22 - [Thai PM says US tariff negotiations postponed to review 'issues'](https://www.yahoo.com/news/thai-pm-says-us-tariff-061502156.html)
+- Apr 22 - [Homeland Security Secretary Kristi Noem’s bag, including $3,000 in cash, is stolen from DC restaurant](https://www.yahoo.com/news/homeland-security-secretary-kristi-noem-141306309.html)
 - Apr 22 - [Texas county commissioner injured, husband killed in knife attack](https://www.yahoo.com/news/texas-county-commissioner-injured-husband-020812090.html)
 - Apr 22 - [Wife of detained Columbia activist says her husband was denied release for his son's birth](https://www.yahoo.com/news/wife-detained-columbia-activist-says-014138286.html)
-- Apr 22 - [Gunfire erupts in busy L.A. intersection; 1 killed, 1 injured](https://www.yahoo.com/news/gunfire-erupts-busy-l-intersection-001731283.html)
 - Apr 21 - [People Are Obsessed With Pope Francis's Final, Resounding Message To JD Vance After His Visit To The Vatican](https://www.yahoo.com/news/pope-franciss-death-mic-drop-235856147.html)
 <!-- feed end -->
 
