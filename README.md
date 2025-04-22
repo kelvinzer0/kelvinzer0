@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Stock Market Sell-Off: 3 Stocks That Wall Street Thinks Can Rally Roughly 40% Over the Next 12 Months](https://finance.yahoo.com/news/stock-market-sell-off-3-113300125.html)
-- Apr 22 - [Five tourists feared dead, eight injured in militant attack in Indian Kashmir, police source says](https://www.yahoo.com/news/one-killed-seven-injured-militant-111243627.html)
+- Apr 22 - [The Latest: As controversies pile up, Trump allies increasingly turn on one another](https://www.yahoo.com/news/latest-controversies-pile-trump-allies-123223101.html)
+- Apr 22 - [Provost: Purdue will not provide numbers on students affected by visa revocations](https://www.yahoo.com/news/provost-purdue-not-numbers-students-121935614.html)
 - Apr 22 - [Israeli strikes kill 14 in Gaza and destroy heavy equipment needed to clear rubble](https://www.yahoo.com/news/israeli-strikes-kill-14-gaza-104823383.html)
 - Apr 22 - [This Minnesota couple was charged with running a $15M medical fraud scheme out of their suburban home](https://www.yahoo.com/news/minnesota-couple-charged-running-15m-104400563.html)
-- Apr 22 - [Arizona Democrats roiled by infighting ahead of midterms](https://www.yahoo.com/news/arizona-democrats-roiled-infighting-ahead-100000967.html)
+- Apr 22 - [Thailand convicts ex-prosecutors in fugitive Red Bull heir hit-and-run case](https://www.yahoo.com/news/thailand-convicts-ex-prosecutors-fugitive-091650027.html)
 <!-- feed end -->
 
 ### Onstream
