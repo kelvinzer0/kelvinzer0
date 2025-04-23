@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [Blasphemy is coming to St. Peter’s Square as Trump tries to hijack Pope Francis’s funeral to feed his ego](https://www.yahoo.com/news/blasphemy-coming-st-peter-square-120005411.html)
+- Apr 23 - [Meet the Monster Stock that Continues to Crush the Market](https://finance.yahoo.com/news/meet-monster-stock-continues-crush-103200303.html)
 - Apr 23 - [Putin says Russia has weapons shortages despite beefing up production](https://www.yahoo.com/news/putin-says-russia-lacks-certain-100821644.html)
-- Apr 23 - [Wolfe family sells Buckeye Lake's Journal Island after owning it for more than a century](https://www.yahoo.com/lifestyle/wolfe-family-sells-buckeye-lakes-100441339.html)
-- Apr 23 - [What we know about luxurious South Korean passenger plane at Vero Beach Regional Airport](https://www.yahoo.com/news/know-luxurious-south-korean-passenger-090212764.html)
 - Apr 23 - [Kashmir killings shatter Modi's tourism success in troubled region](https://www.yahoo.com/news/kashmir-killings-shatter-modis-tourism-090155812.html)
 - Apr 23 - [The new leader of the Catholic Church will inherit a financial mess that Pope Francis spent much of his reign trying to fix](https://finance.yahoo.com/news/leader-catholic-church-inherit-financial-090000413.html)
 <!-- feed end -->
