@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [That was fast! Trump slumps 'Great Depression Month' & rattles MAGA as numbers don't lie](https://www.yahoo.com/news/fast-trump-slumps-great-depression-000400199.html)
-- Apr 22 - [Lori Vallow Daybell convicted in Arizona of conspiring to kill her estranged husband in 2019](https://www.yahoo.com/news/lori-vallow-daybell-convicted-arizona-225514465.html)
-- Apr 22 - [Extremely Rare Ukrainian Heavy Infantry Fighting Vehicle Appears On Battlefield](https://www.yahoo.com/news/extremely-rare-ukrainian-heavy-infantry-222602801.html)
+- Apr 23 - [RFK Jr again claims autism is ‘worse’ than Covid, which he has emphasized killed ‘old people’](https://www.yahoo.com/news/rfk-jr-again-claims-autism-032144204.html)
 - Apr 22 - [13-mile backup on I-90 turns eastbound drive into 4.5-hour nightmare](https://www.yahoo.com/news/13-mile-backup-90-turns-222543268.html)
 - Apr 22 - [‘That ends now’: Judge overseeing Abrego Garcia case knocks Trump administration for repeated stonewalling](https://www.yahoo.com/news/ends-now-judge-overseeing-abrego-221739138.html)
+- Apr 22 - [Ukraine presses for ceasefire as Russia reported to offer concession](https://www.yahoo.com/news/ukraine-presses-ceasefire-russia-reported-202212864.html)
+- Apr 22 - [29 Tweets That Honestly Saved My Mental Health This Week, And I'm Not Even Exaggerating](https://www.yahoo.com/lifestyle/29-hilarious-tweets-week-because-194544476.html)
 <!-- feed end -->
 
 ### Onstream
