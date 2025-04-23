@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Cybertruck Gets A Down-To-Earth Redesign As Tesla Shifts To Traditional Pickup Marketing Amid Poor Sales (UPDATED)](https://finance.yahoo.com/news/cybertruck-gets-down-earth-redesign-213101515.html)
-- Apr 23 - [Fyre Festival founder says the brand is now for sale, second festival canceled: ‘I can’t risk a repeat.’ Here’s how we got here.](https://www.yahoo.com/news/fyre-festival-founder-says-the-brand-is-now-for-sale-second-festival-canceled-i-cant-risk-a-repeat-heres-how-we-got-here-225555969.html)
-- Apr 23 - [Hegseth spent ‘several thousand dollars’ turning Pentagon room into a make-up studio for his TV spots, report says](https://www.yahoo.com/news/hegseth-spent-several-thousand-dollars-192217107.html)
-- Apr 23 - [A bite from a lion likely led to the demise of a gladiator, new research finds](https://www.yahoo.com/news/bite-lion-likely-led-demise-183603500.html)
-- Apr 23 - [Russian threats against Czech hockey star Hasek unacceptable, Czech PM says](https://www.yahoo.com/news/russian-threats-against-czech-hockey-171252872.html)
+- Apr 23 - [American Airlines flight crew let passenger die while others disembarked, family says](https://www.yahoo.com/news/american-airlines-flight-attendants-let-195049251.html)
+- Apr 23 - [Videos show woman bypassing part of TSA checkpoint and gate agents to stow away on Delta Air Lines plane](https://www.yahoo.com/news/videos-show-woman-bypassing-part-230906639.html)
+- Apr 23 - [Explorers at WWII shipwreck find aircraft from legendary battle](https://www.yahoo.com/news/exploration-wwii-shipwreck-finds-aircraft-141450512.html)
+- Apr 23 - [This Is What Happens to Your Body When You Eat Blueberries Every Day](https://www.yahoo.com/lifestyle/happens-body-eat-blueberries-every-180100641.html)
+- Apr 23 - [“The View ”audience gasps as cohost asks 'isn't something better than nothing?' over Trump's $5,000 'baby bonus'](https://www.yahoo.com/entertainment/articles/view-audience-gasps-cohost-asks-175851655.html)
 <!-- feed end -->
 
 ### Onstream
