@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Voices: Mischievous, kind, extraordinarily empathetic: The Pope I knew supported me even at my lowest hour](https://www.yahoo.com/news/voices-mischievous-kind-extraordinarily-empathetic-072958827.html)
+- Apr 23 - [China's Jetour to launch European car sales in third quarter](https://finance.yahoo.com/news/chinas-jetour-launch-vehicle-sales-074537046.html)
 - Apr 23 - [BYD unveils new luxury sports car as carmakers vie for attention at China’s largest auto show](https://autos.yahoo.com/byd-unveils-luxury-sports-car-042757433.html)
 - Apr 23 - [International students stripped of legal status in the US are piling up wins in court](https://www.yahoo.com/news/international-students-stripped-legal-status-040441938.html)
 - Apr 23 - [Intel to cut over 20% of workforce, Bloomberg News reports](https://finance.yahoo.com/news/intel-cut-over-20-workforce-004251026.html)
-- Apr 22 - [Lori Vallow Daybell convicted in Arizona of conspiring to kill her estranged husband in 2019](https://www.yahoo.com/news/lori-vallow-daybell-convicted-arizona-225514465.html)
+- Apr 23 - [That was fast! Trump slumps 'Great Depression Month' & rattles MAGA as numbers don't lie](https://www.yahoo.com/news/fast-trump-slumps-great-depression-000400199.html)
 <!-- feed end -->
 
 ### Onstream
