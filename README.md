@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Pastor calls for 'full Target boycott' over concerns about diversity, equity, inclusion](https://www.yahoo.com/news/pastor-calls-full-target-boycott-204014858.html)
-- Apr 23 - [Former Packer Brett Favre is selling his massive Mississippi farm estate for $14 million](https://www.yahoo.com/news/former-packer-brett-favre-selling-201434632.html)
+- Apr 23 - [Cybertruck Gets A Down-To-Earth Redesign As Tesla Shifts To Traditional Pickup Marketing Amid Poor Sales (UPDATED)](https://finance.yahoo.com/news/cybertruck-gets-down-earth-redesign-213101515.html)
 - Apr 23 - [Fyre Festival founder says the brand is now for sale, second festival canceled: ‘I can’t risk a repeat.’ Here’s how we got here.](https://www.yahoo.com/news/fyre-festival-founder-says-the-brand-is-now-for-sale-second-festival-canceled-i-cant-risk-a-repeat-heres-how-we-got-here-225555969.html)
+- Apr 23 - [Hegseth spent ‘several thousand dollars’ turning Pentagon room into a make-up studio for his TV spots, report says](https://www.yahoo.com/news/hegseth-spent-several-thousand-dollars-192217107.html)
 - Apr 23 - [A bite from a lion likely led to the demise of a gladiator, new research finds](https://www.yahoo.com/news/bite-lion-likely-led-demise-183603500.html)
-- Apr 23 - [Ford Falcon Emerges From Decades Of Dust to Fetch $247,000 at Auction](https://autos.yahoo.com/ford-falcon-emerges-decades-dust-200005957.html)
+- Apr 23 - [Russian threats against Czech hockey star Hasek unacceptable, Czech PM says](https://www.yahoo.com/news/russian-threats-against-czech-hockey-171252872.html)
 <!-- feed end -->
 
 ### Onstream
