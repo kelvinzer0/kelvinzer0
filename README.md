@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [Putin says Russia has weapons shortages despite beefing up production](https://www.yahoo.com/news/putin-says-russia-lacks-certain-100821644.html)
+- Apr 23 - [Wolfe family sells Buckeye Lake's Journal Island after owning it for more than a century](https://www.yahoo.com/lifestyle/wolfe-family-sells-buckeye-lakes-100441339.html)
+- Apr 23 - [What we know about luxurious South Korean passenger plane at Vero Beach Regional Airport](https://www.yahoo.com/news/know-luxurious-south-korean-passenger-090212764.html)
 - Apr 23 - [Kashmir killings shatter Modi's tourism success in troubled region](https://www.yahoo.com/news/kashmir-killings-shatter-modis-tourism-090155812.html)
-- Apr 23 - [The truth about the ‘chalet girls’ who look after the needs of Europe’s wealthy skiers](https://www.yahoo.com/lifestyle/truth-chalet-girls-look-needs-134247218.html)
-- Apr 23 - [Elon Musk was supposed to work in government as a special employee for 130 days. He just pledged to spend ‘a day or two’ per week for the remainder of Trump’s 4-year term](https://finance.yahoo.com/news/elon-musk-supposed-government-special-074300732.html)
-- Apr 23 - [China EV giant BYD reboots Europe operations after strategic stumbles, sources say](https://finance.yahoo.com/news/exclusive-china-ev-giant-byd-060625631.html)
-- Apr 23 - [BYD unveils new luxury sports car as carmakers vie for attention at China’s largest auto show](https://autos.yahoo.com/byd-unveils-luxury-sports-car-042757433.html)
+- Apr 23 - [The new leader of the Catholic Church will inherit a financial mess that Pope Francis spent much of his reign trying to fix](https://finance.yahoo.com/news/leader-catholic-church-inherit-financial-090000413.html)
 <!-- feed end -->
 
 ### Onstream
