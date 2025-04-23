@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Blasphemy is coming to St. Peter’s Square as Trump tries to hijack Pope Francis’s funeral to feed his ego](https://www.yahoo.com/news/blasphemy-coming-st-peter-square-120005411.html)
-- Apr 23 - [Meet the Monster Stock that Continues to Crush the Market](https://finance.yahoo.com/news/meet-monster-stock-continues-crush-103200303.html)
+- Apr 23 - [West Africa’s bold trade experiment turns 50: an Ecowas report card](https://www.yahoo.com/news/west-africa-bold-trade-experiment-134339829.html)
+- Apr 23 - [The six used Jaguars to buy now before prices rise](https://autos.yahoo.com/six-used-jaguars-buy-now-133000616.html)
 - Apr 23 - [Putin says Russia has weapons shortages despite beefing up production](https://www.yahoo.com/news/putin-says-russia-lacks-certain-100821644.html)
 - Apr 23 - [Kashmir killings shatter Modi's tourism success in troubled region](https://www.yahoo.com/news/kashmir-killings-shatter-modis-tourism-090155812.html)
 - Apr 23 - [The new leader of the Catholic Church will inherit a financial mess that Pope Francis spent much of his reign trying to fix](https://finance.yahoo.com/news/leader-catholic-church-inherit-financial-090000413.html)
