@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Gunmen open fire on tourists in Himalayan region, killing at least 26 people, police say](https://www.yahoo.com/news/gunmen-open-fire-tourists-himalayan-150713773.html)
+- Apr 23 - [Exclusive-China EV giant BYD reboots Europe operations after strategic stumbles, sources say](https://finance.yahoo.com/news/exclusive-china-ev-giant-byd-060625307.html)
+- Apr 23 - [Intel reportedly plans to lay off over 21,000 employees](https://finance.yahoo.com/news/intel-reportedly-plans-lay-off-040842360.html)
 - Apr 23 - [International students stripped of legal status in the US are piling up wins in court](https://www.yahoo.com/news/international-students-stripped-legal-status-040441938.html)
-- Apr 23 - [Over 3,000 evacuations ordered and portion of Garden State Highway is closed as wildfire explodes in New Jersey](https://www.yahoo.com/news/over-3-000-evacuations-ordered-022552620.html)
-- Apr 23 - [Intel to cut over 20% of workforce, Bloomberg News reports](https://finance.yahoo.com/news/intel-cut-over-20-workforce-004251026.html)
-- Apr 23 - [Tourist stabbed inside Las Vegas casino sues for negligence](https://www.yahoo.com/news/tourist-stabbed-inside-las-vegas-002904040.html)
+- Apr 23 - [That was fast! Trump slumps 'Great Depression Month' & rattles MAGA as numbers don't lie](https://www.yahoo.com/news/fast-trump-slumps-great-depression-000400199.html)
+- Apr 22 - [Police seize enough fentanyl ‘to kill everyone in Portland twice,’ arrest 46 in multi-agency trafficking crackdown](https://www.yahoo.com/news/police-seize-enough-fentanyl-kill-233133105.html)
 <!-- feed end -->
 
 ### Onstream
