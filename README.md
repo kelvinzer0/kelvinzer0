@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [Maggie Haberman Dishes On Behind-The-Scenes White House Reaction To Hegseth Chaos](https://www.yahoo.com/news/maggie-haberman-dishes-behind-scenes-162908506.html)
+- Apr 23 - [Sarah Sanders begs her old boss Trump to reconsider after president rejects Arkansas’ request for disaster relief funds](https://www.yahoo.com/news/sarah-sanders-begs-her-old-150513581.html)
 - Apr 23 - [Militants in Indian Kashmir segregate men from women and children before opening fire](https://www.yahoo.com/news/militants-indian-kashmir-segregate-men-151357204.html)
-- Apr 23 - [Trump has mentioned Biden on average six times every day of his presidency as obsession with old foe continues](https://www.yahoo.com/news/trump-mentioned-biden-average-six-145644615.html)
-- Apr 23 - [After 53 Years in Hiding, Teen’s Rare Camaro SS396 Makes Show Debut](https://autos.yahoo.com/53-years-hiding-teen-rare-150013772.html)
+- Apr 23 - [Exploration of WWII shipwreck finds aircraft from legendary battle](https://www.yahoo.com/news/exploration-wwii-shipwreck-finds-aircraft-141450512.html)
 - Apr 23 - [A Magnetar's Birthplace Deepens The Mystery of Its Origins](https://www.yahoo.com/news/magnetars-birthplace-deepens-mystery-origins-130009683.html)
-- Apr 23 - [Prince William Will Attend the Pope's Funeral Since King Charles Isn't Allowed](https://www.yahoo.com/news/prince-william-attend-popes-funeral-120200380.html)
 <!-- feed end -->
 
 ### Onstream
