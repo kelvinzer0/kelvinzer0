@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [WTO warns Trump’s tariffs risk reshaping global trade into two rival blocs](https://www.yahoo.com/news/wto-warns-trump-tariffs-risk-180535426.html)
+- Apr 23 - [Pastor calls for 'full Target boycott' over concerns about diversity, equity, inclusion](https://www.yahoo.com/news/pastor-calls-full-target-boycott-204014858.html)
+- Apr 23 - [Former Packer Brett Favre is selling his massive Mississippi farm estate for $14 million](https://www.yahoo.com/news/former-packer-brett-favre-selling-201434632.html)
 - Apr 23 - [Fyre Festival founder says the brand is now for sale, second festival canceled: ‘I can’t risk a repeat.’ Here’s how we got here.](https://www.yahoo.com/news/fyre-festival-founder-says-the-brand-is-now-for-sale-second-festival-canceled-i-cant-risk-a-repeat-heres-how-we-got-here-225555969.html)
-- Apr 23 - [Videos show woman bypassing part of TSA checkpoint and gate agents to stow away on Delta Air Lines plane](https://www.yahoo.com/news/videos-show-woman-bypassing-part-230906639.html)
-- Apr 23 - [There’s Literally No Way You’ll Get Through Every One Of These Pictures Without Laughing. It’s Just Not Possible.](https://www.yahoo.com/lifestyle/literally-no-way-ll-every-175243946.html)
-- Apr 23 - [I'm retiring in my 30s and will still be a millionaire by 60. Here's how I'm using Coast FIRE to achieve my goal.](https://finance.yahoo.com/news/im-retiring-tech-job-31-170502931.html)
+- Apr 23 - [A bite from a lion likely led to the demise of a gladiator, new research finds](https://www.yahoo.com/news/bite-lion-likely-led-demise-183603500.html)
+- Apr 23 - [Ford Falcon Emerges From Decades Of Dust to Fetch $247,000 at Auction](https://autos.yahoo.com/ford-falcon-emerges-decades-dust-200005957.html)
 <!-- feed end -->
 
 ### Onstream
