@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Maggie Haberman Dishes On Behind-The-Scenes White House Reaction To Hegseth Chaos](https://www.yahoo.com/news/maggie-haberman-dishes-behind-scenes-162908506.html)
-- Apr 23 - [Sarah Sanders begs her old boss Trump to reconsider after president rejects Arkansas’ request for disaster relief funds](https://www.yahoo.com/news/sarah-sanders-begs-her-old-150513581.html)
+- Apr 23 - [I'm retiring in my 30s and will still be a millionaire by 60. Here's how I'm using Coast FIRE to achieve my goal.](https://finance.yahoo.com/news/im-retiring-tech-job-31-170502931.html)
+- Apr 23 - [‘The View’: Whoopi ‘Insulted’ by Trump-Backed $5,000 Baby Bonus Because You ‘Can’t Even Go to the Hospital’ for That](https://www.yahoo.com/entertainment/articles/view-whoopi-insulted-trump-backed-163542509.html)
+- Apr 23 - [US economic output hits 16-month low in April, expectations crater](https://finance.yahoo.com/news/us-economic-output-hits-16-month-low-in-april-expectations-crater-153056832.html)
 - Apr 23 - [Militants in Indian Kashmir segregate men from women and children before opening fire](https://www.yahoo.com/news/militants-indian-kashmir-segregate-men-151357204.html)
-- Apr 23 - [Exploration of WWII shipwreck finds aircraft from legendary battle](https://www.yahoo.com/news/exploration-wwii-shipwreck-finds-aircraft-141450512.html)
 - Apr 23 - [A Magnetar's Birthplace Deepens The Mystery of Its Origins](https://www.yahoo.com/news/magnetars-birthplace-deepens-mystery-origins-130009683.html)
 <!-- feed end -->
 
