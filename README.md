@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [China's Jetour to launch European car sales in third quarter](https://finance.yahoo.com/news/chinas-jetour-launch-vehicle-sales-074537046.html)
-- Apr 23 - [BYD unveils new luxury sports car as carmakers vie for attention at China’s largest auto show](https://autos.yahoo.com/byd-unveils-luxury-sports-car-042757433.html)
+- Apr 23 - [3 High-Yield Stocks Beating the Market Slump That You Can Still Buy Hand Over Fist](https://finance.yahoo.com/news/3-high-yield-stocks-beating-085100237.html)
+- Apr 23 - [China EV giant BYD reboots Europe operations after strategic stumbles, sources say](https://finance.yahoo.com/news/exclusive-china-ev-giant-byd-060625631.html)
+- Apr 23 - [Director of Utah charter school arrested for alleged production, distribution of child pornography](https://www.yahoo.com/news/director-utah-charter-school-arrested-051710025.html)
 - Apr 23 - [International students stripped of legal status in the US are piling up wins in court](https://www.yahoo.com/news/international-students-stripped-legal-status-040441938.html)
-- Apr 23 - [Intel to cut over 20% of workforce, Bloomberg News reports](https://finance.yahoo.com/news/intel-cut-over-20-workforce-004251026.html)
 - Apr 23 - [That was fast! Trump slumps 'Great Depression Month' & rattles MAGA as numbers don't lie](https://www.yahoo.com/news/fast-trump-slumps-great-depression-000400199.html)
 <!-- feed end -->
 
