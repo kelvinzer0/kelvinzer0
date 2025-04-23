@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Protesting Serbian students return after cycling across Europe](https://www.yahoo.com/news/protesting-serbian-students-return-cycling-230010503.html)
-- Apr 22 - [Mayor Brandon Johnson will head to Springfield again, to demand Chicago ‘receives its just due’](https://www.yahoo.com/news/mayor-brandon-johnson-head-springfield-211300247.html)
-- Apr 22 - [29 Tweets That Honestly Saved My Mental Health This Week, And I'm Not Even Exaggerating](https://www.yahoo.com/lifestyle/29-hilarious-tweets-week-because-194544476.html)
-- Apr 22 - [Alabama inmate seeks his execution, saying he believes in 'an eye for an eye'](https://www.yahoo.com/news/alabama-inmate-seeks-execution-saying-190531349.html)
-- Apr 22 - [Jury finds The New York Times did not libel former Alaska Gov. Sarah Palin](https://www.yahoo.com/news/jury-deliberates-whether-york-times-185446974.html)
+- Apr 23 - [Report: US AI companies vulnerable to espionage, sabotage from China | CUOMO](https://www.yahoo.com/news/report-us-ai-companies-vulnerable-011237568.html)
+- Apr 22 - [Extremely Rare Ukrainian Heavy Infantry Fighting Vehicle Appears On Battlefield](https://www.yahoo.com/news/extremely-rare-ukrainian-heavy-infantry-222602801.html)
+- Apr 22 - [13-mile backup on I-90 turns eastbound drive into 4.5-hour nightmare](https://www.yahoo.com/news/13-mile-backup-90-turns-222543268.html)
+- Apr 22 - [‘That ends now’: Judge overseeing Abrego Garcia case knocks Trump administration for repeated stonewalling](https://www.yahoo.com/news/ends-now-judge-overseeing-abrego-221739138.html)
+- Apr 22 - [Man in custody after SWAT standoff in La Jolla neighborhood](https://www.yahoo.com/news/shelter-place-ordered-during-swat-212826568.html)
 <!-- feed end -->
 
 ### Onstream
