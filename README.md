@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [People rush to the street after strong earthquake rocks Turkey](https://www.yahoo.com/news/people-rush-street-strong-earthquake-182129272.html)
-- Apr 23 - [Elon Musk says China wants assurances that magnets for Tesla's humanoid robot won't be used for 'military purposes'](https://finance.yahoo.com/news/elon-musk-says-china-wants-175700361.html)
+- Apr 23 - [WTO warns Trump’s tariffs risk reshaping global trade into two rival blocs](https://www.yahoo.com/news/wto-warns-trump-tariffs-risk-180535426.html)
+- Apr 23 - [Fyre Festival founder says the brand is now for sale, second festival canceled: ‘I can’t risk a repeat.’ Here’s how we got here.](https://www.yahoo.com/news/fyre-festival-founder-says-the-brand-is-now-for-sale-second-festival-canceled-i-cant-risk-a-repeat-heres-how-we-got-here-225555969.html)
+- Apr 23 - [Videos show woman bypassing part of TSA checkpoint and gate agents to stow away on Delta Air Lines plane](https://www.yahoo.com/news/videos-show-woman-bypassing-part-230906639.html)
+- Apr 23 - [There’s Literally No Way You’ll Get Through Every One Of These Pictures Without Laughing. It’s Just Not Possible.](https://www.yahoo.com/lifestyle/literally-no-way-ll-every-175243946.html)
 - Apr 23 - [I'm retiring in my 30s and will still be a millionaire by 60. Here's how I'm using Coast FIRE to achieve my goal.](https://finance.yahoo.com/news/im-retiring-tech-job-31-170502931.html)
-- Apr 23 - [Moscow hit by triple explosions](https://www.yahoo.com/news/moscow-hit-triple-explosions-170132076.html)
-- Apr 23 - [Sarah Sanders begs her old boss Trump to reconsider after president rejects Arkansas’ request for disaster relief funds](https://www.yahoo.com/news/sarah-sanders-begs-her-old-150513581.html)
 <!-- feed end -->
 
 ### Onstream
