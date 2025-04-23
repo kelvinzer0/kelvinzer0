@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [RFK Jr again claims autism is ‘worse’ than Covid, which he has emphasized killed ‘old people’](https://www.yahoo.com/news/rfk-jr-again-claims-autism-032144204.html)
-- Apr 22 - [13-mile backup on I-90 turns eastbound drive into 4.5-hour nightmare](https://www.yahoo.com/news/13-mile-backup-90-turns-222543268.html)
-- Apr 22 - [‘That ends now’: Judge overseeing Abrego Garcia case knocks Trump administration for repeated stonewalling](https://www.yahoo.com/news/ends-now-judge-overseeing-abrego-221739138.html)
-- Apr 22 - [Ukraine presses for ceasefire as Russia reported to offer concession](https://www.yahoo.com/news/ukraine-presses-ceasefire-russia-reported-202212864.html)
-- Apr 22 - [29 Tweets That Honestly Saved My Mental Health This Week, And I'm Not Even Exaggerating](https://www.yahoo.com/lifestyle/29-hilarious-tweets-week-because-194544476.html)
+- Apr 23 - [Gunmen open fire on tourists in Himalayan region, killing at least 26 people, police say](https://www.yahoo.com/news/gunmen-open-fire-tourists-himalayan-150713773.html)
+- Apr 23 - [International students stripped of legal status in the US are piling up wins in court](https://www.yahoo.com/news/international-students-stripped-legal-status-040441938.html)
+- Apr 23 - [Over 3,000 evacuations ordered and portion of Garden State Highway is closed as wildfire explodes in New Jersey](https://www.yahoo.com/news/over-3-000-evacuations-ordered-022552620.html)
+- Apr 23 - [Intel to cut over 20% of workforce, Bloomberg News reports](https://finance.yahoo.com/news/intel-cut-over-20-workforce-004251026.html)
+- Apr 23 - [Tourist stabbed inside Las Vegas casino sues for negligence](https://www.yahoo.com/news/tourist-stabbed-inside-las-vegas-002904040.html)
 <!-- feed end -->
 
 ### Onstream
