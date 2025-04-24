@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Suspected drunk driver brought up on criminal child endangerment charge](https://www.yahoo.com/news/suspected-drunk-driver-brought-criminal-130100593.html)
-- Apr 24 - [US Economy: Jobless Claims Stable, Durable Goods Orders Surge](https://finance.yahoo.com/video/us-economy-jobless-claims-stable-125303078.html)
-- Apr 24 - [‘An enormous use of city resources’: How the city of Boca Raton really feels about Boca Bash](https://www.yahoo.com/news/enormous-city-resources-city-boca-124616831.html)
+- Apr 24 - [Morgan Stanley to sell final $1.2 billion of X debt, Bloomberg News reports](https://finance.yahoo.com/news/morgan-stanley-sell-final-1-134939905.html)
+- Apr 24 - [Superstar Jelly Roll gets pardon recommendation from the Tennessee parole board](https://www.yahoo.com/news/superstar-jelly-roll-gets-pardon-133959427.html)
+- Apr 24 - [I’m 24, earning my first steady salary, and considering two paths: Max out my IRA or save for a house.](https://finance.yahoo.com/news/m-24-earning-first-steady-133000185.html)
 - Apr 24 - [Lebanon reprimands Iran envoy over comments on Hezbollah disarmament](https://www.yahoo.com/news/lebanon-reprimands-iran-envoy-over-124139135.html)
-- Apr 24 - [India and Pakistan closer to conflict over Kashmir attack as tit-for-tat moves mount](https://www.yahoo.com/news/modi-vows-pursue-terrorists-ends-091010909.html)
+- Apr 24 - [Scientists make unexpected discovery about health impacts of common recreation equipment: 'The first reliable data'](https://www.yahoo.com/news/scientists-unexpected-discovery-health-impacts-104517979.html)
 <!-- feed end -->
 
 ### Onstream
