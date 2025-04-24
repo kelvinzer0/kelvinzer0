@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 24 - [Ants are at the centre of a new crime ring threatening Europe: ‘It’s like cocaine’](https://www.yahoo.com/news/ants-centre-crime-ring-threatening-154024176.html)
 - Apr 24 - [OUCH! Fox News Viewers Get An Uncomfortable Truth About Trump On Live TV](https://www.yahoo.com/news/ouch-fox-news-viewers-uncomfortable-034138293.html)
 - Apr 24 - [Doctors Are Revealing The "Small" Health Issues People Ignore That Are Actually Serious](https://www.yahoo.com/lifestyle/doctors-revealing-small-health-issues-023102277.html)
 - Apr 24 - [Elon Musk makes stunning claim after Tesla profits plummet: 'If the ship of America goes down, Tesla will go with it'](https://www.yahoo.com/news/elon-musk-makes-stunning-claim-012500637.html)
-- Apr 23 - [MAGA ‘Red Scare’: Trump rebuked by judge for anti free speech order, after big SCOTUS loss](https://www.yahoo.com/news/maga-red-scare-trump-rebuked-234500867.html)
-- Apr 23 - [Passenger removed from Seattle plane after making ‘inappropriate comment’](https://www.yahoo.com/news/passenger-removed-seattle-plane-making-225701726.html)
+- Apr 24 - [Hidden magma cap discovered at Yellowstone National Park](https://www.yahoo.com/news/hidden-magma-cap-discovered-yellowstone-002441355.html)
 <!-- feed end -->
 
 ### Onstream
