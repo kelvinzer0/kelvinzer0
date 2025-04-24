@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [The Department of Justice under President Trump is failing our country | Opinion](https://www.yahoo.com/news/department-justice-under-president-trump-113053647.html)
-- Apr 24 - [Mortgage and refinance interest rates today, April 24, 2025: Fixed interest rates fall](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-april-24-2025-100040205.html)
-- Apr 24 - [Moscow calls Japanese loan to Ukraine backed by frozen Russian assets 'theft'](https://www.yahoo.com/news/moscow-slams-treacherous-japanese-loan-095603388.html)
-- Apr 24 - [Pakistan closes air space for Indian airlines, warns against water treaty violation](https://www.yahoo.com/news/india-calls-party-meet-summons-040808361.html)
-- Apr 24 - [Alabama to execute a man who said he's guilty of rape and murder and deserves to die](https://www.yahoo.com/news/alabama-execute-man-said-hes-040303262.html)
+- Apr 24 - [Suspected drunk driver brought up on criminal child endangerment charge](https://www.yahoo.com/news/suspected-drunk-driver-brought-criminal-130100593.html)
+- Apr 24 - [US Economy: Jobless Claims Stable, Durable Goods Orders Surge](https://finance.yahoo.com/video/us-economy-jobless-claims-stable-125303078.html)
+- Apr 24 - [‘An enormous use of city resources’: How the city of Boca Raton really feels about Boca Bash](https://www.yahoo.com/news/enormous-city-resources-city-boca-124616831.html)
+- Apr 24 - [Lebanon reprimands Iran envoy over comments on Hezbollah disarmament](https://www.yahoo.com/news/lebanon-reprimands-iran-envoy-over-124139135.html)
+- Apr 24 - [India and Pakistan closer to conflict over Kashmir attack as tit-for-tat moves mount](https://www.yahoo.com/news/modi-vows-pursue-terrorists-ends-091010909.html)
 <!-- feed end -->
 
 ### Onstream
