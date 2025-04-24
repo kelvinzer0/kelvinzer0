@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Month-old clip of Bangkok skyscraper collapse resurfaces after tremors in Chiang Mai](https://www.yahoo.com/news/month-old-clip-bangkok-skyscraper-083304969.html)
+- Apr 24 - [Severe Storms Set To Take Aim At Plains, Midwest Next Week](https://www.yahoo.com/news/severe-storms-set-aim-plains-100108844.html)
+- Apr 24 - [Unilever beats estimates, driven by price hikes and demand](https://finance.yahoo.com/video/unilever-beats-estimates-driven-price-093856612.html)
+- Apr 24 - [Switch 2 Preorders Are Live And Pure Chaos](https://tech.yahoo.com/gaming/articles/switch-2-preorders-live-pure-052500937.html)
 - Apr 24 - [OUCH! Fox News Viewers Get An Uncomfortable Truth About Trump On Live TV](https://www.yahoo.com/news/ouch-fox-news-viewers-uncomfortable-034138293.html)
 - Apr 24 - ["The Damage Is Irreversible." Doctors And Nurses Are Revealing The "Small" Health Signs That People Should Never, Ever Ignore](https://www.yahoo.com/lifestyle/doctors-revealing-small-health-issues-023102277.html)
-- Apr 24 - [Elon Musk makes stunning claim after Tesla profits plummet: 'If the ship of America goes down, Tesla will go with it'](https://www.yahoo.com/news/elon-musk-makes-stunning-claim-012500637.html)
-- Apr 23 - [Parents file lawsuit in Piedmont Cybertruck crash that killed 3 college students](https://www.yahoo.com/news/parents-file-lawsuit-piedmont-cybertruck-221210016.html)
 <!-- feed end -->
 
 ### Onstream
