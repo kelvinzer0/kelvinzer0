@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Resale housing market stalls as mortgage rates drive steepest monthly sales decline since 2022](https://finance.yahoo.com/news/resale-housing-market-stalls-as-mortgage-rates-drive-steepest-monthly-sales-decline-since-2022-145846576.html)
-- Apr 24 - [Airlines must focus on 'self-help' amid tariff woes](https://finance.yahoo.com/video/airlines-must-focus-self-help-144253076.html)
-- Apr 24 - [Man killed after 'long-standing grudge' - jury told](https://www.yahoo.com/news/man-killed-long-standing-grudge-142024939.html)
-- Apr 24 - [China says Trump's trade optimism is all talk](https://www.yahoo.com/news/china-says-trumps-trade-optimism-141541300.html)
-- Apr 24 - [Superstar Jelly Roll gets pardon recommendation from the Tennessee parole board](https://www.yahoo.com/news/superstar-jelly-roll-gets-pardon-133959427.html)
+- Apr 24 - [Southwest CEO on Trump admin., pulled outlook, no more free bags](https://finance.yahoo.com/video/southwest-ceo-trump-admin-pulled-155215115.html)
+- Apr 24 - [What to know about common heart defect as Emma Willis undergoes surgery](https://www.yahoo.com/lifestyle/hole-heart-defect-emma-willis-surgery-151713759.html)
+- Apr 24 - [Scientists make unexpected discovery about health impacts of common recreation equipment: 'The first reliable data'](https://www.yahoo.com/news/scientists-unexpected-discovery-health-impacts-104517979.html)
+- Apr 24 - [Australian identical twins speak in unison during interview about alleged crime](https://www.yahoo.com/news/australian-identical-twins-speak-unison-101406475.html)
+- Apr 24 - [Mortgage and refinance interest rates today, April 24, 2025: Fixed interest rates fall](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-april-24-2025-100040205.html)
 <!-- feed end -->
 
 ### Onstream
