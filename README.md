@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [My aunts survived the Holocaust. Now, we must do more than say 'never again.' | Opinion](https://www.yahoo.com/news/aunts-survived-holocaust-now-must-100245408.html)
+- Apr 24 - [The Department of Justice under President Trump is failing our country | Opinion](https://www.yahoo.com/news/department-justice-under-president-trump-113053647.html)
+- Apr 24 - [Mortgage and refinance interest rates today, April 24, 2025: Fixed interest rates fall](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-april-24-2025-100040205.html)
+- Apr 24 - [Moscow calls Japanese loan to Ukraine backed by frozen Russian assets 'theft'](https://www.yahoo.com/news/moscow-slams-treacherous-japanese-loan-095603388.html)
+- Apr 24 - [Pakistan closes air space for Indian airlines, warns against water treaty violation](https://www.yahoo.com/news/india-calls-party-meet-summons-040808361.html)
 - Apr 24 - [Alabama to execute a man who said he's guilty of rape and murder and deserves to die](https://www.yahoo.com/news/alabama-execute-man-said-hes-040303262.html)
-- Apr 24 - [OUCH! Fox News Viewers Get An Uncomfortable Truth About Trump On Live TV](https://www.yahoo.com/news/ouch-fox-news-viewers-uncomfortable-034138293.html)
-- Apr 24 - [Attorney general directs Justice Department employees to enforce policies targeting care for transgender minors](https://www.yahoo.com/news/attorney-general-directs-justice-department-024323033.html)
-- Apr 24 - ["The Damage Is Irreversible." Doctors And Nurses Are Revealing The "Small" Health Signs That People Should Never, Ever Ignore](https://www.yahoo.com/lifestyle/doctors-revealing-small-health-issues-023102277.html)
 <!-- feed end -->
 
 ### Onstream
