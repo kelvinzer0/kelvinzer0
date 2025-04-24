@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Morgan Stanley to sell final $1.2 billion of X debt, Bloomberg News reports](https://finance.yahoo.com/news/morgan-stanley-sell-final-1-134939905.html)
+- Apr 24 - [Resale housing market stalls as mortgage rates drive steepest monthly sales decline since 2022](https://finance.yahoo.com/news/resale-housing-market-stalls-as-mortgage-rates-drive-steepest-monthly-sales-decline-since-2022-145846576.html)
+- Apr 24 - [Airlines must focus on 'self-help' amid tariff woes](https://finance.yahoo.com/video/airlines-must-focus-self-help-144253076.html)
+- Apr 24 - [Man killed after 'long-standing grudge' - jury told](https://www.yahoo.com/news/man-killed-long-standing-grudge-142024939.html)
+- Apr 24 - [China says Trump's trade optimism is all talk](https://www.yahoo.com/news/china-says-trumps-trade-optimism-141541300.html)
 - Apr 24 - [Superstar Jelly Roll gets pardon recommendation from the Tennessee parole board](https://www.yahoo.com/news/superstar-jelly-roll-gets-pardon-133959427.html)
-- Apr 24 - [I’m 24, earning my first steady salary, and considering two paths: Max out my IRA or save for a house.](https://finance.yahoo.com/news/m-24-earning-first-steady-133000185.html)
-- Apr 24 - [Lebanon reprimands Iran envoy over comments on Hezbollah disarmament](https://www.yahoo.com/news/lebanon-reprimands-iran-envoy-over-124139135.html)
-- Apr 24 - [Scientists make unexpected discovery about health impacts of common recreation equipment: 'The first reliable data'](https://www.yahoo.com/news/scientists-unexpected-discovery-health-impacts-104517979.html)
 <!-- feed end -->
 
 ### Onstream
