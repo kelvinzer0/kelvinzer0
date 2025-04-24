@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [White House Faith Office Leader Says 'It’s Not Hard' For Wives To 'Submit' To Husbands](https://www.yahoo.com/news/white-house-faith-office-leader-185900059.html)
-- Apr 24 - [Two from search group that uncovered Mexico's 'ranch of horror' killed](https://www.yahoo.com/news/two-search-group-uncovered-mexicos-181217043.html)
-- Apr 24 - [Police looking for suspect after assault at Breckenridge Ski Resort](https://www.yahoo.com/news/police-looking-suspect-assault-breckenridge-180143564.html)
-- Apr 24 - [Donald Trump's "Objectively Embarrassing And Hilarious" Message To Vladimir Putin Is Now A Meme](https://www.yahoo.com/lifestyle/donald-trumps-two-word-message-175649073.html)
-- Apr 24 - [She was diagnosed with ALS in her 40s. Here's what she wants you to know about living with the 'bankruptcy disease'](https://www.yahoo.com/lifestyle/she-was-diagnosed-with-als-in-her-40s-heres-what-she-wants-you-to-know-about-living-with-the-bankruptcy-disease-172425264.html)
+- Apr 24 - [Smoke From New Jersey Wildfires Sweeps Over New York City](https://www.yahoo.com/news/smoke-jersey-wildfires-sweeps-over-222156235.html)
+- Apr 24 - [Intel mandates four days in the office](https://finance.yahoo.com/news/intel-mandates-four-days-office-212658701.html)
+- Apr 24 - [Purdue Boilermaker Special involved in fatal accident on U.S. 52](https://www.yahoo.com/news/purdue-boilermaker-special-involved-fatal-212123952.html)
+- Apr 24 - [When will mortgage interest rates go down to 4%?](https://finance.yahoo.com/personal-finance/mortgages/article/when-will-mortgage-rates-go-down-to-4-203022472.html)
+- Apr 24 - [A wrong turn onto a bridge at the US-Canada border has a Detroit woman facing deportation](https://www.yahoo.com/news/wrong-turn-onto-bridge-us-194230912.html)
 <!-- feed end -->
 
 ### Onstream
