@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 24 - [Jack Mallers Leads Twenty One to Rival Michael Saylor's Strategy](https://finance.yahoo.com/video/jack-mallers-leads-twenty-one-195541845.html)
-- Apr 24 - [Paramount Shareholder Mario Gabelli Seeks ‘More Equitable Distribution’ of Shari Redstone’s Payout in Skydance Merger](https://finance.yahoo.com/news/paramount-shareholder-mario-gabelli-seeks-194758274.html)
 - Apr 24 - [A wrong turn onto a bridge at the US-Canada border has a Detroit woman facing deportation](https://www.yahoo.com/news/wrong-turn-onto-bridge-us-194230912.html)
 - Apr 24 - [Two from search group that uncovered Mexico's 'ranch of horror' killed](https://www.yahoo.com/news/two-search-group-uncovered-mexicos-181217043.html)
 - Apr 24 - [Donald Trump's "Objectively Embarrassing And Hilarious" Message To Vladimir Putin Is Now A Meme](https://www.yahoo.com/lifestyle/donald-trumps-two-word-message-175649073.html)
+- Apr 24 - [She was diagnosed with ALS in her 40s. Here's what she wants you to know about living with the 'bankruptcy disease'](https://www.yahoo.com/lifestyle/she-was-diagnosed-with-als-in-her-40s-heres-what-she-wants-you-to-know-about-living-with-the-bankruptcy-disease-172425264.html)
 <!-- feed end -->
 
 ### Onstream
