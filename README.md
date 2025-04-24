@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Severe Storms Set To Take Aim At Plains, Midwest Next Week](https://www.yahoo.com/news/severe-storms-set-aim-plains-100108844.html)
-- Apr 24 - [Unilever beats estimates, driven by price hikes and demand](https://finance.yahoo.com/video/unilever-beats-estimates-driven-price-093856612.html)
-- Apr 24 - [Switch 2 Preorders Are Live And Pure Chaos](https://tech.yahoo.com/gaming/articles/switch-2-preorders-live-pure-052500937.html)
+- Apr 24 - [My aunts survived the Holocaust. Now, we must do more than say 'never again.' | Opinion](https://www.yahoo.com/news/aunts-survived-holocaust-now-must-100245408.html)
+- Apr 24 - [Alabama to execute a man who said he's guilty of rape and murder and deserves to die](https://www.yahoo.com/news/alabama-execute-man-said-hes-040303262.html)
 - Apr 24 - [OUCH! Fox News Viewers Get An Uncomfortable Truth About Trump On Live TV](https://www.yahoo.com/news/ouch-fox-news-viewers-uncomfortable-034138293.html)
+- Apr 24 - [Attorney general directs Justice Department employees to enforce policies targeting care for transgender minors](https://www.yahoo.com/news/attorney-general-directs-justice-department-024323033.html)
 - Apr 24 - ["The Damage Is Irreversible." Doctors And Nurses Are Revealing The "Small" Health Signs That People Should Never, Ever Ignore](https://www.yahoo.com/lifestyle/doctors-revealing-small-health-issues-023102277.html)
 <!-- feed end -->
 
