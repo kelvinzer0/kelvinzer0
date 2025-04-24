@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 24 - [Month-old clip of Bangkok skyscraper collapse resurfaces after tremors in Chiang Mai](https://www.yahoo.com/news/month-old-clip-bangkok-skyscraper-083304969.html)
 - Apr 24 - [OUCH! Fox News Viewers Get An Uncomfortable Truth About Trump On Live TV](https://www.yahoo.com/news/ouch-fox-news-viewers-uncomfortable-034138293.html)
 - Apr 24 - ["The Damage Is Irreversible." Doctors And Nurses Are Revealing The "Small" Health Signs That People Should Never, Ever Ignore](https://www.yahoo.com/lifestyle/doctors-revealing-small-health-issues-023102277.html)
 - Apr 24 - [Elon Musk makes stunning claim after Tesla profits plummet: 'If the ship of America goes down, Tesla will go with it'](https://www.yahoo.com/news/elon-musk-makes-stunning-claim-012500637.html)
-- Apr 23 - [Passenger removed from Seattle plane after making ‘inappropriate comment’](https://www.yahoo.com/news/passenger-removed-seattle-plane-making-225701726.html)
-- Apr 23 - [Nvidia supplier SK Hynix logs bumper Q1, sees limited tariff impact on AI chips](https://finance.yahoo.com/news/nvidia-supplier-sk-hynixs-q1-225203847.html)
+- Apr 23 - [Parents file lawsuit in Piedmont Cybertruck crash that killed 3 college students](https://www.yahoo.com/news/parents-file-lawsuit-piedmont-cybertruck-221210016.html)
 <!-- feed end -->
 
 ### Onstream
