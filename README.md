@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [American Airlines flight crew let passenger die while others disembarked, family says](https://www.yahoo.com/news/american-airlines-flight-attendants-let-195049251.html)
-- Apr 23 - [Videos show woman bypassing part of TSA checkpoint and gate agents to stow away on Delta Air Lines plane](https://www.yahoo.com/news/videos-show-woman-bypassing-part-230906639.html)
-- Apr 23 - [Explorers at WWII shipwreck find aircraft from legendary battle](https://www.yahoo.com/news/exploration-wwii-shipwreck-finds-aircraft-141450512.html)
-- Apr 23 - [This Is What Happens to Your Body When You Eat Blueberries Every Day](https://www.yahoo.com/lifestyle/happens-body-eat-blueberries-every-180100641.html)
-- Apr 23 - [“The View ”audience gasps as cohost asks 'isn't something better than nothing?' over Trump's $5,000 'baby bonus'](https://www.yahoo.com/entertainment/articles/view-audience-gasps-cohost-asks-175851655.html)
+- Apr 24 - [Nuclear waste haunts Missouri community, but cleanup is far from over](https://www.yahoo.com/news/nuclear-waste-haunts-missouri-community-001342855.html)
+- Apr 24 - [New Views Of China’s Next Generation Fighters](https://www.yahoo.com/news/views-china-next-generation-fighters-000510271.html)
+- Apr 23 - [Nvidia supplier SK Hynix's Q1 profit soars, flags H2 demand risks from tariffs](https://finance.yahoo.com/news/nvidia-supplier-sk-hynixs-q1-225203847.html)
+- Apr 23 - [DOGE loses its biggest advocate as Musk exits Washington](https://www.yahoo.com/news/doge-loses-biggest-advocate-musk-210142304.html)
+- Apr 23 - [Man dies after concrete truck falls onto him in Northern Kentucky, sheriff's office says](https://www.yahoo.com/news/man-dies-concrete-truck-falls-202633145.html)
 <!-- feed end -->
 
 ### Onstream
