@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Nuclear waste haunts Missouri community, but cleanup is far from over](https://www.yahoo.com/news/nuclear-waste-haunts-missouri-community-001342855.html)
-- Apr 24 - [New Views Of China’s Next Generation Fighters](https://www.yahoo.com/news/views-china-next-generation-fighters-000510271.html)
+- Apr 24 - [$635 Million Liquidated in 24 Hours as Bitcoin Surpasses $94,000, Fueling Predictions of a $100,000 Short Squeeze](https://finance.yahoo.com/news/635-million-liquidated-24-hours-011112333.html)
+- Apr 24 - [Hidden magma cap discovered at Yellowstone National Park](https://www.yahoo.com/news/hidden-magma-cap-discovered-yellowstone-002441355.html)
+- Apr 23 - [MAGA ‘Red Scare’: Trump rebuked by judge for anti free speech order, after big SCOTUS loss](https://www.yahoo.com/news/maga-red-scare-trump-rebuked-234500867.html)
 - Apr 23 - [Nvidia supplier SK Hynix's Q1 profit soars, flags H2 demand risks from tariffs](https://finance.yahoo.com/news/nvidia-supplier-sk-hynixs-q1-225203847.html)
-- Apr 23 - [DOGE loses its biggest advocate as Musk exits Washington](https://www.yahoo.com/news/doge-loses-biggest-advocate-musk-210142304.html)
-- Apr 23 - [Man dies after concrete truck falls onto him in Northern Kentucky, sheriff's office says](https://www.yahoo.com/news/man-dies-concrete-truck-falls-202633145.html)
+- Apr 23 - [Fyre Festival founder says the brand is now for sale, second festival canceled: ‘I can’t risk a repeat.’ Here’s how we got here.](https://www.yahoo.com/news/fyre-festival-founder-says-the-brand-is-now-for-sale-second-festival-canceled-i-cant-risk-a-repeat-heres-how-we-got-here-225555969.html)
 <!-- feed end -->
 
 ### Onstream
