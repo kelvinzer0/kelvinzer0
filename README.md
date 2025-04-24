@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Southwest CEO on Trump admin., pulled outlook, no more free bags](https://finance.yahoo.com/video/southwest-ceo-trump-admin-pulled-155215115.html)
-- Apr 24 - [What to know about common heart defect as Emma Willis undergoes surgery](https://www.yahoo.com/lifestyle/hole-heart-defect-emma-willis-surgery-151713759.html)
+- Apr 24 - [I'm Entirely Convinced That The World Is Getting Dumber And Dumber And These 55 People Are All The Proof I Need](https://www.yahoo.com/entertainment/articles/im-entirely-convinced-world-getting-162350910.html)
 - Apr 24 - [Scientists make unexpected discovery about health impacts of common recreation equipment: 'The first reliable data'](https://www.yahoo.com/news/scientists-unexpected-discovery-health-impacts-104517979.html)
+- Apr 24 - [Scientists capture emotional footage of predator returning to fire-ravaged forest: 'Means everything to me'](https://www.yahoo.com/lifestyle/scientists-capture-emotional-footage-predator-104509674.html)
 - Apr 24 - [Australian identical twins speak in unison during interview about alleged crime](https://www.yahoo.com/news/australian-identical-twins-speak-unison-101406475.html)
 - Apr 24 - [Mortgage and refinance interest rates today, April 24, 2025: Fixed interest rates fall](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-april-24-2025-100040205.html)
 <!-- feed end -->
