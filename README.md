@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Trump's 'Vladimir, STOP!' Plea Is Making People Face-Palm On Social Media](https://www.yahoo.com/news/trumps-vladimir-stop-plea-making-173737640.html)
+- Apr 24 - [Donald Trump's Two-Word Message To Vladimir Putin Is Now A Hilarious Meme](https://www.yahoo.com/lifestyle/donald-trumps-two-word-message-175649073.html)
 - Apr 24 - [She was diagnosed with ALS in her 40s. Here's what she wants you to know about living with the 'bankruptcy disease'](https://www.yahoo.com/lifestyle/she-was-diagnosed-with-als-in-her-40s-heres-what-she-wants-you-to-know-about-living-with-the-bankruptcy-disease-172425264.html)
-- Apr 24 - [Pope Francis' 'Eyes Were Open' in His Final Moments but He Was Comatose and Doctor Didn't Want to Risk Hospital Trip](https://www.yahoo.com/entertainment/articles/pope-francis-eyes-were-open-165120639.html)
 - Apr 24 - [I'm Entirely Convinced That The World Is Getting Dumber And Dumber And These 55 People Are All The Proof I Need](https://www.yahoo.com/entertainment/articles/im-entirely-convinced-world-getting-162350910.html)
 - Apr 24 - [My Lungs Are Physically Sore From Laughing So Hard At These 19 Hilarious Black Twitter Tweets From The Week](https://www.yahoo.com/lifestyle/lungs-physically-sore-laughing-hard-160216427.html)
+- Apr 24 - [Your iPhone Has 23 Settings That Could Make Your Life Way Easier](https://tech.yahoo.com/phones/articles/most-iphone-users-miss-ios-110016132.html)
 <!-- feed end -->
 
 ### Onstream
