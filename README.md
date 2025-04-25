@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [The CIA chief’s son who defected to fight for Russia](https://www.yahoo.com/news/cia-chief-son-defected-fight-153710558.html)
+- Apr 25 - [Late Ford CEO Don Petersen's Bloomfield Hills home opens for estate sale April 25](https://www.yahoo.com/lifestyle/ford-ceo-don-petersens-bloomfield-171643362.html)
+- Apr 25 - [Sarah Ferguson Unveils New Pics with Her Daughters & Their Body Language Is So Telling](https://www.yahoo.com/news/sarah-ferguson-unveils-pics-her-170015331.html)
 - Apr 25 - [FBI arrests Wisconsin Judge Hannah Dugan for allegedly obstructing ICE agents, Director Kash Patel says](https://www.yahoo.com/news/fbi-arrests-wisconsin-judge-hannah-dugan-for-allegedly-obstructing-ice-agents-director-kash-patel-says-151824813.html)
-- Apr 25 - [Matt Gaetz visited El Salvador’s mega-prison and saw people drained of hope. He then pitched it to Stephen Miller](https://www.yahoo.com/news/matt-gaetz-visited-el-salvador-154733033.html)
-- Apr 25 - [This university in Massachusetts was just named a 'new Ivy' by Forbes. See where.](https://www.yahoo.com/news/university-massachusetts-just-named-ivy-151625357.html)
+- Apr 25 - [Trump-appointed head of National Science Foundation resigns: ‘I have done all I can’](https://www.yahoo.com/news/trump-appointed-head-national-science-155953622.html)
 - Apr 25 - [Milwaukee Judge Hannah Dugan is accused of helping a man evade immigration agents and is arrested](https://www.yahoo.com/news/fbi-director-says-judge-accused-145241795.html)
 <!-- feed end -->
 
