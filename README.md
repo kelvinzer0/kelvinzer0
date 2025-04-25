@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Luigi Mangione heads to court to face federal charges as prosecutors file notice they’ll seek death penalty](https://www.yahoo.com/news/luigi-mangione-heads-court-face-051724443.html)
-- Apr 25 - [Construction of world’s tallest abandoned skyscraper to resume after a decade](https://www.yahoo.com/news/construction-world-tallest-abandoned-skyscraper-021511942.html)
 - Apr 25 - [2 people arrested for illegal dumping in far East El Paso](https://www.yahoo.com/news/2-people-arrested-illegal-dumping-004320711.html)
+- Apr 24 - ['Move?!’ Stopping MAGA means taking this bold step, say activists](https://www.yahoo.com/news/move-stopping-maga-means-taking-233412435.html)
 - Apr 24 - [Intel CEO unveils major workplace overhaul to boost innovation, slams 'suffocating' bureaucracy](https://finance.yahoo.com/news/intel-ceo-unveils-major-workplace-overhaul-to-boost-innovation-slams-suffocating-bureaucracy-225021190.html)
 - Apr 24 - [Florida Senate's Democratic leader says the state party is dead and he's leaving it](https://www.yahoo.com/news/florida-senates-democratic-leader-says-223024680.html)
+- Apr 24 - [Trump pardons Nevada politician who paid for cosmetic surgery with funds to honor a slain officer](https://www.yahoo.com/news/trump-pardons-nevada-politician-paid-221954189.html)
 <!-- feed end -->
 
 ### Onstream
