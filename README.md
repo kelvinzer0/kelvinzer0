@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - [The CIA chief’s son who defected to fight for Russia](https://www.yahoo.com/news/cia-chief-son-defected-fight-153710558.html)
 - Apr 25 - [FBI arrests Wisconsin Judge Hannah Dugan for allegedly obstructing ICE agents, Director Kash Patel says](https://www.yahoo.com/news/fbi-arrests-wisconsin-judge-hannah-dugan-for-allegedly-obstructing-ice-agents-director-kash-patel-says-151824813.html)
 - Apr 25 - [Matt Gaetz visited El Salvador’s mega-prison and saw people drained of hope. He then pitched it to Stephen Miller](https://www.yahoo.com/news/matt-gaetz-visited-el-salvador-154733033.html)
-- Apr 25 - [US 'will have to start' US–China trade de-escalation, expert says](https://finance.yahoo.com/video/us-start-us-china-trade-153605914.html)
-- Apr 25 - [Magazine Cover Puts A World Of Hurt On Trump's First 100 Days](https://www.yahoo.com/news/magazine-cover-puts-world-hurt-114141783.html)
-- Apr 25 - [13 injured, two critical after Lansing street race ends in crash](https://www.yahoo.com/news/13-injured-two-critical-lansing-113139525.html)
+- Apr 25 - [This university in Massachusetts was just named a 'new Ivy' by Forbes. See where.](https://www.yahoo.com/news/university-massachusetts-just-named-ivy-151625357.html)
+- Apr 25 - [Milwaukee Judge Hannah Dugan is accused of helping a man evade immigration agents and is arrested](https://www.yahoo.com/news/fbi-director-says-judge-accused-145241795.html)
 <!-- feed end -->
 
 ### Onstream
