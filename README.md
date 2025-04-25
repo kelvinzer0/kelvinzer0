@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Late Ford CEO Don Petersen's Bloomfield Hills home opens for estate sale April 25](https://www.yahoo.com/lifestyle/ford-ceo-don-petersens-bloomfield-171643362.html)
-- Apr 25 - [Sarah Ferguson Unveils New Pics with Her Daughters & Their Body Language Is So Telling](https://www.yahoo.com/news/sarah-ferguson-unveils-pics-her-170015331.html)
-- Apr 25 - [FBI arrests Wisconsin Judge Hannah Dugan for allegedly obstructing ICE agents, Director Kash Patel says](https://www.yahoo.com/news/fbi-arrests-wisconsin-judge-hannah-dugan-for-allegedly-obstructing-ice-agents-director-kash-patel-says-151824813.html)
-- Apr 25 - [Trump-appointed head of National Science Foundation resigns: ‘I have done all I can’](https://www.yahoo.com/news/trump-appointed-head-national-science-155953622.html)
-- Apr 25 - [Milwaukee Judge Hannah Dugan is accused of helping a man evade immigration agents and is arrested](https://www.yahoo.com/news/fbi-director-says-judge-accused-145241795.html)
+- Apr 25 - [Novo Nordisk wins case to kick knockoff Ozempic off the market, but it may not last](https://finance.yahoo.com/news/novo-nordisk-wins-case-to-kick-knockoff-ozempic-off-the-market-but-it-may-not-last-184547572.html)
+- Apr 25 - [Tariff Uncertainty Weighs on US Car Market](https://finance.yahoo.com/video/tariff-uncertainty-weighs-us-car-184350384.html)
+- Apr 25 - [How PayPal Plans to Bring 400M Users to Crypto](https://finance.yahoo.com/video/paypal-plans-bring-400m-users-180005389.html)
+- Apr 25 - [Cardinals to seal Pope Francis’ coffin, formally ending his lying in state at the Vatican](https://www.yahoo.com/news/cardinals-seal-pope-francis-coffin-175654398.html)
+- Apr 25 - [Severe storms with monster hail, high winds and tornadoes to rock central US into early May](https://www.yahoo.com/news/severe-storms-monster-hail-high-174850159.html)
 <!-- feed end -->
 
 ### Onstream
