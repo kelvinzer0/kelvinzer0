@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [A mild, 'garden-variety recession' is coming, economist says](https://finance.yahoo.com/video/mild-garden-variety-recession-coming-103005099.html)
-- Apr 25 - [Arbor Day 2025: What to know about the holiday celebrating trees](https://www.yahoo.com/lifestyle/arbor-day-2025-know-holiday-100407930.html)
-- Apr 25 - [Trump admin. tells court it did not have warrant to arrest Columbia student, but argues it didn't need one](https://www.yahoo.com/news/trump-admin-admits-court-did-091537069.html)
+- Apr 25 - [HCA Healthcare beats profit estimates on strong demand for medical care](https://finance.yahoo.com/news/hca-healthcare-posts-higher-profit-115130518.html)
+- Apr 25 - [Most fatal lightning strikes kill people doing this routine activity](https://www.yahoo.com/news/most-fatal-lightning-strikes-kill-100218322.html)
+- Apr 25 - [Swarm of teens physically, verbally harass couple, loot Southern California Ralphs](https://www.yahoo.com/news/swarm-teens-physically-verbally-harass-050904380.html)
 - Apr 25 - [Construction of world’s tallest abandoned skyscraper to resume after a decade](https://www.yahoo.com/news/construction-world-tallest-abandoned-skyscraper-021511942.html)
-- Apr 25 - [Alijah Arenas crash video shows fiery wreck that led to USC commit being induced into coma](https://sports.yahoo.com/article/alijah-arenas-crash-video-shows-003957378.html)
+- Apr 25 - [Disney World Announces Bad News for Park Visitors in 2026](https://finance.yahoo.com/news/disney-world-announces-bad-news-013726349.html)
 <!-- feed end -->
 
 ### Onstream
