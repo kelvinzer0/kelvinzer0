@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Smoke From New Jersey Wildfires Sweeps Over New York City](https://www.yahoo.com/news/smoke-jersey-wildfires-sweeps-over-222156235.html)
-- Apr 24 - [Intel mandates four days in the office](https://finance.yahoo.com/news/intel-mandates-four-days-office-212658701.html)
-- Apr 24 - [Purdue Boilermaker Special involved in fatal accident on U.S. 52](https://www.yahoo.com/news/purdue-boilermaker-special-involved-fatal-212123952.html)
+- Apr 24 - [Florida Senate's Democratic leader says the state party is dead and he's leaving it](https://www.yahoo.com/news/florida-senates-democratic-leader-says-223024680.html)
+- Apr 24 - [Trump pardons Nevada politician who paid for cosmetic surgery with funds to honor a slain officer](https://www.yahoo.com/news/trump-pardons-nevada-politician-paid-221954189.html)
+- Apr 24 - [Largest federal employee union, a leading Trump opponent, to lay off more than half of staff](https://www.yahoo.com/news/largest-federal-employee-union-leading-215534209.html)
 - Apr 24 - [When will mortgage interest rates go down to 4%?](https://finance.yahoo.com/personal-finance/mortgages/article/when-will-mortgage-rates-go-down-to-4-203022472.html)
-- Apr 24 - [A wrong turn onto a bridge at the US-Canada border has a Detroit woman facing deportation](https://www.yahoo.com/news/wrong-turn-onto-bridge-us-194230912.html)
+- Apr 24 - [Private equity executive raped and tortured women at his Manhattan apartment, prosecutors say](https://www.yahoo.com/news/private-equity-executive-raped-tortured-202308415.html)
 <!-- feed end -->
 
 ### Onstream
