@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - ['Biggest Fight We've Had in a While': Deputies Wrangle Gator Outside High School](https://www.yahoo.com/news/biggest-fight-weve-had-while-150044111.html)
-- Apr 25 - [This Woman Makes $2 Million a Month… And You’ll Never Guess How](https://www.yahoo.com/entertainment/articles/woman-makes-2-million-month-124447661.html)
+- Apr 25 - [FBI arrests Wisconsin Judge Hannah Dugan for allegedly obstructing ICE agents, Director Kash Patel says](https://www.yahoo.com/news/fbi-arrests-wisconsin-judge-hannah-dugan-for-allegedly-obstructing-ice-agents-director-kash-patel-says-151824813.html)
+- Apr 25 - [Matt Gaetz visited El Salvador’s mega-prison and saw people drained of hope. He then pitched it to Stephen Miller](https://www.yahoo.com/news/matt-gaetz-visited-el-salvador-154733033.html)
+- Apr 25 - [US 'will have to start' US–China trade de-escalation, expert says](https://finance.yahoo.com/video/us-start-us-china-trade-153605914.html)
 - Apr 25 - [Magazine Cover Puts A World Of Hurt On Trump's First 100 Days](https://www.yahoo.com/news/magazine-cover-puts-world-hurt-114141783.html)
-- Apr 25 - [Sister Genevieve, French nun who broke protocol to see pope's body](https://www.yahoo.com/news/sister-genevieve-french-nun-broke-113318452.html)
-- Apr 25 - [Toyota chairman proposes $42 billion acquisition of Toyota Industries, Bloomberg reports](https://finance.yahoo.com/news/toyota-chairman-proposes-possible-42-102617137.html)
+- Apr 25 - [13 injured, two critical after Lansing street race ends in crash](https://www.yahoo.com/news/13-injured-two-critical-lansing-113139525.html)
 <!-- feed end -->
 
 ### Onstream
