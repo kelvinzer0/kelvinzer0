@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - ['Biggest Fight We've Had in a While': Deputies Wrangle Gator Outside High School](https://www.yahoo.com/news/biggest-fight-weve-had-while-150044111.html)
+- Apr 25 - [This Woman Makes $2 Million a Month… And You’ll Never Guess How](https://www.yahoo.com/entertainment/articles/woman-makes-2-million-month-124447661.html)
 - Apr 25 - [Magazine Cover Puts A World Of Hurt On Trump's First 100 Days](https://www.yahoo.com/news/magazine-cover-puts-world-hurt-114141783.html)
 - Apr 25 - [Sister Genevieve, French nun who broke protocol to see pope's body](https://www.yahoo.com/news/sister-genevieve-french-nun-broke-113318452.html)
-- Apr 25 - [Major investment firms slash target price of energy giant's stock — here's what it means for the economy](https://finance.yahoo.com/news/major-investment-firms-slash-target-111558663.html)
-- Apr 25 - [Trump says Xi called him, lays out trade and other deal plans in Time interview](https://www.yahoo.com/news/trump-says-xi-called-him-104137461.html)
 - Apr 25 - [Toyota chairman proposes $42 billion acquisition of Toyota Industries, Bloomberg reports](https://finance.yahoo.com/news/toyota-chairman-proposes-possible-42-102617137.html)
 <!-- feed end -->
 
