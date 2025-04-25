@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Slate: Introducing the Bezos-backed EV pickup for the masses](https://finance.yahoo.com/news/slate-introducing-the-bezos-backed-ev-pickup-for-the-masses-022141712.html)
+- Apr 25 - [Ex-US Rep. George Santos faces sentencing for fraud after duping donors and voters](https://www.yahoo.com/news/ex-us-rep-george-santos-040146373.html)
 - Apr 25 - [Sick Passenger Died After American Airlines Flight Crew Allegedly Delayed Getting Help Until Other Passengers Left Plane: Lawsuit](https://www.yahoo.com/news/sick-passenger-died-american-airlines-021207839.html)
-- Apr 24 - ['Move?!’ Stopping MAGA means taking this bold step, say activists](https://www.yahoo.com/news/move-stopping-maga-means-taking-233412435.html)
 - Apr 24 - [Florida Senate's Democratic leader says the state party is dead and he's leaving it](https://www.yahoo.com/news/florida-senates-democratic-leader-says-223024680.html)
-- Apr 24 - [Trump pardons Nevada politician who paid for cosmetic surgery with funds to honor a slain officer](https://www.yahoo.com/news/trump-pardons-nevada-politician-paid-221954189.html)
+- Apr 24 - [Largest federal employee union, a leading Trump opponent, to lay off more than half of staff](https://www.yahoo.com/news/largest-federal-employee-union-leading-215534209.html)
+- Apr 24 - [Intel mandates four days in the office](https://finance.yahoo.com/news/intel-mandates-four-days-office-212658701.html)
 <!-- feed end -->
 
 ### Onstream
