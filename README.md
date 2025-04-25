@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Automakers rush to meet surging China demand for long-range hybrids](https://finance.yahoo.com/news/automakers-rush-meet-surging-china-082831407.html)
-- Apr 25 - [Swarm of teens physically, verbally harass couple, loot Southern California Ralphs](https://www.yahoo.com/news/swarm-teens-physically-verbally-harass-050904380.html)
-- Apr 25 - [China grants some exemptions from US tariffs to limit trade war pain](https://finance.yahoo.com/news/china-considers-exempting-goods-us-043426374.html)
-- Apr 25 - [Bitcoin Reserves on Exchanges Drop to Lowest Level in Over Six Years as Public Companies Purchase 425,000 BTC](https://finance.yahoo.com/news/bitcoin-reserves-exchanges-drop-lowest-010121120.html)
+- Apr 25 - [Most investors get this wrong about long-term investing](https://finance.yahoo.com/video/most-investors-wrong-long-term-100000874.html)
+- Apr 25 - [China exempts some goods from US tariffs to limit trade war pain](https://finance.yahoo.com/news/china-considers-exempting-goods-us-043426374.html)
+- Apr 25 - [Construction of world’s tallest abandoned skyscraper to resume after a decade](https://www.yahoo.com/news/construction-world-tallest-abandoned-skyscraper-021511942.html)
 - Apr 24 - [Intel CEO unveils major workplace overhaul to boost innovation, slams 'suffocating' bureaucracy](https://finance.yahoo.com/news/intel-ceo-unveils-major-workplace-overhaul-to-boost-innovation-slams-suffocating-bureaucracy-225021190.html)
+- Apr 24 - [Florida Senate's Democratic leader says the state party is dead and he's leaving it](https://www.yahoo.com/news/florida-senates-democratic-leader-says-223024680.html)
 <!-- feed end -->
 
 ### Onstream
