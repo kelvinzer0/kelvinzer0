@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [HCA Healthcare beats profit estimates on strong demand for medical care](https://finance.yahoo.com/news/hca-healthcare-posts-higher-profit-115130518.html)
-- Apr 25 - [Most fatal lightning strikes kill people doing this routine activity](https://www.yahoo.com/news/most-fatal-lightning-strikes-kill-100218322.html)
-- Apr 25 - [Swarm of teens physically, verbally harass couple, loot Southern California Ralphs](https://www.yahoo.com/news/swarm-teens-physically-verbally-harass-050904380.html)
-- Apr 25 - [Construction of world’s tallest abandoned skyscraper to resume after a decade](https://www.yahoo.com/news/construction-world-tallest-abandoned-skyscraper-021511942.html)
-- Apr 25 - [Disney World Announces Bad News for Park Visitors in 2026](https://finance.yahoo.com/news/disney-world-announces-bad-news-013726349.html)
+- Apr 25 - [Swiss National Bank chairman rebuffs bitcoin as reserve asset](https://finance.yahoo.com/news/swiss-national-bank-chairman-rebuffs-122828350.html)
+- Apr 25 - [Elmira police officers involved in early morning shooting on Water Street. Traffic closed](https://www.yahoo.com/news/elmira-police-officers-involved-early-121439087.html)
+- Apr 25 - [Magazine Cover Puts A World Of Hurt On Trump's First 100 Days](https://www.yahoo.com/news/magazine-cover-puts-world-hurt-114141783.html)
+- Apr 25 - [Trump says Xi called him, lays out trade and other deal plans in Time interview](https://www.yahoo.com/news/trump-says-xi-called-him-104137461.html)
+- Apr 25 - [Most investors get this wrong about long-term investing](https://finance.yahoo.com/video/most-investors-wrong-long-term-100000874.html)
 <!-- feed end -->
 
 ### Onstream
