@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - [Slate: Introducing the Bezos-backed EV pickup for the masses](https://finance.yahoo.com/news/slate-introducing-the-bezos-backed-ev-pickup-for-the-masses-022141712.html)
+- Apr 25 - [Sick Passenger Died After American Airlines Flight Crew Allegedly Delayed Getting Help Until Other Passengers Left Plane: Lawsuit](https://www.yahoo.com/news/sick-passenger-died-american-airlines-021207839.html)
+- Apr 24 - ['Move?!’ Stopping MAGA means taking this bold step, say activists](https://www.yahoo.com/news/move-stopping-maga-means-taking-233412435.html)
 - Apr 24 - [Florida Senate's Democratic leader says the state party is dead and he's leaving it](https://www.yahoo.com/news/florida-senates-democratic-leader-says-223024680.html)
 - Apr 24 - [Trump pardons Nevada politician who paid for cosmetic surgery with funds to honor a slain officer](https://www.yahoo.com/news/trump-pardons-nevada-politician-paid-221954189.html)
-- Apr 24 - [Largest federal employee union, a leading Trump opponent, to lay off more than half of staff](https://www.yahoo.com/news/largest-federal-employee-union-leading-215534209.html)
-- Apr 24 - [When will mortgage interest rates go down to 4%?](https://finance.yahoo.com/personal-finance/mortgages/article/when-will-mortgage-rates-go-down-to-4-203022472.html)
-- Apr 24 - [Private equity executive raped and tortured women at his Manhattan apartment, prosecutors say](https://www.yahoo.com/news/private-equity-executive-raped-tortured-202308415.html)
 <!-- feed end -->
 
 ### Onstream
