@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Fed survey finds global trade fight, policy uncertainty top financial stability risks](https://finance.yahoo.com/news/fed-survey-finds-global-trade-200613069.html)
-- Apr 25 - [Pope Pius XII's 'Alternative' Embalming Led to a Grotesque Sight — and Smell — for Horrified Mourners in 1958](https://www.yahoo.com/news/pope-pius-xiis-alternative-embalming-195225140.html)
+- Apr 25 - [Jim Cramer on Palantir Technologies (PLTR): ‘Meme Guys Are Pushing It Up Every Day’](https://finance.yahoo.com/news/jim-cramer-palantir-technologies-pltr-204115492.html)
+- Apr 25 - [Is Costco Wholesale Corporation (COST) the Best Stock to Invest in for Long Term?](https://finance.yahoo.com/news/costco-wholesale-corporation-cost-best-203510348.html)
 - Apr 25 - [Pete Hegseth Introduces ‘No More Walking on Eggshells’ Policy to Department of Defense | Video](https://www.yahoo.com/news/pete-hegseth-introduces-no-more-192301611.html)
 - Apr 25 - [Russian satellite linked to nuclear weapon program appears out of control, U.S. analysts say](https://www.yahoo.com/news/russian-satellite-linked-nuclear-weapon-172230362.html)
-- Apr 25 - [Sarah Ferguson Unveils New Pics with Her Daughters & Their Body Language Is So Telling](https://www.yahoo.com/news/sarah-ferguson-unveils-pics-her-170015331.html)
+- Apr 25 - [Trump-appointed head of National Science Foundation resigns: ‘I have done all I can’](https://www.yahoo.com/news/trump-appointed-head-national-science-155953622.html)
 <!-- feed end -->
 
 ### Onstream
