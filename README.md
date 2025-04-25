@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Novo Nordisk wins case to kick knockoff Ozempic off the market, but it may not last](https://finance.yahoo.com/news/novo-nordisk-wins-case-to-kick-knockoff-ozempic-off-the-market-but-it-may-not-last-184547572.html)
-- Apr 25 - [Tariff Uncertainty Weighs on US Car Market](https://finance.yahoo.com/video/tariff-uncertainty-weighs-us-car-184350384.html)
-- Apr 25 - [How PayPal Plans to Bring 400M Users to Crypto](https://finance.yahoo.com/video/paypal-plans-bring-400m-users-180005389.html)
-- Apr 25 - [Cardinals to seal Pope Francis’ coffin, formally ending his lying in state at the Vatican](https://www.yahoo.com/news/cardinals-seal-pope-francis-coffin-175654398.html)
-- Apr 25 - [Severe storms with monster hail, high winds and tornadoes to rock central US into early May](https://www.yahoo.com/news/severe-storms-monster-hail-high-174850159.html)
+- Apr 25 - [Pope Pius XII's 'Alternative' Embalming Led to a Grotesque Sight — and Smell — for Horrified Mourners in 1958](https://www.yahoo.com/news/pope-pius-xiis-alternative-embalming-195225140.html)
+- Apr 25 - [DOJ pushes Google Chrome sale. Here's who wants to buy](https://finance.yahoo.com/video/doj-pushes-google-chrome-sale-195026272.html)
+- Apr 25 - [The world is facing a new and devastating frontier in the Aids epidemic](https://www.yahoo.com/news/world-facing-devastating-frontier-aids-194019002.html)
+- Apr 25 - [Escambia deputies investigating social media reports of possible Perdido kidnapping](https://www.yahoo.com/news/escambia-deputies-investigating-social-media-193315847.html)
+- Apr 25 - [Russian satellite linked to nuclear weapon program appears out of control, U.S. analysts say](https://www.yahoo.com/news/russian-satellite-linked-nuclear-weapon-172230362.html)
 <!-- feed end -->
 
 ### Onstream
