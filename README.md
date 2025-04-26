@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 26 - [The White House Correspondents' Dinner is tonight. No Trump roast on the menu.](https://www.yahoo.com/news/white-house-correspondents-dinner-tonight-162722136.html)
+- Apr 26 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
 - Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
 - Apr 26 - [Do You Have 'Ghost Poops'? Here's What That Says About Your Health.](https://www.yahoo.com/lifestyle/ghost-poops-heres-says-health-110030843.html)
 - Apr 26 - [The head of United's futuristic new 250-person plane says it'll be like a 'living room in the sky'](https://www.yahoo.com/news/head-uniteds-futuristic-250-person-110001281.html)
-- Apr 26 - [Authorities make disturbing discovery after national park raid leads to multiple arrests: 'They weren't aware'](https://www.yahoo.com/news/authorities-disturbing-discovery-national-park-101546680.html)
-- Apr 26 - [Scientists flag disturbing trends emerging among large mammals: 'Animals are increasingly compelled ...'](https://www.yahoo.com/news/scientists-flag-disturbing-trends-emerging-100009282.html)
 <!-- feed end -->
 
 ### Onstream
