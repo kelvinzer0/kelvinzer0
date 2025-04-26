@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [Your Daily Work Horoscope for April 26, 2025](https://www.yahoo.com/lifestyle/daily-horoscope-april-26-2025-070000452.html)
-- Apr 25 - [Son of CIA deputy director was killed while fighting for Russia, report says](https://www.yahoo.com/news/son-cia-deputy-director-killed-210903869.html)
-- Apr 25 - [Pope Pius XII's 'Alternative' Embalming Led to a Grotesque Sight — and Smell — for Horrified Mourners in 1958](https://www.yahoo.com/news/pope-pius-xiis-alternative-embalming-195225140.html)
-- Apr 25 - [71 percent in Maine say Collins doesn’t deserve to be reelected](https://www.yahoo.com/news/71-percent-maine-collins-doesn-184811224.html)
+- Apr 26 - [How accurate is Conclave? What the film gets right (and wrong) about selecting a new Pope](https://www.yahoo.com/news/accurate-conclave-oscar-winning-film-201016473.html)
 - Apr 25 - [Researchers warn that eating this amount of chicken per week could increase your mortality risk](https://www.yahoo.com/lifestyle/researchers-warn-eating-amount-chicken-180500846.html)
+- Apr 25 - [Democrat is nearly boo’ed out of hour-long town hall as voters bash her for supporting SAVE voting rights act](https://www.yahoo.com/news/democrat-nearly-boo-ed-hour-175720308.html)
+- Apr 25 - [MSNBC Just Pointed Out The Brutal Reason Why Trump Voters Have "Now Turned Against" Him](https://www.yahoo.com/news/msnbc-just-pointed-brutal-reason-174509630.html)
+- Apr 25 - [Russian satellite linked to nuclear weapon program appears out of control, U.S. analysts say](https://www.yahoo.com/news/russian-satellite-linked-nuclear-weapon-172230362.html)
 <!-- feed end -->
 
 ### Onstream
