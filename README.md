@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 26 - [Huge blast at key Iranian port kills eight and injures more than 750](https://www.yahoo.com/news/least-500-injured-large-explosion-115214150.html)
 - Apr 26 - [After Paramedic's Wife Died, She Started Babysitting His Kids. Then the Sitter Noticed Something Wasn’t Right (Exclusive)](https://www.yahoo.com/news/paramedics-wife-died-she-started-170000586.html)
-- Apr 26 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
-- Apr 26 - [Adam Schiff reveals what a San Francisco cashier bluntly told him about Dems, warns party has 'major problem'](https://www.yahoo.com/news/adam-schiff-reveals-san-francisco-145319669.html)
+- Apr 26 - [14 MAGA Voters Are Finally Realizing What They Voted For, And The Stories Are Shocking](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
 - Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
 - Apr 26 - [Do You Have 'Ghost Poops'? Here's What That Says About Your Health.](https://www.yahoo.com/lifestyle/ghost-poops-heres-says-health-110030843.html)
 <!-- feed end -->
