@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 26 - [How accurate is Conclave? What the film gets right (and wrong) about selecting a new Pope](https://www.yahoo.com/news/accurate-conclave-oscar-winning-film-201016473.html)
+- Apr 25 - [‘I cannot imagine this case holds up ‘: Andrew Weissmann on the FBI arresting Milwaukee judge](https://www.yahoo.com/news/cannot-imagine-case-holds-andrew-205114380.html)
+- Apr 25 - [A Red State Begged Trump For Help. He Said No — And Now They’re Screwed.](https://www.yahoo.com/news/red-state-begged-trump-help-203010727.html)
+- Apr 25 - [Roles announced for Buffalo Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/roles-announced-buffalo-bills-hallmark-201411366.html)
 - Apr 25 - [Researchers warn that eating this amount of chicken per week could increase your mortality risk](https://www.yahoo.com/lifestyle/researchers-warn-eating-amount-chicken-180500846.html)
-- Apr 25 - [Democrat is nearly boo’ed out of hour-long town hall as voters bash her for supporting SAVE voting rights act](https://www.yahoo.com/news/democrat-nearly-boo-ed-hour-175720308.html)
-- Apr 25 - [MSNBC Just Pointed Out The Brutal Reason Why Trump Voters Have "Now Turned Against" Him](https://www.yahoo.com/news/msnbc-just-pointed-brutal-reason-174509630.html)
-- Apr 25 - [Russian satellite linked to nuclear weapon program appears out of control, U.S. analysts say](https://www.yahoo.com/news/russian-satellite-linked-nuclear-weapon-172230362.html)
 <!-- feed end -->
 
 ### Onstream
