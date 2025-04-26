@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [MyPillow CEO's Lawyer Embarrassed In Court After Judge Grills Him Over Using AI In Legal Filing](https://www.yahoo.com/news/mypillow-ceos-lawyer-embarrassed-court-232008559.html)
+- Apr 25 - [Princeton University Student Lauren Blackburn Found Dead in Lake](https://www.yahoo.com/news/princeton-university-student-lauren-blackburn-222511824.html)
 - Apr 25 - [Royal Caribbean Is Temporarily Rerouting Cruises That Depart From 3 Florida Cities—Here's Why](https://www.yahoo.com/news/royal-caribbean-temporarily-rerouting-cruises-213611697.html)
-- Apr 25 - [‘I cannot imagine this case holds up ‘: Andrew Weissmann on the FBI arresting Milwaukee judge](https://www.yahoo.com/news/cannot-imagine-case-holds-andrew-205114380.html)
-- Apr 25 - [Roles announced for Buffalo Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/roles-announced-buffalo-bills-hallmark-201411366.html)
-- Apr 25 - [Russian satellite linked to nuclear weapon program appears out of control, U.S. analysts say](https://www.yahoo.com/news/russian-satellite-linked-nuclear-weapon-172230362.html)
+- Apr 25 - [Son of CIA deputy director was killed while fighting for Russia, report says](https://www.yahoo.com/news/son-cia-deputy-director-killed-210903869.html)
+- Apr 25 - [Pope Pius XII's 'Alternative' Embalming Led to a Grotesque Sight — and Smell — for Horrified Mourners in 1958](https://www.yahoo.com/news/pope-pius-xiis-alternative-embalming-195225140.html)
+- Apr 25 - [11-foot great white shark pings off Florida island for 9th time this month. Here's where](https://www.yahoo.com/news/11-foot-great-white-shark-180907267.html)
 <!-- feed end -->
 
 ### Onstream
