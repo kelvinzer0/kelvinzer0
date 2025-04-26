@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 26 - [Huge blast at key Iranian port kills eight and injures more than 750](https://www.yahoo.com/news/least-500-injured-large-explosion-115214150.html)
 - Apr 26 - [Palestinian leader Abbas names likely successor in bid to reassure world powers](https://www.yahoo.com/news/palestinian-leader-abbas-names-likely-171913425.html)
-- Apr 26 - [Trump, Zelensky meet during funeral for Pope Francis](https://www.yahoo.com/news/trump-zelensky-meet-during-funeral-161508187.html)
+- Apr 26 - [14 MAGA Voters Are Finally Realizing What They Voted For, And The Stories Are Shocking](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
 - Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
 - Apr 26 - [Do You Have 'Ghost Poops'? Here's What That Says About Your Health.](https://www.yahoo.com/lifestyle/ghost-poops-heres-says-health-110030843.html)
 <!-- feed end -->
