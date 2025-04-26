@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [Where Trump, other leaders sat at Pope Francis' funeral](https://www.yahoo.com/news/where-trump-other-leaders-sat-121652324.html)
 - Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
+- Apr 26 - [See All of the Most Striking Photos of the Funeral of Pope Francis](https://www.yahoo.com/news/see-most-striking-photos-funeral-103600133.html)
+- Apr 26 - [Scientists make startling discovery after dissecting Tesla and other EV batteries side-by-side: 'We were surprised'](https://tech.yahoo.com/transportation/articles/scientists-startling-discovery-dissecting-tesla-103024321.html)
 - Apr 26 - [Authorities make disturbing discovery after national park raid leads to multiple arrests: 'They weren't aware'](https://www.yahoo.com/news/authorities-disturbing-discovery-national-park-101546680.html)
 - Apr 26 - [Scientists flag disturbing trends emerging among large mammals: 'Animals are increasingly compelled ...'](https://www.yahoo.com/news/scientists-flag-disturbing-trends-emerging-100009282.html)
-- Apr 26 - [Trump pays his respects to a pope who publicly and pointedly disagreed with him over the years](https://www.yahoo.com/news/trump-pay-respects-pope-publicly-040617779.html)
 <!-- feed end -->
 
 ### Onstream
