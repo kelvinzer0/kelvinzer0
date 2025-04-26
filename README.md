@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [Sinclair Community College to buy $545K electric flight simulator](https://www.yahoo.com/news/sinclair-community-college-buy-545k-010200971.html)
-- Apr 25 - [Son of CIA deputy director was killed while fighting for Russia, report says](https://www.yahoo.com/news/son-cia-deputy-director-killed-210903869.html)
+- Apr 25 - [MyPillow CEO's Lawyer Embarrassed In Court After Judge Grills Him Over Using AI In Legal Filing](https://www.yahoo.com/news/mypillow-ceos-lawyer-embarrassed-court-232008559.html)
+- Apr 25 - [Royal Caribbean Is Temporarily Rerouting Cruises That Depart From 3 Florida Cities—Here's Why](https://www.yahoo.com/news/royal-caribbean-temporarily-rerouting-cruises-213611697.html)
 - Apr 25 - [‘I cannot imagine this case holds up ‘: Andrew Weissmann on the FBI arresting Milwaukee judge](https://www.yahoo.com/news/cannot-imagine-case-holds-andrew-205114380.html)
-- Apr 25 - [Kansas City among top 10 most dangerous cities in U.S., new ranking says](https://www.yahoo.com/news/kansas-city-among-top-10-190446380.html)
-- Apr 25 - [71 percent in Maine say Collins doesn’t deserve to be reelected](https://www.yahoo.com/news/71-percent-maine-collins-doesn-184811224.html)
+- Apr 25 - [Roles announced for Buffalo Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/roles-announced-buffalo-bills-hallmark-201411366.html)
+- Apr 25 - [Russian satellite linked to nuclear weapon program appears out of control, U.S. analysts say](https://www.yahoo.com/news/russian-satellite-linked-nuclear-weapon-172230362.html)
 <!-- feed end -->
 
 ### Onstream
