@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - [Bystanders stop suspect accused of dragging woman and her kids in SUV](https://www.yahoo.com/news/bystanders-stop-suspect-accused-dragging-235316979.html)
 - Apr 25 - [Princeton University Student Lauren Blackburn Found Dead in Lake](https://www.yahoo.com/news/princeton-university-student-lauren-blackburn-222511824.html)
-- Apr 25 - [Royal Caribbean Is Temporarily Rerouting Cruises That Depart From 3 Florida Cities—Here's Why](https://www.yahoo.com/news/royal-caribbean-temporarily-rerouting-cruises-213611697.html)
 - Apr 25 - [Son of CIA deputy director was killed while fighting for Russia, report says](https://www.yahoo.com/news/son-cia-deputy-director-killed-210903869.html)
-- Apr 25 - [Pope Pius XII's 'Alternative' Embalming Led to a Grotesque Sight — and Smell — for Horrified Mourners in 1958](https://www.yahoo.com/news/pope-pius-xiis-alternative-embalming-195225140.html)
-- Apr 25 - [11-foot great white shark pings off Florida island for 9th time this month. Here's where](https://www.yahoo.com/news/11-foot-great-white-shark-180907267.html)
+- Apr 25 - [Trump administration is reversing student visa terminations. Here's what happened in Indiana](https://www.yahoo.com/news/trump-administration-reversing-student-visa-180855701.html)
+- Apr 25 - [Researchers warn that eating this amount of chicken per week could increase your mortality risk](https://www.yahoo.com/lifestyle/researchers-warn-eating-amount-chicken-180500846.html)
 <!-- feed end -->
 
 ### Onstream
