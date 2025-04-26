@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [How accurate is Conclave? What the film gets right (and wrong) about selecting a new Pope](https://www.yahoo.com/news/accurate-conclave-oscar-winning-film-201016473.html)
+- Apr 26 - [Russia says all Ukrainian troops have left the Kursk region as Zelenskyy meets Trump at Vatican](https://www.yahoo.com/news/3-dead-russian-attacks-ukraine-103005676.html)
+- Apr 26 - [Arizona Lottery Mega Millions, Pick 3 results for April 25, 2025](https://www.yahoo.com/news/arizona-lottery-mega-millions-pick-041003552.html)
 - Apr 25 - [‘I cannot imagine this case holds up ‘: Andrew Weissmann on the FBI arresting Milwaukee judge](https://www.yahoo.com/news/cannot-imagine-case-holds-andrew-205114380.html)
 - Apr 25 - [A Red State Begged Trump For Help. He Said No — And Now They’re Screwed.](https://www.yahoo.com/news/red-state-begged-trump-help-203010727.html)
 - Apr 25 - [Roles announced for Buffalo Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/roles-announced-buffalo-bills-hallmark-201411366.html)
-- Apr 25 - [Researchers warn that eating this amount of chicken per week could increase your mortality risk](https://www.yahoo.com/lifestyle/researchers-warn-eating-amount-chicken-180500846.html)
 <!-- feed end -->
 
 ### Onstream
