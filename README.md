@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [The White House Correspondents' Dinner is tonight. No Trump roast on the menu.](https://www.yahoo.com/news/white-house-correspondents-dinner-tonight-162722136.html)
+- Apr 26 - [After Paramedic's Wife Died, She Started Babysitting His Kids. Then the Sitter Noticed Something Wasn’t Right (Exclusive)](https://www.yahoo.com/news/paramedics-wife-died-she-started-170000586.html)
 - Apr 26 - [Donald Trump Supporters Are Waking Up To The Reality Of Their Ballot Choices, And The Stories Are A Loooooot](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
+- Apr 26 - [Adam Schiff reveals what a San Francisco cashier bluntly told him about Dems, warns party has 'major problem'](https://www.yahoo.com/news/adam-schiff-reveals-san-francisco-145319669.html)
 - Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
 - Apr 26 - [Do You Have 'Ghost Poops'? Here's What That Says About Your Health.](https://www.yahoo.com/lifestyle/ghost-poops-heres-says-health-110030843.html)
-- Apr 26 - [The head of United's futuristic new 250-person plane says it'll be like a 'living room in the sky'](https://www.yahoo.com/news/head-uniteds-futuristic-250-person-110001281.html)
 <!-- feed end -->
 
 ### Onstream
