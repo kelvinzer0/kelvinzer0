@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 25 - [MyPillow CEO's Lawyer Embarrassed In Court After Judge Grills Him Over Using AI In Legal Filing](https://www.yahoo.com/news/mypillow-ceos-lawyer-embarrassed-court-232008559.html)
+- Apr 25 - [Princeton University Student Lauren Blackburn Found Dead in Lake](https://www.yahoo.com/news/princeton-university-student-lauren-blackburn-222511824.html)
 - Apr 25 - [Son of CIA deputy director was killed while fighting for Russia, report says](https://www.yahoo.com/news/son-cia-deputy-director-killed-210903869.html)
-- Apr 25 - [Roles announced for Buffalo Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/roles-announced-buffalo-bills-hallmark-201411366.html)
-- Apr 25 - [Researchers warn that eating this amount of chicken per week could increase your mortality risk](https://www.yahoo.com/lifestyle/researchers-warn-eating-amount-chicken-180500846.html)
-- Apr 25 - [Second visit of Syrian Druze to holy sites in Israel](https://www.yahoo.com/news/second-visit-syrian-druze-holy-172704023.html)
+- Apr 25 - [‘I cannot imagine this case holds up ‘: Andrew Weissmann on the FBI arresting Milwaukee judge](https://www.yahoo.com/news/cannot-imagine-case-holds-andrew-205114380.html)
+- Apr 25 - [Pope Pius XII's 'Alternative' Embalming Led to a Grotesque Sight — and Smell — for Horrified Mourners in 1958](https://www.yahoo.com/news/pope-pius-xiis-alternative-embalming-195225140.html)
 <!-- feed end -->
 
 ### Onstream
