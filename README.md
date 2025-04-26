@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [Russia says all Ukrainian troops have left the Kursk region as Zelenskyy meets Trump at Vatican](https://www.yahoo.com/news/3-dead-russian-attacks-ukraine-103005676.html)
-- Apr 26 - [Arizona Lottery Mega Millions, Pick 3 results for April 25, 2025](https://www.yahoo.com/news/arizona-lottery-mega-millions-pick-041003552.html)
-- Apr 25 - [‘I cannot imagine this case holds up ‘: Andrew Weissmann on the FBI arresting Milwaukee judge](https://www.yahoo.com/news/cannot-imagine-case-holds-andrew-205114380.html)
-- Apr 25 - [A Red State Begged Trump For Help. He Said No — And Now They’re Screwed.](https://www.yahoo.com/news/red-state-begged-trump-help-203010727.html)
-- Apr 25 - [Roles announced for Buffalo Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/roles-announced-buffalo-bills-hallmark-201411366.html)
+- Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
+- Apr 26 - [When do flags return to full-staff in Texas? Tribute for Pope Francis ends late Saturday](https://www.yahoo.com/news/flags-return-full-staff-texas-110035441.html)
+- Apr 26 - [The head of United's futuristic new 250-person plane says it'll be like a 'living room in the sky'](https://www.yahoo.com/news/head-uniteds-futuristic-250-person-110001188.html)
+- Apr 26 - [Authorities make disturbing discovery after national park raid leads to multiple arrests: 'They weren't aware'](https://www.yahoo.com/news/authorities-disturbing-discovery-national-park-101546680.html)
+- Apr 26 - [Scientists flag disturbing trends emerging among large mammals: 'Animals are increasingly compelled ...'](https://www.yahoo.com/news/scientists-flag-disturbing-trends-emerging-100009282.html)
 <!-- feed end -->
 
 ### Onstream
