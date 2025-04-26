@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
-- Apr 26 - [See All of the Most Striking Photos of the Funeral of Pope Francis](https://www.yahoo.com/news/see-most-striking-photos-funeral-103600133.html)
-- Apr 26 - [Scientists make startling discovery after dissecting Tesla and other EV batteries side-by-side: 'We were surprised'](https://tech.yahoo.com/transportation/articles/scientists-startling-discovery-dissecting-tesla-103024321.html)
+- Apr 26 - [Do You Have 'Ghost Poops'? Here's What That Says About Your Health.](https://www.yahoo.com/lifestyle/ghost-poops-heres-says-health-110030843.html)
+- Apr 26 - [The head of United's futuristic new 250-person plane says it'll be like a 'living room in the sky'](https://www.yahoo.com/news/head-uniteds-futuristic-250-person-110001281.html)
 - Apr 26 - [Authorities make disturbing discovery after national park raid leads to multiple arrests: 'They weren't aware'](https://www.yahoo.com/news/authorities-disturbing-discovery-national-park-101546680.html)
 - Apr 26 - [Scientists flag disturbing trends emerging among large mammals: 'Animals are increasingly compelled ...'](https://www.yahoo.com/news/scientists-flag-disturbing-trends-emerging-100009282.html)
 <!-- feed end -->
