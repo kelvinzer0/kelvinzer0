@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
 - Apr 26 - [Huge blast at key Iranian port kills 14 and injures more than 750](https://www.yahoo.com/news/least-500-injured-large-explosion-115214150.html)
+- Apr 26 - [Palestinian leader Abbas names likely successor in bid to reassure world powers](https://www.yahoo.com/news/palestinian-leader-abbas-names-likely-171913425.html)
+- Apr 26 - [ICE deports immigrant mother of an infant and 3 children who are US citizens, lawyers say](https://www.yahoo.com/news/ice-deports-mother-breastfeeding-infant-165457596.html)
 - Apr 26 - [14 MAGA Voters Are Finally Realizing What They Voted For, And The Stories Are Shocking](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
-- Apr 26 - [Authorities Issue Warnings About 'Senior Assassin' Game](https://www.yahoo.com/news/authorities-issue-warnings-senior-assassin-130056239.html)
-- Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
-- Apr 26 - [These Are 9 Major Indicators Of Autism In Adults That Often Go Completely Unnoticed](https://www.yahoo.com/lifestyle/experts-sharing-9-biggest-signs-113102212.html)
 <!-- feed end -->
 
 ### Onstream
