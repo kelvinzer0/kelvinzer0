@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [When will I get my Social Security payments this month? See May 2025 schedule](https://www.yahoo.com/news/social-security-payments-month-see-211616401.html)
-- Apr 25 - [Second visit of Syrian Druze to holy sites in Israel](https://www.yahoo.com/news/second-visit-syrian-druze-holy-172704023.html)
-- Apr 25 - [Russian satellite linked to nuclear weapon program appears out of control, U.S. analysts say](https://www.yahoo.com/news/russian-satellite-linked-nuclear-weapon-172230362.html)
-- Apr 25 - [Sarah Ferguson Unveils New Pics with Her Daughters & Their Body Language Is So Telling](https://www.yahoo.com/news/sarah-ferguson-unveils-pics-her-170015331.html)
-- Apr 25 - [Trump-appointed head of National Science Foundation resigns: ‘I have done all I can’](https://www.yahoo.com/news/trump-appointed-head-national-science-155953622.html)
+- Apr 26 - [Sinclair Community College to buy $545K electric flight simulator](https://www.yahoo.com/news/sinclair-community-college-buy-545k-010200971.html)
+- Apr 25 - [Son of CIA deputy director was killed while fighting for Russia, report says](https://www.yahoo.com/news/son-cia-deputy-director-killed-210903869.html)
+- Apr 25 - [‘I cannot imagine this case holds up ‘: Andrew Weissmann on the FBI arresting Milwaukee judge](https://www.yahoo.com/news/cannot-imagine-case-holds-andrew-205114380.html)
+- Apr 25 - [Kansas City among top 10 most dangerous cities in U.S., new ranking says](https://www.yahoo.com/news/kansas-city-among-top-10-190446380.html)
+- Apr 25 - [71 percent in Maine say Collins doesn’t deserve to be reelected](https://www.yahoo.com/news/71-percent-maine-collins-doesn-184811224.html)
 <!-- feed end -->
 
 ### Onstream
