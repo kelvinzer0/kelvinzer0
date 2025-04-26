@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 26 - [Where Trump, other leaders sat at Pope Francis' funeral](https://www.yahoo.com/news/where-trump-other-leaders-sat-121652324.html)
-- Apr 26 - [Construction worker airlifted off Bryan County megasite after suffering chest injury](https://www.yahoo.com/news/construction-worker-airlifted-off-bryan-124857366.html)
+- Apr 26 - [Sen. Chris Murphy's 'emergency' message about Trump is connecting with Democratic voters](https://www.yahoo.com/news/sen-chris-murphys-emergency-message-121544422.html)
 - Apr 26 - [Authorities make disturbing discovery after national park raid leads to multiple arrests: 'They weren't aware'](https://www.yahoo.com/news/authorities-disturbing-discovery-national-park-101546680.html)
 - Apr 26 - [Scientists flag disturbing trends emerging among large mammals: 'Animals are increasingly compelled ...'](https://www.yahoo.com/news/scientists-flag-disturbing-trends-emerging-100009282.html)
 - Apr 26 - [Trump pays his respects to a pope who publicly and pointedly disagreed with him over the years](https://www.yahoo.com/news/trump-pay-respects-pope-publicly-040617779.html)
