@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 27 - [Weekly Horoscope: April 27-May 3: Unexpected Obstacles Force Us to Pivot](https://www.yahoo.com/lifestyle/weekly-horoscope-april-27-may-130000702.html)
 - Apr 27 - [Made-in-US clothing company CEO says tariffs are boosting demand](https://finance.yahoo.com/video/made-us-clothing-company-ceo-120052367.html)
-- Apr 27 - [How US brands in China are being impacted by the trade war](https://finance.yahoo.com/video/us-brands-china-being-impacted-114506728.html)
+- Apr 27 - [SpaceX Trounces Boeing and Lockheed as Space Force Hands Out $13 Billion in Launch Contracts](https://finance.yahoo.com/news/spacex-trounces-boeing-lockheed-space-100600469.html)
+- Apr 27 - [Donald Trump went after one of America's top law firms. Its decision to fight back took just two hours.](https://www.yahoo.com/news/donald-trump-went-one-americas-100002824.html)
 - Apr 27 - [China may make a ‘retaliatory’ move that experts say will ‘hit' US homeowners 'hard.' Here's what's happening](https://finance.yahoo.com/news/china-may-retaliatory-move-experts-095500223.html)
-- Apr 27 - [An Ohio doctor killed his wife 36 years ago. As his parole hearing nears, his son wrestles with his emotions](https://www.yahoo.com/news/ohio-doctor-killed-wife-36-093050914.html)
-- Apr 27 - [Putin orders Russian emergency planes to Iran after blast at port of Bandar Abbas](https://www.yahoo.com/news/putin-offers-iran-russian-help-090744319.html)
 <!-- feed end -->
 
 ### Onstream
