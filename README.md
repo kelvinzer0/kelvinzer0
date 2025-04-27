@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [Arrest made in the theft of Kristi Noem’s purse and thousands in cash, source says](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
-- Apr 27 - [Video shows moment of the explosion at Iran's Bandar Abbas port](https://www.yahoo.com/news/video-shows-moment-explosion-irans-162036722.html)
-- Apr 27 - [Over 100 immigrants arrested in raid on underground Colorado nightclub where active-duty military members worked, feds say](https://www.yahoo.com/news/over-100-immigrants-arrested-raid-151806266.html)
-- Apr 27 - [Three rounds of severe weather expected Monday in southeast Wisconsin](https://www.yahoo.com/news/three-rounds-severe-weather-expected-151257145.html)
+- Apr 27 - [Florida House halts Hope Florida investigation](https://www.yahoo.com/news/florida-house-halts-hope-florida-193522605.html)
 - Apr 27 - [Bessent does not back up Trump on China tariff discussions](https://www.yahoo.com/news/trump-cabinet-members-clash-tariff-142941464.html)
+- Apr 27 - [A Common Pill May Shorten Life Expectancy by Nearly 6 Years, According to Doctors](https://www.yahoo.com/lifestyle/common-pill-may-shorten-life-142500672.html)
+- Apr 27 - [China's Huawei develops new AI chip, seeking to match Nvidia, WSJ reports](https://finance.yahoo.com/news/chinas-huawei-develops-ai-chip-134317291.html)
+- Apr 27 - [A Cardiologist Says This Is the Worst Food for Heart Health](https://www.yahoo.com/lifestyle/cardiologist-says-worst-food-heart-133000339.html)
 <!-- feed end -->
 
 ### Onstream
