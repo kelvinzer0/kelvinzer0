@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 27 - [Village 'worst-affected' by HS2 is cut in half by massive 700m train tunnel](https://www.yahoo.com/news/village-worst-affected-hs2-cut-071731259.html)
 - Apr 27 - [Toyota considers investing in potential $42 billion buyout of key supplier](https://finance.yahoo.com/news/toyota-considers-investing-potential-42-070713401.html)
-- Apr 27 - [Car kills and injures people attending street festival in Vancouver](https://www.yahoo.com/news/car-kills-injures-people-attending-054109070.html)
+- Apr 27 - [Multiple people killed and injured when car plows into Vancouver street festival crowd](https://www.yahoo.com/news/car-kills-injures-people-attending-054109070.html)
 - Apr 27 - [Shocked by US peace proposal, Ukrainians say they will not accept any formal surrender of Crimea](https://www.yahoo.com/news/shocked-us-peace-proposal-ukrainians-051108261.html)
-- Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
-- Apr 26 - [Remember Zuckerberg's Cherished Metaverse? Now He's Firing the People He Hired to Build It](https://finance.yahoo.com/news/remember-zuckerbergs-cherished-metaverse-now-160000653.html)
+- Apr 26 - [Palestinian leader Abbas names likely successor in bid to reassure world powers](https://www.yahoo.com/news/palestinian-leader-abbas-names-likely-171913425.html)
 <!-- feed end -->
 
 ### Onstream
