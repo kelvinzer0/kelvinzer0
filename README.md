@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 27 - [Marco Rubio And Trump's Border Czar Defend Deportation Of U.S. Citizen Children](https://www.yahoo.com/news/marco-rubio-former-ice-director-180224220.html)
+- Apr 27 - [Death toll rises after driver plows through crowd in Vancouver](https://www.yahoo.com/news/driver-plows-crowd-vancouver-killing-145542042.html)
+- Apr 27 - [Video shows moment of the explosion at Iran's Bandar Abbas port](https://www.yahoo.com/news/video-shows-moment-explosion-irans-162036722.html)
 - Apr 27 - [Over 100 immigrants arrested in raid on underground Colorado nightclub where active-duty military members worked, feds say](https://www.yahoo.com/news/over-100-immigrants-arrested-raid-151806266.html)
-- Apr 27 - [Trump cabinet members clash on tariff talks with China](https://www.yahoo.com/news/trump-cabinet-members-clash-tariff-142941464.html)
-- Apr 27 - [China's Huawei develops new AI chip, seeking to match Nvidia, WSJ reports](https://finance.yahoo.com/news/chinas-huawei-develops-ai-chip-134317291.html)
-- Apr 27 - [The Trump Administration Just Made Catastrophic Cuts That Will Affect You Or Someone You Know](https://www.yahoo.com/news/trump-administration-just-made-catastrophic-130008380.html)
-- Apr 27 - [Made-in-US clothing company CEO says tariffs are boosting demand](https://finance.yahoo.com/video/made-us-clothing-company-ceo-120052367.html)
+- Apr 27 - [Three rounds of severe weather expected Monday in southeast Wisconsin](https://www.yahoo.com/news/three-rounds-severe-weather-expected-151257145.html)
 <!-- feed end -->
 
 ### Onstream
