@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 27 - [Arrest made in the theft of Kristi Noem’s purse and thousands in cash, source says](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
-- Apr 26 - [Quantum computing gears up for its 'ChatGPT Moment' — and a potential talent shortage](https://tech.yahoo.com/science/articles/quantum-computing-gears-chatgpt-moment-235952579.html)
-- Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
 - Apr 26 - [Huge blast at key Iranian port kills 14 and injures more than 750](https://www.yahoo.com/news/least-500-injured-large-explosion-115214150.html)
-- Apr 26 - [Northern California deputies intercept semi-truck full of cocaine from Mexican border](https://www.yahoo.com/news/northern-california-deputies-intercept-semi-183859274.html)
+- Apr 26 - [Palestinian leader Abbas names likely successor in bid to reassure world powers](https://www.yahoo.com/news/palestinian-leader-abbas-names-likely-171913425.html)
+- Apr 26 - [Warren Buffett: 13 Easy Money Tips That Can Work for Anyone](https://finance.yahoo.com/news/warren-buffett-14-simplest-pieces-230010894.html)
+- Apr 26 - [Severe storms brewing: Kansas City braces for tornadoes, hail, damaging winds](https://www.yahoo.com/news/severe-storms-brewing-kansas-city-153710687.html)
 <!-- feed end -->
 
 ### Onstream
