@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [Village 'worst-affected' by HS2 is cut in half by massive 700m train tunnel](https://www.yahoo.com/news/village-worst-affected-hs2-cut-071731259.html)
-- Apr 27 - [Toyota considers investing in potential $42 billion buyout of key supplier](https://finance.yahoo.com/news/toyota-considers-investing-potential-42-070713401.html)
-- Apr 27 - [Multiple people killed and injured when car plows into Vancouver street festival crowd](https://www.yahoo.com/news/car-kills-injures-people-attending-054109070.html)
-- Apr 27 - [Shocked by US peace proposal, Ukrainians say they will not accept any formal surrender of Crimea](https://www.yahoo.com/news/shocked-us-peace-proposal-ukrainians-051108261.html)
-- Apr 26 - [Palestinian leader Abbas names likely successor in bid to reassure world powers](https://www.yahoo.com/news/palestinian-leader-abbas-names-likely-171913425.html)
+- Apr 27 - [Witnesses recount scene after 9 killed by car plowing into Vancouver festival crowd](https://www.yahoo.com/news/witnesses-recount-scene-9-killed-110844020.html)
+- Apr 27 - [Nine people killed after car plows into crowd at Vancouver Filipino festival](https://www.yahoo.com/news/number-people-killed-car-drives-053353820.html)
+- Apr 27 - [Billionaires Are Losing Wealth, But Warren Buffett Is Getting Richer — Here’s Why](https://finance.yahoo.com/news/billionaires-losing-wealth-warren-buffett-100128828.html)
+- Apr 27 - [Can Buffett Bets Like Coke, Food Brands Recession-Proof Your Portfolio?](https://finance.yahoo.com/video/buffett-bets-coke-food-brands-100000546.html)
+- Apr 27 - [China may make a ‘retaliatory’ move that experts say will ‘hit' US homeowners 'hard.' Here's what's happening](https://finance.yahoo.com/news/china-may-retaliatory-move-experts-095500223.html)
 <!-- feed end -->
 
 ### Onstream
