@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [Rare diseases often go undiagnosed or untreated in parts of Africa. A project seeks to change that](https://www.yahoo.com/news/rare-diseases-often-undiagnosed-untreated-041640773.html)
-- Apr 27 - [The FBI mistakenly raided their Atlanta home. Now the Supreme Court will hear their lawsuit](https://www.yahoo.com/news/fbi-mistakenly-raided-atlanta-home-041235015.html)
-- Apr 27 - [Surgeons Are Revealing Their Wildest And Scariest Moments They've Had Mid-Procedure, And I'm Screaming](https://www.yahoo.com/lifestyle/surgeons-revealing-wildest-scariest-moments-033103854.html)
 - Apr 27 - [Arrest made in the theft of Kristi Noem’s purse and thousands in cash, source says](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
-- Apr 26 - [21 Photos Of Employers From Hell That Seem Photoshopped, But Are, Unfortunately, 100% Real](https://www.yahoo.com/lifestyle/im-seething-looking-21-photos-203102527.html)
+- Apr 27 - [Out Of The Four Grandparents, A Study Has Shown This One Has The Deepest Impact On Their Grandkids](https://www.yahoo.com/lifestyle/four-grandparents-study-shown-one-001602771.html)
+- Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
+- Apr 26 - [Severe storms brewing: Kansas City braces for tornadoes, hail, damaging winds](https://www.yahoo.com/news/severe-storms-brewing-kansas-city-153710687.html)
+- Apr 26 - [14 MAGA Voters Are Finally Realizing What They Voted For, And The Stories Are Shocking](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
 <!-- feed end -->
 
 ### Onstream
