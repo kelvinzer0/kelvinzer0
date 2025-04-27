@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 27 - [Arrest made in the theft of Kristi Noem’s purse and thousands in cash, source says](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
-- Apr 27 - [Out Of The Four Grandparents, A Study Has Shown This One Has The Deepest Impact On Their Grandkids](https://www.yahoo.com/lifestyle/four-grandparents-study-shown-one-001602771.html)
-- Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
-- Apr 26 - [Severe storms brewing: Kansas City braces for tornadoes, hail, damaging winds](https://www.yahoo.com/news/severe-storms-brewing-kansas-city-153710687.html)
-- Apr 26 - [14 MAGA Voters Are Finally Realizing What They Voted For, And The Stories Are Shocking](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
+- Apr 27 - [‘Number of people killed’ after car drives into crowd at Vancouver Filipino festival](https://www.yahoo.com/news/number-people-killed-car-drives-053353820.html)
+- Apr 27 - [Shocked by US peace proposal, Ukrainians say they will not accept any formal surrender of Crimea](https://www.yahoo.com/news/shocked-us-peace-proposal-ukrainians-051108261.html)
+- Apr 27 - [The FBI mistakenly raided their Atlanta home. Now the Supreme Court will hear their lawsuit](https://www.yahoo.com/news/fbi-mistakenly-raided-atlanta-home-041235015.html)
+- Apr 26 - [Remember Zuckerberg's Cherished Metaverse? Now He's Firing the People He Hired to Build It](https://finance.yahoo.com/news/remember-zuckerbergs-cherished-metaverse-now-160000653.html)
 <!-- feed end -->
 
 ### Onstream
