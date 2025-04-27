@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [‘Number of people killed’ after car plows into crowd at Vancouver Filipino festival](https://www.yahoo.com/news/number-people-killed-car-drives-053353820.html)
+- Apr 27 - [Toyota considers investing in potential $42 billion buyout of key supplier](https://finance.yahoo.com/news/toyota-considers-investing-potential-42-070713401.html)
+- Apr 27 - [Car kills and injures people attending street festival in Vancouver](https://www.yahoo.com/news/car-kills-injures-people-attending-054109070.html)
 - Apr 27 - [Shocked by US peace proposal, Ukrainians say they will not accept any formal surrender of Crimea](https://www.yahoo.com/news/shocked-us-peace-proposal-ukrainians-051108261.html)
-- Apr 27 - [The FBI mistakenly raided their Atlanta home. Now the Supreme Court will hear their lawsuit](https://www.yahoo.com/news/fbi-mistakenly-raided-atlanta-home-041235015.html)
-- Apr 27 - [Out Of The Four Grandparents, A Study Has Shown This One Has The Deepest Impact On Their Grandkids](https://www.yahoo.com/lifestyle/four-grandparents-study-shown-one-001602771.html)
-- Apr 26 - [Adam Schiff reveals what a San Francisco cashier bluntly told him about Dems, warns party has 'major problem'](https://www.yahoo.com/news/adam-schiff-reveals-san-francisco-145319669.html)
+- Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
+- Apr 26 - [Remember Zuckerberg's Cherished Metaverse? Now He's Firing the People He Hired to Build It](https://finance.yahoo.com/news/remember-zuckerbergs-cherished-metaverse-now-160000653.html)
 <!-- feed end -->
 
 ### Onstream
