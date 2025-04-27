@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 27 - [Salem double murder victim identified as Arizona man](https://www.yahoo.com/news/salem-double-murder-victim-identified-135108625.html)
-- Apr 27 - [Man in hospital after crash between car and bike](https://www.yahoo.com/news/road-closed-crash-leaves-one-193547714.html)
+- Apr 27 - [Family of Rock Hill shooting victim says shooter was friends with victim, left him at scene](https://www.yahoo.com/news/family-rock-hill-shooting-victim-222014336.html)
+- Apr 27 - [Intel: Now Or Never](https://finance.yahoo.com/news/intel-now-never-211531749.html)
+- Apr 27 - [AP Top Stories April 27](https://www.yahoo.com/news/ap-top-stories-april-27-211444346.html)
 - Apr 27 - [Trump says Columbus Day will now just be Columbus Day](https://www.yahoo.com/news/trump-says-columbus-day-now-194809312.html)
-- Apr 27 - [21 Hilarious Tweets From April That Made My Entire Month 1,000% Times Better](https://www.yahoo.com/lifestyle/lungs-physically-sore-laughing-hard-190058283.html)
-- Apr 27 - [Arrest made in the theft of Kristi Noem’s purse and thousands in cash, source says](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
 <!-- feed end -->
 
 ### Onstream
