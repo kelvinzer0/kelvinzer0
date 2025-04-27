@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [Florida House halts Hope Florida investigation](https://www.yahoo.com/news/florida-house-halts-hope-florida-193522605.html)
+- Apr 27 - [Salem double murder victim identified as Arizona man](https://www.yahoo.com/news/salem-double-murder-victim-identified-135108625.html)
+- Apr 27 - [Shooting in South Carolina tourist town of Myrtle Beach leaves 11 wounded, police fatally shoot 1](https://www.yahoo.com/news/shooting-south-carolina-tourist-town-202000605.html)
+- Apr 27 - [Trump says Columbus Day will now just be Columbus Day](https://www.yahoo.com/news/trump-says-columbus-day-now-194809312.html)
 - Apr 27 - [Bessent does not back up Trump on China tariff discussions](https://www.yahoo.com/news/trump-cabinet-members-clash-tariff-142941464.html)
 - Apr 27 - [A Common Pill May Shorten Life Expectancy by Nearly 6 Years, According to Doctors](https://www.yahoo.com/lifestyle/common-pill-may-shorten-life-142500672.html)
-- Apr 27 - [China's Huawei develops new AI chip, seeking to match Nvidia, WSJ reports](https://finance.yahoo.com/news/chinas-huawei-develops-ai-chip-134317291.html)
-- Apr 27 - [A Cardiologist Says This Is the Worst Food for Heart Health](https://www.yahoo.com/lifestyle/cardiologist-says-worst-food-heart-133000339.html)
 <!-- feed end -->
 
 ### Onstream
