@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 27 - [Over 100 immigrants arrested in raid on underground Colorado nightclub where active-duty military members worked, feds say](https://www.yahoo.com/news/over-100-immigrants-arrested-raid-151806266.html)
 - Apr 27 - [Trump cabinet members clash on tariff talks with China](https://www.yahoo.com/news/trump-cabinet-members-clash-tariff-142941464.html)
-- Apr 27 - [Republicans in the toughest swing districts become hard to find for people angry about Trump](https://www.yahoo.com/news/republicans-toughest-swing-districts-become-125425195.html)
-- Apr 27 - [Robert Kiyosaki warns of a 'Greater Depression' coming to the US — but points at 2 'easy-money' assets](https://finance.yahoo.com/news/robert-kiyosaki-warns-greater-depression-114000983.html)
-- Apr 27 - [21 People Who Confidently Posted Something Very, Very, Very, Very Very, Very, Very, Very Dumb Online](https://www.yahoo.com/lifestyle/21-people-confidently-posted-something-113103046.html)
+- Apr 27 - [China's Huawei develops new AI chip, seeking to match Nvidia, WSJ reports](https://finance.yahoo.com/news/chinas-huawei-develops-ai-chip-134317291.html)
+- Apr 27 - [The Trump Administration Just Made Catastrophic Cuts That Will Affect You Or Someone You Know](https://www.yahoo.com/news/trump-administration-just-made-catastrophic-130008380.html)
+- Apr 27 - [Made-in-US clothing company CEO says tariffs are boosting demand](https://finance.yahoo.com/video/made-us-clothing-company-ceo-120052367.html)
 <!-- feed end -->
 
 ### Onstream
