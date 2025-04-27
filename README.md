@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 27 - [Doctors Explain Exactly Why Your Skin May Look "Crepey" As You Age, And What You Can Do About It](https://www.yahoo.com/lifestyle/doctors-explain-exactly-why-skin-011602564.html)
+- Apr 27 - [Australia government touts free healthcare hotline as general election nears](https://www.yahoo.com/news/australia-government-touts-free-healthcare-005247871.html)
+- Apr 27 - [David Sacks compares Elon Musk's time at DOGE to the Twitter acquisition](https://finance.yahoo.com/news/david-sacks-compares-elon-musks-004453951.html)
+- Apr 27 - [The most prolific tornado outbreak tore grass out of the ground](https://www.yahoo.com/news/most-prolific-tornado-outbreak-tore-002559509.html)
 - Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
-- Apr 26 - [Huge blast at key Iranian port kills 14 and injures more than 750](https://www.yahoo.com/news/least-500-injured-large-explosion-115214150.html)
-- Apr 26 - [Palestinian leader Abbas names likely successor in bid to reassure world powers](https://www.yahoo.com/news/palestinian-leader-abbas-names-likely-171913425.html)
-- Apr 26 - [ICE deports immigrant mother of an infant and 3 children who are US citizens, lawyers say](https://www.yahoo.com/news/ice-deports-mother-breastfeeding-infant-165457596.html)
-- Apr 26 - [14 MAGA Voters Are Finally Realizing What They Voted For, And The Stories Are Shocking](https://www.yahoo.com/news/donald-trump-supporters-waking-reality-151907165.html)
 <!-- feed end -->
 
 ### Onstream
