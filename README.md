@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [Made-in-US clothing company CEO says tariffs are boosting demand](https://finance.yahoo.com/video/made-us-clothing-company-ceo-120052367.html)
-- Apr 27 - [3 Growth Stocks Down 30% or More to Buy Right Now](https://finance.yahoo.com/news/3-growth-stocks-down-30-104500501.html)
-- Apr 27 - [Researchers uncover growing dangers lurking beneath Greenland's ice: 'Damaging critical infrastructure'](https://www.yahoo.com/news/researchers-uncover-growing-dangers-lurking-103047585.html)
-- Apr 27 - [Donald Trump went after one of America's top law firms. Its decision to fight back took just two hours.](https://www.yahoo.com/news/donald-trump-went-one-americas-100002824.html)
-- Apr 27 - [China may make a ‘retaliatory’ move that experts say will ‘hit' US homeowners 'hard.' Here's what's happening](https://finance.yahoo.com/news/china-may-retaliatory-move-experts-095500223.html)
+- Apr 27 - [Queen Mother’s castle threatened by ‘industrial eyesore’](https://www.yahoo.com/news/queen-mother-castle-threatened-industrial-143440326.html)
+- Apr 27 - [Ron and Casey DeSantis were plotting a political dynasty in Florida. Then came a scandal](https://www.yahoo.com/news/ron-casey-desantis-were-plotting-130052170.html)
+- Apr 27 - [Republicans in the toughest swing districts become hard to find for people angry about Trump](https://www.yahoo.com/news/republicans-toughest-swing-districts-become-125425195.html)
+- Apr 27 - [21 People Who Confidently Posted Something Very, Very, Very, Very Very, Very, Very, Very Dumb Online](https://www.yahoo.com/lifestyle/21-people-confidently-posted-something-113103046.html)
+- Apr 27 - [IBM makes head-turning decision about its technology that could have global impact: 'This is an incredibly exciting time'](https://tech.yahoo.com/science/articles/ibm-makes-head-turning-decision-110033273.html)
 <!-- feed end -->
 
 ### Onstream
