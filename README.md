@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [Witnesses recount scene after 9 killed by car plowing into Vancouver festival crowd](https://www.yahoo.com/news/witnesses-recount-scene-9-killed-110844020.html)
-- Apr 27 - [Nine people killed after car plows into crowd at Vancouver Filipino festival](https://www.yahoo.com/news/number-people-killed-car-drives-053353820.html)
-- Apr 27 - [Billionaires Are Losing Wealth, But Warren Buffett Is Getting Richer — Here’s Why](https://finance.yahoo.com/news/billionaires-losing-wealth-warren-buffett-100128828.html)
-- Apr 27 - [Can Buffett Bets Like Coke, Food Brands Recession-Proof Your Portfolio?](https://finance.yahoo.com/video/buffett-bets-coke-food-brands-100000546.html)
+- Apr 27 - [Made-in-US clothing company CEO says tariffs are boosting demand](https://finance.yahoo.com/video/made-us-clothing-company-ceo-120052367.html)
+- Apr 27 - [How US brands in China are being impacted by the trade war](https://finance.yahoo.com/video/us-brands-china-being-impacted-114506728.html)
 - Apr 27 - [China may make a ‘retaliatory’ move that experts say will ‘hit' US homeowners 'hard.' Here's what's happening](https://finance.yahoo.com/news/china-may-retaliatory-move-experts-095500223.html)
+- Apr 27 - [An Ohio doctor killed his wife 36 years ago. As his parole hearing nears, his son wrestles with his emotions](https://www.yahoo.com/news/ohio-doctor-killed-wife-36-093050914.html)
+- Apr 27 - [Putin orders Russian emergency planes to Iran after blast at port of Bandar Abbas](https://www.yahoo.com/news/putin-offers-iran-russian-help-090744319.html)
 <!-- feed end -->
 
 ### Onstream
