@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 27 - [Doctors Explain Exactly Why Your Skin May Look "Crepey" As You Age, And What You Can Do About It](https://www.yahoo.com/lifestyle/doctors-explain-exactly-why-skin-011602564.html)
-- Apr 27 - [Australia government touts free healthcare hotline as general election nears](https://www.yahoo.com/news/australia-government-touts-free-healthcare-005247871.html)
-- Apr 27 - [David Sacks compares Elon Musk's time at DOGE to the Twitter acquisition](https://finance.yahoo.com/news/david-sacks-compares-elon-musks-004453951.html)
-- Apr 27 - [The most prolific tornado outbreak tore grass out of the ground](https://www.yahoo.com/news/most-prolific-tornado-outbreak-tore-002559509.html)
+- Apr 27 - [Arrest made in the theft of Kristi Noem’s purse and thousands in cash, source says](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
+- Apr 26 - [Quantum computing gears up for its 'ChatGPT Moment' — and a potential talent shortage](https://tech.yahoo.com/science/articles/quantum-computing-gears-chatgpt-moment-235952579.html)
 - Apr 26 - [Wife of US Coast Guard member arrested over expired visa after security check for military housing](https://www.yahoo.com/news/wife-us-coast-guard-member-221556191.html)
+- Apr 26 - [Huge blast at key Iranian port kills 14 and injures more than 750](https://www.yahoo.com/news/least-500-injured-large-explosion-115214150.html)
+- Apr 26 - [Northern California deputies intercept semi-truck full of cocaine from Mexican border](https://www.yahoo.com/news/northern-california-deputies-intercept-semi-183859274.html)
 <!-- feed end -->
 
 ### Onstream
