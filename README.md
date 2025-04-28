@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [It's 'game over' for Nvidia in China: Huawei's reported new chip](https://finance.yahoo.com/video/game-over-nvidia-china-huaweis-155523767.html)
-- Apr 28 - [Schoolgirl stabbed two teachers during break to have ‘biggest audience possible’](https://www.yahoo.com/news/schoolgirl-stabbed-two-teachers-during-154901172.html)
-- Apr 28 - [Herkimer County Legislature chair Robert Hollum in jail for allegedly violating probation](https://www.yahoo.com/news/herkimer-county-legislature-chair-robert-152610793.html)
-- Apr 28 - [Search for man leads to South Bend SWAT standoff; over 150 grams of suspected drugs found](https://www.yahoo.com/news/search-man-leads-south-bend-152345370.html)
-- Apr 28 - [Footfall up on town's main route during revamp](https://www.yahoo.com/news/footfall-towns-main-route-during-152102644.html)
+- Apr 28 - [President Trump approves individual disaster assistance for Kentucky after April floods](https://www.yahoo.com/news/president-trump-approves-individual-disaster-162921026.html)
+- Apr 28 - [Opinion | The calamitous influence of Stephen Miller has become impossible to ignore](https://www.yahoo.com/news/opinion-calamitous-influence-stephen-miller-161329585.html)
+- Apr 28 - [Severe weather in forecast for Green Bay area, including hail, possible tornadoes](https://www.yahoo.com/news/severe-weather-forecast-green-bay-161112562.html)
+- Apr 28 - [Amazon deal of the day: Another $50 price drop on the M4 MacBook Air? Yes, please.](https://tech.yahoo.com/deals/articles/amazon-deal-day-another-50-161042038.html)
+- Apr 28 - [FCC chair says 'all options' open in CBS '60 Minutes' news distortion review](https://www.yahoo.com/news/fcc-chair-says-options-open-155858278.html)
 <!-- feed end -->
 
 ### Onstream
