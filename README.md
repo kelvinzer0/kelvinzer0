@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 28 - [Why consumers are 'still spending' despite economic uncertainty](https://finance.yahoo.com/video/why-consumers-still-spending-despite-215403281.html)
 - Apr 28 - [Philippines security official disputes China's statement over disputed South China Sea outcropping](https://www.yahoo.com/news/philippines-security-official-disputes-chinas-203959810.html)
-- Apr 28 - [Dem Says ICE Took Florida Mom From Baby, Unlawfully Deported Her To Cuba](https://www.yahoo.com/news/dem-says-ice-took-florida-203542780.html)
-- Apr 28 - [Stock Market Today: Dow Jones Up But Nvidia Falls On New China Threat; Cathie Wood Loads Up On This Stock Amid 76% Dive (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-nasdaq-sp500-treasury-secretary-scott-bessent-china-microsoft-apple-meta-platforms-amazon/?src=A00220&yptr=yahoo)
 - Apr 28 - [Russian regulators are trying to seize assets from the developers of World of Tanks](https://tech.yahoo.com/article/russian-regulators-are-trying-to-seize-assets-from-the-developers-of-world-of-tanks-202157310.html)
+- Apr 28 - [Why Shaq Won't Share His $500 Million Fortune With His Kids: 'We Ain't Rich. I'm Rich. I'm Not Going to Hand It to You, You Gotta Earn It'](https://finance.yahoo.com/news/why-shaq-wont-share-500-200212376.html)
 - Apr 28 - [Flights from India to Europe and North America are taking 4 extra hours and requiring fuel stops as airlines avoid Pakistan](https://www.yahoo.com/news/flights-india-europe-north-america-200140266.html)
 <!-- feed end -->
 
