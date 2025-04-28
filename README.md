@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [’60 Minutes’ Calls Out Paramount for Executive Producer’s Exit in Rare On-Air Rebuke](https://www.yahoo.com/news/60-minutes-calls-paramount-executive-005640257.html)
+- Apr 28 - [20 Things Employers Don't Want Employees To Know That We Absolutely Should Know](https://www.yahoo.com/lifestyle/20-things-employers-dont-want-023102416.html)
+- Apr 28 - [Amid Trump tariffs, China's trade and economy tsar steps into spotlight](https://finance.yahoo.com/news/amid-trump-tariffs-chinas-trade-020111519.html)
 - Apr 28 - [Elementary school custodian charged with pandering obscenities of a minor](https://www.yahoo.com/news/elementary-school-custodian-charged-pandering-003543010.html)
-- Apr 27 - [North Korea confirms that it dispatched troops to Russia to support its war against Ukraine](https://www.yahoo.com/news/north-korea-confirms-dispatch-troops-234238040.html)
-- Apr 27 - [Autopsy Reveals Tragic New Details In Gene Hackman's Death](https://www.yahoo.com/news/autopsy-reveals-tragic-details-gene-212251444.html)
-- Apr 27 - [Trump says Columbus Day will now just be Columbus Day](https://www.yahoo.com/news/trump-says-columbus-day-now-194809312.html)
+- Apr 28 - [Gene Hackman's Final Autopsy Reveals New Health Details](https://www.yahoo.com/news/gene-hackmans-final-autopsy-reveals-002500464.html)
+- Apr 27 - [Shooting at North Carolina university leaves 1 dead, 6 injured](https://www.yahoo.com/news/shooting-north-carolina-university-leaves-215322133.html)
 <!-- feed end -->
 
 ### Onstream
