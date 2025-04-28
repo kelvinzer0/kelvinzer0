@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Nvidia stock falls as China's Huawei reportedly readies AI chip after Trump's export ban](https://finance.yahoo.com/news/nvidia-stock-falls-as-chinas-huawei-reportedly-readies-ai-chip-after-trumps-export-ban-135156741.html)
-- Apr 28 - [Exclusive-Pakistan defence minister says military incursion by India is imminent](https://www.yahoo.com/news/exclusive-pakistan-defence-minister-says-133437051.html)
-- Apr 28 - [African diplomats urge UK government to back bill to speed up debt restructurings](https://www.yahoo.com/news/african-diplomats-want-british-government-132119642.html)
-- Apr 28 - [Ocean Boulevard gunfire: What we know about the Myrtle Beach mass shooting that left one dead](https://www.yahoo.com/news/ocean-boulevard-gunfire-know-myrtle-131533537.html)
-- Apr 28 - [Every bite of ultraprocessed food will increase your chance of an early death, major new study says](https://www.yahoo.com/lifestyle/chance-early-death-rises-every-040550478.html)
+- Apr 28 - [Menopause and hair loss in women: Treatment options and and how to prevent it](https://www.yahoo.com/lifestyle/menopause-and-hair-loss-130225506.html)
+- Apr 28 - [Don’t be deceived: Putin is taking Trump for a fool](https://www.yahoo.com/news/don-t-deceived-putin-taking-145629971.html)
+- Apr 28 - [Badenoch calls for Kneecap prosecution](https://www.yahoo.com/news/badenoch-calls-kneecap-prosecution-142249265.html)
+- Apr 28 - [China Insight: Under Dual Pressures of Tariffs and Inventory, China’s Fashion Industry Seeks a New Breakthrough](https://finance.yahoo.com/news/china-insight-under-dual-pressures-140100783.html)
+- Apr 28 - [As the Vatican prepares a conclave, the status of a once-powerful Italian cardinal looms](https://www.yahoo.com/news/vatican-prepares-conclave-status-once-134718363.html)
 <!-- feed end -->
 
 ### Onstream
