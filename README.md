@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [President Trump approves individual disaster assistance for Kentucky after April floods](https://www.yahoo.com/news/president-trump-approves-individual-disaster-162921026.html)
-- Apr 28 - [Opinion | The calamitous influence of Stephen Miller has become impossible to ignore](https://www.yahoo.com/news/opinion-calamitous-influence-stephen-miller-161329585.html)
-- Apr 28 - [Severe weather in forecast for Green Bay area, including hail, possible tornadoes](https://www.yahoo.com/news/severe-weather-forecast-green-bay-161112562.html)
-- Apr 28 - [Amazon deal of the day: Another $50 price drop on the M4 MacBook Air? Yes, please.](https://tech.yahoo.com/deals/articles/amazon-deal-day-another-50-161042038.html)
-- Apr 28 - [FCC chair says 'all options' open in CBS '60 Minutes' news distortion review](https://www.yahoo.com/news/fcc-chair-says-options-open-155858278.html)
+- Apr 28 - [“60 Minutes” Rattles Viewers with Stunning Closing Segment, Implies That Trump Administration Is Pressuring Their Coverage](https://www.yahoo.com/news/60-minutes-rattles-viewers-stunning-174136697.html)
+- Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
+- Apr 28 - [Georgia Man Facing Murder Charges After Allegedly Concealing HIV-Positive Status from Wife Before Her Death](https://www.yahoo.com/news/georgia-man-facing-murder-charges-155649769.html)
+- Apr 28 - [It's 'game over' for Nvidia in China: Huawei's reported new chip](https://finance.yahoo.com/video/game-over-nvidia-china-huaweis-155523767.html)
+- Apr 28 - [Rare atmospheric phenomenon blamed for Iberian power outage](https://www.yahoo.com/news/rare-atmospheric-phenomenon-blamed-iberian-155037679.html)
 <!-- feed end -->
 
 ### Onstream
