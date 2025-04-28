@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Dispute Between China and Philippines Escalates With Competing Flag Displays on Sandbanks](https://www.yahoo.com/news/dispute-between-china-philippines-escalates-124644494.html)
+- Apr 28 - [Spain and Portugal hit by massive power outage causing blackouts](https://www.yahoo.com/news/spain-portugal-hit-massive-power-115725242.html)
+- Apr 28 - [Bishop T.D. Jakes steps down from megachurch, hands leadership to daughter and son-in-law](https://www.yahoo.com/news/bishop-t-d-jakes-steps-130713680.html)
+- Apr 28 - [America tells Musk that they dislike him and don’t think he has helped cut government waste](https://finance.yahoo.com/news/america-tells-musk-dislike-him-125452434.html)
 - Apr 28 - [At least 12 killed after speeding van hits bike and falls into well](https://www.yahoo.com/news/least-12-killed-speeding-van-120444483.html)
 - Apr 28 - [SSI recipients will get two checks in May. See the full 2025 schedule](https://finance.yahoo.com/news/ssi-recipients-two-checks-may-120101307.html)
-- Apr 28 - [US says North Korea’s military deployment for Russia’s war in Ukraine must end](https://www.yahoo.com/news/us-asks-north-korea-stop-112917170.html)
-- Apr 28 - [Family speaks out after Air Force veteran, 62, was ‘left to die by American Airlines crew who allowed entire plane to deboard before he got help’](https://www.yahoo.com/news/family-speaks-air-force-veteran-110732306.html)
 <!-- feed end -->
 
 ### Onstream
