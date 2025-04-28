@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Menopause and hair loss in women: Treatment options and and how to prevent it](https://www.yahoo.com/lifestyle/menopause-and-hair-loss-130225506.html)
-- Apr 28 - [Don’t be deceived: Putin is taking Trump for a fool](https://www.yahoo.com/news/don-t-deceived-putin-taking-145629971.html)
-- Apr 28 - [Badenoch calls for Kneecap prosecution](https://www.yahoo.com/news/badenoch-calls-kneecap-prosecution-142249265.html)
-- Apr 28 - [China Insight: Under Dual Pressures of Tariffs and Inventory, China’s Fashion Industry Seeks a New Breakthrough](https://finance.yahoo.com/news/china-insight-under-dual-pressures-140100783.html)
-- Apr 28 - [As the Vatican prepares a conclave, the status of a once-powerful Italian cardinal looms](https://www.yahoo.com/news/vatican-prepares-conclave-status-once-134718363.html)
+- Apr 28 - [It's 'game over' for Nvidia in China: Huawei's reported new chip](https://finance.yahoo.com/video/game-over-nvidia-china-huaweis-155523767.html)
+- Apr 28 - [Schoolgirl stabbed two teachers during break to have ‘biggest audience possible’](https://www.yahoo.com/news/schoolgirl-stabbed-two-teachers-during-154901172.html)
+- Apr 28 - [Herkimer County Legislature chair Robert Hollum in jail for allegedly violating probation](https://www.yahoo.com/news/herkimer-county-legislature-chair-robert-152610793.html)
+- Apr 28 - [Search for man leads to South Bend SWAT standoff; over 150 grams of suspected drugs found](https://www.yahoo.com/news/search-man-leads-south-bend-152345370.html)
+- Apr 28 - [Footfall up on town's main route during revamp](https://www.yahoo.com/news/footfall-towns-main-route-during-152102644.html)
 <!-- feed end -->
 
 ### Onstream
