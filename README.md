@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Suspect in Kardashian jewellery heist case says he will apologise and take responsibility](https://www.yahoo.com/news/suspect-kardashian-jewellery-heist-case-062239868.html)
-- Apr 28 - [Toyota Supplier Shares Set to Rise on Possible Buyout Plan](https://finance.yahoo.com/video/toyota-supplier-shares-set-rise-040613354.html)
-- Apr 28 - [2 men charged with cutting down the beloved Sycamore Gap tree are going on trial in northern England](https://www.yahoo.com/news/2-men-charged-cutting-down-040537247.html)
-- Apr 28 - [Gene Hackman's Final Autopsy Reveals New Health Details](https://www.yahoo.com/news/gene-hackmans-final-autopsy-reveals-002500464.html)
-- Apr 27 - [Arrests made in the theft of Kristi Noem’s purse and thousands in cash](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
+- Apr 28 - [Riyadh Air CEO on Tariffs, Cabins, Orders, Deliveries](https://finance.yahoo.com/video/riyadh-air-ceo-tariffs-cabins-084856074.html)
+- Apr 28 - [Retirees in These 9 States Risk Losing Some of Their Social Security Checks](https://finance.yahoo.com/news/retirees-9-states-risk-losing-083300592.html)
+- Apr 28 - [New generation, new rules: How Gen Z drives differently](https://www.yahoo.com/lifestyle/generation-rules-gen-z-drives-081636638.html)
+- Apr 28 - [The Vatican closes the Sistine Chapel to the public and prepares for a papal conclave](https://www.yahoo.com/news/vatican-closes-sistine-chapel-public-040808124.html)
+- Apr 28 - [Over 100 immigrants arrested in raid on underground Colorado nightclub where active-duty military members worked, feds say](https://www.yahoo.com/news/over-100-immigrants-arrested-raid-151806266.html)
 <!-- feed end -->
 
 ### Onstream
