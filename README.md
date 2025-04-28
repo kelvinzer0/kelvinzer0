@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [China Quietly Giving Tariff Exemptions: AmCham China's Michael Hart](https://finance.yahoo.com/video/china-quietly-giving-tariff-exemptions-024427662.html)
-- Apr 28 - [Elementary school custodian charged with pandering obscenities of a minor](https://www.yahoo.com/news/elementary-school-custodian-charged-pandering-003543010.html)
+- Apr 28 - [China shrugs off threat of US tariffs to economy, says it has tools to protect jobs](https://www.yahoo.com/news/china-shrugs-off-threat-us-050212641.html)
+- Apr 28 - [Toyota Supplier Shares Set to Rise on Possible Buyout Plan](https://finance.yahoo.com/video/toyota-supplier-shares-set-rise-040613354.html)
+- Apr 28 - [2 men charged with cutting down the beloved Sycamore Gap tree are going on trial in northern England](https://www.yahoo.com/news/2-men-charged-cutting-down-040537247.html)
+- Apr 28 - [Motorcyclist plummets 100 feet off Southern California hillside](https://www.yahoo.com/news/motorcyclist-plummets-100-feet-off-014444188.html)
 - Apr 28 - [Gene Hackman's Final Autopsy Reveals New Health Details](https://www.yahoo.com/news/gene-hackmans-final-autopsy-reveals-002500464.html)
-- Apr 27 - [Procession for Kansas City Fire Department firefighter paramedic Graham Hoffman](https://www.yahoo.com/news/procession-kansas-city-fire-department-231707008.html)
-- Apr 27 - [Shooting at North Carolina university leaves 1 dead, 6 injured](https://www.yahoo.com/news/shooting-north-carolina-university-leaves-215322133.html)
 <!-- feed end -->
 
 ### Onstream
