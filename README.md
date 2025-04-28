@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Spain and Portugal hit by massive power outage causing blackouts](https://www.yahoo.com/news/spain-portugal-hit-massive-power-115725242.html)
-- Apr 28 - [Bishop T.D. Jakes steps down from megachurch, hands leadership to daughter and son-in-law](https://www.yahoo.com/news/bishop-t-d-jakes-steps-130713680.html)
-- Apr 28 - [America tells Musk that they dislike him and don’t think he has helped cut government waste](https://finance.yahoo.com/news/america-tells-musk-dislike-him-125452434.html)
-- Apr 28 - [At least 12 killed after speeding van hits bike and falls into well](https://www.yahoo.com/news/least-12-killed-speeding-van-120444483.html)
-- Apr 28 - [SSI recipients will get two checks in May. See the full 2025 schedule](https://finance.yahoo.com/news/ssi-recipients-two-checks-may-120101307.html)
+- Apr 28 - [Nvidia stock falls as China's Huawei reportedly readies AI chip after Trump's export ban](https://finance.yahoo.com/news/nvidia-stock-falls-as-chinas-huawei-reportedly-readies-ai-chip-after-trumps-export-ban-135156741.html)
+- Apr 28 - [Exclusive-Pakistan defence minister says military incursion by India is imminent](https://www.yahoo.com/news/exclusive-pakistan-defence-minister-says-133437051.html)
+- Apr 28 - [African diplomats urge UK government to back bill to speed up debt restructurings](https://www.yahoo.com/news/african-diplomats-want-british-government-132119642.html)
+- Apr 28 - [Ocean Boulevard gunfire: What we know about the Myrtle Beach mass shooting that left one dead](https://www.yahoo.com/news/ocean-boulevard-gunfire-know-myrtle-131533537.html)
+- Apr 28 - [Every bite of ultraprocessed food will increase your chance of an early death, major new study says](https://www.yahoo.com/lifestyle/chance-early-death-rises-every-040550478.html)
 <!-- feed end -->
 
 ### Onstream
