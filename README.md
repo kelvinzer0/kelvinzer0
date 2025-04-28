@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [20 Things Employers Don't Want Employees To Know That We Absolutely Should Know](https://www.yahoo.com/lifestyle/20-things-employers-dont-want-023102416.html)
-- Apr 28 - [Amid Trump tariffs, China's trade and economy tsar steps into spotlight](https://finance.yahoo.com/news/amid-trump-tariffs-chinas-trade-020111519.html)
+- Apr 28 - [China Quietly Giving Tariff Exemptions: AmCham China's Michael Hart](https://finance.yahoo.com/video/china-quietly-giving-tariff-exemptions-024427662.html)
 - Apr 28 - [Elementary school custodian charged with pandering obscenities of a minor](https://www.yahoo.com/news/elementary-school-custodian-charged-pandering-003543010.html)
 - Apr 28 - [Gene Hackman's Final Autopsy Reveals New Health Details](https://www.yahoo.com/news/gene-hackmans-final-autopsy-reveals-002500464.html)
+- Apr 27 - [Procession for Kansas City Fire Department firefighter paramedic Graham Hoffman](https://www.yahoo.com/news/procession-kansas-city-fire-department-231707008.html)
 - Apr 27 - [Shooting at North Carolina university leaves 1 dead, 6 injured](https://www.yahoo.com/news/shooting-north-carolina-university-leaves-215322133.html)
 <!-- feed end -->
 
