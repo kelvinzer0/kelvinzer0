@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 28 - [‘Just the beginning’: Trump tariffs force online retailers to raise prices](https://www.yahoo.com/news/just-beginning-trump-tariffs-force-182642101.html)
+- Apr 28 - [Paramedic who tended to dying cop to face cross-examination in Bellefeuille murder trial](https://www.yahoo.com/news/paramedic-tended-dying-cop-face-175142022.html)
 - Apr 28 - [“60 Minutes” Rattles Viewers with Stunning Closing Segment, Implies That Trump Administration Is Pressuring Their Coverage](https://www.yahoo.com/news/60-minutes-rattles-viewers-stunning-174136697.html)
+- Apr 28 - [Boca Bash 2025: Videos, pictures from wild boat party on Lake Boca Raton](https://www.yahoo.com/news/boca-bash-2025-videos-pictures-171945301.html)
 - Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
-- Apr 28 - [Georgia Man Facing Murder Charges After Allegedly Concealing HIV-Positive Status from Wife Before Her Death](https://www.yahoo.com/news/georgia-man-facing-murder-charges-155649769.html)
-- Apr 28 - [It's 'game over' for Nvidia in China: Huawei's reported new chip](https://finance.yahoo.com/video/game-over-nvidia-china-huaweis-155523767.html)
-- Apr 28 - [Rare atmospheric phenomenon blamed for Iberian power outage](https://www.yahoo.com/news/rare-atmospheric-phenomenon-blamed-iberian-155037679.html)
 <!-- feed end -->
 
 ### Onstream
