@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Ocean freight bookings from China to US drop 60% amid trade war](https://finance.yahoo.com/video/ocean-freight-bookings-china-us-100006547.html)
-- Apr 28 - [‘I’m going to press charges’: Local college student recalls sudden attack from group of teens](https://www.yahoo.com/news/m-going-press-charges-local-014900782.html)
-- Apr 28 - [New generation, new rules: How Gen Z drives differently](https://www.yahoo.com/lifestyle/generation-rules-gen-z-drives-081636638.html)
-- Apr 28 - [Motorcyclist plummets 100 feet off Southern California hillside](https://www.yahoo.com/news/motorcyclist-plummets-100-feet-off-014444188.html)
-- Apr 27 - [Bill O’Reilly Turns on Trump and Reveals the Huge ‘Mistake’ He Is Making](https://www.yahoo.com/news/bill-o-reilly-turns-trump-231016776.html)
+- Apr 28 - [Dispute Between China and Philippines Escalates With Competing Flag Displays on Sandbanks](https://www.yahoo.com/news/dispute-between-china-philippines-escalates-124644494.html)
+- Apr 28 - [At least 12 killed after speeding van hits bike and falls into well](https://www.yahoo.com/news/least-12-killed-speeding-van-120444483.html)
+- Apr 28 - [SSI recipients will get two checks in May. See the full 2025 schedule](https://finance.yahoo.com/news/ssi-recipients-two-checks-may-120101307.html)
+- Apr 28 - [US says North Korea’s military deployment for Russia’s war in Ukraine must end](https://www.yahoo.com/news/us-asks-north-korea-stop-112917170.html)
+- Apr 28 - [Family speaks out after Air Force veteran, 62, was ‘left to die by American Airlines crew who allowed entire plane to deboard before he got help’](https://www.yahoo.com/news/family-speaks-air-force-veteran-110732306.html)
 <!-- feed end -->
 
 ### Onstream
