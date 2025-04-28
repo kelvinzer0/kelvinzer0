@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Riyadh Air CEO on Tariffs, Cabins, Orders, Deliveries](https://finance.yahoo.com/video/riyadh-air-ceo-tariffs-cabins-084856074.html)
-- Apr 28 - [Retirees in These 9 States Risk Losing Some of Their Social Security Checks](https://finance.yahoo.com/news/retirees-9-states-risk-losing-083300592.html)
+- Apr 28 - [Ocean freight bookings from China to US drop 60% amid trade war](https://finance.yahoo.com/video/ocean-freight-bookings-china-us-100006547.html)
+- Apr 28 - [‘I’m going to press charges’: Local college student recalls sudden attack from group of teens](https://www.yahoo.com/news/m-going-press-charges-local-014900782.html)
 - Apr 28 - [New generation, new rules: How Gen Z drives differently](https://www.yahoo.com/lifestyle/generation-rules-gen-z-drives-081636638.html)
-- Apr 28 - [The Vatican closes the Sistine Chapel to the public and prepares for a papal conclave](https://www.yahoo.com/news/vatican-closes-sistine-chapel-public-040808124.html)
-- Apr 28 - [Over 100 immigrants arrested in raid on underground Colorado nightclub where active-duty military members worked, feds say](https://www.yahoo.com/news/over-100-immigrants-arrested-raid-151806266.html)
+- Apr 28 - [Motorcyclist plummets 100 feet off Southern California hillside](https://www.yahoo.com/news/motorcyclist-plummets-100-feet-off-014444188.html)
+- Apr 27 - [Bill O’Reilly Turns on Trump and Reveals the Huge ‘Mistake’ He Is Making](https://www.yahoo.com/news/bill-o-reilly-turns-trump-231016776.html)
 <!-- feed end -->
 
 ### Onstream
