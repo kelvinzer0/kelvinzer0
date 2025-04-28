@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [‘Just the beginning’: Trump tariffs force online retailers to raise prices](https://www.yahoo.com/news/just-beginning-trump-tariffs-force-182642101.html)
-- Apr 28 - [Paramedic who tended to dying cop to face cross-examination in Bellefeuille murder trial](https://www.yahoo.com/news/paramedic-tended-dying-cop-face-175142022.html)
+- Apr 28 - [US and Mexico have reached agreement on New World screwworm, Ag Secretary Rollins says](https://www.yahoo.com/news/us-mexico-reached-agreement-world-194959691.html)
+- Apr 28 - [Disability-rights arguments grow heated at Supreme Court, though sweeping ruling appears unlikely](https://www.yahoo.com/news/disability-rights-arguments-grow-heated-192752207.html)
+- Apr 28 - [Ukraine's Zelenskiy: The world does not want to wait for May 8 for ceasefire](https://www.yahoo.com/news/ukraines-zelenskiy-world-does-not-192423174.html)
+- Apr 28 - [Fighter jet slips off the hangar deck of a US aircraft carrier in the Red Sea, one minor injury](https://www.yahoo.com/news/fighter-jet-slips-off-hangar-185900944.html)
 - Apr 28 - [“60 Minutes” Rattles Viewers with Stunning Closing Segment, Implies That Trump Administration Is Pressuring Their Coverage](https://www.yahoo.com/news/60-minutes-rattles-viewers-stunning-174136697.html)
-- Apr 28 - [Boca Bash 2025: Videos, pictures from wild boat party on Lake Boca Raton](https://www.yahoo.com/news/boca-bash-2025-videos-pictures-171945301.html)
-- Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
 <!-- feed end -->
 
 ### Onstream
