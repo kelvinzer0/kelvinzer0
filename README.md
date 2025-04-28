@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Car rear-ends motorcyclist, then runs them over](https://www.yahoo.com/news/car-rear-ends-motorcyclist-then-054838922.html)
+- Apr 28 - [Suspect in Kardashian jewellery heist case says he will apologise and take responsibility](https://www.yahoo.com/news/suspect-kardashian-jewellery-heist-case-062239868.html)
 - Apr 28 - [Toyota Supplier Shares Set to Rise on Possible Buyout Plan](https://finance.yahoo.com/video/toyota-supplier-shares-set-rise-040613354.html)
 - Apr 28 - [2 men charged with cutting down the beloved Sycamore Gap tree are going on trial in northern England](https://www.yahoo.com/news/2-men-charged-cutting-down-040537247.html)
-- Apr 28 - [Motorcyclist plummets 100 feet off Southern California hillside](https://www.yahoo.com/news/motorcyclist-plummets-100-feet-off-014444188.html)
-- Apr 28 - [Police swarm Los Angeles neighborhood Sunday morning](https://www.yahoo.com/news/police-swarm-los-angeles-neighborhood-004250256.html)
+- Apr 28 - [Gene Hackman's Final Autopsy Reveals New Health Details](https://www.yahoo.com/news/gene-hackmans-final-autopsy-reveals-002500464.html)
+- Apr 27 - [Arrests made in the theft of Kristi Noem’s purse and thousands in cash](https://www.yahoo.com/news/arrest-made-theft-kristi-noem-020757578.html)
 <!-- feed end -->
 
 ### Onstream
