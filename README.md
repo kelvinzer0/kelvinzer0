@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [US and Mexico have reached agreement on New World screwworm, Ag Secretary Rollins says](https://www.yahoo.com/news/us-mexico-reached-agreement-world-194959691.html)
-- Apr 28 - [Disability-rights arguments grow heated at Supreme Court, though sweeping ruling appears unlikely](https://www.yahoo.com/news/disability-rights-arguments-grow-heated-192752207.html)
-- Apr 28 - [Ukraine's Zelenskiy: The world does not want to wait for May 8 for ceasefire](https://www.yahoo.com/news/ukraines-zelenskiy-world-does-not-192423174.html)
-- Apr 28 - [Fighter jet slips off the hangar deck of a US aircraft carrier in the Red Sea, one minor injury](https://www.yahoo.com/news/fighter-jet-slips-off-hangar-185900944.html)
-- Apr 28 - [“60 Minutes” Rattles Viewers with Stunning Closing Segment, Implies That Trump Administration Is Pressuring Their Coverage](https://www.yahoo.com/news/60-minutes-rattles-viewers-stunning-174136697.html)
+- Apr 28 - [Philippines security official disputes China's statement over disputed South China Sea outcropping](https://www.yahoo.com/news/philippines-security-official-disputes-chinas-203959810.html)
+- Apr 28 - [Dem Says ICE Took Florida Mom From Baby, Unlawfully Deported Her To Cuba](https://www.yahoo.com/news/dem-says-ice-took-florida-203542780.html)
+- Apr 28 - [Stock Market Today: Dow Jones Up But Nvidia Falls On New China Threat; Cathie Wood Loads Up On This Stock Amid 76% Dive (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-nasdaq-sp500-treasury-secretary-scott-bessent-china-microsoft-apple-meta-platforms-amazon/?src=A00220&yptr=yahoo)
+- Apr 28 - [Russian regulators are trying to seize assets from the developers of World of Tanks](https://tech.yahoo.com/article/russian-regulators-are-trying-to-seize-assets-from-the-developers-of-world-of-tanks-202157310.html)
+- Apr 28 - [Flights from India to Europe and North America are taking 4 extra hours and requiring fuel stops as airlines avoid Pakistan](https://www.yahoo.com/news/flights-india-europe-north-america-200140266.html)
 <!-- feed end -->
 
 ### Onstream
