@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [People Are Sharing The Moment They Knew IT WAS TIME To Leave Their Toxic Jobs And I Bet You've Experienced At Least One Of These (Because, So Have I)](https://www.yahoo.com/lifestyle/people-sharing-moment-knew-time-103103143.html)
-- Apr 29 - [Trump administration withholding $436.87 billion in approved spending, top Democrats say](https://www.yahoo.com/news/trump-administration-withholding-436-87-090234423.html)
-- Apr 29 - [Warm and breezy today](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
-- Apr 29 - [Disgraced Cardinal Becciu formally withdraws from participation in conclave to elect pope](https://www.yahoo.com/news/disgraced-cardinal-becciu-formally-withdraws-080126870.html)
-- Apr 29 - [He was born in North Carolina. Republicans say he’s a ‘never resident’ and want to throw out his vote](https://www.yahoo.com/news/born-north-carolina-republicans-never-080050141.html)
+- Apr 29 - [Man accused of dumping two bodies on Clifton bridge admits manslaughter of one victim](https://www.yahoo.com/news/man-accused-dumping-two-bodies-095553531.html)
+- Apr 29 - [This Vietnam vet, 84, was forced to sell her ‘dream’ home after new owners jacked up her monthly fees 365%](https://finance.yahoo.com/news/vietnam-vet-84-forced-sell-114700011.html)
+- Apr 29 - [France calls decision to ban French delegations from entering Israel 'unacceptable'](https://www.yahoo.com/news/france-calls-decision-ban-french-114521030.html)
+- Apr 29 - ['Help!': Teenagers Trapped in Elevator During Power Cut in Spain](https://www.yahoo.com/news/help-teenagers-trapped-elevator-during-113137117.html)
+- Apr 29 - [Donald Trump's Latest Midnight Musing Is A Sad Lesson In Deep Denial](https://www.yahoo.com/news/donald-trumps-latest-midnight-musing-112317211.html)
 <!-- feed end -->
 
 ### Onstream
