@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Your Social Security card will soon be available digitally: What to know about the change](https://www.yahoo.com/news/social-security-card-soon-available-173111960.html)
+- Apr 29 - [RFK Jr.’s Sister Kerry Kennedy Reacts After John Oliver Calls For Her Brother’s Impeachment](https://www.yahoo.com/news/rfk-jr-sister-kerry-kennedy-182700780.html)
 - Apr 29 - [Hegseth announces he’s ending Pentagon involvement in Trump initiative empowering women championed by Ivanka Trump and Rubio](https://www.yahoo.com/news/hegseth-announces-ending-pentagon-involvement-162033901.html)
+- Apr 29 - [For some Americans, the end of the Vietnam War after Saigon fell 50 years ago is still deeply felt](https://www.yahoo.com/news/americans-end-vietnam-war-saigon-170133506.html)
+- Apr 29 - [ICE Invades Wrong Home, Steals Their Life Savings, and Then Leaves](https://www.yahoo.com/news/ice-invades-wrong-home-makes-165441707.html)
 - Apr 29 - [Intel attracts interest for test chips using new manufacturing process](https://finance.yahoo.com/news/intel-attracts-interest-test-chips-160310406.html)
-- Apr 29 - [She Went Into the Woods and Vanished. Years Later, Her Family Got the Devastating Answers They Feared](https://www.yahoo.com/news/she-went-woods-vanished-years-160225367.html)
-- Apr 29 - [Shannon Sharpe Refuses to View Alleged Sex Tape in $50 Million Civil Rape Lawsuit](https://www.yahoo.com/entertainment/articles/shannon-sharpe-refuses-view-alleged-154640044.html)
 <!-- feed end -->
 
 ### Onstream
