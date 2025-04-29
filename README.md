@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [California rescue reports 'very troubling' number of starving pelicans](https://www.yahoo.com/news/california-rescue-reports-very-troubling-192215279.html)
+- Apr 29 - [At little-known US research lab, Bondi meets with scientists studying illicit drugs to stop the flow](https://www.yahoo.com/news/little-known-us-research-lab-190412042.html)
 - Apr 29 - [Conn. Family Films Unbelievable Footage of Bear Using Playset Slide Like a Human](https://www.yahoo.com/entertainment/videos/conn-family-films-unbelievable-footage-185001799.html)
 - Apr 29 - [RFK Jr.’s Sister Kerry Kennedy Reacts After John Oliver Calls For Her Brother’s Impeachment](https://www.yahoo.com/news/rfk-jr-sister-kerry-kennedy-182700780.html)
-- Apr 29 - [Hegseth announces he’s ending Pentagon involvement in Trump initiative empowering women championed by Ivanka Trump and Rubio](https://www.yahoo.com/news/hegseth-announces-ending-pentagon-involvement-162033901.html)
 - Apr 29 - [For some Americans, the end of the Vietnam War after Saigon fell 50 years ago is still deeply felt](https://www.yahoo.com/news/americans-end-vietnam-war-saigon-170133506.html)
+- Apr 29 - [Intel attracts interest for test chips using new manufacturing process](https://finance.yahoo.com/news/intel-attracts-interest-test-chips-160310406.html)
 <!-- feed end -->
 
 ### Onstream
