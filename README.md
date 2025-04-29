@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Tipton County teacher accused of being drunk at school](https://www.yahoo.com/news/tipton-county-teacher-accused-being-014503905.html)
-- Apr 28 - [Photos: Millions without power in Spain, Portugal after 'induced atmospheric vibration'](https://www.yahoo.com/news/photos-millions-without-power-spain-231657769.html)
+- Apr 29 - [London rents rise to record high for 14th consecutive month](https://uk.finance.yahoo.com/news/london-rents-rise-record-high-rightmove-050045718.html)
+- Apr 29 - [Alibaba co-founder Jack Ma implicated in intimidation campaign by Chinese regime](https://www.yahoo.com/news/alibaba-co-founder-jack-ma-040016671.html)
 - Apr 28 - [Elon Musk gets more bad news as rival launches the anti-Tesla](https://finance.yahoo.com/news/elon-musk-gets-more-bad-223700109.html)
 - Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
 - Apr 28 - [Cascadia subduction zone earthquake could be even worse than feared](https://www.yahoo.com/news/cascadia-subduction-zone-earthquake-could-201203027.html)
