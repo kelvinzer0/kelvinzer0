@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Good riddance to Britain’s most over-hyped company](https://finance.yahoo.com/news/good-riddance-britain-most-over-050100105.html)
-- Apr 29 - [London rents rise to record high for 14th consecutive month](https://uk.finance.yahoo.com/news/london-rents-rise-record-high-rightmove-050045718.html)
-- Apr 29 - [How plans to track smaller pension pots could go further to build a lifetime pot](https://uk.finance.yahoo.com/news/pension-reform-build-lifetime-pot-050019483.html)
+- Apr 29 - [Jimmy Kimmel Jokes Trump Only Wants to Annex Canada to ‘Distract Us From the Fact That JD Vance Killed the Pope’ | Video](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-jokes-trump-only-043352920.html)
+- Apr 29 - [Chinese singles are looking for love in video chats — with thousands following along in real time](https://www.yahoo.com/lifestyle/chinese-singles-looking-love-video-040527936.html)
+- Apr 28 - [Struggling California pedestrian mall pitches public drinking to boost business](https://www.yahoo.com/news/struggling-california-pedestrian-mall-pitches-233048637.html)
 - Apr 28 - [Elon Musk gets more bad news as rival launches the anti-Tesla](https://finance.yahoo.com/news/elon-musk-gets-more-bad-223700109.html)
-- Apr 28 - [Zelenskiy praises killing of top Russian military figures](https://www.yahoo.com/news/zelenskiy-praises-liquidation-top-russian-212854208.html)
+- Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
 <!-- feed end -->
 
 ### Onstream
