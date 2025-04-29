@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Kristi Noem’s alleged bag thief spent $205 on food and alcohol on her AmEx before falling asleep at restaurant table, charging documents show](https://www.yahoo.com/news/kristi-noem-alleged-bag-thief-224528210.html)
-- Apr 28 - [Crime scene images from ‘Xbox murders’ put forth in resentencing hearing](https://www.yahoo.com/news/crime-scene-images-xbox-murders-220902652.html)
+- Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
 - Apr 28 - [Philippines security official disputes China's statement over disputed South China Sea outcropping](https://www.yahoo.com/news/philippines-security-official-disputes-chinas-203959810.html)
-- Apr 28 - [Russian regulators are trying to seize assets from the developers of World of Tanks](https://tech.yahoo.com/article/russian-regulators-are-trying-to-seize-assets-from-the-developers-of-world-of-tanks-202157310.html)
 - Apr 28 - [Cascadia subduction zone earthquake could be even worse than feared](https://www.yahoo.com/news/cascadia-subduction-zone-earthquake-could-201203027.html)
+- Apr 28 - [Judge snaps at DOJ lawyer arguing Trump executive order targeting Big Law firm can't be illegal](https://www.yahoo.com/news/judge-snaps-doj-lawyer-arguing-200407364.html)
+- Apr 28 - [Flights from India to Europe and North America are taking 4 extra hours and requiring fuel stops as airlines avoid Pakistan](https://www.yahoo.com/news/flights-india-europe-north-america-200140266.html)
 <!-- feed end -->
 
 ### Onstream
