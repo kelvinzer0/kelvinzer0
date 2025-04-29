@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Pentagon chief cancels program on women in security that was signed into law by Trump](https://www.yahoo.com/news/pentagon-chief-cancels-program-women-162703658.html)
-- Apr 29 - [Severe storms to rattle East, repeat in south-central US this week](https://www.yahoo.com/news/severe-storms-rattle-east-repeat-161639010.html)
-- Apr 29 - [US Senate backs former Republican lawmaker Perdue as ambassador to China](https://www.yahoo.com/news/majority-us-senate-backs-perdue-160506852.html)
+- Apr 29 - [Your Social Security card will soon be available digitally: What to know about the change](https://www.yahoo.com/news/social-security-card-soon-available-173111960.html)
+- Apr 29 - [Hegseth announces he’s ending Pentagon involvement in Trump initiative empowering women championed by Ivanka Trump and Rubio](https://www.yahoo.com/news/hegseth-announces-ending-pentagon-involvement-162033901.html)
 - Apr 29 - [Intel attracts interest for test chips using new manufacturing process](https://finance.yahoo.com/news/intel-attracts-interest-test-chips-160310406.html)
-- Apr 29 - [Whoopi Goldberg collapses back into her chair during hellish discussion live on “The View”](https://www.yahoo.com/entertainment/articles/whoopi-goldberg-collapses-back-her-155103832.html)
+- Apr 29 - [She Went Into the Woods and Vanished. Years Later, Her Family Got the Devastating Answers They Feared](https://www.yahoo.com/news/she-went-woods-vanished-years-160225367.html)
+- Apr 29 - [Shannon Sharpe Refuses to View Alleged Sex Tape in $50 Million Civil Rape Lawsuit](https://www.yahoo.com/entertainment/articles/shannon-sharpe-refuses-view-alleged-154640044.html)
 <!-- feed end -->
 
 ### Onstream
