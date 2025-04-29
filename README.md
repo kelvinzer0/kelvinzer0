@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Taking aid to Ukraine 'changed things inside me'](https://www.yahoo.com/news/taking-aid-ukraine-changed-things-123932089.html)
-- Apr 29 - [Ferrari unveils new 296 Speciale hybrid models ahead of EV launch](https://finance.yahoo.com/news/ferrari-unveils-296-speciale-hybrid-123309160.html)
-- Apr 29 - [GM recalling nearly 600,000 US vehicles over engine issue](https://finance.yahoo.com/news/gm-recalling-nearly-600-000-122158642.html)
+- Apr 29 - [Mag 7: What the technicals are saying about Big Tech stocks](https://finance.yahoo.com/video/mag-7-technicals-saying-big-135458838.html)
+- Apr 29 - [White House calls Amazon showing tariff-related pricing changes a 'hostile and political act'](https://finance.yahoo.com/news/white-house-calls-amazon-showing-tariff-related-pricing-changes-a-hostile-and-political-act-135041554.html)
+- Apr 29 - [OpenAI adds shopping features to ChatGPT Search](https://tech.yahoo.com/article/openai-adds-shopping-features-to-chatgpt-search-133057362.html)
+- Apr 29 - [This Vietnam vet, 84, was forced to sell her ‘dream’ home after new owners jacked up her monthly fees 365%](https://finance.yahoo.com/news/vietnam-vet-84-forced-sell-114700011.html)
 - Apr 29 - [Authorities believe crash through Illinois after-school building that killed 4 wasn’t targeted](https://www.yahoo.com/news/authorities-believe-crash-illinois-school-113226403.html)
-- Apr 29 - [Donald Trump's Latest Midnight Musing Is A Sad Lesson In Deep Denial](https://www.yahoo.com/news/donald-trumps-latest-midnight-musing-112317211.html)
 <!-- feed end -->
 
 ### Onstream
