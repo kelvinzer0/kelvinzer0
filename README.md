@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Green Bay airport, campgrounds get boost in bookings for NFL draft](https://sports.yahoo.com/article/green-bay-airport-campgrounds-boost-100408682.html)
+- Apr 29 - [Smithfield Foods posts higher sales, profit on strong packaged meats, pork demand](https://finance.yahoo.com/news/smithfield-foods-posts-higher-sales-094802537.html)
+- Apr 29 - [2 Artificial Intelligence (AI) Stocks That Could Make You a Millionaire](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-093200281.html)
+- Apr 29 - [Trump administration withholding $436.87 billion in approved spending, top Democrats say](https://www.yahoo.com/news/trump-administration-withholding-436-87-090234423.html)
 - Apr 29 - [Warm and breezy today](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
-- Apr 29 - [Hedge funds venture back to markets to buy bank shares, says Goldman Sachs](https://finance.yahoo.com/news/hedge-funds-venture-back-markets-082046612.html)
-- Apr 29 - [Disgraced Cardinal Becciu formally withdraws from participation in conclave to elect pope](https://www.yahoo.com/news/disgraced-cardinal-becciu-formally-withdraws-080126870.html)
-- Apr 29 - [Authorities shut dozens of tourist resorts in Indian-controlled Kashmir](https://www.yahoo.com/news/authorities-shut-dozens-tourist-resorts-075937970.html)
-- Apr 29 - [Gaza markets are nearly bare, Palestinian families are left struggling to feed their children](https://www.yahoo.com/news/gaza-markets-nearly-bare-palestinian-040113959.html)
 <!-- feed end -->
 
 ### Onstream
