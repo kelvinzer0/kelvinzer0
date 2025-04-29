@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [‘Just being a bear’: Black bear visits Fond du Lac golf course Monday, likely has moved on](https://www.yahoo.com/news/just-being-bear-black-bear-155128723.html)
-- Apr 29 - [The ‘f*** your feelings’ crowd is suddenly getting really upset over Democrats cussing](https://www.yahoo.com/news/f-feelings-crowd-suddenly-getting-153216372.html)
-- Apr 29 - [House District 97 Republican primary: Tim Anderson faces Christina Felder](https://www.yahoo.com/news/house-district-97-republican-primary-153100036.html)
-- Apr 29 - [Consumer confidence declines in April. This economist's takeaways.](https://finance.yahoo.com/video/consumer-confidence-declines-april-economists-151000057.html)
-- Apr 29 - [Scott Bessent says China could lose 10 million jobs 'very quickly' if tariffs don't drop](https://finance.yahoo.com/news/scott-bessent-says-china-could-lose-10-million-jobs-very-quickly-if-tariffs-dont-drop-143718347.html)
+- Apr 29 - [Pentagon chief cancels program on women in security that was signed into law by Trump](https://www.yahoo.com/news/pentagon-chief-cancels-program-women-162703658.html)
+- Apr 29 - [Severe storms to rattle East, repeat in south-central US this week](https://www.yahoo.com/news/severe-storms-rattle-east-repeat-161639010.html)
+- Apr 29 - [US Senate backs former Republican lawmaker Perdue as ambassador to China](https://www.yahoo.com/news/majority-us-senate-backs-perdue-160506852.html)
+- Apr 29 - [Intel attracts interest for test chips using new manufacturing process](https://finance.yahoo.com/news/intel-attracts-interest-test-chips-160310406.html)
+- Apr 29 - [Whoopi Goldberg collapses back into her chair during hellish discussion live on “The View”](https://www.yahoo.com/entertainment/articles/whoopi-goldberg-collapses-back-her-155103832.html)
 <!-- feed end -->
 
 ### Onstream
