@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Third of Brits say personal finances are "out of control"](https://www.yahoo.com/news/third-brits-personal-finances-control-073428302.html)
 - Apr 29 - [Jimmy Kimmel Jokes Trump Only Wants to Annex Canada to ‘Distract Us From the Fact That JD Vance Killed the Pope’ | Video](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-jokes-trump-only-043352920.html)
-- Apr 29 - [Chinese singles are looking for love in video chats — with thousands following along in real time](https://www.yahoo.com/lifestyle/chinese-singles-looking-love-video-040527936.html)
-- Apr 28 - [Struggling California pedestrian mall pitches public drinking to boost business](https://www.yahoo.com/news/struggling-california-pedestrian-mall-pitches-233048637.html)
+- Apr 29 - [Chinese airlines and Boeing severely hit by tariffs, Beijing says](https://finance.yahoo.com/news/china-says-airlines-boeing-severely-034218646.html)
+- Apr 29 - [I Just Got Into Harvard. My MAGA Grandparents’ 6-Word Reaction To My Acceptance Devastated Me.](https://www.yahoo.com/news/just-got-harvard-maga-grandparents-013102432.html)
 - Apr 28 - [Elon Musk gets more bad news as rival launches the anti-Tesla](https://finance.yahoo.com/news/elon-musk-gets-more-bad-223700109.html)
-- Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
 <!-- feed end -->
 
 ### Onstream
