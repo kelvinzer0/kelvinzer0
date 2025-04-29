@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Third of Brits say personal finances are "out of control"](https://www.yahoo.com/news/third-brits-personal-finances-control-073428302.html)
-- Apr 29 - [Jimmy Kimmel Jokes Trump Only Wants to Annex Canada to ‘Distract Us From the Fact That JD Vance Killed the Pope’ | Video](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-jokes-trump-only-043352920.html)
-- Apr 29 - [Chinese airlines and Boeing severely hit by tariffs, Beijing says](https://finance.yahoo.com/news/china-says-airlines-boeing-severely-034218646.html)
-- Apr 29 - [I Just Got Into Harvard. My MAGA Grandparents’ 6-Word Reaction To My Acceptance Devastated Me.](https://www.yahoo.com/news/just-got-harvard-maga-grandparents-013102432.html)
-- Apr 28 - [Elon Musk gets more bad news as rival launches the anti-Tesla](https://finance.yahoo.com/news/elon-musk-gets-more-bad-223700109.html)
+- Apr 29 - [Warm and breezy today](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
+- Apr 29 - [Hedge funds venture back to markets to buy bank shares, says Goldman Sachs](https://finance.yahoo.com/news/hedge-funds-venture-back-markets-082046612.html)
+- Apr 29 - [Disgraced Cardinal Becciu formally withdraws from participation in conclave to elect pope](https://www.yahoo.com/news/disgraced-cardinal-becciu-formally-withdraws-080126870.html)
+- Apr 29 - [Authorities shut dozens of tourist resorts in Indian-controlled Kashmir](https://www.yahoo.com/news/authorities-shut-dozens-tourist-resorts-075937970.html)
+- Apr 29 - [Gaza markets are nearly bare, Palestinian families are left struggling to feed their children](https://www.yahoo.com/news/gaza-markets-nearly-bare-palestinian-040113959.html)
 <!-- feed end -->
 
 ### Onstream
