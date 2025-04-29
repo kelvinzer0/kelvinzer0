@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Federal judge says local police must follow order to halt enforcement of Florida immigration law](https://www.yahoo.com/news/federal-judge-says-local-police-222917272.html)
 - Apr 29 - [Trump Jokes About His 'No. 1 Choice' For Pope, And People Pray He's Really Kidding](https://www.yahoo.com/news/trump-jokes-no-1-choice-213700064.html)
+- Apr 29 - [Jeff Bezos-backed Slate Auto announces factory location for its $25,000 electric truck](https://finance.yahoo.com/news/jeff-bezos-backed-slate-auto-204059971.html)
 - Apr 29 - [At little-known US research lab, Bondi meets with scientists studying illicit drugs to stop the flow](https://www.yahoo.com/news/little-known-us-research-lab-190412042.html)
-- Apr 29 - [US judge bars Border Patrol from some warrantless arrests of suspected undocumented residents](https://www.yahoo.com/news/us-judge-bars-border-patrol-182915263.html)
 - Apr 29 - [RFK Jr.’s Sister Kerry Kennedy Reacts After John Oliver Calls For Her Brother’s Impeachment](https://www.yahoo.com/news/rfk-jr-sister-kerry-kennedy-182700780.html)
-- Apr 29 - [Norovirus strikes, again: How to survive a cruise with the stomach bug](https://www.yahoo.com/lifestyle/norovirus-strikes-again-survive-cruise-182653719.html)
 <!-- feed end -->
 
 ### Onstream
