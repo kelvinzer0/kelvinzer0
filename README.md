@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Man accused of dumping two bodies on Clifton bridge admits manslaughter of one victim](https://www.yahoo.com/news/man-accused-dumping-two-bodies-095553531.html)
-- Apr 29 - [This Vietnam vet, 84, was forced to sell her ‘dream’ home after new owners jacked up her monthly fees 365%](https://finance.yahoo.com/news/vietnam-vet-84-forced-sell-114700011.html)
-- Apr 29 - [France calls decision to ban French delegations from entering Israel 'unacceptable'](https://www.yahoo.com/news/france-calls-decision-ban-french-114521030.html)
-- Apr 29 - ['Help!': Teenagers Trapped in Elevator During Power Cut in Spain](https://www.yahoo.com/news/help-teenagers-trapped-elevator-during-113137117.html)
+- Apr 29 - [Taking aid to Ukraine 'changed things inside me'](https://www.yahoo.com/news/taking-aid-ukraine-changed-things-123932089.html)
+- Apr 29 - [Ferrari unveils new 296 Speciale hybrid models ahead of EV launch](https://finance.yahoo.com/news/ferrari-unveils-296-speciale-hybrid-123309160.html)
+- Apr 29 - [GM recalling nearly 600,000 US vehicles over engine issue](https://finance.yahoo.com/news/gm-recalling-nearly-600-000-122158642.html)
+- Apr 29 - [Authorities believe crash through Illinois after-school building that killed 4 wasn’t targeted](https://www.yahoo.com/news/authorities-believe-crash-illinois-school-113226403.html)
 - Apr 29 - [Donald Trump's Latest Midnight Musing Is A Sad Lesson In Deep Denial](https://www.yahoo.com/news/donald-trumps-latest-midnight-musing-112317211.html)
 <!-- feed end -->
 
