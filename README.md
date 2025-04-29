@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Trump Jokes About His 'No. 1 Choice' For Pope, And People Pray He's Really Kidding](https://www.yahoo.com/news/trump-jokes-no-1-choice-213700064.html)
 - Apr 29 - [At little-known US research lab, Bondi meets with scientists studying illicit drugs to stop the flow](https://www.yahoo.com/news/little-known-us-research-lab-190412042.html)
-- Apr 29 - [Conn. Family Films Unbelievable Footage of Bear Using Playset Slide Like a Human](https://www.yahoo.com/entertainment/videos/conn-family-films-unbelievable-footage-185001799.html)
+- Apr 29 - [US judge bars Border Patrol from some warrantless arrests of suspected undocumented residents](https://www.yahoo.com/news/us-judge-bars-border-patrol-182915263.html)
 - Apr 29 - [RFK Jr.’s Sister Kerry Kennedy Reacts After John Oliver Calls For Her Brother’s Impeachment](https://www.yahoo.com/news/rfk-jr-sister-kerry-kennedy-182700780.html)
-- Apr 29 - [For some Americans, the end of the Vietnam War after Saigon fell 50 years ago is still deeply felt](https://www.yahoo.com/news/americans-end-vietnam-war-saigon-170133506.html)
-- Apr 29 - [Intel attracts interest for test chips using new manufacturing process](https://finance.yahoo.com/news/intel-attracts-interest-test-chips-160310406.html)
+- Apr 29 - [Norovirus strikes, again: How to survive a cruise with the stomach bug](https://www.yahoo.com/lifestyle/norovirus-strikes-again-survive-cruise-182653719.html)
 <!-- feed end -->
 
 ### Onstream
