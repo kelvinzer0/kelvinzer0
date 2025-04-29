@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [‘Just being a bear’: Black bear visits Fond du Lac golf course Monday, likely has moved on](https://www.yahoo.com/news/just-being-bear-black-bear-155128723.html)
+- Apr 29 - [The ‘f*** your feelings’ crowd is suddenly getting really upset over Democrats cussing](https://www.yahoo.com/news/f-feelings-crowd-suddenly-getting-153216372.html)
+- Apr 29 - [House District 97 Republican primary: Tim Anderson faces Christina Felder](https://www.yahoo.com/news/house-district-97-republican-primary-153100036.html)
 - Apr 29 - [Consumer confidence declines in April. This economist's takeaways.](https://finance.yahoo.com/video/consumer-confidence-declines-april-economists-151000057.html)
 - Apr 29 - [Scott Bessent says China could lose 10 million jobs 'very quickly' if tariffs don't drop](https://finance.yahoo.com/news/scott-bessent-says-china-could-lose-10-million-jobs-very-quickly-if-tariffs-dont-drop-143718347.html)
-- Apr 29 - [White House blasts Amazon for 'hostile and political' tariff move](https://finance.yahoo.com/news/white-house-blasts-amazon-for-hostile-and-political-tariff-move-143310190.html)
-- Apr 29 - [Flight cancelled or delayed? Here’s what you need to know about refunds and compensation](https://www.yahoo.com/news/flight-cancelled-delayed-know-refunds-084706553.html)
-- Apr 29 - [Kemi Badenoch calls for Trump-style mass deportations and Thatcher statue in scramble to tackle Reform threat](https://www.yahoo.com/news/kemi-badenoch-calls-trump-style-140314400.html)
 <!-- feed end -->
 
 ### Onstream
