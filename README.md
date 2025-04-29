@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Green Bay airport, campgrounds get boost in bookings for NFL draft](https://sports.yahoo.com/article/green-bay-airport-campgrounds-boost-100408682.html)
-- Apr 29 - [Smithfield Foods posts higher sales, profit on strong packaged meats, pork demand](https://finance.yahoo.com/news/smithfield-foods-posts-higher-sales-094802537.html)
-- Apr 29 - [2 Artificial Intelligence (AI) Stocks That Could Make You a Millionaire](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-093200281.html)
+- Apr 29 - [People Are Sharing The Moment They Knew IT WAS TIME To Leave Their Toxic Jobs And I Bet You've Experienced At Least One Of These (Because, So Have I)](https://www.yahoo.com/lifestyle/people-sharing-moment-knew-time-103103143.html)
 - Apr 29 - [Trump administration withholding $436.87 billion in approved spending, top Democrats say](https://www.yahoo.com/news/trump-administration-withholding-436-87-090234423.html)
 - Apr 29 - [Warm and breezy today](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
+- Apr 29 - [Disgraced Cardinal Becciu formally withdraws from participation in conclave to elect pope](https://www.yahoo.com/news/disgraced-cardinal-becciu-formally-withdraws-080126870.html)
+- Apr 29 - [He was born in North Carolina. Republicans say he’s a ‘never resident’ and want to throw out his vote](https://www.yahoo.com/news/born-north-carolina-republicans-never-080050141.html)
 <!-- feed end -->
 
 ### Onstream
