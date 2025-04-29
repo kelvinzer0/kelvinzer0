@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Mag 7: What the technicals are saying about Big Tech stocks](https://finance.yahoo.com/video/mag-7-technicals-saying-big-135458838.html)
-- Apr 29 - [White House calls Amazon showing tariff-related pricing changes a 'hostile and political act'](https://finance.yahoo.com/news/white-house-calls-amazon-showing-tariff-related-pricing-changes-a-hostile-and-political-act-135041554.html)
-- Apr 29 - [OpenAI adds shopping features to ChatGPT Search](https://tech.yahoo.com/article/openai-adds-shopping-features-to-chatgpt-search-133057362.html)
-- Apr 29 - [This Vietnam vet, 84, was forced to sell her ‘dream’ home after new owners jacked up her monthly fees 365%](https://finance.yahoo.com/news/vietnam-vet-84-forced-sell-114700011.html)
-- Apr 29 - [Authorities believe crash through Illinois after-school building that killed 4 wasn’t targeted](https://www.yahoo.com/news/authorities-believe-crash-illinois-school-113226403.html)
+- Apr 29 - [Consumer confidence declines in April. This economist's takeaways.](https://finance.yahoo.com/video/consumer-confidence-declines-april-economists-151000057.html)
+- Apr 29 - [Scott Bessent says China could lose 10 million jobs 'very quickly' if tariffs don't drop](https://finance.yahoo.com/news/scott-bessent-says-china-could-lose-10-million-jobs-very-quickly-if-tariffs-dont-drop-143718347.html)
+- Apr 29 - [White House blasts Amazon for 'hostile and political' tariff move](https://finance.yahoo.com/news/white-house-blasts-amazon-for-hostile-and-political-tariff-move-143310190.html)
+- Apr 29 - [Flight cancelled or delayed? Here’s what you need to know about refunds and compensation](https://www.yahoo.com/news/flight-cancelled-delayed-know-refunds-084706553.html)
+- Apr 29 - [Kemi Badenoch calls for Trump-style mass deportations and Thatcher statue in scramble to tackle Reform threat](https://www.yahoo.com/news/kemi-badenoch-calls-trump-style-140314400.html)
 <!-- feed end -->
 
 ### Onstream
