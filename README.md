@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Early Manitoba results rolling in as CBC projects Liberal government](https://www.yahoo.com/news/early-manitoba-results-rolling-cbc-013000325.html)
+- Apr 29 - [Dem senator says Abrego Garcia situation 'not going to end well' for Trump, argues he's 'undermining' freedom](https://www.yahoo.com/news/dem-senator-says-abrego-garcia-001235973.html)
+- Apr 28 - [Photos: Millions without power in Spain, Portugal after 'induced atmospheric vibration'](https://www.yahoo.com/news/photos-millions-without-power-spain-231657769.html)
+- Apr 28 - [Elon Musk gets more bad news as rival launches the anti-Tesla](https://finance.yahoo.com/news/elon-musk-gets-more-bad-223700109.html)
 - Apr 28 - [Boston Police seek public’s help in identifying group after brutal attack on college student](https://www.yahoo.com/news/boston-police-seek-public-help-161432442.html)
-- Apr 28 - [Philippines security official disputes China's statement over disputed South China Sea outcropping](https://www.yahoo.com/news/philippines-security-official-disputes-chinas-203959810.html)
-- Apr 28 - [Cascadia subduction zone earthquake could be even worse than feared](https://www.yahoo.com/news/cascadia-subduction-zone-earthquake-could-201203027.html)
-- Apr 28 - [Judge snaps at DOJ lawyer arguing Trump executive order targeting Big Law firm can't be illegal](https://www.yahoo.com/news/judge-snaps-doj-lawyer-arguing-200407364.html)
-- Apr 28 - [Flights from India to Europe and North America are taking 4 extra hours and requiring fuel stops as airlines avoid Pakistan](https://www.yahoo.com/news/flights-india-europe-north-america-200140266.html)
 <!-- feed end -->
 
 ### Onstream
