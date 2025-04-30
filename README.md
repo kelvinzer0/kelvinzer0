@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [4,200 tickets given out in first two months of California’s daylighting law](https://www.yahoo.com/news/4-200-tickets-given-first-232257000.html)
+- Apr 30 - [California high-speed rail leader pushes state to support private investment](https://www.yahoo.com/news/california-high-speed-rail-leader-041155304.html)
+- Apr 30 - [Defense tries to chip away at murder charges against 3 ex-officers in Tyre Nichols' death](https://www.yahoo.com/news/defense-tries-chip-away-murder-040602042.html)
+- Apr 30 - [China creates list of US-made goods exempt from 125% tariffs, sources say](https://finance.yahoo.com/news/china-creates-list-us-made-040548839.html)
+- Apr 30 - [Donald Trump Responds to New Articles of Impeachment in First 100 Days Speech: ‘What the Hell Did I Do?’](https://www.yahoo.com/news/donald-trump-responds-articles-impeachment-003038200.html)
 - Apr 29 - [Trump: 'I have a Fed person who is not really doing a good job'](https://finance.yahoo.com/news/trump-i-have-a-fed-person-who-is-not-really-doing-a-good-job-231259807.html)
-- Apr 29 - [Federal judge says local police must follow order to halt enforcement of Florida immigration law](https://www.yahoo.com/news/federal-judge-says-local-police-222917272.html)
-- Apr 29 - [Wisconsin high court suspends Milwaukee judge accused of helping man evade immigration authorities](https://www.yahoo.com/news/wisconsin-high-court-suspends-milwaukee-221044966.html)
-- Apr 29 - [Trump Jokes About His 'No. 1 Choice' For Pope, And People Pray He's Really Kidding](https://www.yahoo.com/news/trump-jokes-no-1-choice-213700064.html)
 <!-- feed end -->
 
 ### Onstream
