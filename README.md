@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [4,200 tickets given out in first two months of California’s daylighting law](https://www.yahoo.com/news/4-200-tickets-given-first-232257000.html)
 - Apr 29 - [Trump: 'I have a Fed person who is not really doing a good job'](https://finance.yahoo.com/news/trump-i-have-a-fed-person-who-is-not-really-doing-a-good-job-231259807.html)
 - Apr 29 - [Federal judge says local police must follow order to halt enforcement of Florida immigration law](https://www.yahoo.com/news/federal-judge-says-local-police-222917272.html)
+- Apr 29 - [Wisconsin high court suspends Milwaukee judge accused of helping man evade immigration authorities](https://www.yahoo.com/news/wisconsin-high-court-suspends-milwaukee-221044966.html)
 - Apr 29 - [Trump Jokes About His 'No. 1 Choice' For Pope, And People Pray He's Really Kidding](https://www.yahoo.com/news/trump-jokes-no-1-choice-213700064.html)
-- Apr 29 - [Jeff Bezos-backed Slate Auto announces factory location for its $25,000 electric truck](https://finance.yahoo.com/news/jeff-bezos-backed-slate-auto-204059971.html)
-- Apr 29 - [Starbucks stock plummets as CEO Brian Niccol calls earnings miss 'disappointing'](https://finance.yahoo.com/news/starbucks-stock-plummets-as-ceo-brian-niccol-calls-earnings-miss-disappointing-200648617.html)
 <!-- feed end -->
 
 ### Onstream
