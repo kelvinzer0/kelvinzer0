@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [Trump decries 'Biden's Stock Market' after capping worst 100-day market performance in decades](https://finance.yahoo.com/news/trump-decries-bidens-stock-market-after-capping-worst-100-day-market-performance-in-decades-143116735.html)
+- Apr 30 - [Intel's chief commercial officer and sales lead, Christoph Schell, resigns](https://finance.yahoo.com/news/intels-chief-commercial-officer-sales-130428085.html)
+- Apr 30 - [Construction project grinds to halt after workers are attacked by predatory birds: 'They were in unwelcome territory'](https://www.yahoo.com/news/construction-project-grinds-halt-workers-114550660.html)
 - Apr 30 - [Scientists issue dire warning after making frightening discovery in the Atlantic Ocean: 'Sudden, wide-reaching impacts'](https://www.yahoo.com/news/scientists-issue-dire-warning-making-111549688.html)
-- Apr 30 - [Ukraine struck Russian weapons factory, SBU security agency source says](https://www.yahoo.com/news/ukraine-struck-russian-weapons-factory-111408127.html)
-- Apr 30 - [2 pedestrians killed, driver arrested in Athens](https://www.yahoo.com/news/2-pedestrians-killed-driver-arrested-103040093.html)
-- Apr 30 - [Southern California man violently beaten in possible hate crime attack as suspect yells racial slurs](https://www.yahoo.com/news/southern-california-man-violently-beaten-060029064.html)
-- Apr 30 - [Ukraine said 120,000 useless mortar rounds were sent to its front line after a manufacturer tried to cut costs](https://www.yahoo.com/news/ukraine-said-120-000-useless-042105906.html)
+- Apr 30 - [Chinese automaker stuns industry with new electric car breakthrough: 'Elevating the game to another dimension'](https://autos.yahoo.com/chinese-automaker-stuns-industry-electric-110055791.html)
 <!-- feed end -->
 
 ### Onstream
