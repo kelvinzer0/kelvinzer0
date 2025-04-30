@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Danish King Enjoys Snowmobile Outing During Greenland Visit](https://www.yahoo.com/news/danish-king-enjoys-snowmobile-outing-161740289.html)
-- Apr 30 - [Head of Pakistan-administered Kashmir calls for international mediation](https://www.yahoo.com/news/head-pakistan-administered-kashmir-calls-161600793.html)
-- Apr 30 - [DA gives 11 high schoolers involved in extreme hazing of lacrosse players 48 hours to surrender or face kidnapping charges](https://www.yahoo.com/news/da-gives-11-high-schoolers-212136574.html)
+- Apr 30 - [AI Weekly: Tech giants get busy, bots pay off](https://finance.yahoo.com/video/ai-weekly-tech-giants-busy-181412489.html)
+- Apr 30 - [Two hikers swept away while trying to cross rushing creek, Washington cops say](https://www.yahoo.com/news/two-hikers-swept-away-while-162546729.html)
+- Apr 30 - [A 180-year-old private South Carolina university is closing after a $6M fundraising drive fails](https://www.yahoo.com/news/180-old-private-south-carolina-160458583.html)
+- Apr 30 - [New York Times fires back after Trump threat](https://www.yahoo.com/news/york-times-fires-back-trump-153414389.html)
 - Apr 30 - [Trump decries 'Biden's Stock Market' after capping worst 100-day market performance in decades](https://finance.yahoo.com/news/trump-decries-bidens-stock-market-after-capping-worst-100-day-market-performance-in-decades-143116735.html)
-- Apr 30 - [Body of Ukrainian journalist who died in Russian detention returned by Moscow with signs of torture and with missing organs](https://www.yahoo.com/news/body-ukrainian-journalist-died-russian-133549949.html)
 <!-- feed end -->
 
 ### Onstream
