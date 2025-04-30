@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Trump: 'I have a Fed person who is not really doing a good job'](https://finance.yahoo.com/news/trump-i-have-a-fed-person-who-is-not-really-doing-a-good-job-231259807.html)
 - Apr 29 - [Federal judge says local police must follow order to halt enforcement of Florida immigration law](https://www.yahoo.com/news/federal-judge-says-local-police-222917272.html)
 - Apr 29 - [Trump Jokes About His 'No. 1 Choice' For Pope, And People Pray He's Really Kidding](https://www.yahoo.com/news/trump-jokes-no-1-choice-213700064.html)
 - Apr 29 - [Jeff Bezos-backed Slate Auto announces factory location for its $25,000 electric truck](https://finance.yahoo.com/news/jeff-bezos-backed-slate-auto-204059971.html)
-- Apr 29 - [At little-known US research lab, Bondi meets with scientists studying illicit drugs to stop the flow](https://www.yahoo.com/news/little-known-us-research-lab-190412042.html)
-- Apr 29 - [RFK Jr.’s Sister Kerry Kennedy Reacts After John Oliver Calls For Her Brother’s Impeachment](https://www.yahoo.com/news/rfk-jr-sister-kerry-kennedy-182700780.html)
+- Apr 29 - [Starbucks stock plummets as CEO Brian Niccol calls earnings miss 'disappointing'](https://finance.yahoo.com/news/starbucks-stock-plummets-as-ceo-brian-niccol-calls-earnings-miss-disappointing-200648617.html)
 <!-- feed end -->
 
 ### Onstream
