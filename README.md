@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [From Driver to Business Owner – A Roadmap Snapshot](https://finance.yahoo.com/news/driver-business-owner-roadmap-snapshot-183043086.html)
+- Apr 30 - [Royal Marine in diversity row: I am not a neo-Nazi](https://www.yahoo.com/news/royal-marine-centre-diversity-row-200000395.html)
+- Apr 30 - [A US Army officer who handles explosives broke the world record for the mile run in a bomb suit. He was 20 seconds faster.](https://sports.yahoo.com/article/us-army-officer-handles-explosives-192137361.html)
+- Apr 30 - [Philly judge faces ethics complaint over role in wife's cheesesteak shop](https://www.yahoo.com/news/philly-judge-faces-ethics-complaint-182744713.html)
 - Apr 30 - [Vermont judge releases Palestinian student activist who was arrested at his citizenship interview](https://www.yahoo.com/news/vermont-judge-releases-palestinian-student-160421638.html)
-- Apr 30 - [Trump says US kids may get '2 dolls instead of 30,' but China will suffer more in a trade war](https://www.yahoo.com/news/weak-gdp-report-tied-tariffs-155329577.html)
-- Apr 30 - [New York Times fires back after Trump threat](https://www.yahoo.com/news/york-times-fires-back-trump-153414389.html)
-- Apr 30 - [DA gives 11 high schoolers involved in extreme hazing of lacrosse players 48 hours to surrender or face kidnapping charges](https://www.yahoo.com/news/da-gives-11-high-schoolers-212136574.html)
+- Apr 30 - [Volkswagen Is Recalling the ID.Buzz for a Reason We've Never Heard Before](https://autos.yahoo.com/volkswagen-recalling-id-buzz-reason-154900150.html)
 <!-- feed end -->
 
 ### Onstream
