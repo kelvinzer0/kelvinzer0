@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Stocks slide as new data shows U.S. economy shrank in first quarter of 2025](https://www.yahoo.com/news/stocks-slide-data-shows-u-204456553.html)
-- Apr 30 - [Billionaire investor Ray Dalio says Trump may be catapulting US toward a world order ‘very much like the 1930s](https://finance.yahoo.com/news/billionaire-investor-ray-dalio-says-203100792.html)
-- Apr 30 - [US lawmaker warns Ryanair against buying Chinese-made planes](https://finance.yahoo.com/news/us-lawmaker-warns-ryanair-against-195347608.html)
 - Apr 30 - ["It Reminds Me Of The Poor, Uneducated Girls Who Got Periods For The First Time And Thought They Were Dying": Women In Their 30s Are Sharing Surprising Signs Of Early Menopause, And It's Not What You'd Expect](https://www.yahoo.com/lifestyle/reminds-poor-uneducated-girls-got-194851461.html)
 - Apr 30 - [Jeff Sperbeck dies after falling out of golf cart reportedly driven by John Elway in Southern California](https://sports.yahoo.com/article/jeff-sperbeck-dies-falling-golf-194559421.html)
+- Apr 30 - [Florida seeks to enforce a law making it a crime for people in the US illegally to enter the state](https://www.yahoo.com/news/florida-seeks-enforce-law-making-194039882.html)
+- Apr 30 - [Sheryl Crow speaks out on Tennessee politics, selling her Tesla and climate change: 'I call my representatives every single morning'](https://www.yahoo.com/news/sheryl-crow-speaks-tennessee-politics-192747307.html)
+- Apr 30 - [A US Army officer who handles explosives broke the world record for the mile run in a bomb suit. He was 20 seconds faster.](https://sports.yahoo.com/article/us-army-officer-handles-explosives-192137361.html)
 <!-- feed end -->
 
 ### Onstream
