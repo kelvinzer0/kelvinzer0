@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [Activists say 70-year-old Worcester resident detained at Logan Airport, call for release](https://www.yahoo.com/news/activists-70-old-worcester-resident-153807861.html)
 - Apr 30 - [Trump decries 'Biden's Stock Market' after capping worst 100-day market performance in decades](https://finance.yahoo.com/news/trump-decries-bidens-stock-market-after-capping-worst-100-day-market-performance-in-decades-143116735.html)
+- Apr 30 - [Body of Ukrainian journalist who died in Russian detention returned by Moscow with signs of torture and with missing organs](https://www.yahoo.com/news/body-ukrainian-journalist-died-russian-133549949.html)
 - Apr 30 - [Intel's chief commercial officer and sales lead, Christoph Schell, resigns](https://finance.yahoo.com/news/intels-chief-commercial-officer-sales-130428085.html)
-- Apr 30 - [Construction project grinds to halt after workers are attacked by predatory birds: 'They were in unwelcome territory'](https://www.yahoo.com/news/construction-project-grinds-halt-workers-114550660.html)
-- Apr 30 - [Scientists issue dire warning after making frightening discovery in the Atlantic Ocean: 'Sudden, wide-reaching impacts'](https://www.yahoo.com/news/scientists-issue-dire-warning-making-111549688.html)
-- Apr 30 - [Chinese automaker stuns industry with new electric car breakthrough: 'Elevating the game to another dimension'](https://autos.yahoo.com/chinese-automaker-stuns-industry-electric-110055791.html)
+- Apr 30 - [Police identify human remains found in Utah County park](https://www.yahoo.com/news/police-identify-human-remains-found-123612279.html)
 <!-- feed end -->
 
 ### Onstream
