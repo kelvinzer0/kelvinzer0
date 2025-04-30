@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
+- Apr 30 - [Jack in the Box to close up to 200 locations. Is Ohio affected? See Ohio locations](https://finance.yahoo.com/news/jack-box-close-200-locations-114142814.html)
+- Apr 30 - [There’s a new ‘magic number’ Americans now say they’ll need to retire comfortably — and it’s shrunk since 2024](https://finance.yahoo.com/news/magic-number-americans-now-ll-103100811.html)
+- Apr 30 - [Exclusive-Adani pauses talks with Israel's Tower for $10 billion India chip foray, sources say](https://tech.yahoo.com/business/articles/exclusive-adani-pauses-talks-israels-101406802.html)
+- Apr 30 - [At least 3 dead, 700,000 without power as violent derecho tears through central, eastern US](https://www.yahoo.com/news/least-3-dead-700-000-094632141.html)
 - Apr 30 - [Southern California man violently beaten in possible hate crime attack as suspect yells racial slurs](https://www.yahoo.com/news/southern-california-man-violently-beaten-060029064.html)
-- Apr 30 - [“Frankly, I Never Heard Of You”: A Testy Donald Trump Tussles With Terry Moran During Contentious ABC News Interview Marking POTUS’ First 100 Days](https://www.yahoo.com/news/frankly-never-heard-testy-donald-014804700.html)
-- Apr 29 - [4,200 tickets given out in first two months of California’s daylighting law](https://www.yahoo.com/news/4-200-tickets-given-first-232257000.html)
-- Apr 29 - [Trump: 'I have a Fed person who is not really doing a good job'](https://finance.yahoo.com/news/trump-i-have-a-fed-person-who-is-not-really-doing-a-good-job-231259807.html)
 <!-- feed end -->
 
 ### Onstream
