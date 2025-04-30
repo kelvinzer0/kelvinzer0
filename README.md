@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Royal Marine in diversity row: I am not a neo-Nazi](https://www.yahoo.com/news/royal-marine-centre-diversity-row-200000395.html)
-- Apr 30 - [A US Army officer who handles explosives broke the world record for the mile run in a bomb suit. He was 20 seconds faster.](https://sports.yahoo.com/article/us-army-officer-handles-explosives-192137361.html)
-- Apr 30 - [Philly judge faces ethics complaint over role in wife's cheesesteak shop](https://www.yahoo.com/news/philly-judge-faces-ethics-complaint-182744713.html)
-- Apr 30 - [Vermont judge releases Palestinian student activist who was arrested at his citizenship interview](https://www.yahoo.com/news/vermont-judge-releases-palestinian-student-160421638.html)
-- Apr 30 - [Volkswagen Is Recalling the ID.Buzz for a Reason We've Never Heard Before](https://autos.yahoo.com/volkswagen-recalling-id-buzz-reason-154900150.html)
+- Apr 30 - [Nvidia hit with Sell rating. Analysts say upside is priced in.](https://finance.yahoo.com/video/nvidia-hit-sell-rating-analysts-203457056.html)
+- Apr 30 - [Angie Harmon Introduces New Dog Who Helped Her Through 'Dark Time' 1 Year After Delivery Driver Killed Her Pet (Exclusive)](https://www.yahoo.com/lifestyle/angie-harmon-introduces-dog-helped-202842566.html)
+- Apr 30 - [US lawmaker warns Ryanair against buying Chinese-made planes](https://finance.yahoo.com/news/us-lawmaker-warns-ryanair-against-195347608.html)
+- Apr 30 - ["It Reminds Me Of The Poor, Uneducated Girls Who Got Periods For The First Time And Thought They Were Dying": Women In Their 30s Are Sharing Surprising Signs Of Early Menopause, And It's Not What You'd Expect](https://www.yahoo.com/lifestyle/reminds-poor-uneducated-girls-got-194851461.html)
+- Apr 30 - [Florida seeks to enforce a law making it a crime for people in the US illegally to enter the state](https://www.yahoo.com/news/florida-seeks-enforce-law-making-194039882.html)
 <!-- feed end -->
 
 ### Onstream
