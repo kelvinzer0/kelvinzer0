@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [Explainer-What's at stake in Singapore's May 3 election?](https://www.yahoo.com/news/explainer-whats-stake-singapores-may-050553111.html)
+- Apr 30 - [Ukraine said 120,000 useless mortar rounds were sent to its front line after a manufacturer tried to cut costs](https://www.yahoo.com/news/ukraine-said-120-000-useless-042105906.html)
 - Apr 30 - [China creates list of US-made goods exempt from 125% tariffs, sources say](https://finance.yahoo.com/news/china-creates-list-us-made-040548839.html)
 - Apr 30 - [Donald Trump Responds to New Articles of Impeachment in First 100 Days Speech: ‘What the Hell Did I Do?’](https://www.yahoo.com/news/donald-trump-responds-articles-impeachment-003038200.html)
-- Apr 29 - [4,200 tickets given out in first two months of California’s daylighting law](https://www.yahoo.com/news/4-200-tickets-given-first-232257000.html)
 - Apr 29 - [Trump: 'I have a Fed person who is not really doing a good job'](https://finance.yahoo.com/news/trump-i-have-a-fed-person-who-is-not-really-doing-a-good-job-231259807.html)
-- Apr 29 - [Federal judge says local police must follow order to halt enforcement of Florida immigration law](https://www.yahoo.com/news/federal-judge-says-local-police-222917272.html)
 <!-- feed end -->
 
 ### Onstream
