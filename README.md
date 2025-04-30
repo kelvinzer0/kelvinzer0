@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 30 - [Dozens injured following Russian strike on Kharkiv, Ukraine](https://www.yahoo.com/news/dozens-injured-following-russian-strike-075344038.html)
-- Apr 30 - [Australian triple-murder suspect allegedly cooked 'special' mushroom meal](https://www.yahoo.com/news/australian-triple-murder-suspect-allegedly-074320051.html)
+- Apr 30 - [Southern California man violently beaten in possible hate crime attack as suspect yells racial slurs](https://www.yahoo.com/news/southern-california-man-violently-beaten-060029064.html)
 - Apr 30 - [Ukraine said 120,000 useless mortar rounds were sent to its front line after a manufacturer tried to cut costs](https://www.yahoo.com/news/ukraine-said-120-000-useless-042105906.html)
 - Apr 30 - [China creates list of US-made goods exempt from 125% tariffs, sources say](https://finance.yahoo.com/news/china-creates-list-us-made-040548839.html)
 - Apr 30 - [“Frankly, I Never Heard Of You”: A Testy Donald Trump Tussles With Terry Moran During Contentious ABC News Interview Marking POTUS’ First 100 Days](https://www.yahoo.com/news/frankly-never-heard-testy-donald-014804700.html)
