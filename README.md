@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [44% of Americans say Vietnam War was unjustified: Poll | Morning in America](https://www.yahoo.com/news/44-americans-vietnam-war-unjustified-120728876.html)
+- Apr 30 - [Scientists issue dire warning after making frightening discovery in the Atlantic Ocean: 'Sudden, wide-reaching impacts'](https://www.yahoo.com/news/scientists-issue-dire-warning-making-111549688.html)
+- Apr 30 - [Ukraine struck Russian weapons factory, SBU security agency source says](https://www.yahoo.com/news/ukraine-struck-russian-weapons-factory-111408127.html)
 - Apr 30 - [2 pedestrians killed, driver arrested in Athens](https://www.yahoo.com/news/2-pedestrians-killed-driver-arrested-103040093.html)
-- Apr 30 - [Khloé Kardashian used to want to be skinny. Now she’s all about muscle, protein and a bigger butt.](https://www.yahoo.com/lifestyle/khloe-kardashian-used-to-want-to-be-skinny-now-shes-all-about-muscle-protein-and-a-bigger-butt-100037322.html)
-- Apr 30 - [Mortgage and refinance interest rates today, April 30, 2025: Rates drop almost 30 basis points this week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-april-30-2025-100025122.html)
-- Apr 30 - [Switzerland to enact Hamas ban from May 15](https://www.yahoo.com/news/switzerland-enact-hamas-ban-may-095146858.html)
+- Apr 30 - [Southern California man violently beaten in possible hate crime attack as suspect yells racial slurs](https://www.yahoo.com/news/southern-california-man-violently-beaten-060029064.html)
+- Apr 30 - [Ukraine said 120,000 useless mortar rounds were sent to its front line after a manufacturer tried to cut costs](https://www.yahoo.com/news/ukraine-said-120-000-useless-042105906.html)
 <!-- feed end -->
 
 ### Onstream
