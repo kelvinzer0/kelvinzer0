@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 30 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
 - Apr 30 - [Southern California man violently beaten in possible hate crime attack as suspect yells racial slurs](https://www.yahoo.com/news/southern-california-man-violently-beaten-060029064.html)
-- Apr 30 - [Ukraine said 120,000 useless mortar rounds were sent to its front line after a manufacturer tried to cut costs](https://www.yahoo.com/news/ukraine-said-120-000-useless-042105906.html)
 - Apr 30 - [“Frankly, I Never Heard Of You”: A Testy Donald Trump Tussles With Terry Moran During Contentious ABC News Interview Marking POTUS’ First 100 Days](https://www.yahoo.com/news/frankly-never-heard-testy-donald-014804700.html)
-- Apr 30 - [Tucker Carlson and Megyn Kelly Agree: It’s a Mistake for Republicans to Go on Gavin Newsom’s Podcast | Video](https://www.yahoo.com/news/tucker-carlson-megyn-kelly-agree-002448821.html)
+- Apr 29 - [4,200 tickets given out in first two months of California’s daylighting law](https://www.yahoo.com/news/4-200-tickets-given-first-232257000.html)
+- Apr 29 - [Trump: 'I have a Fed person who is not really doing a good job'](https://finance.yahoo.com/news/trump-i-have-a-fed-person-who-is-not-really-doing-a-good-job-231259807.html)
 <!-- feed end -->
 
 ### Onstream
