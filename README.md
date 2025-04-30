@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [AI Weekly: Tech giants get busy, bots pay off](https://finance.yahoo.com/video/ai-weekly-tech-giants-busy-181412489.html)
-- Apr 30 - [Two hikers swept away while trying to cross rushing creek, Washington cops say](https://www.yahoo.com/news/two-hikers-swept-away-while-162546729.html)
-- Apr 30 - [A 180-year-old private South Carolina university is closing after a $6M fundraising drive fails](https://www.yahoo.com/news/180-old-private-south-carolina-160458583.html)
+- Apr 30 - [From Driver to Business Owner – A Roadmap Snapshot](https://finance.yahoo.com/news/driver-business-owner-roadmap-snapshot-183043086.html)
+- Apr 30 - [Vermont judge releases Palestinian student activist who was arrested at his citizenship interview](https://www.yahoo.com/news/vermont-judge-releases-palestinian-student-160421638.html)
+- Apr 30 - [Trump says US kids may get '2 dolls instead of 30,' but China will suffer more in a trade war](https://www.yahoo.com/news/weak-gdp-report-tied-tariffs-155329577.html)
 - Apr 30 - [New York Times fires back after Trump threat](https://www.yahoo.com/news/york-times-fires-back-trump-153414389.html)
-- Apr 30 - [Trump decries 'Biden's Stock Market' after capping worst 100-day market performance in decades](https://finance.yahoo.com/news/trump-decries-bidens-stock-market-after-capping-worst-100-day-market-performance-in-decades-143116735.html)
+- Apr 30 - [DA gives 11 high schoolers involved in extreme hazing of lacrosse players 48 hours to surrender or face kidnapping charges](https://www.yahoo.com/news/da-gives-11-high-schoolers-212136574.html)
 <!-- feed end -->
 
 ### Onstream
