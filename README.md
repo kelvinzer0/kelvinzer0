@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Dozens injured following Russian strike on Kharkiv, Ukraine](https://www.yahoo.com/news/dozens-injured-following-russian-strike-075344038.html)
+- Apr 30 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
 - Apr 30 - [Southern California man violently beaten in possible hate crime attack as suspect yells racial slurs](https://www.yahoo.com/news/southern-california-man-violently-beaten-060029064.html)
 - Apr 30 - [Ukraine said 120,000 useless mortar rounds were sent to its front line after a manufacturer tried to cut costs](https://www.yahoo.com/news/ukraine-said-120-000-useless-042105906.html)
-- Apr 30 - [China creates list of US-made goods exempt from 125% tariffs, sources say](https://finance.yahoo.com/news/china-creates-list-us-made-040548839.html)
 - Apr 30 - [“Frankly, I Never Heard Of You”: A Testy Donald Trump Tussles With Terry Moran During Contentious ABC News Interview Marking POTUS’ First 100 Days](https://www.yahoo.com/news/frankly-never-heard-testy-donald-014804700.html)
+- Apr 30 - [Tucker Carlson and Megyn Kelly Agree: It’s a Mistake for Republicans to Go on Gavin Newsom’s Podcast | Video](https://www.yahoo.com/news/tucker-carlson-megyn-kelly-agree-002448821.html)
 <!-- feed end -->
 
 ### Onstream
