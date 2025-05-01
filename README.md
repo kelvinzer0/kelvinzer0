@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Supermicro Stock Is Soaring Today. Should You Buy The Hot AI Stock Before May 6?](https://finance.yahoo.com/news/supermicro-stock-soaring-today-buy-183015215.html)
-- May 01 - [Republicans are planning big changes to student loans and financial aid](https://finance.yahoo.com/news/republicans-are-planning-big-changes-to-student-loans-and-financial-aid-174938095.html)
+- May 01 - [Some Harvard Leaders Need to Go, Summers Says](https://finance.yahoo.com/video/harvard-leaders-summers-says-200548035.html)
+- May 01 - [5 cars that are safest from tariffs — and 5 getting hit hardest](https://autos.yahoo.com/5-cars-safest-tariffs-5-180800269.html)
+- May 01 - [High School Teacher Faces 63 Felony Charges After Allegedly Having Sex with 16-Year-Old Student](https://www.yahoo.com/news/high-school-teacher-faces-63-180759301.html)
+- May 01 - ['Modern Family' star Eric Stonestreet reveals he's been taking Mounjaro for type 2 diabetes since 2022. It has changed his life in 2 ways.](https://www.yahoo.com/lifestyle/modern-family-star-eric-stonestreet-180101906.html)
 - May 01 - [Ex-Panthers great Steve Smith sued under 'homewrecker law' for alleged affair with Ravens marching band member](https://sports.yahoo.com/nfl/article/ex-panthers-great-steve-smith-sued-under-homewrecker-law-for-alleged-affair-with-ravens-marching-band-member-172848397.html)
-- May 01 - [IDF Supports Firefighting Teams as Wildfires Are Declared Under Control](https://www.yahoo.com/news/idf-supports-firefighting-teams-wildfires-171618190.html)
-- May 01 - [Kohl’s CEO fired after making ‘highly unusual’ business deals with his romantic partner, report says](https://finance.yahoo.com/news/kohl-ceo-fired-making-highly-170929318.html)
 <!-- feed end -->
 
 ### Onstream
