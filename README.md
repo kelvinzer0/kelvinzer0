@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - [The most bought US stocks in Trump's first 100 days](https://uk.finance.yahoo.com/news/most-bought-us-stocks-trump-100-days-130710206.html)
+- May 01 - [Officials stunned by massive creature discovered in local waterway: 'Problem that can last decades'](https://www.yahoo.com/news/officials-stunned-massive-creature-discovered-101554390.html)
 - May 01 - [Mortgage and refinance interest rates today, May 1, 2025: GDP and inflation data lead to unsteady rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-may-1-2025-100011955.html)
 - May 01 - [Russia's Medvedev says Ukraine minerals deal means Trump has forced Kyiv to pay for US aid](https://www.yahoo.com/news/russias-medvedev-says-ukraine-minerals-091437095.html)
-- May 01 - [US bets $500 million on universal vaccines, WSJ reports](https://www.yahoo.com/news/us-bets-500-million-universal-084040725.html)
-- May 01 - [Florida Woman, 20, Allegedly Began Sexual Relationship with Underage Boy She Met at Funeral](https://www.yahoo.com/news/florida-woman-20-allegedly-began-025152793.html)
-- May 01 - [Former NBA star Shaquille O'Neal makes surprising statement after purchasing 3 Cybertrucks: 'Struggling'](https://www.yahoo.com/lifestyle/former-nba-star-shaquille-oneal-014000622.html)
+- May 01 - [A transgender professor at Kansas State University is suing for discrimination](https://www.yahoo.com/news/transgender-professor-kansas-state-university-090629392.html)
 <!-- feed end -->
 
 ### Onstream
