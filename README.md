@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - ["This Man's Brain Is Cooked": People Are Reacting To Donald Trump's Latest Bizarre Rant And It's Really...Something](https://www.yahoo.com/news/mans-brain-cooked-people-reacting-211658734.html)
+- May 01 - [Texas Dad Allegedly Asked 10-Year-Old Girl To Drive Truck, Leading To Crash That Killed Boy, 6](https://www.yahoo.com/news/texas-dad-allegedly-asked-10-211550916.html)
 - May 01 - [EU trade chief Sefcovic: Europe ready to make Trump a 50 billion euros offer, FT reports](https://finance.yahoo.com/news/eu-trade-chief-sefcovic-europe-194218691.html)
+- May 01 - [ISP: Driver of vehicle in Chatham may have suffered medical emergency, but inconclusive](https://www.yahoo.com/news/isp-driver-vehicle-chatham-may-185239089.html)
 - May 01 - [Driver who killed 4 by smashing through an Illinois after-school camp may have had health emergency](https://www.yahoo.com/news/driver-killed-4-hitting-illinois-185229371.html)
-- May 01 - ['Omega Block' To Flip Temperatures, Bring May Snow, Storms](https://www.yahoo.com/news/omega-block-flip-temperatures-bring-181757676.html)
-- May 01 - [Sheetz' bid to build new store rejected. Why Millcreek officials denied it](https://www.yahoo.com/news/sheetz-bid-build-store-rejected-181651037.html)
-- May 01 - [High School Teacher Faces 63 Felony Charges After Allegedly Having Sex with 16-Year-Old Student](https://www.yahoo.com/news/high-school-teacher-faces-63-180759301.html)
 <!-- feed end -->
 
 ### Onstream
