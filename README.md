@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Some Harvard Leaders Need to Go, Summers Says](https://finance.yahoo.com/video/harvard-leaders-summers-says-200548035.html)
-- May 01 - [5 cars that are safest from tariffs — and 5 getting hit hardest](https://autos.yahoo.com/5-cars-safest-tariffs-5-180800269.html)
+- May 01 - [EU trade chief Sefcovic: Europe ready to make Trump a 50 billion euros offer, FT reports](https://finance.yahoo.com/news/eu-trade-chief-sefcovic-europe-194218691.html)
+- May 01 - [Driver who killed 4 by smashing through an Illinois after-school camp may have had health emergency](https://www.yahoo.com/news/driver-killed-4-hitting-illinois-185229371.html)
+- May 01 - ['Omega Block' To Flip Temperatures, Bring May Snow, Storms](https://www.yahoo.com/news/omega-block-flip-temperatures-bring-181757676.html)
+- May 01 - [Sheetz' bid to build new store rejected. Why Millcreek officials denied it](https://www.yahoo.com/news/sheetz-bid-build-store-rejected-181651037.html)
 - May 01 - [High School Teacher Faces 63 Felony Charges After Allegedly Having Sex with 16-Year-Old Student](https://www.yahoo.com/news/high-school-teacher-faces-63-180759301.html)
-- May 01 - ['Modern Family' star Eric Stonestreet reveals he's been taking Mounjaro for type 2 diabetes since 2022. It has changed his life in 2 ways.](https://www.yahoo.com/lifestyle/modern-family-star-eric-stonestreet-180101906.html)
-- May 01 - [Ex-Panthers great Steve Smith sued under 'homewrecker law' for alleged affair with Ravens marching band member](https://sports.yahoo.com/nfl/article/ex-panthers-great-steve-smith-sued-under-homewrecker-law-for-alleged-affair-with-ravens-marching-band-member-172848397.html)
 <!-- feed end -->
 
 ### Onstream
