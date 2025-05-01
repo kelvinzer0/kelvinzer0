@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - [US Health secretary Kennedy revives misleading claims of 'fetal debris' in measles shots](https://www.yahoo.com/news/us-health-secretary-kennedy-revives-214253665.html)
 - May 01 - ["This Man's Brain Is Cooked": People Are Reacting To Donald Trump's Latest Bizarre Rant And It's Really...Something](https://www.yahoo.com/news/mans-brain-cooked-people-reacting-211658734.html)
-- May 01 - [Texas Dad Allegedly Asked 10-Year-Old Girl To Drive Truck, Leading To Crash That Killed Boy, 6](https://www.yahoo.com/news/texas-dad-allegedly-asked-10-211550916.html)
+- May 01 - [Reunited Couple Kanye West and Bianca Censori Sue His Dentist for Malpractice, Providing Nitrous Oxide](https://www.yahoo.com/news/reunited-couple-kanye-west-bianca-203607637.html)
 - May 01 - [EU trade chief Sefcovic: Europe ready to make Trump a 50 billion euros offer, FT reports](https://finance.yahoo.com/news/eu-trade-chief-sefcovic-europe-194218691.html)
-- May 01 - [ISP: Driver of vehicle in Chatham may have suffered medical emergency, but inconclusive](https://www.yahoo.com/news/isp-driver-vehicle-chatham-may-185239089.html)
 - May 01 - [Driver who killed 4 by smashing through an Illinois after-school camp may have had health emergency](https://www.yahoo.com/news/driver-killed-4-hitting-illinois-185229371.html)
 <!-- feed end -->
 
