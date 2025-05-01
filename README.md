@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Scientists once thought only humans could recognize musical beats. Ronan the sea lion proved them wrong](https://www.yahoo.com/news/scientists-once-thought-only-humans-164509599.html)
-- May 01 - [Elon Musk Erupts in Rage at News That Tesla Trying to Replace Him as CEO](https://finance.yahoo.com/news/elon-musk-erupts-rage-news-143449456.html)
-- May 01 - [Watch This New ‘Star Wars’-Style Speeder Bike Fly at Almost 125 mph](https://tech.yahoo.com/transportation/articles/watch-star-wars-style-speeder-140000364.html)
-- May 01 - [Scientists capture stunning video of colossal squid in its natural habitat: 'We could think of this ... as a teenager squid'](https://www.yahoo.com/news/scientists-capture-stunning-video-colossal-113047899.html)
-- May 01 - [Zoho suspends $700 million chipmaking plan in latest setback for India](https://finance.yahoo.com/news/zoho-suspends-700-million-chipmaking-103500327.html)
+- May 01 - [Judge says CEO Tim Cook 'chose poorly' as Apple ignored App Store order](https://finance.yahoo.com/news/judge-says-ceo-tim-cook-chose-poorly-as-apple-ignored-app-store-order-174755382.html)
+- May 01 - [Ex-Panthers great Steve Smith sued under 'homewrecker law' for alleged affair with Ravens marching band member](https://sports.yahoo.com/nfl/article/ex-panthers-great-steve-smith-sued-under-homewrecker-law-for-alleged-affair-with-ravens-marching-band-member-172848397.html)
+- May 01 - [IDF Supports Firefighting Teams as Wildfires Are Declared Under Control](https://www.yahoo.com/news/idf-supports-firefighting-teams-wildfires-171618190.html)
+- May 01 - [Kohl’s CEO fired after making ‘highly unusual’ business deals with his romantic partner, report says](https://finance.yahoo.com/news/kohl-ceo-fired-making-highly-170929318.html)
+- May 01 - [This Florida man got a $200 phone bill from a company he doesn’t subscribe to — and his fraud claim was denied](https://www.yahoo.com/news/florida-man-got-200-phone-170000289.html)
 <!-- feed end -->
 
 ### Onstream
