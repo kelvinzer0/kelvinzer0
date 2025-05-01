@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Ryanair threatens to drop Boeing order if tariffs impact price](https://finance.yahoo.com/video/ryanair-threatens-drop-boeing-order-140107199.html)
+- May 01 - [Nvidia CEO, Qualcomm outlook, Roblox strength: Trending Tickers](https://finance.yahoo.com/video/nvidia-ceo-qualcomm-outlook-roblox-144130915.html)
+- May 01 - [Watch This New ‘Star Wars’-Style Speeder Bike Fly at Almost 125 mph](https://tech.yahoo.com/transportation/articles/watch-star-wars-style-speeder-140000364.html)
 - May 01 - [5 high-protein, high-fiber foods a top nutritionist eats regularly instead of meat for better gut health](https://www.yahoo.com/lifestyle/5-high-protein-high-fiber-114339660.html)
 - May 01 - [Scientists capture stunning video of colossal squid in its natural habitat: 'We could think of this ... as a teenager squid'](https://www.yahoo.com/news/scientists-capture-stunning-video-colossal-113047899.html)
 - May 01 - [Zoho suspends $700 million chipmaking plan in latest setback for India](https://finance.yahoo.com/news/zoho-suspends-700-million-chipmaking-103500327.html)
-- May 01 - [Scientists propose bold solution to rampant invasive species crisis: 'Lean, mild, and tastes like rabbit'](https://www.yahoo.com/news/scientists-propose-bold-solution-rampant-103020382.html)
 <!-- feed end -->
 
 ### Onstream
