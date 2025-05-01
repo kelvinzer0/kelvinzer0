@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Judge says CEO Tim Cook 'chose poorly' as Apple ignored App Store order](https://finance.yahoo.com/news/judge-says-ceo-tim-cook-chose-poorly-as-apple-ignored-app-store-order-174755382.html)
+- May 01 - [Supermicro Stock Is Soaring Today. Should You Buy The Hot AI Stock Before May 6?](https://finance.yahoo.com/news/supermicro-stock-soaring-today-buy-183015215.html)
+- May 01 - [Republicans are planning big changes to student loans and financial aid](https://finance.yahoo.com/news/republicans-are-planning-big-changes-to-student-loans-and-financial-aid-174938095.html)
 - May 01 - [Ex-Panthers great Steve Smith sued under 'homewrecker law' for alleged affair with Ravens marching band member](https://sports.yahoo.com/nfl/article/ex-panthers-great-steve-smith-sued-under-homewrecker-law-for-alleged-affair-with-ravens-marching-band-member-172848397.html)
 - May 01 - [IDF Supports Firefighting Teams as Wildfires Are Declared Under Control](https://www.yahoo.com/news/idf-supports-firefighting-teams-wildfires-171618190.html)
 - May 01 - [Kohl’s CEO fired after making ‘highly unusual’ business deals with his romantic partner, report says](https://finance.yahoo.com/news/kohl-ceo-fired-making-highly-170929318.html)
-- May 01 - [This Florida man got a $200 phone bill from a company he doesn’t subscribe to — and his fraud claim was denied](https://www.yahoo.com/news/florida-man-got-200-phone-170000289.html)
 <!-- feed end -->
 
 ### Onstream
