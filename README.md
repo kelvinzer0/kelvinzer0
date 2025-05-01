@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Nvidia CEO, Qualcomm outlook, Roblox strength: Trending Tickers](https://finance.yahoo.com/video/nvidia-ceo-qualcomm-outlook-roblox-144130915.html)
-- May 01 - [Former Georgia representative found dead at Augusta hotel. Here's what we know](https://www.yahoo.com/news/former-georgia-representative-found-dead-132133419.html)
-- May 01 - [5 high-protein, high-fiber foods a top nutritionist eats regularly instead of meat for better gut health](https://www.yahoo.com/lifestyle/5-high-protein-high-fiber-114339660.html)
+- May 01 - [Scientists once thought only humans could recognize musical beats. Ronan the sea lion proved them wrong](https://www.yahoo.com/news/scientists-once-thought-only-humans-164509599.html)
+- May 01 - [Elon Musk Erupts in Rage at News That Tesla Trying to Replace Him as CEO](https://finance.yahoo.com/news/elon-musk-erupts-rage-news-143449456.html)
+- May 01 - [Watch This New ‘Star Wars’-Style Speeder Bike Fly at Almost 125 mph](https://tech.yahoo.com/transportation/articles/watch-star-wars-style-speeder-140000364.html)
 - May 01 - [Scientists capture stunning video of colossal squid in its natural habitat: 'We could think of this ... as a teenager squid'](https://www.yahoo.com/news/scientists-capture-stunning-video-colossal-113047899.html)
-- May 01 - [Mortgage and refinance interest rates today, May 1, 2025: Rates drop again, but will they keep falling?](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-may-1-2025-100011955.html)
+- May 01 - [Zoho suspends $700 million chipmaking plan in latest setback for India](https://finance.yahoo.com/news/zoho-suspends-700-million-chipmaking-103500327.html)
 <!-- feed end -->
 
 ### Onstream
