@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - [Elon Musk Reacts After Ray Dalio Warns Of US Decline, Says China Has Already Surpassed America As Global Consumption Leader](https://finance.yahoo.com/news/elon-musk-reacts-ray-dalio-025549136.html)
+- May 01 - [What minerals does Ukraine have and what are they used for?](https://www.yahoo.com/news/minerals-does-ukraine-used-023946757.html)
+- May 01 - [Vice President Vance casts tie-breaking Senate vote to kill bipartisan effort to rebuke Trump’s trade policy](https://www.yahoo.com/news/bipartisan-push-rebuke-trump-over-230507065.html)
+- Apr 30 - [Russia's Putin says reverting to Stalingrad name up to city residents](https://www.yahoo.com/news/russias-putin-says-reverting-stalingrad-215938333.html)
 - Apr 30 - [Scientists warn an underwater volcano off Oregon coast is about to explode](https://www.yahoo.com/news/scientists-warn-underwater-volcano-off-214123787.html)
-- Apr 30 - [Mexico's Pemex swings to $2 billion loss as production, sales slump](https://finance.yahoo.com/news/mexicos-pemex-swings-2-billion-205545215.html)
-- Apr 30 - [Billionaire investor Ray Dalio says Trump may be catapulting US toward a world order ‘very much like the 1930s](https://finance.yahoo.com/news/billionaire-investor-ray-dalio-says-203100792.html)
-- Apr 30 - [Twelve EU members request activation of escape clause for defence spending, Commission says](https://finance.yahoo.com/news/12-eu-members-request-activation-201522344.html)
-- Apr 30 - [US lawmaker warns Ryanair against buying Chinese-made planes](https://finance.yahoo.com/news/us-lawmaker-warns-ryanair-against-195347608.html)
 <!-- feed end -->
 
 ### Onstream
