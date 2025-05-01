@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Joe: A dizzying rise and fall for Elon Musk in Washington](https://www.yahoo.com/news/joe-dizzying-rise-fall-elon-101650868.html)
-- May 01 - [Best CD rates today, May 1, 2025 (lock in up to 4.40% APY)](https://finance.yahoo.com/personal-finance/banking/article/best-cd-rates-today-thursday-may-1-2025-100031953.html)
+- May 01 - [Mortgage and refinance interest rates today, May 1, 2025: GDP and inflation data lead to unsteady rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-may-1-2025-100011955.html)
 - May 01 - [Russia's Medvedev says Ukraine minerals deal means Trump has forced Kyiv to pay for US aid](https://www.yahoo.com/news/russias-medvedev-says-ukraine-minerals-091437095.html)
-- May 01 - [Tesla chair denies plans to look for new CEO to replace Musk](https://finance.yahoo.com/news/tesla-board-opened-search-ceo-011913958.html)
-- Apr 30 - [Massive Snake Mistaken for Stick Spooks Beachgoers by Slithering Through the Surf](https://www.yahoo.com/lifestyle/massive-snake-mistaken-stick-spooks-224817606.html)
+- May 01 - [US bets $500 million on universal vaccines, WSJ reports](https://www.yahoo.com/news/us-bets-500-million-universal-084040725.html)
+- May 01 - [Florida Woman, 20, Allegedly Began Sexual Relationship with Underage Boy She Met at Funeral](https://www.yahoo.com/news/florida-woman-20-allegedly-began-025152793.html)
+- May 01 - [Former NBA star Shaquille O'Neal makes surprising statement after purchasing 3 Cybertrucks: 'Struggling'](https://www.yahoo.com/lifestyle/former-nba-star-shaquille-oneal-014000622.html)
 <!-- feed end -->
 
 ### Onstream
