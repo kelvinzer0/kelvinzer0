@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Robert F. Kennedy Jr will require all new vaccines to undergo placebo testing, WaPo reports](https://www.yahoo.com/news/robert-f-kennedy-jr-require-032845063.html)
+- May 01 - [IMF says global market uncertainty weighing down on economies across Middle East and North Africa](https://www.yahoo.com/news/imf-says-global-market-uncertainty-061608779.html)
+- May 01 - [Hackers target the Co-op as police probe M&S cyber attack](https://www.yahoo.com/news/co-op-fends-off-hackers-115128817.html)
+- May 01 - [Trump Town Hall Audience Literally Bursts Out Laughing Over 1 Very Unlikely Claim](https://www.yahoo.com/news/trump-town-hall-audience-literally-051944686.html)
 - May 01 - [Vice President Vance casts tie-breaking Senate vote to kill bipartisan effort to rebuke Trump’s trade policy](https://www.yahoo.com/news/bipartisan-push-rebuke-trump-over-230507065.html)
 - May 01 - [Elon Musk Reacts After Ray Dalio Warns Of US Decline, Says China Has Already Surpassed America As Global Consumption Leader](https://finance.yahoo.com/news/elon-musk-reacts-ray-dalio-025549136.html)
-- Apr 30 - [Russia's Putin says reverting to Stalingrad name up to city residents](https://www.yahoo.com/news/russias-putin-says-reverting-stalingrad-215938333.html)
-- Apr 30 - [Scientists warn an underwater volcano off Oregon coast is about to explode](https://www.yahoo.com/news/scientists-warn-underwater-volcano-off-214123787.html)
 <!-- feed end -->
 
 ### Onstream
