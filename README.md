@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [The most bought US stocks in Trump's first 100 days](https://uk.finance.yahoo.com/news/most-bought-us-stocks-trump-100-days-130710206.html)
-- May 01 - [Officials stunned by massive creature discovered in local waterway: 'Problem that can last decades'](https://www.yahoo.com/news/officials-stunned-massive-creature-discovered-101554390.html)
-- May 01 - [Mortgage and refinance interest rates today, May 1, 2025: GDP and inflation data lead to unsteady rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-may-1-2025-100011955.html)
-- May 01 - [Russia's Medvedev says Ukraine minerals deal means Trump has forced Kyiv to pay for US aid](https://www.yahoo.com/news/russias-medvedev-says-ukraine-minerals-091437095.html)
-- May 01 - [A transgender professor at Kansas State University is suing for discrimination](https://www.yahoo.com/news/transgender-professor-kansas-state-university-090629392.html)
+- May 01 - [Ryanair threatens to drop Boeing order if tariffs impact price](https://finance.yahoo.com/video/ryanair-threatens-drop-boeing-order-140107199.html)
+- May 01 - [5 high-protein, high-fiber foods a top nutritionist eats regularly instead of meat for better gut health](https://www.yahoo.com/lifestyle/5-high-protein-high-fiber-114339660.html)
+- May 01 - [Scientists capture stunning video of colossal squid in its natural habitat: 'We could think of this ... as a teenager squid'](https://www.yahoo.com/news/scientists-capture-stunning-video-colossal-113047899.html)
+- May 01 - [Zoho suspends $700 million chipmaking plan in latest setback for India](https://finance.yahoo.com/news/zoho-suspends-700-million-chipmaking-103500327.html)
+- May 01 - [Scientists propose bold solution to rampant invasive species crisis: 'Lean, mild, and tastes like rabbit'](https://www.yahoo.com/news/scientists-propose-bold-solution-rampant-103020382.html)
 <!-- feed end -->
 
 ### Onstream
