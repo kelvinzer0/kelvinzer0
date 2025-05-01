@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Town of Henrietta steps in to fix massive potholes at South Town Plaza](https://www.yahoo.com/news/town-henrietta-steps-fix-massive-083625673.html)
-- May 01 - [Trump Town Hall Audience Literally Bursts Out Laughing Over 1 Very Unlikely Claim](https://www.yahoo.com/news/trump-town-hall-audience-literally-051944686.html)
+- May 01 - [Why T.D. Jakes says real estate is key to wealth & savings](https://finance.yahoo.com/video/why-t-d-jakes-says-100002679.html)
+- May 01 - [Russia's Medvedev says Ukraine minerals deal means Trump has forced Kyiv to pay for US aid](https://www.yahoo.com/news/russias-medvedev-says-ukraine-minerals-091437095.html)
 - May 01 - [Robert F. Kennedy Jr will require all new vaccines to undergo placebo testing, WaPo reports](https://www.yahoo.com/news/robert-f-kennedy-jr-require-032845063.html)
 - May 01 - [Vice President Vance casts tie-breaking Senate vote to kill bipartisan effort to rebuke Trump’s trade policy](https://www.yahoo.com/news/bipartisan-push-rebuke-trump-over-230507065.html)
 - May 01 - [Elon Musk Reacts After Ray Dalio Warns Of US Decline, Says China Has Already Surpassed America As Global Consumption Leader](https://finance.yahoo.com/news/elon-musk-reacts-ray-dalio-025549136.html)
