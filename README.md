@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Without a REAL ID, you could face delays or be barred from your flight after May 7](https://www.yahoo.com/news/without-real-id-could-face-070019553.html)
+- May 01 - [Union boss criticises Labour’s net zero policy in fresh blow to Miliband](https://www.yahoo.com/news/cabinet-minister-admits-tony-blair-101626586.html)
 - May 01 - [Trump Town Hall Audience Literally Bursts Out Laughing Over 1 Very Unlikely Claim](https://www.yahoo.com/news/trump-town-hall-audience-literally-051944686.html)
 - May 01 - [Robert F. Kennedy Jr will require all new vaccines to undergo placebo testing, WaPo reports](https://www.yahoo.com/news/robert-f-kennedy-jr-require-032845063.html)
-- May 01 - [Vice President Vance casts tie-breaking Senate vote to kill bipartisan effort to rebuke Trump’s trade policy](https://www.yahoo.com/news/bipartisan-push-rebuke-trump-over-230507065.html)
 - May 01 - [Elon Musk Reacts After Ray Dalio Warns Of US Decline, Says China Has Already Surpassed America As Global Consumption Leader](https://finance.yahoo.com/news/elon-musk-reacts-ray-dalio-025549136.html)
+- May 01 - [Tesla chair denies plans to look for new CEO to replace Musk](https://finance.yahoo.com/news/tesla-board-opened-search-ceo-011913958.html)
 <!-- feed end -->
 
 ### Onstream
