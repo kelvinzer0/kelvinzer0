@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Why T.D. Jakes says real estate is key to wealth & savings](https://finance.yahoo.com/video/why-t-d-jakes-says-100002679.html)
+- May 01 - [Joe: A dizzying rise and fall for Elon Musk in Washington](https://www.yahoo.com/news/joe-dizzying-rise-fall-elon-101650868.html)
+- May 01 - [Best CD rates today, May 1, 2025 (lock in up to 4.40% APY)](https://finance.yahoo.com/personal-finance/banking/article/best-cd-rates-today-thursday-may-1-2025-100031953.html)
 - May 01 - [Russia's Medvedev says Ukraine minerals deal means Trump has forced Kyiv to pay for US aid](https://www.yahoo.com/news/russias-medvedev-says-ukraine-minerals-091437095.html)
-- May 01 - [Robert F. Kennedy Jr will require all new vaccines to undergo placebo testing, WaPo reports](https://www.yahoo.com/news/robert-f-kennedy-jr-require-032845063.html)
-- May 01 - [Vice President Vance casts tie-breaking Senate vote to kill bipartisan effort to rebuke Trump’s trade policy](https://www.yahoo.com/news/bipartisan-push-rebuke-trump-over-230507065.html)
-- May 01 - [Elon Musk Reacts After Ray Dalio Warns Of US Decline, Says China Has Already Surpassed America As Global Consumption Leader](https://finance.yahoo.com/news/elon-musk-reacts-ray-dalio-025549136.html)
+- May 01 - [Tesla chair denies plans to look for new CEO to replace Musk](https://finance.yahoo.com/news/tesla-board-opened-search-ceo-011913958.html)
+- Apr 30 - [Massive Snake Mistaken for Stick Spooks Beachgoers by Slithering Through the Surf](https://www.yahoo.com/lifestyle/massive-snake-mistaken-stick-spooks-224817606.html)
 <!-- feed end -->
 
 ### Onstream
