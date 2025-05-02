@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - ["We Went From 'Lower The Price Of Eggs' To 'Lower Your Standard Of Living'": 39 Of The Best, Most Brutal, And Very Relatable Political Tweets Of The Month](https://www.yahoo.com/news/willy-wonka-presidency-39-most-231324227.html)
 - May 01 - [He Confronted the Boy Who Allegedly Assaulted His Daughter. The Boy Then Beat Him to Death With a Bat, Prosecutors Say](https://www.yahoo.com/news/confronted-boy-allegedly-assaulted-daughter-225450441.html)
 - May 01 - [US Health secretary Kennedy revives misleading claims of 'fetal debris' in measles shots](https://www.yahoo.com/news/us-health-secretary-kennedy-revives-214253665.html)
 - May 01 - ["This Man's Brain Is Cooked": People Are Reacting To Donald Trump's Latest Bizarre Rant And It's Really...Something](https://www.yahoo.com/news/mans-brain-cooked-people-reacting-211658734.html)
-- May 01 - [5 cars that are safest from tariffs — and 5 getting hit hardest](https://autos.yahoo.com/5-cars-safest-tariffs-5-180800269.html)
-- May 01 - ['Modern Family' star Eric Stonestreet reveals he's been taking Mounjaro for type 2 diabetes since 2022. It has changed his life in 2 ways.](https://www.yahoo.com/lifestyle/modern-family-star-eric-stonestreet-180101906.html)
+- May 01 - [EU trade chief Sefcovic: Europe ready to make Trump a 50 billion euros offer, FT reports](https://finance.yahoo.com/news/eu-trade-chief-sefcovic-europe-194218691.html)
 <!-- feed end -->
 
 ### Onstream
