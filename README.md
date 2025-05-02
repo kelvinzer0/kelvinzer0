@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Russia says it is creating 'security strip' in Ukraine's Sumy region](https://www.yahoo.com/news/russia-says-creating-security-strip-104941559.html)
-- May 02 - [Trump turns civil rights upside down in ‘biggest rollback’ since Reconstruction](https://www.yahoo.com/news/trump-turns-civil-rights-upside-100051368.html)
-- May 02 - [Tech investing playbook: Evolution of Big Tech dominance](https://finance.yahoo.com/video/tech-investing-playbook-evolution-big-100006671.html)
+- May 02 - [Gold stems sell-off on signs of easing US-China trade tensions](https://uk.finance.yahoo.com/news/gold-pound-dollar-oil-us-china-trade-120406435.html)
+- May 02 - [Jewish, Israeli Harvard students felt shunned, silenced after 2023 attacks in Israel, report says](https://www.yahoo.com/news/jewish-israeli-harvard-students-felt-111610267.html)
+- May 02 - [Lebanon warns Hamas not to carry out any attacks from its territories](https://www.yahoo.com/news/lebanon-warns-hamas-not-carry-104222096.html)
 - May 02 - [Utah couple arrested at their 27,000 sq ft mansion for allegedly running $300M scam smuggling oil from Mexico](https://www.yahoo.com/news/utah-couple-arrested-27-000-094500991.html)
-- May 02 - [As Trump moves to tax small parcels, some retailers give up on US](https://finance.yahoo.com/news/trump-moves-tax-small-parcels-050922714.html)
+- May 02 - [US cedes little ground on key tariffs in talks with Japan, Nikkei says](https://finance.yahoo.com/news/us-cedes-little-ground-key-081803275.html)
 <!-- feed end -->
 
 ### Onstream
