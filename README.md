@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Snakes have bitten this man hundreds of times. His blood could help make a better treatment](https://www.yahoo.com/news/snakes-bitten-man-hundreds-times-150915146.html)
-- May 02 - [Seattle woman vows to find driver who killed her mom in hit-and-run](https://www.yahoo.com/news/seattle-woman-vows-driver-killed-142545498.html)
+- May 02 - [Powerful storm in Pennsylvania caught on video as tree crashes onto parked car](https://www.yahoo.com/news/powerful-storm-pennsylvania-caught-video-141642901.html)
+- May 02 - [Popular West Coast burger chain set to open another Colorado location. Here's what we know](https://www.yahoo.com/news/popular-west-coast-burger-chain-131113130.html)
 - May 02 - [South African court convicts mother of trafficking her 6-year-old daughter](https://www.yahoo.com/news/south-african-court-convicts-mother-124440460.html)
+- May 02 - [Hair-raising video captures massive snake slithering near busy boat ramp: 'It's taking itself on quite the adventure'](https://www.yahoo.com/news/hair-raising-video-captures-massive-114534868.html)
 - May 02 - [Lebanon warns Hamas not to carry out any attacks from its territories](https://www.yahoo.com/news/lebanon-warns-hamas-not-carry-104222096.html)
-- May 02 - [Mike Rowe warns America has 7 million men in their prime who aren’t working — and they're not even looking](https://www.yahoo.com/news/mike-rowe-warns-america-7-103200549.html)
 <!-- feed end -->
 
 ### Onstream
