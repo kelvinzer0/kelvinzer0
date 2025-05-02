@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Hubbell (NYSE:HUBB) Projects 2025 EPS Growth Despite Q1 Sales Decline](https://finance.yahoo.com/news/hubbell-nyse-hubb-projects-2025-174235418.html)
-- May 02 - [Trump's April tariff revenue topped $17 billion. That dwarfs any haul from his first term.](https://finance.yahoo.com/news/trumps-april-tariff-revenue-topped-17-billion-that-dwarfs-any-haul-from-his-first-term-160856118.html)
-- May 02 - [One of JD Vance’s closest friends is a Canadian politician. He just revoked his invite to Canada: ‘They need to reconsider’](https://www.yahoo.com/news/one-jd-vance-closest-friends-151716443.html)
-- May 02 - [Lebanon warns Hamas not to carry out any attacks from its territories](https://www.yahoo.com/news/lebanon-warns-hamas-not-carry-104222096.html)
-- May 02 - [Mike Rowe warns America has 7 million men in their prime who aren’t working — and they're not even looking](https://www.yahoo.com/news/mike-rowe-warns-america-7-103200549.html)
+- May 02 - [7 people are dead after a pickup and tour van collide near Yellowstone, police say](https://www.yahoo.com/news/7-people-dead-pickup-tour-175121136.html)
+- May 02 - [Six Flags Announces Plans to Permanently Shut Down Theme Park After 25 Years](https://finance.yahoo.com/news/six-flags-announces-plans-permanently-171614894.html)
+- May 02 - [How you can become a volunteer extra in the Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/become-volunteer-extra-bills-hallmark-154423109.html)
+- May 02 - [A fourth person dies from a Minneapolis mass shooting and the suspect is charged with murder](https://www.yahoo.com/news/fourth-person-dies-minneapolis-mass-141732858.html)
+- May 02 - [Legendary White House Reporter: I Know the Secrets of Trump’s Physique](https://www.yahoo.com/news/legendary-white-house-reporter-know-115627042.html)
 <!-- feed end -->
 
 ### Onstream
