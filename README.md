@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [As Trump moves to tax small parcels, some retailers give up on US](https://finance.yahoo.com/news/trump-moves-tax-small-parcels-050922714.html)
 - May 02 - [Nvidia CEO Jensen Huang Sounds Alarm As 50% Of AI Researchers Are Chinese, Urges America To Reskill Amid 'Infinite Game'](https://finance.yahoo.com/news/nvidia-ceo-jensen-huang-sounds-035916833.html)
-- May 02 - [Giant Structure in Deep Space Challenges Our Understanding of The Universe](https://www.yahoo.com/news/giant-structure-deep-space-challenges-000807720.html)
-- May 02 - [Luigi Mangione wants state murder case dropped, arguing double jeopardy in UnitedHealthcare killing](https://www.yahoo.com/news/luigi-mangione-wants-state-murder-000010979.html)
 - May 01 - [Army plans for a potential parade on Trump's birthday call for 6,600 soldiers, AP learns](https://www.yahoo.com/news/army-plans-potential-parade-trumps-231454428.html)
+- May 01 - [Mississippi sets an execution date for a man who's been on death row since 1976](https://www.yahoo.com/news/mississippi-sets-execution-date-man-225906039.html)
 - May 01 - [He Confronted the Boy Who Allegedly Assaulted His Daughter. The Boy Then Beat Him to Death With a Bat, Prosecutors Say](https://www.yahoo.com/news/confronted-boy-allegedly-assaulted-daughter-225450441.html)
 <!-- feed end -->
 
