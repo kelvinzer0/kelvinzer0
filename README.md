@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [7 people are dead after a pickup and tour van collide near Yellowstone, police say](https://www.yahoo.com/news/7-people-dead-pickup-tour-175121136.html)
+- May 02 - [Stocks may retest April lows, says CIO](https://finance.yahoo.com/video/stocks-may-retest-april-lows-195940833.html)
+- May 02 - [Beijing weighs fentanyl offer to US to start trade talks, WSJ reports](https://finance.yahoo.com/news/beijing-weighs-fentanyl-offer-us-181926721.html)
+- May 02 - [Archaeologists Found a Stunningly Preserved 5,000-Year-Old Mummy—in a Garbage Dump](https://www.yahoo.com/news/archaeologists-found-stunningly-preserved-5-180000461.html)
+- May 02 - [U.S. Secretary of Commerce says the ‘new model’ is factory jobs for life—for you, your kids, and your grandkids](https://www.yahoo.com/news/u-secretary-commerce-says-model-172111761.html)
 - May 02 - [Six Flags Announces Plans to Permanently Shut Down Theme Park After 25 Years](https://finance.yahoo.com/news/six-flags-announces-plans-permanently-171614894.html)
-- May 02 - [How you can become a volunteer extra in the Bills Hallmark movie](https://www.yahoo.com/entertainment/articles/become-volunteer-extra-bills-hallmark-154423109.html)
-- May 02 - [A fourth person dies from a Minneapolis mass shooting and the suspect is charged with murder](https://www.yahoo.com/news/fourth-person-dies-minneapolis-mass-141732858.html)
-- May 02 - [Legendary White House Reporter: I Know the Secrets of Trump’s Physique](https://www.yahoo.com/news/legendary-white-house-reporter-know-115627042.html)
 <!-- feed end -->
 
 ### Onstream
