@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - ["We Went From 'Lower The Price Of Eggs' To 'Lower Your Standard Of Living'": 39 Of The Best, Most Brutal, And Very Relatable Political Tweets Of The Month](https://www.yahoo.com/news/willy-wonka-presidency-39-most-231324227.html)
+- May 01 - [Mississippi sets an execution date for a man who's been on death row since 1976](https://www.yahoo.com/news/mississippi-sets-execution-date-man-225906039.html)
 - May 01 - [He Confronted the Boy Who Allegedly Assaulted His Daughter. The Boy Then Beat Him to Death With a Bat, Prosecutors Say](https://www.yahoo.com/news/confronted-boy-allegedly-assaulted-daughter-225450441.html)
+- May 01 - [Marine MV-22 Ospreys Won’t Get Tanker Capability To Refuel F-35Bs Anytime Soon](https://www.yahoo.com/news/mv-22-osprey-not-getting-200306354.html)
 - May 01 - [US Health secretary Kennedy revives misleading claims of 'fetal debris' in measles shots](https://www.yahoo.com/news/us-health-secretary-kennedy-revives-214253665.html)
 - May 01 - ["This Man's Brain Is Cooked": People Are Reacting To Donald Trump's Latest Bizarre Rant And It's Really...Something](https://www.yahoo.com/news/mans-brain-cooked-people-reacting-211658734.html)
-- May 01 - [EU trade chief Sefcovic: Europe ready to make Trump a 50 billion euros offer, FT reports](https://finance.yahoo.com/news/eu-trade-chief-sefcovic-europe-194218691.html)
 <!-- feed end -->
 
 ### Onstream
