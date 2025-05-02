@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [Russia says it is creating 'security strip' in Ukraine's Sumy region](https://www.yahoo.com/news/russia-says-creating-security-strip-104941559.html)
+- May 02 - [Trump turns civil rights upside down in ‘biggest rollback’ since Reconstruction](https://www.yahoo.com/news/trump-turns-civil-rights-upside-100051368.html)
+- May 02 - [Tech investing playbook: Evolution of Big Tech dominance](https://finance.yahoo.com/video/tech-investing-playbook-evolution-big-100006671.html)
+- May 02 - [Utah couple arrested at their 27,000 sq ft mansion for allegedly running $300M scam smuggling oil from Mexico](https://www.yahoo.com/news/utah-couple-arrested-27-000-094500991.html)
 - May 02 - [As Trump moves to tax small parcels, some retailers give up on US](https://finance.yahoo.com/news/trump-moves-tax-small-parcels-050922714.html)
-- May 02 - [8 intriguing homes with links to World War Two](https://uk.finance.yahoo.com/news/homes-world-war-two-property-050056698.html)
-- May 02 - [Luigi Mangione wants state murder case dropped, arguing double jeopardy in UnitedHealthcare killing](https://www.yahoo.com/news/luigi-mangione-wants-state-murder-000010979.html)
-- May 01 - [‘60 Minutes’ Set to Air Segment That Will Infuriate Trump](https://www.yahoo.com/news/60-minutes-set-air-segment-225854038.html)
-- May 01 - [He Confronted the Boy Who Allegedly Assaulted His Daughter. The Boy Then Beat Him to Death With a Bat, Prosecutors Say](https://www.yahoo.com/news/confronted-boy-allegedly-assaulted-daughter-225450441.html)
 <!-- feed end -->
 
 ### Onstream
