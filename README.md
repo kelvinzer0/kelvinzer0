@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Powerful storm in Pennsylvania caught on video as tree crashes onto parked car](https://www.yahoo.com/news/powerful-storm-pennsylvania-caught-video-141642901.html)
-- May 02 - [Popular West Coast burger chain set to open another Colorado location. Here's what we know](https://www.yahoo.com/news/popular-west-coast-burger-chain-131113130.html)
-- May 02 - [South African court convicts mother of trafficking her 6-year-old daughter](https://www.yahoo.com/news/south-african-court-convicts-mother-124440460.html)
-- May 02 - [Hair-raising video captures massive snake slithering near busy boat ramp: 'It's taking itself on quite the adventure'](https://www.yahoo.com/news/hair-raising-video-captures-massive-114534868.html)
-- May 02 - [Lebanon warns Hamas not to carry out any attacks from its territories](https://www.yahoo.com/news/lebanon-warns-hamas-not-carry-104222096.html)
+- May 02 - [Prince Harry loses appeal over UK security arrangements](https://www.yahoo.com/news/prince-harry-loses-appeal-over-163309229.html)
+- May 02 - [A South African woman is convicted of kidnapping and selling her 6-year-old daughter](https://www.yahoo.com/news/south-african-woman-convicted-kidnapping-154215765.html)
+- May 02 - [Donald Trump Says He's Renaming Veteran's Day, And People Are Like "Lol What"](https://www.yahoo.com/news/people-lol-donald-trump-renaming-153326299.html)
+- May 02 - [One of JD Vance’s closest friends is a Canadian politician. He just revoked his invite to Canada: ‘They need to reconsider’](https://www.yahoo.com/news/one-jd-vance-closest-friends-151716443.html)
+- May 02 - [A fourth person dies from a Minneapolis mass shooting and the suspect is charged with murder](https://www.yahoo.com/news/fourth-person-dies-minneapolis-mass-141732858.html)
 <!-- feed end -->
 
 ### Onstream
