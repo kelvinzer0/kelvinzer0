@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 02 - [Stocks may retest April lows, says CIO](https://finance.yahoo.com/video/stocks-may-retest-april-lows-195940833.html)
+- May 02 - [Largest US restaurant chain is closing hundreds of stores at an alarming rate](https://finance.yahoo.com/news/largest-us-restaurant-chain-closing-193241206.html)
+- May 02 - [Wisconsin governor says he's not afraid after Trump official suggests possible arrest](https://www.yahoo.com/news/wisconsin-governor-says-hes-not-182422139.html)
 - May 02 - [Beijing weighs fentanyl offer to US to start trade talks, WSJ reports](https://finance.yahoo.com/news/beijing-weighs-fentanyl-offer-us-181926721.html)
 - May 02 - [Archaeologists Found a Stunningly Preserved 5,000-Year-Old Mummy—in a Garbage Dump](https://www.yahoo.com/news/archaeologists-found-stunningly-preserved-5-180000461.html)
-- May 02 - [U.S. Secretary of Commerce says the ‘new model’ is factory jobs for life—for you, your kids, and your grandkids](https://www.yahoo.com/news/u-secretary-commerce-says-model-172111761.html)
-- May 02 - [Six Flags Announces Plans to Permanently Shut Down Theme Park After 25 Years](https://finance.yahoo.com/news/six-flags-announces-plans-permanently-171614894.html)
 <!-- feed end -->
 
 ### Onstream
