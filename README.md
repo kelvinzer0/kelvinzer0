@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - May 02 - [As Trump moves to tax small parcels, some retailers give up on US](https://finance.yahoo.com/news/trump-moves-tax-small-parcels-050922714.html)
 - May 02 - [8 intriguing homes with links to World War Two](https://uk.finance.yahoo.com/news/homes-world-war-two-property-050056698.html)
 - May 02 - [Luigi Mangione wants state murder case dropped, arguing double jeopardy in UnitedHealthcare killing](https://www.yahoo.com/news/luigi-mangione-wants-state-murder-000010979.html)
-- May 01 - [Army plans for a potential parade on Trump's birthday call for 6,600 soldiers, AP learns](https://www.yahoo.com/news/army-plans-potential-parade-trumps-231454428.html)
+- May 01 - [‘60 Minutes’ Set to Air Segment That Will Infuriate Trump](https://www.yahoo.com/news/60-minutes-set-air-segment-225854038.html)
 - May 01 - [He Confronted the Boy Who Allegedly Assaulted His Daughter. The Boy Then Beat Him to Death With a Bat, Prosecutors Say](https://www.yahoo.com/news/confronted-boy-allegedly-assaulted-daughter-225450441.html)
 <!-- feed end -->
 
