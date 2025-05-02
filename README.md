@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Stocks may retest April lows, says CIO](https://finance.yahoo.com/video/stocks-may-retest-april-lows-195940833.html)
+- May 02 - [Marjorie Taylor Greene turns on Trump administration](https://www.yahoo.com/news/marjorie-taylor-greene-turns-trump-204530679.html)
 - May 02 - [Largest US restaurant chain is closing hundreds of stores at an alarming rate](https://finance.yahoo.com/news/largest-us-restaurant-chain-closing-193241206.html)
 - May 02 - [Wisconsin governor says he's not afraid after Trump official suggests possible arrest](https://www.yahoo.com/news/wisconsin-governor-says-hes-not-182422139.html)
 - May 02 - [Beijing weighs fentanyl offer to US to start trade talks, WSJ reports](https://finance.yahoo.com/news/beijing-weighs-fentanyl-offer-us-181926721.html)
-- May 02 - [Archaeologists Found a Stunningly Preserved 5,000-Year-Old Mummy—in a Garbage Dump](https://www.yahoo.com/news/archaeologists-found-stunningly-preserved-5-180000461.html)
+- May 02 - [This is the number of babies each woman needs to have to avoid human extinction—and the U.S. is nowhere close](https://www.yahoo.com/news/number-babies-woman-needs-avoid-174452272.html)
 <!-- feed end -->
 
 ### Onstream
