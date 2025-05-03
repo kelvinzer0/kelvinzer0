@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [British student killed in Texas days before graduation](https://www.yahoo.com/news/british-nursing-student-killed-texas-171656486.html)
+- May 03 - [Bataan Death March, POW camp claimed Williamston man. His remains finally rest in US soil](https://www.yahoo.com/news/bataan-death-march-pow-camp-211059928.html)
+- May 03 - [‘We will see empty shelves’ if negotiations with China take too long: CNBC commentator](https://www.yahoo.com/news/see-empty-shelves-negotiations-china-204748867.html)
 - May 03 - [Portugal announces the expulsion of 18,000 foreigners ahead of a national election](https://www.yahoo.com/news/portugal-announces-expulsion-18-000-182359072.html)
-- May 03 - [Israeli military issues thousands of call-up notices, local media report](https://www.yahoo.com/news/israeli-pm-netanyahu-postpones-upcoming-174352418.html)
-- May 03 - [United Airlines says it has 'no other choice' but to cancel flights from Newark airport](https://www.yahoo.com/news/united-airlines-says-no-other-170835888.html)
-- May 03 - [People Are Calling Donald Trump's Latest Truth Social Post The "Most Disrespectful Post In A Sea Of Disrespect"](https://www.yahoo.com/news/people-calling-donald-trumps-latest-155001543.html)
-- May 03 - [Buffett: This year's stock market turmoil 'is really nothing'](https://finance.yahoo.com/news/buffett-this-years-stock-market-turmoil-is-really-nothing-153111329.html)
+- May 03 - [Southbound 805 freeway shut down due to major traffic collision](https://www.yahoo.com/news/southbound-805-freeway-shut-down-165500460.html)
 <!-- feed end -->
 
 ### Onstream
