@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [I'm Retiring at 40 After Paying Off $300,000 in Debt. Here's How I Did It](https://finance.yahoo.com/news/im-retiring-40-paying-off-120000612.html)
+- May 03 - [Floridians are stuck with aging condos they can’t sell. Will a new law aiming to bring them some relief help?](https://finance.yahoo.com/news/floridians-are-stuck-with-aging-condos-they-cant-sell-will-a-new-law-aiming-to-bring-them-some-relief-help-124616648.html)
+- May 03 - [International tourists killed in vehicle crash were among millions drawn to the Yellowstone area](https://www.yahoo.com/news/international-tourists-killed-vehicle-crash-124342542.html)
+- May 03 - [Scientists make critical breakthrough in effort to build limitless energy machines: 'This method could represent a viable approach'](https://www.yahoo.com/news/scientists-critical-breakthrough-effort-build-113037478.html)
+- May 03 - [Pakistan test fires ballistic missile as tensions with India spike after Kashmir gun massacre](https://www.yahoo.com/news/pakistan-test-fires-ballistic-missile-085803825.html)
 - May 03 - [Russia declares state of emergency at port after Ukrainian drone attack on Novorossiisk](https://www.yahoo.com/news/russia-declares-state-emergency-port-081418590.html)
-- May 03 - ['Strange' handling of John Elway golf cart incident called out by ex-prosecutor who says mistakes were made](https://www.yahoo.com/news/strange-handling-john-elway-golf-080001032.html)
-- May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
-- May 03 - [Red line defeat! See Trump’s 7-2 Supreme Court loss decoded in LEGAL SPECIAL (Weissman, Melber)](https://www.yahoo.com/news/red-line-defeat-see-trump-005811615.html)
 <!-- feed end -->
 
 ### Onstream
