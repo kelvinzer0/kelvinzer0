@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [Pakistan test fires ballistic missile as tensions with India spike after Kashmir gun massacre](https://www.yahoo.com/news/pakistan-test-fires-ballistic-missile-085803825.html)
 - May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
-- May 03 - [Red line defeat! See Trump’s 7-2 Supreme Court loss decoded in LEGAL SPECIAL (Weissman, Melber)](https://www.yahoo.com/news/red-line-defeat-see-trump-005811615.html)
+- May 02 - [Kidnapper Who Held Elizabeth Smart Captive for 9 Months Arrested After Police Say Sex Offender Visited Salt Lake City Parks](https://www.yahoo.com/news/kidnapper-held-elizabeth-smart-captive-233721662.html)
+- May 02 - [Francis Ngannou issues first comments about fatal motorcycle accident in Cameroon](https://sports.yahoo.com/mma/article/francis-ngannou-issues-first-comments-about-fatal-motorcycle-accident-in-cameroon-233403433.html)
 - May 02 - [This In-N-Out location is closing for months – and it’s a good thing](https://www.yahoo.com/lifestyle/n-location-closing-months-good-225259496.html)
-- May 02 - [He injected himself with snake venom hundreds of times. His blood could ‘revolutionize’ snakebite treatment](https://www.yahoo.com/news/man-injected-himself-venom-hundreds-175903014.html)
-- May 02 - [Trump says the government will revoke Harvard’s tax-exempt status. The university’s president says that would be illegal](https://www.yahoo.com/news/trump-repeats-government-revoke-harvard-125502738.html)
 <!-- feed end -->
 
 ### Onstream
