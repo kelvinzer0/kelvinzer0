@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [3 Super-Safe Dividend Stocks to Buy That Have Been Impervious to the Stock Market Sell-Off So Far](https://finance.yahoo.com/news/3-super-safe-dividend-stocks-094500343.html)
 - May 03 - [Pakistan test fires ballistic missile as tensions with India spike after Kashmir gun massacre](https://www.yahoo.com/news/pakistan-test-fires-ballistic-missile-085803825.html)
+- May 03 - [Russia declares state of emergency at port after Ukrainian drone attack on Novorossiisk](https://www.yahoo.com/news/russia-declares-state-emergency-port-081418590.html)
 - May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
-- May 02 - [Kidnapper Who Held Elizabeth Smart Captive for 9 Months Arrested After Police Say Sex Offender Visited Salt Lake City Parks](https://www.yahoo.com/news/kidnapper-held-elizabeth-smart-captive-233721662.html)
 - May 02 - [Francis Ngannou issues first comments about fatal motorcycle accident in Cameroon](https://sports.yahoo.com/mma/article/francis-ngannou-issues-first-comments-about-fatal-motorcycle-accident-in-cameroon-233403433.html)
-- May 02 - [This In-N-Out location is closing for months – and it’s a good thing](https://www.yahoo.com/lifestyle/n-location-closing-months-good-225259496.html)
 <!-- feed end -->
 
 ### Onstream
