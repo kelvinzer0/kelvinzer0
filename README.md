@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Here Are My Top 4 Stocks to Buy in May](https://finance.yahoo.com/news/top-4-stocks-buy-may-183000620.html)
+- May 03 - [Warren Buffett to step down as Berkshire CEO](https://finance.yahoo.com/video/warren-buffett-step-down-berkshire-194042033.html)
+- May 03 - [Dordogne murder investigated as a grudge killing](https://www.yahoo.com/news/dordogne-murder-investigated-grudge-killing-190619365.html)
+- May 03 - [Takeaways from AP's reporting on child malnutrition in Gaza](https://www.yahoo.com/news/takeaways-aps-reporting-child-malnutrition-190210965.html)
 - May 03 - [Portugal announces the expulsion of 18,000 foreigners ahead of a national election](https://www.yahoo.com/news/portugal-announces-expulsion-18-000-182359072.html)
-- May 03 - [People Are Calling Donald Trump's Latest Truth Social Post The "Most Disrespectful Post In A Sea Of Disrespect"](https://www.yahoo.com/news/people-calling-donald-trumps-latest-155001543.html)
-- May 03 - [Buffett: This year's stock market turmoil 'is really nothing'](https://finance.yahoo.com/news/buffett-this-years-stock-market-turmoil-is-really-nothing-153111329.html)
-- May 03 - [Physicist Says He's Identified a Clue That We're Living in a Computer Simulation](https://www.yahoo.com/news/physicist-says-hes-identified-clue-151540224.html)
+- May 03 - [British student killed in Texas days before graduation](https://www.yahoo.com/news/british-nursing-student-killed-texas-171656486.html)
 <!-- feed end -->
 
 ### Onstream
