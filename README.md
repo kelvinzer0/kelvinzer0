@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Kidnapper Who Held Elizabeth Smart Captive for 9 Months Arrested After Police Say Sex Offender Visited Salt Lake City Parks](https://www.yahoo.com/news/kidnapper-held-elizabeth-smart-captive-233721662.html)
-- May 02 - [Zero progress reported on Ukraine-Russia ceasefire, despite U.S. efforts](https://www.yahoo.com/news/zero-progress-reported-ukraine-russia-231157213.html)
+- May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
+- May 03 - [World's tallest and smallest dogs meet up for a playdate](https://www.yahoo.com/news/worlds-tallest-smallest-dogs-meet-011636144.html)
+- May 02 - [Former Abercrombie & Fitch CEO is ruled unfit for trial and ordered hospitalized](https://www.yahoo.com/news/former-abercrombie-fitch-ceo-ruled-235805549.html)
+- May 02 - [This In-N-Out location is closing for months – and it’s a good thing](https://www.yahoo.com/lifestyle/n-location-closing-months-good-225259496.html)
 - May 02 - [He injected himself with snake venom hundreds of times. His blood could ‘revolutionize’ snakebite treatment](https://www.yahoo.com/news/man-injected-himself-venom-hundreds-175903014.html)
-- May 02 - [Trump says the government will revoke Harvard’s tax-exempt status. The university’s president says that would be illegal](https://www.yahoo.com/news/trump-repeats-government-revoke-harvard-125502738.html)
-- May 02 - [Marjorie Taylor Greene turns on Trump administration](https://www.yahoo.com/news/marjorie-taylor-greene-turns-trump-204530679.html)
 <!-- feed end -->
 
 ### Onstream
