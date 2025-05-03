@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Buffett: This year's stock market turmoil 'is really nothing'](https://finance.yahoo.com/news/buffett-this-years-stock-market-turmoil-is-really-nothing-153111329.html)
+- May 03 - [People Are Calling Donald Trump's Latest Truth Social Post The "Most Disrespectful Post In A Sea Of Disrespect"](https://www.yahoo.com/news/people-calling-donald-trumps-latest-155001543.html)
 - May 03 - [Physicist Says He's Identified a Clue That We're Living in a Computer Simulation](https://www.yahoo.com/news/physicist-says-hes-identified-clue-151540224.html)
-- May 03 - [PM Anthony Albanese Speaks After Winning Second Term](https://finance.yahoo.com/video/pm-anthony-albanese-speaks-winning-141002415.html)
 - May 03 - [He injected himself with snake venom hundreds of times. His blood could ‘revolutionize’ snakebite treatment](https://www.yahoo.com/news/man-injected-himself-venom-hundreds-175903014.html)
+- May 03 - [Floridians are stuck with aging condos they can’t sell. Will a new law aiming to bring them some relief help?](https://finance.yahoo.com/news/floridians-are-stuck-with-aging-condos-they-cant-sell-will-a-new-law-aiming-to-bring-them-some-relief-help-124616648.html)
 - May 03 - [International tourists killed in vehicle crash were among millions drawn to the Yellowstone area](https://www.yahoo.com/news/international-tourists-killed-vehicle-crash-124342542.html)
 <!-- feed end -->
 
