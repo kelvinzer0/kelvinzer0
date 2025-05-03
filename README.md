@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [PM Anthony Albanese Speaks After Winning Second Term](https://finance.yahoo.com/video/pm-anthony-albanese-speaks-winning-141002415.html)
+- May 03 - [He injected himself with snake venom hundreds of times. His blood could ‘revolutionize’ snakebite treatment](https://www.yahoo.com/news/man-injected-himself-venom-hundreds-175903014.html)
 - May 03 - [Floridians are stuck with aging condos they can’t sell. Will a new law aiming to bring them some relief help?](https://finance.yahoo.com/news/floridians-are-stuck-with-aging-condos-they-cant-sell-will-a-new-law-aiming-to-bring-them-some-relief-help-124616648.html)
 - May 03 - [International tourists killed in vehicle crash were among millions drawn to the Yellowstone area](https://www.yahoo.com/news/international-tourists-killed-vehicle-crash-124342542.html)
-- May 03 - [Scientists make critical breakthrough in effort to build limitless energy machines: 'This method could represent a viable approach'](https://www.yahoo.com/news/scientists-critical-breakthrough-effort-build-113037478.html)
-- May 03 - [Pakistan test fires ballistic missile as tensions with India spike after Kashmir gun massacre](https://www.yahoo.com/news/pakistan-test-fires-ballistic-missile-085803825.html)
-- May 03 - [Russia declares state of emergency at port after Ukrainian drone attack on Novorossiisk](https://www.yahoo.com/news/russia-declares-state-emergency-port-081418590.html)
+- May 03 - [Tesla announces massive discounts on Cybertruck inventory amid plummeting profits: 'They aren't moving them'](https://finance.yahoo.com/news/tesla-announces-massive-discounts-cybertruck-104533936.html)
 <!-- feed end -->
 
 ### Onstream
