@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [British student killed in Texas days before graduation](https://www.yahoo.com/news/british-nursing-student-killed-texas-171656486.html)
 - May 03 - [Bataan Death March, POW camp claimed Williamston man. His remains finally rest in US soil](https://www.yahoo.com/news/bataan-death-march-pow-camp-211059928.html)
-- May 03 - [‘We will see empty shelves’ if negotiations with China take too long: CNBC commentator](https://www.yahoo.com/news/see-empty-shelves-negotiations-china-204748867.html)
+- May 03 - [Takeaways from AP's reporting on child malnutrition in Gaza](https://www.yahoo.com/news/takeaways-aps-reporting-child-malnutrition-190210965.html)
 - May 03 - [Portugal announces the expulsion of 18,000 foreigners ahead of a national election](https://www.yahoo.com/news/portugal-announces-expulsion-18-000-182359072.html)
 - May 03 - [Southbound 805 freeway shut down due to major traffic collision](https://www.yahoo.com/news/southbound-805-freeway-shut-down-165500460.html)
+- May 03 - [Buffett: This year's stock market turmoil 'is really nothing'](https://finance.yahoo.com/news/buffett-this-years-stock-market-turmoil-is-really-nothing-153111329.html)
 <!-- feed end -->
 
 ### Onstream
