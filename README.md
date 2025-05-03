@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [Mesa County Assessor’s Office mailed Notices of Value to residents](https://www.yahoo.com/news/mesa-county-assessor-office-mailed-014359363.html)
 - May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
 - May 03 - [Red line defeat! See Trump’s 7-2 Supreme Court loss decoded in LEGAL SPECIAL (Weissman, Melber)](https://www.yahoo.com/news/red-line-defeat-see-trump-005811615.html)
 - May 02 - [Former Abercrombie & Fitch CEO is ruled unfit for trial and ordered hospitalized](https://www.yahoo.com/news/former-abercrombie-fitch-ceo-ruled-235805549.html)
 - May 02 - [Police standoff at Santiam Rest Area snarls traffic on I-5 southbound south of Salem](https://www.yahoo.com/news/lanes-interstate-5-southbound-closed-234458973.html)
-- May 02 - [This In-N-Out location is closing for months – and it’s a good thing](https://www.yahoo.com/lifestyle/n-location-closing-months-good-225259496.html)
 <!-- feed end -->
 
 ### Onstream
