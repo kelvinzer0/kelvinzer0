@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [3 Brilliant Growth Stocks to Buy Now and Hold Forever](https://finance.yahoo.com/news/3-brilliant-growth-stocks-buy-120000770.html)
+- May 03 - [Don't have a Real ID license? Here's what else Michigan travelers can use](https://www.yahoo.com/news/dont-real-id-license-heres-110128799.html)
+- May 03 - [Pakistan test fires ballistic missile as tensions with India spike after Kashmir gun massacre](https://www.yahoo.com/news/pakistan-test-fires-ballistic-missile-085803825.html)
 - May 03 - [Russia declares state of emergency at port after Ukrainian drone attack on Novorossiisk](https://www.yahoo.com/news/russia-declares-state-emergency-port-081418590.html)
-- May 03 - [Arizona Lottery Mega Millions, Pick 3 results for May 2, 2025](https://www.yahoo.com/news/arizona-lottery-mega-millions-pick-041007879.html)
-- May 03 - [Fight breaks out inside Kansas courtroom during murder sentencing](https://www.yahoo.com/news/fight-breaks-inside-kansas-courtroom-020549490.html)
 - May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
-- May 03 - [Red line defeat! See Trump’s 7-2 Supreme Court loss decoded in LEGAL SPECIAL (Weissman, Melber)](https://www.yahoo.com/news/red-line-defeat-see-trump-005811615.html)
 <!-- feed end -->
 
 ### Onstream
