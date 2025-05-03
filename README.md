@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [Cops hunt for killer after Arizona pastor, 76, is found murdered on his bed with his hands pinned to the wall](https://www.yahoo.com/news/cops-hunt-killer-arizona-pastor-025316726.html)
 - May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
-- May 03 - [World's tallest and smallest dogs meet up for a playdate](https://www.yahoo.com/news/worlds-tallest-smallest-dogs-meet-011636144.html)
 - May 02 - [Former Abercrombie & Fitch CEO is ruled unfit for trial and ordered hospitalized](https://www.yahoo.com/news/former-abercrombie-fitch-ceo-ruled-235805549.html)
 - May 02 - [This In-N-Out location is closing for months – and it’s a good thing](https://www.yahoo.com/lifestyle/n-location-closing-months-good-225259496.html)
 - May 02 - [He injected himself with snake venom hundreds of times. His blood could ‘revolutionize’ snakebite treatment](https://www.yahoo.com/news/man-injected-himself-venom-hundreds-175903014.html)
