@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Cats and dogs are evolving to look alike, and it’s all humans’ fault](https://www.yahoo.com/news/cats-dogs-evolving-look-alike-094644927.html)
+- May 03 - [Buffett: This year's stock market turmoil 'is really nothing'](https://finance.yahoo.com/news/buffett-this-years-stock-market-turmoil-is-really-nothing-153111329.html)
+- May 03 - [Physicist Says He's Identified a Clue That We're Living in a Computer Simulation](https://www.yahoo.com/news/physicist-says-hes-identified-clue-151540224.html)
+- May 03 - [PM Anthony Albanese Speaks After Winning Second Term](https://finance.yahoo.com/video/pm-anthony-albanese-speaks-winning-141002415.html)
 - May 03 - [He injected himself with snake venom hundreds of times. His blood could ‘revolutionize’ snakebite treatment](https://www.yahoo.com/news/man-injected-himself-venom-hundreds-175903014.html)
 - May 03 - [International tourists killed in vehicle crash were among millions drawn to the Yellowstone area](https://www.yahoo.com/news/international-tourists-killed-vehicle-crash-124342542.html)
-- May 03 - [Trump Posts AI-Generated Image of Himself Dressed as the Pope](https://www.yahoo.com/entertainment/articles/trump-posts-ai-generated-image-110116455.html)
-- May 03 - [Pakistan test fires ballistic missile as tensions with India spike after Kashmir gun massacre](https://www.yahoo.com/news/pakistan-test-fires-ballistic-missile-085803825.html)
 <!-- feed end -->
 
 ### Onstream
