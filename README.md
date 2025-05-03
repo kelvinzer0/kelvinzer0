@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [DA Nathan Hochman Says Menendez Brothers’ Recusal Effort Is ‘Devoid of Merit’ in Opposition Filing](https://www.yahoo.com/news/da-nathan-hochman-says-menendez-225010133.html)
-- May 02 - [Latest Russian drone attack injures at least 44 people in Kharkiv](https://www.yahoo.com/news/latest-russian-drone-attack-injures-222425608.html)
-- May 02 - [China claims an island in the South China Sea. Satellite images show Beijing's growing power-hungry struggle in the region.](https://www.yahoo.com/news/china-claims-island-south-china-214127129.html)
+- May 02 - [Kidnapper Who Held Elizabeth Smart Captive for 9 Months Arrested After Police Say Sex Offender Visited Salt Lake City Parks](https://www.yahoo.com/news/kidnapper-held-elizabeth-smart-captive-233721662.html)
+- May 02 - [Zero progress reported on Ukraine-Russia ceasefire, despite U.S. efforts](https://www.yahoo.com/news/zero-progress-reported-ukraine-russia-231157213.html)
+- May 02 - [He injected himself with snake venom hundreds of times. His blood could ‘revolutionize’ snakebite treatment](https://www.yahoo.com/news/man-injected-himself-venom-hundreds-175903014.html)
+- May 02 - [Trump says the government will revoke Harvard’s tax-exempt status. The university’s president says that would be illegal](https://www.yahoo.com/news/trump-repeats-government-revoke-harvard-125502738.html)
 - May 02 - [Marjorie Taylor Greene turns on Trump administration](https://www.yahoo.com/news/marjorie-taylor-greene-turns-trump-204530679.html)
-- May 02 - [Nvidia CEO Jensen Huang gets first salary boost in 10 years](https://finance.yahoo.com/news/nvidia-ceo-jensen-huang-gets-first-salary-boost-in-10-years-193949951.html)
 <!-- feed end -->
 
 ### Onstream
