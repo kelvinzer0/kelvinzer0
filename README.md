@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [3 Super-Safe Dividend Stocks to Buy That Have Been Impervious to the Stock Market Sell-Off So Far](https://finance.yahoo.com/news/3-super-safe-dividend-stocks-094500343.html)
-- May 03 - [Pakistan test fires ballistic missile as tensions with India spike after Kashmir gun massacre](https://www.yahoo.com/news/pakistan-test-fires-ballistic-missile-085803825.html)
 - May 03 - [Russia declares state of emergency at port after Ukrainian drone attack on Novorossiisk](https://www.yahoo.com/news/russia-declares-state-emergency-port-081418590.html)
+- May 03 - [Arizona Lottery Mega Millions, Pick 3 results for May 2, 2025](https://www.yahoo.com/news/arizona-lottery-mega-millions-pick-041007879.html)
+- May 03 - [Fight breaks out inside Kansas courtroom during murder sentencing](https://www.yahoo.com/news/fight-breaks-inside-kansas-courtroom-020549490.html)
 - May 03 - [President Trump reportedly considering executive order limiting NIL after meeting with Nick Saban](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-reportedly-considering-executive-order-limiting-nil-after-meeting-with-nick-saban-012129625.html)
-- May 02 - [Francis Ngannou issues first comments about fatal motorcycle accident in Cameroon](https://sports.yahoo.com/mma/article/francis-ngannou-issues-first-comments-about-fatal-motorcycle-accident-in-cameroon-233403433.html)
+- May 03 - [Red line defeat! See Trump’s 7-2 Supreme Court loss decoded in LEGAL SPECIAL (Weissman, Melber)](https://www.yahoo.com/news/red-line-defeat-see-trump-005811615.html)
 <!-- feed end -->
 
 ### Onstream
