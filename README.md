@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [MAGA Melts Down Over Trump’s ‘Disrespectful’ Pope Post](https://www.yahoo.com/news/maga-melts-down-over-trump-205700096.html)
+- May 03 - [Amarillo police seek public's help locating suspect vehicle in fatal hit-and-run](https://www.yahoo.com/news/amarillo-police-seek-publics-help-194618357.html)
 - May 03 - [Portugal announces the expulsion of 18,000 foreigners ahead of a national election](https://www.yahoo.com/news/portugal-announces-expulsion-18-000-182359072.html)
-- May 03 - [Israeli military issues thousands of call-up notices, local media report](https://www.yahoo.com/news/israeli-pm-netanyahu-postpones-upcoming-174352418.html)
 - May 03 - [United Airlines says it has 'no other choice' but to cancel flights from Newark airport](https://www.yahoo.com/news/united-airlines-says-no-other-170835888.html)
 - May 03 - [49-year-old woman dead after crash](https://www.yahoo.com/news/81-southbound-closed-fatal-crash-170218927.html)
-- May 03 - [Buffett: This year's stock market turmoil 'is really nothing'](https://finance.yahoo.com/news/buffett-this-years-stock-market-turmoil-is-really-nothing-153111329.html)
 <!-- feed end -->
 
 ### Onstream
