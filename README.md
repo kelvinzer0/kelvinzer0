@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 04 - [Trump, in a new interview, says he doesn't know if he backs due process rights](https://www.yahoo.com/news/trump-interview-says-doesnt-know-130844364.html)
+- May 04 - [Here's what CEOs are saying about Trump's tariffs and the economy](https://finance.yahoo.com/news/heres-what-ceos-are-saying-about-trumps-tariffs-and-the-economy-110052889.html)
 - May 04 - ['Sweet girl' found dead in landfill abused at home, bullied in school, friends say](https://www.yahoo.com/news/sweet-girl-found-dead-landfill-120148076.html)
 - May 04 - [Cloudy Sunday, more rain on the way](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
-- May 04 - [Israel fails to intercept Houthi missile targeting its main airport, showing the limits of US efforts to weaken the group](https://www.yahoo.com/news/flights-resume-israel-main-airport-082213128.html)
-- May 04 - [Rape gang survivors attack Labour minister after ‘dog whistle’ comments](https://www.yahoo.com/news/rape-gang-survivors-attack-labour-114436152.html)
-- May 04 - [‘Saturday Night Live’ Opens With Donald Trump Signing Executive Orders, Including The “Belichick Law”: “Old Men Can Now Date Far Younger Women”](https://www.yahoo.com/entertainment/articles/saturday-night-live-opens-donald-035235516.html)
+- May 04 - [Rape gang survivors attack Labour minister after ‘dog whistle’ comment](https://www.yahoo.com/news/rape-gang-survivors-attack-labour-114436152.html)
 <!-- feed end -->
 
 ### Onstream
