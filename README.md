@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 04 - [Crash leaves semi cab hanging off bridge, southbound I-65 closed](https://www.yahoo.com/news/crash-leaves-semi-cab-hanging-150554769.html)
+- May 04 - [China arrests family of dissident who protested against regime’s ‘mega-embassy’ in London](https://www.yahoo.com/news/china-arrests-family-dissident-protested-145244350.html)
+- May 04 - [Rape gang survivors attack Labour minister after ‘dog whistle’ comment](https://www.yahoo.com/news/rape-gang-survivors-attack-labour-114436152.html)
+- May 04 - [Israel fails to intercept Houthi missile targeting its main airport, showing the limits of US efforts to weaken the group](https://www.yahoo.com/news/flights-resume-israel-main-airport-082213128.html)
 - May 04 - [Ration water as South East is ‘drier than Marrakesh’, customers told](https://www.yahoo.com/news/ration-water-south-east-drier-133346522.html)
-- May 04 - [Trump says he's unsure whether people in the US are entitled to due process](https://www.yahoo.com/news/trump-says-hes-unsure-whether-131641180.html)
-- May 04 - [Here's what CEOs are saying about Trump's tariffs and the economy](https://finance.yahoo.com/news/heres-what-ceos-are-saying-about-trumps-tariffs-and-the-economy-110052889.html)
-- May 04 - [Cloudy Sunday, more rain on the way](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
-- May 04 - [Putin, 72, says the succession is always on his mind](https://www.yahoo.com/news/putin-72-says-succession-always-112053018.html)
 <!-- feed end -->
 
 ### Onstream
