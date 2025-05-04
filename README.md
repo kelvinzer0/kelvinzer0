@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 04 - [Putin says he hopes there will be no need to use nuclear weapons in Ukraine](https://www.yahoo.com/news/putin-says-hopes-no-nuclear-075316595.html)
+- May 04 - [Vehicle crashes into Manila airport entrance, killing 2, including 4-year-old girl](https://www.yahoo.com/news/vehicle-crashes-manila-airport-entrance-053641870.html)
+- May 04 - [‘Saturday Night Live’ Opens With Donald Trump Signing Executive Orders, Including The “Belichick Law”: “Old Men Can Now Date Far Younger Women”](https://www.yahoo.com/entertainment/articles/saturday-night-live-opens-donald-035235516.html)
 - May 03 - [If you see purple paint, stop walking. What your state's paint law means.](https://www.yahoo.com/news/see-purple-paint-stop-walking-225735940.html)
-- May 03 - [Tesla Launches Killer Model Y Lease Offer For May](https://autos.yahoo.com/tesla-launches-killer-model-y-184409516.html)
-- May 03 - [Portugal announces the expulsion of 18,000 foreigners ahead of a national election](https://www.yahoo.com/news/portugal-announces-expulsion-18-000-182359072.html)
-- May 03 - [United Airlines says it has 'no other choice' but to cancel flights from Newark airport](https://www.yahoo.com/news/united-airlines-says-no-other-170835888.html)
-- May 03 - [One killed in pile-up crash that shut down 805 freeway](https://www.yahoo.com/news/southbound-805-freeway-shut-down-165500460.html)
+- May 03 - [MAGA Melts Down Over Trump’s ‘Disrespectful’ Pope Post](https://www.yahoo.com/news/maga-melts-down-over-trump-205700096.html)
 <!-- feed end -->
 
 ### Onstream
