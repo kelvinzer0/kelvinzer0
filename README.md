@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 04 - [Israel fails to intercept Houthi missile targeting its main airport, showing the limits of US efforts to weaken the group](https://www.yahoo.com/news/flights-resume-israel-main-airport-082213128.html)
+- May 04 - [Brazilian police arrest 2 people over alleged plot targeting Lady Gaga concert in Rio](https://www.yahoo.com/news/brazilian-police-arrest-2-people-202955692.html)
+- May 04 - [Royal family ‘wants no distractions’ from VE Day amid Harry row](https://www.yahoo.com/lifestyle/royal-family-wants-no-distractions-194530276.html)
+- May 04 - [Iran says it will strike back if US or Israel attack](https://www.yahoo.com/news/iran-says-strike-back-us-185216517.html)
 - May 04 - [Cyclist, 16, seriously hurt as car fails to stop](https://www.yahoo.com/news/cyclist-16-seriously-hurt-car-184342727.html)
-- May 04 - [Cape Cod restaurant demolished, deemed a total loss after blaze rips through](https://www.yahoo.com/news/cape-cod-restaurant-demolished-deemed-183224845.html)
-- May 04 - [Cloudy Sunday, more rain on the way](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
-- May 04 - [The New York Catholic Bishops Just Responded To Trump's Pope Picture And It's Going Mega Viral](https://www.yahoo.com/news/catholic-bishops-yorks-response-deeply-171851661.html)
-- May 04 - [White House Shares Beefed-Up Trump Meme for Star Wars Day – Doesn’t Realize He’s Styled as a Sith Lord](https://www.yahoo.com/news/white-house-shares-beefed-trump-164052275.html)
 <!-- feed end -->
 
 ### Onstream
