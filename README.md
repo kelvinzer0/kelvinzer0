@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 04 - [Firefighters battle flames in Kyiv as emergency service says city hit by Russian drone attack](https://www.yahoo.com/news/firefighters-battle-flames-kyiv-emergency-095932666.html)
+- May 04 - [Harvard is taking the Trump administration to court. The judge overseeing the case is no stranger to either side](https://www.yahoo.com/news/harvard-taking-trump-administration-court-090050672.html)
 - May 04 - [Putin says Russia has the strength to finish Ukraine operation](https://www.yahoo.com/news/putin-says-hopes-no-nuclear-075316595.html)
-- May 04 - [‘Saturday Night Live’ Opens With Donald Trump Signing Executive Orders, Including The “Belichick Law”: “Old Men Can Now Date Far Younger Women”](https://www.yahoo.com/entertainment/articles/saturday-night-live-opens-donald-035235516.html)
 - May 04 - [Two Russian Su-30 Flankers Downed By AIM-9s Fired From Drone Boats: Ukrainian Intel Boss](https://www.yahoo.com/news/two-russian-su-30-flankers-004402680.html)
 - May 03 - [MAGA Melts Down Over Trump’s ‘Disrespectful’ Pope Post](https://www.yahoo.com/news/maga-melts-down-over-trump-205700096.html)
 <!-- feed end -->
