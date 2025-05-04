@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Medical Professionals Are Sharing "Mundane" Things That Can Actually Make You Really Sick](https://www.yahoo.com/lifestyle/medical-professionals-sharing-mundane-things-034502980.html)
-- May 03 - [MAGA Melts Down Over Trump’s ‘Disrespectful’ Pope Post](https://www.yahoo.com/news/maga-melts-down-over-trump-205700096.html)
-- May 03 - [Amarillo police seek public's help locating suspect vehicle in fatal hit-and-run](https://www.yahoo.com/news/amarillo-police-seek-publics-help-194618357.html)
+- May 04 - [‘These people are disposable’: how Russia is using online recruits for a campaign of sabotage in Europe](https://www.yahoo.com/news/people-disposable-russia-using-online-040000044.html)
+- May 03 - [If you see purple paint, stop walking. What your state's paint law means.](https://www.yahoo.com/news/see-purple-paint-stop-walking-225735940.html)
 - May 03 - [Portugal announces the expulsion of 18,000 foreigners ahead of a national election](https://www.yahoo.com/news/portugal-announces-expulsion-18-000-182359072.html)
-- May 03 - [United Airlines says it has 'no other choice' but to cancel flights from Newark airport](https://www.yahoo.com/news/united-airlines-says-no-other-170835888.html)
+- May 03 - [At least 1 dead after pile-up crash shuts down 805 freeway](https://www.yahoo.com/news/southbound-805-freeway-shut-down-165500460.html)
+- May 03 - [The last pope? An ominous ancient prophecy resurfaces after Pope Francis death.](https://www.yahoo.com/news/last-pope-ominous-ancient-prophecy-154314072.html)
 <!-- feed end -->
 
 ### Onstream
