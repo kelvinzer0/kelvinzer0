@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Trump, in a new interview, says he doesn't know if he backs due process rights](https://www.yahoo.com/news/trump-interview-says-doesnt-know-130844364.html)
+- May 04 - [Ration water as South East is ‘drier than Marrakesh’, customers told](https://www.yahoo.com/news/ration-water-south-east-drier-133346522.html)
+- May 04 - [Trump says he's unsure whether people in the US are entitled to due process](https://www.yahoo.com/news/trump-says-hes-unsure-whether-131641180.html)
 - May 04 - [Here's what CEOs are saying about Trump's tariffs and the economy](https://finance.yahoo.com/news/heres-what-ceos-are-saying-about-trumps-tariffs-and-the-economy-110052889.html)
-- May 04 - ['Sweet girl' found dead in landfill abused at home, bullied in school, friends say](https://www.yahoo.com/news/sweet-girl-found-dead-landfill-120148076.html)
 - May 04 - [Cloudy Sunday, more rain on the way](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
-- May 04 - [Rape gang survivors attack Labour minister after ‘dog whistle’ comment](https://www.yahoo.com/news/rape-gang-survivors-attack-labour-114436152.html)
+- May 04 - [Putin, 72, says the succession is always on his mind](https://www.yahoo.com/news/putin-72-says-succession-always-112053018.html)
 <!-- feed end -->
 
 ### Onstream
