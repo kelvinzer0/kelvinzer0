@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Sanford seeks developers for downtown properties](https://www.yahoo.com/news/sanford-seeks-developers-downtown-properties-162109538.html)
+- May 04 - [Man shot and killed near Boston intersection](https://www.yahoo.com/news/man-shot-killed-near-boston-145115094.html)
+- May 04 - [British student killed in Texas days before graduation](https://www.yahoo.com/news/british-nursing-student-killed-texas-171656486.html)
+- May 04 - [White House Shares Beefed-Up Trump Meme for Star Wars Day – Doesn’t Realize He’s Styled as a Sith Lord](https://www.yahoo.com/news/white-house-shares-beefed-trump-164052275.html)
+- May 04 - [Benjamin Netanyahu vows retaliation after missile from Yemen halts flights in Israel](https://www.yahoo.com/news/benjamin-netanyahu-vows-retaliation-missile-163011145.html)
 - May 04 - [33 Of The Absolute Most Enraging "Boomer Complaints" That Most Generations Agree On](https://www.yahoo.com/lifestyle/33-absolute-most-enraging-boomer-153804531.html)
-- May 04 - [He’s been in jail for 43 days, accused of trying to abduct a kid at Walmart. His lawyer argues video shows he’s innocent](https://www.yahoo.com/news/jail-43-days-accused-trying-150050311.html)
-- May 04 - [‘Everyone knew it but him’: Tiffany Trump’s father-in-law has seen role diminished since the transition](https://www.yahoo.com/news/tiffany-trumps-father-law-discovers-140000666.html)
-- May 04 - [Trump, in a new interview, says he doesn't know if he backs due process rights](https://www.yahoo.com/news/trump-interview-says-doesnt-know-130844364.html)
 <!-- feed end -->
 
 ### Onstream
