@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 04 - [Medical Professionals Are Sharing "Mundane" Things That Can Actually Make You Really Sick](https://www.yahoo.com/lifestyle/medical-professionals-sharing-mundane-things-034502980.html)
 - May 03 - [MAGA Melts Down Over Trump’s ‘Disrespectful’ Pope Post](https://www.yahoo.com/news/maga-melts-down-over-trump-205700096.html)
 - May 03 - [Amarillo police seek public's help locating suspect vehicle in fatal hit-and-run](https://www.yahoo.com/news/amarillo-police-seek-publics-help-194618357.html)
 - May 03 - [Portugal announces the expulsion of 18,000 foreigners ahead of a national election](https://www.yahoo.com/news/portugal-announces-expulsion-18-000-182359072.html)
 - May 03 - [United Airlines says it has 'no other choice' but to cancel flights from Newark airport](https://www.yahoo.com/news/united-airlines-says-no-other-170835888.html)
-- May 03 - [49-year-old woman dead after crash](https://www.yahoo.com/news/81-southbound-closed-fatal-crash-170218927.html)
 <!-- feed end -->
 
 ### Onstream
