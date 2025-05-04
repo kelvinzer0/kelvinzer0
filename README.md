@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Man shot and killed near Boston intersection](https://www.yahoo.com/news/man-shot-killed-near-boston-145115094.html)
-- May 04 - [British student killed in Texas days before graduation](https://www.yahoo.com/news/british-nursing-student-killed-texas-171656486.html)
+- May 04 - [What we know about Spitfire that made emergency crash landing days before VE Day celebrations](https://www.yahoo.com/news/what-we-know-spitfire-emergency-crash-landing-days-before-ve-day-celebrations-190027332.html)
+- May 04 - [Cloudy Sunday, more rain on the way](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
 - May 04 - [White House Shares Beefed-Up Trump Meme for Star Wars Day – Doesn’t Realize He’s Styled as a Sith Lord](https://www.yahoo.com/news/white-house-shares-beefed-trump-164052275.html)
-- May 04 - [Benjamin Netanyahu vows retaliation after missile from Yemen halts flights in Israel](https://www.yahoo.com/news/benjamin-netanyahu-vows-retaliation-missile-163011145.html)
-- May 04 - [33 Of The Absolute Most Enraging "Boomer Complaints" That Most Generations Agree On](https://www.yahoo.com/lifestyle/33-absolute-most-enraging-boomer-153804531.html)
+- May 04 - [General Motors knew about V8 engine problems for years before giant recall, lawsuit claims](https://www.yahoo.com/news/general-motors-knew-v8-engine-163645385.html)
+- May 04 - [The Internet Is Obsessed With "Boomer Complaints," And Here Are 33 Of The Most Enraging Ones](https://www.yahoo.com/lifestyle/33-absolute-most-enraging-boomer-153804531.html)
 <!-- feed end -->
 
 ### Onstream
