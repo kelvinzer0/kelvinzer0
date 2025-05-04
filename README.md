@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Crash leaves semi cab hanging off bridge, southbound I-65 closed](https://www.yahoo.com/news/crash-leaves-semi-cab-hanging-150554769.html)
+- May 04 - [Experts start complex recovery of a superyacht that sank off Sicily, killing 7](https://www.yahoo.com/news/experts-start-complex-recovery-superyacht-155729379.html)
+- May 04 - [33 Of The Absolute Most Enraging "Boomer Complaints" That Most Generations Agree On](https://www.yahoo.com/lifestyle/33-absolute-most-enraging-boomer-153804531.html)
+- May 04 - [He’s been in jail for 43 days, accused of trying to abduct a kid at Walmart. His lawyer argues video shows he’s innocent](https://www.yahoo.com/news/jail-43-days-accused-trying-150050311.html)
 - May 04 - [China arrests family of dissident who protested against regime’s ‘mega-embassy’ in London](https://www.yahoo.com/news/china-arrests-family-dissident-protested-145244350.html)
-- May 04 - [Rape gang survivors attack Labour minister after ‘dog whistle’ comment](https://www.yahoo.com/news/rape-gang-survivors-attack-labour-114436152.html)
-- May 04 - [Israel fails to intercept Houthi missile targeting its main airport, showing the limits of US efforts to weaken the group](https://www.yahoo.com/news/flights-resume-israel-main-airport-082213128.html)
-- May 04 - [Ration water as South East is ‘drier than Marrakesh’, customers told](https://www.yahoo.com/news/ration-water-south-east-drier-133346522.html)
+- May 04 - [Trump, in a new interview, says he doesn't know if he backs due process rights](https://www.yahoo.com/news/trump-interview-says-doesnt-know-130844364.html)
 <!-- feed end -->
 
 ### Onstream
