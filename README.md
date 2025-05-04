@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Israel fails to intercept Houthi missile targeting its main airport, showing the limits of US efforts to weaken the group](https://www.yahoo.com/news/flights-resume-israel-main-airport-082213128.html)
-- May 04 - [Royal family ‘wants no distractions’ from VE Day amid Harry row](https://www.yahoo.com/lifestyle/royal-family-wants-no-distractions-194530276.html)
+- May 04 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
+- May 04 - [Pilot, passenger and dog killed as small plane crashes into homes in California](https://www.yahoo.com/news/pilot-killed-small-plane-crashes-025744787.html)
 - May 04 - [Iran says it will strike back if US or Israel attack](https://www.yahoo.com/news/iran-says-strike-back-us-185216517.html)
 - May 04 - [Cape Cod restaurant demolished, deemed a total loss after blaze rips through](https://www.yahoo.com/news/cape-cod-restaurant-demolished-deemed-183224845.html)
-- May 04 - [Cloudy Sunday, more rain on the way](https://www.yahoo.com/news/weather-alert-fri-sat-114646842.html)
+- May 04 - [Trooper conducts PIT maneuver on suspect driving over 100 MPH on Gandy Bridge: FHP](https://www.yahoo.com/news/trooper-conducts-pit-maneuver-suspect-182311904.html)
 <!-- feed end -->
 
 ### Onstream
