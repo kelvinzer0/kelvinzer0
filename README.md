@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Copper cable thefts in Spain leave passengers trapped in trains overnight](https://www.yahoo.com/news/copper-cable-thefts-spain-leave-084311532.html)
+- May 05 - [Epcon Communities building 150-home subdivision for older adults in New Albany](https://www.yahoo.com/lifestyle/epcon-communities-building-150-home-100229832.html)
+- May 05 - [‘A slippery slope to eugenics’: advocates reject RFK Jr’s national autism database](https://www.yahoo.com/news/slippery-slope-eugenics-advocates-reject-100033066.html)
 - May 05 - [Donald Trump Flips Out At Wall Street Journal Reporter: ‘You Hear Me? What I Said?’](https://www.yahoo.com/news/donald-trump-flips-wall-street-065529571.html)
 - May 05 - [Rape victims says Labour minister should resign after calling grooming gangs 'dog whistle' issue](https://www.yahoo.com/news/rape-victims-says-labour-minister-062342377.html)
-- May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
-- May 05 - [Luxury Lamborghini Yacht 'Flipped Over' Off Miami Beach with Dozens of Influencers Onboard: 'It Was Straight Up in the Water'](https://www.yahoo.com/news/luxury-lamborghini-yacht-flipped-over-021835050.html)
+- May 05 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
 <!-- feed end -->
 
 ### Onstream
