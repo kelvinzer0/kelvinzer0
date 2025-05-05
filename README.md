@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [US Service Providers See Growth Pick Up After March Slump](https://finance.yahoo.com/video/us-providers-see-growth-pick-142220422.html)
-- May 05 - [Flight delays at Newark airport as labor shortages persist](https://www.yahoo.com/news/flight-delays-newark-airport-labor-141858205.html)
-- May 05 - [We’ve been ostracised for telling the truth about how the liberal elite got Covid so wrong](https://www.yahoo.com/news/ve-ostracised-telling-truth-liberal-110000732.html)
-- May 05 - [RFK Jr. Calls Out King Abdullah: ‘They’ve Cut Us Off’](https://www.yahoo.com/news/rfk-jr-calls-king-abdullah-095500135.html)
-- May 05 - [A Brit who fought in Ukraine says Russia's army is so barbaric his unit vowed never to be taken alive](https://www.yahoo.com/news/brit-fought-ukraine-says-russias-093310533.html)
+- May 05 - [China Reviews U.S. Proposal to Scale Down Tariffs](https://finance.yahoo.com/video/china-reviews-u-proposal-scale-155935050.html)
+- May 05 - [Apollo CEO: I don't agree with Warren Buffett on tariffs](https://finance.yahoo.com/news/apollo-ceo-i-dont-agree-with-warren-buffett-on-tariffs-154324474.html)
+- May 05 - [Forget common folklore about the safety of weed. Marijuana harms babies, research shows](https://www.yahoo.com/news/forget-common-folklore-safety-weed-150437551.html)
+- May 05 - [Dutch police arrest pro-Palestine protesters at World War Two anniversary event](https://www.yahoo.com/news/dutch-police-arrest-pro-palestine-145433913.html)
+- May 05 - [Trump administration says it'll pay immigrants in the US illegally $1,000 to leave the country](https://www.yahoo.com/news/trump-administration-says-pay-immigrants-145104484.html)
 <!-- feed end -->
 
 ### Onstream
