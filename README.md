@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [Berlin still bears scars 80 years after pivotal battle that sealed the defeat of Nazi Germany](https://www.yahoo.com/news/berlin-still-bears-scars-80-050006408.html)
+- May 05 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
 - May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
+- May 05 - [Auto industry insiders sound alarm over disturbing trend in Tesla resale market: 'The Elon Musk effect is very real'](https://finance.yahoo.com/news/auto-industry-insiders-sound-alarm-010000698.html)
 - May 05 - [Trump blasts Mexico's Sheinbaum for rejecting offer to send US troops into Mexico to fight cartels](https://www.yahoo.com/news/trump-blasts-mexicos-sheinbaum-rejecting-003341709.html)
-- May 04 - [Trump says he will reopen Alcatraz prison](https://www.yahoo.com/news/trump-says-reopen-alcatraz-prison-231829516.html)
-- May 04 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
-- May 04 - [Remains of missing Oregon woman found in Harney County](https://www.yahoo.com/news/remains-missing-oregon-woman-found-205144674.html)
 <!-- feed end -->
 
 ### Onstream
