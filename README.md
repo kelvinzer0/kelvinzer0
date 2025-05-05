@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Epcon Communities building 150-home subdivision for older adults in New Albany](https://www.yahoo.com/lifestyle/epcon-communities-building-150-home-100229832.html)
-- May 05 - [‘A slippery slope to eugenics’: advocates reject RFK Jr’s national autism database](https://www.yahoo.com/news/slippery-slope-eugenics-advocates-reject-100033066.html)
+- May 05 - [A Brit who fought in Ukraine says Russia's army is so barbaric his unit vowed never to be taken alive](https://www.yahoo.com/news/brit-fought-ukraine-says-russias-093310533.html)
 - May 05 - [Donald Trump Flips Out At Wall Street Journal Reporter: ‘You Hear Me? What I Said?’](https://www.yahoo.com/news/donald-trump-flips-wall-street-065529571.html)
-- May 05 - [Rape victims says Labour minister should resign after calling grooming gangs 'dog whistle' issue](https://www.yahoo.com/news/rape-victims-says-labour-minister-062342377.html)
-- May 05 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
+- May 05 - [Exclusive-India starts work on hydro projects after suspending treaty with Pakistan, sources say](https://finance.yahoo.com/news/exclusive-india-starts-hydro-projects-051033058.html)
+- May 05 - [Berlin still bears scars 80 years after pivotal battle that sealed the defeat of Nazi Germany](https://www.yahoo.com/news/berlin-still-bears-scars-80-050006408.html)
+- May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
 <!-- feed end -->
 
 ### Onstream
