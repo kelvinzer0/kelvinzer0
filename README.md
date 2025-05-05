@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [School district pays tribute to co-worker killed in I-75 weekend crash](https://www.yahoo.com/news/school-district-pays-tribute-co-061044156.html)
-- May 05 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
-- May 05 - [Deported from Florida to Cuba, this mom saw her 17-month-old US daughter – and her American dream – ripped away](https://www.yahoo.com/news/deported-florida-cuba-mom-saw-040150161.html)
+- May 05 - [Donald Trump Flips Out At Wall Street Journal Reporter: ‘You Hear Me? What I Said?’](https://www.yahoo.com/news/donald-trump-flips-wall-street-065529571.html)
+- May 05 - [Rape victims says Labour minister should resign after calling grooming gangs 'dog whistle' issue](https://www.yahoo.com/news/rape-victims-says-labour-minister-062342377.html)
+- May 05 - [Berlin still bears scars 80 years after pivotal battle that sealed the defeat of Nazi Germany](https://www.yahoo.com/news/berlin-still-bears-scars-80-050006408.html)
+- May 05 - [Arizona Lottery Pick 3, Fantasy 5 results for May 4, 2025](https://www.yahoo.com/news/arizona-lottery-pick-3-fantasy-041003724.html)
 - May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
-- May 05 - [Trump blasts Mexico's Sheinbaum for rejecting offer to send US troops into Mexico to fight cartels](https://www.yahoo.com/news/trump-blasts-mexicos-sheinbaum-rejecting-003341709.html)
 <!-- feed end -->
 
 ### Onstream
