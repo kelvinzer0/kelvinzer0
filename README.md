@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Man killed in Cohasset MBTA train strike identified](https://www.yahoo.com/news/man-killed-cohasset-mbta-train-130614537.html)
+- May 05 - [Apple's Make-or-Break Moment](https://finance.yahoo.com/video/apples-break-moment-184751905.html)
+- May 05 - [OpenAI will remain under nonprofit control, pushes ahead with for-profit conversion](https://finance.yahoo.com/news/openai-remain-under-non-profit-180242080.html)
 - May 05 - [Trump 'Honors' Cinco De Mayo By Reposting Infamous 2016 Tweet](https://www.yahoo.com/news/trump-honors-cinco-mayo-reposting-175007887.html)
-- May 05 - [She Was Murdered amid a Divorce — 12 Years Later, a Shocking Figure Is Charged in Twisted Plot](https://www.yahoo.com/news/she-murdered-amid-divorce-12-172027725.html)
-- May 05 - [A judge used Trump’s own words to expose his real agenda](https://www.yahoo.com/news/judge-used-trump-own-words-165940985.html)
-- May 05 - [‘He’s being disingenuous, he’s lying’: 9/11 responder slams Trump](https://www.yahoo.com/news/being-disingenuous-lying-9-11-165700779.html)
+- May 05 - [Ukrainian attack on Moscow forces Putin to cancel VE Day parade in Crimea](https://www.yahoo.com/news/ukrainian-attack-moscow-forces-putin-173707907.html)
+- May 05 - [Private School Vouchers Are Now Texas Law. Here’s What to Know.](https://www.yahoo.com/news/private-school-vouchers-now-texas-173000929.html)
 <!-- feed end -->
 
 ### Onstream
