@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [School district pays tribute to co-worker killed in I-75 weekend crash](https://www.yahoo.com/news/school-district-pays-tribute-co-061044156.html)
 - May 05 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
+- May 05 - [Deported from Florida to Cuba, this mom saw her 17-month-old US daughter – and her American dream – ripped away](https://www.yahoo.com/news/deported-florida-cuba-mom-saw-040150161.html)
 - May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
 - May 05 - [Trump blasts Mexico's Sheinbaum for rejecting offer to send US troops into Mexico to fight cartels](https://www.yahoo.com/news/trump-blasts-mexicos-sheinbaum-rejecting-003341709.html)
-- May 04 - [Hundreds of tourists evacuated amid flash floods in archaeological city of Petra](https://www.yahoo.com/news/hundreds-tourists-evacuated-amid-flash-232909861.html)
-- May 04 - [Remains of missing Oregon woman found in Harney County](https://www.yahoo.com/news/remains-missing-oregon-woman-found-205144674.html)
 <!-- feed end -->
 
 ### Onstream
