@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 05 - [Buffett succession, US trade deals, Fed meeting: 3 Things](https://finance.yahoo.com/video/buffett-succession-us-trade-deals-131215684.html)
-- May 05 - [Hundreds of activists stage Mali's first pro-democracy rally in years since coups](https://www.yahoo.com/news/hundreds-activists-stage-malis-first-130957092.html)
-- May 05 - [Police: Tennessee man who shot, killed neighbor committing stabbing cleared by grand jury](https://www.yahoo.com/news/police-tennessee-man-shot-killed-121720016.html)
-- May 05 - [Wall street analysts share grim outlook for Elon Musk as rival launches anti-Tesla: 'Affordable, deeply customizable, and very analog'](https://finance.yahoo.com/news/wall-street-analysts-share-grim-104554272.html)
+- May 05 - [Almost Every Speck of Light in This Incredible Image Is a Galaxy](https://www.yahoo.com/news/almost-every-speck-light-incredible-130048689.html)
+- May 05 - [Thousands of machinists union members go on strike at jet engine maker Pratt & Whitney](https://finance.yahoo.com/news/thousands-machinists-union-members-strike-120934557.html)
+- May 05 - [Mortgage and refinance rates today, May 5, 2025: Don't expect lower rates after the Fed meeting](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-monday-may-5-2025-100002362.html)
 - May 05 - [RFK Jr. Calls Out King Abdullah: ‘They’ve Cut Us Off’](https://www.yahoo.com/news/rfk-jr-calls-king-abdullah-095500135.html)
 <!-- feed end -->
 
