@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Apple's Make-or-Break Moment](https://finance.yahoo.com/video/apples-break-moment-184751905.html)
-- May 05 - [OpenAI will remain under nonprofit control, pushes ahead with for-profit conversion](https://finance.yahoo.com/news/openai-remain-under-non-profit-180242080.html)
-- May 05 - [Trump 'Honors' Cinco De Mayo By Reposting Infamous 2016 Tweet](https://www.yahoo.com/news/trump-honors-cinco-mayo-reposting-175007887.html)
+- May 05 - [Former Lakewood fire chief gets jail, probation for stealing nearly $100,000 from nonprofit](https://www.yahoo.com/news/former-lakewood-fire-chief-gets-193529894.html)
+- May 05 - [$50 Oil Looks Likely. It Isn’t Priced in the Stocks Yet.](https://www.barrons.com/articles/50-oil-prices-stocks-93d63b4d?siteid=yhoof2&yptr=yahoo)
+- May 05 - [Fights break out in Sioux Falls prison, non-life threatening injuries reported](https://www.yahoo.com/news/fights-break-sioux-falls-prison-184446696.html)
+- May 05 - [Hospitals across U.S. laying off staff, pausing payments amid Medicaid funding delays: WSJ](https://www.yahoo.com/news/hospitals-across-u-laying-off-175201979.html)
 - May 05 - [Ukrainian attack on Moscow forces Putin to cancel VE Day parade in Crimea](https://www.yahoo.com/news/ukrainian-attack-moscow-forces-putin-173707907.html)
-- May 05 - [Private School Vouchers Are Now Texas Law. Here’s What to Know.](https://www.yahoo.com/news/private-school-vouchers-now-texas-173000929.html)
 <!-- feed end -->
 
 ### Onstream
