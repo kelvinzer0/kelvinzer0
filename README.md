@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Thousands of machinists union members go on strike at jet engine maker Pratt & Whitney](https://www.yahoo.com/news/thousands-machinists-union-members-strike-120934294.html)
-- May 05 - [Far-right first-round win of Romanian presidential election raises prospect of EU disruption](https://www.yahoo.com/news/far-first-round-win-romanian-120441696.html)
-- May 05 - [Severe thunderstorms possible in South Florida, Palm Beach County on Monday](https://www.yahoo.com/news/severe-thunderstorms-possible-south-florida-113118313.html)
-- May 05 - [Can I shoot a Burmese python in my yard? What to know about the invasive species](https://www.yahoo.com/news/shoot-burmese-python-yard-know-100403948.html)
+- May 05 - [Buffett succession, US trade deals, Fed meeting: 3 Things](https://finance.yahoo.com/video/buffett-succession-us-trade-deals-131215684.html)
+- May 05 - [Hundreds of activists stage Mali's first pro-democracy rally in years since coups](https://www.yahoo.com/news/hundreds-activists-stage-malis-first-130957092.html)
+- May 05 - [Police: Tennessee man who shot, killed neighbor committing stabbing cleared by grand jury](https://www.yahoo.com/news/police-tennessee-man-shot-killed-121720016.html)
+- May 05 - [Wall street analysts share grim outlook for Elon Musk as rival launches anti-Tesla: 'Affordable, deeply customizable, and very analog'](https://finance.yahoo.com/news/wall-street-analysts-share-grim-104554272.html)
 - May 05 - [RFK Jr. Calls Out King Abdullah: ‘They’ve Cut Us Off’](https://www.yahoo.com/news/rfk-jr-calls-king-abdullah-095500135.html)
 <!-- feed end -->
 
