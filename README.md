@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [Trump blasts Mexico's Sheinbaum for rejecting offer to send US troops into Mexico to fight cartels](https://www.yahoo.com/news/trump-blasts-mexicos-sheinbaum-rejecting-003341709.html)
+- May 04 - [Police ID man shot, killed by Delaware officers after charging toward troopers with knife](https://www.yahoo.com/news/police-id-man-shot-killed-234250443.html)
+- May 04 - [Trump says he will reopen Alcatraz prison](https://www.yahoo.com/news/trump-says-reopen-alcatraz-prison-231829516.html)
 - May 04 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
-- May 04 - [Pilot, passenger and dog killed as small plane crashes into homes in California](https://www.yahoo.com/news/pilot-killed-small-plane-crashes-025744787.html)
-- May 04 - [Iran says it will strike back if US or Israel attack](https://www.yahoo.com/news/iran-says-strike-back-us-185216517.html)
-- May 04 - [Cape Cod restaurant demolished, deemed a total loss after blaze rips through](https://www.yahoo.com/news/cape-cod-restaurant-demolished-deemed-183224845.html)
-- May 04 - [Trooper conducts PIT maneuver on suspect driving over 100 MPH on Gandy Bridge: FHP](https://www.yahoo.com/news/trooper-conducts-pit-maneuver-suspect-182311904.html)
+- May 04 - [Remains of missing Oregon woman found in Harney County](https://www.yahoo.com/news/remains-missing-oregon-woman-found-205144674.html)
 <!-- feed end -->
 
 ### Onstream
