@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Former Lakewood fire chief gets jail, probation for stealing nearly $100,000 from nonprofit](https://www.yahoo.com/news/former-lakewood-fire-chief-gets-193529894.html)
-- May 05 - [$50 Oil Looks Likely. It Isn’t Priced in the Stocks Yet.](https://www.barrons.com/articles/50-oil-prices-stocks-93d63b4d?siteid=yhoof2&yptr=yahoo)
-- May 05 - [Fights break out in Sioux Falls prison, non-life threatening injuries reported](https://www.yahoo.com/news/fights-break-sioux-falls-prison-184446696.html)
-- May 05 - [Hospitals across U.S. laying off staff, pausing payments amid Medicaid funding delays: WSJ](https://www.yahoo.com/news/hospitals-across-u-laying-off-175201979.html)
+- May 05 - [UF presidential candidate would bring political baggage to Gator Country](https://www.yahoo.com/news/uf-presidential-candidate-bring-political-203400936.html)
+- May 05 - [Knox County DA fires prosecutor over posts praising Nazis, advocating killing migrants](https://www.yahoo.com/news/knox-county-da-fires-prosecutor-193605983.html)
+- May 05 - [Severe storms to rattle areas in south-central, northeast and southeast US](https://www.yahoo.com/news/severe-storms-rattle-areas-south-192521054.html)
 - May 05 - [Ukrainian attack on Moscow forces Putin to cancel VE Day parade in Crimea](https://www.yahoo.com/news/ukrainian-attack-moscow-forces-putin-173707907.html)
+- May 05 - [Israeli bulldozers demolish houses in village in West Bank, make dozens homeless](https://www.yahoo.com/news/israeli-bulldozers-demolish-houses-village-170602871.html)
 <!-- feed end -->
 
 ### Onstream
