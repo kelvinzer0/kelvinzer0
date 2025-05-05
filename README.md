@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [US TVA chief suggests coal plants could see longer life, environmental groups vow to fight](https://finance.yahoo.com/news/us-tva-chief-suggests-coal-215348566.html)
-- May 05 - [Arrest made in deadly Seattle motorcycle hit-and-run](https://www.yahoo.com/news/arrest-made-deadly-seattle-motorcycle-211916492.html)
+- May 05 - [3 High-Yield Dividend Stocks to Buy in May to Collect Passive Income Every Month](https://finance.yahoo.com/news/3-high-yield-dividend-stocks-222300355.html)
+- May 05 - [Peter Lynch's Market Observation: 'Far More Money Has Been Lost By Investors Preparing For Corrections, Than Has Been Lost In Corrections Themselves'](https://finance.yahoo.com/news/peter-lynchs-market-observation-far-221013428.html)
+- May 05 - [Two riders dead after ‘catastrophic’ 11-man crash at British Superbikes Championship](https://sports.yahoo.com/article/two-riders-dead-catastrophic-11-220725033.html)
 - May 05 - [Federal investigators say a utility wasn't marked before a deadly natural gas explosion in Missouri](https://www.yahoo.com/news/federal-investigators-utility-wasnt-marked-205327343.html)
-- May 05 - [UF presidential candidate would bring political baggage to Gator Country](https://www.yahoo.com/news/uf-presidential-candidate-bring-political-203400936.html)
-- May 05 - [Cinco de Mayo celebrations around Greater New Orleans](https://www.yahoo.com/lifestyle/cinco-mayo-celebrations-around-greater-194901296.html)
+- May 05 - [New salmonella outbreak is linked to backyard poultry, CDC says](https://www.yahoo.com/news/salmonella-outbreak-linked-backyard-poultry-205036211.html)
 <!-- feed end -->
 
 ### Onstream
