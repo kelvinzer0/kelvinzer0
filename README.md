@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [US TVA chief suggests coal plants could see longer life, environmental groups vow to fight](https://finance.yahoo.com/news/us-tva-chief-suggests-coal-215348566.html)
+- May 05 - [Arrest made in deadly Seattle motorcycle hit-and-run](https://www.yahoo.com/news/arrest-made-deadly-seattle-motorcycle-211916492.html)
+- May 05 - [Federal investigators say a utility wasn't marked before a deadly natural gas explosion in Missouri](https://www.yahoo.com/news/federal-investigators-utility-wasnt-marked-205327343.html)
 - May 05 - [UF presidential candidate would bring political baggage to Gator Country](https://www.yahoo.com/news/uf-presidential-candidate-bring-political-203400936.html)
-- May 05 - [Knox County DA fires prosecutor over posts praising Nazis, advocating killing migrants](https://www.yahoo.com/news/knox-county-da-fires-prosecutor-193605983.html)
-- May 05 - [Severe storms to rattle areas in south-central, northeast and southeast US](https://www.yahoo.com/news/severe-storms-rattle-areas-south-192521054.html)
-- May 05 - [Ukrainian attack on Moscow forces Putin to cancel VE Day parade in Crimea](https://www.yahoo.com/news/ukrainian-attack-moscow-forces-putin-173707907.html)
-- May 05 - [Israeli bulldozers demolish houses in village in West Bank, make dozens homeless](https://www.yahoo.com/news/israeli-bulldozers-demolish-houses-village-170602871.html)
+- May 05 - [Cinco de Mayo celebrations around Greater New Orleans](https://www.yahoo.com/lifestyle/cinco-mayo-celebrations-around-greater-194901296.html)
 <!-- feed end -->
 
 ### Onstream
