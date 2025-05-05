@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [Copper cable thefts in Spain leave passengers trapped in trains overnight](https://www.yahoo.com/news/copper-cable-thefts-spain-leave-084311532.html)
 - May 05 - [Donald Trump Flips Out At Wall Street Journal Reporter: ‘You Hear Me? What I Said?’](https://www.yahoo.com/news/donald-trump-flips-wall-street-065529571.html)
 - May 05 - [Rape victims says Labour minister should resign after calling grooming gangs 'dog whistle' issue](https://www.yahoo.com/news/rape-victims-says-labour-minister-062342377.html)
-- May 05 - [Berlin still bears scars 80 years after pivotal battle that sealed the defeat of Nazi Germany](https://www.yahoo.com/news/berlin-still-bears-scars-80-050006408.html)
-- May 05 - [Arizona Lottery Pick 3, Fantasy 5 results for May 4, 2025](https://www.yahoo.com/news/arizona-lottery-pick-3-fantasy-041003724.html)
 - May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
+- May 05 - [Luxury Lamborghini Yacht 'Flipped Over' Off Miami Beach with Dozens of Influencers Onboard: 'It Was Straight Up in the Water'](https://www.yahoo.com/news/luxury-lamborghini-yacht-flipped-over-021835050.html)
 <!-- feed end -->
 
 ### Onstream
