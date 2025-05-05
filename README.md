@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Buffett succession, US trade deals, Fed meeting: 3 Things](https://finance.yahoo.com/video/buffett-succession-us-trade-deals-131215684.html)
-- May 05 - [Almost Every Speck of Light in This Incredible Image Is a Galaxy](https://www.yahoo.com/news/almost-every-speck-light-incredible-130048689.html)
-- May 05 - [Thousands of machinists union members go on strike at jet engine maker Pratt & Whitney](https://finance.yahoo.com/news/thousands-machinists-union-members-strike-120934557.html)
-- May 05 - [Mortgage and refinance rates today, May 5, 2025: Don't expect lower rates after the Fed meeting](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-monday-may-5-2025-100002362.html)
+- May 05 - [US Service Providers See Growth Pick Up After March Slump](https://finance.yahoo.com/video/us-providers-see-growth-pick-142220422.html)
+- May 05 - [Flight delays at Newark airport as labor shortages persist](https://www.yahoo.com/news/flight-delays-newark-airport-labor-141858205.html)
+- May 05 - [We’ve been ostracised for telling the truth about how the liberal elite got Covid so wrong](https://www.yahoo.com/news/ve-ostracised-telling-truth-liberal-110000732.html)
 - May 05 - [RFK Jr. Calls Out King Abdullah: ‘They’ve Cut Us Off’](https://www.yahoo.com/news/rfk-jr-calls-king-abdullah-095500135.html)
+- May 05 - [A Brit who fought in Ukraine says Russia's army is so barbaric his unit vowed never to be taken alive](https://www.yahoo.com/news/brit-fought-ukraine-says-russias-093310533.html)
 <!-- feed end -->
 
 ### Onstream
