@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [A Brit who fought in Ukraine says Russia's army is so barbaric his unit vowed never to be taken alive](https://www.yahoo.com/news/brit-fought-ukraine-says-russias-093310533.html)
-- May 05 - [Donald Trump Flips Out At Wall Street Journal Reporter: ‘You Hear Me? What I Said?’](https://www.yahoo.com/news/donald-trump-flips-wall-street-065529571.html)
-- May 05 - [Exclusive-India starts work on hydro projects after suspending treaty with Pakistan, sources say](https://finance.yahoo.com/news/exclusive-india-starts-hydro-projects-051033058.html)
-- May 05 - [Berlin still bears scars 80 years after pivotal battle that sealed the defeat of Nazi Germany](https://www.yahoo.com/news/berlin-still-bears-scars-80-050006408.html)
-- May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
+- May 05 - [Thousands of machinists union members go on strike at jet engine maker Pratt & Whitney](https://www.yahoo.com/news/thousands-machinists-union-members-strike-120934294.html)
+- May 05 - [Far-right first-round win of Romanian presidential election raises prospect of EU disruption](https://www.yahoo.com/news/far-first-round-win-romanian-120441696.html)
+- May 05 - [Severe thunderstorms possible in South Florida, Palm Beach County on Monday](https://www.yahoo.com/news/severe-thunderstorms-possible-south-florida-113118313.html)
+- May 05 - [Can I shoot a Burmese python in my yard? What to know about the invasive species](https://www.yahoo.com/news/shoot-burmese-python-yard-know-100403948.html)
+- May 05 - [RFK Jr. Calls Out King Abdullah: ‘They’ve Cut Us Off’](https://www.yahoo.com/news/rfk-jr-calls-king-abdullah-095500135.html)
 <!-- feed end -->
 
 ### Onstream
