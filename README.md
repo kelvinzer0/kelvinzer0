@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - ['More Weakness' to Come in US Economy: Morgan Stanley's Craig](https://finance.yahoo.com/video/more-weakness-come-us-economy-023515810.html)
 - May 05 - [In New York, a GOP congressman is shelled with questions about Trump during raucous town hall](https://www.yahoo.com/news/york-gop-congressman-shelled-questions-022211671.html)
 - May 05 - [Trump blasts Mexico's Sheinbaum for rejecting offer to send US troops into Mexico to fight cartels](https://www.yahoo.com/news/trump-blasts-mexicos-sheinbaum-rejecting-003341709.html)
 - May 04 - [Trump says he will reopen Alcatraz prison](https://www.yahoo.com/news/trump-says-reopen-alcatraz-prison-231829516.html)
-- May 04 - [Buffett explains why he prefers to invest in stocks instead of real estate](https://finance.yahoo.com/news/buffett-explains-why-prefers-invest-215848089.html)
+- May 04 - [‘He needs to resign’: Democrats react with quiet shock to damning John Fetterman profile](https://www.yahoo.com/news/needs-resign-democrats-react-quiet-215443271.html)
+- May 04 - [Remains of missing Oregon woman found in Harney County](https://www.yahoo.com/news/remains-missing-oregon-woman-found-205144674.html)
 <!-- feed end -->
 
 ### Onstream
