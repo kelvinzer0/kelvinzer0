@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [China Reviews U.S. Proposal to Scale Down Tariffs](https://finance.yahoo.com/video/china-reviews-u-proposal-scale-155935050.html)
-- May 05 - [Apollo CEO: I don't agree with Warren Buffett on tariffs](https://finance.yahoo.com/news/apollo-ceo-i-dont-agree-with-warren-buffett-on-tariffs-154324474.html)
-- May 05 - [Forget common folklore about the safety of weed. Marijuana harms babies, research shows](https://www.yahoo.com/news/forget-common-folklore-safety-weed-150437551.html)
-- May 05 - [Dutch police arrest pro-Palestine protesters at World War Two anniversary event](https://www.yahoo.com/news/dutch-police-arrest-pro-palestine-145433913.html)
-- May 05 - [Trump administration says it'll pay immigrants in the US illegally $1,000 to leave the country](https://www.yahoo.com/news/trump-administration-says-pay-immigrants-145104484.html)
+- May 05 - [400 layoffs planned at former Walmart robotics unit in Massachusetts](https://finance.yahoo.com/news/400-layoffs-planned-former-walmart-161110190.html)
+- May 05 - [Israeli bulldozers demolish houses in village in West Bank, make dozens homeless](https://www.yahoo.com/news/israeli-bulldozers-demolish-houses-village-170602871.html)
+- May 05 - [White House reverses course on proposal to eliminate Head Start](https://www.yahoo.com/news/white-house-reverses-course-proposal-170058649.html)
+- May 05 - [Warren Buffett's succession plan & net worth: What to know](https://finance.yahoo.com/video/warren-buffetts-succession-plan-net-164111577.html)
+- May 05 - [It's invasive. It's toxic. And it could be in your yard this spring](https://www.yahoo.com/news/invasive-toxic-could-yard-spring-162456549.html)
 <!-- feed end -->
 
 ### Onstream
