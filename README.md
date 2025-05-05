@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [400 layoffs planned at former Walmart robotics unit in Massachusetts](https://finance.yahoo.com/news/400-layoffs-planned-former-walmart-161110190.html)
-- May 05 - [Israeli bulldozers demolish houses in village in West Bank, make dozens homeless](https://www.yahoo.com/news/israeli-bulldozers-demolish-houses-village-170602871.html)
-- May 05 - [White House reverses course on proposal to eliminate Head Start](https://www.yahoo.com/news/white-house-reverses-course-proposal-170058649.html)
-- May 05 - [Warren Buffett's succession plan & net worth: What to know](https://finance.yahoo.com/video/warren-buffetts-succession-plan-net-164111577.html)
-- May 05 - [It's invasive. It's toxic. And it could be in your yard this spring](https://www.yahoo.com/news/invasive-toxic-could-yard-spring-162456549.html)
+- May 05 - [Man killed in Cohasset MBTA train strike identified](https://www.yahoo.com/news/man-killed-cohasset-mbta-train-130614537.html)
+- May 05 - [Trump 'Honors' Cinco De Mayo By Reposting Infamous 2016 Tweet](https://www.yahoo.com/news/trump-honors-cinco-mayo-reposting-175007887.html)
+- May 05 - [She Was Murdered amid a Divorce — 12 Years Later, a Shocking Figure Is Charged in Twisted Plot](https://www.yahoo.com/news/she-murdered-amid-divorce-12-172027725.html)
+- May 05 - [A judge used Trump’s own words to expose his real agenda](https://www.yahoo.com/news/judge-used-trump-own-words-165940985.html)
+- May 05 - [‘He’s being disingenuous, he’s lying’: 9/11 responder slams Trump](https://www.yahoo.com/news/being-disingenuous-lying-9-11-165700779.html)
 <!-- feed end -->
 
 ### Onstream
