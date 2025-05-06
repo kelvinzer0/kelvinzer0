@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 06 - [Pirates suspend employee after video shows him punching, whipping fan with belt in postgame altercation](https://sports.yahoo.com/mlb/breaking-news/article/pirates-suspend-employee-after-video-shows-him-punching-whipping-fan-with-belt-in-postgame-altercation-224550629.html)
+- May 06 - [Canada's Carney becomes the latest foreign leader to get the Trump treatment in the Oval Office](https://www.yahoo.com/news/canadas-carney-becomes-latest-foreign-222217298.html)
 - May 06 - [Nvidia CEO explains 2 ways AI will boost the global economy](https://finance.yahoo.com/video/nvidia-ceo-explains-2-ways-220144025.html)
-- May 06 - [India says it attacked Pakistan, Pakistani Kashmir](https://www.yahoo.com/news/multiple-loud-explosions-heard-pakistani-195441324.html)
-- May 06 - [NYC Restaurateur Reveals Trump Was An Annoying Guest: 'He Wasn't Very Bright'](https://www.yahoo.com/news/nyc-restaurateur-reveals-trump-annoying-192356365.html)
-- May 06 - [FIA President Ben Sulayem Pushes $4 Million Bugatti Bolide to the Limit at Dubai Autodrome](https://autos.yahoo.com/fia-president-ben-sulayem-pushes-173000939.html)
-- May 06 - [Intel shareholders approve equity incentive plan, new CEO pay](https://finance.yahoo.com/news/intel-shareholders-approve-equity-incentive-164635550.html)
+- May 06 - [Smokey Robinson accused by former housekeepers of sexual assault and rape](https://www.yahoo.com/news/smokey-robinson-accused-former-housekeepers-214752027.html)
+- May 06 - [A man spent 45 days in jail, accused of trying to abduct a child at Walmart. A judge granted a bond after lawyer shows video](https://www.yahoo.com/news/man-spent-45-days-jail-201248022.html)
 <!-- feed end -->
 
 ### Onstream
