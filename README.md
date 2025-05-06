@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Bizarre video shows man wearing human-sized rat tail](https://www.yahoo.com/news/bizarre-video-shows-man-wearing-140352391.html)
-- May 06 - [Whale beached on Hilton Head Island this weekend. How and why it likely washed up on shore](https://www.yahoo.com/news/whale-beached-hilton-head-island-135248808.html)
-- May 06 - [Israel says it struck Yemen's main airport in Sanaa](https://www.yahoo.com/news/israeli-military-warns-residents-near-114218534.html)
-- May 06 - [As Trump tariffs sink in, Canadian companies pivot from US to new markets](https://finance.yahoo.com/news/trump-tariffs-sink-canadian-companies-100622231.html)
-- May 06 - [Warren Buffett and Bill Gates were asked to explain their success in 1 word. They both gave the same answer](https://finance.yahoo.com/news/warren-buffett-bill-gates-were-100000546.html)
+- May 06 - [Greycroft's Dana Settle on the VC firm's approach to tech, AI](https://finance.yahoo.com/video/greycrofts-dana-settle-vc-firms-152500017.html)
+- May 06 - [Newly Declassified Memo Wrecks Trump’s Main Defense on Deportations](https://www.yahoo.com/news/newly-declassified-memo-wrecks-trump-143923721.html)
+- May 06 - [Burger King must face lawsuit over Whopper ads](https://finance.yahoo.com/news/burger-king-must-face-lawsuit-142556767.html)
+- May 06 - [Twenty-nine world leaders are expected at Moscow's World War Two victory commemorations, Kremlin says](https://www.yahoo.com/news/twenty-nine-world-leaders-expected-131036743.html)
+- May 06 - [Report: Trump considering NIL executive order](https://sports.yahoo.com/video/report-trump-considering-nil-executive-125056255.html)
 <!-- feed end -->
 
 ### Onstream
