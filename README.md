@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Federal judge says results of North Carolina court race with Democrat ahead must be certified](https://www.yahoo.com/news/federal-judge-says-results-north-002443422.html)
+- May 06 - [Stocks drift, dollar steadies as focus shifts to Asian currencies](https://finance.yahoo.com/news/stocks-drift-dollar-steadies-focus-024300490.html)
+- May 06 - [Possible measles exposure in major Missouri metro](https://www.yahoo.com/news/possible-measles-exposure-major-missouri-023307096.html)
+- May 06 - [Judge orders Trump administration to admit roughly 12,000 refugees](https://www.yahoo.com/news/judge-orders-trump-administration-admit-020936580.html)
 - May 05 - [El Salvador president orders arrest of of bus company heads for defying free transport order](https://www.yahoo.com/news/el-salvador-president-orders-arrest-235205170.html)
 - May 05 - [Ukraine targets Moscow with drones for second straight night, officials say](https://www.yahoo.com/news/ukraine-targets-moscow-drones-second-230134301.html)
-- May 05 - [Peter Lynch's Market Observation: 'Far More Money Has Been Lost By Investors Preparing For Corrections, Than Has Been Lost In Corrections Themselves'](https://finance.yahoo.com/news/peter-lynchs-market-observation-far-221013428.html)
-- May 05 - [Two riders dead after ‘catastrophic’ 11-man crash at British Superbikes Championship](https://sports.yahoo.com/article/two-riders-dead-catastrophic-11-220725033.html)
 <!-- feed end -->
 
 ### Onstream
