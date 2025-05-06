@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Hamas says no point in further Gaza truce talks](https://www.yahoo.com/news/hamas-says-no-point-further-065630377.html)
-- May 06 - [Donald Trump Announces 2 New National Holidays... With A Catch](https://www.yahoo.com/news/donald-trump-announces-2-national-065550288.html)
+- May 06 - [Exclusive-US cancels FDA bargaining session over layoffs, union says](https://www.yahoo.com/news/exclusive-us-cancels-fda-bargaining-100810250.html)
+- May 06 - [Exclusive-Order by Hegseth to cancel Ukraine weapons caught White House off guard](https://www.yahoo.com/news/exclusive-order-hegseth-cancel-ukraine-091712524.html)
+- May 06 - [Pakistan’s most powerful man holds the key to war with India](https://www.yahoo.com/news/pakistan-most-powerful-man-holds-090338540.html)
 - May 06 - [American tourist climbs over fence at Colosseum, impales himself on spike](https://www.yahoo.com/news/american-tourist-climbs-over-fence-055248475.html)
 - May 06 - [80 years after World War II, Germany is still painstakingly searching for its fallen soldiers](https://www.yahoo.com/news/80-years-world-war-ii-050521207.html)
-- May 06 - [Judge orders Trump administration to admit roughly 12,000 refugees](https://www.yahoo.com/news/judge-orders-trump-administration-admit-020936580.html)
 <!-- feed end -->
 
 ### Onstream
