@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Black bear sighting in St. Augustine, seen on video climbing wall and roaming the street](https://www.yahoo.com/news/black-bear-sighting-st-augustine-125025730.html)
-- May 06 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
-- May 06 - [These 2 Iowa cities are among the top 100 places to live in the U.S. Who made the cut?](https://www.yahoo.com/lifestyle/2-iowa-cities-among-top-110123518.html)
+- May 06 - [Bizarre video shows man wearing human-sized rat tail](https://www.yahoo.com/news/bizarre-video-shows-man-wearing-140352391.html)
+- May 06 - [Whale beached on Hilton Head Island this weekend. How and why it likely washed up on shore](https://www.yahoo.com/news/whale-beached-hilton-head-island-135248808.html)
+- May 06 - [Israel says it struck Yemen's main airport in Sanaa](https://www.yahoo.com/news/israeli-military-warns-residents-near-114218534.html)
 - May 06 - [As Trump tariffs sink in, Canadian companies pivot from US to new markets](https://finance.yahoo.com/news/trump-tariffs-sink-canadian-companies-100622231.html)
 - May 06 - [Warren Buffett and Bill Gates were asked to explain their success in 1 word. They both gave the same answer](https://finance.yahoo.com/news/warren-buffett-bill-gates-were-100000546.html)
 <!-- feed end -->
