@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Hamas says Gaza truce talks pointless as Israel wages 'hunger war'](https://www.yahoo.com/news/hamas-says-no-point-further-065630377.html)
+- May 06 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
+- May 06 - [India panel to review copyright law amid legal challenges to OpenAI](https://finance.yahoo.com/news/india-panel-review-copyright-law-110533002.html)
+- May 06 - [These 2 Iowa cities are among the top 100 places to live in the U.S. Who made the cut?](https://www.yahoo.com/lifestyle/2-iowa-cities-among-top-110123518.html)
+- May 06 - [As Trump tariffs sink in, Canadian companies pivot from US to new markets](https://finance.yahoo.com/news/trump-tariffs-sink-canadian-companies-100622231.html)
 - May 06 - [Warren Buffett and Bill Gates were asked to explain their success in 1 word. They both gave the same answer](https://finance.yahoo.com/news/warren-buffett-bill-gates-were-100000546.html)
-- May 06 - [Russian journalist who criticised Ukraine war escaped to France with NGO's help](https://www.yahoo.com/news/russian-journalist-criticised-ukraine-war-094604080.html)
-- May 06 - [Exclusive-Order by Hegseth to cancel Ukraine weapons caught White House off guard](https://www.yahoo.com/news/exclusive-order-hegseth-cancel-ukraine-091712524.html)
-- May 06 - [Donald Trump Announces 2 New National Holidays... With A Catch](https://www.yahoo.com/news/donald-trump-announces-2-national-065550288.html)
 <!-- feed end -->
 
 ### Onstream
