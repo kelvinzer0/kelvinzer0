@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Cardinal tarnished by secret Chinese pact emerges as front-runner to be Pope](https://www.yahoo.com/news/cardinal-tarnished-secret-chinese-pact-174242803.html)
-- May 06 - [Canada PM Gives Trump Middle Finger on Wild in-Person Statehood Pitch](https://www.yahoo.com/news/canada-pm-gives-trump-middle-163400218.html)
-- May 06 - [Bitcoin Reaches Key Weekly .612 Fibonacci Retracement Level, Raising The Potential For A Significant Lower High Formation](https://finance.yahoo.com/news/bitcoin-reaches-key-weekly-612-162228440.html)
+- May 06 - [The EU seeks to halt Russian gas imports by the end of 2027 and ban new contracts already this year](https://www.yahoo.com/news/eu-seeks-halt-russian-gas-181442542.html)
+- May 06 - [Cardinal tarnished by secret Chinese pact emerges as front-runner for pope](https://www.yahoo.com/news/cardinal-tarnished-secret-chinese-pact-174242803.html)
+- May 06 - [Trump Accidentally Admits He Hasn’t Made Any Trade Deals](https://www.yahoo.com/news/trump-accidentally-admits-hasn-t-165849625.html)
 - May 06 - ['This oil price doesn't work': Diamondback CEO says US shale production has peaked](https://finance.yahoo.com/news/this-oil-price-doesnt-work-diamondback-ceo-says-us-shale-production-has-peaked-154712764.html)
 - May 06 - [Trump Treasury Secretary Crashes When Asked Easy Question on Tariffs](https://www.yahoo.com/news/trump-treasury-secretary-crashes-asked-152835604.html)
 <!-- feed end -->
