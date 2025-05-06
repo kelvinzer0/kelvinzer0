@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Stocks drift, dollar steadies as focus shifts to Asian currencies](https://finance.yahoo.com/news/stocks-drift-dollar-steadies-focus-024300490.html)
-- May 06 - [Possible measles exposure in major Missouri metro](https://www.yahoo.com/news/possible-measles-exposure-major-missouri-023307096.html)
 - May 06 - [Judge orders Trump administration to admit roughly 12,000 refugees](https://www.yahoo.com/news/judge-orders-trump-administration-admit-020936580.html)
 - May 05 - [El Salvador president orders arrest of of bus company heads for defying free transport order](https://www.yahoo.com/news/el-salvador-president-orders-arrest-235205170.html)
 - May 05 - [Ukraine targets Moscow with drones for second straight night, officials say](https://www.yahoo.com/news/ukraine-targets-moscow-drones-second-230134301.html)
+- May 05 - [Tourists evacuated as flooding hits Petra's archaeological site](https://www.yahoo.com/news/tourists-evacuated-flooding-hits-petras-212212140.html)
+- May 05 - [Arrest made in deadly Seattle motorcycle hit-and-run](https://www.yahoo.com/news/arrest-made-deadly-seattle-motorcycle-211916492.html)
 <!-- feed end -->
 
 ### Onstream
