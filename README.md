@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Greycroft's Dana Settle on the VC firm's approach to tech, AI](https://finance.yahoo.com/video/greycrofts-dana-settle-vc-firms-152500017.html)
-- May 06 - [Newly Declassified Memo Wrecks Trump’s Main Defense on Deportations](https://www.yahoo.com/news/newly-declassified-memo-wrecks-trump-143923721.html)
+- May 06 - [Power outage caused by car crash in Springfield leaves 1,100 without electricity](https://www.yahoo.com/news/power-outage-caused-car-crash-154421301.html)
+- May 06 - [BBC admits failings over Prince Harry interview](https://www.yahoo.com/lifestyle/bbc-admits-lapse-usual-standards-142731205.html)
+- May 06 - [Man accused of stealing yacht in Martin County after chase on Intracoastal](https://www.yahoo.com/news/man-accused-stealing-yacht-martin-151358356.html)
+- May 06 - [Van rams motorcycle during apparent road rage incident](https://www.yahoo.com/news/van-rams-motorcycle-during-apparent-143955575.html)
 - May 06 - [Burger King must face lawsuit over Whopper ads](https://finance.yahoo.com/news/burger-king-must-face-lawsuit-142556767.html)
-- May 06 - [Twenty-nine world leaders are expected at Moscow's World War Two victory commemorations, Kremlin says](https://www.yahoo.com/news/twenty-nine-world-leaders-expected-131036743.html)
-- May 06 - [Report: Trump considering NIL executive order](https://sports.yahoo.com/video/report-trump-considering-nil-executive-125056255.html)
 <!-- feed end -->
 
 ### Onstream
