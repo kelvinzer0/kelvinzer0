@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Same-sex couple demands answers after hotel security threw one out of bathroom thinking she was a man](https://www.yahoo.com/news/same-sex-couple-demands-answers-180143266.html)
-- May 06 - [These Chinese-made products could soon be hard to find in the U.S.](https://www.yahoo.com/news/chinese-made-products-could-soon-153431084.html)
-- May 06 - [Cardinal tarnished by secret Chinese pact emerges as front-runner for pope](https://www.yahoo.com/news/cardinal-tarnished-secret-chinese-pact-174242803.html)
-- May 06 - [Intel shareholders approve equity incentive plan, new CEO pay](https://finance.yahoo.com/news/intel-shareholders-approve-equity-incentive-164635550.html)
-- May 06 - ['This oil price doesn't work': Diamondback CEO says US shale production has peaked](https://finance.yahoo.com/news/this-oil-price-doesnt-work-diamondback-ceo-says-us-shale-production-has-peaked-154712764.html)
+- May 06 - [Suspect who plowed into front gate of Jennifer Aniston’s home faces felony vandalism charge](https://www.yahoo.com/lifestyle/suspect-plowed-front-gate-jennifer-172306240.html)
+- May 06 - [Investors are still excited about the US, Citi's Andy Sieg says](https://finance.yahoo.com/video/investors-still-excited-us-citis-201656585.html)
+- May 06 - [India says it attacked Pakistan, Pakistani Kashmir](https://www.yahoo.com/news/multiple-loud-explosions-heard-pakistani-195441324.html)
+- May 06 - [NYC Restaurateur Reveals Trump Was An Annoying Guest: 'He Wasn't Very Bright'](https://www.yahoo.com/news/nyc-restaurateur-reveals-trump-annoying-192356365.html)
+- May 06 - [Not again! Columbus driver stops on highway, causes crash, ODOT video shows](https://www.yahoo.com/news/not-again-columbus-driver-stops-165534988.html)
 <!-- feed end -->
 
 ### Onstream
