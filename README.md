@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Power outage caused by car crash in Springfield leaves 1,100 without electricity](https://www.yahoo.com/news/power-outage-caused-car-crash-154421301.html)
-- May 06 - [BBC admits failings over Prince Harry interview](https://www.yahoo.com/lifestyle/bbc-admits-lapse-usual-standards-142731205.html)
-- May 06 - [Man accused of stealing yacht in Martin County after chase on Intracoastal](https://www.yahoo.com/news/man-accused-stealing-yacht-martin-151358356.html)
-- May 06 - [Van rams motorcycle during apparent road rage incident](https://www.yahoo.com/news/van-rams-motorcycle-during-apparent-143955575.html)
-- May 06 - [Burger King must face lawsuit over Whopper ads](https://finance.yahoo.com/news/burger-king-must-face-lawsuit-142556767.html)
+- May 06 - [Experts, politicians divided on how to get B.C. back on track for climate goals](https://www.yahoo.com/news/experts-politicians-divided-b-c-164251396.html)
+- May 06 - [Strictly Legal | Mike Lindell's lawyers use incompetence as a weapon](https://www.yahoo.com/news/strictly-legal-mike-lindells-lawyers-163808778.html)
+- May 06 - [Blood-red ceramic poppies 'flow across’ Tower of London for VE Day](https://www.yahoo.com/news/blood-red-ceramic-poppies-flow-163110434.html)
+- May 06 - ['This oil price doesn't work': Diamondback CEO says US shale production has peaked](https://finance.yahoo.com/news/this-oil-price-doesnt-work-diamondback-ceo-says-us-shale-production-has-peaked-154712764.html)
+- May 06 - [US homeland security chief says travelers without REAL ID will be allowed to fly](https://www.yahoo.com/news/us-homeland-security-chief-says-154633455.html)
 <!-- feed end -->
 
 ### Onstream
