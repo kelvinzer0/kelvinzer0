@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 06 - [Jon Voight partially reveals Trump’s roadmap to ‘make Hollywood great again’](https://www.yahoo.com/news/jon-voight-partially-reveals-trump-072728994.html)
 - May 06 - [American tourist climbs over fence at Colosseum, impales himself on spike](https://www.yahoo.com/news/american-tourist-climbs-over-fence-055248475.html)
 - May 06 - [80 years after World War II, Germany is still painstakingly searching for its fallen soldiers](https://www.yahoo.com/news/80-years-world-war-ii-050521207.html)
 - May 06 - [Judge orders Trump administration to admit roughly 12,000 refugees](https://www.yahoo.com/news/judge-orders-trump-administration-admit-020936580.html)
 - May 06 - [Federal judge says results of North Carolina court race with Democrat ahead must be certified](https://www.yahoo.com/news/federal-judge-says-results-north-002443422.html)
-- May 05 - [Ukraine targets Moscow with drones for second straight night, officials say](https://www.yahoo.com/news/ukraine-targets-moscow-drones-second-230134301.html)
 <!-- feed end -->
 
 ### Onstream
