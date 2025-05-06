@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Suspect who plowed into front gate of Jennifer Aniston’s home faces felony vandalism charge](https://www.yahoo.com/lifestyle/suspect-plowed-front-gate-jennifer-172306240.html)
-- May 06 - [Investors are still excited about the US, Citi's Andy Sieg says](https://finance.yahoo.com/video/investors-still-excited-us-citis-201656585.html)
+- May 06 - [Nvidia CEO explains 2 ways AI will boost the global economy](https://finance.yahoo.com/video/nvidia-ceo-explains-2-ways-220144025.html)
 - May 06 - [India says it attacked Pakistan, Pakistani Kashmir](https://www.yahoo.com/news/multiple-loud-explosions-heard-pakistani-195441324.html)
 - May 06 - [NYC Restaurateur Reveals Trump Was An Annoying Guest: 'He Wasn't Very Bright'](https://www.yahoo.com/news/nyc-restaurateur-reveals-trump-annoying-192356365.html)
-- May 06 - [Not again! Columbus driver stops on highway, causes crash, ODOT video shows](https://www.yahoo.com/news/not-again-columbus-driver-stops-165534988.html)
+- May 06 - [FIA President Ben Sulayem Pushes $4 Million Bugatti Bolide to the Limit at Dubai Autodrome](https://autos.yahoo.com/fia-president-ben-sulayem-pushes-173000939.html)
+- May 06 - [Intel shareholders approve equity incentive plan, new CEO pay](https://finance.yahoo.com/news/intel-shareholders-approve-equity-incentive-164635550.html)
 <!-- feed end -->
 
 ### Onstream
