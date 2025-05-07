@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Vietnam's shipments from China, to US reach record high amid trade fraud crackdown](https://finance.yahoo.com/news/vietnams-shipments-china-us-reach-075350173.html)
 - May 07 - [Hard drive found at suspect’s factory ‘contains evidence Madeleine McCann is dead’](https://www.yahoo.com/news/hard-drive-found-suspect-factory-052535347.html)
 - May 07 - [Road rage suspect caught after viral hit-and-run caught on camera](https://www.yahoo.com/news/road-rage-suspect-caught-viral-022640159.html)
-- May 07 - [Truck crossed center line in crash with tour van that killed 7 near Yellowstone, police say](https://www.yahoo.com/news/truck-crossed-center-line-crash-011930691.html)
-- May 07 - [Tesla launches cheaper Model Y vehicle in the US](https://finance.yahoo.com/news/tesla-launches-cheaper-model-y-011908102.html)
 - May 07 - [Trump plans to announce the US will call the Persian Gulf the Arabian Gulf, officials tell AP](https://www.yahoo.com/news/trump-plans-announce-us-call-011252613.html)
+- May 07 - [Vice chair of the National Transportation Safety Board is unexpectedly removed from position](https://www.yahoo.com/news/trump-administration-abruptly-removes-vice-011139983.html)
 <!-- feed end -->
 
 ### Onstream
