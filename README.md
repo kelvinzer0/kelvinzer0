@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [India and Pakistan are on the brink of all-out war. Here’s what we know](https://www.yahoo.com/news/india-pakistan-brink-war-know-054422296.html)
+- May 07 - [Televangelist Jim Bakker Says He Needs A Million Bucks Or 'I'll Be Out On The Street'](https://www.yahoo.com/news/televangelist-jim-bakker-says-needs-044513388.html)
 - May 07 - [Downtown Kansas City business owners issuing a warning: ‘This isn’t a political issue—it’s a safety issue’](https://www.yahoo.com/news/downtown-kansas-city-business-owners-021100610.html)
 - May 07 - [Tesla launches cheaper Model Y vehicle in the US](https://finance.yahoo.com/news/tesla-launches-cheaper-model-y-011908102.html)
 - May 07 - [Trump plans to announce the US will call the Persian Gulf the Arabian Gulf, officials tell AP](https://www.yahoo.com/news/trump-plans-announce-us-call-011252613.html)
-- May 06 - [Gilbert Arenas opens up about son Alijah's Cybertruck crash, says 5-star recruit was put in coma due to smoke](https://sports.yahoo.com/nba/breaking-news/article/gilbert-arenas-opens-up-about-son-alijahs-cybertruck-crash-says-5-star-recruit-was-put-in-coma-due-to-smoke-234818174.html)
-- May 06 - [India Strikes, Pakistan Responds, Claims Of Aircraft Losses Mount (Updated)](https://www.yahoo.com/news/india-strikes-pakistan-responds-claims-224945050.html)
 <!-- feed end -->
 
 ### Onstream
