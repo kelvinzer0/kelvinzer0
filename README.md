@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Disney Plans to Open New Theme Park in Abu Dhabi](https://www.yahoo.com/entertainment/articles/disney-plans-open-theme-park-122402566.html)
+- May 07 - [Why India attacked Pakistan, its neighbor and nuclear rival](https://www.yahoo.com/news/why-india-attacked-pakistan-neighbor-130318576.html)
+- May 07 - [Second U.S. fighter jet falls off USS Harry S. Truman aircraft carrier](https://www.yahoo.com/news/second-u-fighter-jet-falls-123320279.html)
+- May 07 - [People Asked Male Gynecologists To Honestly Answer Questions About Their Job, And It's Way More Wholesome Than I Thought It Would Be](https://www.yahoo.com/lifestyle/people-asked-male-gynecologists-honestly-113104207.html)
+- May 07 - [Report exposes $28 trillion in damage tied to five powerful companies: 'The veil of plausible deniability doesn't exist anymore'](https://www.yahoo.com/news/report-exposes-28-trillion-damage-101541743.html)
 - May 07 - [Army secretary says US can't keep pumping money into expensive weapons that can be taken out by an $800 Russian drone](https://www.yahoo.com/news/army-secretary-says-us-cant-095102766.html)
-- May 07 - [Two Belgian teenagers found with 5,000 ants in Kenya given $7,700 fine or 1-year prison sentence](https://www.yahoo.com/news/two-belgian-teenagers-found-5-081632556.html)
-- May 07 - [George W. Bush Plans to Brutally Snub Melania Trump’s White House Event](https://www.yahoo.com/news/george-w-bush-plans-brutally-032231051.html)
-- May 07 - ["His Liver Was SCREAMING For Help": Doctors Are Revealing The Biggest Medical Mysteries They've Ever Solved, And These Are Straight Out Of A TV Show](https://www.yahoo.com/lifestyle/liver-screaming-help-doctors-revealing-031602720.html)
 <!-- feed end -->
 
 ### Onstream
