@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [India and Pakistan are on the brink of all-out war. Here’s what we know](https://www.yahoo.com/news/india-pakistan-brink-war-know-054422296.html)
-- May 07 - [Televangelist Jim Bakker Says He Needs A Million Bucks Or 'I'll Be Out On The Street'](https://www.yahoo.com/news/televangelist-jim-bakker-says-needs-044513388.html)
-- May 07 - [Downtown Kansas City business owners issuing a warning: ‘This isn’t a political issue—it’s a safety issue’](https://www.yahoo.com/news/downtown-kansas-city-business-owners-021100610.html)
+- May 07 - [Hard drive found at suspect’s factory ‘contains evidence Madeleine McCann is dead’](https://www.yahoo.com/news/hard-drive-found-suspect-factory-052535347.html)
+- May 07 - [Road rage suspect caught after viral hit-and-run caught on camera](https://www.yahoo.com/news/road-rage-suspect-caught-viral-022640159.html)
+- May 07 - [Truck crossed center line in crash with tour van that killed 7 near Yellowstone, police say](https://www.yahoo.com/news/truck-crossed-center-line-crash-011930691.html)
 - May 07 - [Tesla launches cheaper Model Y vehicle in the US](https://finance.yahoo.com/news/tesla-launches-cheaper-model-y-011908102.html)
 - May 07 - [Trump plans to announce the US will call the Persian Gulf the Arabian Gulf, officials tell AP](https://www.yahoo.com/news/trump-plans-announce-us-call-011252613.html)
 <!-- feed end -->
