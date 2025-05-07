@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Lithuania closes airspace to Slovak and Serb leaders on route to Russia, president says](https://www.yahoo.com/news/lithuania-closes-airspace-slovak-serb-145306081.html)
-- May 07 - [The C8 Corvette Finally Ditches Its Infamous Button Wall for 2026](https://autos.yahoo.com/c8-corvette-finally-ditches-infamous-140000547.html)
-- May 07 - [Archaeologists Found 300 Ancient Treasures on the Hilltop of a Volcano](https://www.yahoo.com/news/archaeologists-found-300-ancient-treasures-123000131.html)
-- May 07 - [People Asked Male Gynecologists To Honestly Answer Questions About Their Job, And It's Way More Wholesome Than I Thought It Would Be](https://www.yahoo.com/lifestyle/people-asked-male-gynecologists-honestly-113104207.html)
-- May 07 - [Researchers make breakthrough on experimental device that will get hotter than the sun: 'It provides energy and cooling media'](https://www.yahoo.com/news/researchers-breakthrough-experimental-device-hotter-111517754.html)
+- May 07 - [An 8-year-old bought nearly 70,000 lollipops online. Here's how mom reacted.](https://www.yahoo.com/lifestyle/8-old-bought-nearly-70-161243038.html)
+- May 07 - [Milwaukee woman arrested on suspicion of stalking, threatening Waupun Correctional Institution employees](https://www.yahoo.com/news/milwaukee-woman-arrested-suspicion-stalking-153712847.html)
+- May 07 - [Vance says Russia ‘asking for too much’ to end war with Ukraine](https://www.yahoo.com/news/vance-says-russia-asking-too-153201911.html)
+- May 07 - [Moderna study shows immune response in older adults for a combo flu and COVID-19 shot](https://www.yahoo.com/news/moderna-study-shows-immune-response-150013729.html)
+- May 07 - [A 20-cent 'wonder drug' is being studied as a colon cancer-stopping supplement, and it looks promising](https://www.yahoo.com/lifestyle/20-cent-wonder-drug-being-145206015.html)
 <!-- feed end -->
 
 ### Onstream
