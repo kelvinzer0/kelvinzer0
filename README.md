@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Report reveals new details into New York helicopter crash that killed six](https://www.yahoo.com/news/report-reveals-details-york-helicopter-224729379.html)
+- May 07 - [Large crack discovered under Florida condo building, forces evacuations](https://www.yahoo.com/news/large-crack-discovered-under-florida-213435981.html)
 - May 07 - [DOGE committee goes off the rails after Democrats suggest Marjorie Taylor Greene engaged in insider trading](https://www.yahoo.com/news/doge-committee-goes-off-rails-211043031.html)
-- May 07 - [Jury recommends death sentences for 2 killers in Deltona Xbox murders](https://www.yahoo.com/news/jury-recommends-death-sentences-2-205206712.html)
+- May 07 - [3 Mobile County men arrested in FBI-led ‘Operation Restore Justice’](https://www.yahoo.com/news/3-mobile-county-men-arrested-205614415.html)
 - May 07 - [Powell on meeting with Trump: 'I've never asked for a meeting with any president, and I never will'](https://finance.yahoo.com/news/powell-on-meeting-with-trump-ive-never-asked-for-a-meeting-with-any-president-and-i-never-will-201905855.html)
-- May 07 - [Wall Street climbs in choppy trading after Fed warns of rising risks for economy, holds rates steady](https://www.yahoo.com/news/wall-street-climbs-choppy-trading-201809794.html)
-- May 07 - [The election director in North Carolina, a key swing state, is ousted after a Republican power play](https://www.yahoo.com/news/election-director-north-carolina-key-201735382.html)
 <!-- feed end -->
 
 ### Onstream
