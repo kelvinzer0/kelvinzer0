@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Vietnam's shipments from China, to US reach record high amid trade fraud crackdown](https://finance.yahoo.com/news/vietnams-shipments-china-us-reach-075350173.html)
+- May 07 - [Against anti-DEI tide, NJ towns are spending millions to make playgrounds more accessible](https://www.yahoo.com/news/against-anti-dei-tide-nj-082033152.html)
+- May 07 - [Two Belgian teenagers found with 5,000 ants in Kenya given $7,700 fine or 1-year prison sentence](https://www.yahoo.com/news/two-belgian-teenagers-found-5-081632556.html)
 - May 07 - [Hard drive found at suspect’s factory ‘contains evidence Madeleine McCann is dead’](https://www.yahoo.com/news/hard-drive-found-suspect-factory-052535347.html)
+- May 07 - ["His Liver Was SCREAMING For Help": Doctors Are Revealing The Biggest Medical Mysteries They've Ever Solved, And These Are Straight Out Of A TV Show](https://www.yahoo.com/lifestyle/liver-screaming-help-doctors-revealing-031602720.html)
 - May 07 - [Road rage suspect caught after viral hit-and-run caught on camera](https://www.yahoo.com/news/road-rage-suspect-caught-viral-022640159.html)
-- May 07 - [Trump plans to announce the US will call the Persian Gulf the Arabian Gulf, officials tell AP](https://www.yahoo.com/news/trump-plans-announce-us-call-011252613.html)
-- May 07 - [Vice chair of the National Transportation Safety Board is unexpectedly removed from position](https://www.yahoo.com/news/trump-administration-abruptly-removes-vice-011139983.html)
 <!-- feed end -->
 
 ### Onstream
