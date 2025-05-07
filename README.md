@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Pirates suspend employee after video shows him punching, whipping fan with belt in postgame altercation](https://sports.yahoo.com/mlb/breaking-news/article/pirates-suspend-employee-after-video-shows-him-punching-whipping-fan-with-belt-in-postgame-altercation-224550629.html)
+- May 07 - [North Korean leader urges increased artillery shell production amid alignment with Russia](https://www.yahoo.com/news/north-korean-leader-urges-increased-013715378.html)
+- May 07 - [Trump plans to announce the US will call the Persian Gulf the Arabian Gulf, officials tell AP](https://www.yahoo.com/news/trump-plans-announce-us-call-011252613.html)
 - May 06 - [Canada's Carney becomes the latest foreign leader to get the Trump treatment in the Oval Office](https://www.yahoo.com/news/canadas-carney-becomes-latest-foreign-222217298.html)
-- May 06 - [Nvidia CEO explains 2 ways AI will boost the global economy](https://finance.yahoo.com/video/nvidia-ceo-explains-2-ways-220144025.html)
-- May 06 - [Smokey Robinson accused by former housekeepers of sexual assault and rape](https://www.yahoo.com/news/smokey-robinson-accused-former-housekeepers-214752027.html)
 - May 06 - [A man spent 45 days in jail, accused of trying to abduct a child at Walmart. A judge granted a bond after lawyer shows video](https://www.yahoo.com/news/man-spent-45-days-jail-201248022.html)
+- May 06 - [Fact check: Trump claimed the US doesn’t do ‘much business with Canada.’ Canada is the world’s top buyer of US exports](https://www.yahoo.com/news/fact-check-trump-claimed-us-195239917.html)
 <!-- feed end -->
 
 ### Onstream
