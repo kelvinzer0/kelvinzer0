@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Biden's Gaza pier injured far more troops than previously known](https://www.yahoo.com/news/bidens-gaza-pier-injured-far-013646696.html)
-- May 07 - [Vice chair of the National Transportation Safety Board is unexpectedly removed from position](https://www.yahoo.com/news/trump-administration-abruptly-removes-vice-011139983.html)
-- May 06 - [Canada's Carney becomes the latest foreign leader to get the Trump treatment in the Oval Office](https://www.yahoo.com/news/canadas-carney-becomes-latest-foreign-222217298.html)
-- May 06 - [NASCAR driver signing autographs Wednesday at area candle store](https://www.yahoo.com/news/nascar-driver-signing-autographs-wednesday-212213581.html)
-- May 06 - [A man spent 45 days in jail, accused of trying to abduct a child at Walmart. A judge granted a bond after lawyer shows video](https://www.yahoo.com/news/man-spent-45-days-jail-201248022.html)
+- May 07 - [Downtown Kansas City business owners issuing a warning: ‘This isn’t a political issue—it’s a safety issue’](https://www.yahoo.com/news/downtown-kansas-city-business-owners-021100610.html)
+- May 07 - [Tesla launches cheaper Model Y vehicle in the US](https://finance.yahoo.com/news/tesla-launches-cheaper-model-y-011908102.html)
+- May 07 - [Trump plans to announce the US will call the Persian Gulf the Arabian Gulf, officials tell AP](https://www.yahoo.com/news/trump-plans-announce-us-call-011252613.html)
+- May 06 - [Gilbert Arenas opens up about son Alijah's Cybertruck crash, says 5-star recruit was put in coma due to smoke](https://sports.yahoo.com/nba/breaking-news/article/gilbert-arenas-opens-up-about-son-alijahs-cybertruck-crash-says-5-star-recruit-was-put-in-coma-due-to-smoke-234818174.html)
+- May 06 - [India Strikes, Pakistan Responds, Claims Of Aircraft Losses Mount (Updated)](https://www.yahoo.com/news/india-strikes-pakistan-responds-claims-224945050.html)
 <!-- feed end -->
 
 ### Onstream
