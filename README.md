@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Why India attacked Pakistan, its neighbor and nuclear rival](https://www.yahoo.com/news/why-india-attacked-pakistan-neighbor-130318576.html)
-- May 07 - [Second U.S. fighter jet falls off USS Harry S. Truman aircraft carrier](https://www.yahoo.com/news/second-u-fighter-jet-falls-123320279.html)
+- May 07 - [Husband of British woman killed in France speaks out over wife’s death](https://www.yahoo.com/news/husband-british-woman-killed-france-131439253.html)
+- May 07 - [Mark Cuban Tells Americans To Stock Up on Consumables as Trump’s Tariffs Hit — Here’s What To Buy](https://finance.yahoo.com/news/mark-cuban-tells-americans-stock-110120266.html)
 - May 07 - [People Asked Male Gynecologists To Honestly Answer Questions About Their Job, And It's Way More Wholesome Than I Thought It Would Be](https://www.yahoo.com/lifestyle/people-asked-male-gynecologists-honestly-113104207.html)
-- May 07 - [Report exposes $28 trillion in damage tied to five powerful companies: 'The veil of plausible deniability doesn't exist anymore'](https://www.yahoo.com/news/report-exposes-28-trillion-damage-101541743.html)
+- May 07 - [New report reveals potential nightmare scenario for over 300,000 US residents: 'It's not some nebulous impact'](https://www.yahoo.com/news/report-reveals-potential-nightmare-scenario-111554485.html)
 - May 07 - [Army secretary says US can't keep pumping money into expensive weapons that can be taken out by an $800 Russian drone](https://www.yahoo.com/news/army-secretary-says-us-cant-095102766.html)
 <!-- feed end -->
 
