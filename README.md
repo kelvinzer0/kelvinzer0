@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Biden's Gaza pier injured far more troops than previously known](https://www.yahoo.com/news/bidens-gaza-pier-injured-far-013646696.html)
 - May 07 - [Vice chair of the National Transportation Safety Board is unexpectedly removed from position](https://www.yahoo.com/news/trump-administration-abruptly-removes-vice-011139983.html)
-- May 06 - [Gilbert Arenas opens up about son Alijah's Cybertruck crash, says 5-star recruit was put in coma due to smoke](https://sports.yahoo.com/nba/breaking-news/article/gilbert-arenas-opens-up-about-son-alijahs-cybertruck-crash-says-5-star-recruit-was-put-in-coma-due-to-smoke-234818174.html)
 - May 06 - [Canada's Carney becomes the latest foreign leader to get the Trump treatment in the Oval Office](https://www.yahoo.com/news/canadas-carney-becomes-latest-foreign-222217298.html)
-- May 06 - [Fact check: Trump claimed the US doesn’t do ‘much business with Canada.’ Canada is the world’s top buyer of US exports](https://www.yahoo.com/news/fact-check-trump-claimed-us-195239917.html)
-- May 06 - [Arrest made for driver accused of ‘intentionally’ hitting Hwy 26 motorcyclist](https://www.yahoo.com/news/arrest-made-driver-accused-intentionally-185308301.html)
+- May 06 - [NASCAR driver signing autographs Wednesday at area candle store](https://www.yahoo.com/news/nascar-driver-signing-autographs-wednesday-212213581.html)
+- May 06 - [A man spent 45 days in jail, accused of trying to abduct a child at Walmart. A judge granted a bond after lawyer shows video](https://www.yahoo.com/news/man-spent-45-days-jail-201248022.html)
 <!-- feed end -->
 
 ### Onstream
