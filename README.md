@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Powell on meeting with Trump: 'I've never asked for a meeting with any president, and I never will'](https://finance.yahoo.com/news/powell-on-meeting-with-trump-ive-never-asked-for-a-meeting-with-any-president-and-i-never-will-201905855.html)
+- May 07 - [The election director in North Carolina, a key swing state, is ousted after a Republican power play](https://www.yahoo.com/news/election-director-north-carolina-key-201735382.html)
 - May 07 - [Black smoke billows from Sistine Chapel after first conclave vote](https://www.yahoo.com/news/black-smoke-billows-sistine-chapel-194548422.html)
-- May 07 - [UnitedHealth sued by shareholders over its reaction to backlash from executive's killing](https://finance.yahoo.com/news/unitedhealth-sued-shareholders-over-reaction-193851486.html)
-- May 07 - [Ex-Memphis police officers in Tyre Nichols case found not guilty by out-of-town jury](https://www.yahoo.com/news/ex-memphis-police-officers-tyre-190952384.html)
-- May 07 - [Surprising Fed decision sends markets surging](https://finance.yahoo.com/news/surprising-fed-decision-sends-markets-172356076.html)
-- May 07 - [Uber CEO says his employees can go elsewhere if they don't like his RTO changes, and it's the latest example of management standing its ground](https://finance.yahoo.com/news/uber-ceo-says-employees-elsewhere-162242026.html)
+- May 07 - ['Miscarriage of justice.' Ex-Memphis police officers in Tyre Nichols case found not guilty](https://www.yahoo.com/news/ex-memphis-police-officers-tyre-190952384.html)
+- May 07 - [Southwest Airlines Makes Exciting Announcement](https://finance.yahoo.com/news/southwest-airlines-makes-exciting-announcement-180531308.html)
 <!-- feed end -->
 
 ### Onstream
