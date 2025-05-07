@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [World Central Kitchen halts work in Gaza as supplies run out](https://www.yahoo.com/news/world-central-kitchen-halts-gaza-182525216.html)
-- May 07 - [Senate Democrat requests probe into FBI Director Patel's use of government plane](https://www.yahoo.com/news/senate-democrat-requests-probe-fbi-180545583.html)
-- May 07 - [Musk demoted, Zuckerberg loses billions: Collapse for MAGA-tech alliance (Ari x Facebook co-founder)](https://www.yahoo.com/news/musk-demoted-zuckerberg-loses-billions-165453353.html)
-- May 07 - [Uber CEO says his employees can go elsewhere if they don't like his changes, and it's the latest example of management standing their ground](https://finance.yahoo.com/news/uber-ceo-says-employees-elsewhere-162242026.html)
-- May 07 - [Supercomputer Names Exact Year Life on Earth Will End](https://www.yahoo.com/news/supercomputer-names-exact-life-earth-161633700.html)
+- May 07 - [Black smoke billows from Sistine Chapel after first conclave vote](https://www.yahoo.com/news/black-smoke-billows-sistine-chapel-194548422.html)
+- May 07 - [UnitedHealth sued by shareholders over its reaction to backlash from executive's killing](https://finance.yahoo.com/news/unitedhealth-sued-shareholders-over-reaction-193851486.html)
+- May 07 - [Ex-Memphis police officers in Tyre Nichols case found not guilty by out-of-town jury](https://www.yahoo.com/news/ex-memphis-police-officers-tyre-190952384.html)
+- May 07 - [Surprising Fed decision sends markets surging](https://finance.yahoo.com/news/surprising-fed-decision-sends-markets-172356076.html)
+- May 07 - [Uber CEO says his employees can go elsewhere if they don't like his RTO changes, and it's the latest example of management standing its ground](https://finance.yahoo.com/news/uber-ceo-says-employees-elsewhere-162242026.html)
 <!-- feed end -->
 
 ### Onstream
