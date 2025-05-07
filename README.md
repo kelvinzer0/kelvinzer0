@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Chris Cuomo Shreds 'Punk-Ass Move' From GOP Senator That Blew Up His Show](https://www.yahoo.com/news/chris-cuomo-shreds-punk-ass-104358699.html)
-- May 07 - [Non-Americans Are Talking About These Major Current Events That Are Barely Making Headlines In The US, And It's Eye-Opening To See What We're Missing](https://www.yahoo.com/news/non-americans-talking-major-current-103104605.html)
+- May 07 - [Disney Plans to Open New Theme Park in Abu Dhabi](https://www.yahoo.com/entertainment/articles/disney-plans-open-theme-park-122402566.html)
+- May 07 - [Army secretary says US can't keep pumping money into expensive weapons that can be taken out by an $800 Russian drone](https://www.yahoo.com/news/army-secretary-says-us-cant-095102766.html)
 - May 07 - [Two Belgian teenagers found with 5,000 ants in Kenya given $7,700 fine or 1-year prison sentence](https://www.yahoo.com/news/two-belgian-teenagers-found-5-081632556.html)
+- May 07 - [George W. Bush Plans to Brutally Snub Melania Trump’s White House Event](https://www.yahoo.com/news/george-w-bush-plans-brutally-032231051.html)
 - May 07 - ["His Liver Was SCREAMING For Help": Doctors Are Revealing The Biggest Medical Mysteries They've Ever Solved, And These Are Straight Out Of A TV Show](https://www.yahoo.com/lifestyle/liver-screaming-help-doctors-revealing-031602720.html)
-- May 07 - [Downtown Kansas City business owners issuing a warning: ‘This isn’t a political issue—it’s a safety issue’](https://www.yahoo.com/news/downtown-kansas-city-business-owners-021100610.html)
 <!-- feed end -->
 
 ### Onstream
