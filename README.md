@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [An 8-year-old bought nearly 70,000 lollipops online. Here's how mom reacted.](https://www.yahoo.com/lifestyle/8-old-bought-nearly-70-161243038.html)
-- May 07 - [Milwaukee woman arrested on suspicion of stalking, threatening Waupun Correctional Institution employees](https://www.yahoo.com/news/milwaukee-woman-arrested-suspicion-stalking-153712847.html)
-- May 07 - [Vance says Russia ‘asking for too much’ to end war with Ukraine](https://www.yahoo.com/news/vance-says-russia-asking-too-153201911.html)
-- May 07 - [Moderna study shows immune response in older adults for a combo flu and COVID-19 shot](https://www.yahoo.com/news/moderna-study-shows-immune-response-150013729.html)
+- May 07 - [Apple exploring adding AI search to Safari. Alphabet stock drops.](https://finance.yahoo.com/video/apple-exploring-adding-ai-search-170653515.html)
+- May 07 - [Google stock sinks on report Apple plans to integrate AI search into Safari browser](https://finance.yahoo.com/news/google-stock-sinks-on-report-apple-plans-to-integrate-ai-search-into-safari-browser-155545131.html)
 - May 07 - [A 20-cent 'wonder drug' is being studied as a colon cancer-stopping supplement, and it looks promising](https://www.yahoo.com/lifestyle/20-cent-wonder-drug-being-145206015.html)
+- May 07 - [Archaeologists Were Searching For a Lost Sanctuary—and Re-Discovered a Treasure Trove of Ancient Statues](https://www.yahoo.com/news/archaeologists-were-searching-lost-sanctuary-133000985.html)
+- May 07 - [18 Major Global Events That American Media Is Ignoring Right Now, And Why They Actually Matter To Us](https://www.yahoo.com/news/non-americans-talking-major-current-103104605.html)
 <!-- feed end -->
 
 ### Onstream
