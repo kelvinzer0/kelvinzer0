@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [India Launches Military Strikes Against Pakistan](https://finance.yahoo.com/video/india-launches-military-strikes-against-091200753.html)
+- May 07 - [Chris Cuomo Shreds 'Punk-Ass Move' From GOP Senator That Blew Up His Show](https://www.yahoo.com/news/chris-cuomo-shreds-punk-ass-104358699.html)
+- May 07 - [Non-Americans Are Talking About These Major Current Events That Are Barely Making Headlines In The US, And It's Eye-Opening To See What We're Missing](https://www.yahoo.com/news/non-americans-talking-major-current-103104605.html)
 - May 07 - [Two Belgian teenagers found with 5,000 ants in Kenya given $7,700 fine or 1-year prison sentence](https://www.yahoo.com/news/two-belgian-teenagers-found-5-081632556.html)
-- May 07 - [Vietnam's shipments from China, to US reach record high amid trade fraud crackdown](https://finance.yahoo.com/news/vietnams-shipments-china-us-reach-075350173.html)
-- May 07 - [Hard drive found at suspect’s factory ‘contains evidence Madeleine McCann is dead’](https://www.yahoo.com/news/hard-drive-found-suspect-factory-052535347.html)
-- May 07 - [Trump plans to announce that the US will call the Persian Gulf the Arabian Gulf, officials say](https://www.yahoo.com/news/trump-plans-announce-us-call-011252613.html)
+- May 07 - ["His Liver Was SCREAMING For Help": Doctors Are Revealing The Biggest Medical Mysteries They've Ever Solved, And These Are Straight Out Of A TV Show](https://www.yahoo.com/lifestyle/liver-screaming-help-doctors-revealing-031602720.html)
+- May 07 - [Downtown Kansas City business owners issuing a warning: ‘This isn’t a political issue—it’s a safety issue’](https://www.yahoo.com/news/downtown-kansas-city-business-owners-021100610.html)
 <!-- feed end -->
 
 ### Onstream
