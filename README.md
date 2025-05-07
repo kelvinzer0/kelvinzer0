@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Why ExxonMobil Stock Fell 11.2% in April, But Remains a Buy](https://finance.yahoo.com/news/why-exxonmobil-stock-fell-11-174126129.html)
-- May 07 - [Apple exploring adding AI search to Safari. Alphabet stock drops.](https://finance.yahoo.com/video/apple-exploring-adding-ai-search-170653515.html)
+- May 07 - [World Central Kitchen halts work in Gaza as supplies run out](https://www.yahoo.com/news/world-central-kitchen-halts-gaza-182525216.html)
+- May 07 - [Senate Democrat requests probe into FBI Director Patel's use of government plane](https://www.yahoo.com/news/senate-democrat-requests-probe-fbi-180545583.html)
+- May 07 - [Musk demoted, Zuckerberg loses billions: Collapse for MAGA-tech alliance (Ari x Facebook co-founder)](https://www.yahoo.com/news/musk-demoted-zuckerberg-loses-billions-165453353.html)
 - May 07 - [Uber CEO says his employees can go elsewhere if they don't like his changes, and it's the latest example of management standing their ground](https://finance.yahoo.com/news/uber-ceo-says-employees-elsewhere-162242026.html)
-- May 07 - [Moderna study shows immune response in older adults for a combo flu and COVID-19 shot](https://www.yahoo.com/news/moderna-study-shows-immune-response-150013729.html)
-- May 07 - [A 20-cent 'wonder drug' is being studied as a colon cancer-stopping supplement, and it looks promising](https://www.yahoo.com/lifestyle/20-cent-wonder-drug-being-145206015.html)
+- May 07 - [Supercomputer Names Exact Year Life on Earth Will End](https://www.yahoo.com/news/supercomputer-names-exact-life-earth-161633700.html)
 <!-- feed end -->
 
 ### Onstream
