@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Expect BOE to Reduce Its Inflation Outlook, Skarica Says](https://finance.yahoo.com/video/expect-boe-reduce-inflation-outlook-081120800.html)
-- May 08 - [Sean 'Diddy' Combs Prosecutors Say Key Witness May Not Appear](https://www.yahoo.com/news/sean-diddy-combs-prosecutors-key-072725805.html)
-- May 08 - [How Pakistan’s military stacks up against India’s](https://www.yahoo.com/news/pakistan-military-stacks-against-india-153037113.html)
-- May 08 - [India says it targeted air defense systems in several locations in Pakistan](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
-- May 07 - [6 "Bad" Foods You Should Be Eating for Better Gut Health, According to Dietitians](https://www.yahoo.com/lifestyle/6-bad-foods-eating-better-222900572.html)
+- May 08 - [Workday gets contract from US agency behind DOGE's staff cuts without competitive tender](https://finance.yahoo.com/news/workday-gets-contract-us-agency-100932727.html)
+- May 08 - [Bitcoin price nears $100k amid US-UK trade deal optimism](https://uk.finance.yahoo.com/news/bitcoin-price-us-uk-trade-deal-crypto-092251533.html)
+- May 08 - [Trade war set to slash China's steel exports, aggravating oversupply at home](https://finance.yahoo.com/news/trade-war-set-slash-chinas-064444503.html)
+- May 08 - [India fires attack drones into Pakistan and several are shot down, Pakistani military says](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
+- May 08 - [Sen. John Fetterman raises alarms with outburst at meeting with union officials, AP sources say](https://www.yahoo.com/news/sen-john-fetterman-raises-alarms-021337401.html)
 <!-- feed end -->
 
 ### Onstream
