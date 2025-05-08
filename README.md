@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Bitcoin approaches $100K mark: Chart of the Day](https://finance.yahoo.com/video/bitcoin-approaches-100k-mark-chart-141231259.html)
-- May 08 - [He was killed in a road rage shooting. AI allowed him to deliver his own victim impact statement](https://www.yahoo.com/news/killed-road-rage-shooting-ai-135518446.html)
+- May 08 - [Trump is weighing whether to release audio of Biden’s interview with prosecutors, where his apparent memory issues were on display](https://www.yahoo.com/news/trump-weighing-whether-release-audio-141925939.html)
+- May 08 - [Trump’s Assault on Veterans Is Already Taking a Toll](https://www.yahoo.com/news/trump-assault-veterans-already-taking-140000544.html)
+- May 08 - [Bill Gates on why he's decided to give $200 billion away by 2045](https://www.yahoo.com/news/bill-gates-why-hes-decided-135836757.html)
 - May 08 - [India and Pakistan don’t fight wars like other countries. Here’s why](https://www.yahoo.com/news/india-pakistan-don-t-fight-130505795.html)
-- May 08 - [Israel launches airstrikes in southern Lebanon despite ceasefire](https://www.yahoo.com/news/israel-launches-airstrikes-southern-lebanon-124031235.html)
-- May 08 - [‘Grit’ and relentless perseverance can take a toll on brain health − particularly for people facing social stresses like racism](https://www.yahoo.com/lifestyle/grit-relentless-perseverance-toll-brain-123352585.html)
+- May 08 - [Archaeologists Found a Tooth and Bones That Challenge Assumptions About Christianity](https://www.yahoo.com/news/archaeologists-found-tooth-bones-challenge-120000854.html)
 <!-- feed end -->
 
 ### Onstream
