@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 08 - [Expect BOE to Reduce Its Inflation Outlook, Skarica Says](https://finance.yahoo.com/video/expect-boe-reduce-inflation-outlook-081120800.html)
-- May 08 - [Palestinian children in East Jerusalem could lose their schools as Israeli-ordered closures loom](https://www.yahoo.com/news/palestinian-children-east-jerusalem-could-075704996.html)
-- May 08 - [Taiwan marks 80th anniversary of Victory in Europe Day by highlighting threats from China](https://www.yahoo.com/news/taiwan-marks-80th-anniversary-victory-073410830.html)
+- May 08 - [Sean 'Diddy' Combs Prosecutors Say Key Witness May Not Appear](https://www.yahoo.com/news/sean-diddy-combs-prosecutors-key-072725805.html)
 - May 08 - [How Pakistan’s military stacks up against India’s](https://www.yahoo.com/news/pakistan-military-stacks-against-india-153037113.html)
-- May 08 - [Pakistan says it shot down 12 Indian drones and 1 attacked military target](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
+- May 08 - [India says it targeted air defense systems in several locations in Pakistan](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
+- May 07 - [6 "Bad" Foods You Should Be Eating for Better Gut Health, According to Dietitians](https://www.yahoo.com/lifestyle/6-bad-foods-eating-better-222900572.html)
 <!-- feed end -->
 
 ### Onstream
