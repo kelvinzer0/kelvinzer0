@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Workday gets contract from US agency behind DOGE's staff cuts without competitive tender](https://finance.yahoo.com/news/workday-gets-contract-us-agency-100932727.html)
-- May 08 - [Bitcoin price nears $100k amid US-UK trade deal optimism](https://uk.finance.yahoo.com/news/bitcoin-price-us-uk-trade-deal-crypto-092251533.html)
-- May 08 - [Trade war set to slash China's steel exports, aggravating oversupply at home](https://finance.yahoo.com/news/trade-war-set-slash-chinas-064444503.html)
-- May 08 - [India fires attack drones into Pakistan and several are shot down, Pakistani military says](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
+- May 08 - [Black smoke on day two of conclave shows no new pope elected](https://www.yahoo.com/news/black-smoke-day-two-conclave-103000923.html)
+- May 08 - [How Pakistan’s military stacks up against India’s](https://www.yahoo.com/news/pakistan-military-stacks-against-india-153037113.html)
+- May 08 - [India fires attack drones into Pakistan, wounding soldiers, Pakistani military says](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
 - May 08 - [Sen. John Fetterman raises alarms with outburst at meeting with union officials, AP sources say](https://www.yahoo.com/news/sen-john-fetterman-raises-alarms-021337401.html)
+- May 07 - [Fact Check: Story about Peyton Manning leaving ritzy gala in tuxedo to comfort crying boy named Dylan is fiction](https://www.yahoo.com/entertainment/articles/fact-check-story-peyton-manning-215100698.html)
 <!-- feed end -->
 
 ### Onstream
