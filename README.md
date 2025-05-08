@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [At least 78 people detained by NYPD at Columbia University](https://www.yahoo.com/news/least-78-people-detained-nypd-021906288.html)
+- May 08 - [At least 78 people detained by NYPD at Columbia University](https://www.yahoo.com/news/least-78-people-detained-nypd-004132596.html)
 - May 07 - [Scientists Say That Something Very Weird Is Going on With the Universe](https://www.yahoo.com/news/scientists-something-very-weird-going-212922629.html)
 - May 07 - [This Nut May Lower Cholesterol and Boost Heart Health, Study Finds](https://www.yahoo.com/lifestyle/nut-may-lower-cholesterol-boost-212226473.html)
-- May 07 - [DOGE committee goes off the rails after Democrats suggest Marjorie Taylor Greene engaged in insider trading](https://www.yahoo.com/news/doge-committee-goes-off-rails-211043031.html)
-- May 07 - [New report shows NYC helicopter breaking apart in midair before crash that killed 6](https://www.yahoo.com/news/report-shows-nyc-helicopter-breaking-202158529.html)
+- May 07 - [Tourist helicopter suddenly broke apart and crashed into the Hudson River, NTSB preliminary report finds](https://www.yahoo.com/news/tourist-helicopter-suddenly-broke-apart-204106358.html)
+- May 07 - [Powell on meeting with Trump: 'I've never asked for a meeting with any president, and I never will'](https://finance.yahoo.com/news/powell-on-meeting-with-trump-ive-never-asked-for-a-meeting-with-any-president-and-i-never-will-201905855.html)
 <!-- feed end -->
 
 ### Onstream
