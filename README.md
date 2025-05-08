@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Naga Munchetty criticises medical misogyny after suffering 'extreme pain'](https://www.yahoo.com/lifestyle/naga-munchetty-medical-misogyny-lorraine-interview-114215853.html)
-- May 08 - [Pro-Palestinian protesters arrested at Columbia University](https://www.yahoo.com/news/pro-palestinian-protesters-arrested-columbia-112849946.html)
-- May 08 - [Trump tariffs: One thing investors need to watch for](https://finance.yahoo.com/video/trump-tariffs-one-thing-investors-110057176.html)
-- May 08 - [Scientists raise concern as eerie phenomenon spreads across US coastlines: 'We're about 50 years behind'](https://www.yahoo.com/news/scientists-raise-concern-eerie-phenomenon-103051617.html)
-- May 08 - [Trump just declared May 8 a national holiday. What’s open and closed?](https://www.yahoo.com/news/trump-just-declared-may-8-100000051.html)
+- May 08 - [India and Pakistan don’t fight wars like other countries. Here’s why](https://www.yahoo.com/news/india-pakistan-don-t-fight-130505795.html)
+- May 08 - [Bill Gates to Shutter Foundation 20 Years and $200 Billion From Now](https://www.yahoo.com/news/bill-gates-shutter-foundation-20-130229564.html)
+- May 08 - [CAVA Group, Inc. (CAVA): Among Stocks with Insanely High PE Ratios Insiders Are Selling](https://finance.yahoo.com/news/cava-group-inc-cava-among-124654154.html)
+- May 08 - [Bill Gates pledges his remaining fortune to the Gates Foundation, which will close in 20 years](https://www.yahoo.com/news/bill-gates-pledges-remaining-fortune-120342751.html)
+- May 08 - [Archaeologists Found a Tooth and Bones That Challenge Assumptions About Christianity](https://www.yahoo.com/news/archaeologists-found-tooth-bones-challenge-120000854.html)
 <!-- feed end -->
 
 ### Onstream
