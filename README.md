@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 08 - [A woman donated her brain so scientists could study a pioneering treatment. A laboratory accidentally threw it out](https://www.yahoo.com/news/woman-donated-her-brain-scientists-202009325.html)
+- May 08 - [Grandmother in U.S. without documentation faces deportation after wrong turn in San Diego](https://www.yahoo.com/news/undocumented-grandmother-faces-deportation-wrong-190840026.html)
 - May 08 - [U.S. Cardinal Robert Prevost becomes Pope Leo XIV. Here's what he's said about LGBTQ+ people](https://www.yahoo.com/news/breaking-pope-elected-white-smoke-182545665.html)
-- May 08 - [An underwater volcano off the coast of Oregon may be about to erupt](https://www.yahoo.com/news/underwater-volcano-off-coast-oregon-181230783.html)
-- May 08 - [Trump urged Speaker Johnson to raise top tax rate, sources say](https://www.yahoo.com/news/trump-urged-speaker-johnson-raise-175235463.html)
-- May 08 - [Joe Biden awkwardly corrects The View hosts about wife Jill’s religion](https://www.yahoo.com/news/joe-biden-awkwardly-corrects-view-174105918.html)
-- May 08 - [Prevost, first U.S. pope, supported Francis and shunned spotlight](https://www.yahoo.com/news/prevost-first-u-pope-supported-173518084.html)
+- May 08 - [Trump urged US House Speaker Johnson to raise top tax rate, sources say](https://www.yahoo.com/news/trump-urged-speaker-johnson-raise-175235463.html)
+- May 08 - [Elite athletes curb water intake after 4 p.m. — a top nutritionist explains why you should consider it too](https://www.yahoo.com/lifestyle/elite-athletes-curb-water-intake-175108726.html)
 <!-- feed end -->
 
 ### Onstream
