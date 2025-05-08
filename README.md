@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [At least 78 people detained by NYPD at Columbia University](https://www.yahoo.com/news/least-78-people-detained-nypd-004132596.html)
+- May 08 - [Sen. John Fetterman raises alarms with outburst at meeting with union officials, AP sources say](https://www.yahoo.com/news/sen-john-fetterman-raises-alarms-021337401.html)
+- May 07 - ['Penny's law': NYC dog attack inspires legislation to hold owners accountable | Elizabeth Vargas Reports](https://www.yahoo.com/news/pennys-law-nyc-dog-attack-235037681.html)
+- May 07 - [Marcus Thompson resigns as JSU president. Second president to resign in 2 years. What we know](https://www.yahoo.com/news/marcus-thompson-resigns-jsu-president-225937138.html)
 - May 07 - [Scientists Say That Something Very Weird Is Going on With the Universe](https://www.yahoo.com/news/scientists-something-very-weird-going-212922629.html)
-- May 07 - [This Nut May Lower Cholesterol and Boost Heart Health, Study Finds](https://www.yahoo.com/lifestyle/nut-may-lower-cholesterol-boost-212226473.html)
-- May 07 - [Tourist helicopter suddenly broke apart and crashed into the Hudson River, NTSB preliminary report finds](https://www.yahoo.com/news/tourist-helicopter-suddenly-broke-apart-204106358.html)
 - May 07 - [Powell on meeting with Trump: 'I've never asked for a meeting with any president, and I never will'](https://finance.yahoo.com/news/powell-on-meeting-with-trump-ive-never-asked-for-a-meeting-with-any-president-and-i-never-will-201905855.html)
 <!-- feed end -->
 
