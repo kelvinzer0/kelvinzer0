@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Black smoke on day two of conclave shows no new pope elected](https://www.yahoo.com/news/black-smoke-day-two-conclave-103000923.html)
-- May 08 - [How Pakistan’s military stacks up against India’s](https://www.yahoo.com/news/pakistan-military-stacks-against-india-153037113.html)
-- May 08 - [India fires attack drones into Pakistan, wounding soldiers, Pakistani military says](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
-- May 08 - [Sen. John Fetterman raises alarms with outburst at meeting with union officials, AP sources say](https://www.yahoo.com/news/sen-john-fetterman-raises-alarms-021337401.html)
-- May 07 - [Fact Check: Story about Peyton Manning leaving ritzy gala in tuxedo to comfort crying boy named Dylan is fiction](https://www.yahoo.com/entertainment/articles/fact-check-story-peyton-manning-215100698.html)
+- May 08 - [Naga Munchetty criticises medical misogyny after suffering 'extreme pain'](https://www.yahoo.com/lifestyle/naga-munchetty-medical-misogyny-lorraine-interview-114215853.html)
+- May 08 - [Pro-Palestinian protesters arrested at Columbia University](https://www.yahoo.com/news/pro-palestinian-protesters-arrested-columbia-112849946.html)
+- May 08 - [Trump tariffs: One thing investors need to watch for](https://finance.yahoo.com/video/trump-tariffs-one-thing-investors-110057176.html)
+- May 08 - [Scientists raise concern as eerie phenomenon spreads across US coastlines: 'We're about 50 years behind'](https://www.yahoo.com/news/scientists-raise-concern-eerie-phenomenon-103051617.html)
+- May 08 - [Trump just declared May 8 a national holiday. What’s open and closed?](https://www.yahoo.com/news/trump-just-declared-may-8-100000051.html)
 <!-- feed end -->
 
 ### Onstream
