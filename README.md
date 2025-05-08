@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [New pope elected: Live updates after Conclave elects first American pope: Leo XIV](https://www.yahoo.com/news/live/new-pope-elected-live-updates-after-conclave-elects-first-american-pope-leo-xiv-163452541.html)
-- May 08 - [Upgrades ahead across the special operations helicopter fleet](https://www.yahoo.com/news/upgrades-ahead-across-special-operations-162330619.html)
-- May 08 - [Bill Gates plans to give away most of his fortune by 2045](https://www.yahoo.com/news/bill-gates-plans-away-most-161437779.html)
-- May 08 - [Starmer welcomes US-UK Trade Agreement](https://www.yahoo.com/news/starmer-welcomes-us-uk-trade-155237512.html)
-- May 08 - [Pulitzer accused of ‘desecrating the memory’ of Oct 7 victims by freed hostage](https://www.yahoo.com/news/pulitzer-accused-desecrating-memory-oct-154913104.html)
+- May 08 - [Trump welcomes new American-born pope and says he can’t wait to meet him - despite Leo XIV once blasting Vance](https://www.yahoo.com/news/trump-welcomes-american-born-pope-175228323.html)
+- May 08 - [Nancy Mace sits silently as Robert Garcia roasts her anti-trans record in House Oversight hearing](https://www.yahoo.com/news/nancy-mace-sits-silently-robert-180603213.html)
+- May 08 - [Trump urged Speaker Johnson to raise top tax rate, sources say](https://www.yahoo.com/news/trump-urged-speaker-johnson-raise-175235463.html)
+- May 08 - [White House Announces ‘Breakthrough’ UK Trade Deal](https://www.yahoo.com/news/white-house-announces-breakthrough-uk-174329231.html)
+- May 08 - [Trump asks Supreme Court to allow him to end humanitarian parole for 500,000 people from 4 countries](https://www.yahoo.com/news/trump-asks-supreme-court-allow-172424965.html)
 <!-- feed end -->
 
 ### Onstream
