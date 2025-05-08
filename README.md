@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Pope Leo XIV shared social media critical of Trump, Vance](https://www.yahoo.com/news/pope-leo-xiv-shared-social-184638261.html)
+- May 08 - [U.S. Cardinal Robert Prevost becomes Pope Leo XIV. Here's what he's said about LGBTQ+ people](https://www.yahoo.com/news/breaking-pope-elected-white-smoke-182545665.html)
 - May 08 - [An underwater volcano off the coast of Oregon may be about to erupt](https://www.yahoo.com/news/underwater-volcano-off-coast-oregon-181230783.html)
-- May 08 - [Elon Musk wants SpaceX to target Mars because 'life on Earth will be destroyed by the sun'](https://www.yahoo.com/news/elon-musk-wants-spacex-target-175850042.html)
 - May 08 - [Trump urged Speaker Johnson to raise top tax rate, sources say](https://www.yahoo.com/news/trump-urged-speaker-johnson-raise-175235463.html)
-- May 08 - [Hamilton County Prosecutor Connie Pillich to hold news conference at 3 p.m.](https://www.yahoo.com/news/hamilton-county-prosecutor-connie-pillich-175130737.html)
+- May 08 - [Joe Biden awkwardly corrects The View hosts about wife Jill’s religion](https://www.yahoo.com/news/joe-biden-awkwardly-corrects-view-174105918.html)
+- May 08 - [Prevost, first U.S. pope, supported Francis and shunned spotlight](https://www.yahoo.com/news/prevost-first-u-pope-supported-173518084.html)
 <!-- feed end -->
 
 ### Onstream
