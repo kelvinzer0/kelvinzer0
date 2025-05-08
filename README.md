@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 08 - [Bitcoin approaches $100K mark: Chart of the Day](https://finance.yahoo.com/video/bitcoin-approaches-100k-mark-chart-141231259.html)
+- May 08 - [He was killed in a road rage shooting. AI allowed him to deliver his own victim impact statement](https://www.yahoo.com/news/killed-road-rage-shooting-ai-135518446.html)
 - May 08 - [India and Pakistan don’t fight wars like other countries. Here’s why](https://www.yahoo.com/news/india-pakistan-don-t-fight-130505795.html)
-- May 08 - [Bill Gates to Shutter Foundation 20 Years and $200 Billion From Now](https://www.yahoo.com/news/bill-gates-shutter-foundation-20-130229564.html)
-- May 08 - [CAVA Group, Inc. (CAVA): Among Stocks with Insanely High PE Ratios Insiders Are Selling](https://finance.yahoo.com/news/cava-group-inc-cava-among-124654154.html)
-- May 08 - [Bill Gates pledges his remaining fortune to the Gates Foundation, which will close in 20 years](https://www.yahoo.com/news/bill-gates-pledges-remaining-fortune-120342751.html)
-- May 08 - [Archaeologists Found a Tooth and Bones That Challenge Assumptions About Christianity](https://www.yahoo.com/news/archaeologists-found-tooth-bones-challenge-120000854.html)
+- May 08 - [Israel launches airstrikes in southern Lebanon despite ceasefire](https://www.yahoo.com/news/israel-launches-airstrikes-southern-lebanon-124031235.html)
+- May 08 - [‘Grit’ and relentless perseverance can take a toll on brain health − particularly for people facing social stresses like racism](https://www.yahoo.com/lifestyle/grit-relentless-perseverance-toll-brain-123352585.html)
 <!-- feed end -->
 
 ### Onstream
