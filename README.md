@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 08 - [Starmer welcomes US-UK Trade Agreement](https://www.yahoo.com/news/starmer-welcomes-us-uk-trade-155237512.html)
 - May 08 - [Trump is weighing whether to release audio of Biden’s interview with prosecutors, where his apparent memory issues were on display](https://www.yahoo.com/news/trump-weighing-whether-release-audio-141925939.html)
-- May 08 - [Trump’s Assault on Veterans Is Already Taking a Toll](https://www.yahoo.com/news/trump-assault-veterans-already-taking-140000544.html)
-- May 08 - [Bill Gates on why he's decided to give $200 billion away by 2045](https://www.yahoo.com/news/bill-gates-why-hes-decided-135836757.html)
+- May 08 - [Mark Zuckerberg says his management style involves no 1-on-1s, few direct reports, and a 'core army' of 30 running Meta](https://finance.yahoo.com/news/mark-zuckerberg-says-management-style-133932096.html)
+- May 08 - [1 dead, 8 injured after mass casualty incident at Transmountain](https://www.yahoo.com/news/6-injured-mass-casualty-incident-131420750.html)
 - May 08 - [India and Pakistan don’t fight wars like other countries. Here’s why](https://www.yahoo.com/news/india-pakistan-don-t-fight-130505795.html)
-- May 08 - [Archaeologists Found a Tooth and Bones That Challenge Assumptions About Christianity](https://www.yahoo.com/news/archaeologists-found-tooth-bones-challenge-120000854.html)
 <!-- feed end -->
 
 ### Onstream
