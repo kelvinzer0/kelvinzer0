@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 08 - [Trump says he is naming Fox News host and former judge Jeanine Pirro as top federal prosecutor in DC](https://www.yahoo.com/news/trump-says-naming-fox-news-224702220.html)
+- May 08 - [Marriage Meltdown: China's Demographic Crisis](https://finance.yahoo.com/video/marriage-meltdown-chinas-demographic-crisis-220226876.html)
 - May 08 - [A woman donated her brain so scientists could study a pioneering treatment. A laboratory accidentally threw it out](https://www.yahoo.com/news/woman-donated-her-brain-scientists-202009325.html)
-- May 08 - [U.S. Cardinal Robert Prevost becomes Pope Leo XIV. Here's what he's said about LGBTQ+ people](https://www.yahoo.com/news/breaking-pope-elected-white-smoke-182545665.html)
-- May 08 - [Trump urged US House Speaker Johnson to raise top tax rate, sources say](https://www.yahoo.com/news/trump-urged-speaker-johnson-raise-175235463.html)
-- May 08 - [Elite athletes curb water intake after 4 p.m. — a top nutritionist explains why you should consider it too](https://www.yahoo.com/lifestyle/elite-athletes-curb-water-intake-175108726.html)
-- May 08 - [Joe Biden awkwardly corrects The View hosts about wife Jill’s religion](https://www.yahoo.com/news/joe-biden-awkwardly-corrects-view-174105918.html)
+- May 08 - [Why are flights delayed in Phoenix today? Here's what happened at Sky Harbor Airport](https://www.yahoo.com/news/why-flights-delayed-phoenix-today-185458093.html)
+- May 08 - [Chicago school board president talks cuts and uncertainty with principals: ‘You need to understand what I’m grappling with’](https://www.yahoo.com/news/chicago-school-board-president-talks-185300494.html)
 <!-- feed end -->
 
 ### Onstream
