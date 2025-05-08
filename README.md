@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 08 - [How Pakistan’s military stacks up against India’s](https://www.yahoo.com/news/pakistan-military-stacks-against-india-153037113.html)
+- May 08 - [Pakistan says it shot down 12 Indian drones and 1 attacked military target](https://www.yahoo.com/news/pakistan-shoots-down-indian-drone-050140296.html)
 - May 07 - ['Penny's law': NYC dog attack inspires legislation to hold owners accountable | Elizabeth Vargas Reports](https://www.yahoo.com/news/pennys-law-nyc-dog-attack-235037681.html)
+- May 07 - [6 "Bad" Foods You Should Be Eating for Better Gut Health, According to Dietitians](https://www.yahoo.com/lifestyle/6-bad-foods-eating-better-222900572.html)
 - May 07 - [Scientists Say That Something Very Weird Is Going on With the Universe](https://www.yahoo.com/news/scientists-something-very-weird-going-212922629.html)
-- May 07 - [This Nut May Lower Cholesterol and Boost Heart Health, Study Finds](https://www.yahoo.com/lifestyle/nut-may-lower-cholesterol-boost-212226473.html)
-- May 07 - [Powell on meeting with Trump: 'I've never asked for a meeting with any president, and I never will'](https://finance.yahoo.com/news/powell-on-meeting-with-trump-ive-never-asked-for-a-meeting-with-any-president-and-i-never-will-201905855.html)
 <!-- feed end -->
 
 ### Onstream
