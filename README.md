@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 08 - [New pope elected: Live updates after Conclave elects first American pope: Leo XIV](https://www.yahoo.com/news/live/new-pope-elected-live-updates-after-conclave-elects-first-american-pope-leo-xiv-163452541.html)
+- May 08 - [Upgrades ahead across the special operations helicopter fleet](https://www.yahoo.com/news/upgrades-ahead-across-special-operations-162330619.html)
+- May 08 - [Bill Gates plans to give away most of his fortune by 2045](https://www.yahoo.com/news/bill-gates-plans-away-most-161437779.html)
 - May 08 - [Starmer welcomes US-UK Trade Agreement](https://www.yahoo.com/news/starmer-welcomes-us-uk-trade-155237512.html)
-- May 08 - [Trump is weighing whether to release audio of Biden’s interview with prosecutors, where his apparent memory issues were on display](https://www.yahoo.com/news/trump-weighing-whether-release-audio-141925939.html)
-- May 08 - [Mark Zuckerberg says his management style involves no 1-on-1s, few direct reports, and a 'core army' of 30 running Meta](https://finance.yahoo.com/news/mark-zuckerberg-says-management-style-133932096.html)
-- May 08 - [1 dead, 8 injured after mass casualty incident at Transmountain](https://www.yahoo.com/news/6-injured-mass-casualty-incident-131420750.html)
-- May 08 - [India and Pakistan don’t fight wars like other countries. Here’s why](https://www.yahoo.com/news/india-pakistan-don-t-fight-130505795.html)
+- May 08 - [Pulitzer accused of ‘desecrating the memory’ of Oct 7 victims by freed hostage](https://www.yahoo.com/news/pulitzer-accused-desecrating-memory-oct-154913104.html)
 <!-- feed end -->
 
 ### Onstream
