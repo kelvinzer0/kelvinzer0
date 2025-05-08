@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Trump welcomes new American-born pope and says he can’t wait to meet him - despite Leo XIV once blasting Vance](https://www.yahoo.com/news/trump-welcomes-american-born-pope-175228323.html)
-- May 08 - [Nancy Mace sits silently as Robert Garcia roasts her anti-trans record in House Oversight hearing](https://www.yahoo.com/news/nancy-mace-sits-silently-robert-180603213.html)
+- May 08 - [Pope Leo XIV shared social media critical of Trump, Vance](https://www.yahoo.com/news/pope-leo-xiv-shared-social-184638261.html)
+- May 08 - [An underwater volcano off the coast of Oregon may be about to erupt](https://www.yahoo.com/news/underwater-volcano-off-coast-oregon-181230783.html)
+- May 08 - [Elon Musk wants SpaceX to target Mars because 'life on Earth will be destroyed by the sun'](https://www.yahoo.com/news/elon-musk-wants-spacex-target-175850042.html)
 - May 08 - [Trump urged Speaker Johnson to raise top tax rate, sources say](https://www.yahoo.com/news/trump-urged-speaker-johnson-raise-175235463.html)
-- May 08 - [White House Announces ‘Breakthrough’ UK Trade Deal](https://www.yahoo.com/news/white-house-announces-breakthrough-uk-174329231.html)
-- May 08 - [Trump asks Supreme Court to allow him to end humanitarian parole for 500,000 people from 4 countries](https://www.yahoo.com/news/trump-asks-supreme-court-allow-172424965.html)
+- May 08 - [Hamilton County Prosecutor Connie Pillich to hold news conference at 3 p.m.](https://www.yahoo.com/news/hamilton-county-prosecutor-connie-pillich-175130737.html)
 <!-- feed end -->
 
 ### Onstream
