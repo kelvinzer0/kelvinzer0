@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Scientists make breakthrough in fight against harmful toxins in drinking water supply: 'Boiling the water or even filtering it won't help'](https://www.yahoo.com/news/scientists-breakthrough-fight-against-harmful-110005078.html)
+- May 09 - [Village in Pakistani-controlled Kashmir assesses damage after shelling from India](https://www.yahoo.com/news/village-pakistani-controlled-kashmir-assesses-125649159.html)
 - May 09 - [Judge not waiting for transfer of Tufts University student detained by ICE to hold bail hearing](https://www.yahoo.com/news/judge-not-waiting-transfer-tufts-105126878.html)
-- May 09 - [Trump’s first trade ‘deal’ doesn’t bode well for the rest of the world](https://finance.yahoo.com/news/trump-first-trade-deal-doesn-103051389.html)
-- May 09 - [Melinda French Gates says Elon Musk should 'actually see what's going on in the world' before making decisions on US foreign aid](https://www.yahoo.com/news/melinda-french-gates-says-elon-090101688.html)
-- May 09 - [Russia parades drones it uses against Ukraine on Moscow's Red Square](https://www.yahoo.com/news/russia-parade-drones-uses-against-072446085.html)
+- May 09 - [Officials scramble to rescue more than 1,000 stranded tourists after rare event sparks emergency: 'Movement [is] nearly impossible'](https://www.yahoo.com/news/officials-scramble-rescue-more-1-104511345.html)
+- May 09 - [San Francisco man bought 1 small Costco product last April — then sold it for a $600 profit 11 months later](https://finance.yahoo.com/news/san-francisco-man-bought-1-100200339.html)
+- May 09 - [Mortgage and refinance interest rates today, May 9, 2025: Steady rates are good for home buyers](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-may-9-2025-100032738.html)
 <!-- feed end -->
 
 ### Onstream
