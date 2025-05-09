@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Albanese says election of Pope Leo XIV 'momentous day' for Catholics in Australia and around world](https://www.yahoo.com/news/albanese-says-election-pope-leo-075344207.html)
-- May 09 - [China has spent billions developing military tech. Conflict between India and Pakistan could be its first major test](https://www.yahoo.com/news/china-spent-billions-developing-military-064128900.html)
+- May 09 - [Volvo XC70 returns as plug-in hybrid SUV with 124-mile EV range](https://autos.yahoo.com/volvo-xc70-returns-plug-hybrid-084501983.html)
+- May 09 - [North Korea's Kim makes rare visit to Russian embassy as ties deepen](https://www.yahoo.com/news/north-koreas-kim-makes-rare-082656666.html)
+- May 09 - [Norwegian Cruise Line Holdings Ltd. (NCLH): Among Billionaire Quants’ Two Sigma’s Stock Picks with Huge Upside Potential](https://finance.yahoo.com/news/norwegian-cruise-line-holdings-ltd-082611593.html)
 - May 09 - [Freed Palestinian student accuses Columbia University of inciting violence](https://www.yahoo.com/news/freed-palestinian-student-accuses-columbia-040418001.html)
 - May 09 - [New Pope Leo XIV slammed JD Vance and now the internet can't stop mocking him](https://www.yahoo.com/entertainment/articles/pope-leo-xiv-slammed-jd-013010000.html)
-- May 09 - [President Trump fires Librarian of Congress Carla Hayden](https://www.yahoo.com/news/president-donald-trump-fires-librarian-011948843.html)
 <!-- feed end -->
 
 ### Onstream
