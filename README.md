@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [Exclusive-Star Health hacker says they sent death threats, bullets to India executives](https://finance.yahoo.com/news/exclusive-star-health-hacker-says-035329324.html)
 - May 09 - [New Pope Leo XIV slammed JD Vance and now the internet can't stop mocking him](https://www.yahoo.com/entertainment/articles/pope-leo-xiv-slammed-jd-013010000.html)
 - May 09 - [President Trump fires Librarian of Congress Carla Hayden](https://www.yahoo.com/news/president-donald-trump-fires-librarian-011948843.html)
 - May 09 - [Receipts: Trump's own words haunt him in court as judge goes full Shakespeare](https://www.yahoo.com/news/receipts-trumps-own-words-haunt-000324640.html)
-- May 08 - [Trump Names Fox News’ Jeanine Pirro Acting US Attorney General](https://www.yahoo.com/news/trump-names-fox-news-jeanine-231751935.html)
-- May 08 - [The Conclave Just Did the Unthinkable](https://www.yahoo.com/news/conclave-just-did-unthinkable-222428755.html)
+- May 08 - [DNA Reveals Surprising Twist About Christopher Columbus](https://www.yahoo.com/news/dna-reveals-surprising-twist-christopher-232956184.html)
 <!-- feed end -->
 
 ### Onstream
