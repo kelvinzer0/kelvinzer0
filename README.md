@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [New Pope Leo XIV slammed JD Vance and now the internet can't stop mocking him](https://www.yahoo.com/entertainment/articles/pope-leo-xiv-slammed-jd-013010000.html)
+- May 08 - [Trump Names Fox News’ Jeanine Pirro Acting US Attorney General](https://www.yahoo.com/news/trump-names-fox-news-jeanine-231751935.html)
 - May 08 - [Trump says he is naming Fox News host and former judge Jeanine Pirro as top federal prosecutor in DC](https://www.yahoo.com/news/trump-says-naming-fox-news-224702220.html)
-- May 08 - [Marriage Meltdown: China's Demographic Crisis](https://finance.yahoo.com/video/marriage-meltdown-chinas-demographic-crisis-220226876.html)
-- May 08 - [A woman donated her brain so scientists could study a pioneering treatment. A laboratory accidentally threw it out](https://www.yahoo.com/news/woman-donated-her-brain-scientists-202009325.html)
-- May 08 - [Why are flights delayed in Phoenix today? Here's what happened at Sky Harbor Airport](https://www.yahoo.com/news/why-flights-delayed-phoenix-today-185458093.html)
-- May 08 - [Chicago school board president talks cuts and uncertainty with principals: ‘You need to understand what I’m grappling with’](https://www.yahoo.com/news/chicago-school-board-president-talks-185300494.html)
+- May 08 - [Billionaire Charlie Munger Said If You Want To Add Value To A Home, Invest In Lush Landscaping —'Spend Money On Trees And You Get It Back Triple'](https://finance.yahoo.com/news/billionaire-charlie-munger-said-want-223412972.html)
+- May 08 - [I was in the room when Trump let slip the real reason behind his 11th-hour UK trade deal](https://www.yahoo.com/news/room-trump-let-slip-real-210829771.html)
 <!-- feed end -->
 
 ### Onstream
