@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [Trump's shift in tone on tariff talks eases recession fears](https://finance.yahoo.com/video/trumps-shift-tone-tariff-talks-214405173.html)
+- May 09 - [White House’s Stephen Miller: ‘We are actively looking at’ suspending habeas corpus](https://www.yahoo.com/news/maddow-blog-white-house-stephen-202953241.html)
 - May 09 - [Investigators outline final moments of plane crash that killed former college soccer star and family](https://www.yahoo.com/news/investigators-outline-final-moments-plane-202129275.html)
-- May 09 - [Trump Has Total Meltdown After MSNBC Exposes Tariffs Disaster](https://www.yahoo.com/news/trump-total-meltdown-over-msnbc-181434829.html)
-- May 09 - [Diver dies in preliminary operations to recover tech tycoon’s sunken superyacht](https://www.yahoo.com/news/diver-dies-preliminary-operations-recover-175119315.html)
-- May 09 - [Fears grow FBI head Kash Patel isn’t taking his job seriously as he skips morning briefings and frequently attends UFC fights](https://www.yahoo.com/news/fears-grow-fbi-head-kash-160018357.html)
-- May 09 - [Cardinal Prevost put his head in his hands as papacy loomed](https://finance.yahoo.com/news/cardinal-prevost-put-head-hands-165240578.html)
+- May 09 - [Trump to sign order discouraging criminal enforcement of regulatory offenses](https://www.yahoo.com/news/trump-sign-order-discouraging-criminal-195931231.html)
+- May 09 - [John Elway's Agent Jeff Sperbeck's Cause of Death Revealed After Golf Cart Accident](https://www.yahoo.com/news/john-elways-agent-jeff-sperbecks-193843815.html)
 <!-- feed end -->
 
 ### Onstream
