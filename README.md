@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Emerald Holding's (NYSE:EEX) Performance Is Even Better Than Its Earnings Suggest](https://finance.yahoo.com/news/emerald-holdings-nyse-eex-performance-104118830.html)
-- May 09 - [China has spent billions developing military tech. Conflict between India and Pakistan could be its first major test](https://www.yahoo.com/news/china-spent-billions-developing-military-064128900.html)
+- May 09 - [Scientists make breakthrough in fight against harmful toxins in drinking water supply: 'Boiling the water or even filtering it won't help'](https://www.yahoo.com/news/scientists-breakthrough-fight-against-harmful-110005078.html)
+- May 09 - [Judge not waiting for transfer of Tufts University student detained by ICE to hold bail hearing](https://www.yahoo.com/news/judge-not-waiting-transfer-tufts-105126878.html)
+- May 09 - [Trump’s first trade ‘deal’ doesn’t bode well for the rest of the world](https://finance.yahoo.com/news/trump-first-trade-deal-doesn-103051389.html)
+- May 09 - [Melinda French Gates says Elon Musk should 'actually see what's going on in the world' before making decisions on US foreign aid](https://www.yahoo.com/news/melinda-french-gates-says-elon-090101688.html)
 - May 09 - [Russia parades drones it uses against Ukraine on Moscow's Red Square](https://www.yahoo.com/news/russia-parade-drones-uses-against-072446085.html)
-- May 09 - [Your Daily Work Horoscope for May 09, 2025](https://www.yahoo.com/lifestyle/daily-horoscope-may-09-2025-070000746.html)
-- May 09 - [Freed Palestinian student accuses Columbia University of inciting violence](https://www.yahoo.com/news/freed-palestinian-student-accuses-columbia-040418001.html)
 <!-- feed end -->
 
 ### Onstream
