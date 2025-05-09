@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Swiss president hopes 'Holy Spirit' might guide US-China weekend talks in Geneva over tariffs](https://www.yahoo.com/news/swiss-president-hopes-holy-spirit-160217348.html)
-- May 09 - [Fears grow FBI head Kash Patel isn’t taking his job seriously as he skips morning briefings and frequently attends UFC fights](https://www.yahoo.com/news/fears-grow-fbi-head-kash-160018357.html)
+- May 09 - [Former president’s son implicated in safari murder of British woman](https://www.yahoo.com/news/president-son-implicated-safari-murder-160000111.html)
 - May 09 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
-- May 09 - [RFK Jr. Caught Lying About New Surgeon General Nominee](https://www.yahoo.com/news/rfk-jr-caught-lying-surgeon-142118725.html)
 - May 09 - [Social Security payments arrive a little later this May. Here's why.](https://finance.yahoo.com/news/social-security-payments-arrive-little-130611185.html)
+- May 09 - [Once-Struggling Seafood Restaurant Chains Making A Comeback](https://finance.yahoo.com/news/once-struggling-seafood-restaurant-chains-121500453.html)
+- May 09 - [Chinese Troops March as Putin and Xi Watch Victory Day Parade](https://finance.yahoo.com/video/chinese-troops-march-putin-xi-111400981.html)
 <!-- feed end -->
 
 ### Onstream
