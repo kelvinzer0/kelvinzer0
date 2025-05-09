@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Coinbase's $3B Deribit move marks 'new era' for crypto M&A](https://finance.yahoo.com/video/coinbases-3b-deribit-move-marks-180723670.html)
-- May 09 - [Fears grow FBI head Kash Patel isn’t taking his job seriously as he skips morning briefings and frequently attends UFC fights](https://www.yahoo.com/news/fears-grow-fbi-head-kash-160018357.html)
-- May 09 - [Former president’s son implicated in safari murder of British woman](https://www.yahoo.com/news/president-son-implicated-safari-murder-160000111.html)
+- May 09 - [Colorado Becomes the 30th State to Officially Allow Kei Cars](https://autos.yahoo.com/colorado-becomes-30th-state-officially-184500845.html)
+- May 09 - [Popular restaurant announces more closures despite rising sales](https://finance.yahoo.com/news/popular-restaurant-announces-more-closures-180300718.html)
+- May 09 - [Man arrested for attempted murder, assault](https://www.yahoo.com/news/man-arrested-attempted-murder-assault-171933514.html)
+- May 09 - [Torture charges issued against 4 people after man's body found in Eaton County](https://www.yahoo.com/news/torture-charges-issued-against-4-161957883.html)
 - May 09 - [Pope Leo XIV’s $199K Childhood Home Is Swiftly Taken Off Market Hours After Conclave When Owner Realized He Could ‘Make a Larger Profit’](https://www.yahoo.com/lifestyle/pope-leo-xiv-199k-childhood-152603142.html)
-- May 09 - [Social Security payments arrive a little later this May. Here's why.](https://finance.yahoo.com/news/social-security-payments-arrive-little-130611185.html)
 <!-- feed end -->
 
 ### Onstream
