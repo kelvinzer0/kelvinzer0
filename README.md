@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [US oil and gas rig count falls to lowest since January, Baker Hughes says](https://finance.yahoo.com/news/us-oil-gas-rig-count-171624276.html)
+- May 09 - [Investigators outline final moments of plane crash that killed former college soccer star and family](https://www.yahoo.com/news/investigators-outline-final-moments-plane-202129275.html)
+- May 09 - [Trump Has Total Meltdown After MSNBC Exposes Tariffs Disaster](https://www.yahoo.com/news/trump-total-meltdown-over-msnbc-181434829.html)
+- May 09 - [Diver dies in preliminary operations to recover tech tycoon’s sunken superyacht](https://www.yahoo.com/news/diver-dies-preliminary-operations-recover-175119315.html)
+- May 09 - [Fears grow FBI head Kash Patel isn’t taking his job seriously as he skips morning briefings and frequently attends UFC fights](https://www.yahoo.com/news/fears-grow-fbi-head-kash-160018357.html)
 - May 09 - [Cardinal Prevost put his head in his hands as papacy loomed](https://finance.yahoo.com/news/cardinal-prevost-put-head-hands-165240578.html)
-- May 09 - [Torture charges issued against 4 people after man's body found in Eaton County](https://www.yahoo.com/news/torture-charges-issued-against-4-161957883.html)
-- May 09 - [Slow-moving weather system targeting Florida: How much rain is in the forecast for Naples?](https://www.yahoo.com/news/slow-moving-rain-system-targeting-154840009.html)
-- May 09 - [Google inks deal to develop 1.8 GW of advanced nuclear power](https://finance.yahoo.com/news/google-inks-deal-develop-1-153104460.html)
 <!-- feed end -->
 
 ### Onstream
