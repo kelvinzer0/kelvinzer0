@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Colorado Becomes the 30th State to Officially Allow Kei Cars](https://autos.yahoo.com/colorado-becomes-30th-state-officially-184500845.html)
-- May 09 - [Popular restaurant announces more closures despite rising sales](https://finance.yahoo.com/news/popular-restaurant-announces-more-closures-180300718.html)
-- May 09 - [Man arrested for attempted murder, assault](https://www.yahoo.com/news/man-arrested-attempted-murder-assault-171933514.html)
+- May 09 - [US oil and gas rig count falls to lowest since January, Baker Hughes says](https://finance.yahoo.com/news/us-oil-gas-rig-count-171624276.html)
+- May 09 - [Cardinal Prevost put his head in his hands as papacy loomed](https://finance.yahoo.com/news/cardinal-prevost-put-head-hands-165240578.html)
 - May 09 - [Torture charges issued against 4 people after man's body found in Eaton County](https://www.yahoo.com/news/torture-charges-issued-against-4-161957883.html)
-- May 09 - [Pope Leo XIV’s $199K Childhood Home Is Swiftly Taken Off Market Hours After Conclave When Owner Realized He Could ‘Make a Larger Profit’](https://www.yahoo.com/lifestyle/pope-leo-xiv-199k-childhood-152603142.html)
+- May 09 - [Slow-moving weather system targeting Florida: How much rain is in the forecast for Naples?](https://www.yahoo.com/news/slow-moving-rain-system-targeting-154840009.html)
+- May 09 - [Google inks deal to develop 1.8 GW of advanced nuclear power](https://finance.yahoo.com/news/google-inks-deal-develop-1-153104460.html)
 <!-- feed end -->
 
 ### Onstream
