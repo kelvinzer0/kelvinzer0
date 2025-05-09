@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [This Popular International Destination Has Received an Updated Travel Advisory — Why There's 'Increased Risk'](https://www.yahoo.com/news/popular-international-destination-received-updated-045745826.html)
 - May 09 - [Freed Palestinian student accuses Columbia University of inciting violence](https://www.yahoo.com/news/freed-palestinian-student-accuses-columbia-040418001.html)
 - May 09 - [New Pope Leo XIV slammed JD Vance and now the internet can't stop mocking him](https://www.yahoo.com/entertainment/articles/pope-leo-xiv-slammed-jd-013010000.html)
 - May 09 - [President Trump fires Librarian of Congress Carla Hayden](https://www.yahoo.com/news/president-donald-trump-fires-librarian-011948843.html)
+- May 09 - [U.S. beginning to understand Russian positions, Kremlin aide says](https://www.yahoo.com/news/u-beginning-understand-russian-positions-004948173.html)
 - May 09 - [Receipts: Trump's own words haunt him in court as judge goes full Shakespeare](https://www.yahoo.com/news/receipts-trumps-own-words-haunt-000324640.html)
 <!-- feed end -->
 
