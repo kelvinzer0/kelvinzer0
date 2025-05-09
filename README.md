@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 09 - [New Pope Leo XIV slammed JD Vance and now the internet can't stop mocking him](https://www.yahoo.com/entertainment/articles/pope-leo-xiv-slammed-jd-013010000.html)
+- May 09 - [President Trump fires Librarian of Congress Carla Hayden](https://www.yahoo.com/news/president-donald-trump-fires-librarian-011948843.html)
+- May 09 - [Receipts: Trump's own words haunt him in court as judge goes full Shakespeare](https://www.yahoo.com/news/receipts-trumps-own-words-haunt-000324640.html)
 - May 08 - [Trump Names Fox News’ Jeanine Pirro Acting US Attorney General](https://www.yahoo.com/news/trump-names-fox-news-jeanine-231751935.html)
-- May 08 - [Trump says he is naming Fox News host and former judge Jeanine Pirro as top federal prosecutor in DC](https://www.yahoo.com/news/trump-says-naming-fox-news-224702220.html)
-- May 08 - [Billionaire Charlie Munger Said If You Want To Add Value To A Home, Invest In Lush Landscaping —'Spend Money On Trees And You Get It Back Triple'](https://finance.yahoo.com/news/billionaire-charlie-munger-said-want-223412972.html)
-- May 08 - [I was in the room when Trump let slip the real reason behind his 11th-hour UK trade deal](https://www.yahoo.com/news/room-trump-let-slip-real-210829771.html)
+- May 08 - [The Conclave Just Did the Unthinkable](https://www.yahoo.com/news/conclave-just-did-unthinkable-222428755.html)
 <!-- feed end -->
 
 ### Onstream
