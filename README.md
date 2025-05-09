@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [Emerald Holding's (NYSE:EEX) Performance Is Even Better Than Its Earnings Suggest](https://finance.yahoo.com/news/emerald-holdings-nyse-eex-performance-104118830.html)
 - May 09 - [China has spent billions developing military tech. Conflict between India and Pakistan could be its first major test](https://www.yahoo.com/news/china-spent-billions-developing-military-064128900.html)
 - May 09 - [Russia parades drones it uses against Ukraine on Moscow's Red Square](https://www.yahoo.com/news/russia-parade-drones-uses-against-072446085.html)
-- May 09 - [Right-Wing Pundit Torches Donald Trump’s U.K. Deal With 1 Brutal Word](https://www.yahoo.com/news/wing-pundit-torches-donald-trump-070312706.html)
+- May 09 - [Your Daily Work Horoscope for May 09, 2025](https://www.yahoo.com/lifestyle/daily-horoscope-may-09-2025-070000746.html)
 - May 09 - [Freed Palestinian student accuses Columbia University of inciting violence](https://www.yahoo.com/news/freed-palestinian-student-accuses-columbia-040418001.html)
-- May 09 - [New Pope Leo XIV slammed JD Vance and now the internet can't stop mocking him](https://www.yahoo.com/entertainment/articles/pope-leo-xiv-slammed-jd-013010000.html)
 <!-- feed end -->
 
 ### Onstream
