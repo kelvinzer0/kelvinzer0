@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Chimpanzees drum with regular rhythm when they beat on tree trunks, a form of ancient communication](https://www.yahoo.com/news/chimpanzees-drum-regular-rhythm-beat-150139925.html)
-- May 09 - [Report: UNC bans Jordon Hudson from the football facility](https://sports.yahoo.com/article/report-unc-bans-jordon-hudson-133742440.html)
-- May 09 - [‘Fed up’ crowd in Massachusetts swarms ICE agents attempting to arrest mother](https://www.yahoo.com/news/fed-crowd-massachusetts-swarms-ice-133234971.html)
-- May 09 - [Once-Struggling Seafood Restaurant Chains Making A Comeback](https://finance.yahoo.com/news/once-struggling-seafood-restaurant-chains-121500453.html)
-- May 09 - [‘I am scared to death that I’ll run out of money’: My wife and I are in our 50s and have $4.4 million. Can we retire early?](https://finance.yahoo.com/news/am-scared-death-ll-run-230700194.html)
+- May 09 - [Swiss president hopes 'Holy Spirit' might guide US-China weekend talks in Geneva over tariffs](https://www.yahoo.com/news/swiss-president-hopes-holy-spirit-160217348.html)
+- May 09 - [Fears grow FBI head Kash Patel isn’t taking his job seriously as he skips morning briefings and frequently attends UFC fights](https://www.yahoo.com/news/fears-grow-fbi-head-kash-160018357.html)
+- May 09 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
+- May 09 - [RFK Jr. Caught Lying About New Surgeon General Nominee](https://www.yahoo.com/news/rfk-jr-caught-lying-surgeon-142118725.html)
+- May 09 - [Social Security payments arrive a little later this May. Here's why.](https://finance.yahoo.com/news/social-security-payments-arrive-little-130611185.html)
 <!-- feed end -->
 
 ### Onstream
