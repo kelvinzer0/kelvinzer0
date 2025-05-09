@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Volvo XC70 returns as plug-in hybrid SUV with 124-mile EV range](https://autos.yahoo.com/volvo-xc70-returns-plug-hybrid-084501983.html)
-- May 09 - [North Korea's Kim makes rare visit to Russian embassy as ties deepen](https://www.yahoo.com/news/north-koreas-kim-makes-rare-082656666.html)
-- May 09 - [Norwegian Cruise Line Holdings Ltd. (NCLH): Among Billionaire Quants’ Two Sigma’s Stock Picks with Huge Upside Potential](https://finance.yahoo.com/news/norwegian-cruise-line-holdings-ltd-082611593.html)
+- May 09 - [China has spent billions developing military tech. Conflict between India and Pakistan could be its first major test](https://www.yahoo.com/news/china-spent-billions-developing-military-064128900.html)
+- May 09 - [Russia parades drones it uses against Ukraine on Moscow's Red Square](https://www.yahoo.com/news/russia-parade-drones-uses-against-072446085.html)
+- May 09 - [Right-Wing Pundit Torches Donald Trump’s U.K. Deal With 1 Brutal Word](https://www.yahoo.com/news/wing-pundit-torches-donald-trump-070312706.html)
 - May 09 - [Freed Palestinian student accuses Columbia University of inciting violence](https://www.yahoo.com/news/freed-palestinian-student-accuses-columbia-040418001.html)
 - May 09 - [New Pope Leo XIV slammed JD Vance and now the internet can't stop mocking him](https://www.yahoo.com/entertainment/articles/pope-leo-xiv-slammed-jd-013010000.html)
 <!-- feed end -->
