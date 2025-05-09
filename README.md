@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [Roads remain closed, cleanup underway a day after deadly semitrailer crash in West El Paso](https://www.yahoo.com/news/roads-remain-closed-cleanup-underway-134405210.html)
+- May 09 - [Former Supreme Court Justice David Souter, a Republican who became a liberal darling, dies at 85](https://www.yahoo.com/news/supreme-court-says-retired-justice-131136588.html)
+- May 09 - [Social Security payments arrive a little later this May. Here's why.](https://finance.yahoo.com/news/social-security-payments-arrive-little-130611185.html)
 - May 09 - [Village in Pakistani-controlled Kashmir assesses damage after shelling from India](https://www.yahoo.com/news/village-pakistani-controlled-kashmir-assesses-125649159.html)
-- May 09 - [Judge not waiting for transfer of Tufts University student detained by ICE to hold bail hearing](https://www.yahoo.com/news/judge-not-waiting-transfer-tufts-105126878.html)
-- May 09 - [Officials scramble to rescue more than 1,000 stranded tourists after rare event sparks emergency: 'Movement [is] nearly impossible'](https://www.yahoo.com/news/officials-scramble-rescue-more-1-104511345.html)
-- May 09 - [San Francisco man bought 1 small Costco product last April — then sold it for a $600 profit 11 months later](https://finance.yahoo.com/news/san-francisco-man-bought-1-100200339.html)
-- May 09 - [Mortgage and refinance interest rates today, May 9, 2025: Steady rates are good for home buyers](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-may-9-2025-100032738.html)
+- May 09 - [‘I am scared to death that I’ll run out of money’: My wife and I are in our 50s and have $4.4 million. Can we retire early?](https://finance.yahoo.com/news/am-scared-death-ll-run-230700194.html)
 <!-- feed end -->
 
 ### Onstream
