@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [You Could Still Lose Half Your Benefits: Social Security Reduces Overpayment Withholding Rate, Experts Warn Of Fallout](https://finance.yahoo.com/news/could-still-lose-half-benefits-160000625.html)
-- May 10 - [European Leaders Meet Zelenskiy in Kyiv](https://finance.yahoo.com/video/european-leaders-meet-zelenskiy-kyiv-132859880.html)
+- May 10 - [How this 'generational shift' impacts fitness, wellness industries](https://finance.yahoo.com/video/generational-shift-impacts-fitness-wellness-170046874.html)
+- May 10 - ['WeightWatchers set me up to fail' - Why diet industry is losing to jabs like Ozempic](https://www.yahoo.com/lifestyle/weightwatchers-set-fail-why-diet-155303296.html)
+- May 10 - [Almost Half of Tesla Owners Say Their Cars Have Been Damaged Intentionally](https://autos.yahoo.com/almost-half-tesla-owners-cars-160000740.html)
 - May 10 - [Authorities arrest over 100 people on Tennessee roads in support of Trump's deportation plan](https://www.yahoo.com/news/authorities-arrest-over-100-people-120831079.html)
-- May 10 - [US company Aimlock has been all about deadly accurate fire. Now it's also making last-resort weapons for the counter-drone fight.](https://www.yahoo.com/news/us-company-aimlock-deadly-accurate-114102435.html)
-- May 10 - [Investigators uncover hidden source of long-term community health crisis: 'There have been so many violations over the years'](https://www.yahoo.com/news/investigators-uncover-hidden-source-long-110024114.html)
+- May 10 - [Surprisingly Advanced Ancient Spear Tip Was Not Made by Modern Humans](https://www.yahoo.com/news/surprisingly-advanced-ancient-spear-tip-120041232.html)
 <!-- feed end -->
 
 ### Onstream
