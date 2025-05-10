@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [US-China tariff timeline: How we got to levies of 145%](https://finance.yahoo.com/video/us-china-tariff-timeline-got-103005303.html)
-- May 10 - [Mothers of Mexico’s disappeared hold a candle vigil in Mexico City on eve of Mother’s Day](https://www.yahoo.com/news/mothers-mexico-disappeared-hold-candle-101624817.html)
+- May 10 - [Authorities arrest over 100 people on Tennessee roads in support of Trump's deportation plan](https://www.yahoo.com/news/authorities-arrest-over-100-people-120831079.html)
+- May 10 - [Children among several killed in Israel’s attacks on Gaza amid aid blockade](https://www.yahoo.com/news/children-among-several-killed-israel-113653554.html)
 - May 10 - [The Weekend: Interest rate cuts and trade deals lift the mood](https://uk.finance.yahoo.com/news/interest-rate-cuts-trade-deals-warren-buffett-david-attenborough-100305050.html)
-- May 10 - [China Unveils Strange Device to Find Invisible Objects](https://www.yahoo.com/news/china-unveils-strange-device-invisible-100053264.html)
-- May 10 - [Meet the 14% Yield Dividend Stock That Raised Its Payout Recently](https://finance.yahoo.com/news/meet-14-yield-dividend-stock-091900618.html)
+- May 10 - [Soviet Kosmos 482 spacecraft crashes into an unknown site on Earth](https://www.yahoo.com/news/soviet-kosmos-482-spacecraft-crashes-090733311.html)
+- May 10 - [Trump is about to drop a multi-trillion bomb on the stock market](https://finance.yahoo.com/news/trump-big-beautiful-bill-threatens-070000728.html)
 <!-- feed end -->
 
 ### Onstream
