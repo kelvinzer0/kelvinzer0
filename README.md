@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Woman Spits on D.C.'s U.S. Attorney Ed Martin in Live Interview](https://www.yahoo.com/news/woman-spits-d-c-u-012313654.html)
+- May 09 - [China's Nuclear Trade War Option--How Xi Could Destroy The US Housing Market In 1 Fell Swoop](https://finance.yahoo.com/news/chinas-nuclear-trade-war-option-233857399.html)
+- May 09 - [Channel 5 reports meteorologist Mark Johnson 'no longer employed' at the station](https://www.yahoo.com/news/channel-5-reports-meteorologist-mark-224348702.html)
 - May 09 - [The WH says Trump is considering suspending habeas corpus. What would that mean?](https://www.yahoo.com/news/wh-says-trump-considering-suspending-221407447.html)
 - May 09 - [Exclusive-China buys Canadian, Australian wheat as heat hits crop, traders say](https://finance.yahoo.com/news/exclusive-china-buys-canadian-australian-214442643.html)
-- May 09 - [Price Tower, Frank Lloyd Wright’s Only Skyscraper, Is Getting a New Beginning After Months of Controversy](https://www.yahoo.com/news/price-tower-frank-lloyd-wright-134643502.html)
-- May 09 - [Investigators outline final moments of plane crash that killed former college soccer star and family](https://www.yahoo.com/news/investigators-outline-final-moments-plane-202129275.html)
-- May 09 - [Trump to sign order discouraging criminal enforcement of regulatory offenses](https://www.yahoo.com/news/trump-sign-order-discouraging-criminal-195931231.html)
 <!-- feed end -->
 
 ### Onstream
