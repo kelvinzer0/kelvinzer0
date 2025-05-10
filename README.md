@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
-- May 10 - [More Than 70 People Infected with Parasite and 16 Hospitalized After Visiting Animal Farm](https://www.yahoo.com/news/more-70-people-infected-parasite-203835211.html)
-- May 10 - [People Are Confused As Heck After This Fox News Host Tried To Continue A Segment Seconds After His Guest Fainted On-Air](https://www.yahoo.com/news/people-confused-heck-fox-news-182023813.html)
+- May 10 - [Vance called Indian prime minister to encourage ceasefire talks after receiving alarming intelligence, sources say](https://www.yahoo.com/news/vance-called-indian-prime-minister-175701567.html)
 - May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
-- May 10 - [Authorities arrest over 100 people on Tennessee roads in support of Trump's deportation plan](https://www.yahoo.com/news/authorities-arrest-over-100-people-120831079.html)
+- May 10 - [Trump is bringing white South Africans to the US as refugees, but what persecution are they facing?](https://www.yahoo.com/news/trump-bringing-white-south-africans-170244904.html)
+- May 10 - [This Chicago man did something wild when alleged squatters wouldn’t leave his home — he moved in with them](https://www.yahoo.com/news/chicago-man-did-something-wild-120700459.html)
 <!-- feed end -->
 
 ### Onstream
