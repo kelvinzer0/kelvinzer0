@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Marjorie Taylor Greene declines to challenge Jon Ossoff in Georgia Senate race](https://www.yahoo.com/news/marjorie-taylor-greene-declines-challenge-005550094.html)
 - May 10 - [Ziploc hit with class-action lawsuit for allegedly misleading claims: 'Leading consumers to believe they are … without risk'](https://www.yahoo.com/news/ziploc-hit-class-action-lawsuit-003500387.html)
-- May 09 - [China's Nuclear Trade War Option--How Xi Could Destroy The US Housing Market In 1 Fell Swoop](https://finance.yahoo.com/news/chinas-nuclear-trade-war-option-233857399.html)
-- May 09 - [India says it is committed to non-escalation if Pakistan reciprocates](https://www.yahoo.com/news/pakistans-army-spokesman-says-india-230318619.html)
-- May 09 - [Channel 5 reports meteorologist Mark Johnson 'no longer employed' at the station](https://www.yahoo.com/news/channel-5-reports-meteorologist-mark-224348702.html)
-- May 09 - [The WH says Trump is considering suspending habeas corpus. What would that mean?](https://www.yahoo.com/news/wh-says-trump-considering-suspending-221407447.html)
+- May 10 - [Pakistan minister denies nuclear body meeting after offensive launched on India](https://www.yahoo.com/news/pakistan-says-three-air-bases-002135126.html)
+- May 10 - [Man, 89, Confirmed as First Victim of Fatal Black Bear Attack in Florida History After Remains Found Inside Animal](https://www.yahoo.com/news/man-89-confirmed-first-victim-001358474.html)
+- May 10 - [Motocycle accident near Mesa Mall; Eastbound Patterson Closed](https://www.yahoo.com/news/motocycle-accident-near-mesa-mall-000242536.html)
 <!-- feed end -->
 
 ### Onstream
