@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [You Could Still Lose Half Your Benefits: Social Security Reduces Overpayment Withholding Rate, Experts Warn Of Fallout](https://finance.yahoo.com/news/could-still-lose-half-benefits-160000625.html)
 - May 10 - [European Leaders Meet Zelenskiy in Kyiv](https://finance.yahoo.com/video/european-leaders-meet-zelenskiy-kyiv-132859880.html)
 - May 10 - [Authorities arrest over 100 people on Tennessee roads in support of Trump's deportation plan](https://www.yahoo.com/news/authorities-arrest-over-100-people-120831079.html)
-- May 10 - [This Chicago man did something wild when alleged squatters wouldn’t leave his home — he moved in with them](https://www.yahoo.com/news/chicago-man-did-something-wild-120700459.html)
 - May 10 - [US company Aimlock has been all about deadly accurate fire. Now it's also making last-resort weapons for the counter-drone fight.](https://www.yahoo.com/news/us-company-aimlock-deadly-accurate-114102435.html)
-- May 10 - [Major insurer drops thousands of homeowners across high-risk region: 'There is no financial incentive'](https://www.yahoo.com/news/major-insurer-drops-thousands-homeowners-110044572.html)
+- May 10 - [Investigators uncover hidden source of long-term community health crisis: 'There have been so many violations over the years'](https://www.yahoo.com/news/investigators-uncover-hidden-source-long-110024114.html)
 <!-- feed end -->
 
 ### Onstream
