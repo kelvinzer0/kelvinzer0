@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [How Much Money You’ll Need To Supplement Your Social Security in Every State](https://finance.yahoo.com/news/much-money-ll-supplement-social-120017494.html)
+- May 10 - [European Leaders Meet Zelenskiy in Kyiv](https://finance.yahoo.com/video/european-leaders-meet-zelenskiy-kyiv-132859880.html)
 - May 10 - [Authorities arrest over 100 people on Tennessee roads in support of Trump's deportation plan](https://www.yahoo.com/news/authorities-arrest-over-100-people-120831079.html)
 - May 10 - [This Chicago man did something wild when alleged squatters wouldn’t leave his home — he moved in with them](https://www.yahoo.com/news/chicago-man-did-something-wild-120700459.html)
-- May 10 - [Surprisingly Advanced Ancient Spear Tip Was Not Made by Modern Humans](https://www.yahoo.com/news/surprisingly-advanced-ancient-spear-tip-120041232.html)
 - May 10 - [US company Aimlock has been all about deadly accurate fire. Now it's also making last-resort weapons for the counter-drone fight.](https://www.yahoo.com/news/us-company-aimlock-deadly-accurate-114102435.html)
+- May 10 - [Major insurer drops thousands of homeowners across high-risk region: 'There is no financial incentive'](https://www.yahoo.com/news/major-insurer-drops-thousands-homeowners-110044572.html)
 <!-- feed end -->
 
 ### Onstream
