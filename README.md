@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - ['A Divided Economy': McDonald's CEO Says Rich Keep Dining Out But Average Income Consumers Feeling Economic 'Anxiety'](https://finance.yahoo.com/news/divided-economy-mcdonalds-ceo-says-183000073.html)
+- May 10 - [Elon Musk's robotaxi ambitions hit with major roadblock](https://finance.yahoo.com/news/elon-musks-robotaxi-ambitions-hit-191300102.html)
 - May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
-- May 10 - [Trump is bringing white South Africans to the US as refugees, but what persecution are they facing?](https://www.yahoo.com/news/trump-bringing-white-south-africans-170244904.html)
 - May 10 - [How this 'generational shift' impacts fitness, wellness industries](https://finance.yahoo.com/video/generational-shift-impacts-fitness-wellness-170046874.html)
-- May 10 - [Tennessee earthquake: Will there be an aftershock? Check the prediction](https://www.yahoo.com/news/tennessee-earthquake-aftershock-check-prediction-143522155.html)
+- May 10 - [European Leaders Meet Zelenskiy in Kyiv](https://finance.yahoo.com/video/european-leaders-meet-zelenskiy-kyiv-132859880.html)
+- May 10 - [This Chicago man did something wild when alleged squatters wouldn’t leave his home — he moved in with them](https://www.yahoo.com/news/chicago-man-did-something-wild-120700459.html)
 <!-- feed end -->
 
 ### Onstream
