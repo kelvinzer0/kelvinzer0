@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [Elon Musk's robotaxi ambitions hit with major roadblock](https://finance.yahoo.com/news/elon-musks-robotaxi-ambitions-hit-191300102.html)
-- May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
-- May 10 - [How this 'generational shift' impacts fitness, wellness industries](https://finance.yahoo.com/video/generational-shift-impacts-fitness-wellness-170046874.html)
+- May 10 - [Vance called Indian prime minister to encourage ceasefire talks after receiving alarming intelligence, sources say](https://www.yahoo.com/news/vance-called-indian-prime-minister-175701567.html)
+- May 10 - [Dauphin Island marina hit hard by storm with boat damage and debris (photos)](https://www.yahoo.com/news/dauphin-island-marina-hit-hard-163910004.html)
 - May 10 - [European Leaders Meet Zelenskiy in Kyiv](https://finance.yahoo.com/video/european-leaders-meet-zelenskiy-kyiv-132859880.html)
+- May 10 - [Which US airlines fared worst in J.D. Power’s customer satisfaction survey?](https://www.yahoo.com/news/us-airlines-fared-worst-j-132219092.html)
 - May 10 - [This Chicago man did something wild when alleged squatters wouldn’t leave his home — he moved in with them](https://www.yahoo.com/news/chicago-man-did-something-wild-120700459.html)
 <!-- feed end -->
 
