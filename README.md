@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Economist Brad Setser Sounds Alarm On China's Hidden Trade Surplus, Suggests Billions In Capital Outflows Are Being Masked](https://finance.yahoo.com/news/economist-brad-setser-sounds-alarm-094726410.html)
+- May 10 - [1 hospitalized following Tallmadge Township shooting](https://www.yahoo.com/news/1-hospitalized-following-tallmadge-township-092658367.html)
 - May 10 - [Marjorie Taylor Greene declines to challenge Jon Ossoff in Georgia Senate race](https://www.yahoo.com/news/marjorie-taylor-greene-declines-challenge-005550094.html)
 - May 10 - [Ziploc hit with class-action lawsuit for allegedly misleading claims: 'Leading consumers to believe they are … without risk'](https://www.yahoo.com/news/ziploc-hit-class-action-lawsuit-003500387.html)
-- May 09 - [Channel 5 reports meteorologist Mark Johnson 'no longer employed' at the station](https://www.yahoo.com/news/channel-5-reports-meteorologist-mark-224348702.html)
-- May 09 - [The WH says Trump is considering suspending habeas corpus. What would that mean?](https://www.yahoo.com/news/wh-says-trump-considering-suspending-221407447.html)
-- May 09 - [Exclusive-China buys Canadian, Australian wheat as heat hits crop, traders say](https://finance.yahoo.com/news/exclusive-china-buys-canadian-australian-214442643.html)
+- May 09 - [China's Nuclear Trade War Option--How Xi Could Destroy The US Housing Market In 1 Fell Swoop](https://finance.yahoo.com/news/chinas-nuclear-trade-war-option-233857399.html)
 <!-- feed end -->
 
 ### Onstream
