@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [Pakistan says it has launched military offensive against India](https://www.yahoo.com/news/pakistan-says-three-air-bases-002135126.html)
+- May 10 - [Gunfire heard in northwest Pakistan](https://www.yahoo.com/news/gunfire-heard-northwest-pakistan-025045278.html)
+- May 10 - [Anthony Edwards Accuses Baby Mama of “Trapping” Him with Pregnancy Plan Using Ovulation Tracker](https://www.yahoo.com/entertainment/articles/anthony-edwards-accuses-baby-mama-003535595.html)
 - May 09 - [Channel 5 reports meteorologist Mark Johnson 'no longer employed' at the station](https://www.yahoo.com/news/channel-5-reports-meteorologist-mark-224348702.html)
 - May 09 - [The WH says Trump is considering suspending habeas corpus. What would that mean?](https://www.yahoo.com/news/wh-says-trump-considering-suspending-221407447.html)
 - May 09 - [Exclusive-China buys Canadian, Australian wheat as heat hits crop, traders say](https://finance.yahoo.com/news/exclusive-china-buys-canadian-australian-214442643.html)
-- May 09 - [Scientists raise concern as eerie phenomenon spreads across US coastlines: 'We're about 50 years behind'](https://www.yahoo.com/news/scientists-raise-concern-eerie-phenomenon-103051617.html)
 <!-- feed end -->
 
 ### Onstream
