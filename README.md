@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Another equipment outage impacts flights at Newark Liberty International Airport](https://www.yahoo.com/news/another-equipment-outage-impacts-flights-140235843.html)
-- May 11 - [The Computational Limit of Life May Be Much Higher Than We Thought](https://www.yahoo.com/news/computational-limit-life-may-much-140000904.html)
+- May 11 - [Trump set to depart Monday for first international trip of second term](https://www.yahoo.com/news/trump-set-depart-monday-first-160223125.html)
+- May 11 - [People who fled Pakistan-administered Kashmir return after ceasefire](https://www.yahoo.com/news/people-fled-pakistan-administered-kashmir-155414043.html)
+- May 11 - [Trump reportedly is set to accept a jet from Qatar's ruling family for possible use as Air Force One](https://www.yahoo.com/news/trump-reportedly-set-accept-jet-153517900.html)
+- May 11 - [He Was Ready To Pay $750,000 for His New House. Then the Appraisal Came In.](https://www.yahoo.com/lifestyle/ready-pay-750-000-house-140000298.html)
 - May 11 - [A Bill Ackman investing golden rule that bullish traders might be forgetting about right now](https://finance.yahoo.com/news/a-bill-ackman-investing-golden-rule-that-bullish-traders-might-be-forgetting-about-right-now-123056823.html)
-- May 11 - [Louisville woman paid $1K for truck at police auction — but when it was delivered, valuable items were missing](https://www.yahoo.com/news/louisville-woman-paid-1k-truck-114700708.html)
-- May 11 - [Scientists sound alarm over massive underwater force threatening to accelerate city collapse: 'Potentially double or triple the effects'](https://www.yahoo.com/news/scientists-sound-alarm-over-massive-103018329.html)
 <!-- feed end -->
 
 ### Onstream
