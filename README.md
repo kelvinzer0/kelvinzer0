@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 11 - [Gaza war cannot be solved by military means, says German foreign minister in Jerusalem](https://www.yahoo.com/news/gaza-war-cannot-solved-military-123316901.html)
 - May 11 - [Walmart, Deere, Alibaba, Cisco: Earnings to Watch This Week](https://finance.yahoo.com/video/walmart-deere-alibaba-cisco-earnings-120013008.html)
 - May 11 - [Louisville woman paid $1K for truck at police auction — but when it was delivered, valuable items were missing](https://www.yahoo.com/news/louisville-woman-paid-1k-truck-114700708.html)
-- May 11 - [Winch needed after Smarty the horse, 27, falls over](https://www.yahoo.com/news/winch-needed-smarty-horse-27-113733108.html)
 - May 11 - [Trump administration poised to accept 'palace in the sky' as a gift for Trump from Qatar: Sources](https://www.yahoo.com/news/trump-administration-poised-accept-palace-110200881.html)
-- May 11 - [Is General Motors (NYSE:GM) Using Too Much Debt?](https://finance.yahoo.com/news/general-motors-nyse-gm-using-110025671.html)
+- May 11 - [Scientists sound alarm over massive underwater force threatening to accelerate city collapse: 'Potentially double or triple the effects'](https://www.yahoo.com/news/scientists-sound-alarm-over-massive-103018329.html)
 <!-- feed end -->
 
 ### Onstream
