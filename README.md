@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Nashua man arrested, facing multiple child sexual abuse charges following investigation](https://www.yahoo.com/news/nashua-man-arrested-facing-multiple-025245644.html)
+- May 11 - [A split jury and a lie sent him to prison. Now he’s working to change Louisiana’s law](https://www.yahoo.com/news/split-jury-lie-sent-him-040633235.html)
 - May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
-- May 10 - [Military vehicle crashes over I-90 wall in Bellevue, WA](https://www.yahoo.com/news/military-vehicle-crashes-over-90-211921466.html)
 - May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
+- May 10 - [Record-breaking heat scorches San Diego County as cooldown looms](https://www.yahoo.com/news/record-breaking-heat-scorches-san-210224137.html)
 - May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
 <!-- feed end -->
 
