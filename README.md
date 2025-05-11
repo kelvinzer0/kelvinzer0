@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [A split jury and a lie sent him to prison. Now he’s working to change Louisiana’s law](https://www.yahoo.com/news/split-jury-lie-sent-him-040633235.html)
+- May 11 - [Japan PM Ishiba reiterates call to eliminate all tariffs with US](https://finance.yahoo.com/news/japan-pm-ishiba-reiterates-call-043612953.html)
+- May 11 - [Turkish Tufts University student back in Boston after release from Louisiana detention center](https://www.yahoo.com/news/turkish-tufts-university-student-back-025915944.html)
 - May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
 - May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
-- May 10 - [Record-breaking heat scorches San Diego County as cooldown looms](https://www.yahoo.com/news/record-breaking-heat-scorches-san-210224137.html)
-- May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
+- May 10 - [Amazon is selling an 'impressive' $1,300 laptop computer for $340 that's 'perfect for both work and entertainment'](https://tech.yahoo.com/computing/deals/articles/amazon-selling-impressive-1-300-141500278.html)
 <!-- feed end -->
 
 ### Onstream
