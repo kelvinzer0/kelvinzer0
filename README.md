@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Zepbound beats Wegovy for weight loss in first head-to-head trial of blockbuster drugs](https://www.yahoo.com/lifestyle/zepbound-beats-wegovy-weight-loss-220146433.html)
+- May 11 - [Another ground stop at Newark Airport as air traffic issues continue](https://www.yahoo.com/news/another-ground-stop-newark-airport-230035198.html)
 - May 11 - [Large Alligator Caught 'Knocking on Doors' of Homes During Mating Season](https://www.yahoo.com/entertainment/videos/large-alligator-caught-knocking-doors-201800263.html)
+- May 11 - [US suspends Mexican cattle, horse and bison imports over screwworm pest](https://www.yahoo.com/news/us-suspends-mexican-cattle-horse-195454336.html)
 - May 11 - [Investor reaction to US-China progress in trade talks](https://finance.yahoo.com/news/investor-reaction-u-china-progress-193734657.html)
-- May 11 - [Trump Administration Reaches Trade Deal With China in Geneva](https://www.yahoo.com/news/trump-administration-reaches-trade-deal-185146111.html)
-- May 11 - [Severe Thunderstorm Warning issued in northern Utah, damage expected](https://www.yahoo.com/news/severe-thunderstorm-warning-issued-northern-183828328.html)
+- May 11 - [First white South Africans board plane for US under Trump refugee plan](https://www.yahoo.com/news/first-white-south-africans-board-193327518.html)
 <!-- feed end -->
 
 ### Onstream
