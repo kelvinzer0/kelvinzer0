@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Trump set to depart Monday for first international trip of second term](https://www.yahoo.com/news/trump-set-depart-monday-first-160223125.html)
+- May 11 - [Brand-New $350 Google Pixel Watch Is on Sale for Only $60, and Buyers Say It’s 'Fantastic'](https://tech.yahoo.com/wearables/deals/articles/brand-350-google-pixel-watch-160325746.html)
 - May 11 - [People who fled Pakistan-administered Kashmir return after ceasefire](https://www.yahoo.com/news/people-fled-pakistan-administered-kashmir-155414043.html)
 - May 11 - [Trump reportedly is set to accept a jet from Qatar's ruling family for possible use as Air Force One](https://www.yahoo.com/news/trump-reportedly-set-accept-jet-153517900.html)
 - May 11 - [He Was Ready To Pay $750,000 for His New House. Then the Appraisal Came In.](https://www.yahoo.com/lifestyle/ready-pay-750-000-house-140000298.html)
