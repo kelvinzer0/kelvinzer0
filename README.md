@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Brand-New $350 Google Pixel Watch Is on Sale for Only $60, and Buyers Say It’s 'Fantastic'](https://tech.yahoo.com/wearables/deals/articles/brand-350-google-pixel-watch-160325746.html)
-- May 11 - [People who fled Pakistan-administered Kashmir return after ceasefire](https://www.yahoo.com/news/people-fled-pakistan-administered-kashmir-155414043.html)
-- May 11 - [Trump reportedly is set to accept a jet from Qatar's ruling family for possible use as Air Force One](https://www.yahoo.com/news/trump-reportedly-set-accept-jet-153517900.html)
-- May 11 - [He Was Ready To Pay $750,000 for His New House. Then the Appraisal Came In.](https://www.yahoo.com/lifestyle/ready-pay-750-000-house-140000298.html)
+- May 11 - [How 'opportunistic-value' investing can boost your portfolio](https://finance.yahoo.com/video/opportunistic-value-investing-boost-portfolio-180019625.html)
+- May 11 - [Trump will accept luxury jet from Qatar's royal family, reports say](https://www.yahoo.com/news/trump-accept-luxury-jet-qatars-172319469.html)
+- May 11 - [Video: Dogs React to Roll Call on Pup Bus](https://www.yahoo.com/lifestyle/video-dogs-react-roll-call-150000370.html)
+- May 11 - [‘People are starting to feel betrayed’: Gov. Beshear slams Trump's crushing impact on rural America](https://www.yahoo.com/news/people-starting-feel-betrayed-gov-131011660.html)
 - May 11 - [A Bill Ackman investing golden rule that bullish traders might be forgetting about right now](https://finance.yahoo.com/news/a-bill-ackman-investing-golden-rule-that-bullish-traders-might-be-forgetting-about-right-now-123056823.html)
 <!-- feed end -->
 
