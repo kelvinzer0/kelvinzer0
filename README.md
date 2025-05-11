@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 11 - [A business owner tested if customers would pay more for American-made. The results were 'sobering.'](https://finance.yahoo.com/news/business-owner-tested-customers-pay-095701130.html)
 - May 11 - [Mix-up at Phoenix gas station breaks dozens of cars — how to make companies pay for their mistakes](https://www.yahoo.com/news/mix-phoenix-gas-station-breaks-094500619.html)
 - May 11 - [I swapped my gas truck for a Chinese hybrid. The BYD Shark is great to drive, but one thing worries me.](https://autos.yahoo.com/swapped-gas-truck-chinese-hybrid-042101877.html)
-- May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
-- May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
-- May 10 - [Authorities arrest over 100 people on Tennessee roads in support of Trump's deportation plan](https://www.yahoo.com/news/authorities-arrest-over-100-people-120831079.html)
+- May 11 - [Autopsy Professionals Are Revealing The Most Bizarre Anomalies They've Seen, And Wow, The Human Body Is Truly A Wonder](https://www.yahoo.com/lifestyle/people-perform-autopsies-sharing-weirdest-001602823.html)
+- May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
 <!-- feed end -->
 
 ### Onstream
