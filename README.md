@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 11 - [People Who Perform Autopsies Are Sharing The Weirdest Anomalies They've Found, And The Human Body Is A Wild — And Terrifying — Place](https://www.yahoo.com/lifestyle/people-perform-autopsies-sharing-weirdest-001602823.html)
+- May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
 - May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
-- May 10 - [Vance called Indian prime minister to encourage ceasefire talks after receiving alarming intelligence, sources say](https://www.yahoo.com/news/vance-called-indian-prime-minister-175701567.html)
 - May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
-- May 10 - [Trump is bringing white South Africans to the US as refugees, but what persecution are they facing?](https://www.yahoo.com/news/trump-bringing-white-south-africans-170244904.html)
-- May 10 - [This Chicago man did something wild when alleged squatters wouldn’t leave his home — he moved in with them](https://www.yahoo.com/news/chicago-man-did-something-wild-120700459.html)
+- May 10 - [DOGE Is Bringing Back a Deadly Disease](https://www.yahoo.com/news/doge-bringing-back-deadly-disease-120441150.html)
 <!-- feed end -->
 
 ### Onstream
