@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [How 'opportunistic-value' investing can boost your portfolio](https://finance.yahoo.com/video/opportunistic-value-investing-boost-portfolio-180019625.html)
-- May 11 - [Trump will accept luxury jet from Qatar's royal family, reports say](https://www.yahoo.com/news/trump-accept-luxury-jet-qatars-172319469.html)
-- May 11 - [Video: Dogs React to Roll Call on Pup Bus](https://www.yahoo.com/lifestyle/video-dogs-react-roll-call-150000370.html)
-- May 11 - [‘People are starting to feel betrayed’: Gov. Beshear slams Trump's crushing impact on rural America](https://www.yahoo.com/news/people-starting-feel-betrayed-gov-131011660.html)
-- May 11 - [A Bill Ackman investing golden rule that bullish traders might be forgetting about right now](https://finance.yahoo.com/news/a-bill-ackman-investing-golden-rule-that-bullish-traders-might-be-forgetting-about-right-now-123056823.html)
+- May 11 - [‘Thunderbolts*’ Nears $300M Global As Does ‘Sinners’; ‘Minecraft’s Whole Lotta Lava Tops $900M WW & $500M Overseas – International Box Office](https://www.yahoo.com/entertainment/articles/thunderbolts-nears-300m-global-does-183911317.html)
+- May 11 - [Trump to accept luxury jet from Qatar to use as Air Force One](https://www.yahoo.com/news/trump-accept-luxury-jet-qatar-170405575.html)
+- May 11 - [Archaeologists Found a Lost Temple in the Sand That Solves a Major Historical Puzzle](https://www.yahoo.com/news/archaeologists-found-lost-temple-sand-153700750.html)
+- May 11 - [4 dead, 4 in critical condition after five-alarm Milwaukee apartment fire](https://www.yahoo.com/news/least-one-dead-milwaukee-apartment-150750824.html)
+- May 11 - [ICE arrest sparks chaos as crowd tries to intervene in Massachusetts](https://www.yahoo.com/news/ice-arrest-sparks-chaos-crowd-205209272.html)
 <!-- feed end -->
 
 ### Onstream
