@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Zelenskiy cautious after Putin proposes direct peace talks with Ukraine](https://www.yahoo.com/news/zelenskiy-cautious-putin-proposes-direct-130253034.html)
-- May 11 - [ICE arrest sparks chaos as crowd tried to intervene](https://www.yahoo.com/news/ice-arrest-sparks-chaos-crowd-205209272.html)
+- May 11 - [Another equipment outage impacts flights at Newark Liberty International Airport](https://www.yahoo.com/news/another-equipment-outage-impacts-flights-140235843.html)
+- May 11 - [The Computational Limit of Life May Be Much Higher Than We Thought](https://www.yahoo.com/news/computational-limit-life-may-much-140000904.html)
+- May 11 - [A Bill Ackman investing golden rule that bullish traders might be forgetting about right now](https://finance.yahoo.com/news/a-bill-ackman-investing-golden-rule-that-bullish-traders-might-be-forgetting-about-right-now-123056823.html)
 - May 11 - [Louisville woman paid $1K for truck at police auction — but when it was delivered, valuable items were missing](https://www.yahoo.com/news/louisville-woman-paid-1k-truck-114700708.html)
-- May 11 - [Scientists make 'rare' discovery hiding in river sand after 22 years: 'Helps to fill knowledge gaps'](https://www.yahoo.com/news/scientists-rare-discovery-hiding-river-113005325.html)
-- May 11 - [Trump administration poised to accept 'palace in the sky' as a gift for Trump from Qatar: Sources](https://www.yahoo.com/news/trump-administration-poised-accept-palace-110200881.html)
+- May 11 - [Scientists sound alarm over massive underwater force threatening to accelerate city collapse: 'Potentially double or triple the effects'](https://www.yahoo.com/news/scientists-sound-alarm-over-massive-103018329.html)
 <!-- feed end -->
 
 ### Onstream
