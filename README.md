@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [People Who Perform Autopsies Are Sharing The Weirdest Anomalies They've Found, And The Human Body Is A Wild — And Terrifying — Place](https://www.yahoo.com/lifestyle/people-perform-autopsies-sharing-weirdest-001602823.html)
+- May 11 - [Nashua man arrested, facing multiple child sexual abuse charges following investigation](https://www.yahoo.com/news/nashua-man-arrested-facing-multiple-025245644.html)
 - May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
+- May 10 - [Military vehicle crashes over I-90 wall in Bellevue, WA](https://www.yahoo.com/news/military-vehicle-crashes-over-90-211921466.html)
 - May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
 - May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
-- May 10 - [DOGE Is Bringing Back a Deadly Disease](https://www.yahoo.com/news/doge-bringing-back-deadly-disease-120441150.html)
 <!-- feed end -->
 
 ### Onstream
