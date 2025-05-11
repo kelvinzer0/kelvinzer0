@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Investor reaction to U.S.-China progress in trade talks](https://finance.yahoo.com/news/investor-reaction-u-china-progress-193734288.html)
+- May 11 - [Investor reaction to US-China progress in trade talks](https://finance.yahoo.com/news/investor-reaction-u-china-progress-193734657.html)
+- May 11 - [People who fled Pakistan-administered Kashmir return after ceasefire](https://www.yahoo.com/news/people-fled-pakistan-administered-kashmir-155414043.html)
 - May 11 - [Archaeologists Found a Lost Temple in the Sand That Solves a Major Historical Puzzle](https://www.yahoo.com/news/archaeologists-found-lost-temple-sand-153700750.html)
-- May 11 - [Video: Dogs React to Roll Call on Pup Bus](https://www.yahoo.com/lifestyle/video-dogs-react-roll-call-150000370.html)
-- May 11 - [ICE arrest sparks chaos as crowd tries to intervene in Massachusetts](https://www.yahoo.com/news/ice-arrest-sparks-chaos-crowd-205209272.html)
-- May 11 - [19 Photos Proving That Kids And Logic Don't Mix](https://www.yahoo.com/lifestyle/19-photos-prove-little-kids-133102403.html)
+- May 11 - [‘People are starting to feel betrayed’: Gov. Beshear slams Trump's crushing impact on rural America](https://www.yahoo.com/news/people-starting-feel-betrayed-gov-131011660.html)
+- May 11 - [A Bill Ackman investing golden rule that bullish traders might be forgetting about right now](https://finance.yahoo.com/news/a-bill-ackman-investing-golden-rule-that-bullish-traders-might-be-forgetting-about-right-now-123056823.html)
 <!-- feed end -->
 
 ### Onstream
