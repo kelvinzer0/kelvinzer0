@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 11 - [I swapped my gas truck for a Chinese hybrid. The BYD Shark is great to drive, but one thing worries me.](https://autos.yahoo.com/swapped-gas-truck-chinese-hybrid-042101877.html)
-- May 11 - [Winning $25 million SuperLotto Plus ticket sold in Southern California](https://www.yahoo.com/news/winning-25-million-superlotto-plus-041014939.html)
 - May 11 - [Autopsy Professionals Are Revealing The Most Bizarre Anomalies They've Seen, And Wow, The Human Body Is Truly A Wonder](https://www.yahoo.com/lifestyle/people-perform-autopsies-sharing-weirdest-001602823.html)
-- May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
 - May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
+- May 10 - [Germany will stop reporting arms deliveries to Ukraine, Merz says](https://www.yahoo.com/news/germany-stop-reporting-arms-deliveries-171841823.html)
+- May 10 - [Trump is bringing white South Africans to the US as refugees, but what persecution are they facing?](https://www.yahoo.com/news/trump-bringing-white-south-africans-170244904.html)
 <!-- feed end -->
 
 ### Onstream
