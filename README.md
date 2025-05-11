@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [A business owner tested if customers would pay more for American-made. The results were 'sobering.'](https://finance.yahoo.com/news/business-owner-tested-customers-pay-095701130.html)
-- May 11 - [Mix-up at Phoenix gas station breaks dozens of cars — how to make companies pay for their mistakes](https://www.yahoo.com/news/mix-phoenix-gas-station-breaks-094500619.html)
-- May 11 - [I swapped my gas truck for a Chinese hybrid. The BYD Shark is great to drive, but one thing worries me.](https://autos.yahoo.com/swapped-gas-truck-chinese-hybrid-042101877.html)
-- May 11 - [Autopsy Professionals Are Revealing The Most Bizarre Anomalies They've Seen, And Wow, The Human Body Is Truly A Wonder](https://www.yahoo.com/lifestyle/people-perform-autopsies-sharing-weirdest-001602823.html)
-- May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
+- May 11 - [Walmart, Deere, Alibaba, Cisco: Earnings to Watch This Week](https://finance.yahoo.com/video/walmart-deere-alibaba-cisco-earnings-120013008.html)
+- May 11 - [Louisville woman paid $1K for truck at police auction — but when it was delivered, valuable items were missing](https://www.yahoo.com/news/louisville-woman-paid-1k-truck-114700708.html)
+- May 11 - [Winch needed after Smarty the horse, 27, falls over](https://www.yahoo.com/news/winch-needed-smarty-horse-27-113733108.html)
+- May 11 - [Trump administration poised to accept 'palace in the sky' as a gift for Trump from Qatar: Sources](https://www.yahoo.com/news/trump-administration-poised-accept-palace-110200881.html)
+- May 11 - [Is General Motors (NYSE:GM) Using Too Much Debt?](https://finance.yahoo.com/news/general-motors-nyse-gm-using-110025671.html)
 <!-- feed end -->
 
 ### Onstream
