@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Japan PM Ishiba reiterates call to eliminate all tariffs with US](https://finance.yahoo.com/news/japan-pm-ishiba-reiterates-call-043612953.html)
-- May 11 - [Turkish Tufts University student back in Boston after release from Louisiana detention center](https://www.yahoo.com/news/turkish-tufts-university-student-back-025915944.html)
+- May 11 - [I swapped my gas truck for a Chinese hybrid. The BYD Shark is great to drive, but one thing worries me.](https://autos.yahoo.com/swapped-gas-truck-chinese-hybrid-042101877.html)
+- May 11 - [Winning $25 million SuperLotto Plus ticket sold in Southern California](https://www.yahoo.com/news/winning-25-million-superlotto-plus-041014939.html)
+- May 11 - [Autopsy Professionals Are Revealing The Most Bizarre Anomalies They've Seen, And Wow, The Human Body Is Truly A Wonder](https://www.yahoo.com/lifestyle/people-perform-autopsies-sharing-weirdest-001602823.html)
 - May 11 - [Five fishermen who survived 55 days adrift by drinking rain and parboiling passing fish arrive in Galapagos](https://www.yahoo.com/news/five-fishermen-survived-55-days-000518478.html)
 - May 10 - [Rep. Jasmine Crockett Says Dems Already Backing ‘Safest White Boy’ for President in 2028: ‘One Specific Candidate’ | Video](https://www.yahoo.com/news/rep-jasmine-crockett-says-dems-210557910.html)
-- May 10 - [Amazon is selling an 'impressive' $1,300 laptop computer for $340 that's 'perfect for both work and entertainment'](https://tech.yahoo.com/computing/deals/articles/amazon-selling-impressive-1-300-141500278.html)
 <!-- feed end -->
 
 ### Onstream
