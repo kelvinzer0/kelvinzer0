@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 11 - [Zepbound beats Wegovy for weight loss in first head-to-head trial of blockbuster drugs](https://www.yahoo.com/lifestyle/zepbound-beats-wegovy-weight-loss-220146433.html)
+- May 11 - [Large Alligator Caught 'Knocking on Doors' of Homes During Mating Season](https://www.yahoo.com/entertainment/videos/large-alligator-caught-knocking-doors-201800263.html)
 - May 11 - [Investor reaction to US-China progress in trade talks](https://finance.yahoo.com/news/investor-reaction-u-china-progress-193734657.html)
-- May 11 - [People who fled Pakistan-administered Kashmir return after ceasefire](https://www.yahoo.com/news/people-fled-pakistan-administered-kashmir-155414043.html)
-- May 11 - [Archaeologists Found a Lost Temple in the Sand That Solves a Major Historical Puzzle](https://www.yahoo.com/news/archaeologists-found-lost-temple-sand-153700750.html)
-- May 11 - [‘People are starting to feel betrayed’: Gov. Beshear slams Trump's crushing impact on rural America](https://www.yahoo.com/news/people-starting-feel-betrayed-gov-131011660.html)
-- May 11 - [A Bill Ackman investing golden rule that bullish traders might be forgetting about right now](https://finance.yahoo.com/news/a-bill-ackman-investing-golden-rule-that-bullish-traders-might-be-forgetting-about-right-now-123056823.html)
+- May 11 - [Trump Administration Reaches Trade Deal With China in Geneva](https://www.yahoo.com/news/trump-administration-reaches-trade-deal-185146111.html)
+- May 11 - [Severe Thunderstorm Warning issued in northern Utah, damage expected](https://www.yahoo.com/news/severe-thunderstorm-warning-issued-northern-183828328.html)
 <!-- feed end -->
 
 ### Onstream
