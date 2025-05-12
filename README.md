@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Republicans plan work requirement for Medicaid – but hold off on slashing federal contributions](https://www.yahoo.com/news/republicans-plan-requirement-medicaid-hold-164915211.html)
-- May 12 - [Trump Retreats On His Trade War's Chinese Front, Claims Big Victory](https://www.yahoo.com/news/trump-retreats-trade-wars-chinese-164620350.html)
-- May 12 - [Trump fumes at ‘ABC fake news’ reporter for pressing him on pricey Qatar plane gift: ‘You should be embarrassed!’](https://www.yahoo.com/news/trump-fumes-abc-fake-news-160948092.html)
-- May 12 - [My second wife says her 2 kids should inherit our estate, but I also have 2 kids. Is that fair?](https://finance.yahoo.com/news/second-wife-says-her-2-091900728.html)
-- May 12 - [The universe may die sooner than expected](https://www.yahoo.com/news/universe-may-die-sooner-expected-155224679.html)
+- May 12 - [Stock market today: Dow gains 1,000 points, while S&P 500, Nasdaq surge as US-China deal spurs a rush into stocks](https://finance.yahoo.com/news/live/stock-market-today-dow-gains-1000-points-while-sp-500-nasdaq-surge-as-us-china-deal-spurs-a-rush-into-stocks-133030475.html)
+- May 12 - [Elon Musk Got Schooled By An Economics Professor Over His Remarks On Medicare, Social Security As Immigration Lure: 'Complete Fiction'](https://finance.yahoo.com/news/elon-musk-got-schooled-economics-180036544.html)
+- May 12 - [It’s not just more babies, Republicans are pushing idea one parent should ditch work and stay at home with the kids](https://www.yahoo.com/news/not-just-more-babies-republicans-175910375.html)
+- May 12 - [Edan Alexander, Last American Hostage FREED after 583 days, Hamas: 'Goodwill Gesture' to Trump](https://www.yahoo.com/news/edan-alexander-last-american-hostage-175000451.html)
+- May 12 - [New Small Russian Cruise Missile Captured By Ukrainian Intelligence](https://www.yahoo.com/news/small-russian-cruise-missile-captured-172458557.html)
 <!-- feed end -->
 
 ### Onstream
