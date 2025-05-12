@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Even Donald Trump's Most MAGA Supporters Are Furious With Him Over Latest Move](https://www.yahoo.com/news/even-donald-trumps-most-maga-070004825.html)
+- May 12 - [Opening Statements Expected in Sean 'Diddy' Combs Trial](https://www.yahoo.com/news/opening-statements-expected-sean-diddy-065759453.html)
 - May 12 - [House Republicans unveil Medicaid cuts that Democrats warn will leave millions without care](https://www.yahoo.com/news/house-republicans-unveil-medicaid-cuts-043634139.html)
 - May 12 - [Driver rams crowded Mother’s Day flower stand in Southern California](https://www.yahoo.com/news/driver-rams-crowded-mother-day-022229885.html)
-- May 12 - [Former White House Ethics lawyer reacts to Trump’s plans to accept plane gift from Qatar](https://www.yahoo.com/news/former-white-house-ethics-lawyer-002750626.html)
-- May 12 - [Stock market today: Dow, S&P 500, Nasdaq futures surge as markets cheer US-China trade talks](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-surge-as-markets-cheer-us-china-trade-talks-002457324.html)
 - May 12 - [Argentina's top court finds 80 boxes of Nazi materials in its basement](https://www.yahoo.com/news/argentinas-top-court-finds-80-000901102.html)
 <!-- feed end -->
 
