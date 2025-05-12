@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Stock market today: Dow gains 1,000 points, S&P 500, Nasdaq surge as US-China deal spurs a rush into stocks](https://finance.yahoo.com/news/live/stock-market-today-dow-gains-1000-points-sp-500-nasdaq-surge-as-us-china-deal-spurs-a-rush-into-stocks-133030822.html)
-- May 12 - [Roche to invest $700 million in new drug manufacturing facility in North Carolina](https://finance.yahoo.com/news/roche-invest-700-million-drug-130516201.html)
-- May 12 - [BMW M2 Racecar Promises Affordability](https://autos.yahoo.com/bmw-m2-racecar-promises-affordability-130000571.html)
+- May 12 - [Nissan to cut over 10,000 more jobs globally, NHK reports](https://finance.yahoo.com/video/nissan-cut-over-10-000-133853053.html)
+- May 12 - [Stock market today: Dow gains 1,000 points, while S&P 500, Nasdaq surge as US-China deal spurs a rush into stocks](https://finance.yahoo.com/news/live/stock-market-today-dow-gains-1000-points-while-sp-500-nasdaq-surge-as-us-china-deal-spurs-a-rush-into-stocks-133030475.html)
 - May 12 - [Driver who killed e-bike rider by ramming him into concrete post jailed for life](https://www.yahoo.com/news/driver-killed-e-bike-rider-125205632.html)
 - May 12 - [Flight reduction planned at Newark airport amid another outage and technical issues](https://www.yahoo.com/news/flight-reduction-planned-newark-airport-125128957.html)
+- May 12 - [The Latest: The White House releases Trump's schedule for Monday](https://www.yahoo.com/news/latest-white-house-releases-trumps-121735353.html)
 <!-- feed end -->
 
 ### Onstream
