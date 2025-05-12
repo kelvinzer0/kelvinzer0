@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Stock market today: Dow gains 1,000 points, while S&P 500, Nasdaq surge as US-China deal spurs a rush into stocks](https://finance.yahoo.com/news/live/stock-market-today-dow-gains-1000-points-while-sp-500-nasdaq-surge-as-us-china-deal-spurs-a-rush-into-stocks-133030475.html)
-- May 12 - [Elon Musk Got Schooled By An Economics Professor Over His Remarks On Medicare, Social Security As Immigration Lure: 'Complete Fiction'](https://finance.yahoo.com/news/elon-musk-got-schooled-economics-180036544.html)
+- May 12 - [Miami LB Adarius Hayes released from hospital following car crash that left 3 people including 2 children dead](https://sports.yahoo.com/college-football/breaking-news/article/miami-lb-adarius-hayes-released-from-hospital-following-car-crash-that-left-3-people-including-2-children-dead-183924843.html)
+- May 12 - [EU analysing U.S.-UK trade deal for impact on EU, global trade](https://finance.yahoo.com/news/eu-analysing-u-uk-trade-180036472.html)
 - May 12 - [It’s not just more babies, Republicans are pushing idea one parent should ditch work and stay at home with the kids](https://www.yahoo.com/news/not-just-more-babies-republicans-175910375.html)
-- May 12 - [Edan Alexander, Last American Hostage FREED after 583 days, Hamas: 'Goodwill Gesture' to Trump](https://www.yahoo.com/news/edan-alexander-last-american-hostage-175000451.html)
-- May 12 - [New Small Russian Cruise Missile Captured By Ukrainian Intelligence](https://www.yahoo.com/news/small-russian-cruise-missile-captured-172458557.html)
+- May 12 - [I'm Sorry, But The Pope's One-Word Message To The United States Is Way Funnier Than It Should Be](https://www.yahoo.com/entertainment/articles/popes-one-word-message-united-171614452.html)
+- May 12 - [‘I can make it any number I want’: Gas stations are charging customers $1 more a gallon for using credit cards](https://finance.yahoo.com/news/number-want-gas-stations-charging-170000929.html)
 <!-- feed end -->
 
 ### Onstream
