@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 12 - [House Republicans unveil Medicaid cuts that Democrats warn will leave millions without care](https://www.yahoo.com/news/house-republicans-unveil-medicaid-cuts-043634139.html)
 - May 12 - [Driver rams crowded Mother’s Day flower stand in Southern California](https://www.yahoo.com/news/driver-rams-crowded-mother-day-022229885.html)
+- May 12 - [Former White House Ethics lawyer reacts to Trump’s plans to accept plane gift from Qatar](https://www.yahoo.com/news/former-white-house-ethics-lawyer-002750626.html)
 - May 12 - [Stock market today: Dow, S&P 500, Nasdaq futures surge as markets cheer US-China trade talks](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-surge-as-markets-cheer-us-china-trade-talks-002457324.html)
 - May 12 - [Argentina's top court finds 80 boxes of Nazi materials in its basement](https://www.yahoo.com/news/argentinas-top-court-finds-80-000901102.html)
-- May 11 - [Trump promises to order that the US pay only the price other nations do for some drugs](https://www.yahoo.com/news/trump-promises-order-us-pay-231718137.html)
 <!-- feed end -->
 
 ### Onstream
