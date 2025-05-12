@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Princess of Wales brings her love of the great outdoors to a new generation](https://www.yahoo.com/lifestyle/princess-wales-nature-revives-renews-111922404.html)
-- May 12 - [Former White House ethics lawyer reacts to Trump’s plans to accept plane gift from Qatar](https://www.yahoo.com/news/former-white-house-ethics-lawyer-002750626.html)
-- May 12 - [Sean 'Diddy' Combs trial live updates: Opening statements are underway in the federal sex trafficking case](https://www.yahoo.com/news/live/sean-diddy-combs-trial-live-updates-opening-statements-are-underway-in-the-federal-sex-trafficking-case-145026604.html)
-- May 12 - [Eye care products recalled nationwide as customers warned to stop use ‘immediately’](https://www.yahoo.com/lifestyle/eye-care-products-recalled-nationwide-144814300.html)
-- May 12 - [Stock market today: Dow gains 900 points, while S&P 500, Nasdaq surge as US-China deal spurs a rush into stocks](https://finance.yahoo.com/news/live/stock-market-today-dow-gains-900-points-while-sp-500-nasdaq-surge-as-us-china-deal-spurs-a-rush-into-stocks-144248295.html)
+- May 12 - [Republicans plan work requirement for Medicaid – but hold off on slashing federal contributions](https://www.yahoo.com/news/republicans-plan-requirement-medicaid-hold-164915211.html)
+- May 12 - [Trump Retreats On His Trade War's Chinese Front, Claims Big Victory](https://www.yahoo.com/news/trump-retreats-trade-wars-chinese-164620350.html)
+- May 12 - [Trump fumes at ‘ABC fake news’ reporter for pressing him on pricey Qatar plane gift: ‘You should be embarrassed!’](https://www.yahoo.com/news/trump-fumes-abc-fake-news-160948092.html)
+- May 12 - [My second wife says her 2 kids should inherit our estate, but I also have 2 kids. Is that fair?](https://finance.yahoo.com/news/second-wife-says-her-2-091900728.html)
+- May 12 - [The universe may die sooner than expected](https://www.yahoo.com/news/universe-may-die-sooner-expected-155224679.html)
 <!-- feed end -->
 
 ### Onstream
