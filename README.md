@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Chiefs superfan Xaviar Babudar, or 'Chiefsaholic,' sentenced to more time in prison after bank robbery spree](https://sports.yahoo.com/nfl/article/chiefs-superfan-xaviar-babudar-or-chiefsaholic-sentenced-to-more-time-in-prison-after-bank-robbery-spree-211340764.html)
+- May 12 - [Mexican mayoral candidate gunned down during live broadcast of campaign rally](https://www.yahoo.com/news/mexican-mayoral-candidate-gunned-down-204329065.html)
 - May 12 - [First group of white South Africans arrives in US as refugees](https://www.yahoo.com/news/first-group-white-south-africans-203600671.html)
-- May 12 - [She hoped to buy a new car and instead was found dead inside one. 16 years later, police say they arrested the killer](https://www.yahoo.com/news/she-hoped-buy-car-instead-202109858.html)
-- May 12 - [Dow leaps 1,100 points; S&P 500 rallies 3.3% following a 90-day truce in the US-China trade war](https://www.yahoo.com/news/dow-leaps-1-100-points-201644778.html)
 - May 12 - [What Actually Happens If You Don’t Use Airplane Mode on Your Phone During a Flight?](https://www.yahoo.com/lifestyle/actually-happens-don-t-airplane-201106625.html)
-- May 12 - [Florida nurse accused of violent cheesy nachos assault on her wife](https://www.yahoo.com/news/florida-nurse-accused-violent-cheesy-200716042.html)
+- May 12 - [Patrol car involved in multi-vehicle fatal crash on SR 3 near Belfair Elementary](https://www.yahoo.com/news/patrol-car-involved-multi-vehicle-195725853.html)
 <!-- feed end -->
 
 ### Onstream
