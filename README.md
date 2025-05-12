@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Elon Musk's xAI Colossus Supercomputer Is on Its Way to 1 Million GPUs](https://tech.yahoo.com/ai/articles/elon-musks-xai-colossus-supercomputer-110000322.html)
-- May 12 - [Russian drones attack Ukraine after the Kremlin turns down a ceasefire proposal](https://www.yahoo.com/news/russian-drones-attack-ukraine-kremlin-074508480.html)
-- May 12 - [Poland orders closure of Russian consulate in Krakow, citing arson attack blamed on Moscow](https://www.yahoo.com/news/poland-orders-closure-russian-consulate-074029409.html)
-- May 12 - [Fahmy: US Needs the Gulf Countries More Than It Admits](https://finance.yahoo.com/video/fahmy-us-needs-gulf-countries-070811593.html)
-- May 12 - [House Republicans unveil Medicaid cuts that Democrats warn will leave millions without care](https://www.yahoo.com/news/house-republicans-unveil-medicaid-cuts-043634139.html)
+- May 12 - [John Cena's cancer diagnosis was 'sobering.' Here's what he wished he knew sooner.](https://www.yahoo.com/lifestyle/john-cenas-cancer-diagnosis-sobering-120340141.html)
+- May 12 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
+- May 12 - [A museum opens at a former factory in the Czech Republic where Oskar Schindler saved 1,200 Jews](https://www.yahoo.com/news/museum-opens-former-factory-czech-111410007.html)
+- May 12 - [Man groped unconscious stranger on night out](https://www.yahoo.com/news/man-groped-unconscious-stranger-night-111146477.html)
+- May 12 - [Local growers suffer catastrophic losses as beloved summer staple vanishes: 'One day you won't have any ... left'](https://www.yahoo.com/news/local-growers-suffer-catastrophic-losses-103006385.html)
 <!-- feed end -->
 
 ### Onstream
