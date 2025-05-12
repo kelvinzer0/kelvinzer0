@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Are you exercising 'in the zone'? All about Zone 2 cardio.](https://www.yahoo.com/lifestyle/exercising-zone-zone-2-cardio-090211875.html)
+- May 12 - [Arizona Democratic Sen. Gallego wades into immigration debate with new plan](https://www.yahoo.com/news/arizona-democratic-sen-gallego-wades-085741381.html)
 - May 12 - [Even Donald Trump's Most MAGA Supporters Are Furious With Him Over Latest Move](https://www.yahoo.com/news/even-donald-trumps-most-maga-070004825.html)
-- May 12 - [Opening Statements Expected in Sean 'Diddy' Combs Trial](https://www.yahoo.com/news/opening-statements-expected-sean-diddy-065759453.html)
 - May 12 - [House Republicans unveil Medicaid cuts that Democrats warn will leave millions without care](https://www.yahoo.com/news/house-republicans-unveil-medicaid-cuts-043634139.html)
-- May 12 - [Driver rams crowded Mother’s Day flower stand in Southern California](https://www.yahoo.com/news/driver-rams-crowded-mother-day-022229885.html)
-- May 12 - [Argentina's top court finds 80 boxes of Nazi materials in its basement](https://www.yahoo.com/news/argentinas-top-court-finds-80-000901102.html)
+- May 12 - [Texans just rejected seven GOP-backed school board candidates. Is it a trend?](https://www.yahoo.com/news/texans-just-rejected-seven-gop-005101953.html)
 <!-- feed end -->
 
 ### Onstream
