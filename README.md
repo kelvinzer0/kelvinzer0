@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Chiefs superfan Xaviar Babudar, or 'Chiefsaholic,' sentenced to more time in prison after bank robbery spree](https://sports.yahoo.com/nfl/article/chiefs-superfan-xaviar-babudar-or-chiefsaholic-sentenced-to-more-time-in-prison-after-bank-robbery-spree-211340764.html)
-- May 12 - [Mexican mayoral candidate gunned down during live broadcast of campaign rally](https://www.yahoo.com/news/mexican-mayoral-candidate-gunned-down-204329065.html)
-- May 12 - [First group of white South Africans arrives in US as refugees](https://www.yahoo.com/news/first-group-white-south-africans-203600671.html)
-- May 12 - [What Actually Happens If You Don’t Use Airplane Mode on Your Phone During a Flight?](https://www.yahoo.com/lifestyle/actually-happens-don-t-airplane-201106625.html)
-- May 12 - [Patrol car involved in multi-vehicle fatal crash on SR 3 near Belfair Elementary](https://www.yahoo.com/news/patrol-car-involved-multi-vehicle-195725853.html)
+- May 12 - [It’s not just more babies, Republicans are pushing idea one parent should ditch work and stay at home with the kids](https://www.yahoo.com/news/not-just-more-babies-republicans-175910375.html)
+- May 12 - [Chiefs superfan 'ChiefsAholic' sentenced to 32 years in Oklahoma prison](https://www.yahoo.com/news/chiefs-superfan-chiefsaholic-sentenced-32-222837545.html)
+- May 12 - [RFK Jr. Swims in Sewage-Tainted Creek with Grandchildren Despite National Park Service’s Bacteria Warning](https://www.yahoo.com/news/rfk-jr-swims-sewage-tainted-222654495.html)
+- May 12 - [Police hone in on ATV, street racing lawlessness in busy Kansas City areas](https://www.yahoo.com/news/police-hone-atv-street-racing-222115713.html)
+- May 12 - [Opinion | The GOP’s plan could throw millions off Medicaid — and that’s just the start](https://www.yahoo.com/news/opinion-gop-plan-could-throw-220740061.html)
 <!-- feed end -->
 
 ### Onstream
