@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Another ground stop at Newark Airport as air traffic issues continue](https://www.yahoo.com/news/another-ground-stop-newark-airport-230035198.html)
-- May 11 - [Large Alligator Caught 'Knocking on Doors' of Homes During Mating Season](https://www.yahoo.com/entertainment/videos/large-alligator-caught-knocking-doors-201800263.html)
-- May 11 - [US suspends Mexican cattle, horse and bison imports over screwworm pest](https://www.yahoo.com/news/us-suspends-mexican-cattle-horse-195454336.html)
-- May 11 - [Investor reaction to US-China progress in trade talks](https://finance.yahoo.com/news/investor-reaction-u-china-progress-193734657.html)
-- May 11 - [First white South Africans board plane for US under Trump refugee plan](https://www.yahoo.com/news/first-white-south-africans-board-193327518.html)
+- May 12 - [This US-owned factory in China made toys for Walmart. Tariffs put it on life support](https://finance.yahoo.com/news/us-owned-factory-china-made-010928819.html)
+- May 12 - [Texans just rejected seven GOP-backed school board candidates. Is it a trend?](https://www.yahoo.com/news/texans-just-rejected-seven-gop-005101953.html)
+- May 12 - [We Asked 5 Nutrition Experts How to Choose the Healthiest Yogurt—They All Said the Same Thing](https://www.yahoo.com/lifestyle/asked-5-nutrition-experts-choose-004538187.html)
+- May 12 - [Stock market today: Dow, S&P 500, Nasdaq futures surge as markets cheer US-China trade talks](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-surge-as-markets-cheer-us-china-trade-talks-002457324.html)
+- May 12 - [Argentina's top court finds 80 boxes of Nazi materials in its basement](https://www.yahoo.com/news/argentinas-top-court-finds-80-000901102.html)
 <!-- feed end -->
 
 ### Onstream
