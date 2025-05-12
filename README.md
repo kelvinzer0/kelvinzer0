@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Pakistan must get rid of its "terrorist infrastructure", India PM Modi says](https://www.yahoo.com/news/pakistan-must-rid-terrorist-infrastructure-150045137.html)
-- May 12 - [Eye care products recalled nationwide as customers warned to stop use ‘immediately’](https://www.yahoo.com/news/eye-care-products-recalled-nationwide-144814176.html)
-- May 12 - [Mexico disagrees with US suspension of Mexican cattle imports over screwworm](https://www.yahoo.com/news/mexico-disagrees-us-suspension-mexican-144810436.html)
+- May 12 - [Princess of Wales brings her love of the great outdoors to a new generation](https://www.yahoo.com/lifestyle/princess-wales-nature-revives-renews-111922404.html)
+- May 12 - [Former White House ethics lawyer reacts to Trump’s plans to accept plane gift from Qatar](https://www.yahoo.com/news/former-white-house-ethics-lawyer-002750626.html)
+- May 12 - [Sean 'Diddy' Combs trial live updates: Opening statements are underway in the federal sex trafficking case](https://www.yahoo.com/news/live/sean-diddy-combs-trial-live-updates-opening-statements-are-underway-in-the-federal-sex-trafficking-case-145026604.html)
+- May 12 - [Eye care products recalled nationwide as customers warned to stop use ‘immediately’](https://www.yahoo.com/lifestyle/eye-care-products-recalled-nationwide-144814300.html)
 - May 12 - [Stock market today: Dow gains 900 points, while S&P 500, Nasdaq surge as US-China deal spurs a rush into stocks](https://finance.yahoo.com/news/live/stock-market-today-dow-gains-900-points-while-sp-500-nasdaq-surge-as-us-china-deal-spurs-a-rush-into-stocks-144248295.html)
-- May 12 - [Democrats fear Fetterman can’t handle stress of Senate and are looking for ways to help after bombshell report](https://www.yahoo.com/news/democrats-fear-fetterman-t-handle-142215178.html)
 <!-- feed end -->
 
 ### Onstream
