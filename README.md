@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Dow leaps 1,100 points; S&P 500 rallies 3.3% following a 90-day truce in the US-China trade war](https://www.yahoo.com/news/dow-leaps-1-100-points-201644778.html)
+- May 12 - [Stock market today: Dow jumps 1,100 points, S&P 500 and Nasdaq surge after US-China tariff rollback triggers buying spree](https://finance.yahoo.com/news/live/stock-market-today-dow-jumps-1100-points-sp-500-and-nasdaq-surge-after-us-china-tariff-rollback-triggers-buying-spree-200036073.html)
+- May 12 - [Security Guard Who Pinned Diddy After Cassie Assault Says Rapper Gave Him Cash — and Said 3 Chilling Words](https://www.yahoo.com/news/security-guard-pinned-diddy-cassie-192848071.html)
+- May 12 - [Mom Gets 77 Stitches in Arm After She Ignores a ‘Normal’ Mole](https://www.yahoo.com/lifestyle/mom-gets-77-stitches-arm-192028895.html)
 - May 12 - [Miami LB Adarius Hayes released from hospital following car crash that left 3 people including 2 children dead](https://sports.yahoo.com/college-football/breaking-news/article/miami-lb-adarius-hayes-released-from-hospital-following-car-crash-that-left-3-people-including-2-children-dead-183924843.html)
-- May 12 - [EU analysing U.S.-UK trade deal for impact on EU, global trade](https://finance.yahoo.com/news/eu-analysing-u-uk-trade-180036472.html)
-- May 12 - [It’s not just more babies, Republicans are pushing idea one parent should ditch work and stay at home with the kids](https://www.yahoo.com/news/not-just-more-babies-republicans-175910375.html)
-- May 12 - [I'm Sorry, But The Pope's One-Word Message To The United States Is Way Funnier Than It Should Be](https://www.yahoo.com/entertainment/articles/popes-one-word-message-united-171614452.html)
-- May 12 - [‘I can make it any number I want’: Gas stations are charging customers $1 more a gallon for using credit cards](https://finance.yahoo.com/news/number-want-gas-stations-charging-170000929.html)
 <!-- feed end -->
 
 ### Onstream
