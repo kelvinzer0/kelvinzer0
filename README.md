@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [USAID is all but gone. For one family, 3 generations of service were defined by it](https://www.yahoo.com/news/usaid-gone-one-family-3-040048657.html)
-- May 12 - [Palestinians in Gaza resort to grinding pasta, beans or lentils to make bread](https://www.yahoo.com/news/palestinians-gaza-resort-grinding-pasta-030110300.html)
-- May 12 - [EQT Asia's Salata on PE Opportunities in Asia](https://finance.yahoo.com/video/eqt-asias-salata-pe-opportunities-025542807.html)
-- May 12 - [This US-owned factory in China made toys bound for Walmart. Tariffs put it on life support](https://finance.yahoo.com/news/us-owned-factory-china-made-010928278.html)
-- May 12 - [Texans just rejected seven GOP-backed school board candidates. Is it a trend?](https://www.yahoo.com/news/texans-just-rejected-seven-gop-005101953.html)
+- May 12 - [Republicans unveil steep cuts to Medicaid in portion of Trump tax bill](https://www.yahoo.com/news/republicans-unveil-steep-cuts-medicaid-024424613.html)
+- May 12 - [Former White House Ethics lawyer reacts to Trump’s plans to accept plane gift from Qatar](https://www.yahoo.com/news/former-white-house-ethics-lawyer-002750626.html)
+- May 12 - [Stock market today: Dow, S&P 500, Nasdaq futures surge as markets cheer US-China trade talks](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-surge-as-markets-cheer-us-china-trade-talks-002457324.html)
+- May 12 - [Argentina's top court finds 80 boxes of Nazi materials in its basement](https://www.yahoo.com/news/argentinas-top-court-finds-80-000901102.html)
+- May 11 - [Trump promises to order that the US pay only the price other nations do for some drugs](https://www.yahoo.com/news/trump-promises-order-us-pay-231718137.html)
 <!-- feed end -->
 
 ### Onstream
