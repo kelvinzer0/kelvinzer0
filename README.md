@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [How 'negative' sentiment is driving defensive tech bets](https://finance.yahoo.com/video/negative-sentiment-driving-defensive-tech-100045108.html)
+- May 12 - [Elon Musk's xAI Colossus Supercomputer Is on Its Way to 1 Million GPUs](https://tech.yahoo.com/ai/articles/elon-musks-xai-colossus-supercomputer-110000322.html)
+- May 12 - [Russian drones attack Ukraine after the Kremlin turns down a ceasefire proposal](https://www.yahoo.com/news/russian-drones-attack-ukraine-kremlin-074508480.html)
+- May 12 - [Poland orders closure of Russian consulate in Krakow, citing arson attack blamed on Moscow](https://www.yahoo.com/news/poland-orders-closure-russian-consulate-074029409.html)
+- May 12 - [Fahmy: US Needs the Gulf Countries More Than It Admits](https://finance.yahoo.com/video/fahmy-us-needs-gulf-countries-070811593.html)
 - May 12 - [House Republicans unveil Medicaid cuts that Democrats warn will leave millions without care](https://www.yahoo.com/news/house-republicans-unveil-medicaid-cuts-043634139.html)
-- May 12 - [Driver rams crowded Mother’s Day flower stand in Southern California](https://www.yahoo.com/news/driver-rams-crowded-mother-day-022229885.html)
-- May 12 - [Stock market today: Dow, S&P 500, Nasdaq futures surge on US-China deal to slash tariffs](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-surge-on-us-china-deal-to-slash-tariffs-002457308.html)
-- May 12 - [Argentina's top court finds 80 boxes of Nazi materials in its basement](https://www.yahoo.com/news/argentinas-top-court-finds-80-000901102.html)
 <!-- feed end -->
 
 ### Onstream
