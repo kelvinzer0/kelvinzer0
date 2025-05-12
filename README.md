@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [John Cena's cancer diagnosis was 'sobering.' Here's what he wished he knew sooner.](https://www.yahoo.com/lifestyle/john-cenas-cancer-diagnosis-sobering-120340141.html)
-- May 12 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
-- May 12 - [A museum opens at a former factory in the Czech Republic where Oskar Schindler saved 1,200 Jews](https://www.yahoo.com/news/museum-opens-former-factory-czech-111410007.html)
-- May 12 - [Man groped unconscious stranger on night out](https://www.yahoo.com/news/man-groped-unconscious-stranger-night-111146477.html)
-- May 12 - [Local growers suffer catastrophic losses as beloved summer staple vanishes: 'One day you won't have any ... left'](https://www.yahoo.com/news/local-growers-suffer-catastrophic-losses-103006385.html)
+- May 12 - [Stock market today: Dow gains 1,000 points, S&P 500, Nasdaq surge as US-China deal spurs a rush into stocks](https://finance.yahoo.com/news/live/stock-market-today-dow-gains-1000-points-sp-500-nasdaq-surge-as-us-china-deal-spurs-a-rush-into-stocks-133030822.html)
+- May 12 - [Roche to invest $700 million in new drug manufacturing facility in North Carolina](https://finance.yahoo.com/news/roche-invest-700-million-drug-130516201.html)
+- May 12 - [BMW M2 Racecar Promises Affordability](https://autos.yahoo.com/bmw-m2-racecar-promises-affordability-130000571.html)
+- May 12 - [Driver who killed e-bike rider by ramming him into concrete post jailed for life](https://www.yahoo.com/news/driver-killed-e-bike-rider-125205632.html)
+- May 12 - [Flight reduction planned at Newark airport amid another outage and technical issues](https://www.yahoo.com/news/flight-reduction-planned-newark-airport-125128957.html)
 <!-- feed end -->
 
 ### Onstream
