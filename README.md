@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [First group of white South Africans arrives in US as refugees](https://www.yahoo.com/news/first-group-white-south-africans-203600671.html)
+- May 12 - [She hoped to buy a new car and instead was found dead inside one. 16 years later, police say they arrested the killer](https://www.yahoo.com/news/she-hoped-buy-car-instead-202109858.html)
 - May 12 - [Dow leaps 1,100 points; S&P 500 rallies 3.3% following a 90-day truce in the US-China trade war](https://www.yahoo.com/news/dow-leaps-1-100-points-201644778.html)
-- May 12 - [Stock market today: Dow jumps 1,100 points, S&P 500 and Nasdaq surge after US-China tariff rollback triggers buying spree](https://finance.yahoo.com/news/live/stock-market-today-dow-jumps-1100-points-sp-500-and-nasdaq-surge-after-us-china-tariff-rollback-triggers-buying-spree-200036073.html)
-- May 12 - [Security Guard Who Pinned Diddy After Cassie Assault Says Rapper Gave Him Cash — and Said 3 Chilling Words](https://www.yahoo.com/news/security-guard-pinned-diddy-cassie-192848071.html)
-- May 12 - [Mom Gets 77 Stitches in Arm After She Ignores a ‘Normal’ Mole](https://www.yahoo.com/lifestyle/mom-gets-77-stitches-arm-192028895.html)
-- May 12 - [Miami LB Adarius Hayes released from hospital following car crash that left 3 people including 2 children dead](https://sports.yahoo.com/college-football/breaking-news/article/miami-lb-adarius-hayes-released-from-hospital-following-car-crash-that-left-3-people-including-2-children-dead-183924843.html)
+- May 12 - [What Actually Happens If You Don’t Use Airplane Mode on Your Phone During a Flight?](https://www.yahoo.com/lifestyle/actually-happens-don-t-airplane-201106625.html)
+- May 12 - [Florida nurse accused of violent cheesy nachos assault on her wife](https://www.yahoo.com/news/florida-nurse-accused-violent-cheesy-200716042.html)
 <!-- feed end -->
 
 ### Onstream
