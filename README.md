@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [What April CPI data means for automaker profits](https://finance.yahoo.com/video/april-cpi-data-means-automaker-205145345.html)
+- May 13 - [Everyone Is Making The Same Joke About This Video Of Donald Trump Having A Hard Time Keeping His Eyes Open](https://www.yahoo.com/entertainment/articles/everyone-making-same-joke-video-202649256.html)
+- May 13 - [Judge strips NYC of full authority over Rikers Island, citing 'unprecedented' violence](https://www.yahoo.com/news/judge-strips-nyc-full-authority-202542030.html)
+- May 13 - [Family of US-born child deported to Honduras drops lawsuit against Trump administration](https://www.yahoo.com/news/family-us-born-child-deported-202439007.html)
 - May 13 - [Feds ask Musk's car company how its driverless taxis will avoid causing accidents in Texas rollout](https://finance.yahoo.com/news/feds-ask-musks-car-company-193532206.html)
-- May 13 - [Ex-model testifying that Harvey Weinstein sexually assaulted her questioned about private journal](https://www.yahoo.com/news/ex-model-testifying-harvey-weinstein-190156683.html)
-- May 13 - [Check out the Hellhound, a 375-mph 3D-printed turbojet-powered exploding drone competing for a spot in the US Army's arsenal](https://www.yahoo.com/news/check-hellhound-375-mph-3d-184920263.html)
-- May 13 - [See inside the pope's official residence, an expansive apartment with nearly a dozen rooms](https://www.yahoo.com/news/see-inside-popes-official-residence-183315739.html)
-- May 13 - [The Cheesesteak Anthony Bourdain Said Should Be A 'National Landmark' Isn't From Philly](https://www.yahoo.com/lifestyle/cheesesteak-anthony-bourdain-said-national-183000033.html)
 <!-- feed end -->
 
 ### Onstream
