@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Bentley student dies after accidentally falling from balcony during senior class trip to Bahamas](https://www.yahoo.com/news/bentley-student-dies-accidentally-falling-160320763.html)
-- May 13 - [Former longtime school administrator learns punishment for child sex crime](https://www.yahoo.com/news/former-longtime-school-administrator-learns-011401425.html)
+- May 13 - [Analysis-Australia's pension funds start questioning US strategies](https://finance.yahoo.com/news/analysis-australias-pension-funds-start-035107944.html)
+- May 13 - [Asian markets cheer as pause in US-China trade war boosts risk appetite](https://finance.yahoo.com/news/asian-markets-cheer-pause-us-023257718.html)
+- May 13 - [Rush of diplomatic calls follow Trump's offer to join potential Russia-Ukraine talks](https://www.yahoo.com/news/rubio-discusses-way-forward-ukraine-005944091.html)
 - May 13 - [New York official allegedly shoots DoorDash driver asking for directions](https://www.yahoo.com/news/york-official-allegedly-shoots-doordash-005537645.html)
 - May 13 - [Samsung beats Apple to punch, launches ultrathin Galaxy S25 Edge months before the 'iPhone Air'](https://finance.yahoo.com/news/samsung-beats-apple-to-punch-launches-ultrathin-galaxy-s25-edge-months-before-the-iphone-air-000039601.html)
-- May 12 - [It’s not just more babies, Republicans are pushing idea one parent should ditch work and stay at home with the kids](https://www.yahoo.com/news/not-just-more-babies-republicans-175910375.html)
 <!-- feed end -->
 
 ### Onstream
