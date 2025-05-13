@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Trump trade war faces legal challenge as businesses, states argue his tariffs exceeded his power](https://www.yahoo.com/news/trump-trade-war-faces-legal-131222551.html)
-- May 13 - [Germany's Merz: EU to tighten sanctions on Russia if no progress on Ukraine this week](https://www.yahoo.com/news/germanys-merz-eu-tighten-sanctions-125521035.html)
-- May 13 - [Thames Water chairman apologises to customers but defends bonuses for bosses](https://finance.yahoo.com/news/thames-water-chairman-apologises-customers-115016136.html)
-- May 13 - [Principal confirms ICE activity near east Charlotte school drop-off line](https://www.yahoo.com/news/principal-confirms-ice-activity-near-120435310.html)
-- May 13 - [The Lexus GS F Is a Luxury Beast That Became Timeless—and Collectors Are Taking Notice](https://autos.yahoo.com/lexus-gs-f-luxury-beast-120000265.html)
+- May 13 - [Fed's 2% inflation goal is 'just not the reality' this year](https://finance.yahoo.com/video/feds-2-inflation-goal-just-135928305.html)
+- May 13 - [Germany arrests self-declared 'king' and bans his extremist group](https://www.yahoo.com/news/germany-arrests-self-declared-king-132830166.html)
+- May 13 - [Parkland survivor David Hogg to be ousted from DNC following investigation into his election](https://www.yahoo.com/news/parkland-survivor-david-hogg-ousted-132014456.html)
+- May 13 - [Nissan to cut 11,000 more jobs and shut seven factories](https://finance.yahoo.com/news/nissan-cut-11-000-more-081857031.html)
+- May 13 - [‘I’m being treated as the bad guy’: Texas woman’s $83M lottery prize now 'on hold' because she used ticket app](https://www.yahoo.com/news/m-being-treated-bad-guy-114700971.html)
 <!-- feed end -->
 
 ### Onstream
