@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Trade deal: de minimis tariffs slashed, Boeing ban lifted](https://www.yahoo.com/news/trade-deal-minimis-tariffs-slashed-083554812.html)
 - May 13 - [My second wife says her 2 kids should inherit our estate, but I also have 2 kids. Is that fair?](https://finance.yahoo.com/news/second-wife-says-her-2-091900728.html)
-- May 13 - [Vietnam death row tycoon promises to turn properties into 'golden goose'](https://www.yahoo.com/news/vietnam-death-row-tycoon-promises-070919880.html)
-- May 13 - [Driver who killed e-bike rider by ramming him into concrete post jailed for life](https://www.yahoo.com/news/driver-killed-e-bike-rider-125205632.html)
+- May 13 - [Bop House Claps Back at Kai Cenat With the Launch of Their Own Streaming School](https://www.yahoo.com/entertainment/articles/bop-house-claps-back-kai-070434454.html)
 - May 13 - [China says fentanyl issue is responsibility of the United States](https://www.yahoo.com/news/china-says-fentanyl-issue-responsibility-063228936.html)
-- May 13 - [China removes ban on Boeing deliveries after tariff war pause: Bloomberg](https://finance.yahoo.com/news/china-removes-ban-boeing-deliveries-052348530.html)
+- May 13 - [Steven Seagal appeared at Putin's big Victory Day celebration next to a biker gang](https://www.yahoo.com/news/steven-seagal-appeared-putins-big-053358770.html)
 <!-- feed end -->
 
 ### Onstream
