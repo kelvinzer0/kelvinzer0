@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Rigetti Computing Reports Earnings. How the Company Takes a Different Approach to Quantum.](https://www.barrons.com/articles/rigetti-computing-stock-earnings-4fbf2c37?siteid=yhoof2&yptr=yahoo)
-- May 13 - [Nissan to cut 11,000 more jobs and shut seven factories](https://finance.yahoo.com/news/nissan-cut-11-000-more-081857031.html)
-- May 13 - [As Budgets Tighten, Frozen Pizza Becomes a Telltale Sign of Economic Strain](https://finance.yahoo.com/news/budgets-tighten-frozen-pizza-becomes-100100397.html)
-- May 13 - [The Smartest High-Yield Dividend Stocks in Warren Buffett's "Secret Portfolio" to Buy Right Now](https://finance.yahoo.com/news/smartest-high-yield-dividend-stocks-094100605.html)
-- May 13 - [Warren Buffett Says to Buy This Vanguard ETF. It Could Turn $1,000 Per Month Into $228,000 in 10 Years.](https://finance.yahoo.com/news/warren-buffett-says-buy-vanguard-090800134.html)
+- May 13 - [‘I’m being treated as the bad guy’: Texas woman’s $83M lottery prize now 'on hold' because she used ticket app](https://www.yahoo.com/news/m-being-treated-bad-guy-114700971.html)
+- May 13 - [NYC business owner erects 50-foot steel fence on his property — cutting off the sidewalk and 10 parking spots](https://www.yahoo.com/news/nyc-business-owner-erects-50-110900263.html)
+- May 13 - [UnitedHealth Group CEO steps down; suspends 2025 outlook on higher-than-expected medical costs](https://finance.yahoo.com/news/unitedhealth-group-ceo-steps-down-105153855.html)
+- May 13 - [Analysis-Tesla's refresh to best-selling Model Y SUV starts on rocky road](https://finance.yahoo.com/news/analysis-teslas-refresh-best-selling-100329527.html)
+- May 13 - [Cannes Film Festival makes it official: No nudity on the red carpet or any other area of festival](https://www.yahoo.com/entertainment/articles/cannes-film-festival-makes-official-071643041.html)
 <!-- feed end -->
 
 ### Onstream
