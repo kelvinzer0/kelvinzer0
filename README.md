@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [China presents a united front with Latin America, aiming to counter Trump's trade war](https://www.yahoo.com/news/china-presents-united-front-latin-054333140.html)
-- May 13 - [China removes ban on Boeing deliveries after tariff war pause, Bloomberg News reports](https://finance.yahoo.com/news/china-removes-ban-boeing-deliveries-052348530.html)
+- May 13 - [Driver who killed e-bike rider by ramming him into concrete post jailed for life](https://www.yahoo.com/news/driver-killed-e-bike-rider-125205632.html)
+- May 13 - [UK police arrest man for arson after fire at PM Starmer's house](https://www.yahoo.com/news/uk-police-arrest-man-arson-061950557.html)
+- May 13 - [Steven Seagal appeared at Putin's big Victory Day celebration next to a biker gang](https://www.yahoo.com/news/steven-seagal-appeared-putins-big-053358770.html)
 - May 13 - [Budget airline begins deportation flights for ICE with start of Arizona operations](https://www.yahoo.com/news/budget-airline-begins-deportation-flights-040848431.html)
-- May 13 - [India considers counter duties on US products, notice to WTO shows](https://finance.yahoo.com/news/india-proposes-counter-duties-against-033624223.html)
-- May 13 - [China's army of food delivery drivers get by with help from discount 'loving meals'](https://www.yahoo.com/news/chinas-army-food-delivery-drivers-010234745.html)
+- May 13 - [New York official allegedly shoots DoorDash driver asking for directions](https://www.yahoo.com/news/york-official-allegedly-shoots-doordash-005537645.html)
 <!-- feed end -->
 
 ### Onstream
