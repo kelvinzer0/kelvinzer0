@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Trump says he will remove US sanctions on Syria](https://www.yahoo.com/news/trump-says-remove-us-sanctions-174414422.html)
 - May 13 - [Intel has limited customer commitments for latest chip manufacturing tech, CFO says](https://finance.yahoo.com/news/intel-limited-customer-commitments-latest-173831599.html)
-- May 13 - [Russian economy in worse shape than Moscow says, report for EU shows](https://finance.yahoo.com/news/russian-economy-worse-shape-moscow-172031382.html)
+- May 13 - [Eating Out Is Pricey. How Texas Roadhouse Is Bringing Back Diners.](https://www.barrons.com/articles/eating-out-pricey-texas-roadhouse-diners-restaurants-7667ec02?siteid=yhoof2&yptr=yahoo)
 - May 13 - [Google needs 'big bang breakup' that would value its businesses at $3.7 trillion as AI threatens Search: Analyst](https://finance.yahoo.com/news/google-needs-big-bang-breakup-that-would-value-its-businesses-at-37-trillion-as-ai-threatens-search-analyst-171143842.html)
-- May 13 - [Trump: Lifting sanctions gives Syria a 'chance at greatness'](https://www.yahoo.com/news/trump-lifting-sanctions-gives-syria-170930821.html)
-- May 13 - [Trump calls Iran the 'most destructive force,' vows it won't get nuclear weapon](https://www.yahoo.com/news/trump-calls-iran-most-destructive-165646951.html)
+- May 13 - [Israel PM says army entering Gaza 'with full force' in coming days](https://www.yahoo.com/news/israel-pm-says-army-entering-161500434.html)
 <!-- feed end -->
 
 ### Onstream
