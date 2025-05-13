@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 13 - [US–China deal is a 'dream scenario' for Apple and Nvidia](https://finance.yahoo.com/video/us-china-deal-dream-scenario-162253229.html)
-- May 13 - [India rejects Trump's claim his trade concessions de-escalated India-Pakistan tensions](https://www.yahoo.com/news/india-rejects-trumps-claim-trade-160155064.html)
 - May 13 - [Nissan to cut 11,000 more jobs and shut seven factories](https://finance.yahoo.com/news/nissan-cut-11-000-more-081857031.html)
+- May 13 - [Costco is limiting gold bar purchases as demand surges](https://finance.yahoo.com/news/costco-limiting-gold-bar-purchases-154003262.html)
 - May 13 - [Why is hay fever so bad this year?](https://www.yahoo.com/lifestyle/why-hay-fever-so-bad-this-year-153624684.html)
-- May 13 - [‘Stitch-up’ or scandal? What triggered the downfall of Britain’s Sea Lord](https://www.yahoo.com/news/stitch-scandal-triggered-downfall-britain-151728955.html)
+- May 13 - [Nodule found in former President Joe Biden’s prostate during routine physical exam](https://www.yahoo.com/news/nodule-found-former-president-joe-142127246.html)
 <!-- feed end -->
 
 ### Onstream
