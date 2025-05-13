@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Analysis-Australia's pension funds start questioning US strategies](https://finance.yahoo.com/news/analysis-australias-pension-funds-start-035107944.html)
-- May 13 - [Asian markets cheer as pause in US-China trade war boosts risk appetite](https://finance.yahoo.com/news/asian-markets-cheer-pause-us-023257718.html)
-- May 13 - [Rush of diplomatic calls follow Trump's offer to join potential Russia-Ukraine talks](https://www.yahoo.com/news/rubio-discusses-way-forward-ukraine-005944091.html)
+- May 13 - [Budget airline begins deportation flights for ICE with start of Arizona operations](https://www.yahoo.com/news/budget-airline-begins-deportation-flights-040848431.html)
+- May 13 - [Analysis-Australia's pension funds start questioning US strategies](https://finance.yahoo.com/news/analysis-australias-pension-funds-start-035107270.html)
+- May 13 - [China commits about $10 billion in credit lines to Latin America](https://finance.yahoo.com/news/china-latin-america-trade-exceeded-030021825.html)
 - May 13 - [New York official allegedly shoots DoorDash driver asking for directions](https://www.yahoo.com/news/york-official-allegedly-shoots-doordash-005537645.html)
 - May 13 - [Samsung beats Apple to punch, launches ultrathin Galaxy S25 Edge months before the 'iPhone Air'](https://finance.yahoo.com/news/samsung-beats-apple-to-punch-launches-ultrathin-galaxy-s25-edge-months-before-the-iphone-air-000039601.html)
 <!-- feed end -->
