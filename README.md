@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [‘I’m being treated as the bad guy’: Texas woman’s $83M lottery prize now 'on hold' because she used ticket app](https://www.yahoo.com/news/m-being-treated-bad-guy-114700971.html)
-- May 13 - [NYC business owner erects 50-foot steel fence on his property — cutting off the sidewalk and 10 parking spots](https://www.yahoo.com/news/nyc-business-owner-erects-50-110900263.html)
-- May 13 - [UnitedHealth Group CEO steps down; suspends 2025 outlook on higher-than-expected medical costs](https://finance.yahoo.com/news/unitedhealth-group-ceo-steps-down-105153855.html)
-- May 13 - [Analysis-Tesla's refresh to best-selling Model Y SUV starts on rocky road](https://finance.yahoo.com/news/analysis-teslas-refresh-best-selling-100329527.html)
-- May 13 - [Cannes Film Festival makes it official: No nudity on the red carpet or any other area of festival](https://www.yahoo.com/entertainment/articles/cannes-film-festival-makes-official-071643041.html)
+- May 13 - [Trump trade war faces legal challenge as businesses, states argue his tariffs exceeded his power](https://www.yahoo.com/news/trump-trade-war-faces-legal-131222551.html)
+- May 13 - [Germany's Merz: EU to tighten sanctions on Russia if no progress on Ukraine this week](https://www.yahoo.com/news/germanys-merz-eu-tighten-sanctions-125521035.html)
+- May 13 - [Thames Water chairman apologises to customers but defends bonuses for bosses](https://finance.yahoo.com/news/thames-water-chairman-apologises-customers-115016136.html)
+- May 13 - [Principal confirms ICE activity near east Charlotte school drop-off line](https://www.yahoo.com/news/principal-confirms-ice-activity-near-120435310.html)
+- May 13 - [The Lexus GS F Is a Luxury Beast That Became Timeless—and Collectors Are Taking Notice](https://autos.yahoo.com/lexus-gs-f-luxury-beast-120000265.html)
 <!-- feed end -->
 
 ### Onstream
