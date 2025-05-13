@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [China presents a united front with Latin America, aiming to counter Trump's trade war](https://www.yahoo.com/news/china-presents-united-front-latin-054333140.html)
+- May 13 - [China removes ban on Boeing deliveries after tariff war pause, Bloomberg News reports](https://finance.yahoo.com/news/china-removes-ban-boeing-deliveries-052348530.html)
 - May 13 - [Budget airline begins deportation flights for ICE with start of Arizona operations](https://www.yahoo.com/news/budget-airline-begins-deportation-flights-040848431.html)
-- May 13 - [Analysis-Australia's pension funds start questioning US strategies](https://finance.yahoo.com/news/analysis-australias-pension-funds-start-035107270.html)
-- May 13 - [China commits about $10 billion in credit lines to Latin America](https://finance.yahoo.com/news/china-latin-america-trade-exceeded-030021825.html)
-- May 13 - [New York official allegedly shoots DoorDash driver asking for directions](https://www.yahoo.com/news/york-official-allegedly-shoots-doordash-005537645.html)
-- May 13 - [Samsung beats Apple to punch, launches ultrathin Galaxy S25 Edge months before the 'iPhone Air'](https://finance.yahoo.com/news/samsung-beats-apple-to-punch-launches-ultrathin-galaxy-s25-edge-months-before-the-iphone-air-000039601.html)
+- May 13 - [India considers counter duties on US products, notice to WTO shows](https://finance.yahoo.com/news/india-proposes-counter-duties-against-033624223.html)
+- May 13 - [China's army of food delivery drivers get by with help from discount 'loving meals'](https://www.yahoo.com/news/chinas-army-food-delivery-drivers-010234745.html)
 <!-- feed end -->
 
 ### Onstream
