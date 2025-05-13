@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Bentley student dies after accidentally falling from balcony during senior class trip to Bahamas](https://www.yahoo.com/news/bentley-student-dies-accidentally-falling-160320763.html)
+- May 13 - [Former longtime school administrator learns punishment for child sex crime](https://www.yahoo.com/news/former-longtime-school-administrator-learns-011401425.html)
 - May 13 - [New York official allegedly shoots DoorDash driver asking for directions](https://www.yahoo.com/news/york-official-allegedly-shoots-doordash-005537645.html)
 - May 13 - [Samsung beats Apple to punch, launches ultrathin Galaxy S25 Edge months before the 'iPhone Air'](https://finance.yahoo.com/news/samsung-beats-apple-to-punch-launches-ultrathin-galaxy-s25-edge-months-before-the-iphone-air-000039601.html)
-- May 12 - [Rule of law is ‘endangered,’ chief justice says](https://www.yahoo.com/news/rule-law-endangered-chief-justice-233910370.html)
-- May 12 - [Chiefs superfan 'ChiefsAholic' sentenced to 32 years in Oklahoma prison](https://www.yahoo.com/news/chiefs-superfan-chiefsaholic-sentenced-32-222837545.html)
-- May 12 - [Doctors Say This ‘Relatively Simple’ Diet Can Lead to Major Weight Loss in Just 3 Months](https://www.yahoo.com/lifestyle/doctors-relatively-simple-diet-lead-215944454.html)
+- May 12 - [It’s not just more babies, Republicans are pushing idea one parent should ditch work and stay at home with the kids](https://www.yahoo.com/news/not-just-more-babies-republicans-175910375.html)
 <!-- feed end -->
 
 ### Onstream
