@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [What April CPI data means for automaker profits](https://finance.yahoo.com/video/april-cpi-data-means-automaker-205145345.html)
-- May 13 - [Everyone Is Making The Same Joke About This Video Of Donald Trump Having A Hard Time Keeping His Eyes Open](https://www.yahoo.com/entertainment/articles/everyone-making-same-joke-video-202649256.html)
-- May 13 - [Judge strips NYC of full authority over Rikers Island, citing 'unprecedented' violence](https://www.yahoo.com/news/judge-strips-nyc-full-authority-202542030.html)
+- May 13 - [This Video Of Donald Trump Barely Keeping His Eyes Open Has Everyone Making The Same Exact Joke](https://www.yahoo.com/entertainment/articles/everyone-making-same-joke-video-202649256.html)
 - May 13 - [Family of US-born child deported to Honduras drops lawsuit against Trump administration](https://www.yahoo.com/news/family-us-born-child-deported-202439007.html)
 - May 13 - [Feds ask Musk's car company how its driverless taxis will avoid causing accidents in Texas rollout](https://finance.yahoo.com/news/feds-ask-musks-car-company-193532206.html)
+- May 13 - [Ex-model testifying that Harvey Weinstein sexually assaulted her questioned about private journal](https://www.yahoo.com/news/ex-model-testifying-harvey-weinstein-190156683.html)
+- May 13 - [Intel has limited customer commitments for latest chip manufacturing tech, CFO says](https://finance.yahoo.com/news/intel-limited-customer-commitments-latest-173831599.html)
 <!-- feed end -->
 
 ### Onstream
