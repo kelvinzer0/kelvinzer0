@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [US–China deal is a 'dream scenario' for Apple and Nvidia](https://finance.yahoo.com/video/us-china-deal-dream-scenario-162253229.html)
-- May 13 - [Nissan to cut 11,000 more jobs and shut seven factories](https://finance.yahoo.com/news/nissan-cut-11-000-more-081857031.html)
-- May 13 - [Costco is limiting gold bar purchases as demand surges](https://finance.yahoo.com/news/costco-limiting-gold-bar-purchases-154003262.html)
-- May 13 - [Why is hay fever so bad this year?](https://www.yahoo.com/lifestyle/why-hay-fever-so-bad-this-year-153624684.html)
-- May 13 - [Nodule found in former President Joe Biden’s prostate during routine physical exam](https://www.yahoo.com/news/nodule-found-former-president-joe-142127246.html)
+- May 13 - [Intel has limited customer commitments for latest chip manufacturing tech, CFO says](https://finance.yahoo.com/news/intel-limited-customer-commitments-latest-173831599.html)
+- May 13 - [Russian economy in worse shape than Moscow says, report for EU shows](https://finance.yahoo.com/news/russian-economy-worse-shape-moscow-172031382.html)
+- May 13 - [Google needs 'big bang breakup' that would value its businesses at $3.7 trillion as AI threatens Search: Analyst](https://finance.yahoo.com/news/google-needs-big-bang-breakup-that-would-value-its-businesses-at-37-trillion-as-ai-threatens-search-analyst-171143842.html)
+- May 13 - [Trump: Lifting sanctions gives Syria a 'chance at greatness'](https://www.yahoo.com/news/trump-lifting-sanctions-gives-syria-170930821.html)
+- May 13 - [Trump calls Iran the 'most destructive force,' vows it won't get nuclear weapon](https://www.yahoo.com/news/trump-calls-iran-most-destructive-165646951.html)
 <!-- feed end -->
 
 ### Onstream
