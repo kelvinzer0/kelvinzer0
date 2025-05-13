@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Trump says he will remove US sanctions on Syria](https://www.yahoo.com/news/trump-says-remove-us-sanctions-174414422.html)
-- May 13 - [Intel has limited customer commitments for latest chip manufacturing tech, CFO says](https://finance.yahoo.com/news/intel-limited-customer-commitments-latest-173831599.html)
-- May 13 - [Eating Out Is Pricey. How Texas Roadhouse Is Bringing Back Diners.](https://www.barrons.com/articles/eating-out-pricey-texas-roadhouse-diners-restaurants-7667ec02?siteid=yhoof2&yptr=yahoo)
-- May 13 - [Google needs 'big bang breakup' that would value its businesses at $3.7 trillion as AI threatens Search: Analyst](https://finance.yahoo.com/news/google-needs-big-bang-breakup-that-would-value-its-businesses-at-37-trillion-as-ai-threatens-search-analyst-171143842.html)
-- May 13 - [Israel PM says army entering Gaza 'with full force' in coming days](https://www.yahoo.com/news/israel-pm-says-army-entering-161500434.html)
+- May 13 - [Feds ask Musk's car company how its driverless taxis will avoid causing accidents in Texas rollout](https://finance.yahoo.com/news/feds-ask-musks-car-company-193532206.html)
+- May 13 - [Ex-model testifying that Harvey Weinstein sexually assaulted her questioned about private journal](https://www.yahoo.com/news/ex-model-testifying-harvey-weinstein-190156683.html)
+- May 13 - [Check out the Hellhound, a 375-mph 3D-printed turbojet-powered exploding drone competing for a spot in the US Army's arsenal](https://www.yahoo.com/news/check-hellhound-375-mph-3d-184920263.html)
+- May 13 - [See inside the pope's official residence, an expansive apartment with nearly a dozen rooms](https://www.yahoo.com/news/see-inside-popes-official-residence-183315739.html)
+- May 13 - [The Cheesesteak Anthony Bourdain Said Should Be A 'National Landmark' Isn't From Philly](https://www.yahoo.com/lifestyle/cheesesteak-anthony-bourdain-said-national-183000033.html)
 <!-- feed end -->
 
 ### Onstream
