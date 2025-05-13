@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [US and Saudi Arabia sign $142 billion weapons deal](https://www.yahoo.com/news/us-saudi-arabia-sign-142-145423729.html)
-- May 13 - [Nodule found in former President Joe Biden’s prostate during routine physical exam](https://www.yahoo.com/news/nodule-found-former-president-joe-142127246.html)
-- May 13 - [BMW-Driving Former Cheerleader Allegedly Hits Cop With Car](https://www.yahoo.com/news/bmw-driving-former-cheerleader-allegedly-141203687.html)
-- May 13 - [UK's M&S says customer data was taken in cyber attack](https://finance.yahoo.com/video/uks-m-says-customer-data-134734315.html)
-- May 13 - [Parkland survivor David Hogg to be ousted from DNC following investigation into his election](https://www.yahoo.com/news/parkland-survivor-david-hogg-ousted-132014456.html)
+- May 13 - [US–China deal is a 'dream scenario' for Apple and Nvidia](https://finance.yahoo.com/video/us-china-deal-dream-scenario-162253229.html)
+- May 13 - [India rejects Trump's claim his trade concessions de-escalated India-Pakistan tensions](https://www.yahoo.com/news/india-rejects-trumps-claim-trade-160155064.html)
+- May 13 - [Nissan to cut 11,000 more jobs and shut seven factories](https://finance.yahoo.com/news/nissan-cut-11-000-more-081857031.html)
+- May 13 - [Why is hay fever so bad this year?](https://www.yahoo.com/lifestyle/why-hay-fever-so-bad-this-year-153624684.html)
+- May 13 - [‘Stitch-up’ or scandal? What triggered the downfall of Britain’s Sea Lord](https://www.yahoo.com/news/stitch-scandal-triggered-downfall-britain-151728955.html)
 <!-- feed end -->
 
 ### Onstream
