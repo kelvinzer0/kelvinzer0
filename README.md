@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Trade deal: de minimis tariffs slashed, Boeing ban lifted](https://www.yahoo.com/news/trade-deal-minimis-tariffs-slashed-083554812.html)
-- May 13 - [My second wife says her 2 kids should inherit our estate, but I also have 2 kids. Is that fair?](https://finance.yahoo.com/news/second-wife-says-her-2-091900728.html)
-- May 13 - [Cannes Film Festival makes it official: No nudity on the red carpet or any other area of festival](https://www.yahoo.com/entertainment/articles/cannes-film-festival-makes-official-071643041.html)
-- May 13 - [Bop House Claps Back at Kai Cenat With the Launch of Their Own Streaming School](https://www.yahoo.com/entertainment/articles/bop-house-claps-back-kai-070434454.html)
-- May 13 - [China says fentanyl issue is responsibility of the United States](https://www.yahoo.com/news/china-says-fentanyl-issue-responsibility-063228936.html)
+- May 13 - [Rigetti Computing Reports Earnings. How the Company Takes a Different Approach to Quantum.](https://www.barrons.com/articles/rigetti-computing-stock-earnings-4fbf2c37?siteid=yhoof2&yptr=yahoo)
+- May 13 - [Nissan to cut 11,000 more jobs and shut seven factories](https://finance.yahoo.com/news/nissan-cut-11-000-more-081857031.html)
+- May 13 - [As Budgets Tighten, Frozen Pizza Becomes a Telltale Sign of Economic Strain](https://finance.yahoo.com/news/budgets-tighten-frozen-pizza-becomes-100100397.html)
+- May 13 - [The Smartest High-Yield Dividend Stocks in Warren Buffett's "Secret Portfolio" to Buy Right Now](https://finance.yahoo.com/news/smartest-high-yield-dividend-stocks-094100605.html)
+- May 13 - [Warren Buffett Says to Buy This Vanguard ETF. It Could Turn $1,000 Per Month Into $228,000 in 10 Years.](https://finance.yahoo.com/news/warren-buffett-says-buy-vanguard-090800134.html)
 <!-- feed end -->
 
 ### Onstream
