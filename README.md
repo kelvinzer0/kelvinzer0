@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Nvidia Racks Hit 1,500 in April, Momentum Grows](https://finance.yahoo.com/news/nvidia-racks-hit-1-500-155225447.html)
-- May 14 - [Nvidia, Super Micro Computer, Sony: Trending Tickers](https://finance.yahoo.com/video/nvidia-super-micro-computer-sony-154340084.html)
-- May 14 - [As Sales Continue to Plummet, Tesla Is Considering a Massive Payday for Elon Musk](https://finance.yahoo.com/news/sales-continue-plummet-tesla-considering-153816678.html)
+- May 14 - [FedEx employee fired for attending Alcoholics Anonymous meeting claims ‘anti-white’ discrimination](https://www.yahoo.com/news/fedex-employee-fired-attending-alcoholics-160557382.html)
+- May 14 - [New York prison guard says he cleaned up blood of fatally beaten inmate in plea](https://www.yahoo.com/news/york-prison-guard-says-cleaned-160000683.html)
+- May 14 - [Nvidia, Tesla, Warner Bros. Discovery: Trending Tickers](https://finance.yahoo.com/video/nvidia-tesla-warner-bros-discovery-155255862.html)
+- May 14 - [Coinbase Adviser Says This Is What's Driving Bitcoin's Surge Above $100K](https://finance.yahoo.com/news/coinbase-adviser-says-whats-driving-152410430.html)
 - May 14 - [FBI says it broke up a plan to attack an Army site in suburban Detroit](https://www.yahoo.com/news/fbi-says-broke-plan-attack-151617055.html)
-- May 14 - [Trump will pardon Diddy if rapper convicted: Suge Knight](https://www.yahoo.com/news/trump-pardon-diddy-rapper-convicted-135505847.html)
 <!-- feed end -->
 
 ### Onstream
