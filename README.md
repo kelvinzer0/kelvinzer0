@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [BYD tops Singapore vehicle sales so far this year, replacing Toyota](https://finance.yahoo.com/news/byd-tops-singapore-vehicle-sales-061953929.html)
+- May 14 - [British teenager reported missing in Thailand is arrested in Georgia](https://www.yahoo.com/news/british-teenager-missing-thailand-155334167.html)
 - May 14 - [British banking analyst sentenced to a decade in Saudi prison, apparently over a tweet](https://www.yahoo.com/news/british-banking-analyst-sentenced-decade-061053999.html)
 - May 14 - [Ghost in the machine? Rogue communication devices found in Chinese inverters](https://www.yahoo.com/news/ghost-machine-rogue-communication-devices-050547906.html)
 - May 14 - [Moskowitz says DOGE caucus is dead: ‘A complete failure’](https://www.yahoo.com/news/moskowitz-says-doge-caucus-dead-020054023.html)
