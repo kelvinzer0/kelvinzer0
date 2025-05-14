@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 14 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
-- May 14 - [Lawrence O'Donnell Sums Up Trump's Middle East Trip In 2 Scathing Words](https://www.yahoo.com/news/lawrence-odonnell-sums-trumps-middle-084611786.html)
-- May 14 - [British banking analyst sentenced to a decade in Saudi prison, apparently over a tweet](https://www.yahoo.com/news/british-banking-analyst-sentenced-decade-061053999.html)
+- May 14 - [British banking analyst jailed in Saudi Arabia for 10 years over 'unknown tweet'](https://www.yahoo.com/news/british-banking-analyst-sentenced-decade-061053999.html)
 - May 14 - [Ghost in the machine? Rogue communication devices found in Chinese inverters](https://www.yahoo.com/news/ghost-machine-rogue-communication-devices-050547906.html)
 - May 14 - [Real purpose of Trump's Mideast trip comes into focus as his explanations fall apart under scrutiny](https://www.yahoo.com/news/real-purpose-trumps-mideast-trip-043228595.html)
+- May 14 - [Moskowitz says DOGE caucus is dead: ‘A complete failure’](https://www.yahoo.com/news/moskowitz-says-doge-caucus-dead-020054023.html)
 <!-- feed end -->
 
 ### Onstream
