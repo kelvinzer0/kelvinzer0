@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Three climbers fell 400 feet to their death. One climber survived and drove to a pay phone](https://www.yahoo.com/news/three-climbers-fell-400-feet-232701225.html)
 - May 13 - [US judge says Trump can use Alien Enemies Act for deportations](https://www.yahoo.com/news/us-judge-says-trump-alien-221808624.html)
-- May 13 - [Nvidia CEO's net worth nears $120 billion as shares surge on Saudi chip deal](https://finance.yahoo.com/news/nvidia-ceos-net-worth-nears-220849508.html)
 - May 13 - [Mexican security chief confirms cartel family members entered US in a deal with Trump administration](https://www.yahoo.com/news/mexican-security-chief-confirms-cartel-220744568.html)
-- May 13 - [A lack of oxygen likely incapacitated the pilot of a private jet that crashed in Virginia in 2023](https://www.yahoo.com/news/lack-oxygen-likely-incapacitated-pilot-213017053.html)
-- May 13 - [Exclusive-Houthi ceasefire followed US intel showing militants sought off-ramp](https://www.yahoo.com/news/exclusive-houthi-ceasefire-followed-us-205819725.html)
+- May 13 - [Bill Gates Left Behind By Satoshi Nakamoto: Bitcoin Creator's Wealth Now Eclipses That Of Microsoft Co-Founder Amid Crypto's Sharp Rebound](https://finance.yahoo.com/news/bill-gates-left-behind-satoshi-213148842.html)
+- May 13 - [FDA warns seniors to avoid this vaccine after deadly complications](https://www.yahoo.com/news/fda-warns-seniors-avoid-vaccine-211144559.html)
 <!-- feed end -->
 
 ### Onstream
