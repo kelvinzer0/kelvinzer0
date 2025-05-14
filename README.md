@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [1 injured in shooting at Georgia university sparking shelter-in-place](https://www.yahoo.com/news/students-ga-university-told-shelter-004045441.html)
+- May 14 - [Airbnb offers private chefs and massages as it revamps app](https://finance.yahoo.com/news/airbnb-offers-private-chefs-massages-035809024.html)
 - May 14 - [Elon Musk gets devastating news as the 'anti-Tesla' catches on](https://finance.yahoo.com/news/elon-musk-gets-devastating-news-013700143.html)
-- May 14 - [F-47 Now Has An Officially Stated Combat Radius Of 1,000+ Nautical Miles](https://www.yahoo.com/news/f-47-now-officially-stated-010955872.html)
 - May 13 - [Three climbers fell 400 feet to their death. One climber survived and drove to a pay phone](https://www.yahoo.com/news/three-climbers-fell-400-feet-232701225.html)
 - May 13 - [US judge says Trump can use Alien Enemies Act for deportations](https://www.yahoo.com/news/us-judge-says-trump-alien-221808624.html)
+- May 13 - [Mexican security chief confirms cartel family members entered US in a deal with Trump administration](https://www.yahoo.com/news/mexican-security-chief-confirms-cartel-220744568.html)
 <!-- feed end -->
 
 ### Onstream
