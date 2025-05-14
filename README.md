@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 14 - [How to think about options trade coming off market turbulence](https://finance.yahoo.com/video/think-options-trade-coming-off-221500502.html)
+- May 14 - [‘First time we were hearing of them’: The GOP megabill is packed with surprises for some Republicans](https://www.yahoo.com/news/first-time-were-hearing-them-211508838.html)
 - May 14 - [Woman with Invisible Disability Mocked by Passengers When Trying to Pre-Board Flight. Then She Got the Last Laugh](https://www.yahoo.com/lifestyle/woman-invisible-disability-mocked-passengers-203846073.html)
-- May 14 - [Daniel Lee Is Staying Put as CEO Josh Schulman Positions Burberry for Growth](https://finance.yahoo.com/news/daniel-lee-staying-put-ceo-202736448.html)
 - May 14 - [Ex-FBI agent and Pentagon contractor sues over secret recording showing him criticizing Trump](https://www.yahoo.com/news/ex-fbi-agent-pentagon-contractor-201618846.html)
-- May 14 - [Ohio forecast to have a 'brief tornado' Thursday evening, with hail and rain possible](https://www.yahoo.com/news/ohio-forecast-brief-tornado-thursday-195305815.html)
-- May 14 - [Court clerk in Murdaugh murder trial charged with showing sealed photographs, perjury](https://www.yahoo.com/news/court-clerk-murdaugh-murder-trial-194541379.html)
+- May 14 - [Wisconsin judge argues prosecutors can't charge her with helping a man evade immigration agents](https://www.yahoo.com/news/wisconsin-judge-argues-prosecutors-cant-181945216.html)
 <!-- feed end -->
 
 ### Onstream
