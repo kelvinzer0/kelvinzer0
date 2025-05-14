@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [FedEx employee fired for attending Alcoholics Anonymous meeting claims ‘anti-white’ discrimination](https://www.yahoo.com/news/fedex-employee-fired-attending-alcoholics-160557382.html)
-- May 14 - [New York prison guard says he cleaned up blood of fatally beaten inmate in plea](https://www.yahoo.com/news/york-prison-guard-says-cleaned-160000683.html)
-- May 14 - [Nvidia, Tesla, Warner Bros. Discovery: Trending Tickers](https://finance.yahoo.com/video/nvidia-tesla-warner-bros-discovery-155255862.html)
-- May 14 - [Coinbase Adviser Says This Is What's Driving Bitcoin's Surge Above $100K](https://finance.yahoo.com/news/coinbase-adviser-says-whats-driving-152410430.html)
-- May 14 - [FBI says it broke up a plan to attack an Army site in suburban Detroit](https://www.yahoo.com/news/fbi-says-broke-plan-attack-151617055.html)
+- May 14 - [Ventas (NYSE:VTR) Declares Quarterly Dividend of US$0.48 Per Share](https://finance.yahoo.com/news/ventas-nyse-vtr-declares-quarterly-173802947.html)
+- May 14 - [DoorDash delivery driver pleads guilty to stealing $2.5 million in deliveries scam](https://www.yahoo.com/news/doordash-delivery-driver-pleads-guilty-172724853.html)
+- May 14 - [Trump marvels at wealth of his Arab hosts while he eyes White House and Air Force One upgrades](https://www.yahoo.com/news/trump-marvels-wealth-arab-hosts-165112543.html)
+- May 14 - [Man accused of sexually assaulting woman at downtown Tuscaloosa parking deck](https://www.yahoo.com/news/man-accused-sexually-assaulting-woman-164526814.html)
+- May 14 - [Man Plummets to His Death After Clinging to Rope Under Burning Hot Air Balloon During Festival](https://www.yahoo.com/entertainment/videos/man-plummets-death-clinging-rope-161800235.html)
 <!-- feed end -->
 
 ### Onstream
