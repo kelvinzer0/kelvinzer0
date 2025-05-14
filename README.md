@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 14 - [Saudi Arabia snaps up US chips following Trump's visit](https://finance.yahoo.com/news/saudi-arabia-snaps-us-chips-121109175.html)
+- May 14 - [United passengers endured a double diversion and a 28-hour journey over the Pacific](https://www.yahoo.com/news/united-passengers-endured-double-diversion-102052960.html)
 - May 14 - [House GOP’s Tiny Spanish Tweet Sparks Massive MAGA Tantrum](https://www.yahoo.com/news/house-gop-tiny-spanish-tweet-095436123.html)
-- May 14 - [Spousal Social Security Benefits: 3 Things Married Couples Must Know in Retirement](https://finance.yahoo.com/news/spousal-social-security-benefits-3-083600730.html)
-- May 14 - [British banking analyst jailed in Saudi Arabia for 10 years over 'unknown tweet'](https://www.yahoo.com/news/british-banking-analyst-sentenced-decade-061053999.html)
-- May 14 - [An engineer who worked for Palantir for 8 years says the company's interviews were 'impossible to prepare for'](https://finance.yahoo.com/news/engineer-worked-palantir-8-years-052341886.html)
-- May 14 - [Ghost in the machine? Rogue communication devices found in Chinese inverters](https://www.yahoo.com/news/ghost-machine-rogue-communication-devices-050547906.html)
+- May 14 - [Charlie Munger Once Mocked Jim Cramer For 'Pretending' To 'Know Everything' Then Explained Why Doing Less Made Him Billions](https://finance.yahoo.com/news/charlie-munger-once-mocked-jim-094630984.html)
+- May 14 - [‘My Property Tax Went From $15K to a Life-Altering $91K a Year’](https://www.yahoo.com/lifestyle/property-tax-went-15k-life-094500214.html)
 <!-- feed end -->
 
 ### Onstream
