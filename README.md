@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [This Caribbean Island Got an Updated Travel Advisory for Petty Crime and Violence—What Travelers Should Know](https://www.yahoo.com/news/caribbean-island-got-updated-travel-131400933.html)
-- May 14 - [Footage shows France's last two remaining orcas stuck in park months after closure](https://www.yahoo.com/news/footage-shows-frances-last-two-130406889.html)
-- May 14 - [Kim Jong-un tells North Korean army to prepare for war](https://www.yahoo.com/news/kim-jong-un-tells-north-125431850.html)
+- May 14 - [Scientists Accidentally Turned Lead Into Gold](https://www.yahoo.com/news/scientists-accidentally-turned-lead-gold-143516364.html)
+- May 14 - [We Asked 3 Dietitians Their Favorite Plant-Based Milk—They All Said the Same Thing](https://www.yahoo.com/lifestyle/asked-3-dietitians-favorite-plant-140000995.html)
+- May 14 - [The Walls of a 15th-Century Church Collapsed—and Out Fell 12 Hidden Skeletons](https://www.yahoo.com/news/walls-15th-century-church-collapsed-133000316.html)
 - May 14 - [Trump's Qatar trip is off to a flying start as Air Force One gets another fighter jet escort](https://www.yahoo.com/news/trumps-qatar-trip-off-flying-123503595.html)
-- May 14 - [Rivian and VW's new $22,500 car proves cheap EVs don't have to be low-tech, the Tesla rival's software boss says](https://finance.yahoo.com/news/rivian-vws-22-500-car-120450914.html)
+- May 14 - [A Crew Was Digging Under a Buddha Statue—and Found a 1,300-Year-Old Gold Treasure](https://www.yahoo.com/news/crew-digging-under-buddha-statue-120000379.html)
 <!-- feed end -->
 
 ### Onstream
