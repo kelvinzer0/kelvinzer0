@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Tulsi Gabbard Fires Officials After Assessment Finds Trump's Tren De Aragua Claims False](https://www.yahoo.com/news/tulsi-gabbard-fires-officials-assessment-194823870.html)
-- May 14 - [As eyes turn toward Turkey, a question looms: Who will show up for Russia-Ukraine peace talks?](https://www.yahoo.com/news/eyes-turn-toward-turkey-looms-193319868.html)
-- May 14 - [The Future of Supersonic Travel](https://finance.yahoo.com/video/future-supersonic-travel-192756208.html)
-- May 14 - [Why Penn State York has been recommended for closure and why stakeholders hope it remains](https://www.yahoo.com/news/why-penn-state-york-recommended-185947400.html)
-- May 14 - [OpenAI brings its GPT-4.1 models to ChatGPT](https://finance.yahoo.com/news/openai-brings-gpt-4-1-185552629.html)
+- May 14 - [Woman with Invisible Disability Mocked by Passengers When Trying to Pre-Board Flight. Then She Got the Last Laugh](https://www.yahoo.com/lifestyle/woman-invisible-disability-mocked-passengers-203846073.html)
+- May 14 - [Daniel Lee Is Staying Put as CEO Josh Schulman Positions Burberry for Growth](https://finance.yahoo.com/news/daniel-lee-staying-put-ceo-202736448.html)
+- May 14 - [Ex-FBI agent and Pentagon contractor sues over secret recording showing him criticizing Trump](https://www.yahoo.com/news/ex-fbi-agent-pentagon-contractor-201618846.html)
+- May 14 - [Ohio forecast to have a 'brief tornado' Thursday evening, with hail and rain possible](https://www.yahoo.com/news/ohio-forecast-brief-tornado-thursday-195305815.html)
+- May 14 - [Court clerk in Murdaugh murder trial charged with showing sealed photographs, perjury](https://www.yahoo.com/news/court-clerk-murdaugh-murder-trial-194541379.html)
 <!-- feed end -->
 
 ### Onstream
