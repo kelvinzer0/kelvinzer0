@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
+- May 14 - [House GOP’s Tiny Spanish Tweet Sparks Massive MAGA Tantrum](https://www.yahoo.com/news/house-gop-tiny-spanish-tweet-095436123.html)
+- May 14 - [Spousal Social Security Benefits: 3 Things Married Couples Must Know in Retirement](https://finance.yahoo.com/news/spousal-social-security-benefits-3-083600730.html)
 - May 14 - [British banking analyst jailed in Saudi Arabia for 10 years over 'unknown tweet'](https://www.yahoo.com/news/british-banking-analyst-sentenced-decade-061053999.html)
+- May 14 - [An engineer who worked for Palantir for 8 years says the company's interviews were 'impossible to prepare for'](https://finance.yahoo.com/news/engineer-worked-palantir-8-years-052341886.html)
 - May 14 - [Ghost in the machine? Rogue communication devices found in Chinese inverters](https://www.yahoo.com/news/ghost-machine-rogue-communication-devices-050547906.html)
-- May 14 - [Real purpose of Trump's Mideast trip comes into focus as his explanations fall apart under scrutiny](https://www.yahoo.com/news/real-purpose-trumps-mideast-trip-043228595.html)
-- May 14 - [Moskowitz says DOGE caucus is dead: ‘A complete failure’](https://www.yahoo.com/news/moskowitz-says-doge-caucus-dead-020054023.html)
 <!-- feed end -->
 
 ### Onstream
