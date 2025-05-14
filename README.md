@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Scientists Accidentally Turned Lead Into Gold](https://www.yahoo.com/news/scientists-accidentally-turned-lead-gold-143516364.html)
-- May 14 - [We Asked 3 Dietitians Their Favorite Plant-Based Milk—They All Said the Same Thing](https://www.yahoo.com/lifestyle/asked-3-dietitians-favorite-plant-140000995.html)
-- May 14 - [The Walls of a 15th-Century Church Collapsed—and Out Fell 12 Hidden Skeletons](https://www.yahoo.com/news/walls-15th-century-church-collapsed-133000316.html)
-- May 14 - [Trump's Qatar trip is off to a flying start as Air Force One gets another fighter jet escort](https://www.yahoo.com/news/trumps-qatar-trip-off-flying-123503595.html)
-- May 14 - [A Crew Was Digging Under a Buddha Statue—and Found a 1,300-Year-Old Gold Treasure](https://www.yahoo.com/news/crew-digging-under-buddha-statue-120000379.html)
+- May 14 - [Nvidia Racks Hit 1,500 in April, Momentum Grows](https://finance.yahoo.com/news/nvidia-racks-hit-1-500-155225447.html)
+- May 14 - [Nvidia, Super Micro Computer, Sony: Trending Tickers](https://finance.yahoo.com/video/nvidia-super-micro-computer-sony-154340084.html)
+- May 14 - [As Sales Continue to Plummet, Tesla Is Considering a Massive Payday for Elon Musk](https://finance.yahoo.com/news/sales-continue-plummet-tesla-considering-153816678.html)
+- May 14 - [FBI says it broke up a plan to attack an Army site in suburban Detroit](https://www.yahoo.com/news/fbi-says-broke-plan-attack-151617055.html)
+- May 14 - [Trump will pardon Diddy if rapper convicted: Suge Knight](https://www.yahoo.com/news/trump-pardon-diddy-rapper-convicted-135505847.html)
 <!-- feed end -->
 
 ### Onstream
