@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Funds from migrants sent back home help fuel some towns' economies. A GOP plan targets that](https://www.yahoo.com/news/funds-migrants-sent-back-home-125407864.html)
+- May 14 - [This Caribbean Island Got an Updated Travel Advisory for Petty Crime and Violence—What Travelers Should Know](https://www.yahoo.com/news/caribbean-island-got-updated-travel-131400933.html)
+- May 14 - [Footage shows France's last two remaining orcas stuck in park months after closure](https://www.yahoo.com/news/footage-shows-frances-last-two-130406889.html)
+- May 14 - [Kim Jong-un tells North Korean army to prepare for war](https://www.yahoo.com/news/kim-jong-un-tells-north-125431850.html)
 - May 14 - [Trump's Qatar trip is off to a flying start as Air Force One gets another fighter jet escort](https://www.yahoo.com/news/trumps-qatar-trip-off-flying-123503595.html)
 - May 14 - [Rivian and VW's new $22,500 car proves cheap EVs don't have to be low-tech, the Tesla rival's software boss says](https://finance.yahoo.com/news/rivian-vws-22-500-car-120450914.html)
-- May 14 - [Thai officials seize over 200 tons of illegally imported electronic waste from the US](https://www.yahoo.com/news/thai-officials-seize-over-200-112527815.html)
-- May 14 - [United passengers endured a double diversion and a 28-hour journey over the Pacific](https://www.yahoo.com/news/united-passengers-endured-double-diversion-102052960.html)
 <!-- feed end -->
 
 ### Onstream
