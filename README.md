@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Ventas (NYSE:VTR) Declares Quarterly Dividend of US$0.48 Per Share](https://finance.yahoo.com/news/ventas-nyse-vtr-declares-quarterly-173802947.html)
-- May 14 - [DoorDash delivery driver pleads guilty to stealing $2.5 million in deliveries scam](https://www.yahoo.com/news/doordash-delivery-driver-pleads-guilty-172724853.html)
+- May 14 - [More than 1,000 Starbucks baristas go on strike to protest new dress code](https://www.yahoo.com/news/more-1-000-starbucks-baristas-182236238.html)
+- May 14 - [Wisconsin judge argues prosecutors can't charge her with helping a man evade immigration agents](https://www.yahoo.com/news/wisconsin-judge-argues-prosecutors-cant-181945216.html)
+- May 14 - [Calhoun County Sheriff's Office 'increasingly concerned' as teen remains missing](https://www.yahoo.com/news/calhoun-county-sheriffs-office-increasingly-173358912.html)
 - May 14 - [Trump marvels at wealth of his Arab hosts while he eyes White House and Air Force One upgrades](https://www.yahoo.com/news/trump-marvels-wealth-arab-hosts-165112543.html)
-- May 14 - [Man accused of sexually assaulting woman at downtown Tuscaloosa parking deck](https://www.yahoo.com/news/man-accused-sexually-assaulting-woman-164526814.html)
-- May 14 - [Man Plummets to His Death After Clinging to Rope Under Burning Hot Air Balloon During Festival](https://www.yahoo.com/entertainment/videos/man-plummets-death-clinging-rope-161800235.html)
+- May 14 - [FedEx employee fired for attending Alcoholics Anonymous meeting claims ‘anti-white’ discrimination](https://www.yahoo.com/news/fedex-employee-fired-attending-alcoholics-160557382.html)
 <!-- feed end -->
 
 ### Onstream
