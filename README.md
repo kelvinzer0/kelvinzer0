@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 14 - [What did India and Pakistan gain – and lose – in their military standoff?](https://www.yahoo.com/news/did-india-pakistan-gain-lose-055125377.html)
+- May 14 - [Ghost in the machine? Rogue communication devices found in Chinese inverters](https://www.yahoo.com/news/ghost-machine-rogue-communication-devices-050547906.html)
+- May 14 - [Moskowitz says DOGE caucus is dead: ‘A complete failure’](https://www.yahoo.com/news/moskowitz-says-doge-caucus-dead-020054023.html)
 - May 14 - [Elon Musk gets devastating news as the 'anti-Tesla' catches on](https://finance.yahoo.com/news/elon-musk-gets-devastating-news-013700143.html)
-- May 13 - [Three climbers fell 400 feet to their death. One climber survived and drove to a pay phone](https://www.yahoo.com/news/three-climbers-fell-400-feet-232701225.html)
-- May 13 - [US judge says Trump can use Alien Enemies Act for deportations](https://www.yahoo.com/news/us-judge-says-trump-alien-221808624.html)
-- May 13 - [Mexican security chief confirms cartel family members entered US in a deal with Trump administration](https://www.yahoo.com/news/mexican-security-chief-confirms-cartel-220744568.html)
-- May 13 - [Bill Gates Left Behind By Satoshi Nakamoto: Bitcoin Creator's Wealth Now Eclipses That Of Microsoft Co-Founder Amid Crypto's Sharp Rebound](https://finance.yahoo.com/news/bill-gates-left-behind-satoshi-213148842.html)
+- May 13 - [Remains found in Salt Lake confirmed to be University of Utah student who disappeared in 1973](https://www.yahoo.com/news/remains-found-salt-lake-confirmed-234148940.html)
 <!-- feed end -->
 
 ### Onstream
