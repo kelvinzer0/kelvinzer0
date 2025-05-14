@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [More than 1,000 Starbucks baristas go on strike to protest new dress code](https://www.yahoo.com/news/more-1-000-starbucks-baristas-182236238.html)
-- May 14 - [Wisconsin judge argues prosecutors can't charge her with helping a man evade immigration agents](https://www.yahoo.com/news/wisconsin-judge-argues-prosecutors-cant-181945216.html)
-- May 14 - [Calhoun County Sheriff's Office 'increasingly concerned' as teen remains missing](https://www.yahoo.com/news/calhoun-county-sheriffs-office-increasingly-173358912.html)
-- May 14 - [Trump marvels at wealth of his Arab hosts while he eyes White House and Air Force One upgrades](https://www.yahoo.com/news/trump-marvels-wealth-arab-hosts-165112543.html)
-- May 14 - [FedEx employee fired for attending Alcoholics Anonymous meeting claims ‘anti-white’ discrimination](https://www.yahoo.com/news/fedex-employee-fired-attending-alcoholics-160557382.html)
+- May 14 - [Tulsi Gabbard Fires Officials After Assessment Finds Trump's Tren De Aragua Claims False](https://www.yahoo.com/news/tulsi-gabbard-fires-officials-assessment-194823870.html)
+- May 14 - [As eyes turn toward Turkey, a question looms: Who will show up for Russia-Ukraine peace talks?](https://www.yahoo.com/news/eyes-turn-toward-turkey-looms-193319868.html)
+- May 14 - [The Future of Supersonic Travel](https://finance.yahoo.com/video/future-supersonic-travel-192756208.html)
+- May 14 - [Why Penn State York has been recommended for closure and why stakeholders hope it remains](https://www.yahoo.com/news/why-penn-state-york-recommended-185947400.html)
+- May 14 - [OpenAI brings its GPT-4.1 models to ChatGPT](https://finance.yahoo.com/news/openai-brings-gpt-4-1-185552629.html)
 <!-- feed end -->
 
 ### Onstream
