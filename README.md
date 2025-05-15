@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Once ‘dead’ thrusters on the farthest spacecraft from Earth are in action again](https://www.yahoo.com/news/dead-thrusters-revived-help-voyager-003047672.html)
-- May 15 - [After Pilot Lost Consciousness, Plane Likely Continued on Autopilot Until Crash That Killed 4, Including Mom and Child: NTSB](https://www.yahoo.com/news/pilot-lost-consciousness-plane-likely-000319804.html)
+- May 15 - [Venus May Be More Earth-Like Than We Thought – And It's Still Moving](https://www.yahoo.com/news/venus-may-more-earth-thought-024915834.html)
+- May 15 - [A mom is accused of buying ammunition and tactical gear for her son, who authorities say was planning ‘mass targeted violence’ at a Texas school](https://www.yahoo.com/news/mom-accused-buying-ammunition-tactical-005825548.html)
+- May 14 - [18-year-old flees New Jersey home after alleged abuse and confinement in dog crate](https://www.yahoo.com/news/18-old-flees-jersey-home-232403972.html)
 - May 14 - [Here is how California Gov. Gavin Newsom plans to address a $12 billion budget shortfall](https://www.yahoo.com/news/california-gov-gavin-newsom-plans-225636518.html)
 - May 14 - [3 Magnificent S&P 500 Dividend Stocks Down 62%, 63%, and 64% to Buy and Hold Forever](https://finance.yahoo.com/news/3-magnificent-p-500-dividend-220500550.html)
-- May 14 - [‘First time we were hearing of them’: The GOP megabill is packed with surprises for some Republicans](https://www.yahoo.com/news/first-time-were-hearing-them-211508838.html)
 <!-- feed end -->
 
 ### Onstream
