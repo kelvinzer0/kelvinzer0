@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Walmart Delivers Strong Sales, Warns of Price Increases](https://finance.yahoo.com/video/walmart-delivers-strong-sales-warns-130044016.html)
-- May 15 - [Prediction: This Artificial Intelligence (AI) Stock Could Be Worth More Than Nvidia by 2030](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-130000905.html)
-- May 15 - [Fed's Powell says US may be entering period of more frequent and persistent 'supply shocks'](https://finance.yahoo.com/news/feds-powell-says-us-may-be-entering-period-of-more-frequent-and-persistent-supply-shocks-124005846.html)
-- May 15 - [Kohberger set to appear in court for last time before jury selection](https://www.yahoo.com/news/kohberger-set-appear-court-last-123610289.html)
-- May 15 - [This Dem Lawmaker Is Going Viral For His Extremely Shady Question To Secretary Kristi Noem](https://www.yahoo.com/news/democrat-going-viral-hilarious-secretary-121008812.html)
+- May 15 - [Coinbase said cyber crooks stole customer information and demanded $20 million ransom payment](https://finance.yahoo.com/news/coinbase-said-cyber-crooks-stole-144847123.html)
+- May 15 - [Cincinnati's daredevil photographer who spawned nationwide manhunt opens gallery in NYC](https://www.yahoo.com/entertainment/articles/cincinnatis-daredevil-photographer-spawned-nationwide-144116109.html)
+- May 15 - [A mom is accused of buying ammunition and tactical gear for her son, despite repeated warnings about violent plans at school](https://www.yahoo.com/news/mom-accused-buying-ammunition-tactical-005825548.html)
+- May 15 - [First on CNN: Dangerously high levels of arsenic and cadmium found in store-bought rice, report finds](https://www.yahoo.com/news/exclusive-arsenic-cadmium-levels-dangerously-090050710.html)
+- May 15 - [2 Killer Whales and 12 Dolphins Abandoned at Closed Marine Park. 4 Months Later, Their Fate Is Still Uncertain](https://www.yahoo.com/news/2-killer-whales-12-dolphins-134921812.html)
 <!-- feed end -->
 
 ### Onstream
