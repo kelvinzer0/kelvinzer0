@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 15 - [Once ‘dead’ thrusters on the farthest spacecraft from Earth are in action again](https://www.yahoo.com/news/dead-thrusters-revived-help-voyager-003047672.html)
 - May 15 - [After Pilot Lost Consciousness, Plane Likely Continued on Autopilot Until Crash That Killed 4, Including Mom and Child: NTSB](https://www.yahoo.com/news/pilot-lost-consciousness-plane-likely-000319804.html)
 - May 14 - [Here is how California Gov. Gavin Newsom plans to address a $12 billion budget shortfall](https://www.yahoo.com/news/california-gov-gavin-newsom-plans-225636518.html)
-- May 14 - [Woman with Invisible Disability Mocked by Passengers When Trying to Pre-Board Flight. Then She Got the Last Laugh](https://www.yahoo.com/lifestyle/woman-invisible-disability-mocked-passengers-203846073.html)
-- May 14 - [Ex-FBI agent and Pentagon contractor sues over secret recording showing him criticizing Trump](https://www.yahoo.com/news/ex-fbi-agent-pentagon-contractor-201618846.html)
-- May 14 - [Lockheed Martin anticipates sooner-than-expected F-35 award](https://finance.yahoo.com/news/lockheed-martin-anticipates-sooner-expected-191457802.html)
+- May 14 - [3 Magnificent S&P 500 Dividend Stocks Down 62%, 63%, and 64% to Buy and Hold Forever](https://finance.yahoo.com/news/3-magnificent-p-500-dividend-220500550.html)
+- May 14 - [‘First time we were hearing of them’: The GOP megabill is packed with surprises for some Republicans](https://www.yahoo.com/news/first-time-were-hearing-them-211508838.html)
 <!-- feed end -->
 
 ### Onstream
