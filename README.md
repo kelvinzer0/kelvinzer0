@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Popular restaurant chain imitates MicroStrategy and Tesla in its operations](https://finance.yahoo.com/news/popular-restaurant-chain-imitates-microstrategy-155512760.html)
+- May 15 - [New Canadian agriculture minister to tackle China, US trade issues](https://finance.yahoo.com/news/canadian-agriculture-minister-tackle-china-175752113.html)
+- May 15 - [Sole survivor of a 400-foot rock climbing fall told 911 dispatcher he could 'hardly breathe'](https://www.yahoo.com/news/sole-survivor-400-foot-rock-172613177.html)
+- May 15 - [Tennessee school vouchers awarded on first-come basis: How to apply, who qualifies](https://www.yahoo.com/news/tennessee-school-vouchers-awarded-first-164859059.html)
 - May 15 - [Putin's negotiator at Istanbul talks says Moscow's aim is to secure a long-lasting peace with Ukraine](https://www.yahoo.com/news/putins-negotiator-istanbul-talks-says-152155297.html)
 - May 15 - [A mom is accused of buying ammunition and tactical gear for her son, despite repeated warnings about violent plans at school](https://www.yahoo.com/news/mom-accused-buying-ammunition-tactical-005825548.html)
-- May 15 - [Democrats Responded To A New Anti-Porn Bill With An Image That Will Haunt Ted Cruz Forever](https://www.yahoo.com/news/democrats-response-anti-porn-bill-141042936.html)
-- May 15 - [First on CNN: Dangerously high levels of arsenic and cadmium found in store-bought rice, report finds](https://www.yahoo.com/news/exclusive-arsenic-cadmium-levels-dangerously-090050710.html)
 <!-- feed end -->
 
 ### Onstream
