@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [This is the 'number one place to play offense,' strategist says](https://finance.yahoo.com/video/number-one-place-play-offense-205840993.html)
-- May 15 - [Is U.S. at risk of national security breach? Rep. Himes slams firings of top intel officials](https://www.yahoo.com/news/u-risk-national-security-breach-201520374.html)
-- May 15 - [Do I have to give border control my phone's password? What travelers should know.](https://www.yahoo.com/news/border-control-phones-password-travelers-200836794.html)
-- May 15 - [Mom Was Overjoyed After Welcoming Son. 9 Days Later, Doctors Found a Tumor in Her Placenta](https://www.yahoo.com/lifestyle/mom-overjoyed-welcoming-son-9-193444819.html)
-- May 15 - [Missing hiker found safe after surviving weeks in snowy California mountains](https://www.yahoo.com/news/missing-hiker-found-safe-surviving-190117515.html)
+- May 15 - [Co-founder says eToro IPO is a testament to market recovery as it aims to become a go-to investment app](https://finance.yahoo.com/news/co-founder-says-etoro-ipo-is-a-testament-to-market-recovery-as-it-aims-to-become-a-go-to-investment-app-214008749.html)
+- May 15 - [No students injured after school bus crash in northwest Charlotte](https://www.yahoo.com/news/school-bus-crash-shuts-down-203002074.html)
+- May 15 - [Judge cites lack of confidence in Homeland Security, issues injunction in UI case](https://www.yahoo.com/news/judge-cites-lack-confidence-homeland-210141680.html)
+- May 15 - [Aldi Just Announced a Major Store Update That Has Shoppers So Excited](https://finance.yahoo.com/news/aldi-just-announced-major-store-201500514.html)
+- May 15 - [One of America’s biggest companies is imploding](https://finance.yahoo.com/news/one-america-biggest-companies-imploding-200950648.html)
 <!-- feed end -->
 
 ### Onstream
