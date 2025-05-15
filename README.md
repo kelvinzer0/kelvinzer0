@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [TikTok beauty influencer shot dead during live stream in Mexico](https://www.yahoo.com/news/tiktok-beauty-influencer-shot-dead-213559862.html)
-- May 15 - [A mom is accused of buying ammunition and tactical gear for her son, who authorities say was planning ‘mass targeted violence’ at a Texas school](https://www.yahoo.com/news/mom-accused-buying-ammunition-tactical-005825548.html)
+- May 15 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
 - May 15 - [Harvard thought it had a cheap copy of the Magna Carta. It turned out be extremely rare](https://www.yahoo.com/news/harvard-thought-had-cheap-copy-040440389.html)
 - May 14 - [Here is how California Gov. Gavin Newsom plans to address a $12 billion budget shortfall](https://www.yahoo.com/news/california-gov-gavin-newsom-plans-225636518.html)
-- May 14 - [Unusual-looking rattlesnake found in Arizona backyard: 'This is a first'](https://www.yahoo.com/news/unusual-looking-rattlesnake-found-arizona-224956135.html)
+- May 14 - [3 Magnificent S&P 500 Dividend Stocks Down 62%, 63%, and 64% to Buy and Hold Forever](https://finance.yahoo.com/news/3-magnificent-p-500-dividend-220500550.html)
+- May 14 - [Putin to skip Ukraine talks, Russian team includes seasoned negotiators](https://www.yahoo.com/news/russian-delegation-ukraine-talks-includes-204015312.html)
 <!-- feed end -->
 
 ### Onstream
