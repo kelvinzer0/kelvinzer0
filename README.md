@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 15 - [Russian nationalists press Putin to fight on in Ukraine](https://www.yahoo.com/news/analysis-putin-explores-peace-options-125301388.html)
 - May 15 - [Tracking the disinfo on Macron's 'cocaine use' in Ukraine](https://www.yahoo.com/news/tracking-disinfo-macrons-cocaine-ukraine-113313118.html)
-- May 15 - [A doctor who owns a longevity clinic shared his simple 5-step morning routine](https://www.yahoo.com/lifestyle/doctor-owns-longevity-clinic-shared-110452908.html)
+- May 15 - [Homeowners devastated after learning brutal reason their insurance claims were denied: 'Like a punch in the gut'](https://www.yahoo.com/news/homeowners-devastated-learning-brutal-reason-111553863.html)
 - May 15 - [Exclusive-Musk took leased cars back so Tesla could use them as "robotaxis." Instead, Tesla sold them](https://finance.yahoo.com/news/exclusive-musk-took-leased-cars-110200609.html)
-- May 15 - [Florida set to execute suspected serial killer once eyed for possible link to the OJ Simpson case](https://www.yahoo.com/news/florida-set-execute-suspected-serial-105505731.html)
-- May 15 - [Estonia warns Russia may use military force to defend its shadow fleet of tankers dodging sanctions](https://www.yahoo.com/news/estonia-warns-russia-may-military-104713817.html)
+- May 15 - [Coinbase expects up to $400 million hit from cyber attack](https://tech.yahoo.com/cybersecurity/articles/coinbase-says-cyber-criminals-stole-105819971.html)
 <!-- feed end -->
 
 ### Onstream
