@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [New Canadian agriculture minister to tackle China, US trade issues](https://finance.yahoo.com/news/canadian-agriculture-minister-tackle-china-175752113.html)
+- May 15 - [Nearly 25 guests, crew sick in luxury cruise gastrointestinal outbreak](https://www.yahoo.com/news/nearly-25-guests-crew-sick-174526972.html)
 - May 15 - [Sole survivor of a 400-foot rock climbing fall told 911 dispatcher he could 'hardly breathe'](https://www.yahoo.com/news/sole-survivor-400-foot-rock-172613177.html)
-- May 15 - [Tennessee school vouchers awarded on first-come basis: How to apply, who qualifies](https://www.yahoo.com/news/tennessee-school-vouchers-awarded-first-164859059.html)
 - May 15 - [Putin's negotiator at Istanbul talks says Moscow's aim is to secure a long-lasting peace with Ukraine](https://www.yahoo.com/news/putins-negotiator-istanbul-talks-says-152155297.html)
 - May 15 - [A mom is accused of buying ammunition and tactical gear for her son, despite repeated warnings about violent plans at school](https://www.yahoo.com/news/mom-accused-buying-ammunition-tactical-005825548.html)
+- May 15 - [Supreme Court Chief Justice Roberts reins in Sotomayor after repeated interruptions](https://www.yahoo.com/news/supreme-court-chief-justice-roberts-144948825.html)
 <!-- feed end -->
 
 ### Onstream
