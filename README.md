@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Coinbase said cyber crooks stole customer information and demanded $20 million ransom payment](https://finance.yahoo.com/news/coinbase-said-cyber-crooks-stole-144847123.html)
-- May 15 - [Cincinnati's daredevil photographer who spawned nationwide manhunt opens gallery in NYC](https://www.yahoo.com/entertainment/articles/cincinnatis-daredevil-photographer-spawned-nationwide-144116109.html)
 - May 15 - [A mom is accused of buying ammunition and tactical gear for her son, despite repeated warnings about violent plans at school](https://www.yahoo.com/news/mom-accused-buying-ammunition-tactical-005825548.html)
+- May 15 - [EV Maker Lost $44M in Q1 After Delivering Just Two Vehicles](https://finance.yahoo.com/news/ev-maker-lost-44m-q1-142215548.html)
+- May 15 - [Democrats Responded To A New Anti-Porn Bill With An Image That Will Haunt Ted Cruz Forever](https://www.yahoo.com/news/democrats-response-anti-porn-bill-141042936.html)
 - May 15 - [First on CNN: Dangerously high levels of arsenic and cadmium found in store-bought rice, report finds](https://www.yahoo.com/news/exclusive-arsenic-cadmium-levels-dangerously-090050710.html)
 - May 15 - [2 Killer Whales and 12 Dolphins Abandoned at Closed Marine Park. 4 Months Later, Their Fate Is Still Uncertain](https://www.yahoo.com/news/2-killer-whales-12-dolphins-134921812.html)
 <!-- feed end -->
