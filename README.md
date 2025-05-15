@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Russian nationalists press Putin to fight on in Ukraine](https://www.yahoo.com/news/analysis-putin-explores-peace-options-125301388.html)
-- May 15 - [Tracking the disinfo on Macron's 'cocaine use' in Ukraine](https://www.yahoo.com/news/tracking-disinfo-macrons-cocaine-ukraine-113313118.html)
-- May 15 - [Homeowners devastated after learning brutal reason their insurance claims were denied: 'Like a punch in the gut'](https://www.yahoo.com/news/homeowners-devastated-learning-brutal-reason-111553863.html)
-- May 15 - [Exclusive-Musk took leased cars back so Tesla could use them as "robotaxis." Instead, Tesla sold them](https://finance.yahoo.com/news/exclusive-musk-took-leased-cars-110200609.html)
-- May 15 - [Coinbase expects up to $400 million hit from cyber attack](https://tech.yahoo.com/cybersecurity/articles/coinbase-says-cyber-criminals-stole-105819971.html)
+- May 15 - [Walmart Delivers Strong Sales, Warns of Price Increases](https://finance.yahoo.com/video/walmart-delivers-strong-sales-warns-130044016.html)
+- May 15 - [Prediction: This Artificial Intelligence (AI) Stock Could Be Worth More Than Nvidia by 2030](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-130000905.html)
+- May 15 - [Fed's Powell says US may be entering period of more frequent and persistent 'supply shocks'](https://finance.yahoo.com/news/feds-powell-says-us-may-be-entering-period-of-more-frequent-and-persistent-supply-shocks-124005846.html)
+- May 15 - [Kohberger set to appear in court for last time before jury selection](https://www.yahoo.com/news/kohberger-set-appear-court-last-123610289.html)
+- May 15 - [This Dem Lawmaker Is Going Viral For His Extremely Shady Question To Secretary Kristi Noem](https://www.yahoo.com/news/democrat-going-viral-hilarious-secretary-121008812.html)
 <!-- feed end -->
 
 ### Onstream
