@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Co-founder says eToro IPO is a testament to market recovery as it aims to become a go-to investment app](https://finance.yahoo.com/news/co-founder-says-etoro-ipo-is-a-testament-to-market-recovery-as-it-aims-to-become-a-go-to-investment-app-214008749.html)
-- May 15 - [No students injured after school bus crash in northwest Charlotte](https://www.yahoo.com/news/school-bus-crash-shuts-down-203002074.html)
-- May 15 - [Judge cites lack of confidence in Homeland Security, issues injunction in UI case](https://www.yahoo.com/news/judge-cites-lack-confidence-homeland-210141680.html)
-- May 15 - [Aldi Just Announced a Major Store Update That Has Shoppers So Excited](https://finance.yahoo.com/news/aldi-just-announced-major-store-201500514.html)
+- May 15 - ['In what universe...': Diddy lawyer's request to keep Cassie Ventura on stand riles judge](https://www.yahoo.com/news/diddys-lawyers-cassie-ventura-sex-134428469.html)
+- May 15 - [National Guard helicopter crew landed on Montana ranch and trespassed to take antlers, citations say](https://www.yahoo.com/news/national-guard-helicopter-crew-landed-211301527.html)
 - May 15 - [One of America’s biggest companies is imploding](https://finance.yahoo.com/news/one-america-biggest-companies-imploding-200950648.html)
+- May 15 - [Do I have to give border control my phone's password? What travelers should know.](https://www.yahoo.com/news/border-control-phones-password-travelers-200836794.html)
+- May 15 - [Mom Was Overjoyed After Welcoming Son. 9 Days Later, Doctors Found a Tumor in Her Placenta](https://www.yahoo.com/lifestyle/mom-overjoyed-welcoming-son-9-193444819.html)
 <!-- feed end -->
 
 ### Onstream
