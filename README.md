@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 16 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
-- May 16 - [Exclusive-US aid cuts leave food for millions mouldering in storage](https://www.yahoo.com/news/exclusive-us-aid-cuts-leave-085426849.html)
-- May 16 - [Ex-FBI director James Comey posted a picture of seashells. Now he’s being probed for ‘threats’ to Trump](https://www.yahoo.com/news/ex-fbi-director-james-comey-084701571.html)
-- May 16 - [Massive dark patch appears in waters off Rio de Janeiro coast](https://www.yahoo.com/news/massive-dark-patch-appears-waters-053945368.html)
+- May 16 - [Palm Beach County schools bypassed screening in hiring educator facing molestation charges](https://www.yahoo.com/news/palm-beach-county-schools-bypassed-090148241.html)
+- May 16 - [Zimbabwe is full of elephants and conflict with villagers is growing. A new approach hopes to help](https://www.yahoo.com/news/zimbabwe-full-elephants-conflict-villagers-065424020.html)
 - May 16 - [Sailing from Oregon to Hawaii after quitting his job turns a man with a cat into social media star](https://www.yahoo.com/lifestyle/sailing-oregon-hawaii-quitting-job-041323812.html)
+- May 16 - [Cleveland man killed while mowing lawn was planning Spain hiking trip this week, loved ones say](https://www.yahoo.com/news/cleveland-man-killed-while-mowing-023947017.html)
 <!-- feed end -->
 
 ### Onstream
