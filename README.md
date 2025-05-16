@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - ['In what universe...': Diddy lawyer's request to keep Cassie Ventura on stand riles judge](https://www.yahoo.com/news/diddys-lawyers-cassie-ventura-sex-134428469.html)
+- May 15 - [Trump administration officials say Secret Service is investigating Comey's '86 47' social media post](https://www.yahoo.com/news/trump-administration-officials-secret-investigating-235109529.html)
 - May 15 - [National Guard helicopter crew landed on Montana ranch and trespassed to take antlers, citations say](https://www.yahoo.com/news/national-guard-helicopter-crew-landed-211301527.html)
 - May 15 - [One of America’s biggest companies is imploding](https://finance.yahoo.com/news/one-america-biggest-companies-imploding-200950648.html)
 - May 15 - [Do I have to give border control my phone's password? What travelers should know.](https://www.yahoo.com/news/border-control-phones-password-travelers-200836794.html)
