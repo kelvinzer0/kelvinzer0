@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Coinbase's dizzying week before S&P 500 debut: What happened?](https://finance.yahoo.com/video/coinbases-dizzying-week-p-500-212323277.html)
-- May 16 - [Does Warren Buffett Know Something That Wall Street Doesn't? Berkshire Hathaway Is Pounding the Table On a Stock That Has Struggled.](https://finance.yahoo.com/news/does-warren-buffett-know-something-212000457.html)
+- May 16 - [Strength Coach: If I Could Only Do 5 Lower-Body Exercises Forever, Here’s What I’d Choose](https://www.yahoo.com/lifestyle/strength-coach-could-only-5-215402966.html)
+- May 16 - [Angler fishing in Lake Michigan fog discovers remains of abandoned tugboat J.C. Ames](https://www.yahoo.com/news/angler-fishing-lake-michigan-fog-215138031.html)
+- May 16 - [Case of brain-dead pregnant woman kept on life support in Georgia raises tricky questions](https://www.yahoo.com/news/case-brain-dead-pregnant-woman-201051226.html)
 - May 16 - [Container ship owners swamped as US-China trade detente revives demand](https://finance.yahoo.com/news/container-ship-owners-swamped-us-193612352.html)
-- May 16 - ['He Won't Sell One Toy In The United States,' Says Donald Trump Suggesting A 100% Tariff On Mattel Which He Seemed To Mistake For A Country](https://finance.yahoo.com/news/wont-sell-one-toy-united-193109262.html)
 - May 16 - [Trump Can't Stop Talking About Pete Buttigieg, And Pete Responded With One Simple Tweet](https://www.yahoo.com/news/pete-buttigieg-responded-donald-trumps-191900330.html)
 <!-- feed end -->
 
