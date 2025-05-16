@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Comey under investigation for ‘8647’ post on social media | CUOMO](https://www.yahoo.com/news/comey-under-investigation-8647-post-005700801.html)
+- May 16 - [American basketball player arrested in Indonesia for alleged drug smuggling, could face death penalty](https://www.yahoo.com/news/american-basketball-player-arrested-indonesia-022149948.html)
 - May 15 - [Trump administration officials say Secret Service is investigating Comey's '86 47' social media post](https://www.yahoo.com/news/trump-administration-officials-secret-investigating-235109529.html)
-- May 15 - [Furious Former Twitter Advertisers Tell Elon Musk They've Had Enough of His Tantrums](https://finance.yahoo.com/news/furious-former-twitter-advertisers-tell-220035474.html)
+- May 15 - [DOGE’s Fraud Tracker at Social Security Turns Into a Massive Self-Own](https://www.yahoo.com/news/doge-fraud-tracker-social-security-221948625.html)
 - May 15 - [RFK Jr. Says He's Exploring A Crackdown On This Perfectly Safe Medication](https://www.yahoo.com/news/rfk-jr-says-hes-exploring-215128097.html)
-- May 15 - [National Guard helicopter crew landed on Montana ranch and trespassed to take antlers, citations say](https://www.yahoo.com/news/national-guard-helicopter-crew-landed-211301527.html)
+- May 15 - [Former Augusta commissioner found dead in Aiken County apartment](https://www.yahoo.com/news/former-augusta-commissioner-found-dead-214029401.html)
 <!-- feed end -->
 
 ### Onstream
