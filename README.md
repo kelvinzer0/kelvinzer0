@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Days After Brutally Assaulting Cassie at L.A. Hotel, Here's the Shocking Text Diddy Sent Her](https://www.yahoo.com/news/days-brutally-assaulting-cassie-l-175107604.html)
-- May 16 - [Fear and anger in France's crypto community after spate of kidnappings](https://www.yahoo.com/news/fear-anger-frances-crypto-community-174321093.html)
-- May 16 - [Broward school meals: Families’ next steps as universal free lunches will come to an end](https://www.yahoo.com/news/broward-school-meals-families-next-172600872.html)
+- May 16 - [Coinbase Hack Could Have Wide-Ranging Impact](https://finance.yahoo.com/video/coinbase-hack-could-wide-ranging-184213036.html)
+- May 16 - [Warren Buffett Explains Why He Couldn't Deny Greg Abel The Top Job At Berkshire Hathaway Any Longer: 'He's A Natural'](https://finance.yahoo.com/news/warren-buffett-explains-why-couldnt-183122847.html)
+- May 16 - [Russia-Ukraine peace talks end after less than 2 hours with deal to swap POWs but no ceasefire](https://www.yahoo.com/news/russia-ukraine-peace-talks-end-182136323.html)
+- May 16 - [Delaware Middle School Principal Admits to Raping Child Under 16 for Years in 'Heinous' Case](https://www.yahoo.com/news/delaware-middle-school-principal-admits-173118834.html)
 - May 16 - [“The View”'s Alyssa Farah Griffin snaps at Joy Behar in heated debate: 'We have Trump because you guys screwed this up!'](https://www.yahoo.com/entertainment/articles/view-alyssa-farah-griffin-snaps-161153941.html)
-- May 16 - [O’Rourke: Biden ‘failed this country in the most important job that he had’](https://www.yahoo.com/news/o-rourke-biden-failed-country-153546666.html)
 <!-- feed end -->
 
 ### Onstream
