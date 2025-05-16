@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Why Alphabet's Parts May Be Worth More Than the Whole](https://finance.yahoo.com/video/why-alphabets-parts-may-worth-144608215.html)
-- May 16 - [Palo Cedro man pleads guilty to charges stemming from $35 million fraud scheme](https://www.yahoo.com/news/palo-cedro-man-pleads-guilty-141904554.html)
+- May 16 - [CoreWeave, Archer Aviation, Carnival: Trending Tickers](https://finance.yahoo.com/video/coreweave-archer-aviation-carnival-trending-155238976.html)
+- May 16 - [Trump administration must resume $11 billion in funding for public health departments, judge rules](https://www.yahoo.com/news/trump-administration-must-resume-11-154418398.html)
+- May 16 - [Boil water in effect for several towns in southeastern Mass. due to E. coli, coliform bacteria](https://www.yahoo.com/news/boil-water-effect-several-towns-153457789.html)
 - May 16 - [This Type Of Food Was Just Linked To Heart Disease And A Serious Brain Condition—And It's Probably In Your Pantry](https://www.yahoo.com/lifestyle/type-food-just-linked-heart-132900632.html)
 - May 16 - [Turkey's Celebi sues India over 'vague' clearance pullback amid Pakistan conflict](https://finance.yahoo.com/news/turkeys-celebi-sues-india-over-125242451.html)
-- May 16 - [Tesla April sales by the numbers: Demand weakness continues](https://finance.yahoo.com/news/tesla-april-sales-by-the-numbers-demand-weakness-continues-121040716.html)
 <!-- feed end -->
 
 ### Onstream
