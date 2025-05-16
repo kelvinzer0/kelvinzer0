@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 16 - [Sailing from Oregon to Hawaii after quitting his job turns a man with a cat into social media star](https://www.yahoo.com/lifestyle/sailing-oregon-hawaii-quitting-job-041323812.html)
 - May 16 - [American basketball player arrested in Indonesia for alleged drug smuggling, could face death penalty](https://www.yahoo.com/news/american-basketball-player-arrested-indonesia-022149948.html)
+- May 16 - [People Who Make Over $200k Per Year Are Sharing What They Do For Work, And I’ve Never Felt More Broke](https://www.yahoo.com/lifestyle/people-over-200k-per-sharing-021603486.html)
 - May 15 - [Trump administration officials say Secret Service is investigating Comey's '86 47' social media post](https://www.yahoo.com/news/trump-administration-officials-secret-investigating-235109529.html)
 - May 15 - [DOGE’s Fraud Tracker at Social Security Turns Into a Massive Self-Own](https://www.yahoo.com/news/doge-fraud-tracker-social-security-221948625.html)
-- May 15 - [RFK Jr. Says He's Exploring A Crackdown On This Perfectly Safe Medication](https://www.yahoo.com/news/rfk-jr-says-hes-exploring-215128097.html)
-- May 15 - [Former Augusta commissioner found dead in Aiken County apartment](https://www.yahoo.com/news/former-augusta-commissioner-found-dead-214029401.html)
 <!-- feed end -->
 
 ### Onstream
