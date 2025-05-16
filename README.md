@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [FBI moving 1,500 personnel from D.C., closing storied headquarters building: Patel](https://www.yahoo.com/news/fbi-moving-1-500-personnel-162713714.html)
-- May 16 - [Woman connected to the Zizians fired the bullet that killed a Vermont border agent, report says](https://www.yahoo.com/news/woman-connected-zizians-fired-bullet-161554287.html)
+- May 16 - [Days After Brutally Assaulting Cassie at L.A. Hotel, Here's the Shocking Text Diddy Sent Her](https://www.yahoo.com/news/days-brutally-assaulting-cassie-l-175107604.html)
+- May 16 - [Fear and anger in France's crypto community after spate of kidnappings](https://www.yahoo.com/news/fear-anger-frances-crypto-community-174321093.html)
+- May 16 - [Broward school meals: Families’ next steps as universal free lunches will come to an end](https://www.yahoo.com/news/broward-school-meals-families-next-172600872.html)
 - May 16 - [“The View”'s Alyssa Farah Griffin snaps at Joy Behar in heated debate: 'We have Trump because you guys screwed this up!'](https://www.yahoo.com/entertainment/articles/view-alyssa-farah-griffin-snaps-161153941.html)
-- May 16 - [Russia and Ukraine agree to exchange 1,000 prisoners of war - but fail to secure peace in Turkey talks](https://www.yahoo.com/news/russia-ukraine-agree-exchange-1-160308084.html)
-- May 16 - [Take a look at these social media photos of golf ball-sized hail that fell in Wisconsin on May 15](https://www.yahoo.com/news/look-social-media-photos-golf-154629832.html)
+- May 16 - [O’Rourke: Biden ‘failed this country in the most important job that he had’](https://www.yahoo.com/news/o-rourke-biden-failed-country-153546666.html)
 <!-- feed end -->
 
 ### Onstream
