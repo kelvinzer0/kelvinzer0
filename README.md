@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
-- May 16 - [Palm Beach County schools bypassed screening in hiring educator facing molestation charges](https://www.yahoo.com/news/palm-beach-county-schools-bypassed-090148241.html)
-- May 16 - [Zimbabwe is full of elephants and conflict with villagers is growing. A new approach hopes to help](https://www.yahoo.com/news/zimbabwe-full-elephants-conflict-villagers-065424020.html)
-- May 16 - [Sailing from Oregon to Hawaii after quitting his job turns a man with a cat into social media star](https://www.yahoo.com/lifestyle/sailing-oregon-hawaii-quitting-job-041323812.html)
+- May 16 - [A flight spent 10 minutes with no pilot when the first officer collapsed while the captain was in the bathroom](https://www.yahoo.com/news/flight-spent-10-minutes-no-094945251.html)
+- May 16 - [2 Dividend Stocks to Double Up on Right Now](https://finance.yahoo.com/news/2-dividend-stocks-double-now-075500773.html)
+- May 16 - [Democratic Rep. Gluesenkamp Perez won in a Trump district. Now she faces an uprising from the left](https://www.yahoo.com/news/democratic-rep-gluesenkamp-perez-won-040234070.html)
 - May 16 - [Cleveland man killed while mowing lawn was planning Spain hiking trip this week, loved ones say](https://www.yahoo.com/news/cleveland-man-killed-while-mowing-023947017.html)
+- May 16 - [American basketball player arrested in Indonesia for alleged drug smuggling, could face death penalty](https://www.yahoo.com/news/american-basketball-player-arrested-indonesia-022149948.html)
 <!-- feed end -->
 
 ### Onstream
