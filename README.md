@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Coinbase Hack Could Have Wide-Ranging Impact](https://finance.yahoo.com/video/coinbase-hack-could-wide-ranging-184213036.html)
-- May 16 - [Warren Buffett Explains Why He Couldn't Deny Greg Abel The Top Job At Berkshire Hathaway Any Longer: 'He's A Natural'](https://finance.yahoo.com/news/warren-buffett-explains-why-couldnt-183122847.html)
-- May 16 - [Russia-Ukraine peace talks end after less than 2 hours with deal to swap POWs but no ceasefire](https://www.yahoo.com/news/russia-ukraine-peace-talks-end-182136323.html)
-- May 16 - [Delaware Middle School Principal Admits to Raping Child Under 16 for Years in 'Heinous' Case](https://www.yahoo.com/news/delaware-middle-school-principal-admits-173118834.html)
+- May 16 - [Intel's new chip manufacturing technology is its greatest hope for a turnaround — and its biggest risk](https://finance.yahoo.com/news/intels-new-chip-manufacturing-technology-is-its-greatest-hope-for-a-turnaround--and-its-biggest-risk-183912933.html)
+- May 16 - [Scientists on alert for massive undersea volcano eruption off West Coast](https://www.yahoo.com/news/scientists-alert-massive-undersea-volcano-182610466.html)
+- May 16 - [Delta Air Lines Names New S.V.P. of Corporate Safety, Security and Compliance](https://finance.yahoo.com/news/delta-air-lines-names-v-173347620.html)
+- May 16 - [FBI moving 1,500 personnel from D.C., closing storied headquarters building: Patel](https://www.yahoo.com/news/fbi-moving-1-500-personnel-162713714.html)
 - May 16 - [“The View”'s Alyssa Farah Griffin snaps at Joy Behar in heated debate: 'We have Trump because you guys screwed this up!'](https://www.yahoo.com/entertainment/articles/view-alyssa-farah-griffin-snaps-161153941.html)
 <!-- feed end -->
 
