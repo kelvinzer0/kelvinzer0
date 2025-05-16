@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Intel's new chip manufacturing technology is its greatest hope for a turnaround — and its biggest risk](https://finance.yahoo.com/news/intels-new-chip-manufacturing-technology-is-its-greatest-hope-for-a-turnaround--and-its-biggest-risk-183912933.html)
+- May 16 - [Why these Republicans finally stood up to Trump – and the price they could pay as a result](https://www.yahoo.com/news/why-republicans-finally-stood-trump-204416249.html)
+- May 16 - [Container ship owners swamped as US-China trade detente revives demand](https://finance.yahoo.com/news/container-ship-owners-swamped-us-193612352.html)
+- May 16 - ['He Won't Sell One Toy In The United States,' Says Donald Trump Suggesting A 100% Tariff On Mattel Which He Seemed To Mistake For A Country](https://finance.yahoo.com/news/wont-sell-one-toy-united-193109262.html)
 - May 16 - [Scientists on alert for massive undersea volcano eruption off West Coast](https://www.yahoo.com/news/scientists-alert-massive-undersea-volcano-182610466.html)
-- May 16 - [Delta Air Lines Names New S.V.P. of Corporate Safety, Security and Compliance](https://finance.yahoo.com/news/delta-air-lines-names-v-173347620.html)
-- May 16 - [FBI moving 1,500 personnel from D.C., closing storied headquarters building: Patel](https://www.yahoo.com/news/fbi-moving-1-500-personnel-162713714.html)
-- May 16 - [“The View”'s Alyssa Farah Griffin snaps at Joy Behar in heated debate: 'We have Trump because you guys screwed this up!'](https://www.yahoo.com/entertainment/articles/view-alyssa-farah-griffin-snaps-161153941.html)
+- May 16 - [Futuristic Grenade Launcher From Colt And Northrop Grumman Seen Being Fired For First Time](https://www.yahoo.com/news/futuristic-grenade-launcher-colt-northrop-165020005.html)
 <!-- feed end -->
 
 ### Onstream
