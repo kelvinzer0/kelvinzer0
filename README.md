@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Massive dark patch appears in waters off Rio de Janeiro coast](https://www.yahoo.com/news/massive-dark-patch-appears-waters-053945368.html)
+- May 16 - [Zimbabwe is full of elephants and conflict with villagers is growing. A new approach hopes to help](https://www.yahoo.com/news/zimbabwe-full-elephants-conflict-villagers-065424020.html)
+- May 16 - [New Jersey Transit train engineers go on strike, leaving some 350,000 commuters in the lurch](https://www.yahoo.com/news/jersey-transit-train-engineers-strike-054455238.html)
 - May 16 - [Sailing from Oregon to Hawaii after quitting his job turns a man with a cat into social media star](https://www.yahoo.com/lifestyle/sailing-oregon-hawaii-quitting-job-041323812.html)
 - May 16 - [Cleveland man killed while mowing lawn was planning Spain hiking trip this week, loved ones say](https://www.yahoo.com/news/cleveland-man-killed-while-mowing-023947017.html)
 - May 16 - [The Most Violent Solar Storm Ever Detected Hit Earth in 12350 BCE](https://www.yahoo.com/news/most-violent-solar-storm-ever-023007425.html)
-- May 16 - [American basketball player arrested in Indonesia for alleged drug smuggling, could face death penalty](https://www.yahoo.com/news/american-basketball-player-arrested-indonesia-022149948.html)
 <!-- feed end -->
 
 ### Onstream
