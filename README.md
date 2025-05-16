@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 16 - [Why Alphabet's Parts May Be Worth More Than the Whole](https://finance.yahoo.com/video/why-alphabets-parts-may-worth-144608215.html)
+- May 16 - [Palo Cedro man pleads guilty to charges stemming from $35 million fraud scheme](https://www.yahoo.com/news/palo-cedro-man-pleads-guilty-141904554.html)
+- May 16 - [This Type Of Food Was Just Linked To Heart Disease And A Serious Brain Condition—And It's Probably In Your Pantry](https://www.yahoo.com/lifestyle/type-food-just-linked-heart-132900632.html)
+- May 16 - [Turkey's Celebi sues India over 'vague' clearance pullback amid Pakistan conflict](https://finance.yahoo.com/news/turkeys-celebi-sues-india-over-125242451.html)
 - May 16 - [Tesla April sales by the numbers: Demand weakness continues](https://finance.yahoo.com/news/tesla-april-sales-by-the-numbers-demand-weakness-continues-121040716.html)
-- May 16 - [A Ukrainian F-16 crashed while fighting off a Russian attack after an 'emergency situation' on board. The pilot survived.](https://www.yahoo.com/news/ukrainian-f-16-crashed-while-114205571.html)
-- May 16 - [Researchers unveil unprecedented satellite that will have to be turned off when it floats over the US: 'This was a pity'](https://www.yahoo.com/news/researchers-unveil-unprecedented-satellite-turned-110022564.html)
-- May 16 - [Study exposes hidden danger that could wipe out household savings: 'The economic impacts ... could be even worse'](https://www.yahoo.com/news/study-exposes-hidden-danger-could-103041478.html)
-- May 16 - [Exclusive-India weighs plan to slash Pakistan water supply with new Indus river project](https://www.yahoo.com/news/exclusive-india-weighs-plan-slash-070355880.html)
 <!-- feed end -->
 
 ### Onstream
