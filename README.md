@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 16 - [Massive dark patch appears in waters off Rio de Janeiro coast](https://www.yahoo.com/news/massive-dark-patch-appears-waters-053945368.html)
-- May 16 - [Taiwan president rallies the troops ahead of possible Chinese drills](https://www.yahoo.com/news/taiwan-president-rallies-troops-ahead-053513830.html)
-- May 16 - [Stephen Colbert Jokes That Instead of Canceling Child Food Programs, ‘Republicans Can Eat a D–‘ | Video](https://www.yahoo.com/entertainment/articles/stephen-colbert-jokes-instead-canceling-051933297.html)
 - May 16 - [Sailing from Oregon to Hawaii after quitting his job turns a man with a cat into social media star](https://www.yahoo.com/lifestyle/sailing-oregon-hawaii-quitting-job-041323812.html)
+- May 16 - [Cleveland man killed while mowing lawn was planning Spain hiking trip this week, loved ones say](https://www.yahoo.com/news/cleveland-man-killed-while-mowing-023947017.html)
 - May 16 - [The Most Violent Solar Storm Ever Detected Hit Earth in 12350 BCE](https://www.yahoo.com/news/most-violent-solar-storm-ever-023007425.html)
+- May 16 - [American basketball player arrested in Indonesia for alleged drug smuggling, could face death penalty](https://www.yahoo.com/news/american-basketball-player-arrested-indonesia-022149948.html)
 <!-- feed end -->
 
 ### Onstream
