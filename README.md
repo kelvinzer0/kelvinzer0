@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [US Economy: Housing Starts Increase, Import Prices Rise](https://finance.yahoo.com/video/us-economy-housing-starts-increase-131321004.html)
 - May 16 - [Tesla April sales by the numbers: Demand weakness continues](https://finance.yahoo.com/news/tesla-april-sales-by-the-numbers-demand-weakness-continues-121040716.html)
-- May 16 - ['Mad King' Donald Trump Torched Over 'Especially Jarring' Claim To U.S. Troops In Qatar](https://www.yahoo.com/news/mad-king-donald-trump-torched-115023589.html)
-- May 16 - [Severe Weather Outbreak Likely Friday Into Friday Night](https://www.yahoo.com/news/severe-weather-outbreak-likely-friday-103220208.html)
+- May 16 - [A Ukrainian F-16 crashed while fighting off a Russian attack after an 'emergency situation' on board. The pilot survived.](https://www.yahoo.com/news/ukrainian-f-16-crashed-while-114205571.html)
+- May 16 - [Researchers unveil unprecedented satellite that will have to be turned off when it floats over the US: 'This was a pity'](https://www.yahoo.com/news/researchers-unveil-unprecedented-satellite-turned-110022564.html)
+- May 16 - [Study exposes hidden danger that could wipe out household savings: 'The economic impacts ... could be even worse'](https://www.yahoo.com/news/study-exposes-hidden-danger-could-103041478.html)
 - May 16 - [Exclusive-India weighs plan to slash Pakistan water supply with new Indus river project](https://www.yahoo.com/news/exclusive-india-weighs-plan-slash-070355880.html)
 <!-- feed end -->
 
