@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Anthony Scaramucci Says Once Bitcoin Hits $500,000 It Will Be Considered An Asset Class Just Like Gold](https://finance.yahoo.com/news/anthony-scaramucci-says-once-bitcoin-033129658.html)
 - May 16 - [Audio released of Biden interview with special counsel who described him as an ‘elderly man with a poor memory’](https://www.yahoo.com/news/audio-released-biden-interview-special-233008627.html)
+- May 16 - [Prediction: This "Magnificent Seven" Stock Will Be the Most Valuable Company in the World in 10 Years](https://finance.yahoo.com/news/prediction-magnificent-seven-stock-most-211800765.html)
 - May 16 - [Case of brain-dead pregnant woman kept on life support in Georgia raises tricky questions](https://www.yahoo.com/news/case-brain-dead-pregnant-woman-201051226.html)
 - May 16 - [Container ship owners swamped as US-China trade detente revives demand](https://finance.yahoo.com/news/container-ship-owners-swamped-us-193612352.html)
-- May 16 - [Trump Can't Stop Talking About Pete Buttigieg, And Pete Responded With One Simple Tweet](https://www.yahoo.com/news/pete-buttigieg-responded-donald-trumps-191900330.html)
-- May 16 - [West Lafayette student, 16, suspected of attacking teacher with laptop charging cord](https://www.yahoo.com/news/west-lafayette-student-16-suspected-191630542.html)
 <!-- feed end -->
 
 ### Onstream
