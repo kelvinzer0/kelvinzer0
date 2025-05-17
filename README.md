@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Severe Weather Alert: Hail, Winds, and Tornado Threat](https://www.yahoo.com/news/severe-weather-alert-hail-winds-114709993.html)
-- May 17 - [I just found out my fiancee has been hiding $82K in debt — and now she refuses to sign a prenup. What now?](https://finance.yahoo.com/news/just-found-fiancee-hiding-82k-114100702.html)
-- May 17 - [Doctors Say This Easy Habit Can Protect Your Brain As You Age—And Might Prevent Alzheimer's Disease](https://www.yahoo.com/lifestyle/doctors-easy-habit-protect-brain-110000588.html)
-- May 17 - [Chicago family ‘stuck in limbo’ after their dream home turned into a nightmare before they could even move in](https://www.yahoo.com/news/chicago-family-stuck-limbo-dream-110000180.html)
-- May 17 - [FDA flags hidden contaminants in popular bottled water brands — here's what it uncovered](https://www.yahoo.com/news/fda-flags-hidden-contaminants-popular-104538058.html)
+- May 17 - [Walmart should 'eat the tariffs,' Trump says, after retailer warns of looming price hikes](https://finance.yahoo.com/news/walmart-should-eat-the-tariffs-trump-says-after-retailer-warns-of-looming-price-hikes-155126753.html)
+- May 17 - [Former NFL receiver Antonio Brown involved in apparent robbery attempt at Miami boxing event](https://sports.yahoo.com/nfl/article/former-nfl-receiver-antonio-brown-involved-in-apparent-robbery-attempt-at-miami-boxing-event-154702339.html)
+- May 17 - [Exactly How Many Times a Week To Do Planks To Strengthen Your Core, According to Physical Therapists](https://www.yahoo.com/lifestyle/exactly-many-times-week-planks-152500568.html)
+- May 17 - [Italy's Tajani tells Israel to halt Gaza offensive](https://www.yahoo.com/news/italys-tajani-tells-israel-halt-130202127.html)
+- May 17 - [Mortgage and refinance interest rates today, May 17, 2025: It's a good weekend to lock in your rate](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-may-17-2025-100036731.html)
 <!-- feed end -->
 
 ### Onstream
