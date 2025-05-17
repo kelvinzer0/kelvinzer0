@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [I own a reselling business with my wife, and our sales are booming thanks to tariffs. I can't attribute this growth to anything else.](https://finance.yahoo.com/news/own-reselling-business-wife-sales-123702833.html)
-- May 17 - [If Wealth Was Evenly Distributed Across America, How Much Money Would Every Person Have?](https://finance.yahoo.com/news/wealth-evenly-distributed-across-america-120133824.html)
-- May 17 - [Mortgage and refinance interest rates today, May 17, 2025: It's a good weekend to lock in your rate](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-may-17-2025-100036731.html)
-- May 17 - [He voted for Trump, twice. Now he wants to take down MAGA and the "pathetic" Tommy Tuberville](https://www.yahoo.com/news/voted-trump-twice-now-wants-094504011.html)
-- May 16 - [Man Says Strange Fingernail Clue Was His Only Sign of Lung Cancer — Now, He’s Urging Others to Look Out for It Too](https://www.yahoo.com/lifestyle/man-says-strange-fingernail-clue-232553272.html)
+- May 17 - [Severe Weather Alert: Hail, Winds, and Tornado Threat](https://www.yahoo.com/news/severe-weather-alert-hail-winds-114709993.html)
+- May 17 - [I just found out my fiancee has been hiding $82K in debt — and now she refuses to sign a prenup. What now?](https://finance.yahoo.com/news/just-found-fiancee-hiding-82k-114100702.html)
+- May 17 - [Doctors Say This Easy Habit Can Protect Your Brain As You Age—And Might Prevent Alzheimer's Disease](https://www.yahoo.com/lifestyle/doctors-easy-habit-protect-brain-110000588.html)
+- May 17 - [Chicago family ‘stuck in limbo’ after their dream home turned into a nightmare before they could even move in](https://www.yahoo.com/news/chicago-family-stuck-limbo-dream-110000180.html)
+- May 17 - [FDA flags hidden contaminants in popular bottled water brands — here's what it uncovered](https://www.yahoo.com/news/fda-flags-hidden-contaminants-popular-104538058.html)
 <!-- feed end -->
 
 ### Onstream
