@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Prediction: This "Magnificent Seven" Stock Will Be the Most Valuable Company in the World in 10 Years](https://finance.yahoo.com/news/prediction-magnificent-seven-stock-most-211800765.html)
-- May 16 - [PHOTOS: Widespread storm damage and hail around the St. Louis Metro](https://www.yahoo.com/news/photos-storm-damage-hail-around-210341287.html)
+- May 16 - [Trump’s SCOTUS loss: Ari on 7-2 rejection of plot to game the courts, and autocrat backlash](https://www.yahoo.com/news/trump-scotus-loss-ari-7-233241042.html)
+- May 16 - [Angler fishing in Lake Michigan fog discovers remains of abandoned tugboat J.C. Ames](https://www.yahoo.com/news/angler-fishing-lake-michigan-fog-215138031.html)
 - May 16 - [A Texas suburb that saw its population jump by a third is the fastest-growing city in the US](https://www.yahoo.com/news/texas-suburb-saw-population-jump-201617750.html)
 - May 16 - [Case of brain-dead pregnant woman kept on life support in Georgia raises tricky questions](https://www.yahoo.com/news/case-brain-dead-pregnant-woman-201051226.html)
 - May 16 - [Trump admin announces certain Social Security beneficiaries will face 15% cuts in June](https://www.yahoo.com/news/trump-admin-announces-certain-social-193820974.html)
