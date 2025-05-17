@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Seven European nations urge Israel to ‘reverse its current policy’ on Gaza](https://www.yahoo.com/news/seven-european-nations-urge-israel-113759899.html)
-- May 17 - [Dallas woman divorcing her husband after over secret $1M debt — but Ramsey Show hosts tell her to own her part](https://finance.yahoo.com/news/dallas-woman-divorcing-her-husband-113100675.html)
-- May 17 - [Dodge plans gas-powered Charger but will cut cheaper electric variant](https://autos.yahoo.com/dodge-plans-gas-powered-charger-100215170.html)
+- May 17 - [Severe Weather Alert: Hail, Winds, and Tornado Threat](https://www.yahoo.com/news/severe-weather-alert-hail-winds-114709993.html)
+- May 17 - [Mortgage and refinance interest rates today, May 17, 2025: It's a good weekend to lock in your rate](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-may-17-2025-100036731.html)
+- May 17 - [We put Tesla's FSD and Waymo's robotaxi to the test. One shocking mistake made the winner clear.](https://tech.yahoo.com/transportation/articles/put-teslas-fsd-waymos-robotaxi-080101482.html)
 - May 17 - [Trump Redefines the ‘N-Word’ for Fox News](https://www.yahoo.com/news/trump-redefines-n-word-fox-033029011.html)
-- May 17 - [‘It’s a war zone.’ 14 dead amid devastation in Somerset & London after storms hit KY](https://www.yahoo.com/news/hail-rain-high-winds-possible-001550328.html)
+- May 16 - [Man Says Strange Fingernail Clue Was His Only Sign of Lung Cancer — Now, He’s Urging Others to Look Out for It Too](https://www.yahoo.com/lifestyle/man-says-strange-fingernail-clue-232553272.html)
 <!-- feed end -->
 
 ### Onstream
