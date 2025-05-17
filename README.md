@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Strength Coach: If I Could Only Do 5 Lower-Body Exercises Forever, Here’s What I’d Choose](https://www.yahoo.com/lifestyle/strength-coach-could-only-5-215402966.html)
-- May 16 - [Angler fishing in Lake Michigan fog discovers remains of abandoned tugboat J.C. Ames](https://www.yahoo.com/news/angler-fishing-lake-michigan-fog-215138031.html)
+- May 16 - [Audio released of Biden interview with special counsel who described him as an ‘elderly man with a poor memory’](https://www.yahoo.com/news/audio-released-biden-interview-special-233008627.html)
+- May 16 - [Prediction: This "Magnificent Seven" Stock Will Be the Most Valuable Company in the World in 10 Years](https://finance.yahoo.com/news/prediction-magnificent-seven-stock-most-211800765.html)
 - May 16 - [Case of brain-dead pregnant woman kept on life support in Georgia raises tricky questions](https://www.yahoo.com/news/case-brain-dead-pregnant-woman-201051226.html)
-- May 16 - [Container ship owners swamped as US-China trade detente revives demand](https://finance.yahoo.com/news/container-ship-owners-swamped-us-193612352.html)
-- May 16 - [Trump Can't Stop Talking About Pete Buttigieg, And Pete Responded With One Simple Tweet](https://www.yahoo.com/news/pete-buttigieg-responded-donald-trumps-191900330.html)
+- May 16 - [Days After Brutally Assaulting Cassie at L.A. Hotel, Here's the Shocking Text Diddy Sent Her](https://www.yahoo.com/news/days-brutally-assaulting-cassie-l-175107604.html)
+- May 16 - [Futuristic Grenade Launcher From Colt And Northrop Grumman Seen Being Fired For First Time](https://www.yahoo.com/news/futuristic-grenade-launcher-colt-northrop-165020005.html)
 <!-- feed end -->
 
 ### Onstream
