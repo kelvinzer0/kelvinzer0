@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Trump tells Walmart to 'eat the tariffs' instead of raising prices](https://finance.yahoo.com/video/trump-tells-walmart-eat-tariffs-190824789.html)
+- May 17 - [I Asked ChatGPT How Much Money I’ll Need To Retire in 10 Years: Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-money-ll-160103307.html)
 - May 17 - [Trump warns Walmart: Don't raise prices due to my tariffs but do eat the costs from those taxes](https://www.yahoo.com/news/trump-warns-walmart-dont-raise-155519849.html)
-- May 17 - [No pilot for 10 minutes during a Lufthansa flight in 2024 because of fainting incident, report says](https://www.yahoo.com/news/no-pilot-10-minutes-during-155044701.html)
 - May 17 - [Former NFL receiver Antonio Brown targeted in apparent robbery attempt at Miami boxing event](https://sports.yahoo.com/nfl/article/former-nfl-receiver-antonio-brown-targeted-in-apparent-robbery-attempt-at-miami-boxing-event-154702010.html)
-- May 17 - [Should Democrats stick with Harris? New poll shows surprising result in Trump rematch](https://www.yahoo.com/news/democrats-stick-harris-poll-shows-142331921.html)
-- May 17 - [Dallas woman divorcing her husband after over secret $1M debt — but Ramsey Show hosts tell her to own her part](https://finance.yahoo.com/news/dallas-woman-divorcing-her-husband-113100675.html)
+- May 17 - [I own a reselling business with my wife, and sales are booming. I can't attribute our growth to anything other than the tariffs.](https://finance.yahoo.com/news/own-reselling-business-wife-sales-123702673.html)
 <!-- feed end -->
 
 ### Onstream
