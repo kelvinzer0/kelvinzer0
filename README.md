@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Anthony Scaramucci Says Once Bitcoin Hits $500,000 It Will Be Considered An Asset Class Just Like Gold](https://finance.yahoo.com/news/anthony-scaramucci-says-once-bitcoin-033129658.html)
+- May 16 - [Idaho police release the names of 6 tourists killed in Yellowstone crash](https://www.yahoo.com/news/idaho-police-release-names-6-233609261.html)
 - May 16 - [Audio released of Biden interview with special counsel who described him as an ‘elderly man with a poor memory’](https://www.yahoo.com/news/audio-released-biden-interview-special-233008627.html)
-- May 16 - [Prediction: This "Magnificent Seven" Stock Will Be the Most Valuable Company in the World in 10 Years](https://finance.yahoo.com/news/prediction-magnificent-seven-stock-most-211800765.html)
-- May 16 - [Case of brain-dead pregnant woman kept on life support in Georgia raises tricky questions](https://www.yahoo.com/news/case-brain-dead-pregnant-woman-201051226.html)
-- May 16 - [Container ship owners swamped as US-China trade detente revives demand](https://finance.yahoo.com/news/container-ship-owners-swamped-us-193612352.html)
+- May 16 - [Angler fishing in Lake Michigan fog discovers remains of abandoned tugboat J.C. Ames](https://www.yahoo.com/news/angler-fishing-lake-michigan-fog-215138031.html)
+- May 16 - [PHOTOS: Widespread storm damage and hail around the St. Louis Metro](https://www.yahoo.com/news/photos-storm-damage-hail-around-210341287.html)
+- May 16 - [A Texas suburb that saw its population jump by a third is the fastest-growing city in the US](https://www.yahoo.com/news/texas-suburb-saw-population-jump-201617750.html)
 <!-- feed end -->
 
 ### Onstream
