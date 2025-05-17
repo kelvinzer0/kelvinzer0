@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Five dead in helicopter collision in Finland, police say](https://www.yahoo.com/news/five-dead-helicopter-collision-finland-203933041.html)
+- May 17 - [Mexican security forces kill 12, arrest 9 in raid on alleged gang site](https://www.yahoo.com/news/mexican-security-forces-kill-12-215821654.html)
+- May 17 - [One person killed after explosion outside fertility clinic; police say act was ‘intentional’](https://www.yahoo.com/news/police-firefighters-respond-explosion-rocking-193207832.html)
 - May 17 - [Trump tells Walmart to 'eat the tariffs' instead of raising prices](https://finance.yahoo.com/video/trump-tells-walmart-eat-tariffs-190824789.html)
-- May 17 - [Huge Mastiff Helps with Home "Remodel" and His Puppy Dog Eyes Make It Impossible to Be Mad](https://www.yahoo.com/lifestyle/huge-mastiff-helps-home-remodel-160500055.html)
-- May 17 - [Photos show burned-out cars at Jacksonville International Airport after fire](https://www.yahoo.com/news/photos-show-burned-cars-jacksonville-160340977.html)
-- May 17 - [I Asked ChatGPT How Much Money I’ll Need To Retire in 10 Years: Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-money-ll-160103307.html)
+- May 17 - [Former NFL receiver Antonio Brown involved in altercation at Miami boxing event, claims he was targeted in robbery attempt](https://sports.yahoo.com/nfl/article/former-nfl-receiver-antonio-brown-involved-in-altercation-at-miami-boxing-event-claims-he-was-targeted-in-robbery-attempt-154702032.html)
+- May 17 - [Dallas woman divorcing her husband after over secret $1M debt — but Ramsey Show hosts tell her to own her part](https://finance.yahoo.com/news/dallas-woman-divorcing-her-husband-113100675.html)
 <!-- feed end -->
 
 ### Onstream
