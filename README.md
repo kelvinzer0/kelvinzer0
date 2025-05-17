@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Seven European nations urge Israel to ‘reverse its current policy’ on Gaza](https://www.yahoo.com/news/seven-european-nations-urge-israel-113759899.html)
+- May 17 - [Dallas woman divorcing her husband after over secret $1M debt — but Ramsey Show hosts tell her to own her part](https://finance.yahoo.com/news/dallas-woman-divorcing-her-husband-113100675.html)
+- May 17 - [Dodge plans gas-powered Charger but will cut cheaper electric variant](https://autos.yahoo.com/dodge-plans-gas-powered-charger-100215170.html)
 - May 17 - [Trump Redefines the ‘N-Word’ for Fox News](https://www.yahoo.com/news/trump-redefines-n-word-fox-033029011.html)
-- May 16 - [Man Says Strange Fingernail Clue Was His Only Sign of Lung Cancer — Now, He’s Urging Others to Look Out for It Too](https://www.yahoo.com/lifestyle/man-says-strange-fingernail-clue-232553272.html)
-- May 16 - [Angler fishing in Lake Michigan fog discovers remains of abandoned tugboat J.C. Ames](https://www.yahoo.com/news/angler-fishing-lake-michigan-fog-215138031.html)
-- May 16 - [NASA spacecraft snaps eerie image of eclipsed sun with an extra moon overhead. Yes — it's real.](https://www.yahoo.com/news/nasa-spacecraft-snaps-eerie-image-203625968.html)
-- May 16 - [Case of brain-dead pregnant woman kept on life support in Georgia raises tricky questions](https://www.yahoo.com/news/case-brain-dead-pregnant-woman-201051226.html)
+- May 17 - [‘It’s a war zone.’ 14 dead amid devastation in Somerset & London after storms hit KY](https://www.yahoo.com/news/hail-rain-high-winds-possible-001550328.html)
 <!-- feed end -->
 
 ### Onstream
