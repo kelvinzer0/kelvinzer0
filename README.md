@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [Father pays tribute to teenager killed after beach ‘disturbance’ filmed by bystanders](https://www.yahoo.com/news/teen-boy-dies-beach-disturbance-121232003.html)
 - May 18 - [The AI trade isn't over: Where investors can find value](https://finance.yahoo.com/video/ai-trade-isnt-over-where-180050415.html)
-- May 18 - [Houston man sues Whataburger for nearly $1M over burger mistake — says it caused ‘serious personal injuries’](https://www.yahoo.com/news/houston-man-sues-whataburger-nearly-174500063.html)
-- May 18 - [18-year-old high school senior killed in single-vehicle crash in Falmouth](https://www.yahoo.com/news/18-old-high-school-senior-153310920.html)
-- May 18 - [Teen boy dies after beach ‘disturbance’ that was filmed by bystanders](https://www.yahoo.com/news/teen-boy-dies-beach-disturbance-121232003.html)
+- May 18 - [Norwegian Cruise Line employee sounds alarm on new cruise scam](https://www.yahoo.com/lifestyle/norwegian-cruise-line-employee-sounds-162400819.html)
 - May 18 - [Estonia says Russia detained a tanker in Baltic Sea](https://www.yahoo.com/news/estonia-says-russia-detained-tanker-155145484.html)
+- May 18 - [The US Treasury just shocked Americans with a $258B surplus — its 2nd biggest monthly surplus in history](https://finance.yahoo.com/news/us-treasury-just-shocked-americans-130700143.html)
 <!-- feed end -->
 
 ### Onstream
