@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Tall Ship Strikes Brooklyn Bridge, Killing Two](https://www.yahoo.com/news/tall-ship-strikes-brooklyn-bridge-152917400.html)
-- May 18 - [Treasury secretary says Walmart's warnings on price increases are a 'worst-case scenario'](https://finance.yahoo.com/news/treasury-secretary-says-walmarts-warnings-145327495.html)
-- May 18 - [The US Treasury just shocked Americans with a $258B surplus — its 2nd biggest monthly surplus in history](https://finance.yahoo.com/news/us-treasury-just-shocked-americans-130700143.html)
-- May 18 - [A 2,000-Year-Old Sarcophagus Was Just Unsealed—and the Mummy Inside is Mind-Blowing](https://www.yahoo.com/news/2-000-old-sarcophagus-just-125300004.html)
-- May 18 - [‘He preyed on us’: Pennsylvania woman scammed out of $45,000 in sophisticated ‘dealership cloning’ scheme](https://www.yahoo.com/news/preyed-us-pennsylvania-woman-scammed-123100745.html)
+- May 18 - [Teen boy dies after beach ‘disturbance’ that was filmed by bystanders](https://www.yahoo.com/news/teen-boy-dies-beach-disturbance-121232003.html)
+- May 18 - [Trump envoy Witkoff cites US 'red line' with Iran against uranium enrichment](https://www.yahoo.com/news/trump-envoy-witkoff-cites-us-164204864.html)
+- May 18 - [Suspect identified in ‘intentional’ explosion at Palm Springs fertility clinic](https://www.yahoo.com/news/suspect-identified-intentional-explosion-palm-161642593.html)
+- May 18 - [Estonia says Russia detained a tanker in Baltic Sea](https://www.yahoo.com/news/estonia-says-russia-detained-tanker-155145484.html)
+- May 18 - [Murder investigation launched after man, 26, stabbed to death in London](https://www.yahoo.com/news/murder-investigation-launched-man-26-154957383.html)
 <!-- feed end -->
 
 ### Onstream
