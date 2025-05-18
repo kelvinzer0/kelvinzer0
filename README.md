@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [Donald Trump Reacts to Joe Biden's 'Aggressive' Prostate Cancer Diagnosis](https://www.yahoo.com/news/donald-trump-reacts-joe-bidens-222011429.html)
 - May 18 - [Justice Department says it may drop criminal prosecution of Boeing over Max crashes](https://www.yahoo.com/news/justice-department-says-may-drop-215910345.html)
-- May 18 - [Trump Gives Measured Condolences To Biden After Cancer Diagnosis](https://www.yahoo.com/news/trump-gives-measured-condolences-biden-215332106.html)
-- May 18 - [New photos show partial collapse, damaged cars at Jacksonville airport parking garage](https://www.yahoo.com/news/photos-show-partial-collapse-damaged-213219003.html)
-- May 18 - [Flagstaff police arrest man suspected of setting 3 fires as Greer Fire continues to burn](https://www.yahoo.com/news/flagstaff-police-arrest-man-suspected-212255898.html)
 - May 18 - [Receive a random package you didn’t order? You may be a victim of a ‘brushing’ scheme — here’s how it works](https://www.yahoo.com/news/receive-random-package-didn-t-210000282.html)
+- May 18 - [Biden has been diagnosed with aggressive prostate cancer](https://www.yahoo.com/news/biden-diagnosed-prostate-cancer-201308170.html)
+- May 18 - [Non-Americans Are CONVINCED That Americans Have NO IDEA What Is Going On In These 34 Photos](https://www.yahoo.com/lifestyle/non-americans-convinced-americans-no-195919547.html)
 <!-- feed end -->
 
 ### Onstream
