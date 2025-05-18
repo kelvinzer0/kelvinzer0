@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [The AI trade isn't over: Where investors can find value](https://finance.yahoo.com/video/ai-trade-isnt-over-where-180050415.html)
+- May 18 - [Houston man sues Whataburger for nearly $1M over burger mistake — says it caused ‘serious personal injuries’](https://www.yahoo.com/news/houston-man-sues-whataburger-nearly-174500063.html)
+- May 18 - [18-year-old high school senior killed in single-vehicle crash in Falmouth](https://www.yahoo.com/news/18-old-high-school-senior-153310920.html)
 - May 18 - [Teen boy dies after beach ‘disturbance’ that was filmed by bystanders](https://www.yahoo.com/news/teen-boy-dies-beach-disturbance-121232003.html)
-- May 18 - [Trump envoy Witkoff cites US 'red line' with Iran against uranium enrichment](https://www.yahoo.com/news/trump-envoy-witkoff-cites-us-164204864.html)
-- May 18 - [Suspect identified in ‘intentional’ explosion at Palm Springs fertility clinic](https://www.yahoo.com/news/suspect-identified-intentional-explosion-palm-161642593.html)
 - May 18 - [Estonia says Russia detained a tanker in Baltic Sea](https://www.yahoo.com/news/estonia-says-russia-detained-tanker-155145484.html)
-- May 18 - [Murder investigation launched after man, 26, stabbed to death in London](https://www.yahoo.com/news/murder-investigation-launched-man-26-154957383.html)
 <!-- feed end -->
 
 ### Onstream
