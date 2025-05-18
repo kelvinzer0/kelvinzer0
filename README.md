@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [How to balance fixed income and equities in your portfolio](https://finance.yahoo.com/video/balance-fixed-income-equities-portfolio-150014847.html)
+- May 18 - [Central Florida layoffs surge as employers navigate economic uncertainty](https://www.yahoo.com/news/central-florida-layoffs-surge-employers-143518080.html)
+- May 18 - [Sen. Chris Murphy: ‘Absolutely a mistake’ for Democrats not to address voters’ concerns over Biden](https://www.yahoo.com/news/sen-chris-murphy-absolutely-mistake-134707674.html)
 - May 18 - [The US Treasury just shocked Americans with a $258B surplus — its 2nd biggest monthly surplus in history](https://finance.yahoo.com/news/us-treasury-just-shocked-americans-130700143.html)
-- May 18 - [2 dead after Mexican navy training ship hits Brooklyn Bridge](https://www.yahoo.com/news/2-dead-mexican-navy-training-125915074.html)
-- May 18 - [Why The Boeing 777X Won't Have Engine Chevrons](https://autos.yahoo.com/why-boeing-777x-wont-engine-112500556.html)
-- May 18 - [A man had heart attack symptoms on a flight. A cardiologist and a pocket-sized tool on board may have helped save his life](https://www.yahoo.com/news/man-had-heart-attack-symptoms-110050069.html)
-- May 18 - [Scientists sound alarm on 'silent killing machines' that are devastating wildlife: 'This is very serious'](https://www.yahoo.com/news/scientists-sound-alarm-silent-killing-104548464.html)
+- May 18 - [A 2,000-Year-Old Sarcophagus Was Just Unsealed—and the Mummy Inside is Mind-Blowing](https://www.yahoo.com/news/2-000-old-sarcophagus-just-125300004.html)
 <!-- feed end -->
 
 ### Onstream
