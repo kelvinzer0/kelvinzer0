@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Panicked Trump Lashes Walmart for Telling Truth on Tariffs](https://finance.yahoo.com/news/panicked-trump-lashes-walmart-telling-172236419.html)
-- May 17 - [People Are Tossing Their Ziploc Bags After a Disturbing New Class Action Lawsuit](https://www.yahoo.com/news/people-tossing-ziploc-bags-disturbing-171500963.html)
-- May 17 - [Former NFL receiver Antonio Brown involved in altercation at Miami boxing event, claims he was targeted in robbery attempt](https://sports.yahoo.com/nfl/article/former-nfl-receiver-antonio-brown-involved-in-altercation-at-miami-boxing-event-claims-he-was-targeted-in-robbery-attempt-154702032.html)
-- May 17 - [I own a reselling business with my wife, and sales are booming. I can't attribute our growth to anything other than the tariffs.](https://finance.yahoo.com/news/own-reselling-business-wife-sales-123702673.html)
-- May 17 - [Dallas woman divorcing her husband after over secret $1M debt — but Ramsey Show hosts tell her to own her part](https://finance.yahoo.com/news/dallas-woman-divorcing-her-husband-113100675.html)
+- May 18 - [Mexican training ship crashes into Brooklyn Bridge leaving 19 people injured](https://www.yahoo.com/news/tall-ship-crashes-brooklyn-bridge-013924413.html)
+- May 18 - [Bruce Springsteen Gives Trump the Middle Finger with Another Defiant Concert](https://www.yahoo.com/entertainment/articles/bruce-springsteen-gives-trump-middle-020447967.html)
+- May 18 - [Kentucky Governor Andy Beshear says severe killed 18 in Kentucky from sever storm](https://www.yahoo.com/news/kentucky-governor-andy-beshear-says-010806923.html)
+- May 17 - [Trump endorses idea that Supreme Court ruling blocking his deportations under Alien Enemies Act is ‘illegal’](https://www.yahoo.com/news/trump-endorses-idea-supreme-court-215112478.html)
+- May 17 - [Employee identified as victim in deadly Las Vegas gym shooting](https://www.yahoo.com/news/gym-employee-identified-victim-deadly-191242162.html)
 <!-- feed end -->
 
 ### Onstream
