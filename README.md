@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Officials Reveal Cause of Ship Smashing into Brooklyn Bridge, Injuring 19 People](https://www.yahoo.com/news/officials-reveal-cause-ship-smashing-033208138.html)
+- May 18 - [Israeli strikes across Gaza kill at least 66 people, hospitals and medics say](https://www.yahoo.com/news/israeli-strikes-across-gaza-kill-064731073.html)
 - May 18 - [Bruce Springsteen Calls Out ‘Unfit President’ Trump Again, Says Elected Reps ‘Utterly Failed to Protect the American People’](https://www.yahoo.com/news/bruce-springsteen-calls-unfit-president-031208436.html)
-- May 17 - [Trump endorses idea that Supreme Court ruling blocking his deportations under Alien Enemies Act is ‘illegal’](https://www.yahoo.com/news/trump-endorses-idea-supreme-court-215112478.html)
 - May 17 - [One Day Later: Shocking new photos reveal widespread tornado damage in St. Louis](https://www.yahoo.com/news/one-day-later-shocking-photos-205815387.html)
-- May 17 - [Are You Rich or Just Upper Middle Class? Here's The Net Worth And Income It Takes To Be Considered Wealthy](https://finance.yahoo.com/news/rich-just-upper-middle-class-205518318.html)
+- May 17 - [New PlayStation handheld could go head-to-head with the Switch 2](https://tech.yahoo.com/gaming/articles/playstation-handheld-could-head-head-181904054.html)
+- May 17 - [People Are Tossing Their Ziploc Bags After a Disturbing New Class Action Lawsuit](https://www.yahoo.com/news/people-tossing-ziploc-bags-disturbing-171500963.html)
 <!-- feed end -->
 
 ### Onstream
