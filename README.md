@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Bruce Springsteen Gives Trump the Middle Finger with Another Defiant Concert](https://www.yahoo.com/entertainment/articles/bruce-springsteen-gives-trump-middle-020447967.html)
-- May 18 - [Mexican tall ship strikes Brooklyn Bridge, snapping masts and fatally injuring 2 crew members](https://www.yahoo.com/news/mexican-navy-training-vessel-hits-014202069.html)
+- May 18 - [Officials Reveal Cause of Ship Smashing into Brooklyn Bridge, Injuring 19 People](https://www.yahoo.com/news/officials-reveal-cause-ship-smashing-033208138.html)
+- May 18 - [Bruce Springsteen Calls Out ‘Unfit President’ Trump Again, Says Elected Reps ‘Utterly Failed to Protect the American People’](https://www.yahoo.com/news/bruce-springsteen-calls-unfit-president-031208436.html)
+- May 17 - [Trump endorses idea that Supreme Court ruling blocking his deportations under Alien Enemies Act is ‘illegal’](https://www.yahoo.com/news/trump-endorses-idea-supreme-court-215112478.html)
+- May 17 - [One Day Later: Shocking new photos reveal widespread tornado damage in St. Louis](https://www.yahoo.com/news/one-day-later-shocking-photos-205815387.html)
 - May 17 - [Are You Rich or Just Upper Middle Class? Here's The Net Worth And Income It Takes To Be Considered Wealthy](https://finance.yahoo.com/news/rich-just-upper-middle-class-205518318.html)
-- May 17 - [Employee identified as victim in deadly Las Vegas gym shooting](https://www.yahoo.com/news/gym-employee-identified-victim-deadly-191242162.html)
-- May 17 - [Trump warns Walmart: Don't raise prices due to my tariffs but do eat the costs from those taxes](https://www.yahoo.com/news/trump-warns-walmart-dont-raise-155519849.html)
 <!-- feed end -->
 
 ### Onstream
