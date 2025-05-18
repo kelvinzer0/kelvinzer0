@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Father pays tribute to teenager killed after beach ‘disturbance’ filmed by bystanders](https://www.yahoo.com/news/teen-boy-dies-beach-disturbance-121232003.html)
+- May 18 - [Marinara Sauce Recalls That Affected Millions](https://www.yahoo.com/news/marinara-sauce-recalls-affected-millions-194000458.html)
+- May 18 - ['The Stock Market Is Shooting Through The Roof,' Says Dave Ramsey. But Claims The Media's Silent—'They Want You Addicted To Fear'](https://finance.yahoo.com/news/stock-market-shooting-roof-says-193025088.html)
+- May 18 - [Father pays tribute to teenager dead after beach ‘disturbance’ filmed by bystanders](https://www.yahoo.com/news/teen-boy-dies-beach-disturbance-121232003.html)
+- May 18 - [60 years after he was hanged, Israel recovers Syrian archive belonging to famous spy](https://www.yahoo.com/news/60-years-hanged-israel-recovers-183850339.html)
 - May 18 - [The AI trade isn't over: Where investors can find value](https://finance.yahoo.com/video/ai-trade-isnt-over-where-180050415.html)
-- May 18 - [Norwegian Cruise Line employee sounds alarm on new cruise scam](https://www.yahoo.com/lifestyle/norwegian-cruise-line-employee-sounds-162400819.html)
-- May 18 - [Estonia says Russia detained a tanker in Baltic Sea](https://www.yahoo.com/news/estonia-says-russia-detained-tanker-155145484.html)
-- May 18 - [The US Treasury just shocked Americans with a $258B surplus — its 2nd biggest monthly surplus in history](https://finance.yahoo.com/news/us-treasury-just-shocked-americans-130700143.html)
 <!-- feed end -->
 
 ### Onstream
