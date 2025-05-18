@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - ['It's Real Y'all': People Are Sharing Their Tariff Receipts, And My Wallet Is Not Ready For What's Coming](https://finance.yahoo.com/news/real-yall-people-sharing-tariff-120002042.html)
+- May 18 - [‘He preyed on us’: Pennsylvania woman scammed out of $45,000 in sophisticated ‘dealership cloning’ scheme](https://www.yahoo.com/news/preyed-us-pennsylvania-woman-scammed-123100745.html)
+- May 18 - [The future of history: Trump could leave less documentation behind than any previous US president](https://www.yahoo.com/news/future-history-trump-could-leave-114023373.html)
+- May 18 - [Why The Boeing 777X Won't Have Engine Chevrons](https://autos.yahoo.com/why-boeing-777x-wont-engine-112500556.html)
 - May 18 - [Watch moment Mexican Navy training ship hits Brooklyn Bridge](https://www.yahoo.com/news/watch-moment-mexican-navy-training-064012632.html)
 - May 18 - [China slaps anti-dumping duties on plastics from US, EU, Japan, Taiwan](https://finance.yahoo.com/news/china-announces-anti-dumping-duties-060113340.html)
-- May 18 - [Hundreds of homes up for sale as residents flee coastal town: 'All the destruction'](https://www.yahoo.com/news/hundreds-homes-sale-residents-flee-055500733.html)
-- May 18 - [‘Saturday Night Live’ Opens With “Fake” Donald Trump Defending Qatar’s “Gift” Of A Jumbo Jet — An Hour After The Real POTUS Did The Same](https://www.yahoo.com/entertainment/articles/saturday-night-live-opens-show-035234857.html)
 <!-- feed end -->
 
 ### Onstream
