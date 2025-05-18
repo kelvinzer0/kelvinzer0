@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 18 - [Bruce Springsteen Gives Trump the Middle Finger with Another Defiant Concert](https://www.yahoo.com/entertainment/articles/bruce-springsteen-gives-trump-middle-020447967.html)
-- May 18 - [Kentucky Governor Andy Beshear says severe killed 18 in Kentucky from sever storm](https://www.yahoo.com/news/kentucky-governor-andy-beshear-says-010806923.html)
-- May 17 - [Trump endorses idea that Supreme Court ruling blocking his deportations under Alien Enemies Act is ‘illegal’](https://www.yahoo.com/news/trump-endorses-idea-supreme-court-215112478.html)
+- May 18 - [Mexican tall ship strikes Brooklyn Bridge, snapping masts and fatally injuring 2 crew members](https://www.yahoo.com/news/mexican-navy-training-vessel-hits-014202069.html)
+- May 17 - [Are You Rich or Just Upper Middle Class? Here's The Net Worth And Income It Takes To Be Considered Wealthy](https://finance.yahoo.com/news/rich-just-upper-middle-class-205518318.html)
 - May 17 - [Employee identified as victim in deadly Las Vegas gym shooting](https://www.yahoo.com/news/gym-employee-identified-victim-deadly-191242162.html)
-- May 17 - [People Are Tossing Their Ziploc Bags After a Disturbing New Class Action Lawsuit](https://www.yahoo.com/news/people-tossing-ziploc-bags-disturbing-171500963.html)
+- May 17 - [Trump warns Walmart: Don't raise prices due to my tariffs but do eat the costs from those taxes](https://www.yahoo.com/news/trump-warns-walmart-dont-raise-155519849.html)
 <!-- feed end -->
 
 ### Onstream
