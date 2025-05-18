@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [Villagers rally together to protest against more homes being built on green belt](https://www.yahoo.com/news/villagers-rally-together-protest-against-082311829.html)
+- May 18 - [Prediction: This Will Be Wall Street's First $10 Trillion Company -- And It's Not Apple](https://finance.yahoo.com/news/prediction-wall-streets-first-10-081500219.html)
 - May 18 - [China slaps anti-dumping duties on plastics from US, EU, Japan, Taiwan](https://finance.yahoo.com/news/china-announces-anti-dumping-duties-060113340.html)
+- May 18 - [Hundreds of homes up for sale as residents flee coastal town: 'All the destruction'](https://www.yahoo.com/news/hundreds-homes-sale-residents-flee-055500733.html)
 - May 18 - [The life lesson behind a 335-year-old funeral business? 'Never sleep on an argument'](https://uk.finance.yahoo.com/news/funeral-services-arrangement-uk-cpj-field-050002901.html)
-- May 18 - [Bruce Springsteen Calls Out ‘Unfit President’ Trump Again, Says Elected Reps ‘Utterly Failed to Protect the American People’](https://www.yahoo.com/news/bruce-springsteen-calls-unfit-president-031208436.html)
-- May 18 - [Mexican tall ship strikes Brooklyn Bridge, snapping masts and killing 2 crew members](https://www.yahoo.com/news/mexican-navy-training-vessel-hits-014202069.html)
-- May 17 - [Trump endorses idea that Supreme Court ruling blocking his deportations under Alien Enemies Act is ‘illegal’](https://www.yahoo.com/news/trump-endorses-idea-supreme-court-215112478.html)
 <!-- feed end -->
 
 ### Onstream
