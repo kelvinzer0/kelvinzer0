@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Marinara Sauce Recalls That Affected Millions](https://www.yahoo.com/news/marinara-sauce-recalls-affected-millions-194000458.html)
-- May 18 - ['The Stock Market Is Shooting Through The Roof,' Says Dave Ramsey. But Claims The Media's Silent—'They Want You Addicted To Fear'](https://finance.yahoo.com/news/stock-market-shooting-roof-says-193025088.html)
-- May 18 - [Father pays tribute to teenager dead after beach ‘disturbance’ filmed by bystanders](https://www.yahoo.com/news/teen-boy-dies-beach-disturbance-121232003.html)
-- May 18 - [60 years after he was hanged, Israel recovers Syrian archive belonging to famous spy](https://www.yahoo.com/news/60-years-hanged-israel-recovers-183850339.html)
-- May 18 - [The AI trade isn't over: Where investors can find value](https://finance.yahoo.com/video/ai-trade-isnt-over-where-180050415.html)
+- May 18 - [Joe Biden diagnosed with an 'aggressive form' of prostate cancer: 'The president and his family are reviewing treatment options'](https://www.yahoo.com/news/joe-biden-diagnosed-aggressive-form-202740873.html)
+- May 18 - [Non-Americans Are CONVINCED That Americans Have NO IDEA What Is Going On In These 34 Photos](https://www.yahoo.com/lifestyle/non-americans-convinced-americans-no-195919547.html)
+- May 18 - [Grok says it’s ‘skeptical’ about Holocaust death toll, then blames ‘programming error’](https://finance.yahoo.com/news/grok-says-skeptical-holocaust-death-195239792.html)
+- May 18 - [2 People Killed When Plane Crashes While Trying to Return to Airport 'Due to an Issue': 'Tragic Accident'](https://www.yahoo.com/news/2-people-killed-plane-crashes-190448645.html)
+- May 18 - [Why did a a Mexican tall ship smack into the Brooklyn Bridge?](https://www.yahoo.com/news/why-did-mexican-tall-ship-185758359.html)
 <!-- feed end -->
 
 ### Onstream
