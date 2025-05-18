@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [How to balance fixed income and equities in your portfolio](https://finance.yahoo.com/video/balance-fixed-income-equities-portfolio-150014847.html)
-- May 18 - [Central Florida layoffs surge as employers navigate economic uncertainty](https://www.yahoo.com/news/central-florida-layoffs-surge-employers-143518080.html)
-- May 18 - [Sen. Chris Murphy: ‘Absolutely a mistake’ for Democrats not to address voters’ concerns over Biden](https://www.yahoo.com/news/sen-chris-murphy-absolutely-mistake-134707674.html)
+- May 18 - [Tall Ship Strikes Brooklyn Bridge, Killing Two](https://www.yahoo.com/news/tall-ship-strikes-brooklyn-bridge-152917400.html)
+- May 18 - [Treasury secretary says Walmart's warnings on price increases are a 'worst-case scenario'](https://finance.yahoo.com/news/treasury-secretary-says-walmarts-warnings-145327495.html)
 - May 18 - [The US Treasury just shocked Americans with a $258B surplus — its 2nd biggest monthly surplus in history](https://finance.yahoo.com/news/us-treasury-just-shocked-americans-130700143.html)
 - May 18 - [A 2,000-Year-Old Sarcophagus Was Just Unsealed—and the Mummy Inside is Mind-Blowing](https://www.yahoo.com/news/2-000-old-sarcophagus-just-125300004.html)
+- May 18 - [‘He preyed on us’: Pennsylvania woman scammed out of $45,000 in sophisticated ‘dealership cloning’ scheme](https://www.yahoo.com/news/preyed-us-pennsylvania-woman-scammed-123100745.html)
 <!-- feed end -->
 
 ### Onstream
