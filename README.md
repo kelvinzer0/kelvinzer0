@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [This 1 Catalyst Could Send Bitcoin Skyrocketing Higher, According to Silicon Valley Billionaire Tim Draper](https://finance.yahoo.com/news/1-catalyst-could-send-bitcoin-100000640.html)
 - May 18 - [Colombian police arrest suspect in Peru mine workers' killings](https://www.yahoo.com/news/colombian-police-arrest-alleged-suspect-044606946.html)
-- May 18 - [3 Reasons to Buy Nvidia Stock Hand Over Fist Before May 28](https://finance.yahoo.com/news/3-reasons-buy-nvidia-stock-084800624.html)
 - May 18 - [China slaps anti-dumping duties on plastics from US, EU, Japan, Taiwan](https://finance.yahoo.com/news/china-announces-anti-dumping-duties-060113340.html)
-- May 18 - [Hundreds of homes up for sale as residents flee coastal town: 'All the destruction'](https://www.yahoo.com/news/hundreds-homes-sale-residents-flee-055500733.html)
 - May 18 - [‘Saturday Night Live’ Opens With “Fake” Donald Trump Defending Qatar’s “Gift” Of A Jumbo Jet — An Hour After The Real POTUS Did The Same](https://www.yahoo.com/entertainment/articles/saturday-night-live-opens-show-035234857.html)
+- May 18 - [Officials Reveal Cause of Ship Smashing into Brooklyn Bridge, Injuring 19 People](https://www.yahoo.com/news/officials-reveal-cause-ship-smashing-033208138.html)
 <!-- feed end -->
 
 ### Onstream
