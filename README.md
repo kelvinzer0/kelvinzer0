@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [This could be another market surprise after the Moody's US credit rating downgrade](https://finance.yahoo.com/news/this-could-be-another-market-surprise-after-the-moodys-us-credit-rating-downgrade-120956027.html)
-- May 19 - [Weekend of devastating tornadoes across US kills dozens](https://www.yahoo.com/news/weekend-devastating-tornadoes-across-us-112341254.html)
-- May 19 - [Nasa warns of huge solar flares causing blackouts on Earth](https://www.yahoo.com/news/nasa-warns-huge-solar-flares-110555395.html)
-- May 19 - [Donald Trump Forwards Shocker Of A Plea For Barack Obama](https://www.yahoo.com/news/donald-trump-forwards-shocker-plea-105850859.html)
-- May 19 - [Kremlin says Romanian election was 'strange, to say the least'](https://www.yahoo.com/news/kremlin-says-romanian-election-strange-101406057.html)
+- May 19 - [Dow Jones Slides 250 Points On U.S. Credit Downgrade; Apple, Nvidia, Tesla Sell Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-credit-downgrade-apple-nvidia-nvda-tesla-tsla/?src=A00220&yptr=yahoo)
+- May 19 - [Trump Demands Investigation Into Beyoncé and Three Other Major Stars](https://www.yahoo.com/news/trump-demands-investigation-beyonc-three-124010605.html)
+- May 19 - [Migrant who called for slaughter of Jews jailed for attempting to enter UK illegally](https://www.yahoo.com/news/migrant-called-slaughter-jews-jailed-123732441.html)
+- May 19 - [Finland to use proceeds from frozen Russian assets to supply ammunition to Ukraine](https://www.yahoo.com/news/finland-proceeds-frozen-russian-assets-123258532.html)
+- May 19 - [27 Wild, Horrifying, And Extremely Messed-Up Stories About The Ocean, Lakes, And Other Bodies Of Water](https://www.yahoo.com/news/27-wild-horrifying-extremely-messed-123102205.html)
 <!-- feed end -->
 
 ### Onstream
