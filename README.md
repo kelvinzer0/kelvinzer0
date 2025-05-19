@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Donald Trump Reacts to Joe Biden's 'Aggressive' Prostate Cancer Diagnosis](https://www.yahoo.com/news/donald-trump-reacts-joe-bidens-222011429.html)
-- May 18 - [Justice Department says it may drop criminal prosecution of Boeing over Max crashes](https://www.yahoo.com/news/justice-department-says-may-drop-215910345.html)
-- May 18 - [Receive a random package you didn’t order? You may be a victim of a ‘brushing’ scheme — here’s how it works](https://www.yahoo.com/news/receive-random-package-didn-t-210000282.html)
-- May 18 - [Biden has been diagnosed with aggressive prostate cancer](https://www.yahoo.com/news/biden-diagnosed-prostate-cancer-201308170.html)
-- May 18 - [Non-Americans Are CONVINCED That Americans Have NO IDEA What Is Going On In These 34 Photos](https://www.yahoo.com/lifestyle/non-americans-convinced-americans-no-195919547.html)
+- May 19 - [Mexican ship appeared to lose power before deadly crash into Brooklyn Bridge, NYPD says](https://www.yahoo.com/news/mexican-ship-appeared-lose-power-010120194.html)
+- May 18 - [Nvidia's Huang set to showcase latest AI tech at Taiwan's Computex](https://finance.yahoo.com/news/nvidias-huang-set-showcase-latest-230440476.html)
+- May 18 - [Former President Joe Biden's cancer diagnosis: What does a Gleason score of 9 mean?](https://www.yahoo.com/news/former-president-joe-bidens-cancer-215802913.html)
+- May 18 - [Mom Asks Suze Orman: 'Did We Create A Monster?' 23-Year-Old Daughter Has $250K Saved But Refuses To Pay For Dates Or Family Outings](https://finance.yahoo.com/news/mom-asks-suze-orman-did-223026792.html)
+- May 18 - [Wife of convicted Orlando killer now sits in same jail as her husband, documents show](https://www.yahoo.com/news/wife-convicted-orlando-killer-now-210431814.html)
 <!-- feed end -->
 
 ### Onstream
