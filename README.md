@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Jamie Dimon speaks at JPMorgan investor day: Key takeaways](https://finance.yahoo.com/video/jamie-dimon-speaks-jpmorgan-investor-201931382.html)
-- May 19 - [Sinkhole shuts down Route 422 in Lebanon County; emergency repairs planned: PennDOT](https://www.yahoo.com/news/sinkhole-shuts-down-route-422-195642133.html)
-- May 19 - [China says the U.S. is screwing up trade talks with its move against Huawei](https://www.yahoo.com/news/china-says-u-screwing-trade-192243835.html)
-- May 19 - [JD Vance gives football jersey to Pope and invites him to White House](https://www.yahoo.com/news/jd-vance-gives-football-jersey-191504714.html)
+- May 19 - [JD Vance Is Being Called Out For His "Shockingly Unchristian" Message About Biden's Cancer Diagnosis](https://www.yahoo.com/news/jd-vance-being-called-shockingly-193729703.html)
 - May 19 - [Passenger jet had to abort takeoff to avoid runway collision at New York's LaGuardia Airport](https://www.yahoo.com/news/passenger-jet-had-abort-takeoff-190833852.html)
+- May 19 - [Putin Dumps Cold Water Over Trump’s Celebration of Their Phone Call](https://www.yahoo.com/news/putin-quite-different-trump-phone-190348656.html)
+- May 19 - [Republicans Are Rejoicing as They Gut a Bill That Benefits Red States](https://www.yahoo.com/news/republicans-rejoicing-gut-bill-benefits-185353206.html)
+- May 19 - [Trump’s retreat! Melber on tariffs with billionaire who called for ‘disgusting’ Trump to be jailed](https://www.yahoo.com/news/trump-retreat-melber-tariffs-billionaire-183158544.html)
 <!-- feed end -->
 
 ### Onstream
