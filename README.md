@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Ashli Babbitt's family to receive $5 million in settlement with Trump administration: Sources](https://www.yahoo.com/news/ashli-babbitts-family-receive-5-182535597.html)
-- May 19 - [My 'textbook' heart attack symptoms were ignored](https://www.yahoo.com/news/textbook-heart-attack-symptoms-were-182033980.html)
-- May 19 - [Shipment of thousands of chicks found abandoned in USPS truck now overwhelming an animal shelter](https://www.yahoo.com/news/shipment-thousands-chicks-found-abandoned-181603210.html)
-- May 19 - [Nearly 18,000 tubs of ice cream and frozen yogurt recalled over potential plastic contamination](https://www.yahoo.com/news/nearly-18000-tubs-of-ice-cream-and-frozen-yogurt-recalled-over-potential-plastic-contamination-180342169.html)
-- May 19 - [Deadly train accident in Ohio, officials say](https://www.yahoo.com/news/deadly-train-accident-ohio-officials-174841189.html)
+- May 19 - [Jamie Dimon speaks at JPMorgan investor day: Key takeaways](https://finance.yahoo.com/video/jamie-dimon-speaks-jpmorgan-investor-201931382.html)
+- May 19 - [Sinkhole shuts down Route 422 in Lebanon County; emergency repairs planned: PennDOT](https://www.yahoo.com/news/sinkhole-shuts-down-route-422-195642133.html)
+- May 19 - [China says the U.S. is screwing up trade talks with its move against Huawei](https://www.yahoo.com/news/china-says-u-screwing-trade-192243835.html)
+- May 19 - [JD Vance gives football jersey to Pope and invites him to White House](https://www.yahoo.com/news/jd-vance-gives-football-jersey-191504714.html)
+- May 19 - [Passenger jet had to abort takeoff to avoid runway collision at New York's LaGuardia Airport](https://www.yahoo.com/news/passenger-jet-had-abort-takeoff-190833852.html)
 <!-- feed end -->
 
 ### Onstream
