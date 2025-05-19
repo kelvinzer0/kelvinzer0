@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [Residents fury at 280ft 'eyesore' Chinese supermarket unit built near homes](https://www.yahoo.com/news/residents-fury-280ft-eyesore-chinese-095913577.html)
+- May 19 - [‘The sweetest soul’: 18-year-old high school senior killed in single-vehicle crash in Falmouth](https://www.yahoo.com/news/18-old-high-school-senior-153310920.html)
+- May 19 - [Trump Demands 'Major Investigation' Into 4 Huge Stars In Middle-Of-The-Night Meltdown](https://www.yahoo.com/news/trump-demands-major-investigation-4-091902411.html)
+- May 19 - [Wordle hints today for #1,430: Clues and answer for Monday, May 19](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1430-clues-and-answer-for-monday-may-19-040126274.html)
 - May 19 - [Donald Trump Jr. Ripped Over 'Disgusting' Post About Biden's Cancer](https://www.yahoo.com/news/donald-trump-jr-ripped-over-035636651.html)
-- May 19 - [These trees exist in only one place on Earth. Now climate change and goats threaten their survival](https://www.yahoo.com/news/trees-exist-only-one-place-033450454.html)
-- May 19 - [Nvidia in advanced talks to invest in PsiQuantum, The Information reports](https://finance.yahoo.com/news/nvidia-advanced-talks-invest-psiquantum-021752334.html)
-- May 19 - [Hamas leader's body found as peace talks with Israel pick back up](https://www.yahoo.com/news/hamas-leaders-body-found-peace-150917413.html)
-- May 18 - [21 Unexpected Notes, Signs, And Messages That Are Way, Way, Way, Way, Way, Way, Way, Funnier Than They Should Be](https://www.yahoo.com/lifestyle/21-unexpected-notes-signs-messages-231602801.html)
 <!-- feed end -->
 
 ### Onstream
