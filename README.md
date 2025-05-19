@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Qualcomm to make data center processors that connect to Nvidia chips](https://finance.yahoo.com/news/qualcomm-data-center-processors-connect-060152120.html)
+- May 19 - [Live updates: Trucks loaded with humanitarian aid waiting to enter Gaza](https://www.yahoo.com/news/live-updates-un-official-says-075710680.html)
+- May 19 - [SHH Resources Holdings Berhad (KLSE:SHH) Is Looking To Continue Growing Its Returns On Capital](https://finance.yahoo.com/news/shh-resources-holdings-berhad-klse-074344862.html)
+- May 19 - [Guinness maker Diageo braces for £113m US tariff impact](https://finance.yahoo.com/news/guinness-maker-diageo-braces-113m-070533552.html)
 - May 19 - [Donald Trump Jr. Ripped Over 'Disgusting' Post About Biden's Cancer](https://www.yahoo.com/news/donald-trump-jr-ripped-over-035636651.html)
 - May 19 - [These trees exist in only one place on Earth. Now climate change and goats threaten their survival](https://www.yahoo.com/news/trees-exist-only-one-place-033450454.html)
-- May 18 - [Nvidia plans to sell tech to speed AI chip communication](https://finance.yahoo.com/news/nvidias-huang-set-showcase-latest-230440476.html)
-- May 18 - [Mom Asks Suze Orman: 'Did We Create A Monster?' 23-Year-Old Daughter Has $250K Saved But Refuses To Pay For Dates Or Family Outings](https://finance.yahoo.com/news/mom-asks-suze-orman-did-223026792.html)
 <!-- feed end -->
 
 ### Onstream
