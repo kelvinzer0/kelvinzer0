@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [First group of 'self-deporting' migrants departs US](https://www.yahoo.com/news/first-group-self-deporting-migrants-215456319.html)
-- May 19 - [Severe thunderstorm warning issued in Des Moines metro](https://www.yahoo.com/news/severe-thunderstorm-warning-issued-des-213943535.html)
+- May 19 - [Taxpayers in metro Phoenix still footing the bill for Joe Arpaio’s immigration crackdowns](https://www.yahoo.com/news/taxpayers-metro-phoenix-still-footing-225110104.html)
+- May 19 - [Orphan Pleaded to Be Adopted in 2013. Now He Shares 'Trauma' He Endured in Foster Care — and Finding Love with a Family](https://www.yahoo.com/news/orphan-pleaded-adopted-2013-now-224500176.html)
+- May 19 - [In-N-Out Burger forced to change its menu after RFK’s new rule](https://www.yahoo.com/news/n-burger-forced-change-menu-215930003.html)
+- May 19 - [The GOP wants work requirements for Medicaid. Here's what those rules do (and don't) accomplish.](https://www.yahoo.com/news/the-gop-wants-work-requirements-for-medicaid-heres-what-those-rules-do-and-dont-accomplish-212455995.html)
 - May 19 - [What to know about Netflix's downgrade & 'Sesame Street' addition](https://finance.yahoo.com/video/know-netflixs-downgrade-sesame-street-211559446.html)
-- May 19 - [What to know about the Air Dot Show as the Blue Angels return to Central Pa. this weekend](https://www.yahoo.com/news/know-air-dot-show-blue-211446090.html)
-- May 19 - [The Two Words That Sum Up First-Quarter Earnings](https://finance.yahoo.com/news/two-words-sum-first-quarter-210943649.html)
 <!-- feed end -->
 
 ### Onstream
