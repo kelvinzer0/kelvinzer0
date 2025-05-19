@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [Qualcomm to make data center processors that connect to Nvidia chips](https://finance.yahoo.com/news/qualcomm-data-center-processors-connect-060152120.html)
 - May 19 - [Donald Trump Jr. Ripped Over 'Disgusting' Post About Biden's Cancer](https://www.yahoo.com/news/donald-trump-jr-ripped-over-035636651.html)
-- May 19 - [Colombian model’s murder, just days after Mexican influencer shot on live stream, sparks condemnation of femicide](https://www.yahoo.com/news/colombian-model-murder-just-days-034246349.html)
 - May 19 - [These trees exist in only one place on Earth. Now climate change and goats threaten their survival](https://www.yahoo.com/news/trees-exist-only-one-place-033450454.html)
-- May 18 - [21 Unexpected Notes, Signs, And Messages That Are Way, Way, Way, Way, Way, Way, Way, Funnier Than They Should Be](https://www.yahoo.com/lifestyle/21-unexpected-notes-signs-messages-231602801.html)
-- May 18 - [Receive a random package you didn’t order? You may be a victim of a ‘brushing’ scheme — here’s how it works](https://www.yahoo.com/news/receive-random-package-didn-t-210000282.html)
+- May 18 - [Nvidia plans to sell tech to speed AI chip communication](https://finance.yahoo.com/news/nvidias-huang-set-showcase-latest-230440476.html)
+- May 18 - [Mom Asks Suze Orman: 'Did We Create A Monster?' 23-Year-Old Daughter Has $250K Saved But Refuses To Pay For Dates Or Family Outings](https://finance.yahoo.com/news/mom-asks-suze-orman-did-223026792.html)
 <!-- feed end -->
 
 ### Onstream
