@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [One child missing and another injured after train hits family on railroad bridge, killing two adults](https://www.yahoo.com/news/one-child-missing-another-injured-042045782.html)
 - May 19 - [Donald Trump Jr. Ripped Over 'Disgusting' Post About Biden's Cancer](https://www.yahoo.com/news/donald-trump-jr-ripped-over-035636651.html)
+- May 19 - [Colombian model’s murder, just days after Mexican influencer shot on live stream, sparks condemnation of femicide](https://www.yahoo.com/news/colombian-model-murder-just-days-034246349.html)
 - May 19 - [These trees exist in only one place on Earth. Now climate change and goats threaten their survival](https://www.yahoo.com/news/trees-exist-only-one-place-033450454.html)
-- May 19 - [China's Factory Output Grows More Than Forecast Despite Tariffs](https://finance.yahoo.com/video/chinas-factory-output-grows-more-023344125.html)
-- May 18 - [Nvidia plans to sell tech to speed AI chip communication](https://finance.yahoo.com/news/nvidias-huang-set-showcase-latest-230440476.html)
+- May 18 - [21 Unexpected Notes, Signs, And Messages That Are Way, Way, Way, Way, Way, Way, Way, Funnier Than They Should Be](https://www.yahoo.com/lifestyle/21-unexpected-notes-signs-messages-231602801.html)
+- May 18 - [Receive a random package you didn’t order? You may be a victim of a ‘brushing’ scheme — here’s how it works](https://www.yahoo.com/news/receive-random-package-didn-t-210000282.html)
 <!-- feed end -->
 
 ### Onstream
