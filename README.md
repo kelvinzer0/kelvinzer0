@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Tesla Starts Accepting Cybertruck Trade-Ins with Staggering Depreciation](https://finance.yahoo.com/news/tesla-starts-accepting-cybertruck-trade-153905314.html)
-- May 19 - [I've made $27,000 walking dogs. How you can, too](https://www.yahoo.com/lifestyle/ive-made-27-000-walking-153343708.html)
-- May 19 - [Caught on camera, capuchin monkeys kidnap howler monkey babies](https://www.yahoo.com/news/caught-camera-capuchin-monkeys-kidnap-150525846.html)
-- May 19 - [Israel steps up offensive in Gaza in bid to pressure Hamas into ceasefire deal](https://www.yahoo.com/news/israel-steps-offensive-gaza-bid-150402563.html)
-- May 19 - [Trump Is Dismantling Domestic Violence Nonprofits by Banning Certain Words](https://www.yahoo.com/news/trump-dismantling-domestic-violence-nonprofits-144500520.html)
+- May 19 - [Venezuela minister says suspending Colombia flights after arrests](https://www.yahoo.com/news/venezuela-minister-says-suspending-colombia-165400626.html)
+- May 19 - [Sean 'Diddy' Combs trial live updates: Witness testimony resumes in sex trafficking case](https://www.yahoo.com/news/live/sean-diddy-combs-trial-live-updates-witness-testimony-resumes-in-sex-trafficking-case-124820716.html)
+- May 19 - [Tom Cruise plans to make movies into his 100s. His secret to staying young at 62 is free, simple, and seen in centenarians.](https://www.yahoo.com/entertainment/articles/tom-cruise-plans-movies-100s-123001407.html)
+- May 19 - [FBI Director Kash Patel targets Memphis in Fox News show: How homicide rate factors in](https://www.yahoo.com/news/fbi-director-kash-patel-targets-163611334.html)
+- May 19 - [Kid Rock applauds Trump for ‘spanking’ DEI groups – but rock star notes he helped lead anti-woke push](https://www.yahoo.com/news/kid-rock-applauds-trump-spanking-160135378.html)
 <!-- feed end -->
 
 ### Onstream
