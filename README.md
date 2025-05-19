@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Guinness maker Diageo braces for £113m US tariff impact](https://finance.yahoo.com/news/guinness-maker-diageo-braces-113m-070533552.html)
-- May 19 - [1 person dies when a boat overloaded with migrants sinks in the English Channel](https://www.yahoo.com/news/1-person-dies-boat-overloaded-105410721.html)
-- May 19 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
-- May 19 - [Spain orders Airbnb to block 65,000 holiday rentals over rule violations](https://www.yahoo.com/news/spain-orders-airbnb-block-65-102019934.html)
-- May 19 - [Creators of Taiwanese TV show imagining Chinese invasion warn island needs to prepare](https://www.yahoo.com/news/creators-taiwanese-tv-show-imagining-101942557.html)
+- May 19 - [This could be another market surprise after the Moody's US credit rating downgrade](https://finance.yahoo.com/news/this-could-be-another-market-surprise-after-the-moodys-us-credit-rating-downgrade-120956027.html)
+- May 19 - [Weekend of devastating tornadoes across US kills dozens](https://www.yahoo.com/news/weekend-devastating-tornadoes-across-us-112341254.html)
+- May 19 - [Nasa warns of huge solar flares causing blackouts on Earth](https://www.yahoo.com/news/nasa-warns-huge-solar-flares-110555395.html)
+- May 19 - [Donald Trump Forwards Shocker Of A Plea For Barack Obama](https://www.yahoo.com/news/donald-trump-forwards-shocker-plea-105850859.html)
+- May 19 - [Kremlin says Romanian election was 'strange, to say the least'](https://www.yahoo.com/news/kremlin-says-romanian-election-strange-101406057.html)
 <!-- feed end -->
 
 ### Onstream
