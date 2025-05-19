@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [RFK Jr. pledged not to upend US vaccine system, but big changes are underway](https://www.yahoo.com/news/rfk-jr-pledged-not-upend-134330425.html)
-- May 19 - [Foot Locker security guard stuck his finger in a shopper’s belly button - and groped another: lawsuit](https://www.yahoo.com/news/foot-locker-security-guard-stuck-134251625.html)
-- May 19 - [Dow Jones Slides 250 Points On U.S. Credit Downgrade; Apple, Nvidia, Tesla Sell Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-credit-downgrade-apple-nvidia-nvda-tesla-tsla/?src=A00220&yptr=yahoo)
-- May 19 - [For 1 sentinel, a final walk at Arlington's Tomb of the Unknown Soldier](https://www.yahoo.com/news/1-sentinel-final-walk-arlingtons-131726361.html)
-- May 19 - [Morning Joe Stunned as Oncologist Says Biden Had Cancer for Years](https://www.yahoo.com/news/morning-joe-stunned-oncologist-says-131633655.html)
+- May 19 - [Israel steps up offensive in Gaza in bid to pressure Hamas into ceasefire deal](https://www.yahoo.com/news/israel-steps-offensive-gaza-bid-150402563.html)
+- May 19 - [Arup to lead engineering for SFPUC’s Millbrae Campus Improvements project in US](https://finance.yahoo.com/news/arup-lead-engineering-sfpuc-millbrae-144459670.html)
+- May 19 - [‘That was the last place I would look at’: NH mom, two daughters share rare medical condition](https://www.yahoo.com/news/last-place-look-nh-mom-163101125.html)
+- May 19 - [Appeals court allows Trump’s anti-union order to take effect](https://www.yahoo.com/news/appeals-court-allows-trump-anti-144414259.html)
+- May 19 - [21 tornadoes reported in Kansas; severe storms expected May 19 in NE Kansas](https://www.yahoo.com/news/21-tornadoes-reported-kansas-severe-142652697.html)
 <!-- feed end -->
 
 ### Onstream
