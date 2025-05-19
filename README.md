@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Live updates: Trucks loaded with humanitarian aid waiting to enter Gaza](https://www.yahoo.com/news/live-updates-un-official-says-075710680.html)
-- May 19 - [SHH Resources Holdings Berhad (KLSE:SHH) Is Looking To Continue Growing Its Returns On Capital](https://finance.yahoo.com/news/shh-resources-holdings-berhad-klse-074344862.html)
-- May 19 - [Guinness maker Diageo braces for £113m US tariff impact](https://finance.yahoo.com/news/guinness-maker-diageo-braces-113m-070533552.html)
 - May 19 - [Donald Trump Jr. Ripped Over 'Disgusting' Post About Biden's Cancer](https://www.yahoo.com/news/donald-trump-jr-ripped-over-035636651.html)
 - May 19 - [These trees exist in only one place on Earth. Now climate change and goats threaten their survival](https://www.yahoo.com/news/trees-exist-only-one-place-033450454.html)
+- May 19 - [Nvidia in advanced talks to invest in PsiQuantum, The Information reports](https://finance.yahoo.com/news/nvidia-advanced-talks-invest-psiquantum-021752334.html)
+- May 19 - [Hamas leader's body found as peace talks with Israel pick back up](https://www.yahoo.com/news/hamas-leaders-body-found-peace-150917413.html)
+- May 18 - [21 Unexpected Notes, Signs, And Messages That Are Way, Way, Way, Way, Way, Way, Way, Funnier Than They Should Be](https://www.yahoo.com/lifestyle/21-unexpected-notes-signs-messages-231602801.html)
 <!-- feed end -->
 
 ### Onstream
