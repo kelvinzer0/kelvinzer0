@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Mexican ship appeared to lose power before deadly crash into Brooklyn Bridge, NYPD says](https://www.yahoo.com/news/mexican-ship-appeared-lose-power-010120194.html)
+- May 19 - [Nvidia in advanced talks to invest in PsiQuantum, The Information reports](https://finance.yahoo.com/news/nvidia-advanced-talks-invest-psiquantum-021752334.html)
 - May 18 - [Nvidia's Huang set to showcase latest AI tech at Taiwan's Computex](https://finance.yahoo.com/news/nvidias-huang-set-showcase-latest-230440476.html)
 - May 18 - [Former President Joe Biden's cancer diagnosis: What does a Gleason score of 9 mean?](https://www.yahoo.com/news/former-president-joe-bidens-cancer-215802913.html)
 - May 18 - [Mom Asks Suze Orman: 'Did We Create A Monster?' 23-Year-Old Daughter Has $250K Saved But Refuses To Pay For Dates Or Family Outings](https://finance.yahoo.com/news/mom-asks-suze-orman-did-223026792.html)
-- May 18 - [Wife of convicted Orlando killer now sits in same jail as her husband, documents show](https://www.yahoo.com/news/wife-convicted-orlando-killer-now-210431814.html)
+- May 18 - [MAGA Goes Beserk After Trump’s FBI Bosses Say Epstein Killed Himself](https://www.yahoo.com/news/maga-goes-beserk-trump-fbi-222800025.html)
 <!-- feed end -->
 
 ### Onstream
