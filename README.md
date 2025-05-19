@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Residents fury at 280ft 'eyesore' Chinese supermarket unit built near homes](https://www.yahoo.com/news/residents-fury-280ft-eyesore-chinese-095913577.html)
-- May 19 - [‘The sweetest soul’: 18-year-old high school senior killed in single-vehicle crash in Falmouth](https://www.yahoo.com/news/18-old-high-school-senior-153310920.html)
-- May 19 - [Trump Demands 'Major Investigation' Into 4 Huge Stars In Middle-Of-The-Night Meltdown](https://www.yahoo.com/news/trump-demands-major-investigation-4-091902411.html)
-- May 19 - [Wordle hints today for #1,430: Clues and answer for Monday, May 19](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1430-clues-and-answer-for-monday-may-19-040126274.html)
-- May 19 - [Donald Trump Jr. Ripped Over 'Disgusting' Post About Biden's Cancer](https://www.yahoo.com/news/donald-trump-jr-ripped-over-035636651.html)
+- May 19 - [Guinness maker Diageo braces for £113m US tariff impact](https://finance.yahoo.com/news/guinness-maker-diageo-braces-113m-070533552.html)
+- May 19 - [1 person dies when a boat overloaded with migrants sinks in the English Channel](https://www.yahoo.com/news/1-person-dies-boat-overloaded-105410721.html)
+- May 19 - [UK political opinion poll tracker](https://www.yahoo.com/news/reform-top-polls-track-progress-180117658.html)
+- May 19 - [Spain orders Airbnb to block 65,000 holiday rentals over rule violations](https://www.yahoo.com/news/spain-orders-airbnb-block-65-102019934.html)
+- May 19 - [Creators of Taiwanese TV show imagining Chinese invasion warn island needs to prepare](https://www.yahoo.com/news/creators-taiwanese-tv-show-imagining-101942557.html)
 <!-- feed end -->
 
 ### Onstream
