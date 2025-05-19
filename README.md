@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [JD Vance Is Being Called Out For His "Shockingly Unchristian" Message About Biden's Cancer Diagnosis](https://www.yahoo.com/news/jd-vance-being-called-shockingly-193729703.html)
-- May 19 - [Passenger jet had to abort takeoff to avoid runway collision at New York's LaGuardia Airport](https://www.yahoo.com/news/passenger-jet-had-abort-takeoff-190833852.html)
-- May 19 - [Putin Dumps Cold Water Over Trump’s Celebration of Their Phone Call](https://www.yahoo.com/news/putin-quite-different-trump-phone-190348656.html)
-- May 19 - [Republicans Are Rejoicing as They Gut a Bill That Benefits Red States](https://www.yahoo.com/news/republicans-rejoicing-gut-bill-benefits-185353206.html)
-- May 19 - [Trump’s retreat! Melber on tariffs with billionaire who called for ‘disgusting’ Trump to be jailed](https://www.yahoo.com/news/trump-retreat-melber-tariffs-billionaire-183158544.html)
+- May 19 - [First group of 'self-deporting' migrants departs US](https://www.yahoo.com/news/first-group-self-deporting-migrants-215456319.html)
+- May 19 - [Severe thunderstorm warning issued in Des Moines metro](https://www.yahoo.com/news/severe-thunderstorm-warning-issued-des-213943535.html)
+- May 19 - [What to know about Netflix's downgrade & 'Sesame Street' addition](https://finance.yahoo.com/video/know-netflixs-downgrade-sesame-street-211559446.html)
+- May 19 - [What to know about the Air Dot Show as the Blue Angels return to Central Pa. this weekend](https://www.yahoo.com/news/know-air-dot-show-blue-211446090.html)
+- May 19 - [The Two Words That Sum Up First-Quarter Earnings](https://finance.yahoo.com/news/two-words-sum-first-quarter-210943649.html)
 <!-- feed end -->
 
 ### Onstream
