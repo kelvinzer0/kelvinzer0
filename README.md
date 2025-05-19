@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [RFK Jr. pledged not to upend US vaccine system, but big changes are underway](https://www.yahoo.com/news/rfk-jr-pledged-not-upend-134330425.html)
+- May 19 - [Foot Locker security guard stuck his finger in a shopper’s belly button - and groped another: lawsuit](https://www.yahoo.com/news/foot-locker-security-guard-stuck-134251625.html)
 - May 19 - [Dow Jones Slides 250 Points On U.S. Credit Downgrade; Apple, Nvidia, Tesla Sell Off](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-credit-downgrade-apple-nvidia-nvda-tesla-tsla/?src=A00220&yptr=yahoo)
-- May 19 - [Trump Demands Investigation Into Beyoncé and Three Other Major Stars](https://www.yahoo.com/news/trump-demands-investigation-beyonc-three-124010605.html)
-- May 19 - [Migrant who called for slaughter of Jews jailed for attempting to enter UK illegally](https://www.yahoo.com/news/migrant-called-slaughter-jews-jailed-123732441.html)
-- May 19 - [Finland to use proceeds from frozen Russian assets to supply ammunition to Ukraine](https://www.yahoo.com/news/finland-proceeds-frozen-russian-assets-123258532.html)
-- May 19 - [27 Wild, Horrifying, And Extremely Messed-Up Stories About The Ocean, Lakes, And Other Bodies Of Water](https://www.yahoo.com/news/27-wild-horrifying-extremely-messed-123102205.html)
+- May 19 - [For 1 sentinel, a final walk at Arlington's Tomb of the Unknown Soldier](https://www.yahoo.com/news/1-sentinel-final-walk-arlingtons-131726361.html)
+- May 19 - [Morning Joe Stunned as Oncologist Says Biden Had Cancer for Years](https://www.yahoo.com/news/morning-joe-stunned-oncologist-says-131633655.html)
 <!-- feed end -->
 
 ### Onstream
