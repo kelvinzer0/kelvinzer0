@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [“My 600-Lb. Life” Star Latonya Pottain Dead at 40](https://www.yahoo.com/entertainment/articles/600-lb-life-star-latonya-174427385.html)
-- May 19 - [Dawn Richard Testifies Usher and Others Were Present when Diddy Allegedly Punched Cassie in the Stomach](https://www.yahoo.com/news/dawn-richard-testifies-usher-others-170013187.html)
-- May 19 - [Citi CEO: Something 'deeper' is going on in financial markets right now](https://finance.yahoo.com/news/citi-ceo-something-deeper-is-going-on-in-financial-markets-right-now-164730586.html)
-- May 19 - [‘Dilbert’ Creator Scott Adams Says He Will Die Soon From Same Cancer as Joe Biden](https://www.yahoo.com/news/dilbert-creator-scott-adams-says-163646259.html)
-- May 19 - [Florida Teacher Accused of Unlawful Sex with Student — Including in Her Classroom Hours Before Her Arrest](https://www.yahoo.com/news/florida-teacher-accused-unlawful-sex-163214595.html)
+- May 19 - [Ashli Babbitt's family to receive $5 million in settlement with Trump administration: Sources](https://www.yahoo.com/news/ashli-babbitts-family-receive-5-182535597.html)
+- May 19 - [My 'textbook' heart attack symptoms were ignored](https://www.yahoo.com/news/textbook-heart-attack-symptoms-were-182033980.html)
+- May 19 - [Shipment of thousands of chicks found abandoned in USPS truck now overwhelming an animal shelter](https://www.yahoo.com/news/shipment-thousands-chicks-found-abandoned-181603210.html)
+- May 19 - [Nearly 18,000 tubs of ice cream and frozen yogurt recalled over potential plastic contamination](https://www.yahoo.com/news/nearly-18000-tubs-of-ice-cream-and-frozen-yogurt-recalled-over-potential-plastic-contamination-180342169.html)
+- May 19 - [Deadly train accident in Ohio, officials say](https://www.yahoo.com/news/deadly-train-accident-ohio-officials-174841189.html)
 <!-- feed end -->
 
 ### Onstream
