@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [One child missing and another injured after train hits family on railroad bridge, killing two adults](https://www.yahoo.com/news/one-child-missing-another-injured-042045782.html)
 - May 19 - [Donald Trump Jr. Ripped Over 'Disgusting' Post About Biden's Cancer](https://www.yahoo.com/news/donald-trump-jr-ripped-over-035636651.html)
 - May 19 - [These trees exist in only one place on Earth. Now climate change and goats threaten their survival](https://www.yahoo.com/news/trees-exist-only-one-place-033450454.html)
 - May 19 - [China's Factory Output Grows More Than Forecast Despite Tariffs](https://finance.yahoo.com/video/chinas-factory-output-grows-more-023344125.html)
-- May 19 - [Nvidia in advanced talks to invest in PsiQuantum, The Information reports](https://finance.yahoo.com/news/nvidia-advanced-talks-invest-psiquantum-021752334.html)
-- May 18 - [Justice Department says it may drop criminal prosecution of Boeing over Max crashes](https://www.yahoo.com/news/justice-department-says-may-drop-215910345.html)
+- May 18 - [Nvidia plans to sell tech to speed AI chip communication](https://finance.yahoo.com/news/nvidias-huang-set-showcase-latest-230440476.html)
 <!-- feed end -->
 
 ### Onstream
