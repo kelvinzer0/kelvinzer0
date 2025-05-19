@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [Tesla Starts Accepting Cybertruck Trade-Ins with Staggering Depreciation](https://finance.yahoo.com/news/tesla-starts-accepting-cybertruck-trade-153905314.html)
+- May 19 - [I've made $27,000 walking dogs. How you can, too](https://www.yahoo.com/lifestyle/ive-made-27-000-walking-153343708.html)
+- May 19 - [Caught on camera, capuchin monkeys kidnap howler monkey babies](https://www.yahoo.com/news/caught-camera-capuchin-monkeys-kidnap-150525846.html)
 - May 19 - [Israel steps up offensive in Gaza in bid to pressure Hamas into ceasefire deal](https://www.yahoo.com/news/israel-steps-offensive-gaza-bid-150402563.html)
-- May 19 - [Arup to lead engineering for SFPUC’s Millbrae Campus Improvements project in US](https://finance.yahoo.com/news/arup-lead-engineering-sfpuc-millbrae-144459670.html)
-- May 19 - [‘That was the last place I would look at’: NH mom, two daughters share rare medical condition](https://www.yahoo.com/news/last-place-look-nh-mom-163101125.html)
-- May 19 - [Appeals court allows Trump’s anti-union order to take effect](https://www.yahoo.com/news/appeals-court-allows-trump-anti-144414259.html)
-- May 19 - [21 tornadoes reported in Kansas; severe storms expected May 19 in NE Kansas](https://www.yahoo.com/news/21-tornadoes-reported-kansas-severe-142652697.html)
+- May 19 - [Trump Is Dismantling Domestic Violence Nonprofits by Banning Certain Words](https://www.yahoo.com/news/trump-dismantling-domestic-violence-nonprofits-144500520.html)
 <!-- feed end -->
 
 ### Onstream
