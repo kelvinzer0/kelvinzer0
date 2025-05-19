@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Venezuela minister says suspending Colombia flights after arrests](https://www.yahoo.com/news/venezuela-minister-says-suspending-colombia-165400626.html)
-- May 19 - [Sean 'Diddy' Combs trial live updates: Witness testimony resumes in sex trafficking case](https://www.yahoo.com/news/live/sean-diddy-combs-trial-live-updates-witness-testimony-resumes-in-sex-trafficking-case-124820716.html)
-- May 19 - [Tom Cruise plans to make movies into his 100s. His secret to staying young at 62 is free, simple, and seen in centenarians.](https://www.yahoo.com/entertainment/articles/tom-cruise-plans-movies-100s-123001407.html)
-- May 19 - [FBI Director Kash Patel targets Memphis in Fox News show: How homicide rate factors in](https://www.yahoo.com/news/fbi-director-kash-patel-targets-163611334.html)
-- May 19 - [Kid Rock applauds Trump for ‘spanking’ DEI groups – but rock star notes he helped lead anti-woke push](https://www.yahoo.com/news/kid-rock-applauds-trump-spanking-160135378.html)
+- May 19 - [“My 600-Lb. Life” Star Latonya Pottain Dead at 40](https://www.yahoo.com/entertainment/articles/600-lb-life-star-latonya-174427385.html)
+- May 19 - [Dawn Richard Testifies Usher and Others Were Present when Diddy Allegedly Punched Cassie in the Stomach](https://www.yahoo.com/news/dawn-richard-testifies-usher-others-170013187.html)
+- May 19 - [Citi CEO: Something 'deeper' is going on in financial markets right now](https://finance.yahoo.com/news/citi-ceo-something-deeper-is-going-on-in-financial-markets-right-now-164730586.html)
+- May 19 - [‘Dilbert’ Creator Scott Adams Says He Will Die Soon From Same Cancer as Joe Biden](https://www.yahoo.com/news/dilbert-creator-scott-adams-says-163646259.html)
+- May 19 - [Florida Teacher Accused of Unlawful Sex with Student — Including in Her Classroom Hours Before Her Arrest](https://www.yahoo.com/news/florida-teacher-accused-unlawful-sex-163214595.html)
 <!-- feed end -->
 
 ### Onstream
