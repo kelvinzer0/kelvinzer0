@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [114 adults, 40 youths arrested in alleged street racing bust in OKC](https://www.yahoo.com/news/114-adults-40-youths-arrested-215114202.html)
+- May 20 - [Trump's new MAGA accounts are getting a thumbs down from financial experts](https://finance.yahoo.com/news/trumps-new-maga-accounts-are-getting-a-thumbs-down-from-financial-experts-220242429.html)
+- May 20 - [Weinstein Accuser Says He Dragged, Stripped and Raped Her After Learning She Was Seeing Someone Else in 2014](https://www.yahoo.com/news/harvey-weinstein-accuser-makes-pointed-220001441.html)
+- May 20 - [Shortage of overnight truck parking contributed to deadly Greyhound bus crash, regulators say](https://www.yahoo.com/news/shortage-overnight-truck-parking-contributed-210104083.html)
 - May 20 - [US immigration authorities appear to have begun deporting migrants to South Sudan, attorneys say](https://www.yahoo.com/news/us-immigration-authorities-appear-begun-205810472.html)
 - May 20 - [Flight evacuated, 1 arrested following reports of a bomb threat on jetliner at San Diego airport](https://www.yahoo.com/news/flight-evacuated-1-arrested-following-205737269.html)
-- May 20 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
-- May 20 - [Scientists find '2.6 million golden eggs' near an underwater volcano](https://www.yahoo.com/news/scientists-2-6-million-golden-201203673.html)
 <!-- feed end -->
 
 ### Onstream
