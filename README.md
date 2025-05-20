@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [US oil M&A deals slide from 2023 highs as buyers focus on value over volume](https://finance.yahoo.com/news/us-oil-m-slide-2023-122528982.html)
-- May 20 - [Iran’s Khamenei slams ‘nonsense’ US nuclear demands](https://www.yahoo.com/news/iran-khamenei-slams-nonsense-us-121813525.html)
-- May 20 - [Alzheimer’s Symptoms May Surface in Your 20s, Study Finds](https://www.yahoo.com/lifestyle/alzheimer-symptoms-may-surface-20s-120000735.html)
-- May 20 - [Trump's mass layoff threat drives U.S. government workers to resign](https://www.yahoo.com/news/trumps-mass-layoff-threat-drives-101003245.html)
-- May 20 - [RFK Jr. calls for healthier school meals as Trump cancels program that funded them](https://www.yahoo.com/news/rfk-jr-calls-healthier-school-100858737.html)
+- May 20 - [The Best Stocks to Invest $1,000 in Right Now](https://finance.yahoo.com/news/best-stocks-invest-1-000-133000236.html)
+- May 20 - [Americans Are Moving to These 2 Southeastern U.S. Cities—and Both Have Low Cost of Living, Great Weather, and Stunning Beaches](https://www.yahoo.com/lifestyle/americans-moving-2-southeastern-u-130000431.html)
+- May 20 - [Matunuck Oyster Bar likely total loss after fire. What we know.](https://www.yahoo.com/news/fire-matunuck-oyster-bar-damages-115131432.html)
+- May 20 - [Scientists stunned after elusive creature resurfaces more than a century after vanishing — here's why it matters](https://www.yahoo.com/news/scientists-stunned-elusive-creature-resurfaces-113034599.html)
+- May 20 - [Coca-Cola slammed by consumers after alarming details come to light — here's what you need to know](https://www.yahoo.com/news/coca-cola-slammed-consumers-alarming-111531550.html)
 <!-- feed end -->
 
 ### Onstream
