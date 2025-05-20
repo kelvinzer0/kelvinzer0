@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Trump's sweet tooth: He eats a 'good amount' of candy and likes pink Starbursts and Tootsie Rolls](https://www.yahoo.com/news/trumps-sweet-tooth-eats-good-195925501.html)
-- May 20 - [US economy may be on the brink of price-hike wave, Fed's Bostic says](https://finance.yahoo.com/news/us-economy-may-brink-price-193500752.html)
-- May 20 - [Sean 'Diddy' Combs trial takeaways: Cassie Ventura’s mother, a former assistant and a male escort named 'the Punisher' testify in sex trafficking case](https://www.yahoo.com/news/sean-diddy-combs-trial-takeaways-cassie-venturas-mother-a-former-assistant-and-a-male-escort-named-the-punisher-testify-in-sex-trafficking-case-191615644.html)
-- May 20 - [Scientists warn if a 1,000-ft ‘mega-tsunami’s spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
-- May 20 - [A 38-year-old woman who had gained weight from traveling lost 50 pounds in a year. She shared 5 easy ways she did it.](https://www.yahoo.com/lifestyle/38-old-woman-had-gained-182119621.html)
+- May 20 - [Menendez Brothers’ Parole Hearing Delayed To Late Summer; Need “More Time To Prepare,” Lyle Menendez Says](https://www.yahoo.com/news/menendez-brothers-parole-hearing-delayed-203658236.html)
+- May 20 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
+- May 20 - [Investing in infrastructure looks attractive, says wealth advisor](https://finance.yahoo.com/video/investing-infrastructure-looks-attractive-says-202921937.html)
+- May 20 - [Scientists find '2.6 million golden eggs' near an underwater volcano](https://www.yahoo.com/news/scientists-2-6-million-golden-201203673.html)
+- May 20 - [Judge denies request by Travis Hunter's dad to lighten criminal sentence to help son with football career: 'Sounds like special treatment'](https://sports.yahoo.com/nfl/breaking-news/article/judge-denies-request-by-travis-hunters-dad-to-lighten-criminal-sentence-to-help-son-with-football-career-sounds-like-special-treatment-195611842.html)
 <!-- feed end -->
 
 ### Onstream
