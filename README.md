@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Cafeteria worker arrested for hiding evidence after her boyfriend kills teen who came to beat up her son, cops say](https://www.yahoo.com/news/cafeteria-worker-arrested-hiding-evidence-144324815.html)
-- May 20 - [Trump to make Golden Dome announcement on Tuesday, US official says](https://www.yahoo.com/news/trump-golden-dome-announcement-tuesday-142710096.html)
-- May 20 - [An F-35 stealth fighter flying in Texas sent classified data to an air base 5,000 miles away in Denmark](https://www.yahoo.com/news/f-35-stealth-fighter-flying-141724258.html)
-- May 20 - [A maintenance worker has been charged in connection with the New Orleans jail break](https://www.yahoo.com/news/orleans-sheriffs-office-staffer-arrested-140833039.html)
-- May 20 - [Americans Are Moving to These 2 Southeastern U.S. Cities—and Both Have Low Cost of Living, Great Weather, and Stunning Beaches](https://www.yahoo.com/lifestyle/americans-moving-2-southeastern-u-130000431.html)
+- May 20 - [Elon Musk Says He’s Stopping Political Spending After Losing Key Race](https://finance.yahoo.com/news/elon-musk-says-stopping-political-155352802.html)
+- May 20 - [Sean 'Diddy' Combs' personal assistant tells jury about guns, drugs and lie detector tests](https://www.yahoo.com/news/sean-diddy-combs-personal-assistant-155312730.html)
+- May 20 - [The Aston Martin Valkyrie Is Being Recalled in the U.S.A.](https://autos.yahoo.com/aston-martin-valkyrie-being-recalled-155100059.html)
+- May 20 - [Pakistani intelligence sources say Kashmir troop withdrawals agreed](https://www.yahoo.com/news/pakistani-intelligence-sources-kashmir-troop-150927498.html)
+- May 20 - [What are Electrolytes, and Do You Need to be Taking Them?](https://www.yahoo.com/lifestyle/electrolytes-taking-them-145200860.html)
 <!-- feed end -->
 
 ### Onstream
