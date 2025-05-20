@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 20 - [Mexico mourns naval cadet killed when training ship collided with Brooklyn Bridge](https://www.yahoo.com/news/mexico-mourns-naval-cadet-killed-123124658.html)
 - May 20 - [Trump's mass layoff threat drives U.S. government workers to resign](https://www.yahoo.com/news/trumps-mass-layoff-threat-drives-101003245.html)
 - May 20 - [RFK Jr. calls for healthier school meals as Trump cancels program that funded them](https://www.yahoo.com/news/rfk-jr-calls-healthier-school-100858737.html)
 - May 20 - [Laura Loomer swipes at Trump from the heart of MAGA](https://www.yahoo.com/news/laura-loomer-swipes-trump-heart-100207126.html)
-- May 20 - [The Ultimate Growth Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/ultimate-growth-stock-buy-1-092000674.html)
-- May 20 - [Want Super Safe Passive Income? Buy This High-Yield Stock With Over 40 Straight Years of Dividend Raises](https://finance.yahoo.com/news/want-super-safe-passive-income-083700212.html)
+- May 20 - [Why a Central Texas farmer is leading a one-man mission to stop renewable energy](https://www.yahoo.com/news/why-central-texas-farmer-leading-100000524.html)
 <!-- feed end -->
 
 ### Onstream
