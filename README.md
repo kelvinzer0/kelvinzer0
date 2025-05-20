@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Menendez Brothers’ Parole Hearing Delayed To Late Summer; Need “More Time To Prepare,” Lyle Menendez Says](https://www.yahoo.com/news/menendez-brothers-parole-hearing-delayed-203658236.html)
+- May 20 - [114 adults, 40 youths arrested in alleged street racing bust in OKC](https://www.yahoo.com/news/114-adults-40-youths-arrested-215114202.html)
+- May 20 - [US immigration authorities appear to have begun deporting migrants to South Sudan, attorneys say](https://www.yahoo.com/news/us-immigration-authorities-appear-begun-205810472.html)
+- May 20 - [Flight evacuated, 1 arrested following reports of a bomb threat on jetliner at San Diego airport](https://www.yahoo.com/news/flight-evacuated-1-arrested-following-205737269.html)
 - May 20 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
-- May 20 - [Investing in infrastructure looks attractive, says wealth advisor](https://finance.yahoo.com/video/investing-infrastructure-looks-attractive-says-202921937.html)
 - May 20 - [Scientists find '2.6 million golden eggs' near an underwater volcano](https://www.yahoo.com/news/scientists-2-6-million-golden-201203673.html)
-- May 20 - [Judge denies request by Travis Hunter's dad to lighten criminal sentence to help son with football career: 'Sounds like special treatment'](https://sports.yahoo.com/nfl/breaking-news/article/judge-denies-request-by-travis-hunters-dad-to-lighten-criminal-sentence-to-help-son-with-football-career-sounds-like-special-treatment-195611842.html)
 <!-- feed end -->
 
 ### Onstream
