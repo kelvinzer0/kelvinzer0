@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Mexico mourns naval cadet killed when training ship collided with Brooklyn Bridge](https://www.yahoo.com/news/mexico-mourns-naval-cadet-killed-123124658.html)
+- May 20 - [US oil M&A deals slide from 2023 highs as buyers focus on value over volume](https://finance.yahoo.com/news/us-oil-m-slide-2023-122528982.html)
+- May 20 - [Iran’s Khamenei slams ‘nonsense’ US nuclear demands](https://www.yahoo.com/news/iran-khamenei-slams-nonsense-us-121813525.html)
+- May 20 - [Alzheimer’s Symptoms May Surface in Your 20s, Study Finds](https://www.yahoo.com/lifestyle/alzheimer-symptoms-may-surface-20s-120000735.html)
 - May 20 - [Trump's mass layoff threat drives U.S. government workers to resign](https://www.yahoo.com/news/trumps-mass-layoff-threat-drives-101003245.html)
 - May 20 - [RFK Jr. calls for healthier school meals as Trump cancels program that funded them](https://www.yahoo.com/news/rfk-jr-calls-healthier-school-100858737.html)
-- May 20 - [Laura Loomer swipes at Trump from the heart of MAGA](https://www.yahoo.com/news/laura-loomer-swipes-trump-heart-100207126.html)
-- May 20 - [Why a Central Texas farmer is leading a one-man mission to stop renewable energy](https://www.yahoo.com/news/why-central-texas-farmer-leading-100000524.html)
 <!-- feed end -->
 
 ### Onstream
