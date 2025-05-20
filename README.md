@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 20 - [In-N-Out Burger forced to change its menu after RFK’s new rule](https://www.yahoo.com/news/n-burger-forced-change-menu-215930003.html)
+- May 20 - ['More than we can bear': Missing California student found dead in Big Bear Lake](https://www.yahoo.com/news/more-bear-missing-california-student-025719648.html)
+- May 20 - [Taiwan's Foxconn says AI data centre with Nvidia to have 100 MW of power](https://finance.yahoo.com/news/taiwans-foxconn-says-ai-data-022912952.html)
+- May 20 - [Police identify victim and gunman in Las Vegas gym shooting](https://www.yahoo.com/news/police-identify-victim-gunman-las-022035503.html)
 - May 20 - [Trump Goes Off Script And Says What He's Really Thinking About Biden's Cancer Diagnosis](https://www.yahoo.com/news/trump-goes-off-script-says-002424244.html)
-- May 19 - [Putin just showed Trump how little he needs him](https://www.yahoo.com/news/putin-just-showed-trump-little-205710529.html)
-- May 19 - [People flee Khan Younis after Israeli military orders evacuation of city](https://www.yahoo.com/news/people-flee-khan-younis-israeli-225659222.html)
-- May 19 - [In-N-Out Burger forced to change its menu after RFK’s new rule](https://www.yahoo.com/news/n-burger-forced-change-menu-215930003.html)
-- May 19 - [The GOP wants work requirements for Medicaid. Here's what those rules do (and don't) accomplish.](https://www.yahoo.com/news/the-gop-wants-work-requirements-for-medicaid-heres-what-those-rules-do-and-dont-accomplish-212455995.html)
 <!-- feed end -->
 
 ### Onstream
