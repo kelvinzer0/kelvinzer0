@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Better Artificial Intelligence (AI) Stock: Palantir vs. SoundHound AI](https://finance.yahoo.com/news/better-artificial-intelligence-ai-stock-083500572.html)
-- May 20 - [Joe Biden’s granddaughter rips Jake Tapper’s new book on former president’s hidden decline](https://www.yahoo.com/news/smut-joe-biden-granddaughter-flames-225741406.html)
-- May 20 - [Iran's Khamenei slams 'outrageous' US demands in nuclear talks](https://www.yahoo.com/news/iran-reviewing-proposal-5th-round-080720882.html)
-- May 20 - [Colombian model’s murder, just days after Mexican influencer shot on live stream, sparks condemnation of femicide](https://www.yahoo.com/news/colombian-model-murder-just-days-034246349.html)
+- May 20 - [Laura Loomer swipes at Trump from the heart of MAGA](https://www.yahoo.com/news/laura-loomer-swipes-trump-heart-100207126.html)
+- May 20 - [Nasa warns of huge solar flares causing blackouts on Earth](https://www.yahoo.com/news/nasa-warns-huge-solar-flares-110555395.html)
+- May 20 - [1 Artificial Intelligence (AI) ETF to Buy With $1,000 and Hold Forever](https://finance.yahoo.com/news/1-artificial-intelligence-ai-etf-092200987.html)
+- May 20 - [Teacher banned over intimate five-month relationship with pupil](https://www.yahoo.com/news/teacher-banned-over-intimate-relationship-231614043.html)
 - May 20 - [Four arrested under Tokyo’s strict yakuza gang laws – but not for the reason you think](https://www.yahoo.com/news/four-arrested-under-tokyo-strict-034632776.html)
 <!-- feed end -->
 
