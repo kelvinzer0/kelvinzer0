@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Alina Habba taunted with boos and shouts of ‘shame’ as she arrives at hearing for arrested Newark mayor](https://www.yahoo.com/news/alina-habba-taunted-boos-shouts-192853762.html)
-- May 20 - ['More than we can bear': Missing California student found dead in Big Bear Lake](https://www.yahoo.com/news/more-bear-missing-california-student-025719648.html)
-- May 20 - [Police identify victim and gunman in Las Vegas gym shooting](https://www.yahoo.com/news/police-identify-victim-gunman-las-022035503.html)
-- May 20 - [Trump Goes Off Script And Says What He's Really Thinking About Biden's Cancer Diagnosis](https://www.yahoo.com/news/trump-goes-off-script-says-002424244.html)
-- May 19 - [Most People Forget To Clean This One Spot on Their Bodies—and It’s a Breeding Ground for Bacteria](https://www.yahoo.com/lifestyle/most-people-forget-clean-one-232500024.html)
+- May 20 - [Better Artificial Intelligence (AI) Stock: Palantir vs. SoundHound AI](https://finance.yahoo.com/news/better-artificial-intelligence-ai-stock-083500572.html)
+- May 20 - [Joe Biden’s granddaughter rips Jake Tapper’s new book on former president’s hidden decline](https://www.yahoo.com/news/smut-joe-biden-granddaughter-flames-225741406.html)
+- May 20 - [Iran's Khamenei slams 'outrageous' US demands in nuclear talks](https://www.yahoo.com/news/iran-reviewing-proposal-5th-round-080720882.html)
+- May 20 - [Colombian model’s murder, just days after Mexican influencer shot on live stream, sparks condemnation of femicide](https://www.yahoo.com/news/colombian-model-murder-just-days-034246349.html)
+- May 20 - [Four arrested under Tokyo’s strict yakuza gang laws – but not for the reason you think](https://www.yahoo.com/news/four-arrested-under-tokyo-strict-034632776.html)
 <!-- feed end -->
 
 ### Onstream
