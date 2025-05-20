@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 20 - [Elon Musk's Mother Shares 1989 Aptitude Test Results Revealing 'Highest Engineering Aptitude' Score Of Tesla CEO At Age 17](https://finance.yahoo.com/news/elon-musks-mother-shares-1989-183027997.html)
+- May 20 - [Manitoba man pleads guilty in U.S. killing of woman 27 years ago](https://www.yahoo.com/news/manitoba-man-pleads-guilty-u-182417355.html)
+- May 20 - [Astronomers Baffled by a Suspicious, Perfectly Round Sphere in Our Galaxy](https://www.yahoo.com/news/astronomers-baffled-suspicious-perfectly-round-181437119.html)
 - May 20 - [Dad Wanted a Baby Boy. When He Learned His Wife Was Pregnant with a 3rd Girl, He Did the Unthinkable](https://www.yahoo.com/news/dad-wanted-baby-boy-learned-173310877.html)
-- May 20 - [EU countries adopt four sets of new Russia sanctions](https://www.yahoo.com/news/eu-countries-adopt-four-sets-171734758.html)
-- May 20 - [Hikers find mysterious stash of gold hidden on a mountain trail](https://www.yahoo.com/news/hikers-mysterious-stash-gold-hidden-165157130.html)
-- May 20 - [Neil Young to Trump on Fight With Bruce Springsteen: “Think About Saving America From the Mess You Made”](https://www.yahoo.com/entertainment/articles/neil-young-trump-fight-bruce-160856843.html)
-- May 20 - [People Are Sharing Seemingly "Harmless" Symptoms That Could Indicate A Medical Emergency](https://www.yahoo.com/lifestyle/people-sharing-seemingly-harmless-symptoms-160602825.html)
+- May 20 - [Boca Raton Community High School graduate dies in fatal crash on Interstate 95 in Martin County on May 17](https://www.yahoo.com/news/boca-raton-community-high-school-171949020.html)
 <!-- feed end -->
 
 ### Onstream
