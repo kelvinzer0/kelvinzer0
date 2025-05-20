@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [The Best Stocks to Invest $1,000 in Right Now](https://finance.yahoo.com/news/best-stocks-invest-1-000-133000236.html)
+- May 20 - [Cafeteria worker arrested for hiding evidence after her boyfriend kills teen who came to beat up her son, cops say](https://www.yahoo.com/news/cafeteria-worker-arrested-hiding-evidence-144324815.html)
+- May 20 - [Trump to make Golden Dome announcement on Tuesday, US official says](https://www.yahoo.com/news/trump-golden-dome-announcement-tuesday-142710096.html)
+- May 20 - [An F-35 stealth fighter flying in Texas sent classified data to an air base 5,000 miles away in Denmark](https://www.yahoo.com/news/f-35-stealth-fighter-flying-141724258.html)
+- May 20 - [A maintenance worker has been charged in connection with the New Orleans jail break](https://www.yahoo.com/news/orleans-sheriffs-office-staffer-arrested-140833039.html)
 - May 20 - [Americans Are Moving to These 2 Southeastern U.S. Cities—and Both Have Low Cost of Living, Great Weather, and Stunning Beaches](https://www.yahoo.com/lifestyle/americans-moving-2-southeastern-u-130000431.html)
-- May 20 - [Matunuck Oyster Bar likely total loss after fire. What we know.](https://www.yahoo.com/news/fire-matunuck-oyster-bar-damages-115131432.html)
-- May 20 - [Scientists stunned after elusive creature resurfaces more than a century after vanishing — here's why it matters](https://www.yahoo.com/news/scientists-stunned-elusive-creature-resurfaces-113034599.html)
-- May 20 - [Coca-Cola slammed by consumers after alarming details come to light — here's what you need to know](https://www.yahoo.com/news/coca-cola-slammed-consumers-alarming-111531550.html)
 <!-- feed end -->
 
 ### Onstream
