@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 20 - [Trump's mass layoff threat drives U.S. government workers to resign](https://www.yahoo.com/news/trumps-mass-layoff-threat-drives-101003245.html)
+- May 20 - [RFK Jr. calls for healthier school meals as Trump cancels program that funded them](https://www.yahoo.com/news/rfk-jr-calls-healthier-school-100858737.html)
 - May 20 - [Laura Loomer swipes at Trump from the heart of MAGA](https://www.yahoo.com/news/laura-loomer-swipes-trump-heart-100207126.html)
-- May 20 - [Nasa warns of huge solar flares causing blackouts on Earth](https://www.yahoo.com/news/nasa-warns-huge-solar-flares-110555395.html)
-- May 20 - [1 Artificial Intelligence (AI) ETF to Buy With $1,000 and Hold Forever](https://finance.yahoo.com/news/1-artificial-intelligence-ai-etf-092200987.html)
-- May 20 - [Teacher banned over intimate five-month relationship with pupil](https://www.yahoo.com/news/teacher-banned-over-intimate-relationship-231614043.html)
-- May 20 - [Four arrested under Tokyo’s strict yakuza gang laws – but not for the reason you think](https://www.yahoo.com/news/four-arrested-under-tokyo-strict-034632776.html)
+- May 20 - [The Ultimate Growth Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/ultimate-growth-stock-buy-1-092000674.html)
+- May 20 - [Want Super Safe Passive Income? Buy This High-Yield Stock With Over 40 Straight Years of Dividend Raises](https://finance.yahoo.com/news/want-super-safe-passive-income-083700212.html)
 <!-- feed end -->
 
 ### Onstream
