@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Elon Musk Says He’s Stopping Political Spending After Losing Key Race](https://finance.yahoo.com/news/elon-musk-says-stopping-political-155352802.html)
-- May 20 - [Sean 'Diddy' Combs' personal assistant tells jury about guns, drugs and lie detector tests](https://www.yahoo.com/news/sean-diddy-combs-personal-assistant-155312730.html)
-- May 20 - [The Aston Martin Valkyrie Is Being Recalled in the U.S.A.](https://autos.yahoo.com/aston-martin-valkyrie-being-recalled-155100059.html)
-- May 20 - [Pakistani intelligence sources say Kashmir troop withdrawals agreed](https://www.yahoo.com/news/pakistani-intelligence-sources-kashmir-troop-150927498.html)
-- May 20 - [What are Electrolytes, and Do You Need to be Taking Them?](https://www.yahoo.com/lifestyle/electrolytes-taking-them-145200860.html)
+- May 20 - [Walmart responds to Trump's directive to 'eat the tariffs'](https://finance.yahoo.com/news/walmart-responds-trumps-directive-eat-164757544.html)
+- May 20 - [Salmonella outbreak linked to cucumbers, more than 20 sickened in 15 states](https://www.yahoo.com/news/salmonella-outbreak-linked-cucumbers-more-164247105.html)
+- May 20 - [Southwest Airlines will require chargers be kept out while in use because of battery fire concerns](https://www.yahoo.com/news/southwest-airlines-require-chargers-kept-164223461.html)
+- May 20 - [DOJ seeks to 'neutralize' California sanctuary state law by issuing federal warrants](https://www.yahoo.com/news/doj-seeks-neutralize-california-sanctuary-163235997.html)
+- May 20 - [Neil Young to Trump on Fight With Bruce Springsteen: “Think About Saving America From the Mess You Made”](https://www.yahoo.com/entertainment/articles/neil-young-trump-fight-bruce-160856843.html)
 <!-- feed end -->
 
 ### Onstream
