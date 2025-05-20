@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Elon Musk's Mother Shares 1989 Aptitude Test Results Revealing 'Highest Engineering Aptitude' Score Of Tesla CEO At Age 17](https://finance.yahoo.com/news/elon-musks-mother-shares-1989-183027997.html)
-- May 20 - [Manitoba man pleads guilty in U.S. killing of woman 27 years ago](https://www.yahoo.com/news/manitoba-man-pleads-guilty-u-182417355.html)
-- May 20 - [Astronomers Baffled by a Suspicious, Perfectly Round Sphere in Our Galaxy](https://www.yahoo.com/news/astronomers-baffled-suspicious-perfectly-round-181437119.html)
-- May 20 - [Dad Wanted a Baby Boy. When He Learned His Wife Was Pregnant with a 3rd Girl, He Did the Unthinkable](https://www.yahoo.com/news/dad-wanted-baby-boy-learned-173310877.html)
-- May 20 - [Boca Raton Community High School graduate dies in fatal crash on Interstate 95 in Martin County on May 17](https://www.yahoo.com/news/boca-raton-community-high-school-171949020.html)
+- May 20 - [Trump's sweet tooth: He eats a 'good amount' of candy and likes pink Starbursts and Tootsie Rolls](https://www.yahoo.com/news/trumps-sweet-tooth-eats-good-195925501.html)
+- May 20 - [US economy may be on the brink of price-hike wave, Fed's Bostic says](https://finance.yahoo.com/news/us-economy-may-brink-price-193500752.html)
+- May 20 - [Sean 'Diddy' Combs trial takeaways: Cassie Ventura’s mother, a former assistant and a male escort named 'the Punisher' testify in sex trafficking case](https://www.yahoo.com/news/sean-diddy-combs-trial-takeaways-cassie-venturas-mother-a-former-assistant-and-a-male-escort-named-the-punisher-testify-in-sex-trafficking-case-191615644.html)
+- May 20 - [Scientists warn if a 1,000-ft ‘mega-tsunami’s spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
+- May 20 - [A 38-year-old woman who had gained weight from traveling lost 50 pounds in a year. She shared 5 easy ways she did it.](https://www.yahoo.com/lifestyle/38-old-woman-had-gained-182119621.html)
 <!-- feed end -->
 
 ### Onstream
