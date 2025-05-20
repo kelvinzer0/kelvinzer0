@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Walmart responds to Trump's directive to 'eat the tariffs'](https://finance.yahoo.com/news/walmart-responds-trumps-directive-eat-164757544.html)
-- May 20 - [Salmonella outbreak linked to cucumbers, more than 20 sickened in 15 states](https://www.yahoo.com/news/salmonella-outbreak-linked-cucumbers-more-164247105.html)
-- May 20 - [Southwest Airlines will require chargers be kept out while in use because of battery fire concerns](https://www.yahoo.com/news/southwest-airlines-require-chargers-kept-164223461.html)
-- May 20 - [DOJ seeks to 'neutralize' California sanctuary state law by issuing federal warrants](https://www.yahoo.com/news/doj-seeks-neutralize-california-sanctuary-163235997.html)
+- May 20 - [Dad Wanted a Baby Boy. When He Learned His Wife Was Pregnant with a 3rd Girl, He Did the Unthinkable](https://www.yahoo.com/news/dad-wanted-baby-boy-learned-173310877.html)
+- May 20 - [EU countries adopt four sets of new Russia sanctions](https://www.yahoo.com/news/eu-countries-adopt-four-sets-171734758.html)
+- May 20 - [Hikers find mysterious stash of gold hidden on a mountain trail](https://www.yahoo.com/news/hikers-mysterious-stash-gold-hidden-165157130.html)
 - May 20 - [Neil Young to Trump on Fight With Bruce Springsteen: “Think About Saving America From the Mess You Made”](https://www.yahoo.com/entertainment/articles/neil-young-trump-fight-bruce-160856843.html)
+- May 20 - [People Are Sharing Seemingly "Harmless" Symptoms That Could Indicate A Medical Emergency](https://www.yahoo.com/lifestyle/people-sharing-seemingly-harmless-symptoms-160602825.html)
 <!-- feed end -->
 
 ### Onstream
