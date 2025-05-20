@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 20 - ['Jensanity': Nvidia boss Jensen Huang gets rock star welcome in Taiwan](https://finance.yahoo.com/video/jensanity-nvidia-boss-jensen-huang-040019467.html)
 - May 20 - [In-N-Out Burger forced to change its menu after RFK’s new rule](https://www.yahoo.com/news/n-burger-forced-change-menu-215930003.html)
 - May 20 - ['More than we can bear': Missing California student found dead in Big Bear Lake](https://www.yahoo.com/news/more-bear-missing-california-student-025719648.html)
-- May 20 - [Taiwan's Foxconn says AI data centre with Nvidia to have 100 MW of power](https://finance.yahoo.com/news/taiwans-foxconn-says-ai-data-022912952.html)
 - May 20 - [Police identify victim and gunman in Las Vegas gym shooting](https://www.yahoo.com/news/police-identify-victim-gunman-las-022035503.html)
 - May 20 - [Trump Goes Off Script And Says What He's Really Thinking About Biden's Cancer Diagnosis](https://www.yahoo.com/news/trump-goes-off-script-says-002424244.html)
 <!-- feed end -->
