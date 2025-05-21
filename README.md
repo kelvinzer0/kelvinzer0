@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Trump DOJ drops case on Dem: Melber & James Carville on stumbling “revenge” plot](https://www.yahoo.com/news/trump-doj-drops-case-dem-225330198.html)
-- May 20 - [Trump's new MAGA accounts are getting a thumbs down from financial experts](https://finance.yahoo.com/news/trumps-new-maga-accounts-are-getting-a-thumbs-down-from-financial-experts-220242429.html)
+- May 21 - [Google rolls out major AI update with Gemini assistant](https://www.yahoo.com/news/google-rolls-major-ai-gemini-023337160.html)
+- May 21 - [19 Insults That Are So Creative And So Funny That I Don't Even Feel Bad For Laughing](https://www.yahoo.com/lifestyle/19-insults-creative-funny-dont-023101629.html)
 - May 20 - [Weinstein Accuser Says He Dragged, Stripped and Raped Her After Learning She Was Seeing Someone Else in 2014](https://www.yahoo.com/news/harvey-weinstein-accuser-makes-pointed-220001441.html)
-- May 20 - [Judge: US officials must keep control of migrants sent to South Sudan in case removals were unlawful](https://www.yahoo.com/news/us-immigration-authorities-appear-begun-205810472.html)
-- May 20 - [This Northern California city is the top U.S. destination among homebuyers looking to relocate](https://www.yahoo.com/news/northern-california-city-top-u-205703563.html)
+- May 20 - [GOP Senator Forced to Step in After RFK Jr. Loses His Cool in Hearing](https://www.yahoo.com/news/gop-senator-forced-step-rfk-215309131.html)
+- May 20 - [Tornado touchdown confirmed in north Jackson, Tennessee National Weather Service says](https://www.yahoo.com/news/tornado-touchdown-confirmed-north-jackson-213737114.html)
 <!-- feed end -->
 
 ### Onstream
