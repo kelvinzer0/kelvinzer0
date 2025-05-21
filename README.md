@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 21 - [Sanctioned Ukrainian ex-politician killed outside Madrid’s American school, police source says](https://www.yahoo.com/news/sanctioned-ukrainian-ex-politician-killed-114415217.html)
+- May 21 - [UnitedHealth Plunge Stunned Wall Street. One Analyst Saw It Coming](https://finance.yahoo.com/news/unitedhealth-plunge-stunned-wall-street-111447365.html)
+- May 21 - [Exclusive-Hacker who breached communications app used by Trump aide stole data from across US government](https://www.yahoo.com/news/exclusive-hacker-breached-communications-app-100242693.html)
+- May 21 - [Mortgage and refinance interest rates today, May 21, 2025: Rates ease lower even as Fed signals delay in rate cuts](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-may-21-2025-100049491.html)
 - May 21 - [Tesla is now accepting Cybertruck trade-ins. 2 owners showed us how much their vehicles have depreciated.](https://finance.yahoo.com/news/tesla-now-accepting-cybertruck-trade-095901436.html)
-- May 21 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
-- May 21 - [Nancy Mace shows nude photo of herself in House hearing as she says she was recorded without consent](https://www.yahoo.com/news/nancy-mace-shows-nude-photo-090017210.html)
-- May 21 - [Billionaire Stanley Druckenmiller Dumped Shares of Nvidia and Palantir and Is Loading Up on His New Favorite Artificial Intelligence (AI) Stock](https://finance.yahoo.com/news/billionaire-stanley-druckenmiller-dumped-shares-075100990.html)
-- May 20 - [Multiple citations issued to drivers after car show in Wisconsin, many clocked at 25 miles per hour over speed limit](https://www.yahoo.com/news/multiple-citations-issued-drivers-car-234749182.html)
 <!-- feed end -->
 
 ### Onstream
