@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [AI wearables are 'on the cusp' of taking off, analyst says](https://finance.yahoo.com/video/ai-wearables-cusp-taking-off-194946297.html)
-- May 21 - [James Carville Suggests He Would Endorse This Democrat In 2028 Race If They Nab Nomination](https://www.yahoo.com/news/james-carville-suggests-endorse-democrat-193655329.html)
+- May 21 - [BYU quarterback Jake Retzlaff accused of sexually assaulting woman in 2023 in new lawsuit](https://sports.yahoo.com/college-football/article/byu-quarterback-jake-retzlaff-accused-of-sexually-assaulting-woman-in-2023-in-new-lawsuit-205754776.html)
+- May 21 - [‘Fake cop’ at murder scene arrested after the real cops asked him for his credentials](https://www.yahoo.com/news/fake-cop-murder-scene-arrested-203256980.html)
+- May 21 - [US redirects $365 million Biden had set for Puerto Rico solar power](https://www.yahoo.com/news/us-redirects-365-million-biden-191038866.html)
 - May 21 - [Couple’s rental car impounded by Georgia police — why they blame Avis’s ‘negligence’ for ‘unsafe’ situation](https://www.yahoo.com/news/couple-rental-car-impounded-georgia-190000126.html)
-- May 21 - [Steve Bannon says 'everything changed' for Musk after Trump publicly denied that the CEO would receive a secret China briefing](https://www.yahoo.com/news/steve-bannon-says-everything-changed-171222723.html)
-- May 21 - [Over boos, Columbia University president notes Mahmoud Khalil's absence at graduation](https://www.yahoo.com/news/over-boos-columbia-university-president-163718894.html)
+- May 21 - [Former US Ambassador to Ukraine explains why she resigned](https://www.yahoo.com/news/former-us-ambassador-ukraine-explains-184949053.html)
 <!-- feed end -->
 
 ### Onstream
