@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Lebanese and Palestinians leaders agree that Lebanon won't be used as a launchpad to strike Israel](https://www.yahoo.com/news/lebanese-palestinians-leaders-agree-lebanon-125451805.html)
-- May 21 - [UnitedHealth falls after report it secretly paid nursing homes to reduce hospital transfers](https://finance.yahoo.com/news/unitedhealth-falls-report-secretly-paid-113722353.html)
-- May 21 - [Musk under fire after misleading policy apparently deceived Tesla customers: 'I don't want to be associated with that anymore'](https://finance.yahoo.com/news/musk-under-fire-misleading-policy-110016226.html)
-- May 21 - [Tesla is now accepting Cybertruck trade-ins. 2 owners showed us how much their vehicles have depreciated.](https://finance.yahoo.com/news/tesla-now-accepting-cybertruck-trade-095901436.html)
-- May 21 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
+- May 21 - ['Trump Is An Ageist,' Says Anthony Scaramucci. He Claims Saudi Prince MBS Used Trump's Disregard For Younger People To Play Him](https://finance.yahoo.com/news/trump-ageist-says-anthony-scaramucci-134521625.html)
+- May 21 - [US Navy Super Hornets launched history's 'largest airstrike' from an aircraft carrier — 125,000 pounds of munitions, admiral says](https://www.yahoo.com/news/us-navy-super-hornets-launched-132200293.html)
+- May 21 - [Judge orders US officials to appear in court to answer questions about migrants sent to South Sudan](https://www.yahoo.com/news/judge-orders-us-officials-appear-130943130.html)
+- May 21 - [After Paying Off Her Own Student Loans To The Tune Of $96,000, A Dave Ramsey Caller Says Her Parents Expect Her To Cover Her Siblings' Debt](https://finance.yahoo.com/news/paying-off-her-own-student-123053336.html)
+- May 21 - [Poland intervenes as Russian 'shadow fleet' ship spotted near power cable](https://www.yahoo.com/news/poland-says-russian-ship-performed-110042772.html)
 <!-- feed end -->
 
 ### Onstream
