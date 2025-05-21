@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 21 - [Britain's M&S says cyberattack to cost $400 million](https://finance.yahoo.com/video/britains-m-says-cyberattack-cost-091503979.html)
 - May 21 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
 - May 21 - [Judge finds police acted reasonably in shooting New Mexico man while at wrong address](https://www.yahoo.com/news/judge-finds-police-acted-reasonably-024722114.html)
-- May 20 - [Trump DOJ drops case on Dem: Melber & James Carville on stumbling “revenge” plot](https://www.yahoo.com/news/trump-doj-drops-case-dem-225330198.html)
+- May 20 - [Trump's new MAGA accounts are getting a thumbs down from financial experts](https://finance.yahoo.com/news/trumps-new-maga-accounts-are-getting-a-thumbs-down-from-financial-experts-220242429.html)
 - May 20 - [GOP Senator Forced to Step in After RFK Jr. Loses His Cool in Hearing](https://www.yahoo.com/news/gop-senator-forced-step-rfk-215309131.html)
-- May 20 - [Judge: US officials must keep control of migrants sent to South Sudan in case removals were unlawful](https://www.yahoo.com/news/us-immigration-authorities-appear-begun-205810472.html)
 <!-- feed end -->
 
 ### Onstream
