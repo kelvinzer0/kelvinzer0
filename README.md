@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 21 - [Steve Bannon says he knows when things went south between Elon Musk and Trumpworld](https://www.yahoo.com/news/steve-bannon-says-everything-changed-171222723.html)
+- May 21 - [Orleans Parish District Attorney speaks out on jailbreak with five inmates still on loose](https://www.yahoo.com/news/orleans-parish-district-attorney-speaks-170818163.html)
+- May 21 - [Elon Musk Gets Rattled by Hard Questions He Can't Answer, Calls Interviewer an "NPC" While Giving One-Word NPC-Like Responses Himself](https://www.yahoo.com/news/elon-musk-gets-rattled-hard-162319662.html)
+- May 21 - [Man dies after being attacked by his own dog in upstate NY](https://www.yahoo.com/news/man-dies-being-attacked-own-162305597.html)
 - May 21 - [Browns stadium gets huge endorsement, while Cleveland Mayor Justin Bibb softens stance](https://www.yahoo.com/news/browns-stadium-gets-huge-endorsement-151605858.html)
-- May 21 - [Line-jumping dispute leads to 3 Stow students being punched at Cedar Point, parent says](https://www.yahoo.com/news/line-jumping-dispute-leads-3-145602895.html)
-- May 21 - [I'm a Strength Coach. I'm Begging Guys to Train This Underrated Muscle Group](https://www.yahoo.com/lifestyle/im-strength-coach-im-begging-143500576.html)
-- May 21 - [South Carolina death row inmate seeks to volunteer to die after friends are executed](https://www.yahoo.com/news/south-carolina-death-row-inmate-141402950.html)
-- May 21 - [Hikers stumble across treasure hidden on a mountain trail, sparking an investigation into its origin](https://www.yahoo.com/news/hikers-mysterious-stash-gold-hidden-165157130.html)
 <!-- feed end -->
 
 ### Onstream
