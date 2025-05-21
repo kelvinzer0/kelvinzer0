@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Steve Bannon says he knows when things went south between Elon Musk and Trumpworld](https://www.yahoo.com/news/steve-bannon-says-everything-changed-171222723.html)
-- May 21 - [Orleans Parish District Attorney speaks out on jailbreak with five inmates still on loose](https://www.yahoo.com/news/orleans-parish-district-attorney-speaks-170818163.html)
+- May 21 - [Clownfish shrink their bodies to survive ocean heat waves](https://www.yahoo.com/news/clownfish-shrink-bodies-survive-ocean-185216206.html)
+- May 21 - [Jim Jordan Flails as Democrat Exposes GOP Plan to Screw Up the Courts](https://www.yahoo.com/news/jim-jordan-flails-democrat-exposes-172417020.html)
+- May 21 - [Steve Bannon says 'everything changed' for Musk after Trump publicly denied that the CEO would receive a secret China briefing](https://www.yahoo.com/news/steve-bannon-says-everything-changed-171222723.html)
+- May 21 - [Over boos, Columbia University president notes Mahmoud Khalil's absence at graduation](https://www.yahoo.com/news/over-boos-columbia-university-president-163718894.html)
 - May 21 - [Elon Musk Gets Rattled by Hard Questions He Can't Answer, Calls Interviewer an "NPC" While Giving One-Word NPC-Like Responses Himself](https://www.yahoo.com/news/elon-musk-gets-rattled-hard-162319662.html)
-- May 21 - [Man dies after being attacked by his own dog in upstate NY](https://www.yahoo.com/news/man-dies-being-attacked-own-162305597.html)
-- May 21 - [Browns stadium gets huge endorsement, while Cleveland Mayor Justin Bibb softens stance](https://www.yahoo.com/news/browns-stadium-gets-huge-endorsement-151605858.html)
 <!-- feed end -->
 
 ### Onstream
