@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Britain's M&S says cyberattack to cost $400 million](https://finance.yahoo.com/video/britains-m-says-cyberattack-cost-091503979.html)
 - May 21 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
+- May 21 - [West Palm Beach, Palm Beach rank high in national list for growing affluence](https://www.yahoo.com/news/west-palm-beach-palm-beach-090106612.html)
+- May 21 - [Nancy Mace shows nude photo of herself in House hearing as she says she was recorded without consent](https://www.yahoo.com/news/nancy-mace-shows-nude-photo-090017210.html)
+- May 21 - ['Our children are dying slowly' says father searching for food in Gaza](https://www.yahoo.com/news/children-dying-slowly-says-father-084239811.html)
 - May 21 - [Judge finds police acted reasonably in shooting New Mexico man while at wrong address](https://www.yahoo.com/news/judge-finds-police-acted-reasonably-024722114.html)
-- May 20 - [Trump's new MAGA accounts are getting a thumbs down from financial experts](https://finance.yahoo.com/news/trumps-new-maga-accounts-are-getting-a-thumbs-down-from-financial-experts-220242429.html)
-- May 20 - [GOP Senator Forced to Step in After RFK Jr. Loses His Cool in Hearing](https://www.yahoo.com/news/gop-senator-forced-step-rfk-215309131.html)
 <!-- feed end -->
 
 ### Onstream
