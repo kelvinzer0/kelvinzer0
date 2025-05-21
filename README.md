@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [How much Mark Cuban's $33 million in 'Shark Tank' investments earned him](https://finance.yahoo.com/news/much-mark-cubans-33-million-155128329.html)
+- May 21 - [Browns stadium gets huge endorsement, while Cleveland Mayor Justin Bibb softens stance](https://www.yahoo.com/news/browns-stadium-gets-huge-endorsement-151605858.html)
 - May 21 - [Line-jumping dispute leads to 3 Stow students being punched at Cedar Point, parent says](https://www.yahoo.com/news/line-jumping-dispute-leads-3-145602895.html)
-- May 21 - [Married Kohl’s CEO affair with a Walmart exec was retail’s dirty little secret. When it was exposed, it upended retail](https://www.yahoo.com/news/married-kohl-ceo-affair-walmart-132129442.html)
+- May 21 - [I'm a Strength Coach. I'm Begging Guys to Train This Underrated Muscle Group](https://www.yahoo.com/lifestyle/im-strength-coach-im-begging-143500576.html)
+- May 21 - [South Carolina death row inmate seeks to volunteer to die after friends are executed](https://www.yahoo.com/news/south-carolina-death-row-inmate-141402950.html)
 - May 21 - [Hikers stumble across treasure hidden on a mountain trail, sparking an investigation into its origin](https://www.yahoo.com/news/hikers-mysterious-stash-gold-hidden-165157130.html)
-- May 21 - [Lebanese and Palestinians leaders agree that Lebanon won't be used as a launchpad to strike Israel](https://www.yahoo.com/news/lebanese-palestinians-leaders-agree-lebanon-125451805.html)
 <!-- feed end -->
 
 ### Onstream
