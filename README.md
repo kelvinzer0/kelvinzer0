@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 21 - [19 Insults That Are So Creative And So Funny That I Don't Even Feel Bad For Laughing](https://www.yahoo.com/lifestyle/19-insults-creative-funny-dont-023101629.html)
-- May 21 - [Nvidia says US export controls on AI chips to China were 'a failure'](https://finance.yahoo.com/news/nvidia-says-us-export-controls-015317470.html)
-- May 20 - [Trump DOJ drops case on Dem: Melber & James Carville on stumbling “revenge” plot](https://www.yahoo.com/news/trump-doj-drops-case-dem-225330198.html)
 - May 20 - [GOP Senator Forced to Step in After RFK Jr. Loses His Cool in Hearing](https://www.yahoo.com/news/gop-senator-forced-step-rfk-215309131.html)
-- May 20 - [Chicago severe weather threat: Scattered storms sweeping through suburbs](https://www.yahoo.com/news/chicago-severe-weather-threat-scattered-214858955.html)
+- May 20 - [Judge: US officials must keep control of migrants sent to South Sudan in case removals were unlawful](https://www.yahoo.com/news/us-immigration-authorities-appear-begun-205810472.html)
+- May 20 - [This Northern California city is the top U.S. destination among homebuyers looking to relocate](https://www.yahoo.com/news/northern-california-city-top-u-205703563.html)
+- May 20 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
 <!-- feed end -->
 
 ### Onstream
