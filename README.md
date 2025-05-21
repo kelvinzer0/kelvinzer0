@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - ['Trump Is An Ageist,' Says Anthony Scaramucci. He Claims Saudi Prince MBS Used Trump's Disregard For Younger People To Play Him](https://finance.yahoo.com/news/trump-ageist-says-anthony-scaramucci-134521625.html)
+- May 21 - [South Carolina death row inmate seeks to volunteer to die after friends are executed](https://www.yahoo.com/news/south-carolina-death-row-inmate-141402950.html)
+- May 21 - [Hikers stumble across treasure hidden on a mountain trail, sparking an investigation into its origin](https://www.yahoo.com/news/hikers-mysterious-stash-gold-hidden-165157130.html)
 - May 21 - [US Navy Super Hornets launched history's 'largest airstrike' from an aircraft carrier — 125,000 pounds of munitions, admiral says](https://www.yahoo.com/news/us-navy-super-hornets-launched-132200293.html)
-- May 21 - [Judge orders US officials to appear in court to answer questions about migrants sent to South Sudan](https://www.yahoo.com/news/judge-orders-us-officials-appear-130943130.html)
 - May 21 - [After Paying Off Her Own Student Loans To The Tune Of $96,000, A Dave Ramsey Caller Says Her Parents Expect Her To Cover Her Siblings' Debt](https://finance.yahoo.com/news/paying-off-her-own-student-123053336.html)
-- May 21 - [Poland intervenes as Russian 'shadow fleet' ship spotted near power cable](https://www.yahoo.com/news/poland-says-russian-ship-performed-110042772.html)
+- May 21 - [UnitedHealth falls after report it secretly paid nursing homes to reduce hospital transfers](https://finance.yahoo.com/news/unitedhealth-falls-report-secretly-paid-113722353.html)
 <!-- feed end -->
 
 ### Onstream
