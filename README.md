@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [BYU quarterback Jake Retzlaff accused of sexually assaulting woman in 2023 in new lawsuit](https://sports.yahoo.com/college-football/article/byu-quarterback-jake-retzlaff-accused-of-sexually-assaulting-woman-in-2023-in-new-lawsuit-205754776.html)
-- May 21 - [‘Fake cop’ at murder scene arrested after the real cops asked him for his credentials](https://www.yahoo.com/news/fake-cop-murder-scene-arrested-203256980.html)
-- May 21 - [US redirects $365 million Biden had set for Puerto Rico solar power](https://www.yahoo.com/news/us-redirects-365-million-biden-191038866.html)
-- May 21 - [Couple’s rental car impounded by Georgia police — why they blame Avis’s ‘negligence’ for ‘unsafe’ situation](https://www.yahoo.com/news/couple-rental-car-impounded-georgia-190000126.html)
-- May 21 - [Former US Ambassador to Ukraine explains why she resigned](https://www.yahoo.com/news/former-us-ambassador-ukraine-explains-184949053.html)
+- May 21 - [Elon Musk trying to 'minimize' reality of Tesla sales hit: Investor](https://finance.yahoo.com/video/elon-musk-trying-minimize-reality-214500506.html)
+- May 21 - [California state senator cited for suspicion of drunken driving, says she wasn't intoxicated](https://www.yahoo.com/news/california-state-senator-cited-suspicion-212758348.html)
+- May 21 - [Trump Says He Just Invented a 'New Word,' Which Is Now the 'Best Word.' It's Been in Use Since the 1500s](https://www.yahoo.com/news/trump-says-just-invented-word-211835734.html)
+- May 21 - [Newlyweds on Their Way to Honeymoon Rescue Tiny Kitten from Highway: 'Our Wedding Gift from the Universe'](https://www.yahoo.com/lifestyle/newlyweds-way-honeymoon-rescue-tiny-211500573.html)
+- May 21 - [Trump calls his own foreign aid cuts at USAID 'devastating'](https://www.yahoo.com/news/trump-calls-own-foreign-aid-184504092.html)
 <!-- feed end -->
 
 ### Onstream
