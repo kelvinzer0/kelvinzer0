@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Sanctioned Ukrainian ex-politician killed outside Madrid’s American school, police source says](https://www.yahoo.com/news/sanctioned-ukrainian-ex-politician-killed-114415217.html)
-- May 21 - [UnitedHealth Plunge Stunned Wall Street. One Analyst Saw It Coming](https://finance.yahoo.com/news/unitedhealth-plunge-stunned-wall-street-111447365.html)
-- May 21 - [Exclusive-Hacker who breached communications app used by Trump aide stole data from across US government](https://www.yahoo.com/news/exclusive-hacker-breached-communications-app-100242693.html)
-- May 21 - [Mortgage and refinance interest rates today, May 21, 2025: Rates ease lower even as Fed signals delay in rate cuts](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-may-21-2025-100049491.html)
+- May 21 - [Lebanese and Palestinians leaders agree that Lebanon won't be used as a launchpad to strike Israel](https://www.yahoo.com/news/lebanese-palestinians-leaders-agree-lebanon-125451805.html)
+- May 21 - [UnitedHealth falls after report it secretly paid nursing homes to reduce hospital transfers](https://finance.yahoo.com/news/unitedhealth-falls-report-secretly-paid-113722353.html)
+- May 21 - [Musk under fire after misleading policy apparently deceived Tesla customers: 'I don't want to be associated with that anymore'](https://finance.yahoo.com/news/musk-under-fire-misleading-policy-110016226.html)
 - May 21 - [Tesla is now accepting Cybertruck trade-ins. 2 owners showed us how much their vehicles have depreciated.](https://finance.yahoo.com/news/tesla-now-accepting-cybertruck-trade-095901436.html)
+- May 21 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
 <!-- feed end -->
 
 ### Onstream
