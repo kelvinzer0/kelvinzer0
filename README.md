@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Elon Musk trying to 'minimize' reality of Tesla sales hit: Investor](https://finance.yahoo.com/video/elon-musk-trying-minimize-reality-214500506.html)
+- May 21 - [Heavy floods threaten Argentina's crops](https://www.yahoo.com/news/heavy-floods-threaten-argentinas-crops-223041396.html)
 - May 21 - [California state senator cited for suspicion of drunken driving, says she wasn't intoxicated](https://www.yahoo.com/news/california-state-senator-cited-suspicion-212758348.html)
-- May 21 - [Trump Says He Just Invented a 'New Word,' Which Is Now the 'Best Word.' It's Been in Use Since the 1500s](https://www.yahoo.com/news/trump-says-just-invented-word-211835734.html)
-- May 21 - [Newlyweds on Their Way to Honeymoon Rescue Tiny Kitten from Highway: 'Our Wedding Gift from the Universe'](https://www.yahoo.com/lifestyle/newlyweds-way-honeymoon-rescue-tiny-211500573.html)
+- May 21 - ["Would Be Nice If He Spoke To Putin That Way" — The Internet Is Rolling Its Eyes After Donald Trump Insulted This Reporter](https://www.yahoo.com/news/nice-spoke-putin-way-internet-212130451.html)
 - May 21 - [Trump calls his own foreign aid cuts at USAID 'devastating'](https://www.yahoo.com/news/trump-calls-own-foreign-aid-184504092.html)
+- May 21 - [Steve Bannon says 'everything changed' for Musk after Trump publicly denied that the CEO would receive a secret China briefing](https://www.yahoo.com/news/steve-bannon-says-everything-changed-171222416.html)
 <!-- feed end -->
 
 ### Onstream
