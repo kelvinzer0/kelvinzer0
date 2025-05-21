@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Clownfish shrink their bodies to survive ocean heat waves](https://www.yahoo.com/news/clownfish-shrink-bodies-survive-ocean-185216206.html)
-- May 21 - [Jim Jordan Flails as Democrat Exposes GOP Plan to Screw Up the Courts](https://www.yahoo.com/news/jim-jordan-flails-democrat-exposes-172417020.html)
+- May 21 - [AI wearables are 'on the cusp' of taking off, analyst says](https://finance.yahoo.com/video/ai-wearables-cusp-taking-off-194946297.html)
+- May 21 - [James Carville Suggests He Would Endorse This Democrat In 2028 Race If They Nab Nomination](https://www.yahoo.com/news/james-carville-suggests-endorse-democrat-193655329.html)
+- May 21 - [Couple’s rental car impounded by Georgia police — why they blame Avis’s ‘negligence’ for ‘unsafe’ situation](https://www.yahoo.com/news/couple-rental-car-impounded-georgia-190000126.html)
 - May 21 - [Steve Bannon says 'everything changed' for Musk after Trump publicly denied that the CEO would receive a secret China briefing](https://www.yahoo.com/news/steve-bannon-says-everything-changed-171222723.html)
 - May 21 - [Over boos, Columbia University president notes Mahmoud Khalil's absence at graduation](https://www.yahoo.com/news/over-boos-columbia-university-president-163718894.html)
-- May 21 - [Elon Musk Gets Rattled by Hard Questions He Can't Answer, Calls Interviewer an "NPC" While Giving One-Word NPC-Like Responses Himself](https://www.yahoo.com/news/elon-musk-gets-rattled-hard-162319662.html)
 <!-- feed end -->
 
 ### Onstream
