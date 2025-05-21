@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Google rolls out major AI update with Gemini assistant](https://www.yahoo.com/news/google-rolls-major-ai-gemini-023337160.html)
 - May 21 - [19 Insults That Are So Creative And So Funny That I Don't Even Feel Bad For Laughing](https://www.yahoo.com/lifestyle/19-insults-creative-funny-dont-023101629.html)
-- May 20 - [Weinstein Accuser Says He Dragged, Stripped and Raped Her After Learning She Was Seeing Someone Else in 2014](https://www.yahoo.com/news/harvey-weinstein-accuser-makes-pointed-220001441.html)
+- May 21 - [Nvidia says US export controls on AI chips to China were 'a failure'](https://finance.yahoo.com/news/nvidia-says-us-export-controls-015317470.html)
+- May 20 - [Trump DOJ drops case on Dem: Melber & James Carville on stumbling “revenge” plot](https://www.yahoo.com/news/trump-doj-drops-case-dem-225330198.html)
 - May 20 - [GOP Senator Forced to Step in After RFK Jr. Loses His Cool in Hearing](https://www.yahoo.com/news/gop-senator-forced-step-rfk-215309131.html)
-- May 20 - [Tornado touchdown confirmed in north Jackson, Tennessee National Weather Service says](https://www.yahoo.com/news/tornado-touchdown-confirmed-north-jackson-213737114.html)
+- May 20 - [Chicago severe weather threat: Scattered storms sweeping through suburbs](https://www.yahoo.com/news/chicago-severe-weather-threat-scattered-214858955.html)
 <!-- feed end -->
 
 ### Onstream
