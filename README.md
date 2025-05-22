@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [New North Korea warship is damaged at its launch ceremony attended by Kim Jong Un](https://www.yahoo.com/news/north-korea-warship-damaged-launch-014542863.html)
+- May 22 - [Stephen A. Smith on his distrust of the media, Democratic Party | CUOMO](https://www.yahoo.com/news/stephen-smith-distrust-media-democratic-014300346.html)
 - May 22 - [North Korean leader Kim Jong Un condemns warship accident as 'criminal'](https://www.yahoo.com/news/north-korean-leader-kim-jong-003531677.html)
-- May 21 - [Las Vegas driver had at least 4 drinks before wild crash: police](https://www.yahoo.com/news/las-vegas-driver-had-least-220557869.html)
-- May 21 - [California state senator cited for suspicion of drunken driving, says she wasn't intoxicated](https://www.yahoo.com/news/california-state-senator-cited-suspicion-212758348.html)
-- May 21 - ['I'm an Oncologist and This Is the Food I Add to Every Meal for Cancer Prevention'](https://www.yahoo.com/lifestyle/im-oncologist-food-add-every-212500409.html)
-- May 21 - [Big Lots will reopen more than 70 stores on June 5: Is your store on the list?](https://finance.yahoo.com/news/big-lots-reopen-more-70-211102028.html)
+- May 21 - [Couple Loses Arms While Hunkering Down in Tornado: ‘They Were Holding Each Other'](https://www.yahoo.com/news/couple-loses-arms-while-hunkering-230000043.html)
+- May 21 - [Eating These Foods May Raise Your Risk of Gastrointestinal Cancers, New Study Suggests](https://www.yahoo.com/lifestyle/eating-foods-may-raise-risk-225810669.html)
 <!-- feed end -->
 
 ### Onstream
