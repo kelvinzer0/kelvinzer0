@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Walmart joins layoff wave amid economic and global strains](https://finance.yahoo.com/video/walmart-joins-layoff-wave-amid-202227902.html)
+- May 22 - [North Korea launches probe into accident during warship's launch](https://www.yahoo.com/news/north-korea-intensifies-probe-accident-212229781.html)
 - May 22 - [Trump's image of dead 'white farmers' came from Reuters footage in Congo, not South Africa](https://www.yahoo.com/news/trumps-image-dead-white-farmers-195418859.html)
 - May 22 - [Florida court awards Mexican government massive civil judgment against former security chief](https://www.yahoo.com/news/florida-court-awards-mexican-government-195322638.html)
 - May 22 - [Denmark to raise retirement age to highest in Europe](https://www.yahoo.com/news/denmark-raise-retirement-age-highest-181717313.html)
-- May 22 - [Microsoft fires employee who interrupted CEO's speech to protest AI tech for Israeli military](https://www.yahoo.com/news/microsoft-fires-employee-interrupted-ceos-163044221.html)
+- May 22 - [US Treasury to phase out the penny: A history of the coin](https://finance.yahoo.com/video/us-treasury-phase-penny-history-180000674.html)
 <!-- feed end -->
 
 ### Onstream
