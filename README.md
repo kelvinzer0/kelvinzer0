@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [Crypto Weekly: Attack anger and Coinbase's cyberattack fallout](https://finance.yahoo.com/video/crypto-weekly-attack-anger-coinbases-135424827.html)
 - May 22 - [The House passed Trump's 'big, beautiful bill.' Here's how it affects taxpayers and businesses.](https://finance.yahoo.com/news/the-house-passed-trumps-big-beautiful-bill-heres-how-it-affects-taxpayers-and-businesses-110041500.html)
-- May 22 - [2 Artificial Intelligence (AI) Stocks That Could Turn $10,000 Into $100,000](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-102500462.html)
+- May 22 - [Tesla makes long-awaited announcement about new vehicle that has fans talking: 'Wish this was happening several years ago'](https://www.yahoo.com/news/tesla-makes-long-awaited-announcement-110023165.html)
 - May 22 - [Pigs can't fly: US high-end livestock breeders lose millions in China tariff fallout](https://www.yahoo.com/news/pigs-cant-fly-us-high-100310073.html)
 - May 22 - [Mortgage and refinance interest rates today, May 22, 2025: Sharply higher on national debt concerns](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-may-22-2025-100044031.html)
-- May 22 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
 <!-- feed end -->
 
 ### Onstream
