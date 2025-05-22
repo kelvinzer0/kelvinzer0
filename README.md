@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [New North Korea warship is damaged at its launch ceremony attended by Kim Jong Un](https://www.yahoo.com/news/north-korea-warship-damaged-launch-014542863.html)
-- May 22 - [Stephen A. Smith on his distrust of the media, Democratic Party | CUOMO](https://www.yahoo.com/news/stephen-smith-distrust-media-democratic-014300346.html)
+- May 22 - [Kim Jong-un watches in horror as new warship is crushed in launch failure](https://www.yahoo.com/news/kim-jong-un-watches-horror-020308530.html)
 - May 22 - [North Korean leader Kim Jong Un condemns warship accident as 'criminal'](https://www.yahoo.com/news/north-korean-leader-kim-jong-003531677.html)
-- May 21 - [Couple Loses Arms While Hunkering Down in Tornado: ‘They Were Holding Each Other'](https://www.yahoo.com/news/couple-loses-arms-while-hunkering-230000043.html)
-- May 21 - [Eating These Foods May Raise Your Risk of Gastrointestinal Cancers, New Study Suggests](https://www.yahoo.com/lifestyle/eating-foods-may-raise-risk-225810669.html)
+- May 21 - [Video shows dog fend off pack of coyotes in front of Southern California home](https://www.yahoo.com/news/video-shows-dog-fend-off-231125418.html)
+- May 21 - [A former Florida Republican congressional candidate gets 3 years for threatening primary opponent](https://www.yahoo.com/news/former-florida-republican-congressional-candidate-223349978.html)
+- May 21 - [California state senator cited for suspicion of impaired driving, says she wasn't intoxicated](https://www.yahoo.com/news/california-state-senator-cited-suspicion-212758348.html)
 <!-- feed end -->
 
 ### Onstream
