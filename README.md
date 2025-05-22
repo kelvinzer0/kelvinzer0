@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Columbia University acting president booed during speech](https://www.yahoo.com/news/columbia-university-acting-president-booed-044334165.html)
-- May 22 - [China's Lenovo reports 64% profit decline in fourth quarter](https://finance.yahoo.com/news/lenovo-reports-64-profit-decline-042340184.html)
-- May 22 - [OpenAI buys iPhone designer Jony Ive's hardware startup for $6.5 bln](https://finance.yahoo.com/video/openai-buys-iphone-designer-jony-040340684.html)
+- May 22 - [JPMorgan's Chan on China Business Strategy](https://finance.yahoo.com/video/jpmorgans-chan-china-business-strategy-053828514.html)
+- May 22 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
 - May 22 - [Kim Jong-un watches in horror as new warship is crushed in launch failure](https://www.yahoo.com/news/kim-jong-un-watches-horror-020308530.html)
-- May 22 - [North Korea fails to launch 2nd destroyer after it suffered damage during ceremony](https://www.yahoo.com/news/north-korea-warship-damaged-launch-014542863.html)
+- May 22 - [North Korea's second naval destroyer is damaged in a failed launch at a ceremony attended by Kim](https://www.yahoo.com/news/north-korea-warship-damaged-launch-014542863.html)
+- May 21 - [Video shows dog fend off pack of coyotes in front of Southern California home](https://www.yahoo.com/news/video-shows-dog-fend-off-231125418.html)
 <!-- feed end -->
 
 ### Onstream
