@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Gold Rally Could Be Past Its Peak by Year End: StanChart](https://finance.yahoo.com/video/gold-rally-could-past-peak-063706958.html)
+- May 22 - [An Israeli politician made rare criticism of Israel's conduct in Gaza and sparked an outcry](https://www.yahoo.com/news/israeli-politician-made-rare-criticism-074714620.html)
 - May 22 - [Kim Jong-un furious as new warship is crushed in launch failure](https://www.yahoo.com/news/kim-jong-un-watches-horror-020308530.html)
 - May 22 - [Philippine president calls for all Cabinet secretaries to resign after election setbacks](https://www.yahoo.com/news/philippine-president-calls-cabinet-secretaries-042948741.html)
 - May 22 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
