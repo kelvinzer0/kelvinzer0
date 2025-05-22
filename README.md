@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [House passes Trump's deficit-swelling tax bill, with big Medicaid changes](https://www.yahoo.com/news/house-passes-trumps-deficit-swelling-105623881.html)
+- May 22 - [Bitcoin price hits all-time high above $111,000](https://uk.finance.yahoo.com/news/bitcoin-price-all-time-high-crypto-093320602.html)
 - May 22 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
-- May 22 - ['Gross': House Republicans Ripped Over 'Incredibly Creepy' New Way To Honor Trump](https://www.yahoo.com/news/gross-house-republicans-ripped-over-090237421.html)
-- May 22 - [An Israeli politician made rare criticism of Israel's conduct in Gaza and sparked an outcry](https://www.yahoo.com/news/israeli-politician-made-rare-criticism-074714620.html)
-- May 22 - [Philippine president calls for all Cabinet secretaries to resign after election setbacks](https://www.yahoo.com/news/philippine-president-calls-cabinet-secretaries-042948741.html)
-- May 22 - [Scientists warn if a 1,000-ft ‘mega-tsunami’ spurs from an active fault line it could wipe part of America off the map](https://www.yahoo.com/news/scientists-warn-1-000-ft-190353418.html)
+- May 22 - [Diversification Case Is Stronger Than Ever: Ninety One CEO Says](https://finance.yahoo.com/video/diversification-case-stronger-ever-ninety-084624569.html)
+- May 22 - [Pakistan will not get water over which India has rights, India PM Modi says](https://www.yahoo.com/news/pakistan-not-water-over-india-073050348.html)
 <!-- feed end -->
 
 ### Onstream
