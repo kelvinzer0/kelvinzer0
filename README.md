@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [Columbia University acting president booed during speech](https://www.yahoo.com/news/columbia-university-acting-president-booed-044334165.html)
+- May 22 - [China's Lenovo reports 64% profit decline in fourth quarter](https://finance.yahoo.com/news/lenovo-reports-64-profit-decline-042340184.html)
+- May 22 - [OpenAI buys iPhone designer Jony Ive's hardware startup for $6.5 bln](https://finance.yahoo.com/video/openai-buys-iphone-designer-jony-040340684.html)
 - May 22 - [Kim Jong-un watches in horror as new warship is crushed in launch failure](https://www.yahoo.com/news/kim-jong-un-watches-horror-020308530.html)
-- May 22 - [North Korean leader Kim Jong Un condemns warship accident as 'criminal'](https://www.yahoo.com/news/north-korean-leader-kim-jong-003531677.html)
-- May 21 - [Video shows dog fend off pack of coyotes in front of Southern California home](https://www.yahoo.com/news/video-shows-dog-fend-off-231125418.html)
-- May 21 - [A former Florida Republican congressional candidate gets 3 years for threatening primary opponent](https://www.yahoo.com/news/former-florida-republican-congressional-candidate-223349978.html)
-- May 21 - [California state senator cited for suspicion of impaired driving, says she wasn't intoxicated](https://www.yahoo.com/news/california-state-senator-cited-suspicion-212758348.html)
+- May 22 - [North Korea fails to launch 2nd destroyer after it suffered damage during ceremony](https://www.yahoo.com/news/north-korea-warship-damaged-launch-014542863.html)
 <!-- feed end -->
 
 ### Onstream
