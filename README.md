@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [OTD In Space - May 22: SpaceX Launches 1st Private Cargo Mission To The International Space Station](https://www.yahoo.com/news/otd-space-may-22-spacex-180000996.html)
-- May 22 - [Small Plane Crashes into Neighborhood, Igniting Fires in 15 Homes and Leaving Jet Fuel 'All Over'](https://www.yahoo.com/entertainment/videos/small-plane-crashes-neighborhood-igniting-175204666.html)
-- May 22 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
-- May 22 - [Home Depot struggles to reverse concerning customer behavior](https://finance.yahoo.com/news/home-depot-struggles-reverse-concerning-163300601.html)
+- May 22 - [Trump administration bars Harvard from enrolling foreign students](https://www.yahoo.com/news/trump-administration-bars-harvard-enrolling-182624292.html)
+- May 22 - [Denmark to raise retirement age to highest in Europe](https://www.yahoo.com/news/denmark-raise-retirement-age-highest-181717313.html)
+- May 22 - [NOAA projects above-normal Atlantic hurricane season](https://www.yahoo.com/news/noaa-projects-above-normal-atlantic-180831368.html)
 - May 22 - [Microsoft fires employee who interrupted CEO's speech to protest AI tech for Israeli military](https://www.yahoo.com/news/microsoft-fires-employee-interrupted-ceos-163044221.html)
+- May 22 - [Trump's tax bill makes big changes to student loans and financial aid](https://finance.yahoo.com/news/trumps-tax-bill-makes-big-changes-to-student-loans-and-financial-aid-161335389.html)
 <!-- feed end -->
 
 ### Onstream
