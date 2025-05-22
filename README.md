@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [Dollar Could Drop Another 10%, Says Morgan Stanley's Wilson](https://finance.yahoo.com/video/dollar-could-drop-another-10-152053279.html)
 - May 22 - [Arkansas Teacher Pleads No Contest to Charge of Sexually Assaulting Boy, 15, Who She Allegedly Knew from Church](https://www.yahoo.com/news/arkansas-teacher-pleads-no-contest-143518265.html)
 - May 22 - [Supreme Court tie vote dooms taxpayer funded Catholic charter school in Oklahoma](https://www.yahoo.com/news/supreme-court-tie-vote-dooms-141355204.html)
-- May 22 - [OpenAI Acquires Jony Ive's AI Firm](https://finance.yahoo.com/video/openai-acquires-jony-ives-ai-135846743.html)
-- May 22 - [Crypto Weekly: Attack anger and Coinbase's cyberattack fallout](https://finance.yahoo.com/video/crypto-weekly-attack-anger-coinbases-135424827.html)
-- May 22 - [Skimming device found at York County Rutters; Police investigating](https://www.yahoo.com/news/skimming-device-found-york-county-120422861.html)
+- May 22 - [Mass. High School Senior Was Driving at 110 MPH Ahead of Spring Break Crash that Killed 3: Report](https://www.yahoo.com/news/mass-high-school-senior-driving-135244854.html)
+- May 22 - [Welcome To The White Christian Nationalist Presidency](https://www.yahoo.com/news/welcome-white-christian-nationalist-presidency-132616298.html)
 <!-- feed end -->
 
 ### Onstream
