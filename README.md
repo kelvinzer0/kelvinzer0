@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Trump administration bars Harvard from enrolling foreign students](https://www.yahoo.com/news/trump-administration-bars-harvard-enrolling-182624292.html)
 - May 22 - [Denmark to raise retirement age to highest in Europe](https://www.yahoo.com/news/denmark-raise-retirement-age-highest-181717313.html)
-- May 22 - [NOAA projects above-normal Atlantic hurricane season](https://www.yahoo.com/news/noaa-projects-above-normal-atlantic-180831368.html)
-- May 22 - [Microsoft fires employee who interrupted CEO's speech to protest AI tech for Israeli military](https://www.yahoo.com/news/microsoft-fires-employee-interrupted-ceos-163044221.html)
-- May 22 - [Trump's tax bill makes big changes to student loans and financial aid](https://finance.yahoo.com/news/trumps-tax-bill-makes-big-changes-to-student-loans-and-financial-aid-161335389.html)
+- May 22 - [Rare XA GT Falcon Rescued After 30 Years in Storage Using 30-Foot Crane Lift](https://autos.yahoo.com/rare-xa-gt-falcon-rescued-150052754.html)
+- May 22 - [Republicans Sneak Terrifying Gun Law Change Into Trump’s Budget Bill](https://www.yahoo.com/news/republicans-sneak-terrifying-gun-law-143727054.html)
+- May 22 - [4 masked people fire at Myrtle Beach officers in high-speed chase through city](https://www.yahoo.com/news/4-masked-people-fire-myrtle-134045144.html)
+- May 22 - [Nvidia, Tesla lead over $250 billion in short-seller losses during massive market rally](https://finance.yahoo.com/news/nvidia-tesla-lead-over-250-billion-in-short-seller-losses-during-massive-market-rally-133340011.html)
 <!-- feed end -->
 
 ### Onstream
