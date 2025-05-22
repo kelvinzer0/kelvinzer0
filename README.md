@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [House passes Trump's deficit-swelling tax bill, with big Medicaid changes](https://www.yahoo.com/news/house-passes-trumps-deficit-swelling-105623881.html)
-- May 22 - [Bitcoin price hits all-time high above $111,000](https://uk.finance.yahoo.com/news/bitcoin-price-all-time-high-crypto-093320602.html)
-- May 22 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
-- May 22 - [Diversification Case Is Stronger Than Ever: Ninety One CEO Says](https://finance.yahoo.com/video/diversification-case-stronger-ever-ninety-084624569.html)
-- May 22 - [Pakistan will not get water over which India has rights, India PM Modi says](https://www.yahoo.com/news/pakistan-not-water-over-india-073050348.html)
+- May 22 - [Ralph Lauren's quarterly results beat estimates on steady demand](https://finance.yahoo.com/news/ralph-lauren-forecasts-annual-revenue-121213358.html)
+- May 22 - [Nestle to refocus on core business, says CEO Freixe](https://finance.yahoo.com/video/nestle-refocus-core-business-says-115649863.html)
+- May 22 - [The House passed Trump's 'big, beautiful bill.' Here's how it affects taxpayers and businesses.](https://finance.yahoo.com/news/the-house-passed-trumps-big-beautiful-bill-heres-how-it-affects-taxpayers-and-businesses-110041500.html)
+- May 22 - [Aftermath Of Disastrous North Korean Frigate Launch Seen In Satellite Image](https://www.yahoo.com/news/aftermath-disastrous-north-korean-frigate-105846935.html)
+- May 22 - [Mortgage and refinance interest rates today, May 22, 2025: Sharply higher on national debt concerns](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-may-22-2025-100044031.html)
 <!-- feed end -->
 
 ### Onstream
