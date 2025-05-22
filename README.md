@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [Arkansas Teacher Pleads No Contest to Charge of Sexually Assaulting Boy, 15, Who She Allegedly Knew from Church](https://www.yahoo.com/news/arkansas-teacher-pleads-no-contest-143518265.html)
+- May 22 - [Supreme Court tie vote dooms taxpayer funded Catholic charter school in Oklahoma](https://www.yahoo.com/news/supreme-court-tie-vote-dooms-141355204.html)
+- May 22 - [OpenAI Acquires Jony Ive's AI Firm](https://finance.yahoo.com/video/openai-acquires-jony-ives-ai-135846743.html)
 - May 22 - [Crypto Weekly: Attack anger and Coinbase's cyberattack fallout](https://finance.yahoo.com/video/crypto-weekly-attack-anger-coinbases-135424827.html)
-- May 22 - [The House passed Trump's 'big, beautiful bill.' Here's how it affects taxpayers and businesses.](https://finance.yahoo.com/news/the-house-passed-trumps-big-beautiful-bill-heres-how-it-affects-taxpayers-and-businesses-110041500.html)
-- May 22 - [Tesla makes long-awaited announcement about new vehicle that has fans talking: 'Wish this was happening several years ago'](https://www.yahoo.com/news/tesla-makes-long-awaited-announcement-110023165.html)
-- May 22 - [Pigs can't fly: US high-end livestock breeders lose millions in China tariff fallout](https://www.yahoo.com/news/pigs-cant-fly-us-high-100310073.html)
-- May 22 - [Mortgage and refinance interest rates today, May 22, 2025: Sharply higher on national debt concerns](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-may-22-2025-100044031.html)
+- May 22 - [Skimming device found at York County Rutters; Police investigating](https://www.yahoo.com/news/skimming-device-found-york-county-120422861.html)
 <!-- feed end -->
 
 ### Onstream
