@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 23 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
+- May 23 - [North Korea vows to arrest those responsible for failed ship launch](https://www.yahoo.com/news/north-korea-vows-arrest-those-015745106.html)
 - May 23 - [Famous Drummer Among Those Killed In Private Jet Crash](https://www.yahoo.com/news/famous-drummer-among-those-killed-001547628.html)
 - May 22 - [Trump says autism ‘has to be artificially induced’](https://www.yahoo.com/news/trump-says-autism-artificially-induced-220900467.html)
-- May 22 - [Supreme Court walls off Fed from Trump firings](https://finance.yahoo.com/news/supreme-court-walls-off-fed-from-trump-firings-220258175.html)
-- May 22 - ["This Is A Sad Day For America" — MAGA Supporters Have A LOT To Say About Trump's "Big, Beautiful" Tax Bill, And It's Not What I Was Expecting](https://www.yahoo.com/news/sad-day-america-maga-supporters-212731345.html)
 - May 22 - [Health savings accounts are poised to get a big boost in Trump's tax package](https://finance.yahoo.com/news/health-savings-accounts-are-poised-to-get-a-big-boost-in-trumps-tax-package-212059514.html)
 <!-- feed end -->
 
