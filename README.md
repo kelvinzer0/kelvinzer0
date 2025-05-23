@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [The surging bond market's flashing warning signs: What to know](https://finance.yahoo.com/video/surging-bond-markets-flashing-warning-203952148.html)
-- May 23 - [Boeing reaches deal with DOJ, avoids 737 Max prosecution](https://finance.yahoo.com/video/boeing-reaches-deal-doj-avoids-193856762.html)
+- May 23 - [Boeing to pay $1.1 billion as part of deal to settle 737 Max crash cases with DOJ](https://www.yahoo.com/news/boeing-pay-1-1-billion-210714907.html)
+- May 23 - [Analysis-United Airlines has few viable alternatives to congested Newark Airport](https://finance.yahoo.com/news/analysis-united-airlines-few-viable-203437763.html)
+- May 23 - [Colorado couple found guilty over cross burning meant to draw sympathy for Black candidate](https://www.yahoo.com/news/colorado-couple-found-guilty-over-202320294.html)
 - May 23 - [Georgia man who fled with the nanny after his wife's killing is charged with murder 19 years later](https://www.yahoo.com/news/georgia-man-fled-nanny-wifes-192932008.html)
-- May 23 - [Titanic Submersible: New Clip Reveals Implosion Before Final Message](https://www.yahoo.com/news/titanic-submersible-clip-reveals-implosion-184009336.html)
-- May 23 - [Marjorie Taylor Greene picked a fight with Grok](https://finance.yahoo.com/news/marjorie-taylor-greene-picked-fight-180915138.html)
+- May 23 - [Inside Trump's $400 million jet from Qatar](https://www.yahoo.com/news/inside-trumps-400-million-jet-190248768.html)
 <!-- feed end -->
 
 ### Onstream
