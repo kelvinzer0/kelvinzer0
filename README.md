@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [How Smart Devices Spy On Your Home—And How To Avoid It](https://www.yahoo.com/entertainment/videos/smart-devices-spy-home-avoid-160000635.html)
-- May 23 - [I Almost Tripped Over My Hamster's Sofa Laughing At These 20 Funny Pet Posts](https://www.yahoo.com/lifestyle/almost-tripped-over-hamsters-sofa-153047815.html)
-- May 23 - [Hikers Discover Porsche Panamera Mysteriously Blocking Trail in the Middle of the Woods](https://autos.yahoo.com/hikers-discover-porsche-panamera-mysteriously-151400040.html)
+- May 23 - [Accenture, Nvidia, and Dell Technologies Partner to Capitalize on Growing AI Demand](https://finance.yahoo.com/news/accenture-nvidia-dell-technologies-partner-163524387.html)
+- May 23 - [Target CEO sounds alarm on customer behavior](https://finance.yahoo.com/news/target-ceo-sounds-alarm-customer-163300071.html)
+- May 23 - [Scientists Discover New Dwarf Planet in Solar System, Far Beyond Pluto](https://www.yahoo.com/news/scientists-discover-dwarf-planet-solar-120047329.html)
 - May 23 - [A video of a woman using a transparent 'phone' went viral. But can it actually help curb your smartphone addiction?](https://www.yahoo.com/news/a-video-of-a-woman-using-a-transparent-phone-went-viral-but-can-it-actually-help-curb-your-smartphone-addiction-115328640.html)
 - May 23 - [Future queen of Belgium caught up in Harvard foreign student ban](https://www.yahoo.com/news/future-queen-belgium-caught-harvard-113027453.html)
 <!-- feed end -->
