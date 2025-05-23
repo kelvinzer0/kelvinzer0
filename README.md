@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Firefighters battle a large fire at a vacant hotel near Houston](https://www.yahoo.com/news/firefighters-battle-large-fire-vacant-175704041.html)
-- May 23 - [Here's why Apple can't make an iPhone in the US — no matter what Trump says](https://finance.yahoo.com/news/apple-spent-many-years-billions-100101848.html)
+- May 23 - [Cecile Elstein obituary](https://www.yahoo.com/news/cecile-elstein-obituary-183119469.html)
+- May 23 - [Marjorie Taylor Greene picked a fight with Grok](https://finance.yahoo.com/news/marjorie-taylor-greene-picked-fight-180915138.html)
+- May 23 - [Mysterious boat anchors itself off Flagler Beach, officials investigate](https://www.yahoo.com/news/mysterious-boat-anchors-itself-off-170450115.html)
 - May 23 - [Here Are 20 Of The Funniest Pet Posts On The Internet From Last Week](https://www.yahoo.com/lifestyle/almost-tripped-over-hamsters-sofa-153047815.html)
 - May 23 - [Influencer who attended Trump’s memecoin dinner says he got a ‘Walmart steak’—and no access to the president](https://www.yahoo.com/news/influencer-attended-trump-memecoin-dinner-152144375.html)
-- May 23 - [A video of a woman using a transparent 'phone' went viral. But can it actually help curb your smartphone addiction?](https://www.yahoo.com/news/a-video-of-a-woman-using-a-transparent-phone-went-viral-but-can-it-actually-help-curb-your-smartphone-addiction-115328640.html)
 <!-- feed end -->
 
 ### Onstream
