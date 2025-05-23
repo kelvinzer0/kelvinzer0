@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Accenture, Nvidia, and Dell Technologies Partner to Capitalize on Growing AI Demand](https://finance.yahoo.com/news/accenture-nvidia-dell-technologies-partner-163524387.html)
-- May 23 - [Target CEO sounds alarm on customer behavior](https://finance.yahoo.com/news/target-ceo-sounds-alarm-customer-163300071.html)
-- May 23 - [Scientists Discover New Dwarf Planet in Solar System, Far Beyond Pluto](https://www.yahoo.com/news/scientists-discover-dwarf-planet-solar-120047329.html)
+- May 23 - [Firefighters battle a large fire at a vacant hotel near Houston](https://www.yahoo.com/news/firefighters-battle-large-fire-vacant-175704041.html)
+- May 23 - [Here's why Apple can't make an iPhone in the US — no matter what Trump says](https://finance.yahoo.com/news/apple-spent-many-years-billions-100101848.html)
+- May 23 - [Here Are 20 Of The Funniest Pet Posts On The Internet From Last Week](https://www.yahoo.com/lifestyle/almost-tripped-over-hamsters-sofa-153047815.html)
+- May 23 - [Influencer who attended Trump’s memecoin dinner says he got a ‘Walmart steak’—and no access to the president](https://www.yahoo.com/news/influencer-attended-trump-memecoin-dinner-152144375.html)
 - May 23 - [A video of a woman using a transparent 'phone' went viral. But can it actually help curb your smartphone addiction?](https://www.yahoo.com/news/a-video-of-a-woman-using-a-transparent-phone-went-viral-but-can-it-actually-help-curb-your-smartphone-addiction-115328640.html)
-- May 23 - [Future queen of Belgium caught up in Harvard foreign student ban](https://www.yahoo.com/news/future-queen-belgium-caught-harvard-113027453.html)
 <!-- feed end -->
 
 ### Onstream
