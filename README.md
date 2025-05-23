@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Cecile Elstein obituary](https://www.yahoo.com/news/cecile-elstein-obituary-183119469.html)
+- May 23 - [Marjorie Taylor Greene Is Over Here Fighting With An AI About God](https://www.yahoo.com/news/marjorie-taylor-greene-over-fighting-194925873.html)
+- May 23 - [Georgia man who fled with the nanny after his wife's killing is charged with murder 19 years later](https://www.yahoo.com/news/georgia-man-fled-nanny-wifes-192932008.html)
+- May 23 - [South Brunswick man charged again with lewd acts on a college campus](https://www.yahoo.com/news/south-brunswick-man-charged-again-190615464.html)
+- May 23 - [Oracle to buy $40 billion of Nvidia chips for OpenAI's US data center, FT reports](https://finance.yahoo.com/news/oracle-buy-40-billion-nvidia-181443286.html)
 - May 23 - [Marjorie Taylor Greene picked a fight with Grok](https://finance.yahoo.com/news/marjorie-taylor-greene-picked-fight-180915138.html)
-- May 23 - [Mysterious boat anchors itself off Flagler Beach, officials investigate](https://www.yahoo.com/news/mysterious-boat-anchors-itself-off-170450115.html)
-- May 23 - [Here Are 20 Of The Funniest Pet Posts On The Internet From Last Week](https://www.yahoo.com/lifestyle/almost-tripped-over-hamsters-sofa-153047815.html)
-- May 23 - [Influencer who attended Trump’s memecoin dinner says he got a ‘Walmart steak’—and no access to the president](https://www.yahoo.com/news/influencer-attended-trump-memecoin-dinner-152144375.html)
 <!-- feed end -->
 
 ### Onstream
