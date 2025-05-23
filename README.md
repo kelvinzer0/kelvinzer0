@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [The curious case of Biden’s missed cancer diagnosis](https://www.yahoo.com/news/curious-case-biden-missed-cancer-060000364.html)
-- May 23 - [DeepRoute.ai CEO on Growth of EV AI Software](https://finance.yahoo.com/video/deeproute-ai-ceo-growth-ev-054446998.html)
+- May 23 - [Chiquita Panama lays off thousands of striking banana workers](https://finance.yahoo.com/news/chiquita-panama-lays-off-thousands-063937966.html)
 - May 23 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
 - May 23 - [North Korea denies warship was severely damaged as full investigation underway on its failed launch](https://www.yahoo.com/news/north-korea-vows-arrest-those-015745106.html)
 - May 23 - [Famous Drummer Among Those Killed In Private Jet Crash](https://www.yahoo.com/news/famous-drummer-among-those-killed-001547628.html)
+- May 22 - [Pilot expressed concerns about weather before San Diego plane crash](https://www.yahoo.com/news/pilot-expressed-concerns-weather-san-234710315.html)
 <!-- feed end -->
 
 ### Onstream
