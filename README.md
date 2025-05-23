@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Chiquita Panama lays off thousands of striking banana workers](https://finance.yahoo.com/news/chiquita-panama-lays-off-thousands-063937966.html)
+- May 23 - [Tariff crossfire hits Toyota, Nissan, Ford suppliers in Japan](https://finance.yahoo.com/news/tariff-crossfire-hits-toyota-nissan-023207661.html)
 - May 23 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
-- May 23 - [North Korea denies warship was severely damaged as full investigation underway on its failed launch](https://www.yahoo.com/news/north-korea-vows-arrest-those-015745106.html)
 - May 23 - [Famous Drummer Among Those Killed In Private Jet Crash](https://www.yahoo.com/news/famous-drummer-among-those-killed-001547628.html)
-- May 22 - [Pilot expressed concerns about weather before San Diego plane crash](https://www.yahoo.com/news/pilot-expressed-concerns-weather-san-234710315.html)
+- May 22 - [Trump says autism ‘has to be artificially induced’](https://www.yahoo.com/news/trump-says-autism-artificially-induced-220900467.html)
+- May 22 - ["This Is A Sad Day For America" — MAGA Supporters Have A LOT To Say About Trump's "Big, Beautiful" Tax Bill, And It's Not What I Was Expecting](https://www.yahoo.com/news/sad-day-america-maga-supporters-212731345.html)
 <!-- feed end -->
 
 ### Onstream
