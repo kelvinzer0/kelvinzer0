@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Ofgem confirms 7% drop in prices](https://www.yahoo.com/news/ofgem-confirms-7-drop-prices-083904585.html)
-- May 23 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
-- May 23 - [North Korean leader furious over failed destroyer launch, vows to arrest those responsible](https://www.yahoo.com/news/north-korea-vows-arrest-those-015745106.html)
-- May 23 - [Famous Drummer Among Those Killed In Private Jet Crash](https://www.yahoo.com/news/famous-drummer-among-those-killed-001547628.html)
-- May 22 - [Penn State closing seven satellite campuses](https://www.yahoo.com/news/penn-state-closing-seven-satellite-232735261.html)
+- May 23 - [AP PHOTOS: Displaced Chagos islanders fear they will never go home after a UK-Mauritius deal](https://www.yahoo.com/news/ap-photos-displaced-chagos-islanders-104620788.html)
+- May 23 - [Record floodwaters in eastern Australia leave four dead, one missing](https://www.yahoo.com/news/record-floodwaters-eastern-australia-leave-101422692.html)
+- May 23 - [This Healthy High-Yielding Dividend Stock Just Increased Its Payment for the 48th Year in a Row](https://finance.yahoo.com/news/healthy-high-yielding-dividend-stock-095000144.html)
+- May 23 - [‘Uh-Huh’: Karoline Leavitt Stuns Critics On Social Media With Trump ‘Hatred’ Claim](https://www.yahoo.com/news/uh-huh-karoline-leavitt-stuns-092137078.html)
+- May 23 - [Russia's sanctioned tanker group Sovcomflot plunges to $393 million loss](https://finance.yahoo.com/news/russias-sovcomflot-posted-net-loss-072117053.html)
 <!-- feed end -->
 
 ### Onstream
