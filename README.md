@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Marjorie Taylor Greene Is Over Here Fighting With An AI About God](https://www.yahoo.com/news/marjorie-taylor-greene-over-fighting-194925873.html)
+- May 23 - [The surging bond market's flashing warning signs: What to know](https://finance.yahoo.com/video/surging-bond-markets-flashing-warning-203952148.html)
+- May 23 - [Boeing reaches deal with DOJ, avoids 737 Max prosecution](https://finance.yahoo.com/video/boeing-reaches-deal-doj-avoids-193856762.html)
 - May 23 - [Georgia man who fled with the nanny after his wife's killing is charged with murder 19 years later](https://www.yahoo.com/news/georgia-man-fled-nanny-wifes-192932008.html)
-- May 23 - [South Brunswick man charged again with lewd acts on a college campus](https://www.yahoo.com/news/south-brunswick-man-charged-again-190615464.html)
-- May 23 - [Oracle to buy $40 billion of Nvidia chips for OpenAI's US data center, FT reports](https://finance.yahoo.com/news/oracle-buy-40-billion-nvidia-181443286.html)
+- May 23 - [Titanic Submersible: New Clip Reveals Implosion Before Final Message](https://www.yahoo.com/news/titanic-submersible-clip-reveals-implosion-184009336.html)
 - May 23 - [Marjorie Taylor Greene picked a fight with Grok](https://finance.yahoo.com/news/marjorie-taylor-greene-picked-fight-180915138.html)
 <!-- feed end -->
 
