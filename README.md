@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 23 - [Famous Drummer Among Those Killed In Private Jet Crash](https://www.yahoo.com/news/famous-drummer-among-those-killed-001547628.html)
+- May 22 - [Trump says autism ‘has to be artificially induced’](https://www.yahoo.com/news/trump-says-autism-artificially-induced-220900467.html)
+- May 22 - [Supreme Court walls off Fed from Trump firings](https://finance.yahoo.com/news/supreme-court-walls-off-fed-from-trump-firings-220258175.html)
+- May 22 - ["This Is A Sad Day For America" — MAGA Supporters Have A LOT To Say About Trump's "Big, Beautiful" Tax Bill, And It's Not What I Was Expecting](https://www.yahoo.com/news/sad-day-america-maga-supporters-212731345.html)
 - May 22 - [Health savings accounts are poised to get a big boost in Trump's tax package](https://finance.yahoo.com/news/health-savings-accounts-are-poised-to-get-a-big-boost-in-trumps-tax-package-212059514.html)
-- May 22 - [CNM breaks ground on transportation technology center](https://tech.yahoo.com/transportation/articles/cnm-breaks-ground-transportation-technology-201554598.html)
-- May 22 - [Applebee's restaurant, Subway sandwich shop permanently close in Gainesville](https://www.yahoo.com/news/applebees-restaurant-subway-sandwich-shop-200138372.html)
-- May 22 - [Trump's image of dead 'white farmers' came from Reuters footage in Congo, not South Africa](https://www.yahoo.com/news/trumps-image-dead-white-farmers-195418859.html)
-- May 22 - [Florida court awards Mexican government massive civil judgment against former security chief](https://www.yahoo.com/news/florida-court-awards-mexican-government-195322638.html)
 <!-- feed end -->
 
 ### Onstream
