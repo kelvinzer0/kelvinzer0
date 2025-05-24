@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [I'm Extremely Worried That The Entire World Is Getting Dumber And Dumber And These 29 People Are All The Proof I Need](https://www.yahoo.com/lifestyle/im-extremely-worried-entire-world-113233463.html)
-- May 24 - [Opinion | Why Trump’s triple-down on attacking Harvard is meeting trouble in court](https://www.yahoo.com/news/opinion-why-trump-triple-down-100000999.html)
+- May 24 - [El Paso police investigate shooting in far East Side neighborhood](https://www.yahoo.com/news/el-paso-police-investigate-shooting-125530095.html)
+- May 24 - ['Rampant, rapacious corruption': Trump charges $1 million a pop for club memberships](https://www.yahoo.com/news/rampant-rapacious-corruption-trump-charges-122052764.html)
+- May 24 - [Chicago couple locked out of their home for a month after a strange woman moved in with her family and pet dog](https://www.yahoo.com/news/chicago-couple-locked-home-month-093000560.html)
 - May 24 - [Hundreds of billionaires pledged to give away $600 billion to charity—but the Bill Gates and Warren Buffett era of philanthropy may be over](https://www.yahoo.com/news/hundreds-billionaires-pledged-away-600-090300319.html)
-- May 24 - [Israeli use of human shields in Gaza was systematic, soldiers and former detainees tell the AP](https://www.yahoo.com/news/israeli-soldiers-former-detainees-tell-051446713.html)
-- May 23 - [Nancy Pelosi Reveals Top Dem She Thinks Will Run in 2028](https://www.yahoo.com/news/nancy-pelosi-reveals-top-dem-222754601.html)
+- May 24 - [President Donald Trump Wants to Give Half of All Social Security Retirees a Raise -- but It Can Backfire](https://www.yahoo.com/news/president-donald-trump-wants-half-074400484.html)
 <!-- feed end -->
 
 ### Onstream
