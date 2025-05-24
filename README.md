@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 24 - [Cartel leader with $1 million U.S. bounty on his head killed in Mexico](https://www.yahoo.com/news/cartel-leader-1-million-u-213222783.html)
+- May 24 - [Maryland father mistakenly deported to Salvadoran prison really did flee to avoid MS-13 gang, his teacher and a classmate said](https://www.yahoo.com/news/maryland-father-mistakenly-deported-salvadoran-211432915.html)
 - May 24 - [Trump gives rambling speech about trophy wives, golf and the ‘great late’ Al Capone in politically-charged West Point address](https://www.yahoo.com/news/trump-gives-rambling-speech-trophy-171502635.html)
-- May 24 - [Anglo-Saxons buried a mysterious vessel over a millennia ago. Archaeologists discovered its contents](https://www.yahoo.com/news/mysterious-sixth-century-vessel-sutton-113050408.html)
-- May 24 - [Identities Revealed for All 6 People Who Died After a Private Plane Crashed into a San Diego Neighborhood](https://www.yahoo.com/news/identities-revealed-6-people-died-144341542.html)
-- May 24 - [Archaeologists Found a 5,000-Year-Old Tomb That May Be a Gateway to a Prehistoric Kingdom](https://www.yahoo.com/news/archaeologists-found-5-000-old-135400980.html)
-- May 24 - [Nvidia earnings: Options plays ahead of the results](https://finance.yahoo.com/video/nvidia-earnings-options-plays-ahead-115921970.html)
+- May 24 - [Beloved Fast Food Chain Makes Telling Move After Closing Hundreds of Locations](https://finance.yahoo.com/news/beloved-fast-food-chain-makes-195841359.html)
+- May 24 - [Fire investigators suspect arson after blaze guts former Lubbock elementary school gym](https://www.yahoo.com/news/fire-investigators-suspect-arson-blaze-182134820.html)
 <!-- feed end -->
 
 ### Onstream
