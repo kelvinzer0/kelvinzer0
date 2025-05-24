@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Nvidia earnings, Fed Chair Powell, April PCE: What to Watch](https://finance.yahoo.com/video/nvidia-earnings-fed-chair-powell-230036154.html)
-- May 23 - [Elon Musk Wants The US Government To Hang Up The Phone: 'Government Is Wasting About $100 Million Per Year On Unused Phone Lines'](https://finance.yahoo.com/news/elon-musk-wants-us-government-213117380.html)
+- May 24 - [Congressmen clean Vietnam memorial to honor fallen](https://www.yahoo.com/news/congressmen-clean-vietnam-memorial-honor-001312629.html)
+- May 23 - [Robert Kiyosaki Says US Heading for 'Greater Depression' But You Can Become 'Very Rich Person' In This Crisis If You Do This](https://finance.yahoo.com/news/robert-kiyosaki-says-us-heading-230050498.html)
+- May 23 - [All six people on plane that crashed in San Diego confirmed dead](https://www.yahoo.com/news/six-people-aboard-plane-crashed-203918199.html)
 - May 23 - [F-15E Spotted Packing Big Laser-Guided Rocket Arsenal Ideal For Drone Hunting](https://www.yahoo.com/news/f-15e-spotted-packing-big-201717901.html)
-- May 23 - [KTLA 5 crew encounters man armed with guns outside Pasadena Apple store](https://www.yahoo.com/news/ktla-crew-approached-man-armed-184736762.html)
-- May 23 - [Titanic Submersible: New Clip Reveals Implosion Before Final Message](https://www.yahoo.com/news/titanic-submersible-clip-reveals-implosion-184009336.html)
+- May 23 - [Georgia man who fled with the nanny after his wife's killing is charged with murder 19 years later](https://www.yahoo.com/news/georgia-man-fled-nanny-wifes-192932008.html)
 <!-- feed end -->
 
 ### Onstream
