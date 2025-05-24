@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 24 - [Chicago couple locked out of their home for a month after a strange woman moved in with her family and pet dog](https://www.yahoo.com/news/chicago-couple-locked-home-month-093000560.html)
 - May 24 - [Israeli soldiers and former detainees tell AP Israel's use of human shields in Gaza is widespread](https://www.yahoo.com/news/israeli-soldiers-former-detainees-tell-051446713.html)
+- May 24 - [Multiple injured after tree falls during Diablo Valley College graduation](https://www.yahoo.com/news/multiple-injured-tree-falls-during-032112693.html)
 - May 23 - [Nancy Pelosi Reveals Top Dem She Thinks Will Run in 2028](https://www.yahoo.com/news/nancy-pelosi-reveals-top-dem-222754601.html)
-- May 23 - [Man, 68, Gets Treated for Constipation and Dies a Month Later: 'He Didn't Get to Enjoy One Day of Retirement'](https://www.yahoo.com/news/man-68-gets-treated-constipation-211212695.html)
-- May 23 - [Georgia man who fled with the nanny after his wife's killing is charged with murder 19 years later](https://www.yahoo.com/news/georgia-man-fled-nanny-wifes-192932008.html)
-- May 23 - [KTLA 5 crew encounters man armed with guns outside Pasadena Apple store](https://www.yahoo.com/news/ktla-crew-approached-man-armed-184736762.html)
+- May 23 - [U.S. citizen with REAL ID handcuffed and held in immigration raid before being released](https://www.yahoo.com/news/u-citizen-real-id-handcuffed-214202859.html)
 <!-- feed end -->
 
 ### Onstream
