@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Cartel leader with $1 million U.S. bounty on his head killed in Mexico](https://www.yahoo.com/news/cartel-leader-1-million-u-213222783.html)
-- May 24 - [Maryland father mistakenly deported to Salvadoran prison really did flee to avoid MS-13 gang, his teacher and a classmate said](https://www.yahoo.com/news/maryland-father-mistakenly-deported-salvadoran-211432915.html)
+- May 24 - [The 1956 General Motors Firebird II Had An Engine That Reached 35,000 RPM](https://autos.yahoo.com/1956-general-motors-firebird-ii-215500791.html)
 - May 24 - [Trump gives rambling speech about trophy wives, golf and the ‘great late’ Al Capone in politically-charged West Point address](https://www.yahoo.com/news/trump-gives-rambling-speech-trophy-171502635.html)
-- May 24 - [Beloved Fast Food Chain Makes Telling Move After Closing Hundreds of Locations](https://finance.yahoo.com/news/beloved-fast-food-chain-makes-195841359.html)
-- May 24 - [Fire investigators suspect arson after blaze guts former Lubbock elementary school gym](https://www.yahoo.com/news/fire-investigators-suspect-arson-blaze-182134820.html)
+- May 24 - [Officer who arrested Georgia teen that was detained by ICE resigns](https://www.yahoo.com/news/officer-arrested-georgia-teen-detained-211949030.html)
+- May 24 - [These Heavily Armored Helicopters Were Pitched To The Army During The Cold War](https://www.yahoo.com/news/heavily-armored-helicopters-were-pitched-202128179.html)
+- May 24 - [Mark Zuckerberg Once Vented Why Apple AirPods Have No Competition: 'One Of The Protocols That They Used...'](https://finance.yahoo.com/news/mark-zuckerberg-once-vented-why-180123210.html)
 <!-- feed end -->
 
 ### Onstream
