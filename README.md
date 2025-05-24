@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Fear and anger in New Orleans turn to calls for action over jail escape: 'Get it together'](https://www.yahoo.com/news/fear-anger-orleans-turn-calls-100321684.html)
-- May 24 - [Israeli soldiers and former detainees tell AP Israel's use of human shields in Gaza is widespread](https://www.yahoo.com/news/israeli-soldiers-former-detainees-tell-051446713.html)
-- May 24 - [Arizona Lottery Mega Millions, Pick 3 results for May 23, 2025](https://www.yahoo.com/news/arizona-lottery-mega-millions-pick-041003606.html)
-- May 24 - [Multiple injured after tree falls during Diablo Valley College graduation](https://www.yahoo.com/news/multiple-injured-tree-falls-during-032112693.html)
+- May 24 - [I'm Extremely Worried That The Entire World Is Getting Dumber And Dumber And These 29 People Are All The Proof I Need](https://www.yahoo.com/lifestyle/im-extremely-worried-entire-world-113233463.html)
+- May 24 - [Opinion | Why Trump’s triple-down on attacking Harvard is meeting trouble in court](https://www.yahoo.com/news/opinion-why-trump-triple-down-100000999.html)
+- May 24 - [Hundreds of billionaires pledged to give away $600 billion to charity—but the Bill Gates and Warren Buffett era of philanthropy may be over](https://www.yahoo.com/news/hundreds-billionaires-pledged-away-600-090300319.html)
+- May 24 - [Israeli use of human shields in Gaza was systematic, soldiers and former detainees tell the AP](https://www.yahoo.com/news/israeli-soldiers-former-detainees-tell-051446713.html)
 - May 23 - [Nancy Pelosi Reveals Top Dem She Thinks Will Run in 2028](https://www.yahoo.com/news/nancy-pelosi-reveals-top-dem-222754601.html)
 <!-- feed end -->
 
