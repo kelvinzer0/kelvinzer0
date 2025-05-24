@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Robert Kiyosaki Says US Heading for 'Greater Depression' But You Can Become 'Very Rich Person' In This Crisis If You Do This](https://finance.yahoo.com/news/robert-kiyosaki-says-us-heading-230050498.html)
-- May 23 - [Las Vegas police bust couple in ‘massive’ $57M fraud scheme](https://www.yahoo.com/news/las-vegas-police-bust-couple-220932357.html)
-- May 23 - [Elon Musk Wants The US Government To Hang Up The Phone: 'Government Is Wasting About $100 Million Per Year On Unused Phone Lines'](https://finance.yahoo.com/news/elon-musk-wants-us-government-213117380.html)
+- May 23 - [Nvidia earnings, Fed Chair Powell, April PCE: What to Watch](https://finance.yahoo.com/video/nvidia-earnings-fed-chair-powell-230036154.html)
+- May 23 - [Nancy Pelosi Reveals Top Dem She Thinks Will Run in 2028](https://www.yahoo.com/news/nancy-pelosi-reveals-top-dem-222754601.html)
 - May 23 - [Man, 68, Gets Treated for Constipation and Dies a Month Later: 'He Didn't Get to Enjoy One Day of Retirement'](https://www.yahoo.com/news/man-68-gets-treated-constipation-211212695.html)
-- May 23 - [Former Mayo Clinic doctor arrested after road rage incident over cheese prank: SJSO](https://www.yahoo.com/news/former-mayo-clinic-doctor-arrested-205147159.html)
+- May 23 - [All six people on plane that crashed in San Diego confirmed dead](https://www.yahoo.com/news/six-people-aboard-plane-crashed-203918199.html)
+- May 23 - [Georgia man who fled with the nanny after his wife's killing is charged with murder 19 years later](https://www.yahoo.com/news/georgia-man-fled-nanny-wifes-192932008.html)
 <!-- feed end -->
 
 ### Onstream
