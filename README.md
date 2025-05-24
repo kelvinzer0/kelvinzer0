@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Harvard Professor Reveals Stunning Advice He Gave Student Amid Trump Battle](https://www.yahoo.com/news/harvard-professor-reveals-stunning-advice-050940986.html)
-- May 23 - [Nvidia earnings, Fed Chair Powell, April PCE: What to Watch](https://finance.yahoo.com/video/nvidia-earnings-fed-chair-powell-230036154.html)
+- May 24 - [Israeli soldiers and former detainees tell AP Israel's use of human shields in Gaza is widespread](https://www.yahoo.com/news/israeli-soldiers-former-detainees-tell-051446713.html)
 - May 23 - [Nancy Pelosi Reveals Top Dem She Thinks Will Run in 2028](https://www.yahoo.com/news/nancy-pelosi-reveals-top-dem-222754601.html)
-- May 23 - [Las Vegas police bust couple in ‘massive’ $57M fraud scheme](https://www.yahoo.com/news/las-vegas-police-bust-couple-220932357.html)
 - May 23 - [U.S. citizen with REAL ID handcuffed and held in immigration raid before being released](https://www.yahoo.com/news/u-citizen-real-id-handcuffed-214202859.html)
+- May 23 - [Man, 68, Gets Treated for Constipation and Dies a Month Later: 'He Didn't Get to Enjoy One Day of Retirement'](https://www.yahoo.com/news/man-68-gets-treated-constipation-211212695.html)
+- May 23 - [Georgia man who fled with the nanny after his wife's killing is charged with murder 19 years later](https://www.yahoo.com/news/georgia-man-fled-nanny-wifes-192932008.html)
 <!-- feed end -->
 
 ### Onstream
