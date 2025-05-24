@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Chicago couple locked out of their home for a month after a strange woman moved in with her family and pet dog](https://www.yahoo.com/news/chicago-couple-locked-home-month-093000560.html)
+- May 24 - [Fear and anger in New Orleans turn to calls for action over jail escape: 'Get it together'](https://www.yahoo.com/news/fear-anger-orleans-turn-calls-100321684.html)
 - May 24 - [Israeli soldiers and former detainees tell AP Israel's use of human shields in Gaza is widespread](https://www.yahoo.com/news/israeli-soldiers-former-detainees-tell-051446713.html)
+- May 24 - [Arizona Lottery Mega Millions, Pick 3 results for May 23, 2025](https://www.yahoo.com/news/arizona-lottery-mega-millions-pick-041003606.html)
 - May 24 - [Multiple injured after tree falls during Diablo Valley College graduation](https://www.yahoo.com/news/multiple-injured-tree-falls-during-032112693.html)
 - May 23 - [Nancy Pelosi Reveals Top Dem She Thinks Will Run in 2028](https://www.yahoo.com/news/nancy-pelosi-reveals-top-dem-222754601.html)
-- May 23 - [U.S. citizen with REAL ID handcuffed and held in immigration raid before being released](https://www.yahoo.com/news/u-citizen-real-id-handcuffed-214202859.html)
 <!-- feed end -->
 
 ### Onstream
