@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 24 - [Trump gives rambling speech about trophy wives, golf and the ‘great late’ Al Capone in politically-charged West Point address](https://www.yahoo.com/news/trump-gives-rambling-speech-trophy-171502635.html)
-- May 24 - [United Airlines Announces New Check-In Rule Starting on June 3](https://www.yahoo.com/lifestyle/united-airlines-announces-check-rule-165058450.html)
-- May 24 - [15 Fall-On-The-Ground Laughing Signs That Will Get This Long Weekend Started Off Right](https://www.yahoo.com/lifestyle/15-fall-ground-laughing-signs-151845989.html)
 - May 24 - [Anglo-Saxons buried a mysterious vessel over a millennia ago. Archaeologists discovered its contents](https://www.yahoo.com/news/mysterious-sixth-century-vessel-sutton-113050408.html)
 - May 24 - [Identities Revealed for All 6 People Who Died After a Private Plane Crashed into a San Diego Neighborhood](https://www.yahoo.com/news/identities-revealed-6-people-died-144341542.html)
+- May 24 - [Archaeologists Found a 5,000-Year-Old Tomb That May Be a Gateway to a Prehistoric Kingdom](https://www.yahoo.com/news/archaeologists-found-5-000-old-135400980.html)
+- May 24 - [Nvidia earnings: Options plays ahead of the results](https://finance.yahoo.com/video/nvidia-earnings-options-plays-ahead-115921970.html)
 <!-- feed end -->
 
 ### Onstream
