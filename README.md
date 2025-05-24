@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [A fungi that can ‘eat you from the inside out’ could spread as the world heats up](https://www.yahoo.com/news/fungi-eat-inside-could-spread-110052871.html)
-- May 24 - [Bitcoin Shatters $110,000, XRP, Dogecoin, Ethereum Surge: 'Bulls Emerge Victorious,' Trader Concludes](https://finance.yahoo.com/news/bitcoin-shatters-110-000-xrp-104540795.html)
-- May 24 - [Hundreds of billionaires pledged to give away $600 billion to charity—but the Bill Gates and Warren Buffett era of philanthropy may be over](https://www.yahoo.com/news/hundreds-billionaires-pledged-away-600-090300319.html)
-- May 24 - [President Donald Trump Wants to Give Half of All Social Security Retirees a Raise -- but It Can Backfire](https://www.yahoo.com/news/president-donald-trump-wants-half-074400484.html)
-- May 24 - [Israeli use of human shields in Gaza was systematic, soldiers and former detainees tell the AP](https://www.yahoo.com/news/israeli-soldiers-former-detainees-tell-051446713.html)
+- May 24 - [Nine of a doctor's 10 children are killed in Israel's latest strikes in Gaza](https://www.yahoo.com/news/nine-doctors-10-children-killed-144839325.html)
+- May 24 - [Russia and Ukraine swap hundreds more prisoners in second day of major exchange](https://www.yahoo.com/news/russia-ukraine-swap-hundreds-more-134108045.html)
+- May 24 - ['Rampant, rapacious corruption': Trump charges $1 million a pop for club memberships](https://www.yahoo.com/news/rampant-rapacious-corruption-trump-charges-122052764.html)
+- May 24 - [Are boiled eggs good for you? Here's what experts have to say.](https://www.yahoo.com/lifestyle/boiled-eggs-good-heres-experts-100044909.html)
+- May 24 - [Mortgage and refinance interest rates today, May 24, 2025: A surprise move downward](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-saturday-may-24-2025-100032587.html)
 <!-- feed end -->
 
 ### Onstream
