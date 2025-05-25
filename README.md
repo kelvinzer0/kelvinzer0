@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [Indonesian president and Chinese premier meet to discuss expanding trade during US trade war](https://www.yahoo.com/news/indonesian-president-chinese-premier-meet-035418327.html)
 - May 24 - [Texas woman sues state lottery after not receiving controversial $83.5M jackpot](https://www.yahoo.com/news/texas-woman-sues-state-lottery-233334905.html)
 - May 24 - [Cancer Patients Reveal The Symptom That Made Them Think Something Might Be Wrong](https://www.yahoo.com/lifestyle/cancer-patients-reveal-symptom-made-233103112.html)
+- May 24 - [Anglo-Saxons buried a mysterious vessel over a millennium ago. Archaeologists discovered its contents](https://www.yahoo.com/news/mysterious-sixth-century-vessel-sutton-113050408.html)
 - May 24 - [North Korea detains officials over warship accident, state media says](https://www.yahoo.com/news/north-korea-detains-officials-over-221115661.html)
-- May 24 - [Officer who arrested Georgia teen that was detained by ICE resigns](https://www.yahoo.com/news/officer-arrested-georgia-teen-detained-211949030.html)
-- May 24 - [Pattern emerges in tropics for first time in more than 20 years](https://www.yahoo.com/news/pattern-emerges-tropics-first-time-185622869.html)
 <!-- feed end -->
 
 ### Onstream
