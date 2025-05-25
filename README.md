@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [The American ‘revenge travel’ surge is over. Fear and uncertainty are big factors](https://www.yahoo.com/news/american-revenge-travel-surge-over-120050669.html)
 - May 25 - [The investing 'rulebook' has changed, portfolio manager says](https://finance.yahoo.com/video/investing-rulebook-changed-portfolio-manager-120046914.html)
-- May 25 - [Flood-hit Australians overjoyed as calf returns mid-interview](https://www.yahoo.com/news/flood-hit-australians-overjoyed-calf-113533117.html)
-- May 25 - [Milwaukee man’s car stolen by thieves using a reprogrammed key fob — what to know about this alarming trend](https://www.yahoo.com/news/milwaukee-man-car-stolen-thieves-113200113.html)
 - May 25 - [King's invite to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
-- May 25 - [‘I was in my own home’: This Florida woman fought back when her property manager tried to evict her — and won](https://www.yahoo.com/news/own-home-florida-woman-fought-093000482.html)
+- May 25 - [Scientists stunned after stumbling upon creature rarely seen in over a century: 'This raises a few questions'](https://www.yahoo.com/news/scientists-stunned-stumbling-upon-creature-103054893.html)
+- May 25 - [‘Our people hire our people’: Long before DOJ probe into Mayor Brandon Johnson, racial politics coursed through City Hall hiring](https://www.yahoo.com/news/people-hire-people-long-doj-100000120.html)
 <!-- feed end -->
 
 ### Onstream
