@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Archbishop criticizes Argentine President Milei's austerity policies during religious ceremony](https://www.yahoo.com/news/archbishop-criticizes-argentine-president-mileis-181034866.html)
-- May 25 - [A 29-year-old entrepreneur's side hustle brought in $40 million in a year. Now she wants to help other 'uninvestable' women.](https://finance.yahoo.com/news/29-old-entrepreneurs-side-hustle-172701389.html)
-- May 25 - [I-80 chase concludes after officer involved shooting](https://www.yahoo.com/news/80-chase-concludes-officer-involved-164053052.html)
-- May 25 - [After firing Mark Johnson, News 5 Cleveland adds meteorologist Frank Marzullo](https://www.yahoo.com/news/firing-mark-johnson-news-5-160822646.html)
+- May 25 - [Scientists Are Studying a Mysterious Metal Sphere They Believe to Be a UFO: 'I’ve Never Seen a Piece Like This'](https://www.yahoo.com/news/scientists-studying-mysterious-metal-sphere-183016346.html)
+- May 25 - [German chief of defence orders swift expansion of warfare capabilities](https://www.yahoo.com/news/german-chief-defence-orders-swift-160602351.html)
+- May 25 - [GOP senator hits Trump tax bill, says there are 'enough' Republican votes to 'stop the process'](https://www.yahoo.com/news/gop-senator-hits-trump-tax-154800954.html)
 - May 25 - [Scottish drivers ‘used as cash cow’ while fly-tippers escape fines](https://www.yahoo.com/news/scottish-drivers-used-cash-cow-154641548.html)
+- May 25 - [Pope Leo XIV declares 'I am Roman!' as he completes formalities to become bishop of Rome](https://www.yahoo.com/news/pope-leo-xiv-declares-am-152617736.html)
 <!-- feed end -->
 
 ### Onstream
