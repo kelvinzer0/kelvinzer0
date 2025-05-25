@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Firefighters battle flames in Odesa as Russia launches another aerial attack](https://www.yahoo.com/news/firefighters-battle-flames-odesa-russia-053624342.html)
-- May 25 - [Taco Fest shut down early after fights, reopens Sunday under new guidelines](https://www.yahoo.com/news/taco-fest-shut-down-early-020758907.html)
+- May 25 - [Buy This Outstanding Dividend Stock While It's Down](https://finance.yahoo.com/news/buy-outstanding-dividend-stock-while-075100043.html)
+- May 25 - [Damage in Kyiv region and Mykolaiv after deadly Russian drone and missile attack](https://www.yahoo.com/news/damage-kyiv-region-mykolaiv-deadly-072830715.html)
+- May 24 - [Texas woman sues state lottery after not receiving controversial $83.5M jackpot](https://www.yahoo.com/news/texas-woman-sues-state-lottery-233334905.html)
 - May 24 - [King's invite to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
-- May 24 - [Cancer Patients Reveal The Symptom That Made Them Think Something Might Be Wrong](https://www.yahoo.com/lifestyle/cancer-patients-reveal-symptom-made-233103112.html)
-- May 24 - [North Korea detains officials over warship accident, state media says](https://www.yahoo.com/news/north-korea-detains-officials-over-221115661.html)
+- May 24 - [Sedgwick County added to flood watch; here is when and how much more rain is coming](https://www.yahoo.com/news/sedgwick-county-added-flood-watch-222400394.html)
 <!-- feed end -->
 
 ### Onstream
