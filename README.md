@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 25 - [Injured Sea Turtle Reveals Secret In CT Scan](https://www.yahoo.com/news/injured-sea-turtle-reveals-secret-184557211.html)
 - May 25 - [Rwanda’s dictator gambles future on Congo invasion](https://www.yahoo.com/news/rwanda-dictator-gambles-future-congo-183912263.html)
+- May 25 - [Judge Luttig: Trump’s war the judiciary could see "catastrophic end"](https://www.yahoo.com/news/judge-luttig-trump-war-judiciary-175050479.html)
 - May 25 - [Students drop claim of Israeli genocide in Gaza](https://www.yahoo.com/news/students-drop-claim-israeli-genocide-174517606.html)
-- May 25 - [German chief of defence orders swift expansion of warfare capabilities](https://www.yahoo.com/news/german-chief-defence-orders-swift-160602351.html)
-- May 25 - [Scottish drivers ‘used as cash cow’ while fly-tippers escape fines](https://www.yahoo.com/news/scottish-drivers-used-cash-cow-154641548.html)
+- May 25 - [A 29-year-old entrepreneur's side hustle brought in $40 million in a year. Now she wants to help other 'uninvestable' women.](https://finance.yahoo.com/news/29-old-entrepreneurs-side-hustle-172701389.html)
 <!-- feed end -->
 
 ### Onstream
