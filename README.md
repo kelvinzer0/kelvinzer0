@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Spain hosts European, Arab nations to pressure Israel on Gaza](https://www.yahoo.com/news/spain-hosts-european-arab-nations-162831734.html)
-- May 25 - [GOP senator hits Trump tax bill, says there are 'enough' Republican votes to 'stop the process'](https://www.yahoo.com/news/gop-senator-hits-trump-tax-154800954.html)
+- May 25 - [Archbishop criticizes Argentine President Milei's austerity policies during religious ceremony](https://www.yahoo.com/news/archbishop-criticizes-argentine-president-mileis-181034866.html)
+- May 25 - [A 29-year-old entrepreneur's side hustle brought in $40 million in a year. Now she wants to help other 'uninvestable' women.](https://finance.yahoo.com/news/29-old-entrepreneurs-side-hustle-172701389.html)
+- May 25 - [I-80 chase concludes after officer involved shooting](https://www.yahoo.com/news/80-chase-concludes-officer-involved-164053052.html)
+- May 25 - [After firing Mark Johnson, News 5 Cleveland adds meteorologist Frank Marzullo](https://www.yahoo.com/news/firing-mark-johnson-news-5-160822646.html)
 - May 25 - [Scottish drivers ‘used as cash cow’ while fly-tippers escape fines](https://www.yahoo.com/news/scottish-drivers-used-cash-cow-154641548.html)
-- May 25 - [Teenager in critical condition after a mother and three of her children die in London fire](https://www.yahoo.com/news/teenager-critical-condition-mother-three-153425081.html)
-- May 25 - [Mysterious gold stash found on hiking trail perplexes researchers](https://www.yahoo.com/news/mysterious-gold-stash-found-hiking-150050568.html)
 <!-- feed end -->
 
 ### Onstream
