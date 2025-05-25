@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Mass casualty incident declared at Black Bike Week concert in South Carolina: reports](https://www.yahoo.com/news/mass-casualty-incident-declared-black-130213589.html)
+- May 25 - [Developer proposes affordable Live Local Act townhomes in northwest Orange County](https://www.yahoo.com/news/developer-proposes-affordable-live-local-154118622.html)
+- May 25 - [Mysterious gold stash found on hiking trail perplexes researchers](https://www.yahoo.com/news/mysterious-gold-stash-found-hiking-150050568.html)
 - May 25 - [King's invitation to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
-- May 25 - [More than a third of Americans say they want an 'adventurous retirement'](https://finance.yahoo.com/news/more-than-a-third-of-americans-say-they-want-an-adventurous-retirement-143031267.html)
-- May 25 - [Farmers devastated as unprecedented event wipes out nearly all of key crop: 'I've never seen the blossoms freeze and die off like this'](https://www.yahoo.com/news/farmers-devastated-unprecedented-event-wipes-104525836.html)
-- May 25 - [Residents of village near Kyiv react after Russian attack hits their homes](https://www.yahoo.com/news/residents-village-near-kyiv-react-103415874.html)
+- May 25 - [Nvidia has lost its shock power to investors, for now](https://finance.yahoo.com/news/nvidia-has-lost-its-shock-power-to-investors-for-now-123045648.html)
+- May 25 - [The American ‘revenge travel’ surge is over. Fear and uncertainty are big factors](https://www.yahoo.com/news/american-revenge-travel-surge-over-120050669.html)
 <!-- feed end -->
 
 ### Onstream
