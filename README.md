@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [The American ‘revenge travel’ surge is over. Fear and uncertainty are big factors](https://www.yahoo.com/news/american-revenge-travel-surge-over-120050669.html)
-- May 25 - [The investing 'rulebook' has changed, portfolio manager says](https://finance.yahoo.com/video/investing-rulebook-changed-portfolio-manager-120046914.html)
-- May 25 - [King's invite to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
-- May 25 - [Scientists stunned after stumbling upon creature rarely seen in over a century: 'This raises a few questions'](https://www.yahoo.com/news/scientists-stunned-stumbling-upon-creature-103054893.html)
-- May 25 - [‘Our people hire our people’: Long before DOJ probe into Mayor Brandon Johnson, racial politics coursed through City Hall hiring](https://www.yahoo.com/news/people-hire-people-long-doj-100000120.html)
+- May 25 - [Delta Air Lines' 100th year takes flight](https://www.yahoo.com/news/delta-air-lines-100th-takes-135008255.html)
+- May 25 - [$600B AI Opportunity: Nvidia's 18,000-Chip Deal With Saudi Arabia's Humain Puts Middle East 'Front Of The Line,' Says Wedbush's Dan Ives](https://finance.yahoo.com/news/600b-ai-opportunity-nvidias-18-133048072.html)
+- May 25 - [Millions brace for severe weather in Memorial Day weekend travel](https://www.yahoo.com/news/millions-brace-severe-weather-memorial-122430319.html)
+- May 25 - [Coca-Cola unveils innovative 'reverse vending machines' that could be game-changers for consumers: 'Set a precedent'](https://www.yahoo.com/news/coca-cola-unveils-innovative-reverse-104539538.html)
+- May 25 - [Farmers devastated as unprecedented event wipes out nearly all of key crop: 'I've never seen the blossoms freeze and die off like this'](https://www.yahoo.com/news/farmers-devastated-unprecedented-event-wipes-104525836.html)
 <!-- feed end -->
 
 ### Onstream
