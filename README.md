@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [Israel solidarity walk in Toronto needed amid rising antisemitism, organizer says](https://www.yahoo.com/news/israel-solidarity-walk-toronto-needed-214740421.html)
+- May 25 - [Trump’s FDA chief suggests diabetics should take cooking classes under MAHA agenda](https://www.yahoo.com/news/trump-fda-chief-suggests-diabetics-212942736.html)
+- May 25 - [Flight from Tokyo diverted to Seattle after passenger tries to open exit door in flight](https://www.yahoo.com/news/flight-tokyo-diverted-seattle-passenger-211537229.html)
+- May 25 - [2 arrested after baby dies at an illegal day care in California, officials say](https://www.yahoo.com/news/2-arrested-baby-dies-illegal-202902724.html)
 - May 25 - [Injured Sea Turtle Reveals Secret In CT Scan](https://www.yahoo.com/news/injured-sea-turtle-reveals-secret-184557211.html)
-- May 25 - [Rwanda’s dictator gambles future on Congo invasion](https://www.yahoo.com/news/rwanda-dictator-gambles-future-congo-183912263.html)
-- May 25 - [Judge Luttig: Trump’s war the judiciary could see "catastrophic end"](https://www.yahoo.com/news/judge-luttig-trump-war-judiciary-175050479.html)
-- May 25 - [Students drop claim of Israeli genocide in Gaza](https://www.yahoo.com/news/students-drop-claim-israeli-genocide-174517606.html)
-- May 25 - [A 29-year-old entrepreneur's side hustle brought in $40 million in a year. Now she wants to help other 'uninvestable' women.](https://finance.yahoo.com/news/29-old-entrepreneurs-side-hustle-172701389.html)
 <!-- feed end -->
 
 ### Onstream
