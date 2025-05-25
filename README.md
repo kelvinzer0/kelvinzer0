@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [US special envoy praises Syrian leader's steps on foreign fighters](https://www.yahoo.com/news/us-special-envoy-praises-syrian-060618777.html)
-- May 25 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
+- May 25 - [Firefighters battle flames in Odesa as Russia launches another aerial attack](https://www.yahoo.com/news/firefighters-battle-flames-odesa-russia-053624342.html)
+- May 25 - [The boss who has found ‘nature’s answer to plastic’](https://uk.finance.yahoo.com/news/shellworks-plastic-microbes-environment-business-050024897.html)
+- May 24 - [Texas woman sues state lottery after not receiving controversial $83.5M jackpot](https://www.yahoo.com/news/texas-woman-sues-state-lottery-233334905.html)
 - May 24 - [Cancer Patients Reveal The Symptom That Made Them Think Something Might Be Wrong](https://www.yahoo.com/lifestyle/cancer-patients-reveal-symptom-made-233103112.html)
-- May 24 - [Humanitarian aid enters Gaza after 11-week blockade](https://www.yahoo.com/news/humanitarian-aid-enters-gaza-11-230143303.html)
 - May 24 - [North Korea detains officials over warship accident, state media says](https://www.yahoo.com/news/north-korea-detains-officials-over-221115661.html)
 <!-- feed end -->
 
