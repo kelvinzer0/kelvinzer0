@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Delta Air Lines' 100th year takes flight](https://www.yahoo.com/news/delta-air-lines-100th-takes-135008255.html)
-- May 25 - [$600B AI Opportunity: Nvidia's 18,000-Chip Deal With Saudi Arabia's Humain Puts Middle East 'Front Of The Line,' Says Wedbush's Dan Ives](https://finance.yahoo.com/news/600b-ai-opportunity-nvidias-18-133048072.html)
-- May 25 - [Millions brace for severe weather in Memorial Day weekend travel](https://www.yahoo.com/news/millions-brace-severe-weather-memorial-122430319.html)
-- May 25 - [Coca-Cola unveils innovative 'reverse vending machines' that could be game-changers for consumers: 'Set a precedent'](https://www.yahoo.com/news/coca-cola-unveils-innovative-reverse-104539538.html)
+- May 25 - [Mass casualty incident declared at Black Bike Week concert in South Carolina: reports](https://www.yahoo.com/news/mass-casualty-incident-declared-black-130213589.html)
+- May 25 - [King's invitation to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
+- May 25 - [More than a third of Americans say they want an 'adventurous retirement'](https://finance.yahoo.com/news/more-than-a-third-of-americans-say-they-want-an-adventurous-retirement-143031267.html)
 - May 25 - [Farmers devastated as unprecedented event wipes out nearly all of key crop: 'I've never seen the blossoms freeze and die off like this'](https://www.yahoo.com/news/farmers-devastated-unprecedented-event-wipes-104525836.html)
+- May 25 - [Residents of village near Kyiv react after Russian attack hits their homes](https://www.yahoo.com/news/residents-village-near-kyiv-react-103415874.html)
 <!-- feed end -->
 
 ### Onstream
