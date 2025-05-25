@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Scientists Are Studying a Mysterious Metal Sphere They Believe to Be a UFO: 'I’ve Never Seen a Piece Like This'](https://www.yahoo.com/news/scientists-studying-mysterious-metal-sphere-183016346.html)
+- May 25 - [Injured Sea Turtle Reveals Secret In CT Scan](https://www.yahoo.com/news/injured-sea-turtle-reveals-secret-184557211.html)
+- May 25 - [Rwanda’s dictator gambles future on Congo invasion](https://www.yahoo.com/news/rwanda-dictator-gambles-future-congo-183912263.html)
+- May 25 - [Students drop claim of Israeli genocide in Gaza](https://www.yahoo.com/news/students-drop-claim-israeli-genocide-174517606.html)
 - May 25 - [German chief of defence orders swift expansion of warfare capabilities](https://www.yahoo.com/news/german-chief-defence-orders-swift-160602351.html)
-- May 25 - [GOP senator hits Trump tax bill, says there are 'enough' Republican votes to 'stop the process'](https://www.yahoo.com/news/gop-senator-hits-trump-tax-154800954.html)
 - May 25 - [Scottish drivers ‘used as cash cow’ while fly-tippers escape fines](https://www.yahoo.com/news/scottish-drivers-used-cash-cow-154641548.html)
-- May 25 - [Pope Leo XIV declares 'I am Roman!' as he completes formalities to become bishop of Rome](https://www.yahoo.com/news/pope-leo-xiv-declares-am-152617736.html)
 <!-- feed end -->
 
 ### Onstream
