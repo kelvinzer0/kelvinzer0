@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Indonesian president and Chinese premier meet to discuss expanding trade during US trade war](https://www.yahoo.com/news/indonesian-president-chinese-premier-meet-035418327.html)
-- May 24 - [Texas woman sues state lottery after not receiving controversial $83.5M jackpot](https://www.yahoo.com/news/texas-woman-sues-state-lottery-233334905.html)
+- May 25 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
 - May 24 - [Cancer Patients Reveal The Symptom That Made Them Think Something Might Be Wrong](https://www.yahoo.com/lifestyle/cancer-patients-reveal-symptom-made-233103112.html)
-- May 24 - [Anglo-Saxons buried a mysterious vessel over a millennium ago. Archaeologists discovered its contents](https://www.yahoo.com/news/mysterious-sixth-century-vessel-sutton-113050408.html)
+- May 24 - [Humanitarian aid enters Gaza after 11-week blockade](https://www.yahoo.com/news/humanitarian-aid-enters-gaza-11-230143303.html)
 - May 24 - [North Korea detains officials over warship accident, state media says](https://www.yahoo.com/news/north-korea-detains-officials-over-221115661.html)
+- May 24 - [Trump gives rambling speech about trophy wives, golf and the ‘great late’ Al Capone in politically-charged West Point address](https://www.yahoo.com/news/trump-gives-rambling-speech-trophy-171502635.html)
 <!-- feed end -->
 
 ### Onstream
