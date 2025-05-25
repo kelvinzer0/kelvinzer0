@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [The investing 'rulebook' has changed, portfolio manager says](https://finance.yahoo.com/video/investing-rulebook-changed-portfolio-manager-120046914.html)
+- May 25 - [Flood-hit Australians overjoyed as calf returns mid-interview](https://www.yahoo.com/news/flood-hit-australians-overjoyed-calf-113533117.html)
+- May 25 - [Milwaukee man’s car stolen by thieves using a reprogrammed key fob — what to know about this alarming trend](https://www.yahoo.com/news/milwaukee-man-car-stolen-thieves-113200113.html)
+- May 25 - [King's invite to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
 - May 25 - [‘I was in my own home’: This Florida woman fought back when her property manager tried to evict her — and won](https://www.yahoo.com/news/own-home-florida-woman-fought-093000482.html)
-- May 25 - [Russia signals it’s ready to go to war with West to protect vital shadow fleet](https://www.yahoo.com/news/russia-signals-ready-war-west-085200254.html)
-- May 25 - [Damage in Kyiv region and Mykolaiv after deadly Russian drone and missile attack](https://www.yahoo.com/news/damage-kyiv-region-mykolaiv-deadly-072830715.html)
-- May 25 - [Kim Jong Un’s fury after watching North Korea’s new navy destroyer crippled in botched launch](https://www.yahoo.com/news/kim-jong-un-fury-watching-052027407.html)
-- May 25 - ['More than embarrassment.': Trump slammed for turning Oval Office meeting into WWE-style stunt](https://www.yahoo.com/news/more-embarrassment-trump-slammed-turning-000449681.html)
 <!-- feed end -->
 
 ### Onstream
