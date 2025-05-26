@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [India's central bank seeks approval for overseas rupee lending to neighbours, sources say](https://finance.yahoo.com/news/indias-central-bank-seeks-approval-054654537.html)
+- May 26 - [Memorial Day mass shooting in South Carolina beach town injures at least 11 people](https://www.yahoo.com/news/memorial-day-mass-shooting-south-035816446.html)
 - May 26 - [WWII bomber crash left 11 dead and 'non-recoverable.' Four are finally coming home](https://www.yahoo.com/news/wwii-bomber-crash-left-11-042813800.html)
 - May 26 - [US futures jump while Asian shares slip after Trump delays tariffs on the EU](https://finance.yahoo.com/news/us-futures-jump-while-asian-040236976.html)
-- May 26 - [Quaint tourist town ravaged by flood slowly coming back, but not in time for summer's start](https://www.yahoo.com/news/quaint-tourist-town-ravaged-flood-040200734.html)
-- May 26 - [President Donald Trump hints at an announcement in the 'next two days' on Iran nuclear talks](https://www.yahoo.com/news/president-donald-trump-hints-announcement-015803233.html)
-- May 26 - [Trump asks 'what the hell happened to Putin' after Ukraine bombings](https://www.yahoo.com/news/trump-asks-hell-happened-putin-015214125.html)
+- May 26 - [Community mourns beloved church family after tragic suspected murder-suicide in Albuquerque](https://www.yahoo.com/news/community-mourns-beloved-church-family-040227895.html)
 <!-- feed end -->
 
 ### Onstream
