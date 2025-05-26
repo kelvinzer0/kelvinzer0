@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Wisconsin Maritime Museum program to highlight lost story of Chinese survivors of Titanic](https://www.yahoo.com/news/wisconsin-maritime-museum-program-highlight-093124022.html)
+- May 26 - [Ukraine confirmed Chinese supplies to 20 Russian military plants, intelligence chief says](https://www.yahoo.com/news/ukraine-confirmed-chinese-supplies-20-105731288.html)
+- May 26 - [‘It Broke Him, and it Broke Me’: Maine Parents, Educators Describe Trauma from Restraint and Seclusion](https://www.yahoo.com/news/broke-him-broke-maine-parents-103000817.html)
+- May 26 - [Macron's face appears to be shoved by wife in Vietnam](https://www.yahoo.com/news/macrons-face-appears-shoved-wife-102931024.html)
+- May 26 - [Houston man locked in bitter feud with neighboring renters — but homeowner argues he’s harassing paying guests](https://www.yahoo.com/news/houston-man-locked-bitter-feud-093000292.html)
 - May 26 - [Tens of thousands flock to see a Spanish saint's remains more than 440 years after her death](https://www.yahoo.com/news/tens-thousands-flock-see-spanish-092825154.html)
-- May 26 - [King's invitation to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
-- May 26 - [India's Kerala state on high alert as vessel with hazardous cargo sinks off its coast](https://www.yahoo.com/news/indias-kerala-state-high-alert-073523701.html)
-- May 26 - [At least 11 hurt in South Carolina beach town shooting](https://www.yahoo.com/news/least-11-hurt-south-carolina-062241516.html)
 <!-- feed end -->
 
 ### Onstream
