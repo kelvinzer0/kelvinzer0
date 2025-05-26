@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [170 trucks with aid cross into Gaza](https://www.yahoo.com/news/170-trucks-aid-cross-gaza-195048561.html)
-- May 26 - [She Thought She'd Get Half Her Husband's $3,200 Social Security — But SSA Only Approved $1,000](https://finance.yahoo.com/news/she-thought-shed-half-her-193135634.html)
-- May 26 - [Knoxville family says they’re out $1.8K with nowhere to live after being duped by ‘self-showing’ rental scam](https://www.yahoo.com/news/nobody-knoxville-family-falls-victim-183300620.html)
+- May 26 - [Kevin O’Leary argues Trump blocking Harvard from taking international students could have dire consequences](https://www.yahoo.com/news/kevin-o-leary-argues-trump-203000030.html)
+- May 26 - [What happened in Seaside Heights? 73 arrested, three stabbed over Memorial Day weekend](https://www.yahoo.com/news/happened-seaside-heights-73-arrested-193040607.html)
 - May 26 - [I'm moving my family from Florida to Connecticut. I was blown away by the differences in schools and safety.](https://www.yahoo.com/lifestyle/im-moving-family-florida-connecticut-175402309.html)
 - May 26 - [Trump tells families of war dead: Look at me, I have everything](https://www.yahoo.com/news/trump-tells-families-war-dead-165426168.html)
+- May 26 - [Kremlin says enhanced missile range for Ukraine would be dangerous](https://www.yahoo.com/news/kremlin-says-enhanced-missile-range-165011997.html)
 <!-- feed end -->
 
 ### Onstream
