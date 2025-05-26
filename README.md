@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Harvard Strips Tenure From HBS Superstar Prof Francesca Gino](https://www.yahoo.com/news/harvard-strips-tenure-hbs-superstar-131336945.html)
+- May 26 - [Israeli strikes kill dozens in Gaza as concern grows over humanitarian aid](https://www.yahoo.com/news/israeli-strikes-kill-dozens-gaza-145739386.html)
+- May 26 - [Semi driver found guilty in fatal 2020 crash at rural Manitoba highway intersection](https://www.yahoo.com/news/semi-driver-found-guilty-fatal-142606836.html)
+- May 26 - [Quakers accused of ‘destroying’ reputation with trans-inclusive lavatories](https://www.yahoo.com/news/quakers-accused-destroying-own-reputation-133643743.html)
 - May 26 - [Trump rages at Biden, judges in all-caps holiday message: ‘Happy Memorial Day to all, including the scum’](https://www.yahoo.com/news/trump-rages-biden-judges-caps-124322408.html)
-- May 26 - [How AI is reshaping real estate](https://finance.yahoo.com/video/ai-reshaping-real-estate-120047672.html)
-- May 26 - [France's first lady seems to push her husband as they land in Vietnam. He says they were joking](https://www.yahoo.com/news/macron-says-wife-were-horsing-114057127.html)
-- May 26 - [This Is Why You'll Find So Many German Products At Aldi](https://www.yahoo.com/lifestyle/why-youll-many-german-products-113000424.html)
+- May 26 - [Rescue Helicopters Evacuate Cows From Mountainside Town and It's a 'Moo-ving' Sight To See](https://www.yahoo.com/lifestyle/rescue-helicopters-evacuate-cows-mountainside-121431014.html)
 <!-- feed end -->
 
 ### Onstream
