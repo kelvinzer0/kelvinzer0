@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [A 1991 Porsche 964 Carrera 4 Leichtbau in Photos](https://autos.yahoo.com/1991-porsche-964-carrera-4-130053299.html)
+- May 26 - [Trump rages at Biden, judges in all-caps holiday message: ‘Happy Memorial Day to all, including the scum’](https://www.yahoo.com/news/trump-rages-biden-judges-caps-124322045.html)
 - May 26 - [French journalists call on France to help evacuate collaborators from Gaza](https://www.yahoo.com/news/french-journalists-call-france-help-122222411.html)
-- May 26 - [How AI is reshaping real estate](https://finance.yahoo.com/video/ai-reshaping-real-estate-120047672.html)
-- May 26 - [Police investigate Enoch Powell portrait hung in village shop as ‘hate incident’](https://www.yahoo.com/news/police-investigate-enoch-powell-portrait-125130804.html)
-- May 26 - [Israeli far-right police minister visits Al-Aqsa mosque site ahead of Jerusalem rally](https://www.yahoo.com/news/israeli-far-police-minister-visits-105600619.html)
-- May 26 - [Conservative Legal Icon's Chilling Trump Admission: 'I Don't Know Where This Ends...'](https://www.yahoo.com/news/conservative-legal-icons-chilling-trump-104110815.html)
+- May 26 - [Alien plants and animals have cost Europe over $1.5 trillion, study finds](https://www.yahoo.com/news/alien-plants-animals-cost-europe-115933238.html)
+- May 26 - [Renowned Everest guide says using xenon speeds climb and makes it safer, better for environment](https://www.yahoo.com/news/renowned-everest-guide-says-using-115512700.html)
 <!-- feed end -->
 
 ### Onstream
