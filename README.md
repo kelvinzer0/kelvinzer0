@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [Southeast Asian nations want to discuss tariffs with Trump as a unified bloc, Malaysia PM says](https://www.yahoo.com/news/southeast-asian-nations-want-discuss-040709097.html)
+- May 26 - [Quaint tourist town ravaged by flood slowly coming back, but not in time for summer's start](https://www.yahoo.com/news/quaint-tourist-town-ravaged-flood-040200734.html)
+- May 26 - [Residents of Ukraine's Zhytomyr region mourn victims of the latest Russian attack](https://www.yahoo.com/news/residents-ukraines-zhytomyr-region-mourn-040019515.html)
+- May 26 - [3 Chilean nationals suspected in Middle TN burglaries arrested in Chattanooga](https://www.yahoo.com/news/3-chilean-nationals-suspected-middle-020643019.html)
 - May 26 - [President Donald Trump hints at an announcement in the 'next two days' on Iran nuclear talks](https://www.yahoo.com/news/president-donald-trump-hints-announcement-015803233.html)
-- May 26 - [Trump asks 'what the hell happened to Putin' after Ukraine bombings](https://www.yahoo.com/news/trump-asks-hell-happened-putin-015214125.html)
-- May 26 - [President Donald Trump says Russian leader Vladimir Putin 'has gone absolutely CRAZY!'](https://www.yahoo.com/news/president-donald-trump-says-russian-013542140.html)
-- May 26 - [I Moved To Europe To Escape U.S. Politics. Four Years Later, I've Come To A Terrifying Realization.](https://www.yahoo.com/news/moved-europe-escape-u-politics-013103707.html)
-- May 26 - [Former police chief, serving murder and rape sentences, escapes from Arkansas prison](https://www.yahoo.com/news/former-police-chief-serving-murder-012138310.html)
 <!-- feed end -->
 
 ### Onstream
