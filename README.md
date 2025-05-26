@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Germany's Merz says there are no more range restrictions on the weapons supplied to Ukraine](https://www.yahoo.com/news/germanys-merz-says-no-more-170235479.html)
 - May 26 - [Trump tells families of war dead: Look at me, I have everything](https://www.yahoo.com/news/trump-tells-families-war-dead-165426168.html)
-- May 26 - [Palestinian official says Hamas agrees to Gaza proposal, Israel dismisses it](https://www.yahoo.com/news/hamas-agrees-u-proposal-gaza-133620317.html)
-- May 26 - [Trump rages at Biden, judges in all-caps holiday message: ‘Happy Memorial Day to all, including the scum’](https://www.yahoo.com/news/trump-rages-biden-judges-caps-124322045.html)
-- May 26 - [Renowned Everest guide says using xenon speeds climb and makes it safer, better for environment](https://www.yahoo.com/news/renowned-everest-guide-says-using-115512700.html)
+- May 26 - [Kremlin says enhanced missile range for Ukraine would be dangerous](https://www.yahoo.com/news/kremlin-says-enhanced-missile-range-165011997.html)
+- May 26 - [Drowning is most common cause of death among youngest Americans. Trump might have just made that worse](https://www.yahoo.com/news/drowning-most-common-cause-death-141833879.html)
+- May 26 - [China shifts from developing world's banker to debt collector, says Lowy Institute](https://www.yahoo.com/news/china-shifts-developing-worlds-banker-120610937.html)
+- May 26 - [Watch: Macron shoved in face during ‘squabble’ with wife Brigitte](https://www.yahoo.com/news/watch-macron-shoved-face-during-111013949.html)
 <!-- feed end -->
 
 ### Onstream
