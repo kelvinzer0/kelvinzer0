@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Shrimp gets a bad rap when it comes to cholesterol. It can still be good for you.](https://health.yahoo.com/nutrition/healthy-eating/article/shrimp-gets-a-bad-rap-when-it-comes-to-cholesterol-it-can-still-be-good-for-you-090011795.html)
-- May 26 - [Old plane crash video falsely linked to India-Pakistan conflict](https://www.yahoo.com/news/old-plane-crash-video-falsely-083638793.html)
+- May 26 - [Wisconsin Maritime Museum program to highlight lost story of Chinese survivors of Titanic](https://www.yahoo.com/news/wisconsin-maritime-museum-program-highlight-093124022.html)
+- May 26 - [Tens of thousands flock to see a Spanish saint's remains more than 440 years after her death](https://www.yahoo.com/news/tens-thousands-flock-see-spanish-092825154.html)
+- May 26 - [King's invitation to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
+- May 26 - [India's Kerala state on high alert as vessel with hazardous cargo sinks off its coast](https://www.yahoo.com/news/indias-kerala-state-high-alert-073523701.html)
 - May 26 - [At least 11 hurt in South Carolina beach town shooting](https://www.yahoo.com/news/least-11-hurt-south-carolina-062241516.html)
-- May 26 - [Russia's former president wants to seize a 'buffer zone' in Ukraine. It would take 91 years at Moscow's rate of advance.](https://www.yahoo.com/news/russias-former-president-wants-seize-055950463.html)
-- May 26 - [WWII bomber crash left 11 dead and 'non-recoverable.' Four are finally coming home](https://www.yahoo.com/news/wwii-bomber-crash-left-11-042813800.html)
 <!-- feed end -->
 
 ### Onstream
