@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Australian state plans to ban the sale of machetes following violent gang fight](https://www.yahoo.com/news/australian-state-plans-ban-sale-070203602.html)
-- May 26 - [China mulling new economic policy tools, Premier Li says](https://www.yahoo.com/news/china-mulling-economic-policy-tools-070014702.html)
-- May 26 - [Separatists' sit-at-home protests lead to 700 deaths in Nigeria's southeast, report says](https://www.yahoo.com/news/separatists-sit-home-protests-lead-061119736.html)
+- May 26 - [India state on alert after ship carrying hazardous cargo capsizes](https://www.yahoo.com/news/india-state-alert-ship-carrying-061821366.html)
+- May 26 - [King's invitation to Canada sends a message to Trump - and the world](https://www.yahoo.com/news/kings-invite-canada-sends-message-233212134.html)
+- May 26 - [Spanish government holds meeting looking to push for international recognition of two state solution](https://www.yahoo.com/news/spanish-government-holds-meeting-looking-072252693.html)
+- May 26 - [Chinese EV Stocks Tumble After BYD Slashes Prices Up to 35%](https://finance.yahoo.com/news/chinese-ev-stocks-tumble-byd-053223229.html)
 - May 26 - [Russia's former president wants to seize a 'buffer zone' in Ukraine. It would take 91 years at Moscow's rate of advance.](https://www.yahoo.com/news/russias-former-president-wants-seize-055950463.html)
-- May 26 - [Uganda's military says it has severed ties with Germany over 'subversive activities' by ambassador](https://www.yahoo.com/news/ugandas-military-says-severed-ties-053731365.html)
 <!-- feed end -->
 
 ### Onstream
