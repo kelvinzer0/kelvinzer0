@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Drone Footage | Local rivers approach near record levels](https://www.yahoo.com/news/drone-footage-local-rivers-approach-232803581.html)
-- May 25 - [‘I Had Sky-High Blood Pressure for Years, Now It's 112/72—Here's What I Did’](https://www.yahoo.com/lifestyle/had-sky-high-blood-pressure-232500227.html)
-- May 25 - [Trump says he'll delay a threatened 50% tariff on the European Union until July](https://www.yahoo.com/news/trump-says-hell-delay-threatened-225142460.html)
-- May 25 - [Chaos unfolds in downtown Los Angeles as large mob vandalizes police car, train, businesses](https://www.yahoo.com/news/chaos-unfolds-downtown-los-angeles-213027531.html)
-- May 25 - [Mike Johnson dismisses concern over Trump's private meme coin dinner, says the president does 'everything out in the open'](https://www.yahoo.com/news/mike-johnson-dismisses-concern-over-201310115.html)
+- May 26 - [President Donald Trump hints at an announcement in the 'next two days' on Iran nuclear talks](https://www.yahoo.com/news/president-donald-trump-hints-announcement-015803233.html)
+- May 26 - [Trump asks 'what the hell happened to Putin' after Ukraine bombings](https://www.yahoo.com/news/trump-asks-hell-happened-putin-015214125.html)
+- May 26 - [President Donald Trump says Russian leader Vladimir Putin 'has gone absolutely CRAZY!'](https://www.yahoo.com/news/president-donald-trump-says-russian-013542140.html)
+- May 26 - [I Moved To Europe To Escape U.S. Politics. Four Years Later, I've Come To A Terrifying Realization.](https://www.yahoo.com/news/moved-europe-escape-u-politics-013103707.html)
+- May 26 - [Former police chief, serving murder and rape sentences, escapes from Arkansas prison](https://www.yahoo.com/news/former-police-chief-serving-murder-012138310.html)
 <!-- feed end -->
 
 ### Onstream
