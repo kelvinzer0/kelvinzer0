@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [Traffic alert: Highway 99W closed between Salem and Oregon Coast after crash](https://www.yahoo.com/news/traffic-alert-highway-99w-closed-215553748.html)
 - May 26 - [Trump pardons former sheriff convicted of bribery](https://www.yahoo.com/news/trump-pardons-former-sheriff-convicted-210530937.html)
-- May 26 - [Trump tells families of war dead: Look at me, I have everything](https://www.yahoo.com/news/trump-tells-families-war-dead-165426168.html)
+- May 26 - [Drivers see major backups on I-90 west after rollover crash puts 2 in hospital](https://www.yahoo.com/news/drivers-see-major-backups-90-205406617.html)
 - May 26 - [Kevin O’Leary argues Trump blocking Harvard from taking international students could have dire consequences](https://www.yahoo.com/news/kevin-o-leary-argues-trump-203000030.html)
-- May 26 - [I-5 closed in both directions near Carmel Valley following pursuit](https://www.yahoo.com/news/5-closed-both-directions-near-193156265.html)
-- May 26 - [Knoxville family says they’re out $1.8K with nowhere to live after being duped by ‘self-showing’ rental scam](https://www.yahoo.com/news/nobody-knoxville-family-falls-victim-183300620.html)
+- May 26 - [‘Traffic nightmare’: I-5 closed in both directions near Carmel Valley following pursuit](https://www.yahoo.com/news/5-closed-both-directions-near-193156265.html)
 <!-- feed end -->
 
 ### Onstream
