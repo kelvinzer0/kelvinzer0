@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [Drone Footage | Local rivers approach near record levels](https://www.yahoo.com/news/drone-footage-local-rivers-approach-232803581.html)
+- May 25 - [‘I Had Sky-High Blood Pressure for Years, Now It's 112/72—Here's What I Did’](https://www.yahoo.com/lifestyle/had-sky-high-blood-pressure-232500227.html)
+- May 25 - [Trump says he'll delay a threatened 50% tariff on the European Union until July](https://www.yahoo.com/news/trump-says-hell-delay-threatened-225142460.html)
+- May 25 - [Chaos unfolds in downtown Los Angeles as large mob vandalizes police car, train, businesses](https://www.yahoo.com/news/chaos-unfolds-downtown-los-angeles-213027531.html)
 - May 25 - [Mike Johnson dismisses concern over Trump's private meme coin dinner, says the president does 'everything out in the open'](https://www.yahoo.com/news/mike-johnson-dismisses-concern-over-201310115.html)
-- May 25 - [Injured Sea Turtle Reveals Secret In CT Scan](https://www.yahoo.com/news/injured-sea-turtle-reveals-secret-184557211.html)
-- May 25 - [House Speaker Mike Johnson says Medicaid cuts in Trump bill have a "moral component"](https://www.yahoo.com/news/house-speaker-mike-johnson-says-163722362.html)
-- May 25 - [Pope Leo XIV declares 'I am Roman!' as he completes formalities to become bishop of Rome](https://www.yahoo.com/news/pope-leo-xiv-declares-am-152617736.html)
-- May 25 - [Johnson warns Senators about making changes to Trump’s tax and spending cuts bill: ‘It’s best not to meddle with it too much’](https://www.yahoo.com/news/johnson-warns-senators-making-changes-145627491.html)
 <!-- feed end -->
 
 ### Onstream
