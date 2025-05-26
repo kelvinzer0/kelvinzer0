@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [A 1991 Porsche 964 Carrera 4 Leichtbau in Photos](https://autos.yahoo.com/1991-porsche-964-carrera-4-130053299.html)
-- May 26 - [Trump rages at Biden, judges in all-caps holiday message: ‘Happy Memorial Day to all, including the scum’](https://www.yahoo.com/news/trump-rages-biden-judges-caps-124322045.html)
-- May 26 - [French journalists call on France to help evacuate collaborators from Gaza](https://www.yahoo.com/news/french-journalists-call-france-help-122222411.html)
-- May 26 - [Alien plants and animals have cost Europe over $1.5 trillion, study finds](https://www.yahoo.com/news/alien-plants-animals-cost-europe-115933238.html)
-- May 26 - [Renowned Everest guide says using xenon speeds climb and makes it safer, better for environment](https://www.yahoo.com/news/renowned-everest-guide-says-using-115512700.html)
+- May 26 - [Harvard Strips Tenure From HBS Superstar Prof Francesca Gino](https://www.yahoo.com/news/harvard-strips-tenure-hbs-superstar-131336945.html)
+- May 26 - [Trump rages at Biden, judges in all-caps holiday message: ‘Happy Memorial Day to all, including the scum’](https://www.yahoo.com/news/trump-rages-biden-judges-caps-124322408.html)
+- May 26 - [How AI is reshaping real estate](https://finance.yahoo.com/video/ai-reshaping-real-estate-120047672.html)
+- May 26 - [France's first lady seems to push her husband as they land in Vietnam. He says they were joking](https://www.yahoo.com/news/macron-says-wife-were-horsing-114057127.html)
+- May 26 - [This Is Why You'll Find So Many German Products At Aldi](https://www.yahoo.com/lifestyle/why-youll-many-german-products-113000424.html)
 <!-- feed end -->
 
 ### Onstream
