@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [Kremlin says enhanced missile range for Ukraine would be dangerous](https://www.yahoo.com/news/kremlin-says-enhanced-missile-range-165011997.html)
 - May 26 - [Democrats ditch woke jargon to win back Trump voters](https://www.yahoo.com/news/democrats-ditch-woke-jargon-win-154904042.html)
-- May 26 - [Man arrested, firearm recovered in connection with incident that injured an officer](https://www.yahoo.com/news/man-arrested-firearm-recovered-connection-105103840.html)
-- May 26 - [Pro-Palestine protesters occupy German newspaper building](https://www.yahoo.com/news/pro-palestine-protesters-occupy-german-150921416.html)
-- May 26 - [Ex-DR Congo president returns to country, party says](https://www.yahoo.com/news/ex-dr-congo-president-returns-150816094.html)
-- May 26 - [I toured the only nuclear-missile submarine in the US open to the public. Take a look inside.](https://www.yahoo.com/news/toured-only-nuclear-missile-submarine-184251138.html)
+- May 26 - [Trump floats sending $3B in Harvard grants to trade schools](https://www.yahoo.com/news/trump-floats-sending-3b-harvard-153854391.html)
+- May 26 - [Egyptian archaeologists discover three tombs in Luxor](https://www.yahoo.com/news/egyptian-archaeologists-discover-three-tombs-153845442.html)
+- May 26 - [BYD launches attempt to crush Tesla in China](https://finance.yahoo.com/news/chinese-electric-car-maker-undercuts-130926675.html)
 <!-- feed end -->
 
 ### Onstream
