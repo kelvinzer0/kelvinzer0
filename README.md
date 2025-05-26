@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Israeli strikes kill dozens in Gaza as concern grows over humanitarian aid](https://www.yahoo.com/news/israeli-strikes-kill-dozens-gaza-145739386.html)
-- May 26 - [Semi driver found guilty in fatal 2020 crash at rural Manitoba highway intersection](https://www.yahoo.com/news/semi-driver-found-guilty-fatal-142606836.html)
-- May 26 - [Quakers accused of ‘destroying’ reputation with trans-inclusive lavatories](https://www.yahoo.com/news/quakers-accused-destroying-own-reputation-133643743.html)
-- May 26 - [Trump rages at Biden, judges in all-caps holiday message: ‘Happy Memorial Day to all, including the scum’](https://www.yahoo.com/news/trump-rages-biden-judges-caps-124322408.html)
-- May 26 - [Rescue Helicopters Evacuate Cows From Mountainside Town and It's a 'Moo-ving' Sight To See](https://www.yahoo.com/lifestyle/rescue-helicopters-evacuate-cows-mountainside-121431014.html)
+- May 26 - [Democrats ditch woke jargon to win back Trump voters](https://www.yahoo.com/news/democrats-ditch-woke-jargon-win-154904042.html)
+- May 26 - [Man arrested, firearm recovered in connection with incident that injured an officer](https://www.yahoo.com/news/man-arrested-firearm-recovered-connection-105103840.html)
+- May 26 - [Pro-Palestine protesters occupy German newspaper building](https://www.yahoo.com/news/pro-palestine-protesters-occupy-german-150921416.html)
+- May 26 - [Ex-DR Congo president returns to country, party says](https://www.yahoo.com/news/ex-dr-congo-president-returns-150816094.html)
+- May 26 - [I toured the only nuclear-missile submarine in the US open to the public. Take a look inside.](https://www.yahoo.com/news/toured-only-nuclear-missile-submarine-184251138.html)
 <!-- feed end -->
 
 ### Onstream
