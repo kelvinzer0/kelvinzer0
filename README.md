@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [India's central bank seeks approval for overseas rupee lending to neighbours, sources say](https://finance.yahoo.com/news/indias-central-bank-seeks-approval-054654537.html)
-- May 26 - [Memorial Day mass shooting in South Carolina beach town injures at least 11 people](https://www.yahoo.com/news/memorial-day-mass-shooting-south-035816446.html)
-- May 26 - [WWII bomber crash left 11 dead and 'non-recoverable.' Four are finally coming home](https://www.yahoo.com/news/wwii-bomber-crash-left-11-042813800.html)
-- May 26 - [US futures jump while Asian shares slip after Trump delays tariffs on the EU](https://finance.yahoo.com/news/us-futures-jump-while-asian-040236976.html)
-- May 26 - [Community mourns beloved church family after tragic suspected murder-suicide in Albuquerque](https://www.yahoo.com/news/community-mourns-beloved-church-family-040227895.html)
+- May 26 - [Australian state plans to ban the sale of machetes following violent gang fight](https://www.yahoo.com/news/australian-state-plans-ban-sale-070203602.html)
+- May 26 - [China mulling new economic policy tools, Premier Li says](https://www.yahoo.com/news/china-mulling-economic-policy-tools-070014702.html)
+- May 26 - [Separatists' sit-at-home protests lead to 700 deaths in Nigeria's southeast, report says](https://www.yahoo.com/news/separatists-sit-home-protests-lead-061119736.html)
+- May 26 - [Russia's former president wants to seize a 'buffer zone' in Ukraine. It would take 91 years at Moscow's rate of advance.](https://www.yahoo.com/news/russias-former-president-wants-seize-055950463.html)
+- May 26 - [Uganda's military says it has severed ties with Germany over 'subversive activities' by ambassador](https://www.yahoo.com/news/ugandas-military-says-severed-ties-053731365.html)
 <!-- feed end -->
 
 ### Onstream
