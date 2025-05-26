@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [170 trucks with aid cross into Gaza](https://www.yahoo.com/news/170-trucks-aid-cross-gaza-195048561.html)
+- May 26 - [She Thought She'd Get Half Her Husband's $3,200 Social Security — But SSA Only Approved $1,000](https://finance.yahoo.com/news/she-thought-shed-half-her-193135634.html)
+- May 26 - [Knoxville family says they’re out $1.8K with nowhere to live after being duped by ‘self-showing’ rental scam](https://www.yahoo.com/news/nobody-knoxville-family-falls-victim-183300620.html)
+- May 26 - [I'm moving my family from Florida to Connecticut. I was blown away by the differences in schools and safety.](https://www.yahoo.com/lifestyle/im-moving-family-florida-connecticut-175402309.html)
 - May 26 - [Trump tells families of war dead: Look at me, I have everything](https://www.yahoo.com/news/trump-tells-families-war-dead-165426168.html)
-- May 26 - [Kremlin says enhanced missile range for Ukraine would be dangerous](https://www.yahoo.com/news/kremlin-says-enhanced-missile-range-165011997.html)
-- May 26 - [Drowning is most common cause of death among youngest Americans. Trump might have just made that worse](https://www.yahoo.com/news/drowning-most-common-cause-death-141833879.html)
-- May 26 - [China shifts from developing world's banker to debt collector, says Lowy Institute](https://www.yahoo.com/news/china-shifts-developing-worlds-banker-120610937.html)
-- May 26 - [Watch: Macron shoved in face during ‘squabble’ with wife Brigitte](https://www.yahoo.com/news/watch-macron-shoved-face-during-111013949.html)
 <!-- feed end -->
 
 ### Onstream
