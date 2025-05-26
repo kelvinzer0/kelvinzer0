@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Ukraine confirmed Chinese supplies to 20 Russian military plants, intelligence chief says](https://www.yahoo.com/news/ukraine-confirmed-chinese-supplies-20-105731288.html)
-- May 26 - [‘It Broke Him, and it Broke Me’: Maine Parents, Educators Describe Trauma from Restraint and Seclusion](https://www.yahoo.com/news/broke-him-broke-maine-parents-103000817.html)
-- May 26 - [Macron's face appears to be shoved by wife in Vietnam](https://www.yahoo.com/news/macrons-face-appears-shoved-wife-102931024.html)
-- May 26 - [Houston man locked in bitter feud with neighboring renters — but homeowner argues he’s harassing paying guests](https://www.yahoo.com/news/houston-man-locked-bitter-feud-093000292.html)
-- May 26 - [Tens of thousands flock to see a Spanish saint's remains more than 440 years after her death](https://www.yahoo.com/news/tens-thousands-flock-see-spanish-092825154.html)
+- May 26 - [French journalists call on France to help evacuate collaborators from Gaza](https://www.yahoo.com/news/french-journalists-call-france-help-122222411.html)
+- May 26 - [How AI is reshaping real estate](https://finance.yahoo.com/video/ai-reshaping-real-estate-120047672.html)
+- May 26 - [Police investigate Enoch Powell portrait hung in village shop as ‘hate incident’](https://www.yahoo.com/news/police-investigate-enoch-powell-portrait-125130804.html)
+- May 26 - [Israeli far-right police minister visits Al-Aqsa mosque site ahead of Jerusalem rally](https://www.yahoo.com/news/israeli-far-police-minister-visits-105600619.html)
+- May 26 - [Conservative Legal Icon's Chilling Trump Admission: 'I Don't Know Where This Ends...'](https://www.yahoo.com/news/conservative-legal-icons-chilling-trump-104110815.html)
 <!-- feed end -->
 
 ### Onstream
