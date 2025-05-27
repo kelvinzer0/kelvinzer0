@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Traffic alert: Highway 99W closed between Salem and Oregon Coast after crash](https://www.yahoo.com/news/traffic-alert-highway-99w-closed-215553748.html)
+- May 27 - [3 more of the 10 escapees from a New Orleans jail are captured, leaving 2 on the run, officials say](https://www.yahoo.com/news/authorities-theyve-captured-three-more-010244716.html)
+- May 27 - [Meet the Monster Quantum Computing Stock That Continues to Crush the Market](https://finance.yahoo.com/news/meet-monster-quantum-computing-stock-004500330.html)
+- May 27 - [Stock market today: Dow, S&P 500, Nasdaq futures leap as EU tariff delay bolsters market optimism](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-leap-as-eu-tariff-delay-bolsters-market-optimism-000114061.html)
+- May 26 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417696.html)
 - May 26 - [Trump pardons former sheriff convicted of bribery](https://www.yahoo.com/news/trump-pardons-former-sheriff-convicted-210530937.html)
-- May 26 - [Drivers see major backups on I-90 west after rollover crash puts 2 in hospital](https://www.yahoo.com/news/drivers-see-major-backups-90-205406617.html)
-- May 26 - [Kevin O’Leary argues Trump blocking Harvard from taking international students could have dire consequences](https://www.yahoo.com/news/kevin-o-leary-argues-trump-203000030.html)
-- May 26 - [‘Traffic nightmare’: I-5 closed in both directions near Carmel Valley following pursuit](https://www.yahoo.com/news/5-closed-both-directions-near-193156265.html)
 <!-- feed end -->
 
 ### Onstream
