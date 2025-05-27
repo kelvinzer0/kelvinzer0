@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Argentina's President Javier Milei to receive $1M Genesis Prize in Israel](https://www.yahoo.com/news/argentinas-president-javier-milei-receive-035857762.html)
+- May 27 - [Exclusive-China regulator summons automakers to discuss 'zero-mileage' used car sales](https://finance.yahoo.com/news/exclusive-china-regulator-summons-automakers-031155553.html)
 - May 27 - [Driver who killed Las Vegas police officer was nearly 3 times legal limit in wrong-way crash](https://www.yahoo.com/news/driver-killed-las-vegas-police-021940297.html)
-- May 27 - [Developing nations face 'tidal wave' of China debt: report](https://www.yahoo.com/news/developing-nations-face-tidal-wave-015723311.html)
 - May 27 - [3 more of the 10 escapees from a New Orleans jail are captured, leaving 2 on the run, officials say](https://www.yahoo.com/news/authorities-theyve-captured-three-more-010244716.html)
 - May 27 - [Coca-Cola unveils innovative 'reverse vending machines' that could be game-changers for consumers: 'Set a precedent'](https://www.yahoo.com/news/coca-cola-unveils-innovative-reverse-104539538.html)
+- May 26 - [Trump pardons former sheriff convicted of bribery](https://www.yahoo.com/news/trump-pardons-former-sheriff-convicted-210530937.html)
 <!-- feed end -->
 
 ### Onstream
