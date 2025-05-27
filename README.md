@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [China warns its leftover men against ‘buying foreign wives’](https://www.yahoo.com/news/china-warns-leftover-men-against-111839137.html)
-- May 27 - [Judge is stabbed to death in southern Iran](https://www.yahoo.com/news/judge-stabbed-death-southern-iran-072634447.html)
-- May 27 - [Exclusive-China regulator summons automakers to discuss 'zero-mileage' used car sales](https://finance.yahoo.com/news/exclusive-china-regulator-summons-automakers-031155553.html)
-- May 27 - [Driver who killed Las Vegas police officer was nearly 3 times legal limit in wrong-way crash](https://www.yahoo.com/news/driver-killed-las-vegas-police-021940297.html)
-- May 27 - [Jake Tapper Says Cover-Up of Biden’s Mental Decline ‘May Be Even Worse Than Watergate’](https://www.yahoo.com/news/jake-tapper-says-cover-biden-011048868.html)
+- May 27 - [South Africa not giving 'special dispensation' to Musk's Starlink, minister says](https://finance.yahoo.com/news/south-africa-not-giving-special-085528575.html)
+- May 27 - [6 risk factors for cervical cancer as Emmerdale's Sarah deals with diagnosis](https://www.yahoo.com/lifestyle/cervical-cancer-screening-emmerdale-sarah-diagnosis-nhs-060048952.html)
+- May 27 - [GOP declares war on GAO](https://www.yahoo.com/news/gop-declares-war-gao-084500431.html)
+- May 27 - [4 Brilliant Growth Stocks to Buy Now and Hold for the Long Term](https://finance.yahoo.com/news/4-brilliant-growth-stocks-buy-082000076.html)
+- May 27 - [Sao Paulo moves to end area known as Crackland as residents scatter and cry foul against police](https://www.yahoo.com/news/sao-paulo-moves-end-area-054210440.html)
 <!-- feed end -->
 
 ### Onstream
