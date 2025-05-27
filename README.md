@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 27 - [Elon Musk pledges his own RTO as Tesla sales continue to weaken](https://finance.yahoo.com/news/elon-musk-pledges-his-own-rto-as-tesla-sales-continue-to-weaken-145628557.html)
+- May 27 - ['Abhorrent': EU's von der Leyen slams Israeli offensive in Gaza](https://www.yahoo.com/news/abhorrent-eus-von-der-leyen-142423243.html)
+- May 27 - [Left-wing hammer thrower delivers blow to Meloni](https://www.yahoo.com/news/left-wing-hammer-thrower-delivers-140519935.html)
+- May 27 - [The Supreme Court rejects a plea to block a copper mine on land in Arizona that's sacred to Apaches](https://www.yahoo.com/news/supreme-court-rejects-plea-block-134305728.html)
 - May 27 - [US Supreme Court rejects case about student's 'There are only two genders' T-shirt](https://www.yahoo.com/news/us-supreme-court-rejects-case-134026163.html)
-- May 27 - [Zimbabwe's president approves controversial mandatory radio levy on motorists](https://www.yahoo.com/news/zimbabwes-president-approves-controversial-mandatory-133512965.html)
-- May 27 - [South African actor Presley Chweneyagae, who starred in Oscar-winning film 'Tsotsi', dies aged 40](https://www.yahoo.com/entertainment/articles/south-african-actor-presley-chweneyagae-132319005.html)
-- May 27 - [Southwest Airlines reveals how much it will cost to check a bag](https://finance.yahoo.com/news/southwest-airlines-reveals-much-cost-115502600.html)
-- May 27 - [White House stunned as Hegseth inquiry brings up illegal wiretap claims](https://www.yahoo.com/news/white-house-stunned-hegseth-inquiry-110049756.html)
 <!-- feed end -->
 
 ### Onstream
