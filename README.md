@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [NPR sues Trump administration over executive order to cut finding to public media](https://www.yahoo.com/news/npr-sues-trump-administration-over-131602045.html)
-- May 27 - [Macron team in chaos over Brigitte ‘shove’](https://www.yahoo.com/news/macron-team-chaos-over-brigitte-122558415.html)
-- May 27 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417696.html)
+- May 27 - [US Supreme Court rejects case about student's 'There are only two genders' T-shirt](https://www.yahoo.com/news/us-supreme-court-rejects-case-134026163.html)
+- May 27 - [Zimbabwe's president approves controversial mandatory radio levy on motorists](https://www.yahoo.com/news/zimbabwes-president-approves-controversial-mandatory-133512965.html)
+- May 27 - [South African actor Presley Chweneyagae, who starred in Oscar-winning film 'Tsotsi', dies aged 40](https://www.yahoo.com/entertainment/articles/south-african-actor-presley-chweneyagae-132319005.html)
+- May 27 - [Southwest Airlines reveals how much it will cost to check a bag](https://finance.yahoo.com/news/southwest-airlines-reveals-much-cost-115502600.html)
 - May 27 - [White House stunned as Hegseth inquiry brings up illegal wiretap claims](https://www.yahoo.com/news/white-house-stunned-hegseth-inquiry-110049756.html)
-- May 27 - [This Mississippi man is out nearly $100,000 after purchasing solar panels — only to find that they don’t work](https://www.yahoo.com/news/mississippi-man-nearly-100-000-110000292.html)
 <!-- feed end -->
 
 ### Onstream
