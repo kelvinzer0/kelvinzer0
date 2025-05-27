@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 27 - [EU ministers approve new 150 billion-euro arms fund](https://finance.yahoo.com/news/eu-ministers-approve-150-billion-101450265.html)
+- May 27 - [Investors brace for record Canadian government debt issuance as budget delayed](https://finance.yahoo.com/news/investors-brace-record-canadian-government-100517647.html)
+- May 27 - [Airlines face 'too much capacity' this summer, analyst says](https://finance.yahoo.com/video/airlines-face-too-much-capacity-100035268.html)
 - May 27 - [Tesla sales plunge in Europe, with no sign of boost from new model](https://finance.yahoo.com/video/tesla-sales-plunge-europe-no-093857419.html)
-- May 27 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417696.html)
-- May 27 - [Grow Erie facility produces lettuce and herbs in Savocchio Park. It also makes a statement](https://www.yahoo.com/news/grow-erie-facility-produces-lettuce-091126189.html)
-- May 27 - [Posts falsely claim Australian arrested for trying to take out cash](https://www.yahoo.com/news/posts-falsely-claim-australian-arrested-085914825.html)
-- May 27 - [Germany's Merz: 'No illusions' over quick end to conflict in Ukraine](https://www.yahoo.com/news/germanys-merz-no-illusions-over-083923832.html)
+- May 27 - [There's danger in the woods - here are the 12 deadliest animals in Connecticut](https://www.yahoo.com/lifestyle/theres-danger-woods-12-deadliest-085556537.html)
 <!-- feed end -->
 
 ### Onstream
