@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [After March’s low point, Western Europe’s diesel share rallied a little in April – GlobalData](https://finance.yahoo.com/news/march-low-point-western-europe-154628902.html)
-- May 27 - [Memorial Day shooting at Cascades Park was accidental, police say](https://www.yahoo.com/news/memorial-day-shooting-cascades-park-154612611.html)
-- May 27 - [Port St. Lucie woman dies in crash; police investigation ongoing](https://www.yahoo.com/news/port-st-lucie-woman-dies-154150227.html)
+- May 27 - [Home prices are still rising, but at a slower rate: What to know](https://finance.yahoo.com/video/home-prices-still-rising-slower-165530530.html)
+- May 27 - [Trump Issues Not-So-Coincidental Pardon of Massive Tax Cheat](https://www.yahoo.com/news/trump-issues-not-coincidental-pardon-165129375.html)
+- May 27 - [Wisconsin Supreme Court suspends judge who left court to arrest a hospitalized defendant](https://www.yahoo.com/news/wisconsin-supreme-court-suspends-judge-163728561.html)
 - May 27 - [A former aide says Sean 'Diddy' Combs kidnapped her in a plot to kill Kid Cudi](https://www.yahoo.com/news/ex-combs-aide-testifies-music-152954557.html)
-- May 27 - [Trump Throws Wild New Wrench in EU Tariff Talks](https://www.yahoo.com/news/trump-throws-wild-wrench-eu-151610726.html)
+- May 27 - [Elon Musk pledges his own RTO as Tesla sales continue to weaken](https://finance.yahoo.com/news/elon-musk-pledges-his-own-rto-as-tesla-sales-continue-to-weaken-145628557.html)
 <!-- feed end -->
 
 ### Onstream
