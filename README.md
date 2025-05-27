@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [EU ministers approve new 150 billion-euro arms fund](https://finance.yahoo.com/news/eu-ministers-approve-150-billion-101450265.html)
-- May 27 - [Investors brace for record Canadian government debt issuance as budget delayed](https://finance.yahoo.com/news/investors-brace-record-canadian-government-100517647.html)
-- May 27 - [Airlines face 'too much capacity' this summer, analyst says](https://finance.yahoo.com/video/airlines-face-too-much-capacity-100035268.html)
-- May 27 - [Tesla sales plunge in Europe, with no sign of boost from new model](https://finance.yahoo.com/video/tesla-sales-plunge-europe-no-093857419.html)
-- May 27 - [There's danger in the woods - here are the 12 deadliest animals in Connecticut](https://www.yahoo.com/lifestyle/theres-danger-woods-12-deadliest-085556537.html)
+- May 27 - [Tommy Robinson released from prison after ‘change in attitude’](https://www.yahoo.com/news/tommy-robinson-released-prison-100404103.html)
+- May 27 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417032.html)
+- May 27 - [Three Value Stocks Estimated To Be Below Their Intrinsic Worth In May 2025](https://finance.yahoo.com/news/three-value-stocks-estimated-below-113758403.html)
+- May 27 - [3 Texas cities land on US News' top 10 best places to live list — and they're all suburbs](https://www.yahoo.com/news/3-texas-cities-land-us-110107619.html)
+- May 27 - [This Mississippi man is out nearly $100,000 after purchasing solar panels — only to find that they don’t work](https://www.yahoo.com/news/mississippi-man-nearly-100-000-110000292.html)
 <!-- feed end -->
 
 ### Onstream
