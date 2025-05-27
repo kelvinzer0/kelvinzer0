@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [South Africa not giving 'special dispensation' to Musk's Starlink, minister says](https://finance.yahoo.com/news/south-africa-not-giving-special-085528575.html)
-- May 27 - [6 risk factors for cervical cancer as Emmerdale's Sarah deals with diagnosis](https://www.yahoo.com/lifestyle/cervical-cancer-screening-emmerdale-sarah-diagnosis-nhs-060048952.html)
-- May 27 - [GOP declares war on GAO](https://www.yahoo.com/news/gop-declares-war-gao-084500431.html)
-- May 27 - [4 Brilliant Growth Stocks to Buy Now and Hold for the Long Term](https://finance.yahoo.com/news/4-brilliant-growth-stocks-buy-082000076.html)
-- May 27 - [Sao Paulo moves to end area known as Crackland as residents scatter and cry foul against police](https://www.yahoo.com/news/sao-paulo-moves-end-area-054210440.html)
+- May 27 - [Tesla sales plunge in Europe, with no sign of boost from new model](https://finance.yahoo.com/video/tesla-sales-plunge-europe-no-093857419.html)
+- May 27 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417696.html)
+- May 27 - [Grow Erie facility produces lettuce and herbs in Savocchio Park. It also makes a statement](https://www.yahoo.com/news/grow-erie-facility-produces-lettuce-091126189.html)
+- May 27 - [Posts falsely claim Australian arrested for trying to take out cash](https://www.yahoo.com/news/posts-falsely-claim-australian-arrested-085914825.html)
+- May 27 - [Germany's Merz: 'No illusions' over quick end to conflict in Ukraine](https://www.yahoo.com/news/germanys-merz-no-illusions-over-083923832.html)
 <!-- feed end -->
 
 ### Onstream
