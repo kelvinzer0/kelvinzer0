@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [New Zealand teenager dies after tackle game linked to viral Run It Straight challenge](https://www.yahoo.com/news/zealand-teenager-dies-tackle-game-055216866.html)
+- May 27 - [China warns its leftover men against ‘buying foreign wives’](https://www.yahoo.com/news/china-warns-leftover-men-against-111839137.html)
+- May 27 - [Judge is stabbed to death in southern Iran](https://www.yahoo.com/news/judge-stabbed-death-southern-iran-072634447.html)
 - May 27 - [Exclusive-China regulator summons automakers to discuss 'zero-mileage' used car sales](https://finance.yahoo.com/news/exclusive-china-regulator-summons-automakers-031155553.html)
-- May 27 - [India and Pakistan's drone battles mark new arms race in Asia](https://www.yahoo.com/news/india-pakistans-drone-battles-mark-023325413.html)
 - May 27 - [Driver who killed Las Vegas police officer was nearly 3 times legal limit in wrong-way crash](https://www.yahoo.com/news/driver-killed-las-vegas-police-021940297.html)
 - May 27 - [Jake Tapper Says Cover-Up of Biden’s Mental Decline ‘May Be Even Worse Than Watergate’](https://www.yahoo.com/news/jake-tapper-says-cover-biden-011048868.html)
 <!-- feed end -->
