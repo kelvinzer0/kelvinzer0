@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Elon Musk pledges his own RTO as Tesla sales continue to weaken](https://finance.yahoo.com/news/elon-musk-pledges-his-own-rto-as-tesla-sales-continue-to-weaken-145628557.html)
-- May 27 - ['Abhorrent': EU's von der Leyen slams Israeli offensive in Gaza](https://www.yahoo.com/news/abhorrent-eus-von-der-leyen-142423243.html)
-- May 27 - [Left-wing hammer thrower delivers blow to Meloni](https://www.yahoo.com/news/left-wing-hammer-thrower-delivers-140519935.html)
-- May 27 - [The Supreme Court rejects a plea to block a copper mine on land in Arizona that's sacred to Apaches](https://www.yahoo.com/news/supreme-court-rejects-plea-block-134305728.html)
-- May 27 - [US Supreme Court rejects case about student's 'There are only two genders' T-shirt](https://www.yahoo.com/news/us-supreme-court-rejects-case-134026163.html)
+- May 27 - [After March’s low point, Western Europe’s diesel share rallied a little in April – GlobalData](https://finance.yahoo.com/news/march-low-point-western-europe-154628902.html)
+- May 27 - [Memorial Day shooting at Cascades Park was accidental, police say](https://www.yahoo.com/news/memorial-day-shooting-cascades-park-154612611.html)
+- May 27 - [Port St. Lucie woman dies in crash; police investigation ongoing](https://www.yahoo.com/news/port-st-lucie-woman-dies-154150227.html)
+- May 27 - [A former aide says Sean 'Diddy' Combs kidnapped her in a plot to kill Kid Cudi](https://www.yahoo.com/news/ex-combs-aide-testifies-music-152954557.html)
+- May 27 - [Trump Throws Wild New Wrench in EU Tariff Talks](https://www.yahoo.com/news/trump-throws-wild-wrench-eu-151610726.html)
 <!-- feed end -->
 
 ### Onstream
