@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Home prices are still rising, but at a slower rate: What to know](https://finance.yahoo.com/video/home-prices-still-rising-slower-165530530.html)
-- May 27 - [Trump Issues Not-So-Coincidental Pardon of Massive Tax Cheat](https://www.yahoo.com/news/trump-issues-not-coincidental-pardon-165129375.html)
-- May 27 - [Wisconsin Supreme Court suspends judge who left court to arrest a hospitalized defendant](https://www.yahoo.com/news/wisconsin-supreme-court-suspends-judge-163728561.html)
-- May 27 - [A former aide says Sean 'Diddy' Combs kidnapped her in a plot to kill Kid Cudi](https://www.yahoo.com/news/ex-combs-aide-testifies-music-152954557.html)
-- May 27 - [Elon Musk pledges his own RTO as Tesla sales continue to weaken](https://finance.yahoo.com/news/elon-musk-pledges-his-own-rto-as-tesla-sales-continue-to-weaken-145628557.html)
+- May 27 - [Tesla's monthly sales in Europe plunge by almost 50% amid backlash against Elon Musk, AP Explains](https://www.yahoo.com/news/teslas-monthly-sales-europe-plunge-181328241.html)
+- May 27 - [Thousands rush into new aid distribution centre in south Gaza](https://www.yahoo.com/news/thousands-rush-aid-distribution-centre-174649127.html)
+- May 27 - [Texas poised to enforce age verification on Apple, Google app stores](https://finance.yahoo.com/video/texas-poised-enforce-age-verification-171524079.html)
+- May 27 - [TSLA: Tesla Stock Soars Despite China and Europe Sales Plunge](https://finance.yahoo.com/news/tsla-tesla-stock-soars-despite-165021470.html)
+- May 27 - [Trump's tariff revenue has already topped $22 billion in May](https://finance.yahoo.com/news/trumps-tariff-revenue-has-already-topped-22-billion-in-may-163443155.html)
 <!-- feed end -->
 
 ### Onstream
