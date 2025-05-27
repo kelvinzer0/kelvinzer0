@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Tommy Robinson released from prison after ‘change in attitude’](https://www.yahoo.com/news/tommy-robinson-released-prison-100404103.html)
-- May 27 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417032.html)
-- May 27 - [Three Value Stocks Estimated To Be Below Their Intrinsic Worth In May 2025](https://finance.yahoo.com/news/three-value-stocks-estimated-below-113758403.html)
-- May 27 - [3 Texas cities land on US News' top 10 best places to live list — and they're all suburbs](https://www.yahoo.com/news/3-texas-cities-land-us-110107619.html)
+- May 27 - [NPR sues Trump administration over executive order to cut finding to public media](https://www.yahoo.com/news/npr-sues-trump-administration-over-131602045.html)
+- May 27 - [Macron team in chaos over Brigitte ‘shove’](https://www.yahoo.com/news/macron-team-chaos-over-brigitte-122558415.html)
+- May 27 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417696.html)
+- May 27 - [White House stunned as Hegseth inquiry brings up illegal wiretap claims](https://www.yahoo.com/news/white-house-stunned-hegseth-inquiry-110049756.html)
 - May 27 - [This Mississippi man is out nearly $100,000 after purchasing solar panels — only to find that they don’t work](https://www.yahoo.com/news/mississippi-man-nearly-100-000-110000292.html)
 <!-- feed end -->
 
