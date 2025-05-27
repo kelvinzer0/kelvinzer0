@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [US aid kept many hungry Somali children alive. Now that money is disappearing](https://www.yahoo.com/news/us-aid-kept-many-hungry-030123140.html)
-- May 27 - [Chinese-owned Volvo Cars to cut 3,000 jobs](https://finance.yahoo.com/news/chinese-owned-volvo-cars-cut-020354650.html)
-- May 27 - [1 hurt after shooting at south Charlotte apartment complex](https://www.yahoo.com/news/1-hurt-shooting-south-charlotte-203209530.html)
-- May 27 - [Jake Tapper Says Cover-Up of Biden’s Mental Decline ‘May Be Even Worse Than Watergate’](https://www.yahoo.com/news/jake-tapper-says-cover-biden-011048868.html)
+- May 27 - [Argentina's President Javier Milei to receive $1M Genesis Prize in Israel](https://www.yahoo.com/news/argentinas-president-javier-milei-receive-035857762.html)
+- May 27 - [Driver who killed Las Vegas police officer was nearly 3 times legal limit in wrong-way crash](https://www.yahoo.com/news/driver-killed-las-vegas-police-021940297.html)
+- May 27 - [Developing nations face 'tidal wave' of China debt: report](https://www.yahoo.com/news/developing-nations-face-tidal-wave-015723311.html)
 - May 27 - [3 more of the 10 escapees from a New Orleans jail are captured, leaving 2 on the run, officials say](https://www.yahoo.com/news/authorities-theyve-captured-three-more-010244716.html)
+- May 27 - [Coca-Cola unveils innovative 'reverse vending machines' that could be game-changers for consumers: 'Set a precedent'](https://www.yahoo.com/news/coca-cola-unveils-innovative-reverse-104539538.html)
 <!-- feed end -->
 
 ### Onstream
