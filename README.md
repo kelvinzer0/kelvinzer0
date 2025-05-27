@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 27 - [US aid kept many hungry Somali children alive. Now that money is disappearing](https://www.yahoo.com/news/us-aid-kept-many-hungry-030123140.html)
+- May 27 - [Chinese-owned Volvo Cars to cut 3,000 jobs](https://finance.yahoo.com/news/chinese-owned-volvo-cars-cut-020354650.html)
+- May 27 - [1 hurt after shooting at south Charlotte apartment complex](https://www.yahoo.com/news/1-hurt-shooting-south-charlotte-203209530.html)
+- May 27 - [Jake Tapper Says Cover-Up of Biden’s Mental Decline ‘May Be Even Worse Than Watergate’](https://www.yahoo.com/news/jake-tapper-says-cover-biden-011048868.html)
 - May 27 - [3 more of the 10 escapees from a New Orleans jail are captured, leaving 2 on the run, officials say](https://www.yahoo.com/news/authorities-theyve-captured-three-more-010244716.html)
-- May 27 - [Meet the Monster Quantum Computing Stock That Continues to Crush the Market](https://finance.yahoo.com/news/meet-monster-quantum-computing-stock-004500330.html)
-- May 27 - [Stock market today: Dow, S&P 500, Nasdaq futures leap as EU tariff delay bolsters market optimism](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-leap-as-eu-tariff-delay-bolsters-market-optimism-000114061.html)
-- May 26 - [Donald Trump grows angrier as Vladimir Putin exposes his impotence](https://www.yahoo.com/news/donald-trump-grows-angrier-vladimir-233417696.html)
-- May 26 - [Trump pardons former sheriff convicted of bribery](https://www.yahoo.com/news/trump-pardons-former-sheriff-convicted-210530937.html)
 <!-- feed end -->
 
 ### Onstream
