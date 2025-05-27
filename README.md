@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 27 - [Fact Check: Yes, 13.7M in US may lose health insurance as Democrats claim — but GOP bill isn't only culprit](https://www.yahoo.com/news/fact-check-yes-13-7m-220400809.html)
+- May 27 - [United is narrowing its check-in window for US flights. Here's how it compares to other airlines](https://www.yahoo.com/news/united-narrowing-check-window-us-215435148.html)
 - May 27 - [A new Covid variant surging in Asia is now spreading across the US. Here’s where it is and what to know](https://www.yahoo.com/news/covid-variant-surging-asia-now-155618457.html)
 - May 27 - [Why Nvidia's next moves have investors watching closely](https://finance.yahoo.com/video/why-nvidias-next-moves-investors-213844748.html)
-- May 27 - [Trump campaign against law firms dealt another setback as judge blocks executive order](https://www.yahoo.com/news/trump-campaign-against-law-firms-213032232.html)
 - May 27 - [Todd and Julie Chrisley Pardoned by President Donald Trump in Bank Fraud and Tax Evasion Case](https://www.yahoo.com/news/todd-julie-chrisley-officially-pardoned-212645265.html)
-- May 27 - [State says Burke County train cabins can’t be used for permanent housing](https://www.yahoo.com/news/state-says-burke-county-train-211500340.html)
 <!-- feed end -->
 
 ### Onstream
