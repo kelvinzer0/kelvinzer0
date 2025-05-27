@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Netanyahu says more aid distribution points to be set up in Gaza](https://www.yahoo.com/news/netanyahu-says-more-aid-distribution-204812647.html)
-- May 27 - [Dissecting Trump's US Steel–Nippon partnership announcement](https://finance.yahoo.com/video/dissecting-trumps-us-steel-nippon-204403288.html)
-- May 27 - [Rigetti Founder Launches New Quantum Firm to Boost AI](https://finance.yahoo.com/video/rigetti-founder-launches-quantum-firm-204216173.html)
-- May 27 - [Indiana man charged with stabbing man in fight with 2 Knicks fans at bar showing Knicks-Pacers Game 2](https://sports.yahoo.com/nba/breaking-news/article/indiana-man-charged-with-stabbing-man-in-fight-with-2-knicks-fans-at-bar-showing-knicks-pacers-game-2-204005396.html)
-- May 27 - [How Trump Plans to Avoid a Potential Third Impeachment](https://www.yahoo.com/news/trump-plans-avoid-potential-third-202829462.html)
+- May 27 - [A new Covid variant surging in Asia is now spreading across the US. Here’s where it is and what to know](https://www.yahoo.com/news/covid-variant-surging-asia-now-155618457.html)
+- May 27 - [Why Nvidia's next moves have investors watching closely](https://finance.yahoo.com/video/why-nvidias-next-moves-investors-213844748.html)
+- May 27 - [Trump campaign against law firms dealt another setback as judge blocks executive order](https://www.yahoo.com/news/trump-campaign-against-law-firms-213032232.html)
+- May 27 - [Todd and Julie Chrisley Pardoned by President Donald Trump in Bank Fraud and Tax Evasion Case](https://www.yahoo.com/news/todd-julie-chrisley-officially-pardoned-212645265.html)
+- May 27 - [State says Burke County train cabins can’t be used for permanent housing](https://www.yahoo.com/news/state-says-burke-county-train-211500340.html)
 <!-- feed end -->
 
 ### Onstream
