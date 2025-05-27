@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [S&P 500 jumps 2% on EU tariff delay, consumer confidence data](https://finance.yahoo.com/video/p-500-jumps-2-eu-201505571.html)
-- May 27 - [Zelensky vows to boost Ukrainian arms production](https://www.yahoo.com/news/zelensky-vows-boost-ukrainian-arms-195430299.html)
-- May 27 - [GOP-led committee advances voter suppression bill related to Washington, D.C., elections](https://www.yahoo.com/news/gop-led-committee-advances-voter-191728366.html)
-- May 27 - [State Department orders embassies to pause new student visa appointments as it moves to expand social media vetting](https://www.yahoo.com/news/state-department-orders-embassies-pause-175447051.html)
-- May 27 - [Meta reportedly splits its AI team to build products faster](https://finance.yahoo.com/news/meta-reportedly-splits-ai-team-191234151.html)
+- May 27 - [Netanyahu says more aid distribution points to be set up in Gaza](https://www.yahoo.com/news/netanyahu-says-more-aid-distribution-204812647.html)
+- May 27 - [Dissecting Trump's US Steel–Nippon partnership announcement](https://finance.yahoo.com/video/dissecting-trumps-us-steel-nippon-204403288.html)
+- May 27 - [Rigetti Founder Launches New Quantum Firm to Boost AI](https://finance.yahoo.com/video/rigetti-founder-launches-quantum-firm-204216173.html)
+- May 27 - [Indiana man charged with stabbing man in fight with 2 Knicks fans at bar showing Knicks-Pacers Game 2](https://sports.yahoo.com/nba/breaking-news/article/indiana-man-charged-with-stabbing-man-in-fight-with-2-knicks-fans-at-bar-showing-knicks-pacers-game-2-204005396.html)
+- May 27 - [How Trump Plans to Avoid a Potential Third Impeachment](https://www.yahoo.com/news/trump-plans-avoid-potential-third-202829462.html)
 <!-- feed end -->
 
 ### Onstream
