@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 27 - [A new Covid variant surging in Asia is now spreading across the US. Here’s where it is and what to know](https://www.yahoo.com/news/covid-variant-surging-asia-now-155618457.html)
+- May 27 - [Maryland Democrat says he was denied access to Abrego Garcia in El Salvador](https://www.yahoo.com/news/maryland-democrat-says-denied-access-184011688.html)
+- May 27 - [Israeli troops open fire as aid group loses control of distribution centre](https://www.yahoo.com/news/israeli-troops-open-fire-aid-183234183.html)
 - May 27 - [Tesla's monthly sales in Europe plunge by almost 50% amid backlash against Elon Musk, AP Explains](https://www.yahoo.com/news/teslas-monthly-sales-europe-plunge-181328241.html)
-- May 27 - [Thousands rush into new aid distribution centre in south Gaza](https://www.yahoo.com/news/thousands-rush-aid-distribution-centre-174649127.html)
-- May 27 - [Texas poised to enforce age verification on Apple, Google app stores](https://finance.yahoo.com/video/texas-poised-enforce-age-verification-171524079.html)
-- May 27 - [TSLA: Tesla Stock Soars Despite China and Europe Sales Plunge](https://finance.yahoo.com/news/tsla-tesla-stock-soars-despite-165021470.html)
-- May 27 - [Trump's tariff revenue has already topped $22 billion in May](https://finance.yahoo.com/news/trumps-tariff-revenue-has-already-topped-22-billion-in-may-163443155.html)
+- May 27 - [‘Widow Maker’ Bond-ETF Trade Delivers Fast Gains for Dip-Buyers](https://finance.yahoo.com/news/widow-maker-bond-etf-trade-181113850.html)
 <!-- feed end -->
 
 ### Onstream
