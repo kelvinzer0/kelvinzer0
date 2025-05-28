@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 28 - [Bitcoin conference: DJT, GameStop, & more race to buy bitcoin](https://finance.yahoo.com/video/bitcoin-conference-djt-gamestop-more-161225855.html)
-- May 28 - [German court throws out Peruvian farmer's climate case against RWE](https://www.yahoo.com/news/german-court-throws-peruvian-farmers-154236492.html)
+- May 28 - [Couple With $38K Salary Loses $300K While Day Trading, Dave Ramsey Asks, 'Where Did You Have $300K That You Could Lose?'](https://finance.yahoo.com/news/couple-38k-salary-loses-300k-154552673.html)
 - May 28 - [Sean 'Diddy' Combs loses mistrial bid in sex trafficking trial](https://www.yahoo.com/news/sean-diddy-combs-lawyer-seeks-151700651.html)
 - May 28 - [King Charles Supporters Outraged by ‘Disrespectful’ Gesture in Historic Moment](https://www.yahoo.com/news/king-charles-supporters-outraged-disrespectful-144702744.html)
-- May 28 - [Podcasting, alcohol branding, and consulting: What we know about Kimberly Guilfoyle's multimillion-dollar fortune](https://finance.yahoo.com/news/podcasting-alcohol-branding-consulting-know-140320206.html)
+- May 28 - [Trump Branded With Embarrassing Nickname Over Tariff Confusion](https://finance.yahoo.com/news/trump-branded-embarrassing-nickname-over-141414029.html)
 <!-- feed end -->
 
 ### Onstream
