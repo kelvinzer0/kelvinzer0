@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Elon Musk says Trump's "big, beautiful bill" undermines work of DOGE team](https://www.yahoo.com/news/elon-musk-says-trumps-big-005032669.html)
-- May 28 - [Starship fumbled its 3rd flight in a row. It's another setback for Elon Musk.](https://www.yahoo.com/news/starship-fumbled-3rd-flight-row-002742153.html)
-- May 27 - [Ex-NBA star Shawn Kemp pleads guilty to assault charge in Washington parking lot shooting](https://www.yahoo.com/news/ex-nba-star-shawn-kemp-230609409.html)
+- May 28 - [Elon Musk Dumps On Trump's 'Big, Beautiful Bill'](https://www.yahoo.com/news/elon-musk-dumps-trumps-big-030350221.html)
+- May 28 - [Chris Hayes Says the Silver Lining in Trump’s Attacks on American Institutions Is That They Have ‘No Choice but to Fight Back’ | Video](https://www.yahoo.com/news/chris-hayes-says-silver-lining-022940405.html)
+- May 28 - [Gunman sought after multiple people shot inside New England mall, police say](https://www.yahoo.com/news/multiple-people-shot-gunfire-erupts-223205083.html)
+- May 28 - [President of Finland says Putin made one of the biggest strategic and tactical mistakes in recent military history](https://www.yahoo.com/news/president-finland-says-putin-made-014845586.html)
 - May 27 - [Fact Check: Unpacking claim Trump left West Point graduation early without honoring diploma ceremony tradition, then played golf](https://www.yahoo.com/news/fact-check-unpacking-claim-trump-230100442.html)
-- May 27 - [Gunman sought after multiple people shot inside New England mall, police say](https://www.yahoo.com/news/multiple-people-shot-gunfire-erupts-223205083.html)
 <!-- feed end -->
 
 ### Onstream
