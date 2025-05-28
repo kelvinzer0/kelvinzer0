@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [With Trump tariff jitters, S&P 500 to finish year nearly even with 2024: Reuters poll](https://finance.yahoo.com/news/trump-tariff-jitters-p-500-121137194.html)
-- May 28 - [After a 15-year battle, Harvard agrees in settlement to relinquish early photos of slaves](https://www.yahoo.com/news/15-battle-harvard-agrees-settlement-121026330.html)
-- May 28 - [1 Top Cryptocurrency to Buy Before It Soars 9,105%, According to MicroStrategy's Co-Founder Michael Saylor](https://finance.yahoo.com/news/1-top-cryptocurrency-buy-soars-111500004.html)
-- May 28 - [I was 22 and I knew I was dying, I screamed 'I'm having a heart attack'](https://www.yahoo.com/lifestyle/heart-attack-dvt-blood-clot-110247303.html)
+- May 28 - [I swapped my Tesla for a BYD after getting frustrated with Elon Musk. It was the right decision, but there are some things I miss.](https://finance.yahoo.com/news/swapped-tesla-byd-getting-frustrated-114326908.html)
+- May 28 - [Exclusive-China's most advanced bombers seen on disputed South China Sea island](https://www.yahoo.com/news/exclusive-chinas-most-advanced-bombers-110220964.html)
+- May 28 - [After seeing land sinking in Red Bluff and Corning areas, Tehama County calls meeting](https://www.yahoo.com/news/seeing-land-sinking-red-bluff-110145718.html)
 - May 28 - [22 Things That Will Probably Change Society In The Next 10-15 Years That No One Is Talking About](https://www.yahoo.com/lifestyle/22-things-probably-change-society-103104562.html)
+- May 28 - [Kayleigh McEnany Makes Chilling Demand For ‘60 Minutes’ Reporter Over Anti-Trump Speech](https://www.yahoo.com/news/kayleigh-mcenany-makes-chilling-demand-102947931.html)
 <!-- feed end -->
 
 ### Onstream
