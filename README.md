@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 28 - [New Covid variant spreading from Asia now surges across US — what is it and where is it spreading](https://www.yahoo.com/news/covid-variant-surging-asia-now-155618457.html)
 - May 28 - [India's alarm over Chinese spying rocks the surveillance industry](https://finance.yahoo.com/news/indias-alarm-over-chinese-spying-033233284.html)
 - May 28 - [Elon Musk Dumps On Trump's 'Big, Beautiful Bill'](https://www.yahoo.com/news/elon-musk-dumps-trumps-big-030350221.html)
 - May 28 - [People's Park Complex's new red-and-white colour scheme not specifically for SG60; South Korean actor Choi Jung Woo of 'City Hunter' fame dies: Singapore Live news](https://www.yahoo.com/news/live/peoples-park-complexs-new-red-and-white-colour-scheme-not-specifically-for-sg60-south-korean-actor-choi-jung-woo-of-city-hunter-fame-dies-singapore-live-news-023356288.html)
 - May 28 - [Chris Hayes Says the Silver Lining in Trump’s Attacks on American Institutions Is That They Have ‘No Choice but to Fight Back’ | Video](https://www.yahoo.com/news/chris-hayes-says-silver-lining-022940405.html)
-- May 28 - [Gunman sought after multiple people shot inside New England mall, police say](https://www.yahoo.com/news/multiple-people-shot-gunfire-erupts-223205083.html)
 <!-- feed end -->
 
 ### Onstream
