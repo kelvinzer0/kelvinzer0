@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Fact Check: Yes, 13.7M in US may lose health insurance as Democrats claim — but GOP bill isn't only culprit](https://www.yahoo.com/news/fact-check-yes-13-7m-220400809.html)
-- May 27 - [United is narrowing its check-in window for US flights. Here's how it compares to other airlines](https://www.yahoo.com/news/united-narrowing-check-window-us-215435148.html)
-- May 27 - [A new Covid variant surging in Asia is now spreading across the US. Here’s where it is and what to know](https://www.yahoo.com/news/covid-variant-surging-asia-now-155618457.html)
-- May 27 - [Why Nvidia's next moves have investors watching closely](https://finance.yahoo.com/video/why-nvidias-next-moves-investors-213844748.html)
-- May 27 - [Todd and Julie Chrisley Pardoned by President Donald Trump in Bank Fraud and Tax Evasion Case](https://www.yahoo.com/news/todd-julie-chrisley-officially-pardoned-212645265.html)
+- May 28 - [Elon Musk says Trump's "big, beautiful bill" undermines work of DOGE team](https://www.yahoo.com/news/elon-musk-says-trumps-big-005032669.html)
+- May 28 - [Starship fumbled its 3rd flight in a row. It's another setback for Elon Musk.](https://www.yahoo.com/news/starship-fumbled-3rd-flight-row-002742153.html)
+- May 27 - [Ex-NBA star Shawn Kemp pleads guilty to assault charge in Washington parking lot shooting](https://www.yahoo.com/news/ex-nba-star-shawn-kemp-230609409.html)
+- May 27 - [Fact Check: Unpacking claim Trump left West Point graduation early without honoring diploma ceremony tradition, then played golf](https://www.yahoo.com/news/fact-check-unpacking-claim-trump-230100442.html)
+- May 27 - [Gunman sought after multiple people shot inside New England mall, police say](https://www.yahoo.com/news/multiple-people-shot-gunfire-erupts-223205083.html)
 <!-- feed end -->
 
 ### Onstream
