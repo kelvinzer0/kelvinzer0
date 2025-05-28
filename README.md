@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Trump administration cancels Sunnova Energy $3 billion loan, Bloomberg News reports](https://finance.yahoo.com/news/trump-administration-cancels-sunnova-energy-214108334.html)
-- May 28 - [‘It’s only getting worse’: Hegseth issues changes to fix military moving issues](https://www.yahoo.com/news/only-getting-worse-hegseth-issues-212222320.html)
+- May 28 - [Judge Steals 1 Of Trump’s Moves To Emphasize How Dumb His Executive Order Is](https://www.yahoo.com/news/judge-steals-1-trump-moves-222324204.html)
 - May 28 - [Yeah, So This Republican Lawmaker Said He Doesn't Drink Out Of Straws Because "That's What The Women In My House Do"](https://www.yahoo.com/news/yeah-republican-lawmaker-said-doesnt-210036626.html)
-- May 28 - [On Her First Day of Daycare, a Toddler Never Woke Up from Her Nap — Now an Employee Is Charged](https://www.yahoo.com/news/her-first-day-daycare-toddler-204913544.html)
+- May 28 - [4 Washington cities rank as 'best places' to live in nation, US News finds](https://www.yahoo.com/lifestyle/4-washington-cities-rank-best-204243744.html)
 - May 28 - [Was Barron Trump Rejected From Harvard? The White House Says…](https://www.yahoo.com/entertainment/articles/barron-trump-rejected-harvard-white-191200139.html)
+- May 28 - [Trump responds to Musk saying he's 'disappointed' in big tax bill](https://www.yahoo.com/news/trump-responds-musk-saying-hes-191021217.html)
 <!-- feed end -->
 
 ### Onstream
