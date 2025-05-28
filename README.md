@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Famous Investor Identifies Snowflake (SNOW) as One of the Market’s Top Stocks](https://finance.yahoo.com/news/famous-investor-identifies-snowflake-snow-142119706.html)
-- May 28 - [Harvard agrees to relinquish early photos of slaves, ending a long legal battle](https://www.yahoo.com/news/15-battle-harvard-agrees-settlement-121026330.html)
-- May 28 - [6 tons of cocaine seized from "narco sub" and buried stashes, videos show](https://www.yahoo.com/news/6-tons-cocaine-seized-narco-103233471.html)
-- May 28 - [Trump’s souring on Putin raises questions about MAGA base](https://www.yahoo.com/news/trump-souring-putin-raises-questions-120000043.html)
-- May 28 - [I swapped my Tesla for a BYD after getting frustrated with Elon Musk. It was the right decision, but there are some things I miss.](https://finance.yahoo.com/news/swapped-tesla-byd-getting-frustrated-114326908.html)
+- May 28 - [Bitcoin conference: DJT, GameStop, & more race to buy bitcoin](https://finance.yahoo.com/video/bitcoin-conference-djt-gamestop-more-161225855.html)
+- May 28 - [German court throws out Peruvian farmer's climate case against RWE](https://www.yahoo.com/news/german-court-throws-peruvian-farmers-154236492.html)
+- May 28 - [Sean 'Diddy' Combs loses mistrial bid in sex trafficking trial](https://www.yahoo.com/news/sean-diddy-combs-lawyer-seeks-151700651.html)
+- May 28 - [King Charles Supporters Outraged by ‘Disrespectful’ Gesture in Historic Moment](https://www.yahoo.com/news/king-charles-supporters-outraged-disrespectful-144702744.html)
+- May 28 - [Podcasting, alcohol branding, and consulting: What we know about Kimberly Guilfoyle's multimillion-dollar fortune](https://finance.yahoo.com/news/podcasting-alcohol-branding-consulting-know-140320206.html)
 <!-- feed end -->
 
 ### Onstream
