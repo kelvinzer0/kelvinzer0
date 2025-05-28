@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Russia masses over 50,000 troops for offensive on northeastern Ukraine, Zelenskiy says](https://www.yahoo.com/news/zelenskiy-says-russia-gathered-50-070225262.html)
+- May 28 - [CNN Data Chief’s Hilarious Hand Gesture About Trump Tariffs Says It All](https://www.yahoo.com/news/cnn-data-chief-hilarious-hand-081555533.html)
+- May 28 - [Government makes sweeping move to eliminate common item from store shelves: 'We are urging local businesses to plan accordingly'](https://www.yahoo.com/news/government-makes-sweeping-move-eliminate-101535173.html)
 - May 28 - [New Covid variant spreading from Asia now surges across US — what is it and where is it spreading](https://www.yahoo.com/news/covid-variant-surging-asia-now-155618457.html)
+- May 28 - [Outrage erupts after Trump’s Chrisley pardon as critics condemn what it says about president’s regard for the law](https://www.yahoo.com/news/outrage-erupts-trump-chrisley-pardon-040929096.html)
 - May 28 - [India's alarm over Chinese spying rocks the surveillance industry](https://finance.yahoo.com/news/indias-alarm-over-chinese-spying-033233284.html)
-- May 28 - [Elon Musk Dumps On Trump's 'Big, Beautiful Bill'](https://www.yahoo.com/news/elon-musk-dumps-trumps-big-030350221.html)
-- May 28 - [People's Park Complex's new red-and-white colour scheme not specifically for SG60; South Korean actor Choi Jung Woo of 'City Hunter' fame dies: Singapore Live news](https://www.yahoo.com/news/live/peoples-park-complexs-new-red-and-white-colour-scheme-not-specifically-for-sg60-south-korean-actor-choi-jung-woo-of-city-hunter-fame-dies-singapore-live-news-023356288.html)
 <!-- feed end -->
 
 ### Onstream
