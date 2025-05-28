@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 28 - [Market expert sees opportunity in non-US stocks](https://finance.yahoo.com/video/market-expert-sees-opportunity-non-204047898.html)
+- May 28 - [Hailey Bieber sells makeup brand Rhode to Elf Beauty in $1 billion deal](https://finance.yahoo.com/news/hailey-bieber-sells-makeup-brand-201203875.html)
+- May 28 - [Was Barron Trump Rejected From Harvard? The White House Says…](https://www.yahoo.com/entertainment/articles/barron-trump-rejected-harvard-white-191200139.html)
 - May 28 - [Trump responds to Musk saying he's 'disappointed' in big tax bill](https://www.yahoo.com/news/trump-responds-musk-saying-hes-191021217.html)
-- May 28 - [“Don’t Ever Say What You Said”: Donald Trump Fumes At Reporter For Asking About Wall Street’s Notion That He Always “Chickens Out” On Tariffs](https://www.yahoo.com/news/don-t-ever-said-donald-173100585.html)
-- May 28 - [BMW Just Unveiled the Most Powerful Rear-Wheel Drive M Car Yet](https://autos.yahoo.com/bmw-just-unveiled-most-powerful-170000186.html)
-- May 28 - [Second suspect identified in beating of NYPD officer](https://www.yahoo.com/news/second-suspect-identified-beating-nypd-164852100.html)
-- May 28 - [Toyota recalls over 440,000 vehicles. See impacted models.](https://autos.yahoo.com/toyota-recalls-over-440-000-160818142.html)
+- May 28 - [Judge: Harvard researcher charged with smuggling frog embryos was unlawfully detained by ICE](https://www.yahoo.com/news/judge-harvard-researcher-charged-smuggling-175105192.html)
 <!-- feed end -->
 
 ### Onstream
