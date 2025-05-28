@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [White House asks supreme court to block challenges to deportations to South Sudan](https://www.yahoo.com/news/white-house-asks-supreme-court-134006935.html)
-- May 28 - [Wendy's offering 1-cent Jr. Bacon Cheeseburgers for 5 days – with a catch](https://www.yahoo.com/lifestyle/wendys-offering-1-cent-jr-123225303.html)
+- May 28 - [Famous Investor Identifies Snowflake (SNOW) as One of the Market’s Top Stocks](https://finance.yahoo.com/news/famous-investor-identifies-snowflake-snow-142119706.html)
+- May 28 - [Harvard agrees to relinquish early photos of slaves, ending a long legal battle](https://www.yahoo.com/news/15-battle-harvard-agrees-settlement-121026330.html)
 - May 28 - [6 tons of cocaine seized from "narco sub" and buried stashes, videos show](https://www.yahoo.com/news/6-tons-cocaine-seized-narco-103233471.html)
+- May 28 - [Trump’s souring on Putin raises questions about MAGA base](https://www.yahoo.com/news/trump-souring-putin-raises-questions-120000043.html)
 - May 28 - [I swapped my Tesla for a BYD after getting frustrated with Elon Musk. It was the right decision, but there are some things I miss.](https://finance.yahoo.com/news/swapped-tesla-byd-getting-frustrated-114326908.html)
-- May 28 - [Scientists achieve stunning energy breakthrough with tech borrowed from video games: 'A crucial technological innovation'](https://tech.yahoo.com/science/articles/scientists-achieve-stunning-energy-breakthrough-111525045.html)
 <!-- feed end -->
 
 ### Onstream
