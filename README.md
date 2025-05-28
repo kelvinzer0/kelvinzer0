@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [California man’s 378-year sentence overturned after judge rules accuser may have made up charges](https://www.yahoo.com/news/california-man-378-sentence-overturned-180810010.html)
-- May 28 - [Trump: ‘Yes, I did’ tell Israel’s Netanyahu to stand down on Iran strike amid nuke deal push](https://www.yahoo.com/news/trump-confirms-telling-israel-netanyahu-171504590.html)
-- May 28 - [Judge: Harvard researcher charged with smuggling frog embryos was unlawfully detained by ICE](https://www.yahoo.com/news/judge-harvard-researcher-charged-smuggling-175105192.html)
+- May 28 - [Trump responds to Musk saying he's 'disappointed' in big tax bill](https://www.yahoo.com/news/trump-responds-musk-saying-hes-191021217.html)
 - May 28 - [“Don’t Ever Say What You Said”: Donald Trump Fumes At Reporter For Asking About Wall Street’s Notion That He Always “Chickens Out” On Tariffs](https://www.yahoo.com/news/don-t-ever-said-donald-173100585.html)
-- May 28 - [What to know about a cholera outbreak in Susan that has killed over 170 people](https://www.yahoo.com/news/know-cholera-outbreak-susan-killed-164253768.html)
+- May 28 - [BMW Just Unveiled the Most Powerful Rear-Wheel Drive M Car Yet](https://autos.yahoo.com/bmw-just-unveiled-most-powerful-170000186.html)
+- May 28 - [Second suspect identified in beating of NYPD officer](https://www.yahoo.com/news/second-suspect-identified-beating-nypd-164852100.html)
+- May 28 - [Toyota recalls over 440,000 vehicles. See impacted models.](https://autos.yahoo.com/toyota-recalls-over-440-000-160818142.html)
 <!-- feed end -->
 
 ### Onstream
