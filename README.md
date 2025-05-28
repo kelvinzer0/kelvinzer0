@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Judge spares Trump from massive DOGE lawsuit — leaving Elon Musk holding the bag for ‘unauthorized role’](https://www.yahoo.com/news/judge-spares-trump-massive-doge-173544629.html)
+- May 28 - [California man’s 378-year sentence overturned after judge rules accuser may have made up charges](https://www.yahoo.com/news/california-man-378-sentence-overturned-180810010.html)
+- May 28 - [Trump: ‘Yes, I did’ tell Israel’s Netanyahu to stand down on Iran strike amid nuke deal push](https://www.yahoo.com/news/trump-confirms-telling-israel-netanyahu-171504590.html)
+- May 28 - [Judge: Harvard researcher charged with smuggling frog embryos was unlawfully detained by ICE](https://www.yahoo.com/news/judge-harvard-researcher-charged-smuggling-175105192.html)
 - May 28 - [“Don’t Ever Say What You Said”: Donald Trump Fumes At Reporter For Asking About Wall Street’s Notion That He Always “Chickens Out” On Tariffs](https://www.yahoo.com/news/don-t-ever-said-donald-173100585.html)
-- May 28 - [JD Vance says crypto "has a champion" in White House at Bitcoin conference](https://www.yahoo.com/news/jd-vance-says-crypto-champion-170347225.html)
-- May 28 - [Couple With $38K Salary Loses $300K While Day Trading, Dave Ramsey Asks, 'Where Did You Have $300K That You Could Lose?'](https://finance.yahoo.com/news/couple-38k-salary-loses-300k-154552673.html)
-- May 28 - [Sean 'Diddy' Combs loses mistrial bid in sex trafficking trial](https://www.yahoo.com/news/sean-diddy-combs-lawyer-seeks-151700651.html)
+- May 28 - [What to know about a cholera outbreak in Susan that has killed over 170 people](https://www.yahoo.com/news/know-cholera-outbreak-susan-killed-164253768.html)
 <!-- feed end -->
 
 ### Onstream
