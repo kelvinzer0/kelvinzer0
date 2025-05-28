@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 28 - [With Trump tariff jitters, S&P 500 to finish year nearly even with 2024: Reuters poll](https://finance.yahoo.com/news/trump-tariff-jitters-p-500-121137194.html)
+- May 28 - [After a 15-year battle, Harvard agrees in settlement to relinquish early photos of slaves](https://www.yahoo.com/news/15-battle-harvard-agrees-settlement-121026330.html)
+- May 28 - [1 Top Cryptocurrency to Buy Before It Soars 9,105%, According to MicroStrategy's Co-Founder Michael Saylor](https://finance.yahoo.com/news/1-top-cryptocurrency-buy-soars-111500004.html)
 - May 28 - [I was 22 and I knew I was dying, I screamed 'I'm having a heart attack'](https://www.yahoo.com/lifestyle/heart-attack-dvt-blood-clot-110247303.html)
-- May 28 - [Trump's US Steel-Nippon Steel Deal to Include US 'Golden Share'](https://finance.yahoo.com/video/trumps-us-steel-nippon-steel-105122126.html)
-- May 28 - [Augusta man pleads guilty to filing bogus income tax returns, getting his clients massive refunds](https://www.yahoo.com/news/augusta-man-pleads-guilty-filing-104157922.html)
-- May 28 - [Putin Makes Major Demand To End Ukraine War, Sources Say](https://www.yahoo.com/news/putin-makes-major-demand-end-090648811.html)
-- May 28 - [Wall Street Investors Mock Trump With A Brutal 4-Letter Code Word](https://finance.yahoo.com/news/wall-street-investors-mock-trump-083005218.html)
+- May 28 - [22 Things That Will Probably Change Society In The Next 10-15 Years That No One Is Talking About](https://www.yahoo.com/lifestyle/22-things-probably-change-society-103104562.html)
 <!-- feed end -->
 
 ### Onstream
