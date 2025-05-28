@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [CNN Data Chief’s Hilarious Hand Gesture About Trump Tariffs Says It All](https://www.yahoo.com/news/cnn-data-chief-hilarious-hand-081555533.html)
+- May 28 - [Putin Makes Major Demand To End Ukraine War, Sources Say](https://www.yahoo.com/news/putin-makes-major-demand-end-090648811.html)
+- May 28 - [Wall Street Investors Mock Trump With A Brutal 4-Letter Code Word](https://finance.yahoo.com/news/wall-street-investors-mock-trump-083005218.html)
+- May 28 - [1 Unstoppable Cryptocurrency to Buy Before It Soars 2,101%, According to Cathie Wood's ARK Invest](https://finance.yahoo.com/news/1-unstoppable-cryptocurrency-buy-soars-081400346.html)
+- May 28 - [Russia masses over 50,000 troops for offensive on northeastern Ukraine, Zelenskiy says](https://www.yahoo.com/news/zelenskiy-says-russia-gathered-50-070225262.html)
 - May 28 - [Government makes sweeping move to eliminate common item from store shelves: 'We are urging local businesses to plan accordingly'](https://www.yahoo.com/news/government-makes-sweeping-move-eliminate-101535173.html)
-- May 28 - [New Covid variant spreading from Asia now surges across US — what is it and where is it spreading](https://www.yahoo.com/news/covid-variant-surging-asia-now-155618457.html)
-- May 28 - [Outrage erupts after Trump’s Chrisley pardon as critics condemn what it says about president’s regard for the law](https://www.yahoo.com/news/outrage-erupts-trump-chrisley-pardon-040929096.html)
-- May 28 - [India's alarm over Chinese spying rocks the surveillance industry](https://finance.yahoo.com/news/indias-alarm-over-chinese-spying-033233284.html)
 <!-- feed end -->
 
 ### Onstream
