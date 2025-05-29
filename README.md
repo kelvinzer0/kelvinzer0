@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Second accuser of Sean ‘Diddy’ Combs takes the stand, alleges sexual assault](https://www.yahoo.com/news/second-accuser-sean-diddy-combs-181900728.html)
-- May 29 - [Accused of inappropriate acts with students, ex-teacher's aide charged in Augusta County](https://www.yahoo.com/news/accused-inappropriate-acts-students-ex-175541356.html)
+- May 29 - [White House acknowledges problems in RFK Jr.'s MAHA report](https://www.yahoo.com/news/white-house-acknowledges-problems-rfk-192617295.html)
+- May 29 - [Aldi Is Facing A Lawsuit Over These Copycat Snacks](https://finance.yahoo.com/news/aldi-facing-lawsuit-over-copycat-183622841.html)
+- May 29 - [Army To Retire All Of Its Turboprop Surveillance Planes By The End Of The Year](https://www.yahoo.com/news/army-retire-turboprop-surveillance-planes-174227698.html)
+- May 29 - [Trump posts meme saying he’s ‘on a mission from God’ featuring alt-right symbol Pepe the Frog](https://www.yahoo.com/news/trump-posts-meme-saying-mission-173604233.html)
 - May 29 - [Titan Submersible: What Investigators Found Intact From Wreckage](https://www.yahoo.com/news/titan-submersible-investigators-found-intact-163859313.html)
-- May 29 - [Four Erie County Rite Aid pharmacies to close. Which ones will remain open?](https://www.yahoo.com/news/four-erie-county-rite-aid-155226222.html)
-- May 29 - [Judge considers whether Florida's attorney general should be held in contempt over immigration law](https://www.yahoo.com/news/judge-considers-whether-floridas-attorney-132957952.html)
 <!-- feed end -->
 
 ### Onstream
