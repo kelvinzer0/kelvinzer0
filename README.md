@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 29 - [White House acknowledges problems in RFK Jr.'s MAHA report](https://www.yahoo.com/news/white-house-acknowledges-problems-rfk-192617295.html)
-- May 29 - [Aldi Is Facing A Lawsuit Over These Copycat Snacks](https://finance.yahoo.com/news/aldi-facing-lawsuit-over-copycat-183622841.html)
-- May 29 - [Army To Retire All Of Its Turboprop Surveillance Planes By The End Of The Year](https://www.yahoo.com/news/army-retire-turboprop-surveillance-planes-174227698.html)
-- May 29 - [Trump posts meme saying he’s ‘on a mission from God’ featuring alt-right symbol Pepe the Frog](https://www.yahoo.com/news/trump-posts-meme-saying-mission-173604233.html)
-- May 29 - [Titan Submersible: What Investigators Found Intact From Wreckage](https://www.yahoo.com/news/titan-submersible-investigators-found-intact-163859313.html)
+- May 29 - [Smoke to pour into the US as Canada wildfires force province’s largest evacuation in ‘living memory’](https://www.yahoo.com/news/smoke-pour-us-canada-wildfires-184940157.html)
+- May 29 - [Russia accuses ally Serbia of betrayal for supplying arms to Ukraine](https://www.yahoo.com/news/russa-blasts-slavic-ally-serbia-173322468.html)
+- May 29 - [Michigan Gov. Gretchen Whitmer says she is 'disappointed' that Trump is considering a pardon for men who plotted to kidnap her](https://www.yahoo.com/news/michigan-gov-gretchen-whitmer-says-161249019.html)
+- May 29 - [Musk Takes Stephen Miller’s Wife—as Trump Aide Rage Tweets](https://www.yahoo.com/news/musk-takes-stephen-miller-wife-153011663.html)
 <!-- feed end -->
 
 ### Onstream
