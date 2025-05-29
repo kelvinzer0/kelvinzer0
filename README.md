@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Lawyer says Trump administration revokes parole of Mexican girl receiving lifesaving care in US](https://www.yahoo.com/news/lawyer-says-trump-administration-revokes-224914718.html)
-- May 28 - ['Strangers coming to the house': California woman wants answers after her home was used in a fake rental scam](https://www.yahoo.com/news/strangers-coming-house-california-woman-223000993.html)
+- May 29 - [NASA astronauts Butch and Suni emerge from recovery after long Starliner mission](https://www.yahoo.com/news/nasa-astronauts-butch-suni-emerge-001601293.html)
+- May 29 - [Are You Rich And In Your 60s? Here's the Net Worth It Takes To Be Upper Class](https://finance.yahoo.com/news/rich-60s-heres-net-worth-000149723.html)
+- May 28 - [Judge Steals 1 Of Trump’s Moves To Emphasize How Dumb His Executive Order Is](https://www.yahoo.com/news/judge-steals-1-trump-moves-222324204.html)
+- May 28 - [Another teen arrested in the deadly hit-and-run of a bicyclist posted on social media](https://www.yahoo.com/news/another-teen-arrested-deadly-hit-215249593.html)
 - May 28 - [Google Warns Quantum Computers Could Crack Bitcoin-Like Encryption 20 Times Faster Than Expected](https://finance.yahoo.com/news/google-warns-quantum-computers-could-213112513.html)
-- May 28 - [Trump wants Congress to approve $9 billion in DOGE cuts — including more than $1 billion in cuts to public broadcasting](https://www.yahoo.com/news/trump-wants-congress-approve-9-205222476.html)
-- May 28 - [Cause of death revealed for Texas Renaissance Festival founder 'King George'](https://www.yahoo.com/news/cause-death-revealed-texas-renaissance-201453865.html)
 <!-- feed end -->
 
 ### Onstream
