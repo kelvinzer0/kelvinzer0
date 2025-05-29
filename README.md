@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 29 - [California avocado growers say Mexican imports have helped their sales](https://www.yahoo.com/news/california-avocado-growers-mexican-imports-040238442.html)
+- May 29 - [US suspends engine sales to Chinese planemaker COMAC, New York Times reports](https://www.yahoo.com/news/us-suspends-sales-us-technologies-005016815.html)
 - May 29 - [NASA astronauts Butch and Suni emerge from recovery after long Starliner mission](https://www.yahoo.com/news/nasa-astronauts-butch-suni-emerge-001601293.html)
 - May 28 - [Royals’ affiliate buys Overland Park Aspiria campus’ mortgage](https://www.yahoo.com/news/royals-affiliate-buys-overland-park-233837842.html)
 - May 28 - [Lawyer says Trump administration revokes parole of Mexican girl receiving lifesaving care in US](https://www.yahoo.com/news/lawyer-says-trump-administration-revokes-224914718.html)
-- May 28 - [Las Vegas gym gunman warned member to leave before shooting, 911 calls reveal: ‘You should get out of here’](https://www.yahoo.com/news/las-vegas-gym-gunman-warned-224354007.html)
 <!-- feed end -->
 
 ### Onstream
