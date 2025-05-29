@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Tears and heartbreak over tragic story of South African girl sold by her mother](https://www.yahoo.com/news/tears-heartbreak-over-tragic-story-020123537.html)
-- May 29 - [UBS' Lo on APAC Family Offices, Markets](https://finance.yahoo.com/video/ubs-lo-apac-family-offices-034225152.html)
-- May 29 - [Severe storm leaves a trail of destruction in Austin. See photos, videos of damage](https://www.yahoo.com/news/severe-storm-leaves-trail-destruction-030622686.html)
 - May 29 - [NASA astronauts Butch and Suni emerge from recovery after long Starliner mission](https://www.yahoo.com/news/nasa-astronauts-butch-suni-emerge-001601293.html)
-- May 28 - [Utah judge’s sentence for child pornography offender sparks controversy, the court’s response](https://www.yahoo.com/news/utah-judge-sentence-child-pornography-225946989.html)
+- May 28 - [Lawyer says Trump administration revokes parole of Mexican girl receiving lifesaving care in US](https://www.yahoo.com/news/lawyer-says-trump-administration-revokes-224914718.html)
+- May 28 - [Las Vegas gym gunman warned member to leave before shooting, 911 calls reveal: ‘You should get out of here’](https://www.yahoo.com/news/las-vegas-gym-gunman-warned-224354007.html)
+- May 28 - [Google Warns Quantum Computers Could Crack Bitcoin-Like Encryption 20 Times Faster Than Expected](https://finance.yahoo.com/news/google-warns-quantum-computers-could-213112513.html)
+- May 28 - [4 Washington cities rank as 'best places' to live in nation, US News finds](https://www.yahoo.com/lifestyle/4-washington-cities-rank-best-204243744.html)
 <!-- feed end -->
 
 ### Onstream
