@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [South African mother given life sentence for trafficking 6-year-old daughter](https://www.yahoo.com/news/south-african-mother-given-life-094536544.html)
-- May 29 - [China thought it had a truce with the US. Then Trump dropped two bombshells](https://www.yahoo.com/news/china-thought-had-truce-us-075046801.html)
-- May 29 - [California avocado growers say Mexican imports have helped their sales](https://www.yahoo.com/news/california-avocado-growers-mexican-imports-040238442.html)
+- May 29 - [Tears and heartbreak over tragic story of South African girl sold by her mother](https://www.yahoo.com/news/tears-heartbreak-over-tragic-story-020123537.html)
+- May 29 - [Chinese students anxious and angry after Rubio vows to revoke visas](https://www.yahoo.com/news/chinese-students-call-measure-chinese-075643758.html)
+- May 29 - [Lawrence O'Donnell Reveals Exact Moment Trump Suffered 'Worldwide Humiliation'](https://www.yahoo.com/news/lawrence-odonnell-reveals-exact-moment-072738301.html)
+- May 29 - [Severe storm leaves a trail of destruction in Austin. See photos, videos of damage](https://www.yahoo.com/news/severe-storm-leaves-trail-destruction-030622686.html)
 - May 29 - [Miami officer appears to shoot car driver through windshield while clinging to hood](https://www.yahoo.com/news/miami-officer-appears-shoot-car-023441710.html)
-- May 29 - [NASA astronauts Butch and Suni emerge from recovery after long Starliner mission](https://www.yahoo.com/news/nasa-astronauts-butch-suni-emerge-001601293.html)
 <!-- feed end -->
 
 ### Onstream
