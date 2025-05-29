@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Judge Steals 1 Of Trump’s Moves To Emphasize How Dumb His Executive Order Is](https://www.yahoo.com/news/judge-steals-1-trump-moves-222324204.html)
-- May 28 - [Yeah, So This Republican Lawmaker Said He Doesn't Drink Out Of Straws Because "That's What The Women In My House Do"](https://www.yahoo.com/news/yeah-republican-lawmaker-said-doesnt-210036626.html)
-- May 28 - [4 Washington cities rank as 'best places' to live in nation, US News finds](https://www.yahoo.com/lifestyle/4-washington-cities-rank-best-204243744.html)
-- May 28 - [Was Barron Trump Rejected From Harvard? The White House Says…](https://www.yahoo.com/entertainment/articles/barron-trump-rejected-harvard-white-191200139.html)
-- May 28 - [Trump responds to Musk saying he's 'disappointed' in big tax bill](https://www.yahoo.com/news/trump-responds-musk-saying-hes-191021217.html)
+- May 28 - [Lawyer says Trump administration revokes parole of Mexican girl receiving lifesaving care in US](https://www.yahoo.com/news/lawyer-says-trump-administration-revokes-224914718.html)
+- May 28 - ['Strangers coming to the house': California woman wants answers after her home was used in a fake rental scam](https://www.yahoo.com/news/strangers-coming-house-california-woman-223000993.html)
+- May 28 - [Google Warns Quantum Computers Could Crack Bitcoin-Like Encryption 20 Times Faster Than Expected](https://finance.yahoo.com/news/google-warns-quantum-computers-could-213112513.html)
+- May 28 - [Trump wants Congress to approve $9 billion in DOGE cuts — including more than $1 billion in cuts to public broadcasting](https://www.yahoo.com/news/trump-wants-congress-approve-9-205222476.html)
+- May 28 - [Cause of death revealed for Texas Renaissance Festival founder 'King George'](https://www.yahoo.com/news/cause-death-revealed-texas-renaissance-201453865.html)
 <!-- feed end -->
 
 ### Onstream
