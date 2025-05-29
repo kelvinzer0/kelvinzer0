@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [This Illinois man was attacked online after scammers shopped at his store with SNAP funds stolen from Texas](https://www.yahoo.com/news/illinois-man-attacked-online-scammers-130000528.html)
-- May 29 - [Exxon confident it will win dispute over Chevron-Hess deal](https://finance.yahoo.com/news/exxon-says-confident-win-dispute-124836927.html)
-- May 29 - [A South African woman is sentenced to life in prison for selling her young daughter](https://www.yahoo.com/news/south-african-woman-sentenced-life-114353746.html)
-- May 29 - [Benedict Cumberbatch, Dua Lipa, Riz Ahmed & Annie Lennox Among 300 Signatories Of Letter Calling On UK PM Keir Starmer To Act On Gaza](https://www.yahoo.com/news/benedict-cumberbatch-dua-lipa-riz-110157934.html)
-- May 29 - [NY Thruway closed near Rochester due to police investigation](https://www.yahoo.com/news/ny-thruway-closed-near-rochester-095039521.html)
+- May 29 - [Second accuser of Sean ‘Diddy’ Combs takes the stand, alleges sexual assault](https://www.yahoo.com/news/second-accuser-sean-diddy-combs-181900728.html)
+- May 29 - [Accused of inappropriate acts with students, ex-teacher's aide charged in Augusta County](https://www.yahoo.com/news/accused-inappropriate-acts-students-ex-175541356.html)
+- May 29 - [Titan Submersible: What Investigators Found Intact From Wreckage](https://www.yahoo.com/news/titan-submersible-investigators-found-intact-163859313.html)
+- May 29 - [Four Erie County Rite Aid pharmacies to close. Which ones will remain open?](https://www.yahoo.com/news/four-erie-county-rite-aid-155226222.html)
+- May 29 - [Judge considers whether Florida's attorney general should be held in contempt over immigration law](https://www.yahoo.com/news/judge-considers-whether-floridas-attorney-132957952.html)
 <!-- feed end -->
 
 ### Onstream
