@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 29 - [California avocado growers say Mexican imports have helped their sales](https://www.yahoo.com/news/california-avocado-growers-mexican-imports-040238442.html)
+- May 29 - [Miami officer appears to shoot car driver through windshield while clinging to hood](https://www.yahoo.com/news/miami-officer-appears-shoot-car-023441710.html)
+- May 29 - [Boeing aims to certify 737 MAX variants by year-end, CEO tells Aviation Week](https://finance.yahoo.com/news/boeing-aims-certify-737-max-003920836.html)
 - May 29 - [NASA astronauts Butch and Suni emerge from recovery after long Starliner mission](https://www.yahoo.com/news/nasa-astronauts-butch-suni-emerge-001601293.html)
 - May 28 - [Lawyer says Trump administration revokes parole of Mexican girl receiving lifesaving care in US](https://www.yahoo.com/news/lawyer-says-trump-administration-revokes-224914718.html)
-- May 28 - [Las Vegas gym gunman warned member to leave before shooting, 911 calls reveal: ‘You should get out of here’](https://www.yahoo.com/news/las-vegas-gym-gunman-warned-224354007.html)
-- May 28 - [Google Warns Quantum Computers Could Crack Bitcoin-Like Encryption 20 Times Faster Than Expected](https://finance.yahoo.com/news/google-warns-quantum-computers-could-213112513.html)
-- May 28 - [4 Washington cities rank as 'best places' to live in nation, US News finds](https://www.yahoo.com/lifestyle/4-washington-cities-rank-best-204243744.html)
 <!-- feed end -->
 
 ### Onstream
