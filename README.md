@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 29 - [Elon Musk & DOGE, HP, Foot Locker: Trending Tickers](https://finance.yahoo.com/video/elon-musk-doge-hp-foot-135034794.html)
+- May 29 - [Backlash against K-pop star’s deleted photo shows pressure on industry to remain apolitical](https://www.yahoo.com/news/backlash-against-k-pop-star-124201033.html)
 - May 29 - [Tears and heartbreak over tragic story of South African girl sold by her mother](https://www.yahoo.com/news/tears-heartbreak-over-tragic-story-020123537.html)
 - May 29 - [Benedict Cumberbatch, Dua Lipa, Riz Ahmed & Annie Lennox Among 300 Signatories Of Letter Calling On UK PM Keir Starmer To Act On Gaza](https://www.yahoo.com/news/benedict-cumberbatch-dua-lipa-riz-110157934.html)
-- May 29 - ['I lost everything': Swiss residents in shock after glacier debris buries village](https://www.yahoo.com/news/army-searches-missing-man-glacier-081419827.html)
-- May 29 - [Warren Buffett Says This Vanguard ETF Is One of the Best Investments Out There. It Could Turn $1,000 Per Month Into $228,000 in 10 Years.](https://finance.yahoo.com/news/warren-buffett-says-vanguard-etf-080400833.html)
-- May 29 - [Severe storm leaves a trail of destruction in Austin. See photos, videos of damage](https://www.yahoo.com/news/severe-storm-leaves-trail-destruction-030622686.html)
+- May 29 - [South African mother given life sentence for trafficking 6-year-old daughter](https://www.yahoo.com/news/south-african-mother-given-life-094536544.html)
 <!-- feed end -->
 
 ### Onstream
