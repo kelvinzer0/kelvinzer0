@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 29 - [The 4 North Korean officials arrested over a botched destroyer launch are in mortal danger](https://www.yahoo.com/news/4-north-korean-officials-arrested-161512648.html)
+- May 29 - [Live Gulf Coast Jam updates: Thursday performances for at least four artists canceled](https://www.yahoo.com/entertainment/articles/attention-poor-weather-conditions-delay-143824543.html)
 - May 29 - [Should You Forget Coca-Cola? Why You Might Want to Buy This Unstoppable Growth Stock Instead.](https://finance.yahoo.com/news/forget-coca-cola-why-might-131500007.html)
-- May 29 - [Major automaker delivers powerful blow to Tesla with stripped-down EV work truck: 'The longest range EV the outlet has ever tested'](https://tech.yahoo.com/transportation/articles/major-automaker-delivers-powerful-blow-113056410.html)
-- May 29 - [Photo of massive solar farm sparks confusion and debate online: 'Why is this a conspiracy?'](https://www.yahoo.com/news/photo-massive-solar-farm-sparks-113010457.html)
-- May 29 - [Benedict Cumberbatch, Dua Lipa, Riz Ahmed & Annie Lennox Among 300 Signatories Of Letter Calling On UK PM Keir Starmer To Act On Gaza](https://www.yahoo.com/news/benedict-cumberbatch-dua-lipa-riz-110157934.html)
-- May 29 - [South African mother given life sentence for trafficking 6-year-old daughter](https://www.yahoo.com/news/south-african-mother-given-life-094536544.html)
+- May 29 - [This Illinois man was attacked online after scammers shopped at his store with SNAP funds stolen from Texas](https://www.yahoo.com/news/illinois-man-attacked-online-scammers-130000528.html)
+- May 29 - [A South African woman is sentenced to life in prison for selling her young daughter](https://www.yahoo.com/news/south-african-woman-sentenced-life-114353746.html)
 <!-- feed end -->
 
 ### Onstream
