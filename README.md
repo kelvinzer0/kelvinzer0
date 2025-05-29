@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [The 4 North Korean officials arrested over a botched destroyer launch are in mortal danger](https://www.yahoo.com/news/4-north-korean-officials-arrested-161512648.html)
-- May 29 - [Live Gulf Coast Jam updates: Thursday performances for at least four artists canceled](https://www.yahoo.com/entertainment/articles/attention-poor-weather-conditions-delay-143824543.html)
-- May 29 - [Should You Forget Coca-Cola? Why You Might Want to Buy This Unstoppable Growth Stock Instead.](https://finance.yahoo.com/news/forget-coca-cola-why-might-131500007.html)
 - May 29 - [This Illinois man was attacked online after scammers shopped at his store with SNAP funds stolen from Texas](https://www.yahoo.com/news/illinois-man-attacked-online-scammers-130000528.html)
+- May 29 - [Exxon confident it will win dispute over Chevron-Hess deal](https://finance.yahoo.com/news/exxon-says-confident-win-dispute-124836927.html)
 - May 29 - [A South African woman is sentenced to life in prison for selling her young daughter](https://www.yahoo.com/news/south-african-woman-sentenced-life-114353746.html)
+- May 29 - [Benedict Cumberbatch, Dua Lipa, Riz Ahmed & Annie Lennox Among 300 Signatories Of Letter Calling On UK PM Keir Starmer To Act On Gaza](https://www.yahoo.com/news/benedict-cumberbatch-dua-lipa-riz-110157934.html)
+- May 29 - [NY Thruway closed near Rochester due to police investigation](https://www.yahoo.com/news/ny-thruway-closed-near-rochester-095039521.html)
 <!-- feed end -->
 
 ### Onstream
