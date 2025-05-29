@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Q1 GDP revision takeaway: 'Softer' consumer spending](https://finance.yahoo.com/video/q1-gdp-revision-takeaway-softer-150844315.html)
-- May 29 - [A review of Amp — a techy device that enhances at-home workouts using AI](https://www.yahoo.com/lifestyle/amp-review-home-fitness-equipment-145201228.html)
-- May 29 - [Kyrgyzstan detains eight media workers in widening crackdown](https://www.yahoo.com/news/kyrgyzstan-detains-eight-media-workers-142839198.html)
-- May 29 - [Tears and heartbreak over tragic story of South African girl sold by her mother](https://www.yahoo.com/news/tears-heartbreak-over-tragic-story-020123537.html)
+- May 29 - [Should You Forget Coca-Cola? Why You Might Want to Buy This Unstoppable Growth Stock Instead.](https://finance.yahoo.com/news/forget-coca-cola-why-might-131500007.html)
 - May 29 - [Major automaker delivers powerful blow to Tesla with stripped-down EV work truck: 'The longest range EV the outlet has ever tested'](https://tech.yahoo.com/transportation/articles/major-automaker-delivers-powerful-blow-113056410.html)
+- May 29 - [Photo of massive solar farm sparks confusion and debate online: 'Why is this a conspiracy?'](https://www.yahoo.com/news/photo-massive-solar-farm-sparks-113010457.html)
+- May 29 - [Benedict Cumberbatch, Dua Lipa, Riz Ahmed & Annie Lennox Among 300 Signatories Of Letter Calling On UK PM Keir Starmer To Act On Gaza](https://www.yahoo.com/news/benedict-cumberbatch-dua-lipa-riz-110157934.html)
+- May 29 - [South African mother given life sentence for trafficking 6-year-old daughter](https://www.yahoo.com/news/south-african-mother-given-life-094536544.html)
 <!-- feed end -->
 
 ### Onstream
