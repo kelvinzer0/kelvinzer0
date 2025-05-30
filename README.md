@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Climate activist Greta Thunberg to join aid ship effort to break Gaza siege](https://www.yahoo.com/news/climate-activist-greta-thunberg-join-034006797.html)
-- May 30 - [Doctors Are Revealing Their Wildest "You Shouldn't Be Alive" Moments From The ER, And I'm Spooked](https://www.yahoo.com/lifestyle/doctors-revealing-wildest-shouldnt-alive-021602164.html)
-- May 29 - [Sound of Earth's Flipping Magnetic Field Is an Unforgettable Horror](https://www.yahoo.com/news/sound-earths-flipping-magnetic-field-233927409.html)
+- May 30 - [India federal finance ministry seeks relaxation in central bank's gold loan proposals](https://finance.yahoo.com/news/india-federal-finance-ministry-seeks-051803870.html)
+- May 30 - [BREAKING: Massive fire at Neenah Foundry, crews actively responding to scene](https://www.yahoo.com/news/breaking-massive-fire-neenah-foundry-020539643.html)
 - May 29 - [Tim Walz’s 6-Word Response To Elon Musk’s Government Exit Is Hilariously Accurate](https://www.yahoo.com/news/tim-walz-6-word-response-231848605.html)
 - May 29 - [Bobcat Wanders Into Colorado Home and Sets Up Shop Like He Owns the Joint](https://www.yahoo.com/lifestyle/bobcat-wanders-colorado-home-sets-224500892.html)
+- May 29 - [Julie Chrisley Looks Unrecognizable in First Photo After Prison](https://www.yahoo.com/entertainment/articles/julie-chrisley-looks-unrecognizable-first-220541597.html)
 <!-- feed end -->
 
 ### Onstream
