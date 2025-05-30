@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Stunning Lobster Nebula View Captured By Dark Energy Camera](https://www.yahoo.com/news/stunning-lobster-nebula-view-captured-150000445.html)
-- May 30 - [China will resume Japanese seafood imports it halted over Fukushima water discharge, AP explains](https://www.yahoo.com/news/china-resume-japanese-seafood-imports-145203868.html)
-- May 30 - [Elon Musk Has Been “Using Drugs Far More Intensely Than Previously Known”: Report](https://www.yahoo.com/news/elon-musk-using-drugs-far-132744534.html)
-- May 30 - [Kindergarten Graduation Turns into Mass Brawl After Parents Exchange Punches in Arkansas](https://www.yahoo.com/news/kindergarten-graduation-turns-mass-brawl-124628035.html)
-- May 30 - [Trump says China has 'totally violated' Geneva deal with US on tariffs](https://finance.yahoo.com/news/trump-says-china-totally-violated-122040474.html)
+- May 30 - [Colorado's governor vetoes landmark ban on rent-setting algorithms](https://www.yahoo.com/news/colorados-governor-vetoes-landmark-ban-163823974.html)
+- May 30 - [How Rivian is using software to compete with rivals](https://finance.yahoo.com/video/rivian-using-software-compete-rivals-163814330.html)
+- May 30 - [What is a famine and who declares one?](https://www.yahoo.com/news/famine-declares-one-162419808.html)
+- May 30 - [US State Department orders embassies to ‘immediately begin additional vetting’ for anyone seeking a visa to travel to Harvard](https://www.yahoo.com/news/us-state-department-orders-embassies-160803033.html)
+- May 30 - [Army Corps analysis finds Great Lakes pipeline tunnel would have sweeping environmental impacts](https://www.yahoo.com/news/u-army-analysis-finds-great-160119308.html)
 <!-- feed end -->
 
 ### Onstream
