@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - ['Snowflake' Trump Mercilessly Mocked As His Newest Legal Claim Backfires Spectacularly](https://www.yahoo.com/news/snowflake-trump-mercilessly-mocked-newest-054100031.html)
-- May 29 - [Tim Walz’s 6-Word Response To Elon Musk’s Government Exit Is Hilariously Accurate](https://www.yahoo.com/news/tim-walz-6-word-response-231848605.html)
-- May 29 - [US government employee charged with trying to give classified information to a foreign government](https://www.yahoo.com/news/us-government-employee-charged-trying-223756517.html)
-- May 29 - [Smoke to pour into the US as Canada wildfires force province’s largest evacuation in ‘living memory’](https://www.yahoo.com/news/smoke-pour-us-canada-wildfires-184940157.html)
-- May 29 - [Triple-digit heat, chance of thunderstorms in California forecast: What to expect](https://www.yahoo.com/news/triple-digit-heat-chance-thunderstorms-203450690.html)
+- May 30 - [Gold prices retreat as investors await key US inflation data](https://uk.finance.yahoo.com/news/oil-prices-gold-pound-dollar-trade-deal-tariffs-084425513.html)
+- May 30 - [Reform Chairman on Farage's Bid for UK Crypto Hub](https://finance.yahoo.com/video/reform-chairman-farages-bid-uk-083451638.html)
+- May 30 - [Paris to deploy 5,400 police for Champions League final](https://www.yahoo.com/news/paris-deploy-5-400-police-081423945.html)
+- May 30 - [Doctors Are Revealing Their Wildest "You Shouldn't Be Alive" Moments From The ER, And I'm Spooked](https://www.yahoo.com/lifestyle/doctors-revealing-wildest-shouldnt-alive-021602164.html)
+- May 30 - [BREAKING: Massive fire at Neenah Foundry, crews actively responding to scene](https://www.yahoo.com/news/breaking-massive-fire-neenah-foundry-020539643.html)
 <!-- feed end -->
 
 ### Onstream
