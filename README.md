@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [White House acknowledges problems in RFK Jr.'s MAHA report](https://www.yahoo.com/news/white-house-acknowledges-problems-rfk-192617295.html)
-- May 29 - [Titan Submersible: What Investigators Found Intact From Wreckage](https://www.yahoo.com/news/titan-submersible-investigators-found-intact-163859313.html)
+- May 30 - [Steeple collapses after fire rips through historic Catholic church](https://www.yahoo.com/news/smoke-flames-pour-large-fire-195805389.html)
+- May 29 - [Tim Walz’s 6-Word Response To Elon Musk’s Government Exit Is Hilariously Accurate](https://www.yahoo.com/news/tim-walz-6-word-response-231848605.html)
+- May 29 - [White House acknowledges problems in RFK Jr.'s 'Make America Healthy Again' report](https://www.yahoo.com/news/white-house-acknowledges-problems-rfk-192617295.html)
 - May 29 - [The 4 North Korean officials arrested over a botched destroyer launch are in mortal danger](https://www.yahoo.com/news/4-north-korean-officials-arrested-161512648.html)
-- May 29 - [Michigan Gov. Gretchen Whitmer says she is 'disappointed' that Trump is considering a pardon for men who plotted to kidnap her](https://www.yahoo.com/news/michigan-gov-gretchen-whitmer-says-161249019.html)
-- May 29 - [Live Gulf Coast Jam updates: The show goes on with gates slated to open at 6 p.m.](https://www.yahoo.com/entertainment/articles/attention-poor-weather-conditions-delay-143824543.html)
+- May 29 - [Nvidia CEO reveals the person who will replace you thanks to AI—he warns, ‘every job will be affected, and immediately’](https://finance.yahoo.com/news/nvidia-ceo-reveals-person-replace-154435070.html)
 <!-- feed end -->
 
 ### Onstream
