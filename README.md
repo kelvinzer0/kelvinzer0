@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [All five members of missing Mexican band found dead near Texas border](https://www.yahoo.com/news/five-members-missing-mexican-band-122454001.html)
-- May 30 - [Trump says China has 'totally violated' agreement with US on tariffs](https://www.yahoo.com/news/trump-says-china-totally-violated-122040474.html)
-- May 30 - [Mortgage and refinance interest rates today, May 30, 2025: Rates are now highest since February](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-may-30-2025-100002206.html)
-- May 30 - [Nearly 3,000-year-old Mayan complex discovered, featuring pyramids and canals](https://www.yahoo.com/news/nearly-3-000-old-mayan-095631675.html)
-- May 30 - [Supplement Your Paycheck by Investing in These High-Yield Monthly Dividend Stocks](https://finance.yahoo.com/news/supplement-paycheck-investing-high-yield-094200905.html)
+- May 30 - [Woman says she and husband paid off $200K debt in 5 years: Here's how](https://finance.yahoo.com/news/woman-says-she-husband-paid-134400253.html)
+- May 30 - [US Economy: April Goods Imports Fall 19.8%, Consumer Spending Slows](https://finance.yahoo.com/video/us-economy-april-goods-imports-130732963.html)
+- May 30 - [US Treasuries Set for First Monthly Loss of 2025 on Deficit Woes](https://finance.yahoo.com/news/us-treasuries-set-first-monthly-113236161.html)
+- May 30 - [Trump says China has 'totally violated' Geneva deal with US on tariffs](https://finance.yahoo.com/news/trump-says-china-totally-violated-122040474.html)
+- May 30 - [US official sparks backlash after making stunning request for taxpayer money: 'Waste, fraud, and abuse'](https://www.yahoo.com/news/us-official-sparks-backlash-making-113008176.html)
 <!-- feed end -->
 
 ### Onstream
