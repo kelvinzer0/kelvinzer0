@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Gold prices retreat as investors await key US inflation data](https://uk.finance.yahoo.com/news/oil-prices-gold-pound-dollar-trade-deal-tariffs-084425513.html)
-- May 30 - [Reform Chairman on Farage's Bid for UK Crypto Hub](https://finance.yahoo.com/video/reform-chairman-farages-bid-uk-083451638.html)
-- May 30 - [Paris to deploy 5,400 police for Champions League final](https://www.yahoo.com/news/paris-deploy-5-400-police-081423945.html)
-- May 30 - [Doctors Are Revealing Their Wildest "You Shouldn't Be Alive" Moments From The ER, And I'm Spooked](https://www.yahoo.com/lifestyle/doctors-revealing-wildest-shouldnt-alive-021602164.html)
-- May 30 - [BREAKING: Massive fire at Neenah Foundry, crews actively responding to scene](https://www.yahoo.com/news/breaking-massive-fire-neenah-foundry-020539643.html)
+- May 30 - [Officials say at least 2 people are dead and 8 are missing after stone quarry collapse in Indonesia](https://www.yahoo.com/news/officials-least-2-people-dead-090858518.html)
+- May 30 - [A Passenger in Seat 1B Asked a Flight Attendant 1 Question. Then He Was Immediately Reported to a Supervisor](https://www.yahoo.com/news/passenger-seat-1b-asked-flight-083000877.html)
+- May 30 - ['Snowflake' Trump Mercilessly Mocked As His Newest Legal Claim Backfires Spectacularly](https://www.yahoo.com/news/snowflake-trump-mercilessly-mocked-newest-054100031.html)
+- May 30 - [Houston man saw his stolen tailgate online and called the police — and it led to a huge bust of blank key fobs](https://www.yahoo.com/news/houston-man-saw-stolen-tailgate-003200313.html)
+- May 30 - [Toyota's 2026 RAV4 Is Officially Hybrid-Only. That’s a Very Big Deal.](https://autos.yahoo.com/toyotas-2026-rav4-officially-hybrid-000000899.html)
 <!-- feed end -->
 
 ### Onstream
