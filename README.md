@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [Truman air wing returns home after long, eventful trip to Red Sea](https://www.yahoo.com/news/truman-air-wing-returns-home-214500278.html)
+- May 30 - [Why the gaming industry is expecting a 'rebound' this year](https://finance.yahoo.com/video/why-gaming-industry-expecting-rebound-212651272.html)
+- May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
 - May 30 - [Sean Hannity Shocks Himself in Stephen A. Smith Interview: ‘I Hate to Do This, I’ve Got to Compliment You’ | Video](https://www.yahoo.com/news/sean-hannity-shocks-himself-stephen-200502143.html)
-- May 30 - [Big Ten schools ranked academically by U.S. News and World Report. Where is Ohio State?](https://www.yahoo.com/news/big-ten-schools-ranked-academically-192514211.html)
-- May 30 - [Update: Injuries reported in shooting outside Meridian Mall](https://www.yahoo.com/news/police-investigating-shooting-meridian-mall-180422229.html)
-- May 30 - [Rite Aid files bankruptcy, to close 300 stores. Which NJ Rite Aid stores are closing?](https://finance.yahoo.com/news/rite-aid-files-bankruptcy-close-174554173.html)
-- May 30 - [Plant City woman gets 67 years for 2nd fatal drunk driving crash](https://www.yahoo.com/news/plant-city-woman-gets-67-173100941.html)
+- May 30 - [Imane Khelif banned from competing in women’s World Boxing events](https://sports.yahoo.com/article/imane-khelif-banned-competing-women-195248044.html)
 <!-- feed end -->
 
 ### Onstream
