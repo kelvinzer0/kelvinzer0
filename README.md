@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Truman air wing returns home after long, eventful trip to Red Sea](https://www.yahoo.com/news/truman-air-wing-returns-home-214500278.html)
-- May 30 - [Why the gaming industry is expecting a 'rebound' this year](https://finance.yahoo.com/video/why-gaming-industry-expecting-rebound-212651272.html)
+- May 30 - [From TACO to FAFO, investors love parodies of Trump acronyms](https://finance.yahoo.com/news/taco-fafo-investors-love-parodies-220311018.html)
+- May 30 - [Conditions in Gaza are catastrophic despite renewed aid, UN says](https://www.yahoo.com/news/conditions-gaza-catastrophic-despite-renewed-220306677.html)
+- May 30 - [A Husband Asks, 'Can Someone Confirm My Wife's Spending Is Delusional?' He Points To $6,769 Spent On Dining Out In Just 90 Days](https://finance.yahoo.com/news/husband-asks-someone-confirm-wifes-211445860.html)
 - May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
-- May 30 - [Sean Hannity Shocks Himself in Stephen A. Smith Interview: ‘I Hate to Do This, I’ve Got to Compliment You’ | Video](https://www.yahoo.com/news/sean-hannity-shocks-himself-stephen-200502143.html)
-- May 30 - [Imane Khelif banned from competing in women’s World Boxing events](https://sports.yahoo.com/article/imane-khelif-banned-competing-women-195248044.html)
+- May 30 - [New poll shows who Dems want in 2028 — and it’s not Kamala Harris](https://www.yahoo.com/news/poll-shows-dems-want-2028-203419834.html)
 <!-- feed end -->
 
 ### Onstream
