@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Toyota's 2026 RAV4 Is Officially Hybrid-Only. That’s a Very Big Deal.](https://autos.yahoo.com/toyotas-2026-rav4-officially-hybrid-000000899.html)
-- May 29 - [Sound of Earth's Flipping Magnetic Field Is an Unforgettable Horror](https://www.yahoo.com/news/sound-earths-flipping-magnetic-field-233927409.html)
+- May 30 - ['Snowflake' Trump Mercilessly Mocked As His Newest Legal Claim Backfires Spectacularly](https://www.yahoo.com/news/snowflake-trump-mercilessly-mocked-newest-054100031.html)
 - May 29 - [Tim Walz’s 6-Word Response To Elon Musk’s Government Exit Is Hilariously Accurate](https://www.yahoo.com/news/tim-walz-6-word-response-231848605.html)
+- May 29 - [US government employee charged with trying to give classified information to a foreign government](https://www.yahoo.com/news/us-government-employee-charged-trying-223756517.html)
 - May 29 - [Smoke to pour into the US as Canada wildfires force province’s largest evacuation in ‘living memory’](https://www.yahoo.com/news/smoke-pour-us-canada-wildfires-184940157.html)
-- May 29 - [White House acknowledges problems in RFK Jr.'s 'Make America Healthy Again' report](https://www.yahoo.com/news/white-house-acknowledges-problems-rfk-192617295.html)
+- May 29 - [Triple-digit heat, chance of thunderstorms in California forecast: What to expect](https://www.yahoo.com/news/triple-digit-heat-chance-thunderstorms-203450690.html)
 <!-- feed end -->
 
 ### Onstream
