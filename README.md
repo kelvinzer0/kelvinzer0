@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Officials say at least 2 people are dead and 8 are missing after stone quarry collapse in Indonesia](https://www.yahoo.com/news/officials-least-2-people-dead-090858518.html)
-- May 30 - [A Passenger in Seat 1B Asked a Flight Attendant 1 Question. Then He Was Immediately Reported to a Supervisor](https://www.yahoo.com/news/passenger-seat-1b-asked-flight-083000877.html)
-- May 30 - ['Snowflake' Trump Mercilessly Mocked As His Newest Legal Claim Backfires Spectacularly](https://www.yahoo.com/news/snowflake-trump-mercilessly-mocked-newest-054100031.html)
-- May 30 - [Houston man saw his stolen tailgate online and called the police — and it led to a huge bust of blank key fobs](https://www.yahoo.com/news/houston-man-saw-stolen-tailgate-003200313.html)
-- May 30 - [Toyota's 2026 RAV4 Is Officially Hybrid-Only. That’s a Very Big Deal.](https://autos.yahoo.com/toyotas-2026-rav4-officially-hybrid-000000899.html)
+- May 30 - [The Week in Numbers: tariff whiplash, tech earnings](https://finance.yahoo.com/video/week-numbers-tariff-whiplash-tech-095133704.html)
+- May 30 - [Japan says China will resume Japanese seafood imports it halted over Fukushima water discharge](https://www.yahoo.com/news/japan-says-china-resume-japanese-093457125.html)
+- May 30 - [Exclusive-Pakistan, India close to completing border troop reduction, senior Pakistani general says](https://www.yahoo.com/news/exclusive-pakistan-india-close-completing-080535713.html)
+- May 30 - [‘Snowflake’ Trump Mercilessly Mocked As His Newest Legal Claim Backfires Spectacularly](https://www.yahoo.com/news/snowflake-trump-mercilessly-mocked-newest-054100031.html)
+- May 29 - [Sound of Earth's Flipping Magnetic Field Is an Unforgettable Horror](https://www.yahoo.com/news/sound-earths-flipping-magnetic-field-233927409.html)
 <!-- feed end -->
 
 ### Onstream
