@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [The Week in Numbers: tariff whiplash, tech earnings](https://finance.yahoo.com/video/week-numbers-tariff-whiplash-tech-095133704.html)
+- May 30 - [All five members of missing Mexican band found dead near Texas border](https://www.yahoo.com/news/five-members-missing-mexican-band-122454001.html)
+- May 30 - [Trump has long warned of a government 'deep state.' Now in power, he's under pressure to expose it](https://www.yahoo.com/news/trump-long-warned-government-deep-110329019.html)
+- May 30 - [Nearly 3,000-year-old Mayan complex discovered, featuring pyramids and canals](https://www.yahoo.com/news/nearly-3-000-old-mayan-095631675.html)
 - May 30 - [Japan says China will resume Japanese seafood imports it halted over Fukushima water discharge](https://www.yahoo.com/news/japan-says-china-resume-japanese-093457125.html)
-- May 30 - [Exclusive-Pakistan, India close to completing border troop reduction, senior Pakistani general says](https://www.yahoo.com/news/exclusive-pakistan-india-close-completing-080535713.html)
-- May 30 - [‘Snowflake’ Trump Mercilessly Mocked As His Newest Legal Claim Backfires Spectacularly](https://www.yahoo.com/news/snowflake-trump-mercilessly-mocked-newest-054100031.html)
-- May 29 - [Sound of Earth's Flipping Magnetic Field Is an Unforgettable Horror](https://www.yahoo.com/news/sound-earths-flipping-magnetic-field-233927409.html)
+- May 30 - [Warren Buffett Just Called Dollar-Cost Averaging "the Dumbest Thing in the World." But There's 1 Key Exception.](https://finance.yahoo.com/news/warren-buffett-just-called-dollar-075500317.html)
 <!-- feed end -->
 
 ### Onstream
