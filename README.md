@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [India federal finance ministry seeks relaxation in central bank's gold loan proposals](https://finance.yahoo.com/news/india-federal-finance-ministry-seeks-051803870.html)
-- May 30 - [BREAKING: Massive fire at Neenah Foundry, crews actively responding to scene](https://www.yahoo.com/news/breaking-massive-fire-neenah-foundry-020539643.html)
+- May 30 - [Toyota's 2026 RAV4 Is Officially Hybrid-Only. That’s a Very Big Deal.](https://autos.yahoo.com/toyotas-2026-rav4-officially-hybrid-000000899.html)
+- May 29 - [Sound of Earth's Flipping Magnetic Field Is an Unforgettable Horror](https://www.yahoo.com/news/sound-earths-flipping-magnetic-field-233927409.html)
 - May 29 - [Tim Walz’s 6-Word Response To Elon Musk’s Government Exit Is Hilariously Accurate](https://www.yahoo.com/news/tim-walz-6-word-response-231848605.html)
-- May 29 - [Bobcat Wanders Into Colorado Home and Sets Up Shop Like He Owns the Joint](https://www.yahoo.com/lifestyle/bobcat-wanders-colorado-home-sets-224500892.html)
-- May 29 - [Julie Chrisley Looks Unrecognizable in First Photo After Prison](https://www.yahoo.com/entertainment/articles/julie-chrisley-looks-unrecognizable-first-220541597.html)
+- May 29 - [Smoke to pour into the US as Canada wildfires force province’s largest evacuation in ‘living memory’](https://www.yahoo.com/news/smoke-pour-us-canada-wildfires-184940157.html)
+- May 29 - [White House acknowledges problems in RFK Jr.'s 'Make America Healthy Again' report](https://www.yahoo.com/news/white-house-acknowledges-problems-rfk-192617295.html)
 <!-- feed end -->
 
 ### Onstream
