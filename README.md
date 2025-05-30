@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 30 - [All five members of missing Mexican band found dead near Texas border](https://www.yahoo.com/news/five-members-missing-mexican-band-122454001.html)
-- May 30 - [Trump has long warned of a government 'deep state.' Now in power, he's under pressure to expose it](https://www.yahoo.com/news/trump-long-warned-government-deep-110329019.html)
+- May 30 - [Trump says China has 'totally violated' agreement with US on tariffs](https://www.yahoo.com/news/trump-says-china-totally-violated-122040474.html)
+- May 30 - [Mortgage and refinance interest rates today, May 30, 2025: Rates are now highest since February](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-may-30-2025-100002206.html)
 - May 30 - [Nearly 3,000-year-old Mayan complex discovered, featuring pyramids and canals](https://www.yahoo.com/news/nearly-3-000-old-mayan-095631675.html)
-- May 30 - [Japan says China will resume Japanese seafood imports it halted over Fukushima water discharge](https://www.yahoo.com/news/japan-says-china-resume-japanese-093457125.html)
-- May 30 - [Warren Buffett Just Called Dollar-Cost Averaging "the Dumbest Thing in the World." But There's 1 Key Exception.](https://finance.yahoo.com/news/warren-buffett-just-called-dollar-075500317.html)
+- May 30 - [Supplement Your Paycheck by Investing in These High-Yield Monthly Dividend Stocks](https://finance.yahoo.com/news/supplement-paycheck-investing-high-yield-094200905.html)
 <!-- feed end -->
 
 ### Onstream
