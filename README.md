@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Do you need to be a business owner to qualify for the limited-time Amex Business Platinum offer?](https://finance.yahoo.com/personal-finance/credit-cards/article/amex-business-platinum-offer-qualify-180604248.html)
-- May 30 - [‘Well, we all are going to die’: GOP senator’s stark mic drop to town hall over Medicaid cuts](https://www.yahoo.com/news/well-going-die-gop-senator-174552693.html)
-- May 30 - [Biden makes first public remarks since cancer diagnosis](https://www.yahoo.com/news/biden-makes-first-public-remarks-173832744.html)
-- May 30 - [Pelicans star Zion Williamson accused of rape and abuse by ex-girlfriend in lawsuit: Reports](https://sports.yahoo.com/nba/article/pelicans-star-zion-williamson-accused-of-rape-and-abuse-by-ex-girlfriend-in-lawsuit-reports-171406337.html)
+- May 30 - [Trump picks right-wing lawyer and podcaster who promoted 2020 election lies as watchdog agency head](https://www.yahoo.com/news/trump-picks-wing-lawyer-podcaster-184058172.html)
+- May 30 - [AP PHOTOS: Starving civilians caught in the chaos of food distribution in Gaza](https://www.yahoo.com/news/ap-photos-starving-civilians-caught-174320566.html)
+- May 30 - [Amazing Time Lapse Of Fading Supernova Spied By Hubble](https://www.yahoo.com/news/amazing-time-lapse-fading-supernova-170000536.html)
 - May 30 - [Over 4 Million People Have Watched Karoline Leavitt Say We Need Electricians Instead Of "LGBTQ Graduate Majors" From Harvard, Whatever That Means](https://www.yahoo.com/news/over-4-million-people-watched-165759183.html)
+- May 30 - [Army Corps analysis finds Great Lakes pipeline tunnel would have sweeping environmental impacts](https://www.yahoo.com/news/u-army-analysis-finds-great-160119308.html)
 <!-- feed end -->
 
 ### Onstream
