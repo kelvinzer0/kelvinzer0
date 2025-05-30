@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [S&P 500 set for major May gains: What investors should watch in June](https://finance.yahoo.com/video/p-500-set-major-may-150000175.html)
+- May 30 - [Stunning Lobster Nebula View Captured By Dark Energy Camera](https://www.yahoo.com/news/stunning-lobster-nebula-view-captured-150000445.html)
 - May 30 - [China will resume Japanese seafood imports it halted over Fukushima water discharge, AP explains](https://www.yahoo.com/news/china-resume-japanese-seafood-imports-145203868.html)
 - May 30 - [Elon Musk Has Been “Using Drugs Far More Intensely Than Previously Known”: Report](https://www.yahoo.com/news/elon-musk-using-drugs-far-132744534.html)
-- May 30 - [Report: Elon Musk's drug use ramped up during the 2024 presidential campaign](https://finance.yahoo.com/news/report-elon-musks-drug-ramped-132640169.html)
-- May 30 - [US official sparks backlash after making stunning request for taxpayer money: 'Waste, fraud, and abuse'](https://www.yahoo.com/news/us-official-sparks-backlash-making-113008176.html)
+- May 30 - [Kindergarten Graduation Turns into Mass Brawl After Parents Exchange Punches in Arkansas](https://www.yahoo.com/news/kindergarten-graduation-turns-mass-brawl-124628035.html)
+- May 30 - [Trump says China has 'totally violated' Geneva deal with US on tariffs](https://finance.yahoo.com/news/trump-says-china-totally-violated-122040474.html)
 <!-- feed end -->
 
 ### Onstream
