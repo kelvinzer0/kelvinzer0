@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Colorado's governor vetoes landmark ban on rent-setting algorithms](https://www.yahoo.com/news/colorados-governor-vetoes-landmark-ban-163823974.html)
-- May 30 - [How Rivian is using software to compete with rivals](https://finance.yahoo.com/video/rivian-using-software-compete-rivals-163814330.html)
-- May 30 - [What is a famine and who declares one?](https://www.yahoo.com/news/famine-declares-one-162419808.html)
-- May 30 - [US State Department orders embassies to ‘immediately begin additional vetting’ for anyone seeking a visa to travel to Harvard](https://www.yahoo.com/news/us-state-department-orders-embassies-160803033.html)
-- May 30 - [Army Corps analysis finds Great Lakes pipeline tunnel would have sweeping environmental impacts](https://www.yahoo.com/news/u-army-analysis-finds-great-160119308.html)
+- May 30 - [Do you need to be a business owner to qualify for the limited-time Amex Business Platinum offer?](https://finance.yahoo.com/personal-finance/credit-cards/article/amex-business-platinum-offer-qualify-180604248.html)
+- May 30 - [‘Well, we all are going to die’: GOP senator’s stark mic drop to town hall over Medicaid cuts](https://www.yahoo.com/news/well-going-die-gop-senator-174552693.html)
+- May 30 - [Biden makes first public remarks since cancer diagnosis](https://www.yahoo.com/news/biden-makes-first-public-remarks-173832744.html)
+- May 30 - [Pelicans star Zion Williamson accused of rape and abuse by ex-girlfriend in lawsuit: Reports](https://sports.yahoo.com/nba/article/pelicans-star-zion-williamson-accused-of-rape-and-abuse-by-ex-girlfriend-in-lawsuit-reports-171406337.html)
+- May 30 - [Over 4 Million People Have Watched Karoline Leavitt Say We Need Electricians Instead Of "LGBTQ Graduate Majors" From Harvard, Whatever That Means](https://www.yahoo.com/news/over-4-million-people-watched-165759183.html)
 <!-- feed end -->
 
 ### Onstream
