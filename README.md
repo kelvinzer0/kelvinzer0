@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [Doctors Are Revealing Their Wildest "You Shouldn't Be Alive" Moments From The ER, And I'm Spooked](https://www.yahoo.com/lifestyle/doctors-revealing-wildest-shouldnt-alive-021602164.html)
 - May 29 - [Tim Walz’s 6-Word Response To Elon Musk’s Government Exit Is Hilariously Accurate](https://www.yahoo.com/news/tim-walz-6-word-response-231848605.html)
 - May 29 - [US government employee charged with trying to give classified information to a foreign government](https://www.yahoo.com/news/us-government-employee-charged-trying-223756517.html)
+- May 29 - [Smoke to pour into the US as Canada wildfires force province’s largest evacuation in ‘living memory’](https://www.yahoo.com/news/smoke-pour-us-canada-wildfires-184940157.html)
 - May 29 - [White House acknowledges problems in RFK Jr.'s 'Make America Healthy Again' report](https://www.yahoo.com/news/white-house-acknowledges-problems-rfk-192617295.html)
-- May 29 - [Russia accuses ally Serbia of betrayal for supplying arms to Ukraine](https://www.yahoo.com/news/russa-blasts-slavic-ally-serbia-173322468.html)
-- May 29 - [The 4 North Korean officials arrested over a botched destroyer launch are in mortal danger](https://www.yahoo.com/news/4-north-korean-officials-arrested-161512648.html)
 <!-- feed end -->
 
 ### Onstream
