@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Trump picks right-wing lawyer and podcaster who promoted 2020 election lies as watchdog agency head](https://www.yahoo.com/news/trump-picks-wing-lawyer-podcaster-184058172.html)
-- May 30 - [AP PHOTOS: Starving civilians caught in the chaos of food distribution in Gaza](https://www.yahoo.com/news/ap-photos-starving-civilians-caught-174320566.html)
-- May 30 - [Amazing Time Lapse Of Fading Supernova Spied By Hubble](https://www.yahoo.com/news/amazing-time-lapse-fading-supernova-170000536.html)
-- May 30 - [Over 4 Million People Have Watched Karoline Leavitt Say We Need Electricians Instead Of "LGBTQ Graduate Majors" From Harvard, Whatever That Means](https://www.yahoo.com/news/over-4-million-people-watched-165759183.html)
-- May 30 - [Army Corps analysis finds Great Lakes pipeline tunnel would have sweeping environmental impacts](https://www.yahoo.com/news/u-army-analysis-finds-great-160119308.html)
+- May 30 - [Images capture Rio Grande’s return as 2025 irrigation season begins](https://www.yahoo.com/news/images-capture-rio-grande-return-194049946.html)
+- May 30 - [Trump fires director of Smithsonian's National Portrait Gallery for allegedly promoting DEI](https://www.yahoo.com/news/trump-fires-director-smithsonians-national-185240223.html)
+- May 30 - [Mexican authorities seize more than 3 million liters of stolen fuel](https://www.yahoo.com/news/mexican-authorities-seize-more-3-182552011.html)
+- May 30 - ['I Want A New Car,' Says A Wife Whose Husband Says They Can't Afford It On $700K. Dave Ramsey Starts Mocking Her And People Are Confused](https://finance.yahoo.com/news/want-car-says-wife-whose-181004501.html)
+- May 30 - [Plant City woman gets 67 years for 2nd fatal drunk driving crash](https://www.yahoo.com/news/plant-city-woman-gets-67-173100941.html)
 <!-- feed end -->
 
 ### Onstream
