@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Images capture Rio Grande’s return as 2025 irrigation season begins](https://www.yahoo.com/news/images-capture-rio-grande-return-194049946.html)
-- May 30 - [Trump fires director of Smithsonian's National Portrait Gallery for allegedly promoting DEI](https://www.yahoo.com/news/trump-fires-director-smithsonians-national-185240223.html)
-- May 30 - [Mexican authorities seize more than 3 million liters of stolen fuel](https://www.yahoo.com/news/mexican-authorities-seize-more-3-182552011.html)
-- May 30 - ['I Want A New Car,' Says A Wife Whose Husband Says They Can't Afford It On $700K. Dave Ramsey Starts Mocking Her And People Are Confused](https://finance.yahoo.com/news/want-car-says-wife-whose-181004501.html)
+- May 30 - [Sean Hannity Shocks Himself in Stephen A. Smith Interview: ‘I Hate to Do This, I’ve Got to Compliment You’ | Video](https://www.yahoo.com/news/sean-hannity-shocks-himself-stephen-200502143.html)
+- May 30 - [Big Ten schools ranked academically by U.S. News and World Report. Where is Ohio State?](https://www.yahoo.com/news/big-ten-schools-ranked-academically-192514211.html)
+- May 30 - [Update: Injuries reported in shooting outside Meridian Mall](https://www.yahoo.com/news/police-investigating-shooting-meridian-mall-180422229.html)
+- May 30 - [Rite Aid files bankruptcy, to close 300 stores. Which NJ Rite Aid stores are closing?](https://finance.yahoo.com/news/rite-aid-files-bankruptcy-close-174554173.html)
 - May 30 - [Plant City woman gets 67 years for 2nd fatal drunk driving crash](https://www.yahoo.com/news/plant-city-woman-gets-67-173100941.html)
 <!-- feed end -->
 
