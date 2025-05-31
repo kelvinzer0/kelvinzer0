@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [3 Magnificent Dividend Stocks Down 15% to 64% to Buy and Hold for 20 Years](https://finance.yahoo.com/news/3-magnificent-dividend-stocks-down-120000365.html)
-- May 31 - [Sudden hailstorm lashes Egypt's Alexandria](https://www.yahoo.com/news/sudden-hailstorm-lashes-egypts-alexandria-114743395.html)
-- May 31 - [Warren Buffett Holds Apple Stock Despite Tariffs and Buys a Restaurant Stock Up 4,500% in 15 Years](https://finance.yahoo.com/news/warren-buffett-holds-apple-stock-084000253.html)
-- May 31 - [2 Best Stocks to Buy With $1,000 Right Now](https://finance.yahoo.com/news/2-best-stocks-buy-1-081000990.html)
+- May 31 - [He spent three horrific years in a Doha jail, now Abdullah Ibhais wants justice from Qatar and Fifa](https://sports.yahoo.com/article/spent-three-horrific-years-doha-150822537.html)
+- May 31 - [This Is the Average Social Security Benefit for Early Claimers](https://finance.yahoo.com/news/average-social-security-benefit-early-120500868.html)
+- May 31 - [Loop 202 on-ramp in southeast Valley now closed for 2 months. What to know](https://www.yahoo.com/news/loop-202-ramp-southeast-valley-120222522.html)
+- May 31 - [India says changed tactics worked well in conflict with Pakistan](https://www.yahoo.com/news/india-says-changed-tactics-worked-084419630.html)
 - May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
 <!-- feed end -->
 
