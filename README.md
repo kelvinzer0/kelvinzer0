@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 31 - [He spent three horrific years in a Doha jail, now Abdullah Ibhais wants justice from Qatar and Fifa](https://sports.yahoo.com/article/spent-three-horrific-years-doha-150822537.html)
-- May 31 - [This Is the Average Social Security Benefit for Early Claimers](https://finance.yahoo.com/news/average-social-security-benefit-early-120500868.html)
-- May 31 - [Loop 202 on-ramp in southeast Valley now closed for 2 months. What to know](https://www.yahoo.com/news/loop-202-ramp-southeast-valley-120222522.html)
+- May 31 - [A Russian oil company says it paid out a $195,000 bounty to soldiers it credited with downing a US-made F-16 fighter jet in Ukraine](https://www.yahoo.com/news/russian-oil-company-says-paid-122002416.html)
+- May 31 - [Officials under fire for allegedly funneling hundreds of millions to Elon Musk-owned companies: 'It is unacceptable'](https://finance.yahoo.com/news/officials-under-fire-allegedly-funneling-103043171.html)
 - May 31 - [India says changed tactics worked well in conflict with Pakistan](https://www.yahoo.com/news/india-says-changed-tactics-worked-084419630.html)
 - May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
 <!-- feed end -->
