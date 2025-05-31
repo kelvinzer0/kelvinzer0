@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Wordle hints today for #1,442: Clues and answer for Saturday, May 31](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1442-clues-and-answer-for-saturday-may-31-040105660.html)
-- May 31 - [Report: Two Hawaii beaches among most polluted in the country](https://www.yahoo.com/news/report-two-hawaii-beaches-among-030212845.html)
-- May 30 - [A Husband Asks, 'Can Someone Confirm My Wife's Spending Is Delusional?' He Points To $6,769 Spent On Dining Out In Just 90 Days](https://finance.yahoo.com/news/husband-asks-someone-confirm-wifes-211445860.html)
+- May 31 - [Transgender athlete says adults going to her track competitions to heckle her ‘shows how you are as a person’](https://www.yahoo.com/news/hear-athlete-center-trump-threat-014139259.html)
+- May 30 - [From TACO to FAFO, investors love parodies of Trump acronyms](https://finance.yahoo.com/news/taco-fafo-investors-love-parodies-220311018.html)
 - May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
 - May 30 - ['Cosmic miracle!' James Webb Space Telescope discovers the earliest galaxy ever seen](https://www.yahoo.com/news/cosmic-miracle-james-webb-space-210000747.html)
+- May 30 - [New poll shows who Dems want in 2028 — and it’s not Kamala Harris](https://www.yahoo.com/news/poll-shows-dems-want-2028-203419834.html)
 <!-- feed end -->
 
 ### Onstream
