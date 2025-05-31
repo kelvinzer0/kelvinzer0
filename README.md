@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Breaking down latest Israel-Hamas ceasefire proposal](https://www.yahoo.com/news/breaking-down-latest-israel-hamas-002943981.html)
-- May 31 - [500 Broadway Performers Sign Open Letter Urging Tony Awards to Disinvite Patti LuPone for ‘Degrading and Misogynistic’ Comments](https://www.yahoo.com/entertainment/articles/500-broadway-performers-sign-open-000413631.html)
-- May 30 - [A Husband Asks, 'Can Someone Confirm My Wife's Spending Is Delusional?' He Points To $6,769 Spent On Dining Out In Just 90 Days](https://finance.yahoo.com/news/husband-asks-someone-confirm-wifes-211445860.html)
-- May 30 - [Garden State Parkway backed up 12 miles. Jersey Shore traffic watch](https://www.yahoo.com/news/garden-state-parkway-backed-12-210823324.html)
+- May 30 - [From TACO to FAFO, investors love parodies of Trump acronyms](https://finance.yahoo.com/news/taco-fafo-investors-love-parodies-220311018.html)
 - May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
+- May 30 - [New poll shows who Dems want in 2028 — and it’s not Kamala Harris](https://www.yahoo.com/news/poll-shows-dems-want-2028-203419834.html)
+- May 30 - [Imane Khelif banned from competing in women’s World Boxing events](https://sports.yahoo.com/article/imane-khelif-banned-competing-women-195248044.html)
+- May 30 - [Dems Taunt Stephen Miller Over Wife Leaving with Musk](https://www.yahoo.com/news/dems-taunt-stephen-miller-over-191520373.html)
 <!-- feed end -->
 
 ### Onstream
