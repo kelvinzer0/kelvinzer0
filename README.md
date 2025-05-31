@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [What Medicare doesn't pay for becomes hefty debt for millions of seniors](https://finance.yahoo.com/news/what-medicare-doesnt-pay-for-becomes-hefty-debt-for-millions-of-seniors-143008858.html)
-- May 31 - [Scientists Fear a Passing Star Could Fling Earth Out of the Sun's Orbit, Into the Frigid Expanse Beyond](https://www.yahoo.com/news/scientists-fear-passing-star-could-130027890.html)
-- May 31 - [A Russian oil company says it paid out a $195,000 bounty to soldiers it credited with downing a US-made F-16 fighter jet in Ukraine](https://www.yahoo.com/news/russian-oil-company-says-paid-122002416.html)
-- May 31 - [Details about Jeff Bezos' partner Lauren Sánchez's lavish gift from the Kardashians spark outrage: 'This feels like a nightmare'](https://www.yahoo.com/lifestyle/details-jeff-bezos-partner-lauren-110048185.html)
-- May 31 - [Officials under fire for allegedly funneling hundreds of millions to Elon Musk-owned companies: 'It is unacceptable'](https://finance.yahoo.com/news/officials-under-fire-allegedly-funneling-103043171.html)
+- May 31 - [Is a Chinese invasion of Taiwan ‘imminent’ like Hegseth says?](https://www.yahoo.com/news/chinese-invasion-taiwan-imminent-hegseth-202849974.html)
+- May 31 - [Hamas won't collapse, even with the death of both Sinwars](https://www.yahoo.com/news/hamas-wont-collapse-even-death-191105742.html)
+- May 31 - [China’s J-36 Very Heavy Stealth Tactical Jet Photographed Head-On For First Time](https://www.yahoo.com/news/china-j-36-very-heavy-174701898.html)
+- May 31 - [FDA approves Moderna's new lower-dose COVID-19 vaccine](https://www.yahoo.com/news/fda-approves-modernas-lower-dose-170552579.html)
+- May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
 <!-- feed end -->
 
 ### Onstream
