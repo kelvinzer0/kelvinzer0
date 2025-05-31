@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [New food-additive factory to open in Augusta area](https://finance.yahoo.com/news/food-additive-factory-open-augusta-090457438.html)
 - May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
 - May 31 - [Transgender athlete says adults going to her track competitions to heckle her ‘shows how you are as a person’](https://www.yahoo.com/news/hear-athlete-center-trump-threat-014139259.html)
 - May 30 - [From TACO to FAFO, investors love parodies of Trump acronyms](https://finance.yahoo.com/news/taco-fafo-investors-love-parodies-220311018.html)
-- May 30 - [Garden State Parkway backed up 12 miles. Jersey Shore traffic watch](https://www.yahoo.com/news/garden-state-parkway-backed-12-210823324.html)
 - May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
 <!-- feed end -->
 
