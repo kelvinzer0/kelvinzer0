@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [Wordle hints today for #1,442: Clues and answer for Saturday, May 31](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1442-clues-and-answer-for-saturday-may-31-040105660.html)
+- May 30 - [‘She was our sunshine’: Grieving family of child killed in Salt Lake City driveway crash asks for community support](https://www.yahoo.com/news/she-sunshine-grieving-family-child-223156497.html)
 - May 30 - [From TACO to FAFO, investors love parodies of Trump acronyms](https://finance.yahoo.com/news/taco-fafo-investors-love-parodies-220311018.html)
-- May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
-- May 30 - [New poll shows who Dems want in 2028 — and it’s not Kamala Harris](https://www.yahoo.com/news/poll-shows-dems-want-2028-203419834.html)
-- May 30 - [Imane Khelif banned from competing in women’s World Boxing events](https://sports.yahoo.com/article/imane-khelif-banned-competing-women-195248044.html)
-- May 30 - [Dems Taunt Stephen Miller Over Wife Leaving with Musk](https://www.yahoo.com/news/dems-taunt-stephen-miller-over-191520373.html)
+- May 30 - [A Husband Asks, 'Can Someone Confirm My Wife's Spending Is Delusional?' He Points To $6,769 Spent On Dining Out In Just 90 Days](https://finance.yahoo.com/news/husband-asks-someone-confirm-wifes-211445860.html)
+- May 30 - [Garden State Parkway backed up 12 miles. Jersey Shore traffic watch](https://www.yahoo.com/news/garden-state-parkway-backed-12-210823324.html)
 <!-- feed end -->
 
 ### Onstream
