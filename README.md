@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [New food-additive factory to open in Augusta area](https://finance.yahoo.com/news/food-additive-factory-open-augusta-090457438.html)
+- May 31 - [India says changed tactics worked well in conflict with Pakistan](https://www.yahoo.com/news/india-says-changed-tactics-worked-084419630.html)
 - May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
+- May 31 - [Wordle hints today for #1,442: Clues and answer for Saturday, May 31](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1442-clues-and-answer-for-saturday-may-31-040105660.html)
 - May 31 - [Transgender athlete says adults going to her track competitions to heckle her ‘shows how you are as a person’](https://www.yahoo.com/news/hear-athlete-center-trump-threat-014139259.html)
-- May 30 - [From TACO to FAFO, investors love parodies of Trump acronyms](https://finance.yahoo.com/news/taco-fafo-investors-love-parodies-220311018.html)
-- May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
+- May 30 - [Carnival Cruise Line faces first storm of hurricane season](https://www.yahoo.com/lifestyle/carnival-cruise-line-faces-first-215137141.html)
 <!-- feed end -->
 
 ### Onstream
