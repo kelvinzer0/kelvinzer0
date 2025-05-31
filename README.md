@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [More than 130 former judges blast Judge Hannah Dugan’s indictment as ‘egregious overreach’](https://www.yahoo.com/news/more-130-former-judges-blast-162137763.html)
+- May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
+- May 31 - [Obese patients denied knee and hip replacements to slash NHS costs](https://www.yahoo.com/news/obese-patients-denied-knee-hip-155633320.html)
+- May 31 - [AI ecosystem isn't just Nvidia: Unlock it further with this ETF](https://finance.yahoo.com/video/ai-ecosystem-isnt-just-nvidia-140031761.html)
 - May 31 - [Scientists Fear a Passing Star Could Fling Earth Out of the Sun's Orbit, Into the Frigid Expanse Beyond](https://www.yahoo.com/news/scientists-fear-passing-star-could-130027890.html)
-- May 31 - [Innovative vineyard discovers game-changing new method that almost works too well: 'Farmers are standing in line to get our solution'](https://tech.yahoo.com/science/articles/innovative-vineyard-discovers-game-changing-110051877.html)
-- May 31 - [India says changed tactics worked well in conflict with Pakistan](https://www.yahoo.com/news/india-says-changed-tactics-worked-084419630.html)
-- May 31 - [India Confirms It Lost Fighter Jets in Recent Pakistan Conflict](https://finance.yahoo.com/video/india-confirms-lost-fighter-jets-073353795.html)
-- May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
 <!-- feed end -->
 
 ### Onstream
