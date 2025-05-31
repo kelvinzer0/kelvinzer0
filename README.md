@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [A Russian oil company says it paid out a $195,000 bounty to soldiers it credited with downing a US-made F-16 fighter jet in Ukraine](https://www.yahoo.com/news/russian-oil-company-says-paid-122002416.html)
+- May 31 - [Scientists Fear a Passing Star Could Fling Earth Out of the Sun's Orbit, Into the Frigid Expanse Beyond](https://www.yahoo.com/news/scientists-fear-passing-star-could-130027890.html)
+- May 31 - [Innovative vineyard discovers game-changing new method that almost works too well: 'Farmers are standing in line to get our solution'](https://tech.yahoo.com/science/articles/innovative-vineyard-discovers-game-changing-110051877.html)
 - May 31 - [India says changed tactics worked well in conflict with Pakistan](https://www.yahoo.com/news/india-says-changed-tactics-worked-084419630.html)
 - May 31 - [India Confirms It Lost Fighter Jets in Recent Pakistan Conflict](https://finance.yahoo.com/video/india-confirms-lost-fighter-jets-073353795.html)
-- May 31 - [Las Vegas HOA faces $30M shortfall](https://www.yahoo.com/news/las-vegas-hoa-faces-30m-062345101.html)
-- May 31 - [Wordle hints today for #1,442: Clues and answer for Saturday, May 31](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1442-clues-and-answer-for-saturday-may-31-040105660.html)
+- May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
 <!-- feed end -->
 
 ### Onstream
