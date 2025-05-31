@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Obese patients denied knee and hip replacements to slash NHS costs](https://www.yahoo.com/news/obese-patients-denied-knee-hip-155633320.html)
-- May 31 - [California Police Hit Speeding Porsches With 34 Tickets In One Stop](https://autos.yahoo.com/california-police-hit-speeding-porsches-183000031.html)
-- May 31 - [Tempus AI hits back at scathing short report](https://finance.yahoo.com/news/tempus-ai-hits-back-scathing-173300335.html)
-- May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
-- May 31 - [Where Will Archer Aviation Be in 3 Years?](https://finance.yahoo.com/news/where-archer-aviation-3-years-131500427.html)
+- May 31 - [What Medicare doesn't pay for becomes hefty debt for millions of seniors](https://finance.yahoo.com/news/what-medicare-doesnt-pay-for-becomes-hefty-debt-for-millions-of-seniors-143008858.html)
+- May 31 - [Scientists Fear a Passing Star Could Fling Earth Out of the Sun's Orbit, Into the Frigid Expanse Beyond](https://www.yahoo.com/news/scientists-fear-passing-star-could-130027890.html)
+- May 31 - [A Russian oil company says it paid out a $195,000 bounty to soldiers it credited with downing a US-made F-16 fighter jet in Ukraine](https://www.yahoo.com/news/russian-oil-company-says-paid-122002416.html)
+- May 31 - [Details about Jeff Bezos' partner Lauren Sánchez's lavish gift from the Kardashians spark outrage: 'This feels like a nightmare'](https://www.yahoo.com/lifestyle/details-jeff-bezos-partner-lauren-110048185.html)
+- May 31 - [Officials under fire for allegedly funneling hundreds of millions to Elon Musk-owned companies: 'It is unacceptable'](https://finance.yahoo.com/news/officials-under-fire-allegedly-funneling-103043171.html)
 <!-- feed end -->
 
 ### Onstream
