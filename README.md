@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Wordle hints today for #1,442: Clues and answer for Saturday, May 31](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1442-clues-and-answer-for-saturday-may-31-040105660.html)
-- May 30 - [‘She was our sunshine’: Grieving family of child killed in Salt Lake City driveway crash asks for community support](https://www.yahoo.com/news/she-sunshine-grieving-family-child-223156497.html)
+- May 31 - [Large brush fire in northern San Diego County prompts evacuations](https://www.yahoo.com/news/large-brush-fire-northern-san-020534126.html)
 - May 30 - [From TACO to FAFO, investors love parodies of Trump acronyms](https://finance.yahoo.com/news/taco-fafo-investors-love-parodies-220311018.html)
-- May 30 - [A Husband Asks, 'Can Someone Confirm My Wife's Spending Is Delusional?' He Points To $6,769 Spent On Dining Out In Just 90 Days](https://finance.yahoo.com/news/husband-asks-someone-confirm-wifes-211445860.html)
-- May 30 - [Garden State Parkway backed up 12 miles. Jersey Shore traffic watch](https://www.yahoo.com/news/garden-state-parkway-backed-12-210823324.html)
+- May 30 - [Possible new dwarf planet spotted near the edge of the solar system](https://www.yahoo.com/news/possible-dwarf-planet-spotted-near-214530514.html)
+- May 30 - [Urgent warning issued for US consumers after ‘security breach’ of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
+- May 30 - ['Cosmic miracle!' James Webb Space Telescope discovers the earliest galaxy ever seen](https://www.yahoo.com/news/cosmic-miracle-james-webb-space-210000747.html)
 <!-- feed end -->
 
 ### Onstream
