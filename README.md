@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [India says changed tactics worked well in conflict with Pakistan](https://www.yahoo.com/news/india-says-changed-tactics-worked-084419630.html)
+- May 31 - [3 Magnificent Dividend Stocks Down 15% to 64% to Buy and Hold for 20 Years](https://finance.yahoo.com/news/3-magnificent-dividend-stocks-down-120000365.html)
+- May 31 - [Sudden hailstorm lashes Egypt's Alexandria](https://www.yahoo.com/news/sudden-hailstorm-lashes-egypts-alexandria-114743395.html)
+- May 31 - [Warren Buffett Holds Apple Stock Despite Tariffs and Buys a Restaurant Stock Up 4,500% in 15 Years](https://finance.yahoo.com/news/warren-buffett-holds-apple-stock-084000253.html)
+- May 31 - [2 Best Stocks to Buy With $1,000 Right Now](https://finance.yahoo.com/news/2-best-stocks-buy-1-081000990.html)
 - May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
-- May 31 - [Wordle hints today for #1,442: Clues and answer for Saturday, May 31](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1442-clues-and-answer-for-saturday-may-31-040105660.html)
-- May 31 - [Transgender athlete says adults going to her track competitions to heckle her ‘shows how you are as a person’](https://www.yahoo.com/news/hear-athlete-center-trump-threat-014139259.html)
-- May 30 - [Carnival Cruise Line faces first storm of hurricane season](https://www.yahoo.com/lifestyle/carnival-cruise-line-faces-first-215137141.html)
 <!-- feed end -->
 
 ### Onstream
