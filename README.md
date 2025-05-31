@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [More than 130 former judges blast Judge Hannah Dugan’s indictment as ‘egregious overreach’](https://www.yahoo.com/news/more-130-former-judges-blast-162137763.html)
-- May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
+- May 31 - [Trump reignites feud with CBS over ‘deleted’ Colbert interview - years after his claim was debunked](https://www.yahoo.com/news/trump-reignites-feud-cbs-over-174140542.html)
 - May 31 - [Obese patients denied knee and hip replacements to slash NHS costs](https://www.yahoo.com/news/obese-patients-denied-knee-hip-155633320.html)
-- May 31 - [AI ecosystem isn't just Nvidia: Unlock it further with this ETF](https://finance.yahoo.com/video/ai-ecosystem-isnt-just-nvidia-140031761.html)
+- May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
+- May 31 - [Northern Gaza hospital evacuated after two-week siege by Israeli military, director says](https://www.yahoo.com/news/northern-gaza-hospital-evacuated-two-144415725.html)
 - May 31 - [Scientists Fear a Passing Star Could Fling Earth Out of the Sun's Orbit, Into the Frigid Expanse Beyond](https://www.yahoo.com/news/scientists-fear-passing-star-could-130027890.html)
 <!-- feed end -->
 
