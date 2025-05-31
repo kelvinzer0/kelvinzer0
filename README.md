@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Trump reignites feud with CBS over ‘deleted’ Colbert interview - years after his claim was debunked](https://www.yahoo.com/news/trump-reignites-feud-cbs-over-174140542.html)
 - May 31 - [Obese patients denied knee and hip replacements to slash NHS costs](https://www.yahoo.com/news/obese-patients-denied-knee-hip-155633320.html)
+- May 31 - [California Police Hit Speeding Porsches With 34 Tickets In One Stop](https://autos.yahoo.com/california-police-hit-speeding-porsches-183000031.html)
+- May 31 - [Tempus AI hits back at scathing short report](https://finance.yahoo.com/news/tempus-ai-hits-back-scathing-173300335.html)
 - May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
-- May 31 - [Northern Gaza hospital evacuated after two-week siege by Israeli military, director says](https://www.yahoo.com/news/northern-gaza-hospital-evacuated-two-144415725.html)
-- May 31 - [Scientists Fear a Passing Star Could Fling Earth Out of the Sun's Orbit, Into the Frigid Expanse Beyond](https://www.yahoo.com/news/scientists-fear-passing-star-could-130027890.html)
+- May 31 - [Where Will Archer Aviation Be in 3 Years?](https://finance.yahoo.com/news/where-archer-aviation-3-years-131500427.html)
 <!-- feed end -->
 
 ### Onstream
