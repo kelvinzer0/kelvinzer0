@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [WeHo Pride draws hundreds of thousands of LGBTQ+ celebrants](https://www.yahoo.com/news/weho-pride-draws-hundreds-thousands-034048948.html)
 - May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
 - May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
-- May 31 - [Northern California crash into PG&E pole causes wildfire, power outage for more than 4,000 addresses](https://www.yahoo.com/news/northern-california-crash-pg-e-194035178.html)
-- May 31 - [China’s J-36 Very Heavy Stealth Tactical Jet Photographed Head-On For First Time](https://www.yahoo.com/news/china-j-36-very-heavy-174701898.html)
-- May 31 - [What Medicare doesn't pay for becomes hefty debt for millions of seniors](https://finance.yahoo.com/news/what-medicare-doesnt-pay-for-becomes-hefty-debt-for-millions-of-seniors-143008858.html)
+- May 31 - [UFC legend B.J. Penn arrested for 3rd time in 6 days amid claims of family being replaced with imposters](https://sports.yahoo.com/mma/article/ufc-legend-bj-penn-arrested-for-3rd-time-in-6-days-over-claims-of-family-being-replaced-with-imposters-205824657.html)
+- May 31 - [Henderson Fire: Smoke advisory issued for part of Riverside County](https://www.yahoo.com/news/henderson-fire-smoke-advisory-issued-203929994.html)
 <!-- feed end -->
 
 ### Onstream
