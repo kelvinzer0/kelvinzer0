@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Elon Musk caps off DOGE exit by leaving Trump and Johnson unpleasant parting gift](https://www.yahoo.com/news/elon-musk-caps-off-doge-201037665.html)
 - Jun 01 - [Family sues Hollywood cemetery after learning that their mom was buried in wrong grave for years](https://www.yahoo.com/news/family-sues-hollywood-cemetery-learning-183420839.html)
-- Jun 01 - [Send This To Your Grandma, Dad, Or MAGA-Supporting Family When They Ask You How Trump’s Economy Is Going](https://www.yahoo.com/news/send-grandma-dad-maga-supporting-183523842.html)
-- Jun 01 - [Former GOP Strategist Who Created Fake Grindr Account in Victim’s Name Is Convicted of Stalking](https://www.yahoo.com/news/former-gop-strategist-created-fake-180033816.html)
-- Jun 01 - [Swarms of drones from parked trucks destroy Putin’s bombers](https://www.yahoo.com/news/seven-dead-bridge-collapses-onto-014101533.html)
 - Jun 01 - [After talks with Zelenskyy and Macron, US senators warn: Putin 'is preparing for more war’](https://www.yahoo.com/news/putin-preparing-more-war-us-151333586.html)
+- Jun 01 - [Speaker Mike Johnson says some Medicaid recipients will 'choose' whether to lose health care under House spending bill](https://www.yahoo.com/news/speaker-mike-johnson-says-medicaid-145150330.html)
+- Jun 01 - [Climate activist Greta Thunberg joins aid ship sailing to Gaza aimed at breaking Israel's blockade](https://www.yahoo.com/news/climate-activist-greta-thunberg-joins-140318842.html)
 <!-- feed end -->
 
 ### Onstream
