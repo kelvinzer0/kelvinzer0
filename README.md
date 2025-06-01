@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Canadian Wildfire Smoke Prompts Air Quality Alerts Across US](https://www.yahoo.com/news/canadian-wildfire-smoke-prompts-air-123459867.html)
-- Jun 01 - [‘Inappropriate behavior’: Hanover Public Schools releases statement after wild senior prank](https://www.yahoo.com/news/inappropriate-behavior-hanover-public-schools-225505937.html)
+- Jun 01 - [Climate activist Greta Thunberg joins aid ship sailing to Gaza aimed at breaking Israel's blockade](https://www.yahoo.com/news/climate-activist-greta-thunberg-joins-140318842.html)
+- Jun 01 - [‘Manson Family’ member who smeared blood on walls recommended for parole](https://www.yahoo.com/news/manson-family-member-smeared-blood-132703413.html)
+- Jun 01 - [Ukraine attacks Russian nuclear-capable bombers in Siberia](https://www.yahoo.com/news/ukraine-attacks-russian-nuclear-capable-122822377.html)
 - Jun 01 - [These are the 10 most accident-prone vehicles in the US — plus why certain cars tend to crash more than others](https://autos.yahoo.com/10-most-accident-prone-vehicles-120500344.html)
-- Jun 01 - [Can Trump fix the national debt? Republican senators, many investors and even Elon Musk have doubts](https://www.yahoo.com/news/trump-fix-national-debt-republican-112310867.html)
-- Jun 01 - [There's A Serious Reason Why You Should Be Extra Careful If You Have The Window Seat On A Plane, And I Truly Never Would've Guessed This](https://www.yahoo.com/lifestyle/theres-serious-reason-why-extra-101602236.html)
+- Jun 01 - [Multiple men face serious consequences after authorities uncover illegal destruction in protected area: 'It is a hazard to our nation and the region'](https://www.yahoo.com/news/multiple-men-face-serious-consequences-111516809.html)
 <!-- feed end -->
 
 ### Onstream
