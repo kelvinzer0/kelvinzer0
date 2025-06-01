@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Speaker Mike Johnson says some Medicaid recipients will 'choose' whether to lose health care under House spending bill](https://www.yahoo.com/news/speaker-mike-johnson-says-medicaid-145150330.html)
-- Jun 01 - [Climate activist Greta Thunberg joins aid ship sailing to Gaza aimed at breaking Israel's blockade](https://www.yahoo.com/news/climate-activist-greta-thunberg-joins-140318842.html)
-- Jun 01 - [Wild videos capture fiery scenes from a massive Ukrainian drone attack on Russian bombers shielded by tires](https://www.yahoo.com/news/wild-videos-capture-fiery-scenes-131815891.html)
-- Jun 01 - [Authorities make disturbing discovery after searching man's vehicle at US-Mexico border: 'We are committed to holding accountable ...'](https://www.yahoo.com/news/authorities-disturbing-discovery-searching-mans-113052963.html)
-- Jun 01 - [Can Trump fix the national debt? Republican senators, many investors and even Elon Musk have doubts](https://www.yahoo.com/news/trump-fix-national-debt-republican-112310867.html)
+- Jun 01 - [Police: Fleeing CT teen dies of alleged self-inflicted gunshot following chase](https://www.yahoo.com/news/police-fleeing-ct-teen-dies-181700957.html)
+- Jun 01 - [George Stephanopoulos, Unfazed by $16 Million ABC Settlement, Accuses Trump of Corruption: ‘Scale Is Staggering’ | Video](https://www.yahoo.com/news/george-stephanopoulos-unfazed-16-million-174354858.html)
+- Jun 01 - [Barry County business damaged after car crash](https://www.yahoo.com/news/barry-county-business-damaged-car-162214318.html)
+- Jun 01 - [Loomer, GOP senator push back on Trump NASA decision](https://www.yahoo.com/news/loomer-gop-senator-push-back-160337615.html)
+- Jun 01 - [1 officer killed, 1 wounded and another person dead in Los Angeles County shooting](https://www.yahoo.com/news/1-officer-killed-1-wounded-153044218.html)
 <!-- feed end -->
 
 ### Onstream
