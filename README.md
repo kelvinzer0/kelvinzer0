@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 01 - [France pumps money into eastern air base to handle nuclear-armed bombers](https://www.yahoo.com/news/france-pumps-money-eastern-air-091121439.html)
-- Jun 01 - [Two bridges collapse in Russian regions bordering Ukraine, killing at least 7](https://www.yahoo.com/news/bridge-collapses-onto-passenger-train-023745058.html)
-- Jun 01 - [Deaths, arrests mar French celebrations after PSG's Champions League win](https://sports.yahoo.com/article/wild-celebrations-paris-psgs-champions-230715377.html)
+- Jun 01 - [Putin’s tough stance on a Ukraine peace plan shows his resolve on Russia’s demands](https://www.yahoo.com/news/putin-tough-stance-ukraine-peace-040959718.html)
 - May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
-- May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
+- May 31 - [UFC legend B.J. Penn arrested for 3rd time in 6 days amid claims of family being replaced with imposters](https://sports.yahoo.com/mma/article/ufc-legend-bj-penn-arrested-for-3rd-time-in-6-days-over-claims-of-family-being-replaced-with-imposters-205824657.html)
+- May 31 - [Crypto's Most Watched Whale Gets Fully Liquidated After Placing Billions in Risky Bets](https://finance.yahoo.com/news/cryptos-most-watched-whale-gets-172012411.html)
 <!-- feed end -->
 
 ### Onstream
