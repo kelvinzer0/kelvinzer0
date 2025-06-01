@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [1 officer killed, 1 wounded and another person dead in Los Angeles County shooting](https://www.yahoo.com/news/1-officer-killed-1-wounded-153044218.html)
 - Jun 01 - [Wild videos capture fiery scenes from a massive Ukrainian drone attack on Russian bombers shielded by tires](https://www.yahoo.com/news/wild-videos-capture-fiery-scenes-131815891.html)
+- Jun 01 - [‘Inappropriate behavior’: Hanover Public Schools releases statement after wild senior prank](https://www.yahoo.com/news/inappropriate-behavior-hanover-public-schools-225505937.html)
 - Jun 01 - [Can Trump fix the national debt? Republican senators, many investors and even Elon Musk have doubts](https://www.yahoo.com/news/trump-fix-national-debt-republican-112310867.html)
 - Jun 01 - [Multiple men face serious consequences after authorities uncover illegal destruction in protected area: 'It is a hazard to our nation and the region'](https://www.yahoo.com/news/multiple-men-face-serious-consequences-111516809.html)
-- Jun 01 - ['Orthorexia' Is More And More Common. Here's What You Should Know About It.](https://www.yahoo.com/lifestyle/orthorexia-more-more-common-heres-110035343.html)
-- Jun 01 - [Experts remove nearly 100 reptile eggs after record-setting discovery in residential backyard: 'Nested in burrows that were all interconnected'](https://www.yahoo.com/lifestyle/experts-remove-nearly-100-reptile-104558595.html)
 <!-- feed end -->
 
 ### Onstream
