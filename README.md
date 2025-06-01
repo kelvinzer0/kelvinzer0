@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Seven dead, dozens hurt as Russian bridges near Ukraine collapse](https://www.yahoo.com/news/least-7-dead-russian-bridge-023913734.html)
-- Jun 01 - [‘We are under a dictatorship.’ Six years into his rule, El Salvador’s Nayib Bukele tightens his grip](https://www.yahoo.com/news/under-dictatorship-six-years-rule-040103093.html)
+- Jun 01 - [Australia asks China to explain 'extraordinary' military build-up](https://www.yahoo.com/news/australia-asks-china-explain-extraordinary-074437704.html)
+- Jun 01 - [China says US turning Asia-Pacific into 'powder keg' over Taiwan](https://www.yahoo.com/news/china-says-us-turning-asia-075728578.html)
 - May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
-- May 31 - [Henderson Fire: Smoke advisory issued for part of Riverside County](https://www.yahoo.com/news/henderson-fire-smoke-advisory-issued-203929994.html)
-- May 31 - [Northern California crash into PG&E pole causes wildfire, power outage for more than 4,000 addresses](https://www.yahoo.com/news/northern-california-crash-pg-e-194035178.html)
+- May 31 - [Severe geomagnetic storm could shift Northern lights south](https://www.yahoo.com/news/severe-geomagnetic-storm-could-shift-213445115.html)
+- May 31 - [UFC legend B.J. Penn arrested for 3rd time in 6 days amid claims of family being replaced with imposters](https://sports.yahoo.com/mma/article/ufc-legend-bj-penn-arrested-for-3rd-time-in-6-days-over-claims-of-family-being-replaced-with-imposters-205824657.html)
 <!-- feed end -->
 
 ### Onstream
