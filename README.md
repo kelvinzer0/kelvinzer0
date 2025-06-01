@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Seven dead, dozens hurt as Russian bridges near Ukraine collapse](https://www.yahoo.com/news/least-7-dead-russian-bridge-023913734.html)
 - Jun 01 - [‘We are under a dictatorship.’ Six years into his rule, El Salvador’s Nayib Bukele tightens his grip](https://www.yahoo.com/news/under-dictatorship-six-years-rule-040103093.html)
-- May 31 - [AURORA ALERT: Northern Lights could be possible Sunday night](https://www.yahoo.com/news/aurora-alert-northern-lights-could-223111045.html)
 - May 31 - [4 things are making us sick, new MAHA documentary says. What the research says](https://www.yahoo.com/news/4-things-making-us-sick-160003685.html)
 - May 31 - [Henderson Fire: Smoke advisory issued for part of Riverside County](https://www.yahoo.com/news/henderson-fire-smoke-advisory-issued-203929994.html)
 - May 31 - [Northern California crash into PG&E pole causes wildfire, power outage for more than 4,000 addresses](https://www.yahoo.com/news/northern-california-crash-pg-e-194035178.html)
