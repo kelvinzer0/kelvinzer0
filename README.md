@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [List of 'sanctuary jurisdictions' removed from US government website](https://www.yahoo.com/news/list-sanctuary-jurisdictions-removed-us-215436578.html)
+- Jun 01 - [Stocks Set to Open Lower](https://www.barrons.com/articles/stocks-futures-trading-monday-78189a52?siteid=yhoof2&yptr=yahoo)
+- Jun 01 - [GA mayor, wife charged with crimes against children](https://www.yahoo.com/news/ga-mayor-wife-charged-crimes-220016148.html)
+- Jun 01 - [FBI and law enforcement respond to 'terror attack' in Boulder, Colorado](https://www.yahoo.com/news/fbi-law-enforcement-respond-terror-214908905.html)
 - Jun 01 - [Bill Clinton Makes Strong Claim About Joe Biden’s Cognitive Health](https://www.yahoo.com/news/bill-clinton-makes-strong-claim-211908157.html)
-- Jun 01 - [Man Abandons Grieving Partner in Economy After Getting a Free Upgrade to Business Class on 14-Hour Flight](https://www.yahoo.com/lifestyle/man-abandons-grieving-partner-economy-203000445.html)
-- Jun 01 - [Ukraine says it hit more than 40 Russian bombers in drone attack](https://www.yahoo.com/news/ukraine-says-hit-more-40-191515571.html)
-- Jun 01 - [Send This To Your Grandma, Dad, Or MAGA-Supporting Family When They Ask You How Trump’s Economy Is Going](https://www.yahoo.com/news/send-grandma-dad-maga-supporting-183523842.html)
+- Jun 01 - [The Best Time to Take Vitamin D for Maximum Absorption, According to Health Experts](https://www.yahoo.com/lifestyle/best-time-vitamin-d-maximum-190000161.html)
 <!-- feed end -->
 
 ### Onstream
