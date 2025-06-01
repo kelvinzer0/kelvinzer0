@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Ukraine stages major attack on Russian aircraft with drones, security official says](https://www.yahoo.com/news/ukraine-stages-major-attack-russian-122228807.html)
-- Jun 01 - [Australia asks China to explain 'extraordinary' military build-up](https://www.yahoo.com/news/australia-asks-china-explain-extraordinary-074437704.html)
+- Jun 01 - [Canadian Wildfire Smoke Prompts Air Quality Alerts Across US](https://www.yahoo.com/news/canadian-wildfire-smoke-prompts-air-123459867.html)
+- Jun 01 - [‘Inappropriate behavior’: Hanover Public Schools releases statement after wild senior prank](https://www.yahoo.com/news/inappropriate-behavior-hanover-public-schools-225505937.html)
+- Jun 01 - [These are the 10 most accident-prone vehicles in the US — plus why certain cars tend to crash more than others](https://autos.yahoo.com/10-most-accident-prone-vehicles-120500344.html)
+- Jun 01 - [Can Trump fix the national debt? Republican senators, many investors and even Elon Musk have doubts](https://www.yahoo.com/news/trump-fix-national-debt-republican-112310867.html)
 - Jun 01 - [There's A Serious Reason Why You Should Be Extra Careful If You Have The Window Seat On A Plane, And I Truly Never Would've Guessed This](https://www.yahoo.com/lifestyle/theres-serious-reason-why-extra-101602236.html)
-- Jun 01 - [Gaza in turmoil: Clans emerge as rivals to Hamas's rule](https://www.yahoo.com/news/hamass-worst-nightmare-armed-clans-100521798.html)
-- Jun 01 - [President Donald Trump's Policy Is Set to Impact the Social Security Checks of Roughly 2,000,000 Beneficiaries -- Are You One of Them?](https://www.yahoo.com/news/president-donald-trumps-policy-set-074400252.html)
 <!-- feed end -->
 
 ### Onstream
