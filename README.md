@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [France pumps money into eastern air base to handle nuclear-armed bombers](https://www.yahoo.com/news/france-pumps-money-eastern-air-091121439.html)
-- Jun 01 - [Putin’s tough stance on a Ukraine peace plan shows his resolve on Russia’s demands](https://www.yahoo.com/news/putin-tough-stance-ukraine-peace-040959718.html)
-- May 31 - [North Korea deploys mystery balloon-like objects to stricken warship, satellite photos show](https://www.yahoo.com/news/north-korea-deploys-mystery-balloon-071419820.html)
-- May 31 - [UFC legend B.J. Penn arrested for 3rd time in 6 days amid claims of family being replaced with imposters](https://sports.yahoo.com/mma/article/ufc-legend-bj-penn-arrested-for-3rd-time-in-6-days-over-claims-of-family-being-replaced-with-imposters-205824657.html)
-- May 31 - [Crypto's Most Watched Whale Gets Fully Liquidated After Placing Billions in Risky Bets](https://finance.yahoo.com/news/cryptos-most-watched-whale-gets-172012411.html)
+- Jun 01 - [Ukraine stages major attack on Russian aircraft with drones, security official says](https://www.yahoo.com/news/ukraine-stages-major-attack-russian-122228807.html)
+- Jun 01 - [Australia asks China to explain 'extraordinary' military build-up](https://www.yahoo.com/news/australia-asks-china-explain-extraordinary-074437704.html)
+- Jun 01 - [There's A Serious Reason Why You Should Be Extra Careful If You Have The Window Seat On A Plane, And I Truly Never Would've Guessed This](https://www.yahoo.com/lifestyle/theres-serious-reason-why-extra-101602236.html)
+- Jun 01 - [Gaza in turmoil: Clans emerge as rivals to Hamas's rule](https://www.yahoo.com/news/hamass-worst-nightmare-armed-clans-100521798.html)
+- Jun 01 - [President Donald Trump's Policy Is Set to Impact the Social Security Checks of Roughly 2,000,000 Beneficiaries -- Are You One of Them?](https://www.yahoo.com/news/president-donald-trumps-policy-set-074400252.html)
 <!-- feed end -->
 
 ### Onstream
