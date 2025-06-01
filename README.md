@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [‘A mess’: Jacksonville’s Arlington neighbors wary of expected Merrill Road closures](https://www.yahoo.com/news/mess-jacksonville-arlington-neighbors-wary-160630651.html)
-- Jun 01 - [Massive Meteor Rattles Southern City In China](https://www.yahoo.com/news/massive-meteor-rattles-southern-city-143109624.html)
+- Jun 01 - [Speaker Mike Johnson says some Medicaid recipients will 'choose' whether to lose health care under House spending bill](https://www.yahoo.com/news/speaker-mike-johnson-says-medicaid-145150330.html)
+- Jun 01 - [Climate activist Greta Thunberg joins aid ship sailing to Gaza aimed at breaking Israel's blockade](https://www.yahoo.com/news/climate-activist-greta-thunberg-joins-140318842.html)
 - Jun 01 - [Wild videos capture fiery scenes from a massive Ukrainian drone attack on Russian bombers shielded by tires](https://www.yahoo.com/news/wild-videos-capture-fiery-scenes-131815891.html)
+- Jun 01 - [Authorities make disturbing discovery after searching man's vehicle at US-Mexico border: 'We are committed to holding accountable ...'](https://www.yahoo.com/news/authorities-disturbing-discovery-searching-mans-113052963.html)
 - Jun 01 - [Can Trump fix the national debt? Republican senators, many investors and even Elon Musk have doubts](https://www.yahoo.com/news/trump-fix-national-debt-republican-112310867.html)
-- Jun 01 - [Multiple men face serious consequences after authorities uncover illegal destruction in protected area: 'It is a hazard to our nation and the region'](https://www.yahoo.com/news/multiple-men-face-serious-consequences-111516809.html)
 <!-- feed end -->
 
 ### Onstream
