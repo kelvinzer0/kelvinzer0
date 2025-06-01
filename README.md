@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Police: Fleeing CT teen dies of alleged self-inflicted gunshot following chase](https://www.yahoo.com/news/police-fleeing-ct-teen-dies-181700957.html)
-- Jun 01 - [George Stephanopoulos, Unfazed by $16 Million ABC Settlement, Accuses Trump of Corruption: ‘Scale Is Staggering’ | Video](https://www.yahoo.com/news/george-stephanopoulos-unfazed-16-million-174354858.html)
-- Jun 01 - [Barry County business damaged after car crash](https://www.yahoo.com/news/barry-county-business-damaged-car-162214318.html)
-- Jun 01 - [Loomer, GOP senator push back on Trump NASA decision](https://www.yahoo.com/news/loomer-gop-senator-push-back-160337615.html)
-- Jun 01 - [1 officer killed, 1 wounded and another person dead in Los Angeles County shooting](https://www.yahoo.com/news/1-officer-killed-1-wounded-153044218.html)
+- Jun 01 - [Family sues Hollywood cemetery after learning that their mom was buried in wrong grave for years](https://www.yahoo.com/news/family-sues-hollywood-cemetery-learning-183420839.html)
+- Jun 01 - [Send This To Your Grandma, Dad, Or MAGA-Supporting Family When They Ask You How Trump’s Economy Is Going](https://www.yahoo.com/news/send-grandma-dad-maga-supporting-183523842.html)
+- Jun 01 - [Former GOP Strategist Who Created Fake Grindr Account in Victim’s Name Is Convicted of Stalking](https://www.yahoo.com/news/former-gop-strategist-created-fake-180033816.html)
+- Jun 01 - [Swarms of drones from parked trucks destroy Putin’s bombers](https://www.yahoo.com/news/seven-dead-bridge-collapses-onto-014101533.html)
+- Jun 01 - [After talks with Zelenskyy and Macron, US senators warn: Putin 'is preparing for more war’](https://www.yahoo.com/news/putin-preparing-more-war-us-151333586.html)
 <!-- feed end -->
 
 ### Onstream
