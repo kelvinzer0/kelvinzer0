@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [China rejects Trump's accusation that it breached Geneva trade deal](https://www.yahoo.com/news/china-rejects-trumps-accusation-breached-030817678.html)
-- Jun 02 - [Australia's BlueScope surges on Trump's plan to double tariffs on steel imports](https://finance.yahoo.com/news/australias-bluescope-surges-trumps-plan-021319897.html)
 - Jun 02 - [FBI investigating Boulder, Colorado attack as an act of terrorism](https://www.yahoo.com/news/fbi-investigating-boulder-colorado-attack-010922134.html)
-- Jun 02 - [Woman came to pick up car after DeKalb driver arrested. Then she got arrested, too](https://www.yahoo.com/news/woman-came-pick-car-dekalb-010640172.html)
 - Jun 01 - [An Extreme Drop in Oxygen Will Eventually Suffocate Most Life on Earth](https://www.yahoo.com/news/extreme-drop-oxygen-eventually-suffocate-232120139.html)
+- Jun 01 - [Oil jumps after OPEC+ sticks to same output hike in July versus June](https://finance.yahoo.com/news/oil-rebounds-opec-sticks-same-225756343.html)
+- Jun 01 - [GA mayor, wife charged with crimes against children](https://www.yahoo.com/news/ga-mayor-wife-charged-crimes-220016148.html)
+- Jun 01 - [List of 'sanctuary jurisdictions' removed from US government website following criticism](https://www.yahoo.com/news/list-sanctuary-jurisdictions-removed-us-215436578.html)
 <!-- feed end -->
 
 ### Onstream
