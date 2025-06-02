@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Stocks Set to Open Lower](https://www.barrons.com/articles/stocks-futures-trading-monday-78189a52?siteid=yhoof2&yptr=yahoo)
+- Jun 02 - [Project 2025 Architect Denies Far-Right Master Plan Is Guiding Trump's Decisions](https://www.yahoo.com/news/project-2025-architect-denies-far-013251534.html)
+- Jun 02 - [FBI investigating Boulder, Colorado attack as an act of terrorism](https://www.yahoo.com/news/fbi-investigating-boulder-colorado-attack-010922134.html)
+- Jun 01 - [Raising the flag in Scranton to mark start of Pride Month](https://www.yahoo.com/news/raising-flag-scranton-mark-start-233516489.html)
 - Jun 01 - [GA mayor, wife charged with crimes against children](https://www.yahoo.com/news/ga-mayor-wife-charged-crimes-220016148.html)
-- Jun 01 - [FBI and law enforcement respond to 'terror attack' in Boulder, Colorado](https://www.yahoo.com/news/fbi-law-enforcement-respond-terror-214908905.html)
-- Jun 01 - [Bill Clinton Makes Strong Claim About Joe Biden’s Cognitive Health](https://www.yahoo.com/news/bill-clinton-makes-strong-claim-211908157.html)
-- Jun 01 - [The Best Time to Take Vitamin D for Maximum Absorption, According to Health Experts](https://www.yahoo.com/lifestyle/best-time-vitamin-d-maximum-190000161.html)
+- Jun 01 - [List of 'sanctuary jurisdictions' removed from US government website following criticism](https://www.yahoo.com/news/list-sanctuary-jurisdictions-removed-us-215436578.html)
 <!-- feed end -->
 
 ### Onstream
