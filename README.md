@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [Don't let the May rally fool you. There's more volatility ahead.](https://finance.yahoo.com/video/dont-let-may-rally-fool-100005160.html)
+- Jun 02 - [Florida man faces 20 years in prison for scamming customers out of $1.3M, leaving them with unfinished pools](https://www.yahoo.com/news/florida-man-faces-20-years-093000968.html)
+- Jun 02 - [Pennies will be going away soon. Here's why and what to do with yours](https://www.yahoo.com/news/pennies-going-away-soon-heres-090221655.html)
 - Jun 02 - [Eurosceptic nationalist Karol Nawrocki elected Poland president in tight election](https://www.yahoo.com/news/eurosceptic-nationalist-nawrocki-elected-poland-051319488.html)
-- Jun 02 - [4 Monster Stocks to Buy and Hold for the Next Decade](https://finance.yahoo.com/news/4-monster-stocks-buy-hold-081000744.html)
-- Jun 02 - [Schoolchildren struggling with headaches and vomiting from oil and gas plant pollution](https://www.yahoo.com/news/schoolchildren-struggling-headaches-vomiting-gas-095122830.html)
-- Jun 02 - [Harvard Chinese grad speech draws praise and ire](https://www.yahoo.com/news/harvard-chinese-grad-speech-draws-054936271.html)
-- Jun 02 - [Factbox-The top sources of U.S. steel and aluminium imports](https://finance.yahoo.com/news/factbox-top-sources-u-steel-053329085.html)
+- Jun 02 - [Trump tariffs deals major blow to European steelmakers, Salzgitter CEO warns](https://finance.yahoo.com/news/european-industry-hit-hard-trump-082048625.html)
 <!-- feed end -->
 
 ### Onstream
