@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Zelenskiy says Ukraine, Russia to exchange lists this week for POW swap](https://www.yahoo.com/news/zelenskiy-says-ukraine-russia-exchange-170032859.html)
-- Jun 02 - [Every Cyber Attack Facing America](https://www.yahoo.com/entertainment/videos/every-cyber-attack-facing-america-160000577.html)
-- Jun 02 - [Jonathan Joss, ‘King of the Hill’ Actor Who Voiced John Redcorn, Dies in Shooting at 59](https://www.yahoo.com/entertainment/articles/jonathan-joss-king-hill-actor-154817490.html)
-- Jun 02 - [New York Times Defends Report On Elon Musk’s Drug Use, Says He’s “Lashing Out Because He Doesn’t Like Our Article”](https://www.yahoo.com/news/york-times-defends-report-elon-151733870.html)
-- Jun 02 - [Man who won $3.6 million lottery jackpot says girlfriend took the money and ‘ghosted’ him](https://www.yahoo.com/news/man-won-3-6-million-151255200.html)
+- Jun 02 - [Sheriff: One arrested in 'largest methamphetamine seizure in Augusta’s history'](https://www.yahoo.com/news/sheriff-one-arrested-largest-methamphetamine-174218839.html)
+- Jun 02 - [France probes terror motive after man shoots dead Tunisian neighbour](https://www.yahoo.com/news/france-probes-terror-motive-man-170846099.html)
+- Jun 02 - [Signs Of Alien Life? New Study Finds Potential Biosignatures On Ocean World](https://www.yahoo.com/news/signs-alien-life-study-finds-170000701.html)
+- Jun 02 - [Germany's Baerbock elected president of UN General Assembly](https://www.yahoo.com/news/germanys-baerbock-elected-president-un-165731657.html)
+- Jun 02 - [Driver jailed over ‘traumatic’ crash that wrecked five police cars](https://www.yahoo.com/news/driver-jailed-over-traumatic-crash-165518878.html)
 <!-- feed end -->
 
 ### Onstream
