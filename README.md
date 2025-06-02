@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 02 - [Right-wing Karol Nawrocki wins Polish presidential election](https://www.yahoo.com/news/liberal-mayor-narrowly-leads-poland-203304999.html)
-- Jun 02 - [Oil Rises as OPEC+ Boosts Supply Less Than Expected](https://finance.yahoo.com/video/oil-rises-opec-boosts-supply-050331931.html)
+- Jun 02 - [Harvard Chinese grad speech draws praise and ire](https://www.yahoo.com/news/harvard-chinese-grad-speech-draws-054936271.html)
+- Jun 02 - [Factbox-The top sources of U.S. steel and aluminium imports](https://finance.yahoo.com/news/factbox-top-sources-u-steel-053329085.html)
 - Jun 02 - [UH-OH: CNN Data Reporter Reveals 'Quite Troubling' News For Trump](https://www.yahoo.com/news/uh-oh-cnn-data-reporter-044931142.html)
-- Jun 02 - [Trump Posts Thinly-Veiled Message to Judges on Tariffs](https://www.yahoo.com/news/trump-posts-thinly-veiled-message-004152803.html)
-- Jun 01 - [An Extreme Drop in Oxygen Will Eventually Suffocate Most Life on Earth](https://www.yahoo.com/news/extreme-drop-oxygen-eventually-suffocate-232120139.html)
+- Jun 02 - [Six injured in terror attack at rally for Israeli hostages in Colorado](https://www.yahoo.com/news/several-injured-set-fire-colorado-230955219.html)
 <!-- feed end -->
 
 ### Onstream
