@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - ['King of the Hill' voice actor Jonathan Joss fatally shot outside his Texas home](https://www.yahoo.com/news/king-hill-voice-actor-jonathan-203518701.html)
-- Jun 02 - [Fed Chair Powell reveals new inflation target](https://finance.yahoo.com/news/fed-chair-powell-reveals-inflation-202913088.html)
+- Jun 02 - [Trump wants his ‘One Big, Beautiful Bill’ to sail through the Senate. These five factions stand in the way](https://www.yahoo.com/news/trump-wants-one-big-beautiful-215825885.html)
+- Jun 02 - [I Tried Pilates for 30 Days to Boost My Squat PR—Here's What Happened](https://www.yahoo.com/lifestyle/tried-pilates-30-days-boost-213125302.html)
+- Jun 02 - [Dow Jones, S&P 500, Nasdaq All Up | Closing Bell](https://finance.yahoo.com/video/dow-jones-p-500-nasdaq-212632955.html)
+- Jun 02 - [Opinion: India is ready — are we? Why Utah should be doubling down on India](https://finance.yahoo.com/news/opinion-india-ready-why-utah-205245460.html)
 - Jun 02 - [CNN parts ways with correspondent months after his story cost network millions in defamation suit](https://www.yahoo.com/news/cnn-parts-ways-correspondent-months-201344153.html)
-- Jun 02 - [ICE arrests high school student among 1,500 detained in Massachusetts](https://www.yahoo.com/news/ice-arrests-high-school-student-201640344.html)
-- Jun 02 - [Suspect in attack on Boulder Jewish event is charged with a federal hate crime. Here’s what we know](https://www.yahoo.com/news/multiple-people-set-fire-attack-231844690.html)
 <!-- feed end -->
 
 ### Onstream
