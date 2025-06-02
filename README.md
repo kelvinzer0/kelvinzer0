@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [3 Indian Army troopers die in a landslide following torrential rains in the northeast](https://www.yahoo.com/news/3-indian-army-troopers-die-124711895.html)
+- Jun 02 - [Supreme Court won't hear challenge to Maryland assault weapons ban](https://www.yahoo.com/news/supreme-court-wont-hear-challenge-134216227.html)
+- Jun 02 - [US Supreme Court turns away challenge by Alpine Securities to FINRA](https://www.yahoo.com/news/us-supreme-court-turns-away-134046374.html)
+- Jun 02 - [A surprise drone attack on airfields across Russia encapsulates Ukraine's wartime strategy](https://www.yahoo.com/news/surprise-drone-attack-airfields-across-130956585.html)
+- Jun 02 - [National Hurricane Center tracking new tropical wave. Wet week ahead for Florida](https://www.yahoo.com/news/national-hurricane-center-tracking-tropical-124601708.html)
 - Jun 02 - [Boulder mall attack suspect used makeshift flamethrower, Molotov cocktails, FBI says](https://www.yahoo.com/news/boulder-mall-attack-suspect-used-123706744.html)
-- Jun 02 - [Canadian Wildfire Smoke Prompts Air Quality Concerns in US](https://www.yahoo.com/news/canadian-wildfire-smoke-prompts-air-120522696.html)
-- Jun 02 - [Experts stunned by discovery partially buried deep in the Florida Everglades: 'There's only two things that will do that'](https://www.yahoo.com/news/experts-stunned-discovery-partially-buried-111529255.html)
-- Jun 02 - [Fishermen hunt down invasive creature using bows and arrows in incredible video: 'Adrenaline, conservation, and a trophy to show for it'](https://www.yahoo.com/lifestyle/fishermen-hunt-down-invasive-creature-111507467.html)
 <!-- feed end -->
 
 ### Onstream
