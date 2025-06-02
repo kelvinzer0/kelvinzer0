@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Why Oil Prices Are Jumping After OPEC Increased Production](https://www.barrons.com/articles/oil-price-crude-wti-brent-opec-89a26411?siteid=yhoof2&yptr=yahoo)
-- Jun 02 - [After DOGE firings White House asks new job seekers to write Trump loyalty essays, from lawyers to janitors](https://www.yahoo.com/news/doge-firings-white-house-asks-182746295.html)
-- Jun 02 - [Trump Shared His Thoughts On Pardoning Diddy And It's Exactly What You'd Expect Him To Say](https://www.yahoo.com/news/trump-shared-thoughts-pardoning-diddy-182409975.html)
-- Jun 02 - [Tomatoes sold in 3 states now labeled deadly by FDA](https://www.yahoo.com/news/tomatoes-sold-3-states-now-181538524.html)
-- Jun 02 - [To prevent blackouts, Trump administration keeps an aging power plant online through summer](https://www.yahoo.com/news/prevent-blackouts-trump-administration-keeps-174158843.html)
+- Jun 02 - [Russia demands harsh terms at Ukraine peace talks](https://www.yahoo.com/news/russia-demands-harsh-terms-ukraine-195223741.html)
+- Jun 02 - [She Has Testified Through Tears That Diddy Abused Her. His Lawyers Call It a '#MeToo Money Grab'](https://www.yahoo.com/news/she-testified-tears-diddy-abused-194506722.html)
+- Jun 02 - [Cruise separates from pier, guest falls into water from gangway](https://www.yahoo.com/news/cruise-separates-pier-guest-falls-185101121.html)
+- Jun 02 - [Trump administration seeks pause of second tariff case after loss](https://www.yahoo.com/news/trump-administration-seeks-pause-second-183949310.html)
+- Jun 02 - [Waldameer's Steel Dragon roller coaster is not running. When will it open this summer?](https://www.yahoo.com/news/waldameers-steel-dragon-roller-coaster-182030316.html)
 <!-- feed end -->
 
 ### Onstream
