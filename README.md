@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Russia demands harsh terms at Ukraine peace talks](https://www.yahoo.com/news/russia-demands-harsh-terms-ukraine-195223741.html)
-- Jun 02 - [She Has Testified Through Tears That Diddy Abused Her. His Lawyers Call It a '#MeToo Money Grab'](https://www.yahoo.com/news/she-testified-tears-diddy-abused-194506722.html)
-- Jun 02 - [Cruise separates from pier, guest falls into water from gangway](https://www.yahoo.com/news/cruise-separates-pier-guest-falls-185101121.html)
-- Jun 02 - [Trump administration seeks pause of second tariff case after loss](https://www.yahoo.com/news/trump-administration-seeks-pause-second-183949310.html)
-- Jun 02 - [Waldameer's Steel Dragon roller coaster is not running. When will it open this summer?](https://www.yahoo.com/news/waldameers-steel-dragon-roller-coaster-182030316.html)
+- Jun 02 - ['King of the Hill' voice actor Jonathan Joss fatally shot outside his Texas home](https://www.yahoo.com/news/king-hill-voice-actor-jonathan-203518701.html)
+- Jun 02 - [Fed Chair Powell reveals new inflation target](https://finance.yahoo.com/news/fed-chair-powell-reveals-inflation-202913088.html)
+- Jun 02 - [CNN parts ways with correspondent months after his story cost network millions in defamation suit](https://www.yahoo.com/news/cnn-parts-ways-correspondent-months-201344153.html)
+- Jun 02 - [ICE arrests high school student among 1,500 detained in Massachusetts](https://www.yahoo.com/news/ice-arrests-high-school-student-201640344.html)
+- Jun 02 - [Suspect in attack on Boulder Jewish event is charged with a federal hate crime. Here’s what we know](https://www.yahoo.com/news/multiple-people-set-fire-attack-231844690.html)
 <!-- feed end -->
 
 ### Onstream
