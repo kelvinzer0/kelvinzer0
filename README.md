@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [FBI investigating Boulder, Colorado attack as an act of terrorism](https://www.yahoo.com/news/fbi-investigating-boulder-colorado-attack-010922134.html)
+- Jun 02 - ["Tariffs Just Got Real": Americans Are Sharing Their Tariff Receipts, And These Are Brutal](https://finance.yahoo.com/news/tariffs-just-got-real-americans-031603765.html)
+- Jun 02 - [Burning rubber, PVC cause ‘dramatic conditions’ in Salem](https://www.yahoo.com/news/burning-rubber-pvc-cause-dramatic-023819416.html)
+- Jun 02 - [Woman came to pick up car after DeKalb driver arrested. Then she got arrested, too](https://www.yahoo.com/news/woman-came-pick-car-dekalb-010640172.html)
 - Jun 01 - [An Extreme Drop in Oxygen Will Eventually Suffocate Most Life on Earth](https://www.yahoo.com/news/extreme-drop-oxygen-eventually-suffocate-232120139.html)
 - Jun 01 - [Oil jumps after OPEC+ sticks to same output hike in July versus June](https://finance.yahoo.com/news/oil-rebounds-opec-sticks-same-225756343.html)
-- Jun 01 - [GA mayor, wife charged with crimes against children](https://www.yahoo.com/news/ga-mayor-wife-charged-crimes-220016148.html)
-- Jun 01 - [List of 'sanctuary jurisdictions' removed from US government website following criticism](https://www.yahoo.com/news/list-sanctuary-jurisdictions-removed-us-215436578.html)
 <!-- feed end -->
 
 ### Onstream
