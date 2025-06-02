@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [Eurosceptic nationalist Karol Nawrocki elected Poland president in tight election](https://www.yahoo.com/news/eurosceptic-nationalist-nawrocki-elected-poland-051319488.html)
+- Jun 02 - [4 Monster Stocks to Buy and Hold for the Next Decade](https://finance.yahoo.com/news/4-monster-stocks-buy-hold-081000744.html)
 - Jun 02 - [Schoolchildren struggling with headaches and vomiting from oil and gas plant pollution](https://www.yahoo.com/news/schoolchildren-struggling-headaches-vomiting-gas-095122830.html)
-- Jun 02 - [Right-wing Karol Nawrocki wins Polish presidential election](https://www.yahoo.com/news/liberal-mayor-narrowly-leads-poland-203304999.html)
-- Jun 02 - [UH-OH: CNN Data Reporter Reveals 'Quite Troubling' News For Trump](https://www.yahoo.com/news/uh-oh-cnn-data-reporter-044931142.html)
-- Jun 02 - ["Tariffs Just Got Real": Americans Are Sharing Their Tariff Receipts, And These Are Brutal](https://finance.yahoo.com/news/tariffs-just-got-real-americans-031603765.html)
-- Jun 02 - [In Uganda, an affordable alternative to dirt floors is a big boost to human health](https://www.yahoo.com/lifestyle/uganda-affordable-alternative-dirt-floors-021737311.html)
+- Jun 02 - [Harvard Chinese grad speech draws praise and ire](https://www.yahoo.com/news/harvard-chinese-grad-speech-draws-054936271.html)
+- Jun 02 - [Factbox-The top sources of U.S. steel and aluminium imports](https://finance.yahoo.com/news/factbox-top-sources-u-steel-053329085.html)
 <!-- feed end -->
 
 ### Onstream
