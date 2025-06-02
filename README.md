@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Sheriff: One arrested in 'largest methamphetamine seizure in Augusta’s history'](https://www.yahoo.com/news/sheriff-one-arrested-largest-methamphetamine-174218839.html)
-- Jun 02 - [France probes terror motive after man shoots dead Tunisian neighbour](https://www.yahoo.com/news/france-probes-terror-motive-man-170846099.html)
-- Jun 02 - [Signs Of Alien Life? New Study Finds Potential Biosignatures On Ocean World](https://www.yahoo.com/news/signs-alien-life-study-finds-170000701.html)
-- Jun 02 - [Germany's Baerbock elected president of UN General Assembly](https://www.yahoo.com/news/germanys-baerbock-elected-president-un-165731657.html)
-- Jun 02 - [Driver jailed over ‘traumatic’ crash that wrecked five police cars](https://www.yahoo.com/news/driver-jailed-over-traumatic-crash-165518878.html)
+- Jun 02 - [Why Oil Prices Are Jumping After OPEC Increased Production](https://www.barrons.com/articles/oil-price-crude-wti-brent-opec-89a26411?siteid=yhoof2&yptr=yahoo)
+- Jun 02 - [After DOGE firings White House asks new job seekers to write Trump loyalty essays, from lawyers to janitors](https://www.yahoo.com/news/doge-firings-white-house-asks-182746295.html)
+- Jun 02 - [Trump Shared His Thoughts On Pardoning Diddy And It's Exactly What You'd Expect Him To Say](https://www.yahoo.com/news/trump-shared-thoughts-pardoning-diddy-182409975.html)
+- Jun 02 - [Tomatoes sold in 3 states now labeled deadly by FDA](https://www.yahoo.com/news/tomatoes-sold-3-states-now-181538524.html)
+- Jun 02 - [To prevent blackouts, Trump administration keeps an aging power plant online through summer](https://www.yahoo.com/news/prevent-blackouts-trump-administration-keeps-174158843.html)
 <!-- feed end -->
 
 ### Onstream
