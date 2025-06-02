@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Greta Thunberg sets sail for Gaza to ‘break Israeli blockade’](https://www.yahoo.com/news/greta-thunberg-sets-sail-gaza-170426303.html)
-- Jun 02 - [Nine people including baby in hospital after boat ‘explodes](https://www.yahoo.com/news/nine-people-including-baby-hospital-103601962.html)
-- Jun 02 - [Right-winger Karol Nawrocki wins Polish presidential election](https://www.yahoo.com/news/liberal-mayor-narrowly-leads-poland-203304999.html)
-- Jun 02 - [Exclusive: Tesla executives questioned Musk after he denied killing $25,000 EV project - sources](https://finance.yahoo.com/news/exclusive-tesla-executives-questioned-musk-100828271.html)
-- Jun 02 - [An Australian woman on trial for triple murder testifies over mushroom poisoning](https://www.yahoo.com/news/australian-woman-trial-triple-murder-093811678.html)
+- Jun 02 - [EU readying 'countermeasures' if tariffs deal with US crumbles](https://www.yahoo.com/news/eu-readying-countermeasures-tariffs-deal-122600050.html)
+- Jun 02 - [Cambodia says it will seek World Court ruling on border disputes with Thailand that led to clash](https://www.yahoo.com/news/cambodia-says-seek-world-court-120733901.html)
+- Jun 02 - [Canadian Wildfire Smoke Prompts Air Quality Concerns in US](https://www.yahoo.com/news/canadian-wildfire-smoke-prompts-air-120522696.html)
+- Jun 02 - [I Asked ChatGPT How Much Money I’ll Need To Retire in 5 Years: Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-money-ll-113443423.html)
+- Jun 02 - [Royal Mint brings in easy way to authenticate gold bars after ‘unprecedented demand’](https://www.yahoo.com/news/royal-mint-brings-easy-way-112012407.html)
 <!-- feed end -->
 
 ### Onstream
