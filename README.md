@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Trump wants his ‘One Big, Beautiful Bill’ to sail through the Senate. These five factions stand in the way](https://www.yahoo.com/news/trump-wants-one-big-beautiful-215825885.html)
-- Jun 02 - [I Tried Pilates for 30 Days to Boost My Squat PR—Here's What Happened](https://www.yahoo.com/lifestyle/tried-pilates-30-days-boost-213125302.html)
-- Jun 02 - [Dow Jones, S&P 500, Nasdaq All Up | Closing Bell](https://finance.yahoo.com/video/dow-jones-p-500-nasdaq-212632955.html)
-- Jun 02 - [Opinion: India is ready — are we? Why Utah should be doubling down on India](https://finance.yahoo.com/news/opinion-india-ready-why-utah-205245460.html)
-- Jun 02 - [CNN parts ways with correspondent months after his story cost network millions in defamation suit](https://www.yahoo.com/news/cnn-parts-ways-correspondent-months-201344153.html)
+- Jun 02 - [Rep. Hinson on Tax Bill, Medicaid Cuts](https://finance.yahoo.com/video/rep-hinson-tax-bill-medicaid-221939277.html)
+- Jun 02 - [DOD official urged Trump administration not to end grant for biological threat research, Harvard tells court](https://www.yahoo.com/news/harvard-says-internal-trump-administration-205734067.html)
+- Jun 02 - [Trump pardons 2 divers who freed 19 sharks off the coast of Florida](https://www.yahoo.com/news/trump-pardons-2-divers-freed-221527544.html)
+- Jun 02 - [Palantir Stock vs. Taiwan Semiconductor Stock: Wall Street Says Buy One and Sell the Other](https://finance.yahoo.com/news/palantir-stock-vs-taiwan-semiconductor-220000928.html)
+- Jun 02 - [Crash on pedestrian-heavy main strip in Tennessee tourist town of Gatlinburg injures 7](https://www.yahoo.com/news/crash-pedestrian-heavy-main-strip-214326651.html)
 <!-- feed end -->
 
 ### Onstream
