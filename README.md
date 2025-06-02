@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Don't let the May rally fool you. There's more volatility ahead.](https://finance.yahoo.com/video/dont-let-may-rally-fool-100005160.html)
-- Jun 02 - [Florida man faces 20 years in prison for scamming customers out of $1.3M, leaving them with unfinished pools](https://www.yahoo.com/news/florida-man-faces-20-years-093000968.html)
-- Jun 02 - [Pennies will be going away soon. Here's why and what to do with yours](https://www.yahoo.com/news/pennies-going-away-soon-heres-090221655.html)
-- Jun 02 - [Eurosceptic nationalist Karol Nawrocki elected Poland president in tight election](https://www.yahoo.com/news/eurosceptic-nationalist-nawrocki-elected-poland-051319488.html)
-- Jun 02 - [Trump tariffs deals major blow to European steelmakers, Salzgitter CEO warns](https://finance.yahoo.com/news/european-industry-hit-hard-trump-082048625.html)
+- Jun 02 - [Greta Thunberg sets sail for Gaza to ‘break Israeli blockade’](https://www.yahoo.com/news/greta-thunberg-sets-sail-gaza-170426303.html)
+- Jun 02 - [Nine people including baby in hospital after boat ‘explodes](https://www.yahoo.com/news/nine-people-including-baby-hospital-103601962.html)
+- Jun 02 - [Right-winger Karol Nawrocki wins Polish presidential election](https://www.yahoo.com/news/liberal-mayor-narrowly-leads-poland-203304999.html)
+- Jun 02 - [Exclusive: Tesla executives questioned Musk after he denied killing $25,000 EV project - sources](https://finance.yahoo.com/news/exclusive-tesla-executives-questioned-musk-100828271.html)
+- Jun 02 - [An Australian woman on trial for triple murder testifies over mushroom poisoning](https://www.yahoo.com/news/australian-woman-trial-triple-murder-093811678.html)
 <!-- feed end -->
 
 ### Onstream
