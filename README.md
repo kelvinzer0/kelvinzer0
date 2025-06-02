@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Voices: I’m a former submariner – here’s what you need to know about Britain’s new nuclear fleet](https://www.yahoo.com/news/voices-m-former-submariner-know-135608519.html)
+- Jun 02 - [Zelenskiy says Ukraine, Russia to exchange lists this week for POW swap](https://www.yahoo.com/news/zelenskiy-says-ukraine-russia-exchange-170032859.html)
 - Jun 02 - [Every Cyber Attack Facing America](https://www.yahoo.com/entertainment/videos/every-cyber-attack-facing-america-160000577.html)
-- Jun 02 - [Killer who hid pregnant wife’s body under patio for 23 years asked son to dig up her remains](https://www.yahoo.com/news/killer-hid-pregnant-wife-body-133508374.html)
-- Jun 02 - [Some Retailers Can Get Away With Raising Prices, Widlitz Says](https://finance.yahoo.com/video/retailers-away-raising-prices-widlitz-150130602.html)
-- Jun 02 - [Why a 'decade of reckoning' is coming to the bond market](https://finance.yahoo.com/news/why-a-decade-of-reckoning-is-coming-to-the-bond-market-145931541.html)
+- Jun 02 - [Jonathan Joss, ‘King of the Hill’ Actor Who Voiced John Redcorn, Dies in Shooting at 59](https://www.yahoo.com/entertainment/articles/jonathan-joss-king-hill-actor-154817490.html)
+- Jun 02 - [New York Times Defends Report On Elon Musk’s Drug Use, Says He’s “Lashing Out Because He Doesn’t Like Our Article”](https://www.yahoo.com/news/york-times-defends-report-elon-151733870.html)
+- Jun 02 - [Man who won $3.6 million lottery jackpot says girlfriend took the money and ‘ghosted’ him](https://www.yahoo.com/news/man-won-3-6-million-151255200.html)
 <!-- feed end -->
 
 ### Onstream
