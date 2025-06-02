@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Alert issued after three girls - aged 5, 8 and 9 - go missing while visiting their dad](https://www.yahoo.com/news/alert-issued-three-girls-aged-133722839.html)
 - Jun 02 - [Voices: I’m a former submariner – here’s what you need to know about Britain’s new nuclear fleet](https://www.yahoo.com/news/voices-m-former-submariner-know-135608519.html)
-- Jun 02 - [Florida mom claims she was ‘told by God to exorcise demons’ when she killed her 6-year-old son, police say](https://www.yahoo.com/news/florida-mom-claims-she-told-144158869.html)
-- Jun 02 - [Tesla EU sales, FDA & Moderna, DraftKings: Trending Tickers](https://finance.yahoo.com/video/tesla-eu-sales-fda-moderna-143855711.html)
-- Jun 02 - [Mount Etna volcanic eruption: Is it safe to travel to Sicily and are flights cancelled?](https://www.yahoo.com/news/mount-etna-volcanic-eruption-safe-142025164.html)
+- Jun 02 - [Every Cyber Attack Facing America](https://www.yahoo.com/entertainment/videos/every-cyber-attack-facing-america-160000577.html)
+- Jun 02 - [Killer who hid pregnant wife’s body under patio for 23 years asked son to dig up her remains](https://www.yahoo.com/news/killer-hid-pregnant-wife-body-133508374.html)
+- Jun 02 - [Some Retailers Can Get Away With Raising Prices, Widlitz Says](https://finance.yahoo.com/video/retailers-away-raising-prices-widlitz-150130602.html)
+- Jun 02 - [Why a 'decade of reckoning' is coming to the bond market](https://finance.yahoo.com/news/why-a-decade-of-reckoning-is-coming-to-the-bond-market-145931541.html)
 <!-- feed end -->
 
 ### Onstream
