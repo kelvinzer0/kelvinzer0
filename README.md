@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - ["Tariffs Just Got Real": Americans Are Sharing Their Tariff Receipts, And These Are Brutal](https://finance.yahoo.com/news/tariffs-just-got-real-americans-031603765.html)
-- Jun 02 - [Burning rubber, PVC cause ‘dramatic conditions’ in Salem](https://www.yahoo.com/news/burning-rubber-pvc-cause-dramatic-023819416.html)
-- Jun 02 - [Woman came to pick up car after DeKalb driver arrested. Then she got arrested, too](https://www.yahoo.com/news/woman-came-pick-car-dekalb-010640172.html)
+- Jun 02 - [Right-wing Karol Nawrocki wins Polish presidential election](https://www.yahoo.com/news/liberal-mayor-narrowly-leads-poland-203304999.html)
+- Jun 02 - [Oil Rises as OPEC+ Boosts Supply Less Than Expected](https://finance.yahoo.com/video/oil-rises-opec-boosts-supply-050331931.html)
+- Jun 02 - [UH-OH: CNN Data Reporter Reveals 'Quite Troubling' News For Trump](https://www.yahoo.com/news/uh-oh-cnn-data-reporter-044931142.html)
+- Jun 02 - [Trump Posts Thinly-Veiled Message to Judges on Tariffs](https://www.yahoo.com/news/trump-posts-thinly-veiled-message-004152803.html)
 - Jun 01 - [An Extreme Drop in Oxygen Will Eventually Suffocate Most Life on Earth](https://www.yahoo.com/news/extreme-drop-oxygen-eventually-suffocate-232120139.html)
-- Jun 01 - [Oil jumps after OPEC+ sticks to same output hike in July versus June](https://finance.yahoo.com/news/oil-rebounds-opec-sticks-same-225756343.html)
 <!-- feed end -->
 
 ### Onstream
