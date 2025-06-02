@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Supreme Court won't hear challenge to Maryland assault weapons ban](https://www.yahoo.com/news/supreme-court-wont-hear-challenge-134216227.html)
-- Jun 02 - [US Supreme Court turns away challenge by Alpine Securities to FINRA](https://www.yahoo.com/news/us-supreme-court-turns-away-134046374.html)
-- Jun 02 - [A surprise drone attack on airfields across Russia encapsulates Ukraine's wartime strategy](https://www.yahoo.com/news/surprise-drone-attack-airfields-across-130956585.html)
-- Jun 02 - [National Hurricane Center tracking new tropical wave. Wet week ahead for Florida](https://www.yahoo.com/news/national-hurricane-center-tracking-tropical-124601708.html)
-- Jun 02 - [Boulder mall attack suspect used makeshift flamethrower, Molotov cocktails, FBI says](https://www.yahoo.com/news/boulder-mall-attack-suspect-used-123706744.html)
+- Jun 02 - [Alert issued after three girls - aged 5, 8 and 9 - go missing while visiting their dad](https://www.yahoo.com/news/alert-issued-three-girls-aged-133722839.html)
+- Jun 02 - [Voices: I’m a former submariner – here’s what you need to know about Britain’s new nuclear fleet](https://www.yahoo.com/news/voices-m-former-submariner-know-135608519.html)
+- Jun 02 - [Florida mom claims she was ‘told by God to exorcise demons’ when she killed her 6-year-old son, police say](https://www.yahoo.com/news/florida-mom-claims-she-told-144158869.html)
+- Jun 02 - [Tesla EU sales, FDA & Moderna, DraftKings: Trending Tickers](https://finance.yahoo.com/video/tesla-eu-sales-fda-moderna-143855711.html)
+- Jun 02 - [Mount Etna volcanic eruption: Is it safe to travel to Sicily and are flights cancelled?](https://www.yahoo.com/news/mount-etna-volcanic-eruption-safe-142025164.html)
 <!-- feed end -->
 
 ### Onstream
