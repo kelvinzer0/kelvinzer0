@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Crews still watching for hot spots after huge north Houston fire](https://www.yahoo.com/news/crews-still-watching-hot-spots-104229928.html)
-- Jun 03 - [Ex-Homeland Security official Taylor fights back against Trump's 'unprecedented' investigation order](https://www.yahoo.com/news/former-homeland-security-official-fights-103504326.html)
-- Jun 03 - [Woman who denies mushroom murders of her in-laws accepts that she served them death caps for lunch](https://www.yahoo.com/news/woman-denies-mushroom-murders-her-101455441.html)
-- Jun 03 - [Meteorologists from WBAY and WFRV depart for other markets; Cami Rapson's new co-anchor announced](https://www.yahoo.com/news/meteorologists-wbay-wfrv-depart-other-100343552.html)
-- Jun 03 - [Schwarzenegger tells environmentalists dismayed by Trump to 'stop whining' and get to work](https://www.yahoo.com/news/schwarzenegger-tells-environmentalists-dismayed-trump-094213508.html)
+- Jun 03 - [The Latest: Ex-Homeland Security official fights back against Trump’s investigation order](https://www.yahoo.com/news/latest-ex-homeland-security-official-121443199.html)
+- Jun 03 - [Ukraine claims new underwater bomb attack on Russia's Crimean Bridge](https://www.yahoo.com/news/russian-strikes-kill-7-across-091821889.html)
+- Jun 03 - [Newark Runway Finally Reopens: How It Impacts Summer Travel](https://www.yahoo.com/news/newark-runway-finally-reopens-impacts-115109796.html)
+- Jun 03 - [Car crashes into fence as driver allegedly evades police in Brooklyn: NYPD](https://www.yahoo.com/news/car-crashes-fence-driver-allegedly-114816532.html)
+- Jun 03 - [Modi's soaring Indian aviation ambitions face many headwinds](https://finance.yahoo.com/news/modis-soaring-indian-aviation-ambitions-112932031.html)
 <!-- feed end -->
 
 ### Onstream
