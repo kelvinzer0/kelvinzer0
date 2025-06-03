@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Citi to drop policy restricting services to retail clients selling firearms](https://finance.yahoo.com/news/citi-drop-policy-restricting-services-174654140.html)
-- Jun 03 - [Mayor Brandon Johnson ‘hopeful’ on Springfield transit deal before CTA fiscal cliff](https://www.yahoo.com/news/mayor-brandon-johnson-hopeful-springfield-165700729.html)
+- Jun 03 - [Newark mayor sues New Jersey's top federal prosecutor after arrest at immigration detention site](https://www.yahoo.com/news/newark-mayor-sues-jerseys-top-183144243.html)
+- Jun 03 - [Iowa amusement park's former owner settles lawsuit over 11-year-old's drowning](https://www.yahoo.com/news/iowa-amusement-parks-former-owner-182009886.html)
+- Jun 03 - [Saginaw man dies after being hit by vehicle in Petoskey Walmart parking lot](https://www.yahoo.com/news/saginaw-man-dies-being-hit-174609354.html)
 - Jun 03 - [Gifted Ethiopian student who survived Tigray war hopes to make it to Harvard](https://www.yahoo.com/news/gifted-ethiopian-student-survived-tigray-163325001.html)
-- Jun 03 - [Newark mayor sues Alina Habba over arrest at ICE facility and dropped charges](https://www.yahoo.com/news/newark-mayor-sues-alina-habba-154340278.html)
-- Jun 03 - [Huge 400-pound alligator captured in North Carolina on 'suspicion of being a dinosaur'](https://www.yahoo.com/news/huge-400-pound-alligator-captured-151120622.html)
+- Jun 03 - [Lowcountry Legal Volunteers receives grant](https://www.yahoo.com/news/lowcountry-legal-volunteers-receives-grant-163308325.html)
 <!-- feed end -->
 
 ### Onstream
