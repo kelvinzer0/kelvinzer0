@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Exclusive-Trump set to waive Defense Production Act requirements to boost critical minerals](https://finance.yahoo.com/news/trump-expected-waive-defense-production-195428898.html)
+- Jun 03 - [Mother speaks out after daughter attacked by group of teens at Fort Mill 7-Eleven](https://www.yahoo.com/news/mother-speaks-daughter-attacked-group-211238525.html)
+- Jun 03 - [Exclusive-Trump set to waive some legal requirements to boost critical minerals](https://finance.yahoo.com/news/trump-expected-waive-defense-production-195428898.html)
 - Jun 03 - [FBI says it broke up effort to bring toxic fungus to Michigan lab from China](https://www.yahoo.com/news/fbi-says-broke-effort-bring-195207521.html)
-- Jun 03 - [Zelenskiy announces military shakeup, new assignment for commander who resigned](https://www.yahoo.com/news/zelenskiy-announces-military-shakeup-commander-185452262.html)
-- Jun 03 - [Ukraine strikes Putin’s prized spy planes](https://www.yahoo.com/news/ukraine-strikes-putin-prized-spy-173444055.html)
-- Jun 03 - [Gifted Ethiopian student who survived Tigray war hopes to make it to Harvard](https://www.yahoo.com/news/gifted-ethiopian-student-survived-tigray-163325001.html)
+- Jun 03 - [Latest On Russian Aircraft Loss Assessments From Ukrainian Drone Strikes](https://www.yahoo.com/news/latest-russian-aircraft-loss-assessments-194613598.html)
+- Jun 03 - [Police: Man reportedly jumps to his death from Evansville casino's parking garage](https://www.yahoo.com/news/police-man-reportedly-jumps-death-194243465.html)
 <!-- feed end -->
 
 ### Onstream
