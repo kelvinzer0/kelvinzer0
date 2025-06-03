@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Rose harvest underway in Bulgaria as threat of tariffs brings uncertainty](https://www.yahoo.com/news/rose-harvest-underway-bulgaria-threat-081037987.html)
-- Jun 03 - [Throne speech was an 'emotional moment' for the King, Buckingham Palace says](https://www.yahoo.com/news/throne-speech-emotional-moment-king-080000352.html)
-- Jun 03 - [ICE agents with assault rifles toss flash-bangs in serene SoCal neighborhood. City officials outraged](https://www.yahoo.com/news/alarming-show-force-san-diego-011009143.html)
+- Jun 03 - [RFK Jr.’s Gotcha Moment On CNN Goes Viral Again Amid ‘MAHA’ Report Controversy](https://www.yahoo.com/news/rfk-jr-gotcha-moment-cnn-072317805.html)
+- Jun 03 - [Mob brutally attacks teen at Palmdale concert, family seeks hate crime charges](https://www.yahoo.com/news/mob-brutally-attacks-teen-palmdale-005700962.html)
+- Jun 02 - [‘It’s going to ruin us,’ Arkansas River levee being bypassed by dilapidated flood gates](https://www.yahoo.com/news/going-ruin-us-arkansas-river-234039893.html)
 - Jun 02 - [Employee slammed for not seeing anything wrong with her ‘inappropriate’ work outfit: ‘Confused how this outfit left the house in the first place’](https://www.yahoo.com/lifestyle/employee-slammed-not-seeing-anything-233849947.html)
 - Jun 02 - [Trump appears to undercut US proposal to Iran, declaring he won't allow any uranium enrichment](https://www.yahoo.com/news/trump-appears-undercut-us-proposal-231904149.html)
 <!-- feed end -->
