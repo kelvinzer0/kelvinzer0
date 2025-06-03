@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Road rage incident leads to deadly shooting on Las Vegas freeway](https://www.yahoo.com/news/crash-closes-westbound-215-lanes-021757819.html)
-- Jun 03 - [ICE agents with assault rifles toss flash-bangs in serene SoCal neighborhood. City officials outraged](https://www.yahoo.com/news/alarming-show-force-san-diego-011009143.html)
+- Jun 03 - [Krispy Kreme running 'part exchange' programme to swap 'dupe' doughnuts](https://www.yahoo.com/news/krispy-kreme-running-part-exchange-075529500.html)
+- Jun 03 - [Palantir Stock vs. Nvidia Stock: Wall Street Says Buy One and Sell the Other](https://finance.yahoo.com/news/palantir-stock-vs-nvidia-stock-071500797.html)
 - Jun 02 - [Trump appears to undercut US proposal to Iran, declaring he won't allow any uranium enrichment](https://www.yahoo.com/news/trump-appears-undercut-us-proposal-231904149.html)
+- Jun 02 - ['Rich Dad Poor Dad' author warns 'the biggest crash in history is coming'](https://finance.yahoo.com/news/rich-dad-poor-dad-author-223000952.html)
 - Jun 02 - [Trump pardons 2 divers who freed 19 sharks off the coast of Florida](https://www.yahoo.com/news/trump-pardons-2-divers-freed-221527544.html)
-- Jun 02 - [Fed Chair Powell reveals new inflation target](https://finance.yahoo.com/news/fed-chair-powell-reveals-inflation-202913088.html)
 <!-- feed end -->
 
 ### Onstream
