@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Newark mayor sues New Jersey's top federal prosecutor after arrest at immigration detention site](https://www.yahoo.com/news/newark-mayor-sues-jerseys-top-183144243.html)
-- Jun 03 - [Iowa amusement park's former owner settles lawsuit over 11-year-old's drowning](https://www.yahoo.com/news/iowa-amusement-parks-former-owner-182009886.html)
-- Jun 03 - [Saginaw man dies after being hit by vehicle in Petoskey Walmart parking lot](https://www.yahoo.com/news/saginaw-man-dies-being-hit-174609354.html)
+- Jun 03 - [Trump administration revokes guidance requiring hospitals to provide emergency abortions](https://www.yahoo.com/news/trump-administration-revokes-guidance-requiring-193140995.html)
+- Jun 03 - [Meta to Meet AI Power Demand with Nuclear Power](https://finance.yahoo.com/video/meta-meet-ai-power-demand-184358358.html)
 - Jun 03 - [Gifted Ethiopian student who survived Tigray war hopes to make it to Harvard](https://www.yahoo.com/news/gifted-ethiopian-student-survived-tigray-163325001.html)
-- Jun 03 - [Lowcountry Legal Volunteers receives grant](https://www.yahoo.com/news/lowcountry-legal-volunteers-receives-grant-163308325.html)
+- Jun 03 - [Joe Walsh says he’s becoming a Democrat](https://www.yahoo.com/news/joe-walsh-says-becoming-democrat-162118681.html)
+- Jun 03 - [Ukraine targets bridge linking Russia to Crimea with massive underwater blast, video shows](https://www.yahoo.com/news/ukraine-targets-bridge-linking-russia-161357490.html)
 <!-- feed end -->
 
 ### Onstream
