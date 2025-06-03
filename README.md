@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [US job openings rise to 7.39 million in April: JOLTS data](https://finance.yahoo.com/video/us-job-openings-rise-7-143225944.html)
-- Jun 03 - [Early-season activity may indicate an above-average hurricane season in Louisiana. What to know](https://www.yahoo.com/news/early-season-activity-may-indicate-141508033.html)
-- Jun 03 - [Portion of eastbound I-10 near Van Buren Street blocked for 'law enforcement situation'](https://www.yahoo.com/news/portion-eastbound-10-near-van-135755680.html)
+- Jun 03 - [Newark mayor sues Alina Habba over arrest at ICE facility and dropped charges](https://www.yahoo.com/news/newark-mayor-sues-alina-habba-154340278.html)
+- Jun 03 - [Exclusive: CVS lays out $20B plan to modernize US consumer healthcare experience](https://finance.yahoo.com/news/exclusive-cvs-lays-out-20b-plan-to-modernize-us-consumer-healthcare-experience-154127371.html)
+- Jun 03 - [MI5 apologises unreservedly to High Court for ‘failings and errors’](https://www.yahoo.com/news/mi5-apologises-unreservedly-high-court-154215438.html)
+- Jun 03 - [Ukraine strikes bridge connecting Russia to Crimea with underwater explosives](https://www.yahoo.com/news/ukraine-says-struck-bridge-connecting-123702009.html)
 - Jun 03 - [A New COVID Variant Is Spreading Quickly — These Are The Symptoms Doctors Are Warning About](https://www.yahoo.com/news/covid-variant-spreading-quickly-symptoms-123102362.html)
-- Jun 03 - [World Boxing apologizes for naming Olympic champion Imane Khelif in sex test policy](https://sports.yahoo.com/article/world-boxing-apologizes-naming-olympic-122532889.html)
 <!-- feed end -->
 
 ### Onstream
