@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [The Latest: Ex-Homeland Security official fights back against Trump’s investigation order](https://www.yahoo.com/news/latest-ex-homeland-security-official-121443199.html)
-- Jun 03 - [Ukraine claims new underwater bomb attack on Russia's Crimean Bridge](https://www.yahoo.com/news/russian-strikes-kill-7-across-091821889.html)
-- Jun 03 - [Newark Runway Finally Reopens: How It Impacts Summer Travel](https://www.yahoo.com/news/newark-runway-finally-reopens-impacts-115109796.html)
-- Jun 03 - [Car crashes into fence as driver allegedly evades police in Brooklyn: NYPD](https://www.yahoo.com/news/car-crashes-fence-driver-allegedly-114816532.html)
-- Jun 03 - [Modi's soaring Indian aviation ambitions face many headwinds](https://finance.yahoo.com/news/modis-soaring-indian-aviation-ambitions-112932031.html)
+- Jun 03 - [Einhorn on How Value Investing Has Changed](https://finance.yahoo.com/video/einhorn-value-investing-changed-124212447.html)
+- Jun 03 - [Ukraine says it hit Russia's bridge to Crimea with underwater explosives](https://www.yahoo.com/news/ukraine-says-hit-russias-bridge-123740807.html)
+- Jun 03 - [A New COVID Variant Is Spreading Quickly — These Are The Symptoms Doctors Are Warning About](https://www.yahoo.com/news/covid-variant-spreading-quickly-symptoms-123102362.html)
+- Jun 03 - [Trump Signed an Executive Order Accusing Him of Treason. Now Miles Taylor Is Fighting Back.](https://www.yahoo.com/news/trump-signed-executive-order-accusing-120000245.html)
+- Jun 03 - [Wilders’ exit is a severe warning to a discredited European elite](https://www.yahoo.com/news/wilder-exit-shattering-warning-europe-105344625.html)
 <!-- feed end -->
 
 ### Onstream
