@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jun 02 - [Rep. Hinson on Tax Bill, Medicaid Cuts](https://finance.yahoo.com/video/rep-hinson-tax-bill-medicaid-221939277.html)
 - Jun 02 - [DOD official urged Trump administration not to end grant for biological threat research, Harvard tells court](https://www.yahoo.com/news/harvard-says-internal-trump-administration-205734067.html)
 - Jun 02 - [Trump pardons 2 divers who freed 19 sharks off the coast of Florida](https://www.yahoo.com/news/trump-pardons-2-divers-freed-221527544.html)
-- Jun 02 - [Palantir Stock vs. Taiwan Semiconductor Stock: Wall Street Says Buy One and Sell the Other](https://finance.yahoo.com/news/palantir-stock-vs-taiwan-semiconductor-220000928.html)
-- Jun 02 - [Crash on pedestrian-heavy main strip in Tennessee tourist town of Gatlinburg injures 7](https://www.yahoo.com/news/crash-pedestrian-heavy-main-strip-214326651.html)
+- Jun 02 - [Largest ever ICE operation results in nearly 1,500 illegals arrested in blue state](https://www.yahoo.com/news/largest-ever-ice-operation-results-212301098.html)
+- Jun 02 - [CNN parts ways with correspondent months after his story cost network millions in defamation suit](https://www.yahoo.com/news/cnn-parts-ways-correspondent-months-201344153.html)
 <!-- feed end -->
 
 ### Onstream
