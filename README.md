@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Mob brutally attacks teen at Palmdale concert, family seeks hate crime charges](https://www.yahoo.com/news/mob-brutally-attacks-teen-palmdale-005700962.html)
+- Jun 02 - [Employee slammed for not seeing anything wrong with her ‘inappropriate’ work outfit: ‘Confused how this outfit left the house in the first place’](https://www.yahoo.com/lifestyle/employee-slammed-not-seeing-anything-233849947.html)
 - Jun 02 - [Trump appears to undercut US proposal to Iran, declaring he won't allow any uranium enrichment](https://www.yahoo.com/news/trump-appears-undercut-us-proposal-231904149.html)
+- Jun 02 - [WATCH: TikTok video of woman digging for geoduck in WA goes viral](https://www.yahoo.com/lifestyle/watch-tiktok-video-woman-digging-223256954.html)
 - Jun 02 - [Trump pardons 2 divers who freed 19 sharks off the coast of Florida](https://www.yahoo.com/news/trump-pardons-2-divers-freed-221527544.html)
-- Jun 02 - [Crash on pedestrian-heavy main strip in Tennessee tourist town of Gatlinburg injures 7](https://www.yahoo.com/news/crash-pedestrian-heavy-main-strip-214326651.html)
-- Jun 02 - [Largest ever ICE operation results in nearly 1,500 illegals arrested in blue state](https://www.yahoo.com/news/largest-ever-ice-operation-results-212301098.html)
-- Jun 02 - [Fed Chair Powell reveals new inflation target](https://finance.yahoo.com/news/fed-chair-powell-reveals-inflation-202913088.html)
 <!-- feed end -->
 
 ### Onstream
