@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Krispy Kreme running 'part exchange' programme to swap 'dupe' doughnuts](https://www.yahoo.com/news/krispy-kreme-running-part-exchange-075529500.html)
-- Jun 03 - [Palantir Stock vs. Nvidia Stock: Wall Street Says Buy One and Sell the Other](https://finance.yahoo.com/news/palantir-stock-vs-nvidia-stock-071500797.html)
+- Jun 03 - [Rose harvest underway in Bulgaria as threat of tariffs brings uncertainty](https://www.yahoo.com/news/rose-harvest-underway-bulgaria-threat-081037987.html)
+- Jun 03 - [Throne speech was an 'emotional moment' for the King, Buckingham Palace says](https://www.yahoo.com/news/throne-speech-emotional-moment-king-080000352.html)
+- Jun 03 - [ICE agents with assault rifles toss flash-bangs in serene SoCal neighborhood. City officials outraged](https://www.yahoo.com/news/alarming-show-force-san-diego-011009143.html)
+- Jun 02 - [Employee slammed for not seeing anything wrong with her ‘inappropriate’ work outfit: ‘Confused how this outfit left the house in the first place’](https://www.yahoo.com/lifestyle/employee-slammed-not-seeing-anything-233849947.html)
 - Jun 02 - [Trump appears to undercut US proposal to Iran, declaring he won't allow any uranium enrichment](https://www.yahoo.com/news/trump-appears-undercut-us-proposal-231904149.html)
-- Jun 02 - ['Rich Dad Poor Dad' author warns 'the biggest crash in history is coming'](https://finance.yahoo.com/news/rich-dad-poor-dad-author-223000952.html)
-- Jun 02 - [Trump pardons 2 divers who freed 19 sharks off the coast of Florida](https://www.yahoo.com/news/trump-pardons-2-divers-freed-221527544.html)
 <!-- feed end -->
 
 ### Onstream
