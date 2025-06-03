@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Donald Trump's Favorite Breakfast Is A Simple Classic](https://www.yahoo.com/lifestyle/donald-trumps-favorite-breakfast-simple-140000105.html)
-- Jun 03 - [Meta Will Buy Nuclear Power From Constellation Energy](https://finance.yahoo.com/video/meta-buy-nuclear-power-constellation-134710873.html)
-- Jun 03 - [Broadcom ships latest networking chip to speed AI](https://finance.yahoo.com/news/broadcom-ships-latest-networking-chip-130911783.html)
+- Jun 03 - [US job openings rise to 7.39 million in April: JOLTS data](https://finance.yahoo.com/video/us-job-openings-rise-7-143225944.html)
+- Jun 03 - [Early-season activity may indicate an above-average hurricane season in Louisiana. What to know](https://www.yahoo.com/news/early-season-activity-may-indicate-141508033.html)
+- Jun 03 - [Portion of eastbound I-10 near Van Buren Street blocked for 'law enforcement situation'](https://www.yahoo.com/news/portion-eastbound-10-near-van-135755680.html)
 - Jun 03 - [A New COVID Variant Is Spreading Quickly — These Are The Symptoms Doctors Are Warning About](https://www.yahoo.com/news/covid-variant-spreading-quickly-symptoms-123102362.html)
-- Jun 03 - [NYC man admits he put $11K engagement ring on a 0% interest credit card — when he has $25K sitting in savings](https://finance.yahoo.com/news/nyc-man-admits-put-11k-120700290.html)
+- Jun 03 - [World Boxing apologizes for naming Olympic champion Imane Khelif in sex test policy](https://sports.yahoo.com/article/world-boxing-apologizes-naming-olympic-122532889.html)
 <!-- feed end -->
 
 ### Onstream
