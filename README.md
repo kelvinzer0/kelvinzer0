@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Top retired Chinese general Xu Qiliang dies of illness: state media](https://www.yahoo.com/news/top-retired-chinese-general-xu-032706360.html)
-- Jun 03 - [Heber Valley Temple lawsuit: Judge hears arguments on temple construction](https://www.yahoo.com/news/heber-valley-temple-lawsuit-judge-003038065.html)
+- Jun 03 - [Mexico's ruling party headed toward control of newly elected Supreme Court, vote tallies show](https://www.yahoo.com/news/mexicos-ruling-party-headed-toward-040245184.html)
 - Jun 02 - [DOD official urged Trump administration not to end grant for biological threat research, Harvard tells court](https://www.yahoo.com/news/harvard-says-internal-trump-administration-205734067.html)
 - Jun 02 - [Trump pardons 2 divers who freed 19 sharks off the coast of Florida](https://www.yahoo.com/news/trump-pardons-2-divers-freed-221527544.html)
 - Jun 02 - [Crash on pedestrian-heavy main strip in Tennessee tourist town of Gatlinburg injures 7](https://www.yahoo.com/news/crash-pedestrian-heavy-main-strip-214326651.html)
+- Jun 02 - ["They did not accept our relationship": Actor Jonathan Joss shot dead in alleged homophobic attack](https://www.yahoo.com/news/did-not-accept-relationship-actor-213645592.html)
 <!-- feed end -->
 
 ### Onstream
