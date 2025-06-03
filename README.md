@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [RFK Jr.’s Gotcha Moment On CNN Goes Viral Again Amid ‘MAHA’ Report Controversy](https://www.yahoo.com/news/rfk-jr-gotcha-moment-cnn-072317805.html)
-- Jun 03 - [Mob brutally attacks teen at Palmdale concert, family seeks hate crime charges](https://www.yahoo.com/news/mob-brutally-attacks-teen-palmdale-005700962.html)
-- Jun 02 - [‘It’s going to ruin us,’ Arkansas River levee being bypassed by dilapidated flood gates](https://www.yahoo.com/news/going-ruin-us-arkansas-river-234039893.html)
-- Jun 02 - [Employee slammed for not seeing anything wrong with her ‘inappropriate’ work outfit: ‘Confused how this outfit left the house in the first place’](https://www.yahoo.com/lifestyle/employee-slammed-not-seeing-anything-233849947.html)
-- Jun 02 - [Trump appears to undercut US proposal to Iran, declaring he won't allow any uranium enrichment](https://www.yahoo.com/news/trump-appears-undercut-us-proposal-231904149.html)
+- Jun 03 - [Crews still watching for hot spots after huge north Houston fire](https://www.yahoo.com/news/crews-still-watching-hot-spots-104229928.html)
+- Jun 03 - [Ex-Homeland Security official Taylor fights back against Trump's 'unprecedented' investigation order](https://www.yahoo.com/news/former-homeland-security-official-fights-103504326.html)
+- Jun 03 - [Woman who denies mushroom murders of her in-laws accepts that she served them death caps for lunch](https://www.yahoo.com/news/woman-denies-mushroom-murders-her-101455441.html)
+- Jun 03 - [Meteorologists from WBAY and WFRV depart for other markets; Cami Rapson's new co-anchor announced](https://www.yahoo.com/news/meteorologists-wbay-wfrv-depart-other-100343552.html)
+- Jun 03 - [Schwarzenegger tells environmentalists dismayed by Trump to 'stop whining' and get to work](https://www.yahoo.com/news/schwarzenegger-tells-environmentalists-dismayed-trump-094213508.html)
 <!-- feed end -->
 
 ### Onstream
