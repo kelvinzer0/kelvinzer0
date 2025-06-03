@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Mother speaks out after daughter attacked by group of teens at Fort Mill 7-Eleven](https://www.yahoo.com/news/mother-speaks-daughter-attacked-group-211238525.html)
+- Jun 03 - [Israel says rockets fired from Syria for the first time since Bashar Assad's fall](https://www.yahoo.com/news/israel-says-rockets-fired-syria-225015147.html)
+- Jun 03 - [A storm is brewing in the Atlantic and could be the first to impact the US this season](https://www.yahoo.com/news/storm-brewing-atlantic-could-first-223404946.html)
+- Jun 03 - [Court documents reveal how 3 Wenatchee sisters likely died](https://www.yahoo.com/news/court-documents-reveal-3-wenatchee-222557417.html)
+- Jun 03 - ["This Is So Stupid It Makes Me Want To Vomit": 49 Tweets About The Pitiful State Of Politics Right Now](https://www.yahoo.com/news/stupid-makes-want-vomit-49-222511891.html)
 - Jun 03 - [Exclusive-Trump set to waive some legal requirements to boost critical minerals](https://finance.yahoo.com/news/trump-expected-waive-defense-production-195428898.html)
-- Jun 03 - [FBI says it broke up effort to bring toxic fungus to Michigan lab from China](https://www.yahoo.com/news/fbi-says-broke-effort-bring-195207521.html)
-- Jun 03 - [Latest On Russian Aircraft Loss Assessments From Ukrainian Drone Strikes](https://www.yahoo.com/news/latest-russian-aircraft-loss-assessments-194613598.html)
-- Jun 03 - [Police: Man reportedly jumps to his death from Evansville casino's parking garage](https://www.yahoo.com/news/police-man-reportedly-jumps-death-194243465.html)
 <!-- feed end -->
 
 ### Onstream
