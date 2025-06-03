@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Einhorn on How Value Investing Has Changed](https://finance.yahoo.com/video/einhorn-value-investing-changed-124212447.html)
-- Jun 03 - [Ukraine says it hit Russia's bridge to Crimea with underwater explosives](https://www.yahoo.com/news/ukraine-says-hit-russias-bridge-123740807.html)
+- Jun 03 - [Donald Trump's Favorite Breakfast Is A Simple Classic](https://www.yahoo.com/lifestyle/donald-trumps-favorite-breakfast-simple-140000105.html)
+- Jun 03 - [Meta Will Buy Nuclear Power From Constellation Energy](https://finance.yahoo.com/video/meta-buy-nuclear-power-constellation-134710873.html)
+- Jun 03 - [Broadcom ships latest networking chip to speed AI](https://finance.yahoo.com/news/broadcom-ships-latest-networking-chip-130911783.html)
 - Jun 03 - [A New COVID Variant Is Spreading Quickly — These Are The Symptoms Doctors Are Warning About](https://www.yahoo.com/news/covid-variant-spreading-quickly-symptoms-123102362.html)
-- Jun 03 - [Trump Signed an Executive Order Accusing Him of Treason. Now Miles Taylor Is Fighting Back.](https://www.yahoo.com/news/trump-signed-executive-order-accusing-120000245.html)
-- Jun 03 - [Wilders’ exit is a severe warning to a discredited European elite](https://www.yahoo.com/news/wilder-exit-shattering-warning-europe-105344625.html)
+- Jun 03 - [NYC man admits he put $11K engagement ring on a 0% interest credit card — when he has $25K sitting in savings](https://finance.yahoo.com/news/nyc-man-admits-put-11k-120700290.html)
 <!-- feed end -->
 
 ### Onstream
