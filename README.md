@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Citi to drop policy restricting services to retail clients selling firearms](https://finance.yahoo.com/news/citi-drop-policy-restricting-services-174654140.html)
+- Jun 03 - [Mayor Brandon Johnson ‘hopeful’ on Springfield transit deal before CTA fiscal cliff](https://www.yahoo.com/news/mayor-brandon-johnson-hopeful-springfield-165700729.html)
 - Jun 03 - [Gifted Ethiopian student who survived Tigray war hopes to make it to Harvard](https://www.yahoo.com/news/gifted-ethiopian-student-survived-tigray-163325001.html)
-- Jun 03 - [Entomologist Answers Insect Questions](https://tech.yahoo.com/videos/entomologist-answers-insect-questions-160000183.html)
-- Jun 03 - [McDonald's Officially Confirms Fan-Favorite Snack Wrap is Returning Next Month](https://www.yahoo.com/lifestyle/mcdonalds-officially-confirms-fan-favorite-153147677.html)
+- Jun 03 - [Newark mayor sues Alina Habba over arrest at ICE facility and dropped charges](https://www.yahoo.com/news/newark-mayor-sues-alina-habba-154340278.html)
 - Jun 03 - [Huge 400-pound alligator captured in North Carolina on 'suspicion of being a dinosaur'](https://www.yahoo.com/news/huge-400-pound-alligator-captured-151120622.html)
-- Jun 03 - [White House to ask Congress to codify DOGE cuts to USAID and public broadcasting](https://www.yahoo.com/news/white-house-ask-congress-codify-144638664.html)
 <!-- feed end -->
 
 ### Onstream
