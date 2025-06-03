@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Trump administration revokes guidance requiring hospitals to provide emergency abortions](https://www.yahoo.com/news/trump-administration-revokes-guidance-requiring-193140995.html)
-- Jun 03 - [Meta to Meet AI Power Demand with Nuclear Power](https://finance.yahoo.com/video/meta-meet-ai-power-demand-184358358.html)
+- Jun 03 - [Exclusive-Trump set to waive Defense Production Act requirements to boost critical minerals](https://finance.yahoo.com/news/trump-expected-waive-defense-production-195428898.html)
+- Jun 03 - [FBI says it broke up effort to bring toxic fungus to Michigan lab from China](https://www.yahoo.com/news/fbi-says-broke-effort-bring-195207521.html)
+- Jun 03 - [Zelenskiy announces military shakeup, new assignment for commander who resigned](https://www.yahoo.com/news/zelenskiy-announces-military-shakeup-commander-185452262.html)
+- Jun 03 - [Ukraine strikes Putin’s prized spy planes](https://www.yahoo.com/news/ukraine-strikes-putin-prized-spy-173444055.html)
 - Jun 03 - [Gifted Ethiopian student who survived Tigray war hopes to make it to Harvard](https://www.yahoo.com/news/gifted-ethiopian-student-survived-tigray-163325001.html)
-- Jun 03 - [Joe Walsh says he’s becoming a Democrat](https://www.yahoo.com/news/joe-walsh-says-becoming-democrat-162118681.html)
-- Jun 03 - [Ukraine targets bridge linking Russia to Crimea with massive underwater blast, video shows](https://www.yahoo.com/news/ukraine-targets-bridge-linking-russia-161357490.html)
 <!-- feed end -->
 
 ### Onstream
