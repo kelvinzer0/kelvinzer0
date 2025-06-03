@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Newark mayor sues Alina Habba over arrest at ICE facility and dropped charges](https://www.yahoo.com/news/newark-mayor-sues-alina-habba-154340278.html)
-- Jun 03 - [Exclusive: CVS lays out $20B plan to modernize US consumer healthcare experience](https://finance.yahoo.com/news/exclusive-cvs-lays-out-20b-plan-to-modernize-us-consumer-healthcare-experience-154127371.html)
-- Jun 03 - [MI5 apologises unreservedly to High Court for ‘failings and errors’](https://www.yahoo.com/news/mi5-apologises-unreservedly-high-court-154215438.html)
-- Jun 03 - [Ukraine strikes bridge connecting Russia to Crimea with underwater explosives](https://www.yahoo.com/news/ukraine-says-struck-bridge-connecting-123702009.html)
-- Jun 03 - [A New COVID Variant Is Spreading Quickly — These Are The Symptoms Doctors Are Warning About](https://www.yahoo.com/news/covid-variant-spreading-quickly-symptoms-123102362.html)
+- Jun 03 - [Gifted Ethiopian student who survived Tigray war hopes to make it to Harvard](https://www.yahoo.com/news/gifted-ethiopian-student-survived-tigray-163325001.html)
+- Jun 03 - [Entomologist Answers Insect Questions](https://tech.yahoo.com/videos/entomologist-answers-insect-questions-160000183.html)
+- Jun 03 - [McDonald's Officially Confirms Fan-Favorite Snack Wrap is Returning Next Month](https://www.yahoo.com/lifestyle/mcdonalds-officially-confirms-fan-favorite-153147677.html)
+- Jun 03 - [Huge 400-pound alligator captured in North Carolina on 'suspicion of being a dinosaur'](https://www.yahoo.com/news/huge-400-pound-alligator-captured-151120622.html)
+- Jun 03 - [White House to ask Congress to codify DOGE cuts to USAID and public broadcasting](https://www.yahoo.com/news/white-house-ask-congress-codify-144638664.html)
 <!-- feed end -->
 
 ### Onstream
