@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [How often do mortgage rates change?](https://finance.yahoo.com/personal-finance/mortgages/article/how-often-do-mortgage-rates-change-130720306.html)
-- Jun 04 - [10 foods that may reduce your risk of developing dementia](https://www.yahoo.com/lifestyle/mind-diet-dementia-alzheimers-food-health-121753245.html)
-- Jun 04 - [This BlackRock ETF Could Soar 12,400%, According to Billionaire Michael Saylor](https://finance.yahoo.com/news/blackrock-etf-could-soar-12-114500361.html)
-- Jun 04 - [Scientists make chilling discovery hidden deep within centuries-old ice cores: 'We need to raise the alarm'](https://www.yahoo.com/news/scientists-chilling-discovery-hidden-deep-104549101.html)
-- Jun 04 - [The Likely Cause of Death for Travis Decker's 3 Daughters Was Revealed. It's Chilling](https://www.yahoo.com/news/likely-cause-death-travis-deckers-052808307.html)
+- Jun 04 - [Stormy days ahead as 2 weather systems 'park' above Indianapolis: the latest forecast](https://www.yahoo.com/news/stormy-days-ahead-2-weather-134336368.html)
+- Jun 04 - [Satellite photos show destroyed bombers at a Russian air base struck by Ukrainian drones](https://www.yahoo.com/news/satellite-photos-show-destroyed-bombers-132252307.html)
+- Jun 04 - [Sellers forced to slash prices as homes sit for months — why the tides have turned on this Texas beach town](https://finance.yahoo.com/news/sellers-forced-slash-prices-homes-113200724.html)
+- Jun 04 - [‘Not enough’ landlords to cater to students and immigrants, Paragon boss warns](https://finance.yahoo.com/news/not-enough-landlords-cater-students-112958096.html)
+- Jun 04 - [Dave Ramsey says to never take out more than a 15-year mortgage — and now he’s getting roasted for it online](https://finance.yahoo.com/news/dave-ramsey-says-never-more-110000845.html)
 <!-- feed end -->
