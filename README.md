@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [Pakistani troops kill 14 militants in raid in northwest region near Afghanistan](https://www.yahoo.com/news/pakistani-troops-kill-14-militants-065239705.html)
 - Jun 04 - [Deadly mushroom lunch cook tells court she made herself sick after meal](https://www.yahoo.com/news/toxic-beef-wellington-cook-gives-001302665.html)
+- Jun 04 - [Young South Korean women help propel liberal candidate Lee to victory](https://www.yahoo.com/news/young-south-korean-women-help-061605053.html)
 - Jun 04 - [Gower: Aluminum Tariff Hike Unlikely to Impact US Short-Term Imports](https://finance.yahoo.com/video/gower-aluminum-tariff-hike-unlikely-054948535.html)
-- Jun 04 - [Kevin O'Leary Says, Forget The Classic Three-Bedroom, 2,500 Square Foot For $1.2M—Now You're Paying That For A Trailer Home In California](https://finance.yahoo.com/news/kevin-oleary-says-forget-classic-010007766.html)
-- Jun 03 - [Partially Submerged North Korean Frigate Appears Upright Again In Satellite Image](https://www.yahoo.com/news/partially-submerged-north-korean-frigate-231331320.html)
-- Jun 03 - [Mexican 4-year-old is granted humanitarian parole to continue receiving lifesaving care in US](https://www.yahoo.com/news/mexican-girl-granted-humanitarian-parole-230449764.html)
+- Jun 04 - [Federal officers in tactical gear spark chaos and confusion in Minneapolis](https://www.yahoo.com/news/federal-officers-tactical-gear-spark-025421042.html)
 <!-- feed end -->
