@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Stormy days ahead as 2 weather systems 'park' above Indianapolis: the latest forecast](https://www.yahoo.com/news/stormy-days-ahead-2-weather-134336368.html)
-- Jun 04 - [Satellite photos show destroyed bombers at a Russian air base struck by Ukrainian drones](https://www.yahoo.com/news/satellite-photos-show-destroyed-bombers-132252307.html)
-- Jun 04 - [Sellers forced to slash prices as homes sit for months — why the tides have turned on this Texas beach town](https://finance.yahoo.com/news/sellers-forced-slash-prices-homes-113200724.html)
-- Jun 04 - [‘Not enough’ landlords to cater to students and immigrants, Paragon boss warns](https://finance.yahoo.com/news/not-enough-landlords-cater-students-112958096.html)
-- Jun 04 - [Dave Ramsey says to never take out more than a 15-year mortgage — and now he’s getting roasted for it online](https://finance.yahoo.com/news/dave-ramsey-says-never-more-110000845.html)
+- Jun 04 - [MSU warns international students to stay in US after visa interviews paused](https://www.yahoo.com/news/msu-warns-international-students-stay-150728613.html)
+- Jun 04 - [Dollar Tree, Dollar General, Ollie's All Beat, Raise Views. One Soars.](https://www.investors.com/news/dollar-stores-retail-earnings-dollar-general-dg-stock/?src=A00220&yptr=yahoo)
+- Jun 04 - [AP top stories June 4](https://www.yahoo.com/news/ap-top-stories-june-4-145532907.html)
+- Jun 04 - [Marjorie Taylor Greene’s four-word dagger to Trump and GOP after Musk’s ‘Big Beautiful’ takedown](https://www.yahoo.com/news/marjorie-taylor-greene-four-word-143339699.html)
+- Jun 04 - [Russia urges US and UK to restrain Ukraine after attacks on bombers](https://www.yahoo.com/news/russia-urges-us-uk-restrain-140732083.html)
 <!-- feed end -->
