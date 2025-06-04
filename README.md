@@ -66,9 +66,3 @@ https://kelvinzer0.github.io
 - Jun 03 - [Cadets who met all Air Force Academy graduation standards denied commissions because they’re transgender](https://www.yahoo.com/news/cadets-met-air-force-academy-225601194.html)
 - Jun 03 - [Trump formally asks Congress to claw back approved spending targeted by DOGE](https://www.yahoo.com/news/trump-formally-asks-congress-claw-205905054.html)
 <!-- feed end -->
-
-### Onstream
-https://kelvinzer0.github.io/onair/
-
-### Are you tired of coding?
-Try this: https://kelvinzer0.github.io/g1
