@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [AI Weekly: Sam Altman makes a prediction](https://finance.yahoo.com/video/ai-weekly-sam-altman-makes-164903390.html)
-- Jun 04 - [Trump is ‘furious’ that Elon Musk has turned on his beloved ‘Big, Beautiful Bill,’ Fox & Friends reveals](https://www.yahoo.com/news/trump-furious-elon-musk-turned-164826788.html)
-- Jun 04 - [A doctor told me weighted vests are 'great' for women in menopause. I put one to the test — and it's on sale](https://www.yahoo.com/lifestyle/a-doctor-told-me-weighted-vests-are-great-for-women-in-menopause-i-put-one-to-the-test--and-its-on-sale-164613364.html)
-- Jun 04 - [US FAA not currently considering lifting Boeing 737 MAX production cap, official says](https://finance.yahoo.com/news/us-faa-not-currently-considering-163009644.html)
-- Jun 04 - [Schoolboy slain in unprovoked attack by swordsman during ‘murderous’ 20-minute rampage, court told](https://www.yahoo.com/news/schoolboy-slain-unprovoked-attack-swordsman-115152154.html)
+- Jun 04 - [Citizens CEO: Worst of Tariff Pain is Behind Us](https://finance.yahoo.com/video/citizens-ceo-worst-tariff-pain-171755335.html)
+- Jun 04 - [Satellite images show the unusual tire tactic and fake decoy aircraft that failed to save Russia's bombers from Ukrainian drones](https://www.yahoo.com/news/satellite-images-show-unusual-tire-165506065.html)
+- Jun 04 - [I’m 56 and my wife just died. She made 65% of our income and I can’t afford our bills alone — what do I do?](https://finance.yahoo.com/news/m-56-wife-just-died-160100806.html)
+- Jun 04 - [Karine Jean-Pierre, Biden’s former press secretary, reveals she’s left the Democratic Party](https://www.yahoo.com/news/karine-jean-pierre-biden-former-160004004.html)
+- Jun 04 - [Pressure mounts on Netanyahu as opposition moves to dissolve parliament](https://www.yahoo.com/news/pressure-mounts-netanyahu-opposition-moves-144333352.html)
 <!-- feed end -->
