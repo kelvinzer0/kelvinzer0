@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Israel says rockets fired from Syria for the first time since Bashar Assad's fall](https://www.yahoo.com/news/israel-says-rockets-fired-syria-225015147.html)
-- Jun 03 - [A storm is brewing in the Atlantic and could be the first to impact the US this season](https://www.yahoo.com/news/storm-brewing-atlantic-could-first-223404946.html)
-- Jun 03 - [Court documents reveal how 3 Wenatchee sisters likely died](https://www.yahoo.com/news/court-documents-reveal-3-wenatchee-222557417.html)
-- Jun 03 - ["This Is So Stupid It Makes Me Want To Vomit": 49 Tweets About The Pitiful State Of Politics Right Now](https://www.yahoo.com/news/stupid-makes-want-vomit-49-222511891.html)
-- Jun 03 - [Exclusive-Trump set to waive some legal requirements to boost critical minerals](https://finance.yahoo.com/news/trump-expected-waive-defense-production-195428898.html)
+- Jun 04 - [Ground is broken for multimillion-dollar religious garden, 70-foot cross in Northeastern Kentucky](https://www.yahoo.com/news/ground-broken-multimillion-dollar-religious-012610404.html)
+- Jun 03 - [Mexican 4-year-old is granted humanitarian parole to continue receiving lifesaving care in US](https://www.yahoo.com/news/mexican-girl-granted-humanitarian-parole-230449764.html)
+- Jun 03 - [Boulder attack suspect’s wife and kids taken into ICE custody](https://www.yahoo.com/news/boulder-attack-suspect-wife-kids-225826310.html)
+- Jun 03 - [Cadets who met all Air Force Academy graduation standards denied commissions because they’re transgender](https://www.yahoo.com/news/cadets-met-air-force-academy-225601194.html)
+- Jun 03 - [Trump formally asks Congress to claw back approved spending targeted by DOGE](https://www.yahoo.com/news/trump-formally-asks-congress-claw-205905054.html)
 <!-- feed end -->
 
 ### Onstream
