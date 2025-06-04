@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Ground is broken for multimillion-dollar religious garden, 70-foot cross in Northeastern Kentucky](https://www.yahoo.com/news/ground-broken-multimillion-dollar-religious-012610404.html)
+- Jun 04 - [Kevin O'Leary Says, Forget The Classic Three-Bedroom, 2,500 Square Foot For $1.2M—Now You're Paying That For A Trailer Home In California](https://finance.yahoo.com/news/kevin-oleary-says-forget-classic-010007766.html)
 - Jun 03 - [Mexican 4-year-old is granted humanitarian parole to continue receiving lifesaving care in US](https://www.yahoo.com/news/mexican-girl-granted-humanitarian-parole-230449764.html)
-- Jun 03 - [Boulder attack suspect’s wife and kids taken into ICE custody](https://www.yahoo.com/news/boulder-attack-suspect-wife-kids-225826310.html)
-- Jun 03 - [Cadets who met all Air Force Academy graduation standards denied commissions because they’re transgender](https://www.yahoo.com/news/cadets-met-air-force-academy-225601194.html)
+- Jun 03 - [Israel says rockets fired from Syria for the first time since Bashar Assad's fall](https://www.yahoo.com/news/israel-says-rockets-fired-syria-225015147.html)
+- Jun 03 - [Jack Dorsey's ultimate bet, 'we are bitcoin only'](https://finance.yahoo.com/news/jack-dorseys-ultimate-bet-bitcoin-221215864.html)
 - Jun 03 - [Trump formally asks Congress to claw back approved spending targeted by DOGE](https://www.yahoo.com/news/trump-formally-asks-congress-claw-205905054.html)
 <!-- feed end -->
