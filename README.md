@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Sean 'Diddy' Combs Trial: Woman Kicked Out Of Courtroom After Screaming 'Profanities' At Diddy](https://www.yahoo.com/entertainment/videos/sean-diddy-combs-trial-woman-030000055.html)
+- Jun 04 - [North Korea pulls capsized warship upright after botched launch, report says](https://www.yahoo.com/news/north-korea-pulls-capsized-warship-030011614.html)
 - Jun 04 - [Federal officers in tactical gear spark chaos and confusion in Minneapolis](https://www.yahoo.com/news/federal-officers-tactical-gear-spark-025421042.html)
-- Jun 04 - [Kevin O'Leary Says, Forget The Classic Three-Bedroom, 2,500 Square Foot For $1.2M—Now You're Paying That For A Trailer Home In California](https://finance.yahoo.com/news/kevin-oleary-says-forget-classic-010007766.html)
-- Jun 03 - [Jack Dorsey's ultimate bet, 'we are bitcoin only'](https://finance.yahoo.com/news/jack-dorseys-ultimate-bet-bitcoin-221215864.html)
+- Jun 03 - [Partially Submerged North Korean Frigate Appears Upright Again In Satellite Image](https://www.yahoo.com/news/partially-submerged-north-korean-frigate-231331320.html)
 - Jun 03 - [Trump formally asks Congress to claw back approved spending targeted by DOGE](https://www.yahoo.com/news/trump-formally-asks-congress-claw-205905054.html)
+- Jun 03 - [Las Vegas police bust suspected illegal brothel in Chinatown](https://www.yahoo.com/news/las-vegas-police-bust-suspected-205216195.html)
 <!-- feed end -->
