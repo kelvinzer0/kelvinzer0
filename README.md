@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [How often do mortgage rates change?](https://finance.yahoo.com/personal-finance/mortgages/article/how-often-do-mortgage-rates-change-130720306.html)
 - Jun 04 - [10 foods that may reduce your risk of developing dementia](https://www.yahoo.com/lifestyle/mind-diet-dementia-alzheimers-food-health-121753245.html)
-- Jun 04 - [Schoolboy slain in unprovoked attack by swordsman during ‘murderous’ 20-minute rampage, court told](https://www.yahoo.com/news/schoolboy-slain-unprovoked-attack-swordsman-115152154.html)
-- Jun 04 - [Dollar Tree, Dollar General, Ollie's All Beat, Raise Views. One Soars.](https://www.investors.com/news/dollar-stores-retail-earnings-dollar-general-dg-stock/?src=A00220&yptr=yahoo)
-- Jun 04 - [Truck driver who murdered wife and buried her underneath stairs jailed for life](https://www.yahoo.com/news/truck-driver-murdered-wife-buried-113626816.html)
-- Jun 04 - [New research challenges everything we know about the Big Bang](https://www.yahoo.com/news/research-challenges-everything-know-big-113554504.html)
+- Jun 04 - [This BlackRock ETF Could Soar 12,400%, According to Billionaire Michael Saylor](https://finance.yahoo.com/news/blackrock-etf-could-soar-12-114500361.html)
+- Jun 04 - [Scientists make chilling discovery hidden deep within centuries-old ice cores: 'We need to raise the alarm'](https://www.yahoo.com/news/scientists-chilling-discovery-hidden-deep-104549101.html)
+- Jun 04 - [The Likely Cause of Death for Travis Decker's 3 Daughters Was Revealed. It's Chilling](https://www.yahoo.com/news/likely-cause-death-travis-deckers-052808307.html)
 <!-- feed end -->
