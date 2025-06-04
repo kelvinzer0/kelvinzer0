@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [Culver's has two new Georgia locations. Where to get your butterburgers and frozen custard](https://www.yahoo.com/lifestyle/culvers-two-georgia-locations-where-195538905.html)
+- Jun 04 - [Hong Kongers in Taiwan commemorate Tiananmen Square crackdown](https://www.yahoo.com/news/hong-kongers-taiwan-commemorate-tiananmen-194821342.html)
+- Jun 04 - [Tesla's Full Self-Driving Factored in Fatal Crash](https://finance.yahoo.com/video/teslas-full-self-driving-factored-193750230.html)
 - Jun 04 - [A woman testifies Sean 'Diddy' Combs gave her night terrors by dangling her from a high-rise balcony](https://www.yahoo.com/news/woman-testifies-sean-diddy-combs-182743098.html)
 - Jun 04 - [Trump's tariffs would cut US deficits by $2.8T over 10 years and shrink the economy, CBO says](https://www.yahoo.com/news/trumps-tariffs-cut-us-deficits-180210128.html)
-- Jun 04 - [Family of teen arrested on his way to volleyball practice asks immigration officials to release him](https://www.yahoo.com/news/family-teen-arrested-way-volleyball-175020683.html)
-- Jun 04 - [Ukraine says the drones that hit Russian aircraft used AI to find and strike their targets when they lost signal](https://www.yahoo.com/news/ukraine-says-drones-hit-russian-165947977.html)
-- Jun 04 - [Satellite images show the unusual tire tactic and fake decoy aircraft that failed to save Russia's bombers from Ukrainian drones](https://www.yahoo.com/news/satellite-images-show-unusual-tire-165506065.html)
 <!-- feed end -->
