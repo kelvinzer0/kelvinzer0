@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Citizens CEO: Worst of Tariff Pain is Behind Us](https://finance.yahoo.com/video/citizens-ceo-worst-tariff-pain-171755335.html)
+- Jun 04 - [A woman testifies Sean 'Diddy' Combs gave her night terrors by dangling her from a high-rise balcony](https://www.yahoo.com/news/woman-testifies-sean-diddy-combs-182743098.html)
+- Jun 04 - [Trump's tariffs would cut US deficits by $2.8T over 10 years and shrink the economy, CBO says](https://www.yahoo.com/news/trumps-tariffs-cut-us-deficits-180210128.html)
+- Jun 04 - [Family of teen arrested on his way to volleyball practice asks immigration officials to release him](https://www.yahoo.com/news/family-teen-arrested-way-volleyball-175020683.html)
+- Jun 04 - [Ukraine says the drones that hit Russian aircraft used AI to find and strike their targets when they lost signal](https://www.yahoo.com/news/ukraine-says-drones-hit-russian-165947977.html)
 - Jun 04 - [Satellite images show the unusual tire tactic and fake decoy aircraft that failed to save Russia's bombers from Ukrainian drones](https://www.yahoo.com/news/satellite-images-show-unusual-tire-165506065.html)
-- Jun 04 - [I’m 56 and my wife just died. She made 65% of our income and I can’t afford our bills alone — what do I do?](https://finance.yahoo.com/news/m-56-wife-just-died-160100806.html)
-- Jun 04 - [Karine Jean-Pierre, Biden’s former press secretary, reveals she’s left the Democratic Party](https://www.yahoo.com/news/karine-jean-pierre-biden-former-160004004.html)
-- Jun 04 - [Pressure mounts on Netanyahu as opposition moves to dissolve parliament](https://www.yahoo.com/news/pressure-mounts-netanyahu-opposition-moves-144333352.html)
 <!-- feed end -->
