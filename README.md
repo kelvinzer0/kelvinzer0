@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Chinese airlines considering ordering hundreds of Airbus jets, Bloomberg News reports](https://finance.yahoo.com/news/chinese-airlines-considering-ordering-hundreds-055453738.html)
+- Jun 04 - [Workforce must 'upgrade' job skills to survive AI disruption](https://finance.yahoo.com/video/workforce-must-upgrade-job-skills-110032220.html)
+- Jun 04 - [Woman accused of triple murder says foraged mushrooms may have been added to meal](https://www.yahoo.com/news/woman-accused-triple-murder-says-052815253.html)
+- Jun 04 - [Airbus shares rise as it edges closer to major Chinese jet order](https://finance.yahoo.com/news/chinese-airlines-considering-ordering-hundreds-055453738.html)
 - Jun 04 - [The Likely Cause of Death for Travis Decker's 3 Daughters Was Revealed. It's Chilling](https://www.yahoo.com/news/likely-cause-death-travis-deckers-052808307.html)
 - Jun 04 - [Trump rocked as China launches its latest economic weapon](https://www.yahoo.com/news/trump-cornered-china-weaponises-rare-050000520.html)
-- Jun 04 - [FBI discovers cache of guns, armor and Nazi paraphernalia while raiding home in Washington state](https://www.yahoo.com/news/fbi-discovers-cache-guns-armor-031451769.html)
-- Jun 04 - [Federal officers in tactical gear spark chaos and confusion in Minneapolis](https://www.yahoo.com/news/federal-officers-tactical-gear-spark-025421042.html)
 <!-- feed end -->
