@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Workforce must 'upgrade' job skills to survive AI disruption](https://finance.yahoo.com/video/workforce-must-upgrade-job-skills-110032220.html)
-- Jun 04 - [Woman accused of triple murder says foraged mushrooms may have been added to meal](https://www.yahoo.com/news/woman-accused-triple-murder-says-052815253.html)
-- Jun 04 - [Airbus shares rise as it edges closer to major Chinese jet order](https://finance.yahoo.com/news/chinese-airlines-considering-ordering-hundreds-055453738.html)
-- Jun 04 - [The Likely Cause of Death for Travis Decker's 3 Daughters Was Revealed. It's Chilling](https://www.yahoo.com/news/likely-cause-death-travis-deckers-052808307.html)
-- Jun 04 - [Trump rocked as China launches its latest economic weapon](https://www.yahoo.com/news/trump-cornered-china-weaponises-rare-050000520.html)
+- Jun 04 - [10 foods that may reduce your risk of developing dementia](https://www.yahoo.com/lifestyle/mind-diet-dementia-alzheimers-food-health-121753245.html)
+- Jun 04 - [Schoolboy slain in unprovoked attack by swordsman during ‘murderous’ 20-minute rampage, court told](https://www.yahoo.com/news/schoolboy-slain-unprovoked-attack-swordsman-115152154.html)
+- Jun 04 - [Dollar Tree, Dollar General, Ollie's All Beat, Raise Views. One Soars.](https://www.investors.com/news/dollar-stores-retail-earnings-dollar-general-dg-stock/?src=A00220&yptr=yahoo)
+- Jun 04 - [Truck driver who murdered wife and buried her underneath stairs jailed for life](https://www.yahoo.com/news/truck-driver-murdered-wife-buried-113626816.html)
+- Jun 04 - [New research challenges everything we know about the Big Bang](https://www.yahoo.com/news/research-challenges-everything-know-big-113554504.html)
 <!-- feed end -->
