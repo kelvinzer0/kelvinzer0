@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Culver's has two new Georgia locations. Where to get your butterburgers and frozen custard](https://www.yahoo.com/lifestyle/culvers-two-georgia-locations-where-195538905.html)
-- Jun 04 - [Hong Kongers in Taiwan commemorate Tiananmen Square crackdown](https://www.yahoo.com/news/hong-kongers-taiwan-commemorate-tiananmen-194821342.html)
-- Jun 04 - [Tesla's Full Self-Driving Factored in Fatal Crash](https://finance.yahoo.com/video/teslas-full-self-driving-factored-193750230.html)
-- Jun 04 - [A woman testifies Sean 'Diddy' Combs gave her night terrors by dangling her from a high-rise balcony](https://www.yahoo.com/news/woman-testifies-sean-diddy-combs-182743098.html)
-- Jun 04 - [Trump's tariffs would cut US deficits by $2.8T over 10 years and shrink the economy, CBO says](https://www.yahoo.com/news/trumps-tariffs-cut-us-deficits-180210128.html)
+- Jun 04 - [Dollar Stores Dole Out Earnings Beats, Lifted Outlooks. Two Jump.](https://www.investors.com/news/dollar-stores-retail-earnings-dollar-general-dg-stock/?src=A00220&yptr=yahoo)
+- Jun 04 - ["Thank You, Trump": This Woman's Viral Video Shows Exactly How The Tariff War Is Playing Out In China](https://www.yahoo.com/news/thank-trump-womans-viral-video-200816832.html)
+- Jun 04 - [Exclusive-Ukraine hit fewer Russian planes than it estimated, US officials say](https://www.yahoo.com/news/exclusive-ukraine-hit-fewer-russian-195714573.html)
+- Jun 04 - [Hong Kong and Taiwan mark Tiananmen Square anniversary](https://www.yahoo.com/news/hong-kong-taiwan-mark-tiananmen-193447837.html)
+- Jun 04 - [A Couple Followed Dave Ramsey And Got Out Of Debt. Then They Took A Hard Turn And Ended Up $46,000 In The Red On 13 Credit Cards](https://finance.yahoo.com/news/couple-followed-dave-ramsey-got-193115681.html)
 <!-- feed end -->
