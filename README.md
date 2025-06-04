@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [1 Growth Stock Down 25% to Buy Right Now, According to Wall Street](https://finance.yahoo.com/news/1-growth-stock-down-25-081300997.html)
+- Jun 04 - [Chinese airlines considering ordering hundreds of Airbus jets, Bloomberg News reports](https://finance.yahoo.com/news/chinese-airlines-considering-ordering-hundreds-055453738.html)
 - Jun 04 - [The Likely Cause of Death for Travis Decker's 3 Daughters Was Revealed. It's Chilling](https://www.yahoo.com/news/likely-cause-death-travis-deckers-052808307.html)
+- Jun 04 - [Trump rocked as China launches its latest economic weapon](https://www.yahoo.com/news/trump-cornered-china-weaponises-rare-050000520.html)
+- Jun 04 - [FBI discovers cache of guns, armor and Nazi paraphernalia while raiding home in Washington state](https://www.yahoo.com/news/fbi-discovers-cache-guns-armor-031451769.html)
 - Jun 04 - [Federal officers in tactical gear spark chaos and confusion in Minneapolis](https://www.yahoo.com/news/federal-officers-tactical-gear-spark-025421042.html)
-- Jun 04 - [Kevin O'Leary Says, Forget The Classic Three-Bedroom, 2,500 Square Foot For $1.2M—Now You're Paying That For A Trailer Home In California](https://finance.yahoo.com/news/kevin-oleary-says-forget-classic-010007766.html)
-- Jun 03 - [Trump formally asks Congress to claw back approved spending targeted by DOGE](https://www.yahoo.com/news/trump-formally-asks-congress-claw-205905054.html)
 <!-- feed end -->
