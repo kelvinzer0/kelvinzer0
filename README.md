@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [MSU warns international students to stay in US after visa interviews paused](https://www.yahoo.com/news/msu-warns-international-students-stay-150728613.html)
-- Jun 04 - [Dollar Tree, Dollar General, Ollie's All Beat, Raise Views. One Soars.](https://www.investors.com/news/dollar-stores-retail-earnings-dollar-general-dg-stock/?src=A00220&yptr=yahoo)
-- Jun 04 - [AP top stories June 4](https://www.yahoo.com/news/ap-top-stories-june-4-145532907.html)
+- Jun 04 - [Schoolboy slain in unprovoked attack by swordsman during ‘murderous’ 20-minute rampage, court told](https://www.yahoo.com/news/schoolboy-slain-unprovoked-attack-swordsman-115152154.html)
+- Jun 04 - [Texas hospital that discharged woman with doomed pregnancy violated the law, a federal inquiry finds](https://www.yahoo.com/news/texas-hospital-discharged-woman-doomed-152837584.html)
+- Jun 04 - [Carlyle Urging Services Firms to Ramp Up Aggression](https://finance.yahoo.com/video/carlyle-urging-services-firms-ramp-152002816.html)
+- Jun 04 - [This Awkward Clip Of Karoline Leavitt's Fumble During A Press Briefing Pretty Much Sums Up The Trump Administration](https://www.yahoo.com/news/awkward-clip-karoline-leavitts-fumble-151506057.html)
 - Jun 04 - [Marjorie Taylor Greene’s four-word dagger to Trump and GOP after Musk’s ‘Big Beautiful’ takedown](https://www.yahoo.com/news/marjorie-taylor-greene-four-word-143339699.html)
-- Jun 04 - [Russia urges US and UK to restrain Ukraine after attacks on bombers](https://www.yahoo.com/news/russia-urges-us-uk-restrain-140732083.html)
 <!-- feed end -->
