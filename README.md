@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [California woman thought she’d left a $5 tip until she saw it was $5,000 — and was told it couldn’t be voided](https://finance.yahoo.com/news/california-woman-thought-she-d-223000286.html)
 - Jun 04 - [19 arrested for stealing thousands from Mall of Georgia](https://www.yahoo.com/news/nearly-2-dozen-arrested-stealing-141056400.html)
 - Jun 04 - [U.S. judge temporarily blocks deportation of family of Colorado attack suspect](https://www.yahoo.com/news/lawsuit-seeks-release-colorado-attack-200741409.html)
-- Jun 04 - [Exclusive-Ukraine hit fewer Russian planes than it estimated, US officials say](https://www.yahoo.com/news/exclusive-ukraine-hit-fewer-russian-195714573.html)
 - Jun 04 - [2 arrested with arsenal and Nazi paraphernalia after base robbery were ex-military, prosecutors say](https://www.yahoo.com/news/2-arrested-arsenal-nazi-paraphernalia-195647618.html)
-- Jun 04 - [‘Essentially became a missile’: 19-year-old De Pere woman faces 25 charges, $500,000 cash bond for allegedly going 80mph in downtown Fond du Lac](https://www.yahoo.com/news/essentially-became-missile-19-old-180957041.html)
+- Jun 04 - [A Couple Followed Dave Ramsey And Got Out Of Debt. Then They Took A Hard Turn And Ended Up $46,000 In The Red On 13 Credit Cards](https://finance.yahoo.com/news/couple-followed-dave-ramsey-got-193115681.html)
 <!-- feed end -->
