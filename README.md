@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Pakistani troops kill 14 militants in raid in northwest region near Afghanistan](https://www.yahoo.com/news/pakistani-troops-kill-14-militants-065239705.html)
-- Jun 04 - [Deadly mushroom lunch cook tells court she made herself sick after meal](https://www.yahoo.com/news/toxic-beef-wellington-cook-gives-001302665.html)
-- Jun 04 - [Young South Korean women help propel liberal candidate Lee to victory](https://www.yahoo.com/news/young-south-korean-women-help-061605053.html)
-- Jun 04 - [Gower: Aluminum Tariff Hike Unlikely to Impact US Short-Term Imports](https://finance.yahoo.com/video/gower-aluminum-tariff-hike-unlikely-054948535.html)
+- Jun 04 - [The Likely Cause of Death for Travis Decker's 3 Daughters Was Revealed. It's Chilling](https://www.yahoo.com/news/likely-cause-death-travis-deckers-052808307.html)
+- Jun 04 - [North Korea pulls capsized warship upright after botched launch, report says](https://www.yahoo.com/news/north-korea-pulls-capsized-warship-030011614.html)
 - Jun 04 - [Federal officers in tactical gear spark chaos and confusion in Minneapolis](https://www.yahoo.com/news/federal-officers-tactical-gear-spark-025421042.html)
+- Jun 03 - [Partially Submerged North Korean Frigate Appears Upright Again In Satellite Image](https://www.yahoo.com/news/partially-submerged-north-korean-frigate-231331320.html)
+- Jun 03 - [Trump formally asks Congress to claw back approved spending targeted by DOGE](https://www.yahoo.com/news/trump-formally-asks-congress-claw-205905054.html)
 <!-- feed end -->
