@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Sacked security guard cleared of assaulting abusive thief thanks to bodycam](https://www.yahoo.com/news/sacked-security-guard-cleared-assaulting-085418053.html)
+- Jun 05 - [Littleton man missing since 2024 located in Colorado River nearly full year later](https://www.yahoo.com/news/littleton-man-missing-since-2024-003515163.html)
 - Jun 05 - [Trump plans to discontinue TSA's 'Quiet Skies' program, CBS News reports](https://www.yahoo.com/news/trump-plans-discontinue-tsas-quiet-002543679.html)
 - Jun 05 - [Karen Read’s retrial: Judge cancels testimony on Thursday. Here’s why](https://www.yahoo.com/news/karen-read-retrial-judge-cancels-174242635.html)
 - Jun 04 - [Trump announces travel ban and restrictions on 19 countries set to go into effect Monday](https://www.yahoo.com/news/trump-announces-travel-ban-affecting-235257056.html)
-- Jun 04 - [Health officials sound alarm as 'deadliest animal on the planet' spreads across southern US — here's what you need to know](https://www.yahoo.com/news/health-officials-sound-alarm-deadliest-235000043.html)
-- Jun 04 - [North Texas teen critically injured in ‘Senior Assassin’ game dies in hospital](https://www.yahoo.com/news/north-texas-teen-critically-injured-225550608.html)
 <!-- feed end -->
