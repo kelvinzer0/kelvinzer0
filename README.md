@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Sacked security guard cleared of assaulting abusive thief thanks to bodycam](https://www.yahoo.com/news/sacked-security-guard-cleared-assaulting-085418053.html)
+- Jun 05 - [Swedish court convicts one man of IS membership, acquits three](https://www.yahoo.com/news/swedish-court-convicts-one-man-093229393.html)
+- Jun 05 - [Nintendo's Switch 2 hits store shelves amid signs of hot demand](https://finance.yahoo.com/video/nintendos-switch-2-hits-store-072623209.html)
+- Jun 05 - [Flying boats make for a rare sight as Washington clears an island of derelict vessels by helicopter](https://www.yahoo.com/news/flying-boats-rare-sight-washington-014105643.html)
 - Jun 05 - [Littleton man missing since 2024 located in Colorado River nearly full year later](https://www.yahoo.com/news/littleton-man-missing-since-2024-003515163.html)
 - Jun 05 - [Trump plans to discontinue TSA's 'Quiet Skies' program, CBS News reports](https://www.yahoo.com/news/trump-plans-discontinue-tsas-quiet-002543679.html)
-- Jun 05 - [Karen Read’s retrial: Judge cancels testimony on Thursday. Here’s why](https://www.yahoo.com/news/karen-read-retrial-judge-cancels-174242635.html)
-- Jun 04 - [Trump announces travel ban and restrictions on 19 countries set to go into effect Monday](https://www.yahoo.com/news/trump-announces-travel-ban-affecting-235257056.html)
 <!-- feed end -->
