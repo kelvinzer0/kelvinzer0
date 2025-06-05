@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [‘Beyond cruel’: Bernie slams GOP bill that would kick 11 million off health care](https://www.yahoo.com/news/beyond-cruel-bernie-slams-gop-003737130.html)
+- Jun 05 - [Toxic fungus smuggling case highlights safety issues facing research labs](https://www.yahoo.com/news/toxic-fungus-smuggling-case-highlights-003634997.html)
+- Jun 05 - [Karen Read’s retrial: Judge cancels testimony on Thursday. Here’s why](https://www.yahoo.com/news/karen-read-retrial-judge-cancels-174242635.html)
+- Jun 04 - [Trump announces travel ban and restrictions on 19 countries set to go into effect Monday](https://www.yahoo.com/news/trump-announces-travel-ban-affecting-235257056.html)
 - Jun 04 - [California woman thought she’d left a $5 tip until she saw it was $5,000 — and was told it couldn’t be voided](https://finance.yahoo.com/news/california-woman-thought-she-d-223000286.html)
-- Jun 04 - [19 arrested for stealing thousands from Mall of Georgia](https://www.yahoo.com/news/nearly-2-dozen-arrested-stealing-141056400.html)
-- Jun 04 - [U.S. judge temporarily blocks deportation of family of Colorado attack suspect](https://www.yahoo.com/news/lawsuit-seeks-release-colorado-attack-200741409.html)
-- Jun 04 - [2 arrested with arsenal and Nazi paraphernalia after base robbery were ex-military, prosecutors say](https://www.yahoo.com/news/2-arrested-arsenal-nazi-paraphernalia-195647618.html)
-- Jun 04 - [A Couple Followed Dave Ramsey And Got Out Of Debt. Then They Took A Hard Turn And Ended Up $46,000 In The Red On 13 Credit Cards](https://finance.yahoo.com/news/couple-followed-dave-ramsey-got-193115681.html)
 <!-- feed end -->
