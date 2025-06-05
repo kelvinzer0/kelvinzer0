@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Devastation of war leaves Gazans unable to celebrate Eid](https://www.yahoo.com/news/devastation-war-leaves-gazans-unable-181019340.html)
+- Jun 05 - [Washington DC airport says flights to be suspended during Trump's Army parade](https://www.yahoo.com/news/washington-dc-airport-says-flights-194406521.html)
+- Jun 05 - [Khosrowshahi Says Uber Considering Using Stablecoins](https://finance.yahoo.com/video/khosrowshahi-says-uber-considering-using-191257855.html)
+- Jun 05 - [After less than 4 months, all-you-can-eat Jacksonville buffet abruptly closes](https://www.yahoo.com/news/less-4-months-eat-jacksonville-181201903.html)
 - Jun 05 - [Judge Threatens To Bar Sean “Diddy” Combs From Courtroom If He Continues To Interact With Jurors](https://www.yahoo.com/news/judge-threatens-bar-sean-diddy-180226801.html)
-- Jun 05 - [Ex-death row inmate convicted in Warrick County triple murder reportedly dies in prison](https://www.yahoo.com/news/ex-death-row-inmate-convicted-175726550.html)
-- Jun 05 - [Arrest made in theft of instruments stolen from the rock band Heart at New Jersey venue](https://www.yahoo.com/entertainment/articles/arrest-made-theft-instruments-stolen-170551562.html)
-- Jun 05 - [Mass. man wins big Keno prize after matching 9 numbers on ticket bought at popular pub](https://www.yahoo.com/news/mass-man-wins-big-keno-165313487.html)
+- Jun 05 - [The only ‘Made in America’ smartphone maker has a message for Apple about manufacturing in the Trump tariff era](https://finance.yahoo.com/news/only-made-america-smartphone-maker-165540350.html)
 <!-- feed end -->
