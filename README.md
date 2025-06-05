@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Russia kills baby, mother and grandmother in drone strike](https://www.yahoo.com/news/russia-kills-baby-mother-grandmother-143910187.html)
 - Jun 05 - [Turkmenistan reduces 50-year fire dubbed 'Gateway to Hell'](https://www.yahoo.com/news/turkmenistan-reduces-50-fire-dubbed-134133302.html)
-- Jun 05 - [Trump and China's Xi hold call amid trade dispute](https://www.yahoo.com/news/trump-chinas-xi-hold-call-133228078.html)
-- Jun 05 - [The Retirement Funds Boomers Rely on Most — and Why Rising Generations Will Need a New Strategy](https://finance.yahoo.com/news/retirement-funds-boomers-rely-most-131655370.html)
-- Jun 05 - [A Ukrainian firefighter rushed to the scene of a Russian drone attack. He found his wife, daughter and grandson dead](https://www.yahoo.com/news/ukrainian-firefighter-rushed-scene-russian-124615517.html)
-- Jun 05 - [Scientists stunned after witnessing unprecedented cascade triggered by common fishing practice: 'Collective memory loss'](https://www.yahoo.com/news/scientists-stunned-witnessing-unprecedented-cascade-111558302.html)
+- Jun 05 - [Archaeologists Found a Viking Amulet That’s Over 1,000 Years Old](https://www.yahoo.com/news/archaeologists-found-viking-amulet-over-120000784.html)
+- Jun 05 - [Mortgage and refinance interest rates today, June 5, 2025: Bond rally sparks lower mortgage rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-june-5-2025-100100045.html)
+- Jun 05 - [19 Things That Are Way, Way, Way, Way, Way Larger Than They Should Be](https://www.yahoo.com/lifestyle/19-things-way-way-way-093103501.html)
 <!-- feed end -->
