@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [NATO begins Baltic drills, Russian spy plane triggers jet scramble](https://www.yahoo.com/news/nato-begins-baltic-drills-russian-162616503.html)
-- Jun 05 - [Victims of rape can challenge CPS if case dropped under new review scheme](https://www.yahoo.com/news/victims-rape-challenge-cps-case-161221585.html)
-- Jun 05 - [Invesco QQQ Sponsor Spotlight: Rethinking Innovation](https://finance.yahoo.com/video/invesco-qqq-sponsor-spotlight-rethinking-155311315.html)
-- Jun 05 - [Marshals say 'Devil in the Ozarks' who escaped Arkansas prison has likely fled state](https://www.yahoo.com/news/marshals-devil-ozarks-escaped-arkansas-145709897.html)
-- Jun 05 - [Turkmenistan reduces 50-year fire dubbed 'Gateway to Hell'](https://www.yahoo.com/news/turkmenistan-reduces-50-fire-dubbed-134133302.html)
+- Jun 05 - [Devastation of war leaves Gazans unable to celebrate Eid](https://www.yahoo.com/news/devastation-war-leaves-gazans-unable-181019340.html)
+- Jun 05 - [Judge Threatens To Bar Sean “Diddy” Combs From Courtroom If He Continues To Interact With Jurors](https://www.yahoo.com/news/judge-threatens-bar-sean-diddy-180226801.html)
+- Jun 05 - [Ex-death row inmate convicted in Warrick County triple murder reportedly dies in prison](https://www.yahoo.com/news/ex-death-row-inmate-convicted-175726550.html)
+- Jun 05 - [Arrest made in theft of instruments stolen from the rock band Heart at New Jersey venue](https://www.yahoo.com/entertainment/articles/arrest-made-theft-instruments-stolen-170551562.html)
+- Jun 05 - [Mass. man wins big Keno prize after matching 9 numbers on ticket bought at popular pub](https://www.yahoo.com/news/mass-man-wins-big-keno-165313487.html)
 <!-- feed end -->
