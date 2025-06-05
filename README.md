@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Trump plans to discontinue TSA's 'Quiet Skies' program, CBS News reports](https://www.yahoo.com/news/trump-plans-discontinue-tsas-quiet-002543679.html)
+- Jun 05 - [Flying boats make for a rare sight as Washington clears an island of derelict vessels by helicopter](https://www.yahoo.com/news/flying-boats-rare-sight-washington-014105643.html)
 - Jun 04 - [Trump announces travel ban and restrictions on 19 countries set to go into effect Monday](https://www.yahoo.com/news/trump-announces-travel-ban-affecting-235257056.html)
 - Jun 04 - [Health officials sound alarm as 'deadliest animal on the planet' spreads across southern US — here's what you need to know](https://www.yahoo.com/news/health-officials-sound-alarm-deadliest-235000043.html)
-- Jun 04 - [California woman thought she’d left a $5 tip until she saw it was $5,000 — and was told it couldn’t be voided](https://finance.yahoo.com/news/california-woman-thought-she-d-223000286.html)
+- Jun 04 - [19 arrested for stealing thousands from Mall of Georgia](https://www.yahoo.com/news/nearly-2-dozen-arrested-stealing-141056400.html)
 - Jun 04 - [Elizabeth Warren Says Trump 'Approved' The Largest Meat Company In World To Be Listed On NYSE Ignoring Corruption And Bribery History, Demands Answers](https://finance.yahoo.com/news/elizabeth-warren-says-trump-approved-203552305.html)
 <!-- feed end -->
