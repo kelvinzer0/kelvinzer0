@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Russia kills baby, mother and grandmother in drone strike](https://www.yahoo.com/news/russia-kills-baby-mother-grandmother-143910187.html)
+- Jun 05 - [Exclusive-Aide to EU chief joins tariff negotiation team to spur US talks, sources say](https://www.yahoo.com/news/exclusive-aide-eu-chief-joins-160205685.html)
+- Jun 05 - [Interstate 71 northbound lanes closed at Lytle Tunnel due to crash](https://www.yahoo.com/news/interstate-71-northbound-lanes-closed-160003865.html)
+- Jun 05 - [Trump administration, for 1st time, returns wrongly deported migrant to US](https://www.yahoo.com/news/trump-administration-1st-time-returns-155800909.html)
+- Jun 05 - [Vista CEO: AI Will Replace 60% of Bankers](https://finance.yahoo.com/video/vista-ceo-ai-replace-60-145944907.html)
 - Jun 05 - [Turkmenistan reduces 50-year fire dubbed 'Gateway to Hell'](https://www.yahoo.com/news/turkmenistan-reduces-50-fire-dubbed-134133302.html)
-- Jun 05 - [Archaeologists Found a Viking Amulet That’s Over 1,000 Years Old](https://www.yahoo.com/news/archaeologists-found-viking-amulet-over-120000784.html)
-- Jun 05 - [Mortgage and refinance interest rates today, June 5, 2025: Bond rally sparks lower mortgage rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-june-5-2025-100100045.html)
-- Jun 05 - [19 Things That Are Way, Way, Way, Way, Way Larger Than They Should Be](https://www.yahoo.com/lifestyle/19-things-way-way-way-093103501.html)
 <!-- feed end -->
