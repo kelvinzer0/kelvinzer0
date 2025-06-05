@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Exclusive-Aide to EU chief joins tariff negotiation team to spur US talks, sources say](https://www.yahoo.com/news/exclusive-aide-eu-chief-joins-160205685.html)
-- Jun 05 - [Interstate 71 northbound lanes closed at Lytle Tunnel due to crash](https://www.yahoo.com/news/interstate-71-northbound-lanes-closed-160003865.html)
-- Jun 05 - [Trump administration, for 1st time, returns wrongly deported migrant to US](https://www.yahoo.com/news/trump-administration-1st-time-returns-155800909.html)
-- Jun 05 - [Vista CEO: AI Will Replace 60% of Bankers](https://finance.yahoo.com/video/vista-ceo-ai-replace-60-145944907.html)
+- Jun 05 - [NATO begins Baltic drills, Russian spy plane triggers jet scramble](https://www.yahoo.com/news/nato-begins-baltic-drills-russian-162616503.html)
+- Jun 05 - [Victims of rape can challenge CPS if case dropped under new review scheme](https://www.yahoo.com/news/victims-rape-challenge-cps-case-161221585.html)
+- Jun 05 - [Invesco QQQ Sponsor Spotlight: Rethinking Innovation](https://finance.yahoo.com/video/invesco-qqq-sponsor-spotlight-rethinking-155311315.html)
+- Jun 05 - [Marshals say 'Devil in the Ozarks' who escaped Arkansas prison has likely fled state](https://www.yahoo.com/news/marshals-devil-ozarks-escaped-arkansas-145709897.html)
 - Jun 05 - [Turkmenistan reduces 50-year fire dubbed 'Gateway to Hell'](https://www.yahoo.com/news/turkmenistan-reduces-50-fire-dubbed-134133302.html)
 <!-- feed end -->
