@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [‘Beyond cruel’: Bernie slams GOP bill that would kick 11 million off health care](https://www.yahoo.com/news/beyond-cruel-bernie-slams-gop-003737130.html)
-- Jun 05 - [Toxic fungus smuggling case highlights safety issues facing research labs](https://www.yahoo.com/news/toxic-fungus-smuggling-case-highlights-003634997.html)
-- Jun 05 - [Karen Read’s retrial: Judge cancels testimony on Thursday. Here’s why](https://www.yahoo.com/news/karen-read-retrial-judge-cancels-174242635.html)
+- Jun 05 - [Flying boats make for a rare sight as Washington clears an island of derelict vessels by helicopter](https://www.yahoo.com/news/flying-boats-rare-sight-washington-014105643.html)
+- Jun 05 - [Trump plans to discontinue TSA's 'Quiet Skies' program, CBS News reports](https://www.yahoo.com/news/trump-plans-discontinue-tsas-quiet-002543679.html)
 - Jun 04 - [Trump announces travel ban and restrictions on 19 countries set to go into effect Monday](https://www.yahoo.com/news/trump-announces-travel-ban-affecting-235257056.html)
+- Jun 04 - [Health officials sound alarm as 'deadliest animal on the planet' spreads across southern US — here's what you need to know](https://www.yahoo.com/news/health-officials-sound-alarm-deadliest-235000043.html)
 - Jun 04 - [California woman thought she’d left a $5 tip until she saw it was $5,000 — and was told it couldn’t be voided](https://finance.yahoo.com/news/california-woman-thought-she-d-223000286.html)
 <!-- feed end -->
