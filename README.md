@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Billionaire Ken Griffin Just Bought More Shares of These Unstoppable Dividend Stocks](https://finance.yahoo.com/news/billionaire-ken-griffin-just-bought-120000532.html)
-- Jun 05 - [Closures in place on busy Mass. highway after metal panels fly off truck, smash car](https://www.yahoo.com/news/closures-place-busy-mass-highway-114824246.html)
-- Jun 05 - [Doctors And Scientists Are Revealing Things People Don't Realize Are Wildly Bad For Their Health](https://www.yahoo.com/lifestyle/doctors-scientists-revealing-things-people-103104355.html)
-- Jun 05 - [Researchers stunned after footage reveals bizarre animal activity on remote island: 'Carrying them for days at a time'](https://www.yahoo.com/news/researchers-stunned-footage-reveals-bizarre-103024680.html)
-- Jun 05 - [Mortgage and refinance interest rates today, June 5, 2025: Bond rally sparks lower mortgage rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-june-5-2025-100100045.html)
+- Jun 05 - [Turkmenistan reduces 50-year fire dubbed 'Gateway to Hell'](https://www.yahoo.com/news/turkmenistan-reduces-50-fire-dubbed-134133302.html)
+- Jun 05 - [Trump and China's Xi hold call amid trade dispute](https://www.yahoo.com/news/trump-chinas-xi-hold-call-133228078.html)
+- Jun 05 - [The Retirement Funds Boomers Rely on Most — and Why Rising Generations Will Need a New Strategy](https://finance.yahoo.com/news/retirement-funds-boomers-rely-most-131655370.html)
+- Jun 05 - [A Ukrainian firefighter rushed to the scene of a Russian drone attack. He found his wife, daughter and grandson dead](https://www.yahoo.com/news/ukrainian-firefighter-rushed-scene-russian-124615517.html)
+- Jun 05 - [Scientists stunned after witnessing unprecedented cascade triggered by common fishing practice: 'Collective memory loss'](https://www.yahoo.com/news/scientists-stunned-witnessing-unprecedented-cascade-111558302.html)
 <!-- feed end -->
