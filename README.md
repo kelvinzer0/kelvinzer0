@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Swedish court convicts one man of IS membership, acquits three](https://www.yahoo.com/news/swedish-court-convicts-one-man-093229393.html)
-- Jun 05 - [Nintendo's Switch 2 hits store shelves amid signs of hot demand](https://finance.yahoo.com/video/nintendos-switch-2-hits-store-072623209.html)
+- Jun 05 - [At least 18 injured after Russian drone strikes on Kharkiv apartments](https://www.yahoo.com/news/least-18-injured-russian-drone-105751093.html)
+- Jun 05 - [Doctors And Scientists Are Revealing Things People Don't Realize Are Wildly Bad For Their Health](https://www.yahoo.com/lifestyle/doctors-scientists-revealing-things-people-103104355.html)
+- Jun 05 - [Why 'uncertain' consumers are retailers' biggest challenge](https://finance.yahoo.com/video/why-uncertain-consumers-retailers-biggest-103016730.html)
 - Jun 05 - [Flying boats make for a rare sight as Washington clears an island of derelict vessels by helicopter](https://www.yahoo.com/news/flying-boats-rare-sight-washington-014105643.html)
-- Jun 05 - [Littleton man missing since 2024 located in Colorado River nearly full year later](https://www.yahoo.com/news/littleton-man-missing-since-2024-003515163.html)
-- Jun 05 - [Trump plans to discontinue TSA's 'Quiet Skies' program, CBS News reports](https://www.yahoo.com/news/trump-plans-discontinue-tsas-quiet-002543679.html)
+- Jun 05 - [So THAT'S Why Mosquitoes Bite Some People More Than Others](https://www.yahoo.com/lifestyle/thats-why-mosquitoes-bite-people-003102437.html)
 <!-- feed end -->
