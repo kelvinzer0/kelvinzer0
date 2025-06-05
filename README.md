@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [The BTS effect: K-beauty brands target US despite tariffs](https://finance.yahoo.com/video/bts-effect-k-beauty-brands-034821388.html)
 - Jun 05 - [Flying boats make for a rare sight as Washington clears an island of derelict vessels by helicopter](https://www.yahoo.com/news/flying-boats-rare-sight-washington-014105643.html)
 - Jun 05 - [Trump plans to discontinue TSA's 'Quiet Skies' program, CBS News reports](https://www.yahoo.com/news/trump-plans-discontinue-tsas-quiet-002543679.html)
 - Jun 04 - [Trump announces travel ban and restrictions on 19 countries set to go into effect Monday](https://www.yahoo.com/news/trump-announces-travel-ban-affecting-235257056.html)
 - Jun 04 - [Health officials sound alarm as 'deadliest animal on the planet' spreads across southern US — here's what you need to know](https://www.yahoo.com/news/health-officials-sound-alarm-deadliest-235000043.html)
+- Jun 04 - [19 arrested for stealing thousands from Mall of Georgia](https://www.yahoo.com/news/nearly-2-dozen-arrested-stealing-141056400.html)
 <!-- feed end -->
