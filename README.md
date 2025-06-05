@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [At least 18 injured after Russian drone strikes on Kharkiv apartments](https://www.yahoo.com/news/least-18-injured-russian-drone-105751093.html)
+- Jun 05 - [Dollar Stores Dole Out Earnings Beats, Lifted Outlooks. Two Jump.](https://www.investors.com/news/dollar-stores-retail-earnings-dollar-general-dg-stock/?src=A00220&yptr=yahoo)
+- Jun 05 - [India plans rare earth magnet incentives as supply threat mounts, sources say](https://finance.yahoo.com/news/india-plans-rare-earth-magnet-105638448.html)
 - Jun 05 - [Doctors And Scientists Are Revealing Things People Don't Realize Are Wildly Bad For Their Health](https://www.yahoo.com/lifestyle/doctors-scientists-revealing-things-people-103104355.html)
-- Jun 05 - [Why 'uncertain' consumers are retailers' biggest challenge](https://finance.yahoo.com/video/why-uncertain-consumers-retailers-biggest-103016730.html)
-- Jun 05 - [Flying boats make for a rare sight as Washington clears an island of derelict vessels by helicopter](https://www.yahoo.com/news/flying-boats-rare-sight-washington-014105643.html)
-- Jun 05 - [So THAT'S Why Mosquitoes Bite Some People More Than Others](https://www.yahoo.com/lifestyle/thats-why-mosquitoes-bite-people-003102437.html)
+- Jun 05 - [Mortgage and refinance interest rates today, June 5, 2025: Bond rally sparks lower mortgage rates](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-june-5-2025-100100045.html)
+- Jun 05 - [Atlanta surgeon says her boyfriend ‘doesn’t want to work’ — but stats show many men share this ‘deal breaker’](https://finance.yahoo.com/news/atlanta-surgeon-says-her-boyfriend-093100546.html)
 <!-- feed end -->
