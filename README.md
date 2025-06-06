@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [EverGen Infrastructure Corp (EVGIF) Q1 2025 Earnings Call Highlights: Record Production and ...](https://finance.yahoo.com/news/evergen-infrastructure-corp-evgif-q1-210021063.html)
+- Jun 06 - [Healthcare: New cancer treatment in focus, analyst explains](https://finance.yahoo.com/video/healthcare-cancer-treatment-focus-analyst-210000669.html)
 - Jun 06 - [Abrego Garcia back in US to face charges of helping traffic 'thousands' of migrants](https://www.yahoo.com/news/kilmar-abrego-garcia-way-back-185850961.html)
-- Jun 06 - [Trump planning to extend TikTok ban deadline: Reports](https://finance.yahoo.com/video/trump-planning-extend-tiktok-ban-194816067.html)
-- Jun 06 - [Epstein's Lawyer Reveals Whether The Sex Offender Had 'Damaging Information' On Trump After Elon Musk's Bold Claim](https://www.yahoo.com/news/epsteins-lawyer-reveals-whether-sex-184513811.html)
 - Jun 06 - [Trump preparing large-scale cancellation of federal funding for California, sources say](https://www.yahoo.com/news/trump-preparing-large-scale-cancellation-160108315.html)
-- Jun 06 - [Sean “Diddy” Combs Used Ex-Girlfriend “Jane” As A Drug Mule, Last “Freak-Off” Occurred Just Before Arrest, Sex-Trafficking Trial Hears](https://www.yahoo.com/news/sean-diddy-combs-used-ex-162710832.html)
+- Jun 06 - [Why MercadoLibre (MELI) Stock Is Down Today](https://finance.yahoo.com/news/why-mercadolibre-meli-stock-down-201311477.html)
 <!-- feed end -->
