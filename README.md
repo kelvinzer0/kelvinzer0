@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Rent the Runway's Comeback Plan](https://finance.yahoo.com/video/rent-runways-comeback-plan-142641615.html)
+- Jun 06 - [Search underway for Navy sailor Angelina Resendiz, missing in Virginia | Morning in America](https://www.yahoo.com/news/search-underway-navy-sailor-angelina-134500549.html)
+- Jun 06 - [El Paso donut shop, Mexican restaurants receive low health inspection scores: See the list](https://www.yahoo.com/news/el-paso-donut-shop-mexican-130102764.html)
 - Jun 06 - [Musk offers peace signal to Trump after all-out verbal war](https://www.yahoo.com/news/musk-offers-peace-signal-trump-112809956.html)
 - Jun 06 - [JPMorgan has had enough of grads accepting future-dated roles elsewhere—and anyone caught will now be fired](https://finance.yahoo.com/news/jpmorgan-had-enough-grads-accepting-112320851.html)
-- Jun 06 - [Scientists stunned after uncovering major flaw in futuristic energy tech: 'This effect is far from negligible'](https://tech.yahoo.com/science/articles/scientists-stunned-uncovering-major-flaw-101542867.html)
-- Jun 06 - [Mortgage and refinance interest rates today, June 6, 2025: Lower this week, with the 15-year just below 6%](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-june-6-2025-100016256.html)
-- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
 <!-- feed end -->
