@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Elon Musk threatened, then walked back a decision to 'decommission' SpaceX's Dragon spacecraft after Trump hit out at his businesses](https://www.yahoo.com/news/elon-musk-says-hell-decommission-205501112.html)
-- Jun 05 - [Bondi accused of ‘serious professional misconduct’ in Florida Bar complaint](https://www.yahoo.com/news/bondi-accused-serious-professional-misconduct-231513404.html)
 - Jun 05 - [Trump Baffles German Chancellor on Live TV After Describing D-Day, Which Liberated Europe from Nazis, as 'Not a Great Day'](https://www.yahoo.com/news/trump-baffles-german-chancellor-live-210441167.html)
-- Jun 05 - [Musk goes scorched earth: Trump will cause recession, implies he should be impeached](https://finance.yahoo.com/news/musk-goes-scorched-earth-trump-205617340.html)
-- Jun 05 - [Several submerged cars found in Dallas park pond](https://www.yahoo.com/news/several-submerged-cars-found-dallas-183926859.html)
+- Jun 05 - [Urgent warning issued for US consumers after security breach of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
+- Jun 05 - [Elon Musk escalates feud with Trump: 'Time to drop the really big bomb'](https://www.yahoo.com/news/elon-musk-escalates-feud-trump-195932994.html)
+- Jun 05 - [After less than 4 months, all-you-can-eat Jacksonville buffet abruptly closes](https://www.yahoo.com/news/less-4-months-eat-jacksonville-181201903.html)
+- Jun 05 - ['Coming for us': Expert sounds alarm on CCP's mission to 'kill Americans' after FBI makes shocking arrests](https://www.yahoo.com/news/coming-us-expert-sounds-alarm-173921409.html)
 <!-- feed end -->
