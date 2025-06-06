@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Princess Kako of Japan begins visit to Brazil marking 130 years of diplomatic ties](https://www.yahoo.com/news/princess-kako-japan-begins-visit-030215801.html)
-- Jun 05 - [Urgent warning issued for US consumers after security breach of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
+- Jun 06 - [UPDATE: Multiple injuries after 6-vehicle crash on I-75 in Montgomery Co.](https://www.yahoo.com/news/crash-closes-75-near-moraine-011648382.html)
+- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
+- Jun 06 - [Trump, White House aides signal a possible détente with Musk](https://www.yahoo.com/news/trump-white-house-aides-signal-031615413.html)
 - Jun 05 - [Elon Musk escalates feud with Trump: 'Time to drop the really big bomb'](https://www.yahoo.com/news/elon-musk-escalates-feud-trump-195932994.html)
-- Jun 05 - [Arkansas Attorney General Tim Griffin announces conviction of Heber Springs woman for exploitation of an impaired person](https://www.yahoo.com/news/arkansas-attorney-general-tim-griffin-192817205.html)
 - Jun 05 - [US Health Secretary Kennedy looks to fast-tracking approvals for rare disease drugs](https://www.yahoo.com/news/us-health-secretary-kennedy-looks-181800562.html)
 <!-- feed end -->
