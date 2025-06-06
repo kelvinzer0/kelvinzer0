@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [EverGen Infrastructure Corp (EVGIF) Q1 2025 Earnings Call Highlights: Record Production and ...](https://finance.yahoo.com/news/evergen-infrastructure-corp-evgif-q1-210021063.html)
-- Jun 06 - [Healthcare: New cancer treatment in focus, analyst explains](https://finance.yahoo.com/video/healthcare-cancer-treatment-focus-analyst-210000669.html)
 - Jun 06 - [Abrego Garcia back in US to face charges of helping traffic 'thousands' of migrants](https://www.yahoo.com/news/kilmar-abrego-garcia-way-back-185850961.html)
-- Jun 06 - [Trump preparing large-scale cancellation of federal funding for California, sources say](https://www.yahoo.com/news/trump-preparing-large-scale-cancellation-160108315.html)
-- Jun 06 - [Why MercadoLibre (MELI) Stock Is Down Today](https://finance.yahoo.com/news/why-mercadolibre-meli-stock-down-201311477.html)
+- Jun 06 - [Bull on the loose charges through streets of Birmingham](https://www.yahoo.com/news/bull-loose-charges-streets-birmingham-210654978.html)
+- Jun 06 - [Healthcare: New cancer treatment in focus, analyst explains](https://finance.yahoo.com/video/healthcare-cancer-treatment-focus-analyst-210000669.html)
+- Jun 06 - [Many major roads in Mass. town left impassable after strong storm blows through](https://www.yahoo.com/news/many-major-roads-mass-town-190909842.html)
+- Jun 06 - [Power bills in California have jumped nearly 50% in four years. Democrats think they have solutions](https://www.yahoo.com/news/power-bills-california-jumped-nearly-185727709.html)
 <!-- feed end -->
