@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Rep. Andy Ogles (R-TN) joins The Hill on NewsNation](https://www.yahoo.com/news/rep-andy-ogles-r-tn-013200284.html)
+- Jun 06 - [Elon Musk threatened, then walked back a decision to 'decommission' SpaceX's Dragon spacecraft after Trump hit out at his businesses](https://www.yahoo.com/news/elon-musk-says-hell-decommission-205501112.html)
+- Jun 05 - [Bondi accused of ‘serious professional misconduct’ in Florida Bar complaint](https://www.yahoo.com/news/bondi-accused-serious-professional-misconduct-231513404.html)
 - Jun 05 - [Trump Baffles German Chancellor on Live TV After Describing D-Day, Which Liberated Europe from Nazis, as 'Not a Great Day'](https://www.yahoo.com/news/trump-baffles-german-chancellor-live-210441167.html)
-- Jun 05 - [Urgent warning issued for US consumers after security breach of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
 - Jun 05 - [Musk goes scorched earth: Trump will cause recession, implies he should be impeached](https://finance.yahoo.com/news/musk-goes-scorched-earth-trump-205617340.html)
-- Jun 05 - [US Health Secretary Kennedy looks to fast-tracking approvals for rare disease drugs](https://www.yahoo.com/news/us-health-secretary-kennedy-looks-181800562.html)
+- Jun 05 - [Several submerged cars found in Dallas park pond](https://www.yahoo.com/news/several-submerged-cars-found-dallas-183926859.html)
 <!-- feed end -->
