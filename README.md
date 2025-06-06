@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Making $100K per Year? How To Know If You’re Managing Money Well, According to Humphrey Yang](https://finance.yahoo.com/news/making-100k-per-know-managing-160159840.html)
-- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
-- Jun 06 - [A surprising study revealed biological activity on a distant planet. Weeks later, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
-- Jun 06 - [An ally took control of live bombs dropped by US Air Force planes. That's never been done before.](https://www.yahoo.com/news/ally-took-control-live-bombs-144401604.html)
-- Jun 06 - [Musk Is Suddenly Groveling to Get Back in Trump's Good Graces as He Realizes He's Made a Terrible Mistake](https://www.yahoo.com/news/musk-suddenly-groveling-back-trumps-143524178.html)
+- Jun 06 - [Porsche not planning to shift final assembly of cars to US](https://finance.yahoo.com/news/porsche-not-planning-shift-final-171100753.html)
+- Jun 06 - [Maxwell Anderson found guilty on all counts in murder of Sade Robinson. What to know about verdict](https://www.yahoo.com/news/maxwell-anderson-found-guilty-counts-165326610.html)
+- Jun 06 - [Lost DoorDash driver ends up on the tarmac at O’Hare Airport](https://www.yahoo.com/news/lost-doordash-driver-ends-tarmac-163807706.html)
+- Jun 06 - [Sean “Diddy” Combs Used Ex-Girlfriend “Jane” As A Drug Mule, Last “Freak-Off” Occurred Just Before Arrest, Sex-Trafficking Trial Hears](https://www.yahoo.com/news/sean-diddy-combs-used-ex-162710832.html)
+- Jun 06 - [Train crash investigation finds tractor driver asked for permission to cross before 80mph collision](https://www.yahoo.com/news/train-crash-investigation-finds-tractor-161554228.html)
 <!-- feed end -->
