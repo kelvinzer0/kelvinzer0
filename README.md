@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Rent the Runway's Comeback Plan](https://finance.yahoo.com/video/rent-runways-comeback-plan-142641615.html)
-- Jun 06 - [Search underway for Navy sailor Angelina Resendiz, missing in Virginia | Morning in America](https://www.yahoo.com/news/search-underway-navy-sailor-angelina-134500549.html)
-- Jun 06 - [El Paso donut shop, Mexican restaurants receive low health inspection scores: See the list](https://www.yahoo.com/news/el-paso-donut-shop-mexican-130102764.html)
-- Jun 06 - [Musk offers peace signal to Trump after all-out verbal war](https://www.yahoo.com/news/musk-offers-peace-signal-trump-112809956.html)
-- Jun 06 - [JPMorgan has had enough of grads accepting future-dated roles elsewhere—and anyone caught will now be fired](https://finance.yahoo.com/news/jpmorgan-had-enough-grads-accepting-112320851.html)
+- Jun 06 - [Demis Hassabis On The Future of Work in the Age of AI](https://www.yahoo.com/entertainment/videos/demis-hassabis-future-age-ai-160000682.html)
+- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
+- Jun 06 - [An ally took control of live bombs dropped by US Air Force planes. That's never been done before.](https://www.yahoo.com/news/ally-took-control-live-bombs-144401604.html)
+- Jun 06 - [Musk Is Suddenly Groveling to Get Back in Trump's Good Graces as He Realizes He's Made a Terrible Mistake](https://www.yahoo.com/news/musk-suddenly-groveling-back-trumps-143524178.html)
+- Jun 06 - [Preliminary report finds parts were installed incorrectly in engine of American Airlines plane](https://www.yahoo.com/news/preliminary-report-finds-parts-were-133623873.html)
 <!-- feed end -->
