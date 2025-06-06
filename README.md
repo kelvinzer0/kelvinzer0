@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Lawyers face sanctions for citing fake cases with AI, warns UK judge](https://finance.yahoo.com/news/lawyers-face-sanctions-citing-fake-121839695.html)
+- Jun 06 - [May jobs report: Why labor supply is 'under pressure'](https://finance.yahoo.com/video/may-jobs-report-why-labor-132505155.html)
+- Jun 06 - [Churchill documents reveal D-Day landings boosted by import of ‘wonder drug’ from America](https://www.yahoo.com/news/churchill-documents-reveal-d-day-121355980.html)
+- Jun 06 - [I said I’d cosign my parents’ car loan —  but they went to the dealer without me and got ripped off. What now?](https://finance.yahoo.com/news/said-d-cosign-parents-car-120000369.html)
 - Jun 06 - [Destruction in Beirut's southern suburbs following Israeli strikes on eve of Eid al-Adha](https://www.yahoo.com/news/destruction-beiruts-southern-suburbs-following-115005453.html)
-- Jun 06 - [Exploring Three High Growth Tech Stocks In The US Market](https://finance.yahoo.com/news/exploring-three-high-growth-tech-113811299.html)
-- Jun 06 - [AOC's 6-Word Response To The Donald Trump And Elon Musk Breakup Is Going Viral](https://www.yahoo.com/entertainment/articles/aocs-6-word-response-donald-111606338.html)
-- Jun 06 - [Investing $50,000 in This Ultra-High-Yield Dividend Stock Could Generate $2,865 in Annual Passive Income](https://finance.yahoo.com/news/investing-50-000-ultra-high-085000634.html)
+- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
 <!-- feed end -->
