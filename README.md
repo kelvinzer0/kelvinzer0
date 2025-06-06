@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Porsche not planning to shift final assembly of cars to US](https://finance.yahoo.com/news/porsche-not-planning-shift-final-171100753.html)
-- Jun 06 - [Maxwell Anderson found guilty on all counts in murder of Sade Robinson. What to know about verdict](https://www.yahoo.com/news/maxwell-anderson-found-guilty-counts-165326610.html)
-- Jun 06 - [Lost DoorDash driver ends up on the tarmac at O’Hare Airport](https://www.yahoo.com/news/lost-doordash-driver-ends-tarmac-163807706.html)
-- Jun 06 - [Sean “Diddy” Combs Used Ex-Girlfriend “Jane” As A Drug Mule, Last “Freak-Off” Occurred Just Before Arrest, Sex-Trafficking Trial Hears](https://www.yahoo.com/news/sean-diddy-combs-used-ex-162710832.html)
+- Jun 06 - [Massachusetts teen detained by ICE has emotional family reunion after release](https://www.yahoo.com/news/massachusetts-teen-detained-ice-emotional-181039378.html)
 - Jun 06 - [Train crash investigation finds tractor driver asked for permission to cross before 80mph collision](https://www.yahoo.com/news/train-crash-investigation-finds-tractor-161554228.html)
+- Jun 06 - [Exclusive-China issues rare earth licenses to suppliers of top 3 US automakers, sources say](https://finance.yahoo.com/news/exclusive-china-issues-rare-earth-151835288.html)
+- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
+- Jun 06 - [A surprising study revealed biological activity on a distant planet. Weeks later, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
 <!-- feed end -->
