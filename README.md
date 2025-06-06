@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Massachusetts teen detained by ICE has emotional family reunion after release](https://www.yahoo.com/news/massachusetts-teen-detained-ice-emotional-181039378.html)
-- Jun 06 - [Train crash investigation finds tractor driver asked for permission to cross before 80mph collision](https://www.yahoo.com/news/train-crash-investigation-finds-tractor-161554228.html)
-- Jun 06 - [Exclusive-China issues rare earth licenses to suppliers of top 3 US automakers, sources say](https://finance.yahoo.com/news/exclusive-china-issues-rare-earth-151835288.html)
-- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
-- Jun 06 - [A surprising study revealed biological activity on a distant planet. Weeks later, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
+- Jun 06 - [Abrego Garcia back in US to face charges of helping traffic 'thousands' of migrants](https://www.yahoo.com/news/kilmar-abrego-garcia-way-back-185850961.html)
+- Jun 06 - [Trump planning to extend TikTok ban deadline: Reports](https://finance.yahoo.com/video/trump-planning-extend-tiktok-ban-194816067.html)
+- Jun 06 - [Epstein's Lawyer Reveals Whether The Sex Offender Had 'Damaging Information' On Trump After Elon Musk's Bold Claim](https://www.yahoo.com/news/epsteins-lawyer-reveals-whether-sex-184513811.html)
+- Jun 06 - [Trump preparing large-scale cancellation of federal funding for California, sources say](https://www.yahoo.com/news/trump-preparing-large-scale-cancellation-160108315.html)
+- Jun 06 - [Sean “Diddy” Combs Used Ex-Girlfriend “Jane” As A Drug Mule, Last “Freak-Off” Occurred Just Before Arrest, Sex-Trafficking Trial Hears](https://www.yahoo.com/news/sean-diddy-combs-used-ex-162710832.html)
 <!-- feed end -->
