@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Trump Baffles German Chancellor on Live TV After Describing D-Day, Which Liberated Europe from Nazis, as 'Not a Great Day'](https://www.yahoo.com/news/trump-baffles-german-chancellor-live-210441167.html)
-- Jun 05 - [Urgent warning issued for US consumers after security breach of 184,000,000 passwords — here’s who’s exposed](https://www.yahoo.com/news/urgent-warning-issued-us-consumers-210000271.html)
+- Jun 05 - [Tuscaloosa police confirm death of Kierston Russell, twin sister of Alabama football QB](https://www.yahoo.com/news/tuscaloosa-police-confirm-death-kierston-220943561.html)
 - Jun 05 - [Elon Musk escalates feud with Trump: 'Time to drop the really big bomb'](https://www.yahoo.com/news/elon-musk-escalates-feud-trump-195932994.html)
+- Jun 05 - [US Health Secretary Kennedy looks to fast-tracking approvals for rare disease drugs](https://www.yahoo.com/news/us-health-secretary-kennedy-looks-181800562.html)
 - Jun 05 - [After less than 4 months, all-you-can-eat Jacksonville buffet abruptly closes](https://www.yahoo.com/news/less-4-months-eat-jacksonville-181201903.html)
 - Jun 05 - ['Coming for us': Expert sounds alarm on CCP's mission to 'kill Americans' after FBI makes shocking arrests](https://www.yahoo.com/news/coming-us-expert-sounds-alarm-173921409.html)
 <!-- feed end -->
