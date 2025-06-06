@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Dad practiced golf swing while wife in 12-hour labor to "pass the time"](https://www.yahoo.com/lifestyle/dad-practiced-golf-swing-while-083943681.html)
+- Jun 06 - [Duckling rescued from drain and reunited with its mum](https://www.yahoo.com/news/duckling-rescued-drain-reunited-mum-082742566.html)
 - Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
+- Jun 06 - [Trump, White House aides signal a possible détente with Musk](https://www.yahoo.com/news/trump-white-house-aides-signal-031615413.html)
 - Jun 05 - [Bondi accused of ‘serious professional misconduct’ in Florida Bar complaint](https://www.yahoo.com/news/bondi-accused-serious-professional-misconduct-231513404.html)
-- Jun 05 - [Musk Calls for Trump’s Impeachment and Implies He Is a Pedophile](https://www.yahoo.com/news/musk-calls-trump-impeachment-implies-220515829.html)
 - Jun 05 - [Trump Baffles German Chancellor on Live TV After Describing D-Day, Which Liberated Europe from Nazis, as 'Not a Great Day'](https://www.yahoo.com/news/trump-baffles-german-chancellor-live-210441167.html)
 <!-- feed end -->
