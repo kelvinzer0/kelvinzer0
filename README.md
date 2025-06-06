@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Abrego Garcia back in US to face charges of helping traffic 'thousands' of migrants](https://www.yahoo.com/news/kilmar-abrego-garcia-way-back-185850961.html)
-- Jun 06 - [Bull on the loose charges through streets of Birmingham](https://www.yahoo.com/news/bull-loose-charges-streets-birmingham-210654978.html)
+- Jun 06 - ['Devil in the Ozarks' fugitive captured after 12-day Arkansas manhunt](https://www.yahoo.com/news/devil-ozarks-fugitive-captured-12-223104450.html)
+- Jun 06 - [US Supreme Court rebuffs challenge to Washington, DC's high-capacity gun magazine ban](https://www.yahoo.com/news/us-supreme-court-rebuffs-challenge-222516021.html)
+- Jun 06 - [Gavin Newsom Suggests That “Maybe It’s Time” To Cut Off California’s Share Of Federal Taxes Amid Report That Trump Seeks To Cancel State Grants](https://www.yahoo.com/news/gavin-newsom-suggests-maybe-time-213806620.html)
+- Jun 06 - [Wagner Group leaving Mali after heavy losses but Russia's Africa Corps to remain](https://www.yahoo.com/news/wagner-group-leaving-mali-heavy-210119373.html)
 - Jun 06 - [Healthcare: New cancer treatment in focus, analyst explains](https://finance.yahoo.com/video/healthcare-cancer-treatment-focus-analyst-210000669.html)
-- Jun 06 - [Many major roads in Mass. town left impassable after strong storm blows through](https://www.yahoo.com/news/many-major-roads-mass-town-190909842.html)
-- Jun 06 - [Power bills in California have jumped nearly 50% in four years. Democrats think they have solutions](https://www.yahoo.com/news/power-bills-california-jumped-nearly-185727709.html)
 <!-- feed end -->
