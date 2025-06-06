@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Editorial: Aldermanic tempers boil as Chicago’s borrowing costs climb](https://www.yahoo.com/news/editorial-aldermanic-tempers-boil-chicago-100000588.html)
-- Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
-- Jun 06 - [Jimmy Kimmel on ‘Dumb Guy’ Elon Musk Going ‘Nuclear’ on Trump With Epstein Accusation: This Ends With ‘One of Them in a Cell With Diddy’](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-dumb-guy-elon-043106753.html)
-- Jun 05 - [Watch: Drone video shows giant wave swallowing up swimmers on Mexican beach](https://www.yahoo.com/news/watch-drone-video-shows-giant-215136823.html)
-- Jun 05 - [Trump Baffles German Chancellor on Live TV After Describing D-Day, Which Liberated Europe from Nazis, as 'Not a Great Day'](https://www.yahoo.com/news/trump-baffles-german-chancellor-live-210441167.html)
+- Jun 06 - [Lawyers face sanctions for citing fake cases with AI, warns UK judge](https://finance.yahoo.com/news/lawyers-face-sanctions-citing-fake-121839695.html)
+- Jun 06 - [Destruction in Beirut's southern suburbs following Israeli strikes on eve of Eid al-Adha](https://www.yahoo.com/news/destruction-beiruts-southern-suburbs-following-115005453.html)
+- Jun 06 - [Exploring Three High Growth Tech Stocks In The US Market](https://finance.yahoo.com/news/exploring-three-high-growth-tech-113811299.html)
+- Jun 06 - [AOC's 6-Word Response To The Donald Trump And Elon Musk Breakup Is Going Viral](https://www.yahoo.com/entertainment/articles/aocs-6-word-response-donald-111606338.html)
+- Jun 06 - [Investing $50,000 in This Ultra-High-Yield Dividend Stock Could Generate $2,865 in Annual Passive Income](https://finance.yahoo.com/news/investing-50-000-ultra-high-085000634.html)
 <!-- feed end -->
