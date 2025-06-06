@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Demis Hassabis On The Future of Work in the Age of AI](https://www.yahoo.com/entertainment/videos/demis-hassabis-future-age-ai-160000682.html)
+- Jun 06 - [Making $100K per Year? How To Know If You’re Managing Money Well, According to Humphrey Yang](https://finance.yahoo.com/news/making-100k-per-know-managing-160159840.html)
 - Jun 06 - [North Korea refloats destroyer that capsized during launch, surprising naval analysts](https://www.yahoo.com/news/north-korea-refloats-destroyer-capsized-045725688.html)
+- Jun 06 - [A surprising study revealed biological activity on a distant planet. Weeks later, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
 - Jun 06 - [An ally took control of live bombs dropped by US Air Force planes. That's never been done before.](https://www.yahoo.com/news/ally-took-control-live-bombs-144401604.html)
 - Jun 06 - [Musk Is Suddenly Groveling to Get Back in Trump's Good Graces as He Realizes He's Made a Terrible Mistake](https://www.yahoo.com/news/musk-suddenly-groveling-back-trumps-143524178.html)
-- Jun 06 - [Preliminary report finds parts were installed incorrectly in engine of American Airlines plane](https://www.yahoo.com/news/preliminary-report-finds-parts-were-133623873.html)
 <!-- feed end -->
