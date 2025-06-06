@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [How stablecoins could shape the future of digital money](https://finance.yahoo.com/video/stablecoins-could-shape-future-digital-220000803.html)
+- Jun 05 - [Trump Baffles German Chancellor on Live TV After Describing D-Day, Which Liberated Europe from Nazis, as 'Not a Great Day'](https://www.yahoo.com/news/trump-baffles-german-chancellor-live-210441167.html)
 - Jun 05 - [NTSB finds fuel leak and improperly installed parts in the engine of an airliner that caught fire](https://www.yahoo.com/news/ntsb-finds-fuel-leak-improperly-202849285.html)
-- Jun 05 - [Elon Musk escalates feud with Trump: 'Time to drop the really big bomb'](https://www.yahoo.com/news/elon-musk-escalates-feud-trump-195932994.html)
 - Jun 05 - [Arkansas Attorney General Tim Griffin announces conviction of Heber Springs woman for exploitation of an impaired person](https://www.yahoo.com/news/arkansas-attorney-general-tim-griffin-192817205.html)
 - Jun 05 - [US Health Secretary Kennedy looks to fast-tracking approvals for rare disease drugs](https://www.yahoo.com/news/us-health-secretary-kennedy-looks-181800562.html)
+- Jun 05 - [After less than 4 months, all-you-can-eat Jacksonville buffet abruptly closes](https://www.yahoo.com/news/less-4-months-eat-jacksonville-181201903.html)
 <!-- feed end -->
