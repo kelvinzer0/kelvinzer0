@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Cardiologist reveals his ‘go-to’ breakfast for a healthy heart](https://www.yahoo.com/news/cardiologist-reveals-breakfast-healthy-heart-173527009.html)
-- Jun 07 - [UK and India discuss 'counter-terrorism' cooperation after Pakistan ceasefire](https://www.yahoo.com/news/uk-india-discuss-counter-terrorism-145106674.html)
+- Jun 07 - [Professor sues University of California for suspension over comments about Israel’s war in Gaza](https://www.yahoo.com/news/professor-sues-university-california-suspension-155524439.html)
+- Jun 07 - [Ukrainian attack damaged 10% of Russia's strategic bombers, Germany says](https://www.yahoo.com/news/ukrainian-attack-damaged-10-russias-120958372.html)
+- Jun 07 - [One of America’s best small cities is in WA, says US News & World Report](https://www.yahoo.com/news/one-america-best-small-cities-120000802.html)
 - Jun 07 - [A US Navy warship captain said the Red Sea conflict was a 'knife fight in a phone booth.' China would be way more challenging.](https://www.yahoo.com/news/us-navy-warship-captain-said-115402768.html)
-- Jun 07 - [Is opting to draw down my 401(k) first to boost my Social Security checks a shrewd move or boneheaded choice?](https://finance.yahoo.com/news/opting-draw-down-401-k-113100811.html)
-- Jun 07 - [Officials consider reintroducing fierce predator to wild after century-long absence: 'We need hope right now'](https://www.yahoo.com/news/officials-consider-reintroducing-fierce-predator-111509294.html)
+- Jun 07 - [More people turn to Dollar General for savings](https://www.yahoo.com/news/more-people-turn-dollar-general-105311650.html)
 <!-- feed end -->
