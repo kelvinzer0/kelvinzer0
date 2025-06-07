@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Got $3,000? 1 Artificial Intelligence (AI) Stock to Buy and Hold for the Long Term.](https://finance.yahoo.com/news/got-3-000-1-artificial-200000183.html)
-- Jun 07 - [I'm a Cardiologist, and This 'Relaxing' Habit Is Actually Harming Your Heart Health](https://www.yahoo.com/lifestyle/im-cardiologist-relaxing-habit-actually-175000311.html)
+- Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
+- Jun 07 - [‘Gizmo did it!’ Big Bear bald eaglet Gizmo takes first flight, joining sister Sunny in sky](https://www.yahoo.com/news/big-bear-bald-eaglet-gizmo-171109545.html)
 - Jun 07 - [Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats](https://www.yahoo.com/news/trump-says-musk-face-very-170018750.html)
 - Jun 07 - [Archaeologists Find Grisly Evidence of Medieval Public Punishment](https://www.yahoo.com/news/archaeologists-grisly-evidence-medieval-public-170000549.html)
 - Jun 07 - [Dave Ramsey warns nearly 50% of Americans make 1 big Social Security mistake — here's how to fix it in 3 steps](https://finance.yahoo.com/news/dave-ramsey-warns-nearly-50-161300742.html)
