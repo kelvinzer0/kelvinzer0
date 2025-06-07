@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - ['Devil in the Ozarks' fugitive captured after 12-day Arkansas manhunt](https://www.yahoo.com/news/devil-ozarks-fugitive-captured-12-223104450.html)
-- Jun 06 - [US Supreme Court rebuffs challenge to Washington, DC's high-capacity gun magazine ban](https://www.yahoo.com/news/us-supreme-court-rebuffs-challenge-222516021.html)
-- Jun 06 - [Gavin Newsom Suggests That “Maybe It’s Time” To Cut Off California’s Share Of Federal Taxes Amid Report That Trump Seeks To Cancel State Grants](https://www.yahoo.com/news/gavin-newsom-suggests-maybe-time-213806620.html)
-- Jun 06 - [Wagner Group leaving Mali after heavy losses but Russia's Africa Corps to remain](https://www.yahoo.com/news/wagner-group-leaving-mali-heavy-210119373.html)
-- Jun 06 - [Healthcare: New cancer treatment in focus, analyst explains](https://finance.yahoo.com/video/healthcare-cancer-treatment-focus-analyst-210000669.html)
+- Jun 07 - [What to Expect From US, China Trade Talks Monday?](https://finance.yahoo.com/video/expect-us-china-trade-talks-003208445.html)
+- Jun 06 - [Trump says decision on Fed chair will be out soon](https://finance.yahoo.com/news/trump-says-decision-fed-chair-231204672.html)
+- Jun 06 - [NYC landlord clashing with tenant over 1st-floor unit, unpaid rent — but renter wants him to take it to court](https://www.yahoo.com/news/nyc-landlord-clashing-tenant-over-230200411.html)
+- Jun 06 - [Gavin Newsom Reacts to CNN Report That Trump Is Canceling Funding for the State: ‘Californians Pay the Bills for the Federal Government’](https://www.yahoo.com/news/gavin-newsom-reacts-cnn-report-221351803.html)
+- Jun 06 - [Tesla's head of Optimus humanoid robot program to leave firm](https://finance.yahoo.com/news/teslas-optimus-humanoid-robot-program-210558573.html)
 <!-- feed end -->
