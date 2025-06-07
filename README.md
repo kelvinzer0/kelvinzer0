@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Cardiologist reveals his ‘go-to’ breakfast for a healthy heart](https://www.yahoo.com/news/cardiologist-reveals-breakfast-healthy-heart-173527009.html)
+- Jun 07 - [UK and India discuss 'counter-terrorism' cooperation after Pakistan ceasefire](https://www.yahoo.com/news/uk-india-discuss-counter-terrorism-145106674.html)
 - Jun 07 - [A US Navy warship captain said the Red Sea conflict was a 'knife fight in a phone booth.' China would be way more challenging.](https://www.yahoo.com/news/us-navy-warship-captain-said-115402768.html)
-- Jun 07 - [More people turn to Dollar General for savings](https://www.yahoo.com/news/more-people-turn-dollar-general-105311650.html)
-- Jun 07 - [American Airlines sent a plane from the US to Italy that was too big for its destination airport and wasn't allowed to land](https://www.yahoo.com/news/american-airlines-sent-plane-us-093101425.html)
-- Jun 07 - [Wordle hints today for #1,449: Clues and answer for Saturday, June 7](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1449-clues-and-answer-for-saturday-june-7-040147070.html)
-- Jun 07 - [Judge says administration can dismantle the Institute of Museum and Library Services](https://www.yahoo.com/news/judge-says-administration-dismantle-institute-000306667.html)
+- Jun 07 - [Is opting to draw down my 401(k) first to boost my Social Security checks a shrewd move or boneheaded choice?](https://finance.yahoo.com/news/opting-draw-down-401-k-113100811.html)
+- Jun 07 - [Officials consider reintroducing fierce predator to wild after century-long absence: 'We need hope right now'](https://www.yahoo.com/news/officials-consider-reintroducing-fierce-predator-111509294.html)
 <!-- feed end -->
