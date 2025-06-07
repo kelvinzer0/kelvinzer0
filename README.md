@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Las Vegas casino dealers face layoffs amid tourism slump](https://www.yahoo.com/news/las-vegas-casino-dealers-face-003756049.html)
 - Jun 07 - [Judge says administration can dismantle the Institute of Museum and Library Services](https://www.yahoo.com/news/judge-says-administration-dismantle-institute-000306667.html)
 - Jun 06 - [This Could Be Our Best View Yet Of China’s J-36 Very Heavy Stealth Tactical Jet](https://www.yahoo.com/news/could-best-view-yet-china-230511744.html)
 - Jun 06 - [Gavin Newsom Reacts to CNN Report That Trump Is Canceling Funding for the State: ‘Californians Pay the Bills for the Federal Government’](https://www.yahoo.com/news/gavin-newsom-reacts-cnn-report-221351803.html)
 - Jun 06 - [Tesla's head of Optimus humanoid robot program to leave firm](https://finance.yahoo.com/news/teslas-optimus-humanoid-robot-program-210558383.html)
-- Jun 06 - [Wagner Group leaving Mali after heavy losses but Russia's Africa Corps to remain](https://www.yahoo.com/news/wagner-group-leaving-mali-heavy-210119373.html)
 <!-- feed end -->
