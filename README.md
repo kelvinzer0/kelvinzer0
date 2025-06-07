@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Woman Says Her ‘Bitter’ Husband Moved Out After She Got 'Carried Away' and Went $55,000 Over Budget Refurbishing Their Home](https://www.yahoo.com/lifestyle/woman-says-her-bitter-husband-090000379.html)
+- Jun 07 - [American Airlines sent a plane from the US to Italy that was too big for its destination airport and wasn't allowed to land](https://www.yahoo.com/news/american-airlines-sent-plane-us-093101425.html)
+- Jun 07 - [1 Magnificent Pipeline Stock Down Nearly 20% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-pipeline-stock-down-081000435.html)
+- Jun 07 - [Wordle hints today for #1,449: Clues and answer for Saturday, June 7](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1449-clues-and-answer-for-saturday-june-7-040147070.html)
+- Jun 07 - [Judge says administration can dismantle the Institute of Museum and Library Services](https://www.yahoo.com/news/judge-says-administration-dismantle-institute-000306667.html)
 - Jun 06 - [Trump says decision on Fed chair will be out soon](https://finance.yahoo.com/news/trump-says-decision-fed-chair-231204672.html)
-- Jun 06 - [This Could Be Our Best View Yet Of China’s J-36 Very Heavy Stealth Tactical Jet](https://www.yahoo.com/news/could-best-view-yet-china-230511744.html)
-- Jun 06 - [Gavin Newsom Reacts to CNN Report That Trump Is Canceling Funding for the State: ‘Californians Pay the Bills for the Federal Government’](https://www.yahoo.com/news/gavin-newsom-reacts-cnn-report-221351803.html)
-- Jun 06 - [Tesla's head of Optimus humanoid robot program to leave firm](https://finance.yahoo.com/news/teslas-optimus-humanoid-robot-program-210558383.html)
 <!-- feed end -->
