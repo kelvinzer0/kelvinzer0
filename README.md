@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Las Vegas casino dealers face layoffs amid tourism slump](https://www.yahoo.com/news/las-vegas-casino-dealers-face-003756049.html)
+- Jun 07 - [Man United announce surprising third quarter profits for 2025](https://sports.yahoo.com/article/man-united-announce-surprising-third-053000681.html)
 - Jun 06 - [Trump says decision on Fed chair will be out soon](https://finance.yahoo.com/news/trump-says-decision-fed-chair-231204672.html)
-- Jun 06 - [This Could Be Our Best View Yet Of China’s J-36 Very Heavy Stealth Tactical Jet](https://www.yahoo.com/news/could-best-view-yet-china-230511744.html)
-- Jun 06 - [NYC landlord clashing with tenant over 1st-floor unit, unpaid rent — but renter wants him to take it to court](https://www.yahoo.com/news/nyc-landlord-clashing-tenant-over-230200411.html)
 - Jun 06 - [Gavin Newsom Reacts to CNN Report That Trump Is Canceling Funding for the State: ‘Californians Pay the Bills for the Federal Government’](https://www.yahoo.com/news/gavin-newsom-reacts-cnn-report-221351803.html)
+- Jun 06 - [Tesla's head of Optimus humanoid robot program to leave firm](https://finance.yahoo.com/news/teslas-optimus-humanoid-robot-program-210558573.html)
+- Jun 06 - [Ex-police chief and convicted killer who escaped from an Arkansas prison has been captured](https://www.yahoo.com/news/elite-us-border-patrol-team-192514254.html)
 <!-- feed end -->
