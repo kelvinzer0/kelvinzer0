@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Meet the Monster Stock that Continues to Crush the Market](https://finance.yahoo.com/news/meet-monster-stock-continues-crush-123000683.html)
 - Jun 07 - [A US Navy warship captain said the Red Sea conflict was a 'knife fight in a phone booth.' China would be way more challenging.](https://www.yahoo.com/news/us-navy-warship-captain-said-115402768.html)
 - Jun 07 - [American Airlines sent a plane from the US to Italy that was too big for its destination airport and wasn't allowed to land](https://www.yahoo.com/news/american-airlines-sent-plane-us-093101425.html)
-- Jun 07 - [2 Growth Stocks to Invest $1,000 in Right Now](https://finance.yahoo.com/news/2-growth-stocks-invest-1-090500497.html)
+- Jun 07 - [Woman Says Her ‘Bitter’ Husband Moved Out After She Got 'Carried Away' and Went $55,000 Over Budget Refurbishing Their Home](https://www.yahoo.com/lifestyle/woman-says-her-bitter-husband-090000379.html)
 - Jun 07 - [Wordle hints today for #1,449: Clues and answer for Saturday, June 7](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1449-clues-and-answer-for-saturday-june-7-040147070.html)
+- Jun 07 - [Judge says administration can dismantle the Institute of Museum and Library Services](https://www.yahoo.com/news/judge-says-administration-dismantle-institute-000306667.html)
 <!-- feed end -->
