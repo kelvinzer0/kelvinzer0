@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Police and protesters clash outside federal detention center in LA after ICE raids](https://www.yahoo.com/news/police-protesters-clash-outside-federal-050808527.html)
-- Jun 07 - [Judge says administration can dismantle the Institute of Museum and Library Services](https://www.yahoo.com/news/judge-says-administration-dismantle-institute-000306667.html)
+- Jun 07 - [Woman Says Her ‘Bitter’ Husband Moved Out After She Got 'Carried Away' and Went $55,000 Over Budget Refurbishing Their Home](https://www.yahoo.com/lifestyle/woman-says-her-bitter-husband-090000379.html)
 - Jun 06 - [Trump says decision on Fed chair will be out soon](https://finance.yahoo.com/news/trump-says-decision-fed-chair-231204672.html)
 - Jun 06 - [This Could Be Our Best View Yet Of China’s J-36 Very Heavy Stealth Tactical Jet](https://www.yahoo.com/news/could-best-view-yet-china-230511744.html)
-- Jun 06 - [Is Your Retirement Nest Egg Above Average? Here's What People Have In Their 401(k) And IRA at Each Age](https://finance.yahoo.com/news/retirement-nest-egg-above-average-230114829.html)
+- Jun 06 - [Gavin Newsom Reacts to CNN Report That Trump Is Canceling Funding for the State: ‘Californians Pay the Bills for the Federal Government’](https://www.yahoo.com/news/gavin-newsom-reacts-cnn-report-221351803.html)
+- Jun 06 - [Tesla's head of Optimus humanoid robot program to leave firm](https://finance.yahoo.com/news/teslas-optimus-humanoid-robot-program-210558383.html)
 <!-- feed end -->
