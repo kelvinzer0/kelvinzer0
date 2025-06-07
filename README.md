@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Professor sues University of California for suspension over comments about Israel’s war in Gaza](https://www.yahoo.com/news/professor-sues-university-california-suspension-155524439.html)
+- Jun 07 - [FDA: More cucumbers, ready-to-eat products recalled in growing salmonella outbreak](https://www.yahoo.com/news/fda-more-cucumbers-ready-eat-174851137.html)
+- Jun 07 - [Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats](https://www.yahoo.com/news/trump-says-musk-face-very-170018750.html)
+- Jun 07 - [A Homebuyer In Escrow On A $720K House Just Discovered The Insurance Is 'Astronomical.' Realtor Claimed Earlier That It Wouldn't Be An Issue](https://finance.yahoo.com/news/homebuyer-escrow-720k-house-just-163121983.html)
 - Jun 07 - [Ukrainian attack damaged 10% of Russia's strategic bombers, Germany says](https://www.yahoo.com/news/ukrainian-attack-damaged-10-russias-120958372.html)
-- Jun 07 - [One of America’s best small cities is in WA, says US News & World Report](https://www.yahoo.com/news/one-america-best-small-cities-120000802.html)
-- Jun 07 - [A US Navy warship captain said the Red Sea conflict was a 'knife fight in a phone booth.' China would be way more challenging.](https://www.yahoo.com/news/us-navy-warship-captain-said-115402768.html)
-- Jun 07 - [More people turn to Dollar General for savings](https://www.yahoo.com/news/more-people-turn-dollar-general-105311650.html)
+- Jun 07 - [American Airlines sent a plane from the US to Italy that was too big for its destination airport and wasn't allowed to land](https://www.yahoo.com/news/american-airlines-sent-plane-us-093101425.html)
 <!-- feed end -->
