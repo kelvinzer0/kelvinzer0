@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [FDA: More cucumbers, ready-to-eat products recalled in growing salmonella outbreak](https://www.yahoo.com/news/fda-more-cucumbers-ready-eat-174851137.html)
-- Jun 07 - [Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats](https://www.yahoo.com/news/trump-says-musk-face-very-170018750.html)
-- Jun 07 - [A Homebuyer In Escrow On A $720K House Just Discovered The Insurance Is 'Astronomical.' Realtor Claimed Earlier That It Wouldn't Be An Issue](https://finance.yahoo.com/news/homebuyer-escrow-720k-house-just-163121983.html)
-- Jun 07 - [Ukrainian attack damaged 10% of Russia's strategic bombers, Germany says](https://www.yahoo.com/news/ukrainian-attack-damaged-10-russias-120958372.html)
+- Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
+- Jun 07 - [Unions pile pressure on Reeves to avoid cuts and impose wealth taxes](https://www.yahoo.com/news/unions-pile-pressure-reeves-avoid-170027870.html)
+- Jun 07 - [Dave Ramsey warns nearly 50% of Americans make 1 big Social Security mistake — here's how to fix it in 3 steps](https://finance.yahoo.com/news/dave-ramsey-warns-nearly-50-161300742.html)
+- Jun 07 - [Is opting to draw down my 401(k) first to boost my Social Security checks a shrewd move or boneheaded choice?](https://finance.yahoo.com/news/opting-draw-down-401-k-113100811.html)
 - Jun 07 - [American Airlines sent a plane from the US to Italy that was too big for its destination airport and wasn't allowed to land](https://www.yahoo.com/news/american-airlines-sent-plane-us-093101425.html)
 <!-- feed end -->
