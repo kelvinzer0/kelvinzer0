@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Trump Claims Feds Have 'Very Easy Case' Against Kilmar Abrego Garcia](https://www.yahoo.com/news/trump-claims-feds-very-easy-193851536.html)
 - Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
-- Jun 07 - [Unions pile pressure on Reeves to avoid cuts and impose wealth taxes](https://www.yahoo.com/news/unions-pile-pressure-reeves-avoid-170027870.html)
+- Jun 07 - [Trump encouraged Vance to respond diplomatically when asked about Musk. Here’s how it played in real time](https://www.yahoo.com/news/trump-encouraged-vance-respond-diplomatically-184340067.html)
+- Jun 07 - [‘Gizmo did it!’ Big Bear bald eaglet Gizmo takes first flight, joining sister Sunny in sky](https://www.yahoo.com/news/big-bear-bald-eaglet-gizmo-171109545.html)
 - Jun 07 - [Dave Ramsey warns nearly 50% of Americans make 1 big Social Security mistake — here's how to fix it in 3 steps](https://finance.yahoo.com/news/dave-ramsey-warns-nearly-50-161300742.html)
-- Jun 07 - [Is opting to draw down my 401(k) first to boost my Social Security checks a shrewd move or boneheaded choice?](https://finance.yahoo.com/news/opting-draw-down-401-k-113100811.html)
-- Jun 07 - [American Airlines sent a plane from the US to Italy that was too big for its destination airport and wasn't allowed to land](https://www.yahoo.com/news/american-airlines-sent-plane-us-093101425.html)
 <!-- feed end -->
