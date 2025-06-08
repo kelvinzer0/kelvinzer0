@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Farage: Yusuf made a mistake quitting but is back now](https://www.yahoo.com/news/farage-yusuf-made-mistake-quitting-084543256.html)
-- Jun 08 - [Nvidia Stock: Forget AI Data Centers, Is This Market Nvidia's Next Big Growth Driver?](https://finance.yahoo.com/news/nvidia-stock-forget-ai-data-082500772.html)
-- Jun 08 - [Iranian rapper Tataloo once supported a hard-line presidential candidate. Now he faces execution](https://www.yahoo.com/news/iranian-rapper-tataloo-once-supported-054812785.html)
-- Jun 08 - [Chinese ship runs aground off Philippines-occupied island in the disputed South China Sea](https://www.yahoo.com/news/chinese-ship-runs-aground-off-045444722.html)
 - Jun 08 - [Ukraine drones attack on Moscow forces airport closure, Russia says](https://www.yahoo.com/news/ukraine-drones-attack-moscow-forces-043628684.html)
+- Jun 08 - [TSA Just Banned Costco Cards at Airport Security](https://www.yahoo.com/news/tsa-just-banned-costco-cards-033225289.html)
+- Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
+- Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
+- Jun 07 - [Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats](https://www.yahoo.com/news/trump-says-musk-face-very-170018750.html)
 <!-- feed end -->
