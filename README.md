@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Ukraine drones attack on Moscow forces airport closure, Russia says](https://www.yahoo.com/news/ukraine-drones-attack-moscow-forces-043628684.html)
 - Jun 08 - [TSA Just Banned Costco Cards at Airport Security](https://www.yahoo.com/news/tsa-just-banned-costco-cards-033225289.html)
+- Jun 08 - [’60 Minutes’ Correspondent Scott Pelley Says Trump Lawsuit Settlement & Apology Would Be “Very Damaging” To Reputation Of CBS And Paramount](https://www.yahoo.com/news/60-minutes-correspondent-scott-pelley-020345696.html)
+- Jun 08 - [A surprising study found hints of biological activity on a distant planet. Now, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
 - Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
-- Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
-- Jun 07 - [Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats](https://www.yahoo.com/news/trump-says-musk-face-very-170018750.html)
+- Jun 07 - [From lottery tickets to life insurance: Here are 6 ‘bad assets’ that could cause you to retire poor in America](https://finance.yahoo.com/news/lottery-tickets-life-insurance-6-221800166.html)
 <!-- feed end -->
