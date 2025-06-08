@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Nutritionists Are Warning That This Very Popular Food Habit Might Actually Be An Eating Disorder In Disguise](https://www.yahoo.com/lifestyle/nutritionists-warning-very-popular-food-023103298.html)
+- Jun 08 - [A surprising study found hints of biological activity on a distant planet. Now, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
 - Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
-- Jun 07 - [From lottery tickets to life insurance: Here are 6 ‘bad assets’ that could cause you to retire poor in America](https://finance.yahoo.com/news/lottery-tickets-life-insurance-6-221800166.html)
 - Jun 07 - [Thousands of demonstrators march through Rome to call for an immediate end to the war in Gaza](https://www.yahoo.com/news/thousands-demonstrators-march-rome-call-193946760.html)
-- Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
-- Jun 07 - [Clamoring to Invest in SpaceX but Can't? Consider Buying Stock in This Competitor That Just Upped Its National Defense Game.](https://finance.yahoo.com/news/clamoring-invest-spacex-cant-consider-171600709.html)
+- Jun 07 - [Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats](https://www.yahoo.com/news/trump-says-musk-face-very-170018750.html)
 <!-- feed end -->
