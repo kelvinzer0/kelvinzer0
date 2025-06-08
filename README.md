@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [The #1 Nut to Help You Lose Weight, Recommended by Dietitians](https://www.yahoo.com/lifestyle/1-nut-help-lose-weight-190000447.html)
+- Jun 08 - [Plane with 20 people aboard crashes in Tennessee, no deaths reported: FAA](https://www.yahoo.com/news/plane-20-people-aboard-crashes-202641995.html)
+- Jun 08 - ['They could be here in two days': Ukrainian town braces for Russian advance](https://www.yahoo.com/news/could-two-days-ukrainian-town-205545016.html)
+- Jun 08 - [Iran says no sanctions relief in US nuclear proposal](https://www.yahoo.com/news/iran-says-no-sanctions-relief-204917922.html)
 - Jun 08 - [What really happened outside the Paramount Home Depot? The reality on the ground vs. the rhetoric](https://www.yahoo.com/news/really-happened-outside-paramount-home-184604236.html)
-- Jun 08 - [Possible 100 MPH Winds Expected Sunday In These Four States](https://www.yahoo.com/news/possible-100-mph-winds-expected-183553538.html)
-- Jun 08 - [Escaped zebra captured in Rutherford County after more than a week on the loose](https://www.yahoo.com/news/escaped-zebra-captured-rutherford-county-162556789.html)
-- Jun 08 - [Terry Moran Suspended at ABC News After Posting That White House Deputy Chief Stephen Miller Is a ‘World-Class Hater’](https://www.yahoo.com/news/terry-moran-suspended-abc-news-155008354.html)
+- Jun 08 - [A runaway pet zebra has been captured in Tennessee](https://www.yahoo.com/lifestyle/runaway-pet-zebra-captured-tennessee-173227076.html)
 <!-- feed end -->
