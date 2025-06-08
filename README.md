@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [TSA Just Banned Costco Cards at Airport Security](https://www.yahoo.com/news/tsa-just-banned-costco-cards-033225289.html)
-- Jun 08 - [’60 Minutes’ Correspondent Scott Pelley Says Trump Lawsuit Settlement & Apology Would Be “Very Damaging” To Reputation Of CBS And Paramount](https://www.yahoo.com/news/60-minutes-correspondent-scott-pelley-020345696.html)
-- Jun 08 - [A surprising study found hints of biological activity on a distant planet. Now, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
-- Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
-- Jun 07 - [From lottery tickets to life insurance: Here are 6 ‘bad assets’ that could cause you to retire poor in America](https://finance.yahoo.com/news/lottery-tickets-life-insurance-6-221800166.html)
+- Jun 08 - [GameStop, Oracle, Adobe: Earnings to Watch This Week](https://finance.yahoo.com/video/gamestop-oracle-adobe-earnings-watch-120057827.html)
+- Jun 08 - ['Show them the designs': Plans for downtown Johnstown's Central Park shared with public at informational session](https://www.yahoo.com/news/show-them-designs-plans-downtown-114700871.html)
+- Jun 08 - [Ukraine drone barrage targets Moscow as Zelenskyy demands accountability for Putin](https://www.yahoo.com/news/ukraine-drone-barrage-targets-moscow-084532578.html)
+- Jun 08 - [3 Stocks With Mouthwatering Dividends You Can Buy Right Now](https://finance.yahoo.com/news/3-stocks-mouthwatering-dividends-buy-103500859.html)
+- Jun 08 - [Freeze your cherries, eat a cup of beans daily and try this hack to fall asleep fast — plus 9 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/freeze-your-cherries-eat-a-cup-of-beans-daily-and-try-this-hack-to-fall-asleep-fast--plus-9-more-health-tips-to-help-you-have-a-great-week-090042654.html)
 <!-- feed end -->
