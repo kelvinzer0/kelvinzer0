@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [TSA Just Banned Costco Cards at Airport Security](https://www.yahoo.com/news/tsa-just-banned-costco-cards-033225289.html)
 - Jun 08 - [A surprising study found hints of biological activity on a distant planet. Now, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
-- Jun 08 - [Tense encounters continue in Paramount between law enforcement and protesters](https://www.yahoo.com/news/tense-encounters-continue-paramount-between-003822308.html)
 - Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
-- Jun 07 - [Warren Buffett-led Berkshire Hathaway Owns 400 Million Shares of This Recession-Proof Dividend Stock: Could It Make You a Millionaire?](https://finance.yahoo.com/news/warren-buffett-led-berkshire-hathaway-221400198.html)
-- Jun 07 - [Recaptured Arkansas prison escapee known as the 'Devil in the Ozarks' sent to SuperMax prison](https://www.yahoo.com/news/recaptured-arkansas-prison-escapee-known-195024883.html)
+- Jun 07 - [Thousands of demonstrators march through Rome to call for an immediate end to the war in Gaza](https://www.yahoo.com/news/thousands-demonstrators-march-rome-call-193946760.html)
+- Jun 07 - [I'm a Cardiologist, and This 'Relaxing' Habit Is Actually Harming Your Heart Health](https://www.yahoo.com/lifestyle/im-cardiologist-relaxing-habit-actually-175000311.html)
 <!-- feed end -->
