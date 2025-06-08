@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Sun Blasts X1-Class Solar Flare! See Spacecraft Footage In 4K](https://www.yahoo.com/news/sun-blasts-x1-class-solar-190000381.html)
+- Jun 08 - [Supporting free science is a 'political and ethical' duty, Macron says](https://www.yahoo.com/news/supporting-free-science-political-ethical-164023284.html)
 - Jun 08 - [ABC News Suspends Terry Moran Over X Post That Called Trump Official Stephen Miller A “World-Class Hater”](https://www.yahoo.com/news/abc-news-suspends-terry-moran-150704099.html)
+- Jun 08 - [Former sex trafficking victim pardoned by President Trump reveals disturbing secrets of legal brothel](https://www.yahoo.com/news/former-sex-trafficking-victim-pardoned-120037633.html)
 - Jun 08 - [A fresh inflation reading greets a stock market back near all-time highs: What to know this week](https://finance.yahoo.com/news/a-fresh-inflation-reading-greets-a-stock-market-back-near-all-time-highs-what-to-know-this-week-114224467.html)
-- Jun 08 - [Scientists stunned by species' remarkable behavior after being moved from captivity to wild: 'This is pretty big news'](https://www.yahoo.com/news/scientists-stunned-species-remarkable-behavior-111507183.html)
-- Jun 08 - [Scientists shaken by alarming discovery inside collapsing bee colonies — here's what they found](https://www.yahoo.com/news/scientists-shaken-alarming-discovery-inside-110006172.html)
+- Jun 08 - [Health officials issue urgent warning after discovering first case of deadly bacteria carried by tick in US: 'Raising public awareness … is critical'](https://www.yahoo.com/news/health-officials-issue-urgent-warning-113034990.html)
 <!-- feed end -->
