@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Ukraine turns on Poland over WW2 massacre commemoration](https://www.yahoo.com/news/ukraine-turns-poland-over-ww2-174506207.html)
 - Jun 08 - [A runaway pet zebra has been captured in Tennessee](https://www.yahoo.com/lifestyle/runaway-pet-zebra-captured-tennessee-173227076.html)
-- Jun 08 - [Cathie Wood sells $22.8 million of hot stock near all-time highs](https://finance.yahoo.com/news/cathie-wood-sells-22-8-171700758.html)
+- Jun 08 - [Escaped zebra captured in Rutherford County after more than a week on the loose](https://www.yahoo.com/news/escaped-zebra-captured-rutherford-county-162556789.html)
 - Jun 08 - [ABC News Suspends Terry Moran Over X Post That Called Trump Official Stephen Miller A “World-Class Hater”](https://www.yahoo.com/news/abc-news-suspends-terry-moran-150704099.html)
-- Jun 08 - [‘The facts are on my side’: Rep. McIver touts confidence ahead of day in court with Trump’s DOJ](https://www.yahoo.com/news/facts-side-rep-mciver-touts-134227239.html)
-- Jun 08 - [Former sex trafficking victim pardoned by President Trump reveals disturbing secrets of legal brothel](https://www.yahoo.com/news/former-sex-trafficking-victim-pardoned-120037633.html)
+- Jun 08 - [A missed drop-off and tragedy at a campground. How a manhunt for a father accused of killing his 3 daughters is unfolding](https://www.yahoo.com/news/missed-drop-off-tragedy-campground-120002236.html)
 <!-- feed end -->
