@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Wells Fargo spent years worried about the past. Now it can focus on the future.](https://finance.yahoo.com/news/wells-fargo-spent-years-worried-about-the-past-now-it-can-focus-on-the-future-143003609.html)
-- Jun 08 - [Hedge Funds Face California Rebuke Over Role in Wildfire Claims](https://finance.yahoo.com/news/hedge-funds-face-california-rebuke-140012392.html)
-- Jun 08 - [‘The facts are on my side’: Rep. McIver touts confidence ahead of day in court with Trump’s DOJ](https://www.yahoo.com/news/facts-side-rep-mciver-touts-134227239.html)
-- Jun 08 - [I bought my mother-in-law a condo — and she took out a $30,000 car loan. Now she refuses to get a roommate.](https://finance.yahoo.com/news/bought-mother-law-condo-she-121600358.html)
+- Jun 08 - [Sun Blasts X1-Class Solar Flare! See Spacecraft Footage In 4K](https://www.yahoo.com/news/sun-blasts-x1-class-solar-190000381.html)
+- Jun 08 - [ABC News Suspends Terry Moran Over X Post That Called Trump Official Stephen Miller A “World-Class Hater”](https://www.yahoo.com/news/abc-news-suspends-terry-moran-150704099.html)
 - Jun 08 - [A fresh inflation reading greets a stock market back near all-time highs: What to know this week](https://finance.yahoo.com/news/a-fresh-inflation-reading-greets-a-stock-market-back-near-all-time-highs-what-to-know-this-week-114224467.html)
+- Jun 08 - [Scientists stunned by species' remarkable behavior after being moved from captivity to wild: 'This is pretty big news'](https://www.yahoo.com/news/scientists-stunned-species-remarkable-behavior-111507183.html)
+- Jun 08 - [Scientists shaken by alarming discovery inside collapsing bee colonies — here's what they found](https://www.yahoo.com/news/scientists-shaken-alarming-discovery-inside-110006172.html)
 <!-- feed end -->
