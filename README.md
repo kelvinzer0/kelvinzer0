@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [GameStop, Oracle, Adobe: Earnings to Watch This Week](https://finance.yahoo.com/video/gamestop-oracle-adobe-earnings-watch-120057827.html)
-- Jun 08 - ['Show them the designs': Plans for downtown Johnstown's Central Park shared with public at informational session](https://www.yahoo.com/news/show-them-designs-plans-downtown-114700871.html)
-- Jun 08 - [Ukraine drone barrage targets Moscow as Zelenskyy demands accountability for Putin](https://www.yahoo.com/news/ukraine-drone-barrage-targets-moscow-084532578.html)
-- Jun 08 - [3 Stocks With Mouthwatering Dividends You Can Buy Right Now](https://finance.yahoo.com/news/3-stocks-mouthwatering-dividends-buy-103500859.html)
+- Jun 08 - [I Just Spent The Last 15 Minutes Laughing Uncontrollably At These 22 Hilarious Photos](https://www.yahoo.com/lifestyle/just-spent-last-15-minutes-121602653.html)
+- Jun 08 - [I’m an Economist: My Predictions for Inflation Under President Trump](https://finance.yahoo.com/news/m-economist-predictions-inflation-trump-153353844.html)
+- Jun 08 - [Mortgage and refinance interest rates today, June 8, 2025: A sharp turn higher](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-sunday-june-8-2025-100034497.html)
 - Jun 08 - [Freeze your cherries, eat a cup of beans daily and try this hack to fall asleep fast — plus 9 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/freeze-your-cherries-eat-a-cup-of-beans-daily-and-try-this-hack-to-fall-asleep-fast--plus-9-more-health-tips-to-help-you-have-a-great-week-090042654.html)
+- Jun 08 - [1 Top Cryptocurrency to Buy Before It Soars 6,220%, According to Cathie Wood](https://finance.yahoo.com/news/1-top-cryptocurrency-buy-soars-082600213.html)
 <!-- feed end -->
