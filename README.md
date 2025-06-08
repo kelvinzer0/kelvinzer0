@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [I'm a Cardiologist, and This 'Relaxing' Habit Is Actually Harming Your Heart Health](https://www.yahoo.com/lifestyle/im-cardiologist-relaxing-habit-actually-175000311.html)
-- Jun 07 - [‘Gizmo did it!’ Big Bear bald eaglet Gizmo takes first flight, joining sister Sunny in sky](https://www.yahoo.com/news/big-bear-bald-eaglet-gizmo-171109545.html)
-- Jun 07 - [Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats](https://www.yahoo.com/news/trump-says-musk-face-very-170018750.html)
-- Jun 07 - [Archaeologists Find Grisly Evidence of Medieval Public Punishment](https://www.yahoo.com/news/archaeologists-grisly-evidence-medieval-public-170000549.html)
-- Jun 07 - [Dave Ramsey warns nearly 50% of Americans make 1 big Social Security mistake — here's how to fix it in 3 steps](https://finance.yahoo.com/news/dave-ramsey-warns-nearly-50-161300742.html)
+- Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
+- Jun 07 - [From lottery tickets to life insurance: Here are 6 ‘bad assets’ that could cause you to retire poor in America](https://finance.yahoo.com/news/lottery-tickets-life-insurance-6-221800166.html)
+- Jun 07 - [Thousands of demonstrators march through Rome to call for an immediate end to the war in Gaza](https://www.yahoo.com/news/thousands-demonstrators-march-rome-call-193946760.html)
+- Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
+- Jun 07 - [Clamoring to Invest in SpaceX but Can't? Consider Buying Stock in This Competitor That Just Upped Its National Defense Game.](https://finance.yahoo.com/news/clamoring-invest-spacex-cant-consider-171600709.html)
 <!-- feed end -->
