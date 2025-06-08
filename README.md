@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Wells Fargo spent years worried about the past. Now it can focus on the future.](https://finance.yahoo.com/news/wells-fargo-spent-years-worried-about-the-past-now-it-can-focus-on-the-future-143003609.html)
+- Jun 08 - [Hedge Funds Face California Rebuke Over Role in Wildfire Claims](https://finance.yahoo.com/news/hedge-funds-face-california-rebuke-140012392.html)
+- Jun 08 - [‘The facts are on my side’: Rep. McIver touts confidence ahead of day in court with Trump’s DOJ](https://www.yahoo.com/news/facts-side-rep-mciver-touts-134227239.html)
+- Jun 08 - [I bought my mother-in-law a condo — and she took out a $30,000 car loan. Now she refuses to get a roommate.](https://finance.yahoo.com/news/bought-mother-law-condo-she-121600358.html)
 - Jun 08 - [A fresh inflation reading greets a stock market back near all-time highs: What to know this week](https://finance.yahoo.com/news/a-fresh-inflation-reading-greets-a-stock-market-back-near-all-time-highs-what-to-know-this-week-114224467.html)
-- Jun 08 - [Leaders attend Blue Economy and Finance Forum in Monaco, held in advance of UN Oceans meeting](https://www.yahoo.com/news/leaders-attend-blue-economy-finance-113745412.html)
-- Jun 08 - [Ukraine drone barrage targets Moscow as Zelenskyy demands accountability for Putin](https://www.yahoo.com/news/ukraine-drone-barrage-targets-moscow-084532578.html)
-- Jun 08 - [Freeze your cherries, eat a cup of beans daily and try this hack to fall asleep fast — plus 9 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/freeze-your-cherries-eat-a-cup-of-beans-daily-and-try-this-hack-to-fall-asleep-fast--plus-9-more-health-tips-to-help-you-have-a-great-week-090042654.html)
-- Jun 08 - [1 Top Cryptocurrency to Buy Before It Soars 6,220%, According to Cathie Wood](https://finance.yahoo.com/news/1-top-cryptocurrency-buy-soars-082600213.html)
 <!-- feed end -->
