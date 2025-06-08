@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 08 - [Trump stumbles on steps up to Air Force One](https://www.yahoo.com/news/trump-stumbles-steps-air-force-203936825.html)
-- Jun 08 - [Terry Moran Suspended at ABC News After Posting That White House Deputy Chief Stephen Miller Is a ‘World-Class Hater’](https://www.yahoo.com/news/terry-moran-suspended-abc-news-155008354.html)
-- Jun 08 - [National Guard faces off with protesters hours after arriving in Los Angeles on Trump's orders](https://www.yahoo.com/news/national-guard-troops-arrive-los-150009733.html)
-- Jun 08 - [6 "Bad" Fruits You Should Be Eating for Weight Loss, According to Dietitians](https://www.yahoo.com/lifestyle/6-bad-fruits-eating-weight-140000714.html)
-- Jun 08 - [Milwaukee crash near 6th and Hayes; multiple vehicles wrecked](https://www.yahoo.com/news/milwaukee-crash-near-6th-hayes-130040255.html)
+- Jun 08 - [What really happened outside the Paramount Home Depot? The reality on the ground vs. the rhetoric](https://www.yahoo.com/news/really-happened-outside-paramount-home-184604236.html)
+- Jun 08 - [A runaway pet zebra has been captured in Tennessee](https://www.yahoo.com/lifestyle/runaway-pet-zebra-captured-tennessee-173227076.html)
+- Jun 08 - [Cathie Wood sells $22.8 million of hot stock near all-time highs](https://finance.yahoo.com/news/cathie-wood-sells-22-8-171700758.html)
+- Jun 08 - [Sun Blasts X1-Class Solar Flare! See Spacecraft Footage In 4K](https://www.yahoo.com/news/sun-blasts-x1-class-solar-190000381.html)
 <!-- feed end -->
