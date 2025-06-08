@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [TSA Just Banned Costco Cards at Airport Security](https://www.yahoo.com/news/tsa-just-banned-costco-cards-033225289.html)
-- Jun 08 - [A surprising study found hints of biological activity on a distant planet. Now, scientists say there’s more to the story](https://www.yahoo.com/news/one-planet-revealing-why-hard-140114753.html)
+- Jun 08 - [Iranian rapper Tataloo once supported a hard-line presidential candidate. Now he faces execution](https://www.yahoo.com/news/iranian-rapper-tataloo-once-supported-054812785.html)
+- Jun 08 - [Public and Private Meet at the Africa CEO Forum](https://finance.yahoo.com/video/public-private-meet-africa-ceo-050530782.html)
+- Jun 08 - [Nutritionists Are Warning That This Very Popular Food Habit Might Actually Be An Eating Disorder In Disguise](https://www.yahoo.com/lifestyle/nutritionists-warning-very-popular-food-023103298.html)
 - Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
-- Jun 07 - [Thousands of demonstrators march through Rome to call for an immediate end to the war in Gaza](https://www.yahoo.com/news/thousands-demonstrators-march-rome-call-193946760.html)
-- Jun 07 - [I'm a Cardiologist, and This 'Relaxing' Habit Is Actually Harming Your Heart Health](https://www.yahoo.com/lifestyle/im-cardiologist-relaxing-habit-actually-175000311.html)
+- Jun 07 - [Egg recall over salmonella warning spans across nine states](https://www.yahoo.com/news/egg-recall-over-salmonella-warning-133820586.html)
 <!-- feed end -->
