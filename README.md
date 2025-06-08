@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 08 - [Iranian rapper Tataloo once supported a hard-line presidential candidate. Now he faces execution](https://www.yahoo.com/news/iranian-rapper-tataloo-once-supported-054812785.html)
 - Jun 08 - [TSA Just Banned Costco Cards at Airport Security](https://www.yahoo.com/news/tsa-just-banned-costco-cards-033225289.html)
-- Jun 08 - [Crash shuts down all lanes of I-35 southbound near 51st Street](https://www.yahoo.com/news/crash-shuts-down-lanes-35-033115259.html)
 - Jun 08 - [Nutritionists Are Warning That This Very Popular Food Habit Might Actually Be An Eating Disorder In Disguise](https://www.yahoo.com/lifestyle/nutritionists-warning-very-popular-food-023103298.html)
 - Jun 08 - [Trump Called Musk ‘Big-Time Drug Addict,’ Said Physical Fight With Treasury Secretary Was ‘Too Much’](https://www.yahoo.com/news/trump-called-musk-big-time-003150840.html)
+- Jun 07 - [I'm a Cardiologist, and This 'Relaxing' Habit Is Actually Harming Your Heart Health](https://www.yahoo.com/lifestyle/im-cardiologist-relaxing-habit-actually-175000311.html)
 <!-- feed end -->
