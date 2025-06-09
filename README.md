@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [5 Monster Stocks to Hold for the Next 10 Years](https://finance.yahoo.com/news/5-monster-stocks-hold-next-082500172.html)
-- Jun 09 - [What time is it illegal to mow your lawn? Know the rules in Rochester](https://www.yahoo.com/lifestyle/time-illegal-mow-lawn-know-082434538.html)
-- Jun 09 - [How much would you pay for some peace and quiet?](https://www.yahoo.com/lifestyle/much-pay-peace-quiet-080921623.html)
+- Jun 09 - [Tips for maintaining a diversified, 'earnings-based' portfolio](https://finance.yahoo.com/video/tips-maintaining-diversified-earnings-based-100043998.html)
+- Jun 09 - [Markets should see new all-time highs this summer: Strategist](https://finance.yahoo.com/video/markets-see-time-highs-summer-100032798.html)
+- Jun 09 - [Musk's father says Elon made a mistake 'under stress' and that Trump will prevail](https://www.yahoo.com/news/musks-father-says-elon-made-071410072.html)
 - Jun 09 - [Karoline Leavitt Squirms Over Maria Bartiromo’s Blunt Question About Elon Musk](https://www.yahoo.com/news/karoline-leavitt-squirms-over-maria-070544413.html)
 - Jun 09 - [India central bank's large rate cut squeezes forward premiums, leaves rupee vulnerable, analysts say](https://finance.yahoo.com/news/india-central-banks-large-rate-064516587.html)
 <!-- feed end -->
