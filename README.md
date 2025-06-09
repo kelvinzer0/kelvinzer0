@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [‘Do we have to die? Fix the road’: Phoenix family demands city help after 18 cars have crashed into their home](https://www.yahoo.com/news/die-fix-road-phoenix-family-114200378.html)
-- Jun 09 - [India faces two years of sugar surplus, growers and officials say](https://finance.yahoo.com/news/india-faces-two-years-sugar-113953173.html)
-- Jun 09 - [Japan's Osaka Expo temporarily suspends water shows after high levels of bacteria detected](https://www.yahoo.com/news/japans-osaka-expo-temporarily-suspends-113711028.html)
-- Jun 09 - [Citi Sees Fed Cut Delayed to September After Jobs Data](https://finance.yahoo.com/video/citi-sees-fed-cut-delayed-112412399.html)
-- Jun 09 - [Republican lawmaker’s raucous town hall reflects challenges in promoting Trump's bill](https://www.yahoo.com/news/republican-lawmaker-raucous-town-hall-100547002.html)
+- Jun 09 - [Laura Loomer faces internet backlash after ‘body shaming’ AOC during NYC’s Puerto Rican day](https://www.yahoo.com/news/laura-loomer-faces-internet-backlash-122148191.html)
+- Jun 09 - [Trump administration ‘diverted 20,000 anti-drone missiles promised to Ukraine to US troops’](https://www.yahoo.com/news/trump-administration-diverted-20-000-121854257.html)
+- Jun 09 - [Pensioners earning under £35k to get winter fuel payments](https://www.yahoo.com/news/pensioners-earning-under-35k-winter-121145461.html)
+- Jun 09 - [Explosion and fire hit Singapore-flagged container ship off southern Indian coast](https://www.yahoo.com/news/explosion-fire-hit-singapore-flagged-121015347.html)
+- Jun 09 - [Rounds Of Rain Could Trigger Flooding In Texas, Oklahoma](https://www.yahoo.com/news/rounds-rain-could-trigger-flooding-112949654.html)
 <!-- feed end -->
