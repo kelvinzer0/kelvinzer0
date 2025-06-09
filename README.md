@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [5 Monster Stocks to Hold for the Next 10 Years](https://finance.yahoo.com/news/5-monster-stocks-hold-next-082500172.html)
+- Jun 09 - [What time is it illegal to mow your lawn? Know the rules in Rochester](https://www.yahoo.com/lifestyle/time-illegal-mow-lawn-know-082434538.html)
 - Jun 09 - [How much would you pay for some peace and quiet?](https://www.yahoo.com/lifestyle/much-pay-peace-quiet-080921623.html)
+- Jun 09 - [Karoline Leavitt Squirms Over Maria Bartiromo’s Blunt Question About Elon Musk](https://www.yahoo.com/news/karoline-leavitt-squirms-over-maria-070544413.html)
 - Jun 09 - [India central bank's large rate cut squeezes forward premiums, leaves rupee vulnerable, analysts say](https://finance.yahoo.com/news/india-central-banks-large-rate-064516587.html)
-- Jun 09 - [Influx of kittens prompts plea to neuter cats](https://www.yahoo.com/lifestyle/influx-kittens-prompts-plea-neuter-054811914.html)
-- Jun 09 - [Contractor in Syria uncovers a surprise beneath the rubble: an ancient tomb complex](https://www.yahoo.com/news/contractor-syria-uncovers-surprise-beneath-050221608.html)
-- Jun 09 - [Boeing plane lands back in China for delivery as tariff war eases](https://finance.yahoo.com/news/boeing-plane-lands-back-china-040156593.html)
 <!-- feed end -->
