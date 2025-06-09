@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Another deadly shooting near aid distribution center in Gaza](https://www.yahoo.com/news/another-deadly-shooting-near-aid-013617522.html)
+- Jun 09 - [Israel has boarded Gaza-bound aid ship carrying Greta Thunberg, the Freedom Flotilla Coalition says](https://www.yahoo.com/news/israel-boarded-gaza-bound-aid-005211911.html)
+- Jun 08 - [Heavy rain causing flooding problems for Boardman neighborhood](https://www.yahoo.com/news/heavy-rain-causing-flooding-problems-232521882.html)
+- Jun 08 - [Israeli forces seize Gaza aid boat carrying Greta Thunberg, ministry says](https://www.yahoo.com/news/freedom-flotilla-coalition-says-alarm-223025697.html)
 - Jun 08 - [Trump stumbles on steps up to Air Force One](https://www.yahoo.com/news/trump-stumbles-steps-air-force-203936825.html)
-- Jun 08 - [What really happened outside the Paramount Home Depot? The reality on the ground vs. the rhetoric](https://www.yahoo.com/news/really-happened-outside-paramount-home-184604236.html)
-- Jun 08 - [A runaway pet zebra has been captured in Tennessee](https://www.yahoo.com/lifestyle/runaway-pet-zebra-captured-tennessee-173227076.html)
-- Jun 08 - [Cathie Wood sells $22.8 million of hot stock near all-time highs](https://finance.yahoo.com/news/cathie-wood-sells-22-8-171700758.html)
-- Jun 08 - [Sun Blasts X1-Class Solar Flare! See Spacecraft Footage In 4K](https://www.yahoo.com/news/sun-blasts-x1-class-solar-190000381.html)
 <!-- feed end -->
