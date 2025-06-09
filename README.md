@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Auto companies 'in full panic' over rare-earths bottleneck](https://finance.yahoo.com/video/auto-companies-full-panic-over-104314777.html)
-- Jun 09 - [Tariffs on canola seen supercharging Canadian farmers' shift to spring wheat](https://finance.yahoo.com/news/tariffs-canola-seen-supercharging-canadian-101806531.html)
-- Jun 09 - [What's happening with Wawa's expansion into Escambia, Santa Rosa counties?](https://www.yahoo.com/news/whats-happening-wawas-expansion-escambia-090123666.html)
-- Jun 09 - [Musk's father says Trump row triggered by intense stress, has to end](https://www.yahoo.com/news/musks-father-says-elon-made-071410072.html)
-- Jun 09 - [Karoline Leavitt Squirms Over Maria Bartiromo’s Blunt Question About Elon Musk](https://www.yahoo.com/news/karoline-leavitt-squirms-over-maria-070544413.html)
+- Jun 09 - [‘Do we have to die? Fix the road’: Phoenix family demands city help after 18 cars have crashed into their home](https://www.yahoo.com/news/die-fix-road-phoenix-family-114200378.html)
+- Jun 09 - [India faces two years of sugar surplus, growers and officials say](https://finance.yahoo.com/news/india-faces-two-years-sugar-113953173.html)
+- Jun 09 - [Japan's Osaka Expo temporarily suspends water shows after high levels of bacteria detected](https://www.yahoo.com/news/japans-osaka-expo-temporarily-suspends-113711028.html)
+- Jun 09 - [Citi Sees Fed Cut Delayed to September After Jobs Data](https://finance.yahoo.com/video/citi-sees-fed-cut-delayed-112412399.html)
+- Jun 09 - [Republican lawmaker’s raucous town hall reflects challenges in promoting Trump's bill](https://www.yahoo.com/news/republican-lawmaker-raucous-town-hall-100547002.html)
 <!-- feed end -->
