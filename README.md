@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [New DNA results raise more questions in search for Travis Decker in triple homicide case](https://www.yahoo.com/news/dna-results-raise-more-questions-175059424.html)
+- Jun 09 - [White House breaks ground on Trump projects to pave over Rose Garden grass, add flagpoles to lawns](https://www.yahoo.com/news/white-house-breaks-ground-trump-182858802.html)
 - Jun 09 - [Sean 'Diddy' Combs' ex-girlfriend says she cried for three days after reading Cassie's lawsuit](https://www.yahoo.com/news/sean-diddy-combs-ex-girlfriend-174649369.html)
-- Jun 09 - [The bull case for stocks is growing among Wall Street strategists](https://finance.yahoo.com/news/the-bull-case-for-stocks-is-growing-among-wall-street-strategists-172542612.html)
-- Jun 09 - [Princess Charlene and Prince Albert’s Twins Steal the Show as They Mark Major Royal Milestone](https://www.yahoo.com/news/princess-charlene-prince-albert-twins-165603112.html)
-- Jun 09 - [Oklahoma man who was given 3 last meals will stand trial again but won't face the death penalty](https://www.yahoo.com/news/oklahoma-prosecutors-seek-retrial-death-164651060.html)
+- Jun 09 - [Florida agency tells newspaper to halt reporting angle on foundation associated with governor's wife](https://www.yahoo.com/news/florida-agency-tells-newspaper-halt-174522019.html)
+- Jun 09 - [Sheriff’s office: Motorcyclist going 113 mph fled from deputies](https://www.yahoo.com/news/sheriff-office-motorcyclist-going-113-163656071.html)
+- Jun 09 - [5 people hospitalized after police chase reaches 130 mph, ends in crash in Mass. city](https://www.yahoo.com/news/five-people-hospitalized-police-chase-142619615.html)
 <!-- feed end -->
