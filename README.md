@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Tips for maintaining a diversified, 'earnings-based' portfolio](https://finance.yahoo.com/video/tips-maintaining-diversified-earnings-based-100043998.html)
-- Jun 09 - [Markets should see new all-time highs this summer: Strategist](https://finance.yahoo.com/video/markets-see-time-highs-summer-100032798.html)
-- Jun 09 - [Musk's father says Elon made a mistake 'under stress' and that Trump will prevail](https://www.yahoo.com/news/musks-father-says-elon-made-071410072.html)
+- Jun 09 - [Auto companies 'in full panic' over rare-earths bottleneck](https://finance.yahoo.com/video/auto-companies-full-panic-over-104314777.html)
+- Jun 09 - [Tariffs on canola seen supercharging Canadian farmers' shift to spring wheat](https://finance.yahoo.com/news/tariffs-canola-seen-supercharging-canadian-101806531.html)
+- Jun 09 - [What's happening with Wawa's expansion into Escambia, Santa Rosa counties?](https://www.yahoo.com/news/whats-happening-wawas-expansion-escambia-090123666.html)
+- Jun 09 - [Musk's father says Trump row triggered by intense stress, has to end](https://www.yahoo.com/news/musks-father-says-elon-made-071410072.html)
 - Jun 09 - [Karoline Leavitt Squirms Over Maria Bartiromo’s Blunt Question About Elon Musk](https://www.yahoo.com/news/karoline-leavitt-squirms-over-maria-070544413.html)
-- Jun 09 - [India central bank's large rate cut squeezes forward premiums, leaves rupee vulnerable, analysts say](https://finance.yahoo.com/news/india-central-banks-large-rate-064516587.html)
 <!-- feed end -->
