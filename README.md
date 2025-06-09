@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [5 people hospitalized after police chase reaches 130 mph, ends in crash in Mass. city](https://www.yahoo.com/news/five-people-hospitalized-police-chase-142619615.html)
-- Jun 09 - [Trump stumbles up the stairs to Air Force One, stoking memory of Biden tripping video](https://www.yahoo.com/news/trump-stumbles-stairs-air-force-155405631.html)
-- Jun 09 - [Why U.S.-China trade talks are being held in London](https://www.yahoo.com/news/why-u-china-trade-talks-152150243.html)
-- Jun 09 - [A NATO member U-turned on buying Black Hawks, suggesting Russia's war shows they aren't the best weapons to focus on](https://www.yahoo.com/news/nato-member-u-turned-buying-141905658.html)
-- Jun 09 - [SpaceX rocket debris litters Mexico beach, threatens environment](https://www.yahoo.com/news/spacex-rocket-debris-litters-mexico-141122293.html)
+- Jun 09 - [New DNA results raise more questions in search for Travis Decker in triple homicide case](https://www.yahoo.com/news/dna-results-raise-more-questions-175059424.html)
+- Jun 09 - [Sean 'Diddy' Combs' ex-girlfriend says she cried for three days after reading Cassie's lawsuit](https://www.yahoo.com/news/sean-diddy-combs-ex-girlfriend-174649369.html)
+- Jun 09 - [The bull case for stocks is growing among Wall Street strategists](https://finance.yahoo.com/news/the-bull-case-for-stocks-is-growing-among-wall-street-strategists-172542612.html)
+- Jun 09 - [Princess Charlene and Prince Albert’s Twins Steal the Show as They Mark Major Royal Milestone](https://www.yahoo.com/news/princess-charlene-prince-albert-twins-165603112.html)
+- Jun 09 - [Oklahoma man who was given 3 last meals will stand trial again but won't face the death penalty](https://www.yahoo.com/news/oklahoma-prosecutors-seek-retrial-death-164651060.html)
 <!-- feed end -->
