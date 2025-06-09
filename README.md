@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Thames Water creditors offer up £5bn as part of emergency turnaround plan](https://finance.yahoo.com/news/thames-water-creditors-offer-5bn-230135306.html)
+- Jun 09 - [Country Singer Conner Smith Strikes and Kills Woman, 77, in Alleged Crosswalk Car Accident](https://www.yahoo.com/news/country-singer-conner-smith-strikes-221757958.html)
 - Jun 09 - [S&P 500 could push even higher by end of year: Chart of the Day](https://finance.yahoo.com/video/p-500-could-push-even-221107594.html)
-- Jun 09 - [City of Tybee Island mourns loss of HR Director after multi-vehicle crash on Saturday](https://www.yahoo.com/news/city-tybee-island-mourns-loss-203941163.html)
-- Jun 09 - [Teen Felt a Prick, Then Spotted Rattlesnake. When He Rolled Down His Sock, He Saw 'Two Red Dots and Blood'](https://www.yahoo.com/news/teen-felt-prick-then-spotted-192344316.html)
-- Jun 09 - [Trump stumbles up the stairs to Air Force One, stoking memory of Biden tripping video](https://www.yahoo.com/news/trump-stumbles-stairs-air-force-183530582.html)
+- Jun 09 - [Cousin discovers 23-year-old’s body bound and duct taped, Washington cops say](https://www.yahoo.com/news/cousin-discovers-23-old-body-184137780.html)
 - Jun 09 - [White House breaks ground on Trump projects to pave over Rose Garden grass, add flagpoles to lawns](https://www.yahoo.com/news/white-house-breaks-ground-trump-182858802.html)
 <!-- feed end -->
