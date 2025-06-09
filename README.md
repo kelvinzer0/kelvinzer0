@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Man arrested for Sunday night murder in Ware County](https://www.yahoo.com/news/man-arrested-sunday-night-murder-202144162.html)
-- Jun 09 - [Apple's New Design Language](https://finance.yahoo.com/video/apples-design-language-193536613.html)
-- Jun 09 - [These Snake Trackers Have Removed More than 20 Tons of Invasive Pythons from Florida… and They’re Just Getting Started](https://www.yahoo.com/news/snake-trackers-removed-more-20-183140246.html)
+- Jun 09 - [S&P 500 could push even higher by end of year: Chart of the Day](https://finance.yahoo.com/video/p-500-could-push-even-221107594.html)
+- Jun 09 - [City of Tybee Island mourns loss of HR Director after multi-vehicle crash on Saturday](https://www.yahoo.com/news/city-tybee-island-mourns-loss-203941163.html)
+- Jun 09 - [Teen Felt a Prick, Then Spotted Rattlesnake. When He Rolled Down His Sock, He Saw 'Two Red Dots and Blood'](https://www.yahoo.com/news/teen-felt-prick-then-spotted-192344316.html)
+- Jun 09 - [Trump stumbles up the stairs to Air Force One, stoking memory of Biden tripping video](https://www.yahoo.com/news/trump-stumbles-stairs-air-force-183530582.html)
 - Jun 09 - [White House breaks ground on Trump projects to pave over Rose Garden grass, add flagpoles to lawns](https://www.yahoo.com/news/white-house-breaks-ground-trump-182858802.html)
-- Jun 09 - [Dave Portnoy says it took him 10 years to get to $1M — but now he’s ‘over the hump’ and can make $5M in a week](https://finance.yahoo.com/news/dave-portnoy-says-took-him-181100245.html)
 <!-- feed end -->
