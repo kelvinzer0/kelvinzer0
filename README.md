@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Japan confirms China's aircraft carrier sailed east of Iwo Jima for first time](https://www.yahoo.com/news/japan-confirms-chinas-aircraft-carrier-041337078.html)
+- Jun 09 - [Protesters set Waymo cars on fire in Los Angeles anti-ICE protests](https://www.yahoo.com/news/protesters-set-waymo-cars-fire-034551675.html)
 - Jun 09 - [India's $80 billion coal-power boom is running short of water](https://finance.yahoo.com/news/indias-80-billion-coal-power-034226753.html)
 - Jun 09 - [A New Orleans police officer who fatally shot a puppy will face a jury lawsuit trial](https://www.yahoo.com/news/orleans-police-officer-fatally-shot-033729477.html)
-- Jun 09 - [Buffalo Police investigating threat at Amherst St. Wegmans](https://www.yahoo.com/news/buffalo-police-investigating-threat-amherst-020859709.html)
-- Jun 08 - [Trump stumbles on steps up to Air Force One](https://www.yahoo.com/news/trump-stumbles-steps-air-force-203936825.html)
-- Jun 08 - [U.S. Coast Guard responds to plane in the water off the coast of Point Loma](https://www.yahoo.com/news/u-coast-guard-responds-plane-210251581.html)
+- Jun 08 - [At least 22 injured after boat fire near the Bronx](https://www.yahoo.com/news/least-22-injured-boat-fire-233638615.html)
 <!-- feed end -->
