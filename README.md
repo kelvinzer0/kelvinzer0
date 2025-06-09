@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Saudi Arabia's IPO Boom Faces Multiple Challenges](https://finance.yahoo.com/video/saudi-arabias-ipo-boom-faces-064447373.html)
-- Jun 09 - [Japan confirms China's aircraft carrier sailed east of Iwo Jima for first time](https://www.yahoo.com/news/japan-confirms-chinas-aircraft-carrier-041337078.html)
-- Jun 09 - [Protesters set Waymo cars on fire in Los Angeles anti-ICE protests](https://www.yahoo.com/news/protesters-set-waymo-cars-fire-034551675.html)
-- Jun 09 - [India's $80 billion coal-power boom is running short of water](https://finance.yahoo.com/news/indias-80-billion-coal-power-034226753.html)
-- Jun 09 - [A New Orleans police officer who fatally shot a puppy will face a jury lawsuit trial](https://www.yahoo.com/news/orleans-police-officer-fatally-shot-033729477.html)
+- Jun 09 - [How much would you pay for some peace and quiet?](https://www.yahoo.com/lifestyle/much-pay-peace-quiet-080921623.html)
+- Jun 09 - [India central bank's large rate cut squeezes forward premiums, leaves rupee vulnerable, analysts say](https://finance.yahoo.com/news/india-central-banks-large-rate-064516587.html)
+- Jun 09 - [Influx of kittens prompts plea to neuter cats](https://www.yahoo.com/lifestyle/influx-kittens-prompts-plea-neuter-054811914.html)
+- Jun 09 - [Contractor in Syria uncovers a surprise beneath the rubble: an ancient tomb complex](https://www.yahoo.com/news/contractor-syria-uncovers-surprise-beneath-050221608.html)
+- Jun 09 - [Boeing plane lands back in China for delivery as tariff war eases](https://finance.yahoo.com/news/boeing-plane-lands-back-china-040156593.html)
 <!-- feed end -->
