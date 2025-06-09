@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Apple's New Design Language](https://finance.yahoo.com/video/apples-design-language-193536613.html)
+- Jun 09 - [Jim Cramer Says Wells Fargo (WFC) “Deserves to be Let Out of the Doghouse”](https://finance.yahoo.com/news/jim-cramer-says-wells-fargo-190553540.html)
+- Jun 09 - [Cousin discovers 23-year-old’s body bound and duct taped, Washington cops say](https://www.yahoo.com/news/cousin-discovers-23-old-body-184137780.html)
 - Jun 09 - [White House breaks ground on Trump projects to pave over Rose Garden grass, add flagpoles to lawns](https://www.yahoo.com/news/white-house-breaks-ground-trump-182858802.html)
-- Jun 09 - [Sean 'Diddy' Combs' ex-girlfriend says she cried for three days after reading Cassie's lawsuit](https://www.yahoo.com/news/sean-diddy-combs-ex-girlfriend-174649369.html)
-- Jun 09 - [Florida agency tells newspaper to halt reporting angle on foundation associated with governor's wife](https://www.yahoo.com/news/florida-agency-tells-newspaper-halt-174522019.html)
-- Jun 09 - [Sheriff’s office: Motorcyclist going 113 mph fled from deputies](https://www.yahoo.com/news/sheriff-office-motorcyclist-going-113-163656071.html)
-- Jun 09 - [5 people hospitalized after police chase reaches 130 mph, ends in crash in Mass. city](https://www.yahoo.com/news/five-people-hospitalized-police-chase-142619615.html)
+- Jun 09 - [Dave Portnoy says it took him 10 years to get to $1M — but now he’s ‘over the hump’ and can make $5M in a week](https://finance.yahoo.com/news/dave-portnoy-says-took-him-181100245.html)
 <!-- feed end -->
