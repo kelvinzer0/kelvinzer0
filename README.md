@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Laura Loomer faces internet backlash after ‘body shaming’ AOC during NYC’s Puerto Rican day](https://www.yahoo.com/news/laura-loomer-faces-internet-backlash-122148191.html)
-- Jun 09 - [Qualcomm buys Alphawave, Nvidia CEO talks AI in the UK, eVTOL stocks jump](https://finance.yahoo.com/video/qualcomm-buys-alphawave-nvidia-ceo-133235108.html)
-- Jun 09 - [Nvidia, Oracle--Backed Multi-Billion Dollar UAE AI Project Stalls Over Security Snag](https://finance.yahoo.com/news/nvidia-oracle-backed-multi-billion-133116839.html)
-- Jun 09 - [One mom's goal to buy American-made products can teach us all something](https://www.yahoo.com/news/one-moms-goal-buy-american-130929376.html)
-- Jun 09 - [Explosion and fire hit Singapore-flagged container ship off southern Indian coast](https://www.yahoo.com/news/explosion-fire-hit-singapore-flagged-121015347.html)
+- Jun 09 - [What to Expect From Apple WWDC](https://finance.yahoo.com/video/expect-apple-wwdc-141249098.html)
+- Jun 09 - [Tesla faces new challenge as leader announces exit](https://finance.yahoo.com/news/tesla-faces-challenge-leader-announces-133300944.html)
+- Jun 09 - [A Mysterious Object Lit Up the Sky 600 Years Ago. Astronomers Finally Found It.](https://www.yahoo.com/news/mysterious-object-lit-sky-600-130000986.html)
+- Jun 09 - [Ask an Advisor: We Have $1.4M Saved for Retirement. Can We Afford to Spend $7k Per Month?](https://finance.yahoo.com/news/ask-advisor-1-4m-saved-120000415.html)
+- Jun 09 - [Deadly weekend storms leave Georgia reeling](https://www.yahoo.com/news/deadly-weekend-storms-leave-georgia-113857470.html)
 <!-- feed end -->
