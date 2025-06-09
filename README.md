@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [What to Expect From Apple WWDC](https://finance.yahoo.com/video/expect-apple-wwdc-141249098.html)
-- Jun 09 - [Tesla faces new challenge as leader announces exit](https://finance.yahoo.com/news/tesla-faces-challenge-leader-announces-133300944.html)
-- Jun 09 - [A Mysterious Object Lit Up the Sky 600 Years Ago. Astronomers Finally Found It.](https://www.yahoo.com/news/mysterious-object-lit-sky-600-130000986.html)
-- Jun 09 - [Ask an Advisor: We Have $1.4M Saved for Retirement. Can We Afford to Spend $7k Per Month?](https://finance.yahoo.com/news/ask-advisor-1-4m-saved-120000415.html)
-- Jun 09 - [Deadly weekend storms leave Georgia reeling](https://www.yahoo.com/news/deadly-weekend-storms-leave-georgia-113857470.html)
+- Jun 09 - [NY Fed consumer survey: Cautious optimism is on the rise](https://finance.yahoo.com/video/ny-fed-consumer-survey-cautious-162226726.html)
+- Jun 09 - [5 people hospitalized after police chase reaches 130 mph, ends in crash in Mass. city](https://www.yahoo.com/news/five-people-hospitalized-police-chase-142619615.html)
+- Jun 09 - [Why U.S.-China trade talks are being held in London](https://www.yahoo.com/news/why-u-china-trade-talks-152150243.html)
+- Jun 09 - [A Millennial Making $20 An Hour Says They Worry About Ending Up Like The Old Greeters At Walmart, Asks: 'How Are You All Doing Financially?'](https://finance.yahoo.com/news/millennial-making-20-hour-says-151734227.html)
+- Jun 09 - [A NATO member U-turned on buying Black Hawks, suggesting Russia's war shows they aren't the best weapons to focus on](https://www.yahoo.com/news/nato-member-u-turned-buying-141905658.html)
 <!-- feed end -->
