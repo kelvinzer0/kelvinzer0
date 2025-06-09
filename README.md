@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Another deadly shooting near aid distribution center in Gaza](https://www.yahoo.com/news/another-deadly-shooting-near-aid-013617522.html)
-- Jun 09 - [Israel has boarded Gaza-bound aid ship carrying Greta Thunberg, the Freedom Flotilla Coalition says](https://www.yahoo.com/news/israel-boarded-gaza-bound-aid-005211911.html)
-- Jun 08 - [Heavy rain causing flooding problems for Boardman neighborhood](https://www.yahoo.com/news/heavy-rain-causing-flooding-problems-232521882.html)
-- Jun 08 - [Israeli forces seize Gaza aid boat carrying Greta Thunberg, ministry says](https://www.yahoo.com/news/freedom-flotilla-coalition-says-alarm-223025697.html)
 - Jun 08 - [Trump stumbles on steps up to Air Force One](https://www.yahoo.com/news/trump-stumbles-steps-air-force-203936825.html)
+- Jun 08 - [Arkansas State Police make arrest after human remains discovered in Mount Ida](https://www.yahoo.com/news/arkansas-state-police-arrest-human-211318079.html)
+- Jun 08 - [U.S. Coast Guard responds to plane in the water off the coast of Point Loma](https://www.yahoo.com/news/u-coast-guard-responds-plane-210251581.html)
+- Jun 08 - [The #1 Nut to Help You Lose Weight, Recommended by Dietitians](https://www.yahoo.com/lifestyle/1-nut-help-lose-weight-190000447.html)
+- Jun 08 - [What really happened outside the Paramount Home Depot? The reality on the ground vs. the rhetoric](https://www.yahoo.com/news/really-happened-outside-paramount-home-184604236.html)
 <!-- feed end -->
