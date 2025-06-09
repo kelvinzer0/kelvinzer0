@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [A New Orleans police officer who fatally shot a puppy will face a jury lawsuit trial](https://www.yahoo.com/news/orleans-police-officer-fatally-shot-033729477.html)
+- Jun 09 - [Grand Rapids hearing for Amillier Penn Way happening this week](https://www.yahoo.com/news/grand-rapids-hearing-amillier-penn-030828004.html)
 - Jun 08 - [Trump stumbles on steps up to Air Force One](https://www.yahoo.com/news/trump-stumbles-steps-air-force-203936825.html)
-- Jun 08 - [Arkansas State Police make arrest after human remains discovered in Mount Ida](https://www.yahoo.com/news/arkansas-state-police-arrest-human-211318079.html)
-- Jun 08 - [U.S. Coast Guard responds to plane in the water off the coast of Point Loma](https://www.yahoo.com/news/u-coast-guard-responds-plane-210251581.html)
 - Jun 08 - [The #1 Nut to Help You Lose Weight, Recommended by Dietitians](https://www.yahoo.com/lifestyle/1-nut-help-lose-weight-190000447.html)
-- Jun 08 - [What really happened outside the Paramount Home Depot? The reality on the ground vs. the rhetoric](https://www.yahoo.com/news/really-happened-outside-paramount-home-184604236.html)
+- Jun 08 - [Possible 100 MPH Winds Expected Sunday In These Four States](https://www.yahoo.com/news/possible-100-mph-winds-expected-183553538.html)
 <!-- feed end -->
