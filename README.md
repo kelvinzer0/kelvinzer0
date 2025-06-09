@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 09 - [Laura Loomer faces internet backlash after ‘body shaming’ AOC during NYC’s Puerto Rican day](https://www.yahoo.com/news/laura-loomer-faces-internet-backlash-122148191.html)
-- Jun 09 - [Trump administration ‘diverted 20,000 anti-drone missiles promised to Ukraine to US troops’](https://www.yahoo.com/news/trump-administration-diverted-20-000-121854257.html)
-- Jun 09 - [Pensioners earning under £35k to get winter fuel payments](https://www.yahoo.com/news/pensioners-earning-under-35k-winter-121145461.html)
+- Jun 09 - [Qualcomm buys Alphawave, Nvidia CEO talks AI in the UK, eVTOL stocks jump](https://finance.yahoo.com/video/qualcomm-buys-alphawave-nvidia-ceo-133235108.html)
+- Jun 09 - [Nvidia, Oracle--Backed Multi-Billion Dollar UAE AI Project Stalls Over Security Snag](https://finance.yahoo.com/news/nvidia-oracle-backed-multi-billion-133116839.html)
+- Jun 09 - [One mom's goal to buy American-made products can teach us all something](https://www.yahoo.com/news/one-moms-goal-buy-american-130929376.html)
 - Jun 09 - [Explosion and fire hit Singapore-flagged container ship off southern Indian coast](https://www.yahoo.com/news/explosion-fire-hit-singapore-flagged-121015347.html)
-- Jun 09 - [Rounds Of Rain Could Trigger Flooding In Texas, Oklahoma](https://www.yahoo.com/news/rounds-rain-could-trigger-flooding-112949654.html)
 <!-- feed end -->
