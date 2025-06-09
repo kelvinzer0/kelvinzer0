@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Man arrested for Sunday night murder in Ware County](https://www.yahoo.com/news/man-arrested-sunday-night-murder-202144162.html)
 - Jun 09 - [Apple's New Design Language](https://finance.yahoo.com/video/apples-design-language-193536613.html)
-- Jun 09 - [Jim Cramer Says Wells Fargo (WFC) “Deserves to be Let Out of the Doghouse”](https://finance.yahoo.com/news/jim-cramer-says-wells-fargo-190553540.html)
-- Jun 09 - [Cousin discovers 23-year-old’s body bound and duct taped, Washington cops say](https://www.yahoo.com/news/cousin-discovers-23-old-body-184137780.html)
+- Jun 09 - [These Snake Trackers Have Removed More than 20 Tons of Invasive Pythons from Florida… and They’re Just Getting Started](https://www.yahoo.com/news/snake-trackers-removed-more-20-183140246.html)
 - Jun 09 - [White House breaks ground on Trump projects to pave over Rose Garden grass, add flagpoles to lawns](https://www.yahoo.com/news/white-house-breaks-ground-trump-182858802.html)
 - Jun 09 - [Dave Portnoy says it took him 10 years to get to $1M — but now he’s ‘over the hump’ and can make $5M in a week](https://finance.yahoo.com/news/dave-portnoy-says-took-him-181100245.html)
 <!-- feed end -->
