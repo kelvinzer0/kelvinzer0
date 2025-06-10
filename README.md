@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Russian billionaire and Putin critic launches AI data centres in the UK](https://finance.yahoo.com/news/russian-billionaire-putin-critic-launches-151531287.html)
-- Jun 10 - [Russian attack damages building next to Kyiv office of EU delegation](https://www.yahoo.com/news/russian-attack-damages-building-next-150704795.html)
-- Jun 10 - [Driven by personal loss, Syrian woman clears war remnants](https://www.yahoo.com/news/driven-personal-loss-syrian-woman-144650040.html)
-- Jun 10 - [NTSB determines that longtime dirt Late Model racer Scott Bloomquist likely intentionally crashed plane into barn](https://sports.yahoo.com/nascar/breaking-news/article/ntsb-determines-that-longtime-dirt-late-model-racer-scott-bloomquist-likely-intentionally-crashed-plane-into-barn-141705902.html)
+- Jun 10 - ['I'm 53, $50K in Debt, and I Want a Divorce': Truck Driver Tells Dave Ramsey He Has Nothing Saved And Owes IRS — 'You're in a Jar of Pickles'](https://finance.yahoo.com/news/im-53-50k-debt-want-160020693.html)
+- Jun 10 - [Governor Newsom Just Handed This Arkansas Senator Their Entire Behind On A Silver Platter With Undeniable Facts](https://www.yahoo.com/news/governor-newsom-just-destroyed-arkansas-152850795.html)
+- Jun 10 - [US, China talks will result in a 'shaky truce at best'](https://finance.yahoo.com/video/us-china-talks-result-shaky-135655854.html)
+- Jun 10 - [Archaeologists Were Digging Up a Hospital—and Found the Skeletons of 4 Confederate Soldiers](https://www.yahoo.com/news/archaeologists-were-digging-hospital-found-133000788.html)
 - Jun 10 - [Big Bang theory is wrong, claim scientists](https://www.yahoo.com/news/big-bang-theory-wrong-claim-132156521.html)
 <!-- feed end -->
